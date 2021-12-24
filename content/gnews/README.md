@@ -15,98 +15,98 @@
 
 ---
 
-### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
+### [串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手](/content/gnews/1/README.md)
+ ` 郭爆料串珠`
 
-### [灭共漫画——真相永远赢](/content/gnews/2/README.md)
- ` MOS Designer香草山设计部`
+### [串珠498:习访朝鲜深受刺激毫不犹豫要做金氏家族](/content/gnews/2/README.md)
+ ` 郭爆料串珠`
 
-### [2021/12/23 墙内世界](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本不会派政府代表团出席北京冬奥会](/content/gnews/4/README.md)
+### [恒大多地员工罢工 抗议拖欠工资及福利待遇](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [美日拟定联合作战方案以应对台海危机](/content/gnews/5/README.md)
+### [串珠497:新中国联邦2022年春节全球联合大行动](/content/gnews/4/README.md)
+ ` 郭爆料串珠`
+
+### [拜登总统正式签署《防止强迫维吾尔人劳动法》](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/6/README.md)
- ` MG FARM`
+### [串珠496:冬奥被抵制中共报复文贵家人和盘古员工](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
 
-### [七哥谈起诉（2021-12-22摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/11/README.md)
- ` HimalayaRussia`
-
-### [七哥谈自愿战斗（2021-12-22摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [七哥谈舍不得孩子打不到狼（2021-12-22摘录）](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [七哥谈中美之间会取消贸易关税（2021-12-22摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [七哥谈留学生签证（2021-12-22摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/16/README.md)
- ` 焦點20分`
-
-### [2021年12月24日文贵先生直播摘要及音频—银河系农场](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [七哥谈中共对西方媒体的渗透（2021-12-22摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒](/content/gnews/19/README.md)
+### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021/12/24 大卫作战室直播精要](/content/gnews/20/README.md)
+### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [灭共漫画——真相永远赢](/content/gnews/9/README.md)
+ ` MOS Designer香草山设计部`
+
+### [2021/12/23 墙内世界](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港大深夜拆除《国殇之柱》](/content/gnews/21/README.md)
+### [日本不会派政府代表团出席北京冬奥会](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [美日拟定联合作战方案以应对台海危机](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
+
+### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [七哥谈起诉（2021-12-22摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/18/README.md)
+ ` HimalayaRussia`
+
+### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/19/README.md)
+ ` 焦點20分`
+
+### [文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒](/content/gnews/20/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2021/12/24 大卫作战室直播精要](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [港大深夜拆除《国殇之柱》](/content/gnews/22/README.md)
  ` GTV News Talk`
 
-### [有声|郭先生解读风水给人类生存带来的自然力量](/content/gnews/22/README.md)
+### [有声|郭先生解读风水给人类生存带来的自然力量](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](/content/gnews/23/README.md)
+### [有声|【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [【中日财经爆】日本2022财年预算中经济安全成焦点](/content/gnews/24/README.md)
+### [【中日财经爆】日本2022财年预算中经济安全成焦点](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国每个人都在喝污水？中国87%地下水源被严重污染](/content/gnews/25/README.md)
+### [中国每个人都在喝污水？中国87%地下水源被严重污染](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/24/21 香港快讯 中大清晨移走民主女神像 岭大拆六四浮雕 涂去壁画](/content/gnews/26/README.md)
+### [12/24/21 香港快讯 中大清晨移走民主女神像 岭大拆六四浮雕 涂去壁画](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [达扎克在中共病毒问题上有重大利益冲突](/content/gnews/27/README.md)
+### [达扎克在中共病毒问题上有重大利益冲突](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [拜登总统签署《防止强迫维吾尔人劳动法》](/content/gnews/28/README.md)
+### [拜登总统签署《防止强迫维吾尔人劳动法》](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月24日早](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2021年12月24日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [新西兰财经G乐部2021年12月24日:财经新闻整理](/content/gnews/30/README.md)
+### [新西兰财经G乐部2021年12月24日:财经新闻整理](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [显贵阶层的子女将成为独裁统治的陪葬品](/content/gnews/31/README.md)
- ` GTV新闻访谈`
 
 ### [银河快讯：日本公开举行尖阁诸岛海上联合演习；日央行表示弱势日元益处多](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`

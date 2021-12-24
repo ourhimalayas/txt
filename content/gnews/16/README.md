@@ -2,54 +2,51 @@
 ---
 
 
-## 2021年12月24日郭先生大直播文字同步精要
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1787904/)
+## MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1787969/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/gjyst6fyu.jpg)
-战友们好，12月24日郭先生继续和战友们做了大直播，主要的内容包括：
+12/24/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第15天位列6国iTunes摇滚MV榜榜首。
 
-1. 平安夜最重要的是防病毒，想要未来平安就要灭掉共产党。
+* * *
 
-2. 新中国联邦人会找回服饰的自信！
+[【PDF 下载】Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-3. 中国人超过6周的集体行动，几乎很难。郑州公检法战友曾建议加强报道水灾，共产党抓住了中国人喜欢忘记这个特点，制造灾难，屏蔽真相，让老百姓继续被奴役。郭先生40年没有学会英文，为了灭共，创立了爆料革命的郭氏英文，这就是坚持的力量。灭共的关键就是你信不信，要不要干到底！战友们坚持打榜，让更多人参与灭共！
+* * *
 
-4. 杨贝贝的采访，承诺VICE不播放，郭先生也不播放。郭先生对采访没有任何准备。采访过程中，对方多次阻挡镜头，现场的录像还有部分缺失。媒体先入为主，先给你判死刑，让你的情绪失控。郭先生通过完整视频的展示，揭露媒体扭曲事实的真相，震撼世界。杨贝贝骗取采访，她这一生都会为此付出代价。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_110.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_111.jpg)
 
-5. 杨贝贝对自己被中共安排在CCTV，自己的流氓行径没有自知。这就共产党渗透世界的邪恶行径，替共产党卖命，把自己卖死了都不知道。相信共产党，走进火葬场。杨贝贝的忠字舞，这是极度丑恶、淫荡的姿势，是献身毛泽东的意思，她的身体已经被卖掉。中国人的文化，女人是不露脚的，杨贝贝已经彻底放开了，被洗的很彻底。
 
-6. 杨贝贝的采访是充分准备的，一年四季的剪辑，冬奥会播出，阴险至极。如果没有接受采访，HBO也会从侧面编辑制造诋毁爆料革命的视频，郭先生正面出击，用自己当诱饵，让共产党自己暴露，HBO几个小时的采访，只敢剪出了几分钟。世人皆知中国没有人权，没有民主，杨贝贝称呼乱伦彪是人权律师。对战友的拍摄，用猎杀式的镜头语言。利用战友参加了川普竞选活动，把国会山的暴乱和爆料革命联系在一起。利用小斯基的语言把GTV和郭先生捆绑起来。把爆料革命强行和美国政治关联在一起，攻击华人，树立替罪羊。如果没有全程录像，这种采访只要问问题就赢了，会憋死被采访者。印尼300万华人被迫害，50万人被强奸杀戮。美国的500华人如果选择沉默，会遭遇什么样的对待。
+[【PDF 下载】Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-7. 西方人真正了解共产主义的人寥寥无几，所谓相信共产主义的人主要是2种。第一是受过高等教育的知识分子、白领和蓝领，精神上需要救济，骨子里有杀富济贫的想法，其实是精神疾病。第二种是穷到没法再穷的人，精神意淫。他们以为共产主义是对贫富悬殊的挑战，去了中国被请客吃饭，在中国得到了方便当成了共产主义。
-
-8. 最新情报！共产党还会再次放毒。杨洁篪、王毅、王岐山、党内极左派高官，建议习近平要抓住历史机遇，干掉美国。成立 新型冠状病毒控制小组，包括王沪宁和一个特别坏的少将，小组比武汉的级别高的多。战友科学家说，这是要放 最毒的病毒了。
-
-9. HBO是唯一一个没有广告的平台，公开评估价值2000亿美元，实际4000亿美元，钱从哪来的？最大竞争对手Netflix，HBO就是要在中国去除Netflix，给共产党献礼，HBO和Facebook一样，为了中共的市场，卖掉良知，卖掉中国人的安全。背后不仅仅是共产党单伟建，还有索罗斯，迪士尼的联合行动。
-
-10. HBO VICE及其背后的财富，可以顶几个国家的GDP，是可以改变美国大选的势力。共产党动用最高级别的力量，对抗爆料革命。爆料革命战友，坚定坚持，一定遇难呈祥，永远立于不败之地。
-
-11. 奥米克戎会在圣诞节后大爆发，死的最多的会是白人，共产党的灭白计划会让世界认清。HBO想为共产党洗地，污蔑爆料革命揭露的灭白计划是阴谋，会成为全世界的敌人。
-
-12. 中南海瀛台防弹会议室，没有窗户，是最高级别的接见场所。 龙椅花10亿都买不来，大唐时期沉没在水底的黑檀木雕刻。茶杯是7000多套景泰蓝 ，只成了10套，郭先生有一套。明确告诉党内，习就是皇帝。对香港，澳门重新大开杀戒。
-
-13. 冬奥会是中国人的噩梦。
-
-14. 中国老板不看数据，讲感情，讲思想，不重数据和逻辑，没有程序。这是外国人看不懂中国人，中国没有文明进步的原因。
-
-15. 欧洲将有重大的灭共行动，新中国联邦人最大的圣诞礼物！
-
-16. 招商银行老赵，是王岐山的人，和吴小晖有勾结。单伟建也会死的很惨。董文标也快死了！行长收钱，都是通过家人。行长和行长的家人，被从楼上扔下去，会是常态。
-
-17. 混在爆料革命队伍中的特务，每天给战友挑毛病，抓特务！ 抓特务是共产党留在爆料革命中的毒刺 。战友们不能动不动就抓特务，没有包容度的战友，一定会走到爆料革命的对立面。战友们做自己，不要前怕狼后怕虎，你战战兢兢的时候就已经输了。主持人就是要经历烧烤的，要练就舍得自己的本事，讲究灭共的人，心动者不会成就大事。真正的勇士，不会在乎自己的羽毛，不怕死的人怎么会怕骂呢。
-
-18. Gnews的核心价值：1）强大的搜索功能；2）情报信息交易市场；3）全世界精英可信赖的、以个人为主的、有良知的智库平台。
-
-19. GTV是投资之王，GClub是身份证，GFashion代表形象，Gettr是通往西方的桥梁，GNews是没有种族的精神交流平台，喜币是天下统一之币。
-
-以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
-
-文案提供：梦田
-上传：零点
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
