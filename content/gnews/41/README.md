@@ -2,28 +2,26 @@
 ---
 
 
-## 喜马拉雅农场将协助战友对HBO记者Isobel提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1785901/)
+## 中共房地产开发商面临巨额债务到期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
 
-撰稿：纽约香草山医疗部-云豹
+撰稿：MOS-柳是多水土透
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-香草山农场负责人长岛伟哥，于美东时间12月22日发表盖文称，“经过跟DC农场负责人阿丙女士沟通交流，我们都很痛心的看到两个农场的战友分别被HBO记者和CCTV主持人Isobel欺骗采访和污蔑为暴力分子，以及有可能给他们带来的人身威胁，我代表香草山农场和阿丙代表华盛顿DC农场将会分别协助和经济援助小斯基战友和Nicole战友启动法律程序起诉这个女记者Isobel。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1277.png)
-HBO记者Isobel（杨贝贝）以报导香港运动和新疆集中营事件，骗取战友的信任，假借采访“美国华人为什么会支持川普”为主题的纪录片，欺骗战友游行当日接受采访。然而，播出的报导，却攻击郭文贵先生，抹黑参加和平游行的美国华人和爆料革命战友们，称其为暴乱分子，对战友的心理造成了严重的影响，威胁着战友们的人生安全。
+据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
+据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
 
-这次采访历经数月，却利用短短十几分钟的剪辑节目，攻击爆料革命，重伤爆料革命战友，更为排华事件埋下了隐患。身处海外的爆料革命战友们，要勇于拿起法律武器，依法捍卫自己的安全和权益。
+根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
 
-新闻连接：
 
-[https://gettr.com/post/pkdb93c0ec](https://gettr.com/post/pkdb93c0ec)
+
+链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-新闻采集：熊嘟嘟
+总编：Irene木木
 
-总编: 飞虹
-
-编辑: 雪梨
+编辑：飞虹
 
 校正/发稿：浪迹天涯
 

@@ -2,36 +2,24 @@
 ---
 
 
-## 中共房地产开发商面临巨额债务到期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
+## 加入欧美行列 日本不派官员参加北京冬奥
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786849/)
 
-撰稿：MOS-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
-据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-97.jpg)（图片来源于本文链接）
+日本媒体引述多名日本政府相关人士报导称，日本体育代表团将按计划参加冬奥，但确定不派政府高官参加，加入美英等国外交抵制北京冬奥的行列。日本放送协会（NHK）报导，日本内阁官房长官松野博今天表示明年的北京冬季奥运，日本政府将不派阁员或政府相关人员出席。日本首相岸田文雄12月中决定不出席明年二月在北京举行的冬季奥运会，共同社称，明年是日中邦交正常化50周年，在执政的自民党内部，要求“外交抵制”的呼声高涨。另外，日本前首相安倍晋三也于23日与岸田文雄举行会谈，要求岸田尽早表明态度。
 
-根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
+基于岸田“重视人权”的立场，日方将不会派遣高官参加冬奥。
 
+美国早前鉴于中共国持续不断侵犯人权的行为决定不派官员参加北京冬奥会，以此作为外交抵制。英国、加拿大和澳大利亚也加入了抵制行列。日本的举动特别受到关注，因为日本是美国的亲密盟友，并且一段时间来不断表达来自中共国的威胁正在日益增长。
 
+信息来源：
 
-链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
+[加入欧美行列  日本不派官员参加北京冬奥](https://www.dw.com/zh/%E5%8A%A0%E5%85%A5%E6%AC%A7%E7%BE%8E%E8%A1%8C%E5%88%97-%E6%97%A5%E6%9C%AC%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%91%98%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60248947)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
-
-总编：Irene木木
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
