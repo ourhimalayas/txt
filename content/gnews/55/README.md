@@ -2,24 +2,39 @@
 ---
 
 
-## 立陶宛总理与布林肯通话 讨论中共国立陶宛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782207/)
+## 绝大多数美国人认为冠状病毒大流行源于中国武汉的实验室
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1781834/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1204.png)[图片来源](https://www.dw.com/zh/%E7%AB%8B%E9%99%B6%E5%AE%9B%E6%80%BB%E7%90%86%E4%B8%8E%E5%B8%83%E6%9E%97%E8%82%AF%E9%80%9A%E8%AF%9D-%E8%AE%A8%E8%AE%BA%E4%B8%AD%E5%9B%BD%E9%97%AE%E9%A2%98/a-60219699)
-立陶宛总理希莫尼特（Ingrida Simonyte）周二（21日）与美国国务卿布林肯通话，讨论有关中共国对立陶宛经济施压的问题。布林肯重申美国将与理念相近国家共同对抗中共国外交、经济胁迫作为。布林肯保证，在“胁迫性外交和经济行为”中给予立陶宛支持。希莫尼特的办公室在一份声明中说，“总理感谢美国对立陶宛表示的声援和支持。”并在电话中讨论了美国对立陶宛的支持，以应对中共国的经济压力。
+2021-12-23
 
-“重要的是，共同尊重国际规则的志同道合的国家必须在面对经济压力时保持团结。我们必须继续在欧盟内部、与美国以及印度–太平洋地区的民主国家分享信息并协调我们的行动，”声明中援引西蒙尼特的谈话。布林肯则在美国向记者表示，美国在中共国和俄罗斯问题上与盟国“更加一致”，并表示华盛顿在阻止“中共挑战基于规则的国际秩序的努力”方面处于更有利的地位。
+作者：推推党宣传部长
+![](https://assets.gnews.org/wp-content/uploads/2021/12/https-specials-images.forbesimg.com-imageserve-1210149339-TOPSHOT-CHINA-HEALTH-VIRUS-960x0.jpgcropX10cropX23048cropY1173cropY21888.jpeg)图片来源：[Hector RETAMAL/AFP](https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=6c406e2c6431)
+来自12月的民意调查显示，绝大多数美国人认为冠状病毒大流行源于中共国武汉的实验室泄漏。然而，中共政府随后对此撒谎。
 
-“中共国和俄罗斯试图破坏我们所建立和领导的国际体系时，我们处于更强大的地缘政治地位－这个体系使世界更自由、更繁荣、更安全、更有联系，并使我们的国家和人民得以繁荣发展，”布林肯说。
+罗纳德·里根研究所的 2021 年国防调查（The Ronald Reagan Institute’s 2021 National Defense Survey）提出了许多与中国及其对美国的立场有关的问题，其中包括一个关于中共病毒 （ COVID-19 ）起源的问题。
 
-立陶宛外交部15日表示，该国正紧急召回在北京的外交人员，驻华外交机构将暂时远程运作，当时报导称，外交圈知情人士指出，顾虑人员安全是撤离的主因。 中共国已要求跨国公司断绝与立陶宛的关系，否则将无法进入中共国市场，路透社指出，中共方面敦促德国汽车轮胎和汽车部件制造商大陆集团（Continental）停止使用立陶宛制造的零部件. 面对中共国的经济施压，立陶宛仍继续与台湾保持紧密关系，中央社报导，立陶宛国家边防局推特帐号表示，立陶宛为巩固欧盟东部边境，使用了台湾捐赠的无人机。立陶宛国家边防局推文写道：“为巩固与白俄罗斯接壤的欧盟东部边境，立陶宛不仅建造实体屏障，也使用台湾捐赠的监视无人机，这些捐赠是台湾对立陶宛提供疫苗表示‘感谢’。”
+里根研究所的一份报告在讨论民意调查结果时说：“当被问及冠状病毒是由在武汉实验室工作的科学家开发并意外泄露以及中共国政府对此撒谎的问题的时，近四分之三 （72%） 的美国人认为这是可能的，其中 42% 说它非常有可能，”
 
-信息来源：[立陶宛总理与布林肯通话 讨论中国问题](https://www.dw.com/zh/%E7%AB%8B%E9%99%B6%E5%AE%9B%E6%80%BB%E7%90%86%E4%B8%8E%E5%B8%83%E6%9E%97%E8%82%AF%E9%80%9A%E8%AF%9D-%E8%AE%A8%E8%AE%BA%E4%B8%AD%E5%9B%BD%E9%97%AE%E9%A2%98/a-60219699)
+在接受调查的共和党人中，86% 认为 COVID-19 可能是从武汉实验室泄露的。同时，61%的民主党和67%的独立党派人士也持相同观点。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+此外，所有三个团体中的大多数人都同意，如果中共政府被确定确实掩盖了病毒起源于武汉实验室，则应承担相应的后果。
+
+里根研究所表示：“如果这一理论得到证实，76% 的美国人认为中共国应该向其他国家支付赔款作为惩罚，其中包括 82% 的共和党人和 72% 的民主党人和独立党派人士。”
+
+而根据 6 月 4 日至 7 日对 2,200 名成年人进行的民意调查显示，只有 46% 的美国成年人认为 Covid -19起源于实验室泄漏。在那份报道中虽然高达 70% 的共和党人相信Covid -19起源于武汉病毒实验室。但只有百分32%的民主党人和41%的独立人士相信病毒起源于起源于武汉病毒实验室。
+
+短短的半年中，相信冠状病毒大流行源于中共国武汉的实验室的美国增加了1.5倍。现在绝大多数美国人认为冠状病毒大流行源于中共国武汉的实验室泄漏。然而中共政府随后对此撒谎，中共政府应该要承担相应的后果。截至至12月22日, 美国与新冠病毒相关的死亡人数达到81万。根据路透社的分析，美国的新冠死亡人数从60万升至70万用了111天。接下来的10万只用了73天。由于天气转冷，而且具有高度传染性的奥密克戎（Omicorn）变种正在迅速传播，美国正准备应对感染人数的激增。
+
+资料来源:
+
+[https://www.reaganfoundation.org/reagan-institute/centers/peace-through-strength/reagan-institute-national-defense-survey/](https://www.reaganfoundation.org/reagan-institute/centers/peace-through-strength/reagan-institute-national-defense-survey/)
+
+[https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=1b259da64315](https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=1b259da64315)
+
+[https://www.nationalreview.com/news/majority-of-americans-believe-covid-19-leaked-from-wuhan-lab-new-poll-finds/](https://www.nationalreview.com/news/majority-of-americans-believe-covid-19-leaked-from-wuhan-lab-new-poll-finds/)
+
+校对发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

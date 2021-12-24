@@ -2,47 +2,52 @@
 ---
 
 
-## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
+## 《防止强迫维吾尔人劳动法》正式生效！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1785845/)
 
-美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1274.png)[图片来源](https://ozvoice.org/other-news/%E5%9C%A8%E7%BE%8E%E4%B8%A4%E5%85%9A%E6%94%AF%E6%8C%81%E4%B8%8B-%E3%80%8A%E9%98%B2%E6%AD%A2%E5%BC%BA%E8%BF%AB%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E5%8A%B3%E5%8A%A8%E6%B3%95%E3%80%8B%E6%AD%A3%E5%BC%8F/)
+美国总统拜登星期四（12月23日）签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），使之正式生效成法。法案将禁止新疆产品进口美国，除非企业能提供明确且令人信服的证据，证明产品非由强迫劳动制造，美国政界对该法案一致大力支持。
 
+获得国会两党广泛关注和支持的编号H.R. 6256《防止强迫维吾尔人劳动法》最终协调版上个星期先后获得国会众议院和参议院的一致通过。法案将禁止任何强迫劳动生产的产品进入美国市场，并给予企业举证责任，必须证明其从新疆进口美国的产品供应链中无强迫劳动，才能获准进口。
 
+《防止强迫维吾尔人劳动法》包含的一项核心概念为“可反驳的推定”（rebuttable presumption）制度。意即除非得到美国政府的无强迫劳动的认证，否则一律推定凡在新疆制造的产品均使用了强迫劳动，因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品。根据法案内容，有关禁令将在法案生效180天后开始实施。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
-> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+法案将要求国土安全部拟定一项清单，列举出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
 
+在国会中主要推动《防止强迫维吾尔人劳动法》的共和党联邦参议员鲁比奥（Sen. Marco Rubio, R-FL）在法案签署成法后发表声明称，这项法律是迄今为止美国在追究中国共产党使用强迫劳动问题上所采取的最重要且最具影响力的行动。
 
+**美国政界对法案大力支持**
 
-参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+美国国务卿布林肯在法案签署生效后发表声明称，解决强迫劳动问题是本届拜登政府的优先事项。布林肯强调，美国已经采取了多项具体措施，包括签证限制、金融制裁、进出口管制，以及发布关于新疆人权状况的商业咨询等，“所有这些都要求盟友和合作伙伴共同采取行动，确保所有全球供应链不使用强迫劳动，包括来自新疆的强迫劳动”。
 
+布林肯说：“这部新的法律将提供美国政府新的工具，防止在新疆强迫劳动制造的商品进入美国市场，并进一步推动向该为那些暴行责任的个人和实体问责。”
 
+布林肯还呼吁中共当局立即停止针对新疆维吾尔穆斯林和其他少数民族群体所进行的种族灭绝和反人类犯罪行为。
 
-> Big Tech grovels before CCP. 
-> 
-> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
-> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
+《防止强迫维吾尔人劳动法》正式生效获得美国民主共和两党的一致支持，此举被视为是美国政府在北京冬奥会登场前再次针对中共国新疆人权问题采取的另一强硬措施。这个月初，拜登政府宣布不派遣官方代表出席明年2月的北京冬季奥运会，以外交抵制这项运动赛事来兑现美国“捍卫人权”的承诺。
 
+众议院议长佩洛西在声明中赞扬拜登总统将法案签署成法律，并称这象征了白宫和国会两党一道采取强有力的措施来打击新疆强迫劳动的暴行。
 
+“中共国政府对维吾尔人和其他少数民族穆斯林持续进行的种族灭绝是对整个世界良知的挑战，” 佩洛西在声明中说，“这就是为什么众议院两度通过立法，追究中国共产党剥削强迫劳动的责任，并要求他们结束这种可怕的行为。”
 
-参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
+“国会在两党两院的基础上，将持续谴责和对抗中国共产党在新疆和其它地方侵犯人权的暴行，从香港到西藏，再到大陆。如果美国因为商业利益而不为中国的人权发声，那我们就失去了所有为世界各地人权发声的道德权威，” 佩洛西说。
 
+“法案将从根本上改变我们与北京之间的关系，”鲁比奥在声明中说，“这部法律还应该能确保美国人不再在不知情的情况下购买到由中共国奴隶劳工所生产的商品。”
 
+“我期待与拜登政府和所有国会同仁一同合作，确保新法律得到正确实施和适当执行，”鲁比奥说。
 
-> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
-> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
+美国国会暨行政当局中国委员会主席、民主党联邦参议员默克利（Sen. Jeff Merkley, D-OR）表示，《防止强迫维吾尔人劳动法》的生效向中共释放了一个响亮和明确的信号。
 
+“现在《防止强迫维吾尔人劳动法》已经送到拜登总统的桌上并签署成为法律，我们终于可以确保美国消费者和企业可以在购买商品的同时不会无意间成为中共国可怕的侵犯人权行为的共谋，”默克利说。
 
+默克利接着提到即将在明年2月登场的北京冬季奥运会。他说，“正当中共国政府试图用即将到来的奥运会洗白他们的种族灭绝并借此机会宣布胜利的同时，这部法律释放了一个强有力、跨党派的信息，那就是美国不会对此视而不见。”
 
-众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
+消息来源：[正式生效！美总统拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.voachinese.com/a/president-biden-signs-uyghur-bill-to-ban-xinjiang-forced-labor-products-20211223/6367122.html)
 
-
-
-> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
-> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
