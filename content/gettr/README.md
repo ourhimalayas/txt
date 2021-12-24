@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/24/2021 12:54 AM (UTC)`
+
+12/23/2021 Miles Guo: By agreeing to be interviewed by VICE, Miles Guo sacrificed himself as the bait to show the world the true face of the self-proclaimed Western MSM - They are arrogant and hooligans; HBO/VICE is so morally broken that it has no bottom line, nor does it comply with the basic principles of the media, and what they have done will surely be the negative example for future media professionals<br/><br/>12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸；HBO/VICE已堕落到毫无底线、不遵守媒体基本原则，他们的所作所为未来一定会成为媒体专业的反面教材<br/>
+![img](https://media.gettr.com/group16/getter/2021/12/24/00/e8971f28-acdc-f9f7-0ff6-415ea8877c24/out.jpg)
+
+---
+
 `@miles 12/24/2021 12:07 AM (UTC)`
 
 12/23/2021 Miles Guo’s GETTR: It’s said that Jack Ma and Xu Jiayin are waiting for something bad to happen to Xi Jinping, aren’t they? The arrest of Liu Yazhou (retired PLA general) indicates that Xi will surely be able to eliminate the “red second generation”, the second generation of the CCP’s military officers, and the second generation of the CCP cadres, and even the second generation of the rich will inevitably be annihilated by Xi<br/><br/>12/23/2021 文贵盖特：听说马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心<br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-5]：<br/>‼️HBO-VICE's unfounded accusation of Mr. Guo for spreading conspiracy theories and building personal power and influence, as well as Mr. Guo's refutation on the mainstream media portraying Mr. Steve Bannon as a racist<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-5】：<br/>‼️反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力，以及反击主流媒体把班农先生塑造成种族主义者<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group8/origin/2021/12/23/12/69711be3-0060-b83b-d354-06acbad59677/out.jpg)
-
----
-
-`@miles 12/23/2021 12:06 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-4]：<br/>‼️HBO-VICE's abuse of the Wall Street Journal's ‘double agent’ report to discredit Mr. Guo<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-4】：<br/>‼️反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group39/origin/2021/12/23/12/39e95db1-1e45-93cf-1871-52df70c53c77/out.jpg)
 
 ---
 
