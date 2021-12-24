@@ -2,82 +2,38 @@
 ---
 
 
-## 【玫瑰看新闻】每日快讯-2021年12月23日（新西兰时间）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1788427/)
+## 高疫苗接种率不能阻止Omicron在纽约蔓延
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
 
-1. Omicron 打破了津巴布韦人圣诞节回家的希望
+撰稿：纽约香草山健身部— Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
 
-据路透社报道，12 月 22 日，临近圣诞节奥古斯丁·奇巴亚 (Augustin Chibaya) 巴士的底盘像往年一样该被装满津巴布韦人的物品，但是由于中共Omicron病毒的肆虐，现在的巴士底盘空空如也。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
 
-11月份南非继香港之后成为Omicron 冠状病毒出现的第二个国家。津巴布韦对其邻国的入境者实施了 10 天的隔离，费用自理。关闭边境后，像 Chibaya 这样的公交车司机的生意变得惨淡无比。Chibaya 的公司通常会在 12 月每天向津巴布韦发送四辆巴士，在为期两天的行程中，每辆巴士最多可搭载 60 名乘客。他说，现在它会发送一个，有时只有五个人在船上。
+按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-津巴布韦本身在国际旅行禁令名单上，在 12 月 3 日记录了 50 例感染了高度传播的 Omicron 变体，然后 COVID-19 感染急剧上升。
+由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
 
-自大流行开始以来，像 Munashe Chikomo 这样的许多津巴布韦人都希望能第一次回家。
+美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
 
-中共（CCP）释放的病毒以及制造即将发生的疫苗灾难已对世界各国造成严重的打击。我们是历史的见证者，打倒共产党（Take Down The CCP）。
+[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-[援引原文](https://www.reuters.com/world/africa/omicron-dashes-expat-zimbabweans-hopes-christmas-homecoming-2021-12-22/)
+[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-2. 新加坡将冻结免检疫入境的新机票销售
+编辑/校对/发稿：菩提树
 
-据路透社报道，12 月 22 日新加坡政府表示将在四个星期内冻结抵达航班和巴士的机票销售，理由是快速传播的 Omicron COVID-19 变种存在风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-根据已接种疫苗的旅行路线 (VTL) 计划，新加坡允许从某些国家/地区乘坐指定航班或巴士抵达并已接种疫苗的旅客免隔离入境。旅客必须接受定期测试。
+**更多资讯，更多关注**
 
-新加坡已确认 65 例外来 Omicron 病例，以及少数本地病例。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-卫生部在一份声明中说：“我们的边境措施将有助于为我们争取时间来研究和了解 Omicron 变体，并加强我们的防御，包括提高我们的医疗保健能力，以及让更多人接种疫苗和加强免疫。”
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-新加坡总人数约568万人，接种疫苗人数474万，比例占83.4%。在他们还在预防病毒的时候，下一个更大的疫苗灾难正在悄悄接近。 中共（CCP）释放的病毒以及制造即将发生的疫苗灾难已对世界各国造成严重的打击。我们是历史的见证者，打倒共产党（Take Down The CCP）
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[援引原文2](https://www.reuters.com/world/asia-pacific/singapore-freeze-new-ticket-sales-)
-
-3. 香港大学从校园内拆除天安门雕像
-
-据路透社报道，12 月 23 日香港一所著名大学拆除并拆除了校园内的一座雕像，该雕像二十年来一直纪念在 1989 年中国天安门广场镇压中遇害的民主抗议者。
-
-这幅痛苦的人体躯干艺术品是这个前英国殖民地为数不多的纪念血腥镇压的公共纪念碑之一，这是中国大陆无法公开纪念的禁忌话题。
-
-现场一名19岁的陈姓学生说：“大学是个胆小鬼，半夜做这种事。” “我很失望，因为它是历史的象征。这所大学声称它提倡学术自由，但它甚至无法保留一座历史纪念碑。”
-
-另一名梁姓学生说，看到雕像“被切成碎片”，他的心也碎了。
-
-中国从未提供过 1989 年镇压的完整记录。官方公布的死亡人数约为 300 人，但人权组织和目击者称，可能有数千人遇难。
-
-在该大学工作了 40 多年的政治学家约翰·伯恩斯 (John Burns)说“共产党想要的是让我们所有人都忘记这件事（天安门）。他们希望它在全球范围内被遗忘。这非常不幸” 当新中国联邦记录他们的行为时，信息就像区块链一样存储到各个战友的脑中，绝不会忘记中共政权的种种反人类行径。不忘六四，不忘香港。
-
-[援引原文3](https://www.reuters.com/world/asia-pacific/hong-kong-university-fences-off-tiananmen-statue-campus-2021-12-22/)
-
-4.印度首都因 Omicron 担忧而禁止圣诞节和新年庆祝活动
-
-据路透社报道，12 月 22 日 印度首都新德里周三禁止圣诞节和新年前的其他庆祝活动，以遏制 Omicron 冠状病毒变种可能激增。
-
-在过去的 24 小时内，印度的 Omicron 总数增加到 213，在 15 个州又增加了 13 个病例。Omicron 病例不断增加的西部州马哈拉施特拉邦也建议人们避免聚会。
-
-迄今为止，印度尚未报告该变种造成的死亡。其卫生部长表示，大多数已知病例都没有症状。
-
-上个月，印度每日新增 COVID-19 感染人数减少了一半，政府正争先恐后地为其所有 9.44 亿成年人接种疫苗。它已向约 87% 的符合条件的人群接种了至少一种疫苗。
-
-在最近的 24 小时内记录了大约 6,317 例新的 COVID-19 病例。总人数达到3476万，仅次于美国，位居全球第二。
-
-中共（CCP）释放的病毒以及制造即将发生的疫苗灾难已对世界各国造成严重的打击。我们是历史的见证者，打倒共产党（Take Down The CCP）。
-
-[援引原文4](https://www.reuters.com/world/india/indias-capital-bans-christmas-new-year-celebrations-over-omicron-fears-2021-12-22/)
-
-5.英国每天首次超过 100,000 例 COVID-19 病例
-
-据路透社报道，12 月 22 日自引入广泛测试以来，英国首次报告了每天超过 100,000 例新的 COVID-19 病例，周三为 106,122，而周二为 90,629。
-
-根据政府数据，Omicron 变体的快速传播推动了过去 7 天的病例激增，总数增加了 643,219，即 59%。
-
-由于生病的工人自我隔离，许多行业都在努力解决人手短缺的问题，医院也警告称，这可能会对患者安全产生影响。
-
-根据单独的数据，截至周二，有 195 名患者因 Omicron 住院，**18 **名患者死亡。 据2021年12月22日郭文贵先生爆料，Omicron病毒的危险性极高，希望引起所有爆料革命战友和世界人民的关注。英国已经出现了18名患者死了。
-
-[援引原文5](https://www.reuters.com/world/uk/britain-reports-record-106122-new-covid-19-cases-2021-12-22/)
-
-上传排版：漂流瓶
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
