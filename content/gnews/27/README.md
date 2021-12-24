@@ -2,162 +2,34 @@
 ---
 
 
-## 冬奥会一定会有感染病毒，集体事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786214/)
+## 美最高法院将受理针对疫苗强制令的诉讼
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1785278/)
 
-[https://gtv.org/video/id=61c568f743ccb726a08a9589](https://gtv.org/video/id=61c568f743ccb726a08a9589)
+**撰稿：日本东京方舟农场 Kevin wang**
 
-**郭文贵
-Miles Guo**
+12月22日，美最高法院同意受理针对全国性大型企业员工疫苗接种或冠状病毒病毒测试以及卫生健康部门工作人员病毒疫苗接种规定引起的两起诉讼。
 
-这次奥运会到北京
-Esta vez los Juegos Olímpicos llegará a Beijing
+日前，美第六巡回法庭恢复了被第五巡回法庭暂停的疫苗强制令，该规定要求员工人数在100人或以上的企业确保员工在2022年1月4日之前完全接种疫苗，未完成疫苗接种的员工则需要每周提交一份新冠病毒测试阴性结果，才可进入工作场所。此规定覆盖的员工人数达8000万人。
 
-一定会有染（感染病毒）
-Seguro habrá contagios (contagio del virus)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-295.png)图片来自美国之音
 
-一定还有集体事件
-Debe haber un incidente colectivo
+南卡罗来莱纳州检察长威尔逊（Alan Wilson）在推文中说，“我们虽然对法庭的决定感到失望，我们仍将继续在最高法院对付这个非法强制令，”“我们相信这个强制令能够被阻止。”
 
-一定会很严格的治理 隔离
-Habrá una gobernanza y una cuarentena muy estricta
+联邦第六巡回上诉法院恢复强制令数小时后，美国最高法院至少收到了三份请愿书，要求立即阻止强制接种令。最先递交请愿书的是一组代表零售、批发、仓储、运输、旅行和物流的商业团体，他们提出的理由包括员工可能会辞职，而不是接种疫苗。目前，最高法院针对此案已发出法庭命令，将听审两起诉讼案的口头辩论，并可能在短时间内做出相关的裁决。
 
-一定会发生
-Seguro sucederá
+*参考链接：*
 
-我说的是一定啊
-Yo digo “seguramente”
+[美最高法院将受理拜登政府规定疫苗接种案](https://www.voachinese.com/a/us-high-court-to-take-up-biden-vaccine-cases-20211223/6366378.html)
 
-不是像晓理一样你矇出来的
-No es como Xiaoli que lo adivinó
-
-这绝对不是像文斌你们想像出来的Rachel
-Tampoco es como Wenbing y Rachel que se lo imaginaron
-
-你想当然就预测到这的
-Si lo piensas seguro lo puedes predecir hasta aquí
-
-Eric兄弟
-Hermano Eric
-
-你是跟着他的思维
-Tu le sigues el pensamiento
-
-你没有逆向思维
-No aplicas el pensamiento inverso
-
-你只是个逻辑性思维的结果
-Tu resultado es sólo pensando con la lógica
-你要逆向思维
-Tienes que pensar inverso
-
-这主要体现习太阳和中国的治理能力
-Esto principalmente refleja la habilidad de gobernanza de Xi sol y de China
-
-在全球治理能力
-La habilidad en gobernanza global
-
-治理能力是什么
-Qué es la habilidad de gobernanza
-
-反应快 检查快 治理快
-Reacción rápida, inspección rápida y la gobernancia rápida
-
-照顾得好中国人的感情
-Cuida muy bien el sentimiento de los chinos
-
-然后有人站出来说话
-Y habrá alguien que saldrá a hablar
-
-天呐 鼻涕一把泪一把的
-¡Dios! Con mocos y lágrimas
-
-中国共产党太伟大了
-La República Popular de China es tan grandioso
-
-太讲感情啦
-Son muy afectivos
-
-这样的病毒在美国1年都得不到制止
-Un virus de este tipo no se ha detenido en los Estados Unidos durante un año
-
-川普为啥病好了 因为他是官僚
-Por qué Trump se pudo curar, porque él es un burócrata
-
-他吃了当时的鸡尾酒法
-Se tomó el método del cóctel en ese momento
-在美国你是吃不了的
-En Estados Unidos no podrás tomarte eso
-
-你看中央电视台
-Mira CCTV
-
-展（示）出来的说
-Lo muestran diciendo
-
-美国是世界上治理病情最差的死亡最多的 最不民主的
-Estados Unidos tiene la peor condición de gobernanza en el mundo y tiene la mayor cantidad de fallecidos, es el menos democrático
-
-你就知道它要干啥了
-Así sabrás qué es lo que van a hacer
-
-共产党他们想干啥
-Qué es lo que el PCCh quiere hacer
-
-晚上来吃饭
-Vienen a cenar en la noche
-
-这个人一来我就知道今天晚上他想干啥
-Esta persona llega y ya yo se a qué viene hoy en la noche
-
-他为谁来的 我就知道
-Por quién ha venido, yo lo sé
-
-我就会让他心满意足的回去
-Yo lo mando contento y satisfecho de regreso
-
-就我一看中央电视台这几天的讲法
-Yo con sólo ver la forma en que hacen reportaje el CCTV estos días
-
-我一看我就明白了
-Yo ya entiendo al verlo
-
-然后国内情报战友说
-Entonces los camaradas de inteligencia nacional me dijeron
-
-七哥 最近不能跟你联系了
-Miles, este tiempo no te puedo contactar
-
-我们手机全收了
-Nos van a recoger el celular a todos
-
-我去哪里报到去了 准备冬奥委会了
-Me iré a presentar, a preparar el Comité Olímpico de Invierno
-
-我这啥都懂了
-Y ya entendí todo
+[企业疫苗强制令重生，高院被要求干预](https://www.voachinese.com/a/vaccine-mandate-revived-20211218/6360373.html)
 
 * * *
 
-日期：12/23/2021
-原视频标题：冬奥会一定会有感染病毒，集体事件
-Los Juegos Olímpicos de Invierno definitivamente habrá contagiados con el virus, será un incidente colectivo
-原视频日期：12/21/2021
-原视频网址：[https://gettr.com/post/pk8m7n810f](https://gettr.com/post/pk8m7n810f)
-任务编号：KC362（3306）
-视频时间段：0:00-01:43
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：天涯行
-审片：银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
+*素材采编：Kevin wang*
 
-01：21 心满意足的回去 改为 心满意足地回去
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：文顺*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Ranting*
 
  
 

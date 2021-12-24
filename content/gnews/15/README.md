@@ -2,29 +2,36 @@
 ---
 
 
-## 应对台海紧张局势，美日拟定联合行动计划草案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1786416/)
+## 中共房地产开发商面临巨额债务到期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
 
-#### 撰稿：彩虹
+撰稿：MOS-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
+据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2-1.jpg)图片来源：TOI
-12月23日，《新闻极限》引用路透社的报道，在台湾与中共国的紧张局势加剧之际，日本和美国武装部队已经起草了一份针对台湾可能出现紧急情况的联合行动计划草案。
+根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
 
-周四，日本共同社报道说，根据该计划，美国海军陆战队将在台湾紧急情况的初始阶段，从日本四大岛之一的九州延伸的南西岛链（Nansei island）上建立临时基地和部署部队，而日本武装力量将在弹药和燃料供应等方面提供后勤支持。
 
-该通讯社说，很可能在明年初的外交部长和国防部长“2+2”会议上，日本和美国达成协议并开始制定正式计划。
 
-对此，日本国防部官员没有立即发表评论。
+链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
 
-报道指，10月份的时候，在重申与美国密切关系的同时，日本政府就中共国对台湾的侵略姿态表明了更坚定的立场，暗示它将考虑各种选择并为“各种情况”做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-本月早些时候，日本前首相安倍晋三（Shinzo Abe）说，如果中共国攻击台湾，日本和美国不能袖手旁观。
+总编：Irene木木
 
-**新闻来源**
+编辑：飞虹
 
-[Report: Japan, US Draw Up Plan for Any Taiwan Emergency](https://www.newsmax.com/world/globaltalk/japan-us-taiwan-emergency/2021/12/23/id/1049812/)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
