@@ -2,30 +2,37 @@
 ---
 
 
-## 传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785791/)
+## VICE虚假报导是中共操纵的一场政治大宣传
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1785846/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-29.jpg)传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃 网络图片
-据美国之音12月24日报道，中共国吉林省委、省政府23日发出《关于优化生育政策促进人口长期均衡发展实施方案》的通知，为生育一孩、二孩、三孩的夫妻最高提供20万元的婚育消费贷款，并给予不同程度的优惠措施。这项贷款生娃的政策被认为是全国首创。一经发布，立即登上微博热搜第一，点击率近160万。
-
-近年来，低生育已经成为中共国严峻的现实问题。今年5月第七次人口普查显示，中共国2020年总和生育率仅为1.3。迫于出生率下降，中共国2016年终结了实施近40年的“一胎化”政策，全面放开“二孩”。今年5月31日，中共当局鼓励育龄夫妻生“三孩”。
-
-在中共国，党掌管一切，包括生育。党需要降低人口负担，一家就只能生育一个孩子。党需要提高人口数量，老百姓就要像猪一样，能多生就多生。吉林省新推出的这个看似鼓励生育的贷款政策被网民戏称为“传宗接贷，贷贷相传”。结合中共国一贯的政策多变，哪一天党妈一翻脸，政策分分钟就变了，到时候借贷吃亏的只能是老百姓，党是伟大光荣正确的党，党是永远不会错的。相信共产党，走进火葬场，任何时候党保证的，除了拿你钱没商量，其他的都是谎言。
-
-新闻参考链接：[https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html](https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+撰稿：香草山农场-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月22日，郭文贵先生在大直播中震撼爆料，VICE对郭先生和爆料革命战友的虚假报导，是中共为成功举办北京冬奥会，与美国勾兑、取消对中共国加增关税所做的铺垫。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1276.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据郭先生情报，中共当局做出指示，控制所有西方媒体，占领制高点，不惜一切代价，推动北京冬奥会，消灭一切反对冬奥会的声音。中共将以免除债务为诱饵，迫使更多的国家站出来支持冬奥会。郭先生还郑重强调，此次直播之后，任何支持冬奥会的国家，都与中共达成了幕后交易。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+此外，VICE的虚假报导，将爆料革命定义为邪教，让爆料革命成为中美之间所有威胁的替罪羊，为美国与中共勾兑、取消对中共国加征关税做铺垫。郭先生还表示，美国一定会取消加征关税，届时，200多位美国运动员也将出席北京冬奥会。如此一来，任何反对共产党的团体都会被认为是邪教组织，任何反冬奥会、对中共在新疆、西藏、香港的大屠杀和中共对台事件上有异见的人士，均会被视为暴力分子。
+
+VICE的此次虚假报导，实际上是中共消灭异议声音、大搞政治冬奥会的一场政治大宣传。
 
 
+
+链接：[12/22/2021 文贵直播](https://gettr.com/post/pkf5bbde41)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+
+编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

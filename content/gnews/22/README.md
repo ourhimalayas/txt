@@ -2,167 +2,30 @@
 ---
 
 
-## 被病毒感染过的人，将来得癌症的几率超过50%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1785741/)
+## 传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785791/)
 
-[https://gtv.org/video/id=61c5300243ccb726a08a8064](https://gtv.org/video/id=61c5300243ccb726a08a8064)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-29.jpg)传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃 网络图片
+据美国之音12月24日报道，中共国吉林省委、省政府23日发出《关于优化生育政策促进人口长期均衡发展实施方案》的通知，为生育一孩、二孩、三孩的夫妻最高提供20万元的婚育消费贷款，并给予不同程度的优惠措施。这项贷款生娃的政策被认为是全国首创。一经发布，立即登上微博热搜第一，点击率近160万。
 
-**郭文贵
-Miles Guo**
+近年来，低生育已经成为中共国严峻的现实问题。今年5月第七次人口普查显示，中共国2020年总和生育率仅为1.3。迫于出生率下降，中共国2016年终结了实施近40年的“一胎化”政策，全面放开“二孩”。今年5月31日，中共当局鼓励育龄夫妻生“三孩”。
 
-所有得过冠状病毒的兄弟姐妹们
-Todos los hermanos y hermanas que se han contagiado del COVID-19
+在中共国，党掌管一切，包括生育。党需要降低人口负担，一家就只能生育一个孩子。党需要提高人口数量，老百姓就要像猪一样，能多生就多生。吉林省新推出的这个看似鼓励生育的贷款政策被网民戏称为“传宗接贷，贷贷相传”。结合中共国一贯的政策多变，哪一天党妈一翻脸，政策分分钟就变了，到时候借贷吃亏的只能是老百姓，党是伟大光荣正确的党，党是永远不会错的。相信共产党，走进火葬场，任何时候党保证的，除了拿你钱没商量，其他的都是谎言。
 
-我在这里严正声明
-Declaro solemnemente por este medio
-
-在过去的大概一个多月
-Hace como un mes atrás
-
-我们跟国内的跑出来的科学家和病毒的知情者
-Hablamos con científicos internos y expertos informados del virus en China
-
-我们一再论证接触后
-Hemos argumentado repetidamente y después de haber contactado mutuamente
-
-我被授权今天向大家公告这个事情
-El día de hoy estoy autorizado a anunciar este asunto a todos
-
-第一个
-Primeo
-
-你们所有得过病毒的人
-Todos ustedes los que han contraído el virus
-
-在未来的10年内
-En un futuro de 10 años
-
-也就3到10年内
-Dentro de 3 a 10 años
-
-几乎超过50%的概率会染上癌症
-Casi más del 50% contraerán cáncer
-
-最重要的是
-Lo más importante es
-
-就是这个刺突蛋白mRNA在你身体里边
-Quiere decir que estas espículas de glicoproteína ARNm que están en tu cuerpo
-只要没有100%被消除
-Si no se elimina el 100%
-
-（就会）在你身体造成两个地方是永远都是发癌的
-En dos partes de tu cuerpo estará ocasionando siempre cáncer
-
-一个是淋巴
-Una es en la linfa
-
-最可怕的是淋巴
-Lo más terrible es la linfa
-
-第二个就是你身体上的免疫力
-El segundo es la inmunidad de tu cuerpo
-
-由于它长时间的在内部的整个对细胞的改变
-Debido a sus cambios internos a largo plazo en las células
-
-你的血液很有可能要出问题
-Es probable que tu sangre tenga algún problema
-
-这两种病一定要听进去
-Y estas dos enfermedades deben escucharlo
-
-女性妇科最容易得病
-La ginecología es la que más fácil se enferma
-
-因为妇科是所有聚集病毒不能排除的地方
-Porque la ginecología es un lugar donde no se pueden descartar todos los virus
-
-（还有）男性前列腺
-(también) la próstata masculina
-
-你唯一的办法，现在看到
-La única forma, ahora vemos
-
-一定要吃青蒿素和伊维菌素
-Hay que tomar la Artemisinina y la Ivermectina
-而且是合理地吃
-Y hay que tomarlo razonablemente
-
-你别一天天吃完的 没有用的
-No termines de comerlo diariamente, no sirve
-
-你只要不100%清除掉（刺突蛋白）你解决了症状
-Si no lo eliminas al 100% (las espículas de glicoproteína), y resolver los síntomas
-
-你无法100%从身体清除（刺突蛋白）
-No podrás eliminar al 100% (las espículas de glicoproteína)
-
-它就有这种可能
-Tiene esta posibilidad
-
-而且超过50%可能
-Además, sobrepasa del 50%
-
-你一定要保持长时间中长时间身体检查
-Debe mantener un examen físico a largo plazo y a medio-largo plazo durante un tiempo
-
-每年都检查一次甚至两次
-Haga revisión una o incluso dos veces al año
-
-血液检查
-Examen de la sangre
-
-淋巴检查
-Examen de la linfa
-
-任何咱们所说的就是羟氯奎、锌
-Cualquiera que hablamos, sea Hidroxicloroquina, Zinc
-
-包括青蒿素
-Incluyendo la Artemisinina
-
-就是保健品青蒿素
-El producto de salud
-
-伊维菌素
-La Ivermectina
-
-一定要分期分段，根据症状去吃
-Tienen que separarlo en periodos y en segmentos, tomarlo de acuerdo al síntoma
-
-而且一定要会停
-Además, deben saber detener
-
-再一个吃这些药的时候一定要（该）补铁的补铁
-Al tomar estos medicamentos, debe tomar suplementos de hierro si es necesario
-
-特别要补维他命的补维他命
-Especialmente suplementos vitamínicos si es necesario
-
-说维他命和铁和这个相互地吃是最关键的
-Dicen que las vitaminas y el hierro, tomar ambos es lo más importante
+新闻参考链接：[https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html](https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html)
 
 * * *
 
-日期：12/22/2021
-原视频标题：被病毒感染过的人，将来得癌症的几率超过50%
-Las personas que han sido infectadas por el virus tienen más del 50% de posibilidades de contraer cáncer en el futuro
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原视频日期：12/20/2021
-原视频网址：[https://gettr.com/post/pk5o457b7a](https://gettr.com/post/pk5o457b7a)
-任务编号：3299
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
