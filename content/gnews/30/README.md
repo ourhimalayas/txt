@@ -2,55 +2,31 @@
 ---
 
 
-## 美国精英正是中共迅速崛起成为超级大国的罪魁祸首
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1785394/)
+## 有声|美国务院和财政部将制裁五名中共官员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1785501/)
 
-编译：Jenny Ball
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月20日，美国国务卿布林肯根据《香港自治法》向美国国会提交了一年一度的“香港自治报告”，当中，布林肯再次明确，美国将制裁五名破坏香港民主的中共官员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-11.jpg)图片来源：epochtimes.com (Joe Raedle/Getty Images)
+报道提及，本次制裁名单中的五名中共官员陈冬、何靖、卢新宁、谭铁牛、尹宗华都是香港中联办的副主任。资料显示，他们的行为破坏了香港民主，同时也持续削弱了《中英联合声明》中承诺给香港的高度自治等。
 
-佛罗里达州州长、共和党人罗恩·德桑蒂斯 (Ron DeSantis) 周一采取行动，将对该州退休基金投资与中共分开。
+报告也警告了相关金融机构必须遵守美国法律，严禁此类机构与受制裁的有关人员进行交易。据悉，早在今年7月，上述五名官员已经被美国财政部予以制裁，相应制裁包括冻结他们在美国境内的资产等，而此次美国财政部的二次制裁还将涉及拒绝给予相关人员签证和拒绝入境美国等措施。
 
-据《大纪元时报》报道，在州行政委员会会议上，州长、首席财务官吉米·帕特罗尼斯（Jimmy Patronis）和司法部长阿什利·穆迪（Ashley Moody）采取行动，撤销外部养老基金经理的所有代理投票权。
+文字版原文：[美国务院和财政部将制裁五名中共官员](https://gnews.org/zh-hans/1780853/)
 
-此外，德桑蒂斯还订购了一份该州所有资产的清单，以确定对中共公司的任何投资。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-德桑蒂斯在讲话中将中共国迅速崛起为超级大国地位归咎于美国精英，他们错误地认为，“如果我们让中共加入世贸组织，让他们享受最惠国……那将使中共（独裁）更像我们（的民主）。”
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-不仅没有发生，州长还强调中共却影响了西方政府。
-
-“对中共的整个实验对美国来说是一个巨大的失败。”
-
-“我认为整个美国应该与中共国脱钩，而且我们的投资当然应该脱钩，**”**德桑蒂斯说。
-
-它导致工业心脏被从美国剥离，并运往远东。我们的“精英”帮助他们成为超级大国，因此，他们可以通过与中共的伙伴关系快速致富。德桑蒂斯在这里说的话很难听，但在金钱上看是一针见血。
-
-德桑蒂斯在一份声明中继续说道：“如果你看看这些大公司在面对中共的反对时的表现，他们会自觉审查中共让他们审查的内容，我们看到他们卑微的向中共道歉。”
-
-“我希望小企业管理局( SBA )调查目前正在进行的投资, 等立法机关回来，他们可以做出法律上的改变，中共不是我们发展要搭的车。我认为这将是非常非常谨慎的事情。 我还认为，我们国家作为一个整体，佛罗里达州肯定如此，希望看到更多的生产和制造业回流，我们将是实现这一目标的好地方，”声明继续说道。
-
-一个可悲的现实是，在追究中共国责任方面，太多的联邦领导人长期以来一直没有采取行动。当美国人得到廉价商品时，中共政府在知识产权或贸易方面则没有遵守规则。”
-
-“与此同时，他们一直忙于在好莱坞和华盛顿购买影响力，”他解释道。 “不幸的是，在 COVID 和供应链问题上，我们已经看到我们的国家对中共的依赖程度。我认真对待我的责任，我认为当涉及到在中共国投资是否是一个好主意时，SBA需要开始提出更难的问题。限制与中共的接触，不仅对我们的国家有利，而且对我们的国家来说也是一种财务上审慎的做法。”
-
-“华盛顿的一些人说，我们正在与中共进入冷战。据《泰晤士报》报道，帕特罗尼斯总结道，看来限制对中共的敞开门户，不仅对我们国家有利，而且在金融上也是谨慎的。”
-
-再一次证明，德桑蒂斯是正确的。大多数美国人并不真正理解中共是如何如此快地赶上美国的。在他的讲话中，他阐明了美国精英在促进中共迅速崛起方面发挥的巨大作用。
-
-美国的每一位州长和每一位首席执行官都应该效仿德桑蒂斯。
-
-不幸的是，对我们最大的地缘政治敌人，乔·拜登没有分享佛罗里达州州长的洞察力。 中共国家主席习近平一定永远不希望德桑蒂斯会赢得总统职位。
-
-**参考资料：**[westernjournal][Astute Ron DeSantis Reveals Who’s to Blame for China’s Rapid Ascendancy to Superpower Status](https://www.westernjournal.com/astute-ron-desantis-reveals-blame-chinas-rapid-ascendancy-superpower-status/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

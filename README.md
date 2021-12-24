@@ -15,122 +15,122 @@
 
 ---
 
-### [霸州抢劫式罚款只是中共各级政府的缩影](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [史蒂夫·班农：“对未注射疫苗的人的战争即将开始”](/content/gnews/2/README.md)
+### [秘翻在线：川普的最新商业伙伴—-一家中共国公司受SEC调查](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】日本11月通胀率数据达到两年来最大涨幅](/content/gnews/3/README.md)
+### [速报 日本政府决定不派遣官员参加北京冬奥会](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [郭文贵先生2021年12月23日盖特视频（9分13秒）全文字版](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [感染过中共病毒恢复后得癌症的概率依然很大](/content/gnews/8/README.md)
+### [郭文贵盖特音频2021.12.23](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系](/content/gnews/9/README.md)
+### [樱花灭共诗——雪夜寄郭七文贵先生](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】中共特色ESG信息披露制度 加速脱钩国际规则](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [霸州抢劫式罚款只是中共各级政府的缩影](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [史蒂夫·班农：“对未注射疫苗的人的战争即将开始”](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【中日财经爆】日本11月通胀率数据达到两年来最大涨幅](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [VICE虚假报导是中共操纵的一场政治大宣传](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [郭文贵先生2021年12月23日盖特视频（9分13秒）全文字版](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [感染过中共病毒恢复后得癌症的概率依然很大](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系](/content/gnews/16/README.md)
  ` 美国政要直译推`
 
-### [冬奥会后至少有5000万人看清楚中共要完了](/content/gnews/10/README.md)
+### [冬奥会后至少有5000万人看清楚中共要完了](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/11/README.md)
+### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/12/README.md)
+### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/13/README.md)
+### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/14/README.md)
+### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/21/README.md)
  ` 喜国公民`
 
-### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/15/README.md)
+### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [日本决定外交抵制北京冬奥会](/content/gnews/16/README.md)
+### [日本决定外交抵制北京冬奥会](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登总统签署法案 禁止新疆强迫劳动产品进入美国](/content/gnews/17/README.md)
+### [拜登总统签署法案 禁止新疆强迫劳动产品进入美国](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/18/README.md)
+### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/19/README.md)
+### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/20/README.md)
+### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/21/README.md)
+### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/22/README.md)
+### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|美国务院和财政部将制裁五名中共官员](/content/gnews/23/README.md)
+### [有声|美国务院和财政部将制裁五名中共官员](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|李嘉诚面临英国反垄断调查](/content/gnews/24/README.md)
+### [有声|李嘉诚面临英国反垄断调查](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|“叮咚买菜”被曝强制员工无薪排休](/content/gnews/25/README.md)
+### [有声|“叮咚买菜”被曝强制员工无薪排休](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/26/README.md)
+### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本政府税制改革目标2022年减税1530亿](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021/12/23 文贵先生盖特精要](/content/gnews/28/README.md)
+### [2021/12/23 文贵先生盖特精要](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [美国精英正是中共迅速崛起成为超级大国的罪魁祸首](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/23/2021 文贵盖特：马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [美国情报和卫星图像显示，中共帮助沙特制造弹道导弹](/content/gnews/32/README.md)
+### [《柳叶刀》的专家来信，戳破了疫苗的童话](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《柳叶刀》的专家来信，戳破了疫苗的童话](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/34/README.md)
+### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/35/README.md)
+### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/37/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/36/README.md)
+### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/38/README.md)
  ` YALUN 亚伦`
 
-### [2021年12月22日文贵大直播简报](/content/gnews/37/README.md)
+### [丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
-
-### [丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失](/content/gnews/38/README.md)
- ` 秘密翻译组-原创组`
-
-### [GTV新闻访谈简报|2021年12月23日早](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
 
 ### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/40/README.md)
  ` G-NEWS TAIWAN`

@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|全球最大邮轮48人感染其中47人已完整接种疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1785507/)
+## 英特尔不堪中共国网民围攻向供应商“致歉”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785681/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台湾媒体12月21日报道，全球最大邮轮“海洋交响号”在航行中有48名游客确诊中共病毒，但是其中47人已经完整接种过疫苗。
+![资料照：纳斯达克市场网站上的英特尔标识](https://gdb.voanews.com/f492b8a7-1233-4c1e-a7c9-ba3e799437fd_cx0_cy9_cw0_w1023_r1_s.jpg)资料图
+据美国之音12月24日报道，美国芯片企业英特尔公司之前致供应商的一封信函在中共媒体曝光。信函要求供应商避免使用与新疆有关的产品、劳工和服务，禁止任何形式的贩卖人口或非自愿劳工行为。信函公开后，中共国网民纷纷涌入英特尔官方微博账号对该公司“口诛笔伐”，甚至呼吁抵制英特尔产品。中共国微博上有关这一话题的热搜量已经超过2.5亿人次。在遭到中共国网民围攻之后，英特尔23日向中共国客户和合作伙伴公开道歉。
 
-据悉，该邮轮共有6091名乘客及船员，目前正在加勒比海进行为期一周的航行。其中一名游客在航行期间确诊后，邮轮方面开始进行大范围筛检。
+最近几年，越来越多的证据显示，中共政府多年来在新疆对维吾尔和其他少数民族穆斯林展开了系统性迫害，多达百万的穆斯林被关押在所谓的再教育营，遭受各种迫害。中共国网民生活在监控严密的防火墙里，信息完全封锁，只能接受中共党媒的报道。中共引导风向，民众盲目跟随，完全不明白新疆发生的人间惨剧。英特尔这样的企业为新疆发声，反而遭到攻击，可悲的中共国网民，可恨的中国共产党。
 
-资料显示，该邮轮上有95%的乘客已经完整接种了疫苗，而在确诊的48位游客中，则有98%即47人已经接受了完整接种，但是仍然没有起到任何防护作用。
+新闻参考链接：[https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html](https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html)
 
-文字版原文：[全球最大邮轮48人感染其中47人已完整接种疫苗](https://gnews.org/zh-hans/1780870/)
+编辑：胖丁
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+* * *
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

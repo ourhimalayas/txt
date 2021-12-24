@@ -2,32 +2,28 @@
 ---
 
 
-## 美国政府与莫得纳公司争夺新冠疫苗的专利权
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1785661/)
+## 传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785791/)
 
-By：喜国公民
-视频来自网络
-美国国家卫生研究院和新冠疫苗制造商莫得纳之间就新冠疫苗专利权进行了长达数月的一场法律纠纷，最近突然出现在公众视野中。莫得纳提出与政府分享其新冠疫苗专利的所有权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-29.jpg)传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃 网络图片
+据美国之音12月24日报道，中共国吉林省委、省政府23日发出《关于优化生育政策促进人口长期均衡发展实施方案》的通知，为生育一孩、二孩、三孩的夫妻最高提供20万元的婚育消费贷款，并给予不同程度的优惠措施。这项贷款生娃的政策被认为是全国首创。一经发布，立即登上微博热搜第一，点击率近160万。
 
-同时，[一份长达](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)[153页的莫得纳和美国政府之间的保密协议](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)，也揭示出美国政府是莫得纳新冠疫苗的主要资助者。
+近年来，低生育已经成为中共国严峻的现实问题。今年5月第七次人口普查显示，中共国2020年总和生育率仅为1.3。迫于出生率下降，中共国2016年终结了实施近40年的“一胎化”政策，全面放开“二孩”。今年5月31日，中共当局鼓励育龄夫妻生“三孩”。
 
-在2015年，美国卫生研究院管辖的美国国家过敏和传染病研究所，与制药商莫得纳签订了合作开发研究新冠疫苗的协议。该协议导致了一笔未公开的资金和研究援助。
+在中共国，党掌管一切，包括生育。党需要降低人口负担，一家就只能生育一个孩子。党需要提高人口数量，老百姓就要像猪一样，能多生就多生。吉林省新推出的这个看似鼓励生育的贷款政策被网民戏称为“传宗接贷，贷贷相传”。结合中共国一贯的政策多变，哪一天党妈一翻脸，政策分分钟就变了，到时候借贷吃亏的只能是老百姓，党是伟大光荣正确的党，党是永远不会错的。相信共产党，走进火葬场，任何时候党保证的，除了拿你钱没商量，其他的都是谎言。
 
-此外，在新冠疫情爆发后，莫得纳还从生物医学高级研究与发展局获得了近10 亿美元的资金，该笔资金专门用于新冠疫苗的开发。研究人员计算出，美国政府总共为莫得纳的新冠疫苗的开发和商业化提供了近25 亿美元。
+新闻参考链接：[https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html](https://www.voachinese.com/a/Chinese-Province-Makes-Loans-for-Babies-20211223/6366984.html)
 
-值得注意的是，该份协议显示出美国政府以及莫得纳与巴里克博士合作。而巴里克博士与武汉病毒研究所的石正丽的团队在冠状病毒研究领域一直有着深度的合作。
+* * *
 
-巴里克与石正丽曾在2015年发表了一篇题为“[显示了感染人类的潜力的一个类似于](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)[SARS的蝙蝠冠状病毒循环集群](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)”。二人多年来一直从事新冠病毒功能增强试验方面的研究。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-全球范围的新冠病毒大流行爆发后，[巴里克等人公开诋毁任何提出实验室泄漏理论的人](https://gnews.org/zh-hans/1745295/)。他们极力掩盖实验室泄漏。甚至提出不要去武汉病毒研究所检查。其行为极为异常，不打自招。
 
-越来越多的人开始质疑新冠疫苗的有效性，认为只有追溯新冠病毒的来源，才能从根本上解决新冠大流行。
+编辑：【英国伦敦喜庄园编辑部】
 
-消息来源：[Why Moderna won’t share rights to the COVID-19 vaccine with the government that paid for its development](https://theconversation.com/why-moderna-wont-share-rights-to-the-covid-19-vaccine-with-the-government-that-paid-for-its-development-172008)
-
-[The confidential agreement between NIH and Moderna](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)
-
-[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

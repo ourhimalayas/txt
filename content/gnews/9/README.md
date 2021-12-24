@@ -2,47 +2,28 @@
 ---
 
 
-## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
+## 【中日财经爆】日本11月通胀率数据达到两年来最大涨幅
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1785858/)
 
-美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1275.png)[图片来源](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/688504/%E7%99%BE%E7%89%A9%E9%A8%B0%E8%B2%B4%E6%97%A5%E6%9C%AC%E7%89%9B%E8%82%89%E9%A3%AF%E4%B8%8D%E5%86%8D%E5%A4%A7%E4%BB%B6%E5%A4%BE%E6%8A%B5%E9%A3%9F-imf%E8%AD%A6%E5%91%8A%E5%85%A8%E7%90%83%E9%80%9A%E8%84%B9%E6%88%96%E5%A4%B1%E6%8E%A7)
+日本政府数据周五（12月24日）显示，日本11月核心消费者物价较上年同期上涨0.5%，是近两年来最快的上升速度，这表明全球大宗商品价格上涨的影响范围正在扩大。
 
+然而，分析师表示，这不太可能促使日本央行很快撤回货币刺激措施，因为通胀率离央行2%的目标仍然很远。
 
+全国核心消费者物价指数(CPI)的涨幅高于市场预测中值0.4%。核心CPI不包括波动较大的生鲜食品价格，但包括石油成本。这是自2020年2月以来的最大涨幅，10月的涨幅为0.1%。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
-> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+所谓的“核心-核心”CPI在11月较上年同期下降0.6%。该指数不包括食品和能源价格，与美国采用的核心物价指数相当。
 
+日本并没有免受全球大宗商品通胀的影响，11月趸售(批发)物价同比升幅达到创纪录的9.0%。但核心消费者通胀率一直徘徊在零左右，因为企业对将成本转嫁给消费者仍持谨慎态度，担心家庭可能减少支出。
 
+日本央行上周维持超宽松的利率政策不变，央行总裁黑田东彦强调他准备保持低利率，即使其他主要央行正准备退出危机模式的刺激措施。
 
-参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+消息来源：[日本11月核心CPI同比上升0.5% 为近两年来最大涨幅](https://cn.reuters.com/article/japan-nov-cpi-1224-fri-idCNKBS2J301X?il=0)
 
-
-
-> Big Tech grovels before CCP. 
-> 
-> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
-> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
-
-
-
-> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
-> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
-
-
-
-> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
-> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
