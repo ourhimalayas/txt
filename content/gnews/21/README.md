@@ -2,37 +2,85 @@
 ---
 
 
-## 美25州就学前教育者疫苗强制令起诉拜登政府
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786158/)
+## 中共倾一国之力收买、封杀爆料革命的真实数据
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786184/)
 
-作者：纽约香草山文艺部 – 宁文静
+[https://gtv.org/video/id=61c5688843ccb726a08a955c](https://gtv.org/video/id=61c5688843ccb726a08a955c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+**郭文贵
+Miles Guo**
 
-12月21日，美国路易斯安那州、阿拉巴马州、阿拉斯加州、阿肯色州、亚利桑那州、佛罗里达州等25个州起诉拜登政府，指控其对学前教育员工的疫苗强制接种令。据美国卫生与公众服务部的相关规定，从事学前教育的工作人员需在1月底前完成疫苗接种。
+为什么大家没有任何人包括Rachel, 所有人, 文斌你们在这直播的，Eric
+Why are you no believing me? including Rachel, Wen Bin, Eric you guys are broadcasting here
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-3.png)
+你们没有一个人真正相信七哥说过的，谷歌、苹果商店、亚马逊都改咱们的后台数据
+none of you really believe what I said, Google, Apple Store, and Amazon have all changed our back-end data
 
-路易斯安那州总检察长杰夫·兰德里在一份声明中说，拜登政府的疫苗政策不仅超出了政府的权限，违反了《国会审查法》和第十修正案，降低地区的就业率，还将削减贫困家庭、单身母亲、抚养子孙的老人所依赖的资金和儿童保育项目。德州总检察长帕克斯顿也表示，这项违宪的强制规定在美国没有立足之地，德州不会迫使本州人民接种疫苗。
+你们没有认真研究并相信过，我说过咱每播一次都会超过一亿次被观看
+You haven’t studied it carefully and believed it, I said that every time we broadcast, we will be watched more than 100 million times
 
-参考链接：
+否则不可能在4年前5年前，共产党以一国一党之力，要征服全世界都力量
+Otherwise, it would be impossible at four or five years ago, the Communist Party use all the country’s power to conquer the whole world
 
-- [Twenty-five states sue Biden admin over mask mandate for kids in Head Start](https://www.foxnews.com/politics/25-states-sue-biden-admin-for-enforcing-vaccine-mandate-masks-on-children-and-staff-in-head-start-programs)
+打任何一个国家，像立陶宛、日本、法国都跪下，英国都跪下
+attack any country, like Lithuania, Japan, France, and Britain, they all on their knees
 
+美国人连病毒都不敢问，来对付我们什么，
+Americans don’t even dare to ask about where the virus come from, then why are CCP targets us?
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+亚马逊要跟中宣部做交易, 苹果大家记住，有史以来被告就是因为要把当时的郭媒体APP下架
+Amazon wants to make a deal with the CCP’s Central Propaganda Department, everyone remember Apple, it was sued in history because they wanted to remove the Guo Media’s App at the time
 
-总编：Irene木木
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
+所有全世界的媒体当时跟我们的，最后全反我们
+All the media in the world talked to us at the time, and finally turned against us
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+华尔街日报、纽约时报、BBC把七哥的访问拿下
+The Wall Street Journal, the New York Times, and the BBC take away Miles’s interview
+
+什么哈德逊研究所，把七哥的预定直接给拿掉
+and Hudson Institute, cancelled Miles’s reservation directly
+
+世界上所有的大报，像美联社、塔斯社都是派去中国人, 一个月换仨月
+All major newspapers in the world, such as the Associated Press and TASS, they all send Chinese people, one month for three months
+
+然后中国人写一篇报道，郭文贵是双面间谍，郭文贵是强奸犯，郭文贵是骗子
+Then the Chinese wrote a report that Miles Guo was a double agent, Miles Guo was a rapist, and Miles Guo was a liar
+
+过去5年，倾其力之大，你就看看如果共产党不怕咱
+In the past 5 years, they have done so much, you look at it if the Communist Party is not afraid of us
+
+它能把龙头变成龟头，能变成鸟头吗
+Can it turn a dragon’s head into a tortoise head or a bird’s head?
+
+它能把裕达这样的佛手给你干掉，给你施巫术在盘古前面, 给你埋上一个(印)
+It can get rid of Buddha’s hands of Yuda, cast a witchcraft in front of Pangu, and put a spell on you
+
+没有神信仰的共产党, 埋一个巫术的一个印
+The Communist Party which has no faith in God, put a spell on you
+
+要把郭文贵给怎么着了, 它不怕咱, 他能那么做吗？
+To take down Guo Wengui, If the CCP is not afraid of us, could they do that?
+
+* * *
+
+Date: 12/22/2021
+原视频标题: 中共倾一国之力收买、封杀爆料革命的真实数据
+the CCP has used the country power to buy and block the real data of the whistleblower movement
+原视频日期：2021/12/19
+原视频链接：[https://gettr.com/post/pkcwwo942c](https://gettr.com/post/pkcwwo942c)
+任务编号：3313
+视频时间段 : 0:00-2:10
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

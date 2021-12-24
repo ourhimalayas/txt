@@ -2,41 +2,39 @@
 ---
 
 
-## 日本在中国政府的威胁下批准了创纪录的国防预算
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786015/)
+## 欧洲议会议员反对欧盟主席强制疫苗政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786090/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：东京樱花团 – 在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1200x800.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+
+盖特12月21日消息，欧洲议员罗伯特-汝斯在议会公开质疑欧盟委员会主席冯德莱恩的强制疫苗政策。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-13.png)
+
+汝斯认为，冯德莱恩强迫人们接种中共病毒疫苗的观点与其12月8日民主峰会上的表态相违背。如果冯德莱恩主张民主制度赋予人们言论、行为和选择的自由，那么强制疫苗政策恰恰在剥夺选择的自由，即剥夺民主。
+
+汝斯表示，过去6个月两针辉瑞疫苗对奥密克戎的抵御力为零，因此科学家不认同疫苗对健康的年轻人有保护作用，所以强制疫苗政策是不合情理且不透明的。汝斯称自己将捍卫公民权利，质疑并要求公开欧盟委员会与疫苗制造商之间的保密合同。
+
+参考链接：
+
+- [https://gettr.com/post/pk7zcd2a3d](https://gettr.com/post/pk7zcd2a3d)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-图片来源： *Kiyoshi Ota/Bloomberg*
+总编：Irene木木
+编辑：文徬
+校正/发稿：海阔天空1
 
-
-#### 编译 ：小红帽
-
-根据Hindustan Times12月24日报道，**日本内阁于周五批准了创记录的5.4万亿日元（472亿美元）的国防预算，用于从4月开始的年度。该预算是为了加强能力来抵御来自中国政府的威胁。**
-
-这一数字标志着日本的年度国防开支连续第10次增长，超过了这个和平主义国家几十年来基本维持的国内生产总值1%的上限。
-
-根据斯德哥尔摩国际和平研究所的数据，与其盟友美国相比，日本的国防预算并不高， 2020年预估为7780亿美元，中国则为2520亿美元。整体预算必须在明年正式颁布前获得议会通过。
-
-在北京当局于2020年镇压香港之后，日本和中国之间的关系变得越来越冷淡。两国的船只继续在位于东中国海的岛屿周围相互追逐。
-
-包括首相岸田文雄在内的日本官员也越来越直言不讳地表示，需要为台湾周边的突发事件做准备。
-
-新闻来源：[Japan approves record defence budget amid China threats | World News – Hindustan Times](https://www.hindustantimes.com/world-news/japan-approves-record-defence-budget-amid-china-threats-101640313873259.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

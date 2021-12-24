@@ -2,34 +2,36 @@
 ---
 
 
-## 【中日财经爆】中共国粮食危机，囤积全球过半粮食！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786237/)
+## 中共房地产开发商面临巨额债务到期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1307.png)[图片来源](http://www.yntw.com/2020/09/11713.html)
-《日经亚洲（Nikkei Asia）》12月23日报导，中共国人口不到世界20%，却设法囤积储存了全球一半以上的粮食，导致全球物价急剧上涨，并使更多国家陷入饥荒，日本学者分析可能中共国土壤污染使生产力降低、国内生产跟不上消费、缺粮恐会造成国人动乱。
+撰稿：MOS-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
+据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
 
-中共国国家粮食和物资储备局粮食储备司司长秦玉云11月时就于记者会中自爆，中共国正将粮食库存维持在历史高位，「我们的小麦库存可以满足1年半的需求」强调粮食供应没有任何问题。
+根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
 
-美国农业部数据显示，预测2022年上半年度，中国将拥有全球69%玉米储量、60%水稻与51%小麦，而这也清楚表明中共国的囤粮行径。
 
-据中共国海关总署数据，中共国2020年进口食品达981亿美元，是10年前的4.6倍，2021年1至9月期间的进口食品也比2016年以来还要更多。统计显示，过去5年中，中共国从美国、巴西或其他供应国大举采购，大豆、玉米和小麦进口量猛增2至12倍，牛肉、猪肉、乳制品及水果的进口量也同步增长2到5倍。
 
-联合国粮食及农业组织计算的食品价格指数11月比去年同期高出约30%，「中共国的囤积行为的确是物价上涨原因之一」，东京北部栃木县自然资源研究所所长分析，中共国因为国内生产跟不上消费，因此正在进口更多的粮食和其他食品；爱知大学名誉教授高桥吾郎直指，由于农田的分散与土壤污染，导致中共国农业生产力低下。
+链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
 
-据联合国统计，2020年全球面临饥饿的人口已超过7亿，比5年前增加了超过1亿人，高桥表示，虽然已发展国家作为全球的一份子要为饥荒负责，「但中共国的责任更大，中共国应要为解决粮食分配不均做出贡献」。报导中还称，中共国国家主席习近平多次强调粮食安全的重要性，今年数度对减少粮食浪费立法及对官员进行指导。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-报导中更提及，50多岁的中国人历经1966年至1976年的文革期间下粮食短缺，习近平也曾直指「我们这一代人或多或少都记得饥饿」，综观历史只要粮食短缺就会发生动乱，而这也是现在的中共国促成因素。如今在中共国与美国、澳洲关系逐渐恶化的情况下，世界第二大经济体面临粮食不确定性，这可能会大大影响进口环境，也因此刺激中共国囤粮行径的原因。
+总编：Irene木木
 
-消息来源：
+编辑：飞虹
 
-[物价上涨元凶是中国囤全球过半谷物日学者分析3因素恐动摇国本](https://www.mirrormedia.mg/story/20211224edi018/)
+校正/发稿：浪迹天涯
 
-[China hoards over half the world’s grain, pushing up global prices](https://asia.nikkei.com/Spotlight/Datawatch/China-hoards-over-half-the-world-s-grain-pushing-up-global-prices)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

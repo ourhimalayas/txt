@@ -2,38 +2,59 @@
 ---
 
 
-## 喜马拉雅农场将协助战友对HBO记者Isobel提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1785901/)
+## 随着英特尔的到来，欧洲将获得先进的芯片
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1785956/)
 
-撰稿：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-香草山农场负责人长岛伟哥，于美东时间12月22日发表盖文称，“经过跟DC农场负责人阿丙女士沟通交流，我们都很痛心的看到两个农场的战友分别被HBO记者和CCTV主持人Isobel欺骗采访和污蔑为暴力分子，以及有可能给他们带来的人身威胁，我代表香草山农场和阿丙代表华盛顿DC农场将会分别协助和经济援助小斯基战友和Nicole战友启动法律程序起诉这个女记者Isobel。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1277.png)
-HBO记者Isobel（杨贝贝）以报导香港运动和新疆集中营事件，骗取战友的信任，假借采访“美国华人为什么会支持川普”为主题的纪录片，欺骗战友游行当日接受采访。然而，播出的报导，却攻击郭文贵先生，抹黑参加和平游行的美国华人和爆料革命战友们，称其为暴乱分子，对战友的心理造成了严重的影响，威胁着战友们的人生安全。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-16.png)图片来源：techinn
+翻译：文扬
+编辑：Mttfly
 
-这次采访历经数月，却利用短短十几分钟的剪辑节目，攻击爆料革命，重伤爆料革命战友，更为排华事件埋下了隐患。身处海外的爆料革命战友们，要勇于拿起法律武器，依法捍卫自己的安全和权益。
+随着美国半导体巨头英特尔选择新的尖端芯片工厂的位置，欧洲将很快成为现代全球经济中具有战略意义的重要组成部分。
 
-新闻连接：
+最近全球供应链中的问题凸显了半导体的根本重要性，这些芯片被用于越来越多的产品，包括汽车、电视和智能手机。
 
-[https://gettr.com/post/pkdb93c0ec](https://gettr.com/post/pkdb93c0ec)
+强烈的需求和半导体工厂的关闭，特别是在亚洲，由于大流行病的干扰，导致全球芯片短缺，迫使福特、日产和大众等汽车制造商缩减生产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+欧盟希望减少对被大流行病破坏的脆弱的全球供应链的依赖，并将半导体确定为对27国集团具有战略意义的产品。
 
-新闻采集：熊嘟嘟
+英特尔将在明年初为其欧洲工厂选择一个地点，这些工厂将生产精细到以纳米为单位的半导体元件。
 
-总编: 飞虹
+首席执行官帕特·盖尔辛格（Pat Gelsinger）说，英特尔计划建立两家工厂，每家工厂雇用1500名工人，耗资100亿欧元（110亿美元）。
 
-编辑: 雪梨
+未来可能再建六家工厂，潜在投资将提高到800亿欧元。
 
-校正/发稿：浪迹天涯
+德国似乎是英特尔新建厂的最热门候选地。东部城市德累斯顿周围的地区已经有芯片行业的大公司，如博世、格罗方达和英飞凌。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+专门研究半导体市场的研究公司Yole Developpment的总裁让-克里斯托夫·埃洛伊(Jean-Christophe Eloy)表示，德累斯顿“似乎符合所有条件”。
+
+埃洛伊补充说，周围的赢得了“硅萨克森”的绰号的萨克森地区，由于靠近德国与波兰和捷克共和国的边界，因此拥有大量的劳动力和房地产潜力。
+
+代表当地半导体利益的Silicon Saxony协会的总经理弗兰克·布森伯格（Frank Boesenberg）证实，正在讨论主办英特尔的项目。
+
+他提到了萨克森州受过高等教育的劳动力、培训和研究环境、供应商以及地方当局在授权程序方面的经验。
+
+博世今年比计划提前6个月开设了一家新的半导体工厂。
+
+“时间和速度显然对我们的行业极为重要，”博森伯格告诉法新社。
+
+德国南部的巴伐利亚州是另一个候选地，但由于项目的物流要求和当地劳动力市场预先存在的紧张关系，其机会似乎较小。
+
+一个当地非政府环保组织发起了反对拟建工厂的请愿，称其表面积相当于700个足球场，其每天的耗水量相当于一个百万人口的城市。
+
+专家认为，虽然法国和意大利被视为无法成为英特尔工厂的候选地，但它们可能会在研究和开发方面发挥作用，或成为供应链的一部分。
+
+**原文链接：**[With Arrival Of Intel, Europe To Gain Advanced Chips](https://www.barrons.com/amp/news/with-arrival-of-intel-europe-to-gain-advanced-chips-01640153107)
+
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,24 @@
 ---
 
 
-## 哈佛教授隐瞒参与中共“千人计划”被定罪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786091/)
+## 【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786101/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-波士顿法庭陪审团于当地时间12月21日裁定，前哈佛大学化学系主任，李柏教授，因为对参与中共的“千人计划”陈述不实，及不如实报税等行为，被判定6项罪名。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1294.png)[图片来源](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
+据《读卖新闻》网站12月24日报道，日本总务省11月24日公布了11月消费者价格指数，不包括新鲜食品的11月消费者价格指数比上年同期上升0.5%。这是连续第三个月该指数为正值。并且从10月份的0.1%明显扩大。这一增长反映了由于油价上涨和日元疲软而导致的汽油和其他能源相关项目的价格上涨，涨幅是一年零九个月以来最大的一次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-9.jpg)
+整体能源价格上涨15.6%，远高于10月份11.3%。自2008年8月油价飙升至17.0%以来的第一次。这一增长是13年零3个月以来的最大增幅。在能源产品中，汽油和煤油的价格分别上涨27.1%和36.2%。
 
-千人计划是中共从2008年开始执行，计划性收买海外高级研究人员，借此盗取各国高科技战略信息的情报战的一个手段。
+另一方面，由于从今年春天开始推出了一系列更便宜的资费计划，移动电话通信费用下降了53.6%。因此，如果将新鲜食品和能源排除在总数之外，消费价格下降了0.6%。
 
-李柏教授在2011年被中共收买，成为武汉理工大学的「战略科学家」，加入千人计划。
+据农林中金综合研究所的首席研究员南武志说：”目前，能源价格的急剧上升是显著的，与欧洲和美国的通货膨胀不同，后者是由需求快速增长引起的。对消费者来说，这非常不好，因为日常生活用品会变得更加昂贵。
 
-川普总统任内，对中共盗取科研情报的行为开始进行反制调查，李柏教授此次被定罪只是其中的一个案例。
+信息源：[１１月の消費者物価指数、０・５％上昇と大きく拡大…昨年２月以来の上昇幅](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
 
-参考链接：
-
-- [隱瞞參與中國千人計畫 哈佛大學教授遭定罪](https://www.cna.com.tw/news/aopl/202112220055.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

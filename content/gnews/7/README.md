@@ -2,36 +2,27 @@
 ---
 
 
-## 中共房地产开发商面临巨额债务到期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
+## 美情报和卫星图片显示沙特正在中共的帮助下建造弹道导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1786350/)
 
-撰稿：MOS-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
-据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
+#### 翻译/撰稿：zzballack
 
-根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-37.jpg)图片来源：纽约邮报
+据英国《每日邮报》（Daily Mail）12月23日报道，根据美国情报部门和卫星图像，沙特阿拉伯在中共的帮助下，已经开始在一个绝密基地制造自己的弹道导弹。
 
+这是海湾国家第一次设法制造自己的此类武器，尽管它过去曾从中共那里购买弹道导弹。这一发展可能会威胁到沙特阿拉伯和伊朗之间在中东冷战中的力量平衡，并可能对恢复德黑兰与美国的2015年核协议谈判造成破坏。
 
+位于美国加州的商业成像公司行星实验室（Planet）在2021年10月26日至11月6日拍摄的卫星照片显示，在沙特阿拉伯中部的杜瓦达米 (Duwadimi) 附近有一个能够制造弹道导弹的基地。熟悉最新情报的消息人士称，这些照片是沙特阿拉伯有能力生产弹道导弹的“第一个明确的证据”。
 
-链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
+米德尔伯里国际研究所（Middlebury Institute of International Studies）的武器专家和教授杰弗里‧刘易斯（Jeffrey Lewis）在审核完这些图片后说：“达瓦德米的一个设施与导弹制造厂一致。该设施是在中共的帮助下建成的，有一个‘燃烧坑’，用于处理生产弹道导弹时剩下的固体推进剂。这一关键证据表明，该设施涉及弹道导弹的生产。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+铸造火箭发动机会产生剩余的推进剂（propellant），它存在爆炸性危险。 固体推进剂导弹生产设施通常有燃烧坑，剩余的推进剂可以通过燃烧来处理。刘易斯说：“因此，燃烧操作是该设施正在积极铸造固体火箭发动机的一个有力标志。”
 
-总编：Irene木木
+目前还不清楚沙特阿拉伯究竟是如何获得敏感的弹道导弹技术的。熟悉最近安全简报的两名消息人士说，包括白宫国家安全委员会在内多个机构的美国官员在最近几个月被告知，机密情报显示中共与沙特阿拉伯之间进行了多次大规模的敏感弹道导弹技术转让。
 
-编辑：飞虹
+新闻来源：[Saudi Arabia ‘is building ballistic missiles’ with China’s help at top secret base that threatens balance of power in Middle East cold war with Iran](https://www.dailymail.co.uk/news/article-10339823/Saudi-Arabia-building-ballistic-missiles-Chinas-help-secret-base.html)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

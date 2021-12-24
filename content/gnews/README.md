@@ -15,143 +15,143 @@
 
 ---
 
-### [币圈新闻动态：喜币（HCN）价格目前在34.652 HDO](/content/gnews/1/README.md)
+### [中共以“安全”为由拆除港大天安门大屠杀遇难者雕像](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [每日快报：美日制定联合作战方案应对台海危机](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [应对台海紧张局势，美日拟定联合行动计划草案](/content/gnews/2/README.md)
+### [稀土将成为中共国的地缘政治武器](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在34.652 HDO](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [应对台海紧张局势，美日拟定联合行动计划草案](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [告密者与爱国主义遮羞布告密者与爱国主义遮羞布](/content/gnews/3/README.md)
+### [告密者与爱国主义遮羞布告密者与爱国主义遮羞布](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美情报和卫星图片显示沙特正在中共的帮助下建造弹道导弹](/content/gnews/4/README.md)
+### [美情报和卫星图片显示沙特正在中共的帮助下建造弹道导弹](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共体制大降薪，有人为糊口竟要兼职外卖](/content/gnews/5/README.md)
+### [中共体制大降薪，有人为糊口竟要兼职外卖](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [2021/12/22 文贵先生直播](/content/gnews/6/README.md)
+### [2021/12/22 文贵先生直播](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共房地产开发商面临巨额债务到期](/content/gnews/7/README.md)
+### [中共房地产开发商面临巨额债务到期](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [郭先生：VICE虚假视频是为美国取消中共贸易关税做铺垫](/content/gnews/8/README.md)
+### [郭先生透露中共动用VICE采访目的是打击爆料革命同时方便跟美国勾兑](/content/gnews/11/README.md)
+ ` GTV News Talk`
+
+### [郭先生：VICE虚假视频是为美国取消中共贸易关税做铺垫](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [郭先生谈新冠疫苗对不同特征人群的不同影响](/content/gnews/9/README.md)
+### [郭先生谈新冠疫苗对不同特征人群的不同影响](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [【中日财经爆】中共国粮食危机，囤积全球过半粮食！](/content/gnews/10/README.md)
+### [【中日财经爆】中共国粮食危机，囤积全球过半粮食！](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生提醒：务必重视奥米克戎变体病毒](/content/gnews/11/README.md)
+### [郭先生提醒：务必重视奥米克戎变体病毒](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [【中日财经爆】许家印夫妇近8亿元股份被斩仓](/content/gnews/12/README.md)
+### [【中日财经爆】许家印夫妇近8亿元股份被斩仓](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥会一定会有感染病毒，集体事件](/content/gnews/13/README.md)
+### [冬奥会一定会有感染病毒，集体事件](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [分析显示辉瑞的新冠疫苗临床试验从一开始就设计糟糕（下）](/content/gnews/14/README.md)
+### [分析显示辉瑞的新冠疫苗临床试验从一开始就设计糟糕（下）](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [【中日财经爆】印度对中资企业开展大规模税务调查](/content/gnews/15/README.md)
+### [【中日财经爆】印度对中资企业开展大规模税务调查](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？](/content/gnews/16/README.md)
+### [文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共倾一国之力收买、封杀爆料革命的真实数据](/content/gnews/17/README.md)
+### [中共倾一国之力收买、封杀爆料革命的真实数据](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [网信办打击流量造假黑公关和网络水军](/content/gnews/18/README.md)
+### [网信办打击流量造假黑公关和网络水军](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港共政府移除“国殇之柱”](/content/gnews/19/README.md)
+### [港共政府移除“国殇之柱”](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [欧盟拟对中共国铝箔加征关税](/content/gnews/20/README.md)
+### [欧盟拟对中共国铝箔加征关税](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [美25州就学前教育者疫苗强制令起诉拜登政府](/content/gnews/21/README.md)
+### [美25州就学前教育者疫苗强制令起诉拜登政府](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [一周中共病毒及疫苗伤害等信息汇总](/content/gnews/22/README.md)
+### [一周中共病毒及疫苗伤害等信息汇总](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/23/README.md)
+### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/24/README.md)
+### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/25/README.md)
+### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Nicole 揭露Isobel Yeung 的谎言](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/27/README.md)
+### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英特尔致信供应商 禁用新疆产品](/content/gnews/28/README.md)
+### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/29/README.md)
+### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/31/README.md)
+### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本在中国政府的威胁下批准了创纪录的国防预算](/content/gnews/32/README.md)
+### [随着英特尔的到来，欧洲将获得先进的芯片](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着英特尔的到来，欧洲将获得先进的芯片](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [喜马拉雅农场将协助战友对HBO记者Isobel提起诉讼](/content/gnews/34/README.md)
+### [喜马拉雅农场将协助战友对HBO记者Isobel提起诉讼](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/35/README.md)
+### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/36/README.md)
+### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/37/README.md)
+### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/38/README.md)
+### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/39/README.md)
+### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/40/README.md)
+### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/41/README.md)
+### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/42/README.md)
+### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/43/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/43/README.md)
+### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/44/README.md)
  ` YALUN 亚伦`
 
-### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/44/README.md)
+### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/45/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共又有30多家实体被美商务部拉黑，涉及大脑控制武器](/content/gnews/45/README.md)
+### [中共又有30多家实体被美商务部拉黑，涉及大脑控制武器](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新西兰财经G乐部2021年12月22日:财经新闻整理](/content/gnews/46/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [MS-13帮派恐怖分子形象是VICE视频谎言链条中的另一环](/content/gnews/47/README.md)
  ` NewFOC`
