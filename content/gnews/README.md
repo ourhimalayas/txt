@@ -15,14 +15,14 @@
 
 ---
 
-### [秘翻在线：川普的最新商业伙伴—-一家中共国公司受SEC调查](/content/gnews/1/README.md)
+### [文·贵天成——郭文贵先生谈“北京冬奥会”（二）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：川普的最新商业伙伴—-一家中共国公司受SEC调查](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [速报 日本政府决定不派遣官员参加北京冬奥会](/content/gnews/2/README.md)
+### [速报 日本政府决定不派遣官员参加北京冬奥会](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [郭文贵盖特音频2021.12.23](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
