@@ -78,26 +78,26 @@
 ### [冬奥会后至少有5000万人看清楚中共要完了](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/22/README.md)
+### [被病毒感染过的人，将来得癌症的几率超过50%](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/23/README.md)
+### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/24/README.md)
+### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/25/README.md)
+### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/26/README.md)
  ` 喜国公民`
 
-### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [日本决定外交抵制北京冬奥会](/content/gnews/27/README.md)
+### [日本决定外交抵制北京冬奥会](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [拜登总统签署法案 禁止新疆强迫劳动产品进入美国](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/29/README.md)
  ` MOSREC`
