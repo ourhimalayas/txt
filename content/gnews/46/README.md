@@ -2,37 +2,24 @@
 ---
 
 
-## 拜登总统签署法案，全面禁购新疆产品
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786066/)
+## 【中日财经爆】印度对中资企业开展大规模税务调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786206/)
 
-**【雅典娜快讯】紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-304.jpg)图片来源：Daily Mail
-整理报道：美哥
-编辑：文泓
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1302.png)[图片来源](https://6do.news/article/5457066-45)
+据印度《商业标准报》23日报导，印度财政部税收局21日和22日在对全印手机制造商和分销商的一次重大打击行动中，对来自中共国的手机制造商小米、Oppo、一加、富士康等在印度的办公室和制造厂进行了突击搜查，有消息称，这些在印度市场占有率合计超过46%的中共国企业涉嫌“做假账”。
 
-12月24日，据美国广播公司报道，美国总统拜登签署了一项法案：从中共国新疆地区进口的商品，需要企业出具没有使用强制劳工的证明。白宫曾披露新疆维吾尔族的穆斯林中持续发生着大屠杀的罪行。对此，中共政府竭力否认。
+印度财政部消息人士称，该部门收到可靠情报，表明上述企业通过做假账逃税。另据印度洲新闻国际通讯社（ANI）消息，搜查行动自当地时间21日开始，覆盖20多处经营场所。“德里、孟买、班加罗尔、大诺伊达、加尔各答、古瓦哈提、印多尔和其他一些地方，突袭行动正在进行。”消息人士告诉ANI。消息人士还声称，一些金融科技公司也在搜索行动的范围内，这些公司的首席执行官都在调查范围内，目前他们正在接受问询。
 
-《防止强迫维吾尔人劳动法》在国会参众两院达成妥协后于本月通过。这次立法的关键在于“可反驳的推定”，该立法的关键是一个“可反驳的推定”，假设来自新疆的所有货物都是强迫劳动产品，北京在那里为维吾尔人和其他穆斯林群体建立了拘留营。
+消息来源：
 
-除非可以证明不是这样，否则它将禁止这些产品导入。有些特定产品，比如棉花、西红柿、用于太阳能板加工的多晶硅，都在执法的“优先名单”里。
+[印度对中企开展大规模调查 中国驻印使馆：希望印方提供非歧视营商环境](https://cn.reuters.com/article/india-probe-chinese-business-firms-1224-idCNKBS2J303I?il=0)
 
-新疆现为世界上棉花和太阳能板材料的主要供应地。美国大公司在新疆都有业务，包括可口可乐，耐克和苹果公司都已经谴责了该项立法。而中共国也否认了在新疆的暴行。
+[印度税务部门以“逃税”为由对中企发起“大规模突袭搜查”](https://world.huanqiu.com/article/465v73X7zEU)
 
-努里·特克尔，维吾尔裔美国国际宗教自由委员会副主席评论说，该法案的有效性取决于拜登政府的意志，当公司都寻求豁免权的时候，希望执行仍能确保行之有效。法案的联合起草人，民主党参议员杰夫·默克利认为必须给中共大屠杀和奴隶劳工的行为，一个“响亮的不含糊的信号”，“现在我们终于可以确保美国消费者和企业，不会无意间成为人权虐待的共犯”。
-
-早在1月末，川普政府就曾宣布禁止新疆棉花和西红柿进口。而美国海关机构估计，前年大约有价值九十亿美元的棉花制品和价值一千万美元的西红柿从中共国进口。
-
-新闻链接：[Joe Biden signs bill banning goods from China’s Xinjiang over genocide, forced labour concerns – ABC News](https://www.abc.net.au/news/2021-12-24/biden-signs-bill-banning-goods-from-china-s-xinjiang/100724000)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

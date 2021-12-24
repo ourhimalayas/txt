@@ -2,10 +2,12 @@
 ---
 
 
-## 视频| 揭露HBO-VICE精心编织的谎言（十二）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787010/)
+## 视频| 揭露HBO-VICE精心编织的谎言（十一）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787011/)
 
 制作：英国喜庄园，秘密翻译组
+
+
 
 
 
@@ -30,8 +32,6 @@
 [视频| 揭露HBO-VICE精心编织的谎言（九）](https://gnews.org/zh-hans/1786870/)
 
 [视频| 揭露HBO-VICE精心编织的谎言（十）](https://gnews.org/zh-hans/1787012/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（十一）](https://gnews.org/zh-hans/1787011/)
 
 
 
