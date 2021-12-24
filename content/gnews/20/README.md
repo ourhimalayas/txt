@@ -2,163 +2,32 @@
 ---
 
 
-## 冬奥会一定会有感染病毒，集体事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786214/)
+## 郭先生谈新冠疫苗对不同特征人群的不同影响
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786249/)
 
-[https://gtv.org/video/id=61c568f743ccb726a08a9589](https://gtv.org/video/id=61c568f743ccb726a08a9589)
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月22日，郭先生在大直播中爆料，根据国内的情报，目前国内西安的严重疫情基本都是新冠疫苗侵害人体产生的后果。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1279.png)
+郭先生谈到，新冠疫苗的刺突蛋白最容易攻击人体最脆弱的地方，如淋巴和血液。在不同地区、不同的气候，以及不同的饮食习惯下，疫苗对人造成的病症反应也不同。在西安、四川等地，人们的饮食偏干、偏辣，多出现血热症状；俄罗斯气候高寒，主要遭受攻击的器官为心脏和肝脏，容易出现脑梗、心梗等；日本是饮食最健康的国家，男女生殖器官和脑部极有可能受到攻击；韩国人饮食中牛油含量高，有可能出现心脏、大脑以及皮肤方面的问题。
 
-**郭文贵
-Miles Guo**
+另外，郭先生认为，目前世界疫苗接种率已经过半，疫苗灾难已不可避免，但他强调说，在新中国联邦的努力和全球人民的抵制下，全球强制疫苗政策一定会在2至5个月内停止。郭先生提醒大家警惕病毒，传播疫苗解药的真相，拯救更多疫苗受害者。
 
-这次奥运会到北京
-Esta vez los Juegos Olímpicos llegará a Beijing
+新闻来源：[2021年12月22日 文贵大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-一定会有染（感染病毒）
-Seguro habrá contagios (contagio del virus)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-一定还有集体事件
-Debe haber un incidente colectivo
+总编/编辑：飞虹
 
-一定会很严格的治理 隔离
-Habrá una gobernanza y una cuarentena muy estricta
+校正/发稿：浪迹天涯
 
-一定会发生
-Seguro sucederá
-
-我说的是一定啊
-Yo digo “seguramente”
-
-不是像晓理一样你矇出来的
-No es como Xiaoli que lo adivinó
-
-这绝对不是像文斌你们想像出来的Rachel
-Tampoco es como Wenbing y Rachel que se lo imaginaron
-
-你想当然就预测到这的
-Si lo piensas seguro lo puedes predecir hasta aquí
-
-Eric兄弟
-Hermano Eric
-
-你是跟着他的思维
-Tu le sigues el pensamiento
-
-你没有逆向思维
-No aplicas el pensamiento inverso
-
-你只是个逻辑性思维的结果
-Tu resultado es sólo pensando con la lógica
-你要逆向思维
-Tienes que pensar inverso
-
-这主要体现习太阳和中国的治理能力
-Esto principalmente refleja la habilidad de gobernanza de Xi sol y de China
-
-在全球治理能力
-La habilidad en gobernanza global
-
-治理能力是什么
-Qué es la habilidad de gobernanza
-
-反应快 检查快 治理快
-Reacción rápida, inspección rápida y la gobernancia rápida
-
-照顾得好中国人的感情
-Cuida muy bien el sentimiento de los chinos
-
-然后有人站出来说话
-Y habrá alguien que saldrá a hablar
-
-天呐 鼻涕一把泪一把的
-¡Dios! Con mocos y lágrimas
-
-中国共产党太伟大了
-La República Popular de China es tan grandioso
-
-太讲感情啦
-Son muy afectivos
-
-这样的病毒在美国1年都得不到制止
-Un virus de este tipo no se ha detenido en los Estados Unidos durante un año
-
-川普为啥病好了 因为他是官僚
-Por qué Trump se pudo curar, porque él es un burócrata
-
-他吃了当时的鸡尾酒法
-Se tomó el método del cóctel en ese momento
-在美国你是吃不了的
-En Estados Unidos no podrás tomarte eso
-
-你看中央电视台
-Mira CCTV
-
-展（示）出来的说
-Lo muestran diciendo
-
-美国是世界上治理病情最差的死亡最多的 最不民主的
-Estados Unidos tiene la peor condición de gobernanza en el mundo y tiene la mayor cantidad de fallecidos, es el menos democrático
-
-你就知道它要干啥了
-Así sabrás qué es lo que van a hacer
-
-共产党他们想干啥
-Qué es lo que el PCCh quiere hacer
-
-晚上来吃饭
-Vienen a cenar en la noche
-
-这个人一来我就知道今天晚上他想干啥
-Esta persona llega y ya yo se a qué viene hoy en la noche
-
-他为谁来的 我就知道
-Por quién ha venido, yo lo sé
-
-我就会让他心满意足的回去
-Yo lo mando contento y satisfecho de regreso
-
-就我一看中央电视台这几天的讲法
-Yo con sólo ver la forma en que hacen reportaje el CCTV estos días
-
-我一看我就明白了
-Yo ya entiendo al verlo
-
-然后国内情报战友说
-Entonces los camaradas de inteligencia nacional me dijeron
-
-七哥 最近不能跟你联系了
-Miles, este tiempo no te puedo contactar
-
-我们手机全收了
-Nos van a recoger el celular a todos
-
-我去哪里报到去了 准备冬奥委会了
-Me iré a presentar, a preparar el Comité Olímpico de Invierno
-
-我这啥都懂了
-Y ya entendí todo
-
-* * *
-
-日期：12/23/2021
-原视频标题：冬奥会一定会有感染病毒，集体事件
-Los Juegos Olímpicos de Invierno definitivamente habrá contagiados con el virus, será un incidente colectivo
-原视频日期：12/21/2021
-原视频网址：[https://gettr.com/post/pk8m7n810f](https://gettr.com/post/pk8m7n810f)
-任务编号：KC362（3306）
-视频时间段：0:00-01:43
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：天涯行
-审片：银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-01：21 心满意足的回去 改为 心满意足地回去
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

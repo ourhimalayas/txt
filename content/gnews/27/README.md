@@ -2,37 +2,36 @@
 ---
 
 
-## 欧盟拟对中共国铝箔加征关税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786159/)
+## 文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786196/)
 
-作者：纽约香草山 – 侠肝义胆
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1301.png)[图片来源](https://gettr.com/post/pkfy68304b)
+第一，让世界人看到文贵先生很帅，即便是在HBO故意用灰暗色调降低真实形象情况下！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+第二，唯真不破，用与中共控制的世界媒体交手的真实经历，用视频真实记录的方式让新中国联邦人开眼明智！
 
-周三，欧盟在其官方刊物上表示，在发现中共国生产商受益于过度和不公平的补贴后，欧盟决定对来自中共国的铝箔征收额外关税，将特定薄等级铝转炉箔的关税范围调整为 8.6% 至 18.2%，并于周四正式生效。这是在现有 6.0% 至 28.5% 的反倾销税基础上做的相关补充。
+第三，让世界人看到了很多世界媒体被中共和邪恶力量的操控，手段之卑劣，那么再看这些新闻媒体时，不禁要打个问号？他说的是真的吗？他有什么用意？这就是信任度大大降低，降低和避免新闻媒体对思想的误导，反而激发人们的逆向思维！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-1.jpg)
+第四，通过这个无良媒体的宣传，反而让世界的人们了解到有一个人、一群人的正义组织，在揭露、反对、消灭这个世界毒瘤共产主义的中共，就像我刚开始听说过的文贵先生，是在中共宣传污蔑文贵先生中得知，后来经过验证，发现污蔑者才是邪恶的人，而被污蔑者才是真正的好人！
 
-据悉，在收到来自意大利和德国等六家生产商的投诉后，欧盟委员会进行了相关调查，称中共将铝箔列为重点行业，采取优惠融资、免税，和政府以低于市场价格提供土地使用权和电力等补贴形式，干预市场的自由发展。
+第五，通过文贵先生和中共针锋相对的法律超限战，已经了解到，美国的司法系统遭到中共的利用和破坏，那么这一次谣化文贵先生的HBO媒体，更是让美国认识到美国媒体被中共的渗透、控制、利用！
 
-参考链接：
+第六，有助于美国政府相关部门查找出背后的中共潜伏力量！
 
-- [EU to impose extra tariffs on China aluminium foil over subsidies](https://www.reuters.com/markets/commodities/eu-impose-extra-tariffs-china-aluminium-foil-over-subsidies-2021-12-22/)
+第七，正如文贵先生所说，从没有见一个亚洲人反击世界媒体，文贵先生这次有力反击，让所有敢直面邪恶的人，更加有勇气的反击，真是鼓舞人心，增强我们的斗志！
 
+第八，HBO的谣化抹黑宣传，与真实采访过程视频的对比，包括马上对伊莎贝儿的起诉，让世界人们看清当今的世界主流媒体被操控事实，这些主流媒体已经沦为邪恶力量的工具，他们不去关心病毒疫苗真相、不去报道新疆集中营、不去报道香港真相、这更加突出了GTV、GNEWS、GETTR在传播真相揭露黑暗方面的重要意义，提高了世界人们的认可和欢迎程度！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+文贵先生说，媒体是现代社会的核武器，无疑我们爆料革命新中国联邦坚持唯真不破，在与中共打手媒体的核较量中，谁胜谁败？到底一剑几雕？每个人自有判断！我深深体会到，唯真不破就是我们战胜邪恶最有力武器，好人必须凝聚在一起，必须去反击，否则永远被邪恶力量威胁和伤害，只有凝聚在一起，并且用实力用智慧用勇气去消灭邪恶，才能有安全自由的生存发展环境！
 
-总编：飞虹
-编辑：雪梨
-校正/发稿：海阔天空1
+信息来源： The Truth Behind Mr. Miles Guo’s Interview with [#HBOVICE](https://gettr.com/hashtag/%23HBOVICE)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gettr.com/post/pkfy68304b](https://gettr.com/post/pkfy68304b)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

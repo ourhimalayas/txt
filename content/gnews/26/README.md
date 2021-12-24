@@ -2,39 +2,24 @@
 ---
 
 
-## 港共政府移除“国殇之柱”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786160/)
+## 【中日财经爆】印度对中资企业开展大规模税务调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786206/)
 
-作者：东京樱花团 – 在远方
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1302.png)[图片来源](https://6do.news/article/5457066-45)
+据印度《商业标准报》23日报导，印度财政部税收局21日和22日在对全印手机制造商和分销商的一次重大打击行动中，对来自中共国的手机制造商小米、Oppo、一加、富士康等在印度的办公室和制造厂进行了突击搜查，有消息称，这些在印度市场占有率合计超过46%的中共国企业涉嫌“做假账”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+印度财政部消息人士称，该部门收到可靠情报，表明上述企业通过做假账逃税。另据印度洲新闻国际通讯社（ANI）消息，搜查行动自当地时间21日开始，覆盖20多处经营场所。“德里、孟买、班加罗尔、大诺伊达、加尔各答、古瓦哈提、印多尔和其他一些地方，突袭行动正在进行。”消息人士告诉ANI。消息人士还声称，一些金融科技公司也在搜索行动的范围内，这些公司的首席执行官都在调查范围内，目前他们正在接受问询。
 
-台湾媒体消息，12月23日凌晨，在香港黑警严密的安全警戒下，香港大学将已经矗立了24年之久的“国殇之柱”雕塑移除。
+消息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-45.jpg)
+[印度对中企开展大规模调查 中国驻印使馆：希望印方提供非歧视营商环境](https://cn.reuters.com/article/india-probe-chinese-business-firms-1224-idCNKBS2J303I?il=0)
 
-据悉，“国殇之柱”描绘了50副极度痛苦的面孔，以及相互堆叠、惨遭酷刑的尸体，以纪念1989年“六四”事件中，在天安门广场被中共残忍杀害的民主抗议人士。该雕塑的创作者高志活将这座8米高、两顿重的铜铸雕像，永久出借给香港支联会。自1997年以来，这座雕像一直屹立在香港大学校园内。
+[印度税务部门以“逃税”为由对中企发起“大规模突袭搜查”](https://world.huanqiu.com/article/465v73X7zEU)
 
-自去年港版《国安法》强行实施，今年支联会被迫解散后，港共政府要求港大移除此雕像，香港也因此失去了这个纪念“八九六四”国殇日的地方。
-
-参考链接：
-
-- [屹立24年已成歷史 香港大學證實拆除國殤之柱](https://cn.rti.org.tw/news/view/id/2120189)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
