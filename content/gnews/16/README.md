@@ -2,35 +2,34 @@
 ---
 
 
-## 12/24每日播报｜澳大利亚首都地区在圣诞节前重新推出强制性口罩规定
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1787405/)
+## 中共禁止外国人提供线上宗教服务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787524/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61c58df800f9a11918099730)**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月21日，据中共媒体消息显示，中共政府将禁止外国组织和个人在中共国内提供在线宗教信息服务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-33.jpg)
+报道称，近期，中共宗教事务局、国家网信办、工业和信息化部、公安部和国家安全部共同制定了一项新规则，当中要求涉及宗教服务的个人或机构必须获得中共省级宗教事务部门的许可，且参与服务的个人必须以真实姓名注册线上平台，否则，任何组织或个人都不能从事传教工作或宗教培训。而在获得授权后，相关个人或机构必须在宗教活动中宣扬所谓的“促进社会和谐”的宗教教义，其信徒也必须做到中共要求的“爱国和尊重法律”。另外，即便获得授权，中共政府也禁止机构或个人线上直播洗礼、烧香、拜佛、念经等宗教活动。
 
-**2021-12-24**
+有评论指，虽然中共声称其给予墙内民众以“宗教自由”，但中共政府实则对穆斯林和基督教等宗教群体实行了残暴的虐待和镇压。更甚至，为了让其恶行看似合法，中共还将这类宗教群体定义为所谓的“勾结外国势力危害国家安全”，以便对这些群体进行抓捕和迫害。
 
-据The Expose 12月23日报道，澳大利亚首都地区（Australian Capital Territory）在圣诞节前几天重新推出了口罩强制措施。报道称，其理由是新南威尔士州（New South Wales）面临着由奥米炕变种促使中共病毒Covid-19感染激增的情况，因此该地区再次出台了限制措施。
+参考链接: 
+1) . [拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
+2) .[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com.sg/realtime/world/story20211224-1226117)
 
-堪培拉（Canberra）最初于11月12日废除了强制口罩令，但现在再次强制要求当地民众戴口罩，该命令于12月21日晚11:59生效。这些措施的实施，意味着现在澳大利亚首都的所有室内环境都必须戴口罩，包括零售场所、接待场所、老年护理机构、工作场所和公共交通工具。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-这些限制措施将在整个圣诞节和新年期间继续实施。在此之后，将在2022年1月审查这些措施是否应该延长。
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-卫生官员指出，只有在以下几种情况下才能摘下口罩：运动时、与有听力障碍的人交流时以及吃饭或喝水时。
-
-在规定口罩的同时，堪培拉的老年护理机构也重新实行了访客限制。护理院的居民每天的任何时候都将被限制接待不超过五名访客。但是临终探视的访客不受限制。
-
-ACT副首席部长伊薇特·贝瑞（Yvette Berry）说：“在过去的一周里，我们看到首都地区的病例数大幅增加。我们大约一半的活动病例已被确认为由奥米炕变体引起。”
-
-澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，恢复在室内强制佩戴口罩是一个明智的步骤，以减轻变种奥米炕带来的风险。 卫生部将在假期期间继续监测情况，听取健康建议，并在需要时做出进一步回应。
-
-秘翻新闻主编 Grace编译报道
-
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

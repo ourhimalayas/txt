@@ -2,56 +2,12 @@
 ---
 
 
-## 视频| 揭露HBO-VICE精心编织的谎言（十三）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787009/)
+## 12/12郭文贵直播：习的疯狂将让他自取灭亡（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1787050/)
 
-制作：英国喜庄园，秘密翻译组
+12/12/2021 郭文贵直播：习的疯狂将让他自取灭亡──他一定会打台湾，消灭国内私人企业家，抓更多党员；习将文贵的父亲和盘古员工扔到大街上跟萨达姆对待其女婿的残暴行径如出一辙！
 
-
-
-
-
-[视频| 揭露HBO-VICE精心编织的谎言（序）](https://gnews.org/zh-hans/1786954/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（一）](https://gnews.org/zh-hans/1786948/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（二）](https://gnews.org/zh-hans/1786949/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（三）](https://gnews.org/zh-hans/1786950/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（四）](https://gnews.org/zh-hans/1786951/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（五）](https://gnews.org/zh-hans/1786952/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（六）](https://gnews.org/zh-hans/1786953/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（七）](https://gnews.org/zh-hans/1786967/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（八）](https://gnews.org/zh-hans/1787007/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（九）](https://gnews.org/zh-hans/1786870/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（十）](https://gnews.org/zh-hans/1787012/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（十一）](https://gnews.org/zh-hans/1787011/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（十二）](https://gnews.org/zh-hans/1787010/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

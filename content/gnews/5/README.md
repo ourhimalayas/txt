@@ -2,36 +2,36 @@
 ---
 
 
-## 拜登总统签署《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787601/)
+## 【中日财经爆】日本2022财年预算中经济安全成焦点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1787664/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据当地媒体报道，美国总统拜登正式签署了《防止强迫维吾尔人劳动法》，其在送抵白宫的三天后成为美国正式法律。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.55.57.png)
-资料显示，该法案由美国两党议员于2020年在国会协力推动，并于本月稍早通过参、众两院的表决。随后，本月20日，该法案被送交白宫。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-99.jpg)
+[图片来源](https://toyokeizai.net/articles/-/477213?ismmark=b)
 
-根据美国关税法第307款规定，禁止所有开采、生产、制造涉及强迫劳动的商品被进口至美国，而《防止强迫维吾尔人劳动法》则授权美国海关和边境保护局对新疆出产的相关产品作出认定。据了解，进口企业需提供明确且令人信服的证据表明其商品与强迫劳动无关，否则，他们的产品将被禁止进入美国。
+2022财年的预算集中在经济安全领域，这是日本增长战略的一个支柱。将促进日本的战略技术和战略物资的保护和发展。
 
-国务卿布林肯表示，此举展现出美国在对抗强迫劳动问题上的承诺。同时，布林肯还敦促中共政府立即停止其针对新疆维吾尔人以及其他少数民族进行的种族灭绝与反人道行为。布林肯与承诺，美国将竭尽所能地帮助那些渴望摆脱强迫劳动的人们，让他们得以恢复尊严。
+总共957亿日元已被指定用于确保重要资源，如稀土，这对蓄电池和半导体生产至关重要。其中，388亿日元将用于油气田的勘探和资产收购。273亿日元被列入日本石油和天然气的地质调查以及有望成为国内下一代燃料的甲烷水合物的研究开发项目。
 
-参考链接：
-1）[拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
-2）[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com/realtime/world/story20211224-1226117)
+政府还将努力加强国内半导体产业的基础建设。 政府已经在2021 财年的补充预算中增加了 7740 亿日元。台积电在熊本建造的新工厂预计将成为首个支持项目。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+2022财年预算也将拨款149亿日元，支持先进半导体的国内生产。其中，101亿日元被指定用于支持高效、高速处理的AI（人工智能）芯片研究，以及支持下一代计算技术的开发。
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+2021财政年度的补充预算包括2500亿日元，以支持人工智能和量子技术等关键技术的研究、开发和商业化。2022财年的预算还包括51亿日元，以支持对这些重要技术的趋势调查，以及协助中小型公司和大学构建管理系统等。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+政府还旨在吸引在数字和绿色能源等增长领域拥有尖端技术的海外公司。为了在兼顾安全的同时扩大对日本的直接投资，将拨款255亿日元支持日本贸易振兴机构的运作。
+
+此外，11亿日元被指定用于改善在内阁秘书处设立的立法筹备办公室的工作环境，以加快制定《经济安全促进法》（暂定名）的工作，该法将于明年提交给国会。
+
+信息来源：
+
+[令和４年度予算案の焦点　経済安保、レアアースや半導体に重点](https://news.yahoo.co.jp/articles/ac42117275c11405b3de1f79d9f8dbcca20176fe)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
