@@ -2,37 +2,28 @@
 ---
 
 
-## 欧盟拟对中共国铝箔加征关税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786159/)
+## 网信办打击流量造假黑公关和网络水军
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786161/)
 
-作者：纽约香草山 – 侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1299.png)图片：洛杉矶盘古农场 设计部-jayjin
+拥有中宣部的大陆地区，言论受到严格管控，每一个人的通讯号码都是实名制，网络平台社交媒体也都是实名制，那么打击水军完全可以定点斩草除根。但水军或公关公司并不是普通人，它们是拿着薪水或佣金，干尽坏事的一种组织，叫五毛或者七毛，也算体制内人或者是体制内临时工，领狗粮必然办狗事。现在上演周瑜打黄盖，就是演戏给群众看，挂羊头卖狗肉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+网信办的专项行动实则打击真正勇敢发声的人，消除异议人士的声音，为冬奥会保驾护航。自媒体社交平台是普通人唯一发声的渠道。言论管制将会提升级别。
 
-周三，欧盟在其官方刊物上表示，在发现中共国生产商受益于过度和不公平的补贴后，欧盟决定对来自中共国的铝箔征收额外关税，将特定薄等级铝转炉箔的关税范围调整为 8.6% 至 18.2%，并于周四正式生效。这是在现有 6.0% 至 28.5% 的反倾销税基础上做的相关补充。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-1.jpg)
+声明：文章观点仅代表作者，与GNews 平台无关
+参考：[https://m.weibo.cn/detail/4717608006584914](https://m.weibo.cn/detail/4717608006584914)
 
-据悉，在收到来自意大利和德国等六家生产商的投诉后，欧盟委员会进行了相关调查，称中共将铝箔列为重点行业，采取优惠融资、免税，和政府以低于市场价格提供土地使用权和电力等补贴形式，干预市场的自由发展。
+素材：洛杉矶盘古农场— 期待明天tooles
+评论：洛杉矶盘古农场— 期待明天tooles
+审核：洛杉矶盘古农场— 柯镇恶
+发布：洛杉矶盘古农场— Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考链接：
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-- [EU to impose extra tariffs on China aluminium foil over subsidies](https://www.reuters.com/markets/commodities/eu-impose-extra-tariffs-china-aluminium-foil-over-subsidies-2021-12-22/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：飞虹
-编辑：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

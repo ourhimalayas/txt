@@ -2,28 +2,30 @@
 ---
 
 
-## 美25州就学前教育者疫苗强制令起诉拜登政府
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786158/)
+## 港共政府移除“国殇之柱”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786160/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：东京樱花团 – 在远方
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-12月21日，美国路易斯安那州、阿拉巴马州、阿拉斯加州、阿肯色州、亚利桑那州、佛罗里达州等25个州起诉拜登政府，指控其对学前教育员工的疫苗强制接种令。据美国卫生与公众服务部的相关规定，从事学前教育的工作人员需在1月底前完成疫苗接种。
+台湾媒体消息，12月23日凌晨，在香港黑警严密的安全警戒下，香港大学将已经矗立了24年之久的“国殇之柱”雕塑移除。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-45.jpg)
 
-路易斯安那州总检察长杰夫·兰德里在一份声明中说，拜登政府的疫苗政策不仅超出了政府的权限，违反了《国会审查法》和第十修正案，降低地区的就业率，还将削减贫困家庭、单身母亲、抚养子孙的老人所依赖的资金和儿童保育项目。德州总检察长帕克斯顿也表示，这项违宪的强制规定在美国没有立足之地，德州不会迫使本州人民接种疫苗。
+据悉，“国殇之柱”描绘了50副极度痛苦的面孔，以及相互堆叠、惨遭酷刑的尸体，以纪念1989年“六四”事件中，在天安门广场被中共残忍杀害的民主抗议人士。该雕塑的创作者高志活将这座8米高、两顿重的铜铸雕像，永久出借给香港支联会。自1997年以来，这座雕像一直屹立在香港大学校园内。
+
+自去年港版《国安法》强行实施，今年支联会被迫解散后，港共政府要求港大移除此雕像，香港也因此失去了这个纪念“八九六四”国殇日的地方。
 
 参考链接：
 
-- [Twenty-five states sue Biden admin over mask mandate for kids in Head Start](https://www.foxnews.com/politics/25-states-sue-biden-admin-for-enforcing-vaccine-mandate-masks-on-children-and-staff-in-head-start-programs)
+- [屹立24年已成歷史 香港大學證實拆除國殤之柱](https://cn.rti.org.tw/news/view/id/2120189)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
 总编：Irene木木
-编辑：飞虹/雪梨
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
