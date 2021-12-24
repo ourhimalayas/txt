@@ -2,162 +2,38 @@
 ---
 
 
-## 冬奥会一定会有感染病毒，集体事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786214/)
+## 郭先生：VICE虚假视频是为美国取消中共贸易关税做铺垫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1786252/)
 
-[https://gtv.org/video/id=61c568f743ccb726a08a9589](https://gtv.org/video/id=61c568f743ccb726a08a9589)
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D3558F8F-B412-4BDA-9297-1405DECBF0A6.jpeg)（图片来自日本东京方舟农场）
 
-这次奥运会到北京
-Esta vez los Juegos Olímpicos llegará a Beijing
+12月22日，新中国联邦创始人郭文贵先生在大直播中揭露，VICE媒体的虚假视频是中共操控下的一场政治大宣传，目的是将中美矛盾转嫁给新中国联邦，为美国取消对中共追加的贸易关税做铺垫。
 
-一定会有染（感染病毒）
-Seguro habrá contagios (contagio del virus)
+日前，美国媒体Vice News播放了其记者Isobel Yeung（杨贝贝）采访郭文贵先生的篡改视频。该视频没有播放完整、真实的采访内容，而是有目的地截取部分片段，强行把散播虚假消息、个人报复、个人崇拜等标签贴在郭先生身上。另外，该节目还将爆料革命支持者合法、和平的抗议游行和几段华人暴力视频（视频中的人物不是爆料革命支持者）拼凑在一起，以污蔑爆料革命并误导观众。
 
-一定还有集体事件
-Debe haber un incidente colectivo
+对此，郭先生在直播中爆料，中共正在不惜一切代价，让美国拜登政府取消对中共追加的贸易关税，Vice播放的虚假视频是中共别有用心的一场政治大外宣事件，。他强调：“这件事日后一定会发生。”
 
-一定会很严格的治理 隔离
-Habrá una gobernanza y una cuarentena muy estricta
+郭先生指出，Vice的虚假视频一箭双雕，一方面把新中国联邦打成邪教、恐怖分子，成为中美关系、海外华人所有威胁的替罪羊，把所有中共做的恶转嫁到新中国联邦身上。另一方面，与中共勾结的美国政府可以以此为说辞，取消对中共追加的贸易关税。
 
-一定会发生
-Seguro sucederá
+“这次Vice的采访，是和PAG、TPG、单伟健有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会，帮助美国和中共取消最高关税贸易，做的一场政治大宣传行动。”郭先生说。
 
-我说的是一定啊
-Yo digo “seguramente”
+此外，郭先生当日稍晚在盖特播放了Vice采访原始资料，还原真相予以反击。（[The Truth Behind Mr. Miles Guo’s Interview with HBO Vice](https://www.gettr.com/post/pkexq84603)）
 
-不是像晓理一样你矇出来的
-No es como Xiaoli que lo adivinó
+*参考链接：*
 
-这绝对不是像文斌你们想像出来的Rachel
-Tampoco es como Wenbing y Rachel que se lo imaginaron
+1. [*https://www.gettr.com/post/pkf5bbde41*](https://www.gettr.com/post/pkf5bbde41)
+2. [*https://gtv.org/video/id=61c324ccbcb7f101bb732568*](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-你想当然就预测到这的
-Si lo piensas seguro lo puedes predecir hasta aquí
-
-Eric兄弟
-Hermano Eric
-
-你是跟着他的思维
-Tu le sigues el pensamiento
-
-你没有逆向思维
-No aplicas el pensamiento inverso
-
-你只是个逻辑性思维的结果
-Tu resultado es sólo pensando con la lógica
-你要逆向思维
-Tienes que pensar inverso
-
-这主要体现习太阳和中国的治理能力
-Esto principalmente refleja la habilidad de gobernanza de Xi sol y de China
-
-在全球治理能力
-La habilidad en gobernanza global
-
-治理能力是什么
-Qué es la habilidad de gobernanza
-
-反应快 检查快 治理快
-Reacción rápida, inspección rápida y la gobernancia rápida
-
-照顾得好中国人的感情
-Cuida muy bien el sentimiento de los chinos
-
-然后有人站出来说话
-Y habrá alguien que saldrá a hablar
-
-天呐 鼻涕一把泪一把的
-¡Dios! Con mocos y lágrimas
-
-中国共产党太伟大了
-La República Popular de China es tan grandioso
-
-太讲感情啦
-Son muy afectivos
-
-这样的病毒在美国1年都得不到制止
-Un virus de este tipo no se ha detenido en los Estados Unidos durante un año
-
-川普为啥病好了 因为他是官僚
-Por qué Trump se pudo curar, porque él es un burócrata
-
-他吃了当时的鸡尾酒法
-Se tomó el método del cóctel en ese momento
-在美国你是吃不了的
-En Estados Unidos no podrás tomarte eso
-
-你看中央电视台
-Mira CCTV
-
-展（示）出来的说
-Lo muestran diciendo
-
-美国是世界上治理病情最差的死亡最多的 最不民主的
-Estados Unidos tiene la peor condición de gobernanza en el mundo y tiene la mayor cantidad de fallecidos, es el menos democrático
-
-你就知道它要干啥了
-Así sabrás qué es lo que van a hacer
-
-共产党他们想干啥
-Qué es lo que el PCCh quiere hacer
-
-晚上来吃饭
-Vienen a cenar en la noche
-
-这个人一来我就知道今天晚上他想干啥
-Esta persona llega y ya yo se a qué viene hoy en la noche
-
-他为谁来的 我就知道
-Por quién ha venido, yo lo sé
-
-我就会让他心满意足的回去
-Yo lo mando contento y satisfecho de regreso
-
-就我一看中央电视台这几天的讲法
-Yo con sólo ver la forma en que hacen reportaje el CCTV estos días
-
-我一看我就明白了
-Yo ya entiendo al verlo
-
-然后国内情报战友说
-Entonces los camaradas de inteligencia nacional me dijeron
-
-七哥 最近不能跟你联系了
-Miles, este tiempo no te puedo contactar
-
-我们手机全收了
-Nos van a recoger el celular a todos
-
-我去哪里报到去了 准备冬奥委会了
-Me iré a presentar, a preparar el Comité Olímpico de Invierno
-
-我这啥都懂了
-Y ya entendí todo
 
 * * *
 
-日期：12/23/2021
-原视频标题：冬奥会一定会有感染病毒，集体事件
-Los Juegos Olímpicos de Invierno definitivamente habrá contagiados con el virus, será un incidente colectivo
-原视频日期：12/21/2021
-原视频网址：[https://gettr.com/post/pk8m7n810f](https://gettr.com/post/pk8m7n810f)
-任务编号：KC362（3306）
-视频时间段：0:00-01:43
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：天涯行
-审片：银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
+*素材采编：幽蘭自得*
 
-01：21 心满意足的回去 改为 心满意足地回去
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：文顺*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：miumiu*
 
  
 

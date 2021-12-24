@@ -2,37 +2,59 @@
 ---
 
 
-## 欧盟拟对中共国铝箔加征关税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786159/)
+## 分析显示辉瑞的新冠疫苗临床试验从一开始就设计糟糕（下）
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1786213/)
 
-作者：纽约香草山 – 侠肝义胆
+翻译：brandnew
+校对：zzballack
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+有关揭盲（unblinding）和数据完整性的问题。
 
-周三，欧盟在其官方刊物上表示，在发现中共国生产商受益于过度和不公平的补贴后，欧盟决定对来自中共国的铝箔征收额外关税，将特定薄等级铝转炉箔的关税范围调整为 8.6% 至 18.2%，并于周四正式生效。这是在现有 6.0% 至 28.5% 的反倾销税基础上做的相关补充。
+加拿大新冠护理联盟 (Canadian COVID Care Alliance, CCCA) 的报告还重新提到了辉瑞公司的一份简报文件中提到的令人不解的观察结果，该文件仅提交给了美国食品药品监督管理局的疫苗及相关生物制品咨询委员会 (FDA’s Vaccine and Related Biologic Products Advisory Committee, VRBPAC)，但未在其他任何地方提及——包括《新英格兰医学杂志》(New England Journal of Medicine)报道的并被广泛引用的试验摘要。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Canadian-revie00x417.jpg)图片来源：原新闻
+该文件显示，有3410名参与者，根据其临床表现疑似患有新冠，但由于无法通过核酸 (PCR) 检测确诊，因此将他们排除在疗效计算之外。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-1.jpg)
+CCCA的演示文稿推定这些参与者从未接受过检测。VRBPAC的简报文件语焉不详，在一句话中称参与者“未通过核酸检测确诊”，在另一句话中又说“未确诊”。
 
-据悉，在收到来自意大利和德国等六家生产商的投诉后，欧盟委员会进行了相关调查，称中共将铝箔列为重点行业，采取优惠融资、免税，和政府以低于市场价格提供土地使用权和电力等补贴形式，干预市场的自由发展。
+假设辉瑞的研究人员遵循他们的试验方案，这些参与者事实上已经接受了检测。但这迫使我们承认，3400多名有新冠症状的参与者患有的不是新冠，而是其他疾病。
 
-参考链接：
+换句话说，有3580名参与者在临床上出现了新冠症状（3410人疑似，170人确诊）。其中，超过95%的人测试呈阴性。对临床上高度疑似患病的群体，这一结果难以令人信服。
 
-- [EU to impose extra tariffs on China aluminium foil over subsidies](https://www.reuters.com/markets/commodities/eu-impose-extra-tariffs-china-aluminium-foil-over-subsidies-2021-12-22/)
+然而，由于研究人员没有进一步进行测试，我们只能接受报告中的这些数字。
 
+《英国医学杂志》 (The BMJ) 的高级编辑彼得·多西(Peter Doshi)博士在近一年前发表的一篇评论文章中详细解释了这一结果背后的含义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+在他广受讨论的评论中，多西指出了辉瑞数据中另一个令人疑惑的研究结果。在施打两剂疫苗中的第二剂后的7天内，371 名（接种组310名，安慰剂组61名）试验参与者因“严重试验偏差(important protocol deviations)”而退出研究。
 
-总编：飞虹
-编辑：雪梨
-校正/发稿：海阔天空1
+当然，试验偏差时有发生，但在研究的这个时间点，为什么被排除的疫苗接种者人数是安慰剂接受者的五倍？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+尽管可评估人群中有近4万名参与者，但仅有170人对计算疫苗预防感染的有效性做出贡献，仅10人对计算疫苗预防严重感染的有效性有贡献。
+
+也就是说，只要有数量极小的参与者被误诊和错误分类，就很容易导致对疫苗功效和安全性的评估大不相同。
+
+统计学家和教育家马修·克劳福德 (Mathew Crawford) 指出，群体之间出现这种差异的可能性极小。然而，因为调查人员应该事前并不知晓，我们必须将其看作是一个惊人的巧合事件。
+
+令人难以置信的是，在儿科试验（5 至11岁）中也出现了同样的差异。提交给VRBPAC的相应摘要中的表12显示，3.1%的接种了疫苗的儿童退出试验，而接种安慰剂的儿童退出比例为0.5%。
+
+在试验中完全相同的时间点（施打第二剂后的7天内），同样有5倍的差异。的确，疫苗在施打前需要采取一些步骤，施打安慰剂则不需要。但为什么施打第一剂疫苗时不会出现这些试验偏差呢？在接种第二剂疫苗后不久发生了什么事？这些人怎么了？
+
+如果我们愿意考虑这样一种可能性，即研究人员实际上事前完全知情，这就可以很好地解释这些惊人的“巧合”。这正是举报人布鲁克·杰克逊 (Brook Jackson) 最严厉的指控。她曾是文塔维亚(Ventavia)公司的区域主管，该公司是在2020年进行辉瑞疫苗试验的几家临床研究机构之一。
+
+除了研究人员提前揭盲外，杰克逊还指责文塔维亚公司篡改数据。
+
+这些指控很有分量。我们为什么要相信她？因为她的说法与试验数据本身不谋而合。
+
+但她在直接向FDA报告她的担忧后不到一天内就被解雇。11月2日，《英国医学杂志》报道了她的经历。主流媒体则尚未对此进行报道。
+
+结论
+
+尽管公共卫生当局继续宣称这些产品是安全有效的，但每周都有越来越多的证据显示，事实并非如此。
+
+在对辉瑞疫苗试验数据进行全面分析后，发现问题多于答案。有人声称疫苗制造商的产品效果“符合预期”，这可能与（试验中发生的）事实相差不大。
+
+原文来源：[Pfizer Vaccine Clinical Trials Poorly Designed From the Start, Analysis Shows](https://childrenshealthdefense.org/defender/pfizer-vaccine-clinical-trials-poorly-designed/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

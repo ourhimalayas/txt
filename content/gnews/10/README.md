@@ -2,41 +2,36 @@
 ---
 
 
-## 一周中共病毒及疫苗伤害等信息汇总
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786157/)
+## 文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786196/)
 
-作者：Zion文恩
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1301.png)[图片来源](https://gettr.com/post/pkfy68304b)
+第一，让世界人看到文贵先生很帅，即便是在HBO故意用灰暗色调降低真实形象情况下！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+第二，唯真不破，用与中共控制的世界媒体交手的真实经历，用视频真实记录的方式让新中国联邦人开眼明智！
 
-2021年12月14日至21日，除中共国外，全球累计确诊中共病毒四百七十九万余例，同比上周增长百分之9.36；本周累计死亡四万七千九百零五例，同比上周下降百分之2.46。自疫情爆发以来，中共掩盖真相，其数据毫无可信度。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-11.png)
-一周内，全球累计接种62.4亿剂疫苗，同比上周增长百分之2.88；全球疫苗接种趋于稳定，未因奥米克戎毒株的爆发而显著上升。
+第三，让世界人看到了很多世界媒体被中共和邪恶力量的操控，手段之卑劣，那么再看这些新闻媒体时，不禁要打个问号？他说的是真的吗？他有什么用意？这就是信任度大大降低，降低和避免新闻媒体对思想的误导，反而激发人们的逆向思维！
 
-据世界卫生组织表示，目前，已在全球89个国家发现奥米克戎变种病毒。在欧洲，奥米克戎毒株的传染趋势有所减缓，而北美地区流行趋势正逐步扩大。值得注意的是，在已经建立“群体免疫”的地区，奥米克戎仍有很高的传染率。
+第四，通过这个无良媒体的宣传，反而让世界的人们了解到有一个人、一群人的正义组织，在揭露、反对、消灭这个世界毒瘤共产主义的中共，就像我刚开始听说过的文贵先生，是在中共宣传污蔑文贵先生中得知，后来经过验证，发现污蔑者才是邪恶的人，而被污蔑者才是真正的好人！
 
-尽管如此，各国政府仍在推行激进的强制疫苗政策。与此同时，辉瑞和莫德纳两家疫苗厂商继续鼓吹加强针。然而，初步的研究表明，接种疫苗加强针后，人体抵御奥米克戎毒株的能力已普遍下降。
+第五，通过文贵先生和中共针锋相对的法律超限战，已经了解到，美国的司法系统遭到中共的利用和破坏，那么这一次谣化文贵先生的HBO媒体，更是让美国认识到美国媒体被中共的渗透、控制、利用！
 
-本栏目将在每周四持续推出全球疫情、疫苗灾难的每周汇总信息，敬请关注。
+第六，有助于美国政府相关部门查找出背后的中共潜伏力量！
 
-参考链接：
+第七，正如文贵先生所说，从没有见一个亚洲人反击世界媒体，文贵先生这次有力反击，让所有敢直面邪恶的人，更加有勇气的反击，真是鼓舞人心，增强我们的斗志！
 
-- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-14..2021-12-21&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-14..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+第八，HBO的谣化抹黑宣传，与真实采访过程视频的对比，包括马上对伊莎贝儿的起诉，让世界人们看清当今的世界主流媒体被操控事实，这些主流媒体已经沦为邪恶力量的工具，他们不去关心病毒疫苗真相、不去报道新疆集中营、不去报道香港真相、这更加突出了GTV、GNEWS、GETTR在传播真相揭露黑暗方面的重要意义，提高了世界人们的认可和欢迎程度！
 
+文贵先生说，媒体是现代社会的核武器，无疑我们爆料革命新中国联邦坚持唯真不破，在与中共打手媒体的核较量中，谁胜谁败？到底一剑几雕？每个人自有判断！我深深体会到，唯真不破就是我们战胜邪恶最有力武器，好人必须凝聚在一起，必须去反击，否则永远被邪恶力量威胁和伤害，只有凝聚在一起，并且用实力用智慧用勇气去消灭邪恶，才能有安全自由的生存发展环境！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+信息来源： The Truth Behind Mr. Miles Guo’s Interview with [#HBOVICE](https://gettr.com/hashtag/%23HBOVICE)
 
-编辑：雪梨
-校正/发稿：海阔天空1
+[https://gettr.com/post/pkfy68304b](https://gettr.com/post/pkfy68304b)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

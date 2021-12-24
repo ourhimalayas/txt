@@ -2,26 +2,36 @@
 ---
 
 
-## 【中日财经爆】许家印夫妇近8亿元股份被斩仓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786218/)
+## 中共房地产开发商面临巨额债务到期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1304.png)[图片来源](https://www.sohu.com/a/282206026_100001551)
-港交所周五(12月24日)权益披露资料显示，中国恒大主席许家印与妻子所持3亿股恒大物业股份于12月20日被斩仓。
+撰稿：MOS-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
+据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
 
-以当日恒大物业2.66港元的收市价计算，涉及金额7.98亿港元，持股比例从60.96%降至58.18%。
+根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
 
-港交所资料显示，许家印及其妻子丁玉梅旗下鑫鑫（BVI）有限公司对恒大物业的持股减少3亿股，原因是“有关方面已采取步骤以针对你执行股份的保证权益或持有作为保证的股份的权利”。
 
-恒大物业周五一度挫2.6%，后收跌1.5%报2.63港元。港股周五因圣诞前夜只有半天市。
 
-此前12月初许家印抵押的超过2.778亿股恒大股份遭强制执行出售（斩仓），以出售当天收市价计算股份价值逾5亿港元。
+链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
 
-消息来源：[许家印夫妇所持3亿股恒大物业股份被斩仓 持股比例降至58.18%（更新版）](https://cn.reuters.com/article/china-evergrande-hui-stock-sale-1224-idCNKBS2J30B1?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：Irene木木
+
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

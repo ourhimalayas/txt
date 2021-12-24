@@ -2,41 +2,39 @@
 ---
 
 
-## 日本在中国政府的威胁下批准了创纪录的国防预算
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786015/)
+## 哈佛教授隐瞒参与中共“千人计划”被定罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786091/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+波士顿法庭陪审团于当地时间12月21日裁定，前哈佛大学化学系主任，李柏教授，因为对参与中共的“千人计划”陈述不实，及不如实报税等行为，被判定6项罪名。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1200x800.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-9.jpg)
+
+千人计划是中共从2008年开始执行，计划性收买海外高级研究人员，借此盗取各国高科技战略信息的情报战的一个手段。
+
+李柏教授在2011年被中共收买，成为武汉理工大学的「战略科学家」，加入千人计划。
+
+川普总统任内，对中共盗取科研情报的行为开始进行反制调查，李柏教授此次被定罪只是其中的一个案例。
+
+参考链接：
+
+- [隱瞞參與中國千人計畫 哈佛大學教授遭定罪](https://www.cna.com.tw/news/aopl/202112220055.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-图片来源： *Kiyoshi Ota/Bloomberg*
+总编：童谣
+编辑：童谣
+校正/发稿：海阔天空1
 
-
-#### 编译 ：小红帽
-
-根据Hindustan Times12月24日报道，**日本内阁于周五批准了创记录的5.4万亿日元（472亿美元）的国防预算，用于从4月开始的年度。该预算是为了加强能力来抵御来自中国政府的威胁。**
-
-这一数字标志着日本的年度国防开支连续第10次增长，超过了这个和平主义国家几十年来基本维持的国内生产总值1%的上限。
-
-根据斯德哥尔摩国际和平研究所的数据，与其盟友美国相比，日本的国防预算并不高， 2020年预估为7780亿美元，中国则为2520亿美元。整体预算必须在明年正式颁布前获得议会通过。
-
-在北京当局于2020年镇压香港之后，日本和中国之间的关系变得越来越冷淡。两国的船只继续在位于东中国海的岛屿周围相互追逐。
-
-包括首相岸田文雄在内的日本官员也越来越直言不讳地表示，需要为台湾周边的突发事件做准备。
-
-新闻来源：[Japan approves record defence budget amid China threats | World News – Hindustan Times](https://www.hindustantimes.com/world-news/japan-approves-record-defence-budget-amid-china-threats-101640313873259.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

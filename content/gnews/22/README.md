@@ -2,32 +2,29 @@
 ---
 
 
-## 日本政府摒弃疫苗强制 敦促公民不要歧视未接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786036/)
+## 英特尔致信供应商 禁用新疆产品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786092/)
 
-作者：纽约香草山信息部 – 诺雅
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
+12月21日，英特尔公司被发现在其官网致信供应商，禁止采购来自新疆地区的产品或服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-16.jpg)
 
-12月21日外媒消息，在中共病毒疫苗政策上，日本摒弃了其他西方国家一致采用的强制令，明确表示，只有在人们自愿和完全同意的情况下才进行疫苗接种，并告诉国民不要歧视未接种疫苗者。
+这封信是该公司12月对供应商的最新要求，以简体中文、繁体中文、英语、日语等多种语言发布的。英特尔明确表示：禁止任何形式的贩卖人口或非自愿劳工行为，如强迫劳动、债务劳工、契约劳工或奴役。多个国家与地区的政府已对来自新疆地区的产品实行限制。因此，英特尔需要确保供应链中不使用任何来自新疆地区的劳工、采购产品或服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-11.png)
-
-日本厚生劳动省的官网上清楚表示，尽管我们鼓励所有公民接种新冠疫苗，但这不是强制性的，也不是必须的。只有向民众提供信息并得到同意后才给予接种。请民众了解疫苗对传染病预防的效果，及副作用的风险后，自行决定。未经民众同意，不可施打任何疫苗。并强调，不要强迫工作场所或周围的人接种疫苗；即使某人没有接种疫苗，也不许出现歧视性待遇，如解雇，鼓励辞职或欺凌。首相官邸的网站上也有类似声明。
+据英特尔财报显示，中共国自2015年开始已是该公司第一大营收来源地。2020财年，来自中共国的营收为202.6亿美元。但英特尔坦言：公司在诚信和专业精神开展业务方面毫不妥协，期望所有供应商都能遵守责任商业联盟的行为准则。
 
 参考链接：
 
-- [Japanese Government Tells Citizens: “Don’t Discriminate Against the Unvaccinated”](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
-- [“Do Not Discriminate” Against the Unvaccinated, Japanese Government Tells Citizens](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
-- [COVID-19 Vaccines](https://www.mhlw.go.jp/stf/covid-19/vaccine.html)
-- [新型コロナウイルスに関するQ&A（一般の方向け）](https://www.mhlw.go.jp/stf/seisakunitsuite/bunya/kenkou_iryou/dengue_fever_qa_00001.html#Q1-9)
-- [新型コロナワクチンの接種を望まない場合、受けなくてもよいですか](https://www.cov19-vaccine.mhlw.go.jp/qa/0053.html)
+- [不使用非自愿劳工？英特尔禁止供应链使用新疆产品](https://m.sohu.com/a/510583854_115831/?pvid=000115_3w_a)
+- [https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
 总编：Jack Li文阳
-编辑：Kathy文艺
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
