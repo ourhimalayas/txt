@@ -15,55 +15,55 @@
 
 ---
 
-### [串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手](/content/gnews/1/README.md)
+### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [拜登签署《防止维吾尔族强迫劳动法案》](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手](/content/gnews/3/README.md)
  ` 郭爆料串珠`
 
-### [串珠498:习访朝鲜深受刺激毫不犹豫要做金氏家族](/content/gnews/2/README.md)
+### [串珠498:习访朝鲜深受刺激毫不犹豫要做金氏家族](/content/gnews/4/README.md)
  ` 郭爆料串珠`
 
-### [恒大多地员工罢工 抗议拖欠工资及福利待遇](/content/gnews/3/README.md)
+### [恒大多地员工罢工 抗议拖欠工资及福利待遇](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [串珠497:新中国联邦2022年春节全球联合大行动](/content/gnews/4/README.md)
+### [串珠497:新中国联邦2022年春节全球联合大行动](/content/gnews/6/README.md)
  ` 郭爆料串珠`
 
-### [拜登总统正式签署《防止强迫维吾尔人劳动法》](/content/gnews/5/README.md)
+### [拜登总统正式签署《防止强迫维吾尔人劳动法》](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [串珠496:冬奥被抵制中共报复文贵家人和盘古员工](/content/gnews/6/README.md)
+### [串珠496:冬奥被抵制中共报复文贵家人和盘古员工](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/7/README.md)
+### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/8/README.md)
+### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [灭共漫画——真相永远赢](/content/gnews/9/README.md)
+### [灭共漫画——真相永远赢](/content/gnews/12/README.md)
  ` MOS Designer香草山设计部`
 
-### [2021/12/23 墙内世界](/content/gnews/10/README.md)
+### [2021/12/23 墙内世界](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本不会派政府代表团出席北京冬奥会](/content/gnews/11/README.md)
+### [日本不会派政府代表团出席北京冬奥会](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [美日拟定联合作战方案以应对台海危机](/content/gnews/12/README.md)
+### [美日拟定联合作战方案以应对台海危机](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/13/README.md)
+### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈起诉（2021-12-22摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/17/README.md)
+### [七哥谈起诉（2021-12-22摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
 ### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/18/README.md)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/24/2021 10:02 PM (UTC)`
+
+12月24号：尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考的问题！
+![img](https://media.gettr.com/group42/getter/2021/12/24/22/7a935cfc-9ffb-e6b3-f4fd-b63f0bcd84c8/out.jpg)
+
+---
+
 `@miles 12/24/2021 5:42 PM (UTC)`
 
 12月24号：尊敬的战友们好！文贵衷心的祝全天下的战友和家人平安夜平安！<br/><br/><br/><br/>【七哥，我算了下，Vice视频只用了您大概3分钟的视频，您当时的同步录播时长是1小时55分钟，就是说您97.4%都是他们抓不到任何把柄的，只有2.6%的内容是被他们利用了，说明您当时应对她的采访几乎是无懈可击的，让她无法得逞，完胜！😊】
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate 
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-8]：<br/>‼️HBO-VICE’s discredit the majority of the GTV’s real investors by showing a small number of infiltrated CCP investors requesting a refund of their investment.<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-8】：<br/>‼️ 反击HBO-VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group17/origin/2021/12/23/12/264e3146-9252-24ab-032c-7589fb95318a/out.jpg)
-
----
-
-`@miles 12/23/2021 12:19 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-7]：<br/>‼️HBO’s wrong portrayal of a “Wei Lei” Teng Biao as an underprivileged person. HBO edited Teng Biao’s interview to discredit Mr. Guo repeatedly. We used the live broadcast of Mr. Guo's response to Teng Biao's defamation on August 24, 2017 to reveal HBO’s lies and Teng Biao obviously slandered first.  *<br/>*“Wei Lei” is a person who works for the CCP by infiltrating and spreading misinformation.<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-7】：<br/>‼️HBO-VICE把伪民运滕彪塑造成弱势群体，HBO采访滕彪继续诋毁郭先生。我们利用郭先生2017年8月24日回应滕彪造谣诽谤的直播视频进行反击，很明显滕彪诋毁在先。<br/><br/>YouTube link of full REBUTTAL (EN/CN subtitles): https://youtu.be/VTQ91werzk8<br/>GTV link: https://gtv.org/video/id=61c3bb8900f9a119180832eb
-![img](https://media.gettr.com/group17/origin/2021/12/23/12/e6da1ed9-87bd-be18-5011-f52d3ccbe509/out.jpg)
 
 ---
 
