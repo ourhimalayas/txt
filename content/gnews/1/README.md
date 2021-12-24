@@ -2,40 +2,27 @@
 ---
 
 
-## 加入欧美抵制冬奥，日本不派官员参加
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786120/)
+## 网信办打击流量造假黑公关和网络水军
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786161/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1299.png)图片：洛杉矶盘古农场 设计部-jayjin
+拥有中宣部的大陆地区，言论受到严格管控，每一个人的通讯号码都是实名制，网络平台社交媒体也都是实名制，那么打击水军完全可以定点斩草除根。但水军或公关公司并不是普通人，它们是拿着薪水或佣金，干尽坏事的一种组织，叫五毛或者七毛，也算体制内人或者是体制内临时工，领狗粮必然办狗事。现在上演周瑜打黄盖，就是演戏给群众看，挂羊头卖狗肉。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_128779.jpeg)
+网信办的专项行动实则打击真正勇敢发声的人，消除异议人士的声音，为冬奥会保驾护航。自媒体社交平台是普通人唯一发声的渠道。言论管制将会提升级别。
 
+* * *
 
-#### 整理/编辑 ：小红帽
+声明：文章观点仅代表作者，与GNews 平台无关
+参考：[https://m.weibo.cn/detail/4717608006584914](https://m.weibo.cn/detail/4717608006584914)
 
-根据德国之声中文网12月24日报道，由日本媒体引述多名日本政府相关人士报道称，**日本体育代表团将按计划参加冬奥会，但确定不派政府高官参加。**
+素材：洛杉矶盘古农场— 期待明天tooles
+评论：洛杉矶盘古农场— 期待明天tooles
+审核：洛杉矶盘古农场— 柯镇恶
+发布：洛杉矶盘古农场— Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-日本正式加入美英等国外交抵制北京冬奥会的行列。
-
-日本放送协会（NHK）报道，日本内阁官方长官松野博今天表示，日本政府将不派内阁成员或政府相关人员出席明年的北京冬季奥运会。
-
-中央社报导称，北京冬奥会将由冬奥组委会主席桥本圣子等3人代表出席。
-
-美国和其他西方国家因担心中国的人权问题而宣布对冬奥会进行外交抵制，但日本迄今采取了温和的语气。
-
-另外，日本前首相安倍晋三也于23日与岸田文雄举行会谈，似乎要求其尽早表明态度。基于岸田“重视人权”的立场，日方得出了难以派遣高官的结论。
-
-作为美国的亲密盟友，日本的举动一直备受关注。日本在一段时间以来不断表达来自中国政府的威胁正在增长的忧虑。
-
-新闻来源：[加入欧美行列  日本不派官员参加北京冬奥 | 德国之声 来自德国 介绍德国 | DW | 24.12.2021](https://www.dw.com/zh/%E5%8A%A0%E5%85%A5%E6%AC%A7%E7%BE%8E%E8%A1%8C%E5%88%97-%E6%97%A5%E6%9C%AC%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%91%98%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60248947)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
