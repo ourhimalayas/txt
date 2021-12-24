@@ -2,28 +2,46 @@
 ---
 
 
-## 英特尔不堪中共国网民围攻向供应商“致歉”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785681/)
+## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
 
-![资料照：纳斯达克市场网站上的英特尔标识](https://gdb.voanews.com/f492b8a7-1233-4c1e-a7c9-ba3e799437fd_cx0_cy9_cw0_w1023_r1_s.jpg)资料图
-据美国之音12月24日报道，美国芯片企业英特尔公司之前致供应商的一封信函在中共媒体曝光。信函要求供应商避免使用与新疆有关的产品、劳工和服务，禁止任何形式的贩卖人口或非自愿劳工行为。信函公开后，中共国网民纷纷涌入英特尔官方微博账号对该公司“口诛笔伐”，甚至呼吁抵制英特尔产品。中共国微博上有关这一话题的热搜量已经超过2.5亿人次。在遭到中共国网民围攻之后，英特尔23日向中共国客户和合作伙伴公开道歉。
-
-最近几年，越来越多的证据显示，中共政府多年来在新疆对维吾尔和其他少数民族穆斯林展开了系统性迫害，多达百万的穆斯林被关押在所谓的再教育营，遭受各种迫害。中共国网民生活在监控严密的防火墙里，信息完全封锁，只能接受中共党媒的报道。中共引导风向，民众盲目跟随，完全不明白新疆发生的人间惨剧。英特尔这样的企业为新疆发声，反而遭到攻击，可悲的中共国网民，可恨的中国共产党。
-
-新闻参考链接：[https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html](https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
+> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+
+
+
+> Big Tech grovels before CCP. 
+> 
+> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
+> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
+
+
+
+> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
+> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
+
+
+
+> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
+> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
+
+
 
  
 

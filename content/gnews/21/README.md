@@ -2,34 +2,22 @@
 ---
 
 
-## 美国政府与莫得纳公司争夺新冠疫苗的专利权
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1785661/)
+## 冬奥会后至少有5000万人看清楚中共要完了
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1785749/)
 
-By：喜国公民
-视频来自网络
-美国国家卫生研究院和新冠疫苗制造商莫得纳之间就新冠疫苗专利权进行了长达数月的一场法律纠纷，最近突然出现在公众视野中。莫得纳提出与政府分享其新冠疫苗专利的所有权。
+他们会看到一个结果，垂死挣扎。大撒币的事情大家会问，为什么撒了那么多币，就来了这几个人？
 
-同时，[一份长达](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)[153页的莫得纳和美国政府之间的保密协议](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)，也揭示出美国政府是莫得纳新冠疫苗的主要资助者。
+**【郭先生直播摘要】**** 2021.12.19 ****冬奥会后至少有****5000****万人看清楚中共要完****了**
 
-在2015年，美国卫生研究院管辖的美国国家过敏和传染病研究所，与制药商莫得纳签订了合作开发研究新冠疫苗的协议。该协议导致了一笔未公开的资金和研究援助。
+**郭先生**
 
-此外，在新冠疫情爆发后，莫得纳还从生物医学高级研究与发展局获得了近10 亿美元的资金，该笔资金专门用于新冠疫苗的开发。研究人员计算出，美国政府总共为莫得纳的新冠疫苗的开发和商业化提供了近25 亿美元。
+所以我告诉国内的人， 你们去想想， 哪一个站在现场是为了爱习太阳，爱中共去？只有三种人。 人家是因为以前签了合同为了钱来的， 怎么也得表演一把。 第二条， 就是你找的泰国公主和摩纳哥二世， 尼日利亚和坦桑尼亚， 是为了钱里的， 或者安哥拉， 卖油不能不来，包括中东最起码去五到四家， 七个国家到六个国家之间。
 
-值得注意的是，该份协议显示出美国政府以及莫得纳与巴里克博士合作。而巴里克博士与武汉病毒研究所的石正丽的团队在冠状病毒研究领域一直有着深度的合作。
+伊朗肯定去， 巴基斯坦肯定去， 是吧。 巴基斯坦伊朗肯定去， 沙特肯定去， 这已经三个了。卡塔尔肯定去， 四个了。 UAE不会去什么领导人， 但是会去个部级干部代表， 迪拜那里这就五个了， 然后以色列肯定去， 阿曼也派代表去。 塔利班去不去？塔利班肯定去， 百分之百去， 阿巴肯定去，弄几个火烧，混几个火烧也得去， 何况还有600多种美食， 更得去了。带着自己的几个处女的媳妇要去的， 这大概十个人左右， 十个国家你看看你数就数完了。
 
-巴里克与石正丽曾在2015年发表了一篇题为“[显示了感染人类的潜力的一个类似于](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)[SARS的蝙蝠冠状病毒循环集群](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)”。二人多年来一直从事新冠病毒功能增强试验方面的研究。
+所以说它这个去了以后你说对咱有啥好处， 兄弟姐妹们， 没有再好的广告了， 这点你放心十四亿人这点它还是看得明白的， 它总得有电视， 你不能把拜登的头像给放那去， 绝大多数的， 在城市中的人口3.5亿人最起码五千万人能看懂， 完了， 这个国家完了， 直接混回到第三世界的末尾去了， 然后他们会看到一个结果， 垂死挣扎， 大撒币的事情大家会问， 为什么撒了那么多币， 就来了这几个人。
 
-全球范围的新冠病毒大流行爆发后，[巴里克等人公开诋毁任何提出实验室泄漏理论的人](https://gnews.org/zh-hans/1745295/)。他们极力掩盖实验室泄漏。甚至提出不要去武汉病毒研究所检查。其行为极为异常，不打自招。
-
-越来越多的人开始质疑新冠疫苗的有效性，认为只有追溯新冠病毒的来源，才能从根本上解决新冠大流行。
-
-消息来源：[Why Moderna won’t share rights to the COVID-19 vaccine with the government that paid for its development](https://theconversation.com/why-moderna-wont-share-rights-to-the-covid-19-vaccine-with-the-government-that-paid-for-its-development-172008)
-
-[The confidential agreement between NIH and Moderna](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)
-
-[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)
-
-
+视频剪辑：小腾腾说 | 听写：雨山溪桥客 |翻译： Arthur | 校对： 烟波浩淼 | 视频制作+字幕: CG. | 编剧&发布：断播
 
  
 

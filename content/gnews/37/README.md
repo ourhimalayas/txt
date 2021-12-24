@@ -2,52 +2,42 @@
 ---
 
 
-## 斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1785122/)
+## UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1785153/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-22.png)
-國家脈動宣佈將第二屆年度愛國者獎授予前白宮首席戰略家和《班農作戰室》的主持人、《大流行》播客的主持人斯蒂芬-K-班農。
+By MOS Education Team – Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-4.png)
+According to the recent data released by the UK Office for National Statistics, people who are double and triple vaxxed are much more likely to be infected with the Omicron variant.
 
-現年68歲的班農在2016年崛起，成為全國矚目的人物。他領導的川普競選團隊大獲全勝。此後，班農在白宮擔任首席戰略師。
+The data is summarized by Daily Specific’s Will Jones. It shows that the double-vaxxed are 2.3 times more likely to be infected with the Omicron, and the triple vaxxed are 4.5 times more likely to be infected with this variant.
 
-並與前川普通訊主管傑森-米勒和《國家脈動》主編拉希姆-卡薩姆一起創辦了《班農作戰室》、《大流行》並大獲成功。
+The data also comes to the conclusion that the Omicron is “effective at evading vaccines”. Jones writes: “It does not tell us that vaccines are making things worse overall, only that they are making it much more likely that a vaccinated person is infected with Omicron than another variant”, and he also states “The fact that the triple-vaccinated are much more likely to be infected with the Omicron than the double vaccinated confirms this vaccine evading ability.”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-24.jpg)
+Regardless of people’s opinion on the vaccine, these data completely demolish claims that the Omicron outbreak is a “pandemic of the unvaccinated”. Jones’s claim that NHS hospitals are being overwhelmed by the unvaccinated isn’t backed by any actual evidence.
 
-班農出生在弗吉尼亞州的諾福克，是桃莉絲和馬丁-班農的兒子。他曾就讀於佛吉尼亞理工大學，在加入美國海軍之前成為學生會主席，同時獲得了國家安全研究的碩士學位和哈佛商學院的MBA學位。
+Nonetheless, the UK Health Secretary blamed unvaccinated people for this new wave of pandemic and occupying many of the hospital beds, and condemned them for the damages they are doing to society.
 
-班農曾在美國海軍的保羅-F-福斯特號上服役，然後在弗吉尼亞州的五角大樓擔任海軍作戰部長的特別助理。
+Intelligence from Mr. Miles Guo and the Whistleblower Movement exposed almost a month ago (On the live broadcast on November 28th) that the Omicron variant will spread more ferociously among the vaccinated, and the more vaccinations a person gets, the more vulnerable he/she will be. While the American CDC has previously admitted that most of those who were infected with Omicron are “fully vaccinated”, this is further proof that the vaccine makes people more vulnerable to the virus. This has again overthrown the statements made by medical authorities in various Western countries who claim it is the unvaxxed who are causing the new wave of the pandemic.
 
-退役後，班農去了高盛公司工作，在那裡他花了幾年時間瞭解他現在每日兩檔節目中抨擊的那種機構精英的全球主義商業運作。
+Sources: 
+1. [UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant](https://gettr.com/post/pkdwzsa718)
+2. [UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant](https://www.infowars.com/posts/tripled-vaxxed-4-5-times-more-likely-to-test-positive-for-omicron-than-unvaxxed/)
 
-幾年後，他在好萊塢建立了自己的業務，他在那裡促成了一項很有名的交易，使他在熱門情景喜劇《宋飛》中保留了財務股份。1998年，法國興業銀行收購了他的公司–班農公司。
+Edited by: Hetangyuese
+Proofread by: Hetangyuese
+Posted by: Hetangyuese
 
-班農本人也拍過一些電影，包括雷根史詩《面對邪惡》和2012年的《佔領者的面具》。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-12-08-at-20.35.58-4.png](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-2009年金融危機後不久，班農與傳奇的保守派火爆人物安德魯-布萊特巴特（Andrew Breitbart）合作。這對夫婦將繼續為布賴特巴特新聞網站制定計劃，包括在世界各地設立外國分局。布萊特巴特於2012年因心臟病發作去世，留下班農擔任執行主席。他將該網站建成了一個平民主義、保守主義的全球中心，這令建制派媒體和政治階層感到震驚和恐懼。
+**更多资讯，更多关注**
 
-2016年8月，在主持了多年的布萊特巴特新聞日報廣播節目後，班農被邀請加入川普競選團隊，擔任其首席執行官。當時，競選團隊在幾乎所有的搖擺州都出現了下滑。正是班農的堅定性和紀律性幫助競選團隊重新調整並度過了臭名昭著的 “比利-布希週末”，在這個週末，一盤關於候選人川普私下發表淫穢言論的錄音帶被公佈。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
 
-自從離開白宮和布賴特巴特新聞公司後，班農以《班農作戰室》播客的形式建立了一個右翼力量。該節目現在被視為全世界所有政治和新聞媒體中最重要的節目之一，甚至比世界衛生組織、安東尼-福奇和其他人更早認識到即將到來的大流行病的危險。
-
-班農和他的團隊對中共–這個他心心念念的對手–和病毒的起源的看法將不斷被證明是正確的。
-
-自1月6日美國國會大廈發生騷亂以來，班農被指控蔑視國會，並再次被公司左翼媒體捧為仇恨人物。
-
-在宣佈該獎項時，《國家脈動》主編承認這種政治迫害是我們今年想表彰班農的原因之一。
-
-當我聽說史蒂夫藐視國會時，我給他發短信讓他知道，世界上沒有任何機構比現在的國會更讓我藐視了。這是一個榮譽的徽章，應該這樣說。我們很高興向史蒂夫頒發第二屆年度愛國者獎，這不僅是因為他敢於站出來反對腐敗的政治精英、中國共產黨和世界各地的激進伊斯蘭教徒，還因為他對整個西方世界的保守主義運動的不屈不撓的管理，以及他對這個共和國的建國原則的不懈承諾。我很自豪地稱史蒂夫為導師、朋友和2021年國家脈動的年度愛國者。
-
-《國家脈動》是一個領先的保守派新聞和調查網站，成立於2015年，由作者兼編輯拉希姆-卡薩姆在2020年接管。該網站及內容在2021年達到近6000萬收看量。
-
-《國家脈動》現在比《美國觀察家》、《美國保守派》、《美國觀察家》和《華盛頓自由燈塔》吸引了更多的受眾。
-
-[新聞來源連結](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-
-
-
-審核校對：sherryok (水雲間)
-
-上傳排版：漂流瓶
 
  
 

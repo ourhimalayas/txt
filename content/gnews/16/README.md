@@ -2,46 +2,40 @@
 ---
 
 
-## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
+## 视频| VICE采访想将爆料革命定为邪教
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1785844/)
 
-美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
+## 摘自2021.12.22郭先生大直播
 
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
-> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+制作：香草山香港部
 
 
 
-参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+就在冬奥会全球都在反击的时候，大家你看到共产党来干什么？中国的习近平要保持高度集中统一，所有的媒体全部控制。据我掌握的情报，共产党说我们不惜一切代价。要在西方媒体上占领制高点，一定要想尽一切办法，消灭一切反对冬奥和杂音。第三个，共产党说，一定要让那些支持北京冬奥的人赶快站出来发声，兄弟姐妹们，你们查一查在过去的3个月，共产党给所有的各国免掉的债务多少钱？在未来的三、四十天，你看还有哪些国家被免除所谓债务。不会超过2个星期，一会你会看到很多国家表态支持北京冬奥。
+
+我可以今天告诉大家，没有一个，我直播之后，表态支持冬奥的，背后没有交易的，我敢负一切法律责任。那么你再看一看是多少媒体反对冬奥会的，甚至转换声音的。而且共产党做出决定，不惜一切代价要叫美国拜登总统政府，马上取消对中国追加的关税，一定会发生的。我今天第一个说，一定会发生的。
+
+所有今天这个伊萨贝拉这个造假的犯罪的直播，都是给美国取消对中国的关税铺底的，是这帮人搞得中美之间的仇恨，跟我们政府绝对没关系，拜登政府一定会取消关税。200多个美国运动员会出现在北京，歌颂北京，完美的冬奥。所以你要知道，媒体的力量有多大。这个一箭双雕的VICE采访，把我们消灭，把我们变成恐怖邪教、犯罪分子，让我们处在恐惧之中，把我们称为中美之间和中国海外华人所有威胁的替罪羊，然后让中美政府之间进行勾兑的时候，取消关税和中美人民贸易取消。记住我今天说的话，全世界没有人说，这是我今天说的，今天是2021年12月22号，郭文贵说的，中美之间会取消贸易关税。
+
+这一次的Vice、Isobel 杨，怀疑她是中共操控的结果，和PAG、TPG、单伟建有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会和帮助美国和中共取消最高关税贸易，做的一场政治大宣传的一场行动。对我们个人和爆料革命灭共的所有人都造成了威胁，以后只要在全世界，只要反对共产党的都是邪教，只要是反对冬奥的，全部都是暴力分子，只要是对共产党任何的屠杀，新疆、西藏、香港和台湾的事件中，表示异声的，你都是暴力分子，支持川普的极端分子，造成了中美贸易的摩擦，这个报道之凶险、之邪恶，超出你的想像，然后给搞了一个政治冬奥会
 
 
 
-> Big Tech grovels before CCP. 
-> 
-> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
-> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
+发稿：雪梨
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
+**更多资讯，更多关注**
 
-参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
-> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
-
-
-
-> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
-> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
