@@ -2,23 +2,13 @@
 ---
 
 
-## 樱花灭共诗——大神决（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1787026/)
+## 12/15郭文贵直播：《西藏独立法案》意味着什么？（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1787051/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-落日埋冬奥，余晖葬雪山。
+12/15/2021 郭文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了。
 
-大神决口外，洪水没凡间。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-志岂中国梦，拳服世界巅。
-
-金牌夺榜首，鼓乐颂习天。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-307.jpg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
