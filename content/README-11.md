@@ -16,6 +16,10 @@
 ---
 ## 頁面 11/38 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [38](/content/README-38.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年7月28日郭先生GTV直播](/content/2020/08/20200803-447737050239599079.md)
+
+[文字版：2020年7月27日郭先生GTV直播](/content/2020/07/20200730-5703887795037771842.md)
+
 [文字版：郭先生2020年7月25日GTV直播](/content/2020/07/20200729-6515817926208283674.md)
 
 [文字版：2020年7月22日郭先生8分钟盖特](/content/2020/07/20200726-4617342392146265454.md)
@@ -61,10 +65,6 @@
 [文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/2020/06/20200613-1120918089970981192.md)
 
 [文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/content/2020/06/20200613-4006639465820074167.md)
-
-[文字版:2020年6月8日郭先生连线木兰乱聊直播](/content/2020/06/20200611-1109197692077432203.md)
-
-[文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/content/2020/06/20200611-7286733971832697894.md)
 
 
 ## 頁面 11/38 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [38](/content/README-38.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

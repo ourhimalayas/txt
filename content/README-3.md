@@ -16,6 +16,10 @@
 ---
 ## 頁面 3/38 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [38](/content/README-38.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[2021年10月20日郭文贵先生直播全文字版](/content/2021/10/20211020-1608838.md)
+
+[2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](/content/2021/10/20211018-1604880.md)
+
 [2021年10月17日郭文贵先生直播全文字版](/content/2021/10/20211017-1602419.md)
 
 [2021年10月13日郭文贵先生直播全文字版](/content/2021/10/20211013-1594496.md)
@@ -61,10 +65,6 @@
 [2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版](/content/2021/09/20210916-1561620.md)
 
 [2021年9月16日郭文贵先生今天有两场球赛盖特全文字版](/content/2021/09/20210916-1561578.md)
-
-[2021年9月15日郭文贵先生做健腹轮盖特全文字版](/content/2021/09/20210915-1561652.md)
-
-[2021年9月14日郭文贵先生直播全文字版](/content/2021/09/20210914-1535090.md)
 
 
 ## 頁面 3/38 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [38](/content/README-38.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

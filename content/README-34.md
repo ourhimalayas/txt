@@ -16,6 +16,10 @@
 ---
 ## 頁面 34/38 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)
 
+[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
+
+[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
+
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/2018/04/20180418-619291156807124954.md)
 
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
@@ -61,10 +65,6 @@
 [文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
 
 [翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
-
-[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
-
-[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
 
 ## 頁面 34/38 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)

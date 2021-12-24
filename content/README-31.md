@@ -16,6 +16,10 @@
 ---
 ## 頁面 31/38 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [38](/content/README-38.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/05/20180531-5466761042269971935.md)
+
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180529-639277482984082138.md)
+
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
 
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180525-5314910770568044153.md)
@@ -61,10 +65,6 @@
 [文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/content/2018/04/20180418-67355639840191064.md)
 
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
-
-[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
-
-[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
 
 
 ## 頁面 31/38 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [38](/content/README-38.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)

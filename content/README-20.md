@@ -16,6 +16,10 @@
 ---
 ## 頁面 20/38 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [38](/content/README-38.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/content/2019/10/20191007-5253787192699836521.md)
+
+[文字版：2019年9月30日开篇演讲](/content/2019/10/20191001-5934250796818600450.md)
+
 [文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/2019/09/20190929-7939918714279530876.md)
 
 [文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/2019/09/20190928-167661051507921662.md)
@@ -61,10 +65,6 @@
 [文字版：2019年9月1日文贵与班农先生直播](/content/2019/09/20190903-5392054395112197573.md)
 
 [文字版：2019-08-28郭文貴直播军车进入香港](/content/2019/08/20190829-4985715477870205378.md)
-
-[文字版：2019年8月26日報平安](/content/2019/08/20190827-4686079139048004973.md)
-
-[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
 
 
 ## 頁面 20/38 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [38](/content/README-38.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
