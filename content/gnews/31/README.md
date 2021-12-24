@@ -2,33 +2,41 @@
 ---
 
 
-## HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1784279/)
+## 郭先生透露中共动用VICE采访目的是打击爆料革命同时方便跟美国勾兑
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1786259/)
 
-12月20日Vice推出最新的预告，节目的采访记者名为伊莎贝尔·杨（Isobel Yeung），题为“与前中国房地产大亨郭文贵，探讨他的虚假资讯网路。”
-**HBO VICE Isobel Yeung采访恶意剪接、移花接木、断章取义的编辑**
-**在12月22日文贵大直播中，播放还原当时现场采访视频，证明HBO VICE Isobel Yeung采访视频后刻意剪辑采访片段，编辑出反对中共支持共和党的美籍华人是都是暴徒的印象，其中Isobel Yeung记者 在12月骗取美籍华人Nicole女士1月6日支持川普和平活动中的采访，采访的影片被剪接编辑成暴徒，**企图制造支持川普和支持共和党的美籍华人是支持阴谋论，暗示美籍华人冲进国会山，并且该记者没有证据的直接指称GTV、GNEWS利用媒体影响力传播谎言。
+作者：日本方舟农场 – Andy5
 
-**Isobel Yeung记者骗取美籍华人Nicole女士过程**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/CCPisobel-Scam-reporter.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/CCPisobel-Scam-reporter1.png)
-根据12月22日文贵大直播中Nicole女士表示：「我就想跟大家分享，这个Isobel真的在说谎，因为去年12月14号她是通过脸书联系我，她说想做一个纪录片，关于美国华人为什么会支持川普，她说看到很多资料显示美国华人为什么支持川普。」
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
-Nicole：「这个不是我说的，是她给我的WhatsApp、脸书她自己写的，我都有凭证，有截屏，当时在12月14号，她跟我讲是VICE HBO，要做一个美国华人为什么支持川普的documentary，所以她是通过这个借口来找我的。她说想去采访华盛顿DC游行的美国华人，问我能不能告诉她我会不会去，或者有没有其他华人，这是她来找我的目的。我不知道她是谁，我说你以前采访报导是吗内容，她说她报导香港运动、还报导过新疆集中营，听起来，**她没有说任何关于郭先生的 (Isobel Yeung记者没有告知采访影片会编辑在”与前中国房地产大亨郭文贵，探讨他的虚假资讯网路”的影片)。**
+郭文贵先生透露，中共动用西方媒体的力量打击爆料革命，谋求与美国的进一步勾兑。
 
-Nicole：所以后来看到播出的节目，我就很震惊，不是做一个美国华人为什么支持川普的纪录片，怎么就变成了攻击郭文贵先生，我还问她来着，她收到短信后就跑了，不回答我的问题，**我说你作为职业媒体人你欺骗了我，你没有告诉我你采访的真实目的，这是她自己的截屏，白纸黑字，不是我自己说的，我希望Isobel杨贝贝，如果你今天坐在电视机前在看这个的话，我可以跟你公堂对薄，我们之间所有的对话我都有截屏，**你当时跟我讲说做关于一个郭文贵先生的纪录片，我是不会接受你的采访，因为你讲的是采访华盛顿DC和平集会的美国华人，我还今天有问她我说**为什么把1/6所有参与和平集会的人都说成是rioters, 就是一个暴力的暴动者，这些华人你是在污蔑、抹黑这些和平抗议的华人，他们是美国公民、宪法赋予的权力、和平的集会，你把所有的参加活动的和平履行自己宪法的美籍华人都说成自己是暴乱者。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PAG.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/TPG.jpg)
-Vice Media2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/c6-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/c7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/c5-1.jpg)
-**中共海外BGY特务单伟健曾**带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，单伟健现已从TPG离开，转战到**PAG香港太盟投资集团，PAG背后正是中共海航王岐山，用一国之力量打击文贵先生，中共在美国对文贵先生的67个法律诉讼，背后都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，而这些都是中共长期在背后布局，这就是HBO Vice Isobel Yeung记者采访团队和中共策画，假借采访文贵先生后，恶意剪接、移花接木、断章取义的编辑成影片，塑造想要消灭中共的海外华人都是暴徒，目的就是要消灭文贵先生、爆料革命，把战友们都变成极端恐怖分子。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获-1.png)
 
-本文仅代表个人立场
-**祈祷万佛万神加持文贵先生与新中国联邦战友**
-台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
+在12月22日的大直播中，郭文贵先生透露中共高层称要不惜一切代价在西方媒体占据制高点，以免除债务的方式，消除反对北京冬奥会杂音。而现在HBO放出VICE采访的目的就是把中共制造的矛盾转嫁给爆料革命新中国联邦，让我们的战友们出于恐惧之中，把那些想要灭共哪怕只是想反对北京冬奥会的人都打成暴力分子。
 
-- [2021年12月22日 文貴大直播-1:05分Nicole女士還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
-- [2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
-- [期待感受同时播出Vice艺术片和采访实录的震撼](https://gnews.org/zh-hans/1778386/)
+并且中共试图以此来进一步跟美国进行勾兑，取消掉跟美国的关税。而23日中共商务部被问及是否会在近期有第二阶段贸易谈判时，没有明确说会有第二阶段协议，反而要求美国为双方扩大贸易合作创造良好氛围和条件。分析人士指出，作为第一阶段贸易协完成度不足六成的中共，此刻不谈第二阶段是否谈判而要求扩大贸易合作，已从侧面印证郭文贵先生在大直播中的爆料。
 
+新闻链接：
+
+- [12月22日大直播要点（第58段）](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
+- [外交部：新冠肺炎疫情暴发以后，中国宣布免除15个非洲国家到2020年底无息贷款](https://www.sohu.com/a/503643099_162758)
+- [中国希望美能为扩大贸易合作创造良好条件](https://www.zaobao.com.sg/realtime/china/story20211223-1225960)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-4.png)
+
+总编：雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
  
 
