@@ -15,71 +15,71 @@
 
 ---
 
-### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/1/README.md)
+### [美日拟定联合作战方案以应对台海危机](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈起诉（2021-12-22摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/2/README.md)
+### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [七哥谈自愿战斗（2021-12-22摘录）](/content/gnews/3/README.md)
+### [七哥谈自愿战斗（2021-12-22摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [七哥谈舍不得孩子打不到狼（2021-12-22摘录）](/content/gnews/4/README.md)
+### [七哥谈舍不得孩子打不到狼（2021-12-22摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [七哥谈中美之间会取消贸易关税（2021-12-22摘录）](/content/gnews/5/README.md)
+### [七哥谈中美之间会取消贸易关税（2021-12-22摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈留学生签证（2021-12-22摘录）](/content/gnews/6/README.md)
+### [七哥谈留学生签证（2021-12-22摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/7/README.md)
+### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [2021年12月24日文贵先生直播摘要及音频—银河系农场](/content/gnews/8/README.md)
+### [2021年12月24日文贵先生直播摘要及音频—银河系农场](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥谈中共对西方媒体的渗透（2021-12-22摘录）](/content/gnews/9/README.md)
+### [七哥谈中共对西方媒体的渗透（2021-12-22摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [太子党、红二代、富二代都将是习近平打击的对象](/content/gnews/10/README.md)
+### [太子党、红二代、富二代都将是习近平打击的对象](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒](/content/gnews/11/README.md)
+### [文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈访问播出时间点（2021-12-22摘录）](/content/gnews/12/README.md)
+### [七哥谈访问播出时间点（2021-12-22摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈影响力（2021-12-22摘录）](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [七哥谈中共的路数（2021-12-22摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [2021/12/24 大卫作战室直播精要](/content/gnews/15/README.md)
+### [2021/12/24 大卫作战室直播精要](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港大深夜拆除《国殇之柱》](/content/gnews/16/README.md)
+### [港大深夜拆除《国殇之柱》](/content/gnews/18/README.md)
  ` GTV News Talk`
 
-### [【秘翻在线】 彭帅事件就是中共一贯的颠倒是非，侵害百姓的又一例证](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [西安疫情大乱：菜市场变战场 健康码死机民“发誓”](/content/gnews/18/README.md)
+### [西安疫情大乱：菜市场变战场 健康码死机民“发誓”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|郭先生解读风水给人类生存带来的自然力量](/content/gnews/19/README.md)
+### [有声|郭先生解读风水给人类生存带来的自然力量](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [揭穿杨贝贝的虚假谎言](/content/gnews/20/README.md)
+### [揭穿杨贝贝的虚假谎言](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [有声|【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](/content/gnews/21/README.md)
+### [有声|【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](/content/gnews/22/README.md)
  ` MOSREC`
-
-### [中共透过其大外宣HBO Vice对郭文贵先生与爆料革命的精心构陷如期而至](/content/gnews/22/README.md)
- ` GTV News Talk`
 
 ### [【中日财经爆】日本2022财年预算中经济安全成焦点](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

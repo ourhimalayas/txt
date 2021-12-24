@@ -2,73 +2,33 @@
 ---
 
 
-## 2021年12月24日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1787871/)
+## 七哥谈舍不得孩子打不到狼（2021-12-22摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1787934/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/86e7ed8a066c12d590a9300bd0c3bc1b.jpg)
-视频连接：[2021年12月24日 文贵大直播：HBO采访真假大相径庭；Omicron病毒感染剧增；北京冬奥会最新重大信息；圣诞节看社会经济环境](https://gettr.com/streaming/pkjcxzd8f5)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1、习太阳最信任的人之一——徐起零（CCP上将军衔）；
+来源：郭先生2021-12-22直播11：04：32 摘录
 
-2、HBO VICE杨贝贝采访，如果没有提前录像，如果没有我们自己发声平台。媒体先入为主，先给你判死刑，让你的情绪失控，你连发声的地方都没有，媒体比法庭的力量还大；
+班农先生发信息：是什么原因让你坐下来跟她谈。我给他发了个信息，我说中国有句谚语——舍不得孩子打不到狼，最好证明你是真实和正确的方法是让你的敌人在你的身上，用他的刀挖出一个窟窿，甚至取出你的心脏，让世界知道你到底心脏是有血、还是有肉还是邪恶的。他到现在没有回信息，咱俩很少这么长时间没联系的，到现在没有回信息。我很多观点不同意班农的，我跟你们说过很多次，他的很多观点我不同意的，就像我跟你们说过，唯一一次华尔街报导双面间谍，然后他就：Brother，Brother，抓着我说怎么样？我说：你紧张什么？你紧张什么？他说：这个非常坏，啊啊这样叫。我说你也叫大师啊，这非常好，他说我双面间谍，我很高兴啊。他说你不知道怎么样怎么样，我说你咋呼啥你咋呼啊，我说他越说我双面间谍，才能证明我是不是双面间谍，你怕什么？他说：你不了解美国！我说：你还不了解中国呢，我才不在乎你美国怎么看呢，我只在乎中国人怎么看。他拿着书“啪”一摔走了。这是班农唯一一次跟我用粗鲁的反抗动作.我不搭理他，我不给他饭吃，晚上吃饭看你下不下来，晚上他下来了看着饭，他说我想吃饭，想吃牛肉，呼啦呼啦吃，不吱声了。这是第二次反应如此巨大，他认为我是个傻叉、愚蠢，接受这个Isobel , VICE的采访。我再告诉大家，我是律师在场接受采访的，而且我们要求一定要录像的，咱们都录下来了。我只想让，引蛇出洞，抛出孩子套出狼，而今天结果告诉我们，抛出孩子没套出狼，套了一群狼，不是引蛇出洞，把蛇妖、把蛇群都引出来了。你知道从昨天报导，西方对我们评价是什么吗？说Miles Guo这次让我们真正认识到你这个人和你的爆料、新中国联邦，而且你们真的是严肃地要干掉共产党，你们真的是对共产党有威胁。就刚才小Seven说了，我认为，我们用我们的血汗、生命、安全证明了西方的造假媒体和Isobel这样的复杂的人作为渗透到西方的记者，还有她能多么的危险，威胁小斯基、青藤和Nicole的这样的行为结果，后果多严重。最重要的让西方媒体，西方媒体不都是傻子，越坏人越聪明，他们知道这个报导绝对是有目的的，这个报导绝对不是公正报导，这个报导是为什么完全是抹黑的。
 
-3、HBO VICE杨贝贝采访，把海外华人定为恐怖分子、邪教组织，把海外华人和美国对立起来，制造排华；
+校对：HimaFaFA
+发布：HimaBoy
 
-4，当年2次印尼反华悲剧，都是CCP在幕后通过媒体操纵。散布谣言，煽动仇恨。现在又是同样的手法，通过Isobel，扭曲事实，误导大众，煽动种族仇恨；
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-5、Isobel杨贝贝就是为了获得艾美奖；
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-6、真正了解共产主义的人真不多，CCP自己都不了解，马克思也不懂。但是掌权之后就变成了独裁，专政；
+**关注我们**
 
-7、西方对共产主义理解就是贫富悬殊的挑战，西方人到了中国请客吃饭，找小姐，很便宜，有的还免费。普通西方人到了中国都是县长待遇，工作机会也优先，所以西方人觉得共产主义好。事实是，这些待遇都是奴役中国人，歧视中国而达到的；
+Discord 账号
 
-8、文贵先生最新情报，共产党继奥米克戎后还会继续放毒，习近平身边人怂恿习把美国打趴下继续放毒；
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-9、国安委成立了冠状新型病毒控制小组，有可能放最毒的毒，可能超越了欧洲专家知道范围的毒；
+Gettr 账号
 
-10、 共产党灭网红，为了思想统一，财富统一，朝鲜化；
-
-11、欧洲将有重大的灭共行动；
-
-12、招商银行厦门市分行党委书记、行长赵启柱坠楼：赵启柱是王岐山的人，和吴小晖有勾结，行长收钱，都是通过家人。未来行长和行长的家人，坠楼会是常态；
-
-13、民生银行董事长董文标，也快死了；
-
-14、战友们不要动不动就抓特务，没有包容度的战友，一定会走到爆料革命的对立面；
-
-15、GTV/盖特/GNEWS 核心价值：
-
-1）、强大的搜索功能；
-
-2）、情报信息交易市场；
-
-3）、全世界精英可信赖的以个人为主的有良知的智库平台
-
-**直播大音频（感谢文疯而动战友倾情制作）——**
-
-音频提供：文疯而动
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
