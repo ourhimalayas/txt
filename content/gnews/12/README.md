@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府税制改革目标2022年减税1530亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1785460/)
+## 英、法、澳，新增感染中共病毒人数均创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1785461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._24-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1224-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
