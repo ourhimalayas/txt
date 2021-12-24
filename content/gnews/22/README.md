@@ -2,38 +2,28 @@
 ---
 
 
-## DC每日热点1224
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1787518/)
+## GTV新闻访谈简报|2021年12月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1787593/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8A1577CD-62A7-42DC-95C4-3B6DB0D93550-scaled.jpeg)
-道琼斯指数 35950.56 ▲0.55%
-纳斯达克指数 15653.37 ▲0.85%
-WTI纽约原油CFD 73.779 ▲1.40%
-布伦特原油CFD 75.570 ▼1.40%
-标普50指数 2,909.50 ▼41.86%
-美元兑人民币 1USD=6.367 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1807.85 美元/盎司
-全球CCP病毒感染人数 278,681,417例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
-1、香港研究：三剂科兴疫苗不足以对抗新冠奥密克戎变体
-2、韩国司法部星期五表示，韩国总统文在寅赦免了因腐败被判入狱的前总统朴槿惠
-3、辉瑞新冠口服药获批后 FDA又批准默克新冠病毒口服药
-4、正式生效！美总统拜登签署法案 禁止新疆强迫劳动产品进入美国
-5、在遭到中共国网民围攻之后，美国芯片企业英特尔就要求其供应商避免使用与新疆有关的产品、劳工和服务，向中共国客户和合作伙伴致歉
-6、美日制定联合作战方案，台海危机应对进入行动层面
-7、达赖喇嘛：美国的西藏问题特别协调员将有助于改善西藏的状况
-8、日本不打算派任何政府官员参加北京冬奥会
-9、台日执政党会谈，日方盼台开放福岛五县市食品进口
-10、抖音超谷歌脸书成为最受欢迎网站与社交软件
-11、普京称西方外交抵制北京冬奥是为了限制中共国发展导致的错误
-12、欧洲半导体芯片计划减少依赖中美：意大利与英特尔谈判投资建厂
-13、中共国成立央企中国稀土集团
-14、美国逾200个平安夜航班被取消
-15、 海洋奥德赛号游轮55人染疫 完全接种达95%
-16、拜登：若身体健康 2024年想竞选连任
-17、德国央行警告：恒大危机将影响德国经济
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-24.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2021.12.24早GTV新闻访谈](https://gtv.org/video/id=61c5cacd00f9a1191809c0b8)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

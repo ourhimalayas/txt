@@ -2,115 +2,62 @@
 ---
 
 
-## 【辞典词条】缓解疫苗毒性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1787673/)
+## 2021/12/24 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1787789/)
 
-撰稿：东京樱花团/Inwp G
-
-编者按：【辞典词条】指《新中国联邦词典》词条，是东京樱花团面向GNEWS推出的一档专栏内容。本文摘选自《新中国联邦词典》相关词条，专栏目的是希望更多战友关注《新中国联邦词典》编撰。《辞典》中词条的内容会不断更新、优化和调整，想查看有关本词条的最新信息，请访问《新中国联邦辞典》并【添加到收藏夹】。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-58.jpg)
-[CCP冠状病毒疫苗](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97)是[CCP冠状病毒生化战争](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%94%9F%E5%8C%96%E6%88%98%E4%BA%89)的主要手段。请参考主词条了解[冠状病毒疫苗的不良后果](https://www.nfscdict.com/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E7%9A%84%E4%B8%8D%E8%89%AF%E5%90%8E%E6%9E%9C)。本文整理了各种[CCP冠状病毒疫苗](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97)的排毒方案供参考，具体请咨询有资质医生，注意用药安全。请参考[石墨烯](https://www.nfscdict.com/%E7%9F%B3%E5%A2%A8%E7%83%AF)主词条了解[石墨烯](https://www.nfscdict.com/%E7%9F%B3%E5%A2%A8%E7%83%AF)的排毒方案。
-
-## 疫苗成份
-
-目前冠状病毒的疫苗主要有：[灭活疫苗](https://www.nfscdict.com/%E7%81%AD%E6%B4%BB%E7%96%AB%E8%8B%97)、[腺病毒载体疫苗](https://www.nfscdict.com/%E8%85%BA%E7%97%85%E6%AF%92%E8%BD%BD%E4%BD%93%E7%96%AB%E8%8B%97)、[mRNA疫苗](https://www.nfscdict.com/MRNA%E7%96%AB%E8%8B%97)等，详见[CCP冠状病毒疫苗](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97)。
-
-- 各种疫苗都可能存在安慰剂组、常规疫苗、实验性疫苗等不同的剂型。被打的人不会知道自己用的是哪一种。
-- [佐剂](https://www.nfscdict.com/%E4%BD%90%E5%89%82)（adjuvant）纳米[氧化石墨烯](https://www.nfscdict.com/%E6%B0%A7%E5%8C%96%E7%9F%B3%E5%A2%A8%E7%83%AF)，因颗粒直径非常小，细胞膜无法阻挡，会像盐放入水中一样产生主动扩散，进入细胞的量很大时会造成细胞功能失调。即使不进入细胞，仅在血液中也可能聚集后成为导致梗塞、凝血的异物[**\[1\]**](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7#cite_note-1)。参考：[石墨烯](https://www.nfscdict.com/%E7%9F%B3%E5%A2%A8%E7%83%AF)了解降解方案
-- [刺突蛋白](https://www.nfscdict.com/%E5%88%BA%E7%AA%81%E8%9B%8B%E7%99%BD)，至今科研界未完全了解[刺突蛋白](https://www.nfscdict.com/%E5%88%BA%E7%AA%81%E8%9B%8B%E7%99%BD)上到底有什么。总之它会伤害身体。
-- [灭活疫苗](https://www.nfscdict.com/%E7%81%AD%E6%B4%BB%E7%96%AB%E8%8B%97)可能存在依然有活性的[RNA](https://www.nfscdict.com/RNA)片段，会和感染[CCP冠状病毒](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92)相似。
-- 莫名其妙的杂质，一小块金属、一小块玻璃等等，比如[辉瑞](https://www.nfscdict.com/%E8%BE%89%E7%91%9E)疫苗已被石锤会有各种奇奇怪怪的东西，可以在光学显微镜下观察到的异常物质。已有不少视频佐证这一点。
-- 无论是[CCP冠状病毒](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92)，还是为此次病毒设计的各种疫苗，都含有共同的[刺突蛋白](https://www.nfscdict.com/%E5%88%BA%E7%AA%81%E8%9B%8B%E7%99%BD)，所以病毒和疫苗导致的人体各种症状也疾病类似，但由于不同病毒的设计原理以及其中所以的辅料不同，导致的疾病也有一些差异。中共国所用的[灭活疫苗](https://www.nfscdict.com/%E7%81%AD%E6%B4%BB%E7%96%AB%E8%8B%97)由于使用[甲醛](https://www.nfscdict.com/%E7%94%B2%E9%86%9B)等对病毒进行灭活，注射疫苗的受害者[白血病](https://www.nfscdict.com/%E7%99%BD%E8%A1%80%E7%97%85)的发病比例就明显高于[mRNA疫苗](https://www.nfscdict.com/MRNA%E7%96%AB%E8%8B%97)和[腺病毒载体疫苗](https://www.nfscdict.com/%E8%85%BA%E7%97%85%E6%AF%92%E8%BD%BD%E4%BD%93%E7%96%AB%E8%8B%97)。
+**主播**：Castle｜**嘉宾**：防木、2Pac
 
 
-## 疫苗的危害
 
-疫苗急性反应主要是短期的疼痛、发热、疲劳、晕厥。不多赘述。
+**板块1-**–**国内政治**
 
-- [血栓](https://www.nfscdict.com/%E8%A1%80%E6%A0%93)、梗塞发生 (诸多证明材料)
-- 免疫功能失调，可能免疫亢进，也有可能白细胞归零，完全丧失免疫功能，艾滋病样症状 (新闻报导)
-- [癌症](https://www.nfscdict.com/%E7%99%8C%E7%97%87)
-- 白血病
-- [带状疱疹](https://www.nfscdict.com/%E5%B8%A6%E7%8A%B6%E7%96%B1%E7%96%B9)，以及未来可能患[阿兹海默症](https://www.nfscdict.com/%E9%98%BF%E5%85%B9%E6%B5%B7%E9%BB%98%E7%97%87)([老年痴呆症](https://www.nfscdict.com/%E8%80%81%E5%B9%B4%E7%97%B4%E5%91%86%E7%97%87))
-- [吉兰巴雷综合症](https://www.nfscdict.com/%E5%90%89%E5%85%B0%E5%B7%B4%E9%9B%B7%E7%BB%BC%E5%90%88%E7%97%87)，原名[格林巴利综合症](https://www.nfscdict.com/%E6%A0%BC%E6%9E%97%E5%B7%B4%E5%88%A9%E7%BB%BC%E5%90%88%E7%97%87)。细节见[维基百科](https://zh.wikipedia.org/wiki/%E6%A0%BC%E6%9E%97%EF%BC%8D%E5%B7%B4%E5%88%A9%E7%BB%BC%E5%90%88%E5%BE%81) (已见证实例)
-- 全身[弥散性血管内凝血](https://www.nfscdict.com/%E5%BC%A5%E6%95%A3%E6%80%A7%E8%A1%80%E7%AE%A1%E5%86%85%E5%87%9D%E8%A1%80)(DIC，Disseminated Intravascular Coagulation) (已见证实例)
-- 无法怀孕、胎儿死亡
-- 部分研究认为刺突蛋白中含有导致疯牛病的[朊病毒](https://www.nfscdict.com/%E6%9C%8A%E7%97%85%E6%AF%92)的片段以及[狂犬病毒](https://www.nfscdict.com/%E7%8B%82%E7%8A%AC%E7%97%85%E6%AF%92)的片段，但对这些片段会造成怎样的后果还有待研究。
+1. 吉林省出生率骤降，当地政府支持为已婚夫妇提供20万元的“结婚生育消费贷款”；国家卫健委表示：推动生育登记网上办、掌上办、一次办。
 
+无抵押消费贷款多在沿海发达城市，并且利率相对较高，吉林省推出无抵押消费贷款，并随着二胎、三胎数利率依次递减，说明中共国人口结构问题趋于严重。人口生育率保持在2.1%属于正常状态，中共的计划生育政策开始呈现“副作用”。各地方甚至卫健委推出便利政策促进生育率，实际效果“治标不治本”，根本原因中共剥削老百姓太“狠”。
 
-扩展阅读：[冠状病毒疫苗的不良后果](https://www.nfscdict.com/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E7%9A%84%E4%B8%8D%E8%89%AF%E5%90%8E%E6%9E%9C)
+**板块2–财经**
 
-## 缓解方案
+1. 中共国考虑将2022年增长目标下调至5.5%-6%。
 
-### 措施
+人民币、美元、欧元、加拿大元每年贬值率在8%左右，英镑和瑞士朗贬值率在6%左右。中共国前些年长期保持8%左右的经济增长率，中共国经济数据本身含有“水分”，下调增长目标将导致国际资本去往货币贬值率相对较低的地方“逃离”中共国，2022年中共国的经济状况可能不容乐观。
 
-- 应隔一段时间检测一次[血常规](https://www.nfscdict.com/%E8%A1%80%E5%B8%B8%E8%A7%84)和[D-二聚体](https://www.nfscdict.com/D-%E4%BA%8C%E8%81%9A%E4%BD%93)。[血常规](https://www.nfscdict.com/%E8%A1%80%E5%B8%B8%E8%A7%84)主要是观察[白细胞](https://www.nfscdict.com/%E7%99%BD%E7%BB%86%E8%83%9E)数量以判断免疫系统状况，[D-二聚体](https://www.nfscdict.com/D-%E4%BA%8C%E8%81%9A%E4%BD%93)可鉴别是否在体内产生了微小[血栓](https://www.nfscdict.com/%E8%A1%80%E6%A0%93)，早期发现[血栓](https://www.nfscdict.com/%E8%A1%80%E6%A0%93)危险。
-- 在有知识储备的情况下，有机会可以尝试测试疫苗对应的[IgG](https://www.nfscdict.com/IgG)抗体情况。如果没有感染过病毒，而检查发现冠状病毒IgG含量高，那么你打的是真疫苗。请认真保护自己的身体。如果发现IgG阴性，那么有可能打到的疫苗是安慰剂，不过即使是安慰剂，其中也必定是有[佐剂](https://www.nfscdict.com/%E4%BD%90%E5%89%82)的，如[石墨烯](https://www.nfscdict.com/%E7%9F%B3%E5%A2%A8%E7%83%AF)等等
-- 身体哪里出了问题，需要仔细体会，不要骗自己来获取安慰感。此时适度的紧张情绪是有益的。
-- 使用特效药缓解。
+2. 新研究表明，只有0.01%的比特币持有者控制着27%的流通货币。
 
+再次验证文贵先生爆料（4%-5%的人掌控90%以上的比特币、极少数人控制虚拟货币涨跌）。中共提前布局数字货币和虚拟货币。
 
-### 特效药
+**板块3–新疆西藏**
 
-- 首先仔细阅读[CCP冠状病毒的防治](https://www.nfscdict.com/CCP%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%9A%84%E9%98%B2%E6%B2%BB)，缓解疫苗毒性的方案与防治方案有一定的相似性。
-- [羟氯喹](https://www.nfscdict.com/%E7%BE%9F%E6%B0%AF%E5%96%B9)+[锌](https://www.nfscdict.com/%E9%94%8C)
-- [青蒿素](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)或[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)
-- [N-乙酰半胱氨酸](https://www.nfscdict.com/N-%E4%B9%99%E9%85%B0%E5%8D%8A%E8%83%B1%E6%B0%A8%E9%85%B8)（[NAC](https://www.nfscdict.com/NAC)）对[石墨烯](https://www.nfscdict.com/%E7%9F%B3%E5%A2%A8%E7%83%AF)代谢有作用，待更多材料验证。[NAC](https://www.nfscdict.com/NAC)本身没什么毒性，也可以与其他的东西同时服用，所以暂时可以“宁可信其有”
-- [槲皮素](https://www.nfscdict.com/%E6%A7%B2%E7%9A%AE%E7%B4%A0)是存在于各种食物中的，饮食种类多且量足的人实际上不是很需要额外补充。额外补充时也可以与上述其他药物一起吃。但它有可能造成临时的胃部不适。
+1.拜登签署法案，禁止从中共国新疆进口强迫劳动商品。
 
+中共国长期压迫新疆、西藏（若用当地语言教育当地人甚至可能违反中共国宪法，中共“美其名曰”推广普通话、促进民族融合）。此法案开始由鲁比奥议员发起相关提议，经过几次修改拜登政府悄悄签署法案。中共国内新闻宣传避开美国法案内容，外交部继续“战狼式咆哮”。美国最近新任命了西藏宗教自由的大使，预计可能会推出一系列与新疆法案类似的法案出台。
 
-### 改善生活方式
+**板块4–中共病毒**
 
-- 疫苗后不再建议剧烈运动，但可以适度运动。
-- 使用微量元素补充剂使身体营养平衡。（复合维生素、矿物质、额外的[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)、[维生素D](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D)）
-- 调节饮食、作息习惯。每个人经过学习可以逐渐找到适合自己的方式。人的习惯是很难改变的，只能靠自己找到适合自己且更健康的方式。
-- 调节心情，不要回避和自我安慰，应努力、坦然面对各种困难。发自内心的舒适感和生存意志可以让人活更久。可参照郭文贵先生有关[感恩](https://www.nfscdict.com/%E6%84%9F%E6%81%A9)的解释去理解。
-- 禁酒，实在戒不了可微量，每周总酒精50ml以下。
-- 咖啡、茶不要过量。
-- 不要过度减肥，BMI&lt;26即可。脂肪可以缓解许多毒性，适当的脂肪储存会使人在疾病状态也能存活更久。
+1.西班牙将强制户外口罩政策以防止Omicron传播。
 
+西班牙每日感染人数均创新高，政府呼吁圣诞节少聚会、快速通过强制户外口罩政策、医疗资源“吃紧”。英国同样每日感染人数连续创新高。
 
-## 一些其他方案
+2.五角大楼最高代表团7名工作人员驗測出新冠阳性，且所有人都接种疫苗。
 
-- 赞德蕾·博塔[Zandre Botha](https://www.nfscdict.com/Zandre_Botha)医生分享打疫苗后缓解血栓的治疗方案 [https://gnews.org/zh-hans/1738463/](https://gnews.org/zh-hans/1738463/)
-- 一个对疫苗引发的血液栓塞的治疗方案 [https://gnews.org/zh-hans/1738361/](https://gnews.org/zh-hans/1738361/)
+国防副部长团队不幸“中招”病毒。现阶段病毒和疫苗：病毒致死率较低、打过疫苗的人也会感染病毒和传染病毒。部分接种过疫苗的人开始排斥后续疫苗接种。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/oroLnJK8xwUeW/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/oroLnJK8xwUeW/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
 
-## 其它
-
-如何避免接种，参考GNEWS文章[**\[2\]**](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7#cite_note-2)
-
-注意事项
-
-- 本建议只是提供一个方向，具体的每一项，执行时应充分学习各种知识，找到适合自己的方式。
-- 每个人体质不同，使用保健品和药品时如果自己无法确定，请咨询有足够知识储备的人。
-- 找到适合的方法后，想办法长期坚持下去。
-
-
-朋友、家人不相信时
-
-- 不要争吵，也不能急于求成。因为经常接触，可以学习CCP洗脑技术，唐僧一样不停地讲，找机会给他们看视频。人在放松的状态才更容易相信。
-- 人各有命，虽然是亲朋好友，但毕竟是别人，天渡有缘人。
-- 不吃药，保健品总是可以吃的。提高身体素质，虽然不能解毒，但也许能活下来，正常的天然人体机能是最厉害的解药。
-- 一旦相信后需要一定程度地帮助他们坚持下去，病去如抽丝，过程是漫长的。服用这些药物可能会产生短期的各种不适感，在内心不够相信效果时很容易放弃。
-
-
-# 参考资料
-
-1. [↑](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7#cite_ref-1) [郭文贵2021年8月25日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B48%E6%9C%8825%E6%97%A5%E7%9B%B4%E6%92%AD)
-2. [↑](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7#cite_ref-2) [一则宗教豁免避开强制疫苗的经历](https://gnews.org/zh-hans/1647234/)
-3. [↑](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7#cite_ref-3) [文贵先生教套路：如何用常识劝人别打疫苗](https://gnews.org/zh-hans/1582552/)
-
-
-词条原文链接：
-
-[缓解疫苗毒性](https://www.nfscdict.com/%E7%BC%93%E8%A7%A3%E7%96%AB%E8%8B%97%E6%AF%92%E6%80%A7)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/oroLnJK8xwUeW/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/oroLnJK8xwUeW/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
