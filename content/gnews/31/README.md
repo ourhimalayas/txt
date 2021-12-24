@@ -2,41 +2,28 @@
 ---
 
 
-## 郭先生透露中共动用VICE采访目的是打击爆料革命同时方便跟美国勾兑
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1786259/)
+## 应对台海紧张局势，美日拟定联合行动计划草案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1786416/)
 
-作者：日本方舟农场 – Andy5
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2-1.jpg)图片来源：TOI
+12月23日，《新闻极限》引用路透社的报道，在台湾与中共国的紧张局势加剧之际，日本和美国武装部队已经起草了一份针对台湾可能出现紧急情况的联合行动计划草案。
 
-郭文贵先生透露，中共动用西方媒体的力量打击爆料革命，谋求与美国的进一步勾兑。
+周四，日本共同社报道说，根据该计划，美国海军陆战队将在台湾紧急情况的初始阶段，从日本四大岛之一的九州延伸的南西岛链（Nansei island）上建立临时基地和部署部队，而日本武装力量将在弹药和燃料供应等方面提供后勤支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获-1.png)
+该通讯社说，很可能在明年初的外交部长和国防部长“2+2”会议上，日本和美国达成协议并开始制定正式计划。
 
-在12月22日的大直播中，郭文贵先生透露中共高层称要不惜一切代价在西方媒体占据制高点，以免除债务的方式，消除反对北京冬奥会杂音。而现在HBO放出VICE采访的目的就是把中共制造的矛盾转嫁给爆料革命新中国联邦，让我们的战友们出于恐惧之中，把那些想要灭共哪怕只是想反对北京冬奥会的人都打成暴力分子。
+对此，日本国防部官员没有立即发表评论。
 
-并且中共试图以此来进一步跟美国进行勾兑，取消掉跟美国的关税。而23日中共商务部被问及是否会在近期有第二阶段贸易谈判时，没有明确说会有第二阶段协议，反而要求美国为双方扩大贸易合作创造良好氛围和条件。分析人士指出，作为第一阶段贸易协完成度不足六成的中共，此刻不谈第二阶段是否谈判而要求扩大贸易合作，已从侧面印证郭文贵先生在大直播中的爆料。
+报道指，10月份的时候，在重申与美国密切关系的同时，日本政府就中共国对台湾的侵略姿态表明了更坚定的立场，暗示它将考虑各种选择并为“各种情况”做好准备。
 
-新闻链接：
+本月早些时候，日本前首相安倍晋三（Shinzo Abe）说，如果中共国攻击台湾，日本和美国不能袖手旁观。
 
-- [12月22日大直播要点（第58段）](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
-- [外交部：新冠肺炎疫情暴发以后，中国宣布免除15个非洲国家到2020年底无息贷款](https://www.sohu.com/a/503643099_162758)
-- [中国希望美能为扩大贸易合作创造良好条件](https://www.zaobao.com.sg/realtime/china/story20211223-1225960)
+**新闻来源**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-4.png)
-
-总编：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+[Report: Japan, US Draw Up Plan for Any Taiwan Emergency](https://www.newsmax.com/world/globaltalk/japan-us-taiwan-emergency/2021/12/23/id/1049812/)
 
  
 

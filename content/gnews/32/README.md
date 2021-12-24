@@ -2,32 +2,27 @@
 ---
 
 
-## 郭先生谈新冠疫苗对不同特征人群的不同影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786249/)
+## 美情报和卫星图片显示沙特正在中共的帮助下建造弹道导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1786350/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-12月22日，郭先生在大直播中爆料，根据国内的情报，目前国内西安的严重疫情基本都是新冠疫苗侵害人体产生的后果。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1279.png)
-郭先生谈到，新冠疫苗的刺突蛋白最容易攻击人体最脆弱的地方，如淋巴和血液。在不同地区、不同的气候，以及不同的饮食习惯下，疫苗对人造成的病症反应也不同。在西安、四川等地，人们的饮食偏干、偏辣，多出现血热症状；俄罗斯气候高寒，主要遭受攻击的器官为心脏和肝脏，容易出现脑梗、心梗等；日本是饮食最健康的国家，男女生殖器官和脑部极有可能受到攻击；韩国人饮食中牛油含量高，有可能出现心脏、大脑以及皮肤方面的问题。
+#### 翻译/撰稿：zzballack
 
-另外，郭先生认为，目前世界疫苗接种率已经过半，疫苗灾难已不可避免，但他强调说，在新中国联邦的努力和全球人民的抵制下，全球强制疫苗政策一定会在2至5个月内停止。郭先生提醒大家警惕病毒，传播疫苗解药的真相，拯救更多疫苗受害者。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-37.jpg)图片来源：纽约邮报
+据英国《每日邮报》（Daily Mail）12月23日报道，根据美国情报部门和卫星图像，沙特阿拉伯在中共的帮助下，已经开始在一个绝密基地制造自己的弹道导弹。
 
-新闻来源：[2021年12月22日 文贵大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
+这是海湾国家第一次设法制造自己的此类武器，尽管它过去曾从中共那里购买弹道导弹。这一发展可能会威胁到沙特阿拉伯和伊朗之间在中东冷战中的力量平衡，并可能对恢复德黑兰与美国的2015年核协议谈判造成破坏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+位于美国加州的商业成像公司行星实验室（Planet）在2021年10月26日至11月6日拍摄的卫星照片显示，在沙特阿拉伯中部的杜瓦达米 (Duwadimi) 附近有一个能够制造弹道导弹的基地。熟悉最新情报的消息人士称，这些照片是沙特阿拉伯有能力生产弹道导弹的“第一个明确的证据”。
 
-总编/编辑：飞虹
+米德尔伯里国际研究所（Middlebury Institute of International Studies）的武器专家和教授杰弗里‧刘易斯（Jeffrey Lewis）在审核完这些图片后说：“达瓦德米的一个设施与导弹制造厂一致。该设施是在中共的帮助下建成的，有一个‘燃烧坑’，用于处理生产弹道导弹时剩下的固体推进剂。这一关键证据表明，该设施涉及弹道导弹的生产。”
 
-校正/发稿：浪迹天涯
+铸造火箭发动机会产生剩余的推进剂（propellant），它存在爆炸性危险。 固体推进剂导弹生产设施通常有燃烧坑，剩余的推进剂可以通过燃烧来处理。刘易斯说：“因此，燃烧操作是该设施正在积极铸造固体火箭发动机的一个有力标志。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+目前还不清楚沙特阿拉伯究竟是如何获得敏感的弹道导弹技术的。熟悉最近安全简报的两名消息人士说，包括白宫国家安全委员会在内多个机构的美国官员在最近几个月被告知，机密情报显示中共与沙特阿拉伯之间进行了多次大规模的敏感弹道导弹技术转让。
+
+新闻来源：[Saudi Arabia ‘is building ballistic missiles’ with China’s help at top secret base that threatens balance of power in Middle East cold war with Iran](https://www.dailymail.co.uk/news/article-10339823/Saudi-Arabia-building-ballistic-missiles-Chinas-help-secret-base.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
