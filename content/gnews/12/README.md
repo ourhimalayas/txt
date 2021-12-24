@@ -2,51 +2,32 @@
 ---
 
 
-## 新西兰财经G乐部2021年12月24日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1787548/)
+## 达扎克在中共病毒问题上有重大利益冲突
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787602/)
 
-采集整理：蚂蚁的城堡
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月23日，据美国媒体报道称，顶级医学杂志《柳叶刀》的编辑理查德·霍顿承认，彼得·达扎克在中共病毒问题上存在着“重大的”“令人遗憾的”利益冲突，且这些冲突导致他在大流行初始时没有及时披露该病毒的相关信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.56.06.png)
+资料显示，2020年2月19日，彼得·达扎克联合了20多位科学家在《柳叶刀》杂志上发表文章，斥责中共病毒实验室起源的说法是阴谋论。这篇文章也扼杀了世界对中共病毒起源的调查，导致病毒的溯源工作至今尚无任何进展。同时，相关新闻机构和立法者依靠这种所谓的“权威”认定，打击了中共病毒的起源真相——即该病毒出自福奇资助的中共武汉病毒实验室。
 
-**提纲：**
+报道提及，在面对“科学和技术特别委员会”中英国议员的质询时，霍顿博士承认了上述观点。而霍顿博士的这一指认也使得达扎克及一帮科学家在去年2月发布的声明沦为废纸。据了解，早在今年6月22日，《柳叶刀》就已经更新了冠状病毒委员会的资料，当中，与石正丽合作的生态健康联盟主席彼得·达扎克被委员会以回避为由除名。
 
-1、吉林省“官宣”支持婚育消费贷
+参考链接：[Lancet Editor Admits Peter Daszak Has ‘Significant, Regrettable’ Conflicts Of Interest.](https://thenationalpulse.com/news/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)
 
-2、海航集团机场板块实控权正式移交地方国资
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-3、近15亿元资产拟一元卖了，蓝光发展遭上交所问询
+总编：文真
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-4、泰禾集团为三家子公司提供总计3.04亿元担保，实质性逾期债务对应的担保余额为59.79亿元
-
-**正文**
-
-**1、吉林省“官宣”支持婚育消费贷**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1352.png)
-吉林省鼓励生育放大招，全国首创为夫妻最高提供20万元婚育消费贷款，按生育一孩、二孩、三孩，分别给予不同程度降息优惠。此外，吉林还将全面放开全省所有城市落户限制。按政策生育二孩、三孩夫妻创办小微企业，对月销售额15万元以下的增值税小规模纳税人，免征增值税。
-
-参考链接 [http://bank.jrj.com.cn/2021/12/24103634056585.shtml](http://bank.jrj.com.cn/2021/12/24103634056585.shtml)
-
-**2、海航集团机场板块实控权正式移交地方国资**
-![海航集团机场板块实控权移交，正式转为国有控股|界面新闻](https://img3.jiemian.com/101/original/20211224/164031322822481300.jpg)
-12月24日上午海航集团官微发布消息，根据海航集团机场板块引战工作安排，自2021年12月24日起，海航机场板块的经营管理实际控制权利，正式移交至战略投资者海南省发展控股有限公司。此前一日（23日），海航基础发布公告称，拟将中文名称由“海航基础设施投资集团股份有限公司”变更为“海南机场设施股份有限公司”。也就是说，从今日起，海航机场板块正式移交地方。
-
-参考链接：  [http://www.21jingji.com/article/20211224/herald/326e67a5b4fc065600b0394adb4b3aa5.html](http://www.21jingji.com/article/20211224/herald/326e67a5b4fc065600b0394adb4b3aa5.html)
-
-**3、近15亿元资产拟一元卖了，蓝光发展遭上交所问询**
-![Image](https://dfscdn.dfcfw.com/download/D25627179263417778218.jpg)
-12月23日晚间，蓝光发展（600466.SH）发布公告称，公司下属子公司拟出让重庆炀玖商贸公司100%的股权，交易对价为1元。但随后，上海证券交易所对蓝光发展的转让资产一事发出了问询函，要求其说明交易作价仅为1元的原因及合理性，该交易安排是否损害上市公司利益等。
-
-参考链接：[http://www.21jingji.com/article/20211224/herald/59133d652956ac660eaec24a9bfbda6d.html](http://www.21jingji.com/article/20211224/herald/59133d652956ac660eaec24a9bfbda6d.html)
-
-**4、泰禾集团为三家子公司提供总计3.04亿元担保，实质逾期债务对应的担保余额为59.79亿元**
-![泰禾集团：未来12个月对控股子公司授权担保总额度799亿– WENXUAN FINANCE](http://www.wenxuan.news/wp-content/uploads/2020/06/f9a3-hxsrwwr2603898.jpg)
-中共新华财经12月23日： 泰禾集团23日公告称，将为全资子公司提供一笔担保。本次担保提供后，泰禾集团及控股子公司对外担保总余额为751.23亿元，占泰禾集团最近一期经审计归属于母公司所有者权益的512.85%，其中上市公司及其控股子公司对合并报表外单位提供的担保总余额为162,581万元，占泰禾集团最近一期经审计归属于母公司所有者权益的11.10%；实质性逾期债务对应的担保余额为59.79亿元。
-
-参考链接 ：[https://www.cnfin.com/zs-lb/detail/20211223/3492173\_1.html](https://www.cnfin.com/zs-lb/detail/20211223/3492173_1.html)
-
-审核校对：Barry Jack
-
-上传排版：文勇
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
