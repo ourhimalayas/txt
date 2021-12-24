@@ -2,58 +2,162 @@
 ---
 
 
-## 分析显示辉瑞的新冠疫苗临床试验从一开始就设计糟糕（下）
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1786213/)
+## 冬奥会一定会有感染病毒，集体事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786214/)
 
-翻译：brandnew
-校对：zzballack
-上传：无明逆流
+[https://gtv.org/video/id=61c568f743ccb726a08a9589](https://gtv.org/video/id=61c568f743ccb726a08a9589)
 
-有关揭盲（unblinding）和数据完整性的问题。
+**郭文贵
+Miles Guo**
 
-加拿大新冠护理联盟 (Canadian COVID Care Alliance, CCCA) 的报告还重新提到了辉瑞公司的一份简报文件中提到的令人不解的观察结果，该文件仅提交给了美国食品药品监督管理局的疫苗及相关生物制品咨询委员会 (FDA’s Vaccine and Related Biologic Products Advisory Committee, VRBPAC)，但未在其他任何地方提及——包括《新英格兰医学杂志》(New England Journal of Medicine)报道的并被广泛引用的试验摘要。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Canadian-revie00x417.jpg)图片来源：原新闻
-该文件显示，有3410名参与者，根据其临床表现疑似患有新冠，但由于无法通过核酸 (PCR) 检测确诊，因此将他们排除在疗效计算之外。
+这次奥运会到北京
+Esta vez los Juegos Olímpicos llegará a Beijing
 
-CCCA的演示文稿推定这些参与者从未接受过检测。VRBPAC的简报文件语焉不详，在一句话中称参与者“未通过核酸检测确诊”，在另一句话中又说“未确诊”。
+一定会有染（感染病毒）
+Seguro habrá contagios (contagio del virus)
 
-假设辉瑞的研究人员遵循他们的试验方案，这些参与者事实上已经接受了检测。但这迫使我们承认，3400多名有新冠症状的参与者患有的不是新冠，而是其他疾病。
+一定还有集体事件
+Debe haber un incidente colectivo
 
-换句话说，有3580名参与者在临床上出现了新冠症状（3410人疑似，170人确诊）。其中，超过95%的人测试呈阴性。对临床上高度疑似患病的群体，这一结果难以令人信服。
+一定会很严格的治理 隔离
+Habrá una gobernanza y una cuarentena muy estricta
 
-然而，由于研究人员没有进一步进行测试，我们只能接受报告中的这些数字。
+一定会发生
+Seguro sucederá
 
-《英国医学杂志》 (The BMJ) 的高级编辑彼得·多西(Peter Doshi)博士在近一年前发表的一篇评论文章中详细解释了这一结果背后的含义。
+我说的是一定啊
+Yo digo “seguramente”
 
-在他广受讨论的评论中，多西指出了辉瑞数据中另一个令人疑惑的研究结果。在施打两剂疫苗中的第二剂后的7天内，371 名（接种组310名，安慰剂组61名）试验参与者因“严重试验偏差(important protocol deviations)”而退出研究。
+不是像晓理一样你矇出来的
+No es como Xiaoli que lo adivinó
 
-当然，试验偏差时有发生，但在研究的这个时间点，为什么被排除的疫苗接种者人数是安慰剂接受者的五倍？
+这绝对不是像文斌你们想像出来的Rachel
+Tampoco es como Wenbing y Rachel que se lo imaginaron
 
-尽管可评估人群中有近4万名参与者，但仅有170人对计算疫苗预防感染的有效性做出贡献，仅10人对计算疫苗预防严重感染的有效性有贡献。
+你想当然就预测到这的
+Si lo piensas seguro lo puedes predecir hasta aquí
 
-也就是说，只要有数量极小的参与者被误诊和错误分类，就很容易导致对疫苗功效和安全性的评估大不相同。
+Eric兄弟
+Hermano Eric
 
-统计学家和教育家马修·克劳福德 (Mathew Crawford) 指出，群体之间出现这种差异的可能性极小。然而，因为调查人员应该事前并不知晓，我们必须将其看作是一个惊人的巧合事件。
+你是跟着他的思维
+Tu le sigues el pensamiento
 
-令人难以置信的是，在儿科试验（5 至11岁）中也出现了同样的差异。提交给VRBPAC的相应摘要中的表12显示，3.1%的接种了疫苗的儿童退出试验，而接种安慰剂的儿童退出比例为0.5%。
+你没有逆向思维
+No aplicas el pensamiento inverso
 
-在试验中完全相同的时间点（施打第二剂后的7天内），同样有5倍的差异。的确，疫苗在施打前需要采取一些步骤，施打安慰剂则不需要。但为什么施打第一剂疫苗时不会出现这些试验偏差呢？在接种第二剂疫苗后不久发生了什么事？这些人怎么了？
+你只是个逻辑性思维的结果
+Tu resultado es sólo pensando con la lógica
+你要逆向思维
+Tienes que pensar inverso
 
-如果我们愿意考虑这样一种可能性，即研究人员实际上事前完全知情，这就可以很好地解释这些惊人的“巧合”。这正是举报人布鲁克·杰克逊 (Brook Jackson) 最严厉的指控。她曾是文塔维亚(Ventavia)公司的区域主管，该公司是在2020年进行辉瑞疫苗试验的几家临床研究机构之一。
+这主要体现习太阳和中国的治理能力
+Esto principalmente refleja la habilidad de gobernanza de Xi sol y de China
 
-除了研究人员提前揭盲外，杰克逊还指责文塔维亚公司篡改数据。
+在全球治理能力
+La habilidad en gobernanza global
 
-这些指控很有分量。我们为什么要相信她？因为她的说法与试验数据本身不谋而合。
+治理能力是什么
+Qué es la habilidad de gobernanza
 
-但她在直接向FDA报告她的担忧后不到一天内就被解雇。11月2日，《英国医学杂志》报道了她的经历。主流媒体则尚未对此进行报道。
+反应快 检查快 治理快
+Reacción rápida, inspección rápida y la gobernancia rápida
 
-结论
+照顾得好中国人的感情
+Cuida muy bien el sentimiento de los chinos
 
-尽管公共卫生当局继续宣称这些产品是安全有效的，但每周都有越来越多的证据显示，事实并非如此。
+然后有人站出来说话
+Y habrá alguien que saldrá a hablar
 
-在对辉瑞疫苗试验数据进行全面分析后，发现问题多于答案。有人声称疫苗制造商的产品效果“符合预期”，这可能与（试验中发生的）事实相差不大。
+天呐 鼻涕一把泪一把的
+¡Dios! Con mocos y lágrimas
 
-原文来源：[Pfizer Vaccine Clinical Trials Poorly Designed From the Start, Analysis Shows](https://childrenshealthdefense.org/defender/pfizer-vaccine-clinical-trials-poorly-designed/)
+中国共产党太伟大了
+La República Popular de China es tan grandioso
+
+太讲感情啦
+Son muy afectivos
+
+这样的病毒在美国1年都得不到制止
+Un virus de este tipo no se ha detenido en los Estados Unidos durante un año
+
+川普为啥病好了 因为他是官僚
+Por qué Trump se pudo curar, porque él es un burócrata
+
+他吃了当时的鸡尾酒法
+Se tomó el método del cóctel en ese momento
+在美国你是吃不了的
+En Estados Unidos no podrás tomarte eso
+
+你看中央电视台
+Mira CCTV
+
+展（示）出来的说
+Lo muestran diciendo
+
+美国是世界上治理病情最差的死亡最多的 最不民主的
+Estados Unidos tiene la peor condición de gobernanza en el mundo y tiene la mayor cantidad de fallecidos, es el menos democrático
+
+你就知道它要干啥了
+Así sabrás qué es lo que van a hacer
+
+共产党他们想干啥
+Qué es lo que el PCCh quiere hacer
+
+晚上来吃饭
+Vienen a cenar en la noche
+
+这个人一来我就知道今天晚上他想干啥
+Esta persona llega y ya yo se a qué viene hoy en la noche
+
+他为谁来的 我就知道
+Por quién ha venido, yo lo sé
+
+我就会让他心满意足的回去
+Yo lo mando contento y satisfecho de regreso
+
+就我一看中央电视台这几天的讲法
+Yo con sólo ver la forma en que hacen reportaje el CCTV estos días
+
+我一看我就明白了
+Yo ya entiendo al verlo
+
+然后国内情报战友说
+Entonces los camaradas de inteligencia nacional me dijeron
+
+七哥 最近不能跟你联系了
+Miles, este tiempo no te puedo contactar
+
+我们手机全收了
+Nos van a recoger el celular a todos
+
+我去哪里报到去了 准备冬奥委会了
+Me iré a presentar, a preparar el Comité Olímpico de Invierno
+
+我这啥都懂了
+Y ya entendí todo
+
+* * *
+
+日期：12/23/2021
+原视频标题：冬奥会一定会有感染病毒，集体事件
+Los Juegos Olímpicos de Invierno definitivamente habrá contagiados con el virus, será un incidente colectivo
+原视频日期：12/21/2021
+原视频网址：[https://gettr.com/post/pk8m7n810f](https://gettr.com/post/pk8m7n810f)
+任务编号：KC362（3306）
+视频时间段：0:00-01:43
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：天涯行
+审片：银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+01：21 心满意足的回去 改为 心满意足地回去
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
