@@ -2,52 +2,40 @@
 ---
 
 
-## 以色列开始推广第四针疫苗接种
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788344/)
+## 航空公司由于疫情影响 数百圣诞航班被取消
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788379/)
 
-作者：纽约香草山农场 – 四季
+翻译：纽约香草山健身部—Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美联航、达美航空和其他美国航空公司表示，由于COVID-19病例激增影响到他们的员工，因此取消了近600个圣诞夜航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+“本周全国范围内Omicron病例激增，对我们的飞行人员和经营人员产生了直接影响，”联合航空公司发言人在一份声明中告诉CBS新闻。”因此，我们不幸地不得不取消一些航班，并提前通知受影响的客户，让他们到机场来。”
 
+根据FlightAware的数据，截至周五中午，此前定于12月24日在美国境内、往返于美国的599个航班已经被取消。实时跟踪服务的数据显示，美联航取消了超过175个航班，达美航空取消了150个航班，捷蓝航空取消了72个航班。
 
+“达美航空团队已经用尽了所有的选择和资源–包括改道和替换飞机和机组人员，以覆盖预定的飞行，”该航空公司周四在一份声明中说。 航空公司对航班中断表示歉意，并说他们正在努力为乘客重新订票。
 
+在世界各地，周五共有2295个航班被取消，加上前一天的2232个全球航班被取消。
 
+据美联社报道，总部位于德国的汉莎航空公司周五表示，由于飞行员生病的情况 “大量增加”，它将在圣诞假期期间取消12个跨大西洋航班。这些航班将飞往休斯顿、波士顿和华盛顿。汉莎航空表示，它已经为这一时期安排了 “大量缓冲 “的额外员工，但仍需要取消这些航班，乘客们被安排在其他航班上。
 
-据[网关专家](https://www.thegatewaypundit.com/2021/12/booster-hysteria-israel-begins-rollout-4th-covid-jab-despite-health-officials-admitting-no-data-effectiveness-mild-omicron/)12月24日报道，以色列将成为第一个对某些高危人群——包括60岁以上老人和医护人员注射第四剂实验性中共病毒疫苗的国家。
+美国和西南航空公司周四告诉CBS DFW，他们没有计划因COVID-19的人员配置问题而取消任何航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1847.jpg)图片来源：网关专家
+[https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/](https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/)
 
-尽管以色列是世界上第一个接种第三针加强疫苗的国家，已有大约58%的人口接种了三针，但对新的Omicron变体的担心仍然促使公共卫生官员组成的政府小组在本周早些时候建议进行新一轮的接种。
+编辑/校对/发稿：菩提树
 
-那些有资格获得第四剂的人，只要是在接种第三剂后的四个月内，就可以获得第四剂疫苗的接种。
-
-周三，以色列总理内夫塔利·贝内特 (Neftali Bennett) 称这一宣布是 “好消息”，并担心该国正处于大流行病“第五波”的边缘。
-
-到目前为止，以色列卫生部只确认了341个Omicron病例。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

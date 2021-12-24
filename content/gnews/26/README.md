@@ -2,52 +2,49 @@
 ---
 
 
-## 港大深夜拆除《国殇之柱》
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1787750/)
+## 丹麦研究表明接种疫苗更容易感染 Omicron
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1788102/)
 
-作者：纽约香草山健身部— Ivy001
+作者：反叛新闻
+翻译：HimaBoy
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-305.png)
+随着 Omicron 变种在全球范围内迅速传播，人们开始质疑新冠疫苗对这种新突变的有效性。
 
+那么，疫苗有效吗？根据丹麦的一项新研究，服用辉瑞或莫得纳疫苗的人更有可能感染该病毒。
 
+在昨晚的节目中的以斯拉地中海东部展，以斯拉看了看一些在研究中令人惊讶的发现。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
-
-
-
-
-
-当地时间12月22日，大约晚上22点左右，香港大学派工程人员先用围栏和幕布把悼念北京六四事件的雕塑《国殇之柱》围封，然后迅速拆除，并用货柜车运走。现场有学生目睹事件经过，流泪感叹校园自由已死。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rfa-7a6bf61b441e89a931b6ef442ad33e5f-1.jpeg)图源六度网
-《国殇之柱》是丹麦著名雕塑家高志活（Jens Galschiot）创作的艺术作品，它描绘了50具撕裂的尸体和面孔扭曲堆叠在一起的景象，以纪念天安门广场大屠杀事件的受害者。该雕像已经在香港大学校园矗立了20多年。
-
-高志活凌晨发声明，指对港大摧毁《国殇之柱》感到十分震惊。他谴责港大无理，侵犯私人财产。高志活声明，他将对港大造成的任何雕像损坏进行索赔。
-
-高志活表示，许多国家都已提出愿接收“国殇之柱”，丹麦外交部长也提出了帮助。但香港大学或其他负责当局都没有回应。这种拆除的行为是一种羞辱和虐待，这表明香港已经成为没有保护民众、保护艺术和保护私有财产等法律法规的残忍之地。
-
-参考来源：
-
-[https://www.gettr.com/post/pkgech7197&gt;](https://www.gettr.com/post/pkgech7197%3E)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-8.png)
-
-编辑/校正/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+以斯拉说：
 
 
+> 如果您接种了辉瑞或莫得纳疫苗，实际上比您没有接种疫苗的可能性更大。
+> 
+> 这不是我的观点，这就是这份丹麦国家研究中的图表，由耶鲁大学和英国医学杂志在线发布，显示它们是由马克扎克伯格赞助的，就像我说的那样。
+> 
+> 这不是一些反疫苗网站。
+> 
+> 重点是什么？我的意思是，Omicron 没有杀死任何人，也没有真正让任何人住院。恰恰相反；人们因其他原因入院，然后也许他们也被诊断出患有 Omicron，就像感冒一样，没什么大不了的。
+> 
+> 但靠着上帝，我们需要卖一些助推器。我们需要让恐惧机器继续运转。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
+来源：https://www.rebelnews.com/denmark\_study\_shows\_vaccinated\_more\_likely\_to\_catch\_omicron
 
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

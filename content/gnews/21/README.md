@@ -2,49 +2,33 @@
 ---
 
 
-## 丹麦研究表明接种疫苗更容易感染 Omicron
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1788102/)
+## 新一轮“打土豪分田地”洗劫你的财富
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1788248/)
 
-作者：反叛新闻
-翻译：HimaBoy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-305.png)
-随着 Omicron 变种在全球范围内迅速传播，人们开始质疑新冠疫苗对这种新突变的有效性。
+【**国内新闻短评**】
 
-那么，疫苗有效吗？根据丹麦的一项新研究，服用辉瑞或莫得纳疫苗的人更有可能感染该病毒。
+**澎湃新闻2021年12月22日：税务总局立案调查多领域偷逃税款问题**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/amo6j-pk4i7.jpg)**图片来源：微博原图**![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-8.jpg)
+**短评：**
 
-在昨晚的节目中的以斯拉地中海东部展，以斯拉看了看一些在研究中令人惊讶的发现。
+**以“共同富裕”为幌子，用税务之剑劈向改革开放先富起来的一部份人，无论个体，还是企业都会无一幸免。**
 
-以斯拉说：
+**这是新一轮打土豪分田地，邪恶的中国共产党国库空虚，为了延缓它即将死亡的命运。如果你的银行账户资金不能说明合法来源，你的房产与你的收入不匹配，都会引起税务部门的注意。如果你在家藏有先金，当你消费的时候，比如买一辆20万的车，4S店也会报备税务部门，同样你要提供资金来源。现在还提倡举报，如果你有钱，你会感觉到处处是危险，直到国家用“合理”理由抢劫完你的财富为止。**
 
+**中共哪些抢劫来的财富去了哪里？利益集团永远不缺钱；但是，当你没有钱的时候，你还能活下去吗？现在中国正式进入文革2.0。**
 
-> 如果您接种了辉瑞或莫得纳疫苗，实际上比您没有接种疫苗的可能性更大。
-> 
-> 这不是我的观点，这就是这份丹麦国家研究中的图表，由耶鲁大学和英国医学杂志在线发布，显示它们是由马克扎克伯格赞助的，就像我说的那样。
-> 
-> 这不是一些反疫苗网站。
-> 
-> 重点是什么？我的意思是，Omicron 没有杀死任何人，也没有真正让任何人住院。恰恰相反；人们因其他原因入院，然后也许他们也被诊断出患有 Omicron，就像感冒一样，没什么大不了的。
-> 
-> 但靠着上帝，我们需要卖一些助推器。我们需要让恐惧机器继续运转。
+**文章观点仅代表作者，与GNews 平台无关**
 
+**新闻链接**：[https://m.weibo.cn/status/4716898057194418](https://m.weibo.cn/status/4716898057194418)
 
-来源：https://www.rebelnews.com/denmark\_study\_shows\_vaccinated\_more\_likely\_to\_catch\_omicron
+素材：洛杉矶盘古农场 — 期待明天tooles
+评论：洛杉矶盘古农场 — 期待明天tooles
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
