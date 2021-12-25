@@ -2,25 +2,30 @@
 ---
 
 
-## 美军方宣布可预防病毒变体的新型疫苗
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788492/)
+## 【快讯】加拿大疫情失控？接种率高省份感染创记录!
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1788538/)
 
-采编：UCool 优酷  编译撰稿：文明(添草灭共)
+温哥华杨帆农场  – 路仁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-2.jpg)图片来源：TNH
+根据加拿大广播电台（CBC）本周四（12月23日）报道：加拿大本周四首次报告了单日超过20,000例中共病毒（COVID-19）感染，是疫情以来破纪录的一天。诸多省份也是创下了感染病例历史新高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211224-路仁-加拿大疫情失控？接种率高省份感染创记录-1.png)图片来源：https://newsinteractives.cbc.ca/coronavirustracker/
+根据统计数据，本日COVID-19病例达到20,699例，突破上次14,465例的单日记录。
+
+在加拿大的总共13个省里面，**不列颠哥伦比亚省、安大略省、魁北克省、新斯科舍省、新不伦瑞克省和爱德华王子岛**等7个省份均创下单日新高的记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211224-路仁-加拿大疫情失控？接种率高省份感染创记录-2.png)图片来源： https://health-infobase.canada.ca/covid-19/vaccination-coverage/
+有意思的是，通过比较加拿大官方发布的COVID-19疫苗接种率数据，我们发现，这些病例创下历史新高的省份，与疫苗接种比例高度吻合：即接种率高的省份，新发病例均创了新高（纽芬兰和拉布拉多例外，但也创下自二月以来的新高）。相反，接种率较低的省份，新发病例均未能超过前期记录。
+
+而加拿大政府及各省政府，除了把新的数据爆棚归罪于奥米克戎新变种的高传播性，就是继续加强各种限制令，继续强制推广已经被证明效率非常有限或者完全失效的COVID-19疫苗，又高价从辉瑞和默克等公司高价购买所谓的“治疗药物”。而已经被众多医生推荐和实践证明便宜有效的安全药物伊维菌素和羟氯喹，依旧在加拿大的官方网站上被明文禁止用来治疗中共病毒（COVID-19）。甚至有医生私下给病人用伊维菌素而遭到官方警告打压。
+
+随着疫情的进一步发展，以及COVID-19疫苗的无效性和次生灾难的到来，相信越来越多的加拿大人会逐步清醒过来。
+
+参考链接[https://www.cbc.ca/news/world/coronavirus-covid19-canada-world-dec23-2021-1.6296115](https://www.cbc.ca/news/world/coronavirus-covid19-canada-world-dec23-2021-1.6296115)
+
+[https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075](https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075)
 
 
-据【国会山报】12月 22日报道，美国[沃尔特-里德陆军研究所]自2020年初以来就在开发一种“穗状铁蛋白纳米粒子”的新型疫苗，该疫苗的早期人体试验从去年4月开始至本月已结束，目前正在审核中。
 
-另据美国军事杂志《国防一号》发布的专题报告介绍，该疫苗使用了一种具有24个基因载体的蛋白质，通过在这些载体上附着不同毒株的刺突蛋白，以增强对各种“新冠病毒”的识别能力。尽管报告称该疫苗对所有变体都有效，但该研究所并未对最新变体“奥密克戎”进行效果测试。
-
-为此，本台编辑评论：中共军事教材《非典非自然起源和病毒基因武器》已证明“新冠病毒”是中共当局故意投放的生物武器。因此，防御病毒的疫苗研发进程永远赶不上生物武器的改造和投放速度。解决疫情的唯一途径就是铲除病毒源头：中共政权！
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接:  [https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report](https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report)
+*编审/发布：Shuang*
 
  
 
