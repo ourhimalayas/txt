@@ -2,30 +2,40 @@
 ---
 
 
-## 俄罗斯升级对谷歌等大科技公司的处罚力度
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789237/)
+## 戳穿VICE谎言的布置在采访完就已经开始只等中共出手
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789267/)
 
-#### 撰稿：彩虹
+**郭文贵先生：**前天在我们没有播出全集采访的，就在这个桌子上，大家都看了对方的采访，我们遵守当初的约定，Isobel Yeung，她不放我们不放，我们当时的条件是现场要放摄像机，我们放摄像机了，对方你看多次尝试阻挡我们的镜头，你看到没有，你看挡来挡去好多次，就是对方的摄影师、对方的团队，很坏的！
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2-2.jpg)图片来源：StoryTwitt
-据《新闻极限》12月24日的报道，周五，俄罗斯法院对谷歌处以近1亿美元的罚款，并对脸书（Facebook）的母公司Meta处以2700万美元的罚款，原因是它们没有删除俄罗斯法律禁止的内容，表示着俄罗斯试图加大对大科技公司的压力。
+而且我们中间是有一段没有录上的，现在我都怀疑这个没录上，到底是什么技术让没录上，只有一段儿没录上的，不是百分之百，很吓人的！
 
-塔甘斯基（Tagansky）区法院裁定，谷歌多次忽视删除被禁内容，命令该公司支付约72亿卢布（约9840万美元）的行政罚款。对此，谷歌表示，它将研究法庭文件，然后决定下一步行动。
+另外一个，就是这个录完以后，我就把它发给了大卫和木兰，我说你们开始准备加字幕吧，然后把中间对方撒谎的事儿做好对比，咱已经开始了，是吧！就如果没有这个对比、没有这个录像机一切就完了。
 
-周五晚些时候，法院还对Meta公司处以近20亿卢布（2720万美元）的罚款，原因也是其未能删除被禁内容。
+编辑整理：海贼王M.D.LUFFY；
 
-报道指，俄罗斯法院今年曾对谷歌、脸书和推特（Twitter）处以较小额度的罚款，但周五的判罚标志着首次根据收入来计算罚款的多少。
+字幕文件制作：小满；
 
-俄罗斯国家通信监督机构联邦通信、信息技术和大众传媒监督局（Roskomnadzor）表示，谷歌和Meta被特别指控违反了关于传播宣传极端主义意识形态、侮辱宗教信仰和鼓励未成年人危险行为等内容的禁令。该机构表示，尽管法院要求删除2000条内容，但Facebook和Instagram没有这样做，而谷歌也没有删除2600条此类内容。
+视频制作及上传：Cindy；
 
-该机构警告说，如果他们没有删除被禁内容，可能会面临更多基于收入的罚款。
+G-News发布：小满；
 
-此外，俄罗斯议会下院（lower house of the Federal Assembly of Russia）信息政策委员会（committee on information policies）主任亚历山大·金希泰因 （Alexander Khinshtein）说，巨额罚款应该向所有IT巨头发出了一个明确的信息。他警告，俄罗斯法律设想了对不遵守法院命令的其他形式的惩罚，包括放慢网速和完全封锁。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**新闻来源**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[Russian Court Slaps Google, Meta with Massive Fines](https://www.newsmax.com/newsfront/russia-google-meta/2021/12/24/id/1049893/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
