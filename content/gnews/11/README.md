@@ -2,10 +2,10 @@
 ---
 
 
-## 纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790694/)
+## 泽连科医生：伊维菌素遭遇攻击是因为它对治疗中共病毒有效
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790730/)
 
-12/21/2021 疯狂的纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗，称政府会派“疫苗小队”上门接种
+12/22/2021 泽连科医生：伊维菌素遭遇如此攻击的原因是因为它对于人治疗中共病毒有效
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

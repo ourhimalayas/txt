@@ -2,38 +2,36 @@
 ---
 
 
-## 文贵大直播精要：1210
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790557/)
+## HBO Vice和Shorenstein Center -中共自导灭爆计画剧本
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1790614/)
 
-## 中国共产党将面临的困境
+**【深度报导】在HBO Vice Isobel Yeung记者骗取文贵先生和战友采访影片中，引述”郭文贵和美国右翼势力连结”的Graphika research。 Graphika, Jack Stubbs与facebook、NFL、TilTok、Google有合作，经笔者追查Graphika与哈佛Shorenstein Center 唐纳文（Joan Donovan）也有合作，[Shorenstein Center](https://shorensteincenter.org/)是中共长期赞助的对象。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Graphika-Shorenstein-Center-CCP-Vice.png)
+**根据The National Pulse曾参与班农战斗室主持人拉希姆·卡萨姆Raheem Kassam和娜塔莉·温特斯Natalie Winters [在2月13日国家脉动发表独家新闻](https://thenationalpulse.com/2021/02/13/harvard-shorenstein-center-ccp-ties/)撰写的文章中，揭露了哈佛大学肯尼迪学院肖恩斯坦研究中心，接受中共资助和军事相关的捐赠款事实，独家新闻指出肖伦斯坦中心是中共的长期赞助的对象，其中清大新闻学院董志军，新华社编辑李锡光，广播电视研究胡正荣等是由中共党员组成的多位肖伦斯坦中心研究员。**
 
-中国共产党威胁五眼联盟说，如果它们敢抵制冬奥会，那么它们在中国投资的企业就会遭殃。
+**中共自导灭爆计划剧本**
 
-郭文贵先生在直播前收到了信息，欧洲的4个主要国家明确跟中国说要抵制冬奥会、要与中国经济脱钩、要在WTO对中国发起一系列的抗议。俄罗斯也告诉美国，绝对不要把乌克兰事件与中国共产党想要夺取台湾的野心相提并论，还有绝对不要把共产党的病毒和疫苗行为和俄罗斯联系在一起。
+**根据[美国华盛顿邮报5月17日](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)**，引述哈佛大学薛斯汀或称肖伦斯坦中心(Shorenstein Center)中心科技与社会变化研究计划主任，唐纳文（Joan Donovan）的Graphika报告，说「[这是一份重要的鉴识分析，探讨富有且具有政治动机的人，操弄社群媒体之道。](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)」
 
-俄罗斯的这个明确表态让美国放心了。今后，两个国家会在欧洲东扩、乌克兰事件、南中国海开发、亚太战略和马六甲海峡等议题讨价还价。但大局已定的是，美欧联军不必担心两线作战，只需要全力收拾中国共产党就可以了。
+该报导指出文贵先生和班农先生推动华裔在美国总统大选对共和党川普的支持，并宣称川普1月6日在美国国会大厦集会的计划和随后的袭击中，GTV 播放了现场直播的行动。
+该报导指出爆料革命在GTV、GNEWS和相关网站，散播扭曲不实资讯，主要打击对象是中共政治领导阶层和在西方的反中共异议份子(乱伦彪伪类、欺民贼)，包含新型冠状病毒病Covid-19来自中共是假消息，以及攻击Covid-19疫苗安全性，并报导喜马拉雅联盟和在美国、加拿大、澳洲和其他国家的喜马拉雅农场，支持郭文贵爆料革命的义工，透过Discord社群平台协调工作，在各大社群平台广泛发文。并指称GTV的投资问题。指称在滕彪家外抗议的战友，是在郭文贵的要求下到场，并说这些抗议活动一度演变为暴力，和推动使用未经证实的治疗羟氯喹来对抗Covid-19等。而这位唐纳文（Joan Donovan）就是曾经和哈佛甘迺迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）一同撰写”指责新冠状病毒COVID-19为人造是伪科学的文章”。该文章表示新冠状病毒来源于自然界，为中共释放新冠状生化病毒COVID-19洗白。
+HBO VICE Isobel Yeung採訪惡意剪接、斷章取義的編輯成documentary的滅爆影片-片段
+**新中国联邦战友看到****Joan Donovan****在华邮的报导，是不是和****HBO Vice Isobel Yeung****记者的影片有****90%****的相近之处，**文贵先生透漏Vice Media 2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。**Vice Media****背后由黑石、索罗斯和中共海外****BGY****特务单伟健组成**，单伟健曾带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，**单伟健从****TPG****离开后转战****PAG****香港太盟投资集团，****PAG****、****PAX****太盟亚洲机会基金、瑞寰资本****ARCH****背后正是中共海航王岐山。**
 
-## 习近平是替罪羊的头羊
+**中共藉由肖伦斯坦中心唐纳文（Joan Donovan）、华盛顿邮报、HBO Vice Isobel Yeung一系列的合作，大肆宣传诋毁爆料革命，目的就是要消灭文贵先生、爆料革命，将新中国联邦战友们都变成海外极端恐怖分子，并且用一国之力量打击文贵先生，这和中共在美国对文贵先生的67个法律诉讼背后，都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，这次文贵先生引蛇出洞、舍孩子套狼，都将向西方世界展示中共长期在背后布局的行动。**
 
-人类的历史永远是消灭一个替罪羊，发展另一个替罪羊。病毒和疫苗的战争，不会有所谓普通人思维中的清算大药厂和CDC，他们会换一种方式继续存在。全世界所有的黑暗势力都会找出几个替罪羊。我们的幸运是可以铲除共产党，让它把罪责都承担起来。习近平是替罪羊的头羊，中南坑老杂毛的家人们都会生不如死。战友们要传播真相，做好带路人，比如说要把中南坑老杂毛家人的房子公开，告诉世界是他们杀了你们的家人。战友们只要给全世界带来真相，让全世界人民站起来，世界人民就会把他们给办了！
+本文仅代表个人立场
+**祈祷万佛万神加持文贵先生与新中国联邦战友**
+台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
 
-## 躺平币与喜币
+- [EXC: Harvard Center Attacking COVID Lab Theory Has Extensive Financial And Personnel Links With The Chinese Communist Party](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
+- 華郵[Chinese businessman with links to Steve Bannon is driving force for a sprawling disinformation network, researchers say](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)
+- [2021年12月22日 文貴大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
+- **\*\*\***[2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相 還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
+- [Republicans Want Twitter to Ban Chinese Communist Party Accounts. That’s a Dangerous Idea.](https://slate.com/technology/2020/04/republicans-want-twitter-to-ban-chinese-communist-party-accounts-thats-dangerous.html)
+- [Graphika Jack Stubbs https://graphika.com/](/graphika.com/)
+- [Shorenstein Center](https://shorensteincenter.org/)
 
-躺平币的设计是去中心化的，它归SEC监管，其兑付交给第三方公司。国内的同胞，只要你会翻墙，能上GETTR、GTV、GNEWS，能干规定的事，你就可以挣躺平币。
-
-这个币是不可掠夺和篡改的，最后变成了灭共币、病毒真相币、减少疫苗灾难币。未来使用躺平币的人，自动参加灭共，共产党会不怕我们吗？喜币现在最好别涨了，再涨新战友就进不来了，而体制内很多人在弄钱要进来。
-
-共产党的二十多万亿海外财富，最终都要到这里来。拿福利币的人在还未到可以公平分配之前，谁走都是背叛。在喜币价格过千美元的时候，机构投资者会进来。我相信这不会超过三年，甚至可能明年就可实现。
-
-喜币的Hpay肯定上，第一阶段是点对点，第二阶段是全球商业化，第三步是像VISA和MASTER一样在各种场景都能使用。虽然未来数字货币和法币会共存，但我们会迎来数字货币的时代。共产党也一定会被消灭，喜币和去中心化的躺平币的前途不可限量！战友们拥有喜币和躺平币越多，这两个币就越成功。
-
-## 揭露中共高层的海外藏富秘密
-
-中共高层不在乎老百姓的死活，但很在乎他们自己的家人。春节给中共高层爹妈送葬的行动将引起共产党内部巨大震撼。
-
-只要行动持续一个月以上，必将使他们情绪崩溃。我们要为中共高层及其家人公开送葬1000天。只要我们持续做下去，将会有无数的秘密被暴露出来。
-
-我已经准备了不止5000个共产党官员的住址、豪宅、小视频和联姻关系的资料。大家将会亲眼见证无数共产党官员藏匿在海外的亲属、私生子女以及他们隐藏的财富、奢靡的生活、低贱的人品等。这些会让世界震惊，让每个人看清共产党的嘴脸。
 
  
 

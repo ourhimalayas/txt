@@ -2,10 +2,10 @@
 ---
 
 
-## 卢比奥参议员：美国经济对中共国的依赖性是极度危险的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790807/)
+## 中共“得寸”香港，“进尺”台湾，还企图霸占太空
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790844/)
 
-12/22/2021 卢比奥参议员认为美国大型企业乃至美国经济对中共国的依赖性是极度危险的
+12/22/2021 天空新闻：中共在香港问题上得了“寸”，现在他们不仅要在台湾问题上“进尺”，而且还企图霸占太空
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -15,91 +15,91 @@
 
 ---
 
-### [疯狂!福奇建议禁止未打疫苗者参加家庭聚会！](/content/gnews/1/README.md)
+### [中共以牙还牙对四名美国官员进行反制](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [卢比奥参议员：美国经济对中共国的依赖性是极度危险的](/content/gnews/2/README.md)
+### [中共“得寸”香港，“进尺”台湾，还企图霸占太空](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [卢比奥：美国企业进口新疆商品必须证明不是奴工生产](/content/gnews/3/README.md)
+### [关注冬奥5周前西安封城，中共、习近平又在掩盖什么](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国国家冰球联盟决定不参加北京冬奥会](/content/gnews/4/README.md)
+### [新一轮的恐惧宣传再次袭击未接种疫苗的人](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [汤姆·科顿：不应继续与中共国保持巨大和纠缠不清的贸易关系](/content/gnews/5/README.md)
+### [疯狂!福奇建议禁止未打疫苗者参加家庭聚会！](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [飞行员因疫苗强制令起诉美国联邦航空管理局](/content/gnews/6/README.md)
+### [卢比奥参议员：美国经济对中共国的依赖性是极度危险的](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：伊维菌素遭遇攻击是因为它对治疗中共病毒有效](/content/gnews/7/README.md)
+### [卢比奥：美国企业进口新疆商品必须证明不是奴工生产](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵大直播精要：1205](/content/gnews/8/README.md)
+### [美国国家冰球联盟决定不参加北京冬奥会](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [汤姆·科顿：不应继续与中共国保持巨大和纠缠不清的贸易关系](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [飞行员因疫苗强制令起诉美国联邦航空管理局](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科医生：伊维菌素遭遇攻击是因为它对治疗中共病毒有效](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵大直播精要：1205](/content/gnews/12/README.md)
  ` 神奇四侠`
 
-### [泽连科医生：制造这个生物武器的人同样创造了解毒剂](/content/gnews/9/README.md)
+### [泽连科医生：制造这个生物武器的人同样创造了解毒剂](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：我不是反疫苗，而是反愚蠢](/content/gnews/10/README.md)
+### [泽连科医生：我不是反疫苗，而是反愚蠢](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗](/content/gnews/11/README.md)
+### [纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵大直播精要：1203](/content/gnews/12/README.md)
+### [文贵大直播精要：1203](/content/gnews/16/README.md)
  ` 神奇四侠`
 
-### [五角大楼高层中七名已接种者新冠检测阳性](/content/gnews/13/README.md)
+### [五角大楼高层中七名已接种者新冠检测阳性](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [杰森·米勒：推特一直在审查有关中共病毒疫苗的负面评论](/content/gnews/14/README.md)
+### [杰森·米勒：推特一直在审查有关中共病毒疫苗的负面评论](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年12月24日文贵大直播简报](/content/gnews/15/README.md)
+### [2021年12月24日文贵大直播简报](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/16/README.md)
+### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/17/README.md)
+### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/21/README.md)
  ` YALUN 亚伦`
 
-### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/18/README.md)
+### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/19/README.md)
+### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播精要：1210](/content/gnews/20/README.md)
+### [文贵大直播精要：1210](/content/gnews/24/README.md)
  ` 神奇四侠`
 
-### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/21/README.md)
+### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播精要：1212](/content/gnews/22/README.md)
+### [文贵大直播精要：1212](/content/gnews/26/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：（1217）](/content/gnews/23/README.md)
+### [文贵大直播精要：（1217）](/content/gnews/27/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：战友打榜的意义和人类的获救必须灭共（1217）](/content/gnews/24/README.md)
+### [文贵大直播精要：战友打榜的意义和人类的获救必须灭共（1217）](/content/gnews/28/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：新中国联邦人应有的素质（1217）](/content/gnews/25/README.md)
- ` 神奇四侠`
-
-### [文贵大直播精要;中共的残忍与中国人的悲哀(1217)](/content/gnews/26/README.md)
- ` 神奇四侠`
-
-### [文贵大直播精要：中共为何抢劫盘古裕达？（1217）](/content/gnews/27/README.md)
- ` 神奇四侠`
-
-### [文贵大直播精要：中共的家天下（1217）](/content/gnews/28/README.md)
- ` 神奇四侠`
-
-### [文贵大直播精要：中共是骗子党（1217）](/content/gnews/29/README.md)
+### [文贵大直播精要：新中国联邦人应有的素质（1217）](/content/gnews/29/README.md)
  ` 神奇四侠`
 
 ### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/30/README.md)

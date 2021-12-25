@@ -2,14 +2,12 @@
 ---
 
 
-## 2021年12月24日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1790621/)
+## 纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790694/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.24-1.png)
-【参考链接】[https://gettr.com/streaming/pkjcxzd8f5](https://gettr.com/streaming/pkjcxzd8f5)
+12/21/2021 疯狂的纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗，称政府会派“疫苗小队”上门接种
 
-文案提供：牛小妹 / 回响 / Ermat
-制作：艾伦
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
