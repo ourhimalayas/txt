@@ -2,151 +2,64 @@
 ---
 
 
-## 冬奥会几乎是习太阳的一场噩梦
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789557/)
+## SEC调查川普最新商业伙伴的中共背景(1/3)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789629/)
 
-[https://gtv.org/video/id=61c6728443ccb726a08ae3a1](https://gtv.org/video/id=61c6728443ccb726a08ae3a1)
+翻译： Jenny Ball
 
-我告诉大家
-Déjame decirles
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1-1.jpg)en.news7todays.com
 
-大家给预测一下
-Todos den una predicción
+总部位于上海的瑞环控股（Arc Capital）一直是证券监管机构调查的目标，这家投资公司是川普媒体风险上市交易的核心。
 
-动手的地方
-El lugar donde pondrán la mano
+一家帮助前总统川普将他的新媒体公司上市的中国公司，一直是联邦证券监管机构的调查目标，他们说，该公司歪曲了空壳公司的概念，这些公司没有产品，员工很少，
 
-很有可能在两方面
-Probablemente sea en dos partes
+雄心勃勃的成长型企业、正如文件和采访所显示的那样。
 
-大量的天然气爆炸, 天然气管道是没法防的
-La gran cantidad de explosiones de gas natural y el gasoducto es inevitable
+瑞环控股是一家总部位于上海的投资咨询公司，曾多次帮助创建或资助收入很少或没有收入、没有客户，和办公地点是邮箱地址（P.O. Box）的公司， 根据《华盛顿邮报》对监管和法庭文件的审查，一位声称在没有员工的公司，正在开发自主无人机软件；监管文件显示，另一家公司表示，它经营着一家公开交易的家庭面包店，“专门从事新鲜制作的蛋糕和纸杯蛋糕”，然后它又转向触摸屏技术，以提供“多元化的蓝筹客户群”。
 
-天然气爆炸是没(办法)防的
-No hay forma de prevenir una explosión de gas natural
+证券律师表示，美国允许空壳公司在公开市场上市，但要求运营商如实呈报其显示为没有活跃业务的企业。文件显示，美国证券交易委员会（SEC）指责瑞环控股在其业务范围、业务地点和背后人员的身份方面，欺骗投资者。
 
-除非把天然气全断了
-Al menos que cortes todo el gas natural
+今年，瑞环控股帮助创建了 “数字世界采集”（DWA），这是一个已筹集超过 12 亿美元用于与川普媒体和技术集团合并的投资工具。DWA是所谓的特殊目的收购公司，或 SPAC，这是一种空壳企业，从投资者那里筹集资金，收购一家具有强劲增长前景的私人初创企业。这笔交易仍需得到股东和监管机构的批准，有可能让这位前总统变得富有，并在一夜之间将他的新兴社交媒体初创公司变成一家上市公司。
 
-会不会断天然气呢?
-¿Será que lo harán?
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-22.png)显示在手机和电脑屏幕上的川普的新社交网络平台“真相社会”（Truth Social）的应用程序和网站 。（克里斯·德尔马斯/法新社，盖蒂图片社）
 
-咱们走着看
-Ya veremos
+尽管缺乏有关实际业务的信息，但川普的名字吸引了投资者，由于预期的合并，将 DW的股价推高了其上市价格的五倍。作为提案的一部分，川普媒体发布了两张幻灯片，但该材料提供的关于公司拟议管理团队、公司结构、财务，或其他通常被投资者用来判断企业生存能力的信息的细节很少。
 
-而且很有可能是在之后
-Y posiblemente sea luego del
+“基本上是一家空壳公司与另一家空壳公司合并，因为据我们所知，川普媒体公司尚未成立，”佛罗里达州冈斯特律师事务所负责法律证券业务部主席罗伯特·拉姆 (Robert B. Lamm) 说。
 
-就是奥运会闭幕的时候
-Cierre de Juegos Olímpicos de Invierno
+瑞环控股、川普媒体和DW的代表没有回应多次置评请求。在去年的宣传视频中，瑞环控股管理合伙人塞尔吉奥·卡马雷罗（Sergio Camarero）将 SPAC 作为瑞环控股追求的商机之一，同时帮助中共国企业在海外寻找基础设施投资项目。
 
-这是最危险的时候
-Este será el momento más peligroso
+在美国，“有很多资本流入 SPAC ，并在流向 SPAC，而不是传统的初始公开募股(IPO)，所以，这是我们处于非常有利地位的地方，”卡马雷罗在视频中说。
 
-对习也是最危险的时候
-Al igual que para Xi
-军队如果要造反动手或什么地方一定选在之后
-Si el ejército quiere rebelarse o en algún lugar seguro será después
+一个不同寻常的顾问团队正在支持这位前总统的努力。据一位听取了他们的一次会议简报的人士透露，安迪·利廷斯基(Andy Litinsky)和韦斯·莫斯(Wes Moss)是川普电视节目“学徒”的前明星，他们在今年早些时候向特朗普提出了这个想法。众议员德文·努内斯（Devin Nunes）（加州共和党人），川普的强力捍卫者，他没有担任公司高管的经验，最近宣布，他将在年底离开国会，成为公司的首席执行官。
 
-这是一个公共设施的大爆炸不可控的因素
-La explosión de las instalaciones públicas es un factor incontrolable
+这笔交易的核心是瑞环控股，这是一家在华尔街几乎不为人知的中国小公司，但华盛顿的一些监管机构众所周知，他们多年来一直在研究这家公司，并对其非常规的商业行为表示担忧。
 
-我认为超过50%的可能性
-Yo pienso que supera el 50% de probabilidad
+机构记录显示，2017 年，美国SEC以注册文件中的“重大错报和遗漏”为由，阻止了三家瑞环控股支持的公司公开出售股票。文件显示，SEC在调查瑞环是否参与欺诈时，暂停了第四家瑞环融资业务的交易。在这些案件中，没有对瑞环提出任何指控，调查的现状尚不清楚。
 
-还有一个
-Y hay otro
+SEC 发言人凯文·卡拉汉 (Kevin Callahan) 拒绝就瑞环控股，或该机构的任何调查状态发表评论。
 
-千万记住共产党的软肋在哪里
-Deben recordar cuál es la debilidad del Partido Comunista
+SEC 目前正在审查 DW和 Trump Media 之间的通信，前者在本月早些时候的一份文件中披露。据《纽约时报》报道，证券监管机构正在寻求确定这些公司是否违反了禁止 SPAC 在公开宣布收购目标之前计划与收购目标的交易的规定。
 
-中央警卫团
-Regimiento de la Guardia Central
+卡拉汉拒绝对川普的交易发表评论，只是指出委员会主席加里·根斯勒 (Gary Gensler) 本月发表的言论，他表示 SEC 的执法部门仍然是“确保投资者在 SPAC 领域受到保护的警察”。该机构最近指控一家早期太空运输公司和收购它的 SPAC 业务，因为该公司对其公司的技术提出“误导性声明”。
 
-现在所有的都是野战兵调回来的
-Ahora todos ellos son transferidos de regreso por soldados de campo
+DW在文件中表示，金融业监管局也在川普交易宣布前几天审查 DW证券的交易，并指出金融业监管局( Finra )和 SEC 都表示，调查并不一定表明该公司已经违反了任何法律。
 
-他认为是全控了
-Él cree que todo está controlado
+请在文章后半部分了解更多相关信息。
 
-但是你千万别忘了习所能出没之地
-Pero nunca olvides los lugares que pueda aparecer Xi
+**请阅读下两篇：**
+SEC调查川普最新商业伙伴的中共背景(2/3)
+SEC调查川普最新商业伙伴的中共背景(3/3)
 
-他有两个队伍
-Él tiene dos equipos
-
-他是控制不了的, 警察
-Que él no puede controlarlos, los policías
-
-他不可能全是武警, 特警
-No puede ser todo policías armados o policías especiales
-
-中央警卫团的几个人是解决近身保卫的
-Algunas personas del Regimiento de la Guardia Central resuelven la defensa cercana
-他不是一个
-Él no es para
-
-能阻止大量的造反的
-Detener una gran cantidad de rebeliones
-
-警察是政法委, 孟建柱
-La policía es el Comité Político y Jurídico, Meng Jianzhu
-
-是最不安全因素之一, 除非他不用警察
-Es uno de los factores más inseguros, a menos que no utilice a la policía
-
-那是不可能的
-Eso es imposible
-
-这个我认为可能性占50%还(以)上
-Esto yo creo que la posibilidad ocupa más del 50%
-
-最后一个
-El último
-
-我认为习被染上病毒
-Pienso que Xi es contagiado por el virus
-
-身体出问题(可能性)超过70%
-(La probabilidad) de tener problemas físicos es más del 70%
-
-根据以上七哥今天回答你们的答案
-De acuerdo a la respuesta que les dí hoy
-
-冬奥会几乎是习太阳的一场噩梦
-El Juego Olímpico de Invierno es casi una pesadilla para el sol, Xi
-
-（发生的可能性）超过50%
-(La posibilidad que esto suceda) supera el 50%
-
-让这个太阳永远不能再发光
-Hacer que este sol nunca más se ilumine
-特别当得知彭副主席要曲线就位的时侯
-Especialmente cuando supe que el vicepresidente Peng quería que la curva estuviera
-en su lugar
-
-大家都知道意味着什么
-Todos saben qué significa esto
+**参考资料：**[washingtonpost] [Trump’s newest business partner: A Chinese firm with a history of SEC investigations](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)
 
 * * *
 
-日期：12/23/2021
-原视频标题：冬奥会几乎是习太阳的一场噩梦
-Los Juegos Olímpicos de Invierno son casi una pesadilla para el sol Xi
-原视频日期：12/21/2021
-原视频网址：[**https://gettr.com/post/pk7wxhda07**](https://gettr.com/post/pk7wxhda07)
-任务编号：KC364（3307）
-视频时间段：0:00-2:11
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
 
  
 

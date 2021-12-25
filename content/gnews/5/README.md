@@ -2,117 +2,55 @@
 ---
 
 
-## 冬奥会证明共产党完蛋了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789592/)
+## SEC调查川普最新商业伙伴的中共背景(2/3)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789652/)
 
-[https://gtv.org/video/id=61c6730943ccb726a08ae3c8](https://gtv.org/video/id=61c6730943ccb726a08ae3c8)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1-1.jpg)图片来源：en.news7todays.com
+一项成功的 SPAC 交易可能会提振川普的财务状况，其财务状况近年来受到了一些打击。在他担任总统期间，他的一些酒店的收入大幅下降，因为不同意他的政治的旅行者避开了他的产业。后来大流行对整个酒店业造成了惨重的打击。
 
-**郭文贵
-Miles Guo**
+近年来，川普的其他企业也受到了审查，包括他的慈善基金会，该基金会在纽约总检察长办公室调查后关闭，以及川普大学，这所在线学校已关闭，并向前学生支付 2500 万美元的和解金。
 
-所以说这个冬奥会他不办对咱不是好事
-It wouldn’t be a good thing for us if (the CCP) does not host the Olympics
+曼哈顿地区检察官小赛勒斯·万斯（Cyrus R. Vance Jr. ）和纽约总检察长莱蒂西亚·詹姆斯（Letitia James）都是民主党人，他们正在调查川普的业务，并且已经指控他的首席财务官艾伦·魏塞尔伯格（Allen Weisselberg） 和他的公司涉嫌税务欺诈。两人对所有指控均不不认罪。川普没有被指控犯有任何罪行。
 
-他办了就代表咱宣传
-If they do, they will promote it on behalf of us
+SEC 发布停止令
 
-证明他完球蛋了
-and prove that the CCP is over
+瑞环控股由墨西哥企业家亚伯拉罕·辛塔 (Abraham Cinta) 和他的几位同事于 2015 年创立，根据对瑞环的三名前员工的采访和瑞环网站上的传记信息，他们决定辞去在这家投资公司的工作，独自创业。
 
-撒币是完全是失败的
-Their money throwing (money bribing) is a complete failure
+据不愿透露姓名的前雇员透露，辛塔是一个带着孩子气笑容和经常凌乱外表的瘦小男子，他看到了帮助中国公司在SEC上市的机会。
 
-而且是在世界是被孤立的
-and it is isolated in the world
+辛塔和瑞环的管理合伙人没有回答这个故事的详细问题清单。
 
-更重要的事情
-More importantly
+两名前雇员表示，辛塔经常表示，SEC对注册上市公司的规定，通常比中国和香港监管机构宽松，因此，将未经证实的早期企业上市会更容易。一位前雇员说，他有时会通过向同事展示 SEC 注册声明来说明这一点，其中包含他认为古怪的主张，例如一个人说他创办了德克萨斯游乐园是因为耶稣让他这样做。
 
-同理, 原苏联、希特勒9年11年的诅咒，一定会在他身上发生
-in the same principle, the 9 or 11 year curse on the former Soviet Union and Hitler will definitely happen to them
+这个人记得辛塔说过，即使是那样的人也筹集了 1500 万美元。
 
-那个时候9年、11年相当于今天也就是9天、11天嘛
-9 or 11 years at that time would be 9 or 11 days today
+瑞环的业务有自己的特点。 Go EZ 于 2015 年申请在公开市场上出售股票，向投资者描述，自己是一家总部位于迈阿密海滩的科技和零售企业，销售智能手机和智能手机配件。然而，SEC在命令中声称，居住在上海的辛塔是唯一的雇员，而 Go EZ自第一份注册文件起一次都没有提到“收入”一词，表明它没有出售任何东西。
 
-时间只会更快不会更晚
-Time will only be faster, not later
+在美国SEC给辛塔的一封信中表示Go EZ 似乎是一家空壳公司后，“因为你似乎没有或没有名义上的业务和名义资产”，Go EZ 更新了注册声明，将来自迈阿密海滩手机店的收入包括在内。它声称，在几个月前收购了零售手机商店。SEC 调查人员后来采访了将佛罗里达商店出售给 Go EZ 的人；美国SEC在其命令中说，他说该公司从未提供任何资金、库存或其他帮助，因此，他最终切断了与 Go EZ 的联系，并收回了自己的生意。
 
-还有一个咱们要看到， 美帝国主义
-Another thing we should have seen is the US imperialism
+Go EZ 是 2017 年美国SEC停止出售股票的三项与瑞环相关的业务之一。这些公司的运营商，“严重错误地陈述了其业务的性质和范围”，并且未能披露其背后所有人员的身份和潜在冲突 ，美国SEC在其对这三家公司的“停止令”中表示。
 
-美帝国主义，这一次一定会戏弄死习近平
-The US imperialism will definitely tease Xi Jinping hardly this time
+停止令称，瑞环没有完全配合 SEC 的调查，包括辛塔在内的关键人员拒绝在美国作证。 美国SEC在 2019 年撤销了 Go EZ 的注册，SEC表示该公司在提交文件时存在拖欠。
 
-蓬佩奥那几句话说的时候
-When having a few words with what Mr. Pompeo
+因误导性或缺乏注册声明而阻止上市的停止令很少见：在过去十年中，随着数百家企业的上市，只有 35 家公司以这种方式暂停了其注册声明。 SEC 网站上列出他们的名单。
 
-全面反击，而且一定像干掉前苏联一样赢, 这话七哥跟他说的
-I said to him that (the U.S.) would definitely win like destroying the former Soviet Union if the U.S. fully counterattack
+在文章的最后部分看瑞环与川普总统合作的最新进展。
 
-这包括共产党都是七哥跟他说的
-Both of this and the CCP’s (conspiracy) were what I said to him
+**新闻来源**：[washingtonpost.com][Trump’s newest business partner: A Chinese firm with a history of SEC investigations](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)
 
-可以告诉你，就在这儿说的
-I can tell you that we were right here when I said that
-
-蓬佩奥同志有一段精彩的话
-Comrade Pompeo has a wonderful speaking
-
-共产党他不仅是我们的竞争对手，他是我们天然的敌人
-that the CCP is not only our competitor but also our natural enemy
-
-你看美国白人的时候
-When we observe white Americans
-
-当白人说这句话的时候，这个白人已经醒悟了
-when they say this, it indicates that they have already awakened
-
-它是我们天然的敌人
-The CCP is our natural enemy
-
-就是鹰和蛇的天然的较量
-It’s a natural contest between the eagle and the snake
-
-美国是白头鹰，中共是蛇
-The United States is the bold eagle, and the CCP is a snake
-
-画了鸡爪子，鱼尾，牛鼻子
-which has drawn with chicken paws, fishtail, and cow’s nose
-
-牛的忠诚和勤劳，鱼的这个水，是哇
-The loyalty and diligence of the cow (the Chinese people’s virtues), and the water that provides to fish (the CCP’s bribery funds)
-
-还有鸡的爪子，还能挠粪是吧
-Moreover, the chicken’s paws (the CCP’s means of infiltration) could also scratch dung (consequences)
-
-挠很多粪吃是吧
-scratch lots of dung for themselves
-
-能挠粪能上天，还能飞
-They can scratch dung, they can go into the sky, and even fly
-
-实际上你就是蛇嘛
-Actually you (the CCP) are a snake
+相关文章阅读：SEC调查川普最新商业伙伴的中共背景(1/3)
+ SEC调查川普最新商业伙伴的中共背景(3/3)
 
 * * *
 
-Date: 12/20/2021
-原视频标题: 冬奥会证明共产党完蛋了
-The Beijing Winter Olympic Proves That The Communist Party is Over
-原视频日期：2021/12/19
-原视频链接: **[https://gettr.com/post/pk5wi3f48d](https://gettr.com/post/pk5wi3f48d)**
-任务编号：KC366（3296）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
+
+
 
  
 
