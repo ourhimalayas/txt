@@ -2,25 +2,29 @@
 ---
 
 
-## 美军方宣布可预防病毒变体的新型疫苗
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788492/)
+## 加拿大疫情严峻单日感染再创新高
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788493/)
 
-采编：UCool 优酷  编译撰稿：文明(添草灭共)
+采编：文莱       编译撰稿：文明(添草灭共)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-2.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5.jpg)图片来源：CTV
 
 
-据【国会山报】12月 22日报道，美国[沃尔特-里德陆军研究所]自2020年初以来就在开发一种“穗状铁蛋白纳米粒子”的新型疫苗，该疫苗的早期人体试验从去年4月开始至本月已结束，目前正在审核中。
+据【CTV新闻】12月22日报道，加拿大当天报告的新增“新冠病毒”感染14,988例，突破了该病毒疫情以来单日确诊的最高纪录。同时，最近七天的新增病例平均数也创下疫情以来10,486例的最高值。
 
-另据美国军事杂志《国防一号》发布的专题报告介绍，该疫苗使用了一种具有24个基因载体的蛋白质，通过在这些载体上附着不同毒株的刺突蛋白，以增强对各种“新冠病毒”的识别能力。尽管报告称该疫苗对所有变体都有效，但该研究所并未对最新变体“奥密克戎”进行效果测试。
+报道称，该国卫生部将感染人数激增的原因归咎于变体病毒“德尔塔”和“奥密克戎”的快速传播。并以“为避免卫生保健系统突然受到冲击”为由，在多个地区实施了更严格的限制政策。
 
-为此，本台编辑评论：中共军事教材《非典非自然起源和病毒基因武器》已证明“新冠病毒”是中共当局故意投放的生物武器。因此，防御病毒的疫苗研发进程永远赶不上生物武器的改造和投放速度。解决疫情的唯一途径就是铲除病毒源头：中共政权！
+据悉，魁北克省政府在当天新增感染病例近万人的历史新高情况下，宣布了多项紧急应对措施，除了已关闭学校，健身房，影剧院等公共娱乐场所外，还包括：限制室内聚会人数不得超过6人；要求60岁以上人群和未接种疫苗者不得外出。同时，不再排除对顽固不化的拒绝接种者进行强制接种等。
+
+对此，魁省卫生部长杜贝称：如果政府认为必须进一步采取行动，那么当局将毫不犹豫地强制实行全民接种措施。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接:  [https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report](https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report)
+參考链接：[https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161](https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161)
+
+[https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre](https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
 
  
 
