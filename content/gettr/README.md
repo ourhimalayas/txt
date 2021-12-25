@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 8:43 AM (UTC)`
+
+12/24/2021 Miles Guo: HBO/VICE and Isobel Yeung slander the Whistleblowers’ Movement and me as a bunch of swindlers, a cult, and threats to the Western democracy and freedom through the mouths of Teng Biao and An Ruizheng and by viciously editing what was said by the fellow fighters like Nicole and Xiao Siji. What they have done is extremely insidious and evil!<br/><br/>12/24/2021 文贵直播：HBO/VICE杨贝贝借滕彪、螃蟹之口，并通过恶意剪辑Nicole、小斯基等战友的话将爆料革命和文贵污蔑为一帮骗子、邪教和西方民主自由的威胁，阴险邪恶至极！<br/>
+![img](https://media.gettr.com/group9/getter/2021/12/25/08/4502a0f2-b044-ade5-d0c3-2dec264e5bc9/out.jpg)
+
+---
+
 `@miles 12/25/2021 8:38 AM (UTC)`
 
 12/24/2021 Miles Guo: Without the video recording of the entire interview, Isobel Yeung would have achieved her evil goals; the questions she raised were tantamount to convicting me. She carefully picked a piece of crap like Teng Biao and Pang Xie (An Ruizheng) to smear the Whistleblowers’ Movement. Such an extremely vicious move is the same as what the CCP did during the anti-Chinese massacre in Indonesia<br/><br/>12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪，她精心挑选了滕彪、螃蟹这样的垃圾来诋毁爆料革命，这和当年印尼排华如出一辙，极其阴歹<br/>
@@ -147,13 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 12/22/2021 Miles Guo: The CCP negotiators took turns to threaten Peng Shuai in the name of the state and threatened to turn her into a mental patient under the guise of caring for her physical and mental health; Xi Jinping, Han Zheng, and Li Zhanshu met Peng Shuai at the Jade Spring Hill and demanded her to lie to the whole world!<br/><br/>12/22/2021 文贵直播：中共谈判专家轮番上阵，以国家的名义威胁彭帅，并打着关心她身心健康的幌子，威胁将其变成精神病；习近平、韩正和栗战书在玉泉山接见彭帅并要她对全世界说谎！<br/>
 ![img](https://media.gettr.com/group43/getter/2021/12/23/15/1e0b2f2d-b003-ff8f-d9e9-727fda681407/out.jpg)
-
----
-
-`@miles 12/23/2021 3:24 PM (UTC)`
-
-12/22/2021 Miles Guo: The CCP’s National Security Commission ordered the Beijing State Security Bureau to have the Emergency Task Force handle the Peng Shuai incident by using negotiation experts and the despicable tactics such that they sometimes posed threat and sometimes pretended to be weak; the CCP ordered that the Peng Shuai incident must be put to an end before the Winter Olympics at all costs!<br/><br/>12/22/2021 文贵直播: 国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件；中共指示不惜一切代价要在冬奥会之前务必平息此事！<br/>
-![img](https://media.gettr.com/group35/getter/2021/12/23/15/13a9b9ef-e051-da4b-e5be-63e37ec6b3ca/out.jpg)
 
 ---
 
