@@ -2,30 +2,34 @@
 ---
 
 
-## 俄罗斯升级对谷歌等大科技公司的处罚力度
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789237/)
+## 更多美国海军陆战队员因拒绝接种新冠疫苗而被解雇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789257/)
 
-#### 撰稿：彩虹
+**翻译:  美哥**
+**编辑：MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-310.png)图片来源  rt.com
+美国海军陆战队在过去一周中又有66名海军陆战队员因拒绝遵守军方的Covid-19疫苗规定而被开除，总人数达到169人。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2-2.jpg)图片来源：StoryTwitt
-据《新闻极限》12月24日的报道，周五，俄罗斯法院对谷歌处以近1亿美元的罚款，并对脸书（Facebook）的母公司Meta处以2700万美元的罚款，原因是它们没有删除俄罗斯法律禁止的内容，表示着俄罗斯试图加大对大科技公司的压力。
+美联社刊登了美国海军陆战队重申士兵必须接受疫苗的声明，称“新冠病毒在人与人之间的传播速度，加大了我们海军陆战队完成使命的风险”。
 
-塔甘斯基（Tagansky）区法院裁定，谷歌多次忽视删除被禁内容，命令该公司支付约72亿卢布（约9840万美元）的行政罚款。对此，谷歌表示，它将研究法庭文件，然后决定下一步行动。
+特种部队表示，至少部分接种疫苗的部队比例保持在 95%。
 
-周五晚些时候，法院还对Meta公司处以近20亿卢布（2720万美元）的罚款，原因也是其未能删除被禁内容。
+在五角大楼强制要求包括国民警卫队和预备役在内的所有军人接种冠状病毒疫苗后，海军陆战队的退伍人数超过了其他任何美国军种。
 
-报道指，俄罗斯法院今年曾对谷歌、脸书和推特（Twitter）处以较小额度的罚款，但周五的判罚标志着首次根据收入来计算罚款的多少。
+截至周四，海军陆战队拒绝了 96% 的疫苗豁免请求，包括基于宗教理由提出的请求。相比于陆军，海军，和空军98%的接种率，虽然海军陆战队开除的力度最大，但海军陆战队仍成为疫苗接种比率最低的单位。
 
-俄罗斯国家通信监督机构联邦通信、信息技术和大众传媒监督局（Roskomnadzor）表示，谷歌和Meta被特别指控违反了关于传播宣传极端主义意识形态、侮辱宗教信仰和鼓励未成年人危险行为等内容的禁令。该机构表示，尽管法院要求删除2000条内容，但Facebook和Instagram没有这样做，而谷歌也没有删除2600条此类内容。
+在传染性更强的 Omicron 变种出现后，美国的感染率猛增。乔拜登总统警告说，未接种疫苗的人将面临“严重疾病和死亡”的冬天。
 
-该机构警告说，如果他们没有删除被禁内容，可能会面临更多基于收入的罚款。
+新闻链接：[https://www.rt.com/news/544343-us-marines-vaccine-mandate/](https://www.rt.com/news/544343-us-marines-vaccine-mandate/)
 
-此外，俄罗斯议会下院（lower house of the Federal Assembly of Russia）信息政策委员会（committee on information policies）主任亚历山大·金希泰因 （Alexander Khinshtein）说，巨额罚款应该向所有IT巨头发出了一个明确的信息。他警告，俄罗斯法律设想了对不遵守法院命令的其他形式的惩罚，包括放慢网速和完全封锁。
+发布：去中心化Math
 
-**新闻来源**
-
-[Russian Court Slaps Google, Meta with Massive Fines](https://www.newsmax.com/newsfront/russia-google-meta/2021/12/24/id/1049893/)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
