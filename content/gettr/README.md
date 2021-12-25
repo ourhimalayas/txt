@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 8:23 AM (UTC)`
+
+12/24/2021 Miles Guo: Having spent a year preparing the scheme, HBO/VICE viciously intends to smear the Whistleblowers’ Movement as the cult and the group of terrorists interfering and influencing the US politics by having Isobel Yeung ask questions to set up traps in conjunction with the CCP’s propaganda tactics. This couldn't be more sinister!<br/><br/>12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹啊！<br/>
+![img](https://media.gettr.com/group47/getter/2021/12/25/08/981879f9-e460-f14e-a4ea-0ac9b8d88ef7/out.jpg)
+
+---
+
+`@miles 12/25/2021 8:15 AM (UTC)`
+
+12/24/2021 Miles Guo: What would Isobel Yeung and VICE do if I declined to be interviewed by them? They would instead interview a bunch of Western politicians and media and cite the data as the “basis” to picture the Whistleblowers’ Movement as a cult and a group of rioters. If that happened, we wouldn’t have any chance to defend ourselves <br/><br/>12/24/2021 文贵直播：如果文贵不接受VICE采访，杨贝贝和VICE会怎么做？它们会找西方政客、媒体界人士并以数据作为“依据”，将爆料革命描绘成邪教、暴徒，那样我们就百口莫辩了<br/>
+![img](https://media.gettr.com/group28/getter/2021/12/25/08/5452ff8c-d630-c6fb-58d1-0386121034db/out.jpg)
+
+---
+
 `@miles 12/25/2021 8:08 AM (UTC)`
 
 12/24/2021 Miles Guo: All the questions asked by Isobel Young in the interview were the traps she set up for me. However, with the video recording of the full interview and our own platforms, we managed to expose her lies and effectively fight her back; Isobel Yeung will pay for an enormous price for her lies, and both she and VICE will lose their lawsuits for sure<br/><br/>12/24/2021 文贵直播：杨贝贝采访的提问都是给文贵挖的坑，但我们用全程录像和自己的平台，戳穿了她的谎话并进行了有力的反击；杨贝贝将为其谎言付出巨大代价，她和VICE必定会输掉官司
@@ -140,20 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 The Interview by #IsobelYeung from #HBO #VICE was a Premeditated Plan to Defame Mr. Miles Guo [Part-15]：<br/>🔥 Mr. Miles Guo has revealed the evil plans of the CCP to become world hegemony over the past 4 years. He has warned the world multiple times that the darkness has arrived. With his intelligent information and his 30-year knowledge of the CCP, so far, all his revelations have been proven and testified to be true.<br/>‼️HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【 HBO VICE ISOBEL YEUNG的采访是对郭文贵先生有计划的诽谤 Part-15】：<br/>🔥 新中国联邦创始人郭先生带领的爆料革命向西方世界揭露中共CCP的邪恶并多次发出警告，最终得到验证，展示了新中国联邦和郭先生的真实实力。<br/> ‼️HBO采访郭先生的记者ISOBEL YEUNG亲共背景证明。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link: https://gtv.org/video/id=61c3bb8900f9a119180832eb
 ![img](https://media.gettr.com/group23/origin/2021/12/23/13/c392c6f1-b0a3-e6ba-cd83-8ab32a69dd43/out.jpg)
-
----
-
-`@miles 12/23/2021 12:42 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-14]：<br/>‼️HBO-VICE’s questioning on the numbers of lawsuits Mr. Guo had. Again, HBO editing team took it out of context and tried to mislead audience. In the uncut interview, it again revealed how HBO deceivingly manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-14】：<br/>‼️ HBO-VICE询问郭先生有多少诉讼，混乱剪辑，只留下郭先生说没准下一个官司就是针对女记者的片段，断章取义。我们还原当时的原始采访进行反击，再次揭露HBO如何欺骗性地对采访视频进行扭曲。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group17/origin/2021/12/23/12/7560990a-74a2-ff3c-8af9-d0b748c274f9/out.jpg)
-
----
-
-`@miles 12/23/2021 12:37 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-13]：<br/>‼️HBO-VICE’s discredit Mr. Guo for deceiving his investors. Using deceptive editing, HBO tried to ruin Mr. Guo’s public image. The uncut interview revealed the facts and exposed how HBO manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-13】：<br/>‼️ HBO-VICE诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始采访进行反击，以揭露HBO如何虚假剪辑采访视频。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group42/origin/2021/12/23/12/a497d64a-2ac9-63ab-c90a-693ee56c9993/out.jpg)
 
 ---
 

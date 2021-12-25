@@ -2,34 +2,24 @@
 ---
 
 
-## 更多美国海军陆战队员因拒绝接种新冠疫苗而被解雇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789257/)
+## 拜登签署两党法案，禁止进口强迫劳动生产的中共国商品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789273/)
 
-**翻译:  美哥**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-310.png)图片来源  rt.com
-美国海军陆战队在过去一周中又有66名海军陆战队员因拒绝遵守军方的Covid-19疫苗规定而被开除，总人数达到169人。
+#### 翻译/撰稿：黃金精神
 
-美联社刊登了美国海军陆战队重申士兵必须接受疫苗的声明，称“新冠病毒在人与人之间的传播速度，加大了我们海军陆战队完成使命的风险”。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-126.png)图片来源：看中国
+12月24日据福克斯新闻（Fox News）报道，拜登总统周四签署了两党立法，禁止从中共国新疆维吾尔自治区进口产品，并制裁在该地区从事强迫劳动的个人。拜登政府在新疆维吾尔族遭受数月迫害的紧张局势之后作出决定，国务院已将这种迫害定性为种族灭绝。这代表了美国政府惩罚中共国侵犯人权的最新尝试。
 
-特种部队表示，至少部分接种疫苗的部队比例保持在 95%。
+拜登周四在推特上说：“美国将继续使用我们掌握的一切工具，确保供应链不使用强迫劳工，包括中共国的新疆和其他地区。”
 
-在五角大楼强制要求包括国民警卫队和预备役在内的所有军人接种冠状病毒疫苗后，海军陆战队的退伍人数超过了其他任何美国军种。
+该法案由参议员马尔科·鲁比奥 （Marco Rubio，佛罗里达州共和党）和杰夫·默克利 （Jeff Merkley，俄勒冈州民主党）推动，并在参议院一致同意下通过。该法案包含一系列旨在加强1930年关税法第307条执行的条款。该法规定，强迫劳动生产的货物 “无权进入美国的任何港口”。
 
-截至周四，海军陆战队拒绝了 96% 的疫苗豁免请求，包括基于宗教理由提出的请求。相比于陆军，海军，和空军98%的接种率，虽然海军陆战队开除的力度最大，但海军陆战队仍成为疫苗接种比率最低的单位。
+拜登在签署该法案时，承诺联邦政府将制定一项防止强迫劳动的进口战略。该法案还要求海关和边境保护局（Customs and Border Protection，CBP）承担这项禁令。
 
-在传染性更强的 Omicron 变种出现后，美国的感染率猛增。乔拜登总统警告说，未接种疫苗的人将面临“严重疾病和死亡”的冬天。
+这项措施是在中共国周二宣布对美国官员进行制裁之后采取的，特别针对美国国际宗教自由委员会的成员。尽管中共国否认有不法行为，但它继续面临国际层面的审查。例如，美国和其他西方国家已经承诺外交抵制北京奥运会。
 
-新闻链接：[https://www.rt.com/news/544343-us-marines-vaccine-mandate/](https://www.rt.com/news/544343-us-marines-vaccine-mandate/)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Biden signs bipartisan bill to block importation of Chinese goods produced through forced labor](https://www.foxnews.com/politics/biden-bill-uyghurs-china-forced-labor)
 
  
 

@@ -15,107 +15,107 @@
 
 ---
 
-### [VICE采取共产党的宣传手法丑化乱伦彪家外边的抗议战友](/content/gnews/1/README.md)
+### [由于奥米炕的肆虐，平安夜全球2000多架航班被取消](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [VICE把我们揭露共产党操纵美国大选诬蔑为操弄美国政治](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [在独裁最没有人权的中共国居然诞生自诩的人权律师滕彪](/content/gnews/2/README.md)
+### [VICE采取共产党的宣传手法丑化乱伦彪家外边的抗议战友](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [受国家力量操控的HBO、VICE杨贝贝将在法庭一败涂地](/content/gnews/3/README.md)
+### [在独裁最没有人权的中共国居然诞生自诩的人权律师滕彪](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文雍漫谈：杨贝贝的七宗罪](/content/gnews/4/README.md)
+### [受国家力量操控的HBO、VICE杨贝贝将在法庭一败涂地](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文雍漫谈：杨贝贝的七宗罪](/content/gnews/6/README.md)
  ` 文雍`
 
-### [DC大中华时事：中共人大就美国将所谓涉疆法案签署成法发表声明](/content/gnews/5/README.md)
+### [DC大中华时事：中共人大就美国将所谓涉疆法案签署成法发表声明](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：研究称亲中共国的虚假信息传播网络仍在积极活动](/content/gnews/6/README.md)
+### [每日快报：研究称亲中共国的虚假信息传播网络仍在积极活动](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [前白宫新闻秘书阿里-弗莱舍：关于脑控武器，中共把会把国家意志放在人权之上；中共与自由民主社会有本质不同，拜登政府应该表率离开中共！](/content/gnews/7/README.md)
+### [前白宫新闻秘书阿里-弗莱舍：关于脑控武器，中共把会把国家意志放在人权之上；中共与自由民主社会有本质不同，拜登政府应该表率离开中共！](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.540 HDO](/content/gnews/8/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.540 HDO](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [全美儿科医院中挤满了新冠儿童患者](/content/gnews/9/README.md)
+### [全美儿科医院中挤满了新冠儿童患者](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：中共扎实推动“共同富裕”](/content/gnews/10/README.md)
+### [DC大中华时事：中共扎实推动“共同富裕”](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共正在台湾进行“有针对性的渗透”](/content/gnews/11/README.md)
+### [中共正在台湾进行“有针对性的渗透”](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在孩子中广泛使用疫苗以确认其是否安全，是医学史上最应被唾弃的](/content/gnews/12/README.md)
+### [在孩子中广泛使用疫苗以确认其是否安全，是医学史上最应被唾弃的](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [VICE用问题挖坑给受访者下死套的策略被郭文贵先生破解](/content/gnews/13/README.md)
+### [VICE用问题挖坑给受访者下死套的策略被郭文贵先生破解](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [拜登签署两党法案，禁止进口强迫劳动生产的中共国商品](/content/gnews/14/README.md)
+### [拜登签署两党法案，禁止进口强迫劳动生产的中共国商品](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [戳穿VICE谎言的布置在采访完就已经开始只等中共出手](/content/gnews/15/README.md)
+### [戳穿VICE谎言的布置在采访完就已经开始只等中共出手](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [更多美国海军陆战队员因拒绝接种新冠疫苗而被解雇](/content/gnews/16/README.md)
+### [更多美国海军陆战队员因拒绝接种新冠疫苗而被解雇](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [男子外出惨遭防疫人员围殴，西安疫患病者只有等死？](/content/gnews/17/README.md)
+### [男子外出惨遭防疫人员围殴，西安疫患病者只有等死？](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——鑫城中心见老者楼洞二胡独奏](/content/gnews/18/README.md)
+### [樱花灭共诗——鑫城中心见老者楼洞二胡独奏](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯升级对谷歌等大科技公司的处罚力度](/content/gnews/19/README.md)
+### [俄罗斯升级对谷歌等大科技公司的处罚力度](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [几年来文贵用生命鲜血传递信息 陈红陈凯歌除了《霸王别姬》其他电影全是洗钱](/content/gnews/20/README.md)
+### [几年来文贵用生命鲜血传递信息 陈红陈凯歌除了《霸王别姬》其他电影全是洗钱](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相考虑参加NPT审议大会](/content/gnews/21/README.md)
+### [日本首相考虑参加NPT审议大会](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵直播传播高达亿次 中共倾一国之力 收买封杀爆料革命的真实数据](/content/gnews/22/README.md)
+### [文贵直播传播高达亿次 中共倾一国之力 收买封杀爆料革命的真实数据](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [明年风水 龙虎斗主角](/content/gnews/23/README.md)
+### [明年风水 龙虎斗主角](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [张高丽玩处女 家族一定会受审判](/content/gnews/24/README.md)
+### [张高丽玩处女 家族一定会受审判](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党需要张高丽彭帅消失](/content/gnews/25/README.md)
+### [共产党需要张高丽彭帅消失](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥能在2006年将所有资产都转移了 是因为他了解共产党](/content/gnews/26/README.md)
+### [七哥能在2006年将所有资产都转移了 是因为他了解共产党](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党利用西方媒体操控西方法律攻击Gnews Gettr](/content/gnews/27/README.md)
+### [共产党利用西方媒体操控西方法律攻击Gnews Gettr](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [只有爆料革命才知道 彭帅事件与叶钊颖夫妇的重要性](/content/gnews/28/README.md)
+### [只有爆料革命才知道 彭帅事件与叶钊颖夫妇的重要性](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党造神运动和打台湾的脚本](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新一波中共病毒再次开始导致美国海军军舰停摆](/content/gnews/30/README.md)
+### [新一波中共病毒再次开始导致美国海军军舰停摆](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [医疗健康军事化：奥地利军力涉入政府中共病毒工作](/content/gnews/31/README.md)
+### [医疗健康军事化：奥地利军力涉入政府中共病毒工作](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [班农谈VICE对文贵先生的失败攻击](/content/gnews/32/README.md)
+### [班农谈VICE对文贵先生的失败攻击](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [NIH主任为没有对“人类行为”进行更多研究而悲痛](/content/gnews/33/README.md)
+### [NIH主任为没有对“人类行为”进行更多研究而悲痛](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021.12.24大直播文贵先生从新歌打榜谈爆料革命要持之以恒](/content/gnews/34/README.md)
- ` 秘密翻译组-原创组`
 
 ### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-1](/content/gnews/35/README.md)
  ` GTV新闻访谈`
