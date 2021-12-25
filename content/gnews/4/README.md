@@ -2,27 +2,29 @@
 ---
 
 
-## 意大利采取更加严格的限制应对奥密克戎
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790540/)
+## 奥密克戎疫情扩大 美国数百航班被取消
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790564/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约香草山健身部— Ivy001，纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月23日，意大利政府发布了一则新规定表示，即日起，除户外运动外，当地民众在进行任何公共活动时都必须佩戴口罩。另外，自12月30日起，意大利还将关闭当地的夜总会，同时，民众将被禁止在公共广场用餐。
+12月24日，据当地媒体报道称，美国联合航空、达美航空和其他美国航空公司发布声明表示，由于当地中共病毒确诊感染病例激增，且已波及到航空公司的员工，因此，他们取消了约600个平安夜航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide9-2.jpeg)
 
-消息显示，意大利政府采取的这些限制措施将持续至2022年 1 月 31 日。而从 明年2 月 1 日起，政府还将把中共病毒疫苗接种证明的有效期从九个月缩短到六个月。此外，病毒检测结果呈阴性但仍未接种中共病毒疫苗的该国民众将无法进入酒吧和餐馆。
+另据相关数据显示，截至平安夜下午，当天已有627班美国境内及境外往返航班因疫情被取消，其中，美联航和达美航空的航班数总计超过一半。而美联航在其内部的一份备忘录中明确，奥密克戎变种病毒已经对该航空公司的机组和运营人员产生了直接影响。
 
-据官方统计的数据，意大利卫生部当天一共报告了超过四万四千例新增中共病毒确诊病例，这也是自中共病毒爆发以来意大利报告的最高数字。另外，在过去的24小时内，意大利共有168 人因感染中共病毒死亡。
+此外，在世界范围内，由于奥密克戎快速扩散带来的影响，全球当天共有两千两百九十五个航班被取消，而此前一天也有超过两千个全球航班被取消。
 
-有观察者认为，尽管意大利政府此次的限制措施遭遇了当地民众的严厉反击，但在如今奥密克戎变种病毒肆虐的情况下，政府丝毫没有放松限制的迹象，因此，双方的矛盾和冲突恐将持续。
+相关人员指出，中共病毒奥密克戎变种毒株目前在全世界迅速扩散且在各地持续爆发疫情，民众还需对此做好防范措施。
 
-参考链接：[Italy to Slightly Tighten Virus Curbs as Cases Hit Record High](https://www.bloomberg.com/news/articles/2021-12-23/italy-to-marginally-tigthen-restrictions-as-omicron-spreads)
+参考链接：
+1）[Hundreds more U.S. flights canceled on Christmas Day due to Omicron spread](https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/)
+2）[December 23 Omicron variant and coronavirus news](https://edition.cnn.com/world/live-news/omicron-variant-coronavirus-news-12-23-21/index.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：童谣 
-编辑：飞虹
+总编：Irene木木，飞虹
+编辑：Irene木木，飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

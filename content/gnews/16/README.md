@@ -2,29 +2,29 @@
 ---
 
 
-## 文贵大直播精要：大卫对HBO谎言的剖析（1222）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790418/)
+## GTV新闻访谈简报|2021年12月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1790428/)
 
-HBO这个女记者列了以下几点来污蔑诋毁七哥：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
-（1）搞个人崇拜；
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-25.png)
+文章仅代表作者本人观点，与Gnews无关
 
-（2）謠言散播者；
+视频参看：[2021.12.25早GTV新闻访谈](https://gtv.org/broadcast/watch/61c71cd700f9a119180a738e)
 
-（3）腐败的双料间谍；
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-（4）传播阴谋论；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
-（5）利用SEC和GTV的官司来影响投资者的信心。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-此外，HBO还利用软件剪辑采访视频来丑化七哥，全是污蔑诋毁，手法很低级。HBO更不会谈CCP的邪恶、不谈病毒、不谈美国大选背后的阴谋。
-
-- 听写：神奇四侠
-- 简写：正道主義JACK(文傑）
-- 审核：舒平风
-- 发稿：神奇四侠
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
