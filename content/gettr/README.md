@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 1:59 AM (UTC)`
+
+Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story about the Terminator of CCP <br/>中国共产党终结者的故事
+![img](https://media.gettr.com/group49/origin/2021/12/25/01/123756da-64eb-d67f-907d-7168a7c7a29c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/25/2021 1:32 AM (UTC)`
 
 12/24/2021 Miles Guo: The first thing Isobel Yeung brought up in her interview was the accusation that the Whistleblowers’ Movement had lied about the origin of the CCP virus and the CCP’s plan to exterminate the white population, and this is the threat to the entire Chinese diasporas; I used myself as the bait to lure the enemy to interview me, and let’s see how Isobel Yeung would defend herself in court<br/><br/>12/24/2021 文贵直播：杨贝贝采访第一句就给爆料革命扣上了在病毒来源和中共灭白计划上撒谎的大帽子，这对全体海外华人就是威胁；七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩<br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-11]：<br/>‼️HBO’s unfounded accusation of Mr. Guo’s slandering “Wei Lei” without evidence. HBO again took out of context and edited the uncut interview to discredit Mr. Guo. In the uncut interview recovered, Mr. Guo has never actively attacked others and he pointed out that U.S. citizens have right to protest. <br/>** “Wei Lei” is a person who works for the CCP by infiltrating and spreading misinformation.<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-11】：<br/>‼️ HBO针对依法惩贼行动说郭先生在没有证据的情况下诋毁伪类，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，从未主动攻击他人，美国公民有权合法抗议。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
 ![img](https://media.gettr.com/group17/origin/2021/12/23/12/c4716ceb-d3f4-9d75-d54d-b6604ea91262/out.jpg)
-
----
-
-`@miles 12/23/2021 12:28 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-10]：<br/>‼️HBO-VICE’s deceptive editing showing Mr. Guo’s slandering “fake news”. Here is the uncut interview recovered. The so called “fake news” by Mr. Guo turned out to be all facts!  <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-10】：<br/>‼️ HBO-VICE断章取义进行混乱剪辑，诋毁郭先生散布虚假信息。还原当时的原始采访进行反击，所谓的“谣言”已成为血淋淋的事实！<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group37/origin/2021/12/23/12/f0a9c6aa-30b7-774b-d279-1c26a09fca3e/out.jpg)
 
 ---
 
