@@ -2,37 +2,55 @@
 ---
 
 
-## HBO Vice和Shorenstein Center -中共自导灭爆计画剧本
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1790614/)
+## 文贵大直播精要：1203
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790690/)
 
-**【深度报导】在HBO Vice Isobel Yeung记者骗取文贵先生和战友采访影片中，引述”郭文贵和美国右翼势力连结”的Graphika research。 Graphika, Jack Stubbs与facebook、NFL、TilTok、Google有合作，经笔者追查Graphika与哈佛Shorenstein Center 唐纳文（Joan Donovan）也有合作，[Shorenstein Center](https://shorensteincenter.org/)是中共长期赞助的对象。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Graphika-Shorenstein-Center-CCP-Vice.png)
-**根据The National Pulse曾参与班农战斗室主持人拉希姆·卡萨姆Raheem Kassam和娜塔莉·温特斯Natalie Winters [在2月13日国家脉动发表独家新闻](https://thenationalpulse.com/2021/02/13/harvard-shorenstein-center-ccp-ties/)撰写的文章中，揭露了哈佛大学肯尼迪学院肖恩斯坦研究中心，接受中共资助和军事相关的捐赠款事实，独家新闻指出肖伦斯坦中心是中共的长期赞助的对象，其中清大新闻学院董志军，新华社编辑李锡光，广播电视研究胡正荣等是由中共党员组成的多位肖伦斯坦中心研究员。**
+## 喜联储的数字银行
 
-**中共自导灭爆计划剧本**
+现在世界金融的泡沫已经超过了1917-1927年，但美国财政部和美联储依然试图维持这种疯狂的经济，即降低关税、恢复供应链、剥削中国人的劳动力，靠继续印钞票来维持美国人的高工资、低通胀。
 
-**根据[美国华盛顿邮报5月17日](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)**，引述哈佛大学薛斯汀或称肖伦斯坦中心(Shorenstein Center)中心科技与社会变化研究计划主任，唐纳文（Joan Donovan）的Graphika报告，说「[这是一份重要的鉴识分析，探讨富有且具有政治动机的人，操弄社群媒体之道。](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)」
+他们不愿接受数字货币，美国很多老牌金融家也站出来反对数字货币。尽管如此，数字货币的发展趋势是无法阻挡的。也许更多对数字货币的监管政策会被推出来，但数字货币对世界金融的影响是颠覆性的。
 
-该报导指出文贵先生和班农先生推动华裔在美国总统大选对共和党川普的支持，并宣称川普1月6日在美国国会大厦集会的计划和随后的袭击中，GTV 播放了现场直播的行动。
-该报导指出爆料革命在GTV、GNEWS和相关网站，散播扭曲不实资讯，主要打击对象是中共政治领导阶层和在西方的反中共异议份子(乱伦彪伪类、欺民贼)，包含新型冠状病毒病Covid-19来自中共是假消息，以及攻击Covid-19疫苗安全性，并报导喜马拉雅联盟和在美国、加拿大、澳洲和其他国家的喜马拉雅农场，支持郭文贵爆料革命的义工，透过Discord社群平台协调工作，在各大社群平台广泛发文。并指称GTV的投资问题。指称在滕彪家外抗议的战友，是在郭文贵的要求下到场，并说这些抗议活动一度演变为暴力，和推动使用未经证实的治疗羟氯喹来对抗Covid-19等。而这位唐纳文（Joan Donovan）就是曾经和哈佛甘迺迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）一同撰写”指责新冠状病毒COVID-19为人造是伪科学的文章”。该文章表示新冠状病毒来源于自然界，为中共释放新冠状生化病毒COVID-19洗白。
-HBO VICE Isobel Yeung採訪惡意剪接、斷章取義的編輯成documentary的滅爆影片-片段
-**新中国联邦战友看到****Joan Donovan****在华邮的报导，是不是和****HBO Vice Isobel Yeung****记者的影片有****90%****的相近之处，**文贵先生透漏Vice Media 2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。**Vice Media****背后由黑石、索罗斯和中共海外****BGY****特务单伟健组成**，单伟健曾带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，**单伟健从****TPG****离开后转战****PAG****香港太盟投资集团，****PAG****、****PAX****太盟亚洲机会基金、瑞寰资本****ARCH****背后正是中共海航王岐山。**
+数字银行相当于数字金矿，喜联储收购了一个美国的数字银行，其意义重大。喜联储的数字银行已拥有除贷款以外的所有牌照，将来由数字银行在各国合法登记后开展H-Pay业务。
 
-**中共藉由肖伦斯坦中心唐纳文（Joan Donovan）、华盛顿邮报、HBO Vice Isobel Yeung一系列的合作，大肆宣传诋毁爆料革命，目的就是要消灭文贵先生、爆料革命，将新中国联邦战友们都变成海外极端恐怖分子，并且用一国之力量打击文贵先生，这和中共在美国对文贵先生的67个法律诉讼背后，都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，这次文贵先生引蛇出洞、舍孩子套狼，都将向西方世界展示中共长期在背后布局的行动。**
+## 中（共）国的数字银行和黑帮经济
 
-本文仅代表个人立场
-**祈祷万佛万神加持文贵先生与新中国联邦战友**
-台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
+在中（共）国，数字银行是被银监会监管的，而银监会是把数字货币和法币连接起来的桥梁。中（共）国的数字货币有几个政治帮派：
 
-- [EXC: Harvard Center Attacking COVID Lab Theory Has Extensive Financial And Personnel Links With The Chinese Communist Party](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
-- 華郵[Chinese businessman with links to Steve Bannon is driving force for a sprawling disinformation network, researchers say](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)
-- [2021年12月22日 文貴大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
-- **\*\*\***[2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相 還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
-- [Republicans Want Twitter to Ban Chinese Communist Party Accounts. That’s a Dangerous Idea.](https://slate.com/technology/2020/04/republicans-want-twitter-to-ban-chinese-communist-party-accounts-thats-dangerous.html)
-- [Graphika Jack Stubbs https://graphika.com/](/graphika.com/)
-- [Shorenstein Center](https://shorensteincenter.org/)
+（1）赵长鹏控制的币安，其背后的老板是任职于人民银行的王岐山部下郭树清和周亮；
 
+（2）属于江家势力的上海银行行长范一飞；
 
+（3）李林控制的火币，属于孟建柱和孙立军。在中（共）国，各个常委家族还瓜分了所有的产业。
+
+比如：王岐山家族控制着养老、殡葬、金融，江泽民家族在过去控制着通信，而习近平现在有3把经济尖刀：
+
+（1）以国家的名义，把私人财富公有制化，再放入自己的家族的腰包；
+
+（2）用数字人民币消灭美元；
+
+（3）灭富豪，抢钱。
+
+## 马航飞机失事真相
+
+马航事件是中共孟建柱和江绵恒为掩盖他们活摘和移植人体器官真相，用飞机牵引技术对知情医学专家的杀人灭口。
+
+当时马航事件对美国和英国是一件大事！我在直播中说出这件事时，很多人都不相信。现在美国终于知道，爆料革命有能力掌握中共最核心的机密和情报。
+
+现在美国很清楚，中共能监控全球任何通讯设备，手机和电脑，雷达和WIFI ，能掌握全世界各种数据。中共打造了一个全世界的数据帝国。
+
+他们使用以色列最好的窃听软件zero speed。WhatsApp100%是不安全的，微信1000%不安全。这一切都向西方证明，中共有干掉世界的野心。他们不仅敢干，也有这个技术和能力。现在全世界放病毒就是证明这一点。
+
+## 马航飞机的失事与习近平的不敢外访
+
+WhatsApp100%是不安全的，微信1000%不安全。
+
+这一切都向西方证明，中共有干掉世界的野心。他们不仅敢干，也有这个技术和能力。现在全世界放病毒就是证明这一点。
+
+马航事件是中共内部各派系背后权力的较量。习近平曾在北戴河会见中共军方官员时，特意询问有关马航失踪事件报告里是否还有没掌握的信息。这位知情军方人士沉思许久只说出请习近平务必要注意安全。
+
+习近平听后感到震撼随即下令撤换掉所有参与中国大飞机项目并涉及马航事件的所有人员。他们全部被限制出境。 在最近的一两年，习近平也格外注意安全，不敢露面。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
