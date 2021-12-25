@@ -2,40 +2,24 @@
 ---
 
 
-## 戳穿VICE谎言的布置在采访完就已经开始只等中共出手
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789267/)
+## 拜登签署两党法案，禁止进口强迫劳动生产的中共国商品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789273/)
 
-**郭文贵先生：**前天在我们没有播出全集采访的，就在这个桌子上，大家都看了对方的采访，我们遵守当初的约定，Isobel Yeung，她不放我们不放，我们当时的条件是现场要放摄像机，我们放摄像机了，对方你看多次尝试阻挡我们的镜头，你看到没有，你看挡来挡去好多次，就是对方的摄影师、对方的团队，很坏的！
+#### 翻译/撰稿：黃金精神
 
-而且我们中间是有一段没有录上的，现在我都怀疑这个没录上，到底是什么技术让没录上，只有一段儿没录上的，不是百分之百，很吓人的！
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-126.png)图片来源：看中国
+12月24日据福克斯新闻（Fox News）报道，拜登总统周四签署了两党立法，禁止从中共国新疆维吾尔自治区进口产品，并制裁在该地区从事强迫劳动的个人。拜登政府在新疆维吾尔族遭受数月迫害的紧张局势之后作出决定，国务院已将这种迫害定性为种族灭绝。这代表了美国政府惩罚中共国侵犯人权的最新尝试。
 
-另外一个，就是这个录完以后，我就把它发给了大卫和木兰，我说你们开始准备加字幕吧，然后把中间对方撒谎的事儿做好对比，咱已经开始了，是吧！就如果没有这个对比、没有这个录像机一切就完了。
+拜登周四在推特上说：“美国将继续使用我们掌握的一切工具，确保供应链不使用强迫劳工，包括中共国的新疆和其他地区。”
 
-编辑整理：海贼王M.D.LUFFY；
+该法案由参议员马尔科·鲁比奥 （Marco Rubio，佛罗里达州共和党）和杰夫·默克利 （Jeff Merkley，俄勒冈州民主党）推动，并在参议院一致同意下通过。该法案包含一系列旨在加强1930年关税法第307条执行的条款。该法规定，强迫劳动生产的货物 “无权进入美国的任何港口”。
 
-字幕文件制作：小满；
+拜登在签署该法案时，承诺联邦政府将制定一项防止强迫劳动的进口战略。该法案还要求海关和边境保护局（Customs and Border Protection，CBP）承担这项禁令。
 
-视频制作及上传：Cindy；
+这项措施是在中共国周二宣布对美国官员进行制裁之后采取的，特别针对美国国际宗教自由委员会的成员。尽管中共国否认有不法行为，但它继续面临国际层面的审查。例如，美国和其他西方国家已经承诺外交抵制北京奥运会。
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Biden signs bipartisan bill to block importation of Chinese goods produced through forced labor](https://www.foxnews.com/politics/biden-bill-uyghurs-china-forced-labor)
 
  
 

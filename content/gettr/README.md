@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 8:38 AM (UTC)`
+
+12/24/2021 Miles Guo: Without the video recording of the entire interview, Isobel Yeung would have achieved her evil goals; the questions she raised were tantamount to convicting me. She carefully picked a piece of crap like Teng Biao and Pang Xie (An Ruizheng) to smear the Whistleblowers’ Movement. Such an extremely vicious move is the same as what the CCP did during the anti-Chinese massacre in Indonesia<br/><br/>12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪，她精心挑选了滕彪、螃蟹这样的垃圾来诋毁爆料革命，这和当年印尼排华如出一辙，极其阴歹<br/>
+![img](https://media.gettr.com/group48/getter/2021/12/25/08/ff909c35-2cac-91e1-5742-e2e5c9165f9b/out.jpg)
+
+---
+
+`@miles 12/25/2021 8:32 AM (UTC)`
+
+12/24/2021 Miles Guo: The tabloids attacking the Chinese before the Indonesian anti-Chinese mass killings were all funded by the Chinese, while the atrocities during the anti-Chinese massacre are rarely mentioned in the world; Isobel Yeung, VICE, and HBO, who are vicious and insidious, have pushed us to the brink of the next anti-Chinese tragedy<br/><br/>12/24/2021 文贵直播：印尼排华前攻击华人的小报都是华人自己拿钱支持的，而印尼排华的惨剧在世界上却几乎无人提起；邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步<br/>
+![img](https://media.gettr.com/group34/getter/2021/12/25/08/2dca3122-5571-eadc-3a97-14e83778ce90/out.jpg)
+
+---
+
 `@miles 12/25/2021 8:23 AM (UTC)`
 
 12/24/2021 Miles Guo: Having spent a year preparing the scheme, HBO/VICE viciously intends to smear the Whistleblowers’ Movement as the cult and the group of terrorists interfering and influencing the US politics by having Isobel Yeung ask questions to set up traps in conjunction with the CCP’s propaganda tactics. This couldn't be more sinister!<br/><br/>12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹啊！<br/>
@@ -140,20 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 12/22/2021 Miles Guo: The CCP’s National Security Commission ordered the Beijing State Security Bureau to have the Emergency Task Force handle the Peng Shuai incident by using negotiation experts and the despicable tactics such that they sometimes posed threat and sometimes pretended to be weak; the CCP ordered that the Peng Shuai incident must be put to an end before the Winter Olympics at all costs!<br/><br/>12/22/2021 文贵直播: 国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件；中共指示不惜一切代价要在冬奥会之前务必平息此事！<br/>
 ![img](https://media.gettr.com/group35/getter/2021/12/23/15/13a9b9ef-e051-da4b-e5be-63e37ec6b3ca/out.jpg)
-
----
-
-`@miles 12/23/2021 2:40 PM (UTC)`
-
-12月23号，尊敬的战友们大家好：为了给大家带来更好的用户体验，@gfashion 网站进行了升级。我们已经给大家发送了邀请邮件（见下图），请所有的客户收到后尽快根据相关指南重新激活您的账户。没有收到邀请邮件的客户请查看您的垃圾邮箱。<br/><br/>再次感谢各位一路以来对G|Fashion的支持与厚爱！如果您在激活账户中遇到任何问题，请与G|Fashion客服团队联系：customer.service@gfashion.com<br/><br/>G|Fashion客服团队<br/>
-![img](https://media.gettr.com/group2/getter/2021/12/23/14/b2b84914-b85f-a3ef-6a25-107da8cbc048/22d0938ad2035af01df815a302a1eeee.jpg)
-
----
-
-`@miles 12/23/2021 1:34 PM (UTC)`
-
-The Interview by #IsobelYeung from #HBO #VICE was a Premeditated Plan to Defame Mr. Miles Guo [Part-15]：<br/>🔥 Mr. Miles Guo has revealed the evil plans of the CCP to become world hegemony over the past 4 years. He has warned the world multiple times that the darkness has arrived. With his intelligent information and his 30-year knowledge of the CCP, so far, all his revelations have been proven and testified to be true.<br/>‼️HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【 HBO VICE ISOBEL YEUNG的采访是对郭文贵先生有计划的诽谤 Part-15】：<br/>🔥 新中国联邦创始人郭先生带领的爆料革命向西方世界揭露中共CCP的邪恶并多次发出警告，最终得到验证，展示了新中国联邦和郭先生的真实实力。<br/> ‼️HBO采访郭先生的记者ISOBEL YEUNG亲共背景证明。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link: https://gtv.org/video/id=61c3bb8900f9a119180832eb
-![img](https://media.gettr.com/group23/origin/2021/12/23/13/c392c6f1-b0a3-e6ba-cd83-8ab32a69dd43/out.jpg)
 
 ---
 
