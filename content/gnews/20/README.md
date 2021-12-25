@@ -2,10 +2,10 @@
 ---
 
 
-## 赵立坚：川普是美国疫情惨状的第一责任人
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790929/)
+## 欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790939/)
 
-12月20日，针对川普要求中共国为疫情支付60万亿美元赔款的提问，赵立坚表示，川普是美国这场可怕疫情的第一责任人。
+12/20/2021 欧洲各国政府借助奥米炕病毒大肆推广疫苗强制接种已经引发强力民意反弹
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 第三艘佛州游轮爆发COVID-19疫情
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1790983/)
+## 2021年加密货币交易所基金（ETF）资产规模达630亿美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791017/)
 
-翻译：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-15.jpg)2021年12月21日，在佛罗里达州北迈阿密，诺米健康公司的员工在排队检查测试COVID-19。(美联社图片)
-***声明：下文所提及的疫苗是指”******COVID-19******疫苗或新冠疫苗”，中共病毒是指”新冠病毒******COVID-19******”。***
+**据《Baystreet》工作人员2021年12月22日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ax2nm-o5h58.jpg)**图片源自Baystreet**
+随着以加拿大为首的世界各国正式认可这种投资工具，加密货币交易所基金 (ETF) 在2021年吸纳资金创下新高。
 
-嘉年华在一份声明中说，嘉年华自由号游轮上数量不详的乘客和船员感染了病毒，因此该船被拒绝进入博内尔岛和阿鲁巴岛。
+根据《彭博社》汇编的数据，全球加密货币ETF数量在过去一年增长一倍多，从2020年底的35个增至80个。
 
-这艘船有2,497名乘客和1,112名船员，原计划在8天的巡航后于周日返回迈阿密。嘉年华表示，乘客被要求接种疫苗，他们在上周六出发前接受了测试。
+2021年，加密货币ETF持有的资产飙升至630亿美元，而年初仅为240亿美元。
 
-声明说：“嘉年华自由号遵循了所有协议，船上有少数人因COVID检测呈阳性而被隔离，我们的协议预计到了这种可能性，我们在必要时实施这些协议，以保护我们的客人和船员的健康和安全。”
+加拿大是首批批准和监管加密货币ETF的国家。然而，美国批准的 ProShares比特币策略ETF (BITO)已被证明是最受欢迎的加密货币ETF，在10月份运营的第一个月就吸引了12.6亿美元。
 
-船上的乘客阿什利·彼得森在推特上分享了一张12月22日船长的信的照片，信中对无法在阿鲁巴和博内尔停靠表示道歉。信中说，乘客将获得每个房间100美元的船上代金券，并且为未进行的行程退款。
+分析师预测，随着数字货币的持续流行，年轻的散户投资者将在2022年继续注资加密货币基金。
 
-这是本周第三次爆发的事件，影响了嘉年华和皇家加勒比运营的从迈阿密和劳德代尔堡出发的游轮。
+**文章来源**：[https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021](https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021)
 
-新闻来源 : [ntd][3rd Florida-Based Cruise Ship Has COVID-19 Outbreak](https://www.ntd.com/3rd-florida-based-ship-has-outbreak-state-cases-hit-record_718703.html)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,62 +2,34 @@
 ---
 
 
-## 日本将不派官方代表团出席北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791013/)
+## 令人震惊的全球金融体系崩溃的“模拟”演习
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1791031/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122505-1.jpg)图片：来自路透社
-摘要翻译：
-日本《共同社》12月24日报道：
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip06-7.png)图片来源：austincountynewsonline
+本月早些时候， 路透社发表 了一份报告，但几乎没有引起美国公众足够重视——其内容肯定会引起大多数关注更多“全球灾难”爆发的人的警觉。至少这是一个奇怪的时机：在最近的大流行导致全球供应链中断的情况下， 强大的国家和银行机构决定聚在一起应对全球经济崩溃的情景。
 
-《共同社》——日本首相岸田文雄（Fumio Kishida）周五（12月24日）表示，日本将不派官方代表团参加即将举行的北京冬奥会，这一决定被视为与美国主导的对中共国人权记录的外交抵制相一致。
+该报告[称，](https://www.nasdaq.com/articles/exclusive-imf-10-countries-simulate-cyber-attack-on-global-financial-system) 以色列领导了“一场由**10**个国家组成的针对全球金融体系的重大网络攻击的模拟， 旨在加强合作，以有助于最大限度地减少对金融市场和银行的任何潜在损害。” 据一位参与的官员称，此模拟活动是以一个灾难性的场景为中心，其中“黑客比我们领先 10 步”。
 
-但日本运动员将如期参加二月份的运动会。岸田告诉记者，日本将派出参议院议员同时担任东京奥运组委会主席的桥本圣子，及今年夏天举行的日本残奥会的另外两人。
+此次演习被称为“集体力量”，在耶路撒冷（从原拟定地点迪拜搬迁后）举行，并且包括了美国、英国、阿拉伯联合酋长国、奥地利、瑞士、德国、意大利、荷兰和泰国都参加了此次演习。另外，国际货币基金组织（**IMF**）、世界银行（**World Bank**）和国际清算银行（**Bank of International Settlements**）的官员们也参与其中。
 
-日本政府放弃了派遣官方代表参加北京奥运会的计划，这显然是因为中共在新疆西部地区和香港的人权状况几乎没有改善有关。
+金融-地缘政治游戏模拟的场景是，敏感数据在暗网中被泄露，再加上“假新闻”报道在社会上疯传，导致全球市场崩溃，银行随之出现挤兑。此外，据路透社报道，该模拟设想了一系列针对全球外汇系统的破坏性黑客攻击，这也破坏了进口商和出口商之间的交易。
 
-“中共国能确保自由、基本人权和法治等普世价值是很重要的”自去年10月上任以来一直将人权作为日本外交主要支柱的岸田说。“我们一直在向中共国传达我们的立场”首相在他的办公室告诉记者。他补充说：“我们综合考虑了各种因素后做出了决定”并指出奥运会是对和平与体育的庆典。
+该模拟设定了一个持续约一周半的严重危机期。事件由一部电影和解说员引导，与快速移动的[“现场”事件](https://www.nasdaq.com/articles/exclusive-imf-10-countries-simulate-cyber-attack-on-global-financial-system)相关…
 
-内阁官房长官松野博一（Hirokazu Matsuno）告诉记者，日本不会使用“某个特别的名词”来解释此举，有些人认为这是外交抵制。
+此外，报告还详细介绍了在以色列财政部主持下进行的模拟:
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip07-8.png)图片来源：austincountynewsonline
+叙述者说：“银行正在呼吁以多种货币提供紧急流动性援助，以制止混乱，因为对手方撤回其资金并限制获得流动性，使银行陷入混乱和毁灭;与会者讨论了应对危机的多边政策，包括协调银行假期、债务偿还宽限期、SWAP/REPO 协议,以及协调与主要货币脱钩。”
 
-政府面临着执政的自民党一些保守派成员的呼吁，敦促其加入以美国为首的对奥运会的外交抵制。然而，由于中共国是日本的主要贸易伙伴，商界领袖们寻求一种更谨慎的办法。
+从表面上看，为期十天的“成功”演习是为了让每个国家准备好控制来自某种重大网络事件或威胁的全球破坏。关键的启示是，只有通过快速的全球合作和国家间的公开交流，才有机会防止全球（或者说西方主导的）金融体系的全面崩溃。
 
-中共国周五的反应明显温和，同时避免了对日本的猛烈抨击，因为岸田政府一直避免说中共在人权问题上追随美国和其他民主国家的脚步。但外交部发言人赵立坚呼吁日本支持北京奥运会，同时欢迎日本派出桥本及其运动员的决定。赵立坚在北京告诉记者，日本应该兑现支持对方举办奥运会的承诺。
-
-据消息人士透露，日本首先宣布这一消息的是松野而不是岸田发布的，因为它试图不直接挑衅中共国领导人，尤其是在日中两国将于2022年庆祝邦交正常化50周年之际。
-
-另外两位将出席奥运会的人是日本奥委会主席山下泰裕（Yasuhiro Yamashita）和日本残奥委员会主席森和俊（Kazuyuki Mori）。
-
-政府显然认为桥本的出席将与中共国取得平衡，因为中共国在今年夏天的东京奥运会上派出了中共国体育总局局长苟仲文。
-
-此外，日本不会派遣日本体育局局长室伏广治（Koji Murofushi），松野称，在严格的新冠病毒限制运动的情况下，室伏无法亲自鼓励日本运动员。
-
-前首相安倍晋三称岸田的决定是“非常好的决定”。“这意味着日本在中共国人权状况的斗争中加入了志同道合的国家”，安倍在与岸田会晤后一天告诉记者。
-
-美国和澳大利亚、英国和加拿大等其他国家也宣布了类似的措施。中共批评美国和其他国家关于北京奥运会上的行动，称将体育政治化有违《奥林匹克宪章》的精神。一位白宫官员说：“我们会让每个国家就自己的决定发表意见。”
-
-**简评：**
-
-中共曾经威胁日本必须参加冬奥会，否则将关闭在华2万家日本企业。可见作为美国盟友的日本，在中共国又是日本最大的贸易伙伴国的情况下，选边站难度何其大。也正因为这个原因，日本对于如何参加北京冬奥会选择了一个较其它西方国家更为软性的立场。
-
-正如文贵先生分析的一样：不抵制，也不派官方代表，两面讨好，都不得罪，这正是勾兑的结果。虽然我们看到的是日本政府用的是小聪明来权衡中美双方，两边都不得罪，但日本政府不派官方代表团前往北京冬奥会，表明日本事实上加入了美国主导的对北京冬奥会进行外交抵制行动。
-
-新闻链接：[Japan will not send senior officials to Beijing Olympics](https://english.kyodonews.net/news/2021/12/674ae8ca3073-breaking-news-japan-eyes-not-sending-senior-officials-to-beijing-olympics-sources.html)
-
-*翻译/简评：Brianchow*
-
-*校对：clau*
-
-
+**新闻来源**：[austincountynewsonline.com] [IMF, WORLD BANK & 10 COUNTRIES HELDALARMING “SIMULATION” OF GLOBAL FINANCIAL SYSTEM COLLAPSE](https://austincountynewsonline.com/imf-world-bank-10-countries-held-alarming-simulation-of-global-financial-system-collapse/) | 发布时间：2021年12月21日｜
 
 * * *
 
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+***发稿：信心满满***
 
-
-Edited by：【Himalaya London Club UK】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
  
 

@@ -15,131 +15,131 @@
 
 ---
 
-### [研究发现中共病毒会影响精子质量 长期影响未知](/content/gnews/1/README.md)
+### [传宗接贷，贷贷相传 吉林为鼓励生育提供婚育消费贷](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [【#G时新闻】无尽的源头之毒——Omicron后中共要再放新病毒！](/content/gnews/2/README.md)
+### [研究发现中共病毒会影响精子质量 长期影响未知](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [浅谈后疫苗时代（二）：共同信仰](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【#G时新闻】无尽的源头之毒——Omicron后中共要再放新病毒！](/content/gnews/4/README.md)
  ` G-时新闻`
 
-### [第197期玫瑰看新闻-币圈新闻](/content/gnews/3/README.md)
+### [第197期玫瑰看新闻-币圈新闻](/content/gnews/5/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/4/README.md)
+### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/6/README.md)
  ` 丁过`
 
-### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/5/README.md)
+### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/7/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/6/README.md)
+### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/8/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第197期玫瑰看新闻-疫情新闻](/content/gnews/7/README.md)
+### [第197期玫瑰看新闻-疫情新闻](/content/gnews/9/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中国30余城发放消费券的实质](/content/gnews/8/README.md)
+### [中国30余城发放消费券的实质](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英國數據顯示，接種兩劑及三劑疫苗的人們更有可能感染 Omicron變種病毒](/content/gnews/9/README.md)
+### [英國數據顯示，接種兩劑及三劑疫苗的人們更有可能感染 Omicron變種病毒](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [铁血社区永久关闭，中共战狼何去何从？](/content/gnews/10/README.md)
+### [铁血社区永久关闭，中共战狼何去何从？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Mitre 公司与CCP一起推出了“疫苗凭证项目”](/content/gnews/11/README.md)
+### [Mitre 公司与CCP一起推出了“疫苗凭证项目”](/content/gnews/13/README.md)
  ` wenwu`
 
-### [Omicron激增下CDC缩短了医护人员的隔离时间](/content/gnews/12/README.md)
+### [Omicron激增下CDC缩短了医护人员的隔离时间](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [令人震惊的全球金融体系崩溃的“模拟”演习](/content/gnews/13/README.md)
+### [令人震惊的全球金融体系崩溃的“模拟”演习](/content/gnews/15/README.md)
  ` wenwu`
 
-### [2021年加密货币交易所基金（ETF）资产规模达630亿美元](/content/gnews/14/README.md)
+### [2021年加密货币交易所基金（ETF）资产规模达630亿美元](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本将不派官方代表团出席北京冬奥会](/content/gnews/15/README.md)
+### [日本将不派官方代表团出席北京冬奥会](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [第三艘佛州游轮爆发COVID-19疫情](/content/gnews/16/README.md)
+### [第三艘佛州游轮爆发COVID-19疫情](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/17/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/19/README.md)
  ` wenwu`
 
-### [欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹](/content/gnews/18/README.md)
+### [欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [冬奥感染不可避免，德病毒学家表示如今“最大的担忧”是中共国](/content/gnews/19/README.md)
+### [冬奥感染不可避免，德病毒学家表示如今“最大的担忧”是中共国](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [赵立坚：川普是美国疫情惨状的第一责任人](/content/gnews/20/README.md)
+### [赵立坚：川普是美国疫情惨状的第一责任人](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彼得·纳瓦罗：福奇手上沾了太多的鲜血](/content/gnews/21/README.md)
+### [彼得·纳瓦罗：福奇手上沾了太多的鲜血](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [通胀在世界各地影响的调查实例](/content/gnews/22/README.md)
+### [通胀在世界各地影响的调查实例](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/content/gnews/23/README.md)
+### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [关于强制接种新冠疫苗，拜登政府都说谎了！](/content/gnews/24/README.md)
+### [关于强制接种新冠疫苗，拜登政府都说谎了！](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [荷兰议会议员罗伯特·罗斯发声抵制疫苗强制令](/content/gnews/25/README.md)
+### [荷兰议会议员罗伯特·罗斯发声抵制疫苗强制令](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新的研究表明mRNA疫苗助长奥密克戎的感染](/content/gnews/26/README.md)
+### [新的研究表明mRNA疫苗助长奥密克戎的感染](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [种族灭绝下的奥运会，习近平不惜一切让这些举办下去](/content/gnews/27/README.md)
+### [种族灭绝下的奥运会，习近平不惜一切让这些举办下去](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [福克斯新闻：一在任美国参议员祝贺美国共产党成立102周年](/content/gnews/28/README.md)
+### [福克斯新闻：一在任美国参议员祝贺美国共产党成立102周年](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共以牙还牙对四名美国官员进行反制](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新州州长多米尼克-佩罗特建议避免非必要PCR测试](/content/gnews/30/README.md)
+### [新州州长多米尼克-佩罗特建议避免非必要PCR测试](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播精要：1205](/content/gnews/31/README.md)
+### [文贵大直播精要：1205](/content/gnews/32/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：1203](/content/gnews/32/README.md)
+### [文贵大直播精要：1203](/content/gnews/33/README.md)
  ` 神奇四侠`
 
-### [2021年12月24日文贵大直播简报](/content/gnews/33/README.md)
+### [2021年12月24日文贵大直播简报](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/34/README.md)
+### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/35/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年12月24日 郭文贵先生直播 全文字版](/content/gnews/35/README.md)
+### [2021年12月24日 郭文贵先生直播 全文字版](/content/gnews/36/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/36/README.md)
+### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/37/README.md)
  ` YALUN 亚伦`
 
-### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/37/README.md)
+### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/38/README.md)
+### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播精要：1210](/content/gnews/39/README.md)
+### [文贵大直播精要：1210](/content/gnews/40/README.md)
  ` 神奇四侠`
 
-### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/40/README.md)
+### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/41/README.md)
+### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
-
-### [12/25/21 香港快讯 岭大平安夜移走六四浮雕 明年元旦开始每日升「国旗」](/content/gnews/42/README.md)
- ` 英喜-粵語組`
 
 ### [平安夜感悟](/content/gnews/43/README.md)
  ` 喜马拉雅农场新西兰站`
