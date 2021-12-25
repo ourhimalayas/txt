@@ -2,14 +2,12 @@
 ---
 
 
-## 2021年12月24日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1790621/)
+## 泽连科医生：制造这个生物武器的人同样创造了解毒剂
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.24-1.png)
-【参考链接】[https://gettr.com/streaming/pkjcxzd8f5](https://gettr.com/streaming/pkjcxzd8f5)
+12/22/2021 泽连科医生：制造这个生物武器的人同样创造了解毒剂，有效治疗手段的讨论为此而被噤声
 
-文案提供：牛小妹 / 回响 / Ermat
-制作：艾伦
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
