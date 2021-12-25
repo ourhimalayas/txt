@@ -2,10 +2,10 @@
 ---
 
 
-## 关于强制接种新冠疫苗，拜登政府都说谎了！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790904/)
+## 赵立坚：川普是美国疫情惨状的第一责任人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790929/)
 
-关于强制接种新冠疫苗，拜登政府都说谎了！
+12月20日，针对川普要求中共国为疫情支付60万亿美元赔款的提问，赵立坚表示，川普是美国这场可怕疫情的第一责任人。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
