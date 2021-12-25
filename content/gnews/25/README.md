@@ -2,46 +2,44 @@
 ---
 
 
-## 瑞士将公投反对新冠疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789783/)
+## 【辞典词条】文贵谈养生
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789887/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编者按：【辞典词条】指《新中国联邦词典》词条，是东京樱花团面向GNEWS推出的一档专栏内容。本文摘选自《新中国联邦词典》相关词条，专栏目的是希望更多战友关注《新中国联邦词典》编撰。《辞典》中词条的内容会不断更新、优化和调整，想查看有关本词条的最新信息，请访问《新中国联邦辞典》并【添加到收藏夹】。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-59.jpg)
+在2022.12.12直播中，[郭文贵](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)先生谈到养生。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-11-28T140656Z_715067909_RC2O3R96SPMW_RTRMADP_3_HEALTH-CORONAVIRUS-SWISS-VOTE.jpg)
+- 不要懒生。
+- 洗鼻子，洗眼睛
+- 清洁牙齿，刷牙、洗牙
+- 五分钟让自己身体平静下来。打坐、静瑜伽、冥想，练法轮功，都可以让思想放空。
+- 不要吃太多，所有的累都是吃出来的，
+- 健身
+- 带着防护眼镜看电子设备
+- 打电话应该用蓝牙耳机，电话远离身体，尤其是头。
+- 12点前一定要睡觉
+- 不要有抱怨
+- 学会爱别人，更要爱自己
+- 不要在乎别人怎么说，只在乎自己怎么做。
 
 
- 
-图片来源： www.aljazeera.com
+# 打坐
+
+[郭文贵](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)先生亲身演示[打坐](https://www.nfscdict.com/%E6%89%93%E5%9D%90)视频[\[1\]](https://www.nfscdict.com/%E6%96%87%E8%B4%B5%E8%B0%88%E5%85%BB%E7%94%9F#cite_note-1)
+
+# 参考资料
+
+1. 这是七哥2017年4月打坐的珍贵视频！三年半后，他公开了自己与天地连接和快速休息放松，补充能量的秘诀！ [https://gettr.com/comment/c9t6lva143](https://gettr.com/comment/c9t6lva143)
 
 
-#### 编译：小红帽
+词条原文链接：
 
-根据自然新闻12月24日报道， **瑞士自由运动（MLS）已经收集了12.5万个签名（比要求的多出了2.5万个签名），以投票反对新冠（Covid-19）疫苗强制令。**
+[文贵谈养生](https://www.nfscdict.com/%E6%96%87%E8%B4%B5%E8%B0%88%E5%85%BB%E7%94%9F)
 
-如果投票获得通过，将禁止*所有*未经个人同意的疫苗接种和植入物。这意味着接种疫苗将始终保持自愿，永远不能强制。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-与美国不同，瑞士每年会举行几次公投，公民可以通过收集签名来对某一个问题进行请愿投票。如果达到门槛，那么国家就会对其进行投票。
-
-在这种情况下，瑞士人正试图在新冠疫苗强制令到达他们的家门口之前抢占先机，就像邻国德国和奥地利所做的那样。
-
-瑞士法律目前允许强制性新冠疫苗接种政策–尽管该政策目前还不存在。全民公投将取消这一规定，并禁止在瑞士强制接种新冠疫苗。
-
-即将上任的总统伊格纳齐奥·卡西斯（Ignazio Cassis）表示，他只会考虑将强制接种新冠疫苗“作为最后的手段”来遏制新冠病毒的传播。这一点过于开放，这就是为什么瑞士人试图在它有机会成为现实之前就加以禁止。
-
-“有关人员不得因拒绝接种疫苗而受到惩罚，也不得遭受社会或职业上的不利影响，”该倡议指出。
-
-这次公投不仅包括新冠疫苗的接种，还包括所有“注射入人体内的其他疫苗，芯片和数字信息”。
-
-新闻来源：[Switzerland to hold vote against mandatory covid vaccination policies – NaturalNews.com](https://www.naturalnews.com/2021-12-24-switzerland-vote-against-mandatory-covid-vaccination-policies.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

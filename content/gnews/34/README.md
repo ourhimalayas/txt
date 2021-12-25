@@ -2,48 +2,41 @@
 ---
 
 
-## 中共12家纺织协会反对美国制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789501/)
+## 郭先生谈GNews未来的三大核心价值
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789608/)
 
-撰稿：东京樱花团丨盐和光
-![](https://lh3.googleusercontent.com/ocAcrt5GHM4j3E6tNPlKmvWLvLsbJfWORl5W8wVe2aQKWtqKVJxvGcAZFQC0ENCdTjC2Fo2uRrM7obX6rD1RTsobBbpAGuTLa0GtJIikIOxSUjJ_PEeDvaYDB2w8ddmQhXUBURrT)[*图片来源*](https://images-news.now.com/newsimage/NewsImage/XJ-PC-211225-13.jpg)
-12月25日中国纺织经济信息网报道，中国纺织工业联合会及12家行业协会发布共同声明。声明称，当地时间12月23日，拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的“H.R.6256涉疆法案”，纺织产业界愤慨，12家协会分别是：
+作者：纽约香草山文艺部 宁文静
 
-中国纺织工业联合会
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国棉纺织行业协会
 
-中国毛纺织行业协会
 
-中国麻纺织行业协会
+12月24日，郭文贵先生在直播中阐述了GNews作为情报、信息交流平台，其将在未来的三大核心价值是：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-25-at-8.38.38-PM.png)
+- 首先，GNews将是经由AI技术来快速的做信息筛选和精准的分类，以实现强大的搜索和推送功能。
+- 其次，GNews将是一个情报信息交易市场，西方世界和国内同胞在这里可以互相分享最真实、最迅捷的信息。
+- 最后，GNews一定会是一个最真实、可以被全世界精英所相信依赖的、以人为本、有智慧和有良知的跨领域智库。它会作为一个精神层面的沟通平台，也将是不分种族、文化和信仰的交流平台。
 
-中国丝绸协会
 
-中国化学纤维工业协会
+郭先生强调，在G系列中，GTV是王者，GCLUB是通行证，也是最初版本的护照，GFashion、盖特是沟通西方的桥梁，而GNews则将同上述各项目错层经营、互通有无。为此，GNews将运用量子科技、智慧和实力，打造出属于新中国联邦的、具有独特个性和卓越品质的华人发声平台。
 
-中国印染行业协会
+参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)@03:46:45
 
-中国针织工业协会
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-中国家用纺织品行业协会
+总编：童谣
+编辑：Irene木木
+编辑/校正/发稿：我不在这里
 
-中国长丝织造协会
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-中国产业用纺织品行业协会
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国纺织机械协会
-
-中国服装协会
-
-新疆棉以绒长、品质好、产量高著称于世。土壤、气候条件与其他地方不同，最多可达到18个小时以上的光照 。2020/2021年度新疆棉产量520万吨，占国内产量比重约87%，占国内消费比重约67%。
-
-由于中共秘密建立集中营，强迫劳动、债务劳工、契约劳工等奴役工人工作，给中共带来大量外汇，导致多个国家与地区的政府已对来自新疆地区的产品实行限制。拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的涉疆法案，对中共的制裁会带动世界各国政府联合抵制孤立中共。
-
-新闻来源：[**中国纺织工业联合会及12家协会共同声明：反对美国涉疆制裁**](https://mil.news.sina.com.cn/dgby/2021-12-25/doc-ikyakumx6302100.shtml)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

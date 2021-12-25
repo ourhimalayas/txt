@@ -2,27 +2,26 @@
 ---
 
 
-## 美航司人员短缺 圣诞前夜取消数百航班
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789870/)
+## 日本东京开始全面免费检测中共病毒，中共依然在割韭菜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789950/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-38.png)
-图片来源： newsweek.com
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-24.png)
+图片来源
 
-据“零对冲”网12月24日早报， 截至当日美东早8点，美国各航司已经取消了450个航班，包括169个美联航（United）和127个达美（Delta）的航班，导致大量受影响的旅客进退两难。
+【TBS新闻】12月25日报道，日本东京今日将启动对中共病毒（COVID-19）的免费测试计划。对于没有发烧或其他症状但担心感染的东京居民可以进行PCR测试或抗原测试。
 
-按“航班跟踪FlightAware”网的数据，圣诞前夕全球取消航班总计已达3000次，旅客们在出发前最后一刻忽然接到的消息称，各大航司因新冠疫情导致了人员短缺，不得不取消航班。美国有线电视新闻CNN得到了美联航的一份内部工作文件，记录了本周奥米克戎病例在全美激增，直接影响了机组及运营人员的上岗数；达美也透露受到了奥米克戎病例激增的影响。
+今天，在东京的12个测试机构举行了免费测试，许多人从上午开始就排队等候。该活动将持续到下月底，市政府的目标是每天进行3万次测试，并在年底前在东京的180个，包括药店等地点提供测试。
 
-疫情导致人员短缺、航班被取消的情况，在美国过去的几个月里屡见不鲜。8月就曾有美国航空（American Airlines）和精神航空（Spirit）因机组人员短缺、临时取消数百次航班，大量受影响的旅客涌上推特发泄愤怒；10月间西南航空曾在4天内取消了近3100次航班；而12月仅21日下午，就再有超过800次航班被宣布取消，到账部分受影响的旅客不得不滞留机场几天……接下来的周末和假日，可能还会有更多的航班被取消。
+与东京日均3万人次测试并增加检测机构地点为目标的免费测试相比，中共除了大排查（不考虑天气、民众是否便利等情况）免费以外，任何情况都需要到医院或是检验机构自费检测，竟然还存在收费价格不统一的情况！一个是以资本主义为价值观的民主社会免费提供测试，一个是号称以“为人民服务”为宗旨的共产社会，要收费才能提供测试，到底是那个是真正为老百姓的呢？一目了然！
 
-**新闻来源：**
+信息来源：
 
-1. [Christmas Eve Travel Chaos: Hundreds Of Flights Canceled Due To Staffing Shortages](https://www.zerohedge.com/markets/flight-cancellations-christmas-eve-upend-holiday-travel)
+**[東京都、きょうから無料の新型コロナ検査を開始](https://news.tbs.co.jp/newseye/tbs_newseye4435303.htm?1640419162179)**
 
-2. [“People Slept In Airports” – Spirit, American Cancel Hundreds of Flights Amid Staffing Shortage](https://www.zerohedge.com/markets/people-slept-airports-spirit-american-cancel-hundreds-flights-amid-staffing-shortage)
-
-3. [Angry American Airline Customers Hit With Travel Delays Due To Labor Shortage](https://www.zerohedge.com/markets/get-your-shit-together-angry-american-airline-customers-hit-travel-delays-due-labor)
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-2.jpg)
 
 
  

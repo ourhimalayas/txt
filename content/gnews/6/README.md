@@ -2,23 +2,10 @@
 ---
 
 
-## もし、郭文貴氏がVICEのインタビューを断ったら
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1790022/)
+## 12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1790153/)
 
-翻译：東京櫻花団/夏目&山竹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-31.png)
-2021/12/24 文貴ライブ配信
-
-郭文貴氏：もし、その時，私がVICEのインタビューを断ったら、記者のIsobel Yeung氏及びVICEは、どうするのでしょうか？　彼らは代わりに欧米の政治家やメディアの有名人にインタビューし、そのデータを「証拠」として、「爆料革命」をカルトや暴徒集団のように描き出すでしょう。そうなれば、我々は自衛する機会もなくなるでしょう。
-
-情報源：
-
-[https://gettr.com/post/pkgm7effe9](https://gettr.com/post/pkgm7effe9)
-
-校正：東京桜花団/闻雨🍀
-アップロード：東京桜花団/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-2.jpg)
-
+秘密翻译组-北美组
 
  
 
