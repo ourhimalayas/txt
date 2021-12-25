@@ -2,29 +2,62 @@
 ---
 
 
-## 加拿大疫情严峻单日感染再创新高
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788493/)
+## 灭共者之郭氏情报站（七）12月24日版
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1788552/)
 
-采编：文莱       编译撰稿：文明(添草灭共)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5.jpg)图片来源：CTV
+**出品：纽约香草山设计部**
 
 
-据【CTV新闻】12月22日报道，加拿大当天报告的新增“新冠病毒”感染14,988例，突破了该病毒疫情以来单日确诊的最高纪录。同时，最近七天的新增病例平均数也创下疫情以来10,486例的最高值。
 
-报道称，该国卫生部将感染人数激增的原因归咎于变体病毒“德尔塔”和“奥密克戎”的快速传播。并以“为避免卫生保健系统突然受到冲击”为由，在多个地区实施了更严格的限制政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-据悉，魁北克省政府在当天新增感染病例近万人的历史新高情况下，宣布了多项紧急应对措施，除了已关闭学校，健身房，影剧院等公共娱乐场所外，还包括：限制室内聚会人数不得超过6人；要求60岁以上人群和未接种疫苗者不得外出。同时，不再排除对顽固不化的拒绝接种者进行强制接种等。
 
-对此，魁省卫生部长杜贝称：如果政府认为必须进一步采取行动，那么当局将毫不犹豫地强制实行全民接种措施。
 
-* * *
 
-校对编辑，发稿：硫酸羟氯喹64
 
-參考链接：[https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161](https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161)
 
-[https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre](https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
+
+
+
+## **灭共者之**郭氏情报站 – **2021年12月24日**文贵大直播总结提炼：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/513DF950-1962-4C96-9E7A-7A8847C57FC8.png)
+1、**今天是西方的平安圣诞夜，祝福所有的战友、家人平安夜平安。**最重要的事情，只有一个，灭掉共产党！
+
+2、**Isobel的一生会为颠倒黑白付出代价。**骗取采访在西方法庭上，法官一定判她输。这次事件对爆料革命也是个推动，让西方看到中共是如何渗透在他们的媒体当中。这背后的动机绝对不是共产党一个人：背后的股东，单伟建，索罗斯，TPG，黑石。如果我不接受采访，他们会玩的更恐怖更大。我曾说对我们的攻击会在年底，冬奥会前。现在都兑现了。
+
+3、**中共在年底会在Omicron后再放毒**。党内的人给习太阳加大马力劝，借这个机会干掉美国，这是我爆的最新的消息：听说国安委成立了特别冠状新型病毒控制小组，不是控制不传染，而是往哪传染，让谁传染。新病毒比武汉泄露的病毒要高级的多。科学家说，共产党可能将要放最毒最毒的毒。
+
+4、**中国正走向一极世界，就是习大神统治的世界。**要让老百姓准备好过苦日子。全中国没有任何人名字能被记住，只有一个习近平，一个彭丽媛。内教外教，网红，这爹那爹，所有不可控的网络力量，统统都将被消灭。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（六）12月22日版 – GNEWS](https://gnews.org/zh-hans/1784804/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

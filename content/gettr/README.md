@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 2:19 AM (UTC)`
+
+12月24号：衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐🎄应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞🎄❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+![img](https://media.gettr.com/group48/getter/2021/12/25/02/a3d08123-7878-d238-31bb-e57001f047e9/out.jpg)
+
+---
+
 `@miles 12/25/2021 1:59 AM (UTC)`
 
 Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story about the Terminator of CCP <br/>中国共产党终结者的故事
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-12]：<br/>‼️HBO-VICE’s manipulation of Teng Biao's incidence to exaggerate Mr. Guo’s plan to sue the host after its deceptive editing the uncut interview, where the fact is Teng Biao slandered first and the host was setting up the interview to defame Mr. Guo. <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-12】：<br/>‼️ HBO-VICE拿滕彪说事，混乱剪辑，只留下郭先生说要起诉女记者的片段。我们还原当时的原始采访进行反击，滕彪诋毁在先，女记者设陷阱诽谤郭先生。<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
 ![img](https://media.gettr.com/group36/origin/2021/12/23/12/a8ac7db4-e542-cfb2-6066-fbe67e86e5dc/out.jpg)
-
----
-
-`@miles 12/23/2021 12:32 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-11]：<br/>‼️HBO’s unfounded accusation of Mr. Guo’s slandering “Wei Lei” without evidence. HBO again took out of context and edited the uncut interview to discredit Mr. Guo. In the uncut interview recovered, Mr. Guo has never actively attacked others and he pointed out that U.S. citizens have right to protest. <br/>** “Wei Lei” is a person who works for the CCP by infiltrating and spreading misinformation.<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-11】：<br/>‼️ HBO针对依法惩贼行动说郭先生在没有证据的情况下诋毁伪类，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，从未主动攻击他人，美国公民有权合法抗议。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
-![img](https://media.gettr.com/group17/origin/2021/12/23/12/c4716ceb-d3f4-9d75-d54d-b6604ea91262/out.jpg)
 
 ---
 

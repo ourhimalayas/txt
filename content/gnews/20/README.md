@@ -2,48 +2,25 @@
 ---
 
 
-## 梵蒂冈发布对所有员工和访客的疫苗接种令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788446/)
+## 美军方宣布可预防病毒变体的新型疫苗
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788492/)
 
-作者：纽约香草山农场 – 四季
+采编：UCool 优酷  编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-2.jpg)图片来源：TNH
 
 
+据【国会山报】12月 22日报道，美国[沃尔特-里德陆军研究所]自2020年初以来就在开发一种“穗状铁蛋白纳米粒子”的新型疫苗，该疫苗的早期人体试验从去年4月开始至本月已结束，目前正在审核中。
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2021/12/23/vatican-issues-vaccine-mandate-all-employees-visitors/)12月23日报道，本周四，梵蒂冈国务卿皮埃特罗·帕罗林红衣主教签署了梵蒂冈疫苗接种令。接种令规定，从2022年1月31日起，凡是提供梵蒂冈服务、与公众接触的人员必须出示 “证明在第一轮疫苗接种后进行了加强针接种的文件”。该法令没有提到基于道德考虑的良心反对的豁免情况。
+另据美国军事杂志《国防一号》发布的专题报告介绍，该疫苗使用了一种具有24个基因载体的蛋白质，通过在这些载体上附着不同毒株的刺突蛋白，以增强对各种“新冠病毒”的识别能力。尽管报告称该疫苗对所有变体都有效，但该研究所并未对最新变体“奥密克戎”进行效果测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1848-GettyImages-1213417831-640x480-1.png)VINCENZO PINTO/App via Getty images
+为此，本台编辑评论：中共军事教材《非典非自然起源和病毒基因武器》已证明“新冠病毒”是中共当局故意投放的生物武器。因此，防御病毒的疫苗研发进程永远赶不上生物武器的改造和投放速度。解决疫情的唯一途径就是铲除病毒源头：中共政权！
 
-法令规定，出示疫苗护照（超级通行证）上班的义务适用于罗马教廷和与教廷有联系的机构的所有人员，以及外部合作者、梵蒂冈城邦的访客和外部工作人员。
+* * *
 
-法令严厉规定，没有有效绿色通行证的人员 “将无法进入工作场所，并被视为无故缺勤，从而将在缺勤期间停发工资”，同时将受到这种缺勤所带来的进一步影响。
+校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+原文链接:  [https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report](https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report)
 
  
 

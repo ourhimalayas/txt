@@ -2,36 +2,42 @@
 ---
 
 
-## 拜登总统签署《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787601/)
+## 有声|【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787686/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据当地媒体报道，美国总统拜登正式签署了《防止强迫维吾尔人劳动法》，其在送抵白宫的三天后成为美国正式法律。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.55.57.png)
-资料显示，该法案由美国两党议员于2020年在国会协力推动，并于本月稍早通过参、众两院的表决。随后，本月20日，该法案被送交白宫。
+配音：香草山福音部 – Daxia
 
-根据美国关税法第307款规定，禁止所有开采、生产、制造涉及强迫劳动的商品被进口至美国，而《防止强迫维吾尔人劳动法》则授权美国海关和边境保护局对新疆出产的相关产品作出认定。据了解，进口企业需提供明确且令人信服的证据表明其商品与强迫劳动无关，否则，他们的产品将被禁止进入美国。
 
-国务卿布林肯表示，此举展现出美国在对抗强迫劳动问题上的承诺。同时，布林肯还敦促中共政府立即停止其针对新疆维吾尔人以及其他少数民族进行的种族灭绝与反人道行为。布林肯与承诺，美国将竭尽所能地帮助那些渴望摆脱强迫劳动的人们，让他们得以恢复尊严。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+听过12月22日七哥的直播後，我們需要警醒+謹慎，仇敵正对我们做非常猛烈的攻擊。1）做好病毒的保護 2）小心保護自己個人的信息，我們在各個农场与小組的聚集時，彼此提醒不要收集或是透露戰友的個人信息。3）務必小心谨守、提高警覺！ 求主保守我們！4）不要懼怕，乃要剛強壯膽！依靠主的力量作剛強的人。不要膽怯.剛強+仁愛+謹守！
 
-参考链接：
-1）[拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
-2）[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com/realtime/world/story20211224-1226117)
+初期教会有假使徒、假牧师、假先知、假消息。主耶稣提醒我们要警醒祷告免得入了迷惑。认识主与基督连结、住在主里面、求主的圣灵借着祂的话与应许住在我们心里，默想中进入基督里祷告。如此必定会结果子。在我们生命深处结出圣灵的果子：仁爱、喜乐、和平、忍耐、恩慈、良善、信实、温柔、节制。当我们享受主美好同在，蒙福生命所奔放散发出基督的香气与见证，使我们成为使周围的人蒙恩典得祝福的管道与器皿，有人因而信主蒙恩应是在外面看得见很自然的结果。如此幸福生命的满足是无可比拟的。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+另一方面，我们也要小心谨守, 自以为站得稳的,須要謹慎,免得跌倒。我们彼此提醒互相代祷。若不与主连接就不能结果子，属灵生命会枯干，就不能作什么了。类似的，面对病毒，每个人都需要谨慎，作好防护避免感染，小心备药以备不时之需。另外小心周围有匪类、潜伏在我们中间的假弟兄，会透过不同的方式收集我们的个人信息，我们应该灵巧谨守的对付，务必小心保護自己個人的信息，当我們在各個农场与小組的聚集時，彼此提醒不要收集或是透露戰友的個人信息。
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+不过我们也不可让恐惧完全佔据我们的心，我们蒙神的呼召，是有使命来传福音建造门徒。船在港口里面虽然是最安全的，但是却不是船被造的目的。圣经给我们最大的提醒是“不要惧怕”，我们在恐惧中不能思考，我们可以靠主刚强，因为神赐给我们，不是胆怯的心，乃是刚强、仁爱、谨守的心。
 
+求主帮助我们赐下能力与智慧，来面对撒旦借着共产党邪教连结着世界上的邪恶势力的猛烈攻击，因为经上记着说： “为此我提醒你，使你将　神藉我按手所给你的恩赐再如火挑旺起来。 因为　神赐给我们，不是胆怯的心，乃是刚强、仁爱、谨守的心。 你不要以给我们的主作见证为耻，也不要以我这为主被囚的为耻；总要按　神的能力，与我为福音同受苦难。 　神救了我们，以圣召召我们，不是按我们的行为，乃是按他的旨意和恩典；这恩典是万古之先，在基督耶稣里赐给我们的，（提摩太后书 1:6-9）
+
+文字版原文：[【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](https://gnews.org/zh-hans/1785047/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

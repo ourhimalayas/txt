@@ -2,38 +2,50 @@
 ---
 
 
-## 高疫苗接种率不能阻止Omicron在纽约蔓延
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
+## 白宫发言人就英特尔下跪中共的表态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1788474/)
 
-撰稿：纽约香草山健身部— Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/P-2.jpg)townhall.com
+美国英特尔公司在发布了一封要求供应商避免从中共国新疆地区采购产品或服务的信函，遭到中共威胁后，周四（12月23日）英特尔公司变脸、服软，向中共道歉，随后左媒进行了大肆炒作。
 
-按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
+在昨天的（12月23日）白宫新闻发布会上，有记者问及了此事，以下是他们的问答：
 
-由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
+记者：我可以问一下吗？英特尔发布的一份关于在新疆供应链的声明后，一夜之间陷入了困境。他们很担心，然后他们不得不向中共道歉。当然，美国将新疆发生的一切视为“种族灭绝”，正如你所说的那样。
 
-美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
+你对更多的美国公司会发现自己将陷入这种境地有多大的担心，特别是总统今天签署了维吾尔法案？
 
-[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+普萨基女士：嗯，我不能谈论一家公司的具体情况，但我可以说，作为一个普遍问题，我们认为私营部门和国际社会应该反对中共的做法——中共将其市场武器化以扼杀对人权的支持。
 
-[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+我们还认为，美国公司永远不应该因为维护基本人权或反对镇压而进行那些没有必要的道歉。
 
-编辑/校对/发稿：菩提树
+正如我们之前所说，我们呼吁所有行业确保他们不采购涉及强迫劳动的产品，包括来自新疆的强迫劳动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+现实是，未能解决供应链中的强迫劳动和其他侵犯人权问题的公司面临着严重的法律风险、声誉和客户风险，不仅在美国，在欧洲和世界其他地区也是如此。
 
-**更多资讯，更多关注**
+总体上，这就是我们的感受。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+记者：你能否简单地说一下，在签署这项法案之前，政府中是否有人与中共官员进行了交谈？是否有人担心总统签署这项法案会让中共感到不安？有没有任何努力来缓和或不缓和？
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+普萨基女士：我们已经宣布支持或打算签署该法案，我当然可以进行有关的外交接触，当然，那是在今天之前。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+当然，我们对我们的担忧毫不掩饰，总统已经和他们谈过了，我们努力并召集了七国集团领导人签署了一份关于新疆侵犯人权的声明。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+所以，我不知道这算不算是一个惊喜。
+
+记者：为什么他没有在摄像机面前签字？
+
+普萨基女士：关于在摄像机面前签字的事——他有时不在摄像机面前签，有时在摄像机前签，我们支持这项法案，显然，我们一直在世界上带头呼吁抵制侵犯人权。
+
+（白宫新闻发布会有关内容完）
+
+希望白宫不是在演戏，文贵先生爆料，拜登政府准备取消川普总统加给中共的关税。笔者还是没有看好拜登政府，说他通共，目前看不出他在这方面有足够胆量，但亲共行为层出不穷，惧共、怯共的表现更加频繁。当然，反共、抗共的举动也有，但比期待的要差得多。
+
+白宫新闻稿链接：
+
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/23/press-briefing-by-press-secretary-jen-psaki-december-23-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/23/press-briefing-by-press-secretary-jen-psaki-december-23-2021/)
 
  
 
