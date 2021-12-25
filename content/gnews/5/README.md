@@ -2,52 +2,50 @@
 ---
 
 
-## 女星再嫁中宣部副部长成墙内禁闻
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1789418/)
+## VICE在制造全球屠华前奏的同时让所有中国人恨海外华人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789471/)
 
-作者：东京樱花团—在远方
+**郭文贵先生：**最后你要看到她采访，她在那块儿记录着，她根本不在乎你怎么回答，她把问题问出来就赢了！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+如果咱没有摄像机，你满嘴、满身是嘴你也说不清啊！如果我嘴再笨点，你全身都是嘴，憋死你！能憋死你！每句话。滕彪说我乱伦我侄儿媳妇，结果变成了我说滕彪是乱伦，你想想有多可怕。G-TV她说我们是骗子，那很简单，谁被骗了？
 
+螃蟹这个孙子！这个小垃圾！称为大燕王子，跟我在一块儿，他说她要恢复河北大燕国啊，这孙子！垃圾变态的！一个小垃圾！他说我两天没吃饭，在这之前我崇拜他的房子啊、公寓啊、西装啊、游艇啊，然后不给他钱啦！两天就一想，这家伙是骗子。
 
+你觉得谁能崇拜一个人，经过两天不给钱以后，我就认为他就是个骗子，这种垃圾话她能给你弄出去，因为所有人、没有人细琢磨，欸，对对对！他是骗子，然后就是，你觉得他怎么样？——他会把中国人带入地狱。
 
+我咋把中国人带入地狱？我爆料我们四五年来，你有没有没想过，我们把一个中国人带入地狱了吗？怎么能把中国人带入地狱？她让中国人恨我们，你看到没有，不但让美国西方世界恨爆料革命，她让螃蟹的嘴说出来，中国人要恨这个爆料革命、新中国联邦。
 
+这个之阴歹，跟当年印尼排华一模一样，你看共产党的报纸，你们查查1968年和1997年两次排华事件，中国人、大量的共产党的报纸，竟然隐隐约约各种，像当时的参考消息都在说，海外华人要守法呀！你背叛了祖国、你离开了祖国、你到人家国家你要守法呀。
 
-![中國網友爆料中國女星佟麗婭已再婚，對象是中共中宣部副部長，而且介紹人竟是前夫陳思誠。（佟麗婭微博、央視微博，本報合成）](https://img.ltn.com.tw/Upload/news/600/2021/12/22/phpLtkvhc.jpg)（图片来自《自由时报》）
+结果啪~弄完了！意思是什么？中国人要记住，这些人都是背叛我们走的，他们不守法的在人家国家，和这个如出一辙呀！等到我们被杀的时候，要告诉国内人，这帮东西都是混蛋、都是邪教，神奇四侠这是在犯法了；西枫全家在那犯法了；小新是叛徒，在西方犯法了；文疯而动就是暴徒。你看这又来了，还让中国人恨你。
 
-台媒12月22日消息，近日墙内惊爆中共国女星佟丽娅被导演老公陈思诚，介绍给中宣部副部长、《央视》台长兼总编辑慎海雄做情妇，还在怀孕后被迫嫁给了年长其16岁的慎海雄。目前，该消息在墙内被全网封锁。
+关键的螃蟹这个孙子根本没投G-TV！谁观众能知道他没投G-TV呀，他是要投咱不让他投，和他说成他被骗投资，你看看这差距有多大，然后再让他说你是骗子，你是把中国带入地狱，你看这个有多大！
 
-据悉，佟丽娅去年曾跨界主持中共央视春晚。当时外界普遍质疑，身为演员的佟丽娅怎么有能力在如此重要的场合担任主持。也有网友爆料称，慎海雄由于原配无法生育，今年上半年刚刚离婚。而做了他多年情妇的佟丽娅怀孕后，慎海雄一手操办了佟丽娅与前夫的离婚事项。
+编辑整理：海贼王M.D.LUFFY；
 
-21日晚间，墙内微博突然开始热烈讨论“佟丽娅再婚”的消息，但随后立即成为敏感词被屏蔽和删除。许多网友使用谐音“捅你牙再昏”继续讨论。随着习大神怀着“梦游般的自信”走向他的独裁之路，中共官场也开启了“狂暴”模式。凡是和中共官员沾点边的负面消息，只要不是涉及中共上层定点爆破的对象，都会被迅速全网封禁。在互相掩护、共同作恶这一点上，中共集权体制越来越体现出领先全球的优越性。
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-参考链接：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-[https://news.ltn.com.tw/news/world/breakingnews/3776443](https://news.ltn.com.tw/news/world/breakingnews/3776443)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-编辑/校对/发稿：有莫举名
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-4.png)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**更多资讯，更多关注**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
