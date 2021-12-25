@@ -2,27 +2,31 @@
 ---
 
 
-## 全面反击中共在西方媒体代言人刻不容缓
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788650/)
+## GTV新闻访谈简报|2021年12月24日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1788666/)
 
-撰稿：硫酸羟氯喹64
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-9-edited.jpg)图片来源：GNEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-本台记者12月23日报道，据郭文贵先生日前在[盖特]上播出了有关他在今年6月接受美国主流媒体HBO节目主持人杨贝贝采访后，所发生的一系列歪曲真相的不实报道，凸显出中共在西方媒体宣传中所一贯采取的流氓欺骗手段，以及新中国联邦必须因此果敢反击的必要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1224text-SC.png)
+校对：Stay文苑
 
-报道指出，郭文贵先生引领的爆料革命，不仅向世界揭露了中共的邪恶本质，还多次针对中共当局在全球发动的病毒超限战发出了严厉警告，并因最终都得到鲜血淋漓的验证，而展示了新中国联邦的真正实力。
+编辑：Stay文苑
 
-为此，中共当局如坐针毡，末日惶惶之际，通过盗国贼单伟健控制的美国主媒HBO，派出由中共长期豢养的VICE节目主持人杨贝贝，对郭文贵先生进行了包括所谓：大规模个人崇拜，中共双面间谍，病毒及疫苗阴谋论，筑造个人权力及影响力，班农种族主义者，多米尼投票系统，滕彪诬陷案，GTV投资骗局等多方面的诋毁性采访及中伤性报道。
+发稿：Stay文苑
 
-针对HBO以上惯用的断章取义，混淆剪辑，散布谣言等卑劣手段，新中国联邦通过在盖特平台上播出当时的原始采访记录，对中共在西方的大外宣进行了强有力的反击，再次揭穿HBO等中共暴政在美国代言人是如何欺骗性地对郭文贵先生的采访内容进行黑白颠倒的歪曲报道。
+视频参看：[12.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c6735900f9a119180a263b)
 
-愚蠢谎言被屡屡戳破后的中共，面对全世界正义力量的联合围剿，其困兽犹斗的哀嚎，垂死挣扎的恐惧，已然成为中共政权即将彻底崩塌的最强征兆。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
-* * *
-
-GTV链接：https://gtv.org/video/id=61c3bb8900f9a119180832eb
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

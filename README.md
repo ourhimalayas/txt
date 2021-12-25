@@ -15,122 +15,122 @@
 
 ---
 
-### [新中国联邦爆料革命的零隐私说明所有都是真实的](/content/gnews/1/README.md)
+### [张高丽玩处女 家族一定会受审判](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医疗健康军事化：奥地利军力涉入政府中共病毒工作](/content/gnews/2/README.md)
+### [共产党需要张高丽彭帅消失](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥能在2006年将所有资产都转移了 是因为他了解共产党](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党利用西方媒体操控西方法律攻击Gnews Gettr](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [只有爆料革命才知道 彭帅事件与叶钊颖夫妇的重要性](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党造神运动和打台湾的脚本](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新一波中共病毒再次开始导致美国海军军舰停摆](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国内污染严重地区 新变种病毒Omicron的危害](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中植集团不生产一分利润 全靠套壳担保金融票据骗钱](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦爆料革命的零隐私说明所有都是真实的](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [未来如何决定数字货币的话语权](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [医疗健康军事化：奥地利军力涉入政府中共病毒工作](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [房地产没有脆断是好事](/content/gnews/3/README.md)
+### [房地产没有脆断是好事](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥会一定会有感染病毒集体事件](/content/gnews/4/README.md)
+### [冬奥会一定会有感染病毒集体事件](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人类正处在数字货币代替法币的春秋时代](/content/gnews/5/README.md)
+### [人类正处在数字货币代替法币的春秋时代](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盘古大观将是冬奥会的国家安全控制中心](/content/gnews/6/README.md)
+### [盘古大观将是冬奥会的国家安全控制中心](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被病毒感染过的人 将来得癌症的几率超过50%](/content/gnews/7/README.md)
+### [被病毒感染过的人 将来得癌症的几率超过50%](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Isobel美化共产党新疆六四手法与美化希特勒纳粹如出一辙](/content/gnews/8/README.md)
+### [Isobel美化共产党新疆六四手法与美化希特勒纳粹如出一辙](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论](/content/gnews/9/README.md)
+### [中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农谈VICE对文贵先生的失败攻击](/content/gnews/10/README.md)
+### [班农谈VICE对文贵先生的失败攻击](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦人对美国这个国家要心存感激](/content/gnews/11/README.md)
+### [新中国联邦人对美国这个国家要心存感激](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青蒿素和伊维菌素能同时吃](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共100%控制辉瑞 利用科学逻辑蒙骗西方国家](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NIH主任为没有对“人类行为”进行更多研究而悲痛](/content/gnews/14/README.md)
+### [NIH主任为没有对“人类行为”进行更多研究而悲痛](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [精神的核武器就是音乐力量 巨大且具有传染性（下）](/content/gnews/15/README.md)
+### [全世界超发货币 通缩会导致世界的经济崩塌 绝无幸免](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全世界超发货币 通缩会导致世界的经济崩塌 绝无幸免](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习近平在步历代独裁者的后尘](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭先生谈解脱和悟](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021.12.24大直播文贵先生从新歌打榜谈爆料革命要持之以恒](/content/gnews/19/README.md)
+### [2021.12.24大直播文贵先生从新歌打榜谈爆料革命要持之以恒](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [冬奥会证明共产党完蛋了](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [精神的核武器就是音乐力量 巨大且具有传染性（上）](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [十四亿中国人将看到共产党垂死挣扎](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [明年5月份以前 这个世界会相当动荡](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-1](/content/gnews/24/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-1](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [日本三菱电机疑被中共攻击 国防机密数据泄露](/content/gnews/25/README.md)
+### [日本三菱电机疑被中共攻击 国防机密数据泄露](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国文化名人投稿呼吁政府对北京奥运会进行外交抵制](/content/gnews/26/README.md)
+### [法国文化名人投稿呼吁政府对北京奥运会进行外交抵制](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国海军陆战队员因拒绝接种新冠疫苗而被开除](/content/gnews/27/README.md)
+### [美国海军陆战队员因拒绝接种新冠疫苗而被开除](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列开始为特定人群进行第四针CCP病毒疫苗注射](/content/gnews/28/README.md)
+### [以色列开始为特定人群进行第四针CCP病毒疫苗注射](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年12月24日晚](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2021年12月24日晚](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [全面反击中共在西方媒体代言人刻不容缓](/content/gnews/30/README.md)
+### [全面反击中共在西方媒体代言人刻不容缓](/content/gnews/31/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [英、法、意，新增感染中共病毒人数均创新高](/content/gnews/31/README.md)
+### [英、法、意，新增感染中共病毒人数均创新高](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒导致日本国内刑事再犯罪率创新高](/content/gnews/32/README.md)
+### [中共病毒导致日本国内刑事再犯罪率创新高](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/33/README.md)
+### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [震惊的视频:泽连科医生（Dr. Zelenko）警告，如果他死了,那就是“对真相的暗杀”](/content/gnews/34/README.md)
+### [震惊的视频:泽连科医生（Dr. Zelenko）警告，如果他死了,那就是“对真相的暗杀”](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国将创建稀土巨无霸企业以稳定供应链](/content/gnews/35/README.md)
+### [中共国将创建稀土巨无霸企业以稳定供应链](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】加拿大疫情失控？接种率高省份感染创记录!](/content/gnews/36/README.md)
+### [【快讯】加拿大疫情失控？接种率高省份感染创记录!](/content/gnews/37/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大酝酿更多措施强迫疫苗接种](/content/gnews/37/README.md)
+### [加拿大酝酿更多措施强迫疫苗接种](/content/gnews/38/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [G系列生态是新中国联邦的核心力量，喜联储必将一统天下](/content/gnews/38/README.md)
+### [G系列生态是新中国联邦的核心力量，喜联储必将一统天下](/content/gnews/39/README.md)
  ` YALUN 亚伦`
-
-### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/39/README.md)
- ` 秘密翻译组-原创组`
 
 ### [2021/12/23 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
