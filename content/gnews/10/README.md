@@ -2,28 +2,29 @@
 ---
 
 
-## 宣扬疫苗被打脸 英法新增染疫人数皆创新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788801/)
+## “超英赶美”中共成立稀土“巨兽”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788807/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山信息部 – 6zero4
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-当地时间12月23日，英国单日新增中共病毒确诊人数为11万9千多例。 法国23日单日新增确诊人数约8万8千例。 皆创下自去年疫情开始以来的新高纪录。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-22.png)
+12月23日，由各占股20.33%的中共铝业、中共五矿、赣州稀土3家矿业集团正式合并成立“巨兽”型央企“中共稀土集团”，其又引入各占股3.90%的中共钢研、有研科技集团，聚焦于稀土开发加工、进出口贸易等领域，并且由持股31.21%的中共国务院国资委直接控制。
 
-英国完整疫苗接种率达70.2%，第三剂加强针接种率达45.9%；法国完整疫苗接种率达72.6%，第三剂接种率达 28.3%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-13.png)
 
-专家指出，自去年底开始，各国政府对民众督促并宣扬，当完整接种率达到70%，疫情就能控制。 目前，英国和法国的疫苗完整接种率已达到70%以上，但疫情并没有得到有效控制，单日确诊人数创新高，可见疫苗对控制疫情没有任何帮助。
+据悉，该集团囊括了中共国70%的稀土产业，媒体称全世界85%的稀土矿供应来自中共国。此次合并是继在本月6日成立中共国物流集团后，中共加速“国进民退”谋求资源、行业、市场垄断的又一标志性事件。
 
 参考链接：
 
-- [法國單日確診增8.8萬例創新高 病故人數也攀升](https://www.cna.com.tw/news/firstnews/202112240007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-- [Omicron肆虐英國 單日確診近12萬例再創紀錄](https://www.cna.com.tw/news/firstnews/202112240006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [China to Create Rare Earth ‘Behemoth’ Company to ‘Stabilize Supply Chain’](https://www.breitbart.com/asia/2021/12/23/china-create-rare-earths-behemoth-company-stabilize-supply-chain/)
+- [又一新央企来了 中国稀土集团正式成立](http://finance.people.com.cn/n1/2021/1223/c1004-32315324.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：Irene木木
+总编：童谣
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
