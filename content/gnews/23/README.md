@@ -2,10 +2,10 @@
 ---
 
 
-## 疯狂!福奇建议禁止未打疫苗者参加家庭聚会！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790815/)
+## 关注冬奥5周前西安封城，中共、习近平又在掩盖什么
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790835/)
 
-12/21/2021 疯狂！福奇建议禁止未打疫苗者参加家庭聚会！
+12/23/2021 班农先生《战斗室》连线在罗马的Ben Harnwell，关注中共在西安突然全面封城，Ben认为习近平在掩盖奥米炕之外的新变种。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
