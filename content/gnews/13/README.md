@@ -2,28 +2,28 @@
 ---
 
 
-## 疫苗并不像政府说的那样能阻止中共病毒的传播
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789839/)
+## 美航司人员短缺 圣诞前夜取消数百航班
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789870/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-130.png)
-图片来源：网络截图
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-38.png)
+图片来源： newsweek.com
 
-据零对冲12月24日报道，一个宪法权利团体，宪政自由正义中心周二发表的报告发现，政府领导人声称的强制接种疫苗将减少或阻止中共病毒的传播，这既没有得到医学科学的支持，也没有得到已达到最高接种水平的国家的现实经验的支持。
+据“零对冲”网12月24日早报， 截至当日美东早8点，美国各航司已经取消了450个航班，包括169个美联航（United）和127个达美（Delta）的航班，导致大量受影响的旅客进退两难。
 
-该中心遗憾的说，与加拿大和美国政府主导的叙述和媒体报道相反，证据强烈地表明接种疫苗并不能阻止中共病毒（冠状病毒）的传播，不仅对原始毒株无效，对后来的三角洲和奥米克戎变种也无效。在其分析中，该法律倡导组织将政府主导的叙述和权威卫生机构关于疫苗在阻止中共病毒传播方面的有效性的说法与 “大量接种疫苗的社区”的实际情况进行了比较，包括以色列、英国、美国的佛蒙特州、直布罗陀和瑞典。结论是，无论疫苗在降低住院率和死亡率方面有什么价值，它们都不会像政府领导人声称的那样彻底“发挥作用”。
+按“航班跟踪FlightAware”网的数据，圣诞前夕全球取消航班总计已达3000次，旅客们在出发前最后一刻忽然接到的消息称，各大航司因新冠疫情导致了人员短缺，不得不取消航班。美国有线电视新闻CNN得到了美联航的一份内部工作文件，记录了本周奥米克戎病例在全美激增，直接影响了机组及运营人员的上岗数；达美也透露受到了奥米克戎病例激增的影响。
 
-对于重新定义疫苗的目标，司法中心说，美国疾病控制和预防中心（CDC）9月份对 “疫苗 ”定义的改变，实际上是将其目标从产生 “免疫力 ”转为仅仅提供对某种传染病的 “保护”。针对修订后的定义在社交媒体上引起的争议，CDC表示，以前的定义可能被解释为疫苗是百分之百有效的，但是对任何疫苗来说都不是这样的。
+疫情导致人员短缺、航班被取消的情况，在美国过去的几个月里屡见不鲜。8月就曾有美国航空（American Airlines）和精神航空（Spirit）因机组人员短缺、临时取消数百次航班，大量受影响的旅客涌上推特发泄愤怒；10月间西南航空曾在4天内取消了近3100次航班；而12月仅21日下午，就再有超过800次航班被宣布取消，到账部分受影响的旅客不得不滞留机场几天……接下来的周末和假日，可能还会有更多的航班被取消。
 
-正义中心还发现，许多政府主导的叙事和卫生政策都具有社会分裂性。虽然总理贾斯汀·特鲁多和美国总统乔·拜登重复了疫苗有效的说法，但两位领导人都出台了要求雇主执行中共病毒疫苗强制令的限制措施。
+**新闻来源：**
 
-对于再感染的证据，公众对大规模疫苗接种的热情源于“群体免疫 ”的概念，这意味着当一个社会中足够多的人对某种疾病产生免疫力时，受感染的个人就更难传播病毒。然而，司法中心指出，现实世界的证据显示，即使在世界各地大量接种疫苗的社区，完全接种疫苗的人仍会感染并死于中共病毒。
+1. [Christmas Eve Travel Chaos: Hundreds Of Flights Canceled Due To Staffing Shortages](https://www.zerohedge.com/markets/flight-cancellations-christmas-eve-upend-holiday-travel)
 
-最显著的例子之一是以色列，它是世界上第一个让大多数公民完全接种疫苗的国家。然而，病例在2021年6月开始激增，在2021年7月11日至7月31日期间，超过13,000名完全接种疫苗的人出现突破性感染。
+2. [“People Slept In Airports” – Spirit, American Cancel Hundreds of Flights Amid Staffing Shortage](https://www.zerohedge.com/markets/people-slept-airports-spirit-american-cancel-hundreds-flights-amid-staffing-shortage)
 
-司法中心说，迄今为止，没有一个政府向公众提供证据，以支持其反复的、充满恐惧的宣传信息，即中共病毒疫苗可以阻止中共病毒的传播。在一个自由和民主的社会中，在正常社会实施强制接种疫苗和疫苗护照是一个无效政策，故意将未接种疫苗的加拿大人排除在公民社会之外，不能被证明是为对宪章权利和自由的合理限制。
+3. [Angry American Airline Customers Hit With Travel Delays Due To Labor Shortage](https://www.zerohedge.com/markets/get-your-shit-together-angry-american-airline-customers-hit-travel-delays-due-labor)
 
-新闻来源：[Vaccines Do Not Stop COVID-19 Spread As Governments Claim: Legal Advocacy Group](https://www.zerohedge.com/covid-19/vaccines-do-not-stop-covid-19-spread-governments-claim-legal-advocacy-group)
+
 
  
 

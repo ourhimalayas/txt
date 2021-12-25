@@ -2,136 +2,45 @@
 ---
 
 
-## 【辞典词条】维生素D
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789872/)
+## Isobel的造假为美国取消关税世界转变冬奥会立场做铺垫
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789893/)
 
-撰稿：东京樱花团/Inwp G
+**郭文贵先生：**所有今天Isobel这个造假的犯罪的直播都是给美国取消对中国的关税铺底的，是这帮人搞得中美之间的仇恨，跟我们政府绝对没关系，拜登政府一定会取消这关税。二百多个美国运动员会出现在北京，会出现在歌颂北京完美的冬奥。
 
-编者按：【辞典词条】指《新中国联邦词典》词条，是东京樱花团面向GNEWS推出的一档专栏内容。本文摘选自《新中国联邦词典》相关词条，专栏目的是希望更多战友关注《新中国联邦词典》编撰。《辞典》中词条的内容会不断更新、优化和调整，想查看有关本词条的最新信息，请访问《新中国联邦辞典》并【添加到收藏夹】。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1395.png)
-## 维生素D的性质
+所以你要知道媒体的力量有多大，这个一箭双雕的VICE采访，把我们消灭，把我们变成恐怖、邪教、犯罪分子，让我们处在恐惧之中，把我们成为中美之间和中国海外华人所有威胁的替罪羊，然后让中美政府之间进行勾兑的时候取消关税，中美贸易人民必须好 。记住我今天说的话，全世界没一个人说，这是我今天说的。
 
-维生素D (Vitamin D) 是一组亲脂性类固醇衍生物，是一种激素的前体，属于[脂溶性](https://www.nfscdict.com/%E8%84%82%E6%BA%B6%E6%80%A7)维生素，负责增加肠道对钙、镁和磷酸盐的吸收，以及其他多种生物效应。维生素D中最重要的化合物是维生素D2（麦角钙化醇）及维生素D3（胆钙化醇）。
+今天是2021年12月22号，对吧？12月22号，郭文贵说的，中美之间会取消贸易关税。这次的VICE， Isobel Yeung，怀疑她是中共操纵结果和PAG、TPG的单伟建有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会和帮助美国和中共取消最高关税贸易做的一场政治大宣传的一场行动。
 
-人体天然维生素D的来源是接受日光照射，每天都在室外活动接受日光照射的人理论上无需额外补充**维生素D**。
+对我们个人和爆料革命灭共的所有人都造成了威胁，以后只要在全世界、只要反对共产党的都是邪教；只要是反对冬奥的，全部都是暴力分子；只要是你认为你对共产党任何在大屠杀，新疆、西藏、香港和台湾中表示异声的，都像小斯基、Nicole一样，你都是暴力分子、支持川普的极端分子，支持川普的极端分子造成了中美贸易的摩擦，这个报道之凶险、之邪恶，超出你的想象。
 
-**维生素D**经肾脏代谢可以转化成有生物活性的[骨化二醇](https://www.nfscdict.com/%E9%AA%A8%E5%8C%96%E4%BA%8C%E9%86%87)、[骨化三醇](https://www.nfscdict.com/%E9%AA%A8%E5%8C%96%E4%B8%89%E9%86%87)。
+这就刚才你们几个同心同框你们没有一个人发现这背后的（阴谋），这是今天七哥告诉你真正的大料，你不信走着看。冬奥和中美贸易取消以及很多国家取消这个债务，中国人将付出几千亿美元，几千亿美元呐！中国人、中国同胞 ，然后给搞一个政治冬奥会，然后消灭这些所有的异议声音，全做到了。
 
-## 维生素D用途与使用剂量
+字幕来源：[2021年12月22日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1784652/)
 
-### 用途
+字幕文件制作：小满；
 
-- 调节钙代谢，促进骨生长，预防[佝偻病](https://www.nfscdict.com/%E4%BD%9D%E5%81%BB%E7%97%85)和[骨软化症](https://www.nfscdict.com/%E9%AA%A8%E8%BD%AF%E5%8C%96%E7%97%87)
-- 调节免疫，抑制炎症
-- 调节神经肌肉功能
-- 影响多种基因的表达
-- 调节细胞的增殖、转化和凋亡
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-### 使用剂量
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-- 现在一般直接购买**维生素D3**补充剂。另外也有非常贵的[骨化醇](https://www.nfscdict.com/%E9%AA%A8%E5%8C%96%E9%86%87)可以买到，补充剂量需根据说明书自行计算。
-- 常用单位有两种，单位转换：1μg = 40IU
-- 美国参考日摄入量为 400 IU (10 μg)
-- 4-8岁容许摄入上限为每天 3000 IU (75μg)
-- 9-70岁容许摄入上限为每天 4000 IU (100μg)
-- 目前现有的实验数据表明持续补充维生素D每日4000-10000 IU 不超过2个月未观察到中毒现象。但由于维生素D为脂溶性，还是应该避免长期过量服用。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-### 食物来源
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-主要是依靠阳关照射。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-### 不良反应
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-- 过量的**维生素D**会导致软骨钙化(本来该柔软的地方变得太硬了)
-- 高血钙症
-- 恶心，呕吐，便秘，食欲不振，情感淡漠，头痛，口渴，多汗和多尿
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-## 维生素D与COVID-19
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-主要是两个方面的作用
-
-1. 出门机会减少，接触阳光量减少，天然维生素D的获取减少了，需额外补充。
-2. 维生素D有调节免疫、炎症的作用，可以在预防、治疗感染时起到帮助。
-
-
-根据不同方案，对于成年人推荐每日剂量：2000 IU ~ 5000 IU。
-
-## 郭文贵先生点评
-
-## 郭文贵2021年10月17日直播
-
-[郭文贵2021年10月17日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B410%E6%9C%8817%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-当然就是从去年开始说吃[羟氯喹](https://www.nfscdict.com/%E7%BE%9F%E6%B0%AF%E5%96%B9)这个预防病，我是开始有吃，一直到后来吃的这个[青蒿素](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)。我现在就吃这些东西，其它任何东西都没有吃。所以我当时我还写了我们买了[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)，之前我们都没有吃嘛，然后我也买了[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)，但是我就想试试我到底是吃[青蒿素](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)的原因，还是维生素……如果我两个东西一起吃的话，我也不知道到底是有什么变化，有什么你就分不清了嘛，对吧？所以我那个[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)没吃，我就吃的是[青蒿素](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)，所以我认为这个[青蒿素](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)对我的这个身体的所有的机能的变化是非常大。来，你来说了。
-
-这种治疗早期[中共病毒](https://www.nfscdict.com/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92)的方式被保罗·梅里克博士描述为虚无主义治疗，暂且不说[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)，特别是考虑到我们对**维生素D**等的功效的了解，的确令人震惊，防止[中共病毒](https://www.nfscdict.com/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92)发展到更严重的阶段，且对这种发展的防止至关重要，因为对于许多[中共病毒](https://www.nfscdict.com/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92)患者来说，这是一个不归点，一旦越过这一点到了需要插管的地步，往往就回天乏术了，因此，请考虑一下这个政策，[美国](https://www.nfscdict.com/%E7%BE%8E%E5%9B%BD)国立卫生研究院[中共病毒](https://www.nfscdict.com/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92)治疗小组说，直到患者病情严重到需要补充氧气，否则不要进行任何治疗。他们只对那些病情恶化到不补充氧气就无法生存的病人提出明确的药物建议，一旦患者病入膏肓，他们推荐何种治疗方式？
-
-## 郭文贵2021年10月13日直播
-
-[郭文贵2021年10月13日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B410%E6%9C%8813%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-0:3:58视频4：[新冠病毒](https://www.nfscdict.com/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92)没那么严重，**维生素D**、C、[锌](https://www.nfscdict.com/%E9%94%8C)以及可成功治疗新冠，[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)不必要
-
-我是Dolores Cahill教授，我是一名分子生物学家和免疫学家，我们有好消息，[新冠病毒](https://www.nfscdict.com/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92)和封城并不是想象中那么严重我们知道可以用**维生素D**、C、[锌](https://www.nfscdict.com/%E9%94%8C)以及非常安全的药来成功治疗新冠，因此封城和一些措施像隔离、保持社交距离、口罩等等是不必要的，并且，[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)也是不必要的，从来没有一种有牌照的[RNA](https://www.nfscdict.com/RNA)[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)存在，这不是因为没有进行很多（动物）临床试验，但是在过去20年的安全性的研究上发现有很多副作用和死亡。
-
-## 郭文贵2021年10月10日直播
-
-[郭文贵2021年10月10日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B410%E6%9C%8810%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-这就是为什么你到现在仍然在与新冠做斗争，尽管新冠[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)曾号称会使疫情消失，但恰在盛夏，人们**维生素D**水平最高时，疫情却反而爆发了。
-
-我可以告诉你，我已经治疗了超过15名新冠患者，在积极补充**维生素D**[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)和[锌](https://www.nfscdict.com/%E9%94%8C)用量下，没有一个人进医院
-
-我们已经有研究表明，如果能够把25-[羟基](https://www.nfscdict.com/%E7%BE%9F%E5%9F%BA)**维生素D**水平（即血液**维生素D**水平）达到55以上，新冠死亡风险将下降到目前[美国](https://www.nfscdict.com/%E7%BE%8E%E5%9B%BD)水平的四分之一。
-
-而且该U盘上还包括积极的治疗试验，也证明这一点。因此，如果你要根据[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)（接种情况）来进行歧视，你也应该根据25-[羟基](https://www.nfscdict.com/%E7%BE%9F%E5%9F%BA)**维生素D**水平和[锌](https://www.nfscdict.com/%E9%94%8C)的测试，以及新冠感染史进行区分。
-
-## 郭文贵2021年9月17日直播(1)
-
-[郭文贵2021年9月17日直播(1)](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B49%E6%9C%8817%E6%97%A5%E7%9B%B4%E6%92%AD%281%29)
-
-这是解热镇痛药，对，乙酰氨基酚500mg，[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C) 500mg，2000国际单位的[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)，[锌](https://www.nfscdict.com/%E9%94%8C)50mg，阿司匹林100mg，还有对抗[病毒](https://www.nfscdict.com/%E7%97%85%E6%AF%92)最重要的药物——[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)6mg。药包里有如何使用的说明书，恭喜萨尔瓦多人。萨尔瓦多政府比[美国政府](https://www.nfscdict.com/%E7%BE%8E%E5%9B%BD%E6%94%BF%E5%BA%9C)要聪明很多，没那么官僚，因为他们给国民提供了这种如[日本](https://www.nfscdict.com/%E6%97%A5%E6%9C%AC)等很多其他国家都在使用的治疗方案。
-
-## 郭文贵2021年9月7日直播
-
-[郭文贵2021年9月7日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B49%E6%9C%887%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：停药；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：停药；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：一片4000 IU；
-
-自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：停药；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：停药；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：停药。
-
-自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：停药；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：停药；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：3片4000 IU=12000 IU
-
-自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：一片200mg；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：一粒50mg；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：3片4000 IU=12000 IU
-
-自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：停药；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：停药；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：停药
-
-8月27日（星期五）自己吃药治疗：[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)/Ivermectin：3片12mg（36mg）；[硫酸羟氯喹](https://www.nfscdict.com/%E7%A1%AB%E9%85%B8%E7%BE%9F%E6%B0%AF%E5%96%B9)/HCQ：停药；[锌](https://www.nfscdict.com/%E9%94%8C)/Zinc：停药；[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)/Vit C：一片1000 IU；[维生素D3](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D3)/Vit D3：停药
-
-医生：所有的药……氢[氯喹](https://www.nfscdict.com/%E6%B0%AF%E5%96%B9)、[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)、[锌](https://www.nfscdict.com/%E9%94%8C)、[多西](https://www.nfscdict.com/%E5%A4%9A%E8%A5%BF)环素、**维生素D**和阿司匹林。
-
-## 郭文贵2021年8月25日直播
-
-[郭文贵2021年8月25日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B48%E6%9C%8825%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-就是说如果对这个[羟氯喹](https://www.nfscdict.com/%E7%BE%9F%E6%B0%AF%E5%96%B9)过敏的[战友](https://www.nfscdict.com/%E6%88%98%E5%8F%8B)，什么都可以去看一下。另外就是[战友](https://www.nfscdict.com/%E6%88%98%E5%8F%8B)们一定要注意需补充[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)和**维生素D**这两样。另外我们就一定要发布一个这个免责声明，为什么呢？因为每一个人把药吃到肚子里。都是得自己对自己负责任的，我们也只是把医生的医嘱发布出来，让[战友](https://www.nfscdict.com/%E6%88%98%E5%8F%8B)们能看到，然后根据自己的需求去吃药，一旦有什么不良反应，还是先去咨询自己身边的医生为主。好，谢谢。
-
-## 郭文贵2021年8月11日直播
-
-[郭文贵2021年8月11日直播](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B52021%E5%B9%B48%E6%9C%8811%E6%97%A5%E7%9B%B4%E6%92%AD)
-
-[班农](https://www.nfscdict.com/%E7%8F%AD%E5%86%9C)先生：彼得，你又在隐晦了，因此让商学院告诉文理学院以及工艺美术学院，你该怎么做。老兄，对我们的观众来说，你没有抓住重点。[福奇](https://www.nfscdict.com/%E7%A6%8F%E5%A5%87)现在站出来提到治疗。他一直说什么，[羟氯喹](https://www.nfscdict.com/%E7%BE%9F%E6%B0%AF%E5%96%B9)、[伊维菌素](https://www.nfscdict.com/%E4%BC%8A%E7%BB%B4%E8%8F%8C%E7%B4%A0)、[锌](https://www.nfscdict.com/%E9%94%8C)、**维生素D**，你拥有所有这些治疗方法，你不需要匆忙地跑去打[疫苗](https://www.nfscdict.com/%E7%96%AB%E8%8B%97)，治疗方法和定向干预，[福奇](https://www.nfscdict.com/%E7%A6%8F%E5%A5%87)的药片是一种治疗药片，对吗？[纳瓦罗](https://www.nfscdict.com/%E7%BA%B3%E7%93%A6%E7%BD%97)博士。
-
-##  
-
-词条原文链接：[维生素D](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0D)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
