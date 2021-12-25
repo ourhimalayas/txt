@@ -2,37 +2,28 @@
 ---
 
 
-## 香港各大院校接连拆除“六四”标志作品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789609/)
+## 美航司人员短缺 圣诞前夜取消数百航班
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789870/)
 
-作者：东京樱花团 在远方
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-38.png)
+图片来源： newsweek.com
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据“零对冲”网12月24日早报， 截至当日美东早8点，美国各航司已经取消了450个航班，包括169个美联航（United）和127个达美（Delta）的航班，导致大量受影响的旅客进退两难。
+
+按“航班跟踪FlightAware”网的数据，圣诞前夕全球取消航班总计已达3000次，旅客们在出发前最后一刻忽然接到的消息称，各大航司因新冠疫情导致了人员短缺，不得不取消航班。美国有线电视新闻CNN得到了美联航的一份内部工作文件，记录了本周奥米克戎病例在全美激增，直接影响了机组及运营人员的上岗数；达美也透露受到了奥米克戎病例激增的影响。
+
+疫情导致人员短缺、航班被取消的情况，在美国过去的几个月里屡见不鲜。8月就曾有美国航空（American Airlines）和精神航空（Spirit）因机组人员短缺、临时取消数百次航班，大量受影响的旅客涌上推特发泄愤怒；10月间西南航空曾在4天内取消了近3100次航班；而12月仅21日下午，就再有超过800次航班被宣布取消，到账部分受影响的旅客不得不滞留机场几天……接下来的周末和假日，可能还会有更多的航班被取消。
+
+**新闻来源：**
+
+1. [Christmas Eve Travel Chaos: Hundreds Of Flights Canceled Due To Staffing Shortages](https://www.zerohedge.com/markets/flight-cancellations-christmas-eve-upend-holiday-travel)
+
+2. [“People Slept In Airports” – Spirit, American Cancel Hundreds of Flights Amid Staffing Shortage](https://www.zerohedge.com/markets/people-slept-airports-spirit-american-cancel-hundreds-flights-amid-staffing-shortage)
+
+3. [Angry American Airline Customers Hit With Travel Delays Due To Labor Shortage](https://www.zerohedge.com/markets/get-your-shit-together-angry-american-airline-customers-hit-travel-delays-due-labor)
 
 
-
-当地时间12月24日，据香港媒体报道，继香港大学于23日拆除了“国殇之柱”后，香港中文大学的“民主女神像”、岭南大学的“六四”浮雕和民主女神喷漆画像也于24日分别被两个大学的校方移走、拆除和掩盖。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-25-at-8.41.28-PM.png)
-据悉，香港中文大学的校园内曾经摆放“民主女神”的位置而今空空如也，原雕塑不知被移往何处。岭南大学的“六四浮雕”在拆除后被放置于校园内的一个储物室中，原址则已被校方围封；而绘制于该校某学生会中庭墙身的民主女神喷漆画像现已被校方用灰色油漆掩盖。
-
-对此，有评论指出，自2020年港共政府强推《国安法》以后，香港的民主自由已经被中共剥夺殆尽。而今，中共当局授意港共政府强迫各大学移除“六四”大屠杀的各类纪念作品，这也说明了“六四”事件正是中共最为恐惧的真实历史。
-
-参考链接：[中大「民主女神像」被移走 嶺大「六四浮雕」遭拆除](https://hd.stheadline.com/news/realtime/hk/2291521/%25E5%258D%25B3%25E6%2599%2582-%25E6%25B8%25AF%25E8%2581%259E-%25E4%25B8%25AD%25E5%25A4%25A7-%25E6%25B0%2591%25E4%25B8%25BB%25E5%25A5%25B3%25E7%25A5%259E%25E5%2583%258F-%25E8%25A2%25AB%25E7%25A7%25BB%25E8%25B5%25B0-%25E5%25B6%25BA%25E5%25A4%25A7-%25E5%2585%25AD%25E5%259B%259B%25E6%25B5%25AE%25E9%259B%2595-%25E9%2581%25AD%25E6%258B%2586%25E9%2599%25A4)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：童谣
-编辑：飞虹
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

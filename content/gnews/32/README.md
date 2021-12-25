@@ -2,37 +2,22 @@
 ---
 
 
-## 墙内吉林省推出生育贷款应对人口萎缩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789610/)
+## 德汉莎航空因大量飞行员请病假而取消航班
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789884/)
 
-作者：银河勇气星 骄子
+翻译： Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-19.png)
+图片来源：谷歌图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据合众国际社报道，德国汉莎航空公司周四宣布，将取消圣诞节期间的洲际航班,原因是大量的飞行员请病假。该决定将主要影响汉莎航空跨越北大西洋的长途航班。 截止周日，将有六个个航班被取消。返回日本的航班同样也被取消。
 
-12月24日，据中共媒体消息显示，近日，为了应对中共官方对墙内人口增长的需求，中共吉林省政府推出了一项“婚姻和生育消费者贷款”。据悉，此项贷款的额度高达20万人民币，且该贷款的折扣利率与申请夫妻拥有的孩子数量有关。
+航空公司表示，几乎没有志愿者能够顶替上岗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1225AM（1-10）图片备用.004-copy.jpeg)
+北欧斯堪的那维亚航空公司周二宣布，他们将取消在瑞典、丹麦和挪威的 30 多个航班。 随即九个航班在第二天被取消，周四又取消了四个。该航空公司的病假也在不断增加。 机组人员已进入隔离状态，使的航班的未来更加不确定。
 
-报道提及，在过去几年里，中共国的新生儿出生率极速放缓，当中以吉林省的人口下降最为严重。因此，包括吉林在内的中共各省市接连推出各种或利诱、或强迫的鼓励生育手段。
+汉莎航空同时承诺，将制定应急计划应对可能发生的COVID-19 危机，包括让后备人员随时待命，以便使应急计划更具灵活性。
 
-但据知情人士透露，墙内其他省份此前推出的类似生育贷款曾大受诟病，而此次吉林省推出的鼓励生育类贷款也引发了墙内民众的广泛争议。
-
-参考链接：[Chinese province offers $31,000 baby loans to counter shrinking population](https://indianexpress.com/article/world/chinese-province-offers-31000-baby-loans-to-counter-shrinking-population-7688479/lite/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：童谣
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[https://www.upi.com/Top\_News/World-News/2021/12/23/Germany-Lufthansa-cancels-flights-pilots-sick/6911640282818/](https://www.upi.com/Top_News/World-News/2021/12/23/Germany-Lufthansa-cancels-flights-pilots-sick/6911640282818/)
 
  
 

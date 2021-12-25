@@ -15,130 +15,130 @@
 
 ---
 
-### [12/24/2021 文贵直播：邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步](/content/gnews/1/README.md)
+### [第209期玫瑰看新闻 &#8211; 新中国联邦新闻](/content/gnews/1/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [“骑墙外交”的岸田遭拜登冷遇](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵大直播精要：HBO采访 对海外华人的伤害（1222）](/content/gnews/2/README.md)
- ` 神奇四侠`
-
-### [在中共国，我们每个人都是彭帅](/content/gnews/3/README.md)
- ` 银河勇气之星`
-
-### [DC每日热点1225](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美军舰爆发疫情 全员已完全接种](/content/gnews/5/README.md)
+### [台日二轮2+2会谈聚焦芯片合作与经贸关系](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
+### [第209期玫瑰看新闻 &#8211; 新西兰本地新闻](/content/gnews/5/README.md)
+ ` 【🌹玫瑰新闻】`
 
-### [文贵大直播精要：疫苗和病毒的大灾难（1222）](/content/gnews/7/README.md)
+### [文贵大直播精要：媒体的力量（1222）](/content/gnews/6/README.md)
  ` 神奇四侠`
 
-### [CCP冠状病毒预防及治疗用药常见问题](/content/gnews/8/README.md)
+### [12/24/2021 文贵直播：邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [日本不会派遣政府官员出席中共冬奥会](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [日美拟定联合行动草案应对台海危机](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [中共未能兑现贸易协议中对美国的承诺](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [文贵大直播精要：HBO采访 对海外华人的伤害（1222）](/content/gnews/11/README.md)
+ ` 神奇四侠`
+
+### [在中共国，我们每个人都是彭帅](/content/gnews/12/README.md)
+ ` 银河勇气之星`
+
+### [DC每日热点1225](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美军舰爆发疫情 全员已完全接种](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文贵大直播精要：疫苗和病毒的大灾难（1222）](/content/gnews/16/README.md)
+ ` 神奇四侠`
+
+### [CCP冠状病毒预防及治疗用药常见问题](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [防止先进技术外流！日本将不公开涉及安全的专利申请](/content/gnews/9/README.md)
+### [防止先进技术外流！日本将不公开涉及安全的专利申请](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Facebook的丑闻引起政府监管](/content/gnews/10/README.md)
+### [Facebook的丑闻引起政府监管](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [共产主义引诱人性邪恶](/content/gnews/11/README.md)
+### [共产主义引诱人性邪恶](/content/gnews/20/README.md)
  ` 骄子`
 
-### [圣诞假日，澳洲新南威尔士汇报超6000新增病例](/content/gnews/12/README.md)
+### [圣诞假日，澳洲新南威尔士汇报超6000新增病例](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [银河快讯:日本宣布不派阁僚参加北京冬奥会；东京新增四个Omicron确诊病例](/content/gnews/13/README.md)
+### [银河快讯:日本宣布不派阁僚参加北京冬奥会；东京新增四个Omicron确诊病例](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [从HBO入党说起](/content/gnews/14/README.md)
+### [从HBO入党说起](/content/gnews/23/README.md)
  ` 骄子`
 
-### [もし、郭文貴氏がVICEのインタビューを断ったら](/content/gnews/15/README.md)
+### [もし、郭文貴氏がVICEのインタビューを断ったら](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [绝不会放弃跟VICE、Isobel、HBO和单伟建的每一个官司](/content/gnews/16/README.md)
+### [绝不会放弃跟VICE、Isobel、HBO和单伟建的每一个官司](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：香港各大学的雕像和壁画被移除 消失的天安门事件“记忆”](/content/gnews/17/README.md)
+### [秘翻在线：香港各大学的雕像和壁画被移除 消失的天安门事件“记忆”](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [经济下跌，中共以大基建拉动内需](/content/gnews/18/README.md)
+### [经济下跌，中共以大基建拉动内需](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们用血汗、生命、安全证明西方媒体造假和共产党渗透](/content/gnews/19/README.md)
+### [我们用血汗、生命、安全证明西方媒体造假和共产党渗透](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本东京开始全面免费检测中共病毒，中共依然在割韭菜](/content/gnews/20/README.md)
+### [日本东京开始全面免费检测中共病毒，中共依然在割韭菜](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [即使十四亿同胞中稀缺好儿女,我们依然万死不辞为之战斗](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【辞典词条】维生素C](/content/gnews/22/README.md)
+### [【辞典词条】维生素C](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Isobel的造假为美国取消关税世界转变冬奥会立场做铺垫](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [英特尔为其要求抵制中共在新疆地区侵犯维吾尔族人权的行为被迫道歉](/content/gnews/24/README.md)
+### [英特尔为其要求抵制中共在新疆地区侵犯维吾尔族人权的行为被迫道歉](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【辞典词条】文贵谈养生](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德汉莎航空因大量飞行员请病假而取消航班](/content/gnews/26/README.md)
+### [德汉莎航空因大量飞行员请病假而取消航班](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【辞典词条】羟氯喹](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美航司人员短缺 圣诞前夜取消数百航班](/content/gnews/28/README.md)
+### [美航司人员短缺 圣诞前夜取消数百航班](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗并不像政府说的那样能阻止中共病毒的传播](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [12/25/2021国际财经快讯：欧洲股市在假日交易中收低；土耳其银行提高利率](/content/gnews/30/README.md)
+### [12/25/2021国际财经快讯：欧洲股市在假日交易中收低；土耳其银行提高利率](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [瑞士将公投反对新冠疫苗强制令](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墙内吉林省推出生育贷款应对人口萎缩](/content/gnews/32/README.md)
+### [墙内吉林省推出生育贷款应对人口萎缩](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [香港各大院校接连拆除“六四”标志作品](/content/gnews/33/README.md)
+### [香港各大院校接连拆除“六四”标志作品](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [郭先生谈GNews未来的三大核心价值](/content/gnews/34/README.md)
+### [郭先生谈GNews未来的三大核心价值](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [中共计划释放更致命的新型病毒](/content/gnews/35/README.md)
+### [中共计划释放更致命的新型病毒](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [中共12家纺织协会反对美国制裁](/content/gnews/36/README.md)
+### [中共12家纺织协会反对美国制裁](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前白宫新闻秘书阿里-弗莱舍：关于脑控武器，中共把会把国家意志放在人权之上；中共与自由民主社会有本质不同，拜登政府应该表率离开中共！](/content/gnews/37/README.md)
+### [前白宫新闻秘书阿里-弗莱舍：关于脑控武器，中共把会把国家意志放在人权之上；中共与自由民主社会有本质不同，拜登政府应该表率离开中共！](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在孩子中广泛使用疫苗以确认其是否安全，是医学史上最应被唾弃的](/content/gnews/38/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [男子外出惨遭防疫人员围殴，西安疫患病者只有等死？](/content/gnews/39/README.md)
+### [男子外出惨遭防疫人员围殴，西安疫患病者只有等死？](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相考虑参加NPT审议大会](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵直播传播高达亿次 中共倾一国之力 收买封杀爆料革命的真实数据](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [张高丽玩处女 家族一定会受审判](/content/gnews/42/README.md)
+### [日本首相考虑参加NPT审议大会](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [法国文化名人投稿呼吁政府对北京奥运会进行外交抵制](/content/gnews/43/README.md)

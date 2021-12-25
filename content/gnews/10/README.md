@@ -2,19 +2,34 @@
 ---
 
 
-## Facebook的丑闻引起政府监管
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1790073/)
+## 中共未能兑现贸易协议中对美国的承诺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790239/)
 
-撰稿：云彩
-视频来自网络
-2021年Facebook 负面消息不断。比如开始大胆计划开发“儿童 Instagram”,结果公司不得不面对搁浅的尴尬局面。因为被泄露的内部报告显示其产品正在伤害青少年。
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月23日，据美国媒体披露，从数据上看，中共政府在即将结束的2021年内未能兑现此前对美国贸易的承诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-25-下午10.46.24.png)
+资料显示，美中双方于 2020 年 1 月签署的贸易协议旨在恢复双边的贸易平衡，但在第一阶段贸易协议覆盖的23个月里，中共从美国的进口虽然创下了新纪录，但还远远没有兑现其对美国的承诺。
 
-今年，Facebook承诺打击反疫苗错误信息和虚假信息。结果平台上的反疫苗消息比以往任何时候都多。笔者认为，是越来越多的民众开始质疑疫苗，因为许多人打了疫苗，身体出现明显的副作用，甚至死亡。人们在Facebook上传播真相，这也就是为什么帖子越删越多。
+消息人士认为，鉴于中共的表现，拜登政府将不会改变对中共贸易政策的强硬立场，同时也很难降低或取消已对中共商品增加的进口关税。
 
-社交媒体平台上的儿童权利和隐私将成为2022年澳大利亚ˎ美国ˎ英国和欧洲政府监管机构主要考虑事项。人们普遍担心隐私ˎ数据滥用ˎ辩论两极分化和在线错误信息。
+对此，郭文贵先生日前也曾爆料称，中共仍将采取利诱以及病毒威胁等手段，胁迫拜登政府放松对中共的贸易压制。
 
-点评：FB和推特目前的盈利模式之一是靠出卖用户数据。GTVˎGnews和盖特推行躺平币。目的是鼓励用户使用社交媒体，按使用社交媒体的时间衡量数量和价值，兑付由第三方独立完成，保证随时可以贴现、流通。根据浏览、发文、转发、点赞等活动量获得相应躺平币，系统自动生成，直接分配到用户账户。媒体用户成为躺平币主。这是全新的理念。FB和推特的盈利模式势必将被淘汰。
+参考链接：[China to Fall Short on Promises to U.S. as Trade Deal Ends](https://ca.finance.yahoo.com/news/china-set-fall-short-promises-150742694.html)
 
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：童谣
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,40 @@
 ---
 
 
-## 【辞典词条】文贵谈养生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789887/)
+## 绝不会放弃跟VICE、Isobel、HBO和单伟建的每一个官司
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1790009/)
 
-编者按：【辞典词条】指《新中国联邦词典》词条，是东京樱花团面向GNEWS推出的一档专栏内容。本文摘选自《新中国联邦词典》相关词条，专栏目的是希望更多战友关注《新中国联邦词典》编撰。《辞典》中词条的内容会不断更新、优化和调整，想查看有关本词条的最新信息，请访问《新中国联邦辞典》并【添加到收藏夹】。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-59.jpg)
-在2022.12.12直播中，[郭文贵](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)先生谈到养生。
+**郭文贵先生：**这些一切刑事问题一定……就像梁冠军一样，就像梁冠军被调查一样，它一定会发生。我们不想钓出一个伊莎贝拉，说老实话对她半点……这个人在生活中我一点都不反感，她不像蛇妖阎一出来，你一看她浑身贱肉，假货、Low到站街女，就30块钱都不愿出那种感觉的。这个伊莎贝拉生活中我一点不讨厌，这个小孩这个人还是很有礼貌的。
 
-- 不要懒生。
-- 洗鼻子，洗眼睛
-- 清洁牙齿，刷牙、洗牙
-- 五分钟让自己身体平静下来。打坐、静瑜伽、冥想，练法轮功，都可以让思想放空。
-- 不要吃太多，所有的累都是吃出来的，
-- 健身
-- 带着防护眼镜看电子设备
-- 打电话应该用蓝牙耳机，电话远离身体，尤其是头。
-- 12点前一定要睡觉
-- 不要有抱怨
-- 学会爱别人，更要爱自己
-- 不要在乎别人怎么说，只在乎自己怎么做。
+这个个人上我对伊莎贝拉没有什么，但是这一次她执行的这种杀人计划，杀掉Nicole、杀掉小斯基、杀掉爆料革命、杀掉郭文贵、杀掉新中国联邦，这是凶险至极的。
 
+这个事情大了去了，接下来会一次次证明这个报导之后，它是对中国共产党有多大的帮助，我们新中国联邦已经成了中美关系恶化的替罪羊，我们已经成了邪教，我们已经成了骗子集团，我们已经成了暴力分子。我们跟VICE、跟伊莎贝拉、跟HBO和单伟健的官司绝对会一个又一个，绝不会放弃，这回得告她，我们这回不能感激她。
 
-# 打坐
+字幕来源：[2021年12月22日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1784652/)
 
-[郭文贵](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)先生亲身演示[打坐](https://www.nfscdict.com/%E6%89%93%E5%9D%90)视频[\[1\]](https://www.nfscdict.com/%E6%96%87%E8%B4%B5%E8%B0%88%E5%85%BB%E7%94%9F#cite_note-1)
+字幕文件制作：小满；
 
-# 参考资料
+视频制作及上传：Cindy；
 
-1. 这是七哥2017年4月打坐的珍贵视频！三年半后，他公开了自己与天地连接和快速休息放松，补充能量的秘诀！ [https://gettr.com/comment/c9t6lva143](https://gettr.com/comment/c9t6lva143)
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-词条原文链接：
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[文贵谈养生](https://www.nfscdict.com/%E6%96%87%E8%B4%B5%E8%B0%88%E5%85%BB%E7%94%9F)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
