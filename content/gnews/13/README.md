@@ -2,21 +2,20 @@
 ---
 
 
-## 第209期玫瑰看新闻 -中共病毒新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1790353/)
+## 七哥说—第38期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1790411/)
 
-中共病毒新闻
+制作：Inzaghi
 
-1.南非总统新冠病毒检测结果呈阳性
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-2.美国因 COVID-19 造成的死亡人数超过80万
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-23_3.13.45.png)
 
-3.津巴布韦禁止未接种疫苗的人使用公共交通工具
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25_2.56.30.png)
 
-4.柳叶刀：大规模疫苗接种未能阻止 COVID 传播率
-
-
-
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

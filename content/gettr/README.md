@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 4:25 PM (UTC)`
+
+12月25号：在今天这个特别的日子里．<br/>当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……
+![img](https://media.gettr.com/group31/getter/2021/12/25/16/30b492c3-d4d7-29fd-2362-3b2f8e888b71/out.jpg)
+
+---
+
 `@miles 12/25/2021 2:26 PM (UTC)`
 
 12月25号2021年……圣诞节文贵……蒸馍馍直播
@@ -147,13 +154,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 12/23/2021 Miles Guo’s GETTR: It’s said that Jack Ma and Xu Jiayin are waiting for something bad to happen to Xi Jinping, aren’t they? The arrest of Liu Yazhou (retired PLA general) indicates that Xi will surely be able to eliminate the “red second generation”, the second generation of the CCP’s military officers, and the second generation of the CCP cadres, and even the second generation of the rich will inevitably be annihilated by Xi<br/><br/>12/23/2021 文贵盖特：听说马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心<br/>
 ![img](https://media.gettr.com/group38/getter/2021/12/24/00/5e906b57-a7a9-bc2e-6848-53792114f67e/out.jpg)
-
----
-
-`@miles 12/23/2021 11:07 PM (UTC)`
-
-Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay tuned for Episode 1 of the documentary “Who is Miles Guo”, premiering on December 24th, 2021. Feel free to fact-check!<br/><br/>Fri, Dec 24th at 9:00 pm (Eastern Standard Time)<br/>Sat, Dec 25th at 10:00 am (Beijing Time)<br/><br/>GTV Live: 郭文贵MILES<br/>GETTR Live: @Miles<br/><br/>郭文贵是谁？中国共产党的终结者！2021年12月24日，纪录片《谁是郭文贵》第一集首播，不用听我们说，你们可以自己验证！<br/>播出时间：<br/>12月24日美东周五晚上 九点<br/>12月25日墙内周六早上 十点<br/>GTV直播：郭文贵MILES<br/>盖特直播：@Miles
-![img](https://media.gettr.com/group48/origin/2021/12/23/23/278780c5-b491-3ef0-9775-e5c51ed14353/out.jpg)
 
 ---
 

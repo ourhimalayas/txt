@@ -15,92 +15,92 @@
 
 ---
 
-### [文贵大直播精要：中共为何抢劫盘古裕达？（1217）](/content/gnews/1/README.md)
+### [文贵大直播精要：1212](/content/gnews/1/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：中共的家天下（1217）](/content/gnews/2/README.md)
+### [文贵大直播精要：（1217）](/content/gnews/2/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：中共是骗子党（1217）](/content/gnews/3/README.md)
+### [文贵大直播精要：战友打榜的意义和人类的获救必须灭共（1217）](/content/gnews/3/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：直播的力量（1222）](/content/gnews/4/README.md)
+### [文贵大直播精要：新中国联邦人应有的素质（1217）](/content/gnews/4/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：引蛇出洞（1222）](/content/gnews/5/README.md)
+### [文贵大直播精要;中共的残忍与中国人的悲哀(1217)](/content/gnews/5/README.md)
  ` 神奇四侠`
 
-### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/6/README.md)
+### [文贵大直播精要：中共为何抢劫盘古裕达？（1217）](/content/gnews/6/README.md)
+ ` 神奇四侠`
+
+### [文贵大直播精要：中共的家天下（1217）](/content/gnews/7/README.md)
+ ` 神奇四侠`
+
+### [文贵大直播精要：中共是骗子党（1217）](/content/gnews/8/README.md)
+ ` 神奇四侠`
+
+### [文贵大直播精要：直播的力量（1222）](/content/gnews/9/README.md)
+ ` 神奇四侠`
+
+### [文贵大直播精要：引蛇出洞（1222）](/content/gnews/10/README.md)
+ ` 神奇四侠`
+
+### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播精要：大卫对HBO谎言的剖析（1222）](/content/gnews/7/README.md)
+### [文贵大直播精要：大卫对HBO谎言的剖析（1222）](/content/gnews/12/README.md)
  ` 神奇四侠`
 
-### [七哥说—第38期](/content/gnews/8/README.md)
+### [七哥说—第38期](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播精要：杨贝贝采访Nicole的造假（1222）](/content/gnews/9/README.md)
+### [文贵大直播精要：杨贝贝采访Nicole的造假（1222）](/content/gnews/14/README.md)
  ` 神奇四侠`
 
-### [12/25/21 香港快讯 岭大平安夜移走六四浮雕 明年元旦开始每日升「国旗」](/content/gnews/10/README.md)
+### [12/25/21 香港快讯 岭大平安夜移走六四浮雕 明年元旦开始每日升「国旗」](/content/gnews/15/README.md)
  ` 英喜-粵語組`
 
-### [第209期玫瑰看新闻 -疫苗灾难新闻](/content/gnews/11/README.md)
+### [第209期玫瑰看新闻 -疫苗灾难新闻](/content/gnews/16/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [【Michael.Tonny专栏】VAERS数据表明，接种中共病毒毒疫苗导致严重后果](/content/gnews/12/README.md)
+### [【Michael.Tonny专栏】VAERS数据表明，接种中共病毒毒疫苗导致严重后果](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [第209期玫瑰看新闻 -中共病毒新闻](/content/gnews/13/README.md)
+### [第209期玫瑰看新闻 -中共病毒新闻](/content/gnews/18/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [文贵大直播精要：HBO杨贝贝骗访对华人的伤害（1222）](/content/gnews/14/README.md)
+### [文贵大直播精要：HBO杨贝贝骗访对华人的伤害（1222）](/content/gnews/19/README.md)
  ` 神奇四侠`
 
-### [平安夜感悟](/content/gnews/15/README.md)
+### [平安夜感悟](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [12/24/2021 文贵直播：HBO/VICE杨贝贝借滕彪、螃蟹之口，并通过恶意剪辑Nicole、小斯基等战友的话将爆料革命和文贵污蔑为一帮骗子、邪教和西方民主自由的威胁，阴险邪恶至极](/content/gnews/16/README.md)
+### [12/24/2021 文贵直播：HBO/VICE杨贝贝借滕彪、螃蟹之口，并通过恶意剪辑Nicole、小斯基等战友的话将爆料革命和文贵污蔑为一帮骗子、邪教和西方民主自由的威胁，阴险邪恶至极](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [第209期玫瑰看新闻 &#8211; 国际热点新闻](/content/gnews/17/README.md)
+### [第209期玫瑰看新闻 &#8211; 国际热点新闻](/content/gnews/22/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第209期玫瑰看新闻 &#8211; 新中国联邦新闻](/content/gnews/18/README.md)
+### [第209期玫瑰看新闻 &#8211; 新中国联邦新闻](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [“骑墙外交”的岸田遭拜登冷遇](/content/gnews/19/README.md)
+### [“骑墙外交”的岸田遭拜登冷遇](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪](/content/gnews/20/README.md)
+### [12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [台日二轮2+2会谈聚焦芯片合作与经贸关系](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [第209期玫瑰看新闻 &#8211; 新西兰本地新闻](/content/gnews/22/README.md)
+### [第209期玫瑰看新闻 &#8211; 新西兰本地新闻](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [文贵大直播精要：媒体的力量（1222）](/content/gnews/23/README.md)
- ` 神奇四侠`
-
-### [12/24/2021 文贵直播：邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [日本不会派遣政府官员出席中共冬奥会](/content/gnews/25/README.md)
+### [日本不会派遣政府官员出席中共冬奥会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [日美拟定联合行动草案应对台海危机](/content/gnews/26/README.md)
+### [日美拟定联合行动草案应对台海危机](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [中共未能兑现贸易协议中对美国的承诺](/content/gnews/27/README.md)
+### [中共未能兑现贸易协议中对美国的承诺](/content/gnews/29/README.md)
  ` GTV新闻访谈`
-
-### [文贵大直播精要：HBO采访 对海外华人的伤害（1222）](/content/gnews/28/README.md)
- ` 神奇四侠`
-
-### [在中共国，我们每个人都是彭帅](/content/gnews/29/README.md)
- ` 银河勇气之星`
 
 ### [DC每日热点1225](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`

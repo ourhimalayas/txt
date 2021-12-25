@@ -2,29 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1790428/)
+## 文贵大直播精要：中共为何抢劫盘古裕达？（1217）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790496/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+为啥中共这时候用这种流氓手段抢夺盘古裕达? 为啥中共这时候把盘古⻰头改龟头？因为他们相信盘古的黑蛇与白蛇的故事，相信裕达佛手的力量。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-25.png)
-文章仅代表作者本人观点，与Gnews无关
+习、王、孟都觉得靠谱、是真的、而且越来越相信。首先，盘古属于地上⻰、而且盘古地下五层连接在一起，这就是苍⻰、火⻰。明年是⻁年，⻰⻁相争，必有一伤，盘古之龙对属⻁的彭丽媛是大伤。
 
-视频参看：[2021.12.25早GTV新闻访谈](https://gtv.org/broadcast/watch/61c71cd700f9a119180a738e)
+中共强令金隅公司把盘古⻰头变成龟头的做法震惊世界，也对共产党的所谓无神论几乎秒杀。其次，北有⻰头，南有中原佛手。中原佛手，得中原者得天下。郭文贵称之为裕达，欲速则不达。中共现在改成王健林的万达，万事皆达而让你永远不达。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+今天中共对盘古和裕达的所作所为，是彻彻底底的政治巫术。当年，⻬奥塞斯库夫妇曾经被埃及巫师忠告，说未来五年 是大凶，要铲除罗⻢尼亚的教堂，要用儿童的血来祭奠他。⻬奥塞斯库被誉为罗⻢尼亚的水神和火神，而敖丽娜是被上天加持过的女神，但结果他俩被枪毙于蛇年。习对⻬奥塞斯库下场的恐惧，是显而易见的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
