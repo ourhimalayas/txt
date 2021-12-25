@@ -2,19 +2,41 @@
 ---
 
 
-## 几年来文贵用生命鲜血传递信息 陈红陈凯歌除了《霸王别姬》其他电影全是洗钱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789230/)
+## 戳穿VICE谎言的布置在采访完就已经开始只等中共出手
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789267/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+**郭文贵先生：**前天在我们没有播出全集采访的，就在这个桌子上，大家都看了对方的采访，我们遵守当初的约定，Isobel Yeung，她不放我们不放，我们当时的条件是现场要放摄像机，我们放摄像机了，对方你看多次尝试阻挡我们的镜头，你看到没有，你看挡来挡去好多次，就是对方的摄影师、对方的团队，很坏的！
 
-12月19日，郭文贵先生在GTV大直播指出：
+而且我们中间是有一段没有录上的，现在我都怀疑这个没录上，到底是什么技术让没录上，只有一段儿没录上的，不是百分之百，很吓人的！
 
-几年来郭先生和战友们用生命和鲜血传递出的情报，充分证明爆料革命情报的真实性。解直锟丧文中，第一句就写着“中共党员”，引用黑格尔的诗歌，很有中共特点。里面还出现陈凯哥和陈红，陈凯哥的电影，除了《霸王别姬》其它都是用来洗钱和骗钱的。
+另外一个，就是这个录完以后，我就把它发给了大卫和木兰，我说你们开始准备加字幕吧，然后把中间对方撒谎的事儿做好对比，咱已经开始了，是吧！就如果没有这个对比、没有这个录像机一切就完了。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

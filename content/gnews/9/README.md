@@ -2,30 +2,24 @@
 ---
 
 
-## 俄罗斯升级对谷歌等大科技公司的处罚力度
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789237/)
+## 拜登签署两党法案，禁止进口强迫劳动生产的中共国商品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789273/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：黃金精神
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2-2.jpg)图片来源：StoryTwitt
-据《新闻极限》12月24日的报道，周五，俄罗斯法院对谷歌处以近1亿美元的罚款，并对脸书（Facebook）的母公司Meta处以2700万美元的罚款，原因是它们没有删除俄罗斯法律禁止的内容，表示着俄罗斯试图加大对大科技公司的压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-126.png)图片来源：看中国
+12月24日据福克斯新闻（Fox News）报道，拜登总统周四签署了两党立法，禁止从中共国新疆维吾尔自治区进口产品，并制裁在该地区从事强迫劳动的个人。拜登政府在新疆维吾尔族遭受数月迫害的紧张局势之后作出决定，国务院已将这种迫害定性为种族灭绝。这代表了美国政府惩罚中共国侵犯人权的最新尝试。
 
-塔甘斯基（Tagansky）区法院裁定，谷歌多次忽视删除被禁内容，命令该公司支付约72亿卢布（约9840万美元）的行政罚款。对此，谷歌表示，它将研究法庭文件，然后决定下一步行动。
+拜登周四在推特上说：“美国将继续使用我们掌握的一切工具，确保供应链不使用强迫劳工，包括中共国的新疆和其他地区。”
 
-周五晚些时候，法院还对Meta公司处以近20亿卢布（2720万美元）的罚款，原因也是其未能删除被禁内容。
+该法案由参议员马尔科·鲁比奥 （Marco Rubio，佛罗里达州共和党）和杰夫·默克利 （Jeff Merkley，俄勒冈州民主党）推动，并在参议院一致同意下通过。该法案包含一系列旨在加强1930年关税法第307条执行的条款。该法规定，强迫劳动生产的货物 “无权进入美国的任何港口”。
 
-报道指，俄罗斯法院今年曾对谷歌、脸书和推特（Twitter）处以较小额度的罚款，但周五的判罚标志着首次根据收入来计算罚款的多少。
+拜登在签署该法案时，承诺联邦政府将制定一项防止强迫劳动的进口战略。该法案还要求海关和边境保护局（Customs and Border Protection，CBP）承担这项禁令。
 
-俄罗斯国家通信监督机构联邦通信、信息技术和大众传媒监督局（Roskomnadzor）表示，谷歌和Meta被特别指控违反了关于传播宣传极端主义意识形态、侮辱宗教信仰和鼓励未成年人危险行为等内容的禁令。该机构表示，尽管法院要求删除2000条内容，但Facebook和Instagram没有这样做，而谷歌也没有删除2600条此类内容。
+这项措施是在中共国周二宣布对美国官员进行制裁之后采取的，特别针对美国国际宗教自由委员会的成员。尽管中共国否认有不法行为，但它继续面临国际层面的审查。例如，美国和其他西方国家已经承诺外交抵制北京奥运会。
 
-该机构警告说，如果他们没有删除被禁内容，可能会面临更多基于收入的罚款。
-
-此外，俄罗斯议会下院（lower house of the Federal Assembly of Russia）信息政策委员会（committee on information policies）主任亚历山大·金希泰因 （Alexander Khinshtein）说，巨额罚款应该向所有IT巨头发出了一个明确的信息。他警告，俄罗斯法律设想了对不遵守法院命令的其他形式的惩罚，包括放慢网速和完全封锁。
-
-**新闻来源**
-
-[Russian Court Slaps Google, Meta with Massive Fines](https://www.newsmax.com/newsfront/russia-google-meta/2021/12/24/id/1049893/)
+新闻来源：[Biden signs bipartisan bill to block importation of Chinese goods produced through forced labor](https://www.foxnews.com/politics/biden-bill-uyghurs-china-forced-labor)
 
  
 
