@@ -2,38 +2,48 @@
 ---
 
 
-## 高疫苗接种率不能阻止Omicron在纽约蔓延
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
+## 梵蒂冈发布对所有员工和访客的疫苗接种令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788446/)
 
-撰稿：纽约香草山健身部— Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
 
-美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
 
-[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+据[布赖特巴特新闻网](https://www.breitbart.com/health/2021/12/23/vatican-issues-vaccine-mandate-all-employees-visitors/)12月23日报道，本周四，梵蒂冈国务卿皮埃特罗·帕罗林红衣主教签署了梵蒂冈疫苗接种令。接种令规定，从2022年1月31日起，凡是提供梵蒂冈服务、与公众接触的人员必须出示 “证明在第一轮疫苗接种后进行了加强针接种的文件”。该法令没有提到基于道德考虑的良心反对的豁免情况。
 
-编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1848-GettyImages-1213417831-640x480-1.png)VINCENZO PINTO/App via Getty images
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+法令规定，出示疫苗护照（超级通行证）上班的义务适用于罗马教廷和与教廷有联系的机构的所有人员，以及外部合作者、梵蒂冈城邦的访客和外部工作人员。
+
+法令严厉规定，没有有效绿色通行证的人员 “将无法进入工作场所，并被视为无故缺勤，从而将在缺勤期间停发工资”，同时将受到这种缺勤所带来的进一步影响。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,25 +2,27 @@
 ---
 
 
-## 加拿大魁省疫情失控重返重灾区
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788519/)
+## 加拿大酝酿更多措施强迫疫苗接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788532/)
 
-采编：UCool 优酷   编译撰稿：文明(添草灭共)
+原文采编：UCool优酷     翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-7-edited.jpg)图片来源：CTV
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-8-edited.jpg)图片来源：TNH
 
 
-据加拿大【CTV新闻】12月23日报道，魁北克省“新冠病毒”疫情急剧恶化，当日新增感染9397人，已连续三天打破历史最高记录。目前活跃病例超过4万人，其中住院患者473人、重症监护91人、死亡6人。
+据加拿大《金融邮报》12月22日报道，随着“新冠病毒”及其变体“奥密克戎”疫情的疯狂肆掠，加拿大各省将出台更多严厉政策以迫使民众接种疫苗。
 
-报道称，尽管官方数据显示新增感染病例中接种疫苗者约占50%，但该省的疫苗接种行动近日仍在加速推行中。目前，该省约90%的人口已完成第一剂疫苗接种，第二剂接种比例为81%，第三剂则为11%。
+对此，报道首先引述了新加坡的最新接种规定，即未接种者将自付所有因感染该病毒而产生的医疗费用。同时，也将不会承担其在国外感染公民的任何治疗费用。
 
-蒙特利尔公共卫生部门表示，当前魁省的病毒检测阳性率约为15%至20%。虽然当局试图努力进行对感染者及其接触人群的追踪工作，但因近期暴增的病例数而无法再有效完成该任务。
+另外，文章还提及美国关于“解雇未接种者”的疫苗政策，并称该国目前已有62%的人完全接种了疫苗，约19%的人注射了增强剂。
+
+本台编辑对此评论：该主流媒体的报道从头至尾都积极鼓吹和敦促加拿大当局应该效仿新加坡及美国的强制接种政策，并试图让本国所有未接种疫苗者为其医疗服务买单。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接： https://montreal.ctvnews.ca/quebec-breaks-new-record-with-9-397-new-covid-19-cases-hospitalizations-jump-to-473-1.5718023
+原文链接:  [https://financialpost.com/diane-francis/diane-francis-make-the-unvaccinated-pay-for-their-own-health-care](https://financialpost.com/diane-francis/diane-francis-make-the-unvaccinated-pay-for-their-own-health-care)
 
  
 

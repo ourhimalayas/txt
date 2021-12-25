@@ -2,29 +2,25 @@
 ---
 
 
-## 加拿大疫情严峻单日感染再创新高
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788493/)
+## 英国疫苗伤害及其灾难逐渐降临
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788505/)
 
-采编：文莱       编译撰稿：文明(添草灭共)
+采编/翻译：文文-自由法兰西        校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5.jpg)图片来源：CTV
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-6.jpg)图片来源：TNH
 
 
-据【CTV新闻】12月22日报道，加拿大当天报告的新增“新冠病毒”感染14,988例，突破了该病毒疫情以来单日确诊的最高纪录。同时，最近七天的新增病例平均数也创下疫情以来10,486例的最高值。
+据英国自媒体《每日内幕》12月22日报道，【苏格兰卫生局】提供的最新数据显示，接种过三剂“新冠病毒”疫苗者已出现大量该病毒感染，住院以及死亡病例。
 
-报道称，该国卫生部将感染人数激增的原因归咎于变体病毒“德尔塔”和“奥密克戎”的快速传播。并以“为避免卫生保健系统突然受到冲击”为由，在多个地区实施了更严格的限制政策。
+报道称，根据政府最新报告，超过66%的病毒感染都发生在已接种疫苗人群中；在住院人数中，接种者占73%；而最终死亡人数，接种者则高达83%。
 
-据悉，魁北克省政府在当天新增感染病例近万人的历史新高情况下，宣布了多项紧急应对措施，除了已关闭学校，健身房，影剧院等公共娱乐场所外，还包括：限制室内聚会人数不得超过6人；要求60岁以上人群和未接种疫苗者不得外出。同时，不再排除对顽固不化的拒绝接种者进行强制接种等。
-
-对此，魁省卫生部长杜贝称：如果政府认为必须进一步采取行动，那么当局将毫不犹豫地强制实行全民接种措施。
+本台编辑对此评论：以上数据再次表明，注射“中共病毒”疫苗及其加强针不仅不能阻止疫情的蔓延和恶化，而且会让被接种者更加容易感染该病毒并因此而伤残乃至死亡。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+发稿：硫酸羟氯喹64
 
-參考链接：[https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161](https://www.ctvnews.ca/health/coronavirus/canada-sets-new-single-day-record-for-covid-19-infections-1.5717161)
-
-[https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre](https://www.journaldequebec.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
+參考链接： [https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/](https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/)
 
  
 
