@@ -2,117 +2,70 @@
 ---
 
 
-## 冬奥会证明共产党完蛋了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789592/)
+## 中共“脑控”技术的伦理风险（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789690/)
 
-[https://gtv.org/video/id=61c6730943ccb726a08ae3c8](https://gtv.org/video/id=61c6730943ccb726a08ae3c8)
+编译：Jenny Ball
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1381.png)
 
-所以说这个冬奥会他不办对咱不是好事
-It wouldn’t be a good thing for us if (the CCP) does not host the Olympics
+**中共对维吾尔人和法轮功的“洗脑”**
 
-他办了就代表咱宣传
-If they do, they will promote it on behalf of us
+鉴于中共军队的种族灭绝和洗脑历史，中共军队的大脑控制研究尤其令人担忧。
 
-证明他完球蛋了
-and prove that the CCP is over
+美国和其他政府已经认识到，根据联合国的定义，中共针对中国维吾尔少数民族的种族灭绝正在进行中。可以说，针对法轮功信徒和藏人的种族灭绝也一直在进行中。
 
-撒币是完全是失败的
-Their money throwing (money bribing) is a complete failure
+据研究人员和美国政府官员称，**北京政权已将超过**** 100 ****万维吾尔人关押在“再教育”拘留设施中**，试图将其宗教和少数民族改造为“优秀”的共产党人。估计在过去几年里，有多达 100到 300 万维吾尔人在再教育营中，学术意见已经确定了 100 到 200 万之间的数字。
 
-而且是在世界是被孤立的
-and it is isolated in the world
+维吾尔族大屠杀最杰出的研究人员之一，阿德里安·曾兹 (Adrian Zenz) 博士，分析了来自中共消息来源的证据，表明维吾尔人在再教育营接受“洗脑”。
 
-更重要的事情
-More importantly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1152108730-600x400-1.jpg)2019 年 6 月 2 日，中国西北新疆地区喀什以北，阿图克斯市职业技能教育培训服务中心的建筑，据信是一个再教育营，其中大部分穆斯林少数民族被拘留。（Greg Baker/AFP via Getty 图片）
 
-同理, 原苏联、希特勒9年11年的诅咒，一定会在他身上发生
-in the same principle, the 9 or 11 year curse on the former Soviet Union and Hitler will definitely happen to them
+根据曾兹在 2019 年同行评审论文中的说法，“职业培训拘留营”从事强迫劳动。他记录了中共政权的声明，声称要“‘洗脑’那些被拘留的人”。曾兹说：“那些受到这种强制洗脑的人，被叫做‘再教育者’——与被拘留的法轮功学员一样。”
 
-那个时候9年、11年相当于今天也就是9天、11天嘛
-9 or 11 years at that time would be 9 or 11 days today
+曾兹获得了一份中共机密文件，其中“规定，表现出反抗迹象的被拘留者，将受到‘袭击式再教育’。”
 
-时间只会更快不会更晚
-Time will only be faster, not later
+曾兹表示，新源县司法局 2017 年的一份工作报告，“对此进行了……严厉的措辞”。 “邪教在‘集中改造教育工作’的标题下，报告指出，**再教育工作必须****‘****洗脑、清心、扶正、除恶****’**”。 )，”曾兹指出。
 
-还有一个咱们要看到， 美帝国主义
-Another thing we should have seen is the US imperialism
+位于伦敦的法庭于 12 月 10 日裁定，中共总书记习近平对维吾尔族种族灭绝负有直接责任。
 
-美帝国主义，这一次一定会戏弄死习近平
-The US imperialism will definitely tease Xi Jinping hardly this time
+**“****大脑控制****”****技术的伦理风险**
 
-蓬佩奥那几句话说的时候
-When having a few words with what Mr. Pompeo
+美国、欧洲和亚洲盟国的伦理学家和政府官员，应该更加重视中共军方对“大脑控制”的研究与该政权的种族灭绝“洗脑”相结合。
 
-全面反击，而且一定像干掉前苏联一样赢, 这话七哥跟他说的
-I said to him that (the U.S.) would definitely win like destroying the former Soviet Union if the U.S. fully counterattack
+根据瑞士巴塞尔大学的生物伦理学家马塞洛·伊恩卡（Marcello Ienca）和荷兰奈梅亨拉德堡大学皮姆·哈斯拉格（Pim Haselager）的说法，大脑控制接口，**可用于以侵犯个人隐私和代理的方式****“****入侵大脑****”****。**伊恩卡目前在洛桑联邦理工学院。
 
-这包括共产党都是七哥跟他说的
-Both of this and the CCP’s (conspiracy) were what I said to him
+根据伊恩卡-哈斯拉格的论文，**脑机接口为脑机器提供了一种接口，要么通过直接在脑组织中植入电极，要么通过更临时的可穿戴技术，将电极保持在完整的颅骨外**，该论文已通过同行评审，并出现在 《道德与信息技术》 2016 年 4 月刊。
 
-可以告诉你，就在这儿说的
-I can tell you that we were right here when I said that
+BCI 旨在帮助患有损害感觉运动功能的神经系统疾病的患者。例如，BCI 可以帮助他们与机械臂进行通信，从而使患者能够更好地适应他们的环境。
 
-蓬佩奥同志有一段精彩的话
-Comrade Pompeo has a wonderful speaking
+美国国防高级研究计划局 (DARPA) 也在研究 BCI，用于军事应用，例如更快速、更有效地人类对战斗机的操作控制。
 
-共产党他不仅是我们的竞争对手，他是我们天然的敌人
-that the CCP is not only our competitor but also our natural enemy
+但伊恩卡-哈斯拉格在《黑客大脑：脑机接口技术与神经安全伦理》一文中告诫说，脑机接口技术的伦理风险相对于其快速发展尚未得到充分探索。
 
-你看美国白人的时候
-When we observe white Americans
+研究人员认为，“神经犯罪”和“大脑黑客”，包括“非法访问和操纵神经信息和计算”，是个人“神经安全”（例如个人隐私和代理）的主要风险。
 
-当白人说这句话的时候，这个白人已经醒悟了
-when they say this, it indicates that they have already awakened
+处于危险之中的是个体最基本的品质，包括意识、意志、感知、思考、自我认同、判断、语言和记忆。伊恩卡-哈斯拉格认为，“**将神经设备滥用于网络犯罪目的，不仅可能威胁用户的人身安全，还会影响他们的行为，并改变他们的自我认同**。”
 
-它是我们天然的敌人
-The CCP is our natural enemy
+伊恩卡-哈斯拉格不仅认为脑机接口“特别重要”，**因为脑机接口具有潜在的神经犯罪，而且，脑机接口****“****读取大脑活动****”****的功能，还被称为****“****神经刺激器****”**。后一类机器——大脑接口包括，用于“深部脑刺激（DBS）和经颅直流电刺激器（tDCS）”的设备。
 
-就是鹰和蛇的天然的较量
-It’s a natural contest between the eagle and the snake
+伊恩卡-哈斯拉格正确地强调了读脑器和刺激器的风险，并认为，“应在设计和监管的早期考虑针对这些风险的道德保障。”
 
-美国是白头鹰，中共是蛇
-The United States is the bold eagle, and the CCP is a snake
+道德保障、监管和新兴国际法，将尤其如此，**因为北京无视道德标准，试图在中共认为是****“****大中华****”****的不断扩大的边界内，加强对个体的控制。**
 
-画了鸡爪子，鱼尾，牛鼻子
-which has drawn with chicken paws, fishtail, and cow’s nose
+**点评：高科技是把双刃剑，难道中共的脑控，不会用在你们这些帮助邪恶中共的技术公司人的后代吗？**
 
-牛的忠诚和勤劳，鱼的这个水，是哇
-The loyalty and diligence of the cow (the Chinese people’s virtues), and the water that provides to fish (the CCP’s bribery funds)
+请阅读上一篇：[中共“脑控”技术的伦理风险（1/2）](https://gnews.org/zh-hans/1789671/)
 
-还有鸡的爪子，还能挠粪是吧
-Moreover, the chicken’s paws (the CCP’s means of infiltration) could also scratch dung (consequences)
-
-挠很多粪吃是吧
-scratch lots of dung for themselves
-
-能挠粪能上天，还能飞
-They can scratch dung, they can go into the sky, and even fly
-
-实际上你就是蛇嘛
-Actually you (the CCP) are a snake
+新闻来源 : [theepochtimes] [The Ethical Risks of China’s ‘Brain Control’ Tech](https://www.theepochtimes.com/the-ethical-risks-of-chinas-brain-control-tech_4167051.html?utm_source=News&amp;utm_campaign=breaking-2021-12-24-1&amp;utm_medium=email&amp;est=lZwgyaGCr8aGqLJxQ7WQ4qQX5pmEtGvPzHXS0slrk6lGu285a6RP53x3NYta4DJP)
 
 * * *
 
-Date: 12/20/2021
-原视频标题: 冬奥会证明共产党完蛋了
-The Beijing Winter Olympic Proves That The Communist Party is Over
-原视频日期：2021/12/19
-原视频链接: **[https://gettr.com/post/pk5wi3f48d](https://gettr.com/post/pk5wi3f48d)**
-任务编号：KC366（3296）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 

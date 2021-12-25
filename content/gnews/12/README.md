@@ -2,82 +2,170 @@
 ---
 
 
-## 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789661/)
+## 【辞典词条】食品添加剂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789863/)
 
-[https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1](https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1)
+撰稿：东京樱花团/Inwp G
 
-**郭文贵
-Miles Guo**
+编者按：【辞典词条】指《新中国联邦词典》词条，是东京樱花团面向GNEWS推出的一档专栏内容。本文摘选自《新中国联邦词典》相关词条，专栏目的是希望更多战友关注《新中国联邦词典》编撰。《辞典》中词条的内容会不断更新、优化和调整，想查看有关本词条的最新信息，请访问《新中国联邦辞典》并【添加到收藏夹】。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1394.png)
+中共国许多食品非常容易对人体造成损害，除了污染植物以外，还有很大原因是中共国《食品安全标准》制订本身就存在许多问题。
 
-2017年都访问过我，黑过我一次，我还要被它黑
-They interviewed me in 2017, hurt me once, and I have to be hurt by they again
+本篇主要介绍常见的食品添加剂与可能带来的潜在健康风险。
 
-这就是我们的站位和我们的角度，我们要通过自己的流血
-This is our position and our angle, we want to through our bleeding
+## 防腐剂
 
-证明敌人的邪恶和凶残，通过自己的被羞辱、被冤枉，证明自己
-to prove the evil and cruelty of the enemy, to prove ourself by being humiliated and wronged
+#### 苯甲酸钠 Sodium benzoate E211
 
-让全世界看到被冤枉以后，下一个你，你能承受得了吗？
-After letting the whole world see being wronged, if you are the next one, can you bear that?
+非常常见的防腐剂，但它毒性较大，尤其是对猫的危害极大。主要是造成线粒体损伤、细胞衰老，还可能造成儿童多动症。尤其是[维生素C](https://www.nfscdict.com/%E7%BB%B4%E7%94%9F%E7%B4%A0C)与[苯甲酸钠](https://www.nfscdict.com/%E8%8B%AF%E7%94%B2%E9%85%B8%E9%92%A0)共同存在时，容易释放出一类[致癌物](https://www.nfscdict.com/%E8%87%B4%E7%99%8C%E7%89%A9)苯。
 
-还有像彭帅这样的事件，如果你家出现了彭帅，你能得到彭帅这种待遇吗？
-also like Peng Shuai’s incident, if Peng Shuai appears in your family, can you get Peng Shuai’s treatment?
+日本已经停止生产并且严格限制它的使用。但在大陆依然大量地被使用。
 
-如果你家人遭受了，一个马蕊处女膜这样的事件，你能活得下去吗？
-If your family member suffers like Ma Rui’s Hymen incident, can you survive?
+添加在各种保装食品、果汁饮料、酱油、醋、酱等调料中。
 
-还有当时的跟王艳萍的性嗨视频，哎呀，我没事都想听听
-There was also the sex video with Wang Yanping at that time, Oh, I want to listen to it at my spare time
+#### 特丁基对苯二酚 tert-Butylhydroquinone TBHQ E319
 
-我一听我声音原来那么性感，我真希望那是真的，但它不是真的
-When I heard my voice turned out to be so sexy, I wish it was true, but it’s not true
+目前被认为比较优秀的油脂的抗氧化剂。但实际上有一定的致癌性，尤其是胃癌。还可能损伤免疫系统。
 
-还有跟我的侄儿媳妇性交，王艳萍就是我侄儿媳妇
-And have sex with my nephew’s wife, Wang Yanping is my nephew’s wife
+美国FDA与欧洲ESFA都允许在食品中使用，在中国TBHQ也是最常用的油脂防腐剂。但日本禁止使用这种防腐剂。早年有一起中国出口至日本的饺子被认为有毒(毒饺子事件)，实际上就是因为使用的食物油中含有TBHQ，这不符合日本食品卫生标准。
 
-双面间谍，双面间谍的爹，双面间谍的哥哥，双面间谍的资产
-Double agent, the father of the double agent, the brother of the double agent, the asset of the double agent
+在各种食用油、膨化食品、方便面、加工肉类中常见。
 
-双面间谍所有的资产查封，就这种荒唐的事情，在全世界上演的时候
-the assets seizure of the double agent, like this kind of ridiculous thing when it is happening all over the world
+#### 山梨酸钾 Potassium sorbate E202
 
-我们要问大家一个问题，如果没有爆料革命你能知道什么
-We want to ask you a question, what would you know if there is no Whistleblower Movement?
+可作为替代苯甲酸钠的防腐剂，几乎没有毒性，可以少量使用。
 
-你一定是跟随邪恶那些人，和被洗脑那些人，和被利用的牺牲品
-You must be the ones who follow the evil, and those who are brainwashed, and the victim of being exploited
+#### 异抗坏血酸钠 Sodium Erythorbate E316
 
-所以爆料革命之重要，和能拯救天下的这种神圣的使命
-Therefore, Whistleblower Movement is so important and the sacred mission of saving the world
+与维生素C相似的物质，有抗氧化性，还可以减缓肉类产生亚硝酸盐。无毒。
 
-和我们对信仰自由，独立的法治和民主的向往
-And our yearning for freedom of belief, independent rule of law and democracy
+#### 维生素C E300
 
-永远记住，只有在彭帅身上，你才能看到郝海东和叶钊颖妹妹他们多重要
-Always remember that only seeing Peng Shuai, and you can realize how important Hao Haidong and Ye Zhaoying are
+天然防腐剂。无毒，保健品。
 
-* * *
+## 风味剂
 
-Date: 12/23/2021
-原视频标题: 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-Only through whistleblower movement to see the Peng Shuai incident, and can make people realize how important of the Ye Zhaoying couple are
-原视频日期：2021/12/22
-原视频链接[** https://gettr.com/post/pkf1k94023**](https://gettr.com/post/pkf1k94023)
-任务编号：KC365（3322）
-视频时间段 : 0:00-1:29
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+#### 谷氨酸钠 味精 Monosodium glutamate MSG
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1907年日本池田菊苗发现，1909年味の素获得专利生产味精。已有百年历史，未发现直接不良健康危害。但有少数人食用味精可能过敏，或者有不舒服的感觉。
 
+谷氨酸是一种氨基酸，如果摄入量过大，会影响其他氨基酸的吸收。这大概是味精最大的危害了。
+
+除少量不耐受味精的人群外，它能够提高食物的风味，是一种精神享受，可以放心使用。不过注意味精中也有纳，与食用盐一样，过高的钠摄入有高血压风险。
+
+高温时会变质，因此烹饪时应在加热完成之后再添加味精。
+
+#### 呈味核苷酸二钠 鸡精
+
+肌苷酸二钠和鸟苷酸二钠。与味精相似，在正常使用时没有毒性。
+
+与味精协同使用可以产生更强的鲜味。超级盐的配方：盐：味精：鸡精=9:1:0.1
+
+高温时会变质，因此烹饪时应在加热完成之后再添加鸡精。
+
+## 甜味剂
+
+#### 糖精 邻苯甲酰磺酰亚胺 E954
+
+早期被认为致癌，食品中禁用，后来发现没有致癌作用。2000年又可以用于食品。(FDA)可能引起过敏。
+
+后味会发苦，不是优秀的代糖。
+
+#### 甜蜜素 环己基氨基磺酸钠 Sodium cyclamate
+
+美国、日本禁用。中国、欧盟允许使用。不认为有致癌性，但可能对肝脏和神经系统造成影响，尤其时对老人、孕妇、小孩危害明显。
+
+后味会发苦，不是优秀的代糖。不应使用。
+
+在中国大陆饮料、甜食中大量被使用。
+
+#### 安赛蜜 乙酰磺胺酸钾 Acesulfame potassium E950
+
+目前认为无毒性。安赛蜜不太容易在自然界中降解，对环境的污染比较严重，许多水源可检测到安赛蜜。
+
+后味会发苦，有金属味，不是优秀的代糖。
+
+#### 阿斯巴甜 天门冬酰苯丙氨酸甲酯 Aspartame APM E951
+
+本身被认为无毒，但它在体内经代谢会产生[苯丙氨酸](https://www.nfscdict.com/%E8%8B%AF%E4%B8%99%E6%B0%A8%E9%85%B8)，苯丙酮尿症患者不能使用。
+
+缺点是后味会发苦，受热易分解，阿斯巴甜中常含有其他防腐剂。不建议使用。
+
+各种无糖饮料中常见，部分无糖甜食中使用。
+
+#### 三氯蔗糖 蔗糖素 sucralose TGS E955
+
+目前认为最优秀的甜味剂，没有热量，没有苦味，甜度极高(蔗糖的600倍)，不会导致蛀牙，常温下性质稳定。
+
+一些研究认为加热至119℃会分解产生有毒物质，因此不建议用于烘焙。
+
+口服的三氯蔗糖最终会原样排出，这种不被人体代谢的物质长期超大量服用会有结石可能，但三氯蔗糖甜度极高，不太可能大量使用。另有研究认为超大剂量的三氯蔗糖可能影响胎儿。
+
+## 性状改善剂
+
+#### 亚铁氰化钾
+
+盐的抗板结剂。本身无毒。认为300℃高温时才会分解出剧毒物[氰化钾](https://www.nfscdict.com/%E6%B0%B0%E5%8C%96%E9%92%BE)。
+
+但实际上它和许多物质会产生化学反应。在烹饪过程中上百种化学物质的存在情况下，到底发生了怎样的变化不得而知。
+
+应杜绝使用添加了亚铁氰化钾的食用盐。
+
+#### 单脂肪酸甘油酯 Monoglyceride E471
+
+天然存在于一些植物油中，含量极低。目前主要来源是工业合成。是一种[表面活性剂](https://www.nfscdict.com/%E8%A1%A8%E9%9D%A2%E6%B4%BB%E6%80%A7%E5%89%82)，作为[乳化剂](https://www.nfscdict.com/%E4%B9%B3%E5%8C%96%E5%89%82)使用在食品、化妆品中。可以改善食物性状的稳定性，常用在面包、糖果、巧克力、冰淇淋、饮料、饼干、糕点中。
+
+认为基本无毒，可使用。
+
+## 特色食物制作时主动或被动混入的
+
+#### 氢化植物油
+
+目前认为最不利健康的食用油脂。其他名称有植脂末、人造奶油、代可可脂等等。
+
+在制作氢化植物油时，因制作工艺的原因，会产生部分[反式脂肪酸](https://www.nfscdict.com/%E5%8F%8D%E5%BC%8F%E8%84%82%E8%82%AA%E9%85%B8)，这是一种对健康慢性危害极大的脂肪。
+
+氢化植物油经常代替动物奶油加入食物中，风味会变得更香，可以延长保质期。熔点高，因此固体的性状也比动物奶油稳定。许多奶油蛋糕使用的是动物奶油和氢化植物油的混合物。
+
+除了[反式脂肪酸](https://www.nfscdict.com/%E5%8F%8D%E5%BC%8F%E8%84%82%E8%82%AA%E9%85%B8)的健康危害以外，一些研究认为[氢化植物油](https://www.nfscdict.com/%E6%B0%A2%E5%8C%96%E6%A4%8D%E7%89%A9%E6%B2%B9)本身也不容易被人体所消耗、代谢，容易造成体内油脂的聚集，血液中甘油三酯TG、低密度脂肪酸LDL升高，最终造成各种心脑血管致病的发生。
+
+应尽量避免食用含该物质的食物，但它被广泛食用，无法完全避免，尽量减少含有此物质的食用。
+
+#### 双酚A BPA
+
+生产塑料时候常用的添加剂，但它在生物体可作为内分泌干扰素，会发挥类似雌激素的一些作用，幼儿过量接触会导致遗传问题，另外还有致癌危险。
+
+常见于PVC塑料、食品罐头内壁、碳酸拉罐内壁、布料、热敏纸(超市小条)等物品中。
+
+因为塑料制品是目前生活中必不可少的东西，难以完全避免，但在可以选择时，应优先使用PP、PE类型的塑料。尤其是购买食物、餐具、儿童玩具时应特别注意。
+
+#### 铝
+
+主要出现在铝制品餐具中。另外一些中国传统食物制作工艺有时用到铝，比如油条、粉丝、糕点。目前使用的含铝辅料的食品已经很少。但购买时还是应该注意。铝的主要危害是毒性缓慢，不易察觉，影响神经系统发育。
+
+#### 铅
+
+铅属于重金属，不应出现在人体里，但它广泛存在于环境中。铅会对儿童智力造成不可逆转的损害，另外还导致多种铅中毒症状，对血液系统、肾脏、胃都有伤害。
+
+劣质钢铁、铝制品中常含有铅。食品中常见于使用了旧工艺机械生产的食物，如膨化食品。色素中含铅。另外一些松花蛋制作时加入了铅。有些地区自来水管含铅。
+
+#### 甲醛
+
+甲醛是一类致癌物，但它是一种廉价的有机溶剂，在生活中的应用极其广泛。
+
+室内装修过程中会使用许多板材、涂料、壁纸、地毯、粘合剂等，都可能含有甲醛。使用了劣质的材料，其甲醛释放期可长达十年以上，因此装修房间时应非常注意建材的使用。
+
+#### 硫化物
+
+在许多食品、调料、中药材制作时，为了产品外观漂亮，经常有使用硫磺熏制的过程，可以脱去不好看的颜色。在此过程中会发生复杂的化学变化，产生各种有毒的硫化物，不利于身体健康。
+
+购买各种干燥的食物、药材、调料时不要选择非常白的，一般正常干燥的植物会发黄，淡黄色或深黄色。
+
+词条原文链接：[食品添加剂](https://www.nfscdict.com/%E9%A3%9F%E5%93%81%E6%B7%BB%E5%8A%A0%E5%89%82)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

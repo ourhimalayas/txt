@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 1:30 PM (UTC)`
+
+泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临，他们即将进入完全的极权暴政。如果我死了或消失了，你知道它是从何而来。<br/><br/>Dr. Zelenko: The government now is desperate. The tyrants know that their end is coming and they're gonna go full totalitarian tyranny. If I die or disappear,  you know what the source of it is. <br/>
+![img](https://media.gettr.com/group28/getter/2021/12/25/13/2525f4eb-b9db-5000-4e86-af704aeb05e7/out.jpg)
+
+---
+
 `@miles 12/25/2021 1:00 PM (UTC)`
 
 12月25号：文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯😅😅😅😅😅😅😅😅😅😅😅
@@ -147,13 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 12月23号：尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视，媒体必须遵循法律，抛弃傲慢……<br/>停止与独裁勾结……为了金钱失去良知……触碰法律红线……必须抛弃被共产党的金钱收买！西方媒体……革命时代……即将到来！
 ![img](https://media.gettr.com/group16/getter/2021/12/23/15/0c5d51ba-06c2-c154-8916-67f1963520d8/out.jpg)
-
----
-
-`@miles 12/23/2021 3:40 PM (UTC)`
-
-12/22/2021 Miles Guo: The CCP dominates the international media and has arranged 5 media outlets to interview Peng Shuai; how the CCP wields the power of the whole country to cover up the truth about the Peng Shuai incident is the same as how they fabricated Ma Rui’s rape case to frame me back then<br/><br/>12/22/2021 文贵直播: 中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙<br/>
-![img](https://media.gettr.com/group21/getter/2021/12/23/15/f7338f7b-055c-5257-c5b2-943f798c9504/out.jpg)
 
 ---
 

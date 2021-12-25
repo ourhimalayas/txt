@@ -2,66 +2,44 @@
 ---
 
 
-## 雅典娜疫情更新（2021年 12月25日）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789736/)
+## Isobel的造假为美国取消关税世界转变冬奥会立场做铺垫
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789893/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-311.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
+**郭文贵先生：**所有今天Isobel这个造假的犯罪的直播都是给美国取消对中国的关税铺底的，是这帮人搞得中美之间的仇恨，跟我们政府绝对没关系，拜登政府一定会取消这关税。二百多个美国运动员会出现在北京，会出现在歌颂北京完美的冬奥。
 
-感染总数：2.79亿（日新增 74.8万）
-死亡总数：539万（日新增 6126人）
-每万人感染人数：353.2424人
+所以你要知道媒体的力量有多大，这个一箭双雕的VICE采访，把我们消灭，把我们变成恐怖、邪教、犯罪分子，让我们处在恐惧之中，把我们成为中美之间和中国海外华人所有威胁的替罪羊，然后让中美政府之间进行勾兑的时候取消关税，中美贸易人民必须好 。记住我今天说的话，全世界没一个人说，这是我今天说的。
 
-**二，全球“疫苗”毒针统计数据**
+今天是2021年12月22号，对吧？12月22号，郭文贵说的，中美之间会取消贸易关税。这次的VICE， Isobel Yeung，怀疑她是中共操纵结果和PAG、TPG的单伟建有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会和帮助美国和中共取消最高关税贸易做的一场政治大宣传的一场行动。
 
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1383.png)图片来源：Our World in Data
-以上是整理数据时挖出来的一副澳洲，美国，英国，欧盟，印度疫苗接种每百人每日新增接种数据，比较可见，美国人在疫情进展的情况下，疫苗接种不升反降，而英国和澳洲人则继续踊跃接受毒针注射，英国人尤其积极。仔细考察这些数据的波动，可以看出毒针真相的普及程度，未来毒针的危害展现之日，在回头看这些数据的话，更将令人深思。
+对我们个人和爆料革命灭共的所有人都造成了威胁，以后只要在全世界、只要反对共产党的都是邪教；只要是反对冬奥的，全部都是暴力分子；只要是你认为你对共产党任何在大屠杀，新疆、西藏、香港和台湾中表示异声的，都像小斯基、Nicole一样，你都是暴力分子、支持川普的极端分子，支持川普的极端分子造成了中美贸易的摩擦，这个报道之凶险、之邪恶，超出你的想象。
 
-**三，澳洲疫情和“疫苗”数据**
+这就刚才你们几个同心同框你们没有一个人发现这背后的（阴谋），这是今天七哥告诉你真正的大料，你不信走着看。冬奥和中美贸易取消以及很多国家取消这个债务，中国人将付出几千亿美元，几千亿美元呐！中国人、中国同胞 ，然后给搞一个政治冬奥会，然后消灭这些所有的异议声音，全做到了。
 
-感染总数：292,532（今日新增 9993人）
-死亡总数：2182人
-每万人感染人数：109.0731人
-“疫苗”毒针注射总数：42,076,796 （今日新增192,929针）
-第二针“接种”：1877.1945万人
-第二针“接种”百分比：76.6%
-16岁以上人口接种至少一剂疫苗的比例：94.1%
-16岁以上人口接种至少两剂疫苗的比例：91.0%
+字幕来源：[2021年12月22日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1784652/)
 
-**四，澳洲中共病毒“疫苗“副作用每周报告关键信息**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-312.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1384.png)图片来源：Our World in Data
-今日澳大利亚病例继续暴增近万例，如上图所示，远超历史记录。考虑到澳洲16岁以上人口疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。澳洲作为一个孤立的大陆，总体来说疫情一向平稳，影响因子比其它国家更少，疫苗迅速推广之下疫情加剧爆发，更能说明问题。
+字幕文件制作：小满；
 
-前天恰逢TGA每周疫苗副作用报告发布，报告中的数据虽然已经相当扭曲，可是仍然能从中看出这些毒针给澳洲人带来的明显伤害。
+视频制作及上传：Cindy；
 
-报告给TGA 的接种后疫苗死亡的案例已达719例（比上周增加14例）
+G-News发布：小满；
 
-疑似心包炎：1991例 （比上周增加110例）
-疑似心肌炎：960例（比上周增加69例）
-胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
-接种疫苗后发生的格林巴利综合征168例（比上周增加14例）。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-格林巴利综合征是一种神经元脱髓鞘疾病，它会导致全身瘫痪甚至呼吸困难，心律失常，通常需要重症监护病房抢救。在澳大利亚每年发病率仅340人，而现在中共病毒疫苗在澳洲推行不足一年竟然已经有168人在注射这种所谓“疫苗“后发生此病，本周与上周相比已经增加了14人，病例增加的速度为“疫苗”推广之前的2倍（年发病率340人，也就是说平均每天增加的病人数本应不足1人，现在不仅发病数增加一倍，而且都恰巧发生在接种“疫苗”之后。）
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布：去中心化Math
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

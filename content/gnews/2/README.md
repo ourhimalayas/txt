@@ -2,46 +2,27 @@
 ---
 
 
-## 瑞士将公投反对新冠疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789783/)
+## 日本东京开始全面免费检测中共病毒，中共依然在割韭菜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789950/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-24.png)
+图片来源
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-11-28T140656Z_715067909_RC2O3R96SPMW_RTRMADP_3_HEALTH-CORONAVIRUS-SWISS-VOTE.jpg)
+【TBS新闻】12月25日报道，日本东京今日将启动对中共病毒（COVID-19）的免费测试计划。对于没有发烧或其他症状但担心感染的东京居民可以进行PCR测试或抗原测试。
 
+今天，在东京的12个测试机构举行了免费测试，许多人从上午开始就排队等候。该活动将持续到下月底，市政府的目标是每天进行3万次测试，并在年底前在东京的180个，包括药店等地点提供测试。
 
- 
-图片来源： www.aljazeera.com
+与东京日均3万人次测试并增加检测机构地点为目标的免费测试相比，中共除了大排查（不考虑天气、民众是否便利等情况）免费以外，任何情况都需要到医院或是检验机构自费检测，竟然还存在收费价格不统一的情况！一个是以资本主义为价值观的民主社会免费提供测试，一个是号称以“为人民服务”为宗旨的共产社会，要收费才能提供测试，到底是那个是真正为老百姓的呢？一目了然！
 
+信息来源：
 
-#### 编译：小红帽
+**[東京都、きょうから無料の新型コロナ検査を開始](https://news.tbs.co.jp/newseye/tbs_newseye4435303.htm?1640419162179)**
 
-根据自然新闻12月24日报道， **瑞士自由运动（MLS）已经收集了12.5万个签名（比要求的多出了2.5万个签名），以投票反对新冠（Covid-19）疫苗强制令。**
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-2.jpg)
 
-如果投票获得通过，将禁止*所有*未经个人同意的疫苗接种和植入物。这意味着接种疫苗将始终保持自愿，永远不能强制。
-
-与美国不同，瑞士每年会举行几次公投，公民可以通过收集签名来对某一个问题进行请愿投票。如果达到门槛，那么国家就会对其进行投票。
-
-在这种情况下，瑞士人正试图在新冠疫苗强制令到达他们的家门口之前抢占先机，就像邻国德国和奥地利所做的那样。
-
-瑞士法律目前允许强制性新冠疫苗接种政策–尽管该政策目前还不存在。全民公投将取消这一规定，并禁止在瑞士强制接种新冠疫苗。
-
-即将上任的总统伊格纳齐奥·卡西斯（Ignazio Cassis）表示，他只会考虑将强制接种新冠疫苗“作为最后的手段”来遏制新冠病毒的传播。这一点过于开放，这就是为什么瑞士人试图在它有机会成为现实之前就加以禁止。
-
-“有关人员不得因拒绝接种疫苗而受到惩罚，也不得遭受社会或职业上的不利影响，”该倡议指出。
-
-这次公投不仅包括新冠疫苗的接种，还包括所有“注射入人体内的其他疫苗，芯片和数字信息”。
-
-新闻来源：[Switzerland to hold vote against mandatory covid vaccination policies – NaturalNews.com](https://www.naturalnews.com/2021-12-24-switzerland-vote-against-mandatory-covid-vaccination-policies.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
