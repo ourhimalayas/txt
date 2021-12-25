@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 1:50 PM (UTC)`
+
+<br/>12月25号：尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group12/getter/2021/12/25/13/d86e7b9f-895a-2864-a8c9-47fcf6299d31/out.jpg)
+
+---
+
 `@miles 12/25/2021 1:30 PM (UTC)`
 
 泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临，他们即将进入完全的极权暴政。如果我死了或消失了，你知道它是从何而来。<br/><br/>Dr. Zelenko: The government now is desperate. The tyrants know that their end is coming and they're gonna go full totalitarian tyranny. If I die or disappear,  you know what the source of it is. <br/>
@@ -147,13 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 12/23/2021 Miles Guo’s GETTR: HBO/VICE & Isobel Yeung are so evil because they defined the Whistleblowers’ Movement and oversea Chinese as cult and terrorists; Haulacast in WWII and the Anti-Chinese Riots in Indonesia were also invoked by the same or similar rogue media, you’re still hestitant do nothing about it?<br/><br/>12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子，二战杀犹太人和印尼排华都是从这样的流氓媒体带风向开始的，你还不站出来反抗吗？<br/><br/>
 ![img](https://media.gettr.com/group23/getter/2021/12/23/22/fdb20f5c-29f8-0676-bbac-d9dd698a9f9c/out.jpg)
-
----
-
-`@miles 12/23/2021 3:52 PM (UTC)`
-
-12月23号：尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视，媒体必须遵循法律，抛弃傲慢……<br/>停止与独裁勾结……为了金钱失去良知……触碰法律红线……必须抛弃被共产党的金钱收买！西方媒体……革命时代……即将到来！
-![img](https://media.gettr.com/group16/getter/2021/12/23/15/0c5d51ba-06c2-c154-8916-67f1963520d8/out.jpg)
 
 ---
 
