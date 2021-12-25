@@ -2,10 +2,10 @@
 ---
 
 
-## 关于强制接种新冠疫苗，拜登政府都说谎了！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790904/)
+## 所有的中共病毒疫苗都会造成血栓，不仅仅只有强生
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790912/)
 
-关于强制接种新冠疫苗，拜登政府都说谎了！
+12/18/2021 娜奥米·沃尔夫博士：所有的中共病毒疫苗都会造成血栓，不仅仅只有强生。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

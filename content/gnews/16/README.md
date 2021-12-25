@@ -2,10 +2,10 @@
 ---
 
 
-## 荷兰议会议员罗伯特·罗斯发声抵制疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790889/)
+## 关于强制接种新冠疫苗，拜登政府都说谎了！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790904/)
 
-12/20/2021 荷兰议会议员罗伯特·罗斯：强制接种疫苗是很荒唐的。如果自由选择的权利被剥夺、我们的民主就被剥夺了。我们是人民的代表，我们需要捍卫民主和公民权利。
+关于强制接种新冠疫苗，拜登政府都说谎了！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
