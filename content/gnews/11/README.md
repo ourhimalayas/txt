@@ -2,34 +2,40 @@
 ---
 
 
-## 更多美国海军陆战队员因拒绝接种新冠疫苗而被解雇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1789257/)
+## 戳穿VICE谎言的布置在采访完就已经开始只等中共出手
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789267/)
 
-**翻译:  美哥**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-310.png)图片来源  rt.com
-美国海军陆战队在过去一周中又有66名海军陆战队员因拒绝遵守军方的Covid-19疫苗规定而被开除，总人数达到169人。
+**郭文贵先生：**前天在我们没有播出全集采访的，就在这个桌子上，大家都看了对方的采访，我们遵守当初的约定，Isobel Yeung，她不放我们不放，我们当时的条件是现场要放摄像机，我们放摄像机了，对方你看多次尝试阻挡我们的镜头，你看到没有，你看挡来挡去好多次，就是对方的摄影师、对方的团队，很坏的！
 
-美联社刊登了美国海军陆战队重申士兵必须接受疫苗的声明，称“新冠病毒在人与人之间的传播速度，加大了我们海军陆战队完成使命的风险”。
+而且我们中间是有一段没有录上的，现在我都怀疑这个没录上，到底是什么技术让没录上，只有一段儿没录上的，不是百分之百，很吓人的！
 
-特种部队表示，至少部分接种疫苗的部队比例保持在 95%。
+另外一个，就是这个录完以后，我就把它发给了大卫和木兰，我说你们开始准备加字幕吧，然后把中间对方撒谎的事儿做好对比，咱已经开始了，是吧！就如果没有这个对比、没有这个录像机一切就完了。
 
-在五角大楼强制要求包括国民警卫队和预备役在内的所有军人接种冠状病毒疫苗后，海军陆战队的退伍人数超过了其他任何美国军种。
+编辑整理：海贼王M.D.LUFFY；
 
-截至周四，海军陆战队拒绝了 96% 的疫苗豁免请求，包括基于宗教理由提出的请求。相比于陆军，海军，和空军98%的接种率，虽然海军陆战队开除的力度最大，但海军陆战队仍成为疫苗接种比率最低的单位。
+字幕文件制作：小满；
 
-在传染性更强的 Omicron 变种出现后，美国的感染率猛增。乔拜登总统警告说，未接种疫苗的人将面临“严重疾病和死亡”的冬天。
+视频制作及上传：Cindy；
 
-新闻链接：[https://www.rt.com/news/544343-us-marines-vaccine-mandate/](https://www.rt.com/news/544343-us-marines-vaccine-mandate/)
+G-News发布：小满；
 
-发布：去中心化Math
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
