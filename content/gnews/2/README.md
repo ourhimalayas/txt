@@ -2,10 +2,10 @@
 ---
 
 
-## 中共“得寸”香港，“进尺”台湾，还企图霸占太空
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790844/)
+## 关于强制接种新冠疫苗，拜登政府都说谎了！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790904/)
 
-12/22/2021 天空新闻：中共在香港问题上得了“寸”，现在他们不仅要在台湾问题上“进尺”，而且还企图霸占太空
+关于强制接种新冠疫苗，拜登政府都说谎了！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

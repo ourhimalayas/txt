@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连科医生：制造这个生物武器的人同样创造了解毒剂
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790718/)
+## 卢比奥参议员：美国经济对中共国的依赖性是极度危险的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790807/)
 
-12/22/2021 泽连科医生：制造这个生物武器的人同样创造了解毒剂，有效治疗手段的讨论为此而被噤声
+12/22/2021 卢比奥参议员认为美国大型企业乃至美国经济对中共国的依赖性是极度危险的
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
