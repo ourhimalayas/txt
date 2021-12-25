@@ -2,38 +2,52 @@
 ---
 
 
-## 在独裁最没有人权的中共国居然诞生自诩的人权律师滕彪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789387/)
+## 女星再嫁中宣部副部长成墙内禁闻
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1789418/)
 
-**郭文贵先生：**这个整个过程记住，中国一个共产党、中国是独裁、中国的共产主义、中国没有人权，大家都知道吧？猪都知道！你觉得她不知道吗？她竟然从头到尾跟着个叫人权律师，没有人权的国家、一个独裁的国家，在北朝鲜出世诞生了一个人权律师，我R滕彪他八辈祖宗！滕彪你把全人类的人智商都给强奸了！我R滕彪你八辈祖宗，你来告我！就这种不要脸的程度，竟然就坐在那里说，我是中国的人权律师，你姥姥的！你什么人权呢！就你长那个德行的！母猪跟野猪交配，都交配不出你这个德性的东西！怎么能、有可能出来人权律师。第二个，在美国他代表美国的人权，他代表美国的人权，说担心爆料革命、新中国联邦，对西方的民主和人权造成伤害和攻击，他有没有想过，我压根不认识你滕彪，你说我和我的Cousin（Niece）Incest！乱伦！我的人权在哪呢！我们新中国联邦是邪教！邪教是要被抓起来被砍头的，我们的人权在哪呢！
+作者：东京樱花团—在远方
 
-你是律师，叫解释戒律的，你的戒在哪呢？你的律在哪呢？所以，滕彪我R你八辈儿祖宗！新中国联邦R你八辈祖宗！这个滕彪，永远不会给你拉倒！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+![中國網友爆料中國女星佟麗婭已再婚，對象是中共中宣部副部長，而且介紹人竟是前夫陳思誠。（佟麗婭微博、央視微博，本報合成）](https://img.ltn.com.tw/Upload/news/600/2021/12/22/phpLtkvhc.jpg)（图片来自《自由时报》）
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+台媒12月22日消息，近日墙内惊爆中共国女星佟丽娅被导演老公陈思诚，介绍给中宣部副部长、《央视》台长兼总编辑慎海雄做情妇，还在怀孕后被迫嫁给了年长其16岁的慎海雄。目前，该消息在墙内被全网封锁。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+据悉，佟丽娅去年曾跨界主持中共央视春晚。当时外界普遍质疑，身为演员的佟丽娅怎么有能力在如此重要的场合担任主持。也有网友爆料称，慎海雄由于原配无法生育，今年上半年刚刚离婚。而做了他多年情妇的佟丽娅怀孕后，慎海雄一手操办了佟丽娅与前夫的离婚事项。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+21日晚间，墙内微博突然开始热烈讨论“佟丽娅再婚”的消息，但随后立即成为敏感词被屏蔽和删除。许多网友使用谐音“捅你牙再昏”继续讨论。随着习大神怀着“梦游般的自信”走向他的独裁之路，中共官场也开启了“狂暴”模式。凡是和中共官员沾点边的负面消息，只要不是涉及中共上层定点爆破的对象，都会被迅速全网封禁。在互相掩护、共同作恶这一点上，中共集权体制越来越体现出领先全球的优越性。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+参考链接：
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[https://news.ltn.com.tw/news/world/breakingnews/3776443](https://news.ltn.com.tw/news/world/breakingnews/3776443)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+
+
+
+
 
  
 
