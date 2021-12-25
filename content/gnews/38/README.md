@@ -2,28 +2,33 @@
 ---
 
 
-## 日本三菱电机疑被中共攻击 国防机密数据泄露
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1788932/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-1
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788947/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-100.jpg)[图片源](https://search.yahoo.co.jp/amp/s/www3.nhk.or.jp/news/html/20211224/amp/k10013403341000.html%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
-总部位于东京的三菱电机遭受网络攻击，国防部于24日公布了一项调查结果，发现共有59项敏感安全信息可能被泄露。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
+爆料革命和新中国联邦创始人郭文贵先生，早在2017年开始向世界揭露中共CCP的邪恶，并多次发出警告“中共口中的潘多拉魔盒已被打开”，“来自中共盗国贼的黑夜降临”，诸多事实已经一一得到验证，展示了爆料革命和新中国联邦坚持唯真不破，坚定灭共的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1373.png)
+HBO VICE却在四年前的采访中对郭先生进行诋毁，后来该媒体多次请求与承诺，并同意双方均有全程录像的权力，2021年5月18日，郭文贵先生终于再次接受其采访。此次HBO VICE依旧选择恶意抹黑、中伤郭先生与爆料革命战友，接下来我们还原事实真相的第一部分：HBO记者ISOBEL YEUNG的亲共背景证明。
 
-据国防部称，该公司在内部互联网终端上存储与该部有关的数据文件。2019年3月，位于中共国的管理服务器遭到网络攻击，从而对日本的终端进行了未经授权访问。
+链接：
 
-大约有20,000项国防相关信息被非法访问。国防部表示其中59条是“可能影响国防安全的数据文件”。鉴于此，该部已经采取了严格的保护措施。
+[https://gettr.com/post/pkg33xf5be](https://gettr.com/post/pkg33xf5be)
 
-国防部告诫该公司要妥善管理信息。并宣布在2021财年年底前对日本约250家与国防有关的公司的信息安全规则进行规范，其中会附加严格的管控措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-信息源:
+总编：童谣 / 飞虹
 
-[安保情報５９件、流出の可能性…三菱電機サイバー攻撃で防衛省調査](https://news.yahoo.co.jp/articles/f6d0d6f42adb0df0613fbcad3a80df343acc4e04)
+校正/发稿：浪迹天涯
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
