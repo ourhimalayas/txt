@@ -2,31 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1788666/)
+## 12/24/2021 文贵直播：七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1788746/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1224text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c6735900f9a119180a263b)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

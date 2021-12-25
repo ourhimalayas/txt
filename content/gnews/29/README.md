@@ -2,48 +2,25 @@
 ---
 
 
-## 梵蒂冈发布对所有员工和访客的疫苗接种令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788446/)
+## 加拿大魁省疫情失控重返重灾区
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788519/)
 
-作者：纽约香草山农场 – 四季
+采编：UCool 优酷   编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-7-edited.jpg)图片来源：CTV
 
 
+据加拿大【CTV新闻】12月23日报道，魁北克省“新冠病毒”疫情急剧恶化，当日新增感染9397人，已连续三天打破历史最高记录。目前活跃病例超过4万人，其中住院患者473人、重症监护91人、死亡6人。
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2021/12/23/vatican-issues-vaccine-mandate-all-employees-visitors/)12月23日报道，本周四，梵蒂冈国务卿皮埃特罗·帕罗林红衣主教签署了梵蒂冈疫苗接种令。接种令规定，从2022年1月31日起，凡是提供梵蒂冈服务、与公众接触的人员必须出示 “证明在第一轮疫苗接种后进行了加强针接种的文件”。该法令没有提到基于道德考虑的良心反对的豁免情况。
+报道称，尽管官方数据显示新增感染病例中接种疫苗者约占50%，但该省的疫苗接种行动近日仍在加速推行中。目前，该省约90%的人口已完成第一剂疫苗接种，第二剂接种比例为81%，第三剂则为11%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1848-GettyImages-1213417831-640x480-1.png)VINCENZO PINTO/App via Getty images
+蒙特利尔公共卫生部门表示，当前魁省的病毒检测阳性率约为15%至20%。虽然当局试图努力进行对感染者及其接触人群的追踪工作，但因近期暴增的病例数而无法再有效完成该任务。
 
-法令规定，出示疫苗护照（超级通行证）上班的义务适用于罗马教廷和与教廷有联系的机构的所有人员，以及外部合作者、梵蒂冈城邦的访客和外部工作人员。
+* * *
 
-法令严厉规定，没有有效绿色通行证的人员 “将无法进入工作场所，并被视为无故缺勤，从而将在缺勤期间停发工资”，同时将受到这种缺勤所带来的进一步影响。
+校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+原文链接： https://montreal.ctvnews.ca/quebec-breaks-new-record-with-9-397-new-covid-19-cases-hospitalizations-jump-to-473-1.5718023
 
  
 

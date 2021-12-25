@@ -2,54 +2,38 @@
 ---
 
 
-## 马萨诸塞州近一半的COVID病例“完全接种了疫苗”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1788221/)
+## 高疫苗接种率不能阻止Omicron在纽约蔓延
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
 
-作者：雷蒙德·沃尔夫（Raymond Wolfe）
-发布日期：2021年12月23日
-新闻来源：LifeSiteNews
-翻译：文虓Bobby
+撰稿：纽约香草山健身部— Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
 
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
 
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
+按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122502.jpg)
+由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
 
-包括缅因州和佛蒙特州在内的其他东北部州也出现了突破性病例。
+美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
 
-(LifeSiteNews)上周，马萨诸塞州近一半的COVID病例都“完全接种了疫苗”，病例激增的突破性进展影响了几个高疫苗接种率的州。
+[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-截至12月18日的一周，接种疫苗的病例占马萨诸塞州病例的43%，高于前一周的37%。根据州公共卫生部门(DPH)的数据，在截至12月4日的一周内，近48%的病例“完全接种了疫苗”。
+[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-目前还不清楚在病毒检测呈阳性的人中，有多少比例的人至少接种了一针疫苗，但没有被认为是“完全接种”（的人中），也不清楚有多少人接受了加强针。目前，麻萨诸塞州74%的居民完全接种了疫苗。
+编辑/校对/发稿：菩提树
 
-整个夏季和初秋，马萨诸塞州每周大约有四分之一到三分之一的病例持续报告是在“完全接种”的情况下。然而，随着疫苗效力的减弱和新变种的出现，突破性感染病例在11月初飙升至约一半。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-自从提供疫苗接种以来，马萨诸塞州已经记录了超过11.43万例突破性病例，反映出其他疫苗接种率高的州也有类似的数字，比如明尼苏达州，本月早些时候也达到了10万例突破性病例。马萨诸塞州共有784名“完全接种”的人死于该病毒，3186人住院治疗。
+**更多资讯，更多关注**
 
-绝大多数感染冠状病毒的人存活了下来，据估计，在60岁以下所有年龄组中，该疾病的存活率不低于99.7%。研究表明，现在在马萨诸塞州和美国占主导地位的Omicron比过去的变种更不危险。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-奥米克戎（变种病毒）在海湾的几个州和全国各地的病例仍达到创纪录水平，突显出疫苗在预防感染方面越来越无能。据美国全国广播公司波士顿台报道，马萨诸塞州周三报告了前所未有的每天7817例新增病例。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-其他东北部州的突破性病例激增，包括缅因州和佛蒙特州，在过去四个月的不同时间里，接种疫苗的居民占了COVID死亡的大部分。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据报道，缅因州10月份每周因病毒死亡的人中，有59%是“完全接种”的人。在佛蒙特州，超过四分之三的9月死亡病例，以及大部分在10月和11月死亡病例也是“完全接种”的人。
-
-尽管这两个州是美国接种疫苗最多的州之一，但它们仍在与高感染率作斗争。
-
-新墨西哥州的突破性死亡病例也急剧上升，费城上周创下了有史以来最高的疫苗接种率。
-
-在德克萨斯州，休斯敦最近出现的新冠肺炎疫情导致休斯敦卫理公会医院的325名员工出现阳性病例，其中大部分人都接种了疫苗。值得注意的是，该医院今年早些时候解雇了100多名未接种疫苗的员工。
-
-休斯顿卫理公会执行副总裁Roberta Schwartz告诉《休斯顿纪事报》:“毫无疑问，奥米克戎变种病毒比德尔塔有更高的感染率。”“我们非常担心劳动者和国民受到新冠肺炎的痛苦折磨。”
-
-[援引原文](https://www.lifesitenews.com/news/nearly-half-of-massachusetts-covid-cases-are-fully-vaccinated/?utm_source=top_news&amp;utm_campaign=canada)
-
-审核校对：玫瑰天空
-上传排版：糖果儿
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
