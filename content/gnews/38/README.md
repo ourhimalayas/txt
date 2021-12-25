@@ -2,32 +2,23 @@
 ---
 
 
-## 达扎克在中共病毒问题上有重大利益冲突
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787602/)
+## 文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1787828/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据美国媒体报道称，顶级医学杂志《柳叶刀》的编辑理查德·霍顿承认，彼得·达扎克在中共病毒问题上存在着“重大的”“令人遗憾的”利益冲突，且这些冲突导致他在大流行初始时没有及时披露该病毒的相关信息。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.56.06.png)
-资料显示，2020年2月19日，彼得·达扎克联合了20多位科学家在《柳叶刀》杂志上发表文章，斥责中共病毒实验室起源的说法是阴谋论。这篇文章也扼杀了世界对中共病毒起源的调查，导致病毒的溯源工作至今尚无任何进展。同时，相关新闻机构和立法者依靠这种所谓的“权威”认定，打击了中共病毒的起源真相——即该病毒出自福奇资助的中共武汉病毒实验室。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-13.jpg)
+一系列中共变异病毒引发的“感染和死亡浪潮”，如后浪推前浪，一浪更比一浪高。但即便这样，丧心病狂的中共还要再次掀起“滔天巨浪”。郭先生在12月24日的大直播中说，在Omicron后中共还会放毒，而且还要组建高级别放毒小组，真是“天欲其亡，必先欲其狂”。
 
-报道提及，在面对“科学和技术特别委员会”中英国议员的质询时，霍顿博士承认了上述观点。而霍顿博士的这一指认也使得达扎克及一帮科学家在去年2月发布的声明沦为废纸。据了解，早在今年6月22日，《柳叶刀》就已经更新了冠状病毒委员会的资料，当中，与石正丽合作的生态健康联盟主席彼得·达扎克被委员会以回避为由除名。
+在Omicron中共还会放毒，为什么呢？最近几天党内的人正在加大马力地劝说习太阳，要抓住这个时机干掉美国，中美必有一战，早战比晚战好，既然要战就要战赢，既然要打就打疼它，绝不能给美国机会。美国亡我之心不死，不管咱干啥，他都要灭咱，那不如咱们先干。
 
-参考链接：[Lancet Editor Admits Peter Daszak Has ‘Significant, Regrettable’ Conflicts Of Interest.](https://thenationalpulse.com/news/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)
+杨洁篪、王毅、军方要领，王岐山，所谓的中国的极左派真的很危险。现在听说国家安全委员会又成立了，特别冠状新型病毒控制小组，你以为是控制让你不不传染？不是。他们现在是要控制往哪传染，让谁传染上。它的级别比上一次的武汉实验室泄漏处理小组要高得多。这是三个月来我报的最新的消息啊。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+这个不是好消息啊，我专门请教了科学家，科学家说如果中共要这么干的话，可能就真的要放最毒最毒的病毒，甚至都在我知道范围之外。我告诉他，我知道大其中的七个人，我知道四个人的名字，当我念到第三个，他吓一大跳，他说这个人要出来后果不堪设想。还有另外一位啊少将的名字在里面，这个家伙那是坏到家了，他说他是个精精神病，就像当年的希特勒的戈佩尔一样。
 
-总编：文真
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+哇塞！这让我很震惊的，中共要跟美国去较量、美国人一定最终能搞定，一定能搞得明白，这点你半点不用担心。2月14日冬奥会之后，中共与美国在病毒的源头，以及武力攻台问题上的较量，一定会走上一个新的、不同的高度。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生说，上天让其亡，必让其狂。关键是它猖狂的时候，别带走这么多好的中国人，这是我们爆料革命最担心的事。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
