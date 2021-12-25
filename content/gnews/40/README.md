@@ -2,36 +2,32 @@
 ---
 
 
-## 拜登总统签署《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787601/)
+## 2021/12/23 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1788131/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据当地媒体报道，美国总统拜登正式签署了《防止强迫维吾尔人劳动法》，其在送抵白宫的三天后成为美国正式法律。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.55.57.png)
-资料显示，该法案由美国两党议员于2020年在国会协力推动，并于本月稍早通过参、众两院的表决。随后，本月20日，该法案被送交白宫。
+1. 12月23日，陕西西安疫情防控升级。全市小区、单位被实行封闭式管理。每户家庭每2天只允许1人外出采购生活物资，其他人外出需持单位、社区开具的证明。
+2. 河北秦皇岛为了所谓治理环境污染，一刀切治理封柴封灶，要清洁不要取暖，老百姓冻得直哭。
+3. 12月22日，河南新乡。男子在看守所内15根肋骨骨折，取保后神智不清。
+4. 12月19日，广东深圳。女子凌晨背三个月宝宝在垃圾桶捡菜叶，宝宝在背上嚎啕大哭。
+5. 近日，山西吕梁。网曝一家长因孩子背不出来知识点狂扇巴掌打孩子。
+6. 12月20日，四川乐至。丈夫欲给尿毒症妻子换肾，手持结婚证却被医院要求再开夫妻关系证明。
+7. 12月22日，江苏苏州。一小区内3工人在房子外立面改造施工时，由于施工平台发生倾斜导致工人掉落坠亡。
+8. 菜农在“疑惑”这几年是啥原因导致大家的消费能力如此大幅度的下降，菜都卖不动。
+9. 广东省韶关市翁源县，被污染河流如地狱般的场景。
+10. 西安一邮件分拣员通宵夜班后猝死，11月曾20天上班时间达到264个小时。
 
-根据美国关税法第307款规定，禁止所有开采、生产、制造涉及强迫劳动的商品被进口至美国，而《防止强迫维吾尔人劳动法》则授权美国海关和边境保护局对新疆出产的相关产品作出认定。据了解，进口企业需提供明确且令人信服的证据表明其商品与强迫劳动无关，否则，他们的产品将被禁止进入美国。
 
-国务卿布林肯表示，此举展现出美国在对抗强迫劳动问题上的承诺。同时，布林肯还敦促中共政府立即停止其针对新疆维吾尔人以及其他少数民族进行的种族灭绝与反人道行为。布林肯与承诺，美国将竭尽所能地帮助那些渴望摆脱强迫劳动的人们，让他们得以恢复尊严。
+* * *
 
-参考链接：
-1）[拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
-2）[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com/realtime/world/story20211224-1226117)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

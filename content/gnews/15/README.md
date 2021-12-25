@@ -2,39 +2,19 @@
 ---
 
 
-## 拜登签署《防止强迫维吾尔人劳动法案》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788808/)
+## 精神的核武器就是音乐力量 巨大且具有传染性（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789011/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-台湾媒体23日报道，美国总统拜登赶在圣诞夜前夕签署了《防止强迫维吾尔人劳动法案》：未来美国将全面限制新疆涉及强迫劳动产品的进口。此举被视为美国对中共国压迫维吾尔人追责迈出的重要一步。
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-46.jpg)
+12月19日，郭文贵先生在GTV大直播指出：
 
-美国参众两院本月稍早相继通过了该法案，法案于20日被送交白宮，拜登仅3天就迅速签署，展现了美国反制中共国在新疆强迫劳动的決心。
+音乐的传染性有多大呢，出生时就是带着“哇”本能地叫出来。然后本能地动手动脚，抓住什么都往自己身上放，这是一种保护、挣扎和征服；其中最根本的是“声音”，这是人的权力。反过来，让你手脚别动，然后你按照我的要求发声，让你闭嘴就得闭嘴，这就是权力，就是征服。
 
-参议员卢比奥表示，这是美国迄今为止追责中共强迫劳动采取的最重要且最具影响力的行动，美中关系将发生根本性改变。法案也确保美国民众不会再在不知情的情況下购买中共国强迫劳动制造的产品。
-
-美国国务卿布林肯则敦促北京政府，立即停止对新疆维吾尔族及其他少数族群进行种族灭绝等反人类罪行。他承诺美方将竭尽所能，助渴望摆脱强迫劳动的人们恢复尊严。
-
-参考链接：
-
-- [https://www.gettr.com/post/pki6tzfd57](https://www.gettr.com/post/pki6tzfd57)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
