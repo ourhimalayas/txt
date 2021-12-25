@@ -2,26 +2,24 @@
 ---
 
 
-## 航空公司由于疫情影响 数百圣诞航班被取消
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788379/)
+## 高疫苗接种率不能阻止Omicron在纽约蔓延
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
 
-翻译：纽约香草山健身部—Ivy001
+撰稿：纽约香草山健身部— Ivy001
 ![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美联航、达美航空和其他美国航空公司表示，由于COVID-19病例激增影响到他们的员工，因此取消了近600个圣诞夜航班。
+截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
 
-“本周全国范围内Omicron病例激增，对我们的飞行人员和经营人员产生了直接影响，”联合航空公司发言人在一份声明中告诉CBS新闻。”因此，我们不幸地不得不取消一些航班，并提前通知受影响的客户，让他们到机场来。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
 
-根据FlightAware的数据，截至周五中午，此前定于12月24日在美国境内、往返于美国的599个航班已经被取消。实时跟踪服务的数据显示，美联航取消了超过175个航班，达美航空取消了150个航班，捷蓝航空取消了72个航班。
+按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-“达美航空团队已经用尽了所有的选择和资源–包括改道和替换飞机和机组人员，以覆盖预定的飞行，”该航空公司周四在一份声明中说。 航空公司对航班中断表示歉意，并说他们正在努力为乘客重新订票。
+由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
 
-在世界各地，周五共有2295个航班被取消，加上前一天的2232个全球航班被取消。
+美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
 
-据美联社报道，总部位于德国的汉莎航空公司周五表示，由于飞行员生病的情况 “大量增加”，它将在圣诞假期期间取消12个跨大西洋航班。这些航班将飞往休斯顿、波士顿和华盛顿。汉莎航空表示，它已经为这一时期安排了 “大量缓冲 “的额外员工，但仍需要取消这些航班，乘客们被安排在其他航班上。
+[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-美国和西南航空公司周四告诉CBS DFW，他们没有计划因COVID-19的人员配置问题而取消任何航班。
-
-[https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/](https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/)
+[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
 编辑/校对/发稿：菩提树
 

@@ -2,33 +2,40 @@
 ---
 
 
-## 中共国地方债务，中央不救助
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1788370/)
+## 航空公司由于疫情影响 数百圣诞航班被取消
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788379/)
 
-**【国内新闻短评**】
+翻译：纽约香草山健身部—Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美联航、达美航空和其他美国航空公司表示，由于COVID-19病例激增影响到他们的员工，因此取消了近600个圣诞夜航班。
 
-**中国财经报2021年12月16日报道：坚持中央不救助原则！财政部：化解隐性债务存量，谁家的孩子谁抱**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-12.jpg)**图片来源：新闻原文**![](https://assets.gnews.org/wp-content/uploads/2021/12/sssamq6p-x6e25.jpg)
-**短评：**
+“本周全国范围内Omicron病例激增，对我们的飞行人员和经营人员产生了直接影响，”联合航空公司发言人在一份声明中告诉CBS新闻。”因此，我们不幸地不得不取消一些航班，并提前通知受影响的客户，让他们到机场来。”
 
-**税收被盗，国库空虚，中央财政明确表示地方债务问题由地方政府负责，并终身问责制。**
+根据FlightAware的数据，截至周五中午，此前定于12月24日在美国境内、往返于美国的599个航班已经被取消。实时跟踪服务的数据显示，美联航取消了超过175个航班，达美航空取消了150个航班，捷蓝航空取消了72个航班。
 
-**地方政府举债渡日由来已久，发债融资大搞基础建设，拉动地方GDP，升官发财。但债务到期兑付之时，无力还债，坐等中央印钱护航。从没有问责，没有人问钱去哪了？现在地方政府基础建设搞ppp，就是地方政府出一部分钱，社会资本出一部分钱。由于政府过去的融资信用严重透资，甚至违约，无法在资本市场发债融资，无法再借新还旧，铁打的衙门流水的官。**
+“达美航空团队已经用尽了所有的选择和资源–包括改道和替换飞机和机组人员，以覆盖预定的飞行，”该航空公司周四在一份声明中说。 航空公司对航班中断表示歉意，并说他们正在努力为乘客重新订票。
 
-**财政部为即将到来的地方债务违约潮做了伏笔，把锅甩给现任地方政府。未来，无论官民，都不好过。**
+在世界各地，周五共有2295个航班被取消，加上前一天的2232个全球航班被取消。
 
-**声明：文章观点仅代表作者，与GNews 平台无关**
+据美联社报道，总部位于德国的汉莎航空公司周五表示，由于飞行员生病的情况 “大量增加”，它将在圣诞假期期间取消12个跨大西洋航班。这些航班将飞往休斯顿、波士顿和华盛顿。汉莎航空表示，它已经为这一时期安排了 “大量缓冲 “的额外员工，但仍需要取消这些航班，乘客们被安排在其他航班上。
 
-**原文链接**：[https://mp.weixin.qq.com/s/Dcc\_YfbXlwtB2q-UrQdrMA](https://mp.weixin.qq.com/s/Dcc_YfbXlwtB2q-UrQdrMA)
+美国和西南航空公司周四告诉CBS DFW，他们没有计划因COVID-19的人员配置问题而取消任何航班。
 
-素材：洛杉矶盘古农场 — 来福福
-评论：洛杉矶盘古农场 — 期待明天
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/](https://www.cbsnews.com/news/united-delta-cancel-holiday-flights-omicron-covid-19/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

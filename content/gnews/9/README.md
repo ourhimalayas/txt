@@ -2,25 +2,25 @@
 ---
 
 
-## 美军方宣布可预防病毒变体的新型疫苗
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788492/)
+## 英国疫苗伤害及其灾难逐渐降临
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788505/)
 
-采编：UCool 优酷  编译撰稿：文明(添草灭共)
+采编/翻译：文文-自由法兰西        校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-2.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-6.jpg)图片来源：TNH
 
 
-据【国会山报】12月 22日报道，美国[沃尔特-里德陆军研究所]自2020年初以来就在开发一种“穗状铁蛋白纳米粒子”的新型疫苗，该疫苗的早期人体试验从去年4月开始至本月已结束，目前正在审核中。
+据英国自媒体《每日内幕》12月22日报道，【苏格兰卫生局】提供的最新数据显示，接种过三剂“新冠病毒”疫苗者已出现大量该病毒感染，住院以及死亡病例。
 
-另据美国军事杂志《国防一号》发布的专题报告介绍，该疫苗使用了一种具有24个基因载体的蛋白质，通过在这些载体上附着不同毒株的刺突蛋白，以增强对各种“新冠病毒”的识别能力。尽管报告称该疫苗对所有变体都有效，但该研究所并未对最新变体“奥密克戎”进行效果测试。
+报道称，根据政府最新报告，超过66%的病毒感染都发生在已接种疫苗人群中；在住院人数中，接种者占73%；而最终死亡人数，接种者则高达83%。
 
-为此，本台编辑评论：中共军事教材《非典非自然起源和病毒基因武器》已证明“新冠病毒”是中共当局故意投放的生物武器。因此，防御病毒的疫苗研发进程永远赶不上生物武器的改造和投放速度。解决疫情的唯一途径就是铲除病毒源头：中共政权！
+本台编辑对此评论：以上数据再次表明，注射“中共病毒”疫苗及其加强针不仅不能阻止疫情的蔓延和恶化，而且会让被接种者更加容易感染该病毒并因此而伤残乃至死亡。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+发稿：硫酸羟氯喹64
 
-原文链接:  [https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report](https://thehill.com/policy/defense/army/586890-army-to-announce-vaccine-that-protects-omicron-and-other-variants-report)
+參考链接： [https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/](https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/)
 
  
 
