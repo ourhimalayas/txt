@@ -2,10 +2,10 @@
 ---
 
 
-## 卢比奥参议员：美国经济对中共国的依赖性是极度危险的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790807/)
+## 疯狂!福奇建议禁止未打疫苗者参加家庭聚会！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790815/)
 
-12/22/2021 卢比奥参议员认为美国大型企业乃至美国经济对中共国的依赖性是极度危险的
+12/21/2021 疯狂！福奇建议禁止未打疫苗者参加家庭聚会！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
