@@ -2,37 +2,48 @@
 ---
 
 
-## VICE把华人置于全球各国恐怖主义之下是印尼大屠杀前奏
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1789459/)
+## 中共12家纺织协会反对美国制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789501/)
 
-**郭文贵先生：**所有中国人要记住一条，300万华人在一个小小的印尼呀！300万！美国现在所处的500万华人，300万被抓、被杀、被迫害死，50万立即斩杀、鸡奸、强奸，你以为这离你很遥远吗？这个女人、这个Isobel Yeung、和VICE、和HBO之阴歹，我告诉你们文疯而动，在新西兰这种国家，就像德国一样的，就像那个奥地利是一样的，历史上永远是重复的，就这么奥地利这个小破国家，就永远培养这种独裁，你看这次疫苗，它又是最一马前峰走极端，新西兰这种国家，还有像澳大利亚这种国家，像英国这种国家，他走极端的时候，你…你华人永远是少数的，发生印尼排华事件真的一点都不遥远呐！所以这个女人、还有这个采访之阴歹，把华人置于全球各国的所谓的恐怖主义，影响政治、改变你政治，你不处理它，它就改变你政治。
+撰稿：东京樱花团丨盐和光
+![](https://lh3.googleusercontent.com/ocAcrt5GHM4j3E6tNPlKmvWLvLsbJfWORl5W8wVe2aQKWtqKVJxvGcAZFQC0ENCdTjC2Fo2uRrM7obX6rD1RTsobBbpAGuTLa0GtJIikIOxSUjJ_PEeDvaYDB2w8ddmQhXUBURrT)[*图片来源*](https://images-news.now.com/newsimage/NewsImage/XJ-PC-211225-13.jpg)
+12月25日中国纺织经济信息网报道，中国纺织工业联合会及12家行业协会发布共同声明。声明称，当地时间12月23日，拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的“H.R.6256涉疆法案”，纺织产业界愤慨，12家协会分别是：
 
-编辑整理：海贼王M.D.LUFFY；
+中国纺织工业联合会
 
-字幕文件制作：小满；
+中国棉纺织行业协会
 
-视频制作及上传：Cindy；
+中国毛纺织行业协会
 
-G-News发布：小满；
+中国麻纺织行业协会
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+中国丝绸协会
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+中国化学纤维工业协会
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+中国印染行业协会
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+中国针织工业协会
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+中国家用纺织品行业协会
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+中国长丝织造协会
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+中国产业用纺织品行业协会
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+中国纺织机械协会
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+中国服装协会
 
+新疆棉以绒长、品质好、产量高著称于世。土壤、气候条件与其他地方不同，最多可达到18个小时以上的光照 。2020/2021年度新疆棉产量520万吨，占国内产量比重约87%，占国内消费比重约67%。
+
+由于中共秘密建立集中营，强迫劳动、债务劳工、契约劳工等奴役工人工作，给中共带来大量外汇，导致多个国家与地区的政府已对来自新疆地区的产品实行限制。拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的涉疆法案，对中共的制裁会带动世界各国政府联合抵制孤立中共。
+
+新闻来源：[**中国纺织工业联合会及12家协会共同声明：反对美国涉疆制裁**](https://mil.news.sina.com.cn/dgby/2021-12-25/doc-ikyakumx6302100.shtml)
+
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

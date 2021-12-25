@@ -15,59 +15,59 @@
 
 ---
 
-### [为什么mRNA新冠疫苗可能会干扰我们的先天免疫(3/3)](/content/gnews/1/README.md)
+### [2021年12月24日郭先生盖特 — 视频盖特2「1分56秒」](/content/gnews/1/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [SEC调查川普最新商业伙伴的中共背景(1/3)](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登正式签署“防止强迫维吾尔人劳动法”](/content/gnews/2/README.md)
- ` 澳喜特战旅Gnews`
+### [2021年12月24日郭先生盖特 — 视频盖特1「2分07秒」](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [千人计划：中共精英打手计划](/content/gnews/3/README.md)
- ` 焦點20分`
+### [为什么mRNA新冠疫苗可能会干扰我们的先天免疫(3/3)](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [冬奥会几乎是习太阳的一场噩梦](/content/gnews/4/README.md)
+### [冬奥会证明共产党完蛋了](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [全球大疫情下 艺术品交易量创新高！](/content/gnews/5/README.md)
- ` 焦點20分`
-
-### [中共国通过贷款鼓励生育，实则让下一代出生就成奴隶](/content/gnews/6/README.md)
+### [拜登正式签署“防止强迫维吾尔人劳动法”](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [疫苗灾难已经造成大量死亡 不争事实！](/content/gnews/7/README.md)
+### [千人计划：中共精英打手计划](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [假提问真诋毁—Vice采访郭文贵先生始末系列之二](/content/gnews/8/README.md)
+### [冬奥会几乎是习太阳的一场噩梦](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [全球大疫情下 艺术品交易量创新高！](/content/gnews/9/README.md)
+ ` 焦點20分`
+
+### [中共国通过贷款鼓励生育，实则让下一代出生就成奴隶](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [疫苗灾难已经造成大量死亡 不争事实！](/content/gnews/11/README.md)
+ ` 焦點20分`
+
+### [假提问真诋毁—Vice采访郭文贵先生始末系列之二](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [G系列媒体平台：中西方传播真相的正义桥梁！](/content/gnews/9/README.md)
+### [G系列媒体平台：中西方传播真相的正义桥梁！](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [中共12家纺织协会反对美国制裁](/content/gnews/10/README.md)
+### [中共12家纺织协会反对美国制裁](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [社会主义铁拳能带来“共同富裕”吗？](/content/gnews/11/README.md)
+### [社会主义铁拳能带来“共同富裕”吗？](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [VICE用滕彪螃蟹Nicole青藤和小斯基之口把我们打成邪教](/content/gnews/12/README.md)
+### [VICE用滕彪螃蟹Nicole青藤和小斯基之口把我们打成邪教](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [VICE在制造全球屠华前奏的同时让所有中国人恨海外华人](/content/gnews/13/README.md)
+### [VICE在制造全球屠华前奏的同时让所有中国人恨海外华人](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [VICE把华人置于全球各国恐怖主义之下是印尼大屠杀前奏](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [好莱坞不许拍CIA不许报50万华人被屠戮的印尼大屠杀](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [女星再嫁中宣部副部长成墙内禁闻](/content/gnews/16/README.md)
- ` GTV News Talk`
-
-### [由于奥米炕的肆虐，平安夜全球2000多架航班被取消](/content/gnews/17/README.md)
+### [由于奥米炕的肆虐，平安夜全球2000多架航班被取消](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [VICE把我们揭露共产党操纵美国大选诬蔑为操弄美国政治](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [DC大中华时事：中共人大就美国将所谓涉疆法案签署成法发表声明](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
