@@ -2,28 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1790428/)
+## 文贵大直播精要：直播的力量（1222）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790463/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+我们这一次的音乐打榜意义重大,让共产党真正看到了我们的力量,大家真正地在一起协同作战了！
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-25.png)
-文章仅代表作者本人观点，与Gnews无关
+中国国内新闻界的一位重要人士对我说：“过去，你孤军奋战。虽然吓得共产党战战兢兢，但只有你一个人。现在已经出现了千军万马，而且共产党还抓不着，摸不到。”
 
-视频参看：[2021.12.25早GTV新闻访谈](https://gtv.org/broadcast/watch/61c71cd700f9a119180a738e)
+他认为，我们的大直播是海外华人媒体有史以来做的最好的节目。他建议，节目要让更多人讲，真实性特别重要。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+最初，很多在中国大陆的观众对我们的节目持批评态度。但由于我们的真实性，他们越来越信任我们，越来越爱看我们的节目。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+- 听写：神奇四侠
+- 简写：文大石
+- 审核：舒平风
+- 发稿：神奇四侠
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
+
 
  
 

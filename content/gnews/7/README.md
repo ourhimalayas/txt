@@ -2,21 +2,38 @@
 ---
 
 
-## 文贵大直播精要：（1217）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790518/)
+## 意大利采取更加严格的限制应对奥密克戎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790540/)
 
-死亡作为代价的墓碑文明：
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月23日，意大利政府发布了一则新规定表示，即日起，除户外运动外，当地民众在进行任何公共活动时都必须佩戴口罩。另外，自12月30日起，意大利还将关闭当地的夜总会，同时，民众将被禁止在公共广场用餐。
 
-在欧洲的科学家认为：不争的事实是打了疫苗的人反而更易被感染以及感染后的病症加重。国内因感染奥米康病毒的死亡人数很高。我们反对的是假疫苗、这个未经科学证实的疫苗。保护孩子是人的天性，这比保护大人自己更重要。还有很多人现在生计也出了问题，甚至没饭吃了。所以，强制疫苗应该会在2个月内停止，这次杀掠的都是怕死的。人类历史进程中的通道是由死亡作为代价创造出来的墓碑文明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-6.jpeg)
 
-音乐和音乐家都是时代的产物：
+消息显示，意大利政府采取的这些限制措施将持续至2022年 1 月 31 日。而从 明年2 月 1 日起，政府还将把中共病毒疫苗接种证明的有效期从九个月缩短到六个月。此外，病毒检测结果呈阴性但仍未接种中共病毒疫苗的该国民众将无法进入酒吧和餐馆。
 
-奥地利的音乐大师身心残疾、背叛爱情、易走极端。德国的的音乐强硬、悲壮、描述死亡。当时的环境造就了这些音乐家，他们都是时代的必然。在黑暗的时代里，没有未来但出音乐家。没有时代的引领，就不可能产生伟大的音乐家。就像当今，世界迎来最黑暗的时刻，七哥的音乐横空出世，唐平和威廉王还有Qmay在未来的世界音乐历史上一定会有他们的地位。
+据官方统计的数据，意大利卫生部当天一共报告了超过四万四千例新增中共病毒确诊病例，这也是自中共病毒爆发以来意大利报告的最高数字。另外，在过去的24小时内，意大利共有168 人因感染中共病毒死亡。
 
-元宇宙：
+有观察者认为，尽管意大利政府此次的限制措施遭遇了当地民众的严厉反击，但在如今奥密克戎变种病毒肆虐的情况下，政府丝毫没有放松限制的迹象，因此，双方的矛盾和冲突恐将持续。
 
-元宇宙是信息被控制和病毒让大家禁足的必然结果，会成为愚蠢的宇宙。元宇宙、Q组织和人类大毁灭预言等都是扯淡！人类经历了这场灾难后，人类最值钱的是时间，AI更加利于人类，未来最快乐的就是无苗族的双修。死亡恐惧之后是大快乐的来临，未来属于新中国联邦创造的世界。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
+参考链接：[Italy to Slightly Tighten Virus Curbs as Cases Hit Record High](https://www.bloomberg.com/news/articles/2021-12-23/italy-to-marginally-tigthen-restrictions-as-omicron-spreads)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：童谣 
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
