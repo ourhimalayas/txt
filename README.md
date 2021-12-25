@@ -15,125 +15,125 @@
 
 ---
 
-### [泽连科医生：制造这个生物武器的人同样创造了解毒剂](/content/gnews/1/README.md)
+### [汤姆·科顿：不应继续与中共国保持巨大和纠缠不清的贸易关系](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：我不是反疫苗，而是反愚蠢](/content/gnews/2/README.md)
+### [飞行员因疫苗强制令起诉美国联邦航空管理局](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗](/content/gnews/3/README.md)
+### [泽连科医生：伊维菌素遭遇攻击是因为它对治疗中共病毒有效](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵大直播精要：1203](/content/gnews/4/README.md)
+### [文贵大直播精要：1205](/content/gnews/4/README.md)
  ` 神奇四侠`
 
-### [五角大楼高层中七名已接种者新冠检测阳性](/content/gnews/5/README.md)
+### [泽连科医生：制造这个生物武器的人同样创造了解毒剂](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科医生：我不是反疫苗，而是反愚蠢](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纽约市长白思豪用纳税人的钱利诱市民在家中打疫苗](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵大直播精要：1203](/content/gnews/8/README.md)
+ ` 神奇四侠`
+
+### [五角大楼高层中七名已接种者新冠检测阳性](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [杰森·米勒：推特一直在审查有关中共病毒疫苗的负面评论](/content/gnews/6/README.md)
+### [杰森·米勒：推特一直在审查有关中共病毒疫苗的负面评论](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年12月24日文贵大直播简报](/content/gnews/7/README.md)
+### [2021年12月24日文贵大直播简报](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/8/README.md)
+### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/9/README.md)
+### [警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役](/content/gnews/13/README.md)
  ` YALUN 亚伦`
 
-### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/10/README.md)
+### [纽约时代广场跨年夜庆祝活动缩减规模](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/11/README.md)
+### [奥密克戎疫情扩大 美国数百航班被取消](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播精要：1210](/content/gnews/12/README.md)
+### [文贵大直播精要：1210](/content/gnews/16/README.md)
  ` 神奇四侠`
 
-### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/13/README.md)
+### [意大利采取更加严格的限制应对奥密克戎](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播精要：1212](/content/gnews/14/README.md)
+### [文贵大直播精要：1212](/content/gnews/18/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：（1217）](/content/gnews/15/README.md)
+### [文贵大直播精要：（1217）](/content/gnews/19/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：战友打榜的意义和人类的获救必须灭共（1217）](/content/gnews/16/README.md)
+### [文贵大直播精要：战友打榜的意义和人类的获救必须灭共（1217）](/content/gnews/20/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：新中国联邦人应有的素质（1217）](/content/gnews/17/README.md)
+### [文贵大直播精要：新中国联邦人应有的素质（1217）](/content/gnews/21/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要;中共的残忍与中国人的悲哀(1217)](/content/gnews/18/README.md)
+### [文贵大直播精要;中共的残忍与中国人的悲哀(1217)](/content/gnews/22/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：中共为何抢劫盘古裕达？（1217）](/content/gnews/19/README.md)
+### [文贵大直播精要：中共为何抢劫盘古裕达？（1217）](/content/gnews/23/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：中共的家天下（1217）](/content/gnews/20/README.md)
+### [文贵大直播精要：中共的家天下（1217）](/content/gnews/24/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：中共是骗子党（1217）](/content/gnews/21/README.md)
+### [文贵大直播精要：中共是骗子党（1217）](/content/gnews/25/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：直播的力量（1222）](/content/gnews/22/README.md)
+### [文贵大直播精要：直播的力量（1222）](/content/gnews/26/README.md)
  ` 神奇四侠`
 
-### [文贵大直播精要：引蛇出洞（1222）](/content/gnews/23/README.md)
+### [文贵大直播精要：引蛇出洞（1222）](/content/gnews/27/README.md)
  ` 神奇四侠`
 
-### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年12月25日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播精要：大卫对HBO谎言的剖析（1222）](/content/gnews/25/README.md)
+### [文贵大直播精要：大卫对HBO谎言的剖析（1222）](/content/gnews/29/README.md)
  ` 神奇四侠`
 
-### [七哥说—第38期](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/25/21 香港快讯 岭大平安夜移走六四浮雕 明年元旦开始每日升「国旗」](/content/gnews/27/README.md)
+### [12/25/21 香港快讯 岭大平安夜移走六四浮雕 明年元旦开始每日升「国旗」](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [第209期玫瑰看新闻 -疫苗灾难新闻](/content/gnews/28/README.md)
+### [第209期玫瑰看新闻 -疫苗灾难新闻](/content/gnews/31/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [【Michael.Tonny专栏】VAERS数据表明，接种中共病毒毒疫苗导致严重后果](/content/gnews/29/README.md)
+### [【Michael.Tonny专栏】VAERS数据表明，接种中共病毒毒疫苗导致严重后果](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [第209期玫瑰看新闻 -中共病毒新闻](/content/gnews/30/README.md)
+### [第209期玫瑰看新闻 -中共病毒新闻](/content/gnews/33/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [平安夜感悟](/content/gnews/31/README.md)
+### [平安夜感悟](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [第209期玫瑰看新闻 &#8211; 国际热点新闻](/content/gnews/32/README.md)
+### [第209期玫瑰看新闻 &#8211; 国际热点新闻](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第209期玫瑰看新闻 &#8211; 新中国联邦新闻](/content/gnews/33/README.md)
+### [第209期玫瑰看新闻 &#8211; 新中国联邦新闻](/content/gnews/36/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [“骑墙外交”的岸田遭拜登冷遇](/content/gnews/34/README.md)
+### [“骑墙外交”的岸田遭拜登冷遇](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [第209期玫瑰看新闻 &#8211; 新西兰本地新闻](/content/gnews/35/README.md)
+### [第209期玫瑰看新闻 &#8211; 新西兰本地新闻](/content/gnews/38/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [日本不会派遣政府官员出席中共冬奥会](/content/gnews/36/README.md)
+### [日本不会派遣政府官员出席中共冬奥会](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点1225](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [CCP冠状病毒预防及治疗用药常见问题](/content/gnews/38/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [银河快讯:日本对外国投资者进行彻底监管；儿童新冠疫苗接种将在3月后开始](/content/gnews/39/README.md)
+### [银河快讯:日本对外国投资者进行彻底监管；儿童新冠疫苗接种将在3月后开始](/content/gnews/40/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [防止先进技术外流！日本将不公开涉及安全的专利申请](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [从HBO入党说起](/content/gnews/41/README.md)
  ` 骄子`
