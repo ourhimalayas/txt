@@ -2,36 +2,25 @@
 ---
 
 
-## 纽约时代广场跨年夜庆祝活动缩减规模
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790569/)
+## 警惕末日疯狂！中共“穷毒黩武”，挑起灭白亡美新战役
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1790570/)
 
-作者：纽约香草山健身部— Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，纽约市市长白思豪发布新闻稿称，由于奥密克戎疫情蔓延迅猛，纽约市决定缩减今年时代广场上跨年夜庆祝活动的规模，同时将增加额外的防疫规定。
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide10-1.jpeg)
+之前郭文贵先生通过准确的内部情报，成功预告了中共会在美国感恩节期间投放新的病毒，目前新冠病毒又开始在全球野蛮式爆发。
 
-白思豪表示，时代广场今年将只允许1.5万人进入，用以确保参与者有足够的社交距离。另外，活动的入场时间也将推迟至下午3点。按照规定，没有获得医疗豁免的参与者必须完整接种中共病毒疫苗，并携带疫苗接种证明及身份证明入场，参与活动时也需全程佩戴口罩。
+12月24日，郭文贵先生于GTV、Gettr大直播中透露了最近三个月以来最新获得的确切情报，中共在投放Omicron变种新冠病毒后还会释放新病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/b7f3dafa-b0a8-4214-b558-efcd278ea7f8.jpeg)图片来源自由亚洲
 
-有报道提及，时代广场跨年夜庆祝是纽约市极具标志性和吸引力的活动之一。由于中共病毒疫情，该活动在2020年被禁止，而市长白思豪计划在今年恢复。但目前，奥密克戎变种正在纽约地区飞速蔓延，政府遂决定缩减活动规模。
 
-对此，有一线医护人员在活动官方网站上留言表示，接种中共病毒疫苗根本不能阻止中共病毒的传播，纽约政府此举或将加速疫情的扩散。
+最近几天，杨洁篪、王毅、某军方要领、王岐山和极左派人士开足马力怂恿习近平主席，希望习借着新冠病毒肆虐的机会早日干翻美国。美国亡中共之心不死，既然中美必有一战，早战比晚战好。既然已经用病毒武器开打，就应该追加病毒往死里打。为此，国安委成立了特别新型冠状病毒控制小组，主要负责控制病毒往哪里传染。更为不好的消息是，中共再度投放的病毒会比之前的毒性更强。就连逃离中共控制在欧洲避难的资深科学家都说，中共这次极可能会释放毒性最烈的病毒。因为这位科学家发现病毒控制小组里出现了不常见的王沪宁和一位具有精神病特质的军方少将，就知道这些人的组合会使得疫情雪上加霜。
 
-参考链接：[New Year’s Eve celebration in Times Square is scaled back as Omicron spreads.](https://www.nytimes.com/2021/12/23/nyregion/times-square-new-years-eve-party-covid.html)
+所以，中共和美国的较量，一定会被推向一个新的高度。凶悍的Omicron变种新冠病毒已经横扫西方世界，而感染人数会在圣诞节以后猛升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+圣诞节后紧接着的新年假期，将会是又一个新冠病毒集中传播期，直到北京冬奥会之后，美国和西方社会才会明白中共灭白计划的真实。目前来看，感染Omicron变种新冠病毒后死亡人数最多的是西方白种人，只有西方社会用更多鲜活生命的代价，才能看得清中共邪恶的本质。
 
-总编：Irene木木
-编辑：Kathy文艺 
-校正/发稿：谐趣园
+上天让其灭亡，必先让其疯狂，习太阳又向着习奥塞斯库、习扎菲和习达姆更近了一步。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

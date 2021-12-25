@@ -2,10 +2,10 @@
 ---
 
 
-## 关注冬奥5周前西安封城，中共、习近平又在掩盖什么
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790835/)
+## 中共“得寸”香港，“进尺”台湾，还企图霸占太空
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790844/)
 
-12/23/2021 班农先生《战斗室》连线在罗马的Ben Harnwell，关注中共在西安突然全面封城，Ben认为习近平在掩盖奥米炕之外的新变种。
+12/22/2021 天空新闻：中共在香港问题上得了“寸”，现在他们不仅要在台湾问题上“进尺”，而且还企图霸占太空
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,34 +2,33 @@
 ---
 
 
-## Omicron激增下CDC缩短了医护人员的隔离时间
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1791033/)
+## 铁血社区永久关闭，中共战狼何去何从？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791060/)
 
-翻译:里奇
+【**国内新闻短评**】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-13.jpg)TAMI CHAPPELL/AFP via Getty Images
+**据新浪2021年12月21日报道，受“铁血科技”连年亏损的影响，“铁血社区”用户流失严重，决定于12月20日停止发帖、回帖功能，2022年3月1日正式永久关闭。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a9ky9-mtr5w-2.jpg)**图片来源：网易**![](https://assets.gnews.org/wp-content/uploads/2021/12/zzz-amq6p-x6e25.jpg)**图片来源：网易**
+作为二十年的“战狼”聚集地的“铁血社区”，因受铁血科技从2018到2020年连年亏损的影响，用户流失严重，面临竞争，设计也没有提高，导致“战狼”们聚集的热血论坛“铁血社区”将永久关闭。很多人慨叹“现象级社区成为历史”。
 
-路透社 12 月 23 日 – 美国疾病控制与预防中心周四表示，在美国，COVID-19 检测呈阳性但无症状的医护人员可以在隔离 7 天后重返工作岗位，前提是他们的检测呈阴性。
+铁血社区关闭，直接原因是经营不善，连年亏损。虽然从今年上半年已经开始盈利，但还是被迫倒闭。深层次原因也可能是贩卖“战狼”情怀的失败，还是因为墙内信息管控愈发严格的需要，或者是冬奥会即将召开，“战狼”们到处狂咬恐怕有损于大国形象。不管哪一种原因，当中共为树立强大帝国形象，迎合宣传，战狼们各种摇旗呐喊得到平台支撑。当中共不需要的时候，即便是“战狼”也无处发声。
 
-新指南将隔离时间从之前建议的 10 天缩短，CDC 表示这是为 Omicron 病例的预期增长做准备。CDC 周一表示，目前 Omicron 占美国冠状病毒感染的 73%。
+从2018年到现在，疫情封闭，经济下滑，失业大潮汹涌而来，再热血澎湃的“战狼”也得吃饭，没有收入的支持，也无暇顾忌爱国情怀。贩卖“战狼”情怀不能赚钱，战狼们终于活成了“时代的眼泪和历史”。他们是否明白，对于中共那种癫狂的自信和崇拜，恰恰是没有历史知识和常识的体现。他们推崇的军事铁血精神，这是军人的耻辱。战争的最大受益者绝对不是人民，而战争的受害者永远都是老百姓，包括“战狼”们自己。
 
-CDC 表示，如果因 COVID-19 导致人员短缺，隔离时间可以进一步缩短，并补充说，已完全接种疫苗（包括加强疫苗）的医护人员无需在高风险暴露后在家隔离。
+接二连三的互联网平台被关停，下一个被抛弃的又将是哪家？ “战狼”们捶胸顿足的时候，可否知道雪崩的时候，没有一片雪花是无辜的？ “战狼”们可曾思考过，所谓的“战狼”精神，会将自己的人生和国家民族带向何方？
 
-然而，全国护士联合会称削弱对雇主的隔离指导是一个危险的决定，并要求 CDC 维持其现有指导。
+**声明**：**文章观点仅代表作者个人，与gnews平台无关**
 
-“面临可能是最具破坏性的 COVID-19 激增，目前此种削弱 COVID-19 的指导政策，只会导致进一步的传播、疾病和死亡” 全国护士联合会主席 Triunfo-Cortez 说。
+**参考链接**：[https://mil.news.sina.com.cn/zhengming/2021-12-21/doc-ikyakumx5469911.shtml](https://mil.news.sina.com.cn/zhengming/2021-12-21/doc-ikyakumx5469911.shtml)
 
-白宫医学顾问安东尼·福奇 (Anthony Fauci) 周二表示，美国卫生当局正在考虑缩短对 COVID-19 检测呈阳性的美国人建议的 10 天隔离期。
+素材：洛杉矶盘古农场 —Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 —柯镇恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**参考资料：**[reuters][CDC cuts quarantine time for healthcare workers amid Omicron surge](https://www.reuters.com/world/us/cdc-cuts-quarantine-time-7-days-healthcare-workers-amid-omicron-surge-2021-12-23/)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
