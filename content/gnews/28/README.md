@@ -2,42 +2,27 @@
 ---
 
 
-## 美国海军陆战队员因拒绝接种新冠疫苗而被开除
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1788873/)
+## 日本三菱电机疑被中共攻击 国防机密数据泄露
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1788932/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-100.jpg)[图片源](https://search.yahoo.co.jp/amp/s/www3.nhk.or.jp/news/html/20211224/amp/k10013403341000.html%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
+总部位于东京的三菱电机遭受网络攻击，国防部于24日公布了一项调查结果，发现共有59项敏感安全信息可能被泄露。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/210120-M-TS007-0135.jpg)
+据国防部称，该公司在内部互联网终端上存储与该部有关的数据文件。2019年3月，位于中共国的管理服务器遭到网络攻击，从而对日本的终端进行了未经授权访问。
 
+大约有20,000项国防相关信息被非法访问。国防部表示其中59条是“可能影响国防安全的数据文件”。鉴于此，该部已经采取了严格的保护措施。
 
- 
-图片来源：www.pacom.mil
+国防部告诫该公司要妥善管理信息。并宣布在2021财年年底前对日本约250家与国防有关的公司的信息安全规则进行规范，其中会附加严格的管控措施。
 
+信息源:
 
-#### 整理/编辑 ：小红帽
+[安保情報５９件、流出の可能性…三菱電機サイバー攻撃で防衛省調査](https://news.yahoo.co.jp/articles/f6d0d6f42adb0df0613fbcad3a80df343acc4e04)
 
-根据RT12月24日报道， **美国海军陆战队在过去一周又有66名海军陆战队员因拒绝遵守军方的新冠（Covid-19）疫苗强制令而被开除，累计开除总人数达到169人。**
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-美联社的一份声明表示，美国海军陆战队重申需要为部队接种新冠疫苗。声明中提到：“这种疾病在个人之间传播的速度增加了对我们的海军陆战队员和海军陆战队任务的风险”。
-
-该特种部队组织表示，部分接种新冠疫苗的部队比例仍为95%，与前一周相同，因为该组织宣布又有66名海军陆战队员被开除。
-
-这意味着现在共有169名海军陆战队员因拒绝遵守新冠疫苗强制令而被踢出部队。
-
-在五角大楼强制要求包括国民警卫队和预备役在内的所有军人接种新冠疫苗后，海军陆战队的退伍人数超过了任何其他美国军种。
-
-截至周四，海军陆战队已经拒绝了96%的新冠疫苗豁免申请，包括那些基于宗教理由的申请。陆军、海军和空军的新冠疫苗接种率都在98%左右，这使得海军陆战队成为接种率最低的军种群体。
-
-新闻来源：[More US Marines kicked out for refusing vaccine — RT World News](https://www.rt.com/news/544343-us-marines-vaccine-mandate/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

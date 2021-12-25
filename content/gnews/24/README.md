@@ -2,22 +2,29 @@
 ---
 
 
-## 2021.12.24大直播文贵先生从新歌打榜谈爆料革命要持之以恒
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1788988/)
+## 班农谈VICE对文贵先生的失败攻击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789048/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-24-at-9.27.43-PM.jpeg)
-郭文贵先生在2021年12月24日大直播中谈到爆料革命的新歌打榜，让西方人认识到爆料革命新中国联邦真的有实力，而且遍布全球。
+撰稿：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
+根据战鹰团盖特12月24日消息，美东时间22日，班农先生在接受英喜每周采访中表示，VICE对郭文贵先生的访谈不仅是断章取义，而且是完全失败的。VICE上一轮融资时估值曾达到57亿美元，班农揭露当今售价不会超过5亿美元。如此严重注水的估值，迫使它为了利益与中共勾兑。VICE直接听命于北京，小心翼翼的避免触碰中共的真实面目，所以绝不会报道中共跨国犯罪集团的罪恶。但它非常恐惧新中国联邦、爆料革命、法治基金、法制社会、GNEWS、GTV和WARROOM，给世界传递的真实信息，因此它们必然会恶意剪辑，极尽所能妄图破坏文贵先生的形象。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1375.png)
+对于VICE这次失败的攻击，班农先生认为每一个观看GNEWS、GTV和文贵直播的人，都威胁到了中共和邪恶势力。中共利用奴工维持着经济和金融体系的运转。任何帮助中国追求自由的人都是作战人员。任何揭露中共黑帮和跨国犯罪集团本质，揭露VICE与中共勾兑的人，都会受到压力和攻击。但爆料革命运动势不可挡，班农称遇到很多伟大的中国人，无论是否追随文贵先生，都致力于消灭中共。班农表示会将永远像兄弟一样同文贵先生、爆料革命并肩作战。
 
-郭先生提到他在乎的是战友的打榜的持续性，这种持之以恒的行动力能证明我们的凝聚力和灭共的决心。目前战友们打榜创造了好成绩是让他最开心的事情。
+新闻链接：https://gettr.com/post/pkikt2f4f9
 
-同时郭先生又指出，战友们经过四五周时间的打榜，大家的热情已经开始减弱。这正暴露了我们中国人的一个弱点，就是集体行动很难坚持超过六周。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
 
-郭先生说，“我从小坚信一句话，我只要坚持到最后，我就不相信磕不下来这件事儿。”郭先生回顾了自己四年多来一个人坚持直播，每天坚持锻炼，每天坚持学习英文等真实的事例，忠告战友们灭共不能靠一时的热情，一定要持之以恒。新中国联邦人要能做到彼此包容，善待对方，持之以恒，唯真不破，真心灭共。
+总编/编辑: 童谣
 
-参考链接：https://gtv.org/video/id=61c5c61e00f9a1191809b5c5
+校正/发稿：浪迹天涯**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
 
-校对发布：大浪小水花
 
  
 

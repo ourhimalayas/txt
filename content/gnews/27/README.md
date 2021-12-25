@@ -2,24 +2,33 @@
 ---
 
 
-## 法国文化名人投稿呼吁政府对北京奥运会进行外交抵制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1788931/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-1
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788947/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-309.png)（图片源自本文链接）
-共同社巴黎12月24日消息：法国《世界报》24发表了一篇文章，其中有文化界人士的投稿，呼吁总统马克龙和欧洲国家对北京冬奥会实施外交抵制。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
+爆料革命和新中国联邦创始人郭文贵先生，早在2017年开始向世界揭露中共CCP的邪恶，并多次发出警告“中共口中的潘多拉魔盒已被打开”，“来自中共盗国贼的黑夜降临”，诸多事实已经一一得到验证，展示了爆料革命和新中国联邦坚持唯真不破，坚定灭共的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1373.png)
+HBO VICE却在四年前的采访中对郭先生进行诋毁，后来该媒体多次请求与承诺，并同意双方均有全程录像的权力，2021年5月18日，郭文贵先生终于再次接受其采访。此次HBO VICE依旧选择恶意抹黑、中伤郭先生与爆料革命战友，接下来我们还原事实真相的第一部分：HBO记者ISOBEL YEUNG的亲共背景证明。
 
-包括哲学家帕斯卡尔-布鲁克斯纳和电影导演Leos Carax在内的约30人呼吁”不要庆祝一个由正在让自己的国民消失的犯罪国家所举办的体育庆典”。
+链接：
 
-马克龙本月表达了他对外交抵制的不情愿，说外交抵制”只是一个小小的象征性措施”。随后，这篇文章驳斥了马克龙的观点，指出中共国政府已被美国、英国等国家宣布的外交抵制激怒。
+[https://gettr.com/post/pkg33xf5be](https://gettr.com/post/pkg33xf5be)
 
-这些文化名人们的阐述，说明了外交抵制是起作用的。只是马克龙在给自己不想外交抵制中共操办的北京冬奥会找理由而已。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-信息来源：[北京五輪、仏も外交ボイコットを　著名文化人ら新聞に寄稿（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4f3205f5f87ee3d86e90209218114505062184fc)
+总编：童谣 / 飞虹
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
