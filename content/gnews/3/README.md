@@ -2,40 +2,48 @@
 ---
 
 
-## 美学者称台湾可摧毁台积电工厂以阻止中共入侵
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1789662/)
+## 参议员兰德保罗的节日报告显示政府浪费了近526亿美元
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1789667/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1640343153-61c5a6718f6831.jpg)图片来源：www.taiwannews.com.tw
-台北（台湾新闻）——两位美国学者在一篇杂志文章中推荐，为了让入侵对中共失去吸引力，台湾应该考虑采取包括摧毁台积电(TSMC)工厂在内的“焦土”策略。
+作者：纽约香草山翻译部 defianc
 
-美国空军大学专家贾里德·麦金尼(Jared McKinney)和科罗拉多州立大学政治学家彼得·哈里斯(Peter Harris)在美国陆军战争学院季刊《参数》(Parameters)上发表的一篇题​​为《覆巢：阻吓中国入侵台湾》(Broken Nest: Deterring China from Invading Taiwan)的文章中介绍了该计划。
-
-他们提出将“焦土”策略作为避免美中之间爆发全面战争的一种手段，同时也向中共政权明确表明，攻占台湾将带来更多的成本而不是优势。
-
-作者说，“覆巢”战略将在中共国引发一场重大的经济危机，而不是通过吸收台湾的高科技产业来帮助其行业获得发展。根据麦金尼和哈里斯的说法，台积电的毁灭将成为倡导经济稳定的共产主义政权的“危险的鸡尾酒”。
-
-作者承认，主要问题将是使上述威胁对中共国可信。此外，他们还主张让美国在该地区的其他盟友参与进来，包括允许日本、韩国和澳大利亚发展和部署核武器。
-
-麦金尼和哈里斯表示，台湾应该成为中共国“不想要的”，要明确表示攻击和入侵将导致这个共产政权其他政策的失败，而占领台湾并没有任何好处。
-
-简评：
-
-凡是独裁者都是没有道德底线的精神病狂人，“焦土”战略在某种程度上来说也许会有效果，但是恐怕并不能从根本上阻止邪恶的中共政权对台湾的入侵。
-
-近两年来，中共对台湾的威胁不断加大，在南海到处制造事端，这不仅源于习近平政府有妄想称霸亚洲的野心。还有一部分原因是中共日益加剧的内斗促使习近平迫切想要通过挑起台海战争来稳固自己的政治地位。对于台湾来说，中共内部的政治斗争是一个可以加以利用的工具，如果台湾在中共内部获得反习派系的支持，外部获得美日的协防，当习近平政府发动台海战争，在内外夹击的局面下，中共政权完全可能因此走向覆灭，而台湾则可因此得以生存。
-
-新闻链接：[US academics say Taiwan could destroy TSMC factories to deter Chinese invasion](https://www.taiwannews.com.tw/en/news/4387870)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据Newsmax12月22日报道，参议员兰德-保罗（Rand Paul）在发布的年度 “节日报告 “中透露，政府浪费了525亿9851万5585美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-416.jpeg)图片来源：NEWSMAX
+
+保罗是参议院“新兴威胁和开支监督”分组委员会的高级委员，他在报告中把政府的浪费开支分为几个子类别，包括CCP病毒、阿富汗以及其他。
+
+对于CCP病毒类别，保罗作了详细说明。42.9亿美元的工资保护计划给了不符合条件的人，360亿美元的失业金 “被不当支付，其中很大一部分由于欺诈”，450万美元被用于 “开发CCP病毒和流感病毒疫苗，而把雪貂捣成肉酱”。
+
+此外，报告还详细介绍了465,339美元的拨款，用于研究鸽子的赌博习惯，希望借此推及到人类；1,130万美元用于指导 “越南人民停止焚烧垃圾”；361,001美元的拨款用于研究让孩子吃垃圾食品是否会让他们更有食欲。
+
+报告中说：”无论已经浪费了多少钱，政客们都要求更多。”
+
+参考链接：[https://www.newsmax.com/newsfront/randpaul-governmentspending-waste/2021/12/22/id/1049731/](https://www.newsmax.com/newsfront/randpaul-governmentspending-waste/2021/12/22/id/1049731/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-418.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
 
  
 
