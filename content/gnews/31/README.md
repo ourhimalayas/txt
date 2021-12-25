@@ -2,40 +2,37 @@
 ---
 
 
-## 绝不会放弃跟VICE、Isobel、HBO和单伟建的每一个官司
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1790009/)
+## 银河快讯:日本对外国投资者进行彻底监管；儿童新冠疫苗接种将在3月后开始
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1790116/)
 
-**郭文贵先生：**这些一切刑事问题一定……就像梁冠军一样，就像梁冠军被调查一样，它一定会发生。我们不想钓出一个伊莎贝拉，说老实话对她半点……这个人在生活中我一点都不反感，她不像蛇妖阎一出来，你一看她浑身贱肉，假货、Low到站街女，就30块钱都不愿出那种感觉的。这个伊莎贝拉生活中我一点不讨厌，这个小孩这个人还是很有礼貌的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-133.png)[图片来源](https://mainichi.jp/)
+**1.****个人信息保护委员会:加强监管面部识别摄像头**
 
-这个个人上我对伊莎贝拉没有什么，但是这一次她执行的这种杀人计划，杀掉Nicole、杀掉小斯基、杀掉爆料革命、杀掉郭文贵、杀掉新中国联邦，这是凶险至极的。
+[据朝日新闻 12月22日报道，政府的个人信息保护委员会决定加强监管能够识别个人的面部摄像头识别图像数据。目前，仅规定了数据使用目的的公开义务，但委员会要求讨论数据的明确存储期限。按现行《个人信息保护法》规定，人脸识别数据，同姓名和出生日期一样，在获取时不需要征得个人同意。 虽然法律规定使用目的必须公开，然而具体措施仅仅是，在安装摄像头的地方明确说明面部识别数据的使用目的和联系方式。](https://news.yahoo.co.jp/articles/f9e2e7fd27b238ecbd6070bb60e7c395a381fac2)
 
-这个事情大了去了，接下来会一次次证明这个报导之后，它是对中国共产党有多大的帮助，我们新中国联邦已经成了中美关系恶化的替罪羊，我们已经成了邪教，我们已经成了骗子集团，我们已经成了暴力分子。我们跟VICE、跟伊莎贝拉、跟HBO和单伟健的官司绝对会一个又一个，绝不会放弃，这回得告她，我们这回不能感激她。
+**2.****5-11岁儿童的新冠疫苗接种将在3月后开始**
 
-字幕来源：[2021年12月22日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1784652/)
+[据每日新闻 12月22日报道，厚劳省表示，为5-11岁儿童接种中共病毒疫苗的开始时间将被推迟到明年3月或以后。 政府曾表示，最早可以在2月开始接种疫苗。 辉瑞公司于11月10日向厚劳省申请批准将疫苗的覆盖范围扩大到5-11岁。 日本政府已签署了一份合同，从明年1月起向辉瑞公司购买1.2亿剂疫苗。](https://news.yahoo.co.jp/articles/29e54dd54d6932a0587f8a2c1ae5ae1bd0daf4b4)
 
-字幕文件制作：小满；
+**3.****中共病毒2人死亡，新增262例**
 
-视频制作及上传：Cindy；
+[据NHK  12月22日报道，日本全国公布了262个新增病例。此外，两人确认死亡，一名在东京，一名在神奈川县。日本共确认感染1,730,983人，包括机场检疫及712名邮轮乘客及船员。共有18396人死亡，包括日本本土感染的18383人和13名游船乘客。](https://www3.nhk.or.jp/news/html/20211222/k10013399561000.html)
 
-G-News发布：小满；
+**4.****日本对外国投资者进行彻底监管**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+[据NHK 12月22日报道，经济安全保障担当大臣表示，对于确保政府对外国投资者在日本安保相关及重要公司投资的监管，为保其有效性，即使投资完成后，政府亦将对其进行彻底的监管。去年，政府颁布了修订后的《外汇法》。法律规定，如果外国投资者想在一家安全保障相关的重要公司中持有1%或以上的股份，必须事先通知政府，但如果政府认为这是一项纯粹的投资，则允许他们事后报告。政府表示，即使在外国投资者投资该项目后，也会彻底监视是否存在任何有关安全保障的问题。](https://www3.nhk.or.jp/news/html/20211222/k10013399541000.html?utm_int=news-business_contents_news-main_002)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**5.****非制造业冬季奖金下降超过18%，为1997年以来最大降幅**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[据NHK 12月22日报道，根据日本经济团体联合会的一项调查，今年冬天大型企业的奖金比去年下降了5%以上，这是连续第二年的下降。 日本经济团体联合会调查了在东京证券交易所拥有500名或以上员工的一部上市公司，了解了它们在今年冬天的奖金支付状况，并公布了21个行业中总共164家公司的答复。每名雇员的平均金额为829,555日元，与去年相比减少了44,666日元，平均降幅5%左右。在非制造业中，人均奖金为712,019日元，降幅超过18%。](https://www3.nhk.or.jp/news/html/20211222/k10013399131000.html?utm_int=news-business_contents_list-items_009)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**6.****日本三菱重工发射携带英国卫星的火箭**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[据共同社12月23日报道，三菱重工在日本西南部的种子岛航天中心成功发射了一枚载有英国通信卫星的H-2A火箭，卫星在升空后约26分钟进入了预定轨道。由于日本制造商在发射前最后的关头追加了一次最终检查，升空时间也因此被推迟了约一个小时，不过幸运的是没有发现任何异常。H-2A火箭全长53米，直径4米，用四个固体燃料助推器升空，携带重型卫星。据三菱重工称，最近一次飞行是H-2A火箭运载第五例外国卫星，其他的是来自加拿大、韩国和阿拉伯联合酋长国。](https://english.kyodonews.net/news/2021/12/fd8daf8f3e4f-update1-japans-mitsubishi-launches-rocket-carrying-british-satellite.html)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Tagomi
 
  
 

@@ -2,22 +2,22 @@
 ---
 
 
-## 中共计划释放更致命的新型病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789607/)
+## 墙内吉林省推出生育贷款应对人口萎缩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789610/)
 
-作者：纽约香草山农场 文真
+作者：银河勇气星 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+12月24日，据中共媒体消息显示，近日，为了应对中共官方对墙内人口增长的需求，中共吉林省政府推出了一项“婚姻和生育消费者贷款”。据悉，此项贷款的额度高达20万人民币，且该贷款的折扣利率与申请夫妻拥有的孩子数量有关。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1225AM（1-10）图片备用.004-copy.jpeg)
 
-12月24日，郭文贵先生在直播中向世界发出最新警告，继释放奥密克戎变体病毒后，中共计划在今年年底释放毒性更强的新型病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-25-at-8.33.31-PM.png)
-郭先生爆料称，中共内部人员已经给习近平出谋献策，声称一定要借此机会战胜美国，甚至彻底消灭美国。为此，中共国家安全委员会近期成立了一个“特别冠状新型病毒控制小组”，由王沪宁和中共军方人员组成。郭先生提及，该小组的目的不是为了控制病毒的传染，而是为了有目的地控制病毒的传染渠道和被传染者。
+报道提及，在过去几年里，中共国的新生儿出生率极速放缓，当中以吉林省的人口下降最为严重。因此，包括吉林在内的中共各省市接连推出各种或利诱、或强迫的鼓励生育手段。
 
-据中共内部知情人士透露，中共计划释放的新型病毒会比2019年在武汉释放的冠状病毒更高级、更致命，可能会是中共生化病毒武器库中最危险的一种病毒。
+但据知情人士透露，墙内其他省份此前推出的类似生育贷款曾大受诟病，而此次吉林省推出的鼓励生育类贷款也引发了墙内民众的广泛争议。
 
-参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
+参考链接：[Chinese province offers $31,000 baby loans to counter shrinking population](https://indianexpress.com/article/world/chinese-province-offers-31000-baby-loans-to-counter-shrinking-population-7688479/lite/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
