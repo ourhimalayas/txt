@@ -2,34 +2,26 @@
 ---
 
 
-## 中共未能兑现贸易协议中对美国的承诺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790239/)
+## 文贵大直播精要：媒体的力量（1222）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1790287/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据美国媒体披露，从数据上看，中共政府在即将结束的2021年内未能兑现此前对美国贸易的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-25-下午10.46.24.png)
-资料显示，美中双方于 2020 年 1 月签署的贸易协议旨在恢复双边的贸易平衡，但在第一阶段贸易协议覆盖的23个月里，中共从美国的进口虽然创下了新纪录，但还远远没有兑现其对美国的承诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-15.png)
+现在全世界反对共产党的人，都会反对北京冬奥会。但是中共会不惜一切代价，消除反对冬奥会的杂音，让支持冬奥会的人赶快站出来。
 
-消息人士认为，鉴于中共的表现，拜登政府将不会改变对中共贸易政策的强硬立场，同时也很难降低或取消已对中共商品增加的进口关税。
+中共会免掉很多国家的债务，甚至会让拜登政府收回抵制冬奥会的决定。200多个美国运动员将会出现在北京的赛场上。未来，只要反对共产党的都被媒体说成邪教，只要反冬奥会的都被媒体贴上暴力分子的标签。
 
-对此，郭文贵先生日前也曾爆料称，中共仍将采取利诱以及病毒威胁等手段，胁迫拜登政府放松对中共的贸易压制。
+这些报道的凶险和邪恶，超出任何人的想象。中共为了搞一场政治冬奥会，中国人将付出几千亿美元的代价，这是七哥今天曝出的大料。全世界，只有中国政府，害怕自己的人民超过害怕自己的敌人，对自己的同胞只有掠夺和利用，还使劲伤害自己的民族。
 
-参考链接：[China to Fall Short on Promises to U.S. as Trade Deal Ends](https://ca.finance.yahoo.com/news/china-set-fall-short-promises-150742694.html)
+郭文贵用我自己的生命和名誉，让世界看到共产党对西方媒体的渗透有多严重，并证明杨贝贝的采访报道完全是刻意抹黑。那是针对我们爆料革命的一场有目的的行动。另外中共会在我们的内部渗透和分化，挑拨战友关系，并把大卫、老班长、木兰、卡丽熙、长岛哥等打成特务，战友们一定要有辩別是非的能力，一切唯真不破。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+- 听写：神奇四侠
+- 简写：正道主義JACK(文傑）
+- 审核：舒平风
+- 发布：神奇四侠
 
-总编：童谣
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

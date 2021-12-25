@@ -2,32 +2,35 @@
 ---
 
 
-## 日本不会派遣政府官员出席中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790241/)
+## 台日二轮2+2会谈聚焦芯片合作与经贸关系
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1790289/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月24日，日本政府发布声明表示，日本将不会派遣内阁成员或政府官员出席2022年中共北京冬奥会。而日本内阁官房长官松野博一也在当天的新闻发布会上强调，此举是由日本政府自行决定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-25-下午10.46.41.png)
-此前，日本自民党不断向首相岸田文雄施压，要求其对中共政府采取更加强硬的立场。为此，前首相安倍晋三也于23日与岸田文雄举行会谈，要求日本现任政府尽早表明态度。
+#### 撰稿：日本东京方舟农场 北极
 
-有分析人士称，虽然日本政府在表态时采取了更为温和的态度与用词，但实质在对待中共的问题上，日本与西方盟国保持了一致的强硬态度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D4CA2FF3-CA05-45D7-B723-F973A97BB6F9.jpeg)台湾半导体行业龙头老大台积电公司在新竹的总部。（图片来自美国之音中文网）
 
-参考链接：[日本将不派政府代表团参加北京冬奥会 将派与奥运直接相关的官员](https://cn.reuters.com/article/japan-bj-winter-olympic-1224-idCNKBS2J3084)
+12月24日，台日双方执政党国会议员通过视讯举行第二次2+2会谈，芯片合作与经贸成为主要话题。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+据美国之音中文网报道，当天出席会谈的日方代表有自民党外交部会会长、参议员佐藤正久和经济产业部会会长、众议员石川昭政，而台湾方面参加会谈的是民进党国际部主任、立委罗致政和民进党籍立委邱志伟。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+在会谈结束后，邱志伟接受媒体采访时表示，目前的半导体芯片短缺不仅是日本产业的问题，也是世界其它地区共同面对的一个问题。他补充道，“台日双方一致认为，未来将在半导体芯片供应链上开展更多合作，形成完整的框架、体系。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作为世界半导体行业龙头老大的台积电公司，不仅斥巨资在美国亚利桑那州兴建最先进的芯片生产基地，并于上个月宣布将再斥资70亿美元在日本兴建另一家芯片制造厂。
+
+民进党籍立委罗致政会后表示，台日执政党议员2+2对话未来将成为一种常态性的安排。他表示，日方在对话中，重申支持台湾加入《全面与进步跨太平洋伙伴关系协定》（CPTPP）。
+
+台日执政党议员首次2+2对话于8月27日举行，主要聚焦于安全议题，特别是中共在台海以及南中国海和东中国海的强势行为。
+
+*参考链接：[台日执政党议员再次举行2+2会谈，芯片合作与经贸成主要话题](https://www.voachinese.com/a/Taiwan-Japan-eye-all-round-cooperation-on-chips-20211224/6368700.html)*
+
+* * *
+
+*素材采编：北极*
+
+*编辑： 文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

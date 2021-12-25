@@ -2,39 +2,32 @@
 ---
 
 
-## DC每日热点1225
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1790203/)
+## 日美拟定联合行动草案应对台海危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790240/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/80A24306-B518-411E-94A7-00A74FB8575C-scaled.jpeg)
-道琼斯指数 35950.56 ▲0.55%
-纳斯达克指数 15653.37 ▲0.85%
-WTI纽约原油CFD 73.779 ▲1.40%
-布伦特原油CFD 75.570 ▼1.40%
-标普50指数 2,909.50 ▼41.86%
-美元兑人民币 1USD=6.367 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1807.85 美元/盎司
-全球CCP病毒感染人数 279,496,838例
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月23日，据日本媒体消息显示，由于中共逐步加剧的军事扩张，日本和美国政府已经共同拟定了一项联合军事行动草案，用以应对可能发生的台海危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-25-下午10.46.33.png)
+报道称，依照该草案，在台海危机爆发的初始阶段，美国海军陆战队将在日本南西诸岛设置临时基地，并部署地面兵力，同时，日本武装部队将在弹药和燃料供应等领域提供后勤支持。有消息表示，该计划的正式方案或将在明年的美日“2+2” 外交军事首脑会谈中达成一致。
 
-1、希腊：移民走私船沉没爱琴海 十多人遇难
-2、中共国帮助沙特生产弹道导弹 拜登政府考虑制裁
-3、土耳其和卡塔尔同意联合经管喀布尔机场并向塔利班提交计划
-4、台日执政党议员再次举行2+2会谈，芯片合作与经贸成主要话题
-5、欧盟确认，中共国已开始拒收含立陶宛组件的欧盟商品，且越来越多
-6、欧洲天然气价格破纪录，俄罗斯建议批准北溪二号天然气管道来缓解
-7、美法英德意宣布继续承认利比亚临时政府，呼吁尽快举行选举
-8、卫星图显示俄罗斯继续在克里米亚和乌克兰东部不远处部署军队
-9、西安封城 三星西安工厂进入紧急运营状态
-10、FDA批准默克COVID口服药 白宫22亿美元采购
-11、纽约州将伪造COVID疫苗接种卡定为犯罪
-12、美军舰爆疫情暂停部署 全部船员已接种疫苗
-13、中共国最大芯片企业紫光破产重整计划被举报
-14、拜登签署法案后 传沃尔玛下架新疆产品
-15、 日本24日宣布不派政府代表团参加北京冬奥会；而是由东京奥组委主席桥本圣子、日本奥委会主席山下泰裕和残奥委会主席森和之出席
-16、为防备台海有事，日本内阁批准史上最大国防预算：5.4万亿日元（约合470亿美元）
-17、美国总统乔-拜登宣布因人权原因外交抵制北京冬奥会后，美国政府为18名官员向中国申请3个月的签证，准备在冬奥会期间为美国队提供”安全支持”
+有美国官员分析道，日本有数以千计的美国驻军以及多个美国海军和空军基地，加之日本便利的地理位置，在台海危机时能够极大地缩短援助联军的到达时间。该官员还补充道，中共于过去两年间在台海地区加大军事和外交压力的行为激起了美国对台海和平的关注，而在更好地应对台海危机问题上，日本将发挥重要作用。
 
+参考链接：[Japan, U.S. draw up plan for any Taiwan emergency -Kyodo](https://www.reuters.com/world/china/japan-us-draw-up-joint-operation-plan-any-taiwan-emergency-kyodo-2021-12-23/)
+
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
