@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 1:00 PM (UTC)`
+
+12月25号：文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯😅😅😅😅😅😅😅😅😅😅😅
+![img](https://media.gettr.com/group47/getter/2021/12/25/13/efbb2e4b-3e0c-fc2a-6957-9198d61ae770/out.jpg)
+
+---
+
 `@miles 12/25/2021 8:43 AM (UTC)`
 
 12/24/2021 Miles Guo: HBO/VICE and Isobel Yeung slander the Whistleblowers’ Movement and me as a bunch of swindlers, a cult, and threats to the Western democracy and freedom through the mouths of Teng Biao and An Ruizheng and by viciously editing what was said by the fellow fighters like Nicole and Xiao Siji. What they have done is extremely insidious and evil!<br/><br/>12/24/2021 文贵直播：HBO/VICE杨贝贝借滕彪、螃蟹之口，并通过恶意剪辑Nicole、小斯基等战友的话将爆料革命和文贵污蔑为一帮骗子、邪教和西方民主自由的威胁，阴险邪恶至极！<br/>
@@ -147,13 +154,6 @@ Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay 
 
 12/22/2021 Miles Guo: The CCP dominates the international media and has arranged 5 media outlets to interview Peng Shuai; how the CCP wields the power of the whole country to cover up the truth about the Peng Shuai incident is the same as how they fabricated Ma Rui’s rape case to frame me back then<br/><br/>12/22/2021 文贵直播: 中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙<br/>
 ![img](https://media.gettr.com/group21/getter/2021/12/23/15/f7338f7b-055c-5257-c5b2-943f798c9504/out.jpg)
-
----
-
-`@miles 12/23/2021 3:33 PM (UTC)`
-
-12/22/2021 Miles Guo: The CCP negotiators took turns to threaten Peng Shuai in the name of the state and threatened to turn her into a mental patient under the guise of caring for her physical and mental health; Xi Jinping, Han Zheng, and Li Zhanshu met Peng Shuai at the Jade Spring Hill and demanded her to lie to the whole world!<br/><br/>12/22/2021 文贵直播：中共谈判专家轮番上阵，以国家的名义威胁彭帅，并打着关心她身心健康的幌子，威胁将其变成精神病；习近平、韩正和栗战书在玉泉山接见彭帅并要她对全世界说谎！<br/>
-![img](https://media.gettr.com/group43/getter/2021/12/23/15/1e0b2f2d-b003-ff8f-d9e9-727fda681407/out.jpg)
 
 ---
 

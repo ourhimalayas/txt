@@ -2,82 +2,67 @@
 ---
 
 
-## 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789661/)
+## 中共“脑控”技术的伦理风险（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789671/)
 
-[https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1](https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1)
+翻译： Jenny Ball
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1381.png)佛罗里达大学的一名学生在2016年4月16日在佛罗里达州盖恩斯维尔举行的脑控无人机比赛中，使用脑控接口耳机驾驶无人机。（Jason Dearen/AP Photo）
 
-2017年都访问过我，黑过我一次，我还要被它黑
-They interviewed me in 2017, hurt me once, and I have to be hurt by they again
+中共军方正在研究可用于洗脑的植入式机脑接口
 
-这就是我们的站位和我们的角度，我们要通过自己的流血
-This is our position and our angle, we want to through our bleeding
+美国政府最近指责中共开发“脑控武器”，这种技术在被极权、种族灭绝和领土侵略的政权采用时，会引发重大伦理问题。
 
-证明敌人的邪恶和凶残，通过自己的被羞辱、被冤枉，证明自己
-to prove the evil and cruelty of the enemy, to prove ourself by being humiliated and wronged
+英国《金融时报》报道的美国指控，是中共军事医学科学院和 11 家被列入出口黑名单的一部分的附属生物技术研究所，涉嫌协助中共军方开发武器。
 
-让全世界看到被冤枉以后，下一个你，你能承受得了吗？
-After letting the whole world see being wronged, if you are the next one, can you bear that?
+据报道，**该学院研究了称为 ****BCI ****的“脑机接口”或“脑机接口”技术，包括将电极植入猕猴等活猴子的大脑。**
 
-还有像彭帅这样的事件，如果你家出现了彭帅，你能得到彭帅这种待遇吗？
-also like Peng Shuai’s incident, if Peng Shuai appears in your family, can you get Peng Shuai’s treatment?
+根据艾尔莎·卡尼亚（Elsa Kania）在 2020 年国防大学出版物中的说法，“军事医学科学院的研究人员，正在使用猕猴来研究涉及在大脑中植入电极的脑机接口技术。”
 
-如果你家人遭受了，一个马蕊处女膜这样的事件，你能活得下去吗？
-If your family member suffers like Ma Rui’s Hymen incident, can you survive?
+美国商务部于 12 月 16 日将该学院和附属研究机构列入黑名单。
 
-还有当时的跟王艳萍的性嗨视频，哎呀，我没事都想听听
-There was also the sex video with Wang Yanping at that time, Oh, I want to listen to it at my spare time
+美国商务部长吉娜·雷蒙多 (Gina Raimondo) 表示，“中共国选择使用这些技术来追求对其人民的控制，以及对少数民族和宗教少数群体成员的镇压。”
 
-我一听我声音原来那么性感，我真希望那是真的，但它不是真的
-When I heard my voice turned out to be so sexy, I wish it was true, but it’s not true
+《金融时报》援引一位美国高级官员的话称，中共利用新的生物技术来尝试未来的军事应用，包括“基因编辑、人类性能增强 [和] 脑机接口”。
 
-还有跟我的侄儿媳妇性交，王艳萍就是我侄儿媳妇
-And have sex with my nephew’s wife, Wang Yanping is my nephew’s wife
+**在中国新疆地区使用无人机、面部识别、网络安全、人工智能，和云超级计算进行监视的中共公司，也被列入美国的新黑名单，包括财政部的黑名单。**
 
-双面间谍，双面间谍的爹，双面间谍的哥哥，双面间谍的资产
-Double agent, the father of the double agent, the brother of the double agent, the asset of the double agent
+据《金融时报》报道，美国主要投资者——包括
 
-双面间谍所有的资产查封，就这种荒唐的事情，在全世界上演的时候
-the assets seizure of the double agent, like this kind of ridiculous thing when it is happening all over the world
+Accel
 
-我们要问大家一个问题，如果没有爆料革命你能知道什么
-We want to ask you a question, what would you know if there is no Whistleblower Movement?
+克莱纳帕金斯（Kleiner Perkins）
 
-你一定是跟随邪恶那些人，和被洗脑那些人，和被利用的牺牲品
-You must be the ones who follow the evil, and those who are brainwashed, and the victim of being exploited
+纪源资本（GGV Capital）
 
-所以爆料革命之重要，和能拯救天下的这种神圣的使命
-Therefore, Whistleblower Movement is so important and the sacred mission of saving the world
+格莱德布鲁克资本合伙人（Glade Brook Capital Partners, Qualcomm Ventures）
 
-和我们对信仰自由，独立的法治和民主的向往
-And our yearning for freedom of belief, independent rule of law and democracy
+银湖（Silver Lake）和 老虎环球管理（Tiger Global Management）
 
-永远记住，只有在彭帅身上，你才能看到郝海东和叶钊颖妹妹他们多重要
-Always remember that only seeing Peng Shuai, and you can realize how important Hao Haidong and Ye Zhaoying are
+都将被要求清算其对黑名单公司的投资。
+
+研究 BCI 技术的美国公司也与中共有联系。
+
+与彼得·泰尔（Peter Thiel）的帕兰蒂尔（Palantir）有关联的黑石神经科技（Blackrock Neurotech）和伊隆·马斯克（Elon Musk） 的神经连接（Neuralink ）是两家寻求推进 BCI 技术的领先美国公司。黑石在 5 月份获得了 1000 万美元的投资支持，并声称已经在美国、中国和欧洲的患者中植入了 28 台设备。
+
+神经连接对一只名叫培杰“Pager”的猕猴进行了实验，它用大脑链接在电脑上打乒乓球，以换取通过钢管输送的几滴香蕉冰沙。该公司制作了猕猴乒乓“Monkey MindPong”实验的视频，可供公众观看。
+
+马斯克的财富与特斯拉公司有关，特斯拉依赖于来自中共国的制造和收入。特斯拉在 2021 年第三季度，在中国生产了超过 133,000 辆汽车。自 2020 年第四季度以来，该公司在中国的季度收入约为 30 亿美元。
+
+虽然中共国在 BCI 技术方面落后，但北京有一个明确的目标，即“主导”全球生物技术和人工智能技术的发展。为此，大约在 2 月份， 北京禁止出口研究用灵长类动物，这对 BCI 科学的进步至关重要。
+
+据《石板》（Slate）杂志 11 月报道，“控制灵长类研究市场，有助于中共寻求技术转让，**因为中共希望对中国灵长类动物进行实验的外国实体，必须将他们的技术和专业知识运送到中国。处于前沿的机构和公司将有效地教会中共国如何缩小创新差距。**”
+
+在文章后半部分，可见中共有悖伦理的“洗脑”实例。
+
+新闻来源 : [theepochtimes.com] [The Ethical Risks of China’s ‘Brain Control’ Tech](https://www.theepochtimes.com/the-ethical-risks-of-chinas-brain-control-tech_4167051.html?utm_source=News&amp;utm_campaign=breaking-2021-12-24-1&amp;utm_medium=email&amp;est=lZwgyaGCr8aGqLJxQ7WQ4qQX5pmEtGvPzHXS0slrk6lGu285a6RP53x3NYta4DJP)
 
 * * *
 
-Date: 12/23/2021
-原视频标题: 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-Only through whistleblower movement to see the Peng Shuai incident, and can make people realize how important of the Ye Zhaoying couple are
-原视频日期：2021/12/22
-原视频链接[** https://gettr.com/post/pkf1k94023**](https://gettr.com/post/pkf1k94023)
-任务编号：KC365（3322）
-视频时间段 : 0:00-1:29
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
