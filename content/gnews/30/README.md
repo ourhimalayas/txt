@@ -2,48 +2,38 @@
 ---
 
 
-## 中共12家纺织协会反对美国制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789501/)
+## 墙内吉林省推出生育贷款应对人口萎缩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789610/)
 
-撰稿：东京樱花团丨盐和光
-![](https://lh3.googleusercontent.com/ocAcrt5GHM4j3E6tNPlKmvWLvLsbJfWORl5W8wVe2aQKWtqKVJxvGcAZFQC0ENCdTjC2Fo2uRrM7obX6rD1RTsobBbpAGuTLa0GtJIikIOxSUjJ_PEeDvaYDB2w8ddmQhXUBURrT)[*图片来源*](https://images-news.now.com/newsimage/NewsImage/XJ-PC-211225-13.jpg)
-12月25日中国纺织经济信息网报道，中国纺织工业联合会及12家行业协会发布共同声明。声明称，当地时间12月23日，拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的“H.R.6256涉疆法案”，纺织产业界愤慨，12家协会分别是：
+作者：银河勇气星 骄子
 
-中国纺织工业联合会
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国棉纺织行业协会
+12月24日，据中共媒体消息显示，近日，为了应对中共官方对墙内人口增长的需求，中共吉林省政府推出了一项“婚姻和生育消费者贷款”。据悉，此项贷款的额度高达20万人民币，且该贷款的折扣利率与申请夫妻拥有的孩子数量有关。
 
-中国毛纺织行业协会
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1225AM（1-10）图片备用.004-copy.jpeg)
 
-中国麻纺织行业协会
+报道提及，在过去几年里，中共国的新生儿出生率极速放缓，当中以吉林省的人口下降最为严重。因此，包括吉林在内的中共各省市接连推出各种或利诱、或强迫的鼓励生育手段。
 
-中国丝绸协会
+但据知情人士透露，墙内其他省份此前推出的类似生育贷款曾大受诟病，而此次吉林省推出的鼓励生育类贷款也引发了墙内民众的广泛争议。
 
-中国化学纤维工业协会
+参考链接：[Chinese province offers $31,000 baby loans to counter shrinking population](https://indianexpress.com/article/world/chinese-province-offers-31000-baby-loans-to-counter-shrinking-population-7688479/lite/)
 
-中国印染行业协会
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-中国针织工业协会
+总编：童谣
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-中国家用纺织品行业协会
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-中国长丝织造协会
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国产业用纺织品行业协会
-
-中国纺织机械协会
-
-中国服装协会
-
-新疆棉以绒长、品质好、产量高著称于世。土壤、气候条件与其他地方不同，最多可达到18个小时以上的光照 。2020/2021年度新疆棉产量520万吨，占国内产量比重约87%，占国内消费比重约67%。
-
-由于中共秘密建立集中营，强迫劳动、债务劳工、契约劳工等奴役工人工作，给中共带来大量外汇，导致多个国家与地区的政府已对来自新疆地区的产品实行限制。拜登政府签署美国参众两院通过的排除新疆产品进入美国市场的涉疆法案，对中共的制裁会带动世界各国政府联合抵制孤立中共。
-
-新闻来源：[**中国纺织工业联合会及12家协会共同声明：反对美国涉疆制裁**](https://mil.news.sina.com.cn/dgby/2021-12-25/doc-ikyakumx6302100.shtml)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

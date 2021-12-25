@@ -2,30 +2,37 @@
 ---
 
 
-## 由于奥米炕的肆虐，平安夜全球2000多架航班被取消
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789404/)
+## 香港各大院校接连拆除“六四”标志作品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789609/)
 
-#### 翻译/撰稿：zzballack
+作者：东京樱花团 在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-6-1.jpg)图片来源：路透社
-据《雅虎新闻》（Yahoo News）12月24日报道，根据航班追踪网站FlightAware的数据，由于奥米炕变种在全球迅速蔓延，截至12月24日上午，全球有2000多个航班被取消，导致许多人的假日旅行计划受到影响。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-资料显示，单是出入美国或是美国境内的航班，就有454个被取消。
 
-包括美国联合航空 (United Airlines)、达美航空 (Delta Air Lines)和阿拉斯加航空 (Alaska Airlines)在内的一些航空公司表示，由于奥米炕病毒影响到了员工和机组人员，他们被迫取消了数百个圣诞夜航班。
 
-美联航在一份声明中说：“本周全美的奥米炕病例激增，对我们的飞行人员和操作员工产生了直接影响，我们从周五的时间表中削减了112个航班。”
+当地时间12月24日，据香港媒体报道，继香港大学于23日拆除了“国殇之柱”后，香港中文大学的“民主女神像”、岭南大学的“六四”浮雕和民主女神喷漆画像也于24日分别被两个大学的校方移走、拆除和掩盖。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-25-at-8.41.28-PM.png)
+据悉，香港中文大学的校园内曾经摆放“民主女神”的位置而今空空如也，原雕塑不知被移往何处。岭南大学的“六四浮雕”在拆除后被放置于校园内的一个储物室中，原址则已被校方围封；而绘制于该校某学生会中庭墙身的民主女神喷漆画像现已被校方用灰色油漆掩盖。
 
-达美航空则透露，由于一些地区天气不好，以及奥米炕变种的传播，他们已耗尽了所有的选择和资源，包括调整航线和更换飞机与机组人员以覆盖预定的飞行，但最后还是取消了周五的大约90个航班。”
+对此，有评论指出，自2020年港共政府强推《国安法》以后，香港的民主自由已经被中共剥夺殆尽。而今，中共当局授意港共政府强迫各大学移除“六四”大屠杀的各类纪念作品，这也说明了“六四”事件正是中共最为恐惧的真实历史。
 
-阿拉斯加航空公司在一些员工报告可能接触到新冠病毒后，周四取消了17个航班。该公司在一份声明中说，在这种动态情况下，周五可能会有更多的航班被取消。
+参考链接：[中大「民主女神像」被移走 嶺大「六四浮雕」遭拆除](https://hd.stheadline.com/news/realtime/hk/2291521/%25E5%258D%25B3%25E6%2599%2582-%25E6%25B8%25AF%25E8%2581%259E-%25E4%25B8%25AD%25E5%25A4%25A7-%25E6%25B0%2591%25E4%25B8%25BB%25E5%25A5%25B3%25E7%25A5%259E%25E5%2583%258F-%25E8%25A2%25AB%25E7%25A7%25BB%25E8%25B5%25B0-%25E5%25B6%25BA%25E5%25A4%25A7-%25E5%2585%25AD%25E5%259B%259B%25E6%25B5%25AE%25E9%259B%2595-%25E9%2581%25AD%25E6%258B%2586%25E9%2599%25A4)
 
-德国汉莎航空 (Lufthansa) 公司说，由于机组人员生病和请病假人数大量增加，它被迫取消了一些跨大西洋的长途航班，目前无法确认这些疾病是否是由新冠病毒引起的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-据报道，与去年相比，美国的假日航空旅行人数增加了近三倍。估计本月将有1.09亿美国居民乘坐飞机、车辆和其他形式的交通工具旅行。
+总编：童谣
+编辑：飞虹
+校正/发稿：我不在这里
 
-新闻来源：[Global airlines cancel more than 2,000 Christmas flights amid omicron surge](https://news.yahoo.com/united-delta-alaska-airlines-cancel-032155377.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
