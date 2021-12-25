@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 1:32 AM (UTC)`
+
+12/24/2021 Miles Guo: The first thing Isobel Yeung brought up in her interview was the accusation that the Whistleblowers’ Movement had lied about the origin of the CCP virus and the CCP’s plan to exterminate the white population, and this is the threat to the entire Chinese diasporas; I used myself as the bait to lure the enemy to interview me, and let’s see how Isobel Yeung would defend herself in court<br/><br/>12/24/2021 文贵直播：杨贝贝采访第一句就给爆料革命扣上了在病毒来源和中共灭白计划上撒谎的大帽子，这对全体海外华人就是威胁；七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/25/01/fffe6d12-24f1-78a8-3e79-d3a6fc9520d5/out.jpg)
+
+---
+
+`@miles 12/25/2021 1:26 AM (UTC)`
+
+12/24/2021 Miles Guo: The CCP’s National Security Commission has set up a so-called “Novel Coronavirus Control Task Force,” of which the members include far-left radicals in the CCP; the CCP wants to take the opportunity to beat down the U.S. and win the war; our only hope is that many decent and kind Chinese Lao Baixing will not die with downfall of the crazy CCP<br/><br/>12/24/2021 文贵直播：中共国安委已成立所谓的“新型冠状病毒控制小组”，组员有极左疯狂分子;中共妄图抓住机会打赢、打疼美国；我们唯一的希望是不要有太多善良的中国百姓被疯狂的共产党带走<br/>
+![img](https://media.gettr.com/group48/getter/2021/12/25/01/96ddcb33-49d2-90e8-0eb5-ddab58f2cb64/out.jpg)
+
+---
+
 `@miles 12/24/2021 10:02 PM (UTC)`
 
 12月24号：尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考的问题！
@@ -140,20 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate 
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-10]：<br/>‼️HBO-VICE’s deceptive editing showing Mr. Guo’s slandering “fake news”. Here is the uncut interview recovered. The so called “fake news” by Mr. Guo turned out to be all facts!  <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-10】：<br/>‼️ HBO-VICE断章取义进行混乱剪辑，诋毁郭先生散布虚假信息。还原当时的原始采访进行反击，所谓的“谣言”已成为血淋淋的事实！<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group37/origin/2021/12/23/12/f0a9c6aa-30b7-774b-d279-1c26a09fca3e/out.jpg)
-
----
-
-`@miles 12/23/2021 12:25 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-9]：<br/>‼️HBO's interview with "Crab" (Ryan) to denigrate Mr. Guo. In this part, we added Mr. Guo’s live broadcast footage on May 30, 2020 and at the same time used the uncut interview to refute when Mr. Guo was asked about "Crab". Mr. Guo said, "We don't owe 'Crab' (Ryan) a penny."<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-9】：<br/>‼️ 反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL (EN/CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group42/origin/2021/12/23/12/2284f66f-4e72-298a-4b6f-2c1e72a75aef/out.jpg)
-
----
-
-`@miles 12/23/2021 12:22 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-8]：<br/>‼️HBO-VICE’s discredit the majority of the GTV’s real investors by showing a small number of infiltrated CCP investors requesting a refund of their investment.<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-8】：<br/>‼️ 反击HBO-VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group17/origin/2021/12/23/12/264e3146-9252-24ab-032c-7589fb95318a/out.jpg)
 
 ---
 

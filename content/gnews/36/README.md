@@ -2,34 +2,51 @@
 ---
 
 
-## 中共禁止外国人提供线上宗教服务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787524/)
+## 新西兰财经G乐部2021年12月24日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1787548/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月21日，据中共媒体消息显示，中共政府将禁止外国组织和个人在中共国内提供在线宗教信息服务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-33.jpg)
-报道称，近期，中共宗教事务局、国家网信办、工业和信息化部、公安部和国家安全部共同制定了一项新规则，当中要求涉及宗教服务的个人或机构必须获得中共省级宗教事务部门的许可，且参与服务的个人必须以真实姓名注册线上平台，否则，任何组织或个人都不能从事传教工作或宗教培训。而在获得授权后，相关个人或机构必须在宗教活动中宣扬所谓的“促进社会和谐”的宗教教义，其信徒也必须做到中共要求的“爱国和尊重法律”。另外，即便获得授权，中共政府也禁止机构或个人线上直播洗礼、烧香、拜佛、念经等宗教活动。
+采集整理：蚂蚁的城堡
 
-有评论指，虽然中共声称其给予墙内民众以“宗教自由”，但中共政府实则对穆斯林和基督教等宗教群体实行了残暴的虐待和镇压。更甚至，为了让其恶行看似合法，中共还将这类宗教群体定义为所谓的“勾结外国势力危害国家安全”，以便对这些群体进行抓捕和迫害。
+**提纲：**
 
-参考链接: 
-1) . [拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
-2) .[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com.sg/realtime/world/story20211224-1226117)
+1、吉林省“官宣”支持婚育消费贷
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+2、海航集团机场板块实控权正式移交地方国资
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：Fei797
+3、近15亿元资产拟一元卖了，蓝光发展遭上交所问询
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、泰禾集团为三家子公司提供总计3.04亿元担保，实质性逾期债务对应的担保余额为59.79亿元
+
+**正文**
+
+**1、吉林省“官宣”支持婚育消费贷**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1352.png)
+吉林省鼓励生育放大招，全国首创为夫妻最高提供20万元婚育消费贷款，按生育一孩、二孩、三孩，分别给予不同程度降息优惠。此外，吉林还将全面放开全省所有城市落户限制。按政策生育二孩、三孩夫妻创办小微企业，对月销售额15万元以下的增值税小规模纳税人，免征增值税。
+
+参考链接 [http://bank.jrj.com.cn/2021/12/24103634056585.shtml](http://bank.jrj.com.cn/2021/12/24103634056585.shtml)
+
+**2、海航集团机场板块实控权正式移交地方国资**
+![海航集团机场板块实控权移交，正式转为国有控股|界面新闻](https://img3.jiemian.com/101/original/20211224/164031322822481300.jpg)
+12月24日上午海航集团官微发布消息，根据海航集团机场板块引战工作安排，自2021年12月24日起，海航机场板块的经营管理实际控制权利，正式移交至战略投资者海南省发展控股有限公司。此前一日（23日），海航基础发布公告称，拟将中文名称由“海航基础设施投资集团股份有限公司”变更为“海南机场设施股份有限公司”。也就是说，从今日起，海航机场板块正式移交地方。
+
+参考链接：  [http://www.21jingji.com/article/20211224/herald/326e67a5b4fc065600b0394adb4b3aa5.html](http://www.21jingji.com/article/20211224/herald/326e67a5b4fc065600b0394adb4b3aa5.html)
+
+**3、近15亿元资产拟一元卖了，蓝光发展遭上交所问询**
+![Image](https://dfscdn.dfcfw.com/download/D25627179263417778218.jpg)
+12月23日晚间，蓝光发展（600466.SH）发布公告称，公司下属子公司拟出让重庆炀玖商贸公司100%的股权，交易对价为1元。但随后，上海证券交易所对蓝光发展的转让资产一事发出了问询函，要求其说明交易作价仅为1元的原因及合理性，该交易安排是否损害上市公司利益等。
+
+参考链接：[http://www.21jingji.com/article/20211224/herald/59133d652956ac660eaec24a9bfbda6d.html](http://www.21jingji.com/article/20211224/herald/59133d652956ac660eaec24a9bfbda6d.html)
+
+**4、泰禾集团为三家子公司提供总计3.04亿元担保，实质逾期债务对应的担保余额为59.79亿元**
+![泰禾集团：未来12个月对控股子公司授权担保总额度799亿– WENXUAN FINANCE](http://www.wenxuan.news/wp-content/uploads/2020/06/f9a3-hxsrwwr2603898.jpg)
+中共新华财经12月23日： 泰禾集团23日公告称，将为全资子公司提供一笔担保。本次担保提供后，泰禾集团及控股子公司对外担保总余额为751.23亿元，占泰禾集团最近一期经审计归属于母公司所有者权益的512.85%，其中上市公司及其控股子公司对合并报表外单位提供的担保总余额为162,581万元，占泰禾集团最近一期经审计归属于母公司所有者权益的11.10%；实质性逾期债务对应的担保余额为59.79亿元。
+
+参考链接 ：[https://www.cnfin.com/zs-lb/detail/20211223/3492173\_1.html](https://www.cnfin.com/zs-lb/detail/20211223/3492173_1.html)
+
+审核校对：Barry Jack
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

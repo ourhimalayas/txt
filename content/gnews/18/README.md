@@ -2,38 +2,65 @@
 ---
 
 
-## 高疫苗接种率不能阻止Omicron在纽约蔓延
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
+## 《共同社》:日美制定行动草案，以应对台湾紧急情况
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1788451/)
 
-撰稿：纽约香草山健身部— Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122402-1.jpg)2021 年 11 月 11 日，美国印太司令部司令约翰·阿奎利诺（John Aquilino）海军上将会见日本首相岸田文雄
+(路透社/ Issei Kato/Pool/文件照片)
+摘要翻译：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
+《台湾英文新闻》12月24日报道：
 
-按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
+日本《共同社》周四援引未具名的日本政府消息人士的话称，鉴于台湾与中共国之间的紧张局势加剧的情况下，日本和美国的军队已经制定了一项联合行动计划草案，以应对可能出现的台湾紧急情况。
 
-由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
+中共声称民主治理的台湾是自己的“神圣”领土，并在过去两年间加大了军事和外交压力，以维护这一主权主张，这激起了台北的愤怒和华盛顿的深切关注。台湾政府表示，台湾想要和平，但在必要时会保护自己。
 
-美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
+《共同社》称，根据该计划，美国海军陆战队将在台湾紧急状态初期，在从日本四大岛屿之一的九州到台湾的南西岛链上建立临时基地，并部署部队。它说，日本武装部队将在弹药和燃料供应等方面提供后勤支持。该通讯社称，作为台湾的前殖民统治者，日本和美国可能会在明年初举行的“2+2”外长和防长会议上达成协议，开始制定官方计划。
 
-[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+日本防卫省官员没有立即发表评论。
 
-[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+10月，日本政府就中共国对自治台湾的侵略姿态表明了更坚定的立场，暗示它将考虑各种选择并为“各种情况”做准备，同时重申与美国的密切联系。
 
-编辑/校对/发稿：菩提树
+本月早些时候，日本前首相安倍晋三表示，如果中共袭击台湾，日本和美国不能袖手旁观。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+不愿透露姓名的美国官员早就说过，鉴于美国在日本拥有数万名士兵，而且靠近台湾，日本很可能要在任何台湾紧急情况下发挥重要作用。
 
-**更多资讯，更多关注**
+五角大楼发言人表示，正如美国总统拜登和日本首相在3月的联合声明中所说，两国共同致力于台湾海峡的和平与稳定。五角大楼补充说：“我们致力于加强美日军队之间的弹性和协作性，并在和平时期和各种地区突发事件中深化作战合作。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+日本是美国主要军事基地的所在地，包括位于南部的冲绳岛，距离台湾只有很短的飞行距离，在中共发动袭击期间，这对于美国的任何支持都至关重要。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+中共将民主的台湾视为一个不听话的省份，等待着有一天该岛能被置于其控制之下——以和平或军事的方式——没有权利建立国家间的关系。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+美国和世界上大多数国家一样，根据中共的“一中政策”，承认只有一个中国。但华盛顿是该岛最大的武器供应国和盟友，根据法律规定，有义务帮助它自卫。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**简评：**
+
+日美制定的联合行动计划草案，为什么要通过日本的匿名官员向媒体披露？这是日本政府要告诉本国国民：因为日本和台湾的距离，如同“唇齿”关系，如果台湾被袭时，日本不施以援手，那么就是“唇亡齿寒”。
+
+其次，美国在日本有几万名的海外驻军，如果因台湾意外被袭，日本将失去天然屏障，赤裸裸的面对中共的威胁，那么美国的几万名海外驻军也将面临危险，美国为了保护自己的驻军也会必然出手。同时日本和美军的联合作战，一定是以美国为主导，因为此草案中日本只在联合作战中担任的后勤支持工作。所有的信息不管真实目的是出于警告敌人，通知同盟，还是告诉本国人民，这都是一个循序渐进的准备战争的信号。
+
+
+
+新闻链接：[Japan, U.S. draw up plan for any Taiwan emergency -Kyodo](https://www.taiwannews.com.tw/en/news/4387272)
+
+*翻译/简评：Brianchow*
+
+*校对：clau*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

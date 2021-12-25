@@ -2,80 +2,39 @@
 ---
 
 
-## 串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1788353/)
+## 高疫苗接种率不能阻止Omicron在纽约蔓延
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
 
-简述：你记住我今天说的话，盘古和裕达一定会成为火龙、火佛手，谁都挡不住。只要是我们已经离开那个楼的时候，它一定会变成火龙、火佛手。记住我的话，我不会去干去，我不会去做。我第一天设计这个龙的时候，我设计这个佛手的时候，我已经设计好了，没有人可以改变。你们不信就看一看，他除非把龙头现在就炸了，把整个盘古全炸了，把裕达全炸了。他只要不炸，这两个地方百分之百它会自炸、自燃。你们不信，你七哥就给你们看一看，我让他随便把东西都拆完，它也会是这结果。他要能读懂我给他设下的密码，我郭文贵就活不到今天了。我再给他一百年，他也读不懂。这叫智慧。你不要在这块莽撞。——郭文贵2021年12月8日
-![](https://assets.gnews.org/wp-content/uploads/2021/12/38B54E7D-3F52-4CB4-9E0A-96E5BC043C87.jpeg)
-封面：我第一天设计这个龙的时候，我设计这个佛手的时候，我已经设计好了，没有人可以改变。你们不信就看一看，他除非把龙头现在就炸了，把整个盘古全炸了，把裕达全炸了。他只要不炸，这两个地方百分之百它会自炸、自燃。他要能读懂我给他设下的密码，我郭文贵就活不到今天了。郭文贵2021年12月8日
+撰稿：纽约香草山健身部— Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
 
-**2021年12月7日盖特  **兄弟姐妹们，这更加证明了共产党的“依法治国”呀！共产党的爹能流落街头吗，零下4度？听说被清出去的很多人住在盘古的，家里养的狗都冻死了。那七星酒店他们根本不懂，他们把整个盘古的电都掐了，水断了，「这样」盘古的工程系统可能会着火的 — 消防系统没有电了。盘古所有的都是全世界最高级的，但是没电的情况下，超过24小时很有可能会着火。你看走着看吧。这帮孙子要把龙给点着了就成了火龙了，是吧？不是潜龙了，是火龙了。这帮孙子太坏了！这会成为人类历史的笑话的。全世界所有跟它「共产党」合作的各国政府都震怒、暴怒。我说你看看，这是郭文贵，被说成是习近平的代言人「的遭遇」：我爹都找不着了；我们的员工都快冻死了；整个酒店 — 盘古大观 — 断电断水…这是多大的恨呐？能这样啊？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
 
-共产党，你完球蛋了。啥不说了，明儿个见！
+按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-**2021年12月8日 **你记住我今天说的话，盘古和裕达一定会成为火龙、火佛手，谁都挡不住。只要是我们已经离开那个楼的时候，它一定会变成火龙、火佛手。记住我的话，我不会去干去，我不会去做。我第一天设计这个龙的时候，我设计这个佛手的时候，我已经设计好了，没有人可以改变。你们不信就看一看，他除非把龙头现在就炸了，把整个盘古全炸了，把裕达全炸了。
+由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
 
-他只要不炸，这两个地方百分之百它会自炸、自燃。你们不信，你七哥就给你们看一看，我让他随便把东西都拆完，它也会是这结果。他要能读懂我给他设下的密码，我郭文贵就活不到今天了。我再给他一百年，他也读不懂。这叫智慧。你不要在这块莽撞。
+美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
 
-但战友们，国内掌握——比如说在某省的战友们，管电厂的战友说，七哥啥时候行动？是吧？我说你行动，你关电有个屁用？是不是？没用。你让电成为武器，那才管用。开飞机的你管飞机，你不能祸害老百姓，对付共产党你要管用。你把它变成一个导弹，变成一个比911还夸张的干坏人的导弹，不是干好人的，是吧？
+[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-像在西藏的战友说我怎么办？是不是？我现在管着消防，我说消防可以，消防很有用，是吧？消防就知道怎么烧火，是不是？点火呀是吧？关键时候需要点火，对不对？开火车的战友知道火车，你只开共产党的火车，把共产党的火车别开轨上去，开轨下边不就完了吗？是吧？但是要统一行动，你别乱行动。
+[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
 
-我不相信中南坑这些老杂毛在屋里呆着不出门，是吧？像北京市公安局的战友，是吧，交管局的战友，你们太清楚他们要去哪了，是吧？太清楚了。只要清楚咱来个一锅端。他们开两会、西山宾馆、人民大会堂，是吧？而且他们出国，你像杨洁篪，是不是，王毅现在在西非，是吧？这些地方、这些事，咱们都得有行动，可不是光送棺材的问题。
+编辑/校对/发稿：菩提树
 
-**2021年12月8日**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-[**盘古和裕达一定会成为“火龙”和“火佛手”，会自燃自爆！**](https://www.gettr.com/post/pjcpmb77d6)
+**更多资讯，更多关注**
 
-**2021年12月10日  **●2：23：21共产党没了还会出来几个大混蛋威胁我们，我们还要跟他们较量，最后实现一人一票
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-郭文贵先生：然后中国人就会出来几个大混蛋，然后我们让他所谓新上来的领导人要选举他不选举，然后威胁我们，继续干我们新中国联邦，我们让他学新中国联邦宣言他不学，然后觉得我们没啥了不起的，要跟外国勾兑把我们这帮人再干掉，然后我们就跟他一波较量，再把它干掉。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-换上几茬老实了，原来新中国联邦人、爆料革命、郭文贵确实有本事，确实有本事，我就别想当独裁了，选举，一人一票，完全兑现新中国联邦宣言，这就是我们的结果，没有任何。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-然后大家北京盘古见，绝对把盘古的所有的，只要那天还在，没变成火龙的情况下，变成火龙我们可以把它建起来，没变火龙的情况下，我们可以把龙头后面拆掉的东西，我都想好了，变成碳不锈钢，碳不锈钢，你们现在不了解啥叫碳不锈钢，碳不锈钢。还有当年两位大师：白大师、姚大师，所有算的龙的命，现在完全算的都是准确的，完全恢复。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-然后咱们盘古就公寓啊、盘古酒店都变成新中国联邦基地了。安红回去，首先当第一任盘古大观新中国联邦基地当董事长去了，肯定回去了，是这样吧，这是肯定的。
-
-所以说大家记住，2025年共产党绝对完蛋，而且结果世界对疫苗和病毒的整个的审判和真相出乎大家所有的想象，就是以消灭共产党之后，全世界重新开始，就这么简单。谢谢！
-
-**2021年12月17日   **郭文贵先生：说中原佛手之力量是郭文贵的根儿，你把郭文贵的蛋子儿要捏住就得把他裕达给弄住。我们要在他楼上要执法，要施法事，要把郭文贵的一切的气场全拿掉。这和他们埋下的盘古的那个所谓的印，和盘古变成了“鸟头”“包头”，和裕达佛手要被他们几个控制，然后要做法事，百分之百被习和习家人乔乔啊、安安啊、远平啊、彭丽媛啊、彭蕾啊，百分之百接受了。
-
-而且这件事情一定在壬水寅年之前干掉，这就是一场风水大阵。然后一定是风水大师，原来给盘古、裕达看过风水的人都叫过来还活着的啊，“当年你咋算的，你亲身的经历是吧？然后现在怎么破？啊，这事始于你啊，国家安危啊，就开始你啦”。
-
-这几个大师估计一开会：嗯，一算，郭文贵这小子嗝屁啦，没钱啦，快睡大街啦。然后呢怎么这么弄，这么弄，包起来这个，这玩意儿压个印呐，怎么怎么……肯定是，他敢不算吗？他敢没招吗？没招弄死个球的了，是吧。
-
-那么最重要的你看到盘古的时候四大原则，一，郭文贵要为UAE阿联酋的所有的项目合作失败负责。你这孙子啊！第二，喜马拉雅币竟然敢攻击我党我国是吧，哈，太牛啦！还竟然联合西方极右主义、盖特，啊，颠覆我国家政权。你看看这多可怕，这几招全给你说完了；第四，你现在郭文贵在国际上成立新中国联邦，是不是？特别是对我党国家领导人的攻击，这个影响力的问题。
-
-这一系列的事情，哇噻，这要惩罚咱。一定会让郭文贵离开18楼，一定把郭文贵所有的地方没地方住。不但让你没地方住，让你们全家没地方住。
-
-所以这四条念完了，到了裕达你看说什么？非常清楚的，这四条都有，但加了两条：中原佛手必然归国家控制，你们要讲政治；嗯呵说“中原佛手”这四个字，完啦，“中原佛手，得中原者得天下”。郭文贵叫“裕达，欲速则不达”，你永远不达。现在我来个叫“万达，万事皆达”，“万事皆达，平平安安”。
-
-呵呵呵，厉害不？是吧？然后上去先接管佛手的最顶部，安保对门口的两个那个那个麒麟！啊！马上听说几个人不知道哪来的，摁住那个麒麟头，“嗡嗡嗷嗷……”念半天。在下面大家说这是干啥呢这是?
-
-第一个先按住麒麟头，降伏麒麟头。就是像郭文贵的性能力一样，太有力量了，先把它头给按住。你看看！然后进入裕达大堂呼啦地跪在地上，“嗯嗯嗷嗷……”，说要把郭文贵的气场赶快给他弄没了。
-
-……
-
-习属蛇，彭属虎，明年是壬水寅年，阳水阳木，盘古是地上龙火龙，明年对习彭是大伤，他们相信了盘古这个龙对习彭不利，所以一定要在春节前搞完；
-
-**2021年12月20日盖特   **12月20号：昨天我们直播说，盘古可能变成火龙，裕达国贸可能变成火佛手，可能会天然气爆炸……直播一个小时后盘现场马上就去了上百个国安和工程人员．检查天然气和管道共产党快被吓死了……盘古和裕达的个故事，只是刚刚开始咱们走着瞧……![](https://lh3.googleusercontent.com/_pzmhbNiBwxBEBu4M7kBX51wrnHR97SKOSFEPhec2ITXUur7ALidV8R_5BduXbIcbWIqiqpdFPYdBe6jkZDfmp5KI2haNE-v2R7EaYMrVarEjPCH5q4OwovFYCC1rzMMrg3BexNO)
-![](https://lh6.googleusercontent.com/BmCG5CmWxoHh-0EfGNPCj_h24R6_6mYt4gMKiBekLqgNFrvy6FfxQCzVf_DCeiCKsYuxajjtJDmnTLsKNm5v-amo77ARW-fgmCdDUE_ELUyV4yCGzgEoN7j7ARWFvjV_YPUHBDY0)
-资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
-
-### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
-
-郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
