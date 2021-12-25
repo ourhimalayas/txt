@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 8:08 AM (UTC)`
+
+12/24/2021 Miles Guo: All the questions asked by Isobel Young in the interview were the traps she set up for me. However, with the video recording of the full interview and our own platforms, we managed to expose her lies and effectively fight her back; Isobel Yeung will pay for an enormous price for her lies, and both she and VICE will lose their lawsuits for sure<br/><br/>12/24/2021 文贵直播：杨贝贝采访的提问都是给文贵挖的坑，但我们用全程录像和自己的平台，戳穿了她的谎话并进行了有力的反击；杨贝贝将为其谎言付出巨大代价，她和VICE必定会输掉官司
+![img](https://media.gettr.com/group23/getter/2021/12/25/08/156fd478-0e8a-4fa4-aae0-035055f4d7ee/out.jpg)
+
+---
+
 `@miles 12/25/2021 2:19 AM (UTC)`
 
 12月24号：衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐🎄应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞🎄❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-13]：<br/>‼️HBO-VICE’s discredit Mr. Guo for deceiving his investors. Using deceptive editing, HBO tried to ruin Mr. Guo’s public image. The uncut interview revealed the facts and exposed how HBO manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-13】：<br/>‼️ HBO-VICE诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始采访进行反击，以揭露HBO如何虚假剪辑采访视频。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group42/origin/2021/12/23/12/a497d64a-2ac9-63ab-c90a-693ee56c9993/out.jpg)
-
----
-
-`@miles 12/23/2021 12:35 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-12]：<br/>‼️HBO-VICE’s manipulation of Teng Biao's incidence to exaggerate Mr. Guo’s plan to sue the host after its deceptive editing the uncut interview, where the fact is Teng Biao slandered first and the host was setting up the interview to defame Mr. Guo. <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-12】：<br/>‼️ HBO-VICE拿滕彪说事，混乱剪辑，只留下郭先生说要起诉女记者的片段。我们还原当时的原始采访进行反击，滕彪诋毁在先，女记者设陷阱诽谤郭先生。<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
-![img](https://media.gettr.com/group36/origin/2021/12/23/12/a8ac7db4-e542-cfb2-6066-fbe67e86e5dc/out.jpg)
 
 ---
 
