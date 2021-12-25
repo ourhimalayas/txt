@@ -2,117 +2,64 @@
 ---
 
 
-## 冬奥会证明共产党完蛋了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789592/)
+## SEC调查川普最新商业伙伴的中共背景(1/3)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789629/)
 
-[https://gtv.org/video/id=61c6730943ccb726a08ae3c8](https://gtv.org/video/id=61c6730943ccb726a08ae3c8)
+翻译： Jenny Ball
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1-1.jpg)en.news7todays.com
 
-所以说这个冬奥会他不办对咱不是好事
-It wouldn’t be a good thing for us if (the CCP) does not host the Olympics
+总部位于上海的瑞环控股（Arc Capital）一直是证券监管机构调查的目标，这家投资公司是川普媒体风险上市交易的核心。
 
-他办了就代表咱宣传
-If they do, they will promote it on behalf of us
+一家帮助前总统川普将他的新媒体公司上市的中国公司，一直是联邦证券监管机构的调查目标，他们说，该公司歪曲了空壳公司的概念，这些公司没有产品，员工很少，
 
-证明他完球蛋了
-and prove that the CCP is over
+雄心勃勃的成长型企业、正如文件和采访所显示的那样。
 
-撒币是完全是失败的
-Their money throwing (money bribing) is a complete failure
+瑞环控股是一家总部位于上海的投资咨询公司，曾多次帮助创建或资助收入很少或没有收入、没有客户，和办公地点是邮箱地址（P.O. Box）的公司， 根据《华盛顿邮报》对监管和法庭文件的审查，一位声称在没有员工的公司，正在开发自主无人机软件；监管文件显示，另一家公司表示，它经营着一家公开交易的家庭面包店，“专门从事新鲜制作的蛋糕和纸杯蛋糕”，然后它又转向触摸屏技术，以提供“多元化的蓝筹客户群”。
 
-而且是在世界是被孤立的
-and it is isolated in the world
+证券律师表示，美国允许空壳公司在公开市场上市，但要求运营商如实呈报其显示为没有活跃业务的企业。文件显示，美国证券交易委员会（SEC）指责瑞环控股在其业务范围、业务地点和背后人员的身份方面，欺骗投资者。
 
-更重要的事情
-More importantly
+今年，瑞环控股帮助创建了 “数字世界采集”（DWA），这是一个已筹集超过 12 亿美元用于与川普媒体和技术集团合并的投资工具。DWA是所谓的特殊目的收购公司，或 SPAC，这是一种空壳企业，从投资者那里筹集资金，收购一家具有强劲增长前景的私人初创企业。这笔交易仍需得到股东和监管机构的批准，有可能让这位前总统变得富有，并在一夜之间将他的新兴社交媒体初创公司变成一家上市公司。
 
-同理, 原苏联、希特勒9年11年的诅咒，一定会在他身上发生
-in the same principle, the 9 or 11 year curse on the former Soviet Union and Hitler will definitely happen to them
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-22.png)显示在手机和电脑屏幕上的川普的新社交网络平台“真相社会”（Truth Social）的应用程序和网站 。（克里斯·德尔马斯/法新社，盖蒂图片社）
 
-那个时候9年、11年相当于今天也就是9天、11天嘛
-9 or 11 years at that time would be 9 or 11 days today
+尽管缺乏有关实际业务的信息，但川普的名字吸引了投资者，由于预期的合并，将 DW的股价推高了其上市价格的五倍。作为提案的一部分，川普媒体发布了两张幻灯片，但该材料提供的关于公司拟议管理团队、公司结构、财务，或其他通常被投资者用来判断企业生存能力的信息的细节很少。
 
-时间只会更快不会更晚
-Time will only be faster, not later
+“基本上是一家空壳公司与另一家空壳公司合并，因为据我们所知，川普媒体公司尚未成立，”佛罗里达州冈斯特律师事务所负责法律证券业务部主席罗伯特·拉姆 (Robert B. Lamm) 说。
 
-还有一个咱们要看到， 美帝国主义
-Another thing we should have seen is the US imperialism
+瑞环控股、川普媒体和DW的代表没有回应多次置评请求。在去年的宣传视频中，瑞环控股管理合伙人塞尔吉奥·卡马雷罗（Sergio Camarero）将 SPAC 作为瑞环控股追求的商机之一，同时帮助中共国企业在海外寻找基础设施投资项目。
 
-美帝国主义，这一次一定会戏弄死习近平
-The US imperialism will definitely tease Xi Jinping hardly this time
+在美国，“有很多资本流入 SPAC ，并在流向 SPAC，而不是传统的初始公开募股(IPO)，所以，这是我们处于非常有利地位的地方，”卡马雷罗在视频中说。
 
-蓬佩奥那几句话说的时候
-When having a few words with what Mr. Pompeo
+一个不同寻常的顾问团队正在支持这位前总统的努力。据一位听取了他们的一次会议简报的人士透露，安迪·利廷斯基(Andy Litinsky)和韦斯·莫斯(Wes Moss)是川普电视节目“学徒”的前明星，他们在今年早些时候向特朗普提出了这个想法。众议员德文·努内斯（Devin Nunes）（加州共和党人），川普的强力捍卫者，他没有担任公司高管的经验，最近宣布，他将在年底离开国会，成为公司的首席执行官。
 
-全面反击，而且一定像干掉前苏联一样赢, 这话七哥跟他说的
-I said to him that (the U.S.) would definitely win like destroying the former Soviet Union if the U.S. fully counterattack
+这笔交易的核心是瑞环控股，这是一家在华尔街几乎不为人知的中国小公司，但华盛顿的一些监管机构众所周知，他们多年来一直在研究这家公司，并对其非常规的商业行为表示担忧。
 
-这包括共产党都是七哥跟他说的
-Both of this and the CCP’s (conspiracy) were what I said to him
+机构记录显示，2017 年，美国SEC以注册文件中的“重大错报和遗漏”为由，阻止了三家瑞环控股支持的公司公开出售股票。文件显示，SEC在调查瑞环是否参与欺诈时，暂停了第四家瑞环融资业务的交易。在这些案件中，没有对瑞环提出任何指控，调查的现状尚不清楚。
 
-可以告诉你，就在这儿说的
-I can tell you that we were right here when I said that
+SEC 发言人凯文·卡拉汉 (Kevin Callahan) 拒绝就瑞环控股，或该机构的任何调查状态发表评论。
 
-蓬佩奥同志有一段精彩的话
-Comrade Pompeo has a wonderful speaking
+SEC 目前正在审查 DW和 Trump Media 之间的通信，前者在本月早些时候的一份文件中披露。据《纽约时报》报道，证券监管机构正在寻求确定这些公司是否违反了禁止 SPAC 在公开宣布收购目标之前计划与收购目标的交易的规定。
 
-共产党他不仅是我们的竞争对手，他是我们天然的敌人
-that the CCP is not only our competitor but also our natural enemy
+卡拉汉拒绝对川普的交易发表评论，只是指出委员会主席加里·根斯勒 (Gary Gensler) 本月发表的言论，他表示 SEC 的执法部门仍然是“确保投资者在 SPAC 领域受到保护的警察”。该机构最近指控一家早期太空运输公司和收购它的 SPAC 业务，因为该公司对其公司的技术提出“误导性声明”。
 
-你看美国白人的时候
-When we observe white Americans
+DW在文件中表示，金融业监管局也在川普交易宣布前几天审查 DW证券的交易，并指出金融业监管局( Finra )和 SEC 都表示，调查并不一定表明该公司已经违反了任何法律。
 
-当白人说这句话的时候，这个白人已经醒悟了
-when they say this, it indicates that they have already awakened
+请在文章后半部分了解更多相关信息。
 
-它是我们天然的敌人
-The CCP is our natural enemy
+**请阅读下两篇：**
+SEC调查川普最新商业伙伴的中共背景(2/3)
+SEC调查川普最新商业伙伴的中共背景(3/3)
 
-就是鹰和蛇的天然的较量
-It’s a natural contest between the eagle and the snake
-
-美国是白头鹰，中共是蛇
-The United States is the bold eagle, and the CCP is a snake
-
-画了鸡爪子，鱼尾，牛鼻子
-which has drawn with chicken paws, fishtail, and cow’s nose
-
-牛的忠诚和勤劳，鱼的这个水，是哇
-The loyalty and diligence of the cow (the Chinese people’s virtues), and the water that provides to fish (the CCP’s bribery funds)
-
-还有鸡的爪子，还能挠粪是吧
-Moreover, the chicken’s paws (the CCP’s means of infiltration) could also scratch dung (consequences)
-
-挠很多粪吃是吧
-scratch lots of dung for themselves
-
-能挠粪能上天，还能飞
-They can scratch dung, they can go into the sky, and even fly
-
-实际上你就是蛇嘛
-Actually you (the CCP) are a snake
+**参考资料：**[washingtonpost] [Trump’s newest business partner: A Chinese firm with a history of SEC investigations](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)
 
 * * *
 
-Date: 12/20/2021
-原视频标题: 冬奥会证明共产党完蛋了
-The Beijing Winter Olympic Proves That The Communist Party is Over
-原视频日期：2021/12/19
-原视频链接: **[https://gettr.com/post/pk5wi3f48d](https://gettr.com/post/pk5wi3f48d)**
-任务编号：KC366（3296）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
 
  
 

@@ -2,63 +2,82 @@
 ---
 
 
-## 绝招来自“杀手锏”的“反义词”——上篇
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1789646/)
+## 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789661/)
 
-撰稿：聖易經聯
-![](https://assets.gnews.org/wp-content/uploads/2021/12/253.jpg)图片制作：澳喜农场©森森
-一、中共的两个“杀手锏”：
+[https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1](https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1)
 
-1、中共发起超限战的杀手锏：“蓝金黄”：
+**郭文贵
+Miles Guo**
 
-不得不说，中共发起超限战的战术“蓝金黄”，事实证明真是很厉害的。几十年如一日，无论是对于以美国为首的西方文明国家还是到“一带一路”各国，无论是渗透还是超限战，都“扎扎实实地”把各国政府“沉甸甸地”拖下水了。文贵先生最近的直播都说，“全世界经济都被绑架了”。病毒超限战、疫苗超限战，无不是采用这样的手段，屡屡得手。看历史，连中共对国民党政府的所谓“打天下”都是成功用的这一招。正义人士看起来压力山大吧。
+2017年都访问过我，黑过我一次，我还要被它黑
+They interviewed me in 2017, hurt me once, and I have to be hurt by they again
 
-我在上一篇文章里简单提到，这是“人性战胜制度”的典范，是中共的自信所在。CCP可以倾一国之力而为之，而且中国几乎人人皆谙此道，调侃一下，就说是中共国的核心竞争力也差不多。
+这就是我们的站位和我们的角度，我们要通过自己的流血
+This is our position and our angle, we want to through our bleeding
 
-简单理解，由于几千年的家天下、官场经济，导致墙内做生意、办事，都是“求人”，得送礼、给回扣，以至于连拜佛都上香上供；已形成一种约定俗成。当权钱交易时这就叫行贿，就是“蓝金黄”的“金”；若给官员送的礼是美女陪上床，就是“黄”；把上述两件事录下来要挾，那就是蓝。
+证明敌人的邪恶和凶残，通过自己的被羞辱、被冤枉，证明自己
+to prove the evil and cruelty of the enemy, to prove ourself by being humiliated and wronged
 
-2、治理中国老百姓的杀手锏：商鞅“驭民五术”。
+让全世界看到被冤枉以后，下一个你，你能承受得了吗？
+After letting the whole world see being wronged, if you are the next one, can you bear that?
 
-我搬个书本来说说商鞅的“驭民五术”（为啥用驭，而不用御呢？没把百姓当人看。）：
+还有像彭帅这样的事件，如果你家出现了彭帅，你能得到彭帅这种待遇吗？
+also like Peng Shuai’s incident, if Peng Shuai appears in your family, can you get Peng Shuai’s treatment?
 
-i，壹民：统一思想。
+如果你家人遭受了，一个马蕊处女膜这样的事件，你能活得下去吗？
+If your family member suffers like Ma Rui’s Hymen incident, can you survive?
 
-ii，弱民：国强民弱，治国务在弱民。
+还有当时的跟王艳萍的性嗨视频，哎呀，我没事都想听听
+There was also the sex video with Wang Yanping at that time, Oh, I want to listen to it at my spare time
 
-iii，疲民：安排烦心事而民疲于奔命，无瑕顾及他事。
+我一听我声音原来那么性感，我真希望那是真的，但它不是真的
+When I heard my voice turned out to be so sexy, I wish it was true, but it’s not true
 
-iv，辱民：首先废民的自尊自信；其次唆使相互检举揭发，终日活于恐惧中。
+还有跟我的侄儿媳妇性交，王艳萍就是我侄儿媳妇
+And have sex with my nephew’s wife, Wang Yanping is my nephew’s wife
 
-v，贫民：除生活必须，剥夺余银余财；人穷则志短。
+双面间谍，双面间谍的爹，双面间谍的哥哥，双面间谍的资产
+Double agent, the father of the double agent, the brother of the double agent, the asset of the double agent
 
-五者若不灵，杀之。（因最后这一下，有人说是商鞅六术。）
+双面间谍所有的资产查封，就这种荒唐的事情，在全世界上演的时候
+the assets seizure of the double agent, like this kind of ridiculous thing when it is happening all over the world
 
-此制度之恶，几千年来似乎无出其右者。几千年的家天下大多采用这种方式进行所谓治理。中国人现在这个样子（令文贵总是哀其不幸怒其不争），我认为和这个恶制一定有关系。都说秦以前的中国人是另外一回事，也许就是因为这个吧。另外，经五胡乱华、元朝屠城、太平天国大屠杀、张献忠屠川、满清屠城、日本侵略、再到共产主义对百姓的一系列蹂躏，是导致国人懦弱的另外一种因素：我们都应该已经理解同族们为什么会对政治和革命有一份特殊的懦弱了，也许杀戮的恐惧是会遗传在基因里。
+我们要问大家一个问题，如果没有爆料革命你能知道什么
+We want to ask you a question, what would you know if there is no Whistleblower Movement?
 
-中国人懦弱，既是因、也是果。再说回商鞅的驭民五术，它十分邪恶，但是要承认其确实很强大。归根到底就是该制度利用人性之弱、人性之恶来驾驭百姓。至今为止，CCP所谓治国方略几乎完全承袭了这些个糟粕，并进行时代的融合，几乎屡试不爽：文贵先生总结过的以警治国、以黑治国，以贪反贪，就是现代版的驭民五术的具体表现。70多年来，中共就喜欢看百姓们恨得咬牙切齿又毫无办法的样子。
+你一定是跟随邪恶那些人，和被洗脑那些人，和被利用的牺牲品
+You must be the ones who follow the evil, and those who are brainwashed, and the victim of being exploited
 
-而这回爆料革命的横空出世，真的让CCP感受到力度之大而害怕了。这四年下来，战友们也都明白中共时日无多。
+所以爆料革命之重要，和能拯救天下的这种神圣的使命
+Therefore, Whistleblower Movement is so important and the sacred mission of saving the world
 
-我们知道，爆料革命是个开创先河的事件，中共发展到现在，是个在全世界范围扎根的邪恶势力，显然是个庞然大物。而爆料革命为灭共，睿智的文贵先生默默准备了30多年，是完全可以理解的：要做出一系列不可闪失、一击致命的战略方针和部署，毕竟难度相当大。
+和我们对信仰自由，独立的法治和民主的向往
+And our yearning for freedom of belief, independent rule of law and democracy
 
-笔者试着用自己习惯的逆向思维方式，来理解爆料革命和正道主义，抛砖引玉。
+永远记住，只有在彭帅身上，你才能看到郝海东和叶钊颖妹妹他们多重要
+Always remember that only seeing Peng Shuai, and you can realize how important Hao Haidong and Ye Zhaoying are
 
-往往最难的问题，换个角度没准最简单，对于改朝换代这种大问题，有句话叫大道至简。小学生都做过一种作业叫：做反义词。
+* * *
 
-那么咱们都长大了，我们对中共的两个“杀手锏”再做两道反义词作业题吧：
+Date: 12/23/2021
+原视频标题: 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
+Only through whistleblower movement to see the Peng Shuai incident, and can make people realize how important of the Ye Zhaoying couple are
+原视频日期：2021/12/22
+原视频链接[** https://gettr.com/post/pkf1k94023**](https://gettr.com/post/pkf1k94023)
+任务编号：KC365（3322）
+视频时间段 : 0:00-1:29
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-A、把中共打遍天下无敌手的超限战术“蓝金黄”反过来运用也许就是灭共最好方略！
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-B、把商鞅的驭民五策反过来，也许就是治国最好方略！
-
-欲知如何做反义词的作业，咱们看是不是真的反过来用，且听下面分解。
-
-笔者的上一篇文章链接如下：
-
-[小议人性与制度之恶的遗害](https://gnews.org/zh-hans/1760735/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
