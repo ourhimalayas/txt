@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 2:26 PM (UTC)`
+
+12月25号2021年……圣诞节文贵……蒸馍馍直播
+![img](https://media.gettr.com/group2/getter/2021/12/25/14/05a7f5b1-4aeb-484d-e241-5e6b31537f13/416694de4fd2fe76dbf1d08424832cf6.jpg)
+
+---
+
 `@miles 12/25/2021 1:50 PM (UTC)`
 
 <br/>12月25号：尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -147,13 +154,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay tuned for Episode 1 of the documentary “Who is Miles Guo”, premiering on December 24th, 2021. Feel free to fact-check!<br/><br/>Fri, Dec 24th at 9:00 pm (Eastern Standard Time)<br/>Sat, Dec 25th at 10:00 am (Beijing Time)<br/><br/>GTV Live: 郭文贵MILES<br/>GETTR Live: @Miles<br/><br/>郭文贵是谁？中国共产党的终结者！2021年12月24日，纪录片《谁是郭文贵》第一集首播，不用听我们说，你们可以自己验证！<br/>播出时间：<br/>12月24日美东周五晚上 九点<br/>12月25日墙内周六早上 十点<br/>GTV直播：郭文贵MILES<br/>盖特直播：@Miles
 ![img](https://media.gettr.com/group48/origin/2021/12/23/23/278780c5-b491-3ef0-9775-e5c51ed14353/out.jpg)
-
----
-
-`@miles 12/23/2021 10:14 PM (UTC)`
-
-12/23/2021 Miles Guo’s GETTR: HBO/VICE & Isobel Yeung are so evil because they defined the Whistleblowers’ Movement and oversea Chinese as cult and terrorists; Haulacast in WWII and the Anti-Chinese Riots in Indonesia were also invoked by the same or similar rogue media, you’re still hestitant do nothing about it?<br/><br/>12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子，二战杀犹太人和印尼排华都是从这样的流氓媒体带风向开始的，你还不站出来反抗吗？<br/><br/>
-![img](https://media.gettr.com/group23/getter/2021/12/23/22/fdb20f5c-29f8-0676-bbac-d9dd698a9f9c/out.jpg)
 
 ---
 
