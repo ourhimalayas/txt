@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/25/2021 5:05 PM (UTC)`
+
+2021年12月25日 文贵大直播 🎄圣诞特别节目🎄
+![img](https://media.gettr.com/group24/origin/2021/12/25/16/0689222f-906d-7f85-ef51-3dc69f86b978/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/25/2021 4:25 PM (UTC)`
 
 12月25号：在今天这个特别的日子里．<br/>当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……
@@ -147,13 +154,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 12/23/2021 Miles Guo: By agreeing to be interviewed by VICE, Miles Guo sacrificed himself as the bait to show the world the true face of the self-proclaimed Western MSM - They are arrogant and hooligans; HBO/VICE is so morally broken that it has no bottom line, nor does it comply with the basic principles of the media, and what they have done will surely be the negative example for future media professionals<br/><br/>12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸；HBO/VICE已堕落到毫无底线、不遵守媒体基本原则，他们的所作所为未来一定会成为媒体专业的反面教材<br/>
 ![img](https://media.gettr.com/group16/getter/2021/12/24/00/e8971f28-acdc-f9f7-0ff6-415ea8877c24/out.jpg)
-
----
-
-`@miles 12/24/2021 12:07 AM (UTC)`
-
-12/23/2021 Miles Guo’s GETTR: It’s said that Jack Ma and Xu Jiayin are waiting for something bad to happen to Xi Jinping, aren’t they? The arrest of Liu Yazhou (retired PLA general) indicates that Xi will surely be able to eliminate the “red second generation”, the second generation of the CCP’s military officers, and the second generation of the CCP cadres, and even the second generation of the rich will inevitably be annihilated by Xi<br/><br/>12/23/2021 文贵盖特：听说马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心<br/>
-![img](https://media.gettr.com/group38/getter/2021/12/24/00/5e906b57-a7a9-bc2e-6848-53792114f67e/out.jpg)
 
 ---
 

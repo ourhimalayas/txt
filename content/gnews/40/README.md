@@ -2,37 +2,25 @@
 ---
 
 
-## 墙内吉林省推出生育贷款应对人口萎缩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1789610/)
+## 英特尔为其要求抵制中共在新疆地区侵犯维吾尔族人权的行为被迫道歉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789888/)
 
-作者：银河勇气星 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4-11.png)
+图片来源：谷歌图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：Steven Hu
 
-12月24日，据中共媒体消息显示，近日，为了应对中共官方对墙内人口增长的需求，中共吉林省政府推出了一项“婚姻和生育消费者贷款”。据悉，此项贷款的额度高达20万人民币，且该贷款的折扣利率与申请夫妻拥有的孩子数量有关。
+引自合众国际社12 月 23 日消息，美国芯片巨头英特尔周四由于要求供应商避免在中国有争议的新疆地区采购产品和劳动力引发北京的强烈反对而不得不被迫公开道谦。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1225AM（1-10）图片备用.004-copy.jpeg)
+中国对中国西北部新疆省维吾尔穆斯林社区的虐待遭到了世界各地的批评者和人权倡导者的谴责，指出新疆关押维吾尔族成员和其他少数民族的“再教育”营地，实际上强制劳动。
 
-报道提及，在过去几年里，中共国的新生儿出生率极速放缓，当中以吉林省的人口下降最为严重。因此，包括吉林在内的中共各省市接连推出各种或利诱、或强迫的鼓励生育手段。
+据美国有线电视新闻网引用英特尔的表述“虽然我们的初衷是确保遵守美国法律，并且致供应商的信也是与美国的法规和外交政策一致的，但这封信在我们珍视的中国合作伙伴中引起了许多问题和担忧，我们对此深表遗憾。”
 
-但据知情人士透露，墙内其他省份此前推出的类似生育贷款曾大受诟病，而此次吉林省推出的鼓励生育类贷款也引发了墙内民众的广泛争议。
+北京政府长期以来一直否认国际对其在新疆进行的种族灭绝行为的指控。
 
-参考链接：[Chinese province offers $31,000 baby loans to counter shrinking population](https://indianexpress.com/article/world/chinese-province-offers-31000-baby-loans-to-counter-shrinking-population-7688479/lite/)
+据《卫报》报道，英特尔表示：“我们为给我们尊敬的中国客户、合作伙伴和公众带来的麻烦表示歉意。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：童谣
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[https://www.upi.com/Top\_News/World-News/2021/12/23/china-intel-apology-uyghur-xinjiang/6241640285587/](https://www.upi.com/Top_News/World-News/2021/12/23/china-intel-apology-uyghur-xinjiang/6241640285587/)
 
  
 
