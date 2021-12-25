@@ -2,59 +2,151 @@
 ---
 
 
-## 假提问真诋毁—Vice采访郭文贵先生始末系列之二
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1789512/)
+## 冬奥会几乎是习太阳的一场噩梦
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789557/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-127.png)图片来源：https://gtv.org/截图
-伊莎贝尔·杨进入采访房间与郭文贵先生打招呼，她打断了郭先生冠状病毒是从哪里来的问题，反问道：“你没有打过疫苗吗？”回答当然是否定的。
+[https://gtv.org/video/id=61c6728443ccb726a08ae3a1](https://gtv.org/video/id=61c6728443ccb726a08ae3a1)
 
-2021年12月15日，郭先生在直播视频中说，“**我们不是反对那些经过验证的、对人类有益的疫苗，我们反对的，是未经验证的新冠病毒假疫苗**。” 多年前，郭文贵先生去非洲，出行前接种过防疟疾疫苗，他并不是所有疫苗的反对者。
+我告诉大家
+Déjame decirles
 
-我们来看Vice流出的画面二：伊莎贝尔问，“你在直播中制造并散布了许多未经证实的说法，例如疫苗是中共毒害世界的伎俩，中共有计划消灭白人，美国的大选被操纵，你为什么要散布这些虚假的说法？”镜头交换着显示出争锋相对的两人，Vice形容采访充满火药味。
+大家给预测一下
+Todos den una predicción
 
-我们还原现场采访后，伊莎贝尔是这样问：“你在视频中说*中共释放了新冠病毒，共产党打开了潘多拉盒子*，要用病毒消灭白人，用疫苗干掉他们，你说你的信息都是从中共高层得来的，我认为这很疯狂。” （注：斜体字部分被Vice在节目中删除）
+动手的地方
+El lugar donde pondrán la mano
 
-**回溯2017年初，在社交媒体上直播是郭文贵先生坚持不变的日程，这四年来，郭先生直播中所说的很多事情都被一一证实，积累下来的几千个直播视频已成为许多个见证历史的时刻：**
+很有可能在两方面
+Probablemente sea en dos partes
 
-- 2017年10月5日，郭文贵先生在华盛顿举行新闻记者会，第一次在公开场合对世界发出警告，
-- “有三份绝密文件显示出中国共产党对美国、对世界很多人的生命是巨大的威胁……”，“来自中共盗国贼的黑夜即将来临，会弥漫在整个西方，它与我们每个人都息息相关，请大家做好准备”；
-- 2019年6月13日，“共产党已经准备好了准化学武器”；
-- 2020年1月2日，“武汉，我强烈担心………共产党的会议上有人提议要求湖北省准备好2000人，参加会议的很多军医……共产党想在全世界面前演一场苦肉计，传染病？弄不好会传到美国；
-- 2021年2月1日，“共产党没有成功的疫苗，（但）绝对有解药！”
-- 2021年6月20日，郭文贵先生再一次发出严重警告，“首先申明，中国共产党所有的行为都不代表中国人民。我们获得准确的情报，中共试图在未来的夏秋交接之际，向美国和欧洲国家再一次释放冠状病毒，希望各国的政府引起高度重视，不要象我的第一次警告那样被成为笑话（四年的时间证明郭文贵先生预警的灾难既成事实）。我不希望你们相信，但希望你们去调查。”
-- 2021年8月30日，共产党的解药——青蒿素
+大量的天然气爆炸, 天然气管道是没法防的
+La gran cantidad de explosiones de gas natural y el gasoducto es inevitable
 
+天然气爆炸是没(办法)防的
+No hay forma de prevenir una explosión de gas natural
 
-伊莎贝尔问到的潘多拉盒子，早在2019年6月份，中共外长王毅在公开场合曾威胁说要释放潘多拉盒子，不久后新冠病毒就在武汉突然爆发。郭文贵先生在2020年2月15日的直播中说过武汉P4实验室进门墙上的一行字：“当你进入这个实验室的时候，你就进入了潘多拉盒子，你必须要小心，否则就向人类打开了潘多拉盒子”。
+除非把天然气全断了
+Al menos que cortes todo el gas natural
 
-现场采访中郭文贵先生这样回答：“四年来，我说过很多……，我真的希望这些都是谣言，希望不会真实发生，能证明我是个骗子、是谣言制造者……不幸的是，我所有说的话很多都发生了……”
+会不会断天然气呢?
+¿Será que lo harán?
 
-“我和习近平、李克强……等中共领导人多次面对面交流，还有与中国的军方情报部门，他们向我展示了仇恨白人的一面和要影响世界宗教、权力、军事、情报和媒体，要称霸世界的一面。我用了30年时间和共产党打交道，这都是我的亲身经历。”
+咱们走着看
+Ya veremos
 
-“我希望你们不要相信我，能证明我说的都是谎话是谣言，证明共产党是好的合作伙伴。然而，仅美国（冠状病毒）死亡近50万人，超过了一战、二战时期和911的死亡人数，却不敢去问病毒真相，你们为什么不去问问共产党病毒是哪里来的，因为你们害怕共产党的力量，怕失去金钱和生命……你们这些媒体始终跟着钱，始终在泯灭良心……”
+而且很有可能是在之后
+Y posiblemente sea luego del
 
-现场采访中伊莎贝尔继续追问，“并没有很多证据支持你的观点，比如*新冠病毒是在中共实验室有意制造出来*，目的在大规模消灭人口……”（注：斜体字部分被Vice在节目中删除）
+就是奥运会闭幕的时候
+Cierre de Juegos Olímpicos de Invierno
 
-郭文贵先生，“你是病毒专家吗？你并不知道新冠病毒究竟是什么？你们媒体能在美国大选问题上代表美国人民，你们可以随便给输赢下定义，但不能代表冠状病毒专家，你们不知道中共的P3、P4实验室在做什么，你知道实验室在哪吗？知道武汉P4实验室墙上写着‘潘多拉盒子’吗？知道全世界有上百万科学家相信新冠病毒不是源于自然吗？我不想讨论过多细节。”
+这是最危险的时候
+Este será el momento más peligroso
 
-“2020年1月中共的习说新冠病毒不会人传人，可防可控，仅一周时间，习就改口说疫情失控，会人传人。既然病毒不是共产党制造，中共为什么不让WHO和美国去调查，不让任何西方媒体去采访，你只在乎有多少人看你的节目……”
+对习也是最危险的时候
+Al igual que para Xi
+军队如果要造反动手或什么地方一定选在之后
+Si el ejército quiere rebelarse o en algún lugar seguro será después
 
-现场采访中伊莎贝尔还有一个问题：我是想试图找出事实，你创造和宣传了很多故事都令人印象深刻，这些故事被广泛地传播，对此你感到兴奋吗？
+这是一个公共设施的大爆炸不可控的因素
+La explosión de las instalaciones públicas es un factor incontrolable
 
-此时，出现了Vice片中郭先生似显突兀的回答片段，“你完全错了，我不会象你们这么Low，我们在拯救这个世界，我只想把真相告诉世界，我们从来不奢求象你们这些流氓级的媒体来相信我们，因为你们是骗子、垃圾，就是犯罪集团的一部分……”
+我认为超过50%的可能性
+Yo pienso que supera el 50% de probabilidad
 
-丧失职业操守的Vice与记者兼制片人伊莎贝尔，对采访内容掐头去尾、移花接木，用人工剪辑和后期制作把自己塑造成一个维护正义的形象，Vice片中的问题刻意去掉了一句——“新冠病毒是中共实验室有意制造出来的”，再挪用郭文贵先生对其他问题的回答，衬托出郭文贵先生被她的提问激怒而变得粗暴和失控。“中共释放了新冠病毒，共产党打开了潘多拉盒子”这句话也没有出现在Vice片中。（未完待续）
+还有一个
+Y hay otro
 
-**新冠病毒不是Vice制造和释放，为什么Vice要在节目中单独剔除？为什么Vice要不顾声誉偏离事实和超越媒体的权力，去诋毁郭文贵先生散布谣言？Vice在为谁发声？**
+千万记住共产党的软肋在哪里
+Deben recordar cuál es la debilidad del Partido Comunista
 
-参考链接：
+中央警卫团
+Regimiento de la Guardia Central
 
-[2021.12.22 关于郭文贵先生接受HBO Vice采访的背后真相](https://gtv.org/video/id=61c3bb8900f9a119180832eb)[视频短片](https://gnews.org/zh-hans/1382715/)
+现在所有的都是野战兵调回来的
+Ahora todos ellos son transferidos de regreso por soldados de campo
 
-[《郭先生再一次的严重警告》](https://gnews.org/zh-hans/1382715/)
+他认为是全控了
+Él cree que todo está controlado
 
+但是你千万别忘了习所能出没之地
+Pero nunca olvides los lugares que pueda aparecer Xi
 
+他有两个队伍
+Él tiene dos equipos
+
+他是控制不了的, 警察
+Que él no puede controlarlos, los policías
+
+他不可能全是武警, 特警
+No puede ser todo policías armados o policías especiales
+
+中央警卫团的几个人是解决近身保卫的
+Algunas personas del Regimiento de la Guardia Central resuelven la defensa cercana
+他不是一个
+Él no es para
+
+能阻止大量的造反的
+Detener una gran cantidad de rebeliones
+
+警察是政法委, 孟建柱
+La policía es el Comité Político y Jurídico, Meng Jianzhu
+
+是最不安全因素之一, 除非他不用警察
+Es uno de los factores más inseguros, a menos que no utilice a la policía
+
+那是不可能的
+Eso es imposible
+
+这个我认为可能性占50%还(以)上
+Esto yo creo que la posibilidad ocupa más del 50%
+
+最后一个
+El último
+
+我认为习被染上病毒
+Pienso que Xi es contagiado por el virus
+
+身体出问题(可能性)超过70%
+(La probabilidad) de tener problemas físicos es más del 70%
+
+根据以上七哥今天回答你们的答案
+De acuerdo a la respuesta que les dí hoy
+
+冬奥会几乎是习太阳的一场噩梦
+El Juego Olímpico de Invierno es casi una pesadilla para el sol, Xi
+
+（发生的可能性）超过50%
+(La posibilidad que esto suceda) supera el 50%
+
+让这个太阳永远不能再发光
+Hacer que este sol nunca más se ilumine
+特别当得知彭副主席要曲线就位的时侯
+Especialmente cuando supe que el vicepresidente Peng quería que la curva estuviera
+en su lugar
+
+大家都知道意味着什么
+Todos saben qué significa esto
+
+* * *
+
+日期：12/23/2021
+原视频标题：冬奥会几乎是习太阳的一场噩梦
+Los Juegos Olímpicos de Invierno son casi una pesadilla para el sol Xi
+原视频日期：12/21/2021
+原视频网址：[**https://gettr.com/post/pk7wxhda07**](https://gettr.com/post/pk7wxhda07)
+任务编号：KC364（3307）
+视频时间段：0:00-2:11
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

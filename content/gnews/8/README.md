@@ -2,81 +2,40 @@
 ---
 
 
-## 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789661/)
+## 美学者称台湾可摧毁台积电工厂以阻止中共入侵
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1789662/)
 
-[https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1](https://gtv.org/video/id=61c6e6ce43ccb726a08b10a1)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1640343153-61c5a6718f6831.jpg)图片来源：www.taiwannews.com.tw
+台北（台湾新闻）——两位美国学者在一篇杂志文章中推荐，为了让入侵对中共失去吸引力，台湾应该考虑采取包括摧毁台积电(TSMC)工厂在内的“焦土”策略。
 
-**郭文贵
-Miles Guo**
+美国空军大学专家贾里德·麦金尼(Jared McKinney)和科罗拉多州立大学政治学家彼得·哈里斯(Peter Harris)在美国陆军战争学院季刊《参数》(Parameters)上发表的一篇题​​为《覆巢：阻吓中国入侵台湾》(Broken Nest: Deterring China from Invading Taiwan)的文章中介绍了该计划。
 
-2017年都访问过我，黑过我一次，我还要被它黑
-They interviewed me in 2017, hurt me once, and I have to be hurt by they again
+他们提出将“焦土”策略作为避免美中之间爆发全面战争的一种手段，同时也向中共政权明确表明，攻占台湾将带来更多的成本而不是优势。
 
-这就是我们的站位和我们的角度，我们要通过自己的流血
-This is our position and our angle, we want to through our bleeding
+作者说，“覆巢”战略将在中共国引发一场重大的经济危机，而不是通过吸收台湾的高科技产业来帮助其行业获得发展。根据麦金尼和哈里斯的说法，台积电的毁灭将成为倡导经济稳定的共产主义政权的“危险的鸡尾酒”。
 
-证明敌人的邪恶和凶残，通过自己的被羞辱、被冤枉，证明自己
-to prove the evil and cruelty of the enemy, to prove ourself by being humiliated and wronged
+作者承认，主要问题将是使上述威胁对中共国可信。此外，他们还主张让美国在该地区的其他盟友参与进来，包括允许日本、韩国和澳大利亚发展和部署核武器。
 
-让全世界看到被冤枉以后，下一个你，你能承受得了吗？
-After letting the whole world see being wronged, if you are the next one, can you bear that?
+麦金尼和哈里斯表示，台湾应该成为中共国“不想要的”，要明确表示攻击和入侵将导致这个共产政权其他政策的失败，而占领台湾并没有任何好处。
 
-还有像彭帅这样的事件，如果你家出现了彭帅，你能得到彭帅这种待遇吗？
-also like Peng Shuai’s incident, if Peng Shuai appears in your family, can you get Peng Shuai’s treatment?
+简评：
 
-如果你家人遭受了，一个马蕊处女膜这样的事件，你能活得下去吗？
-If your family member suffers like Ma Rui’s Hymen incident, can you survive?
+凡是独裁者都是没有道德底线的精神病狂人，“焦土”战略在某种程度上来说也许会有效果，但是恐怕并不能从根本上阻止邪恶的中共政权对台湾的入侵。
 
-还有当时的跟王艳萍的性嗨视频，哎呀，我没事都想听听
-There was also the sex video with Wang Yanping at that time, Oh, I want to listen to it at my spare time
+近两年来，中共对台湾的威胁不断加大，在南海到处制造事端，这不仅源于习近平政府有妄想称霸亚洲的野心。还有一部分原因是中共日益加剧的内斗促使习近平迫切想要通过挑起台海战争来稳固自己的政治地位。对于台湾来说，中共内部的政治斗争是一个可以加以利用的工具，如果台湾在中共内部获得反习派系的支持，外部获得美日的协防，当习近平政府发动台海战争，在内外夹击的局面下，中共政权完全可能因此走向覆灭，而台湾则可因此得以生存。
 
-我一听我声音原来那么性感，我真希望那是真的，但它不是真的
-When I heard my voice turned out to be so sexy, I wish it was true, but it’s not true
-
-还有跟我的侄儿媳妇性交，王艳萍就是我侄儿媳妇
-And have sex with my nephew’s wife, Wang Yanping is my nephew’s wife
-
-双面间谍，双面间谍的爹，双面间谍的哥哥，双面间谍的资产
-Double agent, the father of the double agent, the brother of the double agent, the asset of the double agent
-
-双面间谍所有的资产查封，就这种荒唐的事情，在全世界上演的时候
-the assets seizure of the double agent, like this kind of ridiculous thing when it is happening all over the world
-
-我们要问大家一个问题，如果没有爆料革命你能知道什么
-We want to ask you a question, what would you know if there is no Whistleblower Movement?
-
-你一定是跟随邪恶那些人，和被洗脑那些人，和被利用的牺牲品
-You must be the ones who follow the evil, and those who are brainwashed, and the victim of being exploited
-
-所以爆料革命之重要，和能拯救天下的这种神圣的使命
-Therefore, Whistleblower Movement is so important and the sacred mission of saving the world
-
-和我们对信仰自由，独立的法治和民主的向往
-And our yearning for freedom of belief, independent rule of law and democracy
-
-永远记住，只有在彭帅身上，你才能看到郝海东和叶钊颖妹妹他们多重要
-Always remember that only seeing Peng Shuai, and you can realize how important Hao Haidong and Ye Zhaoying are
+新闻链接：[US academics say Taiwan could destroy TSMC factories to deter Chinese invasion](https://www.taiwannews.com.tw/en/news/4387870)
 
 * * *
 
-Date: 12/23/2021
-原视频标题: 只有爆料革命才知道彭帅事件与叶钊颖夫妇的重要
-Only through whistleblower movement to see the Peng Shuai incident, and can make people realize how important of the Ye Zhaoying couple are
-原视频日期：2021/12/22
-原视频链接[** https://gettr.com/post/pkf1k94023**](https://gettr.com/post/pkf1k94023)
-任务编号：KC365（3322）
-视频时间段 : 0:00-1:29
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
