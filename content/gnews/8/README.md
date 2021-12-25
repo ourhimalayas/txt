@@ -2,31 +2,38 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1788666/)
+## 战友热议文贵先生接受HBO Vice采访的背后真相
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1788675/)
 
-作者：香草山翻译部
+作者：纽约香草山翻译部 -defiance
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+12月22日文贵先生在GTV上推出了他接受VICE媒体杨贝贝参访的完整视频，和原视频对比，显而易见，VICE采用了大量的蒙太奇，对文贵先生进行了选择性报道。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-14.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1224text-SC.png)
-校对：Stay文苑
+战友们对此义愤填膺，纷纷发出盖特，一位战友表示中共知道郭先生手里有现场真实录像，居然还放假采访，真是没辙了。看文贵先生痛骂无良媒体真是痛快，华人从来没有这么凛然正气面对西方大媒体。 从这个杨贝贝开始顺藤摸瓜，follow the money，不仅引出了背后的单伟建，后面中共一贯的蓝金黄西方媒体的链条也将呈现，这会为打破中共蓝金黄西方媒体的链条打开一个巨大的缺口，将一个一个被打破。另一位战友表示，杨贝贝是收中共的钱替中共干脏活的假媒体记者，她在混淆视听、断章取义、对文贵先生进行了诽谤诋毁。
 
-编辑：Stay文苑
+参考链接：[https://www.gettr.com/post/pkipyt524](https://www.gettr.com/post/pkipyt524)
 
-发稿：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
 
-视频参看：[12.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c6735900f9a119180a263b)
+总编：Ivy001
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
 
  
 

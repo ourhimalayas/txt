@@ -15,86 +15,86 @@
 
 ---
 
-### [2017年至今从TPG、PAG到法庭一直与中共灭爆一致行动](/content/gnews/1/README.md)
+### [VICE把七哥有史以来受到最大黑客攻击误导为巨大影响力](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [VICE背后老板、最终受益人与王岐山中共相连](/content/gnews/2/README.md)
+### [2017年至今从TPG、PAG到法庭一直与中共灭爆一致行动](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12/24/2021 文贵直播：七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩](/content/gnews/3/README.md)
+### [VICE背后老板、最终受益人与王岐山中共相连](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/24/2021 文贵直播：七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国一男子因摆地摊卖火柴枪被判三年](/content/gnews/4/README.md)
+### [中共国一男子因摆地摊卖火柴枪被判三年](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [12/24/2021 文贵直播：中共妄图抓住机会打赢、打疼美国](/content/gnews/5/README.md)
+### [12/24/2021 文贵直播：中共妄图抓住机会打赢、打疼美国](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2021年12月24日：中共还要放最最最大的毒](/content/gnews/6/README.md)
+### [【粤语配音】2021年12月24日：中共还要放最最最大的毒](/content/gnews/7/README.md)
  ` MOS香港部`
 
-### [战友热议文贵先生接受HBO Vice采访的背后真相](/content/gnews/7/README.md)
+### [战友热议文贵先生接受HBO Vice采访的背后真相](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [GTV新闻访谈简报|2021年12月24日晚](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年12月24日晚](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [【小雨專欄】—在路上054——打架篇](/content/gnews/9/README.md)
+### [【小雨專欄】—在路上054——打架篇](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [关于郭文贵先生接受HBO-VICE采访的背后真相](/content/gnews/10/README.md)
+### [关于郭文贵先生接受HBO-VICE采访的背后真相](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大直播后记——G系列的架构和协同运作](/content/gnews/11/README.md)
+### [大直播后记——G系列的架构和协同运作](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [[小雨专栏]&#8211;在路上054 打架篇](/content/gnews/12/README.md)
+### [[小雨专栏]&#8211;在路上054 打架篇](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [全面反击中共在西方媒体代言人刻不容缓](/content/gnews/13/README.md)
+### [全面反击中共在西方媒体代言人刻不容缓](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [英、法、意，新增感染中共病毒人数均创新高](/content/gnews/14/README.md)
+### [英、法、意，新增感染中共病毒人数均创新高](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒导致日本国内刑事再犯罪率创新高](/content/gnews/15/README.md)
+### [中共病毒导致日本国内刑事再犯罪率创新高](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/16/README.md)
+### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [震惊的视频:泽连科医生（Dr. Zelenko）警告，如果他死了,那就是“对真相的暗杀”](/content/gnews/17/README.md)
+### [震惊的视频:泽连科医生（Dr. Zelenko）警告，如果他死了,那就是“对真相的暗杀”](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国总统拜登签署《防止强迫维吾尔人劳动法》](/content/gnews/18/README.md)
+### [美国总统拜登签署《防止强迫维吾尔人劳动法》](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共者之郭氏情报站（七）12月24日版](/content/gnews/19/README.md)
+### [灭共者之郭氏情报站（七）12月24日版](/content/gnews/20/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共国将创建稀土巨无霸企业以稳定供应链](/content/gnews/20/README.md)
+### [中共国将创建稀土巨无霸企业以稳定供应链](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】加拿大疫情失控？接种率高省份感染创记录!](/content/gnews/21/README.md)
+### [【快讯】加拿大疫情失控？接种率高省份感染创记录!](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大酝酿更多措施强迫疫苗接种](/content/gnews/22/README.md)
+### [加拿大酝酿更多措施强迫疫苗接种](/content/gnews/23/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大魁省疫情失控重返重灾区](/content/gnews/23/README.md)
+### [加拿大魁省疫情失控重返重灾区](/content/gnews/24/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [英国疫苗伤害及其灾难逐渐降临](/content/gnews/24/README.md)
+### [英国疫苗伤害及其灾难逐渐降临](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大疫情严峻单日感染再创新高](/content/gnews/25/README.md)
+### [加拿大疫情严峻单日感染再创新高](/content/gnews/26/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美军方宣布可预防病毒变体的新型疫苗](/content/gnews/26/README.md)
+### [美军方宣布可预防病毒变体的新型疫苗](/content/gnews/27/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
-
-### [白宫发言人就英特尔下跪中共的表态](/content/gnews/27/README.md)
- ` HimalayaRussia`
 
 ### [G系列生态是新中国联邦的核心力量，喜联储必将一统天下](/content/gnews/28/README.md)
  ` YALUN 亚伦`
