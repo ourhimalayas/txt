@@ -2,27 +2,118 @@
 ---
 
 
-## 拜登正式签署“防止强迫维吾尔人劳动法”
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1789588/)
+## 冬奥会证明共产党完蛋了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1789592/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/252.jpg)图片来自网络
-美国总统拜登当地时间12月23日正式签署“防止强迫维吾尔人劳动法” ，未来如果没有令人信服的证据证明产品不是来自新疆强迫劳动制造，都将禁止进入美国。
+[https://gtv.org/video/id=61c6730943ccb726a08ae3c8](https://gtv.org/video/id=61c6730943ccb726a08ae3c8)
 
-美国国务卿布林肯在法案签署生效后发表声明称，解决强迫劳动问题是本届拜登政府的优先事项，美国已采取多项具体措施，包括签证限制、金融制裁、进出口管制，并要求盟友和合作伙伴共同采取行动，从而确保全球所有供应链不使用强迫劳动，包括来自新疆的强迫劳动。
+**郭文贵
+Miles Guo**
 
-爆料革命的创始人郭文贵先生在12月22日的GTV大直播中透露，未来不久美国将会取消所有上届政府对中共国所加关税。这一情报和拜登刚签署的法案结合在一起，就知道美国和CCP玩的猫捉老鼠游戏，是不会改变的，美中永远没有可能再次成为所谓的战略合作伙伴，只能是敌对关系。
+所以说这个冬奥会他不办对咱不是好事
+It wouldn’t be a good thing for us if (the CCP) does not host the Olympics
 
-CCP的国际战略很单一，就是“蓝金黄”，拿金钱美女去收买，要么就是抓那些贪婪政客的小辫子，偷拍他们的小视频，以此作为要挟。CCP的这些下三滥手段，几十年来的确让自己在国际上捞了不少好处，得了不少“美名”，但是假的就是假的，靠收买和要挟得来的所谓盟友，没有一个真心和CCP站在一起的。美国总统拜登更是政坛老姜，再加上美国强大的国力，怎么可能看不出CCP的诡计。CCP给世界放毒，美国受害最严重，嘴上不说，不代表心里不恨，美国一定会报仇，一定要治CCP于死地！只是用什么方式的问题。
+他办了就代表咱宣传
+If they do, they will promote it on behalf of us
 
-如果拜登真的减免了中共国的关税，但是以不能证明产品不是来自新疆强迫劳动为由，可以禁止所有CCP的产品进入美国，那么关税就形同虚设了，那时就是实质性的贸易脱钩。
+证明他完球蛋了
+and prove that the CCP is over
 
-相信美国抵制北京冬奥会，签署防止强迫劳动法案，只是前菜，针对CCP的致命大招还没放出来，郭文贵先生曾说过明年五月之后针对CCP共有十招，我们就看着CCP被一刀一刀凌迟而死吧！
+撒币是完全是失败的
+Their money throwing (money bribing) is a complete failure
 
-新闻参考链接：[联合新闻网](https://udn.com/news/story/7331/5984785?from=udn-catebreaknews_ch2)
+而且是在世界是被孤立的
+and it is isolated in the world
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+更重要的事情
+More importantly
+
+同理, 原苏联、希特勒9年11年的诅咒，一定会在他身上发生
+in the same principle, the 9 or 11 year curse on the former Soviet Union and Hitler will definitely happen to them
+
+那个时候9年、11年相当于今天也就是9天、11天嘛
+9 or 11 years at that time would be 9 or 11 days today
+
+时间只会更快不会更晚
+Time will only be faster, not later
+
+还有一个咱们要看到， 美帝国主义
+Another thing we should have seen is the US imperialism
+
+美帝国主义，这一次一定会戏弄死习近平
+The US imperialism will definitely tease Xi Jinping hardly this time
+
+蓬佩奥那几句话说的时候
+When having a few words with what Mr. Pompeo
+
+全面反击，而且一定像干掉前苏联一样赢, 这话七哥跟他说的
+I said to him that (the U.S.) would definitely win like destroying the former Soviet Union if the U.S. fully counterattack
+
+这包括共产党都是七哥跟他说的
+Both of this and the CCP’s (conspiracy) were what I said to him
+
+可以告诉你，就在这儿说的
+I can tell you that we were right here when I said that
+
+蓬佩奥同志有一段精彩的话
+Comrade Pompeo has a wonderful speaking
+
+共产党他不仅是我们的竞争对手，他是我们天然的敌人
+that the CCP is not only our competitor but also our natural enemy
+
+你看美国白人的时候
+When we observe white Americans
+
+当白人说这句话的时候，这个白人已经醒悟了
+when they say this, it indicates that they have already awakened
+
+它是我们天然的敌人
+The CCP is our natural enemy
+
+就是鹰和蛇的天然的较量
+It’s a natural contest between the eagle and the snake
+
+美国是白头鹰，中共是蛇
+The United States is the bold eagle, and the CCP is a snake
+
+画了鸡爪子，鱼尾，牛鼻子
+which has drawn with chicken paws, fishtail, and cow’s nose
+
+牛的忠诚和勤劳，鱼的这个水，是哇
+The loyalty and diligence of the cow (the Chinese people’s virtues), and the water that provides to fish (the CCP’s bribery funds)
+
+还有鸡的爪子，还能挠粪是吧
+Moreover, the chicken’s paws (the CCP’s means of infiltration) could also scratch dung (consequences)
+
+挠很多粪吃是吧
+scratch lots of dung for themselves
+
+能挠粪能上天，还能飞
+They can scratch dung, they can go into the sky, and even fly
+
+实际上你就是蛇嘛
+Actually you (the CCP) are a snake
+
+* * *
+
+Date: 12/20/2021
+原视频标题: 冬奥会证明共产党完蛋了
+The Beijing Winter Olympic Proves That The Communist Party is Over
+原视频日期：2021/12/19
+原视频链接: **[https://gettr.com/post/pk5wi3f48d](https://gettr.com/post/pk5wi3f48d)**
+任务编号：KC366（3296）
+视频时间段 : 0:00-1:43
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
