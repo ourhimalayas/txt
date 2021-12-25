@@ -2,25 +2,27 @@
 ---
 
 
-## 英国疫苗伤害及其灾难逐渐降临
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788505/)
+## 加拿大酝酿更多措施强迫疫苗接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1788532/)
 
-采编/翻译：文文-自由法兰西        校对编辑：硫酸羟氯喹64
+原文采编：UCool优酷     翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-6.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-8-edited.jpg)图片来源：TNH
 
 
-据英国自媒体《每日内幕》12月22日报道，【苏格兰卫生局】提供的最新数据显示，接种过三剂“新冠病毒”疫苗者已出现大量该病毒感染，住院以及死亡病例。
+据加拿大《金融邮报》12月22日报道，随着“新冠病毒”及其变体“奥密克戎”疫情的疯狂肆掠，加拿大各省将出台更多严厉政策以迫使民众接种疫苗。
 
-报道称，根据政府最新报告，超过66%的病毒感染都发生在已接种疫苗人群中；在住院人数中，接种者占73%；而最终死亡人数，接种者则高达83%。
+对此，报道首先引述了新加坡的最新接种规定，即未接种者将自付所有因感染该病毒而产生的医疗费用。同时，也将不会承担其在国外感染公民的任何治疗费用。
 
-本台编辑对此评论：以上数据再次表明，注射“中共病毒”疫苗及其加强针不仅不能阻止疫情的蔓延和恶化，而且会让被接种者更加容易感染该病毒并因此而伤残乃至死亡。
+另外，文章还提及美国关于“解雇未接种者”的疫苗政策，并称该国目前已有62%的人完全接种了疫苗，约19%的人注射了增强剂。
+
+本台编辑对此评论：该主流媒体的报道从头至尾都积极鼓吹和敦促加拿大当局应该效仿新加坡及美国的强制接种政策，并试图让本国所有未接种疫苗者为其医疗服务买单。
 
 * * *
 
-发稿：硫酸羟氯喹64
+校对编辑，发稿：硫酸羟氯喹64
 
-參考链接： [https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/](https://dailyexpose.uk/2021/12/22/triple-vaccinated-still-dying-of-covid/)
+原文链接:  [https://financialpost.com/diane-francis/diane-francis-make-the-unvaccinated-pay-for-their-own-health-care](https://financialpost.com/diane-francis/diane-francis-make-the-unvaccinated-pay-for-their-own-health-care)
 
  
 

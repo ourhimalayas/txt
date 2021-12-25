@@ -2,29 +2,37 @@
 ---
 
 
-## 中共国一男子因摆地摊卖火柴枪被判三年
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1788715/)
+## 宣扬疫苗被打脸 英法新增染疫人数皆创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1788801/)
 
-撰稿：二号电梯
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2446.jpg)**网络截图**
-在中共统治之下的中国大陆，各种荒诞的事情层出不穷。
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+当地时间12月23日，英国单日新增中共病毒确诊人数为11万9千多例。 法国23日单日新增确诊人数约8万8千例。 皆创下自去年疫情开始以来的新高纪录。
 
-2018年3月，贵州男子李某祥被厦门警方刑拘，原因是警方在他的住处查获枪形物16把，后经鉴定这16把枪状物均系以火药为动力发射弹丸的枪支。同年8月，李某祥被取保候审。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-22.png)
 
-2020年9月，厦门市集美区法院作出一审判决：李某祥犯非法持有枪支罪，判处有期徒刑3年，缓刑3年。李某祥不服，提起上诉。2020年11月，厦门中院作出的《刑事裁定书》显示，原判认定的部分事实不清，撤销集美区作出的一审判决，发回集美区法院重新审判。
+英国完整疫苗接种率达70.2%，第三剂加强针接种率达45.9%；法国完整疫苗接种率达72.6%，第三剂接种率达 28.3%。
 
-2021年11月2日，此案在集美区法院重新开庭审理。12月21日，集美区法院对此案作出跟此前一样的判决：李泰祥犯非法持有枪支罪，判处有期徒刑3年，缓刑3年。
+专家指出，自去年底开始，各国政府对民众督促并宣扬，当完整接种率达到70%，疫情就能控制。 目前，英国和法国的疫苗完整接种率已达到70%以上，但疫情并没有得到有效控制，单日确诊人数创新高，可见疫苗对控制疫情没有任何帮助。
 
-今年43的李某祥是贵州毕节市人，中学文化。李某祥的家庭特殊，他的两个孩子都是残障人士。李某祥说，为了赚钱养家，他在贵阳摆地摊、打散工，收入微薄。李某祥称，自2014年开始，他在摆地摊时有卖火柴枪。他先从网上买火柴枪，再通过地摊卖出去，一般进价60元，以80元的价格售出。让他始料未及的是，自己平日售卖的火柴枪最后导致他被抓。
+参考链接：
 
-火柴枪我们小时候都玩过，它唯一发射的动力就是燃烧火柴头上的那么点火药，它唯一发射的子弹就是火柴梗本身，这样的一个小玩具能和枪沾上边，也是匪夷所思的事情。再说，这样的东西能会有什么破坏力呢？难道只因它的名字“火柴枪”中有个枪字，而非要说它是枪械？
+- [法國單日確診增8.8萬例創新高 病故人數也攀升](https://www.cna.com.tw/news/firstnews/202112240007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [Omicron肆虐英國 單日確診近12萬例再創紀錄](https://www.cna.com.tw/news/firstnews/202112240006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-可见中共现在真的是杯弓蛇影，战战兢兢。这帮欺软怕硬的混蛋，也就只会欺负最最老实的老百姓了。
 
-参考：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-[中共一男子摆地摊卖火柴枪被判三年](https://m.toutiao.com/is/8YBj6Ju/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+总编：Irene木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
