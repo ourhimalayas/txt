@@ -2,27 +2,24 @@
 ---
 
 
-## 美航司人员短缺 圣诞前夜取消数百航班
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1789870/)
+## 经济下跌，中共以大基建拉动内需
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1789985/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-38.png)
-图片来源： newsweek.com
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-34.jpg)
+[图片来源](https://www.dwnews.com/%E7%BB%8F%E6%B5%8E/60170756/%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%BB%8F%E6%B5%8E%E4%B8%AD%E5%9B%BD%E5%8D%81%E7%9C%81%E5%B8%82%E8%B6%8525%E4%B8%87%E4%BA%BF%E5%9F%BA%E5%BB%BA%E9%A1%B9%E7%9B%AE%E7%96%91%E7%81%AB%E9%80%9F%E4%B8%8A%E9%25A)
 
-据“零对冲”网12月24日早报， 截至当日美东早8点，美国各航司已经取消了450个航班，包括169个美联航（United）和127个达美（Delta）的航班，导致大量受影响的旅客进退两难。
+经济日报12月25日报道，中共国务院新闻办公室举行发布会介绍今年全国交通运输工作情况。交通运输部政策研究室主任刘鹏飞介绍，1月份至11月份，完成交通固定资产投资3.28万亿元，其中铁路6401亿元，公路水路2.53万亿元，民航1050亿元，预计全年新改（扩）建高速公路超过9000公里、新增及改善高等级航道约1000公里、新颁证民用运输机场9个，新增城市轨道交通运营里程超过1000公里。
 
-按“航班跟踪FlightAware”网的数据，圣诞前夕全球取消航班总计已达3000次，旅客们在出发前最后一刻忽然接到的消息称，各大航司因新冠疫情导致了人员短缺，不得不取消航班。美国有线电视新闻CNN得到了美联航的一份内部工作文件，记录了本周奥米克戎病例在全美激增，直接影响了机组及运营人员的上岗数；达美也透露受到了奥米克戎病例激增的影响。
+中共基建资本存量在过去20多年都保持了10%的增长速率，全世界最高的桥、最长的桥、最长的隧道等都诞生在中共国……一串串惹眼数字的背后掩盖不住中共经济崩溃，受CCP病毒和疫苗灾难蔓延，以及消费不振、出口萎靡等因素下，中共持续天文数字投入，不顾民生改善，以大基建来拉动经济增长，终将是饮鸩止渴、强行续命之举。
 
-疫情导致人员短缺、航班被取消的情况，在美国过去的几个月里屡见不鲜。8月就曾有美国航空（American Airlines）和精神航空（Spirit）因机组人员短缺、临时取消数百次航班，大量受影响的旅客涌上推特发泄愤怒；10月间西南航空曾在4天内取消了近3100次航班；而12月仅21日下午，就再有超过800次航班被宣布取消，到账部分受影响的旅客不得不滞留机场几天……接下来的周末和假日，可能还会有更多的航班被取消。
+信息来源：
 
-**新闻来源：**
+[前11月完成交通固定资产投资3.28万亿元](https://ms.mbd.baidu.com/r/yzrhoQFvIA?f=cp&amp;rs=3035416644&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=48127c2fa4d46cae)
 
-1. [Christmas Eve Travel Chaos: Hundreds Of Flights Canceled Due To Staffing Shortages](https://www.zerohedge.com/markets/flight-cancellations-christmas-eve-upend-holiday-travel)
-
-2. [“People Slept In Airports” – Spirit, American Cancel Hundreds of Flights Amid Staffing Shortage](https://www.zerohedge.com/markets/people-slept-airports-spirit-american-cancel-hundreds-flights-amid-staffing-shortage)
-
-3. [Angry American Airline Customers Hit With Travel Delays Due To Labor Shortage](https://www.zerohedge.com/markets/get-your-shit-together-angry-american-airline-customers-hit-travel-delays-due-labor)
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

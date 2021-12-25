@@ -2,32 +2,38 @@
 ---
 
 
-## 日本不会派遣政府官员出席中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1790241/)
+## “骑墙外交”的岸田遭拜登冷遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1790314/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月24日，日本政府发布声明表示，日本将不会派遣内阁成员或政府官员出席2022年中共北京冬奥会。而日本内阁官房长官松野博一也在当天的新闻发布会上强调，此举是由日本政府自行决定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-25-下午10.46.41.png)
-此前，日本自民党不断向首相岸田文雄施压，要求其对中共政府采取更加强硬的立场。为此，前首相安倍晋三也于23日与岸田文雄举行会谈，要求日本现任政府尽早表明态度。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-36.jpg)
+[图片来源](https://www.jiji.com/sp/article?k=2021122401110&amp;g=pol)
 
-有分析人士称，虽然日本政府在表态时采取了更为温和的态度与用词，但实质在对待中共的问题上，日本与西方盟国保持了一致的强硬态度。
+日本外相林芳正和防卫大臣岸信夫已开始调整，将放弃原定于明年1月初访美的计划。美方的理由是变异株奥密克戎的传播。首相岸田文雄与美国总统拜登，原定1月份的第一次会晤也将毫无希望。岸田首相虽终于宣布对北京冬奥会进行“外交抵制”，但有人指出，在美国引起了不信任，为时已晚。
 
-参考链接：[日本将不派政府代表团参加北京冬奥会 将派与奥运直接相关的官员](https://cn.reuters.com/article/japan-bj-winter-olympic-1224-idCNKBS2J3084)
+《产经新闻》25日早间报道称，原定于1月7日举行的日美外交和防卫安全协商（2加2）会议，美方提议改用在线方式举行。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+今年3月，菅义伟前首相主持的日美“2加2”会议在东京举行，就推动“自由开放的印太”达成一致，并同意年内再次举办。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+本月6日，拜登总统宣布对北京冬奥会进行“外交抵制”，拒绝派政府代表参加奥运会，以回应中共当局在新疆等其他地区的人权镇压。虽然英国、澳大利亚等其他国家立即响应，但岸田政府推迟了决定，称将“在适当的时候”和“根据国家利益…… ”作出决定，于24日才宣布其决定。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+首相团队说，他们在美国和中共之间取得了微妙的平衡，但也有官员指出，在美国和中共之间周旋的这种“骑墙式外交”，不就是把全人类的普遍价值——人权，与经济利益的盈亏放在了天平的两端吗？！
+
+日本作为盟国，态度上的分歧“削弱了美国的向心力，有效地帮助了中国共产党”。
+
+如果日美2加2会议不是面对面地举行，外长等人就很难事先做出微妙的调整安排，而岸田首相要在1月国会常会开幕前访问美国也将相当困难。
+
+记者长谷川幸洋说，“尽管日本位处东亚，但美国应是对‘岸田首相如此在意中国’感到了惊讶。”这是一种不高兴的表现。“外交抵制”虽已宣布，但为时已晚，故1月的日美首脑会议注定无望了。岸田首相10月上任，但美日首脑会议要到明年5月国会闭会后才有可能举行，这很可能导致极不寻常的情况。”
+
+信息来源：
+
+[岸田首相「１月訪米」“絶望”　外相・防衛相見送り、２プラス２はオンラインに切り替え　識者「ボイコット表明の遅れ影響」](https://news.yahoo.co.jp/articles/3638ea0ce4544929af84c6d2613f7d9e06fcaf83)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-2.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
