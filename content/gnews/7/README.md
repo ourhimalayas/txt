@@ -2,27 +2,24 @@
 ---
 
 
-## 前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1791952/)
+## 中共势力扩张至所罗门群岛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1791985/)
 
-翻译：zzballack
-上传：无明逆流
+#### 采集/翻译：意翎
 
-据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
+#### 责编：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-40.png)图片来源：NEWS
+美国广播公司ABC新闻报道，中共警察和装备很快将会派往所罗门群岛，帮助索加瓦雷（Manasseh Sogavare）政府平息持续数月的叛乱。这是亚太地区(Asia-Pac)在平安夜向北京示好的最新一张多米诺骨牌。此举令澳洲官员感到焦虑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4EB08530449.jpg)图片来源：Daily Mail
+2019年，所罗门群岛决定将外交关系从台湾转向中共，这是人们对这个太平洋国家不满的原因之一。马莱塔省省长直言不讳地反对国家政府的这一决定。上个月的抗议活动后，霍尼亚拉被封锁。
 
-这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
+周四，索加瓦雷政府宣布将接受北京的援助，以增强其防暴警察的能力。政府已经同意接受中共国提供的防暴设备和6名警察联络官，“在现有的双边援助下进行所罗门警察部队的技能装备和人员培训”。政府的声明报告说它“意识到加强所罗门群岛警察部队能力和应对未来动荡能力的迫切需要。”
 
-《China Hour》播出的专题报告节目包括中共政府有效地应对了新冠大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
+澳大利亚国防和外交部消息人士告诉ABC广播公司，他们认为所罗门群岛是太平洋地区第一个接受中共这种程度帮助的政府，特别在防暴和治安方面，并且担心未来会向北京寻求更多的帮助。在一份声明中，外交部发言人表示，他们知道中共正在派遣增援部队。
 
-与杰里米·亨特育有三个孩子的露西亚·郭来自中国西安市，她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目。该节目自今年9月开始播出，可以在Youtube上看到。
+中共外交部发言人赵立坚（Zhao Lilian）说，北京将帮助所罗门群岛回击“严重的”反政府骚乱，“应所罗门群岛政府的请求，中共将提供一批应急防暴设备并派遣一个特别警察顾问团队。”
 
-设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于新冠流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权洗白其侵犯人权行为。“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
-
-五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。这次访问的成果是达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年认识了露西亚·郭，当时她正在为华威商学院 (University of Warwick) 招收中国学生。
-
-原新闻：[Jeremy Hunt’s wife presents show on China’s state-run TV ‘that whitewashes Communist Party’s human rights abuse’](https://www.dailymail.co.uk/news/article-10344359/Jeremy-Hunts-wife-presents-Chinas-state-run-TV-whitewashes-Communist-Partys-abuse.html)
+原文链接：[Beijing Influence Expands After Solomon Islands Accepts Chinese Offer For Riot Police Help](https://www.zerohedge.com/markets/solomon-islands-accepts-chinese-offer-riot-police-help)
 
  
 

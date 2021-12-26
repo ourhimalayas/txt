@@ -2,36 +2,28 @@
 ---
 
 
-## 奥地利建议给医护人员进行第4次新冠疫苗接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1791501/)
+## 融创总负债万亿元，孙宏斌步许家印后尘？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791793/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-30.jpg)融创总负债万亿元，孙宏斌步许家印后尘？ 网络图片
+据网易新闻12月25日报道，曾经是发展最快的房企之一，如今融创总负债为9971.22亿元。融创由孙宏斌创立于2003年，曾经是中共国发展最快的房企之一。有网友表示，孙宏斌会成为第二个许家印。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-4.jpg)图片来源：ABCNews
+当年风光无限时，恒大是地产业的龙头老大。许家印信誓旦旦说恒大一年要做到3万亿，如今恒大资不抵债，濒临破产。房地产是中共虚假经济的支撑点。恒大的暴雷点燃了中共国房地产经济的导火索，此后一家家房企纷纷爆出财务危机。在中共经济即将崩塌的形势下，融创负债万亿如何偿还，中共是否会救融创，拭目以待。
+
+新闻参考链接：[https://c.m.163.com/news/a/GS1EP637055271OV.html?spss=newsapp](https://c.m.163.com/news/a/GS1EP637055271OV.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-#### **整理报道：ATX1230**
-**编辑：文泓**
+编辑：【英国伦敦喜庄园编辑部】
 
-当地时间12月25日，奥地利国家疫苗接种委员会建议对从事医疗卫生工作的人员进行第四次新冠疫苗接种，但也承认没有足够的数据来推荐普及第四加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-在周四晚些时候发布的最新指南中，国家疫苗接种委员会表示，新冠Omicron变种病毒使医疗保健专业人士更容易接触到这种致命病毒。
-委员会说，“考虑到即将到来的Omicron病毒高潮，（第四次疫苗接种）可以在高风险地区（如暴露在外的医护人员）和系统性的关键地区，在第三次疫苗接种后六个月开始提供”。
 
-疫苗小组建议，在医疗咨询之后，可以为医护人员和其他关键部门的人员提供未经监管部门批准的接种。
-同时他们指出，**目前缺乏证据，但他们的建议是在假设的基础上提出的。意思是加强针仍然没有证据表明可以额外预防病毒感染，但假设能预防严重的疾病。**
-
-周三，奥地利表示，它将从12月27日起加强限制，以减缓Omicron变种病毒的传播。这是继11月第四次全国封锁后，以及对未接种疫苗者的持续封锁后采取的最新措施。
-奥地利也成为第一个宣布从2月起对所有公民进行强制性疫苗接种的国家。
-
-**新闻链接：**[Austria names profession for which 4th Covid jab is advised — RT World News](https://www.rt.com/news/544311-austria-covid19-omicron-wave/)
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
