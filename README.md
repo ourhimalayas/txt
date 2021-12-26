@@ -15,182 +15,182 @@
 
 ---
 
-### [一周四名年轻足球运动员因突发心脏病去世](/content/gnews/1/README.md)
- ` HimalayaRussia`
-
-### [从王力宏事件理顺娱乐界乱象，洞悉中共杀富济共除政敌手段](/content/gnews/2/README.md)
- ` YALUN 亚伦`
-
-### [澳大利亚新南威尔斯州单日确诊6394人 再创新高](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [空手道亚锦赛爆发中共病毒 多国代表团确诊](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [杨贝贝的采访为的就是污名化郭先生和爆料革命 其用意手段之邪恶和共产党如出一辙](/content/gnews/5/README.md)
+### [HBO的钱是从何而来 杨贝贝采访的背后是亲共派联合行动给中共的献礼](/content/gnews/1/README.md)
  ` 焦點20分`
 
-### [美国维吾尔法案生效 沃尔玛下架新疆产品](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
-
-### [加总理特鲁多称西方国家需要站在一起反共](/content/gnews/7/README.md)
+### [一周四名年轻足球运动员因突发心脏病去世](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [NASA革命性空间望远镜“韦伯”发射入轨 探索宇宙成型早期模样](/content/gnews/8/README.md)
+### [从王力宏事件理顺娱乐界乱象，洞悉中共杀富济共除政敌手段](/content/gnews/3/README.md)
+ ` YALUN 亚伦`
+
+### [澳大利亚新南威尔斯州单日确诊6394人 再创新高](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [班农先生的一则盖文](/content/gnews/9/README.md)
+### [空手道亚锦赛爆发中共病毒 多国代表团确诊](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [杨贝贝的采访为的就是污名化郭先生和爆料革命 其用意手段之邪恶和共产党如出一辙](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [美国维吾尔法案生效 沃尔玛下架新疆产品](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [加总理特鲁多称西方国家需要站在一起反共](/content/gnews/8/README.md)
+ ` HimalayaRussia`
+
+### [NASA革命性空间望远镜“韦伯”发射入轨 探索宇宙成型早期模样](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [班农先生的一则盖文](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香草山翻译部周刊|2021年12月26日第28期](/content/gnews/10/README.md)
+### [香草山翻译部周刊|2021年12月26日第28期](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [【Michael.Tonny专栏】医学论文验证郭先生关于伊维菌素预防和治疗中共病毒的说法](/content/gnews/11/README.md)
+### [【Michael.Tonny专栏】医学论文验证郭先生关于伊维菌素预防和治疗中共病毒的说法](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [12/26/21 香港快讯 国殇之柱被拆走 港大学生会联院会批校方违程序公义](/content/gnews/12/README.md)
+### [12/26/21 香港快讯 国殇之柱被拆走 港大学生会联院会批校方违程序公义](/content/gnews/13/README.md)
  ` 英喜-粵語組`
 
-### [GTV新闻访谈简报|2021年12月26日早](/content/gnews/13/README.md)
+### [GTV新闻访谈简报|2021年12月26日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [悬崖之上](/content/gnews/14/README.md)
+### [悬崖之上](/content/gnews/15/README.md)
  ` 骄子`
 
-### [《为什么》](/content/gnews/15/README.md)
+### [《为什么》](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月25日郭先生大直播文字同步精要](/content/gnews/16/README.md)
+### [2021年12月25日郭先生大直播文字同步精要](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [12/26/2021国内经济财经周报：招行分行长坠楼身亡；网红薇娅被罚13亿，墙内进入“天下无韭”时代](/content/gnews/17/README.md)
+### [12/26/2021国内经济财经周报：招行分行长坠楼身亡；网红薇娅被罚13亿，墙内进入“天下无韭”时代](/content/gnews/18/README.md)
  ` 秘密翻译组金融团队`
 
-### [DC每日热点1226](/content/gnews/18/README.md)
+### [DC每日热点1226](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊维菌素治疗新冠的功效被恶意抹黑](/content/gnews/19/README.md)
+### [伊维菌素治疗新冠的功效被恶意抹黑](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“黑石集团”（三）](/content/gnews/20/README.md)
+### [文·贵天成——文贵先生谈“黑石集团”（三）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [最有效的传染控制，是口鼻消毒疗法](/content/gnews/21/README.md)
+### [最有效的传染控制，是口鼻消毒疗法](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12-22班农专访3: 应该取消北京冬奥会，用病毒反制中共](/content/gnews/22/README.md)
+### [12-22班农专访3: 应该取消北京冬奥会，用病毒反制中共](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共名星和网红带货的末日](/content/gnews/23/README.md)
+### [中共名星和网红带货的末日](/content/gnews/24/README.md)
  ` 儒为`
 
-### [郝海东爆料：章子怡被调查时扑通跪下](/content/gnews/24/README.md)
+### [郝海东爆料：章子怡被调查时扑通跪下](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜疫情更新（2021年 12月26日）](/content/gnews/25/README.md)
+### [雅典娜疫情更新（2021年 12月26日）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾空手道团员哈萨克比赛后已11人确诊中共病毒](/content/gnews/26/README.md)
+### [台湾空手道团员哈萨克比赛后已11人确诊中共病毒](/content/gnews/27/README.md)
  ` 纽约香草山MOS03`
 
-### [因中共病毒 全球贫富差距进一步扩大](/content/gnews/27/README.md)
+### [因中共病毒 全球贫富差距进一步扩大](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12-22班农专访4: HBO攻击和抹黑新中国联邦和战友﻿](/content/gnews/28/README.md)
+### [12-22班农专访4: HBO攻击和抹黑新中国联邦和战友﻿](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵先生揭露大陆及港澳台明星内幕](/content/gnews/29/README.md)
+### [文贵先生揭露大陆及港澳台明星内幕](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [HBO Vice炮制虚假采访背后的真相](/content/gnews/30/README.md)
+### [HBO Vice炮制虚假采访背后的真相](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [皇家加勒比游轮二次爆发疫情](/content/gnews/31/README.md)
+### [皇家加勒比游轮二次爆发疫情](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/32/README.md)
+### [一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [12-22班农专访3: ﻿ 对麦克斯韦的审判是世纪性的审判](/content/gnews/33/README.md)
+### [12-22班农专访3: ﻿ 对麦克斯韦的审判是世纪性的审判](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [所罗门群岛接受中共国援助防暴警察帮助的提议](/content/gnews/34/README.md)
+### [所罗门群岛接受中共国援助防暴警察帮助的提议](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12-22班农专访6: ﻿美盗国贼基金不会影响中共](/content/gnews/35/README.md)
+### [12-22班农专访6: ﻿美盗国贼基金不会影响中共](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国政府在强迫劳动的指控下撤换新疆党委书记](/content/gnews/36/README.md)
+### [中国政府在强迫劳动的指控下撤换新疆党委书记](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [让我和您聊聊他](/content/gnews/37/README.md)
+### [让我和您聊聊他](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留](/content/gnews/38/README.md)
+### [中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022 年值得关注的六个社交网络](/content/gnews/39/README.md)
+### [2022 年值得关注的六个社交网络](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大总理特鲁多谴责中共：非常狡猾地试图让西方国家相互对立](/content/gnews/40/README.md)
+### [加拿大总理特鲁多谴责中共：非常狡猾地试图让西方国家相互对立](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/41/README.md)
+### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：东京都内新增感染病例连续6天回升](/content/gnews/42/README.md)
+### [秘翻在线：东京都内新增感染病例连续6天回升](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登签署新疆强迫劳动法案 各界赞扬美国作法](/content/gnews/43/README.md)
+### [拜登签署新疆强迫劳动法案 各界赞扬美国作法](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/44/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/45/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/46/README.md)
+### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/47/README.md)
  ` 丁过`
 
-### [欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹](/content/gnews/47/README.md)
+### [欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彼得·纳瓦罗：福奇手上沾了太多的鲜血](/content/gnews/48/README.md)
+### [彼得·纳瓦罗：福奇手上沾了太多的鲜血](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/content/gnews/49/README.md)
+### [所有的中共病毒疫苗都会造成血栓，不仅仅只有强生](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/50/README.md)
+### [HBO Vice和Shorenstein Center -中共自导灭爆计画剧本](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [平安夜感悟](/content/gnews/51/README.md)
+### [平安夜感悟](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [从HBO入党说起](/content/gnews/52/README.md)
+### [从HBO入党说起](/content/gnews/53/README.md)
  ` 骄子`
 
-### [12/25/2021国际财经快讯：欧洲股市在假日交易中收低；土耳其银行提高利率](/content/gnews/53/README.md)
+### [12/25/2021国际财经快讯：欧洲股市在假日交易中收低；土耳其银行提高利率](/content/gnews/54/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/54/README.md)
+### [拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/55/README.md)
+### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/56/README.md)
+### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/57/README.md)
  ` 日本东京方舟农场`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/57/README.md)
+### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/58/README.md)
  ` YALUN 亚伦`
 
-### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/58/README.md)
+### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/59/README.md)
  ` G-NEWS TAIWAN`
-
-### [英国上个月数据：已接种疫苗者占新冠死亡人数的80%](/content/gnews/59/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/60/README.md)
  ` 秘密翻譯組G-Translators`
