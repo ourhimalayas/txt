@@ -2,29 +2,39 @@
 ---
 
 
-## 加拿大政府正利用移动设备对国民进行至少五年跟踪监控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792249/)
+## 六四雕像作者跨国提告 要求美国制裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792280/)
 
-#### 撰稿：彩虹
+作者：东京樱花团 – 在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-41.jpg)图片来源：Daily Sabah
-12月25日，《新闻极限》发文引述加拿大《国家邮报》（National Post）的报道，在中共病毒（COVID-19）疫情封锁期间，加拿大公共卫生局（PHAC）监控了大约3300万台移动设备，以跟踪人们的行动轨迹。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-周五，加拿大公共卫生局的一位发言人告诉《国家邮报》说：“由于（中共病毒）疫情的紧急情况，公共卫生局在整个疫情应对过程中收集并使用了移动数据，如手机信号位置数据。（这些数据帮助该机构）了解加拿大境内人口流动与COVID-19（中共病毒）传播之间的可能联系”。
+12月25日，香港中文大学与岭南大学24日连夜拆除校内与六四事件有关的两座雕像后，这两座雕像的作者——美籍华裔雕塑家陈维明先生——接受采访时表示，他对此感到十分震惊，称此做法十分卑劣，并表示要通过法律途径跨国控告到底。
 
-根据之前的报道，该跟踪监控的计划于12月21日在会员专用新闻网站《Blacklock’s Reporter》的一篇报道中被曝光。报道指该计划被用来做全国中共病毒疫情期间通过移动设备的活动来追踪人口的移动，以了解封控措施的效果。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-2.jpg)
 
-根据《国家邮报》的报道，该机构在3月与研科（TELUS）公司签订了合同，要求研科公司提供人口流动趋势的“去识别化和汇总数据”，合同截止日期为10月末。
+陈维明先生说，香港中文大学拆除民主女神像、岭南大学移除天安门大屠杀浮雕的做法，事前从未征得他本人的同意，事后也未收到校方的警告。这完全是一项有预谋、有计划的迫害行动。他强调这两件作品当时只是出借香港支联会，再转交两校在校内展出，自己仍是所有权人。
 
-研科是一家提供无线网络、数据、IP、语音、电视、娱乐、视频和安全、医疗保健和农业的技术公司，据该公司称，其5G网络覆盖全国3800万居民中的99%。
+陈维明先生还表示，他将通过法律维权。不论港共政府还是校方，如果执行拆除的组织刻意将其损坏，他会在美国寻求法律制裁，并冻结被追责者在美国的资产。
 
-值得注意的是，公共卫生局发言人告诉《国家邮报》，随着其他健康问题的出现，虽然该机构目前还没有在合同到期后获得相关位置数据，但他们计划对全国公民进行为期五年的持续跟踪监控。
+参考链接：
 
-**新闻来源**
+- [香港2大學偷拆六四雕像 創作者將跨國提告、要求美國制裁](https://news.ltn.com.tw/news/world/breakingnews/3779989)
 
-[Report: Canada’s Public Health Agency Tracked 33M Devices During Pandemic](https://www.newsmax.com/newsfront/canada-covid-mobile-technology/2021/12/25/id/1049952/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：飞虹
+编辑：文特
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
