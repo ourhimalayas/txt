@@ -2,30 +2,27 @@
 ---
 
 
-## 疫情致西安全面封城，多名官员因防控不力遭惩处
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791934/)
+## 前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1791952/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-31.jpg)疫情致西安全面封城，多名官员因防控不力遭惩处 网络图片
-据美国之音12月25日报道，中共国陕西省西安及多地疫情爆发，导致拥有1300多万人口的西安市全面封城，至少有26名各级官员因为防控措施不力遭到当局的问责和惩处。
+翻译：zzballack
+上传：无明逆流
 
-新冠疫情最早于2019年在中共国湖北省武汉市被发现，然后蔓延到整个中共国和全世界。中共国在所谓防控措施严格的情况下，一度达到过零感染，全国曾经全面开放，恢复正常生活。只是，既没有防护和治疗的药物，也没有有效的疫苗，只是靠媒体，终究达不到解决病毒的目的。
+据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
 
-此次疫情扩散，据说由12月4日抵达西安的一个巴基斯坦航班上确诊病例开始，疫情由此迅速扩大，确诊病例持续上升，最终西安封城。中共国欺骗愚弄了国内的百姓，但是，越来越多的人还是知道了病毒来自中共国武汉实验室，并且疫苗是更高级的病毒。中共穷凶极恶，不断释放病毒，对内控制全体国民，对外威胁整个世界。中共不灭，病毒只会越来越多，毒性越来越强，人类社会进入生死关头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4EB08530449.jpg)图片来源：Daily Mail
 
-新闻参考链接：[https://www.voachinese.com/a/china-punishes-dozens-of-xi-an-officials-as-city-grapples-with-covid-lockdown-20211225/6369567.html](https://www.voachinese.com/a/china-punishes-dozens-of-xi-an-officials-as-city-grapples-with-covid-lockdown-20211225/6369567.html)
+这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
 
-* * *
+《China Hour》播出的专题报告节目包括中共政府有效地应对了新冠大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+与杰里米·亨特育有三个孩子的露西亚·郭来自中国西安市，她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目。该节目自今年9月开始播出，可以在Youtube上看到。
 
+设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于新冠流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权洗白其侵犯人权行为。“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
 
-编辑：【英国伦敦喜庄园编辑部】
+五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。这次访问的成果是达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年认识了露西亚·郭，当时她正在为华威商学院 (University of Warwick) 招收中国学生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+原新闻：[Jeremy Hunt’s wife presents show on China’s state-run TV ‘that whitewashes Communist Party’s human rights abuse’](https://www.dailymail.co.uk/news/article-10344359/Jeremy-Hunts-wife-presents-Chinas-state-run-TV-whitewashes-Communist-Partys-abuse.html)
 
  
 
