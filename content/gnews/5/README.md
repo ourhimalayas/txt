@@ -2,19 +2,24 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-2
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792004/)
+## 欧洲即将在经济领域有重大的灭共行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792034/)
 
+撰稿：银河勇气星—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
-在HBO VICE对郭文贵先生的采访中，记者ISOBEL YEUNG污蔑郭先生激发了大规模的个人崇拜。而在未经剪辑的视频中我们看到，郭先生甚至都不认为自己是英雄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1446.png)
-在郭先生的眼中，中国有叶钊颖、郝海东等千千万万的英雄，但他们得不到应有的尊重。中共不仅不尊重这些英雄，也不尊重普通人的生命、信仰，他们只推崇金钱和权力，并企图将这种扭曲的价值观推广到美国以及全世界。他认为新中国联邦的使命是协助建立中共被消灭后的新中国政府体系。接下来我们还原事实真相的第二部分：反击HBO-VICE诋毁郭先生进行大规模个人崇拜。
+12月24日，郭先生在大直播中和战友分享了爆料革命有史以来意义最重大的一次成就，即欧洲将在经济领域有重大灭共行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1448.png)
+文贵先生表示，暂时不能透露更多细节，但讲述了此次行动背后的一些故事。称该行动的顺利达成是当年积德行善的结果。在2008年全球经济危机之时，此行动关键人物的家族经营了五代的生意陷入困顿，仅有一面之交的郭先生伸出援手，帮助其扭转了困局。自此以后，该家族企业经营越来越好，并有不少家族子女在英从政。
+
+文贵先生兴奋道，此项行动的达成会对爆料革命的灭共事业起到关键性作用，是属于里程碑式的事件。并称此次欧洲灭共行动可能联动俄罗斯，并积极推进美国和日本，最终形成全球联合灭共的局面。
+
+新闻来源：https://gtv.org/video/id=61c5c61e00f9a1191809b5c5
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
 
 总编：飞虹
 
-[https://www.gettr.com/post/pkgaif1cfa](https://www.gettr.com/post/pkgaif1cfa)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
+编辑：文特
 
 校正/发稿：浪迹天涯
 

@@ -2,81 +2,63 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在35.899 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1791982/)
+## 完全接种疫苗也会失效，加强针接种间隔期一再缩短
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792005/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+翻译：不要代表我Kari
+校对：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.jpg)图片来源：New Daily
+12月24日，据9号台报道，澳大利亚的疫苗加强针议程即将发生重大变化，疫苗加强针接种间隔的等待时间将被缩短。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+卫生部长格雷格·亨特周五宣布，政府将从1月4日起将接种疫苗加强针间隔从五个月提前到四个月，从1月31日起再提前到三个月。
 
+这些（缩短加强针接种间隔时间）变动是根据澳大利亚免疫专家小组（ATAGI）的建议做出的。
 
+亨特先生说：“这些日期（调整）是出于谨慎的考虑之后确定的，以便尽早为澳大利亚人提供持续的保护。”
 
-## 每日一问
+“我们的建议是，它可以有效地保护重症患者，但我们将看到的是它可以更有力的减少病毒传播。”
 
+在此之前，人们推测疫苗加强针接种的间隔时间将被缩短，因为澳大利亚免疫专家小组ATAGI审查了现有系统，并将其与海外经验进行了比较。
 
+这一变化意味着约750万澳大利亚人将有资格在1月4日接种疫苗加强针，大概1600万澳大利亚人从1月31日起接种疫苗加强针。
 
+政府将优先考虑那些已完成接种疫苗间隔时间较长的人群，以及老年人和免疫功能低下的人群。
 
+首席医疗官保罗·凯利说，最近几天，重症监护病人数量有所增加。
 
-Meta自从宣布进军元宇宙，元宇宙的概念以及周边场景推进速度犹如新冠病毒疫苗的，它会如何继续为非作歹？
+他说，鉴于新变种病毒快速演变的性质，将疫苗各针剂的时间间隔提前的这一决定虽然困难但非常必要。
 
+“我们议程的主要目标是保护那些最有可能得重症的患者，我们确信疫苗加强针对提高防护和对重症的保护都具有明显的效果”，凯利教授说：“现阶段接种疫苗加强针可以帮助阻止病毒的传播。”
 
+在过去的24小时内，将近20万名澳大利亚人接种了疫苗，其中14.8万人接种了疫苗加强针。
 
+四个星期前，奥米克戎变种病毒首次在澳大利亚出现，引起了人们的关注，当局在这段时间里收集了关于新变种病毒的严重性和疫苗有效性的信息。
 
+“最近几天和几周的证据显示，疫苗加强针显示出更强的保护作用，而对那些只打过第一或第二针的人的保护作用则逐渐减弱”，凯利教授说：**“不幸的是，我们了解到，打两剂疫苗并不能改变病毒感染。****我们知道，随着时间的推移，疫苗也会开始失效。**”
 
-## 喜马拉雅交易所要闻
+接种间隔时间的变动，是在联邦各州领导本周实施他们各自应防范病毒措施时做出的。
 
+尽管住院和重症监护的人数保持稳定，但奥米克戎变种病毒在海外病例数每两到三天就会翻一番，澳大利亚现在也出现了这个趋势。
 
+由于病例持续飙升，新州、首都领地和维州本周都出台了室内戴口罩的规定；塔州、昆州和南澳也强制要求在室内戴口罩。
 
+在西澳，珀斯和皮尔地区的人们现在必须在所有公共室内环境中戴口罩，而在北领地，只需要在机场内和飞机上戴口罩。
 
+亨特先生说：“采取的新措施将有助于阻止病毒的传播。”
 
-- 喜交所网站行情显示，喜币（HCN）价格目前在35.899 HDO，24H最高价格为36.196 HDO，24H最低价格为35.121 HDO，24H成交量约为32,459.365 HCN。
+“这是一个充满挑战的时刻，但当我们回顾今年，我们是世界上死亡率最低的国家之一，也是疫苗接种率最高的国家之一。”他说。
 
+新闻链接：[Australia Covid news: Australian government announces huge change to booster vaccinations | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
+发布：去中心化Math
 
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-
-## 新闻动态
-
-
-
-
-
-1. U.Today报道，根据WhaleAlert数据，在过去的20小时内，几个顶级数字交易所和匿名加密地址转移了16.86亿个XRP硬币。这是该加密跟踪平台连续第二天检测到大型加密市场参与者转移的超过10亿XRP硬币。其中有1亿枚XRP由Bithumb转向匿名钱包，2.25亿XRP由Binance转向匿名钱包。
-2. U.Today报道，根据Etherscan提供的数据，在过去的一个小时里，加密货币鲸鱼已经购买并转移了近210亿枚Shiba Inu代币到他们的钱包。四天前，也就是12月21日，以太坊鲸鱼增持了4万亿枚SHIB。同日，第13大鲸鱼“Tsunade”购买了340亿枚SHIB。此外，根据WhaleStats在推特上分享的数据，12月24日，一只以太坊鲸鱼也购买了53684945423枚SHIB。
-3. CryptoBasic报道，根据CryptoRank的数据，CEX持有130万枚比特币，占比特币流通供应量的6.2%。其中超过44%的比特币存放在Coinbase的交易所钱包中。Coinbase钱包中有58.3万枚BTC。币安以32.9万枚BTC的持有量位居第二，占130万枚BTC的近25%，位居第三的是Bitfinex，拥有19.3万枚BTC，占比16.63%。
-4. 12月25日消息，Solana生态借贷协议Port Finance完成530万美元A轮融资，Alameda Research领投，Spartan Capital、Brevan Howard、a41等参投。此前报道，今年7月，Port Finance宣布完成约100万美元种子轮融资。
-5. 12月25日消息，Solana索引器Solana FM宣布完成种子轮融资，Coinhako、Etherscan领投。这笔投资将用于加速Solana FM的产品开发。据悉，Solana FM是Solana区块链的第一个索引器，帮助用户以最高效率收集和处理数据。它提供了对Solana网络内数据的轻松访问，其中包含完整的Solana历史数据，以轻松创建快速且可扩展的应用程序，或者只是简化索引和查询服务。
-6. 12月25日消息，Go Fungibles宣布获得Polygon生态系统资助，并将与Polygon Studios合作。Go Fungibles将于2022年1月在Polygon区块链推出其跨链NFT市场。Go Fungibles平台将集成区块链P2E游戏Meta Run和NFT资产。
-7. Globenewswire报道，礼品卡销售商Gift Chill宣布支持Solana（SOL）作为支付方式。
-8. 12月25日消息，Tokio Marine将为国际航运引入区块链支付平台，出口商可即时收款。
-9. 12月25日消息，Learn-to-Earn去中心化平台Meland.ai已于12月24日上线质押功能。用户质押MELD将获得代币奖励，并帮助改善游戏体验。
-10. 12月25日消息，DeBio Network主网已经上线。据悉，DeBio Network在主网发布Appchain和去中心化应用程序（DApp）。DApp推出仅面向客户和实验室的功能。
-11. 12月25日消息，Clover Finance宣布与Project Galaxy达成合作。Project Galaxy将集成Clover多链钱包，以确保安全管理Galaxy上的NFT，并将致力于进一步发展NFT生态系统。
-12. 12月25日消息，交易平台Mizar宣布正在开发一个社区所有的对冲基金Mizar Galaxy Fund。Mizar对冲基金的市场策略利润通过LP质押计划与流动性提供者（LP）共享，并重新分配给该基金帮助其增长。Galaxy Fund的投资组合将完全交易加密货币。该基金由Mizar挑选表现最佳的交易员管理，有时会根据投资组合表现进行再平衡。
-13. 官方消息，大型RPG魔幻游戏Nirvana Meta将于12月25日向全球玩家开启公测，此前Nirvana Meta已于12月5日开启为期18天的内测，内测期间受到了众多玩家的支持与喜爱。此次公测期间将对游戏内容继续优化完善。据悉，Nirvana Meta是一款由韩国区块链游戏公司Nirvana Soft研发的3D新魔幻链游。
-14. 官方消息，虎符将于12月25日20:00（UTC+8）在创新区上线SOS(Open DAO)，并开通SOS/USDT交易对，目前充提业务已开放。Open DAO（SOS）是NFT生态去中心化组织721 DAO发起的项目，初衷是为了感谢所有NFT创造者、收藏家和市场培育整个NFT生态系统，并于12月24日向全体OpenSea用户空投SOS，目前已有超10万个地址领取SOS空投奖励。
-15. 12月25日消息，加密货币衍生品市场Beta Finance将于2022年1月5日正式在Avalanche链上部署，将推出新的货币市场并启动流动性挖矿计划。首批市场将包括WETH.e、WBTC.e、AVAX市场。
-16. 12月25日消息，Crypto.com在推特上表示，斯台普斯中心球馆正式更名为Crypto.com Arena。为了纪念开幕之夜，官方推出了一款限量版NFT。此前消息，Crypto.com宣布与体育和现场娱乐公司AEG签订了长达20年的冠名权协议。
-17. CryptoPotato报道，国际象棋特级大师Magnus Carlsen在12月21日举行的子弹锦标赛“Agadmat or Cake DeFi Christmas Arena”中竞争1枚比特币的最高奖金。除了Carlsen，两个小时的比赛中还出现了一些世界顶级选手，包括Hikaru Nakamura、Alireza Firouzja等。
-18. U.Today报道，Cardano创始人Charles Hoskinson在推特上分享了COTI的最新消息。COTI的开发人员正在Cardano上与IOG一起开发Djed稳定币。开发团队在他们的博客上发布了一篇文章，揭示了Cardano的Plutus目前在Djed上的实现细节。其团队正在开发主要合约，这将有助于提供预言机汇率，将使用户能够同时提交多个订单，取消未完成的订单等等。
-19. 12月25日消息，加密衍生品协议Primitive发推称，RMM测试网上线一周，已经有超过2500个流动性头寸持有者和超过12000笔交易。主网将于明年1月发布，届时将完成剩余的界面升级。
-20. BitcoinMagazine报道，2021年NFL爱国者队新秀Mac Jones宣布将向其队友赠送比特币作为今年圣诞节礼物。他表示，“我已经研究比特币有一段时间了。今年我只知道我必须给我的队友们一些比特币。”他们将通过Swan Black Card完成赠送和领取流程。
-21. DailyHodl报道，Coin Bureau主持人Guy表示，自己在本月全市场下跌期间买入BTC、ETH、Polygon（MATIC）、Fantom（FTM）、Cosmos Network（ATOM）。此次购买后ATOM达到其总投资组合的4.5%。Guy随后进一步透露，其投资组合包括31%的ETH、21.5%的BTC、13%的Solana（SOL）、9%的Polkadot（DOT）、3%的Helium（HNT）和3%的PAX Gold（PAXG）。
-22. Cointelegraph报道，Polygon联合创始人Sandeep Nailwal在接受采访时表示，根据PolygonScan浏览器，Polygon平均出块时间约为2.3秒，以太坊平均出块时间则是15秒。然后Gas费大概是0.001MATIC。
-23. CryptoBasic报道，数百名萨尔瓦多公民在国有加密钱包Chivo中丢失了比特币。推特用户El Comisionado近期公布了50起这样的情况，损失总计超过96220美元，他还称：“（萨尔瓦多）政府不承认错误，保持沉默。但这是人们需要得到回答的问题之一。有些人已经等了好几个月才拿回他们的钱。”
-24. CryptoNews报道，日本国家税务局更新了加密货币准则，解决了包括质押和加密货币借贷在内的问题。但该机构没有提到NFT或代币空投–这表明它目前不认为NFT交易或空投需要纳税。该机构指出，在进行税收计算时，需要以法币日元计算。
-25. 路透社报道，据土耳其国有的阿纳多卢通讯社周六报道，土耳其金融犯罪调查委员会（MASAK）对当地加密货币交易所Binance处以800万里拉（751314美元）的罚款，原因是该交易所在责任检查中被发现违规。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
-
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
