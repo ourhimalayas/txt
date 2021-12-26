@@ -2,61 +2,44 @@
 ---
 
 
-## 追问：邮储银行支行行长涉嫌骗取储户存款
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792413/)
+## 中国政府在强迫劳动的指控下撤换新疆党委书记
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792474/)
 
-凤凰新闻转引红星新闻2012年12月24日报道：邮储银行支行行长涉嫌骗取储户存款，警方：涉及129名储户
-![](https://assets.gnews.org/wp-content/uploads/2021/12/24-4.png)图片来源：红星新闻/民众在中国邮政储蓄银行营业厅表达诉求
-**新闻透露以下四个信息：**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-1，辽宁省丹东市长山镇邮政储蓄银行原行长涉嫌诈骗挪用储户存款，已被立案侦查，目前已知受害人129人。
-2，12月初，有在长山镇邮政储蓄银行存款到期的储户去取款，却被银行告知存折里没有所说金额。
-3，派出所民警向记者表示，该案件系“个人行为”，与银行无关系。
-4，该行法定代表人赵某，还在呼伦贝尔市、湖北省石首市等7家中国邮政集团营业所担任法人及负责人职务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1457.png)
-**短评：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Xinjiang.jpg)
 
-澎湃新闻2020年11月19日报道：澎湃新闻不完全统计，截至12月18日，今年金融领域至少有83人被查。银行业59人。
 
-新京报2021年11月30日报道：年内近70人落马，银行成重灾区。
 
-中共国的银行系统犯罪，从基层人员到总行领导，从国有银行到商业银行数量庞大；显然，以上数据并不真实，现实一定远远超过媒体报道的数量。
+图片来源：www.ecotextile.com
 
-像“丹东市长山镇邮政储蓄银行原行长涉嫌诈骗”一案，大概是不会包含其中的，但是，这篇报道却值得我们追问。
 
-**称呼“赵某”是否含有深意？**
+#### 编译：小红帽
 
-2013年“李天一等5人强奸案“，4人姓名被隐瞒。
-中共治下，类似有选择性的公布“同样是罪犯或犯罪嫌疑人的姓名”是一种特色常态。
+根据Hindustan Times 12月25日报道，中国政府已经更换了其在动荡的新疆西北地区的负责人陈全国。陈全国去年因涉嫌侵犯偏远地区少数民族维吾尔族穆斯林的人权而受到美国的制裁。
 
-今天，丹东市长山镇邮政储蓄银行原行长的真名又被“某”字取代，是出于隐私？还是出于对“赵某”相关领导的保护？或是别的不可说原因？此中有何深意？
+曾任广东省省长的马兴瑞已被任命为新的新疆党委书记。
 
-**储户的钱没了，和银行无关？**
+在美国总统拜登签署了一项禁止来自新疆商品的法案后的第二天，中国政府就有了替换陈全国的举动。
 
-“长山镇邮政储蓄银行存款到期的储户去取款，却被银行告知存折里没有所说金额”。民警表示，“与银行无关”。真的吗？
+人权组织称，中国政府在一个全球供应链中占有重要地位的地区，对维吾尔族穆斯林进行了压迫。
 
-其一，“赵某”是企业法人，代表着企业欺骗储户，上级银行部门和“银监会”首先负有“监管不力”的责任。其次，储户对银行存款是一个物权关系，《储蓄管理条例》第5条明确提出保护储蓄存款的所有权。现在储户存在银行的钱，在储户不知情的情况下钱被取走，竟然和银行无关！
+据香港《南华早报》报道，陈全国被美国、英国和欧盟指控广泛侵犯维吾尔人的人权，但他被认为将获得晋升。
 
-**“赵某”如何成为7家国有银行的法人或负责人？**
+过去几年，中国政府一直与西方关于侵犯维吾尔穆斯林人权的指控作斗争。
 
-暂且不论中共官员的考核制度是如何让“赵某”爬上支行行长职位，但就“赵某”身居7家银行的法人或负责人，并横跨辽宁、湖北、内蒙多省，这一点就应该让人疑问。是上级任命还是股权投资？
+这些指控包括将大约100万穆斯林少数民族社区的人监禁在拘留营中，在资源丰富的新疆的制造单位中强迫劳动，强迫堕胎，以及大规模灌输思想。
 
-如果是上级任命，那么，是何以任命？他又如何横跨多省来同时管理多家银行？其中的收入该有多少？如果是股权关系，那么，他又通过什么获得那么多的股权？又需要多少资金来购买股权？资金的来源呢？
+新闻来源：[US sanctions: China replaces Xinjiang party chief amid forced labour allegations | World News – Hindustan Times](https://www.hindustantimes.com/world-news/us-sanctions-china-replaces-xinjiang-party-chief-amid-forced-labour-allegations-101640450068383.html)
 
-在中共治下，一个一切都可以暗箱操作的国家，我们的追问显然是无力和苍白的；何况对于中共来说，“赵某”的事都不算件事，的确和投放病毒来比较，这能是事？
+***发布：小红帽***
 
-【文章观点仅代表作者个人，与Gnews平台无关】
-
-新闻链接：[**https://ishare.ifeng.com/c/s/v006QwaKQf-\_hPkzCDcDZaadWff1dSYQAG-\_n212bzszNwki5f3RmGcfnuaPfaEaAakbA2?spss=np&channelId=SYLB10NEW&aman=fgs043Cr3rnfgYuQ04IY2ZlkMGLQ0M2WNmpNzdIhNW4Ez1t00v**](https://ishare.ifeng.com/c/s/v006QwaKQf-_hPkzCDcDZaadWff1dSYQAG-_n212bzszNwki5f3RmGcfnuaPfaEaAakbA2?spss=np&amp;channelId=SYLB10NEW&amp;aman=fgs043Cr3rnfgYuQ04IY2ZlkMGLQ0M2WNmpNzdIhNW4Ez1t00v)
-
-素材：洛杉矶盘古农场 — 自由非侠
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯镇恶
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

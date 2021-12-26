@@ -2,30 +2,34 @@
 ---
 
 
-## 中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792460/)
+## HBO Vice炮制虚假采访背后的真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792526/)
 
-撰稿：东京樱花团丨待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1-2.png)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/12/id13457769-533790.jpg)
-据【产经新闻】12月25日消息：两名前中国人权活动家，包括一名律师，自12月初以来已失踪半个多月，人们普遍认为他们已被当局拘留。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月24日，郭文贵先生在直播中继续揭露HBO Vice炮制虚假采访的险恶用意。HBO与中共里应外合，在冬奥会之前大肆用虚假报道，通过歪曲抹黑新中国联邦和爆料革命，为进入中共国市场，向中共交纳投名状。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午8.33.33.png)
+HBO作为唯一一个没有广告的平台，公开估值2000亿美元，实际价值4000亿美元，背后巨大的资本全部是靠欺骗，靠出卖良知，出卖政治得来的。HBO的股东TPG、索罗斯、黑石，以及中共特务单伟健，是中共在海外最高级别的潜伏势力。
 
-两人都曾希望离开该国去国外探望重病的家人，但当局以“国家安全”为由阻止他们离境。 23日，中国人权志愿者律师组团发表抗议声明，称剥夺人们的自由以及离开国家的权利的做法违背了政府所欠缺的人道主义原则。
+中共联合HBO的诋毁行动经过周密策划，即使郭文贵先生拒绝采访，HBO还是会制造其它污蔑爆料革命的视频或报道。郭先生正面出击，把自己作为“诱饵”，让中共的诡计充分暴露。HBO Vice的采访长达几个小时，终片却只采用三分钟，说明因为爆料革命为真不破，郭先生的回答无懈可击，让HBO的构陷无法得逞。
 
-据官方称，这两名失踪者是53岁的前律师唐吉田和55岁的作家郭飞雄。他们过去也曾因批评政权而被当局拘留。
+HBO虚假报道事件会让西方更清楚地认识到，共产党是如何渗透和操纵西方媒体，进行歪曲事实和虚假宣传。HBO为中共洗地，污蔑爆料革命和海外华人，最终一定会成为全世界的敌人，受到法律的审判。
 
-本月10日是国际人权日，唐先生打算去出席欧盟驻北京代表团的一个活动。然而，在同一天，他告诉一个熟人说，代表团周围地区不安全。此后，下落不明。
+参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
 
-本月5日左右，郭先生发出消息说他再次被逮捕后，下落不明。1月，他在前往美国时，在上海机场被阻止出境。他的妻子患有癌症晚期，住在美国。他曾写信给李克强总理，请求允许前往美国看望妻子，但没有得到批准。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-中国人权律师协会在23日发表的一份声明中说：我们应该换一种思维方式，否则将进一步恶化中国的国际形象。
+总编：正义的小新
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-支持民主的台湾中国民主党人协会也在24日召开新闻发布会，提出“父母之爱和人权应优先于国家安全。请允许两人离境，并允许他们尽快见到家人”之要求。
-
-信息来源：[**中国「人権派」２人、所在不明に　当局拘束か（産経新聞） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/c2e2a5debad79cd29c88c36b11cf242e60def7e8)
-
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
