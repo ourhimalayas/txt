@@ -2,62 +2,40 @@
 ---
 
 
-## 所罗门群岛接受中共国援助防暴警察帮助的提议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792482/)
+## 一艘全员接种的美海军战斗舰爆发冠状病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792521/)
 
-翻译：GorgeWarshing
-编辑：MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.png.jpg)图片来源 posts.careerengine.us
-中共将很快向所罗门群岛派遣警官和输送装备以帮助平息历经数月的内乱。此举已引起了澳大利亚官方的焦虑。
+作者：纽约香草山文艺部 宁文静
 
-所罗门群岛政府表示“迫切”需要加强其警察力量。澳大利亚上个月向这个陷入困境的国家派遣了警察和国防军成员。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-国防消息人士告诉澳大利亚广播公司，他们相信所罗门群岛是第一个接受中国帮助进行国内治安的国家。
 
-周四，遭围困的马纳西·索加瓦雷首相领导的政府宣布将接受由北京提供的帮助，以加强该国的防暴警务能力。
 
-政府在一份声明中表示，已意识到迫切需要强化所罗门群岛皇家警察部队的实力，和应对未来动乱的能力。
+12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
 
-该声明说,基于双边互助协议，和警察战术小组对现有训练成果已表示极其肯定的情况下，政府已同意接受中共提供的防暴装备和六名警察联络官，以装备和培训皇家警察部队。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-8.43.47-PM.png)
 
-上月在针对索加瓦雷政府的骚乱发生数天后，73名澳大利亚联邦警察和43名澳大利亚国防军成员被送到这个陷入困境中的太
+报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
 
-平洋岛国。
+据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
 
-所罗门群岛决定在2019年将外交效忠对象从台湾转向中国。该国政府的这一行为触怒了澳大利亚政府。
+对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
 
-所罗门群岛的动荡动摇了澳大利亚的“太平洋行动”计划，国防通讯员安德鲁格林写道——21世纪的伟大地缘政治竞赛正在澳大利亚家门口上演。
+参考链接：[A U.S. Navy combat ship is stranded in Guantánamo Bay with a virus](https://www.nytimes.com/2021/12/25/world/navy-ship-covid-guantanamo-bay.html?smid=tw-nytimes&amp;smtyp=cur)
 
-索加瓦雷先生将最近的国家动乱归咎于“外部因素”和马莱塔省首长丹尼尔·苏达尼 (Daniel Suidani)。苏达尼则直言不讳地反对了政府倒向北京而不是台北的决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-11月的骚乱之后，原本联邦政府松了一口气，因为所罗门群岛第一个求助电话打给了堪培拉，而不是打给了北京。但总理斯科特•莫里森坚称澳大利亚不参与“所罗门群岛的内部问题”。
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-澳大利亚国防和外交消息人士告诉澳大利亚广播公司，他们相信所罗门群岛是太平洋地区第一个接受中共这种级别专门用于国内维稳帮助的政府，他们担心未来跪求北京提供维稳支援的情况会更多。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-最近在所罗门群岛，由澳大利亚警察主导的警务活动已逐渐减少，但40名澳大利亚联邦警察、15名澳大利亚国防军成员和3名外交与贸易部的工作人员仍留在那里。
-
-澳大利亚外交与贸易部的一个发言人在一份声明中表示，他们已知中共正在向该地区派遣增援部队。
-
-该发言人说，“所罗门群岛政府于11月25日提出了帮助所罗门群岛皇家警察部队把霍尼亚拉地区从内乱中恢复稳定的请求，我国与我们的太平洋家庭伙伴——斐济、巴布亚新几内亚和新西兰一起快速有效地做出了回应。”“从那时起，我们和太平洋的家庭伙伴们成功地援助了皇家警察部队，使该地区保持了稳定和平静的局面。”“我们知道中共企图在霍尼亚拉的安全部门插手，这是关乎所罗门群岛政府的重要事情。”
-
-警方使用催泪瓦斯和橡皮子弹驱散人群
-
-中共外交部发言人赵立坚表示，北京正在帮助所罗门群岛应对“严重”的反政府骚乱。他在周四对记者说，“应所罗门群岛政府的要求，中国将为其警方提供一批应急防暴装备，并派出一个特设的警务咨询小组。”“中方物资和人员将很快抵达所罗门群岛，有望为增强该地警方的能力发挥建设性作用。”
-
-并称：“中方坚定地支持所罗门群岛政府维护国家稳定的活动，坚决维护中所两国关系，和中国公民在所国的合法权益，强烈谴责任何违法和暴力的行为。”
-
-目前，澳大利亚政府尚未对所罗门群岛接受中国警务援助的决定作出直接回应。
-
-原文链接：[https://www.abc.net.au/news/2021-12-24/solomon-islands-accepts-chinese-offer-for-riot-police-help/100724296](https://www.abc.net.au/news/2021-12-24/solomon-islands-accepts-chinese-offer-for-riot-police-help/100724296)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,30 +2,45 @@
 ---
 
 
-## 中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792460/)
+## 中国政府在强迫劳动的指控下撤换新疆党委书记
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792474/)
 
-撰稿：东京樱花团丨待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1-2.png)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/12/id13457769-533790.jpg)
-据【产经新闻】12月25日消息：两名前中国人权活动家，包括一名律师，自12月初以来已失踪半个多月，人们普遍认为他们已被当局拘留。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-两人都曾希望离开该国去国外探望重病的家人，但当局以“国家安全”为由阻止他们离境。 23日，中国人权志愿者律师组团发表抗议声明，称剥夺人们的自由以及离开国家的权利的做法违背了政府所欠缺的人道主义原则。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Xinjiang.jpg)
 
-据官方称，这两名失踪者是53岁的前律师唐吉田和55岁的作家郭飞雄。他们过去也曾因批评政权而被当局拘留。
 
-本月10日是国际人权日，唐先生打算去出席欧盟驻北京代表团的一个活动。然而，在同一天，他告诉一个熟人说，代表团周围地区不安全。此后，下落不明。
 
-本月5日左右，郭先生发出消息说他再次被逮捕后，下落不明。1月，他在前往美国时，在上海机场被阻止出境。他的妻子患有癌症晚期，住在美国。他曾写信给李克强总理，请求允许前往美国看望妻子，但没有得到批准。
+图片来源：www.ecotextile.com
 
-中国人权律师协会在23日发表的一份声明中说：我们应该换一种思维方式，否则将进一步恶化中国的国际形象。
 
-支持民主的台湾中国民主党人协会也在24日召开新闻发布会，提出“父母之爱和人权应优先于国家安全。请允许两人离境，并允许他们尽快见到家人”之要求。
+#### 编译：小红帽
 
-信息来源：[**中国「人権派」２人、所在不明に　当局拘束か（産経新聞） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/c2e2a5debad79cd29c88c36b11cf242e60def7e8)
+根据Hindustan Times 12月25日报道，中国政府已经更换了其在动荡的新疆西北地区的负责人陈全国。陈全国去年因涉嫌侵犯偏远地区少数民族维吾尔族穆斯林的人权而受到美国的制裁。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+曾任广东省省长的马兴瑞已被任命为新的新疆党委书记。
+
+在美国总统拜登签署了一项禁止来自新疆商品的法案后的第二天，中国政府就有了替换陈全国的举动。
+
+人权组织称，中国政府在一个全球供应链中占有重要地位的地区，对维吾尔族穆斯林进行了压迫。
+
+据香港《南华早报》报道，陈全国被美国、英国和欧盟指控广泛侵犯维吾尔人的人权，但他被认为将获得晋升。
+
+过去几年，中国政府一直与西方关于侵犯维吾尔穆斯林人权的指控作斗争。
+
+这些指控包括将大约100万穆斯林少数民族社区的人监禁在拘留营中，在资源丰富的新疆的制造单位中强迫劳动，强迫堕胎，以及大规模灌输思想。
+
+新闻来源：[US sanctions: China replaces Xinjiang party chief amid forced labour allegations | World News – Hindustan Times](https://www.hindustantimes.com/world-news/us-sanctions-china-replaces-xinjiang-party-chief-amid-forced-labour-allegations-101640450068383.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
