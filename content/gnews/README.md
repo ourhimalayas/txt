@@ -15,95 +15,95 @@
 
 ---
 
-### [世界各地一片混乱：数以千计的圣诞航班被取消](/content/gnews/1/README.md)
+### [拜登签署新疆强迫劳动法案 各界赞扬美国作法](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——登沧州清风楼](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世界各地一片混乱：数以千计的圣诞航班被取消](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共政权对圣诞节的压制](/content/gnews/2/README.md)
+### [中共政权对圣诞节的压制](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [万名俄罗斯军人完成军事演习，返回基地待命](/content/gnews/3/README.md)
+### [万名俄罗斯军人完成军事演习，返回基地待命](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中超联赛的崩溃和当初崛起一样惊人，金融危机促其消亡](/content/gnews/4/README.md)
+### [中超联赛的崩溃和当初崛起一样惊人，金融危机促其消亡](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国彩票不要太假！男子去年中千万，今年又中！](/content/gnews/5/README.md)
+### [中共国彩票不要太假！男子去年中千万，今年又中！](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [应对中共和朝鲜威胁，日本国防开支续创新高](/content/gnews/6/README.md)
+### [应对中共和朝鲜威胁，日本国防开支续创新高](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄勒冈州卫生局报告622 名已完全接种疫苗的居民死于中共病毒](/content/gnews/7/README.md)
+### [俄勒冈州卫生局报告622 名已完全接种疫苗的居民死于中共病毒](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [宁波百亿房企被接盘，中共苦撑庞氏骗局](/content/gnews/8/README.md)
+### [宁波百亿房企被接盘，中共苦撑庞氏骗局](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [澳洲总理莫里森悄悄加入抖音TikTok目的为何](/content/gnews/9/README.md)
+### [澳洲总理莫里森悄悄加入抖音TikTok目的为何](/content/gnews/11/README.md)
  ` 喜国公民`
 
-### [亚马逊删除了批评中共的书评](/content/gnews/10/README.md)
+### [亚马逊删除了批评中共的书评](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年12月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/11/README.md)
+### [2021年12月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/12/README.md)
+### [郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [文雍漫谈：中共毒计成笑话 赔了贝贝又折兵](/content/gnews/13/README.md)
+### [文雍漫谈：中共毒计成笑话 赔了贝贝又折兵](/content/gnews/15/README.md)
  ` 文雍`
 
-### [欧洲即将在经济领域有重大的灭共行动](/content/gnews/14/README.md)
+### [欧洲即将在经济领域有重大的灭共行动](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [本周又有至少4名足球运动员突发心脏病死亡](/content/gnews/15/README.md)
+### [本周又有至少4名足球运动员突发心脏病死亡](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命将彻底击碎HBO的亲共之梦](/content/gnews/16/README.md)
+### [爆料革命将彻底击碎HBO的亲共之梦](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [完全接种疫苗也会失效，加强针接种间隔期一再缩短](/content/gnews/17/README.md)
+### [完全接种疫苗也会失效，加强针接种间隔期一再缩短](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-2](/content/gnews/18/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-2](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：&#8221;疫苗证书计划&#8221;是由与CCP关联的合作伙伴一起推出](/content/gnews/19/README.md)
+### [每日快报：&#8221;疫苗证书计划&#8221;是由与CCP关联的合作伙伴一起推出](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共势力扩张至所罗门群岛](/content/gnews/20/README.md)
+### [中共势力扩张至所罗门群岛](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.899 HDO](/content/gnews/21/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.899 HDO](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [杨贝贝的出场百分之百是共产党的背景并且都是无缝安排](/content/gnews/22/README.md)
+### [杨贝贝的出场百分之百是共产党的背景并且都是无缝安排](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【谁是郭文贵】第一集](/content/gnews/23/README.md)
+### [【谁是郭文贵】第一集](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为了不让杨贝贝害更多人郭文贵先生要把自己扔出去套狼](/content/gnews/24/README.md)
+### [为了不让杨贝贝害更多人郭文贵先生要把自己扔出去套狼](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行](/content/gnews/25/README.md)
+### [前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [日本制铁起诉三井物产参与中共宝钢侵权](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
-
-### [疫情致西安全面封城，多名官员因防控不力遭惩处](/content/gnews/27/README.md)
+### [疫情致西安全面封城，多名官员因防控不力遭惩处](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/28/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/29/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《柳叶刀》主编承认知道打杂克有“重大的，令人遗憾的 ”利益冲突](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [美7名国防部人员访问美军基地后确诊，10名议员阳性](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

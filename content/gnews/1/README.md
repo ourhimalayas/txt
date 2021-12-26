@@ -2,43 +2,26 @@
 ---
 
 
-## 世界各地一片混乱：数以千计的圣诞航班被取消
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792212/)
+## 拜登签署新疆强迫劳动法案 各界赞扬美国作法
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792231/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1453.png)[图片来源](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E7%AD%BE%E7%BD%B2%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E6%B3%95%E6%A1%88-%E5%8C%97%E4%BA%AC%E7%BE%8E%E5%9B%BD%E6%90%9E%E9%98%B4%E8%B0%8B%E8%AF%A1%E8%AE%A1/a-60248268)
+美国总统拜登周四（23日）签署了一项法案，禁止从中共国的新疆自治区进口产品，因为报导与消息显示该地区的维吾尔人和其他少数民族遭到中共国政府大规模镇压，其中还出现强迫劳动的情况。为了应对中共国对新疆人民实施强迫劳动、强迫绝育和再教育营等打压措施，美国国会提出了《维吾尔族强迫劳动预防法》的草案，并在上周由美国参议院投票通过。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_131521.jpeg)
+这项由民主党和共和党议员提出的法案，旨在成为迄今为止美国在新疆议题上发布最明确的信号，那就是拜登政府不会允许中共国从对维吾尔人的迫害中获益。《维吾尔族强迫劳动预防法》还规定对在新疆协助执行强迫劳动的中共人进行制裁。根据该法条款，只有那些能够证明其产品不是透过强迫劳动制造的美国公司才会被免除从新疆进口商品的禁令。
 
+新疆出口的一些主要商品是棉花、西红柿和用于太阳能板的多晶硅。这些品项在该法中被指定为“优先关注”的重点商品。美国海关和边境保护局表示，去年美国从中共国进口了约90亿美元的棉花产品，其中20%的美国服装含有新疆棉花。
 
- 
-图片来源：www.japantimes.co.jp
+针对法案通过，美国两党皆乐观其成。最初提出法案的美国共和党参议员鲁比奥 (Marco Rubio) 表示：“许多公司已经采取措施审视他们的供应链。对于那些没有这样做的公司，他们将不再能够继续让美国人在不知情的情况下，成为帮助中共政府进行种族灭绝的帮凶。”
 
+民主党参议员默克利 (Jeff Merkley) 在一份声明中说，此举将“对反对种族灭绝与强迫劳动发出一个响亮和明确的信息”。他写道：“现在我们终于可以确保美国消费者和企业在购买商品时，不会无意中成为中共国侵犯人权行为的共犯。”人权观察中国主任理察森 (Sophie Richardson) 在推特上对此举表示赞赏，并要求在国际刑事法院对中共国进行反人类罪的审判。今年10月，曾有43个联合国成员国要求到新疆进行实地调查。
 
-#### 编译：小红帽
+信息来源： [拜登签署新疆强迫劳动法案 北京：美国搞阴谋诡计](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E7%AD%BE%E7%BD%B2%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E6%B3%95%E6%A1%88-%E5%8C%97%E4%BA%AC%E7%BE%8E%E5%9B%BD%E6%90%9E%E9%98%B4%E8%B0%8B%E8%AF%A1%E8%AE%A1/a-60248268)
 
-根据The New Daily 12月25日报道， 世界各地的商业航空公司在圣诞周末取消了4000多个航班，因为由Omicron变种驱动的新冠病毒（COVID-19）感染浪潮不断增加，给假期旅行者带来了更大的不确定性和痛苦。
-
-根据航班追踪网站FlightAware.com的统计，全球航空公司在周五至少取消了2314个航班。这一天是平安夜，通常是航空旅行的繁忙日子。
-
-该网站显示，全世界还有1404个圣诞节航班被取消，以及340个周日的航班。
-
-在澳大利亚，数以百计的航班被取消，由于隔离要求，与新冠大流行有关的工作人员短缺导致乘客被滞留。
-
-与此同时，欧洲国家的新冠病例数创下历史新高，英国政府正在考虑在新年前夜实行更严格的限制措施。
-
-FlightAware的数据显示，美国境内和进出美国的商业航空运输占周末取消的所有航班的四分之一。
-
-新闻来源：[Chaos the world over: Thousands of Christmas flights cancelled (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/12/25/chaos-the-world-over-thousands-of-christmas-flights-cancelled/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

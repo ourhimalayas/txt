@@ -2,23 +2,42 @@
 ---
 
 
-## 万名俄罗斯军人完成军事演习，返回基地待命
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792181/)
+## 世界各地一片混乱：数以千计的圣诞航班被取消
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792212/)
 
-#### 搜集/撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1450.png)图片来源：CNN
-根据《国际文传电讯社》的说法，这些演习是在乌克兰附近的几个地区举行的，包括在2014年俄罗斯吞并的克里米亚地区，以及俄罗斯南部的罗斯托夫和库班地区。
-国际文传电讯社援引军队的话说：“师级、战斗队员、摩托化部队班组……的战斗协调阶段已经完成。超过1万名军人……将从联合演习作战区域前进到永久基地”。
-
-文章指，俄罗斯在乌克兰北部、东部和南部部署了数以万计的军队，加剧了乌克兰和西方国家对俄罗斯正在计划发动攻击的担忧。
-
-而俄罗斯方面的理由，则是否认有任何此类攻击计划，但称它需要包括北约在内的西方国家的承诺，即不将北约向东扩展到俄罗斯边境。同时，俄罗斯可以在自己认为合适的情况下在其境内部署军队。
-
-**新闻来源** [10,000 Russian Troops Reportedly Pulling Away From Ukraine](https://www.newsmax.com/world/globaltalk/ukraine/2021/12/25/id/1049925/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_131521.jpeg)
 
 
+ 
+图片来源：www.japantimes.co.jp
+
+
+#### 编译：小红帽
+
+根据The New Daily 12月25日报道， 世界各地的商业航空公司在圣诞周末取消了4000多个航班，因为由Omicron变种驱动的新冠病毒（COVID-19）感染浪潮不断增加，给假期旅行者带来了更大的不确定性和痛苦。
+
+根据航班追踪网站FlightAware.com的统计，全球航空公司在周五至少取消了2314个航班。这一天是平安夜，通常是航空旅行的繁忙日子。
+
+该网站显示，全世界还有1404个圣诞节航班被取消，以及340个周日的航班。
+
+在澳大利亚，数以百计的航班被取消，由于隔离要求，与新冠大流行有关的工作人员短缺导致乘客被滞留。
+
+与此同时，欧洲国家的新冠病例数创下历史新高，英国政府正在考虑在新年前夜实行更严格的限制措施。
+
+FlightAware的数据显示，美国境内和进出美国的商业航空运输占周末取消的所有航班的四分之一。
+
+新闻来源：[Chaos the world over: Thousands of Christmas flights cancelled (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/12/25/chaos-the-world-over-thousands-of-christmas-flights-cancelled/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
