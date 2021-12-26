@@ -2,38 +2,131 @@
 ---
 
 
-## 中共国地方债务 中央不救助
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792282/)
+## 人类正处在数字货币代替法币的春秋时代
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792301/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-据中共媒体消息，12月16日，国务院新闻办公室举行国务院例行政策吹风会。财政部副部长许宏才表示，要坚决遏制地方隐性债务增量，稳妥化解隐性债务存量，坚持中央不救助原则，做到“谁家孩子谁抱”。
+[https://gtv.org/video/id=61c6f42443ccb726a08b1444](https://gtv.org/video/id=61c6f42443ccb726a08b1444)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-2.jpg)
+**郭文贵
+Miles Guo**
 
-据悉，中共地方政府举债度日由来已久。它们发债融资大搞基础建设，拉动地方GDP，自己则借机升官发财。但债务到期兑付之时，地方政府则无力还债，坐等中央印钱护航。据一些研究机构的估计，到2021年10月份，国内地方政府隐性债务规模约为40万亿元人民币。
+把所有的去中心化的数字货币的未来
+The future of all decentralized digital currencies
 
-债务规模的持续增加隐藏了巨大的违约风险，评论人士认为，财政部明确表示不救助，就是为即将到来的违约潮作准备。一旦这一天到来，中共国面临的，将是经济的彻底崩塌。
+也就是今天刚才说跟法币一定会同时存在一段时间, 代替法币
+which is I said earlier today that it would definitely exist at the same time as fiat currency for a period of time then replace it
 
-参考链接：
+实际上我告诉大家
+Actually I’m telling everyone
 
-- [中共国地方债务，中央不救助](https://gnews.org/zh-hans/1788370/)
-- [推高地方债的腐败官员.国内隐性债务现在规模大概在40万亿元！](https://xw.qq.com/amphtml/20211219A0490Y00)
+这次的数字货币的区块链币的到来, 会真正的人类第一次从上万年来开始
+This arrival of the digital currency with the blockchain will truly start for the first time in tens of thousands of years,
 
+第一次和平地、迅速地、不用流血地改变货币的属性
+the first time to change the attributes of currency peacefully, quickly and without bloodshed
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝卷
+From the past the Kingdom of Spain, the Kingdom of Portugal, including the Roman Empire, our China’s Yuan Datou and the Qing Dynasty
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+所有的什么、所有的货币
+all currencies
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你可以看到, 每个国家、每种货币
+that as you have already seen, every country, and each kind of currency
+
+就是说确定为你Eric的面包多少钱的时候，用啥来衡量的时候
+that means when using whatever to determine how much it will be for Eric’s bread
+
+一定是更朝换代，尸骨遍野
+it would definitely be the change of dynasties with dead bodies and Skull and Bones everywhere
+
+永远是
+and always will be
+
+这次是所有的定价权就是CPI要回到零
+This time all the pricing power that is, the Consumer Price Index (CPI) needs to return to zero
+
+现在已经不是100了
+Now it’s not even 100 anymore
+
+现在已经达到10万(4万)去了
+it has reached to 40,000
+
+大家看到已经达到4万了
+everyone may have seen that it has already reached 40,000
+
+CPI100现在已经达到4万到5万了
+CPI100 has now reached 40,000 to 50,000
+
+就是过去订面包是一块钱，实际上现在就是5万块钱
+which means that in the past it was $1 to buy bread, but in fact it is now $50,000 to buy bread
+
+你就这么简单的很吓人的
+It’s just that simple but very terrible
+
+它只有砸回来
+The only thing it could do is smashed it back
+
+砸回来拿什么来量呢？
+What to use for measuring when it’s smashed back?
+
+那谁决定(怎么)算呢？
+So who decides (how) to count?
+
+那就是枪、刀、死人
+That is weapons and deaths
+
+而且一定你看到这些币都不会存在，一定是的
+And for sure that none of the coins you see will exist, it definitely won’t be
+
+在这个战争再死（人）全人类就完了
+If people continue die in world war, all mankind would be over
+
+我告诉大家从去年到今天，我们人类就在这场战争中
+I’m telling everyone that our humans have been in this war from last year to today
+
+这就是新中国联邦今天最简单、最直接、最明白地告诉你
+This is our New Federal State of China telling you today in the simplest, most direct and clearest way
+
+人类已经处在第三次的数字和货币代替法币,
+that mankind is already at the third time of digital and currency replacing Fiat currency
+
+和人类上一个数字货币的春秋时代
+and it’s the Spring and Autumn Era of a digital currency on mankind
+
+同时是世界上走入了三国的数字货币的时代
+At the same time, the world has entered the era of digital currencies of the
+Three Kingdoms period
+
+我们是其中一级
+We are one of the top class
+
+还有一个你要做好准备
+There is one more that you need to be well prepared
+
+你手里的东西都一毛不值
+which is everything in your hand will be worthless
+
+* * *
+
+Date: 12/20/2021
+原视频标题: 人类正处在数字货币代替法币的春秋时代
+Human Beings Are Currently in a Situation of The Spring And Autumn Era Which Digital Currency is Replacing Fiat Currency
+原视频日期：2021/12/19
+原视频链接: [**https://gettr.com/post/pkd1tz5504**](https://gettr.com/post/pkd1tz5504)
+任务编号：KC367（3314）
+视频时间段 : 0:00-2:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

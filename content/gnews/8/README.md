@@ -2,26 +2,162 @@
 ---
 
 
-## 澳洲悉尼一家医院向400多名新冠病毒检测者发送了错误的检测信息
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1792303/)
+## Omicron病毒绝对超出大家的想象
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792331/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-41.png)图片来自网络
-澳洲悉尼圣文森特医院星期六晚上向400多名接受新冠病毒测试的人士发送了错误的信息，通知他们的测试结果为阴性，但实际上，他们的测试结果为阳性。
+[https://gtv.org/video/id=61c7e5ae43ccb726a08b669e](https://gtv.org/video/id=61c7e5ae43ccb726a08b669e)
 
-该医院在星期日发现错误后，立即开始联系受影响人员，通知他们，必须立即进行隔离。错误是由于人为因素造成的。
+**郭文贵
+Miles Guo**
 
-错误的信息给新冠病毒感染人数急剧增加的新洲带来了混乱。新洲目前新冠病毒感染病例达到了6934 例感染的新高。
+特别的感谢刚才飞飞, 还有Eglise医生, 还有我们青蒿素讨论群
+Special thanks to Feifei, Dr. Eglise, and our artemisinin discussion group
 
-接到错误信息的人士是在12 月 22 日至 12 月 23 日期间接受了新冠测试。这些人当中，可能有人正在旅行，或参加了悉尼至霍巴特的帆船比赛。
+所有的医生们承担了巨大的风险，没有任何一分回报
+All the doctors have taken huge risks without any rewards
 
-消息来源：
+日以继夜地在工作
+and are working day and night
 
-[St Vincent’s Hospital apologises after 400 sent Covid text wrongly telling them they are negative](https://www.news.com.au/national/nsw-act/nsw-records-6394-new-covid19-cases-on-boxing-day/news-story/5597110356b6f45ecda751a1e3f02c8b)
+救多少人大家知道
+We all know that how many people have been saved
 
-[Hundreds of positive-COVID were told they were negative in laboratory text message blunder](https://www.skynews.com.au/australia-news/coronavirus/hundreds-of-positivecovid-cases-told-they-were-negative-in-laboratory-blunder/news-story/fc6191e68017d323de7fbbafc527822b)
+像Eglise为代表的，太重要了
+As represented by Eglise, they are all very important
 
+你像飞飞这个患病之后
+Just like Feifei
 
+从得病期间到最后恢复
+from the time of illness to her final recovery
+
+从来没休息过
+she didn’t rest at all
+
+就是全力以赴的在救人
+and did her best to save others
+
+Omicron现在看来就是我们一定要纠正
+Now it seems that we have to make corrections to the opinion of Omicron
+
+这Omicron的危险性比我们想象的大得多得多
+This Omicron is way more dangerous than we thought
+
+它诞生它造成的所有的综合症比我们想象的大得多得多
+It comes and all the syndromes it causes are much more serious than we thought
+
+就是这个绝对超出大家的想象这个Omicron
+This Omicron is absolutely beyond everyone’s thought
+
+那么现在在西方和全世界，爆料革命，就是这个Isabella杨坚决不报道的
+So now the whistleblower movement in the West and the whole world is what Isabella Yang determined not to report
+
+第一个
+First
+
+我们在去年就告诉大家
+we have told you last year
+
+病毒绝对没有疫苗对人类的威胁大
+that the viruses are definitely not as threatening to humans as the vaccines
+
+疫苗灾难才是真正的次生灾难
+The vaccine disaster is a real disaster following the virus disaster
+
+是人类最大的灾难
+It’s the biggest disaster in humanity
+
+而且我们一再说
+And we have said that again and again
+
+今年年底，2021年年底才是真正的灾难的开始
+that at the end of this year, the end of 2021 is the beginning of the real disaster
+
+病毒大扩散
+in which the virus would mass spread
+
+没有一个人说，就我们
+Not anyone but us has said that
+
+今年我们说的真的不下万遍吧
+We have said that not less than 10,000 times this year, right?
+
+就是说我说10月到12月大爆发
+In other words, what I said was a big outbreak from October to December
+
+而且来自于非洲和（美洲）西部
+and it was from Africa and western America
+
+我们全（说）准了
+Everything we had said is correct
+
+而且我说感恩节之后，美国及世界大爆发
+And I said that there would be a big outbreak in the United States and worldwide after Thanksgiving
+
+大家看到了吗？
+Did you see it?
+
+全美国、全世界都在（爆发）感恩节是最夸张的
+The United States and the world have outbreaks, especially after Thanksgiving
+
+最后又是我们（说准了）
+In the end, we are correct again
+
+不是我们蒙出来的
+We didn’t make that up
+
+这是我们的科学家和背后的爆料革命
+This is our scientists and the whistleblower movement in the back
+
+深知这是个生化武器和共产党内部要决策的情报
+knowing that this is a biochemical weapon, and it’s the intel information for the CCP’s internal decision-making
+
+在冬奥会前让西方经济要垮下来，让西方要内乱
+which is making the western economically collapse and internally disorder before the Winter Olympics
+
+然后无暇顾及（中共）
+that way, they have no time to pay attention to the CCP
+
+就像现在习近平、王岐山、杨洁篪、王毅、王沪宁在内部说的
+Just like Xi Jinping, Wang Qishan, Yang Jiechi, Wang Yi, and Wang Huning have said internally
+
+一定会打赢这次中美世纪大战
+they would definitely win the Sino-US war of the century
+
+这是他原话啊，“一定要有信心，而且一定会打赢中美的世纪大战”
+This is what he has said exactly, “We must have confidence and will win the Sino-U.S. war of the century”
+
+这都是这个结果
+All these are the result of it
+
+这几天兄弟姐妹们, 你们一定要意识到
+Brothers and sisters these days, you must be aware
+
+Omicron太可怕了
+The Omicron is terrible and serious
+
+而且不好的现象是Omicron现在发现吃了伊维菌素和青蒿素有些不是100%管用
+And the bad phenomenon is now finds that ivermectin and artemisinin somewhat are not 100% effective against Omicron
+
+* * *
+
+Date: 12/23/2021
+原视频标题: Omicron病毒绝对超出大家的想象
+The Omicron Virus is Absolutely Beyond Everyone’s Imaginations
+原视频日期：2021/12/22
+原视频链接: [**https://gettr.com/post/pkgd2ldca6**](https://gettr.com/post/pkgd2ldca6)
+任务编号：KC368(3323)
+视频时间段 : 0:00-02:19
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 -银龙
+发布洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
