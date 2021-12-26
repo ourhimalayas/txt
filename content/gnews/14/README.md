@@ -2,34 +2,54 @@
 ---
 
 
-## 令人震惊的全球金融体系崩溃的“模拟”演习
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1791031/)
+## 英国创下COVID病例新纪录，Omicron横扫伦敦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1791331/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip06-7.png)图片来源：austincountynewsonline
-本月早些时候， 路透社发表 了一份报告，但几乎没有引起美国公众足够重视——其内容肯定会引起大多数关注更多“全球灾难”爆发的人的警觉。至少这是一个奇怪的时机：在最近的大流行导致全球供应链中断的情况下， 强大的国家和银行机构决定聚在一起应对全球经济崩溃的情景。
+作者：纽约香草山农场 – 四季
 
-该报告[称，](https://www.nasdaq.com/articles/exclusive-imf-10-countries-simulate-cyber-attack-on-global-financial-system) 以色列领导了“一场由**10**个国家组成的针对全球金融体系的重大网络攻击的模拟， 旨在加强合作，以有助于最大限度地减少对金融市场和银行的任何潜在损害。” 据一位参与的官员称，此模拟活动是以一个灾难性的场景为中心，其中“黑客比我们领先 10 步”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-此次演习被称为“集体力量”，在耶路撒冷（从原拟定地点迪拜搬迁后）举行，并且包括了美国、英国、阿拉伯联合酋长国、奥地利、瑞士、德国、意大利、荷兰和泰国都参加了此次演习。另外，国际货币基金组织（**IMF**）、世界银行（**World Bank**）和国际清算银行（**Bank of International Settlements**）的官员们也参与其中。
 
-金融-地缘政治游戏模拟的场景是，敏感数据在暗网中被泄露，再加上“假新闻”报道在社会上疯传，导致全球市场崩溃，银行随之出现挤兑。此外，据路透社报道，该模拟设想了一系列针对全球外汇系统的破坏性黑客攻击，这也破坏了进口商和出口商之间的交易。
 
-该模拟设定了一个持续约一周半的严重危机期。事件由一部电影和解说员引导，与快速移动的[“现场”事件](https://www.nasdaq.com/articles/exclusive-imf-10-countries-simulate-cyber-attack-on-global-financial-system)相关…
 
-此外，报告还详细介绍了在以色列财政部主持下进行的模拟:
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip07-8.png)图片来源：austincountynewsonline
-叙述者说：“银行正在呼吁以多种货币提供紧急流动性援助，以制止混乱，因为对手方撤回其资金并限制获得流动性，使银行陷入混乱和毁灭;与会者讨论了应对危机的多边政策，包括协调银行假期、债务偿还宽限期、SWAP/REPO 协议,以及协调与主要货币脱钩。”
 
-从表面上看，为期十天的“成功”演习是为了让每个国家准备好控制来自某种重大网络事件或威胁的全球破坏。关键的启示是，只有通过快速的全球合作和国家间的公开交流，才有机会防止全球（或者说西方主导的）金融体系的全面崩溃。
+据[OAN网站](https://www.oann.com/one-in-10-londoners-are-likely-infected-with-covid-ons-models/)援引路透社12月25日的报道，Omicron的快速传播推动了英国过去七天的病例激增。英国周五报告了新一天创纪录的COVID-19病例。新的数据显示，伦敦有大量人口携带这种病毒，突显了Omicron变体的无情推进。
 
-**新闻来源**：[austincountynewsonline.com] [IMF, WORLD BANK & 10 COUNTRIES HELDALARMING “SIMULATION” OF GLOBAL FINANCIAL SYSTEM COLLAPSE](https://austincountynewsonline.com/imf-world-bank-10-countries-held-alarming-simulation-of-global-financial-system-collapse/) | 发布时间：2021年12月21日｜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25T004514Z_1_LYNXMPEHBO008_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2021年12月24日，在英国伦敦爆发的冠状病毒疾病（COVID-19）时，人们在平安夜站在国王十字车站内。（REUTERS/Henry Nicholls）
 
-* * *
+政府报告了137例在COVID-19测试阳性后28天内的新增死亡病例，低于周四的147例，使大流行期间的总人数达到147,857人，为欧洲最高。
 
-***发稿：信心满满***
+政府数据显示有122,186个新增病例，高于周四的119,789个，这也标志着第三天的病例数超过了10万。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+虽然最近对Omicron的研究表明，感染该变种的患者其住院率低于以前的COVID-19变种，但卫生官员对其前景保持谨慎的态度。
+
+国家统计局（ONS）周五的模型显示，12月16日，大约每20个伦敦人中就有1个可能患有COVID-19，而早期可能尚未修订的估计表明，这一比例在周日可能上升到1/10。
+
+然而，总理鲍里斯·约翰逊 (Boris Johnson)以2021年的圣诞节比前一年 “好得多”为由，在周二排除了在这一天之前采取新的限制措施，他说，Omicron的严重程度和住院率仍存在不确定性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

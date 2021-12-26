@@ -2,41 +2,32 @@
 ---
 
 
-## G系列生态是新中国联邦的核心力量，喜联储必将一统天下
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1788468/)
+## 2021年加密货币交易所基金（ETF）资产规模达630亿美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791017/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+**据《Baystreet》工作人员2021年12月22日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ax2nm-o5h58.jpg)**图片源自Baystreet**
+随着以加拿大为首的世界各国正式认可这种投资工具，加密货币交易所基金 (ETF) 在2021年吸纳资金创下新高。
 
-12月24日郭文贵先生于GTV、Gettr大直播中把整个G系列生态做了更为深入的呈现，并表示这些平台一定是新中国联邦的核心支柱力量。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/西班牙巴塞罗那喜悦农场-3.png)图片来源Gnews西班牙农场
+根据《彭博社》汇编的数据，全球加密货币ETF数量在过去一年增长一倍多，从2020年底的35个增至80个。
 
+2021年，加密货币ETF持有的资产飙升至630亿美元，而年初仅为240亿美元。
 
-Gnews的核心价值来源于三个板块：
+加拿大是首批批准和监管加密货币ETF的国家。然而，美国批准的 ProShares比特币策略ETF (BITO)已被证明是最受欢迎的加密货币ETF，在10月份运营的第一个月就吸引了12.6亿美元。
 
-一、倚靠强大的搜索功能，AI科技。
+分析师预测，随着数字货币的持续流行，年轻的散户投资者将在2022年继续注资加密货币基金。
 
-据云基础设施公司（Cloudflare）公布最新统计数据显示，抖音（TikTok）互联网访问量已超越谷歌（Google）成为最受欢迎的网站。抖音成功的秘诀就是通过使用AI技术，实现了最重要的信息筛选和推送功能。我们的Gnews、 GTV、Gettr未来能否成功，主要依靠的是搜索技术、精准的信息分类和定点推送功能。
+**文章来源**：[https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021](https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021)
 
-二、也是最核心的，把Gnews打造成世界的情报市场、信息交易市场。抖音之所以成功，因为其完美地利用数字技术，成长为集美食、娱乐、资讯、风情，网商为一体的综合即时平台。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-三、Gnews吸纳全世界最可靠的精英，坚持以人为本，最终成为一个有良知的、由不同领域的人共同参与的智库型大平台。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-随着科技的日新月异，通过生物电脑、量子电脑、全球无线WiFi 、5G和 6G技术的全面发展，使得未来视频的清晰度和传输速度突飞猛进，甚至达到“元宇宙”级别的视觉、味觉、听觉的全新体验。
-
-可以说，Gnews是全人类共同交流的精神平台、文化平台和信仰平台。
-
-但是，GTV永远是王。Gclub是通行证（新中国联邦早期护照），Gfashion是文化和尊严的外在展现，Gettr是与西方沟通的桥梁， Hcoin（喜币）要成为天下统一之币。目前世界需要一个不受政治影响的、没有政府操纵的、超越国界的、保护个人隐私安全的、保证个人财富升值的货币，这就是我们的Hcoin（喜币）。在冲出数字货币“春秋群雄“的过程当中，GTV、Gnews、Gettr这些平台将发挥重要的作用，引导更多的用户如何聪明地使用Hcoin（喜币），充分发挥Hcoin（喜币）数字货币的价值。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/00598bb590f0fed805c39ee3930b5115.jpg)图片来源新西兰农场
-除了Hcoin（喜币）之外，我们还会有自己的NFT。英国是世界上做NFT最好的国家，正在和喜联储合作。NFT就是把财富和艺术国际化、空气化、去中心化、分子化，也是未来任何有价值的东西数字化的开始。任何GTV和Gettr的直播，包括Gnews上有价值的信息都可以NFT化，把定价权数字化，打破政府垄断强制使用法币衡量的定价权。
-
-最终的目标是，无需流血和战争，各国箪食壶浆迎接喜联储一统天下。
-
-\*“元宇宙”是由增强现实（AR）、虚拟现实（VR）、三维技术（3D）、人工智能（AI）等技术支持的虚拟现实的网络世界。
-
-\*NFT（Non-Fungible Token）是一种特殊的加密生成的代币，它使用区块链技术与无法复制的独特数字资产进行链接。具有非同质化的代币，具有不可分割、不可替代、独一无二等特点。
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/721281c1341c0f3b8ee310882aac4026.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
