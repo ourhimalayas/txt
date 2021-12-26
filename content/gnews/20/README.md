@@ -2,30 +2,33 @@
 ---
 
 
-## 疫情致西安全面封城，多名官员因防控不力遭惩处
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791934/)
+## 日本制铁起诉三井物产参与中共宝钢侵权
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1791935/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-31.jpg)疫情致西安全面封城，多名官员因防控不力遭惩处 网络图片
-据美国之音12月25日报道，中共国陕西省西安及多地疫情爆发，导致拥有1300多万人口的西安市全面封城，至少有26名各级官员因为防控措施不力遭到当局的问责和惩处。
+#### 撰稿：日本东京方舟农场  海星
 
-新冠疫情最早于2019年在中共国湖北省武汉市被发现，然后蔓延到整个中共国和全世界。中共国在所谓防控措施严格的情况下，一度达到过零感染，全国曾经全面开放，恢复正常生活。只是，既没有防护和治疗的药物，也没有有效的疫苗，只是靠媒体，终究达不到解决病毒的目的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05C6A1D3-D95C-4548-B1B3-AD33302FAA72.jpeg)（图片来源：路透社）
 
-此次疫情扩散，据说由12月4日抵达西安的一个巴基斯坦航班上确诊病例开始，疫情由此迅速扩大，确诊病例持续上升，最终西安封城。中共国欺骗愚弄了国内的百姓，但是，越来越多的人还是知道了病毒来自中共国武汉实验室，并且疫苗是更高级的病毒。中共穷凶极恶，不断释放病毒，对内控制全体国民，对外威胁整个世界。中共不灭，病毒只会越来越多，毒性越来越强，人类社会进入生死关头。
+近期，日本制铁公司就三井物产参与中共宝钢侵害其专利权案，在东京地方法院提起诉讼。
 
-新闻参考链接：[https://www.voachinese.com/a/china-punishes-dozens-of-xi-an-officials-as-city-grapples-with-covid-lockdown-20211225/6369567.html](https://www.voachinese.com/a/china-punishes-dozens-of-xi-an-officials-as-city-grapples-with-covid-lockdown-20211225/6369567.html)
+今年10月，日本制铁对丰田汽车和中共宝钢提起诉讼，指控这两家公司在电动汽车中使用的电磁钢板侵犯了专利权。12月10日，日本制铁将与丰田汽车等公司提起的诉讼范围扩大到负责分销的三井物产。
+
+对此，三井物产的发言人在12月24日表示，已收到日本制铁的起诉书，但不予置评。
+
+*参考链接：*
+
+1. [*https://ec.ltn.com.tw/article/breakingnews/3779509*](https://ec.ltn.com.tw/article/breakingnews/3779509)
+2. [*https://www.nikkei.com/article/DGXZQOUC23D8B0T21C21A2000000/*](https://www.nikkei.com/article/DGXZQOUC23D8B0T21C21A2000000/)
+3. *[https://gnews.org/zh-hans/1594804/](https://gnews.org/zh-hans/1594804/)*
+
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*素材采编：海星*
 
+*编辑：文顺*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*发布：miumiu*
 
  
 

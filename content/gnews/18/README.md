@@ -2,27 +2,48 @@
 ---
 
 
-## 前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1791952/)
+## 为了不让杨贝贝害更多人郭文贵先生要把自己扔出去套狼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1791956/)
 
-翻译：zzballack
-上传：无明逆流
+**郭文贵先生：**我会告诉你，我不接受采访，它会有另外一个版本的出来，不是说播，这是在冬奥会之前的全面计划之一。而且不但播，它下一个你知道他会播什么版本，我要不接受采访的话，它会把我们编辑，编辑是最小的事，它一定会找出人站出来说话，找出来所谓的爆料革命的叛徒。你看它里边讲到了第六招，所有离开郭文贵的都被定为叛徒，都是要追杀。
 
-据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
+邪教的本质要追杀，你不能背叛，他会找他所有的这些叛徒来搞我们。你知道，如果我们，当时我就评估过，我跟律师我问他们，我说如果不接受采访他们会干什么，所有律师说哎呀他们什么也做不了，剪辑剪辑，跟你一样的思路。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4EB08530449.jpg)图片来源：Daily Mail
+我说不对的，我了解共产党，Isobel还有这个VICE还有单伟建他会做出另外一个版本的，什么叫版本，从别人眼里看爆料革命，我们永远没有说话的机会，律师都是很单纯的，执业律师嘛，我说我正面出击，我接受他的采访，这中间我们取消了不下最起码十次以上，最后都就是各种原因病毒啊什么的取消。
 
-这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
+特别我了解了Isobel的背景以后，我说这个女的要么是来放毒来了，那时候都担心放毒，——放毒，第二近身接触别有他意，我们就，我说我要舍不得孩子套不着狼，我要把我自己去套狼去，把我自己扔出去，另外一个阻止他伤害更多的人。
 
-《China Hour》播出的专题报告节目包括中共政府有效地应对了新冠大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
+而且他再搞，他一定会找西方的政界、媒体界，就像那个数据。你看那个很吓人的那个数据在那隔着，郭文贵的影响力够不够大？非常大，而且是跟极右派交集在一起，数据。
 
-与杰里米·亨特育有三个孩子的露西亚·郭来自中国西安市，她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目。该节目自今年9月开始播出，可以在Youtube上看到。
+哇哦，就这个时候吧你能看出来小新，这是西方玩媒体的你知道是什么。就是以一孔之见来证明天下皆如此，就是说我只给你摄像机这么大的真相你就认为百分之百，这就是媒体的力量，也是媒体最邪恶的地方。你看看专家，我找第三家，那个数据一转圈儿你没有注意到那个很大的事儿，我没说话，我没说啊！我Isobel Yeung可没说！这块说专家说的，你看那个转的。
 
-设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于新冠流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权洗白其侵犯人权行为。“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
+所有恨拜登的，所有恨川普的，所有恨极右的，郭文贵是你们的敌人，极右媒体平台、极右数据影响巨大。如果我不采访的话它就会这么干，我就是郭文贵的媒体影响有多大，它会找出N个美国人、澳大利亚人、英国人给你做出说出来，所以你才看到，即使采访了我几个小时她用了也就是几分钟。
 
-五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。这次访问的成果是达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年认识了露西亚·郭，当时她正在为华威商学院 (University of Warwick) 招收中国学生。
+编辑整理：Cris-7；
 
-原新闻：[Jeremy Hunt’s wife presents show on China’s state-run TV ‘that whitewashes Communist Party’s human rights abuse’](https://www.dailymail.co.uk/news/article-10344359/Jeremy-Hunts-wife-presents-Chinas-state-run-TV-whitewashes-Communist-Partys-abuse.html)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
