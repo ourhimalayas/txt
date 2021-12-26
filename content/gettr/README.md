@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 12/23/2021 12:00 AM (UTC)`
+
+2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
+![img](https://media.gettr.com/group4/origin/2021/12/22/23/ea159647-5ab1-41fa-a882-d439785cbffa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@stevebannon 12/26/2021 4:10 PM (UTC)`
+
+Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
+
+---
+
 `@miles 12/26/2021 1:35 PM (UTC)`
 
 12月26号：尊敬的战友们好！
@@ -140,20 +157,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 12月24号：尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考的问题！
 ![img](https://media.gettr.com/group42/getter/2021/12/24/22/7a935cfc-9ffb-e6b3-f4fd-b63f0bcd84c8/out.jpg)
-
----
-
-`@miles 12/24/2021 5:42 PM (UTC)`
-
-12月24号：尊敬的战友们好！文贵衷心的祝全天下的战友和家人平安夜平安！<br/><br/><br/><br/>【七哥，我算了下，Vice视频只用了您大概3分钟的视频，您当时的同步录播时长是1小时55分钟，就是说您97.4%都是他们抓不到任何把柄的，只有2.6%的内容是被他们利用了，说明您当时应对她的采访几乎是无懈可击的，让她无法得逞，完胜！😊】
-![img](https://media.gettr.com/group41/getter/2021/12/24/17/240b660e-912e-ac1a-8720-90b1e71740c0/32136057bc49d10138010396787c7001.jpg)
-
----
-
-`@miles 12/24/2021 1:08 PM (UTC)`
-
-2021年12月24日 文贵大直播：HBO采访真假大相径庭；Omicron病毒感染剧增；北京冬奥会最新重大信息；圣诞节看社会经济环境
-![img](https://media.gettr.com/group17/origin/2021/12/24/12/aec57b4a-2c76-b209-0de6-67abadf680fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
