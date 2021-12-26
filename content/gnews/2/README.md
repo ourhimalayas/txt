@@ -2,78 +2,56 @@
 ---
 
 
-## 12/26/21 香港快讯 国殇之柱被拆走 港大学生会联院会批校方违程序公义
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1793098/)
+## 【Michael.Tonny专栏】医学论文验证郭先生关于伊维菌素预防和治疗中共病毒的说法
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1793155/)
 
-**搜集****/****整理：卡西欧**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1226fenmian.jpg)
-封面素材：立场新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.00-AM.png)
-**1. ****国殇之柱被拆走****   ****港大学生会联院会批校方违程序公义**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-[据【大纪元时报】12月26日讯，香港大学校方日前漏夜拆除纪念「六四天安门事件」的「国殇之柱」，港大学生会联院会25日就此发声明，指国殇之柱早已是校园面貌的一部份，承载港大师生的回忆，批评校方的行动有违程序公义，促请校方尽快交代国殇之柱的去向。](https://hk.epochtimes.com/news/2021-12-26/87238007)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-[有10个港大学会联署声明，包括建筑学会、文学院学生会、经济及工商管理学会、牙医学会、教育学会、工程学会、法律学会、医学会、和理学会社会科学学会。](https://hk.epochtimes.com/news/2021-12-26/87238007)
+灭共者郭文贵先生（MilesGuo）多次在视频直播中提到，伊维菌素（ivermectin）对预防和治疗Covid-19（中共病毒）的有显著作用。
 
-[港大在本月22日通宵拆除国殇之柱，并将国殇之柱「斩件」运走。](https://hk.epochtimes.com/news/2021-12-26/87238007)
+2021年8月16日，由阿根廷、巴西的7家机构和11位学者共同发表的研究论文完全验证了MilesGuo的说法。
 
-[另外，中大及岭大在24日凌晨亦分别拆除校内关于「六四」及「民主」的新民主女神像及六四浮雕，岭大另以灰色油漆遮盖校内的民主女神喷漆画像。城大校方亦以书面形式要求该校学生会收回在校内展示的民主女神像。](https://hk.epochtimes.com/news/2021-12-26/87238007)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.10-AM.png)
-**2. ****城大民主墙现「不能忘记历史」标语　学生会：已约校方商讨移走民女****  ****「一日未有协议结果都不会搬」**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Intensive-Treatment-With-Ivermectin-and-Iota-Carrageenan.png)
 
-[据【立场新闻】12月26日讯，城大署理学生会向《立场》表示，今日（26日）收到校方电邮，双方将在下周开会商讨搬走女神像的事宜，但确实的开会日期则未有定案。学生会强调，立场依然明确，在未有与校方就搬迁问题达成协议前不会搬走。](https://www.thestandnews.com/politics/a-城大民主牆現不能忘記歷史標語-學生會已約見校方下周商議移走民女-强調一日未傾掂都唔會搬走)
+这篇题为《[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)》的论文是由阿根廷图库曼卫生部（Ministry of Health, Tucumán, Argentina）、SI.PRO.SA省卫生系统（Province Health System, SI.PRO.SA, Tucumán, Argentina）、图库曼卫生部卫生研究所（Health Research Institute, Ministry of Health, Tucumán, Argentina）、Ángel C. Padilla临床医院（Clinical Hospital “Ángel C. Padilla,” Tucumán, Argentina）、图库曼医疗急救中心（Medical Center Emergence, Tucumán, Argentina）、巴西莫吉达斯克鲁兹大学研究与技术中心（Research and Technology Center, Mogi das Cruzes University, Brazil）、阿根廷图库曼医学院-高级生物研究所（School of Medicine-Superior Institute of Biological Research (INSIBIO—CCT CONICET), Tucumán, Argentina）等7家机构的11位学者共同完成。
 
-[另外，城大民主女神像旁边的民主墙，今日（26日）出现写有「香港人缺（决）不能忘记历史」的标语，有同学围观拍照。学生会表示，标语并非由学生会张贴，暂时未见校方及保安有进一步行动。](https://www.thestandnews.com/politics/a-城大民主牆現不能忘記歷史標語-學生會已約見校方下周商議移走民女-强調一日未傾掂都唔會搬走)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.20-AM.png)
-**3. USCC****报告剖析中共如何将香港变成警察社会**
+在这项为期4周的临床试验中，总共有234名成人参与者，他们被随机分为1-1对照组（CG，Control Group）117人和试验组(EG，Experimental Group) 117人。该临床试验在世界卫生组织数据库的Covid-19（中共病毒）临床研究试验注册号为[NCT04701710](https://clinicaltrials.gov/ct2/show/NCT04701710)（www.ClinicalTrial.gov）。这些参与者均为经常与受中共病毒感染的患者接触、最容易感染Covid-19（中共病毒）群体之一的卫生人员。
 
-[据【大纪元时报】12月26日讯，今年的中美经济与安全审查委员会（USCC）报告，与去年一样，专章列出香港问题，讨论中共《国安法》实施一年多后，中共如何将一个开放社会变成警察社会。](https://hk.epochtimes.com/news/2021-12-26/47526647)
+下图为临床试验参与者信息
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-Demographic-profile.jpg)
+实验组每7天口服2片6mg伊维菌素（orally 2 tablets of 6 mg every 7 days）和每天喷6次iota-carrageenan喷雾（iota-carrageenan 6 sprays per day），持续4周。所有受试者都完成了研究。所有参与者均通过体格检查进行评估，并在协议基线（protocol baseline）时诊断出 COVID-19核酸检查结果为阴性（negative reverse transcription polymerase chain reaction）。
 
-[报告指出，自2020年中共违反其尊重香港高度自治的国际承诺，强行推进香港《国安法》以来，香港自治权的护栏已遭到破坏。香港立法会沦为橡皮图章，民主派人士被排除在议会之外，司法体系被政治化，中小学课本充斥了大量的「爱国主义」内容，电影也受到了更严苛的审查，自由媒体被迫关闭。](https://hk.epochtimes.com/news/2021-12-26/47526647)
+下图为临床试验最终结果
 
-[对言论、集会和结社自由的广泛限制，使香港从一个开放社会变成了一个警察国家。这种转变直接违反了北京的国际承诺。对《国安法》的担忧，已经成为现实，影响了香港居民从获取信息到他们的行动自由的一切方面。](https://hk.epochtimes.com/news/2021-12-26/47526647)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.30-AM.png)
-**4. ****新议会政治光谱单一****　狄志远：相信中央也失望**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Am-J-Ther-2021-Sep-Oct.jpg)
 
-[据【Now新闻台】12月26日讯，候任立法会议员新思维主席狄志远在本台节目《大鸣大放》上形容，新的议会组成政治光谱单一，相信中央都会失望。他认为中央和特区政府要正视投票率低的问题。](https://news.now.com/home/local/player?newsId=461183)
+A表示实验组和对照组的Covid-19（中共病毒）感染病例数和健康病例数，B表示实验组和对照组中Covid-19（中共病毒）感染后病例的临床状态
 
-[他指自己胜出是意料之外，相信部分得票来自建制派。新的议会近乎「清一色」，重返议会的狄志远形容，自己是唯一的非建制派，他相信这不是中央原本所期望的结果。](https://news.now.com/home/local/player?newsId=461183)
+在服用了伊维菌素的试验组（EG）117人中，仅有4人感染了中共病毒，而没有服用伊维菌素的对照组（CG）117人中，有25人感染了中共病毒。
 
-[至于将来与其他议员如何共处，他相信就个别政策或议题都有合作空间，但暂时不会与其他人「结盟」。](https://news.now.com/home/local/player?newsId=461183)
+对照组中有21名患者有发热症状（fever），而试验组中仅有一名1名患者有发热症状
 
-[以往社福界的立法会议员，都会竞逐或出任福利事务委员会的正副主席，狄志远指，主席经常要管理会议，但他希望能在会议上积极发声，暂时不考虑争取。](https://news.now.com/home/local/player?newsId=461183)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.38-AM.png)
-**5. ****各区共开放****18****间临时避寒中心　须用安心出行或填资料**
+对照组中有19人出现味觉和/或嗅觉障碍（taste and/or smell disturbances），而试验组中没有人出现这种症状
 
-[据【香港电台】12月26日讯，寒冷天气警告现正生效，民政事务总署已在各区开放共18间临时避寒中心，所有人士必须先使用「安心出行」，才获准进入临时避寒中心，获豁免人士必须填写指定表格登记个人资料、联络电话和进入避寒中心的日期及时间，中心职员会核实表格上的登记资料。](https://news.rthk.hk/rthk/ch/component/k2/1626051-20211226.htm)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.48.52-AM.png)
-**6. ****再多三地列为****A****组指明地区　周三起非香港居民不准入境**
+对照组中还有很多人出现高频率的多关节痛（polyarthralgia）、腹泻（diarrhea）、腹痛（abdominal pain）和低氧饱和度（low oxygen saturation）
 
-[据【香港电台】12月26日讯，政府星期三起，指明阿尔巴尼亚、牙买加和北马其顿为A组指明地区，收紧相关抵港人士的登机及检疫要求。](https://news.rthk.hk/rthk/ch/component/k2/1626050-20211226.htm?spTabChangeable=0)
+对照组有1例患者出现急性下呼吸道感染症状和体征
 
-[政府表示，是因应有关地区确认发现Omicron个案，而指明为A组指明地区，在21天内曾逗留当地的非香港居民不准入境。香港居民必须已完成疫苗接种并持认可接种纪录，才可登机回港。抵港后，须在指定检疫酒店接受21天强制检疫，期间接受6次检测，并须于抵港第26天到社区检测中心接受强制检测。](https://news.rthk.hk/rthk/ch/component/k2/1626050-20211226.htm?spTabChangeable=0)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.49.03-AM.png)
-**7. Omicron****传播　全球周日再有逾****1500****班机取消**
+结论：伊维菌素/iota-carrageenan可以通过阻断输入蛋白α/β（importin alpha/beta）来阻止病毒RNA进入细胞核，从而阻止复制，形成了双重病毒屏障（double viral barrier），病毒进入鼻腔（nasal cavity）时，角叉菜胶（carrageenan）在鼻腔中充当粘液溶解剂（mucolytic agent），带负电荷（negative charge）的硫酸化多糖屏障（sulfated polysaccharides）。伊维菌素基于其全身细胞作用（systemic cellular）降低病毒载量，临床试验中显示伊维菌素有非常高的病毒清除率（viral clearance）。
 
-[据【香港电台】12月26日讯，全球航班继续受新型冠状病毒疫情影响，今天再有超过1500班机取消，打乱不少人的圣诞出行计划。](https://news.rthk.hk/rthk/ch/component/k2/1626034-20211226.htm?spTabChangeable=0)
+伊维菌素对Covid-19（中共病毒）的预防和治疗均具有有益作用！
 
-[根据航班追踪网站，平安夜、圣诞日及拆礼物日，已有5900班机取消，几千班机延误，预计情况到星期一持续。航空公司说，变种病毒Omicron快速传播，机组人员确诊或要隔离，人手短缺导致航班取消。](https://news.rthk.hk/rthk/ch/component/k2/1626034-20211226.htm?spTabChangeable=0)
+参考数据：
 
-[中国东方航空今天有350多班机取消，而陕西省西安机场有接近100班机取消。](https://news.rthk.hk/rthk/ch/component/k2/1626034-20211226.htm?spTabChangeable=0)
+[Prophylaxis Covid-19 in Healthcare Agents by Intensive Treatment With Ivermectin and Iota-carrageenan (Ivercar-Tuc)](https://clinicaltrials.gov/ct2/show/NCT04701710)
 
-[另外，450多班进出美国的航班星期日取消，达美、联合及捷蓝航空最受影响。](https://news.rthk.hk/rthk/ch/component/k2/1626034-20211226.htm?spTabChangeable=0)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-10.49.14-AM.png)
-**8.****「宁德时代」罕见暴跌****   ****市值****21****天蒸发三千亿**
+[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)
 
-[据【大纪元时报】12月26日讯，周五（12月24日），中国最大电池制造商「宁德时代」股价罕见暴跌，创近半年来最大跌幅，公司市值一日蒸发超千亿元。在12月初其股价触及历史最高点后，一路震荡下跌，仅21天市值已蒸发约3,000亿元。](https://hk.epochtimes.com/news/2021-12-26/25102275)
+[Un estudio demuestra la respuesta antiviral de la ivermectina en pacientes con COVID-19](https://www.argentina.gob.ar/noticias/un-estudio-demuestra-la-respuesta-antiviral-de-la-ivermectina-en-pacientes-con-covid-19)
 
-[被称为「宁王」的宁德时代，是创业板第一大权重股，也是锂电龙头企业。在其影响的带动下，创业板一度大跌超2%，新能源电池各概念龙头都出现回撤。](https://hk.epochtimes.com/news/2021-12-26/25102275)
-
-[宁德时代在12月份已出现4次日内大跌的情形，宁德时代在12月3日盘中触及692元每股的历史最高股价后，一路震荡下跌。](https://hk.epochtimes.com/news/2021-12-26/25102275)
-
-[10月，安联神州A股基金对宁德时代、恩捷股份减持幅度分别达18.58%和11.92%。对宁德时代的减持，该基金在信披材料中表示，或许是担心股价透支预期。](https://hk.epochtimes.com/news/2021-12-26/25102275)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
