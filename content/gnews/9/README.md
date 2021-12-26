@@ -2,30 +2,39 @@
 ---
 
 
-## 樱花灭共诗——登沧州清风楼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792227/)
+## 龙芯公司创造荒唐“毛诞节”名词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792281/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1452.png)
-清风楼宇阔，
+作者：东京樱花团 – 在远方
 
-凭揽运河春。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-屋角图腾旧，
+12月24日，圣诞节前夕，就在中共当局一再收紧意识形态管控、多地禁止圣诞节活动的同时，有媒体发现，中共国国企——龙芯中科公司——却发布通知，将12月26日称为“毛诞节”，并表示要放假一天。但由于26日是周日，特调整为31日放假一天。
 
-垂杨季节新。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-2-scaled.jpg)
 
-繁华思故国，
+该公司官网的一篇文章称，该公司总裁胡伟武是毛泽东的忠实粉丝之一，表示要用毛泽东思想搞龙芯研发。他还曾引用习近平的标语，表示要“撸起袖子加油干”。
 
-兴废要途津。
+墙内网友对此荒诞举动表示啼笑皆非。评论认为，中共国目前高压的政治环境，是导致这种变态企业文化的直接原因。
 
-独自临高处，
+参考链接：
 
-愁杀踏阁人。
+- [中国龙芯中科公司年底过“毛诞节” 员工放假一天](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/sc-12242021142851.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

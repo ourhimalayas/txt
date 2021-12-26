@@ -2,34 +2,25 @@
 ---
 
 
-## 欧洲即将在经济领域有重大的灭共行动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792034/)
+## 应对中共和朝鲜威胁，日本国防开支续创新高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792147/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
-12月24日，郭先生在大直播中和战友分享了爆料革命有史以来意义最重大的一次成就，即欧洲将在经济领域有重大灭共行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1448.png)
-文贵先生表示，暂时不能透露更多细节，但讲述了此次行动背后的一些故事。称该行动的顺利达成是当年积德行善的结果。在2008年全球经济危机之时，此行动关键人物的家族经营了五代的生意陷入困顿，仅有一面之交的郭先生伸出援手，帮助其扭转了困局。自此以后，该家族企业经营越来越好，并有不少家族子女在英从政。
+#### 撰稿：彩虹 
 
-文贵先生兴奋道，此项行动的达成会对爆料革命的灭共事业起到关键性作用，是属于里程碑式的事件。并称此次欧洲灭共行动可能联动俄罗斯，并积极推进美国和日本，最终形成全球联合灭共的局面。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-40.jpg)图片来源：EMEA Tribune
+12月25日，《国会山报》引述路透社文章，由于中共国持续扩展军力以及北朝鲜扩充其导弹库，日本2022年的国防开支创下新高。
 
-新闻来源：https://gtv.org/video/id=61c5c61e00f9a1191809b5c5
+根据路透社报道，周五，日本政府批准了一项预算，从4月1日开始的财政年度，将为日本军队提供大约470亿美元的资金，该预算还需要得到由首相岸田文雄（Fumio Kishida）的政党控制的议会批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
+该预算金额比前一年增长了1.1%，也是日本连续第十年增加该部分的开支。
 
-总编：飞虹
+文章认为，日本军队预算的增长，源自于两个因素，一个是中共国对台湾的持续威胁和军事挑衅，二是在日本看来，金正恩（Kim Jong Un）领导下的朝鲜也是一个持续的威胁。
 
-编辑：文特
+**新闻来源**
 
-校正/发稿：浪迹天涯
+[Japan to boost military spending amid East Asian threats](https://thehill.com/policy/defense/587300-japan-to-boost-military-spending-amid-east-asian-threats)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

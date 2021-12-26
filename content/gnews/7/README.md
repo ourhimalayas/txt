@@ -2,26 +2,131 @@
 ---
 
 
-## 历史上的今天：戈尔巴乔夫宣读苏联“死亡通知书”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792237/)
+## 人类正处在数字货币代替法币的春秋时代
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792301/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1454.png)[图片来源](https://www.dw.com/zh/%E5%8E%86%E5%8F%B2%E4%B8%8A%E7%9A%84%E4%BB%8A%E5%A4%A9%E6%88%88%E5%B0%94%E5%B7%B4%E4%B9%94%E5%A4%AB%E5%AE%A3%E8%AF%BB%E8%8B%8F%E8%81%94%E6%AD%BB%E4%BA%A1%E9%80%9A%E7%9F%A5%E4%B9%A6/a-46859765)
-1991年12月25日，正是圣诞佳节，然而莫斯科的红场上是冷寂一片，克里姆林宫第四号办公室里更是气氛凝重。这间办公室的内部陈设完全按照国家领导人真正的办公室仿造，只是相比之下空间更大，更加适合录制电视讲话。晚上7点，国家电视台将画面切换到这间办公室，墙面上贴着绿色的锦缎，一张毫无装饰的办公桌后，坐着时年60岁的戈尔巴乔夫，苏联最后一个国家领导人。他是一个改革者，同时也被变革的大潮所淹没。“亲爱的同胞们”，戈尔巴乔夫开始自己作为苏联总统的最后一次讲话，“造化弄人，当我接任国家掌舵手的时候，这个国家的境况已经非常淡。”面对摄像机，面对全国和全世界，戈尔巴乔夫宣布辞去苏联总统一职。
+[https://gtv.org/video/id=61c6f42443ccb726a08b1444](https://gtv.org/video/id=61c6f42443ccb726a08b1444)
 
-事实上，这个过渡性职务也只存在了一年多的时间，戈尔巴乔夫也是历史上唯一的苏联总统。当时《时代周刊》（Time）把他称作“没有国家的领导人”（leader without a country）。旧的计划经济体制已经崩溃，但新的市场经济还远远没有具备有效运行的能力。“我们拥有丰富的资源：土地、石油和天然气，上帝也赐予了我们聪明才智。然而我们的生活与发达国家相比却每况愈下，差距越拉越大。原因很明显，整个社会被官僚主义的指挥体系所束缚”，戈尔巴乔夫在讲话中说，“我深知，在这样一个国家，要想大胆进行改革，是需要冒很大风险的。我们的社会获得了自由。这是我们最大的成就，尽管目前还不能够完全地去实现它。但我们没有学会如何去面对自由。”
+**郭文贵
+Miles Guo**
 
-随着戈尔巴乔夫合上绿色的演讲稿文件夹，他和苏联一起从世界历史的舞台上谢幕。晚上7点38分，红色的苏联国旗在克里姆林宫上空降下，取而代之的是白蓝红三色俄罗斯国旗。当天，已经掌握实权的俄罗斯总统叶利钦就接管了对于莫斯科战略导弹部队的控制系统，也接过了对核武器库的最高指挥权。如果说在那之前，苏联早已经名存实亡，那么这一晚就相当于出具了正式的“死亡通知书”。
+把所有的去中心化的数字货币的未来
+The future of all decentralized digital currencies
 
-已故俄罗斯历史学家阿法纳斯耶夫（Juri Afanassjew）则一直坚信，苏联的解体并非“一人之功”：“从当时苏联的状况来看，它是没有任何前途的，迟早要走上终结。只不过这个终结的方式可以有很多种：比如说我们看到的这种大崩溃。但是：也许这一切还可以进行得更有序一些，假如不是因为这两个野心家碰到了一起：叶利钦和戈尔巴乔夫！”
+也就是今天刚才说跟法币一定会同时存在一段时间, 代替法币
+which is I said earlier today that it would definitely exist at the same time as fiat currency for a period of time then replace it
 
-在俄罗斯民众当中，回首当年苏联的解体，很多人的心情是复杂而矛盾的。1991年的时候，人们对于市场经济、民主和西方世界充满了期望和憧憬。然而全新的时代给他们带来的，除了自由之外，还有多年的经济困境。俄罗斯作家叶夫图申科（ Jewgeni Jewtuschenko）的祖父曾经在斯大林时期被批为人民公敌并遭监禁，他自己也被前苏联情报机构克格勃指责“从事反对苏维埃活动”，回忆起1991年12月25日，苏联国旗从克里姆林宫降下的时刻，他写道：“永别了，我们的红旗。你曾经是敌人，也是兄弟。你曾是战壕里的同志，整个欧洲的希冀；但你也是一座红色的铁幕，那后面藏着可怕的劳改集中营。”
+实际上我告诉大家
+Actually I’m telling everyone
 
-信息来源： [历史上的今天：戈尔巴乔夫宣读苏联“死亡通知书”](https://www.dw.com/zh/%E5%8E%86%E5%8F%B2%E4%B8%8A%E7%9A%84%E4%BB%8A%E5%A4%A9%E6%88%88%E5%B0%94%E5%B7%B4%E4%B9%94%E5%A4%AB%E5%AE%A3%E8%AF%BB%E8%8B%8F%E8%81%94%E6%AD%BB%E4%BA%A1%E9%80%9A%E7%9F%A5%E4%B9%A6/a-46859765)
+这次的数字货币的区块链币的到来, 会真正的人类第一次从上万年来开始
+This arrival of the digital currency with the blockchain will truly start for the first time in tens of thousands of years,
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+第一次和平地、迅速地、不用流血地改变货币的属性
+the first time to change the attributes of currency peacefully, quickly and without bloodshed
+
+从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝卷
+From the past the Kingdom of Spain, the Kingdom of Portugal, including the Roman Empire, our China’s Yuan Datou and the Qing Dynasty
+
+所有的什么、所有的货币
+all currencies
+
+你可以看到, 每个国家、每种货币
+that as you have already seen, every country, and each kind of currency
+
+就是说确定为你Eric的面包多少钱的时候，用啥来衡量的时候
+that means when using whatever to determine how much it will be for Eric’s bread
+
+一定是更朝换代，尸骨遍野
+it would definitely be the change of dynasties with dead bodies and Skull and Bones everywhere
+
+永远是
+and always will be
+
+这次是所有的定价权就是CPI要回到零
+This time all the pricing power that is, the Consumer Price Index (CPI) needs to return to zero
+
+现在已经不是100了
+Now it’s not even 100 anymore
+
+现在已经达到10万(4万)去了
+it has reached to 40,000
+
+大家看到已经达到4万了
+everyone may have seen that it has already reached 40,000
+
+CPI100现在已经达到4万到5万了
+CPI100 has now reached 40,000 to 50,000
+
+就是过去订面包是一块钱，实际上现在就是5万块钱
+which means that in the past it was $1 to buy bread, but in fact it is now $50,000 to buy bread
+
+你就这么简单的很吓人的
+It’s just that simple but very terrible
+
+它只有砸回来
+The only thing it could do is smashed it back
+
+砸回来拿什么来量呢？
+What to use for measuring when it’s smashed back?
+
+那谁决定(怎么)算呢？
+So who decides (how) to count?
+
+那就是枪、刀、死人
+That is weapons and deaths
+
+而且一定你看到这些币都不会存在，一定是的
+And for sure that none of the coins you see will exist, it definitely won’t be
+
+在这个战争再死（人）全人类就完了
+If people continue die in world war, all mankind would be over
+
+我告诉大家从去年到今天，我们人类就在这场战争中
+I’m telling everyone that our humans have been in this war from last year to today
+
+这就是新中国联邦今天最简单、最直接、最明白地告诉你
+This is our New Federal State of China telling you today in the simplest, most direct and clearest way
+
+人类已经处在第三次的数字和货币代替法币,
+that mankind is already at the third time of digital and currency replacing Fiat currency
+
+和人类上一个数字货币的春秋时代
+and it’s the Spring and Autumn Era of a digital currency on mankind
+
+同时是世界上走入了三国的数字货币的时代
+At the same time, the world has entered the era of digital currencies of the
+Three Kingdoms period
+
+我们是其中一级
+We are one of the top class
+
+还有一个你要做好准备
+There is one more that you need to be well prepared
+
+你手里的东西都一毛不值
+which is everything in your hand will be worthless
+
+* * *
+
+Date: 12/20/2021
+原视频标题: 人类正处在数字货币代替法币的春秋时代
+Human Beings Are Currently in a Situation of The Spring And Autumn Era Which Digital Currency is Replacing Fiat Currency
+原视频日期：2021/12/19
+原视频链接: [**https://gettr.com/post/pkd1tz5504**](https://gettr.com/post/pkd1tz5504)
+任务编号：KC367（3314）
+视频时间段 : 0:00-2:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
