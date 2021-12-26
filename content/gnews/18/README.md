@@ -2,24 +2,35 @@
 ---
 
 
-## 2021年12月25日郭先生盖特 — 视频盖特1「6分46秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1792359/)
+## 民意调查：72%的美国人表示不信任脸书对用户隐私数据的保护
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792381/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
+据《Breitbart》记者：LUCAS NOLAN，2021年12月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3338.png)图片源自breitbart
+根据最近的一项民意调查，72%的美国人不相信Facebook的数据。
 
-校对：洛杉矶盘古农场 — Antsee-GTV
+据《华盛顿邮报》报道称 ，最近沙尔学校的一项民意调查发现，大多数美国人不相信Facebook和其他社交媒体平台会保护个人信息，并认为有针对性的广告令人讨厌且具有侵入性。该调查于11月对1,122名美国成年人进行了随机抽样，调查发现，虽然许多美国人承认大量使用社交媒体，但64%的人表示政府应该采取更多措施来限制和监管大型科技巨头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1455.png)Facebook 联合创始人、董事长兼首席执行官马克·扎克伯格（Alex Wong/Getty Images 摄）![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1456.png)街头艺术家萨博嘲笑谷歌首席执行官桑达尔·皮查伊 (unsavoryagents.com)
+大多数美国人表示，他们怀疑互联网巨头是否会负责任地处理他们的个人信息和数据。他们怀疑，科技公司没有为用户提供足够的控制权，以决定他们在使用平台时如何被跟踪和监控。
 
-Video link: [https://gettr.com/post/pkm0rvf160](https://gettr.com/post/pkm0rvf160)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0EC0A3B8-77EE-4BDC-B827-58C997270705.jpeg)
-尊敬的战友们好，战友们好。这是我昨天晚上睡觉前发的面，我和的面 — 为了今天圣诞节蒸馒头，你看看。我看看啥样了，这是 … 哇，发好了，发好了！看看这个，看到这面发了吗？发的非常好！我要把这个再发一下。
+72%的美国用户表示他们不信任Facebook，同时也有63%的用户不信任中共国公司 TikTok。
 
-用了600克的面，放了大概6克发酵粉，600克牛奶。昨天晚上大概在10点钟「开始发面的」。哇，真好。我一看到白面就兴奋 — 小时候家里有白面是多幸福的事啊，是多幸福的事啊？现在的人呐都不认真，都不知道啥叫福中福咯，是不是兄弟姐妹们？现在的人谁知道这白面的好处啊？吃白面还能增肥。
+调查进一步指出，美国人也不信任Facebook旗下的WhatsApp和谷歌旗下的YouTube。大众对谷歌、微软和苹果的反馈也差强人意。亚马逊的信任系数似乎略高，有53%的人表示他们至少信任该公司“相当多”。应该指出的是， 《华盛顿邮报》由亚马逊创始人杰夫-贝索斯所有。
 
-真棒！我今天要蒸馒头，兄弟姐妹们。你们可以从这「个角度」就能看得更清楚。这蒸出来的馒头会又劲又好。这个时候要放点干面粉，再折一折（揉一揉），蒸出来的馒头未来就像杆子馍一样。你看我要再放点干面粉，这个面就叫戗面馍，这馒头会更加好吃！
+只有10%的受访者表示 Facebook 对社会有积极影响，而56%的人表示它有负面影响，33%的人认为其影响既非积极也非消极。
 
-做饭做的是时间，耐心，要有基本的常识。太棒了！真筋「道」呐，这面现在看上去。哇，摁都摁不动啊 — 这样蒸出来的馍馍才有劲道，才好吃，否则软塌塌的。你看现在很多人做的馒头出来太软了。一个个都不愿意用劲，不愿意用时间，对吧？这就麻烦了。
+大约十分之七的美国人表示，他们相信大科技公司的移动设备正在以他们不同意的方式监听他们。
 
-你看我们家厨师还睡觉呢。所有厨师都睡觉呢我都起来干活了，连保镖都吓一大跳 — 咱这勤劳的人呐！好嘞～让它再醒发一会。啥都不说了，等会给你们看蒸馍，等会再分享蒸馍。
+文章来源：[**https://www.breitbart.com/tech/2021/12/24/poll-72-of-americans-say-they-distrust-facebook-with-their-data/**](https://www.breitbart.com/tech/2021/12/24/poll-72-of-americans-say-they-distrust-facebook-with-their-data/)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

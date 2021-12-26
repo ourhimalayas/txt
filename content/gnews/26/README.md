@@ -2,39 +2,27 @@
 ---
 
 
-## 龙芯公司创造荒唐“毛诞节”名词
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792281/)
+## 澳洲悉尼一家医院向400多名新冠病毒检测者发送了错误的检测信息
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1792303/)
 
-作者：东京樱花团 – 在远方
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-41.png)图片来自网络
+澳洲悉尼圣文森特医院星期六晚上向400多名接受新冠病毒测试的人士发送了错误的信息，通知他们的测试结果为阴性，但实际上，他们的测试结果为阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+该医院在星期日发现错误后，立即开始联系受影响人员，通知他们，必须立即进行隔离。错误是由于人为因素造成的。
 
-12月24日，圣诞节前夕，就在中共当局一再收紧意识形态管控、多地禁止圣诞节活动的同时，有媒体发现，中共国国企——龙芯中科公司——却发布通知，将12月26日称为“毛诞节”，并表示要放假一天。但由于26日是周日，特调整为31日放假一天。
+错误的信息给新冠病毒感染人数急剧增加的新洲带来了混乱。新洲目前新冠病毒感染病例达到了6934 例感染的新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-2-scaled.jpg)
+接到错误信息的人士是在12 月 22 日至 12 月 23 日期间接受了新冠测试。这些人当中，可能有人正在旅行，或参加了悉尼至霍巴特的帆船比赛。
 
-该公司官网的一篇文章称，该公司总裁胡伟武是毛泽东的忠实粉丝之一，表示要用毛泽东思想搞龙芯研发。他还曾引用习近平的标语，表示要“撸起袖子加油干”。
+消息来源：
 
-墙内网友对此荒诞举动表示啼笑皆非。评论认为，中共国目前高压的政治环境，是导致这种变态企业文化的直接原因。
+[St Vincent’s Hospital apologises after 400 sent Covid text wrongly telling them they are negative](https://www.news.com.au/national/nsw-act/nsw-records-6394-new-covid19-cases-on-boxing-day/news-story/5597110356b6f45ecda751a1e3f02c8b)
 
-参考链接：
-
-- [中国龙芯中科公司年底过“毛诞节” 员工放假一天](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/sc-12242021142851.html)
+[Hundreds of positive-COVID were told they were negative in laboratory text message blunder](https://www.skynews.com.au/australia-news/coronavirus/hundreds-of-positivecovid-cases-told-they-were-negative-in-laboratory-blunder/news-story/fc6191e68017d323de7fbbafc527822b)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
