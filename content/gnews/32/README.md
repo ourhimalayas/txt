@@ -2,31 +2,34 @@
 ---
 
 
-## 2021年加密货币交易所基金（ETF）资产规模达630亿美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791017/)
+## Omicron激增下CDC缩短了医护人员的隔离时间
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1791033/)
 
-**据《Baystreet》工作人员2021年12月22日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ax2nm-o5h58.jpg)**图片源自Baystreet**
-随着以加拿大为首的世界各国正式认可这种投资工具，加密货币交易所基金 (ETF) 在2021年吸纳资金创下新高。
+翻译:里奇
 
-根据《彭博社》汇编的数据，全球加密货币ETF数量在过去一年增长一倍多，从2020年底的35个增至80个。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-13.jpg)TAMI CHAPPELL/AFP via Getty Images
 
-2021年，加密货币ETF持有的资产飙升至630亿美元，而年初仅为240亿美元。
+路透社 12 月 23 日 – 美国疾病控制与预防中心周四表示，在美国，COVID-19 检测呈阳性但无症状的医护人员可以在隔离 7 天后重返工作岗位，前提是他们的检测呈阴性。
 
-加拿大是首批批准和监管加密货币ETF的国家。然而，美国批准的 ProShares比特币策略ETF (BITO)已被证明是最受欢迎的加密货币ETF，在10月份运营的第一个月就吸引了12.6亿美元。
+新指南将隔离时间从之前建议的 10 天缩短，CDC 表示这是为 Omicron 病例的预期增长做准备。CDC 周一表示，目前 Omicron 占美国冠状病毒感染的 73%。
 
-分析师预测，随着数字货币的持续流行，年轻的散户投资者将在2022年继续注资加密货币基金。
+CDC 表示，如果因 COVID-19 导致人员短缺，隔离时间可以进一步缩短，并补充说，已完全接种疫苗（包括加强疫苗）的医护人员无需在高风险暴露后在家隔离。
 
-**文章来源**：[https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021](https://www.baystreet.ca/cryptonews/151/Assets-In-Cryptocurrency-Funds-Reached-63-Billion-US-In-2021)
+然而，全国护士联合会称削弱对雇主的隔离指导是一个危险的决定，并要求 CDC 维持其现有指导。
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+“面临可能是最具破坏性的 COVID-19 激增，目前此种削弱 COVID-19 的指导政策，只会导致进一步的传播、疾病和死亡” 全国护士联合会主席 Triunfo-Cortez 说。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+白宫医学顾问安东尼·福奇 (Anthony Fauci) 周二表示，美国卫生当局正在考虑缩短对 COVID-19 检测呈阳性的美国人建议的 10 天隔离期。
+
+**参考资料：**[reuters][CDC cuts quarantine time for healthcare workers amid Omicron surge](https://www.reuters.com/world/us/cdc-cuts-quarantine-time-7-days-healthcare-workers-amid-omicron-surge-2021-12-23/)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 
