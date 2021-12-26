@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/26/2021 1:35 PM (UTC)`
+
+12月26号：尊敬的战友们好！
+![img](https://media.gettr.com/group20/getter/2021/12/26/13/2543e1b2-cd4e-073d-f330-d8d42501a1ac/out.jpg)
+
+---
+
 `@miles 12/25/2021 5:05 PM (UTC)`
 
 2021年12月25日 文贵大直播 🎄圣诞特别节目🎄
@@ -147,13 +154,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 2021年12月24日 文贵大直播：HBO采访真假大相径庭；Omicron病毒感染剧增；北京冬奥会最新重大信息；圣诞节看社会经济环境
 ![img](https://media.gettr.com/group17/origin/2021/12/24/12/aec57b4a-2c76-b209-0de6-67abadf680fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/24/2021 12:54 AM (UTC)`
-
-12/23/2021 Miles Guo: By agreeing to be interviewed by VICE, Miles Guo sacrificed himself as the bait to show the world the true face of the self-proclaimed Western MSM - They are arrogant and hooligans; HBO/VICE is so morally broken that it has no bottom line, nor does it comply with the basic principles of the media, and what they have done will surely be the negative example for future media professionals<br/><br/>12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸；HBO/VICE已堕落到毫无底线、不遵守媒体基本原则，他们的所作所为未来一定会成为媒体专业的反面教材<br/>
-![img](https://media.gettr.com/group16/getter/2021/12/24/00/e8971f28-acdc-f9f7-0ff6-415ea8877c24/out.jpg)
 
 ---
 
