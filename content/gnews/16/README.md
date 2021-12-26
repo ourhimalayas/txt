@@ -2,34 +2,37 @@
 ---
 
 
-## Omicron激增下CDC缩短了医护人员的隔离时间
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1791033/)
+## 英國數據顯示，接種兩劑及三劑疫苗的人們更有可能感染 Omicron變種病毒
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1791074/)
 
-翻译:里奇
+作者: 紐約香草山農場教育部 – 獨行者Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
+根據英國國家統計局最近發布的數據，接種兩劑和三劑中共病毒疫苗的人，有更大的機會感染 Omicron 變種。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-13.jpg)TAMI CHAPPELL/AFP via Getty Images
+數據由 Daily Specific 的威爾 · 瓊斯 (Will Jones) 總結。 結果表明，接種過兩劑疫苗的人比起未接種疫苗者，感染Omicron 的可能性高2.3 倍，而接種三劑的人感染這種變體的可能性更是高達4.5 倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-25.jpg)
+不管人們對疫苗的看法如何，這些數據完全推翻了 Omicron 疫情是在“未接種疫苗者之間的大流行”的說法。 瓊斯的對於 NHS 醫院因未接種疫苗而不堪重負的推論並沒有任何實際證據支持。
 
-路透社 12 月 23 日 – 美国疾病控制与预防中心周四表示，在美国，COVID-19 检测呈阳性但无症状的医护人员可以在隔离 7 天后重返工作岗位，前提是他们的检测呈阴性。
+儘管如此，英國衛生部長仍把這新一波的大流行怪罪於於未接種疫苗的人，並埋怨他們佔用了許多醫院病床，譴責他們對社會造成的損害。
 
-新指南将隔离时间从之前建议的 10 天缩短，CDC 表示这是为 Omicron 病例的预期增长做准备。CDC 周一表示，目前 Omicron 占美国冠状病毒感染的 73%。
+郭文貴先生和爆料革命的情報在近一個月前（11月28日直播）就已經準確預測，Omicron變種將會是主要在已接種疫苗者之間的傳播。一個人接種的疫苗越多，他/她就將會越危險。 美國疾控中心此前已曾承認，大多數感染 Omicron 的人都“已經完全接種了疫苗”，這進一步證明疫苗使人們更容易感染病毒。 這再次推翻了西方各國醫療權威所聲稱的”這次疫情是由未打疫苗的人引起的”說法。
 
-CDC 表示，如果因 COVID-19 导致人员短缺，隔离时间可以进一步缩短，并补充说，已完全接种疫苗（包括加强疫苗）的医护人员无需在高风险暴露后在家隔离。
+参考来源：[英國數據顯示，接種兩劑及三劑疫苗的人們更有可能感染 Omicron變種病毒](https://gnews.org/zh-hans/1785153/)
 
-然而，全国护士联合会称削弱对雇主的隔离指导是一个危险的决定，并要求 CDC 维持其现有指导。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-“面临可能是最具破坏性的 COVID-19 激增，目前此种削弱 COVID-19 的指导政策，只会导致进一步的传播、疾病和死亡” 全国护士联合会主席 Triunfo-Cortez 说。
+编辑/校对/发稿：Hetangyuese
 
-白宫医学顾问安东尼·福奇 (Anthony Fauci) 周二表示，美国卫生当局正在考虑缩短对 COVID-19 检测呈阳性的美国人建议的 10 天隔离期。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**参考资料：**[reuters][CDC cuts quarantine time for healthcare workers amid Omicron surge](https://www.reuters.com/world/us/cdc-cuts-quarantine-time-7-days-healthcare-workers-amid-omicron-surge-2021-12-23/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-* * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 
