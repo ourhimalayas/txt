@@ -2,38 +2,41 @@
 ---
 
 
-## 中共国地方债务 中央不救助
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792282/)
+## 美NBC为冬奥会转播预热同时北京为运动员感染病毒进行实战演练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792284/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-据中共媒体消息，12月16日，国务院新闻办公室举行国务院例行政策吹风会。财政部副部长许宏才表示，要坚决遏制地方隐性债务增量，稳妥化解隐性债务存量，坚持中央不救助原则，做到“谁家孩子谁抱”。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/Ogr2peewn1D7ftZz2D-w3wV1P8NVLaST5Nunbzq8hn6baVw5QEBFvUAbPWSsyUQ4975e3gLTxLOBRi-RGiYR2-Vypwi7EyAk3gTlaC2dBeBuilFx51jbnP-csludI0SlueHhG5mW)[*图片来源*](https://posts.careerengine.us/p/61bae880aa1de31ec9ee5a45)
+**美国全国广播公司（NBC）各平台做好了北京冬奥会直播准备，并希望将美国运动健儿争金夺银的好故事带给美国观众。但愿带给美国观众的是金牌而不是中共病毒 Omicron。世界正在加入中共制造的持续的大流行中，中共将做好“关门打狗”的准备，把奖牌和病毒分发给运动员，并借此展示习近平（习太阳）治理病毒控制世界的能力。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-2.jpg)
+据中共国[新华社](http://m.news.cn/2021-12/26/c_1128201744.htm)26日消息称，“美国圣诞节期间，美国全国广播公司（ NBC）各平台安排直播了多场赛事以烘托节日气氛，同时为北京冬奥会的转播预热。”据称， “北京冬奥会比赛中，美国运动员将和来自世界各地的顶尖高手切磋较量，我们期待把美国运动健儿争金夺银的好故事带给美国观众。”但愿带给美国观众的是金牌而不是 Omicron中共病毒。
 
-据悉，中共地方政府举债度日由来已久。它们发债融资大搞基础建设，拉动地方GDP，自己则借机升官发财。但债务到期兑付之时，地方政府则无力还债，坐等中央印钱护航。据一些研究机构的估计，到2021年10月份，国内地方政府隐性债务规模约为40万亿元人民币。
+消息称，25日NBC直播了美国跳台滑雪项目的国内选拔赛，同时还播放了北欧、加拿大等国冬奥选拔赛的赛事集锦。此外，本周NBC还直播了美国女子冰球的热身赛以及高山滑雪的部分赛事。
 
-债务规模的持续增加隐藏了巨大的违约风险，评论人士认为，财政部明确表示不救助，就是为即将到来的违约潮作准备。一旦这一天到来，中共国面临的，将是经济的彻底崩塌。
+另据消息称，12月25日，日本冰舞运动员小松原美里和小松原尊以178.17分的总成绩在“[全日花样滑冰锦标赛](http://www.news.cn/sports/2021-12/26/c_1128201388.htm)”获得通往北京冬奥会参赛资格。
 
-参考链接：
-
-- [中共国地方债务，中央不救助](https://gnews.org/zh-hans/1788370/)
-- [推高地方债的腐败官员.国内隐性债务现在规模大概在40万亿元！](https://xw.qq.com/amphtml/20211219A0490Y00)
+- ***延展阅读：***[***总部位于斯坦福的 NBC Sports 将于 12 月 31 日关闭 NBCSN***](https://www.ctinsider.com/business/article/Stamford-based-NBC-Sports-to-shut-down-NBCSN-on-16585897.php)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+众所周知，NBC是奥运会转播商之一，隶属于美国传媒巨头康卡斯特公司。除了NBC，康卡斯特还拥有环球主题公园及度假区公司，其中就包括今年9月开园的北京环球度假区。北京环球度假区是世界第五个、亚洲第三个环球影城主题公园，也是迄今为止规模最大的环球影城项目。”
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+然而，康卡斯特公司又棣属于美国全国广播公司——比尔盖茨的领地，没错就是他，[比尔盖茨](https://www.gatesfoundation.org/about/leadership?division=Executive%20Leadership)——撒旦的代言人，在中共病毒（Covid-19）和中共病毒疫苗上和中共撒旦政权合作并为其背书，可谓黑暗之神再次借助奥运降临到北京。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ***延展阅读：***[***“呼叫总指挥，延庆冬奥村出现疑似新冠病毒感染者” – 北京为运动员感染病毒进行实战演练***](https://posts.careerengine.us/p/61bae880aa1de31ec9ee5a45)
+
+
+- ***延展阅读：***[***北京冬奥组委｜冬奥期间出现阳性病例将是大概率事件***](https://3g.163.com/dy/article/GRTGC2770549OYCV.html)
+
+
+美国全国广播公司（MSNBC）的企业文化已经完全背离文明世界的普世界价值观，正如该公司一名62岁著名主播布赖恩·威廉姆斯 (Brian Williams) 刚宣布退出MSNBC所宣称的那样，他的辞职代表了一名“[醒来的美国人” “对国家现状有了自己的看法”](https://www.usatoday.com/story/entertainment/tv/2021/12/09/brian-williams-last-show-msnbc-11-th-hour-host-leaving/6445387001/) 。他在最后一档告别节目中对美国的未来发出了严厉警告：“最大的担忧是我的国家”，他补充说，“美国城镇边缘的黑暗已经蔓延到主要道路。”那些由他们的选民选出、向宪法宣誓的成年男女，已经决定加入暴徒，成为他们本不该成为的人。
+
+世界正在持续陷入中共病毒大流行，那些加入中共“疫苗暴徒”们的全球精英主义者们将为他们所支持的“北京冬奥”付出代价。因为共产党已经说过，参加冬奥会的运动员感染病毒是“大概率事件”。“共产党一定会让你染上，感染这个病怎么处理就是我说了算，处理的伟大，就体现习太阳（习近平）治理世界的能力，以及共产党的‘伟大的’协调能力和社会主义民主集中制的‘优越性’。”（[2:11.27时段了解更多](https://gettr.com/post/pkjcxzd8f5)）
+
+2021年12月26日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
