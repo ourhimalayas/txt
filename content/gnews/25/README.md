@@ -2,31 +2,26 @@
 ---
 
 
-## 一艘全员接种的美海军战斗舰爆发冠状病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792521/)
+## HBO Vice炮制虚假采访背后的真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792526/)
 
-作者：纽约香草山文艺部 宁文静
-
+作者：纽约香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月24日，郭文贵先生在直播中继续揭露HBO Vice炮制虚假采访的险恶用意。HBO与中共里应外合，在冬奥会之前大肆用虚假报道，通过歪曲抹黑新中国联邦和爆料革命，为进入中共国市场，向中共交纳投名状。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午8.33.33.png)
+HBO作为唯一一个没有广告的平台，公开估值2000亿美元，实际价值4000亿美元，背后巨大的资本全部是靠欺骗，靠出卖良知，出卖政治得来的。HBO的股东TPG、索罗斯、黑石，以及中共特务单伟健，是中共在海外最高级别的潜伏势力。
 
+中共联合HBO的诋毁行动经过周密策划，即使郭文贵先生拒绝采访，HBO还是会制造其它污蔑爆料革命的视频或报道。郭先生正面出击，把自己作为“诱饵”，让中共的诡计充分暴露。HBO Vice的采访长达几个小时，终片却只采用三分钟，说明因为爆料革命为真不破，郭先生的回答无懈可击，让HBO的构陷无法得逞。
 
+HBO虚假报道事件会让西方更清楚地认识到，共产党是如何渗透和操纵西方媒体，进行歪曲事实和虚假宣传。HBO为中共洗地，污蔑爆料革命和海外华人，最终一定会成为全世界的敌人，受到法律的审判。
 
-12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
+参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-8.43.47-PM.png)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
-
-据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
-
-对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
-
-参考链接：[A U.S. Navy combat ship is stranded in Guantánamo Bay with a virus](https://www.nytimes.com/2021/12/25/world/navy-ship-covid-guantanamo-bay.html?smid=tw-nytimes&amp;smtyp=cur)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+总编：正义的小新
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,9 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
