@@ -2,37 +2,32 @@
 ---
 
 
-## 中共派HBO女记者诋毁郭文贵旨在掩盖“灭白计划”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1791380/)
+## GTV新闻访谈简报|2021年12月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1791760/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-8.png)
-**采访郭文贵的HBO记者试图把“这个病毒来自中共国、中共有灭白计划”的爆料说成是郭文贵散布的恐怖、虚假信息，还试图把新中国联邦追随者打成“美国的敌人”。这种虚假指控对于一个媒体等于自掘坟墓。当这些虚假指控被世界证实之时，HBO和Vice将成为全世界的敌人，和中共一同埋葬。**
+作者：香草山翻译部
 
-新中国联邦[郭文贵](https://www.gettr.com/streaming/pkjcxzd8f5)先生于美国当地时间12月24日的大直播中再次谈到伊萨贝拉（ Isobel ）对其本人的虚假报道的严重性，称 Isobel 的采访最后一个杀手锏是要把“这个病毒来自中共国，中共有灭白计划”的爆料说成是郭先生的虚假宣传。而这才是她的“重点”。
-
-“伊莎贝拉当时说这话的时候，表情和肢体语言很紧张。”郭先生说，并认为“接受她们的采访是对的。” 因为他们这次是群狼作战，因为郭先生的出现引出单伟建、索罗斯、迪斯尼（集团）、布拉克斯东等中共和西方背后的力量。要知道伊萨贝拉这次的采访和动机绝不是“共产党一个人玩的”，当你看到HBO的股东结构包括索罗斯等人时，你就能看得出来，这是共产党全面而集体的行动。”（[1:52.03时段](https://gettr.com/post/pkjcxzd8f5)）
-
-- ***延展阅读：***[***HBO Vice 记者Isobel 模仿忠字舞，要把自己身心献给中国共产党***](https://www.gettr.com/post/pkjn4w6e39)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-“伊萨贝拉的这次采访，会把整个HBO彻底毁掉”，郭先生说。因为爆料革命知道她们造假新闻，所以在她采访时有自己的现场录像。届时会以对比的形式发布出来，让人们自己看谁在撒谎？问一问，他们为什么要撒谎？当西方世界最后找到病毒真相时，发现共产党真有“[**灭白计划**](https://gnews.org/zh-hans/tag/%E4%B8%AD%E5%85%B1%E7%81%AD%E7%99%BD%E8%AE%A1%E5%88%92-2/)”的时候，HBO和Vice 对郭文贵先生的虚假采访诋毁的事不用我们说，他们就会成为全世界的敌人，而且新中国联邦说的病毒真相一定会得到确认。一个不容忽视的事实就是“冬奥会之后，Omicron会横扫西方世界，病毒会在迅猛增长。”这会促使西方世界去了解真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1225text-SC.png)
+校对：Stay文苑
 
-郭先生几乎不接受任何媒体采访，之所以接受HBO采访的另一个目的还在于“阻止她伤害更多的人”。因为郭先生认为，如果不接受采访，她一定会找西方的政界、媒体界，把郭先生塑造成美国的敌人，无限放大影响力。她会用“数据”说话，让所有人知道郭文贵的影响力非常大，而且是跟美国极右派交集在一起。郭先生说，“这就是西方玩媒体的手法，以一孔之见，来证明天下皆如此。”这就是邪恶媒体的力量，也是媒体最容易毁掉一个人的手段之一。
+编辑：Stay文苑
 
-- ***延展阅读：***[***中国共产党的意识形态和全球野心***](https://trumpwhitehouse.archives.gov/briefings-statements/chinese-communist-partys-ideology-global-ambitions/)
-- ***延展阅读：***[***中共威胁全球和平与安全***](https://2017-2021.state.gov/the-chinese-communist-party-threatening-global-peace-and-security/index.html)
+发稿：Stay文苑
 
+视频参看：[12.25  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c7c54f00f9a119180ade65)
 
-伊萨贝拉真实目的不仅仅是要彻底抹杀、诋毁郭文贵先生，而且有意把华人参与1月6日支持美国前总统川普的集会绑在一起。她以制作前总统川普的纪录片为由骗取爆料革命战友接受采访，说爆料革命追随者和华人参与了这场“国会山前的暴乱” 。这是一场彻头彻尾的虚假且狠毒的阴谋，美国法院都没有将1月6日的川普支持者活动定为暴乱，都是诸如CNN等一些左翼主流媒体的虚假诋毁，她们的目的就是挑起种族矛盾和国家仇恨。不仅是要把郭先生和美国国家安全对立起来，还很有可能会随着疫情再次爆发挑起类似印尼排华惨案的发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
-伊萨贝拉试图把郭先生和新中国联邦追随者打为“美国的敌人”，然后达到利用美国法律，对爆料革命所有人进行彻底的法律行动，达到彻底摧毁新中国联邦的目的。这样，HBO就可以去中共国他的主子习近平那里领赏。“因为他帮中共反人类政权铲除敌人，共产党就会让他进入中国市场，因为HBO卖的是政治、卖的是影响力、卖的是中共唯一批准的市场。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-2021年12月25日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
