@@ -19,6 +19,14 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@harnwell 12/24/2021 11:11 AM (UTC)`
+
+President Xi you are a total failure — and you have clearly lost the Mandate of Heaven.<br/><br/>We are watching your every move…<br/><br/>#XianVariant <br/><br/>https://www.digitalsoldiers.show/xi-and-china-hiding-a-new-variant/
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@miles 12/23/2021 12:00 AM (UTC)`
 
 2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
@@ -150,13 +158,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 12/24/2021 Miles Guo: The CCP’s National Security Commission has set up a so-called “Novel Coronavirus Control Task Force,” of which the members include far-left radicals in the CCP; the CCP wants to take the opportunity to beat down the U.S. and win the war; our only hope is that many decent and kind Chinese Lao Baixing will not die with downfall of the crazy CCP<br/><br/>12/24/2021 文贵直播：中共国安委已成立所谓的“新型冠状病毒控制小组”，组员有极左疯狂分子;中共妄图抓住机会打赢、打疼美国；我们唯一的希望是不要有太多善良的中国百姓被疯狂的共产党带走<br/>
 ![img](https://media.gettr.com/group48/getter/2021/12/25/01/96ddcb33-49d2-90e8-0eb5-ddab58f2cb64/out.jpg)
-
----
-
-`@miles 12/24/2021 10:02 PM (UTC)`
-
-12月24号：尊敬的战友们好！衷心地祝战友们及家人们平安夜开心快乐！永远永远的平安……但是是什么能让我们不平安呢？这是我们每个人在此时此刻，全世界人都不平安．都不健康的平安夜．必须要思考的问题！
-![img](https://media.gettr.com/group42/getter/2021/12/24/22/7a935cfc-9ffb-e6b3-f4fd-b63f0bcd84c8/out.jpg)
 
 ---
 
