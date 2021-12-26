@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@harnwell 12/26/2021 5:37 PM (UTC)`
+
+HBO Vice’s Isobel Yeung (!) tried to get away with deceptively editing an interview with @Miles Guo. HBO didn’t expect Guo to have — and release — the unedited original LOL. <br/><br/>Beware CCP shills folks! No-one should believe their attempted deflection of #XianVariant either [part 1 of 2]
+> `@stevebannon 12/26/2021 4:10 PM (UTC)`<br/>Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@harnwell 12/24/2021 11:11 AM (UTC)`
 
 President Xi you are a total failure — and you have clearly lost the Mandate of Heaven.<br/><br/>We are watching your every move…<br/><br/>#XianVariant <br/><br/>https://www.digitalsoldiers.show/xi-and-china-hiding-a-new-variant/
@@ -151,13 +160,6 @@ Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story abou
 
 12/24/2021 Miles Guo: The first thing Isobel Yeung brought up in her interview was the accusation that the Whistleblowers’ Movement had lied about the origin of the CCP virus and the CCP’s plan to exterminate the white population, and this is the threat to the entire Chinese diasporas; I used myself as the bait to lure the enemy to interview me, and let’s see how Isobel Yeung would defend herself in court<br/><br/>12/24/2021 文贵直播：杨贝贝采访第一句就给爆料革命扣上了在病毒来源和中共灭白计划上撒谎的大帽子，这对全体海外华人就是威胁；七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩<br/>
 ![img](https://media.gettr.com/group11/getter/2021/12/25/01/fffe6d12-24f1-78a8-3e79-d3a6fc9520d5/out.jpg)
-
----
-
-`@miles 12/25/2021 1:26 AM (UTC)`
-
-12/24/2021 Miles Guo: The CCP’s National Security Commission has set up a so-called “Novel Coronavirus Control Task Force,” of which the members include far-left radicals in the CCP; the CCP wants to take the opportunity to beat down the U.S. and win the war; our only hope is that many decent and kind Chinese Lao Baixing will not die with downfall of the crazy CCP<br/><br/>12/24/2021 文贵直播：中共国安委已成立所谓的“新型冠状病毒控制小组”，组员有极左疯狂分子;中共妄图抓住机会打赢、打疼美国；我们唯一的希望是不要有太多善良的中国百姓被疯狂的共产党带走<br/>
-![img](https://media.gettr.com/group48/getter/2021/12/25/01/96ddcb33-49d2-90e8-0eb5-ddab58f2cb64/out.jpg)
 
 ---
 
