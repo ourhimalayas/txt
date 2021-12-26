@@ -2,29 +2,54 @@
 ---
 
 
-## 浅谈后疫苗时代（一）：科技与人性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791310/)
+## 英国创下COVID病例新纪录，Omicron横扫伦敦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1791331/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/axk1f-jx3cw.jpg)**图片：联盟平面作品库- 7Ants**
-【**系列文章：浅谈后疫苗时代（一）：科技与人性】
-【系列文章：浅谈后疫苗时代（二）：共同信仰】
-【系列文章：浅谈后疫苗时代（三）：走向太空】**
+作者：纽约香草山农场 – 四季
 
-科技的进步印证着人类文明发展的历史，人类的生活因科技的进步有了越来越多的生活便利性。科技发展对人类的益处在生活中显而易见，而人类对科技带来的便利性越发依赖，对科技的信任也变得盲目。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-在现今冠状病毒疫苗（CCP病毒疫苗）灾难中，过往科技给人类带来生活上便利性的印象，让人对科技的信任产生了满目性，忽略了掌握科技的人的实质是善念的还是恶念的。现今冠状病毒疫苗造成的死亡人数、致残人数远远超过其保护的人数，甚至已注射冠状病毒疫苗者更容易感染病毒、患癌和死亡。社会产生各种因冠状病毒疫苗而起的歧视，社会分化撕裂、高效运行的社会秩序停滞、经济衰退、生活成本高涨，人类社会没有因为冠状病毒疫苗大规模接种（或强制接种）给他们的生活带来任何的便利性。相反，某种意义上冠状病毒疫苗已经不是与以往的疫苗一样是保护人类的科技，而是科技掌控者杀人和控制社会的工具。
 
-人性的恶念在科技的作用下影响的范围被无限放大，造成的死伤人数已超越过往战争造成的死伤人数。科技本身可能是对人类有益的，但是在反人类的人的掌控下却可能是对人类有害的。科技在人性善念的影响下可以造福人类，但在另外一面，科技在人性恶念的影响下却也可以毁灭人类。
 
-**（文章仅代表作者观点，与Gnews平台无关）**
 
-作者：洛杉矶盘古农场 – Bc.S
-编辑：洛杉矶盘古农场-柯镇恶
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+据[OAN网站](https://www.oann.com/one-in-10-londoners-are-likely-infected-with-covid-ons-models/)援引路透社12月25日的报道，Omicron的快速传播推动了英国过去七天的病例激增。英国周五报告了新一天创纪录的COVID-19病例。新的数据显示，伦敦有大量人口携带这种病毒，突显了Omicron变体的无情推进。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25T004514Z_1_LYNXMPEHBO008_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2021年12月24日，在英国伦敦爆发的冠状病毒疾病（COVID-19）时，人们在平安夜站在国王十字车站内。（REUTERS/Henry Nicholls）
+
+政府报告了137例在COVID-19测试阳性后28天内的新增死亡病例，低于周四的147例，使大流行期间的总人数达到147,857人，为欧洲最高。
+
+政府数据显示有122,186个新增病例，高于周四的119,789个，这也标志着第三天的病例数超过了10万。
+
+虽然最近对Omicron的研究表明，感染该变种的患者其住院率低于以前的COVID-19变种，但卫生官员对其前景保持谨慎的态度。
+
+国家统计局（ONS）周五的模型显示，12月16日，大约每20个伦敦人中就有1个可能患有COVID-19，而早期可能尚未修订的估计表明，这一比例在周日可能上升到1/10。
+
+然而，总理鲍里斯·约翰逊 (Boris Johnson)以2021年的圣诞节比前一年 “好得多”为由，在周二排除了在这一天之前采取新的限制措施，他说，Omicron的严重程度和住院率仍存在不确定性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
