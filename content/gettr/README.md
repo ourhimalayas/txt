@@ -19,6 +19,14 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@harnwell 12/26/2021 5:38 PM (UTC)`
+
+Attempts to suppress news on the potential #XianVariant are collapsing. <br/><br/>CNN’s Jessie Yeung (!) hilariously suggests that president Xi “Mayor Vaughn” Jinping locked down 13 million people in Xian City six weeks before the Olympics, because of just 6 Delta infections from a Pakistan flight. Yeah right [part 2 of 2] <br/><br/>https://www.cnn.com/2021/12/23/china/xian-china-covid-lockdown-intl-hnk/index.html
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@harnwell 12/26/2021 5:37 PM (UTC)`
 
 HBO Vice’s Isobel Yeung (!) tried to get away with deceptively editing an interview with @Miles Guo. HBO didn’t expect Guo to have — and release — the unedited original LOL. <br/><br/>Beware CCP shills folks! No-one should believe their attempted deflection of #XianVariant either [part 1 of 2]
@@ -153,13 +161,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story about the Terminator of CCP <br/>中国共产党终结者的故事
 ![img](https://media.gettr.com/group49/origin/2021/12/25/01/123756da-64eb-d67f-907d-7168a7c7a29c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/25/2021 1:32 AM (UTC)`
-
-12/24/2021 Miles Guo: The first thing Isobel Yeung brought up in her interview was the accusation that the Whistleblowers’ Movement had lied about the origin of the CCP virus and the CCP’s plan to exterminate the white population, and this is the threat to the entire Chinese diasporas; I used myself as the bait to lure the enemy to interview me, and let’s see how Isobel Yeung would defend herself in court<br/><br/>12/24/2021 文贵直播：杨贝贝采访第一句就给爆料革命扣上了在病毒来源和中共灭白计划上撒谎的大帽子，这对全体海外华人就是威胁；七哥将计就计引蛇出洞，未来看看杨贝贝如何在法庭上狡辩<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/25/01/fffe6d12-24f1-78a8-3e79-d3a6fc9520d5/out.jpg)
 
 ---
 
