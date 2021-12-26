@@ -2,27 +2,131 @@
 ---
 
 
-## 中共国今年研究生报考人数增两成
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1792261/)
+## 人类正处在数字货币代替法币的春秋时代
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792301/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/261.jpg)图片来自网络
-中共国2022年全国研究生招生考试12月25日进行，有457万考生参加，报考人数比前一年增加了80万人，增长超过两成。
+[https://gtv.org/video/id=61c6f42443ccb726a08b1444](https://gtv.org/video/id=61c6f42443ccb726a08b1444)
 
-根据教育部统计从2001年到2020年，研究生招生人数从16.5万人增加至110.7万人，其中博士生从3.2万人增长到11.6万人。
+**郭文贵
+Miles Guo**
 
-中共国希望高学历人口比例增加，这不难理解，就从CCP的中央领导和体制内的普通干部学历就可见一斑。政治局常委及以上领导，大部分真实学历都在大学以下，有的甚至在中学以下，但在他们的个人简历中的个人学历一栏，填写的都是大学以上学历，研究生博士都不在少数。因为CCP有个中央党校，所有要提拔，学历又太低的人，只要在中央党校进修一段时间都可以拿到大学或以上学历证明。造假，高级合法造假，CCP堪称全球第一。
+把所有的去中心化的数字货币的未来
+The future of all decentralized digital currencies
 
-研究生全国年年扩招，也同样道理，想营造一种CCP治下的国度，人才辈出，兴旺发达可期的假象。前些年对大学生不断扩招，导致大学生泛滥成灾，找不到工作，打零工或摆摊糊口的大学生随处可见。在中共国，研究生的未来也和现在的大学生一样。因为CCP对国民的教育出发点和重点是培养爱党爱国的顺民，不是培养真正的各领域人才，所以无论拥有多么高的学历，都不代表有什么真正的实力。看看49年建国以来，这个国度没有任何发明创造，所有所谓专利技术不是偷来的就是花钱买来的，说明中共国根本没有真正的实力型人才。
+也就是今天刚才说跟法币一定会同时存在一段时间, 代替法币
+which is I said earlier today that it would definitely exist at the same time as fiat currency for a period of time then replace it
 
-目前中共国每千人中有研究生2.2人，美国等发达国家则有9人，扩招研究生就是为了拉平或超过世界发达国家的平均水平，从而显示社会主义优越性，现阶段更是要显示习近平政府的伟光正，既要在国际上争面子，又要在国内给老百姓洗脑。
+实际上我告诉大家
+Actually I’m telling everyone
 
-不培养真正有创新精神的实力型人才，单凭增加研究生招生数量，对中共国的国力提高是没有任何帮助的，只能造成更大的资源浪费。
+这次的数字货币的区块链币的到来, 会真正的人类第一次从上万年来开始
+This arrival of the digital currency with the blockchain will truly start for the first time in tens of thousands of years,
 
-参考链接：[联合新闻网](https://udn.com/news/story/7332/5987473?from=udn-catebreaknews_ch2)
+第一次和平地、迅速地、不用流血地改变货币的属性
+the first time to change the attributes of currency peacefully, quickly and without bloodshed
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝卷
+From the past the Kingdom of Spain, the Kingdom of Portugal, including the Roman Empire, our China’s Yuan Datou and the Qing Dynasty
+
+所有的什么、所有的货币
+all currencies
+
+你可以看到, 每个国家、每种货币
+that as you have already seen, every country, and each kind of currency
+
+就是说确定为你Eric的面包多少钱的时候，用啥来衡量的时候
+that means when using whatever to determine how much it will be for Eric’s bread
+
+一定是更朝换代，尸骨遍野
+it would definitely be the change of dynasties with dead bodies and Skull and Bones everywhere
+
+永远是
+and always will be
+
+这次是所有的定价权就是CPI要回到零
+This time all the pricing power that is, the Consumer Price Index (CPI) needs to return to zero
+
+现在已经不是100了
+Now it’s not even 100 anymore
+
+现在已经达到10万(4万)去了
+it has reached to 40,000
+
+大家看到已经达到4万了
+everyone may have seen that it has already reached 40,000
+
+CPI100现在已经达到4万到5万了
+CPI100 has now reached 40,000 to 50,000
+
+就是过去订面包是一块钱，实际上现在就是5万块钱
+which means that in the past it was $1 to buy bread, but in fact it is now $50,000 to buy bread
+
+你就这么简单的很吓人的
+It’s just that simple but very terrible
+
+它只有砸回来
+The only thing it could do is smashed it back
+
+砸回来拿什么来量呢？
+What to use for measuring when it’s smashed back?
+
+那谁决定(怎么)算呢？
+So who decides (how) to count?
+
+那就是枪、刀、死人
+That is weapons and deaths
+
+而且一定你看到这些币都不会存在，一定是的
+And for sure that none of the coins you see will exist, it definitely won’t be
+
+在这个战争再死（人）全人类就完了
+If people continue die in world war, all mankind would be over
+
+我告诉大家从去年到今天，我们人类就在这场战争中
+I’m telling everyone that our humans have been in this war from last year to today
+
+这就是新中国联邦今天最简单、最直接、最明白地告诉你
+This is our New Federal State of China telling you today in the simplest, most direct and clearest way
+
+人类已经处在第三次的数字和货币代替法币,
+that mankind is already at the third time of digital and currency replacing Fiat currency
+
+和人类上一个数字货币的春秋时代
+and it’s the Spring and Autumn Era of a digital currency on mankind
+
+同时是世界上走入了三国的数字货币的时代
+At the same time, the world has entered the era of digital currencies of the
+Three Kingdoms period
+
+我们是其中一级
+We are one of the top class
+
+还有一个你要做好准备
+There is one more that you need to be well prepared
+
+你手里的东西都一毛不值
+which is everything in your hand will be worthless
+
+* * *
+
+Date: 12/20/2021
+原视频标题: 人类正处在数字货币代替法币的春秋时代
+Human Beings Are Currently in a Situation of The Spring And Autumn Era Which Digital Currency is Replacing Fiat Currency
+原视频日期：2021/12/19
+原视频链接: [**https://gettr.com/post/pkd1tz5504**](https://gettr.com/post/pkd1tz5504)
+任务编号：KC367（3314）
+视频时间段 : 0:00-2:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

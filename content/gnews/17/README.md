@@ -2,28 +2,53 @@
 ---
 
 
-## 澳洲总理莫里森悄悄加入抖音TikTok目的为何
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1792081/)
+## 俄勒冈州卫生局报告622 名已完全接种疫苗的居民死于中共病毒
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1792090/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-40.png)图片来自网络
-澳洲总理莫里森早先曾强烈谴责抖音把用户数据交给中共国。然而一年后的今天，在澳大利亚联邦选举迫在眉睫之际，他却选择悄悄地加入了抖音。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/gg.png)图片来自网络
+据《网关专家》作者艾丽西亚·鲍威（Alicia Powe）2021 年 12 月 22 日报道
 
-2020年8月，莫里森先生曾短暂考虑在澳大利亚禁止抖音，因为该应用程序由中共国公司字节跳动（ByteDance）拥有。
+我们被告知实验性中共病毒疫苗将“阻止传播”。
+ 然而，最近公布的州数据显示，尽管已完全接种疫苗，俄勒冈州仍有 620 多名居民死于中共病毒。
 
-抖音坚持认为澳大利亚的数据是存储在新加坡和美国的，但其他国家也对这些说法的真实性表示担忧。
+**根据俄勒冈州卫生局的统计数据，自大流行开始以来，共有 622 名完全接种中共病毒疫苗的居民死于中共病毒。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ggg.png)
+**在死于中共病毒的人中，有 314 人接种了辉瑞疫苗，167 人接种了莫德纳疫苗，84 人接种了强生疫苗。**
+ **一心想要延长大流行的政客们，对俄勒冈州卫生局的数据，以及疾病控制中心的数据置若罔闻。**
 
-圣诞节前夕，莫里森上传了他的第一个抖音视频，随后在圣诞节当天又上传了另一个。
+尽管与疫苗相关的死亡人数惊人，但联邦政府和美国非法总统继续敦促美国人接种疫苗。
 
-他的账户以pm\_scomo为名，已经得到了验证。但账户的评论、对唱和提及功能被关闭。在撰写本文时，他的账户只有1854名粉丝。
+**周二，乔·拜登花了 22 分钟责骂未接种疫苗的美国人，说他们伤害了已接种疫苗的人，并声称未接种疫苗的人最易死于中共病毒。**
 
-关注者甚至不能留言评论他的帖子，也不能在自己的视频或评论中提到他，他因此受到批评。其中一位用户表示，如果总理真的向平台上的年轻人开放自己，他会被 “搞死”。
 
-Pedestrian TV的作家Sweeney Preston说，不允许人们评论莫里森先生的抖音是属于 “绝对懦夫 “的行为。
 
-莫里森加入抖音，可能是因为抖音超过了谷歌，成为2021年访问量最大的网站。为了得到年轻人的支持而达到连任目的。但加入由中共拥有的抖音，大选结果会如他所愿吗？
+> Everything Biden says here is false. [pic.twitter.com/PeT0I2lP66](https://t.co/PeT0I2lP66)
+> — Tom Elliott (@tomselliott) [December 21, 2021](https://twitter.com/tomselliott/status/1473389357977542657?ref_src=twsrc%5Etfw)
 
-消息来源：[Scott Morrison joins TikTok as his criticism of the platform’s links to China come back to haunt him](https://www.news.com.au/technology/online/social/scott-morrison-joins-tiktok-as-his-criticism-of-the-platforms-links-to-china-come-back-to-haunt-him/news-story/d73f5602f59e1005580d66f9fda13f22)
+
+
+*汤姆·埃利奥特 @tomselliott*
+
+
+
+*拜登在这里说的一切都是假的*
+*2021 年 12 月 21 日*
+拜登说：“如果你没有完全接种疫苗，你有充分的理由担心”。  “在过去几个月里，几乎所有死于中共病毒的人都未接种疫苗。 未接种疫苗。”
+拜登白宫甚至在周一发表一份声明，威胁未接种疫苗的人如果今年冬天仍然未接种疫苗，他们的家人将面临重病和死亡。
+
+原文链接：
+
+
+
+> [Oregon Health Authority: 622 Fully Vaccinated Residents Died Of COVID](https://www.thegatewaypundit.com/2021/12/oregon-health-authority-622-fully-vaccinated-residents-died-covid/)
+
+
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 
