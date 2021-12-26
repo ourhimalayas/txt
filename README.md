@@ -186,27 +186,27 @@
 ### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/58/README.md)
+### [假新闻污蔑郭文贵先生是间谍 &#8212;Vice采访郭文贵先生始末系列之一](/content/gnews/58/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/59/README.md)
  ` 日本东京方舟农场`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/59/README.md)
- ` YALUN 亚伦`
-
-### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/60/README.md)
- ` G-NEWS TAIWAN`
-
-### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/61/README.md)
+### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/60/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/62/README.md)
+### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/61/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/63/README.md)
+### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/62/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/64/README.md)
+### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/63/README.md)
  ` GTV News Talk`
 
-### [法官限制了班农先生公开证据的要求](/content/gnews/65/README.md)
+### [法官限制了班农先生公开证据的要求](/content/gnews/64/README.md)
+ ` HimalayaRussia`
+
+### [“班农先生不睬案”审理日期已确定](/content/gnews/65/README.md)
  ` HimalayaRussia`
 
