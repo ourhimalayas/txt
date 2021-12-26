@@ -2,34 +2,30 @@
 ---
 
 
-## HBO Vice炮制虚假采访背后的真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792526/)
+## 因中共病毒 全球贫富差距进一步扩大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792533/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月24日，郭文贵先生在直播中继续揭露HBO Vice炮制虚假采访的险恶用意。HBO与中共里应外合，在冬奥会之前大肆用虚假报道，通过歪曲抹黑新中国联邦和爆料革命，为进入中共国市场，向中共交纳投名状。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午8.33.33.png)
-HBO作为唯一一个没有广告的平台，公开估值2000亿美元，实际价值4000亿美元，背后巨大的资本全部是靠欺骗，靠出卖良知，出卖政治得来的。HBO的股东TPG、索罗斯、黑石，以及中共特务单伟健，是中共在海外最高级别的潜伏势力。
+撰稿：东京樱花团丨百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-325.png)
+[*图片来源*](https://news.yahoo.co.jp/articles/7795ec1d52f102ad05320f9a39606bdd7f90cb97/images/000)
 
-中共联合HBO的诋毁行动经过周密策划，即使郭文贵先生拒绝采访，HBO还是会制造其它污蔑爆料革命的视频或报道。郭先生正面出击，把自己作为“诱饵”，让中共的诡计充分暴露。HBO Vice的采访长达几个小时，终片却只采用三分钟，说明因为爆料革命为真不破，郭先生的回答无懈可击，让HBO的构陷无法得逞。
+据《共同通信》网站26日报道，根据100多位经济学家的一项国际研究表明，今年世界前1%的超级富豪的财富占了全球个人财富的37.8%。底层50%的人只占了财富总数的2%。因中共病毒（Covid-19）而下滑的经济刺激措施导致股票资产的价值飙升，这种差距在进一步扩大。
 
-HBO虚假报道事件会让西方更清楚地认识到，共产党是如何渗透和操纵西方媒体，进行歪曲事实和虚假宣传。HBO为中共洗地，污蔑爆料革命和海外华人，最终一定会成为全世界的敌人，受到法律的审判。
+特别是，排名在最前的2750人就拥有超过13万亿美元财富（约合1490万亿日元），占比3.5%，财富集中度非常明显。
 
-参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
+该研究报告担心，不平等将继续扩大并且发展到差距非常大的地步，呼吁对富人和大型企业征收更多的税。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+报告同时也指出，日本的财富分配尽管不像欧洲那样，但是，日本财富的分配也是非常不平等的。
 
-总编：正义的小新
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**世界の超富裕層****1****％、****4****割を独占　コロナ影響、格差拡大に拍車**](https://news.yahoo.co.jp/articles/7795ec1d52f102ad05320f9a39606bdd7f90cb97#:~:text=%E4%)
+
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 /*yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
