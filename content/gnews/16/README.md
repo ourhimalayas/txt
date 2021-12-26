@@ -2,41 +2,131 @@
 ---
 
 
-## 美NBC为冬奥会转播预热同时北京为运动员感染病毒进行实战演练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792284/)
+## 人类正处在数字货币代替法币的春秋时代
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792301/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/Ogr2peewn1D7ftZz2D-w3wV1P8NVLaST5Nunbzq8hn6baVw5QEBFvUAbPWSsyUQ4975e3gLTxLOBRi-RGiYR2-Vypwi7EyAk3gTlaC2dBeBuilFx51jbnP-csludI0SlueHhG5mW)[*图片来源*](https://posts.careerengine.us/p/61bae880aa1de31ec9ee5a45)
-**美国全国广播公司（NBC）各平台做好了北京冬奥会直播准备，并希望将美国运动健儿争金夺银的好故事带给美国观众。但愿带给美国观众的是金牌而不是中共病毒 Omicron。世界正在加入中共制造的持续的大流行中，中共将做好“关门打狗”的准备，把奖牌和病毒分发给运动员，并借此展示习近平（习太阳）治理病毒控制世界的能力。**
+[https://gtv.org/video/id=61c6f42443ccb726a08b1444](https://gtv.org/video/id=61c6f42443ccb726a08b1444)
 
-据中共国[新华社](http://m.news.cn/2021-12/26/c_1128201744.htm)26日消息称，“美国圣诞节期间，美国全国广播公司（ NBC）各平台安排直播了多场赛事以烘托节日气氛，同时为北京冬奥会的转播预热。”据称， “北京冬奥会比赛中，美国运动员将和来自世界各地的顶尖高手切磋较量，我们期待把美国运动健儿争金夺银的好故事带给美国观众。”但愿带给美国观众的是金牌而不是 Omicron中共病毒。
+**郭文贵
+Miles Guo**
 
-消息称，25日NBC直播了美国跳台滑雪项目的国内选拔赛，同时还播放了北欧、加拿大等国冬奥选拔赛的赛事集锦。此外，本周NBC还直播了美国女子冰球的热身赛以及高山滑雪的部分赛事。
+把所有的去中心化的数字货币的未来
+The future of all decentralized digital currencies
 
-另据消息称，12月25日，日本冰舞运动员小松原美里和小松原尊以178.17分的总成绩在“[全日花样滑冰锦标赛](http://www.news.cn/sports/2021-12/26/c_1128201388.htm)”获得通往北京冬奥会参赛资格。
+也就是今天刚才说跟法币一定会同时存在一段时间, 代替法币
+which is I said earlier today that it would definitely exist at the same time as fiat currency for a period of time then replace it
 
-- ***延展阅读：***[***总部位于斯坦福的 NBC Sports 将于 12 月 31 日关闭 NBCSN***](https://www.ctinsider.com/business/article/Stamford-based-NBC-Sports-to-shut-down-NBCSN-on-16585897.php)
+实际上我告诉大家
+Actually I’m telling everyone
 
+这次的数字货币的区块链币的到来, 会真正的人类第一次从上万年来开始
+This arrival of the digital currency with the blockchain will truly start for the first time in tens of thousands of years,
 
-众所周知，NBC是奥运会转播商之一，隶属于美国传媒巨头康卡斯特公司。除了NBC，康卡斯特还拥有环球主题公园及度假区公司，其中就包括今年9月开园的北京环球度假区。北京环球度假区是世界第五个、亚洲第三个环球影城主题公园，也是迄今为止规模最大的环球影城项目。”
+第一次和平地、迅速地、不用流血地改变货币的属性
+the first time to change the attributes of currency peacefully, quickly and without bloodshed
 
-然而，康卡斯特公司又棣属于美国全国广播公司——比尔盖茨的领地，没错就是他，[比尔盖茨](https://www.gatesfoundation.org/about/leadership?division=Executive%20Leadership)——撒旦的代言人，在中共病毒（Covid-19）和中共病毒疫苗上和中共撒旦政权合作并为其背书，可谓黑暗之神再次借助奥运降临到北京。
+从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝卷
+From the past the Kingdom of Spain, the Kingdom of Portugal, including the Roman Empire, our China’s Yuan Datou and the Qing Dynasty
 
-- ***延展阅读：***[***“呼叫总指挥，延庆冬奥村出现疑似新冠病毒感染者” – 北京为运动员感染病毒进行实战演练***](https://posts.careerengine.us/p/61bae880aa1de31ec9ee5a45)
+所有的什么、所有的货币
+all currencies
 
+你可以看到, 每个国家、每种货币
+that as you have already seen, every country, and each kind of currency
 
-- ***延展阅读：***[***北京冬奥组委｜冬奥期间出现阳性病例将是大概率事件***](https://3g.163.com/dy/article/GRTGC2770549OYCV.html)
+就是说确定为你Eric的面包多少钱的时候，用啥来衡量的时候
+that means when using whatever to determine how much it will be for Eric’s bread
 
+一定是更朝换代，尸骨遍野
+it would definitely be the change of dynasties with dead bodies and Skull and Bones everywhere
 
-美国全国广播公司（MSNBC）的企业文化已经完全背离文明世界的普世界价值观，正如该公司一名62岁著名主播布赖恩·威廉姆斯 (Brian Williams) 刚宣布退出MSNBC所宣称的那样，他的辞职代表了一名“[醒来的美国人” “对国家现状有了自己的看法”](https://www.usatoday.com/story/entertainment/tv/2021/12/09/brian-williams-last-show-msnbc-11-th-hour-host-leaving/6445387001/) 。他在最后一档告别节目中对美国的未来发出了严厉警告：“最大的担忧是我的国家”，他补充说，“美国城镇边缘的黑暗已经蔓延到主要道路。”那些由他们的选民选出、向宪法宣誓的成年男女，已经决定加入暴徒，成为他们本不该成为的人。
+永远是
+and always will be
 
-世界正在持续陷入中共病毒大流行，那些加入中共“疫苗暴徒”们的全球精英主义者们将为他们所支持的“北京冬奥”付出代价。因为共产党已经说过，参加冬奥会的运动员感染病毒是“大概率事件”。“共产党一定会让你染上，感染这个病怎么处理就是我说了算，处理的伟大，就体现习太阳（习近平）治理世界的能力，以及共产党的‘伟大的’协调能力和社会主义民主集中制的‘优越性’。”（[2:11.27时段了解更多](https://gettr.com/post/pkjcxzd8f5)）
+这次是所有的定价权就是CPI要回到零
+This time all the pricing power that is, the Consumer Price Index (CPI) needs to return to zero
 
-2021年12月26日
+现在已经不是100了
+Now it’s not even 100 anymore
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+现在已经达到10万(4万)去了
+it has reached to 40,000
+
+大家看到已经达到4万了
+everyone may have seen that it has already reached 40,000
+
+CPI100现在已经达到4万到5万了
+CPI100 has now reached 40,000 to 50,000
+
+就是过去订面包是一块钱，实际上现在就是5万块钱
+which means that in the past it was $1 to buy bread, but in fact it is now $50,000 to buy bread
+
+你就这么简单的很吓人的
+It’s just that simple but very terrible
+
+它只有砸回来
+The only thing it could do is smashed it back
+
+砸回来拿什么来量呢？
+What to use for measuring when it’s smashed back?
+
+那谁决定(怎么)算呢？
+So who decides (how) to count?
+
+那就是枪、刀、死人
+That is weapons and deaths
+
+而且一定你看到这些币都不会存在，一定是的
+And for sure that none of the coins you see will exist, it definitely won’t be
+
+在这个战争再死（人）全人类就完了
+If people continue die in world war, all mankind would be over
+
+我告诉大家从去年到今天，我们人类就在这场战争中
+I’m telling everyone that our humans have been in this war from last year to today
+
+这就是新中国联邦今天最简单、最直接、最明白地告诉你
+This is our New Federal State of China telling you today in the simplest, most direct and clearest way
+
+人类已经处在第三次的数字和货币代替法币,
+that mankind is already at the third time of digital and currency replacing Fiat currency
+
+和人类上一个数字货币的春秋时代
+and it’s the Spring and Autumn Era of a digital currency on mankind
+
+同时是世界上走入了三国的数字货币的时代
+At the same time, the world has entered the era of digital currencies of the
+Three Kingdoms period
+
+我们是其中一级
+We are one of the top class
+
+还有一个你要做好准备
+There is one more that you need to be well prepared
+
+你手里的东西都一毛不值
+which is everything in your hand will be worthless
+
+* * *
+
+Date: 12/20/2021
+原视频标题: 人类正处在数字货币代替法币的春秋时代
+Human Beings Are Currently in a Situation of The Spring And Autumn Era Which Digital Currency is Replacing Fiat Currency
+原视频日期：2021/12/19
+原视频链接: [**https://gettr.com/post/pkd1tz5504**](https://gettr.com/post/pkd1tz5504)
+任务编号：KC367（3314）
+视频时间段 : 0:00-2:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
