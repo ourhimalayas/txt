@@ -2,10 +2,10 @@
 ---
 
 
-## 所有的中共病毒疫苗都会造成血栓，不仅仅只有强生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790912/)
+## 欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790939/)
 
-12/18/2021 娜奥米·沃尔夫博士：所有的中共病毒疫苗都会造成血栓，不仅仅只有强生。
+12/20/2021 欧洲各国政府借助奥米炕病毒大肆推广疫苗强制接种已经引发强力民意反弹
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

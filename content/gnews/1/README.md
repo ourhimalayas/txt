@@ -2,33 +2,45 @@
 ---
 
 
-## 澳加强针需求飙升，全科医生和药剂师将获更多库存
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1792443/)
+## 中国政府在强迫劳动的指控下撤换新疆党委书记
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792474/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1226C.jpg)
-网络图片
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-据澳媒12月26日最新报道，澳大利亚全国的全科医生和药剂师将在 1 月分的第一周内额外获得 180,000 剂CCP病毒加强针库存，以应对当前飙升的需求。卫生部发言人表示，除了当前现有的订单外，每位疫苗供应商还将额外收到大约 120 剂疫苗加强针。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Xinjiang.jpg)
 
-新闻发言人表示：“本周是创纪录的一周，我们一共交付了170万剂次的COVID-19疫苗……“为了满足不断增长的需求，我们的主要订单数额正在增加，以便在 1 月份的第一周交付。”
 
-此前，澳大利亚免疫技术咨询小组 (ATAGI) 已经宣布将从 1 月 4 日起将第二剂CCP病毒疫苗注射和第三剂加强针之间的等待时间范围进一步减少至四个月。该间隔时间到 1 月 31 日会再次从四个月缩短到三个月，进一步让1600 万人可以接受疫苗加强针的注射。
 
-联邦卫生部长Greg Hunt周五告诉记者，该国有足够的疫苗供应来满足不断增长的需求。部长表示，现在澳大利亚有2000万剂的CCP病毒疫苗处于待命状态。
+图片来源：www.ecotextile.com
 
-在澳洲新南威尔士，目前各疫苗接种站点还有超过110万的疫苗剂次等待被使用。与其说是担心疫苗不够用，医疗机构似乎更在意是否能够找到足够的人力资源进行疫苗的施打和注射。
 
-一位全科医生表示：“在新年的第一周，我们的问题将是找到真正可以施打疫苗的工作人员，因为目前我们有一半的员工因病毒感染或成为密切接触者而离开岗位。”
+#### 编译：小红帽
 
-此外，澳大利亚各州还将考虑进一步在2022年增加疫苗接种站点，因为随着两针疫苗的接种逐渐接近尾声，州立的疫苗中心从 11 月的 957 个下降到了现在的699 个。但政府及领导人表示将再次扩大疫苗接种站的规模以满足加强针的注射需求。
+根据Hindustan Times 12月25日报道，中国政府已经更换了其在动荡的新疆西北地区的负责人陈全国。陈全国去年因涉嫌侵犯偏远地区少数民族维吾尔族穆斯林的人权而受到美国的制裁。
 
-一场更加疯狂和恐怖的疫苗接种运动将在2022年新年伊始上演。
+曾任广东省省长的马兴瑞已被任命为新的新疆党委书记。
 
-新闻参考链接：
+在美国总统拜登签署了一项禁止来自新疆商品的法案后的第二天，中国政府就有了替换陈全国的举动。
 
-[9 News](https://www.9news.com.au/national/coronavirus-australia-updates-gps-and-pharmacists-to-receive-additional-booster-doses-amid-growing-demand/d0abd38b-d9d1-4e0c-9ada-80c117d9992a)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+人权组织称，中国政府在一个全球供应链中占有重要地位的地区，对维吾尔族穆斯林进行了压迫。
+
+据香港《南华早报》报道，陈全国被美国、英国和欧盟指控广泛侵犯维吾尔人的人权，但他被认为将获得晋升。
+
+过去几年，中国政府一直与西方关于侵犯维吾尔穆斯林人权的指控作斗争。
+
+这些指控包括将大约100万穆斯林少数民族社区的人监禁在拘留营中，在资源丰富的新疆的制造单位中强迫劳动，强迫堕胎，以及大规模灌输思想。
+
+新闻来源：[US sanctions: China replaces Xinjiang party chief amid forced labour allegations | World News – Hindustan Times](https://www.hindustantimes.com/world-news/us-sanctions-china-replaces-xinjiang-party-chief-amid-forced-labour-allegations-101640450068383.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

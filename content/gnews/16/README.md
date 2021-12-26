@@ -2,131 +2,25 @@
 ---
 
 
-## 人类正处在数字货币代替法币的春秋时代
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792301/)
+## 前程“四紧”！前程似锦！
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1792332/)
 
-[https://gtv.org/video/id=61c6f42443ccb726a08b1444](https://gtv.org/video/id=61c6f42443ccb726a08b1444)
+撰稿人：冰沙奶茶
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-42.png)图片来自网路
+临近年终岁末，人们常常感概，喜欢总结过去，展望未来。
 
-**郭文贵
-Miles Guo**
+在即将过去的这一年，由于疫情的反反复复，经济日渐萧条，生活日渐节据，恐慌与不安无处不在，置身其中而又无可奈何的墙内民众调侃他们的未来：前程“四紧”，手头紧、眉头紧、时间紧、衣服紧。
 
-把所有的去中心化的数字货币的未来
-The future of all decentralized digital currencies
+收入缩水，开支增多，手头自然就紧；但是日子还得过，人情往来，生老病痛都得花钱，愁啊，眉头不得不紧；疲于生计已经累得够呛，还得提防随时突发疫情，考虑这准备那，忙啊，时间如何够用；憋在室内不敢出门，不运动，胡吃海吃，哪能不肥，衣服紧早晚的事。
 
-也就是今天刚才说跟法币一定会同时存在一段时间, 代替法币
-which is I said earlier today that it would definitely exist at the same time as fiat currency for a period of time then replace it
+而世界的另一端，新中国联邦，我们无忧无虑，无恐无惧。在每一个清晨的安祥宁静中开始一天的生活。我们团结一心，共同的信仰深深地种每个人心里，专注于当下唯一目标：Take Down the CCP！这个强大的团体让我们倍感安心、放心。
 
-实际上我告诉大家
-Actually I’m telling everyone
+回顾过去我们的生活忙碌、充实而且格外的有意义。从疫情开始我们就没害怕过，因为我们知道真相、手握解药，未雨绸缪，有备无患，我们不是孤军作战，每个战友都得到周全的保护。530，64大游行让我们从虚拟世界走到现实舞台，正式亮相告诉世界：我们来了！7月，盖特，全世界民众的零偏见社交网络横空出世，包括前[美国国务卿](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9C%8B%E5%9C%8B%E5%8B%99%E5%8D%BF)[迈克](https://zh.wikipedia.org/wiki/%E9%82%81%E5%85%8B%C2%B7%E8%93%AC%E4%BD%A9%E5%A5%A7)[·](https://zh.wikipedia.org/wiki/%E9%82%81%E5%85%8B%C2%B7%E8%93%AC%E4%BD%A9%E5%A5%A7)[蓬佩奥](https://zh.wikipedia.org/wiki/%E9%82%81%E5%85%8B%C2%B7%E8%93%AC%E4%BD%A9%E5%A5%A7)、前[白宫](https://zh.wikipedia.org/wiki/%E7%99%BD%E5%AE%AE)首席策士[班农](https://zh.wikipedia.org/wiki/%E7%8F%AD%E5%86%9C)、都已纷纷进驻。11月，喜币靓丽登场，价格一路开挂上扬，战友们瞬间身价不菲。不远的未来，Hpay、GTV、Gfasion、Gclub、Gbank…逐一登场，G系列就是通向人类诺亚方舟的桥梁。
 
-这次的数字货币的区块链币的到来, 会真正的人类第一次从上万年来开始
-This arrival of the digital currency with the blockchain will truly start for the first time in tens of thousands of years,
+混沌乱世中，我们走出家门，在乱世中学习，在学习中提升，每天收获的是喜悦和智慧，新中国联邦就像一股清流，洗涤我们的灵魂，让我们得到升华。请加入我们，那么你希望的未来一定是前程似锦！
 
-第一次和平地、迅速地、不用流血地改变货币的属性
-the first time to change the attributes of currency peacefully, quickly and without bloodshed
-
-从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝卷
-From the past the Kingdom of Spain, the Kingdom of Portugal, including the Roman Empire, our China’s Yuan Datou and the Qing Dynasty
-
-所有的什么、所有的货币
-all currencies
-
-你可以看到, 每个国家、每种货币
-that as you have already seen, every country, and each kind of currency
-
-就是说确定为你Eric的面包多少钱的时候，用啥来衡量的时候
-that means when using whatever to determine how much it will be for Eric’s bread
-
-一定是更朝换代，尸骨遍野
-it would definitely be the change of dynasties with dead bodies and Skull and Bones everywhere
-
-永远是
-and always will be
-
-这次是所有的定价权就是CPI要回到零
-This time all the pricing power that is, the Consumer Price Index (CPI) needs to return to zero
-
-现在已经不是100了
-Now it’s not even 100 anymore
-
-现在已经达到10万(4万)去了
-it has reached to 40,000
-
-大家看到已经达到4万了
-everyone may have seen that it has already reached 40,000
-
-CPI100现在已经达到4万到5万了
-CPI100 has now reached 40,000 to 50,000
-
-就是过去订面包是一块钱，实际上现在就是5万块钱
-which means that in the past it was $1 to buy bread, but in fact it is now $50,000 to buy bread
-
-你就这么简单的很吓人的
-It’s just that simple but very terrible
-
-它只有砸回来
-The only thing it could do is smashed it back
-
-砸回来拿什么来量呢？
-What to use for measuring when it’s smashed back?
-
-那谁决定(怎么)算呢？
-So who decides (how) to count?
-
-那就是枪、刀、死人
-That is weapons and deaths
-
-而且一定你看到这些币都不会存在，一定是的
-And for sure that none of the coins you see will exist, it definitely won’t be
-
-在这个战争再死（人）全人类就完了
-If people continue die in world war, all mankind would be over
-
-我告诉大家从去年到今天，我们人类就在这场战争中
-I’m telling everyone that our humans have been in this war from last year to today
-
-这就是新中国联邦今天最简单、最直接、最明白地告诉你
-This is our New Federal State of China telling you today in the simplest, most direct and clearest way
-
-人类已经处在第三次的数字和货币代替法币,
-that mankind is already at the third time of digital and currency replacing Fiat currency
-
-和人类上一个数字货币的春秋时代
-and it’s the Spring and Autumn Era of a digital currency on mankind
-
-同时是世界上走入了三国的数字货币的时代
-At the same time, the world has entered the era of digital currencies of the
-Three Kingdoms period
-
-我们是其中一级
-We are one of the top class
-
-还有一个你要做好准备
-There is one more that you need to be well prepared
-
-你手里的东西都一毛不值
-which is everything in your hand will be worthless
-
-* * *
-
-Date: 12/20/2021
-原视频标题: 人类正处在数字货币代替法币的春秋时代
-Human Beings Are Currently in a Situation of The Spring And Autumn Era Which Digital Currency is Replacing Fiat Currency
-原视频日期：2021/12/19
-原视频链接: [**https://gettr.com/post/pkd1tz5504**](https://gettr.com/post/pkd1tz5504)
-任务编号：KC367（3314）
-视频时间段 : 0:00-2:10
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
