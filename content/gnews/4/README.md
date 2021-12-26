@@ -2,58 +2,52 @@
 ---
 
 
-## 航空公司以新冠病毒人员配置问题为由，在全球范围内取消了3000多个航班
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791311/)
+## 英国创下COVID病例新纪录，Omicron横扫伦敦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1791331/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/American-Airlines-ge_hpMain_20210620-143238_16x9t_992-1.jpg)图片：盖蒂图片社
-来自THE HILL 2021年12月24日的报道，
+作者：纽约香草山农场 – 四季
 
-**摘要翻译：**
-
-据FlightAware网站报道，全球有超过3000个原定于平安夜和圣诞节的航班被取消。FlightAware说，周五取消的航班中约有20%涉及美国境内、入境或出境的旅行。到目前为止，已经有4604个航班被延误。周五约有500个航班在美国境内、入境或出境的航班被延误。
-
-美国联合航空公司和达美航空周四表示，他们已经取消了数百个平安夜的航班。美国联合航空公司证实，原定于圣诞节前夕的100多个航班已被取消，原因是为了应对中共Omicron变体的传播。
-
-美联航的一位发言人周四说，“我们看到周五计划取消的航班约有120个”。美联航在一份声明中说：“本周全国范围内中共Omicron病例激增，对我们的机组人员和运营人员产生了直接影响”。
-
-因此，我们很不幸地不得不取消一些航班，并在受影响的旅客到达机场前，提前通知他们。美联航补充说：“我们对此造成的不便感到非常抱歉，并正在努力为尽可能多的人重新订票，让他们踏上假期的旅程”。
-
-达美航空周四表示，“公司在周五取消大约90个航班之前，已经用尝试了所有的方案和能利用的所有资源——包括改道和替换飞机和机组人员来完成预定的飞行。”
-
-捷蓝航空也取消了50多个航班。阿拉斯加航空公司在给CNN的一份声明中说，由于中共Omicron变种的原因，它在星期四取消了17个航班，星期五可能会有更多航班被取消。按照CNN的说法，截至周五上午，捷蓝航空又取消了11个航班。
-
-白宫首席医疗顾问福奇本周早些时候说，在这个假日季节的大型聚会并不安全，即使是那些完全接种了疫苗并打了加强针的人也会受到中共冠状病毒的感染。
-
-据英国广播公司报道，福奇还警告说，即使在完全接种疫苗的人中，圣诞节旅行也会增加新变种的传播。
-
-代表近300家航空公司的国际航空运输协会的医生和医疗顾问大卫·鲍威尔（David Powell）在一次新的采访中说，自从中共Omicron变体出现后，飞机乘客在飞行中感染中共病毒的可能性增加了两到三倍。
-
-鲍威尔告诉彭博新闻社说：“无论感染中共德尔塔病毒的风险有多大，我们必须假设感染中共Omicron病毒的风险会大两到三倍，就像我们在其他情形中看到的那样。”
-
-航班取消的同时，即将离任的美国国立卫生研究院院长弗朗西斯·柯林斯（Francis Collins）周日警告说，如果美国人不采取中共病毒预防措施，美国可能开始每天出现100万例中共病毒感染。
-
-这位即将退休的美国国立卫生研究院院长（他的最后任期是周日）在全国公共广播电台的“周末版”节目中警告说，即使像早期研究表明Omicron毒株的感染症状较轻，但这种Omicron毒株的高传染性仍可能在美国引发数百万的感染。
-
-**简评：**
-
-中共病毒Omicron再次在世界上掀起了一场风暴，世界人民的生活旅行再次被影响。随着Omicron的出现，世界集权政体会进一步鼓吹打加强针，但同时也将引发民众思考，随着病毒不断的变异，新疫苗的开发如何能跟上疫苗的变异速率，如果不能，那为何一味的鼓吹打加强针，是否合理？运用基本的逻辑，人们都可以做出自己的判断。会有越来越多的人从不理智中清醒过来，认识到疫苗是一场骗局和比病毒更严重的灾难。
-
-新闻链接：**[More than 3,000 flights canceled worldwide as airlines cite COVID-19 staffing issues](https://thehill.com/policy/transportation/aviation/587239-more-than-3000-flights-delayed-worldwide-as-airlines-cite)**
-
-*翻译/简评: kkoto(芬兰大灰狼)*
-
-*校对: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[OAN网站](https://www.oann.com/one-in-10-londoners-are-likely-infected-with-covid-ons-models/)援引路透社12月25日的报道，Omicron的快速传播推动了英国过去七天的病例激增。英国周五报告了新一天创纪录的COVID-19病例。新的数据显示，伦敦有大量人口携带这种病毒，突显了Omicron变体的无情推进。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25T004514Z_1_LYNXMPEHBO008_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2021年12月24日，在英国伦敦爆发的冠状病毒疾病（COVID-19）时，人们在平安夜站在国王十字车站内。（REUTERS/Henry Nicholls）
+
+政府报告了137例在COVID-19测试阳性后28天内的新增死亡病例，低于周四的147例，使大流行期间的总人数达到147,857人，为欧洲最高。
+
+政府数据显示有122,186个新增病例，高于周四的119,789个，这也标志着第三天的病例数超过了10万。
+
+虽然最近对Omicron的研究表明，感染该变种的患者其住院率低于以前的COVID-19变种，但卫生官员对其前景保持谨慎的态度。
+
+国家统计局（ONS）周五的模型显示，12月16日，大约每20个伦敦人中就有1个可能患有COVID-19，而早期可能尚未修订的估计表明，这一比例在周日可能上升到1/10。
+
+然而，总理鲍里斯·约翰逊 (Boris Johnson)以2021年的圣诞节比前一年 “好得多”为由，在周二排除了在这一天之前采取新的限制措施，他说，Omicron的严重程度和住院率仍存在不确定性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 

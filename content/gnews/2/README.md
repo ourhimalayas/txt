@@ -2,54 +2,33 @@
 ---
 
 
-## 英国创下COVID病例新纪录，Omicron横扫伦敦
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1791331/)
+## 浅谈后疫苗时代（三）：走向太空
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1791343/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/12/azwld-a36v8.jpg)**洛杉矶盘古农场 设计部- penelope**
+【**系列文章：浅谈后疫苗时代（一）：科技与人性】
+【系列文章：浅谈后疫苗时代（二）：共同信仰】
+【系列文章：浅谈后疫苗时代（三）：走向太空**】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+人类对宇宙的探索由无人航天器探索，发展到载人航天探索，这是质的飞跃。然而当前人类进入太空需要一定的身体条件和长时间的训练，人类先天性的生理条件成为了人类大规模、普遍性进入太空的最大障碍。
 
+人类当前的健康状态和寿命的时间长度，在宇宙中可探索的范围非常有限。人类的健康和寿命成为了太空时代人类前往外星系探索最重要的影响因素。通过基因改造等生物科技手段，使人类一出生就具备进入太空身体条件的方式，成为了一个相对高效率使人类普遍性进入太空的方向。
 
+在人类向外星系探索方面，如果人类可以在太空中生育传代，无疑对人类向外星系探索是有很多的帮助。但人类自然生育的方式在太空中似乎是不太可行的方式，寻求体外孕育人类新生命的方式成为一个相对合理的方向。
 
+另一方面，由于冠状病毒（CCP病毒）和冠状病毒疫苗灾难所造成的大量劳动人口死亡和人体基因变异，某些被现今人类道德所限制的生物科技，似乎有了解禁的可能性。巧合地，人类当前的太空科技也到达了人类向外星球探索的新时期，假设某些人类生物科技可以使人类普遍性进入太空，那么必然对人类在太空探索的效率有大幅度的提升。
 
+总之，新的生物科技将加速人类进军太空的步伐，而太空科技，将带领人类走向更广阔的未来。
 
-据[OAN网站](https://www.oann.com/one-in-10-londoners-are-likely-infected-with-covid-ons-models/)援引路透社12月25日的报道，Omicron的快速传播推动了英国过去七天的病例激增。英国周五报告了新一天创纪录的COVID-19病例。新的数据显示，伦敦有大量人口携带这种病毒，突显了Omicron变体的无情推进。
+**（文章仅代表作者观点，与Gnews平台无关**）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25T004514Z_1_LYNXMPEHBO008_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2021年12月24日，在英国伦敦爆发的冠状病毒疾病（COVID-19）时，人们在平安夜站在国王十字车站内。（REUTERS/Henry Nicholls）
+作者：洛杉矶盘古农场 – Bc.S
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-政府报告了137例在COVID-19测试阳性后28天内的新增死亡病例，低于周四的147例，使大流行期间的总人数达到147,857人，为欧洲最高。
-
-政府数据显示有122,186个新增病例，高于周四的119,789个，这也标志着第三天的病例数超过了10万。
-
-虽然最近对Omicron的研究表明，感染该变种的患者其住院率低于以前的COVID-19变种，但卫生官员对其前景保持谨慎的态度。
-
-国家统计局（ONS）周五的模型显示，12月16日，大约每20个伦敦人中就有1个可能患有COVID-19，而早期可能尚未修订的估计表明，这一比例在周日可能上升到1/10。
-
-然而，总理鲍里斯·约翰逊 (Boris Johnson)以2021年的圣诞节比前一年 “好得多”为由，在周二排除了在这一天之前采取新的限制措施，他说，Omicron的严重程度和住院率仍存在不确定性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
