@@ -2,26 +2,18 @@
 ---
 
 
-## 澳洲悉尼一家医院向400多名新冠病毒检测者发送了错误的检测信息
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1792303/)
+## 秘翻在线：东京都内新增感染病例连续6天回升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792327/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-41.png)图片来自网络
-澳洲悉尼圣文森特医院星期六晚上向400多名接受新冠病毒测试的人士发送了错误的信息，通知他们的测试结果为阴性，但实际上，他们的测试结果为阳性。
+翻訳: 文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-24.jpg)图片出处：读卖新闻（在线）
+东京都26号，发布了都内新增确诊中共病毒(新冠病毒)感染者43人。从一周前增加10人，上升至连续六天，每天均有新感染者30人。
 
-该医院在星期日发现错误后，立即开始联系受影响人员，通知他们，必须立即进行隔离。错误是由于人为因素造成的。
+据悉，最近1周内新的感染者为35人，自上周的（24人）新增加了43.9%人。重症患者和前天相比未变化，为2人。
 
-错误的信息给新冠病毒感染人数急剧增加的新洲带来了混乱。新洲目前新冠病毒感染病例达到了6934 例感染的新高。
+情報源:[读卖新闻](https://www.yomiuri.co.jp/national/20211226-OYT1T50098/)
 
-接到错误信息的人士是在12 月 22 日至 12 月 23 日期间接受了新冠测试。这些人当中，可能有人正在旅行，或参加了悉尼至霍巴特的帆船比赛。
-
-消息来源：
-
-[St Vincent’s Hospital apologises after 400 sent Covid text wrongly telling them they are negative](https://www.news.com.au/national/nsw-act/nsw-records-6394-new-covid19-cases-on-boxing-day/news-story/5597110356b6f45ecda751a1e3f02c8b)
-
-[Hundreds of positive-COVID were told they were negative in laboratory text message blunder](https://www.skynews.com.au/australia-news/coronavirus/hundreds-of-positivecovid-cases-told-they-were-negative-in-laboratory-blunder/news-story/fc6191e68017d323de7fbbafc527822b)
-
-
+校正:待命(文晓)
 
  
 

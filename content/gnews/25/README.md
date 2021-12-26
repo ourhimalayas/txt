@@ -2,162 +2,42 @@
 ---
 
 
-## Omicron病毒绝对超出大家的想象
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1792331/)
+## 7·24系列——习近平的龙杯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792348/)
 
-[https://gtv.org/video/id=61c7e5ae43ccb726a08b669e](https://gtv.org/video/id=61c7e5ae43ccb726a08b669e)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mfile_1625548_1_20211222190955.jpg)图片来源：RTHK News
+**整理：**WEI、翼族
+**编辑：**翼族
 
-**郭文贵
-Miles Guo**
+郭文贵先生曾经数次在大直播中提到习近平使用龙杯和龙椅，2021年12月24日的文贵大直播中又再次提到龙杯（概要）：
 
-特别的感谢刚才飞飞, 还有Eglise医生, 还有我们青蒿素讨论群
-Special thanks to Feifei, Dr. Eglise, and our artemisinin discussion group
+##### 你看香港的股市从23000跌到22000，“咵咵”反弹是什么时间？林郑月娥去北京坐在龙椅前被皇帝召见，就差磕头了。这个龙杯和龙椅，我直播说过好多次，你们都忘了。这是2018年习近平正式启动的，让林郑月娥到北京的时候，就坐在这把龙椅前面，一模一样的杯子。
 
-所有的医生们承担了巨大的风险，没有任何一分回报
-All the doctors have taken huge risks without any rewards
+##### 习近平在瀛台最高规格的防弹房子里会见林郑，坐千年黑檀特制龙椅，用景德镇特供龙杯，价值连城，要当皇帝，显示“习天下”。上次见林郑，开始了香港运动，实施《国安法》，接下来就对整个香港、澳门重新大开杀戒。那个房间的窗户是假的，他那房子是防弹的，在瀛台。那个瀛台是党和国家领导人最高的规格，像奥巴马吃完饭了，操着手穿着大衣，跟他走到那个瀛台上去——这是最高规格。在那里，外边是防弹的、防辐射的，有绝密信号的……
 
-日以继夜地在工作
-and are working day and night
+##### 那杯子是在景德镇烧的，听说烧了7000多套，才拿出来不到十套成功的，其它全砸碎。那是真正的中国景泰蓝瓷，七哥也有一套，是由当时的中办主任令计划同志送给了我。不是他本人，是他办公室的人送给了我。所以说你看那个东西，是在那时候就做了，没人敢用，结果习上来以后全拿来，老子全用。是吧！我就当皇帝了……
 
-救多少人大家知道
-We all know that how many people have been saved
+##### 最后，你看到林郑月娥八月底、九月份的时候，（习）讲出的话——你看我坐在这，都在我心里边，说你们真想“玉瓦俱碎”吗？记住这句话了吗？你真想把香港送入到一个不归的路吗——林郑月娥刚刚又去了北京，这次又去北京了。第一，要换特首，立法会是个好制度，就是我说了算嘛！习天下说了算！你别小看那个杯子、龙椅，里边的文章可大了去了——明确告诉你，党内我就是皇帝。皇帝的配置是啥？大家上网查查皇帝的配置是啥？皇帝用的颜色，你老百姓不能用。皇帝用的衣服，龙袍，你穿了要杀头、诛连9族、13族。皇帝说的话，你不能重复，那都有各种语。皇帝是有标准的，太监也是有标准的。那是一个标准，那是一个制式。
 
-像Eglise为代表的，太重要了
-As represented by Eglise, they are all very important
+习近平使用的龙杯是以黄色为主基调的珐琅彩，最早是在清朝康熙皇帝的授意下，将铜胎画珐琅技法成功地移植到瓷胎上而创烧的彩瓷新品种。雍正、乾隆时期的产量最大，乾隆以后即少有制作。乾隆时期，宫中收藏的珐琅彩瓷器曾集中存放在端凝殿，据档案记载有400多件。按照清代宫廷档案记载和珐琅彩瓷器原盛匣之标识，珐琅彩瓷器之正式名称应为“瓷胎画珐琅”。
 
-你像飞飞这个患病之后
-Just like Feifei
+制作珐琅彩所需要的白瓷胎，由景德镇御窑厂提供，运送到宫廷后由宫廷画家精心彩绘，题写诗句、署款，最后入炭炉经600℃左右焙烧而成。珐琅料是一种人工烧炼的特殊彩料，雍正六年（1728年）以前需从欧洲进口，雍正六年以后，清宫造办处已能自炼20余种珐琅料，而且色彩种类比进口彩料更为丰富，遂使珐琅彩瓷器的生产获得了突飞猛进的发展。
 
-从得病期间到最后恢复
-from the time of illness to her final recovery
+珐琅彩瓷具有瓷质细润、彩料凝重、色泽鲜艳靓丽和画工精致等特点。制作珐琅彩瓷极度费工，乾隆以后就基本销声匿迹了。康熙的珐琅彩瓷大多作规矩写生的西番莲和缠枝牡丹，有花无鸟，显得单调。而雍正则以花卉图案居多，山水、人物也有。珐琅彩瓷器可以说秉承了历史上中国陶瓷发展以来的各种优点，从拉胚、成型、画工、用料、施釉、色彩、烧制的技术上几乎是最精湛的。在乾隆时期出现了很多极其优秀的陶瓷作品，但珐琅彩在制作程序和用料上是其他众多品种无法比拟的。画工也不是一般的窑工，而是皇宫里面顶尖的专业画师，所以这些器物可以代表当时最高的艺术水平，最高的工艺水准。
 
-从来没休息过
-she didn’t rest at all
+但是由于珐琅彩瓷器专用于皇室，制作耗费巨大的人力物力，宫廷烧制也需要相当强的经济基础，遇有不测就难以为继，所以珐琅彩瓷器传世品数量有限。同时也由于皇室为了维持自己的高贵，独揽了珐琅彩瓷器的烧制和使用权，致使民间艺人们根本看不见珐琅彩瓷器成品，更谈不上学习烧制过程。自乾隆以后，当皇宫不再烧制这种瓷器时，珐琅彩瓷器的烧制技术也就失传了。一直到2006年，据[新浪新闻的一篇报道](http://tech.sina.com.cn/d/2006-06-08/1103980742.shtml?from=wap)，景德镇的制瓷大师熊建军等人历经8年的艰辛努力，经过数百次的实验，成功研制出了失传200年的珐琅彩传统配方。
 
-就是全力以赴的在救人
-and did her best to save others
+景德镇的制瓷师傅们使用新的烧制技术，对雍正和乾隆时期的代表作品进行了仿制，中国国家博物馆全程监督高仿的过程。整个生产过程完全采用清代传统工艺和原料，包括采石、碎石、淘泥、洗泥、踩泥、揉泥、拉坯、修坯、吹釉、画坯、写款等几十道繁琐复杂的工序，无一例外都采用了古人传统的手工方式制作，最终以柴窑烧制。据透露，高仿的成品率很低，仅不足30%，烧制出的瓷器只要稍有一点不同于原品就打碎重新烧制。
 
-Omicron现在看来就是我们一定要纠正
-Now it seems that we have to make corrections to the opinion of Omicron
+习近平会见林郑月娥时在电视上展现的这一批珐琅彩龙杯，制作于胡锦涛时代，习近平敢于在全世界面前秀出龙杯和龙椅，说明他已狂妄地自认皇帝之尊。从7000套里选取10套珐琅彩龙杯成品，自然比中国国家博物馆高仿的品质严苛了数百倍，这是权力的任性。权力让人疯狂，习近平的龙杯龙椅就是最好的佐证！
 
-这Omicron的危险性比我们想象的大得多得多
-This Omicron is way more dangerous than we thought
+*发布：翼族*
 
-它诞生它造成的所有的综合症比我们想象的大得多得多
-It comes and all the syndromes it causes are much more serious than we thought
-
-就是这个绝对超出大家的想象这个Omicron
-This Omicron is absolutely beyond everyone’s thought
-
-那么现在在西方和全世界，爆料革命，就是这个Isabella杨坚决不报道的
-So now the whistleblower movement in the West and the whole world is what Isabella Yang determined not to report
-
-第一个
-First
-
-我们在去年就告诉大家
-we have told you last year
-
-病毒绝对没有疫苗对人类的威胁大
-that the viruses are definitely not as threatening to humans as the vaccines
-
-疫苗灾难才是真正的次生灾难
-The vaccine disaster is a real disaster following the virus disaster
-
-是人类最大的灾难
-It’s the biggest disaster in humanity
-
-而且我们一再说
-And we have said that again and again
-
-今年年底，2021年年底才是真正的灾难的开始
-that at the end of this year, the end of 2021 is the beginning of the real disaster
-
-病毒大扩散
-in which the virus would mass spread
-
-没有一个人说，就我们
-Not anyone but us has said that
-
-今年我们说的真的不下万遍吧
-We have said that not less than 10,000 times this year, right?
-
-就是说我说10月到12月大爆发
-In other words, what I said was a big outbreak from October to December
-
-而且来自于非洲和（美洲）西部
-and it was from Africa and western America
-
-我们全（说）准了
-Everything we had said is correct
-
-而且我说感恩节之后，美国及世界大爆发
-And I said that there would be a big outbreak in the United States and worldwide after Thanksgiving
-
-大家看到了吗？
-Did you see it?
-
-全美国、全世界都在（爆发）感恩节是最夸张的
-The United States and the world have outbreaks, especially after Thanksgiving
-
-最后又是我们（说准了）
-In the end, we are correct again
-
-不是我们蒙出来的
-We didn’t make that up
-
-这是我们的科学家和背后的爆料革命
-This is our scientists and the whistleblower movement in the back
-
-深知这是个生化武器和共产党内部要决策的情报
-knowing that this is a biochemical weapon, and it’s the intel information for the CCP’s internal decision-making
-
-在冬奥会前让西方经济要垮下来，让西方要内乱
-which is making the western economically collapse and internally disorder before the Winter Olympics
-
-然后无暇顾及（中共）
-that way, they have no time to pay attention to the CCP
-
-就像现在习近平、王岐山、杨洁篪、王毅、王沪宁在内部说的
-Just like Xi Jinping, Wang Qishan, Yang Jiechi, Wang Yi, and Wang Huning have said internally
-
-一定会打赢这次中美世纪大战
-they would definitely win the Sino-US war of the century
-
-这是他原话啊，“一定要有信心，而且一定会打赢中美的世纪大战”
-This is what he has said exactly, “We must have confidence and will win the Sino-U.S. war of the century”
-
-这都是这个结果
-All these are the result of it
-
-这几天兄弟姐妹们, 你们一定要意识到
-Brothers and sisters these days, you must be aware
-
-Omicron太可怕了
-The Omicron is terrible and serious
-
-而且不好的现象是Omicron现在发现吃了伊维菌素和青蒿素有些不是100%管用
-And the bad phenomenon is now finds that ivermectin and artemisinin somewhat are not 100% effective against Omicron
-
-* * *
-
-Date: 12/23/2021
-原视频标题: Omicron病毒绝对超出大家的想象
-The Omicron Virus is Absolutely Beyond Everyone’s Imaginations
-原视频日期：2021/12/22
-原视频链接: [**https://gettr.com/post/pkgd2ldca6**](https://gettr.com/post/pkgd2ldca6)
-任务编号：KC368(3323)
-视频时间段 : 0:00-02:19
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-发布洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
