@@ -2,34 +2,27 @@
 ---
 
 
-## 郭先生：中共清除网红旨在控制思想、消除政治隐患
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1791914/)
+## 前英国内阁大臣杰里米•亨特的妻子露西亚•郭被指控粉饰中共暴行
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1791952/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+翻译：zzballack
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/CB66D989-70B2-48FF-8F0F-2F8EDBE8E16E.jpeg)（图片来自Gnews）
+据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
 
-12月24日，新中国联邦创始人郭文贵先生在直播中揭露，中共近期清除网红行动的目的是绝对地控制网络、思想和资源，消除可能会造成政治隐患的不可控因素。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4EB08530449.jpg)图片来源：Daily Mail
 
-近期，中（共）国浙江杭州税务局以偷税漏税之名对网络主播黄薇（薇娅）进行处罚，罚金共计13.41亿元（人民币），创下中共国明星网红个人被罚税款新纪录。随后，黄薇被中（共）国网络社会组织联合会取消网络诚信宣传大使称号，又被撤销“庐江县招商大使称号和相关证书。同时，中共国多地税务局发布公告，督促明星艺人、网络主播等对照税法进行“自查”。
+这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
 
-对此，郭先生在直播中表示，中共严厉打击网红主播的目的之一，是控制资源，减少百姓消费。他指出，中共国内所有网红主播卖的东西很少有本民族文化的产物，几乎都是西方的服装、饰品。另外，网红每年几万亿人民币的销售基本都是借贷消费，但中共国的经济如此之差，百姓还不了贷，最后只能由中共来买单。
+《China Hour》播出的专题报告节目包括中共政府有效地应对了新冠大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
 
-此外，中共清除网红更重要的是为了控制网络、控制思想。郭先生表示，网络直播平台非常不可控，如果有一天某主播把爆料革命传播的关于中共奴役统治、中共病毒、毒疫苗、虚假经济等十分之一的信息散播出去，会影响到几百万人、几千万人，这对共产党来说是致命的。因此，中共要将这种可能会造成政治隐患的不可控因素拿掉，统一思想，统一口径。
+与杰里米·亨特育有三个孩子的露西亚·郭来自中国西安市，她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目。该节目自今年9月开始播出，可以在Youtube上看到。
 
-*参考链接：*
+设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于新冠流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权洗白其侵犯人权行为。“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
 
-1. [*https://gnews.org/zh-hans/1788811/*](https://gnews.org/zh-hans/1788811/)
-2. [*https://news.ltn.com.tw/news/world/breakingnews/3779873*](https://news.ltn.com.tw/news/world/breakingnews/3779873)
+五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。这次访问的成果是达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年认识了露西亚·郭，当时她正在为华威商学院 (University of Warwick) 招收中国学生。
 
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：miumiu*
+原新闻：[Jeremy Hunt’s wife presents show on China’s state-run TV ‘that whitewashes Communist Party’s human rights abuse’](https://www.dailymail.co.uk/news/article-10344359/Jeremy-Hunts-wife-presents-Chinas-state-run-TV-whitewashes-Communist-Partys-abuse.html)
 
  
 
