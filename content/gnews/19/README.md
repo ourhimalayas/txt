@@ -2,62 +2,73 @@
 ---
 
 
-## 完全接种疫苗也会失效，加强针接种间隔期一再缩短
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792005/)
+## 2021年12月25日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1792056/)
 
-翻译：不要代表我Kari
-校对：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.jpg)图片来源：New Daily
-12月24日，据9号台报道，澳大利亚的疫苗加强针议程即将发生重大变化，疫苗加强针接种间隔的等待时间将被缩短。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot_副本-3.jpg)
+视频连接：[https://gettr.com/streaming/pkmku05091](https://gettr.com/streaming/pkmku05091) 或 [https://gtv.org/video/id=61c74f5100f9a119180a92be](https://gtv.org/video/id=61c74f5100f9a119180a92be)
 
-卫生部长格雷格·亨特周五宣布，政府将从1月4日起将接种疫苗加强针间隔从五个月提前到四个月，从1月31日起再提前到三个月。
+1、12月24号，平安夜，CCP把裕达国贸交给万达，交给李友；
 
-这些（缩短加强针接种间隔时间）变动是根据澳大利亚免疫专家小组（ATAGI）的建议做出的。
+2、文贵先生的秘密团队在调查官二代在西方的情况；
 
-亨特先生说：“这些日期（调整）是出于谨慎的考虑之后确定的，以便尽早为澳大利亚人提供持续的保护。”
+3、习近平女儿，藏的很深，在美国读书连一张照片没流出去；
 
-“我们的建议是，它可以有效地保护重症患者，但我们将看到的是它可以更有力的减少病毒传播。”
+4、中共国的有钱、有权人把孩子基本都送到美国、英国，其次是澳大利亚和新西兰，从中共国出来的这些人中，有超过一半的人不希望共产党倒台，这些人认为他们生来就应该富贵，那种无知的傲慢和被洗脑后的思想就是人间的垃圾；
 
-在此之前，人们推测疫苗加强针接种的间隔时间将被缩短，因为澳大利亚免疫专家小组ATAGI审查了现有系统，并将其与海外经验进行了比较。
+5、建议年轻人：要学习、结识高人、早接触宗教
 
-这一变化意味着约750万澳大利亚人将有资格在1月4日接种疫苗加强针，大概1600万澳大利亚人从1月31日起接种疫苗加强针。
+6、外星人和你们电影里看到的可能不一样，外星人可能很小，像细胞，细菌那么小；
 
-政府将优先考虑那些已完成接种疫苗间隔时间较长的人群，以及老年人和免疫功能低下的人群。
+7、盘古、裕达都存在外星人！这个世界上多维的神秘的力量，盘古裕达都有！
 
-首席医疗官保罗·凯利说，最近几天，重症监护病人数量有所增加。
+8、跟人打交道的时候不要有先入为主的判断，一定要尊重真理，要客观；
 
-他说，鉴于新变种病毒快速演变的性质，将疫苗各针剂的时间间隔提前的这一决定虽然困难但非常必要。
+9、强制疫苗一定会停。 不管什么情况下，哪怕不去上学，都不要打疫苗。强制让你去打疫苗的人，一定是犯罪分子，是在谋杀，种族屠杀。要把正义医生和科学家的声音传播出去，把疫苗的灾难后果视频传播出去；
 
-“我们议程的主要目标是保护那些最有可能得重症的患者，我们确信疫苗加强针对提高防护和对重症的保护都具有明显的效果”，凯利教授说：“现阶段接种疫苗加强针可以帮助阻止病毒的传播。”
+10、王力宏就是当年由台湾的黑帮交给公安部林强培养起来的，一点自由都没有，王力宏被整的原因有二，一是他现在是曾庆淮的人，网红是孟建柱的产业，因为曾和孟现在都得被灭；二是王力宏曾经和彭丽媛拒唱过，得罪过当今“国母”彭丽媛；
 
-在过去的24小时内，将近20万名澳大利亚人接种了疫苗，其中14.8万人接种了疫苗加强针。
+11、新中国联邦组建我们自己的基金，让新中国联邦喜欢音乐的人，不需要为了钱唱歌；
 
-四个星期前，奥米克戎变种病毒首次在澳大利亚出现，引起了人们的关注，当局在这段时间里收集了关于新变种病毒的严重性和疫苗有效性的信息。
+12、文贵先生时间管理三件事：第一，管理自己的人事关系，是人生第一把剑；第二，管理好时间，想好简单直接快，越是大事答案越简单；第三，任何情况下知道取舍，提高效率；
 
-“最近几天和几周的证据显示，疫苗加强针显示出更强的保护作用，而对那些只打过第一或第二针的人的保护作用则逐渐减弱”，凯利教授说：**“不幸的是，我们了解到，打两剂疫苗并不能改变病毒感染。****我们知道，随着时间的推移，疫苗也会开始失效。**”
+13、文贵先生做每件事考虑三个问题：
 
-接种间隔时间的变动，是在联邦各州领导本周实施他们各自应防范病毒措施时做出的。
+1）、想明白对方为什么帮你做？
 
-尽管住院和重症监护的人数保持稳定，但奥米克戎变种病毒在海外病例数每两到三天就会翻一番，澳大利亚现在也出现了这个趋势。
+2）、做不成的时候怎么办？
 
-由于病例持续飙升，新州、首都领地和维州本周都出台了室内戴口罩的规定；塔州、昆州和南澳也强制要求在室内戴口罩。
+3）、有没有做成这件事的钱和人
 
-在西澳，珀斯和皮尔地区的人们现在必须在所有公共室内环境中戴口罩，而在北领地，只需要在机场内和飞机上戴口罩。
+14、圣诞为什么直播那么长？希望战友圣诞不孤单；
 
-亨特先生说：“采取的新措施将有助于阻止病毒的传播。”
+15、明年圣诞继续开始，星期天不直播；
 
-“这是一个充满挑战的时刻，但当我们回顾今年，我们是世界上死亡率最低的国家之一，也是疫苗接种率最高的国家之一。”他说。
+**注：直播大音频正在制作和上传中，敬请关注——**
 
-新闻链接：[Australia Covid news: Australian government announces huge change to booster vaccinations | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+**（直播大音频位置）**
 
-发布：去中心化Math
+编辑整理：文俊；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

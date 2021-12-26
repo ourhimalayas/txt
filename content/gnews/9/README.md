@@ -2,53 +2,42 @@
 ---
 
 
-## 俄勒冈州卫生局报告622 名已完全接种疫苗的居民死于中共病毒
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1792090/)
+## 世界各地一片混乱：数以千计的圣诞航班被取消
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792212/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/gg.png)图片来自网络
-据《网关专家》作者艾丽西亚·鲍威（Alicia Powe）2021 年 12 月 22 日报道
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-我们被告知实验性中共病毒疫苗将“阻止传播”。
- 然而，最近公布的州数据显示，尽管已完全接种疫苗，俄勒冈州仍有 620 多名居民死于中共病毒。
-
-**根据俄勒冈州卫生局的统计数据，自大流行开始以来，共有 622 名完全接种中共病毒疫苗的居民死于中共病毒。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ggg.png)
-**在死于中共病毒的人中，有 314 人接种了辉瑞疫苗，167 人接种了莫德纳疫苗，84 人接种了强生疫苗。**
- **一心想要延长大流行的政客们，对俄勒冈州卫生局的数据，以及疾病控制中心的数据置若罔闻。**
-
-尽管与疫苗相关的死亡人数惊人，但联邦政府和美国非法总统继续敦促美国人接种疫苗。
-
-**周二，乔·拜登花了 22 分钟责骂未接种疫苗的美国人，说他们伤害了已接种疫苗的人，并声称未接种疫苗的人最易死于中共病毒。**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_131521.jpeg)
 
 
-
-> Everything Biden says here is false. [pic.twitter.com/PeT0I2lP66](https://t.co/PeT0I2lP66)
-> — Tom Elliott (@tomselliott) [December 21, 2021](https://twitter.com/tomselliott/status/1473389357977542657?ref_src=twsrc%5Etfw)
-
+ 
+图片来源：www.japantimes.co.jp
 
 
-*汤姆·埃利奥特 @tomselliott*
+#### 编译：小红帽
 
+根据The New Daily 12月25日报道， 世界各地的商业航空公司在圣诞周末取消了4000多个航班，因为由Omicron变种驱动的新冠病毒（COVID-19）感染浪潮不断增加，给假期旅行者带来了更大的不确定性和痛苦。
 
+根据航班追踪网站FlightAware.com的统计，全球航空公司在周五至少取消了2314个航班。这一天是平安夜，通常是航空旅行的繁忙日子。
 
-*拜登在这里说的一切都是假的*
-*2021 年 12 月 21 日*
-拜登说：“如果你没有完全接种疫苗，你有充分的理由担心”。  “在过去几个月里，几乎所有死于中共病毒的人都未接种疫苗。 未接种疫苗。”
-拜登白宫甚至在周一发表一份声明，威胁未接种疫苗的人如果今年冬天仍然未接种疫苗，他们的家人将面临重病和死亡。
+该网站显示，全世界还有1404个圣诞节航班被取消，以及340个周日的航班。
 
-原文链接：
+在澳大利亚，数以百计的航班被取消，由于隔离要求，与新冠大流行有关的工作人员短缺导致乘客被滞留。
 
+与此同时，欧洲国家的新冠病例数创下历史新高，英国政府正在考虑在新年前夜实行更严格的限制措施。
 
+FlightAware的数据显示，美国境内和进出美国的商业航空运输占周末取消的所有航班的四分之一。
 
-> [Oregon Health Authority: 622 Fully Vaccinated Residents Died Of COVID](https://www.thegatewaypundit.com/2021/12/oregon-health-authority-622-fully-vaccinated-residents-died-covid/)
+新闻来源：[Chaos the world over: Thousands of Christmas flights cancelled (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/12/25/chaos-the-world-over-thousands-of-christmas-flights-cancelled/)
 
+***发布：小红帽***
 
-
-
-
-
-
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
