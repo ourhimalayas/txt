@@ -2,54 +2,40 @@
 ---
 
 
-## 英国创下COVID病例新纪录，Omicron横扫伦敦
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1791331/)
+## 未来取代Facebook和Twitter的六个社交媒体
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1791312/)
 
-作者：纽约香草山农场 – 四季
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/gettr-header-1.jpg)图片来源：www.bleepingcomputer.com
+据华盛顿考官（Washington Examiner）12月25日报道，由于Facebook和Twitter主导的社交媒体行业，越来越加强对用户的审查、管制和打压，一些新兴的社交网络应运而生。一下便是2022年值得关注的六个网络媒体
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+**Rumble**
 
+自称YouTube的替代者的Rumble，似乎是最成功的。它的视频流媒体服务在12月初以21亿美元的交易上市了。该平台的点击率有了巨大的增长。据《华盛顿邮报》报道，在美国，Rumble的记录访问量从2020年7月最后一周的约20万人次，增长到今年8月的近1900万人次——增长了9000%。
 
+**MeWe**
 
+MeWe在前总统川普的保守派中具有吸引力，虽然它不是为了容纳右翼受众而开始的，但在上次总统选举期间，Facebook和Twitter的川普支持者在寻找几乎没有限制和审查的公正平台， 而MeWe就这样成了这个受众的Parler版本，截至4月，它拥有1800万用户。
 
+**Twitter Spaces**
 
-据[OAN网站](https://www.oann.com/one-in-10-londoners-are-likely-infected-with-covid-ons-models/)援引路透社12月25日的报道，Omicron的快速传播推动了英国过去七天的病例激增。英国周五报告了新一天创纪录的COVID-19病例。新的数据显示，伦敦有大量人口携带这种病毒，突显了Omicron变体的无情推进。
+推特决定在其平台上托管Clubhouse等音频室，并获得了成功。Twitter Spaces对Clubhouse创意的使用使这个直播音频应用受益匪浅，它在2021年初以激增的用户群吸引了人们的注意。Twitter Spaces是2022年值得关注的平台，因为它可能会告诉我们，在社交领域音频优先平台的前景。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-25T004514Z_1_LYNXMPEHBO008_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2021年12月24日，在英国伦敦爆发的冠状病毒疾病（COVID-19）时，人们在平安夜站在国王十字车站内。（REUTERS/Henry Nicholls）
+**GETTR**
 
-政府报告了137例在COVID-19测试阳性后28天内的新增死亡病例，低于周四的147例，使大流行期间的总人数达到147,857人，为欧洲最高。
+Parler网络吸引了对Facebook和Twitter失望的用户，但苹果公司却决定从其应用程序商店中删除这个保守的社交网络。特朗普前官员杰森·米勒抓住了这一为GETTR打开市场的良机。应用分析公司Appfigures的一位发言人称，Parler “自1月份以来失去了大部分动力”，而GETTR在谷歌应用商店的下载量却激增。现在，该平台估计有300万会员和40万每日用户。
 
-政府数据显示有122,186个新增病例，高于周四的119,789个，这也标志着第三天的病例数超过了10万。
+**Truth Social **
 
-虽然最近对Omicron的研究表明，感染该变种的患者其住院率低于以前的COVID-19变种，但卫生官员对其前景保持谨慎的态度。
+这个备受瞩目的、与前总统川普有关联的社交网络在10月宣布成立，据说通过一个SPAC公司获得了超过10亿美元的投资。虽然该应用承诺在11月前发布测试版，但截至12月，该网络没有采取公开的行动，这让一些人怀疑该公司是一个骗局。该网站还面临着运行该网站的软件创建者的潜在法律诉讼，该软件还被用于帮助共和党在2022年的竞选活动筹集资金。
 
-国家统计局（ONS）周五的模型显示，12月16日，大约每20个伦敦人中就有1个可能患有COVID-19，而早期可能尚未修订的估计表明，这一比例在周日可能上升到1/10。
+**Discord**
 
-然而，总理鲍里斯·约翰逊 (Boris Johnson)以2021年的圣诞节比前一年 “好得多”为由，在周二排除了在这一天之前采取新的限制措施，他说，Omicron的严重程度和住院率仍存在不确定性。
+这个基于私人服务器的论坛在2020年和2021年出现了人气激增，估计全球有1亿用户。虽然Discord最初是作为一个游戏玩家聚集和交谈的平台，但它很快就成为一个工具，涉及了加密货及右派和左派的政治。该公司打算在2020年融资1亿美元后，扩大到游戏玩家人群之外，并提供机会，专注于较小的社区，而不是更广泛的个人网络。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+新闻来源：
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[Six social networks to watch in 2022](https://www.washingtonexaminer.com/policy/six-social-networks-2022)
 
  
 

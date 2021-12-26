@@ -2,24 +2,20 @@
 ---
 
 
-## Breitbart报道中共不应该举办冬奥会的八个理由
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1791789/)
+## TheGamer报道Steam游戏在中共国被禁止
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1791846/)
 
 作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据布赖特巴特新闻网12月25日报道 随着今年接近尾声，中共政府、NBC电视台和国际奥委会(IOC)已经开始为即将到来的北京冬奥会加大宣传力度。然而举办冬奥会的中共政权目前正在实施种族灭绝，并积极迫害运动员和记者。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-上午11.33.04.png)引自：VOA，一名女子走过北京冬奥会的大幅广告。（2021年12月9日）
-一年多来，人权组织和中共的受害者一直呼吁世界不要容忍中共的虐待行为，而是考虑抵制这一活动。截至发稿时，国际社会没有进行真正有效的抵制，这导致中共政府宣传机构洋洋得意地宣称，参加被激进分子称为“种族灭绝奥运会”的活动如今已成为世界的“主流”立场。
+据The Gamer 12月25日报道Steam 游戏已在中共国被禁止。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午12.02.50.png)
+中国的玩家报告 Steam 店面和所有 Steam 社区页面已被列入黑名单，这意味着在中国无法再访问 Steam 。早在今年二月份，Steam 中国就推出了，但出售的游戏数量要少得多。该站点仍在正常运行，但 Steam 全球这个提供更多游戏的完整 Steam 站点已于圣诞节当天在中国下线。
 
-距离冬奥会大约还有一个月的时间，这里有八个原因——其中一些原因即使是不太关注新闻的人也很明显知道，有些则不太明显——国际奥委会应该考虑关闭整个活动。
+此举令人意外，但符合中共政府过去 12 个月在电子游戏方面的行动模式。Fortnite 于今年11 月 15 日在中国关闭。儿童每周只能玩三个小时的游戏，并且禁止使用加密货币。为了允许开发新游戏，它们必须摆脱一些被认为是反中共的元素，包括“女性化男人”的存在。限制实施两个月后，据报道没有一款游戏获得批准。
 
-首先中共正在犯下历史上最大的种族灭绝暴行！ 这是最常被引用的抵制、搬迁或取消奥运会的理由也是最令人毛骨悚然的：习近平的独裁政权目前正在进行一场消灭中国西部几个少数民族的运动，其中最突出的是穆斯林占多数的维吾尔人。抵制侵犯人权的活动由来已久，在奥运会中，最相似的是 1936 年由纳粹德国主办的柏林夏季奥运会。与北京奥运会一样，抵制纳粹奥运会的呼吁在很大程度上失败了。
+目前尚不清楚这将如何影响中国游戏的发展。大多数人仍然可以登陆 Steam 中国，这意味着他们仍然可以在国内销售，但如果开发者访问 Steam Global 和玩家访问一样受到限制，这可能意味着中国开发者需要与中国以外的开发者合作才能登陆在 Steam 主站点上，这样做可能会错过 Steam 中国。
 
-不能允许中共举办冬奥会的其它理由还有：台湾参与者无安全保障；记者没有安全保障；中共虐待和压制运动员；中共可疑的奥运纪录；冰球堪称世界上最受欢迎的冬季运动，但中共国做得非常糟糕。
-
-最后不受控制的中共冠状病毒的威胁，让这个冬天如此的寒冷和让人恐惧。 鉴于上述原因，如果允许中共继续举办冬奥会，将是令人窒息和灾难性的结果！
-
-参考链接：[8 Reasons China Should Definitely Not Host the Winter Olympics](https://www.breitbart.com/asia/2021/12/25/8-reasons-china-should-definitely-not-host-the-winter-olympics/)
+参考链接：[Steam Has Reportedly Been Banned In China](https://www.thegamer.com/steam-banned-china-christmas-day/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
