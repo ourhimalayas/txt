@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@drizzling123 12/26/2021 5:35 PM (UTC)`
+
+班农先生：Miles Guo大智慧，全程拍摄整个采访并公布于众，揭露了Vice/HBO的谎言和歪曲——这些谎言是美国媒体向北京罪犯卑躬屈膝的跪拜—（以掩盖爆料革命）对于武汉的生物武器实验室、罪犯福奇的谎言、中共精英摘取器官、柏林式的种族灭绝运动会的不屈不挠的揭露。<br/><br/>Vice/HBO正在成为北京犯罪政权的走狗，为了（中国）老百姓、美国人民和全人类的利益，这个政权需要被彻底铲除。<br/><br/>感谢上天赐予迈尔斯·郭！
+> `@stevebannon 12/26/2021 4:10 PM (UTC)`<br/>Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@harnwell 12/26/2021 5:38 PM (UTC)`
 
 Attempts to suppress news on the potential #XianVariant are collapsing. <br/><br/>CNN’s Jessie Yeung (!) hilariously suggests that president Xi “Mayor Vaughn” Jinping locked down 13 million people in Xian City six weeks before the Olympics, because of just 6 Delta infections from a Pakistan flight. Yeah right [part 2 of 2] <br/><br/>https://www.cnn.com/2021/12/23/china/xian-china-covid-lockdown-intl-hnk/index.html
@@ -154,13 +163,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12月24号：衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐🎄应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞🎄❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 ![img](https://media.gettr.com/group48/getter/2021/12/25/02/a3d08123-7878-d238-31bb-e57001f047e9/out.jpg)
-
----
-
-`@miles 12/25/2021 1:59 AM (UTC)`
-
-Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story about the Terminator of CCP <br/>中国共产党终结者的故事
-![img](https://media.gettr.com/group49/origin/2021/12/25/01/123756da-64eb-d67f-907d-7168a7c7a29c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

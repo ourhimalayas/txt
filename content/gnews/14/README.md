@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月26日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1792957/)
+## 班农先生的一则盖文
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793298/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+#### 翻译：skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.jpg)
+Miles Guo很聪明，他拍下了整个采访过程，并把它放到网上，揭露Vice/HBO的谎言和不实报道。这些谎言已在我们的意料中，这些美国媒体公司对北京一丛罪犯们卑躬屈膝，叩首称臣。Miles Guo毫不留情地揭露了武汉生物武器实验室、罪犯福奇的谎言、中共精英们活摘器官的罪行和对（希特勒）柏林/种族灭绝运动会的拙劣模仿。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-26.png)
-文章仅代表作者本人观点，与Gnews无关
+Vice/HBO是北京犯罪政权的走狗，为了老百姓、美国人民和全人类的利益，这个政权需要被摧毁。
 
-视频参看：[2021.12.26早GTV新闻访谈](https://gtv.org/video/id=61c86e4000f9a119180b4027)
+感谢上天，我们有Miles Guo ！
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+[来源](https://gettr.com/post/pkonj1d4f8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

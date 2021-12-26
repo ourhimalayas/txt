@@ -2,63 +2,75 @@
 ---
 
 
-## 雅典娜疫情更新（2021年 12月26日）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792556/)
+## 最有效的传染控制，是口鼻消毒疗法
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1792639/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-319.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
+**简评：**
 
-感染总数：2.38亿（日新增 56.8万）
-死亡总数：482万（日新增 4035人）
-每万人感染人数：334.6624人
-（以上数字较昨日大幅度下调修正）
+应对全球瘟疫的首要措施就是降低传染，而最有效的传染控制是口鼻消毒疗法，因为病毒是通过空气传染。任何杀毒剂都可以用作清理溶液，比如Beta Died溶液，中文名为优碘。用两茶勺溶于六盎司水，用鼻腔喷雾器或者滴管喷入口腔，吸入鼻腔深处直到口子里，再从嘴里吐出来，就能有效地清理鼻腔，然后用剩余的溶液漱口，吐出来。最后用Scope或者Listerine漱口。
 
-**二，全球“疫苗”毒针统计数据**
+每次出门与人接触后回家都这样消毒清理鼻腔，尤其是在狭窄的空间里接触过。一般与人接触三小时就会感染，然后把病毒带回家，85%的病毒会在家庭成员之间传播。孟加拉国曾经对330名随机患者做过一个测试。结果发现，阳性患者的感染数、生病住院率或者死亡率都大大地下降。还有双氧水溶液外加Lugol’s Iodine可以用于口腔消毒。
 
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1461.png)图片来源：Our World in Data
-以上是整理数据时挖出来的一副澳洲，美国，英国，欧盟，印度疫苗接种每百人每日新增接种数据，比较可见，美国人在疫情进展的情况下，疫苗接种不升反降，而英国和澳洲人则继续踊跃接受毒针注射，英国人尤其积极。仔细考察这些数据的波动，可以看出毒针真相的普及程度，未来毒针的危害展现之日，在回头看这些数据的话，更将令人深思。
+[GTV视频链接](https://gtv.org/video/id=61c3de3d43ccb726a89ffaf)
 
-**三，澳洲疫情和“疫苗”数据**
 
-感染总数：301,960（今日新增 9,618人）
-死亡总数：2190人
-每万人感染人数：112.8946人
-“疫苗”毒针注射总数：42,076,796 （今日新增192,929针）
-第二针“接种”：1877.1945万人
-第二针“接种”百分比：76.6%
-16岁以上人口接种至少一剂疫苗的比例：94.1%
-16岁以上人口接种至少两剂疫苗的比例：91.0%
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1462.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1463.png)图片来源：Our World in Data
-今日澳大利亚病例继续暴增近万例，如上图所示，每日新增病例远超历史记录。考虑到澳洲16岁以上人口“完全”疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。澳洲作为一个孤立的大陆，总体来说疫情一向平稳，影响因子比其它国家更少，疫苗迅速推广之下疫情加剧爆发，更能说明问题。
 
-西澳州长马克·麦高恩 (Mark McGowan)几天前宣布，第三针疫苗也将成为强制。这意味着，目前所有受到强制疫苗政策影响的工人，当他们合资格注射加强针的一个月内就必须注射第三剂“疫苗”，否则他们将不能继续保住他们的工作。州长特意强调，他预期而且希冀第二针和第三针之间的间隔将会很快缩短。果然，周五澳洲卫生部长格雷格·亨特就宣布第二针和第三针的间隔真的从5月缩短成了3月。
 
-强制疫苗政策正如人们之前怀疑的那样，正在得寸进尺，变本加厉，现在没有止于2针，未来也不会止于3针，妥协和退让，试图把头埋在沙中，假装问题不存在，是无法解决问题的。疫苗强制步步紧逼，尤其是给5-11岁儿童打疫苗，这种种疯狂，已经唤醒了越来越多的人，人们已经开始看出了这其中的吊诡和荒诞。已经更多的人开始发问，为何我们常常发现当今的现实与那些丧失理性，颠倒黑白的1984式的情节如此相似？
+**视频字幕：**
 
-数据来源：
+**Dr. Peter****：**应对全球瘟疫需要四大支柱措施。华盛顿需要有常驻医生团队，如果他们联系我，我会毫不犹豫赶过去。事实上我给他们发了邮件，他们知道我是谁。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+首要措施是降低传染，比如改善空气流通。我们知道它通过空气传染，不是手部接触传染。虽然人们一直在用消毒液，但还是难免感染。
 
-发布：去中心化Math
+**主持人：**那是早期的时候吧。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**Dr. Peter****：**现在达拉斯沃斯堡国际机场，每隔两米就有洗手液。我们还看到有人在橄榄球场喷洒消毒液。但球场的座椅不会传播病毒。它不通过接触传播，不是伊波拉，不是芽孢杆菌。它通过空气传播。如果我们把注意力放在对传染的控制上，会有很好的效果。2021年的数据显示，最有效的传染控制，是口鼻消毒疗法。
+
+**主持人：**可以解释一下吗？
+
+**Dr. Peter****：**口鼻消毒疗法基本上就是用任意杀毒剂，任何消毒剂，比如，碘可以消毒。如果用Beta Dine溶液，一种非处方药，棕色的瓶子，我们通常用它清理伤口和耳朵。可以在任何药店买到这种液体，取两茶勺溶于六盎司水中。
+
+（注：Beta Dine在北美是一种家庭常备的伤口清洁液，有杀毒消菌作用，其成分一般是10% Povidone-iodine, 简称PVP，中文优碘，亚马逊即可买到。这里两茶勺溶于六盎司水，也就是0.5%PVP。近年Beta Dine推出了一款抗流感的漱口水，其成分就是0.5%PVP，可以直接使用，不用再作稀释。）
+
+两种产品链接如下:
+
+1 [传统10%PVP](https://www.amazon.ca/Betadine-Solution-Povidone-Iodine-10-USP/dp/B00MWE7LE0/ref=sr_1_2?keywords=betadine&amp;qid=1640163558&amp;sr=8-2)
+
+2 [漱口水0.5%PVP](https://www.amazon.ca/Betadine-Sore-Throat-Gargle-240ml/dp/B07H18C33M/ref=sr_1_3?keywords=betadine&amp;qid=1640164105&amp;sr=8-3)
+
+Beta Dine公司官网：[https://betadine.com/](https://betadine.com/)
+
+用一个鼻腔喷雾器或者滴管，喷入口腔，吸入鼻腔深处直到嗓子里，然后再嘴里吐出来。抱歉，這听上去很恶心，但必须从鼻子吸进去，这样才能有效清理鼻腔，然后用剩余的溶液漱口, 吐出来。最后用Scope或者Listerine漱口水漱口。
+
+每次出门与人接触，回家以后都这么做，尤其是在密闭空间里的接触，比如公共卫生间，狭窄的会议室。一般与病人接触三小时以上就会感染，在狭小并且空气不畅的地方，比如公共卫生间或者小商店。这是比较危险的状况，很多人就是这样把病毒带回家，随后85%的病毒会在家里扩散。但口鼻消毒疗法能极大改变这种状况。
+
+在孟加拉囯的一个随机对照测试中，对303名随机患者使用了这种口鼻消毒疗法，完全是外用药，没有使用其他任何处方药。而对照组的303名患者只使用温水漱口。到了实验的第三天，口鼻消毒疗法极大地降低了核算检测阳性率。阳性患者从303人降到了24人。这些阳性患者也得到了控制，使他们的重症住院率或死亡率降低了75%。而且这种疗法具有预防效果。
+
+注：这项实验采用的是1%PVP溶液，是一百年前西班牙流感时期的方法。
+
+[**实验报告原文**](https://www.bioresearchcommunications.com/index.php/brc/article/view/176)
+
+现在我们知道，还可以用双氧水溶液外加Lugol’s Iodine（注：Lugol’s Iodine，一种营养品，亚马逊即可购买）令人惊讶的是，美国牙医协会的牙医们，就像治疗巨细胞病毒，爱普斯坦巴尔病毒，以及牙龈炎一样，他们用次氯酸钠溶液，也就是家用漂白剂的成分，给口腔消毒。一般不用在鼻腔和眼睛。
+
+还记得川普总统提到漂白剂吗？被人们嘲笑坏了。其实是他不会解释, 有人给他推荐了美国牙医协会的方子，用于口腔消毒。
+
+
+
+*字幕：Vekap| 听写：云岭 | 翻译：Wade| 校对：Roberts| 简评/文字整理/编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,72 +2,44 @@
 ---
 
 
-## 2022 年值得关注的六个社交网络
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1792459/)
+## 中国政府在强迫劳动的指控下撤换新疆党委书记
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792474/)
 
-翻译： Jenny Ball
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/Artboard_52x.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Xinjiang.jpg)
 
-虽然 Facebook 和 Twitter 继续主导社交媒体行业，但越来越多的小众媒体已经开始提供可选方案，已经经常争论大型科技平台以牺牲大量市场为代价进行审查。以下一些网络，提供了值得投资的令人兴奋和显着的技术创新，而其他网络则过于政治或文化影响，可能会使其人犹豫不决。
 
-以下是 2022 年值得关注的一些应用平台：
 
-**Rumble**
+图片来源：www.ecotextile.com
 
-在近年来出现的所有保守选择的网络中，Rumble似乎取得了最大的成功。12 月初，这家自称为 YouTube 替代品的视频流服务，通过一家特殊目的收购公司，或一家为收购或与现有公司合并而创建的上市公司，以 21 亿美元的价格上市。首席执行官表示，新基金代表了“我们发展的下一步”，“将为 Rumble 提供继续扩展和发展业务所需的额外资金。”
 
-该平台的点击量大幅增长。据《华盛顿邮报》报道，美国记录的 Rumble 访问量，从 2020 年 7 月最后一周的约 20 万人次，增长到今年 8 月的近 1900 万人次——增长了 9000%。尽管这些数字与 YouTube 的数据相形见绌，但对于视频流媒体市场的任何竞争对手来说，它们都标志着一个重大进步。
+#### 编译：小红帽
 
-该网络在 8 月份采用了“创作者经济”的方法，当时它宣布，将支付图尔西·加巴德（Tulsi Gabbard）和格伦·格林沃尔德（Glenn Greenwald）等保守派友好人士在其平台上托管视频内容。
+根据Hindustan Times 12月25日报道，中国政府已经更换了其在动荡的新疆西北地区的负责人陈全国。陈全国去年因涉嫌侵犯偏远地区少数民族维吾尔族穆斯林的人权而受到美国的制裁。
 
-**MeWe**
+曾任广东省省长的马兴瑞已被任命为新的新疆党委书记。
 
-最近几个月的一个显着发展是，对私人消息传递组的依赖。虽然有些人已经转向 WhatsApp等应用程序，但MeWe因其在亲川普保守派中的吸引力而特别引人注目。
+在美国总统拜登签署了一项禁止来自新疆商品的法案后的第二天，中国政府就有了替换陈全国的举动。
 
-“MeWe还没有只是容纳右翼观众，但在上次总统选举期间，Facebook 和 Twitter 使川普的支持者大出血，他们正在寻找几乎没有限制和审查的‘公正’平台，”，TheGo! Agency的创始人克里斯·汤普金斯（Chris Tompkins）告诉华盛顿的审查员。 “因此，MeWe 变成了面向这些受众的 Parler 版本。虽然他们不专注于广告，但用户参与度很高。”
+人权组织称，中国政府在一个全球供应链中占有重要地位的地区，对维吾尔族穆斯林进行了压迫。
 
-而 MeWe 意识到了这一点，这家基于订阅的消息服务，去年夏天寻求资金来扩展其服务器，作为直接消息传递的替代平台。该应用程序已成为香港组织者的相关工具，截至 4 月，它拥有 1800 万用户。
+据香港《南华早报》报道，陈全国被美国、英国和欧盟指控广泛侵犯维吾尔人的人权，但他被认为将获得晋升。
 
-**Twitter Spaces ****推特空间**
+过去几年，中国政府一直与西方关于侵犯维吾尔穆斯林人权的指控作斗争。
 
-Twitter 决定在其平台上托管诸如“会所”（ Clubhouse ）之类的音频室的决定取得了成功。推特空间使用 Clubhouse 的想法，使直播音频应用程序受益，该应用程序在 2021 年初以激增的用户群引起了人们的注意。随后，从 Facebook 到 Reddit 的每家科技公司都开始将现场音频整合到其软件中，Clubhouse 最终失去了光彩。
+这些指控包括将大约100万穆斯林少数民族社区的人监禁在拘留营中，在资源丰富的新疆的制造单位中强迫劳动，强迫堕胎，以及大规模灌输思想。
 
-“在 2022 年，推特空间是一个值得关注的平台，因为它可能会告诉我们，这是音频优先社交平台和社交领域功能的开始或是结束，”“ 伟大营销网”（Something Great Marketing）的创始人贾斯汀·克比 (Justin Kerby) 告诉记者华盛顿考官。“推特空间是 Clubhouse 的副本，但它与 Twitter 的内置受众一起出现在我们面前，因此，应该很容易确定这种发布是零还是英雄。”
+新闻来源：[US sanctions: China replaces Xinjiang party chief amid forced labour allegations | World News – Hindustan Times](https://www.hindustantimes.com/world-news/us-sanctions-china-replaces-xinjiang-party-chief-amid-forced-labour-allegations-101640450068383.html)
 
-Clubhouse 的人数显着下降，而推特空间的追随者人数更多。然而，在亲塔利班组织者和白人至上主义者使用推特空间作为组织会议的一种方式之后，一些人开始担心该平台的未来。
+***发布：小红帽***
 
-**GETTR****盖特**
-
-苹果公司决定从其 App Store 中删除保守的社交网络 Parler，Parler吸引了对 Facebook 和 Twitter 失望的用户，苹果的决定扼杀了他们对该社交网络的浓厚兴趣，为前川普官员杰森·米勒（Jason Miller）的 GETTR 开辟了市场机会。应用分析公司“应用数据”([Appfigures](https://appfigures.com/))的一位发言人声称， Parler“自 1 月以来失去了大部分动力”，而 GETTR 则看到谷歌 App Store 上的下载量激增。
-
-米勒证实了人们对他的平台越来越感兴趣，他在 11 月告诉华盛顿审查员，它估计有 300 万会员和每日40 万的用户。
-
-**Truth Social真相社会**
-
-备受期待的川普附属社交网络于 10 月宣布，据报道，通过 SPAC 获得了超过 10 亿美元的投资。虽然该应用承诺在 11 月之前发布测试版，但截至 12 月，该网络尚未采取任何公开行动。
-
-目前尚不清楚川普传媒科技集团（TMTG）何时发布其首款产品，让一些人怀疑该公司是否是出于财务目的的骗局或是海市蜃楼。
-
-该网站还面临着运行该网站的软件创建者的潜在法律诉讼，该软件还被用于帮助为 2022 年的共和党竞选活动筹集资金。
-
-如果Truth Social 能够启动并运行，它可能会成为替代社交媒体经济中的重要竞争对手。
-
-**Discord**
-
-基于私人服务器的论坛在 2020 年和 2021 年人气激增，全球估计有 1 亿用户。虽然 Discord 最初是作为游戏玩家聚会和交谈的平台，但它很快成为了从加密货币，到工作，到组织左右两派政治的各种工具。
-
-该公司打算在 2020 年筹集 1 亿美元后，将业务扩展到游戏玩家之外，并提供机会，通过更广泛的个人网络，专注于较小的社区。
-
-**参考资料：**[washingtonexaminer][Six social networks to watch in 2022](https://www.washingtonexaminer.com/policy/six-social-networks-2022)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
