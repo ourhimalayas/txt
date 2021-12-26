@@ -2,25 +2,29 @@
 ---
 
 
-## 中共势力扩张至所罗门群岛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1791985/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-2
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792004/)
 
-#### 采集/翻译：意翎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
+在HBO VICE对郭文贵先生的采访中，记者ISOBEL YEUNG污蔑郭先生激发了大规模的个人崇拜。而在未经剪辑的视频中我们看到，郭先生甚至都不认为自己是英雄。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1446.png)
+在郭先生的眼中，中国有叶钊颖、郝海东等千千万万的英雄，但他们得不到应有的尊重。中共不仅不尊重这些英雄，也不尊重普通人的生命、信仰，他们只推崇金钱和权力，并企图将这种扭曲的价值观推广到美国以及全世界。他认为新中国联邦的使命是协助建立中共被消灭后的新中国政府体系。接下来我们还原事实真相的第二部分：反击HBO-VICE诋毁郭先生进行大规模个人崇拜。
 
-#### 责编：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-40.png)图片来源：NEWS
-美国广播公司ABC新闻报道，中共警察和装备很快将会派往所罗门群岛，帮助索加瓦雷（Manasseh Sogavare）政府平息持续数月的叛乱。这是亚太地区(Asia-Pac)在平安夜向北京示好的最新一张多米诺骨牌。此举令澳洲官员感到焦虑。
+总编：飞虹
 
-2019年，所罗门群岛决定将外交关系从台湾转向中共，这是人们对这个太平洋国家不满的原因之一。马莱塔省省长直言不讳地反对国家政府的这一决定。上个月的抗议活动后，霍尼亚拉被封锁。
+[https://www.gettr.com/post/pkgaif1cfa](https://www.gettr.com/post/pkgaif1cfa)
 
-周四，索加瓦雷政府宣布将接受北京的援助，以增强其防暴警察的能力。政府已经同意接受中共国提供的防暴设备和6名警察联络官，“在现有的双边援助下进行所罗门警察部队的技能装备和人员培训”。政府的声明报告说它“意识到加强所罗门群岛警察部队能力和应对未来动荡能力的迫切需要。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
 
-澳大利亚国防和外交部消息人士告诉ABC广播公司，他们认为所罗门群岛是太平洋地区第一个接受中共这种程度帮助的政府，特别在防暴和治安方面，并且担心未来会向北京寻求更多的帮助。在一份声明中，外交部发言人表示，他们知道中共正在派遣增援部队。
+校正/发稿：浪迹天涯
 
-中共外交部发言人赵立坚（Zhao Lilian）说，北京将帮助所罗门群岛回击“严重的”反政府骚乱，“应所罗门群岛政府的请求，中共将提供一批应急防暴设备并派遣一个特别警察顾问团队。”
-
-原文链接：[Beijing Influence Expands After Solomon Islands Accepts Chinese Offer For Riot Police Help](https://www.zerohedge.com/markets/solomon-islands-accepts-chinese-offer-riot-police-help)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
