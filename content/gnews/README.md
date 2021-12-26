@@ -15,128 +15,128 @@
 
 ---
 
-### [中国政府在强迫劳动的指控下撤换新疆党委书记](/content/gnews/1/README.md)
+### [所罗门群岛接受中共国援助防暴警察帮助的提议](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留](/content/gnews/2/README.md)
+### [12-22班农专访6: ﻿美盗国贼基金不会影响中共](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中国政府在强迫劳动的指控下撤换新疆党委书记](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [让我和您聊聊他](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大总理特鲁多谴责中共：非常狡猾地试图让西方国家相互对立](/content/gnews/3/README.md)
+### [中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/4/README.md)
+### [2022 年值得关注的六个社交网络](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加拿大总理特鲁多谴责中共：非常狡猾地试图让西方国家相互对立](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳加强针需求飙升，全科医生和药剂师将获更多库存](/content/gnews/5/README.md)
+### [澳加强针需求飙升，全科医生和药剂师将获更多库存](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文·贵天成——郭文贵先生谈“黑石集团”（一）](/content/gnews/6/README.md)
+### [文·贵天成——郭文贵先生谈“黑石集团”（一）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [追问：邮储银行支行行长涉嫌骗取储户存款](/content/gnews/7/README.md)
+### [追问：邮储银行支行行长涉嫌骗取储户存款](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳大利亚新州政府敦促居民出现症状才接受病毒检测](/content/gnews/8/README.md)
+### [澳大利亚新州政府敦促居民出现症状才接受病毒检测](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2021年12月25日郭先生盖特 — 视频盖特3「2分53秒」](/content/gnews/9/README.md)
+### [2021年12月25日郭先生盖特 — 视频盖特3「2分53秒」](/content/gnews/13/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [拜登签署法案，禁止进口中共国新疆地区产品](/content/gnews/10/README.md)
+### [拜登签署法案，禁止进口中共国新疆地区产品](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [民意调查：72%的美国人表示不信任脸书对用户隐私数据的保护](/content/gnews/11/README.md)
+### [民意调查：72%的美国人表示不信任脸书对用户隐私数据的保护](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月25日郭先生盖特 — 视频盖特2「1分58秒」](/content/gnews/12/README.md)
+### [2021年12月25日郭先生盖特 — 视频盖特2「1分58秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [推动打疫苗的人他们的言论前后矛盾](/content/gnews/13/README.md)
+### [推动打疫苗的人他们的言论前后矛盾](/content/gnews/17/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021年12月25日郭先生盖特 — 视频盖特1「6分46秒」](/content/gnews/14/README.md)
+### [2021年12月25日郭先生盖特 — 视频盖特1「6分46秒」](/content/gnews/18/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [7·24系列——习近平的龙杯](/content/gnews/15/README.md)
+### [7·24系列——习近平的龙杯](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前程“四紧”！前程似锦！](/content/gnews/16/README.md)
+### [前程“四紧”！前程似锦！](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [Omicron病毒绝对超出大家的想象](/content/gnews/17/README.md)
+### [Omicron病毒绝对超出大家的想象](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：东京都内新增感染病例连续6天回升](/content/gnews/18/README.md)
+### [秘翻在线：东京都内新增感染病例连续6天回升](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲悉尼一家医院向400多名新冠病毒检测者发送了错误的检测信息](/content/gnews/19/README.md)
+### [澳洲悉尼一家医院向400多名新冠病毒检测者发送了错误的检测信息](/content/gnews/23/README.md)
  ` 喜国公民`
 
-### [人类正处在数字货币代替法币的春秋时代](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美NBC为冬奥会转播预热同时北京为运动员感染病毒进行实战演练](/content/gnews/21/README.md)
+### [美NBC为冬奥会转播预热同时北京为运动员感染病毒进行实战演练](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国地方债务 中央不救助](/content/gnews/22/README.md)
+### [中共国地方债务 中央不救助](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [龙芯公司创造荒唐“毛诞节”名词](/content/gnews/23/README.md)
+### [龙芯公司创造荒唐“毛诞节”名词](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [六四雕像作者跨国提告 要求美国制裁](/content/gnews/24/README.md)
+### [六四雕像作者跨国提告 要求美国制裁](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [德国新外长将对中共采取强硬立场](/content/gnews/25/README.md)
+### [德国新外长将对中共采取强硬立场](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [NASA有史以来最强大的望远镜发射成功进入太空](/content/gnews/26/README.md)
+### [NASA有史以来最强大的望远镜发射成功进入太空](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大政府正利用移动设备对国民进行至少五年跟踪监控](/content/gnews/27/README.md)
+### [加拿大政府正利用移动设备对国民进行至少五年跟踪监控](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [历史上的今天：戈尔巴乔夫宣读苏联“死亡通知书”](/content/gnews/28/README.md)
+### [历史上的今天：戈尔巴乔夫宣读苏联“死亡通知书”](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登签署新疆强迫劳动法案 各界赞扬美国作法](/content/gnews/29/README.md)
+### [拜登签署新疆强迫劳动法案 各界赞扬美国作法](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本因中共病毒陷入生活贫困的人数翻倍](/content/gnews/30/README.md)
+### [日本因中共病毒陷入生活贫困的人数翻倍](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界各地一片混乱：数以千计的圣诞航班被取消](/content/gnews/31/README.md)
+### [世界各地一片混乱：数以千计的圣诞航班被取消](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [万名俄罗斯军人完成军事演习，返回基地待命](/content/gnews/32/README.md)
+### [应对中共和朝鲜威胁，日本国防开支续创新高](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共和朝鲜威胁，日本国防开支续创新高](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/34/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（六）](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/35/README.md)
+### [【樱花深度报道】王沪宁的荣耀与噩梦（五）](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月22日关于郭文贵先生接受HBO Vice采访的背后真相](/content/gnews/36/README.md)
+### [2021年12月22日关于郭文贵先生接受HBO Vice采访的背后真相](/content/gnews/38/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [【#G时新闻】无尽的源头之毒——Omicron后中共要再放新病毒！](/content/gnews/37/README.md)
+### [【#G时新闻】无尽的源头之毒——Omicron后中共要再放新病毒！](/content/gnews/39/README.md)
  ` G-时新闻`
 
-### [第197期玫瑰看新闻-币圈新闻](/content/gnews/38/README.md)
+### [第197期玫瑰看新闻-币圈新闻](/content/gnews/40/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/39/README.md)
+### [聚焦：美国和欧盟对中共的经济政策出现分化](/content/gnews/41/README.md)
  ` 丁过`
-
-### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/40/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [第197期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/41/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [欧洲各国政府借奥米炕病毒推疫苗强制令，引发民意反弹](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
