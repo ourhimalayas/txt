@@ -16,6 +16,8 @@
 ---
 ## 頁面 35/38 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
 
+[翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
+
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
@@ -63,8 +65,6 @@
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
 
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
-
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
 
 
 ## 頁面 35/38 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-36.md) [查看全部](/content/README-all.md)

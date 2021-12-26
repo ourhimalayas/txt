@@ -16,6 +16,8 @@
 ---
 ## 頁面 28/38 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [38](/content/README-38.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/2018/11/20181109-6875461372122339144.md)
+
 [翻译世界论坛报导：跌落死的中国商人很可能“知道的太多”](/content/2018/11/20181108-8983368335590394256.md)
 
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/2018/11/20181108-3694443382811258849.md)
@@ -63,8 +65,6 @@
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/content/2018/10/20181004-4197432532070823443.md)
 
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/content/2018/09/20180929-7242138828289666043.md)
-
-[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180922-1607406229433269336.md)
 
 
 ## 頁面 28/38 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [38](/content/README-38.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
