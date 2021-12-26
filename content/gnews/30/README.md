@@ -2,36 +2,29 @@
 ---
 
 
-## 郭文贵先生揭秘中共封杀网红、教育行业真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792053/)
+## 澳洲总理莫里森悄悄加入抖音TikTok目的为何
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1792081/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
-就中共大量封杀国内网红和教育行业的现状，郭文贵先生在12月24日的大直播中揭秘了其幕后真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1449.png)图片來源：https://cdn.hk01.com/di/media/images/dw/20200922/385132967367938048.jpeg/lLYsf0goHH–D1V944q5n1pKHE-RUuICBSndbAUp3Ww?v=w1920r16\_9
-网红直播虽占据中共国几万亿人民币的市场份额，但其中绝大部分都是西方文化舶来品。当代国内年轻人普遍已经习惯于借贷服务，而在国内经济即将崩溃的当下，一旦借贷无法得到偿还，对中共国经济无疑是雪上加霜。郭先生还透露，国内网红们用自己的影响力传播着爆料革命的信息，成为中共眼中不可控的政治隐患。因此中共封杀网红直播，严控市场资源。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-40.png)图片来自网络
+澳洲总理莫里森早先曾强烈谴责抖音把用户数据交给中共国。然而一年后的今天，在澳大利亚联邦选举迫在眉睫之际，他却选择悄悄地加入了抖音。
 
-中共封杀教育行业，则是为抑制财富外流，封锁年轻人学习海外先进思想和文化的路径，将反抗思想扼杀在摇篮之中，为中共统一思想扫清障碍。
+2020年8月，莫里森先生曾短暂考虑在澳大利亚禁止抖音，因为该应用程序由中共国公司字节跳动（ByteDance）拥有。
 
-郭先生认为，为稳定政治权力，习近平必将严格控制财富、资源、技术，消除一切不稳定因素，统一思想。
+抖音坚持认为澳大利亚的数据是存储在新加坡和美国的，但其他国家也对这些说法的真实性表示担忧。
 
-新闻来源：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
+圣诞节前夕，莫里森上传了他的第一个抖音视频，随后在圣诞节当天又上传了另一个。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69-1.jpeg)
+他的账户以pm\_scomo为名，已经得到了验证。但账户的评论、对唱和提及功能被关闭。在撰写本文时，他的账户只有1854名粉丝。
 
-总编：飞虹
+关注者甚至不能留言评论他的帖子，也不能在自己的视频或评论中提到他，他因此受到批评。其中一位用户表示，如果总理真的向平台上的年轻人开放自己，他会被 “搞死”。
 
-编辑：雪梨
+Pedestrian TV的作家Sweeney Preston说，不允许人们评论莫里森先生的抖音是属于 “绝对懦夫 “的行为。
 
-校正/发稿：浪迹天涯
+莫里森加入抖音，可能是因为抖音超过了谷歌，成为2021年访问量最大的网站。为了得到年轻人的支持而达到连任目的。但加入由中共拥有的抖音，大选结果会如他所愿吗？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/MOS-Line_LOGO_publish.png)
+消息来源：[Scott Morrison joins TikTok as his criticism of the platform’s links to China come back to haunt him](https://www.news.com.au/technology/online/social/scott-morrison-joins-tiktok-as-his-criticism-of-the-platforms-links-to-china-come-back-to-haunt-him/news-story/d73f5602f59e1005580d66f9fda13f22)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

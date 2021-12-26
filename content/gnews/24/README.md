@@ -2,24 +2,23 @@
 ---
 
 
-## 应对中共和朝鲜威胁，日本国防开支续创新高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792147/)
+## 万名俄罗斯军人完成军事演习，返回基地待命
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1792181/)
 
-#### 撰稿：彩虹 
+#### 搜集/撰稿：彩虹
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-40.jpg)图片来源：EMEA Tribune
-12月25日，《国会山报》引述路透社文章，由于中共国持续扩展军力以及北朝鲜扩充其导弹库，日本2022年的国防开支创下新高。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1450.png)图片来源：CNN
+根据《国际文传电讯社》的说法，这些演习是在乌克兰附近的几个地区举行的，包括在2014年俄罗斯吞并的克里米亚地区，以及俄罗斯南部的罗斯托夫和库班地区。
+国际文传电讯社援引军队的话说：“师级、战斗队员、摩托化部队班组……的战斗协调阶段已经完成。超过1万名军人……将从联合演习作战区域前进到永久基地”。
 
-根据路透社报道，周五，日本政府批准了一项预算，从4月1日开始的财政年度，将为日本军队提供大约470亿美元的资金，该预算还需要得到由首相岸田文雄（Fumio Kishida）的政党控制的议会批准。
+文章指，俄罗斯在乌克兰北部、东部和南部部署了数以万计的军队，加剧了乌克兰和西方国家对俄罗斯正在计划发动攻击的担忧。
 
-该预算金额比前一年增长了1.1%，也是日本连续第十年增加该部分的开支。
+而俄罗斯方面的理由，则是否认有任何此类攻击计划，但称它需要包括北约在内的西方国家的承诺，即不将北约向东扩展到俄罗斯边境。同时，俄罗斯可以在自己认为合适的情况下在其境内部署军队。
 
-文章认为，日本军队预算的增长，源自于两个因素，一个是中共国对台湾的持续威胁和军事挑衅，二是在日本看来，金正恩（Kim Jong Un）领导下的朝鲜也是一个持续的威胁。
+**新闻来源** [10,000 Russian Troops Reportedly Pulling Away From Ukraine](https://www.newsmax.com/world/globaltalk/ukraine/2021/12/25/id/1049925/)
 
-**新闻来源**
 
-[Japan to boost military spending amid East Asian threats](https://thehill.com/policy/defense/587300-japan-to-boost-military-spending-amid-east-asian-threats)
 
  
 
