@@ -2,49 +2,36 @@
 ---
 
 
-## 12-22班农专访6: ﻿美盗国贼基金不会影响中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1792478/)
+## 皇家加勒比游轮二次爆发疫情
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792522/)
 
-**简评：**
+作者：纽约香草山教育部 Irene木木
 
-美国财政部为了打击洗钱、现金购买房地产和来自国外的非法资金流动，新推出了“盗国贼基金”法案，用来奖励爆料国外腐败官员在美国隐匿的财产。这个基金的方向性很好，是一个标志，但是对中共黑帮头子不会有多少影响，因为中共太精明、太狡猾。中共在资本市场经营多年，能够运作世界上某些精密复杂的资本行为，中共幕后的黑手不会被抓到。
-
-[GTV视频链接](https://gtv.org/video/id=61c5d53343ccb726a08ab297)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-**视频字幕：**
+12月23日，据当地媒体报道，刚刚离开佛罗里达州劳德代尔堡的皇家加勒比游轮上，有 55 名乘客的中共病毒检测结果呈阳性。目前，这些感染者以及相关密切接触者已进入隔离状态，而感染者的症状大多较为轻微。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-8.47.18-PM.png)
+这是数周内该游轮上第二次爆发中共病毒疫情。消息称，这艘载有超过三千五百名乘客和一千五百多名船员的游轮，原计划在其八天的航程中停靠超过两个休息点，但由于疫情严重，目前计划取消部分停靠点。
 
-**英喜主持人：**美国财政部对洗钱和来自国外的非法资金流动进行了严打，而且正在推出一个新的“盗国贼基金”，用来奖励外国腐败官员在美国藏匿钱财的爆料；他们在寻求对现金购买房地产的管理和对洗钱的严厉打压。所以，你认为这对中国共产党会有任何影响吗？谢谢班农先生。
+数据显示，鉴于运营公司对乘客和船员的强制疫苗要求，该游轮上超过95% 的人已经完全接种了中共病毒疫苗。
 
-**班农先生：**我希望它会有，但我认为对于这个盗国贼基金来说，中共太精明太狡猾了。
+参考链接：[55 people catch COVID on Royal Caribbean cruise](https://nypost.com/2021/12/23/royal-caribbean-cruise-ship-sees-fifty-five-passengers-test-positive-for-covid-19/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
 
-我认为，从方向性来说，你必须对这些地方上的资本市场和资产市场进行严格的控制，以此保证中共制下的中国人，中国老百姓的钱不会被中国共产党偷走，然后以洗钱的方式进入西方，就像迄今为止所发生的一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-但恐怕中共已经精明到能够运作世界上的某些精密复杂的行动，如果这个基金能起到有意义的作用的话，我会感到很惊讶。它也许会影响到食物链末端的人，但在它能否抓住王岐山、习近平、杨洁篪等控制中国的黑帮头子这点上，我对这个基金毫无信心。
+编辑/总编：正义的小新
+校正/发稿：我不在这里
 
-所以，从大方向来说，它挺好，它听起来挺好，大家在感觉上会好一些，但我不认为（这个基金有什么用）…从道德上说，它相当于那位因为做假证否认他收中共钱而被判有罪的哈佛教授。他有着重要的标志性，但他只是个小人物。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-这就像你看到联邦调查局出击，进入华人社区，抓了几个人，然后大肆宣传，说他们逮捕了11个人，全是胡扯。他们从没调查过大人物和获得相关证据，所以我认为从大方向上说，设立这个基金是聪明的，但我的预判是不会有真正的幕后黑手被抓。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101316.jpg)
-*字幕：free20200604 | 听写：云岭 | 翻译：nights | 校对：Roberts | 简评/文字整理/编辑：胖丁*
-
-
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
