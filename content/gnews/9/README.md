@@ -2,29 +2,46 @@
 ---
 
 
-## 因中共病毒 全球贫富差距进一步扩大
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792533/)
+## 台湾空手道团员哈萨克比赛后已11人确诊中共病毒
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1792534/)
 
-撰稿：东京樱花团丨百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-325.png)
-[*图片来源*](https://news.yahoo.co.jp/articles/7795ec1d52f102ad05320f9a39606bdd7f90cb97/images/000)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
 
-据《共同通信》网站26日报道，根据100多位经济学家的一项国际研究表明，今年世界前1%的超级富豪的财富占了全球个人财富的37.8%。底层50%的人只占了财富总数的2%。因中共病毒（Covid-19）而下滑的经济刺激措施导致股票资产的价值飙升，这种差距在进一步扩大。
+作者：纽约香草山 医疗部 云豹
 
-特别是，排名在最前的2750人就拥有超过13万亿美元财富（约合1490万亿日元），占比3.5%，财富集中度非常明显。
 
-该研究报告担心，不平等将继续扩大并且发展到差距非常大的地步，呼吁对富人和大型企业征收更多的税。
 
-报告同时也指出，日本的财富分配尽管不像欧洲那样，但是，日本财富的分配也是非常不平等的。
+当地时间12月26日，参加哈萨克亚洲空手道比赛的台湾团员，返国后接受病毒检测结果出炉，已有11人确定被感染中共病毒。
 
-信息源：
+台湾空手道团员此次共有22人前往哈萨克参加比赛，在12月24日返国入境后，于集中检疫所进行隔离检疫，并进行首次采检。初步检验结果显示有11人确定被感染中共病毒，将进行进一步的基因定序，以确认是哪一株病毒。台湾22名代表队成员，大多已打满2剂疫苗，并在比赛前接受检查皆为阴性。
 
-[**世界の超富裕層****1****％、****4****割を独占　コロナ影響、格差拡大に拍車**](https://news.yahoo.co.jp/articles/7795ec1d52f102ad05320f9a39606bdd7f90cb97#:~:text=%E4%)
+除了台湾的团员外，目前日本、香港、泰国也传出有选手被感染的案例。空手道是近距离的比赛，很难做好避免被感染的自我防护措施。哈萨克已经有75%的人口完成完整疫苗接种，各国选手也绝大部分完成疫苗接种，可是仍有大量选手在比赛时被感染，显示即使已完成完整疫苗接种，也无法避免被感染中共病毒。
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 /*yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+(本文为作者观点，不代表G NEWS立场)
 
+参考连接：
+
+&lt;[https://www.cna.com.tw/news/firstnews/202112265004.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112265004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
