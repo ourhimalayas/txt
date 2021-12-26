@@ -2,84 +2,34 @@
 ---
 
 
-## 视频| VICE和HBO这个时候放出编辑过的视频的目的（下）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1791852/)
+## 加拿大呼吁建立针对中共国的“统一战线”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1791863/)
 
-## 摘自2021.12.24郭先生大直播
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-316.png)图片来源：REUTERS/DAMIR SAGOLJ/FILE
+翻译：皮特
+编辑：Mttfly
 
-制作：香草山视频部
+加拿大总理贾斯汀·特鲁多（Justin Trudeau）敦促西方“资本主义民主国家”联合起来，防止北京利用它们因中国不断增长的市场可以获取的利润引发的内讧。
 
+特鲁多在周六播出的环球电视台的采访中说，西方国家必须“更加努力合作，坚持立场，这样中共国就不能……把我们一个个分化开来。”
 
+特鲁多说：“在朋友之间，一直有一些竞争，因为我们是资本主义民主国家……特别是考虑到中国中产阶级崛起的经济机会。”不得不承认西方关心经济利益超过了对中共国涉嫌侵犯人权和“胁迫”行为的担忧。
 
-如果咱没有摄像机
-满身是嘴也说不清呀
-滕彪说我乱伦我侄媳妇
-结果变成我说滕彪是乱伦
-你想有多可怕
-G-TV 他（滕彪）说我们是骗子
-很简单 谁被骗了
-螃蟹说他自己两天没吃饭
-在这之前（螃蟹）崇拜（郭文贵）的房子
-公寓 西装 游艇
-不给他钱了
-两天 就一想 这家伙是骗子
-谁能崇拜一个人
-经过两天不给钱以后
-就认为他是骗子
-这种垃圾话 他（螃蟹）能给你弄出去
-最后说，你觉得他（郭文贵）会怎么样
-他会把中国人带入地狱
-我爆料四、五年来
-我把一个中国人带入地狱了吗
-怎么能把中国人带入地狱
-他让中国人恨我们
-不单让美国 西方世界恨爆料革命
-他让螃蟹的嘴说出来
-中国人要恨这个爆料革命 新中国联邦
-这个之阴歹
-跟当年印尼排华 一模一样
-他要把我们推到1月6日
-美国刑事调查这个范围内
-第三招够不够狠
-那个编辑的语言
-Nicole 可以把爆料革命毁掉的
-小斯基说 Gnews G-TV是一家人
-都是爆料革命操控的媒体工具
-第五招 够不够狠
-最后说什么
-郭文贵和新中国联邦
-是西方民主最大的威胁
-无论如何都不应该让他存在
-用腾彪的口 螃蟹的口
-用Nicole的口 青藤的口 小斯基的口
-给我们完全定义
-邪教 西方自由民主的威胁
-中国人将被带入地狱
-郭文贵是一帮骗子
-Gnews G-TV 完全是虚假新闻
-GETTR 是极右的
-就差是希特勒
-完全是站在川普一边的
-现在当政者是拜登
-我们是拜登的敌人 威胁者
+特鲁多指出，有一些全球问题，如气候变化，加拿大必须继续与中共国合作。但为了在经济上与中共国竞争，所有“志同道合的国家”应该团结起来，进行协调，并“展示一个统一战线”。
 
+在渥太华加入美国领导的对2022年北京奥运会的外交抵制之后，加拿大与中共国关系在本月达到新的低点。与华盛顿和堪培拉的言论相呼应，特鲁多指责中共国因涉嫌虐待维吾尔族穆斯林而“一再侵犯人权”，引发了中共国的严厉斥责。
 
+**原文链接：**[Canada calls for ‘united front’ against China](https://www.rt.com/news/544417-canada-united-front-china/)
 
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

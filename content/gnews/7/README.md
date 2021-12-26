@@ -2,32 +2,90 @@
 ---
 
 
-## TheGamer报道Steam游戏在中共国被禁止
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1791846/)
+## 视频| 媒体比法庭的力量更大，接受采访始末
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1791853/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据The Gamer 12月25日报道Steam 游戏已在中共国被禁止。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午12.02.50.png)
-中国的玩家报告 Steam 店面和所有 Steam 社区页面已被列入黑名单，这意味着在中国无法再访问 Steam 。早在今年二月份，Steam 中国就推出了，但出售的游戏数量要少得多。该站点仍在正常运行，但 Steam 全球这个提供更多游戏的完整 Steam 站点已于圣诞节当天在中国下线。
+## 摘自2021.12.24郭先生大直播
 
-此举令人意外，但符合中共政府过去 12 个月在电子游戏方面的行动模式。Fortnite 于今年11 月 15 日在中国关闭。儿童每周只能玩三个小时的游戏，并且禁止使用加密货币。为了允许开发新游戏，它们必须摆脱一些被认为是反中共的元素，包括“女性化男人”的存在。限制实施两个月后，据报道没有一款游戏获得批准。
+制作：香草山视频部
 
-目前尚不清楚这将如何影响中国游戏的发展。大多数人仍然可以登陆 Steam 中国，这意味着他们仍然可以在国内销售，但如果开发者访问 Steam Global 和玩家访问一样受到限制，这可能意味着中国开发者需要与中国以外的开发者合作才能登陆在 Steam 主站点上，这样做可能会错过 Steam 中国。
 
-参考链接：[Steam Has Reportedly Been Banned In China](https://www.thegamer.com/steam-banned-china-christmas-day/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+前天在我们没有播出全集采访
+就在这个桌子上
+大家都看了对方的采访
+我们遵守当初的约定Isobel Yeung
+她不放我们不放
+我们当时的条件是现场要放摄像机
+我们放摄像机
+对方多次尝试阻挡我们的镜头啊
+就是对方的摄影师，挡来挡去好多次
+而且我们中间是有一段没有录上的
+现在我都怀疑这个没录上的
+到底是什么技术（才）让没录上
+只有一段没录上的，不是100%
+录完以后我就把它发给了大卫和木兰
+我说你们开始准备加字幕吧
+然后把中间对方撒谎的事儿做好对比
+咱已经开始了
+如果没有这个对比，没有这个录像机
+这一切就完了
+还有一个对方来要问啥问题
+我根本不知道
+我给对方提的时候说
+你不要告诉我你问什么，随便问
+我完全没有任何准备的
+完全是自然性的反弹
+这给你吓的套，对方给你挖的坑
+几乎没有人能跳过去
+就是你答什么都是死套
+因为只要你回答这个问题
+他要的目的就是我把这话题提起来
+这在媒体上就叫挖坑
+我提起来所有人先入为主
+你就已经上套了
+但是呢咱有咱的自己的平台
+人和人不一样，我能发出声去
+你想想如果咱没平台
+我们没有做这准备，完了
+人家说啥就是啥
+这就是所有全人类都面临着
+过去的百年千年来的遭遇
+就对方怎么说你啥
+他有平台，他有工具
+他有公信度，你就死定了
+那比法庭宣判还夸张
+没有人再从脑子里把东西拿出去
+因为他再也听不到你的对比了
+这是很可怕的
+你没有录像，你没有对比
+你没有平台，你没有这个勇气
+你没有这个智慧
+或者说对方抓住了你1%的错误，来干掉你99%
+一定这结局
+所以老百姓在媒体面前只有死路
+媒体比法庭的力量还大
+媒体宣判人死刑是100%你就完了
+百分之百
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

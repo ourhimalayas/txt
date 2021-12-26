@@ -2,40 +2,32 @@
 ---
 
 
-## 美7名国防部人员访问美军基地后确诊，10名议员阳性
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1791784/)
+## TheGamer报道Steam游戏在中共国被禁止
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1791846/)
 
-![美国疏解非首都功能：五角大楼为何不在华盛顿？_奇闻趣事_嘻嘻网](https://lh3.googleusercontent.com/proxy/9JVbVzSPRCKBjxC5QVkeqc-GprjNcrcIhLOEH9cbpKwaTXG_jQa5DoKmU2sbvCKTRdqMh3vbNXj_Z867Uk8A1D20OZLEqWdM90CyWpTB4IWZlA)资料照：美国五角大楼
-来自《每日邮报》12月24日的报道，五角大楼周四表示，与国防部副部长凯瑟琳·希克斯(Kathleen Hicks)一起在国内造访美军基地的7名五角大楼工作人员的中共病毒检测呈阳性。
-据《路透社》首次报道，国防部的工作人员，包括文职和军职雇员，在出发前都接受了中共病毒检测并且都接种了疫苗。
-出于“非常谨慎”的考虑，他们在行程结束时也做了检测。希克斯本人的检测结果为阴性。
-他们陪同希克斯对军事基地进行了视察，官员们集中讨论了如何利用明年的军事预算扩大应对像中共国和俄罗斯这样日具挑衅性的对手的能力。
-视察小组的行程经过密歇根州、科罗拉多州、夏威夷州、加利福尼亚州和内布拉斯加州的基地。
-五角大楼发言人约翰·柯比(John Kirby)说，希克斯和她的所有随行人员都遵循“美国疾病控制与预防中心”(CDC)的准则，“包括随时随地尽可能严格佩戴口罩，并保持社交距离”。
-中共病毒检测呈阳性的工作人员现在正在隔离，柯比说，国防部正在通过酒店、基地和任何他们可能接触到的“支持人员”追踪他们可能的接触者。
-他说：“我们会继续以极其严肃和谨慎的态度对待预防新冠病毒的传播。”
-在奥密克戎(Omicron)变种毒株使华盛顿特区和美国各地的病例激增之际，就在昨天，特拉华州民主党参议员克里斯·库恩斯(Chris Coons)成为本周第10位对中共病毒检测呈阳性的国会议员。
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据The Gamer 12月25日报道Steam 游戏已在中共国被禁止。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-下午12.02.50.png)
+中国的玩家报告 Steam 店面和所有 Steam 社区页面已被列入黑名单，这意味着在中国无法再访问 Steam 。早在今年二月份，Steam 中国就推出了，但出售的游戏数量要少得多。该站点仍在正常运行，但 Steam 全球这个提供更多游戏的完整 Steam 站点已于圣诞节当天在中国下线。
 
-简评：
-美国多个州政府都在强推拜登政府的疫苗强制接种令。可惜疫苗并不起作用，病毒也不长眼睛，不管是普通民众，还是政府官员，不管是国会议员，还是支持疫苗强制令的执行人员都逃不过中共病毒的攻击。中共病毒变种毒株奥密克戎已经让华盛顿特区和美国各地的病例激增，并似有继续蔓延的趋势。爆料革命引领者郭文贵先生在GTV直播中曾说，随着黑暗势力和独裁政府在各国疯狂推行损害人体自身免疫力的中共病毒疫苗强制接种政策，由于奥密克戎变种毒株的高传染率，在12月圣诞节后，美国和西方国家感染中共病毒的病例将大大增加，随之而来的疫苗灾难和病毒灾难后果将不可预估。虽然美国社会最终会在灾难之后觉醒，但是，觉醒的代价将是巨大的。
+此举令人意外，但符合中共政府过去 12 个月在电子游戏方面的行动模式。Fortnite 于今年11 月 15 日在中国关闭。儿童每周只能玩三个小时的游戏，并且禁止使用加密货币。为了允许开发新游戏，它们必须摆脱一些被认为是反中共的元素，包括“女性化男人”的存在。限制实施两个月后，据报道没有一款游戏获得批准。
 
-新闻链接：[https://www.dailymail.co.uk/news/article-10342693/SEVEN-Pentagon-staffers-traveled-Deputy-Defense-Secretary-COVID-Omicron-spread-hits-DC.html](https://www.dailymail.co.uk/news/article-10342693/SEVEN-Pentagon-staffers-traveled-Deputy-Defense-Secretary-COVID-Omicron-spread-hits-DC.html)
+目前尚不清楚这将如何影响中国游戏的发展。大多数人仍然可以登陆 Steam 中国，这意味着他们仍然可以在国内销售，但如果开发者访问 Steam Global 和玩家访问一样受到限制，这可能意味着中国开发者需要与中国以外的开发者合作才能登陆在 Steam 主站点上，这样做可能会错过 Steam 中国。
 
-翻译/简评:JS
+参考链接：[Steam Has Reportedly Been Banned In China](https://www.thegamer.com/steam-banned-china-christmas-day/)
 
-PR：Harvey（叶知秋）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-* * *
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
