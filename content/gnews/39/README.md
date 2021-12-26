@@ -2,36 +2,26 @@
 ---
 
 
-## HBO Vice和Shorenstein Center -中共自导灭爆计画剧本
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1790614/)
+## 中共以一国之力把张高丽的性侵犯罪变爱情故事
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1785110/)
 
-**【深度报导】在HBO Vice Isobel Yeung记者骗取文贵先生和战友采访影片中，引述”郭文贵和美国右翼势力连结”的Graphika research。 Graphika, Jack Stubbs与facebook、NFL、TilTok、Google有合作，经笔者追查Graphika与哈佛Shorenstein Center 唐纳文（Joan Donovan）也有合作，[Shorenstein Center](https://shorensteincenter.org/)是中共长期赞助的对象。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Graphika-Shorenstein-Center-CCP-Vice.png)
-**根据The National Pulse曾参与班农战斗室主持人拉希姆·卡萨姆Raheem Kassam和娜塔莉·温特斯Natalie Winters [在2月13日国家脉动发表独家新闻](https://thenationalpulse.com/2021/02/13/harvard-shorenstein-center-ccp-ties/)撰写的文章中，揭露了哈佛大学肯尼迪学院肖恩斯坦研究中心，接受中共资助和军事相关的捐赠款事实，独家新闻指出肖伦斯坦中心是中共的长期赞助的对象，其中清大新闻学院董志军，新华社编辑李锡光，广播电视研究胡正荣等是由中共党员组成的多位肖伦斯坦中心研究员。**
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-**中共自导灭爆计划剧本**
+12月22日GTV、Gettr大直播中郭文贵先生再次重申，彭帅事件是中央国家安全委员会紧急处理小组亲自出面解决的。由北京市国安局（人数上千人，相当于小半个安全部）安排紧急处理小组，及时地对微博等有关信息和链接进行封杀，对彭帅的父母和家人（包括表亲）采取全面控制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ezgif.com-gif-maker-2.jpg)图片来源Adrian DENNIS AFP
 
-**根据[美国华盛顿邮报5月17日](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)**，引述哈佛大学薛斯汀或称肖伦斯坦中心(Shorenstein Center)中心科技与社会变化研究计划主任，唐纳文（Joan Donovan）的Graphika报告，说「[这是一份重要的鉴识分析，探讨富有且具有政治动机的人，操弄社群媒体之道。](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)」
 
-该报导指出文贵先生和班农先生推动华裔在美国总统大选对共和党川普的支持，并宣称川普1月6日在美国国会大厦集会的计划和随后的袭击中，GTV 播放了现场直播的行动。
-该报导指出爆料革命在GTV、GNEWS和相关网站，散播扭曲不实资讯，主要打击对象是中共政治领导阶层和在西方的反中共异议份子(乱伦彪伪类、欺民贼)，包含新型冠状病毒病Covid-19来自中共是假消息，以及攻击Covid-19疫苗安全性，并报导喜马拉雅联盟和在美国、加拿大、澳洲和其他国家的喜马拉雅农场，支持郭文贵爆料革命的义工，透过Discord社群平台协调工作，在各大社群平台广泛发文。并指称GTV的投资问题。指称在滕彪家外抗议的战友，是在郭文贵的要求下到场，并说这些抗议活动一度演变为暴力，和推动使用未经证实的治疗羟氯喹来对抗Covid-19等。而这位唐纳文（Joan Donovan）就是曾经和哈佛甘迺迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）一同撰写”指责新冠状病毒COVID-19为人造是伪科学的文章”。该文章表示新冠状病毒来源于自然界，为中共释放新冠状生化病毒COVID-19洗白。
-HBO VICE Isobel Yeung採訪惡意剪接、斷章取義的編輯成documentary的滅爆影片-片段
-**新中国联邦战友看到****Joan Donovan****在华邮的报导，是不是和****HBO Vice Isobel Yeung****记者的影片有****90%****的相近之处，**文贵先生透漏Vice Media 2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。**Vice Media****背后由黑石、索罗斯和中共海外****BGY****特务单伟健组成**，单伟健曾带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，**单伟健从****TPG****离开后转战****PAG****香港太盟投资集团，****PAG****、****PAX****太盟亚洲机会基金、瑞寰资本****ARCH****背后正是中共海航王岐山。**
+处理小组迅速向中共中央提出两条政治评估：第一、彭帅事件会对北京冬奥会产生剧烈影响，会被西方反华势力所利用，后果不堪想象；第二、彭帅说的是事实，而且很有可能还有一系列后续行动。
 
-**中共藉由肖伦斯坦中心唐纳文（Joan Donovan）、华盛顿邮报、HBO Vice Isobel Yeung一系列的合作，大肆宣传诋毁爆料革命，目的就是要消灭文贵先生、爆料革命，将新中国联邦战友们都变成海外极端恐怖分子，并且用一国之力量打击文贵先生，这和中共在美国对文贵先生的67个法律诉讼背后，都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，这次文贵先生引蛇出洞、舍孩子套狼，都将向西方世界展示中共长期在背后布局的行动。**
+最后中央决定不惜一切代价、不考虑一切后果（可以随时要彭帅死），要把彭帅事件在北京冬奥会前安全平息。各部门启动了紧急制动机制，中共国安系统的牛人（一位少见姓的女同志）面对彭帅和其家人的时候说，“从今日起，你不是彭帅，你们也不是彭帅的父母，你们已经成为民族罪人，现在就是死一万次也无法平息对中国的伤害。” 跟随她的所谓四五个谈判专家，花费长达20多个小时跟彭帅及家人分别地”谈心“。
 
-本文仅代表个人立场
-**祈祷万佛万神加持文贵先生与新中国联邦战友**
-台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
+大体“谈心“内容就是彭帅被性侵的经历很理解，但党和国家利益更重要。这里关系到中共外交的巨大失利，国家和民族的伟大复兴，总之后果很严重。张高丽是党和国家领导人，张和彭代表了 14亿中国人的对外形象，不要毁灭所有运动员的前程。然后开始为彭帅检查身体，造成彭帅精神高度紧张，距离精神病仅差一步之遥。彭帅本身在过去11年一直服用治疗抑郁症的药物，外加多次堕胎导致也有妇科疾病。
 
-- [EXC: Harvard Center Attacking COVID Lab Theory Has Extensive Financial And Personnel Links With The Chinese Communist Party](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
-- 華郵[Chinese businessman with links to Steve Bannon is driving force for a sprawling disinformation network, researchers say](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)
-- [2021年12月22日 文貴大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
-- **\*\*\***[2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相 還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
-- [Republicans Want Twitter to Ban Chinese Communist Party Accounts. That’s a Dangerous Idea.](https://slate.com/technology/2020/04/republicans-want-twitter-to-ban-chinese-communist-party-accounts-thats-dangerous.html)
-- [Graphika Jack Stubbs https://graphika.com/](/graphika.com/)
-- [Shorenstein Center](https://shorensteincenter.org/)
+最令人震惊的是，彭帅本人被接入玉泉山，直接面见了习近平、韩正和栗战书。他们表面上想听听彭帅对冬奥会的建议（向一位网球运动员咨询冰雪项目的建议），关切彭帅的身体状况，讲讲中国人曾经的屈辱历史，却一句不提事件核心张高丽。在玉泉山“谈心”后，要求彭帅以党和国家利益为重站出来澄清，并安排了5家世界级的媒体采访，接下来还有大量外国的媒体采访。
 
+从党中央到体育界，和最高端的谈判专家轮番轰炸、恩威并用式的“谈心”，无外乎就是要以一国之力让彭帅承认性侵是自愿的，一切只是关乎哲学的爱情。彭帅的家人被明确告知，永远不可能出国，永远不可能有自由，只要不听党的话就是国家的千古罪人，并且马上开始审判。
+
+彭帅目前正处于严密的监控状态，最终一定是要被消失的，或以精神病自杀、车祸死、拍照死、躲猫猫死。因为彭帅事件，习近平也已下定决心当党需要的时候，曾任中国副总理的张高丽也会悄无声息地消失。
 
  
 

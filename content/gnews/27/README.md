@@ -2,54 +2,78 @@
 ---
 
 
-## Mitre 公司与CCP一起推出了“疫苗凭证项目”
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1791049/)
+## SEC调查川普最新商业伙伴的中共背景(3/3)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1789660/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip08-8.png)图片来源：thenationalpulse
-《国家脉动》透露，美国多家国内和国际大公司正在联手使数字健康护照正常化，暗示未来旅行的要求。至少有一个联盟已经将美国的个人健康和医疗数据置于与中共共享的风险之中。
+翻译： Jenny Ball
 
-[疫苗接种凭证倡议（VCI）的章程](https://vci.org/about)把自己定义为一个“公共和私营组织的联盟，致力于使个人能够获得可核实的临床信息。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1-1.jpg)en.news7todays.com
 
-实际上，该倡议由位于弗吉尼亚州麦克林市（Mclean, Virginia）的 Mitre Corporation 公司领导，该公司距美国中央情报局（America’s Central Intelligence Agency）总部仅几分钟车程。Mitre 主要为美国军方、北约、联邦航空局和[疾病控制中心](https://www.wagmtv.com/content/news/Maine-Expands-Contact-Tracing-to-Limit-the-Spread-of-COVID-19-570773221.html)等政府机构工作，并与之合作。
+在瑞环上海总部工作的三名前员工，描述了一种由辛塔和该公司的四名管理合伙人主导的创业文化。两名员工说，这些经理有时会迫使员工在对公司的分析中夸大其词，例如，对未来收入做出不切实际的预测，他们在不公开身份的情况下讨论了这些公司内部信息。
 
-Mitre 开发 VCI 的一部分重点是数字和纸质格式的“可信且可验证”的疫苗接种记录，力求使所有个人医疗和健康数据与数字钱包或二维码兼容。
+两名员工都表示，他们担心被迫使违反规定。“我记得自己在想，‘我会因此遇到麻烦吗？’”其中一人说。“我肯定很担心。”
 
-安全方面的担忧
+第三名员工也不愿透露姓名，他说公司经常依赖最乐观的业务预测，但他从未被要求以可能误导投资者的方式夸大其词。
 
-VCI 网站目前[列出了](https://vci.org/about)大约 350 家签约合作伙伴，包括 Amazon, Apple, Google, Microsoft, the Mayo Clinic, Walgreens, Walmart、以及在科罗拉多州、加利福尼亚州和纽约州的多所大学。
+2017 年，美国SEC暂停了阿特拉斯技术国际（Atlas Technology International）的交易，该公司于 2014 年作为一家名为“糖果和零食”的家庭面包店上市，但该公司表示，两年后转让给新所有者，更名为“阿特拉斯”（Atlas），并转移到触摸屏设备。 根据美国SEC的投诉，该业务据称是加州商人艾哈迈德·哈里斯·塔吉亚尔（Ahmad Haris Tajyar）操纵市场的“欺诈计划”的一部分，今年该投诉指控塔吉亚尔违反证券法。
 
-VCI开发的智能化（SMART）健康卡的部分内容明确指出，该成员的意图是“改善病人信息的隐私和安全”。鉴于那些与VCI联盟有关的人以及他们正与中国共产党（CCP）等团体的接近，人们将对这种所谓的意图，提出了质疑。
+美国SEC在 2021 年 8 月对塔吉亚尔的起诉中表示，他以不同的名义经营四个在线经纪账户，据称，他与自己买卖 Atlas 股票，以营造一种交易活跃企业的错觉。美国SEC的起诉称，他还与一位冒充华尔街分析师的朋友举行了一次收益电话会议，询问有关该业务的问题，据称，还支付了一名专业投资分析师为该公司撰写研究报告。
 
-例如，共享项目（The Commons Project）是VCI的主要成员团体之一，可能会危及数字全球健康和医疗数据的安全。共享项目的三个不同的董事会成员和受托人在中共国经营业务，使他们容易受到中共国的《国家情报法》的影响，该法[要求](https://www.chinalawtranslate.com/en/national-intelligence-law-of-the-p-r-c-2017/)：“各组织和公民应当依法支持、协助、配合国家情报工作，保护知悉的国家情报工作秘密。”
+在其监管文件中，Atlas 将瑞环控股列为向 Atlas 提供超过 80,000 美元贷款的债权人。 但在 2017 年，美国SEC工作人员的一份声明中，该机构表示，塔吉亚尔和瑞环的负责人可能是 Atlas 的“**未公开控制人**” Atlas 的标志出现在瑞环的一份宣传手册中，该宣传册将其列在“公开上市”客户名单上。
 
-亚马逊、苹果、谷歌和微软最近都在技术方面与中共进行了合作，包括量身定制的审查制度，甚至创建了整个操作系统来限制中共国公民自由搜索网络的能力。
+瑞环的两名前员工表示，瑞环曾在幕后担任 Atlas 的顾问，提供营销材料和财务模型。 其中一名前雇员表示，他参与了这笔交易，但当他开始询问为什么其办公室地址在洛杉矶停车场，以及为什么他不能亲自会见任何高管时，他的经理们将其解雇。
 
-虽然乔·拜登的政府成员已经公开[支持与中国共产党共享数据](https://thenationalpulse.com/news/biden-staffers-want-ccp-cooperation-for-vaccine/)，但智能化健康卡的开发和支持可能会使美国人和其他主权公民的每一个医疗和个人数据点，都被移交给中共国当局。
+今年，由于他在 Atlas 中的角色，法官永久禁止塔吉亚尔出售或推销股票。塔吉亚尔不承认或否认指控，接受了判决。他没有回应寻求评论的请求。
 
-今年早些时候，[中共掌握的数据被泄露](https://thenationalpulse.com/breaking/new-ccp-database-leak-reveals-detailed-data-on-americans/)，披露了近 700 名美国人的详细信息，其中一些人年仅 3 岁大。这次泄露的数据包含全名、出生日期和护照号码。
+在 SEC 的诉状中并未提及瑞环，目前尚不清楚 SEC 是否仍在调查该公司涉嫌在 Atlas 中的作用。
 
-VCI、The Commons Project 以及与他们合作开发 SMART Health Cards 的国家政府和卫生机构等组织拥有关于其用户的更详细的数据。个人可以将他们所有的个人重要医疗信息上传到卡片中，所有这些信息都可以被中国共产党、中共国军方以及中共国领导层想要的任何其它东西所访问和使用。
+**川普交易带动****SPAC****热潮**
 
-中共国还被指控使用[逆向遗传学](https://thenationalpulse.com/news/un-expert-says-covid-19-bioweapon/)来制造致命的生物武器。[吹哨人已经站](https://thenationalpulse.com/news/unrestricted-bioweapon-china-whistleblower-dr-yan-releases-new-report-claiming-coronavirus-is-laboratory-product/)出来指出，中共病毒（COVID-19）大流行很可能是由于中共国实验室通过使用逆向遗传学等方法制造的生物武器项目。
+川普的交易是近期 SPAC 热潮的一部分，SPAC 被视为一些企业更容易上市的方式，而无需与传统 IPO 相同的费用和审查。
 
-近几个月来，有十几篇[新闻文章](https://www.forbes.com/sites/suzannerowankelleher/2021/09/11/digital-proof-of-vaccine-record-usa/?sh=7507132d5c47)报道一直在[推广](https://vci.org/news)数字疫苗接种卡的理念，欧盟成员国已经在实施这一计划。
+在这些交易中，SPAC，也被称为“空白支票”公司，通过公开募股，从机构投资者那里筹集资金。当 SPAC 的管理团队确定要合并的私人公司时，SPAC 的投资者可以选择批准交易，并获得新上市公司的股权——或者收回他们的资金并离开。
 
-纽约州长安德鲁·库莫在因一些性侵犯指控而辞职之前，曾负责监督了[“Excelsior Pass”](https://www.governor.ny.gov/news/governor-cuomo-announces-launch-excelsior-pass-plus-support-safe-secure-return-tourism-and)在该州的[部署](https://www.governor.ny.gov/news/governor-cuomo-announces-launch-excelsior-pass-plus-support-safe-secure-return-tourism-and)。
+根据纽约律师事务所 “怀特和案例”（White & Case ）公布的数据，2021 年前九个月，有 181 家公司通过 SPAC 合并上市——高于 2020 年全年的 93 家，和 2019 年的 26 家。
 
-Excelsior 基于相同的 SMART Health 平台，并且已经被美国航空公司使用。
+根据对监管文件的审查，**瑞环控股及其附属公司瑞环集团试图利用这一投资浪潮，近年来成为至少**** 15 ****家空白支票公司的顾问。**在包括数据世界国际（ DWA）在内的几项 SPAC 交易中，瑞环担任了保证人，通常是该公司提供初始资金，聘请律师、经纪人和管理团队，以换取最终获得该公司上市相当大一部分股份。
 
-“Excelsior Pass 让纽约人能够回归他们热爱的人和事物，在此过程中帮助推动我们的经济复苏，”库莫曾在 8 月份表示；如今到 12 月，纽约已经成为美国冠状病毒 (Omicron，来自实验室的生物武器) 病例的温床之一。
+并不是所有的交易都能成功。云鸿国际（Yunhong International）是一家空白支票公司，瑞环曾在其网站的宣传手册中，将其描述为“成功的 SPAC 上市”，该公司在上个月的一份文件中表示，**由于未能在截止日期前找到一家上市公司，它将解散并将资金返还给投资者，因为它未能在规定的时间内找到一家初创公司进行收购。**金融行业专家表示，这种类型的要求是 SPAC 交易所独有的**，在未来几年，可能会导致许多交易解散。**
 
-**新闻来源**：[thenationalpulse.com] [Govt-Linked ‘Mitre Corp’ Rolls Out ‘Vaccine Credential Initiative’ With CCP Affiliated Partners.](https://thenationalpulse.com/2021/12/25/govt-linked-mitre-corp-rolls-out-vaccine-credential-initiative-with-ccp-affiliated-partners/) | 发布时间：2021年12月25日
+云鸿和计划收购川普传媒的空白支票公司 DW，均由一位名叫帕特里克·奥兰多 (Patrick Orlando) 的首席执行官领导，后者曾是迈阿密的投资银行家。他没有回应置评请求。
+
+许多高管、对冲基金和银行家，反复出现在瑞环的 SPAC 交易中。今年早些时候，云虹的一名投资者在诉讼中声称，曾担任瑞环SPAC 多项交易承销商的投资银行 ，金斯伍德银行（Kingswood ）部分归辛塔拥有。投资者声称，这是一个未公布的利益冲突，因为 Kingswood 在与外部投资者进行交易时，本应该公正行事。
+
+Kingswood 的母公司“基准”（ Benchmark ）的律师在一份法庭文件中表示，投资者“未能证实”辛塔是 Kingswood 的所有者的说法。
+
+6 月，Kingswood 更名为英孚赫顿（EF Hutton），取了一家具有百年历史的著名投资银行的绰号。在新闻稿中，Kingwsood 表示，已获得该商标的权利，并与 英孚赫顿的一位原始创始人的孙子进行了磋商。
+
+Kingswood 或英孚赫顿被列为所有 15 家 SPAC 公司的承销商，其中瑞环被列为顾问。 文件显示，英孚赫顿是川普 SPAC 的“独家配售代理和资本市场顾问”DW在一份文件中表示，英孚赫顿将获得 2500 万美元的佣金，因向投资者推销该交易。
+
+该银行帮助准备了DW和川普媒体，作为其提案的一部分提交给监管机构的幻灯片演示。幻灯片表明，川普媒体希望通过在多个不同行业——社交媒体、流媒体、播客——的竞争，来产生数十亿美元的收入，但它尚未宣布任何完全成型的产品或服务。它们还包括 30 名可能的员工的名字和姓氏首字母，以及 33 名雇主的标志，但他们没有提供进一步的信息，因此，很难确定这些人或他们的经历。
+
+上周，川普媒体还宣布，将与受保守派欢迎的 YouTube 竞争对手 Rumble 合作，向其尚未推出的社交媒体平台提供流媒体内容。
+
+**SPAC ****合并候选人在细节上做出大胆承诺的情况并不少见**； 它们通常是收入很少或没有收入的年轻公司。证券律师表示，与传统 IPO 公司相比，通过 SPAC 上市的公司，描绘的美好前景与实际有更多的空间，传统 IPO 公司的所有财务报表和预测，都必须经过审计师的审查和监管机构的审查。
+
+尽管如此，纽约大学研究 SPAC 交易的助理法学教授迈克尔·奥尔罗格 (Michael Ohlrogge) 表示，川普幻灯片演示中，缺乏细节，“即使与其他 SPAC 相比，也很搞笑”。
+
+乔治城大学金融学教授詹姆斯·安吉尔（James Angel）说：“到目前为止，它都是概念。” 他说，真正的考验将在合并之后出现，届时，股东们会期待川普用他筹集的资金来建立一个强大的企业。
+
+“**现在我们的前总统有十亿美元的资金可以玩，”安吉尔说，“他能否真正建立一个成功的媒体特许经营权，还有待观察。**”
+
+**请阅读上两篇：**
+[SEC调查川普最新商业伙伴的中共背景(1/3)](https://gnews.org/zh-hans/1789629/)
+[SEC调查川普最新商业伙伴的中共背景(2/3)](https://gnews.org/zh-hans/1789652/)
+
+**参考资料：**[washingtonpost] [Trump’s newest business partner: A Chinese firm with a history of SEC investigations](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)
 
 * * *
 
-***发布：信心满满***
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
 
  
 

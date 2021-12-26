@@ -2,24 +2,14 @@
 ---
 
 
-## 第197期玫瑰看新闻-币圈新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1791226/)
+## 2021年12月24日文贵大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1790621/)
 
-币圈新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.24-1.png)
+【参考链接】[https://gettr.com/streaming/pkjcxzd8f5](https://gettr.com/streaming/pkjcxzd8f5)
 
-1.11月11日（新西兰时间）数据：近24小时Hcoin涨势强劲向上突破24.56关口
-
-2.本周马斯克已出售约50亿美元特斯拉股票
-
-3.拉美地产科技公司La Haus接受以比特币购买房产
-
-4.美国SEC停止American CryptoFed DAO的代币注册
-
-5.哈萨克斯坦计划年底前对地下矿工出台限制政策
-
-6.海南：加快推广数位人民币试点】
-
-
+文案提供：牛小妹 / 回响 / Ermat
+制作：艾伦
 
  
 
