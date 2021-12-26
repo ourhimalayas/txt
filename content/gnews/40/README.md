@@ -2,12 +2,14 @@
 ---
 
 
-## 所有的中共病毒疫苗都会造成血栓，不仅仅只有强生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1790912/)
+## 2021年12月24日文贵大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1790621/)
 
-12/18/2021 娜奥米·沃尔夫博士：所有的中共病毒疫苗都会造成血栓，不仅仅只有强生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.24-1.png)
+【参考链接】[https://gettr.com/streaming/pkjcxzd8f5](https://gettr.com/streaming/pkjcxzd8f5)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+文案提供：牛小妹 / 回响 / Ermat
+制作：艾伦
 
  
 
