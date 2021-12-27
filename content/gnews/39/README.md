@@ -2,25 +2,40 @@
 ---
 
 
-## 以假反假！中共要严查统计造假
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794095/)
+## 若西方不能阻止北约扩张，普京将考虑各种选择
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794153/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-84.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/nu-08012017122323.html)
-近日，中共中央办公厅、国务院办公厅印发《关于更加有效发挥统计监督职能作用的意见》（以下简称“意见”）。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-“意见”指出，坚持问题导向，敢于动真碰硬，统筹开展常规统计督察、专项统计督察和统计督察“回头看”，压紧压实各地区各有关部门防范和惩治统计造假、弄虚作假责任。原则上每5年对各省、自治区、直辖市和国务院有关部门开展常规统计督察，并根据需要对督察整改情况实施“回头看”；针对统计造假、弄虚作假问题突出的地区和部门，视情组织开展专项督察。建立统计违纪违法责任倒查机制，严查利用职权实施统计造假、弄虚作假的责任人，对已经离任的同样要追究责任。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Vladimir-Putin.jpeg)
 
-数据造假是中共以假治国的重要手段和基础。纵观中共历史，其各级的统计数据永远是服务于领导需要和政治需要的。如同中共以贪反贪式的反腐败，所谓遏制“数字上的腐败”也终究是“以假反假”的笑话。
 
-信息来源：
+ 
+图片来源：The Japan Times
 
-[中办国办重磅发文：严查这些人！|监督|审计|职能](https://www.163.com/dy/article/GRQD3L870530WJTO.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+#### 编译：小红帽
 
+根据Hindustan Times 12月27日报道， **俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日表示，如果西方不能满足他对阻止北约向乌克兰扩张的安全保障要求，普京将考虑各种选择。**
+
+本月初，莫斯科提交了安全文件草案，要求北约拒绝让乌克兰和其他前苏联国家加入，并缩减其在中欧和东欧的军事部署。
+
+普京敦促西方迅速采取行动以满足这些要求，同时警告说，如果西方“在我们的家门口”继续其“侵略性”路线，莫斯科将不得不采取“充分的军事技术措施”。
+
+在被要求具体说明莫斯科的这种反应可能是什么时，普京在俄罗斯国家电视台周日播出的评论中说，“反应可能是多种多样的，这将取决于我们的军事专家向我提交什么建议”。
+
+另据塔斯社周日报道，俄罗斯已经收到北约提议，关于在1月12日开始就莫斯科的安全问题进行谈判，并且正在考虑。
+
+新闻来源：[Putin to mull options if West refuses guarantees | World News – Hindustan Times](https://www.hindustantimes.com/world-news/putin-to-mull-options-if-west-refuses-guarantees-101640559902925.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

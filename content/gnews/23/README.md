@@ -2,40 +2,56 @@
 ---
 
 
-## 最高法院就更大的工作场所和卫生工作者的疫苗强制令举行特别听证会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1794355/)
+## 人脑芯片正在等待FDA批准，瘫痪男子已经“思考发推”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1500.png)资料图
-自《ABA杂志》2021年12月23日报道，美国最高法院周三安排了1月7日的特别听证会，以考虑在更大的工作场所和接受联邦资金的医疗保健机构中的联邦疫苗强制令。高等法院下令在12月30日之前进行补充简报，并将口头辩论定在下周常规口头辩论前的星期五。
+**翻译：文扬**
+**编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.jpg-23.png)图片来源：[Futuro360.com & Cypherpunk News](https://www.cypherpunknews.com/author/cypherpunknews/)
+亿万富翁科技企业家埃隆·马斯克再次调侃，计划开始对其公司的脑芯片植入物神经网络（Neuralink）进行人体测试，在此前声称人体试验即将开始之后，又给出了另一个令人向往的日期。
 
-《华盛顿邮报》、《纽约时报》和美联社对这些命令进行了报道。美联社报道说：“高等法院迅速对要求进行辩论的决定是不寻常的。”“这两个问题都是在紧急情况下到达法院的，法院通常会在没有更典型的完整简报和口头辩论的情况下迅速决定紧急申请。但法院最近也因其处理程序的方式而受到批评，该程序被称为法院的‘影子案卷’。”
+本周早些时候，在由《华尔街日报》举办的一个活动上马斯克说，这种已经成功用于猪和猴子等动物的大脑植入物，将在明年某个时候开始进行真正的人体测试。
 
-工作场所规则指示拥有100多名工人的雇主要求接种疫苗或每周进行新冠病毒测试。职业安全与健康管理局已将工作场所的规定作为紧急临时标准，该紧急规则最初不必经过通知和评论实践。当“员工因接触被确定为有毒或对身体有害的物质、制剂或新的危害而面临严重危险”时，可以采用紧急临时标准。位于辛辛那提的美国第六巡回上诉法院于12月17日恢复了强制疫苗授权。医疗保险和医疗补助中心采用了另一项疫苗规定，该规定适用于接受医疗补助基金医疗保险的联邦医疗保健提供者的员工。该要求包括了出于宗教和医疗原因的豁免者。
+他说：“Neuralink在猴子身上运行良好，我们实际上做了很多测试，为了确认它非常安全可靠，Neuralink设备可以安全地被移除。”
 
-新奥尔良第五巡回法院于12月15日裁定，阻止该授权的禁令仅适用于提出法律挑战的14个州。另一位法官的另一项裁决禁止在另外10个州执行该强制令。
+**“希望明年能在我们的第一批人身上使用这种方法——这是那些有严重脊髓损伤的患者，如四肢瘫痪者——等待FDA批准。”**
 
-据《纽约时报》报道，最高法院已在多种情况下允许州政府强制接种疫苗。“但新案件有所不同”《纽约时报》说，“因为它们主要提出了国会是否已授权行政部门制定这些要求的问题。“答案主要取决于相关法规的语言，但有理由认为法院的六名保守派大法官多数会对行政权力的广泛主张持怀疑态度。”
+在周二发布的一条推文中，马斯克补充说，**他的公司最终希望用该设备修补 “有问题的”或“缺失的”大脑神经元，并指出许多身体疾病“可以通过在现有的神经元之间架设信号桥梁来解决”**。
 
-简评：美国最高法院周三安排了1月7日的特别听证会，以考虑在更大的工作场所和接受联邦资金的医疗保健机构中的联邦疫苗规定。前些时段美国第六巡回上诉法院的一个小组以2比1的裁决解除了美国第五巡回上诉法院就全国范围内的疫苗强制接种令提出的临时禁令，法院的判决起起伏伏，美国法律层面的博弈还很激烈。人们越来越意识到这是一场生死存亡的战斗！
+他继续说：“明年我们在人类身上安装设备时，进展将会加快（人类很难与猴子进行细微的对话）。”
 
-News Link:
+尽管如此，但他过去曾为人类Neuralink测试提供了几个不同的时间表，并在2019年表示，它们将在2020年底左右的某个时间推出，该预测后来在去年2月修改为2021年，并在周一再次修改为2022年。
 
-[https://www.abajournal.com/news/article/supreme-court-sets-special-hearing-on-vaccine-mandates-for-larger-workplaces-health-workers?utm\_medium=email&utm\_source=salesforce\_483065&sc\_sid=02978766&utm\_campaign=weekly\_email&promo=&utm\_content=&additional4=&additional5=&sfmc\_j=483065&sfmc\_s=45233078&sfmc\_l=1527&sfmc\_jb=18002&sfmc\_mid=100027443&sfmc\_u=13970168#google\_vignette](https://www.abajournal.com/news/article/supreme-court-sets-special-hearing-on-vaccine-mandates-for-larger-workplaces-health-workers?utm_medium=email&amp;utm_source=salesforce_483065&amp;sc_sid=02978766&amp;utm_campaign=weekly_email&amp;promo=&amp;utm_content=&amp;additional4=&amp;additional5=&amp;sfmc_j=483065&amp;sfmc_s=45233078&amp;sfmc_l=1527&amp;sfmc_jb=18002&amp;sfmc_mid=100027443&amp;sfmc_u=13970168#google_vignette)
+马斯克表示，FDA的规定并不是主要障碍，因为Neuralink自己的植入设备标准“大大高于”联邦机构的要求，这表明明显的延迟可能是技术方面的，而不是监管方面的。
 
-翻译/简评: 希望
+在马斯克的各种项目中，最有争议的是Neuralink植入物，它旨在直接插入大脑，以补偿神经或脊髓损伤导致的残疾，如瘫痪。
 
-PR: clau
+去年在猪身上推出了该设备的工作模型后，**该芯片于4月在一只9岁的猕猴身上成功进行了测试，令人惊叹的镜头显示这只动物在用意念在玩乒乓球。**
 
-* * *
+12月26日，RT新闻报道，一家将脑机接口植入大脑的公司表示，一名患有神经系统疾病的患者，因病不能动弹，现在只需思考就能在社交媒体上分享帖子。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+澳大利亚一名62岁的男子被诊断患有肌萎缩性脊髓侧索硬化症（ALS）——这是一种导致瘫痪的疾病，现在他能够与他人交流思想，并不涉及肌肉活动。周四，他在社交媒体上发表了一篇文章，“只用直接思考”，Synchr公司CEO宣布，他们是促成这个奇迹。
 
+“我只是通过思考，就创建了这条推文”这条推文说，患者菲利普·奥基夫将其发布到Synchron 首席执行官托马斯·奥克斯利的帐号上。
 
-编辑：【英国伦敦喜庄园编辑部】
+据该公司称，“第一条直接思考发的推文“是由奥基夫的大脑以无线方式创建的。在肌萎缩性脊髓侧索硬化症导致的渐进性瘫痪之后，该男子去年安装了一个名为“Stentrode”的脑机接口。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+该植入物“旨在使患者通过思维无线控制数字设备”，通过颈静脉插入，以避免钻入颅骨。
+
+“现在，我只需要，思考点击计算机上的哪个位置，然后我可以发送电子邮件、处理银行业务、购物，现在还可以通过Twitter向全世界发送消息。”该公司引用奥基夫的话说——或者说是想。据他介绍，这个“惊人”的系统需要练习，就像学习骑自行车一样，“但是一旦你熟练，它就会变得很自然。”
+
+新闻链接：
+1、 [Paralyzed man with brain chip posts ‘first direct-thought’ tweet — RT World News](https://www.rt.com/news/544428-tweet-thought-brain-implant/)
+2、[Human brain chip pending FDA approval, Musk says — RT USA News](https://www.rt.com/usa/542505-musk-neuralink-human-testing/)
+
+发布：去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
