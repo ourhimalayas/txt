@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 5:20 PM (UTC)`
+
+12月27号：尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具．<br/>他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……新中国联邦一定要强大经济．媒体．伟大时刻即将到来……
+![img](https://media.gettr.com/group22/getter/2021/12/27/17/a29f9526-37da-5718-ddc5-9c0cfaff4759/out.jpg)
+
+---
+
+`@miles 12/27/2021 5:13 PM (UTC)`
+
+27/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇Top MV Chart in Hong Kong 🇭🇰, Taiwan 🇹🇼, New Zealand 🇳🇿, Macau 🇲🇴, Fiji 🇫🇯 <br/><br/>No.1🥇 Rock MV Chart in USA 🇺🇸, New Zealand 🇳🇿<br/><br/>No.1🥇 Rock Song Chart in Hong Kong 🇭🇰, Singapore 🇸🇬, New Zealand 🇳🇿<br/><br/>No.1🥇Hip-pop/Rap song Chart in Hong Kong 🇭🇰 <br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Macau, Fiji, USA, Singapore🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1795728/<br/><br/>12月27号，Hcoin To the Moon位列iTunes<br/>香港🇭🇰，台湾🇹🇼，新西兰🇳🇿， 澳门🇲🇴，斐济🇫🇯热门MV榜首🥇！<br/><br/>美国🇺🇸，新西兰🇳🇿摇滚MV榜首🥇！<br/><br/>香港🇭🇰，新加坡🇸🇬，新西兰🇳🇿摇滚歌曲榜首🥇！<br/><br/>香港🇭🇰嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，新西兰，澳门，斐济，美国，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/27/2021 8:05 AM (UTC)`
 
 12/25/2021 Miles Guo: Wang Leehom offended the "CCP’s first lady", Peng Liyuan, by refusing to perform on stage with her; Communist China’s celebrity community is controlled by the Zeng family; the purpose of targeting the celebrities under the Zeng family’s control, such as Wang Leehom, is to eliminate the Zeng family; the evil of the CCP far exceeds that of Wang Leehom!<br/><br/>12/25/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”；中共国的演艺界都是曾家族控制的；拿王力宏等曾家控制的明星开刀，是为了干掉曾家；中共之恶远超王力宏！<br/>
@@ -147,20 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12/24/2021 Miles Guo: The tabloids attacking the Chinese before the Indonesian anti-Chinese mass killings were all funded by the Chinese, while the atrocities during the anti-Chinese massacre are rarely mentioned in the world; Isobel Yeung, VICE, and HBO, who are vicious and insidious, have pushed us to the brink of the next anti-Chinese tragedy<br/><br/>12/24/2021 文贵直播：印尼排华前攻击华人的小报都是华人自己拿钱支持的，而印尼排华的惨剧在世界上却几乎无人提起；邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步<br/>
 ![img](https://media.gettr.com/group34/getter/2021/12/25/08/2dca3122-5571-eadc-3a97-14e83778ce90/out.jpg)
-
----
-
-`@miles 12/25/2021 8:23 AM (UTC)`
-
-12/24/2021 Miles Guo: Having spent a year preparing the scheme, HBO/VICE viciously intends to smear the Whistleblowers’ Movement as the cult and the group of terrorists interfering and influencing the US politics by having Isobel Yeung ask questions to set up traps in conjunction with the CCP’s propaganda tactics. This couldn't be more sinister!<br/><br/>12/24/2021 文贵直播：HBO/VICE处心积虑准备了一年，以杨贝贝的嘴问出陷阱式问题并运用中共宣传手法，意图将爆料革命打成干涉影响美国政治的邪教和恐怖分子，极其阴歹啊！<br/>
-![img](https://media.gettr.com/group47/getter/2021/12/25/08/981879f9-e460-f14e-a4ea-0ac9b8d88ef7/out.jpg)
-
----
-
-`@miles 12/25/2021 8:15 AM (UTC)`
-
-12/24/2021 Miles Guo: What would Isobel Yeung and VICE do if I declined to be interviewed by them? They would instead interview a bunch of Western politicians and media and cite the data as the “basis” to picture the Whistleblowers’ Movement as a cult and a group of rioters. If that happened, we wouldn’t have any chance to defend ourselves <br/><br/>12/24/2021 文贵直播：如果文贵不接受VICE采访，杨贝贝和VICE会怎么做？它们会找西方政客、媒体界人士并以数据作为“依据”，将爆料革命描绘成邪教、暴徒，那样我们就百口莫辩了<br/>
-![img](https://media.gettr.com/group28/getter/2021/12/25/08/5452ff8c-d630-c6fb-58d1-0386121034db/out.jpg)
 
 ---
 

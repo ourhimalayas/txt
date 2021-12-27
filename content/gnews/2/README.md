@@ -2,47 +2,34 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第18天位列5国iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1795727/)
+## 中共帮助沙特生产弹道导弹 美国政府考虑制裁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1795917/)
 
-12/27/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第18天位列5国iTunes热门MV榜榜首。
+**撰稿：日本东京方舟农场 老孙**
+
+12月25日，美国之音援引CNN报道，根据情报官员和分析机构的消息，沙特已从中共军方引进弹道导弹技术，并在中共的帮助下生产。
+
+据CNN报道，白宫国安会官员等美国政府官员最近几个月听取了有关中共向沙特多次进行大规模敏感弹道导弹技术出口的保密简报。
+
+沙特消息人士和一位熟悉美国情报的官员说，沙特政府曾向中共火箭军寻求帮助，从2018年前后到今年春天，中共军方已交付了多批东风系列导弹成品。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211227180026.png)2019年2月21日，沙特王储穆罕默德·本·萨勒曼访问北京之前，天安门前悬挂沙特阿拉伯和中国国旗。（图片来自美国之音）
+
+美国情报机构对这些交易提出了关切，美国政府也表示正在准备对双方有关组织进行制裁，但美国国会人士担心白宫方面可能不会让具有地区战略合作伙伴关系的沙特进行制裁。
+
+《华尔街日报》在去年曾报道，中共正在帮助沙特建造一个生产铀的民用设施，这是生产核武的初期步骤。
+
+*参考链接：*
+
+[美媒报道：中国帮助沙特生产弹道导弹 拜登政府考虑制裁](https://www.voachinese.com/a/china-saudi-arabia-ballistic-missiles/6369452.html)
 
 * * *
 
-[【PDF 下载】Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*素材采编：老孙*
 
-* * *
+*编辑： 文顺*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_87.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_111.jpg)
-
-
-[【PDF 下载】Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：Ranting*
 
  
 
