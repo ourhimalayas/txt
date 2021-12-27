@@ -2,24 +2,20 @@
 ---
 
 
-## 【中日财经爆】苹果变相撤离中共国：鸿海增资22亿元扩充印度iPhone产能
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795090/)
+## 日本盐野义制药研发的疫苗已进入最终临床实验阶段
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795122/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1509.png)[图片来源](https://appleinsider.com/articles/20/02/03/iphone-production-will-see-major-impact-if-china-factory-halt-continues)
-近日，鸿海集团增资转投资公司 Foxconn Hon Hai Technology India Mega Development Private Limited，金额达 3.5 亿美元（约22亿元），将扩张印度iPhone等既有的ICT产品产能。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1512.png)[图片来源](https://news.yahoo.co.jp/articles/5b082c01e428596ef91b1b6f0c6d0205d5b5cc76#:~:text=%E3%83)
+《朝日新闻》网站消息，12月27日盐野义制药宣布，该公司开发的一种治疗中共病毒（新冠病毒Covid-19）的疫苗目前在越南正进行最后阶段的临床试验。
 
-鸿海此次是透过子公司Foxconn (Far East) Limited增资Foxconn Singapore Pte Ltd后，再对Foxconn Hon Hai Technology India Mega Development Private Limited进行投资。
+试验今后还将在菲律宾和其它亚洲国家进行，共涉及约50,000人。今后根据试验的结果，有可能为海外供应这种疫苗。该公司的目标是在明年3月将该疫苗投入实际使用。
 
-鸿海近年配合大客户苹果政策，积极扩大在印度生产iPhone的规模，印度媒体近日更报导，鸿海清奈市的工厂已经在试产iPhone 13，预计明年2月出货，直接供应印度当地市场及海外出口。该公司高层指出，在印度生产的iPhone 13将有助于苹果改善该机在全球市场的供应，因为在印度生产的iPhone 13通常有20-30%用于出口。
+在日本国内，明年1月开始将通过另一种方法进行最后阶段的试验。接种疫苗后，将体内产生的预防感染的中和抗体的值与其它公司的疫苗进行比较，并根据结果，计划向卫生劳动福利部申请批准。目前该制药公司已经建立了一个每年将提供超过3000万人的生产体系。
 
-近年来，苹果为满足印度市场以及改善全球市场供应，已经在印度大规模生产非旗舰iPhone机型，例如，富士康印度工厂目前代工iPhone 11和iPhone 12，纬创则在班加罗尔生产第二代iPhone SE，苹果在印度销售的智能手机已经有70%是在印度本土生产。
+从美国Novavax生物医药公司获得技术的武田制药有限公司目前也在向卫生劳动福利部申请批准生产和销售许可。除上述之外，还有几家日本制药公司也在研发相关疫苗的阶段。
 
-除了手机代工厂外，印度批准100亿美元的奖励计划，以吸引半导体及面板制造商投资，当时也传出鸿海有兴趣在当地设立半导体制造基地。
-
-郭文贵先生近期多次讲到，苹果将会撤离中共国。由于苹果产品均采用代工生产模式，其供应链产能的转移，实质就是其撤离中共国行动的一部分。
-
-信息来源：[鸿海22亿元增资扩充印度iPhone产能](https://www.laoyaoba.com/n/802661)
+信息来源：[コロナワクチン最終治験入り　塩野義、国内企業で初めて](https://news.yahoo.co.jp/articles/5b082c01e428596ef91b1b6f0c6d0205d5b5cc76#:~:text=%E3%83)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
