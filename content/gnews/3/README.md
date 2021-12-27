@@ -2,26 +2,41 @@
 ---
 
 
-## 【中日财经爆】全球航空公司在圣诞节周末取消了数千个航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794115/)
+## 若西方不能阻止北约扩张，普京将考虑各种选择
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794153/)
 
-撰稿：东京樱花团丨東洋武士
-![](https://lh6.googleusercontent.com/zbs9VCNKUh8CnrVGoDIfGtrC_TP3nIyPOg5THMV_V-C1c9efPMLu5Lmcz-NkesWN61uZ7v2zvtaEGHVAbKaH_7MGQJQp8QiB3QwDBv-Ov6sWv-R0e75YBazJr7HECpTnmxgUru-2)[*图片来源*](https://gdb.voanews.com/6DC9455C-5ED3-40C5-A49E-71B12C74BCFB_cx0_cy3_cw0_w1200_r1.jpg)
-据新唐人12月26日消息，随着Omicron变种病毒激增，越来越多的航空公司员工和机组人员称感染上中共病毒（新冠病毒Covid-19），全球航空公司在圣诞节周末取消了数千个航班，其中包括1000多个美国国内航班。尽管中共病毒病例不断增加，圣诞节前后仍有数百万人乘坐飞机旅行，美国运输安全局的统计数据显示，上周四，全美各地机场登机人数高达219万人。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-据全球最大的航班跟踪数据公司FlightAware表示，全球航空公司在平安夜、圣诞节和圣诞节后的第二天，总共取消了大约5,700个航班。其中包括大约1,700个美国国内的航班。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Vladimir-Putin.jpeg)
 
-周四，美国联合航空公司 (UAL) 表示， 周五取消了201趟航班，占其航班计划的10%，周六取消了238趟航班，占其航班计划的12%。周四晚，达美航空公司 (DAL) 也取消了173个航班，两家公司都表示，取消航班是由于包括Omicron变种病毒在内的多个原因。
 
-不过，中共国航空公司取消的航班最多：东航削减了约540个航班，是其航班计划的四分之一以上，而国航取消了267个航班，也接近其预定起飞航班的四分之一。
+ 
+图片来源：The Japan Times
 
-自2019年底以来，中共病毒在全球大流行已造成超过 530 万人死亡，美国官方记录的国内死亡人数接近 816,000人，领先于巴西的 618,000人、印度的 478,000人和俄罗斯的 302,000人。WHO估计，中共病毒直接和间接造成相关的超额死亡率，全球死于中共病毒的人数可能会增至两到三倍，即1000万至1500万的死亡人数。
 
-新闻来源：[**圣诞节周末全球近六千航班取消 美国1700个**](https://www.ntdtv.com/gb/2021/12/25/a103303259.html)
+#### 编译：小红帽
 
-*校对：东京樱花团 / 知了知了
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+根据Hindustan Times 12月27日报道， **俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日表示，如果西方不能满足他对阻止北约向乌克兰扩张的安全保障要求，普京将考虑各种选择。**
+
+本月初，莫斯科提交了安全文件草案，要求北约拒绝让乌克兰和其他前苏联国家加入，并缩减其在中欧和东欧的军事部署。
+
+普京敦促西方迅速采取行动以满足这些要求，同时警告说，如果西方“在我们的家门口”继续其“侵略性”路线，莫斯科将不得不采取“充分的军事技术措施”。
+
+在被要求具体说明莫斯科的这种反应可能是什么时，普京在俄罗斯国家电视台周日播出的评论中说，“反应可能是多种多样的，这将取决于我们的军事专家向我提交什么建议”。
+
+另据塔斯社周日报道，俄罗斯已经收到北约提议，关于在1月12日开始就莫斯科的安全问题进行谈判，并且正在考虑。
+
+新闻来源：[Putin to mull options if West refuses guarantees | World News – Hindustan Times](https://www.hindustantimes.com/world-news/putin-to-mull-options-if-west-refuses-guarantees-101640559902925.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
