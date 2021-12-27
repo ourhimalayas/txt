@@ -2,20 +2,62 @@
 ---
 
 
-## 被中共病毒阻挡的亲情
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795025/)
+## 雅典娜疫情更新（2021年 12月27日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1795050/)
 
-作者：东京樱花团丨阿恩
-![](https://lh3.googleusercontent.com/bqQGMwb6ebPHHGk-vNl7MmZqptk09QjlLdGfjjjJzP1oSgwilVcp-UUAOPpbaFfAoK3_5l6f-cX9QaVbj_PDanz19sgflEqQyJeSIsYOTW6-bLtkDsR7tmw6gX9T1jNdFo-UWT3-)
-本港新冠肺炎出现首宗无外游的Omicron确诊个案，北上免检疫通关无期，港人返内地仍需检疫21日。农历新年将至，已有大批市民经深圳湾口岸北上，出现长长人龙。有学生向学校告长假提早与家人返深圳过年。其母解释，忧小区爆发影响出入境政策，故决定提早带小朋友北上。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
 
-爆料革命郭文贵先生多次向全球预警中共将在年底释放新病毒，如今Omicron病毒如期在全球传开，连中共统治下的香港也不能幸免。港府之前高调宣传通关在即，要求港人加强注射新冠疫苗，安装“安心出行”跟踪程序，现在又因Omicron病毒的出现而计划推后通关。中共病毒已经令中港两地封锁了近两年，两地严格而昂贵的隔离措施让人望而生畏，亲人间的联络只能依靠网络。而港府正是利用两地血浓于水的亲情编造通关谎言，骗港人接二连三地注射新冠毒疫苗，不少人没有等到通关已经命丧黄泉。郭文贵先生警告中共还会继续释放病毒，这预示着港府的通关大计将不断推后，中共一日不灭，中港两地定难水乳交融。
+感染总数：2.38亿（日新增 45.9万）
+死亡总数：426万（日新增 3397人）
+每万人感染人数：387.1131人（除中国外）
+（以上数字几天来大幅度下调修正，参见下图全球累计病例数陡降曲线，原因不明。）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1508.png)
+**二，全球“疫苗”毒针统计数据**
 
-资料来源：[**通关无期｜学生请长假北上检疫等过年  家长：等通关，等唔到**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/716979/%E9%80%9A%E9%97%9C%E7%84%A1%E6%9C%9F-%E5%AD%B8%E7%94%9F%E8%AB%8B%E9%95%B7%E5%81%87%E5%8C%97%E4%B8%8A%E6%AA%A2%E7%96%AB%E7%AD%89%E9%81%8E%E5%B9%B4-%E5%AE%B6%E9%95%B7-%E7%AD%89%E9%80%9A%E9%97%9C-%E7%AD%89%E5%94%94%E5%88%B0)
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：312,096（今日新增 10,186人）
+死亡总数：2197人
+每万人感染人数：116.4625人
+“疫苗”毒针注射总数：42,221,068 （今日新增10,338针）
+第二针“接种”：1879.2282万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.1%
+
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-86.png)
+今日澳大利亚病例新增首次破万，如上图所示，每日新增病例无论增幅还是数字都远超历史记录。考虑到澳洲16岁以上人口“完全”疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。比如英国是毒疫苗推广的模范生，请看下图，英国的加强针已经很普及了，而且英国民众注射加强针的热情高涨（前几期我们分享过英国，美国，澳洲，和欧盟的每日每百人疫苗注射数量的比较曲线，显示英国的数字遥遥领先）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-27.png)
+然而英国的每日新增病例如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-8.png)
+这些曲线，恐怕连小学生都很容易理解。然而，主流媒体们仍然继续声称，这些毒针能够控制疫情传播，不注射则不能工作的强制政策是合理的，给孩子们注射这些针剂能够保护他们的爷爷奶奶免于感染。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+发布：去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

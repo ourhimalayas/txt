@@ -2,24 +2,29 @@
 ---
 
 
-## 中（共）国棉花协会抗议美国禁令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794435/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1794584/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-32.png)图片来源本文链接
-12月27日《朝日电视》新网网站报道，针对美国拜登总统12月23日签署的《防止强迫维吾尔族人劳动法》，中（共）国棉花生产者团体抗议说，他们一直在保护劳动者的权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-30.jpg)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG诋毁文贵先生利用他巨大的平台传播谎言。而在未经剪辑的视频中我们看到，当记者试图将文贵先生说的“中共释放了新冠病毒，他们打开了潘多拉盒子，用病毒消灭白人，并用疫苗干掉他们”说成谎言时，文贵先生不仅提醒她，自己传播的信息90%以上都经过了事实的的验证，更直接指出这些无视事实的媒体其实是别有用心，是魔鬼的一部分。接下来我们还原事实真相的第三部分：反击HBO-VICE诋毁郭先生传播中共病毒和疫苗是谎言。*（播放视频09:51）*
 
-12月25日中（共）国棉花协会发表声明，批评美国的行动将对中共国的棉纺行业产生负面影响，给世界生产和贸易秩序带来严重破坏。同时强调，中共国的棉花产业一直在保护劳动者的权利。
+参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-3](https://www.gettr.com/post/pkg1sm1ce5)
 
-《防止强迫维吾尔族人劳动法》将于明年6月开始生效。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-信息源：
+总编：文特\飞虹
+编辑：文特\飞虹
+校对/发稿：Hetangyuese
 
-[米の新疆ウイグル輸入禁止法に中国綿花生産者が反発](https://news.yahoo.co.jp/articles/4f8ef86fc59028f89e6f18a49405312493be2bd1#:~:text=%E3%83)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

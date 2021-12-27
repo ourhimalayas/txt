@@ -15,134 +15,134 @@
 
 ---
 
-### [樱花灭共诗——媚上欢（新韵）](/content/gnews/1/README.md)
+### [江苏逼教师自愿降薪，西安出门要开介绍信](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平坐龙椅召见林郑 引网民热议批评](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大总理称中共玩弄民主国家 致使西方国家分裂](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [班农先生抨击HBO Vice的谎言和歪曲报道](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [日本盐野义制药研发的疫苗已进入最终临床实验阶段](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】苹果变相撤离中共国：鸿海增资22亿元扩充印度iPhone产能](/content/gnews/2/README.md)
+### [樱花灭共诗——媚上欢（新韵）](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Omicron的危险性及其造成的综合征超出我们的想象](/content/gnews/3/README.md)
+### [【中日财经爆】苹果变相撤离中共国：鸿海增资22亿元扩充印度iPhone产能](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Omicron的危险性及其造成的综合征超出我们的想象](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西媒头条 — 第139期](/content/gnews/4/README.md)
+### [西媒头条 — 第139期](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五角大楼计划在俄罗斯发动攻击时与乌克兰共享“可操作性”情报](/content/gnews/5/README.md)
+### [五角大楼计划在俄罗斯发动攻击时与乌克兰共享“可操作性”情报](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜疫情更新（2021年 12月27日）](/content/gnews/6/README.md)
+### [雅典娜疫情更新（2021年 12月27日）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共区别对待历史事实](/content/gnews/7/README.md)
+### [中共区别对待历史事实](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意在挑拨的指控](/content/gnews/8/README.md)
+### [意在挑拨的指控](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥会中间共产党会有一堆针对爆料革命的分化瓦解行动](/content/gnews/9/README.md)
+### [冬奥会中间共产党会有一堆针对爆料革命的分化瓦解行动](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [明面整治明星网红，背后习近平与上海帮政治内斗](/content/gnews/10/README.md)
+### [明面整治明星网红，背后习近平与上海帮政治内斗](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [被中共病毒阻挡的亲情](/content/gnews/11/README.md)
+### [被中共病毒阻挡的亲情](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [核谈：中共生化战改变了世界核力量平衡](/content/gnews/12/README.md)
+### [核谈：中共生化战改变了世界核力量平衡](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/13/README.md)
+### [西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [12/27每日播报｜前英国内阁大臣的中国妻子被指粉饰中共暴行](/content/gnews/14/README.md)
+### [12/27每日播报｜前英国内阁大臣的中国妻子被指粉饰中共暴行](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/27每日播报｜1000多架美国飞机在圣诞节因“奥米炕”停飞](/content/gnews/15/README.md)
+### [12/27每日播报｜1000多架美国飞机在圣诞节因“奥米炕”停飞](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [封锁和口罩令将造成儿童智商降低](/content/gnews/16/README.md)
+### [封锁和口罩令将造成儿童智商降低](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/27每日播报｜美国的中共病毒病例数激增 导致住院人数迅速增加](/content/gnews/17/README.md)
+### [12/27每日播报｜美国的中共病毒病例数激增 导致住院人数迅速增加](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [良心市民遇到慵懒政府 西安市民哀叹：政府让我们自生自灭](/content/gnews/18/README.md)
+### [良心市民遇到慵懒政府 西安市民哀叹：政府让我们自生自灭](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [49岁编辑注射莫德纳加强剂后一天去世](/content/gnews/19/README.md)
+### [49岁编辑注射莫德纳加强剂后一天去世](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [吃着美国进口粮，却又说美国缺粮的谎话连篇的环球时报](/content/gnews/20/README.md)
- ` GTV News Talk`
-
-### [硫酸羟氯喹根本不需要应急使用授权](/content/gnews/21/README.md)
+### [硫酸羟氯喹根本不需要应急使用授权](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CCP大外宣猫女郎（杨贝贝），谁派你来的？](/content/gnews/22/README.md)
+### [CCP大外宣猫女郎（杨贝贝），谁派你来的？](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [普京和习近平正在媾和，因拜登政府不能做出强硬决定](/content/gnews/23/README.md)
+### [普京和习近平正在媾和，因拜登政府不能做出强硬决定](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [27家美国企业就疫苗强制令上诉至最高法院](/content/gnews/24/README.md)
+### [27家美国企业就疫苗强制令上诉至最高法院](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒正在改变英国政治格局](/content/gnews/25/README.md)
+### [中共病毒正在改变英国政治格局](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/27每日播报｜与美国政府关联的 &#8220;Mitre公司 ”与CCP的合作伙伴共同推出 &#8220;疫苗证书计划&#8221;](/content/gnews/26/README.md)
+### [12/27每日播报｜与美国政府关联的 &#8220;Mitre公司 ”与CCP的合作伙伴共同推出 &#8220;疫苗证书计划&#8221;](/content/gnews/30/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [悉尼一病毒检测中心将上千人错误报告为阴性](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [7·24系列——红衫资本前合伙人的淫秽生活](/content/gnews/28/README.md)
+### [7·24系列——红衫资本前合伙人的淫秽生活](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】日本即将推出以区块链为基础的新型贸易结算](/content/gnews/29/README.md)
+### [【中日财经爆】日本即将推出以区块链为基础的新型贸易结算](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】未来10年投资880亿美元！日本决心振兴半导体产业](/content/gnews/30/README.md)
+### [【中日财经爆】未来10年投资880亿美元！日本决心振兴半导体产业](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中国平安“不平安”，中共保险行业还能有黎明吗？](/content/gnews/31/README.md)
+### [秘翻在线：中国平安“不平安”，中共保险行业还能有黎明吗？](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国应该为向全世界释放病毒而被追责](/content/gnews/32/README.md)
+### [中共国应该为向全世界释放病毒而被追责](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [黑！尼加拉瓜没收台湾外馆资产转交中共](/content/gnews/33/README.md)
+### [黑！尼加拉瓜没收台湾外馆资产转交中共](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生再谈新中国联邦的NFT](/content/gnews/34/README.md)
+### [郭先生再谈新中国联邦的NFT](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3](/content/gnews/35/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [肯尼迪结合《真正的安东尼•福奇》谈中共病毒、福奇](/content/gnews/36/README.md)
+### [肯尼迪结合《真正的安东尼•福奇》谈中共病毒、福奇](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [NBA球队被要求在元旦前夕举办加强针接种活动](/content/gnews/37/README.md)
+### [NBA球队被要求在元旦前夕举办加强针接种活动](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中（共）国棉花协会抗议美国禁令](/content/gnews/38/README.md)
+### [中（共）国棉花协会抗议美国禁令](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日澳军队联合训练“便利化协议”下月签署](/content/gnews/39/README.md)
+### [日澳军队联合训练“便利化协议”下月签署](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [缅甸大屠杀惨案后现场照片](/content/gnews/40/README.md)
+### [缅甸大屠杀惨案后现场照片](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [世界中共病毒病例在一周内增加了13%](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [蓬佩奥：遗憾冬奥会没有迁出中共国，警惕中共主导南海贸易路线](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [面对与中共日趋紧张的关系 澳大利亚将提前建造第一艘核潜艇](/content/gnews/43/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [抖音超越谷歌成为互联网上最受欢迎的网站](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`

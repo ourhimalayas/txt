@@ -2,22 +2,49 @@
 ---
 
 
-## 意在挑拨的指控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795035/)
+## Omicron的危险性及其造成的综合征超出我们的想象
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1795070/)
 
-作者：东京樱花团丨阿恩
-![](https://lh4.googleusercontent.com/ksPuSYpvNtvuGJw1y7VhzU__HJfpXVSdF8DfD8WcEeN5UXcTuSpbJ8KeOY3SNkCirxpQhS2ceMsqbrnSu2RJxiId_6Of7YS5Mp3Grnjti72Xqxldk0uhE4Hla_hBwb3ylZOFE9vP)[*图片来源*](https://www.hk01.com/%E6%94%BF%E6%83%85/716866/%E6%A2%81%E6%8C%AF%E8%8B%B1%E9%9A%94%E7%A9%BA%E6%8B%B7%E5%95%8F%E7%BE%85%E5%86%A0%E8%81%B0-%E8%BA%AB%E5%BE%8C%E8%81%96%E8%AA%95%E6%A8%B9-%E8%AA%B0%E7%B5%A6%E9%8C%A2%E8%B2%B7-%E7%BE%85-%E9%82%A3%E4%B8%8D%E6%98%AF%E6%88%91%E7%9A%84)
-前特首梁振英于社交专页连发四文质问与被港府通缉、现身处英国的前立法会议员罗冠聪，事因罗冠聪上载一幅与圣诞树的合照。梁振英质疑罗冠聪在英国的生活费来源。罗冠聪回应梁振英遐想连篇，只有「机会主义者」才会认为别人的行动背后都有可供量化的实际利益，不会相信人是会因为价值和原则行事。
+而且现在你看我就过去就这两三天，你们不知道有多恐怖。Omicron现在看来，就是我们一定要纠正，这Omicron的危险性比我们想象大得多得多。它诞生它造成的所有的综合症，比我们想象大的多得多，这非常的危险。
 
-中共在香港强推国安恶法，众多民主斗士被抓捕入狱，还有不少民主人士逃往海外。其中英国的BN(O)护照吸引力大批不甘被中共压迫的港人举家移民，英国各地区都成立了港人社团，运作的经费大部分是通过众筹获得，为当地的港人提供语言培训、就业、税务和法务等方面的咨询，为寻求政治庇护的港人提供支持，并且定期举行社会活动宣传香港现状，这些组织为异乡的港人提供了避风港。不过中共却一直抹黑这些组织，用梁振英这样的中共代言人去跟踪和追击海外的港人组织，再通过媒体的渲染扭曲他们在港人心目中的形象。中共的目的就是要掐断港人的希望，对被困在香港的人形成“海外民运人士都是骗子”的假象，对国际社会编造“海外民运人士靠施舍度日”，如何能有能力带领港人捍卫民主。
+纽约就是那个试的那个检测棒，一个都买不着。咱们的办公室，新办公室，五例、五例，就短短这一周，就五例的发生，而且都是重要人物。
 
-海外的港人组织切不可小看这些人的舆论攻击，从中共对89六四后出走海外的民运人士的控制可知，乞丐化民运人士是十分成功的策略。因此港人海外组织的长期运作一定要有独立的经济创造能力和坚强的政治后盾，有幸新中国联邦在这关键的时候势不可挡地壮大，中共倾尽一国之力也无法阻挡。面对中共这个黑暗势力的代表，所有的中国同胞只有携手并进才能消灭它，为中华民族的未来谋得切实的机会。
+就是管理层，所有这些人几乎全部得，现在就剩下一个我和王雁平，全都得了。更夸张的是，我们一个重要的律师，大家都熟悉的，他家6个姐妹，在德州，其中的一个姐姐，最跟他好的一个姐姐过世了，一星期前去了。他整个人，我从来没见到他这样过，快崩溃了。
 
-资料来源：[**梁振英隔空拷问罗冠聪：身后圣诞树「谁给钱买」？罗：那不是我的**](https://www.hk01.com/%E6%94%BF%E6%83%85/716866/%E6%A2%81%E6%8C%AF%E8%8B%B1%E9%9A%94%E7%A9%BA%E6%8B%B7%E5%95%8F%E7%BE%85%E5%86%A0%E8%81%B0-%E8%BA%AB%E5%BE%8C%E8%81%96%E8%AA%95%E6%A8%B9-%E8%AA%B0%E7%B5%A6%E9%8C%A2%E8%B2%B7-%E7%BE%85-%E9%82%A3%E4%B8%8D%E6%98%AF%E6%88%91%E7%9A%84)
+烧，去火葬，他是个天主教徒，烧——火葬等了很久，还不让葬。现在烧完了，竟然是要等埋骨灰，埋骨灰要等一个月。100万的德州，100万人的德州，火葬场排队，埋墓地排队。这在美国简直是不可思议的，你们想过有多恐怖吗？
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+就在昨天告诉我，他90岁的、94岁的母亲又染上了，记住，他姐姐和她母亲都是相信爆料革命的，是没有打疫苗的，是没有打疫苗得上的。姐姐进了医院，在临死前就手机尝试着视频，就走了。这是一个，就在我们身边的5个，和在这发生的。
+
+昨天对每个人来讲都是很难过的一天，更重要的事情是：我们好多在美国，帮助我们政治公关的一些战友们，就是纯美国人一家、一家的染上，一家、一家的染上。
+
+非常可怕的事情，就有些人家里不相信这个反疫苗的，就是反共产党的假疫苗，两针的三针的都得上了。就是这个绝对超出大家的想象，这个Omicron。那么现在在西方和全世界，爆料革命，就是这个Isobel, Isobel杨坚决不报道的。
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
