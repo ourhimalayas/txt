@@ -16,6 +16,8 @@
 ---
 ## 頁面 11/38 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [38](/content/README-38.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[【文字版】2020年8月2日郭先生直播视频](/content/2020/08/20200805-2636896334085187647.md)
+
 [文字版:2020年8月1日郭先生GTV盖特视频](/content/2020/08/20200803-8172548442733905184.md)
 
 [文字版：2020年7月28日郭先生GTV直播](/content/2020/08/20200803-447737050239599079.md)
@@ -63,8 +65,6 @@
 [文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/content/2020/06/20200616-5878015194273820578.md)
 
 [文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/content/2020/06/20200616-1167287562234062263.md)
-
-[文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/2020/06/20200613-1120918089970981192.md)
 
 
 ## 頁面 11/38 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [38](/content/README-38.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

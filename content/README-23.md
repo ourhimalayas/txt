@@ -16,6 +16,8 @@
 ---
 ## 頁面 23/38 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [38](/content/README-38.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
+
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/2019/06/20190623-2853766971834487830.md)
 
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
@@ -63,8 +65,6 @@
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/2019/05/20190519-4417640762564146374.md)
 
 [文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
-
-[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 
 ## 頁面 23/38 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [38](/content/README-38.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
