@@ -2,37 +2,62 @@
 ---
 
 
-## 12/27每日播报｜1000多架美国飞机在圣诞节因“奥米炕”停飞
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1794930/)
+## 雅典娜疫情更新（2021年 12月27日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1795050/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
 
-**2021-12-27**
+感染总数：2.38亿（日新增 45.9万）
+死亡总数：426万（日新增 3397人）
+每万人感染人数：387.1131人（除中国外）
+（以上数字几天来大幅度下调修正，参见下图全球累计病例数陡降曲线，原因不明。）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1508.png)
+**二，全球“疫苗”毒针统计数据**
 
-《路透社》华盛顿12月26日报道，周日，美国航空公司取消了1000多个航班，机组人员停飞。由于“奥米炕”病毒变种导致的感染人数激增，可能会有更多的旅行取消。
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
 
-据统计，圣诞节当天共有997个航班被取消，平安夜有近700个航班被取消。
+**三，澳洲疫情和“疫苗”数据**
 
-在全球范围内，FlightAware的数据显示，截至美国东部时间周日下午3点41分，有2617个航班被取消，超过1万5百个航班被延误。
+感染总数：312,096（今日新增 10,186人）
+死亡总数：2197人
+每万人感染人数：116.4625人
+“疫苗”毒针注射总数：42,221,068 （今日新增10,338针）
+第二针“接种”：1879.2282万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.1%
 
-“奥米炕”于11月首次被发现，现在占美国病例的近四分之三，在东部沿海地区，占90%之多。而且，圣诞节假期通常是旅行的高峰期，恰逢“奥米炕”病毒的迅速传播。美国许多地区的感染病例急剧上升，航空公司被迫取消航班，飞行员和机组人员需要隔离。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-86.png)
+今日澳大利亚病例新增首次破万，如上图所示，每日新增病例无论增幅还是数字都远超历史记录。考虑到澳洲16岁以上人口“完全”疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。比如英国是毒疫苗推广的模范生，请看下图，英国的加强针已经很普及了，而且英国民众注射加强针的热情高涨（前几期我们分享过英国，美国，澳洲，和欧盟的每日每百人疫苗注射数量的比较曲线，显示英国的数字遥遥领先）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-27.png)
+然而英国的每日新增病例如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-8.png)
+这些曲线，恐怕连小学生都很容易理解。然而，主流媒体们仍然继续声称，这些毒针能够控制疫情传播，不注射则不能工作的强制政策是合理的，给孩子们注射这些针剂能够保护他们的爷爷奶奶免于感染。
 
-另外，由于天气原因和罢工的增加，美联航不得不在周日取消约100个航班，一位发言人说，该公司正在努力为受影响的乘客重新订票。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-25岁的安乔利·罗德里格斯(Enjoli Rodriguez)是周日被困的数千名乘客之一，她乘坐的达美航空公司(Delta Air Lines Inc.)从洛杉矶飞往肯塔基州列克星敦的航班在平安夜被取消，原因是由中共病毒造成的员工短缺。
+发布：去中心化Math
 
-受取消航班影响最严重的美国机场是西雅图、亚特兰大、洛杉矶、达拉斯沃斯堡和纽约肯尼迪国际机场。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-尽管最近的研究表明，“奥米炕”病毒产生的疾病较以前的版本更轻，住院率也更低，但卫生官员对前景持谨慎态度，并表示，关于这个病毒变种还有许多有待了解。
-
-秘翻新闻主编  冰糖葫芦喵编译报道
-
-发布：文小明
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

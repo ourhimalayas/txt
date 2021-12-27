@@ -2,25 +2,34 @@
 ---
 
 
-## Twitter正在为内容创作者提供比特币和以太坊小费
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1795292/)
+## 勇气与坚韧是爆料革命取得最终胜利的基石
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795403/)
 
-撰稿：葱大白
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image1-23-2.jpg)
-图片来源：twitter
+作者：纽约香草山信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月24日，郭文贵先生在平安夜的大直播中，勉励所有新中国联邦人，勇气与坚韧是爆料革命灭共事业取得最终胜利的前提。
 
-2021年5月份，Twitter官方曾表示，希望让用户在互相关注、转发、点赞之外能够更好地互相支持，因此平台将引入TipJar功能——让用户能够互相发送和接收小费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-28.jpeg)
 
-目前，在Twitter的最新版上已经有了“tip”功能，推特留言框下最后个图标就是这个功能。其中可以用比特币支付给作者打赏费用。
+郭先生提到六周通常是个人或集体坚持一项行动的最大极限，而全球战友为歌曲“HCOIN TO THE MOON”的打榜已经历时近五周，能否突破六周的极限是对新中国联邦人行动力和执行力的考验。
 
-此前，Twitter曾表示用户将Bandcamp、CashApp、Patreon、PayPal和Venmo链接添加到他们的个人资料中。这些功能目前似乎还没有上线。
+灭共这件事的关键是相信与否，坚持与否。灭共既需要激情，也需要韧劲，更需要不怕牺牲的勇气。只要我们坚持无我，爆料革命就一定会遇难成祥，取得最终的胜利。
 
-这是一种新的趋势，代表推特上作者的留言、图片或视频等作品，可以得到读者的直接经济支持，获得金钱。可以预计，个人创作将进一步加强，信息市场将进一步扩大。有可能某些具有才能的人可以通过在推特上发表自己的作品而获得财富。
+参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
 
-参考消息：twitter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

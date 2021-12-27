@@ -2,19 +2,27 @@
 ---
 
 
-## 中共区别对待历史事实
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795048/)
+## 【中日财经爆】苹果变相撤离中共国：鸿海增资22亿元扩充印度iPhone产能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795090/)
 
-作者：东京樱花团丨阿恩
-![](https://lh5.googleusercontent.com/4TOOfbakyUw7UD0o4Bc4-uQ5eashK9jGSYWGjMUCQeFVYf2EM8W8oB5B9liYABALkhpciZ6TRh43jA7qOx_CaUZInZ5Q4rQ09O_1z3o2Ih_6cGp2d1oWPFpfj-Ti66ewV0r4ruNQ)[*图片来源*](https://www.thestandnews.com/politics/ab%E8%A2%AB%E4%BA%94%E5%BA%A6%E8%BF%BD%E5%95%8F%E5%A4%A7%E5%AD%B8%E6%8B%86%E9%99%A4%E5%85%AD%E5%9B%9B%E5%B1%95%E5%93%81-%E5%B6%BA%E5%A4%A7%E5%8D%94%E7%90%86%E5%89%AF%E6%A0%A1%E9%95%B7%E5%80%99%E4%BB%BB%E7%AB%8B%E6%B3%95%E6%9C%83%E8%AD%B0%E5%93%A1%E5%8A%89%E6%99%BA%E9%B5%AC%E6%88%91%E5%94%94%E4%BF%82%E5%A5%BD%E6%83%B3%E8%A9%95%E8%AB%96)
-岭南大学的六四浮雕和校内的民主女神像壁画上周五被除去，岭大协理副校长刘智鹏称，学校有自己的物品管理制度，并称不知道这个展品对于中国历史的认识有多大作用。被记者问及有小学上月按教育局的建议，在向小一学生播放日军处决百姓、婴幼儿尸横遍野的片段导致恐慌。刘智鹏却称，历史教育最基本的是展示事实，是唯一要遵守的原则。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1509.png)[图片来源](https://appleinsider.com/articles/20/02/03/iphone-production-will-see-major-impact-if-china-factory-halt-continues)
+近日，鸿海集团增资转投资公司 Foxconn Hon Hai Technology India Mega Development Private Limited，金额达 3.5 亿美元（约22亿元），将扩张印度iPhone等既有的ICT产品产能。
 
-历史是不可更改的事实，是后人对前人作为的借鉴和指引，但中共却将历史当成为巩固政权的工具。六四运动和国内的舆论被中共血腥镇压，香港的大学成为存放六四展品的基地，民主的种子也在香港生根发芽。97后中共对香港民主活动的管制愈发严格，直至反逃犯条例运动后，中共全面禁止港人参与六四纪念活动，并再次将六四定性为“暴动”。中共享港区国安法为各种行为冠以危害国家安全的罪名，大学校园成为清理民主思潮的重点，代表捍卫民主的六四浮雕、壁画和民主墙首当其冲成为被清理的对象。这段追求民主的历史被中共扼杀，南京大屠杀的历史却被中共断章取义地在校园播放，中共截取了最血腥的坑杀场面吓得一年级的孩子嚎啕大哭，教育局、港府和学校则互推卸责任，丑态百出。同为历史事实，一个被扼杀，一个被长期宣扬，中共制造对外民族仇恨的伎俩在内地屡试不爽，但在香港却大失预算，港版粉红大军的建设“任重道远”，香港的孩子们将难逃中共魔爪。
+鸿海此次是透过子公司Foxconn (Far East) Limited增资Foxconn Singapore Pte Ltd后，再对Foxconn Hon Hai Technology India Mega Development Private Limited进行投资。
 
-资料来源：[**被五度追问大学拆除六四展品  岭大协理副校长、候任立法会议员刘智鹏：我唔系好想评论**](https://www.thestandnews.com/politics/ab%E8%A2%AB%E4%BA%94%E5%BA%A6%E8%BF%BD%E5%95%8F%E5%A4%A7%E5%AD%B8%E6%8B%86%E9%99%A4%E5%85%AD%E5%9B%9B%E5%B1%95%E5%93%81-%E5%B6%BA%E5%A4%A7%E5%8D%94%E7%90%86%E5%89%AF%E6%A0%A1%E9%95%B7%E5%80%99%E4%BB%BB%E7%AB%8B%E6%B3%95%E6%9C%83%E8%AD%B0%E5%93%A1%E5%8A%89%E6%99%BA%E9%B5%AC%E6%88%91%E5%94%94%E4%BF%82%E5%A5%BD%E6%83%B3%E8%A9%95%E8%AB%96)
+鸿海近年配合大客户苹果政策，积极扩大在印度生产iPhone的规模，印度媒体近日更报导，鸿海清奈市的工厂已经在试产iPhone 13，预计明年2月出货，直接供应印度当地市场及海外出口。该公司高层指出，在印度生产的iPhone 13将有助于苹果改善该机在全球市场的供应，因为在印度生产的iPhone 13通常有20-30%用于出口。
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
+近年来，苹果为满足印度市场以及改善全球市场供应，已经在印度大规模生产非旗舰iPhone机型，例如，富士康印度工厂目前代工iPhone 11和iPhone 12，纬创则在班加罗尔生产第二代iPhone SE，苹果在印度销售的智能手机已经有70%是在印度本土生产。
+
+除了手机代工厂外，印度批准100亿美元的奖励计划，以吸引半导体及面板制造商投资，当时也传出鸿海有兴趣在当地设立半导体制造基地。
+
+郭文贵先生近期多次讲到，苹果将会撤离中共国。由于苹果产品均采用代工生产模式，其供应链产能的转移，实质就是其撤离中共国行动的一部分。
+
+信息来源：[鸿海22亿元增资扩充印度iPhone产能](https://www.laoyaoba.com/n/802661)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
