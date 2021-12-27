@@ -2,26 +2,32 @@
 ---
 
 
-## 香草山翻译部周刊|2021年12月26日第28期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1793263/)
+## 美国维吾尔法案生效 沃尔玛下架新疆产品
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1793328/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+#### 撰稿：日本东京方舟农场  海星
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/28_12.26.21_-__.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/12/01DF85C0-8FD6-4ACF-8EC6-0A61206191A9.jpeg)（图片来源：彭博社）
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+12月24日，美国《防止强迫维吾尔人劳动法》正式生效后，跨国零售巨头沃尔玛在中共国的销售平台山姆会员商店下架了来自新疆的所有产品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender.png)
+据中共媒体《时代财经》报导，该报记者于12月24日发现沃尔玛旗下山姆会员商店的APP中搜索不到任何关于新疆的产品，此前销售的新疆和田骏枣等产品也已被下架，包括微信小程序、线上商城以及京东网上旗舰店。除此之外，其母品牌沃尔玛超市也下架了新疆商品。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+日前，美国总统拜登正式签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），该法案明确规定禁止任何新疆产品进口至美国，除非企业能提供确切证据，证明产品供应链中无强迫劳动。
+
+*参考链接：*
+
+1. [*https://www.tfcaijing.com/article/page/4d6f336a67723330746a31367a4342595a70535a43673d3d*](https://www.tfcaijing.com/article/page/4d6f336a67723330746a31367a4342595a70535a43673d3d)
+2. [*https://gnews.org/zh-hans/1788294/*](https://gnews.org/zh-hans/1788294/)
+
+
+* * *
+
+*素材采编：海星*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

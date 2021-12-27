@@ -2,35 +2,28 @@
 ---
 
 
-## 病毒三字经
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1793934/)
+## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-337.jpg)图片来源：雅典娜农场设计组（精靈藍）
-作者：xiaowen
-编辑：Mttfly
+#### 编译：致敬香港！
 
-病毒小，毒性大。难看见，不易察。传播快，防备差。传染上，潜伏长。轻痛苦，重命丧。生化战，就是它。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
+“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
 
-全世界，跑得快。航行断，国家封。股票涨，经济停。印钞票，物价疯。富翁怕，百姓惊。魔鬼们，笑盈盈。
+特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
 
-放病毒，是手段。打疫苗，早计划。第一针，必须打。第二针，还要扎。加强针，更强大。管用否，不理它。
+11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
 
-副作用，更可怕。妇科病，肠胃病。儿科病，呼吸病。心脏病，血管病。白血病，皮肤病。脑中风，加癌症。
+**新闻来源：**
 
-毒疫苗。成本小。利润高，价值差。制药厂，抢造它。鼓励打，强制打。各政府，催着扎。控制人，作用大。
+1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
 
-有解药，可预防。羟氯喹，锌加上。槲皮素，维生素。抗生素，加激素。伊维菌，青蒿素。如何用，医生处。
+2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
 
-正义人，揭真相。邪恶人，病毒造。毒疫苗，不要打。带口罩，预防它。要根除，找源头。要和平，先觉醒。
+3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
 
  
 
