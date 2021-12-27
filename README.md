@@ -15,62 +15,62 @@
 
 ---
 
-### [遭受打压后中共国对企业赴海外上市的规定更加严格](/content/gnews/1/README.md)
+### [反疫苗者坎迪斯欧文斯说，唐纳德特朗普&#8221;太老&#8221;而无法使用互联网并阅读网上反疫苗研究](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [遭受打压后中共国对企业赴海外上市的规定更加严格](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针对疫苗致死事件的抗议活动在韩国各地展开](/content/gnews/2/README.md)
+### [针对疫苗致死事件的抗议活动在韩国各地展开](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大安省“奥密克戎”疫情持续恶化](/content/gnews/3/README.md)
+### [加拿大安省“奥密克戎”疫情持续恶化](/content/gnews/4/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [七哥谈GNews平台（2021-12-24摘录）](/content/gnews/4/README.md)
+### [七哥谈GNews平台（2021-12-24摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [七哥谈爱的升华（2021-12-24摘录）](/content/gnews/5/README.md)
+### [七哥谈爱的升华（2021-12-24摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [七哥谈NFT（2021-12-24摘录）](/content/gnews/6/README.md)
+### [七哥谈NFT（2021-12-24摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [上天让其亡 必让其猖狂](/content/gnews/7/README.md)
+### [上天让其亡 必让其猖狂](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈独裁（2021-12-24摘录）](/content/gnews/8/README.md)
+### [七哥谈独裁（2021-12-24摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈毛泽东（2021-12-24摘录）](/content/gnews/9/README.md)
+### [七哥谈毛泽东（2021-12-24摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥谈圣诞节礼物（2021-12-24摘录）](/content/gnews/10/README.md)
+### [七哥谈圣诞节礼物（2021-12-24摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/11/README.md)
+### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈黑暗势力（2021-12-24摘录）](/content/gnews/12/README.md)
+### [七哥谈黑暗势力（2021-12-24摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [纽约时报的49岁编辑在接种莫德纳加强针一天后去世](/content/gnews/13/README.md)
+### [纽约时报的49岁编辑在接种莫德纳加强针一天后去世](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈粮食（2021-12-24摘录）](/content/gnews/14/README.md)
+### [七哥谈粮食（2021-12-24摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈林郑月娥（2021-12-24摘录）](/content/gnews/15/README.md)
+### [七哥谈林郑月娥（2021-12-24摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈共产主义（2021-12-24摘录）](/content/gnews/16/README.md)
+### [七哥谈共产主义（2021-12-24摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [七哥谈经济数据（2021-12-24摘录）](/content/gnews/17/README.md)
+### [七哥谈经济数据（2021-12-24摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [12/25/2021 文贵直播：在圣诞节陪伴全球各地生活在黑暗中的战友们](/content/gnews/18/README.md)
+### [12/25/2021 文贵直播：在圣诞节陪伴全球各地生活在黑暗中的战友们](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
-
-### [七哥谈网红（2021-12-24摘录）](/content/gnews/19/README.md)
- ` MG FARM`
 
 ### [法国首次出现单日确诊超十万例](/content/gnews/20/README.md)
  ` 日本东京方舟农场`

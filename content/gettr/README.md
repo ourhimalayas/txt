@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 9:38 PM (UTC)`
+
+HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated interview with Mr. Miles Guo was deceptively edited into a less than 3-minute LIE. HBO-VICE’s vicious intention to slander and discredit Mr. Guo is clear. Here is the TRUTH.
+![img](https://media.gettr.com/group8/origin/2021/12/27/21/99c4fc81-f157-58b5-c330-11677d186ecb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/27/2021 5:51 PM (UTC)`
 
 12/25/2021 Miles Guo: The reason why kicking off the grand broadcast on Christmas is because numerous fellow fighters requested that I accompany those fellow fighters who have been living in the darkness worldwide for the holidays<br/><br/>12/25/2021 文贵直播：文贵先生讲述为什么要进行圣诞节大直播，这是应N个战友的要求，在圣诞节陪伴全球各地生活在黑暗中的战友们<br/>
@@ -153,13 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临，他们即将进入完全的极权暴政。如果我死了或消失了，你知道它是从何而来。<br/><br/>Dr. Zelenko: The government now is desperate. The tyrants know that their end is coming and they're gonna go full totalitarian tyranny. If I die or disappear,  you know what the source of it is. <br/>
 ![img](https://media.gettr.com/group28/getter/2021/12/25/13/2525f4eb-b9db-5000-4e86-af704aeb05e7/out.jpg)
-
----
-
-`@miles 12/25/2021 1:00 PM (UTC)`
-
-12月25号：文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯😅😅😅😅😅😅😅😅😅😅😅
-![img](https://media.gettr.com/group47/getter/2021/12/25/13/efbb2e4b-3e0c-fc2a-6957-9198d61ae770/out.jpg)
 
 ---
 
