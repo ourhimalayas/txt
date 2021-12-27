@@ -2,24 +2,28 @@
 ---
 
 
-## 震惊：横切公司正与中共联手推出“数字疫苗接种卡”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1795702/)
+## GTV新闻访谈简报|2021年12月27日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1795903/)
 
-**采集****/翻译：意翎    **
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1525.png)
-《国家脉动》于圣诞日报道：大量的国内外国际化大公司正在联合起来将数字疫苗护照常态化，以限制人们的出行。至少美国最神秘的科研公司—横切公司（Mitre Corp）已经将美国的个人健康和医疗数据置于被中共利用的风险之中。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-27.png)
+文章仅代表作者本人观点，与Gnews无关
 
-位于弗吉尼亚州麦克莱恩市的横切公司，主要为美国军方、北约、联邦航空局和疾病控制中心等政府机构工作。横切公司领导的疫苗接种凭证行动（VIC）开发包括数字和纸质两种格式的“可信和可验证的”疫苗接种记录，寻求使所有个人医疗和健康数据与数字钱包或代码兼容。该计划的公共项目可能会危及全球健康和医疗数字数据的安全。公共项目的三名董事会成员和受托人在中国经营业务，这使得他们容易受到中国国家情报法的影响，三年该法要求：一切组织和公民应当依法支持、协助和配合国家情报工作，保护知悉的国家秘密。
+视频参看：[2021.12.27早GTV新闻访谈](https://gtv.org/video/id=61c9bf9000f9a119180bdd8b)
 
-亚马逊、苹果、谷歌和微软最近都在技术方面与中共合作，包括定制审查制度，甚至是整个操作系统，以限制中国公民自由搜索网络能力。虽然拜登政府的成员已经公开支持与中共共享数据，但智能健康卡的开发和支持可能会让美国或其他主权国家的公民的每一个医疗和个人数据节点都被移交给中共当局，所有的信息都可能被中共、中共军队及中共领导层访问和使用。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-今年早些时候，中共掌握的数据泄露，透露了700名美国人的细节，其中一些人只有3岁。泄露数据包括全名、出生日期和护照号码。中共还被指责使用反向遗传技术制造致命的生物武器。吹哨人指出，Covid-19大流行可能是由于中共应用反向遗传技术而创建的一个生物武器项目。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
-近几个月来，数十篇新闻文章一直在与欧盟成员国一起推广并实施数字疫苗接种卡计划。纽约州州长安德鲁·库默（Andrew Cuomo）因多起性侵指控而辞职。在此之前，他曾监督该计划在纽约州部署“精益求精通道”。
-
-[原文链接](https://thenationalpulse.com/2021/12/25/govt-linked-mitre-corp-rolls-out-vaccine-credential-initiative-with-ccp-affiliated-partners/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
