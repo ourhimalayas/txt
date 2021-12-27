@@ -15,134 +15,134 @@
 
 ---
 
-### [完全接种疫苗的荷美游轮检测到 COVID-19 阳性](/content/gnews/1/README.md)
+### [七哥谈经济数据（2021-12-24摘录）](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [12/25/2021 文贵直播：在圣诞节陪伴全球各地生活在黑暗中的战友们](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥谈网红（2021-12-24摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [法国首次出现单日确诊超十万例](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈看清本质（2021-12-24摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [12/25/2021 文贵直播：惨绝人寰的景象在中共国司空见惯](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [亚马逊排名第一书籍是对美国最危险医生的残酷揭露](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
+### [七哥谈音乐的力量（2021-12-24摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
 
-### [DC大中华时事：中国财政部称做好房地产税试点准备工作](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [哈佛顶级教授Charles Lieber因接受中国付款被判有罪&#8212;-Brighteon.TV](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [陕西西安封闭管理升级 要求1300万人足不出户](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
+### [七哥谈希特勒（2021-12-24摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
 
-### [中共帮助沙特生产弹道导弹 美国政府考虑制裁](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
+### [水龙吟·别俄罗斯喀秋莎农场](/content/gnews/11/README.md)
+ ` HimalayaRussia`
 
-### [每日快报：中共开发人工智能“检察官”](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [58岁导演如何突然离世？](/content/gnews/7/README.md)
+### [完全接种疫苗的荷美游轮检测到 COVID-19 阳性](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月27日早](/content/gnews/8/README.md)
+### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [DC大中华时事：中国财政部称做好房地产税试点准备工作](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [陕西西安封闭管理升级 要求1300万人足不出户](/content/gnews/15/README.md)
+ ` 日本东京方舟农场`
+
+### [中共帮助沙特生产弹道导弹 美国政府考虑制裁](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [每日快报：中共开发人工智能“检察官”](/content/gnews/17/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [58岁导演如何突然离世？](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GTV新闻访谈简报|2021年12月27日早](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [承诺“绿色”奥运？ 中共恐食言](/content/gnews/9/README.md)
+### [承诺“绿色”奥运？ 中共恐食言](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [【战友心声】2021年的圣诞节到来了！](/content/gnews/10/README.md)
+### [【战友心声】2021年的圣诞节到来了！](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [MV版Hcoin To the Moon上线第18天位列5国iTunes热门MV榜首](/content/gnews/11/README.md)
+### [MV版Hcoin To the Moon上线第18天位列5国iTunes热门MV榜首](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/26/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”，中共国的演艺界都是曾家族控制的](/content/gnews/12/README.md)
+### [12/26/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”，中共国的演艺界都是曾家族控制的](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [震惊：横切公司正与中共联手推出“数字疫苗接种卡”](/content/gnews/13/README.md)
+### [震惊：横切公司正与中共联手推出“数字疫苗接种卡”](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生GTV直播精要-2021/12/26](/content/gnews/14/README.md)
+### [文贵先生GTV直播精要-2021/12/26](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/26/2021 文贵直播：港澳台明星在中共面前毫无尊严和自由，他们都是富人的玩物](/content/gnews/15/README.md)
+### [12/26/2021 文贵直播：港澳台明星在中共面前毫无尊严和自由，他们都是富人的玩物](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/26/2021 文贵直播：昨天的直播证明了新中国联邦是在拯救世界而非邪教](/content/gnews/16/README.md)
+### [12/26/2021 文贵直播：昨天的直播证明了新中国联邦是在拯救世界而非邪教](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共可能在隐瞒中共病毒又一新变种以确保冬奥举行](/content/gnews/17/README.md)
+### [中共可能在隐瞒中共病毒又一新变种以确保冬奥举行](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [这不再是我们十年前认为的那个中国](/content/gnews/18/README.md)
+### [这不再是我们十年前认为的那个中国](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [麦卡洛博士：中共病毒综合症有两个非常独特的特征](/content/gnews/19/README.md)
+### [麦卡洛博士：中共病毒综合症有两个非常独特的特征](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·罗根：政府通往更高的权力之门已经打开](/content/gnews/20/README.md)
+### [乔·罗根：政府通往更高的权力之门已经打开](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧盟将在270天后取消未打加强针者的中共病毒健康护照](/content/gnews/21/README.md)
+### [欧盟将在270天后取消未打加强针者的中共病毒健康护照](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [污蔑GTV被罚款5亿美元—Vice采访郭文贵先生始末系列之三](/content/gnews/22/README.md)
+### [污蔑GTV被罚款5亿美元—Vice采访郭文贵先生始末系列之三](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/27/2021国际财经快讯：美国假日零售额增长8.5%；全球股票基金出现大量资金涌入](/content/gnews/23/README.md)
+### [12/27/2021国际财经快讯：美国假日零售额增长8.5%；全球股票基金出现大量资金涌入](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [12/27/21 香港快讯 党媒：2021为香港史册重要年份 「反中乱港分子」受应有制裁、组织鸟兽散](/content/gnews/24/README.md)
+### [12/27/21 香港快讯 党媒：2021为香港史册重要年份 「反中乱港分子」受应有制裁、组织鸟兽散](/content/gnews/35/README.md)
  ` 英喜-粵語組`
 
-### [印媒WION：中共“零感染”政策失败，未能阻止变种病毒扩散](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [你相信人的本能吗？](/content/gnews/26/README.md)
- ` 纽约香草山MOS03`
-
-### [因人员短缺 纽约州修改医护工作者隔离政策](/content/gnews/27/README.md)
+### [因人员短缺 纽约州修改医护工作者隔离政策](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [麦卡洛博士: 中共病毒患者院前早期治疗能减少住院与死亡](/content/gnews/28/README.md)
+### [战斗室：中共走狗查尔斯•利伯被联邦陪审团定罪](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [战斗室：中共走狗查尔斯•利伯被联邦陪审团定罪](/content/gnews/29/README.md)
+### [东京发现首例奥密克戎变体确诊病例](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [盖特迎来第三位中奖者，它正在让梦想成真](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共召开“三农”会议彰显粮食危机](/content/gnews/30/README.md)
- ` 波士顿五月花农场`
-
-### [中共国经济衰退对全球金融市场的影响](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [东京发现首例奥密克戎变体确诊病例](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [盖特迎来第三位中奖者，它正在让梦想成真](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平召见港澳特使，向世人彰示其皇帝身份](/content/gnews/34/README.md)
- ` 波士顿五月花农场`
-
-### [G-Club是新中国联邦找到好人的一把钥匙](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [DC每日热点1227](/content/gnews/36/README.md)
+### [DC每日热点1227](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [勇气与坚韧是爆料革命取得最终胜利的基石](/content/gnews/37/README.md)
- ` GTV新闻访谈`
+### [郭文贵先生以生命为饵引爆中共媒体核弹，Isobel实为中共战地记者（一）](/content/gnews/41/README.md)
+ ` 秘密翻译组-原创组`
 
-### [麦卡洛博士：中共病毒是计划好的，目的是进行疫苗接种](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [被强制超长时间审核恶性视频 员工起诉抖音](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [已接种中共病毒疫苗的死者器官证明自身免疫攻击的存在](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2021/12/26 墙内世界](/content/gnews/41/README.md)
+### [2021/12/26 墙内世界](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国政府以威胁国家安全为由限制境外IPO](/content/gnews/42/README.md)
+### [中国政府以威胁国家安全为由限制境外IPO](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
-
-### [Omicron的危险性及其造成的综合征超出我们的想象](/content/gnews/43/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [12/27每日播报｜前英国内阁大臣的中国妻子被指粉饰中共暴行](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`

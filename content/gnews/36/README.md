@@ -2,35 +2,33 @@
 ---
 
 
-## DC每日热点1227
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1795411/)
+## 因人员短缺 纽约州修改医护工作者隔离政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795498/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/309E174C-8D79-436F-873B-9C072CBBEB94-scaled.jpeg)
-道琼斯指数 35950.56 ▲0.55%
-纳斯达克指数 15653.37 ▲0.85%
-WTI纽约原油CFD 73.565 ▼0.30%
-布伦特原油CFD 76.422 ▲0.82%
-标普50指数 2,909.50 ▼41.86%
-美元兑人民币 1USD=6.367 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1808.56 美元/盎司
-全球CCP病毒感染人数 280,432,900例
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月24日，美国纽约州州长凯茜‧霍楚在新闻发布会上宣布，该州将缩短医护人员在中共病毒检测呈阳性后必须隔离的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-10.jpg)
+新的政策包括，允许无任何症状或症状正在好转，完全接种疫苗的医护人员，在检测结果呈阳性后仅5天返回工作岗位，而不是原先要求的10天；返回工作岗位的医护人员仅被要求在72小时内没有服药或发过烧，必须戴上口罩即可。
 
-1、北约秘书长寻求元月北约-俄罗斯理事会开会
-2、塔利班发布旅行新法规进一步限制阿富汗妇女：若没有一个男性亲属陪同，妇女只能在72公里的范围内旅行
-3、美国政府正式要求日本不参加《禁止核武器条约》首次会议，日本表示同意
-4、英智库CEBR：中共国至2030年成最大经济体 港GDP料续跌 6年后起缩至1.5%
-5、法国首次出现每天超过10万例病毒感染
-6、亚马尔欧洲燃气线连续第六天反向输送，俄罗斯否认是政治操控
-7、北约向俄罗斯提出了就俄方安全声索自明年1月12日起进行讨论的提案的具体邀请
-8、中共整肃演艺界出新规，要求演出经纪人从明年3月开始要考证 台湾人须通过中共政审
-9、以色列一家主要医院今日启动接种第四剂冠病疫苗的试验计划，为150名员工接种第四剂疫苗
-10、美新任驻北约大使：北约必须适应俄乌边境对峙、中共进攻和网络安全威胁等新的威胁和挑战
-11、假想他国占钓鱼岛（尖阁）日本海上保安厅和警方及自卫队上月进行了旨在“提高岛屿应对能力”的联合训练
-12、文在寅：增强国防力量不仅是对朝威慑需要也是自主需求
-13、中共国外交部发言人赵立坚周一在例行记者会上证实，中方已经收到美方有关人员的签证申请
-14、12月25日在两条缅甸公路上，至少35个平民遭杀害后被放火焚烧，联合国表示震惊
+9月底，纽约州数千名医护人员因在到期日之前拒绝接种中共病毒疫苗而被解雇。州长霍楚随即宣布该州进入紧急状态，同时签署了一项行政令，向一些人手严重短缺的医疗机构派遣国民警卫队。两个月过去了，强制接种、解雇员工的后果，正在持续恶化中。 有评论人士指出，州政府宁可让染疫的医护人员继续工作，也不允许拒绝疫苗的健康医护人员返回工作岗位，这种对公众生命安全和卫生安全的不负责任行为，实在让人无法理解。
+
+参考链接:[Hochul cuts New York health worker quarantine, defends her response to COVID-19](https://thehill.com/homenews/state-watch/587269-hochul-cuts-new-york-health-worker-quarantine-defends-her-response-to)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

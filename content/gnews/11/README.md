@@ -2,47 +2,33 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第18天位列5国iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1795727/)
+## 水龙吟·别俄罗斯喀秋莎农场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1795971/)
 
-12/27/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第18天位列5国iTunes热门MV榜榜首。
+俄罗斯莫斯科喀秋莎农场 喜小币
 
-* * *
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Snipaste_2021-09-26_01-24-10.jpg)俄罗斯莫斯科喀秋莎农场
+前言：2021年12月27日，惊闻俄罗斯喀秋莎农场因灭共布局需要，宣布解散，合并到新西兰奥克兰伊甸农场。俄罗斯时间12:00，老班长及几位伊甸农场战友到俄农场座谈，触景生情，写下此词。
 
-[【PDF 下载】Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+**水龙吟·别俄罗斯喀秋莎农场**
 
-* * *
+举头巍峨雪云，泪别俄农路漫漫。
+一年又半，踏云相见，从未识面。
+少说多做，莫求名利，无悔无怨。
+手指幻鸿剑，声铸阔刀，劈共魔，
+并肩战！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_87.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_111.jpg)
+谁说战友无情？别旧昔，哽咽依恋。
+万般不舍，化千纸鹤，放飞再干。
+千古兴亡，百年悲笑，人随境转。
+更多同袍在，会师拥抱，魔巢捣烂！
 
+词释意：
 
-[【PDF 下载】Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-27-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+抬头仰望天空，巍峨白云堆积如地上茫茫雪，在这冰寒地冻的季节，我们要挥泪告别俄罗斯喀秋莎农场。战友们在此战斗了整整一年半，踏着网络云端相见，但是彼此是从未蒙面，是熟悉互助的陌生人。农场里很少有人说话，都在默默地力所能及做着事。也不谋求个人名利，也没有抱怨。大家的手指幻化成鸿鸿长剑，声音铸造成阔阔大刀，以爆料革命的方式，劈砍中共魔鬼集团，肩并肩战斗着！
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+谁说战友们没有感情呢？当告别眼前时，哽咽难诉依依不舍。但纵有万般不舍，战友们把这种人之常情叠成心中的千纸鹤，放飞高空后再继续干。千古兴衰成败，百年悲欢离合，人都能顺境而转换。更何况有更多更多的同袍战友在，即将与我们会师拥抱，一起捣烂共魔的巢穴。
 
  
 

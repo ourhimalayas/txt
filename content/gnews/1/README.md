@@ -2,44 +2,31 @@
 ---
 
 
-## 完全接种疫苗的荷美游轮检测到 COVID-19 阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1795961/)
+## 七哥谈经济数据（2021-12-24摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1796052/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-17.jpg)2020 年 3 月 27 日档案照片中荷美游轮的鸟瞰图（Luis Acosta/AFP via Getty Images）
+来源：郭先生2021-12-24直播10:56:27摘录
 
-周末，卫生官员在一艘荷美邮轮上发现 COVID-19 阳性病例后，拒绝其进入墨西哥港口。
+我们看到这些数据的时候，很多战友就是疏忽啊。我们中国人，我再说一遍，我做了那么多年国内公司，中国的老板不看数据，不看财务报表，几乎是所有的大多数人。中国人做事情就是讲理想，讲概念，加眼泪，加感情的多，就是很少具体的数字和真正的逻辑性的思考，和一个可执行的一个行动，程序化的行动。这是导致中国人没有文明，没有发明。更重要的是我们中国人说话，我们的思想，不受任何西方人所尊重，甚至西方人都不懂。就是我们没有任何程序，中国人一讲程序嫌啰嗦啊，慢、笨啊。你看西方的科学，西方的整个社会的，整个文明和商业，还有说明包括设计网络，人家都是有程序，为什么这么做？首先根据科学的逻辑，和科学的所有一种物质，数据累积在一起，结果。但是中国人一讲就是肯定的好坏，用共产主义的思想，一切用情绪代表一切，这些经济数据实际是非常非常重要。
 
-墨西哥哈利斯科州卫生部门在给媒体的一份声明中证实，在“康宁斯丹”（Koningsdam ）邮轮抵达旅游胜地波多黎各时巴亚尔塔时，船上的 21 名船员在导致 COVID-19的中共病毒检测时呈阳性。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“通过船上测试，我们已经确认， Koningsdam 上少数完全接种疫苗的船员的 COVID-19 检测呈阳性，”荷美航空公司在周六发给新闻媒体的一份声明中写道。 “所有人都表现出轻微或没有症状，并且处于隔离状态。出于谨慎考虑，密切接触者已被隔离。”
+**关注我们**
 
-根据哈利斯科州卫生部门的说法，全体船员在 12 月 19 日出发前，接受了 COVID-19 检测，仅发现了一个阳性病例。
+Discord 账号
 
-“由于当局在最后一刻通知客人不得上岸，这艘船启航，将在两天内按计划返回圣地亚哥，”荷美在提供给 KNSD-TV 的一份声明中也表示。 “客人们得到了通知，并继续享受船上的活动。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-荷美的网站上说，顾客和员工必须完全接种疫苗，并提供 COVID-19 阴性测试才能登船。游轮公司还规定，客人和工作人员必须在船上戴口罩。
+Gettr 账号
 
-据游轮运营商在给《大纪元时报》的一份声明中称，在那之前几天，皇家加勒比的海洋奥德赛号也未能在加勒比海的两个地点下船。
-
-“皇家加勒比国际的海洋奥德赛号，将不会按计划访问库拉索岛或阿鲁巴岛，”该邮轮公司告诉《大纪元时报》。 “鉴于目的地社区以及船员和客人在船上检测呈阳性的趋势——55 名船员和客人，占船上人员的1.1%。”
-
-“邮轮航行时，船上 95% 的人都接种了疫苗。”
-
-目前尚不清楚 Omicron 变体是否引发了两艘船中的任何一艘的爆发。美国CDC估计，截至上周，Omicron 占所有 COVID-19 病例的 73%。
-
-与此同时，最近的研究表明，新的 CCP 病毒株引起的症状较轻，导致全球住院人数少得多。在美国——德克萨斯州休斯顿，只有一例死亡与这种新毒株有关。
-
-**参考资料：**[theepochtimes][Fully Vaccinated Holland America Cruise Ship Turned Away After COVID-19 Positive Tests Reported](https://www.theepochtimes.com/fully-vaccinated-holland-america-cruise-ship-turned-away-after-covid-19-tests-reported_4177806.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-27)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

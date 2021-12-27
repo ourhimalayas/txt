@@ -2,36 +2,14 @@
 ---
 
 
-## 中共国经济衰退对全球金融市场的影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795451/)
+## 乔·罗根：政府通往更高的权力之门已经打开
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1795591/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月25日盖特消息，近日，班农先生接受媒体采访时，谈到中共国经济衰退对全球金融市场的影响。班农先生说，中共国经济的实质是持续地以奴隶制剥削老百姓，这是影响全球经济，整个金融及贸易系统的关键所在。
+12/15/2021 彼得·麦卡洛博士：对于群体性精神病来说，有四个因素非常重要。首先，必须有一段长时间的隔离——封锁。第二，人们过去喜欢的东西一定会被拿走。这已经发生了。第三，一定会存在着持续不断的焦虑，所有这些新的循环，所有的死亡和住院，更多的变异菌株，所有的一切，都在让人们一次又一次地感到恐惧。最后第四件事，诱饵。这个诱饵就是，权威机构必须提供单一的解决方案。在这个例子中很清晰。在世界范围内，解决办法是接种疫苗。每个人都必须接种疫苗。它无处不在。不管它是什么疫苗。它可以是中国疫苗，可以是辉瑞疫苗，可以是莫德纳疫苗…有趣的是，它是什么疫苗甚至并不重要。只需要打疫苗，打任何疫苗。
+乔·罗根：当你赋予政府极大的权力凌驾于人民之上时，他们往往喜欢使用这种权力，而且他们永远不想放弃它。我们已经为政府打开了通往更高的权力之门。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-19.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-中共国以污染环境为代价，制造廉价商品。没有环保和劳动力标准，老百姓像奴隶一样工作。伦敦和华尔街的资本家与中共勾兑，利用中共国的廉价劳动力和商品，榨取更多利益。其他国家一样效仿，政治家和资本家根本不在乎中共国老百姓死活。
-
-目前中共国经济一片混乱，中共试图用货币政策来解决困境。而全世界财政亦因过度使用杠杆和加印钞票，同样面临非常糟糕的境况。中共现在的第一要务就是人民币数字化。中共盗国贼家族掌握着比特币的很大一部分，而且，中共比地球上的任何国家都更加控制加密货币和数字人民币。
-
-班农最后预警，北京冬奥会将重蹈1936年纳粹柏林冬奥会戏码，中共妄图得到世界的称赞，转移对其基本民生问题的注意力，然后计划通过侵略台湾，解决即将到来的中共国内经济崩溃。
-
-参考链接：[GTV UK Mr. Bannon’s Weekly Interview 1222-Q2](https://gettr.com/post/pklkexae5e)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
