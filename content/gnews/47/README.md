@@ -2,30 +2,41 @@
 ---
 
 
-## 中共国两名&#8221;人权人士&#8221;失踪，疑似被当局拘留
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1792460/)
+## 一艘全员接种的美海军战斗舰爆发冠状病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792521/)
 
-撰稿：东京樱花团丨待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1-2.png)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/12/id13457769-533790.jpg)
-据【产经新闻】12月25日消息：两名前中国人权活动家，包括一名律师，自12月初以来已失踪半个多月，人们普遍认为他们已被当局拘留。
+作者：纽约香草山文艺部 宁文静
 
-两人都曾希望离开该国去国外探望重病的家人，但当局以“国家安全”为由阻止他们离境。 23日，中国人权志愿者律师组团发表抗议声明，称剥夺人们的自由以及离开国家的权利的做法违背了政府所欠缺的人道主义原则。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据官方称，这两名失踪者是53岁的前律师唐吉田和55岁的作家郭飞雄。他们过去也曾因批评政权而被当局拘留。
 
-本月10日是国际人权日，唐先生打算去出席欧盟驻北京代表团的一个活动。然而，在同一天，他告诉一个熟人说，代表团周围地区不安全。此后，下落不明。
 
-本月5日左右，郭先生发出消息说他再次被逮捕后，下落不明。1月，他在前往美国时，在上海机场被阻止出境。他的妻子患有癌症晚期，住在美国。他曾写信给李克强总理，请求允许前往美国看望妻子，但没有得到批准。
+12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
 
-中国人权律师协会在23日发表的一份声明中说：我们应该换一种思维方式，否则将进一步恶化中国的国际形象。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-8.43.47-PM.png)
 
-支持民主的台湾中国民主党人协会也在24日召开新闻发布会，提出“父母之爱和人权应优先于国家安全。请允许两人离境，并允许他们尽快见到家人”之要求。
+报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
 
-信息来源：[**中国「人権派」２人、所在不明に　当局拘束か（産経新聞） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/c2e2a5debad79cd29c88c36b11cf242e60def7e8)
+据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
+
+参考链接：[A U.S. Navy combat ship is stranded in Guantánamo Bay with a virus](https://www.nytimes.com/2021/12/25/world/navy-ship-covid-guantanamo-bay.html?smid=tw-nytimes&amp;smtyp=cur)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

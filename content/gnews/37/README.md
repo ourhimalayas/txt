@@ -2,36 +2,57 @@
 ---
 
 
-## 悬崖之上
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1792869/)
+## 【Michael.Tonny专栏】医学论文验证郭先生关于伊维菌素预防和治疗中共病毒的说法
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1793155/)
 
-文：银河勇气星｜骄子
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-七哥圣诞节大直播中回答战友的一个问题，关于灵魂的。曾经七哥去到某深山老寺，和某高僧大德站在悬崖之上，迎面都是风，轻柔舒缓，但是脚下是一片悬崖。那片悬崖谁都不敢再往前走了，再走一步就会摔下去了啊。但是如果人生中遇到了这种不得不跨过的悬崖，拧着头也得向前走，不过是怎么走的问题。佛教里有个词叫做“度化众生”，人死了要“超度”，似乎都是在回答这些问题。七哥说起当年在清丰看守所，如果无法度过那个悬崖，可能后来的生活就和8964受害者一样，一辈子打麻将无所事事，精神不正常，直至死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-26-22.43.31.png)8964 / 图源：网路
-七哥尚且有8964这样的不同寻常的经验让他去碰到那个悬崖。好像现在的时代，普通人似乎没什么悬崖，共产党就出来给大伙儿洗脑，“没有困难创造困难”。但其实，每个人生活的每时每刻都是悬崖，比如一场车祸，一场大病，一次失恋，一个误会，除了这些，中共国内部更是创造了步步悬崖，毒奶粉，红黄蓝幼儿园，重金属超标的蔬菜，各种各样乱加工的食物，一直到现在的新冠病毒，新冠毒疫苗，只要踏错一步，就完了。这还仅仅是对肉体的毒害，毕竟肉体只是一种依托，换句话说，人始终要修炼的是灵魂。共产党对灵魂的毒害那更加是把人驾在悬崖之上，让你痛苦，恐惧，让你永远无法逃脱那个魔掌。能从共产党的监狱里出来的政治犯，大部分都是精神病患者，仿佛灵魂被封印在那个悬崖，不能向前，甚至不能后退，痛苦万分却什么都做不了。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/difference-between-devil-and-satan.jpg)
-肉体是一种固定的环境里存在的形式，肉体消亡不代表灵魂的消亡。对于现在的我们来说，肉体非常重要，保护好肉体才能让灵魂在地球这个环境里有所依附。但是肉体同样也是某种，佛教里说的“挂碍”，很多事情都不能太过分的追求，过之则成灾。自然存在的东西是最迷人的，最有魅力的，是因为自然的规则看似春夏秋冬，日升日落，这种规则里藏着变化，因为几乎没有哪一天的太阳，哪一年的夏天是一模一样的，总会有些不同。一年之中，也没有完全的两天是一样的，就算是相邻的两秒钟也是完全不一样的，上一秒过去了，就永远没有了，而下一秒永远都在来的路上，怎么能和上一秒相提并论呢？肉体的衰老代表着人的年龄和机体的衰老，虽然从某种程度上来看，年龄大的人可能会造成一些刻板印象，比如经验多，比如老成守旧，这都只是表面而已。很大年纪的人往往像个孩子，说明肉体的年龄对灵魂是没什么影响的。一个灵魂长成的样子来自两方面，一个是自然，一个是社会。灵魂放到肉体结合上来说，形成的这个东西叫做性格。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-人的性格千变万化，性是一方面，代表的是人的基因本能，格是一种栅栏，用来束缚的东西，性格就是又有自然又有束缚。肉体可以长成性格的外在表现，但人们所说的相由心生，往往指的是一种气，并不是肉体的具体轮廓。平时说的气质，就是气的质量，质量好的气让肉体灵动自然，质量不好的气让肉体每况愈下。
+灭共者郭文贵先生（MilesGuo）多次在视频直播中提到，伊维菌素（ivermectin）对预防和治疗Covid-19（中共病毒）的有显著作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/07487cddcc985f5bef8bf4.jpg)整容女明星 / 图源：网路
+2021年8月16日，由阿根廷、巴西的7家机构和11位学者共同发表的研究论文完全验证了MilesGuo的说法。
 
-长期处在共产党的洗脑之下，人的灵魂是无法有藏身之处的。共产党用邪恶把人的灵魂都扭曲了，或者都赶走了。有的人直接就变邪恶了，有的人就像行尸走肉一样，总之社会里没有什么正常人。灵魂就是相由心生的那个气，灵魂是代表一个人最纯净最独一无二的地方，没有了这些，肉体再美好都是没什么用的。中共国内非常流行的整容术，美容术，把面容和身体改造得再多，只要过段时间，就会发现，这个人又变得和之前一样了，首先人们视觉的特点是喜新厌旧，其次肉体的保养再先进，始终都是一副躯壳，自己的灵魂无法注入这副躯壳，或者根本灵魂就是扭曲状态，虽然有些动了刀子的显而易见的改变，然而这种改变的最后，还是没有灵魂赋予的动态，才会越看越难看。再有就是虽然不对肉体进行任何外力操作，没有动刀，没有填充，没有意外受伤，但是某些肉体的长期积累形成了规模，比如一个人鼻子长歪了，并不是鼻子自己长歪了，是身体的各部分机能调节，尤其是情绪，性格的长期作用，这种一定也连带着身体其他部位的变化，最最奇妙的就是，长期和这个人相处的人，感受不到这个人鼻子长歪了，只有那种长时间不见面的人才知道这个人鼻子长歪了。太可怕了，共产党洗脑是潜移默化的，集体主义也让每个人失去了自己独特的灵魂。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Intensive-Treatment-With-Ivermectin-and-Iota-Carrageenan.png)
 
-共产之下，处处悬崖。佛教里人死了要超度，人在世要度化，度不是一脚踩下去摔粉粹，度是乘着风到达了彼岸。要利用风，首先要找到自然。把每一个被共产党夺走的灵魂抢回来，这是一场生死大难，奋斗和不屈是必须的。现在虽然看似在共产党的严厉看管之下，没有人能够逃脱，没有人能够安全度过，但这世上依然有很多人，已经度过了，并且在用力唤醒那些被共产党封印和扭曲的灵魂，用力恢复自然。
+这篇题为《[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)》的论文是由阿根廷图库曼卫生部（Ministry of Health, Tucumán, Argentina）、SI.PRO.SA省卫生系统（Province Health System, SI.PRO.SA, Tucumán, Argentina）、图库曼卫生部卫生研究所（Health Research Institute, Ministry of Health, Tucumán, Argentina）、Ángel C. Padilla临床医院（Clinical Hospital “Ángel C. Padilla,” Tucumán, Argentina）、图库曼医疗急救中心（Medical Center Emergence, Tucumán, Argentina）、巴西莫吉达斯克鲁兹大学研究与技术中心（Research and Technology Center, Mogi das Cruzes University, Brazil）、阿根廷图库曼医学院-高级生物研究所（School of Medicine-Superior Institute of Biological Research (INSIBIO—CCT CONICET), Tucumán, Argentina）等7家机构的11位学者共同完成。
 
-* * *
+在这项为期4周的临床试验中，总共有234名成人参与者，他们被随机分为1-1对照组（CG，Control Group）117人和试验组(EG，Experimental Group) 117人。该临床试验在世界卫生组织数据库的Covid-19（中共病毒）临床研究试验注册号为[NCT04701710](https://clinicaltrials.gov/ct2/show/NCT04701710)（www.ClinicalTrial.gov）。这些参与者均为经常与受中共病毒感染的患者接触、最容易感染Covid-19（中共病毒）群体之一的卫生人员。
 
-作者：骄子
-发布：骄子
+下图为临床试验参与者信息
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-Demographic-profile.jpg)
+实验组每7天口服2片6mg伊维菌素（orally 2 tablets of 6 mg every 7 days）和每天喷6次iota-carrageenan喷雾（iota-carrageenan 6 sprays per day），持续4周。所有受试者都完成了研究。所有参与者均通过体格检查进行评估，并在协议基线（protocol baseline）时诊断出 COVID-19核酸检查结果为阴性（negative reverse transcription polymerase chain reaction）。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
+下图为临床试验最终结果
 
- 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Am-J-Ther-2021-Sep-Oct.jpg)
 
- 
+A表示实验组和对照组的Covid-19（中共病毒）感染病例数和健康病例数，B表示实验组和对照组中Covid-19（中共病毒）感染后病例的临床状态
+
+在服用了伊维菌素的试验组（EG）117人中，仅有4人感染了中共病毒，而没有服用伊维菌素的对照组（CG）117人中，有25人感染了中共病毒。
+
+对照组中有21名患者有发热症状（fever），而试验组中仅有一名1名患者有发热症状
+
+对照组中有19人出现味觉和/或嗅觉障碍（taste and/or smell disturbances），而试验组中没有人出现这种症状
+
+对照组中还有很多人出现高频率的多关节痛（polyarthralgia）、腹泻（diarrhea）、腹痛（abdominal pain）和低氧饱和度（low oxygen saturation）
+
+对照组有1例患者出现急性下呼吸道感染症状和体征
+
+结论：伊维菌素/iota-carrageenan可以通过阻断输入蛋白α/β（importin alpha/beta）来阻止病毒RNA进入细胞核，从而阻止复制，形成了双重病毒屏障（double viral barrier），病毒进入鼻腔（nasal cavity）时，角叉菜胶（carrageenan）在鼻腔中充当粘液溶解剂（mucolytic agent），带负电荷（negative charge）的硫酸化多糖屏障（sulfated polysaccharides）。伊维菌素基于其全身细胞作用（systemic cellular）降低病毒载量，临床试验中显示伊维菌素有非常高的病毒清除率（viral clearance）。
+
+伊维菌素对Covid-19（中共病毒）的预防和治疗均具有有益作用！
+
+参考数据：
+
+[Prophylaxis Covid-19 in Healthcare Agents by Intensive Treatment With Ivermectin and Iota-carrageenan (Ivercar-Tuc)](https://clinicaltrials.gov/ct2/show/NCT04701710)
+
+[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)
+
+[Un estudio demuestra la respuesta antiviral de la ivermectina en pacientes con COVID-19](https://www.argentina.gob.ar/noticias/un-estudio-demuestra-la-respuesta-antiviral-de-la-ivermectina-en-pacientes-con-covid-19)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

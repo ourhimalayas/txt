@@ -2,46 +2,56 @@
 ---
 
 
-## 最高法院将对拜登政府的疫苗强制接种令举行特别听证会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1793709/)
+## G-Fashion之治愈系列: 带给世界礼物的使者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1793738/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_vaccine_scales_of_justice-1.jpg)*图片：来自Shutter stock*
-《美国律师协会杂志》12月23日报道：
+作者：香草山教育部 –  Mr. Potato
 
-美国最高法院周三定于1月7日举行特别听证会，聆讯在大型工作场所和接受联邦资金的医疗保健机构中的联邦疫苗强制接种令。高等法院下令在12月30日之前提交额外的案情摘要，并在下周的常规口头辩论之前确定周五的口头辩论。
-
-《华盛顿邮报》、《纽约时报》和《美联社》对这命令进行了全面报道。《美联社》报道说：“高等法院决定迅速就这些要求举行辩论是不寻常的。”
-
-“这两个问题都是在紧急情况下到达法院的，法院通常会在没有更典型的完整案情摘要和口头辩论的情况下迅速决定紧急申请。但法院最近也因其处理程序的方式而受到批评，该程序被称为法院的‘影子备审案件’(shadow docket)。”
-
-工作场所规则指拥有超过100名工人的雇主要求雇员接种疫苗或每周进行新冠病毒测试。职业安全与健康管理局已将工作场所规定作为紧急临时标准，该紧急规则最初不必经过通知和评论的做法。当“雇员因接触被确定为有毒或对身体有害的物质或制剂或新的危害而面临严重危险”时，可以采用紧急临时标准。
-
-位于辛辛那提的美国第六巡回上诉法院于12月17日恢复了强制疫苗接种。医疗保险和医疗补助中心采用了另一项疫苗强制接种令，该接种令适用于接受医疗补助基金的医疗保险的联邦医疗保健提供者的雇员。该要求包括对宗教和医疗原因的豁免的雇员。
-
-新奥尔良第五巡回法院于12月15日裁定，阻止该强制疫苗接种的禁令仅适用于提出法律挑战的14个州。另一位法官的另一项裁决禁止在另外10个州执行该强制疫苗接种令。
-
-据《纽约时报》报道，最高法院已在一些情况下允许州政府强制接种疫苗。“但新案列有所不同，”《纽约时报》说，“因为它们主要提出了国会是否已授权行政部门制定要求的问题”。 “答案主要取决于相关法规的解释，但有理由认为，法院的六名保守派大法官多数会对行政权过度扩大持怀疑态度。”
-
-**简评：**
-
-各国的疫苗强制接种令，首先违反的是天赋人权。而拜登政府的疫苗强制接种令，已经在美国巡回法庭出现禁止及恢复的争夺战，用民众的话来说：现在官司打到最高法院。司法界也号称是美国的精英聚集地，还记得2020美国大选期间，最高法院驳回川普阵营试图推翻4个摇摆州选举结果的法律诉讼时已经让民众撕开了这些精英不再秉承法律公证的面纱。针对各州发布的疫苗强制接种令面临违宪诉讼时，最高法院已经多次与州政府站在同一边：在一些情况下允许州政府强制接种疫苗。再次让民众看清楚法院的精英们玩弄的是对法律条文的解释，而对民众人身权利的保护视而不见。当看到一群不愿保护最基本人身权利的所谓司法精英们尸位素餐，民众还能期待他们保护什么？
-
-新闻链接：[Supreme Court sets special hearing on vaccine mandates for larger workplaces, health workers](https://www.abajournal.com/news/article/supreme-court-sets-special-hearing-on-vaccine-mandates-for-larger-workplaces-health-workers?utm_medium=email&amp;utm_source=salesforce_483065&amp;sc_sid=02978766&amp;utm_campaign=weekly_email&amp;promo=&amp;utm_content=&amp;additional4=&amp;additional5=&amp;sfmc_j=483065&amp;sfmc_s=45233078&amp;sfmc_l=1527&amp;sfmc_jb=18002&amp;sfmc_mid=100027443&amp;sfmc_u=13970168)
-
-*翻译/简评：Brianchow*
-
-*校对：感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+看起来如此雅致，带有救人的信息，还可以让化学再次性感，G-Fashion又推出了两个新系列！
+
+这两个新系列现在已经可以在 G-Fashion官网上购买，每一件单品都非常有个性，并且带给世界满满的爱。 今天我们重点要说的是其中的第一个系列——代表意大利南方品味的Cesare Attolini 和 G-Fashion 之间的合作设计。该系列完美诠释了“工匠精神”，短袖和长袖羊绒贴身衫的剪裁恰到好处，优质的材料展现出经典款式，并有多种颜色和尺寸的选择。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-42.jpg)图源网络
+
+
+
+治愈系列是酷炫、经典和勇气的结合，从舒适的 T 恤到个性鲜明的系扣正装衬衫，每件单品都是提升版的休闲衣橱必备。最引人注目的单品之一是永远大一号的套头连帽衫，采用了落肩设计却没有一点邋遢感，正面印有的“青蒿素”标语是这件连帽衫的最特别之处。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-19.jpg)图源网络
+
+早在公元后四世纪，青蒿素并就被用于治疗疟疾发热症状并在医书上有所记载，更重要的是，就在几个月以前，它已被证实为中共病毒和毒疫苗的解毒剂之一，这条救命信息由郭文贵先生和吹哨人运动在GTV、盖特和G-News上首次披露、报道。
+
+十二月是庆祝的季节，也是一个正气和善良的季节。中世纪晚期，在圣人尼古拉斯日的前夕，孩子们都会匆忙回家，梦想着当天晚上圣人尼古拉斯会在他们鞋子里留下各种好东西。在某种程度上，圣诞老人是圣人尼古拉斯另外一种体现，是与上帝的爱的共鸣。自2020年初，中共病毒在全球大面积流行，但病毒的真相却一直被黑白颠倒的主流媒体压制。然而吹哨人和新中国联邦人从未、也不会放弃对人类的希望， 最新推出的G-Fashion治愈系列，承载着拯救生命的信息，代表着新中国联邦的价值，代表着爱和人类尊严。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-9.jpg)图源网络
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
