@@ -2,10 +2,10 @@
 ---
 
 
-## 所有中共病毒疫苗都含有氧化石墨烯纳米颗粒等有毒成分
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794571/)
+## 贵阳网红打卡地CCPark威尼斯商城变死城
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794650/)
 
-12/10/2021 罗伯特·杨博士发现了中共病毒疫苗包括辉瑞、莫德纳、强生、AZ的主要成分，所有疫苗都含有大量有毒物质，包括氧化石墨烯纳米粒子，以及各种重金属元素。
+12/21/2021 曾经的网红打卡地贵阳CCPark威尼斯商城商铺关门变死城，守店人说守店比守寡还难。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

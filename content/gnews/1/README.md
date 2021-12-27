@@ -2,67 +2,31 @@
 ---
 
 
-## 吃着美国进口粮，却又说美国缺粮的谎话连篇的环球时报
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1794870/)
+## 12/27每日播报｜前英国内阁大臣的中国妻子被指粉饰中共暴行
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1794931/)
 
-美国香草山农场-兰兰
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+**2021-12-27**
 
+据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
 
+这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
 
+五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。该访问达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。《China Hour》播出的专题报告节目包括中共政府有效地应对了中共病毒大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
 
+现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年与当时正在为华威商学院 (University of Warwick) 招收中国学生的露西亚·郭相识。露西亚·郭来自中国西安市，现在与杰里米·亨特育有三个孩子。她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目，该节目自今年9月开始播出。
 
-2021年12月23日，环球时报刊文《美国饥饿问题恶化，食品涨价疫情救济金枯竭，超2100万人吃不饱》。该文引用美国彭博社22日的报道，“据美国人口普查局估计，由于新冠疫情救济金枯竭，食品百货价格上涨，12月初有2100多万美国人吃不饱，这个假期季的饥饿问题日益严重。”
+设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于中共病毒流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权粉饰其侵犯人权行为。她说，“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8d04-98549787d02c6ae9d5cacf5c26a43950.jpg)图片来源：环球时报 
+秘翻新闻主编 巴拉克 编译报导
 
-在中（共）国的媒体上，似乎美国总是处于在水深火热之中，不是这里灾难连连就是那里火烧不尽。
+发布：文小明
 
-可是据CNBC新闻报道，自2020年初大流行开始以来，美国政府已斥资3.5万亿美元的COVID救济金。但是，美国特勤局（U.S.Secret Service）周二（21日）说，犯罪份子窃取了近1000亿美元的大流行病救济金。
+* * *
 
-很显然美国的新冠疫情救济金不是枯竭，而是被盗取了。环球时报用“由于新冠疫情救济金枯竭”来误导民众。
-
-据2021年7月19日，搜狐新闻的文章《2021扫货年：上半年我国累计采购美国玉米小麦等农产品2200万吨》，从标题可知，中共从美国进口粮食多达2200万吨。所以到底是美国缺粮还是中（共）国缺粮？
-
-吃着美国进口粮，却又说美国缺粮的环球时报，到底还有多少可信度？
-
-新闻链接：
-
-[https://finance.sina.com.cn/jjxw/2021-12-23/doc-ikyamrmz0808042.shtml](https://finance.sina.com.cn/jjxw/2021-12-23/doc-ikyamrmz0808042.shtml)
-
-[https://www.sohu.com/a/478386905\_100032755](https://www.sohu.com/a/478386905_100032755)
-
-
-
-> [美国特勤局:犯罪分子窃取约1000亿的疫情救济金](https://gnews.org/zh-hans/1781694/)
-
-
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-418.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
-
-
-
-
-
-
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

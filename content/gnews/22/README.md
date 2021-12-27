@@ -2,34 +2,30 @@
 ---
 
 
-## 郭先生再谈新中国联邦的NFT
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1794585/)
+## 【中日财经爆】日本即将推出以区块链为基础的新型贸易结算
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794701/)
 
-作者：纽约香草山信息部 – 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-文贵先生在12月24日的大直播中，在回答主持人小新“未来躺平币是否会与NFT有关？”时，再次谈到NFT。文贵先生明确表示新中国联邦一定会有自己的NFT，并表示喜联储正与世界上NFT做得最好的英国合作，开发我们自己的NFT体系。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12279-1.png)[图片来源](https://news.yahoo.co.jp/articles/6ce90ca74be9a2e9856a0193da7a9cb7c44b84a4)
+12月27日，东京海上日动火灾保险、NTT 数据、株式会社STANDAGE和 Trade Waltz 四家公司宣布，他们已经进行了一项新型贸易结算的示范实验，该交易结算可以同时交换电子提单与数字货币等加密资产。此实验证实了可以使用区块链技术交易平台，将数字化的“提单”与数字货币等加密资产进行同时交换。
 
-文贵先生说新中国联邦的NFT涵盖范围更加广泛而全面，未来任何有价值、有创意的东西，如GTV直播、GNEWS文章、GETTR帖子、躺平行动等都可以NFT化。文贵先生提到其早年在国内首创的将地产分割成N份上市的房地产信托就是NFT的雏形。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-18.jpg)
-不可互换的加密数字资产NFT也叫非代币，其实就是加密数字资产的电子认证，与比特币和以太坊等可互换的代币不同，但都是存储在区块链上的加密数字资产单位，且通过代币的数量来体现其市场价格。当下NFT市场盛行的是独一无二的艺术化数字资产。
+过去，在以钱换货的贸易交易中，以提单（B/L）而不是货来换取货款。提单是一种表明要求提货权的证券，即从承运人处收取货物的权利，也表明货物的所有权。
 
-时间是价值，行为结果是价值，需求是价值，NFT化的途径就是将你的价值与资产等一切市场认可的东西，通过数字化、虚拟化、微观化、去中心化、国际化等不同方式推向数字加密资产市场，并将其定价权交给“民天下”的市场。
+在这种基于提单的贸易交易中，在海外交易的情况下，出口商和进口商之间的实际距离意味着提单和付款不能同时进行交易，存在任何一方违约的风险，因此交易增加了银行、保险、保理和其他风险对冲的额外成本。
 
-参考链接：[郭先生再谈新中国联邦的NFT](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
+而本次这一示范实验，通过允许用电子提单，同时交换数字货币等加密资产，避免了海外贸易交易中的违约风险。这是世界上第一次同时用电子提单和数字货币，代替货物进行交换。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+近年来，为了在日本接受“电子提单”，要求修改相关法律的动议不断提出。国外也有类似动向。此外，国际上也有关于数字货币实际使用的讨论，还有一个背景是中共国、柬埔寨和其他国家日趋走向CBDCs（中央银行数字货币）的实际使用。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+当电子提单和数字货币交易在实际贸易中得以广泛应用时，既可以消除国际贸易的风险，还可以降低进出口商的贸易成本。预计将增加更多中小企业的参与，促进贸易便利化。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+基于这一验证实验的结果，这四家公司将继续致力于在2023财年末实现该项目的商业化。
+
+信息源：[ブロックチェーン技術などを活用した新たな貿易決済–東京海上日動ら4社が実証実験](https://news.yahoo.co.jp/articles/6ce90ca74be9a2e9856a0193da7a9cb7c44b84a4)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

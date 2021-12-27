@@ -2,10 +2,10 @@
 ---
 
 
-## 完全接种疫苗和加强针的马里兰州州长中共病毒检测阳性
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794575/)
+## 北京冬奥会完全清洁能源背后是掠夺土地的黑暗现实
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794652/)
 
-12/20/2021 马里兰州州长中共病毒检测呈阳性，尽管他已接种两剂疫苗并打了加强针。
+12/21/2021 Wion新闻台：中共吹嘘北京冬奥会将完全依靠清洁能源，并建立了许多大型的太阳能发电场，但这背后是掠夺土地和强行驱逐的黑暗现实。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
