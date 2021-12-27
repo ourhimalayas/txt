@@ -2,44 +2,34 @@
 ---
 
 
-## 完全接种疫苗的荷美游轮检测到 COVID-19 阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1795961/)
+## 加拿大总理：中共利用经济利益挑拨民主国家内斗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1795943/)
 
-翻译： Jenny Ball
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-17.jpg)2020 年 3 月 27 日档案照片中荷美游轮的鸟瞰图（Luis Acosta/AFP via Getty Images）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/A0F8D7BA-B148-49B4-B98A-24A5C3A821B2.jpeg)（图片来源：彭博社）
 
-周末，卫生官员在一艘荷美邮轮上发现 COVID-19 阳性病例后，拒绝其进入墨西哥港口。
+12月25日，加拿大总理特鲁多在一次采访中表示，中共正在利用经济利益挑拨分化西方民主国家。
 
-墨西哥哈利斯科州卫生部门在给媒体的一份声明中证实，在“康宁斯丹”（Koningsdam ）邮轮抵达旅游胜地波多黎各时巴亚尔塔时，船上的 21 名船员在导致 COVID-19的中共病毒检测时呈阳性。
+据《路透社》报导，特鲁多于12月25日接受加拿大环球电视(Global television)采访时表示，中共不时地利用开放的市场、竞争的方式并使用非常巧妙地手段挑拨离间西方民主国家，让他们相互斗争，争夺在中共国的经贸机会。
 
-“通过船上测试，我们已经确认， Koningsdam 上少数完全接种疫苗的船员的 COVID-19 检测呈阳性，”荷美航空公司在周六发给新闻媒体的一份声明中写道。 “所有人都表现出轻微或没有症状，并且处于隔离状态。出于谨慎考虑，密切接触者已被隔离。”
+特鲁多呼吁各国，西方民主国家应该建立一个针对中共的统一战线，防止其利用商业利益来挑动他们互斗。
 
-根据哈利斯科州卫生部门的说法，全体船员在 12 月 19 日出发前，接受了 COVID-19 检测，仅发现了一个阳性病例。
+此前，由于中共违反人权的行为，加拿大与其盟友美国、澳大利亚、英国、加拿大、新西兰和科索沃等民主国家保持立场一致，相继宣布抵制北京冬奥会。
 
-“由于当局在最后一刻通知客人不得上岸，这艘船启航，将在两天内按计划返回圣地亚哥，”荷美在提供给 KNSD-TV 的一份声明中也表示。 “客人们得到了通知，并继续享受船上的活动。”
+*参考链接：*
 
-荷美的网站上说，顾客和员工必须完全接种疫苗，并提供 COVID-19 阴性测试才能登船。游轮公司还规定，客人和工作人员必须在船上戴口罩。
+1. [*https://cn.reuters.com/article/trudeau-west-china-1225-sat-idCNKBS2J600J*](https://cn.reuters.com/article/trudeau-west-china-1225-sat-idCNKBS2J600J)
+2. [*https://gnews.org/zh-hans/1759018/*](https://gnews.org/zh-hans/1759018/)
 
-据游轮运营商在给《大纪元时报》的一份声明中称，在那之前几天，皇家加勒比的海洋奥德赛号也未能在加勒比海的两个地点下船。
-
-“皇家加勒比国际的海洋奥德赛号，将不会按计划访问库拉索岛或阿鲁巴岛，”该邮轮公司告诉《大纪元时报》。 “鉴于目的地社区以及船员和客人在船上检测呈阳性的趋势——55 名船员和客人，占船上人员的1.1%。”
-
-“邮轮航行时，船上 95% 的人都接种了疫苗。”
-
-目前尚不清楚 Omicron 变体是否引发了两艘船中的任何一艘的爆发。美国CDC估计，截至上周，Omicron 占所有 COVID-19 病例的 73%。
-
-与此同时，最近的研究表明，新的 CCP 病毒株引起的症状较轻，导致全球住院人数少得多。在美国——德克萨斯州休斯顿，只有一例死亡与这种新毒株有关。
-
-**参考资料：**[theepochtimes][Fully Vaccinated Holland America Cruise Ship Turned Away After COVID-19 Positive Tests Reported](https://www.theepochtimes.com/fully-vaccinated-holland-america-cruise-ship-turned-away-after-covid-19-tests-reported_4177806.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-27)
 
 * * *
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+*素材采编：海星*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

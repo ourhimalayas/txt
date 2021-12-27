@@ -2,33 +2,54 @@
 ---
 
 
-## 抖音超越谷歌成为互联网上最受欢迎的网站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794226/)
+## 日本大阪大学研究中共病毒口腔内感染机制
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1794134/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/抖音.png)图片来源：gamerant网
+**作者**：日本方舟农场-Andy5
+
+**新闻采集**：日本方舟农场-Andy5
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-18.jpg)
 
 
-**翻译：文扬**
-**编辑：Candy**
 
-抖音似乎做到了不可能的事情：在2021年的最后几个月超过谷歌，成为最受欢迎的网站域名。
 
-对于更多的在线用户来说，谷歌是不可替代的。 互联网用户在早上登录 Gmail，他们全天使用Google搜索，并在必要时涉足Google图书、地图、新闻、照片和翻译。 谷歌作为一个域名，长期以来一直比任何其他域名都更受欢迎也就不足为奇了。
 
-然而，到 2021 年末，这不再是事实。谷歌已经被一款专为有趣短视频而打造的应用程序所取代。 抖音现在是互联网上排名靠前的域名。
+据日本媒体12月25日报道，日本大阪大学的研究小组经过研究，发现中共病毒并非只会感染肺部，还会通过唾液感染人体的唾液腺。
 
-该报告来自Cloudflare的年终审查，该审查对互联网的所有事物进行了分解。 Cloudflare解释说，虽然谷歌可能主导了2020年，但2021年已经完全不同了。 抖音在2月17日那一天超越了谷歌，然后在3月和5月赢得了更多胜利。 到8月，抖音在对抗谷歌的比赛中胜出的天数多于输给它的天数，这一趋势一直持续到11月，尤其是在12月。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2476.jpg)
 
-原文链接： [TikTok Overtakes Google As Most Popular Site on the Internet (gamerant.com)](https://gamerant.com/tiktok-most-popular-site-google/)
+据了解，人体头部里的舌下腺、颚下腺、耳下腺等器官都属于唾液腺，其中一个接触到了病毒就会导致感染，并且通过唾沫吞咽进一步感染其他人体组织。而受感染之后的口腔，尤其是味蕾部分将失去原有的功能，也就造成了许多感染者失去味觉的症状出现。
 
-***发布：Candy***
+研究小组还表示，基于这个结果，今后将把在唾液方面防止病毒侵入人体作为研究方向。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参阅链接：
+
+[https://news.tbs.co.jp/newseye/tbs\_newseye4435452.htm?1640520136966](https://news.tbs.co.jp/newseye/tbs_newseye4435452.htm?1640520136966)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-7.png)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+
+
+
+
 
  
 
