@@ -2,10 +2,10 @@
 ---
 
 
-## 中共病毒疫苗灾难：西安长安大学救护车排起长队
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794648/)
+## 贵阳网红打卡地CCPark威尼斯商城变死城
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794650/)
 
-12/21/2021 一位女士亲身描述：西安长安大学救护车排起长队，这可能是因为中共病毒的毒疫苗的副作用，而不是出血热爆发。
+12/21/2021 曾经的网红打卡地贵阳CCPark威尼斯商城商铺关门变死城，守店人说守店比守寡还难。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
