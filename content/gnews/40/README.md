@@ -2,10 +2,10 @@
 ---
 
 
-## 岸田文雄或取消出席在美举办的NPT会议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1793820/)
+## 法、意，新增感染中共病毒人数连续3天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1793821/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._27-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1227-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

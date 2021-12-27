@@ -2,18 +2,31 @@
 ---
 
 
-## 秘翻在线：日本冲绳中共病毒(新冠病毒)感染病例激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793877/)
+## GTV新闻访谈简报|2021年12月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1793946/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-24.png)（图片源自本文链接）
-12月27日琉球新报消息：12月26日，由琉球大学研究生院教授藤田次郎主持的冲绳县防治中共病毒(新冠病毒)感染措施的专家会议在县政府举行。
+作者：香草山翻译部
 
-从该会议得知, 在琉球岛北部，感染者人数的迅速增加已经给医疗服务带来了压力，由于床位几乎已满，政府不得不决定选择居家治疗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
-政府的预测系统估计，如果感染状况继续以目前的速度发展，三周后每天的新感染人数可能达到832人，医护人员已表现出危机感，说医疗服务迟早会崩溃。
 
-信息源：[沖縄で感染者1日832人試算も…北部で感染急増、医療逼迫（琉球新報） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/3c0818205ede3769f5f68db0df468e8920050d50)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1227text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c916b500f9a119180b8a19)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

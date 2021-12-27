@@ -2,27 +2,36 @@
 ---
 
 
-## 平安夜感悟
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1790333/)
+## HBO Vice和Shorenstein Center -中共自导灭爆计画剧本
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1790614/)
 
-作者：Snowman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/NFSC.jpg)
-生命和死亡是生命的一个轮回，但在今年的平安夜却成了一个沉重而现实的话题。在人类历史长河中，一个人从出生到死亡的生命之旅是如此短暂而一闪即过。在这有限的旅程中，我却获得了无限的幸运，知遇了至今未曾谋面的郭文贵先生。从关注文贵先生在自媒体上发声的第一天起，这几年所有的节假日我都是在听他的直播中渡过的。听文贵先生的直播，已经成为我们家生活中最重要的不可或缺的一部分。从他最初“孤独”的一个人的Guo Media，到今天已汇集了千军万马战友的GTV，正在摇滚歌星Miles Guo的“HCoin To The Moon”的歌声中走向明天。2021年的平安夜，在我感恩生命的同时，回想几年来的心路历程，难忍悲喜交加，百感交集的心情。
+**【深度报导】在HBO Vice Isobel Yeung记者骗取文贵先生和战友采访影片中，引述”郭文贵和美国右翼势力连结”的Graphika research。 Graphika, Jack Stubbs与facebook、NFL、TilTok、Google有合作，经笔者追查Graphika与哈佛Shorenstein Center 唐纳文（Joan Donovan）也有合作，[Shorenstein Center](https://shorensteincenter.org/)是中共长期赞助的对象。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Graphika-Shorenstein-Center-CCP-Vice.png)
+**根据The National Pulse曾参与班农战斗室主持人拉希姆·卡萨姆Raheem Kassam和娜塔莉·温特斯Natalie Winters [在2月13日国家脉动发表独家新闻](https://thenationalpulse.com/2021/02/13/harvard-shorenstein-center-ccp-ties/)撰写的文章中，揭露了哈佛大学肯尼迪学院肖恩斯坦研究中心，接受中共资助和军事相关的捐赠款事实，独家新闻指出肖伦斯坦中心是中共的长期赞助的对象，其中清大新闻学院董志军，新华社编辑李锡光，广播电视研究胡正荣等是由中共党员组成的多位肖伦斯坦中心研究员。**
 
-从聆听文贵先生的爆料开始，他所有直播中传递给我的感受都是令人震撼的真实。我在了解文贵先生半个人生命运的拼搏中，由衷地感受到了他朴实的善良、卓越的才能、对生命的敬畏和对亲人和战友的深沉挚爱。这是一个有着极其鲜明“大爱和大恨”的人，他在中共国跌宕起伏的令人难以置信的历练中，都表现出无比坚毅、果敢、敏锐和精准的判断力，使他在任何艰险的情况下都能化险为夷无往而不胜。这几年更亲眼见证了爆料革命的为真不破，任何CCP射来的假“子弹”，文贵先生都能用美国的法律将假“子弹”变成真“炸弹”再投回CCP。我坚定地相信，跟随文贵先生是我人生最正确和最重要的选择，没有之一。文贵先生日复一日的直播完全让我折服。他所有的直播都从不用讲稿，有时一次长达几个小时，他的直播是不可复制的，因为他显示给世界的都是真实事件的现实版，几年来他几乎所有直播的内容都已经被准确验证。
+**中共自导灭爆计划剧本**
 
-认真听文贵先生的直播无疑是非常“烧脑”的，我想这个世界上能一开始就明白的人一定是屈指可数的。如今，我们真的看到了喜马拉雅从梦幻般的真实中惊艳现身，炫丽的前景已经开启。回想在他早期的直播中曾提到，在伦敦当他听到习近平上位后，他兴奋地在伦敦大街上裸奔：灭共终于有希望了。2016年11月美国总统的竞选之夜，他就在川普的MAR-A-LAGO俱乐部等待选举结果。直到2017年，文贵先生决定开始实施在中共国卧心藏胆30年的灭共计划。文贵先生在世界政治舞台上的横空出世，一举改变了世界对中共万马齐喑的局面，开启了“以共灭共，以美灭共，全世界灭共”的新格局。 在此期间发生的所有事件，都在文贵先生的运筹帷幄之中。我庆幸能一直跟随爆料革命，并非证明我有多高的智商，而是文贵先生言谈举止的人格魅力，时刻冲击我的心灵并激发我对“爱与善”渴望的本能选择。对任何人而言，否定过去的一切是一个痛苦的历程。但能在有限的生命旅途中遇到文贵先生，我无疑是幸运的。
+**根据[美国华盛顿邮报5月17日](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)**，引述哈佛大学薛斯汀或称肖伦斯坦中心(Shorenstein Center)中心科技与社会变化研究计划主任，唐纳文（Joan Donovan）的Graphika报告，说「[这是一份重要的鉴识分析，探讨富有且具有政治动机的人，操弄社群媒体之道。](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)」
 
-在文贵开启的爆料革命几年中，我见识了各类伪类，结识了无数的素未谋面的战友，以及自媒体中各色牛人，深刻体会到爆料革命就是大浪淘沙、去伪存真的过程。文贵先生多次强调：“这世界上就存在两种人，善良的和邪恶的， 我们要留下好人“。从墙内走出来的人都清楚，好人和坏人的定义，在不同的国家和不同的制度下，会有不同的理解。我理解的文贵先生所说的好人应该是“一个具有敬畏和怜悯之心的人，一个孝敬父母珍爱亲朋的人，一个能正视自己优略的真实的人，一个能尊重和包容他人的人，一个能辨别善恶和知道荣辱的人，一个勇于与邪恶斗争的人”。文贵先生是所有新中国联邦人的榜样。我们虽然没有文贵先生的智慧、胆识和阅历，但几年来的爆料革命洗礼和正在经历的疫情考验，足以使我们脱胎换骨。我相信会有越来越多的好人在新中国联邦汇集。
+该报导指出文贵先生和班农先生推动华裔在美国总统大选对共和党川普的支持，并宣称川普1月6日在美国国会大厦集会的计划和随后的袭击中，GTV 播放了现场直播的行动。
+该报导指出爆料革命在GTV、GNEWS和相关网站，散播扭曲不实资讯，主要打击对象是中共政治领导阶层和在西方的反中共异议份子(乱伦彪伪类、欺民贼)，包含新型冠状病毒病Covid-19来自中共是假消息，以及攻击Covid-19疫苗安全性，并报导喜马拉雅联盟和在美国、加拿大、澳洲和其他国家的喜马拉雅农场，支持郭文贵爆料革命的义工，透过Discord社群平台协调工作，在各大社群平台广泛发文。并指称GTV的投资问题。指称在滕彪家外抗议的战友，是在郭文贵的要求下到场，并说这些抗议活动一度演变为暴力，和推动使用未经证实的治疗羟氯喹来对抗Covid-19等。而这位唐纳文（Joan Donovan）就是曾经和哈佛甘迺迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）一同撰写”指责新冠状病毒COVID-19为人造是伪科学的文章”。该文章表示新冠状病毒来源于自然界，为中共释放新冠状生化病毒COVID-19洗白。
+HBO VICE Isobel Yeung採訪惡意剪接、斷章取義的編輯成documentary的滅爆影片-片段
+**新中国联邦战友看到****Joan Donovan****在华邮的报导，是不是和****HBO Vice Isobel Yeung****记者的影片有****90%****的相近之处，**文贵先生透漏Vice Media 2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。**Vice Media****背后由黑石、索罗斯和中共海外****BGY****特务单伟健组成**，单伟健曾带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，**单伟健从****TPG****离开后转战****PAG****香港太盟投资集团，****PAG****、****PAX****太盟亚洲机会基金、瑞寰资本****ARCH****背后正是中共海航王岐山。**
 
-中共病毒大流行的两年，从来没有觉得生命是如此脆弱，死亡是如此现实，生活会如此苟且。在最近一期的叶钊颖、郝海东和300年飞飞的《大实话》中，郝海东先生在节目中说：“在这里，我们现在过的是生活；在那里（墙内的），他们仅是活着“。 叶钊颖女士在GETTR的自述中写到：“如果生命的长度是由老天决定，那生命的宽度将由你自己决定”。只有经历过的人，才能真正理解这句至理名言。活着是被动的生存，而生活则是在生存中的主动享受。这是“活着”和“生活”的不同含意和区别。走进新中国联邦这条让你实现人生辉煌的阳光大道，就是告别过去的“活着”，迈向新的生活。
+**中共藉由肖伦斯坦中心唐纳文（Joan Donovan）、华盛顿邮报、HBO Vice Isobel Yeung一系列的合作，大肆宣传诋毁爆料革命，目的就是要消灭文贵先生、爆料革命，将新中国联邦战友们都变成海外极端恐怖分子，并且用一国之力量打击文贵先生，这和中共在美国对文贵先生的67个法律诉讼背后，都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，这次文贵先生引蛇出洞、舍孩子套狼，都将向西方世界展示中共长期在背后布局的行动。**
 
-祝大家节日快乐！
+本文仅代表个人立场
+**祈祷万佛万神加持文贵先生与新中国联邦战友**
+台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
 
+- [EXC: Harvard Center Attacking COVID Lab Theory Has Extensive Financial And Personnel Links With The Chinese Communist Party](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
+- 華郵[Chinese businessman with links to Steve Bannon is driving force for a sprawling disinformation network, researchers say](https://www.washingtonpost.com/technology/2021/05/17/guo-wengui-disinformation-steve-bannon/)
+- [2021年12月22日 文貴大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
+- **\*\*\***[2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相 還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
+- [Republicans Want Twitter to Ban Chinese Communist Party Accounts. That’s a Dangerous Idea.](https://slate.com/technology/2020/04/republicans-want-twitter-to-ban-chinese-communist-party-accounts-thats-dangerous.html)
+- [Graphika Jack Stubbs https://graphika.com/](/graphika.com/)
+- [Shorenstein Center](https://shorensteincenter.org/)
 
-
-审核校对：Barry Jack
-上传排版：F
 
  
 
