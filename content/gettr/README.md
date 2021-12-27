@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 7:38 AM (UTC)`
+
+12/25/2021 Miles Guo: The celebrities who were groomed by the CCP and earn over 10 million yuan a year will inevitably have their wealth taken away by the CCP; the celebrities from Hong Kong, Macao, and Taiwan have no dignity or freedom in front of the CCP, and they all have to sleep with the tycoons; the New Federal State of China shall make sure those fellow fighters who love music will never sing for money<br/><br/>12/25/2021 文贵直播：中共养的、收入超千万的明星都逃不过杀富的命运；港澳台明星在中共面前毫无尊严和自由，他们都是富人的玩物；新中国联邦要让爱音乐的战友不为钱而歌唱<br/>
+![img](https://media.gettr.com/group41/getter/2021/12/27/07/66d01179-90aa-fc08-c443-21b658fc5f5a/out.jpg)
+
+---
+
 `@miles 12/27/2021 6:00 AM (UTC)`
 
 12/26/2021 Miles Guo: Yesterday’s live stream has proved that the New Federal State of China is saving the world rather than a cult; meanwhile, a major political move was made inside the CCP, and the US government will take a series of measures against the CCP; more progresses will be made to stop the COVID vaccination across the globe<br/><br/>12/26/2021 文贵直播：在昨天直播证明了新中国联邦是在拯救世界而非邪教；与此同时，中共内部有重大政治行动发生，美国政府将对中共有一系列举措，全球在停止疫苗上将有更大进展<br/>
@@ -154,13 +161,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12/24/2021 Miles Guo: All the questions asked by Isobel Young in the interview were the traps she set up for me. However, with the video recording of the full interview and our own platforms, we managed to expose her lies and effectively fight her back; Isobel Yeung will pay for an enormous price for her lies, and both she and VICE will lose their lawsuits for sure<br/><br/>12/24/2021 文贵直播：杨贝贝采访的提问都是给文贵挖的坑，但我们用全程录像和自己的平台，戳穿了她的谎话并进行了有力的反击；杨贝贝将为其谎言付出巨大代价，她和VICE必定会输掉官司
 ![img](https://media.gettr.com/group23/getter/2021/12/25/08/156fd478-0e8a-4fa4-aae0-035055f4d7ee/out.jpg)
-
----
-
-`@miles 12/25/2021 2:19 AM (UTC)`
-
-12月24号：衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐🎄应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞🎄❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-![img](https://media.gettr.com/group48/getter/2021/12/25/02/a3d08123-7878-d238-31bb-e57001f047e9/out.jpg)
 
 ---
 
