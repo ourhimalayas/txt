@@ -2,31 +2,35 @@
 ---
 
 
-## 12/27每日播报｜前英国内阁大臣的中国妻子被指粉饰中共暴行
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1794931/)
+## 核谈：中共生化战改变了世界核力量平衡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795012/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/bMeLNRWu8d0ZKkBQ7EQM0259oU1uv55EeuVFyziXH1Yas8qgh3hE5hN62SquOg-KJTN5O8LuLpzfuMErZoKX398gNyE2wf9oNIp5xsM-iLRWwNdl1p5z-v_seyBCpkQL8Oau0lu5)[*图片来源*](https://moderndiplomacy.eu/2021/12/26/aukus-leading-to-nuclear-arms-race-in-indo-pacific-region/)
+**日本首相岸田文雄 27 日上午确认以视频演讲的方式参加；联合国举行的核不扩散大会。随着中共国的军事扩张，美国及其盟国正在尽一切努力，向澳大利亚提供核潜艇，最滑稽的是中共国试图影响拜登总统，要求美国放弃更多核武器。**
 
-**2021-12-27**
+据日本《[朝日新闻](https://www.asahi.com/articles/ASPDW3JTPPDWUTFK005.html)》27日消息称，[岸田文雄首相 27 日上午正式确认以视频演讲的方式参加](https://news.yahoo.co.jp/articles/fbed02bf9f5725efe5f4a07347d762d6c7f45113)即将到来的（1 月 4 日）在纽约举行的核不扩散条约（NPT）审议大会。滑稽的是，22日，中共国环球时报谎称，拜登政府[要求日本不要参加该会议](https://world.huanqiu.com/article/465FguEjYZp)。
 
-据英国《每日邮报》（Daily Mail）12月25日报道，前英国卫生和外交大臣杰里米·亨特（Jeremy Hunt）的中国妻子露西亚·郭（Lucia Guo）在中共官媒的一档专题节目担任主持人，她被指控替中共“洗白”其人权侵犯行为。
+岸田表示，由于新的中共病毒突变体“Omicron株”感染正在美国蔓延，“我调整了访问美国并发表演讲的方式，但我认为，每个国家都有越来越多的人转向 NPT 视频演讲。”他补充说，“我对这次会议也有强烈的感觉，所以我希望能够做出贡献。”
 
-这家中共官媒是中国国际电视总公司（China International TV Corporation），它与位于英国的媒体公司Dove Media以及中国驻伦敦旅游办事处联合制作了一个名为《China Hour》的系列节目。该节目在英国天空电视台（Sky TV）播出，旨在向英国观众展示中国文化。Dove Media是世界华文传媒合作论坛（Global Chinese Media Co-operation Forum）的一部分。
+- ***延展阅读：***[***王毅就海湾局势以“潘多拉魔盒”威胁***](https://www.guancha.cn/politics/2019_06_18_506126.shtml)
+- ***延展阅读：***[***求实：“澳核问题”将打开“潘多拉魔盒”***](http://www.qstheory.cn/qshyjx/2021-10/03/c_1127927419.htm)
 
-五年前，时任英国卫生大臣杰里米·亨特率领一个代表团访问中共国。该访问达成了一项协议，其中包括中英媒体联合制作节目、在天空191频道播放《China Hour》。《China Hour》播出的专题报告节目包括中共政府有效地应对了中共病毒大流行病以及新疆地区的美景，却没有提及该地区关押和迫害维吾尔穆斯林的再教育营地。
 
-现在担任英国下议院卫生与社会保健特别委员会（health and social care select committee）主席的杰里米·亨特，在2008年与当时正在为华威商学院 (University of Warwick) 招收中国学生的露西亚·郭相识。露西亚·郭来自中国西安市，现在与杰里米·亨特育有三个孩子。她在《China Hour》中主持了一个名为《花开中国》（Signature Flowers of China）的专题节目，该节目自今年9月开始播出。
+NPT审议大会是每五年一次在联合国总部举行的国际会议。检查核裁军情况并讨论防止核扩散的措施。去年日本首相也出席了审议会议并发表了讲话，但由于成员国之间的冲突，未能形成最终公报文件。
 
-设在美国的人权研究机构自由之家 (Freedom House)在去年指控《China Hour》节目是中共国际媒体网络的一部分。在北京，该节目因其收视率而受到赞扬，而其关于中共病毒流行病的报道被认为“在向世界传达中共对该流行病的叙事方面发挥了独特作用”。但是自由之家的高级研究分析员莎拉·库克 (Sarah Cook)说，像《China Hour》这样的节目被用来帮助中共政权粉饰其侵犯人权行为。她说，“中共官媒参与制作了这些节目，并将其嵌入到中共官媒其它无害的节目中，这就是其阴险之处。已有许多观众观看了这些内容，但它实际上是在粉饰一个可怕的专制和残暴政权。”
+随着大流行的不断加剧的影响，美澳印日新的联盟意识到为了遏制中共国的军事和经济侵入式影响，尤其是在印太地区，[美国及其盟国正在尽一切努力，向澳大利亚提供核潜艇](https://moderndiplomacy.eu/2021/12/26/aukus-leading-to-nuclear-arms-race-in-indo-pacific-region/)，这也是“2021 年 9 月 15 日，英国首相鲍里斯·约翰逊、美国总统乔·拜登和澳大利亚总理斯科特·莫里森发表联合声明，宣布建立名为 AUKUS 的增强型三边安全伙伴关系。 该协议的重要部分是帮助澳大利亚获得8艘核动力潜艇。”这一举措将使美澳成为遏制中共国军事扩张突破第一岛链的重要战略部署。
 
-秘翻新闻主编 巴拉克 编译报导
+- ***延展阅读：***[***看看中共国的生物战野心***](https://www.orfonline.org/expert-speak/a-look-at-chinas-biowarfare-ambitions/)[***《SARS 的非自然起源和作为遗传生物武器的人造病毒新物种》***](https://www.amazon.com/%E9%9D%9E%E5%85%B8%E9%9D%9E%E8%87%AA%E7%84%B6%E8%B5%B7%E6%BA%90%E5%92%8C%E4%BA%BA%E5%88%B6%E4%BA%BA%E6%96%B0%E7%A7%8D%E7%97%85%E6%AF%92%E5%9F%BA%E5%9B%A0%E6%AD%A6%E5%99%A8-%E6%9D%8E%E5%B3%B0-%E5%BE%90%E5%BE%B7%E5%BF%A0/dp/B012984EOI)
 
-发布：文小明
 
-* * *
+最滑稽的是中共国对这次核裁军会议的反应，中共试图影响拜登总统，要求美国放弃更多核武器，便导演了一场类似掩盖病毒真相的幼稚的伎俩，竟然邀请所谓“[21名诺贝尔奖获得者在内的近700名科学家和工程师致信拜登，呼吁削减核武器数量](https://mil.news.sina.com.cn/dgby/2021-12-22/doc-ikyakumx5730068.shtml)。”这21名诺贝尔奖获得者恐怕也是生物学专家吧。因为中共知道，他的生物武器要比核武器的杀伤力更大更猛。而且中共国已经利用生物级核战争改变了世界。而且，“[数十年后依然能夺人性命，比核武器还可怕](https://www.163.com/dy/article/GNAE4PB505529C6M.html)。”
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
+2021年12月27日
+
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

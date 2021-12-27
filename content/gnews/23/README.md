@@ -2,10 +2,10 @@
 ---
 
 
-## 中共病毒正在改变英国政治格局
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794838/)
+## 普京和习近平正在媾和，因拜登政府不能做出强硬决定
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794842/)
 
-12/17/2021 本·哈恩韦尔：这本是保守党大本营，它却自1832年以来第一次易手，这确实说明了中共病毒正在改变英国选举格局的事实。
+12/18/2021 普京和习近平举行视频峰会正在媾和，证明软弱的拜登政府无法做出强硬决定。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

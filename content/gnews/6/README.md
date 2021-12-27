@@ -2,22 +2,62 @@
 ---
 
 
-## 意在挑拨的指控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795035/)
+## 雅典娜疫情更新（2021年 12月27日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1795050/)
 
-作者：东京樱花团丨阿恩
-![](https://lh4.googleusercontent.com/ksPuSYpvNtvuGJw1y7VhzU__HJfpXVSdF8DfD8WcEeN5UXcTuSpbJ8KeOY3SNkCirxpQhS2ceMsqbrnSu2RJxiId_6Of7YS5Mp3Grnjti72Xqxldk0uhE4Hla_hBwb3ylZOFE9vP)[*图片来源*](https://www.hk01.com/%E6%94%BF%E6%83%85/716866/%E6%A2%81%E6%8C%AF%E8%8B%B1%E9%9A%94%E7%A9%BA%E6%8B%B7%E5%95%8F%E7%BE%85%E5%86%A0%E8%81%B0-%E8%BA%AB%E5%BE%8C%E8%81%96%E8%AA%95%E6%A8%B9-%E8%AA%B0%E7%B5%A6%E9%8C%A2%E8%B2%B7-%E7%BE%85-%E9%82%A3%E4%B8%8D%E6%98%AF%E6%88%91%E7%9A%84)
-前特首梁振英于社交专页连发四文质问与被港府通缉、现身处英国的前立法会议员罗冠聪，事因罗冠聪上载一幅与圣诞树的合照。梁振英质疑罗冠聪在英国的生活费来源。罗冠聪回应梁振英遐想连篇，只有「机会主义者」才会认为别人的行动背后都有可供量化的实际利益，不会相信人是会因为价值和原则行事。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
 
-中共在香港强推国安恶法，众多民主斗士被抓捕入狱，还有不少民主人士逃往海外。其中英国的BN(O)护照吸引力大批不甘被中共压迫的港人举家移民，英国各地区都成立了港人社团，运作的经费大部分是通过众筹获得，为当地的港人提供语言培训、就业、税务和法务等方面的咨询，为寻求政治庇护的港人提供支持，并且定期举行社会活动宣传香港现状，这些组织为异乡的港人提供了避风港。不过中共却一直抹黑这些组织，用梁振英这样的中共代言人去跟踪和追击海外的港人组织，再通过媒体的渲染扭曲他们在港人心目中的形象。中共的目的就是要掐断港人的希望，对被困在香港的人形成“海外民运人士都是骗子”的假象，对国际社会编造“海外民运人士靠施舍度日”，如何能有能力带领港人捍卫民主。
+感染总数：2.38亿（日新增 45.9万）
+死亡总数：426万（日新增 3397人）
+每万人感染人数：387.1131人（除中国外）
+（以上数字几天来大幅度下调修正，参见下图全球累计病例数陡降曲线，原因不明。）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1508.png)
+**二，全球“疫苗”毒针统计数据**
 
-海外的港人组织切不可小看这些人的舆论攻击，从中共对89六四后出走海外的民运人士的控制可知，乞丐化民运人士是十分成功的策略。因此港人海外组织的长期运作一定要有独立的经济创造能力和坚强的政治后盾，有幸新中国联邦在这关键的时候势不可挡地壮大，中共倾尽一国之力也无法阻挡。面对中共这个黑暗势力的代表，所有的中国同胞只有携手并进才能消灭它，为中华民族的未来谋得切实的机会。
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
 
-资料来源：[**梁振英隔空拷问罗冠聪：身后圣诞树「谁给钱买」？罗：那不是我的**](https://www.hk01.com/%E6%94%BF%E6%83%85/716866/%E6%A2%81%E6%8C%AF%E8%8B%B1%E9%9A%94%E7%A9%BA%E6%8B%B7%E5%95%8F%E7%BE%85%E5%86%A0%E8%81%B0-%E8%BA%AB%E5%BE%8C%E8%81%96%E8%AA%95%E6%A8%B9-%E8%AA%B0%E7%B5%A6%E9%8C%A2%E8%B2%B7-%E7%BE%85-%E9%82%A3%E4%B8%8D%E6%98%AF%E6%88%91%E7%9A%84)
+**三，澳洲疫情和“疫苗”数据**
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+感染总数：312,096（今日新增 10,186人）
+死亡总数：2197人
+每万人感染人数：116.4625人
+“疫苗”毒针注射总数：42,221,068 （今日新增10,338针）
+第二针“接种”：1879.2282万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.1%
+
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-86.png)
+今日澳大利亚病例新增首次破万，如上图所示，每日新增病例无论增幅还是数字都远超历史记录。考虑到澳洲16岁以上人口“完全”疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。比如英国是毒疫苗推广的模范生，请看下图，英国的加强针已经很普及了，而且英国民众注射加强针的热情高涨（前几期我们分享过英国，美国，澳洲，和欧盟的每日每百人疫苗注射数量的比较曲线，显示英国的数字遥遥领先）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-27.png)
+然而英国的每日新增病例如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-8.png)
+这些曲线，恐怕连小学生都很容易理解。然而，主流媒体们仍然继续声称，这些毒针能够控制疫情传播，不注射则不能工作的强制政策是合理的，给孩子们注射这些针剂能够保护他们的爷爷奶奶免于感染。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+发布：去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
