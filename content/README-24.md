@@ -16,6 +16,10 @@
 ---
 ## 頁面 24/38 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [38](/content/README-38.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/2019/05/20190519-4417640762564146374.md)
+
+[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
+
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/2019/05/20190514-4477543672120238865.md)
@@ -61,10 +65,6 @@
 [文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/content/2019/04/20190417-8226491175604297051.md)
 
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/content/2019/04/20190416-1716208713998494644.md)
-
-[文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/content/2019/04/20190415-6656531151323124700.md)
-
-[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/content/2019/04/20190414-1930118777431360844.md)
 
 
 ## 頁面 24/38 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [38](/content/README-38.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

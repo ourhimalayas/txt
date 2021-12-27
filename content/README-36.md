@@ -16,6 +16,10 @@
 ---
 ## 頁面 36/38 [**<**](/content/README-35.md) [1](/content/README.md) ... [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) **36** [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-37.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
+
+[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
+
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
@@ -61,10 +65,6 @@
 [（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
 
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
-
-[（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-5887917197465527624.md)
-
-[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7403014981154876678.md)
 
 
 ## 頁面 36/38 [**<**](/content/README-35.md) [1](/content/README.md) ... [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) **36** [37](/content/README-37.md) [38](/content/README-38.md) [**>**](/content/README-37.md) [查看全部](/content/README-all.md)
