@@ -15,104 +15,104 @@
 
 ---
 
-### [澳卫生服务联盟官员评价当前病毒检测乱象：十分荒谬](/content/gnews/1/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中共疫苗 残害世界](/content/gnews/2/README.md)
- ` 儒为`
-
-### [舒斯特效应：新兴网络媒体盖特在德国蓬勃发展](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西安很不安](/content/gnews/4/README.md)
- ` 银河勇气之星`
-
-### [12/27每日播报|社媒消息：班农先生 FactsMatters](/content/gnews/5/README.md)
+### [12/27每日播报｜新闻简讯: Steam遭中共列黑名 中共病毒疫苗灾难](/content/gnews/1/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【中日财经爆】日本即将推出以区块链为基础的新型贸易结算](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [澳卫生服务联盟官员评价当前病毒检测乱象：十分荒谬](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [【中日财经爆】未来10年投资880亿美元！日本决心振兴半导体产业](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [国人正面临两场关键战争，其结果将决定我们的自由](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [秘翻在线：中国平安“不平安”，中共保险行业还能有黎明吗？](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
+### [中共疫苗 残害世界](/content/gnews/4/README.md)
+ ` 儒为`
 
-### [北京冬奥会完全清洁能源背后是掠夺土地的黑暗现实](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [贵阳网红打卡地CCPark威尼斯商城变死城](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共病毒疫苗灾难：西安长安大学救护车排起长队](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [千招会不如一招绝](/content/gnews/12/README.md)
- ` 骄子`
-
-### [黑！尼加拉瓜没收台湾外馆资产转交中共](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [明星艺人的塑料包装](/content/gnews/14/README.md)
- ` 骄子`
-
-### [郭先生再谈新中国联邦的NFT](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [美国前总统川普透露他已经接种中共病毒疫苗加强针](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [肯尼迪结合《真正的安东尼•福奇》谈中共病毒、福奇](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [完全接种疫苗和加强针的马里兰州州长中共病毒检测阳性](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [所有中共病毒疫苗都含有氧化石墨烯纳米颗粒等有毒成分](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/19郭文贵直播：冬奥会是习近平的噩梦（粤语配音）](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/19郭文贵直播：冬奥会后出现反习兵变的几率超过50%（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新州卫生部长警告澳人都会感染奥密克戎病毒](/content/gnews/23/README.md)
+### [舒斯特效应：新兴网络媒体盖特在德国蓬勃发展](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平要求保证粮食安全和农村脱贫](/content/gnews/24/README.md)
+### [西安很不安](/content/gnews/6/README.md)
+ ` 银河勇气之星`
+
+### [12/27每日播报|社媒消息：班农先生 FactsMatters](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【中日财经爆】日本即将推出以区块链为基础的新型贸易结算](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月26日 郭文贵先生车上直播](/content/gnews/25/README.md)
+### [【中日财经爆】未来10年投资880亿美元！日本决心振兴半导体产业](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中国平安“不平安”，中共保险行业还能有黎明吗？](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国应该为向全世界释放病毒而被追责](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [北京冬奥会完全清洁能源背后是掠夺土地的黑暗现实](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [贵阳网红打卡地CCPark威尼斯商城变死城](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共病毒疫苗灾难：西安长安大学救护车排起长队](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [千招会不如一招绝](/content/gnews/15/README.md)
+ ` 骄子`
+
+### [黑！尼加拉瓜没收台湾外馆资产转交中共](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [明星艺人的塑料包装](/content/gnews/17/README.md)
+ ` 骄子`
+
+### [郭先生再谈新中国联邦的NFT](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [美国前总统川普透露他已经接种中共病毒疫苗加强针](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [肯尼迪结合《真正的安东尼•福奇》谈中共病毒、福奇](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [完全接种疫苗和加强针的马里兰州州长中共病毒检测阳性](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [所有中共病毒疫苗都含有氧化石墨烯纳米颗粒等有毒成分](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/19郭文贵直播：冬奥会是习近平的噩梦（粤语配音）](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/19郭文贵直播：冬奥会后出现反习兵变的几率超过50%（粤语配音）](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新州卫生部长警告澳人都会感染奥密克戎病毒](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平要求保证粮食安全和农村脱贫](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年12月26日 郭文贵先生车上直播](/content/gnews/28/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [NBA球队被要求在元旦前夕举办加强针接种活动](/content/gnews/26/README.md)
+### [NBA球队被要求在元旦前夕举办加强针接种活动](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中（共）国棉花协会抗议美国禁令](/content/gnews/27/README.md)
+### [中（共）国棉花协会抗议美国禁令](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [金凰珠宝，金玉其表。](/content/gnews/28/README.md)
+### [金凰珠宝，金玉其表。](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [中共借央企改革加强医疗资源垄断](/content/gnews/29/README.md)
+### [中共借央企改革加强医疗资源垄断](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日澳军队联合训练“便利化协议”下月签署](/content/gnews/30/README.md)
+### [日澳军队联合训练“便利化协议”下月签署](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [广岛县宣布广岛市已确诊第一例奥密克戎病例](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [人脑芯片正在等待FDA批准，瘫痪男子已经“思考发推”](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭文贵直播摘要和音频 2021.12.25](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [缅甸大屠杀惨案后现场照片](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
