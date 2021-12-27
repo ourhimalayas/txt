@@ -2,32 +2,49 @@
 ---
 
 
-## 加拿大总理称中共玩弄民主国家 致使西方国家分裂
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795133/)
+## 西安本地官员将因中共病毒爆发封城而受惩罚
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1795227/)
 
-作者：纽约香草山农场-蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月25日，加拿大总理贾斯汀-杜鲁多在接受加拿大媒体采访时表示，西方国家应该联合起来对抗中共，以防止其利用商业利益，挑动民主国家之间相互对抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-27-下午9.31.32.png)
-杜鲁多表示，民主国家对中共国市场的一味逐利，导致其牺牲政治理念，而让位于经济利益。中共经常以公开市场竞争的方式，非常巧妙地玩弄西方国家，让西方国家为各自利益而互相对抗，导致分裂。志同道合的西方民主国家应该形成“统一战线”，反对中共日益增长的“强制外交”。
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image1-23-2.png)
+图片来自网络
 
-当评论习近平独裁下的中共国时，杜鲁多说，中共国已不再是十年前，甚至五年前，所想象的样子了。他还表示，加拿大将继续在多方面挑战中共，包括人权、香港民主、支持记者以及不干涉亚洲独立国家等事物。
+《雅虎新闻》近日报道，中共当局周五表示，随着新病例数量的下降，在中共病毒爆发导致其 1300 万居民被封锁后，中国西北部城市西安的官员正面临处罚。
 
-参考链接：[Trudeau says China ‘playing’ democracies against each other, urges ‘united front’](https://globalnews.ca/news/8466217/trudeau-china-countries-need-united-front/)
+所有周五从西安出发的国内航班和大部分出西安出发的火车被取消。西安官员说这次疫情爆发是与从巴基斯坦航班有关。西安以跟中国第一个皇帝一起埋葬的兵马俑而著名。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+中央纪律检查委员会在一份声明中说，西安有 26 人因在中共病毒预防和控制工作中“没能做好”而被追究责任，但没有具体说明他们的惩罚。
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+12 月 23 日，该市出现确诊症状的新本地传播病例从一天前的 63 例降至 49 例，这是自 12 月 10 日以来的首次下降。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+从周四开始，每个西安家庭每两天只能派一个人去购买必需品，其他人除非有必要的工作，否则不得离开。
+
+西安已启动多轮大规模测试。
+
+**严厉的措施**
+
+虽然西安的本地有症状病例的数量，12 月 9 日至 12 月 23 日期间为 255 例。与中国其他地方的爆发相比，总体上很小，但当局采取了严厉措施，在很大程度上成功地防止了局部爆发扩散。
+
+随着北京准备在 2 月份举办冬季奥运会，中共国尤其决心扑灭任何疫情。
+
+该国几乎对国际入境者关闭了边境，那些前来参加奥运会的人将被隔离在一个严格执行的“闭环”中。
+
+中国积极的抗击新冠病毒的方法抑制了国内旅行和消费者支出，并偶尔导致局部工业中断。
+
+周五，电动汽车制造商比亚迪的一名公司代表表示，其在西安的业务被封锁对其造成了“一些影响”。
+
+中国卫生部门周五表示，在全国范围内，中国在 12 月 23 日确认了 87 例新的有症状病例，低于一天前的 100 例。根据国家卫生委员会的一份声明，其中 55 例是本地传播的，而一天前为 71 例。
+
+没有新的死亡病例，死亡人数为 4636 人。截至 12 月 23 日，中国大陆有 100731 例确诊的中共病毒病例。
+
+中共一味追求的“零病例”政策加剧了中央和地方的矛盾，严重伤害西安本地百姓的同时还要把病毒爆发封城的责任推到地方官员上去。西安的疫情爆发罪魁祸首其实是中共及其背后的黑暗势力强推新冠疫苗导致的“出血热”，而不是中共官媒宣传的地方官员“抗疫不力”。地方官员需要尽早醒悟不再为中共卖命，否则随时可能成为疫情清零政策下的替罪羊。
+
+参考链接：
+
+[Chinese officials punished over COVID outbreak that led to Xian lockdown](https://au.news.yahoo.com/chinese-officials-punished-over-covid-120330690.html)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
