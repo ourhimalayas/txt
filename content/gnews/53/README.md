@@ -2,32 +2,20 @@
 ---
 
 
-## 美国维吾尔法案生效 沃尔玛下架新疆产品
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1793328/)
+## 班农先生的一则盖文
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793298/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### 翻译：skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.jpg)
+Miles Guo很聪明，他拍下了整个采访过程，并把它放到网上，揭露Vice/HBO的谎言和不实报道。这些谎言已在我们的意料中，这些美国媒体公司对北京一丛罪犯们卑躬屈膝，叩首称臣。Miles Guo毫不留情地揭露了武汉生物武器实验室、罪犯福奇的谎言、中共精英们活摘器官的罪行和对（希特勒）柏林/种族灭绝运动会的拙劣模仿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/01DF85C0-8FD6-4ACF-8EC6-0A61206191A9.jpeg)（图片来源：彭博社）
+Vice/HBO是北京犯罪政权的走狗，为了老百姓、美国人民和全人类的利益，这个政权需要被摧毁。
 
-12月24日，美国《防止强迫维吾尔人劳动法》正式生效后，跨国零售巨头沃尔玛在中共国的销售平台山姆会员商店下架了来自新疆的所有产品。
+感谢上天，我们有Miles Guo ！
 
-据中共媒体《时代财经》报导，该报记者于12月24日发现沃尔玛旗下山姆会员商店的APP中搜索不到任何关于新疆的产品，此前销售的新疆和田骏枣等产品也已被下架，包括微信小程序、线上商城以及京东网上旗舰店。除此之外，其母品牌沃尔玛超市也下架了新疆商品。
-
-日前，美国总统拜登正式签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），该法案明确规定禁止任何新疆产品进口至美国，除非企业能提供确切证据，证明产品供应链中无强迫劳动。
-
-*参考链接：*
-
-1. [*https://www.tfcaijing.com/article/page/4d6f336a67723330746a31367a4342595a70535a43673d3d*](https://www.tfcaijing.com/article/page/4d6f336a67723330746a31367a4342595a70535a43673d3d)
-2. [*https://gnews.org/zh-hans/1788294/*](https://gnews.org/zh-hans/1788294/)
+[来源](https://gettr.com/post/pkonj1d4f8)
 
 
-* * *
-
-*素材采编：海星*
-
-*编辑：文顺*
-
-*发布：miumiu*
 
  
 

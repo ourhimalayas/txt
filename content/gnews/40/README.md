@@ -2,26 +2,28 @@
 ---
 
 
-## NBA球队被要求在元旦前夕举办加强针接种活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794459/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1794584/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-30.jpg)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG诋毁文贵先生利用他巨大的平台传播谎言。而在未经剪辑的视频中我们看到，当记者试图将文贵先生说的“中共释放了新冠病毒，他们打开了潘多拉盒子，用病毒消灭白人，并用疫苗干掉他们”说成谎言时，文贵先生不仅提醒她，自己传播的信息90%以上都经过了事实的的验证，更直接指出这些无视事实的媒体其实是别有用心，是魔鬼的一部分。接下来我们还原事实真相的第三部分：反击HBO-VICE诋毁郭先生传播中共病毒和疫苗是谎言。*（播放视频09:51）*
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-21.jpg)图片来源：路透社
-据《布雷特巴特新闻网》（Breitbart News）12月26日报道，北美男子职业篮球联盟（NBA）将要求联盟所有球队在元旦前夕举办新冠疫苗加强针接种活动，让符合条件的球员、工作人员和他们的家人接种加强针。
+参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-3](https://www.gettr.com/post/pkg1sm1ce5)
 
-《体育报》（The Athletic）的记者沙姆·查拉尼亚 (Shams Charania)12月24日在推特上公布了这一消息，他说，鉴于新冠病例的增加，所有NBA球队都被告知，他们必须在12月31日之前举办一次加强针接种活动。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-尽管可能是所有主要体育联盟中疫苗接种最彻底的，但NBA最近仍受到了新冠感染人数激增的影响。据报道，NBA中97%的人接种了疫苗，至少60%的球员接种了加强针。但仅在12月份，就有多达123名球员新冠检测呈阳性。这导致了一系列比赛被推迟，赛程被打乱。
+总编：文特\飞虹
+编辑：文特\飞虹
+校对/发稿：Hetangyuese
 
-然而，NBA总裁亚当·萧华（Adam Silver）仍对此不以为然，他最近说，新冠病毒不会被根除，我们不得不学会与它共存。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-无数事实证明，新冠疫苗无法预防新冠病毒的感染和传播，反而会增加感染风险。但是，全球大多政府和机构仍执意推广加强针，真的是越来越疯狂。也许只有当大规模的灾难显现时，看清新冠疫苗真相的人们才会主动停止这一趋势，向疫苗说不！
-
-新闻来源：
-
-[NBA Teams Required to Host Booster Shot Events by New Year’s Eve Amid Coronavirus Surge](https://www.breitbart.com/sports/2021/12/26/nba-teams-required-host-booster-shot-events-new-years-eve-amid-coronavirus-surge/)
 
  
 

@@ -2,23 +2,33 @@
 ---
 
 
-## 缅甸大屠杀惨案后现场照片
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794376/)
+## 抖音超越谷歌成为互联网上最受欢迎的网站
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794226/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-141.png)
-图片来源： news.ltn.com.tw
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/抖音.png)图片来源：gamerant网
 
-美联社12月26日报道，在缅甸东部的圣诞夜发生大屠杀惨案，造成车内至少30人包括妇女和儿童被烧死，这些照片在该国社交媒体上广泛传播，该屠杀惨案是今年2月通过军事政变上台的军人政府干的。
-这些据称是由政府部队在离开战场时拍摄的照片，显示在3辆被烧毁的车辆内有超过30具被烧焦的尸体，这些社交媒体账号还无法独立认证。
-国际救援队拯救儿童组说有两名该组织成员在发生惨剧后失踪，该惨剧发生在军人政府通过军事政变驱逐民选总统昂山素姬之后，拯救儿童组织说他们在该地区无法工作。
-周日，美国在缅甸的大使馆说被在克耶州发生的造成至少35名公民包括妇女儿童死亡的野蛮袭击表示震惊。美国大使馆说： “ 我们将继续追究针对缅甸人民进行的暴力肇事者的责任。”
-一名去过现场的村民告诉联合通讯社说受害者们逃离了政府军与反政府武装的战场江岸村，该村在目索村旁边，他说这些人在逃往该镇西部的难民营时被政府军抓住后全部被杀。
-拯救儿童组织说该组织两名成员在附近展开的人道主义反应工作后原是步行返回基地，他们正好路过那里，至今仍然失踪。该组织说： “ 我们已经证实他们的私人汽车遭到攻击并烧毁，据报告军事人员强迫人们离开车辆，抓捕了一些人，杀死了一部分人并烧了他们的尸体。”
-在缅甸发生的军事行动使美国和西方国家发布了联合声明谴责“由该国军人统治下发生的严重人权暴力事件”。
-联合声明称：“ 我们要求统治集团立即停止在整个国家和凯伦州的不分青红皂白的攻击，在国际法下确保所有公民的安全。”
 
-##### **新闻来源： **[Photos of aftermath of massacre in Myanmar fuel outrage](https://apnews.com/article/myanmar-aung-san-suu-kyi-massacres-save-the-children-9fd78224e5690abb1d86cd685ee344a9)
+**翻译：文扬**
+**编辑：Candy**
+
+抖音似乎做到了不可能的事情：在2021年的最后几个月超过谷歌，成为最受欢迎的网站域名。
+
+对于更多的在线用户来说，谷歌是不可替代的。 互联网用户在早上登录 Gmail，他们全天使用Google搜索，并在必要时涉足Google图书、地图、新闻、照片和翻译。 谷歌作为一个域名，长期以来一直比任何其他域名都更受欢迎也就不足为奇了。
+
+然而，到 2021 年末，这不再是事实。谷歌已经被一款专为有趣短视频而打造的应用程序所取代。 抖音现在是互联网上排名靠前的域名。
+
+该报告来自Cloudflare的年终审查，该审查对互联网的所有事物进行了分解。 Cloudflare解释说，虽然谷歌可能主导了2020年，但2021年已经完全不同了。 抖音在2月17日那一天超越了谷歌，然后在3月和5月赢得了更多胜利。 到8月，抖音在对抗谷歌的比赛中胜出的天数多于输给它的天数，这一趋势一直持续到11月，尤其是在12月。
+
+原文链接： [TikTok Overtakes Google As Most Popular Site on the Internet (gamerant.com)](https://gamerant.com/tiktok-most-popular-site-google/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

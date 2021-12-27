@@ -2,10 +2,10 @@
 ---
 
 
-## 中共病毒正在改变英国政治格局
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794838/)
+## CCP大外宣猫女郎（杨贝贝），谁派你来的？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794845/)
 
-12/17/2021 本·哈恩韦尔：这本是保守党大本营，它却自1832年以来第一次易手，这确实说明了中共病毒正在改变英国选举格局的事实。
+杨贝贝──中国中央电视台主持人，现受雇于VICE，从一开始就是中共大外宣，她最近一次“任务”是被派去采访郭文贵先生。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,35 +2,62 @@
 ---
 
 
-## 核谈：中共生化战改变了世界核力量平衡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795012/)
+## 雅典娜疫情更新（2021年 12月27日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1795050/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/bMeLNRWu8d0ZKkBQ7EQM0259oU1uv55EeuVFyziXH1Yas8qgh3hE5hN62SquOg-KJTN5O8LuLpzfuMErZoKX398gNyE2wf9oNIp5xsM-iLRWwNdl1p5z-v_seyBCpkQL8Oau0lu5)[*图片来源*](https://moderndiplomacy.eu/2021/12/26/aukus-leading-to-nuclear-arms-race-in-indo-pacific-region/)
-**日本首相岸田文雄 27 日上午确认以视频演讲的方式参加；联合国举行的核不扩散大会。随着中共国的军事扩张，美国及其盟国正在尽一切努力，向澳大利亚提供核潜艇，最滑稽的是中共国试图影响拜登总统，要求美国放弃更多核武器。**
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-333.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
 
-据日本《[朝日新闻](https://www.asahi.com/articles/ASPDW3JTPPDWUTFK005.html)》27日消息称，[岸田文雄首相 27 日上午正式确认以视频演讲的方式参加](https://news.yahoo.co.jp/articles/fbed02bf9f5725efe5f4a07347d762d6c7f45113)即将到来的（1 月 4 日）在纽约举行的核不扩散条约（NPT）审议大会。滑稽的是，22日，中共国环球时报谎称，拜登政府[要求日本不要参加该会议](https://world.huanqiu.com/article/465FguEjYZp)。
+感染总数：2.38亿（日新增 45.9万）
+死亡总数：426万（日新增 3397人）
+每万人感染人数：387.1131人（除中国外）
+（以上数字几天来大幅度下调修正，参见下图全球累计病例数陡降曲线，原因不明。）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1508.png)
+**二，全球“疫苗”毒针统计数据**
 
-岸田表示，由于新的中共病毒突变体“Omicron株”感染正在美国蔓延，“我调整了访问美国并发表演讲的方式，但我认为，每个国家都有越来越多的人转向 NPT 视频演讲。”他补充说，“我对这次会议也有强烈的感觉，所以我希望能够做出贡献。”
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
 
-- ***延展阅读：***[***王毅就海湾局势以“潘多拉魔盒”威胁***](https://www.guancha.cn/politics/2019_06_18_506126.shtml)
-- ***延展阅读：***[***求实：“澳核问题”将打开“潘多拉魔盒”***](http://www.qstheory.cn/qshyjx/2021-10/03/c_1127927419.htm)
+**三，澳洲疫情和“疫苗”数据**
 
+感染总数：312,096（今日新增 10,186人）
+死亡总数：2197人
+每万人感染人数：116.4625人
+“疫苗”毒针注射总数：42,221,068 （今日新增10,338针）
+第二针“接种”：1879.2282万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.1%
 
-NPT审议大会是每五年一次在联合国总部举行的国际会议。检查核裁军情况并讨论防止核扩散的措施。去年日本首相也出席了审议会议并发表了讲话，但由于成员国之间的冲突，未能形成最终公报文件。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-86.png)
+今日澳大利亚病例新增首次破万，如上图所示，每日新增病例无论增幅还是数字都远超历史记录。考虑到澳洲16岁以上人口“完全”疫苗接种率已高达90.9%，比较上面两张每日新增病例数字和“疫苗”接种的曲线图，很容易看出这些针剂对疫情的影响。其它国家都可以看到类似的现象。比如英国是毒疫苗推广的模范生，请看下图，英国的加强针已经很普及了，而且英国民众注射加强针的热情高涨（前几期我们分享过英国，美国，澳洲，和欧盟的每日每百人疫苗注射数量的比较曲线，显示英国的数字遥遥领先）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-27.png)
+然而英国的每日新增病例如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-8.png)
+这些曲线，恐怕连小学生都很容易理解。然而，主流媒体们仍然继续声称，这些毒针能够控制疫情传播，不注射则不能工作的强制政策是合理的，给孩子们注射这些针剂能够保护他们的爷爷奶奶免于感染。
 
-随着大流行的不断加剧的影响，美澳印日新的联盟意识到为了遏制中共国的军事和经济侵入式影响，尤其是在印太地区，[美国及其盟国正在尽一切努力，向澳大利亚提供核潜艇](https://moderndiplomacy.eu/2021/12/26/aukus-leading-to-nuclear-arms-race-in-indo-pacific-region/)，这也是“2021 年 9 月 15 日，英国首相鲍里斯·约翰逊、美国总统乔·拜登和澳大利亚总理斯科特·莫里森发表联合声明，宣布建立名为 AUKUS 的增强型三边安全伙伴关系。 该协议的重要部分是帮助澳大利亚获得8艘核动力潜艇。”这一举措将使美澳成为遏制中共国军事扩张突破第一岛链的重要战略部署。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-- ***延展阅读：***[***看看中共国的生物战野心***](https://www.orfonline.org/expert-speak/a-look-at-chinas-biowarfare-ambitions/)[***《SARS 的非自然起源和作为遗传生物武器的人造病毒新物种》***](https://www.amazon.com/%E9%9D%9E%E5%85%B8%E9%9D%9E%E8%87%AA%E7%84%B6%E8%B5%B7%E6%BA%90%E5%92%8C%E4%BA%BA%E5%88%B6%E4%BA%BA%E6%96%B0%E7%A7%8D%E7%97%85%E6%AF%92%E5%9F%BA%E5%9B%A0%E6%AD%A6%E5%99%A8-%E6%9D%8E%E5%B3%B0-%E5%BE%90%E5%BE%B7%E5%BF%A0/dp/B012984EOI)
+发布：去中心化Math
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-最滑稽的是中共国对这次核裁军会议的反应，中共试图影响拜登总统，要求美国放弃更多核武器，便导演了一场类似掩盖病毒真相的幼稚的伎俩，竟然邀请所谓“[21名诺贝尔奖获得者在内的近700名科学家和工程师致信拜登，呼吁削减核武器数量](https://mil.news.sina.com.cn/dgby/2021-12-22/doc-ikyakumx5730068.shtml)。”这21名诺贝尔奖获得者恐怕也是生物学专家吧。因为中共知道，他的生物武器要比核武器的杀伤力更大更猛。而且中共国已经利用生物级核战争改变了世界。而且，“[数十年后依然能夺人性命，比核武器还可怕](https://www.163.com/dy/article/GNAE4PB505529C6M.html)。”
-
-2021年12月27日
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
