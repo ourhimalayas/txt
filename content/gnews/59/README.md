@@ -2,33 +2,39 @@
 ---
 
 
-## 新一轮“打土豪分田地”洗劫你的财富
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1788248/)
+## 拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1788603/)
 
-【**国内新闻短评**】
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-**澎湃新闻2021年12月22日：税务总局立案调查多领域偷逃税款问题**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/amo6j-pk4i7.jpg)**图片来源：微博原图**![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-8.jpg)
-**短评：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-3.jpg)图片来源：**Daily Clout**
 
-**以“共同富裕”为幌子，用税务之剑劈向改革开放先富起来的一部份人，无论个体，还是企业都会无一幸免。**
 
-**这是新一轮打土豪分田地，邪恶的中国共产党国库空虚，为了延缓它即将死亡的命运。如果你的银行账户资金不能说明合法来源，你的房产与你的收入不匹配，都会引起税务部门的注意。如果你在家藏有先金，当你消费的时候，比如买一辆20万的车，4S店也会报备税务部门，同样你要提供资金来源。现在还提倡举报，如果你有钱，你会感觉到处处是危险，直到国家用“合理”理由抢劫完你的财富为止。**
+#### 整理报道：Ronnie O’Sullivan
+编辑：文泓
 
-**中共哪些抢劫来的财富去了哪里？利益集团永远不缺钱；但是，当你没有钱的时候，你还能活下去吗？现在中国正式进入文革2.0。**
+美国时间12月24日，作家和记者娜奥米·沃尔夫周四在《班农战斗室》节目中宣称，乔·拜登总统在命令军医处理激增的新冠病毒案件中，实施了一场政变。本周，拜登宣布，他的政府将通过安排约1,000名受过医学训练的军事人员来应对Omicron变种病毒的威胁。联邦紧急事务管理局（FEMA）也被安排为公民提供防护设备，扩大医院人员配备，及帮助疫苗接种。
 
-**文章观点仅代表作者，与GNews 平台无关**
+班农在节目中特地用15分钟，让沃尔夫解释为什么这些行动构成了“政变”。
+“我之所以如此恐惧，是因为它今天能从1,000[名军人]开始[部署]”，沃尔夫说:“你知道，明天它可能部署30,000军人，下周可能增加到50,000军人。（军人干预）界限正在被打破。”
 
-**新闻链接**：[https://m.weibo.cn/status/4716898057194418](https://m.weibo.cn/status/4716898057194418)
+“快醒醒吧，所有人！”她感叹道：“在全国推动疫苗护照，（挨个）敲门，FEMA在敲你的门；在其他国家强制隔离政策、以及军方正被部署到美国境内的实情，这些事件混杂在一起，你发现情况有多糟糕？”
+沃尔夫敦促了对政变采取“和平”抵制，她也将把第二修正案推广为可考虑的补救措施。
+“与其他被（疫情）征服的国家相比，唯一优势就是我们拥有第二修正案，”她表示。
+沃尔夫还预测，作为政变的一部分拜登将取消2022年中期选举。
 
-素材：洛杉矶盘古农场 — 期待明天tooles
-评论：洛杉矶盘古农场 — 期待明天tooles
-审核：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+“当47个州采取紧急措施，军方也被部署于美国境内时，国家宪法将只起着理论上的作用，”她说。|
+“就这样吧，圣诞快乐”，班农说：“（也许）我会在联邦紧急事务管理署的营地里看到你。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：[‘I’ll see you in a FEMA camp’: Steve Bannon guest promotes ‘Second Amendment’ amid Biden’s latest ‘coup’ – Raw Story – Celebrating 17 Years of Independent Journalism](https://www.rawstory.com/naomi-wolf-coup/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
