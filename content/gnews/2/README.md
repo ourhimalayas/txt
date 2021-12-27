@@ -2,20 +2,35 @@
 ---
 
 
-## 第207期玫瑰看新闻-币圈新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1796483/)
+## 有声|德国新外长将对中共采取强硬立场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796504/)
 
-币圈新闻：
+配音：香草山美食部 – 玫瑰园
 
-1.11月28日Hcoin盘中震荡价格区间35.809美元至37.905美元
 
-2.分析师发布BTC 价格预测 40 万美元考验交易者的神经
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+台湾媒体12月24日消息，德国新任总理萧兹12月初组成了联合政府。依据执政联盟协议中的“全面中共国战略”，新任外交部长、绿党共同主席安娜琳娜·贝尔伯克，将对中共国采取强硬立场。
 
-3.Bitcoin Capital AG 在六个瑞士交易所推出两个加密 ETP
+据悉，贝尔伯克与前任总理默克尔的亲中政策大相径庭，主张以价值观为基础的外交政策，强调对中共侵犯维吾尔族人权、限制香港自由，以及欺压台湾等问题，采取更为强硬的立场。前一阶段她还曾表示，并不排除抵制北京冬奥会。
 
-4.美联储鲍威尔：央行数字货币政策问题讨论文件将在未来几周发布
+文字版原文：[德国新外长将对中共采取强硬立场](https://gnews.org/zh-hans/1792279/)
 
-5.去中心化组织BadgerDAO确认被盗损失超1.2亿美元 6.12月2日币圈要闻一览
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
