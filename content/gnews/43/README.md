@@ -2,44 +2,40 @@
 ---
 
 
-## 中国政府在强迫劳动的指控下撤换新疆党委书记
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1792474/)
+## 一艘全员接种的美海军战斗舰爆发冠状病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1792521/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山文艺部 宁文静
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Xinjiang.jpg)
-
-
-
-图片来源：www.ecotextile.com
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-#### 编译：小红帽
 
-根据Hindustan Times 12月25日报道，中国政府已经更换了其在动荡的新疆西北地区的负责人陈全国。陈全国去年因涉嫌侵犯偏远地区少数民族维吾尔族穆斯林的人权而受到美国的制裁。
+12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
 
-曾任广东省省长的马兴瑞已被任命为新的新疆党委书记。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-26-at-8.43.47-PM.png)
 
-在美国总统拜登签署了一项禁止来自新疆商品的法案后的第二天，中国政府就有了替换陈全国的举动。
+报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
 
-人权组织称，中国政府在一个全球供应链中占有重要地位的地区，对维吾尔族穆斯林进行了压迫。
+据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
 
-据香港《南华早报》报道，陈全国被美国、英国和欧盟指控广泛侵犯维吾尔人的人权，但他被认为将获得晋升。
+对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
 
-过去几年，中国政府一直与西方关于侵犯维吾尔穆斯林人权的指控作斗争。
+参考链接：[A U.S. Navy combat ship is stranded in Guantánamo Bay with a virus](https://www.nytimes.com/2021/12/25/world/navy-ship-covid-guantanamo-bay.html?smid=tw-nytimes&amp;smtyp=cur)
 
-这些指控包括将大约100万穆斯林少数民族社区的人监禁在拘留营中，在资源丰富的新疆的制造单位中强迫劳动，强迫堕胎，以及大规模灌输思想。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-新闻来源：[US sanctions: China replaces Xinjiang party chief amid forced labour allegations | World News – Hindustan Times](https://www.hindustantimes.com/world-news/us-sanctions-china-replaces-xinjiang-party-chief-amid-forced-labour-allegations-101640450068383.html)
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-***发布：小红帽***
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
