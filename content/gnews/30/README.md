@@ -2,29 +2,36 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-3
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1794584/)
+## 【中日财经爆】未来10年投资880亿美元！日本决心振兴半导体产业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794696/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-30.jpg)
-在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG诋毁文贵先生利用他巨大的平台传播谎言。而在未经剪辑的视频中我们看到，当记者试图将文贵先生说的“中共释放了新冠病毒，他们打开了潘多拉盒子，用病毒消灭白人，并用疫苗干掉他们”说成谎言时，文贵先生不仅提醒她，自己传播的信息90%以上都经过了事实的的验证，更直接指出这些无视事实的媒体其实是别有用心，是魔鬼的一部分。接下来我们还原事实真相的第三部分：反击HBO-VICE诋毁郭先生传播中共病毒和疫苗是谎言。*（播放视频09:51）*
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1503.png)[图片来源](https://sst.semiconductor-digest.com/2016/07/whats-happening-to-japans-semiconductor-industry/)
+近日，日本政府半导体小组的最高顾问表示，日本应该在下一个财政年提供税收减免，并在未来十年刺激10万亿日元（880亿美元）的投资，以振兴国内的芯片制造。
 
-参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-3](https://www.gettr.com/post/pkg1sm1ce5)
+政府近期批准的大约70亿美元的补充支出应该只是其努力扭转该行业数十年衰退的开始，东京电子有限公司前负责人、为岸田文雄政府提供咨询的主要芯片专家东哲郎（Tetsuro Higashi）说。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+“我预计这种资金水平至少在未来几年内会持续下去，”东哲郎在周一接受采访时说，“如果没有政府的初始投资，我们将无法达到私营公司即将投入资金的程度。政府将不得不发挥其核心作用，直到诸事都成型。”
 
-总编：文特\飞虹
-编辑：文特\飞虹
-校对/发稿：Hetangyuese
+东哲郎呼吁政府和私营部门在十年内合计投资10万亿日元，这与执政党自民党高级成员甘利明（Akira Amari）一周前提出的目标一致。据报道，日本首相岸田文雄称，将为国内半导体生产提供超过1.4万亿日元的公共和私人投资。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+芯片短缺在疫情期间扰乱了全球制造业，促使各国加强了国内的生产和供应。美国为这项任务投入了520亿美元，并且吸引领先的芯片制造商台积电和三星在其境内建立新的设施。中共国已将半导体主权作为其发展目标的关键支柱。而台积电和三星已经将投资的步调定得很高，准备在未来几年内投入数千亿美元改善和扩大其能力。
 
+在经历了多年的投资不足和市场份额被区域对手夺走之后，日本今年将振兴其芯片产业作为一项国家项目，旨在到2030年将国内半导体公司的年收入提高大约三倍，达到13万亿日元。
 
+日本已经承诺承担台积电在日本西部建设价值70亿美元的制造厂的一半费用，这标志着日本改变了以往只依靠国内公司的做法。甘利明早些时候说，与台积电的合作被认为是在未来几年振兴日本芯片制造能力的关键。
+
+东哲郎说，日本的下一步是将用于芯片制造的额外资金作为其常规预算的一部分，而不是一次性的事。他说，“除非他们看到对该项目的实质性长期承诺，否则人们不会认真对待政府。”
+
+东哲郎说，免除研发费用的企业所得税以及削减芯片制造商的水和公用事业费用也值得考虑。他还认为，日本需要十年左右的时间才能达到现代芯片制造的第一线，这一目标将决定日本经济的许多方面的命运，从自动驾驶到医疗保健。在这个时间段内，他希望看到2纳米和3纳米的芯片在日本大规模生产。
+
+“除非日本坚实其工业基础，否则我们将不得不依赖他人的芯片知识产权，而他们将夺走所有的附加值，”他说，“各行各业都需要小心这种可能性”。
+
+信息来源：[日本首相顾问：日本半导体未来十年需要880亿美元的投资](https://www.163.com/dy/article/GRR8DR6C0511RIVP.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
