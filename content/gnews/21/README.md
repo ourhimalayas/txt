@@ -2,32 +2,31 @@
 ---
 
 
-## 东京发现首例奥密克戎变体确诊病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795450/)
+## 中共召开“三农”会议彰显粮食危机
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1795456/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-18.jpg)
-东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
+作者：波士顿五月花 跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211227-2.jpg)
+2021年12月26日，中共农村工作会议在北京召开。党魁习近平主持召开会议，召集一众老杂毛专题研究“三农”工作。中共的所谓“三农”是指农村、农业、农民。
 
-与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例
+习近平说：“应对各种风险挑战，必须着眼国家战略需要，稳住农业基本盘”。可见，中共已经意识到严重的粮食危机。据文贵先生爆料，在早前中共进口了全世界50%以上的谷粮。仅粮荒一件事情就可以将中共带走，所以中共将粮食问题上升到“国家战略”高度。
 
-参考链接:[1st community spread of Omicron virus variant in Tokyo confirmed](https://japantoday.com/category/national/urgent-1st-community-spread-of-omicron-virus-variant-in-tokyo-confirmed?)
+习近平还说：“中国人的饭碗任何时候都要牢牢端在自己手中”。这个“自己”是谁？显然不是中国人民，而是中共、是习近平。中共历来以“人民的大救星”自居，粮食问题也不例外。老百姓能吃饱饭，完全是因为共产党的“好政策”，是习太阳的光辉普照，是习始皇赏赐的结果。充分体现了习共的无知和狂妄自大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+习近平最后说：“要持续推动同乡村振兴战略有机衔接，确保不发生规模性返贫，切实维护和巩固脱贫攻坚战的伟大成就”。众所周知，中共去年宣布的所谓“脱贫”与实际状况相距甚远。中共国仍有大量的贫困、赤贫人口存在，中共的脱贫只是口号脱贫。更令人毛骨悚然的是，中共的“乡村振兴战略”很可能使本就不富裕的农民发生规模性返贫。
 
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：Fei797
+就在不久前，中共伪农业部长唐仁健公开宣布，今年粮食收购价格提高1分钱。中共国约有8亿农业人口，是受中共盘剥最重的一部分人。在其他商品大幅上涨的前提下，粮食价格却长期在低位徘徊。这也是广大农民生活困苦的原因之一。用1毛钱就可以玩弄农民10年，中共的无耻无以复加。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+粮食问题是中共能够解决的吗？答案是否定的。今年的河南大水导致粮食主产区河南几乎绝收。再加上山西水灾、各地灾患及中共病毒肆虐，缺粮已成既定事实。有人说缺粮可以进口。是的，中共确实进口了大量的谷粮，但这只是为了备战台湾，兵马粮草优先，百姓生死并不重要，墙内的百姓一定要看清楚。
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

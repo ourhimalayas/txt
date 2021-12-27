@@ -2,24 +2,26 @@
 ---
 
 
-## 被强制超长时间审核恶性视频 员工起诉抖音
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795393/)
+## 勇气与坚韧是爆料革命取得最终胜利的基石
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795403/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山信息部 – 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月24日，据有关媒体消息称，因抖音强制其内容审核员超负荷审查包含恶性内容的视频，一审核员对抖音及其母公司字节跳动提起集体诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-37.jpg)
-这位审核员透露，抖音的内容审核员负责审核，包括强奸和虐待动物等各类恶性视频。这些审核员长期超负荷工作，工作时间长达12个小时。由于审核令人不安的视频，诉讼当事人患上了创伤后应激障碍。因此，她希望代表所有的内容审核员，要求抖音对此进行赔偿。
+12月24日，郭文贵先生在平安夜的大直播中，勉励所有新中国联邦人，勇气与坚韧是爆料革命灭共事业取得最终胜利的前提。
 
-资料显示，一般社交媒体平台会为其内容审核员提供相关帮助，来应对工作带来的创伤，如心理辅导和缩减轮班时间，但抖音并未提供任何措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-28.jpeg)
 
-参考链接:[TikTok Sued by Content Moderator Traumatized by Graphic Videos](https://www.ndtv.com/world-news/tiktok-sued-by-content-moderator-candie-frazier-traumatized-by-graphic-videos-2668762/amp/1)
+郭先生提到六周通常是个人或集体坚持一项行动的最大极限，而全球战友为歌曲“HCOIN TO THE MOON”的打榜已经历时近五周，能否突破六周的极限是对新中国联邦人行动力和执行力的考验。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+灭共这件事的关键是相信与否，坚持与否。灭共既需要激情，也需要韧劲，更需要不怕牺牲的勇气。只要我们坚持无我，爆料革命就一定会遇难成祥，取得最终的胜利。
 
-总编：童谣
-编辑：Irene木木
-校正/发稿：Fei797
+参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,35 +2,32 @@
 ---
 
 
-## 习近平召见港澳特使，向世人彰示其皇帝身份
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1795441/)
+## 东京发现首例奥密克戎变体确诊病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795450/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211227-1.jpg)
-2021年12月23日，香港特首林郑月娥和澳门特首贺一诚到北京述职。述职的内容其实并不重要，重要的是述职的形式，述职场面极为震撼。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-18.jpg)
+东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
 
-中共党首习近平亲自召见两位特首。从中共公开报道的新闻视频中看到，会见是在一间豪华的会议室进行。四面雕梁画柱，窗子古香古色。据文贵先生透露，会议室的窗子是假的，该会议室的安防水平极高，硬件防护水平达到了世界一流水准。
+与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例
 
-会议室的中间是一个长长的会议桌。习近平端坐在桌子的顶端，左右两旁分别有几位“大臣”落座。林郑月娥就在习近平右侧的最前面。这样的座次安排，充分显示了习近平一尊的地位。
+参考链接:[1st community spread of Omicron virus variant in Tokyo confirmed](https://japantoday.com/category/national/urgent-1st-community-spread-of-omicron-virus-variant-in-tokyo-confirmed?)
 
-最引人瞩目的要属习近平屁股下面的那把椅子。深棕色，第一眼给人的感觉就是宽大、厚实，椅背几乎高过脑袋。从画面上看，椅子是镂空雕刻的，雕刻手法精致细腻，出自于名家或能工巧匠之手。更醒目的是椅子上雕刻着栩栩如生的龙，龙头、龙鳞、龙爪清晰可见。龙意味着什么，想必中国人都不陌生。准确地说，这是一把“龙椅”，习近平心安理得地坐在“龙椅”上。据文贵先生爆料，制作椅子的木头是整块紫檀，多年前从四川的一条河流里发现的，价值连城。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-习近平的手边摆着一个特制的瓷杯，杯子是黄色的。这个“黄”很特殊，在封建王朝是皇帝专属的颜色，老百姓用了是要被杀头的。
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-龙椅、龙杯，两边唯唯诺诺的大臣，习近平高高在上的感觉，俨然回到了封建帝王时代。习始皇在召见群臣，稍有不同的是林郑月娥等人还能坐着。恐怕过不了多久，众人会跪倒一片高呼“吾皇万岁”。
-
-自习近平就任党首以后，废除了九龙治水、七龙治水制度。每年中共几个常委都要当面向他述职。他要的也不是内容，他要的形式，要的是屈服。
-
-此次召见港澳特使，习近平公开向世人昭告了他的皇帝身份。党天下转为家天下、习天下，中国正式和北韩画上了等号。
-
-* * *
-
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
