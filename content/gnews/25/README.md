@@ -2,32 +2,31 @@
 ---
 
 
-## 法国首次出现单日确诊超十万例
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1796029/)
+## 七哥谈粮食（2021-12-24摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1796086/)
 
-**撰稿：日本东京方舟农场  子辰**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据《美国之音》12月27日报道，法国在中共病毒大流行中首次在一天内记录超过了十万例的感染，住院治疗在过去一个月增加了一倍。
+来源：郭先生2021-12-24直播11:03:45摘录
 
-根据巴黎地区卫生服务局的数据，过去一周，巴黎地区每100人中就有1人检测呈阳性。大多数新感染与奥密克戎变种有关。
+共产党非常清楚，七哥在一年前说过中国的粮食将成为致命的问题，结果共产党在如此没钱的情况下买掉了全世界一半以上的谷粮。中国人是不是这爱吃面吗，谷粮，谷粮要干啥？备战台湾！真正的去年和今年是真正的中国大粮荒，他不说大粮荒他是丰收，丰收你还买什么粮食？这王八蛋是不是，这不瞪眼胡说八道吗，对不对啊。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.jpg)图片来自《美国之音》
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-感染数量的激增使法国的住院率也相应提高，并使重症监护室再次面临压力。过去一周，法国有1000多人死于该病毒，使该国的新冠总死亡人数超过12万2千人，首次突破了单日十万例。
+**关注我们**
 
-法国政府召开紧急会议，讨论下一步如何应对病毒措施，一些科学家和教育工作者敦促推迟假日后返回学校，或建议重新实施宵禁。
+Discord 账号
 
-*参考链接：*
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[法国首次出现每天超过10万例病毒感染](https://www.voachinese.com/a/france-sees-over-100000-daily-virus-infections-for-first-time/6370539.html)
+Gettr 账号
 
-* * *
-
-*素材采编：子辰*
-
-*编辑：文顺*
-
-*发布：Ranting*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
