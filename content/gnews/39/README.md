@@ -2,29 +2,32 @@
 ---
 
 
-## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
+## 特鲁多呼吁西方国家团结一致对抗中共挑拨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794075/)
 
-#### 编译：致敬香港！
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-339.jpg)[图片来源](https://world.huanqiu.com/article/469S7ajPRh4)
+加拿大总理特鲁多在周六(12月25日）播出的一次采访中说，西方国家应该建立一个针对中共国的统一战线，防止其利用商业利益来挑动他们互斗。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
-“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
+特鲁多在接受加拿大环球电视(Global television)采访时说:
 
-特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
+“中共国一直在让西方国家相互内斗，因为他们争夺在中共国的经贸机会”，
 
-11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
+“我们一直在竞争，而中共国不时地以开放的市场、竞争的方式非常巧妙地挑拨离间。”
 
-**新闻来源：**
+“我们需要做得更好，团结一致，站稳脚跟，这样中共国就不能使用各种方法把我们分裂。”
 
-1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+自2018年加拿大逮捕华为首席财务官孟晚舟以来，它和中共国的关系一直很冷淡。
 
-2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
+本月早些时候，因中共的人权问题和新疆种族灭绝暴行，加拿大表示将与盟国一起外交抵制2月在北京举行的2022年冬奥会。
 
-3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
+消息来源:
 
-4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
+[加拿大总理特鲁多称西方国家需建立统一战线 防止中国挑起内斗](https://cn.reuters.com/article/trudeau-west-china-1225-sat-idCNKBS2J600J?il=0)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
