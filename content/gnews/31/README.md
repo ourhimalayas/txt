@@ -2,36 +2,29 @@
 ---
 
 
-## 瑞典公司推出可植入式疫苗护照微芯片
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794157/)
+## 抖音超越谷歌成为互联网上最受欢迎的网站
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794226/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-25.png)图片来源：NBC News
-翻译：美哥
-编辑：Mttfly
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/抖音.png)图片来源：gamerant网
 
-根据《自然新闻》报道，瑞典斯德哥尔摩的初创公司Epicenter，最近推出一款可以进行疫苗护照的个人身份识别的微型芯片。该微型芯片可植入人体皮肤并可以被任何使用近场通信协议技术的设备读取。目前近场通信协议技术被广泛使用在非接触支付，智能无钥匙系统领域。
 
-公司的首席分销经理汉内斯·斯约布拉德(Hannes Sjoblad)，在一段视频展示中，将植入芯片的手臂仅仅向智能手机简单的挥动了一下，疫苗状态就显示出来了。他介绍说：“人体芯片技术可实现多功能的用途，疫苗护照通过芯片也方便的多了，万一你手机没电了也毫不影响，明年我们还会更多拓展它的更多用途”。
+**翻译：文扬**
+**编辑：Candy**
 
-在世界瘟疫大流行的去年，疫苗护照虽然在不同的场合例如餐馆、酒吧、音乐会、商业还有跨国旅游都成为必需，但通常都是纸质或者电子化的。而人体芯片只需要一剂注射后，通过附近读码器的电磁波激活体内芯片，就能实现设备之间的数据交流。
+抖音似乎做到了不可能的事情：在2021年的最后几个月超过谷歌，成为最受欢迎的网站域名。
 
-**芯片植入目前在瑞典的趋势**
+对于更多的在线用户来说，谷歌是不可替代的。 互联网用户在早上登录 Gmail，他们全天使用Google搜索，并在必要时涉足Google图书、地图、新闻、照片和翻译。 谷歌作为一个域名，长期以来一直比任何其他域名都更受欢迎也就不足为奇了。
 
-瑞典政府要求在商业和公共场合都需要出示疫苗护照之后，芯片植入的人口一直在增加。斯约布拉德也是其中一员。当带着自己左手植入的小装备后，他的信息都在智能手机上都能显示，这已经成为瑞典的新趋势，早在2017年伴随芯片植入人数增加，瑞典国有轨道公司就开始接受芯片刷票。很多瑞典人都已经停止携带疫苗护照、钥匙、身份证甚至火车票。
+然而，到 2021 年末，这不再是事实。谷歌已经被一款专为有趣短视频而打造的应用程序所取代。 抖音现在是互联网上排名靠前的域名。
 
-**“兽印”的争议**
+该报告来自Cloudflare的年终审查，该审查对互联网的所有事物进行了分解。 Cloudflare解释说，虽然谷歌可能主导了2020年，但2021年已经完全不同了。 抖音在2月17日那一天超越了谷歌，然后在3月和5月赢得了更多胜利。 到8月，抖音在对抗谷歌的比赛中胜出的天数多于输给它的天数，这一趋势一直持续到11月，尤其是在12月。
 
-随着人体芯片时代的到来，很多人质疑，这是否就是圣经启示录里先知预言的兽印。詹姆斯·肯尼迪（D. James Kennedy）牧师认为人体芯片技术应验了先知的预言。
+原文链接： [TikTok Overtakes Google As Most Popular Site on the Internet (gamerant.com)](https://gamerant.com/tiktok-most-popular-site-google/)
 
-启示录13章15节到16节很具体的提到过相关内容：“又有权柄赐给它叫兽像有生气。并且能说话，又叫所有不拜兽像的人都被杀害……它又叫众人，无论大小贫富，自主的，为奴的，都在右手上，或是在额上，受一个印记。”
+***发布：Candy***
 
-**原文链接：**[Swedish startup introduces implantable microchip that can store a COVID passport under your skin](https://www.naturalnews.com/2021-12-25-microchip-stores-covid-vaccination-status-under-skin.html)
-
-**发布：**去中心化Math
-**
 更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
