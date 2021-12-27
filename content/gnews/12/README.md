@@ -2,26 +2,24 @@
 ---
 
 
-## 勇气与坚韧是爆料革命取得最终胜利的基石
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795403/)
+## 东京发现首例奥密克戎变体确诊病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795450/)
 
-作者：纽约香草山信息部 – 6zero4
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月24日，郭文贵先生在平安夜的大直播中，勉励所有新中国联邦人，勇气与坚韧是爆料革命灭共事业取得最终胜利的前提。
+据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-18.jpg)
+东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-28.jpeg)
+与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例
 
-郭先生提到六周通常是个人或集体坚持一项行动的最大极限，而全球战友为歌曲“HCOIN TO THE MOON”的打榜已经历时近五周，能否突破六周的极限是对新中国联邦人行动力和执行力的考验。
+参考链接:[1st community spread of Omicron virus variant in Tokyo confirmed](https://japantoday.com/category/national/urgent-1st-community-spread-of-omicron-virus-variant-in-tokyo-confirmed?)
 
-灭共这件事的关键是相信与否，坚持与否。灭共既需要激情，也需要韧劲，更需要不怕牺牲的勇气。只要我们坚持无我，爆料革命就一定会遇难成祥，取得最终的胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-参考链接：[2021年12月24日 文贵大直播](https://gtv.org/video/id=61c5c61e00f9a1191809b5c5)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
