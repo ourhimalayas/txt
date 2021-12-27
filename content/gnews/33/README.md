@@ -2,44 +2,32 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月20日-12月26日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793979/)
+## 特鲁多呼吁西方国家团结一致对抗中共挑拨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794075/)
 
-作者：纽约香草山金融部  – ILOVE战神
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-339.jpg)[图片来源](https://world.huanqiu.com/article/469S7ajPRh4)
+加拿大总理特鲁多在周六(12月25日）播出的一次采访中说，西方国家应该建立一个针对中共国的统一战线，防止其利用商业利益来挑动他们互斗。
 
+特鲁多在接受加拿大环球电视(Global television)采访时说:
 
+“中共国一直在让西方国家相互内斗，因为他们争夺在中共国的经贸机会”，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“我们一直在竞争，而中共国不时地以开放的市场、竞争的方式非常巧妙地挑拨离间。”
 
+“我们需要做得更好，团结一致，站稳脚跟，这样中共国就不能使用各种方法把我们分裂。”
 
+自2018年加拿大逮捕华为首席财务官孟晚舟以来，它和中共国的关系一直很冷淡。
 
-过去一周喜马拉雅币价格回落至36美元上下，平均日交易量约12万6千喜币。喜币上市以来总交易量约2280万枚 ，占今年总发行量的仅约2.28%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-338.jpg)
-据郭文贵先生本周直播中透露，喜联储已经在和某英国公司合作，开发一系列NFT产品。新中国联邦相关的NFT产品未来会有广阔的发展空间，将远远超越现在的NFT市场。NFT的发展将进一步瓦解法币的政府定价权。喜币将成为全世界都需要的、没有政治、没有政府操控的无国界、超级安全、尊重个人隐私、保证个人财富升值和绝对全球通的一种货币。目前全球的数字货币还处于群雄争霸的年代，但未来喜币会成为天下统一之币。G系列媒体平台将在这个历史进程中发挥重要作用。
+本月早些时候，因中共的人权问题和新疆种族灭绝暴行，加拿大表示将与盟国一起外交抵制2月在北京举行的2022年冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+消息来源:
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+[加拿大总理特鲁多称西方国家需建立统一战线 防止中国挑起内斗](https://cn.reuters.com/article/trudeau-west-china-1225-sat-idCNKBS2J600J?il=0)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

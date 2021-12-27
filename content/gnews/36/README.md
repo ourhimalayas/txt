@@ -2,50 +2,28 @@
 ---
 
 
-## 【信仰之声】主是葡萄树，我们是枝子
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1793961/)
+## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
 
-作者：纽约香草山福音部-佳音古歌
+#### 编译：致敬香港！
 
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
+“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
 
+特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
 
-![This image has an empty alt attribute; its file name is logo-s2.png](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
 
+**新闻来源：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-15.jpg)图片源自网络
-福音部义工的服务范围不是仅仅局限于福音部，所以无论是爆料革命还是福音，要有更大的大局观念。是的，我们希望福音部的弟兄姐妹也能够在其它领域做义工，成为农场其他部门与爆料革命的祝福。温馨提醒弟兄姐妹 – 每天得记得读经。
+1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
 
-这是弟兄姐妹彼此之间一个非常重要提醒、互相祝福与成全真是美好的祝福，与基督生命的连结是供应我们生命力量、智慧的源头，让我们可以更有益处、源源不断的服事战友。因为主耶稣亲自说到属灵生命的秘诀：“我是葡萄树，你们是枝子。常在我里面的，我也常在他里面，这人就多结果子；因为离了我，你们就不能做什么。 人若不常在我里面，就像枝子丢在外面枯干，人拾起来，扔在火里烧了。 你们若常在我里面，我的话也常在你们里面，凡你们所愿意的，祈求，就给你们成就。 你们多结果子，我父就因此得荣耀，你们也就是我的门徒了。（约翰福音 15:5-8）
+2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
 
-基督信仰的中心乃是基督，基督徒的英文是“CHRIST-IAN”， CHRIST就是基督，基督徒就是有基督的生命在我们里面的人。基督徒与基督生命的连结就像是树枝连接在树干上，当我们有生命的连结时，基督生命就像汁浆供应到我们如树枝的生命，让我们不止被滋润而成长，生命渐渐成熟就必定结果子。
+3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
 
-我们深处的祷告是：认识主与基督连结、住在主里面、求主的圣灵借着祂的话与应许住在我们心里，默想中进入基督里祷告。如此必定会结果子。在我们生命深处结出圣灵的果子：仁爱、喜乐、和平、忍耐、恩慈、良善、信实、温柔、节制。当我们享受主美好同在，蒙福生命所奔放散发出基督的香气与见证，使我们成为使周围的人蒙恩典得祝福的管道与器皿，有人因而信主蒙恩应是在外面看得见很自然的结果。如此幸福生命的满足是无可比拟的。
-
-当主的美好性情从我们生命深处散发出来，我们周围的亲人、朋友、同事、战友，才会知道我们是有基督生命的基督徒。这就是我们常常讲的荣耀神（或是说主的荣耀在我们的身上彰显），我们也是心中非常的喜乐与满足的。
-
-何等的感恩，弟兄姐妹能够在爱里相交、让我们可以常常喜乐、不住的祷告、凡事谢恩。欢迎大家参加福音部的祷告会，一起来与主连结，倾心吐意，求主使用我们，保守我们，成为主的见证。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-2.png)
-
-编辑/校对/发稿：Daxia
-
-**更多資訊，更多關注**
-
-[**紐約香草山農場****GTV****–****香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**紐約香草山農場****GTV-MOS TALK****香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**紐約香草山農場****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**歡迎加入紐約香草山農場**** Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
 
  
 

@@ -2,30 +2,101 @@
 ---
 
 
-## 英国政府将派人员上门强打疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793977/)
+## 视频| 共产党最惧怕的是新中国联邦的正道主义，以及邪教和正道主义的区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1794073/)
 
-作者：纽约香草山文艺部 – 宁文静
+## 摘自2021.12.24郭先生大直播
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+制作：香草山视频部
 
 
 
-12月25日圣诞节，来自唐宁街的突发消息称，英国政府计划派遣中共病毒疫苗接种员，挨家挨户地去500万尚未接种的家庭中强制接种。
+共产党把我们定为邪教是第一天的事情
+说来说去你（爆料革命 新中国联系）
+是个骗子 是邪教 是恐怖分子
+这三条 从第一天爆料革命到今天
+骗子 没钱了吧
+它（CCP）从来不说
+刘彦平说的是心里话
+郭文贵经营的是国内是最好的企业
+到今天看是最最好的啦
+全人类也是最好的
+G-TV 它（CCP）不说你这个钱
+完整无损的还给大家 从来没有过
+G-TV继续经营 升值那么多
+它（CCP）也不说喜联储 喜币
+战友现在手里的币是200多亿美元
+战友一共拿出6千万美元
+按1美元算
+6亿美元
+战友投资G-TV的总投入才4亿多美元
+一倍已经还给你了
+我们正道主义最关键的问题是
+一：全人类的邪教都是敛钱
+绝对不能敛钱 要给钱
+二：全世界所有的邪教都玩女人
+教主一定要玩女人 叫奉献你的身体
+七哥 除了在公开摄像头前
+与战友有拥抱
+从来没有单独见过一个战友
+不能把手伸到裤裆里
+不能把手伸到腰包里
+这是正道主义的本质问题
+三：所有的邪教都撒谎 都造假
+咱（爆料革命 新中国联邦）
+绝对坚持 唯真不破
+共产主义和邪教一个共同本质
+占有你的身体 你的财富 全撒网的洗脑
+代表 太阳 神 未来
+卡扎菲 萨达姆 阿明 苏哈托 毛泽东 斯大林 西特勒
+同是一套 代表神
+制造种族主义 民族主义
+像共产党一样
+我们绝不制造仇恨
+我们不恨任何人
+就连共产党也就是100个家庭
+不制造任何仇恨
+这是根本的正道主义的本质
+还有一个更可怕的
+大家都疏忽掉的
+所有西方的民主叫平等 博爱
+我们所有的爆料革命中看到的
+邪教的本质绝不平等 装神弄鬼
+共产主义就更装神弄鬼了
+他（毛泽东）可以 天天睡江青
+睡张玉凤
+睡无数个女学生
+（跳忠字舞）来奉献这样的
+我们绝对没有，我们是平等的
+所有的宗教都是不平等的
+更没有博爱 全是制造
+完全的神秘主义
+掠夺所有的人
+拿走你的尊严和希望
+我们（爆料革命 新中国联邦）
+恰恰不是
+我们是兄弟姐妹 平等的
+从以上几条 可以分出来
+Isobel（杨贝贝）最恐惧的是什么
+共产党最恐惧是的我们的正道正义
+和新中国联邦
+这才是真正的可怕
+再看看HBO-VICE的股东
+就知道背后意味着什么
+他们正好和我们的追求是相反的
+巨额财富的占有
+绝对的个人主义崇拜
+全人类的财富的掠夺
+绝对控制媒体的权力
+让全世界所有的人
+按着它的思想来走
+控制着真相和虚假传播的权力
 
-据悉，在过去的一周里，英国卫生部、英国国家医疗服务系统和唐宁街10号一直在讨论，着眼于在全国范围内向接种率低的地区——尤其是农村——派遣疫苗小组推动接种，作为避免封锁和其他限制的一个重要途径。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-12.jpg)
-有分析人士指出，英国政府无视各地民众已经持续数月的，大规模反对疫苗护照和强制接种的示威抗议活动，尤其是目前已接种疫苗对Omicorn几乎无效的情况下，仍然作出如此违背宪法、反人类的政策，着实令人震惊。
 
-参考链接：
-[Door-to-door Covid jabs as Boris considers New Year restrictions TOMORROW but vows to keep schools open: SAGE warns new Omicron wave hospitalisations could be higher than last winter](https://www.dailymail.co.uk/news/article-10344567/Door-door-Covid-jab-teams-sent-homes-five-million-unvaccinated-Britons.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+发稿：雪梨
 
-总编/编辑：文特
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
 
@@ -35,15 +106,9 @@
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

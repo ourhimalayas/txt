@@ -2,24 +2,41 @@
 ---
 
 
-## 【中日财经爆】中共地方政府也开始爆雷了？！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794076/)
+## 若西方不能阻止北约扩张，普京将考虑各种选择
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794153/)
 
-撰写：东京樱花团/ThreeColors
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-103.jpg)[图片来源](https://www.yicai.com/news/100179300.html)
-中共国首个地级市黑龙江鹤岗市因为财政债务问题或采取财政重整计划。早在2018年四川省安岳县也因债务问题曾爆出采取“财政重整计划”。那么到底什么才是“财政重整计划”呢？
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-财政重整是中共国务院办公厅《地方政府性债务风险应急处置预案》规定的地方财政应急措施。在财政重整期内，地方政府需削减基本支出，压缩政府公用经费。实施公务出国，培训，公务接待等项目零支出。控制人员福利开支，机关事业单位暂停新增人员，必要时采取审核削减机构编制和人员的措施。暂停地方自行出台的机关事业单位各项补贴政策，清理各类对企事业单位的补助补贴，压减直至取消编制外聘人员支出。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Vladimir-Putin.jpeg)
 
-鹤岗公布财政重整计划以后引起舆论哗然。地方收入入不敷出债台高筑，所以只能采取截流。前几天，唯一盈利的京沪线的北京铁路职工都在发讨要工资的抗议视频。中共在大减公务员的待遇的同时，各个规模的企业公司也在大规模裁员。不仅如此，房地产的低迷甚至爆雷更是把钢铁，水泥等相关企业拉下水。虽然中共极力掩盖，但是包括民工在内的失业率也许已经到了惨不忍睹的境地。
 
-消息来源:
+ 
+图片来源：The Japan Times
 
-[实施财政重整取消招聘政府基层工作人员背后，鹤岗发生了什么](https://www.sohu.com/a/511594775_260616)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+#### 编译：小红帽
+
+根据Hindustan Times 12月27日报道， **俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日表示，如果西方不能满足他对阻止北约向乌克兰扩张的安全保障要求，普京将考虑各种选择。**
+
+本月初，莫斯科提交了安全文件草案，要求北约拒绝让乌克兰和其他前苏联国家加入，并缩减其在中欧和东欧的军事部署。
+
+普京敦促西方迅速采取行动以满足这些要求，同时警告说，如果西方“在我们的家门口”继续其“侵略性”路线，莫斯科将不得不采取“充分的军事技术措施”。
+
+在被要求具体说明莫斯科的这种反应可能是什么时，普京在俄罗斯国家电视台周日播出的评论中说，“反应可能是多种多样的，这将取决于我们的军事专家向我提交什么建议”。
+
+另据塔斯社周日报道，俄罗斯已经收到北约提议，关于在1月12日开始就莫斯科的安全问题进行谈判，并且正在考虑。
+
+新闻来源：[Putin to mull options if West refuses guarantees | World News – Hindustan Times](https://www.hindustantimes.com/world-news/putin-to-mull-options-if-west-refuses-guarantees-101640559902925.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
