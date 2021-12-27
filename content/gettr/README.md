@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 5:51 PM (UTC)`
+
+12/25/2021 Miles Guo: The reason why kicking off the grand broadcast on Christmas is because numerous fellow fighters requested that I accompany those fellow fighters who have been living in the darkness worldwide for the holidays<br/><br/>12/25/2021 文贵直播：文贵先生讲述为什么要进行圣诞节大直播，这是应N个战友的要求，在圣诞节陪伴全球各地生活在黑暗中的战友们<br/>
+![img](https://media.gettr.com/group40/getter/2021/12/27/17/db8a83f9-748f-3f90-375d-c648322602b9/out.jpg)
+
+---
+
+`@miles 12/27/2021 5:50 PM (UTC)`
+
+12月27号：吃馍馍喽……
+![img](https://media.gettr.com/group15/getter/2021/12/27/17/372e5e77-8381-55b4-d7da-fdc70526e47b/out.jpg)
+
+---
+
+`@miles 12/27/2021 5:45 PM (UTC)`
+
+12/25/2021 Miles Guo: Tragic incidents are happening every day in Communist China; those who have a true spirit of exploration and critical thinking are treated as psychos in Communist China. Not only do our children have no hope in Communist China, but Xi Jinping’s children are no exception as well<br/><br/>12/25/2021 文贵直播：惨绝人寰的景象在中共国司空见惯；真正具有探索和批判精神的人在中共国会被当成精神病，不但我们的孩子们在中共国没有任何希望可言，习近平的孩子也不例外！<br/>
+![img](https://media.gettr.com/group41/getter/2021/12/27/17/305c6023-ba68-c3bc-2790-070cf79403a4/out.jpg)
+
+---
+
 `@miles 12/27/2021 5:20 PM (UTC)`
 
 12月27号：尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具．<br/>他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……新中国联邦一定要强大经济．媒体．伟大时刻即将到来……
@@ -139,27 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12月25号：文贵衷心再愿全天下人……和所有的兄弟姐妹，战友们！及家人．圣诞节快乐，文贵为你们蒸馍馍吃咯😅😅😅😅😅😅😅😅😅😅😅
 ![img](https://media.gettr.com/group47/getter/2021/12/25/13/efbb2e4b-3e0c-fc2a-6957-9198d61ae770/out.jpg)
-
----
-
-`@miles 12/25/2021 8:43 AM (UTC)`
-
-12/24/2021 Miles Guo: HBO/VICE and Isobel Yeung slander the Whistleblowers’ Movement and me as a bunch of swindlers, a cult, and threats to the Western democracy and freedom through the mouths of Teng Biao and An Ruizheng and by viciously editing what was said by the fellow fighters like Nicole and Xiao Siji. What they have done is extremely insidious and evil!<br/><br/>12/24/2021 文贵直播：HBO/VICE杨贝贝借滕彪、螃蟹之口，并通过恶意剪辑Nicole、小斯基等战友的话将爆料革命和文贵污蔑为一帮骗子、邪教和西方民主自由的威胁，阴险邪恶至极！<br/>
-![img](https://media.gettr.com/group9/getter/2021/12/25/08/4502a0f2-b044-ade5-d0c3-2dec264e5bc9/out.jpg)
-
----
-
-`@miles 12/25/2021 8:38 AM (UTC)`
-
-12/24/2021 Miles Guo: Without the video recording of the entire interview, Isobel Yeung would have achieved her evil goals; the questions she raised were tantamount to convicting me. She carefully picked a piece of crap like Teng Biao and Pang Xie (An Ruizheng) to smear the Whistleblowers’ Movement. Such an extremely vicious move is the same as what the CCP did during the anti-Chinese massacre in Indonesia<br/><br/>12/24/2021 文贵直播：如果没有全程录像，杨贝贝就得逞了，她的提问已经给文贵先生定了罪，她精心挑选了滕彪、螃蟹这样的垃圾来诋毁爆料革命，这和当年印尼排华如出一辙，极其阴歹<br/>
-![img](https://media.gettr.com/group48/getter/2021/12/25/08/ff909c35-2cac-91e1-5742-e2e5c9165f9b/out.jpg)
-
----
-
-`@miles 12/25/2021 8:32 AM (UTC)`
-
-12/24/2021 Miles Guo: The tabloids attacking the Chinese before the Indonesian anti-Chinese mass killings were all funded by the Chinese, while the atrocities during the anti-Chinese massacre are rarely mentioned in the world; Isobel Yeung, VICE, and HBO, who are vicious and insidious, have pushed us to the brink of the next anti-Chinese tragedy<br/><br/>12/24/2021 文贵直播：印尼排华前攻击华人的小报都是华人自己拿钱支持的，而印尼排华的惨剧在世界上却几乎无人提起；邪恶的杨贝贝、VICE和HBO让我们离新一轮排华惨剧更近了一步<br/>
-![img](https://media.gettr.com/group34/getter/2021/12/25/08/2dca3122-5571-eadc-3a97-14e83778ce90/out.jpg)
 
 ---
 
