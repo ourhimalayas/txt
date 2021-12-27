@@ -2,25 +2,32 @@
 ---
 
 
-## 中共为何把抓好“三农”工作是2022年头等大事
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1795278/)
+## 被强制超长时间审核恶性视频 员工起诉抖音
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795393/)
 
-撰稿：自由战士
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月24日，据有关媒体消息称，因抖音强制其内容审核员超负荷审查包含恶性内容的视频，一审核员对抖音及其母公司字节跳动提起集体诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-37.jpg)
+这位审核员透露，抖音的内容审核员负责审核，包括强奸和虐待动物等各类恶性视频。这些审核员长期超负荷工作，工作时间长达12个小时。由于审核令人不安的视频，诉讼当事人患上了创伤后应激障碍。因此，她希望代表所有的内容审核员，要求抖音对此进行赔偿。
 
+资料显示，一般社交媒体平台会为其内容审核员提供相关帮助，来应对工作带来的创伤，如心理辅导和缩减轮班时间，但抖音并未提供任何措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-27-at-10.24.54-PM.png)
-（图片来自网络）
+参考链接:[TikTok Sued by Content Moderator Traumatized by Graphic Videos](https://www.ndtv.com/world-news/tiktok-sued-by-content-moderator-candie-frazier-traumatized-by-graphic-videos-2668762/amp/1)
 
-25日至26日，中共农村工作会议在北京召开。这是中央经济工作会议之后，是中共内部召开的又一次重要会议。会议传达学习了习近平关于“三农”工作的重要讲话精神，科学分析了“三农”工作面临的形势任务，对做好明年“三农”工作作出了部署。基本包括如下几方面：抓好农业农村工作，首先要抓牢粮食安全。丰年不忘歉年苦，有粮常想无粮时。稳产量先要稳住播种面积。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-首先，为何现在发出如此强的缺粮信号，证明中共内部的粮食危机已经到了一个无法掩盖的地步，2022年会是一个饥荒年。我们可以中共墙内的被查的新闻信息，全国各个粮食储存基地都是空仓，大家以前习惯了倒卖进口粮食的赚差价敛财的模式，基本都不会把所谓的备战保命的粮食进行真正的存储。他们认为对全世界的控制是绝对的自信。蓝金黄收买贿赂的方式可以横扫全球政府官员。
+总编：童谣
+编辑：Irene木木
+校正/发稿：Fei797
 
-其次，随着中共新冠病毒的肆虐和中共一手策划的病毒疫苗袭击全球后，不仅仅是全球经济的大萧条导致的供应链系统的崩溃，同时为基本民生服务的基础行业—农业同样收到了很大的冲击。主要表现在几个方面：1.物流费用的突飞猛涨，粮食无法运出去；2.疫苗次生灾害导致的劳动力短缺。
-
-最后，中共国是一个最大的粮食进口国，这次进口的供应链一断裂，很快会在中共墙内反应出异常，中共现在整个耕地面积根本无法养活9000万党员，更何况还有十几亿被统治的百姓了。这次的粮食危机必定是推向ccp灭亡的一根强有力的稻草。底层百姓在饥寒交迫的情况下，必定会起来反抗。
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
