@@ -2,38 +2,38 @@
 ---
 
 
-## 特鲁多称西方国家需要团结起来对抗中国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1795205/)
+## 中共批准腾盛的新冠鸡尾酒疗法用于成人和青少年
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1795231/)
 
-撰稿人：小湫
-
-以下内容翻译自Fox新闻网
-
-[加拿大](https://www.foxnews.com/category/world/world-regions/canada)总理贾斯汀·特鲁多恳请西方国家团结起来反抗[中国，](https://www.foxnews.com/category/world/world-regions/china)称中国政府经常在西方各个国家之间制造矛盾，造成彼此对抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AP21019635452381-24.jpeg)
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image1-23.jpg)
 图片来自网络
 
-特鲁多[在接受环球电视台采访时说，](https://www.reuters.com/world/western-states-need-united-front-against-divisive-china-trudeau-2021-12-25/)我们需要坦诚的信任和更好的合作，这样中国政府无法在西方国家之间玩弄伎俩，使我们彼此分裂。
+路透社近日报道，中共国医疗产品监管机构周三表示，已批准将腾盛博药的中和抗体混合物用于治疗中共病毒，这是该国首个针对该病毒的此类治疗方法。
 
+腾盛博药在一份报告中说，根据三期临床试验的最终结果，BRII-196/BRII-198 的组合显示，在非住院中共病毒患者中，有发生严重疾病的高风险的住院和死亡减少了 80%。
 
+中共国家药品管理局说批准腾盛的药物用于治疗成人中共病毒轻症和12-17岁未成年人住院或死亡风险高的“正常类型”疾病。
 
-图片来自网络
+腾盛博药首席财务官李安康表示，关于奥米克戎变体如何影响抗体鸡尾酒的结果预计将在大约两周后出来。
 
-中国政府经常以中国的庞大市场作为诱饵，让西方国家彼此竞争成为对手。
+腾盛博药股价一度上涨 13.7% 至 48.75 港元（6.25 美元），然后在周四回落至收盘下跌 0.5%。
 
-近年来，加拿大与中国的关系一直紧张，最为引人注目的事情，是中国公民华为首席财务官孟晚舟于 2018 年在温哥华国际机场因美国引渡令而被捕。中国不久后拘留了两名加拿大人，这是对加拿大拘捕孟晚舟行为的恶意报复。
+该公司已在美国提交了该治疗的紧急使用申请，其中再生元制药公司和礼来的类似产品已获得批准。
 
-孟最终于 9 月与美国检察官达成协议，中国政府才释放了两名加拿大国民。
+博药将与潜在合作伙伴一起在中国和美国以外的地区寻求治疗的监管许可，优先考虑已经开始该产品三期试验的国家，如南非、巴西和墨西哥，李安康在新闻发布会上说。
 
-加拿大也一直强烈批评中国的人权问题，与其他西方国家一道，对2022年2月的北京冬季奥运会进行了外交抵制。
+李安康说，博药还在研究使用该药物预防中共病毒。
 
-中国政府并没有接受这一抵制，反而声称，抵制他们的人违反了《奥林匹克宪章》确立的体育运动政治中立原则，与奥林匹克“更加团结”的格言背道而驰。
+该公司表示，在获得批准之前，腾盛博药的治疗方法已在中国近 900 名中共病毒患者中使用。
 
-在美国宣布外交抵制后，中国外交部发言人赵立坚表示，“美方将为自己的做法付出代价，请关注后续行动”。
+这款享受中共当局政策绿灯快速获批的特效药待定售价能有8000元，腾盛博药股票也因此药获批上市而大涨，不知道这家公司背后是中共哪个权贵家族？从开始实验室研究到获批上市，这款药居然只用了不到20个月的时间，笔者认为从这个研发速度来看，说它的安全性要打一个大大的问号都算是抬举它了，中共不仅谋财，还要害命啊。
 
-信息来源：
+参考链接：
 
-[Trudeau says western countries need to stand together against China](https://www.foxnews.com/world/trudeau-says-western-countries-need-to-stand-together-against-china)
+[China approves Brii Biosciences antibody COVID treatment](https://www.reuters.com/business/healthcare-pharmaceuticals/china-approves-brii-biosciences-covid-19-treatment-2021-12-08/)
+
+[焦点分析 | 中国首个新冠“特效药”获批上市，腾盛博药能否成为抗感染巨头？](https://www.sohu.com/a/506856370_114778)
 
 [【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 ![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)

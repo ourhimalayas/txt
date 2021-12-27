@@ -2,10 +2,10 @@
 ---
 
 
-## 普京和习近平正在媾和，因拜登政府不能做出强硬决定
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794842/)
+## CCP大外宣猫女郎（杨贝贝），谁派你来的？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794845/)
 
-12/18/2021 普京和习近平举行视频峰会正在媾和，证明软弱的拜登政府无法做出强硬决定。
+杨贝贝──中国中央电视台主持人，现受雇于VICE，从一开始就是中共大外宣，她最近一次“任务”是被派去采访郭文贵先生。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

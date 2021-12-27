@@ -2,45 +2,32 @@
 ---
 
 
-## 中国政府以威胁国家安全为由限制境外IPO
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1795126/)
+## 习近平坐龙椅召见林郑 引网民热议批评
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795134/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾媒体当地时间12月26日报道，港共特首林郑月娥日前赴京述职，习近平端座龙椅召见。此照片一经曝光，顿时引起网络舆情激烈批判。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-27-下午9.31.41.png)
+据悉，该照片由中共官媒新华社刊登，显示习近平坐龙椅与林郑交谈。两人前面会议桌上，摆放两只画有龙纹的黄色茶杯。网友讽刺称，这是要回到皇权大道上。更有调侃批判习近平，像个没文化的暴发户。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/106904968-16250800542021-06-30t185456z_1685984549_rc20bo9xh7ku_rtrmadp_0_didi-group-listing.jpeg)图片来源：CNBC
+郭文贵先生在大直播中爆料，习近平访问北朝鲜时受到严重刺激，回京后决心仿照北朝鲜模式，绑架14亿中国人民，充当中共国习太阳，实行家天下。习从修宪搞终身制，到把夫人彭丽媛，女儿习明泽，弟弟习远平等家人，都扶植成所谓的“党和国家领导人”。这一系列疯狂举动，充分显示习近平狂妄自大，做着回归独裁帝制的美梦。
 
+参考链接：[林鄭赴北京述職 習近平坐龍椅接見](https://news.ltn.com.tw/news/world/breakingnews/3780397)
 
-#### 编译：小红帽
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-根据Business World12月27日报道， **中国政府计划加强对国内公司海外股票销售的审查，并禁止那些可能对国家安全构成威胁的公司上市。**
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-根据中国证监会周五晚间发布的一份咨询文件，所有寻求首次公开募股（IPO）和在海外增发股票的中国公司都必须在中国证监会（CSRC）注册。
-
-根据提案，在海外上市并可能威胁国家安全的公司被禁止出售股票，而引起网络安全问题的公司将接受安全审查。
-
-这些变化是中国政府在网约车巨头滴滴公司（Didi Global， Inc.）在纽约首次公开募股后，采取的打击海外上市的最新举措。尽管存在监管方面的担忧，但滴滴仍继续上市。
-
-从那时起，中国当局已经采取行动，阻止大量寻求在美国上市的公司，从而关闭了一条为科技公司及其华尔街支持者带来数十亿美元的道路。
-
-滴滴在美国上市之际，中国政府正在寻找控制中国科技巨头持有的大量数据的方法，部分原因是为了确保执政的共产党将财富分散到一小群亿万富翁之外——这是一场创造“共同富裕”的运动。
-
-中国加强监管审查与美国的举措相呼应。美国证券交易委员会（Securities and Exchange Commission）已停止中国公司未决的首次公开募股，直到全面披露政治和监管风险。
-
-美国证券交易委员会警告，投资者可能没有意识到他们实际上购买的是空壳公司的股票，而不是直接持有企业股份。
-
-中国监管机构表示，在国内涉及资产或核心技术重大纠纷的公司也将被禁止在海外上市。
-
-新闻来源： [China to restrict foreign IPOs, may ban on national security – BusinessWorld Online (bworldonline.com)](https://www.bworldonline.com/china-to-restrict-foreign-ipos-may-ban-on-national-security/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

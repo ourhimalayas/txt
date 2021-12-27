@@ -2,24 +2,32 @@
 ---
 
 
-## 日本盐野义制药研发的疫苗已进入最终临床实验阶段
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1795122/)
+## 加拿大总理称中共玩弄民主国家 致使西方国家分裂
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795133/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1512.png)[图片来源](https://news.yahoo.co.jp/articles/5b082c01e428596ef91b1b6f0c6d0205d5b5cc76#:~:text=%E3%83)
-《朝日新闻》网站消息，12月27日盐野义制药宣布，该公司开发的一种治疗中共病毒（新冠病毒Covid-19）的疫苗目前在越南正进行最后阶段的临床试验。
+作者：纽约香草山农场-蓝天大海
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月25日，加拿大总理贾斯汀-杜鲁多在接受加拿大媒体采访时表示，西方国家应该联合起来对抗中共，以防止其利用商业利益，挑动民主国家之间相互对抗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-27-下午9.31.32.png)
+杜鲁多表示，民主国家对中共国市场的一味逐利，导致其牺牲政治理念，而让位于经济利益。中共经常以公开市场竞争的方式，非常巧妙地玩弄西方国家，让西方国家为各自利益而互相对抗，导致分裂。志同道合的西方民主国家应该形成“统一战线”，反对中共日益增长的“强制外交”。
 
-试验今后还将在菲律宾和其它亚洲国家进行，共涉及约50,000人。今后根据试验的结果，有可能为海外供应这种疫苗。该公司的目标是在明年3月将该疫苗投入实际使用。
+当评论习近平独裁下的中共国时，杜鲁多说，中共国已不再是十年前，甚至五年前，所想象的样子了。他还表示，加拿大将继续在多方面挑战中共，包括人权、香港民主、支持记者以及不干涉亚洲独立国家等事物。
 
-在日本国内，明年1月开始将通过另一种方法进行最后阶段的试验。接种疫苗后，将体内产生的预防感染的中和抗体的值与其它公司的疫苗进行比较，并根据结果，计划向卫生劳动福利部申请批准。目前该制药公司已经建立了一个每年将提供超过3000万人的生产体系。
+参考链接：[Trudeau says China ‘playing’ democracies against each other, urges ‘united front’](https://globalnews.ca/news/8466217/trudeau-china-countries-need-united-front/)
 
-从美国Novavax生物医药公司获得技术的武田制药有限公司目前也在向卫生劳动福利部申请批准生产和销售许可。除上述之外，还有几家日本制药公司也在研发相关疫苗的阶段。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-信息来源：[コロナワクチン最終治験入り　塩野義、国内企業で初めて](https://news.yahoo.co.jp/articles/5b082c01e428596ef91b1b6f0c6d0205d5b5cc76#:~:text=%E3%83)
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
