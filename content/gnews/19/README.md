@@ -2,35 +2,50 @@
 ---
 
 
-## 病毒三字经
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1793934/)
+## 文贵先生回答小王子如何规划人生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793972/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-337.jpg)图片来源：雅典娜农场设计组（精靈藍）
-作者：xiaowen
-编辑：Mttfly
+作者：纽约香草山教育部 – 文特
 
-病毒小，毒性大。难看见，不易察。传播快，防备差。传染上，潜伏长。轻痛苦，重命丧。生化战，就是它。
 
-全世界，跑得快。航行断，国家封。股票涨，经济停。印钞票，物价疯。富翁怕，百姓惊。魔鬼们，笑盈盈。
 
-放病毒，是手段。打疫苗，早计划。第一针，必须打。第二针，还要扎。加强针，更强大。管用否，不理它。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-副作用，更可怕。妇科病，肠胃病。儿科病，呼吸病。心脏病，血管病。白血病，皮肤病。脑中风，加癌症。
 
-毒疫苗。成本小。利润高，价值差。制药厂，抢造它。鼓励打，强制打。各政府，催着扎。控制人，作用大。
 
-有解药，可预防。羟氯喹，锌加上。槲皮素，维生素。抗生素，加激素。伊维菌，青蒿素。如何用，医生处。
+12月25日，郭文贵先生在圣诞特别节目中就战友提出的关于如何规划人生的问题，给出了自己的解答。
 
-正义人，揭真相。邪恶人，病毒造。毒疫苗，不要打。带口罩，预防它。要根除，找源头。要和平，先觉醒。
+郭先生认为，基本上人生都是不确定的，所有能规划的东西都不是自然的，也都不是好的东西。甚至可以说，规划是给绝大多数普通人准备的活下去的通道。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-12.jpg)
+那些能够改变人类、创造人类文明的人，他们的人生都不是规划出来的。第一种比如佛祖、天皇、女王等，他们从事的都是所谓的天生职业，是无法规划的；第二种人例如毛泽东、列宁、华盛顿、罗斯福等，他们对世界影响巨大，但他们的人生也不是规划出来的，那些通过规划掌握某种具体技能的人只能成为他们的工具。
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+所以，人生需要奋斗，需要创造，需要努力拼搏。唯一规划人生的方式就是不要规划，因为人不知道明天会发生什么。唯一能做的就是跟着自己的感觉，把一切都变成自己的工具。任何事情还没有做到的时候，为自己定一个目标，告诉自己我要做到这件事。如果失败了，就再来一次，直到做好。做好后马上放弃，去追寻另外一个新目标。
+
+参考链接：
+[2021年12月25日 文贵大直播 🎄圣诞特别节目🎄 “爆二代”— 希望与力量](https://gtv.org/video/id=61c74f5100f9a119180a92be)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

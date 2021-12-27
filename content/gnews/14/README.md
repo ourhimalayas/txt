@@ -2,43 +2,138 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月20日-12月26日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793979/)
+## 花木兰小调
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794025/)
 
-作者：纽约香草山金融部  – ILOVE战神
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
+- 圣诞灭共宴 –
+- 响鼓派对秀 –
+- 秘密翻译组之响鼓秀埸 –
+- 写给喜币上市之喜币腔调 –
 
 
-过去一周喜马拉雅币价格回落至36美元上下，平均日交易量约12万6千喜币。喜币上市以来总交易量约2280万枚 ，占今年总发行量的仅约2.28%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-338.jpg)
-据郭文贵先生本周直播中透露，喜联储已经在和某英国公司合作，开发一系列NFT产品。新中国联邦相关的NFT产品未来会有广阔的发展空间，将远远超越现在的NFT市场。NFT的发展将进一步瓦解法币的政府定价权。喜币将成为全世界都需要的、没有政治、没有政府操控的无国界、超级安全、尊重个人隐私、保证个人财富升值和绝对全球通的一种货币。目前全球的数字货币还处于群雄争霸的年代，但未来喜币会成为天下统一之币。G系列媒体平台将在这个历史进程中发挥重要作用。
+作者：澄道来了
+编辑：翼族
+![此图像的alt属性为空；文件名为IMG_5712.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_5712.jpg)
+吹拉吟唱弹异曲
+吞吐唅泯咽同工
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+为习送葬
+大游行前总动员
+再次出击
+战士集结演兵埸
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+线上聚集
+响鼓秀场
+任君表达
+自由驰骋
 
-**更多资讯，更多关注**
+线下游行
+习王孟江
+全球集结
+统一联动
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+废话无多
+线上直播
+唯真表达
+圣诞开趴
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+山河东南腔
+灭共创意坊
+不拘一格
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+花木兰小调
+借古喻今朝
+战友共享
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“刘哥讲话理太偏
+七哥讲话哲理现
+战友讲话理不偏
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+谁说女子享清闲
+妙赞战友胜先贤
+圣徒七哥非等贤
 
+男子打仗到边关
+为习送葬勇字先
+人战一国越弥坚
 
+女子纺织在家园
+幕后巡逻把关严
+千载扬帆灭共船
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+白天去种地啊
+夜晚来纺棉
+线上去直播啊
+线下伐领馆
+家人受诛连啊
+同事蒙白冤
 
+不分昼夜
+是辛勤把活干
+不分你我
+是笃定把贼铲
+无关生死
+是邪共终玩完
 
+将士们
+才能有这吃和穿
+灭共潮
+才能有这局和面
+喜财富
+才能有这足与宽
+
+您要不相信啊
+请往近前看
+您要不相信啊
+仰头向远看
+您要不相信啊
+抬头喜币看
+
+脚上的鞋和袜
+身上的衣和衫
+中原的活佛手
+盘古的龙大观
+喜币不是梦啊
+数字币才开端
+
+千针万线
+都是他们连
+千天灭共
+怎会不实现
+千载和平
+一定会显现
+
+哼嗨
+嗨嗨优
+哼嗨
+嗨嗨优
+
+你佛佛
+你佛佛
+中不中！
+
+莘县
+阳谷县搭县
+咱走走看！
+
+替父从军花木兰
+口耳相传小调吟
+
+三十晚上大游行
+为习送葬千日行
+
+@ “秘翻响鼓秀埸”节目组
+@ 澄道来了
+@ 爱动爱议码12262
+
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
