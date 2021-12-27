@@ -2,35 +2,36 @@
 ---
 
 
-## 加拿大卫生机构在疫情封锁期间监视了数百万人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794104/)
+## 若西方不能阻止北约扩张，普京将考虑各种选择
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794153/)
 
-***加拿大公共卫生局（PHAC）承认其秘密追踪了至少3300万台移动设备的位置数据，以分析Covid-19封锁期间人们的行动。***
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大-1.png)图片来源：rt.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Vladimir-Putin.jpeg)
 
 
-**翻译：皮特
-编辑：Candy**
+ 
+图片来源：The Japan Times
 
-该机构今年早些时候收集了数据，包括来自手机塔的地理位置信息，PHAC发言人告诉《国家邮报》：“由于大流行病的紧迫性”，基本上证实了Blacklock记者的报告。据称，跟踪数据只用于评估封锁措施的有效性，并确定人员流动和Covid-19传播之间的可能联系。
 
-PHAC通过一个外部承包商——加拿大电信巨头Telus——获得了这些信息，这些信息是 “去标识化的和汇总的”。PHAC说，该合同从去年3月持续到10月，交易到期后，它不再有机会获得这些数据。
+#### 编译：小红帽
 
-然而，该机构计划以防止其他传染病传播和改善心理健康等为目的，在未来五年内继续追踪公民的行动。PHAC上周向潜在的承包商发布了一份通知，寻求最早可追溯至2019年1月并至少持续到2023年5月的匿名移动数据。
+根据Hindustan Times 12月27日报道， **俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日表示，如果西方不能满足他对阻止北约向乌克兰扩张的安全保障要求，普京将考虑各种选择。**
 
-批评者认为，政府对公民的跟踪可能比已披露的范围更广，而且在未来几年可能会变得更加麻烦。
+本月初，莫斯科提交了安全文件草案，要求北约拒绝让乌克兰和其他前苏联国家加入，并缩减其在中欧和东欧的军事部署。
 
-*隐私倡导者大卫-里昂告诉《邮报》：“我认为，在大流行病结束之前、以及之后，加拿大公众会发现许多其他此类未经授权的监控举措。*”他还指出，“去识别化 ”的数据很容易被 “重新识别”。
+普京敦促西方迅速采取行动以满足这些要求，同时警告说，如果西方“在我们的家门口”继续其“侵略性”路线，莫斯科将不得不采取“充分的军事技术措施”。
 
-作者朱利叶斯·鲁切尔(Julius Reuchel)说，这一追踪举措以“为了你的安全”为由而去监视国家、监视公民。另一位作者保罗·阿尔维斯（Paul Alves）说，有了新的合同，PHAC将直接获得所有的移动位置数据，并表示害怕 “追踪联系人将不再需要许可或授权”。
+在被要求具体说明莫斯科的这种反应可能是什么时，普京在俄罗斯国家电视台周日播出的评论中说，“反应可能是多种多样的，这将取决于我们的军事专家向我提交什么建议”。
 
-原文链接：[https://www.rt.com/news/544468-cell-location-covid-canada/](https://www.rt.com/news/544468-cell-location-covid-canada/)
+另据塔斯社周日报道，俄罗斯已经收到北约提议，关于在1月12日开始就莫斯科的安全问题进行谈判，并且正在考虑。
 
-***发布：Candy***
+新闻来源：[Putin to mull options if West refuses guarantees | World News – Hindustan Times](https://www.hindustantimes.com/world-news/putin-to-mull-options-if-west-refuses-guarantees-101640559902925.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

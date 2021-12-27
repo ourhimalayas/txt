@@ -2,29 +2,40 @@
 ---
 
 
-## 上海公安局按时效性存活率粉丝数浏览量定制大外宣服务
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1794339/)
+## 最高法院就更大的工作场所和卫生工作者的疫苗强制令举行特别听证会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1794355/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/202112032007285749214939248714_副本.jpg)
-2021年12月20日《纽约时报》以“购买影响力：中国如何操纵脸书及推特”（Buying Influence: How China Manipulates Facebook and Twitter）为题报导，揭露中国政府的一份大外宣报价单。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1500.png)资料图
+自《ABA杂志》2021年12月23日报道，美国最高法院周三安排了1月7日的特别听证会，以考虑在更大的工作场所和接受联邦资金的医疗保健机构中的联邦疫苗强制令。高等法院下令在12月30日之前进行补充简报，并将口头辩论定在下周常规口头辩论前的星期五。
 
-在《纽约时报》的这份报告中，详细地说明了中国政府如何命令私营企业按需生成内容、吸引关注者、追踪批评人士，并为信息战提供其他服务。上海市公安局浦东分局的投标公告上写着“供应商能随时提供境外社交平台相关的帐号给采购方。平台包括推特、脸书等，每月每个平台提供约300个帐号。注：此项目内容时效性较强，需随时提供相关平台帐号”。（如下图所示）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/001-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/002.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/003-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/004-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/005.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/006.png)
-《纽约时报》还披露了中标公司-上海云邻（Shanghai Cloud Lin）的报价单，单据中逐项列出了服务项目以及价格。上海云邻的报价单列出了6个服务项目，包括境外社交平台注册、境外社交平台帐号伪装及维护、境外社交平台帐号落地、境外讯息素材搜集、境外论坛帐号注册、发帖等及制作原创视频。
+《华盛顿邮报》、《纽约时报》和美联社对这些命令进行了报道。美联社报道说：“高等法院迅速对要求进行辩论的决定是不寻常的。”“这两个问题都是在紧急情况下到达法院的，法院通常会在没有更典型的完整简报和口头辩论的情况下迅速决定紧急申请。但法院最近也因其处理程序的方式而受到批评，该程序被称为法院的‘影子案卷’。”
 
-这些项目是按每月或每次报价收费，单项价格从每月5000元人民币起跳，最高的4万元人民币，套餐总价为6万9800元人民币。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/007.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/008.png)
-《纽约时报》披露的这份文件，可以看出中共操纵海外舆论的技术越来越娴熟，越来越“与时俱进“。 上海警方在社交媒体上已经远远不满足于简单的点赞和转发等社交媒体的常用手段，还要求用现在影响力越来越大的原创视频来影响舆论；上海警方已经不满足于动用大量僵尸账号等简单粗暴的策略，而转向了破坏性更强的行动。他们要塑造更有可信度的意见领袖，打造社交媒体明星，要让这些明星社交媒体账号活跃，来引导舆论，实现中国政府影响海外舆论、打击异己的重要目的。
+工作场所规则指示拥有100多名工人的雇主要求接种疫苗或每周进行新冠病毒测试。职业安全与健康管理局已将工作场所的规定作为紧急临时标准，该紧急规则最初不必经过通知和评论实践。当“员工因接触被确定为有毒或对身体有害的物质、制剂或新的危害而面临严重危险”时，可以采用紧急临时标准。位于辛辛那提的美国第六巡回上诉法院于12月17日恢复了强制疫苗授权。医疗保险和医疗补助中心采用了另一项疫苗规定，该规定适用于接受医疗补助基金医疗保险的联邦医疗保健提供者的员工。该要求包括了出于宗教和医疗原因的豁免者。
 
-管中窥豹，我们可以看到中国政府的舆论控制能力早已经冲出亚洲，走向世界，不仅仅要洗脑中国人民，还要给世界人民做教师；中国政府早已经不满足于在中国境内控制中国人民，而且还希望在国际上撒下天罗地网，打击与中国有联系的异议人士。这是中国政府的一贯策略，也是其能骗取政权、统治中国七十年的必杀绝技。
+新奥尔良第五巡回法院于12月15日裁定，阻止该授权的禁令仅适用于提出法律挑战的14个州。另一位法官的另一项裁决禁止在另外10个州执行该强制令。
 
-伴随着习一尊统治全球的疯狂野心，中共对海外媒体的控制力度也会越发强烈。 然而，并非所有的西方媒体都愿意屈服在中共的淫威之下，中共发力过猛、祸害世界引起了全世界人民的反感和痛恨。此次亲共的《纽约时报》不加掩饰、直截了当地把中共的丑行和伎俩公之于众，是西方媒体对中共大外宣的有力回击，警惕西方世界注意中共发起的媒体超限战。当共产党的底牌和黑手被曝光的时候，实际上宣告着中共的大外宣策略在国家层面的破产。
+据《纽约时报》报道，最高法院已在多种情况下允许州政府强制接种疫苗。“但新案件有所不同”《纽约时报》说，“因为它们主要提出了国会是否已授权行政部门制定这些要求的问题。“答案主要取决于相关法规的语言，但有理由认为法院的六名保守派大法官多数会对行政权力的广泛主张持怀疑态度。”
 
-共产党已经被全世界人民贴上了不被信任的标签，它不仅仅陷入了对中国人民的塔西佗陷阱，也已经不可救药地陷入了对世界人民的塔西佗陷阱。共产党这个名词，从物理上仍然存在，但精神上，早已经被扔进了历史的垃圾堆。
+简评：美国最高法院周三安排了1月7日的特别听证会，以考虑在更大的工作场所和接受联邦资金的医疗保健机构中的联邦疫苗规定。前些时段美国第六巡回上诉法院的一个小组以2比1的裁决解除了美国第五巡回上诉法院就全国范围内的疫苗强制接种令提出的临时禁令，法院的判决起起伏伏，美国法律层面的博弈还很激烈。人们越来越意识到这是一场生死存亡的战斗！
 
-作者：华盛顿DC农场——海阔天空
+News Link:
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+[https://www.abajournal.com/news/article/supreme-court-sets-special-hearing-on-vaccine-mandates-for-larger-workplaces-health-workers?utm\_medium=email&utm\_source=salesforce\_483065&sc\_sid=02978766&utm\_campaign=weekly\_email&promo=&utm\_content=&additional4=&additional5=&sfmc\_j=483065&sfmc\_s=45233078&sfmc\_l=1527&sfmc\_jb=18002&sfmc\_mid=100027443&sfmc\_u=13970168#google\_vignette](https://www.abajournal.com/news/article/supreme-court-sets-special-hearing-on-vaccine-mandates-for-larger-workplaces-health-workers?utm_medium=email&amp;utm_source=salesforce_483065&amp;sc_sid=02978766&amp;utm_campaign=weekly_email&amp;promo=&amp;utm_content=&amp;additional4=&amp;additional5=&amp;sfmc_j=483065&amp;sfmc_s=45233078&amp;sfmc_l=1527&amp;sfmc_jb=18002&amp;sfmc_mid=100027443&amp;sfmc_u=13970168#google_vignette)
+
+翻译/简评: 希望
+
+PR: clau
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

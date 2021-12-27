@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 8:05 AM (UTC)`
+
+12/25/2021 Miles Guo: Wang Leehom offended the "CCP’s first lady", Peng Liyuan, by refusing to perform on stage with her; Communist China’s celebrity community is controlled by the Zeng family; the purpose of targeting the celebrities under the Zeng family’s control, such as Wang Leehom, is to eliminate the Zeng family; the evil of the CCP far exceeds that of Wang Leehom!<br/><br/>12/25/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”；中共国的演艺界都是曾家族控制的；拿王力宏等曾家控制的明星开刀，是为了干掉曾家；中共之恶远超王力宏！<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/27/08/0d5b9e1d-fbca-f56e-d1b6-129291a77e83/out.jpg)
+
+---
+
 `@miles 12/27/2021 7:38 AM (UTC)`
 
 12/25/2021 Miles Guo: The celebrities who were groomed by the CCP and earn over 10 million yuan a year will inevitably have their wealth taken away by the CCP; the celebrities from Hong Kong, Macao, and Taiwan have no dignity or freedom in front of the CCP, and they all have to sleep with the tycoons; the New Federal State of China shall make sure those fellow fighters who love music will never sing for money<br/><br/>12/25/2021 文贵直播：中共养的、收入超千万的明星都逃不过杀富的命运；港澳台明星在中共面前毫无尊严和自由，他们都是富人的玩物；新中国联邦要让爱音乐的战友不为钱而歌唱<br/>
@@ -154,13 +161,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12/24/2021 Miles Guo: What would Isobel Yeung and VICE do if I declined to be interviewed by them? They would instead interview a bunch of Western politicians and media and cite the data as the “basis” to picture the Whistleblowers’ Movement as a cult and a group of rioters. If that happened, we wouldn’t have any chance to defend ourselves <br/><br/>12/24/2021 文贵直播：如果文贵不接受VICE采访，杨贝贝和VICE会怎么做？它们会找西方政客、媒体界人士并以数据作为“依据”，将爆料革命描绘成邪教、暴徒，那样我们就百口莫辩了<br/>
 ![img](https://media.gettr.com/group28/getter/2021/12/25/08/5452ff8c-d630-c6fb-58d1-0386121034db/out.jpg)
-
----
-
-`@miles 12/25/2021 8:08 AM (UTC)`
-
-12/24/2021 Miles Guo: All the questions asked by Isobel Young in the interview were the traps she set up for me. However, with the video recording of the full interview and our own platforms, we managed to expose her lies and effectively fight her back; Isobel Yeung will pay for an enormous price for her lies, and both she and VICE will lose their lawsuits for sure<br/><br/>12/24/2021 文贵直播：杨贝贝采访的提问都是给文贵挖的坑，但我们用全程录像和自己的平台，戳穿了她的谎话并进行了有力的反击；杨贝贝将为其谎言付出巨大代价，她和VICE必定会输掉官司
-![img](https://media.gettr.com/group23/getter/2021/12/25/08/156fd478-0e8a-4fa4-aae0-035055f4d7ee/out.jpg)
 
 ---
 

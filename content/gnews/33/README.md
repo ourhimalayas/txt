@@ -2,32 +2,40 @@
 ---
 
 
-## 疫情导致三星西安半导体工厂进入紧急状态 或影响产品交付和价格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794094/)
+## 加拿大卫生机构在疫情封锁期间监视了数百万人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794104/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-54.png)[图片来源](https://docs.google.com/document/d/1hdUEE164rd_NyWhx8wKjCvCxD5XRDF43esvUnp93nlw/edit)
-据集微网12月26日消息，因受到西安封城防疫措施影响，三星电子设在当地的半导体工厂目前已进入紧急营运状态，目的是为了确保生产正常。
+***加拿大公共卫生局（PHAC）承认其秘密追踪了至少3300万台移动设备的位置数据，以分析Covid-19封锁期间人们的行动。***
 
-目前三星电子正在尽最大努力，动员居住在员工宿舍内的人员，以确保生产线运作正常。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大-1.png)图片来源：rt.com
 
-目前三星已将生产所需人员安置在工厂附近的员工宿舍、而非一般的私人住宅，目的是防止员工和外部接触。另外，三星正与当地相关单位进行协调，盼能允许这些员工进出工厂。该公司一名管理人员表示，正密切关注事态发展，并就后续运营与当地政府保持沟通。
 
-目前，三星在西安布局以NAND Flash为主，一期月产能约12万片，二期月产能则约13万片，共占该公司NAND Flash产能42.3%，占全球也有15.3%。
+**翻译：皮特
+编辑：Candy**
 
-TrendForce指出，目前封城措施并未影响工厂正常营运，尽管年底至明年1月中前的出货多已经安排妥适，但无法排除接下来因物流延迟出货的可能。
+该机构今年早些时候收集了数据，包括来自手机塔的地理位置信息，PHAC发言人告诉《国家邮报》：“由于大流行病的紧迫性”，基本上证实了Blacklock记者的报告。据称，跟踪数据只用于评估封锁措施的有效性，并确定人员流动和Covid-19传播之间的可能联系。
 
-此外，三星原物料进货也可能受物流受阻而延迟，但厂区内仍有安全库存水位，可应付未来数月的生产。
+PHAC通过一个外部承包商——加拿大电信巨头Telus——获得了这些信息，这些信息是 “去标识化的和汇总的”。PHAC说，该合同从去年3月持续到10月，交易到期后，它不再有机会获得这些数据。
 
-业界指出，近期NAND现货价小幅震荡，但跌幅已趋缓，价格修正期较以往明显缩短，若三星西安厂受当地封城影响，将牵动NAND Flash价格走势，有助价格翻扬向上。
+然而，该机构计划以防止其他传染病传播和改善心理健康等为目的，在未来五年内继续追踪公民的行动。PHAC上周向潜在的承包商发布了一份通知，寻求最早可追溯至2019年1月并至少持续到2023年5月的匿名移动数据。
 
-信息来源：
+批评者认为，政府对公民的跟踪可能比已披露的范围更广，而且在未来几年可能会变得更加麻烦。
 
-[三星西安半导体工厂进入紧急运营状态或影响NAND Flash价格走势\_网易订阅](https://www.163.com/dy/article/GS5LQQUJ0511RIVP.html?f=post2020_dy_recommends)
+*隐私倡导者大卫-里昂告诉《邮报》：“我认为，在大流行病结束之前、以及之后，加拿大公众会发现许多其他此类未经授权的监控举措。*”他还指出，“去识别化 ”的数据很容易被 “重新识别”。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+作者朱利叶斯·鲁切尔(Julius Reuchel)说，这一追踪举措以“为了你的安全”为由而去监视国家、监视公民。另一位作者保罗·阿尔维斯（Paul Alves）说，有了新的合同，PHAC将直接获得所有的移动位置数据，并表示害怕 “追踪联系人将不再需要许可或授权”。
+
+原文链接：[https://www.rt.com/news/544468-cell-location-covid-canada/](https://www.rt.com/news/544468-cell-location-covid-canada/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
