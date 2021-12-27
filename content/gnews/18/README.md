@@ -2,33 +2,33 @@
 ---
 
 
-## 水龙吟·别俄罗斯喀秋莎农场
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1795971/)
+## 七哥谈看清本质（2021-12-24摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1796024/)
 
-俄罗斯莫斯科喀秋莎农场 喜小币
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Snipaste_2021-09-26_01-24-10.jpg)俄罗斯莫斯科喀秋莎农场
-前言：2021年12月27日，惊闻俄罗斯喀秋莎农场因灭共布局需要，宣布解散，合并到新西兰奥克兰伊甸农场。俄罗斯时间12:00，老班长及几位伊甸农场战友到俄农场座谈，触景生情，写下此词。
+来源：郭先生2021-12-24直播10:00:08摘录
 
-**水龙吟·别俄罗斯喀秋莎农场**
+这个阴毒之狠，大家想到的HBO VICE说，我就要告诉你刚才回答你们大家最重要的问题。这次的采访和背后的动机绝不是一个共产党一个人玩的，你看他背后的股东你就能看得出来，单伟健，索罗斯，迪斯尼，布拉克斯洞，全面的背后的力量的一挺集体行动达到刚才我说那六个目的。没有几个战友能看看清楚这个本质的。
 
-举头巍峨雪云，泪别俄农路漫漫。
-一年又半，踏云相见，从未识面。
-少说多做，莫求名利，无悔无怨。
-手指幻鸿剑，声铸阔刀，劈共魔，
-并肩战！
+校对：HimaFaFA
+发布：HimaBoy
 
-谁说战友无情？别旧昔，哽咽依恋。
-万般不舍，化千纸鹤，放飞再干。
-千古兴亡，百年悲笑，人随境转。
-更多同袍在，会师拥抱，魔巢捣烂！
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-词释意：
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-抬头仰望天空，巍峨白云堆积如地上茫茫雪，在这冰寒地冻的季节，我们要挥泪告别俄罗斯喀秋莎农场。战友们在此战斗了整整一年半，踏着网络云端相见，但是彼此是从未蒙面，是熟悉互助的陌生人。农场里很少有人说话，都在默默地力所能及做着事。也不谋求个人名利，也没有抱怨。大家的手指幻化成鸿鸿长剑，声音铸造成阔阔大刀，以爆料革命的方式，劈砍中共魔鬼集团，肩并肩战斗着！
+**关注我们**
 
-谁说战友们没有感情呢？当告别眼前时，哽咽难诉依依不舍。但纵有万般不舍，战友们把这种人之常情叠成心中的千纸鹤，放飞高空后再继续干。千古兴衰成败，百年悲欢离合，人都能顺境而转换。更何况有更多更多的同袍战友在，即将与我们会师拥抱，一起捣烂共魔的巢穴。
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
