@@ -2,46 +2,37 @@
 ---
 
 
-## 台湾空手道团员哈萨克比赛后已11人确诊中共病毒
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1792534/)
+## 伊维菌素治疗新冠的功效被恶意抹黑
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1792648/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
+**简评：**
 
-作者：纽约香草山 医疗部 云豹
+大量的错误和虚假信息恶意抹黑了伊维菌素在治疗新冠病毒方面的功效，但是伊维菌素非常有效，它会彻底改变现状。过去一年，很多不正常的事情在发生，科学界已经腐败到了不值得依赖的地步。对新闻媒体上的观点和言论，人们需要深入思考，因为那并不是事情的全部。
 
-
-
-当地时间12月26日，参加哈萨克亚洲空手道比赛的台湾团员，返国后接受病毒检测结果出炉，已有11人确定被感染中共病毒。
-
-台湾空手道团员此次共有22人前往哈萨克参加比赛，在12月24日返国入境后，于集中检疫所进行隔离检疫，并进行首次采检。初步检验结果显示有11人确定被感染中共病毒，将进行进一步的基因定序，以确认是哪一株病毒。台湾22名代表队成员，大多已打满2剂疫苗，并在比赛前接受检查皆为阴性。
-
-除了台湾的团员外，目前日本、香港、泰国也传出有选手被感染的案例。空手道是近距离的比赛，很难做好避免被感染的自我防护措施。哈萨克已经有75%的人口完成完整疫苗接种，各国选手也绝大部分完成疫苗接种，可是仍有大量选手在比赛时被感染，显示即使已完成完整疫苗接种，也无法避免被感染中共病毒。
-
-(本文为作者观点，不代表G NEWS立场)
-
-参考连接：
-
-&lt;[https://www.cna.com.tw/news/firstnews/202112265004.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112265004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+YouTube视频链接：
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+[GTV视频链接](https://gtv.org/video/id=61c3db1f43ccb726a089fe32)
+
+**视频字幕：**
+
+**主持人：**Lawrie医生，我想问你，为什么伊维菌素的名声变得如此糟糕？似乎到处都在报导，为什么这么多人如此反对伊维菌素？
+
+**Lawrie医生：**在我看來，有大量的错误信息和虚假信息的宣传，感觉就像针对伊维菌素以及早期治疗新冠病毒的一场运动。但是我认为是因为伊维菌素非常有效，它会彻底改变现状。在我看來，过去一年一直到现在，一定有别的事情在进行，很多事不正常。所以我真的希望在这里分享这些信息，告诉大家科学界腐败到了不值得信赖的地步。人们真的需要对新闻上听到的，甚至科学期刊上看到的深入思考，因为那一定不是事情的全部。
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-校对/编辑/发稿：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多信息，更多关注**
 
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

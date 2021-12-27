@@ -2,56 +2,36 @@
 ---
 
 
-## 【Michael.Tonny专栏】医学论文验证郭先生关于伊维菌素预防和治疗中共病毒的说法
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1793155/)
+## NASA革命性空间望远镜“韦伯”发射入轨 探索宇宙成型早期模样
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1793305/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+#### **撰稿：**日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126C35E8-944A-43A2-A6F7-9F6D7EAAE412.jpeg)（图片来自《美国之音》）
 
-灭共者郭文贵先生（MilesGuo）多次在视频直播中提到，伊维菌素（ivermectin）对预防和治疗Covid-19（中共病毒）的有显著作用。
+12月25日，搭载NASA詹姆斯·韦伯太空望远镜的阿丽亚娜5型火箭在法属圭亚那欧洲航天发射中心发射升空。这台革命性的太空望远镜将以迄今最深入的方式探测宇宙，开启备受期待的天文探索新纪元。
 
-2021年8月16日，由阿根廷、巴西的7家机构和11位学者共同发表的研究论文完全验证了MilesGuo的说法。
+据《美国之音》报道，这台空间望远镜重1.4万磅，以20世纪60年代美国航空航天局局长詹姆斯·埃德温·韦伯命名，敏感度是哈勃太空望远镜的100倍。该望远镜在进入太空27分钟后从火箭上释放，并在接下来的13天内逐渐铺展开来，伸展面积类似一个网球场的大小。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Intensive-Treatment-With-Ivermectin-and-Iota-Carrageenan.png)
+据报道，韦伯望远镜将在太空中飞行两周，到达一个距离地球100万英里的太阳系轨道，这个距离是地球与月球间距离的约四倍，其特殊轨道将使它与地球时刻保持一致并同时环绕太阳公转。
 
-这篇题为《[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)》的论文是由阿根廷图库曼卫生部（Ministry of Health, Tucumán, Argentina）、SI.PRO.SA省卫生系统（Province Health System, SI.PRO.SA, Tucumán, Argentina）、图库曼卫生部卫生研究所（Health Research Institute, Ministry of Health, Tucumán, Argentina）、Ángel C. Padilla临床医院（Clinical Hospital “Ángel C. Padilla,” Tucumán, Argentina）、图库曼医疗急救中心（Medical Center Emergence, Tucumán, Argentina）、巴西莫吉达斯克鲁兹大学研究与技术中心（Research and Technology Center, Mogi das Cruzes University, Brazil）、阿根廷图库曼医学院-高级生物研究所（School of Medicine-Superior Institute of Biological Research (INSIBIO—CCT CONICET), Tucumán, Argentina）等7家机构的11位学者共同完成。
+此前，已经运行30年的哈勃太空望远镜在距离地球340英里外绕地球运行，每90分钟就要进出一次地球的阴影。
 
-在这项为期4周的临床试验中，总共有234名成人参与者，他们被随机分为1-1对照组（CG，Control Group）117人和试验组(EG，Experimental Group) 117人。该临床试验在世界卫生组织数据库的Covid-19（中共病毒）临床研究试验注册号为[NCT04701710](https://clinicaltrials.gov/ct2/show/NCT04701710)（www.ClinicalTrial.gov）。这些参与者均为经常与受中共病毒感染的患者接触、最容易感染Covid-19（中共病毒）群体之一的卫生人员。
+韦伯望远镜的主镜由18个由铍制成的六边形镀金镜面组成，聚光面积比哈勃更大，使其能够比哈勃望远镜或任何其他望远镜观测更远距离的物体，从而可以追溯到更久远的时间。
 
-下图为临床试验参与者信息
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-Demographic-profile.jpg)
-实验组每7天口服2片6mg伊维菌素（orally 2 tablets of 6 mg every 7 days）和每天喷6次iota-carrageenan喷雾（iota-carrageenan 6 sprays per day），持续4周。所有受试者都完成了研究。所有参与者均通过体格检查进行评估，并在协议基线（protocol baseline）时诊断出 COVID-19核酸检查结果为阴性（negative reverse transcription polymerase chain reaction）。
+有天文学家表示，这将使人们得以一瞥前所未见的宇宙成型早期时刻的模样，可以追溯到大爆炸后的1亿年。而大爆炸是理论上的宇宙起源点，距今大约在138亿年前。同时天文学家还希望，可以研究位于遥远星系中心的超大质量黑洞。当然也可以观察距离人类更近的星球，如火星和土星的卫星土卫六等。
 
-下图为临床试验最终结果
+据了解，韦伯望远镜的开发成本高达88亿美元，运行费用预计将使其总价格达到96.6亿美元左右，远高于NASA此前原定在2011年发射的计划。此外，韦伯望远镜的设计寿命最长可达10年。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Am-J-Ther-2021-Sep-Oct.jpg)
+*参考链接：[NASA革命性空间望远镜“韦伯”发射入轨 探索宇宙成型早期模样](https://www.voachinese.com/a/nasa-space-webb-telescope-20211225/6370133.html)*
 
-A表示实验组和对照组的Covid-19（中共病毒）感染病例数和健康病例数，B表示实验组和对照组中Covid-19（中共病毒）感染后病例的临床状态
+* * *
 
-在服用了伊维菌素的试验组（EG）117人中，仅有4人感染了中共病毒，而没有服用伊维菌素的对照组（CG）117人中，有25人感染了中共病毒。
+*素材采编：子辰*
 
-对照组中有21名患者有发热症状（fever），而试验组中仅有一名1名患者有发热症状
+*编辑：文顺*
 
-对照组中有19人出现味觉和/或嗅觉障碍（taste and/or smell disturbances），而试验组中没有人出现这种症状
-
-对照组中还有很多人出现高频率的多关节痛（polyarthralgia）、腹泻（diarrhea）、腹痛（abdominal pain）和低氧饱和度（low oxygen saturation）
-
-对照组有1例患者出现急性下呼吸道感染症状和体征
-
-结论：伊维菌素/iota-carrageenan可以通过阻断输入蛋白α/β（importin alpha/beta）来阻止病毒RNA进入细胞核，从而阻止复制，形成了双重病毒屏障（double viral barrier），病毒进入鼻腔（nasal cavity）时，角叉菜胶（carrageenan）在鼻腔中充当粘液溶解剂（mucolytic agent），带负电荷（negative charge）的硫酸化多糖屏障（sulfated polysaccharides）。伊维菌素基于其全身细胞作用（systemic cellular）降低病毒载量，临床试验中显示伊维菌素有非常高的病毒清除率（viral clearance）。
-
-伊维菌素对Covid-19（中共病毒）的预防和治疗均具有有益作用！
-
-参考数据：
-
-[Prophylaxis Covid-19 in Healthcare Agents by Intensive Treatment With Ivermectin and Iota-carrageenan (Ivercar-Tuc)](https://clinicaltrials.gov/ct2/show/NCT04701710)
-
-[Intensive Treatment With Ivermectin and Iota-Carrageenan as Pre-exposure Prophylaxis for COVID-19 in Health Care Workers From Tucuman, Argentina](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8415509/)
-
-[Un estudio demuestra la respuesta antiviral de la ivermectina en pacientes con COVID-19](https://www.argentina.gob.ar/noticias/un-estudio-demuestra-la-respuesta-antiviral-de-la-ivermectina-en-pacientes-con-covid-19)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+*发布：miumiu*
 
  
 
