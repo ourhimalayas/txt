@@ -2,28 +2,25 @@
 ---
 
 
-## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
+## 以假反假！中共要严查统计造假
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794095/)
 
-#### 编译：致敬香港！
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-84.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/nu-08012017122323.html)
+近日，中共中央办公厅、国务院办公厅印发《关于更加有效发挥统计监督职能作用的意见》（以下简称“意见”）。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
-“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
+“意见”指出，坚持问题导向，敢于动真碰硬，统筹开展常规统计督察、专项统计督察和统计督察“回头看”，压紧压实各地区各有关部门防范和惩治统计造假、弄虚作假责任。原则上每5年对各省、自治区、直辖市和国务院有关部门开展常规统计督察，并根据需要对督察整改情况实施“回头看”；针对统计造假、弄虚作假问题突出的地区和部门，视情组织开展专项督察。建立统计违纪违法责任倒查机制，严查利用职权实施统计造假、弄虚作假的责任人，对已经离任的同样要追究责任。
 
-特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
+数据造假是中共以假治国的重要手段和基础。纵观中共历史，其各级的统计数据永远是服务于领导需要和政治需要的。如同中共以贪反贪式的反腐败，所谓遏制“数字上的腐败”也终究是“以假反假”的笑话。
 
-11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
+信息来源：
 
-**新闻来源：**
+[中办国办重磅发文：严查这些人！|监督|审计|职能](https://www.163.com/dy/article/GRQD3L870530WJTO.html)
 
-1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
-
-3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
-
-4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
 
  
 
