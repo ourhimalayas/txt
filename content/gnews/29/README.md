@@ -2,138 +2,28 @@
 ---
 
 
-## 花木兰小调
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1794025/)
+## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
 
-- 圣诞灭共宴 –
-- 响鼓派对秀 –
-- 秘密翻译组之响鼓秀埸 –
-- 写给喜币上市之喜币腔调 –
+#### 编译：致敬香港！
 
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
+“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
 
-作者：澄道来了
-编辑：翼族
-![此图像的alt属性为空；文件名为IMG_5712.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_5712.jpg)
-吹拉吟唱弹异曲
-吞吐唅泯咽同工
+特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
 
-为习送葬
-大游行前总动员
-再次出击
-战士集结演兵埸
+11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
 
-线上聚集
-响鼓秀场
-任君表达
-自由驰骋
+**新闻来源：**
 
-线下游行
-习王孟江
-全球集结
-统一联动
+1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
 
-废话无多
-线上直播
-唯真表达
-圣诞开趴
+2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
 
-山河东南腔
-灭共创意坊
-不拘一格
+3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
 
-花木兰小调
-借古喻今朝
-战友共享
-
-“刘哥讲话理太偏
-七哥讲话哲理现
-战友讲话理不偏
-
-谁说女子享清闲
-妙赞战友胜先贤
-圣徒七哥非等贤
-
-男子打仗到边关
-为习送葬勇字先
-人战一国越弥坚
-
-女子纺织在家园
-幕后巡逻把关严
-千载扬帆灭共船
-
-白天去种地啊
-夜晚来纺棉
-线上去直播啊
-线下伐领馆
-家人受诛连啊
-同事蒙白冤
-
-不分昼夜
-是辛勤把活干
-不分你我
-是笃定把贼铲
-无关生死
-是邪共终玩完
-
-将士们
-才能有这吃和穿
-灭共潮
-才能有这局和面
-喜财富
-才能有这足与宽
-
-您要不相信啊
-请往近前看
-您要不相信啊
-仰头向远看
-您要不相信啊
-抬头喜币看
-
-脚上的鞋和袜
-身上的衣和衫
-中原的活佛手
-盘古的龙大观
-喜币不是梦啊
-数字币才开端
-
-千针万线
-都是他们连
-千天灭共
-怎会不实现
-千载和平
-一定会显现
-
-哼嗨
-嗨嗨优
-哼嗨
-嗨嗨优
-
-你佛佛
-你佛佛
-中不中！
-
-莘县
-阳谷县搭县
-咱走走看！
-
-替父从军花木兰
-口耳相传小调吟
-
-三十晚上大游行
-为习送葬千日行
-
-@ “秘翻响鼓秀埸”节目组
-@ 澄道来了
-@ 爱动爱议码12262
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
 
  
 

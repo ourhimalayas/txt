@@ -2,10 +2,10 @@
 ---
 
 
-## 英国政府将派人员上门强打疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793977/)
+## 喜马拉雅币一周分析与总结（12月20日-12月26日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793979/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山金融部  – ILOVE战神
 
 
 
@@ -13,18 +13,13 @@
 
 
 
-12月25日圣诞节，来自唐宁街的突发消息称，英国政府计划派遣中共病毒疫苗接种员，挨家挨户地去500万尚未接种的家庭中强制接种。
-
-据悉，在过去的一周里，英国卫生部、英国国家医疗服务系统和唐宁街10号一直在讨论，着眼于在全国范围内向接种率低的地区——尤其是农村——派遣疫苗小组推动接种，作为避免封锁和其他限制的一个重要途径。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-12.jpg)
-有分析人士指出，英国政府无视各地民众已经持续数月的，大规模反对疫苗护照和强制接种的示威抗议活动，尤其是目前已接种疫苗对Omicorn几乎无效的情况下，仍然作出如此违背宪法、反人类的政策，着实令人震惊。
-
-参考链接：
-[Door-to-door Covid jabs as Boris considers New Year restrictions TOMORROW but vows to keep schools open: SAGE warns new Omicron wave hospitalisations could be higher than last winter](https://www.dailymail.co.uk/news/article-10344567/Door-door-Covid-jab-teams-sent-homes-five-million-unvaccinated-Britons.html)
+过去一周喜马拉雅币价格回落至36美元上下，平均日交易量约12万6千喜币。喜币上市以来总交易量约2280万枚 ，占今年总发行量的仅约2.28%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-338.jpg)
+据郭文贵先生本周直播中透露，喜联储已经在和某英国公司合作，开发一系列NFT产品。新中国联邦相关的NFT产品未来会有广阔的发展空间，将远远超越现在的NFT市场。NFT的发展将进一步瓦解法币的政府定价权。喜币将成为全世界都需要的、没有政治、没有政府操控的无国界、超级安全、尊重个人隐私、保证个人财富升值和绝对全球通的一种货币。目前全球的数字货币还处于群雄争霸的年代，但未来喜币会成为天下统一之币。G系列媒体平台将在这个历史进程中发挥重要作用。
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编/编辑：文特
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
