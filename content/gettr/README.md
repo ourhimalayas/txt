@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/27/2021 6:00 AM (UTC)`
+
+12/26/2021 Miles Guo: Yesterday’s live stream has proved that the New Federal State of China is saving the world rather than a cult; meanwhile, a major political move was made inside the CCP, and the US government will take a series of measures against the CCP; more progresses will be made to stop the COVID vaccination across the globe<br/><br/>12/26/2021 文贵直播：在昨天直播证明了新中国联邦是在拯救世界而非邪教；与此同时，中共内部有重大政治行动发生，美国政府将对中共有一系列举措，全球在停止疫苗上将有更大进展<br/>
+![img](https://media.gettr.com/group6/getter/2021/12/27/06/c9e6c257-f039-b76b-dd03-3a0e69f5674e/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@harnwell 12/26/2021 5:38 PM (UTC)`
@@ -154,13 +161,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12月24号：衷心地祝愿全天下的所有的人……兄弟姐妹们．和家人们．圣诞节快乐🎄应很多很多战友要求．明天中午12:00到下午5:00或10点……7哥和25岁以下的爆二代战友们直播．庆祝圣诞🎄❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 ![img](https://media.gettr.com/group48/getter/2021/12/25/02/a3d08123-7878-d238-31bb-e57001f047e9/out.jpg)
-
----
-
-`@miles 12/25/2021 1:59 AM (UTC)`
-
-Who is Miles Guo Episode 1 <br/>谁是郭文贵第一集<br/><br/>The story about the Terminator of CCP <br/>中国共产党终结者的故事
-![img](https://media.gettr.com/group49/origin/2021/12/25/01/123756da-64eb-d67f-907d-7168a7c7a29c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
