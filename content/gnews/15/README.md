@@ -2,46 +2,48 @@
 ---
 
 
-## 严防西方思想渗透，中国官方禁止过圣诞节
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1793912/)
+## 英国政府将派人员上门强打疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1793977/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1640397522_2512210912584200000061c67ad2ee283.jpg)
+作者：纽约香草山文艺部 – 宁文静
 
 
- 
-图片来源： 中新网
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 整理/编辑：小红帽
 
-根据DW 12月26日报道，亚洲天主教新闻社Ucanews引述，**中国政府对民间和教会庆祝圣诞节都做出限制指示。从中国一份官方文件显示，圣诞节是一个“被禁止的西方节日”。**
+12月25日圣诞节，来自唐宁街的突发消息称，英国政府计划派遣中共病毒疫苗接种员，挨家挨户地去500万尚未接种的家庭中强制接种。
 
-中国政府明确要求落实中国化的政策，严格禁止庆祝西方文化和节日，理由是新冠感染人数重新增加需要限制圣诞庆祝活动。
+据悉，在过去的一周里，英国卫生部、英国国家医疗服务系统和唐宁街10号一直在讨论，着眼于在全国范围内向接种率低的地区——尤其是农村——派遣疫苗小组推动接种，作为避免封锁和其他限制的一个重要途径。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-12.jpg)
+有分析人士指出，英国政府无视各地民众已经持续数月的，大规模反对疫苗护照和强制接种的示威抗议活动，尤其是目前已接种疫苗对Omicorn几乎无效的情况下，仍然作出如此违背宪法、反人类的政策，着实令人震惊。
 
-依照中国官方的规定，爱国教会教堂的“门面”圣诞庆祝活动被允许拍照和转播。这么做的目的是制造教会活动没有受到限制的假象。
+参考链接：
+[Door-to-door Covid jabs as Boris considers New Year restrictions TOMORROW but vows to keep schools open: SAGE warns new Omicron wave hospitalisations could be higher than last winter](https://www.dailymail.co.uk/news/article-10344567/Door-door-Covid-jab-teams-sent-homes-five-million-unvaccinated-Britons.html)
 
-12月20日，一份“关于弘扬民族传统文化禁止过洋节的通知”在网上被曝光。中国官方为了避免西方的批评原本并未想将这份文件公之于众。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-近日，中国媒体也曾报道过，广西融安县教育局曾发布过一份“关于弘扬民族传统文化禁止过洋节的通知”。
+总编/编辑：文特
+校对/发稿：为真不破20
 
-通知中说，县教育局决定禁止师生在校园内外组织开展各类“洋节”庆祝活动。上面还留有融安县公安局国保大队的举报电话。
+**更多资讯，更多关注**
 
-融安县教育局向媒体《 极目新闻》确认了文件的真实性，称该通知书为内部文件。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1640397498_2512210912581800000061c67aba61963.jpg)
-在中国被官方承认的宗教包括佛教、道教和伊斯兰教和三自爱国教会，但是这些宗教都受到中国政府严格的管控。多年来，未在中国官方登记的宗教组织和团体都受到当局严厉打压。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源：[媒体：中国官方限制庆祝圣诞节 | 文化经纬 | DW | 26.12.2021](https://www.dw.com/zh/%E5%AA%92%E4%BD%93%E4%B8%AD%E5%9B%BD%E5%AE%98%E6%96%B9%E9%99%90%E5%88%B6%E5%BA%86%E7%A5%9D%E5%9C%A3%E8%AF%9E%E8%8A%82/a-60260215)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-***发布：小红帽***
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

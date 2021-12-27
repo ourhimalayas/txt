@@ -2,31 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月26日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1793946/)
+## 招架不住—100%疫苗接种的美国军舰因中共病毒而被困港口
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793985/)
 
-作者：香草山翻译部
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-140.png)
+图片来源：谷歌图片
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+据零对冲报道，美国海军在圣诞夜宣布，由于在其100%注射了疫苗的船员中爆发了新冠病毒，一艘正在关塔那摩湾访问的、原计划部暑到南美的美国海军濒海战斗舰密尔沃基号（USS Milwaukee）已被迫暂停在那里的海军基地港口，据美联社报道，它于 12 月 14 日从佛罗里达州梅波特开始部署，正前往美国南部司令部地区。
 
+美国第四舰队在一份声明中说：“密尔沃基号（LCS 5）是一艘自由型濒海战斗舰，由于一些水手的 COVID-19 检测呈阳性，它仍留在港口。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1227text-SC.png)
-校对：Stay文苑
+“船员已 100% 接种了疫苗，所有 COVID-19 阳性的水手都在船上隔离并远离其他船员。 部分感染者表现出轻微症状。 该疫苗正在继续展示对严重疾病的有效性。”
 
-编辑：Stay文苑
+该战斗舰原计划前往美国第四舰队行动区，以支持南方联合跨机构特遣部队的任务，其中包括在加勒比海和东太平洋打击非法贩毒的任务。
 
-发稿：Stay文苑
+美国第四舰队的声明并没有披露感染人数，包括其中有多少人表现出轻微症状，具体的 COVID-19 变体尚未确定。
 
-视频参看：[12.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c916b500f9a119180b8a19)
+随着传染性 Omicron 变种的传播，美国各地的 COVID-19 病例最近急剧增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+2020 年初，在太平洋地区作战的另一艘海军军舰西奥多·罗斯福号航空母舰由于 COVID-19 的爆发而在关岛搁置了大约 10 周。 船上 4,800 名水手中约有 1,000 名被感染，一名 41 岁的水手死于 COVID-19。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+大约 4,000 名船员被转移到岸上进行隔离和治疗，而大约 800 名船员留在船上以保护和运行高科技系统，包括运行该船的核反应堆。
+
+根据海军的最新数据，超过 98% 的现役水手已经完全接种了疫苗。
+
+原文链接：https://www.zerohedge.com/covid-19/us-navy-warship-pauses-deployment-after-covid-outbreak-among-100-percent-immunized-crew
 
  
 
