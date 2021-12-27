@@ -2,28 +2,98 @@
 ---
 
 
-## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
+## 视频| 林郑被第二次召见的目的和对香港股市的影响以及习皇帝龙椅的来历
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1794070/)
 
-#### 编译：致敬香港！
+## 摘自2021.12.24郭先生大直播
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
-“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
+制作：香草山视频部
 
-特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
 
-11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
 
-**新闻来源：**
+香港的股市从23000跌到22000夸夸反弹
+什么时间，林郑月娥去北京了
+坐在龙椅前，被皇帝召见，就差磕头了
+这个大龙杯和龙椅呀
+我直播说过好多次，你们都忘了
+这是2018年习近平正式的启动电视看到的时候
+当时林郑月娥到北京述职
+就是坐在这把龙椅下面，一模一样的杯子
+那个龙椅是习上来以后刻的龙椅
+那套龙椅你现在花10亿你也买不过来
+但是真正的，过去叫水木
+从这个四川重庆发现水底下
+大唐朝时期1000多年前
+沉在水里边的真正的紫檀
+把这紫檀从水里捞出来以后
+进行处理刻出来的龙椅
+那是真家伙
+那个不是开玩笑的，那个天价了
+然后杯子是在景德镇烧了7000多套
+才拿出来不到10套成功的
+其他全砸了
+那是真正的中国的景泰蓝瓷啊
+他那次见完林郑月娥直接香港运动开始2019年
+林郑月娥先去了广东，广东然后去的广西
+我就是说香港大难要来了
+2019年5月份我开始说这个事儿
+大家都说不可能
+我说一定会香港实施国安法
+而且一定会遣返法
+遣返法就是国安法
+而且不论你怎么折腾
+我说共产党就全部给你拿下
+然后拿下你立法会
+最后你看到林郑月娥在9月份的时候
+8月底讲出了话
+说你们真想玉瓦俱碎吗
+你真想把香港送入到一个不归的路吗
+这次又去北京了
+第一要换特首立法会是个好制度
+就是我说了算，习天下，习说了算
+你别看他那个杯子那个龙椅
+那里面的文章可大了去了
+明确告诉党内，（习）我就是皇帝
+皇帝的配置是啥
+皇帝用的颜色你老百姓不能用
+皇帝用的衣服龙袍
+你穿了要杀毒株连九族13族
+皇帝说的话你不能重复
+皇帝是有标准的，太监也是有标准的
+那是一个标准，那是一个制式
+然后见林郑月俄见澳门特首
+见完以后，你看接下来对
+整个对香港澳门重新大开杀戒
+把香港的富豪再弄一圈儿
+把澳门的人再弄一圈儿
+把澳门的赌牌香港的赌牌
+香港的所谓改革开放加大开放化
+把澳门香港再度国际化
+一定会再来一搓就骗一把钱
+然后重新洗牌
+全姓习，都是习家派出的人
+所谓党和国家的爱国者
+这里边是有很大意义
+那么这个时候你股票跌22000怎么能行呢
+打回去，直接就回到23000以上
 
-1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
 
-2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
 
-3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
+发稿：雪梨
 
-4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
