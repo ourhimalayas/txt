@@ -2,21 +2,26 @@
 ---
 
 
-## 金凰珠宝，金玉其表。
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1794427/)
+## NBA球队被要求在元旦前夕举办加强针接种活动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794459/)
 
-撰稿—韩国首尔天池农场战友
-校对/上传—无明逆流
+#### 翻译/撰稿：zzballack
 
-用7000块钱，还是中共发行的人民币，就可以买下一家上市公司全部股份，还是美国上市公司，这不是说梦话，是真实存在的事情。该公司目前股价为0.0001美元/股，不到一分钱，总市值为1107美元，这家公司就是金凰珠宝，是中共国首饰业第一家赴美上市公司，其股价一度达到10美元/股。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-21.jpg)图片来源：路透社
+据《布雷特巴特新闻网》（Breitbart News）12月26日报道，北美男子职业篮球联盟（NBA）将要求联盟所有球队在元旦前夕举办新冠疫苗加强针接种活动，让符合条件的球员、工作人员和他们的家人接种加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Ima59-PM.jpeg)图片来源：网络
+《体育报》（The Athletic）的记者沙姆·查拉尼亚 (Shams Charania)12月24日在推特上公布了这一消息，他说，鉴于新冠病例的增加，所有NBA球队都被告知，他们必须在12月31日之前举办一次加强针接种活动。
 
-金凰珠宝之前曾用80吨黄金作为质押，向民生信托等金融机构融资160亿元。结果曝出这80吨黄金是假的，金凰宝珠根本没有那么多黄金，这也导致了多家信托机构爆雷。也就意味着花七千块钱买下这家美国上市公司，就要承担过百亿债务。
+尽管可能是所有主要体育联盟中疫苗接种最彻底的，但NBA最近仍受到了新冠感染人数激增的影响。据报道，NBA中97%的人接种了疫苗，至少60%的球员接种了加强针。但仅在12月份，就有多达123名球员新冠检测呈阳性。这导致了一系列比赛被推迟，赛程被打乱。
 
-文贵先生几年前就说过：赴美上市的中共国企业都是一帮骗子！早晚被打回原形，连底裤都会输光！金凰珠宝的操作手法，完全可以作为中共国企业的一个典型代表，完全印证了文贵先生说中共假、骗、偷的本质，金玉其外，败絮其中！金凰珠宝的爆雷开了个好头，坐等接下来中共企业大规模爆雷潮的到来！
+然而，NBA总裁亚当·萧华（Adam Silver）仍对此不以为然，他最近说，新冠病毒不会被根除，我们不得不学会与它共存。
 
-相关新闻：[太奇葩！股价不足1分钱，总市值仅7018元，曾用80吨假黄金骗百亿](https://m.toutiaocdn.com/i7044788001913831972/?req_id=202112261219320101502220401A08D407&amp;utm_source=mobile_qq&amp;app=news_article&amp;group_id=7044788001913831972&amp;tt_from=mobile_qq&amp;utm_medium=toutiao_android&amp;utm_campaign=client_share&amp;use_new_style=1&amp;share_token=9bab0bb2-4565-4179-b64c-f5a93de8de48&amp;timestamp=1640492373)
+无数事实证明，新冠疫苗无法预防新冠病毒的感染和传播，反而会增加感染风险。但是，全球大多政府和机构仍执意推广加强针，真的是越来越疯狂。也许只有当大规模的灾难显现时，看清新冠疫苗真相的人们才会主动停止这一趋势，向疫苗说不！
+
+新闻来源：
+
+[NBA Teams Required to Host Booster Shot Events by New Year’s Eve Amid Coronavirus Surge](https://www.breitbart.com/sports/2021/12/26/nba-teams-required-host-booster-shot-events-new-years-eve-amid-coronavirus-surge/)
 
  
 
