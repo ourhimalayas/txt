@@ -2,29 +2,32 @@
 ---
 
 
-## 【秘翻在线】纽时亚洲副主编接种新冠疫苗加强针次日离世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1794036/)
+## 疫情导致三星西安半导体工厂进入紧急状态 或影响产品交付和价格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1794094/)
 
-#### 编译：致敬香港！
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-54.png)[图片来源](https://docs.google.com/document/d/1hdUEE164rd_NyWhx8wKjCvCxD5XRDF43esvUnp93nlw/edit)
+据集微网12月26日消息，因受到西安封城防疫措施影响，三星电子设在当地的半导体工厂目前已进入紧急营运状态，目的是为了确保生产正常。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1493.png)图片来源： The New York Times
-“国家脉动”网12月26日报道，《纽约时报》49岁的亚洲副主编特哈达（Carlos Tejada，中文名田康）17日在韩国首尔因“心脏病发作”去世，他于前日接种了莫德纳加强针。
+目前三星电子正在尽最大努力，动员居住在员工宿舍内的人员，以确保生产线运作正常。
 
-特哈达已婚并育有2子，曾在《华尔街日报》工作5年，加入《纽时》后部分参与了新冠疫情报道。他在2021年7月接种了强生新冠疫苗，12月16日在[Instagram](https://instagram.com/crtejada?utm_medium=copy_link)上发布了再接种加强针的帖，17日早他妻子通过他的[推特](https://twitter.com/crtejada/status/1472099053504966656?s=24)发布了他的死讯。令人叹息的是，特哈达在前一天接种加强针后发的帖子里，还在开玩笑说，“嘿，奥米克戎，把你的大鼻涕甩过来吧！”《纽时》在22日证实了特哈达的死讯，但并没有提到他临终前几小时刚刚接种了新冠疫苗加强针。该报前雇员[贝伦森（Alex Berenson）发文](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)，希望特哈达的死能“唤醒纽时”。
+目前三星已将生产所需人员安置在工厂附近的员工宿舍、而非一般的私人住宅，目的是防止员工和外部接触。另外，三星正与当地相关单位进行协调，盼能允许这些员工进出工厂。该公司一名管理人员表示，正密切关注事态发展，并就后续运营与当地政府保持沟通。
 
-11月[发表于美国《心脏协会杂志》 （JAHA）的研究](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)表明，接种mRNA 疫苗后人体内的炎症指标会升高；12月又有[知名医学网站Medscape 的研究报告](https://www.medscape.com/viewarticle/964611)指出，短期内连续接种新冠疫苗的人更可能出现心肌炎、心包炎等严重副作用；就在12月10日，美疾控中心（CDC）才发表了[12月1日~8日间的数据报告](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)，称奥米克戎病例中80% 是完全接种者，其中47%接种了2针，33%甚至接种了加强针；而对于不同新冠疫苗的混打，其安全性和效果至今还并没有足够的临床数据来做进一步的研究。
+目前，三星在西安布局以NAND Flash为主，一期月产能约12万片，二期月产能则约13万片，共占该公司NAND Flash产能42.3%，占全球也有15.3%。
 
-**新闻来源：**
+TrendForce指出，目前封城措施并未影响工厂正常营运，尽管年底至明年1月中前的出货多已经安排妥适，但无法排除接下来因物流延迟出货的可能。
 
-1. [NY Times Editor, 49, Dies One Day After Moderna Booster Shot](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+此外，三星原物料进货也可能受物流受阻而延迟，但厂区内仍有安全库存水位，可应付未来数月的生产。
 
-2. [A NY Times editor has died of a heart attack at 49, one day after receiving a Moderna Covid “booster” shot](https://alexberenson.substack.com/p/a-ny-times-editor-has-died-of-a-heart/comments)
+业界指出，近期NAND现货价小幅震荡，但跌幅已趋缓，价格修正期较以往明显缩短，若三星西安厂受当地封城影响，将牵动NAND Flash价格走势，有助价格翻扬向上。
 
-3. [Longer Time Between COVID mRNA Doses May Cut Myocarditis Risk](https://www.medscape.com/viewarticle/964611)
+信息来源：
 
-4. [Morbidity and Mortality Weekly Report (MMWR)](https://www.cdc.gov/mmwr/volumes/70/wr/mm7050e1.htm?s_cid=mm7050e1_w)
+[三星西安半导体工厂进入紧急运营状态或影响NAND Flash价格走势\_网易订阅](https://www.163.com/dy/article/GS5LQQUJ0511RIVP.html?f=post2020_dy_recommends)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
