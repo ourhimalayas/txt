@@ -2,32 +2,16 @@
 ---
 
 
-## 东京发现首例奥密克戎变体确诊病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795450/)
+## 麦卡洛博士: 中共病毒患者院前早期治疗能减少住院与死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1795476/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-18.jpg)
-东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
+哈佛大学和一家名为Surgisphere的公司于2020年6月在《柳叶刀》上发表了一篇关于羟氯喹的欺诈性的论文，称称羟氯喹对治疗中共病毒患者治疗有伤害。这篇论文在《柳叶刀》上刊登了两个星期，后因强大的质疑声被下架。
+美国国立卫生研究院与食品药品管理局之间似乎已经预先决定了推进现有的基因疫苗。他们不重视其它可能更有效的疫苗品种，也不打算就早期治疗进行任何讨论。麦卡洛博士（Dr. Peter McCullough）认为这是一场赌博。
+根据麦卡洛博士的研究和观点，早期的院前治疗与提升生存率有关。
+麦卡洛博士用了羟氯喹与其它药物组合为中共病毒患者进行早期治疗，预防住院与死亡。
 
-与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-参考链接:[1st community spread of Omicron virus variant in Tokyo confirmed](https://japantoday.com/category/national/urgent-1st-community-spread-of-omicron-virus-variant-in-tokyo-confirmed?)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

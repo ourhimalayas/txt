@@ -2,24 +2,28 @@
 ---
 
 
-## 被强制超长时间审核恶性视频 员工起诉抖音
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795393/)
+## G-Club是新中国联邦找到好人的一把钥匙
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1795431/)
 
-作者：银河勇气星 – 骄子
+作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月24日，据有关媒体消息称，因抖音强制其内容审核员超负荷审查包含恶性内容的视频，一审核员对抖音及其母公司字节跳动提起集体诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-37.jpg)
-这位审核员透露，抖音的内容审核员负责审核，包括强奸和虐待动物等各类恶性视频。这些审核员长期超负荷工作，工作时间长达12个小时。由于审核令人不安的视频，诉讼当事人患上了创伤后应激障碍。因此，她希望代表所有的内容审核员，要求抖音对此进行赔偿。
+12月25日，在圣诞节特别直播中，郭文贵先生透露，G-Club与世界最具实力的英国某女子学校，进行了深度合作。目前因中共病毒造成世界各地封锁，暂时搁置进行下一步计划。
 
-资料显示，一般社交媒体平台会为其内容审核员提供相关帮助，来应对工作带来的创伤，如心理辅导和缩减轮班时间，但抖音并未提供任何措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-25.jpeg)
 
-参考链接:[TikTok Sued by Content Moderator Traumatized by Graphic Videos](https://www.ndtv.com/world-news/tiktok-sued-by-content-moderator-candie-frazier-traumatized-by-graphic-videos-2668762/amp/1)
+郭先生说，英国这所女子学校，给世界文明带来了巨大进步，是真正对人类生存法则的传授。进入这些地方学习，是普通人终其一生到达世界顶级文明的独木桥。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+G-Club使新中国联邦人和世界最前沿文明接轨，开辟了培养具有文明、真诚待人等品质人才的途径，完全没有政治性或商业性，尤其注重对女性的培养，因为女性的品质和品位，对家庭和后代非常重要，家庭是组成国家的基本单位。
 
-总编：童谣
-编辑：Irene木木
-校正/发稿：Fei797
+G-club是新中国联邦人走向世界的护照与身份证，也是找到好人、培养好人的一把金钥匙。
+
+参考链接：[2021年12月25日 文贵大直播 🎄圣诞特别节目🎄 “爆二代”— 希望与力量](https://gtv.org/video/id=61c74f5100f9a119180a92be)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
