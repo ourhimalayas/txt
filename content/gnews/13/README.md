@@ -2,36 +2,36 @@
 ---
 
 
-## 郭先生谈人生在世如何渡过自己
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1798725/)
+## 全世界多地气温骤降，能源价格飙升
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1798781/)
 
-作者：银河勇气星—骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
+作者：日本方舟农场—Andy5
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
 
 
-2021年12月25日圣诞大直播节目中，郭先生与战友分享关于人的灵魂话题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/christmas.png)
+2021年12月北半球多地寒潮来袭，气温骤降。与此同时许多地方的能源资费也在不断增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/DEC.5.jpg)
+12月26日加拿大发布极端寒冷天气预警。日本也遭受来自日本海方向的强烈寒流，东京12月的气温在45年以来首次降至零度以下，日本海一侧多县出现大雪。 而欧洲则进入冬季以来因气温降低造成风力发电量低落，从而导致电价飙升至历史上的高峰时期。与此同时，天然气价格也飙升至年初的8倍。
 
-郭先生早年从清丰看守所出来之后遍访各大宗教高人，都未能得到关于灵魂方面的解答。一次在五台山，与某高僧站在悬崖之上，清风拂面，但是不能再向前踏出一步，踏出就会粉身碎骨，而退后则是已经厌倦的人生保护壳。
-
-高僧说，每个人都会面临人生的悬崖时刻，不能退不能遂。佛家和道家，不过都是在解决这个问题：如何渡过自己。人的肉身虽然被物理限制，但不能成为到达彼岸的限制。
-
-今天的一切互联网技术让人和人之间的交流如此便捷，起码在此时，已经突破了肉身的限制。 灵魂就像风，而风从彼岸吹来。
-
-由此得出，人的灵魂来自地球之外的宇宙。每个灵魂到达地球是有原因的，目的是放下一切累赘和恐惧，渡过自己，解放自己，升华自己，在美好中到达彼岸。新中国联邦链接着每一个战友，像区块链一样，本能永远存在，每个个体彼此独立而又彼此相连，这是最大的魅力。
+同样，日本的电价和燃气价格也连续6月上涨。郭先生在之前大直播中警告的全球能源危机，正在成为现实。在此也提醒在北半球各地的战友，在防范病毒感染的同时，注意保暖和生活能源的保障。
 
 参考来源：
 
-[https://gtv.org/video/id=61c74f5100f9a119180a92be](https://gtv.org/video/id=61c74f5100f9a119180a92be)
+1.[https://finance.sina.com.cn/jjxw/2021-12-27/doc-ikyakumx6651600.shtml](https://finance.sina.com.cn/jjxw/2021-12-27/doc-ikyakumx6651600.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+2.[https://www.epochtimes.com/gb/21/12/20/n13448345.htm](https://www.epochtimes.com/gb/21/12/20/n13448345.htm)
+
+3.[https://cn.reuters.com/article/europe-gas-prices-surge-putin-comments-1-idCNKBS2J600W](https://cn.reuters.com/article/europe-gas-prices-surge-putin-comments-1-idCNKBS2J600W)
+
+4.[https://www.cna.com.tw/news/firstnews/202112270081.aspx](https://www.cna.com.tw/news/firstnews/202112270081.aspx)
+
+5.[https://news.yahoo.co.jp/articles/2950895717bdc540f089c2c7e372d688ecbf8de3](https://news.yahoo.co.jp/articles/2950895717bdc540f089c2c7e372d688ecbf8de3)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-10.png)
 
 编辑/校正/发稿：兰兰
 
@@ -45,11 +45,11 @@
 
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
 
 

@@ -2,57 +2,37 @@
 ---
 
 
-## 雅典娜疫情更新（2021年 12月28日）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798575/)
+## DC每日热点1228
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1798611/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-11.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
-感染总数：2.81亿（日新增145万）
-死亡总数：541万（日新增 6526人）
-每万人感染人数：435.1752人（除中国外）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122.png)全球累计病例数变化曲线（除中国外）来源：Our World in Data
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
-图片来源：Our World in Data
-![](https://assets.gnews.org/wp-content/uploads/2021/12/123-1.png)英国，澳大利亚，欧盟，美国每日每百人疫苗接种数量变化曲线的比较
-（来源：Our World in Data）
-**三，澳洲疫情和“疫苗”数据**
-感染总数：323,278（今日新增 11,267人）
-死亡总数：2202人
-每万人感染人数：120.3953人
-“疫苗”毒针注射总数：42,252,227  （今日新增31,159针，毒针注射数量是昨日的3倍有余）
-第二针“接种”：1879.6999万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.2%
-16岁以上人口接种至少两剂疫苗的比例：91.2%
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B1DFC0A5-E403-46B6-95E4-B0B1417EE72E-scaled.jpeg)
+道琼斯指数 35950.56 ▲0.55%
+纳斯达克指数 15653.37 ▲0.85%
+WTI纽约原油CFD 76.335 ▲1.01%
+布伦特原油CFD 78.895 ▲0.86%
+标普50指数 2,877.76 ▼41.76%
+美元兑人民币 1USD=6.367 RMB
+美元兑港币 1USD=7.798 HKD
+国际黄金 1818.18 美元/盎司
+全球CCP病毒感染人数 282,034,726例
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/124.png)
-今日澳大利亚病例新增再创新高，超过了一万一千人。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。那么全球疫情如何呢？下图比较了全球各地区每10万人中的病例数的变化曲线 ：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/126-1.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
-在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。郭先生爆料早就提到了中共的“灭白计划”，HBO对郭先生精心剪辑的污蔑节目中也把“灭白计划”当作“阴谋论”之一来攻击。可是看看现在的疫情曲线，除了灭白计划，还有其它更好的解释吗？
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1、老挝将于1月1日重开封闭逾18个月的边境，预计包含美、中等17国的游客将可前往老挝首都等“绿区”旅游，以提振当地惨遭疫情冲击的观光产业
+2、朝鲜领导人金正恩新年前夕召开执政党会议
+3、十天减为五天：美疾控中心建议缩短美国人的新冠隔离期
+4、纽约市决定将参加时报广场跨年狂欢活动的人数限制到1万5千，通常会有约6万人聚集
+5、拜登总统与州长开会讨论新冠病例激增及检测短缺问题
+6、拜登总统签署《国防授权法》 内容涉及应对中共国威胁的措施
+7、缅甸法庭再次推迟对昂山素季的宣判
+8、在北京证实收到美国政府人员在北京冬奥会期间赴中国签证申请的消息后，拜登政府重申对北京冬奥会进行外交抵制的立场
+9、中日防长视频通话，双方同意加强战略沟通和危机管控
+10、法总理和卫生部长宣布新的防疫措施：要求民众在户外必须佩戴口罩
+11、奥蒂嘉宣布没收台湾大使馆转赠中共国，台批非法侵占
+12、杜特尔特：台海爆发战争 菲律宾将保持中立
+13、美环保组织：难以评估北京冬奥是否确实达到净零排放
+14、土耳其敦促俄罗斯放弃对北约的单方面要求
+15、 滴滴被指禁止员工出售股票 股价受挫
+16、纽约市染疫病例激增 苹果关闭部分零售店
 
  
 
