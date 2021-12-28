@@ -2,58 +2,24 @@
 ---
 
 
-## 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799595/)
+## 美国：疫情肆虐 无症状感染者隔离期变短
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1799631/)
 
-[https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2](https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-61.jpg)（图片来源于本文链接）
+美国疾病控制与预防中心（CDC）周一（12月27日）宣布，无症状中共病毒（新冠病毒Covid-19）患者的隔离期将从10天缩短到5天。该疾控机构援引相关证据表示，那些中共病毒病毒感染者在出现症状之前的两天和之后的三天内最具传染性。
 
-**郭文贵**
-**Miles Guo**
+疾病控制与预防中心还更新了与感染者有密切接触者的建议隔离期。对于未接种疫苗或未接受加强针的群体，疾控中心建议其隔离五天，并在接触后的五天内严格使用口罩。而接受加强针的人在接触感染者后则不需要隔离，但应在接触后10天内戴口罩。疾病控制与预防中心的指导原则虽然不具有约束力，但受到美国企业和政策制定者的密切关注，随着奥密克戎(omicron)变体的出现，美国的新冠病例激增。
 
-但是现在上天赐予了新中国联邦一个机会
-But now God has granted a chance to the New Federal State of China
+员工因隔离导致的缺勤正在影响多个行业。疾控中心的主任瓦伦斯基（Rochelle Walensky）介绍，美国将出现大量奥密克戎病例，但是“这些病例中不是所有的都会发展成重症。事实上，许多感染者将是无症状的。”她向美联社表示：“我们希望确保有一种机制，让我们可以在遵循科学的同时安全地继续保持社会运转。”上周，该机构还放宽了对医疗人员的隔离规定，工作人员如果测试结果为阴性而且没有症状，七天后就可以回去工作。之前的规定是，如果医疗人员中共病毒检测呈阳性，他们必须停止工作10天。目前，具有高传播性的奥密克戎毒株已在美国蔓延并成为该国的主导毒株。过去两天里，美国每天都有超过20万个新增感染病例。美国总统拜登周一警告，疫情可能会使一些医院“人满为患”，但美国人无需恐慌，因为美国已经做好了应对最新一轮病例激增情况的准备。拜登补充道，奥密克戎蔓延造成的影响将不同于疫情爆发之初或德尔塔（Delta）变异株蔓延。拜登同时承诺，将缓解中共病毒检测试剂盒短缺问题。同一天，拜登在接受记者采访时，拒绝透露他是否赞同要求国内航空旅行人员接种疫苗。
 
-全世界需要一个没有政治、没有政府操控的、无国界的、超级安全的、尊重个人隐私、保证个人财富升值和绝对全球通的货币
-The world needs a currency that has no politics, no government control, no borders, super safe, respect for personal privacy, guarantees for the appreciation of personal wealth, and absolute global access
+信息来源：
 
-那就是我们的喜币，它需要一个过程
-That is our Hcoin, it needs a process
+[美国：疫情肆虐 无症状感染者隔离期变短](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E7%96%AB%E6%83%85%E8%82%86%E8%99%90-%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85%E9%9A%94%E7%A6%BB%E6%9C%9F%E5%8F%98%E7%9F%AD/a-60274256)
 
-如果你不等到那个过程，肯定你会被淘汰出去
-If you can’t wait for that process, you will definitely be out of the game
-
-那就像未来这个过程当中，发挥重要作用的就是这些媒体平台
-It’s like these media platforms will play an important role in this process in the future
-
-让更多人知道如何使用喜币，然后尊重喜币
-Let more people know how to use Hcoin, and then respect Hcoin
-
-可把喜币发挥出应有的价值，那跟GTV、Gnews、Gettr都有巨大的关系
-It can play out the value of HCoin, which has a huge relationship with GTV, Gnews, and Gettr
-
-我不说你们懂的
-I don’t have to say, you understand
-
-**原视频链接: **[https://gettr.com/post/pkqhfs1eb8](https://gettr.com/post/pkqhfs1eb8)
-
-Date: 12/27/2021
-原视频标题: 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
-Mr. Miles Guo: Hcoin has no borders, no government control, globalization description
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pkqhfs1eb8
-任务编号：KC375（3354）
-视频时间段 : 0:00-0:50
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

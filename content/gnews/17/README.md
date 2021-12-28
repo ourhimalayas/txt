@@ -2,45 +2,34 @@
 ---
 
 
-## Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799310/)
+## 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1799520/)
 
-作者：Drea Humphrey
-翻译：KK
+By：喜国公民
+视频来自网络
+[彼得·麦卡洛博士在接受“乔·罗根经历节目”采访](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)时，谈到彼得·布雷金最近出版的书：《新冠病毒和全球掠夺者：我们是猎物》，以及波贝特·肯尼迪撰写的《真实的安东尼-福奇》。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.png)
+书中揭露了邪恶势力如何预谋和实施了这次新冠病毒大流行和新冠疫苗的大规模接种，并全面疯狂地打压早期治疗药物，如羟氯喹和伊维菌素。
 
-BC 省卫生官员邦妮·亨利博士再次封锁圣诞节和新年，但 Omicron 变体是否足以成为这样做的借口？
+他们利用新冠病毒大流行来制造恐惧、痛苦、隔离、住院和死亡，目的是使人们接受新冠疫苗，并在全世界实施大规模新冠疫苗的接种。
 
-12 月 17 日星期五，亨利博士宣布对假期实施全面限制，其中包括取消所有人的新年前夜聚会，下令举办任何规模的有组织的活动，检查疫苗状态，以及限制室内聚会，例如圣诞晚餐，10 个人或一个额外的家庭，需要12 岁及以上的每个人都接种了新冠疫苗。
+这些书描述的都不是虚构的故事。例如《新冠病毒和全球掠夺者：我们是猎物》一书就引用了1000多条参考文献。
 
-考虑到现有的大量证据表明接种疫苗的人也有助于传播这种病毒，强制隔离未接种疫苗的人似乎特别不人道。
+书中揭示了盖茨基金会、全球疫苗和免疫联盟、辉瑞和莫得纳等疫苗制造公司以及武汉病毒实验室是如何勾结，运作，协调和计划的。
 
-在宣布第一波假期限制后的短短 72 小时内，亨利博士又宣布了多项限制措施，这些限制措施将至少持续到 2022 年 1 月 18 日，从而再次侵犯公民自由以及中小型企业的权益。
+具体包括，莫得纳公司在新冠病毒从实验室释放出来之前就在研究新冠疫苗。以及美国国家卫生研究院和美国北卡罗来纳大学的拉尔夫·巴里奇签署新冠疫苗秘密转让协议。
 
-这些限制包括禁止所有室内聚会，如婚礼、俱乐部和休息室被迫关闭，而音乐会和电影院的容量将达到 50%。
+另外，有证据可以佐证这种预谋。[约翰霍普金斯大学曾在2017年召开被称为”SPARS大流行”的研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)。
 
-亨利使用Omicron 变体作为压榨许多人圣诞精神的主要借口。
+会后发表的研讨会出版物中提到，世界上将出现一种与MERS和SARS类似的冠状病毒，将使城市关闭并使人恐惧。
 
-但正如您将在本报告中看到的，佐伊持续时间最长的新冠研究数据表明，虽然 Omicron 变体在接种疫苗和未接种疫苗的人群中迅速传播，但其症状比 Delta 更轻微，并且与普通感冒非常相似。
+还提到人们对治疗新冠病毒的药物的认知将出现混乱，如羟氯喹或伊维菌素。他们将利用这一切，以便将民众纳入大规模接种新冠疫苗的轨道。
 
-来源：[https://www.rebelnews.com/omicron\_symptoms\_are\_like\_the\_common\_cold\_so\_why\_is\_bc\_locked\_down\_for\_christmas\_again](https://www.rebelnews.com/omicron_symptoms_are_like_the_common_cold_so_why_is_bc_locked_down_for_christmas_again)
+该研讨会预测新冠病毒大流行将在2025年发生。但它提前了几年。根据郭文贵先生爆料，中共为了镇压香港的反送中民主运动，释放了武汉病毒实验室中的新冠病毒，照成世界范围的大流行。
 
-（文章仅代表作者个人观点）
+信息来源： [乔](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)[·罗根经历节目](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[约翰霍普金斯大学](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)[2017年SPARS大流行”研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)
 
  
 
