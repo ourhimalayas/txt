@@ -2,57 +2,43 @@
 ---
 
 
-## 参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1797137/)
+## 丑闻：维多利亚州政府撒谎，试图压制二维码的真相
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1797156/)
 
-参议员瑞克·斯科特: 环球时报新闻是认真的么？ 他的笑容？ 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一。 对那个邪恶之人没有什么值得庆祝的。 【转环球时报推文及视频，提及纪念毛贼东诞辰日】
+***爆炸性的法庭裁决显示，丹尼尔·安德鲁斯的政府知道用联系人追踪器或通过二维码分享的个人信息并不安全***
 
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-
-> Seriously, [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)? His smile? Mao Zedong murdered tens of millions of people & is one of the reasons Communist China is the brutal, oppressive dictatorship it is today. There is nothing about that evil man worth celebrating. [https://t.co/kfgciKvIKF](https://t.co/kfgciKvIKF)
-> — Rick Scott (@SenRickScott) [December 27, 2021](https://twitter.com/SenRickScott/status/1475507523956449283?ref_src=twsrc%5Etfw)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/维州丑闻.png)图片来源：The Australian
 
 
-美前国务卿迈克·蓬佩奥： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 能够主导通过南中国海的商业运输，那么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 控制南海的威胁将使我们今天所遭受的供应链问题看起来像是儿戏。
+**整理报道：小鱼儿
+编辑：Candy**
 
+（澳大利亚维州）一项爆炸性的法庭裁决，暴露了丹尼尔·安德鲁斯（Daniel Andrews）政府在数百万维多利亚人的私人信息安全问题上撒谎，并试图掩盖细节。
 
+自大流行病开始以来，维州政府向维多利亚人保证，他们分享的任何细节都只用于公共卫生目的。
 
-> The threat from China's domination of the South China Sea will make the supply chain problems that we're suffering from today look like child's play if the Chinese are able to dominate commercial shipments through the South China Sea.
-> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475628087794708486?ref_src=twsrc%5Etfw)
+然而，《先驱太阳报》今天报道说，用联系人追踪器或通过二维码分享的个人信息并没有得到 “绝对保护”。该报告显示，政府不仅知道这个谎言，而且还积极地试图欺骗公众，堵住了与私人信息安全有关的真相的发布。
 
+Covid指挥官杰罗恩·魏玛（Jeroen Weimar）发起了一项法律诉讼，要求将法庭案件保密五年，以阻止因公开这一消息对政府所造成的损害。
 
+《先驱太阳报》公布的文件显示，魏玛无耻地向法庭辩称，公众对国家联系人追踪系统的信心，比告诉维多利亚人他们的个人信息可能被他人获取的威胁更重要。
 
-众议院军事委员会共和党： 资深成员罗杰斯议员：“我很高兴看到22财年《国防授权法案》 已经签署成为法律…我们的工作还没有完成。随着新年的临近，我们国家面临着来自旗鼓相当的对手前所未有的侵略和威胁，即 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯” 【附众议院官网链接：22财年国防授权法案签署成为法律后罗杰斯的声明】
+这一消息的出现，是由于该部门向法院申请阻止维多利亚州工作保障局（Victorian WorkCover Authority）获取联系人追踪信息，作为其调查该州酒店检疫闹剧的一部分。
 
+在州政府部门推动将这些细节从公众视野中撤销时，文件显示，代表VWA（WorkSafe）的马库斯·霍恩（Marcus Hoyne）认为：法院不应协助公众被误导。他指责该部门寻求压制，“以防止公众了解通过联系人追踪提供的信息，可能不得不披露的真实情况。”
 
+参考新闻：[SCANDAL: Victorian government lied, tried to suppress the truth over QR codes](https://www.rebelnews.com/scandal_victorian_government_lied_tried_to_suppress_the_truth)
 
-> RM [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw): "I am glad to see that the FY22 NDAA has been signed into law… Our work is not finished. As we approach the new year, our nation faces unprecedented aggression and threats from near-peer adversaries, namely China and Russia." [https://t.co/OyQBCtlSIg](https://t.co/OyQBCtlSIg) [pic.twitter.com/VmX5B0wCZX](https://t.co/VmX5B0wCZX)
-> — Armed Services GOP (@HASCRepublicans) [December 27, 2021](https://twitter.com/HASCRepublicans/status/1475564136985731082?ref_src=twsrc%5Etfw)
+***发布：Candy***
 
-
-
-参议员泰德·克鲁兹： “受人尊敬” 哦，是的，他还折磨和谋杀了超过6000万人。 【转’环球屎报’推，有关毛贼东咽气128周年的洗脑宣传视频】
-
-
-
-> “revered” 
-> 
-> Oh yeah, and he also tortured and murdered over 60 million people. [https://t.co/5JKjHIXeN4](https://t.co/5JKjHIXeN4)
-> — Ted Cruz (@tedcruz) [December 27, 2021](https://twitter.com/tedcruz/status/1475268292206022659?ref_src=twsrc%5Etfw)
-
-
-
-美国国务院： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))、气候和其他紧迫挑战时，我们处于更坚实的立足点。 我们在与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家打交道方面处于更强大的地缘政治地位，因为它们试图破坏国际体系。【附布林肯讲话视频】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/HR42uCkak5](https://t.co/HR42uCkak5)
-> — Department of State (@StateDept) [December 26, 2021](https://twitter.com/StateDept/status/1475134313788178437?ref_src=twsrc%5Etfw)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
