@@ -2,52 +2,35 @@
 ---
 
 
-## 可以去酒吧但不能上班？威尔士毫无意义的COVID规定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1798865/)
+## 拜登承认联邦政府抗疫不力 将自主权交还各州
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798884/)
 
-翻译：Jenny Ball
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月27日，拜登与各州州长召开视频会议，承认联邦政府对中共病毒大流行“没有解决方案”，将把决定权交给各个州自行应对。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bar-gloves-635x357-1.png)PHOTO : ASSOCIATED PRESS / PETR DAVID JOSEK
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-7.jpeg)
 
-根据最近在威尔士实施的武汉冠状病毒 (COVID-19) 规定，人们现在可能因上班而被罚款，但威尔士人似乎仍然可以自由地去酒吧。
+作为全国州长协会主席，阿肯色州共和党州长阿萨·哈钦森提醒拜登，不要在对抗中共病毒这一共同目标的时候，成为各州抗疫行动的阻碍。新罕布什尔州长克里斯·苏努认为，联邦与各州之间应该相铺相成，而不是互相消耗资源。拜登同意两位共和党州长的观点，承认联邦政府没有一个统一的办法来缓解COVID-19疫情，更应该在州政府层面解决实际问题。
 
-政府发布的新指南说：“任何人不得出于工作或提供志愿服务，或慈善服务的目的离开居住地。”对于那些出去参加社交活动的人，没有这样的限制。
+目前，拜登政府正在最高法院为其对企业的疫苗强制令进行辩护。这次视频会议，正是在全美多个州联合起来，对拜登政府的多项行政命令发起诉讼的背景下召开的。有评论人士指出，拜登此番示弱，可能想缓和各级政府之间的紧张局面，也有可能拜登政府应对奥密克戎变种病毒的疫情，确实已经无计可施。
 
-该公告与新的在家工作规则有关，该规则是政府为遏制新 的Omicron 变体的传播而引入的。拒绝遵守新规定的人，每次违规将面临 60 英镑（80.5 美元）的罚款——包括那些越境到英格兰工作的人，他们将在返回时被罚款。
+参考链接：[Biden says he agrees with Republican governors: There’s ‘no federal solution’ to pandemic](https://www.foxnews.com/politics/biden-states-fix-omicron-covid-governors-call.amp)
 
-同时，如果企业和公司违反规定，他们可能会被处以最高 10,000 英镑（13,409 美元）的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-虽然在家工作的设置对某些人来说可能是合理的，但新规定在许多人眼中变得可笑，因为，人们仍然被允许在酒吧喝个烂醉。
+总编：文真
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
-西克莱维德的保守党议员大卫琼斯在一条推文中嘲笑了新规定：“从周一开始，威尔士居民如果去办公室工作，将被处以 60 英镑的罚款。然而，他们可以合法地在酒吧里度过一整天。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-琼斯还质疑警方，如何确定一个人是否可以在家工作，因为现场工作必要性的论据很多。琼斯说，威尔士政府的做法不同寻常。“你不能去上班，但可以整天坐在餐厅。您不能在露天看台上观看足球比赛，但可以在拥挤的酒吧里通过电视观看。酒吧里能抗病毒是吗？”他问。
-
-在苏格兰，夜总会访客被告知，他们必须彼此保持一米的社交距离。这遵循爱尔兰的规定，**当局证实人们在舞池里不必戴口罩，但如果他们离开舞池去酒吧或上洗手间，则必须戴上口罩**。
-
-**威尔士现在拥有最严格的**** COVID ****限制**
-
-威尔士的 COVID 限制，现在已成为英国最严格的限制。虽然有不同的方法，但英国部长们表示，由于 Omicron 变体的存在，他们理解采取行动的必要性和紧急行动。英国首相鲍里斯·约翰逊表示，圣诞节前英国不会有新规定，但不排除在圣诞节后实施措施。
-
-宣布后，威尔士千禧中心和其他剧院宣布，将从 12 月 26 日起关闭。加的夫和斯旺西的冬季仙境也将在平安夜晚上 8 点开始关闭。
-
-有报道称，有执照的场所可能只提供餐桌服务，从 12 月 26 日开始，威尔士的酒吧、电影院或餐厅，将允许不超过 6 人见面。户外活动将限制为 50 人，而室内活动限制在 30 人。对于在私人住宅中举行的小型会议，没有设置任何限制。
-
-威尔士政府表示，将为夜总会、零售、酒店、休闲和旅游企业提供总计 1.2 亿英镑（1.6092 亿美元）的资金，但首席部长马克·德雷克福德 (Mark Drakeford) 也再次呼吁，为受限制最直接影响的部门制定休假安排。
-
-“为了更进一步，如果有必要的话，威尔士政府根本没有财力，甚至没有实用的方法来帮助那些可能无法工作的人。为此，我们需要英国政府的帮助，”他说。
-
-至于个人和企业面临的罚款，德雷克福德说，它们旨在保护工人，而不是惩罚他们。
-
-**参考资料：**[newstarget][People can go to the pub, but not to work? Wales dishes out senseless COVID rules](https://www.newstarget.com/2021-12-26-wales-dishes-out-senseless-covid-rules.html)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 
