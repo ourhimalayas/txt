@@ -15,125 +15,125 @@
 
 ---
 
-### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [有声|郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/1/README.md)
+ ` MOSREC`
 
-### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [GTV新闻访谈简报|2021年12月28日早](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
 
-### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/3/README.md)
- ` GTV新闻访谈`
-
-### [中共向党内喊话干部拒绝提拔是不守政治规矩](/content/gnews/4/README.md)
+### [打脸中共内宣新华社关于台湾物价不实谣言](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [串珠505:盘古大观和裕达都有外星人、都有神秘力量](/content/gnews/6/README.md)
- ` 郭爆料串珠`
-
-### [“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [串珠504:病毒和疫苗已致1800万死亡3亿2千万感染](/content/gnews/8/README.md)
- ` 郭爆料串珠`
-
-### [12月27日联盟答疑G系列相关信息文字版](/content/gnews/9/README.md)
- ` 全球G系列咨服群`
-
-### [尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [串珠503:中国股市是共产党开的赌场，党是唯一赢家](/content/gnews/11/README.md)
- ` 郭爆料串珠`
-
-### [泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [全世界多地气温骤降，能源价格飙升](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [中国移动弃购新股金额达7.56亿元](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [mRNA疫苗发明者警告:给孩子注射新冠疫苗 “可能会造成永久性损害”](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [郭先生谈人生在世如何渡过自己](/content/gnews/16/README.md)
- ` GTV News Talk`
-
-### [俄罗斯东正教主教谈中共病毒疫苗](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [拜登、福奇、CDC 再次对美国人撒谎](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/28/2021 国际财经快讯：日本11月工厂产出因汽车生产跃升而大增；旅游股下跌，中共病毒奥密克戎变体连续第四天刺激大量航班取消](/content/gnews/19/README.md)
- ` 秘密翻译组金融团队`
-
-### [Gnews核心价值是搜索功能、信息交易市场和世界精英平台](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [印度拟全面禁止加密货币以发展央行数字货币](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【Michael.Tonny专栏】尸检结果证明，中共病毒对所有器官都会持久的损害！](/content/gnews/22/README.md)
- ` 温哥华扬帆农场`
-
-### [因口误怕被打成特务无还手之力的小新是爆料革命的悲哀](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/28/21 香港快讯 【苹果日报案】黎智英等7人被加控串谋发布煽动刊物罪](/content/gnews/24/README.md)
- ` 英喜-粵語組`
-
-### [DC每日热点1228](/content/gnews/25/README.md)
+### [郭文贵盖特音频2021.12.27](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [抓住错误把战友打成特务是共产党埋在爆料革命里的毒刺](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
+### [有声|【信仰之声】主是葡萄树，我们是枝子](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [我们把政府对时间、行为结果和需要价值的定价权做成NFT](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [雅典娜疫情更新（2021年 12月28日）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共经济有多惨？基金经理转行保安，首席经济学家投资亏20%](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [中共针对房地产问题集中发声，难掩高空置率危机](/content/gnews/30/README.md)
+### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [中共暴政火箭科技版：“AI检察官”可以识别犯罪和起诉](/content/gnews/31/README.md)
+### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [中共向党内喊话干部拒绝提拔是不守政治规矩](/content/gnews/9/README.md)
+ ` G-NEWS TAIWAN`
+
+### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [串珠505:盘古大观和裕达都有外星人、都有神秘力量](/content/gnews/11/README.md)
+ ` 郭爆料串珠`
+
+### [“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [串珠504:病毒和疫苗已致1800万死亡3亿2千万感染](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [12月27日联盟答疑G系列相关信息文字版](/content/gnews/14/README.md)
+ ` 全球G系列咨服群`
+
+### [尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
+
+### [串珠503:中国股市是共产党开的赌场，党是唯一赢家](/content/gnews/16/README.md)
+ ` 郭爆料串珠`
+
+### [泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇和柯林斯积极、刻意地否定《大巴灵顿宣言》，为疫苗铺路](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [全世界多地气温骤降，能源价格飙升](/content/gnews/19/README.md)
+ ` GTV News Talk`
+
+### [中国移动弃购新股金额达7.56亿元](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [mRNA疫苗发明者警告:给孩子注射新冠疫苗 “可能会造成永久性损害”](/content/gnews/21/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [郭先生谈人生在世如何渡过自己](/content/gnews/22/README.md)
+ ` GTV News Talk`
+
+### [俄罗斯东正教主教谈中共病毒疫苗](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [拜登、福奇、CDC 再次对美国人撒谎](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/28/2021 国际财经快讯：日本11月工厂产出因汽车生产跃升而大增；旅游股下跌，中共病毒奥密克戎变体连续第四天刺激大量航班取消](/content/gnews/25/README.md)
+ ` 秘密翻译组金融团队`
+
+### [Gnews核心价值是搜索功能、信息交易市场和世界精英平台](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [印度拟全面禁止加密货币以发展央行数字货币](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【Michael.Tonny专栏】尸检结果证明，中共病毒对所有器官都会持久的损害！](/content/gnews/28/README.md)
+ ` 温哥华扬帆农场`
+
+### [因口误怕被打成特务无还手之力的小新是爆料革命的悲哀](/content/gnews/29/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/28/21 香港快讯 【苹果日报案】黎智英等7人被加控串谋发布煽动刊物罪](/content/gnews/30/README.md)
+ ` 英喜-粵語組`
+
+### [DC每日热点1228](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [抓住错误把战友打成特务是共产党埋在爆料革命里的毒刺](/content/gnews/32/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共经济有多惨？基金经理转行保安，首席经济学家投资亏20%](/content/gnews/33/README.md)
+ ` 澳喜农场`
+
+### [中共暴政火箭科技版：“AI检察官”可以识别犯罪和起诉](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [面对香港“清零政策“，国泰航空飞行员大规模离职](/content/gnews/32/README.md)
+### [面对香港“清零政策“，国泰航空飞行员大规模离职](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/28每日播报｜纽约时报49岁副主编接种莫德纳加强针数小时后突然离世](/content/gnews/33/README.md)
+### [12/28每日播报｜纽约时报49岁副主编接种莫德纳加强针数小时后突然离世](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2021/12/27 墙内世界](/content/gnews/34/README.md)
+### [2021/12/27 墙内世界](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/28每日播报｜巨大的劳动力短缺正在导致美国基础服务的瘫痪](/content/gnews/35/README.md)
+### [12/28每日播报｜巨大的劳动力短缺正在导致美国基础服务的瘫痪](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [习近平中央粉丝团正式成立](/content/gnews/36/README.md)
+### [习近平中央粉丝团正式成立](/content/gnews/39/README.md)
  ` 骄子`
 
-### [台湾考虑就前大使馆移交给中（共）国一事起诉尼加拉瓜政府](/content/gnews/37/README.md)
+### [台湾考虑就前大使馆移交给中（共）国一事起诉尼加拉瓜政府](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/28每日播报｜英国首相正考虑挨家挨户接种疫苗计划](/content/gnews/38/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [灭网红外教和内教是在为习一统天下做铺垫](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/28每日播报|社媒消息：蓬佩奥 罗伯特马龙博士](/content/gnews/40/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [拜登周一签署7680亿美元的国防政策法案](/content/gnews/41/README.md)
  ` wenwu`

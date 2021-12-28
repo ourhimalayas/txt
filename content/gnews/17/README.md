@@ -2,14 +2,12 @@
 ---
 
 
-## 俄罗斯东正教主教谈中共病毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1798710/)
+## 泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1798803/)
 
-制作：葛大饼
+12/21/2021 泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临，他们即将进入完全的极权暴政。如果我死了或消失了，你知道它是从何而来。
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
