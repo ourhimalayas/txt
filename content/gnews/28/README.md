@@ -2,25 +2,39 @@
 ---
 
 
-## 超级计算机模拟结果推翻了中共病毒自然来源说
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797765/)
+## 12/28每日播报｜西班牙电信采购爱立信5G设备以取代部分华为产品
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1797882/)
 
-#### 撰稿：彩虹
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61cad3bc00f9a119180c4dcf)**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-4.png)图片来源：自然科学报告
-12月27日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布了文章，指甲骨文公司（Oracle）的超级计算机进行的模拟结果显示，中共病毒（COVID-19）“高度适应”人类感染，从而推翻了该病毒是通过野生动物蔓延到人类的自然来源说。
+**2021-12-28**
 
-正如澳大利亚知名记者、主播莎莉·马克森（Sharri Markson）在《武汉到底发生了什么》中所揭示的那样，弗林德斯大学（Flinders University）教授兼澳大利亚生物科技公司Vaxine研究主任尼古拉·彼得罗夫斯基（Nikolai Petrovsky）博士使用甲骨文超级计算机的“电脑模拟（In silico modelling）”方法来确定中共病毒（COVID-19）的原始宿主。
+据路透社12月27日报道，西班牙电信（Telefonica）的一位消息人士周一表示，该公司已经从瑞典制造商爱立信购买了5G网络设备，以取代其在西班牙推出的部分华为设备，该消息证实了西班牙平面媒体《拓展报》此前的报道。
 
-彼得罗夫斯基的研究结果似乎确定了人类才是中共病毒（COVID-19）的原始宿主，削弱了该病毒从动物转移到人类的理论，而应该是该病毒直接起源于人类。
+据该消息人士称，更新下一代移动网络设备是西班牙电信在2019年宣布的供应商多样化战略的一部分。
 
-最终，彼得罗夫斯基的团队于2021年6月份在著名的《自然科学报告》杂志上发表了该研究成果，题为《[跨物种的刺突蛋白ACE2结合亲和力的电脑模拟比较：对SARS-CoV-2病毒可能性起源的意义（In silico comparison of spike protein-ACE2 binding affinities across species; significance for the possible origin of the SARS-CoV-2 virus）](https://www.nature.com/articles/s41598-021-92388-5)》。
+拓展报称，该电信公司最初推出了一些已经购买的华为设备，随后再寻求替代设备更换华为产品。
 
-**新闻来源**
+这位西班牙电信的消息人士拒绝透露该公司从爱立信购买设备的数量，以及购买时间。
 
-[Oracle Supercomputer: COVID-19 ‘Highly Adapted’ for Human (Not Bat or Pangolin) Infection](https://thenationalpulse.com/2021/12/27/oracle-supercomputer-supported-lab-leak/)
+华为和爱立信的西班牙部门没有立即回应评论请求。
 
+西班牙电信2019年所做的替换华为决定，正值中共国的华为被卷入美国和中共国政治紧张局势的中心。
+
+美国称华为的设备可能被中共国政府用于间谍活动。华为和中共国政府多次否认了这些指控。
+
+西班牙电信公司两年前宣布供应商多元化战略时，称该决定纯粹是技术性的，没有任何证据支持美国关于华为设备构成安全风险的指控。
+
+郭文贵先生曾指出，华为并非与军方合作，而是实实在在的军工企业，华为就是解放军。孟晚舟为中共特务，并且有特务编号。
+
+秘翻新闻主编宝宝编译报道。
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

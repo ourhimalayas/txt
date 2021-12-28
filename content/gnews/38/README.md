@@ -2,43 +2,37 @@
 ---
 
 
-## 中国政府最新“清洁规定”迫使达美航空在半空中调头
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1797608/)
+## 专家警告辉瑞抗病毒药可能构成风险
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1797671/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：童媚
+![](https://assets.gnews.org/wp-content/uploads/2021/12/19-3.jpg)（图片来自网络）
+美国全国广播公司新闻周末报道称，有专家警告说，尽管第一批COVID-19抗病毒药片有望为那些有严重疾病风险的人提供保护，但辉瑞或默克的新药可能对所有人都不安全。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/delta_airbus_a350_900_nrt_source_rob_finlayson.jpg)**图片来源：**aviationweek.com
+辉瑞（Pfizer）的 Paxlovid 抗病毒鸡尾酒中的两种药物之一可能会与常用药物（包括他汀类药物、血液稀释剂和一些抗抑郁药）发生严重或危及生命的相互作用，FDA不推荐将Paxlovid药物用于患有严重肾脏或肝脏疾病的患者。
 
+此外，由于担心默克公司的 molnupiravir 的潜在副作用，FDA 已将其使用范围限制为成人，并且仅在无法获得其他治疗或“临床上不适合”的情况下，可以使用该药物。
 
-#### 编译：小红帽
+这种顾虑来源于，当Paxlovid与其他也由CYP3A酶代谢的药物搭配使用时，利托那韦成分可能会使得共同给药的药物具有致毒性。
 
-根据RT 12月27日报道，**美国主要航空公司达美航空指责中国政府最新的新冠病毒（Covid-19）清洁规定，使飞往上海的飞机在半路上调头。**
+对于以上说法，不同的学者和科研人员有不同的观点。
 
-达美航空突然停止了飞往上海的服务，以至于一架从西雅图飞往中国的航班调头。据说，一些乘客因新冠病毒检测和签证过期而滞留。
+有些认为这些潜在的联合用药会发生巨大的风险，还有些则认为这些药物之间的相互作用可是可控的，可以完全避免。
 
-达美航空周一表示，最近的空中调头是由上海浦东国际机场与大流行病有关的新清洁规定所引起的。该航空公司在一份声明中告诉美联社，新规定“要求大大延长地面时间，这对达美航空的运营来说是不可行的”。
+还有些专家们认为，因为此类新药物的服用周期很短，因此与其他药物发生不良相互作用的风险很低。
 
-达美航空是美国第二大航空公司，该航空公司没有详细说明规则的变化是什么，也没有说明为什么有必要召回一个已经在空中飞行了约6个小时的航班。该航空公司已经取消了周四前从西雅图飞往上海的航班。
+对于Pfizer和默克公司这样的药商来说，其强推疫苗和火速开发新药的目的已经让人十分怀疑，在疫苗已经进行到第四针加强针的阶段，整个世界还是被笼罩在病毒肆虐和生命逝去的阴影中。
 
-据报道，被取消的航班在上周二进入俄罗斯领空时向西雅图调头。该航班本应在首尔降落，以更换机组人员，然后继续飞往上海。
+我们有理由怀疑这些药物是否安全，并且有理由拒绝一切不能被验证的医学试验。
 
-达美航空发言人表示，该规则的改变是在航班离开西雅图后作出的，而中国媒体报道说，上海浦东官员否认最近对入境要求有任何更改。
+资料参考：
 
-据台湾 “中央社”报道，台湾航空公司长荣航空已暂停从高雄和台北到上海浦东的航班，一直持续到2月3日。
+[https://www.newsmax.com/health/health-news/covid-fda-pfizer-approval/2021/12/22/id/1049653/](https://www.newsmax.com/health/health-news/covid-fda-pfizer-approval/2021/12/22/id/1049653/)
 
-该航空公司援引了对入境飞机进行更彻底消毒的新要求。该新要求已于周五实施。长荣的一位官员告诉CNA，新规定将导致返回台湾的航班延迟5个小时。
+[https://www.newsmax.com/newsfront/giroir-covid-merck-pfizer/2021/12/24/id/1049915/](https://www.newsmax.com/newsfront/giroir-covid-merck-pfizer/2021/12/24/id/1049915/)
 
-新闻来源：[‘Cleaning rules’ force US airline to turn back flight midair — RT World News](https://www.rt.com/news/544539-delta-air-turns-back-china-flight/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
