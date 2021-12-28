@@ -2,57 +2,28 @@
 ---
 
 
-## 参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1797137/)
+## 秘翻在线：中共微博的日本独家代理陷入数亿纠纷
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797236/)
 
-参议员瑞克·斯科特: 环球时报新闻是认真的么？ 他的笑容？ 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一。 对那个邪恶之人没有什么值得庆祝的。 【转环球时报推文及视频，提及纪念毛贼东诞辰日】
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-25.png)（图片源自本文链接）
+12月28日东体育报道：中共国最大的SNS “微博 “的日本独家经销商A公司，以及制作和管理日本粉丝俱乐部的B公司，双双卷入了一场价值数亿的 “财务纠纷”！
 
+这两家公司最初是以协助日本知名人士拓展中共国市场为业务而合作。然而，就在正式合同签署之前，B公司的代表董事被替换。A公司要求偿还包括准备费用在内的约4亿日元，但B公司完全没有回应，此事已成为日中风波的导火索。
 
+中共国版Twitter，即微博，于2009年推出，在日本拥有一百万个账户，在全球有八亿个账户。据熟悉中国IT情况的人士透露, 日本名人一个接一个地开设微博账户，比如已加入的名人包括木村拓哉、山下智久和福原爱，他们拥有数百万的粉丝。微博不仅是一家尖端的IT公司，也是一个非常政治化的组织。
 
-> Seriously, [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)? His smile? Mao Zedong murdered tens of millions of people & is one of the reasons Communist China is the brutal, oppressive dictatorship it is today. There is nothing about that evil man worth celebrating. [https://t.co/kfgciKvIKF](https://t.co/kfgciKvIKF)
-> — Rick Scott (@SenRickScott) [December 27, 2021](https://twitter.com/SenRickScott/status/1475507523956449283?ref_src=twsrc%5Etfw)
+A公司是微博在日本的唯一代理。该公司负责人S与中国共产党关系密切，以微博作为日本名人进入中国市场的桥梁，开发项业务。他被称为 “实力派中国修理师”。S和他的家人与历届中共国领导人都有着密切的关系。过去，领先的日本艺术家去中共国演出，主要都是通过他的关系。为了在中共国做生意，你需要得到公安的严审许可。然而，通过与S先生的交涉，就有可能顺利地获得批准。即使是现在，来自日本名人的咨询也是接连不断。就在去年，A公司和从事各种娱乐业务的B公司萌生了联手的想法。A公司的一位人士证实，该公司是想在中共国发展日本明星的粉丝俱乐部业务。由于中共国的娱乐市场缺乏内容，日本艺人有很大的空间来打入这个市场。如果能把B公司的粉丝俱乐部技术和A公司在中国共产党内的人脉力量结合起来，其协同效应是巨大的。于是，S同意了，A公司开始了准备工作。
 
+粉丝俱乐部通过其官方网站支付会员费，但如上所述，为了在中共国这样做，他们需要得到公安局的许可。对每个成员都有严格的身份验证程序，而且必须随时向当局提供诸如谁、何时以及如何付款等信息。自然，数据量是巨大的。为了获得了公安局的许可，A公司尽力的奔波，并从阿里云购买了服务器，还聘请了五名工程师。仅仅是准备工作就花费了数亿日元，同时还不得不与B公司之间交流走动，已经几近于签署合同了。然而，去年12月，B公司的代表董事突然被一个新的董事取代，A公司被告知之前的所有讨论都被取消。
 
+B公司的律师回复只是主张“我们没有签署这份合同”。事实确实如此，但两个公司之间已经有多次电子邮件往来、书面文件和口头交流，证据仍然存在这种情况下， 辩称所有这些都是无效的，显然很粗暴。
 
-美前国务卿迈克·蓬佩奥： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 能够主导通过南中国海的商业运输，那么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 控制南海的威胁将使我们今天所遭受的供应链问题看起来像是儿戏。
+A公司要求退还包括准备费用在内的数亿元，但B公司却置之不理，甚至拒绝讨论这个问题。 然而，如果A公司和B公司之间的关系继续这样紧张下去，很可能会成为希望在未来进入中共国市场的日本艺人的一块绊脚石。当要求B公司确认事实时，他们回答说：“不存在你提到的公司和我们公司达成了业务协议的事实。我们不提供细节，且不认为我们有任何法律责任”。
 
+如此现状，两家公司有可能达成协议吗？更新要思考的是，如果不是中共过凡事都要找关系、打通人脉，会有这事儿发生吗？
 
-
-> The threat from China's domination of the South China Sea will make the supply chain problems that we're suffering from today look like child's play if the Chinese are able to dominate commercial shipments through the South China Sea.
-> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475628087794708486?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会共和党： 资深成员罗杰斯议员：“我很高兴看到22财年《国防授权法案》 已经签署成为法律…我们的工作还没有完成。随着新年的临近，我们国家面临着来自旗鼓相当的对手前所未有的侵略和威胁，即 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯” 【附众议院官网链接：22财年国防授权法案签署成为法律后罗杰斯的声明】
-
-
-
-> RM [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw): "I am glad to see that the FY22 NDAA has been signed into law… Our work is not finished. As we approach the new year, our nation faces unprecedented aggression and threats from near-peer adversaries, namely China and Russia." [https://t.co/OyQBCtlSIg](https://t.co/OyQBCtlSIg) [pic.twitter.com/VmX5B0wCZX](https://t.co/VmX5B0wCZX)
-> — Armed Services GOP (@HASCRepublicans) [December 27, 2021](https://twitter.com/HASCRepublicans/status/1475564136985731082?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： “受人尊敬” 哦，是的，他还折磨和谋杀了超过6000万人。 【转’环球屎报’推，有关毛贼东咽气128周年的洗脑宣传视频】
-
-
-
-> “revered” 
-> 
-> Oh yeah, and he also tortured and murdered over 60 million people. [https://t.co/5JKjHIXeN4](https://t.co/5JKjHIXeN4)
-> — Ted Cruz (@tedcruz) [December 27, 2021](https://twitter.com/tedcruz/status/1475268292206022659?ref_src=twsrc%5Etfw)
-
-
-
-美国国务院： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))、气候和其他紧迫挑战时，我们处于更坚实的立足点。 我们在与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家打交道方面处于更强大的地缘政治地位，因为它们试图破坏国际体系。【附布林肯讲话视频】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/HR42uCkak5](https://t.co/HR42uCkak5)
-> — Department of State (@StateDept) [December 26, 2021](https://twitter.com/StateDept/status/1475134313788178437?ref_src=twsrc%5Etfw)
-
-
-
-
+信息源：[福原愛、山下智久も他人事ではない！ 中国ウェイボー代理店と日本企業が億単位トラブル（東スポWeb） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/afde059d0f538ae82dc09b82ec4c8a6e7190f585)
 
  
 
