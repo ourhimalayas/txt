@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大斥巨资购买新型口服抗病毒药
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796698/)
+## 特鲁多斥中共挑拨分化并外交抵制冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796726/)
 
-采编：文莱          编译撰稿：Quitman
+采编/编译撰稿：文莱      校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-1-edited.png)图片来源：NP
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-11-edited-scaled.jpg)图片来源：TNH
 
 
-据加拿大【国家邮报】12月23日报道，在美国【默克药厂】此前宣布其新研制的口服药【莫纳皮拉韦】可大幅降低“新冠病毒”患者的重症住院或死亡风险后，特鲁多政府已斥巨资购买了该药。
+据【国家邮报】12月25日报道，加拿大总理特鲁多当天宣称，西方民主国家应该建立一个反抗中共国的联盟，以防止中共当局再次利用各种经济利益诱惑，对西方各国政府进行挑拨离间及分化瓦解。
 
-据悉，加拿大政府本月早些时候从【默克公司】购买了约4.5亿加元，但尚未获得卫生部门批准的【莫纳皮拉韦】抗病毒药。并同时与该公司达成协议，如果再度购买同量药物，便可获其授权在安大略省生产该口服药。
+特鲁多对媒体表示，加拿大与西方民主国家一直都在进行着公平的商业交易，但中共则利用各种非法利益手段，阴险地将这些民主国家玩弄于股掌之间。因此，加拿大与西方盟国应该共同合作以对抗中共政权的威胁。
 
-报道指出，【莫纳皮拉韦】的临床实验效果并不显著。虽然该药已被美国批准用于“新冠病毒”感染患者以及高感染风险的成年人。但研究表明，孕妇服用该药会极大增加婴儿出生缺陷的风险。对此，法国已取消了该药的订单，印度也停止了对其仿制药的试验。有关专家更不建议加拿大政府购买该药。
+报道称，自2018年华为的孟晚舟因美国引渡令被拘留以来，加中关系就陷入僵局。尽管目前中共当局暂停了其卑劣的人质外交政策。但面对该政权日益膨胀的野心，加拿大必须采取有效反抗措施，并与盟国一起联合外交抵制北京冬奥会。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+发稿：硫酸羟氯喹64
 
-參考链接：https://nationalpost.com/health/new-covid-drug-canada-is-spending-up-to-450m-on-may-be-ineffective-some-experts-warn
+参考资料： [China ‘playing’ Western countries against one another, says Trudeau | National Post](https://nationalpost.com/news/politics/western-states-need-united-front-against-divisive-china-trudeau)
 
  
 
