@@ -2,20 +2,12 @@
 ---
 
 
-## 郭文贵盖特音频2021.12.28
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1799079/)
+## 杰森·米勒：内容创作者将能够在盖特平台上以他们的作品来盈利
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1799160/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/12/out-1-1.jpg)
+12/23/2021 杰森·米勒：内容创作者将会在盖特平台上以他们的作品来盈利。盖特商店和盖特支付也会推出。
 
-
-### 视频链接：
-
-[https://www.gettr.com/post/pktzu55e32](https://www.gettr.com/post/pktzu55e32)
-
-### 音频链接：
-
-编辑发布：闪电训练
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
