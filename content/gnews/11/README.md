@@ -2,24 +2,43 @@
 ---
 
 
-## 【中日财经爆】滴滴员工股票禁售期无限期延长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797440/)
+## 共产党紧跟七哥脚步承认运动员大概率得病显示治理能力
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797538/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1562.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-445458%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E6%25BB%25B4%25E6%25BB%25B4%25E8%25AE%25A1%25E5%2588%2592%25E4%25BB%258E%25E7%25BA%25BD%25E4%25BA%25A4%25E6%2589%2580%25E9%2580%2580%25E5%25B8%2582-11638496542&amp;tbnid=Bv_KGpFBkCTMgM&amp;vet=12ahUKEwjA5MbI3YX1AhUJA94KHevRDXoQMygaegUIARDPAQ..i&amp;docid=ztzRVXF-IotNfM&amp;w=860&amp;h=573&amp;itg=1&amp;q=%E6%BB%B4%E6%BB%B4%E8%82%A1%E7%A5%A8&amp;ved=2ahUKEwjA5MbI3YX1AhUJA94KHevRDXoQMygaegUIARDPAQ)
-英国《金融时报》援引知情人士指称，中共国网约车巨头滴滴出行公开发行（IPO）后180天的禁售期本应于12月27日结束，但是如今到期后，滴滴表示已无限期禁止现任和前任员工出售公司股票。27日滴滴股价跌5.36％，收报5.3美元，再创历史新低。
+**郭文贵先生：**共产党已经说话了，冬奥会得这个病的是大概率事件。大家知道了吗？大概率事件，你看七哥上次直播的时候说了吧，一定会让你得的，你不得我也得让你得了。
 
-报导称，滴滴首次公开发行（IPO）后180天的禁售期本应于12月27日结束，在此期间，现任和前任员工不得出售股票，但目前该禁令已延长，由原来的上市半年解禁，变更为时间由公司再定，受限范围为在职人员及离职未满180天的员工。
+得了以后怎么处理呢是我说了算了。处理得伟大，体现了习主席“习太阳”治理世界的能力，不是治理国家的能力，是治理世界的能力，共产党的伟大的统一协调能力，无人可比喻的优越的社会集中资源、集中财富办大事的这个能力，这都是一套。
 
-据报导，在滴滴于香港上市之前，员工将不能出售股票。尽管滴滴的外部投资者，包括优步、软银和腾讯等，仍然可以在27日抛售股票，但在数月的抛售压力之后，他们可能会面临严重亏损。
+你七哥说完话他就得跟着咱走，他没办法不跟咱走，对吧。就像我们家Snow一样是吧，我这只要是一拿粮食Snow必须跟我走，它是拒绝不了的。所以共产党跟咱爆料革命的这种较量已经是Snow和七哥的关系，七哥只要一掏兜Snow就冲过来了，是吧？只要一伸手就往怀里冲。所以你看，他就来了，他就来了。所以说它一定不是大概率，它一定会发生。
 
-滴滴美股上市不足一周App即遭下架。7月4日，中共国网信办发布通报称，根据举报，经检测核实，「滴滴出行」App存在严重违法违规收集使用个人资讯问题，通知应用商店下架「滴滴出行」App。在短短6个月的交易时间里，滴滴股价下跌了62％，市值损失了约420亿美元。本月初，滴滴表示已开始准备从美国交易所退市，并寻求在香港上市。
+字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
 
-消息来源：[滴滴无限期延长员工禁售期股价再创新低](https://www.chinatimes.com/realtimenews/20211228002070-260409?chdtv)
+编辑整理：喜马拉雅的肉夹馍；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,29 @@
 ---
 
 
-## 【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797461/)
+## 印度律师协会起诉世卫首席科学家
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1797550/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1563.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fslides%2F2021%2F12%2F52d301ffc310a3c13b34a9bcece43c15.jpg&amp;imgrefurl=https%3A%2F%2Fm.yicai.com%2Fnews%2F101053297.html&amp;tbnid=KAxwdM2NRjPSxM&amp;vet=10CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM..i&amp;docid=dg1sUYA_OrGh0M&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E4%B8%AD%E7%A7%BB%E5%8A%A8A%E8%82%A1&amp;ved=0CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM)
-最近中共国A股市场常出现新股跌破发行价，又或发行后大额弃购事件。12月27日晚间，在港股有上万亿元市值的巨无霸中国移动被美股踢走之后，发布回A股上市发行结果，遭到上万名投资者7.43亿元弃购，甚至超过了2年前中国邮储银行6.53亿元弃购的历史纪录。
+撰稿：文西Eric
+![](https://assets.gnews.org/wp-content/uploads/2021/12/281.jpg)图片来源于网络
+据Herland Report报道，印度律师协会以大规模谋杀罪起诉世界卫生组织首席科学家苏米亚·斯瓦米纳坦博士。 斯瓦米纳坦博士之前发表反对在印度泰米尔纳德邦使用伊维菌素，导致伊维菌素用于治疗中共病毒在该邦叫停和病例激增，死亡人数随之增加了10倍。
 
-如果按照1000股一签，弃购签数为1万2910签，如果一签对应一位投资者的话，就有上万名投资者弃购。最近一段时间，新股频频出现大额弃购，史上最贵新股禾迈股份遭3.63亿元弃购，上市首日却大涨30％，不过遭弃购1.99亿元的百济神州却大跌逾16％。
+在使用伊维菌素的省份，包括德里、北方邦、北阿坎德邦和果阿，新冠病例分别下降了98%、97%、94%和86%。该药的成功使用使印度大片儿地区摆脱了中共病毒，但《纽约时报》、《华盛顿邮报》、CNN、MSNBC、NPR、AMA、拜登、舒默、佩洛西以及其他主流媒体、控制言论的政客这些罪犯却不让你知道真相。
 
-除遭网上投资者弃购之外，中国移动还遭网下投资者弃购金额1270.49万元，包含渤海证券资管和知名私募翼虎投资也进行弃购。
+代表印度律师协会的Dipali Ojha说，世卫组织官员苏米亚·斯瓦米纳坦博士被指控行为不当，因为她利用其作为公共卫生官员的地位来为利益集团服务，为利润丰厚的疫苗业保存其紧急使用授权。
 
-根据资料显示，中国移动此次A股发行价为57.58元／股，“超额配售权”行使前发行总股数为8.457亿股、募资总额为486.95亿元；“超额配售权”全额行使的话，发行总股数将扩大到9.72555亿股、募资总额为560亿元。
+Dipali Ojha进一步指出，印度律师协会正在根据《印度刑法典》第302条对斯瓦米纳坦博士和其他人提起诉讼，指控他们谋杀了每个因被妨碍用伊维菌素治疗中共病毒而死亡的人。根据该法典第302条规定，这类犯罪应得的惩罚是死刑或终身监禁。
 
-消息来源：[中移动回A股上市遭弃购逾7亿人币刷新历史](https://www.chinatimes.com/realtimenews/20211228001947-260409?chdtv)
+印度终于开始了对中共病毒进行问责的流程。 福奇、NIH、CDC、WHO、FDA、无良医生和政客们为了大药厂数亿美元的疫苗利润，而杀死和伤害了大量的人。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+跟着共产党，走进火葬场。病毒肆虐两年来，全球目前已导致540余万人逝去生命，这还是不包括墙内的数字。数字是冷酷的，而逝去的是每一位鲜活的生命。
+
+文贵先生和新中国联邦一直在告诉世人新冠病毒是中共和邪恶力量释放的生化武器，而所谓的疫苗也只是为了巨额利润和消灭人口等邪恶目的。传播真相，行动！行动！行动！消灭共产党！
+
+参考链接：[The Herland Report](https://hannenabintuherland.com/asia/india-charges-who-scientist-soumya-swaminathan-for-mass-murder-the-beginning-of-accountability/)
+
+*发稿: mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
