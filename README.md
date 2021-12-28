@@ -15,112 +15,112 @@
 
 ---
 
-### [不敛钱不乱性不撒谎造假制造仇恨的正道主义是中共天敌](/content/gnews/1/README.md)
+### [北京取消对外国汽车制造商在华经营的所有限制](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [印度律师协会起诉世卫首席科学家](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [共产党紧跟七哥脚步承认运动员大概率得病显示治理能力](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共诗——酬李尚儒先生赠酒](/content/gnews/2/README.md)
+### [不敛钱不乱性不撒谎造假制造仇恨的正道主义是中共天敌](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [樱花灭共诗——酬李尚儒先生赠酒](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [49岁的《纽约时报》编辑在注射莫德纳加强针后一天去世](/content/gnews/3/README.md)
+### [49岁的《纽约时报》编辑在注射莫德纳加强针后一天去世](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【速報】2020年代后期,日本人登月](/content/gnews/4/README.md)
+### [【速報】2020年代后期,日本人登月](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录](/content/gnews/5/README.md)
+### [【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】滴滴员工股票禁售期无限期延长](/content/gnews/6/README.md)
+### [【中日财经爆】滴滴员工股票禁售期无限期延长](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共网络部队指使留学生诈购日本软件，用于网络攻击](/content/gnews/7/README.md)
+### [中共网络部队指使留学生诈购日本软件，用于网络攻击](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共惧怕防火墙失效，在联合国诬告星链](/content/gnews/8/README.md)
+### [中共惧怕防火墙失效，在联合国诬告星链](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20211224文贵大直播灭共关键词](/content/gnews/9/README.md)
+### [20211224文贵大直播灭共关键词](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [被资本控制和市场诱惑的海外媒体以恶意采访为中共洗白](/content/gnews/10/README.md)
+### [被资本控制和市场诱惑的海外媒体以恶意采访为中共洗白](/content/gnews/13/README.md)
  ` mary202064`
 
-### [2021年12月27日郭先生盖特 — 视频盖特2「1分00秒」](/content/gnews/11/README.md)
+### [2021年12月27日郭先生盖特 — 视频盖特2「1分00秒」](/content/gnews/14/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [VICE不卖广告卖政治卖的是4000亿美元中共唯一的准入](/content/gnews/12/README.md)
+### [VICE不卖广告卖政治卖的是4000亿美元中共唯一的准入](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [快飞影像遭受勒索软件攻击，要求支付数百万美元赎金](/content/gnews/13/README.md)
+### [快飞影像遭受勒索软件攻击，要求支付数百万美元赎金](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年12月27日郭先生盖特 — 视频盖特1「9分37秒」](/content/gnews/14/README.md)
+### [2021年12月27日郭先生盖特 — 视频盖特1「9分37秒」](/content/gnews/17/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [Isobel要铲平新中国联邦再与迪斯尼索罗斯黑石媚共拿牌照](/content/gnews/15/README.md)
+### [Isobel要铲平新中国联邦再与迪斯尼索罗斯黑石媚共拿牌照](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国和德国正考虑开启中共病毒疫苗第二加强针](/content/gnews/16/README.md)
+### [英国和德国正考虑开启中共病毒疫苗第二加强针](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西方Loser把在中共得到的性满足和上升机会当作共产主义](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [日本仅派3人出席北京冬奥，中共恼羞成怒](/content/gnews/18/README.md)
+### [日本仅派3人出席北京冬奥，中共恼羞成怒](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情報｜最新研究：美國至少40萬人死於新冠疫苗](/content/gnews/19/README.md)
+### [COVID-19 最新情報｜最新研究：美國至少40萬人死於新冠疫苗](/content/gnews/21/README.md)
  ` 關注組`
 
-### [秘翻在线：中共微博的日本独家代理陷入数亿纠纷](/content/gnews/20/README.md)
+### [秘翻在线：中共微博的日本独家代理陷入数亿纠纷](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [超市全员接种后集体感染](/content/gnews/21/README.md)
+### [超市全员接种后集体感染](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [币圈新闻动态：中共加快推进数字人民币](/content/gnews/22/README.md)
+### [币圈新闻动态：中共加快推进数字人民币](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为领到$100, 纽约市民大排长龙接种加强针](/content/gnews/23/README.md)
+### [为领到$100, 纽约市民大排长龙接种加强针](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [12/27/2021 文贵盖特：美国将给中共好处以让其麻痹并产生虚假繁荣的幻觉](/content/gnews/24/README.md)
+### [12/27/2021 文贵盖特：美国将给中共好处以让其麻痹并产生虚假繁荣的幻觉](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [丑闻：维多利亚州政府撒谎，试图压制二维码的真相](/content/gnews/25/README.md)
+### [丑闻：维多利亚州政府撒谎，试图压制二维码的真相](/content/gnews/27/README.md)
  ` 走进澳洲`
 
-### [参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一](/content/gnews/26/README.md)
- ` 美国政要直译推`
-
-### [文·贵天成——文贵先生谈“先锋集团”（二）](/content/gnews/27/README.md)
+### [文·贵天成——文贵先生谈“先锋集团”（二）](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [默克尔政府下台前批准大宗军火出口给独裁政权](/content/gnews/28/README.md)
+### [默克尔政府下台前批准大宗军火出口给独裁政权](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜巴西 32 岁奥运跳水运动员接种疫苗数月后死亡](/content/gnews/29/README.md)
+### [针下亡魂｜巴西 32 岁奥运跳水运动员接种疫苗数月后死亡](/content/gnews/30/README.md)
  ` 關注組`
 
-### [中共某镇女党委书记公然威胁上访者 被停职](/content/gnews/30/README.md)
+### [中共某镇女党委书记公然威胁上访者 被停职](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月27日晚](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2021年12月27日晚](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [美情报部门称中共使用基因编辑和脑控武器](/content/gnews/32/README.md)
+### [美情报部门称中共使用基因编辑和脑控武器](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/33/README.md)
+### [日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [突发：西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/34/README.md)
+### [突发：西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [20211222文贵大直播灭共关键词](/content/gnews/35/README.md)
- ` 澳喜农场`
-
-### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（一）](/content/gnews/36/README.md)
+### [20211222文贵大直播灭共关键词](/content/gnews/36/README.md)
  ` 澳喜农场`
 
 ### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/37/README.md)
