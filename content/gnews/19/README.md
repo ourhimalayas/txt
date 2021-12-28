@@ -2,44 +2,44 @@
 ---
 
 
-## 消灭所有的官二代富二代后，中国从九龙治水进入习天下
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797712/)
+## 莫迪宣布明年起为青少年接种中共病毒疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1797897/)
 
-**郭文贵先生：**所以最近习近平，我在五年前我就跟很多党内的富二代都说过，我说你记住，习一定会最后消灭所有的官二代，只要他能活到那个时候，当时已经是牛叉叉的，大家要知道，彭家的人，彭德怀的家人，贺龙的所谓的后人，包括张震，张万年的后人，包括那个吴小晖，是吧。我说无数次，包括这刘亚洲。你像高燕燕还得瑟呢，像王岐山就觉得自己牛呐，还什么姚庆，三代都出来了。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/111-1.png)图片来源：Justin Lane—EPA-EFE/Shutterstock
+翻译：George Warshing
+编辑：Mttfly
 
-他们不了解习近平，我是跟习近平交心喝酒喝醉的人，我太了解他的家庭和他的情况了。他一定要把官二代消灭，因为你在，就不可能形成北朝鲜的金家，只有金家。你见过北朝鲜出过任何一家吗？他姑父张家，刚出来给犬决了，是不是啊？金正日刚死，金家要靠张家辅导，哇噻！金正恩说你想干什么？什么狗屁姑父，犬决了你！
+鉴于奥密克戎病例在印度国内的增长，总理莫迪（Narendra Modi）在强调预防的重要性时宣布，从明年1月3日起为15-18岁的青少年接种疫苗。
 
-一家之天下，天下只归一家，金家，怎么有什么官二代啊？我就是官呐。然后来个富二代，你富一代都是犯法的出生，你怎么还有二代呢？所有的你看到所有中国的富二代，什么谢志坤呐，马化腾，什么张力，什么董文标，所有这些人很多孩子在美国、加拿大呢。你记住我的话，很快冬奥会以后，这些人都要打电话让孩子回去，你不回来你爹你妈就没命了。
+一名认为接下来应给5岁以上的儿童接种疫苗的儿科医生，欢迎莫迪新宣布的对15-18岁年龄段的青少年接种疫苗的政策。
 
-你走着看，官二代、富二代都得被消灭，中国进入了唯一的一个，过去的叫九龙治水，后来七龙治水，后来是习王政府，现在是习灭了王或者王也可能灭了习，习一人天下的时代。从过去的春秋战国，三国演义到最后的司马懿，天下尽归我，这就叫“习天下”。
+德里恒河爵士医院的儿科肺病学家迪伦·古普塔（Dhiren Gupta）博士告诉亚洲国际新闻（ANI）：“这是一个受欢迎的决定。下一步的计划是应该为5岁以上的儿童接种疫苗，应允许儿科医生在他们的诊所为这些儿童接种疫苗。”
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+他补充说：“我们不仅应该为13岁以上的青少年注射疫苗，还应该针对5岁以上的儿童。这应该是我们的下一个计划。如果我们想加快疫苗接种过程，应该允许所有儿科医生在他们的诊所为这些儿童接种疫苗。”
 
-编辑整理：喜马拉雅的肉夹馍；
+古普塔说，让这个年龄段的大多数儿童去儿科诊所注射疫苗，“而不是将这项工作限定于少数疫苗接种中心”，可以加快接种过程。
 
-字幕文件制作：小满；
+古普塔博士还表示，应采用比莫迪总理所宣布的时间更早的日期，向医疗保健和防控疫情一线的工作人员提供“预防剂量”的疫苗。
 
-视频制作及上传：Cindy；
+“但为什么要等到1月10日呢？在疫情期间每一天都很重要。我们知道奥密克戎病毒正在快速增长，这种病毒的变种会来到我们身边。鉴于加强剂量的疫苗需要大约三周才能产生足够的抗体，因此加强针应该在两三天内开始。从人口数量来看，我们应尽快开始接种疫苗。”
 
-G-News发布：小满；
+莫迪还表示，医疗保健和防疫一线的工作人员在对抗Covid-19和维护国家安全方面做出了巨大贡献，从明年1月10日起，政府将给他们注射“预防剂量”的疫苗。他说：“注射预防剂量疫苗的决定将增强医护人员和抗疫一线工作者的信心。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+他还说，患有合发症的老年人也可以根据医生的建议选择预防剂量的新冠疫苗。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+莫迪总理说，该国61%的成年人口已完全接种了疫苗，其中90%已接种第一剂。印度于今年1月16日开始了疫苗接种活动。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**原文链接：**[After PM Modi’s announcement of vaccines for teens, ‘precaution dose’, expert says this](https://www.hindustantimes.com/india-news/pm-modi-announces-vaccines-for-teens-precaution-dose-expert-lists-next-plan-101640476787135.html)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

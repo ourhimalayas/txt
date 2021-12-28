@@ -2,43 +2,30 @@
 ---
 
 
-## 丑闻：维多利亚州政府撒谎，试图压制二维码的真相
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1797156/)
+## 英国和德国正考虑开启中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797289/)
 
-***爆炸性的法庭裁决显示，丹尼尔·安德鲁斯的政府知道用联系人追踪器或通过二维码分享的个人信息并不安全***
+#### 撰稿：彩虹       
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1556.png)图片来源：雅虎财经
+《国会山报》于12月27日发文称，据多份报告信息，随着中共病毒（COVID-19）变体奥米炕（Omicron）感染病例在欧洲的激增，德国和英国都在权衡决定是否对其人口中的特定群体进行中共病毒疫苗第二加强针注射，而以色列则已经开始了相关试验。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/维州丑闻.png)图片来源：The Australian
+据《卫报》（The Guardian）报道，英国布里斯托尔大学的儿科教授亚当·芬恩（Adam Finn）是英国疫苗接种和免疫联合委员会的成员，他上周说：“我认为可能会有一些人接受第四次疫苗接种。是否每个人都（有必要）这样做，我认为仍然非常有疑问……。我们确实需要看看这一波（疫情）及以后的情况如何（再定）”。
+
+据《欧洲政客》（Politico Europe）报道，德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）也是一名医生和科学家，他表示，他认为第四针中共病毒（COVID-19）疫苗的注射将是必要的。
+
+在接受德国一家电台采访时，劳特巴赫说：“就我个人而言，我希望进行第四次疫苗接种。”上周的时候，他当时还表示，他会“假设”第四针中共病毒疫苗接种“是必要的”。但他同时也说，关于第四次中共病毒疫苗接种的保护作用，有关的科学证据并不充分，尚无定论。
+
+文章报道，周一，以色列开始了第四次中共病毒疫苗接种有效性的试验，给最初在8月份接种过中共病毒疫苗加强针的医护人员进行第二次强化治疗。试验参与者将被跟踪6个月，以评估第二次加强针的有效性。
+
+文章说，如果第四针中共病毒疫苗接种一旦被以色列卫生部长纳赫曼·阿什（Nachman Ash）批准，则将被用于免疫力低下的人、医护人员和所有60岁或以上的人。
+
+**新闻来源**
+
+[UK, Germany weighing potential fourth COVID shot, second booster](https://thehill.com/policy/international/europe/587382-uk-and-germany-weighing-potential-fourth-covid-shot-second)
 
 
-**整理报道：小鱼儿
-编辑：Candy**
-
-（澳大利亚维州）一项爆炸性的法庭裁决，暴露了丹尼尔·安德鲁斯（Daniel Andrews）政府在数百万维多利亚人的私人信息安全问题上撒谎，并试图掩盖细节。
-
-自大流行病开始以来，维州政府向维多利亚人保证，他们分享的任何细节都只用于公共卫生目的。
-
-然而，《先驱太阳报》今天报道说，用联系人追踪器或通过二维码分享的个人信息并没有得到 “绝对保护”。该报告显示，政府不仅知道这个谎言，而且还积极地试图欺骗公众，堵住了与私人信息安全有关的真相的发布。
-
-Covid指挥官杰罗恩·魏玛（Jeroen Weimar）发起了一项法律诉讼，要求将法庭案件保密五年，以阻止因公开这一消息对政府所造成的损害。
-
-《先驱太阳报》公布的文件显示，魏玛无耻地向法庭辩称，公众对国家联系人追踪系统的信心，比告诉维多利亚人他们的个人信息可能被他人获取的威胁更重要。
-
-这一消息的出现，是由于该部门向法院申请阻止维多利亚州工作保障局（Victorian WorkCover Authority）获取联系人追踪信息，作为其调查该州酒店检疫闹剧的一部分。
-
-在州政府部门推动将这些细节从公众视野中撤销时，文件显示，代表VWA（WorkSafe）的马库斯·霍恩（Marcus Hoyne）认为：法院不应协助公众被误导。他指责该部门寻求压制，“以防止公众了解通过联系人追踪提供的信息，可能不得不披露的真实情况。”
-
-参考新闻：[SCANDAL: Victorian government lied, tried to suppress the truth over QR codes](https://www.rebelnews.com/scandal_victorian_government_lied_tried_to_suppress_the_truth)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
