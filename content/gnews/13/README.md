@@ -2,38 +2,45 @@
 ---
 
 
-## 对于媒体公司来说医药产品广告是他们的摇钱树， 越来越多美国人开始觉醒，他们明白在医疗问题上不能相信主流媒体
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1799267/)
+## Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799310/)
 
-对于媒体公司来说，医药产品广告是他们的摇钱树。 幸运的是，越来越多美国人开始觉醒，他们认识到，在医疗问题上，不能相信主流媒体。
+作者：Drea Humphrey
+翻译：KK
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.png)
 
+BC 省卫生官员邦妮·亨利博士再次封锁圣诞节和新年，但 Omicron 变体是否足以成为这样做的借口？
 
-近几年来，我们看到其他非主流媒体公司发展迅速，而主流媒体的信誉度却正在迅速降低。 美国民众正在通过其他渠道来了解新闻和背后的真相。
+12 月 17 日星期五，亨利博士宣布对假期实施全面限制，其中包括取消所有人的新年前夜聚会，下令举办任何规模的有组织的活动，检查疫苗状态，以及限制室内聚会，例如圣诞晚餐，10 个人或一个额外的家庭，需要12 岁及以上的每个人都接种了新冠疫苗。
 
+考虑到现有的大量证据表明接种疫苗的人也有助于传播这种病毒，强制隔离未接种疫苗的人似乎特别不人道。
 
+在宣布第一波假期限制后的短短 72 小时内，亨利博士又宣布了多项限制措施，这些限制措施将至少持续到 2022 年 1 月 18 日，从而再次侵犯公民自由以及中小型企业的权益。
 
-由于广告费的不断涌入，媒体公司已经不能再发表关于医药行业的深度报道。看似它们已经不关心裙带资本之间的联系、以及FDA与药企之间存在过于紧密关系的问题。
+这些限制包括禁止所有室内聚会，如婚礼、俱乐部和休息室被迫关闭，而音乐会和电影院的容量将达到 50%。
 
-当然媒体也只是药企整个布局的一部分而已。药企们知道，如果他们想继续操纵民众，就必须要从华盛顿的政客入手。
+亨利使用Omicron 变体作为压榨许多人圣诞精神的主要借口。
 
-根据OpenSecrets网站报道，药企在2016年的政治捐款超过5800万美金，为过去25年来直接政治捐款最多的一年。
+但正如您将在本报告中看到的，佐伊持续时间最长的新冠研究数据表明，虽然 Omicron 变体在接种疫苗和未接种疫苗的人群中迅速传播，但其症状比 Delta 更轻微，并且与普通感冒非常相似。
 
-而在政治游说方面，也没有几个公司能够超过药企。他们去年花费2.44亿美元来影响华盛顿的民选政客们。而且看起来以后会更糟糕。
+来源：[https://www.rebelnews.com/omicron\_symptoms\_are\_like\_the\_common\_cold\_so\_why\_is\_bc\_locked\_down\_for\_christmas\_again](https://www.rebelnews.com/omicron_symptoms_are_like_the_common_cold_so_why_is_bc_locked_down_for_christmas_again)
 
-其实，药企明白他们的医药疯狂涨价，已经引起美国公众的不满。而且无论他们花多少钱来做广告以及收买政客，都无法一直压制公众的不满情绪。
+（文章仅代表作者个人观点）
 
-根据ProPublica（一个独立的非盈利性新闻平台）的最新报道，药企愿意出重金请科学家、教授和学术界人士来发表著作，以证明药品涨价是必须的，而且对公众影响不大。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-药企的目标就是用钱来收买各个大学，培养一群科学家和医生来制造一种假象：药品涨价对美国民众是件好事。然后那些被药企控制的主流媒体，就会开始争相报道这些消息。
+**关注我们**
 
-素材：文倩
-翻译：文永
-字幕：文所未闻
+Discord 账号
 
-发布：风云小哥
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
