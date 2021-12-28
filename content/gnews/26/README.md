@@ -2,34 +2,59 @@
 ---
 
 
-## 中国移动弃购新股金额达7.56亿元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798775/)
+## 全世界多地气温骤降，能源价格飙升
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1798781/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日晚间，中国移动披露新股上市发行结果，网上和网下投资者弃购金额，分别为7.43亿元与1270.49万元，总弃购金额达7.56亿元，刷新A股纪录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-43.jpg)
-作为近十年A股最大的IPO，中移动的战略配售阵容相当豪华。据23日晚公告披露，包括社保基金等国家级投资平台，国家电网等大型央企，中国人寿等大型保险机构，均出现在名单中。然而，“新股不败”的神话再一次被打破。
+作者：日本方舟农场—Andy5
 
-据悉，为防止新股发行上市股价破发，中移动还启用了“绿鞋”机制，即允许超发15%，意在增强参与一级市场认购投资者信心。但在内外交困，就业疲软，经济濒临崩溃的大环境下，“绿鞋”犹如破发标签，让投资者望而却步。
 
-参考链接:
-1) . [**中国移动新股弃购7.56亿元！有公募基金弃购**](http://finance.eastmoney.com/a/202112272227517584.html)
-2) . [**中国移动回A股上市：网上投资者弃购7.43亿元、确定启用绿鞋机制**](https://m.mydrivers.com/newsview/805669.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：Fei797
+
+
+2021年12月北半球多地寒潮来袭，气温骤降。与此同时许多地方的能源资费也在不断增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/DEC.5.jpg)
+12月26日加拿大发布极端寒冷天气预警。日本也遭受来自日本海方向的强烈寒流，东京12月的气温在45年以来首次降至零度以下，日本海一侧多县出现大雪。 而欧洲则进入冬季以来因气温降低造成风力发电量低落，从而导致电价飙升至历史上的高峰时期。与此同时，天然气价格也飙升至年初的8倍。
+
+同样，日本的电价和燃气价格也连续6月上涨。郭先生在之前大直播中警告的全球能源危机，正在成为现实。在此也提醒在北半球各地的战友，在防范病毒感染的同时，注意保暖和生活能源的保障。
+
+参考来源：
+
+1.[https://finance.sina.com.cn/jjxw/2021-12-27/doc-ikyakumx6651600.shtml](https://finance.sina.com.cn/jjxw/2021-12-27/doc-ikyakumx6651600.shtml)
+
+2.[https://www.epochtimes.com/gb/21/12/20/n13448345.htm](https://www.epochtimes.com/gb/21/12/20/n13448345.htm)
+
+3.[https://cn.reuters.com/article/europe-gas-prices-surge-putin-comments-1-idCNKBS2J600W](https://cn.reuters.com/article/europe-gas-prices-surge-putin-comments-1-idCNKBS2J600W)
+
+4.[https://www.cna.com.tw/news/firstnews/202112270081.aspx](https://www.cna.com.tw/news/firstnews/202112270081.aspx)
+
+5.[https://news.yahoo.co.jp/articles/2950895717bdc540f089c2c7e372d688ecbf8de3](https://news.yahoo.co.jp/articles/2950895717bdc540f089c2c7e372d688ecbf8de3)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-10.png)
+
+编辑/校正/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
