@@ -2,33 +2,33 @@
 ---
 
 
-## CCP将世界打入了黑暗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1799496/)
+## 前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1799518/)
 
-加拿大温哥华扬帆农场—Quitman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-下午2.46.44-1.png)
-图片来源：sohu.com
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mfile_1623236_1_L_20211208012114.jpg)图片来源：网络
+前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应
 
-郭文贵先生爆料中所说，CCP尽其所能在政治、军事、经济和金融多方面 同美国为首的西方开始超限战。CCP从研制冠状病毒开始就已经制定了“13579计划”，准备掀起新型的世界大战。郭先生在2017年11月20日便根据所了解的CCP计划，向世界发出警报，“黑暗的时刻即将来到”。自从2019年底CCP释放研制多年的生化病毒，两周年过去了，CCP真的将全世界打入了黑暗。
+美国大陆航空公司前首席执行官戈登·白求恩 (Gordon Bethune) 表示，由于“错误信息太多”，他已不再听取美国 Covid-19 最高沙皇安东尼·福奇博士的讲话。
 
-CCP病毒肆虐全球，至今已经造成2亿7320万人感染，其中536万人死亡。2020年全球因新冠病毒疫情造成的经济损失为5.67万元美元，预计2021年可能在5.8-8.8万亿美元。CCP病毒导致的全球失业人数2020年增加3千3百万。由于病毒传染力极强，世界各国均采取了不同程度的隔离和限制出行，使全世界人民长时间不得不呆在家里，特别使学生不能到学校正常上课，因此，导致了无数人进入忧郁状态。
+“我想成为一名优秀的 CNBC 撰稿人，但我不再听福奇博士的话了。 这只是太多的错误信息，”他告诉“Power Lunch”。
 
-现在CCP（夏秋）释放的新病毒Omicron横扫世界。每天感染的人数暴增，例如美国12月26日新增214,499，加拿大新增20,693。世界再次进入大流行状态。因此说，郭文贵先生早在2017年预警的“黑暗时刻”已经来到。
+他补充说：“如果你驾驶飞机 ， 安东尼.福奇 如何处理这场危机，我们都会死。”他称政府对 Omicron 的反应“鸡肋”。
 
-全世界爱好和平的人民应该看清CCP的本质，是时候团结起来，同心合力消灭CCP，还世界一个和平与安宁。
+开始是“天要塌了……我们反应过度了。 我以为我们正在回到中心线并恢复正常，但为期 10 天的 Covid 隔离确实让后备飞行员出局了。 他明白了。 他被关起来了。 他不能进入。后备飞行员、后备调度员、后备机械师……”他补充道。
 
-参考资料：
+白求恩的评论是在福奇宣布美国旅客在商业航空旅行中应该永远戴上口罩之后发表的（尽管接种了疫苗）。
 
-【1】https://www.youtube.com/watch?v=zXCshIg4aNE
+美国国家过敏症和传染病研究所所长，被自由党人誉为民族英雄，他们简单地喜欢重复“相信科学”的口头禅，他在本周最近的一次采访中告诉美国广播公司，在飞机上摘下口罩是“ 甚至不是我们应该考虑的事情。”
 
-【2】https://www.statista.com/topics/6139/covid-19-impact-on-the-global-economy/#dossierKeyfigures
+现在福奇不想让我们庆祝除夕……
 
-【3】[https://gnews.org/zh-hans/1779603/](https://gnews.org/zh-hans/1779603/)
+来源链接：[https://www.nationandstate.com/2021/12/27/former-continental-ceo-slams-fauci-for-too-much-misinformation-and-chicken-little-response-to-omicron/?amp](https://www.nationandstate.com/2021/12/27/former-continental-ceo-slams-fauci-for-too-much-misinformation-and-chicken-little-response-to-omicron/?amp)
 
-【4】[https://gnews.org/zh-hans/1779602/](https://gnews.org/zh-hans/1779602/)
+编辑/发布：LILY
 
-编审：文敏    发布：Winner为自由而战（文祥）
-
+20211228
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,98 +15,98 @@
 
 ---
 
-### [秘翻在线: 北京协和医学院马克思主义学院揭牌](/content/gnews/1/README.md)
+### [蕾塔桑伯格抨击乔拜登未能兑现气候变化承诺](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [秘翻在线: 北京协和医学院马克思主义学院揭牌](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的](/content/gnews/2/README.md)
+### [青蒿素（Artemisinin）保健效果观察及其作用机制分析](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的](/content/gnews/4/README.md)
  ` 喜国公民`
 
-### [前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应](/content/gnews/3/README.md)
+### [前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [一位46岁的女士的生活被中共病毒疫苗彻底摧毁了](/content/gnews/4/README.md)
+### [一位46岁的女士的生活被中共病毒疫苗彻底摧毁了](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CCP将世界打入了黑暗](/content/gnews/5/README.md)
+### [CCP将世界打入了黑暗](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/6/README.md)
+### [专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/8/README.md)
  ` 向真`
 
-### [中共的“社会信用”系统对公民全方位控制](/content/gnews/7/README.md)
+### [中共的“社会信用”系统对公民全方位控制](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗制造研发人员：从中共网站下载病毒基因序列，2-3小时内设计和制造出疫苗](/content/gnews/8/README.md)
+### [疫苗制造研发人员：从中共网站下载病毒基因序列，2-3小时内设计和制造出疫苗](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [56岁男子心脏病发，但无法得到有效救助](/content/gnews/9/README.md)
+### [56岁男子心脏病发，但无法得到有效救助](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？](/content/gnews/10/README.md)
+### [Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [对于媒体公司来说医药产品广告是他们的摇钱树， 越来越多美国人开始觉醒，他们明白在医疗问题上不能相信主流媒体](/content/gnews/11/README.md)
+### [对于媒体公司来说医药产品广告是他们的摇钱树， 越来越多美国人开始觉醒，他们明白在医疗问题上不能相信主流媒体](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在卡尔加里市政厅举行的世界上最大的“反疫苗护照”圣诞派对](/content/gnews/12/README.md)
+### [在卡尔加里市政厅举行的世界上最大的“反疫苗护照”圣诞派对](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [特鲁多的保镖对记者进行攻击以阻止其采访和提问](/content/gnews/13/README.md)
+### [特鲁多的保镖对记者进行攻击以阻止其采访和提问](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [美国官员警告中国正在将脑机接口、基因编辑和“精神控制武器”军事化](/content/gnews/14/README.md)
+### [美国官员警告中国正在将脑机接口、基因编辑和“精神控制武器”军事化](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [讽刺剧：武汉实验室举办如何避免实验室泄漏的会议](/content/gnews/15/README.md)
+### [讽刺剧：武汉实验室举办如何避免实验室泄漏的会议](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [真没钱了！中共房地产税开征在即](/content/gnews/16/README.md)
+### [真没钱了！中共房地产税开征在即](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界卫生委员会：这种新冠病毒的基因疫苗有毒](/content/gnews/17/README.md)
+### [世界卫生委员会：这种新冠病毒的基因疫苗有毒](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒：内容创作者将能够在盖特平台上以他们的作品来盈利](/content/gnews/18/README.md)
+### [杰森·米勒：内容创作者将能够在盖特平台上以他们的作品来盈利](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|习近平坐龙椅召见林郑 引网民热议批评](/content/gnews/19/README.md)
+### [有声|习近平坐龙椅召见林郑 引网民热议批评](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [郭文贵盖特音频2021.12.28](/content/gnews/20/README.md)
+### [郭文贵盖特音频2021.12.28](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|美国航空公司因Omicron再度取消800个航班](/content/gnews/21/README.md)
+### [有声|美国航空公司因Omicron再度取消800个航班](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [最新发布的VAERS数据： “疫苗”安全有效吗？](/content/gnews/22/README.md)
+### [最新发布的VAERS数据： “疫苗”安全有效吗？](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2021年12月28日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年12月28日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [郭文贵盖特音频2021.12.27](/content/gnews/25/README.md)
+### [郭文贵盖特音频2021.12.27](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/26/README.md)
+### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/27/README.md)
+### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/28/README.md)
+### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共国正在研发包括精神控制术在内的先进军事技术](/content/gnews/29/README.md)
+### [中共国正在研发包括精神控制术在内的先进军事技术](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/30/README.md)
+### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/31/README.md)
- ` GTV新闻访谈`
 
 ### [尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/32/README.md)
  ` GTV新闻访谈`
