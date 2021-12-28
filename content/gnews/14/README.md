@@ -2,38 +2,56 @@
 ---
 
 
-## 中共针对房地产问题集中发声，难掩高空置率危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798465/)
+## 文·贵天成——文贵先生谈“G-Club”（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798546/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒12月26日引用墙内消息，近日中共为应对房地产已经暴露的危机，力撑在冬奥会前不崩盘，各媒体密集发文，极力粉饰太平。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-28-下午9.30.46.png)
-12月26日，中共住建部部长王蒙徽表示，将坚决有力地处置个别房地产企业的逾期交付风险。同时要求保交楼和“房住不炒”。同日，许家印也表示，恒大目前复工率达到90%，较9月提高了近40个百分点，保交楼工作初显成效。中共资本市场研究院院长呼吁，居民应逐步降低对房地产的资产配置，不能把房地产过渡金融化。
+整理：BENJ1
+编辑：文泓
+![文章配图](https://assets.gnews.org/wp-content/uploads/2021/12/b61738e7e0cd7db8.png)图片来源：墨尔本雅典娜农场设计组（614）
+**郭文贵先生2020年6月6日直播**
 
-但现实却大相径庭。江苏盐城世茂小区业主在社交媒体上，上传其入住三个月小区的现状，入住户数寥寥无几。该业主爆料售楼处多数人是为了挣200元排队费去的。
+- Club、G-Fashion、G-Mall和咱们这个G-Fashion管理团队，百分之九十（成员）都来自我们（战友）管理，太年轻了！这个世界属于年轻人的，你们都是Old-Fashion了。G-Fashion（大家会看到），将改变世界的格局。
 
-分析人士指出，这表明墙内的新建房屋空置率居高不下，所谓保交楼和房住不炒等政策，无法解决高空置率，也就无法解决目前各大房地产企业，正在面临的债务爆雷。
 
-参考链接：
-1）[中国住建部部长：坚决有力处置个别头部房企、房地产项目逾期交付风险](https://cn.reuters.com/article/mohurdproperty-developers-comments-1226-idCNKBS2J601P)
-2）[吴晓求：居民应逐步降低对房地产的资产配置](https://www.sohu.com/a/511129768_561670)
-3）[盐城世茂业主发段子吐槽，当初售楼处挤满了人…](https://3g.163.com/dy/article/GS2VKCLV0545A1U2.html)
-4）[许家印：80%以上的主体、装修单位恢复了与恒大合作 绝不允许恒大任何一个人躺平](https://www.163.com/money/article/GS62BEED00259DLP.html)
+我们有G-Fashion、G-Club啊，大概一个月以后我们G-Club开始卖会员，1万美元起到5万美元，五个会员层次。G-Club先开始，然后G-Fashion、G-Mall，然后开始搞私募，然后G-Dollar、G-Coin，整个的我们的喜联储全面开始运作上线。然后G-News、G-TV，百分之九十都要以我们的战友为主。如果这些平台所有的盈利，首先不是让战友们赚钱，所有团队不是以战友为主，那么我们就失败了。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+所以说，今天上午好几个机构投资者就在这儿开会，找班农先生视频（对话），**问这个投资有什么前提?我说什么前提都可以谈啊，（但是）永远要记住，管理团队、还有优先利益，一二三四次私募，一切以我们战友为主，否则就不要谈**。我告诉他们，G-Dollar、G-Coin很快会达到十万亿美元，咱不信咱走着看——**三到五年十万亿美元**，G-TV万亿美元，G-Fashion、G-Club还有G-Mall一定是达到……G-News要达到将近5万亿美元，一定的！**我们要把共产党的所有掌握的钱，百分之七十拿到我们新中国联邦来。**我说，这谁也挡不住，没人能挡得住！
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+**郭文贵先生2020年6月13日连线江财神直播**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+G-Fashion我为什么不放在G-Mall里边呢?G-Fashion里边只给我G-Club会员来用的。就如江财神，我拿了5万美元，我买了个会员（资格）。我一到G-Fashion上去，就是所有的东西打5折、打5折。郭文贵这个金色的、淡金色的西装“BRIONI”特制领带，看到这一根线织到头的，一根线，你也看到视频了，妥妥地就给织出来的，只有我有，（会员）打5折而且是唯一的。别人不卖，给钱都不卖，这叫G-Fashio。然后世界名牌，你在我这，你想在G-Fashion上卖，对不起，老江同志买的必须是5折，要不你上隔壁G-Mall卖去。大家认可你，就买嘛，跟商店一样。是吧？那么你要想到我G-Fashion卖，都得5折。
+
+- **Club****是个独立的法律体制，完全独立的。**它的身份是干吗?你给了我钱，这钱你再也甭想拿回去了，我拿走了。干嘛去用?我在背后给你运作所有的品牌和资源，让他们给你5折。G-Fashion是完全独立的运作，我就是要收你每年5%的管理费，然后呢!卖给你最便宜的、最好的、高质量的品牌和我自己设计师的东西，主要绝大多数是我们自己的设计师，因为这个价格才能控制。你比如昨天我跟我们的G-Fashion工作团队在谈论3个品牌，你顺便一件衣服都搞个几千美元的，我问他你买不买?他说我想买，但是太贵。你老江也不能给媳妇儿一天买5千美元一件、8千美元一件，打了折也好几千美元呐!
+
+
+那我们成本控制最关键的一环就是设计师，他授权在他的厂，我们买料，按照他的设计生产出一模一样的东西。这个价格，老江你看那个是1万西服，我买给你这个才3千、2千美元，你穿着还挺舒服，觉得我沾了便宜了。这才是我们G-Fashion！绝大多数是设计师特别设计的，最牛的产品是我们G-Fashion用的。
+
+这三块（布局），我跟那个投行的哥们说，我给你讲G-Club，不要说咱先上十万会员，500万美元；100万会员，5千万美元；1千万会员，就是5千亿美元；1亿会员，5万亿美元。我问你，你觉得我这个G-Club能卖多少钱?他傻眼了。我说，这次G-TV投资6万多人都是绝对性的符合捐款条件者进来要投资，6万人中有2万人买（产品）是值多少钱?我的G-Mall、G-Fashion值多少钱?关于G-Club，然后我说，关键问题我（还）有两个货币。
+
+**郭文贵先生2020年6月15日第二次直播**
+
+G-Club过两天就开始卖，这几天我们基本研究出了新的政策。G-Club就是G俱乐部，五万美元是这个全会员，然后有五个级别，五万、四万、三万、两万、一万，每一万是一个级别，（五万会员）终生享有G-Fashion五折的优惠。G-Club将为大家打造一个全方位的、最佳生活品质的、高尚生活的一个大平台。
+
+我们G-Fashion在私募前怎么能让战友得到股票，我们现在合法的研究出G-Fashion未来怎么做。你四万不行啊、三万（也）不行，用五万美元你买了一个G-Club，你呢这五万美元我会给你说有一万美元，（就是）我借给你一万美元你再去买一块钱一股的G-Fashion。也就是你就是五万美元，你就拿到了一个还有一万股的G-Fashion。因为G-Fashion未来私募的时候，肯定从十万甚至五十万、一百万起步，很多人进不来。但是你买了这个G-Club的会员、五万美元，你就可以做到。战友们你看看这个有意思吧。
+
+**郭文贵先生2020年6月20日直播**
+
+**大家要记住，GTV、G-Fashion、G-Club、G-Dollar、G-Coin是人类的未来，是中国人的未来，记住我今天说这话。**没人能挡得住G-TV、G-Fashion、G-Club、G-Coin、G-Dollar，这是新中国联邦的建国基础。
+
+资料来源：郭先生GTV和盖特直播视频。
+
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
+
+发布： 去中心化Math
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

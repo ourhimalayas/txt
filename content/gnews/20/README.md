@@ -2,31 +2,38 @@
 ---
 
 
-## 西安疫情持续升温 中国大陆的新冠病例连续四天增长
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1798406/)
+## 中共针对房地产问题集中发声，难掩高空置率危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798465/)
 
-翻译/撰稿：GoergeC（乔治）
-校对：zzballack
-上传：无明逆流
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒12月26日引用墙内消息，近日中共为应对房地产已经暴露的危机，力撑在冬奥会前不崩盘，各媒体密集发文，极力粉饰太平。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-28-下午9.30.46.png)
+12月26日，中共住建部部长王蒙徽表示，将坚决有力地处置个别房地产企业的逾期交付风险。同时要求保交楼和“房住不炒”。同日，许家印也表示，恒大目前复工率达到90%，较9月提高了近40个百分点，保交楼工作初显成效。中共资本市场研究院院长呼吁，居民应逐步降低对房地产的资产配置，不能把房地产过渡金融化。
 
-据《路透社》（Reuters）12月28日报道，本周一，中国的新冠确诊病例数连续四天上升。其中， 陕西省西安市报告的新冠感染人数猛增，导致有1300万居民的古都西安处于封城状态。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3446IM.jpg)图片来源：路透社
-根据中共官方周二公布的数据，西安报告了175例确诊病例，高于前一天的150例。自12月9日以来，在西安的800多个新冠病例中，尚未发现奥米炕（Omicron）变种的感染者。中共公布的少数奥米炕病例，主要存在于国际游客和南方地区。
+但现实却大相径庭。江苏盐城世茂小区业主在社交媒体上，上传其入住三个月小区的现状，入住户数寥寥无几。该业主爆料售楼处多数人是为了挣200元排队费去的。
 
-根据中共卫健委发表的一份声明，本周一，中国大陆在全国范围内检测到182个新冠确诊病例，之前一天为162例，新冠病例数连续四天增长。
+分析人士指出，这表明墙内的新建房屋空置率居高不下，所谓保交楼和房住不炒等政策，无法解决高空置率，也就无法解决目前各大房地产企业，正在面临的债务爆雷。
 
-自2020年3月底中共官方宣布对无症状的新冠患者进行单独分类以来，周一通报的新冠病例数是单日最高。
+参考链接：
+1）[中国住建部部长：坚决有力处置个别头部房企、房地产项目逾期交付风险](https://cn.reuters.com/article/mohurdproperty-developers-comments-1226-idCNKBS2J601P)
+2）[吴晓求：居民应逐步降低对房地产的资产配置](https://www.sohu.com/a/511129768_561670)
+3）[盐城世茂业主发段子吐槽，当初售楼处挤满了人…](https://3g.163.com/dy/article/GS2VKCLV0545A1U2.html)
+4）[许家印：80%以上的主体、装修单位恢复了与恒大合作 绝不允许恒大任何一个人躺平](https://www.163.com/money/article/GS62BEED00259DLP.html)
 
-与其他许多国家的新冠疫情相比，西安和中共官方报告的病例数量较少。但是，根据中共当局立即遏制疫情爆发的要求，西安的地方官员们在城市内部和对离开城市均实行了严格的管制措施。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-自上周以来，西安当地居民未经雇主或官方允许不得离开西安市。同时，在周一开始的新一轮大规模核酸检测中，当地官员对西安市民外出购物进行了限制，并禁止非必要车辆上路行驶。
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-本周一，中国大陆没有通报新的新冠死亡病例。截止目前，中共官方通报的全国新冠死亡人数为4636人。截至12月底，包括中国本地的确诊病例和境外输入病例在内，中共官方一共通报了101486例新冠病例。
-
-**评论：**中共通报的新冠数据显然离事实相距甚远。根据郭文贵先生近日在大直播中透露的信息可知，西安的所谓疫情其实就是新冠疫苗导致的灾难，中共只是想用所谓的疫情掩盖疫苗灾难。然而随着爆料革命的不断推进，中共病毒及其疫苗的真相必将被世人揭露。随着正义的力量不断在GTV、Getter、GNews集结，人们必将战胜中共这个世界邪恶之源。
-
-新闻来源：[China local COVID-19 cases up for 4th day as Xian outbreak expands](https://www.reuters.com/world/china/china-regulator-suspend-some-china-eastern-xiamenair-flights-due-covid-19-cases-2021-12-27/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
