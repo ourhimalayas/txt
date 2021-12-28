@@ -15,98 +15,98 @@
 
 ---
 
-### [消灭所有的官二代富二代后，中国从九龙治水进入习天下](/content/gnews/1/README.md)
+### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [尼加拉瓜查封台湾前大使馆和外交办公室](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纽约州拟立法，为未接种疫苗者建立无期限“集中营”](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [干掉网红、外教和所有富豪及网络不可控力量独树习太阳](/content/gnews/4/README.md)
+### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [Isobel必将面对中共病毒和疫苗致死者亲人组成的陪审团](/content/gnews/5/README.md)
+### [视频| 西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [消灭所有的官二代富二代后，中国从九龙治水进入习天下](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [应对中俄地缘政治威胁 拜登签署7700亿美元国防授权法案](/content/gnews/6/README.md)
- ` 首尔天池农场`
-
-### [西方查明病毒和灭白真相后VICE和HBO会成为世界公敌](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [党委书记王丽：我有100种办法刑事他儿子](/content/gnews/8/README.md)
- ` 银河勇气之星`
-
-### [王沪宁位列国安委新型冠状病毒控制小组要放毒干死美国](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [尼加拉瓜将台湾使馆大楼移交中（共）国](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国政府最新“清洁规定”迫使达美航空在半空中调头](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西安事件就是疫苗导致的流血吐血以及某些器官急速衰竭](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【中日财经爆】中共国2022年退休人数将反超就业人数](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [近25%的海军军舰船员感染中共病毒](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国官员推荐缩短新冠病毒隔离期](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北京取消对外国汽车制造商在华经营的所有限制](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [印度律师协会起诉世卫首席科学家](/content/gnews/17/README.md)
- ` 澳喜特战旅Gnews`
-
-### [共产党紧跟七哥脚步承认运动员大概率得病显示治理能力](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [不敛钱不乱性不撒谎造假制造仇恨的正道主义是中共天敌](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花灭共诗——酬李尚儒先生赠酒](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [49岁的《纽约时报》编辑在注射莫德纳加强针后一天去世](/content/gnews/21/README.md)
+### [2021/12/25 文贵先生直播精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【速報】2020年代后期,日本人登月](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [被资本控制和市场诱惑的海外媒体以恶意采访为中共洗白](/content/gnews/24/README.md)
- ` mary202064`
-
-### [快飞影像遭受勒索软件攻击，要求支付数百万美元赎金](/content/gnews/25/README.md)
+### [尼加拉瓜查封台湾前大使馆和外交办公室](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19 最新情報｜最新研究：美國至少40萬人死於新冠疫苗](/content/gnews/26/README.md)
+### [纽约州拟立法，为未接种疫苗者建立无期限“集中营”](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [干掉网红、外教和所有富豪及网络不可控力量独树习太阳](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [专家警告辉瑞抗病毒药可能构成风险](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [Isobel必将面对中共病毒和疫苗致死者亲人组成的陪审团](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [应对中俄地缘政治威胁 拜登签署7700亿美元国防授权法案](/content/gnews/11/README.md)
+ ` 首尔天池农场`
+
+### [西方查明病毒和灭白真相后VICE和HBO会成为世界公敌](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [党委书记王丽：我有100种办法刑事他儿子](/content/gnews/13/README.md)
+ ` 银河勇气之星`
+
+### [王沪宁位列国安委新型冠状病毒控制小组要放毒干死美国](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [尼加拉瓜将台湾使馆大楼移交中（共）国](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国政府最新“清洁规定”迫使达美航空在半空中调头](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西安事件就是疫苗导致的流血吐血以及某些器官急速衰竭](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【中日财经爆】中共国2022年退休人数将反超就业人数](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [近25%的海军军舰船员感染中共病毒](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国官员推荐缩短新冠病毒隔离期](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [北京取消对外国汽车制造商在华经营的所有限制](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [印度律师协会起诉世卫首席科学家](/content/gnews/22/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [共产党紧跟七哥脚步承认运动员大概率得病显示治理能力](/content/gnews/23/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [49岁的《纽约时报》编辑在注射莫德纳加强针后一天去世](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【速報】2020年代后期,日本人登月](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被资本控制和市场诱惑的海外媒体以恶意采访为中共洗白](/content/gnews/26/README.md)
+ ` mary202064`
+
+### [快飞影像遭受勒索软件攻击，要求支付数百万美元赎金](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [COVID-19 最新情報｜最新研究：美國至少40萬人死於新冠疫苗](/content/gnews/28/README.md)
  ` 關注組`
 
-### [超市全员接种后集体感染](/content/gnews/27/README.md)
+### [超市全员接种后集体感染](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [为领到$100, 纽约市民大排长龙接种加强针](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [12/27/2021 文贵盖特：美国将给中共好处以让其麻痹并产生虚假繁荣的幻觉](/content/gnews/29/README.md)
+### [12/27/2021 文贵盖特：美国将给中共好处以让其麻痹并产生虚假繁荣的幻觉](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [丑闻：维多利亚州政府撒谎，试图压制二维码的真相](/content/gnews/30/README.md)
+### [丑闻：维多利亚州政府撒谎，试图压制二维码的真相](/content/gnews/31/README.md)
  ` 走进澳洲`
-
-### [文·贵天成——文贵先生谈“先锋集团”（二）](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [默克尔政府下台前批准大宗军火出口给独裁政权](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`

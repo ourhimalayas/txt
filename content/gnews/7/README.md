@@ -2,42 +2,39 @@
 ---
 
 
-## 西方查明病毒和灭白真相后VICE和HBO会成为世界公敌
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797643/)
+## 纽约州拟立法，为未接种疫苗者建立无期限“集中营”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1797696/)
 
-**郭文贵先生：**兄弟姐妹们，你看Isobel这个报道，如果你没引起警惕，那未来你发生什么事，你就活该了。她最后一杀手锏用了什么？第一句话就告诉你“这个病毒来自中共国和中共有灭白的计划，都是你撒谎。”西枫看到这个话了吗？那是她说这个话的时候表情我在这记忆犹新。她那个表情和肢体语言的紧张，那是她的重点。
+#### 整理报道：美哥
+编辑：文泓
 
-这小妮子跟我玩这个呐，跟我老中医面前开偏方。她就没想到我是干啥的是吧？我从小就专门治这些小妖小魔。我看她我觉得特别好笑，你跟我玩这个。我就当时想，我这回接受你采访接受对了，是吧，这件事情会把整个HBO VICE给它彻底毁掉。你记住我今天的话。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-5.jpg)图片来源：ABCNews
 
-这句话我们是直播、是录播、所有它自己也播了。当西方和美国世界查到了病毒真相，和真是共产党放的生化病毒 ，还有中共真有灭白计划，真的是有反白的时候，VICE和HBO不用我们说，它会成为全世界的敌人。七哥的引蛇出洞、用孩子、用自己亲身去套狼的行为，大家看明白了吗？
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+12月27日，据HAF新闻报道，将于明年1月5日的第一次立法辩论上，纽约州参众两院可能通过立法，允许将感染者、接触者、携带者，甚至任何被怀疑对“公共健康构成重大威胁”的人带走和拘留，**并将他们与公众无限期地隔离。该法案提议为未接种疫苗的人设立无限期的新冠（COVID）监狱营。**
 
-编辑整理：喜马拉雅的肉夹馍；
+A416议案是对纽约州民众基本自由权的严重威胁，剥夺了个人是否接受医疗协助和是否接种疫苗的选择权力，这项法案也为美国建立“集中营”铺平了道路。
+**议案允许纽约州长和其代表，包括卫生部门负责人，仅凭一纸命令，就可以隔离和拘留任何个人和集体，涉事人被拘留的地点也可以是在任何“合适的地方”，**而且该法案语言故意写的很含糊。此外法庭可以推翻议案规定的60天最长期限的关押，延长额外90天，卫生部门可以无限循环该司法流程。
 
-字幕文件制作：小满；
+**该议案还规定具有传染病风险的人，必须完成适当的预防或者药物治疗，包括打疫苗。这实际上赋予政府强制疫苗的权力。**鉴于任何人可能都是公共健康的“潜在”威胁，该议案意欲先发制人的将“危机”消灭在萌芽中，比如拒绝新冠病毒疫苗的这些人。
 
-视频制作及上传：Cindy；
+什么样的传染病人需要被转移，或者需要强制疫苗？目前还没有明确的定义。理论上是隔离到病人不再具有传染性。这又引出一个问题，艾滋病携带者是否还能重返社会？
 
-G-News发布：小满；
+A416法案在参议员网站收到了大量负面反馈。有人评论这是史无前例的法令，州长可以基于薄弱的证据拘留任何人，这不是美国文化。这是重蹈苏联对待政治犯的老路，给他们按一个“精神失常”的名头，然后关押起来。
+该法案与澳大利亚兴建隔离营遥相呼应，澳洲已建设了一些“隔离设施”，可以同时容纳数千人。目前，澳大利亚有数百人被强行安置在隔离营。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+当澳洲北领地宾贾里出现9个病毒阳性案例，当地政府将他们转移到霍华德斯模范隔离营。有儿童在所谓的隔离营遭受精神折磨：每天关押时间超过23小时；加拿大也在建立网格化的病毒“隔离营”，安大略省的议员兰迪·希利尔在被问到为什么要建“隔离营”的时候，居然被关闭了麦克风；新西兰也宣布将给所有感染新冠病毒的人安排强制隔离营地，而任何拒绝检测的人都将被长期强制关押，一举一动都将被监视；而德国，已经有数十人被强制关在政府的隔离中心。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+当前美国的A416议案的含糊语言，会使得检测阳性的感染者都也将面临无期限关押。
+新闻链接：[New York State Legislation Proposes: Indefinite Covid Prison Camps for Unvaccinated (humansarefree.com)](https://humansarefree.com/2021/12/ny-indefinite-covid-prison-camps-for-unvaccinated.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**发布：文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
