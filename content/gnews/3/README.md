@@ -2,36 +2,25 @@
 ---
 
 
-## 山东拟立法保障税收，欠税者可被阻止出境
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1797764/)
+## 超级计算机模拟结果推翻了中共病毒自然来源说
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797765/)
 
-撰稿：二号电梯
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-34.jpg)
-图片来自网络
-笔者近日获悉：
+#### 撰稿：彩虹
 
-《山东省税收保障条例(草案)》已经山东省第十三届人大常委会第三十二次会议初次审议。根据《山东省地方立法条例》规定，《山东省税收保障条例(草案)》全文公布，公开征求社会各界的意见和建议。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-4.png)图片来源：自然科学报告
+12月27日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布了文章，指甲骨文公司（Oracle）的超级计算机进行的模拟结果显示，中共病毒（COVID-19）“高度适应”人类感染，从而推翻了该病毒是通过野生动物蔓延到人类的自然来源说。
 
-齐鲁晚报·齐鲁壹点记者注意到，《条例草案》提出，税务机关对未按照规定结清应纳税款、滞纳金且不提供担保的纳税人或者其法定代表人，可以通知出境管理机关依法阻止其出境。办理不动产权属登记时，不动产登记机构应当依照法律、法规的规定查验与该不动产相关的完税凭证、减免税凭证或者有关信息；经查验已经履行申报缴纳义务的，不动产登记机构依法为其办理权属登记。
+正如澳大利亚知名记者、主播莎莉·马克森（Sharri Markson）在《武汉到底发生了什么》中所揭示的那样，弗林德斯大学（Flinders University）教授兼澳大利亚生物科技公司Vaxine研究主任尼古拉·彼得罗夫斯基（Nikolai Petrovsky）博士使用甲骨文超级计算机的“电脑模拟（In silico modelling）”方法来确定中共病毒（COVID-19）的原始宿主。
 
-看来中共是真的没钱了！开始从老百姓那里直接伸手了！但凡民间个人或企业，只要还有点钱的，就逃不掉被它以补税的名义抽筋扒皮！看看最近让那些娱乐明星，带货主播，动不动就补缴几千万，十几亿的税款就知道了！
+彼得罗夫斯基的研究结果似乎确定了人类才是中共病毒（COVID-19）的原始宿主，削弱了该病毒从动物转移到人类的理论，而应该是该病毒直接起源于人类。
 
-中共的税赋本来就全球第一重，个人所得税高达45%， 企业的营业税，利润税，当地基础建设税，教育税，替员工缴的养老金，保险，生育金……林林总总加起来占到企业利润60%以上！在这种几近榨干骨髓的税赋体系下，中共的企业和个人如果完全按中共要求缴税，大家都不用活了！所以大家长久以来都是通过各种方式从这里少缴点，那里少交点，才能勉强能继续下去！
+最终，彼得罗夫斯基的团队于2021年6月份在著名的《自然科学报告》杂志上发表了该研究成果，题为《[跨物种的刺突蛋白ACE2结合亲和力的电脑模拟比较：对SARS-CoV-2病毒可能性起源的意义（In silico comparison of spike protein-ACE2 binding affinities across species; significance for the possible origin of the SARS-CoV-2 virus）](https://www.nature.com/articles/s41598-021-92388-5)》。
 
-但是如今，中共眼看工业实体关门的越来越多，能收上来的税越来越少，这是铁了心的，要不计代价的准备从老百姓身上榨钱了！老百姓不配合，就不让你出国，只要还在中共国内，任你跑到天涯海角，还是逃不出它伸出的压榨魔爪！
+**新闻来源**
 
-参考消息：
+[Oracle Supercomputer: COVID-19 ‘Highly Adapted’ for Human (Not Bat or Pangolin) Infection](https://thenationalpulse.com/2021/12/27/oracle-supercomputer-supported-lab-leak/)
 
-[今日头条：山东拟立法保障税收,欠税者可被阻止出境](https://m.toutiao.com/is/8rW6juK/)
-
-编辑：云彩
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
