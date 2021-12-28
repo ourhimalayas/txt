@@ -2,11 +2,13 @@
 ---
 
 
-## 12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1796762/)
+## 专家警告辉瑞口服抗中共病毒药对患者有致死风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796763/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1228-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
