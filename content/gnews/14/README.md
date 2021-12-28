@@ -2,45 +2,68 @@
 ---
 
 
-## Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799310/)
+## 中共的“社会信用”系统对公民全方位控制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1799352/)
 
-作者：Drea Humphrey
-翻译：KK
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-13.jpg)中共国的房地产行业是其经济的核心。 盖蒂图片社
 
-BC 省卫生官员邦妮·亨利博士再次封锁圣诞节和新年，但 Omicron 变体是否足以成为这样做的借口？
+中共国的“社会信用”系统对公民进行排名，如果共产党对他们不信任，则会通过限制互联网速度和飞行禁令来惩罚他们。
 
-12 月 17 日星期五，亨利博士宣布对假期实施全面限制，其中包括取消所有人的新年前夜聚会，下令举办任何规模的有组织的活动，检查疫苗状态，以及限制室内聚会，例如圣诞晚餐，10 个人或一个额外的家庭，需要12 岁及以上的每个人都接种了新冠疫苗。
+中共一直在推出一种根据公民的“社会信用”对其进行排名的系统。
 
-考虑到现有的大量证据表明接种疫苗的人也有助于传播这种病毒，强制隔离未接种疫苗的人似乎特别不人道。
+如果人们驾驶不当、购买过多电子游戏或偷窃，他们都可能会受到惩罚。
 
-在宣布第一波假期限制后的短短 72 小时内，亨利博士又宣布了多项限制措施，这些限制措施将至少持续到 2022 年 1 月 18 日，从而再次侵犯公民自由以及中小型企业的权益。
+这不是一个统一的全国性系统，但中共计划最终将其全国强制执行。
 
-这些限制包括禁止所有室内聚会，如婚礼、俱乐部和休息室被迫关闭，而音乐会和电影院的容量将达到 50%。
+中共多年来一直在构建一个道德排名系统，以监控其庞大人口的一切行为——并根据他们的“社会信用”，对所有人进行排名。
 
-亨利使用Omicron 变体作为压榨许多人圣诞精神的主要借口。
+2014年首次公布的“社会信用体系”，是“社会主义市场经济体制和社会治理体系的重要组成部分”，旨在强化“守信光荣，失信可耻”的理念。到2015 年的写入政府文件。
 
-但正如您将在本报告中看到的，佐伊持续时间最长的新冠研究数据表明，虽然 Omicron 变体在接种疫苗和未接种疫苗的人群中迅速传播，但其症状比 Delta 更轻微，并且与普通感冒非常相似。
+据《南华早报》报道，该排名由中共经济规划小组、国家发展和改革委员会（**NDRC**）、中国人民银行和中国法院系统共同决定。
 
-来源：[https://www.rebelnews.com/omicron\_symptoms\_are\_like\_the\_common\_cold\_so\_why\_is\_bc\_locked\_down\_for\_christmas\_again](https://www.rebelnews.com/omicron_symptoms_are_like_the_common_cold_so_why_is_bc_locked_down_for_christmas_again)
+（点评：全方位断人活路，针对对中共有异见或微词的任何人！）
 
-（文章仅代表作者个人观点）
+该系统可用于个人，也可用于公司和政府组织。 据《连线》报道，私营部门，包括中共国蓬勃发展的科技界，都有自己的非政府评分系统。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+例如，据智库“美利士”（Merics）称，马云蚂蚁集团旗下的芝麻信用对其员工使用了自己的非官方评分系统，例如，研究他们的购物习惯。
 
-**关注我们**
+据 CNBC 报道，该计划近年来已在全国数百万人中进行了试点，预计到 2020 年将全面投入运营和整合。
 
-Discord 账号
+但目前该系统是零碎和自愿的，尽管计划最终在全国范围内强制和统一，每个人都有自己的独特代码，用于实时衡量他们的社会信用评分。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+不良驾驶和债务可能会使您在社交排名系统中降级
 
-Gettr 账号
+与私人信用评分一样，一个人的社交评分，可以根据他们的行为上下波动。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+确切的方法是一个秘密——但违规的例子包括不良驾驶、在非吸烟区吸烟、购买过多的电子游戏，以及在网上发布“虚假新闻”，特别是关于恐怖袭击或机场安全的新闻。
+
+其他潜在的应受惩罚的罪行包括，长时间玩电子游戏、在无意义的购买上浪费金钱，以及在社交媒体上发帖。
+
+处罚包括旅行禁令和网速减慢
+
+中共国已经开始通过限制旅行来惩罚人们，包括禁止他们乘坐飞机。
+
+据《卫报》报道，根据国家公共信用信息中心的数据，截至 2018 年底，当局禁止人们购买航班 1750 万次。
+
+他们还可以限制奢侈选择——许多人被禁止获得商务舱火车票，有些人被排除在最好的酒店之外。
+
+该系统被比作反乌托邦科幻小说
+
+中共的社会信用体系，将道德优势纳入该计划，这就是为什么许多人将其与某种程度的反乌托邦治理相提并论，例如，在乔治奥威尔的《1984》中，国家严格控制公民生活的方方面面。
+
+**点评：西方民主国家效仿中共，正在强制的“疫苗护照”，令人不寒而栗！**
+
+**参考资料：**[businessinsider][China’s ‘social credit’ system ranks citizens and punishes them with throttled internet speeds and flight bans if the Communist Party deems them untrustworthy](https://www.businessinsider.com/china-social-credit-system-punishments-and-rewards-explained-2018-4)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 

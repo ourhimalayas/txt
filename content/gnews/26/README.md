@@ -2,18 +2,18 @@
 ---
 
 
-## 郭文贵盖特音频2021.12.27
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1799010/)
+## 郭文贵盖特音频2021.12.28
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1799079/)
 
 音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/12/out-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/out-1-1.jpg)
+
+
 ### 视频链接：
 
-[https://www.gettr.com/post/pkrk8l916c](https://www.gettr.com/post/pkrk8l916c)
+[https://www.gettr.com/post/pktzu55e32](https://www.gettr.com/post/pktzu55e32)
 
 ### 音频链接：
-
-
 
 编辑发布：闪电训练
 

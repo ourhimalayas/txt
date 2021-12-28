@@ -2,20 +2,12 @@
 ---
 
 
-## 郭文贵盖特音频2021.12.28
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1799079/)
+## 世界卫生委员会：这种新冠病毒的基因疫苗有毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1799161/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/12/out-1-1.jpg)
+11/29/2021 世界卫生委员会：这种新冠病毒的基因疫苗既无效又不安全。它们是有毒的。我们要求政府\企业和个人立即停止参与到这种疫苗的各种相关活动。
 
-
-### 视频链接：
-
-[https://www.gettr.com/post/pktzu55e32](https://www.gettr.com/post/pktzu55e32)
-
-### 音频链接：
-
-编辑发布：闪电训练
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

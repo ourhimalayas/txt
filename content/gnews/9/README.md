@@ -2,32 +2,34 @@
 ---
 
 
-## CCP将世界打入了黑暗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1799496/)
+## 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1799520/)
 
-加拿大温哥华扬帆农场—Quitman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-下午2.46.44-1.png)
-图片来源：sohu.com
+By：喜国公民
+视频来自网络
+[彼得·麦卡洛博士在接受“乔·罗根经历节目”采访](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)时，谈到彼得·布雷金最近出版的书：《新冠病毒和全球掠夺者：我们是猎物》，以及波贝特·肯尼迪撰写的《真实的安东尼-福奇》。
 
-郭文贵先生爆料中所说，CCP尽其所能在政治、军事、经济和金融多方面 同美国为首的西方开始超限战。CCP从研制冠状病毒开始就已经制定了“13579计划”，准备掀起新型的世界大战。郭先生在2017年11月20日便根据所了解的CCP计划，向世界发出警报，“黑暗的时刻即将来到”。自从2019年底CCP释放研制多年的生化病毒，两周年过去了，CCP真的将全世界打入了黑暗。
+书中揭露了邪恶势力如何预谋和实施了这次新冠病毒大流行和新冠疫苗的大规模接种，并全面疯狂地打压早期治疗药物，如羟氯喹和伊维菌素。
 
-CCP病毒肆虐全球，至今已经造成2亿7320万人感染，其中536万人死亡。2020年全球因新冠病毒疫情造成的经济损失为5.67万元美元，预计2021年可能在5.8-8.8万亿美元。CCP病毒导致的全球失业人数2020年增加3千3百万。由于病毒传染力极强，世界各国均采取了不同程度的隔离和限制出行，使全世界人民长时间不得不呆在家里，特别使学生不能到学校正常上课，因此，导致了无数人进入忧郁状态。
+他们利用新冠病毒大流行来制造恐惧、痛苦、隔离、住院和死亡，目的是使人们接受新冠疫苗，并在全世界实施大规模新冠疫苗的接种。
 
-现在CCP（夏秋）释放的新病毒Omicron横扫世界。每天感染的人数暴增，例如美国12月26日新增214,499，加拿大新增20,693。世界再次进入大流行状态。因此说，郭文贵先生早在2017年预警的“黑暗时刻”已经来到。
+这些书描述的都不是虚构的故事。例如《新冠病毒和全球掠夺者：我们是猎物》一书就引用了1000多条参考文献。
 
-全世界爱好和平的人民应该看清CCP的本质，是时候团结起来，同心合力消灭CCP，还世界一个和平与安宁。
+书中揭示了盖茨基金会、全球疫苗和免疫联盟、辉瑞和莫得纳等疫苗制造公司以及武汉病毒实验室是如何勾结，运作，协调和计划的。
 
-参考资料：
+具体包括，莫得纳公司在新冠病毒从实验室释放出来之前就在研究新冠疫苗。以及美国国家卫生研究院和美国北卡罗来纳大学的拉尔夫·巴里奇签署新冠疫苗秘密转让协议。
 
-【1】https://www.youtube.com/watch?v=zXCshIg4aNE
+另外，有证据可以佐证这种预谋。[约翰霍普金斯大学曾在2017年召开被称为”SPARS大流行”的研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)。
 
-【2】https://www.statista.com/topics/6139/covid-19-impact-on-the-global-economy/#dossierKeyfigures
+会后发表的研讨会出版物中提到，世界上将出现一种与MERS和SARS类似的冠状病毒，将使城市关闭并使人恐惧。
 
-【3】[https://gnews.org/zh-hans/1779603/](https://gnews.org/zh-hans/1779603/)
+还提到人们对治疗新冠病毒的药物的认知将出现混乱，如羟氯喹或伊维菌素。他们将利用这一切，以便将民众纳入大规模接种新冠疫苗的轨道。
 
-【4】[https://gnews.org/zh-hans/1779602/](https://gnews.org/zh-hans/1779602/)
+该研讨会预测新冠病毒大流行将在2025年发生。但它提前了几年。根据郭文贵先生爆料，中共为了镇压香港的反送中民主运动，释放了武汉病毒实验室中的新冠病毒，照成世界范围的大流行。
 
-编审：文敏    发布：Winner为自由而战（文祥）
+信息来源： [乔](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)[·罗根经历节目](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+
+[约翰霍普金斯大学](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)[2017年SPARS大流行”研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)
 
  
 

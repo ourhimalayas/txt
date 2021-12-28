@@ -2,34 +2,55 @@
 ---
 
 
-## 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1799520/)
+## 蕾塔桑伯格抨击乔拜登未能兑现气候变化承诺
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799553/)
 
-By：喜国公民
-视频来自网络
-[彼得·麦卡洛博士在接受“乔·罗根经历节目”采访](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)时，谈到彼得·布雷金最近出版的书：《新冠病毒和全球掠夺者：我们是猎物》，以及波贝特·肯尼迪撰写的《真实的安东尼-福奇》。
+作者：Ian Miles Cheong
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-344.png)
+气候变化活动家格蕾塔·桑伯格抨击美国总统乔·拜登 (Joe Biden) 未能在其上任第一年领导气候变化而投资新的化石燃料基础设施。
 
-书中揭露了邪恶势力如何预谋和实施了这次新冠病毒大流行和新冠疫苗的大规模接种，并全面疯狂地打压早期治疗药物，如羟氯喹和伊维菌素。
+桑伯格在接受《华盛顿邮报》采访时抨击拜登明显的虚伪和说一套做一套的行为。
 
-他们利用新冠病毒大流行来制造恐惧、痛苦、隔离、住院和死亡，目的是使人们接受新冠疫苗，并在全世界实施大规模新冠疫苗的接种。
+“我的意思是，当你看到他的政府正在做的事情时，人们认为乔拜登是气候领导者，这很奇怪，” 桑伯格说。“美国实际上正在扩大化石燃料基础设施。美国为什么要这么做？”
 
-这些书描述的都不是虚构的故事。例如《新冠病毒和全球掠夺者：我们是猎物》一书就引用了1000多条参考文献。
+桑伯格在 2018 年首次亮相时就气候运动的状况发表了她的讲话，这使她登上了世界舞台。 最初在瑞典议会前进行的单人罢工已成为国际运动的警告，忽视化石燃料燃烧影响的可怕后果。
 
-书中揭示了盖茨基金会、全球疫苗和免疫联盟、辉瑞和莫得纳等疫苗制造公司以及武汉病毒实验室是如何勾结，运作，协调和计划的。
+她说：“这不应该落在我们这些只是想上学以提高这种意识并告诉人们我们实际上正面临紧急情况的活动家和青少年身上。”
 
-具体包括，莫得纳公司在新冠病毒从实验室释放出来之前就在研究新冠疫苗。以及美国国家卫生研究院和美国北卡罗来纳大学的拉尔夫·巴里奇签署新冠疫苗秘密转让协议。
+曾将 COP26 联合国气候变化会议称为“失败”和“公关活动”的桑伯格，她加倍强调了对该活动的批评。
 
-另外，有证据可以佐证这种预谋。[约翰霍普金斯大学曾在2017年召开被称为”SPARS大流行”的研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)。
+“好吧，在最终文件中，他们甚至成功地淡化了……”她说。“如果你这样看的话，这在很大程度上是一项成就。当然，这是向前迈出的一步，而不是每五年回来一次，他们现在每年都这样做。但是，这仍然没有任何意义，除非他们确实根据他们的雄心着手执行。”
 
-会后发表的研讨会出版物中提到，世界上将出现一种与MERS和SARS类似的冠状病毒，将使城市关闭并使人恐惧。
+桑伯格解释说，像乔拜登这样的世界领导人害怕对政策做出任何实质性的改变，因为人是“群居动物”。
 
-还提到人们对治疗新冠病毒的药物的认知将出现混乱，如羟氯喹或伊维菌素。他们将利用这一切，以便将民众纳入大规模接种新冠疫苗的轨道。
+“感觉今天很多人，神经质的人，一般人，都非常专注于跟随潮流，像其他人一样做，因为他们不想脱颖而出，”通贝里告诉邮报。“他们不想感到不舒服。他们不想引起任何问题。他们只是想和其他人一样。”
 
-该研讨会预测新冠病毒大流行将在2025年发生。但它提前了几年。根据郭文贵先生爆料，中共为了镇压香港的反送中民主运动，释放了武汉病毒实验室中的新冠病毒，照成世界范围的大流行。
+“而且我认为这对于群居动物的我们在紧急情况下是非常有害，”她补充道。“我们是群居动物。在紧急情况下，需要有人说我们正在走向悬崖。每个人都只是跟着说，“好吧，没有其他人会转身，所以我也不会。” 那可能非常危险。”
 
-信息来源： [乔](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)[·罗根经历节目](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+虽然桑伯格没有详细说明拜登如何扩大美国的化石燃料基础设施，但拜登政府在 11 月对美国历史上最大的石油租赁销售进行了明显的监督，当时它拍卖了墨西哥湾超过 8000 万英亩的钻井空间。
 
-[约翰霍普金斯大学](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)[2017年SPARS大流行”研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)
+据《每日电讯报》报道，拜登的内政部为推进出售的决定辩护，称其受到联邦法院裁决的束缚。
+
+尽管拜登采取了扩大海上钻探的举措，但总统也奉行取消国内油气管道建设的激进政策。今年年初，拜登取消了 Keystone XL 管道延长线，转而建设可再生能源项目作为替代，从而损失了数千个工作岗位。
+
+来源：https://www.rebelnews.com/greta\_thunberg\_slams\_joe\_biden\_for\_failure\_to\_uphold\_climate\_change\_promises
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
