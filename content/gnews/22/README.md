@@ -2,58 +2,58 @@
 ---
 
 
-## 参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1797137/)
+## 【樱花深度报道】法院文件揭露中共间谍已渗透台湾军队（一）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797177/)
 
-参议员瑞克·斯科特: 环球时报新闻是认真的么？ 他的笑容？ 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一。 对那个邪恶之人没有什么值得庆祝的。 【转环球时报推文及视频，提及纪念毛贼东诞辰日】
+编译：东京樱花团/Hopkins
 
+【编者按】[路透社](https://www.epochtimes.com/gb/tag/%E8%B7%AF%E9%80%8F%E7%A4%BE.html)近期发表“T-Day：台湾战役”系列报导，本文聚焦在[共谍](https://www.epochtimes.com/gb/tag/%E5%85%B1%E8%B0%8D.html)[渗透](https://www.epochtimes.com/gb/tag/%E6%B8%97%E9%80%8F.html)台湾[军方](https://www.epochtimes.com/gb/tag/%E5%86%9B%E6%96%B9.html)的问题，报导过去十年台湾至少21名上尉以上军阶的现役与退役军官，因替中共从事间谍活动而被定罪，甚至连[总统](https://www.epochtimes.com/gb/tag/%E6%80%BB%E7%BB%9F.html)随扈也被渗透。文中描述北京当局涉嫌找来台湾军方的指挥官，并诱使他们成为间谍的过程。路透社这篇长文提及的共谍案内容，先前台湾媒体多已报导。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1552.png)（图片说明）蔡英文总统于2017年抵达台北总统府。守卫她办公室的保安人员的姓名和电话号码被泄露。路透社/Tyrone Siu
+台北——20多年来，谢锡璋（Xie Xizhang）在访问台湾时以香港商人的身份出现。他现在被指控执行另一项任务：为中国招募间谍。
 
+根据指控从事间谍活动的法院文件，在 2006 年的一次旅行中，谢在一次用餐时会见了台湾退休的高级海军军官张培宁（Chang Pei-ning）。文件称，张成为了谢的代理人之一，帮助他渗透到台湾的军事领导层，这是中国长期在现役和退役军官之间建立间谍活动的一部分。
 
-> Seriously, [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)? His smile? Mao Zedong murdered tens of millions of people & is one of the reasons Communist China is the brutal, oppressive dictatorship it is today. There is nothing about that evil man worth celebrating. [https://t.co/kfgciKvIKF](https://t.co/kfgciKvIKF)
-> — Rick Scott (@SenRickScott) [December 27, 2021](https://twitter.com/SenRickScott/status/1475507523956449283?ref_src=twsrc%5Etfw)
+据称，这些台湾军官及其家人被谢提出的出国旅行全额支付、数千美元现金以及丝巾和腰带等礼物送给他们的妻子所引诱。据路透社查阅的文件显示，2019 年 6 月，反间谍人员针对谢的网络展开突袭，发现了更多证据。现在，张正面临间谍指控，并已发出逮捕谢的逮捕令。据知情人士透露，谢目前已不在台湾。
 
+这些文件中详述的行动表明，北京据称是如何寻找台湾军队的指挥官并诱使他们成为间谍的。近年来，台湾的一系列军事间谍活动被定罪。据台湾退休高级军官和现任政府官员称，这些案件表明，中国发动了一场更广泛的运动，以破坏民主岛屿的军事和文职领导，腐蚀其战斗意志，窃取高科技武器的细节，并深入了解国防规划。 这些间谍特工，还包括在台湾有经验的前美国军事和情报官员。
 
+法庭上不断传出的定罪表明台湾的反间谍机构正在与一场损害台湾武装部队和政府机构核心高级官员的运动作斗争。
 
-美前国务卿迈克·蓬佩奥： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 能够主导通过南中国海的商业运输，那么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 控制南海的威胁将使我们今天所遭受的供应链问题看起来像是儿戏。
+北京甚至渗透了保护台湾总统蔡英文的安全护卫。一名退休的总统安全官员和一名负责保护总统的部队的现役宪兵中校今年早些时候因向中国情报机构泄露有关蔡英文安全的敏感信息而被定罪。
 
+根据高等法院的裁决，这些信息包括保护总统的单位特别服务中心的手绘组织结构图。据路透社查阅的法庭文件和当地媒体报道，两人还被指控泄露了在台北市中心守卫总统府和蔡英文官邸的高级保安人员的姓名、职务和工作电话号码。
 
+根据路透社对法庭记录的审查和台湾官方新闻机构的报道，在过去十年中，至少有 21 名台湾上尉或以上军衔在职或退休的军官因为中国从事间谍活动而被定罪。审查显示，目前至少有 9 名其他现役或退役武装部队成员因涉嫌与来自中国的间谍接触而受到审判或接受调查。
 
-> The threat from China's domination of the South China Sea will make the supply chain problems that we're suffering from today look like child's play if the Chinese are able to dominate commercial shipments through the South China Sea.
-> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475628087794708486?ref_src=twsrc%5Etfw)
+21名被定罪的官员被判犯有为中国招募间谍或向中国传递一系列敏感信息的罪行，包括台湾高级官员的联系方式和台湾在中国的代理人的详细信息。
 
+北京国台办没有回应路透社关于中国在台湾从事间谍活动的问题。
 
+在台北，国防部告诉路透社，积极的反情报工作阻止了中国渗透军队。该部在一份声明中表示，它通过教育活动来鼓励和奖励官兵报告与“罪犯”的初步接触。该部表示，这些接触者会立即受到调查，当有可能丢失机密信息时，军方会采取行动阻止任何泄漏。
 
-众议院军事委员会共和党： 资深成员罗杰斯议员：“我很高兴看到22财年《国防授权法案》 已经签署成为法律…我们的工作还没有完成。随着新年的临近，我们国家面临着来自旗鼓相当的对手前所未有的侵略和威胁，即 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯” 【附众议院官网链接：22财年国防授权法案签署成为法律后罗杰斯的声明】
+该部表示，这项努力意味着目前为止还“没有渗透”。
 
+台湾主要间谍机构司法部调查局表示，对正在进行的法律事务不予置评。
 
+然而，台湾政府的其他部门对间谍活动表示震惊。台湾陆委会在一份声明中告诉路透社，中国“不断扩大间谍活动”是北京正在进行的“恶意政治行动”之一，破坏“两岸关系的正常发展”。
 
-> RM [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw): "I am glad to see that the FY22 NDAA has been signed into law… Our work is not finished. As we approach the new year, our nation faces unprecedented aggression and threats from near-peer adversaries, namely China and Russia." [https://t.co/OyQBCtlSIg](https://t.co/OyQBCtlSIg) [pic.twitter.com/VmX5B0wCZX](https://t.co/VmX5B0wCZX)
-> — Armed Services GOP (@HASCRepublicans) [December 27, 2021](https://twitter.com/HASCRepublicans/status/1475564136985731082?ref_src=twsrc%5Etfw)
+台湾和美国的军事分析人士表示，如果双方陷入公开冲突，台湾军队中处于有利地位的间谍可能为中国提供无价的情报。今年的紧张局势急剧上升，中国军队正在加紧针对该岛的灰色地带战，这是一场威胁性的空中和海上巡逻行动，但还没有达到公开战的程度。解放军也在稳步积累夺取台湾、阻止美国干预所需的火力。
 
+北京执政的共产党将台湾视为必须与大陆统一的中国省份。习近平主席表示，中国更愿意和平统一，但不排除武力。蔡总统说台湾是一个独立的国家，正式名称为中华民国，并誓言捍卫其民主和自由。
 
+“中国正在对台湾进行非常有针对性的渗透努力，”退役的台湾海军中将卢立实（Lu Li-shih）说。他说，间谍案件表明，尽管在军事警告北京间谍活动的危险性方面进行了密集的内部教育活动，但北京已经损害了几乎所有级别，包括高级将领。
 
-参议员泰德·克鲁兹： “受人尊敬” 哦，是的，他还折磨和谋杀了超过6000万人。 【转’环球屎报’推，有关毛贼东咽气128周年的洗脑宣传视频】
+研究过中国间谍活动的卢说，北京的特工经常通过提供小礼物、饮料和餐点来软化他们的目标。卢说，处理人员通常会为从现任或退休军官那里提取的第一条秘密信息支付高额费用。他说，这笔款项后来将用于勒索他们以低得多的价格提供进一步的情报。
 
+（未完待续）
 
+作者： REUTERS/YIMOU LEE 和 DAVID LAGUE
 
-> “revered” 
-> 
-> Oh yeah, and he also tortured and murdered over 60 million people. [https://t.co/5JKjHIXeN4](https://t.co/5JKjHIXeN4)
-> — Ted Cruz (@tedcruz) [December 27, 2021](https://twitter.com/tedcruz/status/1475268292206022659?ref_src=twsrc%5Etfw)
+信息来源：[**Chinese spies have penetrated Taiwan’s military, case documents reveal**](https://www.reuters.com/investigates/special-report/taiwan-china-espionage/)
 
-
-
-美国国务院： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))、气候和其他紧迫挑战时，我们处于更坚实的立足点。 我们在与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家打交道方面处于更强大的地缘政治地位，因为它们试图破坏国际体系。【附布林肯讲话视频】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/HR42uCkak5](https://t.co/HR42uCkak5)
-> — Department of State (@StateDept) [December 26, 2021](https://twitter.com/StateDept/status/1475134313788178437?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
