@@ -2,25 +2,25 @@
 ---
 
 
-## 特鲁多的大规模监控措施遭猛烈抨击
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796715/)
+## 特鲁多斥中共挑拨分化并外交抵制冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796726/)
 
-采编/翻译编撰：薇文     校对编辑：硫酸羟氯喹64
+采编/编译撰稿：文莱      校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-3-edited.png)图片来源：spencerfernando.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-11-edited-scaled.jpg)图片来源：TNH
 
 
-加拿大著名媒体人费南多12月26日发表评论文章，抨击【公共卫生署】未经民众同意，非法对该国3300多万台个人移动设备进行秘密监控，并通过跟踪收集使用者的定位数据以获取疫情政策被执行的具体状况。
+据【国家邮报】12月25日报道，加拿大总理特鲁多当天宣称，西方民主国家应该建立一个反抗中共国的联盟，以防止中共当局再次利用各种经济利益诱惑，对西方各国政府进行挑拨离间及分化瓦解。
 
-费南多指出，由于大部分人未安装政府指定的有关疫情控制的手机应用程序，当局就因此在从未征得手机使用者同意的情况下，使用各种非法强制手段获取私人信息，以此对民众进行大规模监控跟踪。同时，以防控疫情为由，为长期大规模控制其国民人身自由做准备，并将暂时的行政措施变成专治政府的永久权力。
+特鲁多对媒体表示，加拿大与西方民主国家一直都在进行着公平的商业交易，但中共则利用各种非法利益手段，阴险地将这些民主国家玩弄于股掌之间。因此，加拿大与西方盟国应该共同合作以对抗中共政权的威胁。
 
-该媒体人还指出，诸如总理特鲁多等加拿大政府的极权主义者，为获得更多的权力而控制了政治阶层和机构媒体，这与独裁的中共政权如出一辙。并呼吁国民应珍视自由和个人权利，共同努力剥夺当局的极端权力。同时还要意识到，政府不仅无权强行封锁和强制接种疫苗，更无权大规模监控毫不知情的加拿大人。
+报道称，自2018年华为的孟晚舟因美国引渡令被拘留以来，加中关系就陷入僵局。尽管目前中共当局暂停了其卑劣的人质外交政策。但面对该政权日益膨胀的野心，加拿大必须采取有效反抗措施，并与盟国一起联合外交抵制北京冬奥会。
 
 * * *
 
 发稿：硫酸羟氯喹64
 
-原文链接:  [Canadians Should Be Outraged By Authoritarian Mass Surveillance](https://spencerfernando.com/2021/12/26/canadians-should-be-outraged-by-authoritarian-mass-surveillance/)
+参考资料： [China ‘playing’ Western countries against one another, says Trudeau | National Post](https://nationalpost.com/news/politics/western-states-need-united-front-against-divisive-china-trudeau)
 
  
 

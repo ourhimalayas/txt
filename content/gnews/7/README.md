@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|一艘全员接种的美海军战斗舰爆发冠状病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796657/)
+## 加拿大中共病毒感染确诊总数突破200万
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796680/)
 
-配音：香草山美食部 – 玫瑰园
+采编/翻译：文莱          校对编辑：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-10-edited.jpg)图片来源：CTV
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
+据加拿大【CTV新闻】12月27日报道，自“新冠病毒”疫情爆发以来，加拿大现已有超过200万该病毒感染确诊者。
 
-报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
+据悉，虽然一些省份和地区因假期没有更新相关统计数据，但由于当日安大略省已连续第四天报告了近万病例，加之魁北克省平均每天超过8000例，最终使得该国突破了200万感染者记录。
 
-据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
+报道称，由于圣诞节期间的病毒测试延迟以及大量的社交聚会，将会使本已脆弱不堪的医疗系统更加窘迫，因此超负荷的医疗压力也意味着加拿大疫情的真实状况可能需要一段时间才会逐渐显现。
 
-对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
+本台编辑对此评论，中共发起的病毒超限战袭击已使加拿大千疮百孔，民不聊生。尽管加拿大“新冠病毒”疫苗的接种率几乎世界最高，但疫情不仅未被有效遏制，反而是愈发严重，并使得当局以此为借口，不断实施更加严格的封锁政策和极端的疫苗强制接种规定。
 
-文字版原文：[一艘全员接种的美海军战斗舰爆发冠状病毒](https://gnews.org/zh-hans/1792521/)
+* * *
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+发稿：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [Canada surpasses 2 million COVID-19 cases | CTV News](https://www.ctvnews.ca/health/coronavirus/canada-surpasses-2-million-covid-19-cases-since-start-of-pandemic-1.5720515)
 
  
 
