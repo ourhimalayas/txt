@@ -2,35 +2,52 @@
 ---
 
 
-## 美军推出“让中共感到恐惧”的战略轰炸机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798891/)
+## 打脸中共内宣新华社关于台湾物价不实谣言
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1799011/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒12月26日报道，曾经被美国空军部长肯德尔描述为，让中共感到恐惧的B-21突袭者战略轰炸机，即将在2022年首次亮相，并在公开展示后的数月内进行首次试飞。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-48.jpg)
-肯德尔表示，自上任以来有3件优先事项，那就是中共、中共、还是中共。去年12月，他在国会上指出，美国必须打造让中共恐惧的武器，并优先用于对付中共。据悉，自美军30年前展示B-2轰炸机以来，这是首次亮相新型战略轰炸机。目前正有5架B-21隐形轰炸机在生产线上，目标是2022年进行首飞与加紧测试。
+撰文 : 新中国联邦静、铃铃卷
 
-致力于应对中共威胁，是促使肯德而回到五角大楼的重要因素。他在参议院提名会上说，其明确目标是，美国必须击败中共国在附近投射力量的能力。
+以下是根据家乐福官网的蔬菜报价
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1593.png)
+家乐福有机高丽菜(每粒约600克±10%)
+满额折7%
+$ 99
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-448.jpeg)
+台湾牛蕃茄(每盒约600克±10%)
+◎销售入数：1入 ◎规格： 1Box盒 x 1 ◎品牌：生鲜蔬果
+原价$99
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-449.jpeg)
+台湾木瓜(每颗约800克±10%)
+满额折7%
+$79
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-450.jpeg)
+以下是根据全联官网的水果报价
 
-参考链接:
-1) . [美正在生產5架測試用B21轟炸機 空軍部長：中國讓我夜不能寐](https://www.chinatimes.com/realtimenews/20210922003752-260409?chdtv)
-2) .[聲稱要讓中國恐懼 美空軍B21隱形轟炸機即將亮相首飛](https://www.chinatimes.com/realtimenews/20211226003216-260409?chdtv)
+NT : 199元
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+简单几种蔬菜报价就知道中共又想藉由误导民生物价激起台湾人民民怨，进而让台湾亲共派间谍们配合舆论造谣，期望达到被中共统一很美好的虚幻假象。
 
-总编：飞虹
-编辑：DM
-校正/发稿：Fei797
+针对新华社报导:失控的台湾物价，做市场调查说明
+今日拜读了12月28日新华社文章 《失控的台湾物价》，心中疑问重重，我现居住于台湾，为何完全没感觉台湾的物价失控了呢 ?
+刚好我就在超市内购物，于是就想看看物价是否真如新华社大媒体所说的”台湾物价失控了”?
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新华社报导:半颗高丽菜1百多元。我看到的高丽菜价格半颗是35元。
+新华社报导:1颗西红柿80元。我看到的西红柿价格是4颗99元。
+新华社报导:水果也贵森森。我刚好到附近水果摊买了盛产的橘子(12颗100元)和番茄(1斤39元)，水果摊还有卖芭乐1斤39元，特大颗火龙果1斤69元，即使是较为高档的台湾子弹莲雾及甜蜜枣也才1斤79元及89元，我实在真的看不出台湾物价哪里失控了? 物价难免多少会有波动，媒体应该就事实面做报导，而不是只为诋毁台湾而做这种夸大其辞且耸动的报导。
 
+物价的波动乃为全球性之状态，台湾行政院为减少台湾人民因通膨所带来生活上的压力，于2021年11月8日宣布台湾公务员明年调薪4%，此一举措，希望民间企业能跟进，使台湾人民能有祥和安定的生活。反观中共国，如果中共能够苦民所苦，极力为民谋福祉，中国就不会贫富差距如此之大，也不会有6亿人月收入只有1000人民币了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1594.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1595.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1596.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1597.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1598.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1599.png)
+[軍公教明年調薪4％ 人事長：本俸、專業及主管加給均調 – 政治 – 自由時報電子報 (ltn.com.tw)](https://news.ltn.com.tw/amp/news/politics/breakingnews/3729802)
+
+台湾宝岛农场:铃铃卷、新中国联邦静
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
