@@ -2,33 +2,35 @@
 ---
 
 
-## 前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1799518/)
+## 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1799520/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/mfile_1623236_1_L_20211208012114.jpg)图片来源：网络
-前大陆集团首席执行官猛烈抨击福奇对 Omicron 的“错误信息太多”和“鸡肋”的回应
+By：喜国公民
+视频来自网络
+[彼得·麦卡洛博士在接受“乔·罗根经历节目”采访](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)时，谈到彼得·布雷金最近出版的书：《新冠病毒和全球掠夺者：我们是猎物》，以及波贝特·肯尼迪撰写的《真实的安东尼-福奇》。
 
-美国大陆航空公司前首席执行官戈登·白求恩 (Gordon Bethune) 表示，由于“错误信息太多”，他已不再听取美国 Covid-19 最高沙皇安东尼·福奇博士的讲话。
+书中揭露了邪恶势力如何预谋和实施了这次新冠病毒大流行和新冠疫苗的大规模接种，并全面疯狂地打压早期治疗药物，如羟氯喹和伊维菌素。
 
-“我想成为一名优秀的 CNBC 撰稿人，但我不再听福奇博士的话了。 这只是太多的错误信息，”他告诉“Power Lunch”。
+他们利用新冠病毒大流行来制造恐惧、痛苦、隔离、住院和死亡，目的是使人们接受新冠疫苗，并在全世界实施大规模新冠疫苗的接种。
 
-他补充说：“如果你驾驶飞机 ， 安东尼.福奇 如何处理这场危机，我们都会死。”他称政府对 Omicron 的反应“鸡肋”。
+这些书描述的都不是虚构的故事。例如《新冠病毒和全球掠夺者：我们是猎物》一书就引用了1000多条参考文献。
 
-开始是“天要塌了……我们反应过度了。 我以为我们正在回到中心线并恢复正常，但为期 10 天的 Covid 隔离确实让后备飞行员出局了。 他明白了。 他被关起来了。 他不能进入。后备飞行员、后备调度员、后备机械师……”他补充道。
+书中揭示了盖茨基金会、全球疫苗和免疫联盟、辉瑞和莫得纳等疫苗制造公司以及武汉病毒实验室是如何勾结，运作，协调和计划的。
 
-白求恩的评论是在福奇宣布美国旅客在商业航空旅行中应该永远戴上口罩之后发表的（尽管接种了疫苗）。
+具体包括，莫得纳公司在新冠病毒从实验室释放出来之前就在研究新冠疫苗。以及美国国家卫生研究院和美国北卡罗来纳大学的拉尔夫·巴里奇签署新冠疫苗秘密转让协议。
 
-美国国家过敏症和传染病研究所所长，被自由党人誉为民族英雄，他们简单地喜欢重复“相信科学”的口头禅，他在本周最近的一次采访中告诉美国广播公司，在飞机上摘下口罩是“ 甚至不是我们应该考虑的事情。”
+另外，有证据可以佐证这种预谋。[约翰霍普金斯大学曾在2017年召开被称为”SPARS大流行”的研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)。
 
-现在福奇不想让我们庆祝除夕……
+会后发表的研讨会出版物中提到，世界上将出现一种与MERS和SARS类似的冠状病毒，将使城市关闭并使人恐惧。
 
-来源链接：[https://www.nationandstate.com/2021/12/27/former-continental-ceo-slams-fauci-for-too-much-misinformation-and-chicken-little-response-to-omicron/?amp](https://www.nationandstate.com/2021/12/27/former-continental-ceo-slams-fauci-for-too-much-misinformation-and-chicken-little-response-to-omicron/?amp)
+还提到人们对治疗新冠病毒的药物的认知将出现混乱，如羟氯喹或伊维菌素。他们将利用这一切，以便将民众纳入大规模接种新冠疫苗的轨道。
 
-编辑/发布：LILY
+该研讨会预测新冠病毒大流行将在2025年发生。但它提前了几年。根据郭文贵先生爆料，中共为了镇压香港的反送中民主运动，释放了武汉病毒实验室中的新冠病毒，照成世界范围的大流行。
 
-20211228
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+信息来源： [乔](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)[·罗根经历节目](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+
+[约翰霍普金斯大学](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)[2017年SPARS大流行”研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
