@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/28/2021 4:41 PM (UTC)`
+
+<br/>12月28日：吃饭饭喽……荷叶蒸老鸡！
+![img](https://media.gettr.com/group9/getter/2021/12/28/16/8f0973aa-98fc-9c4a-d809-bf2ac98748ed/out.jpg)
+
+---
+
 `@miles 12/28/2021 3:40 PM (UTC)`
 
 12月28号:尊敬的戰友們好⋯⋯共产党的洗脑和即将到来的经济大崩潰⋯⋯將害死太多无辜的同胞⋯⋯这是让我们非常非常的心痛很无力的地方，我们将竭尽全力拯救更多的同胞⋯⋯一切都已经开始。
@@ -153,13 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12月25号：在今天这个特别的日子里．<br/>当年的齐澳塞斯库就是在12月25号被枪毙的！原来共产主义的苏联也是在12月25号解体的……这是一个伟大的日子。七哥的厨艺大显身手……馍馍蒸熟啦……
 ![img](https://media.gettr.com/group31/getter/2021/12/25/16/30b492c3-d4d7-29fd-2362-3b2f8e888b71/out.jpg)
-
----
-
-`@miles 12/25/2021 2:26 PM (UTC)`
-
-12月25号2021年……圣诞节文贵……蒸馍馍直播
-![img](https://media.gettr.com/group2/getter/2021/12/25/14/05a7f5b1-4aeb-484d-e241-5e6b31537f13/416694de4fd2fe76dbf1d08424832cf6.jpg)
 
 ---
 

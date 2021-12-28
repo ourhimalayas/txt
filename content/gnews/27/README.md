@@ -2,46 +2,58 @@
 ---
 
 
-## 印度拟全面禁止加密货币以发展央行数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798665/)
+## 郭先生谈人生在世如何渡过自己
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1798725/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1440x810_cmsv2_23120c39-4aed-5393-8bab-bb29d734d815-6244900.jpg)
+作者：银河勇气星—骄子
 
 
 
-图片来源：Euronews
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
 
 
-#### 编译：小红帽
 
-根据RT12月27日报道，根据印度民族主义组织Rashtriya Swayamsevak Sangh的附属机构Swadeshi Jagran Manch（SJM）的说法，**在印度应禁止购买、出售、投资以及交易任何加密货币。**
 
-处理经济问题的SJM周日通过了一项决议，要求印度政府对加密货币资产的交易实行全面禁止。
 
-在SJM全国会议上通过的决议要求：“政府应理正确地禁止任何居住在印度的人购买、出售、投资和以其他方式进行加密货币交易。”
+2021年12月25日圣诞大直播节目中，郭先生与战友分享关于人的灵魂话题。
 
-SJM还要求印度储备银行（RBI）尽快推出其数字货币，以核查私人数字货币的非法使用问题。同时，**应该迅速制定与印度储备银行发行数字货币有关的法律。中央银行数字货币（CBDC）应被视为法定货币**。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/christmas.png)
 
-“比特币、以太坊等加密货币不应被视为资产或数字资产，因为它会间接成为货币一样的交换媒介。”
+郭先生早年从清丰看守所出来之后遍访各大宗教高人，都未能得到关于灵魂方面的解答。一次在五台山，与某高僧站在悬崖之上，清风拂面，但是不能再向前踏出一步，踏出就会粉身碎骨，而退后则是已经厌倦的人生保护壳。
 
-根据该决议，**加密货币没有基础价值，其发行者无法识别，并且会导致严重的投机行为，从而损害金融市场。对加密货币的认可会导致洗钱和资助恐怖主义。**
+高僧说，每个人都会面临人生的悬崖时刻，不能退不能遂。佛家和道家，不过都是在解决这个问题：如何渡过自己。人的肉身虽然被物理限制，但不能成为到达彼岸的限制。
 
-同时，**该组织表示完全支持在经济或社会活动的所有领域使用区块链，称该技术不应与加密货币挂钩。**
+今天的一切互联网技术让人和人之间的交流如此便捷，起码在此时，已经突破了肉身的限制。 灵魂就像风，而风从彼岸吹来。
 
-一段时间以来，印度央行一直关注虚拟货币，政府正考虑在今年彻底禁止虚拟货币。
+由此得出，人的灵魂来自地球之外的宇宙。每个灵魂到达地球是有原因的，目的是放下一切累赘和恐惧，渡过自己，解放自己，升华自己，在美好中到达彼岸。新中国联邦链接着每一个战友，像区块链一样，本能永远存在，每个个体彼此独立而又彼此相连，这是最大的魅力。
 
-新闻来源： [Major economy sees renewed calls for crypto ban — RT Business News](https://www.rt.com/business/544497-india-complete-crypto-ban/)
+参考来源：
 
-***发布：小红帽***
+[https://gtv.org/video/id=61c74f5100f9a119180a92be](https://gtv.org/video/id=61c74f5100f9a119180a92be)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+编辑/校正/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
+
+
+
+
 
  
 
