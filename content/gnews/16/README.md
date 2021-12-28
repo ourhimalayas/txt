@@ -2,24 +2,53 @@
 ---
 
 
-## 【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797461/)
+## 49岁的《纽约时报》编辑在注射莫德纳加强针后一天去世
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1797463/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1563.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fslides%2F2021%2F12%2F52d301ffc310a3c13b34a9bcece43c15.jpg&amp;imgrefurl=https%3A%2F%2Fm.yicai.com%2Fnews%2F101053297.html&amp;tbnid=KAxwdM2NRjPSxM&amp;vet=10CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM..i&amp;docid=dg1sUYA_OrGh0M&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E4%B8%AD%E7%A7%BB%E5%8A%A8A%E8%82%A1&amp;ved=0CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM)
-最近中共国A股市场常出现新股跌破发行价，又或发行后大额弃购事件。12月27日晚间，在港股有上万亿元市值的巨无霸中国移动被美股踢走之后，发布回A股上市发行结果，遭到上万名投资者7.43亿元弃购，甚至超过了2年前中国邮储银行6.53亿元弃购的历史纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/t_35269201a8524c6eb768e34ac62c1067_name_vax_pass_gif4.jpg)图片来源：the National Puls
+《纽约时报》亚洲区副主编卡洛斯·特哈达(Carlos Tejada)去世，享年49岁。他在社交媒体上发布自己接种了莫德纳（Moderna）疫苗加强针后不到一天，就心脏病发作了。
 
-如果按照1000股一签，弃购签数为1万2910签，如果一签对应一位投资者的话，就有上万名投资者弃购。最近一段时间，新股频频出现大额弃购，史上最贵新股禾迈股份遭3.63亿元弃购，上市首日却大涨30％，不过遭弃购1.99亿元的百济神州却大跌逾16％。
+《纽约时报》之前，他曾在《华尔街日报》工作过近五年。
 
-除遭网上投资者弃购之外，中国移动还遭网下投资者弃购金额1270.49万元，包含渤海证券资管和知名私募翼虎投资也进行弃购。
+根据特哈达自己的Instagram页面，他很感激在韩国首尔时接受信使核糖核酸/脂质纳米颗粒（mRNA/LNP）疫苗加强针。特哈达最初于2021年7月接种了强生脱氧核糖核酸/腺相关病毒（DNA/AAV）COVID-19疫苗。在12月17日接受了莫德纳疫苗加强针后不到一天，特哈达死于心脏病发作。第二天早上，他的妻子诺拉（Nora）通过特哈达的社交媒体发布了这一消息。《纽约时报》于12月22日证实了他的死讯。
 
-根据资料显示，中国移动此次A股发行价为57.58元／股，“超额配售权”行使前发行总股数为8.457亿股、募资总额为486.95亿元；“超额配售权”全额行使的话，发行总股数将扩大到9.72555亿股、募资总额为560亿元。
+前纽约时报记者亚历克斯·贝伦森（Alex Berenson）在他的子堆栈（Substack）上报道说，特哈达在没有知情同意的情况下接受疫苗加强针注射，因为同意书是用韩文写的，而特哈达不懂韩语。
 
-消息来源：[中移动回A股上市遭弃购逾7亿人币刷新历史](https://www.chinatimes.com/realtimenews/20211228001947-260409?chdtv)
+在他的社交媒体上，特哈达开玩笑说奥密克戎（Omicron）变种病毒可以“用你的湿鼻涕打它”，然后继续说，“我所要做的就是用一种我看不懂的语言填写这张表格。翻译软件告诉我，我现在属于防弹少年团（BTS）。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+贝伦森还指出，目前还没有关于混合两种不同类型疫苗接种效果的临床试验。
+
+关于新冠病毒疫苗接种的研究表明，那些快速连续接种疫苗的人更有可能出现心脏并发症，例如心肌炎和心包炎。
+
+到目前为止，《纽约时报》没有提到特哈达在他过早死亡前几个小时接受了疫苗加强针注射。对此，该报前雇员贝伦森表示，他希望特哈达的死最终能“唤醒时报”。
+
+发表于美国动物医院协会（AAHA）上的研究表明，mRNA疫苗增加了患者的炎症标记物。在特哈达接受莫德纳疫苗加强针之前，美国疾病控制与预防中心(CDC)宣布80%的新冠病毒奥密克戎“变中病毒”病例，是在“完全接种疫苗”的个体中发现的。
+
+47%的奥密克戎病例是在那些只接受了第一次疫苗接种的人身上发现的，其中33%的病例是在接种疫苗和接种了疫苗加强针的人身上发现的。
+
+**简评：**无论政客们如何粉饰，也无法掩盖中共病毒疫苗只会增加感染、加速死亡的事实。中共发动的这场生化武器战争，以每秒钟7.55人感染，每分钟5.1人被杀死的速度推进。圣诞节这个本该是阖家欢乐、万家团圆的日子，全世界的人们却被笼罩在中共病毒、毒疫苗的氛围中。
+
+在过去的一年中，有多少原本幸福的家庭妻离子散、阴阳相隔。如特哈达这样，在接种了疫苗加强针，抑或那些接种了疫苗后突然死亡，能唤醒人们对CCP病毒疫苗灾难的认识吗？
+
+新闻链接：
+
+
+
+> [NY Times Editor, 49, Dies One Day After Moderna Booster Shot.](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
