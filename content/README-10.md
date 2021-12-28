@@ -16,6 +16,8 @@
 ---
 ## 頁面 10/38 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [38](/content/README-38.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年9月24日郭先生GTV直播](/content/2020/10/20201003-8524459119651508821.md)
+
 [文字版:2020年9月20日郭先生GTV直播](/content/2020/09/20200926-3423558412983946225.md)
 
 [文字版:2020年9月19日郭先生GTV直播](/content/2020/09/20200926-954028387970316580.md)
@@ -63,8 +65,6 @@
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/content/2020/08/20200814-3147962922303992326.md)
 
 [【文字版】2020年8月7日文贵先生直播视频](/content/2020/08/20200814-1685166699558420781.md)
-
-[文字版：2020年8月5日郭先生GTV盖特视频](/content/2020/08/20200814-7866344919726272257.md)
 
 
 ## 頁面 10/38 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [38](/content/README-38.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/38 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [38](/content/README-38.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/content/2019/10/20191011-8102906543007438735.md)
+
 [文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/2019/10/20191010-834338873791119399.md)
 
 [文字稿：2019年10月7日郭文贵先生直播谈第一次在美受威胁，CCP染指NBA，接下来会有一大波挑拨文贵和美国、班农及法治基金关系和战友的炒作](/content/2019/10/20191009-2888489214062371964.md)
@@ -63,8 +65,6 @@
 [文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
 
 [文字版：9月3號白宮前直播  ](/content/2019/09/20190904-4087259509718924066.md)
-
-[文字版：2019年9月3日郭先生第一次直播](/content/2019/09/20190904-8691813112681761342.md)
 
 
 ## 頁面 20/38 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [38](/content/README-38.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
