@@ -2,24 +2,42 @@
 ---
 
 
-## 停止接种新冠疫苗的几点理由
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1797590/)
+## 西安事件就是疫苗导致的流血吐血以及某些器官急速衰竭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797603/)
 
-字幕翻译：Jenny
-字幕听写/添加：一灯一智
-**一，高接种率的英国在Omicron变异病毒面前溃不成军，再次佐证疫苗赶不上病毒变异的脚步**。英国首相鲍里斯·约翰逊自己都很清楚：“新冠疫苗即不能保护你不染上这种疾病，也不能保护你不把它传给别人”。
+**郭文贵先生：**另外一个就是看到西安事件，西安这个事件记住，它就是疫苗导致的结果。我现在可以更加告诉大家，疫苗的结果就是流血、吐血以及某些器官的急速衰竭，这就是个疫苗结果。
 
-据英国政府12月24日公布的疫情数据显示，新增确诊病例超过12万例，是疫情暴发以来的日感染最高纪录，伦敦是英国疫情最严重的地区。截至12月19日大约每20个人中有1人确诊感染病毒。而英国12岁以上人群已接种两剂新冠疫苗比例高达82%，并且有超过56%已接种过加强针。
+你现在看一看世界上各种医学拍出来，打完疫苗以后身体的感觉，你知道有多瘆得慌。就在你的血管里到处像个树林一样，在你的血管里像个大树林一样，无数个小蛇、大蛇盘在了一起，在你血管里，你去看了吧，就那么可怕，恐惧到了什么程度！
 
-**二，美国著名的[彼得·麦卡洛博士](https://gnews.org/zh-hans/1766276/)医生告诉我们这是一场由“权威人士的渎职引发的灾难”**。他在视频中说：有超过4000名美国人死亡，欧洲有超过10，000人死亡，他们是在接种疫苗后的第二或第三天死亡的。载入历史陈述将是“权威人士的渎职错误行为导致这些死亡”。他还说据他所知澳大利亚每人计划有14针新冠疫苗，也就是7年内每6个月一针。
+而且是所有这些人死了以后的身体迅速的就是一个坑、一个包的腐烂，就是这些打的mRNA把你整个身体都快吃掉。你是死了，生命是停止呼吸了，你打的那个疫苗可没死啊！
 
-澳大利亚新南卫视州首席卫生官凯丽·钱特医生（Kerry Chant)更是不加掩饰地公开讲：“在未来，我们需要习惯于接种COVID疫苗，加强剂针、重复针剂都将是其中的一部分。我们可以向你们保证，澳大利亚联邦政府已经为2022年购买了大量的疫苗，疫苗会有一个定期接种周期，重新接种疫苗周期取决于我们对免疫力挥发的时间有了更多的了解。**这些所谓的权威人士不知道病毒变异的速度和方向却能准确地为民众预定未来几年的疫苗，他们的科学依据究竟是什么？**
+字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
 
-**三，关闭疫苗项目的极限是大约25到50人死亡。**1976年的猪流感，25人死亡，他们关闭了疫苗项目，对于流感，当他们发现有53人因接种疫苗而死亡时，他们就质疑疫苗。视频中的权威人士说：“我们可以证明这种新冠疫苗在72小时内有45000人死亡”。
+编辑整理：喜马拉雅的肉夹馍；
 
-推荐文章：[彼得·麦卡洛博士谈羟氯喹作为治疗新冠的有效药物被打压的事实](https://gnews.org/zh-hans/1766276/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
