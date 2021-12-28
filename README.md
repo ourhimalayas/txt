@@ -15,104 +15,104 @@
 
 ---
 
-### [拜登签署《国防授权法》 涉及应对中共国威胁](/content/gnews/1/README.md)
+### [郭文贵先生G系列核心总结](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [塔利班：女性必须在男性亲属陪伴下旅行](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [拜登签署《国防授权法》 涉及应对中共国威胁](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [专家警告辉瑞口服抗中共病毒药对患者有致死风险](/content/gnews/2/README.md)
+### [专家警告辉瑞口服抗中共病毒药对患者有致死风险](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/3/README.md)
+### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗](/content/gnews/4/README.md)
+### [广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/5/README.md)
+### [【G时新闻】FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [美国麦特公司与中共合推“疫苗护照”计划](/content/gnews/6/README.md)
+### [美国麦特公司与中共合推“疫苗护照”计划](/content/gnews/8/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/7/README.md)
+### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/8/README.md)
+### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/10/README.md)
  ` MOS香港部`
 
-### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/9/README.md)
+### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/11/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大奥密克戎疫情持续恶化](/content/gnews/10/README.md)
+### [加拿大奥密克戎疫情持续恶化](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大斥巨资购买新型口服抗病毒药](/content/gnews/11/README.md)
+### [加拿大斥巨资购买新型口服抗病毒药](/content/gnews/13/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/12/README.md)
+### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大中共病毒感染确诊总数突破200万](/content/gnews/13/README.md)
+### [加拿大中共病毒感染确诊总数突破200万](/content/gnews/15/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [串珠502:习性无能没有私生子，有一女儿化名李木子](/content/gnews/14/README.md)
+### [串珠502:习性无能没有私生子，有一女儿化名李木子](/content/gnews/16/README.md)
  ` 郭爆料串珠`
 
-### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/15/README.md)
+### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/16/README.md)
+### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/18/README.md)
  ` 郭爆料串珠`
 
-### [文贵先生盖特精要2021/12/27](/content/gnews/17/README.md)
+### [文贵先生盖特精要2021/12/27](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [张高丽玩处女 家族一定会受审判](/content/gnews/18/README.md)
+### [张高丽玩处女 家族一定会受审判](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党需要张高丽，彭帅消失](/content/gnews/19/README.md)
+### [共产党需要张高丽，彭帅消失](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/20/README.md)
+### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [49岁媒体副主编接种加强针一天后去世](/content/gnews/21/README.md)
+### [49岁媒体副主编接种加强针一天后去世](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [一周内至少四名足球运动员心脏猝死](/content/gnews/22/README.md)
+### [一周内至少四名足球运动员心脏猝死](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [盖特在德国蓬勃发展](/content/gnews/23/README.md)
+### [盖特在德国蓬勃发展](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/24/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [日本不打算派高级官员参加北京奥运会](/content/gnews/25/README.md)
+### [日本不打算派高级官员参加北京奥运会](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|德国新外长将对中共采取强硬立场](/content/gnews/26/README.md)
+### [有声|德国新外长将对中共采取强硬立场](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [英国政府打算逐门逐户登门打疫苗](/content/gnews/27/README.md)
+### [英国政府打算逐门逐户登门打疫苗](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/28/README.md)
+### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第207期玫瑰看新闻-币圈新闻](/content/gnews/29/README.md)
+### [第207期玫瑰看新闻-币圈新闻](/content/gnews/31/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国航空公司因Omicron再度取消800个航班](/content/gnews/30/README.md)
+### [美国航空公司因Omicron再度取消800个航班](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/31/README.md)
+### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大战在即？日中将开通热线](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|HBO Vice炮制虚假采访背后的真相](/content/gnews/33/README.md)
- ` MOSREC`
 
 ### [联盟工作汇报文字版2021.12.26](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`

@@ -2,25 +2,28 @@
 ---
 
 
-## 盖特在德国蓬勃发展
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796518/)
+## 49岁媒体副主编接种加强针一天后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796520/)
 
-作者：纽约香草山 – DM
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据德国媒体12月26号报道，新的言论自由平台盖特，迎来了自7月4日启动以来最成功的一天，德国的新增用户数量甚至超过了美国和巴西的市场。
+12月26日，据国家脉搏网站报道，美国一媒体亚洲区副主编卡洛斯·特哈达，在接种了莫德纳疫苗加强针不到24小时的时间里，就因心脏病突然发作而不幸去逝。
 
-该报道表示，盖特旨在打破Twitter 、YouTube和Facebook等审查平台的霸权，并保证互联网上真正的言论自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-2.jpg)
-针对已遭受的大规模审查，该媒体明确表示正在为盖特宣传，并取得了巨大的成功。仅在周二，德国加入该平台的人数，就超过了世界上任何其他国家。现在，盖特在德国拥有超过 25万用户，在全球拥有超过 300 万用户。
+公开信息显示，特哈达此前还曾担任另一美国媒体的中共国区新闻编辑，是一位有影响的知名记者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-4.jpg)
+在今年的7月5日，特哈达曾公开表示，自己刚刚接种了强生公司的腺病毒载体DNA疫苗。而在本月17日，特哈达发布了他人生中的最后一条Ins更新，称自己已经接种了莫德纳mRNA疫苗加强针，并将其与此前的强生疫苗进行了混打。但就在接种后的24小时内，特哈达就因突发心脏病被紧急送进了首尔的一家医院，后因抢救无效去世，年仅49岁。
 
-德国联邦宪法保护办公室前负责人Hans-Georg Maaßen也加入了该平台，并写信感谢盖特总裁杰森.米勒。他在信中指出，言论自由权是所有基本权利中最重要的一项。而且，从现在开始他将推荐使用盖特平台，主要保护那些不同意政府、反对媒体统治人们话语权的人；人们需要与各种形式的社会主义作斗争，而所有人应该有想要的言论自由。
+据悉，特哈达所供职的媒体也对他的突然离世及生平事迹进行了详细的报道。但是，对他刚刚接种过中共病毒疫苗的消息却只字未提。
 
-参考链接：[盖特在德国蓬勃发展](https://reitschuster.de/post/reitschuster-effekt-gettr-boomt-in-deutschland/)
+参考链接：
+1. [49岁媒体副主编接种加强针一天后去世](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+2. [49岁媒体副主编接种加强针一天后去世](https://cn.nytimes.com/obits/20211223/carlos-tejada-dead/)
+3. [49岁媒体副主编接种加强针一天后去世](https://www.timednews.com/article/2021/12/26/12685.html)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：DM
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

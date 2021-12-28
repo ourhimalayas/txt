@@ -2,26 +2,49 @@
 ---
 
 
-## 大战在即？日中将开通热线
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796385/)
+## 美国航空公司因Omicron再度取消800个航班
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1796449/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-105.jpg)[图片来源](https://gendai.ismedia.jp/articles/-/73326)
-12月27日下午，日本防卫大臣岸信夫与中共国防部长魏凤和举行了电话会谈，双方同意争取在未来一年内将“日中热线”投入使用，以避免意外冲突。
+作者：纽约香草山农场 – 四季
 
-这次会议持续了大约两个小时，是在中共国实施允许海警船使用武器的《海警法》后，日本于2月提出的会谈要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-会上，防卫大臣岸信夫对《海警法》以及中共军队在尖阁群岛周围水域的活动深表担忧，他表明反对中共基于武力改变现状的单方面企图，强烈要求中共保持克制。
 
-还提到台湾局势，称“台湾的和平与稳定对日本的安全和国际社会的稳定极为重要”。 对此，魏凤和阐述了中共立场，坚持认为，中共将坚决捍卫对尖阁群岛的领土主张，双方应共同管理风险，防止矛盾升级。
 
-同时，双同意在日中防务部门之间开通“热线”，以避免发生意外冲突，未来一年中将投入使用。
 
-[信息来源](https://news.yahoo.co.jp/articles/f8af0a47d68ca6ec7f3f6262de13f12037efba50)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据[新闻极限网站](https://www.newsmax.com/finance/streettalk/airline-industry-omicron/2021/12/27/id/1050048/)12月27日报道，美国航空公司在继圣诞节假期周末取消了数千航班后，周一又取消了约800个航班。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-20.jpg)（© Dreamstime)
+
+航班追踪网站FlightAware.com上的统计显示，截至周一凌晨，共有近740个美国境内以及进入或离开美国的航班被取消。
+
+随着全美各地Omicron感染率的上升，航空公司被迫取消航班，飞行员和乘务员也需要隔离。这一些措施致使旅客不得不寻求其他的旅行方式。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

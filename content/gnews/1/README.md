@@ -2,30 +2,54 @@
 ---
 
 
-## 拜登签署《国防授权法》 涉及应对中共国威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1796764/)
+## 郭文贵先生G系列核心总结
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796825/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-34.jpg)拜登签署《国防授权法》 涉及应对中共国威胁 网络图片
-据美国之音12月28日报道，美国总统乔·拜登27日将2022财政年度的《国防授权法》(NDAA)签署成法，授权拨款7770亿美元用于国防开支，其中涉及中共国。
+[https://gtv.org/video/id=61c9eb5043ccb726a08c48ea](https://gtv.org/video/id=61c9eb5043ccb726a08c48ea)
 
-参议院和众议院之前以压倒多数通过了这部法案，同时也得到了民主与共和两党议员的支持。这部法案授权2022年增加上一年军费开支的5%，包括71亿美元的“太平洋威慑倡议”、支持防卫台湾以及禁止美国国防部购买新疆强迫劳动的产品。两院两党议员达成妥协。
+**郭文贵
+Miles Guo**
 
-中共倾一国之力对抗美国以及西方世界，无论地缘政治、经济，还是病毒、疫苗，火力全开，美国不得不增加军费开支应对中共国威胁。中共虎视眈眈、有备而来，中美实际已经处在无硝烟的战争中。
+永远不要忘记，GTV永远是王
+Never forget, GTV is always king
 
-新闻参考链接：[https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+Gclub是你的通行证，和你的新中国联邦最早期的护照
+Gclub is your pass, and the earliest passport of the New Federal State of China
+
+Gfashion是你的文化和尊严的桥梁
+Gfashion is a bridge between culture and dignity
+
+Gettr是通往西方的桥梁
+Gettr is the bridge to the west
+
+我们的Gnews是未来和全人类，不分种族、不分任何文化的
+Our Gnews is the future and all mankind, regardless of race or culture
+
+只分好坏的，甚至坏人都有机会的
+only good and bad, even bad guys have the chance
+
+和我们新中国联邦交流的精神的平台、文化平台、信仰平台
+and a spiritual platform, cultural platform, and belief platform for communicating with our New Federal State of China
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date: 12/26/2021
+原视频标题: 郭文贵先生G系列核心总结
+Mr. Miles Guo talk about G-series core summary
+原视频日期：2021/12/24
+原视频链接：[https://gettr.com/post/pknkqaf34a](https://gettr.com/post/pknkqaf34a)
+任务编号：KC371（3346）
+视频时间段 : 0:00-0:42
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+制片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

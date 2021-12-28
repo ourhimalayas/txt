@@ -2,10 +2,10 @@
 ---
 
 
-## 广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796750/)
+## 专家警告辉瑞口服抗中共病毒药对患者有致死风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796763/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._28-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1228-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

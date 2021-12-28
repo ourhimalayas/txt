@@ -2,60 +2,60 @@
 ---
 
 
-## 串珠502:习性无能没有私生子，有一女儿化名李木子
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1796669/)
+## 制造恐惧——专家和政客应对新冠的法宝
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1796687/)
 
-简述：私生子消息是假的所有习的私生子的这些说法 郭先生：所有习的私生子这些说法， 都是扯王八犊子的事， 千万别信， 习没有这个性能力。习当时跟他老婆（前妻）打电话的时候， 每周都打电话哭得一塌糊涂。 他老婆说我还想要孩子呢， 结果你像习竟然亲自逮住了老婆， 竟然是驻英大使的女儿， 讲英文的那么好， 看不起习。 你看不起我呗， 你给我戴绿帽子。戴绿帽竟然让我知道， 知道你还把我抛弃。抛弃了我还求你， 竟然一年无果。——郭文贵2021年12月17日
-![](https://assets.gnews.org/wp-content/uploads/2021/12/489149CA-D1E3-44A4-AF33-B8F87DE4EC61.jpeg)
-封面：习女儿的奢靡生活远超普通人的想象；谁惹了李木子或彭丽媛都得完蛋，比如房峰辉。——郭文贵2021年12月12日
+**翻译：月映万川**
+**编辑：守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/covid_fear.jpeg)图片来源：MMJ Blog
+即使在新冠焦虑的下，圣诞节送来的基督的信息也都是美好的。从任何角度看，圣经《新约》里的主题带给人们的都是希望。
 
-有关习私生子的信息都是假的，习没有这个性能力，前妻为此还给他戴绿帽子。郭文贵2021年12月17日
+正相反，来自于所谓的卫生专家和大多数领导人的信息却基本都是让人失望的。
+就像古希腊和埃及神话中那条吞吃自己尾巴的大蛇，澳大利亚广播公司和第九媒体不加置疑地鼓噪那些极不靠谱的新冠预测模型，使大众产生了一种毫无缘由的危机感。
 
-2021年10月13日[习近平的噩梦与恐惧将来自于其家人。江志成、马云、王岐山、吴征、孟建柱、周亮等人已经完成对灭掉习近平家人的布局。郭先生：](https://gnews.org/zh-hans/1600344/)
+我在防疫方面没有专业背景，但是统计局所记录与分析的数字却展示了冰冷的事实。
 
-12/12/2021 Miles Guo: After the CCP was “dumped” by Russia, it asked the Russians how to restore the relationship; Xi Jinping believes that human rights are not suitable for China, while Russia is going to talk to the CCP by raising human rights issues; the fake Twitter account posing as Xi Jinping’s daughter has been showing off the wealth and opposing corruption at the same time; the end of the alliance of the CCP and Russia is absolutely beneficial to the Whistleblowers’ Movement
+根据澳洲统计局9月份最近的数据，澳洲新冠共死亡898例，被列为致死原因的第38位。这虽然是个过时数字，但仍然可以看出，新冠死亡在统计学上并没有多么重要的影响。
 
-12/12/2021 [文贵直播：中共被俄罗斯甩了还问要如何挽回；习认为人权不适合中国，但俄却要跟中共讲人权；假的习近平女儿推特号一边炫富一边反对腐败；中俄玩完对爆料革命绝对有利](https://www.gettr.com/post/pjlf8a68d2)
+事实上，2020年澳大利亚人口死亡率是略有下降的。没错，当许多澳大利亚人躲在自己的卧室内，在窗帘背后举报接待儿孙来访的邻居的时候，澳大利亚人的死亡人数实际却是减少的。
 
-12/12/2021 Miles Guo: Princess Xi is really something – many Chinese businesspersons have dined with her by bragging too much without knowing her real identity; the CCP regime in the past decade has been ruled by Xi Jinping and Peng Liyuan family via the so-called National Security Committee which has bypassed the CCP’s Party Standing Committee and the State administration; Xi’s foreign intelligence matters are in the hands of Xi’s sister family
+以现有的数据，把因新冠而死亡的病例都考虑进去，列在澳大利亚前五名的致死原因分别是缺血性心脏病、痴呆症（含阿尔茨海默病）、脑血管疾病、肺癌和慢性下呼吸道疾病，这与2019年的排序是一样的。
 
-[12/12/2021 文贵直播：习公主可不是一般人，很多企业家和她吃过饭吹过牛，但竟不知她就是习公主；过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控](https://www.gettr.com/post/pjlbb1f5f6)
+虽然一切的关注点都被引到了新冠上，所有的研究拨款也都分配给了疫苗的研发，但从2019年起，前五大死亡原因中的死亡率都有所下降。
 
-12/12/2021 文贵直播剪辑：[习近平女儿的真名叫李木子，习对其家人的维护和她女儿的奢靡生活远超普通人的想象；谁惹了李木子或彭丽媛都得完蛋，比如房峰辉](https://www.gettr.com/post/pjl0gi8243)
+需要指出的是，澳洲前5大死因自2011年以来就一直没有变化过。
 
-**2021年12月12日**
-![](https://lh3.googleusercontent.com/D9Jjq7r17mitO9MkvNm-YHOFcJmobHnJ1JNjh1zYxQwnYn9HxcnjBfEwya47b-T-c8XwaX8ujDB1oTsnjZr_Gly6m9V1qUtL8lvLRYEEpQeiAqXMhua7bwPFOZCxEx-YYakJhOkI)
-**2021年12月17日   **习性能力不行，私生子消息是假的所有习的私生子的这些说法 郭先生：所有习的私生子这些说法， 都是扯王八犊子的事， 千万别信， 习没有这个性能力。习当时跟他老婆打电话的时候， 每周都打电话哭得一塌糊涂。 他老婆说我还想要孩子呢， 结果你像习竟然亲自逮住了老婆， 竟然是驻英大使的女儿， 讲英文的那么好， 看不起习。 你看不起我呗， 你给我戴绿帽子。戴绿帽竟然让我知道， 知道你还把我抛弃。抛弃了我还求你， 竟然一年无果。
+慢性下呼吸道疾病（包括肺气肿）导致的死亡人数与2019年相比，下降的幅度最大，达到17.8%之巨。在任何其他时间，这都应该是头版新闻，但现在几乎没有媒体提及这一事实。
 
-这个时候习仲勋接待金正日同志访问中国， 就是我哥们的爹， 推荐了当时的彭丽媛同志亲自上场唱了给金正日唱了首歌。 习仲勋（说）这谁呀？哎这个好啊， 哎这个孩子不错查查八字， 一查八字属虎，和蛇有相克， 但是属相克，他不属于六和啊， 但是五和，十辰八字可以。 然后一谈音乐俩人就谈得来。 山东大姑娘，当时挺黑的这个彭丽媛， 大眼睛据说当时咔就成了。
+自杀、药物过量致死以及车祸致死率都有所下降。
 
-政治婚姻， 这百分之百这绝对的，其他都是胡扯的。 彭丽媛对习的好是奉献了一切。 就她弟弟彭雷一直跟着习在福建在厦门， 就天天陪他打乒乓球， 没有一天不在， 习这么多年，音乐绝对七哥第一个说的， 音乐造诣是中国历史以来官员当中最高的。
-![](https://lh6.googleusercontent.com/dVAfzX5Ttp6CmFZpTtAZrItZL8DBrGqHGR9Uk373UyLZ3k1ZJbwrGMAQcagU0LLCrSOgHZTaKRaXy46OgeUY-tc3gf-g_Ns4PFJBwx4A-0EcRLjBjExOf4FCgPHvmywIuexv3Jtm)
-**2021年12月19日  **●22：58共产党花了多大力气也没把七哥干倒
+而相反，酒精引发的死亡率上升了8.3%。我认为这恰恰与过度的封城措施有关。）
+新冠患者的死亡年龄的中位数为86岁。在总体男性死亡年龄的中位数为78.8岁、而女性为84.8岁的今天，这个结果看起来不能算是太糟糕的！在澳大利亚统计局的报告中，有一半以上的新冠死亡病例是女性（460名女性死亡，438名男性死亡），而70岁以下死于该病毒的人男性要更多些。
 
-郭文贵先生：你再看看七哥……哎，亚马逊把美国卖了。亚马逊为了要搞这个，听说当时有人出价。要把电子书要给中共国的话，要多少钱？听说出价是天价呀！代理人是谁知道不？当时找的就是我们的李木子——习公主。习公主一口拒绝，这太小生意了，没兴趣，老子没兴趣。找了温云松，开价一百亿美元，温云松听说，没兴趣，也不想干。
+痴呆症是最常见的导致新冠死亡的基础疾病，考虑到死亡年龄的中位数，这也并不出乎意料。
 
-但是你看看，七哥这块，他把七哥干倒了吗？没干倒。苹果做了两千七百五十亿，把你七哥干倒了吗？没干倒。你知道咱们都能活到今天，咱有多强大了吗？兄弟姐妹们，你说川普总统被玩成这样。
+慢性心脏疾病、高血压和糖尿病也是常见的导致新冠并发症的基础疾病。同样，考虑到死亡者的年龄段，这也是意料之中的。
 
-12/23/2021 Miles Guo’s GETTR: It’s said that Jack Ma and Xu Jiayin are waiting for something bad to happen to Xi Jinping, aren’t they? The arrest of Liu Yazhou (retired PLA general) indicates that Xi will surely be able to eliminate the “red second generation”, the second generation of the CCP’s military officers, and the second generation of the CCP cadres, and even the second generation of the rich will inevitably be annihilated by Xi
+而大多数的新冠死亡都发生在维多利亚州，我们知道原因是什么——安德鲁斯的工党州政府绝对没有对新冠病毒采取连贯和有效的应对措施。
 
-12/23/2021 文贵盖特：听说马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心。
+鉴于所有前五大死亡原因都不是传染性疾病，政客们大搞严苛的新冠限制措施，包括强制口罩和严格封城，就是在转移公众的视线，继而掩盖他们的无耻和无能。
 
-资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
+自从新冠病毒首次出现在中国，现有的证据表明它两年前来自于武汉的实验室，但是全世界都被驱赶着陷入了对病毒荒谬而且毫无科学根据的莫名焦虑之中。
 
-### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
+真是不可思议！恐慌的购物者在超市为抢购一包卫生纸而争吵不休。而媒体，尤其是脸书Facebook这类社交媒体巨头，都应该和那些政客一样，对自己的毫无由来的歇斯底里而感到脸红。
 
-郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
+在新冠中，我们根本没有得到科学的指引，反而一直被伪科学和政治欺骗所操弄着。
 
-* * *
+原文链接： [Pandemic response a tyranny of fear, not science](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fnews%2Fopinion%2Fpiers-akerman-health-experts-politicians-responded-to-pandemic-with-fear%2Fnews-story%2Fdfca4a72e91e4d5221410a968ebed82e&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+发布：去中心化Math
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

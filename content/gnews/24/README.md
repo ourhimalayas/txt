@@ -2,16 +2,18 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796517/)
+## 一周内至少四名足球运动员心脏猝死
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796519/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-1.jpg)
-在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。（播放视频07:31）
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒报道，12月25日，现年30岁的阿尔及利亚足球运动员索费恩·卢卡尔在当天一场比赛中，突发心脏病，经抢救无效死亡。这是一周内至少第四起足球运动员死于心脏骤停。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-3.jpg)
+就在23日，克罗地亚23岁的球员马林·卡西奇在训练时突发心脏病并陷入昏迷，送往医院后不治。22日，阿曼国脚、现年29岁的穆克哈勒德·阿尔·拉卡迪在赛前热身时突然倒地，在送往医院数小时后离世。同一天，埃及的艾哈迈德·阿明在刚结束训练后，倒在了更衣室。
 
-参考链接：
-1. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
-2. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
+据悉，今年以来，至少22名足球运动员死于心脏骤停，在训练或者比赛中不适、晕倒的情况更加难以计数。很多人呼吁对此类事件进行调查。前英格兰球星马修·勒蒂希尔表示，在他的职业生涯里从未见过有心脏问题的球员，他相信中共病毒疫苗是导致这一可怕趋势的原因。目前几乎所有的职业足球俱乐部都已实施了疫苗强制令。不难想象，这样的悲剧会越来越频繁地出现。
+
+参考链接：[一周内至少四名足球运动员心脏猝死](https://gnews.org/zh-hans/1792024/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
