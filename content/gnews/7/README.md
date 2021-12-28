@@ -2,37 +2,40 @@
 ---
 
 
-## 塔利班：女性必须在男性亲属陪伴下旅行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1796790/)
+## 北约首长寻求在1月举行北约-俄罗斯理事会会议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1796866/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-45.jpg)图片来源：法新社
-**翻译：**小鱼儿
-**编辑：**翼族
+翻译:Rosa
+![](https://assets.gnews.org/wp-content/uploads/2021/12/NATO-Logo-Getty.jpg)图片来源：
+[https://www.newsmax.com/world/globaltalk/nato/2021/12/26/id/1050014/](https://www.newsmax.com/world/globaltalk/nato/2021/12/26/id/1050014/)
+[原文链接](https://www.newsmax.com/world/globaltalk/nato/2021/12/26/id/1050014/)
 
-近日，阿富汗塔利班政权的“弘扬美德和预防邪恶部”发布了一份指导意见，呼吁所有车主只为戴着伊斯兰头巾的妇女提供乘车服务。该部发言人萨迪克·阿基夫·穆哈吉尔（Sadeq Akif Muhajir）周日说：“如果妇女出行没有近亲（男性）陪同，超过45英里（72公里）的话就不应该让她们乘车。”
+北约发言人周日表示，北约主席延斯-斯托尔滕贝格已寻求在下个月召开北约-俄罗斯理事会会议，并与莫斯科联系以确保其出席。
 
-该部之前要求阿富汗电视频道停止播放以女性演员为主角的电视剧和肥皂剧，数周之后，这一指导意见在社交媒体网络上流传。该部还呼吁女电视记者在节目中佩戴头巾。
+斯托尔滕贝格近几个月来多次提出通过这一机构恢复与莫斯科的对话，该机构成立于2002年，但由于乌克兰的冲突目前没有活动。
 
-在某几个省份，当地的塔利班当局已被说服重新开放学校，但许多女孩仍然无法接受中等教育。
+但俄罗斯当局并没有作出积极回应。
 
-人权观察对该指导意见进行了抨击，称阿富汗妇女的权利受到了限制。该组织负责妇女权利的副主任希瑟·巴尔（Heather Barr）说：“这项新命令基本上是往进一步使妇女成为囚犯的方向发展。”
+北约发言人说，”我们正在与俄罗斯就1月12日的会议进行接触”，他要求不透露姓名。
 
-本月初，伊斯兰教组织以其最高领导人的名义发布了一项法令，指示政府强制执行妇女的权利。但该法令没有提到女孩接受教育的问题。
+北约一直谴责俄罗斯2014年从乌克兰吞并克里米亚的行为，并呼吁莫斯科尊重其邻国的领土主权。
 
-活动家们希望，塔利班为获得国际认可，并使得这个世界上最贫穷的国家之一重新获得国际援助，将会导致他们对妇女权益做出让步。
+西方国家长期以来一直指责克里姆林宫向乌克兰东部的亲俄分离主义分子提供直接军事支持，这些分离主义分子在2014年莫斯科吞并克里米亚后不久夺取了两个地区。
 
-在塔利班上一次执政期间，妇女的权利受到了严重的限制。当时，她们被迫穿上全覆盖的罩袍，只允许在男性陪同下离开家，并被禁止工作和接受教育。
+俄罗斯否认这些说法，而普京则表示，这场已经造成超过13000人死亡的冲突是种族灭绝性的。
 
-**参考新闻：**[Afghan women unable to travel without male relative to chaperone, says Taliban](https://www.abc.net.au/news/2021-12-27/afghan-women-require-escort-by-male-relative-for-travel/100726420?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web)
+克里姆林宫越来越坚持认为，西方和北约正在危险地蚕食俄罗斯的边界。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本月早些时候，莫斯科向西方提出了全面的安全要求，称北约不得接纳新成员，并寻求禁止美国在前苏联各共和国建立新基地。
 
+1月12日的会议是莫斯科提出要求后斯托尔滕贝格提议的第一次会议。
+
+为期两天的北约30个成员国的军事首长会议定于同一天在布鲁塞尔开始。
+
+周四，斯托尔滕贝格重申了对乌克兰的支持，反对俄罗斯边境对面的军事集结和克里姆林宫日益咄咄逼人的言辞。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

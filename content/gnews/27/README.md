@@ -2,63 +2,27 @@
 ---
 
 
-## 共产党需要张高丽，彭帅消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
+## 加拿大中共病毒感染确诊总数突破200万
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796680/)
 
-[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
+采编/翻译：文莱          校对编辑：硫酸羟氯喹64
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-10-edited.jpg)图片来源：CTV
 
-彭帅这个事情
-Sobre este asunto de Peng Shuai
 
-彭帅是一定要被消失的
-Peng Shuai seguramente será desaparecida
+据加拿大【CTV新闻】12月27日报道，自“新冠病毒”疫情爆发以来，加拿大现已有超过200万该病毒感染确诊者。
 
-一定会
-De seguro
+据悉，虽然一些省份和地区因假期没有更新相关统计数据，但由于当日安大略省已连续第四天报告了近万病例，加之魁北克省平均每天超过8000例，最终使得该国突破了200万感染者记录。
 
-什么精神病啦, 自杀啦
-Que si enfermedad mental, suicidio
+报道称，由于圣诞节期间的病毒测试延迟以及大量的社交聚会，将会使本已脆弱不堪的医疗系统更加窘迫，因此超负荷的医疗压力也意味着加拿大疫情的真实状况可能需要一段时间才会逐渐显现。
 
-出车祸啦, 跳墙死啦
-Accidente automovilístico, saltó de la pared y murió
-
-躲猫猫死啦, 一定要被死
-Murió jugando al escondite, de seguro será matado
-
-然后张高丽就悄无声息
-Y Zhang Gaoli silenciosamente
-
-哪一天
-Un día
-
-当党需要的时候也会让他消失
-Cuando el Partido necesita, también será desaparecido
-
-就这结局
-Así es el final
+本台编辑对此评论，中共发起的病毒超限战袭击已使加拿大千疮百孔，民不聊生。尽管加拿大“新冠病毒”疫苗的接种率几乎世界最高，但疫情不仅未被有效遏制，反而是愈发严重，并使得当局以此为借口，不断实施更加严格的封锁政策和极端的疫苗强制接种规定。
 
 * * *
 
-日期：12/24/2021
-原视频标题：共产党需要张高丽，彭帅消失
-El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
-原视频日期：12/23/2021
-原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
-任务编号：KC369（3320）
-视频时间段：0:00-0:29
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发稿：硫酸羟氯喹64
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接： [Canada surpasses 2 million COVID-19 cases | CTV News](https://www.ctvnews.ca/health/coronavirus/canada-surpasses-2-million-covid-19-cases-since-start-of-pandemic-1.5720515)
 
  
 

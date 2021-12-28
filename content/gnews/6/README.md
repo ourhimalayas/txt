@@ -2,54 +2,51 @@
 ---
 
 
-## 郭文贵先生G系列核心总结
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796825/)
+## 突发：西双版纳因疫情封城，大批游客被迫滞留
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796908/)
 
-[https://gtv.org/video/id=61c9eb5043ccb726a08c48ea](https://gtv.org/video/id=61c9eb5043ccb726a08c48ea)
+作者：纽约香草山教育部 – Noemi
 
-**郭文贵
-Miles Guo**
 
-永远不要忘记，GTV永远是王
-Never forget, GTV is always king
 
-Gclub是你的通行证，和你的新中国联邦最早期的护照
-Gclub is your pass, and the earliest passport of the New Federal State of China
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-Gfashion是你的文化和尊严的桥梁
-Gfashion is a bridge between culture and dignity
 
-Gettr是通往西方的桥梁
-Gettr is the bridge to the west
 
-我们的Gnews是未来和全人类，不分种族、不分任何文化的
-Our Gnews is the future and all mankind, regardless of race or culture
+据中共国官方消息，云南西双版纳州景洪市自12月27日零时起，实施全城疫情封控政策，有大批游客被迫滞留当地。
 
-只分好坏的，甚至坏人都有机会的
-only good and bad, even bad guys have the chance
+据了解，景洪市目前已开展全员核酸检测，所有出城道路均被管控，严禁城区内任何人员外出。同时，超市、商店、农贸市场均被关闭。此外，所有餐饮店铺、食堂也已停止堂食供应。有网友爆料，城区内的各个居民小区已全部戒严，部分学校发出封校、停课的通知。仅一夜之间，该市就全面停摆。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-1.jpg)
+据悉，此次景洪市封城的原因与昆明市的一例本土阳性病例相关。该阳性患者是一名就读位于昆明市下辖的安宁市某院校学生。据其学校通报显示，该生曾于12月16日前往景洪市游玩，返回学校后，于25日确诊为中共病毒阳性患者。
 
-和我们新中国联邦交流的精神的平台、文化平台、信仰平台
-and a spiritual platform, cultural platform, and belief platform for communicating with our New Federal State of China
+受景洪市疫情管控影响，目前西双版纳机场航班已大面积取消，有大批游客被迫滞留城中。对此情况，有被滞留旅客发出强烈质疑，仅因一例阳性关联病例就大规模封城，如此过度防疫政策实属劳民伤财。
 
-* * *
+参考链接：
+1. [西雙版納航班大面積取消 西雙版納機場為滯留旅客開退票證明](https://news.sina.com.tw/article/20211227/40901674.html)
+2. [#昆明疫情 #西双版纳封城原因 #安宁一例本土阳性](https://gettr.com/post/pkq4hpa346)
 
-Date: 12/26/2021
-原视频标题: 郭文贵先生G系列核心总结
-Mr. Miles Guo talk about G-series core summary
-原视频日期：2021/12/24
-原视频链接：[https://gettr.com/post/pknkqaf34a](https://gettr.com/post/pknkqaf34a)
-任务编号：KC371（3346）
-视频时间段 : 0:00-0:42
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-制片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

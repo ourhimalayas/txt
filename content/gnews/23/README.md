@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|一艘全员接种的美海军战斗舰爆发冠状病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796657/)
+## 特鲁多的大规模监控措施遭猛烈抨击
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796715/)
 
-配音：香草山美食部 – 玫瑰园
+采编/翻译编撰：薇文     校对编辑：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-3-edited.png)图片来源：spencerfernando.com
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月25日，据当地媒体报道，美军一艘被部署在加勒比海和东太平洋地区用于拦截毒品贩运的海军作战舰艇上爆发了中共病毒疫情。
+加拿大著名媒体人费南多12月26日发表评论文章，抨击【公共卫生署】未经民众同意，非法对该国3300多万台个人移动设备进行秘密监控，并通过跟踪收集使用者的定位数据以获取疫情政策被执行的具体状况。
 
-报道称，该舰艇目前被困在古巴关塔那摩湾的港口。海军发言人凯特-梅多斯表示，舰艇上部分受感染者已经出现了症状，但还不清楚当中奥密克戎变种病毒感染的病例数。而为了避免社区传染的可能性，该舰艇在关塔那摩湾加油和补给时，舰上所有人员都被禁止下船进入基地。
+费南多指出，由于大部分人未安装政府指定的有关疫情控制的手机应用程序，当局就因此在从未征得手机使用者同意的情况下，使用各种非法强制手段获取私人信息，以此对民众进行大规模监控跟踪。同时，以防控疫情为由，为长期大规模控制其国民人身自由做准备，并将暂时的行政措施变成专治政府的永久权力。
 
-据悉，这艘美国南方司令部用来打击毒品贩运的战斗舰于12月14日离开位于佛罗里达州的母港，船上约有100多名水手以及一个直升机战斗小组和海岸警卫队执法小组。而早在今年8月，美国政府已经对所有现役军人实施了中共病毒疫苗强制接种令。数据表明，超过98%的美国军人已经完全接种了中共病毒疫苗。
+该媒体人还指出，诸如总理特鲁多等加拿大政府的极权主义者，为获得更多的权力而控制了政治阶层和机构媒体，这与独裁的中共政权如出一辙。并呼吁国民应珍视自由和个人权利，共同努力剥夺当局的极端权力。同时还要意识到，政府不仅无权强行封锁和强制接种疫苗，更无权大规模监控毫不知情的加拿大人。
 
-对此，有评论人士批评道，鉴于疫苗防护效力如此之低，政府不当的强制疫苗令应该尽快划下句点。
+* * *
 
-文字版原文：[一艘全员接种的美海军战斗舰爆发冠状病毒](https://gnews.org/zh-hans/1792521/)
+发稿：硫酸羟氯喹64
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接:  [Canadians Should Be Outraged By Authoritarian Mass Surveillance](https://spencerfernando.com/2021/12/26/canadians-should-be-outraged-by-authoritarian-mass-surveillance/)
 
  
 
