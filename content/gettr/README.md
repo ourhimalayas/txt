@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/28/2021 8:23 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (2) :<br/>☘️ Miles is the first person to talk about the Xinjiang genocide. <br/>☘️ But the rogue media never talked about it. Why? That’s because they just like to keep their dignity and their power and they are selfish.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段二 ：<br/>💦 郭先生是第一个在大众面前谈论新疆种族大屠杀的人。<br/>💦 但是流氓媒体从来没有谈论此事。为什么？那是因为他们只想维护他们媒体的尊严和权力，他们非常自私。
+![img](https://media.gettr.com/group37/origin/2021/12/28/20/8de34e9d-3483-c9cc-8df4-75a8ebd391eb/out.jpg)
+
+---
+
+`@miles 12/28/2021 8:20 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (1) :<br/>☘️ From 2017 to 2018, Miles Guo was the only Chinese telling all fellow fighters that we want to be #AntiCCP , take down the CCP, not anti-Chinese. What we want is to destroy the CCP system itself but not any one individual. <br/>☘️ #CCP≠China , #CCP≠ChinesePeople<br/>☘️ The 270-million family members of the 90-million CCP members cannot all be criminals and we have no proof for that.<br/>☘️ We are even more opposed to blaming the damages of the CCP-created coronavirus on all Chinese people.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段一：<br/>💦 郭文贵是2017年到2018年唯一的一个中国人，告诉我们战友，我们要反共、灭共，而不反华人，我们要的是干掉共产党这个体制，而不是某个人。<br/>💦 #中共≠≠中国 ， #中共≠≠中国人<br/>💦 #9千万中共党员 的将近2 .7亿的家人没有证据证明他们都是坏人<br/>💦 我们更反对把 #中共病毒 归罪于中国人 。
+![img](https://media.gettr.com/group12/origin/2021/12/28/20/2c5b173d-9c14-ce91-0077-df3490b4d987/out.jpg)
+
+---
+
 `@miles 12/28/2021 6:33 PM (UTC)`
 
 12月28号：在中国的所谓的神州大地上，这样的事情过去无数发生，此时此刻有无数个正在发生，未来只要有共产党存在……还会有更多更多的发生……我们应该怎么做？让这些事不再发生……
@@ -146,20 +160,6 @@ President Xi you are a total failure — and you have clearly lost the Mandate o
 `@stevebannon 12/26/2021 4:10 PM (UTC)`
 
 Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
-
----
-
-`@miles 12/26/2021 1:35 PM (UTC)`
-
-12月26号：尊敬的战友们好！
-![img](https://media.gettr.com/group20/getter/2021/12/26/13/2543e1b2-cd4e-073d-f330-d8d42501a1ac/out.jpg)
-
----
-
-`@miles 12/25/2021 5:05 PM (UTC)`
-
-2021年12月25日 文贵大直播 🎄圣诞特别节目🎄
-![img](https://media.gettr.com/group24/origin/2021/12/25/16/0689222f-906d-7f85-ef51-3dc69f86b978/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

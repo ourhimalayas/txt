@@ -2,41 +2,37 @@
 ---
 
 
-## Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1798885/)
+## 有声|【信仰之声】主是葡萄树，我们是枝子
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1799009/)
 
-12/28/2021 郭文贵先生的歌曲Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首
+配音：香草山福音部 – Daxia
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+福音部义工的服务范围不是仅仅局限于福音部，所以无论是爆料革命还是福音，要有更大的大局观念。是的，我们希望福音部的弟兄姐妹也能够在其它领域做义工，成为农场其他部门与爆料革命的祝福。提醒弟兄姐妹 – 每天得记得读经。
 
-* * *
+这是弟兄姐妹彼此之间一个非常重要提醒、互相祝福与成全真是美好的祝福，与基督生命的连结是供应我们生命力量、智慧的源头，让我们可以更有益处、源源不断的服事战友。因为主耶稣亲自说到属灵生命的秘诀：“我是葡萄树，你们是枝子。常在我里面的，我也常在他里面，这人就多结果子；因为离了我，你们就不能做什么。 人若不常在我里面，就像枝子丢在外面枯干，人拾起来，扔在火里烧了。 你们若常在我里面，我的话也常在你们里面，凡你们所愿意的，祈求，就给你们成就。 你们多结果子，我父就因此得荣耀，你们也就是我的门徒了。（约翰福音 15:5-8）
 
-[【PDF 下载】Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+基督信仰的中心乃是基督，(基督徒的英文是“CHRIST-IAN”， CHRIST就是基督)，基督徒就是有基督的生命在我们里面的人。基督徒与基督生命的连结就像是树枝连接在树干上，当我们有生命的连结时，基督生命就像汁浆供应到我们如树枝的生命，让我们不止被滋润而成长，生命渐渐成熟就必定结果子。
 
-* * *
+我们深处的祷告是：认识主与基督连结、住在主里面、求主的圣灵借着祂的话与应许住在我们心里，默想中进入基督里祷告。如此必定会结果子。在我们生命深处结出圣灵的果子：仁爱、喜乐、和平、忍耐、恩慈、良善、信实、温柔、节制。当我们享受主美好同在，蒙福生命所奔放散发出基督的香气与见证，使我们成为使周围的人蒙恩典得祝福的管道与器皿，有人因而信主蒙恩应是在外面看得见很自然的结果。如此幸福生命的满足是无可比拟的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_114.jpg)
+当主的美好性情从我们生命深处散发出来，我们周围的亲人、朋友、同事、战友，才会知道我们是有基督生命的基督徒。这就是我们常常讲的荣耀神（或是说主的荣耀在我们的身上彰显），我们也是心中非常的喜乐与满足的。
 
+何等的感恩，弟兄姐妹能够在爱里相交、让我们可以常常喜乐、不住的祷告、凡事谢恩。欢迎大家参加福音部的祷告会，一起来与主连结，倾心吐意，求主使用我们，保守我们，成为主的见证。
 
-[【PDF 下载】Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-28-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+文字版原文：[【信仰之声】主是葡萄树，我们是枝子](https://gnews.org/zh-hans/1793961/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
