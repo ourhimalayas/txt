@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/28/2021 8:39 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (4) : <br/>💥 Why does Miles Guo so against the CCP?<br/>☘️ Miles saw all the facts and truth of the disasters happening in China. He has prepared for nearly 20-30 years to be stronger, to build more relationships and more economy power.<br/>☘️ He is #AntiCCP in his blood. #takedowntheccp <br/> <br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段四：<br/>💥 郭先生为何如此反共？<br/>💦 郭先生看到了中国发生的灾难的所有事实和真相，他已经准备了将近二、三十年，以使自己变得更强大，建立更多的关系和更多的经济力量。<br/>💦  #反共 #消灭共产党 是在郭先生血液里的 ！
+![img](https://media.gettr.com/group46/origin/2021/12/28/20/528e5e7e-ef40-1433-332d-f3b45ed15c6c/out.jpg)
+
+---
+
+`@miles 12/28/2021 8:32 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (3) :<br/>☘️ We will never forget the June 4th Tiananmen Square Movement. This was China trying to get its democracy, freedom, and free religions. <br/>☘️ We are different from the CCP. The CCP is just a few people who are evil. They created the Hong Kong’s trouble, the genocide in Xinjiang and Tibet. They created the CCP Virus to kill people.<br/>☘️ We put all the people who’d like China to have democracy and freedom together against the CCP. That is why we created the New Federal State of China.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段三：<br/>💦 我们永远不会忘记89六四天安门广场的运动，这是中国试图获得民主、自由和宗教自由的运动。<br/>💦 我们与中共不同，中共只是少数邪恶的盗国贼家族。他们制造香港的问题，新疆的种族灭绝，屠杀了西藏人民，制造了中共病毒来杀人。<br/>💦 我们把所有希望中国拥有民主和自由的人联合起来反对中共，这就是为什么我们成立新中国联邦的原因。
+![img](https://media.gettr.com/group13/origin/2021/12/28/20/3d1efc45-9cab-a458-81ca-8afb768546e3/out.jpg)
+
+---
+
 `@miles 12/28/2021 8:23 PM (UTC)`
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (2) :<br/>☘️ Miles is the first person to talk about the Xinjiang genocide. <br/>☘️ But the rogue media never talked about it. Why? That’s because they just like to keep their dignity and their power and they are selfish.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段二 ：<br/>💦 郭先生是第一个在大众面前谈论新疆种族大屠杀的人。<br/>💦 但是流氓媒体从来没有谈论此事。为什么？那是因为他们只想维护他们媒体的尊严和权力，他们非常自私。
@@ -143,23 +157,6 @@ HBO Vice’s Isobel Yeung (!) tried to get away with deceptively editing an inte
 `@harnwell 12/24/2021 11:11 AM (UTC)`
 
 President Xi you are a total failure — and you have clearly lost the Mandate of Heaven.<br/><br/>We are watching your every move…<br/><br/>#XianVariant <br/><br/>https://www.digitalsoldiers.show/xi-and-china-hiding-a-new-variant/
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 12/23/2021 12:00 AM (UTC)`
-
-2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
-![img](https://media.gettr.com/group4/origin/2021/12/22/23/ea159647-5ab1-41fa-a882-d439785cbffa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@stevebannon 12/26/2021 4:10 PM (UTC)`
-
-Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
 
 ---
 
