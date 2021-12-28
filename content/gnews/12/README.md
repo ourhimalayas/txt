@@ -2,36 +2,53 @@
 ---
 
 
-## 文·贵天成——郭文贵先生谈“G-Club”（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798570/)
+## 雅典娜疫情更新（2021年 12月28日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798575/)
 
-**整理：BENJ1**
-**编辑：MSGZ**
-![文章配图](https://assets.gnews.org/wp-content/uploads/2021/12/b61738e7e0cd7db8.png)图片来源：墨尔本雅典娜农场设计组（614）
-**郭文贵先生2020****年6****月20****日直播**
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-11.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
+感染总数：2.81亿（日新增145万）
+死亡总数：541万（日新增 6526人）
+每万人感染人数：435.1752人（除中国外）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122.png)全球累计病例数变化曲线（除中国外）来源：Our World in Data
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
+![](https://assets.gnews.org/wp-content/uploads/2021/12/123-1.png)英国，澳大利亚，欧盟，美国每日每百人疫苗接种数量变化曲线的比较
+（来源：Our World in Data）
+**三，澳洲疫情和“疫苗”数据**
+感染总数：323,278（今日新增 11,267人）
+死亡总数：2202人
+每万人感染人数：120.3953人
+“疫苗”毒针注射总数：42,252,227  （今日新增31,159针，毒针注射数量是昨日的3倍有余）
+第二针“接种”：1879.6999万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-接下来，我们大概七月初G-Club开始卖，我们现在进行了全面的安排。G-Club就是5万美元的会卡，有1万到5万。5万美元的就自动的就把你5万美元的1万美元给你作为融资，免息的。让你未来在上市的时候，以1美元1股的可以拥有G-Fashion的股票。G-Fashion可能上市的时候按照一千亿。第一次私募也可能要按一千亿来。而且G-Fashion不开始全面运作是不私募的。要全部开始运作了，我们再开始私募。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/124.png)
+今日澳大利亚病例新增再创新高，超过了一万一千人。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。那么全球疫情如何呢？下图比较了全球各地区每10万人中的病例数的变化曲线 ：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126-1.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
+在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。郭先生爆料早就提到了中共的“灭白计划”，HBO对郭先生精心剪辑的污蔑节目中也把“灭白计划”当作“阴谋论”之一来攻击。可是看看现在的疫情曲线，除了灭白计划，还有其它更好的解释吗？
 
-在这之前先卖G-Club，G-Club的会员可以优惠的买G-Fashion。所以七月初G-Club上市，G-Fashion先上线。G-Mall也可能上线。然后大家买完这个G-Club的会员以后，因为你可以打五折、四折、三折优惠的产品。关键的是让大家能通过这个渠道，大家一把椅子合法的可以拥有G-Fashion一美元一股的股票，这就是给战友让利。比如说现在有些战友啊，我刚刚给几个战友发信息。有些人还在私下讨论什么投资对不对。我告诉所有的，我刚才发给我们那个律师十几个信息。凡是讨论的，我求求你们，谁要现在有怀疑或者有后悔就赶快说，快把钱给你退回去。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-我们现在要做的事情很简单，绝不允许任何砸爆料革命的人混进来投资，不可能!我们想尽一切办法会把你钱给你退回去。任何有一点怀疑和投机造假的，造假的记住，我一定把钱给你退回去。例如，有人和离开我们的战友，私下里面边砸郭，反爆料革命。侮辱，谣言我们的战友。那对不起，必须让你离开。不旦让你离开，G-Club绝不允许你这样的人来投资。你留着钱吧，把钱留着在家搁着特别好，千万别投资我们。你买啥都行，这个世界上我不知道你买啥?你是买美元呢，你是买人民币买港币买澳元，你买啥?你买房产你买黄金?我可以告诉大家，我刚才说到的这些，如果未来五到十年，有一样升值的，你可以找我。
+发布：去中心化Math
 
-所以说，G-TV、G-Club、G-Fashion、G-Dollar、G-Coin，它所蕴藏的力量是基于共产党和美国之间的较量当中，在这个夹缝中诞生的最大的受益者。互联网后时代，也就是5G时代和天空Wi-Fi ，AI5G的大迸发时代。我们是第一个踩到鼓点的人。新的商业模式，就是真正的互联网商业模式。现在大家还往商店买东西吗?冠状病毒来了你还去商店吗?大家还会把钱去租那个店去吗?所有的商业和品牌，豪华品牌里边65%的成本都是租用房地产的，商业地产的，以后没有了。
-
-接下来大概在七月中初，第二个礼拜左右，我们的G-Fashion会试运行上线。然后G-Club会公开来卖，G-Club一万美元是第一级的，到第五级是五万美元。然后只有第五级的人可以自动，你不用再拿钱了，你不用再拿钱了，就会获得上市时，上市的时候，就是G-Fashion第一次私募，第二次私募，第三次私募，第四次私募，也可能是第二次私募就结束了，到上市的时候，你还可以获得一万股的G-Fashion的股票，一美元一股的。为什么?你买G-Club会员的时候，G-Club叫做投资公司一，就帮你拿你的一万美元，就是我借给你的钱，不让你付任何利息，就帮你买了G- Fashion的一美元一股的股票。什么时候你给钱呢?一个是在G-Fahion的第一次私募后，如果你想转让。如果你想转让，你就把这一万美元还给我，不管你转多少钱，你只转一万给我;或者你愿意等到上市后，你把股票拿走了， 或者你卖了，把这一万美元还给我，没有利息的。只有5万美元有这个权利。我们一开始出售G-Club会员的时候。是有限制的。具体细节，请等大家，等我们到时候出售的公告，好吧? 这是G-Club会员。
-
-大家看到G-Fashion上线的时候，可以买东西的时候，就可以买G-Club。G-Club大家你买会员的时候，同时你在这里就有了一个你的账号。你要买东西，不是拿你这5万美元买东西。这5万美元永远不是你的，你任何时候都拿不走了，你什么理由你的钱都拿不走了，没有任何退的权力。你要记住啊!你得想明白。你再买东西，有你一个账号，你打进的钱，你放5万，你放10万，你可以买什么内裤啊，胸罩啊随便买。
-
-喜马拉雅农场绝对有权力帮助当地的战友，加盟的战友，优先获得G-Fashion 、G-Club的会员制和G-Fashion的投资权，和G-Dollar、G-Club的投资权，而且将拥有最最最的优先资格，最廉价资格。但是他绝不能高于G-Club会员。
-
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

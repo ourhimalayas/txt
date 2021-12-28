@@ -2,57 +2,62 @@
 ---
 
 
-## 雅典娜疫情更新（2021年 12月28日）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798575/)
+## 抓住错误把战友打成特务是共产党埋在爆料革命里的毒刺
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1798610/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-11.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
-感染总数：2.81亿（日新增145万）
-死亡总数：541万（日新增 6526人）
-每万人感染人数：435.1752人（除中国外）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122.png)全球累计病例数变化曲线（除中国外）来源：Our World in Data
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
-图片来源：Our World in Data
-![](https://assets.gnews.org/wp-content/uploads/2021/12/123-1.png)英国，澳大利亚，欧盟，美国每日每百人疫苗接种数量变化曲线的比较
-（来源：Our World in Data）
-**三，澳洲疫情和“疫苗”数据**
-感染总数：323,278（今日新增 11,267人）
-死亡总数：2202人
-每万人感染人数：120.3953人
-“疫苗”毒针注射总数：42,252,227  （今日新增31,159针，毒针注射数量是昨日的3倍有余）
-第二针“接种”：1879.6999万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.2%
-16岁以上人口接种至少两剂疫苗的比例：91.2%
+**郭文贵先生：**像刚才小新你看一开始说的叫“螃蟹”一个口误叫战友的事情，你就紧张到几次重申，这是爆料革命最近发生了一个很让人不开心的一个抬头，就是我们战友抓住某个战友的口误或某个战友在国内的习惯行为——盖上大帽子就是特务。
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/124.png)
-今日澳大利亚病例新增再创新高，超过了一万一千人。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。那么全球疫情如何呢？下图比较了全球各地区每10万人中的病例数的变化曲线 ：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/126-1.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
-在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。郭先生爆料早就提到了中共的“灭白计划”，HBO对郭先生精心剪辑的污蔑节目中也把“灭白计划”当作“阴谋论”之一来攻击。可是看看现在的疫情曲线，除了灭白计划，还有其它更好的解释吗？
+就像你害怕的这个恐惧的原因就是就担心因为某天某日，说你说成我们的战友，就把你定成这样。我跟你说实话，这是七哥我首先我要接受大家都不是完人，也不会加入爆料革命就不一样了。说他有个循序渐进的过程。我可以接受任何人犯错误。但是就这种过程当中七哥也是痛苦的。大家都是痛苦的——就为什么让小新恐惧到这个程度呢？动不动就是“抓特务”，动不动就是坏蛋。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+你看看最近Rachel这件事儿，Q May这件事，你看看唐导这件事儿，你在看最近咱们爆料革命当中，老班长和长岛哥受到了各种攻击，我再告诉大家你知道对咱贡献最大的人是谁吗？大家想，拍着良心说，最大的贡献是九指妖、路大脑骗，包括蛇妖闫。我们不能坏良心的，我们不是跟共产党一样的。
 
-发布：去中心化Math
+你们最恨的坏蛋这几个是最大贡献者；最恨的人是那个“螃蟹”，他只来拿钱来了还当什么九燕王子，杀掉所有中国人，还有当年的新疆Inty，他只是获取者，这是最可恨的。九指妖、路大脑膜、蛇妖闫是最大的伪类，但是他帮过我们爆料革命。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+话又说过来了，难道我们每个人都是完美的吗？我们每个人都是真正的不会犯错误吗？七哥你要按照你这个小新的标准，那七哥讲过的话，你七哥应该被五马分尸、百马分尸了已经，说过的错话。我们不能再有第二个毛病，只要是郭文贵说的都是对的。只要战友犯的错都是不可容忍的，要么百分之百要么是零，这是什么逻辑啊？
+
+我今天本来要跟你们谈一个印度的“神教”，叫真理教。大家记得吧一个叫做邪教的一个大佬叫做辛格，现在被关进监狱去了。他爹就是创始人，当时才200多人。他在印度这个邪教干什么？强奸了几十个女性，在安吉拉邦，在当地，所谓在全人类6000万个信众，事实上他大概有几万个信众，爱穿我这样的紫色的衣裳，留着大长胡子，实际上才二十几岁，玩弄女性，修地下行宫玩女性。
+
+然后还唱歌，唱歌以后跟你七哥今天一模一样，唱歌还打榜，打榜打到第一，你去看看他去，是吧！拍电影，电影无数人看，都是他的信徒看。他竟然、给他开庭都是直升机法官去，不敢到别的地儿去，怕被砸监狱，在监狱里面审完就跑。这个家伙还去过多次中国，在中国还有它的分支，你们知道这个教吗？你们上网去查查去。
+
+这个教就不允许你离开这个教，这个教所有人都给他钱，这哥们儿干的那个教你没有去看过，比所有的旁边的教都要高级得多的多。就这个人就是不允许别人说话，不允许说真话，而且聚敛财富，而且是所谓“群交”，他能组织上千个妓女结婚——上千个妓女跟嫖客结婚，还有性交、乱交，那叫邪教！就是Isobel就要把我们变成这样的邪教。
+
+我们现在第一咱没有群交，有群交一定告我去，没有性交，没有让大家聚财富，也没有挖地道，也没有说不允许你离开，谁爱离开谁离开。但是我们现在有一样东西是从头到尾就抓特务这件事，抓特务基本上是共产党埋在我们这个爆料革命的一个毒刺儿，特务进来以后，就把小新这样人给打成特务，是不是就让你寒心，让你完全无力招架。
+
+她竟然敢说“螃蟹”是我战友，那“螃蟹”当初就是咱战友，说的有什么错的呀？而且螃蟹G-TV他也写了，他在里头撒谎说他写了什么代码，G-TV没有一个代码是你“螃蟹”这个孙子这个烂仔的。但是，曾经他毕竟是战友，我发自内心说我从来没有忘掉过对“螃蟹”的感激的，没有过。
+
+他就是这样采访胡说八道，我觉得他很可怜，如果是我这个级别的，我一定说郭文贵绝对是共产党最大敌人，共产党绝对是一个什么，但是，这家伙我不喜欢他，我佩服这个人，就是客观。对待敌人要客观，他竟然说：“我两天没吃饭，思考完他是个骗子。”说这么Low的话。我今天发自内心说，我对“螃蟹”还真的是感谢，虽然没有用他的代码。
+
+你说“九指妖”、“路大脑袋”给咱的贡献——爆料革命多大呀！那“路大脑袋”是最大的冤大头，他不叫路德叫冤大头，是吧！玩了两三年，给咱传播爆料，真的假的也好，是吧，传播两三年，最后是啥毛没捞着，房子房子没了，啥也没了，就是利用爆料革命约了个炮，“蛇妖闫”来了，是吧，花了咱几百万块钱，是不是？几万里约炮嘛，就这么满足了一下生殖器，对吧！
+
+这就这么一个、这失去多少啊！那么我们今天“爆料革命”再也不能这样，动不动就抓特务，我真的不开心。我最近，真的有些战友说这个是特务那个是特务，我真的不开心！还有我不开心战友的包容度，你不能包容的战友，我就能知道有一天你一定会成为我的敌人！
+
+字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
