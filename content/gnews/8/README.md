@@ -2,46 +2,55 @@
 ---
 
 
-## 蛇妖闫亡腚缸能四处招摇只因打着爆料革命和班农的名义
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1798486/)
+## 文·贵天成——文贵先生谈“G-Club”（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798546/)
 
-**郭文贵先生：**咱就是那个“路大脑袋“、”蛇妖闫“、”九指妖“说的我们根本就三百多个人。你记得路大脑骗离开以后说的第一句话：他根本没人看，加一起G-TV就三百多个人。这话一说就像那个蛇妖闫一样，把郭文贵踢出爆料革命这艘“船“，我说就死定了——就这一下就把他多年的在爆料革命积累的那个内涵和全low掉。
+整理：BENJ1
+编辑：文泓
+![文章配图](https://assets.gnews.org/wp-content/uploads/2021/12/b61738e7e0cd7db8.png)图片来源：墨尔本雅典娜农场设计组（614）
+**郭文贵先生2020年6月6日直播**
 
-如果我们就三百多人在这块儿看爆料革命、参加爆了革命，西枫你觉得共产党会重视我们吗？他能撒出这样的谎出来。
+- Club、G-Fashion、G-Mall和咱们这个G-Fashion管理团队，百分之九十（成员）都来自我们（战友）管理，太年轻了！这个世界属于年轻人的，你们都是Old-Fashion了。G-Fashion（大家会看到），将改变世界的格局。
 
-还有蛇妖闫把郭文贵踢出爆料革命这个“船“，我们已经掌握了世界市场媒体发言能力，连一个英国剑桥，大家记住英国剑桥学院他给我发出《邀请函》，就过去爆料革命最起码100个以上，我要有一个念完我就不叫郭文贵，你告诉我“这是剑桥邀请你的”我说“扔了！”从来不参加。
 
-就是一个剑桥学院下边儿的一个协会大家凑份子，就是募捐钱的人邀请她去，还这些会，还是先联系爆料革命，所有“蛇妖闫“都打着爆料革命被邀请，包括某什么教师教会所有这些人都是因为爆料革命，她一打着…她是现在还享受爆料革命和班农的财产，要不然“蛇妖闫”就是个垃圾、是个畜生都没人搭理她，她想当尿桶都没人尿她、（还有）“路大脑骗”。
+我们有G-Fashion、G-Club啊，大概一个月以后我们G-Club开始卖会员，1万美元起到5万美元，五个会员层次。G-Club先开始，然后G-Fashion、G-Mall，然后开始搞私募，然后G-Dollar、G-Coin，整个的我们的喜联储全面开始运作上线。然后G-News、G-TV，百分之九十都要以我们的战友为主。如果这些平台所有的盈利，首先不是让战友们赚钱，所有团队不是以战友为主，那么我们就失败了。
 
-所以任何人不懂得这个道理的战友们咱就不把他当战友，没有爆料革命、他不打着我们的名义、不打着班农的名义到处行骗谁搭理他？而且low到不能再low，共产党就是这样子。
+所以说，今天上午好几个机构投资者就在这儿开会，找班农先生视频（对话），**问这个投资有什么前提?我说什么前提都可以谈啊，（但是）永远要记住，管理团队、还有优先利益，一二三四次私募，一切以我们战友为主，否则就不要谈**。我告诉他们，G-Dollar、G-Coin很快会达到十万亿美元，咱不信咱走着看——**三到五年十万亿美元**，G-TV万亿美元，G-Fashion、G-Club还有G-Mall一定是达到……G-News要达到将近5万亿美元，一定的！**我们要把共产党的所有掌握的钱，百分之七十拿到我们新中国联邦来。**我说，这谁也挡不住，没人能挡得住！
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+**郭文贵先生2020年6月13日连线江财神直播**
 
-编辑整理：喜马拉雅的肉夹馍；
+G-Fashion我为什么不放在G-Mall里边呢?G-Fashion里边只给我G-Club会员来用的。就如江财神，我拿了5万美元，我买了个会员（资格）。我一到G-Fashion上去，就是所有的东西打5折、打5折。郭文贵这个金色的、淡金色的西装“BRIONI”特制领带，看到这一根线织到头的，一根线，你也看到视频了，妥妥地就给织出来的，只有我有，（会员）打5折而且是唯一的。别人不卖，给钱都不卖，这叫G-Fashio。然后世界名牌，你在我这，你想在G-Fashion上卖，对不起，老江同志买的必须是5折，要不你上隔壁G-Mall卖去。大家认可你，就买嘛，跟商店一样。是吧？那么你要想到我G-Fashion卖，都得5折。
 
-字幕文件制作：小满；
+- **Club****是个独立的法律体制，完全独立的。**它的身份是干吗?你给了我钱，这钱你再也甭想拿回去了，我拿走了。干嘛去用?我在背后给你运作所有的品牌和资源，让他们给你5折。G-Fashion是完全独立的运作，我就是要收你每年5%的管理费，然后呢!卖给你最便宜的、最好的、高质量的品牌和我自己设计师的东西，主要绝大多数是我们自己的设计师，因为这个价格才能控制。你比如昨天我跟我们的G-Fashion工作团队在谈论3个品牌，你顺便一件衣服都搞个几千美元的，我问他你买不买?他说我想买，但是太贵。你老江也不能给媳妇儿一天买5千美元一件、8千美元一件，打了折也好几千美元呐!
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
+那我们成本控制最关键的一环就是设计师，他授权在他的厂，我们买料，按照他的设计生产出一模一样的东西。这个价格，老江你看那个是1万西服，我买给你这个才3千、2千美元，你穿着还挺舒服，觉得我沾了便宜了。这才是我们G-Fashion！绝大多数是设计师特别设计的，最牛的产品是我们G-Fashion用的。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+这三块（布局），我跟那个投行的哥们说，我给你讲G-Club，不要说咱先上十万会员，500万美元；100万会员，5千万美元；1千万会员，就是5千亿美元；1亿会员，5万亿美元。我问你，你觉得我这个G-Club能卖多少钱?他傻眼了。我说，这次G-TV投资6万多人都是绝对性的符合捐款条件者进来要投资，6万人中有2万人买（产品）是值多少钱?我的G-Mall、G-Fashion值多少钱?关于G-Club，然后我说，关键问题我（还）有两个货币。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**郭文贵先生2020年6月15日第二次直播**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+G-Club过两天就开始卖，这几天我们基本研究出了新的政策。G-Club就是G俱乐部，五万美元是这个全会员，然后有五个级别，五万、四万、三万、两万、一万，每一万是一个级别，（五万会员）终生享有G-Fashion五折的优惠。G-Club将为大家打造一个全方位的、最佳生活品质的、高尚生活的一个大平台。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+我们G-Fashion在私募前怎么能让战友得到股票，我们现在合法的研究出G-Fashion未来怎么做。你四万不行啊、三万（也）不行，用五万美元你买了一个G-Club，你呢这五万美元我会给你说有一万美元，（就是）我借给你一万美元你再去买一块钱一股的G-Fashion。也就是你就是五万美元，你就拿到了一个还有一万股的G-Fashion。因为G-Fashion未来私募的时候，肯定从十万甚至五十万、一百万起步，很多人进不来。但是你买了这个G-Club的会员、五万美元，你就可以做到。战友们你看看这个有意思吧。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**郭文贵先生2020年6月20日直播**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**大家要记住，GTV、G-Fashion、G-Club、G-Dollar、G-Coin是人类的未来，是中国人的未来，记住我今天说这话。**没人能挡得住G-TV、G-Fashion、G-Club、G-Coin、G-Dollar，这是新中国联邦的建国基础。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+资料来源：郭先生GTV和盖特直播视频。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发布： 去中心化Math
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
