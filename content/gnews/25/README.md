@@ -2,34 +2,58 @@
 ---
 
 
-## 大打鸡血保交楼 不许躺平
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798464/)
+## 雅典娜疫情更新（2021年 12月28日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798575/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据《新浪财经》12月27日报道，中共所控制的恒大集团在其微信公众号发布消息，12月26日晚，恒大集团召开复工复产保交楼周例会，总结公司12月复工复产情况。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-28-下午9.30.35.png)
-恒大董事长许家印声称，12月份计划交付115个项目，确保完成本月交楼3.9万套。强调恒大绝不允许任何一个人躺平。要求全体员工永不放弃，再接再厉，日夜奋战。复工复产确保交楼，恢复经营销售，还清债务。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-11.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
+感染总数：2.81亿（日新增145万）
+死亡总数：541万（日新增 6526人）
+每万人感染人数：435.1752人（除中国外）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122.png)全球累计病例数变化曲线（除中国外）来源：Our World in Data
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
+![](https://assets.gnews.org/wp-content/uploads/2021/12/123-1.png)英国，澳大利亚，欧盟，美国每日每百人疫苗接种数量变化曲线的比较
+（来源：Our World in Data）
+**三，澳洲疫情和“疫苗”数据**
+感染总数：323,278（今日新增 11,267人）
+死亡总数：2202人
+每万人感染人数：120.3953人
+“疫苗”毒针注射总数：42,252,227  （今日新增31,159针，毒针注射数量是昨日的3倍有余）
+第二针“接种”：1879.6999万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-之前恒大集团破产重组的消息甚嚣尘上，各种负面新闻不绝于耳：债务爆雷，合同违约，项目烂尾，政府约谈，变卖资产，员工罢工讨薪等，事实上恒大已经濒临破产绝境！
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/124.png)
+今日澳大利亚病例新增再创新高，超过了一万一千人。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。那么全球疫情如何呢？下图比较了全球各地区每10万人中的病例数的变化曲线 ：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126-1.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
+在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。郭先生爆料早就提到了中共的“灭白计划”，HBO对郭先生精心剪辑的污蔑节目中也把“灭白计划”当作“阴谋论”之一来攻击。可是看看现在的疫情曲线，除了灭白计划，还有其它更好的解释吗？
 
-结合当前中共政治经济形势，特别是冬奥会召开在即。为确保政治安全，金融稳定，保证冬奥会顺利召开，中共在房地产上一定会强力死撑。绝不允许恒大破产，以致房地产金融等行业发生多米诺骨牌效应。许家印再次被中共推到前台，给恒大打鸡血，不过是为中共全面崩溃做垂死挣扎罢了。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-参考链接：[最新！昨夜许家印表态：“绝不允许恒大任何一个人躺平”，确保12月份交楼3.9万套！](https://finance.sina.cn/2021-12-27/detail-ikyamrmz1416724.d.html?from=wap)
+发布：去中心化Math
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

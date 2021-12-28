@@ -2,48 +2,50 @@
 ---
 
 
-## 即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797743/)
+## 拜登周一签署7680亿美元的国防政策法案
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1797838/)
 
-**郭文贵先生：**但是共产党非常清楚，七哥在一年前说过，中国的粮食将成为致命的问题。结果共产党在如此没钱的情况下，买掉了全世界一半以上的谷粮，中国人是不是就爱吃面嘛！——谷粮。谷粮要干啥？备战台湾。真正的去年和今年是真正的中国大粮荒，他不说大粮荒他说是丰收，丰收你还买什么粮食？这王八蛋是不是？这不瞪眼胡说八道吗？对不对呀？
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-就像Isobel Yeung采访的时候（说）：我们是媒体、我们是中立媒体我们讲正义。你讲正义你咋不问问“乱伦彪”你说郭文贵乱伦他的侄媳妇儿有这事儿吗？你有证据吗？你在中国一个共产党政权的统治下你怎么当人权律师的是不是啊？你问“乱伦彪”一万多页的郭文贵乱伦的东西站得住脚吗？所以说这一模一样的道理，他所说的话正好是相反的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1571.png)图片来源：politico.com
 
-然后看到了刚才你们的PPT讲了中国说我的经济有多强、经济多好、就业多好，你记住共产党当说这个的时候这个真的就危险了。
+乔·拜登总统周一签署了一项价值7680亿美元的《国防授权法案》（使NDAA成为法律），此前民主党和共和党人拒绝了他最初的五角大楼计划（赞同提高250亿军费开支）；该法案在本月以压倒性优势通过了众议院和参议院—标志着五角大楼政策立法连续第61年成为法律。
 
-它既要开展家天下一家之天下、习家之天下，唯一的声音、唯一的伟大、唯一的权力、唯一的平台、唯一的向全世界告诉你的所有事情和答案的地方，他怎么能这么说话呢？这些说话背后的动机是什么呢？所有这些经济指标大家看到，共产党已经把世界的经济彻底绑架了。
+《国防授权法案》拒绝了拜登7150亿美元的五角大楼预算要求，而是要求为国防部提供7400亿美元；总的来说，该法案授权7680亿美元用于国防项目，其中包括五角大楼和由能源部监督的核武器项目；虽然拜登的要求相当于在现有水平上增加军费，但共和党人很快就抨击这一蓝图不足以跟上通货膨胀以及中国和俄罗斯军事进步的步伐。
 
-从房地产和冬奥会和全世界市场，共产党即使玩儿假的擀面杖的经济，西方经济都跟着它一上一下，你说这到底有多可怕呀？
+值得一提的是，该国防政策法案只是授权支出，并没有实际分配任何资金。立法者仍然必须达成协议，为本财政年度剩余时间的政府提供资金，以使国防增长成为现实。
 
-这嫖客来了有钱是不是？嫖客穿着衣服一进夜总会——“哎呀，我高潮了“！所有妓女说：”哎呀，哎呀.“.！就跟着叫是不是？这是因为啥？因为他是大嫖客呀，他高潮我也得高潮是不是？
+另外，授权的预算增长将转化为数十亿的武器采购，包括比五角大楼要求的更多飞机和船只。
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+尽管民主党人控制着国会两院和白宫，但最终的法案从共和党人那里获得了更多的投票；众议院军事部门的最高共和党人、阿拉巴马州的迈克·罗杰斯议员赞扬了该法案的”关键性资金增长”以及对与北京和莫斯科竞争的关注：
 
-编辑整理：喜马拉雅的肉夹馍；
+“我们的工作还没有完成。当我们接近新的一年时，我们的国家面临着前所未有的侵略和来自近似对手的威胁，即中共国和俄罗斯。”
 
-字幕文件制作：小满；
+除了看到他们提出的250亿美元的预算增长获得通过外，共和党立法者还欢呼一项条款，即禁止军队仅仅因为拒绝注射中共病毒（Covid-19）疫苗而（不光彩地）解雇美国军人；另外，由众议员安东尼·布朗（Anthony Brown）提出并得到民主党人支持的一项提案被排除在外，该提案将设立一个五角大楼办公室，专门负责打击军队中的极端主义。
 
-视频制作及上传：Cindy；
+由于缺乏更广泛的反极端主义条款，以及由参议员基尔斯滕·吉利布兰德（Kirsten Gillibrand）推动的对军事司法系统进行更广泛的改革，取消了指挥官起诉所有重罪的权力，这足以让一些民主党人反对最后的法案。
 
-G-News发布：小满；
+白宫还发表了一份冗长的签署声明，阐述了拜登在法案颁布后对实施某些条款的反对意见。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+拜登反对的主要内容是禁止美国政府将关押在古巴关塔那摩湾拘留中心的囚犯转移到美国本土和其他四个国家–叙利亚、索马里、利比亚和也门。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“我敦促美国国会尽快取消这些限制，”拜登写道。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1573.png)图片来源：politico.com
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+来自《[Newsweek](https://www.newsweek.com/biden-signs-768b-defense-bill-that-keeps-women-draft-alters-military-justice-system-1663508)》补充报道:
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+NDAA 包括许多国防项目，例如 2022 年服役人员加薪 2.7%。该法案在本月早些时候通过时得到了两党的支持，将总体军事开支增加了 5%。另外，该法案还禁止通过强迫中共国维吾尔族劳工制造的商品进入美国，并开始计划在国家广场（National Mall）上建造拟议的全球反恐战争纪念馆（ Global War on Terror Memorial）。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+值得一提的是，该法案包括用于太平洋威慑倡议的 71 亿美元和国会支持台湾防御的声明，这些措施旨在抵消中共国在该地区的影响力；它还包括用于乌克兰安全援助倡议的 3 亿美元，这是在面对俄罗斯侵略的措施，以及 40 亿美元用于欧洲防御倡议。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+新闻来源：[politico.com] [Biden signs $768B defense policy bill that supersized his originalPentagon request](https://www.politico.com/news/2021/12/27/biden-signs-defense-policy-bill-526171) | 发布时间：2021年12月27日
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+* * *
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
 
  
 

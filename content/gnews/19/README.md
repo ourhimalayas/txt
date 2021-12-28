@@ -2,48 +2,84 @@
 ---
 
 
-## 王岐山派系并勾结吴小晖张宏伟的招商银行赵启柱被坠楼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1798565/)
+## 【Michael.Tonny专栏】尸检结果证明，中共病毒对所有器官都会持久的损害！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1798664/)
 
-**郭文贵先生：**七哥在这之前就告诉你了，行长会死，行长的家人也会死。行长收钱都是通过家人收。一定会很多死。招商银行的老赵是谁的人？原来跟吴小晖有勾结，后来跟张宏伟有勾结，而且这小子是建行体系王岐山的人，两三个月以前了，他身边的人都跟我有联系。原来是平安银行的事儿，就是单伟建搞的事，平安银行就是原来的招商银行，深圳招商银行这帮人包括单伟建。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-最后你看单伟建会死得很惨，很惨。因为他是王岐山、康典这都是一起的。怎么能跳楼自杀的？一定给他扔下去了嘛！一定给他扔下去了嘛！解直锟自杀前你知道给家里边留言说什么？说：“你们永远要记住，不要让孩子回来，宁可死在外面都不要让孩子回来。”尤其给家里留言中写了几条，结果她家人——（开追悼会悼词上）竟第一个中共党员，他在骗共产党。中共党员，我是党的人嘛！我是党的公司嘛！听党的话嘛！多么的卑劣、无知、可耻。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-你看看这个小子，这个赵永志（口误：赵启柱）这个刚刚在招商银行内部讲话：忠于习近平，一切听党的，所有的招商银行就为党保证。你看刚刚大概两三周以前，新年要在这个贷款上，在这个房地产……特别是房地产跟许家印好得一踏胡涂，包括那谁那个李思廉、张力——富力城，好得一踏胡涂，包括合生创展，整个的招商可是个大银行，超级银行，肯定完蛋！都得完！
+灭共者郭文贵先生在2021年12月下旬的一期直播中警告，所有感染Covid-19（又称中共病毒，CCP病毒或冠状病毒病，是由SARS-CoV-2病毒引起的一种受生化武器袭击后发生的传染病）痊愈后的人，如果不注意持续的保健，可能会在末来患上严重的疾病！
 
-你就像HBO，就是Isobel就像VICE一样，她走到这么危险的路。她把我们海外华人定义恐怖分子。她把这个病毒的事情为共产党保驾护航——说不是来自共产党的。全世界没有人敢这么定义的。它也不是我一个人说是共产党来的，川普总统都这么说，美国的科学家都这么说。她敢竟然一个Isobel、VICE、HBO代表着索罗斯TPG，代表着迪斯尼，她竟然敢颠倒黑白证明我撒谎她是对的，你看她有多危险。
+郭先生的警告并非空穴来风。美国国立卫生研究院(US National Institutes of Health ，NIH)的一个科学家团队根据在2020年4月26日至2021年3月2日之间对感染中共病毒后死亡的44名患者的尸检（autopsies）结果，揭晓了答案。
 
-我们一次次的证明，她敢忽视，敢忽视掉，是吧！你像什么“螃蟹”呀，还什么“乱伦彪”，还有什么“路大脑骗”、“蛇妖闫”，真是连你七哥这个痔疮他都轮不上，真的是他就连你七哥一个痔疮都轮不上！你笑啥呀神奇四侠？你笑啥呀，那么淫荡的笑！小脸儿笑挺可爱两口子，你俩长得真像兄妹一样，越看你俩就像兄妹恋一样。你笑啥笑？他真的连你七哥痔疮算不上。
+中共病毒对于曾经感染痊愈的人来说，很可能就是挥之不去的梦魇。为什么中共病毒影响了这么多器官系统？为什么感染中共病毒后，即使是轻度（asymptomatic）或无症状患者（mild cases of Covid-19）也会长期受中共病毒影响？
 
-所以说这种银行家会无数个死亡，无数个无数个！走着看，董文标快死了啊！董文标快死了！也是跳楼死、自杀死，而且这小子也打了疫苗，这小子打了三针疫苗。整个招商银行他最早，你上网查查招商银行最早集体打疫苗的就有他。
+在感染中共病毒后，SARS-CoV-2病毒可以在几天内从呼吸系统（respiratory system）进入大脑（brain）、心脏（heart）和身体的几乎每个器官系统（organ system），并在那里停留数月！在某些情况下，病毒在症状（symptom）出现后会在“整个大脑区域”停留长达230天！
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/SARS-CoV-2-can-directly-infect-brain-cells.png)
 
-编辑整理：喜马拉雅的肉夹馍；
+虽然人体器官中，受SARS-CoV-2影响最大（highest burden）的是气道（airways）和肺（lung），但该病毒可以在感染早期传播（disseminate）并感染整个身体的细胞，包括广泛地遍及整个大脑。导致Covid-19的SARS-CoV-2病毒可以在几天内从呼吸系统进入大脑、心脏和身体的几乎每个器官系统，并在那里停留数月。即使在死于无症状或轻度Covid-19病例的患者中，病毒的RNA也会“广泛分布”，在初步康复后仍会出现症状。
 
-字幕文件制作：小满；
+老年人和患有许多严重疾病的人最有可能出现COVID-19症状挥之不去，但即使是年轻的健康人在感染后数周至数月内也会感到不适。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/human-brain-organoid-shows-numerous-dying-cells.png)
+随着时间的推移，常见的体征和症状（signs and symptoms）包括：
 
-视频制作及上传：Cindy；
+疲劳（Fatigue）
 
-G-News发布：小满；
+呼吸急促（Shortness of breath）或呼吸困难（difficulty breathing）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+咳嗽（Cough）
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+关节疼痛（Joint pain）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+胸痛（Chest pain）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+记忆力（Memory）、注意力（concentration）或睡眠问题（sleep problems）
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+肌肉疼痛（Muscle pain）或头痛（headache）
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+快速（Fast heartbeat）或剧烈的心跳（pounding heartbeat）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+嗅觉（Loss of smell）或味觉丧失（Loss of taste）
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+抑郁（Depression）或焦虑（anxiety）
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发烧（Fever）
+
+站着头晕（Dizziness when you stand）
+
+身体或精神活动后症状恶化（Worsened symptoms after physical or mental activities）
+
+COVID-19不仅是一种主要影响肺部的疾病，它也会损害许多其他器官，包括心脏、肾脏（kidneys）和大脑。器官损伤可能导致在COVID-19患病后持续存在的健康并发症（health complications）。对某些人而言，持久的健康影响可能包括长期呼吸问题（breathing problems）、心脏并发症（heart complications）、慢性肾功能损害（chronic kidney impairment）、中风（stroke）和格林-巴利综合征（Guillain-Barre syndrome）——一种会导致暂时性瘫痪（temporary paralysis）的病症。
+
+一些成人和儿童在感染COVID-19后会出现多系统炎症综合征（multisystem inflammatory syndrome）。在这种情况下，一些器官和组织会严重发炎（severely inflamed）。
+
+COVID-19可使血细胞更容易结块（clump up）并形成凝块（clots），导致血栓（Blood clots）和血管（blood vessel）问题。虽然大凝块会导致心脏病发作（heart attacks）和中风，但据信COVID-19造成的大部分心脏损伤源于阻塞心肌（heart muscle）中微小血管（tiny blood vessels，毛细血管，capillaries）的非常小的凝块。
+
+受血栓影响的其他身体部位包括肺、腿、肝脏（liver）和肾脏。COVID-19还会削弱血管并导致血管渗漏（leak），从而导致肝脏和肾脏潜在的长期问题。
+
+经历严重COVID-19症状的人在医院的重症监护室呼吸机（ventilators）等机械辅助下进行呼吸幸存下来后，更容易患上创伤后应激综合征（post-traumatic stress syndrome）、抑郁（depression）和焦虑（anxiety），导致严重急性呼吸系统综合症 (severe acute respiratory syndrome ，SARS) 的病毒，继续发展为慢性疲劳综合征（chronic fatigue syndrome），容易情绪（Problems with mood）和极度疲劳（extreme fatigue）问题。
+
+参考数据：
+
+[New insights into how COVID-19 can impact the brain and CNS](https://newatlas.com/health-wellbeing/coronavirus-infect-damage-brain-neurological-cns-yale/?itm_source=newatlas&amp;itm_medium=article-body)
+
+[Study reveals how COVID-19 can directly damage brain cells](https://newatlas.com/health-wellbeing/coronavirus-damage-blood-brain-barrier-cells-cognitive-long-covid/)
+
+[Study reveals how Covid affects the brain](https://www.rt.com/news/544493-covid-spreads-through-body/)
+
+[COVID-19 (coronavirus): Long-term effects](https://www.mayoclinic.org/diseases-conditions/coronavirus/in-depth/coronavirus-long-term-effects/art-20490351)
+
+[Effect of COVID-19 on the Organs](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7470660/)
+
+[New insights into how COVID-19 can impact the brain and CNS](https://newatlas.com/health-wellbeing/coronavirus-infect-damage-brain-neurological-cns-yale/?itm_source=newatlas&amp;itm_medium=article-body)
+
+[The SARS-CoV-2 main protease Mpro causes microvascular brain pathology by cleaving NEMO in brain endothelial cells](https://www.nature.com/articles/s41593-021-00926-1)
+
+[Stanford study finds inflammation in brains of deceased COVID-19 patients](https://newatlas.com/science/stanford-inflammation-brain-tissue-coronavirus-neurological-long-covid/?itm_source=newatlas&amp;itm_medium=article-body)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

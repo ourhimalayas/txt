@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/28/2021 3:40 PM (UTC)`
+
+12月28号:尊敬的戰友們好⋯⋯共产党的洗脑和即将到来的经济大崩潰⋯⋯將害死太多无辜的同胞⋯⋯这是让我们非常非常的心痛很无力的地方，我们将竭尽全力拯救更多的同胞⋯⋯一切都已经开始。
+![img](https://media.gettr.com/group21/getter/2021/12/28/15/b19d268a-30c8-7314-8aa0-37bc85065c03/out.jpg)
+
+---
+
 `@miles 12/28/2021 1:30 AM (UTC)`
 
 12/27/2021 Miles Guo’s GETTR: The Europeans believe that it is better to let the CCP collapse by itself; the US, the EU, Russia, and the CCP are the four major powers in the world now, and the New Federal State of China shall strengthen its own economy and media platforms and let more fellow fighters join us so that the world will stand with us to take down the CCP together!<br/><br/>12/27/2021 文贵盖特：欧洲人认为让中共自己倒台更好；现在是美、欧、俄、中“四国演义”的局面，新中国联邦需要强大自己的经济和媒体，并让更多战友加入，让世界跟我们站在一起灭共！<br/>
@@ -153,13 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 12月25号2021年……圣诞节文贵……蒸馍馍直播
 ![img](https://media.gettr.com/group2/getter/2021/12/25/14/05a7f5b1-4aeb-484d-e241-5e6b31537f13/416694de4fd2fe76dbf1d08424832cf6.jpg)
-
----
-
-`@miles 12/25/2021 1:50 PM (UTC)`
-
-<br/>12月25号：尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group12/getter/2021/12/25/13/d86e7b9f-895a-2864-a8c9-47fcf6299d31/out.jpg)
 
 ---
 
