@@ -2,48 +2,34 @@
 ---
 
 
-## mRNA疫苗发明者警告:给孩子注射新冠疫苗 “可能会造成永久性损害”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1798756/)
+## 中国移动弃购新股金额达7.56亿元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798775/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-23.png)
-1988年发明信使mRNA疗法的团结项目首席医疗和监管官罗伯特-马龙博士警告说，公众在疫苗的功效和作用方面受到误导。mRNA疫苗可能会永久损害人们的关键器官、生殖系统和免疫系统。敦促所有父母放弃为他们的孩子接种这种 “不可逆 “的疫苗。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月27日晚间，中国移动披露新股上市发行结果，网上和网下投资者弃购金额，分别为7.43亿元与1270.49万元，总弃购金额达7.56亿元，刷新A股纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-43.jpg)
+作为近十年A股最大的IPO，中移动的战略配售阵容相当豪华。据23日晚公告披露，包括社保基金等国家级投资平台，国家电网等大型央企，中国人寿等大型保险机构，均出现在名单中。然而，“新股不败”的神话再一次被打破。
 
-这位国际公认的医生和科学家概述了，父母在服从政府胁迫为其子女接种疫苗之前应该考虑的三个关键问题。
+据悉，为防止新股发行上市股价破发，中移动还启用了“绿鞋”机制，即允许超发15%，意在增强参与一级市场认购投资者信心。但在内外交困，就业疲软，经济濒临崩溃的大环境下，“绿鞋”犹如破发标签，让投资者望而却步。
 
-- 首先，被注射到你孩子细胞中的病毒基因会迫使你孩子自身制造有毒的刺突蛋白。这种蛋白会对儿童的关键器官造成永久性损害，包括他们的大脑和神经系统、心脏和血管、血凝块、生殖系统，而且这种疫苗会引发他们免疫系统的根本性变化。
+参考链接:
+1) . [**中国移动新股弃购7.56亿元！有公募基金弃购**](http://finance.eastmoney.com/a/202112272227517584.html)
+2) . [**中国移动回A股上市：网上投资者弃购7.43亿元、确定启用绿鞋机制**](https://m.mydrivers.com/newsview/805669.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-这些永久性损害是不可逆的。你无法修复他们大脑内的病变。无法修复心脏组织的疤痕。无法修复在基因上重置的免疫系统。而且这种疫苗可能会造成生殖损害，可能会遗传给后代。
+总编：文真
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-- 第二，这项新技术还没有经过充分的测试。我们通常需要至少五年的测试和研究，才能真正了解新药或疫苗的风险。
-
-
-新药的危害和风险往往在许多年后才被发现。因此，请问你是否希望自己的孩子成为人类历史上最激进的医学实验的一部分。
-
-- 最后，让你的孩子接种疫苗本身就是一个谎言。孩子对父母或祖父母并不构成危险。实际上恰恰相反。 他们在得了中共病毒后的免疫力可拯救家庭和世界。
-
-
-总之，鉴于已知的疫苗所带来的终生健康风险，给你的孩子或家人接种疫苗没有任何好处。
-
-作为父母和祖父母，我对你们的建议是保护你们的孩子，不要给他们注射这种未经证实的疫苗。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
-
-
-[新闻来源链接](https://www.thegatewaypundit.com/2021/12/mrna-vaccine-inventor-issues-warning-parents-not-give-children-unproven-vaccines-may-permanently-damage-organs-reproductive-system-immunity/)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版： 漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
