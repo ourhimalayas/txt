@@ -2,37 +2,53 @@
 ---
 
 
-## 有声|【信仰之声】主是葡萄树，我们是枝子
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1799009/)
+## 打脸中共内宣新华社关于台湾物价不实谣言
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1799011/)
 
-配音：香草山福音部 – Daxia
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-福音部义工的服务范围不是仅仅局限于福音部，所以无论是爆料革命还是福音，要有更大的大局观念。是的，我们希望福音部的弟兄姐妹也能够在其它领域做义工，成为农场其他部门与爆料革命的祝福。提醒弟兄姐妹 – 每天得记得读经。
+撰文 : 新中国联邦静、铃铃卷
 
-这是弟兄姐妹彼此之间一个非常重要提醒、互相祝福与成全真是美好的祝福，与基督生命的连结是供应我们生命力量、智慧的源头，让我们可以更有益处、源源不断的服事战友。因为主耶稣亲自说到属灵生命的秘诀：“我是葡萄树，你们是枝子。常在我里面的，我也常在他里面，这人就多结果子；因为离了我，你们就不能做什么。 人若不常在我里面，就像枝子丢在外面枯干，人拾起来，扔在火里烧了。 你们若常在我里面，我的话也常在你们里面，凡你们所愿意的，祈求，就给你们成就。 你们多结果子，我父就因此得荣耀，你们也就是我的门徒了。（约翰福音 15:5-8）
+以下是根据家乐福官网的蔬菜报价
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1593.png)
+家乐福有机高丽菜(每粒约600克±10%)
+满额折7%
+$ 99
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-448.jpeg)
+台湾牛蕃茄(每盒约600克±10%)
+◎销售入数：1入 ◎规格： 1Box盒 x 1 ◎品牌：生鲜蔬果
+原价$99
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-449.jpeg)
+台湾木瓜(每颗约800克±10%)
+满额折7%
+$79
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-450.jpeg)
+以下是根据全联官网的水果报价
 
-基督信仰的中心乃是基督，(基督徒的英文是“CHRIST-IAN”， CHRIST就是基督)，基督徒就是有基督的生命在我们里面的人。基督徒与基督生命的连结就像是树枝连接在树干上，当我们有生命的连结时，基督生命就像汁浆供应到我们如树枝的生命，让我们不止被滋润而成长，生命渐渐成熟就必定结果子。
+NT : 199元
 
-我们深处的祷告是：认识主与基督连结、住在主里面、求主的圣灵借着祂的话与应许住在我们心里，默想中进入基督里祷告。如此必定会结果子。在我们生命深处结出圣灵的果子：仁爱、喜乐、和平、忍耐、恩慈、良善、信实、温柔、节制。当我们享受主美好同在，蒙福生命所奔放散发出基督的香气与见证，使我们成为使周围的人蒙恩典得祝福的管道与器皿，有人因而信主蒙恩应是在外面看得见很自然的结果。如此幸福生命的满足是无可比拟的。
+简单几种蔬菜报价就知道中共又想藉由误导民生物价激起台湾人民民怨，进而让台湾亲共派间谍们配合舆论造谣，期望达到被中共统一很美好的虚幻假象。
 
-当主的美好性情从我们生命深处散发出来，我们周围的亲人、朋友、同事、战友，才会知道我们是有基督生命的基督徒。这就是我们常常讲的荣耀神（或是说主的荣耀在我们的身上彰显），我们也是心中非常的喜乐与满足的。
+针对新华社报导:失控的台湾物价，做市场调查说明
+今日拜读了12月28日新华社文章 《失控的台湾物价》，心中疑问重重，我现居住于台湾，为何完全没感觉台湾的物价失控了呢 ?
+刚好我就在超市内购物，于是就想看看物价是否真如新华社大媒体所说的”台湾物价失控了”?
 
-何等的感恩，弟兄姐妹能够在爱里相交、让我们可以常常喜乐、不住的祷告、凡事谢恩。欢迎大家参加福音部的祷告会，一起来与主连结，倾心吐意，求主使用我们，保守我们，成为主的见证。
+新华社报导:半颗高丽菜1百多元。我看到的高丽菜价格半颗是35元。
+新华社报导:1颗西红柿80元。我看到的西红柿价格是4颗99元。
+新华社报导:水果也贵森森。我刚好到附近水果摊买了盛产的橘子(12颗100元)和番茄(1斤39元)，水果摊还有卖芭乐1斤39元，特大颗火龙果1斤69元，即使是较为高档的台湾子弹莲雾及甜蜜枣也才1斤79元及89元，我实在真的看不出台湾物价哪里失控了? 物价难免多少会有波动，媒体应该就事实面做报导，而不是只为诋毁台湾而做这种夸大其辞且耸动的报导。
 
-文字版原文：[【信仰之声】主是葡萄树，我们是枝子](https://gnews.org/zh-hans/1793961/)
+物价的波动乃为全球性之状态，台湾行政院为减少台湾人民因通膨所带来生活上的压力，于2021年11月8日宣布台湾公务员明年调薪4%，此一举措，希望民间企业能跟进，使台湾人民能有祥和安定的生活。反观中共国，如果中共能够苦民所苦，极力为民谋福祉，中国就不会贫富差距如此之大，也不会有6亿人月收入只有1000人民币了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1594.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1595.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1596.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1597.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1598.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1599.png)
+[軍公教明年調薪4％ 人事長：本俸、專業及主管加給均調 – 政治 – 自由時報電子報 (ltn.com.tw)](https://news.ltn.com.tw/amp/news/politics/breakingnews/3729802)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+台湾宝岛农场:铃铃卷、新中国联邦静
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
