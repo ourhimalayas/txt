@@ -2,31 +2,24 @@
 ---
 
 
-## 英国和德国正考虑开启中共病毒疫苗第二加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797289/)
+## 【中日财经爆】中移动A股上市遭上万投资者弃购创历史记录
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797461/)
 
-#### 撰稿：彩虹       
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1563.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fslides%2F2021%2F12%2F52d301ffc310a3c13b34a9bcece43c15.jpg&amp;imgrefurl=https%3A%2F%2Fm.yicai.com%2Fnews%2F101053297.html&amp;tbnid=KAxwdM2NRjPSxM&amp;vet=10CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM..i&amp;docid=dg1sUYA_OrGh0M&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E4%B8%AD%E7%A7%BB%E5%8A%A8A%E8%82%A1&amp;ved=0CE8QMyjsAWoXChMI8IWa1N6F9QIVAAAAAB0AAAAAEAM)
+最近中共国A股市场常出现新股跌破发行价，又或发行后大额弃购事件。12月27日晚间，在港股有上万亿元市值的巨无霸中国移动被美股踢走之后，发布回A股上市发行结果，遭到上万名投资者7.43亿元弃购，甚至超过了2年前中国邮储银行6.53亿元弃购的历史纪录。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1556.png)图片来源：雅虎财经
-《国会山报》于12月27日发文称，据多份报告信息，随着中共病毒（COVID-19）变体奥米炕（Omicron）感染病例在欧洲的激增，德国和英国都在权衡决定是否对其人口中的特定群体进行中共病毒疫苗第二加强针注射，而以色列则已经开始了相关试验。
+如果按照1000股一签，弃购签数为1万2910签，如果一签对应一位投资者的话，就有上万名投资者弃购。最近一段时间，新股频频出现大额弃购，史上最贵新股禾迈股份遭3.63亿元弃购，上市首日却大涨30％，不过遭弃购1.99亿元的百济神州却大跌逾16％。
 
-据《卫报》（The Guardian）报道，英国布里斯托尔大学的儿科教授亚当·芬恩（Adam Finn）是英国疫苗接种和免疫联合委员会的成员，他上周说：“我认为可能会有一些人接受第四次疫苗接种。是否每个人都（有必要）这样做，我认为仍然非常有疑问……。我们确实需要看看这一波（疫情）及以后的情况如何（再定）”。
+除遭网上投资者弃购之外，中国移动还遭网下投资者弃购金额1270.49万元，包含渤海证券资管和知名私募翼虎投资也进行弃购。
 
-据《欧洲政客》（Politico Europe）报道，德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）也是一名医生和科学家，他表示，他认为第四针中共病毒（COVID-19）疫苗的注射将是必要的。
+根据资料显示，中国移动此次A股发行价为57.58元／股，“超额配售权”行使前发行总股数为8.457亿股、募资总额为486.95亿元；“超额配售权”全额行使的话，发行总股数将扩大到9.72555亿股、募资总额为560亿元。
 
-在接受德国一家电台采访时，劳特巴赫说：“就我个人而言，我希望进行第四次疫苗接种。”上周的时候，他当时还表示，他会“假设”第四针中共病毒疫苗接种“是必要的”。但他同时也说，关于第四次中共病毒疫苗接种的保护作用，有关的科学证据并不充分，尚无定论。
+消息来源：[中移动回A股上市遭弃购逾7亿人币刷新历史](https://www.chinatimes.com/realtimenews/20211228001947-260409?chdtv)
 
-文章报道，周一，以色列开始了第四次中共病毒疫苗接种有效性的试验，给最初在8月份接种过中共病毒疫苗加强针的医护人员进行第二次强化治疗。试验参与者将被跟踪6个月，以评估第二次加强针的有效性。
-
-文章说，如果第四针中共病毒疫苗接种一旦被以色列卫生部长纳赫曼·阿什（Nachman Ash）批准，则将被用于免疫力低下的人、医护人员和所有60岁或以上的人。
-
-**新闻来源**
-
-[UK, Germany weighing potential fourth COVID shot, second booster](https://thehill.com/policy/international/europe/587382-uk-and-germany-weighing-potential-fourth-covid-shot-second)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
