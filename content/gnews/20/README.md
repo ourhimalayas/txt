@@ -2,26 +2,42 @@
 ---
 
 
-## 美国官员推荐缩短新冠病毒隔离期
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797586/)
+## 西安事件就是疫苗导致的流血吐血以及某些器官急速衰竭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797603/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-44.png)
-图片来源： www.voachinese.com
+**郭文贵先生：**另外一个就是看到西安事件，西安这个事件记住，它就是疫苗导致的结果。我现在可以更加告诉大家，疫苗的结果就是流血、吐血以及某些器官的急速衰竭，这就是个疫苗结果。
 
-美联社12月27日报道，美国卫生官员周一为感染到新冠的美国人的隔离期从原来的10天减至5天，同样对于密切接触者的自我隔离时间相应缩短。
-美国疾控防治中心(CDC)官员说该指导原则是根据越来越多的证据显示患上新冠病毒者在出现症状前两天和出现症状后3天最具有传染性。
-这个决定也是由于近期感染奥米克戎患者剧增而驱动的。
-早期研究显示奥米克戎可能比前几次变种病毒引起较轻的疾病，但是由于更具传染性，患病人数大量增多——因此需要隔离和自我隔离—-由于患病人数大增可能击垮医院，航空公司和其他一些商业活动的承受能力。
-上周该中心已经对健康工作者放松了规定，从以前规定测试阳性者需离开工作岗位10天减为如果测试阴性或无症状者7天后即可回去工作，如果工作人员人数不够，则5天，甚至更短时间。
-现在，CDC对于普通公众也减少了隔离时间，甚至更不严格。这个隔离时间的缩短是指向无症状者，如果有症状，则还是建议待在家里。
-这项变化让公众感到不明所以，因为这项变化是发生在很多人测试阳性并寻求指导的时候。而且这个指导性建议很复杂。
-隔离：是指感染者，无论打过还是没有打过疫苗，他们说时钟计算从测试阳性起，感染者应该隔离5天，而不是以前说的10天，在5天结束时，如果你没有症状，你可以回到正常状态但在任何地方都要带好口罩，即使在家里，如果家中有其他人，也要带口罩至少另外5天。如果你还有症状，那就继续待在家里，直到你感到好转后开始所有时间都要带上口罩5天。
-自我隔离：自我隔离是指与感染患者密切接触而自己尚未感染者。时钟计算从他们已经暴露在病毒中的时间算起。
-以前CDC说没有接种疫苗者，一旦与感染者接触后必须待在家里至少10天，现在说只有打过加强针的人可以不用自我隔离，但必须总是带口罩至少10天。
-这就是变化，以前完全接种疫苗是指打过两剂辉瑞或莫德纳疫苗或打过一剂强生疫苗者可以不必自我隔离，而现在那些曾经的完全接种者已经与部分接种或没有接种疫苗者完全等同：他们可以在5天后结束自我隔离但必需再到处带口罩5天。
+你现在看一看世界上各种医学拍出来，打完疫苗以后身体的感觉，你知道有多瘆得慌。就在你的血管里到处像个树林一样，在你的血管里像个大树林一样，无数个小蛇、大蛇盘在了一起，在你血管里，你去看了吧，就那么可怕，恐惧到了什么程度！
 
-##### **新闻来源： **[US officials recommend shorter COVID isolation, quarantine](https://apnews.com/article/coronavirus-pandemic-science-business-health-rochelle-walensky-d7d609c9c01e200d250df7ca7282c9d6)
+而且是所有这些人死了以后的身体迅速的就是一个坑、一个包的腐烂，就是这些打的mRNA把你整个身体都快吃掉。你是死了，生命是停止呼吸了，你打的那个疫苗可没死啊！
+
+字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
