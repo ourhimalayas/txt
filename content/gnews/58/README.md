@@ -2,12 +2,20 @@
 ---
 
 
-## 中共病毒正在改变英国政治格局
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1794838/)
+## 班农先生的一则盖文
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793298/)
 
-12/17/2021 本·哈恩韦尔：这本是保守党大本营，它却自1832年以来第一次易手，这确实说明了中共病毒正在改变英国选举格局的事实。
+#### 翻译：skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.jpg)
+Miles Guo很聪明，他拍下了整个采访过程，并把它放到网上，揭露Vice/HBO的谎言和不实报道。这些谎言已在我们的意料中，这些美国媒体公司对北京一丛罪犯们卑躬屈膝，叩首称臣。Miles Guo毫不留情地揭露了武汉生物武器实验室、罪犯福奇的谎言、中共精英们活摘器官的罪行和对（希特勒）柏林/种族灭绝运动会的拙劣模仿。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+Vice/HBO是北京犯罪政权的走狗，为了老百姓、美国人民和全人类的利益，这个政权需要被摧毁。
+
+感谢上天，我们有Miles Guo ！
+
+[来源](https://gettr.com/post/pkonj1d4f8)
+
+
 
  
 

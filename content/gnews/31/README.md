@@ -2,42 +2,30 @@
 ---
 
 
-## 共产党紧跟七哥脚步承认运动员大概率得病显示治理能力
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797538/)
+## 北京取消对外国汽车制造商在华经营的所有限制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797578/)
 
-**郭文贵先生：**共产党已经说话了，冬奥会得这个病的是大概率事件。大家知道了吗？大概率事件，你看七哥上次直播的时候说了吧，一定会让你得的，你不得我也得让你得了。
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-22.png)
+图片来源：谷歌图片
 
-得了以后怎么处理呢是我说了算了。处理得伟大，体现了习主席“习太阳”治理世界的能力，不是治理国家的能力，是治理世界的能力，共产党的伟大的统一协调能力，无人可比喻的优越的社会集中资源、集中财富办大事的这个能力，这都是一套。
+合众国际社唐.杰克布森报告：中国政府周一表示，根据新的经济“开放”措施，2022 年将取消对外国汽车制造商的所有权限制。
 
-你七哥说完话他就得跟着咱走，他没办法不跟咱走，对吧。就像我们家Snow一样是吧，我这只要是一拿粮食Snow必须跟我走，它是拒绝不了的。所以共产党跟咱爆料革命的这种较量已经是Snow和七哥的关系，七哥只要一掏兜Snow就冲过来了，是吧？只要一伸手就往怀里冲。所以你看，他就来了，他就来了。所以说它一定不是大概率，它一定会发生。
+北京的两份“禁入清单”详细说明了明年中国经济的哪些部门禁止外国投资者进入，这表明外国汽车制造商将首次获准拥有其中国业务的 100% 股权。
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+总体而言，中国的外国投资者禁入项目数量将从33个减少到31个。 在自贸试验区，这个数字将从30个减少到27个。
 
-编辑整理：喜马拉雅的肉夹馍；
+旨在向外国投资开放中国经济的新禁入清单将于1月1日生效。
 
-字幕文件制作：小满；
+习近平主席上个月吹捧这些举措的计划，称其兑现了向世界贸易组织做出的承诺，在全球经济一体化面临“倒退”之际，更全面地开放电信和医疗保健等关键经济部门 .”
 
-视频制作及上传：Cindy；
+“开放是当代中国的标志，”习近平11月4日在北京举行的中国国际进口博览会上声称。
 
-G-News发布：小满；
+除了车改之外，新的禁入清单还进一步放宽了关键通信设备生产的外资上限。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+另据合众国际社引用中共国营媒体《环时报》报道，北京将允许包括特斯拉、大众、丰田、索尼、佳能和爱立信在内的一系列外国公司在中国设立完全外资子公司，同时为北京加入11国的跨太平洋全面进步协议铺平道路。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接：[https://www.upi.com/Top\_News/World-News/2021/12/27/foreign-ownership-limits-car-manufacturing/8141640628115/](https://www.upi.com/Top_News/World-News/2021/12/27/foreign-ownership-limits-car-manufacturing/8141640628115/)
 
  
 
