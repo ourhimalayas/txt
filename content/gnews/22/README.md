@@ -2,40 +2,57 @@
 ---
 
 
-## 刘亚洲被抓前饭局上谈及一屋子闪闪将星唯独不敢提七哥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797099/)
+## 参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1797137/)
 
-**郭文贵先生：**某将军在私下里边儿跟刘亚洲已经被抓了，说：“欸，那个小子记得吗？咱们一起吃过饭的，在外面折腾那么大，又建国又建邦的，你咋看？”所有的说五六个人“唰”全都停下来，捯菜，没有一个提这个接这个茬的。这哥儿们喝多了：“欸，刚才我还没有问你呢亚洲，你怎么看这个人啊？”刘亚洲想了想说：“NTM吃饱了撑的是不是？喝多了，你提他干什么呀？”说：“你提都不敢提，说明你很怕这件事啊！”
+参议员瑞克·斯科特: 环球时报新闻是认真的么？ 他的笑容？ 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一。 对那个邪恶之人没有什么值得庆祝的。 【转环球时报推文及视频，提及纪念毛贼东诞辰日】
 
-结果刘亚洲说了一句特别精彩的话，说：“咱这一屋子人全是带星的，我们敢提任何人都不敢提他，你说我是啥观点？”然后说：“喝酒！”这是当时的刘亚洲，因为那时候没抓他嘛，我就不好意思说。其中在桌上某个人已经成为也就是今天习近平最相信的第二个人，叫徐起零，叫徐起零，绝对是作战总司令，习近平最相信的。
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
 
-编辑整理：喜马拉雅的肉夹馍；
+> Seriously, [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)? His smile? Mao Zedong murdered tens of millions of people & is one of the reasons Communist China is the brutal, oppressive dictatorship it is today. There is nothing about that evil man worth celebrating. [https://t.co/kfgciKvIKF](https://t.co/kfgciKvIKF)
+> — Rick Scott (@SenRickScott) [December 27, 2021](https://twitter.com/SenRickScott/status/1475507523956449283?ref_src=twsrc%5Etfw)
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
 
-G-News发布：黎明之前；
+美前国务卿迈克·蓬佩奥： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 能够主导通过南中国海的商业运输，那么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 控制南海的威胁将使我们今天所遭受的供应链问题看起来像是儿戏。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+> The threat from China's domination of the South China Sea will make the supply chain problems that we're suffering from today look like child's play if the Chinese are able to dominate commercial shipments through the South China Sea.
+> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475628087794708486?ref_src=twsrc%5Etfw)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+众议院军事委员会共和党： 资深成员罗杰斯议员：“我很高兴看到22财年《国防授权法案》 已经签署成为法律…我们的工作还没有完成。随着新年的临近，我们国家面临着来自旗鼓相当的对手前所未有的侵略和威胁，即 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯” 【附众议院官网链接：22财年国防授权法案签署成为法律后罗杰斯的声明】
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+> RM [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw): "I am glad to see that the FY22 NDAA has been signed into law… Our work is not finished. As we approach the new year, our nation faces unprecedented aggression and threats from near-peer adversaries, namely China and Russia." [https://t.co/OyQBCtlSIg](https://t.co/OyQBCtlSIg) [pic.twitter.com/VmX5B0wCZX](https://t.co/VmX5B0wCZX)
+> — Armed Services GOP (@HASCRepublicans) [December 27, 2021](https://twitter.com/HASCRepublicans/status/1475564136985731082?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： “受人尊敬” 哦，是的，他还折磨和谋杀了超过6000万人。 【转’环球屎报’推，有关毛贼东咽气128周年的洗脑宣传视频】
+
+
+
+> “revered” 
+> 
+> Oh yeah, and he also tortured and murdered over 60 million people. [https://t.co/5JKjHIXeN4](https://t.co/5JKjHIXeN4)
+> — Ted Cruz (@tedcruz) [December 27, 2021](https://twitter.com/tedcruz/status/1475268292206022659?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))、气候和其他紧迫挑战时，我们处于更坚实的立足点。 我们在与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家打交道方面处于更强大的地缘政治地位，因为它们试图破坏国际体系。【附布林肯讲话视频】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/HR42uCkak5](https://t.co/HR42uCkak5)
+> — Department of State (@StateDept) [December 26, 2021](https://twitter.com/StateDept/status/1475134313788178437?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
