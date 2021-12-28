@@ -2,49 +2,30 @@
 ---
 
 
-## 美国航空公司因Omicron再度取消800个航班
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1796449/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796517/)
 
-作者：纽约香草山农场 – 四季
+作者：纽约香草山 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-1.jpg)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。（播放视频07:31）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+参考链接：
+1. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
+2. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
 
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
-
-
-据[新闻极限网站](https://www.newsmax.com/finance/streettalk/airline-industry-omicron/2021/12/27/id/1050048/)12月27日报道，美国航空公司在继圣诞节假期周末取消了数千航班后，周一又取消了约800个航班。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-20.jpg)（© Dreamstime)
-
-航班追踪网站FlightAware.com上的统计显示，截至周一凌晨，共有近740个美国境内以及进入或离开美国的航班被取消。
-
-随着全美各地Omicron感染率的上升，航空公司被迫取消航班，飞行员和乘务员也需要隔离。这一些措施致使旅客不得不寻求其他的旅行方式。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
