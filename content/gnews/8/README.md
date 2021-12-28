@@ -2,45 +2,36 @@
 ---
 
 
-## Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799310/)
+## 疫苗制造研发人员：从中共网站下载病毒基因序列，2-3小时内设计和制造出疫苗
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1799341/)
 
-作者：Drea Humphrey
-翻译：KK
+1月10日，当我们收到中共当局发来的（病毒）基因序列时，我们立即设计了疫苗，立刻开始生产并在实验室进行测试。（我在）尝试理解，从基因序列到疫苗模型，您在三个小时内完成了所有这些步骤？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.png)
+是的，我们只需要那个基因密码，它只是一系列 A 、T、C、G等所组成的病毒蓝图。我们使用计算机算法来完成疫苗的设计，并插入了病毒序列。（约三个小时后，我们就设计了一个完整的疫苗。
 
-BC 省卫生官员邦妮·亨利博士再次封锁圣诞节和新年，但 Omicron 变体是否足以成为这样做的借口？
+我们加载了来自中共国政府的（病毒）序列，我们将其放入我们生成疫苗的专有算法中。在两个小时左右，我们就已经设计好了疫苗，并直接投入生产。
 
-12 月 17 日星期五，亨利博士宣布对假期实施全面限制，其中包括取消所有人的新年前夜聚会，下令举办任何规模的有组织的活动，检查疫苗状态，以及限制室内聚会，例如圣诞晚餐，10 个人或一个额外的家庭，需要12 岁及以上的每个人都接种了新冠疫苗。
+（讽刺的口吻）他们从中共国网站下载了中共国政府提供的疫苗代码，你会从中共国网站下载任何东西吗？
 
-考虑到现有的大量证据表明接种疫苗的人也有助于传播这种病毒，强制隔离未接种疫苗的人似乎特别不人道。
+在此我们不胜感激，中共方面公开了（病毒）基因序列密码。因为正是从那时起，您才能开始研究它，了解实际发生的事情，是的绝对地，我必须感谢中共国当局，因为没有这些基因序列密码，我们真的什么也做不了。所以我们一收到这些信息就开始使用DNA药物类疫苗。
 
-在宣布第一波假期限制后的短短 72 小时内，亨利博士又宣布了多项限制措施，这些限制措施将至少持续到 2022 年 1 月 18 日，从而再次侵犯公民自由以及中小型企业的权益。
+（讽刺的口吻）他们从一个中文网站得到了代码，现在中国人自己都说他们不能分离病毒。
 
-这些限制包括禁止所有室内聚会，如婚礼、俱乐部和休息室被迫关闭，而音乐会和电影院的容量将达到 50%。
+为什么数据没有被共享？
 
-亨利使用Omicron 变体作为压榨许多人圣诞精神的主要借口。
+他们没能分离出病毒，这就是问题所在。
 
-但正如您将在本报告中看到的，佐伊持续时间最长的新冠研究数据表明，虽然 Omicron 变体在接种疫苗和未接种疫苗的人群中迅速传播，但其症状比 Delta 更轻微，并且与普通感冒非常相似。
+活体动物样本呢？
 
-来源：[https://www.rebelnews.com/omicron\_symptoms\_are\_like\_the\_common\_cold\_so\_why\_is\_bc\_locked\_down\_for\_christmas\_again](https://www.rebelnews.com/omicron_symptoms_are_like_the_common_cold_so_why_is_bc_locked_down_for_christmas_again)
+如果（动物样本）测试呈阳性无法说明什么，我并不怀疑，这也恰恰是我们最初的想法。
 
-（文章仅代表作者个人观点）
+素材：Kent
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+翻译：维京商人
 
-**关注我们**
+字幕：文雅
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发布：风云小哥
 
  
 

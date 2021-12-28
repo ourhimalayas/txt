@@ -2,20 +2,18 @@
 ---
 
 
-## 中国移动弃购新股金额达7.56亿元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798775/)
+## 尼加拉瓜将台湾的宗教馈赠移交给中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798822/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：台湾宝岛农场 – 鬥陣來拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日晚间，中国移动披露新股上市发行结果，网上和网下投资者弃购金额，分别为7.43亿元与1270.49万元，总弃购金额达7.56亿元，刷新A股纪录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-43.jpg)
-作为近十年A股最大的IPO，中移动的战略配售阵容相当豪华。据23日晚公告披露，包括社保基金等国家级投资平台，国家电网等大型央企，中国人寿等大型保险机构，均出现在名单中。然而，“新股不败”的神话再一次被打破。
+尼加拉瓜《新闻报》于当地时间12月26日报道，尼国总统奥蒂嘉下令，没收台湾政府捐赠给天主教教会的外馆资产，并移交给中共国。对此，台湾外交部表示，中共无权干涉台湾涉外事务，更无权继承台湾国有财产。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-35.jpg)
+事发始于尼国10日片面终止与台外交关系，并违反国际惯例，要求台驻尼人员23日前，全数撤离尼国。为尽善处理境外国有财产，台湾旋即将位于首都马那瓜的外交馆处，捐给天主教马那瓜总教区作为公益用途。双方于22日完成签约，并经当地律师公证，教会承诺将妥善保护，及运用台湾驻尼国大使馆馆舍。
 
-据悉，为防止新股发行上市股价破发，中移动还启用了“绿鞋”机制，即允许超发15%，意在增强参与一级市场认购投资者信心。但在内外交困，就业疲软，经济濒临崩溃的大环境下，“绿鞋”犹如破发标签，让投资者望而却步。
+台湾外交部呼吁，面对奥蒂嘉独裁政权，与中共连手打压民主台湾及天主教教会，国际必须共同谴责尼国政府，及中共的恶劣行径。并吁请各界协助尼国天主教教会，向当地政府争取其应有权利，将台湾前大使馆馆舍产权，依法移转登记予尼国天主教教会所有。
 
-参考链接:
-1) . [**中国移动新股弃购7.56亿元！有公募基金弃购**](http://finance.eastmoney.com/a/202112272227517584.html)
-2) . [**中国移动回A股上市：网上投资者弃购7.43亿元、确定启用绿鞋机制**](https://m.mydrivers.com/newsview/805669.html)
+参考链接:[尼加拉瓜沒收台灣外館資產贈中國 外交部抗議：無法接受](https://www.cna.com.tw/news/firstnews/202112275003.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
@@ -30,6 +28,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
