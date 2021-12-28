@@ -2,24 +2,37 @@
 ---
 
 
-## 加拿大魁省大量医护人员因染疫而被隔离
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796308/)
+## 有声|皇家加勒比游轮二次爆发疫情
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796351/)
 
-原文采编：UCool优酷             翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image02-2.jpg)
-[图片来源](https://www.meteomedia.com/ca/nouvelles/article/covid-19-heres-whats-happened-so-far-may-2020-coronavirus-closures-quarantine-self-isolation)
+配音：香草山教育部 – 百香果
 
-据加拿大法语媒体[魁北克新闻]12月26日报道，魁省大部分医院的急诊室在这个圣诞节期间似乎并没有预计的繁忙，但鉴于近期大量医护人员感染了“奥密克戎”病毒，防疫形势仍然异常严峻。
 
-报道称，目前在大多数魁省医院的急诊室里，情况不容乐观。这并非由于去急诊室的患者仍未达到极限，而是因为医院的护理和医务人员中有很多人感染了“新冠病毒”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月23日，据当地媒体报道，刚刚离开佛罗里达州劳德代尔堡的皇家加勒比游轮上，有 55 名乘客的中共病毒检测结果呈阳性。目前，这些感染者以及相关密切接触者已进入隔离状态，而感染者的症状大多较为轻微。
 
-据悉，在该省的大部分医院中，许多科室有近20%的医生和护士都处于因感染该病毒而被隔离状态。并且该情况在不断加剧，每天都会有更多的医生和护士因此请假离职。为此，医院要求当局缩短疫情隔离期限，以使这些卫生工作者能够更快地返回工作岗位。
+这是数周内该游轮上第二次爆发中共病毒疫情。消息称，这艘载有超过三千五百名乘客和一千五百多名船员的游轮，原计划在其八天的航程中停靠超过两个休息点，但由于疫情严重，目前计划取消部分停靠点。
 
-校对编辑：硫酸羟氯喹64
+数据显示，鉴于运营公司对乘客和船员的强制疫苗要求，该游轮上超过95% 的人已经完全接种了中共病毒疫苗。
 
-发稿：苦尽甜来 (文來）
+文字版原文：[皇家加勒比游轮二次爆发疫情](https://gnews.org/zh-hans/1792522/)
 
-[原文链接](https://www.journaldequebec.com/2021/12/26/trop-de-travailleurs-de-la-sante-en-isolement-a-cause-de-la-covid-1)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

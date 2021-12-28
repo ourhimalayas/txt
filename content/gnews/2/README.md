@@ -2,63 +2,41 @@
 ---
 
 
-## 共产党需要张高丽，彭帅消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
+## 文贵先生盖特精要2021/12/27
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1796636/)
 
-[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122709.png)[盖特直播链接](https://gettr.com/post/pkrk8l916c)
 
-**郭文贵
-Miles Guo**
+前天大直播在国内战友重反应强烈，这些爆二代爆三代简直太棒了！孩子们火大了！
 
-彭帅这个事情
-Sobre este asunto de Peng Shuai
+今天专门给七嫂做馒头，雪白、光滑、弹性极好！
 
-彭帅是一定要被消失的
-Peng Shuai seguramente será desaparecida
+春节前国内的情况乱成一锅粥，金融、房地产、人员失业、公司倒闭、各种抓人…… 在这个时候，美国内部做出决定，要给共产党一些好处，目的是起到麻痹共产党的作用。美国过来主动示好，甚至病毒也停止溯源调查，关税取消，两位领导人甚至要安排见面，提出支持在亚太地区的永久和平，支持中共加入日本的、亚太贸易战略协议，包括一些技术上的开放都在这次策略实施的范围内….. 目的是让共产党内部经济加速崩塌，特别要利用共产党内部习、曾、江、王、孟、杨洁篪之间复杂的政治斗争和中国社会四分五裂的矛盾以及民族之间的矛盾，跟原来美国对待苏联的方式一样，温水煮青蛙，偶尔还出来熄熄火，现在就是熄火的时候，最后让共产党还没来得及反应就被灭掉。
 
-一定会
-De seguro
+在这种情况下国内很有可能会出现虚假繁荣、回光返照的现象，给共产党一种复苏的幻觉。特别在南方和北方，东部和西部巨大的经济差距以及社会各方面资源分配极为悬殊，几大城市能源需求量不断增长，对外经济疲软，港币即将崩塌，加上在二十大前，政治斗争的残酷，中国种种社会问题，经济系统结构性的本质上的矛盾，没有创新也没有科技，市场消费严重紧缩，人民币疯狂超发，导致海外的流通人民币和国内内部的人民币出现了巨大的不对称，通胀通缩，金融会随时崩盘。
 
-什么精神病啦, 自杀啦
-Que si enfermedad mental, suicidio
+欧洲人认识地深刻，觉得让共产党自己倒比主动动手要好，而且有两个行动：一是每天敲锣打鼓要使共产党变得更加疯狂，导致像共产党内部的“鹰派”计划要在欧洲的经济民生上增加更多的话语权和直接挑战美国，就像当年苏联和美国的关系；二 是让共产党和俄罗斯继续勾兑，让他们犯战略性的错误，以致符合欧洲的利益。
 
-出车祸啦, 跳墙死啦
-Accidente automovilístico, saltó de la pared y murió
+现在就是四国演义的故事 — 美、欧、俄、中。这种情况下经济和媒体最重要，要能守住，自己不要犯低级的战略性错误。在这个特殊的历史时刻下，新中国联邦要做四国之后的司马懿，加速强大我们的经济和媒体平台，让更多的战友加入，就像我们的这些爆二代、爆三代，强大新中国联邦的抗压、抗风险、抗突发事件的能力，增加管理人才，广纳贤士，强大灭共在国际舆论上的正义性、合法性、必要性，让西方知道我们的无私无利，没有任何的政治图谋，绝对尊重西方的宗教信仰文化法治系统，选择和我们站在一起，最终达到以美灭共、以共灭共 、以钱灭共、以黄灭共。无苗族、无政治压力族，美好的世界属于我们！
 
-躲猫猫死啦, 一定要被死
-Murió jugando al escondite, de seguro será matado
+*听写：阿甘*
 
-然后张高丽就悄无声息
-Y Zhang Gaoli silenciosamente
+*校对：小雨*
 
-哪一天
-Un día
 
-当党需要的时候也会让他消失
-Cuando el Partido necesita, también será desaparecido
-
-就这结局
-Así es el final
 
 * * *
 
-日期：12/24/2021
-原视频标题：共产党需要张高丽，彭帅消失
-El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
-原视频日期：12/23/2021
-原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
-任务编号：KC369（3320）
-视频时间段：0:00-0:29
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
