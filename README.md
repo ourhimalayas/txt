@@ -15,116 +15,116 @@
 
 ---
 
-### [刘亚洲被抓前饭局上谈及一屋子闪闪将星唯独不敢提七哥](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
+### [参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一](/content/gnews/1/README.md)
+ ` 美国政要直译推`
 
-### [共产党信奉三个月拿不下就三年，再拿不下就活埋或枪毙](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
+### [强制接种COVID-19疫苗的国家](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [华夏专栏：日本深层观察系列之五—战后日本经济腾飞的三个重要因素](/content/gnews/3/README.md)
+### [郭文贵先生2021年12月27日盖特视频（9分37秒）全文字版](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：科学家预计Omicron将在1月份达到顶峰](/content/gnews/4/README.md)
+### [刘亚洲被抓前饭局上谈及一屋子闪闪将星唯独不敢提七哥](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [共产党信奉三个月拿不下就三年，再拿不下就活埋或枪毙](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [华夏专栏：日本深层观察系列之五—战后日本经济腾飞的三个重要因素](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：科学家预计Omicron将在1月份达到顶峰](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [针下亡魂｜巴西 32 岁奥运跳水运动员接种疫苗数月后死亡](/content/gnews/5/README.md)
+### [针下亡魂｜巴西 32 岁奥运跳水运动员接种疫苗数月后死亡](/content/gnews/8/README.md)
  ` 關注組`
 
-### [HBO虚假采访视频背后中共的黑金运作](/content/gnews/6/README.md)
+### [HBO虚假采访视频背后中共的黑金运作](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共某镇女党委书记公然威胁上访者 被停职](/content/gnews/7/README.md)
+### [中共某镇女党委书记公然威胁上访者 被停职](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [美情报部门称中共使用基因编辑和脑控武器](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年12月27日晚](/content/gnews/11/README.md)
+ ` 纽约香草山MOS01`
+
+### [美情报部门称中共使用基因编辑和脑控武器](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/9/README.md)
+### [日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [突发：西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/10/README.md)
+### [突发：西双版纳因疫情封城，大批游客被迫滞留](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [北约首长寻求在1月举行北约-俄罗斯理事会会议](/content/gnews/11/README.md)
+### [北约首长寻求在1月举行北约-俄罗斯理事会会议](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [中共已经绑架了全世界经济 媒体 金融 体育](/content/gnews/12/README.md)
+### [中共已经绑架了全世界经济 媒体 金融 体育](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（一）](/content/gnews/13/README.md)
+### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（一）](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [众多体育团体联合呼吁抵制北京冬奥会](/content/gnews/14/README.md)
+### [众多体育团体联合呼吁抵制北京冬奥会](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共国科学家打造出数字“检察官”](/content/gnews/15/README.md)
+### [中共国科学家打造出数字“检察官”](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵先生G系列核心总结](/content/gnews/16/README.md)
+### [郭文贵先生G系列核心总结](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [塔利班：女性必须在男性亲属陪伴下旅行](/content/gnews/17/README.md)
+### [塔利班：女性必须在男性亲属陪伴下旅行](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [从刘亚洲的被捕看中共“官二代”的好日子到头了](/content/gnews/18/README.md)
+### [从刘亚洲的被捕看中共“官二代”的好日子到头了](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [拜登签署《国防授权法》 涉及应对中共国威胁](/content/gnews/19/README.md)
+### [拜登签署《国防授权法》 涉及应对中共国威胁](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [专家警告辉瑞口服抗中共病毒药对患者有致死风险](/content/gnews/20/README.md)
+### [专家警告辉瑞口服抗中共病毒药对患者有致死风险](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/21/README.md)
+### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗](/content/gnews/22/README.md)
+### [广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/23/README.md)
+### [【G时新闻】FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [美国麦特公司与中共合推“疫苗护照”计划](/content/gnews/24/README.md)
+### [美国麦特公司与中共合推“疫苗护照”计划](/content/gnews/28/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/25/README.md)
+### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/29/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/26/README.md)
+### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/30/README.md)
  ` MOS香港部`
 
-### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/27/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [加拿大奥密克戎疫情持续恶化](/content/gnews/28/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/30/README.md)
+### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/31/README.md)
+### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [49岁媒体副主编接种加强针一天后去世](/content/gnews/32/README.md)
+### [49岁媒体副主编接种加强针一天后去世](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [一周内至少四名足球运动员心脏猝死](/content/gnews/33/README.md)
+### [一周内至少四名足球运动员心脏猝死](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [盖特在德国蓬勃发展](/content/gnews/34/README.md)
+### [盖特在德国蓬勃发展](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/35/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [有声|德国新外长将对中共采取强硬立场](/content/gnews/36/README.md)
+### [有声|德国新外长将对中共采取强硬立场](/content/gnews/37/README.md)
  ` MOSREC`
-
-### [英国政府打算逐门逐户登门打疫苗](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

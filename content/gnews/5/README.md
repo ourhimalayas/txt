@@ -2,28 +2,52 @@
 ---
 
 
-## 针下亡魂｜巴西 32 岁奥运跳水运动员接种疫苗数月后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1796957/)
+## 共产党信奉三个月拿不下就三年，再拿不下就活埋或枪毙
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1797072/)
 
-**撰文/ 疫情关注组｜发布日期/ 28/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+**郭文贵先生：**中国共产党太了解中国人了，就是任何坏事来的时候，像郑州，死那么多人，你想想郑州我有多少资源，我为了他们安全我不说，在郑州市公检法、政法委里边我培养的人就最起码几千人，他说：七哥，郑州这场水灾和河南这场水灾死得绝对不是十万人，绝对超过十万人，但是我们领导讲报告就说，他说‘（河南方言）你着啥球急嘞？你回家睡觉去呗，你TMD闲球蛋嘞蛋疼，你多啥事哩你找死哩你？死球十万二十万人，郑州好几千万嘞，能咋地呀？郑州人四个星期都忘球的啦，该吃啥吃啥，该喝啥喝啥。滚球蛋嘞！’”
 
-巴西一名 32 岁奥运跳水运动员伊恩·马托斯（Ian Matos）在接种完 COVID-19 疫苗的二个月内先后出现多器官感染，最后因肺部感染恶化而不治死亡。
+这是一个战友，公检法战友，这绝对是看我们爆料革命的，给领导建议：“咱也不能说那么少，是吧，怎么也得说个万把个吧，以后咋交代呀？”叫领导把他给臭噘一顿回家了。在路上哭得给我打电话呀！他说：“（河南方言）完啦！完啦！这个国家完球蛋啦！我被领导给骂了一顿”。
 
-马托斯 8月接受了第一剂 COVID-19 疫苗，并在 IG 上高兴的分享心情：“纯粹的快乐时刻”，不料，一个月后，他就因喉咙感染而入院，随后不断扩散至胃部及肺部，直至 12 月 21 日因肺部感染去世。
+这是当时发完洪水之后，我说：很不幸，你哭白哭了，郑州人不会在三周内记住”。他说：“（河南方言）不会！郑州人不会忘了这的！”好激动。“（河南方言）俺那崽儿、俺那孩儿都死啦！俺能忘喽？”我说：“很抱歉，你会忘了的，六周就是你的长界限”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/巴西-32-歲奧運跳水運動員接種疫苗數月後死亡2.jpeg)图片来源：马托斯个人 IG 分享
+共产党玩儿得你中国人一百年了，从来没有失手过。结果过了大概两个月以后，再跟我通电话的时候，嘻嘻哈哈地在讲他的房子的事儿，我说：“几周啦？”愣着不吱声了，我说：“你过了不到十周你在讲你的房，你的崽儿嘞？你那死的崽儿嘞埋了吗？”
 
-巴西奥委会发表声明表示哀悼：“得知年仅 32 岁的奥运跳水运动员伊恩·马托斯英年早逝的消息，我们深感悲痛。巴西队认可他对学科发展的贡献。我们向他的家人和朋友表示诚挚的慰问。”
+你记住我们中国人，咱中国人能到今天它不是偶然的。就像我的某个同学是基督教徒，被抓了四五回，然后就说这个共产党太坏了、太黑了，跟我们爆料革命多长多长时间。2019年年底，我得知这哥儿们改信教了，而且信的共产党教。在里面经过教育，经过共产党的所谓的攻心战术，对他的好，对他家人的好，对他本人的好，最后在里边宣誓入党，忠于共产主义进党。花了多长时间呢？八个月拿下了他。
 
-马托斯曾经在 2010 年的南美运动会上获得三枚铜牌，在 2016 年里约奥运会上参加男子双人三米跳板比赛。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/巴西-32-歲奧運跳水運動員接種疫苗數月後死亡.jpg)
-來源｜[RT](https://www.rt.com/sport/544032-olympic-diver-lung-infection-death/)
+共产党里面有一句名言：如果这个人三个月拿不下来的话，那就用三年拿下他来，如果三年拿不下的话，他就把他枪毙了或者活埋了。这在清丰看守所七哥经历最多的，我在里边而是几个月我没有被他们拿下来，这就是所有的被枪毙的人都有被尝试过我用三个月拿下来你，三个月拿不下来我拿半年，半年拿不下来就枪毙了你。
 
-* * *
+兄弟姐妹们，一定要记住：就看我们的打榜，我们伟大高兴之余、兴奋之余，但是想想。欸，小新真可爱！小脸儿今天照得红扑扑的，这小脸儿一斜，今天还有角度，发现还这样，我学学你我也这样的角度，我也这样说话啊啥感觉，这样看着挺美丽，脸儿很小，咱都这样斜着脸儿看看啥感觉，咱都这样斜着脸儿，是吧，哎——这个是个绝招。所以说这个看到（河南方言）郑州嘞郑州那崽儿都忘了是吧？死的都忘了。想想病毒、武汉，这么多人都死亡。
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)//
+我们打榜，我当时跟木兰说：“木兰你撑不过六周”，木兰：“不会的七哥，你将永远的永恒的，像太阳一样永远是第一！”我说：“你们打不了，超不过六周”，虽然还有第一。
+
+字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
