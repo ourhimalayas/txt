@@ -15,68 +15,68 @@
 
 ---
 
-### [爆料革命的圣诞礼物:欧洲将在经济领域迈出灭共重要一步](/content/gnews/1/README.md)
+### [我们把政府对时间、行为结果和需要价值的定价权做成NFT](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥以身试狼在世界媒体平台上消灭VICE背后的黑暗势力](/content/gnews/2/README.md)
+### [毛泽东睡不上小姑娘不甘大权旁落发动文革习近平步后尘](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [蛇妖闫亡腚缸能四处招摇只因打着爆料革命和班农的名义](/content/gnews/3/README.md)
+### [文·贵天成——郭文贵先生谈“G-Club”（三）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [王岐山派系并勾结吴小晖张宏伟的招商银行赵启柱被坠楼](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共经济有多惨？基金经理转行保安，首席经济学家投资亏20%](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（二）](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [爆料革命的圣诞礼物:欧洲将在经济领域迈出灭共重要一步](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥以身试狼在世界媒体平台上消灭VICE背后的黑暗势力](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [蛇妖闫亡腚缸能四处招摇只因打着爆料革命和班农的名义](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共经济有多惨？基金经理转行保安，首席经济学家投资亏20%](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [美国之所以牛是因为有底线 并不逾越底线](/content/gnews/5/README.md)
+### [美国之所以牛是因为有底线 并不逾越底线](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共针对房地产问题集中发声，难掩高空置率危机](/content/gnews/6/README.md)
+### [中共针对房地产问题集中发声，难掩高空置率危机](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [大打鸡血保交楼 不许躺平](/content/gnews/7/README.md)
+### [大打鸡血保交楼 不许躺平](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [美国欲擒故纵送利好 中共残喘疯狂助新联邦](/content/gnews/8/README.md)
+### [美国欲擒故纵送利好 中共残喘疯狂助新联邦](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [中共集一国和迪斯尼TPG索罗斯全世界黑暗势力灭爆料革命](/content/gnews/9/README.md)
+### [中共集一国和迪斯尼TPG索罗斯全世界黑暗势力灭爆料革命](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [爆料革命只反未经实验的毒疫苗 强制性疫苗的一定被审判](/content/gnews/10/README.md)
+### [爆料革命只反未经实验的毒疫苗 强制性疫苗的一定被审判](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国安委成立了新型冠状病毒控制小组来实施放毒计划](/content/gnews/11/README.md)
+### [中共国安委成立了新型冠状病毒控制小组来实施放毒计划](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为了搞死美国 中共高官纷纷劝谏习近平继续放毒](/content/gnews/12/README.md)
+### [为了搞死美国 中共高官纷纷劝谏习近平继续放毒](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安疫情持续升温 中国大陆的新冠病例连续四天增长](/content/gnews/13/README.md)
+### [西安疫情持续升温 中国大陆的新冠病例连续四天增长](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [G系列平台让HBO的阴谋无法得逞 粉碎国家级攻击](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共暴政火箭科技版：“AI检察官”可以识别犯罪和起诉](/content/gnews/15/README.md)
+### [中共暴政火箭科技版：“AI检察官”可以识别犯罪和起诉](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生的Gettr视频：刘亚洲被捕和习的下一个目标](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生G系列核心总结](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [HBO及VICE的采访 其背后绝不是共产党一家行动](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [面对香港“清零政策“，国泰航空飞行员大规模离职](/content/gnews/19/README.md)
+### [面对香港“清零政策“，国泰航空飞行员大规模离职](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英版“下乡送温暖”：疫苗小组到农村上门接种](/content/gnews/20/README.md)
+### [英版“下乡送温暖”：疫苗小组到农村上门接种](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [彭帅事件是国家紧急处理小组出面做的（中）](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [医生警告说mRNA疫苗可通过永久改变儿童的DNA来持续制造刺突蛋白](/content/gnews/22/README.md)
  ` 首尔天池农场`
