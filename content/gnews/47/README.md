@@ -2,42 +2,39 @@
 ---
 
 
-## 丑闻：维多利亚州政府撒谎，试图压制二维码的真相
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1797156/)
+## 默克尔政府下台前批准大宗军火出口给独裁政权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1796972/)
 
-***爆炸性的法庭裁决显示，丹尼尔·安德鲁斯的政府知道用联系人追踪器或通过二维码分享的个人信息并不安全***
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/维州丑闻.png)图片来源：The Australian
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/18815717_303.jpg)图片来源：DW
 
 
-**整理报道：小鱼儿
-编辑：Candy**
+#### 整理/编辑：小红帽
 
-（澳大利亚维州）一项爆炸性的法庭裁决，暴露了丹尼尔·安德鲁斯（Daniel Andrews）政府在数百万维多利亚人的私人信息安全问题上撒谎，并试图掩盖细节。
+根据DW12月27日报道， **由于德国默克尔政府在执政的最后一刻批准了价值近50亿欧元的军火交易，从而让德国今年的军火出口创下新的纪录。**
 
-自大流行病开始以来，维州政府向维多利亚人保证，他们分享的任何细节都只用于公共卫生目的。
+根据德新社报道，在左翼党一名议员的要求下，德国联邦政府经济部公开了这些数据。数据显示，这些军火销售协议是在默克尔执政期的最后9天内签署的。
 
-然而，《先驱太阳报》今天报道说，用联系人追踪器或通过二维码分享的个人信息并没有得到 “绝对保护”。该报告显示，政府不仅知道这个谎言，而且还积极地试图欺骗公众，堵住了与私人信息安全有关的真相的发布。
+联邦经济部称，该交易使德国2021年全年的军火出口总额达到创纪录的90.4亿欧元。在此之前，德国军火出口的最高纪录为2019年的80.15亿欧元。
 
-Covid指挥官杰罗恩·魏玛（Jeroen Weimar）发起了一项法律诉讼，要求将法庭案件保密五年，以阻止因公开这一消息对政府所造成的损害。
+**尽管埃及在侵犯人权和参与也门和利比亚冲突方面受到批评，它仍是德国武器的主要出口国家。**
 
-《先驱太阳报》公布的文件显示，魏玛无耻地向法庭辩称，公众对国家联系人追踪系统的信心，比告诉维多利亚人他们的个人信息可能被他人获取的威胁更重要。
+根据默克尔最后一刻的协议，德国重工业公司蒂森克虏伯（ThyssenKrupp）将向埃及交付三艘军舰，向新加坡交付一艘潜艇，另一家德国军火公司代缴防务（Diehl Defence）将向埃及交付16套防空系统。
 
-这一消息的出现，是由于该部门向法院申请阻止维多利亚州工作保障局（Victorian WorkCover Authority）获取联系人追踪信息，作为其调查该州酒店检疫闹剧的一部分。
+肖尔茨在默克尔的联合政府任副总理兼财政部长，对这些交易显然一清二楚。
 
-在州政府部门推动将这些细节从公众视野中撤销时，文件显示，代表VWA（WorkSafe）的马库斯·霍恩（Marcus Hoyne）认为：法院不应协助公众被误导。他指责该部门寻求压制，“以防止公众了解通过联系人追踪提供的信息，可能不得不披露的真实情况。”
+左翼党的外交政策专家达格德伦 (Sevim Dagdelen)抨击肖尔茨，谴责他的作为就像 “一个骗子”。达格德伦呼吁停止出口“杀人工具”，并抨击肖尔茨的政党在向独裁政权出售武器的态度上言行不一。
 
-参考新闻：[SCANDAL: Victorian government lied, tried to suppress the truth over QR codes](https://www.rebelnews.com/scandal_victorian_government_lied_tried_to_suppress_the_truth)
+新闻来源：[默克尔政府下台前批准大宗军火出口 | 德国之声 来自德国 介绍德国 | DW | 27.12.2021](https://www.dw.com/zh/%E9%BB%98%E5%85%8B%E5%B0%94%E6%94%BF%E5%BA%9C%E4%B8%8B%E5%8F%B0%E5%89%8D%E6%89%B9%E5%87%86%E5%A4%A7%E5%AE%97%E5%86%9B%E7%81%AB%E5%87%BA%E5%8F%A3/a-60265390)
 
-***发布：Candy***
+***发布：小红帽***
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

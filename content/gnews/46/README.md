@@ -2,30 +2,43 @@
 ---
 
 
-## 快飞影像遭受勒索软件攻击，要求支付数百万美元赎金
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1797344/)
+## 丑闻：维多利亚州政府撒谎，试图压制二维码的真相
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1797156/)
 
-#### 撰稿：彩虹       
+***爆炸性的法庭裁决显示，丹尼尔·安德鲁斯的政府知道用联系人追踪器或通过二维码分享的个人信息并不安全***
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1559.png)图片来源：GovInfoSecurity
-快飞影像公司（Shutterfly）是一家个性印品DIY服务公司，在美国从事制造和零售个性化产品和服务，成立于1999年。2019年，快飞影像公司宣布，它已同意被私募股权公司阿波罗全球管理公司（Apollo Global Management）以27亿美元收购。
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-12月27日，《国会山报》报道，快飞影像公司本周宣布，由于受到了勒索软件的攻击，影响了部分服务，成为目前最新被黑客攻击的公司。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/维州丑闻.png)图片来源：The Australian
 
-周日，该公司在其网站上发布了一份声明，宣布受到了这次攻击，并指这一事件影响了Lifetouch和BorrowLenses业务的一部分，以及Groovebook、制造系统和一些企业管理系统。网站（Shutterfly.com）和其他相关网站没有受到攻击。
 
-声明说：“我们聘请了第三方网络安全专家，通知了执法部门，并一直在夜以继日地工作来解决这一事件。作为我们正在进行的调查的一部分，我们也在评估任何可能受到影响的数据范围”。
+**整理报道：小鱼儿
+编辑：Candy**
 
-截至周日，虽然该公司还不知道那些数据被泄露，但它强调，快飞影像公司没有储存信用卡号码、其他财务信息和社会安全码。
+（澳大利亚维州）一项爆炸性的法庭裁决，暴露了丹尼尔·安德鲁斯（Daniel Andrews）政府在数百万维多利亚人的私人信息安全问题上撒谎，并试图掩盖细节。
 
-但是，根据《恶意软件研究技术网》（Bleeping Computer）周一的报道，黑客组织Conti是这次攻击的幕后黑手。他们从两周前开始对大约四千台快飞影像公司的设备进行加密，黑客要求快飞影像公司支付几百万美元的赎金，并威胁说，如果不在未来几天内支付赎金，他们将公布被盗的法律协议页、登录信息和其他敏感信息。
+自大流行病开始以来，维州政府向维多利亚人保证，他们分享的任何细节都只用于公共卫生目的。
 
-根据美国联邦机构联盟的信息，截至9月，约有400个美国和国际团体受到该黑客组织的侵害，受害者包括医疗保健和应急组织。英国广播公司（BBC）新闻在5月份报道，爱尔兰医疗系统遭受的勒索软件攻击与黑客组织Conti有关，造成了大规模的破坏。
+然而，《先驱太阳报》今天报道说，用联系人追踪器或通过二维码分享的个人信息并没有得到 “绝对保护”。该报告显示，政府不仅知道这个谎言，而且还积极地试图欺骗公众，堵住了与私人信息安全有关的真相的发布。
 
-**新闻来源**
+Covid指挥官杰罗恩·魏玛（Jeroen Weimar）发起了一项法律诉讼，要求将法庭案件保密五年，以阻止因公开这一消息对政府所造成的损害。
 
-[Shutterfly hit by ransomware attack](https://thehill.com/policy/cybersecurity/587397-shutterfly-hit-by-ransomware-attack)
+《先驱太阳报》公布的文件显示，魏玛无耻地向法庭辩称，公众对国家联系人追踪系统的信心，比告诉维多利亚人他们的个人信息可能被他人获取的威胁更重要。
+
+这一消息的出现，是由于该部门向法院申请阻止维多利亚州工作保障局（Victorian WorkCover Authority）获取联系人追踪信息，作为其调查该州酒店检疫闹剧的一部分。
+
+在州政府部门推动将这些细节从公众视野中撤销时，文件显示，代表VWA（WorkSafe）的马库斯·霍恩（Marcus Hoyne）认为：法院不应协助公众被误导。他指责该部门寻求压制，“以防止公众了解通过联系人追踪提供的信息，可能不得不披露的真实情况。”
+
+参考新闻：[SCANDAL: Victorian government lied, tried to suppress the truth over QR codes](https://www.rebelnews.com/scandal_victorian_government_lied_tried_to_suppress_the_truth)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
