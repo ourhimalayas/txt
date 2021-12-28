@@ -2,48 +2,40 @@
 ---
 
 
-## 中共某镇女党委书记公然威胁上访者 被停职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796932/)
+## 默克尔政府下台前批准大宗军火出口给独裁政权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1796972/)
 
-作者：纽约香草山 – 侠肝义胆
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/18815717_303.jpg)图片来源：DW
 
 
+#### 整理/编辑：小红帽
 
-12月26日，有媒体报道，山东平度市云山镇党委书记王丽在做群众工作时，方法简单，言语失当，作风粗暴。面对一名上访者，王丽称：可以举全平度市之力对付他，有一百种方法去刑事拘留他的儿子。
+根据DW12月27日报道， **由于德国默克尔政府在执政的最后一刻批准了价值近50亿欧元的军火交易，从而让德国今年的军火出口创下新的纪录。**
 
-相关录音流出后，在墙内引起了强烈反响。中共平度市委迫于舆论压力，对王丽作出了停职调查处理，并责令其向当事人赔礼道歉。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-1.jpg)
-但网友评论称，中共女干部如此霸道，公然威胁上访者不是偶然，因为中共政府一向罔顾法律法规，视民如草芥。墙内更多的依法维权上访者只会被中共政府无情打压，肇事官员则常常逍遥法外不会被处置。此次停职处理，应该仅是迫于形势和舆论压力，企图把坏事转变成好事，彰显所谓正能量，体现中共党和政府的“伟光正”。
+根据德新社报道，在左翼党一名议员的要求下，德国联邦政府经济部公开了这些数据。数据显示，这些军火销售协议是在默克尔执政期的最后9天内签署的。
 
-参考链接：
-[凤凰网 12月26日报道【女官员威胁上访者“有100种方法去刑事他儿子” 已被停职】](https://gettr.com/post/pkprzd4581)
+联邦经济部称，该交易使德国2021年全年的军火出口总额达到创纪录的90.4亿欧元。在此之前，德国军火出口的最高纪录为2019年的80.15亿欧元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+**尽管埃及在侵犯人权和参与也门和利比亚冲突方面受到批评，它仍是德国武器的主要出口国家。**
 
-总编/编辑：文特
-校对/发稿：为真不破20
+根据默克尔最后一刻的协议，德国重工业公司蒂森克虏伯（ThyssenKrupp）将向埃及交付三艘军舰，向新加坡交付一艘潜艇，另一家德国军火公司代缴防务（Diehl Defence）将向埃及交付16套防空系统。
 
-**更多资讯，更多关注**
+肖尔茨在默克尔的联合政府任副总理兼财政部长，对这些交易显然一清二楚。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+左翼党的外交政策专家达格德伦 (Sevim Dagdelen)抨击肖尔茨，谴责他的作为就像 “一个骗子”。达格德伦呼吁停止出口“杀人工具”，并抨击肖尔茨的政党在向独裁政权出售武器的态度上言行不一。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻来源：[默克尔政府下台前批准大宗军火出口 | 德国之声 来自德国 介绍德国 | DW | 27.12.2021](https://www.dw.com/zh/%E9%BB%98%E5%85%8B%E5%B0%94%E6%94%BF%E5%BA%9C%E4%B8%8B%E5%8F%B0%E5%89%8D%E6%89%B9%E5%87%86%E5%A4%A7%E5%AE%97%E5%86%9B%E7%81%AB%E5%87%BA%E5%8F%A3/a-60265390)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+***发布：小红帽***
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
