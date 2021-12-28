@@ -2,16 +2,23 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796517/)
+## 49岁媒体副主编接种加强针一天后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796520/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-1.jpg)
-在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。（播放视频07:31）
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月26日，据国家脉搏网站报道，美国一媒体亚洲区副主编卡洛斯·特哈达，在接种了莫德纳疫苗加强针不到24小时的时间里，就因心脏病突然发作而不幸去逝。
+
+公开信息显示，特哈达此前还曾担任另一美国媒体的中共国区新闻编辑，是一位有影响的知名记者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-4.jpg)
+在今年的7月5日，特哈达曾公开表示，自己刚刚接种了强生公司的腺病毒载体DNA疫苗。而在本月17日，特哈达发布了他人生中的最后一条Ins更新，称自己已经接种了莫德纳mRNA疫苗加强针，并将其与此前的强生疫苗进行了混打。但就在接种后的24小时内，特哈达就因突发心脏病被紧急送进了首尔的一家医院，后因抢救无效去世，年仅49岁。
+
+据悉，特哈达所供职的媒体也对他的突然离世及生平事迹进行了详细的报道。但是，对他刚刚接种过中共病毒疫苗的消息却只字未提。
 
 参考链接：
-1. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
-2. &lt;a href="http://HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
+1. [49岁媒体副主编接种加强针一天后去世](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+2. [49岁媒体副主编接种加强针一天后去世](https://cn.nytimes.com/obits/20211223/carlos-tejada-dead/)
+3. [49岁媒体副主编接种加强针一天后去世](https://www.timednews.com/article/2021/12/26/12685.html)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
