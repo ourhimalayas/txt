@@ -2,45 +2,56 @@
 ---
 
 
-## 讽刺剧：武汉实验室举办如何避免实验室泄漏的会议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1799179/)
+## 美国官员警告中国正在将脑机接口、基因编辑和“精神控制武器”军事化
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799196/)
 
-编译： Jenny Ball
+作者：Ian Miles Cheong
+翻译: KK
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1601.png)图片来源：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-341.png)
 
-武汉病毒学研究所（武毒所）——该实验室被认为是 COVID-19 大流行的源头——举办了一次国际会议，为科学家和研究机构就适当的实验室安全措施提供建议。
+美国在去年 12 月表示，中国政府正在利用生物技术制造“脑控武器”和其他对美国国家安全构成严重威胁的新兴技术，之后美国于 12 月对几家中国国家附属实体实施制裁。
 
-“生物安全实验室管理和技术国际培训课程”—— 该活动正值美国顶级健康和情报机构公开支持实验室泄露理论，而且，COVID-19 正是从武汉病毒研究所逃脱的。
+“新情报显示，中国正在使用基因编辑和脑机接口等技术来增强军事能力并控制自己的人民，这些机器可以让中国突击队只需一个念头，而不是扳机手指就可以发射武器，”福克斯新闻国家安全记者詹妮弗·格里芬（Jennifer Griffin）进行了直播。
 
-国家脉动此前曾透露，该实验室对“杀手”蝙蝠冠状病毒的操作，部分是由美国国家过敏和传染病研究所（NIH）所长安东尼·福奇资助，创造了具有“直接感染人类”能力的 SARS 样病毒株。
+她解释说：“本月，拜登政府通过对与这项研究有关联的 37 家中国生物技术公司实施制裁来应对新出现的威胁，专家称这些公司正在研究包括所谓的‘精神控制武器’。”
 
-尽管处于 COVID-19 起源的中心，武病所还是于 12 月 16 日至 17 日举办了实验室安全措施会议。
+“五角大楼表示，北京已经使用这些技术，包括生物识别监控工具和面部识别来追踪持不同政见者和记者并镇压维吾尔人，”格里芬补充道。
 
-此次活动，邀请了中共控制的实验室的几位研究人员，包括副主任关武祥、副主任袁志明和魏红平教授。
+前国家情报局局长约翰拉特克利夫表示，美国不会使用与中国相同的在道德上有问题的做法。
 
-实验室网站还详细介绍了研讨会的内容，包括让参与者重点关注“生物安全实验室概述”、“实验室管理体系”,和“动物实验操作规范与实践”：
+“我们不会让我们自己的士兵、水手和飞行员处于危险之中，这是情报告诉我们中国人愿意做这些事情，”他说，根据每日电报。“他们想不惜一切代价推进，包括那些对他们自己的人民有害的代价。”
 
-课程涵盖生物安全与生物安全实验室概述、生物安全实验室管理体系、科学家生物安全行为准则、生物伦理学、前沿生物技术治理、细菌（病毒）物种保存、运输与管理、生物风险评估、生物安全实验室个人防护装备、生物安全 操作规范、动物实验操作规范及操作实践等。
+12月16日，美国商务部发表声明如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1603.png)图片来源：thenationalpulse.com 
+今天，美国商务部工业与安全局 (BIS) 采取行动，应对中华人民共和国 (PRC) 开发和部署生物技术和其他技术对美国国家安全和外交政策构成的持续威胁。军事应用和侵犯人权。BIS 还对在中国、格鲁吉亚、马来西亚和土耳其运营的实体采取行动，这些实体将美国物品转移或试图转移到伊朗的军事计划。
 
-与会者
+根据联邦机构的说法，对中国实体采取的行动是由于中国使用“生物技术来支持中国的军事达到最终用途和最终用户，包括所谓的脑控武器。”
 
-武汉病毒研究所的一份新闻稿, 详细介绍了来自近 30 个国家的 200 名参与者：
+“对生物技术和医学创新的科学追求可以挽救生命。不幸的是，中国选择使用这些技术来追求对其人民的控制以及对少数民族和宗教少数群体成员的镇压。我们不能允许支持医学科学和生物技术创新的美国商品、技术和软件被转用于违背美国国家安全的用途，”美国商务部长吉娜 M. 雷蒙多说。
 
-来自肯尼亚、尼日利亚、巴基斯坦、缅甸、斯里兰卡、巴西、希腊、保加利亚等26个国家的200多名海内外学生报名参加。
+雷蒙多说：“美国将继续坚决反对中国和伊朗将有助于人类繁荣的工具变成威胁全球安全与稳定的工具。”
 
-**点评：世界不对中共释放病毒和用mRNA疫苗灭绝人口的罪行追责，让中共更“自信”它对全人类的独裁，已经到了我是流氓我怕谁的境地！多么讽刺啊，制造释放病毒的地方，人类受其肆虐两年之久后，公然在同一地方举行国家会议，给世界生物安全提建议！**
+据一位接受《金融时报》采访的美国高级官员称，中国正在寻求将新兴生物技术用于军事应用，包括“基因编辑、人类性能增强、脑机接口”。
 
-新闻来源 ：[thenationalpulse.com][Wuhan Lab Hosts Conference On How To Avoid Lab Leaks.](https://thenationalpulse.com/2021/12/26/wuhan-lab-hosts-biosafety-conference/)
+来源：[https://www.rebelnews.com/us\_officials\_warn\_china\_is\_militarizing\_brain\_machine\_interfaces\_gene\_editing\_mind\_control\_weapons](https://www.rebelnews.com/us_officials_warn_china_is_militarizing_brain_machine_interfaces_gene_editing_mind_control_weapons)
 
-* * *
+（文章仅代表作者个人观点）
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
