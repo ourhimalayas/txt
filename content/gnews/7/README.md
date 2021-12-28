@@ -2,60 +2,57 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“先锋集团”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1797132/)
+## 参议员瑞克·斯科特: 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1797137/)
 
-整理：**BENJ1**
-编辑：**Kelly**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-340.png)图片来源：雅典娜农场设计组
-郭文贵先生**2021**年**8**月**24**日直播
+参议员瑞克·斯科特: 环球时报新闻是认真的么？ 他的笑容？ 毛贼东杀害了数千万的人，这也是中共成为今天残暴、压迫独裁政权的原因之一。 对那个邪恶之人没有什么值得庆祝的。 【转环球时报推文及视频，提及纪念毛贼东诞辰日】
 
-欧洲的某个领导说：“Miles，我求求你了兄弟，你不要再谈疫苗了行不行？我拜托你了。”
 
-我说：“我真得谈疫苗，我请问你，先锋集团现在给你多少钱？”他一下愣在那了，我说：“先锋集团给你多少钱？回答我。”他说：“一年1200万美元。”我说：“它凭啥给你1200万美元？你能干啥？你会研究药？你会推销药？给你1200万美元就是因为你曾经是总统，你能帮助这帮王八蛋，给先锋集团和辉瑞制药推销他的药，就像现在你来说服我一样。”先锋集团没给我一分钱，先锋集团是中国国药的投资者。
 
-但是昨天有一件事儿，就是那个42公司，咱不说了，我答应人家了。我们最重要的战友昨天说：“求求你Miles，最近别说42公司了，关于42先别说。”看来是整大发了这事，这事也不是咱先说的，是不是？是网络上先说的，也不是咱先说的，首先是正义小Sarah、小王子说的，我没先说。我答应人家咱先不说，过一段再说吧，拜托了兄弟姐妹们。
+> Seriously, [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)? His smile? Mao Zedong murdered tens of millions of people & is one of the reasons Communist China is the brutal, oppressive dictatorship it is today. There is nothing about that evil man worth celebrating. [https://t.co/kfgciKvIKF](https://t.co/kfgciKvIKF)
+> — Rick Scott (@SenRickScott) [December 27, 2021](https://twitter.com/SenRickScott/status/1475507523956449283?ref_src=twsrc%5Etfw)
 
-但是不讲疫苗是不可能的。战友们想过没有？你见过的所有的海外欺民贼、伪类们，他们哪一个人有接到这样的劝说电话的资格吗？有吗？有一个人在过去几十年的历史中拿出过几千万美元的事儿吗？所有的这些人能告诉你疫苗，解读出疫苗哪来的吗？
 
-他们知道什么叫42公司和先锋集团吗？所有这些人有一个能有国内的常委、政治局给他通个电话的，你告诉我，可能他们的狗都不会跟他通电话，他能认识这些人家的保姆阿姨，他都祖坟冒青烟了。
 
-郭文贵先生：查查最大的石墨烯储存量是什么时间储存的？巴西的公司主要是谁控制？绝大部分是先锋集团，先锋集团是谁知道吗？先锋集团就是辉瑞制药、科兴疫苗、中国国药疫苗的其中投资股东。
+美前国务卿迈克·蓬佩奥： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 能够主导通过南中国海的商业运输，那么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 控制南海的威胁将使我们今天所遭受的供应链问题看起来像是儿戏。
 
-小王子：“我查到所有的美国三种疫苗、英国阿斯利康、还有中国国药，先锋集团是大股东。”
 
-郭文贵先生：“先锋集团是谁？大家说说。”
 
-小王子：“先锋集团是美国最大的信托基金。”
+> The threat from China's domination of the South China Sea will make the supply chain problems that we're suffering from today look like child's play if the Chinese are able to dominate commercial shipments through the South China Sea.
+> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475628087794708486?ref_src=twsrc%5Etfw)
 
-郭文贵先生：“管理人是谁？”
 
-正义小Sarah:：“先锋领航集团(Vanguard Group) 于1974年由约翰·鲍格尔(John Bogle)创立，其前身是威灵顿基金在1929年就诞生了。”
 
-郭文贵先生：“现在是谁？查查，让战友们看，我们用事实说话，不要用伪专业，最讨厌专业还有专家。夏业良往那一站中国男人的面子都丢光了，挺着小肚子，还是吃了一肚子垃圾，外八字腿，然后撑个脖子，垃圾样儿还称为教授。郭宝胜也是挺着肚子，撇着八字腿、仰着脸，吐着口气、叫牧师，就这帮垃圾，专家，专家要靠什么？专家要靠事实、数据说话。把刚才那个石墨烯放出来，飞飞。”
+众议院军事委员会共和党： 资深成员罗杰斯议员：“我很高兴看到22财年《国防授权法案》 已经签署成为法律…我们的工作还没有完成。随着新年的临近，我们国家面临着来自旗鼓相当的对手前所未有的侵略和威胁，即 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯” 【附众议院官网链接：22财年国防授权法案签署成为法律后罗杰斯的声明】
 
-小王子：“莫蒂默•巴克利是现在先锋集团的…”
 
-郭文贵先生：“这个人是啥背景？搜索一下就知道了。看看和中共的老杂毛和江家是啥关系？和鼎晖是啥关系？和比尔盖茨、黑石啥关系？黑石占13.47。又来了黑石，是海航的老板，王岐山的铁哥们。王岐山的情人，第一个投人民币的，黑石集团康斯得、罗登攀，老板江志成。美国最大养老基金，老杂毛，养老基金，养谁的老？他老了你死了。
 
-小福利：“石墨烯为何方神物？单层石墨烯是常见的铅笔芯，二维蜂窝状碳原子晶格结合的1毫米石墨烯有150万层的石墨，厚度为三分之一纳米，是未来的革命性材料。
+> RM [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw): "I am glad to see that the FY22 NDAA has been signed into law… Our work is not finished. As we approach the new year, our nation faces unprecedented aggression and threats from near-peer adversaries, namely China and Russia." [https://t.co/OyQBCtlSIg](https://t.co/OyQBCtlSIg) [pic.twitter.com/VmX5B0wCZX](https://t.co/VmX5B0wCZX)
+> — Armed Services GOP (@HASCRepublicans) [December 27, 2021](https://twitter.com/HASCRepublicans/status/1475564136985731082?ref_src=twsrc%5Etfw)
 
-石墨烯特点：机械强度大(钢铁200倍)、拉伸性好(20%)、轻、可弯曲、导电性好(比银略好)、导热性好(比银强10倍)、生物导电性好。石墨烯用途：微芯片、生物传感器、DNA检测、体外疾病检测、材料、电池、其他。这是刚刚小王子给过来的资料。习近平访英期间华为将投资英国石墨烯项目，新材料将改变世界。”
 
-郭文贵先生：“这个是2015年。我记得在直播说过，到英国习近平（参观）石墨稀项目，英国帝国理工，你们记得我在直播中说过，你们去查一查。华为在日本研究过石墨稀。
 
-所以告诉大家去看一看，还包括肌肽、心肌肽，专家说这所谓的心肌肽，实际上心肌肽的体现也是用的和石墨烯有关系，石墨烯现在的核心技术只有英国、美国两个国家控制，日本有一部分，但是医疗用法主要是英国、美国还有瑞士，而且绝大多数是先锋集团、黑石资本，还有中共国的江泽民、江志成成立的在美国的基金，后来马云掺合了点钱，然后是俄罗斯的两大家族。就这件事儿上俄罗斯和美国不为敌了，合作了。英国的几大家族，瑞士的几大家族，还有德国的几大家族，称为世界上七十大家族的全部参与进来。
+参议员泰德·克鲁兹： “受人尊敬” 哦，是的，他还折磨和谋杀了超过6000万人。 【转’环球屎报’推，有关毛贼东咽气128周年的洗脑宣传视频】
 
-这七十大家族基本上是沼泽地51%的股东，包括共产党的老杂毛。许家印想投钱他找不着门，这些控制着所有医药最重要的十大原材料的80%。美国最受残害、死人最多是什么毒？是共产党的冰毒，为啥美国不解决冰毒呢？为什么这些专家、医学大佬们、沼泽们不解决冰毒呢？美国天天扫毒，咋这些人不出手呢？几十年没解决美国死亡最多的冰毒，一年之间，两个月之间解决能杀掉人类的冠状病毒？艾滋病让美国死了那么多人，他们不怕死吗？不怕得艾滋病吗？（艾滋病）没解决、没疫苗，二三个月就出来了（冠状病毒的）疫苗。而且世界经济都被打垮了，世界经济的网被他们剪断了以后，出现经济梗、交通梗、贸易梗、这个梗谁能控制谁就是人类的老大；谁能控制这些药厂原材料成本谁就是世界的老大，药、专家全部来自药厂，用什么药，医疗意见，政府百分之百听专家的，这些人的钱来自药厂，药厂的股东是他们，生产药的成本控制是他们，让不让你吃药，吃多少药又是他们。
 
-发布：去中心化Math
-**
-**更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> “revered” 
+> 
+> Oh yeah, and he also tortured and murdered over 60 million people. [https://t.co/5JKjHIXeN4](https://t.co/5JKjHIXeN4)
+> — Ted Cruz (@tedcruz) [December 27, 2021](https://twitter.com/tedcruz/status/1475268292206022659?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 COVID ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))、气候和其他紧迫挑战时，我们处于更坚实的立足点。 我们在与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家打交道方面处于更强大的地缘政治地位，因为它们试图破坏国际体系。【附布林肯讲话视频】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/HR42uCkak5](https://t.co/HR42uCkak5)
+> — Department of State (@StateDept) [December 26, 2021](https://twitter.com/StateDept/status/1475134313788178437?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

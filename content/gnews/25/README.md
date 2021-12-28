@@ -2,54 +2,24 @@
 ---
 
 
-## 郭文贵先生G系列核心总结
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796825/)
+## 众多体育团体联合呼吁抵制北京冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796836/)
 
-[https://gtv.org/video/id=61c9eb5043ccb726a08c48ea](https://gtv.org/video/id=61c9eb5043ccb726a08c48ea)
+原文采编：文莱      翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-9.jpg)
+据加拿大自媒体《真北方》12月26日报道，近日，约有200个全球体育运动团体联合致信给那些将播放2022年北京冬奥会的电视网络商，要求他们取消其此前与中共当局签定的转播协议。
 
-**郭文贵
-Miles Guo**
+信中写道：所有的冬奥会电视转播商都面临着成为中共政权计划同谋的严重风险，该邪恶计划旨在为中共国不断严重恶化的人权侵害行径进行“体育洗白”，并以此为中共当局的累累罪行壮胆。而通过转播北京冬奥会，这些公司将使该暴政所有犯罪行为合法化，并促进了这次“种族灭绝运动会”的召开。
 
-永远不要忘记，GTV永远是王
-Never forget, GTV is always king
+报道还称，虽然这些电视网络商中的许多人已站出来维护人权，但如果他们继续转播2022年北京奥运会，那么所有的努力都将被“在镜头之外所发生的中共罪行所掩盖”。
 
-Gclub是你的通行证，和你的新中国联邦最早期的护照
-Gclub is your pass, and the earliest passport of the New Federal State of China
+目前，众多国家政府已纷纷表示将“外交”抵制2022年北京冬奥会。国际奥林匹克委员会也表示，如果中共不履行其对维护人权的承诺，它将采取必要的抵制行动。
 
-Gfashion是你的文化和尊严的桥梁
-Gfashion is a bridge between culture and dignity
+校对编辑：硫酸羟氯喹64
 
-Gettr是通往西方的桥梁
-Gettr is the bridge to the west
+发稿：苦尽甜来 (文來）
 
-我们的Gnews是未来和全人类，不分种族、不分任何文化的
-Our Gnews is the future and all mankind, regardless of race or culture
-
-只分好坏的，甚至坏人都有机会的
-only good and bad, even bad guys have the chance
-
-和我们新中国联邦交流的精神的平台、文化平台、信仰平台
-and a spiritual platform, cultural platform, and belief platform for communicating with our New Federal State of China
-
-* * *
-
-Date: 12/26/2021
-原视频标题: 郭文贵先生G系列核心总结
-Mr. Miles Guo talk about G-series core summary
-原视频日期：2021/12/24
-原视频链接：[https://gettr.com/post/pknkqaf34a](https://gettr.com/post/pknkqaf34a)
-任务编号：KC371（3346）
-视频时间段 : 0:00-0:42
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-制片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[原文链接](https://tnc.news/2021/12/26/200-groups-call-on-broadcasters-to-drop-2022-beijing-olympics/)
 
  
 
