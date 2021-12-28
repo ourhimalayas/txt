@@ -2,62 +2,84 @@
 ---
 
 
-## 抓住错误把战友打成特务是共产党埋在爆料革命里的毒刺
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1798610/)
+## 【Michael.Tonny专栏】尸检结果证明，中共病毒对所有器官都会持久的损害！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1798664/)
 
-**郭文贵先生：**像刚才小新你看一开始说的叫“螃蟹”一个口误叫战友的事情，你就紧张到几次重申，这是爆料革命最近发生了一个很让人不开心的一个抬头，就是我们战友抓住某个战友的口误或某个战友在国内的习惯行为——盖上大帽子就是特务。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-就像你害怕的这个恐惧的原因就是就担心因为某天某日，说你说成我们的战友，就把你定成这样。我跟你说实话，这是七哥我首先我要接受大家都不是完人，也不会加入爆料革命就不一样了。说他有个循序渐进的过程。我可以接受任何人犯错误。但是就这种过程当中七哥也是痛苦的。大家都是痛苦的——就为什么让小新恐惧到这个程度呢？动不动就是“抓特务”，动不动就是坏蛋。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-你看看最近Rachel这件事儿，Q May这件事，你看看唐导这件事儿，你在看最近咱们爆料革命当中，老班长和长岛哥受到了各种攻击，我再告诉大家你知道对咱贡献最大的人是谁吗？大家想，拍着良心说，最大的贡献是九指妖、路大脑骗，包括蛇妖闫。我们不能坏良心的，我们不是跟共产党一样的。
+灭共者郭文贵先生在2021年12月下旬的一期直播中警告，所有感染Covid-19（又称中共病毒，CCP病毒或冠状病毒病，是由SARS-CoV-2病毒引起的一种受生化武器袭击后发生的传染病）痊愈后的人，如果不注意持续的保健，可能会在末来患上严重的疾病！
 
-你们最恨的坏蛋这几个是最大贡献者；最恨的人是那个“螃蟹”，他只来拿钱来了还当什么九燕王子，杀掉所有中国人，还有当年的新疆Inty，他只是获取者，这是最可恨的。九指妖、路大脑膜、蛇妖闫是最大的伪类，但是他帮过我们爆料革命。
+郭先生的警告并非空穴来风。美国国立卫生研究院(US National Institutes of Health ，NIH)的一个科学家团队根据在2020年4月26日至2021年3月2日之间对感染中共病毒后死亡的44名患者的尸检（autopsies）结果，揭晓了答案。
 
-话又说过来了，难道我们每个人都是完美的吗？我们每个人都是真正的不会犯错误吗？七哥你要按照你这个小新的标准，那七哥讲过的话，你七哥应该被五马分尸、百马分尸了已经，说过的错话。我们不能再有第二个毛病，只要是郭文贵说的都是对的。只要战友犯的错都是不可容忍的，要么百分之百要么是零，这是什么逻辑啊？
+中共病毒对于曾经感染痊愈的人来说，很可能就是挥之不去的梦魇。为什么中共病毒影响了这么多器官系统？为什么感染中共病毒后，即使是轻度（asymptomatic）或无症状患者（mild cases of Covid-19）也会长期受中共病毒影响？
 
-我今天本来要跟你们谈一个印度的“神教”，叫真理教。大家记得吧一个叫做邪教的一个大佬叫做辛格，现在被关进监狱去了。他爹就是创始人，当时才200多人。他在印度这个邪教干什么？强奸了几十个女性，在安吉拉邦，在当地，所谓在全人类6000万个信众，事实上他大概有几万个信众，爱穿我这样的紫色的衣裳，留着大长胡子，实际上才二十几岁，玩弄女性，修地下行宫玩女性。
+在感染中共病毒后，SARS-CoV-2病毒可以在几天内从呼吸系统（respiratory system）进入大脑（brain）、心脏（heart）和身体的几乎每个器官系统（organ system），并在那里停留数月！在某些情况下，病毒在症状（symptom）出现后会在“整个大脑区域”停留长达230天！
 
-然后还唱歌，唱歌以后跟你七哥今天一模一样，唱歌还打榜，打榜打到第一，你去看看他去，是吧！拍电影，电影无数人看，都是他的信徒看。他竟然、给他开庭都是直升机法官去，不敢到别的地儿去，怕被砸监狱，在监狱里面审完就跑。这个家伙还去过多次中国，在中国还有它的分支，你们知道这个教吗？你们上网去查查去。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/SARS-CoV-2-can-directly-infect-brain-cells.png)
 
-这个教就不允许你离开这个教，这个教所有人都给他钱，这哥们儿干的那个教你没有去看过，比所有的旁边的教都要高级得多的多。就这个人就是不允许别人说话，不允许说真话，而且聚敛财富，而且是所谓“群交”，他能组织上千个妓女结婚——上千个妓女跟嫖客结婚，还有性交、乱交，那叫邪教！就是Isobel就要把我们变成这样的邪教。
+虽然人体器官中，受SARS-CoV-2影响最大（highest burden）的是气道（airways）和肺（lung），但该病毒可以在感染早期传播（disseminate）并感染整个身体的细胞，包括广泛地遍及整个大脑。导致Covid-19的SARS-CoV-2病毒可以在几天内从呼吸系统进入大脑、心脏和身体的几乎每个器官系统，并在那里停留数月。即使在死于无症状或轻度Covid-19病例的患者中，病毒的RNA也会“广泛分布”，在初步康复后仍会出现症状。
 
-我们现在第一咱没有群交，有群交一定告我去，没有性交，没有让大家聚财富，也没有挖地道，也没有说不允许你离开，谁爱离开谁离开。但是我们现在有一样东西是从头到尾就抓特务这件事，抓特务基本上是共产党埋在我们这个爆料革命的一个毒刺儿，特务进来以后，就把小新这样人给打成特务，是不是就让你寒心，让你完全无力招架。
+老年人和患有许多严重疾病的人最有可能出现COVID-19症状挥之不去，但即使是年轻的健康人在感染后数周至数月内也会感到不适。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/human-brain-organoid-shows-numerous-dying-cells.png)
+随着时间的推移，常见的体征和症状（signs and symptoms）包括：
 
-她竟然敢说“螃蟹”是我战友，那“螃蟹”当初就是咱战友，说的有什么错的呀？而且螃蟹G-TV他也写了，他在里头撒谎说他写了什么代码，G-TV没有一个代码是你“螃蟹”这个孙子这个烂仔的。但是，曾经他毕竟是战友，我发自内心说我从来没有忘掉过对“螃蟹”的感激的，没有过。
+疲劳（Fatigue）
 
-他就是这样采访胡说八道，我觉得他很可怜，如果是我这个级别的，我一定说郭文贵绝对是共产党最大敌人，共产党绝对是一个什么，但是，这家伙我不喜欢他，我佩服这个人，就是客观。对待敌人要客观，他竟然说：“我两天没吃饭，思考完他是个骗子。”说这么Low的话。我今天发自内心说，我对“螃蟹”还真的是感谢，虽然没有用他的代码。
+呼吸急促（Shortness of breath）或呼吸困难（difficulty breathing）
 
-你说“九指妖”、“路大脑袋”给咱的贡献——爆料革命多大呀！那“路大脑袋”是最大的冤大头，他不叫路德叫冤大头，是吧！玩了两三年，给咱传播爆料，真的假的也好，是吧，传播两三年，最后是啥毛没捞着，房子房子没了，啥也没了，就是利用爆料革命约了个炮，“蛇妖闫”来了，是吧，花了咱几百万块钱，是不是？几万里约炮嘛，就这么满足了一下生殖器，对吧！
+咳嗽（Cough）
 
-这就这么一个、这失去多少啊！那么我们今天“爆料革命”再也不能这样，动不动就抓特务，我真的不开心。我最近，真的有些战友说这个是特务那个是特务，我真的不开心！还有我不开心战友的包容度，你不能包容的战友，我就能知道有一天你一定会成为我的敌人！
+关节疼痛（Joint pain）
 
-字幕来源：[2021年12月24日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1790583/)
+胸痛（Chest pain）
 
-编辑整理：喜马拉雅的肉夹馍；
+记忆力（Memory）、注意力（concentration）或睡眠问题（sleep problems）
 
-字幕文件制作：小满；
+肌肉疼痛（Muscle pain）或头痛（headache）
 
-视频制作及上传：Cindy；
+快速（Fast heartbeat）或剧烈的心跳（pounding heartbeat）
 
-G-News发布：小满；
+嗅觉（Loss of smell）或味觉丧失（Loss of taste）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+抑郁（Depression）或焦虑（anxiety）
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发烧（Fever）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+站着头晕（Dizziness when you stand）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+身体或精神活动后症状恶化（Worsened symptoms after physical or mental activities）
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+COVID-19不仅是一种主要影响肺部的疾病，它也会损害许多其他器官，包括心脏、肾脏（kidneys）和大脑。器官损伤可能导致在COVID-19患病后持续存在的健康并发症（health complications）。对某些人而言，持久的健康影响可能包括长期呼吸问题（breathing problems）、心脏并发症（heart complications）、慢性肾功能损害（chronic kidney impairment）、中风（stroke）和格林-巴利综合征（Guillain-Barre syndrome）——一种会导致暂时性瘫痪（temporary paralysis）的病症。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+一些成人和儿童在感染COVID-19后会出现多系统炎症综合征（multisystem inflammatory syndrome）。在这种情况下，一些器官和组织会严重发炎（severely inflamed）。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+COVID-19可使血细胞更容易结块（clump up）并形成凝块（clots），导致血栓（Blood clots）和血管（blood vessel）问题。虽然大凝块会导致心脏病发作（heart attacks）和中风，但据信COVID-19造成的大部分心脏损伤源于阻塞心肌（heart muscle）中微小血管（tiny blood vessels，毛细血管，capillaries）的非常小的凝块。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+受血栓影响的其他身体部位包括肺、腿、肝脏（liver）和肾脏。COVID-19还会削弱血管并导致血管渗漏（leak），从而导致肝脏和肾脏潜在的长期问题。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+经历严重COVID-19症状的人在医院的重症监护室呼吸机（ventilators）等机械辅助下进行呼吸幸存下来后，更容易患上创伤后应激综合征（post-traumatic stress syndrome）、抑郁（depression）和焦虑（anxiety），导致严重急性呼吸系统综合症 (severe acute respiratory syndrome ，SARS) 的病毒，继续发展为慢性疲劳综合征（chronic fatigue syndrome），容易情绪（Problems with mood）和极度疲劳（extreme fatigue）问题。
+
+参考数据：
+
+[New insights into how COVID-19 can impact the brain and CNS](https://newatlas.com/health-wellbeing/coronavirus-infect-damage-brain-neurological-cns-yale/?itm_source=newatlas&amp;itm_medium=article-body)
+
+[Study reveals how COVID-19 can directly damage brain cells](https://newatlas.com/health-wellbeing/coronavirus-damage-blood-brain-barrier-cells-cognitive-long-covid/)
+
+[Study reveals how Covid affects the brain](https://www.rt.com/news/544493-covid-spreads-through-body/)
+
+[COVID-19 (coronavirus): Long-term effects](https://www.mayoclinic.org/diseases-conditions/coronavirus/in-depth/coronavirus-long-term-effects/art-20490351)
+
+[Effect of COVID-19 on the Organs](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7470660/)
+
+[New insights into how COVID-19 can impact the brain and CNS](https://newatlas.com/health-wellbeing/coronavirus-infect-damage-brain-neurological-cns-yale/?itm_source=newatlas&amp;itm_medium=article-body)
+
+[The SARS-CoV-2 main protease Mpro causes microvascular brain pathology by cleaving NEMO in brain endothelial cells](https://www.nature.com/articles/s41593-021-00926-1)
+
+[Stanford study finds inflammation in brains of deceased COVID-19 patients](https://newatlas.com/science/stanford-inflammation-brain-tissue-coronavirus-neurological-long-covid/?itm_source=newatlas&amp;itm_medium=article-body)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

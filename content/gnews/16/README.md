@@ -2,54 +2,56 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“G-Club”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798546/)
+## 雅典娜疫情更新（2021年 12月28日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1798575/)
 
-整理：BENJ1
-编辑：文泓
-![文章配图](https://assets.gnews.org/wp-content/uploads/2021/12/b61738e7e0cd7db8.png)图片来源：墨尔本雅典娜农场设计组（614）
-**郭文贵先生2020年6月6日直播**
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-11.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
+感染总数：2.81亿（日新增145万）
+死亡总数：541万（日新增 6526人）
+每万人感染人数：435.1752人（除中国外）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122.png)全球累计病例数变化曲线（除中国外）来源：Our World in Data
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+图片来源：Our World in Data
+![](https://assets.gnews.org/wp-content/uploads/2021/12/123-1.png)英国，澳大利亚，欧盟，美国每日每百人疫苗接种数量变化曲线的比较
+（来源：Our World in Data）
+**三，澳洲疫情和“疫苗”数据**
+感染总数：323,278（今日新增 11,267人）
+死亡总数：2202人
+每万人感染人数：120.3953人
+“疫苗”毒针注射总数：42,252,227  （今日新增31,159针，毒针注射数量是昨日的3倍有余）
+第二针“接种”：1879.6999万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-- Club、G-Fashion、G-Mall和咱们这个G-Fashion管理团队，百分之九十（成员）都来自我们（战友）管理，太年轻了！这个世界属于年轻人的，你们都是Old-Fashion了。G-Fashion（大家会看到），将改变世界的格局。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/124.png)
+今日澳大利亚病例新增再创新高，超过了一万一千人。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。那么全球疫情如何呢？下图比较了全球各地区每10万人中的病例数的变化曲线 ：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126-1.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
+在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。郭先生爆料早就提到了中共的“灭白计划”，HBO对郭先生精心剪辑的污蔑节目中也把“灭白计划”当作“阴谋论”之一来攻击。可是看看现在的疫情曲线，除了灭白计划，还有其它更好的解释吗？
 
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-我们有G-Fashion、G-Club啊，大概一个月以后我们G-Club开始卖会员，1万美元起到5万美元，五个会员层次。G-Club先开始，然后G-Fashion、G-Mall，然后开始搞私募，然后G-Dollar、G-Coin，整个的我们的喜联储全面开始运作上线。然后G-News、G-TV，百分之九十都要以我们的战友为主。如果这些平台所有的盈利，首先不是让战友们赚钱，所有团队不是以战友为主，那么我们就失败了。
+发布：去中心化Math
 
-所以说，今天上午好几个机构投资者就在这儿开会，找班农先生视频（对话），**问这个投资有什么前提?我说什么前提都可以谈啊，（但是）永远要记住，管理团队、还有优先利益，一二三四次私募，一切以我们战友为主，否则就不要谈**。我告诉他们，G-Dollar、G-Coin很快会达到十万亿美元，咱不信咱走着看——**三到五年十万亿美元**，G-TV万亿美元，G-Fashion、G-Club还有G-Mall一定是达到……G-News要达到将近5万亿美元，一定的！**我们要把共产党的所有掌握的钱，百分之七十拿到我们新中国联邦来。**我说，这谁也挡不住，没人能挡得住！
-
-**郭文贵先生2020年6月13日连线江财神直播**
-
-G-Fashion我为什么不放在G-Mall里边呢?G-Fashion里边只给我G-Club会员来用的。就如江财神，我拿了5万美元，我买了个会员（资格）。我一到G-Fashion上去，就是所有的东西打5折、打5折。郭文贵这个金色的、淡金色的西装“BRIONI”特制领带，看到这一根线织到头的，一根线，你也看到视频了，妥妥地就给织出来的，只有我有，（会员）打5折而且是唯一的。别人不卖，给钱都不卖，这叫G-Fashio。然后世界名牌，你在我这，你想在G-Fashion上卖，对不起，老江同志买的必须是5折，要不你上隔壁G-Mall卖去。大家认可你，就买嘛，跟商店一样。是吧？那么你要想到我G-Fashion卖，都得5折。
-
-- **Club****是个独立的法律体制，完全独立的。**它的身份是干吗?你给了我钱，这钱你再也甭想拿回去了，我拿走了。干嘛去用?我在背后给你运作所有的品牌和资源，让他们给你5折。G-Fashion是完全独立的运作，我就是要收你每年5%的管理费，然后呢!卖给你最便宜的、最好的、高质量的品牌和我自己设计师的东西，主要绝大多数是我们自己的设计师，因为这个价格才能控制。你比如昨天我跟我们的G-Fashion工作团队在谈论3个品牌，你顺便一件衣服都搞个几千美元的，我问他你买不买?他说我想买，但是太贵。你老江也不能给媳妇儿一天买5千美元一件、8千美元一件，打了折也好几千美元呐!
-
-
-那我们成本控制最关键的一环就是设计师，他授权在他的厂，我们买料，按照他的设计生产出一模一样的东西。这个价格，老江你看那个是1万西服，我买给你这个才3千、2千美元，你穿着还挺舒服，觉得我沾了便宜了。这才是我们G-Fashion！绝大多数是设计师特别设计的，最牛的产品是我们G-Fashion用的。
-
-这三块（布局），我跟那个投行的哥们说，我给你讲G-Club，不要说咱先上十万会员，500万美元；100万会员，5千万美元；1千万会员，就是5千亿美元；1亿会员，5万亿美元。我问你，你觉得我这个G-Club能卖多少钱?他傻眼了。我说，这次G-TV投资6万多人都是绝对性的符合捐款条件者进来要投资，6万人中有2万人买（产品）是值多少钱?我的G-Mall、G-Fashion值多少钱?关于G-Club，然后我说，关键问题我（还）有两个货币。
-
-**郭文贵先生2020年6月15日第二次直播**
-
-G-Club过两天就开始卖，这几天我们基本研究出了新的政策。G-Club就是G俱乐部，五万美元是这个全会员，然后有五个级别，五万、四万、三万、两万、一万，每一万是一个级别，（五万会员）终生享有G-Fashion五折的优惠。G-Club将为大家打造一个全方位的、最佳生活品质的、高尚生活的一个大平台。
-
-我们G-Fashion在私募前怎么能让战友得到股票，我们现在合法的研究出G-Fashion未来怎么做。你四万不行啊、三万（也）不行，用五万美元你买了一个G-Club，你呢这五万美元我会给你说有一万美元，（就是）我借给你一万美元你再去买一块钱一股的G-Fashion。也就是你就是五万美元，你就拿到了一个还有一万股的G-Fashion。因为G-Fashion未来私募的时候，肯定从十万甚至五十万、一百万起步，很多人进不来。但是你买了这个G-Club的会员、五万美元，你就可以做到。战友们你看看这个有意思吧。
-
-**郭文贵先生2020年6月20日直播**
-
-**大家要记住，GTV、G-Fashion、G-Club、G-Dollar、G-Coin是人类的未来，是中国人的未来，记住我今天说这话。**没人能挡得住G-TV、G-Fashion、G-Club、G-Coin、G-Dollar，这是新中国联邦的建国基础。
-
-资料来源：郭先生GTV和盖特直播视频。
-
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-
-发布： 去中心化Math
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
