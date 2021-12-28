@@ -15,110 +15,110 @@
 
 ---
 
-### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/1/README.md)
- ` 郭爆料串珠`
+### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/1/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文贵先生盖特精要2021/12/27](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [加拿大奥密克戎疫情持续恶化](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [张高丽玩处女 家族一定会受审判](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [加拿大斥巨资购买新型口服抗病毒药](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [共产党需要张高丽，彭帅消失](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [日本不打算派高级官员参加北京奥运会](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|德国新外长将对中共采取强硬立场](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [英国政府打算逐门逐户登门打疫苗](/content/gnews/8/README.md)
+### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/9/README.md)
- ` 【🌹玫瑰新闻】`
+### [加拿大中共病毒感染确诊总数突破200万](/content/gnews/5/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [第207期玫瑰看新闻-币圈新闻](/content/gnews/10/README.md)
- ` 【🌹玫瑰新闻】`
+### [串珠502:习性无能没有私生子，有一女儿化名李木子](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
 
-### [美国航空公司因Omicron再度取消800个航班](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
-
-### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大战在即？日中将开通热线](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|HBO Vice炮制虚假采访背后的真相](/content/gnews/14/README.md)
+### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [联盟工作汇报文字版2021.12.26](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
+### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/8/README.md)
+ ` 郭爆料串珠`
 
-### [有声|【信仰之声】拔掉你生命中的刺 ——浅谈圣经中的“荆棘”](/content/gnews/16/README.md)
+### [文贵先生盖特精要2021/12/27](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [张高丽玩处女 家族一定会受审判](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [共产党需要张高丽，彭帅消失](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [美国欲擒故纵送利好，中共残喘疯狂助联邦](/content/gnews/17/README.md)
+### [日本不打算派高级官员参加北京奥运会](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|德国新外长将对中共采取强硬立场](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [英国政府打算逐门逐户登门打疫苗](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/16/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [第207期玫瑰看新闻-币圈新闻](/content/gnews/17/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [美国航空公司因Omicron再度取消800个航班](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大战在即？日中将开通热线](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|HBO Vice炮制虚假采访背后的真相](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [联盟工作汇报文字版2021.12.26](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|【信仰之声】拔掉你生命中的刺 ——浅谈圣经中的“荆棘”](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [美国欲擒故纵送利好，中共残喘疯狂助联邦](/content/gnews/24/README.md)
  ` YALUN 亚伦`
 
-### [有声|皇家加勒比游轮二次爆发疫情](/content/gnews/18/README.md)
+### [有声|皇家加勒比游轮二次爆发疫情](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [反疫苗者坎迪斯欧文斯说，唐纳德特朗普&#8221;太老&#8221;而无法使用互联网并阅读网上反疫苗研究](/content/gnews/19/README.md)
+### [反疫苗者坎迪斯欧文斯说，唐纳德特朗普&#8221;太老&#8221;而无法使用互联网并阅读网上反疫苗研究](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [加拿大魁省大量医护人员因染疫而被隔离](/content/gnews/20/README.md)
+### [加拿大魁省大量医护人员因染疫而被隔离](/content/gnews/27/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [遭受打压后中共国对企业赴海外上市的规定更加严格](/content/gnews/21/README.md)
+### [遭受打压后中共国对企业赴海外上市的规定更加严格](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针对疫苗致死事件的抗议活动在韩国各地展开](/content/gnews/22/README.md)
+### [针对疫苗致死事件的抗议活动在韩国各地展开](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大安省“奥密克戎”疫情持续恶化](/content/gnews/23/README.md)
+### [加拿大安省“奥密克戎”疫情持续恶化](/content/gnews/30/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [七哥谈GNews平台（2021-12-24摘录）](/content/gnews/24/README.md)
+### [七哥谈GNews平台（2021-12-24摘录）](/content/gnews/31/README.md)
  ` MG FARM`
 
-### [七哥谈爱的升华（2021-12-24摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [七哥谈NFT（2021-12-24摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [上天让其亡 必让其猖狂](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥谈独裁（2021-12-24摘录）](/content/gnews/28/README.md)
- ` MG FARM`
-
-### [七哥谈毛泽东（2021-12-24摘录）](/content/gnews/29/README.md)
- ` MG FARM`
-
-### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/30/README.md)
+### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [纽约时报的49岁编辑在接种莫德纳加强针一天后去世](/content/gnews/31/README.md)
+### [纽约时报的49岁编辑在接种莫德纳加强针一天后去世](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [水龙吟·别俄罗斯喀秋莎农场](/content/gnews/32/README.md)
+### [水龙吟·别俄罗斯喀秋莎农场](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [完全接种疫苗的荷美游轮检测到 COVID-19 阳性](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/34/README.md)
+### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
-
-### [DC大中华时事：中国财政部称做好房地产税试点准备工作](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [GTV新闻访谈简报|2021年12月27日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`

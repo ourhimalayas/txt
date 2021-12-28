@@ -2,44 +2,35 @@
 ---
 
 
-## 完全接种疫苗的荷美游轮检测到 COVID-19 阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1795961/)
+## 纽约时报的49岁编辑在接种莫德纳加强针一天后去世
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1796093/)
 
-翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-17.jpg)图片来自网络
+据《国家脉动》作者 凯·斯迈思（Kay Smythe）2021 年 12 月 26 日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-17.jpg)2020 年 3 月 27 日档案照片中荷美游轮的鸟瞰图（Luis Acosta/AFP via Getty Images）
+《纽约时报》亚洲区副主编卡洛斯·特哈达 (Carlos Tejada) 去世，享年 49 岁。他在社交媒体上发布自己接种了莫德纳加强疫苗后不到一天就心脏病发作了。
 
-周末，卫生官员在一艘荷美邮轮上发现 COVID-19 阳性病例后，拒绝其进入墨西哥港口。
+特哈达参与了部分该报的中共病毒报道，已婚并育有两个孩子。在《纽约时报》工作之前，他曾在《华尔街日报》工作过近五年。
 
-墨西哥哈利斯科州卫生部门在给媒体的一份声明中证实，在“康宁斯丹”（Koningsdam ）邮轮抵达旅游胜地波多黎各时巴亚尔塔时，船上的 21 名船员在导致 COVID-19的中共病毒检测时呈阳性。
+根据特哈达自己的 Instagram 页面，他很高兴在韩国首尔接种 mRNA/LNP 加强针。特哈达最初于 2021 年 7 月接种了强生 DNA/AAV COVID-19疫苗。在 12 月 17 日接种莫德纳加强针后不到一天，特哈达死于心脏病发作。第二天早上，他的妻子诺拉（ Nora ）通过特哈达的社交媒体分享了这一消息。《纽约时报》于 12 月 22 日[证实](https://www.nytimes.com/2021/12/22/business/media/carlos-tejada-dead.html)了他的死讯。
 
-“通过船上测试，我们已经确认， Koningsdam 上少数完全接种疫苗的船员的 COVID-19 检测呈阳性，”荷美航空公司在周六发给新闻媒体的一份声明中写道。 “所有人都表现出轻微或没有症状，并且处于隔离状态。出于谨慎考虑，密切接触者已被隔离。”
+前纽约时报记者亚历克斯·贝伦森（Alex Berenson）在他的 Substack 上报道说，特哈达没有被给予接受加强注射的知情同意，因为同意书是用韩文写的，而特哈达不会韩文。
 
-根据哈利斯科州卫生部门的说法，全体船员在 12 月 19 日出发前，接受了 COVID-19 检测，仅发现了一个阳性病例。
+在他的社交媒体上，特哈达开玩笑说 Omicron 可以“用你的鼻涕袭击[他] ”，然后继续说，“我所要做的就是用我看不懂的语言填写这张表格。翻译软件告诉我，我现在属于防弹少年团。”
 
-“由于当局在最后一刻通知客人不得上岸，这艘船启航，将在两天内按计划返回圣地亚哥，”荷美在提供给 KNSD-TV 的一份声明中也表示。 “客人们得到了通知，并继续享受船上的活动。”
+贝伦森还指出，目前还没有关于混合两种不同类型疫苗接种效果的临床试验。
 
-荷美的网站上说，顾客和员工必须完全接种疫苗，并提供 COVID-19 阴性测试才能登船。游轮公司还规定，客人和工作人员必须在船上戴口罩。
+对COVID-19疫苗接种进行的研究表明，那些快速连续接种疫苗的人更有可能出现心脏并发症，例如心肌炎和心包炎。
 
-据游轮运营商在给《大纪元时报》的一份声明中称，在那之前几天，皇家加勒比的海洋奥德赛号也未能在加勒比海的两个地点下船。
+到目前为止，《纽约时报》没有提到特哈达在他死亡前几个小时接受了加强针注射。对此，该报前雇员贝伦森表示，他希望特哈达的死最终能“唤醒纽约时报”。
 
-“皇家加勒比国际的海洋奥德赛号，将不会按计划访问库拉索岛或阿鲁巴岛，”该邮轮公司告诉《大纪元时报》。 “鉴于目的地社区以及船员和客人在船上检测呈阳性的趋势——55 名船员和客人，占船上人员的1.1%。”
+发表于美国动物医院协会（ AAHA） 的研究表明，mRNA 疫苗会增加患者的炎症指标。在特哈达接受他的莫德纳加强针之前，疾病预防与控制中心( CDC )宣布 80% 的中共病毒 Omicron “变异”病例是在“完全接种疫苗”的个体中发现的。
 
-“邮轮航行时，船上 95% 的人都接种了疫苗。”
+47% 的 Omicron 病例是在那些只接受第一次疫苗接种的人身上发现的，而 33% 的病例是在接种两剂疫苗和已经接种加强针的人身上发现的。
 
-目前尚不清楚 Omicron 变体是否引发了两艘船中的任何一艘的爆发。美国CDC估计，截至上周，Omicron 占所有 COVID-19 病例的 73%。
+原文链接：[https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
 
-与此同时，最近的研究表明，新的 CCP 病毒株引起的症状较轻，导致全球住院人数少得多。在美国——德克萨斯州休斯顿，只有一例死亡与这种新毒株有关。
-
-**参考资料：**[theepochtimes][Fully Vaccinated Holland America Cruise Ship Turned Away After COVID-19 Positive Tests Reported](https://www.theepochtimes.com/fully-vaccinated-holland-america-cruise-ship-turned-away-after-covid-19-tests-reported_4177806.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-27)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 

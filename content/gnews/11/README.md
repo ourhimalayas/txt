@@ -2,48 +2,63 @@
 ---
 
 
-## 美国航空公司因Omicron再度取消800个航班
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1796449/)
+## 共产党需要张高丽，彭帅消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
 
-作者：纽约香草山农场 – 四季
+[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+**郭文贵
+Miles Guo**
 
+彭帅这个事情
+Sobre este asunto de Peng Shuai
 
+彭帅是一定要被消失的
+Peng Shuai seguramente será desaparecida
 
+一定会
+De seguro
 
+什么精神病啦, 自杀啦
+Que si enfermedad mental, suicidio
 
-据[新闻极限网站](https://www.newsmax.com/finance/streettalk/airline-industry-omicron/2021/12/27/id/1050048/)12月27日报道，美国航空公司在继圣诞节假期周末取消了数千航班后，周一又取消了约800个航班。
+出车祸啦, 跳墙死啦
+Accidente automovilístico, saltó de la pared y murió
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-20.jpg)（© Dreamstime)
+躲猫猫死啦, 一定要被死
+Murió jugando al escondite, de seguro será matado
 
-航班追踪网站FlightAware.com上的统计显示，截至周一凌晨，共有近740个美国境内以及进入或离开美国的航班被取消。
+然后张高丽就悄无声息
+Y Zhang Gaoli silenciosamente
 
-随着全美各地Omicron感染率的上升，航空公司被迫取消航班，飞行员和乘务员也需要隔离。这一些措施致使旅客不得不寻求其他的旅行方式。
+哪一天
+Un día
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+当党需要的时候也会让他消失
+Cuando el Partido necesita, también será desaparecido
 
-编辑/校对/发稿：小鹿
+就这结局
+Así es el final
 
+* * *
 
+日期：12/24/2021
+原视频标题：共产党需要张高丽，彭帅消失
+El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
+原视频日期：12/23/2021
+原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
+任务编号：KC369（3320）
+视频时间段：0:00-0:29
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,25 +2,26 @@
 ---
 
 
-## 加拿大魁省大量医护人员因染疫而被隔离
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796308/)
+## 大战在即？日中将开通热线
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796385/)
 
-原文采编：UCool优酷             翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image02-2.jpg)
-[图片来源](https://www.meteomedia.com/ca/nouvelles/article/covid-19-heres-whats-happened-so-far-may-2020-coronavirus-closures-quarantine-self-isolation)
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-105.jpg)[图片来源](https://gendai.ismedia.jp/articles/-/73326)
+12月27日下午，日本防卫大臣岸信夫与中共国防部长魏凤和举行了电话会谈，双方同意争取在未来一年内将“日中热线”投入使用，以避免意外冲突。
 
-据加拿大法语媒体[魁北克新闻]12月26日报道，魁省大部分医院的急诊室在这个圣诞节期间似乎并没有预计的繁忙，但鉴于近期大量医护人员感染了“奥密克戎”病毒，防疫形势仍然异常严峻。
+这次会议持续了大约两个小时，是在中共国实施允许海警船使用武器的《海警法》后，日本于2月提出的会谈要求。
 
-报道称，目前在大多数魁省医院的急诊室里，情况不容乐观。这并非由于去急诊室的患者仍未达到极限，而是因为医院的护理和医务人员中有很多人感染了“新冠病毒”。
+会上，防卫大臣岸信夫对《海警法》以及中共军队在尖阁群岛周围水域的活动深表担忧，他表明反对中共基于武力改变现状的单方面企图，强烈要求中共保持克制。
 
-据悉，在该省的大部分医院中，许多科室有近20%的医生和护士都处于因感染该病毒而被隔离状态。并且该情况在不断加剧，每天都会有更多的医生和护士因此请假离职。为此，医院要求当局缩短疫情隔离期限，以使这些卫生工作者能够更快地返回工作岗位。
+还提到台湾局势，称“台湾的和平与稳定对日本的安全和国际社会的稳定极为重要”。 对此，魏凤和阐述了中共立场，坚持认为，中共将坚决捍卫对尖阁群岛的领土主张，双方应共同管理风险，防止矛盾升级。
 
-校对编辑：硫酸羟氯喹64
+同时，双同意在日中防务部门之间开通“热线”，以避免发生意外冲突，未来一年中将投入使用。
 
-发稿：苦尽甜来 (文來）
+[信息来源](https://news.yahoo.co.jp/articles/f8af0a47d68ca6ec7f3f6262de13f12037efba50)
 
-[原文链接](https://www.journaldequebec.com/2021/12/26/trop-de-travailleurs-de-la-sante-en-isolement-a-cause-de-la-covid-1)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

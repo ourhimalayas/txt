@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|文贵先生揭露大陆及港澳台明星内幕
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796535/)
+## 加拿大中共病毒感染确诊总数突破200万
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796680/)
 
-配音：香草山美食部 – 玫瑰园
+采编/翻译：文莱          校对编辑：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-10-edited.jpg)图片来源：CTV
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生在12月25日圣诞大直播中爆料，王力宏在台湾黑帮扶植下出道，由于在大陆曾拒绝和彭丽媛 演出，得罪了“国母”。后来此事经曾庆淮摆平。文贵先生爆料，中国的演艺明星都是曾家的势力。处理王力宏、 吴亦凡等曾家控制的明星，其目的在于灭掉曾庆红和曾庆淮。
+据加拿大【CTV新闻】12月27日报道，自“新冠病毒”疫情爆发以来，加拿大现已有超过200万该病毒感染确诊者。
 
-对于中共国、港澳台的明星现象，文贵先生说，明星台前有多风光，背后就有多卑微。文贵先生爆料，王菲在盘古吃了100万一盒的鱼子酱后，同样是吸毒淫乱。无论港澳台明星还是大陆明星，都在黑帮控制之下，最终他们都不会得到善终。文贵先生指出，新中国联邦人不要羡慕任何明星，未来的新中国联邦人不论是唱歌、还是拍电影或做其他任何艺术创作，艺术创作只做自己，而不受任何人摆布。
+据悉，虽然一些省份和地区因假期没有更新相关统计数据，但由于当日安大略省已连续第四天报告了近万病例，加之魁北克省平均每天超过8000例，最终使得该国突破了200万感染者记录。
 
-文字版原文：[文贵先生揭露大陆及港澳台明星内幕](https://gnews.org/zh-hans/1792527/)
+报道称，由于圣诞节期间的病毒测试延迟以及大量的社交聚会，将会使本已脆弱不堪的医疗系统更加窘迫，因此超负荷的医疗压力也意味着加拿大疫情的真实状况可能需要一段时间才会逐渐显现。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+本台编辑对此评论，中共发起的病毒超限战袭击已使加拿大千疮百孔，民不聊生。尽管加拿大“新冠病毒”疫苗的接种率几乎世界最高，但疫情不仅未被有效遏制，反而是愈发严重，并使得当局以此为借口，不断实施更加严格的封锁政策和极端的疫苗强制接种规定。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+发稿：硫酸羟氯喹64
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [Canada surpasses 2 million COVID-19 cases | CTV News](https://www.ctvnews.ca/health/coronavirus/canada-surpasses-2-million-covid-19-cases-since-start-of-pandemic-1.5720515)
 
  
 

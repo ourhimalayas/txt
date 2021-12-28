@@ -2,119 +2,25 @@
 ---
 
 
-## 张高丽玩处女 家族一定会受审判
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796590/)
+## 加拿大斥巨资购买新型口服抗病毒药
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796698/)
 
-[https://gtv.org/video/id=61c99fe343ccb726a08c24fc](https://gtv.org/video/id=61c99fe343ccb726a08c24fc)
+采编：文莱          编译撰稿：Quitman
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-1-edited.png)图片来源：NP
 
-张高丽这件事情
-El asunto de Zhang Gaoli
 
-他的个人
-Esta persona
+据加拿大【国家邮报】12月23日报道，在美国【默克药厂】此前宣布其新研制的口服药【莫纳皮拉韦】可大幅降低“新冠病毒”患者的重症住院或死亡风险后，特鲁多政府已斥巨资购买了该药。
 
-还有整个家族
-Y toda su familia
+据悉，加拿大政府本月早些时候从【默克公司】购买了约4.5亿加元，但尚未获得卫生部门批准的【莫纳皮拉韦】抗病毒药。并同时与该公司达成协议，如果再度购买同量药物，便可获其授权在安大略省生产该口服药。
 
-最终一定会被审判的
-Al final será sentenciada
-
-而且张高丽玩处女
-Además, Zhang Gaoli juega la virginidad
-
-我告诉你一个战友给我发的信息
-Te cuento un mensaje que me envió un compañero luchador
-
-发出来当年他的女儿13岁的时候
-Mandó diciendo que su hija en aquel momento cuando tenía 13 años
-
-还差几天13岁
-Faltaba unos días para los 13
-
-就是认识张高丽
-Conoció a Zhang Gaoli
-
-这个人是广东的一个朋友
-Esta persona es un amigo de Guangdong
-
-广东惠州的
-De Guangzhou Huizhou
-
-说当年他就通过了张高丽的秘书
-Dice que en ese año él conoció a través del secretario de Zhang Gaoli
-
-开饭店的秘书
-Un secretario que tiene un hotel
-就贫苦人家直接认识了张高丽
-Una gente humilde conoció directamente a Zhang Gaoli
-
-就（因为）13岁女儿
-Sólo (porque) la hija de 13 años
-
-进了他办公室一个小时
-Entró a su oficina una hora
-
-女儿出来给告诉她妈说
-Cuando la hija salió le dijo a su mamá
-
-他把我给强奸了
-“Él me violó”
-
-她妈都不相信她
-La mama no creía en ella
-
-后来她妈妈就觉得非常的不可思议
-Luego la mama sentía muchísimo asombro
-
-在车上让女儿说
-En el carro le dijo a su hija
-
-你有什么证据
-“Qué evidencias tienes”
-
-她说你看我现在还有好多血
-Ella le dijo “aún tengo mucha sangre”
-
-那真不是马蕊的那个1米厚的处女膜
-Eso si no es el himen de Ma Rui de 1 metro de grosor
-
-她是真是很多很多处女血出来了
-Ella de verdad sangró muchísimo por perder la virginidad
-
-最后她妈回去以后商量决定要找他（张高丽）说法
-Finalmente, después de que su madre regresó, negoció y decidió buscarlo (Zhang Gaoli)
-
-最后是他秘书出面协调
-Al final su secretario salió a coordinar
-
-给家里边批了一大块地搞房地产
-Le dió un gran terreno a la familia para hacer bienes raíces
-
-家里就闭嘴了
-Y la familia se quedó callado
+报道指出，【莫纳皮拉韦】的临床实验效果并不显著。虽然该药已被美国批准用于“新冠病毒”感染患者以及高感染风险的成年人。但研究表明，孕妇服用该药会极大增加婴儿出生缺陷的风险。对此，法国已取消了该药的订单，印度也停止了对其仿制药的试验。有关专家更不建议加拿大政府购买该药。
 
 * * *
 
-日期：12/24/2021
-原视频标题：张高丽玩处女 家族一定会受审判
-Zhang Gaoli juega la virginidad, la familia será sentenciada
-原视频日期：12/23/2021
-原视频网址：[https://gettr.com/post/pkfjhsbccb](https://gettr.com/post/pkfjhsbccb)
-任务编号：KC370（3319）
-视频时间段：0:00-01:13
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+校对编辑，发稿：硫酸羟氯喹64
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+參考链接：https://nationalpost.com/health/new-covid-drug-canada-is-spending-up-to-450m-on-may-be-ineffective-some-experts-warn
 
  
 
