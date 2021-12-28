@@ -2,35 +2,31 @@
 ---
 
 
-## 纽约时报的49岁编辑在接种莫德纳加强针一天后去世
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1796093/)
+## 七哥谈黑暗势力（2021-12-24摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1796096/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-17.jpg)图片来自网络
-据《国家脉动》作者 凯·斯迈思（Kay Smythe）2021 年 12 月 26 日报道
+文编：Hima
+听写：叮叮
+视频：七哥
 
-《纽约时报》亚洲区副主编卡洛斯·特哈达 (Carlos Tejada) 去世，享年 49 岁。他在社交媒体上发布自己接种了莫德纳加强疫苗后不到一天就心脏病发作了。
+来源：郭先生2021-12-24直播11:08:01摘录
 
-特哈达参与了部分该报的中共病毒报道，已婚并育有两个孩子。在《纽约时报》工作之前，他曾在《华尔街日报》工作过近五年。
+你怎么能想象一个一年多全人类的政府喷了226亿万美元完全是假的，法币涨了226万亿美元这是官方说的，事实上是260万亿美元。你怎么样让人类75亿人消化掉这260万亿美元？是全人类的GDP的和了已经。怎么能消化掉呢？别相信我们说的，相信你Isobel说的，Isobel为啥不问问这些政府你们这二百多万亿美元是哪儿来的？她不会说的，她就是要利用这些所谓的HBO 和VICE这些没脑子的所谓的粉丝们，让他们这些人成为VICE、 HBO的工具维护共产党的独裁，维护独裁政府黑暗势力的存在。看他的股东里面有几个不是黑暗势力的？所有VICE和HBO的股东加在一起的财富顶好几十个落后国家总额财富，所有VICE、HBO股东加在一起可以改变人类的经济和政治和命运，可以决定美国谁是总统，一点儿不夸张。迪斯尼、BLACKSTONE、TPG、索罗斯是吧？阿Ray，如果这些人要改变不了美国,他绝对任何人—可以让任何人当总统，可以让小新当美国总统都可以。以这样的势力来黑掉咱们爆料革命你觉得爆料革命还重不重要呢？你觉得习近平以一国之力，Steve Wynn、Elliott Broidy、Nickie Davis、DOJ、Higginbotham、Schwarzman、基辛格是吧？川普总统、Bruno Wu、钥匙杨、Jack马、前FBI官员、苹果、亚马逊，想办法黑咱灭咱，你觉得咱爆料革命真的不重要吗？咱就是那个路大脑骗、蛇妖闫、九指妖说的我们根本就三百多个人。你记得路大脑骗离开以后说的第一句话：他根本没人看，加一起GTV就三百多个人。这话一说就像那个蛇妖闫一样，把郭文贵踢出爆料革命这艘船，我说这死定了。就这一下把他多年的在爆料革命积累的那个内涵全low掉。如果我们就三百多人在这块儿看爆料革命、参加爆了革命，西枫你觉得共产党会重视我们吗？他能撒出这样的谎出来。
 
-根据特哈达自己的 Instagram 页面，他很高兴在韩国首尔接种 mRNA/LNP 加强针。特哈达最初于 2021 年 7 月接种了强生 DNA/AAV COVID-19疫苗。在 12 月 17 日接种莫德纳加强针后不到一天，特哈达死于心脏病发作。第二天早上，他的妻子诺拉（ Nora ）通过特哈达的社交媒体分享了这一消息。《纽约时报》于 12 月 22 日[证实](https://www.nytimes.com/2021/12/22/business/media/carlos-tejada-dead.html)了他的死讯。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-前纽约时报记者亚历克斯·贝伦森（Alex Berenson）在他的 Substack 上报道说，特哈达没有被给予接受加强注射的知情同意，因为同意书是用韩文写的，而特哈达不会韩文。
+**关注我们**
 
-在他的社交媒体上，特哈达开玩笑说 Omicron 可以“用你的鼻涕袭击[他] ”，然后继续说，“我所要做的就是用我看不懂的语言填写这张表格。翻译软件告诉我，我现在属于防弹少年团。”
+Discord 账号
 
-贝伦森还指出，目前还没有关于混合两种不同类型疫苗接种效果的临床试验。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-对COVID-19疫苗接种进行的研究表明，那些快速连续接种疫苗的人更有可能出现心脏并发症，例如心肌炎和心包炎。
+Gettr 账号
 
-到目前为止，《纽约时报》没有提到特哈达在他死亡前几个小时接受了加强针注射。对此，该报前雇员贝伦森表示，他希望特哈达的死最终能“唤醒纽约时报”。
-
-发表于美国动物医院协会（ AAHA） 的研究表明，mRNA 疫苗会增加患者的炎症指标。在特哈达接受他的莫德纳加强针之前，疾病预防与控制中心( CDC )宣布 80% 的中共病毒 Omicron “变异”病例是在“完全接种疫苗”的个体中发现的。
-
-47% 的 Omicron 病例是在那些只接受第一次疫苗接种的人身上发现的，而 33% 的病例是在接种两剂疫苗和已经接种加强针的人身上发现的。
-
-原文链接：[https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
