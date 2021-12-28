@@ -2,24 +2,37 @@
 ---
 
 
-## 施压式管理，倒逼西安市出台极为严厉封城措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796386/)
+## 49岁媒体副主编接种加强针一天后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796520/)
 
-撰稿：东京樱花团丨Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1527.png)
-据《看中国》网站2021年12月27日报道，继一个星期之前中纪委追责防疫失职、惩处26名西安市的官员后，西安市政府昨日宣布，从星期一（27日）零时起封城，12时开始启动新一轮核酸筛查，最大限度地减少人员流动，是自武汉封城以来极为严厉的防控措施。
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月26日，据国家脉搏网站报道，美国一媒体亚洲区副主编卡洛斯·特哈达，在接种了莫德纳疫苗加强针不到24小时的时间里，就因心脏病突然发作而不幸去逝。
 
-封城措施包括，所有居民除按要求参加核酸采样外，均不出户、不聚集；防范区居民即使完成新一轮核酸采样并显示阴性，仍执行原外出采购规定，错时发放出门凭证；各大专院校从严加强在校学生管理，无特殊需要，一律不出宿舍；所有超市、便利店、农贸市场、医疗机构、物流寄递场所严格执行扫码、限流、消杀措施，所有工作人员一律佩戴N95口罩和医用手套等。
+公开信息显示，特哈达此前还曾担任另一美国媒体的中共国区新闻编辑，是一位有影响的知名记者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-4.jpg)
+在今年的7月5日，特哈达曾公开表示，自己刚刚接种了强生公司的腺病毒载体DNA疫苗。而在本月17日，特哈达发布了他人生中的最后一条Ins更新，称自己已经接种了莫德纳mRNA疫苗加强针，并将其与此前的强生疫苗进行了混打。但就在接种后的24小时内，特哈达就因突发心脏病被紧急送进了首尔的一家医院，后因抢救无效去世，年仅49岁。
 
-据悉，陕西省昨天通告再增逾157例中共病毒本土确诊，累计本土确诊病例499例，大多发生在西安市。
+据悉，特哈达所供职的媒体也对他的突然离世及生平事迹进行了详细的报道。但是，对他刚刚接种过中共病毒疫苗的消息却只字未提。
 
-毫无科学根据的决策，简单粗俗的阀门加压式管理 ，阀门漏了搭上扳子拧一拧，再漏了，再搭上扳子拧一拧，直到逼爆了再换个新办法。在中共国人们最喜欢的工作是当“检察官”，工作不需要多努力，到哪里大家都好招好待，弄不好还有点油水。于是一年到头最多的是各种各样的检查，反正有了问题，加加压就行，百试百灵，屡试不爽。千招会不如一招绝，共产党自上而下的这种破“钳工”式管理水平——“不行就加加压”，在祖国大地畅通无阻。加的是别人的压力，卸的是自己的压力。这种推卸责任式的管理水平却要风声水起，为世界经济把脉，为大国开药方，引领全世界构建人类命运共同体。这是一个笑话？这是一个悲剧！
+参考链接：
+1. [49岁媒体副主编接种加强针一天后去世](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+2. [49岁媒体副主编接种加强针一天后去世](https://cn.nytimes.com/obits/20211223/carlos-tejada-dead/)
+3. [49岁媒体副主编接种加强针一天后去世](https://www.timednews.com/article/2021/12/26/12685.html)
 
-新闻来源：[**西安市遭中纪委惩处 今日出台极为严厉封城措施**](https://m.secretchina.com/news/gb/2021/12/27/993455.html)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

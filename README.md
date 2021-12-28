@@ -15,134 +15,134 @@
 
 ---
 
-### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/1/README.md)
+### [拜登签署《国防授权法》 涉及应对中共国威胁](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [专家警告辉瑞口服抗中共病毒药对患者有致死风险](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/25/2021 文贵盖特：欧洲人认为让中共自己倒台更好，现在是美、欧、俄、中“四国演义”的局面](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [广岛县发生中共病毒Omicron变种社区感染，感染者已打2针疫苗](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/5/README.md)
+ ` G-时新闻`
+
+### [美国麦特公司与中共合推“疫苗护照”计划](/content/gnews/6/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/2/README.md)
+### [特鲁多斥中共挑拨分化并外交抵制冬奥会](/content/gnews/7/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [【粤语配音】2021年12月27日：西方联合采用“温水煮青蛙”方式消灭中共](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/3/README.md)
+### [特鲁多的大规模监控措施遭猛烈抨击](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大奥密克戎疫情持续恶化](/content/gnews/4/README.md)
+### [加拿大奥密克戎疫情持续恶化](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大斥巨资购买新型口服抗病毒药](/content/gnews/5/README.md)
+### [加拿大斥巨资购买新型口服抗病毒药](/content/gnews/11/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/6/README.md)
+### [制造恐惧——专家和政客应对新冠的法宝](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大中共病毒感染确诊总数突破200万](/content/gnews/7/README.md)
+### [加拿大中共病毒感染确诊总数突破200万](/content/gnews/13/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [串珠502:习性无能没有私生子，有一女儿化名李木子](/content/gnews/8/README.md)
+### [串珠502:习性无能没有私生子，有一女儿化名李木子](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/9/README.md)
+### [有声|一艘全员接种的美海军战斗舰爆发冠状病毒](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/10/README.md)
+### [串珠501:华大基因是发动超限生物、基因战争的平台](/content/gnews/16/README.md)
  ` 郭爆料串珠`
 
-### [文贵先生盖特精要2021/12/27](/content/gnews/11/README.md)
+### [文贵先生盖特精要2021/12/27](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [张高丽玩处女 家族一定会受审判](/content/gnews/12/README.md)
+### [张高丽玩处女 家族一定会受审判](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党需要张高丽，彭帅消失](/content/gnews/13/README.md)
+### [共产党需要张高丽，彭帅消失](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/14/README.md)
+### [有声|文贵先生揭露大陆及港澳台明星内幕](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [日本不打算派高级官员参加北京奥运会](/content/gnews/15/README.md)
+### [49岁媒体副主编接种加强针一天后去世](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [一周内至少四名足球运动员心脏猝死](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [盖特在德国蓬勃发展](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [日本不打算派高级官员参加北京奥运会](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|德国新外长将对中共采取强硬立场](/content/gnews/16/README.md)
+### [有声|德国新外长将对中共采取强硬立场](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [英国政府打算逐门逐户登门打疫苗](/content/gnews/17/README.md)
+### [英国政府打算逐门逐户登门打疫苗](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/18/README.md)
+### [第207期玫瑰看新闻-新中国联邦新闻](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第207期玫瑰看新闻-币圈新闻](/content/gnews/19/README.md)
+### [第207期玫瑰看新闻-币圈新闻](/content/gnews/29/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国航空公司因Omicron再度取消800个航班](/content/gnews/20/README.md)
+### [美国航空公司因Omicron再度取消800个航班](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/21/README.md)
+### [施压式管理，倒逼西安市出台极为严厉封城措施](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大战在即？日中将开通热线](/content/gnews/22/README.md)
+### [大战在即？日中将开通热线](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|HBO Vice炮制虚假采访背后的真相](/content/gnews/23/README.md)
+### [有声|HBO Vice炮制虚假采访背后的真相](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [联盟工作汇报文字版2021.12.26](/content/gnews/24/README.md)
+### [联盟工作汇报文字版2021.12.26](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|【信仰之声】拔掉你生命中的刺 ——浅谈圣经中的“荆棘”](/content/gnews/25/README.md)
+### [有声|【信仰之声】拔掉你生命中的刺 ——浅谈圣经中的“荆棘”](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [美国欲擒故纵送利好，中共残喘疯狂助联邦](/content/gnews/26/README.md)
+### [美国欲擒故纵送利好，中共残喘疯狂助联邦](/content/gnews/36/README.md)
  ` YALUN 亚伦`
 
-### [有声|皇家加勒比游轮二次爆发疫情](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [反疫苗者坎迪斯欧文斯说，唐纳德特朗普&#8221;太老&#8221;而无法使用互联网并阅读网上反疫苗研究](/content/gnews/28/README.md)
- ` MG FARM`
-
-### [加拿大魁省大量医护人员因染疫而被隔离](/content/gnews/29/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [遭受打压后中共国对企业赴海外上市的规定更加严格](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大安省“奥密克戎”疫情持续恶化](/content/gnews/31/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/32/README.md)
+### [从宋庄强制腾退，看北京政府没落的经济政策](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [纽约时报的49岁编辑在接种莫德纳加强针一天后去世](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [水龙吟·别俄罗斯喀秋莎农场](/content/gnews/34/README.md)
+### [水龙吟·别俄罗斯喀秋莎农场](/content/gnews/38/README.md)
  ` HimalayaRussia`
 
-### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/35/README.md)
+### [加拿大总理：中共利用经济利益挑拨民主国家内斗](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2021年12月27日早](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [中共可能在隐瞒中共病毒又一新变种以确保冬奥举行](/content/gnews/37/README.md)
+### [中共可能在隐瞒中共病毒又一新变种以确保冬奥举行](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧盟将在270天后取消未打加强针者的中共病毒健康护照](/content/gnews/38/README.md)
+### [欧盟将在270天后取消未打加强针者的中共病毒健康护照](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [污蔑GTV被罚款5亿美元—Vice采访郭文贵先生始末系列之三](/content/gnews/39/README.md)
- ` 秘密翻译组-原创组`
-
-### [12/27/2021国际财经快讯：美国假日零售额增长8.5%；全球股票基金出现大量资金涌入](/content/gnews/40/README.md)
+### [12/27/2021国际财经快讯：美国假日零售额增长8.5%；全球股票基金出现大量资金涌入](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [因人员短缺 纽约州修改医护工作者隔离政策](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [战斗室：中共走狗查尔斯•利伯被联邦陪审团定罪](/content/gnews/42/README.md)
+### [战斗室：中共走狗查尔斯•利伯被联邦陪审团定罪](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [东京发现首例奥密克戎变体确诊病例](/content/gnews/43/README.md)
- ` GTV新闻访谈`
 
 ### [盖特迎来第三位中奖者，它正在让梦想成真](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

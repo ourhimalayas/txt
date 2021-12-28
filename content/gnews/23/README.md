@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|HBO Vice炮制虚假采访背后的真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796381/)
+## 盖特在德国蓬勃发展
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796518/)
 
-配音：香草山美食部 – 玫瑰园
+作者：纽约香草山 – DM
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据德国媒体12月26号报道，新的言论自由平台盖特，迎来了自7月4日启动以来最成功的一天，德国的新增用户数量甚至超过了美国和巴西的市场。
 
+该报道表示，盖特旨在打破Twitter 、YouTube和Facebook等审查平台的霸权，并保证互联网上真正的言论自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-2.jpg)
+针对已遭受的大规模审查，该媒体明确表示正在为盖特宣传，并取得了巨大的成功。仅在周二，德国加入该平台的人数，就超过了世界上任何其他国家。现在，盖特在德国拥有超过 25万用户，在全球拥有超过 300 万用户。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月24日，郭文贵先生在直播中继续揭露HBO Vice炮制虚假采访的险恶用意。HBO与中共里应外合，在冬奥会之前大肆用虚假报道，通过歪曲抹黑新中国联邦和爆料革命，为进入中共国市场，向中共交纳投名状。
+德国联邦宪法保护办公室前负责人Hans-Georg Maaßen也加入了该平台，并写信感谢盖特总裁杰森.米勒。他在信中指出，言论自由权是所有基本权利中最重要的一项。而且，从现在开始他将推荐使用盖特平台，主要保护那些不同意政府、反对媒体统治人们话语权的人；人们需要与各种形式的社会主义作斗争，而所有人应该有想要的言论自由。
 
-HBO作为唯一一个没有广告的平台，公开估值2000亿美元，实际价值4000亿美元，背后巨大的资本全部是靠欺骗，靠出卖良知，出卖政治得来的。HBO的股东TPG、索罗斯、黑石，以及中共特务单伟健，是中共在海外最高级别的潜伏势力。
+参考链接：[盖特在德国蓬勃发展](https://reitschuster.de/post/reitschuster-effekt-gettr-boomt-in-deutschland/)
 
-中共联合HBO的诋毁行动经过周密策划，即使郭文贵先生拒绝采访，HBO还是会制造其它污蔑爆料革命的视频或报道。郭先生正面出击，把自己作为“诱饵”，让中共的诡计充分暴露。HBO Vice的采访长达几个小时，终片却只采用三分钟，说明因为爆料革命为真不破，郭先生的回答无懈可击，让HBO的构陷无法得逞。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-HBO虚假报道事件会让西方更清楚地认识到，共产党是如何渗透和操纵西方媒体，进行歪曲事实和虚假宣传。HBO为中共洗地，污蔑爆料革命和海外华人，最终一定会成为全世界的敌人，受到法律的审判。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-文字版原文：[HBO Vice炮制虚假采访背后的真相](https://gnews.org/zh-hans/1792526/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

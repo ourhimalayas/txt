@@ -2,27 +2,25 @@
 ---
 
 
-## 加拿大中共病毒感染确诊总数突破200万
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796680/)
+## 特鲁多斥中共挑拨分化并外交抵制冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1796726/)
 
-采编/翻译：文莱          校对编辑：硫酸羟氯喹64
+采编/编译撰稿：文莱      校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-10-edited.jpg)图片来源：CTV
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-11-edited-scaled.jpg)图片来源：TNH
 
 
-据加拿大【CTV新闻】12月27日报道，自“新冠病毒”疫情爆发以来，加拿大现已有超过200万该病毒感染确诊者。
+据【国家邮报】12月25日报道，加拿大总理特鲁多当天宣称，西方民主国家应该建立一个反抗中共国的联盟，以防止中共当局再次利用各种经济利益诱惑，对西方各国政府进行挑拨离间及分化瓦解。
 
-据悉，虽然一些省份和地区因假期没有更新相关统计数据，但由于当日安大略省已连续第四天报告了近万病例，加之魁北克省平均每天超过8000例，最终使得该国突破了200万感染者记录。
+特鲁多对媒体表示，加拿大与西方民主国家一直都在进行着公平的商业交易，但中共则利用各种非法利益手段，阴险地将这些民主国家玩弄于股掌之间。因此，加拿大与西方盟国应该共同合作以对抗中共政权的威胁。
 
-报道称，由于圣诞节期间的病毒测试延迟以及大量的社交聚会，将会使本已脆弱不堪的医疗系统更加窘迫，因此超负荷的医疗压力也意味着加拿大疫情的真实状况可能需要一段时间才会逐渐显现。
-
-本台编辑对此评论，中共发起的病毒超限战袭击已使加拿大千疮百孔，民不聊生。尽管加拿大“新冠病毒”疫苗的接种率几乎世界最高，但疫情不仅未被有效遏制，反而是愈发严重，并使得当局以此为借口，不断实施更加严格的封锁政策和极端的疫苗强制接种规定。
+报道称，自2018年华为的孟晚舟因美国引渡令被拘留以来，加中关系就陷入僵局。尽管目前中共当局暂停了其卑劣的人质外交政策。但面对该政权日益膨胀的野心，加拿大必须采取有效反抗措施，并与盟国一起联合外交抵制北京冬奥会。
 
 * * *
 
 发稿：硫酸羟氯喹64
 
-原文链接： [Canada surpasses 2 million COVID-19 cases | CTV News](https://www.ctvnews.ca/health/coronavirus/canada-surpasses-2-million-covid-19-cases-since-start-of-pandemic-1.5720515)
+参考资料： [China ‘playing’ Western countries against one another, says Trudeau | National Post](https://nationalpost.com/news/politics/western-states-need-united-front-against-divisive-china-trudeau)
 
  
 

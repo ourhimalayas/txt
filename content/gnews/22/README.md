@@ -2,26 +2,32 @@
 ---
 
 
-## 大战在即？日中将开通热线
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1796385/)
+## 一周内至少四名足球运动员心脏猝死
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1796519/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-105.jpg)[图片来源](https://gendai.ismedia.jp/articles/-/73326)
-12月27日下午，日本防卫大臣岸信夫与中共国防部长魏凤和举行了电话会谈，双方同意争取在未来一年内将“日中热线”投入使用，以避免意外冲突。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒报道，12月25日，现年30岁的阿尔及利亚足球运动员索费恩·卢卡尔在当天一场比赛中，突发心脏病，经抢救无效死亡。这是一周内至少第四起足球运动员死于心脏骤停。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-3.jpg)
+就在23日，克罗地亚23岁的球员马林·卡西奇在训练时突发心脏病并陷入昏迷，送往医院后不治。22日，阿曼国脚、现年29岁的穆克哈勒德·阿尔·拉卡迪在赛前热身时突然倒地，在送往医院数小时后离世。同一天，埃及的艾哈迈德·阿明在刚结束训练后，倒在了更衣室。
 
-这次会议持续了大约两个小时，是在中共国实施允许海警船使用武器的《海警法》后，日本于2月提出的会谈要求。
+据悉，今年以来，至少22名足球运动员死于心脏骤停，在训练或者比赛中不适、晕倒的情况更加难以计数。很多人呼吁对此类事件进行调查。前英格兰球星马修·勒蒂希尔表示，在他的职业生涯里从未见过有心脏问题的球员，他相信中共病毒疫苗是导致这一可怕趋势的原因。目前几乎所有的职业足球俱乐部都已实施了疫苗强制令。不难想象，这样的悲剧会越来越频繁地出现。
 
-会上，防卫大臣岸信夫对《海警法》以及中共军队在尖阁群岛周围水域的活动深表担忧，他表明反对中共基于武力改变现状的单方面企图，强烈要求中共保持克制。
+参考链接：[一周内至少四名足球运动员心脏猝死](https://gnews.org/zh-hans/1792024/)
 
-还提到台湾局势，称“台湾的和平与稳定对日本的安全和国际社会的稳定极为重要”。 对此，魏凤和阐述了中共立场，坚持认为，中共将坚决捍卫对尖阁群岛的领土主张，双方应共同管理风险，防止矛盾升级。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-同时，双同意在日中防务部门之间开通“热线”，以避免发生意外冲突，未来一年中将投入使用。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-[信息来源](https://news.yahoo.co.jp/articles/f8af0a47d68ca6ec7f3f6262de13f12037efba50)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

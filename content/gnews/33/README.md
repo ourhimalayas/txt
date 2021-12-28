@@ -2,35 +2,39 @@
 ---
 
 
-## 纽约时报的49岁编辑在接种莫德纳加强针一天后去世
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1796093/)
+## 有声|HBO Vice炮制虚假采访背后的真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796381/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-17.jpg)图片来自网络
-据《国家脉动》作者 凯·斯迈思（Kay Smythe）2021 年 12 月 26 日报道
+配音：香草山美食部 – 玫瑰园
 
-《纽约时报》亚洲区副主编卡洛斯·特哈达 (Carlos Tejada) 去世，享年 49 岁。他在社交媒体上发布自己接种了莫德纳加强疫苗后不到一天就心脏病发作了。
 
-特哈达参与了部分该报的中共病毒报道，已婚并育有两个孩子。在《纽约时报》工作之前，他曾在《华尔街日报》工作过近五年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月24日，郭文贵先生在直播中继续揭露HBO Vice炮制虚假采访的险恶用意。HBO与中共里应外合，在冬奥会之前大肆用虚假报道，通过歪曲抹黑新中国联邦和爆料革命，为进入中共国市场，向中共交纳投名状。
 
-根据特哈达自己的 Instagram 页面，他很高兴在韩国首尔接种 mRNA/LNP 加强针。特哈达最初于 2021 年 7 月接种了强生 DNA/AAV COVID-19疫苗。在 12 月 17 日接种莫德纳加强针后不到一天，特哈达死于心脏病发作。第二天早上，他的妻子诺拉（ Nora ）通过特哈达的社交媒体分享了这一消息。《纽约时报》于 12 月 22 日[证实](https://www.nytimes.com/2021/12/22/business/media/carlos-tejada-dead.html)了他的死讯。
+HBO作为唯一一个没有广告的平台，公开估值2000亿美元，实际价值4000亿美元，背后巨大的资本全部是靠欺骗，靠出卖良知，出卖政治得来的。HBO的股东TPG、索罗斯、黑石，以及中共特务单伟健，是中共在海外最高级别的潜伏势力。
 
-前纽约时报记者亚历克斯·贝伦森（Alex Berenson）在他的 Substack 上报道说，特哈达没有被给予接受加强注射的知情同意，因为同意书是用韩文写的，而特哈达不会韩文。
+中共联合HBO的诋毁行动经过周密策划，即使郭文贵先生拒绝采访，HBO还是会制造其它污蔑爆料革命的视频或报道。郭先生正面出击，把自己作为“诱饵”，让中共的诡计充分暴露。HBO Vice的采访长达几个小时，终片却只采用三分钟，说明因为爆料革命为真不破，郭先生的回答无懈可击，让HBO的构陷无法得逞。
 
-在他的社交媒体上，特哈达开玩笑说 Omicron 可以“用你的鼻涕袭击[他] ”，然后继续说，“我所要做的就是用我看不懂的语言填写这张表格。翻译软件告诉我，我现在属于防弹少年团。”
+HBO虚假报道事件会让西方更清楚地认识到，共产党是如何渗透和操纵西方媒体，进行歪曲事实和虚假宣传。HBO为中共洗地，污蔑爆料革命和海外华人，最终一定会成为全世界的敌人，受到法律的审判。
 
-贝伦森还指出，目前还没有关于混合两种不同类型疫苗接种效果的临床试验。
+文字版原文：[HBO Vice炮制虚假采访背后的真相](https://gnews.org/zh-hans/1792526/)
 
-对COVID-19疫苗接种进行的研究表明，那些快速连续接种疫苗的人更有可能出现心脏并发症，例如心肌炎和心包炎。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-到目前为止，《纽约时报》没有提到特哈达在他死亡前几个小时接受了加强针注射。对此，该报前雇员贝伦森表示，他希望特哈达的死最终能“唤醒纽约时报”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发表于美国动物医院协会（ AAHA） 的研究表明，mRNA 疫苗会增加患者的炎症指标。在特哈达接受他的莫德纳加强针之前，疾病预防与控制中心( CDC )宣布 80% 的中共病毒 Omicron “变异”病例是在“完全接种疫苗”的个体中发现的。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-47% 的 Omicron 病例是在那些只接受第一次疫苗接种的人身上发现的，而 33% 的病例是在接种两剂疫苗和已经接种加强针的人身上发现的。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-原文链接：[https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/](https://thenationalpulse.com/2021/12/26/ny-times-editor-49-dies-one-day-after-moderna-booster-shot/)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

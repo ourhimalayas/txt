@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/28/2021 1:30 AM (UTC)`
+
+12/27/2021 Miles Guo’s GETTR: The Europeans believe that it is better to let the CCP collapse by itself; the US, the EU, Russia, and the CCP are the four major powers in the world now, and the New Federal State of China shall strengthen its own economy and media platforms and let more fellow fighters join us so that the world will stand with us to take down the CCP together!<br/><br/>12/27/2021 文贵盖特：欧洲人认为让中共自己倒台更好；现在是美、欧、俄、中“四国演义”的局面，新中国联邦需要强大自己的经济和媒体，并让更多战友加入，让世界跟我们站在一起灭共！<br/>
+![img](https://media.gettr.com/group37/getter/2021/12/28/01/45cf0502-c825-19c2-d9bd-0a8e7b573740/out.jpg)
+
+---
+
 `@miles 12/27/2021 9:38 PM (UTC)`
 
 HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated interview with Mr. Miles Guo was deceptively edited into a less than 3-minute LIE. HBO-VICE’s vicious intention to slander and discredit Mr. Guo is clear. Here is the TRUTH.
@@ -153,13 +160,6 @@ Miles Guo is smart enough to film his entire interview and put it online to expo
 
 <br/>12月25号：尊敬的战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group12/getter/2021/12/25/13/d86e7b9f-895a-2864-a8c9-47fcf6299d31/out.jpg)
-
----
-
-`@miles 12/25/2021 1:30 PM (UTC)`
-
-泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临，他们即将进入完全的极权暴政。如果我死了或消失了，你知道它是从何而来。<br/><br/>Dr. Zelenko: The government now is desperate. The tyrants know that their end is coming and they're gonna go full totalitarian tyranny. If I die or disappear,  you know what the source of it is. <br/>
-![img](https://media.gettr.com/group28/getter/2021/12/25/13/2525f4eb-b9db-5000-4e86-af704aeb05e7/out.jpg)
 
 ---
 

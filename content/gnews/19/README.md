@@ -2,20 +2,63 @@
 ---
 
 
-## 第207期玫瑰看新闻-币圈新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1796483/)
+## 共产党需要张高丽，彭帅消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
 
-币圈新闻：
+[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
 
-1.11月28日Hcoin盘中震荡价格区间35.809美元至37.905美元
+**郭文贵
+Miles Guo**
 
-2.分析师发布BTC 价格预测 40 万美元考验交易者的神经
+彭帅这个事情
+Sobre este asunto de Peng Shuai
 
-3.Bitcoin Capital AG 在六个瑞士交易所推出两个加密 ETP
+彭帅是一定要被消失的
+Peng Shuai seguramente será desaparecida
 
-4.美联储鲍威尔：央行数字货币政策问题讨论文件将在未来几周发布
+一定会
+De seguro
 
-5.去中心化组织BadgerDAO确认被盗损失超1.2亿美元 6.12月2日币圈要闻一览
+什么精神病啦, 自杀啦
+Que si enfermedad mental, suicidio
+
+出车祸啦, 跳墙死啦
+Accidente automovilístico, saltó de la pared y murió
+
+躲猫猫死啦, 一定要被死
+Murió jugando al escondite, de seguro será matado
+
+然后张高丽就悄无声息
+Y Zhang Gaoli silenciosamente
+
+哪一天
+Un día
+
+当党需要的时候也会让他消失
+Cuando el Partido necesita, también será desaparecido
+
+就这结局
+Así es el final
+
+* * *
+
+日期：12/24/2021
+原视频标题：共产党需要张高丽，彭帅消失
+El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
+原视频日期：12/23/2021
+原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
+任务编号：KC369（3320）
+视频时间段：0:00-0:29
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

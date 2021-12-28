@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|皇家加勒比游轮二次爆发疫情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796351/)
+## 英国政府打算逐门逐户登门打疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1796500/)
 
-配音：香草山教育部 – 百香果
+**翻译：George Warshing**
+**编辑：守望黎明**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Home_Vaccine11111111.jpeg)图片来源：bridgemi.com
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月23日，据当地媒体报道，刚刚离开佛罗里达州劳德代尔堡的皇家加勒比游轮上，有 55 名乘客的中共病毒检测结果呈阳性。目前，这些感染者以及相关密切接触者已进入隔离状态，而感染者的症状大多较为轻微。
+据媒体报道，首相府、卫生署和医疗服务局一直在考虑采取更激进的方法以提高疫苗在英国的普及率，可能会向还没有进行接种疫苗的家庭派出工作小组进行挨家挨户的强制注射。
 
-这是数周内该游轮上第二次爆发中共病毒疫情。消息称，这艘载有超过三千五百名乘客和一千五百多名船员的游轮，原计划在其八天的航程中停靠超过两个休息点，但由于疫情严重，目前计划取消部分停靠点。
+官方数据显示，12岁以上的英国人中有89.7%已接种过至少一剂疫苗，但仍未接种的这10%的人一直是英国各地当局密切关注的对象。
 
-数据显示，鉴于运营公司对乘客和船员的强制疫苗要求，该游轮上超过95% 的人已经完全接种了中共病毒疫苗。
+据《星期日邮报》报道，英国当局正在考虑派出护士，直接到居民家里提供疫苗接种。
 
-文字版原文：[皇家加勒比游轮二次爆发疫情](https://gnews.org/zh-hans/1792522/)
+媒体引用了一位未披露姓名的内阁部长的话，他声称支持任何“鼓励疫苗观望者打疫苗”的行为，并认为“全国对拒打疫苗群体的态度正在变得强硬。”
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+在首相宣布采取应对新冠病毒的进一步措施之后，媒体进行了各种报道，但政府并未做出任何回应。奥密克戎Omicron病毒变体的快速传播已促使政府再次启动了对民众的限制措施。预计约翰逊首相会于12月27日发表一项声明。仅仅在12月24日一天，英国就报告了超过122,000例新发新冠病例，这是自瘟疫大流行以来的又一个单日最高记录。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接；[Ministers mull sending vaccine teams to homes of unjabbed-reports](https://www.rt.com/news/544461-home-vaccinations-uk-teams/)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*发布：盘古相聚*
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
