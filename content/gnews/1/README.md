@@ -2,56 +2,112 @@
 ---
 
 
-## 共产党需要张高丽，彭帅消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
+## 张高丽玩处女 家族一定会受审判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796590/)
 
-[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
+[https://gtv.org/video/id=61c99fe343ccb726a08c24fc](https://gtv.org/video/id=61c99fe343ccb726a08c24fc)
 
 **郭文贵
 Miles Guo**
 
-彭帅这个事情
-Sobre este asunto de Peng Shuai
+张高丽这件事情
+El asunto de Zhang Gaoli
 
-彭帅是一定要被消失的
-Peng Shuai seguramente será desaparecida
+他的个人
+Esta persona
 
-一定会
-De seguro
+还有整个家族
+Y toda su familia
 
-什么精神病啦, 自杀啦
-Que si enfermedad mental, suicidio
+最终一定会被审判的
+Al final será sentenciada
 
-出车祸啦, 跳墙死啦
-Accidente automovilístico, saltó de la pared y murió
+而且张高丽玩处女
+Además, Zhang Gaoli juega la virginidad
 
-躲猫猫死啦, 一定要被死
-Murió jugando al escondite, de seguro será matado
+我告诉你一个战友给我发的信息
+Te cuento un mensaje que me envió un compañero luchador
 
-然后张高丽就悄无声息
-Y Zhang Gaoli silenciosamente
+发出来当年他的女儿13岁的时候
+Mandó diciendo que su hija en aquel momento cuando tenía 13 años
 
-哪一天
-Un día
+还差几天13岁
+Faltaba unos días para los 13
 
-当党需要的时候也会让他消失
-Cuando el Partido necesita, también será desaparecido
+就是认识张高丽
+Conoció a Zhang Gaoli
 
-就这结局
-Así es el final
+这个人是广东的一个朋友
+Esta persona es un amigo de Guangdong
+
+广东惠州的
+De Guangzhou Huizhou
+
+说当年他就通过了张高丽的秘书
+Dice que en ese año él conoció a través del secretario de Zhang Gaoli
+
+开饭店的秘书
+Un secretario que tiene un hotel
+就贫苦人家直接认识了张高丽
+Una gente humilde conoció directamente a Zhang Gaoli
+
+就（因为）13岁女儿
+Sólo (porque) la hija de 13 años
+
+进了他办公室一个小时
+Entró a su oficina una hora
+
+女儿出来给告诉她妈说
+Cuando la hija salió le dijo a su mamá
+
+他把我给强奸了
+“Él me violó”
+
+她妈都不相信她
+La mama no creía en ella
+
+后来她妈妈就觉得非常的不可思议
+Luego la mama sentía muchísimo asombro
+
+在车上让女儿说
+En el carro le dijo a su hija
+
+你有什么证据
+“Qué evidencias tienes”
+
+她说你看我现在还有好多血
+Ella le dijo “aún tengo mucha sangre”
+
+那真不是马蕊的那个1米厚的处女膜
+Eso si no es el himen de Ma Rui de 1 metro de grosor
+
+她是真是很多很多处女血出来了
+Ella de verdad sangró muchísimo por perder la virginidad
+
+最后她妈回去以后商量决定要找他（张高丽）说法
+Finalmente, después de que su madre regresó, negoció y decidió buscarlo (Zhang Gaoli)
+
+最后是他秘书出面协调
+Al final su secretario salió a coordinar
+
+给家里边批了一大块地搞房地产
+Le dió un gran terreno a la familia para hacer bienes raíces
+
+家里就闭嘴了
+Y la familia se quedó callado
 
 * * *
 
 日期：12/24/2021
-原视频标题：共产党需要张高丽，彭帅消失
-El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
+原视频标题：张高丽玩处女 家族一定会受审判
+Zhang Gaoli juega la virginidad, la familia será sentenciada
 原视频日期：12/23/2021
-原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
-任务编号：KC369（3320）
-视频时间段：0:00-0:29
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+原视频网址：[https://gettr.com/post/pkfjhsbccb](https://gettr.com/post/pkfjhsbccb)
+任务编号：KC370（3319）
+视频时间段：0:00-01:13
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 ：洛杉矶盘古农场 – Kevin37L

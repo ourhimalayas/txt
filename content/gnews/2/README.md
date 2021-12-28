@@ -2,35 +2,63 @@
 ---
 
 
-## 有声|文贵先生揭露大陆及港澳台明星内幕
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1796535/)
+## 共产党需要张高丽，彭帅消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1796536/)
 
-配音：香草山美食部 – 玫瑰园
+[https://gtv.org/video/id=61c99f5943ccb726a08c24c3](https://gtv.org/video/id=61c99f5943ccb726a08c24c3)
 
+**郭文贵
+Miles Guo**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生在12月25日圣诞大直播中爆料，王力宏在台湾黑帮扶植下出道，由于在大陆曾拒绝和彭丽媛 演出，得罪了“国母”。后来此事经曾庆淮摆平。文贵先生爆料，中国的演艺明星都是曾家的势力。处理王力宏、 吴亦凡等曾家控制的明星，其目的在于灭掉曾庆红和曾庆淮。
+彭帅这个事情
+Sobre este asunto de Peng Shuai
 
-对于中共国、港澳台的明星现象，文贵先生说，明星台前有多风光，背后就有多卑微。文贵先生爆料，王菲在盘古吃了100万一盒的鱼子酱后，同样是吸毒淫乱。无论港澳台明星还是大陆明星，都在黑帮控制之下，最终他们都不会得到善终。文贵先生指出，新中国联邦人不要羡慕任何明星，未来的新中国联邦人不论是唱歌、还是拍电影或做其他任何艺术创作，艺术创作只做自己，而不受任何人摆布。
+彭帅是一定要被消失的
+Peng Shuai seguramente será desaparecida
 
-文字版原文：[文贵先生揭露大陆及港澳台明星内幕](https://gnews.org/zh-hans/1792527/)
+一定会
+De seguro
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+什么精神病啦, 自杀啦
+Que si enfermedad mental, suicidio
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+出车祸啦, 跳墙死啦
+Accidente automovilístico, saltó de la pared y murió
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+躲猫猫死啦, 一定要被死
+Murió jugando al escondite, de seguro será matado
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+然后张高丽就悄无声息
+Y Zhang Gaoli silenciosamente
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+哪一天
+Un día
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+当党需要的时候也会让他消失
+Cuando el Partido necesita, también será desaparecido
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+就这结局
+Así es el final
+
+* * *
+
+日期：12/24/2021
+原视频标题：共产党需要张高丽，彭帅消失
+El Partido Comunista necesita a Zhang Gaoli; la desaparición de Peng Shuai
+原视频日期：12/23/2021
+原视频网址：[https://gettr.com/post/pkfcf5e602](https://gettr.com/post/pkfcf5e602)
+任务编号：KC369（3320）
+视频时间段：0:00-0:29
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
