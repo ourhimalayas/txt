@@ -15,80 +15,80 @@
 
 ---
 
-### [美国官员警告中国正在将脑机接口、基因编辑和“精神控制武器”军事化](/content/gnews/1/README.md)
+### [在卡尔加里市政厅举行的世界上最大的“反疫苗护照”圣诞派对](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [讽刺剧：武汉实验室举办如何避免实验室泄漏的会议](/content/gnews/2/README.md)
+### [美国官员警告中国正在将脑机接口、基因编辑和“精神控制武器”军事化](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [讽刺剧：武汉实验室举办如何避免实验室泄漏的会议](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [真没钱了！中共房地产税开征在即](/content/gnews/3/README.md)
+### [真没钱了！中共房地产税开征在即](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [杰森·米勒：内容创作者将能够在盖特平台上以他们的作品来盈利](/content/gnews/4/README.md)
+### [杰森·米勒：内容创作者将能够在盖特平台上以他们的作品来盈利](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|习近平坐龙椅召见林郑 引网民热议批评](/content/gnews/5/README.md)
+### [有声|习近平坐龙椅召见林郑 引网民热议批评](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [郭文贵盖特音频2021.12.28](/content/gnews/6/README.md)
+### [郭文贵盖特音频2021.12.28](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|美国航空公司因Omicron再度取消800个航班](/content/gnews/7/README.md)
+### [有声|美国航空公司因Omicron再度取消800个航班](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [最新发布的VAERS数据： “疫苗”安全有效吗？](/content/gnews/8/README.md)
+### [最新发布的VAERS数据： “疫苗”安全有效吗？](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/9/README.md)
+### [有声|郭文贵先生揭秘中共封杀网红、教育行业真相](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2021年12月28日早](/content/gnews/10/README.md)
+### [GTV新闻访谈简报|2021年12月28日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [打脸中共内宣新华社关于台湾物价不实谣言](/content/gnews/11/README.md)
+### [打脸中共内宣新华社关于台湾物价不实谣言](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [郭文贵盖特音频2021.12.27](/content/gnews/12/README.md)
+### [郭文贵盖特音频2021.12.27](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|【信仰之声】主是葡萄树，我们是枝子](/content/gnews/13/README.md)
+### [有声|【信仰之声】主是葡萄树，我们是枝子](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/14/README.md)
+### [美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/15/README.md)
+### [Hcoin To the Moon上线第26天位列3国iTunes摇滚音乐榜首](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/16/README.md)
+### [拜登承认联邦政府抗疫不力 将自主权交还各州](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共向党内喊话干部拒绝提拔是不守政治规矩](/content/gnews/17/README.md)
+### [中共向党内喊话干部拒绝提拔是不守政治规矩](/content/gnews/18/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国正在研发包括精神控制术在内的先进军事技术](/content/gnews/18/README.md)
+### [中共国正在研发包括精神控制术在内的先进军事技术](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/19/README.md)
+### [可以去酒吧但不能上班？威尔士毫无意义的COVID规定](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [串珠505:盘古大观和裕达都有外星人、都有神秘力量](/content/gnews/20/README.md)
+### [串珠505:盘古大观和裕达都有外星人、都有神秘力量](/content/gnews/21/README.md)
  ` 郭爆料串珠`
 
-### [“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/21/README.md)
+### [“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [串珠504:病毒和疫苗已致1800万死亡3亿2千万感染](/content/gnews/22/README.md)
+### [串珠504:病毒和疫苗已致1800万死亡3亿2千万感染](/content/gnews/23/README.md)
  ` 郭爆料串珠`
 
-### [12月27日联盟答疑G系列相关信息文字版](/content/gnews/23/README.md)
+### [12月27日联盟答疑G系列相关信息文字版](/content/gnews/24/README.md)
  ` 全球G系列咨服群`
 
-### [尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/24/README.md)
+### [尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/25/README.md)
  ` GTV新闻访谈`
-
-### [串珠503:中国股市是共产党开的赌场，党是唯一赢家](/content/gnews/25/README.md)
- ` 郭爆料串珠`
 
 ### [泽连科医生：政府现在很绝望，暴君们知道他们的末日即将来临](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
