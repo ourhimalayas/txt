@@ -2,44 +2,20 @@
 ---
 
 
-## 丑闻：维多利亚州政府撒谎，试图压制二维码的真相
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1797156/)
+## 【速報】2020年代后期,日本人登月
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1797462/)
 
-***爆炸性的法庭裁决显示，丹尼尔·安德鲁斯的政府知道用联系人追踪器或通过二维码分享的个人信息并不安全***
+撰稿：东京樱花团百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1564.png)[图片来源](https://news.yahoo.co.jp/articles/ee25d60aa3c409c9e10d314ca239518f792e4893#:~:text=%E3%8)
+12月28日《TBS新闻》网站消息，岸田文雄首相在政府的太空发展战略总部宣布，日本宇航员将在2020年代末登陆月球。并将其列入时间表，新的时间表写明：“我们的目标是成为第一个登陆月球的非美国人。”会议上决定修改太空政策基本方针《太空基本计划》的时间表。
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+此外，新的时间表包括：承诺与民间部门合作，为美国的Artemis计划开发月球运输工具，承诺在2024年发射火星卫星探测器。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/维州丑闻.png)图片来源：The Australian
+信息源：[【速報】日本人、月面へ　2020年代後半に　岸田首相が表明](https://news.yahoo.co.jp/articles/ee25d60aa3c409c9e10d314ca239518f792e4893#:~:text=%E3%8)
 
-
-**整理报道：小鱼儿
-编辑：Candy**
-
-（澳大利亚维州）一项爆炸性的法庭裁决，暴露了丹尼尔·安德鲁斯（Daniel Andrews）政府在数百万维多利亚人的私人信息安全问题上撒谎，并试图掩盖细节。
-
-自大流行病开始以来，维州政府向维多利亚人保证，他们分享的任何细节都只用于公共卫生目的。
-
-然而，《先驱太阳报》今天报道说，用联系人追踪器或通过二维码分享的个人信息并没有得到 “绝对保护”。该报告显示，政府不仅知道这个谎言，而且还积极地试图欺骗公众，堵住了与私人信息安全有关的真相的发布。
-
-Covid指挥官杰罗恩·魏玛（Jeroen Weimar）发起了一项法律诉讼，要求将法庭案件保密五年，以阻止因公开这一消息对政府所造成的损害。
-
-《先驱太阳报》公布的文件显示，魏玛无耻地向法庭辩称，公众对国家联系人追踪系统的信心，比告诉维多利亚人他们的个人信息可能被他人获取的威胁更重要。
-
-这一消息的出现，是由于该部门向法院申请阻止维多利亚州工作保障局（Victorian WorkCover Authority）获取联系人追踪信息，作为其调查该州酒店检疫闹剧的一部分。
-
-在州政府部门推动将这些细节从公众视野中撤销时，文件显示，代表VWA（WorkSafe）的马库斯·霍恩（Marcus Hoyne）认为：法院不应协助公众被误导。他指责该部门寻求压制，“以防止公众了解通过联系人追踪提供的信息，可能不得不披露的真实情况。”
-
-参考新闻：[SCANDAL: Victorian government lied, tried to suppress the truth over QR codes](https://www.rebelnews.com/scandal_victorian_government_lied_tried_to_suppress_the_truth)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
