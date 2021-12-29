@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@andysaikai 12/29/2021 9:46 PM (UTC)`
+
+20211229日本朝日TV報導CCP強改盤古大觀龍頭<br/>感謝肌肉貓戰友提供的片源🙏🙏🙏<br/>本翻譯視頻根據左上角時間調整了元視頻的順序，以及根據某些屏幕上的字幕，追加了一部分翻譯🙏🙏🙏<br/>1.關於中共修改龍頭的理由有諸多說法<br/>2.有市民說盤古龍頭跟鳥巢旁邊的河流做出的水龍二龍相爭不吉利<br/>3.還有說因為七哥是盤古大觀建造者，所以CCP要給七哥下馬威<br/>4.也有說盤古龍頭正對中南海，居高臨下<br/>5.非法治社會的獨裁政權最讓人恐懼的就是朝令夕改，之前明明沒事的事務，突然就被要求強行改造<br/>#CCP<br/>@Miles<br/>@Sean6<br/>@wenyuxiaomei09<br/>
+![img](https://media.gettr.com/group48/getter/2021/12/29/21/3999ab7d-5a64-393c-7890-ce38e36cdcbd/out.jpg)
+> `@musclecat 12/29/2021 4:23 PM (UTC)`<br/>日本朝日电视台：国家秘密<br/>这是七哥直播中提到的视频<br/>这是手机录制的，所以有杂音。sorry
+![img](https://media.gettr.com/group28/origin/2021/12/29/16/c0ce5f72-0f48-790b-03bb-0f0535bc5e26/out.jpg)
+
+---
+
+`@miles 12/29/2021 11:02 PM (UTC)`
+
+Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Less COVID-Panicked South.<br/>https://thenationalpulse.com/2021/12/28/bolt-from-the-blue-nearly-a-million-americans-leave-dem-states-to-the-safer-less-covid-panicked-south/
+
+---
+
 `@miles 12/29/2021 10:51 PM (UTC)`
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (5) : <br/>💥 HBO-VICE just wants to create doubts if Miles is really anti-CCP, and discredits Miles who challenged the number one evil regime, the CCP. <br/>☘️ We need to prepare for revenge, even more so when we take down the CCP. This is common sense.<br/>☘️ Miles is the number one enemy of the CCP. We have the energy, power and capability to make miracle happen and #TakeDownTheCCP .<br/>☘️ We know HBO-VICE will ask lie questions, and then deceptively edit a video with premeditated lies again.<br/><br/> #HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段五：<br/>💥 HBO-VICE就是想制造怀疑，看看郭文贵是不是真的反共，它们只会诋毁挑战头号邪恶政权中共的郭文贵。<br/>💦 复仇都需要准备，何况灭共呢？这是常识！<br/>💦 郭文贵是中国共产党的头号敌人，我们有精力、力量和能力让奇迹发生，打倒中共。<br/>💦 我们知道 HBO-VICE 会提出谎言问题，然后再次用有预谋的谎言欺骗性地剪辑视频。
@@ -139,20 +156,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12/25/2021 Miles Guo: Wang Leehom offended the "CCP’s first lady", Peng Liyuan, by refusing to perform on stage with her; Communist China’s celebrity community is controlled by the Zeng family; the purpose of targeting the celebrities under the Zeng family’s control, such as Wang Leehom, is to eliminate the Zeng family; the evil of the CCP far exceeds that of Wang Leehom!<br/><br/>12/25/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”；中共国的演艺界都是曾家族控制的；拿王力宏等曾家控制的明星开刀，是为了干掉曾家；中共之恶远超王力宏！<br/>
 ![img](https://media.gettr.com/group11/getter/2021/12/27/08/0d5b9e1d-fbca-f56e-d1b6-129291a77e83/out.jpg)
-
----
-
-`@miles 12/27/2021 7:38 AM (UTC)`
-
-12/25/2021 Miles Guo: The celebrities who were groomed by the CCP and earn over 10 million yuan a year will inevitably have their wealth taken away by the CCP; the celebrities from Hong Kong, Macao, and Taiwan have no dignity or freedom in front of the CCP, and they all have to sleep with the tycoons; the New Federal State of China shall make sure those fellow fighters who love music will never sing for money<br/><br/>12/25/2021 文贵直播：中共养的、收入超千万的明星都逃不过杀富的命运；港澳台明星在中共面前毫无尊严和自由，他们都是富人的玩物；新中国联邦要让爱音乐的战友不为钱而歌唱<br/>
-![img](https://media.gettr.com/group41/getter/2021/12/27/07/66d01179-90aa-fc08-c443-21b658fc5f5a/out.jpg)
-
----
-
-`@miles 12/27/2021 6:00 AM (UTC)`
-
-12/26/2021 Miles Guo: Yesterday’s live stream has proved that the New Federal State of China is saving the world rather than a cult; meanwhile, a major political move was made inside the CCP, and the US government will take a series of measures against the CCP; more progresses will be made to stop the COVID vaccination across the globe<br/><br/>12/26/2021 文贵直播：在昨天直播证明了新中国联邦是在拯救世界而非邪教；与此同时，中共内部有重大政治行动发生，美国政府将对中共有一系列举措，全球在停止疫苗上将有更大进展<br/>
-![img](https://media.gettr.com/group6/getter/2021/12/27/06/c9e6c257-f039-b76b-dd03-3a0e69f5674e/out.jpg)
 
 ---
 
