@@ -2,28 +2,34 @@
 ---
 
 
-## 港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1800285/)
+## 奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800394/)
 
-**撰文/ 港台前线关注组｜发布日期/ 29/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
+作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在刚刚过去的圣诞节周末，在新冠疫情期间出行人数和航班都严重萎缩的情况下，全球仍有7000多个航班被取消，近2万个班次延误。完全打乱了成千上万人圣诞周末出游的年末度假计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-19.jpg)
+主要原因是最近一轮病毒变种奥密克戎肆虐导致的各种溢出效应，对各航空公司的机组人员和地面运营人员都产生了直接而严重的影响。大量航空公司员工因检疫隔离而缺席，或因感染新冠病毒而请病假。
 
-香港警方国安处今晨六点出动200名军装警及便衣对《立场新闻》展开拘捕行动，警方以涉嫌违反《刑事罪行条例》第9及第10条，串谋发布煽动刊物罪拘捕六名《立场》高层或前高层，分别为53岁的前总编辑钟沛权、现任署理总编辑34岁的林绍桐、63岁的前董事周达智、63岁的前董事方敏生，以及另外两位前董事，73岁的资深大律师吴霭仪、44岁的歌手何韵诗。
+在平安夜，全球有近2400个航班取消，11,000个航班延误；周六圣诞节当天，全球有近2800个航班取消，8,000个航班延误；周日，全球有近2000个航班取消。
 
+参考链接：
+1. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.thegatewaypundit.com/2021/12/6000-flights-cancelled-christmas-weekend/)
+2. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.zaobao.com.sg/news/world/story20211227-1226753)
 
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747220143.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747262884.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747224643-1.jpg)
+总编：文真
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-
-
-
-随后，国安处手持法庭手令又到《立场新闻》位于观塘楼上的办公室搜查、检取新闻材料，过程中警方在大厦外划出区域阻止靠近，并封锁《立场》办公室所在的14楼全层，同时禁止传媒拍摄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/國安處清晨上門拘六名《立場新聞》涉串謀發布煽動刊物.jpg)
-来源｜[now](https://news.now.com/home/local/player?newsId=461459)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

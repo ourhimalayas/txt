@@ -2,25 +2,28 @@
 ---
 
 
-## 若中共武力犯台，7成台湾人愿为保卫台湾而战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800984/)
+## NFL明星罗杰斯：如果科学不能被质疑，那就是宣传
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801022/)
 
-整理编辑：东京樱花团丨Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1636.png)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/4__m2dpl8JfhcDahMTUapQ--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/S0inlKubP1ofXTPei_ZNxg--~B/aD00NTA7dz04MDA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/ko/setn.com.tw/5ec2e646d9286db55a6c87cad8be5ae6)
-面对两岸情势严峻，根据台湾民主基金会12月29日公布的民调显示，若台湾宣布独立导致中共武力犯台，有6成2受访者表示愿意为保卫台湾而战；若中共为统一对台动武，则有7成2受访者愿意为保卫台湾而战。
+#### 撰稿：彩虹
 
-台湾民主基金会自2011年起，每年皆委托民调单位针对台湾人对民主价值与治理的评价进行调查，今年的调查按往例询问台湾民众对民主的态度、防卫民主的意愿等。在民主防卫方面，民调询问「如果因为台湾宣布独立导致中共武力攻打台湾，请问你愿不愿意为保卫台湾而战」？结果有62.7%受访者表示愿意、不愿意26.7%；「如果中共为了统一对台湾使用武力，请问您愿不愿意为保卫台湾而战」？72.5%受访者表示愿意、18.6%不愿意。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-9.jpg)图片来源：OX咨询
+亚伦·罗杰斯（Aaron Rodger）是美国国家橄榄球联盟（National Football League）绿湾包装工队（Green Bay Packer）的四分卫。他带领球队取得了超级碗XLV（Super Bowl XLV）的胜利。
 
-台湾民主基金会去年发布的民调数据，若台湾宣布独立导致中国武力犯台，71.5%受访者表示愿为保卫台湾而战；中共若为统一对台动武，则有79.8%受访者愿为保卫台湾而战。这次调查也询问有关假讯息的问题，结果有6成2受访者认为假讯息对于台湾民主政治发展的危害很大。
+根据11月6日《CBS新闻》的报道，亚伦·罗杰斯在接受采访时承认，自己没有接种中共病毒疫苗，虽然感染了中共病毒，并且有感染症状，但由于服用了伊维菌素，于是48小时很快就痊愈了。
 
-该民调调查对象是设籍在台湾地区且年满20岁以上成年人，访问时间是8月10日至8月15日，完成874个市话、425个手机有效样本，以95%信心水准估计，最大可能随机抽样误差是正负2.72%。
+12月28日，《新闻极限》报道，亚伦·罗杰斯在参加前NFL全职业球员帕特·迈克菲（Pat McAfee）的节目时说：“如果科学不能被质疑……那就是宣传”。
 
-消息来源：[**若中国犯台民调逾7成愿为保台而战**](https://tw.news.yahoo.com/%E8%8B%A5%E4%B8%AD%E5%9C%8B%E7%8A%AF%E5%8F%B0-%E6%B0%91%E8%AA%BF%E9%80%BE7%E6%88%90%E9%A1%98%E7%82%BA%E4%BF%9D%E5%8F%B0%E8%80%8C%E6%88%B0-062508203.html)
+他认为：那些说科学不应该被质疑的人，这种谬论等同于宣传，“这就是事实，什么时候科学成为了盲目（相信）？不对真正能够治愈（中共病毒）的东西进行任何辩论。这（样的科学）对我来讲毫无意义”。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+在节目中，罗杰斯质疑，为什么没有公开讨论推广健康的生活方式来对抗病毒。“在这整个过程中，没有围绕健康进行真正的对话……（比如）涉及考虑如何更健康生活，以及你的饮食、维生素、运动和这些东西”。
 
+**新闻来源**
+
+[Aaron Rodgers: ‘If Science Can’t Be Questioned…It’s Propaganda’](https://www.newsmax.com/newsfront/aaronrodgers-covid19-vaccine-treatment/2021/12/28/id/1050276/)
+
+[Aaron Rodgers confirms he’s unvaccinated and says he takes ivermectin: “I realize I’m in the crosshairs of the woke mob”](https://www.cbsnews.com/news/aaron-rodgers-packers-covid-vaccine-ivermectin-woke-mob/)
 
  
 

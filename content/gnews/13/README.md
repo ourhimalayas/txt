@@ -2,38 +2,42 @@
 ---
 
 
-## 26岁男子接种疫苗后，在婚礼前夕死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1801144/)
+## 被包装的爱情和感情是人类的悲哀,你就活在包装的灾难中
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1801218/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Nurses2.jpg)
-**简评：**26岁的男子Rory11月5号注射第一剂新冠疫苗，之后出现心悸，心跳时快时慢。17号凌晨，感觉到极度不舒服、准备去医院就诊的Rory倒在了家里，40分钟急救没有成功，已经买好房子准备结婚的Rory因疫苗接种导致的心肌炎去世。
+**郭文贵先生：**另外一个，最重要的大家要看到，就与人相处。今天我特想跟你们孩子分享，一会你们可以问我什么事情，今天无底限，你们可以随便问。我特别爱看到你们兄妹、家人，是吧？对象、夫妻，我最想看到的事情，就是这一辈子什么都可以搞包装，狗屎都可以搞包装，千万别把感情搞包装。爱情和感情一旦被包装，这是人类的悲哀，你活在一个包装的一个灾难当中。而不幸的是，天下90%几的婚姻都是包装的。中国人几乎百分之百了，是吧？都是灾难的，哪有什么忠诚而言呐，是吧？
 
-[GTV视频链接](https://gtv.org/video/id=61c927f843ccb726a08bf267)
+就像我，最起码我敢对着你七嫂子，她问了我36年，问我爱不爱她，我从来没说我爱她过，我都问她：你说呢？是吧？你七嫂从来问我：你外面有没有女人？我说：你说呢？我从来没有说过：没有！我发誓！我仨手指头发誓，我四个手指头发誓，从来没干过，是吧？从来没干过。
 
-**视频字幕：**
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](https://gnews.org/zh-hans/1793669/)
 
-11月5号我未婚夫Rory和我去城里银行办理联名户口。我们刚买了自己理想的房子，有点激动。为了庆祝我们的成绩，我们出去吃了早饭。在返回汽车的时候，路过一个药店，里面正在接种疫苗，为什么不顺便打个疫苗呢？
+编辑整理：喜马拉雅的肉夹馍；
 
-我们3月份要举行婚礼，我预定了西海岸的蜜月，准备给Rory一个惊喜。这些是我们打疫苗的原因。但是更重要的是，我们认为我们在做有利于国家的事，我们相信政府是为我们好。这个决定永远改变了我们的生活。
+字幕文件制作：小满；
 
-之后的几天，Rory出现心悸，心跳时快时慢。Rory是一个阳光的男人，从来不抱怨。他对他的症状轻描淡写，不让亲人们，也许还包括他自己担心。
+视频制作及上传：Cindy；
 
-11月17号凌晨3点，我听到Rory起床。我立刻觉得有问题。我们俩商量后决定去医院。我穿上外衣，Rory去了卫生间。几秒钟内，我听到Rory喘粗气，大声呻吟，然后身体倒在地板上。我立刻冲向卫生间想进去，但是进不去，他的身体顶在门上。
+后台技术支持：文肺猫
 
-我看着急救医生做心肺复甦，多次注射肾上腺素，并使用除颤器长达40分钟。40分钟里没有任何生命迹象。我26岁的丈夫被宣布死亡。几天后，我在他的手机里发现他谷歌查询心肌炎的截屏。
+G-News发布：小满；
 
-* * *
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-编辑：【英国伦敦喜庄园编辑部】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
