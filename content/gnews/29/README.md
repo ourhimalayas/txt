@@ -2,56 +2,50 @@
 ---
 
 
-## 2021年12月29日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800853/)
+## 崩溃的征兆？中国恐慌性囤积世界一半粮食供应
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1800898/)
 
-撰稿人：文远Bruce
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-26.png)
+图片来源：谷歌图片
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-39.jpg)
+据《零对冲》泰勒·杜登大约两年半前，我们告诉读者，中国在恐慌性囤积食物，而这发生在病毒开始在全球蔓延的几个月前； 迄今为止，北京已经成功储存了世界上一半以上的玉米和其他谷物，这直接导致世界粮价爆涨，并在一些国家引发了饥荒。
 
-澳大利亚新洲日感染中共生化病毒人数超万
+2019 年 8 月，我们曾经提出了以下问题：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-14.jpg)
+中国共产党政府向来有非常庞大的计划，而看来他们已经决定现在是囤积食物、黄金和其他商品的时候了，这是否意味着他们认为我们正处于重大全球危机的边缘？
 
-2 & 3 以太币最新报价 &走势图
+让我们快速回到当下的现实中，答案很可能是“是”。 据日经亚洲报道，中粮集团（中国一家主要的国有食品加工商）在该国东北部的 310 个仓储设施中库存的豆类和谷物保持“历史性的高位”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3-6.jpg)
+国家粮食和战略储备局粮食储备局局长秦玉云上个月告诉记者，“我们的小麦库存可以满足一年半的需求，粮食供应没有任何问题。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-3.jpg)
+美国农业部的数据显示，在 2022 年上半年，中国拥有全球约 69% 的玉米储备、60% 的水稻和 51% 的小麦。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4-14.png)
+图片：日经亚洲基于美国USDA的数据作出的分析
 
-4. 中共国继续集权中
+从中国出台的多年计划，我们已经指出一系列灾害和天气事件很可能导致国家官员预测粮食短缺的麻烦时期。 中国已经观察到干旱、洪水和害虫毁掉了收成。 由于中共病毒和拉尼娜天气模式（连续第二次）造成的 20 多个月的供应链混乱，也为粮食生产带来了不稳定的条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-3.jpg)
+有一件事是北京所不能承受的——那就是因食品短缺或物价飞涨引发的公民不满； 而根据中国海关总署的数据，这就是为什么中央计划制定者在 2020 年花费了 981 亿美元进口食品，是十年前的 4.6 倍。 今年前八个月，中国进口的食品比 2016 年还多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片5-12.png)
+资料来源：中国海关总署
 
-5. 中国信达入股蚂蚁消费金融20%股份
+“在过去五年中，由于从美国、巴西和其他供应国疯狂采购，中国的大豆、玉米和小麦进口猛增了 2 到 12 倍。牛肉、猪肉、乳制品和水果的进口猛增了 2 到 5 倍，”日经亚洲 说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-3.jpg)
+而据联合国粮食及农业组织估计，中国对世界粮食供应的疯狂收购将食品价格推高至十年高位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片6-11.png)
+商务部甚至以病毒大流行作为幌子，要求家庭储备食物以应对紧急情况。
 
-大疆进入美国禁止投资名单
+与此同时，中国官方媒体淡化了中国正走向粮食危机的说法。 中国国家主席习近平必须保持粮食供应和价格，以确保粮食安全； 否则，世界第二大经济体公民的不满情绪将会加剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-3.jpg)
+日经亚洲总结说：“纵观历史，粮食短缺所引发的民众骚乱。它们是推翻中国王朝的起义的一个催化因素。”
 
-7. 挪威或将明年停止销售内燃机车
+因此，毫无疑问，北京一直在囤积粮食以避免崩溃，因为央行官员尚未弄清楚如何凭空杜撰出粮食。 但别担心，随着全球粮食形势恶化，我们都可能被迫吃蟋蟀、蠕虫和蚱蜢。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-2.jpg)
+译者评注：这篇报道说出了将引发中共崩溃的现实危机，作为一个食品消费大国，之前的所谓改革开放时代的疯狂房地产经济，极大的降低了本巳有限的粮食生产能力，而习王上台后的急速左转、不顾民生和与美欧为敌的政策，再加上中共病毒的肆虐、连年的严重自然灾害和千孔百疮的经济，粮食危机或将成为压垮中共的最后几根稻草之一，“民以食为天”，中共意识到了末日的日趋逼近，只是靠他们的“亡羊补牢”之举，真的能逃脱灭亡的命运？
 
-8. 哈伯望远镜的继承者韦伯望远镜将到达距离地球150万公里处
+原文链接：[https://www.zerohedge.com/commodities/china-panic-hoards-half-worlds-grain-supply-amid-threats-global-collapse](https://www.zerohedge.com/commodities/china-panic-hoards-half-worlds-grain-supply-amid-threats-global-collapse)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture9.jpg)
 
-9. 10.11 三只松鼠 眯眯眼事件
-
-共产党邪恶的愚民术、戾害国脆弱的玻璃心，自两日前三只松鼠2019年拍的一组眯眯眼模特图被指辱华，后续全国的朝阳大妈，小粉红们又来了一拨揪斗高潮，不是十九大公告说要四个自信：道路自信、理论自信、制度自信、文化自信。自信在哪呢？只是极端的自卑，闭关锁国！
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture10.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture11.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture12.jpg)
-
-发布： Hong
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
 
  
 
