@@ -2,33 +2,21 @@
 ---
 
 
-## 加拿大西部继续处于极寒冷警告之下，某些地区达到-50摄氏度
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1802413/)
+## Kitchener女子被指控遗弃新生儿
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1802480/)
 
-作者：The Canadian Press
+作者：Waterloo Region Record
 翻译：HimaBoy
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-368.jpg)
+Kitchener一名刚出生的婴儿被遗弃在Kitchener Rockway 社区的一户人家外，一名女子涉嫌遗弃婴儿被捕，面临多项指控。据报道，仅滑铁卢地区今年圣诞期间就出生了十几个婴儿，目前还不清楚这个妈妈为什么这么狠心在这么冷的天把新生婴儿扔在路边。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-367.jpg)
+滑铁卢警方表示，周一上午11点左右，警方接到了多个报警电话，称一名婴儿被一名女子遗弃在Dixon street和Eckert street附近路边的一个婴儿车里。
 
-席卷加拿大西部地区的低温天气仍将持续到本周末，不会有任何喘息的机会，对阿尔伯塔人来说低温习以为常，但对卑诗省民来说则非常难过，许多地区用电量创下历史纪录。
+警方指出，涉案女子在遗弃婴儿后试图离开现场，一名路人在试图阻止其离开时受到女子威胁。其他几人协助警方找到了这名女子。
 
-加拿大环境部表示，阿尔伯塔省、卑诗省和萨斯喀彻温省的大部分地区，以及曼尼托巴省和安省的部分地区仍处于极端寒冷警告之下，某些地区的风寒效应气温降至-50摄氏度。
+警方表示，这名32岁的Kitchener女子随后被捕，并被控弃婴、死亡威胁和违反缓刑等罪名。她定于2月7日出庭。
 
-加拿大环境部表示，包围萨斯喀彻温省南部地区的寒冷北极气团要到本周末才会减弱。阿尔伯塔省的大部分地区将出现极端寒冷的天气，风寒效应气温在-40到-45 摄氏度之间。
-
-随着北极气团吹过，温哥华的气温将接近或低于-20摄氏度。
-
-环境部表示，随着气温升高，周三白天温哥华的寒风将有所减弱。
-
-卑诗水电公司表示，该省许多地区的极端低温导致周一下午5点至6点之间的峰值电力需求创下新纪录
-
-女发言人Simi Heer在一份新闻稿中说：大部分用电增长可能是由于在这次寒流期间需要额外的家庭供暖导致的。
-
-Heer表示，电力需求创下10,902兆瓦的历史新高，高于去年创下的10,577兆瓦的纪录。这一记录代表了卑诗电力需求最高的时刻。
-
-管理省电网的阿尔伯塔省电力系统运营商在周一晚上发布了能源紧急警报，并在社交媒体帖子中解释说，这是由于极端天气影响了一些发电设施的正常工作。呼吁人们尽早关闭度假屋的灯，不过在当天晚上晚些时候表示正常的供电条件已经恢复。
-
-来源：https://globalnews.ca/news/8477572/western-canada-extreme-cold-warnings/
+来源：https://www.therecord.com/news/crime/2021/12/28/newborn-baby-left-at-side-of-the-road-leads-to-charges-for-kitchener-woman.html
 
 （文章仅代表作者个人观点）
 
@@ -45,6 +33,8 @@ Discord 账号
 Gettr 账号
 
 ![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
 
  
 
