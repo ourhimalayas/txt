@@ -2,34 +2,30 @@
 ---
 
 
-## 针下亡魂｜悲痛！又一名足球运动员在接种疫苗后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1799912/)
+## 【中日财经爆】比特币继续下跌，较11月高点已跌去三成
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800187/)
 
-**撰文/ 疫情关注组｜发布日期/ 29/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1621.png)[图片来源](https://www.dw.com/zh/%E4%B8%BA%E4%BD%95%E6%AF%94%E7%89%B9%E5%B8%81%E6%AF%94%E4%B8%80%E6%95%B4%E4%B8%AA%E5%9B%BD%E5%AE%B6%E8%BF%98%E8%80%97%E7%94%B5/a-56609902)
+比特币周二(12月28日）下跌6.13%，至47,606.92美元，较前一交易日收盘价下跌3,111.19美元。比特币扩大跌幅，加重12月份整体跌势，比特币周二一度下跌6.5%,已较11月10日的年内高点69,000美元下跌了31%。以太币周二下跌5.57%，至3,812.6美元，比前收盘价下跌224.8美元。
 
-阿根廷足球运动员，今年25 岁的中场队员Diego Armando Montiel 因爆发性脑膜炎去世。今年早些时候，他曾经在推特上表示非常后悔接种 COVID-19 疫苗。
+截至纽约时间下午12：37，交易价格约为47，760美元。第二大加密货币以太坊和彭博银河加密货币指数分别下跌约7%。根据CoinGecko的数据，Solana、Cardano、Polkadot和狗狗币等较小的加密货币周二也下跌。
 
-Montiel 8月在社交平台上写道，“我快要自杀了，我再也不要接种疫苗了。”暗示自己在接种疫苗后，身体饱受副作用的折磨。
+近来投资者纷纷从全球市场投机性最强的一些角落撤出，担心央行缩减刺激措施可能会带来麻烦。而比特币以及更广泛的加密货币市场会因此面临多大风险也是投资者热议的一个主题。与此同时，鉴于美联储准备采取必要行动来遏制物价上涨，比特币的通胀对冲叙事的吸引力可能会减弱。
 
+Miller Tabak + Co．首席市场策略师Matt Maley表示，很奇怪看到加密货币年底前被抛售，因为尽管近期出现动荡，许多加密货币仍是2021年的大赢家。他说，机构投资者可能是本周大跌的因素。
 
+如果这些投资者参与得晚，“他们在加密货币方面的收益就不会那么大，事实上，其中一些人可能会亏损，”Maley说。“因此，他们可能会略微减持，并增加（股票等其他领域的）风险敞口。”
 
-> Estoy a punto de morirme. No me vacuno nunca mas
-> — Diego Armando (@DieguitoMontiel) [August 1, 2021](https://twitter.com/DieguitoMontiel/status/1421647945334726656?ref_src=twsrc%5Etfw)
+今年，比特币基本跟美股等高风险资产亦步亦趋，不过这种模式本月似乎正在瓦解。标普500指数12月到目前为止上涨约5%，而比特币下跌了约16%，为5月份以来最差月度表现。这是他们的月度表现自6月份以来首次分化。
 
+消息来源：[比特币价格跌破4.8万美元 扩大12月整体跌幅](https://www.cnbeta.com/articles/tech/1219827.htm)
 
+[比特币周二大跌6.1%至47,607美元](https://cn.reuters.com/article/bitcoin-1228-tues-idCNKBS2J801Y?il=0)
 
-接种疫苗后不久，Montiel 被确诊患上爆发性脑膜炎，圣诞节当日他病情恶化，紧急送院，几日后，宣告死亡。
-
-这位中场球员，曾代表阿根廷最高职业级别出场 30 次。2014年8 月 24 日，他在对阵博卡青年队的比赛中脱隐而出，几周后，在对阵河床队的比赛中打进了他职业生涯的第一粒进球。
-
-现在，让我们一起回顾一下 Montiel 人生的高光时刻：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/悲痛！又一名足球運動員在接種疫苗後死亡.jpg)
-来源｜[twitter](https://twitter.com/OficialAMSyD/status/1475191531099279374)
-
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)//
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
