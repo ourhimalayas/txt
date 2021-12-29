@@ -2,159 +2,37 @@
 ---
 
 
-## Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799792/)
+## 袖珍领地在力争成为世界加密货币之都
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799800/)
 
-[https://gtv.org/video/id=61ca063943ccb726a08c516d](https://gtv.org/video/id=61ca063943ccb726a08c516d)
+翻译：George Warshing
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-360.jpg)© Pixabay.com 2021年12月27日14:56 《家庭商业新闻》
+直布罗陀正努力将其证券交易所与加密货币交易整合为一个整体。
 
-**郭文贵
-Miles Guo**
+世界上第一个综合交易所很快会在直布罗陀这片英国海外领地开张。在该交易所，传统债券可与比特币和狗币等主要加密货币一起交易。
 
-这个女人，这个Isobel Yeung和VICE和HBO之阴歹
-This woman, how evil of Isobel, VICE, and HBO
+据《卫报》报道，半岛监管机构目前正在审查一项推动区块链的提案，Valereum公司将在明年收购直布罗陀证券交易所（GSX）。Valereum公司主席理查德·鲍尔顿表示，该公司专注于提供把英镑和美元等主流传统货币与加密资产链接起来的技术。
 
-我告诉你文疯而动
-let me tell you Wenfeng,
+他告诉《每日邮报》，其公司正努力驾驭这股价值约3.5万亿美元的加密货币的东风，这个市场大约是伦敦证券交易所全部上市公司市值的总和。他说，让目前只有三名员工的交易所焕然一新将是一项巨大的任务，且需对直布罗陀的法规做一些修改以便对加密货币交易的工作进行管理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-106.jpg)
+迄今为止，直布罗陀的监管机构已批准了14家加密货币和区块链公司的许可计划。专家表示，如果一切按计划进行，这片仅有33000人的土地可能会成为全球加密货币的中心。但假如监管机构设定的控制措施失败，直布罗陀可能会面临声誉受损和遭到美国等国制裁的风险，而这会对该地的经济构成威胁。
 
-在新西兰这种国家
-in a country like New Zealand,
+直布罗陀坚称在严密监管下已解决了这个问题。他们在2018年前引进加密行业时，已对该业务的管理事项进行了四年的咨询工作。直布罗陀数字金融服务和公共事业部长阿尔伯特·伊索拉说，这些措施有助于该地获得“区块链宝石”的盛誉。
 
-就像德国一样，就像那个奥地利是一样的
-Germany and Austria
+伊索拉补充道：“当你去任何其他欧洲国家经营完全相同的业务时，不会受到监督、许可和管理（而我们在这方面的工作却很完善），所以，我很难理解在直布罗陀开展这项业务怎么会增加风险。那么，我们怎么会因为增加执行监管行为而被批评呢？事实应该完全相反。”
 
-历史上永远是重复的
-this will always be repeated in history
+原文链接：
+[https://www.rt.com/business/544506-gibraltar-world-first-crypto-hub/](https://www.rt.com/business/544506-gibraltar-world-first-crypto-hub/)
 
-就奥地利这个小破国家就永远培养这种独裁
-Just a small poor country like Austria has cultivated this dictatorship forever
+发布：去中心化Math
 
-看这次（强制）疫苗
-Looking at this (mandatory) vaccine,
-
-它又是一马前锋，走极端
-it is once again a striker, going to extremes
-
-新西兰这种国家
-The countries like New Zealand,
-
-还有像澳大利亚这种国家，像英国这种国家
-as well as Australia and the United Kingdom,
-
-它走极端的时候
-when it goes to extremes,
-
-你当地的华人永远是少数的
-the local Chinese population will always be a minority
-
-发生印尼排华事件真的一点都不遥远呐
-and incidents like Indonesian anti-Chinese incidents would really not be far away
-
-所以这个女人，还有这个采访之阴歹
-That’s why the evilness of this woman（Isobel Yeung）and her interview
-
-把华人置于全球各国的所谓的恐怖主义（势力），影响政治、改变你政治
-would have put the Chinese people overseas on the list of the so-called terrorist power to influence politics and to change politic
-
-你不处理它，它就改变你政治
-It (Isobel’s interview fractionally published on VICE and HBO) will change the politics if you don’t deal with it
-
-最后, 你要看到她采访
-Finally, you have to see her interview
-
-她在那块记录着, 她根本不在乎你怎么回答
-She was taking note there and would be careless of how you answered at all
-
-她把问题问出来就赢了
-She had already achieved her goal upon asking questions
-
-如果咱没有摄像机
-If we didn’t have the recorder camera (at that time), we would not have the ability to explain ourselves,
-
-你满身是嘴你也说不清啊
-even if the body is full of mouth, but also can not explain myself
-
-如果我嘴再笨点，你全身都是嘴, 你也憋死
-If I was clumsy a little bit (during Isobel’s interview), I would be suffocated to death even though I have mouths all over my body
-
-能憋死你每句话
-Every sentence would have made you suffocate to death
-
-滕彪说我乱伦我侄媳妇
-Teng Biao defamed me saying that I was incest with my niece
-
-结果变成了我说滕彪是乱伦
-As result, he said that I criticized him the incest
-
-你想有多可怕！
-Think about it, how terrible it is!
-
-GTV，她说我们是骗子
-About GTV, She (Isobel) said that we are scammers
-
-那很简单，谁被骗了？
-That’s so simple, who was deceived?
-
-这种垃圾话她能给你弄出去
-She could push such trash words out
-
-因为所有人看（时）没有人细琢磨，哎，对对对，他是骗子
-because no one would ponder when watching and would agree that I’m a liar
-
-然后最后说你觉得他怎么样？
-Then, in the end, saying what do you think of him (Miles Guo)?
-
-他会把中国人带入地狱
-He would take the Chinese people to hell
-
-我咋把中国人带入地狱？
-How do I bring the Chinese people into hell?
-
-我爆料我们四五年来，你有没有想过
-Our whistleblower movement has been going on for 4 or 5 years, have you thought about that?
-
-我们把（任何）一个中国人带入地狱了吗？
-Have we ever brought any Chinese person to hell?
-
-怎么能（说我们）把中国人带入地狱？
-How can she say that we are bringing Chinese people into hell?
-
-她让中国人恨我们
-She makes the Chinese people hate us
-
-你看到没有？
-Have you realized that?
-
-不但让美国、西方世界恨爆料革命
-Not only she has made the United States and the Western world hate our whistleblower movement,
-
-她让螃蟹的嘴说出来
-but also made Pangxie expressed
-
-中国人要恨这个爆料革命、新中国联邦
-Chinese people need to have hatred on our whistleblower movement and the New Federal State of China
-
-这个之阴歹跟当年印尼排华一模一样
-This evilness is exactly the same as the Anti-Chinese incidents in Indonesia back then
-
-* * *
-
-Date: 12/25/2021
-原视频标题: Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
-The Viciousness of Isobel is to Let The Whole World Having Hatred on The Whistleblower Movement
-原视频日期：2021/12/24
-原视频链接: [https://gettr.com/post/pkm5lieabf](https://gettr.com/post/pkm5lieabf)
-任务编号：KC373（3335）
-视频时间段 : 0:00-02:08
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 -银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
