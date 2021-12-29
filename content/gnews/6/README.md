@@ -2,13 +2,13 @@
 ---
 
 
-## 在日留学生受中共军方指使诈骗，被日本警方通缉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1799862/)
+## Himalaya Christmas
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1799882/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._29-1-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+台湾宝岛农场 秘密才艺组
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
