@@ -2,37 +2,159 @@
 ---
 
 
-## 女镇委书记的电话，告诉你啥叫以黑治国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799783/)
+## Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799792/)
 
-**整理：顺其自然
-编辑：****守望黎明**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/effd8178d18635fe-1.jpeg)图片来源：网络图片
-近日山东平度市云山镇的女书记王丽一夜之间火了，我们先来听听她的一段电话录音。王丽打通了上访者亲戚的电话，简单介绍后直入正题：“你就当面给他谈，不想谈的话，这一家人都不怕死的话，那他能豁上，我也能豁上，你就转达给他就行了。给脸不要脸的话，那就不再给脸，该去上访上访！他也没什么大本事，除了进京上访还有什么？举全平度之力，我们无论是从武力、物力、人力、财力、精力都耗得起他。” 这一段话相当有气势，但王丽书记应该是感觉还不足以镇住对方，所以后面就换个语气，开始话里藏刀了：“他们家可还有两个小孙子，肚子里的还有一个。嗷，你把这个话转达给他，（画外音：好的！好的！），啊，转达给他就行了！啊，无所谓啊！不见就拉倒！啊，真的不用求着他！（画外音：好嘞！好嘞！）。”
+[https://gtv.org/video/id=61ca063943ccb726a08c516d](https://gtv.org/video/id=61ca063943ccb726a08c516d)
 
-接着话锋一转，王丽书记开始上真格的了：“彭青林（音）你应该知道，彭青林知道吧？请你去那一天，把彭青林也叫过去了，就是公安的政委。我们一直在研究，正在研究怎么能刑事拘留他。现在是行政拘留，他档案里边没有太大的障碍，就是拘留十五天。下一步我们就在研究怎么能刑事（拘留）他。一旦刑事（拘留）了他，这后果啊，这孩子以后啊….. 你就明确的给你姨父说（画外音：嗯~），各级人民政府、公安，正在研究怎么抓他儿子，怎么刑事他（画外音：嗯）。这是上级部门的意思。”
+**郭文贵
+Miles Guo**
 
-王丽接着表明了自己的态度：“你放心，我豁上了！我有一百种方法去刑事他儿子，我不过是现在还不愿去用那些方法（画外音：嗯），但是即便是不用这些方法，他儿子一次一次进京访，哦，一次一次这么恶意的登机、一次一次寻衅滋事，刑事上他也基本上够了！嗷，就是实打实的刑事（拘留），他也够了。田学娟（音）也好，谢常武（音）也好，再不收手的话，就不是行政拘留了，而是刑事拘留了，都就要被送进监狱去。”
+这个女人，这个Isobel Yeung和VICE和HBO之阴歹
+This woman, how evil of Isobel, VICE, and HBO
 
-从这段录音里可以听出来，这是王丽书记在处理上访的事，她通电话的应该是那个上访户的亲戚。王书记在这段谈话中表示了，说这一家人都不怕死、不要脸。他们能豁上，我也能豁上，如果给脸不要脸的话，那么我就要举全平度之力耗死他。王书记还发出威胁，那就是那户人家还有两个小孙子，肚子里的还有一个。言下之意就是，大人不怕死可以，还有孩子呢！最后王书记亮出了杀手锏，告诉对方，准备对其刑事拘留。
+我告诉你文疯而动
+let me tell you Wenfeng,
 
-讲真的，这段话听得我出了一身冷汗。原来以为拘留是要依法进行的，没想到居然是党委研究出来的。一个党委书记居然还可以威胁要对上访老人的两个孙子以及他儿媳肚子里的孩子下手。这与黑社会有什么区别啊！还有在当前中国刑法严酷的环境下，犯罪与否是由官员决定的。想要“刑事你”，你就是有罪，找出一百个罪名都不是难事儿。
+在新西兰这种国家
+in a country like New Zealand,
 
-其实这个王丽说的一点儿没错。因为中国刑法有483个罪名，随便给你安上三两个罪名，送上法庭判掉易如反掌。对付上访户是这样，对付网上发出批评意见的网民是这样，对付民营企业家是这样，对付一些想要搞掉的官员同样如此。
+就像德国一样，就像那个奥地利是一样的
+Germany and Austria
 
-一个受过大学教育的80后女性，进了官场后对付起老百姓何以如此穷凶极恶、不择手段呐？不是这女书记的本性有多坏，是这官场带坏了她。摆平就是水平，没事就是本事，搞定就是稳定。这三句话，就是在长期维稳的状态下，基层官员的为官之道。对待群众基层干部都是这样做的。阴损招数千万条，总有一招能治你。这个王丽只是太年轻，不够老练，结果留下证据被人捅了出来。
+历史上永远是重复的
+this will always be repeated in history
 
-中共这种体制下，上级对下级从来只要结果，不问手段。基层官员如果不心狠手辣，就治不了硬杠的所谓刁民，就不能完成上级的指令，官位就坐不稳。在基层做干部，每天都像陀螺一样是身不由己的，为了完成上头没完没了的任务，只能硬着头皮、硬着心肠用各种缺德的手段对付民众。最终无论他们的天性如何，都变成了没有同情心、没有心肺的一群人。这就是基层小官吏的现实写照，也是他们人格和命运的悲哀。
+就奥地利这个小破国家就永远培养这种独裁
+Just a small poor country like Austria has cultivated this dictatorship forever
 
-其实，岂止是基层官员，中共的哪一级官员不是如此？中共从上到下就是一个黑社会体制，没有法律只讲规矩。不仅一切唯上、绝对服从，还结帮拉派、互相倾轧。一旦失势，随便按一个罪名就能被置于死地。所以无论多大的官员，在被双规时都会那么害怕，有的甚至自杀了之。因为他们整治别人的时候不择手段、无所不用其极，等轮到自己时，自然也明白是什么样的下场。 至于老百姓的死活，在他们眼里又算得了什么呢！
+看这次（强制）疫苗
+Looking at this (mandatory) vaccine,
 
-发布：去中心化Math
+它又是一马前锋，走极端
+it is once again a striker, going to extremes
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新西兰这种国家
+The countries like New Zealand,
+
+还有像澳大利亚这种国家，像英国这种国家
+as well as Australia and the United Kingdom,
+
+它走极端的时候
+when it goes to extremes,
+
+你当地的华人永远是少数的
+the local Chinese population will always be a minority
+
+发生印尼排华事件真的一点都不遥远呐
+and incidents like Indonesian anti-Chinese incidents would really not be far away
+
+所以这个女人，还有这个采访之阴歹
+That’s why the evilness of this woman（Isobel Yeung）and her interview
+
+把华人置于全球各国的所谓的恐怖主义（势力），影响政治、改变你政治
+would have put the Chinese people overseas on the list of the so-called terrorist power to influence politics and to change politic
+
+你不处理它，它就改变你政治
+It (Isobel’s interview fractionally published on VICE and HBO) will change the politics if you don’t deal with it
+
+最后, 你要看到她采访
+Finally, you have to see her interview
+
+她在那块记录着, 她根本不在乎你怎么回答
+She was taking note there and would be careless of how you answered at all
+
+她把问题问出来就赢了
+She had already achieved her goal upon asking questions
+
+如果咱没有摄像机
+If we didn’t have the recorder camera (at that time), we would not have the ability to explain ourselves,
+
+你满身是嘴你也说不清啊
+even if the body is full of mouth, but also can not explain myself
+
+如果我嘴再笨点，你全身都是嘴, 你也憋死
+If I was clumsy a little bit (during Isobel’s interview), I would be suffocated to death even though I have mouths all over my body
+
+能憋死你每句话
+Every sentence would have made you suffocate to death
+
+滕彪说我乱伦我侄媳妇
+Teng Biao defamed me saying that I was incest with my niece
+
+结果变成了我说滕彪是乱伦
+As result, he said that I criticized him the incest
+
+你想有多可怕！
+Think about it, how terrible it is!
+
+GTV，她说我们是骗子
+About GTV, She (Isobel) said that we are scammers
+
+那很简单，谁被骗了？
+That’s so simple, who was deceived?
+
+这种垃圾话她能给你弄出去
+She could push such trash words out
+
+因为所有人看（时）没有人细琢磨，哎，对对对，他是骗子
+because no one would ponder when watching and would agree that I’m a liar
+
+然后最后说你觉得他怎么样？
+Then, in the end, saying what do you think of him (Miles Guo)?
+
+他会把中国人带入地狱
+He would take the Chinese people to hell
+
+我咋把中国人带入地狱？
+How do I bring the Chinese people into hell?
+
+我爆料我们四五年来，你有没有想过
+Our whistleblower movement has been going on for 4 or 5 years, have you thought about that?
+
+我们把（任何）一个中国人带入地狱了吗？
+Have we ever brought any Chinese person to hell?
+
+怎么能（说我们）把中国人带入地狱？
+How can she say that we are bringing Chinese people into hell?
+
+她让中国人恨我们
+She makes the Chinese people hate us
+
+你看到没有？
+Have you realized that?
+
+不但让美国、西方世界恨爆料革命
+Not only she has made the United States and the Western world hate our whistleblower movement,
+
+她让螃蟹的嘴说出来
+but also made Pangxie expressed
+
+中国人要恨这个爆料革命、新中国联邦
+Chinese people need to have hatred on our whistleblower movement and the New Federal State of China
+
+这个之阴歹跟当年印尼排华一模一样
+This evilness is exactly the same as the Anti-Chinese incidents in Indonesia back then
+
+* * *
+
+Date: 12/25/2021
+原视频标题: Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+The Viciousness of Isobel is to Let The Whole World Having Hatred on The Whistleblower Movement
+原视频日期：2021/12/24
+原视频链接: [https://gettr.com/post/pkm5lieabf](https://gettr.com/post/pkm5lieabf)
+任务编号：KC373（3335）
+视频时间段 : 0:00-02:08
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 -银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
