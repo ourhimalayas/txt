@@ -2,32 +2,57 @@
 ---
 
 
-## 澳媒报道：中共国银行强调稳定宏观经济
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800837/)
+## 2021年12月29日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800853/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/12/喜妈4.png)
-来自网络截图
+撰稿人：文远Bruce
 
-澳媒最近报道，中共国中央银行表示“要承担起稳定宏观经济的责任，积极出台有利于经济稳定的货币政策”。据该报道，中共国人民银行在2022年工作会议后发表的一份声明：中共国人民银行将“加大对实体经济的支持力度，继续降低企业融资成本”。同时，文章指出，中共国央行将“运用多种货币政策工具，保持流动性合理充裕，确保信贷增长稳定”。报道还指出，中共国央行“重申将更好地满足购房者合理需求，促进房地产行业健康发展的承诺”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-39.jpg)
 
-根据报道，该声明是在中共国央行此前“承诺在 2022 年为实体经济提供更大支持，并表示将更积极地使用其政策工具之后发布的”。文章指出，中共国人民银行“对货币刺激采取了一种克制的方式”；可是人们“越来越期待它将在新的一年采取更多措施”，尤其是在“房地产市场问题”和“私人消费放缓持续”的情况下。
+澳大利亚新洲日感染中共生化病毒人数超万
 
-文章还指出，本月稍早，中共国人民银行即“通过削减银行必须保留的准备金数额，在释放了 1.2 万亿元人民币（1,880 亿美元）的资金”；同时，采取了“允许银行将基准贷款利率降低 5 个基点”和“降低了小企业再贷款计划的利率”。因为这些刺激政策，使得“信贷增长在放缓近一年后于 11 月回升”。
-此外，文章指出，根据中共国中央银行的声明，将“加强对包括小企业、技术创新、绿色转型和乡村振兴在内的重点领域的定向支持”。同时，相关的经济刺激和稳定包括将“加强对资本和互联网平台公司的监管，继续做好领先网络金融平台的整改工作”。在人民币方面，中共央行继续“保持人民币汇率在合理均衡水平上保持基本稳定的立场”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-14.jpg)
 
-综上所述，笔者认为，这是一个中共表面上的文章。具体来说就是，中共已经没招了，没招还假模假样地作秀，演给自己的老百姓看，演给大小中共国的企业家们看，演给各路海内外的投资者看。可是这样的演秀，有啥意义呢？中共国的经济一团糟，众所周知，无法掩盖。
+2 & 3 以太币最新报价 &走势图
 
-按照爆料革命所揭示的中共国的套路，越是它吹嘘厉害，调整到位或者期待实现的，就是它没有的、做不到的和完全实现不了的。因此，它之所以花大力气要强调和致力于稳定其宏观经济，就是说明中共国下的基本经济盘面都不行了，全面都垮塌了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3-6.jpg)
 
-中共国无论运用怎样的经济政策，怎样的货币政策或刺激或稳定或整改，都没有用。这个道理谁都明白，一个奄奄一息必死无疑的体制，靠怎么打强心针，都只是起一时的作用，做不到全面和长期的改善。唯一能够的改变的，就是灭除中共,改换体制。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-3.jpg)
 
-参考消息：
+4. 中共国继续集权中
 
-[China digs into monetary policy toolbox to stabilise economy (smh.com.au)](https://www.smh.com.au/business/markets/china-digs-into-monetary-policy-toolbox-to-stabilise-economy-20211228-p59kjk.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-3.jpg)
 
-发稿：MG4
+5. 中国信达入股蚂蚁消费金融20%股份
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-3.jpg)
+
+大疆进入美国禁止投资名单
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-3.jpg)
+
+7. 挪威或将明年停止销售内燃机车
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-2.jpg)
+
+8. 哈伯望远镜的继承者韦伯望远镜将到达距离地球150万公里处
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture9.jpg)
+
+9. 10.11 三只松鼠 眯眯眼事件
+
+共产党邪恶的愚民术、戾害国脆弱的玻璃心，自两日前三只松鼠2019年拍的一组眯眯眼模特图被指辱华，后续全国的朝阳大妈，小粉红们又来了一拨揪斗高潮，不是十九大公告说要四个自信：道路自信、理论自信、制度自信、文化自信。自信在哪呢？只是极端的自卑，闭关锁国！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture10.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture11.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture12.jpg)
+
+发布： Hong
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
