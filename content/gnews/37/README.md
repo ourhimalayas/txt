@@ -2,45 +2,28 @@
 ---
 
 
-## 太空碰瓷：中国空间站投诉险遭SpaceX卫星碰撞
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800834/)
+## 西安民众快断粮，怒批中共当局非人性防疫措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1800900/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s1.jpg)图片来源：德国之声
+据德国之声中文网12月29日报道，中共国陕西省西安市27日升级防疫措施，禁止所有居民出门。有网民在微博抱怨生活物资缺乏，几乎要断粮。当局已经连夜配送肉蛋奶等生活物资，但仍未止息民怨。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Starlink.jpg)
+中共的封锁隔离是真的把家变成监狱，门上贴封条算温和的，甚至会直接把门从外面钉上，哪怕居民饿死、病死在家里都不能出门，政府负责上门收尸。就是这样没有人性的黑帮组织，统治了中国七十年，造成了几亿人非正常死亡。这一次中共全球释放病毒，中共国人民又一次成为最大的受害者。在中共的强权之下，中共国一半以上的人口已经接种了毒疫苗。
+
+据新中国联邦郭文贵先生爆料，此次西安封城是疫苗导致的灾难。强行施打的疫苗导致了变异病毒的出现，并不可控制地迅速传播。病毒是中共制造的生化武器，疫苗是比病毒更高级的生化武器，且变异性极强。西安的惨剧只是疫苗副作用的开始，之后不可逆转的疫苗灾难必定会在全球各地大面积爆发。
+
+新闻参考链接：[https://www.dw.com/zh/全球疫情西安民众称快断粮-欧洲力抗奥密克戎/a-60282964?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964?maca=chi-rss-chi-all-1127-rdf)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-
-图片来源：slashgear.com
-
-
-#### 整理/编辑：小红帽
-
-根据德国之声中文网12月28日报道 , 中国常驻联合国代表团在12月3日向联合国秘书长古特雷斯（Antonio Guterres）提交照会，内容关于美国公司SpaceX发射的星链（Starlink）卫星先后两次接近中国空间站。
-
-“中国于2021年实施了5次发射任务，将空间站天和核心舱、天舟二号、天舟三号、神舟十二号和神舟十三号发射入轨”，一份于和平利用外层空间委员会（UNOOSA）官网上发布的文件内容提到。
-
-期间，美国公司SpaceX发射的星链卫星两度过于接近中国的空间站，导致中方人员必须出于安全考虑，在7月1日和10月21日实施对星链卫星的预防性碰撞规避控制“紧急避碰”。
-
-中国代表团认为，这种行为对中国空间站搭载的航天员生命健康构成危险，所以有必要向联合国秘书长通报。
-
-代表团引用《外空条约》第 6 条：“各缔约国对其（不论是政府部门，还是非政府的团体组织）在外层空间（包括月球和其他天体）所从事的活动，要承担国际责任，并应负责保证本国活动的实施符合本条约的规定。”
-
-对于此事在中国媒体的造势下引起轩然大波，马斯克和美国政府目前皆未对相关新闻作出回复。
-
-新闻来源：[空间站险遭SpaceX卫星碰撞 中国向联合国投诉 | 科技环境 | DW | 28.12.2021](https://www.dw.com/zh/%E7%A9%BA%E9%97%B4%E7%AB%99%E9%99%A9%E9%81%ADspacex%E5%8D%AB%E6%98%9F%E7%A2%B0%E6%92%9E-%E4%B8%AD%E5%9B%BD%E5%90%91%E8%81%94%E5%90%88%E5%9B%BD%E6%8A%95%E8%AF%89/a-60274857)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

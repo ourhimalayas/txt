@@ -2,56 +2,30 @@
 ---
 
 
-## 2021年12月29日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800853/)
+## 俄克拉荷马州联邦法官判决国民警卫队接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1800934/)
 
-撰稿人：文远Bruce
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-39.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-23.jpg)图片来源：TheHiu
+12月28日，《国会山报》报道，针对俄克拉荷马州阻止国防部对国民警卫队强制接种中共病毒（COVID-19）疫苗，一位地区联邦法官对此请求予以了拒绝。
 
-澳大利亚新洲日感染中共生化病毒人数超万
+根据国防部的规定，空军国民警卫队和空军预备役人员强制接种中共病毒疫苗的最后期限是12月2日，而陆军国民警卫队成员为明年6月30日。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-14.jpg)
+对此，11月份，州长凯文·斯蒂特（Kevin Stitt）要求国防部长劳埃德·奥斯汀（Lloyd Austin）免除他的州国民警卫队强制接种中共病毒疫苗。后来，州长任命了俄克拉荷马州国民警卫队的新负责人托马斯·曼奇诺（Thomas Mancino）准将，这位将军写了一份备忘录，规定该州的警卫队成员都不被要求接种中共病毒疫苗。
 
-2 & 3 以太币最新报价 &走势图
+本月早些时候，奥斯汀拒绝了州长斯蒂特提出的让俄克拉荷马州国民警卫队免于接种中共病毒疫苗的要求，并威胁要扣留不遵守规定的警卫队成员的工资，因此，斯蒂特和司法部长约翰·奥康纳（John O’Connor）起诉了五角大楼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3-6.jpg)
+但是，周二，在一份29页的裁决中，美国地区法官斯蒂芬·弗里奥特（Stephen Friot）拒绝了俄克拉荷马州州长凯文·斯蒂特（R）和司法部长约翰·奥康纳提出的初步禁止该强制接种中共病毒疫苗的动议，称原告的主张没有法律依据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-3.jpg)
+报道指，这场反反复复的争论主要围绕国民警卫队所依据的两项联邦法规展开。美国法典第32章将国民警卫队置于州长的控制之下，但第10章又将其置于联邦控制之下。
 
-4. 中共国继续集权中
+对于该判决，司法部长奥康纳办公室在一份电子邮件声明中说：“我们对弗里奥特的决定感到失望。……如果总统的强制接种（中共病毒）疫苗实际上（导致）降低了国家的军事准备（能力），而不是促进它。对此，我们不会感到惊讶”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-3.jpg)
+**新闻来源**
 
-5. 中国信达入股蚂蚁消费金融20%股份
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-3.jpg)
-
-大疆进入美国禁止投资名单
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-3.jpg)
-
-7. 挪威或将明年停止销售内燃机车
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-2.jpg)
-
-8. 哈伯望远镜的继承者韦伯望远镜将到达距离地球150万公里处
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture9.jpg)
-
-9. 10.11 三只松鼠 眯眯眼事件
-
-共产党邪恶的愚民术、戾害国脆弱的玻璃心，自两日前三只松鼠2019年拍的一组眯眯眼模特图被指辱华，后续全国的朝阳大妈，小粉红们又来了一拨揪斗高潮，不是十九大公告说要四个自信：道路自信、理论自信、制度自信、文化自信。自信在哪呢？只是极端的自卑，闭关锁国！
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture10.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture11.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture12.jpg)
-
-发布： Hong
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
+[Federal judge rejects Oklahoma’s bid to block National Guard vaccine mandate](https://thehill.com/policy/defense/587560-federal-judge-rejects-oklahomas-bid-to-block-national-guard-vaccine-mandate)
 
  
 
