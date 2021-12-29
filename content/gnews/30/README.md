@@ -2,10 +2,10 @@
 ---
 
 
-## 在日留学生受中共军方指使诈骗，被日本警方通缉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1799862/)
+## 美国单日新增超51万人确诊中共病毒，创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1799927/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._29-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1229-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

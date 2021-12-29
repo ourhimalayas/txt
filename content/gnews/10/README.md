@@ -2,30 +2,57 @@
 ---
 
 
-## 上海航空公司防疫新规导致达美航空航班中途折返
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1800356/)
+## 疫情数据：美国创下单日COVID-19新增病例记录 441,278 例
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1800403/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D8CD7F46-F53B-48F8-ABE6-33DEA2E3F0F4.png)
+**12****月****28****日，据****thehill****报道，根据疾病控制和感染中心的数据，美国周二创下了新的**** COVID-19 ****感染单日记录，新增病例**** 441,278 ****例。**** **
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/089D5759-EB44-498D-BFAA-BFB822C68485.jpeg)（图片来自《美国之音》）
+**这一数字超过了前期高点： 12 月 20 日报告的约 290,000 例。同时，该数据也超过了在去年 1 月疫苗广泛接种之前创下的每日 294,015 例的记录。**
 
-据《美国之音》12月28日报道，上海浦东机场实施的中共病毒防疫新消毒措施，导致美国达美航空公司从西雅图起飞的一个航班途中折返。
+**创纪录的病例数代表了 的严峻现实，该变种已被证明是美国自大流行开始以来最易传播的新型冠状病毒株。 **
 
-达美航空公司通过电子邮件发布的一份声明说，上海浦东机场实施的新规定，需要大幅延长（飞机）地面停留时间，这对达美航空公司而言在营运上是完全不可行的。
+**但根据**** CDC ****的说法，数据还不完整，因为许多测试站点在圣诞节期间关闭，各州仍在整理积压的病例。**** **
 
-据悉,此次被迫返回的达美航空公司DL287号航班原计划21日晚22点59从西雅图-塔科马国际机场起飞，中途在韩国仁川停留，于23日22点10分抵达上海浦东机场。但是，该航班在终于起飞并飞行了6个多小时后又返回西雅图机场，给机上168乘客，其中大部分是留学生带来极大困扰和不便，有些留学生来自美国其他城市，有些留学生已经退掉了原来租住的公寓，卖掉了汽车。国回不成，返回美国又无家可归，有的还面临签证到期非法滞留的问题。
+**Omicron ****是目前美国大部分感染的罪魁祸首，使感染人数猛增，即使在疫苗接种率很高的地区也不例外。**
 
-台湾航空业者向台湾中央社证实，上海浦东机场从12月24日开始实施新的消毒杀菌措施，使原本只需要两个小时的清理作业时间延长到7个多小时。
+**一些健康专家认为，美国需要开始摆脱对病例数的关注，而更加重视住院和死亡人数。**
 
-*参考链接：[达美航空公司：上海新冠防疫规定迫使航班中途返回](https://www.voachinese.com/a/deltar-flight-to-shanghai-turned-back-due-to-covid-rules-20211227/6371268.html)*
+**但是，**** omicron ****造成的病例数激增引起了真正的担忧。随着越来越多的人被感染，更多的人可能需要住院治疗，正在给医疗系统带来更大的压力。**
 
-* * *
+**[新闻来源](http://：https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-)**
 
-*素材采编：子辰*
+**[https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-](https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-record)**
 
-*编辑：文顺*
+编译/玫瑰天空
+审阅/神之一手
+上传/🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg)
+**推出问题，敲出真相，爆料在路上！**
 
-*发布：miumiu*
+**请关注和订阅我们的以下账号：**
+
+新西兰伊甸农场盖特👇
+
+[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
+
+【玫瑰看新闻】盖特👇
+
+[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
+
+玫瑰看新闻YouTube账号👇
+
+[玫瑰看新闻](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
+
+[黑森林的故事](https://youtube.com/channel/UC7GG4NwpE8VqSZQBHS1tp1A)
+
+[Rose news](https://youtube.com/channel/UCRaAQxHogieKRmOtZ1vP6Ew)
+
+【玫瑰看新闻】推特账号👇
+
+[Rose News (@RoseNews4)](https://twitter.com/rosenews4?s=11)
+
+
 
  
 
