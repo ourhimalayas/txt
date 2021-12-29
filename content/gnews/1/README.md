@@ -2,31 +2,22 @@
 ---
 
 
-## 澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800546/)
+## 中（共）国外交部告状，说美卫星接近中国空间站
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800561/)
 
-**翻译：小鱼儿**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-361.jpg)图片来源：Forbes
-澳大利亚演员休-杰克曼在纽约工作时对COVID-19检测呈阳性。这位金刚狼明星在社交媒体上通知他的粉丝，他在周三上午（当地时间）为他主演的一部音乐剧进行例行抽查时，检测结果呈阳性。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1633.png)[图片来源](https://news.yahoo.co.jp/articles/5e18193c0c7e2f018ff2024fcea6bebc03483326#:~:text=%E3%8)
+《朝日电视》网站12月29日报道，据悉，中(共）国政府已经通知联合国，说中共国正在建造的一个空间站与美国SpaceX公司的一颗卫星之间发生了险情。
 
-在一个35秒的简短视频中，他说他希望他的数千名粉丝从我这里知道这个消息。他说，”我的症状就像感冒，我的喉咙发痒，有点流鼻涕，但我很好，”杰克曼边说边戴着黑色面罩。”我只是要尽快做我能做的一切，一旦我的病好了，我就会回到舞台上。”他向粉丝们保证他做得很好，并敦促大家保持安全和善良。
+12月初，中（共）国政府向联合国报告说，在今年7月和10月，美国电动汽车巨头特斯拉的创始人埃隆·马斯克领导的“SpaceX”卫星两次接近中国空间站“天宫”，中共政府都采取了行动,并向联合国报告已采取行动避免了相撞。
 
-杰克曼正在百老汇主演《音乐人》，该剧在圣诞节前刚刚开演。几天后，在联合主演萨顿·福斯特对COVID-19检测呈阳性后，它被迫取消了一些演出。这将是该剧的第二次停演，新年的演出被重新安排，杰克曼预计要到1月6日才会回来。这位深受观众喜爱的澳大利亚人已经注射了两个剂疫苗，并在12月5日接受了加强针注射。
+12月28日中(共）国外交部批评美国，说它应该为国内公司的太空活动负责。
 
-纽约目前正处于感染率激增的阶段，该州在周二记录了超过31,000个病例。美国的病例也在激增，有233,485例感染报告。周二，美国疾病控制和预防中心建议将COVID阳性患者的隔离期从10天减半为5天。
+信息源：[中国宇宙ステーションに米衛星が接近　外務省が批判](https://news.yahoo.co.jp/articles/5e18193c0c7e2f018ff2024fcea6bebc03483326#:~:text=%E3%8)
 
-参考新闻：[Hugh Jackman forced to postpone The Music Man production return after testing positive to COVID-19](https://www.skynews.com.au/australia-news/coronavirus/hugh-jackman-forced-to-postpone-the-music-man-production-return-after-testing-positive-to-covid19/news-story/0229a5dd2f4c29b01d19853f2ab3b6c5)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
