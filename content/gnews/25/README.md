@@ -2,20 +2,57 @@
 ---
 
 
-## 秘翻在线: 北京协和医学院马克思主义学院揭牌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1799536/)
+## 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799595/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2](https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-1-2.jpg)图片来源：新浪网
-据新浪网12月27日报道，中国医学科学院北京协和医院日前成立了马克思主义学院。
+**郭文贵**
+**Miles Guo**
 
-北京协和医学院校长王辰在成立大会上宣读了关于成立马克思主义学院、领导班子任职及成立马克思主义学院专家委员会的系列决定。副院校长姚建红表示要把马克思主义学院作为重点学院，马克思主义理论学科作为重点学科，思想政治理论课作为重点课程予以建设，以全新思路和得力举措把马克思主义学院打造成学习、研究、传播马克思主义的坚强阵地。国家卫生健康委副主任曾智新表示马克思主义学院要在政治引领、开放办院、协同育人、服务社会上下功夫，聚焦马克思主义在卫生健康领域的运用规律研究，健全以马克思主义为指导的中国特色医学人文学科建设，发挥最高医学研究机构和最高医学教育机构的示范引领作用，努力建成一流的马克思主义学院。
+但是现在上天赐予了新中国联邦一个机会
+But now God has granted a chance to the New Federal State of China
 
-一所有百年历史、享有盛名的医学院，曾培养出几十万名优秀医疗人员、救人无数的学术殿堂，竟堕落到开办马克思主义学院。作为受过西方教育的博士后，呼吸病学专家的王辰无视科学，将马克思主义引入治病救人的神圣殿堂， 显示出中共国全面向毛时代倒退，不断强化对全民及年轻一代的洗脑教育。这个行为既是中共上层的政治需求和压力，也是基层跟风进行政治投机的结果。 不灭中共，中国人就不能摆脱共产主义这条枷锁。
+全世界需要一个没有政治、没有政府操控的、无国界的、超级安全的、尊重个人隐私、保证个人财富升值和绝对全球通的货币
+The world needs a currency that has no politics, no government control, no borders, super safe, respect for personal privacy, guarantees for the appreciation of personal wealth, and absolute global access
 
-**新闻来源：**[北京协和医学院马克思主义学院揭牌|北京协和医学院|医学|马克思主义\_新浪新闻 (sina.com.cn)](https://k.sina.com.cn/article_7414213139_1b9ebea13020013zia.html)
+那就是我们的喜币，它需要一个过程
+That is our Hcoin, it needs a process
+
+如果你不等到那个过程，肯定你会被淘汰出去
+If you can’t wait for that process, you will definitely be out of the game
+
+那就像未来这个过程当中，发挥重要作用的就是这些媒体平台
+It’s like these media platforms will play an important role in this process in the future
+
+让更多人知道如何使用喜币，然后尊重喜币
+Let more people know how to use Hcoin, and then respect Hcoin
+
+可把喜币发挥出应有的价值，那跟GTV、Gnews、Gettr都有巨大的关系
+It can play out the value of HCoin, which has a huge relationship with GTV, Gnews, and Gettr
+
+我不说你们懂的
+I don’t have to say, you understand
+
+**原视频链接: **[https://gettr.com/post/pkqhfs1eb8](https://gettr.com/post/pkqhfs1eb8)
+
+Date: 12/27/2021
+原视频标题: 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
+Mr. Miles Guo: Hcoin has no borders, no government control, globalization description
+原视频日期：2021/12/24
+原视频链接 https://gettr.com/post/pkqhfs1eb8
+任务编号：KC375（3354）
+视频时间段 : 0:00-0:50
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

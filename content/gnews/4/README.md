@@ -2,44 +2,159 @@
 ---
 
 
-## DC大中华时事：中共发布2021国内十大新闻
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1799772/)
+## Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799792/)
 
-*编辑：映兰轩 / 作图：*中华之光
+[https://gtv.org/video/id=61ca063943ccb726a08c516d](https://gtv.org/video/id=61ca063943ccb726a08c516d)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+**郭文贵
+Miles Guo**
 
-#   墙国妄语每日驳
+这个女人，这个Isobel Yeung和VICE和HBO之阴歹
+This woman, how evil of Isobel, VICE, and HBO
 
-### **12.27. 央视网：中央广播电视总台发布2021国内十大新闻**
+我告诉你文疯而动
+let me tell you Wenfeng,
 
-1*庆祝中国共产党成立100周年大会隆重举行 习近平庄严宣告中华大地全面建成小康社会2 党的十九届六中全会胜利召开 审议通过《中共中央关于党的百年奋斗重大成就和历史经验的决议》3 我国经济发展和疫情防控全球领先 “十四五”开局良好4 “发展全过程人民民主”彰显制度优势 全面依法治国深入推进5 碳达峰碳中和顶层设计文件出炉 我国生态文明建设开启新阶段6 全年粮食产量创下新的历史纪录7 第七次全国人口普查数据发布 中国仍为世界第一人口大国8 中国航天进入“空间站时代”　9 香港完善选举制度后的首次立法会换届选举成功举行 “爱国者治港” 确保“一国两制”行稳致远10 华为首席财务官孟晚舟安全回国 美国“长臂管辖”打压别国企业遭遇重大挫败*
+在新西兰这种国家
+in a country like New Zealand,
 
-**简评：上述十条是中共精心挑选出来的“十大赞歌及洗脑宣传”，其内容已经脱离新闻本质，或者根本不能称其为“新闻”，它是中共一贯的又臭又长的“述职报告”。轮不到郑州大水灾导致的死人报道，也没有甘肃白银马拉松冻死数十优秀运动员的报道，更没有类似恒大地产债务违约的报道，等等。总之，负面新闻是一个也不当选，这样自我意淫也是天下之最。此外，为了选出“自我标榜”的十条，一群庞大的“高级干部”队伍工作一年，从“造新闻、播新闻、选新闻”一条龙作业，可谓不惜代价花了巨额民脂民膏，政府本身不创造财富，买单的还是中国人民而已。**
+就像德国一样，就像那个奥地利是一样的
+Germany and Austria
 
-### 12.27.环球时报：社评：乌克兰危机，华盛顿在危险边缘精心算计
+历史上永远是重复的
+this will always be repeated in history
 
-*美国副总统哈里斯26日表示，鉴于当前乌克兰局势，美国将与盟友合作，准备好对俄罗斯实施“史无前例的制裁”。此前，美俄双方就乌克兰局势相互指责，美国宣称俄罗斯在边境地区的军演可能是“入侵”乌克兰的前奏，而俄罗斯则表示有权力在自己领土上调动军队，并要求北约的力量部署不得进入乌克兰。美国不可信，这一点不仅验证在乌克兰身上，也同样适用于俄罗斯。通过制造纷争、分裂、冲突、对抗来确保自己始终占据优势地位，这是华盛顿在国际事务中的一贯伎俩。无论是在俄罗斯家门口部署导弹，还是对中国沿海地区搞“抵近侦察”，或者派出军舰通过台海，都是华盛顿在不停地伸出触角试探它所认定的两个最大“对手”，伺机寻找任何可以打入楔子的地方。美国也许并没有计划与俄罗斯或中国开战，但它希望在这两个对手周边保持某种程度的紧张和动荡，因此它不停在舆论上宣扬俄中两个版本的“威胁论”，同时拉着盟友一起施压，试图逼俄罗斯和中国从各自的核心利益上往后退。*
+就奥地利这个小破国家就永远培养这种独裁
+Just a small poor country like Austria has cultivated this dictatorship forever
 
-*今天发生在欧洲东部的事情给中国人上了很好的一课，那就是美国从未改变其从地区紧张中渔利的对外政策，中国也不可能通过“服软”来换取一个安宁的发展环境。中国必须坚定不移地按照自己的节奏向前走，在这个过程中改变美国“从实力和优势地位”对华施压的念头，这是我们作为一个大国与美国相处的最重要法则*。
+看这次（强制）疫苗
+Looking at this (mandatory) vaccine,
 
-**简评：细心的观众发现党媒在“挑拨离间”国际关系上下足了功夫，不可小觑，这是中共取得局部胜利的法宝之一。在国内，不管是政府还是国企或者披着民企的外衣行国企之实质的公司中，中共会让他们设置相当于“党委书记和总经理”职能的并列岗位，让之间彼此牵制彼此斗争，上级从中受益。他们的理论是，如果下级太团结就会把上级孤立，只有下级互相打，作为上级就会在摆平和协调下级的关系中树立自己威信。在国际关系上中共也运用这种战术，极尽挑拨各国关系，特别是美俄之间互斗。但表面上，中共却口口声声倡导世界和平、命运共同体，这就是它欺骗的本性。可喜的是，西方国家渐渐认识到这个因素，希望越来越多的人看透中共的本质并且一起消灭它。**
+它又是一马前锋，走极端
+it is once again a striker, going to extremes
 
-### 12.27.人民日报：山东平度一官员威胁上访者？官方通报：停职并道歉 
+新西兰这种国家
+The countries like New Zealand,
 
-*12月26日，山东平度市通过官方微博通报对此前平度市云山镇党委书记王丽言语失当情况的处理结果。通报全文如下：近日，网民反映平度市云山镇党委书记王丽在做群众工作时，方法简单、言语失当、作风粗暴，造成不良影响。问题发生后，平度市委高度重视，12月26日，对王丽作出停职调查处理，责令其向当事人赔礼道歉。平度市委已成立调查组，对事件进行调查，依法依规处置。**官员威胁“有100种方法去刑事他儿子”**。据网传录音，王丽称“举全平度之力，我们无论是从武力、物力、人力、财力、精力都耗得起他”“我豁上了，我有一百种方法去刑事他儿子，我不过是现在还不愿去用那些方法”。*
+还有像澳大利亚这种国家，像英国这种国家
+as well as Australia and the United Kingdom,
 
-**简评：中共自上而下对上访者都有一套策略，这官员做法绝不是个例，而且在众多迫害上访者的案例中属于小儿科而已。之所以这样说，是因为多少上访者被关进小黑屋直接被虐待、酷刑而死，事先根本不会给警告，轮不到费钱费力费脑筋被“刑事”，也不会有音视频流露出来。最近彭帅在微博上揭露张高丽性侵自己的事件，不就是一次“网络上访”吗？她既没有得到理解也没有得到正义，而是迅速被删帖闭嘴、被限制人身自由，被几波人轮番“伺候”，最后还被请去“觐见习皇帝”，父母和亲人也受牵连。所以，这是制度之恶，停职了一个王丽还有无数的张丽孙丽出现。个体只是枝叶，只有把中共这个邪恶的树根拔掉才能彻底解决问题。**
+它走极端的时候
+when it goes to extremes,
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/925430004597293136/20211228C.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/925430004844732416/20211228B.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/925430005079605379/20211228A.jpg?width=1043&amp;height=586)
+你当地的华人永远是少数的
+the local Chinese population will always be a minority
 
+发生印尼排华事件真的一点都不遥远呐
+and incidents like Indonesian anti-Chinese incidents would really not be far away
 
+所以这个女人，还有这个采访之阴歹
+That’s why the evilness of this woman（Isobel Yeung）and her interview
 
+把华人置于全球各国的所谓的恐怖主义（势力），影响政治、改变你政治
+would have put the Chinese people overseas on the list of the so-called terrorist power to influence politics and to change politic
 
-*编辑：*映兰轩
-*作图：中华之光
-发布：文顾*
+你不处理它，它就改变你政治
+It (Isobel’s interview fractionally published on VICE and HBO) will change the politics if you don’t deal with it
+
+最后, 你要看到她采访
+Finally, you have to see her interview
+
+她在那块记录着, 她根本不在乎你怎么回答
+She was taking note there and would be careless of how you answered at all
+
+她把问题问出来就赢了
+She had already achieved her goal upon asking questions
+
+如果咱没有摄像机
+If we didn’t have the recorder camera (at that time), we would not have the ability to explain ourselves,
+
+你满身是嘴你也说不清啊
+even if the body is full of mouth, but also can not explain myself
+
+如果我嘴再笨点，你全身都是嘴, 你也憋死
+If I was clumsy a little bit (during Isobel’s interview), I would be suffocated to death even though I have mouths all over my body
+
+能憋死你每句话
+Every sentence would have made you suffocate to death
+
+滕彪说我乱伦我侄媳妇
+Teng Biao defamed me saying that I was incest with my niece
+
+结果变成了我说滕彪是乱伦
+As result, he said that I criticized him the incest
+
+你想有多可怕！
+Think about it, how terrible it is!
+
+GTV，她说我们是骗子
+About GTV, She (Isobel) said that we are scammers
+
+那很简单，谁被骗了？
+That’s so simple, who was deceived?
+
+这种垃圾话她能给你弄出去
+She could push such trash words out
+
+因为所有人看（时）没有人细琢磨，哎，对对对，他是骗子
+because no one would ponder when watching and would agree that I’m a liar
+
+然后最后说你觉得他怎么样？
+Then, in the end, saying what do you think of him (Miles Guo)?
+
+他会把中国人带入地狱
+He would take the Chinese people to hell
+
+我咋把中国人带入地狱？
+How do I bring the Chinese people into hell?
+
+我爆料我们四五年来，你有没有想过
+Our whistleblower movement has been going on for 4 or 5 years, have you thought about that?
+
+我们把（任何）一个中国人带入地狱了吗？
+Have we ever brought any Chinese person to hell?
+
+怎么能（说我们）把中国人带入地狱？
+How can she say that we are bringing Chinese people into hell?
+
+她让中国人恨我们
+She makes the Chinese people hate us
+
+你看到没有？
+Have you realized that?
+
+不但让美国、西方世界恨爆料革命
+Not only she has made the United States and the Western world hate our whistleblower movement,
+
+她让螃蟹的嘴说出来
+but also made Pangxie expressed
+
+中国人要恨这个爆料革命、新中国联邦
+Chinese people need to have hatred on our whistleblower movement and the New Federal State of China
+
+这个之阴歹跟当年印尼排华一模一样
+This evilness is exactly the same as the Anti-Chinese incidents in Indonesia back then
+
+* * *
+
+Date: 12/25/2021
+原视频标题: Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+The Viciousness of Isobel is to Let The Whole World Having Hatred on The Whistleblower Movement
+原视频日期：2021/12/24
+原视频链接: [https://gettr.com/post/pkm5lieabf](https://gettr.com/post/pkm5lieabf)
+任务编号：KC373（3335）
+视频时间段 : 0:00-02:08
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 -银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

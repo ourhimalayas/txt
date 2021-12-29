@@ -2,57 +2,31 @@
 ---
 
 
-## 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799595/)
+## 【中日财经爆】中共国房地产崩塌毋庸置疑 对日本影响接踵而至
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1799616/)
 
-[https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2](https://gtv.org/video/id=61cb03cf43ccb726a08ca1f2)
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-12.png)[*图片来源*](https://jpreturns.com/article/wp-content/uploads/2021/03/13939d81504d8bfe870d5874a863c248-e1616640983589.jpg)
+在2022年，中共国的房地产泡沫破裂几乎是肯定的。事实上，即使在目前，它也几乎要崩溃了。然而，却很难知道到底发生了什么，因为在这个国家没有新闻自由。一些大公司如恒大集团，已陷入部分债务违约，房地产价格似乎已经下降。
 
-**郭文贵**
-**Miles Guo**
+毫无疑问，中共国的房地产泡沫是人类历史上最大的，它的崩溃将对全球经济和日本经济产生多大的影响尚有待观察。然而，媒体上的大多数观察评论文章都说不会有什么影响。如果他们不知道，就应该如实写不知道，一厢情愿地认为不会有影响是极不负责任的。
 
-但是现在上天赐予了新中国联邦一个机会
-But now God has granted a chance to the New Federal State of China
+2008年9月，当雷曼兄弟公司在美国倒闭时，大多数日本媒体和经济学家最初都认为影响很小。然而，第二年即2009年，日本陷入了巨大的经济衰退。东京充斥着失业者，于是当时设立了“派遣村”，为他们提供食物和其他服务。结果自民党在2009年的大选中下野，前首相安倍称“日本民主党政府的噩梦”会持续大约三年。与此同时，东日本大地震也发生了……
 
-全世界需要一个没有政治、没有政府操控的、无国界的、超级安全的、尊重个人隐私、保证个人财富升值和绝对全球通的货币
-The world needs a currency that has no politics, no government control, no borders, super safe, respect for personal privacy, guarantees for the appreciation of personal wealth, and absolute global access
+只有在2013年启动了安倍经济学之后，日本才感受到些许经济复苏。回过头来看，1990年代日本泡沫经济的破灭对全球经济只有很小的影响。如果在这个例子的基础上考虑中共国房地产泡沫的破裂，日本经济应该不会受到太大的影响。
 
-那就是我们的喜币，它需要一个过程
-That is our Hcoin, it needs a process
+日本 2021 年 7 月至 9 月期间的 GDP 调整后，增长率为负 3.5%，这是明显的衰退，然而奇怪的是，日本市中心的新公寓现在反而十分走俏，销售形势大好。除了最初的住房需求外，还有其他力量在起作用。这是一个不健康的易泡沫化的投机性需求，其中力量之一是来自中共国的资金外逃。中国主要城市的黄金地段相比，日本的房地产看起来便宜。  “你可以用在上海买一套公寓的价格在东京买一栋楼”，这是在过去一年左右经常听到的一句话。
 
-如果你不等到那个过程，肯定你会被淘汰出去
-If you can’t wait for that process, you will definitely be out of the game
+如果中国房地产泡沫在2022年内崩塌，使中国经济整体陷入负增长，那么也会导致一些日本公司业绩不佳，经济衰退将加剧。日本经济的放缓、对房地产市场产生的不利影响最早将在2022年下半年出现。全面的下行压力可能要到2023年后才会出现。
 
-那就像未来这个过程当中，发挥重要作用的就是这些媒体平台
-It’s like these media platforms will play an important role in this process in the future
+笔者认为中共国房地产的崩盘对日本乃至全球产生的影响将是人类有史以来最为严重的，因中共早已绑架了全世界的经济与政治，正所谓习大神向全世界鼓吹的“人类命运共同体”。
 
-让更多人知道如何使用喜币，然后尊重喜币
-Let more people know how to use Hcoin, and then respect Hcoin
+信息来源：[**中国不動産のバブル崩壊は「確実」　日本への影響は２３年以降か　今はなぜか日本の都心部の新築マンション販売が好調だが…？**](https://news.yahoo.co.jp/articles/c379704525dc244abde68eb6a118e3ee31d11460)
 
-可把喜币发挥出应有的价值，那跟GTV、Gnews、Gettr都有巨大的关系
-It can play out the value of HCoin, which has a huge relationship with GTV, Gnews, and Gettr
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-我不说你们懂的
-I don’t have to say, you understand
-
-**原视频链接: **[https://gettr.com/post/pkqhfs1eb8](https://gettr.com/post/pkqhfs1eb8)
-
-Date: 12/27/2021
-原视频标题: 郭文贵先生: 喜币无国界，无政府操控， 全球化描述
-Mr. Miles Guo: Hcoin has no borders, no government control, globalization description
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pkqhfs1eb8
-任务编号：KC375（3354）
-视频时间段 : 0:00-0:50
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
