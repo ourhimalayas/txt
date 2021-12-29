@@ -15,86 +15,86 @@
 
 ---
 
-### [美官员建议缩短中共病毒的隔离检疫期](/content/gnews/1/README.md)
+### [中共国网民抨击马斯克](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯法院对谷歌和元宇宙(Meta)平台未删除违规内容处以高额罚款](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [佛罗里达州计划调查该州对中共国公司的投资](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [香港警方以涉嫌串谋发布煽动刊物罪逮捕6名记者](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [CTF发布2022年税收变化](/content/gnews/6/README.md)
+### [冬天来了：世界各国政府因 Omicron加强封锁限制](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [秘翻在线: AI独角兽“商汤”赴港上市](/content/gnews/7/README.md)
+### [美官员建议缩短中共病毒的隔离检疫期](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共国加入世贸组织20年后的教训](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯法院对谷歌和元宇宙(Meta)平台未删除违规内容处以高额罚款](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [佛罗里达州计划调查该州对中共国公司的投资](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [香港警方以涉嫌串谋发布煽动刊物罪逮捕6名记者](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [CTF发布2022年税收变化](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [秘翻在线: AI独角兽“商汤”赴港上市](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19护照和微芯片植入：超人类主义和生物权力](/content/gnews/8/README.md)
+### [COVID-19护照和微芯片植入：超人类主义和生物权力](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [尽管发生了种族灭绝，有哪些公司在赞助北京奥运会？](/content/gnews/9/README.md)
+### [尽管发生了种族灭绝，有哪些公司在赞助北京奥运会？](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安省新增再超万例三地破千 政府拟修改隔离要求](/content/gnews/10/README.md)
+### [安省新增再超万例三地破千 政府拟修改隔离要求](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [香港又闻犬吠声](/content/gnews/11/README.md)
+### [香港又闻犬吠声](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [Kitchener女子被指控遗弃新生儿](/content/gnews/12/README.md)
+### [Kitchener女子被指控遗弃新生儿](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [文贵爆料12.29: 坚持到最后 喜币一定会成为世界数字货币规则的制定者和开拓者](/content/gnews/13/README.md)
+### [文贵爆料12.29: 坚持到最后 喜币一定会成为世界数字货币规则的制定者和开拓者](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月29日文贵先生直播摘要及音频—银河系农场](/content/gnews/14/README.md)
+### [2021年12月29日文贵先生直播摘要及音频—银河系农场](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [加拿大西部继续处于极寒冷警告之下，某些地区达到-50摄氏度](/content/gnews/15/README.md)
+### [加拿大西部继续处于极寒冷警告之下，某些地区达到-50摄氏度](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [安省医生呼吁不要来急诊检测新冠](/content/gnews/16/README.md)
+### [安省医生呼吁不要来急诊检测新冠](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [被挤出加拿大:中国移动CMLink业务今日停止运营](/content/gnews/17/README.md)
+### [被挤出加拿大:中国移动CMLink业务今日停止运营](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [文贵爆料 12.29：“铁幕”缓缓落下——拜登“国防支出法案”出炉](/content/gnews/18/README.md)
+### [文贵爆料 12.29：“铁幕”缓缓落下——拜登“国防支出法案”出炉](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首](/content/gnews/19/README.md)
+### [Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [银河快讯:日本加入东盟防卫“热线”；中共军方指导留学生非法购买日本安全软件](/content/gnews/20/README.md)
+### [银河快讯:日本加入东盟防卫“热线”；中共军方指导留学生非法购买日本安全软件](/content/gnews/23/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [印度组织呼吁政府调整数字货币政策](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西媒头条 — 第141期](/content/gnews/22/README.md)
+### [西媒头条 — 第141期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第39期](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/24/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/25/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
  ` wenwu`
 
-### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
-
-### [那山，那人，那民 &#8211; 裤带面有感](/content/gnews/27/README.md)
- ` 纽约香草山MOS03`
 
 ### [世界将步入“四国演义”时代](/content/gnews/28/README.md)
  ` GTV新闻访谈`
