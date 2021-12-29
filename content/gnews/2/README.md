@@ -2,32 +2,22 @@
 ---
 
 
-## 有声|“不抢救”政策在疫情大流行期间被非法滥用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800920/)
+## 战狼秦刚被美媒联访后无半家报导 CCTV记者气得跳脚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800991/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据英国媒体12月26日曝光，新冠病毒大流行期间，英国患有自闭症和唐氏综合征的青少年，在全科医生常规预约中广泛存在 “不抢救”政策滥用。
+整理编辑：东京樱花团丨Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-3-1.png)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/1eSoHx9Rfg8eReFhGpIVlg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/EnvVzJABqIRxNrrTleTgPQ--~B/aD01MzM7dz04MDA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/ko/setn.com.tw/e240d0a501195e8f5156896d83d194a4)
+中共国驻美大使秦刚12月20日接受美国主流媒体联合采访，然而事后却没有任何相关报导刊出，让中共国CCTV记者气得跳脚，在微博上发牢骚。
 
-医疗系统中的不抢救政策，通常是指在与病人或其家属讨论生命末期计划后，才会逐一执行。英格兰国家医疗服务体系，曾在新冠病毒大流行期间写信给医生，提醒他们不要随意签发“不抢救”命令。
+中共国官媒《央视》驻美记者韩鹏25日在[微博](https://weibo.com/ttarticle/p/show?id=2309404718292349878326)发文表示，秦刚本月20日接受美国媒体联访，全程以英文进行，而事前双方就协议好内容可供报导，但是过了将近一周，却没有看到相关新闻，相当匪夷所思。韩鹏气得直说，从记者角度看，完全无法理解美国同行这骚操作，「你们那么喜欢拿中共国说事，天天离开中共国说不了话，现在好不容易逮到中共国大使了，问了好几个小时，怎么采完以后都不说话了？」
 
-据悉，今年6月，该政策的滥用至少导致一例患者因无法接受应有的治疗而丧生。另据医疗档案显示，这一“不抢救”命令也曾被非法在有认知障碍的成年人中使用。某慈善机构表示，此类非法命令被滥用的频率，高达一个月20例。
+韩鹏接着整理当天联访的内容，都是些中共大外宣的官话，其中包含秦刚提到「美国有些人对待中共国像家长训斥小孩」、「中共国外交官不是战狼，而是与狼共舞」、「我致力于改善中美关系」、「中俄就像美国与加拿大，作为邻居必须是朋友」、「欢迎美国记者前往北京采访报导冬奥」、「建议美国企业不要只看压力，还要放眼未来，现在谁是世界经济增长的主要引擎？是中共国，等8亿人富裕起来，他们就会花更多钱，这将创造出无穷的购买力」、「如果真有人对中共国发动新冷战，中共国不会是输家」、「新疆晚上可以走在街上，不要依据二手或三手信息下结论」、「中美持续竞争，将推高风险，就像给病人看病不能等发作了再治疗」、「和平不打仗是中美公约数，希望美方认识到台独才是最大威胁」等。
 
-尽管英格兰国家医疗服务体系再次表示：无论是因为医疗条件，还是病人残疾及年龄等原因，一刀切的使用这些命令是不合适的。人们担心错误地使用这些政策 ，会使患有先天认知功能障碍的弱势群体得不到应有的救治。患儿家长们忧虑，此项命令在不知情中已被执行。
+消息来源：[**中共国大使被美媒联访事后没半家报导**](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%A4%A7%E4%BD%BF%E8%A2%AB%E7%BE%8E%E5%AA%92%E8%81%AF%E8%A8%AA-%E4%BA%8B%E5%BE%8C%E6%B2%92%E5%8D%8A%E5%AE%B6%E5%A0%B1%E5%B0%8E-060520574.html)
 
-文字版原文：[“不抢救”政策在疫情大流行期间被非法滥用](https://gnews.org/zh-hans/1798848/)
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
