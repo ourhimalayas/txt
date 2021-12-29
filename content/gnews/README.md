@@ -15,59 +15,59 @@
 
 ---
 
-### [没有人能规划人生,只有跟着感觉把一切变为工具而非目标](/content/gnews/1/README.md)
+### [中共指责美国卫星从“他家门口”走 外交部称美国违反规定](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西安封城政府承诺落空，全城封禁民众弹尽粮绝](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [飞不出裕达飞不出盘古就不会有大亨级七哥和新中国联邦](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [凡规划好人生的职业军人教授科学家律师都是别人的工具](/content/gnews/2/README.md)
+### [赵立坚“闹剧说”嘲笑拜登政府遭打脸 美国重申外交抵制北京冬奥，但派员保护美国人](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [没有人能规划人生,只有跟着感觉把一切变为工具而非目标](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [财务不独立人格不独立视野不宽阔不经历生死何以谈哲学](/content/gnews/3/README.md)
+### [12月28日草根小哥联盟答疑G系列相关文字版](/content/gnews/6/README.md)
+ ` 全球G系列咨服群`
+
+### [浅谈清除中共病毒和疫苗后遗症的原理](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [凡规划好人生的职业军人教授科学家律师都是别人的工具](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [哲学从来没有一个标准是统一的,是探索未来的平台和钥匙](/content/gnews/4/README.md)
+### [财务不独立人格不独立视野不宽阔不经历生死何以谈哲学](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [哲学是对人类的定义，是开启人类和探知未知世界的钥匙](/content/gnews/5/README.md)
+### [哲学从来没有一个标准是统一的,是探索未来的平台和钥匙](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12月25号是齐奥塞斯库被枪毙和王光美拒绝毛泽东的日子](/content/gnews/6/README.md)
+### [哲学是对人类的定义，是开启人类和探知未知世界的钥匙](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [知重点懂取舍爱学习接触信仰人士，父母精神财产排第一](/content/gnews/7/README.md)
+### [12月25号是齐奥塞斯库被枪毙和王光美拒绝毛泽东的日子](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共官二代在海外留学善者不超过一半都不希望中共倒台](/content/gnews/8/README.md)
+### [知重点懂取舍爱学习接触信仰人士，父母精神财产排第一](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/9/README.md)
+### [中共官二代在海外留学善者不超过一半都不希望中共倒台](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/10/README.md)
+### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥庆幸在经历无数事情和魔打过无数次交道后找到佛道](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/12/README.md)
+### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/17/README.md)
  ` 秘密翻译组金融团队`
 
-### [每个人心中都兼具魔和佛的两面,要找到佛的一面要有信仰](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [杰森.米勒：言论自由权是不可剥夺的](/content/gnews/14/README.md)
- ` MG 澳喜农场多语组`
-
-### [佛和魔之间最重要的问题是人对事情的认知对善恶的判断](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [从未见一个有钱有权有名的二代在钱名权光环下活得快乐](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/17/README.md)
+### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [中共首次发布出口管制的白皮书](/content/gnews/18/README.md)
- ` 儒为`
 
 ### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -96,62 +96,62 @@
 ### [福奇必须对在世界上造成大规模死亡“负责”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [研究表明：美国至少有 40 万人死于新冠病毒“疫苗”](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [窥探：日本再创新高的国防预算](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国对数字货币的监管政策即将出炉](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
-
-### [俄克拉荷马州联邦法官判决国民警卫队接种中共病毒疫苗](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [有声|美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [有声|“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/40/README.md)
- ` MOSREC`
-
-### [西安民众快断粮，怒批中共当局非人性防疫措施](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [崩溃的征兆？中国恐慌性囤积世界一半粮食供应](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/43/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [12/29每日播报｜新闻简讯:欧洲病毒肆虐 香港国安拘捕 西安疫情](/content/gnews/44/README.md)
+### [12/29每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/45/README.md)
- ` 日本东京方舟农场`
+### [研究表明：美国至少有 40 万人死于新冠病毒“疫苗”](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|找到生命真相：（三）浅论郭文贵先生的 “感恩” 与 “无性繁殖” 学说的由来](/content/gnews/46/README.md)
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [窥探：日本再创新高的国防预算](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国对数字货币的监管政策即将出炉](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄克拉荷马州联邦法官判决国民警卫队接种中共病毒疫苗](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/39/README.md)
  ` MOSREC`
+
+### [有声|美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/40/README.md)
+ ` MOSREC`
+
+### [有声|“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/41/README.md)
+ ` MOSREC`
+
+### [西安民众快断粮，怒批中共当局非人性防疫措施](/content/gnews/42/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [崩溃的征兆？中国恐慌性囤积世界一半粮食供应](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/44/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [12/29每日播报｜新闻简讯:欧洲病毒肆虐 香港国安拘捕 西安疫情](/content/gnews/45/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/46/README.md)
+ ` 日本东京方舟农场`
 
 ### [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](/content/gnews/47/README.md)
  ` GTV新闻访谈`

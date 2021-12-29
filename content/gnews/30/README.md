@@ -2,28 +2,20 @@
 ---
 
 
-## NFL明星罗杰斯：如果科学不能被质疑，那就是宣传
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801022/)
+## 【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801027/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-9.jpg)图片来源：OX咨询
-亚伦·罗杰斯（Aaron Rodger）是美国国家橄榄球联盟（National Football League）绿湾包装工队（Green Bay Packer）的四分卫。他带领球队取得了超级碗XLV（Super Bowl XLV）的胜利。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1639.png)   图片来源：Reddit
+据《台湾英文新闻网》12月28日报道，在中共对立陶宛和台湾两国施加越来越大压力的情况下，立陶宛议员马塔斯·马尔代基思 (Matas Maldeikis)12月24日在推特上发布了一张立陶宛版的“坦克人”照片，以表达对台湾的支持。
 
-根据11月6日《CBS新闻》的报道，亚伦·罗杰斯在接受采访时承认，自己没有接种中共病毒疫苗，虽然感染了中共病毒，并且有感染症状，但由于服用了伊维菌素，于是48小时很快就痊愈了。
+这张黑白照片拍摄于1991年1月发生的“立陶宛一月事件”中。1991年1月，苏联军队被派往立陶宛，试图重新吞并该国。但和台湾人一样，立陶宛人“不畏任何风险，勇敢地站出来抗议和反对压迫者”。在1月13日的暴力冲突中，苏联军队向抗议者开火，并用坦克碾压他们，导致14人死亡。当天晚上，一名手无寸铁的立陶宛男子独自站在一辆坦克前，有人立即拍下了这经典一幕。这张照片与1989年天安门著名的“坦克人”非常相似，立陶宛也将1月13日这天定为该国的自由捍卫者日（Freedom Defenders’ Day），以纪念立陶宛的争取独立运动。
 
-12月28日，《新闻极限》报道，亚伦·罗杰斯在参加前NFL全职业球员帕特·迈克菲（Pat McAfee）的节目时说：“如果科学不能被质疑……那就是宣传”。
+马尔代基思议员在推特上写道：“正如你们所看到的，无论有什么风险，立陶宛人都会毫不畏惧地站起来反抗压迫者。我们在30年前就为民主而战，现在也不会退缩。这是一张中共政权无法删除的照片。”
 
-他认为：那些说科学不应该被质疑的人，这种谬论等同于宣传，“这就是事实，什么时候科学成为了盲目（相信）？不对真正能够治愈（中共病毒）的东西进行任何辩论。这（样的科学）对我来讲毫无意义”。
-
-在节目中，罗杰斯质疑，为什么没有公开讨论推广健康的生活方式来对抗病毒。“在这整个过程中，没有围绕健康进行真正的对话……（比如）涉及考虑如何更健康生活，以及你的饮食、维生素、运动和这些东西”。
-
-**新闻来源**
-
-[Aaron Rodgers: ‘If Science Can’t Be Questioned…It’s Propaganda’](https://www.newsmax.com/newsfront/aaronrodgers-covid19-vaccine-treatment/2021/12/28/id/1050276/)
-
-[Aaron Rodgers confirms he’s unvaccinated and says he takes ivermectin: “I realize I’m in the crosshairs of the woke mob”](https://www.cbsnews.com/news/aaron-rodgers-packers-covid-vaccine-ivermectin-woke-mob/)
+新闻来源：[MP posts photo of Lithuanian ‘Tank Man’ in solidarity with Taiwan](https://www.taiwannews.com.tw/en/news/4390758)
 
  
 

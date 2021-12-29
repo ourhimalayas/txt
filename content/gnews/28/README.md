@@ -2,53 +2,120 @@
 ---
 
 
-## 研究表明：美国至少有 40 万人死于新冠病毒“疫苗”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1801028/)
+## 12/29每日播报|社媒消息：蓬佩奥 班农先生
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1801042/)
 
-翻译： Jenny Ball
+**BY[秘翻新闻](https://gtv.org/broadcast/watch/61cc2641ecc0b216cbb0eecb)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1638.png)图片来源 ：newstarget.com
+**2021-12-2**9
 
-哥伦比亚大学的研究人员[发现](https://www.wnd.com/2021/12/4968311/)，武汉冠状病毒（Covid-19）“接种疫苗”的真实死亡人数，远高于美国CDC的官方数据。
+**1． 蓬佩奥12月29日发推说：** 中共是我们的敌人，它完全有摧毁我们共和国的企图。
 
-CDC声称只有 20,000 人死于福奇流感注射，但根据哥伦比亚大学的漏报因素估计，实际数字是这个数字的 20 倍，准确的多的死亡人数大约是 40 万。
 
-疫苗不良事件报告系统 (VAERS) 是一个政府运行的疫苗伤害数据库，目前显示，大约 20,000 人死亡，近 103,000 人因Covid “疫苗”注射而住院。截至 12 月 3 日，总共有近 1,000,000 次不良事件与接种有关。
 
-VAERS 的问题在于，它只捕获了非常少的百分比(低至 1%)的疫苗伤害和死亡。因此，科学家们经常使用乘数来估计真实计数。（相关：许多与 Covid 疫苗相关的死亡， [甚至从未进行过尸检](https://naturalnews.com/2021-07-09-post-covid-vaccine-deaths-not-being-autopsied.html)）
+> China is our adversary, and it has every intention of taking down our republic.
+> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475898716108247045?ref_src=twsrc%5Etfw)
 
-这项关于 Covid 疫苗注射死亡的最新研究的摘要解释说，“准确估计 COVID 疫苗引起的严重不良事件和死亡率，对于不同年龄组针对 SARS-CoV-2 冠状病毒的疫苗接种，和加强剂的风险收益比分析，至关重要。 ”
 
-在这项研究中，哥伦比亚大学的科学家们，利用疫苗接种率的区域差异，来预测随后时间段的全因死亡率，和非新冠病毒死亡率。这是基于来自美国和欧洲的两个独立的、公开可用的数据集。
 
-他们发现，注射后六周多，Covid 疫苗与死亡率呈负相关。然而，在五周内，注射疫苗预测了几乎每个年龄组的全因死亡率，并具有“与美国疫苗推出一致的年龄相关时间模式”。
+**2. 班农先生12月28日在盖特发文：** 北京的中共犯罪政权在距种族灭绝奥运会开幕还有6周时拉响了警报，拼命向系统注入现金，以支持无力偿还债务的房地产僵尸企业。在贝莱德（BlackRock）的首席执行官拉里·芬克 (Larry Fink)和桥水基金的创始人兼首席执行官雷·达里奥 (Ray Dalio)帮助下，这个奴役老百姓的金融体系诞生了，他们也许为此感到非常自豪。 【盖文转CNBC报道，资深投资策略师戴维·罗切 (David Roche) 12月27日表示，由于中共政府继续将执政焦点放在稳定和所谓的“共同繁荣”上，它们将进一步放松货币政策。罗切说：“这些是我预计我们会看到的更多措施之一。因为经济数据很糟糕，这对共产党来说是不利的，中共将优先考虑稳定。”】
 
-“**将研究估计的疫苗死亡率与 ****CDC ****报告的死亡率进行比较，研究人员得出结论，****VAERS ****的死亡人数被低估了 ****20 ****倍，**这与已知的 VAERS 确定不足偏差一致，”WND 报道。
+[https://gettr.com/post/pkt6q923ea](https://gettr.com/post/pkt6q923ea)
 
-基于这些发现，哥伦比亚团队宣布，与中共病毒疫苗注射相关的风险，包括加强剂，“在风险较低的儿童、年轻人和老年人中，弊大于利”。他们进一步强调，“迫切需要确定、开发和传播对改变生命的疫苗损伤的诊断方法和治疗方法。”
+**3. Newsmax 12月28日在盖特发文：** 佛罗里达州将对中共在该州的运作采取行动。 据《正义报》（Just the News）报道，佛州州长罗恩·德桑蒂斯宣布，佛州将调查该州在中共公司的持股情况，并“从意识形态狂热的投资基金手中，夺回对其股东代理投票的控制权”。 【盖文转报道，德桑蒂斯、佛州首席财务官帕特罗尼斯和总检察长穆迪组成了佛州的董事会，三人都投票撤销了之前给予外部基金经理的所有代理投票权，并澄清基金经理只允许为佛州基金的财务利益行事。三人还表示，他们计划对佛州退休系统的投资进行调查，以了解该州在中共公司有多少资产。德桑蒂斯表示：“如果你看看这些大公司在面对中共的反对意见时是如何表现的，他们遵循中共的审查制度，并卑躬屈膝的道歉。上一代美国精英们以为如果允许中共进入世贸组织并给予他们最惠国待遇，这将使中共国更民主。’但事实证明这不但是错误的，它还已经危及到我们的国家和经济安全。”德桑蒂斯还计划让州立法机构通过法律，防止佛州使用纳税人的钱投资中共国。穆迪表示：“中共政府对在中共国经营的企业施加控制和影响，这足以让任何在中共国有投资的人感到担忧。“】
 
-**真正的新冠病毒疫苗死亡人数实际上可能超过 ****820,000**
+[https://gettr.com/post/pkug29dead](https://gettr.com/post/pkug29dead)
 
-事实证明，哥伦比亚研究的结果，可能仍然存在重大低估。**中共病毒注射造成的真实死亡人数甚至可能是 ****40 ****万人的两倍多。**
+**4. 《国家脉动》12月29日在盖特发文：** 获得福奇资助的研究人员、不要脸的彼得·达萨克 (Peter Daszak)再度现身，坚称中共“没有掩盖”。 【盖文转报道，达萨克近日参加了主流媒体BBC的一档名为《中共病毒起源：科学》（COVID Origins: The Science）的节目，他声称中共从未掩盖与中共病毒有关的数据，不存在隐瞒的情况。但《国家脉动》之前披露过，在2019年年底，武毒所销毁了近2万分蝙蝠冠状病毒样本。其官网上包括有关如何使蝙蝠冠状病毒更加致命、和美国国立卫生研究院的伙伴关系、在该实验室工作的中共军方研究人员名单以及记录武毒所与中共的财务和人事关系的文章也被删除。除此之外，中共还阻挠世卫组织的新冠起源调查。】
 
-疫苗安全研究基金会 (VSRF) 执行董事史蒂夫·基尔希 (Steve Kirsch) ，最近进行了一项分析，将一项研究中公布的过敏反应率与 VAERS 中发现的过敏反应率进行了比较。 基于此，基尔希估计，注射造成的真实死亡人数大约高出 41 倍，即大约 820,000 人。
+[https://gettr.com/post/pkuovv487e](https://gettr.com/post/pkuovv487e)
 
-使用来自 CMS（医疗保险和医疗补助服务中心）的举报人数据，基尔希的分析得出了 44.64 的漏报系数，这表明死亡人数可能甚至高于 820,000。
+**5. 《国家脉动》12月29日在盖特发文：** 大流行期间，近百万美国人逃离了被民主党统治的蓝州，迁移至更安全的南方，因为南方因新冠病毒导致的恐慌更少。 【盖文转报道，在2020年4月至2021年7月期间，超过77万美国和国际居民逃离了主要由民主党统治的地区，搬到了南方。其中国内居民超过了65万人，占了大多数。根据洋基研究所（Yankee Institute）整理的数据，除了南方地区，美国每个地区都出现了大规模的移民。新冠大流行期间，加利福尼亚州损失的国内移民总数超过了42万人。纽约州有35万多人离开，离开伊利诺伊州的人超过了15万。分析认为，大多数离开东北部、中西部和西部地区的人，原因都是与负担能力、自由和安全因素有关。在此期间，因为国内移民而人口增加最多的两个州是佛罗里达州和德克萨斯州，它们分别增加了17万和22万人。这两个州的领导层由共和党主导，他们公开拒绝严厉的新冠防疫措施。】
 
-顺便说一下，这个数字高于“Covid”死亡的官方数字——我们都知道Covid死亡数字被高度夸大了，因为现在所有的死亡都被视为“Covid 死亡”（而不是疫苗注射死亡）。
+[https://gettr.com/post/pkupty3ca0](https://gettr.com/post/pkupty3ca0)
 
-换句话说，“疫苗”导致的死亡人数远远高于实际病毒导致的死亡人数（假设甚至只有一个死亡）。
+**6. Disclose.tv 12月28日在盖特发文：** 在为庶民创造“元宇宙”期间，亿万富翁扎克伯格又在夏威夷考爱县（Kaua’i）购买了110英亩的土地，其中包括一座重要的水库，用于他1300英亩的现实版私人岛屿天堂。
 
-“**可能是因为实际尸检会发现刺突蛋白是 HIV、XMRV、SIV、丙型肝炎的合成版本，在大脑和凝血点中含有异常大量的氧化石墨烯，**”自然新闻的一位评论者写道，为什么很少有人进行尸检？
+[https://gettr.com/post/pktg30b9e0](https://gettr.com/post/pktg30b9e0)
 
-新闻来源 ：[newstarget.com][Study: At least 400,000 people in America have died from covid “vaccines”](https://www.newstarget.com/2021-12-27-study-400000-people-america-died-covid-vaccines.html)
+**7. 莲心不染12月29日在盖特发文：** 在加拿大，安大略省的人权法已被重写: 虽然接种新冠疫苗是自愿的，但根据个人喜好选择不接种疫苗的人无法根据该法保障自己的人权。 宪法权利律师罗科·加拉蒂 (Rocco Galati)对此评论说：“这是错误的。拒绝任何医疗或程序是出于良心信仰的问题.。第 7 条明确说明了人们有自由和安全权利。写出“不接种疫苗的人人权无法保障”这种立场或意见的人肯定是被收买了，这当然不是法律，这是一个违反人权的法律。政府越来越无法无天和堕落，这让人感到可悲。”
+
+[https://gettr.com/post/pkv4ysb19b](https://gettr.com/post/pkv4ysb19b)
+
+**8. 真正美国之声12月29日在盖特发文：** 班农先生说建制派真正害怕的是那些经历了“大觉醒”的美国人。
+
+[https://gettr.com/post/pkv3ch7099](https://gettr.com/post/pkv3ch7099)
+
+**9. 真正美国之声12月29日发推说：** 美国疾控中心CDC 12月27日宣布，将把新冠患者的隔离期从10天减少为5天，新冠病人的密切接触者的隔离期也被缩短。 【推文转报道，缩短隔离期是为了应对奥米炕变种和基于该病毒传播方式的新数据。CDC在一份新闻稿中写道，数据显示新冠病毒在“病程的早期”传播，“一般在发病前1-2天和发病后2-3天”。CDC现在建议对新冠检测呈阳性的人隔离五天，如果他们没有症状，就可以离开隔离区，但是必须佩戴口罩五天。】
+
+
+
+> The U.S. Centers for Disease Control and Prevention (CDC) on Monday cut [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) isolation times in half to five days and shortened the quarantine length for time close contacts.[https://t.co/eVCNhOljLs](https://t.co/eVCNhOljLs)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 29, 2021](https://twitter.com/RealAmVoice/status/1475993720478523395?ref_src=twsrc%5Etfw)
+
+
+
+**10. 印太新闻 – 关注中共威胁 12月29日发推说：** 为了声援台湾，立陶宛议员马塔斯·马尔代基斯 (Matas Maldeikis)12月24日在推特上发布了一张立陶宛版本的“坦克人”照片。马尔代基斯说：“这是一张北京政权无法删除的照片。” 【推文转《台湾新闻网》报道，这张黑白照片拍摄于1991年1月发生的立陶宛一月事件。1991年1月，苏联军队被派往立陶宛，试图重新吞并该国。立陶宛人“不畏任何风险，勇敢地站出来抗议和反对压迫者”。在1月13日的暴力冲突中，苏联军队向抗议者开火，并用坦克碾压抗议者，造成14人死亡。当天晚上，一名手无寸铁的立陶宛男子独自站在一辆坦克前，有人立即拍下了这经典一幕，这张照片与1989年天安门著名的“坦克人”非常相似，立陶宛也将1月13日这天定为自由捍卫者日（Freedom Defenders’ Day）。在立陶宛和台湾都面临来自中共越来越大的压力时，马尔代基斯发此照片以声援台湾和香港。】
+
+
+
+> MP posts photo of Lithuanian 'Tank Man' in solidarity with Taiwan
+> 
+> Maldeikis says photo is one 'Beijing cannot delete'[https://t.co/8BuG7SjHqS](https://t.co/8BuG7SjHqS) [pic.twitter.com/l02FlFWtZH](https://t.co/l02FlFWtZH)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 28, 2021](https://twitter.com/IndoPac_Info/status/1475881733262172160?ref_src=twsrc%5Etfw)
+
+
+
+**11. 印太新闻 – 关注中共威胁 12月29日发推说： **美国总统拜登12月27日正式签署《国防授权法》。该法案邀请台湾参加2022年的环太平洋军事演习，加强台湾与美国国民警卫队的合作，协助其增强不对称防卫能力，并要求提供有关中共颠覆台湾的情报。
+
+
+
+> Biden signs act inviting Taiwan to RIMPAC, boosting asymmetric defenses 
+> 
+> Law also calls for intelligence on Chinese efforts to subvert Taiwan, increased cooperation with US National Guard[https://t.co/83u3re6hGs](https://t.co/83u3re6hGs) [pic.twitter.com/Cza9UxVAXc](https://t.co/Cza9UxVAXc)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 28, 2021](https://twitter.com/IndoPac_Info/status/1475870621326540805?ref_src=twsrc%5Etfw)
+
+
+
+**12. 杰森米勒12月29日发推说： **盖特全球推广活动的下一站是印度！看看这个30秒的盖特印地语（Hindi）广告！ 大科技公司的审查制度是真实的，而且无处不在。 我把我们的印地语电视广告发到了Instgram上。广告内容都是积极的，没有任何问题。 但Instgram官方却给这个视频贴上了一个警告标签，仅因为在一个持续时间很短的滚动画面中，迪内希·杜萨（Dinesh D’Souza）的一个帖子说疫苗强制令是暴政。真是荒唐！
+
+
+
+> Next stop – India! 🇮🇳 [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iNV2FyG0x2](https://t.co/iNV2FyG0x2)
+> — Jason Miller (@JasonMillerinDC) [December 28, 2021](https://twitter.com/JasonMillerinDC/status/1475954324853432330?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 🇮🇳🇮🇳🇮🇳 [pic.twitter.com/dZlLDkiEfg](https://t.co/dZlLDkiEfg)
+> — Jason Miller (@JasonMillerinDC) [December 28, 2021](https://twitter.com/JasonMillerinDC/status/1475956065363763202?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> The Big Tech censorship is real!
+> 
+> I posted to IG our :30 TV ad in Hindi. All positive, never had an issue.
+> 
+> But IG put a warning label on it. Why? Our “sizzle reel” includes a mili-second scroll past a [@DineshDSouza](https://twitter.com/DineshDSouza?ref_src=twsrc%5Etfw) [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) post correctly noting mandates are tyrannical. Nuts! [pic.twitter.com/9C0hzUDIN6](https://t.co/9C0hzUDIN6)
+> — Jason Miller (@JasonMillerinDC) [December 29, 2021](https://twitter.com/JasonMillerinDC/status/1475983106133868546?ref_src=twsrc%5Etfw)
+
+
+
+**13. 郭文贵先生在12月28日的健身直播中说：** 共产党的洗脑和即将到来的经济大崩潰將害死太多无辜的同胞，这是让我们非常非常心痛和感到很无力的地方，我们将竭尽全力拯救更多的同胞。一切都已经开始！
+
+[https://gettr.com/post/pktzu55e32](https://gettr.com/post/pktzu55e32)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报导**
+
+发布：陸柒陸捌
 
 * * *
 
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

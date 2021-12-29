@@ -2,29 +2,32 @@
 ---
 
 
-## 西安民众快断粮，怒批中共当局非人性防疫措施
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1800900/)
+## 有声|“不抢救”政策在疫情大流行期间被非法滥用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s1.jpg)图片来源：德国之声
-据德国之声中文网12月29日报道，中共国陕西省西安市27日升级防疫措施，禁止所有居民出门。有网民在微博抱怨生活物资缺乏，几乎要断粮。当局已经连夜配送肉蛋奶等生活物资，但仍未止息民怨。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据英国媒体12月26日曝光，新冠病毒大流行期间，英国患有自闭症和唐氏综合征的青少年，在全科医生常规预约中广泛存在 “不抢救”政策滥用。
 
-中共的封锁隔离是真的把家变成监狱，门上贴封条算温和的，甚至会直接把门从外面钉上，哪怕居民饿死、病死在家里都不能出门，政府负责上门收尸。就是这样没有人性的黑帮组织，统治了中国七十年，造成了几亿人非正常死亡。这一次中共全球释放病毒，中共国人民又一次成为最大的受害者。在中共的强权之下，中共国一半以上的人口已经接种了毒疫苗。
+医疗系统中的不抢救政策，通常是指在与病人或其家属讨论生命末期计划后，才会逐一执行。英格兰国家医疗服务体系，曾在新冠病毒大流行期间写信给医生，提醒他们不要随意签发“不抢救”命令。
 
-据新中国联邦郭文贵先生爆料，此次西安封城是疫苗导致的灾难。强行施打的疫苗导致了变异病毒的出现，并不可控制地迅速传播。病毒是中共制造的生化武器，疫苗是比病毒更高级的生化武器，且变异性极强。西安的惨剧只是疫苗副作用的开始，之后不可逆转的疫苗灾难必定会在全球各地大面积爆发。
+据悉，今年6月，该政策的滥用至少导致一例患者因无法接受应有的治疗而丧生。另据医疗档案显示，这一“不抢救”命令也曾被非法在有认知障碍的成年人中使用。某慈善机构表示，此类非法命令被滥用的频率，高达一个月20例。
 
-新闻参考链接：[https://www.dw.com/zh/全球疫情西安民众称快断粮-欧洲力抗奥密克戎/a-60282964?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964?maca=chi-rss-chi-all-1127-rdf)
+尽管英格兰国家医疗服务体系再次表示：无论是因为医疗条件，还是病人残疾及年龄等原因，一刀切的使用这些命令是不合适的。人们担心错误地使用这些政策 ，会使患有先天认知功能障碍的弱势群体得不到应有的救治。患儿家长们忧虑，此项命令在不知情中已被执行。
 
-* * *
+文字版原文：[“不抢救”政策在疫情大流行期间被非法滥用](https://gnews.org/zh-hans/1798848/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
