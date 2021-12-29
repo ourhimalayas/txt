@@ -2,39 +2,36 @@
 ---
 
 
-## Kitchener女子被指控遗弃新生儿
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1802480/)
+## 香港又闻犬吠声
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1802487/)
 
-作者：Waterloo Region Record
-翻译：HimaBoy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-368.jpg)
-Kitchener一名刚出生的婴儿被遗弃在Kitchener Rockway 社区的一户人家外，一名女子涉嫌遗弃婴儿被捕，面临多项指控。据报道，仅滑铁卢地区今年圣诞期间就出生了十几个婴儿，目前还不清楚这个妈妈为什么这么狠心在这么冷的天把新生婴儿扔在路边。
+加拿大温哥华扬帆农场   文勤
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-29-下午2.26.29.png)
+图片来源：news.mingpao.com
 
-滑铁卢警方表示，周一上午11点左右，警方接到了多个报警电话，称一名婴儿被一名女子遗弃在Dixon street和Eckert street附近路边的一个婴儿车里。
+香港社会上己出现一群决心不择一切手段破坏香港经济、市民生活、乃至港人生命，就是为了附和港共向中央表忠心，不达到杀死港人目的誓不罢休。
 
-警方指出，涉案女子在遗弃婴儿后试图离开现场，一名路人在试图阻止其离开时受到女子威胁。其他几人协助警方找到了这名女子。
+共铲叫兽（教授）袁国勇明知疫苗有毒，仍向港共政府倡议:明年三月前推疫苗护照，不打针不能工作不能上学。
 
-警方表示，这名32岁的Kitchener女子随后被捕，并被控弃婴、死亡威胁和违反缓刑等罪名。她定于2月7日出庭。
+袁国勇:唔打针要物竞天泽要过身。粤语过身就是死亡的意思，
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-29-下午2.28.01.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-29-下午2.28.38.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-29-下午2.29.57.png)
+身为港大医学院微生物学系讲座教授，违背良心违背了医学逼人打疫苗，成了杀人凶手，多么无耻多么邪恶！
 
-来源：https://www.therecord.com/news/crime/2021/12/28/newborn-baby-left-at-side-of-the-road-leads-to-charges-for-kitchener-woman.html
+港共政府以国安法禁止传媒报道因接种疫苗后毒副作用的真相，至今未曾公布因苗毒死亡及各种事故有多少，其伎俩低劣且徒劳，智慧的香港人大家都心知肚明。
 
-（文章仅代表作者个人观点）
+香港老人是耳闻目睹见证共匪历史的一族，银发族早己觉醒躺平，无论港共政府用各种奖励、广告宣传连哄带骗都无法让老人去打针，老人毒苗接种率不到20%(希望能创全球最低水平)。哈！哈！哈！
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+反疫苗浪潮己席卷世界各地，疫苗的毒副作用在暴发，人们在伤痛中觉醒，疫苗护照必须停止，疫苗接种也一定会停止。
 
-**关注我们**
+人类向毒疫苗制造者、施放者、推广者、真相隐瞒者的清算一定会来到。
 
-Discord 账号
+福奇、袁国勇之类反人类罪的医学专家们，它们在作死的路上同流合污，必遭人类各种法律的大审判！它们离死期也不远了。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+参考资料：
 
 
+
+编审：文敏      发布：Winner为自由而战（文祥）
 
  
 
