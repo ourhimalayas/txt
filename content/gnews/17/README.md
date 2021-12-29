@@ -2,37 +2,58 @@
 ---
 
 
-## 有声|找到生命真相：（三）浅论郭文贵先生的 “感恩” 与 “无性繁殖” 学说的由来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800401/)
+## 疫情数据：美国创下单日COVID-19新增病例记录 441,278 例
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1800403/)
 
-配音：香草山福音部 – Daxia
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D8CD7F46-F53B-48F8-ABE6-33DEA2E3F0F4.png)
+**12****月****28****日，据****thehill****报道，根据疾病控制和感染中心的数据，美国周二创下了新的**** COVID-19 ****感染单日记录，新增病例**** 441,278 ****例。**** **
+
+**这一数字超过了前期高点： 12 月 20 日报告的约 290,000 例。同时，该数据也超过了在去年 1 月疫苗广泛接种之前创下的每日 294,015 例的记录。**
+
+**创纪录的病例数代表了 的严峻现实，该变种已被证明是美国自大流行开始以来最易传播的新型冠状病毒株。 **
+
+**但根据**** CDC ****的说法，数据还不完整，因为许多测试站点在圣诞节期间关闭，各州仍在整理积压的病例。**** **
+
+**Omicron ****是目前美国大部分感染的罪魁祸首，使感染人数猛增，即使在疫苗接种率很高的地区也不例外。**
+
+**一些健康专家认为，美国需要开始摆脱对病例数的关注，而更加重视住院和死亡人数。**
+
+**但是，**** omicron ****造成的病例数激增引起了真正的担忧。随着越来越多的人被感染，更多的人可能需要住院治疗，正在给医疗系统带来更大的压力。**
+
+**[新闻来源](http://：https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-)**
+
+**[https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-](https://thehill.com/policy/healthcare/587552-us-sets-daily-covid-19-infection-record)**
+
+编译/玫瑰天空
+审阅/神之一手
+上传/🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg)
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+新西兰伊甸农场盖特👇
+
+[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
+
+【玫瑰看新闻】盖特👇
+
+[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
+
+玫瑰看新闻YouTube账号👇
+
+[玫瑰看新闻](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
+
+[黑森林的故事](https://youtube.com/channel/UC7GG4NwpE8VqSZQBHS1tp1A)
+
+[Rose news](https://youtube.com/channel/UCRaAQxHogieKRmOtZ1vP6Ew)
+
+【玫瑰看新闻】推特账号👇
+
+[Rose News (@RoseNews4)](https://twitter.com/rosenews4?s=11)
 
 
 
-- **所以我们既得了不能震动的国，就当感恩，照神所喜悦的，用虔诚、敬畏的心侍奉神。（希伯来书 12:28）**
-- **因此，主自己要给你们一个兆头，必有童女怀孕生子，给他起名叫以马内利（就是“神与我们同在”的意思）。（以赛亚书 7:14）**
-- **真正的感恩是不在乎因果，而发自内心、自然的。——郭文贵**
-- **信仰是有性繁殖，宗教是无性繁殖。——郭文贵**
-
-
-
-
-**文字版原文：[找到生命真相：（三）浅论郭文贵先生的 “感恩” 与 “无性繁殖” 学说的由来](https://gnews.org/zh-hans/1795203/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

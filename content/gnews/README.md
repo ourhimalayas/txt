@@ -15,107 +15,107 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“G-Club”（六）](/content/gnews/1/README.md)
+### [澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安封城千万人禁足 武汉封城惨剧再现](/content/gnews/2/README.md)
+### [谁还记得高耀洁](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [文·贵天成——文贵先生谈“G-Club”（六）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西安封城千万人禁足 武汉封城惨剧再现](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（七）](/content/gnews/3/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（七）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”](/content/gnews/4/README.md)
+### [DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国家门口的共产主义国家是中共的天然盟友](/content/gnews/5/README.md)
+### [美国家门口的共产主义国家是中共的天然盟友](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.751 HDO](/content/gnews/6/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.751 HDO](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/7/README.md)
+### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [2021年12月28日郭先生盖特 — 视频盖特2「49秒」](/content/gnews/8/README.md)
+### [2021年12月28日郭先生盖特 — 视频盖特2「49秒」](/content/gnews/10/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [文·贵天成——文贵先生谈“G-Club”（五）](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（五）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月28日郭先生盖特 — 视频盖特1「9分00秒」](/content/gnews/10/README.md)
+### [2021年12月28日郭先生盖特 — 视频盖特1「9分00秒」](/content/gnews/12/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中国地方政府开始没收恒大的土地](/content/gnews/11/README.md)
+### [中国地方政府开始没收恒大的土地](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北约军机今年紧急升空370次 近8成是拦截俄机](/content/gnews/12/README.md)
+### [北约军机今年紧急升空370次 近8成是拦截俄机](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（四）](/content/gnews/13/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（四）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列拟议中“脸书法案”严重伤害言论自由](/content/gnews/14/README.md)
+### [以色列拟议中“脸书法案”严重伤害言论自由](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情数据：美国创下单日COVID-19新增病例记录 441,278 例](/content/gnews/15/README.md)
+### [疫情数据：美国创下单日COVID-19新增病例记录 441,278 例](/content/gnews/17/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [俄罗斯常驻欧盟代表采访录（一）提议恢复欧洲的安全体系](/content/gnews/16/README.md)
+### [俄罗斯常驻欧盟代表采访录（一）提议恢复欧洲的安全体系](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|找到生命真相：（三）浅论郭文贵先生的 “感恩” 与 “无性繁殖” 学说的由来](/content/gnews/17/README.md)
+### [有声|找到生命真相：（三）浅论郭文贵先生的 “感恩” 与 “无性繁殖” 学说的由来](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-5](/content/gnews/18/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-5](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [甲骨文超级计算机：新冠病毒专为人类定制](/content/gnews/19/README.md)
+### [甲骨文超级计算机：新冠病毒专为人类定制](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](/content/gnews/20/README.md)
+### [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——过小庄社区忆孔凡海](/content/gnews/21/README.md)
+### [樱花灭共诗——过小庄社区忆孔凡海](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本至少11家医院遭“勒索软件”病毒攻击](/content/gnews/22/README.md)
+### [日本至少11家医院遭“勒索软件”病毒攻击](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港警以违反国安法为由 拘捕6名立场新闻高层](/content/gnews/23/README.md)
+### [港警以违反国安法为由 拘捕6名立场新闻高层](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平坐龙椅见林郑月娥崔世安以及林郑玉石俱碎视频录](/content/gnews/24/README.md)
+### [习近平坐龙椅见林郑月娥崔世安以及林郑玉石俱碎视频录](/content/gnews/26/README.md)
  ` NewFOC`
 
-### [上海航空公司防疫新规导致达美航空航班中途折返](/content/gnews/25/README.md)
+### [上海航空公司防疫新规导致达美航空航班中途折返](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [【樱花深度报道】法院文件揭露中共间谍已渗透台湾军队（四）](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/27/README.md)
+### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/28/README.md)
  ` 關注組`
 
-### [最新研究让否认中共病毒‘自然免疫’论的人彻底闭嘴](/content/gnews/28/README.md)
+### [最新研究让否认中共病毒‘自然免疫’论的人彻底闭嘴](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抗新冠病毒药物与常见药合用会引起危害生命的反应](/content/gnews/29/README.md)
+### [抗新冠病毒药物与常见药合用会引起危害生命的反应](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国追求科技 “自力更生”，加剧了全球的不安情绪](/content/gnews/30/README.md)
+### [中共国追求科技 “自力更生”，加剧了全球的不安情绪](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】比特币继续下跌，较11月高点已跌去三成](/content/gnews/31/README.md)
+### [【中日财经爆】比特币继续下跌，较11月高点已跌去三成](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月28日晚](/content/gnews/32/README.md)
+### [GTV新闻访谈简报|2021年12月28日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [福克斯：普京未来几周攻击乌克兰的可能性超过50%](/content/gnews/33/README.md)
+### [福克斯：普京未来几周攻击乌克兰的可能性超过50%](/content/gnews/34/README.md)
  ` 【🌹玫瑰新闻】`
-
-### [中国推出“人工智能检察官”，可以自动指控公民犯罪](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [针下亡魂｜悲痛！又一名足球运动员在接种疫苗后死亡](/content/gnews/35/README.md)
  ` 關注組`

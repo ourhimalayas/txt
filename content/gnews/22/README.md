@@ -2,26 +2,34 @@
 ---
 
 
-## 日本至少11家医院遭“勒索软件”病毒攻击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800374/)
+## 奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800394/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1625.png)[图片来源](https://news.yahoo.co.jp/articles/aef0632ce66b2c1b55f696e3dda910f142ff7073)
-读卖新闻12月29日【独家报道】：《读卖新闻》获悉，世界各地的关键基础设施都已暴露在网络攻击之下，自2016年以来，日本至少有11家医院受到计算机病毒“勒索软件”的攻击。其损失包括救护车呼叫受理障碍、手术被暂停，以及门诊治疗受限等，突出了医疗机构受到攻击的事实。
+作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在刚刚过去的圣诞节周末，在新冠疫情期间出行人数和航班都严重萎缩的情况下，全球仍有7000多个航班被取消，近2万个班次延误。完全打乱了成千上万人圣诞周末出游的年末度假计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-19.jpg)
+主要原因是最近一轮病毒变种奥密克戎肆虐导致的各种溢出效应，对各航空公司的机组人员和地面运营人员都产生了直接而严重的影响。大量航空公司员工因检疫隔离而缺席，或因感染新冠病毒而请病假。
 
-网络攻击16年1次，17年3次，18年1次，19年1次，20年0次，21年激增至5次。尚未发现有医院支付被勒索的赎金。各医院已经在采取应对措施，厚生省已要求遭受网络攻击的医疗机构进行报告，但没有披露事件的数量。因此，相信还会有其它损害案例存在。
+在平安夜，全球有近2400个航班取消，11,000个航班延误；周六圣诞节当天，全球有近2800个航班取消，8,000个航班延误；周日，全球有近2000个航班取消。
 
-2005年之前，大多数损害都比较小，例如无法发送和接收电子邮件或无法在医院的工作电脑上打开文件。自2006年以来，我们看到医院的核心系统受到损害，如电子病历、医疗会计和计算机断层扫描（CT）图像的管理，所有这些系统都被关闭了。翻新和重建系统需要数百万到数千万日元，就2009年10月德岛县的半田医院的情况而言，大约花费了约2亿日元。
+参考链接：
+1. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.thegatewaypundit.com/2021/12/6000-flights-cancelled-christmas-weekend/)
+2. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.zaobao.com.sg/news/world/story20211227-1226753)
 
-攻击正在从“分散的”邮件转向对特定公司和组织的“定向”攻击。2005年之前，大多数感染来自带有病毒的电子邮件。但最近的案例，如半田医院，是通过系统服务承包公司用于连接医院系统进行远程维护的“VPN”设备侵入的。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-一天前，东京警视厅刚刚发布了对接受中共国军人妻子的指示，购买用于网络攻击相关设备的中国籍原留学生的国际通缉令。今天看到这则消息的所有人，会作何感想？
+总编：文真
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-信息来源：[【独自】「身代金」ウイルス、国内１１病院が被害…救急搬送や手術に支障も（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/aef0632ce66b2c1b55f696e3dda910f142ff7073)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
