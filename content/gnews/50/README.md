@@ -2,27 +2,37 @@
 ---
 
 
-## 港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1800285/)
+## 拜登总统签署《国防授权法》 应对中共军事威胁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1800494/)
 
-**撰文/ 港台前线关注组｜发布日期/ 29/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
+#### 撰稿：日本东京方舟农场  海星
 
-香港警方国安处今晨六点出动200名军装警及便衣对《立场新闻》展开拘捕行动，警方以涉嫌违反《刑事罪行条例》第9及第10条，串谋发布煽动刊物罪拘捕六名《立场》高层或前高层，分别为53岁的前总编辑钟沛权、现任署理总编辑34岁的林绍桐、63岁的前董事周达智、63岁的前董事方敏生，以及另外两位前董事，73岁的资深大律师吴霭仪、44岁的歌手何韵诗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBAB032-FDA5-4812-9312-FD579826DA13.jpeg)（图片来源：德国之声）
+
+12月27日，美国总统拜登正式签署《国防授权法》(NDAA)，即日生效。该法案涉及应对中共威胁的措施。
+
+据《美国之音》报导，拜登总统当日正式签署2022财政年度的《国防授权法》，该法案将授权拨款7770亿美元用于美国国防开支，其中拨款71亿美元用于“太平洋威慑倡议”(Pacific Deterrence Initiative)，以应对中共军事威胁。
+
+此外，该法案不仅发表了美国国会支持防卫台湾的声明，同时还将采取多项具体措施协助台湾提升自我防卫能力，并邀请台湾参与环太平洋军事演习。
+
+同时，该法案规定国防部禁止采购中国新疆地区强迫劳动生产的产品。
+
+据悉，本月早些时候，这部法案在美国参众两院以压倒性多数票获得通过，受到民主与共和两党议员广泛的支持。
+
+*参考链接：*
+
+1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
+3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
 
 
+* * *
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747220143.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747262884.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747224643-1.jpg)
+*素材采编：海星*
 
+*编辑：文顺*
 
-
-
-随后，国安处手持法庭手令又到《立场新闻》位于观塘楼上的办公室搜查、检取新闻材料，过程中警方在大厦外划出区域阻止靠近，并封锁《立场》办公室所在的14楼全层，同时禁止传媒拍摄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/國安處清晨上門拘六名《立場新聞》涉串謀發布煽動刊物.jpg)
-来源｜[now](https://news.now.com/home/local/player?newsId=461459)
+*发布：miumiu*
 
  
 

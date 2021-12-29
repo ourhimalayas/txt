@@ -2,65 +2,69 @@
 ---
 
 
-## 法国要求未接种疫苗的人接种疫苗
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1801850/)
+## 强制疫苗接种引发法律及副作用双重担忧
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801854/)
 
-![2021 年 12 月 29 日，星期三，法国卫生部长奥利维尔·维兰 (Olivier Veran) 抵达法国巴黎国民议会，与法律委员会的代表举行听证会。在周三下午的议会听证会上，卫生部长为政府计划辩护只允许完全接种疫苗的人继续进入餐厅、电影院、剧院、博物馆和运动场等场所。 （美联社照片/Thibault Camus）](https://storage.googleapis.com/afs-prod/media/740d52c0368b48db8e9e4a7b6c7336bf/400.jpeg)
-随着 omicron 变种袭击欧洲，法国正在加大对未接种疫苗的公民施加压力，要求他们接种疫苗。
+据《Just the News》，记者Aaron Kliegman，2021年12月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3345.png)图片源自：The Lighthouse
+辉瑞针对COVID-19的疫苗已获得美国食品和药物管理局的全面批准，但这家巨头仍将分销全面批准前的早期疫苗版本。
 
-由于政府试图为人们接种疫苗提供激励措施，未接种疫苗的人将被限制进入电影院和其他景点。根据Our World in Data的数据，超过四分之一的法国人口未接种疫苗。
+辉瑞及其专家认为：辉瑞-BioNTech疫苗于2020年12月获得的联邦紧急使用授权 (EUA)，与FDA 8月对Comirnaty疫苗的批准相同。
 
-周三，预计卫生部长将支持一项仅允许接种疫苗的人进入餐厅、剧院、博物馆和体育场馆等场所的计划。长途火车和国内航班也需要通行证。
+然而，这两种疫苗在法律层面差异显著，并引发人们对疫苗强制令合法性的质疑。
 
-卫生部长奥利维尔·维兰 (Olivier Veran) 在议会听证会上说，创纪录的感染人数意味着每秒有超过两名法国人的 COVID-19 检测呈阳性。Veran 估计，最近约有 10% 的法国人口与感染该病毒的人有过接触。长途火车和国内航班也需要通行证。
+EUA授权疫苗正在俄亥俄州、弗吉尼亚州和宾夕法尼亚州等州广泛分发和管理。虽然该产品尚未获得FDA的批准，但辉瑞表示，它使用与Comirnaty相同的工艺制造，在安全性和有效性方面没有什么不同。
 
-据[美联社报道](https://apnews.com/article/coronavirus-pandemic-health-france-europe-7868993408fd36ea17e16afb2dbeeb44)，如果该计划获得议会批准，未接种疫苗的法国人将无法再使用阴性的 COVID-19 检测结果进入针对接种疫苗者适用的室内场所。
+“就其成分和制造方式而言，FDA 批准的疫苗与迄今为止在EUA授权下向全球数亿人接种的疫苗没有什么不同。”辉瑞公司的一位发言人告诉 《Just the News》，“ FDA批准的Comirnaty和EUA授权的Pfizer-BioNTech COVID-19疫苗具有相同的配方，可以替代使用。”
 
-该法案规定，对于有家庭或健康紧急情况的人，只要他们能够进行阴性测试，就可以例外地乘坐火车和飞机。
+FDA同样表示：这两种疫苗可以互换使用，而不会出现任何安全性或有效性问题。
 
-那些未接种疫苗，但是，持有近期 COVID-19 康复证明的人将能够获得仅限于感染后六个月内有效的疫苗通行证。
+辉瑞发言人表示，EUA授权的产品在到期日之前仍将被运送和使用，只要符合授权的冷冻储存条件。
 
-据美联社报道，官员们希望在 1 月中旬之前发放“疫苗通行证”，这是政府避免新封锁的战略的一部分。
+弗吉尼亚大学法学教授玛格丽特·莱利（Margaret Riley）表示，辉瑞的分销计划不存在道德问题。
 
-周二，法国报告了 180,000 例新病例，该国创下了新的感染记录。据美联社报道，一些预测表明，到 1 月份，每日病例率可能会超过 250,000 例。
+“鉴于疫苗配方是相同的，只要现有疫苗没有过期、解冻或稀释等问题，继续分发在道德上是允许的。”莱利同时指出：“使用先过期的疫苗可以减少浪费。”
 
-[新闻来源1](https://thehill.com/policy/international/europe/587575-france-moves-ahead-with-effort-to-pressure-unvaccinated)
+莱利还表示，经销商、制造商和医疗从业者应对EUA批准和FDA批准的疫苗履行同等责任。
 
-[新闻来源2](https://apnews.com/article/coronavirus-pandemic-health-france-europe-7868993408fd36ea17e16afb2dbeeb44)
+尽管Comirnaty和Pfizer-BioNTech之间没有化学或伦理差异，但FDA承认两者“在法律上是不同的”。
 
-编译/玫瑰天空
-审阅/神之一手
-上传/🌹
-![87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg)
-**推出问题，敲出真相，爆料在路上！**
+疫苗之间的法律差异可能对疫苗强制规定产生重大影响。
 
-本栏目宗旨：
+国防部要求服务人员全面接种COVID-19疫苗，但指示只有FDA批准的疫苗才能用于强制接种。（服务人员也可以自愿接受EUA疫苗接种以满足要求。）
 
-**我们不反疫苗，只针对假疫苗**。
+在俄亥俄州，最近签署的一项法律规定：“公立学校或州立高等教育机构不得……要求个人接种 [FDA] 尚未完全批准的疫苗。”
 
-**我们不反科学，只针对反人类**。
+此类措施引发人们关于两种疫苗法律性质差异的讨论，特别是FDA批准是否应该成为疫苗强制令的规定条件之一。
 
-**感谢您的支持,请关注和订阅我们的以下账号：**
+R. Davis Younts是宾夕法尼亚州Lemoyne的一名律师，他代表数十家反对疫苗强制令的客户。他表示政府不能强迫人们接种仅在EUA授权下的疫苗。
 
-**新西兰伊甸农场盖特👇**
+“政府机构没有法定权力强制使用任何EUA授权下的疫苗，”Younts 告诉 《Just the News》。他解释《联邦食品、药品和化妆品法案》第564条要求必须告知疫苗接种者“接受或拒绝”产品的选择。
 
-[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
+专注于军事人员法律事务的Younts补充说，为了强制使用EUA药物，总统必须根据某些联邦法规发布豁免。该法令规定，“根据第564条……向武装部队成员授权紧急使用的产品需要成员知情同意，除非总统确定遵守此类要求不符合国家安全利益”。
 
-**【玫瑰看新闻】盖特👇**
+FDA给辉瑞的授权书载明EUA是根据第 564 条获得授权，但拜登总统尚未发布Younts所描述的豁免。
 
-[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
+“因此，根据联邦法律，任何军人不得被迫接种辉瑞EUA疫苗，或受到惩罚，至少直到可以获得FDA许可的疫苗。”Younts 总结道。
 
-**玫瑰看新闻YouTube账号👇**
+许多医学和法律专家同意Younts的观点，即政府不能强制美国人接种疫苗，但并非所有人都认为FDA的批准是主要问题。
 
-[玫瑰看新闻](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
+“我认为缺乏 [FDA] 批准会产生一些影响，”卡托研究所和美国外科医生学院的研究员杰弗里·辛格告诉《田纳西星报》，“但主要问题是联邦政府缺乏强制接种疫苗的宪法权力。”
 
-[黑森林的故事](https://youtube.com/channel/UC7GG4NwpE8VqSZQBHS1tp1A)
+除了强制接种疫苗的问题外，COVID-19疫苗本身也存在激烈争论。联邦和州卫生官员表示：疫苗和加强剂可以防止大多数感染导致的重症，同时承认疫苗保护作用随时间减弱而导致的病例突发。
 
-[Rose news](https://youtube.com/channel/UCRaAQxHogieKRmOtZ1vP6Ew)
+联邦官员还承认，疫苗产生的不良反应报告数量比平时多，包括疑似死亡和心脏炎症，并且人们越来越担心强生疫苗与凝血的关系。
 
-**【玫瑰看新闻】推特账号👇**
+文章来源：[**https://justthenews.com/politics-policy/health/pfizer-continue-distributing-version-covid-19-vaccine-not-fully-approved-fda**](https://justthenews.com/politics-policy/health/pfizer-continue-distributing-version-covid-19-vaccine-not-fully-approved-fda)
 
-[Rose News (@RoseNews4)](https://twitter.com/rosenews4?s=11)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布 ：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
