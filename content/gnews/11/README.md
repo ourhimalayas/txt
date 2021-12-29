@@ -2,22 +2,64 @@
 ---
 
 
-## “游街示众”中共惊现文革式批斗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801624/)
+## 雅典娜疫情更新（澳洲今日新增病例向2万逼近）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1801715/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1655.png)[图片来源](https://me.mbd.baidu.com/r/yNoPPJ8KdO?f=cp&amp;rs=2532260241&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0137fb131ceec332)
-12月29日每日经济报报道，12月28日广西百色市靖西警方在安宁乡等地开展走私、偷渡等涉边违法犯罪人员“十个一律”现场惩戒警示活动。当日上午8时，一辆挂有“严惩涉边境犯罪行为维护边疆和谐稳定”“靖西市2021年涉边类案件现场惩戒活动”横幅标语，载着由8名民警押解的4名涉嫌运送他人偷越国（边）境罪嫌疑人的敞篷式惩戒宣传车从城区出发，驶向惩戒活动现场，12月29日，一段4人被押解“游街示众”的视频在网络流传，视频中几人身穿防护服，胸前和后背挂有大幅照片。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-9.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2021年 12月29日）
 
-“游街示众”彰显了羞耻刑的威力，围观与鄙夷的目光就是对其制裁的武器，大家会沉浸于“杀一儆百”的快意恩仇之中。但是“游街示众”不利于对违法犯罪分子的教育改造，如此惩戒不仅会摧残他们的羞耻心，而且由此产生的强大社会舆论也会排斥他们回归社会。如此一来，不仅起不到教育坐拥，还会迫使他们走向社会的对立面，继续危害社会。对于违法犯罪者进行教育惩戒是必要的，但绝不是以血还血的报复式惩罚，而是教育与惩戒的有机结合。
+**一，全球疫情基本数据**
+感染总数：2.82859605亿（日新增93.0469万，14天增幅+51%）
+死亡总数：541.3189万（日新增 6,408人，14天增幅–10%）
+每万人感染人数：437.5615人（除中国外）
 
-中共国所谓法律，只是便宜了各类有权力庇护混蛋和无权力庇护混蛋去违法犯罪而已。于艰辛讨生计的无权力守法者来说，生存环境，反而是越来越坏了惩恶也不能违法，执法更应畏法，这种文革式的批斗大会，也是中共独裁者还处于原始手段奴役百姓。
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
 
-信息来源：[【广西4人被押解游街示众，公安局、乡政府回应：按要求处罚，没有不合适】](https://me.mbd.baidu.com/r/yNoPPJ8KdO?f=cp&amp;rs=2532260241&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0137fb131ceec332)
+**三，澳洲疫情和“疫苗”数据**
+感染总数：341,437（今日新增 18,243人）
+死亡总数：2210人
+每万人感染人数：124.9699人
+“疫苗”毒针注射总数：42,289,453  （今日新增37,226针）
+第二针“接种”：1880.2753万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1657.png)
+今日澳大利亚病例新增再创新高，向两万大关逼近。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。这个直冲云霄的新增病例数字曲线和澳大利亚16岁以上人口接种至少两剂疫苗的91.2%比例放在一起可以说极为讽刺。恰巧最近丹麦一项观察性研究发表，发现两种疫苗毒针的防范奥米克戎毒株的“有效性”只能维持60天而已。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1658.png)
+而到了90天时，如图中红框内的数字所示，其有效性都降低到了分别为-39.3%和-76.5%，也就是说，比不打疫苗者更加容易感染！实际上这意味着，这些毒针注射虽然在几个星期内也许能够暂时提高对中共病毒的免疫力，但是90天后其免疫力就大幅下降到比不打疫苗低得多的水平，实际上也就是严重损害了免疫力。可叹的是，政府的应对措施竟然是继续号召大家打加强针，难道人们都不明白饮鸩止渴，扬汤止沸的道理吗？
+
+果然今天打脸的新闻就爆出来了，澳洲著名的影星，“金刚狼“的扮演者休·杰克曼（Hugh Jackman）12月5日才刚刚注射加强针，仅仅24天后的今天就被感染了。
+
+既然这是丹麦的研究，我们就来看一下丹麦的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/111-3.png)丹麦每日新增病例曲线（来源：Our　World in Data）![](https://assets.gnews.org/wp-content/uploads/2021/12/21-3.png)
+上图是丹麦疫苗接种的曲线，深绿色部分是加强针，已经注射加强针的丹麦民众占总人口的比例已经高达43%。再看看上图的丹麦的疫情曲线，跟澳洲很相似，都是笔直向上。这两幅曲线对照来看，对于加强针能否有用，已经可以一目了然了。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
