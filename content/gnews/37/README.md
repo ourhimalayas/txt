@@ -2,12 +2,31 @@
 ---
 
 
-## Himalaya Christmas
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1799882/)
+## GTV新闻访谈简报|2021年12月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1800104/)
 
-台湾宝岛农场 秘密才艺组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1228text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.28  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61cbba8100f9a119180c9ef8)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

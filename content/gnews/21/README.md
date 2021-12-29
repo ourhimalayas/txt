@@ -2,30 +2,26 @@
 ---
 
 
-## 澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800546/)
+## 港警以“串谋发布煽动刊物”罪名逮捕《立场新闻》高管
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1800703/)
 
-**翻译：小鱼儿**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-361.jpg)图片来源：Forbes
-澳大利亚演员休-杰克曼在纽约工作时对COVID-19检测呈阳性。这位金刚狼明星在社交媒体上通知他的粉丝，他在周三上午（当地时间）为他主演的一部音乐剧进行例行抽查时，检测结果呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s.jpg)警察守在香港立场新闻的办公室所在的建筑。(2021年12月29日) 图片来源：VOA
+据美国之音12月29日报道，香港警方国家安全处以“串谋发布煽动刊物”的罪名逮捕了在线媒体公司“立场新闻”包括副采访主任、同时还是香港记者协会主席的陈朗升在内的六名现任和前任高层人员。被逮捕的还包括曾任立场新闻董事会成员的歌手何韵诗。
 
-在一个35秒的简短视频中，他说他希望他的数千名粉丝从我这里知道这个消息。他说，”我的症状就像感冒，我的喉咙发痒，有点流鼻涕，但我很好，”杰克曼边说边戴着黑色面罩。”我只是要尽快做我能做的一切，一旦我的病好了，我就会回到舞台上。”他向粉丝们保证他做得很好，并敦促大家保持安全和善良。
+自从国安法实施后，香港政府就明目张胆地公开抓捕各界人士。英国政府治理下的香港从前没有过的港独、港爆分子都被中共找出来了，香港曾经拥有的自由、和平、繁荣、平安已经荡然无存，香港笼罩在中共的红色邪魔之下。
 
-杰克曼正在百老汇主演《音乐人》，该剧在圣诞节前刚刚开演。几天后，在联合主演萨顿·福斯特对COVID-19检测呈阳性后，它被迫取消了一些演出。这将是该剧的第二次停演，新年的演出被重新安排，杰克曼预计要到1月6日才会回来。这位深受观众喜爱的澳大利亚人已经注射了两个剂疫苗，并在12月5日接受了加强针注射。
+新闻参考链接：[香港警方以“串谋发布煽动刊物”罪名逮捕立场新闻六名高管](https://www.voachinese.com/a/hong-kong-police-arrest-six-from-pro-democracy-online-media-outlet-20211228/6373786.html)
 
-纽约目前正处于感染率激增的阶段，该州在周二记录了超过31,000个病例。美国的病例也在激增，有233,485例感染报告。周二，美国疾病控制和预防中心建议将COVID阳性患者的隔离期从10天减半为5天。
+* * *
 
-参考新闻：[Hugh Jackman forced to postpone The Music Man production return after testing positive to COVID-19](https://www.skynews.com.au/australia-news/coronavirus/hugh-jackman-forced-to-postpone-the-music-man-production-return-after-testing-positive-to-covid19/news-story/0229a5dd2f4c29b01d19853f2ab3b6c5)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-发布：去中心化Math
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

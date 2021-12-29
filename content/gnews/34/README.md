@@ -2,25 +2,34 @@
 ---
 
 
-## 抗新冠病毒药物与常见药合用会引起危害生命的反应
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1800226/)
+## 奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800394/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-150.png)
-图片来源： www.voachinese.com
+作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在刚刚过去的圣诞节周末，在新冠疫情期间出行人数和航班都严重萎缩的情况下，全球仍有7000多个航班被取消，近2万个班次延误。完全打乱了成千上万人圣诞周末出游的年末度假计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-19.jpg)
+主要原因是最近一轮病毒变种奥密克戎肆虐导致的各种溢出效应，对各航空公司的机组人员和地面运营人员都产生了直接而严重的影响。大量航空公司员工因检疫隔离而缺席，或因感染新冠病毒而请病假。
 
-零对冲网12月28日报道，上周美国食品药品监督管理局（FDA)在圣诞节期间 批准了两种令人兴奋的抗新冠病毒药物，默克公司的默诺匹韦和辉瑞公司的派克斯洛韦德。
-在第一手数据刚发布出来，就招来了尖锐的关于药物安全性的问题，但现在这些所谓“神奇”的药物先进入病人的血液循环，主流媒体认为分享一些批评也是安全的。
-NBC新闻报道这些药物需要开处方的医生“仔细监测”，这也会造成医生不愿意开处方，这无疑是对于由奥米克戎带动的这波疫情对原本已不堪重负的医疗系统带来沉重打击。
-作为提醒，，FDA只允许辉瑞的派克斯洛韦德用于“轻至中度”的新冠病人，年龄最小12岁，有基础疾病预计有住院和死亡危险的病人。
-但很不幸的是，辉瑞和默克的药物都有一些严重的问题，最严重的是当与他汀类药物(抗高血压药物)甚至一些抗忧郁药合用时可能引起致命性反应。
-而且对于有肝肾疾病患者，FDA不推荐医生开辉瑞的抗新冠药，认为可能是有害的。
-尽管如此，这二家公司期待在来年各自将有数百万张处方。我们的问题是，如果一个病人因为药物交互反应造成死亡，是不是还算是新冠死亡吗？
+在平安夜，全球有近2400个航班取消，11,000个航班延误；周六圣诞节当天，全球有近2800个航班取消，8,000个航班延误；周日，全球有近2000个航班取消。
 
-##### **新闻来源： **[COVID Antiviral Pills Cause Life-Threatening Reactions With Many Common Meds](https://www.zerohedge.com/covid-19/covid-antiviral-pills-cause-life-threatening-reactions-many-common-meds)
+参考链接：
+1. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.thegatewaypundit.com/2021/12/6000-flights-cancelled-christmas-weekend/)
+2. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.zaobao.com.sg/news/world/story20211227-1226753)
 
-# ** **
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
+总编：文真
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

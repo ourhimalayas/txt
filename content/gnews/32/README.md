@@ -2,28 +2,30 @@
 ---
 
 
-## 港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1800285/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-5
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800399/)
 
-**撰文/ 港台前线关注组｜发布日期/ 29/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
+作者：纽约香草山 – 天滅中共
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+记者 ISOBEL YEUNG 在采访视频中，用引导性的语言，评价郭文贵先生拉拢以班农为首的美国右派，以“打倒共产党”为噱头，假借“奉行正义、宣传真相”的名义，利用 GTV、GNEWS 散布虚假信息，谋求私利。对此，郭先生引用了自己过往提出的，多则已得到事实验证的预告，证明了无论是他个人、还是 GTV、GNEWS，只是希望为真相的传播，提供多一种途径，希望全球人民在中共邪恶的面前，少一点牺牲，除此之外，别无所求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-34.jpg)
+现在，我们一起看到，还原采访真相第五期：反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力。（播放视频08:55）
 
-香港警方国安处今晨六点出动200名军装警及便衣对《立场新闻》展开拘捕行动，警方以涉嫌违反《刑事罪行条例》第9及第10条，串谋发布煽动刊物罪拘捕六名《立场》高层或前高层，分别为53岁的前总编辑钟沛权、现任署理总编辑34岁的林绍桐、63岁的前董事周达智、63岁的前董事方敏生，以及另外两位前董事，73岁的资深大律师吴霭仪、44岁的歌手何韵诗。
+参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-5](https://www.gettr.com/post/pkgosm1da1)
 
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747220143.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747262884.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747224643-1.jpg)
-
-
-
-
-随后，国安处手持法庭手令又到《立场新闻》位于观塘楼上的办公室搜查、检取新闻材料，过程中警方在大厦外划出区域阻止靠近，并封锁《立场》办公室所在的14楼全层，同时禁止传媒拍摄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/國安處清晨上門拘六名《立場新聞》涉串謀發布煽動刊物.jpg)
-来源｜[now](https://news.now.com/home/local/player?newsId=461459)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
