@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/29/2021 6:11 AM (UTC)`
+
+12/28/2021 Miles Guo’s GETTR: The CCP is plundering the wealth of the rich leading to wailing and sorrows everywhere in Communist China; Xi refused to meet with the head of a European country during the Winter Olympics, and this makes people wonder what had happened to Xi; many banks in Communist China have a liquidity crisis and the economy is going to collapse soon, but many people still choose to live in their own fantasies<br/><br/>12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首，这令人不禁浮想联翩；国内多家银行有流动性危机，经济随时崩溃，但很多人却仍抱有幻想<br/>
+![img](https://media.gettr.com/group26/getter/2021/12/29/06/998afe31-a030-c6ff-c59e-842543029d2e/out.jpg)
+
+---
+
 `@miles 12/28/2021 8:39 PM (UTC)`
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (4) : <br/>💥 Why does Miles Guo so against the CCP?<br/>☘️ Miles saw all the facts and truth of the disasters happening in China. He has prepared for nearly 20-30 years to be stronger, to build more relationships and more economy power.<br/>☘️ He is #AntiCCP in his blood. #takedowntheccp <br/> <br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段四：<br/>💥 郭先生为何如此反共？<br/>💦 郭先生看到了中国发生的灾难的所有事实和真相，他已经准备了将近二、三十年，以使自己变得更强大，建立更多的关系和更多的经济力量。<br/>💦  #反共 #消灭共产党 是在郭先生血液里的 ！
@@ -149,14 +156,6 @@ Attempts to suppress news on the potential #XianVariant are collapsing. <br/><
 
 HBO Vice’s Isobel Yeung (!) tried to get away with deceptively editing an interview with @Miles Guo. HBO didn’t expect Guo to have — and release — the unedited original LOL. <br/><br/>Beware CCP shills folks! No-one should believe their attempted deflection of #XianVariant either [part 1 of 2]
 > `@stevebannon 12/26/2021 4:10 PM (UTC)`<br/>Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@harnwell 12/24/2021 11:11 AM (UTC)`
-
-President Xi you are a total failure — and you have clearly lost the Mandate of Heaven.<br/><br/>We are watching your every move…<br/><br/>#XianVariant <br/><br/>https://www.digitalsoldiers.show/xi-and-china-hiding-a-new-variant/
 
 ---
 
