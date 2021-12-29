@@ -2,26 +2,23 @@
 ---
 
 
-## 日本将对中共军方的留学生发出国际通缉令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801841/)
+## 西班牙电信将替换华为5G设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801853/)
 
-作者：日本方舟农场 – Andy5
+作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月28日，日本国家安全机构——日本警视厅公安部向一名中共国留学生发布了逮捕令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-37.jpg)
-据日媒报道，该留学生名叫王建彬，其曾于2016年在中共军方的指使教唆下建立虚假公司，并试图购买仅贩售给日本企业的网络杀毒软件。日本公安部指出，这类非法购买很可能是为了找到这种杀毒软件的漏洞，从而对日本进行网络攻击。另外，王建彬与其他两人还涉嫌攻击了日本宇宙航空研究开发机构JAXA。
+当地时间12月27日，欧洲第三大电信运营商西班牙电信的一名消息人士透露，该公司已经向瑞典制造商爱立信公司购买了5G网络设备，用以替换之前铺设在西班牙的华为公司相关产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-51.jpg)
+据了解，更换下一代移动网络设备是西班牙电信在2019年宣布的“供应商多元化”战略的一部分。而作为西班牙最大的电信运营商，西班牙电信此前也曾铺设了部分华为5G网络设备。但据美国政府的消息指出，华为的网络设备含有漏洞和后门，是中共非法获取信息和收集情报的间谍工具。其后，西班牙电信遂决定在新一代移动通信网络中大幅减少华为网络设备的份额，并开始寻求更加安全、可靠的替代供应商。
 
-日本公安部透露，目前，这三名嫌疑人在被盘查后已经离开了日本，但日本公安部将计划通过国际刑警组织对他们发布全球通缉令。
+分析人士表示，鉴于华为的5G设备与爱立信等欧美公司并不兼容，如果西班牙电信采用了爱立信的5G设备，可以预见华为将彻底失去在西班牙的市场——这也是继英国、法国之后，华为在欧洲市场上被进一步缩减份额。
 
-参考链接:
-1) . [20211228日本FNN](https://www.gettr.com/post/pktjuf2c9e)
-2) . [JAXAなどに大規模なサイバー攻撃 中国人民解放軍の指示か](https://www3.nhk.or.jp/news/html/20210420/k10012984761000.html)
-3) . [东京警方批捕试图非法购买安防软件的中国男子](https://china.kyodonews.net/news/2021/12/88057277335a.html)
+参考链接:[Telefonica buys Ericsson 5G equipment to replace some Huawei gear](https://www.reuters.com/markets/deals/telefonica-buys-ericsson-5g-equipment-replace-some-huawei-gear-2021-12-27/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：飞虹
-编辑：文特
+总编：Irene木木
+编辑：Ivy001
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

@@ -2,46 +2,35 @@
 ---
 
 
-## 美国在台协会处长呼吁 国际社会应携手向中共问责
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801844/)
+## 据报道Steam已在中共国被禁止
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801916/)
 
-作者：纽约香草山医疗部 – 云豹
+据《The Gamer》记者：STACEY HENLEY，2021年12月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1660.png)图片源自thegamer.com
+中共国玩家报告Steam已被列入黑名单。
 
+一些相互矛盾的报告声称这是DNS攻击的结果，而不是故意禁止。
 
+中共国玩家报告Steam网店和所有Steam社区页面已被列入黑名单，这意味着在该国无法再访问它们。Steam中国于2月推出，但出售游戏的数量偏少。该站点仍在正常运行，但“Steam全球”站点已于圣诞节当天在该国下线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+此举令人意外，但符合中国政府过去12个月在电子游戏方面的行动模式。Fortnite 于今年11月15日在中国关闭。中共国关于游戏行业的限制实施两个月后，仍没有一款游戏获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1661.png)图片源自thegamer.com
+该站点被列入黑名单的事实意味着Steam不仅仅是暂时关闭，而是被故意禁止。用户已在Twitter、ResetEra和Reddit上确认了这一点。
 
+目前尚不清楚这将如何影响中国游戏的发展。同时，还不清楚这对Devotion意味着什么。一款恐怖游戏因贬低中共国党魁习近平而被从Steam下架。
 
+很明显，这可能是中国迄今为止对游戏行业的最大限制。
 
-台媒12月27日报道，美国在台协会处长孙晓雅在接受知名油管网红“阿滴英文”的采访时表示，应对中共的军事挑衅，最好的方式就是国际社会共同发声，向中共问责。
+文章来源：**[https://www.thegamer.com/steam-banned-china-christmas-day/](https://www.thegamer.com/steam-banned-china-christmas-day/)**
 
-孙晓雅认为，美国政府对中共军机扰台的态度很明确， 中共屡次侵犯台湾空域，破坏区域稳定，美方强烈呼吁中共停止在台海及南海的各种挑衅行为，国际社会也应站在一起，向中共当局警示，这种行为是不能被接受的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-365.jpg)
-参考链接：
-[孫曉雅談共機：國際同聲告訴中國 不許破壞區域穩定\[影\]](https://www.cna.com.tw/news/firstnews/202112270332.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

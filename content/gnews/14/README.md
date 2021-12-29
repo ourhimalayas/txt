@@ -2,32 +2,35 @@
 ---
 
 
-## 继续给人们注射毒疫苗的医生，是谋杀犯
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1801804/)
+## 日本将对中共军方的留学生发出国际通缉令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801841/)
 
-**简评：**医生没有理由继续给人们注射新冠毒疫苗。如果他们继续做，就是杀人犯。更多的人应该站出来拒绝强制疫苗，只要有更多的人站出来，全球主义者就会失败，并且会得到清算，同时那些助纣为虐的人也会得到清算。不要小看自己，哪怕对方看起来如此强大，反抗的群体也在一天天壮大。这种较量不是冲刺，而是马拉松。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月28日，日本国家安全机构——日本警视厅公安部向一名中共国留学生发布了逮捕令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-37.jpg)
+据日媒报道，该留学生名叫王建彬，其曾于2016年在中共军方的指使教唆下建立虚假公司，并试图购买仅贩售给日本企业的网络杀毒软件。日本公安部指出，这类非法购买很可能是为了找到这种杀毒软件的漏洞，从而对日本进行网络攻击。另外，王建彬与其他两人还涉嫌攻击了日本宇宙航空研究开发机构JAXA。
 
-GTV视频链接：[Dr Graham Lyons：任何理由继续给人民注射这种毒药，如果他们继续这么做，他们就是谋杀者](https://gtv.org/video/id=61c1ea9243ccb726a0896ae5)
+日本公安部透露，目前，这三名嫌疑人在被盘查后已经离开了日本，但日本公安部将计划通过国际刑警组织对他们发布全球通缉令。
 
+参考链接:
+1) . [20211228日本FNN](https://www.gettr.com/post/pktjuf2c9e)
+2) . [JAXAなどに大規模なサイバー攻撃 中国人民解放軍の指示か](https://www3.nhk.or.jp/news/html/20210420/k10012984761000.html)
+3) . [东京警方批捕试图非法购买安防软件的中国男子](https://china.kyodonews.net/news/2021/12/88057277335a.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**视频字幕：**
+总编：飞虹
+编辑：文特
+校正/发稿：Fei797
 
-**Dr GrahamLyons：**说到医生。他们没有任何理由继续给人民注射这种毒药。如果他们继续这么做，他们就是谋杀者。我不恐惧这么说，因为我对此非常愤慨。我想对那些医生说，当你早晚照镜子的时候，你看到的是一个治愈者还是施害者？
-
-更多的人应该站出來，他们应该拒绝遵守强制疫苗。只要有更多的人不服从，全球主义者就会失败，他们最终会得到清算。我希望看到对他们和那些与他们狼狈为奸的人进行真正的清算。
-
-**有时候我们可能会认为我们的对手如此强大，以至于我们无能为力。那你小看了自己。你如果这么想，就什么都做不成。我们应该想，现在我们是整个（反中共疫苗）群体的一部分，这个群体在一天天壮大。而我们的对手正在崩裂，推动疫苗的邪恶混蛋们正在崩裂。这件事正在变得很大。这不是冲刺，是马拉松。**
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Wade | 简评/文字整理/编辑：胖丁 | Page: Daoiii*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[![](https://express.adobe.com/page/Pvx3SeCye12ki/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/Pvx3SeCye12ki/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
