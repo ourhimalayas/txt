@@ -2,31 +2,57 @@
 ---
 
 
-## 春节将至中共纪委紧盯享乐奢靡行为
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1800835/)
+## 2021年12月29日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800853/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-37.jpg)
-网络图片
+撰稿人：文远Bruce
 
-中共纪委12月27日针对元旦、春节将至，发布做好“正风肃纪”工作的通知，强调要营造风清气正的节日氛围，紧盯享乐奢靡等行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-39.jpg)
 
-中共纪委的这一通知，在以往同一时间也有类似的要求和措辞，但是在当下疫情肆虐，全球在死人，经济一片低迷的情况下，发出这样的通知，用意何在呢？
+澳大利亚新洲日感染中共生化病毒人数超万
 
-一方面，通过禁止享乐奢靡行为，来反衬国内经济形势一片大好，老百姓生活富裕，所以才可能出现铺张浪费，享乐奢靡的行为，所以纪委要提醒，要紧盯。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-14.jpg)
 
-再一方面，给实际快要停滞的经济、马上要崩盘的房地产、甚至即将断粮的百姓餐桌盖上一块遮羞布，找一个理由，打一个预防针，日后出现类似情形，可以说是纪委要求的结果，并不是经济真的有多差，而是大家都在艰苦朴素，忆苦思甜！
+2 & 3 以太币最新报价 &走势图
 
-第三方面，就是继续麻痹大众，让所有人感觉一切照旧，尽管有疫情，尽管有国际封锁和几十个国家的脱钩，那都没什么了不起，CCP治理有术，泱泱大国，巍然不动！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3-6.jpg)
 
-CCP的各种招数，都只有一个目的，就是骗！从没有想过真的要改进、要提高、要增强、要为民服务。无论这些手段看起来多么多变高妙，最终都是兔子打拳一溜小动作，没有实际效用，都不能救自己的小命！中纪委的这一动作，不过是CCP成千上万个花架子中的一个，明眼人只须把它看成一个小丑表演，不必过分上心！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-3.jpg)
 
-新闻参考链接：
+4. 中共国继续集权中
 
-[联合新闻网](https://udn.com/news/story/7331/5990413?from=udn-catelistnews_ch2)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-3.jpg)
 
-**编辑：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
+5. 中国信达入股蚂蚁消费金融20%股份
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-3.jpg)
+
+大疆进入美国禁止投资名单
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-3.jpg)
+
+7. 挪威或将明年停止销售内燃机车
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-2.jpg)
+
+8. 哈伯望远镜的继承者韦伯望远镜将到达距离地球150万公里处
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture9.jpg)
+
+9. 10.11 三只松鼠 眯眯眼事件
+
+共产党邪恶的愚民术、戾害国脆弱的玻璃心，自两日前三只松鼠2019年拍的一组眯眯眼模特图被指辱华，后续全国的朝阳大妈，小粉红们又来了一拨揪斗高潮，不是十九大公告说要四个自信：道路自信、理论自信、制度自信、文化自信。自信在哪呢？只是极端的自卑，闭关锁国！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture10.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture11.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture12.jpg)
+
+发布： Hong
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,121 +15,121 @@
 
 ---
 
-### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/1/README.md)
+### [研究表明：美国至少有 40 万人死于新冠病毒“疫苗”](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [内幕：社交媒体平台“大脑劫持”上瘾方法对儿童尤为有害](/content/gnews/2/README.md)
+### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [内幕：社交媒体平台“大脑劫持”上瘾方法对儿童尤为有害](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/3/README.md)
+### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战狼秦刚被美媒联访后无半家报导 CCTV记者气得跳脚](/content/gnews/4/README.md)
+### [战狼秦刚被美媒联访后无半家报导 CCTV记者气得跳脚](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/5/README.md)
+### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [窥探：日本再创新高的国防预算](/content/gnews/6/README.md)
+### [窥探：日本再创新高的国防预算](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/7/README.md)
+### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】中共国去年关闭银行网点近3000家](/content/gnews/8/README.md)
+### [【中日财经爆】中共国去年关闭银行网点近3000家](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/9/README.md)
+### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [何韵诗与媒体人遭港警大抓捕 台民进党对中共强烈谴责](/content/gnews/10/README.md)
+### [何韵诗与媒体人遭港警大抓捕 台民进党对中共强烈谴责](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [兰德·保罗指责福奇应对每月数千例 COVID 死亡负责](/content/gnews/11/README.md)
+### [兰德·保罗指责福奇应对每月数千例 COVID 死亡负责](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国对数字货币的监管政策即将出炉](/content/gnews/12/README.md)
+### [美国对数字货币的监管政策即将出炉](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄克拉荷马州联邦法官判决国民警卫队接种中共病毒疫苗](/content/gnews/13/README.md)
+### [俄克拉荷马州联邦法官判决国民警卫队接种中共病毒疫苗](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/14/README.md)
+### [有声|尼加拉瓜将台湾的宗教馈赠移交给中共国](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/15/README.md)
+### [有声|美军推出“让中共感到恐惧”的战略轰炸机](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/16/README.md)
+### [有声|“不抢救”政策在疫情大流行期间被非法滥用](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [西安民众快断粮，怒批中共当局非人性防疫措施](/content/gnews/17/README.md)
+### [西安民众快断粮，怒批中共当局非人性防疫措施](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [崩溃的征兆？中国恐慌性囤积世界一半粮食供应](/content/gnews/18/README.md)
+### [崩溃的征兆？中国恐慌性囤积世界一半粮食供应](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/19/README.md)
+### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/21/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2021年12月29日新闻集](/content/gnews/20/README.md)
+### [2021年12月29日新闻集](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [澳媒报道：中共国银行强调稳定宏观经济](/content/gnews/21/README.md)
+### [澳媒报道：中共国银行强调稳定宏观经济](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [春节将至中共纪委紧盯享乐奢靡行为](/content/gnews/22/README.md)
+### [春节将至中共纪委紧盯享乐奢靡行为](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [太空碰瓷：中国空间站投诉险遭SpaceX卫星碰撞](/content/gnews/23/README.md)
+### [太空碰瓷：中国空间站投诉险遭SpaceX卫星碰撞](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国为何鼓动网友“自取其辱”](/content/gnews/24/README.md)
+### [中共国为何鼓动网友“自取其辱”](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [脱钩实锤，中共出口转内销变相承认脱钩事实](/content/gnews/25/README.md)
+### [脱钩实锤，中共出口转内销变相承认脱钩事实](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [澳媒报道：日中即将在2022开通双方军事热线](/content/gnews/26/README.md)
+### [澳媒报道：日中即将在2022开通双方军事热线](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [中国和西方世界是天地之差](/content/gnews/27/README.md)
+### [中国和西方世界是天地之差](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [研究观察新冠疫苗接肿者身上产生的結果都不尽相同](/content/gnews/28/README.md)
+### [研究观察新冠疫苗接肿者身上产生的結果都不尽相同](/content/gnews/30/README.md)
  ` GTV新聞訪談`
 
-### [中共鹤岗市财政拮据停招公务员引热议](/content/gnews/29/README.md)
+### [中共鹤岗市财政拮据停招公务员引热议](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [你们又“赢”了吗](/content/gnews/30/README.md)
+### [你们又“赢”了吗](/content/gnews/32/README.md)
  ` 澳喜特战旅Gnews`
 
-### [CDC承认其夸大了奥米克戎病毒的预估传播数据](/content/gnews/31/README.md)
+### [CDC承认其夸大了奥米克戎病毒的预估传播数据](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [数字银行的类型](/content/gnews/32/README.md)
+### [数字银行的类型](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/33/README.md)
+### [郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/35/README.md)
  ` GTV News Talk`
 
-### [每日快报：CDC承认将Omicron的传播性高估了超过200%](/content/gnews/34/README.md)
+### [每日快报：CDC承认将Omicron的传播性高估了超过200%](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [港警以“串谋发布煽动刊物”罪名逮捕《立场新闻》高管](/content/gnews/35/README.md)
+### [港警以“串谋发布煽动刊物”罪名逮捕《立场新闻》高管](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [周杰伦没有拒演过宋祖英哦](/content/gnews/36/README.md)
+### [周杰伦没有拒演过宋祖英哦](/content/gnews/38/README.md)
  ` 骄子`
 
-### [郭文贵短直播音频2021.12.26](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [以色列心脏外科医生Jacob Lavee 教授成为世界上第一个接种第4剂COVID试验疫苗的健康人](/content/gnews/38/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”](/content/gnews/39/README.md)
+### [郭文贵短直播音频2021.12.26](/content/gnews/39/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/40/README.md)
