@@ -2,44 +2,37 @@
 ---
 
 
-## 中国地方政府开始没收恒大的土地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800435/)
+## 拜登总统签署《国防授权法》 应对中共军事威胁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1800494/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 撰稿：日本东京方舟农场  海星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Evergrande.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBAB032-FDA5-4812-9312-FD579826DA13.jpeg)（图片来源：德国之声）
+
+12月27日，美国总统拜登正式签署《国防授权法》(NDAA)，即日生效。该法案涉及应对中共威胁的措施。
+
+据《美国之音》报导，拜登总统当日正式签署2022财政年度的《国防授权法》，该法案将授权拨款7770亿美元用于美国国防开支，其中拨款71亿美元用于“太平洋威慑倡议”(Pacific Deterrence Initiative)，以应对中共军事威胁。
+
+此外，该法案不仅发表了美国国会支持防卫台湾的声明，同时还将采取多项具体措施协助台湾提升自我防卫能力，并邀请台湾参与环太平洋军事演习。
+
+同时，该法案规定国防部禁止采购中国新疆地区强迫劳动生产的产品。
+
+据悉，本月早些时候，这部法案在美国参众两院以压倒性多数票获得通过，受到民主与共和两党议员广泛的支持。
+
+*参考链接：*
+
+1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
+3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
 
 
- 
-图片来源：REUTERS/Aly Song
+* * *
 
+*素材采编：海星*
 
-#### 编译：小红帽
+*编辑：文顺*
 
-根据自然新闻12月28日有关中国恒大集团破产的报道中，**中国的一个地方政府已经采取行动，没收了房地产开发商中国恒大集团的两块土地。**
-
-路透社报道说，成都的官员从这个资金短缺的开发商手中夺走了这两块地。这已经成为资产可以被扣押的情况下没收资产的最新举措。
-
-成都土地规划局的官员说，他们正在收回这两块总面积超过30万平方米的土地，因为该公司在持有这些土地10年后，一直没有采取行动进行开发。
-
-该局于12月17日发布了关于这两块地的通知。此前海口市政府在上周初也采取了同样的行动，无偿收回了海南的一块地。
-
-据一位接受路透社采访的消息人士称，某地方政府也盯上了恒大在广州的足球场，以便将其出售。该球场按容量计算将成为世界上最大的足球场。恒大已经停止了该项目建设，因为资金短缺。
-
-与此同时，恒大的另一个部门–中国恒大新能源汽车集团上个月宣布，要将七个项目的未使用财产归还给中国政府，这些财产价值约为2.04亿美元。
-
-MISES研究所学者丹尼尔·拉卡勒（Daniel Lacalle）在9月底指出：“恒大的问题在于，它不是一个轶事，而是一个基于杠杆增长的模式的征兆。恒大不惜以鬼城、闲置的基础设施和疯狂的建设来夸大GDP。它不仅仅是一家‘中国的雷曼兄弟’。”
-
-新闻来源：[Chinese city confiscates land from defunct Evergrande as scandal over property developer grows – NaturalNews.com](https://www.naturalnews.com/2021-12-28-chinese-city-confiscates-land-from-defunct-evergrande-scandal.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 
