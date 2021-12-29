@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/29/2021 11:49 PM (UTC)`
+
+12/29/2021 Miles Guo: Yang Jiechi and Wang Yi said in a top-secret speech that it is the best time to invade Taiwan, while the US and Japan will not interfere, the economy of the US and EU will collapse, and the CCP will be the center of the future multipolar world order; the CCP will hold the Winter Olympics anyway and take this opportunity to instigate nationalist sentiment<br/><br/>12/29/2021 文贵直播：杨洁篪和王毅在绝密讲话中说现在是打台湾的最佳时期，美日不会干涉，欧美经济将崩溃，未来会是以中共为核心的多极世界；中共将硬着头皮办冬奥会并借机煽动民族主义情绪<br/>
+![img](https://media.gettr.com/group44/getter/2021/12/29/23/64608e41-d67a-ba6b-8a59-5b4b13f16894/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@andysaikai 12/29/2021 9:46 PM (UTC)`
@@ -149,13 +156,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 `@miles 12/27/2021 5:13 PM (UTC)`
 
 27/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇Top MV Chart in Hong Kong 🇭🇰, Taiwan 🇹🇼, New Zealand 🇳🇿, Macau 🇲🇴, Fiji 🇫🇯 <br/><br/>No.1🥇 Rock MV Chart in USA 🇺🇸, New Zealand 🇳🇿<br/><br/>No.1🥇 Rock Song Chart in Hong Kong 🇭🇰, Singapore 🇸🇬, New Zealand 🇳🇿<br/><br/>No.1🥇Hip-pop/Rap song Chart in Hong Kong 🇭🇰 <br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Macau, Fiji, USA, Singapore🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1795728/<br/><br/>12月27号，Hcoin To the Moon位列iTunes<br/>香港🇭🇰，台湾🇹🇼，新西兰🇳🇿， 澳门🇲🇴，斐济🇫🇯热门MV榜首🥇！<br/><br/>美国🇺🇸，新西兰🇳🇿摇滚MV榜首🥇！<br/><br/>香港🇭🇰，新加坡🇸🇬，新西兰🇳🇿摇滚歌曲榜首🥇！<br/><br/>香港🇭🇰嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，新西兰，澳门，斐济，美国，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/27/2021 8:05 AM (UTC)`
-
-12/25/2021 Miles Guo: Wang Leehom offended the "CCP’s first lady", Peng Liyuan, by refusing to perform on stage with her; Communist China’s celebrity community is controlled by the Zeng family; the purpose of targeting the celebrities under the Zeng family’s control, such as Wang Leehom, is to eliminate the Zeng family; the evil of the CCP far exceeds that of Wang Leehom!<br/><br/>12/25/2021 文贵直播：王力宏曾因拒绝和彭丽媛同台演出而得罪了“国母”；中共国的演艺界都是曾家族控制的；拿王力宏等曾家控制的明星开刀，是为了干掉曾家；中共之恶远超王力宏！<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/27/08/0d5b9e1d-fbca-f56e-d1b6-129291a77e83/out.jpg)
 
 ---
 
