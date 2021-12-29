@@ -2,47 +2,65 @@
 ---
 
 
-## 拜登签署国防授权法案加强对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801843/)
+## 法国要求未接种疫苗的人接种疫苗
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1801850/)
 
-作者：纽约香草山医疗部 – 云豹
+![2021 年 12 月 29 日，星期三，法国卫生部长奥利维尔·维兰 (Olivier Veran) 抵达法国巴黎国民议会，与法律委员会的代表举行听证会。在周三下午的议会听证会上，卫生部长为政府计划辩护只允许完全接种疫苗的人继续进入餐厅、电影院、剧院、博物馆和运动场等场所。 （美联社照片/Thibault Camus）](https://storage.googleapis.com/afs-prod/media/740d52c0368b48db8e9e4a7b6c7336bf/400.jpeg)
+随着 omicron 变种袭击欧洲，法国正在加大对未接种疫苗的公民施加压力，要求他们接种疫苗。
 
+由于政府试图为人们接种疫苗提供激励措施，未接种疫苗的人将被限制进入电影院和其他景点。根据Our World in Data的数据，超过四分之一的法国人口未接种疫苗。
 
+周三，预计卫生部长将支持一项仅允许接种疫苗的人进入餐厅、剧院、博物馆和体育场馆等场所的计划。长途火车和国内航班也需要通行证。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+卫生部长奥利维尔·维兰 (Olivier Veran) 在议会听证会上说，创纪录的感染人数意味着每秒有超过两名法国人的 COVID-19 检测呈阳性。Veran 估计，最近约有 10% 的法国人口与感染该病毒的人有过接触。长途火车和国内航班也需要通行证。
 
+据[美联社报道](https://apnews.com/article/coronavirus-pandemic-health-france-europe-7868993408fd36ea17e16afb2dbeeb44)，如果该计划获得议会批准，未接种疫苗的法国人将无法再使用阴性的 COVID-19 检测结果进入针对接种疫苗者适用的室内场所。
 
+该法案规定，对于有家庭或健康紧急情况的人，只要他们能够进行阴性测试，就可以例外地乘坐火车和飞机。
 
-美国总统拜登于当地时间12月27日，正式签署2022年度国防授权法案。 此法案总预算达7777亿美元，其中有71亿美元将专项用于扩大太平洋吓阻倡议，以强化美军实力和加强盟友合作来对抗中共。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-13.jpg)
-法案中提到美国的政策是，美军需维持足够能力，来阻止中共武力犯台，并造成占领台湾的既成事实。 要求美国国防部协助台湾发展不对称性防卫武力，及加强美国国民自卫队与台湾的合作。 国会在法案中建议，美台军方进行实地训练及联合军演，及考虑邀请台湾参加2022年度环太平洋联合军事演习。 扩大包括国防部在内的美台各层级官员交流，协助台湾进行国防规画，整顿后备战力，增强美台双方军事力量的互可操作性。另外也建议美国要协助台湾在中南美洲对抗中共发动的外交战争。
+那些未接种疫苗，但是，持有近期 COVID-19 康复证明的人将能够获得仅限于感染后六个月内有效的疫苗通行证。
 
-参考链接：
-[拜登簽國防授權法強化抗中 助台自我防衛參與環太軍演](https://www.cna.com.tw/news/firstnews/202112280010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+据美联社报道，官员们希望在 1 月中旬之前发放“疫苗通行证”，这是政府避免新封锁的战略的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+周二，法国报告了 180,000 例新病例，该国创下了新的感染记录。据美联社报道，一些预测表明，到 1 月份，每日病例率可能会超过 250,000 例。
 
-总编：文特
-编辑：Lakeman文仁
-校对/发稿：为真不破20
+[新闻来源1](https://thehill.com/policy/international/europe/587575-france-moves-ahead-with-effort-to-pressure-unvaccinated)
 
-**更多资讯，更多关注**
+[新闻来源2](https://apnews.com/article/coronavirus-pandemic-health-france-europe-7868993408fd36ea17e16afb2dbeeb44)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编译/玫瑰天空
+审阅/神之一手
+上传/🌹
+![87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/87BC9F40-22A4-4A65-A29A-A19222FDB0D6.jpeg)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+本栏目宗旨：
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**我们不反疫苗，只针对假疫苗**。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**我们不反科学，只针对反人类**。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**感谢您的支持,请关注和订阅我们的以下账号：**
 
+**新西兰伊甸农场盖特👇**
 
+[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**【玫瑰看新闻】盖特👇**
 
+[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
 
+**玫瑰看新闻YouTube账号👇**
+
+[玫瑰看新闻](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
+
+[黑森林的故事](https://youtube.com/channel/UC7GG4NwpE8VqSZQBHS1tp1A)
+
+[Rose news](https://youtube.com/channel/UCRaAQxHogieKRmOtZ1vP6Ew)
+
+**【玫瑰看新闻】推特账号👇**
+
+[Rose News (@RoseNews4)](https://twitter.com/rosenews4?s=11)
 
  
 

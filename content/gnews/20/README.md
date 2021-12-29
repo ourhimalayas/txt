@@ -2,35 +2,48 @@
 ---
 
 
-## 日本将对中共军方的留学生发出国际通缉令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801841/)
+## 拜登签署国防授权法案加强对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801843/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月28日，日本国家安全机构——日本警视厅公安部向一名中共国留学生发布了逮捕令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-37.jpg)
-据日媒报道，该留学生名叫王建彬，其曾于2016年在中共军方的指使教唆下建立虚假公司，并试图购买仅贩售给日本企业的网络杀毒软件。日本公安部指出，这类非法购买很可能是为了找到这种杀毒软件的漏洞，从而对日本进行网络攻击。另外，王建彬与其他两人还涉嫌攻击了日本宇宙航空研究开发机构JAXA。
+作者：纽约香草山医疗部 – 云豹
 
-日本公安部透露，目前，这三名嫌疑人在被盘查后已经离开了日本，但日本公安部将计划通过国际刑警组织对他们发布全球通缉令。
 
-参考链接:
-1) . [20211228日本FNN](https://www.gettr.com/post/pktjuf2c9e)
-2) . [JAXAなどに大規模なサイバー攻撃 中国人民解放軍の指示か](https://www3.nhk.or.jp/news/html/20210420/k10012984761000.html)
-3) . [东京警方批捕试图非法购买安防软件的中国男子](https://china.kyodonews.net/news/2021/12/88057277335a.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-总编：飞虹
-编辑：文特
-校正/发稿：Fei797
+
+
+美国总统拜登于当地时间12月27日，正式签署2022年度国防授权法案。 此法案总预算达7777亿美元，其中有71亿美元将专项用于扩大太平洋吓阻倡议，以强化美军实力和加强盟友合作来对抗中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-13.jpg)
+法案中提到美国的政策是，美军需维持足够能力，来阻止中共武力犯台，并造成占领台湾的既成事实。 要求美国国防部协助台湾发展不对称性防卫武力，及加强美国国民自卫队与台湾的合作。 国会在法案中建议，美台军方进行实地训练及联合军演，及考虑邀请台湾参加2022年度环太平洋联合军事演习。 扩大包括国防部在内的美台各层级官员交流，协助台湾进行国防规画，整顿后备战力，增强美台双方军事力量的互可操作性。另外也建议美国要协助台湾在中南美洲对抗中共发动的外交战争。
+
+参考链接：
+[拜登簽國防授權法強化抗中 助台自我防衛參與環太軍演](https://www.cna.com.tw/news/firstnews/202112280010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：文特
+编辑：Lakeman文仁
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
