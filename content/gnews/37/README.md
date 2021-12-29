@@ -2,35 +2,28 @@
 ---
 
 
-## 美军推出“让中共感到恐惧”的战略轰炸机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798891/)
+## GTV新闻访谈简报|2021年12月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1799018/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒12月26日报道，曾经被美国空军部长肯德尔描述为，让中共感到恐惧的B-21突袭者战略轰炸机，即将在2022年首次亮相，并在公开展示后的数月内进行首次试飞。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-48.jpg)
-肯德尔表示，自上任以来有3件优先事项，那就是中共、中共、还是中共。去年12月，他在国会上指出，美国必须打造让中共恐惧的武器，并优先用于对付中共。据悉，自美军30年前展示B-2轰炸机以来，这是首次亮相新型战略轰炸机。目前正有5架B-21隐形轰炸机在生产线上，目标是2022年进行首飞与加紧测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
 
-致力于应对中共威胁，是促使肯德而回到五角大楼的重要因素。他在参议院提名会上说，其明确目标是，美国必须击败中共国在附近投射力量的能力。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-28.png)
+文章仅代表作者本人观点，与Gnews无关
 
-参考链接:
-1) . [美正在生產5架測試用B21轟炸機 空軍部長：中國讓我夜不能寐](https://www.chinatimes.com/realtimenews/20210922003752-260409?chdtv)
-2) .[聲稱要讓中國恐懼 美空軍B21隱形轟炸機即將亮相首飛](https://www.chinatimes.com/realtimenews/20211226003216-260409?chdtv)
+视频参看：[2021.12.28早GTV新闻访谈](https://gtv.org/video/id=61cb10e100f9a119180c6bec)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-总编：飞虹
-编辑：DM
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

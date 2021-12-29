@@ -2,53 +2,159 @@
 ---
 
 
-## 维州政府当权者使用政治手腕蒙蔽人民
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1799716/)
+## Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799792/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bypass.jpg)图片来源：VCCI
-**翻译：**月映万川
-**编辑**：翼族
+[https://gtv.org/video/id=61ca063943ccb726a08c516d](https://gtv.org/video/id=61ca063943ccb726a08c516d)
 
-在澳大利亚，《太阳先驱报》收到的文件为我们描述了维多利亚州的两个政府机构——卫生部和劳工安全局——在长达11个月的时间里，在黑暗中进行了令人难以置信的斗争。
+**郭文贵
+Miles Guo**
 
-维多利亚州疫情指挥官耶罗恩·魏玛向维州高等法院提出申请，要求对该州卫生当局作出的可能无法兑现的承诺进行保密，他说：“如果公众了解到这一程序，那么公众们就会意识到接触追踪二维码信息可能会被披露给第三方，这就会大大削弱维多利亚州管理新冠大流行的能力。”
+这个女人，这个Isobel Yeung和VICE和HBO之阴歹
+This woman, how evil of Isobel, VICE, and HBO
 
-但在调查政府对酒店检疫计划的灾难性处理时，劳工安全局（Worksafe）则要求政府提供客人和工作人员的个人名字和联系信息。卫生部拒绝了劳工安全局的要求。劳工安全局通知卫生部，如果它不遵守信息公布的要求，就将面临指控。
+我告诉你文疯而动
+let me tell you Wenfeng,
 
-劳工安全局的检查员甚至未经申请，就出现在卫生部的市中心办公室，要求调看这些文件。
+在新西兰这种国家
+in a country like New Zealand,
 
-今年6月，这些争端被提交到了维州最高法院。卫生部要求基于公共利益豁免条款来免除对这些文件的调看要求。
+就像德国一样，就像那个奥地利是一样的
+Germany and Austria
 
-魏玛先生通过禁言令来掩盖诉讼，成功地禁止了公开任何的细节，随后该案件不得不在一系列非公开的法庭听证会上展开。他在一份书面宣誓书中告诉法庭：“我相信，如果公众担心他们的信息会被第三方共享，而不是因公共健康风险的原因，那么维多利亚人在向接触追踪者提供信息时就会有很大的犹豫。”
+历史上永远是重复的
+this will always be repeated in history
 
-《先驱太阳报》了解到的这场秘密斗争，该报强烈反对任何禁言令。但是案件的细节却一直被压制，直到上周。最后，案件内幕的披露以及卫生部试图掩盖的信息都大白于天下。
+就奥地利这个小破国家就永远培养这种独裁
+Just a small poor country like Austria has cultivated this dictatorship forever
 
-在他的信息保密论中，魏玛先生承认，如果法院不裁定接触者的追踪信息受到公共利益豁免权的保护，他的病毒追踪团队将不再能够保证所获得信息的保密性。他担心这将“破坏公众对接触者追踪系统的信任和信心”，并阻止人们主动接受检测，进而导致进一步的病毒大爆发。
+看这次（强制）疫苗
+Looking at this (mandatory) vaccine,
 
-魏玛先生说：“我们作出了一项重要承诺，即以公共卫生为目的对追踪信息进行保密，除此之外不与他人分享。我们将不得不改变这种做法，而这将是一个至关重要的公众议题。”
+它又是一马前锋，走极端
+it is once again a striker, going to extremes
 
-劳工保护局于9月29日指控卫生部犯有58项罪行，因为它未能保证人们在酒店隔离区的安全。为确定联系人追踪信息是否受到公共利益豁免保护而进行的庭审于10月18日进行，在此之前劳工保护局发现它已经有了足够的证据来指控卫生部，然而最后却被终止了。
+新西兰这种国家
+The countries like New Zealand,
 
-工作场所的监督机构告诉卫生部，它将不再要求保密信息，并将要求法院撤销对该事项的听证。
+还有像澳大利亚这种国家，像英国这种国家
+as well as Australia and the United Kingdom,
 
-最终，安德鲁·基奥法官驳回了此案，并没有对卫生部的公共利益豁免权作出裁决，尽管卫生部要求法官要对此进行裁决。
+它走极端的时候
+when it goes to extremes,
 
-卫生部告诉法院，如果没有任何裁决，将对未来是否可以用公共利益豁免条款留下了不确定性，并且“可能会对机密信息的发布和使用造成一定程度的公众恐慌”。
+你当地的华人永远是少数的
+the local Chinese population will always be a minority
 
-即使卫生部在对劳工安全局的公共利益豁免诉讼中获胜，基奥法官在他的裁决中说，这并不妨碍其它部门根据不同的事实情况，在不同的法定制度下寻求这些秘密信息，从而获得不同的判决结果。
+发生印尼排华事件真的一点都不遥远呐
+and incidents like Indonesian anti-Chinese incidents would really not be far away
 
-基奥法官说：“不能以公共利益豁免权为由绝对保护联系人的追踪信息，使其免于披露。而这一披露有关的确切信息的义务要考虑何时、在何种情况下、出于何种目的寻求披露该信息的具体情况。”
+所以这个女人，还有这个采访之阴歹
+That’s why the evilness of this woman（Isobel Yeung）and her interview
 
-**原文链接：** [How authorities fought to keep Victorians in the dark](https://www.heraldsun.com.au/subscribe/news/1/?sourceCode=HSWEB_WRE170_a_GGL&amp;dest=https%3A%2F%2Fwww.heraldsun.com.au%2Fnews%2Fvictoria%2Fhow-authorities-fought-to-keep-victorians-in-the-dark%2Fnews-story%2F51309e9935a1fd2039f0fdb671a06b6c&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
+把华人置于全球各国的所谓的恐怖主义（势力），影响政治、改变你政治
+would have put the Chinese people overseas on the list of the so-called terrorist power to influence politics and to change politic
 
-*发布：翼族*
+你不处理它，它就改变你政治
+It (Isobel’s interview fractionally published on VICE and HBO) will change the politics if you don’t deal with it
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+最后, 你要看到她采访
+Finally, you have to see her interview
+
+她在那块记录着, 她根本不在乎你怎么回答
+She was taking note there and would be careless of how you answered at all
+
+她把问题问出来就赢了
+She had already achieved her goal upon asking questions
+
+如果咱没有摄像机
+If we didn’t have the recorder camera (at that time), we would not have the ability to explain ourselves,
+
+你满身是嘴你也说不清啊
+even if the body is full of mouth, but also can not explain myself
+
+如果我嘴再笨点，你全身都是嘴, 你也憋死
+If I was clumsy a little bit (during Isobel’s interview), I would be suffocated to death even though I have mouths all over my body
+
+能憋死你每句话
+Every sentence would have made you suffocate to death
+
+滕彪说我乱伦我侄媳妇
+Teng Biao defamed me saying that I was incest with my niece
+
+结果变成了我说滕彪是乱伦
+As result, he said that I criticized him the incest
+
+你想有多可怕！
+Think about it, how terrible it is!
+
+GTV，她说我们是骗子
+About GTV, She (Isobel) said that we are scammers
+
+那很简单，谁被骗了？
+That’s so simple, who was deceived?
+
+这种垃圾话她能给你弄出去
+She could push such trash words out
+
+因为所有人看（时）没有人细琢磨，哎，对对对，他是骗子
+because no one would ponder when watching and would agree that I’m a liar
+
+然后最后说你觉得他怎么样？
+Then, in the end, saying what do you think of him (Miles Guo)?
+
+他会把中国人带入地狱
+He would take the Chinese people to hell
+
+我咋把中国人带入地狱？
+How do I bring the Chinese people into hell?
+
+我爆料我们四五年来，你有没有想过
+Our whistleblower movement has been going on for 4 or 5 years, have you thought about that?
+
+我们把（任何）一个中国人带入地狱了吗？
+Have we ever brought any Chinese person to hell?
+
+怎么能（说我们）把中国人带入地狱？
+How can she say that we are bringing Chinese people into hell?
+
+她让中国人恨我们
+She makes the Chinese people hate us
+
+你看到没有？
+Have you realized that?
+
+不但让美国、西方世界恨爆料革命
+Not only she has made the United States and the Western world hate our whistleblower movement,
+
+她让螃蟹的嘴说出来
+but also made Pangxie expressed
+
+中国人要恨这个爆料革命、新中国联邦
+Chinese people need to have hatred on our whistleblower movement and the New Federal State of China
+
+这个之阴歹跟当年印尼排华一模一样
+This evilness is exactly the same as the Anti-Chinese incidents in Indonesia back then
+
+* * *
+
+Date: 12/25/2021
+原视频标题: Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+The Viciousness of Isobel is to Let The Whole World Having Hatred on The Whistleblower Movement
+原视频日期：2021/12/24
+原视频链接: [https://gettr.com/post/pkm5lieabf](https://gettr.com/post/pkm5lieabf)
+任务编号：KC373（3335）
+视频时间段 : 0:00-02:08
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 -银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,45 +2,26 @@
 ---
 
 
-## Omicron的症状就像普通感冒，那么为什么BC又在圣诞节期间被封锁了？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1799310/)
+## 专家称新冠病毒导致一代智商较低的儿童和问题少年
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1799375/)
 
-作者：Drea Humphrey
-翻译：KK
+#### 加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0110.jpeg)Xa6ap 24
+据鸿声传媒12月27日报道，享誉世界的8所常春藤盟校之一的布朗大学，近期发布的一项研究报告显示，由于新冠病毒爆发后各囯政府采取的封锁隔离政策，将产生一代智商较低的儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-343.png)
+马克.麦克唐纳博士在 The Nation Speaks 节目上对该报告进行了解读：与疫情大流行前出生的儿童相比，在疫情期间出生的孩子在语言、运动和整体认知能力等方面均呈现显著下降现象。
 
-BC 省卫生官员邦妮·亨利博士再次封锁圣诞节和新年，但 Omicron 变体是否足以成为这样做的借口？
+麦克唐纳指出，人们戴上口罩、学校停课以及社区封锁，导致正常的社会接触被剥夺，孩子们整天被困在家里，出门时互相之间看不到面孔，这实际上对孩子造成了脑损伤。
 
-12 月 17 日星期五，亨利博士宣布对假期实施全面限制，其中包括取消所有人的新年前夜聚会，下令举办任何规模的有组织的活动，检查疫苗状态，以及限制室内聚会，例如圣诞晚餐，10 个人或一个额外的家庭，需要12 岁及以上的每个人都接种了新冠疫苗。
+该研究得出结论：新冠病毒疫情从根本上改变了儿童的成长环境和健康格局，与两年前相比，孕妇和新生儿生活在截然不同的经济、心理和教育环境中。我们的研究表明，在疫情期间出生的儿童获得的认知功能和表现显著下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-451.jpeg)Bigtime
+在 The Nation Speaks 的这一期节目中，牛津大学循证医学中心主任卡尔·赫内根介绍他所领导的小组研究了病毒对儿童及青少年所造成的伤害。赫内根说，我们经历了新冠病毒带来的巨大伤害和精神压力，我们又对儿童灌输了恐惧，限制了他们的行动，因此儿童面临的心理问题越来越多，儿童们所受到的伤害是更深远的问题。
 
-考虑到现有的大量证据表明接种疫苗的人也有助于传播这种病毒，强制隔离未接种疫苗的人似乎特别不人道。
+赫内根介绍，研究显示，10个中有8个儿童或青少年在新冠病毒大流行期间的行为或心理症状恶化或负面情绪增加，女性和年龄较大的青少年的心理健康恶化更糟。
 
-在宣布第一波假期限制后的短短 72 小时内，亨利博士又宣布了多项限制措施，这些限制措施将至少持续到 2022 年 1 月 18 日，从而再次侵犯公民自由以及中小型企业的权益。
+这不仅是父母们忧虑的问题，也是一个已经扩展到社会的问题。但各国政府却在新冠病毒对青少年及儿童伤害有限的情况下，不仅无视孩子们的感受和精神健康，还强推对孩子们伤害更大的新冠病毒疫苗，无端加大了对孩子们的身体伤害和心理恐惧！
 
-这些限制包括禁止所有室内聚会，如婚礼、俱乐部和休息室被迫关闭，而音乐会和电影院的容量将达到 50%。
-
-亨利使用Omicron 变体作为压榨许多人圣诞精神的主要借口。
-
-但正如您将在本报告中看到的，佐伊持续时间最长的新冠研究数据表明，虽然 Omicron 变体在接种疫苗和未接种疫苗的人群中迅速传播，但其症状比 Delta 更轻微，并且与普通感冒非常相似。
-
-来源：[https://www.rebelnews.com/omicron\_symptoms\_are\_like\_the\_common\_cold\_so\_why\_is\_bc\_locked\_down\_for\_christmas\_again](https://www.rebelnews.com/omicron_symptoms_are_like_the_common_cold_so_why_is_bc_locked_down_for_christmas_again)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑/发文：Kent
 
  
 
