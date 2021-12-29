@@ -16,6 +16,8 @@
 ---
 ## 頁面 23/38 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [38](/content/README-38.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
+
 [文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/2019/06/20190630-3604984578617941887.md)
 
 [文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/2019/06/20190627-3104653818463071254.md)
@@ -63,8 +65,6 @@
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
 
 [文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
-
-[文字版：2019年5月20日凌晨4点 直播](/content/2019/05/20190520-5140210759327330200.md)
 
 
 ## 頁面 23/38 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [38](/content/README-38.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

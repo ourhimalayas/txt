@@ -16,6 +16,8 @@
 ---
 ## 頁面 22/38 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [38](/content/README-38.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
+
 [文字版：郭先生2019年8月1日緊急直播](/content/2019/08/20190805-195928358226764282.md)
 
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/2019/08/20190804-3048854052865103791.md)
@@ -63,8 +65,6 @@
 [文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
 [文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
-
-[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
 
 
 ## 頁面 22/38 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [38](/content/README-38.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
