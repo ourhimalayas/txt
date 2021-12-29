@@ -2,42 +2,30 @@
 ---
 
 
-## DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1800525/)
+## 澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800546/)
 
-*编辑：西北风 / 作图：*虎子哥
+**翻译：小鱼儿**
+**编辑：MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-361.jpg)图片来源：Forbes
+澳大利亚演员休-杰克曼在纽约工作时对COVID-19检测呈阳性。这位金刚狼明星在社交媒体上通知他的粉丝，他在周三上午（当地时间）为他主演的一部音乐剧进行例行抽查时，检测结果呈阳性。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+在一个35秒的简短视频中，他说他希望他的数千名粉丝从我这里知道这个消息。他说，”我的症状就像感冒，我的喉咙发痒，有点流鼻涕，但我很好，”杰克曼边说边戴着黑色面罩。”我只是要尽快做我能做的一切，一旦我的病好了，我就会回到舞台上。”他向粉丝们保证他做得很好，并敦促大家保持安全和善良。
 
-#   墙国妄语每日驳
+杰克曼正在百老汇主演《音乐人》，该剧在圣诞节前刚刚开演。几天后，在联合主演萨顿·福斯特对COVID-19检测呈阳性后，它被迫取消了一些演出。这将是该剧的第二次停演，新年的演出被重新安排，杰克曼预计要到1月6日才会回来。这位深受观众喜爱的澳大利亚人已经注射了两个剂疫苗，并在12月5日接受了加强针注射。
 
-### 12.29.2021
+纽约目前正处于感染率激增的阶段，该州在周二记录了超过31,000个病例。美国的病例也在激增，有233,485例感染报告。周二，美国疾病控制和预防中心建议将COVID阳性患者的隔离期从10天减半为5天。
 
-[外媒：中国多措并举坚持绿色办冬奥\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211228/2464325.shtml)
+参考新闻：[Hugh Jackman forced to postpone The Music Man production return after testing positive to COVID-19](https://www.skynews.com.au/australia-news/coronavirus/hugh-jackman-forced-to-postpone-the-music-man-production-return-after-testing-positive-to-covid19/news-story/0229a5dd2f4c29b01d19853f2ab3b6c5)
 
-***简评：***中共自认为经过几十年的改革发展，经济实力雄厚可以和西方国家平起平坐甚至可以叫板西方尤其是美国。犯我大汉者虽远必诛，当年汉武帝击溃匈奴的霸气今天习大神也是似是比肩历史，拿下香港下一个目标就是台湾了吧，这也只是一个亿小目标，更远的是要征服世界了吧。可今天不是帝王时代，今天是民天下，是需要每一个公民的个人创新和才能施展的环境和空间，时代变了，可中共仍是帝王思维，天下服务于一人，这种帝王思维和必然笑话百出，一地鸡毛收场。
+发布：去中心化Math
 
-### 12.29.2021
-
-[富权文章：陈水扁蠢蠢欲动大做“特赦梦”\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/tw/20211228/2464305.shtml)
-
-***简评：***台湾前总统陈水扁对中共邪恶认识比较清楚，在他任上努力维护台海利益却被误解为搞族群对立，撕裂台湾社会，他努力维护台湾美台，日台军事经济合作协同发展，从长远来看是有利于台湾社会和经济的，反观之后国民党上台后的经济完全倒向大陆才导致今天台湾经济被大陆绑架而没有自我保护能力。陈水扁被特赦不是不可能，随着台湾被大陆武统威胁加大，台湾独立意识升高，回归陈水角时代去中化政策已是必然。
-
-### 12.29.2021
-
-[外媒：拜登签署国防授权法案 71亿美元用于“太平洋威慑计划”\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/world/20211228/2464275.shtml)
-
-***简评：***美国从南亚阿富汗撤军，从欧洲裁撤军队，唯独加大在太平洋囯防开支，美国用实际行动告诉世界美国的威胁来自中共，军事是敌我矛盾最后解决方案也是最直接有效的解决手段。中共用不对称的生化病毒武器超限战攻击美国经济和美元，美国怎么可能仍和中共继续合作，美国能够击败德国，日本法西斯，能够击败巨无霸苏联，怎么可能面对中共主动的战争挑衅没有对策，加强太平洋威慑计划那只是我们能看到对付中共的表面现象而己。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/925601481871200266/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/925601545498787840/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/925601612335030292/03.png?width=1043&amp;height=586)
-
-
-
-
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,14 +2,16 @@
 ---
 
 
-## 甲骨文超级计算机：新冠病毒专为人类定制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800395/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-5
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800399/)
 
 作者：纽约香草山 – 天滅中共
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-18.jpg)
-外媒27日报道，弗林德斯大学运用甲骨文超级计算机的模拟演算发现：SARS-CoV-2 冠状病毒是一种高度适应人类的病原体。这项由弗林德斯大学教授兼疫苗研究主任尼古拉·彼得罗夫斯基（Petrovsky）博士牵头的研究，通过甲骨文超级计算机的“硅建模”方式，发现SARS-CoV-2 冠状病毒的刺突蛋白经过高级进化，可以独立结合人类受体细胞ACE2，并且随着时间的推移，变得越来越适应人类。 而通常情况下，冠状病毒应该只对蝙蝠之类的原始宿主表现出如此高的亲和力，因此，研究团队认为，新冠病毒的原始宿主极有可能是人类，这显然推翻了早前一些拥有中共背景的科学家提出的，新冠病毒源于自然的假说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+记者 ISOBEL YEUNG 在采访视频中，用引导性的语言，评价郭文贵先生拉拢以班农为首的美国右派，以“打倒共产党”为噱头，假借“奉行正义、宣传真相”的名义，利用 GTV、GNEWS 散布虚假信息，谋求私利。对此，郭先生引用了自己过往提出的，多则已得到事实验证的预告，证明了无论是他个人、还是 GTV、GNEWS，只是希望为真相的传播，提供多一种途径，希望全球人民在中共邪恶的面前，少一点牺牲，除此之外，别无所求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-34.jpg)
+现在，我们一起看到，还原采访真相第五期：反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力。（播放视频08:55）
 
-参考链接：[甲骨文超级计算机：新冠病毒专为人类定制](https://thenationalpulse.com/2021/12/27/oracle-supercomputer-supported-lab-leak/)
+参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-5](https://www.gettr.com/post/pkgosm1da1)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
