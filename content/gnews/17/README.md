@@ -2,32 +2,36 @@
 ---
 
 
-## 中共国车辆保险费用上涨
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801970/)
+## 世界将步入“四国演义”时代
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801985/)
 
-财经网12月**29**日消息：保险公司回应特斯拉保费大涨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1662.png)图片来源：摄图网![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1663.png)
-短评：
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月27日，郭文贵先生在盖特平台上爆料称，世界即将形成美、欧、俄、中的“四国演义”混战格局，而新中国联邦将会成为最终赢家。
 
-现在，由于疫情，实体企业停工停产，影响保费收入；由于注射疫苗，导致疾病死亡，意外死亡增多，保险公司赔付暴涨。现在保险收入与保险赔付不成比例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-27.jpeg)
 
-为此保险公司使用提高保险产品保费的方法，以提高收入。以车险为例，进口车或者进口配件国内组装车，以配件价格高，货源少为由提高保费。曾经多年不出险车辆，享受商业险7折甚至更高折扣，现在都被取消，或者被降低折扣。
+郭先生解释道，中共党内的鹰派高层已经决定增加在欧洲经济和民生问题上的话语权，并试图直接向美国发起挑战。对此，欧洲政界目前已经达成共识——他们认为，与主动介入相比，让中共自行倒台将会更有利于欧洲的未来，而让中共及俄罗斯继续犯下严重的战略错误则将更有利于欧洲的发展。另外，他们也认为，攻打台湾将是中共最后的疯狂。为此，欧洲政界将采取相关行动，比如在外交、媒体等发声渠道上假意麻痹中共，令中共高层变得更加自大并丧失理智。
 
-由于疫苗的爆发期还没有来，所以保险公司以后的日子更艰难，甚至倒闭。继续提高保费，可能会成为保险公司的未来选项，请购买保险产品的消费者慎重考虑。
+郭先生强调，对于新中国联邦而言，全体战友需要为加强我们的媒体平台和经济体系而不断努力。同时，战友们也需要吸引并促使更多的新战友加入爆料革命和新中国联邦，并在其中发掘出更多的真战友和优秀人才，从而让新中国联邦变得愈发强大。
 
-文章观点仅代表作者个人，与Gnews平台无关
+郭先生最后总结道，在这个关键的历史节点上，新中国联邦会真正地显现出自身的体制优越性，而我们必须谨慎地把握时机。
 
-新闻链接：**[https://m.weibo.cn/status/4719776394645211#&video](https://m.weibo.cn/status/4719776394645211#&amp;video)**
+参考链接：[12/27/2021 文贵盖特](https://gettr.com/post/pksh508216)
 
-素材：洛杉矶盘古农场 — 期待明天
-评论：洛杉矶盘古农场 — 期待明天
-审核：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
