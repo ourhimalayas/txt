@@ -2,30 +2,43 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-5
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800399/)
+## 俄罗斯常驻欧盟代表采访录（一）提议恢复欧洲的安全体系
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1800402/)
 
-作者：纽约香草山 – 天滅中共
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-记者 ISOBEL YEUNG 在采访视频中，用引导性的语言，评价郭文贵先生拉拢以班农为首的美国右派，以“打倒共产党”为噱头，假借“奉行正义、宣传真相”的名义，利用 GTV、GNEWS 散布虚假信息，谋求私利。对此，郭先生引用了自己过往提出的，多则已得到事实验证的预告，证明了无论是他个人、还是 GTV、GNEWS，只是希望为真相的传播，提供多一种途径，希望全球人民在中共邪恶的面前，少一点牺牲，除此之外，别无所求。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-34.jpg)
-现在，我们一起看到，还原采访真相第五期：反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力。（播放视频08:55）
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+俄罗斯常驻欧盟代表弗拉基米尔·奇佐夫在采访中告诉塔斯社：俄罗斯向西方提议恢复欧洲的安全体系。
 
-参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-5](https://www.gettr.com/post/pkgosm1da1)
+2021年对欧洲政治和俄罗斯与西方的关系来说是一个动荡的年份。莫斯科邀请华盛顿和布鲁塞尔就新的欧洲安全安排展开对话，当时西方国家围绕所谓俄罗斯侵略乌克兰的谣言再次出现反俄歇斯底里的情绪。俄罗斯已经完成了北溪2号的建设，但布鲁塞尔和柏林只是在猜测绿色能源，在欧盟严重的能源危机中推迟了对这一随时可以启动的管道的认证。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+俄罗斯的中共冠状病毒疫苗在欧盟的认证继续被推迟，在欧洲因“欧米克戎”菌株爆炸性传播导致的新一轮大流行而部分封锁的情况下，疫苗接种证书的相互承认也被推迟。这些发展的背后是什么？俄罗斯常驻欧盟代表弗拉基米尔·奇佐夫接受了塔斯社的采访。
 
-总编：天滅中共
-编辑：天滅中共
-校对/发稿：Hetangyuese
+塔斯社：俄罗斯在欧洲的安全建议背后的理念是什么？
+
+奇佐夫：这些建议旨在保护俄罗斯的国家安全利益，并试图恢复我们已知的泛欧安全。毕竟今天的欧洲安全体系实际上只剩下了欧安组织这样一个外壳。
+
+理想情况下，北约应该放弃2008年布加勒斯特峰会的政治宣言，在无限期的未来接纳乌克兰和格鲁吉亚加入其行列；美国应该从欧洲撤出其核武器，并停止在俄罗斯边界附近部署武器（包括常规武器）。如果能够实现这样的发展，可以说是一个严肃的进步。
+
+塔斯社：鉴于西方的首次负面反应，您如何评估俄罗斯关于欧洲安全倡议的谈判前景？以欧盟和北约为组织来谈论欧洲安全，而不是以美国为组织，因为美国现在对欧盟的决策有很大的影响，并主导着北约，这样做有多合适呢？
+
+奇佐夫：如果你看看我们之前公布并正式交给我们的伙伴的两份文件的标题，你会发现，一份是给美国的，另一份是给北约成员国的。我强调：成员国，根本不是对北约这个组织。如果我们看看我们在欧盟的同事的反应，特别是欧盟外交政策负责人何塞普·博雷尔（Josep Borrell），他的手每周都在他的集团中，有人可以看到那里有怨恨的成分。但我认为这更多是对我们建议的本质和核心内容的误解。
+
+当然有很多关于北约扩大以及是否包括格鲁吉亚和乌克兰的讨论。但我认为，我们不应忽视这些建议的另一个关键点—美国的核武器从欧洲国家的领土上撤出。因此，很明显在这些问题上，主要对象不是北约，当然也不是欧盟，而是美国。[https://tass.ru/interviews/13313757](https://tass.ru/interviews/13313757)
+
+编辑/校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

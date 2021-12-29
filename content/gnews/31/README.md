@@ -2,24 +2,27 @@
 ---
 
 
-## 抗新冠病毒药物与常见药合用会引起危害生命的反应
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1800226/)
+## 港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1800285/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-150.png)
-图片来源： www.voachinese.com
+**撰文/ 港台前线关注组｜发布日期/ 29/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
 
-零对冲网12月28日报道，上周美国食品药品监督管理局（FDA)在圣诞节期间 批准了两种令人兴奋的抗新冠病毒药物，默克公司的默诺匹韦和辉瑞公司的派克斯洛韦德。
-在第一手数据刚发布出来，就招来了尖锐的关于药物安全性的问题，但现在这些所谓“神奇”的药物先进入病人的血液循环，主流媒体认为分享一些批评也是安全的。
-NBC新闻报道这些药物需要开处方的医生“仔细监测”，这也会造成医生不愿意开处方，这无疑是对于由奥米克戎带动的这波疫情对原本已不堪重负的医疗系统带来沉重打击。
-作为提醒，，FDA只允许辉瑞的派克斯洛韦德用于“轻至中度”的新冠病人，年龄最小12岁，有基础疾病预计有住院和死亡危险的病人。
-但很不幸的是，辉瑞和默克的药物都有一些严重的问题，最严重的是当与他汀类药物(抗高血压药物)甚至一些抗忧郁药合用时可能引起致命性反应。
-而且对于有肝肾疾病患者，FDA不推荐医生开辉瑞的抗新冠药，认为可能是有害的。
-尽管如此，这二家公司期待在来年各自将有数百万张处方。我们的问题是，如果一个病人因为药物交互反应造成死亡，是不是还算是新冠死亡吗？
+香港警方国安处今晨六点出动200名军装警及便衣对《立场新闻》展开拘捕行动，警方以涉嫌违反《刑事罪行条例》第9及第10条，串谋发布煽动刊物罪拘捕六名《立场》高层或前高层，分别为53岁的前总编辑钟沛权、现任署理总编辑34岁的林绍桐、63岁的前董事周达智、63岁的前董事方敏生，以及另外两位前董事，73岁的资深大律师吴霭仪、44岁的歌手何韵诗。
 
-##### **新闻来源： **[COVID Antiviral Pills Cause Life-Threatening Reactions With Many Common Meds](https://www.zerohedge.com/covid-19/covid-antiviral-pills-cause-life-threatening-reactions-many-common-meds)
 
-# ** **
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747220143.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747262884.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747224643-1.jpg)
+
+
+
+
+随后，国安处手持法庭手令又到《立场新闻》位于观塘楼上的办公室搜查、检取新闻材料，过程中警方在大厦外划出区域阻止靠近，并封锁《立场》办公室所在的14楼全层，同时禁止传媒拍摄。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/國安處清晨上門拘六名《立場新聞》涉串謀發布煽動刊物.jpg)
+来源｜[now](https://news.now.com/home/local/player?newsId=461459)
 
  
 
