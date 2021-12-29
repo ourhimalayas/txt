@@ -2,76 +2,92 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗不能预防感染，还引发免疫系统自我毁灭！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1801883/)
+## 12/29/21 香港快讯 200警搜立场新闻办公室 国安处拘何韵诗等6人
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1801917/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1229fenmian.jpg)
+封面素材：众新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.13.50-AM.png)
+**1. 200****警搜立场新闻办公室****   ****国安处拘何韵诗等****6****人**
 
-## 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-灭共者郭文贵先生多次在视频直播中警告，千万不要打疫苗！注射目前的Covid-19（中共病毒）疫苗，既不能预防中共病毒感染，也不能减少死亡，注射中共病毒疫苗，只会导致身体免疫能力下降，增加疾病和死亡！
+[据【大纪元时报】12月29日讯，警方国安处今早派出过200名警员搜查网媒「立场新闻」办公室，以「串谋发布煽动刊物」拘捕6名现任及前任高层人员。](https://hk.epochtimes.com/news/2021-12-29/34474434)
 
-德国Bhakdi博士和Burkhardt博士2021年12月10日在[UKColumn](https://www.ukcolumn.org/)直播的“Doctors for COVID Ethics symposium”上的演讲摘要《[On COVID vaccines: why they cannot work, and irrefutable evidence of their causative role in deaths after vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)》，从人体免疫系统运行机理角度证明，目前的中共病毒疫苗不但不能预防中共病毒，还会引发免疫系统自我毁灭过程，导致身体衰弱的疾病和死亡，直接证明郭先生的警告是建立在科学基础上。
+[据了解，被捕者包括立场新闻前总编辑钟沛权，前董事周达智、吴霭仪、方敏生、何韵诗及署理总编辑林绍桐。](https://hk.epochtimes.com/news/2021-12-29/34474434)
 
-Bhakdi 博士一生致力于医学微生物学（medical microbiology）和传染病（infectious diseases）的实践、教学和研究。从1990年到2012 年退休前，他担任德国美因茨约翰内斯古腾堡大学（Johannes Gutenberg Unversity of Mainz, Germany）医学微生物学和卫生研究所（Institute of Medical Microbiology and Hygiene）的主席。他在免疫学（immunology）、细菌学（bacteriology）、病毒学（virology）和寄生虫学（parasitology）领域发表了300多篇研究论文，并从1990年开始2012年退休前一直担任《医学微生物学和免疫学》（Medical Microbiology and Immunology）的主编。《Medical Microbiology and Immunology》由Robert Koch 于1887年创立，是该领域最早的科学期刊之一。
+[何韵诗的Facebook专页管理人员今早发文指，今早6时警方国安处到何韵诗住所以「串谋发布煽动刊物罪」拘捕她，她被带往西区警署。](https://hk.epochtimes.com/news/2021-12-29/34474434)
 
-Arne Burkhardt 博士是一位病理学家（pathologist），曾在汉堡大学（Universities of  Hamburg）、伯尔尼大学（Berne）和图宾根大学（Tübingen）任教。他应邀在日本（日本大学，Nihon University）、美国（布鲁克海文国立研究所，Brookhaven National Institute）、韩国、瑞典、马来西亚和土耳其进行访问教授（visiting professorships）和访问研究（study visits）。他曾领导罗伊特林根病理学研究所（Institute of Pathology in Reutlingen）长达18年。随后，他作为一名独立执业病理学家（independent practicing pathologist），与美国的实验室签订了咨询合同（consulting contracts）。 Burkhardt 在德国和国际科学期刊上发表了超过150篇科学论文，并对德语、英语和日语病理学手册做出了贡献。多年来，他一直在德国审核和认证（audited and certified）病理学机构。
+[立场新闻副采访主任陈朗升亦被警方带走助查。他今早开直播，显示有国安处人员前来他住所，展示法庭搜查令，命令陈朗升开门，让国安处人员进入屋内搜查证据，并要求陈朗升停止直播。](https://hk.epochtimes.com/news/2021-12-29/34474434)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.04-AM.png)
+**2.****《立场新闻》宣布停运****   ****已即时遣散所有员工**
 
-为什么目前的中共病毒疫苗不能预防感染？
+[据【大纪元时报】12月29日讯，《立场新闻》今早（29日）有多名现任及前任高层被捕，办公室遭警方搜查。 《立场新闻》在下午4时许发公告宣布将停止运作，网站及所有社交媒体立即停止更新，并将于日内移除；署任总编辑林绍桐已请辞，所有员工已即时遣散。感谢读者一直的支持。](https://hk.epochtimes.com/news/2021-12-29/40638561)
 
-开发COVID-19疫苗的一个根本错误是忽略了人体为保护自身免受病原微生物侵害而产生的两大类抗体（antibodies）之间的功能区别。
+[《立场新闻》表示，警方拘捕公司多名高层及前高层人员、带走多人协助调查，并在办公室检走多部电脑及部分文件。 《立场新闻》已为涉事人员提供协助。](https://hk.epochtimes.com/news/2021-12-29/40638561)
 
-第一类是由免疫细胞（淋巴细胞，lymphocytes）产生的分泌型 IgA（secretory IgA），这些细胞直接位于呼吸道（respiratory tract）和肠道（intestinal tract）的粘膜（mucous membranes）下方。这些淋巴细胞产生的抗体通过黏膜表面分泌。因此，这些抗体在与空气传播的病毒相遇时，它们能够防止病毒结合（viral binding）和细胞感染（infection of the cells）。
+[公告在《立场新闻》的Facebook发出后，20分钟内已有超过7,000人用「emoji」表达悲伤之情，不少网民在留言区表示，感谢《立场新闻》的支持，祝愿他们平安，「感谢立场新闻对香港慨付出，愿平安」，「多谢你们。公义在心中，他日必显。」](https://hk.epochtimes.com/news/2021-12-29/40638561)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.14-AM.png)
+**3. ****警方搜查《立场新闻》办公室　搬走多箱证物及电脑**
 
-第二类抗体出现在血液循环系统（bloodstream）中的IgG 和循环IgA（circulating IgA）。这些抗体保护身体的内部器官免受试图通过血液传播的传染原（infectious agents）的侵害。
+[据【香港电台】12月29日讯，警务处国家安全处持法庭手令，搜查位于观塘的网媒《立场新闻》办公室，中午前将大批证物搬走。](https://news.rthk.hk/rthk/ch/component/k2/1626421-20211229.htm)
 
-最近已经有很多科学出版物报道了中共病毒疫苗诱导（vaccine-induced）的抗体无法预防冠状病毒（Covid-19，中共病毒）感染。
+[大批警员早上到场搜查，并封锁有关楼层，有探员拉住行李箧离开大厦，中午前搬走多箱证物及电脑上货车。](https://news.rthk.hk/rthk/ch/component/k2/1626421-20211229.htm)
 
-因为注射到肌肉（即身体内部）的疫苗只会诱导血液系统产生IgG和循环IgA，而不是分泌型IgA。此类抗体不能也不会有效保护呼吸道和肠道粘膜免受SARS-CoV-2病毒感染。
+[警方说，国家安全处上午执行由法院根据《香港国安法》第43条实施细则附表1发出的法庭手令，搜查观塘区一间网媒公司办公室，搜查令包括授权警方搜查及检取新闻材料的权力。](https://news.rthk.hk/rthk/ch/component/k2/1626421-20211229.htm)
 
-因此才会有目前在接种疫苗的个体中观察到的“突破性感染（breakthrough infections）”，证实了疫苗的基本设计原理上的缺陷。血液中抗体的测量指标永远不会反映任何关于呼吸道免疫系统的真实状态信息。
+[另外，警方表示拘捕6名有关网媒公司高层人员或前高层人员，涉嫌违反《刑事罪行条例》第9及10条串谋发布煽动刊物罪。](https://news.rthk.hk/rthk/ch/component/k2/1626421-20211229.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.27-AM.png)
+**4. ****国安处拘立场高层等七人****   ****冻结逾六千万资产****   ****李桂华：将调查是否涉外国势力**
 
-疫苗为何会引发自我毁灭（self-destruction）？
+[据【大纪元时报】12月29日讯，警方国安处今日（29日）搜查《立场新闻》办公室，并拘捕7人，冻结约6,100万元资产。警方国安处高级警司李桂华下午见记者表示，《立场新闻》涉于2020年7月至今年11月发布多篇煽动性文章，包括新闻报道及博客文章等，将调查《立场》的资金来源，以及有否勾结外国势力等。](https://hk.epochtimes.com/news/2021-12-29/16374172)
 
-SARS-CoV-2病毒的自然感染在大多数人中仍会局限于呼吸道。相比之下，疫苗会导致我们体内深处的细胞表达病毒刺突蛋白（viral spike protein），而它们天生就不会这样做。任何表达这种外来抗原（foreign antigen）的细胞都会受到免疫系统的攻击，这将涉及IgG抗体和细胞毒性T淋巴细胞（cytotoxic T- lymphocytes）。这可能发生在任何器官。我们现在看到很多年轻人的心脏受到影响，导致心肌炎（myocarditis）甚至心脏骤停（sudden cardiac arrest）而死亡。
+[李桂华表示，被捕者包括3男4女，形容他们对媒体编采策略「有重要角色」。 7名被捕人士将被通宵扣查，不排除有更多人被捕，另有在逃人士被通缉。](https://hk.epochtimes.com/news/2021-12-29/16374172)
 
-下面是对15名接种疫苗后死亡的人的器官进行组织病理学分析（Histopathologic analyses）研究的情况
+[他称《立场》有文章形容香港抗争者「被失踪、被侵犯」，属无事实根据恶意指控；亦有文章形容审讯是「中共赤裸地滥用权力，用法律展示只手遮天的威能」，令人对司法产生憎恨；亦有涉及中大事件的文章写道，「绿色军装的防暴警察对准远处黄头盔开枪扫射，称，《立场》多篇文章引起憎恨、藐视香港政府及香港司法，引起香港居民间的不满、煽惑他人使用暴力，或使其他人不遵守法律或不服从合法命令。](https://hk.epochtimes.com/news/2021-12-29/16374172)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Histopathologic-analyses-have-been-performed-on-the-organs-of-15-persons.jpg)
+[警方国安处冻结《立场新闻》约6,100万元资产。李桂华表示，这是国安处案件当中冻结金额最多的其中一次，质疑为何网媒资金充裕得可在英国开设分社。他称将调查《立场新闻》的资金来源，以及英国分社的「营运真正目的」，是否有勾结外国势力等。](https://hk.epochtimes.com/news/2021-12-29/16374172)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.37-AM.png)
+**5. ****记协办周年晚会****   ****场刊列晚宴赞助人包括田北俊、夏佳理**
 
-在死亡之前，这15名死者中只有4名在ICU中接受了2天以上的治疗。5人从未住院并死于家中、1人死于大街上、1人死于工作中、1人死于车中 ，1人死于家庭护理机构。
+[据【立场新闻】12月28日讯，香港记者协会年度周年晚宴，因疫情关系延迟了年半，延至本月28 日晚举行。记协主席陈朗升早前透露，部分去年已承诺赞助的机构、企业，表明不需要公开鸣谢，记协有如「生人勿近」。翻查记协周年晚会的场刊，第一版是鸣谢自由党荣誉主席田北俊，场刊的广告商名录还包括前行政会议召集人夏佳理、房屋协会和贸易发展局。](https://www.thestandnews.com/politics/記協辦周年晚會-場刊列晚宴贊助人包括田北俊夏佳理)
 
-最初进行的常规尸检（conventional post-mortems）也没有发现死亡与疫苗有关的明显迹象，因为器官的宏观外观总体上没有什么特别之处。在大多数情况下，“心律失常或心力衰竭（rhythmogenic heart failure）”被假定为死亡原因。
+[晚会的主礼嘉宾是大律师公会前主席、资深大律师戴启思，他致辞时指新闻自由被削弱众所周知，但鼓励在场记者，只要人们仍想知道什么是重要、想判断真伪，新闻专业必会持续下去，记者的职责竟是让谎言无所循形；他又提及「假新闻」的问题，指假新闻可以在网上迅速流传，非常危险，但应由教育及新闻出版人与记者组织坚守优质报道来修补，而无需政府规管，否则可能会带来类似《1984》小说的真理部。](https://www.thestandnews.com/politics/記協辦周年晚會-場刊列晚宴贊助人包括田北俊夏佳理)
 
-组织病理学的研究结果：
+[记协主席陈朗升致辞时指，由于疫情记者周年晚会延期了一年半，由他六月当选记协主席至今，香港新闻界翻天覆地，包括苹果多名高层被捕，震撼全港，两星期内苹果日报消失，他重提自己当选时的承诺，即使前路再难行记协亦会全力不倒下，希望一向支持记协的朋继续支持鼓励记协工作。](https://www.thestandnews.com/politics/記協辦周年晚會-場刊列晚宴贊助人包括田北俊夏佳理)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.48-AM.png)
+**6. ****恒指干跌****194****点****   ****力顶****23000**
 
-在15名死者中，有心脏14 例、肺13 例、肝脏（liver）2例、甲状腺（thyroid gland，桥本甲状腺炎，Hashimoto’s thyroiditis）2例、唾液腺（salivary glands，干燥综合征，Sjögren`s Syndrome）2例和脑2例，观察到病理改变（Pathologic alterations）。
+[据【Now新闻台】12月29日讯，本港股市向下，恒生指数5连升断缆，险守23000点水平。](https://news.now.com/home/finance/player?newsId=461518)
 
-在所有病例的所有受影响的组织中，许多显着方面占主导地位：
+[大市今日低开26点，已是全日高位，午后跌幅扩大，最多跌272点，低见23008点，收市跌幅收窄至194点，报23086点。南向港股通暂停，大市全日成交缩减至逾629亿元。](https://news.now.com/home/finance/player?newsId=461518)
 
-1. 小血管（small blood vessels）中的炎症事件（内皮炎，endothelitis），其特征在于血管腔内（vessel lumen）有大量T淋巴细胞（T- lymphocytes）和隔离的死亡内皮细胞（endothelial cells）；
+[蚂蚁集团旗下「相互宝」下月停运，阿里巴巴跌2%，美团跌3%，齐齐拖低大市，发布新手机的小米集团连同腾讯控股跌逾1%。](https://news.now.com/home/finance/player?newsId=461518)
 
-2. T淋巴细胞广泛在血管周围（perivascular）积聚；
+[微盟集团是表现最差科指成分股，重挫逾8%，并以全日低位收市，视频股快手挫逾5%，哔哩哔哩再创在港上市新低。](https://news.now.com/home/finance/player?newsId=461518)
 
-3.周围非淋巴器官或组织的大量淋巴细胞浸润（infiltration），有T淋巴细胞。
+[推出新直播平台的线上教育股新东方反覆偏软，同系新东方在线更泻逾21%。](https://news.now.com/home/finance/player?newsId=461518)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.14.57-AM.png)
+**7. ****商汤早段「潜水」****  ****泉峰扫高****14%**
 
-淋巴细胞浸润偶尔与强烈的淋巴细胞活化（activation）和滤泡（follicle）形成结合发生。在这些存在的地方，它们通常伴随着组织破坏。
+[据【Now新闻台】12月29日讯，3只新股将于明日首挂，暗盘价早段个别发展 。](https://news.now.com/home/finance/player?newsId=461516)
 
-这种多灶性（multifocal）、T淋巴细胞占优势的病理组合清楚地反映了免疫学自我攻击的过程，这是史无前例的。因为疫苗接种是所有病例的唯一共同点，毫无疑问，这是这些死者自我毁灭的导火索。
+[根据辉立暗盘交易平台，人工智能软件「独角兽」商汤暗盘早段轻微向下，曾低见3.7元，较招股价3.85元低3%，商汤公开招股超额认购约4.2倍，一手中签率60%。](https://news.now.com/home/finance/player?newsId=461516)
 
-结论：
+[此外，公开招股超购4.7倍的圣诺医药暗盘「潜水」，早段曾低见60元，较招股价低近9%。](https://news.now.com/home/finance/player?newsId=461516)
 
-组织病理学分析显示中共病毒疫苗诱导的多个器官中的自身免疫系统毁灭病理的明确证据。不言而喻，源自此类自动攻击过程的无数不良事件必定会非常频繁地发生在所有个体中，尤其是在注射加强针（booster injections）后。
+[至于唯一以上限定价的泉峰控股暗盘造好，一度高见49.9元，高招股价逾14%，泉峰招股超购约6.5倍，要申请两手才可稳获一手。](https://news.now.com/home/finance/player?newsId=461516)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-29-at-10.15.07-AM.png)
+**8. ****传滴滴目标明年****6****月前以介绍形式港挂牌**
 
-毫无疑问，注射基于基因的COVID-19 疫苗会使生命面临疾病和死亡的威胁。我们注意到，这些案例中既有基于mRNA的疫苗，也有基于载体（vector-based）的疫苗，所有四大制造商（Pfizer 、Moderna、AstraZeneca、Janssen）也是如此。
+[据【Now新闻台】12月29日讯，据外电报道，滴滴目标是明年4月底前递交香港上市申请，6月前挂牌。](https://news.now.com/home/finance/player?newsId=461515)
 
-参考数据：
+[滴滴在美国纽交所上市刚满半年，据《路透》引述消息指，集团计划以介绍形式来港挂牌，已委任高盛、招银国际及建银国际安排上市事宜。](https://news.now.com/home/finance/player?newsId=461515)
 
-[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
+[滴滴今次上市不涉及集资，亦可让滴滴美股投资者，逐步将持股转移至香港交易所。](https://news.now.com/home/finance/player?newsId=461515)
 
-[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
+[滴滴月初已宣布启动纽交所退市程序，转到香港挂牌，有内地官媒发表评论指，期待滴滴「重整出发」。](https://news.now.com/home/finance/player?newsId=461515)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+校对 / 封面合成：文粤 / 发布：流光飞舞
 
  
 

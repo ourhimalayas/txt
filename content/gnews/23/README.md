@@ -2,32 +2,36 @@
 ---
 
 
-## 西班牙电信将替换华为5G设备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801853/)
+## 据报道Steam已在中共国被禁止
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801916/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月27日，欧洲第三大电信运营商西班牙电信的一名消息人士透露，该公司已经向瑞典制造商爱立信公司购买了5G网络设备，用以替换之前铺设在西班牙的华为公司相关产品。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-51.jpg)
-据了解，更换下一代移动网络设备是西班牙电信在2019年宣布的“供应商多元化”战略的一部分。而作为西班牙最大的电信运营商，西班牙电信此前也曾铺设了部分华为5G网络设备。但据美国政府的消息指出，华为的网络设备含有漏洞和后门，是中共非法获取信息和收集情报的间谍工具。其后，西班牙电信遂决定在新一代移动通信网络中大幅减少华为网络设备的份额，并开始寻求更加安全、可靠的替代供应商。
+据《The Gamer》记者：STACEY HENLEY，2021年12月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1660.png)图片源自thegamer.com
+中共国玩家报告Steam已被列入黑名单。
 
-分析人士表示，鉴于华为的5G设备与爱立信等欧美公司并不兼容，如果西班牙电信采用了爱立信的5G设备，可以预见华为将彻底失去在西班牙的市场——这也是继英国、法国之后，华为在欧洲市场上被进一步缩减份额。
+一些相互矛盾的报告声称这是DNS攻击的结果，而不是故意禁止。
 
-参考链接:[Telefonica buys Ericsson 5G equipment to replace some Huawei gear](https://www.reuters.com/markets/deals/telefonica-buys-ericsson-5g-equipment-replace-some-huawei-gear-2021-12-27/)
+中共国玩家报告Steam网店和所有Steam社区页面已被列入黑名单，这意味着在该国无法再访问它们。Steam中国于2月推出，但出售游戏的数量偏少。该站点仍在正常运行，但“Steam全球”站点已于圣诞节当天在该国下线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+此举令人意外，但符合中国政府过去12个月在电子游戏方面的行动模式。Fortnite 于今年11月15日在中国关闭。中共国关于游戏行业的限制实施两个月后，仍没有一款游戏获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1661.png)图片源自thegamer.com
+该站点被列入黑名单的事实意味着Steam不仅仅是暂时关闭，而是被故意禁止。用户已在Twitter、ResetEra和Reddit上确认了这一点。
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：Fei797
+目前尚不清楚这将如何影响中国游戏的发展。同时，还不清楚这对Devotion意味着什么。一款恐怖游戏因贬低中共国党魁习近平而被从Steam下架。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+很明显，这可能是中国迄今为止对游戏行业的最大限制。
+
+文章来源：**[https://www.thegamer.com/steam-banned-china-christmas-day/](https://www.thegamer.com/steam-banned-china-christmas-day/)**
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
