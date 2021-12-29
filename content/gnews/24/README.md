@@ -2,31 +2,31 @@
 ---
 
 
-## 春节将至中共纪委紧盯享乐奢靡行为
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1800835/)
+## 有声|美军推出“让中共感到恐惧”的战略轰炸机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800921/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-37.jpg)
-网络图片
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+台媒12月26日报道，曾经被美国空军部长肯德尔描述为，让中共感到恐惧的B-21突袭者战略轰炸机，即将在2022年首次亮相，并在公开展示后的数月内进行首次试飞。
 
-中共纪委12月27日针对元旦、春节将至，发布做好“正风肃纪”工作的通知，强调要营造风清气正的节日氛围，紧盯享乐奢靡等行为。
+肯德尔表示，自上任以来有3件优先事项，那就是中共、中共、还是中共。去年12月，他在国会上指出，美国必须打造让中共恐惧的武器，并优先用于对付中共。据悉，自美军30年前展示B-2轰炸机以来，这是首次亮相新型战略轰炸机。目前正有5架B-21隐形轰炸机在生产线上，目标是2022年进行首飞与加紧测试。
 
-中共纪委的这一通知，在以往同一时间也有类似的要求和措辞，但是在当下疫情肆虐，全球在死人，经济一片低迷的情况下，发出这样的通知，用意何在呢？
+致力于应对中共威胁，是促使肯德而回到五角大楼的重要因素。他在参议院提名会上说，其明确目标是，美国必须击败中共国在附近投射力量的能力。
 
-一方面，通过禁止享乐奢靡行为，来反衬国内经济形势一片大好，老百姓生活富裕，所以才可能出现铺张浪费，享乐奢靡的行为，所以纪委要提醒，要紧盯。
+文字版原文：[美军推出“让中共感到恐惧”的战略轰炸机](https://gnews.org/zh-hans/1798891/)
 
-再一方面，给实际快要停滞的经济、马上要崩盘的房地产、甚至即将断粮的百姓餐桌盖上一块遮羞布，找一个理由，打一个预防针，日后出现类似情形，可以说是纪委要求的结果，并不是经济真的有多差，而是大家都在艰苦朴素，忆苦思甜！
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-第三方面，就是继续麻痹大众，让所有人感觉一切照旧，尽管有疫情，尽管有国际封锁和几十个国家的脱钩，那都没什么了不起，CCP治理有术，泱泱大国，巍然不动！
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-CCP的各种招数，都只有一个目的，就是骗！从没有想过真的要改进、要提高、要增强、要为民服务。无论这些手段看起来多么多变高妙，最终都是兔子打拳一溜小动作，没有实际效用，都不能救自己的小命！中纪委的这一动作，不过是CCP成千上万个花架子中的一个，明眼人只须把它看成一个小丑表演，不必过分上心！
-
-新闻参考链接：
-
-[联合新闻网](https://udn.com/news/story/7331/5990413?from=udn-catelistnews_ch2)
-
-**编辑：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,42 @@
 ---
 
 
-## 港警以“串谋发布煽动刊物”罪名逮捕《立场新闻》高管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1800703/)
+## 郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1800749/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s.jpg)警察守在香港立场新闻的办公室所在的建筑。(2021年12月29日) 图片来源：VOA
-据美国之音12月29日报道，香港警方国家安全处以“串谋发布煽动刊物”的罪名逮捕了在线媒体公司“立场新闻”包括副采访主任、同时还是香港记者协会主席的陈朗升在内的六名现任和前任高层人员。被逮捕的还包括曾任立场新闻董事会成员的歌手何韵诗。
-
-自从国安法实施后，香港政府就明目张胆地公开抓捕各界人士。英国政府治理下的香港从前没有过的港独、港爆分子都被中共找出来了，香港曾经拥有的自由、和平、繁荣、平安已经荡然无存，香港笼罩在中共的红色邪魔之下。
-
-新闻参考链接：[香港警方以“串谋发布煽动刊物”罪名逮捕立场新闻六名高管](https://www.voachinese.com/a/hong-kong-police-arrest-six-from-pro-democracy-online-media-outlet-20211228/6373786.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者: 香草山农场-晓仙女
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+2021年圣诞节，文贵大直播给爆二代提供了上线机会，从5岁至25岁不同年龄的爆料革命下一代，跟郭先生同框直播，面对充满希望与力量的新生代，郭先生从生活、学业、事业等方面表达了自己的观点并给予了忠告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+郭先生强调，有钱有权名人的后代是很不幸的，爆二代要明白有钱不是能力，挣钱才是能力，不要炫耀有多少钱。新中国联邦的孩子们，一定要远离这些炫耀财富的垃圾人，大学重要的是交朋友，不要染上庸俗的毛病，千万别撒谎造假骗人，学会保护自己，是先让自己强大。
+
+关于如何做事高效？ 郭先生说：一是管理自己的人际关系，打开心扉，真诚做自己；二是管理好时间，简单直接，越是大事答案越简单；三是懂取舍，提高效率，培养睡觉前反思错误的习惯，今天要做的事一定要今天做，不要让浪费时间的人出现在人事列表中，有些人必须忘记，生命中的人际关系清单要做减法。
+
+郭先生谈到做事业要想明白三件事再行动：一是想明白对方为什么帮你做？二是做不成的时候怎么办？三是有没有做成这件事的钱与人。想好了就快速行动，找到智者，而不是勇夫。
+
+圣诞特别节目 “爆二代”——希望与力量，长达9个小时的大直播，郭先生在讲诉自己的经历中，分享了为人处事的观点和态度，善待别人，不虚伪，就是人生最伟大的。
+
+
+
+**参考来源**: [https://gettr.com/post/pkmku05091](https://gettr.com/post/pkmku05091)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-10.png)
+总编: 天滅中共
+
+校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,22 +2,56 @@
 ---
 
 
-## 中国和西方世界是天地之差
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1800795/)
+## 2021年12月29日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1800853/)
 
-这就是整个中国人，你既不能妄自菲薄，你也不要狂妄自大。
+撰稿人：文远Bruce
 
-**【郭先生直播摘要】**** 2021.12.25 ****中国和西方世界是天地之差**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-39.jpg)
 
-**郭先生:**
+澳大利亚新洲日感染中共生化病毒人数超万
 
-你到美国  你到Arizona州(亚利桑那州)。你但凡看美国的军事研究，太空研究。 你发现我们中国人不是一般的无知。 这就叫美国军人把中国， 所有的1990年以前中国的军事、科技，都当成  叫做“村落版”，“寨落版”。 什么都觉得你是农民帮派，你根本就不值一提， 你就差了，就是回到石器时代去了。 你不要以为共产党什么， 发了什么什么， 搞了这个氢弹， 两弹一星， 是吧！ 上天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-14.jpg)
 
-没有一样是中国共产党发明的， 全是偷的、骗的  买的美国和苏联的。 这就是整个中国人， 你既不能妄自菲薄， 你也不要狂妄自大。 就是我们人  在太空人这个事情上的认知， 中国和西方世界是天地之差， 就像马桶盖和圆珠笔芯一样  你造不出来一样。 你根本无法认知， 所以说我们这些孩子们  要了解共产党是有多么的low， 你就会明白。
+2 & 3 以太币最新报价 &走势图
 
-你再一个看到  就是过去这两天发生的事情在国内， 你可以想象的到嘛。 就是在重庆， 在所有的所谓的隔离区。 西安的隔离区， 发生的这种惨绝人寰的一幕又一幕。 然后  马上要开冬奥会。 然后你再看一看  中国的所谓的知识界、科学界。 还有所谓的大外宣(说)出来的这些话， 我们在谈到外星人的时候  你会觉得我们真的是无地自容， 就我们这个民族  怎么能到了一个这样的地步，起码的文明都没有。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3-6.jpg)
 
-视频剪辑：小蜜蜂 | 听写：小蜜蜂 | 翻译：Arthur | 校对：Polaris | 视频制作+字幕：刀锋舞者| 编辑&发布：闪电训练
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-3.jpg)
+
+4. 中共国继续集权中
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture5-3.jpg)
+
+5. 中国信达入股蚂蚁消费金融20%股份
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture6-3.jpg)
+
+大疆进入美国禁止投资名单
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-3.jpg)
+
+7. 挪威或将明年停止销售内燃机车
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-2.jpg)
+
+8. 哈伯望远镜的继承者韦伯望远镜将到达距离地球150万公里处
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture9.jpg)
+
+9. 10.11 三只松鼠 眯眯眼事件
+
+共产党邪恶的愚民术、戾害国脆弱的玻璃心，自两日前三只松鼠2019年拍的一组眯眯眼模特图被指辱华，后续全国的朝阳大妈，小粉红们又来了一拨揪斗高潮，不是十九大公告说要四个自信：道路自信、理论自信、制度自信、文化自信。自信在哪呢？只是极端的自卑，闭关锁国！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture10.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture11.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture12.jpg)
+
+发布： Hong
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
 
  
 
