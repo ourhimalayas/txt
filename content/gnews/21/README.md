@@ -2,49 +2,42 @@
 ---
 
 
-## 印度官员称没有为15周岁以下孩子接种疫苗的计划
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799831/)
+## 病毒和疫苗就是共产党要打赢中美之间的世纪大战的结果
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1799940/)
 
-翻译：lovemiles
+第一个，我们在去年就告诉大家，病毒绝对没有疫苗，这是对人类的威胁。疫苗灾难才是真正的次生灾难，是人类最大的灾难。而且我们一再说，今年年底，2021年底，才是真正的灾难的开始，病毒大扩散。没有一个人说，就我们，今年我们说的真的不下万遍吧。
 
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22-14.jpg)图片来源：Hindustan Times
-一位政府官员表示，印度目前没有为15岁以下儿童接种疫苗的计划，并提到政府在下个月获得为15-18岁年龄接种疫苗的资格之前所要面临的风险状况。
+我说10月到12月大爆发，而且来自于非洲和西部，我们全准了。而且我说感恩节之后，美国及世界大爆发，大家看到了吗？全美国、全世界都在感恩节是最夸张的，又是我们，不是我们蒙出来的。
 
-许多国家正在为年幼的儿童接种疫苗甚至包括5岁的孩子，由于新型冠状病毒奥密克戎的高度耐药和可传播的变异构成的威胁，人们强烈呼吁冠状病毒疫苗接种。
+这是我们的科学家和背后的爆料革命，深知这是个生化武器，和共产党内部要决策的情报，在冬奥会前让西方经济要垮下来，让西方要内乱，然后无暇顾及。就像现在习近平、王岐山、杨洁篪、王毅、王沪宁，在内部说的一定会打赢这次中美世纪大战，这是他原话啊：一定要有信心，而且一定会打赢中美的世纪大战，都是这个结果。
 
-一位不愿意透露姓名的官员说：“我们的决定完全基于科学数据，这些数据表明世界上任何地方的儿童都没有受到该病毒的很大影响。”我们起初认为应该只允许成年人接种疫苗，但考虑到这些年轻人（15-18岁年龄段）正在上学或者上大学会四处走动，可能是病毒的携带者。
+这几天兄弟姐妹们你们一定要意识到Omicron太可怕了，而且不好的现象是Omicron现在发现吃了伊维菌素和青蒿素，有些不是100%管用。这是更坏的一个消息，原来是100%绝对管用，现在真不是100%。大家别以为得上是好事，别以为得上你能吃药，真不是了。
 
-当被问及为什么印度的政策与美国和英国不同时——这两个国家都在为5岁及以上儿童接种疫苗——这位官员说，印度这样的决定是基于7月份进行的血清调查。
+编辑整理：海贼王M.D.LUFFY；
 
-“调查结果表明，67.6%的人口已受病毒感染，其中还有大量儿童。”
+字幕文件制作：小满；
 
-当时，印度医学研究委员会主席巴尔拉姆•巴尔加瓦(Balram Bhargava）表示，该调查包括6至17岁的儿童，发现六岁以上的总人口中有三分之二已经被感染。“我们为什么要对幼儿进行不必要的疫苗接种”，这位官员声称，“为每个人接种疫苗的竞赛可能是一种营销噱头。”
+视频制作及上传：Cindy；
 
-“现在全国不同地区的学校和大学也已经开放了一段时间，我们没有看到那里感染激增。我们也没有看到儿童患重病，”这位官员说。
+G-News发布：小满；
 
-由于奥密克戎变异病毒的传播，该中心和各州收紧中共病毒的管制，政府评估表明他们希望威胁是可控的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-“在印度检测的500份奥密克戎病毒感染病例中，有一半的人没事回家了。忘掉重症吧，只有13%有症状，”这位官员说。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“南非疫情的状况教给我们什么，那就是奥密克戎传播迅速，每日病例迅速增加，但下降也同样迅速。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-政府汇集的数据显示，南非的病例从每天超过45000例的高位降至过去24小时内不到15000新病例。官员们还指出，在全球约186000例已知的奥密克戎病例中，只有32例确诊死亡。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-然而，他们说，需要采取更严格的预防措施来让公民保持警惕。政府已经开始对疫情进行每日评估。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-“12岁以下的儿童可能没有必要接种疫苗，因为重症的病例很少。总体而言，15-18岁的孩子重症发病率略高于15岁以下。因此，目前优先完成成人的两针接种免疫，然后是老年人和弱势群体的加强针接种免疫，最终针对18岁以下的青少年接种”，神圣家庭医院重症监护医学科主任苏米特•雷说。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-原文链接：[https://www.hindustantimes.com/india-news/no-plans-yet-to-vaccinate-kids-younger-than-15-say-officials-101640630636924.html](https://www.hindustantimes.com/india-news/no-plans-yet-to-vaccinate-kids-younger-than-15-say-officials-101640630636924.html)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-发布：去中心化Math
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

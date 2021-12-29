@@ -2,38 +2,33 @@
 ---
 
 
-## 悉尼病理检测诊所两次发出错误阴性检测报告
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799813/)
+## 针下亡魂｜悲痛！又一名足球运动员在接种疫苗后死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1799912/)
 
-#### **翻译：月映万川**
-**编辑：文泓**
+**撰文/ 疫情关注组｜发布日期/ 29/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-5.jpg)图片来源：**AU.Dinestle.us**
+阿根廷足球运动员，今年25 岁的中场队员Diego Armando Montiel 因爆发性脑膜炎去世。今年早些时候，他曾经在推特上表示非常后悔接种 COVID-19 疫苗。
+
+Montiel 8月在社交平台上写道，“我快要自杀了，我再也不要接种疫苗了。”暗示自己在接种疫苗后，身体饱受副作用的折磨。
 
 
-** **12月28日，据SBS新闻报道，悉尼一家病理学诊所出现第二次检测结果出错。本地的圣文森特医院在新冠病毒检测结果尚未确定的情况下，又一次向995人发送了阴性检测结果。
 
-这是圣文森特病理诊所在24小时内第二次就检测结果出错问题发表致歉，该错误导致了在12月23日和24日一些被检测者接收了一条错误的报告短信。
-病理诊所在周一的一份声明中说：“所有这些人都被联系到，并被告知了这个错误……他们被告知，他们将在今晚（周一）之前收到准确的测试结果。我们再次对这一错误表示诚挚的歉意，并承认它对相关人员产生了重大影响。”
+> Estoy a punto de morirme. No me vacuno nunca mas
+> — Diego Armando (@DieguitoMontiel) [August 1, 2021](https://twitter.com/DieguitoMontiel/status/1421647945334726656?ref_src=twsrc%5Etfw)
 
-圣文森特病理诊所周日证实，第一次出错是有400多名来自于悉尼各地的检测者，被错误地告知他们对新冠（COVID-19）检测呈阴性（实际为阳性）。诊所表示，是“特定的人为错误”导致了错误的信息发送。而第二次的错误报告是在紧急反应小组在调查周日的错误时发现的。
 
-由于PCR检测的需求大量增加，这给及时处理检测结果诊所系统带来了巨大压力。“这一事件发生在新冠检测大量增加的时候，圣文森特病理诊所的员工和整个新州的病理团队一样，正在昼夜不停地工作来应对这一情况。”
 
-与此同时，因新冠病毒住院的人数也增加至520人，这一数字是上一周的一倍。周一，**新州也录得了第一例因奥密克戎病毒死亡的病例。此病例为疫苗完全接种者并有基础疾病；**另有两例死亡，分别为80多岁的男子和一名90多岁的女子。
+接种疫苗后不久，Montiel 被确诊患上爆发性脑膜炎，圣诞节当日他病情恶化，紧急送院，几日后，宣告死亡。
 
-伴随着猛增的病例，新南威尔士州政府也不得不重新引入在两周前取消的一些限制令。
-餐饮服务类场所重回每两平方米一个人的规定，并且QR扫码也在周一起变成强制规定。同时，新州卫生部长布拉德·哈扎德也表示，政府正在正式考虑取消关于对接触过病毒的医疗工作者的隔离要求，继而缓解医疗系统的压力。
-在新南威士州，每5个12至15岁的人口中，就有4名是完全接种疫苗人士。而这一比例在16岁以上人群中为93.5%。
-原文链接： [Sydney pathology service mistakenly sends out another 995 negative COVID-19 results](https://www.sbs.com.au/news/sydney-pathology-service-mistakenly-sends-out-another-995-negative-covid-19-results/dd99d1c8-d8c5-4cc1-b225-66a15933b975)
+这位中场球员，曾代表阿根廷最高职业级别出场 30 次。2014年8 月 24 日，他在对阵博卡青年队的比赛中脱隐而出，几周后，在对阵河床队的比赛中打进了他职业生涯的第一粒进球。
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+现在，让我们一起回顾一下 Montiel 人生的高光时刻：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/悲痛！又一名足球運動員在接種疫苗後死亡.jpg)
+来源｜[twitter](https://twitter.com/OficialAMSyD/status/1475191531099279374)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)//
 
  
 
