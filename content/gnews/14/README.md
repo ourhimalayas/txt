@@ -2,36 +2,36 @@
 ---
 
 
-## 据报道Steam已在中共国被禁止
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801916/)
+## 世界将步入“四国演义”时代
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801985/)
 
-据《The Gamer》记者：STACEY HENLEY，2021年12月25日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1660.png)图片源自thegamer.com
-中共国玩家报告Steam已被列入黑名单。
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月27日，郭文贵先生在盖特平台上爆料称，世界即将形成美、欧、俄、中的“四国演义”混战格局，而新中国联邦将会成为最终赢家。
 
-一些相互矛盾的报告声称这是DNS攻击的结果，而不是故意禁止。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-27.jpeg)
 
-中共国玩家报告Steam网店和所有Steam社区页面已被列入黑名单，这意味着在该国无法再访问它们。Steam中国于2月推出，但出售游戏的数量偏少。该站点仍在正常运行，但“Steam全球”站点已于圣诞节当天在该国下线。
+郭先生解释道，中共党内的鹰派高层已经决定增加在欧洲经济和民生问题上的话语权，并试图直接向美国发起挑战。对此，欧洲政界目前已经达成共识——他们认为，与主动介入相比，让中共自行倒台将会更有利于欧洲的未来，而让中共及俄罗斯继续犯下严重的战略错误则将更有利于欧洲的发展。另外，他们也认为，攻打台湾将是中共最后的疯狂。为此，欧洲政界将采取相关行动，比如在外交、媒体等发声渠道上假意麻痹中共，令中共高层变得更加自大并丧失理智。
 
-此举令人意外，但符合中国政府过去12个月在电子游戏方面的行动模式。Fortnite 于今年11月15日在中国关闭。中共国关于游戏行业的限制实施两个月后，仍没有一款游戏获得批准。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1661.png)图片源自thegamer.com
-该站点被列入黑名单的事实意味着Steam不仅仅是暂时关闭，而是被故意禁止。用户已在Twitter、ResetEra和Reddit上确认了这一点。
+郭先生强调，对于新中国联邦而言，全体战友需要为加强我们的媒体平台和经济体系而不断努力。同时，战友们也需要吸引并促使更多的新战友加入爆料革命和新中国联邦，并在其中发掘出更多的真战友和优秀人才，从而让新中国联邦变得愈发强大。
 
-目前尚不清楚这将如何影响中国游戏的发展。同时，还不清楚这对Devotion意味着什么。一款恐怖游戏因贬低中共国党魁习近平而被从Steam下架。
+郭先生最后总结道，在这个关键的历史节点上，新中国联邦会真正地显现出自身的体制优越性，而我们必须谨慎地把握时机。
 
-很明显，这可能是中国迄今为止对游戏行业的最大限制。
+参考链接：[12/27/2021 文贵盖特](https://gettr.com/post/pksh508216)
 
-文章来源：**[https://www.thegamer.com/steam-banned-china-christmas-day/](https://www.thegamer.com/steam-banned-china-christmas-day/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

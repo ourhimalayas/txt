@@ -2,21 +2,39 @@
 ---
 
 
-## 七哥说—第39期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1802076/)
+## Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1802225/)
 
-制作：Inzaghi
+12/29/2021 郭文贵先生的歌曲Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥说_郭文贵_狗_记录员.png)
+[【PDF 下载】Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥说_郭文贵_司马懿.png)
+* * *
 
-发稿：信心的选择
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_89.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_97.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_113.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+
+[【PDF 下载】Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
