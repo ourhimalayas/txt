@@ -2,38 +2,64 @@
 ---
 
 
-## 新闻述评：习近平民主生活会的第二个胡耀邦是谁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801712/)
+## 雅典娜疫情更新（澳洲今日新增病例向2万逼近）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1801715/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh5.googleusercontent.com/M1tpdgKaLYVLKFVR-6ZpDrV6ndJ4g4--_OXV0rHuh7cLwvsHvUQvOvzFgV-JREd1ofkDdaWKJfZeSL9r-AK4m2kz-ZbpvUGYen5dd2EIaNoOVWMrJbWxqgiHuwci06-_Af1wdRk5)
-[*图片来源*](http://www.gov.cn/xinwen/2021-12/28/content_5665052.htm)
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-9.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2021年 12月29日）
 
-**习近平于12月27日在北京召开民主生活会。“开展所谓批评和自我批评”的同时，强调明年中共第二十次全国代表大会的重要性。习自诩为“马克思主义政治家、战略家”，以他独有的“胆略”向世界发动了生物战，办成了过去邓、江、胡时期“想办而没有办成的大事”。习强调运用好“斗争经验，发扬斗争精神，掌握斗争策略，练就斗争本领，保持大无畏气概”，这就是所有独裁者灭亡前都会出现的两个症状，即干掉政敌，发动战争。**
+**一，全球疫情基本数据**
+感染总数：2.82859605亿（日新增93.0469万，14天增幅+51%）
+死亡总数：541.3189万（日新增 6,408人，14天增幅–10%）
+每万人感染人数：437.5615人（除中国外）
 
-据中共国政府官网29日消息，习近平于12月27日至28日召开政治局民主生活会。“回顾一年来的成绩，查摆不足，进行党性分析，开展批评和自我批评”的同时，强调“召开[中国共产党第二十次全国代表大会](http://news.cyol.com/gb/articles/2021-11/11/content_KpoKocBAV.html)，是中央政治局明年工作的首要政治任务。因今明两年正值换届，领导同志要严格遵守政治纪律和政治规矩，严格遵守组织纪律和[换届纪律](https://baike.baidu.com/item/%E6%8D%A2%E5%B1%8A%E7%BA%AA%E5%BE%8B/1112168)。”
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
 
-习近平主持会议并审议了《关于2021年中央政治局贯彻执行中央八项规定情况的报告》和《关于2021年整治形式主义为基层减负工作情况的报告》。认为，一年来，“全党确立习为中共的核心地位、确立习思想的指导地位以后。”要求全党要深刻认识到党的十八大以来在百年未遇的大变局中珍惜这种“极不寻常、极不平凡”的局面。
+**三，澳洲疫情和“疫苗”数据**
+感染总数：341,437（今日新增 18,243人）
+死亡总数：2210人
+每万人感染人数：124.9699人
+“疫苗”毒针注射总数：42,289,453  （今日新增37,226针）
+第二针“接种”：1880.2753万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-习对当前面临的形势环境用“复杂性、严峻性、繁重性、艰巨性和世所罕见”的关键词强调了习的压力和战斗的纳粹性。习自诩为“马克思主义政治家、战略家”，以自信的胆略谋划国内外大局，以病毒推进内政外交国防，以铁腕手段推进治党、治国、治军工作，办成了许多过去邓、江、胡时期“想办而没有办成的大事”。这件大事就是完美地发动全球超限生物战。这就是习近平一直强调的 “极不寻常、极不平凡”的战争局面。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1657.png)
+今日澳大利亚病例新增再创新高，向两万大关逼近。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。这个直冲云霄的新增病例数字曲线和澳大利亚16岁以上人口接种至少两剂疫苗的91.2%比例放在一起可以说极为讽刺。恰巧最近丹麦一项观察性研究发表，发现两种疫苗毒针的防范奥米克戎毒株的“有效性”只能维持60天而已。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1658.png)
+而到了90天时，如图中红框内的数字所示，其有效性都降低到了分别为-39.3%和-76.5%，也就是说，比不打疫苗者更加容易感染！实际上这意味着，这些毒针注射虽然在几个星期内也许能够暂时提高对中共病毒的免疫力，但是90天后其免疫力就大幅下降到比不打疫苗低得多的水平，实际上也就是严重损害了免疫力。可叹的是，政府的应对措施竟然是继续号召大家打加强针，难道人们都不明白饮鸩止渴，扬汤止沸的道理吗？
 
-会议认为，这种“极不平凡”的战争局面最根本的原因在于全党以习作为核心和掌舵领航人，在于有习近平思想科学指引，在于坚决维护习的核心。认为坚持执行习的果断抉择是取得胜利前进的重要保证。
+果然今天打脸的新闻就爆出来了，澳洲著名的影星，“金刚狼“的扮演者休·杰克曼（Hugh Jackman）12月5日才刚刚注射加强针，仅仅24天后的今天就被感染了。
 
-会议强调，习近平对中央政治局各位同志的自我检讨发言进行了总结，并就习的“[八项规定](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%A4%AE%E5%85%AB%E9%A1%B9%E8%A7%84%E5%AE%9A)”及其实施细则提出了要求，“认为这次专题民主生活会开得很好、很有成效，交流了思想，检讨了问题，明确了方向。”对迎接二十大召开具有重要意义。
+既然这是丹麦的研究，我们就来看一下丹麦的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/111-3.png)丹麦每日新增病例曲线（来源：Our　World in Data）![](https://assets.gnews.org/wp-content/uploads/2021/12/21-3.png)
+上图是丹麦疫苗接种的曲线，深绿色部分是加强针，已经注射加强针的丹麦民众占总人口的比例已经高达43%。再看看上图的丹麦的疫情曲线，跟澳洲很相似，都是笔直向上。这两幅曲线对照来看，对于加强针能否有用，已经可以一目了然了。
 
-熟悉中共“民主生活会”的人士都知道，中共上一次历史性的民主生活会是在1987年，中共总书记胡耀邦在针对他的民主生活会后辞职。这次的民主生活会[逼着胡耀邦辞职](https://cn.nytimes.com/china/20160603/c03hu-obit/)引发了89“[六四](https://zh.wikipedia.org/wiki/%E5%85%AD%E5%9B%9B%E4%BA%8B%E4%BB%B6)”大规模学生民主运动的抗议活动，史称[天安门大屠杀](https://www.bbc.com/zhongwen/simp/chinese-news-48465191)。众所周知，中共习近平内部正在经历前所未有的政治斗争，为了做好明年“二十大”的胜利召开，谁主沉浮?不得而知。习知道他面临反对派的群殴，能否决胜，二十大的召开，就在此一击。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-为此，习近平把即将到来的二十大能否胜利召开形容为走“在新的赶考之路上”。习认为能否像毛泽东那样继续交出优异答卷，关键在于中共党内对习是真的忠心还是表面恭维、背地里捅刀子？习此时此刻再提马克思主义产生的社会主义“充满着斗争的艰辛、斗争之艰难、流血牺牲之惨烈世所罕见”的一系列严肃措辞可见一斑。
+发布：去中心化Math
 
-习强调，“要总结运用好斗争经验，坚持底线思维。”是在警告对方不要轻举妄动，也要求他的支持者“增强忧患意识，发扬斗争精神，掌握斗争策略，练就斗争本领，保持越是艰险越向前的大无畏气概。”要有效应对当前党内斗争难以预料的风险挑战，一往无前。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-习认为，“我们经历了（生化战、经融战、网路战、贸易战）等一系列重大风险挑战，我们都毫不畏惧。”难道还惧怕自己倒在反对派的刀下？正如郭文贵先生所言，“所有独裁者灭亡前都会出现两个症状，首先是政治危机、其次是经济危机。比如萨达姆最早的经济危机萌芽是‘两伊战争’，结果把他经济拖垮了。”此类例子很多，所以，没有一个独裁最后不把经济危机扩展到外部最后发动战争的。（[25:46时段了解更多](https://gettr.com/post/pi5gfs500d)）
-
-2021年12月29日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,36 @@
 ---
 
 
-## “游街示众”中共惊现文革式批斗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801624/)
+## 物资短缺 大量西安民众深夜求救
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801670/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1655.png)[图片来源](https://me.mbd.baidu.com/r/yNoPPJ8KdO?f=cp&amp;rs=2532260241&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0137fb131ceec332)
-12月29日每日经济报报道，12月28日广西百色市靖西警方在安宁乡等地开展走私、偷渡等涉边违法犯罪人员“十个一律”现场惩戒警示活动。当日上午8时，一辆挂有“严惩涉边境犯罪行为维护边疆和谐稳定”“靖西市2021年涉边类案件现场惩戒活动”横幅标语，载着由8名民警押解的4名涉嫌运送他人偷越国（边）境罪嫌疑人的敞篷式惩戒宣传车从城区出发，驶向惩戒活动现场，12月29日，一段4人被押解“游街示众”的视频在网络流传，视频中几人身穿防护服，胸前和后背挂有大幅照片。
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月27日，据盖特知情人士爆料称，大量西安民众当晚涌入中共媒体的微博账号下发出求救——他们纷纷留言表示，目前家中物资已极度短缺，但当地政府的供应却远不到位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-29-下午9.20.09.png)
+据当地民众反映，自西安因疫情封城之后，该市不但菜价极速飞升，而且相关的配送物流也变得毫无保障。还有知情者提及，即使一些外地省市已经对西安进行了支援，但这些物资却根本没有到达民众的手中。就西安市民而言，仅仅是全家人的一日三餐就已经成为难题。
 
-“游街示众”彰显了羞耻刑的威力，围观与鄙夷的目光就是对其制裁的武器，大家会沉浸于“杀一儆百”的快意恩仇之中。但是“游街示众”不利于对违法犯罪分子的教育改造，如此惩戒不仅会摧残他们的羞耻心，而且由此产生的强大社会舆论也会排斥他们回归社会。如此一来，不仅起不到教育坐拥，还会迫使他们走向社会的对立面，继续危害社会。对于违法犯罪者进行教育惩戒是必要的，但绝不是以血还血的报复式惩罚，而是教育与惩戒的有机结合。
+另有相关人员表示，西安此前还传出将全面戒严的消息——虽然此类消息目前被中共当地政府进行了所谓的“辟谣”，但据盖特来源信息和知情者透露，西安市内而今的真实情况已与全面戒严相差无几，更有民众当街被中共警方押解。
 
-中共国所谓法律，只是便宜了各类有权力庇护混蛋和无权力庇护混蛋去违法犯罪而已。于艰辛讨生计的无权力守法者来说，生存环境，反而是越来越坏了惩恶也不能违法，执法更应畏法，这种文革式的批斗大会，也是中共独裁者还处于原始手段奴役百姓。
+截止当前，西安市政府仍没有回应如何解决当地隔离人员家中物资短缺的问题，且当地民众的微博留言已被中共媒体删除。
 
-信息来源：[【广西4人被押解游街示众，公安局、乡政府回应：按要求处罚，没有不合适】](https://me.mbd.baidu.com/r/yNoPPJ8KdO?f=cp&amp;rs=2532260241&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0137fb131ceec332)
+参考链接：
+1）[https://www.gettr.com/post/pkt1qec2ef](https://www.gettr.com/post/pkt1qec2ef)
+2）[https://www.gettr.com/post/pktnfr783c](https://www.gettr.com/post/pktnfr783c)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：飞虹
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

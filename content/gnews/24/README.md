@@ -2,43 +2,22 @@
 ---
 
 
-## 飞不出裕达飞不出盘古就不会有大亨级七哥和新中国联邦
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1801496/)
+## 西安民众称“快断粮”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801503/)
 
-**郭文贵先生：**这是我告诉今天所有的孩子，你们所有现在想要的东西在未来的一段时间，你看上去都成为笑话，你才是赢家。如果有任何东西你还没有得到，你就告诉你自己，我要得到它，我要征服它。如果有些东西让你失败了，你会告诉你自己，这是让我得到更多，我会再来一次，直到得到为止。得到即放弃，得到，你就应该有更好的东西在等待你。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1648.png)[图片来源](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964)
+中共国陕西省周二（28日）新增报告本土确诊病例151例，均在西安市，是中共国既去年3月以来最严峻的一波本土疫情，陕西延安市政府也因出现本土病例而禁止民众出门，有数十万居民受影响，他们与西安市的1300万人都必须待在家中。因疫情而起一再实施的严格管控让当地居民很难接受. “我快要被饿死了，”一名西安居民在微博平台上写道，“没有食物，不让我出去，我的方便面也快吃完了……请帮帮我！”
 
-就像现在裕达国贸、盘古没了，我无数次站在盘古、裕达，我想有一天我不回来的时候、这不属于我的时候，我会怎么享受它、我怎么想。我把所有的享受都享受完了，我把所有想到的都想到了。唯有那里的人，七哥是惦记的，那个感情在。但是对任何牵挂已经没有。我飞不出裕达，我就不可能有盘古。飞不出盘古，就不会有郭文贵的世界的金融大亨、金融“大亭”的这种人物。我飞不出这些东西我怎么可能有新中国联邦？
+许多西安居民也同样在社交媒体上抱怨这些出行限制，其中包括禁止开车，每三天只允许一名家庭成员外出买菜等。法新社称，这次的管控措施是中共国自疫情爆发初期，在武汉实施封城以来，最为全面的一次封城。有西安民众通过推特指出，刚封城前几天是每户凭出入证，两天一人次出入小区采购，但27日后所有人不得出户。他说：“封城通知的前一天很多人采购了东西。但还有些人是准备不足的。一般家庭估计还能挺几天，有存量。一些独居，平常不怎么大量采购的基本上已经很困难了，可能谁也没料到的情况，没有那么准备。”该居民对政府的防疫政策表示不满，并说：“他们只会在自己的角度上考虑，怎样防止疫情继续扩大才是主要的。估计只要不是因为食物短缺饿死人，他们不会在乎，更多会考虑自己的政绩，自己屁股下的椅子。”他也不认同政府的“零容忍”政策，批评中共当局“没有本事处理得当，只能用这种暴力行为彰显自己的能力。我不认为这种防疫模式会成功，长期看的话。”
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](https://gnews.org/zh-hans/1793669/)
+中共国官媒《人民日报》微博帐号也坦承目前西安存在“买菜难”等问题，并在官方微博发文称在西安多区连夜配送肉蛋奶等生活物资。但评论区中有多名网民留言称部分地区情况严重却未被提及。
 
-编辑整理：喜马拉雅的肉夹馍；
+信息来源： [全球疫情：西安民众称“快断粮” 欧洲力抗奥密克戎](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964)
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-后台技术支持：文肺猫
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

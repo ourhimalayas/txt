@@ -2,36 +2,22 @@
 ---
 
 
-## 物资短缺 大量西安民众深夜求救
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801670/)
+## 被消失的传媒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801704/)
 
-作者：纽约香草山教育部-Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月27日，据盖特知情人士爆料称，大量西安民众当晚涌入中共媒体的微博账号下发出求救——他们纷纷留言表示，目前家中物资已极度短缺，但当地政府的供应却远不到位。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-29-下午9.20.09.png)
-据当地民众反映，自西安因疫情封城之后，该市不但菜价极速飞升，而且相关的配送物流也变得毫无保障。还有知情者提及，即使一些外地省市已经对西安进行了支援，但这些物资却根本没有到达民众的手中。就西安市民而言，仅仅是全家人的一日三餐就已经成为难题。
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/QkOBFjZua5AiRkcf5pD_fH2QFWi5kPtMlZHVgeYB5ZXMM1Qhnurp5Cb75eS0cJee0qXohJ0agM-ZyWJEWhhgOQ9EkMfGDZuwuhgj2j4201cOBf_ObkFuymVEWaeZ3XPMUt09ep0x)
+警方国安处人员今早6时20分到《立场新闻》位于开源道的办公室搜查。另外，国安处人员持法庭手令到陈朗升沙田区寓所搜查，拘捕《立场新闻》6名高层或前高层人员，涉嫌「串谋发布煽动刊物」。消息指，国安处人员持法院据《香港国安法》第43条发出之手令搜查， 获授权搜查及检取新闻材料，行动中，警方共派出超过200名军装及便衣人员，搜查行动仍在进行中。
 
-另有相关人员表示，西安此前还传出将全面戒严的消息——虽然此类消息目前被中共当地政府进行了所谓的“辟谣”，但据盖特来源信息和知情者透露，西安市内而今的真实情况已与全面戒严相差无几，更有民众当街被中共警方押解。
+在中共独裁的白色恐怖下，《立场新闻》的消失只是时间的问题，自从《苹果日报》在今年7.1前被迫关闭后，香港社会的媒体都进入了冰河期，不少报章上的文字对港府管制和社会矛盾不再犀利，有的甚至不敢附带任何立场。传统党媒在中共的加持下更加偏激，不仅用污名化的词标识香港的抗争者，还不停代表香港市民支持港府和国安的行动，一些政治人物也经常被摆上版面为中共的暴政撑场。敢于为民发声的媒体愈发稀少，反映香港现状的消息充满谎言，知名的社交平台被中共收买出卖用户资料，中共大外宣不遗余力地联手外国媒体制作虚假的报道，香港人被困在中共编制的新闻防火墙内，似乎只有屈服的道路。
 
-截止当前，西安市政府仍没有回应如何解决当地隔离人员家中物资短缺的问题，且当地民众的微博留言已被中共媒体删除。
+感恩上帝预备了爆料革命新中国联邦，我们的社交平台GTV、Gnews、Gettr日夜不停地传递着全球真像和经历，新中国联邦遍布世界各地的农场更成为华人的避难所，切断了中共海外潜伏势力对同胞的伤害。新中国联邦在这黑暗的世代正迅速凝聚全球华人和国际灭共力量，共同对抗邪恶的中共。
 
-参考链接：
-1）[https://www.gettr.com/post/pkt1qec2ef](https://www.gettr.com/post/pkt1qec2ef)
-2）[https://www.gettr.com/post/pktnfr783c](https://www.gettr.com/post/pktnfr783c)
+资料来源：[**何韵诗等六名《立场》现任及前高层 涉串谋发布煽动刊物被捕**](https://std.stheadline.com/realtime/article/1793155/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E4%BD%95%E9%9F%BB%E8%A9%A9%E7%AD%89%E5%85%AD%E5%90%8D-%E7%AB%8B%E5%A0%B4-%E7%8F%BE%E4%BB%BB%E5%8F%8A%E5%89%8D%E9%AB%98%E5%B1%A4-%E6%B6%89%E4%B8%B2%E8%AC%80%E7%99%BC%E5%B8%83%E7%85%BD%E5%8B%95%E5%88%8A%E7%89%A9%E8%A2%AB%E6%8D%95)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：飞虹
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
