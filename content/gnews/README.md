@@ -15,86 +15,86 @@
 
 ---
 
-### [西媒头条 — 第141期](/content/gnews/1/README.md)
+### [印度组织呼吁政府调整数字货币政策](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西媒头条 — 第141期](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第39期](/content/gnews/2/README.md)
+### [七哥说—第39期](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/3/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/4/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/5/README.md)
  ` wenwu`
 
-### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [那山，那人，那民 &#8211; 裤带面有感](/content/gnews/6/README.md)
+### [那山，那人，那民 &#8211; 裤带面有感](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [世界将步入“四国演义”时代](/content/gnews/7/README.md)
+### [世界将步入“四国演义”时代](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [中共国车辆保险费用上涨](/content/gnews/8/README.md)
+### [中共国车辆保险费用上涨](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生给予战友们的人生忠告](/content/gnews/9/README.md)
+### [郭文贵先生给予战友们的人生忠告](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [12/29/21 香港快讯 200警搜立场新闻办公室 国安处拘何韵诗等6人](/content/gnews/10/README.md)
+### [12/29/21 香港快讯 200警搜立场新闻办公室 国安处拘何韵诗等6人](/content/gnews/11/README.md)
  ` 英喜-粵語組`
 
-### [据报道Steam已在中共国被禁止](/content/gnews/11/README.md)
+### [据报道Steam已在中共国被禁止](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【Michael.Tonny专栏】中共病毒疫苗不能预防感染，还引发免疫系统自我毁灭！](/content/gnews/12/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗不能预防感染，还引发免疫系统自我毁灭！](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [强制疫苗接种引发法律及副作用双重担忧](/content/gnews/13/README.md)
+### [强制疫苗接种引发法律及副作用双重担忧](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西班牙电信将替换华为5G设备](/content/gnews/14/README.md)
+### [西班牙电信将替换华为5G设备](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [法国要求未接种疫苗的人接种疫苗](/content/gnews/15/README.md)
+### [法国要求未接种疫苗的人接种疫苗](/content/gnews/16/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国在台协会处长呼吁 国际社会应携手向中共问责](/content/gnews/16/README.md)
+### [美国在台协会处长呼吁 国际社会应携手向中共问责](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [拜登签署国防授权法案加强对抗中共](/content/gnews/17/README.md)
+### [拜登签署国防授权法案加强对抗中共](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [新冠疫情加剧，苹果关闭纽约所有门店](/content/gnews/18/README.md)
+### [新冠疫情加剧，苹果关闭纽约所有门店](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [日本将对中共军方的留学生发出国际通缉令](/content/gnews/19/README.md)
+### [日本将对中共军方的留学生发出国际通缉令](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/20/README.md)
+### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [火龙果检测“阳性”，故伎重演，一箭三雕](/content/gnews/21/README.md)
+### [火龙果检测“阳性”，故伎重演，一箭三雕](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播 12/29 北京冬奥会：皇帝开心三分钟，人间黑暗三百年](/content/gnews/22/README.md)
+### [文贵大直播 12/29 北京冬奥会：皇帝开心三分钟，人间黑暗三百年](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [青蒿素及其衍生物在各领域广泛应用](/content/gnews/23/README.md)
+### [青蒿素及其衍生物在各领域广泛应用](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/24/README.md)
+### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登签署国防授权法 增加支出应对中俄威胁](/content/gnews/25/README.md)
+### [拜登签署国防授权法 增加支出应对中俄威胁](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [盖特是综合一体化的真正的言论自由平台](/content/gnews/26/README.md)
+### [盖特是综合一体化的真正的言论自由平台](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共抗议星链仅仅是碰瓷吗？](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
 
 ### [DC每日热点1229](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`

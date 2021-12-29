@@ -2,22 +2,17 @@
 ---
 
 
-## 七哥说—第39期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1802076/)
+## 西媒头条 — 第141期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1802084/)
 
-制作：Inzaghi
+制作: 蚂蚁兄弟
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥说_郭文贵_狗_记录员.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1229.001.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥说_郭文贵_司马懿.png)
-
-发稿：信心的选择
-
+*发稿 : Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
