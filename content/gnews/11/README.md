@@ -2,52 +2,40 @@
 ---
 
 
-## CTF发布2022年税收变化
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1802560/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1802582/)
 
-作者：谈海 （51.CA）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-369.jpg)
-加拿大纳税人联盟(Canadian Taxpayers Federation，CTF)周一发布了年度税制调整报告，重点介绍了2022年将发生的重大税制变化。
+编译：土饭团
 
-CTF联邦税主管佛朗哥·特拉扎诺指出，如果你的收入超过4万元，2022年你会看到由于工资税的上涨，你的联邦所得税账单会增加。包括碳税、酒精税、工资税、地税都要增加，新的一年里会有大量的税收上调。
+您若想了解全文报导内容，请点击标题链接
 
-CTF报告概述了2022年联邦和省政府的主要税制变化。报告的主要内容包括：
+**[1.美国总统Biden签署7700亿美元国防法案](https://www.reuters.com/world/us/us-president-biden-signs-770-billion-defense-bill-2021-12-27/)**
 
-2022年收入超过4万元的纳税人，将被联邦政府扣除更多的钱。
+路透社12月27日电，白宫周一表示，美国总统拜登签署了2022财年的《国防授权法》，即NDAA，该法案授权了7700亿美元的国防开支。关于中共国，该法案包括为太平洋威慑倡议提供71亿美元，并发表国会支持台湾防务的声明，以及禁止国防部采购由中共国新疆地区强迫劳动生产的商品。
 
-加拿大养老金计划（Canada Pension Plan）税的增加，将使工人和企业双双额外花费最高达333元，以获得最高养老金收入。
+**2.[美报告揭露中共国意图主宰南海、东海的大规模活动](https://www.aninews.in/news/world/us/us-report-reveals-large-scale-chinese-activities-which-aim-to-dominate-south-china-sea-east-china-sea20211229010007/)**
 
-就业保险（Employment Insurance）税的增加，将使每位打工者在2022年额外花费最高63元，企业则需增加最高达89元，以获得最大数额保险金。
+ANI 12月29日电，美国国会研究服务中心的一份新报告揭示了中共国的一些活动，并表示北京最近强加的“任意法”是一个值得关注的问题，因为它的目的是在东亚特别是在南中国海和东中国海占据主导地位。报告还指出，其他观察家将中共国的做法称为“灰色地带行动战略”，即在和平与战争之间的灰色地带开展行动。
 
-联邦个人基本抵免额 ( Basic Personal Amount) 从13,808元提高到14,398元，年收入低于155,625元的国民可多申请590元的免税收入，因而可节省89元的入息税。
+**3.[美国称外交官将前往北京帮助运动员，中共国指责抵制是一场“闹剧”](https://nypost.com/2021/12/27/us-says-diplomats-going-to-beijing-to-help-athletes-after-china-blasts-boycott/)**
 
-安省2022年个人基本抵免额从10,880元提高到 11,141元。
+纽约邮报12月27日电，Biden政府周一表示，美国外交官将前往北京支持冬奥会运动员，但不参加冬奥会，此前中共国政府的一名高级宣传员声称，此举表明Biden总统的外交抵制是一场“闹剧”。美国国务院和白宫国家安全委员会周一晚些时候表示，Biden的“外交抵制”没有改变。
 
-2022年4月1日，联邦碳税将在大流行期间第三次上调每升汽油11分。
+**4.[中共国对稀土金属的近乎垄断是其与美国竞争的一张“王牌”](https://www.aninews.in/news/world/asia/chinas-near-monopoly-of-rare-earth-metals-a-trump-card-in-its-rivalry-with-us20211228203854/)**
 
-2022年4月1日，大流行期间酒类税将第三次增加，至此税费已占啤酒价格的一半左右、葡萄酒价格的65%和烈酒价格的四分之三以上都是税。
+ANI 12月28日电，分析人士认为，中共国对稀土金属的近乎垄断使其在与美国争夺全球主导地位的竞争中拥有一张王牌，而且中共国已经表现出将贸易武器化的意愿。美国及其盟国越来越担心中共国可能会掐断稀土金属的获取途径，这些金属对各种尖端技术的运作至关重要，从战斗机到无线耳机和风力涡轮机以及触摸屏。
 
-阿尔伯塔省、安省、新斯科舍省和爱德华王子岛省的政府实施了一种新的所得税形式，称为“bracket creep”。在安省bracket creep与通胀率挂钩，根据收入水平不同安大略纳税人因此额外支付最高132 元。
+**5.[在与中共国日益紧张的关系中，美、日、韩国防部长可能在一月会面](https://www.aninews.in/news/world/asia/amid-growing-tensions-with-china-defence-chiefs-of-japan-us-s-korea-may-meet-in-january20211228120203/)**
 
-佛朗哥·特拉扎诺指出，大流行可能是最糟糕的加税时期，因为疫情期间，许多加拿大人失去了工作、关闭生意或被减薪，这就是为什么所有政客都应该扭转他们在大流行期间的加税措施。
+ANI 12月28日电，在与中共国和朝鲜在南中国海及发射弹道导弹的违规行为关系日益紧张的情况下，日本、美国和韩国的国防部长正在安排于一月中旬在夏威夷会面。美日韩之间的三边安全合作“对地区稳定仍然至关重要”。中共国在向邻国提出领土主张方面表现出咄咄逼人的态度。
 
-来源：https://www.taxpayer.com/newsroom/ctf-releases-new-year%E2%80%99s-tax-changes-for-2022
+* * *
 
-（文章仅代表作者个人观点）
+*审核：Aries的星*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 

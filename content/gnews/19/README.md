@@ -2,75 +2,49 @@
 ---
 
 
-## 2021年12月29日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1802435/)
+## 安省新增再超万例三地破千 政府拟修改隔离要求
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1802490/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3c7140dd533bfc86204e40a0b11c341d.jpg)
-视频连接：[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gettr.com/streaming/pkznva4740)
+作者：Chris Herhalt
+翻译：S君
 
-1、秦刚警告美国，如果班农和爆料革命继续存在，会引起中美大战；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-349.png)
 
-2、普京收了一千亿，参加冬奥会，并私下答应带三个有影响的人去。三个人当中两个明确拒绝了参加冬奥会；
+据安省政府网站29日通报，过去24小时内，新增确诊10,436人，全省累计确诊725,841人。新增治愈3832人，至今638,678人已康复。新增死亡3人，安省10,171人死于新冠。今天通报的新增感染人数超过了25日通报的10,412人。最近连续七天，安省平均每天新增确诊9183人，而一周前的滚动新增是3520人。
 
-3、普京也可能因病拒绝参加冬奥会；
+今天新增的病例中，1514人未打疫苗，425人打了一针，8221人完全接种，276人疫苗接种状态不明。过去24小时内，安省实验室完成了近6万次检测，阳性率高达26.9%，这是有史以来最高的纪录。目前还有超过74,000人在等待检测结果。
 
-4、刘亚洲被抓前，见了100个人，最后两个人是曾庆红和王岐山，王岐山、曾庆红毫不回避替刘亚洲站台说话；
+近期确认爆发疫情的机构有所增加：全省626个长期护理院中有92个现在宣告爆发疫情，25个健身场所、14个餐馆或酒吧也爆疫情。从各地新增情况来看，有三个地区新增在1000人以上：多伦多市新增确诊2715人，约克区新增1252人，皮尔区新增1066人（昨天886人）。
 
-5、共产党为了让欧洲法国德国来参加冬奥会，许诺增加126架空客320，一架1亿多；
+其余新增较多的地区包括：渥太华市新增确诊644人（昨天376人），Hamilton市新增确诊539人（昨天337人），杜兰区新增524人（昨天389人），Halton地区新增437人，滑铁卢地区新增422人（昨天298人）。
 
-6、一个非洲小国家派十几个运动员参加冬奥会免除18亿美元债务，还送2亿现金；
+在今天数据统计不全的情况下，安省有726名新冠患者需要住院接受治疗，比昨天增加235人。其中190人在重症病房，104人需使用呼吸机。最近连续七天，安省新冠重症患者的每日平均人数是174人。
 
-7、中共一年对外援助多少钱？说6万亿事实上12万亿人民币1.5万亿美金，什么概念？整个广东GDP；
+安省政府网站显示，由于周末以及节假日统计不全，通常在周天、周一以及节假日后的第一天，都不会公布住院患者和重症病人的疫苗接种状态。
 
-8、西安因为疫情封城，饿死跳楼自杀，等各种疾病得不到救治，事故 700起，2000多人死亡；
+据安省新冠研究小组发布的数据，在28日时，预计Omicron感染人数占全省新冠病例的94.1%，现在感染翻倍的时间平均是4天。
 
-9、恒大又从各地商业银行融资45亿，继续做假、庞氏骗局；
+安省政府昨日表示，正在考虑是否要改变对完全接种疫苗的无症状感染者的隔离要求，这样做是为了避免医疗系统以及其他必要行业出现人手不足的现象。
 
-10、陈全国不降反升，要进核心了；
+同时政府也在考虑是否要在1月份时允许学生重返校园上课，并预计会在未来几天宣布这方面的计划。
 
-11、杨洁篪王毅在党校秘密讲话：明白拜登新国防授权法案是要灭掉中共，让共产党彻底死心，因此共产党必须继续放毒。中共分析认为共和党明年会大赢，美国会内战，认为让两党分裂是共产党最大的抓手，帮助美国内乱；
+来源：https://www.cp24.com/news/ontario-sets-new-record-covid-19-case-count-despite-test-scarcity-with-10-436-new-cases-1.5722129
 
-12、美国在两党相争的时候，绝对是打台湾的最佳时机，拿回台湾和南海，中共就可以压制印度和越南，唯一的变数是俄罗斯的态度，日本不算什么；
+（文章仅代表作者个人观点）
 
-13、日本【朝日新闻】大篇幅解读 盘古龙头变鸟头，被中共威胁全部下架
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-14、虚拟货币是货币超发的蓄水池；
+**关注我们**
 
-15、拜登很有可能是世界上最大的灭共英雄；
+Discord 账号
 
-16、西安疫情不是什么新病毒，就是打疫苗的结果；
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-17、喜币会成为世界数字货币的游戏制定者；
+Gettr 账号
 
-18、青蒿素对癌细胞，对糖尿病，中风有奇效。青蒿素、伊维菌素每时每刻都再救命；
-
-19、Isobel Yeung 杨贝贝6周反击不能停；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
