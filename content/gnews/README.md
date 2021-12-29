@@ -15,65 +15,65 @@
 
 ---
 
-### [郭文贵短直播音频2021.12.26](/content/gnews/1/README.md)
+### [澳媒深度报道：中共国战狼外交和贸易战引起澳洲“神圣价值观”回归（1）](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [郭文贵短直播音频2021.12.26](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中（共）国外交部告状，说美卫星接近中国空间站](/content/gnews/2/README.md)
+### [中（共）国外交部告状，说美卫星接近中国空间站](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯常驻欧盟代表采访录（二）北约-俄罗斯理事会](/content/gnews/3/README.md)
+### [俄罗斯常驻欧盟代表采访录（二）北约-俄罗斯理事会](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性](/content/gnews/4/README.md)
+### [澳洲明星休·杰克曼打加强针后病毒检测依然呈阳性](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [谁还记得高耀洁](/content/gnews/5/README.md)
+### [谁还记得高耀洁](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文·贵天成——文贵先生谈“G-Club”（六）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（六）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安封城千万人禁足 武汉封城惨剧再现](/content/gnews/7/README.md)
+### [西安封城千万人禁足 武汉封城惨剧再现](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（七）](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（七）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”](/content/gnews/9/README.md)
+### [DC大中华时事：拜登签署国防授权法案用于“太平洋威慑计划”](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国家门口的共产主义国家是中共的天然盟友](/content/gnews/10/README.md)
+### [美国家门口的共产主义国家是中共的天然盟友](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.751 HDO](/content/gnews/11/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.751 HDO](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/12/README.md)
+### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [2021年12月28日郭先生盖特 — 视频盖特2「49秒」](/content/gnews/13/README.md)
+### [2021年12月28日郭先生盖特 — 视频盖特2「49秒」](/content/gnews/14/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [文·贵天成——文贵先生谈“G-Club”（五）](/content/gnews/14/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（五）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月28日郭先生盖特 — 视频盖特1「9分00秒」](/content/gnews/15/README.md)
+### [2021年12月28日郭先生盖特 — 视频盖特1「9分00秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中国地方政府开始没收恒大的土地](/content/gnews/16/README.md)
+### [中国地方政府开始没收恒大的土地](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北约军机今年紧急升空370次 近8成是拦截俄机](/content/gnews/17/README.md)
+### [北约军机今年紧急升空370次 近8成是拦截俄机](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（四）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（四）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列拟议中“脸书法案”严重伤害言论自由](/content/gnews/19/README.md)
+### [以色列拟议中“脸书法案”严重伤害言论自由](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
-
-### [疫情数据：美国创下单日COVID-19新增病例记录 441,278 例](/content/gnews/20/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [俄罗斯常驻欧盟代表采访录（一）提议恢复欧洲的安全体系](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
