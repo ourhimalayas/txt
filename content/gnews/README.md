@@ -15,146 +15,146 @@
 
 ---
 
-### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登签署国防授权法 增加支出应对中俄威胁](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [盖特是综合一体化的真正的言论自由平台](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [欧盟代表发布年终回顾 点名中共](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [中共抗议星链仅仅是碰瓷吗？](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [DC每日热点1229](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [白宫重申对北京冬奥会的外交抵制](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [【#G时新闻】中大移走民主女神像 岭大拆除六四浮雕](/content/gnews/8/README.md)
- ` G-时新闻`
-
-### [俄罗斯常驻欧盟代表采访录（四）俄罗斯和欧盟的政治对话](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
-
-### [秘翻在线：秦刚的“与狼共舞”惹怒了美国主流媒体？](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [雅典娜疫情更新（澳洲今日新增病例向2万逼近）](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [高等学府发布低能调查报告](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新闻述评：习近平民主生活会的第二个胡耀邦是谁](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [被消失的传媒](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯常驻欧盟代表采访录(三）普京慕尼黑会议的演讲](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [中共向普林斯顿大学迂回资助数百万美元](/content/gnews/16/README.md)
+### [日本将对中共军方的留学生发出国际通缉令](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [物资短缺 大量西安民众深夜求救](/content/gnews/17/README.md)
- ` GTV新闻访谈`
+### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [火龙果检测“阳性”，故伎重演，一箭三雕](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“游街示众”中共惊现文革式批斗](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/24郭文贵直播：中共国安委成立“新型冠状病毒控制小组”（粤语配音）](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/22郭文贵直播：中共谈判专家轮番上阵以国家名义威胁彭帅（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/22郭文贵直播： VICE放出被剪辑的视频让爆料革命和海外华人替共产党背黑锅（粤语配音）](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/19郭文贵直播：彭丽媛一定会在冬奥会上亮相宣告她是中国第二号人物（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/19郭文贵直播：习妄想利用冬奥会证明自己的治理能力和中共体制优越性（粤语配音）](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/19郭文贵直播：冬奥会是中共向世界展示“治理”能力的舞台（粤语配音）](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [唯有消灭中国共产党，小粉红们才能得到救赎](/content/gnews/27/README.md)
- ` 银河勇气之星`
-
-### [疫情急速恶化 美国放松隔离规定惹议](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中南坑的共产渔夫](/content/gnews/29/README.md)
- ` 银河勇气之星`
-
-### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/32/README.md)
- ` 秘密翻译组金融团队`
-
-### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/33/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/34/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/35/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国南加州护士公开谈论对中共病毒疫苗的观察和担忧](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西安考研乱象频生，部分考生投考无门](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
-
-### [佛州将对该州在中共公司的投资情况进行调查](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [12/29每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [窥探：日本再创新高的国防预算](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国对数字货币的监管政策即将出炉](/content/gnews/46/README.md)
+### [文贵大直播 12/29 北京冬奥会：皇帝开心三分钟，人间黑暗三百年](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [崩溃的征兆？中国恐慌性囤积世界一半粮食供应](/content/gnews/47/README.md)
+### [青蒿素及其衍生物在各领域广泛应用](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登签署国防授权法 增加支出应对中俄威胁](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [盖特是综合一体化的真正的言论自由平台](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧盟代表发布年终回顾 点名中共](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [中共抗议星链仅仅是碰瓷吗？](/content/gnews/10/README.md)
+ ` 波士顿五月花农场`
+
+### [DC每日热点1229](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [白宫重申对北京冬奥会的外交抵制](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
+
+### [【#G时新闻】中大移走民主女神像 岭大拆除六四浮雕](/content/gnews/13/README.md)
+ ` G-时新闻`
+
+### [俄罗斯常驻欧盟代表采访录（四）俄罗斯和欧盟的政治对话](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线：秦刚的“与狼共舞”惹怒了美国主流媒体？](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [雅典娜疫情更新（澳洲今日新增病例向2万逼近）](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [高等学府发布低能调查报告](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新闻述评：习近平民主生活会的第二个胡耀邦是谁](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被消失的传媒](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄罗斯常驻欧盟代表采访录(三）普京慕尼黑会议的演讲](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共向普林斯顿大学迂回资助数百万美元](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [物资短缺 大量西安民众深夜求救](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/24郭文贵直播：中共国安委成立“新型冠状病毒控制小组”（粤语配音）](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/22郭文贵直播：中共谈判专家轮番上阵以国家名义威胁彭帅（粤语配音）](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/22郭文贵直播： VICE放出被剪辑的视频让爆料革命和海外华人替共产党背黑锅（粤语配音）](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/19郭文贵直播：彭丽媛一定会在冬奥会上亮相宣告她是中国第二号人物（粤语配音）](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [唯有消灭中国共产党，小粉红们才能得到救赎](/content/gnews/29/README.md)
+ ` 银河勇气之星`
+
+### [疫情急速恶化 美国放松隔离规定惹议](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中南坑的共产渔夫](/content/gnews/31/README.md)
+ ` 银河勇气之星`
+
+### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/33/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/34/README.md)
+ ` 秘密翻译组金融团队`
+
+### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/35/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/36/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/37/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国南加州护士公开谈论对中共病毒疫苗的观察和担忧](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西安考研乱象频生，部分考生投考无门](/content/gnews/39/README.md)
+ ` 纽约香草山MOS02`
+
+### [佛州将对该州在中共公司的投资情况进行调查](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [12/29每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/41/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [窥探：日本再创新高的国防预算](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/48/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

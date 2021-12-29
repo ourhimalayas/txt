@@ -2,29 +2,120 @@
 ---
 
 
-## NFL明星罗杰斯：如果科学不能被质疑，那就是宣传
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801022/)
+## 12/29每日播报|社媒消息：蓬佩奥 班农先生
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1801042/)
 
-#### 撰稿：彩虹
+**BY[秘翻新闻](https://gtv.org/broadcast/watch/61cc2641ecc0b216cbb0eecb)**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-9.jpg)图片来源：OX咨询
-亚伦·罗杰斯（Aaron Rodger）是美国国家橄榄球联盟（National Football League）绿湾包装工队（Green Bay Packer）的四分卫。他带领球队取得了超级碗XLV（Super Bowl XLV）的胜利。
+**2021-12-2**9
 
-根据11月6日《CBS新闻》的报道，亚伦·罗杰斯在接受采访时承认，自己没有接种中共病毒疫苗，虽然感染了中共病毒，并且有感染症状，但由于服用了伊维菌素，于是48小时很快就痊愈了。
+**1． 蓬佩奥12月29日发推说：** 中共是我们的敌人，它完全有摧毁我们共和国的企图。
 
-12月28日，《新闻极限》报道，亚伦·罗杰斯在参加前NFL全职业球员帕特·迈克菲（Pat McAfee）的节目时说：“如果科学不能被质疑……那就是宣传”。
 
-他认为：那些说科学不应该被质疑的人，这种谬论等同于宣传，“这就是事实，什么时候科学成为了盲目（相信）？不对真正能够治愈（中共病毒）的东西进行任何辩论。这（样的科学）对我来讲毫无意义”。
 
-在节目中，罗杰斯质疑，为什么没有公开讨论推广健康的生活方式来对抗病毒。“在这整个过程中，没有围绕健康进行真正的对话……（比如）涉及考虑如何更健康生活，以及你的饮食、维生素、运动和这些东西”。
+> China is our adversary, and it has every intention of taking down our republic.
+> — Mike Pompeo (@mikepompeo) [December 28, 2021](https://twitter.com/mikepompeo/status/1475898716108247045?ref_src=twsrc%5Etfw)
 
-**新闻来源**
 
-[Aaron Rodgers: ‘If Science Can’t Be Questioned…It’s Propaganda’](https://www.newsmax.com/newsfront/aaronrodgers-covid19-vaccine-treatment/2021/12/28/id/1050276/)
 
-[Aaron Rodgers confirms he’s unvaccinated and says he takes ivermectin: “I realize I’m in the crosshairs of the woke mob”](https://www.cbsnews.com/news/aaron-rodgers-packers-covid-vaccine-ivermectin-woke-mob/)
+**2. 班农先生12月28日在盖特发文：** 北京的中共犯罪政权在距种族灭绝奥运会开幕还有6周时拉响了警报，拼命向系统注入现金，以支持无力偿还债务的房地产僵尸企业。在贝莱德（BlackRock）的首席执行官拉里·芬克 (Larry Fink)和桥水基金的创始人兼首席执行官雷·达里奥 (Ray Dalio)帮助下，这个奴役老百姓的金融体系诞生了，他们也许为此感到非常自豪。 【盖文转CNBC报道，资深投资策略师戴维·罗切 (David Roche) 12月27日表示，由于中共政府继续将执政焦点放在稳定和所谓的“共同繁荣”上，它们将进一步放松货币政策。罗切说：“这些是我预计我们会看到的更多措施之一。因为经济数据很糟糕，这对共产党来说是不利的，中共将优先考虑稳定。”】
 
+[https://gettr.com/post/pkt6q923ea](https://gettr.com/post/pkt6q923ea)
+
+**3. Newsmax 12月28日在盖特发文：** 佛罗里达州将对中共在该州的运作采取行动。 据《正义报》（Just the News）报道，佛州州长罗恩·德桑蒂斯宣布，佛州将调查该州在中共公司的持股情况，并“从意识形态狂热的投资基金手中，夺回对其股东代理投票的控制权”。 【盖文转报道，德桑蒂斯、佛州首席财务官帕特罗尼斯和总检察长穆迪组成了佛州的董事会，三人都投票撤销了之前给予外部基金经理的所有代理投票权，并澄清基金经理只允许为佛州基金的财务利益行事。三人还表示，他们计划对佛州退休系统的投资进行调查，以了解该州在中共公司有多少资产。德桑蒂斯表示：“如果你看看这些大公司在面对中共的反对意见时是如何表现的，他们遵循中共的审查制度，并卑躬屈膝的道歉。上一代美国精英们以为如果允许中共进入世贸组织并给予他们最惠国待遇，这将使中共国更民主。’但事实证明这不但是错误的，它还已经危及到我们的国家和经济安全。”德桑蒂斯还计划让州立法机构通过法律，防止佛州使用纳税人的钱投资中共国。穆迪表示：“中共政府对在中共国经营的企业施加控制和影响，这足以让任何在中共国有投资的人感到担忧。“】
+
+[https://gettr.com/post/pkug29dead](https://gettr.com/post/pkug29dead)
+
+**4. 《国家脉动》12月29日在盖特发文：** 获得福奇资助的研究人员、不要脸的彼得·达萨克 (Peter Daszak)再度现身，坚称中共“没有掩盖”。 【盖文转报道，达萨克近日参加了主流媒体BBC的一档名为《中共病毒起源：科学》（COVID Origins: The Science）的节目，他声称中共从未掩盖与中共病毒有关的数据，不存在隐瞒的情况。但《国家脉动》之前披露过，在2019年年底，武毒所销毁了近2万分蝙蝠冠状病毒样本。其官网上包括有关如何使蝙蝠冠状病毒更加致命、和美国国立卫生研究院的伙伴关系、在该实验室工作的中共军方研究人员名单以及记录武毒所与中共的财务和人事关系的文章也被删除。除此之外，中共还阻挠世卫组织的新冠起源调查。】
+
+[https://gettr.com/post/pkuovv487e](https://gettr.com/post/pkuovv487e)
+
+**5. 《国家脉动》12月29日在盖特发文：** 大流行期间，近百万美国人逃离了被民主党统治的蓝州，迁移至更安全的南方，因为南方因新冠病毒导致的恐慌更少。 【盖文转报道，在2020年4月至2021年7月期间，超过77万美国和国际居民逃离了主要由民主党统治的地区，搬到了南方。其中国内居民超过了65万人，占了大多数。根据洋基研究所（Yankee Institute）整理的数据，除了南方地区，美国每个地区都出现了大规模的移民。新冠大流行期间，加利福尼亚州损失的国内移民总数超过了42万人。纽约州有35万多人离开，离开伊利诺伊州的人超过了15万。分析认为，大多数离开东北部、中西部和西部地区的人，原因都是与负担能力、自由和安全因素有关。在此期间，因为国内移民而人口增加最多的两个州是佛罗里达州和德克萨斯州，它们分别增加了17万和22万人。这两个州的领导层由共和党主导，他们公开拒绝严厉的新冠防疫措施。】
+
+[https://gettr.com/post/pkupty3ca0](https://gettr.com/post/pkupty3ca0)
+
+**6. Disclose.tv 12月28日在盖特发文：** 在为庶民创造“元宇宙”期间，亿万富翁扎克伯格又在夏威夷考爱县（Kaua’i）购买了110英亩的土地，其中包括一座重要的水库，用于他1300英亩的现实版私人岛屿天堂。
+
+[https://gettr.com/post/pktg30b9e0](https://gettr.com/post/pktg30b9e0)
+
+**7. 莲心不染12月29日在盖特发文：** 在加拿大，安大略省的人权法已被重写: 虽然接种新冠疫苗是自愿的，但根据个人喜好选择不接种疫苗的人无法根据该法保障自己的人权。 宪法权利律师罗科·加拉蒂 (Rocco Galati)对此评论说：“这是错误的。拒绝任何医疗或程序是出于良心信仰的问题.。第 7 条明确说明了人们有自由和安全权利。写出“不接种疫苗的人人权无法保障”这种立场或意见的人肯定是被收买了，这当然不是法律，这是一个违反人权的法律。政府越来越无法无天和堕落，这让人感到可悲。”
+
+[https://gettr.com/post/pkv4ysb19b](https://gettr.com/post/pkv4ysb19b)
+
+**8. 真正美国之声12月29日在盖特发文：** 班农先生说建制派真正害怕的是那些经历了“大觉醒”的美国人。
+
+[https://gettr.com/post/pkv3ch7099](https://gettr.com/post/pkv3ch7099)
+
+**9. 真正美国之声12月29日发推说：** 美国疾控中心CDC 12月27日宣布，将把新冠患者的隔离期从10天减少为5天，新冠病人的密切接触者的隔离期也被缩短。 【推文转报道，缩短隔离期是为了应对奥米炕变种和基于该病毒传播方式的新数据。CDC在一份新闻稿中写道，数据显示新冠病毒在“病程的早期”传播，“一般在发病前1-2天和发病后2-3天”。CDC现在建议对新冠检测呈阳性的人隔离五天，如果他们没有症状，就可以离开隔离区，但是必须佩戴口罩五天。】
+
+
+
+> The U.S. Centers for Disease Control and Prevention (CDC) on Monday cut [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) isolation times in half to five days and shortened the quarantine length for time close contacts.[https://t.co/eVCNhOljLs](https://t.co/eVCNhOljLs)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 29, 2021](https://twitter.com/RealAmVoice/status/1475993720478523395?ref_src=twsrc%5Etfw)
+
+
+
+**10. 印太新闻 – 关注中共威胁 12月29日发推说：** 为了声援台湾，立陶宛议员马塔斯·马尔代基斯 (Matas Maldeikis)12月24日在推特上发布了一张立陶宛版本的“坦克人”照片。马尔代基斯说：“这是一张北京政权无法删除的照片。” 【推文转《台湾新闻网》报道，这张黑白照片拍摄于1991年1月发生的立陶宛一月事件。1991年1月，苏联军队被派往立陶宛，试图重新吞并该国。立陶宛人“不畏任何风险，勇敢地站出来抗议和反对压迫者”。在1月13日的暴力冲突中，苏联军队向抗议者开火，并用坦克碾压抗议者，造成14人死亡。当天晚上，一名手无寸铁的立陶宛男子独自站在一辆坦克前，有人立即拍下了这经典一幕，这张照片与1989年天安门著名的“坦克人”非常相似，立陶宛也将1月13日这天定为自由捍卫者日（Freedom Defenders’ Day）。在立陶宛和台湾都面临来自中共越来越大的压力时，马尔代基斯发此照片以声援台湾和香港。】
+
+
+
+> MP posts photo of Lithuanian 'Tank Man' in solidarity with Taiwan
+> 
+> Maldeikis says photo is one 'Beijing cannot delete'[https://t.co/8BuG7SjHqS](https://t.co/8BuG7SjHqS) [pic.twitter.com/l02FlFWtZH](https://t.co/l02FlFWtZH)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 28, 2021](https://twitter.com/IndoPac_Info/status/1475881733262172160?ref_src=twsrc%5Etfw)
+
+
+
+**11. 印太新闻 – 关注中共威胁 12月29日发推说： **美国总统拜登12月27日正式签署《国防授权法》。该法案邀请台湾参加2022年的环太平洋军事演习，加强台湾与美国国民警卫队的合作，协助其增强不对称防卫能力，并要求提供有关中共颠覆台湾的情报。
+
+
+
+> Biden signs act inviting Taiwan to RIMPAC, boosting asymmetric defenses 
+> 
+> Law also calls for intelligence on Chinese efforts to subvert Taiwan, increased cooperation with US National Guard[https://t.co/83u3re6hGs](https://t.co/83u3re6hGs) [pic.twitter.com/Cza9UxVAXc](https://t.co/Cza9UxVAXc)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 28, 2021](https://twitter.com/IndoPac_Info/status/1475870621326540805?ref_src=twsrc%5Etfw)
+
+
+
+**12. 杰森米勒12月29日发推说： **盖特全球推广活动的下一站是印度！看看这个30秒的盖特印地语（Hindi）广告！ 大科技公司的审查制度是真实的，而且无处不在。 我把我们的印地语电视广告发到了Instgram上。广告内容都是积极的，没有任何问题。 但Instgram官方却给这个视频贴上了一个警告标签，仅因为在一个持续时间很短的滚动画面中，迪内希·杜萨（Dinesh D’Souza）的一个帖子说疫苗强制令是暴政。真是荒唐！
+
+
+
+> Next stop – India! 🇮🇳 [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iNV2FyG0x2](https://t.co/iNV2FyG0x2)
+> — Jason Miller (@JasonMillerinDC) [December 28, 2021](https://twitter.com/JasonMillerinDC/status/1475954324853432330?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 🇮🇳🇮🇳🇮🇳 [pic.twitter.com/dZlLDkiEfg](https://t.co/dZlLDkiEfg)
+> — Jason Miller (@JasonMillerinDC) [December 28, 2021](https://twitter.com/JasonMillerinDC/status/1475956065363763202?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> The Big Tech censorship is real!
+> 
+> I posted to IG our :30 TV ad in Hindi. All positive, never had an issue.
+> 
+> But IG put a warning label on it. Why? Our “sizzle reel” includes a mili-second scroll past a [@DineshDSouza](https://twitter.com/DineshDSouza?ref_src=twsrc%5Etfw) [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) post correctly noting mandates are tyrannical. Nuts! [pic.twitter.com/9C0hzUDIN6](https://t.co/9C0hzUDIN6)
+> — Jason Miller (@JasonMillerinDC) [December 29, 2021](https://twitter.com/JasonMillerinDC/status/1475983106133868546?ref_src=twsrc%5Etfw)
+
+
+
+**13. 郭文贵先生在12月28日的健身直播中说：** 共产党的洗脑和即将到来的经济大崩潰將害死太多无辜的同胞，这是让我们非常非常心痛和感到很无力的地方，我们将竭尽全力拯救更多的同胞。一切都已经开始！
+
+[https://gettr.com/post/pktzu55e32](https://gettr.com/post/pktzu55e32)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报导**
+
+发布：陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
