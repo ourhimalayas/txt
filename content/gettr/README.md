@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/29/2021 10:51 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (5) : <br/>💥 HBO-VICE just wants to create doubts if Miles is really anti-CCP, and discredits Miles who challenged the number one evil regime, the CCP. <br/>☘️ We need to prepare for revenge, even more so when we take down the CCP. This is common sense.<br/>☘️ Miles is the number one enemy of the CCP. We have the energy, power and capability to make miracle happen and #TakeDownTheCCP .<br/>☘️ We know HBO-VICE will ask lie questions, and then deceptively edit a video with premeditated lies again.<br/><br/> #HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段五：<br/>💥 HBO-VICE就是想制造怀疑，看看郭文贵是不是真的反共，它们只会诋毁挑战头号邪恶政权中共的郭文贵。<br/>💦 复仇都需要准备，何况灭共呢？这是常识！<br/>💦 郭文贵是中国共产党的头号敌人，我们有精力、力量和能力让奇迹发生，打倒中共。<br/>💦 我们知道 HBO-VICE 会提出谎言问题，然后再次用有预谋的谎言欺骗性地剪辑视频。
+![img](https://media.gettr.com/group40/origin/2021/12/29/22/440a3f89-6f81-5e96-6497-92b9c0bb115c/out.jpg)
+
+---
+
 `@miles 12/29/2021 1:15 PM (UTC)`
 
 2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦
@@ -146,14 +153,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12/26/2021 Miles Guo: Yesterday’s live stream has proved that the New Federal State of China is saving the world rather than a cult; meanwhile, a major political move was made inside the CCP, and the US government will take a series of measures against the CCP; more progresses will be made to stop the COVID vaccination across the globe<br/><br/>12/26/2021 文贵直播：在昨天直播证明了新中国联邦是在拯救世界而非邪教；与此同时，中共内部有重大政治行动发生，美国政府将对中共有一系列举措，全球在停止疫苗上将有更大进展<br/>
 ![img](https://media.gettr.com/group6/getter/2021/12/27/06/c9e6c257-f039-b76b-dd03-3a0e69f5674e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@harnwell 12/26/2021 5:38 PM (UTC)`
-
-Attempts to suppress news on the potential #XianVariant are collapsing. <br/><br/>CNN’s Jessie Yeung (!) hilariously suggests that president Xi “Mayor Vaughn” Jinping locked down 13 million people in Xian City six weeks before the Olympics, because of just 6 Delta infections from a Pakistan flight. Yeah right [part 2 of 2] <br/><br/>https://www.cnn.com/2021/12/23/china/xian-china-covid-lockdown-intl-hnk/index.html
 
 ---
 
