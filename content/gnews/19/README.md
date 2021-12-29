@@ -2,52 +2,46 @@
 ---
 
 
-## 中国推出“人工智能检察官”，可以自动指控公民犯罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799981/)
+## 福克斯：普京未来几周攻击乌克兰的可能性超过50%
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1800096/)
 
-#### **【雅典娜观察】与您一起洞察世界**
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2021/12/8F66E41F-51BC-486F-8F98-CC36245FA93F.jpeg)
+**据福克斯12年29日发文报道称，前国务卿迈克蓬佩奥访谈中讨论了双边紧张局势，警告弗拉基米尔普京将继续推动美国，因为“领导力薄弱”，蓬佩奥还敦促美国将“美国放在首位”。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/DD02C46B-62FE-4C91-B5AF-F5CE38BCB4A1.jpeg)*福克斯访谈截图*
+**报道称，[俄罗斯总统弗拉基米尔普京已经在乌克兰边境集结了多达 175,000 名士兵和强大的作战装备库。通过调整战争言论和改变武力态势，普京试图让华盛顿混淆他的意图。](https://www.foxnews.com/opinion/russia-ukraine-putin-biden-nato-rebekah-koffler)普京未来几周攻击乌克兰的可能性超过****50%****，并称，普京即将采取行动的证据是压倒性的。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/AI-Prosecutor.jpg)
+在最近的声明中，普京概述了克里姆林宫对乌克兰加入北约进攻性武器系统的担忧，莫斯科认为这是对俄罗斯安全的不可接受的威胁。
+
+**周日，在俄罗斯国家电视台播出的独家采访中，普京说俄罗斯被迫说：****“****也许以一种不寻常的方式****……****停止！****” ****他补充说：****“****我们一直被限制在红线上。****” ****这句话唤起了俄罗斯二战时期传奇的口号，要求军队在一场血腥的战斗之前保卫祖国。他还强调了，****“****无处可退****”****。**
+
+**普京上周二还表示，即使俄罗斯的安全保证要求得到满足，俄罗斯也不能相信美国的保证。**
+
+** ****华盛顿则认为，乌克兰等后苏联国家有权发展为民主国家，而莫斯科则将其视为其安全缓冲和势力范围。**
+
+**无论美国如何回应他的要求，普京都在为对乌克兰采取行动提供理由。普京在与俄罗斯和外国媒体举行的新闻发布会上说：****“****我们被骗了。明目张胆。****”**
+
+**普京坚持认为，尽管美国曾经保证北约不会向俄罗斯靠近甚至****“****一英寸****”****，但仍发生了五次北约扩张浪潮。他说，俄罗斯采取任何行动都是完全有道理的，因为它是在保护自己免受北约的攻击。普京后来排除了任何妥协的可能性，因为拥有进攻性打击武器的美国就在****“****俄罗斯的家门口****”****。**
+
+**此外，普京上周二多次表示，在**** 1922 ****年成为苏联加盟共和国之前，乌克兰从来都不是一个独立的国家。普京一直谴责苏联解体。今年七月，普京断言****“****俄罗斯人和乌克兰人是一个人****——****一个整体。****”****这位俄罗斯领导人非常担心美国寻求俄罗斯的崩溃****——****类似于苏联的灭亡，并认为他有机会采取行动。**
+
+**报道称，俄罗斯军队一如既往地准备在寒冷中作战，普京可能认为西方不会涉足雪地帮助乌克兰。普京有能力对西方视而不见。**
+
+**上周，俄罗斯国防部长绍伊古指责美国准备在俄罗斯边境进行涉及化学武器的挑衅。圣诞节前夕，有人向乌克兰利沃夫市的俄罗斯领事馆投掷燃烧瓶，莫斯科立诉称基辅犯有****“****恐怖主义行为****”****。**** **
+
+**周一，俄罗斯国防部副部长福明将军表示，北约正准备**** [与俄罗斯发生大规模高强度冲突。](https://urldefense.proofpoint.com/v2/url?u=https-3A__www.kommersant.ru_doc_5153396-3Ffrom-3Dtop-5Fmain-5F2&amp;d=DwMFaQ&amp;c=uw6TLu4hwhHdiGJOgwcWD4AjKQx6zvFcGEsbfiY9-EI&amp;r=WKaH1vFYj7fnFkioUplDf7eyhgA7RmadhwSCcSrc0RM&amp;m=yRCZoZUIPNX2HLiQ69Trg-3whW5kj7ZPQrZCw4dnaGuNG9WwXDhgAvDGT_Al4lWl&amp;s=q84pk3mLJsSu3apbFWUneMwhbWiZgPWOlPWknpnk7u4&amp;e=) ****同一天，拉夫罗夫外长指责美国企图**** [在乌克兰挑起一场“小战争”](https://urldefense.proofpoint.com/v2/url?u=https-3A__www.mid.ru_ru_foreign-5Fpolicy_news_1792420_&amp;d=DwMFaQ&amp;c=uw6TLu4hwhHdiGJOgwcWD4AjKQx6zvFcGEsbfiY9-EI&amp;r=WKaH1vFYj7fnFkioUplDf7eyhgA7RmadhwSCcSrc0RM&amp;m=yRCZoZUIPNX2HLiQ69Trg-3whW5kj7ZPQrZCw4dnaGuNG9WwXDhgAvDGT_Al4lWl&amp;s=eTu83gY8Mu8pDl1MNmudZewHbslV8OmIZf2Yu2p-tc4&amp;e=)****，以便日后归咎于俄罗斯。**
+
+**福克斯的报道还称，拜登政府的“专家”，就像之前的奥巴马一样，不顾一切地寻求与俄罗斯“重置”，很可能会落入普京的圈套。**
+
+[新闻来源：
+Russia will strike Ukraine soon — Putin is playing with Biden and NATO](https://www.foxnews.com/opinion/russia-ukraine-putin-biden-nato-rebekah-koffler)
+
+编译/玫瑰天空
+
+审阅/神之一手
+
+上传/🌹
 
 
-
-图片来源：gigazine.net
-
-
-#### 编译：小红帽
-
-**在西方，人们的言论和行动主要是通过自动化的“人工智能”审查和监视系统进行监管的。但在中国，创造一台充当人工智能（AI）检察官的机器的工作似乎正在顺利进行中。**
-
-开发该产品的研究人员声称，该产品已经由繁忙的上海浦东检察院进行测试，在指控涉嫌八项犯罪行为的人时，能够达到97%的准确率。
-
-据《南华早报》报道，据称“**人工智能检察官**”高度胜任处理的案件涉及信用卡诈骗、危险驾驶、赌博、故意伤害、妨碍公务、盗窃等犯罪，但也包括所谓的“寻衅滋事”等犯罪。
-
-**最后一项“寻衅滋事”被认为是特别“有问题的”，因为它的定义，或缺乏定义，可以涵盖不同形式的政治异议。**
-
-现在的计划是引入一台机器，赋予决策权，例如是否提出指控，以及根据具体情况寻求何种判决。
-
-该项目背后的中国科学院大数据和知识管理实验室负责人石勇教授说，这与中国已经使用多年的其他“人工智能”工具之间有着明显的区别。
-
-其中之一是206号系统，其任务仅限于评估证据，嫌疑人对公众构成的危险，以及逮捕条件。
-
-但新的“人工智能检察官”背后的技术看起来更加雄心勃勃，更先进。据已经披露的信息显示，人工智能检察官可以在台式电脑上运行，处理从人类提交的案例描述中提取的1，000个特征，并在此基础上提出指控。
-
-目前尚不清楚用于训练算法的17，000个案例的数据库是否足以将该项目视为真正的人工智能，以及基于规则的算法是否可以实现相同的结果。
-
-无论如何，并不是所有的人类检察官都对以这种方式取代他们的部分工作量感到兴奋–尽管这正是开发这项技术的动机所在。
-
-“从技术角度来看，97%的准确率可能很高，但总会有出错的机会。当**出错时，谁将承担责任？检察官、机器还是算法的设计者？”**一位驻广州的检察官在匿名的情况下指出。
-
-新闻来源：[Dystopian: China Introduces ‘AI Prosecutor’ That Can Automatically Charge Citizens of a Crime (humansarefree.com)](https://humansarefree.com/2021/12/dystopian-china-introduces-ai-prosecutor-that-can-automatically-charge-citizens-of-a-crime.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
