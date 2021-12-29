@@ -2,42 +2,52 @@
 ---
 
 
-## 病毒和疫苗就是共产党要打赢中美之间的世纪大战的结果
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1799940/)
+## 中国推出“人工智能检察官”，可以自动指控公民犯罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1799981/)
 
-第一个，我们在去年就告诉大家，病毒绝对没有疫苗，这是对人类的威胁。疫苗灾难才是真正的次生灾难，是人类最大的灾难。而且我们一再说，今年年底，2021年底，才是真正的灾难的开始，病毒大扩散。没有一个人说，就我们，今年我们说的真的不下万遍吧。
+#### **【雅典娜观察】与您一起洞察世界**
 
-我说10月到12月大爆发，而且来自于非洲和西部，我们全准了。而且我说感恩节之后，美国及世界大爆发，大家看到了吗？全美国、全世界都在感恩节是最夸张的，又是我们，不是我们蒙出来的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/AI-Prosecutor.jpg)
 
-这是我们的科学家和背后的爆料革命，深知这是个生化武器，和共产党内部要决策的情报，在冬奥会前让西方经济要垮下来，让西方要内乱，然后无暇顾及。就像现在习近平、王岐山、杨洁篪、王毅、王沪宁，在内部说的一定会打赢这次中美世纪大战，这是他原话啊：一定要有信心，而且一定会打赢中美的世纪大战，都是这个结果。
 
-这几天兄弟姐妹们你们一定要意识到Omicron太可怕了，而且不好的现象是Omicron现在发现吃了伊维菌素和青蒿素，有些不是100%管用。这是更坏的一个消息，原来是100%绝对管用，现在真不是100%。大家别以为得上是好事，别以为得上你能吃药，真不是了。
 
-编辑整理：海贼王M.D.LUFFY；
+图片来源：gigazine.net
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
+#### 编译：小红帽
 
-G-News发布：小满；
+**在西方，人们的言论和行动主要是通过自动化的“人工智能”审查和监视系统进行监管的。但在中国，创造一台充当人工智能（AI）检察官的机器的工作似乎正在顺利进行中。**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+开发该产品的研究人员声称，该产品已经由繁忙的上海浦东检察院进行测试，在指控涉嫌八项犯罪行为的人时，能够达到97%的准确率。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+据《南华早报》报道，据称“**人工智能检察官**”高度胜任处理的案件涉及信用卡诈骗、危险驾驶、赌博、故意伤害、妨碍公务、盗窃等犯罪，但也包括所谓的“寻衅滋事”等犯罪。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**最后一项“寻衅滋事”被认为是特别“有问题的”，因为它的定义，或缺乏定义，可以涵盖不同形式的政治异议。**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+现在的计划是引入一台机器，赋予决策权，例如是否提出指控，以及根据具体情况寻求何种判决。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+该项目背后的中国科学院大数据和知识管理实验室负责人石勇教授说，这与中国已经使用多年的其他“人工智能”工具之间有着明显的区别。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+其中之一是206号系统，其任务仅限于评估证据，嫌疑人对公众构成的危险，以及逮捕条件。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+但新的“人工智能检察官”背后的技术看起来更加雄心勃勃，更先进。据已经披露的信息显示，人工智能检察官可以在台式电脑上运行，处理从人类提交的案例描述中提取的1，000个特征，并在此基础上提出指控。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+目前尚不清楚用于训练算法的17，000个案例的数据库是否足以将该项目视为真正的人工智能，以及基于规则的算法是否可以实现相同的结果。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+无论如何，并不是所有的人类检察官都对以这种方式取代他们的部分工作量感到兴奋–尽管这正是开发这项技术的动机所在。
+
+“从技术角度来看，97%的准确率可能很高，但总会有出错的机会。当**出错时，谁将承担责任？检察官、机器还是算法的设计者？”**一位驻广州的检察官在匿名的情况下指出。
+
+新闻来源：[Dystopian: China Introduces ‘AI Prosecutor’ That Can Automatically Charge Citizens of a Crime (humansarefree.com)](https://humansarefree.com/2021/12/dystopian-china-introduces-ai-prosecutor-that-can-automatically-charge-citizens-of-a-crime.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
