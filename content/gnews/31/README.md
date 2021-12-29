@@ -2,28 +2,24 @@
 ---
 
 
-## NFL明星罗杰斯：如果科学不能被质疑，那就是宣传
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801022/)
+## 佛州将对该州在中共公司的投资情况进行调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801065/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-9.jpg)图片来源：OX咨询
-亚伦·罗杰斯（Aaron Rodger）是美国国家橄榄球联盟（National Football League）绿湾包装工队（Green Bay Packer）的四分卫。他带领球队取得了超级碗XLV（Super Bowl XLV）的胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-46.jpg)图片来源：美联社
+《新闻极限》（Newsmax）12月27日发文说，佛罗里达州将对中共在该州的运作采取行动。
 
-根据11月6日《CBS新闻》的报道，亚伦·罗杰斯在接受采访时承认，自己没有接种中共病毒疫苗，虽然感染了中共病毒，并且有感染症状，但由于服用了伊维菌素，于是48小时很快就痊愈了。
+据《正义报》（Just the News）报道，佛州州长罗恩·德桑蒂斯（Ron DeSantis）在与另外两名州行政委员会托管人佛州首席财务官吉米·帕特罗尼斯（Jimmy Patronis）和总检察长阿什利·穆迪（Ashley Moody）会面后宣布，佛州将调查该州在中共公司的持股情况，并“从意识形态狂热的投资基金手中，夺回对其股东代理投票的控制”。三人还表示，他们计划对佛州退休系统的投资进行调查，以了解该州在中共公司有多少资产。
 
-12月28日，《新闻极限》报道，亚伦·罗杰斯在参加前NFL全职业球员帕特·迈克菲（Pat McAfee）的节目时说：“如果科学不能被质疑……那就是宣传”。
+德桑蒂斯表示：“如果你看看这些大公司在面对中共的反对时是如何表现的，他们遵从中共的要求进行审查，并卑躬屈膝地道歉。上一代美国精英们的想法是，’如果我们允许中共加入世贸组织并给予他们最惠国待遇，这将使中共更像我们。‘但这个实验已经失败了，它现在已经危及到我们的国家和经济安全。”德桑蒂斯计划让州立法机构通过法律，防止佛州使用纳税人的钱投资中共国。
 
-他认为：那些说科学不应该被质疑的人，这种谬论等同于宣传，“这就是事实，什么时候科学成为了盲目（相信）？不对真正能够治愈（中共病毒）的东西进行任何辩论。这（样的科学）对我来讲毫无意义”。
+帕特罗尼斯说：“一个可悲的现实是，在追究中共的责任方面，太多联邦领导人长期以来一直没有行动。中共在知识产权或贸易方面不按规则行事，同时，他们一直在好莱坞和华府购买影响力。不幸的是，在新冠病毒和供应链问题上，我们看到我们的国家已变得有多么地依赖中共。”
 
-在节目中，罗杰斯质疑，为什么没有公开讨论推广健康的生活方式来对抗病毒。“在这整个过程中，没有围绕健康进行真正的对话……（比如）涉及考虑如何更健康生活，以及你的饮食、维生素、运动和这些东西”。
+穆迪表示：“在中共国经营的企业会受到中共政府的控制和影响，这足以让任何在中共国有投资的人感到担忧。”
 
-**新闻来源**
-
-[Aaron Rodgers: ‘If Science Can’t Be Questioned…It’s Propaganda’](https://www.newsmax.com/newsfront/aaronrodgers-covid19-vaccine-treatment/2021/12/28/id/1050276/)
-
-[Aaron Rodgers confirms he’s unvaccinated and says he takes ivermectin: “I realize I’m in the crosshairs of the woke mob”](https://www.cbsnews.com/news/aaron-rodgers-packers-covid-vaccine-ivermectin-woke-mob/)
+新闻来源：[Florida Plans to Investigate State Holdings in Chinese Companies and ‘Woke’ Companies](https://www.newsmax.com/us/rondesantis-florida-china-wokecapital/2021/12/27/id/1050130/)
 
  
 

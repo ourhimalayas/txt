@@ -2,31 +2,41 @@
 ---
 
 
-## 有声|美军推出“让中共感到恐惧”的战略轰炸机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800921/)
+## 美国对数字货币的监管政策即将出炉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1800948/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台媒12月26日报道，曾经被美国空军部长肯德尔描述为，让中共感到恐惧的B-21突袭者战略轰炸机，即将在2022年首次亮相，并在公开展示后的数月内进行首次试飞。
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-18.jpeg)图片来自：https://www.bitpush.news/
+路透社12月28日报道，美国拜登政府已准备好在2022年推出一系列金融政策的规则变化，该议程中最重要的项目包括为数字资产和金融技术参与者创建一个监管框架，这意味着数字货币在美国将被允许放开市场，并进入到讨论其市场规则的议程。
 
-肯德尔表示，自上任以来有3件优先事项，那就是中共、中共、还是中共。去年12月，他在国会上指出，美国必须打造让中共恐惧的武器，并优先用于对付中共。据悉，自美军30年前展示B-2轰炸机以来，这是首次亮相新型战略轰炸机。目前正有5架B-21隐形轰炸机在生产线上，目标是2022年进行首飞与加紧测试。
+拜登政府这项雄心勃勃的金融改革原计划在2021年进行，但白宫填补财政部、美联储、消费者监督机构和商品市场监管机构的关键职位的步伐缓慢，导致政策变化被推迟。如今，一个顶级金融监管团队已成形。
 
-致力于应对中共威胁，是促使肯德而回到五角大楼的重要因素。他在参议院提名会上说，其明确目标是，美国必须击败中共国在附近投射力量的能力。
+团队高管们指出，加密货币是一个需要关注的关键领域。监管机构一直在探索数字资产的风险，以及它们是否可以在现有的联邦规则下受到监管。
 
-文字版原文：[美军推出“让中共感到恐惧”的战略轰炸机](https://gnews.org/zh-hans/1798891/)
+同时还表示，稳定币是与传统货币挂钩的数字货币，如果它们越来越受欢迎，可能会成为系统性风险，应该像银行一样受到监管。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+监管机构还可能会控制其他金融科技企业，这些企业正通过贷款和支付产品进入银行领域，因为人们越来越担心这些监管不力的企业可能会伤害消费者。在这一方面，监管机构将有银行盟友。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+分析师和华盛顿内部人士表示，2022年对于希望影响这些监管政策的金融公司来说至关重要。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+近年来，随着数字货币从狭义的市场交易进入到人们生活场景后，越来越多品牌的数字货币和交易平台加入到市场竞争的行列，尽管全世界的主权国家和传统金融系统对数字货币发展不断地压制，仍阻挡不了数字货币已形成与主权国家法币和传统金融交易方式并存的新趋势。
+
+2022年将是美国金融政策的一个转折点，可以预见，数字货币市场在迎来井喷式效应的同时，其在合法性、安全性和更有效保护使用者的利益方面将面临优胜劣汰的局面。
+
+Himalaya Exchange作为一个合法的数字货币发行机构，其架构涵盖了制定美国金融新策的监管机构高管提出来的多个监管方向。
+
+Himalaya Exchange对注册用户严格的KYC入门，其中，交易型货币Hcoin能在平台自由交易，稳定型货币Hdollar与法币（暂限于美元）挂钩能兑换流通、支付产品Hpay实现Hcoin、Hdollar在一个账户内或不同账户之间的相互流通，还有Gettr、GTV、Gfasion及Gclub多个正在或即将蓬勃发展的平台对H系列的支撑甚至扩大发展，以及未来更多即将出台诸如贷款等等的配套金融产品。
+
+此外，针对传统金融系统在跨地域使用法币的流通限制、强制性收取手续费、购买商品买卖双方被强制纳税等方面，H系列用户之间的合法、私密、快速交易的优势都会一一显现。
+
+参考链接：
+
+[Analysis: Biden’s regulatory agenda to take shape in 2022](https://www.reuters.com/markets/us/with-key-positions-filling-up-bidens-regulatory-agenda-take-shape-2022-2021-12-28/)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

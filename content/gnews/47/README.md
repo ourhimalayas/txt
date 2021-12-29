@@ -2,34 +2,38 @@
 ---
 
 
-## 奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1800394/)
+## 拜登总统签署《国防授权法》 应对中共军事威胁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1800494/)
 
-作者：纽约香草山信息部 – 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在刚刚过去的圣诞节周末，在新冠疫情期间出行人数和航班都严重萎缩的情况下，全球仍有7000多个航班被取消，近2万个班次延误。完全打乱了成千上万人圣诞周末出游的年末度假计划。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-19.jpg)
-主要原因是最近一轮病毒变种奥密克戎肆虐导致的各种溢出效应，对各航空公司的机组人员和地面运营人员都产生了直接而严重的影响。大量航空公司员工因检疫隔离而缺席，或因感染新冠病毒而请病假。
+#### 撰稿：日本东京方舟农场  海星
 
-在平安夜，全球有近2400个航班取消，11,000个航班延误；周六圣诞节当天，全球有近2800个航班取消，8,000个航班延误；周日，全球有近2000个航班取消。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBAB032-FDA5-4812-9312-FD579826DA13.jpeg)（图片来源：德国之声）
 
-参考链接：
-1. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.thegatewaypundit.com/2021/12/6000-flights-cancelled-christmas-weekend/)
-2. [奥密克戎肆虐 圣诞节周末航班数千取消 2万班次延误](https://www.zaobao.com.sg/news/world/story20211227-1226753)
+12月27日，美国总统拜登正式签署《国防授权法》(NDAA)，即日生效。该法案涉及应对中共威胁的措施。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据《美国之音》报导，拜登总统当日正式签署2022财政年度的《国防授权法》，该法案将授权拨款7770亿美元用于美国国防开支，其中拨款71亿美元用于“太平洋威慑倡议”(Pacific Deterrence Initiative)，以应对中共军事威胁。
 
-总编：文真
-编辑：飞虹
-校对/发稿：Hetangyuese
+此外，该法案不仅发表了美国国会支持防卫台湾的声明，同时还将采取多项具体措施协助台湾提升自我防卫能力，并邀请台湾参与环太平洋军事演习。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+同时，该法案规定国防部禁止采购中国新疆地区强迫劳动生产的产品。
+
+据悉，本月早些时候，这部法案在美国参众两院以压倒性多数票获得通过，受到民主与共和两党议员广泛的支持。
+
+*参考链接：*
+
+1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
+3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
+
+
+* * *
+
+*素材采编：海星*
+
+*编辑：文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

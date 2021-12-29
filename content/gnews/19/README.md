@@ -2,31 +2,43 @@
 ---
 
 
-## 12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1801202/)
+## 财务不独立人格不独立视野不宽阔不经历生死何以谈哲学
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1801463/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61cc2641ecc0b216cbb0eecb)**
+**郭文贵先生：**今天特别要跟你们的学习探讨，七哥走过的路，我都花过很多时间很多钱走这个路，探讨什么是哲学。最后我发现人间的哲学家基本上都是被知识、领域和政客和金钱垄断的一帮精神奴隶。财务不独立，人格不独立，视野不宽阔，腿没有迈开过，没有经历过生死，没有经历过生活中的严酷的考验。
 
-**2021-12-29**
+刚才Panda问的问题，就是我从小到大的这种考验和被两个twins访问的这种经历，你没有资格谈哲学。教室里，温暖的环境里，所有的大学校园里不会出现哲学家。哲学就是行为的结果的总结，你没有行为你怎么可以总结呢？
 
-CNN于12月28日报道，本月纽约市儿科住院人数增加了五倍。几乎是华盛顿特区被登记儿童数的两倍。在全国范围内，仅在过去一周，儿科住院人数就平均增加了 35%。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](https://gnews.org/zh-hans/1793669/)
 
-具有高度传染性的Omicron 变种撞上了繁忙的圣诞节及新年假日，在美国各地受到感染的儿童比以往任何时候都多。虽然 Delta 变体比以前的变体感染了更多的儿童，但 Omicron 的情况看起来更糟。在儿科方面令人担忧的是，我们认为，我们真正看到的是越来越多的人住院的孩子。”“我们尽一切努力让孩子远离医院。所以如果他们被送进医院，那就意味着他们已经病得很重了。
+编辑整理：喜马拉雅的肉夹馍；
 
-哈特福德康涅狄格儿童医疗中心的主任医师胡安·萨拉查博士告诉 CNN，儿童很容易成为该病毒的目标。“也许现在我们放宽了社交聚会的限制，所以它传播得更广了。也许一些口罩已经被摘下了，全家人已经累了。他们不愿意接受一年前的一些严格的隔离政策。”
+字幕文件制作：小满；
 
-儿科医生报告称，儿童中的 Covid-19 病例再次上升，上周新增病例超过 164,000 例
+视频制作及上传：Cindy；
 
-德比亚西在电话采访中告诉美国有线电视新闻网：“我们刚刚看到两者的数量都出现了惊人的增长——阳性检测的数量和阳性检测的百分比。” “我们已经有近一半的测试——48% 的测试——呈阳性，这比之前的感染潮要高得多，之前的感染潮最多约为 17%。如果我们看一下阳性的原始数量，在最后一感染潮中，每天大约有 80 个阳性确诊数给我们留下了深刻的印象，现在我们在某些日子里有近 200 个阳性确诊数。所以它非常、非常、非常具有传染性。”
+后台技术支持：文肺猫
 
-（秘翻新闻主编 清风先生编译报道）
+G-News发布：小满；
 
-发布:星星
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

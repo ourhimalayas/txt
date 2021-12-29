@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/29/2021 1:15 PM (UTC)`
+
+2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦
+![img](https://media.gettr.com/group48/origin/2021/12/29/12/2311350d-cdce-360b-5f1f-1bb477bb4ffb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/29/2021 6:11 AM (UTC)`
 
 12/28/2021 Miles Guo’s GETTR: The CCP is plundering the wealth of the rich leading to wailing and sorrows everywhere in Communist China; Xi refused to meet with the head of a European country during the Winter Olympics, and this makes people wonder what had happened to Xi; many banks in Communist China have a liquidity crisis and the economy is going to collapse soon, but many people still choose to live in their own fantasies<br/><br/>12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首，这令人不禁浮想联翩；国内多家银行有流动性危机，经济随时崩溃，但很多人却仍抱有幻想<br/>
@@ -147,15 +154,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 `@harnwell 12/26/2021 5:38 PM (UTC)`
 
 Attempts to suppress news on the potential #XianVariant are collapsing. <br/><br/>CNN’s Jessie Yeung (!) hilariously suggests that president Xi “Mayor Vaughn” Jinping locked down 13 million people in Xian City six weeks before the Olympics, because of just 6 Delta infections from a Pakistan flight. Yeah right [part 2 of 2] <br/><br/>https://www.cnn.com/2021/12/23/china/xian-china-covid-lockdown-intl-hnk/index.html
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@harnwell 12/26/2021 5:37 PM (UTC)`
-
-HBO Vice’s Isobel Yeung (!) tried to get away with deceptively editing an interview with @Miles Guo. HBO didn’t expect Guo to have — and release — the unedited original LOL. <br/><br/>Beware CCP shills folks! No-one should believe their attempted deflection of #XianVariant either [part 1 of 2]
-> `@stevebannon 12/26/2021 4:10 PM (UTC)`<br/>Miles Guo is smart enough to film his entire interview and put it online to expose the lies and misrepresentations of Vice/HBO — these lies are what we expect from American Media companies that grovel and kowtow to the criminals in Beijing — where the unrelenting exposes the bio weapons lab in Wuhan, the lies of the criminal Fauci, the organ harvesting by CCP elites, the travesty of the Berlin/Genocide Games<br/><br/>Vice/HBO are running dogs for a criminal regime in Beijing that needs to be destroyed for the sake of Laobaixing, the American People and all mankind. <br/><br/>Thank Heaven for Miles Guo <br/><br/>#milesguo @Miles #laobaixing #china #fjb #warroom #freechina #freehongkong #beijing #beijingbiden <br/><br/>https://gettr.com/post/pkexq84603
 
 ---
 
