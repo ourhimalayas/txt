@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1799018/)
+## 秘翻在线: 北京协和医学院马克思主义学院揭牌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1799536/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-5.jpg)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-1-2.jpg)图片来源：新浪网
+据新浪网12月27日报道，中国医学科学院北京协和医院日前成立了马克思主义学院。
 
-视频参看：[2021.12.28早GTV新闻访谈](https://gtv.org/video/id=61cb10e100f9a119180c6bec)
+北京协和医学院校长王辰在成立大会上宣读了关于成立马克思主义学院、领导班子任职及成立马克思主义学院专家委员会的系列决定。副院校长姚建红表示要把马克思主义学院作为重点学院，马克思主义理论学科作为重点学科，思想政治理论课作为重点课程予以建设，以全新思路和得力举措把马克思主义学院打造成学习、研究、传播马克思主义的坚强阵地。国家卫生健康委副主任曾智新表示马克思主义学院要在政治引领、开放办院、协同育人、服务社会上下功夫，聚焦马克思主义在卫生健康领域的运用规律研究，健全以马克思主义为指导的中国特色医学人文学科建设，发挥最高医学研究机构和最高医学教育机构的示范引领作用，努力建成一流的马克思主义学院。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+一所有百年历史、享有盛名的医学院，曾培养出几十万名优秀医疗人员、救人无数的学术殿堂，竟堕落到开办马克思主义学院。作为受过西方教育的博士后，呼吸病学专家的王辰无视科学，将马克思主义引入治病救人的神圣殿堂， 显示出中共国全面向毛时代倒退，不断强化对全民及年轻一代的洗脑教育。这个行为既是中共上层的政治需求和压力，也是基层跟风进行政治投机的结果。 不灭中共，中国人就不能摆脱共产主义这条枷锁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[北京协和医学院马克思主义学院揭牌|北京协和医学院|医学|马克思主义\_新浪新闻 (sina.com.cn)](https://k.sina.com.cn/article_7414213139_1b9ebea13020013zia.html)
 
  
 

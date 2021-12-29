@@ -2,35 +2,34 @@
 ---
 
 
-## 拜登承认联邦政府抗疫不力 将自主权交还各州
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1798884/)
+## 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1799520/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日，拜登与各州州长召开视频会议，承认联邦政府对中共病毒大流行“没有解决方案”，将把决定权交给各个州自行应对。
+By：喜国公民
+视频来自网络
+[彼得·麦卡洛博士在接受“乔·罗根经历节目”采访](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)时，谈到彼得·布雷金最近出版的书：《新冠病毒和全球掠夺者：我们是猎物》，以及波贝特·肯尼迪撰写的《真实的安东尼-福奇》。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-7.jpeg)
+书中揭露了邪恶势力如何预谋和实施了这次新冠病毒大流行和新冠疫苗的大规模接种，并全面疯狂地打压早期治疗药物，如羟氯喹和伊维菌素。
 
-作为全国州长协会主席，阿肯色州共和党州长阿萨·哈钦森提醒拜登，不要在对抗中共病毒这一共同目标的时候，成为各州抗疫行动的阻碍。新罕布什尔州长克里斯·苏努认为，联邦与各州之间应该相铺相成，而不是互相消耗资源。拜登同意两位共和党州长的观点，承认联邦政府没有一个统一的办法来缓解COVID-19疫情，更应该在州政府层面解决实际问题。
+他们利用新冠病毒大流行来制造恐惧、痛苦、隔离、住院和死亡，目的是使人们接受新冠疫苗，并在全世界实施大规模新冠疫苗的接种。
 
-目前，拜登政府正在最高法院为其对企业的疫苗强制令进行辩护。这次视频会议，正是在全美多个州联合起来，对拜登政府的多项行政命令发起诉讼的背景下召开的。有评论人士指出，拜登此番示弱，可能想缓和各级政府之间的紧张局面，也有可能拜登政府应对奥密克戎变种病毒的疫情，确实已经无计可施。
+这些书描述的都不是虚构的故事。例如《新冠病毒和全球掠夺者：我们是猎物》一书就引用了1000多条参考文献。
 
-参考链接：[Biden says he agrees with Republican governors: There’s ‘no federal solution’ to pandemic](https://www.foxnews.com/politics/biden-states-fix-omicron-covid-governors-call.amp)
+书中揭示了盖茨基金会、全球疫苗和免疫联盟、辉瑞和莫得纳等疫苗制造公司以及武汉病毒实验室是如何勾结，运作，协调和计划的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+具体包括，莫得纳公司在新冠病毒从实验室释放出来之前就在研究新冠疫苗。以及美国国家卫生研究院和美国北卡罗来纳大学的拉尔夫·巴里奇签署新冠疫苗秘密转让协议。
 
-总编：文真
-编辑：Lakeman文仁
-校正/发稿：谐趣园
+另外，有证据可以佐证这种预谋。[约翰霍普金斯大学曾在2017年召开被称为”SPARS大流行”的研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+会后发表的研讨会出版物中提到，世界上将出现一种与MERS和SARS类似的冠状病毒，将使城市关闭并使人恐惧。
 
+还提到人们对治疗新冠病毒的药物的认知将出现混乱，如羟氯喹或伊维菌素。他们将利用这一切，以便将民众纳入大规模接种新冠疫苗的轨道。
+
+该研讨会预测新冠病毒大流行将在2025年发生。但它提前了几年。根据郭文贵先生爆料，中共为了镇压香港的反送中民主运动，释放了武汉病毒实验室中的新冠病毒，照成世界范围的大流行。
+
+信息来源： [乔](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)[·罗根经历节目](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+
+[约翰霍普金斯大学](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)[2017年SPARS大流行”研讨会](https://www.centerforhealthsecurity.org/our-work/Center-projects/completed-projects/spars-pandemic-scenario.html)
 
  
 

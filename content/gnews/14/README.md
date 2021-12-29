@@ -2,44 +2,42 @@
 ---
 
 
-## 兰德·保罗称福奇必须对每月数千例新冠病毒死亡负责
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1799841/)
+## 病毒和疫苗就是共产党要打赢中美之间的世纪大战的结果
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1799940/)
 
-#### 作者：加拿大温哥华农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-466.jpeg)Reference News
-由于中共（新冠）病毒疫苗触目惊心的毒副反应不断被暴露，近来美国公众对最高权力机构国会的议员提出了质疑，他们认为法律赋予国会议员最高权力，而拿着高薪并被寄予厚望的议员们却放任有毒疫苗在美国泛滥。
+第一个，我们在去年就告诉大家，病毒绝对没有疫苗，这是对人类的威胁。疫苗灾难才是真正的次生灾难，是人类最大的灾难。而且我们一再说，今年年底，2021年底，才是真正的灾难的开始，病毒大扩散。没有一个人说，就我们，今年我们说的真的不下万遍吧。
 
-但参议员兰德·保罗Rand Paul在对抗新冠病毒及其疫苗方面并没有失职，他因为多次在国会听证会上揭穿福奇、达扎克等在疫苗接种和资助武汉病毒研究所等的谎言而受到尊敬，同时他也多次受到黑暗势力的死亡威胁。
+我说10月到12月大爆发，而且来自于非洲和西部，我们全准了。而且我说感恩节之后，美国及世界大爆发，大家看到了吗？全美国、全世界都在感恩节是最夸张的，又是我们，不是我们蒙出来的。
 
-兰德.保罗在2011年任参议员前是一位医生，他生在一个医生世家，他的父亲罗恩·保罗是前众议员与医生，曾经三次竞选美国总统。
+这是我们的科学家和背后的爆料革命，深知这是个生化武器，和共产党内部要决策的情报，在冬奥会前让西方经济要垮下来，让西方要内乱，然后无暇顾及。就像现在习近平、王岐山、杨洁篪、王毅、王沪宁，在内部说的一定会打赢这次中美世纪大战，这是他原话啊：一定要有信心，而且一定会打赢中美的世纪大战，都是这个结果。
 
-据［福克斯新闻］28日报道，兰德·保罗近日直接了当地指出，美国总统首席医疗顾问安东尼.福奇应该对美国每月数千例新冠病毒死亡负责。
+这几天兄弟姐妹们你们一定要意识到Omicron太可怕了，而且不好的现象是Omicron现在发现吃了伊维菌素和青蒿素，有些不是100%管用。这是更坏的一个消息，原来是100%绝对管用，现在真不是100%。大家别以为得上是好事，别以为得上你能吃药，真不是了。
 
-保罗强调，之所以造成每个月数千美国人死于新冠病毒，是因为福奇不允许其他已证明有效的防疫和治疗方案，只允许使用已经被证实有问题的疫苗。
+编辑整理：海贼王M.D.LUFFY；
 
-我并不反对疫苗，我本人以前也接种疫苗。但福奇不应打击其他有效的方案，比如有一种“单克隆抗体”疗法是“最有前途的治疗方法之一”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-467.jpeg)twitter
-保罗说，研究数据显示，单克隆抗体治疗将高危患者的死亡和住院风险降低了70%，并将家庭感染几率降低了80%，但以福奇为首的卫生官僚对如此有效的疗法釆取了不可理喻的抗拒态度。
+字幕文件制作：小满；
 
-人体自然免疫也是实实在在存在的，但福奇对此只字未提，对此保罗认为，福奇是为了打击具有自主免疫力的人们的信心，从而实现他的疫苗计划。
+视频制作及上传：Cindy；
 
-小罗伯特·肯尼迪在他最近推出的畅销书《真正的安东尼•福奇》中，展示了美国医疗界沙皇福奇的可怕一面：早在艾滋病初期治疗方案的选择上，在有其他药物可选的情况下，福奇却选中了效力强劲但有毒的化疗药物叠氮胸苷(azidothymidine)。
+G-News发布：小满；
 
-知名医学杂志《SPIN》在2015年10月报道中指出，研究表明叠氮胸苷比疾病本身更糟糕。但至今叠氮胸苷仍被广泛用于艾滋病患者，而艾滋病一直未被有效控制。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-肯尼迪还揭露了福奇在六个州对黑人和西班牙裔寄养家庭的儿童使用各种有毒的艾滋病实验性药物，至少有80名儿童在实验过程中死亡。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-肯尼迪认为福奇在应对新冠病毒时授权使用同样昂贵又无效的瑞德西韦(remdesivir)是故技重演。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-总有一天福奇必须在审判台上回答：他为什么坚持不授权使用更有效、更安全、更廉价、更易得的伊维菌素和羟氯喹等药物来拯救美国人的生命？他和大制药厂及其背后的黑暗势力到底有什么关系？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-参考：
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[Rand Paul Blames Fauci For Thousands Of Monthly COVID Deaths](https://www.redvoicemedia.com/2021/12/rand-paul-blames-fauci-for-thousands-of-monthly-covid-deaths/)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[畅销书《真正的安东尼•福奇》详述福奇如何搞砸了艾滋流行病](https://gnews.org/zh-hans/1746890/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-编辑/发文：Kent
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

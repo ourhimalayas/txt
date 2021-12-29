@@ -2,53 +2,155 @@
 ---
 
 
-## 哈佛大学教授被认定收受中共国款项
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799674/)
+## Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1799792/)
 
-**据《www.newstarget.com》作者：Kevin Hughes，2021年12月25报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ae5ru-v7en8.jpg)**图片源自：newstarget**
-**哈佛大学一位教授因收受中共国款项撒谎而被认定有罪。**
+[https://gtv.org/video/id=61ca063943ccb726a08c516d](https://gtv.org/video/id=61ca063943ccb726a08c516d)
 
-哈佛大学化学和化学生物学系前系主任查尔斯-利伯被认定犯有向政府当局作虚假陈述、提交虚假报税表及未披露其在中共国银行账户的罪行。
+**郭文贵
+Miles Guo**
 
-这位62岁的老人在2020年被指控，这是美国打击中共国经济间谍活动的一部分。他因六项与武汉实验室工作相关的撒谎而被认定有罪。
+这个女人，这个Isobel Yeung和VICE和HBO之阴歹
+This woman, how evil of Isobel, VICE, and HBO
 
-他于2020年1月首次被联邦当局逮捕，并被指控就参与中共国“千人计划”而做出虚假陈述。
+我告诉你文疯而动
+let me tell you Wenfeng,
 
-中共国“千人计划”旨在吸引外国专家学者，并已被美国标记为国家安全问题。
-利伯于2011年加入中共国武汉理工大学，根据司法部（DOJ）信息，他获得了5万美元的月薪和15.8万美元的生活费。
+在新西兰这种国家
+in a country like New Zealand,
 
-梅丽莎-雷德皮尔在12月22日Brighteon.TV的“自由力量营”节目中说：“还记得《Thousand Points of light》吗？这就是它的真正目的。他们利用这些大学教授，利用世界各地的高技术人才来作恶。我们其他人，他们只是把我们蒙在鼓里，让我们自顾不暇。”
+就像德国一样，就像那个奥地利是一样的
+Germany and Austria
 
-“当我们在快乐地生活时，他们却在不被所知的情况下进行着可怕的游戏。这个人是其中的一部分。我希望你们受到警醒，他刚刚被认定有罪。他在与敌人合作。”
-“千人计划”是新世界秩序的一部分
+历史上永远是重复的
+this will always be repeated in history
 
-“自由力量营”的主持人透露，“千人计划”是一个中共国的招募计划或阴谋集团，基本上是新世界秩序的分支。
+就奥地利这个小破国家就永远培养这种独裁
+Just a small poor country like Austria has cultivated this dictatorship forever
 
-雷德皮尔说：“所以，当人们告诉你什么都没有发生时，不要相信。因为这就叫让别人负责。基本上，谁在与（安东尼）福奇博士合作？身居要职的人知道正在发生什么。”
+看这次（强制）疫苗
+Looking at this (mandatory) vaccine,
 
-根据联邦法律，利伯被迫披露他与武汉理工大学的财务关系。根据司法部的说法，利伯在他的纳税申报单上隐藏了来自武汉实验室的付款，并向联邦调查员隐瞒了真相。
+它又是一马前锋，走极端
+it is once again a striker, going to extremes
 
-陪审团审议了三个小时后，他被裁定所有六项罪名成立。
-被捕后，利伯起诉了哈佛大学，声称他只是在为大学工作。
-雷德皮尔强调：“跟着钱的走向，你会发现他在你知道的地方。不要对那些声称大学有义务支付法律费用的人士感到惊讶，因为这些人本不知羞耻。”
+新西兰这种国家
+The countries like New Zealand,
 
-“反间谍计划是在特朗普政府期间开始的，主要是识别和起诉那些从事贸易、秘密盗窃、黑客攻击和经济间谍活动的人。”
+还有像澳大利亚这种国家，像英国这种国家
+as well as Australia and the United Kingdom,
 
-“自由力量营”的主持人补充说：“我们之前已经谈到他们所窃取的专利。所有这些专利，通过大学，大学从政府那里获得资金。这是你们的税款，这种方式是他们进行邪恶工程的‘漏斗’，他们使用了我们的钱。”
+它走极端的时候
+when it goes to extremes,
 
-“这实在是太邪恶了，我什至无法想象。但这就是他们所做的事。”
+你当地的华人永远是少数的
+the local Chinese population will always be a minority
 
-她补充说：“有人正在被追究责任，特别是要将像福奇和比尔-盖茨这样给美国人民带来邪恶的人绳之以法。”
+发生印尼排华事件真的一点都不遥远呐
+and incidents like Indonesian anti-Chinese incidents would really not be far away
 
-雷德皮尔说：“一些人士实际上已经提起了诉讼，在国际刑事法院对福奇和盖茨以及所有对我们作恶的人提起了诉讼。”
+所以这个女人，还有这个采访之阴歹
+That’s why the evilness of this woman（Isobel Yeung）and her interview
 
-**原文连接**：[https://www.newstarget.com/2021-12-25-top-harvard-professor-found-guilty-of-lying-about-payments-from-china.html](https://www.newstarget.com/2021-12-25-top-harvard-professor-found-guilty-of-lying-about-payments-from-china.html)
+把华人置于全球各国的所谓的恐怖主义（势力），影响政治、改变你政治
+would have put the Chinese people overseas on the list of the so-called terrorist power to influence politics and to change politic
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+你不处理它，它就改变你政治
+It (Isobel’s interview fractionally published on VICE and HBO) will change the politics if you don’t deal with it
+
+最后, 你要看到她采访
+Finally, you have to see her interview
+
+她在那块记录着, 她根本不在乎你怎么回答
+She was taking note there and would be careless of how you answered at all
+
+她把问题问出来就赢了
+She had already achieved her goal upon asking questions
+
+如果咱没有摄像机
+If we didn’t have the recorder camera (at that time), we would not have the ability to explain ourselves,
+
+你满身是嘴你也说不清啊
+even if the body is full of mouth, but also can not explain myself
+
+如果我嘴再笨点，你全身都是嘴, 你也憋死
+If I was clumsy a little bit (during Isobel’s interview), I would be suffocated to death even though I have mouths all over my body
+
+能憋死你每句话
+Every sentence would have made you suffocate to death
+
+滕彪说我乱伦我侄媳妇
+Teng Biao defamed me saying that I was incest with my niece
+
+结果变成了我说滕彪是乱伦
+As result, he said that I criticized him the incest
+
+你想有多可怕！
+Think about it, how terrible it is!
+
+GTV，她说我们是骗子
+About GTV, She (Isobel) said that we are scammers
+
+那很简单，谁被骗了？
+That’s so simple, who was deceived?
+
+这种垃圾话她能给你弄出去
+She could push such trash words out
+
+因为所有人看（时）没有人细琢磨，哎，对对对，他是骗子
+because no one would ponder when watching and would agree that I’m a liar
+
+然后最后说你觉得他怎么样？
+Then, in the end, saying what do you think of him (Miles Guo)?
+
+他会把中国人带入地狱
+He would take the Chinese people to hell
+
+我咋把中国人带入地狱？
+How do I bring the Chinese people into hell?
+
+我爆料我们四五年来，你有没有想过
+Our whistleblower movement has been going on for 4 or 5 years, have you thought about that?
+
+我们把（任何）一个中国人带入地狱了吗？
+Have we ever brought any Chinese person to hell?
+
+怎么能（说我们）把中国人带入地狱？
+How can she say that we are bringing Chinese people into hell?
+
+她让中国人恨我们
+She makes the Chinese people hate us
+
+你看到没有？
+Have you realized that?
+
+不但让美国、西方世界恨爆料革命
+Not only she has made the United States and the Western world hate our whistleblower movement,
+
+她让螃蟹的嘴说出来
+but also made Pangxie expressed
+
+中国人要恨这个爆料革命、新中国联邦
+Chinese people need to have hatred on our whistleblower movement and the New Federal State of China
+
+这个之阴歹跟当年印尼排华一模一样
+This evilness is exactly the same as the Anti-Chinese incidents in Indonesia back then
+
+* * *
+
+Date: 12/25/2021
+原视频标题: Isobel的歹毒是让爆料革命被整个世界所仇视 （上）
+The Viciousness of Isobel is to Let The Whole World Having Hatred on The Whistleblower Movement
+原视频日期：2021/12/24
+原视频链接: [https://gettr.com/post/pkm5lieabf](https://gettr.com/post/pkm5lieabf)
+任务编号：KC373（3335）
+视频时间段 : 0:00-02:08
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 -银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
