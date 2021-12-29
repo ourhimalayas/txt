@@ -2,28 +2,36 @@
 ---
 
 
-## 西安民众快断粮，怒批中共当局非人性防疫措施
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1800900/)
+## 不满严格的防疫措施，德国多地持续示威抗议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1800978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s1.jpg)图片来源：德国之声
-据德国之声中文网12月29日报道，中共国陕西省西安市27日升级防疫措施，禁止所有居民出门。有网民在微博抱怨生活物资缺乏，几乎要断粮。当局已经连夜配送肉蛋奶等生活物资，但仍未止息民怨。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-中共的封锁隔离是真的把家变成监狱，门上贴封条算温和的，甚至会直接把门从外面钉上，哪怕居民饿死、病死在家里都不能出门，政府负责上门收尸。就是这样没有人性的黑帮组织，统治了中国七十年，造成了几亿人非正常死亡。这一次中共全球释放病毒，中共国人民又一次成为最大的受害者。在中共的强权之下，中共国一半以上的人口已经接种了毒疫苗。
-
-据新中国联邦郭文贵先生爆料，此次西安封城是疫苗导致的灾难。强行施打的疫苗导致了变异病毒的出现，并不可控制地迅速传播。病毒是中共制造的生化武器，疫苗是比病毒更高级的生化武器，且变异性极强。西安的惨剧只是疫苗副作用的开始，之后不可逆转的疫苗灾难必定会在全球各地大面积爆发。
-
-新闻参考链接：[https://www.dw.com/zh/全球疫情西安民众称快断粮-欧洲力抗奥密克戎/a-60282964?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964?maca=chi-rss-chi-all-1127-rdf)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/德国示威.jpg)图片来源：DW
 
 
-编辑：【英国伦敦喜庄园编辑部】
+#### 整理/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+根据德国之声中文网12月28日报道，本周一，**德国又有成千上万人上街示威，以抗议当局颁布严格的新冠防疫规定。示威者们拒绝接受政府对个人和职业生活施加任何限制。**示威抗议活动在德东地区尤其活跃。
+
+据警方通报，在梅－前州（ Mecklenburg-Vorpommern ），多个城市出现抗议行动，参加者约1.5万人，其中，罗斯托克最多时有约 6500人参加；什未林（ Schwerin ） 2700 ，在新勃兰登堡（ Neubrandenburg ）约2400 人。
+
+**在勃兰登堡州南部，有16个地方发生抗议活动，**参加者总计约 9000人， 其中，仅科特布斯（ Cottbus ）就达 3000 人。在萨克森-安哈尔特州（ Sachsen-Anhalt ）的马格德堡（ Magdeburg ），约有5000 人在市中心游行，**表达对联邦政府计划出台接种新冠疫苗规定的不满。**在图林根州（ Thüringen）多地也方也再度出现示威抗议活动。
+
+**在德西地区，也有多个州爆发示威活动。**根据警方提供的信息，在萨尔州（Saarland）首府萨尔布吕肯（ Saarbrücken ）示威者约达 3000 ；在黑森州（Hessen）的富尔达市（ Fulda），人数达 1000人 。
+
+另外，示威行动也发生在巴登-符腾堡州（ Baden-Württemberg ）以及黑森州的其它城市。在下萨克森州（ Niedersachsen ）多地，上千人走上街头，**布伦瑞克（ Braunschweig ）和沃尔夫斯堡（ Wolfsburg ）两市的参加人数最多。**在莱茵兰-普法尔茨州（ Rheinland-Pfalz ），人们在多地聚集，参加所谓的“周一散步”。
+
+新闻来源： [德国多个地区又发生反防疫措施示威抗议 | 德国之声 来自德国 介绍德国 | DW | 28.12.2021](https://www.dw.com/zh/%E5%BE%B7%E5%9B%BD%E5%A4%9A%E4%B8%AA%E5%9C%B0%E5%8C%BA%E5%8F%88%E5%8F%91%E7%94%9F%E5%8F%8D%E9%98%B2%E7%96%AB%E6%8E%AA%E6%96%BD%E7%A4%BA%E5%A8%81%E6%8A%97%E8%AE%AE/a-60275275)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

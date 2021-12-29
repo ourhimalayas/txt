@@ -2,31 +2,20 @@
 ---
 
 
-## 有声|尼加拉瓜将台湾的宗教馈赠移交给中共国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1800922/)
+## 窥探：日本再创新高的国防预算
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1800979/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-尼加拉瓜《新闻报》于当地时间12月26日报道，尼国总统奥蒂嘉下令，没收台湾政府捐赠给天主教教会的外馆资产，并移交给中共国。对此，台湾外交部表示，中共无权干涉台湾涉外事务，更无权继承台湾国有财产。
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-2-1.png)[*图片来源*](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO0991403031082021000000-1.jpg?ixlib=js-2.3.2&amp;w=680&amp;h=452&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=100&amp;fit=crop&amp;bg=FFFFFF&amp;s=f9e2aad9e37011ee1013822cd8a884d3)
+日本国防部2022年预算比上年增长1.1%，达到5.4万亿日元（包括美军重组费用），预算连续10年增长。随着中共国军费开支的增加以及在冲绳和台湾周边频繁的军事挑衅，日本正在做准备已应对这一威胁。除了用于开发下一代战斗机的 858 亿日元以及用于相关研究在内的 1001 亿日元外，研发预算显著增加，达到2911 亿日元，比去年增长 37.6%。
 
-事发始于尼国10日片面终止与台外交关系，并违反国际惯例，要求台驻尼人员23日前，全数撤离尼国。为尽善处理境外国有财产，台湾旋即将位于首都马那瓜的外交馆处，捐给天主教马那瓜总教区作为公益用途。双方于22日完成签约，并经当地律师公证，教会承诺将妥善保护，及运用台湾驻尼国大使馆馆舍。
+主要研究项目开支包括65亿日元用于研究未来的轨道炮，84亿日元用于秘密技术的早期商业化应用，72亿日元用于验证击落无人机的高功率微波（HPM）照射技术，以及40亿日元用于高超音速制导导弹的高速飞行瞄准器。预算还包括21.6亿日元用于强化国防工业基础建设。
 
-台湾外交部呼吁，面对奥蒂嘉独裁政权，与中共连手打压民主台湾及天主教教会，国际必须共同谴责尼国政府，及中共的恶劣行径。并吁请各界协助尼国天主教教会，向当地政府争取其应有权利，将台湾前大使馆馆舍产权，依法移转登记予尼国天主教教会所有。
+信息来源：[**次世代戦闘機開発に858億円、10年連続で増加する防衛省22年度予算案の中身**](https://news.yahoo.co.jp/articles/0460ad722b10c9b13534266d67c3a7f9255bf739)
 
-文字版原文：[尼加拉瓜将台湾的宗教馈赠移交给中共国](https://gnews.org/zh-hans/1798822/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

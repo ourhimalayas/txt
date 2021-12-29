@@ -2,43 +2,20 @@
 ---
 
 
-## 财务不独立人格不独立视野不宽阔不经历生死何以谈哲学
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1801463/)
+## 欧洲全力抵抗奥密克戎变种（中共）病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801529/)
 
-**郭文贵先生：**今天特别要跟你们的学习探讨，七哥走过的路，我都花过很多时间很多钱走这个路，探讨什么是哲学。最后我发现人间的哲学家基本上都是被知识、领域和政客和金钱垄断的一帮精神奴隶。财务不独立，人格不独立，视野不宽阔，腿没有迈开过，没有经历过生死，没有经历过生活中的严酷的考验。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1649.png)[图片来源](https://www.bbc.com/zhongwen/simp/world-59709231)
+传染性极强的奥密克戎变种病毒也导致欧洲国家新冠疫情再升温。包括英国、法国、义大利、葡萄牙等国，单日新增确诊数都创下新高，瑞士和荷兰都指出，奥密克戎成为境内主流的病毒株。世卫组织周二（28日）警告说，尽管早期研究表明奥密克戎（Omicron）变种病毒症状较轻，但它仍可能导致医护负荷不堪而压垮医疗系统，目前德国已重新实行严格的防疫措施，以抵挡奥密克戎，除了将私人聚会限制在10名接种过疫苗的人外，当局也关闭夜店，并要求体育比赛需闭门进行。尽管初步研究结果表明奥密克戎引起的疾病较为温和，世卫组织仍警告不要太放松。世卫高级应急官员凯瑟琳·斯莫伍德（Catherine Smallwood）说：“奥密克戎病例快速增长，即使症状较轻，仍会导致大量的人住院，特别是未接种疫苗的群体，并会破坏卫生系统和其他关键服务。”
 
-刚才Panda问的问题，就是我从小到大的这种考验和被两个twins访问的这种经历，你没有资格谈哲学。教室里，温暖的环境里，所有的大学校园里不会出现哲学家。哲学就是行为的结果的总结，你没有行为你怎么可以总结呢？
+为了应对这波疫情，欧洲国家恢复了对经济和社会有巨大冲击的防疫措施。芬兰周二（28日）表示，它将禁止未接种疫苗的外国旅客入境，只有居民、重要工作人员或外交官可以豁免。瑞典则从周二（28日）开始要求对入境人士进行新冠检测，而丹麦做为目前世界上人均感染率最高的国家，也已经采取同样措施。据统计，在最繁忙的新年圣诞假期间，自上周五（24日）以来，全球约有11,500个航班被取消，还有数万个航班被延误。
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](https://gnews.org/zh-hans/1793669/)
+信息来源： [全球疫情：西安民众称“快断粮” 欧洲力抗奥密克戎](https://www.dw.com/zh/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E8%A5%BF%E5%AE%89%E6%B0%91%E4%BC%97%E7%A7%B0%E5%BF%AB%E6%96%AD%E7%B2%AE-%E6%AC%A7%E6%B4%B2%E5%8A%9B%E6%8A%97%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60282964)
 
-编辑整理：喜马拉雅的肉夹馍；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-后台技术支持：文肺猫
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
