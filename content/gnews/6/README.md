@@ -2,45 +2,35 @@
 ---
 
 
-## 七哥庆幸在经历无数事情和魔打过无数次交道后找到佛道
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1801331/)
+## 12/29每日播报｜6000名纽约警员在新年前夕生病请假
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1801332/)
 
-**郭文贵先生：**七哥非常高兴的事情，从小让我经历了无限的痛苦，和魔无数次打交道，让我找到了佛道。否则我一定是魔，我对李友来讲，我绝对是他的魔，是吧。李友的万亿王国，让我给消失得寸草不生，全家都进了监狱，而且他的噩梦还没开始呢！他女儿，是吧，李荣，还有他的弟弟，我们都在盯着他呢！是吧！
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61cc2641ecc0b216cbb0eecb)**
 
-我让他的一生中，我就不希望李友早点死，这是你七哥魔的一面，我不希望早点死。因为他死了，他看不见他后人的痛苦。而且我还不会……我都在法律范围内，我让李友多活几天，我让他看到，他李家当时把我们的同事，包括郑州裕达国贸是昨天晚上平安夜，国内的平安夜，昨天晚上，所有裕达正式交接。
+**2021-12-29**
 
-你看共产党找的，把裕达国贸交给万达交给李友，就在昨天晚上，就是平安夜。是吧，我要让他的后人永远感受到，让他感受到痛苦，失去他最爱，失去他最喜欢的一切。那对他，我绝对是魔。
+《华盛顿观察家报》12月28日报道，据最新一份报告显示，截至周二，纽约警察局有6000名纽警员请病假，在生病的警员中，大约有3000人出现了类似流感的症状，而1300人是在中共病毒检测呈阳性后生病。
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（一）](https://gnews.org/zh-hans/1793669/)
+据警方消息人士称，在纽约警察局的3万6千名巡逻警中，这6000名因病请假的警员占巡逻警力的17%。一名警方消息人士告诉媒体，纽约市巡逻队受到的打击最大，现在每个巡逻警员都不得不三班巡逻，以确保良好的覆盖范围。
 
-编辑整理：喜马拉雅的肉夹馍；
+数据显示，这些请假警员的数字较上周二有所上升，当时纽约警察局有2712名巡逻警员请病假，占该市警力的7.8%，这次统计较上周一增加了13%。
 
-字幕文件制作：小满；
+据《纽约邮报》报道，纽约市警察局每天约有1400至1500名警员请病假，占总警力的3%至4%。由于今年请病假的警员人数增加，纽约警察局发出一份备忘录，通知警方，从新年前夕到新年第一天，所有穿制服的警员取消常规假期。
 
-视频制作及上传：Cindy；
+纽约市市长白思豪上周宣布，纽约在时代广场举行的新年前夜庆祝活动将被缩减，1万5千人被允许进入观看区，并会采取额外措施阻止中共病毒传播。
 
-后台技术支持：文肺猫
+由于“奥米炕”病毒变种成为主要菌株，美国正在经历中共病毒病例的飙升，报告生病的警员人数也在激增。
 
-G-News发布：小满；
+根据美国疾控中心CDC的数据，截至目前，美国报告了5200多万例中共病毒病例，在过去7天里有超过168万例新增病例，总共超过81万6千人死于中共病毒。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+秘翻新闻主编  冰糖葫芦喵编译报道
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布:星星
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
