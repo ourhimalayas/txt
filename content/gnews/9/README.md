@@ -2,33 +2,35 @@
 ---
 
 
-## 欧盟代表发布年终回顾 点名中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1801785/)
+## 日本将对中共军方的留学生发出国际通缉令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801841/)
 
-**撰稿：日本东京方舟农场 老孙**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月28日，日本国家安全机构——日本警视厅公安部向一名中共国留学生发布了逮捕令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-37.jpg)
+据日媒报道，该留学生名叫王建彬，其曾于2016年在中共军方的指使教唆下建立虚假公司，并试图购买仅贩售给日本企业的网络杀毒软件。日本公安部指出，这类非法购买很可能是为了找到这种杀毒软件的漏洞，从而对日本进行网络攻击。另外，王建彬与其他两人还涉嫌攻击了日本宇宙航空研究开发机构JAXA。
 
-据德国之声中文网12月27日报道，欧盟外交与安全政策高级代表博雷利(Josep Borrell)周一发表年度回顾长文，点名中共为“合作伙伴、竞争者和系统性的对手”。
+日本公安部透露，目前，这三名嫌疑人在被盘查后已经离开了日本，但日本公安部将计划通过国际刑警组织对他们发布全球通缉令。
 
-博雷利在文中表示，欧盟将在中共问题上保持团结，把中共国视为合作伙伴、竞争者和系统性的对手。他说：“2021年，中（共）国国内人权状况的恶化，其在区域内的行为、制裁欧洲议会议员和其他欧盟官方机构的决定，以及近期对立陶宛的胁迫，都造成了损害。”
+参考链接:
+1) . [20211228日本FNN](https://www.gettr.com/post/pktjuf2c9e)
+2) . [JAXAなどに大規模なサイバー攻撃 中国人民解放軍の指示か](https://www3.nhk.or.jp/news/html/20210420/k10012984761000.html)
+3) . [东京警方批捕试图非法购买安防软件的中国男子](https://china.kyodonews.net/news/2021/12/88057277335a.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/59247837_303.jpg)博雷利在年度回顾文提到，已发展国家应该关注疫情所造成的发展中国家人民饥饿和贫困的现象。（图片来自德国之声中文网）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-他表示，年底欧盟就中共和印太问题举行了和美国的密切磋商，并同意启动欧美关于安全和国防的专门对话。他还提到，6月访问雅加达巩固了欧盟与东盟的接触，欧盟也与中亚进行了更密切的接触，并开始改善与海湾国家的合作。
+总编：飞虹
+编辑：文特
+校正/发稿：Fei797
 
-博雷利把2021年定义为欧盟转型的一年。他说，这一年的地缘政治变化一再挑战欧盟，来年必须更坚定捍卫其价值观。
-
-*参考链接：*
-
-[回顾2021挑战 欧盟代表点名中国](https://www.dw.com/zh/%E5%9B%9E%E9%A1%BE2021%E6%8C%91%E6%88%98-%E6%AC%A7%E7%9B%9F%E4%BB%A3%E8%A1%A8%E7%82%B9%E5%90%8D%E4%B8%AD%E5%9B%BD/a-60270635)
-
-* * *
-
-*素材采编：老孙*
-
-*编辑： 文顺*
-
-*发布：Ranting*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,36 @@
 ---
 
 
-## 日本将对中共军方的留学生发出国际通缉令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801841/)
+## 据报道Steam已在中共国被禁止
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1801916/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月28日，日本国家安全机构——日本警视厅公安部向一名中共国留学生发布了逮捕令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-37.jpg)
-据日媒报道，该留学生名叫王建彬，其曾于2016年在中共军方的指使教唆下建立虚假公司，并试图购买仅贩售给日本企业的网络杀毒软件。日本公安部指出，这类非法购买很可能是为了找到这种杀毒软件的漏洞，从而对日本进行网络攻击。另外，王建彬与其他两人还涉嫌攻击了日本宇宙航空研究开发机构JAXA。
+据《The Gamer》记者：STACEY HENLEY，2021年12月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1660.png)图片源自thegamer.com
+中共国玩家报告Steam已被列入黑名单。
 
-日本公安部透露，目前，这三名嫌疑人在被盘查后已经离开了日本，但日本公安部将计划通过国际刑警组织对他们发布全球通缉令。
+一些相互矛盾的报告声称这是DNS攻击的结果，而不是故意禁止。
 
-参考链接:
-1) . [20211228日本FNN](https://www.gettr.com/post/pktjuf2c9e)
-2) . [JAXAなどに大規模なサイバー攻撃 中国人民解放軍の指示か](https://www3.nhk.or.jp/news/html/20210420/k10012984761000.html)
-3) . [东京警方批捕试图非法购买安防软件的中国男子](https://china.kyodonews.net/news/2021/12/88057277335a.html)
+中共国玩家报告Steam网店和所有Steam社区页面已被列入黑名单，这意味着在该国无法再访问它们。Steam中国于2月推出，但出售游戏的数量偏少。该站点仍在正常运行，但“Steam全球”站点已于圣诞节当天在该国下线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+此举令人意外，但符合中国政府过去12个月在电子游戏方面的行动模式。Fortnite 于今年11月15日在中国关闭。中共国关于游戏行业的限制实施两个月后，仍没有一款游戏获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1661.png)图片源自thegamer.com
+该站点被列入黑名单的事实意味着Steam不仅仅是暂时关闭，而是被故意禁止。用户已在Twitter、ResetEra和Reddit上确认了这一点。
 
-总编：飞虹
-编辑：文特
-校正/发稿：Fei797
+目前尚不清楚这将如何影响中国游戏的发展。同时，还不清楚这对Devotion意味着什么。一款恐怖游戏因贬低中共国党魁习近平而被从Steam下架。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+很明显，这可能是中国迄今为止对游戏行业的最大限制。
+
+文章来源：**[https://www.thegamer.com/steam-banned-china-christmas-day/](https://www.thegamer.com/steam-banned-china-christmas-day/)**
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

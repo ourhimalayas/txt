@@ -2,21 +2,32 @@
 ---
 
 
-## 文贵大直播 12/29 北京冬奥会：皇帝开心三分钟，人间黑暗三百年
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1801815/)
+## 西班牙电信将替换华为5G设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801853/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-14.jpg)图片来源 ： GTV
-12月29日上午，爆料革命发起人、新中国联邦创始人郭文贵先生在美国纽约准时开始的大直播中，首谈北京冬奥会的邪恶实质。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月27日，欧洲第三大电信运营商西班牙电信的一名消息人士透露，该公司已经向瑞典制造商爱立信公司购买了5G网络设备，用以替换之前铺设在西班牙的华为公司相关产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-51.jpg)
+据了解，更换下一代移动网络设备是西班牙电信在2019年宣布的“供应商多元化”战略的一部分。而作为西班牙最大的电信运营商，西班牙电信此前也曾铺设了部分华为5G网络设备。但据美国政府的消息指出，华为的网络设备含有漏洞和后门，是中共非法获取信息和收集情报的间谍工具。其后，西班牙电信遂决定在新一代移动通信网络中大幅减少华为网络设备的份额，并开始寻求更加安全、可靠的替代供应商。
 
-在公众面前，世人所有看到的北京冬奥会各种景象，全是假，无耻、无畏超出普通百姓想象的假、丑、恶。郭先生从俄罗斯、法国、德国、美国与中共在北京冬奥会上的各种博弈，充满一腔愤怒地再三质问：北京冬奥给中国百姓究竟带来什么？！
+分析人士表示，鉴于华为的5G设备与爱立信等欧美公司并不兼容，如果西班牙电信采用了爱立信的5G设备，可以预见华为将彻底失去在西班牙的市场——这也是继英国、法国之后，华为在欧洲市场上被进一步缩减份额。
 
-文贵先生历数北京冬奥会背后法、德等国的利益博弈，俄罗斯的地缘政治核心诉求所在，并爆出非常准确的内幕交易项目、数额，触目惊心。
+参考链接:[Telefonica buys Ericsson 5G equipment to replace some Huawei gear](https://www.reuters.com/markets/deals/telefonica-buys-ericsson-5g-equipment-replace-some-huawei-gear-2021-12-27/)
 
-可悲的中国百姓对真相一无所知，不知道中共付出全广东省一年不吃不喝的GDP：12万亿人民币，约1.2万亿美元，换取的只是中共所谓万邦来仪的繁荣假相。郭先生正告世界，中共的北京冬奥会，玩弄的是亿万中国百姓的血汗钱，而唯一收获，无非习太阳的皇帝开心三分钟！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-【来源链接】https://gtv.org/broadcast/watch/61cc5dbdecc0b216cbb1147e
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
