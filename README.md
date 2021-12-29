@@ -15,110 +15,110 @@
 
 ---
 
-### [哲学是对人类的定义，是开启人类和探知未知世界的钥匙](/content/gnews/1/README.md)
+### [没有人能规划人生,只有跟着感觉把一切变为工具而非目标](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12月25号是齐奥塞斯库被枪毙和王光美拒绝毛泽东的日子](/content/gnews/2/README.md)
+### [凡规划好人生的职业军人教授科学家律师都是别人的工具](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [知重点懂取舍爱学习接触信仰人士，父母精神财产排第一](/content/gnews/3/README.md)
+### [财务不独立人格不独立视野不宽阔不经历生死何以谈哲学](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共官二代在海外留学善者不超过一半都不希望中共倒台](/content/gnews/4/README.md)
+### [哲学从来没有一个标准是统一的,是探索未来的平台和钥匙](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/5/README.md)
+### [哲学是对人类的定义，是开启人类和探知未知世界的钥匙](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12月25号是齐奥塞斯库被枪毙和王光美拒绝毛泽东的日子](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [知重点懂取舍爱学习接触信仰人士，父母精神财产排第一](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共官二代在海外留学善者不超过一半都不希望中共倒台](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：加强围堵防止霸权 保护台湾和南海的自由](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/6/README.md)
+### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥庆幸在经历无数事情和魔打过无数次交道后找到佛道](/content/gnews/7/README.md)
+### [七哥庆幸在经历无数事情和魔打过无数次交道后找到佛道](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/8/README.md)
+### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/12/README.md)
  ` 秘密翻译组金融团队`
 
-### [每个人心中都兼具魔和佛的两面,要找到佛的一面要有信仰](/content/gnews/9/README.md)
+### [每个人心中都兼具魔和佛的两面,要找到佛的一面要有信仰](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [杰森.米勒：言论自由权是不可剥夺的](/content/gnews/10/README.md)
+### [杰森.米勒：言论自由权是不可剥夺的](/content/gnews/14/README.md)
  ` MG 澳喜农场多语组`
 
-### [佛和魔之间最重要的问题是人对事情的认知对善恶的判断](/content/gnews/11/README.md)
+### [佛和魔之间最重要的问题是人对事情的认知对善恶的判断](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从未见一个有钱有权有名的二代在钱名权光环下活得快乐](/content/gnews/12/README.md)
+### [从未见一个有钱有权有名的二代在钱名权光环下活得快乐](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/13/README.md)
+### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [被包装的爱情和感情是人类的悲哀,你就活在包装的灾难中](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共首次发布出口管制的白皮书](/content/gnews/15/README.md)
+### [中共首次发布出口管制的白皮书](/content/gnews/18/README.md)
  ` 儒为`
 
-### [如何让你的爱既时尚还历久弥坚兼具有时尚有价值有古董](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/17/README.md)
+### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [川普认为中共必须为病毒事件做出赔偿](/content/gnews/18/README.md)
+### [川普认为中共必须为病毒事件做出赔偿](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2020年3月已經找到治療新冠病毒方案](/content/gnews/19/README.md)
+### [2020年3月已經找到治療新冠病毒方案](/content/gnews/21/README.md)
  ` GTV新聞訪談`
 
-### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/20/README.md)
+### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [26岁男子接种疫苗后，在婚礼前夕死亡](/content/gnews/21/README.md)
+### [26岁男子接种疫苗后，在婚礼前夕死亡](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国南加州护士公开谈论对中共病毒疫苗的观察和担忧](/content/gnews/22/README.md)
+### [美国南加州护士公开谈论对中共病毒疫苗的观察和担忧](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [警方怒斥市长：你是个耻辱……芝加哥已经受够了](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西安考研乱象频生，部分考生投考无门](/content/gnews/24/README.md)
+### [西安考研乱象频生，部分考生投考无门](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [佛州将对该州在中共公司的投资情况进行调查](/content/gnews/25/README.md)
+### [佛州将对该州在中共公司的投资情况进行调查](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [福奇必须对在世界上造成大规模死亡“负责”](/content/gnews/26/README.md)
+### [福奇必须对在世界上造成大规模死亡“负责”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [研究表明：美国至少有 40 万人死于新冠病毒“疫苗”](/content/gnews/27/README.md)
+### [研究表明：美国至少有 40 万人死于新冠病毒“疫苗”](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/28/README.md)
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/29/README.md)
+### [NFL明星罗杰斯：如果科学不能被质疑，那就是宣传](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/30/README.md)
+### [【中日财经爆】日本拟对泄露机密给中共国的民企进行处罚](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/31/README.md)
+### [若中共武力犯台，7成台湾人愿为保卫台湾而战](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [窥探：日本再创新高的国防预算](/content/gnews/32/README.md)
+### [窥探：日本再创新高的国防预算](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/33/README.md)
+### [不满严格的防疫措施，德国多地持续示威抗议](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/34/README.md)
+### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [兰德·保罗指责福奇应对每月数千例 COVID 死亡负责](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [美国对数字货币的监管政策即将出炉](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
