@@ -2,22 +2,20 @@
 ---
 
 
-## 物资短缺 大量西安民众深夜求救
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801670/)
+## 中共向普林斯顿大学迂回资助数百万美元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1801671/)
 
-作者：纽约香草山教育部-Noemi
+作者：纽约香草山 信息部 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月27日，据盖特知情人士爆料称，大量西安民众当晚涌入中共媒体的微博账号下发出求救——他们纷纷留言表示，目前家中物资已极度短缺，但当地政府的供应却远不到位。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-29-下午9.20.09.png)
-据当地民众反映，自西安因疫情封城之后，该市不但菜价极速飞升，而且相关的配送物流也变得毫无保障。还有知情者提及，即使一些外地省市已经对西安进行了支援，但这些物资却根本没有到达民众的手中。就西安市民而言，仅仅是全家人的一日三餐就已经成为难题。
+12月22日，据当地媒体报道称，美国联邦记录显示，普林斯顿大学从与中共政府相关的大学和机构处获得了数百万美元的捐款。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-29-下午9.15.39.png)
+报道提及，中共政府曾于2018年通过北京大学深圳分校与普林斯顿大学签订了一份为期五年、价值460万美元的合同，用以建立专注于药物研发和计算机科学领域的研究设施。而今年早些时候，普林斯顿大学还收到了来自中共政府两笔总计130万美元的匿名捐款，用于资助该校计算机科学系的教授。另外，自2012年以来，普林斯顿大学当代中国研究中心从中美交流基金会创始人董建华那里获得了至少100万美元的捐款。
 
-另有相关人员表示，西安此前还传出将全面戒严的消息——虽然此类消息目前被中共当地政府进行了所谓的“辟谣”，但据盖特来源信息和知情者透露，西安市内而今的真实情况已与全面戒严相差无几，更有民众当街被中共警方押解。
+对此，美国相关人士表示，这些机构和个人都与中共政府的情报收集工作息息相关。该人士提到，近年来，中共政府越来越多地在学术环境中窃取美国的研究，并将其用于自身邪恶的议题中。同时，美国高校与中共政府在各个敏感领域的合作关系将给美国国家安全带来严峻的风险。
 
-截止当前，西安市政府仍没有回应如何解决当地隔离人员家中物资短缺的问题，且当地民众的微博留言已被中共媒体删除。
+该人士还警告称，中共政府正在利用与美国的研究关系来对推进自己的大外宣并进行间谍活动，更为重要的是，中共还通过此种资金援助胁迫知情者对其罪行和暴行保持沉默。
 
-参考链接：
-1）[https://www.gettr.com/post/pkt1qec2ef](https://www.gettr.com/post/pkt1qec2ef)
-2）[https://www.gettr.com/post/pktnfr783c](https://www.gettr.com/post/pktnfr783c)
+参考链接：[Princeton Took Millions From CCP-Linked School, Think Tank Head](https://freebeacon.com/campus/princeton-took-millions-from-ccp-linked-school-think-tank-head/)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 

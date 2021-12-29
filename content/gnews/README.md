@@ -15,80 +15,80 @@
 
 ---
 
-### [雅典娜疫情更新（澳洲今日新增病例向2万逼近）](/content/gnews/1/README.md)
+### [【#G时新闻】中大移走民主女神像 岭大拆除六四浮雕](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [雅典娜疫情更新（澳洲今日新增病例向2万逼近）](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [高等学府发布低能调查报告](/content/gnews/2/README.md)
+### [高等学府发布低能调查报告](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新闻述评：习近平民主生活会的第二个胡耀邦是谁](/content/gnews/3/README.md)
+### [新闻述评：习近平民主生活会的第二个胡耀邦是谁](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被消失的传媒](/content/gnews/4/README.md)
+### [被消失的传媒](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯常驻欧盟代表采访录(三）普京慕尼黑会议的演讲](/content/gnews/5/README.md)
+### [俄罗斯常驻欧盟代表采访录(三）普京慕尼黑会议的演讲](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [中共向普林斯顿大学迂回资助数百万美元](/content/gnews/6/README.md)
+### [中共向普林斯顿大学迂回资助数百万美元](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [物资短缺 大量西安民众深夜求救](/content/gnews/7/README.md)
+### [物资短缺 大量西安民众深夜求救](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/8/README.md)
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [停留在形式上的爱](/content/gnews/9/README.md)
+### [停留在形式上的爱](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“游街示众”中共惊现文革式批斗](/content/gnews/10/README.md)
+### [“游街示众”中共惊现文革式批斗](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/11/README.md)
+### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/24郭文贵直播：中共国安委成立“新型冠状病毒控制小组”（粤语配音）](/content/gnews/12/README.md)
+### [12/24郭文贵直播：中共国安委成立“新型冠状病毒控制小组”（粤语配音）](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/22郭文贵直播：中共谈判专家轮番上阵以国家名义威胁彭帅（粤语配音）](/content/gnews/13/README.md)
+### [12/22郭文贵直播：中共谈判专家轮番上阵以国家名义威胁彭帅（粤语配音）](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/22郭文贵直播： VICE放出被剪辑的视频让爆料革命和海外华人替共产党背黑锅（粤语配音）](/content/gnews/14/README.md)
+### [12/22郭文贵直播： VICE放出被剪辑的视频让爆料革命和海外华人替共产党背黑锅（粤语配音）](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/19郭文贵直播：彭丽媛一定会在冬奥会上亮相宣告她是中国第二号人物（粤语配音）](/content/gnews/15/README.md)
+### [12/19郭文贵直播：彭丽媛一定会在冬奥会上亮相宣告她是中国第二号人物（粤语配音）](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/19郭文贵直播：习妄想利用冬奥会证明自己的治理能力和中共体制优越性（粤语配音）](/content/gnews/16/README.md)
+### [12/19郭文贵直播：习妄想利用冬奥会证明自己的治理能力和中共体制优越性（粤语配音）](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/19郭文贵直播：冬奥会是中共向世界展示“治理”能力的舞台（粤语配音）](/content/gnews/17/README.md)
+### [12/19郭文贵直播：冬奥会是中共向世界展示“治理”能力的舞台（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/19郭文贵直播：得过中共病毒的人未来10年淋巴系统免疫力系统50%会出问题（粤语配音）](/content/gnews/18/README.md)
+### [12/19郭文贵直播：得过中共病毒的人未来10年淋巴系统免疫力系统50%会出问题（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共防疫万象 “化了灰才能回来”](/content/gnews/19/README.md)
+### [中共防疫万象 “化了灰才能回来”](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [唯有消灭中国共产党，小粉红们才能得到救赎](/content/gnews/20/README.md)
+### [唯有消灭中国共产党，小粉红们才能得到救赎](/content/gnews/21/README.md)
  ` 银河勇气之星`
 
-### [疫情急速恶化 美国放松隔离规定惹议](/content/gnews/21/README.md)
+### [疫情急速恶化 美国放松隔离规定惹议](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲全力抵抗奥密克戎变种（中共）病毒](/content/gnews/22/README.md)
+### [欧洲全力抵抗奥密克戎变种（中共）病毒](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中南坑的共产渔夫](/content/gnews/23/README.md)
+### [中南坑的共产渔夫](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [西安民众称“快断粮”](/content/gnews/24/README.md)
+### [西安民众称“快断粮”](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [飞不出裕达飞不出盘古就不会有大亨级七哥和新中国联邦](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [12月28日草根小哥联盟答疑G系列相关文字版](/content/gnews/26/README.md)
  ` 全球G系列咨服群`

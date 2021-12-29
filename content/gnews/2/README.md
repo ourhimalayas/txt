@@ -2,22 +2,64 @@
 ---
 
 
-## 高等学府发布低能调查报告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1801713/)
+## 雅典娜疫情更新（澳洲今日新增病例向2万逼近）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1801715/)
 
-作者：东京樱花团丨阿恩
-![](https://lh5.googleusercontent.com/LbZZZDeWZJZSYzrDm_cwKFm6j_w-OKb0t79R8t-3pmiIcog69DuLJUqRTGl0LI6lksW7Oy-Rf1ZT29IW00z4fcoBNGCC7QY9WEuQgW4ivorqJdij-g4t4D0ppWDysLptKnQKdbzz)
-[*图片来源*](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/717749/%E6%B8%AF%E5%A4%A7%E8%AA%BF%E6%9F%A5%E7%99%BC%E7%8F%BE%E5%AE%B6%E5%BA%AD%E6%9C%88%E5%85%A5%E8%B6%85%E9%81%8E4%E8%90%AC%E5%85%83-%E6%87%89%E5%B0%8D-%E7%96%AB%E5%A2%83-%E8%83%BD%E5%8A%9B%E8%BC%83%E9%AB%98)
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-9.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2021年 12月29日）
 
-香港大学医学院公共卫生学院「赛马会智家乐计划」团队，进行「疫情下应对困境的能力、家庭幸福与创新家庭服务关系」为主题调查。结果发现，较年长、教育程度较高、家庭收入较高(即家庭月入超过4万元)的家庭，应对困境的能力属高水平。计划研究员、港大医学院护理学院副教授王文炳估计，年纪较大的人士面对过的困境较多，在今次疫情下有经验知道如何应对；研究员之一的港大医学院教授林大庆指，应多为家庭应对困境能力较低的群组提供情绪管理和压力管理网上家庭服务，尤其针对年轻组别受访者及低收入家庭人士。
+**一，全球疫情基本数据**
+感染总数：2.82859605亿（日新增93.0469万，14天增幅+51%）
+死亡总数：541.3189万（日新增 6,408人，14天增幅–10%）
+每万人感染人数：437.5615人（除中国外）
 
-港大是国际排名前十的高等学府，曾经精英辈出，不幸在中共独裁统治两年不到的时间，被揭发沦落成中共的制毒工场，出卖和打压校内追求民主的学生，校内的医学专家们自甘堕落为新冠毒疫苗护航，今日还石破惊天地发布如此低能的调查报告，引来网民们的炮轰。在闭关锁港物价飞涨的当下，谁不向往月入四万的无忧生活，更可笑的是那些专家把排解低收入家庭忧虑的方法定位在提供网路服务，这等没有半点实质性措施的安抚与中共的口炮如出一辙。港大医学院的调查报告将低收入人群诊断成无能，心里变态的状况，并将高收入人群进行定位，十分切合中共清除低端人口和消灭有钱人的目的。中共用心如此险恶，可恨太多人甘心沦为其残害同胞的工具，港大在中共的管制下已被完全黑化。
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
 
-资料来源：[**港大调查发现家庭月入超过4万元  应对「疫境」能力较高**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/717749/%E6%B8%AF%E5%A4%A7%E8%AA%BF%E6%9F%A5%E7%99%BC%E7%8F%BE%E5%AE%B6%E5%BA%AD%E6%9C%88%E5%85%A5%E8%B6%85%E9%81%8E4%E8%90%AC%E5%85%83-%E6%87%89%E5%B0%8D-%E7%96%AB%E5%A2%83-%E8%83%BD%E5%8A%9B%E8%BC%83%E9%AB%98)
+**三，澳洲疫情和“疫苗”数据**
+感染总数：341,437（今日新增 18,243人）
+死亡总数：2210人
+每万人感染人数：124.9699人
+“疫苗”毒针注射总数：42,289,453  （今日新增37,226针）
+第二针“接种”：1880.2753万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.2%
+16岁以上人口接种至少两剂疫苗的比例：91.2%
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1657.png)
+今日澳大利亚病例新增再创新高，向两万大关逼近。如上图所示，每日新增病例无论增幅还是数字都远超历史记录。这个直冲云霄的新增病例数字曲线和澳大利亚16岁以上人口接种至少两剂疫苗的91.2%比例放在一起可以说极为讽刺。恰巧最近丹麦一项观察性研究发表，发现两种疫苗毒针的防范奥米克戎毒株的“有效性”只能维持60天而已。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1658.png)
+而到了90天时，如图中红框内的数字所示，其有效性都降低到了分别为-39.3%和-76.5%，也就是说，比不打疫苗者更加容易感染！实际上这意味着，这些毒针注射虽然在几个星期内也许能够暂时提高对中共病毒的免疫力，但是90天后其免疫力就大幅下降到比不打疫苗低得多的水平，实际上也就是严重损害了免疫力。可叹的是，政府的应对措施竟然是继续号召大家打加强针，难道人们都不明白饮鸩止渴，扬汤止沸的道理吗？
+
+果然今天打脸的新闻就爆出来了，澳洲著名的影星，“金刚狼“的扮演者休·杰克曼（Hugh Jackman）12月5日才刚刚注射加强针，仅仅24天后的今天就被感染了。
+
+既然这是丹麦的研究，我们就来看一下丹麦的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/111-3.png)丹麦每日新增病例曲线（来源：Our　World in Data）![](https://assets.gnews.org/wp-content/uploads/2021/12/21-3.png)
+上图是丹麦疫苗接种的曲线，深绿色部分是加强针，已经注射加强针的丹麦民众占总人口的比例已经高达43%。再看看上图的丹麦的疫情曲线，跟澳洲很相似，都是笔直向上。这两幅曲线对照来看，对于加强针能否有用，已经可以一目了然了。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
