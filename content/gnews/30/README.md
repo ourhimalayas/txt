@@ -2,10 +2,10 @@
 ---
 
 
-## 中国移动CMLink业务退出加拿大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805678/)
+## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山翻译部 – defiance
 
 
 
@@ -13,19 +13,19 @@
 
 
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-2.jpg)
 参考链接：
-[被挤出加拿大：中国移动CMLink业务停止运营](https://info.51.ca/news/canada/2021-12/1058371.html)
+1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
+2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：Jack Li文阳
-编辑：Lakeman文仁
+总编/编辑：童谣
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

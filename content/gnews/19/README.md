@@ -2,46 +2,35 @@
 ---
 
 
-## 约克区网站乌龙数百有症状者白白等数小时
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1805832/)
+## “全国离婚”：红、蓝两州的马乔里·泰勒·格林建议
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1805845/)
 
-作者：Jeremy Grimaldi
-翻译：HimaCoby
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-375.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1893.png)
 
-数百人患有新冠症状的人，在零度以下的温度下连续等待数小时。
+佐治亚州众议员马乔里·泰勒·格林(Marjorie Taylor Greene)再次对红蓝两州之间”全国性离婚”进行呼吁：认为从加州和纽约搬到保守州的美国人在被允许投票之前，应该有一个“冷却期”。
 
-54 岁的奥里特·米勒 (Orit Miller) 是来自列治文山 (Richmond Hill) 的两个孩子的母亲，她说她和她的丈夫与年仅 4 岁的孩子们一起等待，他们裹着毯子，希望能得到检测，因为他们正在经历的头痛、喉咙痛、身体疼痛和流鼻涕的症状。
+这位直言不讳的共和党女议员周三（29日）在推特上发表了她的评论（回应一名男子的留言），他说他正从旧金山湾区搬到迈阿密，并对佛罗里达州的政治保持警惕。
 
-等了近两个小时，没有一丝动静，等待的大约200人，才发现没有人来。
+47岁的格林同意一位推特用户的观点，该用户支持通过对（来自蓝州）移植者征收“罪恶”税，并“在一段时间内”禁止他们参加投票来“歧视他们”。
 
-“令人沮丧的部分是网站上没有任何内容或门上的标志，”米勒说。 “真的会这么难吗？开玩笑。老实说，我不参与政治，我不抱怨，但挫败感正在增加。”
+“在国家离婚的情况下，所有这些都是可能的，”格林写道。“在民主党选民和大捐赠者毁掉像加利福尼亚这样的州之后，你会认为阻止他们对另一个像佛罗里达这样的大州，这么做是明智的——从加州和纽约搬来的被洗脑的人，真的需要一个冷却期。”
 
-米勒说，有其他排队等候的人说，不仅仅是他们在傻等，就连政府的电话咨询也一直在指引人们前往这个当天根本就不开门的检测点。
+“这么多人每天都告诉我，他们对我们的联邦在各个层面上的状况感到多么震惊，我完全赞同他们对我们国家状况的彻底厌恶和心碎，”格林在十月写道。“国家离婚问题经常被私下谈论，但没有公开谈论，所以我做了一个调查。”
 
-按照网站公布的检测点营业时间应该是从下午3点30分到晚上7点，大约在下午6点左右，可能是由于社交媒体上的愤怒反应，约克区终于意识到了这个问题，并迅速更新了其网站信息提醒该检测点当天关门。
+许多推特用户指责她的评论是在推动另一场内战，并指出她自己所在的历史上属于共和党的州在2020年选举中投票给拜登总统。
 
-约克区发言人Patrick Casey写道：不幸的是，昨天下午我们注意到了，我们的网站上载有St. Jean de Brebeuf 学校流动COVID-19检测点将正常开放的信息……但它实际上是按计划关闭了。我们为造成的混乱向居民道歉。
+格林已经因传播错误信息而被推特社交媒体平台制裁了至少三次。
 
-来源：https://www.yorkregion.com/news-story/10546394–it-s-a-joke-hundreds-wait-hours-at-closed-test-site-after-york-website-snafu/
+10月，格林在推特上进行了一项调查，以衡量人们对共和党和民主党倾向的州之间的“全国离婚”的兴趣。这项不科学的民意调查发现，48%的人希望美国留在一起，而43%的人要求进行政治分裂，9%的人没有决定权。格林对那些投票支持国家分裂的人表示赞许。
 
-（文章仅代表作者个人观点）
+新闻来源：[nypost.com] [Rep. Marjorie Taylor Greene suggests a ‘national divorce’ between red and blue states](https://nypost.com/2021/12/29/rep-greene-suggests-a-national-divorce-between-red-and-blue-states/) | 发布时间：2021年12月29日
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+* * *
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

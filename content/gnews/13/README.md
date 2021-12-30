@@ -2,67 +2,48 @@
 ---
 
 
-## 退休金缴费又涨了，2022涨幅远超预期
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1805898/)
+## 中共释放新病毒？ “德尔米康(Delmicron)”变种悄然袭来！
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1805997/)
 
-作者：Jordan Press (The Canadian Press)
-翻译：HimaCoby
+温哥华扬帆农场   路仁
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-30-下午1.29.05.png)
+图片来源： https://www.nih.gov
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-376.jpg)
+德尔塔（Delta ）变种在 今年4 月中旬至 6 月中旬占据主导地位，是造成全球数百万人丧生的第二波冠状病毒的主要原因。这种病毒株会导致严重的症状，甚至住院或者死亡的风险。此外，感染后的菌株还会导致长期症状，如脑雾、肌肉酸痛和脱发。
 
-尽管与往年一样，从1月1日起加拿大退休金计划（Canada Pension Plan/CPP）缴款额将再次增加，不过2022年增加的幅度超过了最初的计划，原因还是在于疫情对劳动力市场的影响。
+而最初发现于南部非洲的omicron 变种，借着其极快的传播速度，以排山倒海之势，瞬间超越曾经横行几个月的“德尔塔”变种，称为多数国家感染中共病毒（COVID-19）最主要的的变种。
 
-**为什么CPP保费会增加**
+几个礼拜以来，“奥米克戎“变种病毒至少目前呈现给人们的是比较轻的症状，较低的住院率，以及较低的重症和死亡率。所以有专家乐观的分析认为“奥米克戎”（Omicron）变种病毒可以帮助实现群体免疫，从而人类有希望在未来的一年，即2022年结束肆虐人类近两年多的疫情。
 
-这一增长是各省和联邦政府在5年前批准的长期计划的一部分，该计划通过长期增加缴费额，来提高公共计划的退休福利。涨价是从2019年开始。
+然而，事情并非按照人们良好的愿望去发展。就在最近有报导称，一种新型的超级菌株—由“德尔塔”（Delta）变种和“奥米克戎”（Omicron）变种合并而来，人们给它起名叫“德尔米康（Delmicron）”变种病毒。
 
-毕马威会计师事务所11月的一份说明说，雇主和雇员的最高缴款额将在2022年达到3,499元，比今年的3,166元有所增加。对于自营职业者的缴款，最高金额将从6332元提高到6999元。
+顾名思义，这个病毒变种的命名，是兼有“德尔塔”和“奥米克戎”双重变异的结果。普遍认为，感染了“德尔塔”变种病毒的人，不大轻易再感染“奥米克戎”变种病毒。但这种情况的发生确实出现了。
 
-**2022年的不同之处**
+根据[《财经快讯》（Financial Express）](https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/)报导， Moderna 首席医疗官 保罗伯顿（Paul Burton ）博士就表示过，如果 Omicron 和 Delta 变体同时感染某人，就会产生新的超级变体。
 
-CPP要求缴费的增加，要与获得退休金的上限成比例。
+伯顿博士本月早些时候对《每日邮报》说，数据显示，早先在大流行期间从南非发表的论文表明，人们，尤其是免疫功能低下的人，可以同时感染这两种病毒 。
 
-明年的退休金最多领取额，即年度最高退休金收入或YMPE，应该是63,700元，比2021年的最高额增加了2100元。但实际数额将更高，为64,900元，增幅为5.3%，是三十年来的最大增幅。
+“他们有可能交换基因并引发危险的变异。”伯顿博士告诉英国议会科学技术委员会。
 
-原因是由于疫情对劳动力市场的影响仍然在持续。
+印度马哈拉施特拉邦 COVID-19 工作组成员 沙山克约希（Shashank Joshi ）博士声称，欧洲和美国中共毒病（COVID-19）例激增的罪魁祸首是 Delta 和 Omicron 变异的组合，即“德尔米康”（Delmicron），他声称这种变异传播速度更快.
 
-计算收入限额的公式是看人们每周的平均收入，并比较截至每年6月30日的12个月期间的变化。
+据 约希博士称，组合的“德尔米康“（Delmicron）”菌株“导致了小型病例海啸”。他补充说，欧洲和北美现在拥有双 “德尔米康”（Delmicron） 变体。
 
-因为疫情的大爆发，平均每周收入已经跃升，原因在于从事低薪工作的人变少了。如果没有这些低薪劳工，平均增幅比实际情况更夸张。
+根据印度[《娱乐时刻》（Etime）](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)描述，由于“ 德尔米康”Delmicron 是由中共病毒（COVID-19）的 Delta 和 Omicron 版本合并而成的，因此它被认为具有高度传染性，并且可能导致严重的症状。需要更多的研究来详细了解其性质。就症状而言，作为 Delta 和 Omicron 的组合，“德尔米康”（Delmicron） 感染往往表现出与其父变体或多或少相同的症状。
 
-**接下来会发生什么**
+评： 郭文贵先生在12月24日大直播中爆料：“国安委又特别成立了【关于新型冠状病毒控制小组】，这次可能真地要放最毒最毒的毒了。” 我们不仅联想到，这个新出现的合体病毒，即具有Delta变种病毒的高致命性，又兼有Omicron变种病毒的强传染性。莫非中共已经在不知不觉中实施了其新的放毒计划？我们不得而知。但可以想象的到，如果接下来的中共病毒（COVID-19）兼具高致命性和强传染性，人类将又一次面临一场大劫难！
 
-联邦保守党领袖Erin O’Toole曾呼吁政府推迟今年的增长，他说现在不是再次提高保费的正确时机，通货膨胀使消费者的生活成本上升，许多小企业仍在努力恢复其收入。
+所谓“庆父不死，鲁难未已”，中共不灭，疫情难消！只有除去中共这个人类的毒瘤，世界才有可能有和平和安全的未来。
 
-对缴费率或缴费上限的任何改变，都需要议会和全国7个省份代表至少三分之二的人口的批准——这比修改宪法的要求更高。
+参考链接：
 
-因此，退休金缴费还是会增加。
+[https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/](https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/)
 
-**额外补充**
+[https://www.dailysabah.com/life/science/covid-19-delta-omicron-merges-to-create-delmicron-claim](https://www.dailysabah.com/life/science/covid-19-delta-omicron-merges-to-create-delmicron-claim)
 
-CPP费用的增长还没有完成，总理贾斯汀·杜鲁多已要求财政部长方慧兰（Chrystia Freeland）与各省合作，将支付给丧偶单身者的CPP福利金额增加25%。
+[https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)
 
-一旦明年联邦冻结两年的增长，EI保险费也将上升。此后，员工保费率将从每100元为1.58元，上升到2027年的每100元为1.83元。每年的增长是法律所允许的最大数额，并且在因为疫情期间的需求耗尽之后，需要增加来重新填充EI基金。
-
-政府的秋季经济报告预计，EI账户将在2028年恢复平衡。
-
-来源：https://globalnews.ca/news/8478881/cpp-premiums-increase-explainer/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编审：月亮之上  发布：Winner为自由而战（文祥）
 
  
 
