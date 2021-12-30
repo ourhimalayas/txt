@@ -2,32 +2,50 @@
 ---
 
 
-## 辉瑞公司与中共阿里巴巴早有合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805658/)
+## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
 
 作者：纽约香草山翻译部 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日，据美国媒体消息显示，自2018年起，辉瑞公司就一直与中共支付平台支付宝合作。而从中共病毒爆发以来，支付宝则长期协助中共政府在中共国内推行“健康码”政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-27.jpg)
-报道提到，辉瑞公司曾在其官方推特上多次对中共政府表示支持，甚至为与中共政府的合作表示自豪。据悉，辉瑞与中共政府的合作涉及疾病和疫苗接种的相关工作，而辉瑞公司也通过与支付宝的合作实现在中共国内的移动支付功能。
 
-但资料显示，支付宝是与中共有密切关联的阿里巴巴集团旗下的一个分支平台。而阿里巴巴作为帮助中共政府及其军队进行科研、生产、武器和设备维修等工作的大型企业，美国国务院此前已经将其标记为中共政府建立社会监视和控制机制的“工具”。
 
-参考链接：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+
+
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
+
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
+
+参考链接：
+1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
+2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：童谣
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

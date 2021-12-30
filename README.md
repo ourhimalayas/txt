@@ -15,110 +15,110 @@
 
 ---
 
-### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [WHO：182天内让10亿人打Covid-19疫苗（550万人/天）](/content/gnews/2/README.md)
- ` wenwu`
-
-### [“全国离婚”：红、蓝两州的马乔里·泰勒·格林建议](/content/gnews/3/README.md)
- ` wenwu`
-
-### [VICE女记者的邪恶用心](/content/gnews/4/README.md)
+### [我们不要失礼的同时不要失去自己的自信](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战](/content/gnews/5/README.md)
+### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [WHO：182天内让10亿人打Covid-19疫苗（550万人/天）](/content/gnews/3/README.md)
+ ` wenwu`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（三）](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [2021年12月29日郭文贵先生直播全文字版](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [“全国离婚”：红、蓝两州的马乔里·泰勒·格林建议](/content/gnews/6/README.md)
+ ` wenwu`
+
+### [VICE女记者的邪恶用心](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [约克区网站乌龙数百有症状者白白等数小时](/content/gnews/6/README.md)
+### [约克区网站乌龙数百有症状者白白等数小时](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（二）](/content/gnews/7/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（二）](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [中共的虚假邪恶的造假对比视频](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [Omicron的危害绝对超出大家的想象](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大重新引入对一日游的新冠测试要求](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（一）](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
-
-### [是谁制造了这场灾难](/content/gnews/12/README.md)
+### [秦大使采访美媒集体沉默，战狼墙内讨伐媒体自由](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [银河快讯:维吾尔学生自日本返中共国后可能已死亡；日本处罚私营企业泄露信息](/content/gnews/13/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [中共病毒及疫苗一周伤害信息汇总](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [广西百色再现文革式“游街示众”](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [中国移动CMLink业务退出加拿大](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [秦刚接受美媒采访竟不见任何报道遭嘲笑](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [辉瑞公司与中共阿里巴巴早有合作](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [西安沦为去年武汉 民众生活物资采购无门](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！](/content/gnews/23/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|东京发现首例奥密克戎变体确诊病例](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2021年12月30日早](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [12月29日老班长联盟答疑G系列相关信息文字版](/content/gnews/26/README.md)
- ` 全球G系列咨服群`
-
-### [12/30/21 香港快讯【《立场》被搜捕】联合国、美、英、德、加齐谴责](/content/gnews/27/README.md)
- ` 英喜-粵語組`
-
-### [山姆会员店下架新疆产品 中共官媒借机煽动情绪](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫情下的人生百态——J先生回国探父之路](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [秘翻在线:21世纪人类将面临如黑死病般的灾难?](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话](/content/gnews/32/README.md)
- ` 秘密翻译组-北美组`
-
-### [DC每日热点1230](/content/gnews/33/README.md)
+### [中共的虚假邪恶的造假对比视频](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国律师和医生表示FAA的疫苗政策违反了自己的规定](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [Omicron的危害绝对超出大家的想象](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [苏联共产主义“布尔什维克”已经自杀了，苏联解体时的世界媒体](/content/gnews/35/README.md)
+### [加拿大重新引入对一日游的新冠测试要求](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（一）](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
+
+### [是谁制造了这场灾难](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [银河快讯:维吾尔学生自日本返中共国后可能已死亡；日本处罚私营企业泄露信息](/content/gnews/17/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共病毒及疫苗一周伤害信息汇总](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [广西百色再现文革式“游街示众”](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [中国移动CMLink业务退出加拿大](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [秦刚接受美媒采访竟不见任何报道遭嘲笑](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
+
+### [辉瑞公司与中共阿里巴巴早有合作](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [西安沦为去年武汉 民众生活物资采购无门](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！](/content/gnews/27/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|东京发现首例奥密克戎变体确诊病例](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [GTV新闻访谈简报|2021年12月30日早](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [12/30/21 香港快讯【《立场》被搜捕】联合国、美、英、德、加齐谴责](/content/gnews/30/README.md)
+ ` 英喜-粵語組`
+
+### [山姆会员店下架新疆产品 中共官媒借机煽动情绪](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线:21世纪人类将面临如黑死病般的灾难?](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/33/README.md)
+ ` MOSREC`
+
+### [DC每日热点1230](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国律师和医生表示FAA的疫苗政策违反了自己的规定](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [南非有望成为最早一批摆脱中共病毒威胁的国度](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`

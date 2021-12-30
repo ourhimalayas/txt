@@ -2,40 +2,54 @@
 ---
 
 
-## 中共病毒及疫苗一周伤害信息汇总
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805682/)
+## 加拿大重新引入对一日游的新冠测试要求
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1805770/)
 
-作者：纽约香草山农场医疗部 – Zion文恩
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月21日至28日，除中共国外，全球累计确诊中共病毒六百五十一万余例，同比上周增长了百分之35.6，增长率较上周的百分之9.36显著增加；本周累计死亡四万四千七百三十七例，同比上周下降百分之6.1。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20.jpg)
-截止28日，全球除中共国之外累计接种了64.1亿剂中共病毒疫苗，同比上周增长百分之2.23；疫苗接种的增长率较上周的百分之2.88稍有下降，尽管本周全球的确诊病例显著增加，但连续两周全球疫苗接种已趋于稳定。
+作者：Ian Miles Cheong
+翻译：HimaCoby
 
-中共国内区域性的疫情爆发从未间断。其中，西安市自当地时间23日凌晨起被执行封城措施，疫情形势不容乐观。民众普遍认为，中共西安市卫健委所声称的西安市百分之99.38的接种率是个笑话。而据郭文贵先生援引中共体制内知情者消息称，西安的疫情爆发并非由于中共蓄意投毒，而是由于高疫苗接种率所造成的突破性感染，完全是疫苗接种所造成的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-357.png)
 
-美国方面，上周全美中共病毒感染新增病例的七日平均值已经突破28万，达到自去年一月以来的最高值——“奥米克戎”毒株的高传染率可见一斑。值得注意的是，中共病毒疫苗的大面积接种显然没有阻止疫情的迅速扩散。
+特鲁多政府已宣布恢复加拿大针对 72 小时以内旅行的新冠测试协议，换句话说，如果您从加拿大前往美国进行一日游，则需要接受测试。从周二开始，就在圣诞节旅行之前，那些过境的人将被要求检测新冠。
 
-此外，英国、法国、葡萄牙、希腊等国家均突破了单日新增病例的记录。
+根据之前放宽的规定，完全接种疫苗的加拿大人可以在 72 小时内离开并重新进入加拿大，无需进行入境前测试。
 
-本周是2021年的最后一周，面对中共病毒新毒株的肆虐，各国的强制疫苗政策仍在继续。德国议会将于2022年新年假期后展开全民强制接种的立法讨论工作。而美国总统拜登则在28日的州长电视会议上承认，联邦政府应对奥米克戎毒株不力，承诺给各州更大的自由应对疫情，同时，他还呼吁各州加大力度推行筛查和接种工作。
+根据加拿大政府的说法，“所有从短途旅行回来的加拿大人都必须进行入境前测试，测试必须在加拿大境外进行。” 此举是因为担心奥米克变体的传播。
 
-参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-21..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) .[Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2021-12-21..2021-12-28&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) .[COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-21..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+“为了应对由奥米克变种在加拿大和全球的蔓延的显著风险和不确定性，现在卫生部长，伊夫·杜克洛宣布旅游和边境措施进一步调整，”新闻稿称。“这些措施以谨慎为指导，旨在减少奥米克变种在加拿大的传播，并帮助各省和地区减缓社区传播。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+加拿大政府表示：“作为另一层预防措施，我们将恢复对所有离开该国不到 72 小时的旅客的入境前 PCR 检测结果呈阴性的要求。” “从 12 月 21 日起，所有时间段的旅行都将再次执行抵达前测试的要求。重要的是要注意，此抵达前测试必须在加拿大以外的国家/地区进行。”
 
-总编/编辑：Irene木木
-校正/发稿：Fei797
+政府大幅增加入境检测资源，以迎合假期旅游需求。政府在一份声明中表示，它“从 11 月 30 日每天测试 11,000 名航空旅客的能力变为截至 12 月 16 日的 20,960 次测试。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“加拿大政府正在与机场当局、航空公司、测试提供商和许多其他合作伙伴密切合作，以增加机场的容量、管理旅客流量并确保测试协议尽可能有效，”它说。
+
+
+> 所有以各种旅行方式抵达的旅客都必须将他们的信息提交到ArriveCAN。为了减少等待进行测试的时间并缓解机场的拥堵，强烈建议获准进入加拿大的旅客在抵达加拿大之前在抵达机场向测试提供商进行预先注册。
+> 
+> 加拿大政府认识到不断变化的边境措施可能会给个人和家庭带来挑战。所有边境措施将继续接受评估，并会根据最新的科学、证据和数据进行调整。
+
+
+“关于奥米克变体，我们还有很多不知道的地方，但我们知道它正在迅速传播。因为在涉及加拿大人安全和健康时，我们永远需要警惕，所以我们正在更新我们的旅行和边境措施，并与各省和地区携手合作，以帮助减缓该变种在整个社区中的传播。国家，”卫生部长让-伊夫·杜克洛 (Jean-Yves Duclos) 说。
+
+来源：https://www.rebelnews.com/canada\_reintroduces\_covid\_19\_testing\_requirements\_for\_day\_trips
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

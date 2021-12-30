@@ -2,64 +2,48 @@
 ---
 
 
-## 12/30/21 香港快讯【《立场》被搜捕】联合国、美、英、德、加齐谴责
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1805534/)
+## 【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1805613/)
 
-**搜集****/****整理：卡西欧**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1230fenmian.jpg)
-封面素材：自由亚洲
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.04.31-AM.png)
-**1.****【《立场》被搜捕】联合国、美、英、德、加齐谴责　**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-[据【众新闻】12月30日讯，警方国安处昨日拘捕《立场新闻》六名高层及总编，引发联合国、美国、英国、加拿大及德国等发声明谴责，指事件表明香港的言论及新闻自由正不断收到侵蚀。](https://www.hkcnews.com/article/49775/立場新聞-聯合國人權委員會-中國外交部-49781/【《立場》被搜捕】聯合國、美、英、德、加齊譴責-中方反駁：港警依法行事，不容歪曲)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-[根据路透社报道，联合国人权办公室透过一份声明表示，对于港府持续打压公民社会感到震惊。 「我们正看到香港公民社会，以及自由发声和表达的渠道正在极其迅速地关闭。」](https://www.hkcnews.com/article/49775/立場新聞-聯合國人權委員會-中國外交部-49781/【《立場》被搜捕】聯合國、美、英、德、加齊譴責-中方反駁：港警依法行事，不容歪曲)
+包括美国在内的越来越多的国家越来越强硬地要求其民众接种COVID-19（中共病毒）疫苗，甚至接种第三剂疫苗。一些国家，如以色列和德国，正在推出第四剂，更多的国家正在缩短初始接种和加强针之间的推荐间隔。
 
-[美国国务卿布林肯表示深切关注事件，指当局的行动令香港为数不多的独立媒体被迫停运，指「新闻工作不是煽动叛乱」，呼吁中共国和香港当局停止针对香港的独立媒体，并立即释放被不公义地拘留及检控的人。](https://www.hkcnews.com/article/49775/立場新聞-聯合國人權委員會-中國外交部-49781/【《立場》被搜捕】聯合國、美、英、德、加齊譴責-中方反駁：港警依法行事，不容歪曲)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/booster-1.jpg)
 
-[至于外交部驻港特派员公署就回应指，警方依法采取行动，「是维护国家安全、捍卫香港法治与社会秩序的正义之举，大快人心，不容置喙。」](https://www.hkcnews.com/article/49775/立場新聞-聯合國人權委員會-中國外交部-49781/【《立場》被搜捕】聯合國、美、英、德、加齊譴責-中方反駁：港警依法行事，不容歪曲)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.04.40-AM.png)
-**2.****《立场》及两前高层被起诉****   ****不准保释**
+然而，研究表明，大多数接种疫苗的人死于中共病毒疫苗导致的自身免疫系统对自身器官的攻击！几乎所有在接种后7天至6个月内死亡的中共病毒疫苗接种者都可能死于疫苗引起的自身免疫损伤。
 
-[据【独立媒体】12月30日讯，警方国安处昨日拘捕《立场新闻》6名高层及前高层，涉嫌违反《刑事罪行条例》第9及10条「串谋发布煽动刊物」罪，其中前总编辑钟沛权及前署任编辑林绍桐将于今午在西九龙裁判法院提堂。](https://t.me/inmediahknet/15400)
+为什么一个人接种中共病毒疫苗后，免疫系统会变得疯狂并攻击它旨在保护的东西？
 
-[警方中午发稿，指今日（20日）正式落案控告两名分别34及52岁男子，以及一间网媒公司各一项「串谋发布煽动刊物」罪。国安处已向涉案公司派递检控书，通告该公司违反罪行，及要求公司派代表出席今日下午的提讯。](https://t.me/inmediahknet/15400)
+科学家们认为，发生致命的免疫反应的原因是，接种中共病毒疫苗会导致免疫系统将产生在自然状态下永远不可能生产的SARS-CoV-2刺突蛋白细胞，免疫系统又将这些SARS-CoV-2刺突蛋白细胞视为威胁并试图摧毁它们。
 
-[其余被捕人士仍然被扣查。](https://t.me/inmediahknet/15400)
+在人体的任何器官中，任何因中共病毒疫苗诱导产生的这种外来抗原（SARS-CoV-2刺突蛋白细胞）的细胞都会受到免疫系统中IgG抗体（所有体液中发现的最丰富的抗体类型）和细胞毒性T淋巴细胞（保护身体免受癌细胞和被病原体感染的细胞侵害）的强烈攻击。
 
-[两人提出保释，署理总裁判官罗德泉指，未能信纳他们不会继续危害国安，拒绝他们的保释申请，两人放弃每八日保释覆核的权利。](https://t.me/inmediahknet/15400)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.04.54-AM.png)
-**3. ****方敏生及何韵诗等立场前董事****   ****遭扣查逾****30****小时获准保释**
+每打一针加强针，免疫系统就会“变得更具攻击性”。人的心肌、肝脏和肺在中共病毒疫苗诱导下开始产生这些该死的突刺蛋白（SARS-CoV-2刺突蛋白细胞），然后免疫系统的杀手淋巴细胞去那里……并摧毁自身的心脏、肺和肝脏。
 
-[据【Now新闻台】12月30日讯，其余被捕的《立场新闻》前董事，包括吴霭仪、何韵诗及方敏生遭扣查三十多小时后，获准保释离开。](https://news.now.com/home/local/player?newsId=461658)
+反过来，由于疫苗进入产生淋巴细胞或白细胞的淋巴结，这些细胞也可以被“教导（或诱导）”制造刺突蛋白。这反过来又使它们成为自身免疫攻击的目标，这削弱了免疫系统检查人体内的所有潜在致命病毒和细菌的能力。人体免疫能力完全被削弱。
 
-[何韵诗由歌手黄耀明及前立法会议员陈志全陪同离开西区警署，她被指涉嫌发布煽动刊物罪，被警方国安处拘捕，扣留超过30小时后获准保释离开。](https://news.now.com/home/local/player?newsId=461658)
+爱达荷州（Idaho）的病理学家Ryan Cole博士就认为，结核病在亚洲、印度和非洲各地呈上升趋势，接种疫苗的患者的癌症和肿瘤有所增加，也可以通过免疫系统抑制细胞病理突变能力的减弱来解释。
 
-[而另一名前董事，社联前行政总裁方敏生傍晚亦获准保释，乘车离开香港仔警署，吴霭仪亦已获准保释。](https://news.now.com/home/local/player?newsId=461658)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.05.04-AM.png)
-**4. ****赵立坚指美国见不得香港稳定****   ****称新闻自由非犯罪挡箭牌**
+Peter McCullough博士指出，众所周知，刺突蛋白会导致疾病，例如心肌炎和神经系统损伤，以及损伤血管和促进血液凝。通过重复接种COVID-19疫苗，刺突蛋白会逐渐在大脑、心脏和其他重要器官中积聚，超过免疫系统清除能力。
 
-[据【香港电台】12月30日讯，中共在外交部例行记者会上，有外媒就欧美等国谴责香港的新闻自由，作出提问。赵立坚回应时说，国安法实施以来，香港发展重回正轨，新闻自由得以在安全、稳定、法治的环境下，得到更好保障，这是无法否认的事实。他强调新闻及言论自由，不能成为犯罪行为的挡箭牌，在香港特区从事新闻工作，必须严格遵守中共国和香港特区法律，违法者必须承担法律后果。](https://news.rthk.hk/rthk/ch/component/k2/1626604-20211230.htm)
+Brian Hooker博士认为，疫苗伤害随着每一次额外的注射而呈指数增加，用相同的病原体一遍又一遍地重复攻击敏感的免疫系统。
 
-[赵立坚又说，香港特区警方依法拘捕涉嫌串谋发布煽动刊物的个人，冻结有关资产，是捍卫香港法治，维护社会秩序的必要正当之举，与新闻及言论自由，没有任何关系。美国支持新闻自由是假，见不得香港稳定是真。](https://news.rthk.hk/rthk/ch/component/k2/1626604-20211230.htm)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.05.13-AM.png)
-**5. ****民主党接近****40****宗低息贷款诈骗求助****   ****总损失逾****1200****万**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Countering_Overreach3_banner728.jpg)
 
-[据【Now新闻台】12月30日讯，民主党指7月至今收到38宗低息贷款诈骗求助，损失金额由7000元至700万元不等，总损失超过1200万。民主党消费者权益政策发言人袁海文指，个案有不少共通点，包括骗徒来电时已掌握当事人个人资料及借贷纪录，令受害人减低戒心，然后声称提供低息贷款计划，诱骗当事人在金融公司或外汇市场交易投资。](https://news.now.com/home/local/player?newsId=461636)
+参考数据：
 
-[民主党呼吁警方加强打击，并尽早冻结骗徒户口，防止更多市民蒙受损失，多名事主表示曾报警求助，但未获积极跟进，令事主情绪受困。](https://news.now.com/home/local/player?newsId=461636)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-30-at-10.05.23-AM.png)
-**6. ****恒指反覆升****   ****科指又破底**
+[Study: Most of Vaccinated Die Because of Vax-induced Autoimmune Attacks on Their Own Organs](https://theparadise.ng/study-most-of-vaccinated-die-because-of-vax-induced-autoimmune-attacks-on-their-own-organs/)
 
-[据【Now新闻台】12月30日讯，大市今日高开后，走势反覆，曾失守23000点，收市升25点，报23112点。大市交投持续淡静，全日成交不足700亿元。](https://news.now.com/home/finance/player?newsId=461645)
+[360X increase in the rate of adenopathy after vaccination](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)
 
-[科技指数曾低见5427点，再创新低，收市微升3点。](https://news.now.com/home/finance/player?newsId=461645)
+[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
 
-[市传有债券到期未付利息的中国恒大跌9%，跌至逾4年低位，恒大物业创新低，恒大汽车跌4%。](https://news.now.com/home/finance/player?newsId=461645)
+[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
 
-[生物科技股方面，开拓药业跌13%，沛嘉医疗跌5%。](https://news.now.com/home/finance/player?newsId=461645)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
