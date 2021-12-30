@@ -2,36 +2,33 @@
 ---
 
 
-## 美官员建议缩短中共病毒的隔离检疫期
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1802594/)
+## 英国安全部长将俄罗斯和中共国列入敌对国家行列
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1802648/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-27.png)
-据《美联社》报道，美国疾病控制与预防中心（CDC）官员说，越来越多的证据表明，中共病毒（COVID-19）感染者在出现症状前2天和后3天内传染性最强。
+**据《sputniknews.com》，2021年12月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a6la5-7mctx-3.jpg)
+莫斯科（Sputnik）–英国安全与边境事务国务大臣达米安-海因兹将俄罗斯、中（共）国和伊朗列为“敌对国家”，并列举了网络活动问题和所谓的虚假信息活动。
 
-CDC卫生官员星期一（27日），将中共病毒无症状感染者的隔离期限从10天缩短到5天，并同样缩短了密切接触者需要隔离的时间。
+“我向你提到的这三个国家有实在的人才，他们有很大的网络存在感，他们能够大规模部署。”海因兹周日告诉《电讯报》，声称中（共）国、俄罗斯和伊朗“以多种方式参与”地面间谍、网络攻击、士兵待命和虚假信息活动。
 
-该决定受到中共病毒（COVID-19）病例的激增所推动，还受到奥米克戎（omicron）变体最近引起的中共病毒病例激增推动。
+这位部长还说，朝鲜是第四个敌对国家。
 
-疾病预防控制中心主任罗谢尔-瓦伦斯基（Rochelle Walensky）说，美国即将出现大量的奥米克戎病例。并非所有病例都会很严重。事实上，许多人将没有症状。我们希望确保有一种机制，我们可以在遵循科学的同时安全地继续保持社会运转。
+12月初，俄罗斯对外情报局表示，英国秘密情报局局长理查德-摩尔关于所谓来自俄罗斯的威胁的挑衅性和毫无根据的言论，阻碍了俄罗斯和英国可能进行对话的机会。
 
-上周，CDC放宽了要求卫生保健工作者中共病毒检测呈阳性时，停工10天的规定。
+摩尔在11月底说，伦敦看到了来自俄罗斯的严重威胁，并将尽一切努力遏制和击退这些威胁。
 
-新建议称，如果检测呈阴性且没症状，可以在7天后重返工作岗位。该机构表示，如果人员严重短缺，隔离时间可能会缩短至5天，甚至更少。
+莫斯科一再强调，俄罗斯没有威胁任何国家，也没有计划进行任何攻击，称这种指控毫无根据。
 
-备注：
+**原文连接**：[https://sputniknews.com/20211227/british-security-minister-includes-russia-china-among-hostile-nations-1091826845.html](https://sputniknews.com/20211227/british-security-minister-includes-russia-china-among-hostile-nations-1091826845.html)
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-[新闻来源链接](https://apnews.com/article/coronavirus-pandemic-science-business-health-rochelle-walensky-d7d609c9c01e200d250df7ca7282c9d6?utm_campaign=SocialFlow&amp;utm_source=Twitter&amp;utm_medium=AP)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,29 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1801997/)
+## 西媒头条 — 第141期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1802084/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
+制作: 蚂蚁兄弟
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-29.png)
-文章仅代表作者本人观点，与Gnews无关
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
 
-视频参看：[2021.12.29早GTV新闻访谈](https://gtv.org/video/id=61cc625fecc0b216cbb124ea)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1229.001.jpeg)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
