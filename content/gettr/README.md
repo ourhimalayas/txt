@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 12:57 AM (UTC)`
+
+12/29/2021 Miles Guo: The bills signed by Biden recently are of great significance in making the CCP realize that the adversarial relationship between Communist China and the US is unalterable. Although this has fostered the CCP’s ambition to invade Taiwan and dominate the world, it is a great gift from God for the New Federal State of China to take down the CCP<br/><br/>12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的，这虽助长了中共打台湾和称霸世界的野心，但却是老天给新中国联邦灭共的一份大礼<br/>
+![img](https://media.gettr.com/group45/getter/2021/12/30/00/f13dded3-7c56-a004-d50a-53ebbe7aeeaf/out.jpg)
+
+---
+
 `@miles 12/29/2021 11:49 PM (UTC)`
 
 12/29/2021 Miles Guo: Yang Jiechi and Wang Yi said in a top-secret speech that it is the best time to invade Taiwan, while the US and Japan will not interfere, the economy of the US and EU will collapse, and the CCP will be the center of the future multipolar world order; the CCP will hold the Winter Olympics anyway and take this opportunity to instigate nationalist sentiment<br/><br/>12/29/2021 文贵直播：杨洁篪和王毅在绝密讲话中说现在是打台湾的最佳时期，美日不会干涉，欧美经济将崩溃，未来会是以中共为核心的多极世界；中共将硬着头皮办冬奥会并借机煽动民族主义情绪<br/>
@@ -150,12 +157,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12月27号：尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具．<br/>他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……新中国联邦一定要强大经济．媒体．伟大时刻即将到来……
 ![img](https://media.gettr.com/group22/getter/2021/12/27/17/a29f9526-37da-5718-ddc5-9c0cfaff4759/out.jpg)
-
----
-
-`@miles 12/27/2021 5:13 PM (UTC)`
-
-27/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇Top MV Chart in Hong Kong 🇭🇰, Taiwan 🇹🇼, New Zealand 🇳🇿, Macau 🇲🇴, Fiji 🇫🇯 <br/><br/>No.1🥇 Rock MV Chart in USA 🇺🇸, New Zealand 🇳🇿<br/><br/>No.1🥇 Rock Song Chart in Hong Kong 🇭🇰, Singapore 🇸🇬, New Zealand 🇳🇿<br/><br/>No.1🥇Hip-pop/Rap song Chart in Hong Kong 🇭🇰 <br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Macau, Fiji, USA, Singapore🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1795728/<br/><br/>12月27号，Hcoin To the Moon位列iTunes<br/>香港🇭🇰，台湾🇹🇼，新西兰🇳🇿， 澳门🇲🇴，斐济🇫🇯热门MV榜首🥇！<br/><br/>美国🇺🇸，新西兰🇳🇿摇滚MV榜首🥇！<br/><br/>香港🇭🇰，新加坡🇸🇬，新西兰🇳🇿摇滚歌曲榜首🥇！<br/><br/>香港🇭🇰嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，新西兰，澳门，斐济，美国，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
