@@ -2,31 +2,46 @@
 ---
 
 
-## 台湾芯片业成为美中对决的战场 – 上半部
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806397/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806472/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-9.jpg)
-在美中军备竞赛中至关重要的最先进的芯片是那些被描述为10纳米或以下的芯片–由台湾主导的领域。这些微小的设备在小到几平方毫米的区域内装有数十亿的电子元件。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+杰西: 是的，他们会非常容易的使用这个程序，因为用户界面是非常直观、简单易用的。
 
-美中两国的经济极其依赖台湾生产的先进军用、民用的技术芯片。一些人将台湾的芯片行业称为 “硅盾”，以阻止中国的攻击并确保美国的支持。
+用戶可以轻松又容易地充值您的帐户，获得HDO 积分并在平台上进行交易，这真的很简单。
 
-在主导最先进的半导体制造方面，巨大的台湾半导体制造有限公司（台积电）已经掌握了一项对今天和明天的尖端数字设备和武器至关重要的技术。据业界估计，台积电占这些芯片全球产量的90%以上。
+然后在另一个方面，我们真的让早期采用加密货币的人或首次使用的人感到简单，我们有24/7/365客户服务。
 
-这些代工厂对全球经济的价值如此之高，以至于在一次采访中，台湾经济部长王美华在9月告诉路透社，“这不仅仅是关于台湾的经济安全，该行业似乎也与国家安全有关。”
+因此，如果你需要帮助，总有一个团队成员可以在线上帮到你。我也认为这真的是我们公司的优势之一，也是我们和其它交易所不同的地方。
 
-美国中央情报局前高级情报官员和分析员Martijn Rasser说，”华盛顿的最大担忧是北京有可能获得对台湾半导体产能的控制。”
+我们也会陆续发布博客和一些其它的指引文章，教学文章、视频教程，以及一些的行业见解，向用户提供知识和最新消息。我认为这是人们了解市场的另一种方式。
 
-台湾的危险在于，台积电的晶圆厂，也就是众所周知的芯片制造厂，正好处在火线上。
+我们真的花了很多时间来发展我们的社群，鼓励用户之间讨论和知识交流。
 
-这些代工厂位于台湾西海岸的狭长平原上，面向中国，最近的地方距离中国约130公里。大多数靠近所谓的红海滩，被军事战略家认为是中国入侵的可能登陆点。台积电的总部和位于台湾西北部新竹的周边工厂群距离海岸仅12公里。
+你知道，社群的设立是推动数字资产普及的驱动力。我们在喜马拉雅交易所也很重视我们的社群。
 
-[新闻来源链接](https://www.reuters.com/investigates/special-report/taiwan-china-chips/)
+因此，我认为，你可以给新进入这个市场的人最好的建议就是要自己做好研究，
+用这些文章作为我们推出的信息，从总体上了解这个市场。我认为这就是我可以给出的最好建议。
 
-审核校对：sherryok (水云间)
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+﻿
 
-上传排版：漂流瓶
+![This image has an empty alt attribute; its file name is Dec-4-3-2.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
 
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-3.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

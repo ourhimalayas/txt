@@ -2,29 +2,63 @@
 ---
 
 
-## 美国CCP病毒新增确诊再次刷新纪录
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1806305/)
+## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
 
-撰稿：Gradient Boost
+[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
 
-在CCP病毒疫苗推出一年多以后，美国的 CCP病毒新增病例如今飙升至有记录以来的最高水平——平均每天有超过 26.5万例新增确诊，这主要是由具有高度传染性的 Omicron 变体毒株所推动的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16408992501.png)网络截图
-根据约翰霍普金斯大学纪录的数据，过去两周每天的新增病例相较过去增加了一倍多，超过了 1 月中旬创下的 25万例的旧记录。
+**郭文贵**
+**Miles Guo**
 
-变体病毒的快速传播给今年圣诞节和即将到来的新年蒙上了一层阴影，迫使许多本地社区在居民正打算享受一个正常的假日时简化甚至取消了原本应有的庆祝活动。同时由于病毒扩散，许多关键的服务岗位出现了严重的人员短缺问题，例如在航空产业，已经有数千个航班被取消。
+我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
+I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
 
-至于当前的住院人数，据美国疾病控制与预防中心报告，目前因CCP病毒入院的美国人约有 6万人左右，该数字约为 1 月份记录的一半。过去两周，美国因CCP病毒而死亡的人数从平均每天 1200 人攀升至大约 1500 人。
+而且会非常的危险，从美国西边到东边，从非洲过来
+And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
 
-事实上在欧洲地区，包括法国、希腊、英国和西班牙在内的几个国家本周也都报告了创下纪录的新增病例数量。其中希腊已经禁止在新年庆祝活动进行音乐表演，而法国当局则又一次开始鼓励疫苗接种。
+你说我咋就蒙那么准呢，那是情报不是蒙的
+Why am I so accurate? that is the intelligence, and it’s not guessed
 
-世界卫生组织报告称，上周全球的CCP新增病例比一周以前增加了大约 11%，从 12 月 20 日至 26 日记录的新增病例达到了接近 499 万。
+我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
+Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
 
-新闻参考链接：
+最后获得了情报，还会放毒，为什么，知道吗？
+In the end, I got the intel, and they will release the virus again, why, do you know?
 
-[9 News](https://www.9news.com.au/world/coronavirus-usa-update-new-covid-19-cases-in-us-soar-to-highest-levels-on-record/91c11f58-3a29-41aa-8ff7-7b51f0d9cf45)
+最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
+In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
 
-编辑：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
+that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
+
+既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
+If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
+
+美国亡我中共(之心)不死, 那不如咱把它亡喽
+The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
+
+杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
+Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
+
+Date: 12/25/2021
+原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
+原视频日期：2021/12/24
+**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
+任务编号：KC374（3334）
+视频时间段 : 0:00-1:20
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 ：洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 文新
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
