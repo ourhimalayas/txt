@@ -2,31 +2,28 @@
 ---
 
 
-## 俄罗斯法院对谷歌和元宇宙(Meta)平台未删除违规内容处以高额罚款
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1802575/)
+## 接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1802638/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-26.png)
-据路透社报道，12月24日，莫斯科某法院周五表示，因谷歌未删除俄罗斯认为的非法内容，将对字母控股(Alphabet)旗下谷歌处以72亿卢布(9,800万美元)罚款，这是俄罗斯第一笔基于营收的罚款。
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/贝努瓦.png)
+图片来自网络
 
-谷歌在电子邮件中称，将研究法院的裁决，然后再决定进一步的措施。
+世界排名第 46 位的法国网球明星贝努瓦·派尔已经完全接种了新冠疫苗，然而，在参加2022年澳大利亚网球公开赛之前，他的新冠检测再一次呈阳性。
 
-周五晚些时候，法院以同样的理由对元宇宙平台(Meta Platforms)罚款20亿卢布(2,715万美元)。元宇宙平台没有立即回应。
+“这是我第 250 次被检测出新冠阳性！”。这位网球选手对已经接种了新冠疫苗，但仍然不断感染新冠病毒感到沮丧和不知所措。“老实说，我再也受不了这个新冠病毒了。“
 
-俄罗斯通信监督机构Roskomnadzor表示，脸书(Facebook)和IG(Instagram) 上有2,000条违反俄罗斯法律的内容没被删除，而谷歌则保留了2,600条被禁内容。
+由于新冠呈阳性，他不断流鼻涕，并在酒店被隔离。他的精神状态非常低迷并感到愤怒。他说，“我 100% 支持新冠疫苗，但既然接种了新冠疫苗，就应该像新冠大流行之前那样生活。”
 
-今年以来，俄罗斯对外国科技公司处以小额罚款，但这次法院判决标志着首次按公司在俄罗斯年营收的百分比进行罚款，大大增加了罚款金额。
+该选手原定于 1 月 4 日在墨尔本参加一场预选赛，但这些计划已被打乱。他曾多次在大满贯赛事中闯入第四轮。他最近的阳性测试结果让他感到怒不可遏。
 
-虽然它并没有具体说明百分比，但路透社的计算显示，对谷歌的罚款略高于营收的8%。 莫斯科今年加大了对大型科技公司的压力，批评者认为这是俄罗斯当局试图对互联网实施更严格的控制，这已威胁到个人和企业的自由。
+接种了新冠疫苗仍然多次感染新冠病毒，证明新冠疫苗无效。强制接种就是个骗局。接种了新冠疫苗的民众已经开始醒悟。
 
-[新闻来源链接](https://www.reuters.com/technology/russian-court-fines-alphabets-google-72-bln-roubles-2021-12-24/)
+消息来源：
+[Australian Open 2022: French tennis star Benoit Paire rages after testing positive to Covid-19 for ‘250th time’, tennis news | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/tennis/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/3b346b6521c9c2a07da3e3c606a8ed6e)
 
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
