@@ -2,48 +2,31 @@
 ---
 
 
-## 日本大幅增加国防预算以因应中共威胁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803211/)
+## 医药巨头辉瑞携手中共，与支付宝平台深度合作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1803652/)
 
-作者：纽约香草山 医疗部 云豹
+整理报道：美哥
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-13.jpg)图片来源：墨尔本雅典娜农场设计组
+12月29号，据《国家动脉》报道，辉瑞公司与开发“疫苗护照”的中共平台支付宝早有合作，并坦诚“与中共领导人齐心协力很自豪”。去年一年，使出浑身解数游说美国政界的医药巨头辉瑞，却早在2018年6月6号的推文里，表达了它对于残酷中共政权的赞赏。在推文里辉瑞称，“我们为能与中共领导人和支付宝共同合作而感到自豪，希望能为传染病教育改善和疫苗的推进，开发一个新的电子化解决方案，并为中国儿童创造一个光明的未来”。辉瑞中国区总经理吴琨也称，“我们很荣幸成为中国‘互联网+疫苗接种’倡议的合作伙伴”。
 
+美国军控与国际安全事务副国务卿，克里斯托弗·阿什利·福特认为，**支付宝是中共的关联企业阿里巴巴旗下的一个分支，其牵涉到帮解放军“搜索、生产和修复武器和装备”等一系列军方行为，并且与中共国安机构有很深的合作，并对中国社会的全面监控提供了技术支持**。支付宝被美国标记为中共的“工具”。
 
+**尽管阿里集团与中共关系千丝万缕，辉瑞与它的合作却在2018就开始了**。辉瑞年度规划总结曾写道：“我们要利用支付宝超过7亿的活跃用户的平台，提供对于传染病和疫苗的教育；此外，帮助中国完成降低婴儿死亡率的宏伟目标；我们正在探索用于疫苗接种点的手机移动支付，并给予低收入家庭分期支付的选择，以便减少他们经济的负担。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+与辉瑞合作的支付宝平台是疫苗护照的实际执行者，正如纽约时报解释的那样：“在支付宝上，用户提交完个人信息表格后，就会产生一个由三种颜色区别的二维码，绿色的码能够无限制移动；黄色条码被建议7天居家隔离；红码必须强制隔离2周。在杭州，不出示支付宝码，几乎不可能自由活动。消息不断弹出提醒每个人遵守规则：绿码行，红黄码立刻报告。”
 
+而阿里巴巴集团最近因为被认定没有坚持国家利益高于公司义务的“新规”，将网络安全的关键漏洞公布于世而正面临中共的处罚。
 
+新闻链接：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’ (thenationalpulse.com)](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
 
+发布： 去中心化Math
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-371.jpg)图源网络
-
-当地时间12月24日，日本内阁会议通过2022年会计年度总预算案，其中国防预算编列了5.4兆日圆 (约470亿美元)，比2021年度多500亿日圆。相关人士评断，此举是为了应对中共对日本日益增强的武力威胁。
-
-此次国防经费大幅增加后，占比日本国内生产总值的1.9％，与欧美惯常2％的国防经费占比，已非常接近。且已超过日本政府与政治人物一直以来设定的不超过1%的上限。
-
-自2012年12月安倍晋三第二度担任首相以来，日本的国防预算就逐年增加。近日安倍提出台湾有事，日本就有事的论点后，有关日本的国防议题就更加受到各界的关注。
-
-现任日本首相岸田文雄原被视为亲中派，但在被中共武力严峻压力趋使下，此次也不得不提出破纪录的国防预算案，来保障日本自身的安全。
-
-新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3779709](https://news.ltn.com.tw/news/world/breakingnews/3779709)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-8.png)
-
-编辑：Kathy文艺
-
-校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

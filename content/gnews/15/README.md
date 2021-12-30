@@ -2,33 +2,52 @@
 ---
 
 
-## 著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1803761/)
+## 众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1803878/)
 
-翻译：波士顿五月花  冲天一怒
+众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了。 哦，等等。大多数共和党人是这样做的。 我记得那一段。 我们现在发现的关于‘格雷琴·惠特默(Gretchen Whitmer)绑架案’和‘一月6号事件’的相似之处不是很有意思吗？ 史蒂夫·班农确实警告过 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-40.jpg)https://childrenshealthdefense.org/
-Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns
 
-辉瑞和莫德纳mRNA 疫苗增加成为衡量人们心脏病风险的常用指标。这是根据心脏病学家史蒂夫‧冈德里博士最近在《循环》杂志上发表的“警告”得出的结论，他被称为婴儿心脏移植手术的先驱。该分析在美国心脏协会最近的会议上被提出。
 
-冈德里表示：大多数患者出现的显著变化意味着他们患上新型急性冠状动脉综合症的风险更高，如心脏病发作。部分分析指出：我们得出结论，mRNA 病毒疫苗会显著增加心肌的内皮炎症和 T 细胞的渗透，并且可能造成我们观察到的疫苗接种后增加的血栓、心肌炎症和其他血管病症。
+> If only everyone would listen to Bannon.
+> 
+> Oh wait. Most Republicans do.
+> 
+> I remember that episode.
+> 
+> Isn’t it interesting what we are now finding out about the Whitmer kidnapping case and the similarities of J6?
+> 
+> And Steve does warn about the dangers of the CCP.[#DownWithTheCCP](https://twitter.com/hashtag/DownWithTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rkhrPttxXM](https://t.co/rkhrPttxXM)
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [December 30, 2021](https://twitter.com/mtgreenee/status/1476350690805129217?ref_src=twsrc%5Etfw)
 
-冈德里解释说：最近，随着辉瑞和莫德纳mRNA中共病毒(COVID-19)疫苗的出现，大多数患者PULS(蛋白质不稳定病变特征测试)分值的显著变化变得十分明显。
 
-据报道，在接种中共病毒(COVID-19)mRNA 疫苗后，已报告了数千例与心脏相关的损伤案例。这些损伤导致心脏病变的形成和发展，可能变得不稳定和破裂，从而导致心脏事件。蛋白质不稳定病变特征测试衡量从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，提供身体免疫系统对动脉损伤的反应的测量。
 
-科学家们已经确定了中共病毒(COVID-19)疫苗在包括年轻人在内的一些患者身上产生的无数与心脏和血液有关的影响。与疫苗相关的不良事件包括由血栓形成的血块和称为心肌炎和心包炎的心脏炎症。
+参议员乔什·霍利： 共和党领导人猛烈抨击 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 逮捕记者的行为：“说明他们真的很害怕”。 【附Foxnews的相关文章】
 
-美国疾控中心和食品药物管理局表示，他们推荐给民众的疫苗是安全有效的，带来的益处大于已知的风险。随着越来越多的人选择接种疫苗，“益处”将在几年内显现。
 
-新闻来源: [Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/)
 
-* * *
+> Republican leaders slam communist China for journalist arrests: 'Shows just how fearful they really are'[https://t.co/8qiTFMyrDg](https://t.co/8qiTFMyrDg)
+> — Josh Hawley (@HawleyMO) [December 30, 2021](https://twitter.com/HawleyMO/status/1476385183892967427?ref_src=twsrc%5Etfw)
 
-*素材来源：时空旅行者*
 
-*编辑**& 发布：jamie(文胤)*
+
+众议员迈克.华尔兹: 阿门，本.多梅内克 [@bdomenech](https://twitter.com/bdomenech) 和我将一战到底，以确保美国和自由世界有一天不会向中国共产党低头。 这些就是赌注。 (转本.多梅内克在福克斯采访视频中说的一段话 – 见下推）（转本.多梅内克在福克斯采访视频中说的一段话：“我们是美国人。我们完全清醒。我们准备为我们的学校、我们的治理、我们的文化而战。未来不属于你们（指中共），我们也不属于你们。我们的思想是自由的，而且，不被出卖。”）
+
+
+
+> Amen [@bdomenech](https://twitter.com/bdomenech?ref_src=twsrc%5Etfw) and I for one will fight to the end to ensure the United States and the free world do not one day bow to the Chinese Communist Party. Those are the stakes. [https://t.co/oEBw6IXeQy](https://t.co/oEBw6IXeQy)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 30, 2021](https://twitter.com/michaelgwaltz/status/1476360655561269251?ref_src=twsrc%5Etfw)
+
+
+
+华盛顿时报资深记者比尔.格茨： 在被民主党和共和党告知中共国不构成威胁几十年后，拥有核武器的种族灭绝独裁的现实正变得越来越明显。 无神的中共共产主义与无神的苏联共产主义并没有什么不同转华尔街日报记者推文及报道：周二的华尔街日报头版：沃尔玛与英特尔、耐克、阿迪达斯、H&M、沃尔特迪斯尼、NBA 和其他西方品牌一起，因涉足新疆业务而在美、中之间陷入困境。）
+
+
+
+> Decades after being told by both Democrats and Republicans that China poses no threat, the reality of a nuclear-armed, genocidal dictatorship is becoming more apparent. Godless CCP communism turns out to be not all that different from Godless Soviet communism [https://t.co/IRxXXx2M04](https://t.co/IRxXXx2M04)
+> — Bill Gertz (@BillGertz) [December 28, 2021](https://twitter.com/BillGertz/status/1475959147443093506?ref_src=twsrc%5Etfw)
+
+
 
  
 

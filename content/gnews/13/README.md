@@ -2,30 +2,37 @@
 ---
 
 
-## 微博再审个人主页 从内容到头像都要合党意
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803764/)
+## 英前外相华裔妻作节目为中共宣传洗白
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-35.jpg)微博再审个人主页 从内容到头像都要合党意 网络图片
-据美国之音12月29日报道，中共国社交媒体微博自12月起整治用户昵称后，日前又发出公告，将针对个人主页的简介或头像中带有低俗词汇的内容进行第二阶段排查。不只网友的发言内容必须要符合中共立场，连网民头像的个性表现也要符合党的要求。这不仅使得网民的发言毫无言论自由外，也意味着社交平台将承担更高的风险，运营成本大幅提高。受益的是网络监控公司，预料将会在中共国成热门生意。
+撰稿：纽约香草山医疗部-云豹
 
-中共从2015年起就开始管控网路舆论，如今整治力道更强、更全面。截至11月，微博被处罚44次，累计罚款人民币1430万元。豆瓣累计被罚20次，累计处罚人民币900万元。微博清剿了600多万条贴文，封杀112万个帐号；豆瓣已删除讯息2万2238条，禁言990个帐号。彭帅与张高丽的性丑闻是重要的背景因素，中共认为社交平台没有及时拦截，任其大量散布造成对党和国家的伤害，甚至对北京冬奥会都产生了巨大的影响。
-
-中共就是为了达到一种思想控制：党是唯一的，而且党在一切之上。归根结底是维护权贵阶层的集体利益。在中共国能做网络监控生意的公司，多半跟官方媒体有密切合作，甚至于就是官方媒体。对网络的全方位监管会形成一种垄断，既符合经济利益，也利于监管。
-
-新闻参考链接：[https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html](https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
+
+英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
+![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
+郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+
+新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+总编: 文真
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
  
 

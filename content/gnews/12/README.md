@@ -2,31 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月29日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1803801/)
+## 拜登与普京通电话调停其在乌克兰边境的军事行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803898/)
 
-作者：香草山翻译部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-28.png)
+图片来源： www.bbc.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
+美国合众国际社12月29日报道，白宫周三说，乔·拜登总统将于周四与俄罗斯总统弗拉基米尔·普京通电话讨论“一系例议题，包括外交介入。”
+国家安全委员会发言人埃米莉·霍恩说，拜登政府将参与“咨询和协调的常规方法以应对俄罗斯在乌克兰边境的军事聚集行动。拜登总统已经与欧洲领导人通过话，拜登政府官员已经与北约，欧盟和欧洲安全与合作组织共同介入。”
+目前乌克兰估计有12万2千名俄罗斯军人被部署在离乌克兰边境124英里之内，其中有几万人是数星期前刚部署的。俄罗斯近来一直在乌克兰边境部署部队，导致西方国家担心其可能在冬天入侵乌克兰。
+上周美国国家安全顾问杰克·沙利文敦促俄罗斯减少在乌克兰边境的军事部署。沙利文说：“美国已准备好在外交层面通过多通道介入，包括双边会谈，北约-俄罗斯委员会和欧洲安全与合作组织的会谈等。”
 
+##### **新闻来源： **[Biden to have call with Putin over military build up in Ukraine](https://www.upi.com/Top_News/World-News/2021/12/29/Joe-Biden-call-with-Putin-Thursday/3801640807040/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1229text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61cd0b00ecc0b216cbb1d666)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+# ** **
 
  
 
