@@ -15,149 +15,149 @@
 
 ---
 
-### [埋](/content/gnews/1/README.md)
+### [广西“文革式防疫” 违规者游街示众](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国监管影响 滴滴第三季亏损逾300亿元人民币](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共腐败人数触目惊心 以黑治国到达新高度](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西安疫情下中共国再次承诺零感染](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [埋](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [麦卡洛：所有途径都通向疫苗而没给出中共病毒治疗方案](/content/gnews/2/README.md)
+### [作为医生，我永远不会告诉别人，他们应该接种中共病毒疫苗](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西安不安](/content/gnews/3/README.md)
+### [麦卡洛博士：口鼻净化可以帮助去除病毒颗粒](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [麦卡洛：所有途径都通向疫苗而没给出中共病毒治疗方案](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [西安不安](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [未接种中共病毒疫苗的海军陆战队员认为正遭受“政治清洗”](/content/gnews/4/README.md)
+### [与中共深度合作的VCI宣布:将疫苗接种记录数字化](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [未接种中共病毒疫苗的海军陆战队员认为正遭受“政治清洗”](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疯了：奥地利政府正在雇佣打手追捕拒绝接种新冠疫苗的人](/content/gnews/5/README.md)
+### [疯了：奥地利政府正在雇佣打手追捕拒绝接种新冠疫苗的人](/content/gnews/12/README.md)
  ` 首尔天池农场`
 
-### [2021年中共和港共当局对香港民主运动的打压变本加厉](/content/gnews/6/README.md)
+### [2021年中共和港共当局对香港民主运动的打压变本加厉](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：德国外交和体育部长表示不出席北京奥运会](/content/gnews/7/README.md)
+### [秘翻在线：德国外交和体育部长表示不出席北京奥运会](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共最新猎物——乌干达国际机场](/content/gnews/8/README.md)
+### [中共最新猎物——乌干达国际机场](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2021年12月30日:财经新闻整理](/content/gnews/9/README.md)
+### [新西兰财经G乐部2021年12月30日:财经新闻整理](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中国农村偷狗产业链](/content/gnews/10/README.md)
+### [中国农村偷狗产业链](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【樱花深度报道】中共研究苏联解体，吸取三点教训，试图避免重蹈覆辙（下）](/content/gnews/11/README.md)
+### [【樱花深度报道】中共研究苏联解体，吸取三点教训，试图避免重蹈覆辙（下）](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吉林检察机关对王立科提起公诉](/content/gnews/12/README.md)
+### [吉林检察机关对王立科提起公诉](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [广西“文革式防疫”惹争议，违规者未被定罪先游街](/content/gnews/13/README.md)
+### [广西“文革式防疫”惹争议，违规者未被定罪先游街](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【樱花深度报道】中共研究苏联解体，吸取三点教训，试图避免重蹈覆辙（上）](/content/gnews/14/README.md)
+### [【樱花深度报道】中共研究苏联解体，吸取三点教训，试图避免重蹈覆辙（上）](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾技术让立陶宛成为欧洲最大的半导体中心](/content/gnews/15/README.md)
+### [台湾技术让立陶宛成为欧洲最大的半导体中心](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [司马南狂轰联想，柳传志杨元庆是不是中共下一个目标？](/content/gnews/16/README.md)
+### [司马南狂轰联想，柳传志杨元庆是不是中共下一个目标？](/content/gnews/23/README.md)
  ` mary202064`
 
-### [文·贵天成——文贵先生谈“G-Club”（九）](/content/gnews/17/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（九）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生：西安人道灾难频发 仅一天死亡超两千](/content/gnews/18/README.md)
+### [郭先生：西安人道灾难频发 仅一天死亡超两千](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [七哥蒸馍的技巧：就是做人的技巧，一定要讲程序](/content/gnews/19/README.md)
+### [七哥蒸馍的技巧：就是做人的技巧，一定要讲程序](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [魁北克省长视死如归以身示众接种疫苗加强剂](/content/gnews/20/README.md)
+### [魁北克省长视死如归以身示众接种疫苗加强剂](/content/gnews/27/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [《立场新闻》遭港警突袭 被迫停止运营](/content/gnews/21/README.md)
+### [《立场新闻》遭港警突袭 被迫停止运营](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [韩国下调国会议员参选年龄至18岁](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [病理结果显示，93%在接种疫苗后死亡的人是被疫苗杀死的](/content/gnews/23/README.md)
+### [病理结果显示，93%在接种疫苗后死亡的人是被疫苗杀死的](/content/gnews/29/README.md)
  ` 坐看云起时`
 
-### [海上自卫队潜水艇未来将搭载国产远程巡航导弹](/content/gnews/24/README.md)
+### [海上自卫队潜水艇未来将搭载国产远程巡航导弹](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国FDA警告：快筛检测奥密克戎的结果不可靠](/content/gnews/25/README.md)
+### [美国FDA警告：快筛检测奥密克戎的结果不可靠](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国缩短无症状新冠病毒患者的隔离期限](/content/gnews/26/README.md)
+### [美国缩短无症状新冠病毒患者的隔离期限](/content/gnews/32/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [印度大规模疫苗接种计划遭医学界反对](/content/gnews/27/README.md)
+### [印度大规模疫苗接种计划遭医学界反对](/content/gnews/33/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/28/README.md)
+### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在31.271 HDO](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/30/README.md)
+### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/35/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共国西安疫情急剧恶化全城封锁](/content/gnews/31/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [文·贵天成——文贵先生谈“G-Club”（八）](/content/gnews/32/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（八）](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/33/README.md)
+### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/34/README.md)
+### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/35/README.md)
+### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/36/README.md)
+### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/40/README.md)
  ` GTV News Talk`
 
-### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/37/README.md)
+### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/41/README.md)
  ` 澳喜农场`
 
-### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/38/README.md)
+### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/42/README.md)
  ` 秘密翻译组-北美组`
 
-### [彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像 全文字版](/content/gnews/39/README.md)
+### [彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像 全文字版](/content/gnews/43/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [中共国加入世贸组织20年后的教训](/content/gnews/40/README.md)
+### [中共国加入世贸组织20年后的教训](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线: AI独角兽“商汤”赴港上市](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [香港又闻犬吠声](/content/gnews/42/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [2021/12/28 墙内世界](/content/gnews/43/README.md)
+### [2021/12/28 墙内世界](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/44/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/45/README.md)
- ` 秘密翻译组-北美组`
-
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/46/README.md)
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中南坑的共产渔夫](/content/gnews/47/README.md)
+### [中南坑的共产渔夫](/content/gnews/48/README.md)
  ` 银河勇气之星`
-
-### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/48/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/49/README.md)
  ` 秘密翻译组金融团队`

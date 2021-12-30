@@ -2,34 +2,25 @@
 ---
 
 
-## 澳洲工党猛烈抨击达尔文港租约
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803912/)
+## 印度大规模疫苗接种计划遭医学界反对
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804008/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-154.png)
-图片来源：谷歌图片
+采编/翻译编撰：文明(添草灭共)    校对编辑：硫酸羟氯喹64
 
-来自雅虎金融的消息，澳大利亚工党批评联邦政府处理达尔文港 99 年租约给一家中国公司的做法，指责这是一笔根本不应该发生的交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-6-edited.jpg)图片来源：TNH
 
-一项国防审查发现，没有国家安全理由建议联邦政府应该推翻达尔文港与中国岚桥集团签署的99 年的租约。
 
-工党国防事务发言人布兰登.奥康纳 (Brendan O’Connor) 表示，如果政府越过国防部的建议，干预的后果将会由总理承担，“达尔文港是澳大利亚的极其重要的战略资产。澳大利亚人知道这项外国私有化交易根本就不应该在莫里森先生的眼皮下发生——这是最基本的常识，”
+据美国医疗媒体【试验网新闻】12月27日报道，印度流行病学家组织反对为该国青少年大规模接种“新冠病毒”疫苗。
 
-“如果政府单方面违反国防部的建议并干预达尔文港合同，所有与之相关代价和后果将由总理承担。”
+报道称，尽管印度近期的疫情呈现消退趋势，新增感染病例和死亡人数也开始减少，但政府却开始了大规模接种疫苗的准备。总理莫迪近日宣布：从明年1月3日开始，必须对15至18岁的青少年群体接种该疫苗。
 
-据《澳大利亚人报》报道，内阁国家安全委员会已经考虑其被委托进行的审查，以重新审查 2015 年的协议，根据该协议，岚桥以价值 5.06 亿美元的交易赢得了运营该港口的竞标。
+印度【流行病学家组织 】对此则认为，盲目跟从其他国家的疫苗接种政策不仅违背科学，更是百害而无一利。同时，该国【公共卫生协会】也表示，在没有充分搜集和分析来自其他国家疫苗接种的相关数据，以评估其安全及有效性之前，反对紧急推行大规模的青少年接种计划。
 
-在北京和堪培拉之间的不断加剧的紧张局势之际，国防部长彼得·达顿 (Peter Dutton) 推动了此项审查。
+* * *
 
-政府仍在审核此事，但国防审查建议使其更难介入并推翻港口租约。
+发稿：硫酸羟氯喹64
 
-斯科特·莫里森（Scott Morrison）表示，港口租约“由前北领地政府承担，这不是联邦政府批准的租约——事实并非如此”。
-
-他还表示，政府对有关港口租约的干预只有在国防部以及安全机构改变他们对任何关键基础设施对国家安全影响的看法而提出建议时才会发生。
-
-国防部还于 2018 年 3 月对一家中国公司收购纽卡斯尔港 50% 的股份进行了审查，发现该交易没有问题。
-
-原文链接：[https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html](https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html)
+原文链接:  [https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/](https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/)
 
  
 

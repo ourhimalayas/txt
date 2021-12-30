@@ -2,21 +2,35 @@
 ---
 
 
-## 大胡子医生：把你的孩子从公立学校中带走
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1803763/)
+## 澳洲工党猛烈抨击达尔文港租约
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803912/)
 
-翻译：Rosa 视频：澳洲天好蓝
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-154.png)
+图片来源：谷歌图片
 
+来自雅虎金融的消息，澳大利亚工党批评联邦政府处理达尔文港 99 年租约给一家中国公司的做法，指责这是一笔根本不应该发生的交易。
 
-视频来源：https://www.bitchute.com/video/gRflvq7bntu9/
-12月24日， 泽连科医生在参加Alex Jones的节目时候，再次揭露邪恶势力是如何通过推行新冠病毒疫苗来大量杀死人类，并且不尽余力的压制已经被证明简单有效且安全的药物-羥氯奎和伊维菌素。
+一项国防审查发现，没有国家安全理由建议联邦政府应该推翻达尔文港与中国岚桥集团签署的99 年的租约。
 
-节目中他多次说到，请一定不要相信任何人的说法，也包括他的，但是请务必通过了解他提供的大量证据和事实去作出你自己的判断。
+工党国防事务发言人布兰登.奥康纳 (Brendan O’Connor) 表示，如果政府越过国防部的建议，干预的后果将会由总理承担，“达尔文港是澳大利亚的极其重要的战略资产。澳大利亚人知道这项外国私有化交易根本就不应该在莫里森先生的眼皮下发生——这是最基本的常识，”
 
-泽连科医生大声呼吁：请尽可能的把孩子从公立学校系统中带走，因为他们有权力在没经过你们同意的情况下就对你们的孩子们进行疫苗注射。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/hydro-doc-2.jpg)图片来源：https://www.timesofisrael.com/jewish-md-who-promoted-virus-cocktail-leaving-community-where-he-tested-it/
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
+“如果政府单方面违反国防部的建议并干预达尔文港合同，所有与之相关代价和后果将由总理承担。”
+
+据《澳大利亚人报》报道，内阁国家安全委员会已经考虑其被委托进行的审查，以重新审查 2015 年的协议，根据该协议，岚桥以价值 5.06 亿美元的交易赢得了运营该港口的竞标。
+
+在北京和堪培拉之间的不断加剧的紧张局势之际，国防部长彼得·达顿 (Peter Dutton) 推动了此项审查。
+
+政府仍在审核此事，但国防审查建议使其更难介入并推翻港口租约。
+
+斯科特·莫里森（Scott Morrison）表示，港口租约“由前北领地政府承担，这不是联邦政府批准的租约——事实并非如此”。
+
+他还表示，政府对有关港口租约的干预只有在国防部以及安全机构改变他们对任何关键基础设施对国家安全影响的看法而提出建议时才会发生。
+
+国防部还于 2018 年 3 月对一家中国公司收购纽卡斯尔港 50% 的股份进行了审查，发现该交易没有问题。
+
+原文链接：[https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html](https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
