@@ -2,19 +2,12 @@
 ---
 
 
-## 樱花灭共诗——墙国圣诞夜（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1804904/)
+## 中共冬奥会面临病毒和雾霾的双重挑战
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1805033/)
 
-作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-373.jpg)
-唱诗班禁颂，圣诞雪无声。
+12/28/2021 中共国正准备在2月举行第一个碳中性的冬季奥林匹克运动会。除了面临来自病毒的挑战，被雾霾覆盖的首都也面临着严重的风险。
 
-矇昧百年后，墙国夜不明。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-114.jpg)
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

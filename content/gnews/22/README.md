@@ -2,46 +2,25 @@
 ---
 
 
-## 国人通病:不严肃对待当下这一刻,等死混日子,待人无礼节
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1805166/)
+## 强改盘古龙头 中共自信何在
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1805217/)
 
-**郭文贵先生：**生活中所有的人，你都把当下这一刻，你都不严肃对待，几乎是全中国人。我走到世界去，中国人和非洲人最相像。就非洲人老觉得叫Kill Time英文，叫消磨时光。他们唯一的快乐就是音乐，就是大家在村里面围着草房子，转个圈，哼啊，哼啊啊唱。咱们中国人，东北叫扭秧歌，南方人叫煲汤。然后再一个打麻将，再一个就男的女的蹲地上，扯那些无聊的闲篇。就是你觉得世上最啥，就是寥寥无事，当下就是等死，混日子，完全没有时间概念的人，就是非洲和咱们中国。
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-49.jpg)
+[图片来源](https://wakwb.com/t/?containerid=2306570042B2094757D06EAAF4459A&amp;luicode=10000011&amp;lfid=231522type%3D1%26t%3D10%26q%3D%E7%9B%98%E5%8F%A4%E5%A4%A7%E8%A7%82%E9%BE%99%E5%A4%B4)
 
-而且所有中国人在生活中打交道，打麻将的人抽着烟。（仰着头，叼着烟）叫什么，叫几饼，几象，都这样。是吧，一打打几小时，打死，打心梗。全世界只有中国人打麻将能打那么长时间。你七嫂子最爱就是麻将。我回到家一看他们打麻将，永远是支持看看，我永远没学会过。他们问我意见，我到现在没弄懂，你们为什么打麻将。
+盘古大观是郭文贵先生于2008年北京奥运前主导设计和建设的，是中国唯一一个七星级酒店。
 
-反过来你就说人和人打交道，中国人生活中只要身边亲的人，近的人，几乎都没有尊重的。更不在乎穿什么衣服，没有礼的，更没有礼节。礼节两回事，礼和节。礼是我对你表现的尊重的态度。节是标准，就没标准的。
+12月29日，日本朝日TV报道了，中共强拆“盘古大观”龙头的新闻，但随后被中共要求删除了此报道。 这又成为了全世界的一个笑话！
 
-打麻将的时候，约打10次以上，基本上不光腚，就行了，穿越少越好。几乎中国人打麻将把鞋都脱下来，光着脚。那个钱“pia、pia、 pia”，数着钱，是吧，就这。多亲，多近，打麻将都能打翻脸了。
+自2017年郭文贵先生正式开启爆料革命后，不断揭露中共的邪恶本质，让世界真正了解其假丑恶。2020年6月4日新中国联邦成立后，随着在世界影响力的不断扩大，让中共愈发感到恐惧和不安。
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
+中共一直宣称以无神论为信仰，在这个时候，居然公开相信风水和迷信，把高高屹立的盘古大观龙头，在世人的见证下，硬是改成了方型。这说明了什么？一直伟大自信的党的自信在哪里？
 
-编辑整理：喜马拉雅的肉夹馍；
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-技术支持：文肺猫
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
