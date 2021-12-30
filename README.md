@@ -15,95 +15,95 @@
 
 ---
 
-### [司马南狂轰联想，柳传志杨元庆是不是中共下一个目标？](/content/gnews/1/README.md)
+### [【樱花深度报道】中共研究苏联解体，吸取三点教训，试图避免重蹈覆辙（上）](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾技术让立陶宛成为欧洲最大的半导体中心](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [司马南狂轰联想，柳传志杨元庆是不是中共下一个目标？](/content/gnews/3/README.md)
  ` mary202064`
 
-### [文·贵天成——文贵先生谈“G-Club”（九）](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（九）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生：西安人道灾难频发 仅一天死亡超两千](/content/gnews/3/README.md)
+### [郭先生：西安人道灾难频发 仅一天死亡超两千](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [七哥蒸馍的技巧：就是做人的技巧，一定要讲程序](/content/gnews/4/README.md)
+### [七哥蒸馍的技巧：就是做人的技巧，一定要讲程序](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [魁北克省长视死如归以身示众接种疫苗加强剂](/content/gnews/5/README.md)
+### [魁北克省长视死如归以身示众接种疫苗加强剂](/content/gnews/7/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [《立场新闻》遭港警突袭 被迫停止运营](/content/gnews/6/README.md)
+### [《立场新闻》遭港警突袭 被迫停止运营](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [韩国下调国会议员参选年龄至18岁](/content/gnews/7/README.md)
+### [韩国下调国会议员参选年龄至18岁](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [辽宁129户邮储存款被行长挪用 警方：与银行无关](/content/gnews/8/README.md)
+### [病理结果显示，93%在接种疫苗后死亡的人是被疫苗杀死的](/content/gnews/10/README.md)
+ ` 坐看云起时`
+
+### [辽宁129户邮储存款被行长挪用 警方：与银行无关](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [海上自卫队潜水艇未来将搭载国产远程巡航导弹](/content/gnews/9/README.md)
+### [海上自卫队潜水艇未来将搭载国产远程巡航导弹](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国FDA警告：快筛检测奥密克戎的结果不可靠](/content/gnews/10/README.md)
+### [美国FDA警告：快筛检测奥密克戎的结果不可靠](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [桥本圣子在外交抵制北京奥运期间与中共国大使玩高尔夫](/content/gnews/11/README.md)
+### [桥本圣子在外交抵制北京奥运期间与中共国大使玩高尔夫](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共声称SpaceX威胁中共太空站运行安全](/content/gnews/12/README.md)
+### [中共声称SpaceX威胁中共太空站运行安全](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [美国缩短无症状新冠病毒患者的隔离期限](/content/gnews/13/README.md)
+### [美国缩短无症状新冠病毒患者的隔离期限](/content/gnews/16/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [印度大规模疫苗接种计划遭医学界反对](/content/gnews/14/README.md)
+### [印度大规模疫苗接种计划遭医学界反对](/content/gnews/17/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [灭共者之郭氏情报站（八）12月29日版](/content/gnews/15/README.md)
+### [灭共者之郭氏情报站（八）12月29日版](/content/gnews/18/README.md)
  ` MOS Designer香草山设计部`
 
-### [上元夜与苏冠宇宴饮归途有作](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/17/README.md)
+### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵直播摘要和音频 2021.12.29](/content/gnews/18/README.md)
+### [郭文贵直播摘要和音频 2021.12.29](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在31.271 HDO](/content/gnews/19/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在31.271 HDO](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/20/README.md)
+### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/22/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [脱钩中共国，新加坡正在成为半导体巨头](/content/gnews/21/README.md)
+### [脱钩中共国，新加坡正在成为半导体巨头](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国西安疫情急剧恶化全城封锁](/content/gnews/22/README.md)
+### [中共国西安疫情急剧恶化全城封锁](/content/gnews/24/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [研究发现新冠病毒疫苗与心肌炎高度关联](/content/gnews/23/README.md)
+### [研究发现新冠病毒疫苗与心肌炎高度关联](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文·贵天成——文贵先生谈“G-Club”（八）](/content/gnews/24/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（八）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [奥密克戎使圣诞节期间的儿科医院人满为患](/content/gnews/25/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/26/README.md)
+### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/27/README.md)
+### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/28/README.md)
+### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/29/README.md)
+### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/30/README.md)
  ` GTV News Talk`
-
-### [美议员要求对中共不公平贸易行为问责](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [GTV新闻访谈简报|2021年12月29日晚](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`

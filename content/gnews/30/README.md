@@ -2,43 +2,37 @@
 ---
 
 
-## 美议员要求对中共不公平贸易行为问责
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803890/)
+## 英前外相华裔妻作节目为中共宣传洗白
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
 
-![](https://img.ntd.com/assets/uploads/2021/12/Rep.-Bill-Johnson.jpg)*美国俄亥俄州共和党众议员比尔·约翰逊(Bill Johnson)*
-来自TOYSMATRIX网站 2021年12月29日的报道，美国俄亥俄州共和党众议员比尔·约翰逊(Bill Johnson)与阿拉巴马州民主党众议员特丽·塞维尔(Terri Sewell )共同发起了一项美国两党法案，该法案旨在让中共为其不公平贸易行为负责。
-约翰逊议员对新唐人电视台(NTD)（《大纪元时报》的一个分支机构）的《国会山报导》(Capitol Report)节目表示,该法案旨在“阻止（中共）倾销假冒产品、倾销钢铁搅乱美国市场。”以及“通过其代理国”绕过制裁继续这样做。
-12月2日出台的《公平竞争法案2.0》( Level the Playing Field Act 2.0)也旨在寻求解决跨境补贴问题。约翰逊说：“许多像中共国这样的国家……对本国制造业进行补贴，使本国企业有能力把价格降低到一个美国企业无法与之竞争的水平。”
-这位议员提到了俄亥俄州玛丽埃塔市(Marietta)一家制造公司的案例。他表示，这家小公司受到了中共国向美国倾销柔性磁铁的影响，即中共以低于合理价值的价格出售这些产品。其价格甚至不足以让该公司购买制造这些产品所需的原材料。
-这家名为玛格南磁力(Magnum Magnetics Corp)的公司向美国国际贸易委员会(U.S. International Trade Commission)提交了一份请愿书。该委员会裁定，中共国和台湾倾销柔性磁铁原料的行为，正在威胁美国的产业。因此，美国商务部的国际贸易管理局(International Trade Administration in)于2008年9月对来自中共国和台湾的柔性磁铁征收了反倾销税。
-然而，据约翰逊说，中共设法规避了这项命令。它利用越南作为代理，继续向美国市场倾销同样的产品。他说：“同样的产品又开始大量涌入美国，削弱了那些……小企业（的竞争力），迫使它们又重新开始对此展开反击。”
-约翰逊议员继续说，中共必须明白，作为“国际社会”的一部分，它应该明智行事，否则将面临严重后果。
-这位国会议员认为，由于中共对本国自由的压制，导致中共国缺乏“孕育创新和独创性的文化”，因此它（必须）依靠从美国和其他西方国家窃取的技术和创新。
-约翰逊认为，这使得中共“距离灭绝只差一代人的时间”，西方国家应该利用这一事实，在与中共国打交道时，制定明确的规则。他说，美国、英国和其他国家对2022年北京冬奥会的外交抵制行动，有助于向中共传递这一信息。
-这位共和党议员进一步指出，虽然川普政府通过解决中共在贸易领域的威胁方面“取得了一些进展”，但他担心拜登政府可能会“把注意力从此事上移开”。
-然而，约翰逊认为这是一项可以将两党联合起来的行动。
-他说：“我认为，中共问题，贸易不平衡和中共政府的挑衅行为，肯定会使共和党和民主党团结起来。”
+撰稿：纽约香草山医疗部-云豹
 
-**简评：**
-中共政府持续利用国内廉价的劳动力，并通过贸易补贴国内的企业向美国倾销产品，摧毁了美国的制造业，最终受益人是中共政权的几大家族以及与它们勾兑的华尔街大佬，而中共国老百姓却被永远奴役。这种现象并非一朝一夕，美国利益集团与中共政权一起通过压榨中共国老百姓从中获利的同时，把中共培养成足以威胁美国经济、政治安全的巨兽，这不是一日之功，也非中共政权一家之功。
-在中共的极权统治制度下，国内企业没有新技术研发能力和动力，无法开发出新产品。中共国如今的经济发展所取得的成就，都是基于盗取国外先进的技术和创新。而中共的洗脑教育也一直在扼杀中国人民的创新能力，导致中共国的很多所谓的高新技术人才只拥有知识，丧失了独创性。所以中共政权只能靠偷，骗，抢来维持其虚假的经济繁荣局面。这也是一个民族真正的危机，中共的累累罪行和以假治国的统治模式，注定了中共必将很快走向灭亡。约翰逊议员认为，中共“距离灭绝只差一代人的时间”，但是我们爆料革命跟随者确信，中共灭绝的时间会更短。
-
-新闻链接: [https://toysmatrix.com/gop-lawmaker-seeks-to-hold-china-accountable-for-its-unfair-trade-practices/](https://toysmatrix.com/gop-lawmaker-seeks-to-hold-china-accountable-for-its-unfair-trade-practices/)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR: Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
+![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
+郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+
+新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+总编: 文真
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
  
 
