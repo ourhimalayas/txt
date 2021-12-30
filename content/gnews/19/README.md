@@ -2,32 +2,45 @@
 ---
 
 
-## 秦大使采访美媒集体沉默，战狼墙内讨伐媒体自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1805819/)
+## 约克区网站乌龙数百有症状者白白等数小时
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1805832/)
 
-**【国内新闻短评】**
+作者：Jeremy Grimaldi
+翻译：HimaCoby
 
-**据网易2021年12月29日报道，驻美大使秦刚接受美媒集体采访，事后竟无一家媒体发表，只有海外中文媒体和法广新闻及一家私人网站大幅缩减内容刊登 。这一事件反应美媒体虚伪，没有自由。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ali6n-xpjxx.jpg)图片来源：微博![](https://assets.gnews.org/wp-content/uploads/2021/12/aaaaaa-1.png)**图片来源：微博**
-**短评：**
-**秦大使被美国主流媒体和资深记者采访，事过多天，竟无一家主流媒体报道，海外中文媒体和法广新闻。这一结果说明由彭博创新经济论坛举办的“炉边谈话” 彻底变成废话。墙内战狼马上讨伐美国媒体自由，质疑美媒的真实客观性。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-375.jpg)
 
-**姑且不评价谈话内容，作为“蓝金黄”重地的美国主流媒体战集体沉默，是否意味着中美关系的彻底转向？中共到底要如何肆无忌惮，才能让收买过的美媒都不买账。战狼们质疑美国或者世界媒体自由的时候，能不能先看看中共媒体自由与否。严于律己，宽于律人不是做人的美德么？战狼聚集地“铁血社区”都被永久关闭，战狼们敢网上自由发声么？疫情封锁小区的时候，敢把怨言传到朋友圈或者抱怨政府么？自己生活中遇到问题，投诉无门的时候，敢去接受媒体采访么？一群被剥夺话语权力的韭菜就不要去妄论别人家自由吵架是否大小声了。**
+数百人患有新冠症状的人，在零度以下的温度下连续等待数小时。
 
-**耐人寻味的是，冬奥会举办在即，正是大显国威的时候，美主流媒体集体失声，开始只有中美使馆和一家私人网站报道，是多么丢脸的事情，还能在国内大肆报道出来？现在，海外中文媒体又热炒这一话题。这个话题今天郭文贵先生大直播刚刚提过，中共作为回应马上出来。顺带又把班农先生和VOA阿曼达扯出来，这篇报道的目的是什么，大家心知肚明。只是中共宣传同样的陈旧招式反复使用，看客们也会厌烦。**
+54 岁的奥里特·米勒 (Orit Miller) 是来自列治文山 (Richmond Hill) 的两个孩子的母亲，她说她和她的丈夫与年仅 4 岁的孩子们一起等待，他们裹着毯子，希望能得到检测，因为他们正在经历的头痛、喉咙痛、身体疼痛和流鼻涕的症状。
 
-**文章观点仅代表作者个人，与Gnews平台无关**
+等了近两个小时，没有一丝动静，等待的大约200人，才发现没有人来。
 
-**链接**：[https://www.163.com/dy/article/GSDDN3JD053469LG.html](https://www.163.com/dy/article/GSDDN3JD053469LG.html)
+“令人沮丧的部分是网站上没有任何内容或门上的标志，”米勒说。 “真的会这么难吗？开玩笑。老实说，我不参与政治，我不抱怨，但挫败感正在增加。”
 
-素材：洛杉矶盘古农场 — Poplar
-评论：洛杉矶盘古农场 — Poplar
-审核：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+米勒说，有其他排队等候的人说，不仅仅是他们在傻等，就连政府的电话咨询也一直在指引人们前往这个当天根本就不开门的检测点。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+按照网站公布的检测点营业时间应该是从下午3点30分到晚上7点，大约在下午6点左右，可能是由于社交媒体上的愤怒反应，约克区终于意识到了这个问题，并迅速更新了其网站信息提醒该检测点当天关门。
+
+约克区发言人Patrick Casey写道：不幸的是，昨天下午我们注意到了，我们的网站上载有St. Jean de Brebeuf 学校流动COVID-19检测点将正常开放的信息……但它实际上是按计划关闭了。我们为造成的混乱向居民道歉。
+
+来源：https://www.yorkregion.com/news-story/10546394–it-s-a-joke-hundreds-wait-hours-at-closed-test-site-after-york-website-snafu/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

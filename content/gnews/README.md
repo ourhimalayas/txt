@@ -15,77 +15,77 @@
 
 ---
 
-### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/1/README.md)
+### [“金刚狼”休杰克曼确诊 曾注射3剂疫苗](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [2022安省新政即将上路:彻底告别加班 缴税优惠](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [所有的规划的东西都不是自然的东西](/content/gnews/2/README.md)
+### [所有的规划的东西都不是自然的东西](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [英国科学家在重症COVID病毒患者中测试高剂量地塞米松](/content/gnews/3/README.md)
+### [英国科学家在重症COVID病毒患者中测试高剂量地塞米松](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [芬兰前总统，诺贝尔和平奖得主二次感染中共病毒引发肺炎住院](/content/gnews/4/README.md)
+### [芬兰前总统，诺贝尔和平奖得主二次感染中共病毒引发肺炎住院](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（四）](/content/gnews/5/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（四）](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/6/README.md)
+### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们不要失礼的同时不要失去自己的自信](/content/gnews/7/README.md)
+### [我们不要失礼的同时不要失去自己的自信](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共释放新病毒？ “德尔米康(Delmicron)”变种悄然袭来！](/content/gnews/8/README.md)
+### [中共释放新病毒？ “德尔米康(Delmicron)”变种悄然袭来！](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/9/README.md)
+### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [WHO：182天内让10亿人打Covid-19疫苗（550万人/天）](/content/gnews/10/README.md)
+### [WHO：182天内让10亿人打Covid-19疫苗（550万人/天）](/content/gnews/12/README.md)
  ` wenwu`
 
-### [退休金缴费又涨了，2022涨幅远超预期](/content/gnews/11/README.md)
+### [退休金缴费又涨了，2022涨幅远超预期](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（三）](/content/gnews/12/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（三）](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年12月29日郭文贵先生直播全文字版](/content/gnews/13/README.md)
+### [2021年12月29日郭文贵先生直播全文字版](/content/gnews/15/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [“全国离婚”：红、蓝两州的马乔里·泰勒·格林建议](/content/gnews/14/README.md)
+### [“全国离婚”：红、蓝两州的马乔里·泰勒·格林建议](/content/gnews/16/README.md)
  ` wenwu`
 
-### [VICE女记者的邪恶用心](/content/gnews/15/README.md)
+### [VICE女记者的邪恶用心](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战](/content/gnews/16/README.md)
+### [【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [约克区网站乌龙数百有症状者白白等数小时](/content/gnews/17/README.md)
+### [约克区网站乌龙数百有症状者白白等数小时](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（二）](/content/gnews/18/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（二）](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [秦大使采访美媒集体沉默，战狼墙内讨伐媒体自由](/content/gnews/19/README.md)
+### [秦大使采访美媒集体沉默，战狼墙内讨伐媒体自由](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共的虚假邪恶的造假对比视频](/content/gnews/20/README.md)
+### [中共的虚假邪恶的造假对比视频](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Omicron的危害绝对超出大家的想象](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大重新引入对一日游的新冠测试要求](/content/gnews/22/README.md)
+### [加拿大重新引入对一日游的新冠测试要求](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（一）](/content/gnews/23/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（一）](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
-
-### [是谁制造了这场灾难](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [银河快讯:维吾尔学生自日本返中共国后可能已死亡；日本处罚私营企业泄露信息](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
