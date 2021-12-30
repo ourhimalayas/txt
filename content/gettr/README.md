@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 6:17 PM (UTC)`
+
+12月30号：七哥又蒙对了😹😹😹😹😹感谢国内西安防役紧急领导小组的战友们发来的信息。【柒哥揭示了太多秘密！西安的疫苗灾难细品细看，发现了吗？】
+![img](https://media.gettr.com/group44/getter/2021/12/30/18/fe9324e3-3a9a-4cf1-9e69-f8835eed4082/6bfbfc6012327e71cb9939e6feb5ad1c.jpg)
+
+---
+
 `@miles 12/30/2021 5:34 PM (UTC)`
 
 12月30日：祝：活菩萨……人类的大救星……真正的修地敬天者．屠呦呦91岁生日快乐🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (4) : <br/>💥 Why does Miles Guo so against the CCP?<br/>☘️ Miles saw all the facts and truth of the disasters happening in China. He has prepared for nearly 20-30 years to be stronger, to build more relationships and more economy power.<br/>☘️ He is #AntiCCP in his blood. #takedowntheccp <br/> <br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段四：<br/>💥 郭先生为何如此反共？<br/>💦 郭先生看到了中国发生的灾难的所有事实和真相，他已经准备了将近二、三十年，以使自己变得更强大，建立更多的关系和更多的经济力量。<br/>💦  #反共 #消灭共产党 是在郭先生血液里的 ！
 ![img](https://media.gettr.com/group46/origin/2021/12/28/20/528e5e7e-ef40-1433-332d-f3b45ed15c6c/out.jpg)
-
----
-
-`@miles 12/28/2021 8:32 PM (UTC)`
-
-#HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (3) :<br/>☘️ We will never forget the June 4th Tiananmen Square Movement. This was China trying to get its democracy, freedom, and free religions. <br/>☘️ We are different from the CCP. The CCP is just a few people who are evil. They created the Hong Kong’s trouble, the genocide in Xinjiang and Tibet. They created the CCP Virus to kill people.<br/>☘️ We put all the people who’d like China to have democracy and freedom together against the CCP. That is why we created the New Federal State of China.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段三：<br/>💦 我们永远不会忘记89六四天安门广场的运动，这是中国试图获得民主、自由和宗教自由的运动。<br/>💦 我们与中共不同，中共只是少数邪恶的盗国贼家族。他们制造香港的问题，新疆的种族灭绝，屠杀了西藏人民，制造了中共病毒来杀人。<br/>💦 我们把所有希望中国拥有民主和自由的人联合起来反对中共，这就是为什么我们成立新中国联邦的原因。
-![img](https://media.gettr.com/group13/origin/2021/12/28/20/3d1efc45-9cab-a458-81ca-8afb768546e3/out.jpg)
 
 ---
 
