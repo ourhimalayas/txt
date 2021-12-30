@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 6:46 AM (UTC)`
+
+12/29/2021 Miles Guo: Before being arrested, Liu Yazhou met with Zeng Qinghong and Wang Qishan, and both of them spoke for him. But why did Wang Qishan, who is also a son-in-law of a former senior cadre of the CCP just like Liu Yazhou, vow to defend him rather than Dong Hong, Chen Feng, Ren Zhiqiang, and Kang Dian?<br/><br/>12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话，而同为中共元老女婿的王岐山为何誓死力保刘亚洲而不是董宏、陈峰、任志强和康典呢？<br/>
+![img](https://media.gettr.com/group4/getter/2021/12/30/06/ef08b342-43a5-85dc-baef-7218e94e7d92/out.jpg)
+
+---
+
 `@miles 12/30/2021 6:40 AM (UTC)`
 
 12/29/2021 Miles Guo: The key to the military bill signed by Biden is about the secret military forces targeting the CCP, and this tactic sounds the same as how the US dealt with the Soviet Union; Wang Yi and Yang Jiechi said in a secret speech that the US is to keep fighting against the CCP and that the CCP attempts to win the “battle of the century between the US and China” by using the virus<br/><br/>12/29/2021 文贵直播：拜登签的军事法案的重点在于针对中共的秘密军事力量，这跟美国对付苏联的招儿如出一辙；王毅和杨洁篪的秘密讲话称美国要跟中共干到底，而中共妄图用病毒打赢“中美世纪之战”<br/>
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated interview with Mr. Miles Guo was deceptively edited into a less than 3-minute LIE. HBO-VICE’s vicious intention to slander and discredit Mr. Guo is clear. Here is the TRUTH.
 ![img](https://media.gettr.com/group8/origin/2021/12/27/21/99c4fc81-f157-58b5-c330-11677d186ecb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/27/2021 5:51 PM (UTC)`
-
-12/25/2021 Miles Guo: The reason why kicking off the grand broadcast on Christmas is because numerous fellow fighters requested that I accompany those fellow fighters who have been living in the darkness worldwide for the holidays<br/><br/>12/25/2021 文贵直播：文贵先生讲述为什么要进行圣诞节大直播，这是应N个战友的要求，在圣诞节陪伴全球各地生活在黑暗中的战友们<br/>
-![img](https://media.gettr.com/group40/getter/2021/12/27/17/db8a83f9-748f-3f90-375d-c648322602b9/out.jpg)
 
 ---
 
