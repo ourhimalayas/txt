@@ -2,32 +2,26 @@
 ---
 
 
-## 台湾民调显示 超7成人愿为保台而战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805214/)
+## 强改盘古龙头 中共自信何在
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1805217/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，据台湾媒体报道，台湾民主基金会于当天发布的年度例行民调显示，假如中共以“国家统一”为由武力侵犯台湾，有72%的受访者表示愿意为保卫台湾而战。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-30-下午10.19.43.png)
-消息提及，台湾中研院社会所所长陈志柔表示，所谓“台独”的定义不是由中共政府说了算，至于台湾将如何为保卫自身而战，则需要由台湾自己面对与检讨。为此，台湾未来必须要严肃面对诸如全民国防和后备军人等问题。陈志柔强调，只有台湾具有这样一个防卫意识，中共政府才不敢轻易武力犯台。
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-49.jpg)
+[图片来源](https://wakwb.com/t/?containerid=2306570042B2094757D06EAAF4459A&amp;luicode=10000011&amp;lfid=231522type%3D1%26t%3D10%26q%3D%E7%9B%98%E5%8F%A4%E5%A4%A7%E8%A7%82%E9%BE%99%E5%A4%B4)
 
-此外，本次调查也包括关于虚假信息的问题：有62%受访者认为，虚假信息对于台湾民主政治的发展危害很大。
+盘古大观是郭文贵先生于2008年北京奥运前主导设计和建设的，是中国唯一一个七星级酒店。
 
-参考链接：[中國若為統一武力犯台 民調：七成二願為保台而戰](https://cn.rti.org.tw/news/view/id/2120717)
+12月29日，日本朝日TV报道了，中共强拆“盘古大观”龙头的新闻，但随后被中共要求删除了此报道。 这又成为了全世界的一个笑话！
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+自2017年郭文贵先生正式开启爆料革命后，不断揭露中共的邪恶本质，让世界真正了解其假丑恶。2020年6月4日新中国联邦成立后，随着在世界影响力的不断扩大，让中共愈发感到恐惧和不安。
 
-总编：童谣
-编辑：童谣
-校正/发稿：呼吸的雾霾（文小呼吸）
+中共一直宣称以无神论为信仰，在这个时候，居然公开相信风水和迷信，把高高屹立的盘古大观龙头，在世人的见证下，硬是改成了方型。这说明了什么？一直伟大自信的党的自信在哪里？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

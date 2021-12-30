@@ -2,55 +2,44 @@
 ---
 
 
-## 川普传媒合并SPAC疑点重重，瑞环资本露出水面
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1805173/)
+## 防病毒关键是防止自己和家人及旁人不染病,有防护有措施
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1805192/)
 
-#### 翻译：George Warshing
-编辑：文泓
+**郭文贵先生：**你对家人最大的帮助，你就别染上，你要是有了问题，你家就全毁了；第二，你让你人家不但不染上、让你自己没染上、家人不染上，还有个最重要的事情，你要有防护，一旦染上了，我有药，我有防护，我有措施，我不乱，我有能力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-6.jpg)图片来源：墨尔本雅典娜农场设计组
+第三，你要记住，这个时候是你更重要的事情要想到别人。你不能仅照顾你家人，恰恰的你反过来，你家人被染上就是认为被你忽视掉你家人的朋友和你身边你忽视掉的人。他染上，你家人就可能被染上。你要想尽办法让你家旁边的人都不染上，你家就减少了危机。当你这么认知的时候，上天是不会让你染上的，我深信不疑。
 
+在我们Gettr，昨天办公室已经第九例了。Gettr办公室小王子是知道的，Gettr办公室跟我办公室一个玻璃之差。Jason Miller、王雁平和我，我们三个是没染上的，几乎是那几个高管全染完了。班农先生弟弟染上好过来了，妹妹癌症病人染上好过来了，他的CFO昨天染上了，PR染上了，女儿又染上了。今天早上她女儿给我发信息，感动得不得了。
 
-当地时间12月29日，据MSNBC报道，在前总统川普因“违反”服务条款而被迫离开主要社交媒体后，今年3月美联社曾报道称，他将很快推出自己的媒体平台。当时杰森·米勒告诉福克斯新闻，这位前总统准备通过他的新技术方案“完全重新定义游戏规则”。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
 
-福克斯新闻在5月份报道称，川普团队推出了一个由“数字生态系统”驱动的新“通信平台”。夸张的言辞所吹嘘的平台实际上是一个普通的博客，网站技术水平毫无新意。
+编辑整理：喜马拉雅的肉夹馍；
 
-由于乏善可陈，读者“食之无味”，这个平台推出一个月后就寿终正寝。游戏并没有被“完全重新定义”。
+字幕文件制作：小满；
 
-对此，川普和他的团队在万圣节前一周发表了相关声明，宣布成立了川普媒体与科技集团。该机构显然有创办多媒体的野心，因为它声称要与推特（Twitter）和网飞（Netflix）竞争，甚至还聘请了一位高调首席执行官——前众议院情报委员会主席德文·努涅斯。
+视频制作及上传：Cindy；
 
-虽然这很有趣，我们对于该计划幕后融资的故事的了解，才是令人称奇的地方。《纽约时报》在此公司成立一周后发表了这份报告。
+技术支持：文肺猫
 
-**这位前总统同意将他的社交媒体企业与所谓的特殊目的收购公司（****SPAC）合并**。川普因其破产和借贷违约的记录基本已被主流金融业拒之门外，这项经济活动却能为川普先生的新业务获得近3亿美元的资金。为了完成交易，**他冒险进入华尔街一个不受监管且有时甚至是阴暗的角落，与一群不太靠谱的角色合作，其中包括一家有着奇怪记录的小型中国投资公司。**
+G-News发布：小满；
 
-例如，几年前，该公司帮助创建了一家名为“阿特拉斯国际科技”（Atlas Technology International）的公司，并在证券交易委员会的文件中声称自己是一家生产纸杯蛋糕的公司。不久，**阿特拉斯提交了一份新的年度报告，称它已经从纸杯蛋糕过渡到触摸屏设备**，这未免有点离谱。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-这家公司的幕后推手——**一家名为瑞环资本（Arc Capital）的中国公司**表示，**他们还在佛罗里达州南部经营着一家智能手机销售公司，然而该公司似乎从未出售过任何东西；他们还声称拥有一家无人机软件公司，但这一公司却在没有任何员工的情况下存在着**。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**美国证券交易委员会（****SEC）仔细研究后得出的结论是，无论出于何种意图和目的，这些公司都是假的**——这是一个问题，**因为在美国，这种虚假公司不应该公开交易。**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-美国证券交易委员会进行了干预并采取了不同寻常的措施，即发出**“停止令”**，阻止这些公司公开出售股票。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-正如《华盛顿邮报》报道，来自上海的这帮人已与美国前总统和川普媒体科技集团合作。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-文件和采访显示，**这家帮助前总统川普将其新媒体公司上市的中国公司一直是联邦证券监管机构调查的目标**。调查人员表示，该公司虚报无产品员工的空壳公司，将其包装为雄心勃勃的成长型企业。根据《华盛顿邮报》对监管和法庭文件的审查，总部位于上海的投资咨询公司瑞环资本多次帮助创建或资助很少或没有收税收收入、没有客户和没有通过邮政信箱可以指认办公地点的公司。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-请记住，去年10月高调开张的川普传媒与科技集团似乎并未以任何有意义的方式存在，至少目前还没有。它既无产品，也无客户，也没有收入来源。一位证券律师[告诉](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)《华盛顿邮报》，在提到前总统的公司运营与瑞环资本间的伙伴关系时说：“这两家搞合并的都是空壳公司。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-尽管如此，共和党在上海的朋友们正在从公众那里筹集数亿美元，这些资金表面上将投向川普的媒体公司。事实上，这家媒体公司实质上根本不存在。
-所有这些事情近期已引起了美国证券交易委员会（SEC）和金融业监管局(FINRA)调查人员的兴趣。后者通常调查内幕交易之类的案件。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-所以，让我们回顾一下。川普在白宫任期内吹嘘，要对中国采取强硬态度，如今他与上海一家可疑公司合作。该公司在美国没有任何办事处，但仍在为前总统公司的第一笔融资效劳。这一切现在都面临着联邦调查，部分原因就是这家中国公司的虚假业务历史。
-由此我可以理解为什么对这位前总统的期望值很低，但这也太荒谬了。
-
-新闻链接：[Why the controversy surrounding Trump’s media venture matters (msnbc.com)](https://www.msnbc.com/rachel-maddow-show/why-controversy-surrounding-trump-s-media-venture-matters-n1286701)
-
-发布：发布
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
