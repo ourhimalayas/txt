@@ -2,50 +2,36 @@
 ---
 
 
-## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
+## 是谁制造了这场灾难
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1805702/)
 
-作者：纽约香草山翻译部 – defiance
+【**国内新闻短评**】
 
+**西部网2021年11月28日报道：谣言！网传“警务人员在全市各大街道对外出流窜人员进行严查、拘捕”为谣言**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a6la5-7mctx-4.jpg)图片来源：新华网![](https://assets.gnews.org/wp-content/uploads/2021/12/332-amq6p-x6e25.jpg)
+**短评：**
 
+**西安的疫情让我们想起：2020年病毒爆发之初，吹哨者李文亮医生“被辟谣、被认罪”的邪恶把戏。那么我们能不能怀疑西安的这次“辟谣”，是谣言真，还是辟谣真？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**快两年了这疫情咋就控制不住，没完没了的。今天是西安老百姓咋活啊？
+不让走动是不是戒严？这样老百姓的生活物资有没有保障？上班的居在家里什么时候能解封？上学的在家里上网课对高考的有没有影响？老弱妇孺有个急情况能不能及时救援？**
 
+**突然想起疫苗接种的比率这么高有必要这么大惊小怪吗？怎么对疫苗不自信了？是不是疫苗白打了？三针都打了还戒严，拘捕，重罚，是谁的错？应该惩罚研制疫苗的，把不合格的疫苗卖给了国家。惩罚老百姓不符合逻辑。**
 
+**当然“警务人员在全市各大街道对外出流窜人员进行严查、拘捕”这一通知一旦传播开来，政府是一定会出来“辟谣”的。但是，是谁制造了这场灾难？政府公安部门是不是该履行职责，一查到底，找出制造病毒的真凶。保护人民的生命财产是天职。**
 
-据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
+**文章观点仅代表作者个人，与Gnews平台无关**
 
-在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
-小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
+***新闻链接：***[http://m.cnwest.com/sxxw/a/2021/12/28/20195681.html](http://m.cnwest.com/sxxw/a/2021/12/28/20195681.html)
 
-参考链接：
-1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
-2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
+素材：洛杉矶盘古农场 — 期待明天
+评论：洛杉矶盘古农场 — 期待明天
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
