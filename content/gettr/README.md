@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 6:40 AM (UTC)`
+
+12/29/2021 Miles Guo: The key to the military bill signed by Biden is about the secret military forces targeting the CCP, and this tactic sounds the same as how the US dealt with the Soviet Union; Wang Yi and Yang Jiechi said in a secret speech that the US is to keep fighting against the CCP and that the CCP attempts to win the “battle of the century between the US and China” by using the virus<br/><br/>12/29/2021 文贵直播：拜登签的军事法案的重点在于针对中共的秘密军事力量，这跟美国对付苏联的招儿如出一辙；王毅和杨洁篪的秘密讲话称美国要跟中共干到底，而中共妄图用病毒打赢“中美世纪之战”<br/>
+![img](https://media.gettr.com/group36/getter/2021/12/30/06/eeeac7a7-d568-978d-769f-35f0e56964fc/out.jpg)
+
+---
+
 `@miles 12/30/2021 6:01 AM (UTC)`
 
 12/29/2021 Japanese media’s rare extensive in-depth report on various reasons why the CCP converted the Pangu Plaza’s dragon head-shaped building into a bird head-shaped building; this staggering move by the CCP reflects its dictatorial nature and superstition as well as the fact that Mr. Miles Guo’s revelation of the CCP’s corruption has made Xi Jinping very upset<br/><br/>12/29/2021 日媒罕见大篇幅报道分析中共将郭先生的盘古大观龙头改鸟头的诸多原因；中共这一令人咋舌的举动反映其独裁的本质和迷信以及郭先生对中共腐败的揭露让习近平非常不悦悦<br/>
@@ -150,13 +157,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12/25/2021 Miles Guo: The reason why kicking off the grand broadcast on Christmas is because numerous fellow fighters requested that I accompany those fellow fighters who have been living in the darkness worldwide for the holidays<br/><br/>12/25/2021 文贵直播：文贵先生讲述为什么要进行圣诞节大直播，这是应N个战友的要求，在圣诞节陪伴全球各地生活在黑暗中的战友们<br/>
 ![img](https://media.gettr.com/group40/getter/2021/12/27/17/db8a83f9-748f-3f90-375d-c648322602b9/out.jpg)
-
----
-
-`@miles 12/27/2021 5:50 PM (UTC)`
-
-12月27号：吃馍馍喽……
-![img](https://media.gettr.com/group15/getter/2021/12/27/17/372e5e77-8381-55b4-d7da-fdc70526e47b/out.jpg)
 
 ---
 

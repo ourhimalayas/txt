@@ -2,37 +2,25 @@
 ---
 
 
-## 英前外相华裔妻作节目为中共宣传洗白
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
+## 奥密克戎使圣诞节期间的儿科医院人满为患
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803915/)
 
-撰稿：纽约香草山医疗部-云豹
+采编：青青           编译撰稿：文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-13-edited.jpg)图片来源：CTV
 
 
+据加拿大【CTV新闻】12月28日报道，具有高度传染性的“奥密克戎”疫情在圣诞节期间的肆虐，使得本月纽约市的儿科入院人数增加了近五倍。而整个美国的儿科住院人数则在过去一周内增加了35%。
 
-英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
-![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
-郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+报道称，去年【德尔塔】变异体的平均感染率仅为17%，但近期儿童医院的病毒检测结果显示出“奥密克戎”的阳性率已高达近50%。因此，纽约州地区的医护人员对即将再次爆发的疫情忧心忡忡。
 
-新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
+据医院医生披露，所有年龄段的儿童都有感染“奥密克戎”的风险，并且该病毒变异体可能会导致儿童及成人患上“多系统炎症综合症”。目前，美国已报告了约6千起该病例，其中有52名儿童因此丧生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+* * *
 
-总编: 文真
+校对编辑，发稿：硫酸羟氯喹64
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+參考链接： [https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007](https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007)
 
  
 
