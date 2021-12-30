@@ -2,27 +2,20 @@
 ---
 
 
-## 港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1800285/)
+## 【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1801027/)
 
-**撰文/ 港台前线关注组｜发布日期/ 29/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
+#### 翻译/撰稿：zzballack
 
-香港警方国安处今晨六点出动200名军装警及便衣对《立场新闻》展开拘捕行动，警方以涉嫌违反《刑事罪行条例》第9及第10条，串谋发布煽动刊物罪拘捕六名《立场》高层或前高层，分别为53岁的前总编辑钟沛权、现任署理总编辑34岁的林绍桐、63岁的前董事周达智、63岁的前董事方敏生，以及另外两位前董事，73岁的资深大律师吴霭仪、44岁的歌手何韵诗。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1639.png)   图片来源：Reddit
+据《台湾英文新闻网》12月28日报道，在中共对立陶宛和台湾两国施加越来越大压力的情况下，立陶宛议员马塔斯·马尔代基思 (Matas Maldeikis)12月24日在推特上发布了一张立陶宛版的“坦克人”照片，以表达对台湾的支持。
 
+这张黑白照片拍摄于1991年1月发生的“立陶宛一月事件”中。1991年1月，苏联军队被派往立陶宛，试图重新吞并该国。但和台湾人一样，立陶宛人“不畏任何风险，勇敢地站出来抗议和反对压迫者”。在1月13日的暴力冲突中，苏联军队向抗议者开火，并用坦克碾压他们，导致14人死亡。当天晚上，一名手无寸铁的立陶宛男子独自站在一辆坦克前，有人立即拍下了这经典一幕。这张照片与1989年天安门著名的“坦克人”非常相似，立陶宛也将1月13日这天定为该国的自由捍卫者日（Freedom Defenders’ Day），以纪念立陶宛的争取独立运动。
 
+马尔代基思议员在推特上写道：“正如你们所看到的，无论有什么风险，立陶宛人都会毫不畏惧地站起来反抗压迫者。我们在30年前就为民主而战，现在也不会退缩。这是一张中共政权无法删除的照片。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747220143.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747262884.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FB_IMG_1640747224643-1.jpg)
-
-
-
-
-随后，国安处手持法庭手令又到《立场新闻》位于观塘楼上的办公室搜查、检取新闻材料，过程中警方在大厦外划出区域阻止靠近，并封锁《立场》办公室所在的14楼全层，同时禁止传媒拍摄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/國安處清晨上門拘六名《立場新聞》涉串謀發布煽動刊物.jpg)
-来源｜[now](https://news.now.com/home/local/player?newsId=461459)
+新闻来源：[MP posts photo of Lithuanian ‘Tank Man’ in solidarity with Taiwan](https://www.taiwannews.com.tw/en/news/4390758)
 
  
 

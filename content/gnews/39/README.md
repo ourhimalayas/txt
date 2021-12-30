@@ -2,53 +2,62 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“G-Club”（十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1804433/)
+## 40-49岁打了三针疫苗后感染率高出10.3倍
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804478/)
 
-#### 整理：BENJ1
-编辑：文泓
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/11-29.png)图片来源：墨尔本雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1859.png)
+
+国家统计局（ONS）编制了一份报告，涵盖了（14天）从11月29日到12月12日Omicron感染。该报告给出了每个疫苗接种状态下，Covid-19阳性者出现Omicron变体的概率（这些统计数据是指发生在私人家庭的感染；不包括在医院、护理院或其他公共场所报告的感染）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1861.png)
+
+以下是OMS报告（图表1b）：英国COVID-19检测阳性者中Omicron可能检测结果的模拟可能性，按筛选的人口统计学特征划分：2021年11月29日至2021年12月12日，这些数字意味着，如果你感染中共病毒，而且你已经打了3针疫苗，那么你患Omicron的可能性比一个未接种疫苗的概率高4.45倍。
+
+因此，为了找到感染Omicron的概率，对于每一类疫苗接种状态，我们必须将上述数字（中共病毒患者属于Omicron的几率）乘以感染中共病毒的几率。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1863.png)
+
+这些几率每周都由英国卫生协会（UKHSA）公布。[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1043608/Vaccine_surveillance_report_-_week_51.pdf)是第51周的疫苗监测报告（Vaccine Surveillance Report）的最新数据。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1865.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1866.png)
+
+因此，现在我们只需将总感染中共病毒病例比例乘以其中为Omicron的概率，就可以得到所有年龄组的Omicron Covid病例的概率，即疫苗接种状况（如下图）。与未接种疫苗者相比，打了两针和打了三针疫苗的人的Covid/Omicron病例率（如下图）。因此，如果你的年龄在40至49岁之间，那么目前打了两针疫苗的人只能使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了5.2倍。此外，如果你的年龄在40到49岁之间，那么打了三针疫苗的人会使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了10.3倍（这是因为Omicron病毒的感染率是10倍）。
+
+这是因为Omicron病毒可以逃避疫苗，而且中共病毒（COVID-19）疫苗会随着时间的推移逐渐损害免疫系统。事实上，你打的疫苗剂量越多，它们的损害就越大。此外，由于中共病毒有能力躲避COVID-19疫苗，而且该疫苗会损害免疫系统，因此疫苗可以防止Omicron住院和死亡的想法完全是胡说八道(情况显然是相反的)。幸运的是，Omicron的感染通常没有Delta那么严重，也没有那么致命。但似乎Omicron可能是一个完美的变体，显示出疫苗对我们的免疫系统到底有多大的破坏力。
+
+结论
+
+Omicron是“疫苗启示录”（在希腊语中意为揭开面具或启示录）。因此，由于40-49岁的打了三针疫苗的人的病例率是未接种者的10.3倍，他们的免疫系统在一般的中共病毒有效性方面肯定已经退化了（10.3-1.0）/10.3=90.3%。也就是说，他们现在只保留了未打过疫苗的人所能产生的9.7%的免疫反应。这意味着他们真正患上了打了疫苗引发的艾滋病或 VAIDS。
+
+英国卫生局的数据（UKHSA data）不再显示打了两针疫苗者的免疫系统出现每周5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1869.png)
+
+5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+
+这是第[36-51 周](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)UKHSA[疫苗监测报告](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)中的政府数据（[如下图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-304.png)）；疫苗效力是使用辉瑞的疫苗效力公式来衡量的：（未打疫苗的 病例率 – 打疫苗的病例率）/未打疫苗或打疫苗的病例率中的较大者——我们正在使用打疫苗的病例数与未打疫苗的病例数的标准化绝对比率来确定疫苗效率，这像辉瑞本身的工作一样。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1871.png)
+
+不管你怎么看，在未来几周后（1月中旬以后），许多完全接种疫苗的人的免疫系统将达到 100% 的 Omicron 类病毒衰退；或说是打三针疫苗的感染率为 100%。也就是说，所有打了三针疫苗的人百分百会感染 Omicron 或基本可以推断该新变异病毒会在打了三针疫苗的人之间传播。
+
+新闻来源：[dailyexpose.uk] [Triple Vaccinated 40-49 year olds are 10.3x more likely to catchOmicron than the Unvaccinated according to ONS and UK Gov. Figures](https://dailyexpose.uk/2021/12/29/triple-vaccinated-10-times-more-likely-to-catch-omicron/) | 发布时间：2021年12月29日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
 
 
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
-[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（七）](http://xn--g-club%28%29-foa4041fa0hta5165npik8v4a7v5adbnfa5590f9s6e8nffa/)
-[文·贵天成——文贵先生谈“G-Club”（八）](http://xn--g-club%28%29-foa4041fa0hta4237ojpar63h7v5adbnfa5590f9s6e8nffa/)
-[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1804146/)
 
-**郭文贵先生2020年10月7日直播**
-G-Club会员（手册）里边，写上了一条，每年有跟七哥一起吃饭、开会的机会，啊，每年都有。当时我说能不能不写上这条，律师说必须得写，而且必须得有免费下载七哥的歌这个功能，这是美国的法律。所以说呢，本月16号以前有一首新歌，叫《酒灭中共》。我的唐平妹妹，还有威廉王（负责）全面编曲的，非常非常棒！我相信啊，《酒灭中共》这歌出来以后，会超过所有的歌，绝对棒，绝对棒！哪天呢，买G-Club会员的就可以免费下载这个歌，听这个歌。然后每年，G-Club会员还跟七哥一次吃饭、见面。然后，根据你买五万的，你就是最前面一桌，买四万的就是第二排，买三万的第三圈，买两万的是第四圈，买一万的，是最后面那一圈。这是美国的规矩，你必须按这个来，这叫“公平原则”。然后呢，谁（要和七哥）照相？也必须照相，还得让录像，随便照随便录，单独照相得抽签。这就是G-Club。
 
-**郭文贵先生2020年10月12日盖特**
-就是说，要在明天我要有个直播。希望明天或者后天直播，就是关于G-club、G-fasion上线。我不能说的话，我不能做的事，得和我身份厘清啊。
-首先大家记住，那G-club充1万你买了，（未来）变成2万、3万、4万都没问题的，你都可以往上变、升级，随时可以升级，这是一个；第二个，G-club，这回买，没有任何所谓投资，它不叫投资，叫Save your money，节约钱；也不存在所谓G-fashion，这股票绝对没有啊，没有啊，绝对没有啊，而且大家知道我在G-fashion、G-club没有任何股权，也没有任何股权关系，所以明天，或者后天直播得说一下。
 
-**郭文贵先生2020年10月13日直播**
-今天的直播是在聊G-Club、G-Fashion、还有我们的爆料革命、新中国联邦的相关事宜。我骄傲地宣布，咱们的G-Fashion和G-Club会在未来的72小时正式上线。今天这个直播，文贵和战友们来聊一聊G-Club和G-Fashion的最终概念，最终概念这个词不对吧，应该（是）**基本概念**。有个人的聊天、也有正式的法律声明。为了明确起见，官方的正式声明会在G-TV平台上以书面形式公布。咱已经公布完了啊。
 
-请大家一定记住，新中国联邦和爆料革命不强求、不强迫你参与任何商业行为，更不允许、也没有授权任何人、任何组织向你募捐、敛财，或以他们的名义要求你参与任何商业活动。**我们的爆料革命不掺杂任何经济、商业诉求。我们追求的灭共之正义事业都应该和你的经济及商业决定严格的区分开来**。这一逻辑同样适用购买G-Clubs会员、及购买G-Fashion商品上。
 
-作为成年人，不管是买G-Club都要是成年人，成年人！大家记住，不成年你可千万别掺乎这事。**作为成年人，你必须首先要综合考虑你自己的财务能力和其他相关因素**；其他相关因素，大家要记住这有很多方面，**然后你才可以作出自己的消费决定**。消费决定!记住这词，消费、消费，OK！消费决定，消费、消费，这是消费。说了这些，作为G-Club和G-Fashion的发言人，我现在骄傲并高兴地和大家聊一聊G-Club和G-Fashion最终上线的形式，也聊一聊我的角色。还有哪些是我能负责的，那些是我不承担责任的。关键要记住我不承担责任的，战友们，你们得好好记住这个。
-
-在过去的几个月里，这个设计团队，就这个G-Fashion和G-Club的设计团队、专业人士团队、还有律师团队，一直都在勤勤恳恳地工作。这咋像共产主义、共产党啊？以便给大家展示，可以给其会员带来世界顶级、独家时尚机会的俱乐部。请大家注意，你们会看到，因为现在离G-Club、G-Fashion上线时间越来越近了。我们之前就G-Club和F-Fashion讨论的一些理念，已被后续的讨论及思维所取代、替代。
-
-如果我过去说过的什么、或者现在说的什么，有任何与现在这个声明有冲突的地方，我会随后在G-TV平台上公布正式的声明，请以正式的声明为准，和声明有冲突的不作数。还是那句话，只要是跟那个法律有冲突的，和现在我的声明有冲突的，和那个G-Club、G-Fashion网站上公布的那个条款有冲突的，全当放屁，全都不算数。
-
-还有，如果你听到其他人说我，郭文贵对G-Club或G-Fashion说了什么或承诺了什么，请直接去读读我的正式声明，或者再来看看这段视频。同样的道理，也适用社交媒体，请再去读读我的正式声明。我也在这里提醒、警示大家，中共及其同伙一定会试图混淆视听，在我们中间制造麻烦和不信任。
-资料来源：郭文贵先生GTV、盖特直播视频
-
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
