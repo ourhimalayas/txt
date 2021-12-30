@@ -2,32 +2,53 @@
 ---
 
 
-## “金刚狼”休杰克曼确诊 曾注射3剂疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1806076/)
+## 加拿大重症医师：从未见过此番情境请留在家里
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806136/)
 
-**撰稿：日本东京方舟农场  老孙**
+作者：CTV News
+翻译：HimaCoby
 
-12月29日，著名美国演员、“金刚狼”扮演者休杰克曼在推特上宣布，已确诊感染奥密克戎病毒。本月5日他刚对外公布自己接种了第三针加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-359.png)
 
-据中新网报道，休杰克曼在影片中说：“我想让你们知道，我今早病毒筛检结果呈阳性。我的症状就像感冒，喉咙痒和一点流鼻涕，但我很好。我会尽全力做任何可以做的事，让自己尽快恢复，痊愈之后我会尽快返回舞台。”他在影片结尾呼吁各界：“保持安全、保持健康、心存善念”。
+自2020年3月开始，疫情已经持续了将近两年时间。很多人感到疲惫，这种疲倦感已经几乎影响了每一个人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211229000732.jpg)休杰克曼染新冠病毒。（达志影像／shutterstock提供）
+但是很少人会比重症病房里的医生们更累更有负担。
 
-据报道，休杰克曼主演的《欢乐音乐妙无穷》上周起试演，女主角萨顿福斯特（Sutton Foster）23日就因确诊缺席，当时休杰克曼还被赞独挑大梁，如今他也确诊。
+Dr. Amelie Boisclair是魁省一名重症病房内的医师。在疫情期间她一直在Twitter上分享自己的经历，并表示，自己从未见过这种情况。
 
-中共病毒大流行近两年来，汤姆汉克斯（Tom Hanks）、巨石强森（Dwayne Johnson）、罗伯派汀森（Robert Pattinson）等知名影星相继确诊，休杰克曼成为最新一位因感染病毒而工作中断的明星。
+“我们本该习惯了这种有压力的生活，我们经常要经历生活的戏剧性，也经常看到有人失去生命，但是像现在这种日复一日不间断的压力，是从来没有过的，” 她说道。
 
-*参考链接：*
+在自己的经历中，让Boisclair感到最艰难的部分就是不被外界理解。
 
-[休杰克曼染新冠病毒 自称症状轻微如感冒](https://www.chinatimes.com/cn/realtimenews/20211229000731-260404?ctrack=mo_main_recmd_p04&amp;chdtv)
+“我可以看到我们医护人员的处境非常艰难，有时候我们也会哭，但当你走到外面的世界，看到外界的人们好像疫情已经结束了一样，你就会质疑自己，” 她说道。
 
-* * *
+“也许因为我是在重症病房负责医护新冠患者，我没有看到其他人的生活是怎么样的。但是，新冠疫情真的还在继续，我希望我可以闭上眼睛，让这一切过去，但是，事实不是这样的，疫情还在那里。”
 
-*素材采编：老孙*
+Boisclair表示，政府应该从疫情一开始的时候就更好地和民众交流。
 
-*编辑：文顺*
+“如果人们见到我看到的情景，他们是否会理解我们呼吁他们做的事？我们只是希望人们能够留在家里，” Boisclair说道。
 
-*发布：Ranting*
+据报道，魁省周三时新冠患者的住院人数增加了102人，目前已有804名新冠患者住院。其中重症病房有122人，比昨天增加7人。卫生厅表示，该省医院最多只有825张普通床位，重症病房床位有210个。
+
+近期受Omicron毒株影响，加拿大多地区感染人数激增，部分医院的住院病例也有所增涨。
+
+来源：https://montreal.ctvnews.ca/i-wish-i-could-close-my-eyes-and-make-it-go-away-quebec-icu-doctor-on-working-through-omicron-1.5722384
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
