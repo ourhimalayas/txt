@@ -2,26 +2,20 @@
 ---
 
 
-## 美国缩短无症状新冠病毒患者的隔离期限
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804018/)
+## 七哥蒸馍的技巧：就是做人的技巧，一定要讲程序
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1804134/)
 
-采编：文莱        编译撰稿：Quitman
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1838.png)
+蒸馍，500g的面，350g的水，放5g-10g的盐，6g酵母，盖住醒发7个小时。放更热的地方大概2-3个小时。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-16.jpg)图片来源：DE
+第二次醒发后要揉，起码一个小时。500g面里接200g面，再醒发几十分钟。
 
+最后上锅蒸。蒸馍一定要干净。
 
-据加拿大自媒体【后千禧年】12月27日报道，【美国疾控中心】当天已正式建议将感染“新冠病毒”人员及其密切接触者的隔离限制期限从10天减至5天。
-
-【美国疾控中心】官员对此表示：由于越来越多的证据表明，病毒感染者在症状出现前后五天内的传染性最强，加之“奥密克戎”导致的病症可能会比包括“德尔塔”在内的早期变种病毒更为轻微，因此当局做出了以上缩短隔离期限的决定。
-
-此外，为了缓解医护工作人员的严重短缺状况，【美国疾控中心】放松了之前曾要求那些“新冠病毒”检测呈阳性的医疗工作者，居家隔离10天的措施。并同时强调，以上的新规定并非命令，仅为各州政府和地方官员以及私人雇主提供的医学建议。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-参考资料： [https://thepostmillennial.com/breaking-cdc-cuts-covid-quarantine-to-5-days-for-asymptomatic-people](https://thepostmillennial.com/breaking-cdc-cuts-covid-quarantine-to-5-days-for-asymptomatic-people)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
