@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 3:24 AM (UTC)`
+
+12/29/2021 Miles Guo: Qin Gang smears Bannon, Miles Guo, and his followers as the cause of the tension between the US and the CCP, which will surely cause the war between the two if they were not taken out; Qin Gang also denies the CCP’s “Wolf Warrior diplomacy”, calling it “dancing with the wolf (i.e., the US)” and shameless lying that it’s the Han Chinese who have suffered the genocide committed the Uyghurs<br/><br/>12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系，如不除之，必将导致中美一战；秦刚还否认“战狼外交”，竟称“与狼(指美国)共舞”，并无耻地谎称汉人遭新疆人大屠杀<br/>
+![img](https://media.gettr.com/group48/getter/2021/12/30/03/a9cf690b-a3e9-fbf4-4f82-acbf27950f41/out.jpg)
+
+---
+
 `@miles 12/30/2021 12:57 AM (UTC)`
 
 12/29/2021 Miles Guo: The bills signed by Biden recently are of great significance in making the CCP realize that the adversarial relationship between Communist China and the US is unalterable. Although this has fostered the CCP’s ambition to invade Taiwan and dominate the world, it is a great gift from God for the New Federal State of China to take down the CCP<br/><br/>12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的，这虽助长了中共打台湾和称霸世界的野心，但却是老天给新中国联邦灭共的一份大礼<br/>
@@ -150,13 +157,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12/25/2021 Miles Guo: Tragic incidents are happening every day in Communist China; those who have a true spirit of exploration and critical thinking are treated as psychos in Communist China. Not only do our children have no hope in Communist China, but Xi Jinping’s children are no exception as well<br/><br/>12/25/2021 文贵直播：惨绝人寰的景象在中共国司空见惯；真正具有探索和批判精神的人在中共国会被当成精神病，不但我们的孩子们在中共国没有任何希望可言，习近平的孩子也不例外！<br/>
 ![img](https://media.gettr.com/group41/getter/2021/12/27/17/305c6023-ba68-c3bc-2790-070cf79403a4/out.jpg)
-
----
-
-`@miles 12/27/2021 5:20 PM (UTC)`
-
-12月27号：尊敬的战友们好！共产党内部的政治斗争和经济的即将崩溃，已经成了美国和欧洲利用的工具．<br/>他们越来越相信消灭共产党的最好方式……正在发生中，没有人能改变共产党正在加速走向灭亡……新中国联邦一定要强大经济．媒体．伟大时刻即将到来……
-![img](https://media.gettr.com/group22/getter/2021/12/27/17/a29f9526-37da-5718-ddc5-9c0cfaff4759/out.jpg)
 
 ---
 

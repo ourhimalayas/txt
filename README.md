@@ -15,91 +15,91 @@
 
 ---
 
-### [微博再审个人主页 从内容到头像都要合党意](/content/gnews/1/README.md)
+### [西安疫苗灾难是中共造成的人祸](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [微博再审个人主页 从内容到头像都要合党意](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/2/README.md)
+### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险](/content/gnews/3/README.md)
+### [著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [美国的新冠肺炎病例创历史新高](/content/gnews/4/README.md)
+### [美国的新冠肺炎病例创历史新高](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [英法两国新增确诊中共病毒人数再创新高](/content/gnews/5/README.md)
+### [英法两国新增确诊中共病毒人数再创新高](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大阪发生日本首个中共病毒Omicron变种聚集性感染](/content/gnews/6/README.md)
+### [大阪发生日本首个中共病毒Omicron变种聚集性感染](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医药巨头辉瑞携手中共，与支付宝平台深度合作](/content/gnews/7/README.md)
+### [医药巨头辉瑞携手中共，与支付宝平台深度合作](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [焦点：揭下中共大外宣的画皮！](/content/gnews/8/README.md)
+### [焦点：揭下中共大外宣的画皮！](/content/gnews/9/README.md)
  ` 丁过`
 
-### [拜登签署法案邀台湾加入环太平洋军演，增强不对称防御能力](/content/gnews/9/README.md)
+### [拜登签署法案邀台湾加入环太平洋军演，增强不对称防御能力](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/10/README.md)
+### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭先生盖特直播：一切付出都值得](/content/gnews/11/README.md)
+### [郭先生盖特直播：一切付出都值得](/content/gnews/12/README.md)
  ` GTV News Talk`
 
-### [日本大幅增加国防预算以因应中共威胁](/content/gnews/12/README.md)
+### [日本大幅增加国防预算以因应中共威胁](/content/gnews/13/README.md)
  ` GTV News Talk`
 
-### [比利时将调整政策允许剧院和电影院重新开放](/content/gnews/13/README.md)
+### [比利时将调整政策允许剧院和电影院重新开放](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [被封杀和开除的人大退休教授周孝正：说话是我的尊严](/content/gnews/14/README.md)
+### [被封杀和开除的人大退休教授周孝正：说话是我的尊严](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12.28日郭先生盖特小视频内容](/content/gnews/15/README.md)
+### [12.28日郭先生盖特小视频内容](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记——西安疫情真相](/content/gnews/16/README.md)
+### [大直播后记——西安疫情真相](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [许家印表态“决不允许恒大任何一个人躺平”](/content/gnews/17/README.md)
+### [许家印表态“决不允许恒大任何一个人躺平”](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [俄罗斯常驻欧盟代表采访录（六）认证北溪2号](/content/gnews/18/README.md)
+### [俄罗斯常驻欧盟代表采访录（六）认证北溪2号](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [2021，全球言论自由严酷的一年](/content/gnews/19/README.md)
+### [2021，全球言论自由严酷的一年](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯常驻欧盟代表采访录(五）欧盟天然气危机](/content/gnews/20/README.md)
+### [俄罗斯常驻欧盟代表采访录(五）欧盟天然气危机](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像 全文字版](/content/gnews/21/README.md)
+### [彻底揭露HBO Vice险恶的攻击——HBO Vice 采访郭文贵先生全过程无剪辑录像 全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年12月29日文贵先生直播小飞象大雨围城速记](/content/gnews/22/README.md)
+### [2021年12月29日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [研究显示：美国接种“中共病毒”疫苗致死人数被严重低估](/content/gnews/23/README.md)
+### [研究显示：美国接种“中共病毒”疫苗致死人数被严重低估](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒大流行的11个弥天大谎-下半部](/content/gnews/24/README.md)
+### [中共病毒大流行的11个弥天大谎-下半部](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英国安全部长将俄罗斯和中共国列入敌对国家行列](/content/gnews/25/README.md)
+### [英国安全部长将俄罗斯和中共国列入敌对国家行列](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒大流行的11个弥天大谎-上半部](/content/gnews/26/README.md)
+### [中共病毒大流行的11个弥天大谎-上半部](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性](/content/gnews/27/README.md)
+### [接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [中共国加入世贸组织20年后的教训](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/29/README.md)
+### [中共国加入世贸组织20年后的教训](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [佛罗里达州计划调查该州对中共国公司的投资](/content/gnews/30/README.md)

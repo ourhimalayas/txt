@@ -2,21 +2,31 @@
 ---
 
 
-## 大胡子医生：把你的孩子从公立学校中带走
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1803763/)
+## 微博再审个人主页 从内容到头像都要合党意
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803764/)
 
-翻译：Rosa 视频：澳洲天好蓝
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-35.jpg)微博再审个人主页 从内容到头像都要合党意 网络图片
+据美国之音12月29日报道，中共国社交媒体微博自12月起整治用户昵称后，日前又发出公告，将针对个人主页的简介或头像中带有低俗词汇的内容进行第二阶段排查。不只网友的发言内容必须要符合中共立场，连网民头像的个性表现也要符合党的要求。这不仅使得网民的发言毫无言论自由外，也意味着社交平台将承担更高的风险，运营成本大幅提高。受益的是网络监控公司，预料将会在中共国成热门生意。
+
+中共从2015年起就开始管控网路舆论，如今整治力道更强、更全面。截至11月，微博被处罚44次，累计罚款人民币1430万元。豆瓣累计被罚20次，累计处罚人民币900万元。微博清剿了600多万条贴文，封杀112万个帐号；豆瓣已删除讯息2万2238条，禁言990个帐号。彭帅与张高丽的性丑闻是重要的背景因素，中共认为社交平台没有及时拦截，任其大量散布造成对党和国家的伤害，甚至对北京冬奥会都产生了巨大的影响。
+
+中共就是为了达到一种思想控制：党是唯一的，而且党在一切之上。归根结底是维护权贵阶层的集体利益。在中共国能做网络监控生意的公司，多半跟官方媒体有密切合作，甚至于就是官方媒体。对网络的全方位监管会形成一种垄断，既符合经济利益，也利于监管。
+
+新闻参考链接：[https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html](https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-视频来源：https://www.bitchute.com/video/gRflvq7bntu9/
-12月24日， 泽连科医生在参加Alex Jones的节目时候，再次揭露邪恶势力是如何通过推行新冠病毒疫苗来大量杀死人类，并且不尽余力的压制已经被证明简单有效且安全的药物-羥氯奎和伊维菌素。
+编辑：【英国伦敦喜庄园编辑部】
 
-节目中他多次说到，请一定不要相信任何人的说法，也包括他的，但是请务必通过了解他提供的大量证据和事实去作出你自己的判断。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-泽连科医生大声呼吁：请尽可能的把孩子从公立学校系统中带走，因为他们有权力在没经过你们同意的情况下就对你们的孩子们进行疫苗注射。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/hydro-doc-2.jpg)图片来源：https://www.timesofisrael.com/jewish-md-who-promoted-virus-cocktail-leaving-community-where-he-tested-it/
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
