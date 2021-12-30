@@ -2,33 +2,122 @@
 ---
 
 
-## 疯了：奥地利政府正在雇佣打手追捕拒绝接种新冠疫苗的人
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1804249/)
+## 西安不安
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1804289/)
 
-翻译：坤哥
-校对：zzballack
-上传：无明逆流
+**作者：**英喜农场 修罗闻道
+[![](https://express.adobe.com/page/9GgchX04gYfvB/images/CA3F2D9C-3D75-40FA-B89F-CC0F5B5D2A58.png?asset_id=F761CB9E-07E4-4499-B504-F141BF49A7A3&amp;size=1024)](https://express.adobe.com/page/9GgchX04gYfvB/images/CA3F2D9C-3D75-40FA-B89F-CC0F5B5D2A58.png?asset_id=F761CB9E-07E4-4499-B504-F141BF49A7A3&amp;size=1024)*（图片来源：RFA）*
+你听到救护车在街道呼啸了吗
 
-据《每日曝光》（Daily Expose）12月27日报道，为确保其国民在新冠“大流行”中的安全，奥地利政府正在雇佣杀手来追捕拒绝接种疫苗者。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22-17.jpg)图片来源：原新闻
-民众几乎没有选择：这支被奥地利媒体称为 “检查员 “的军队，将负责执行该国新的强制性疫苗政策。那些拒绝接种新冠疫苗的人将面临巨额罚款。
+你看到家门被人焊死了吗
 
-据报道，拥有20万人口的奥地利林茨市（Linz）处于这一暴政计划的最前沿，因为它目前的新冠疫苗接种率约为63%，被认为”偏低”。
+你收到限行的禁令了吗
 
-记者Blick报道说：”林茨市现在想雇佣一些人来追捕拒绝接种者”。
+下一顿的食物
 
-被雇佣的检查员将检查 “那些未接种者是否真的付出了代价”。这意味着他们将检查未接种者是否真的因未接种新冠疫苗而支付了需缴纳的罚金。
+该如何获取
 
-对于那些愿意代表政府与邻居和警察作对的人来说，这份工作的报酬很高。作为检查员，每年将获得14次工资，每次2774欧元（约合2348英镑），这相当于每年38836欧元（约合32872英镑）。
+你还相信它们说过的谎言吗
 
-报道说：”除了收缴罚款外，这项工作还要负责其它一些事项，比如制定刑事命令以及处理上诉。另外，工人需要 “弹性上班”，并同意大量加班。”
+网络上还能说真话吗
 
-奥地利公民是唯一有资格从事这些工作的人，他们都必须完全接种新冠疫苗或从新冠病毒感染中 “完全康复”，才能获得报酬。
+你们都种上毒苗群体免疫了
 
-强制疫苗的运动愈演愈烈，邪恶的政权不惜采用各种手段，逼迫民众就范。哪里有压迫哪里就有反抗，各国民众反对强制疫苗的呼声也越来越高。新中国联邦和爆料革命将真相揭露，引领世界觉醒。相信不久的将来，这个荒唐的疫苗强制令定会被禁止！
+你们的大城市
 
-原新闻：[Austria is Hiring Hitmen to Track Down Covid-19 “Vaccine Refusers”](https://dailyexpose.uk/2021/12/27/austria-is-hiring-hitmen-to-track-down-covid-19-vaccine-refusers/)
+怎么封了
 
+西安的古城可还有千年的老树
+
+风起风落、沙来沙往
+
+见证了多少生灵涂炭
+
+唯有活着的人
+
+记性不长
+
+千万人之都如圈羊
+
+疫苗来了
+
+收割一波
+
+百姓欢呼雀跃
+
+封城来了
+
+高物价收割一波
+
+百姓咬牙坚持
+
+无耻的人都赚翻了
+
+核酸得做全民的
+
+再收割一波
+
+百姓彻夜长龙
+
+一针又一针
+
+一波再一波
+
+总有一波榨干你
+
+终有一针毒死你
+
+你们如羊般被驱赶
+
+如韭菜般被收割
+
+唯唯诺诺
+
+战战兢兢
+
+镰刀与吸血鬼
+
+不来榨取
+
+天理不容
+
+这千年前的不夜城
+
+繁华与倔强
+
+化作一把飞尘
+
+只留忧伤
+
+这文明下的现代城
+
+不过是染透红旗的滴血岭
+
+哀嚎与屈辱
+
+怎不能是爆发的引雷
+
+难安的西安醒来吧
+
+濒死的羊群
+
+也可愤吼一片
+
+往中原
+
+去北上
+
+直踏金銮殿
+[![](https://express.adobe.com/page/9GgchX04gYfvB/images/124F4CB3-BB52-4D75-B709-54617D23AD8E.jpg?asset_id=B8B2FEE5-FA43-4195-9D6A-0F8D468BF475&amp;size=1024)](https://express.adobe.com/page/9GgchX04gYfvB/images/124F4CB3-BB52-4D75-B709-54617D23AD8E.jpg?asset_id=B8B2FEE5-FA43-4195-9D6A-0F8D468BF475&amp;size=1024)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*校对：文明明 | 审核：仙女儿-文善 | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/9GgchX04gYfvB/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/9GgchX04gYfvB/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
