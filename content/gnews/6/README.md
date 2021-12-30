@@ -2,34 +2,21 @@
 ---
 
 
-## 著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1803761/)
+## 大胡子医生：把你的孩子从公立学校中带走
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1803763/)
 
-翻译：波士顿五月花  冲天一怒
+翻译：Rosa 视频：澳洲天好蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-40.jpg)https://childrenshealthdefense.org/
-Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns
 
-辉瑞和莫德纳mRNA 疫苗增加成为衡量人们心脏病风险的常用指标。这是根据心脏病学家史蒂夫‧冈德里博士最近在《循环》杂志上发表的“警告”得出的结论，他被称为婴儿心脏移植手术的先驱。该分析在美国心脏协会最近的会议上被提出。
+视频来源：https://www.bitchute.com/video/gRflvq7bntu9/
+12月24日， 泽连科医生在参加Alex Jones的节目时候，再次揭露邪恶势力是如何通过推行新冠病毒疫苗来大量杀死人类，并且不尽余力的压制已经被证明简单有效且安全的药物-羥氯奎和伊维菌素。
 
-冈德里表示：大多数患者出现的显著变化意味着他们患上新型急性冠状动脉综合症的风险更高，如心脏病发作。部分分析指出：我们得出结论，mRNA 病毒疫苗会显著增加心肌的内皮炎症和 T 细胞的渗透，并且可能造成我们观察到的疫苗接种后增加的血栓、心肌炎症和其他血管病症。
+节目中他多次说到，请一定不要相信任何人的说法，也包括他的，但是请务必通过了解他提供的大量证据和事实去作出你自己的判断。
 
-冈德里解释说：最近，随着辉瑞和莫德纳mRNA中共病毒(COVID-19)疫苗的出现，大多数患者PULS(蛋白质不稳定病变特征测试)分值的显著变化变得十分明显。
-
-据报道，在接种中共病毒(COVID-19)mRNA 疫苗后，已报告了数千例与心脏相关的损伤案例。这些损伤导致心脏病变的形成和发展，可能变得不稳定和破裂，从而导致心脏事件。蛋白质不稳定病变特征测试衡量从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，提供身体免疫系统对动脉损伤的反应的测量。
-
-科学家们已经确定了中共病毒(COVID-19)疫苗在包括年轻人在内的一些患者身上产生的无数与心脏和血液有关的影响。与疫苗相关的不良事件包括由血栓形成的血块和称为心肌炎和心包炎的心脏炎症。
-
-美国疾控中心和食品药物管理局表示，他们推荐给民众的疫苗是安全有效的，带来的益处大于已知的风险。随着越来越多的人选择接种疫苗，“益处”将在几年内显现。
-
-新闻来源: [Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/)
-
-* * *
-
-*素材来源：时空旅行者*
-
-*编辑**& 发布：jamie(文胤)*
-
+泽连科医生大声呼吁：请尽可能的把孩子从公立学校系统中带走，因为他们有权力在没经过你们同意的情况下就对你们的孩子们进行疫苗注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/hydro-doc-2.jpg)图片来源：https://www.timesofisrael.com/jewish-md-who-promoted-virus-cocktail-leaving-community-where-he-tested-it/
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
