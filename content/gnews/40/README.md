@@ -2,69 +2,64 @@
 ---
 
 
-## 全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1804973/)
+## 12/30/2021 国际财经快讯：今年美股IPO规模创纪录，如今市场疯狂抛售；2021年，加密货币最疯狂的一年
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1804993/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0-10.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2021年 12月30日）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021230-1.jpg)[图片来源](https://cn.nikkei.com/industry/itelectric-appliance/47176-2021-12-30-14-19-33.html)
+**1.今年美股IPO规模创纪录，如今市场疯狂抛售**
 
-**一，全球疫情基本数据**
-感染总数：2.84310765亿（日新增101.5414万，14天增幅+62%）
-死亡总数：541.9449万（日新增 6,205人，14天增幅–14%）
-每万人感染人数：439.6040人（除中国外）
+[2021年美国市场首次公开募股(IPO)规模创历史最高纪录，但背后隐约可见一个较灰暗的事实：高成长股年底遭遇抛售后，今年在美国上市的公司中有三分之二目前股价低于IPO价格。2021年，传统IPO交易融资规模为有史以来最高，初创公司创始人和早期投资者试图利用高企的估值水平套现。今年前八个月，新上市股票纷纷上涨。根据Dealogic的数据，11月份，2021年上市股票平均涨12%。但到12月下旬，它们的股价比IPO价格低9%。](https://cn.wsj.com/articles/%E4%BB%8A%E5%B9%B4%E7%BE%8E%E8%82%A1ipo%E8%A7%84%E6%A8%A1%E5%88%9B%E7%BA%AA%E5%BD%95-%E5%A6%82%E4%BB%8A%E5%B8%82%E5%9C%BA%E7%96%AF%E7%8B%82%E6%8A%9B%E5%94%AE-11640835340)
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
+**2.2021年，加密货币最疯狂的一年**
 
-**三，澳洲疫情和“疫苗”数据**
-感染总数：362,598（今日新增 21,346人）
-死亡总数：2226人
-每万人感染人数：131.8249人
-“疫苗”毒针注射总数：42,438,427  （今日新增148,974针）
-第二针“接种”：1882.4390万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.3%
-16岁以上人口接种至少两剂疫苗的比例：91.3%
+[伦敦，12月30日（路透社） – 比特币接近70，000美元，价值数十亿美元的”模因币”，华尔街上市和全面的中国镇压：2021年是加密货币迄今为止最疯狂的一年，即使按照该行业的波动标准也是如此。](https://www.reuters.com/markets/us/yearender-year-doge-2021-cryptos-wildest-year-yet-2021-12-30/)
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-356.png)
-今日澳大利亚病例新增再创新高，跨越两万大关。昨天我们提到了澳洲影星“金刚狼“的扮演者休·杰克曼（Hugh Jackman）也不幸在美国感染了中共病毒，而他在20多天前刚刚接种了加强针。同样，澳洲12岁以上人口的接种率也已经超过了90%，看看澳洲的疫情曲线，可以说明“疫苗”接种在控制疫情方面是彻头彻尾的失败。
+[数字资产今年年初，大大小小的投资者纷纷涌现。比特币从1月1日起飙升超过120%。到4月中旬创纪录的近65，000美元。推动它的是来自机构投资者的大量现金，特斯拉公司（TSLA.）等大公司越来越接受。O）和万事达卡公司以及华尔街银行的日益欢迎。](https://www.reuters.com/markets/us/yearender-year-doge-2021-cryptos-wildest-year-yet-2021-12-30/)
 
-前天的疫情更新中我们提到了全球疫情曲线与灭白计划的吻合情况。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-91.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
-在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。
+[狗狗币于2013年作为比特币衍生产品推出，在5月份飙升超过12，000%至历史新高，然后在12月中旬暴跌近80%。Shiba inu引用了与狗狗币相同的日本犬种，并短暂地进入了10种最大的数字货币。](https://www.reuters.com/markets/us/yearender-year-doge-2021-cryptos-wildest-year-yet-2021-12-30/)
 
-郭先生说过，除了中共病毒之外，其疫苗是更加危险的生化武器。近日纽约时报发表了一篇研究文章，比较了各种族在注射疫苗前后的死亡率。其中的图表耐人寻味：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-60.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-28.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/5-33.png)
-上面的图表比较了美国各族裔在全民疫苗接种前后死于中共病毒的百分比。灰色的百分比数字是全民接种前的死于中共病毒的百分比，红色的则是全民接种之后的数字。仔细读图后，可以发现：各族裔普遍在较年轻的年龄段0-44岁，全民接种之后死于中共病毒的比例反而升高了。各族裔比较，尤其是白人和黑人更加明显，所有64岁以下的人口都是如此，白人和黑人比较，白人的这种趋势更加明显，从25-64岁两个年龄段，全民疫苗之后的死于中共病毒的百分比都增加了7%之多，而黑人的增加值分别是6%和2%。
+**3.日元跌至一个月低点，英镑在全球复苏贸易中稳步走高**
 
-换句话说，虽然全民接种疫苗导致所有族裔的低于44岁的年轻人因中共病毒而死亡的比例都增加了，但对于白人和黑人而言，所有低于64岁的人口都是如此，尤其是白人，在45-64这个人生中平均收入最高的阶段，接种后的相应死亡率比例的增加值高达黑人的3.5倍。
+[路透香港12月30日 – 日元跌至一个月新低，英镑周四在假日薄交易中触及六周高点，此前隔夜投资者已转向风险较高的货币和股票。日元兑美元汇率为115.05，为一个月来的最低水平，距离11月低点115.51（四年半低点）不远。](https://www.reuters.com/markets/us/yen-falls-one-month-low-sterling-solidly-higher-global-recovery-trade-2021-12-30/)
 
-由此看来，全民疫苗接种对各族裔的青壮年以下人口都有负面作用，但对于白人其负面作用则是祸及所有64岁以下的人口，而且其伤害更加明显，如果有好处的话，则更不明显（参见65岁以上年龄段各族裔曲线倾斜度的对比）。
+[哈雷还将日元的疲软归因于日本投资者在海外部署现金。英镑一度高达1.3505美元，为六周来的最佳关口，随后遇到阻力并回落。风险较高的澳元继续小幅走高至0.72585美元。欧元在周三触及一个月高点后下跌0.15%至1.333美元。](https://www.reuters.com/markets/us/yen-falls-one-month-low-sterling-solidly-higher-global-recovery-trade-2021-12-30/)
 
-以上是“灭白计划”在疫情和疫苗两方面数据的一点端倪，虽然这些谈不上什么铁证，但是足以引起思考和警惕，或许能够帮助我们对即将到来的疫苗灾难多一点思想准备。
+**4.日本个人资金加快流向海外股票投资信托**
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+[日本的个人投资者加快了投资海外股票的速度。预计2021年包含海外股票的投资信托的净流入额将超过7万亿日元，为有统计数据的2006年以来最大规模。以年轻群体为中心，将资产建设作为目的的国际分散投资动向扩大。从日本对海外投资的门槛降低，这也使得个人资金难以流入增长性逊色的日本股票。](https://cn.nikkei.com/politicsaeconomy/stockforex/47168-2021-12-30-09-14-03.html)
 
-发布：去中心化Math
+[日兴研究中心的统计显示，截至12月16日，2021年，日本除交易所交易基金（ETF）以外的海外股票投资信托的净流入额（流入额减去流出额之后的数值）达到7万9196亿日元。远远超过了创下历史最高纪录的2007年（5万6760亿日元）。](https://cn.nikkei.com/politicsaeconomy/stockforex/47168-2021-12-30-09-14-03.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**5.Northvolt成为首家开发出锂离子电池的欧洲公司**
+
+[瑞典电池制造商Northvolt周三表示，已开发出一款锂离子电池单元，为首家有此成就的欧洲公司，并计划于明年向生产电动汽车的公司发货。这块市场目前由亚洲制造商主导，由于对电动汽车的需求飙升，他们已经或正在欧洲建厂，向当地的汽车公司供应电池。](https://cn.wsj.com/articles/northvolt%E6%88%90%E4%B8%BA%E9%A6%96%E5%AE%B6%E5%BC%80%E5%8F%91%E5%87%BA%E9%94%82%E7%A6%BB%E5%AD%90%E7%94%B5%E6%B1%A0%E5%8D%95%E5%85%83%E7%9A%84%E6%AC%A7%E6%B4%B2%E5%85%AC%E5%8F%B8-11640823338)
+
+[在政府对买家提供慷慨激励下，欧洲人正以创纪录的速度购买电动汽车，帮助欧洲大陆超越中国，成为全球最大的电动汽车市场。Northvolt表示，已接获300亿美元的合同，客户包括宝马(BMW)、沃尔沃(Volvo)和其股东大众汽车(Volkswagen)。该公司说，将于2022年开始向客户交付电池。](https://cn.wsj.com/articles/northvolt%E6%88%90%E4%B8%BA%E9%A6%96%E5%AE%B6%E5%BC%80%E5%8F%91%E5%87%BA%E9%94%82%E7%A6%BB%E5%AD%90%E7%94%B5%E6%B1%A0%E5%8D%95%E5%85%83%E7%9A%84%E6%AC%A7%E6%B4%B2%E5%85%AC%E5%8F%B8-11640823338)
+
+**6.谷歌及竞争对手动用现金储备争夺云业务市场份额**
+
+[在争夺云计算市场份额的大战中，谷歌(Google Inc.)及其竞争对手正使用一件新武器：大举投资于签约使用其服务的公司。在云业务首席执行官(CEO) Thomas Kurian的带领下，谷歌一直在动用1,420亿美元现金储备，以提高对客户的吸引力。谷歌过去一年投资了Univision Communications Inc.、芝商所(CME Group, CME)等多家公司，从而赢得了多年云服务合约，价值高达10亿美元，甚至更多。谷歌是Alphabet Inc. (GOOG)子公司。Kurian自2019年起出任谷歌云业务CEO，此前他曾为甲骨文公司(Oracle Co., ORCL)效力多年。](https://cn.wsj.com/articles/%E8%B0%B7%E6%AD%8C%E5%8F%8A%E7%AB%9E%E4%BA%89%E5%AF%B9%E6%89%8B%E5%8A%A8%E7%94%A8%E7%8E%B0%E9%87%91%E5%82%A8%E5%A4%87%E4%BA%89%E5%A4%BA%E4%BA%91%E4%B8%9A%E5%8A%A1%E5%B8%82%E5%9C%BA%E4%BB%BD%E9%A2%9D-11640820635)
+
+**7.SK创新与日本德山合资在韩新建半导体材料工厂**
+
+[合资公司由双方各出资50％，在韩国东南部的蔚山市新建用于半导体晶圆清洗剂的高纯度异丙醇的工厂。2023年试运行，到2024年启动每年3万吨的量产。由SK创新的全资子公司SK geo centric负责工厂运营。](https://cn.nikkei.com/industry/itelectric-appliance/47176-2021-12-30-14-19-33.html)
+
+[两家企业发布的消息显示，德山提供制造技术，SK负责原料采购、工厂运营和营销。计划向韩国国内的三星电子和SK海力士等世界半导体巨头的工厂供货。德山在日本和台湾运营着异丙醇工厂，还将进驻半导体产量位居世界第二的韩国。德山表示“将构建满足韩国客户需求的生产体制”，认为需要在需求因半导体工厂扩建计划而持续增长的韩国展开本地化生产。](https://cn.nikkei.com/industry/itelectric-appliance/47176-2021-12-30-14-19-33.html)
+
+**8.9,000亿美元资金待机而动，初创企业估值水涨船高**
+
+[Dealogic的数据显示，特殊目的收购公司(SPAC)在10月和11月分别筹资约120亿美元，比之前三个月份分别筹得的资金额多出一倍。SPAC通过合并交易使初创企业实现上市。进入12月以来，每天平均有三家SPAC创立。虽然这不及第一季度的创纪录步伐，但数百家SPAC所持资金总额由此达到1,600亿美元左右；这些SPAC正在寻找非上市公司以在未来两年内使其上市。](https://cn.wsj.com/articles/9-000%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E9%87%91%E5%BE%85%E6%9C%BA%E8%80%8C%E5%8A%A8-%E5%88%9D%E5%88%9B%E4%BC%81%E4%B8%9A%E4%BC%B0%E5%80%BC%E6%B0%B4%E6%B6%A8%E8%88%B9%E9%AB%98-11640677843)
+
+[聚焦于快速成长型企业的风投机构和私募股权投资机构已募得但尚未动用的现金规模也在壮大。据来自Preqin的信息，本月早些时候，风险资本家可用于投资而未动用的资金余额为4,400亿美元左右，就侧重成长型投资的私募股权投资机构而言，这一数字约为3,100亿美元。](https://cn.wsj.com/articles/9-000%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E9%87%91%E5%BE%85%E6%9C%BA%E8%80%8C%E5%8A%A8-%E5%88%9D%E5%88%9B%E4%BC%81%E4%B8%9A%E4%BC%B0%E5%80%BC%E6%B0%B4%E6%B6%A8%E8%88%B9%E9%AB%98-11640677843)
+
+**9.今天截止17：10喜联储HCN价格24小时变化-9.99 %**
+
+[密翻金融组12月30日5：10报道，喜币（HCN）最后价格为32.179美元（HDO），24小时变化-9.99 %， 24小时最高值为35.858美元(HDO)，24小时最低值为30.158美元(HDO)，24小时交易量为470,361.851(HCN)。](https://himalaya.exchange/trading?coinpair=HCN/HDO)
+
+评论： HCN价格目前处于打压之中，友情提醒持币观望，不要进行参与高抛低吸的操作，以免被震荡出局，有能力就进行低吸买入单向操作，抓住机会低成本增加持币数量，如要解决生活之需，且等待明年价格飞起时，再考虑少量卖出。有币就有富足的未来，这只是刚刚开始，满打满算才2个月，许多功能还没有上线，最信郭先生所言，用时间验证。
+
+By 【秘密翻译组-金融组】
+作者：和理非
 
  
 

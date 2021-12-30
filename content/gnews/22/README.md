@@ -2,47 +2,73 @@
 ---
 
 
-## 与人打交道不能先入为主，有问题的人可能是最有价值的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1805239/)
+## 南非有望成为最早一批摆脱中共病毒威胁的国度
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1805247/)
 
-**郭文贵先生：**你一定记住跟人打交道的时候，跟团队和任何人一定要听对方说得对不对，你绝对不能基于对个人的喜好，或男女、或老少的分别，然后对这个人你就做出了一个先入为主的认识，这是灾难的结果。你比如说，小飞象和Sasha龚俩人站在一起的说话，一看到Sasha龚那脚丫子是吧，她说啥你都觉得不对的，你看着小飞象说啥都对的，那你就完了。Sasha 龚、火鸡龚，可能有时候她说得是对的，你不能看人家那个，是不是？你老想着她那样儿是火鸡，那你这事儿那就没法弄了。所以跟人打交道时候儿，不要有那种先入为主的带意识的判断，这对自己是个很灾难的结果。
+作者：香草山健身部 – 正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年11月，南非发现最新CCP变种病毒Omicron。在随后的1个多月内，随着病毒发展，并没有出现Delta类似的情况——高死亡率。12月中旬约翰内斯堡IFK学院Pieter Streicher博士发文表示，虽然Omicron比Delta病毒有较强的传染率，但是得病致死率，不增反降。这一观点，也被欧盟军队保护的中共病毒研发专家所认同。
 
-一定要尊重“真”和“真理”，要客观！这就，你看我现在我每天坐在这里，我这么多、全世界所有的团（队）、所有的事情，我说错一个事情，对另外一边人都带来巨大伤害，就像有人跟我说小王子怎么样、怎么样不行，我从来没有觉着小王子不行，我从来没有过，我自己知道有没有，王雁平她坐在这里她可以知道，我说：“他太年轻，需要历练”。
+12月23日，南非政府开始放宽了中共病毒自我隔离的要求：
+1. 与确诊的 Covid 病例接触过的人如果没有表现出任何症状，则不再需要隔离；
+2. 他们只需要监测五到七天的健康状况，并避免大型聚会；
+3. 将停止在家外设施中的所有隔离，同时将取消接触者追踪工作，除非在特定情况下（例如跟踪集群爆发）。
 
-就像小飞侠一样，我说他年轻需要历练，而且他毕竟会回来，而且会回来得非常精彩，为什么？我就是最好的例子，我在我家里边就是惹气的“魔王”，他踹掉了电源算啥呀？我弟弟因我而死，我母亲因我而死，我多次被抓起来，全家都灭族的危机，现在我爹已经被撵在了大街上，全部家族和同事受到了牵连，你觉得我是个祸根呢？我还是英雄呢？是吧？
+该国的卫生部副部长 Sibongiseni Dhlomo 告诉广播公司 SABC，此举“基于我们科学家的建议，病毒并不再真正产生影响”。
 
-你这个踹断电源的人，大卫王没踹断电源，大卫王就压根儿没来总部，他在照顾他爹他妈呢，想着如何让我爹我妈家人不得上病毒，他是个小我，他永远不来踹你电源。你这么看待问题的时候，你就会发现所有有问题的人可能都是最有价值的。
+南非整体患病者在进入到峰值之后，开始快速下降。该国国家传染病研究所的 Harry Moultrie 对这些变化表示欢迎。
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
+图一：截止到12月22日，非洲中共病毒新增情况表
 
-编辑整理：喜马拉雅的肉夹馍；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1881.png)
 
-字幕文件制作：小满；
+12月29号，南非政府，卫生部迫于舆论压力虽然恢复了之前的隔离要求，但是很显然，南非的疫情在这7天的放松管制下并没有明显的波动。
 
-视频制作及上传：Cindy；
+同日，根据南非豪登省的最新数据，Pieter Streicher在研究之后更新了自己的观点，Omicron导致的死亡人数比Delta低25倍，死亡感染率从估计的5.3‰下调至3.6‰。正常年份下各国流感致死率并不会低于这个数值。
 
-技术支持：文肺猫
+图二： 南非豪登省患病，死亡病例表
 
-G-News发布：小满；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1882.png)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+面对这一科学数据，英国首席科学家和医疗官员帕特里克·瓦兰斯爵士和克里斯·惠蒂对此虽然表示认同Omicron 比 Delta 温和得多，这一事实。但是，他们却在公开的场合拒绝承认来自南非的数据。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**为什么在南非会有如此乐观的局面呢？**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+12月30日，克里斯皮安·巴尔默 (Crispian Balmer) 和亚历山德拉·阿尔珀 (Alexandra Alper)发文表示，南非研究人员发现，人体的T细胞在识别和攻击Omicron病毒上非常有效，可以预防大多数病毒感染发展为危重症状。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+但是令人遗憾的是科学实验已经证实，**无论接种外哪一种疫苗都会令身体的T细胞数量都会明显变少。这样导致的结果便是，疫苗不仅不能有效的阻止病毒的继续传播，而且会让身体更容易被感染，直至人体死亡。**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+目前，南非较低的疫苗接种率，不太重要的地缘政治，以及**长期使用羟氯喹、青蒿素的习惯**，使得南非既没有成为中共国放毒的首选之地，也没有成为疫苗祸害之地，加之南非总统坚持拒绝偏激的防疫措施，让南非成为了全球疫苗危机下，最为幸运的国度。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+南非作为最为重要的英联邦国家，他的情况逐渐受到了其他国家的关注与研究。就在短文撰写前的10个小时，BBC开始制作了一个短视频反思疫苗带给人类的问题。这个与之前BBC极力鼓吹“疫苗公平”的态度发生了松动。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+此时，我门不仅可以理解，为什么英国的官员拒绝承认南非数据的深层原因：他们害怕否定疫苗之后将会带来的名誉与利益的损失；同时，我们有理由相信郭文贵先生所言，2022年5月前后，全世界将会停掉疫苗推广。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**参考文献**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+1. [南非 – 一个被Omicron污名化的国家](https://gnews.org/zh-hans/1748223/)
+2. [\[Omicron in South Africa: even milder than expected\](https://unherd.com/thepost/omicron-in-south-africa-even-milder-than-expected/)](https://unherd.com/thepost/omicron-in-south-africa-even-milder-than-expected/)
+3. [South Africa eases self-isolation rules as Omicron fades in the province where it first exploded](https://www.dailymail.co.uk/news/article-10344723/South-Africa-eases-self-isolation-rules-Omicron-fades-province-exploded.html)
+4. [World nations try to balance Omicron restrictions while keeping economies open](https://www.swissinfo.ch/eng/reuters/world-nations-try-to-balance-omicron-restrictions-while-keeping-economies-open/47225060)
+5. [What went wrong with vaccinating the world?](https://www.bbc.com/news/av/health-59755743)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
