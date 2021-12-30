@@ -15,172 +15,172 @@
 
 ---
 
-### [2021年12月29日文贵先生直播小飞象大雨围城速记](/content/gnews/1/README.md)
+### [俄罗斯常驻欧盟代表采访录(五）欧盟天然气危机](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [2021年12月29日文贵先生直播小飞象大雨围城速记](/content/gnews/2/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [研究显示：美国接种“中共病毒”疫苗致死人数被严重低估](/content/gnews/2/README.md)
+### [研究显示：美国接种“中共病毒”疫苗致死人数被严重低估](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒大流行的11个弥天大谎-下半部](/content/gnews/3/README.md)
+### [中共病毒大流行的11个弥天大谎-下半部](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英国安全部长将俄罗斯和中共国列入敌对国家行列](/content/gnews/4/README.md)
+### [英国安全部长将俄罗斯和中共国列入敌对国家行列](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒大流行的11个弥天大谎-上半部](/content/gnews/5/README.md)
+### [中共病毒大流行的11个弥天大谎-上半部](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性](/content/gnews/6/README.md)
+### [接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [中共国网民抨击马斯克](/content/gnews/7/README.md)
+### [中共国网民抨击马斯克](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [冬天来了：世界各国政府因 Omicron加强封锁限制](/content/gnews/8/README.md)
+### [冬天来了：世界各国政府因 Omicron加强封锁限制](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [美官员建议缩短中共病毒的隔离检疫期](/content/gnews/9/README.md)
+### [美官员建议缩短中共病毒的隔离检疫期](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共国加入世贸组织20年后的教训](/content/gnews/10/README.md)
+### [中共国加入世贸组织20年后的教训](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/11/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯法院对谷歌和元宇宙(Meta)平台未删除违规内容处以高额罚款](/content/gnews/12/README.md)
+### [俄罗斯法院对谷歌和元宇宙(Meta)平台未删除违规内容处以高额罚款](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [佛罗里达州计划调查该州对中共国公司的投资](/content/gnews/13/README.md)
+### [佛罗里达州计划调查该州对中共国公司的投资](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [香港警方以涉嫌串谋发布煽动刊物罪逮捕6名记者](/content/gnews/14/README.md)
+### [香港警方以涉嫌串谋发布煽动刊物罪逮捕6名记者](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CTF发布2022年税收变化](/content/gnews/15/README.md)
+### [CTF发布2022年税收变化](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [秘翻在线: AI独角兽“商汤”赴港上市](/content/gnews/16/README.md)
+### [秘翻在线: AI独角兽“商汤”赴港上市](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19护照和微芯片植入：超人类主义和生物权力](/content/gnews/17/README.md)
+### [COVID-19护照和微芯片植入：超人类主义和生物权力](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [尽管发生了种族灭绝，有哪些公司在赞助北京奥运会？](/content/gnews/18/README.md)
+### [尽管发生了种族灭绝，有哪些公司在赞助北京奥运会？](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安省新增再超万例三地破千 政府拟修改隔离要求](/content/gnews/19/README.md)
+### [安省新增再超万例三地破千 政府拟修改隔离要求](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [香港又闻犬吠声](/content/gnews/20/README.md)
+### [香港又闻犬吠声](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [文贵爆料12.29: 坚持到最后 喜币一定会成为世界数字货币规则的制定者和开拓者](/content/gnews/21/README.md)
+### [文贵爆料12.29: 坚持到最后 喜币一定会成为世界数字货币规则的制定者和开拓者](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月29日文贵先生直播摘要及音频—银河系农场](/content/gnews/22/README.md)
+### [2021年12月29日文贵先生直播摘要及音频—银河系农场](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文贵爆料 12.29：“铁幕”缓缓落下——拜登“国防支出法案”出炉](/content/gnews/23/README.md)
+### [文贵爆料 12.29：“铁幕”缓缓落下——拜登“国防支出法案”出炉](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首](/content/gnews/24/README.md)
+### [Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [银河快讯:日本加入东盟防卫“热线”；中共军方指导留学生非法购买日本安全软件](/content/gnews/25/README.md)
+### [银河快讯:日本加入东盟防卫“热线”；中共军方指导留学生非法购买日本安全软件](/content/gnews/26/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [西媒头条 — 第141期](/content/gnews/26/README.md)
+### [西媒头条 — 第141期](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/27/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/28/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/29/README.md)
  ` wenwu`
 
-### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2021年12月29日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [世界将步入“四国演义”时代](/content/gnews/30/README.md)
+### [世界将步入“四国演义”时代](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生给予战友们的人生忠告](/content/gnews/31/README.md)
+### [郭文贵先生给予战友们的人生忠告](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [12/29/21 香港快讯 200警搜立场新闻办公室 国安处拘何韵诗等6人](/content/gnews/32/README.md)
+### [12/29/21 香港快讯 200警搜立场新闻办公室 国安处拘何韵诗等6人](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [西班牙电信将替换华为5G设备](/content/gnews/33/README.md)
+### [西班牙电信将替换华为5G设备](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [法国要求未接种疫苗的人接种疫苗](/content/gnews/34/README.md)
+### [法国要求未接种疫苗的人接种疫苗](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/35/README.md)
+### [12/28/2021 文贵盖特：中共劫富济贫导致国内哀鸿遍野，习拒绝在冬奥会上接见欧洲某国的元首](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/36/README.md)
+### [继续给人们注射毒疫苗的医生，是谋杀犯](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特是综合一体化的真正的言论自由平台](/content/gnews/37/README.md)
+### [盖特是综合一体化的真正的言论自由平台](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【#G时新闻】中大移走民主女神像 岭大拆除六四浮雕](/content/gnews/38/README.md)
+### [【#G时新闻】中大移走民主女神像 岭大拆除六四浮雕](/content/gnews/39/README.md)
  ` G-时新闻`
 
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/39/README.md)
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/40/README.md)
+### [12/24郭文贵直播：杨贝贝采访第一句就给爆料革命扣上在病毒来源和中共灭白计划上撒谎的大帽子（粤语配音）](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中南坑的共产渔夫](/content/gnews/41/README.md)
+### [中南坑的共产渔夫](/content/gnews/42/README.md)
  ` 银河勇气之星`
 
-### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/42/README.md)
+### [12/29每日播报｜6000名纽约警员在新年前夕生病请假](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/43/README.md)
+### [12/29/2021 国际财经快讯：拜登的金融监管议程将在2022年成形；土耳其12月通胀率预计将超过30%](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/44/README.md)
+### [12/29每日播报｜Just the News创始人账号被推特荒谬暂停](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/45/README.md)
+### [12/29每日播报｜美国的儿童医院出现越来越多感染 Omicron 变种的病例](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/46/README.md)
+### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/47/README.md)
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [窥探：日本再创新高的国防预算](/content/gnews/48/README.md)
+### [窥探：日本再创新高的国防预算](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/49/README.md)
+### [日本将在太平洋岛国设立领事机构 以对抗中共国](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/50/README.md)
+### [新西兰财经G乐部2021年12月28日:财经新闻整理](/content/gnews/51/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/51/README.md)
+### [拜登总统签署《国防授权法》 应对中共军事威胁](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/52/README.md)
+### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/53/README.md)
  ` 關注組`
 
-### [日本政府提出未来“实现数字化田园都市国家构想&#8221;目标](/content/gnews/53/README.md)
+### [日本政府提出未来“实现数字化田园都市国家构想&#8221;目标](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/54/README.md)
+### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/55/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/55/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [消灭所有的官二代富二代后，中国从九龙治水进入习天下](/content/gnews/56/README.md)
+### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [2021/12/25 文贵先生直播精要](/content/gnews/57/README.md)
