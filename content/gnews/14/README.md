@@ -2,23 +2,31 @@
 ---
 
 
-## 辉瑞公司与中共阿里巴巴早有合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805658/)
+## 中共病毒及疫苗一周伤害信息汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805682/)
 
-作者：纽约香草山翻译部 – defiance
+作者：纽约香草山农场医疗部 – Zion文恩
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日，据美国媒体消息显示，自2018年起，辉瑞公司就一直与中共支付平台支付宝合作。而从中共病毒爆发以来，支付宝则长期协助中共政府在中共国内推行“健康码”政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-27.jpg)
-报道提到，辉瑞公司曾在其官方推特上多次对中共政府表示支持，甚至为与中共政府的合作表示自豪。据悉，辉瑞与中共政府的合作涉及疾病和疫苗接种的相关工作，而辉瑞公司也通过与支付宝的合作实现在中共国内的移动支付功能。
+2021年12月21日至28日，除中共国外，全球累计确诊中共病毒六百五十一万余例，同比上周增长了百分之35.6，增长率较上周的百分之9.36显著增加；本周累计死亡四万四千七百三十七例，同比上周下降百分之6.1。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20.jpg)
+截止28日，全球除中共国之外累计接种了64.1亿剂中共病毒疫苗，同比上周增长百分之2.23；疫苗接种的增长率较上周的百分之2.88稍有下降，尽管本周全球的确诊病例显著增加，但连续两周全球疫苗接种已趋于稳定。
 
-但资料显示，支付宝是与中共有密切关联的阿里巴巴集团旗下的一个分支平台。而阿里巴巴作为帮助中共政府及其军队进行科研、生产、武器和设备维修等工作的大型企业，美国国务院此前已经将其标记为中共政府建立社会监视和控制机制的“工具”。
+中共国内区域性的疫情爆发从未间断。其中，西安市自当地时间23日凌晨起被执行封城措施，疫情形势不容乐观。民众普遍认为，中共西安市卫健委所声称的西安市百分之99.38的接种率是个笑话。而据郭文贵先生援引中共体制内知情者消息称，西安的疫情爆发并非由于中共蓄意投毒，而是由于高疫苗接种率所造成的突破性感染，完全是疫苗接种所造成的灾难。
 
-参考链接：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp)
+美国方面，上周全美中共病毒感染新增病例的七日平均值已经突破28万，达到自去年一月以来的最高值——“奥米克戎”毒株的高传染率可见一斑。值得注意的是，中共病毒疫苗的大面积接种显然没有阻止疫情的迅速扩散。
+
+此外，英国、法国、葡萄牙、希腊等国家均突破了单日新增病例的记录。
+
+本周是2021年的最后一周，面对中共病毒新毒株的肆虐，各国的强制疫苗政策仍在继续。德国议会将于2022年新年假期后展开全民强制接种的立法讨论工作。而美国总统拜登则在28日的州长电视会议上承认，联邦政府应对奥米克戎毒株不力，承诺给各州更大的自由应对疫情，同时，他还呼吁各州加大力度推行筛查和接种工作。
+
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-21..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) .[Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2021-12-21..2021-12-28&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) .[COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-21..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编/编辑：Irene木木
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

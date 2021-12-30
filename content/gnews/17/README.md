@@ -2,37 +2,49 @@
 ---
 
 
-## 有声|东京发现首例奥密克戎变体确诊病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1805585/)
+## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
 
-配音：香草山教育部 – 百香果
+作者：纽约香草山翻译部 – defiance
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
 
-东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例。
 
-文字版原文：[东京发现首例奥密克戎变体确诊病例](https://gnews.org/zh-hans/1795450/)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
+
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
+
+参考链接：
+1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
+2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：童谣
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

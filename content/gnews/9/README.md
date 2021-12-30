@@ -2,50 +2,26 @@
 ---
 
 
-## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
+## Omicron的危害绝对超出大家的想象
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1805777/)
 
-作者：纽约香草山翻译部 – defiance
+和共产党内部决策的情报，在冬奥会前让西方经济垮下来,让西方要内乱。
 
+**【郭先生直播摘要】**** ****2021.12.22 Omicron****的危害绝对超出大家的想****象**
 
+**郭先生：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+就是这个绝对超出大家的想象，这个omicron。那么现在在西方和全世界，爆料革命
 
+就是这个伊莎贝拉•杨坚决不报道的。第一个，我们在去年就告诉大家，病毒绝对没有疫苗对人类的威胁大，疫苗灾难产生的次生灾难才是人类最大灾难，而且我们一再说今年年底。2021年年底才是灾难的真正开始，病毒大扩散，没有一个人说，只有我们。
 
+今年我们说了真的不下万遍吧。我说十月到十二月大爆发，而且来自于非洲和西部，我们全准了。而且我说感恩节之后，美国以及世界大爆发，大家看到了吗？全美国全世界都在爆发，感恩节是最夸张，不是我们蒙出来的，这是我们的科学家和背后的爆料革命，深知这是生化武器和共产党内部决策的情报。
 
-据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
+在冬奥会前让西方经济垮下来让西方要内乱，然后呢无暇顾及，就像现在习近平王岐山杨洁篪王毅王沪宁在内部说的，一定会打赢这次中美世纪大战，这是他的原话。一定要有信心，而且一定会打赢中美的世纪大战，这都是这个结果。这几天兄弟姐妹们你们一定要意识到，omicron太可怕了，而且不好的现象是，omicron现在发现吃了伊维菌素和青蒿素，有些不是百分之百管用。这是更坏的消息，原来是百分之百绝对管用，现在真不是百分之百，大家别以为得上是好事，别以为得上你能吃药，真不是了。
 
-在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
-小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
+第三个现在我要告诉大家， 就刚才做的现在做的所有完了以后， 大家要记住国内的情报， 很多战友告诉我， 西安所有的人都是疫苗的综合症导致的， 就像刚才这闺女腿上得的这病一样，它是疫苗的造成的血热。 记住，疫苗在不同的人身上不同的时区和不同的饮食和气候环境。
 
-参考链接：
-1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
-2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：叶子 |校对：Polaris |视频制作+字幕：CG.|编辑&发布：断播
 
  
 

@@ -2,60 +2,48 @@
 ---
 
 
-## 中共疫情下的人生百态——J先生回国探父之路
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1805491/)
+## 【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1805613/)
 
-作者：纽约香草山健身部–Jack Li文阳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-10月初，旅居美国多年的J先生收到远在国内家乡家人的通知，父亲查出癌症晚期，现已住进医院。收到父亲的噩耗，J先生心急如焚，为了不留下遗憾，马上安排回国探父计划。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/隔离.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-中共病毒蔓延全球，美国被蹂躏成疫情的重灾区。中共国规定，从海外进入国境的旅客，必须接种疫苗并将检测报告提交中共领事馆，以获得绿码，才能得到回国许可。一直坚持拒绝打中共疫苗的J先生，为了能够达成回国看望父亲的心愿，百般无奈，只能以身试毒，接种了中共病毒疫苗。
+包括美国在内的越来越多的国家越来越强硬地要求其民众接种COVID-19（中共病毒）疫苗，甚至接种第三剂疫苗。一些国家，如以色列和德国，正在推出第四剂，更多的国家正在缩短初始接种和加强针之间的推荐间隔。
 
-获得回国许可后，J先生购买了回国的机票。旅行社现在只销售单程票，但也要4200美金，回程票还要另外购买。一切准备就绪后，J踏上了前途未知的回国之路。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/booster-1.jpg)
 
-回国乘坐的东方航空，并不提供飞机餐。J也没心情讲究，事先准备了简单的面包和零食，一心只想尽快回到家乡，见到父亲。经过15小时的飞行，飞机降落上海，迎接J先生的是第一个14天的隔离。下了飞机5小时后，他就被大巴接去了一家隔离酒店，开始了14天的上海隔离生活。从此，他和外界的联系，只剩下手机和微信了。为了排解无聊的隔离生活，J把每天的餐饮发上微信与朋友分享。第三天，他在微信朋友圈发了一张显示红码的“ 随申码”的照片，下面留言：现在就算走出去，哪里也去不了（哭脸）。在同一天的朋友圈，J发了一段短视频——窗外的楼房和街道。留言：这么好的天气，真想出去走走。
+然而，研究表明，大多数接种疫苗的人死于中共病毒疫苗导致的自身免疫系统对自身器官的攻击！几乎所有在接种后7天至6个月内死亡的中共病毒疫苗接种者都可能死于疫苗引起的自身免疫损伤。
 
-第六天，J发出信息：隔离第六天！或许一切都晚了，等不到我出去了！对不起！同一天，J再次留言：事情一件接着一件！难受。表姐突然走了。
+为什么一个人接种中共病毒疫苗后，免疫系统会变得疯狂并攻击它旨在保护的东西？
 
-隔离第十二天，他说：明天最后一次双检，后晚就可以暂时出去放放风了。
+科学家们认为，发生致命的免疫反应的原因是，接种中共病毒疫苗会导致免疫系统将产生在自然状态下永远不可能生产的SARS-CoV-2刺突蛋白细胞，免疫系统又将这些SARS-CoV-2刺突蛋白细胞视为威胁并试图摧毁它们。
 
-第十四天，四次检测报告出来了，健康码变绿了，终于可以离开隔离点了，这次隔离收费6千多人民币。
+在人体的任何器官中，任何因中共病毒疫苗诱导产生的这种外来抗原（SARS-CoV-2刺突蛋白细胞）的细胞都会受到免疫系统中IgG抗体（所有体液中发现的最丰富的抗体类型）和细胞毒性T淋巴细胞（保护身体免受癌细胞和被病原体感染的细胞侵害）的强烈攻击。
 
-出了隔离点，J马上乘车到机场，下午6点坐上飞往家乡的飞机。
+每打一针加强针，免疫系统就会“变得更具攻击性”。人的心肌、肝脏和肺在中共病毒疫苗诱导下开始产生这些该死的突刺蛋白（SARS-CoV-2刺突蛋白细胞），然后免疫系统的杀手淋巴细胞去那里……并摧毁自身的心脏、肺和肝脏。
 
-晚上十点半，J发微信：今天换监狱，继续14天，加油。在此需做4次核酸检测。
+反过来，由于疫苗进入产生淋巴细胞或白细胞的淋巴结，这些细胞也可以被“教导（或诱导）”制造刺突蛋白。这反过来又使它们成为自身免疫攻击的目标，这削弱了免疫系统检查人体内的所有潜在致命病毒和细菌的能力。人体免疫能力完全被削弱。
 
-一连十几天的隔离，J已经麻木了，每天都是重复着相同的事情。发出来的信息只有隔离餐，一天不拉。
+爱达荷州（Idaho）的病理学家Ryan Cole博士就认为，结核病在亚洲、印度和非洲各地呈上升趋势，接种疫苗的患者的癌症和肿瘤有所增加，也可以通过免疫系统抑制细胞病理突变能力的减弱来解释。
 
-第十一天，J收到通知，父亲走了。
+Peter McCullough博士指出，众所周知，刺突蛋白会导致疾病，例如心肌炎和神经系统损伤，以及损伤血管和促进血液凝。通过重复接种COVID-19疫苗，刺突蛋白会逐渐在大脑、心脏和其他重要器官中积聚，超过免疫系统清除能力。
 
-第十二天，J说没有胃口。
+Brian Hooker博士认为，疫苗伤害随着每一次额外的注射而呈指数增加，用相同的病原体一遍又一遍地重复攻击敏感的免疫系统。
 
-第十四天，J说以为前两天是最后一检，没想到还要加一次，这次回国已经十检了。终于“出狱”了，这次一分钱没花。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Countering_Overreach3_banner728.jpg)
 
-J说父亲上半年打了两针疫苗，六十来岁，一直身体不错。十月一检查出癌症已经是晚期了，也没多久就走了。住院加墓地和丧葬费共花了40多万人民币，幸亏有三个成年的儿子，J先生还是生活着国外，所以还能勉强负担得起。
+参考数据：
 
-J先生在离境前3天，发了一个微信视频——跳楼，他说在路上遇到有人跳楼，这人肯定是遇到非常大的困难，过不去的坎，才选择不归路。
+[Study: Most of Vaccinated Die Because of Vax-induced Autoimmune Attacks on Their Own Organs](https://theparadise.ng/study-most-of-vaccinated-die-because-of-vax-induced-autoimmune-attacks-on-their-own-organs/)
 
-J处理好父亲的后事，马上归心似箭，踏上了回家之路。
+[360X increase in the rate of adenopathy after vaccination](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)
 
-中共在全世界放毒，所有人的生活都因此改变。从J先生的际遇，可以看到中共病毒疫情下，一个小人物的生活和变化。中共不除，世界无法回归平静，中共不灭，人民无法安居乐业，正常的生活。
+[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
 
-编辑/校对/发稿：菩提树
+[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

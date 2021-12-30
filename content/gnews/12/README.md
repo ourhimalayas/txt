@@ -2,47 +2,36 @@
 ---
 
 
-## 秦刚接受美媒采访竟不见任何报道遭嘲笑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805669/)
+## 是谁制造了这场灾难
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1805702/)
 
-作者：东京樱花团—在远方
+【**国内新闻短评**】
 
+**西部网2021年11月28日报道：谣言！网传“警务人员在全市各大街道对外出流窜人员进行严查、拘捕”为谣言**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a6la5-7mctx-4.jpg)图片来源：新华网![](https://assets.gnews.org/wp-content/uploads/2021/12/332-amq6p-x6e25.jpg)
+**短评：**
 
+**西安的疫情让我们想起：2020年病毒爆发之初，吹哨者李文亮医生“被辟谣、被认罪”的邪恶把戏。那么我们能不能怀疑西安的这次“辟谣”，是谣言真，还是辟谣真？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**快两年了这疫情咋就控制不住，没完没了的。今天是西安老百姓咋活啊？
+不让走动是不是戒严？这样老百姓的生活物资有没有保障？上班的居在家里什么时候能解封？上学的在家里上网课对高考的有没有影响？老弱妇孺有个急情况能不能及时救援？**
 
+**突然想起疫苗接种的比率这么高有必要这么大惊小怪吗？怎么对疫苗不自信了？是不是疫苗白打了？三针都打了还戒严，拘捕，重罚，是谁的错？应该惩罚研制疫苗的，把不合格的疫苗卖给了国家。惩罚老百姓不符合逻辑。**
 
+**当然“警务人员在全市各大街道对外出流窜人员进行严查、拘捕”这一通知一旦传播开来，政府是一定会出来“辟谣”的。但是，是谁制造了这场灾难？政府公安部门是不是该履行职责，一查到底，找出制造病毒的真凶。保护人民的生命财产是天职。**
 
-台媒12月29日消息，中共驻美大使秦刚20日接受美国多家所谓“主流媒体”联合采访后，时至今日都没有一家美国媒体发出报道。秦刚气急败坏只有让中共驻美记者自己发布该新闻。 中共驻美大使馆24日发出新闻稿指出，秦刚的采访由彭博创新经济论坛举办，以“炉边谈话”形式用英文进行。
+**文章观点仅代表作者个人，与Gnews平台无关**
 
-中共官媒殃视驻美记者25日在微博发牢骚称，在这次谈话前，双方就已经商定，全部内容可供报道，也可用作背景吹风，但却没有发现任何一家美媒发出报道。该事件经媒体曝光后，立刻引来网络一片讽刺与嘲笑。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide9-1.jpg)
-参考链接：
-[超糗！中國大使秦剛接受美媒聯訪 事後竟無一家報導](https://news.ltn.com.tw/news/world/breakingnews/3783453)
+***新闻链接：***[http://m.cnwest.com/sxxw/a/2021/12/28/20195681.html](http://m.cnwest.com/sxxw/a/2021/12/28/20195681.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+素材：洛杉矶盘古农场 — 期待明天
+评论：洛杉矶盘古农场 — 期待明天
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-总编：飞虹
-编辑：Lakeman文仁
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

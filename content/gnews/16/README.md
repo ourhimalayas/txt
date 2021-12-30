@@ -2,48 +2,50 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1805613/)
+## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：纽约香草山翻译部 – defiance
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-包括美国在内的越来越多的国家越来越强硬地要求其民众接种COVID-19（中共病毒）疫苗，甚至接种第三剂疫苗。一些国家，如以色列和德国，正在推出第四剂，更多的国家正在缩短初始接种和加强针之间的推荐间隔。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/booster-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-然而，研究表明，大多数接种疫苗的人死于中共病毒疫苗导致的自身免疫系统对自身器官的攻击！几乎所有在接种后7天至6个月内死亡的中共病毒疫苗接种者都可能死于疫苗引起的自身免疫损伤。
 
-为什么一个人接种中共病毒疫苗后，免疫系统会变得疯狂并攻击它旨在保护的东西？
 
-科学家们认为，发生致命的免疫反应的原因是，接种中共病毒疫苗会导致免疫系统将产生在自然状态下永远不可能生产的SARS-CoV-2刺突蛋白细胞，免疫系统又将这些SARS-CoV-2刺突蛋白细胞视为威胁并试图摧毁它们。
+据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
 
-在人体的任何器官中，任何因中共病毒疫苗诱导产生的这种外来抗原（SARS-CoV-2刺突蛋白细胞）的细胞都会受到免疫系统中IgG抗体（所有体液中发现的最丰富的抗体类型）和细胞毒性T淋巴细胞（保护身体免受癌细胞和被病原体感染的细胞侵害）的强烈攻击。
+在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
+小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
 
-每打一针加强针，免疫系统就会“变得更具攻击性”。人的心肌、肝脏和肺在中共病毒疫苗诱导下开始产生这些该死的突刺蛋白（SARS-CoV-2刺突蛋白细胞），然后免疫系统的杀手淋巴细胞去那里……并摧毁自身的心脏、肺和肝脏。
+参考链接：
+1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
+2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
 
-反过来，由于疫苗进入产生淋巴细胞或白细胞的淋巴结，这些细胞也可以被“教导（或诱导）”制造刺突蛋白。这反过来又使它们成为自身免疫攻击的目标，这削弱了免疫系统检查人体内的所有潜在致命病毒和细菌的能力。人体免疫能力完全被削弱。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-爱达荷州（Idaho）的病理学家Ryan Cole博士就认为，结核病在亚洲、印度和非洲各地呈上升趋势，接种疫苗的患者的癌症和肿瘤有所增加，也可以通过免疫系统抑制细胞病理突变能力的减弱来解释。
+总编：童谣
+编辑：飞虹
+校对/发稿：为真不破20
 
-Peter McCullough博士指出，众所周知，刺突蛋白会导致疾病，例如心肌炎和神经系统损伤，以及损伤血管和促进血液凝。通过重复接种COVID-19疫苗，刺突蛋白会逐渐在大脑、心脏和其他重要器官中积聚，超过免疫系统清除能力。
+**更多资讯，更多关注**
 
-Brian Hooker博士认为，疫苗伤害随着每一次额外的注射而呈指数增加，用相同的病原体一遍又一遍地重复攻击敏感的免疫系统。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Countering_Overreach3_banner728.jpg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-参考数据：
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[Study: Most of Vaccinated Die Because of Vax-induced Autoimmune Attacks on Their Own Organs](https://theparadise.ng/study-most-of-vaccinated-die-because-of-vax-induced-autoimmune-attacks-on-their-own-organs/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[360X increase in the rate of adenopathy after vaccination](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
 
-[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

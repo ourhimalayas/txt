@@ -2,28 +2,34 @@
 ---
 
 
-## 以色列Omicron疫情嚴重 最後一天確診了約3000人 來源N12news
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1805505/)
+## 西安沦为去年武汉 民众生活物资采购无门
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805633/)
 
-编译：GM
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月29日，据日本媒体报道称，中共国内目前的防疫现状一片混乱，中共政府不仅要求外来的航班和旅客一遍又一遍地消毒，更是改变之前在西安实施的防疫策略，让西安沉底沦为去年的武汉。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-39.jpg)
+报道提及，自西安疫情失控后，中共政府立即采取了封城措施，但该政策原本允许每个家庭每两天可派一名代表外出采购生活物资，但这项措施在上周末被突然撤回，这也导致西安市民的食物极度短缺。为此，许多市民在社交平台上质疑政府如何解决居民的日常生活物资问题，很多人也发出冰箱里仅剩的水果和调味料的照片请求外界援助。
 
-疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）
+此外，中共政府为了在当地召集核酸检测志愿者，甚至以每人每天可以领取一包泡面和一根火腿肠作为交换条件。
 
-我們不反疫苗，只針對假疫苗
-我們不反科學，只針對反人類
-![](https://assets.gnews.org/wp-content/uploads/2021/12/01e1c67b-f9ef-4f11-80df-1ad5024e54a1.jpg)
-今天早上（12.29日）corona發病率數據持續上升，衛生部更新說，在最後一天有2967名以色列人感染了該病毒。重症患者人數保持相似，為88人。感覺染率持槍續上升，今早為1.53昨天為1.47。這一數字表明以色列的流行病正在擴大。
+分析人士称，如此低廉的物品而今已经成为中共政府口中“非常诱人的奖励”，这或可表明西安已出现了生活物资供给严重不足的困境。
 
-衛生部最新統計數字顯示趨勢逆轉：大多數受Omicron感染者在社區進行了身份驗證,並沒有從國外返回，在進行的大約120000次crona測試中，88名被定義為嚴重患者，47名危重患者，18名與Acmo相關，39看呼吸系統疾病。此外，20名患者處於中度狀態，另外33名患者處於輕度狀態。以色列目前有17260名corona患者。自ccp病毒爆發以來，以色列因ccp病毒死亡人數累計為8343人。
+参考链接:[北京五輪1カ月前に感染急増　1300万人を“ロックダウン”警戒高まる中国(2021年12月29日)](https://www.youtube.com/watch?v=NYCYBp5gfco)
 
-編者按：在人口只有六百多萬的以色列，被ccp病毒奪取生命的猶太人已達8343，無數人失去工作、收入，生活方式完全被改變，變異病毒不斷侵蝕，疫苗災難肆虐以色列，已經到了非常危急的時刻，消滅ccp刻不容緩，是全世界人瓦正義的需要！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-參考鏈接：[https://mobile.mako.co.il/news-lifestyle/2021\_q4/Article-4798b5976250e71026.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-lifestyle/2021_q4/Article-4798b5976250e71026.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-審核校對：Barry Jack
-上傳排版：F
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
