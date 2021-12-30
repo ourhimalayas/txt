@@ -15,179 +15,179 @@
 
 ---
 
-### [外星人可以是分子那么小也可以是掌握着本身之外的力量](/content/gnews/1/README.md)
+### [贺龄乐先生和郑司令教郭文贵先生学会尊重时间尊重别人](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [一切东西都要靠自己的双手、自己的腿、自己的行动换来](/content/gnews/2/README.md)
+### [国人通病:不严肃对待当下这一刻,等死混日子,待人无礼节](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [医学黑暗势力继续对伊维菌素谎](/content/gnews/3/README.md)
+### [当太空旅行开始的时候，你会见到你想象不到的外星人](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中国与西方世界对太空人的认知差距与造不出马桶盖一样](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [视频| 王岐山、曾庆红多次出面保刘亚洲是个大事](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [视频| 秦刚回答的三个问题等同于对美“宣战”](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [外星人可以是分子那么小也可以是掌握着本身之外的力量](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [一切东西都要靠自己的双手、自己的腿、自己的行动换来](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [医学黑暗势力继续对伊维菌素谎](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [不成熟时是父母还教育你们,父母愿意听你观点是就长大了](/content/gnews/4/README.md)
+### [不成熟时是父母还教育你们,父母愿意听你观点是就长大了](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [魁北克再次甩锅给未接种疫苗的人，些人占重症监护病房人数的 75%](/content/gnews/5/README.md)
+### [魁北克再次甩锅给未接种疫苗的人，些人占重症监护病房人数的 75%](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [广西百色市靖西再现游街示众，历史重演](/content/gnews/6/README.md)
+### [中共“零感染”政策下，人民无基本人权可言](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/7/README.md)
+### [中共冬奥会面临病毒和雾霾的双重挑战](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [人要能说真话敢于面对真实的自己不虚伪造作不附庸盲从](/content/gnews/8/README.md)
+### [广西百色市靖西再现游街示众，历史重演](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [人要能说真话敢于面对真实的自己不虚伪造作不附庸盲从](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [习普“冬奥之约”：郭文贵称普京不来，王毅紧急辟谣](/content/gnews/9/README.md)
+### [习普“冬奥之约”：郭文贵称普京不来，王毅紧急辟谣](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [达沃斯创始人的惊人计划：利用 COVID 让全球主义者控制世界](/content/gnews/10/README.md)
+### [12/30/2021 国际财经快讯：今年美股IPO规模创纪录，如今市场疯狂抛售；2021年，加密货币最疯狂的一年](/content/gnews/19/README.md)
+ ` 秘密翻译组金融团队`
+
+### [达沃斯创始人的惊人计划：利用 COVID 让全球主义者控制世界](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/11/README.md)
+### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥最喜欢的那位知道我们要保命保财报仇战友已经离去](/content/gnews/12/README.md)
+### [七哥最喜欢的那位知道我们要保命保财报仇战友已经离去](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/13/README.md)
+### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/14/README.md)
+### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12月30日，勿忘两年前的“吹哨人”](/content/gnews/15/README.md)
+### [12月30日，勿忘两年前的“吹哨人”](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [与原发感染相比，SARS-CoV-2 再感染的严重程度](/content/gnews/16/README.md)
- ` G-NEWS TAIWAN`
-
-### [樱花灭共诗——墙国圣诞夜（新韵）](/content/gnews/17/README.md)
+### [樱花灭共诗——墙国圣诞夜（新韵）](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥地利是在欧洲引入疫苗暴政的国家，我们必须反击](/content/gnews/18/README.md)
+### [奥地利是在欧洲引入疫苗暴政的国家，我们必须反击](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [特鲁多敦促西方团结起来对抗中国](/content/gnews/19/README.md)
+### [特鲁多敦促西方团结起来对抗中国](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《纽约时报》一编辑接种莫德纳加强针一天后去世](/content/gnews/20/README.md)
+### [《纽约时报》一编辑接种莫德纳加强针一天后去世](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国移动被加拿大政府停止运营](/content/gnews/21/README.md)
+### [中国移动被加拿大政府停止运营](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [路透社报道：中共正在大力发展数据中心集群](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [中共国防部回应美国“2022年国防授权法案”](/content/gnews/23/README.md)
- ` 儒为`
-
-### [最高法院将快速审理挑战拜登疫苗授权的案件](/content/gnews/24/README.md)
+### [最高法院将快速审理挑战拜登疫苗授权的案件](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠疫苗受害者投诉无门](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [造神运动的无耻谎言《每日一习话》](/content/gnews/32/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳媒报道：中共公布海外股票销售法规](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [医学深层政府继续对伊维菌素撒谎](/content/gnews/27/README.md)
+### [医学深层政府继续对伊维菌素撒谎](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [启示：1918 年西班牙流感期间只有“接种疫苗者”死亡](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/30每日播报｜香港《立场新闻》多名相关人士被捕 现已停止运作](/content/gnews/29/README.md)
+### [12/30每日播报｜香港《立场新闻》多名相关人士被捕 现已停止运作](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/30每日播报｜美联邦法官驳回俄克拉荷马州阻止军队疫苗强制令的讼诉](/content/gnews/30/README.md)
+### [12/30每日播报｜美联邦法官驳回俄克拉荷马州阻止军队疫苗强制令的讼诉](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【速报】东京股市年末最后交易日创32年最高收盘价](/content/gnews/31/README.md)
+### [【速报】东京股市年末最后交易日创32年最高收盘价](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](/content/gnews/32/README.md)
+### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](/content/gnews/37/README.md)
  ` 澳喜农场`
 
-### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/33/README.md)
+### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拐卖人口&#8212;无处安放的光棍](/content/gnews/34/README.md)
+### [拐卖人口&#8212;无处安放的光棍](/content/gnews/39/README.md)
  ` 骄子`
 
-### [12/30每日播报｜拜登政府的失策导致中共病毒COVID-19的测试等待线长达数英里](/content/gnews/35/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [拐卖人口&#8212;六十岁老夫妻生娃](/content/gnews/36/README.md)
+### [拐卖人口&#8212;六十岁老夫妻生娃](/content/gnews/40/README.md)
  ` 骄子`
 
-### [中共出台新法严打互联网宗教活动](/content/gnews/37/README.md)
+### [中共出台新法严打互联网宗教活动](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德桑蒂斯大举打击“唤醒企业意识形态”和中共影响力](/content/gnews/38/README.md)
+### [德桑蒂斯大举打击“唤醒企业意识形态”和中共影响力](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [粤语歌星何韵诗被国安逮捕](/content/gnews/39/README.md)
+### [粤语歌星何韵诗被国安逮捕](/content/gnews/43/README.md)
  ` wenwu`
 
-### [40-49岁打了三针疫苗后感染率高出10.3倍](/content/gnews/40/README.md)
+### [40-49岁打了三针疫苗后感染率高出10.3倍](/content/gnews/44/README.md)
  ` wenwu`
 
-### [因反对中共病毒疫苗，推特停止mRNA技术先驱的账号](/content/gnews/41/README.md)
+### [因反对中共病毒疫苗，推特停止mRNA技术先驱的账号](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】恒大与佳兆业又有4亿美元债务未如期支付](/content/gnews/42/README.md)
+### [【中日财经爆】恒大与佳兆业又有4亿美元债务未如期支付](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华盛顿特区的返校新规—— 必须提供阴性结果才能返校](/content/gnews/43/README.md)
+### [华盛顿特区的返校新规—— 必须提供阴性结果才能返校](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [「日澳安全保障共同宣言」拟将对抗目标转向中共](/content/gnews/44/README.md)
+### [「日澳安全保障共同宣言」拟将对抗目标转向中共](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [未接种中共病毒疫苗的海军陆战队员认为正遭受“政治清洗”](/content/gnews/45/README.md)
+### [未接种中共病毒疫苗的海军陆战队员认为正遭受“政治清洗”](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2021年12月30日:财经新闻整理](/content/gnews/46/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [中国农村偷狗产业链](/content/gnews/47/README.md)
+### [中国农村偷狗产业链](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/48/README.md)
+### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [中共国加入世贸组织20年后的教训](/content/gnews/49/README.md)
+### [中共国加入世贸组织20年后的教训](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/50/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/51/README.md)
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中南坑的共产渔夫](/content/gnews/52/README.md)
+### [中南坑的共产渔夫](/content/gnews/55/README.md)
  ` 银河勇气之星`
 
-### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/53/README.md)
+### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/56/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/55/README.md)
+### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/57/README.md)
  ` 關注組`
 
-### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/56/README.md)
+### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/58/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/57/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [专家警告辉瑞抗病毒药可能构成风险](/content/gnews/58/README.md)
- ` 澳喜农场`
 
 ### [班农先生的一则盖文](/content/gnews/59/README.md)
  ` 秘密翻譯組G-Translators`

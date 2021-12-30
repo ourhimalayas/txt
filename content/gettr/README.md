@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 1:49 PM (UTC)`
+
+12月30号：💋💋💋💋💋💋再次谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿……大馍馍就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
+![img](https://media.gettr.com/group39/getter/2021/12/30/13/179859bb-05ff-5403-e495-22e62d0bb370/out.jpg)
+
+---
+
+`@miles 12/30/2021 1:48 PM (UTC)`
+
+12月30号：谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
+![img](https://media.gettr.com/group7/getter/2021/12/30/13/ac03beb7-fbd3-ccc0-65b4-2a11298f94ad/out.jpg)
+
+---
+
 `@miles 12/30/2021 6:46 AM (UTC)`
 
 12/29/2021 Miles Guo: Before being arrested, Liu Yazhou met with Zeng Qinghong and Wang Qishan, and both of them spoke for him. But why did Wang Qishan, who is also a son-in-law of a former senior cadre of the CCP just like Liu Yazhou, vow to defend him rather than Dong Hong, Chen Feng, Ren Zhiqiang, and Kang Dian?<br/><br/>12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话，而同为中共元老女婿的王岐山为何誓死力保刘亚洲而不是董宏、陈峰、任志强和康典呢？<br/>
@@ -143,20 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 12月28号:尊敬的戰友們好⋯⋯共产党的洗脑和即将到来的经济大崩潰⋯⋯將害死太多无辜的同胞⋯⋯这是让我们非常非常的心痛很无力的地方，我们将竭尽全力拯救更多的同胞⋯⋯一切都已经开始。
 ![img](https://media.gettr.com/group21/getter/2021/12/28/15/b19d268a-30c8-7314-8aa0-37bc85065c03/out.jpg)
-
----
-
-`@miles 12/28/2021 1:30 AM (UTC)`
-
-12/27/2021 Miles Guo’s GETTR: The Europeans believe that it is better to let the CCP collapse by itself; the US, the EU, Russia, and the CCP are the four major powers in the world now, and the New Federal State of China shall strengthen its own economy and media platforms and let more fellow fighters join us so that the world will stand with us to take down the CCP together!<br/><br/>12/27/2021 文贵盖特：欧洲人认为让中共自己倒台更好；现在是美、欧、俄、中“四国演义”的局面，新中国联邦需要强大自己的经济和媒体，并让更多战友加入，让世界跟我们站在一起灭共！<br/>
-![img](https://media.gettr.com/group37/getter/2021/12/28/01/45cf0502-c825-19c2-d9bd-0a8e7b573740/out.jpg)
-
----
-
-`@miles 12/27/2021 9:38 PM (UTC)`
-
-HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated interview with Mr. Miles Guo was deceptively edited into a less than 3-minute LIE. HBO-VICE’s vicious intention to slander and discredit Mr. Guo is clear. Here is the TRUTH.
-![img](https://media.gettr.com/group8/origin/2021/12/27/21/99c4fc81-f157-58b5-c330-11677d186ecb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
