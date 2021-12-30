@@ -2,28 +2,34 @@
 ---
 
 
-## 接种了新冠疫苗的法国网球明星贝努瓦·派尔再一次被检测出新冠阳性
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1802638/)
+## 英国安全部长将俄罗斯和中共国列入敌对国家行列
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1802648/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/贝努瓦.png)
-图片来自网络
+**据《sputniknews.com》，2021年12月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a6la5-7mctx-3.jpg)
+莫斯科（Sputnik）–英国安全与边境事务国务大臣达米安-海因兹将俄罗斯、中（共）国和伊朗列为“敌对国家”，并列举了网络活动问题和所谓的虚假信息活动。
 
-世界排名第 46 位的法国网球明星贝努瓦·派尔已经完全接种了新冠疫苗，然而，在参加2022年澳大利亚网球公开赛之前，他的新冠检测再一次呈阳性。
+“我向你提到的这三个国家有实在的人才，他们有很大的网络存在感，他们能够大规模部署。”海因兹周日告诉《电讯报》，声称中（共）国、俄罗斯和伊朗“以多种方式参与”地面间谍、网络攻击、士兵待命和虚假信息活动。
 
-“这是我第 250 次被检测出新冠阳性！”。这位网球选手对已经接种了新冠疫苗，但仍然不断感染新冠病毒感到沮丧和不知所措。“老实说，我再也受不了这个新冠病毒了。“
+这位部长还说，朝鲜是第四个敌对国家。
 
-由于新冠呈阳性，他不断流鼻涕，并在酒店被隔离。他的精神状态非常低迷并感到愤怒。他说，“我 100% 支持新冠疫苗，但既然接种了新冠疫苗，就应该像新冠大流行之前那样生活。”
+12月初，俄罗斯对外情报局表示，英国秘密情报局局长理查德-摩尔关于所谓来自俄罗斯的威胁的挑衅性和毫无根据的言论，阻碍了俄罗斯和英国可能进行对话的机会。
 
-该选手原定于 1 月 4 日在墨尔本参加一场预选赛，但这些计划已被打乱。他曾多次在大满贯赛事中闯入第四轮。他最近的阳性测试结果让他感到怒不可遏。
+摩尔在11月底说，伦敦看到了来自俄罗斯的严重威胁，并将尽一切努力遏制和击退这些威胁。
 
-接种了新冠疫苗仍然多次感染新冠病毒，证明新冠疫苗无效。强制接种就是个骗局。接种了新冠疫苗的民众已经开始醒悟。
+莫斯科一再强调，俄罗斯没有威胁任何国家，也没有计划进行任何攻击，称这种指控毫无根据。
 
-消息来源：
-[Australian Open 2022: French tennis star Benoit Paire rages after testing positive to Covid-19 for ‘250th time’, tennis news | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/tennis/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/3b346b6521c9c2a07da3e3c606a8ed6e)
+**原文连接**：[https://sputniknews.com/20211227/british-security-minister-includes-russia-china-among-hostile-nations-1091826845.html](https://sputniknews.com/20211227/british-security-minister-includes-russia-china-among-hostile-nations-1091826845.html)
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-3.jpg)
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
