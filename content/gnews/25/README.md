@@ -2,28 +2,33 @@
 ---
 
 
-## 广西“文革式防疫” 违规者游街示众
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1804384/)
+## 1月6日委员会要求提供川普工作人员的银行记录
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804455/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-63.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs.yimg.com%2Fuu%2Fapi%2Fres%2F1.2%2FEsfF7IHLHVDd2Np1QabHHQ--~B%2FZmk9ZmlsbDtweW9mZj0wO3c9NjQwO2g9MzYwO3NtPTE7YXBwaWQ9eXRhY2h5b24-%2Fhttps%3A%2F%2Fs.yimg.com%2Fhd%2Fcp-video-transcode%2Fprod%2F2021-12%2F29%2F61cc25c8cec8b12ed2a2be92%2F61cc25c8cec8b12ed2a2be93_o_U_v2.jpg&amp;imgrefurl=https%3A%2F%2Ftw.news.yahoo.com%2F%25E5%25BD%25B1-%25E4%25B8%25AD%25E5%259C%258B%25E5%25BB%25A3%25E8%25A5%25BF%25E9%25A9%259A%25E8%25A6%258B-%25E6%2596%2587%25E9%259D%25A9%25E5%25BC%258F%25E9%2598%25B2%25E7%2596%25AB-%25E9%2581%2595%25E8%25A6%258F%25E8%2580%2585%25E8%25A2%25AB%25E9%2580%25BC%25E9%2581%258A%25E8%25A1%2597%25E7%25A4%25BA%25E7%259C%25BE-084837525.html&amp;tbnid=UQdxUKZWZCbjJM&amp;vet=12ahUKEwithqfPgov1AhUUHTQIHVbVD48QMygDegQIARBD..i&amp;docid=ds-zHsboszmxAM&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E5%B9%BF%E8%A5%BF%E2%80%9C%E6%96%87%E9%9D%A9%E5%BC%8F%E9%98%B2%E7%96%AB%E2%80%9D%20%E8%BF%9D%E8%A7%84%E8%80%85%E6%B8%B8%E8%A1%97%E7%A4%BA%E4%BC%97&amp;ved=2ahUKEwithqfPgov1AhUUHTQIHVbVD48QMygDegQIARBD)
-中共国清零防疫政策一直是官方引以为傲阻绝疫情的方式，但随着近日疫情升温，有地方出现了极端的管制方法，将违反规定者绑上街“批斗”。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-多家媒体报道，周三 (12月29日)在广西自治区靖西市至少有４名涉嫌违反防疫规定的人被押解游街示众。影片中，4人身穿防护服、胸前挂着照片和他们的姓名标语，在保安的带领下穿过繁忙的街道。游行队伍由几十名警察守卫，其中一些人有武器，最后4人停在一个广场类似“批斗大会”的现场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1857.png)图片来源 ：thenationalpulse.com
 
-据了解，这4人涉嫌运送他人偷越国（边）境罪，协助非法移民从附近的越南越过边境。虽然当地政府回应称这就是现场惩戒警示活动，没有不合适，但《北京青年报》引用律师说法表示，这种游街示众的行为没有法律依据，且4人目前是涉嫌犯罪，没有最终判决，属于未决犯，这种做法侵害了他们的人格尊严，是不妥当的。
+泰勒·布多维奇（Taylor Budowich）–拯救美国和唐纳德·J.川普总统的通讯主任–1月6日委员会违宪地向摩根大通发出传票，并要求他提供银行记录。其后发表了一份声明。
 
-影片一出，引发网络“文革式防疫”的讨论，让人联想到1966年至1976年毛泽东领导的文化大革命期间常见的公开羞辱行为。虽然中共政府曾在2010年禁止这种行为，但在最近几个月，这种做法在新一波打击下一再次浮现。
+该声明全文如下：
 
-中共国社交媒体上，网民看法不一。有用户微博上表示这些人“活该”，担心他们把病毒带入中共国，但也有人评论认为在“没有法治的社会里，人人都不安全”。
+“民主正受到攻击。然而，不是由2021年1月6日非法进入国会大厦的人，而是由一个其成员每天在其大厅自由行走的委员会。在完全遵守委员会的规定，包括在12月22日坐了四个小时的取证后，我在12月23日回到家，却发现银行机构摩根大通给我的通知——如果我在12月24日之前不提供法院命令的停业执照，他们就会把我的银行记录交给委员会。更加荒唐的是，委员会和摩根大通都不会向我提供传票实际内容的副本。双方通过规避我受宪法保护的权利，该委员会只证明了一件事——宪法只在你的政党（共和党）掌权时适用。此外，向联邦法院提出的这项申诉不是关于政治或党派的问题。现实是，按照目前的速度，民主党人将失去前所未有的席位，包括国会参众两院。一些人可能会对这种可能性感到鼓舞，因为像马克·扎克伯格（脸书CEO）这样的亿万富翁的个人和商业记录肯定比我更有趣。然而，我不是，我不会允许一些政客因为我支持唐纳德·J.川普总统而恐吓我。政府不应成为随意用来对付政治对手和美国公民（隐私）的武器—但似乎这个由民主党领导的国会有意将这一先例编入法律。如果是这样的话，那么愿上帝在这个圣诞前夕帮助我们。”
 
-信息来源：
+布多维奇已经向委员会提供了1700多份文件，并坐在那里做了几个小时的宣誓证词。摩根大通在11月23日收到传票，在通知布多维奇将遵守传票的一个月前。摩根大通在此事件中的职责将由前奥巴马时代司法部长洛雷塔·林奇（Loretta Lynch）代理。
 
-[广西“文革式防疫” 违规者游街示众](https://www.dw.com/zh/%E5%B9%BF%E8%A5%BF%E6%96%87%E9%9D%A9%E5%BC%8F%E9%98%B2%E7%96%AB-%E8%BF%9D%E8%A7%84%E8%80%85%E6%B8%B8%E8%A1%97%E7%A4%BA%E4%BC%97/a-60290618)
+1 月 6 日委员会在整个调查过程中是多次违反联邦法律行事。例如，包括对国会大厦抗议活动前几天的所谓与会者伪造证据，并[拒绝任命一名高级众议院少数派成员](https://thenationalpulse.com/2021/12/02/john-eastmans-lawyers-just-destroyed-the-jan-6-committee-and-its-subpoenas/)——约翰·伊士特曼（John Eastman），其指出，这使得他们无法遵守相关的众议院规则（包括适用于传票的规则）。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+迄今为止，联邦调查局已发现了与1月6日抗议活动有关的任何有组织阴谋的“[少量证据](https://thenationalpulse.com/2021/08/20/fbi-finds-scant-evidence-of-jan-6-insurrection-plot-killing-off-another-anti-trump-media-hoax/)”。
+
+新闻来源：[thenationalpulse.com] [Far-Left Jan 6 Commission Demands Bank Records of Trump Staff in Bizarre Intimidation Attempt.](https://www.politico.com/news/2021/12/27/biden-signs-defense-policy-bill-526171) | 发布时间：2021年12月29日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

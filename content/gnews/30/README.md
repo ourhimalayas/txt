@@ -2,92 +2,23 @@
 ---
 
 
-## 埋
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1804328/)
+## 华盛顿特区的返校新规—— 必须提供阴性结果才能返校
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1804402/)
 
-**作者：**英喜农场 修罗闻道
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/359ED219-CF66-4989-AED2-17B9627A0033.jpg?asset_id=A377E5DB-56AA-48C9-9157-9A6592579F06&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/359ED219-CF66-4989-AED2-17B9627A0033.jpg?asset_id=A377E5DB-56AA-48C9-9157-9A6592579F06&amp;size=1024)
-让软弱的我们
+#### 撰稿：彩虹
 
-学会坚韧
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-24.jpg)图片来源：WTOP
+根据《国会山报》12月29日的报道，周三，华盛顿特区宣布了针对节后返回学校的学生和工作人员的中共病毒（COVID-19）疫情新规定。
 
-让温柔的心
+根据报道，民主党市长穆里尔·鲍泽（Muriel Bowser）和华盛顿特区公立学校（DCPS）校长路易斯·费比（Lewis Ferebee）宣布，为确保在不断发生的中共病毒疫情中的安全，华盛顿特区公立学校将要求所有学生和工作人员在1月5日返校前提供中共病毒（COVID-19）阴性测试结果证明。并且，学校将在1月3日（星期一）和1月4日（星期二）提供免费的快速抗原测试。
 
-慢慢变强
+报道说，官员们要求，无论孩子的测试结果如何，如果出现任何症状，家长都要将孩子留在家中；如果没有接种中共病毒疫苗，但却与阳性病例有过密切接触，则需要被隔离观察。
 
-遇见的人
+**新闻来源**
 
-多一分真诚
+[DC to require negative COVID-19 test for all students and staffers returning to classrooms](https://thehill.com/homenews/state-watch/587644-dc-to-require-negative-covid-test-for-all-students-and-staffers)
 
-遇到的事
-
-少一丝慌张
-
-岁月的好
-
-亲人的笑
-
-动荡年月
-
-难得最是真情
-
-纳粹的政令
-
-多一分警惕
-
-歌颂的声音
-
-少一句轻信
-
-人间游荡的
-
-是暗夜的幽灵
-
-狰狞嚣张的
-
-是吸髓的恶魔
-
-宇宙无限大
-
-地球是一粒沙
-
-“党爹党妈”最“伟大”
-
-泱泱中华，可有一方净土容我乐业安家
-
-岁月长河
-
-如沙般指间流淌
-
-消逝的是生命与热情
-
-筛下的是清醒还是木讷
-
-中华如此之大
-
-百姓卑微似土，似水，似沙
-
-我心中有你，你心中有他
-
-百姓就是坚如铁石的混凝土，力量无限大
-
-飞扬的沙
-
-将共匪埋进墓场
-
-有泥土地的地方
-
-就是我们温暖的家
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/7B7115CB-48DA-4C60-8BD2-818FF353650E.jpg?asset_id=AF9865E5-8389-4091-9A09-EF3959B69834&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/7B7115CB-48DA-4C60-8BD2-818FF353650E.jpg?asset_id=AF9865E5-8389-4091-9A09-EF3959B69834&amp;size=1024)
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*校对：文明明 | 审核：仙女儿-文善 | PAGE：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
