@@ -2,30 +2,48 @@
 ---
 
 
-## 被封杀和开除的人大退休教授周孝正：说话是我的尊严
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803100/)
+## 日本大幅增加国防预算以因应中共威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803211/)
 
-![周孝正教授接受美国之音采访(视频截图)](https://gdb.voanews.com/47D22438-EF93-42D2-BCF3-ECB4FD34D90B_w1023_r1_s.png)*中国人民大学社会学系退休副教授周孝正(资料照）*
-据美国之音12月29日报道，被全网封杀之后，中国人民大学社会学系退休副教授周孝正28日收到被校方正式开除的口头通知。他成为因批评中共现任领导人习近平而受到惩罚的知识分子中的最新一例。
-
-一位女教师代表校方通知旅居美国的周孝正，他已被人民大学开除，决定自12月17日起生效，但是校方没有提及养老金和退休待遇问题。周孝正表示，校方应该出具书面通知，这是对人最起码的尊重。2017年移居美国后，周孝正开办自媒体，并多次接受媒体采访，毫不避讳地批评中共党魁习近平。
-
-因言获罪，这是中国一项古老的刑罚，中共篡政后一直保留到现在。在中共国，党有骂人、打人、杀人的自由，老百姓没有还嘴的权利，批评领袖更是罪加一等。伟大领袖光芒万丈，没有瑕疵，不容批判。如果周孝正身在中共国，毫无疑问，现在一定在服刑。中共明明大国自信，却听不得一点点反对的声音。不知道是大国自信还是大国自卑才会对一个75岁的退休老人如此行事，仅仅因为他的言论。
-
-新闻参考链接：[https://www.voachinese.com/a/retired-Chinese-professor-who-criticized-Beijing-fired-by-university-20211229/6373801.html](https://www.voachinese.com/a/retired-Chinese-professor-who-criticized-Beijing-fired-by-university-20211229/6373801.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山 医疗部 云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-371.jpg)图源网络
+
+当地时间12月24日，日本内阁会议通过2022年会计年度总预算案，其中国防预算编列了5.4兆日圆 (约470亿美元)，比2021年度多500亿日圆。相关人士评断，此举是为了应对中共对日本日益增强的武力威胁。
+
+此次国防经费大幅增加后，占比日本国内生产总值的1.9％，与欧美惯常2％的国防经费占比，已非常接近。且已超过日本政府与政治人物一直以来设定的不超过1%的上限。
+
+自2012年12月安倍晋三第二度担任首相以来，日本的国防预算就逐年增加。近日安倍提出台湾有事，日本就有事的论点后，有关日本的国防议题就更加受到各界的关注。
+
+现任日本首相岸田文雄原被视为亲中派，但在被中共武力严峻压力趋使下，此次也不得不提出破纪录的国防预算案，来保障日本自身的安全。
+
+新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3779709](https://news.ltn.com.tw/news/world/breakingnews/3779709)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-8.png)
+
+编辑：Kathy文艺
+
+校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
