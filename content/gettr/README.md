@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 3:12 PM (UTC)`
+
+12月30日：天杀的中国共产党．比爹娘还亲的共产党……【七哥，昨晚说事故700起，死亡3000余人，我觉得都是保守数据！这些城中村人没有灶和锅，冰箱也没有。】
+![img](https://media.gettr.com/group14/getter/2021/12/30/15/a67d02dd-f687-6f11-ee99-484866242fe2/26043465f4d0b245bb27023acbcc2824.jpg)
+
+---
+
 `@miles 12/30/2021 2:17 PM (UTC)`
 
 ...
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 12月28号：在中国的所谓的神州大地上，这样的事情过去无数发生，此时此刻有无数个正在发生，未来只要有共产党存在……还会有更多更多的发生……我们应该怎么做？让这些事不再发生……
 ![img](https://media.gettr.com/group40/getter/2021/12/28/18/8adfd27f-3cb9-6fe6-ca89-4b667cb4092a/e8216298e5ee6b771cd81e9d36a42090.jpg)
-
----
-
-`@miles 12/28/2021 4:41 PM (UTC)`
-
-<br/>12月28日：吃饭饭喽……荷叶蒸老鸡！
-![img](https://media.gettr.com/group9/getter/2021/12/28/16/8f0973aa-98fc-9c4a-d809-bf2ac98748ed/out.jpg)
 
 ---
 
