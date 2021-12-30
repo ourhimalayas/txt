@@ -2,21 +2,25 @@
 ---
 
 
-## 拜登与普京通电话调停其在乌克兰边境的军事行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803898/)
+## 奥密克戎使圣诞节期间的儿科医院人满为患
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803915/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-28.png)
-图片来源： www.bbc.com
+采编：青青           编译撰稿：文莱
 
-美国合众国际社12月29日报道，白宫周三说，乔·拜登总统将于周四与俄罗斯总统弗拉基米尔·普京通电话讨论“一系例议题，包括外交介入。”
-国家安全委员会发言人埃米莉·霍恩说，拜登政府将参与“咨询和协调的常规方法以应对俄罗斯在乌克兰边境的军事聚集行动。拜登总统已经与欧洲领导人通过话，拜登政府官员已经与北约，欧盟和欧洲安全与合作组织共同介入。”
-目前乌克兰估计有12万2千名俄罗斯军人被部署在离乌克兰边境124英里之内，其中有几万人是数星期前刚部署的。俄罗斯近来一直在乌克兰边境部署部队，导致西方国家担心其可能在冬天入侵乌克兰。
-上周美国国家安全顾问杰克·沙利文敦促俄罗斯减少在乌克兰边境的军事部署。沙利文说：“美国已准备好在外交层面通过多通道介入，包括双边会谈，北约-俄罗斯委员会和欧洲安全与合作组织的会谈等。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-13-edited.jpg)图片来源：CTV
 
-##### **新闻来源： **[Biden to have call with Putin over military build up in Ukraine](https://www.upi.com/Top_News/World-News/2021/12/29/Joe-Biden-call-with-Putin-Thursday/3801640807040/)
 
-# ** **
+据加拿大【CTV新闻】12月28日报道，具有高度传染性的“奥密克戎”疫情在圣诞节期间的肆虐，使得本月纽约市的儿科入院人数增加了近五倍。而整个美国的儿科住院人数则在过去一周内增加了35%。
+
+报道称，去年【德尔塔】变异体的平均感染率仅为17%，但近期儿童医院的病毒检测结果显示出“奥密克戎”的阳性率已高达近50%。因此，纽约州地区的医护人员对即将再次爆发的疫情忧心忡忡。
+
+据医院医生披露，所有年龄段的儿童都有感染“奥密克戎”的风险，并且该病毒变异体可能会导致儿童及成人患上“多系统炎症综合症”。目前，美国已报告了约6千起该病例，其中有52名儿童因此丧生。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+參考链接： [https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007](https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007)
 
  
 
