@@ -2,29 +2,25 @@
 ---
 
 
-## 中共国西安疫情急剧恶化全城封锁
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803935/)
+## 奧地利政府将雇佣专人搜捕拒绝接种疫苗者
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803949/)
 
-采编：文莱          编译撰稿：Quitman
+采编撰稿：自由法兰西          校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-14-edited.jpg)图片来源：TLW
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-15-edited.jpg)图片来源：TNH
 
 
-据加拿大【温哥华太阳报】12月26日报道，中共国的本地症状性“新冠病毒”感染病例数再次攀升，随着西安进入第五天的封锁期，该西北城市报告的新增感染患者数居全国之首。
+据英国自媒体《每日内幕》12月27日报道，为确保顺利执行其疫苗强制接种政策，奥地利政府正计划雇佣专门的检察人员来追踪和搜捕那些拒绝接种的人，后者将面临巨额罚款甚至被拘押监禁。
 
-报道称，在人口1300万的西安，从12月9日至26日期间，共有635个确诊病例，但当局尚未报告“奥密克戎”变体病毒的感染人数。而在12月23日封城后，仍不断有大量新病例涌现。
+报道称，20万人口的林茨市目前正处于该暴政计划的最前沿。因为仅有63%的“低”接种率，该市正筹备招聘专员以检查那些未接种者是否支付了政府的罚金。这些被称为“猎人”的工作还包括执行刑事命令以及处理相关上诉等。同时，只有完全接种疫苗的奥地利公民才有资格获得这项年薪高达约4万欧元的工作。
 
-为此，中共当局正试图通过严酷封锁社区以尽快遏制疫情。这些强制措施包括：未经地方当局批准，居民不可擅自离开城市；每个家庭只能每两天派出一人去购买生活必需品，而其他家庭成员则不得离家，违者即遭逮捕和监禁。
-
-目前，至今被封锁在家不得出户的西安居民已怨声载道，而民不聊生的古都西安现已沦为名副其实的将死之城。
+奥地利是欧洲首个推行疫苗强制接种的国家。当局规定从明年2月1日起，所有国民都必须接种新冠病毒疫苗，违者将被罚款最高7,200欧元，而拒绝缴纳罚款者则将面临牢狱之灾。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+发稿：硫酸羟氯喹64
 
-參考链接：[https://vancouversun.com/pmn/business-pmn/chinas-local-covid-19-cases-edge-higher-as-xian-enters-5th-day-of-lockdown/wcm/976740b4-6a15-4d2a-be39-80ab6d7f7658](https://vancouversun.com/pmn/business-pmn/chinas-local-covid-19-cases-edge-higher-as-xian-enters-5th-day-of-lockdown/wcm/976740b4-6a15-4d2a-be39-80ab6d7f7658)
-
-相关视频：[https://gettr.com/post/pktfk7f8b8](https://gettr.com/post/pktfk7f8b8)
+原文链接： [https://dailyexpose.uk/2021/12/27/austria-is-hiring-hitmen-to-track-down-covid-19-vaccine-refusers/](https://dailyexpose.uk/2021/12/27/austria-is-hiring-hitmen-to-track-down-covid-19-vaccine-refusers/)
 
  
 

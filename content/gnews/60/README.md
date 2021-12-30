@@ -2,39 +2,20 @@
 ---
 
 
-## 拜登调动军队抗疫，战斗室嘉宾提议使用第二修正案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1788603/)
+## 小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773677/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-3.jpg)图片来源：**Daily Clout**
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1067.png)      图片来源：NPR
+据《网关专家》（Gateway Pundit）12月19日，新畅销书《真正的安东尼·福奇》（The Real Anthony Fauci）的作者小罗伯特·F·肯尼迪 (Robert F. Kennedy, Jr.)12月18日做客《班农战斗室》节目，接受了班农先生长达一小时的采访。在采访中，小肯尼迪讲述了美国情报部门和军方在武汉实验室病毒泄露一事中的参与情况，以及他们在过去20年里的生物研究。
 
+肯尼迪说：“他们从来没有谈论过公共卫生，也从不谈论如何药物再利用、如何隔离病人、如何让人们吃维生素D和锌、锻炼身体、建立他们的免疫系统，没有这样的讨论。他们所谈的全是关于如何用大流行病为借口来消灭民主制度。武汉功能增强研究实验的最大资助者是美国中情局（CIA），它们通过美国国际开发署（USAID ）提供资金，甚至比福奇的资助还要多；五角大楼排第二；福奇第三。五角大楼通过福奇向武汉实验室输送资金，每年17亿美元，现在是22亿美元。他们还给福奇加薪68%，加薪幅度与他的生物武器研究挂钩。这也是福奇不得不继续做这种功能增强研究的原因之一，即使奥巴马在2014年告诉他要停止这类实验，但他没有。拉尔夫·巴里克 (Ralph Baric)在福奇的资助下开发了隐藏（基因）工程证据的系统。如果你真的对公共卫生感兴趣，你会想做与此相反的事情。他们所做的事与保护人们健康无关，他们将（病毒、细菌）武器化，以便人们无法追溯到他们何时向世界投放了这个武器。巴里克将被其称为‘no-see-um’的技术（刺突蛋白基因插入SARS病毒）传授给了中共科学家石正丽，后者在中共和中共解放军的控制下管理该实验室，福奇资助了该实验室。”
 
-#### 整理报道：Ronnie O’Sullivan
-编辑：文泓
+小肯尼迪作为卫生行业的资深人士，这段爆料十分可信，也让人震惊。这也可以解释为什么在证据确凿的情况下，新冠病毒的溯源调查阻力重重，结果迟迟没有定论。纳税人的钱被政府用来研究杀人武器杀害纳税人，这被认为只存在于独裁专制国家的现象在美国等民主国家也早已屡见不鲜。世界到了该大变革的时候，人类文明才会重生。
 
-美国时间12月24日，作家和记者娜奥米·沃尔夫周四在《班农战斗室》节目中宣称，乔·拜登总统在命令军医处理激增的新冠病毒案件中，实施了一场政变。本周，拜登宣布，他的政府将通过安排约1,000名受过医学训练的军事人员来应对Omicron变种病毒的威胁。联邦紧急事务管理局（FEMA）也被安排为公民提供防护设备，扩大医院人员配备，及帮助疫苗接种。
-
-班农在节目中特地用15分钟，让沃尔夫解释为什么这些行动构成了“政变”。
-“我之所以如此恐惧，是因为它今天能从1,000[名军人]开始[部署]”，沃尔夫说:“你知道，明天它可能部署30,000军人，下周可能增加到50,000军人。（军人干预）界限正在被打破。”
-
-“快醒醒吧，所有人！”她感叹道：“在全国推动疫苗护照，（挨个）敲门，FEMA在敲你的门；在其他国家强制隔离政策、以及军方正被部署到美国境内的实情，这些事件混杂在一起，你发现情况有多糟糕？”
-沃尔夫敦促了对政变采取“和平”抵制，她也将把第二修正案推广为可考虑的补救措施。
-“与其他被（疫情）征服的国家相比，唯一优势就是我们拥有第二修正案，”她表示。
-沃尔夫还预测，作为政变的一部分拜登将取消2022年中期选举。
-
-“当47个州采取紧急措施，军方也被部署于美国境内时，国家宪法将只起着理论上的作用，”她说。|
-“就这样吧，圣诞快乐”，班农说：“（也许）我会在联邦紧急事务管理署的营地里看到你。”
-
-新闻链接：[‘I’ll see you in a FEMA camp’: Steve Bannon guest promotes ‘Second Amendment’ amid Biden’s latest ‘coup’ – Raw Story – Celebrating 17 Years of Independent Journalism](https://www.rawstory.com/naomi-wolf-coup/)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Robert Kennedy Jr. on The War Room: US Intelligence Agencies and Military Were Involved With The Wuhan Lab Research (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-kennedy-jr-war-room-us-intelligence-agencies-military-involved-wuhan-lab-research-video/)
 
  
 
