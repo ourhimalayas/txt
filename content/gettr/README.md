@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 9:25 PM (UTC)`
+
+12月30日：正在签给战友们签名……太幸福了！
+![img](https://media.gettr.com/group28/getter/2021/12/30/21/3dc417c1-fed4-d8d7-aff4-b7d7d928fb33/c21856fb61ff7edb49e01683713dade6.jpg)
+
+---
+
 `@miles 12/30/2021 8:58 PM (UTC)`
 
 12月30日：Darkness has enveloped the world. 🙏🙏🙏🙏🙏🙏🙏🙏🙏【Brother Miles Guo warned America about this TWICE — spring 2019 and again with the problem with the Three Gorges Dam in spring 2020 <br/><br/><br/>https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam】
@@ -168,13 +175,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12月30日：天杀的中国共产党．比爹娘还亲的共产党……【七哥，昨晚说事故700起，死亡3000余人，我觉得都是保守数据！这些城中村人没有灶和锅，冰箱也没有。】
 ![img](https://media.gettr.com/group14/getter/2021/12/30/15/a67d02dd-f687-6f11-ee99-484866242fe2/26043465f4d0b245bb27023acbcc2824.jpg)
-
----
-
-`@miles 12/30/2021 2:17 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group48/getter/2021/12/30/14/88b0747b-b081-7a32-3ed0-70f06f6de715/2983e21371d0e44a7b76e65362b410b9.jpg)
 
 ---
 
