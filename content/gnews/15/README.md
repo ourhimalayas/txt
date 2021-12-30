@@ -2,21 +2,45 @@
 ---
 
 
-## 【#G时新闻】左媒也开始唱衰拜登了！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1806330/)
+## Omicron感染者或增强对Delta变种病毒免疫力
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806402/)
 
-据CNN 12月21日报道，拜登总统在美国公众的心目中明显处于垂死挣扎状态，虽然他的支持率在一系列问题上都有所下降，但美国民众对他在经济方面的表现尤为不满，给他的经济净评分是自1977年吉米·卡特以来所有总统在第1任期内的最低。
+作者：Reuters
+翻译：HimaCoby
 
-在CNN最新民意调查中，拜登在登记选民中对其经济表现的支持率为44%，不支持率为55%，这使得拜登所在经济净评分为负9。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-378.jpg)
 
-在12月进行的所有民调的平均值与此相当，拜登在经济方面的支持率为负13点，与之相比在过去44年中，平均每个总统的经济净评分为正5点 ，这意味着拜登的评分比平均水平差18个百分点。
+南非科学家的最新研究表明，Omicron感染者增强了对Delta变种病毒的中和免疫力。这项尚未经过同行评审的研究发现，感染了Omicron变种病毒的人，尤其是那些接种过疫苗的人，对Delta变种病毒产生了增强的免疫力。但世界卫生组织专家说这个结论为时尚早。
 
-发布：加拿大温哥华扬帆农场
-盖特：[https://gettr.com/post/pkb2gi0ec6](https://gettr.com/post/pkb2gi0ec6)
-播报：文广
-听写：LuLu1312
-视频制作：kent
-编辑/上传：七觉花
+据报道，南非科学家招募了33名在南非感染Omicron变种病毒患者，包括已经接种疫苗和未接种疫苗的人。
+
+科学家发现Omicron变种病毒的中和作用在感染后的14天内增加了14倍，但科学家同时也发现Delta变种病毒的中和作用也增加了4.4倍。
+
+科学家们说：感染Omicron的患者再次感染Delta的机会下降了。
+
+南非非洲健康研究所教授Alex Sigal周一在推特上表示，从南非的经验来看Omicron的致病性较低，这将有助于将Delta抑制住。
+
+根据南非较早的一项研究结果显示，与Delta变种病毒相比，感染Omicron变种病毒的人住院和患严重疾病的风险降低，但是作者也说其中部分原因可能是由于南非人群免疫力高。
+
+Omicron变种病毒于11月在南部非洲和香港首次被发现，此后已在全球蔓延，并威胁到医院不堪重负，并在今年的假期周让很多人旅行计划中断。
+
+来源：https://globalnews.ca/news/8476320/covid-omicron-delta-immunity-study/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

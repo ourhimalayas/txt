@@ -2,32 +2,22 @@
 ---
 
 
-## 七哥谈盘古（2021-12-29摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806526/)
+## 【中日财经爆】神话，恒大第一款量产车型下线？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806569/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-115.jpg)[图片来源](https://www.qichezhuanye.com/news/177671.html)
+据财联社12月30日电，其记者独家获悉，恒大汽车第一款量产车型恒驰5首车已于12月30日成功下线，比原定时间提前了12天。知情人士透露，天津工厂当日举行了低调的下线活动。据悉，恒大汽车将在1月上旬举行首车下线仪式。
 
-来源：郭先生2021-12-29直播11:02:05摘录
+恒大汽车造假成性，展会靠模型，骗钱靠PPT，下线时间一推再推，突然间爆出提前下线。这个无图片，无发布，无真相的三无产品，恐怕只是为了稳定市场预期和收割韭菜以实现冬奥会前不能破产的政治企图。
 
-盘古要变成火龙了，都检查完了，这个什么都检查完了，这个什么管道都没问题了，它哪天boom变成火龙的时候，那个时候我该说话了。他一定会说这是郭文贵干的，在美国控制了把龙变成了火龙。那个绝对会成为全世界最大的，到底世界上存不存在的第三方力量，到底有没有外星人，小王子最关心的外星人，还有我们的小飞侠最关心的有没有外星人。这都会给你一个答案。
+信息来源：
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[恒大汽车第一款量产车型恒驰5首车于12月30日提前下线](https://finance.sina.com.cn/stock/hkstock/ggscyd/2021-12-30/doc-ikyamrmz2165808.shtml)
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

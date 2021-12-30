@@ -15,164 +15,164 @@
 
 ---
 
-### [七哥谈打压宗教（2021-12-29摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [七哥谈盘古（2021-12-29摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [Apple公司支付工程师18万美元防人才流失](/content/gnews/3/README.md)
- ` wenwu`
-
-### [12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（九）](/content/gnews/6/README.md)
- ` 纽约香草山MOS02`
-
-### [台湾芯片业成为美中对决的战场-下部分](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/8/README.md)
- ` wenwu`
-
-### [【#G时新闻】以色列将起诉向中共出口巡航导弹的公司和个人！](/content/gnews/9/README.md)
- ` G-时新闻`
-
-### [Omicron感染者或增强对Delta变种病毒免疫力](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [台湾芯片业成为美中对决的战场 – 上半部](/content/gnews/11/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [2021年12月29日文贵大直播简报](/content/gnews/12/README.md)
- ` 秘密翻译组-原创组`
-
-### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新冠疫苗致死引爆韩全国范围抗议活动](/content/gnews/14/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【#G时新闻】左媒也开始唱衰拜登了！](/content/gnews/15/README.md)
- ` G-时新闻`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/16/README.md)
- ` wenwu`
-
-### [西媒头条 — 第142期](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [国会议员提议：所有17岁以上人士可获基本收入](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（八）](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [美国CCP病毒新增确诊再次刷新纪录](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
-
-### [继恒大之后，中国世茂重燃房地产行业的恐慌](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [加拿大总理称中国&#8221;玩弄&#8221;西方 让他们互相对抗](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（七）](/content/gnews/23/README.md)
- ` 纽约香草山MOS02`
-
-### [DC大中华时事：香港《立场新闻》29日宣布即时停止运作](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每日快报： 全球一周来新冠病毒感染人数创新高](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（六）](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [万千宠爱在一身，喜币将是数字货币的规则制定者和开拓者](/content/gnews/27/README.md)
- ` YALUN 亚伦`
-
-### [加拿大重症医师：从未见过此番情境请留在家里](/content/gnews/28/README.md)
- ` MG FARM`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（五）](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [2022安省新政即将上路:彻底告别加班 缴税优惠](/content/gnews/30/README.md)
- ` MG FARM`
-
-### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年12月29日郭文贵先生直播全文字版](/content/gnews/34/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战](/content/gnews/35/README.md)
- ` MOS香港部`
-
-### [佛罗里达州将调查该州在中共国公司的持股情况](/content/gnews/36/README.md)
- ` GTV新闻访谈`
-
-### [班农成为当今美国最可信的消息来源](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [全球抵制北京冬奥会的最新情况](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [中共的经济崩溃和洗脑 将害死太多人](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-6](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 什么是白名单？](/content/gnews/41/README.md)
- ` 纽约香草山MOS01`
-
-### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/42/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共“零感染”政策下，人民无基本人权可言](/content/gnews/43/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [广西百色市靖西再现游街示众，历史重演](/content/gnews/44/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/45/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/47/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/48/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [奥地利是在欧洲引入疫苗暴政的国家，我们必须反击](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/30每日播报｜香港《立场新闻》多名相关人士被捕 现已停止运作](/content/gnews/50/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [12/30每日播报｜美联邦法官驳回俄克拉荷马州阻止军队疫苗强制令的讼诉](/content/gnews/51/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/52/README.md)
+### [【中日财经爆】水能变油？没钱的恒大能“保交楼”？](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/30每日播报｜拜登政府的失策导致中共病毒COVID-19的测试等待线长达数英里](/content/gnews/53/README.md)
+### [【中日财经爆】神话，恒大第一款量产车型下线？](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】中共国货币宽松无效，明年将大幅扩大国债规模？](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥谈打压宗教（2021-12-29摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥谈盘古（2021-12-29摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [有声|美情报部门称中共使用基因编辑和脑控武器](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [Apple公司支付工程师18万美元防人才流失](/content/gnews/7/README.md)
+ ` wenwu`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（十）](/content/gnews/8/README.md)
+ ` 纽约香草山MOS02`
+
+### [12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（九）](/content/gnews/11/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾芯片业成为美中对决的战场-下部分](/content/gnews/12/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/13/README.md)
+ ` wenwu`
+
+### [【#G时新闻】以色列将起诉向中共出口巡航导弹的公司和个人！](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [Omicron感染者或增强对Delta变种病毒免疫力](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [台湾芯片业成为美中对决的战场 – 上半部](/content/gnews/16/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2021年12月29日文贵大直播简报](/content/gnews/17/README.md)
+ ` 秘密翻译组-原创组`
+
+### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新冠疫苗致死引爆韩全国范围抗议活动](/content/gnews/19/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【#G时新闻】左媒也开始唱衰拜登了！](/content/gnews/20/README.md)
+ ` G-时新闻`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/21/README.md)
+ ` wenwu`
+
+### [西媒头条 — 第142期](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国会议员提议：所有17岁以上人士可获基本收入](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（八）](/content/gnews/24/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国CCP病毒新增确诊再次刷新纪录](/content/gnews/25/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [继恒大之后，中国世茂重燃房地产行业的恐慌](/content/gnews/26/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [加拿大总理称中国&#8221;玩弄&#8221;西方 让他们互相对抗](/content/gnews/27/README.md)
+ ` MG FARM`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（七）](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [DC大中华时事：香港《立场新闻》29日宣布即时停止运作](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [每日快报： 全球一周来新冠病毒感染人数创新高](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（六）](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [万千宠爱在一身，喜币将是数字货币的规则制定者和开拓者](/content/gnews/32/README.md)
+ ` YALUN 亚伦`
+
+### [加拿大重症医师：从未见过此番情境请留在家里](/content/gnews/33/README.md)
+ ` MG FARM`
+
+### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国](/content/gnews/36/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年12月29日郭文贵先生直播全文字版](/content/gnews/37/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [佛罗里达州将调查该州在中共国公司的持股情况](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [班农成为当今美国最可信的消息来源](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [全球抵制北京冬奥会的最新情况](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [中共的经济崩溃和洗脑 将害死太多人](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-6](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 什么是白名单？](/content/gnews/43/README.md)
+ ` 纽约香草山MOS01`
+
+### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共“零感染”政策下，人民无基本人权可言](/content/gnews/45/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [广西百色市靖西再现游街示众，历史重演](/content/gnews/46/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/47/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/49/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/50/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥地利是在欧洲引入疫苗暴政的国家，我们必须反击](/content/gnews/51/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [12/30每日播报｜香港《立场新闻》多名相关人士被捕 现已停止运作](/content/gnews/52/README.md)
  ` 秘密翻译组-即时新闻播报组`
+
+### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [「日澳安全保障共同宣言」拟将对抗目标转向中共](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
