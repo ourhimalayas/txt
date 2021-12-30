@@ -2,63 +2,61 @@
 ---
 
 
-## 40-49岁打了三针疫苗后感染率高出10.3倍
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804478/)
+## 越来越多医院吹哨人揭完全接种者出现血栓及心脏病
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1804579/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip06-8.png)图片来源：naturalnews.com
+自然新闻（[Natural News](https://www.naturalnews.com/)）：几位勇敢的护士站出来谈论这一波疫苗引发的疾病席卷南加州医院。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1859.png)
+位于洛杉矶北部的文图拉县，地区医院出现“无法解释的”心脏问题、中风和凝血的病例激增。 许多当地医生拒绝将这些事件与武汉冠状病毒 (Covid-19) 疫苗注射联系起来。
 
-国家统计局（ONS）编制了一份报告，涵盖了（14天）从11月29日到12月12日Omicron感染。该报告给出了每个疫苗接种状态下，Covid-19阳性者出现Omicron变体的概率（这些统计数据是指发生在私人家庭的感染；不包括在医院、护理院或其他公共场所报告的感染）
+文图拉县重症监护病房的一名重症监护护士出面告诉《康内霍卫报》，他“厌倦了所有正在发生的胡说八道”，因为医疗机构拒绝承认房间里的真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1861.png)
+引用这位名叫山姆（Sam）的人的话说：“没人再质疑任何事情，这太疯狂了。”
 
-以下是OMS报告（图表1b）：英国COVID-19检测阳性者中Omicron可能检测结果的模拟可能性，按筛选的人口统计学特征划分：2021年11月29日至2021年12月12日，这些数字意味着，如果你感染中共病毒，而且你已经打了3针疫苗，那么你患Omicron的可能性比一个未接种疫苗的概率高4.45倍。
+山姆说，在接受“神速疫苗行动”（Operation Warp Speed） 注射后，出现这些严重健康问题的年轻人明显激增。
 
-因此，为了找到感染Omicron的概率，对于每一类疫苗接种状态，我们必须将上述数字（中共病毒患者属于Omicron的几率）乘以感染中共病毒的几率。
+“**我们一直有很多年轻人住进医院来，”山姆补充道。“我们看到了很多中风，很多心脏病发作**。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1863.png)
+其中，一名 38 岁的妇女因脑部阻塞或血流阻塞来到急诊室。
 
-这些几率每周都由英国卫生协会（UKHSA）公布。[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1043608/Vaccine_surveillance_report_-_week_51.pdf)是第51周的疫苗监测报告（Vaccine Surveillance Report）的最新数据。
+“他们 [医生] 正在寻找阳光下的一切，并将其记录在图表中，就是不查她是否接种了疫苗，”山姆补充道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1865.png)
+“**疫苗引起的最主要一件事是血栓形成、凝血。**这里有一位 38 岁的女性，她接种了双重疫苗，并且患有无法解释的中风。没有医生将其与疫苗联系起来。这太荒唐， 这绝对是荒唐。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1866.png)
+**疫苗损害是医院里的洪水猛兽**
 
-因此，现在我们只需将总感染中共病毒病例比例乘以其中为Omicron的概率，就可以得到所有年龄组的Omicron Covid病例的概率，即疫苗接种状况（如下图）。与未接种疫苗者相比，打了两针和打了三针疫苗的人的Covid/Omicron病例率（如下图）。因此，如果你的年龄在40至49岁之间，那么目前打了两针疫苗的人只能使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了5.2倍。此外，如果你的年龄在40到49岁之间，那么打了三针疫苗的人会使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了10.3倍（这是因为Omicron病毒的感染率是10倍）。
+在另一个例子中，一名 63 岁的女性没有心脏病史，却心脏病发作。测试显示她的冠状动脉是干净的，但她刚刚接受了莫德纳注射。
 
-这是因为Omicron病毒可以逃避疫苗，而且中共病毒（COVID-19）疫苗会随着时间的推移逐渐损害免疫系统。事实上，你打的疫苗剂量越多，它们的损害就越大。此外，由于中共病毒有能力躲避COVID-19疫苗，而且该疫苗会损害免疫系统，因此疫苗可以防止Omicron住院和死亡的想法完全是胡说八道(情况显然是相反的)。幸运的是，Omicron的感染通常没有Delta那么严重，也没有那么致命。但似乎Omicron可能是一个完美的变体，显示出疫苗对我们的免疫系统到底有多大的破坏力。
+“一位医生实际上对疫苗提出了质疑，**但他们没有在图表中提及它**，因为你无法证明它，”山姆说。
 
-结论
+山姆说，该地区各地的医院都发现心肌炎的发病率显着上升，这是[众所周知的由中共流感疫苗引起的不良反应](https://naturalnews.com/2021-12-07-psychiatrists-fabricate-stress-disorder-vaccine-heart-disease.html)。
 
-Omicron是“疫苗启示录”（在希腊语中意为揭开面具或启示录）。因此，由于40-49岁的打了三针疫苗的人的病例率是未接种者的10.3倍，他们的免疫系统在一般的中共病毒有效性方面肯定已经退化了（10.3-1.0）/10.3=90.3%。也就是说，他们现在只保留了未打过疫苗的人所能产生的9.7%的免疫反应。这意味着他们真正患上了打了疫苗引发的艾滋病或 VAIDS。
+“每个人都想淡化疫苗的作用，说——‘这很罕见，这很罕见，’“山姆感叹医疗机构没有认真对待这一切。
 
-英国卫生局的数据（UKHSA data）不再显示打了两针疫苗者的免疫系统出现每周5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+“医生不想质疑它。我们进行了大规模的疫苗接种，所以我们更频繁地看到心肌炎，没有人敢拉响危险信号。当我们讨论这个病例时，他们甚至不讨论，不提疫苗。他们表现得好像没有理由提疫苗，都是自发的病例。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1869.png)
+另一位名叫达娜（Dana）的 ICU 护士告诉 《守护者》(Conejo Guardian)，她的ICU设施“从来没有这么忙过”，而且“没有一个是 Covid-19”病人。
 
-5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+“我们通常不会看到同时发生如此多的中风、动脉瘤和心脏病发作，”达娜说。
 
-这是第[36-51 周](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)UKHSA[疫苗监测报告](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)中的政府数据（[如下图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-304.png)）；疫苗效力是使用辉瑞的疫苗效力公式来衡量的：（未打疫苗的 病例率 – 打疫苗的病例率）/未打疫苗或打疫苗的病例率中的较大者——我们正在使用打疫苗的病例数与未打疫苗的病例数的标准化绝对比率来确定疫苗效率，这像辉瑞本身的工作一样。
+“通常我们每年会有到六到十例主动脉栓塞，但上个月我们就有六个。这很疯狂。这些人的死亡率非常高。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1871.png)
+**达娜医院的医生几乎从不考虑疫苗可能是造成这一切的原因。相反，他们将这种突然上涨的病例归咎于“假期”之类的事情**，简直无稽之谈。
 
-不管你怎么看，在未来几周后（1月中旬以后），许多完全接种疫苗的人的免疫系统将达到 100% 的 Omicron 类病毒衰退；或说是打三针疫苗的感染率为 100%。也就是说，所有打了三针疫苗的人百分百会感染 Omicron 或基本可以推断该新变异病毒会在打了三针疫苗的人之间传播。
+“我不明白，你怎么能把正在发生的这样的事情说成是，’这是假期的缘故。’ 每个人的生活都发生了巨大的变化，这就是因为疫苗。”
 
-新闻来源：[dailyexpose.uk] [Triple Vaccinated 40-49 year olds are 10.3x more likely to catchOmicron than the Unvaccinated according to ONS and UK Gov. Figures](https://dailyexpose.uk/2021/12/29/triple-vaccinated-10-times-more-likely-to-catch-omicron/) | 发布时间：2021年12月29日
+绝大多数入院患者都接种了疫苗， **达娜**说，人数之多前所未有，“对凝血问题，正在给他们加压以保持血压升高，使用呼吸机，所以我们有很多肝素滴注，以确保他们不会中风死亡。”
+
+**新闻来源**：[naturalnews.com][More hospital nurses blow whistle on “overwhelming” number of heart attacks, blood clots occurring in the fully vaccinated](https://www.naturalnews.com/2021-12-29-nurses-overwhelming-heart-attacks-clots-covid-vaccines.html)
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
-
-
-
-
-
-
-
-
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
