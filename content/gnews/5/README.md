@@ -2,10 +2,10 @@
 ---
 
 
-## 大阪发生日本首个中共病毒Omicron变种聚集性感染
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1803738/)
+## 英法两国新增确诊中共病毒人数再创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1803749/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._30-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1230-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
