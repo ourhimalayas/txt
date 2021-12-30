@@ -15,95 +15,95 @@
 
 ---
 
-### [【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！](/content/gnews/1/README.md)
+### [西安沦为去年武汉 民众生活物资采购无门](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！](/content/gnews/2/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|东京发现首例奥密克戎变体确诊病例](/content/gnews/2/README.md)
+### [有声|东京发现首例奥密克戎变体确诊病例](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2021年12月30日早](/content/gnews/3/README.md)
+### [GTV新闻访谈简报|2021年12月30日早](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [12月29日老班长联盟答疑G系列相关信息文字版](/content/gnews/4/README.md)
+### [12月29日老班长联盟答疑G系列相关信息文字版](/content/gnews/5/README.md)
  ` 全球G系列咨服群`
 
-### [12/30/21 香港快讯【《立场》被搜捕】联合国、美、英、德、加齐谴责](/content/gnews/5/README.md)
+### [12/30/21 香港快讯【《立场》被搜捕】联合国、美、英、德、加齐谴责](/content/gnews/6/README.md)
  ` 英喜-粵語組`
 
-### [山姆会员店下架新疆产品 中共官媒借机煽动情绪](/content/gnews/6/README.md)
+### [山姆会员店下架新疆产品 中共官媒借机煽动情绪](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列Omicron疫情嚴重 最後一天確診了約3000人 來源N12news](/content/gnews/7/README.md)
+### [以色列Omicron疫情嚴重 最後一天確診了約3000人 來源N12news](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共疫情下的人生百态——J先生回国探父之路](/content/gnews/8/README.md)
+### [中共疫情下的人生百态——J先生回国探父之路](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [班农先生谈即将到来的高法疫苗恶战](/content/gnews/9/README.md)
+### [班农先生谈即将到来的高法疫苗恶战](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [雷·达里奥与中共狼狈为奸](/content/gnews/10/README.md)
+### [雷·达里奥与中共狼狈为奸](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [“蛋炒饭”躺枪 “毛诞日”毛岸英“诈尸”](/content/gnews/11/README.md)
+### [“蛋炒饭”躺枪 “毛诞日”毛岸英“诈尸”](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共冬奥会剥夺了中国人民万亿血汗钱](/content/gnews/12/README.md)
+### [中共冬奥会剥夺了中国人民万亿血汗钱](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:21世纪人类将面临如黑死病般的灾难?](/content/gnews/13/README.md)
+### [秘翻在线:21世纪人类将面临如黑死病般的灾难?](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [为什么拜登可能成为美国最伟大的灭共总统？](/content/gnews/14/README.md)
+### [为什么拜登可能成为美国最伟大的灭共总统？](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [有声|中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/15/README.md)
+### [有声|中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话](/content/gnews/16/README.md)
+### [12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC每日热点1230](/content/gnews/17/README.md)
+### [DC每日热点1230](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [健康地活着就是上天给我们的巨大恩赐，我们要报答回去](/content/gnews/18/README.md)
+### [健康地活着就是上天给我们的巨大恩赐，我们要报答回去](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国律师和医生表示FAA的疫苗政策违反了自己的规定](/content/gnews/19/README.md)
+### [美国律师和医生表示FAA的疫苗政策违反了自己的规定](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/29/2021 文贵直播：拜登签的军事法案的重点在于针对中共的秘密军事力量，这跟美国对付苏联的招儿如出一辙](/content/gnews/20/README.md)
+### [12/29/2021 文贵直播：拜登签的军事法案的重点在于针对中共的秘密军事力量，这跟美国对付苏联的招儿如出一辙](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [面子被揭开后，里面就是贴金的“猪头”](/content/gnews/21/README.md)
+### [面子被揭开后，里面就是贴金的“猪头”](/content/gnews/22/README.md)
  ` 银河勇气之星`
 
-### [知道是问题的会跨越问题,不知道是问题的永远无法跨越](/content/gnews/22/README.md)
+### [知道是问题的会跨越问题,不知道是问题的永远无法跨越](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [暴君和魔鬼全被好听的话毁掉,能听见不同的声音才有未来](/content/gnews/23/README.md)
+### [暴君和魔鬼全被好听的话毁掉,能听见不同的声音才有未来](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西安目前的惨状是由中共疫苗造成](/content/gnews/24/README.md)
+### [西安目前的惨状是由中共疫苗造成](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [从来没有过真自由何谓犯不犯罪？西安防疫管控视民众如罪犯](/content/gnews/25/README.md)
+### [从来没有过真自由何谓犯不犯罪？西安防疫管控视民众如罪犯](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [苏联共产主义“布尔什维克”已经自杀了，苏联解体时的世界媒体](/content/gnews/26/README.md)
+### [苏联共产主义“布尔什维克”已经自杀了，苏联解体时的世界媒体](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [南非有望成为最早一批摆脱中共病毒威胁的国度](/content/gnews/27/README.md)
+### [南非有望成为最早一批摆脱中共病毒威胁的国度](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [一人洗澡百人围观”偷拍已成中国黑色产业](/content/gnews/28/README.md)
+### [一人洗澡百人围观”偷拍已成中国黑色产业](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月29日郭先生大直播文字同步精要](/content/gnews/29/README.md)
+### [2021年12月29日郭先生大直播文字同步精要](/content/gnews/30/README.md)
  ` 焦點20分`
-
-### [加拿大生活美谈 2021-12-23第三十五期](/content/gnews/30/README.md)
- ` canadalifetalk`
 
 ### [12/29/2021 日媒罕见大篇幅报道：中共将郭先生的盘古龙头改鸟头背后的诸多原因](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
