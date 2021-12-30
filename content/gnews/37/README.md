@@ -2,25 +2,21 @@
 ---
 
 
-## 中共的经济崩溃和洗脑 将害死太多人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805747/)
+## 班农成为当今美国最可信的消息来源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805789/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山翻译部 – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月28日，郭文贵先生在盖特视频中谈到了中共经济崩溃的两个迹象。
+据外媒28日报道，美国媒体监督组织“媒体事务”周二宣布获得“年度信息误导者”奖项的正是史蒂夫·班农先生。该则新闻在当天盖特传播中转发量第二。盖特网友纷纷将“媒体事务组织”的负面评价作为褒奖班农先生的殊荣。消息媒体评论班农再创新高度，是当之无愧的真相传播大师，当今对抗马克思主义攻势的美国第一人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-7.jpg)
+Gateway Pundit称，“媒体事务组织”将所有资源用于攻击和误导美国受众。如果“媒体事务”企图打击班农，只能说明班农战斗室正在有效分享，主流媒体不想让大众了解的真相。
 
-第一，一位中共高官战友刚刚逃离中共国，到达欧洲某国，透露说现在墙内的杀富济贫运动如火如荼，中共当年关于私企的口号全都不算数了。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-5.jpg)
-第二，广东的一些银行从内部向中央求助，申请拨款。但中央已经入不敷出，在做出批示的同时派出专案组介入，第一要求保密，第二禁止大额支出，10万元人民币以上的支出需要报备，外汇兑换不许超过1万美元。
-
-郭先生指出，中共银行吃紧，房地产必然崩塌，大量人口将会失业。但是人们远远没有认识到问题的严重性。中共对墙内民众的洗脑已经无以复加，甚至国内被洗脑民众连追求真相的意愿都已丧失。
-
-参考链接：[中共的经济崩溃和洗脑 将害死太多人](https://www.gettr.com/post/pktzu55e32)
+参考链接：[班农成为当今美国最可信的消息来源](https://www.thegatewaypundit.com/2021/12/congratulations-steve-bannon-wins-far-left-media-matters-misinformer-year-e-trusted-voice-media/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：飞虹
+总编：童谣
+编辑：童谣
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

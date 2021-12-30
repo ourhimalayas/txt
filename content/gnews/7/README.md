@@ -2,45 +2,38 @@
 ---
 
 
-## Omicron感染者或增强对Delta变种病毒免疫力
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806402/)
+## 台湾芯片业成为美中对决的战场-下部分
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806438/)
 
-作者：Reuters
-翻译：HimaCoby
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-31.png)
+去年7月，该行业的脆弱性得到了展示，当时台湾动员了数千名军队，以抵御中国对西海岸工业城市台中的模拟攻击，台积电的Gigafab 15是制造尖端芯片的代工厂之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-378.jpg)
+当被问及对岛上加工厂的威胁时，台湾经济部说，”在过去50年里，中共从未放弃过使用武力控制台湾的尝试，但其目的不是半导体行业”。它补充说，台湾有能力 “面对和管理这种风险”。
 
-南非科学家的最新研究表明，Omicron感染者增强了对Delta变种病毒的中和免疫力。这项尚未经过同行评审的研究发现，感染了Omicron变种病毒的人，尤其是那些接种过疫苗的人，对Delta变种病毒产生了增强的免疫力。但世界卫生组织专家说这个结论为时尚早。
+台积电没有回答关于其代工厂的风险的具体问题。在一份声明中，它强调，芯片行业是全球性的，来自几个地区和许多专业公司的设计、原材料、设备和其他服务。该公司说：”因此，全球合作，而不是依赖于一家公司或一个地区，对半导体行业的成功至关重要。”
 
-据报道，南非科学家招募了33名在南非感染Omicron变种病毒患者，包括已经接种疫苗和未接种疫苗的人。
+对美国来说，日益强大的中共国在冲突中压倒台积电的代工厂将威胁到美国的军事和技术领导地位。然而，如果北京入侵台湾，美国也不能保证可完整地夺取这些珍贵的代工厂，很可能成为战争的牺牲品。即使代工厂在中共国的收购中幸存下来，重要的全球供应链几乎肯定会被切断。
 
-科学家发现Omicron变种病毒的中和作用在感染后的14天内增加了14倍，但科学家同时也发现Delta变种病毒的中和作用也增加了4.4倍。
+**美国和中国都想打破其依赖性。**
 
-科学家们说：感染Omicron的患者再次感染Delta的机会下降了。
+华盛顿已经说服台积电在美国开设制造先进半导体的代工厂，并准备花费数十亿美元重建其国内芯片制造行业。
 
-南非非洲健康研究所教授Alex Sigal周一在推特上表示，从南非的经验来看Omicron的致病性较低，这将有助于将Delta抑制住。
+北京也在花费巨资，但其芯片产业在许多关键领域落后于台湾十年左右。分析师说，这一差距预计将在未来几年内扩大。
 
-根据南非较早的一项研究结果显示，与Delta变种病毒相比，感染Omicron变种病毒的人住院和患严重疾病的风险降低，但是作者也说其中部分原因可能是由于南非人群免疫力高。
+台积电已经开始试生产其最先进的芯片，使用所谓的3纳米技术。它还启动了一项研发工作，以制造2纳米的芯片。
 
-Omicron变种病毒于11月在南部非洲和香港首次被发现，此后已在全球蔓延，并威胁到医院不堪重负，并在今年的假期周让很多人旅行计划中断。
+据台湾的经济规划机构–国家发展委员会的负责人孔铭鑫说，从现在到2025年，本地和外国公司计划在台湾的芯片行业投资超过3万亿新台币（1080亿美元）。
 
-来源：https://globalnews.ca/news/8476320/covid-omicron-delta-immunity-study/
+巩明鑫说，在对工厂和设备的这种大手笔投资之后，”台湾的半导体行业将只有为数不多的竞争对手。”
 
-（文章仅代表作者个人观点）
+[新闻来源链接](https://www.reuters.com/investigates/special-report/taiwan-china-chips/)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
+审核校对：sherryok (水云间)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+上传排版：漂流瓶
 
  
 

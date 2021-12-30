@@ -2,10 +2,10 @@
 ---
 
 
-## 广西百色市靖西再现游街示众，历史重演
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1805031/)
+## 中共“零感染”政策下，人民无基本人权可言
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1805044/)
 
-12/27/2021 广西百色市靖西再现游街示众，历史重演…… 回想当年广西文革时期人吃人等事件…… 好可怕。
+12/28/2021 中共“零感染”政策下，人民无基本人权可言 。2021年12月28日，西安一名男士被防疫工作人员殴打。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
