@@ -2,69 +2,62 @@
 ---
 
 
-## 全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1804973/)
+## 达沃斯创始人的惊人计划：利用 COVID 让全球主义者控制世界
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1804988/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0-10.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2021年 12月30日）
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-15.jpg)世界经济论坛（图片来源：www.imsilkroad.com）
+长期读者都知道，我们中间有一小群亿万富翁全球主义者，他们认为他们赚取或窃取的巨额财富以某种方式赋予了他们决定地球上 99.99999% 的人应该如何生活的权力。
 
-**一，全球疫情基本数据**
-感染总数：2.84310765亿（日新增101.5414万，14天增幅+62%）
-死亡总数：541.9449万（日新增 6,205人，14天增幅–14%）
-每万人感染人数：439.6040人（除中国外）
+几十年来，这一小部分人一直在世界经济论坛等会议上,以“气候变化”等虚假模板开会，在那里他们讨论最新的计划，以牺牲未受洗礼的群众为代价，将更多权力拱手让给他们自己。
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
+根据一份揭露该计划的令人震惊的新报告，世界经济论坛的创始人克劳斯·施瓦布 (Klaus Schwab) 处于[全球主义收购最新阴谋的中心](https://naturalnews.com/2021-04-14-world-economic-forum-global-cyber-pandemic-reset.html)，他正在利用 COVID-19 大流行作为载体。
 
-**三，澳洲疫情和“疫苗”数据**
-感染总数：362,598（今日新增 21,346人）
-死亡总数：2226人
-每万人感染人数：131.8249人
-“疫苗”毒针注射总数：42,438,427  （今日新增148,974针）
-第二针“接种”：1882.4390万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.3%
-16岁以上人口接种至少两剂疫苗的比例：91.3%
+根据美国 RAIR 基金会的说法，该计划是创建“COVID 独裁者”，他们将盗窃公民自由的基础建立在“保护”我们免受病毒侵害的需要上，这种病毒的致命影响，远不如过去第一次世界大战结束时爆发的西班牙流感等流行病（好像死的人还不够多）：
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-356.png)
-今日澳大利亚病例新增再创新高，跨越两万大关。昨天我们提到了澳洲影星“金刚狼“的扮演者休·杰克曼（Hugh Jackman）也不幸在美国感染了中共病毒，而他在20多天前刚刚接种了加强针。同样，澳洲12岁以上人口的接种率也已经超过了90%，看看澳洲的疫情曲线，可以说明“疫苗”接种在控制疫情方面是彻头彻尾的失败。
+德国经济学家、记者和作家恩斯特·沃尔夫 (Ernst Wolff) ，在德国新冠病毒委员会播客的一段视频中，透露了一些有关施瓦布“全球青年领袖”学校的事实，这些事实与了解大流行期间的世界事件有关。虽然沃尔夫主要以批评全球主义金融体系而闻名，但最近，他专注于揭示他所认为的世界各地正在制定的反冠状病毒措施背后的隐藏议程。
 
-前天的疫情更新中我们提到了全球疫情曲线与灭白计划的吻合情况。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-91.png)全球各地区每10万人中的病例数的变化曲线（来源：纽约时报）
-在上图中我们可以看到，欧洲和北美无论是数字还是趋势都远远高于亚太，中东，以及拉丁美洲。澳大利亚虽然是属于亚太，但同样是白人为主的国家。澳洲一国暴增的疫情曲线和亚太国家的低平曲线形成鲜明的对比，欧美的曲线同样遥遥领先于世界其它地区。它们共同的特点就是都是白人为主的国家。
+报告指出，该计划围绕着施瓦布于 1971 年 32 岁时在瑞士创建的世界经济论坛。“世界经济论坛，因每年一月在瑞士达沃斯举行的年度会议而为公众所知，会议旨在汇集来自世界各地的政治和商业领袖，讨论当今的问题。今天，**它是全球主义权力精英的世界上最重要的网络之一，由大约一千家跨国公司资助，”报告指出。**
 
-郭先生说过，除了中共病毒之外，其疫苗是更加危险的生化武器。近日纽约时报发表了一篇研究文章，比较了各种族在注射疫苗前后的死亡率。其中的图表耐人寻味：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-60.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-28.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/5-33.png)
-上面的图表比较了美国各族裔在全民疫苗接种前后死于中共病毒的百分比。灰色的百分比数字是全民接种前的死于中共病毒的百分比，红色的则是全民接种之后的数字。仔细读图后，可以发现：各族裔普遍在较年轻的年龄段0-44岁，全民接种之后死于中共病毒的比例反而升高了。各族裔比较，尤其是白人和黑人更加明显，所有64岁以下的人口都是如此，白人和黑人比较，白人的这种趋势更加明显，从25-64岁两个年龄段，全民疫苗之后的死于中共病毒的百分比都增加了7%之多，而黑人的增加值分别是6%和2%。
+虽然世界经济论坛最初只吸引经济学家，但近年来，它已经发展壮大，扩展到商业、娱乐和媒体领域的**超级精英**。
 
-换句话说，虽然全民接种疫苗导致所有族裔的低于44岁的年轻人因中共病毒而死亡的比例都增加了，但对于白人和黑人而言，所有低于64岁的人口都是如此，尤其是白人，在45-64这个人生中平均收入最高的阶段，接种后的相应死亡率比例的增加值高达黑人的3.5倍。
+“1992 年，施瓦布还建立了一个平行机构，即“明天的全球领导者学校”，该机构于 2004 年重新建立为“全球青年领导者”。学校的参加者必须申请入学，然后接受严格的选拔过程，”报告解释说 ，早期和应届毕业生有：
 
-由此看来，全民疫苗接种对各族裔的青壮年以下人口都有负面作用，但对于白人其负面作用则是祸及所有64岁以下的人口，而且其伤害更加明显，如果有好处的话，则更不明显（参见65岁以上年龄段各族裔曲线倾斜度的对比）。
+- 德国总理安格拉·默克尔（Angela Merkel）
+- 法国总统埃马纽埃尔·马克龙（Emmanuel Macron）
+- 以及更多应届毕业生加州州长加文·纽瑟姆（Gavin Newsom）
+- 和拜登政府交通部长皮特·布蒂吉格（Pete Buttigieg）
 
-以上是“灭白计划”在疫情和疫苗两方面数据的一点端倪，虽然这些谈不上什么铁证，但是足以引起思考和警惕，或许能够帮助我们对即将到来的疫苗灾难多一点思想准备。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+报告指出，其他校友包括：亿万富翁杰夫·贝索斯(Jeff Bezos)和比尔·盖茨(Bill Gates)。
 
-发布：去中心化Math
+“鉴于对现在担任国家领导人的学校毕业生实施的反冠状病毒措施越来越不满，沃尔夫认为，这些人被选中，是因为他们愿意做任何被告知的事情，而且，**他们就是被设置为失败的**，这样可以利用随后的反弹，**来证明建立新的全球政府形式的合理性**，”报告说。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“的确，沃尔夫指出，**具有独特个性和强烈原创观点的政治家**，已经变得稀有，过去 30 年国家领导人的显着特征是，**他们的温顺和坚持自上而下的严格全球主义路线**，” 报告补充说。
+
+这将有助于解释，为什么所有上过全球青年领袖学校的左翼分子，从不偏离公共“解决方案”来解决同样的问题和事件——就像北极苔原的旅鼠。他们是通过同一个过程手工挑选出来的，该过程将他们确定为全球主义事业（认可）的男男女女。这让我们回到了 COVID 大流行，**以及为什么所有这些人都选择了相同的措施来“减缓传播”**（没有一个措施有效，但所有这些措施都给了他们额外的权力）。
+
+“为什么来自世界各地的 190 多个政府，最终以几乎完全相同的方式应对 COVID-19 大流行：封锁、口罩强制要求和疫苗接种卡，现在无处不在？” 一位人士在回应该报告时指出。
+
+现在我们知道：**这是长达数十年的威权主义全球主义议程的一部分，而**** COVID-19 ****是最新的工具。**
+
+更多相关信息请点击Tyranny.news.
+
+**文章信息来源：**
+
+[RairFoundation.com](https://rairfoundation.com/exposed-klaus-schwabs-school-for-covid-dictators-plan-for-great-reset-videos/)
+
+[NaturalNews.com](https://naturalnews.com/2021-04-14-world-economic-forum-global-cyber-pandemic-reset.html)
+
+[newstarget][Stunning plan devised by Klaus Schwab, founder of World Economic Forum, to hand globalists control of the world using COVID pandemic](https://www.newstarget.com/2021-12-29-klaus-schwab-to-hand-globalists-control-of-the-world-using-covid-pandemic.html)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 
