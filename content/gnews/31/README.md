@@ -2,50 +2,37 @@
 ---
 
 
-## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
+## 银河快讯:维吾尔学生自日本返中共国后可能已死亡；日本处罚私营企业泄露信息
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1805690/)
 
-作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-156.png)[图片来源](https://english.kyodonews.net/)
+**1.****2021年上市公司破产率为零**
 
+[据帝国数据银行12月29日报道，这是自2016年来，五年来首次无上市公司破产。上市公司破产数量曾在2008年达到顶峰（33家）。2021年来，公司破产数量继续远低于去年同月水准，年度破产数预计将降至自1966年（5919件）55年以来5000件大台的 “历史低点”）。 破产数量的急剧下降是由于政府迅速向公司提供资金，执行例如所谓的 “零零融资 “等金融政策，以及通过各种类型的福利金稳定了融资环境。](https://news.yahoo.co.jp/articles/5042c62905c51cab408f177c6d6967639fc41818)
 
+**2.****为防止技术泄露至中共国，《经济安全法案》考虑对私营企业泄密行为进行处罚**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+[据产经新闻12月28日报道，政府考虑将在《经济安全促进法案》中制定对泄露敏感技术的私营企业进行处罚的条例，该法案将于明年提交给国会审议。 在官方和私企联动合作的情况下，政府对私营部门实行惩罚虽不同寻常，但政府已决定有必要严格执行信息管理，以防止泄露至中共国和其他国家。政府将 “官民技术合作 “列为《经济安全促进法案》的四大支柱之一。](https://news.yahoo.co.jp/articles/c328cc4b30d7967e916c1854c1de6e31ddf46374)
 
+**3.****日本新增4人死亡，501人感染**
 
+[据NHK 12月29日报道，日本全国各地新报501新增病例。 这是自两月前的10月16日以来，首次在一天内超过500人。同时还宣布了四例死亡：石川县两人，北海道一人，福冈县一人。 日本共有1,733,255人被确认感染，包括机场检疫及国内感染1,732,543人，邮轮钻石公主号712名乘客及船员。 共有18,405人死亡，包括日本国内18,392人及邮轮钻石公主号13人。](https://www3.nhk.or.jp/news/html/20211229/k10013409171000.html)
 
-据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
+**4.****维吾尔学生自日本返中共国后可能已死亡**
 
-在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
-小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
+[据共同社 12月29日报道，根据在日本维吾尔人信息，一名在日本学习和教书五年的维吾尔妇女恐在两年前返回中共国后，在国家安全警察调查时死亡。日本维吾尔协会相关人士及其友人说，31岁的米热阿依・艾尔肯来自新疆喀什地区，在得知其父被送入拘留所后，于2019年6月返回中共国。许多在日本维吾尔人说，他们的家人被送往该地区的拘留中心，那里有超过100万的穆斯林少数民族正在接受 “再教育”。](https://english.kyodonews.net/news/2021/12/a74b24f371af-feature-uyghur-student-feared-dead-after-returning-to-china-from-japan.html)
 
-参考链接：
-1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
-2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
+**5.****日本经产省向接受 “钚热 “发电城市提供补助金**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+[据NHK 12月29日报道，经济产业省已决定向接受再生钚的核电站所在城市提供补贴，以促进 “钚热发电”，这将重新利用从核电站废核燃料中提取的钚。由于钚可作为核武器原料，日本已做出国际承诺，不拥有无使用目的的钚，因此需要采取具体措施来减少钚的数量。另一方面，位于青森县六所村的一个提取处理厂计划在下一财政年度的上半年完工，当该厂开始全面运作时，日本钚的持有量有可能增加。围绕钚的使用，日本仍然存在大量的问题。](https://www3.nhk.or.jp/news/html/20211229/k10013408211000.html?utm_int=all_side_business-ranking_001)
 
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
+**6.****面对中共病毒（新冠病毒covid-19）疫情日本首相寄希望于工资上涨**
 
-**更多资讯，更多关注**
+[据共同社 12月29日报道，日本首相期待企业提高工资以加速财富再分配，这是他推动新资本主义的核心内容。工资增长对于增加消费和振兴这个世界第三大经济体至关重要。增涨的消费可使公司更易提高价格，并帮助日本银行努力将通胀率提高到至今难以企及的2%的目标。岸田最近在一次新闻发布会上说：”利用一切可能的手段创造一种企业希望提高工资的氛围。”他还号召企业在收入恢复到疫情前的水准后，可给员工加薪3%以上。](https://english.kyodonews.net/news/2021/12/7e0d6bf3693a-focus-input-cost-rise-omicron-await-as-pm-kishida-pins-hopes-on-wage-hikes.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Tagomi
 
  
 
