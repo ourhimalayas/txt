@@ -2,25 +2,25 @@
 ---
 
 
-## 印度大规模疫苗接种计划遭医学界反对
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804008/)
+## 美国缩短无症状新冠病毒患者的隔离期限
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804018/)
 
-采编/翻译编撰：文明(添草灭共)    校对编辑：硫酸羟氯喹64
+采编：文莱        编译撰稿：Quitman
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-6-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-16.jpg)图片来源：DE
 
 
-据美国医疗媒体【试验网新闻】12月27日报道，印度流行病学家组织反对为该国青少年大规模接种“新冠病毒”疫苗。
+据加拿大自媒体【后千禧年】12月27日报道，【美国疾控中心】当天已正式建议将感染“新冠病毒”人员及其密切接触者的隔离限制期限从10天减至5天。
 
-报道称，尽管印度近期的疫情呈现消退趋势，新增感染病例和死亡人数也开始减少，但政府却开始了大规模接种疫苗的准备。总理莫迪近日宣布：从明年1月3日开始，必须对15至18岁的青少年群体接种该疫苗。
+【美国疾控中心】官员对此表示：由于越来越多的证据表明，病毒感染者在症状出现前后五天内的传染性最强，加之“奥密克戎”导致的病症可能会比包括“德尔塔”在内的早期变种病毒更为轻微，因此当局做出了以上缩短隔离期限的决定。
 
-印度【流行病学家组织 】对此则认为，盲目跟从其他国家的疫苗接种政策不仅违背科学，更是百害而无一利。同时，该国【公共卫生协会】也表示，在没有充分搜集和分析来自其他国家疫苗接种的相关数据，以评估其安全及有效性之前，反对紧急推行大规模的青少年接种计划。
+此外，为了缓解医护工作人员的严重短缺状况，【美国疾控中心】放松了之前曾要求那些“新冠病毒”检测呈阳性的医疗工作者，居家隔离10天的措施。并同时强调，以上的新规定并非命令，仅为各州政府和地方官员以及私人雇主提供的医学建议。
 
 * * *
 
-发稿：硫酸羟氯喹64
+校对编辑，发稿：硫酸羟氯喹64
 
-原文链接:  [https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/](https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/)
+参考资料： [https://thepostmillennial.com/breaking-cdc-cuts-covid-quarantine-to-5-days-for-asymptomatic-people](https://thepostmillennial.com/breaking-cdc-cuts-covid-quarantine-to-5-days-for-asymptomatic-people)
 
  
 

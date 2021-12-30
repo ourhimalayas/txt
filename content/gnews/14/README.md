@@ -2,92 +2,34 @@
 ---
 
 
-## 埋
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1804328/)
+## 中共腐败人数触目惊心 以黑治国到达新高度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1804357/)
 
-**作者：**英喜农场 修罗闻道
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/359ED219-CF66-4989-AED2-17B9627A0033.jpg?asset_id=A377E5DB-56AA-48C9-9157-9A6592579F06&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/359ED219-CF66-4989-AED2-17B9627A0033.jpg?asset_id=A377E5DB-56AA-48C9-9157-9A6592579F06&amp;size=1024)
-让软弱的我们
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-351.png)[图片来源](https://law.asia/zh-hans/compliance-breach-loss-contract/)
+12月30日，中共中央纪委国家监委在其官方网站上，发布题为《年终特稿丨全面从严治党引领保障“十四五”开好局起好步》年终总结。文章里大部分都是些吹捧中共主席习近平的官话，但是涉及的处理腐败问题官员干部的人数与案件相关的数据却是触目惊心。
 
-学会坚韧
+今年1至9月，中共国全国纪检监察机关立案47万件，处分41.4万人，其中处分省部级干部22人，厅局级干部2058人。1至10月，立案审查调查县处级以上“一把手”5756人。
 
-让温柔的心
+1至11月，“天网2021”行动共追回外逃人员1114人，其中“红通人员”16人，监察对象297人，追回赃款161.39亿元人民币，同比增长5.6倍。
 
-慢慢变强
+2021年1至11月，中共国各级纪检监察机关共查处“四风”问题9.1万起，批评教育帮助和处理13.1万人，
 
-遇见的人
+1至11月，全国共查处巩固拓展脱贫攻坚成果同乡村振兴有效衔接方面腐败和作风问题1.6万余个，给予党纪政务处分1.4万余人；
 
-多一分真诚
+查处民生领域腐败和作风问题11万余个，批评教育帮助和处理16万余人，其中给予党纪政务处分10万余人；
 
-遇到的事
+查处涉黑涉恶腐败和“保护伞”问题8000余个，其中给予党纪政务处分8100余人，移送司法机关800余人。
 
-少一丝慌张
+在哪里可以找到这么多的罪犯？除了监狱就是犯罪组织。中共有一句名言：“反腐败斗争永远在路上”，只要中共体制不结束，以后每年这样的数据只会多，不会少，一组组骇人听闻的数据不能显示中共的清廉，只能证明中共以黑治国，党内斗争到达了一个新的高度。
 
-岁月的好
+消息来源:
 
-亲人的笑
+[年终特稿丨全面从严治党引领保障“十四五”开好局起好步](https://www.ccdi.gov.cn/yaowenn/202112/t20211230_161127.html)
 
-动荡年月
-
-难得最是真情
-
-纳粹的政令
-
-多一分警惕
-
-歌颂的声音
-
-少一句轻信
-
-人间游荡的
-
-是暗夜的幽灵
-
-狰狞嚣张的
-
-是吸髓的恶魔
-
-宇宙无限大
-
-地球是一粒沙
-
-“党爹党妈”最“伟大”
-
-泱泱中华，可有一方净土容我乐业安家
-
-岁月长河
-
-如沙般指间流淌
-
-消逝的是生命与热情
-
-筛下的是清醒还是木讷
-
-中华如此之大
-
-百姓卑微似土，似水，似沙
-
-我心中有你，你心中有他
-
-百姓就是坚如铁石的混凝土，力量无限大
-
-飞扬的沙
-
-将共匪埋进墓场
-
-有泥土地的地方
-
-就是我们温暖的家
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/7B7115CB-48DA-4C60-8BD2-818FF353650E.jpg?asset_id=AF9865E5-8389-4091-9A09-EF3959B69834&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/7B7115CB-48DA-4C60-8BD2-818FF353650E.jpg?asset_id=AF9865E5-8389-4091-9A09-EF3959B69834&amp;size=1024)
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*校对：文明明 | 审核：仙女儿-文善 | PAGE：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-[![](https://express.adobe.com/page/cVbtOEJqrMhQH/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/cVbtOEJqrMhQH/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
