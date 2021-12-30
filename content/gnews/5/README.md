@@ -2,28 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1805582/)
+## 12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1805668/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-12.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2021.12.30早GTV新闻访谈](https://gtv.org/video/id=61cdb404ecc0b216cbb224e9)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 

@@ -2,25 +2,31 @@
 ---
 
 
-## 西安沦为去年武汉 民众生活物资采购无门
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805633/)
+## 中共病毒及疫苗一周伤害信息汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805682/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山农场医疗部 – Zion文恩
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，据日本媒体报道称，中共国内目前的防疫现状一片混乱，中共政府不仅要求外来的航班和旅客一遍又一遍地消毒，更是改变之前在西安实施的防疫策略，让西安沉底沦为去年的武汉。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-39.jpg)
-报道提及，自西安疫情失控后，中共政府立即采取了封城措施，但该政策原本允许每个家庭每两天可派一名代表外出采购生活物资，但这项措施在上周末被突然撤回，这也导致西安市民的食物极度短缺。为此，许多市民在社交平台上质疑政府如何解决居民的日常生活物资问题，很多人也发出冰箱里仅剩的水果和调味料的照片请求外界援助。
+2021年12月21日至28日，除中共国外，全球累计确诊中共病毒六百五十一万余例，同比上周增长了百分之35.6，增长率较上周的百分之9.36显著增加；本周累计死亡四万四千七百三十七例，同比上周下降百分之6.1。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20.jpg)
+截止28日，全球除中共国之外累计接种了64.1亿剂中共病毒疫苗，同比上周增长百分之2.23；疫苗接种的增长率较上周的百分之2.88稍有下降，尽管本周全球的确诊病例显著增加，但连续两周全球疫苗接种已趋于稳定。
 
-此外，中共政府为了在当地召集核酸检测志愿者，甚至以每人每天可以领取一包泡面和一根火腿肠作为交换条件。
+中共国内区域性的疫情爆发从未间断。其中，西安市自当地时间23日凌晨起被执行封城措施，疫情形势不容乐观。民众普遍认为，中共西安市卫健委所声称的西安市百分之99.38的接种率是个笑话。而据郭文贵先生援引中共体制内知情者消息称，西安的疫情爆发并非由于中共蓄意投毒，而是由于高疫苗接种率所造成的突破性感染，完全是疫苗接种所造成的灾难。
 
-分析人士称，如此低廉的物品而今已经成为中共政府口中“非常诱人的奖励”，这或可表明西安已出现了生活物资供给严重不足的困境。
+美国方面，上周全美中共病毒感染新增病例的七日平均值已经突破28万，达到自去年一月以来的最高值——“奥米克戎”毒株的高传染率可见一斑。值得注意的是，中共病毒疫苗的大面积接种显然没有阻止疫情的迅速扩散。
 
-参考链接:[北京五輪1カ月前に感染急増　1300万人を“ロックダウン”警戒高まる中国(2021年12月29日)](https://www.youtube.com/watch?v=NYCYBp5gfco)
+此外，英国、法国、葡萄牙、希腊等国家均突破了单日新增病例的记录。
+
+本周是2021年的最后一周，面对中共病毒新毒株的肆虐，各国的强制疫苗政策仍在继续。德国议会将于2022年新年假期后展开全民强制接种的立法讨论工作。而美国总统拜登则在28日的州长电视会议上承认，联邦政府应对奥米克戎毒株不力，承诺给各州更大的自由应对疫情，同时，他还呼吁各州加大力度推行筛查和接种工作。
+
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-21..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) .[Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2021-12-21..2021-12-28&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) .[COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-21..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编/编辑：Irene木木
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

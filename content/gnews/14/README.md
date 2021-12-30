@@ -2,36 +2,28 @@
 ---
 
 
-## 中共冬奥会剥夺了中国人民万亿血汗钱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805451/)
+## 以色列Omicron疫情嚴重 最後一天確診了約3000人 來源N12news
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1805505/)
 
-作者：香草山农场-晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日，郭文贵先生在直播中爆料称，为了举办2022冬奥会，中共出卖了高达12万亿人民币的中国人民血汗钱。
+编译：GM
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-33.jpeg)
+疫苗（新冠疫苗）
+中共病毒（新冠病毒covid-19）
 
-郭先生提到，中共承诺将预定120架空客飞机，每架花费1亿美元，用以收买德国和法国；为了让一个非洲小国家参加此次冬奥会，中共不但免除了其18亿美元的债务，还倒贴了两亿美元的现金。此外，中共政府每年还要对外捐款6万亿人民币。郭先生解释道，12万亿人民币相当于整个广东省一年的GDP。
+我們不反疫苗，只針對假疫苗
+我們不反科學，只針對反人類
+![](https://assets.gnews.org/wp-content/uploads/2021/12/01e1c67b-f9ef-4f11-80df-1ad5024e54a1.jpg)
+今天早上（12.29日）corona發病率數據持續上升，衛生部更新說，在最後一天有2967名以色列人感染了該病毒。重症患者人數保持相似，為88人。感覺染率持槍續上升，今早為1.53昨天為1.47。這一數字表明以色列的流行病正在擴大。
 
-郭先生也警示那些不明真相的小粉红们，在为中共欢呼的同时，所有人必须明白，此次北京冬奥会不能为中国人民带来任何利益。非但如此，中共政府与各国达成交易多花费的都是中国人民的血汗钱。
+衛生部最新統計數字顯示趨勢逆轉：大多數受Omicron感染者在社區進行了身份驗證,並沒有從國外返回，在進行的大約120000次crona測試中，88名被定義為嚴重患者，47名危重患者，18名與Acmo相關，39看呼吸系統疾病。此外，20名患者處於中度狀態，另外33名患者處於輕度狀態。以色列目前有17260名corona患者。自ccp病毒爆發以來，以色列因ccp病毒死亡人數累計為8343人。
 
-郭先生表示，为了吸引更多国家前来参加冬奥会，中共不惜输出各种利益，试图用一国之力满足习近平万国来朝的自我需求。
+編者按：在人口只有六百多萬的以色列，被ccp病毒奪取生命的猶太人已達8343，無數人失去工作、收入，生活方式完全被改變，變異病毒不斷侵蝕，疫苗災難肆虐以色列，已經到了非常危急的時刻，消滅ccp刻不容緩，是全世界人瓦正義的需要！
 
-参考链接：[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+參考鏈接：[https://mobile.mako.co.il/news-lifestyle/2021\_q4/Article-4798b5976250e71026.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-lifestyle/2021_q4/Article-4798b5976250e71026.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+審核校對：Barry Jack
+上傳排版：F
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

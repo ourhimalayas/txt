@@ -2,37 +2,48 @@
 ---
 
 
-## 山姆会员店下架新疆产品 中共官媒借机煽动情绪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1805533/)
+## 【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1805613/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-18.png)
-[图片来源](https://www.cbndata.com/information/141289)
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-自美国“维吾尔强迫劳动预防法案”12月23日被总统拜登正式签署后，美国企业被禁止从新疆进口一切产品，除非企业能“自证清白”，证明供应链中未出现所谓“强迫劳动”。这将直接影响包括山姆在内的美国公司的产品采购。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-近日，山姆会员店开始下架新疆产品，由此又触动了中共的痛点，央广网、每日经济新闻、环球网等部分中共官媒开始借此操弄民众情绪。
+包括美国在内的越来越多的国家越来越强硬地要求其民众接种COVID-19（中共病毒）疫苗，甚至接种第三剂疫苗。一些国家，如以色列和德国，正在推出第四剂，更多的国家正在缩短初始接种和加强针之间的推荐间隔。
 
-12月29日，央广网发表评论文章《央广网评：山姆下架新疆产品引发退卡潮 “吃饭砸锅”没有市场》称，依靠着中国市场，挣着广大中国消费者的钱，却在背地里采取龌龊手段抵制这个国家和人民生产的产品，这样“吃饭砸锅”的行为，既是对正常市场规律的违背，也是对消费者合法权益和情感的伤害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/booster-1.jpg)
 
-12月30日，“每日经济新闻”跟进发布题为《山姆会员店疑似下架新疆产品，多地会员排队退卡？网友：早上8点多到店，前面已排50人！》的报道称，自12月25日起，江苏、福建等地出现了山姆会员退卡潮。不少网友晒出了退卡、不再续卡的相关照片，“我可以没有山姆，中国不能没有新疆”，“没有什么是不可替代的”。
+然而，研究表明，大多数接种疫苗的人死于中共病毒疫苗导致的自身免疫系统对自身器官的攻击！几乎所有在接种后7天至6个月内死亡的中共病毒疫苗接种者都可能死于疫苗引起的自身免疫损伤。
 
-12月30日，“环球网”跟进发布题为《山姆被曝“停止上架新疆产品”，中国民众：外企要来中国赚钱“就要遵守中国规矩”！》的报道，并借用一个受访者之口称，“他们拒绝新疆，我就拒绝他。本着爱国的情怀，以后我去都不会去了。即使山姆店道歉或者重新上架新疆产品，我也不去”。外国企业要来中国赚钱“就要老老实实地遵守中国的规矩”。
+为什么一个人接种中共病毒疫苗后，免疫系统会变得疯狂并攻击它旨在保护的东西？
 
-值得注意的是，与此同时，仍有个别中共官媒比较客观的反映了央广网、每日经济新闻、环球网等官媒所宣称的山姆会员店退卡潮的实际情况。
+科学家们认为，发生致命的免疫反应的原因是，接种中共病毒疫苗会导致免疫系统将产生在自然状态下永远不可能生产的SARS-CoV-2刺突蛋白细胞，免疫系统又将这些SARS-CoV-2刺突蛋白细胞视为威胁并试图摧毁它们。
 
-12月29日，也即中共央广网发布评论文章的当日，“界面新闻”发表题为《退卡风波下实探山姆会员店：难觅新疆商品，退卡者未明显增多》的报道称，记者走访了山姆北京石景山店，该店是山姆在中国开设的第二家店，也是山姆系统内销售额全球排名第二的门店。在山姆北京石景山店入口处的会籍办理处和收银台附近的会员服务柜台前，记者并未看到前来办理退卡业务的消费者。采访会籍办理处的一位工作人员得知，也并未看到最近有退卡突然增多的现象。
+在人体的任何器官中，任何因中共病毒疫苗诱导产生的这种外来抗原（SARS-CoV-2刺突蛋白细胞）的细胞都会受到免疫系统中IgG抗体（所有体液中发现的最丰富的抗体类型）和细胞毒性T淋巴细胞（保护身体免受癌细胞和被病原体感染的细胞侵害）的强烈攻击。
 
-对比中共官媒的相关报道，不难看出，中共没有能力直接左右和对抗美国“维吾尔强迫劳动预防法案”，又开始使用下作手段煽动民意抵制在中共国的美国企业。
+每打一针加强针，免疫系统就会“变得更具攻击性”。人的心肌、肝脏和肺在中共病毒疫苗诱导下开始产生这些该死的突刺蛋白（SARS-CoV-2刺突蛋白细胞），然后免疫系统的杀手淋巴细胞去那里……并摧毁自身的心脏、肺和肝脏。
 
-信息来源：
+反过来，由于疫苗进入产生淋巴细胞或白细胞的淋巴结，这些细胞也可以被“教导（或诱导）”制造刺突蛋白。这反过来又使它们成为自身免疫攻击的目标，这削弱了免疫系统检查人体内的所有潜在致命病毒和细菌的能力。人体免疫能力完全被削弱。
 
-[退卡风波下实探山姆会员店：难觅新疆商品，退卡者未明显增多](https://finance.sina.com.cn/tech/2021-12-29/doc-ikyamrmz1978995.shtml)
+爱达荷州（Idaho）的病理学家Ryan Cole博士就认为，结核病在亚洲、印度和非洲各地呈上升趋势，接种疫苗的患者的癌症和肿瘤有所增加，也可以通过免疫系统抑制细胞病理突变能力的减弱来解释。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+Peter McCullough博士指出，众所周知，刺突蛋白会导致疾病，例如心肌炎和神经系统损伤，以及损伤血管和促进血液凝。通过重复接种COVID-19疫苗，刺突蛋白会逐渐在大脑、心脏和其他重要器官中积聚，超过免疫系统清除能力。
 
+Brian Hooker博士认为，疫苗伤害随着每一次额外的注射而呈指数增加，用相同的病原体一遍又一遍地重复攻击敏感的免疫系统。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Countering_Overreach3_banner728.jpg)
+
+参考数据：
+
+[Study: Most of Vaccinated Die Because of Vax-induced Autoimmune Attacks on Their Own Organs](https://theparadise.ng/study-most-of-vaccinated-die-because-of-vax-induced-autoimmune-attacks-on-their-own-organs/)
+
+[360X increase in the rate of adenopathy after vaccination](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)
+
+[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
+
+[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
