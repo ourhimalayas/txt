@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 3:47 PM (UTC)`
+
+<br/>12月30日：今天是个好日子。【历史上的今天：2006年12月30日 独裁总统萨达姆，判反人类罪处以绞刑。】
+![img](https://media.gettr.com/group39/getter/2021/12/30/15/19e13856-782a-a9cf-4267-88f18d062efc/360023e53470b2ffa390a1895702b3a8.jpg)
+
+---
+
 `@miles 12/30/2021 3:12 PM (UTC)`
 
 12月30日：天杀的中国共产党．比爹娘还亲的共产党……【七哥，昨晚说事故700起，死亡3000余人，我觉得都是保守数据！这些城中村人没有灶和锅，冰箱也没有。】
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (1) :<br/>☘️ From 2017 to 2018, Miles Guo was the only Chinese telling all fellow fighters that we want to be #AntiCCP , take down the CCP, not anti-Chinese. What we want is to destroy the CCP system itself but not any one individual. <br/>☘️ #CCP≠China , #CCP≠ChinesePeople<br/>☘️ The 270-million family members of the 90-million CCP members cannot all be criminals and we have no proof for that.<br/>☘️ We are even more opposed to blaming the damages of the CCP-created coronavirus on all Chinese people.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段一：<br/>💦 郭文贵是2017年到2018年唯一的一个中国人，告诉我们战友，我们要反共、灭共，而不反华人，我们要的是干掉共产党这个体制，而不是某个人。<br/>💦 #中共≠≠中国 ， #中共≠≠中国人<br/>💦 #9千万中共党员 的将近2 .7亿的家人没有证据证明他们都是坏人<br/>💦 我们更反对把 #中共病毒 归罪于中国人 。
 ![img](https://media.gettr.com/group12/origin/2021/12/28/20/2c5b173d-9c14-ce91-0077-df3490b4d987/out.jpg)
-
----
-
-`@miles 12/28/2021 6:33 PM (UTC)`
-
-12月28号：在中国的所谓的神州大地上，这样的事情过去无数发生，此时此刻有无数个正在发生，未来只要有共产党存在……还会有更多更多的发生……我们应该怎么做？让这些事不再发生……
-![img](https://media.gettr.com/group40/getter/2021/12/28/18/8adfd27f-3cb9-6fe6-ca89-4b667cb4092a/e8216298e5ee6b771cd81e9d36a42090.jpg)
 
 ---
 
