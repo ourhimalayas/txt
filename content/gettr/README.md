@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 8:58 PM (UTC)`
+
+12月30日：Darkness has enveloped the world. 🙏🙏🙏🙏🙏🙏🙏🙏🙏【Brother Miles Guo warned America about this TWICE — spring 2019 and again with the problem with the Three Gorges Dam in spring 2020 <br/><br/><br/>https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam】
+
+---
+
 `@miles 12/30/2021 7:22 PM (UTC)`
 
 12月30号：应战友的要求马上发一下snow的视频，有战友梦见SNOW 了💋💋💋💋😹😹😹😹
@@ -169,13 +175,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 ...
 ![img](https://media.gettr.com/group48/getter/2021/12/30/14/88b0747b-b081-7a32-3ed0-70f06f6de715/2983e21371d0e44a7b76e65362b410b9.jpg)
-
----
-
-`@miles 12/30/2021 1:49 PM (UTC)`
-
-12月30号：💋💋💋💋💋💋再次谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿……大馍馍就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
-![img](https://media.gettr.com/group39/getter/2021/12/30/13/179859bb-05ff-5403-e495-22e62d0bb370/out.jpg)
 
 ---
 
