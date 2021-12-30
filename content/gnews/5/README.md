@@ -2,37 +2,34 @@
 ---
 
 
-## 英前外相华裔妻作节目为中共宣传洗白
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
+## 澳洲工党猛烈抨击达尔文港租约
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803912/)
 
-撰稿：纽约香草山医疗部-云豹
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-154.png)
+图片来源：谷歌图片
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+来自雅虎金融的消息，澳大利亚工党批评联邦政府处理达尔文港 99 年租约给一家中国公司的做法，指责这是一笔根本不应该发生的交易。
 
+一项国防审查发现，没有国家安全理由建议联邦政府应该推翻达尔文港与中国岚桥集团签署的99 年的租约。
 
+工党国防事务发言人布兰登.奥康纳 (Brendan O’Connor) 表示，如果政府越过国防部的建议，干预的后果将会由总理承担，“达尔文港是澳大利亚的极其重要的战略资产。澳大利亚人知道这项外国私有化交易根本就不应该在莫里森先生的眼皮下发生——这是最基本的常识，”
 
+“如果政府单方面违反国防部的建议并干预达尔文港合同，所有与之相关代价和后果将由总理承担。”
 
+据《澳大利亚人报》报道，内阁国家安全委员会已经考虑其被委托进行的审查，以重新审查 2015 年的协议，根据该协议，岚桥以价值 5.06 亿美元的交易赢得了运营该港口的竞标。
 
-英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
-![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
-郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+在北京和堪培拉之间的不断加剧的紧张局势之际，国防部长彼得·达顿 (Peter Dutton) 推动了此项审查。
 
-新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
+政府仍在审核此事，但国防审查建议使其更难介入并推翻港口租约。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+斯科特·莫里森（Scott Morrison）表示，港口租约“由前北领地政府承担，这不是联邦政府批准的租约——事实并非如此”。
 
-总编: 文真
+他还表示，政府对有关港口租约的干预只有在国防部以及安全机构改变他们对任何关键基础设施对国家安全影响的看法而提出建议时才会发生。
 
-校正/发稿：浪迹天涯
+国防部还于 2018 年 3 月对一家中国公司收购纽卡斯尔港 50% 的股份进行了审查，发现该交易没有问题。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+原文链接：[https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html](https://au.finance.yahoo.com/amphtml/news/no-security-issues-over-darwin-201947476.html)
 
  
 

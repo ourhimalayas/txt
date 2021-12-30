@@ -2,38 +2,37 @@
 ---
 
 
-## 西安疫苗灾难是中共造成的人祸
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1803823/)
+## 英前外相华裔妻作节目为中共宣传洗白
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
 
-撰稿：纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-12月29日，2021年最后一次大直播，许多战友们都非常关心西安的疫情现状，纷纷询问文贵先生。文贵先生表示，根据他收到的消息，西安现况非常糟糕。从北京时间28日下午开始，在西安跳楼的，自杀的，因病得不到救治的，翻墙去买食物发生意外的……共计发生了700多起事故。包含因病和意外，死亡共计3千多人。
+撰稿：纽约香草山医疗部-云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/西安.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
-文贵先生称，西安的疫情这么严重，完全是疫苗后遗症造成的。消息人士透露，由于陕西省的书记找关系，定做最高倍数的疫苗，一人打了2针，相当于其他省份的10针。在西安很多发病的成年人都是七孔流血，孩子多是耳朵流血等，这些都是高倍数疫苗的后遗症，就是疫苗灾难。
 
-西安现在的疫苗灾难，完全是由于中共官员的无知，和草菅人命所造成的。在以假治国，以骗治国的中共国，这些真实的消息是不会让民众知道的，所有的真相都会被中共掩盖。中共国去年销售的骨灰盒和花圈，是过去21年的总和，这些数据在谷歌都可以查到。中共企图掩盖事实的真相，但是，真实的数据是掩盖不了的。
 
-文贵先生接着预警，下一个爆发的地方会是河北，从石家庄，廊坊，张家口到承德。再爆发是广州，武汉也有可能会再次爆发。
 
-最后，文贵先生寄语给中共国内的战友们，一定要注意安全，保重身体，最重要的是活下去。青蒿素是非常好的药，能解毒，能防毒，能救命，要善用青蒿素。
 
-12月29日大直播 00:36:00 & 03:29:00
+英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
+![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
+郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
 
-编辑/校对/发稿：菩提树
+新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+总编: 文真
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
  
 

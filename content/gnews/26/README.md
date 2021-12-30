@@ -2,41 +2,30 @@
 ---
 
 
-## 许家印表态“决不允许恒大任何一个人躺平”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1802903/)
+## 被封杀和开除的人大退休教授周孝正：说话是我的尊严
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803100/)
 
-作者：纽约香草山农场金融组 – 8爪鱼
+![周孝正教授接受美国之音采访(视频截图)](https://gdb.voanews.com/47D22438-EF93-42D2-BCF3-ECB4FD34D90B_w1023_r1_s.png)*中国人民大学社会学系退休副教授周孝正(资料照）*
+据美国之音12月29日报道，被全网封杀之后，中国人民大学社会学系退休副教授周孝正28日收到被校方正式开除的口头通知。他成为因批评中共现任领导人习近平而受到惩罚的知识分子中的最新一例。
 
-信息助理：台湾农场-差不多
+一位女教师代表校方通知旅居美国的周孝正，他已被人民大学开除，决定自12月17日起生效，但是校方没有提及养老金和退休待遇问题。周孝正表示，校方应该出具书面通知，这是对人最起码的尊重。2017年移居美国后，周孝正开办自媒体，并多次接受媒体采访，毫不避讳地批评中共党魁习近平。
 
+因言获罪，这是中国一项古老的刑罚，中共篡政后一直保留到现在。在中共国，党有骂人、打人、杀人的自由，老百姓没有还嘴的权利，批评领袖更是罪加一等。伟大领袖光芒万丈，没有瑕疵，不容批判。如果周孝正身在中共国，毫无疑问，现在一定在服刑。中共明明大国自信，却听不得一点点反对的声音。不知道是大国自信还是大国自卑才会对一个75岁的退休老人如此行事，仅仅因为他的言论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-2.png)
+新闻参考链接：[https://www.voachinese.com/a/retired-Chinese-professor-who-criticized-Beijing-fired-by-university-20211229/6373801.html](https://www.voachinese.com/a/retired-Chinese-professor-who-criticized-Beijing-fired-by-university-20211229/6373801.html)
 
+编辑：胖丁
 
-深陷资金链危机，两万亿债务缠身的恒大，最近从商行和金融机构自融资金45亿，前期贷款也得到延期。希望熬过寒冬，东山再起。
+* * *
 
-经历了9，10，11月的交楼量不足1万套房，12月恒大确保交楼3.9万套的目标。没有被拖死的合作伙伴80%继续合作，起到了关键作用。
-
-许家印说，绝不允许任何一个人躺平，全体发扬不放弃的精神，再接再厉，日夜奋战，期望恢复销售，经营，还清债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-35.jpg)
-恒大汽车股票12/24日大涨20%，恒大物业减持3亿股权，部分恒大股权解除质押。恒大在成都和海口的地块都因长期未动工被政府无偿收回。
-
-郭文贵先生在12月28日的大直播里说的，恒大大过了，但真恒不了。无法解决70万比1的难题，继续玩中国的老百姓，继续旁氏骗局，这种险恶悲剧只能在中国发生，继续造假票据，继续互害，在中国不能公布低房价，不允许你破产，一切等冬奥会结束。
-
-接下来中国的房地产、金融的崩盘，不是一般的崩。我们无法拯救墙内的兄弟姐妹，我们只能尽快的传播雪崩的到来。
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

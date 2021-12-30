@@ -2,28 +2,50 @@
 ---
 
 
-## 微博再审个人主页 从内容到头像都要合党意
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803764/)
+## 众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1803878/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-35.jpg)微博再审个人主页 从内容到头像都要合党意 网络图片
-据美国之音12月29日报道，中共国社交媒体微博自12月起整治用户昵称后，日前又发出公告，将针对个人主页的简介或头像中带有低俗词汇的内容进行第二阶段排查。不只网友的发言内容必须要符合中共立场，连网民头像的个性表现也要符合党的要求。这不仅使得网民的发言毫无言论自由外，也意味着社交平台将承担更高的风险，运营成本大幅提高。受益的是网络监控公司，预料将会在中共国成热门生意。
-
-中共从2015年起就开始管控网路舆论，如今整治力道更强、更全面。截至11月，微博被处罚44次，累计罚款人民币1430万元。豆瓣累计被罚20次，累计处罚人民币900万元。微博清剿了600多万条贴文，封杀112万个帐号；豆瓣已删除讯息2万2238条，禁言990个帐号。彭帅与张高丽的性丑闻是重要的背景因素，中共认为社交平台没有及时拦截，任其大量散布造成对党和国家的伤害，甚至对北京冬奥会都产生了巨大的影响。
-
-中共就是为了达到一种思想控制：党是唯一的，而且党在一切之上。归根结底是维护权贵阶层的集体利益。在中共国能做网络监控生意的公司，多半跟官方媒体有密切合作，甚至于就是官方媒体。对网络的全方位监管会形成一种垄断，既符合经济利益，也利于监管。
-
-新闻参考链接：[https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html](https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了。 哦，等等。大多数共和党人是这样做的。 我记得那一段。 我们现在发现的关于‘格雷琴·惠特默(Gretchen Whitmer)绑架案’和‘一月6号事件’的相似之处不是很有意思吗？ 史蒂夫·班农确实警告过 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的危险。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> If only everyone would listen to Bannon.
+> 
+> Oh wait. Most Republicans do.
+> 
+> I remember that episode.
+> 
+> Isn’t it interesting what we are now finding out about the Whitmer kidnapping case and the similarities of J6?
+> 
+> And Steve does warn about the dangers of the CCP.[#DownWithTheCCP](https://twitter.com/hashtag/DownWithTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rkhrPttxXM](https://t.co/rkhrPttxXM)
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [December 30, 2021](https://twitter.com/mtgreenee/status/1476350690805129217?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 共和党领导人猛烈抨击 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 逮捕记者的行为：“说明他们真的很害怕”。 【附Foxnews的相关文章】
+
+
+
+> Republican leaders slam communist China for journalist arrests: 'Shows just how fearful they really are'[https://t.co/8qiTFMyrDg](https://t.co/8qiTFMyrDg)
+> — Josh Hawley (@HawleyMO) [December 30, 2021](https://twitter.com/HawleyMO/status/1476385183892967427?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克.华尔兹: 阿门，本.多梅内克 [@bdomenech](https://twitter.com/bdomenech) 和我将一战到底，以确保美国和自由世界有一天不会向中国共产党低头。 这些就是赌注。 (转本.多梅内克在福克斯采访视频中说的一段话 – 见下推）（转本.多梅内克在福克斯采访视频中说的一段话：“我们是美国人。我们完全清醒。我们准备为我们的学校、我们的治理、我们的文化而战。未来不属于你们（指中共），我们也不属于你们。我们的思想是自由的，而且，不被出卖。”）
+
+
+
+> Amen [@bdomenech](https://twitter.com/bdomenech?ref_src=twsrc%5Etfw) and I for one will fight to the end to ensure the United States and the free world do not one day bow to the Chinese Communist Party. Those are the stakes. [https://t.co/oEBw6IXeQy](https://t.co/oEBw6IXeQy)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 30, 2021](https://twitter.com/michaelgwaltz/status/1476360655561269251?ref_src=twsrc%5Etfw)
+
+
+
+华盛顿时报资深记者比尔.格茨： 在被民主党和共和党告知中共国不构成威胁几十年后，拥有核武器的种族灭绝独裁的现实正变得越来越明显。 无神的中共共产主义与无神的苏联共产主义并没有什么不同转华尔街日报记者推文及报道：周二的华尔街日报头版：沃尔玛与英特尔、耐克、阿迪达斯、H&M、沃尔特迪斯尼、NBA 和其他西方品牌一起，因涉足新疆业务而在美、中之间陷入困境。）
+
+
+
+> Decades after being told by both Democrats and Republicans that China poses no threat, the reality of a nuclear-armed, genocidal dictatorship is becoming more apparent. Godless CCP communism turns out to be not all that different from Godless Soviet communism [https://t.co/IRxXXx2M04](https://t.co/IRxXXx2M04)
+> — Bill Gertz (@BillGertz) [December 28, 2021](https://twitter.com/BillGertz/status/1475959147443093506?ref_src=twsrc%5Etfw)
 
 
 
