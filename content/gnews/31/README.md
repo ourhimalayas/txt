@@ -2,10 +2,10 @@
 ---
 
 
-## 中国移动CMLink业务退出加拿大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805678/)
+## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山翻译部 – defiance
 
 
 
@@ -13,19 +13,20 @@
 
 
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
+小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-2.jpg)
 参考链接：
-[被挤出加拿大：中国移动CMLink业务停止运营](https://info.51.ca/news/canada/2021-12/1058371.html)
+1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
+2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：Jack Li文阳
-编辑：Lakeman文仁
+总编：童谣
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

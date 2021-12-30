@@ -2,10 +2,10 @@
 ---
 
 
-## 秦刚接受美媒采访竟不见任何报道遭嘲笑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805669/)
+## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山翻译部 – defiance
 
 
 
@@ -13,17 +13,19 @@
 
 
 
-台媒12月29日消息，中共驻美大使秦刚20日接受美国多家所谓“主流媒体”联合采访后，时至今日都没有一家美国媒体发出报道。秦刚气急败坏只有让中共驻美记者自己发布该新闻。 中共驻美大使馆24日发出新闻稿指出，秦刚的采访由彭博创新经济论坛举办，以“炉边谈话”形式用英文进行。
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
 
-中共官媒殃视驻美记者25日在微博发牢骚称，在这次谈话前，双方就已经商定，全部内容可供报道，也可用作背景吹风，但却没有发现任何一家美媒发出报道。该事件经媒体曝光后，立刻引来网络一片讽刺与嘲笑。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide9-1.jpg)
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
+
 参考链接：
-[超糗！中國大使秦剛接受美媒聯訪 事後竟無一家報導](https://news.ltn.com.tw/news/world/breakingnews/3783453)
+1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
+2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
-编辑：Lakeman文仁
+总编/编辑：童谣
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
