@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 4:51 PM (UTC)`
+
+12/29/2021 Miles Guo: Although Putin accepted the $100 billion from the CCP and promised Xi to take his 4 buddies to attend the Winter Olympics, he is likely to break his promise, and that will be a huge blow to Xi!<br/><br/>12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击！<br/>
+![img](https://media.gettr.com/group13/getter/2021/12/30/16/8853f62d-4ba9-93ea-8921-55ffa16a6580/out.jpg)
+
+---
+
 `@miles 12/30/2021 3:47 PM (UTC)`
 
 <br/>12月30日：今天是个好日子。【历史上的今天：2006年12月30日 独裁总统萨达姆，判反人类罪处以绞刑。】
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (2) :<br/>☘️ Miles is the first person to talk about the Xinjiang genocide. <br/>☘️ But the rogue media never talked about it. Why? That’s because they just like to keep their dignity and their power and they are selfish.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段二 ：<br/>💦 郭先生是第一个在大众面前谈论新疆种族大屠杀的人。<br/>💦 但是流氓媒体从来没有谈论此事。为什么？那是因为他们只想维护他们媒体的尊严和权力，他们非常自私。
 ![img](https://media.gettr.com/group37/origin/2021/12/28/20/8de34e9d-3483-c9cc-8df4-75a8ebd391eb/out.jpg)
-
----
-
-`@miles 12/28/2021 8:20 PM (UTC)`
-
-#HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (1) :<br/>☘️ From 2017 to 2018, Miles Guo was the only Chinese telling all fellow fighters that we want to be #AntiCCP , take down the CCP, not anti-Chinese. What we want is to destroy the CCP system itself but not any one individual. <br/>☘️ #CCP≠China , #CCP≠ChinesePeople<br/>☘️ The 270-million family members of the 90-million CCP members cannot all be criminals and we have no proof for that.<br/>☘️ We are even more opposed to blaming the damages of the CCP-created coronavirus on all Chinese people.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段一：<br/>💦 郭文贵是2017年到2018年唯一的一个中国人，告诉我们战友，我们要反共、灭共，而不反华人，我们要的是干掉共产党这个体制，而不是某个人。<br/>💦 #中共≠≠中国 ， #中共≠≠中国人<br/>💦 #9千万中共党员 的将近2 .7亿的家人没有证据证明他们都是坏人<br/>💦 我们更反对把 #中共病毒 归罪于中国人 。
-![img](https://media.gettr.com/group12/origin/2021/12/28/20/2c5b173d-9c14-ce91-0077-df3490b4d987/out.jpg)
 
 ---
 
