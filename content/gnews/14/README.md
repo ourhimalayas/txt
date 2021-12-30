@@ -2,60 +2,57 @@
 ---
 
 
-## 40-49岁打了三针疫苗后感染率高出10.3倍
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804478/)
+## 德桑蒂斯大举打击“唤醒企业意识形态”和中共影响力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1804550/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+**翻译：Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1859.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip05-7.png)作者：格兰特·阿特金森
+2021 年 12 月 28 日下午 3:26
 
-国家统计局（ONS）编制了一份报告，涵盖了（14天）从11月29日到12月12日Omicron感染。该报告给出了每个疫苗接种状态下，Covid-19阳性者出现Omicron变体的概率（这些统计数据是指发生在私人家庭的感染；不包括在医院、护理院或其他公共场所报告的感染）
+鉴于中共涉嫌侵犯人权，佛罗里达州共和党州长罗恩·德桑蒂斯 (Ron DeSantis) 采取行动，减少该州对这个共产主义国家的依赖。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1861.png)
+据《华盛顿审查员》报道，德桑蒂斯周二会见了佛罗里达州的首席财务官吉米·帕特罗尼斯（Jimmy Patronis）和司法部长阿什利·穆迪（Ashley Moody）, 这三个人是佛罗里达州管理委员会的现任受托人。
 
-以下是OMS报告（图表1b）：英国COVID-19检测阳性者中Omicron可能检测结果的模拟可能性，按筛选的人口统计学特征划分：2021年11月29日至2021年12月12日，这些数字意味着，如果你感染中共病毒，而且你已经打了3针疫苗，那么你患Omicron的可能性比一个未接种疫苗的概率高4.45倍。
+他们共同投票决定，改变了 30 多个国家基金收益和退休系统投资计划的支出方式。
 
-因此，为了找到感染Omicron的概率，对于每一类疫苗接种状态，我们必须将上述数字（中共病毒患者属于Omicron的几率）乘以感染中共病毒的几率。
+《华盛顿审查员》报道，该决定代表了董事会的目标，即“打击唤醒的企业意识形态和恶意的外国影响力”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1863.png)
+“如果你看看这些大公司在面对中共的反对时的表现，他们会自动审查中共让他们审查的内容，我们会看到他们卑躬屈膝的道歉，”德桑蒂斯说。
 
-这些几率每周都由英国卫生协会（UKHSA）公布。[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1043608/Vaccine_surveillance_report_-_week_51.pdf)是第51周的疫苗监测报告（Vaccine Surveillance Report）的最新数据。
+“我们的上一代美国精英的想法是，‘如果我们允许中共国加入世贸组织，并给予他们最惠国待遇，那将使中国更像我们。’这个实验失败了，它危及了我们的利益，危及国家安全和经济安全。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1865.png)
+德桑蒂斯说，美国大公司选择无视中共对维吾尔人的种族灭绝，因为他们在中共的工资单上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1866.png)
+据美国CNN报道，12 月 10 日，**一个位于伦敦的非官方法庭裁定，中共对新疆地区的维吾尔人和其他少数民族实施了种族灭绝**。
 
-因此，现在我们只需将总感染中共病毒病例比例乘以其中为Omicron的概率，就可以得到所有年龄组的Omicron Covid病例的概率，即疫苗接种状况（如下图）。与未接种疫苗者相比，打了两针和打了三针疫苗的人的Covid/Omicron病例率（如下图）。因此，如果你的年龄在40至49岁之间，那么目前打了两针疫苗的人只能使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了5.2倍。此外，如果你的年龄在40到49岁之间，那么打了三针疫苗的人会使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了10.3倍（这是因为Omicron病毒的感染率是10倍）。
+“仲裁庭认为，中华人民共和国通过长期减少维吾尔族和其他种族的政策，采取一项蓄意、系统和协调的手段，通过限制和减少新疆少数族裔维吾尔族出生， 实现其目的，所谓的‘优化’人口，”法庭主席杰弗里·尼斯（Geoffrey Nice）说。
 
-这是因为Omicron病毒可以逃避疫苗，而且中共病毒（COVID-19）疫苗会随着时间的推移逐渐损害免疫系统。事实上，你打的疫苗剂量越多，它们的损害就越大。此外，由于中共病毒有能力躲避COVID-19疫苗，而且该疫苗会损害免疫系统，因此疫苗可以防止Omicron住院和死亡的想法完全是胡说八道(情况显然是相反的)。幸运的是，Omicron的感染通常没有Delta那么严重，也没有那么致命。但似乎Omicron可能是一个完美的变体，显示出疫苗对我们的免疫系统到底有多大的破坏力。
+**美国公司因继续支持中共而受到批评。**
 
-结论
+据福克斯商业（Fox Business）报道，保守派此前曾批评过赞助 2022 年中国北京冬奥会的美国公司， **该名单包括可口可乐和宝洁。**
 
-Omicron是“疫苗启示录”（在希腊语中意为揭开面具或启示录）。因此，由于40-49岁的打了三针疫苗的人的病例率是未接种者的10.3倍，他们的免疫系统在一般的中共病毒有效性方面肯定已经退化了（10.3-1.0）/10.3=90.3%。也就是说，他们现在只保留了未打过疫苗的人所能产生的9.7%的免疫反应。这意味着他们真正患上了打了疫苗引发的艾滋病或 VAIDS。
+在 Fox Business 的另一篇评论文章中，前联合国大使妮基·海莉（Nikki Haley）表示，“**大约一半”的赞助商是美国公司**。“他们中的许多人，比如可口可乐，在过去一年里一直在谈论‘种族平等’，并批评像乔治亚州那样的常识性投票权法案，”她说。
 
-英国卫生局的数据（UKHSA data）不再显示打了两针疫苗者的免疫系统出现每周5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+“然而，这些公司毫不犹豫地投入 1 亿美元或更多资金，来举办一场美化地球上最专制国家之一的活动。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1869.png)
+随着 SBA 受托人在佛罗里达州做出的决定，德桑蒂斯表示，他们将发布一份声明，反对这些支持中共的公司。
 
-5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+《华盛顿审查员》报道，德桑蒂斯特别表示，他打算向“支持种族灭绝、专制、帝国主义政权的美国企业界人士传达一个信息，佛罗里达人的钱不会用来这样做”。
 
-这是第[36-51 周](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)UKHSA[疫苗监测报告](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)中的政府数据（[如下图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-304.png)）；疫苗效力是使用辉瑞的疫苗效力公式来衡量的：（未打疫苗的 病例率 – 打疫苗的病例率）/未打疫苗或打疫苗的病例率中的较大者——我们正在使用打疫苗的病例数与未打疫苗的病例数的标准化绝对比率来确定疫苗效率，这像辉瑞本身的工作一样。
+此外，德桑蒂斯表示，他将要求州立法机构做出法律修改，以防止佛罗里达州的税收流入中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1871.png)
+他还计划要求立法机关帮助将制造业工作直接带到国家，而不是从中共国进口商品。
 
-不管你怎么看，在未来几周后（1月中旬以后），许多完全接种疫苗的人的免疫系统将达到 100% 的 Omicron 类病毒衰退；或说是打三针疫苗的感染率为 100%。也就是说，所有打了三针疫苗的人百分百会感染 Omicron 或基本可以推断该新变异病毒会在打了三针疫苗的人之间传播。
-
-新闻来源：[dailyexpose.uk] [Triple Vaccinated 40-49 year olds are 10.3x more likely to catchOmicron than the Unvaccinated according to ONS and UK Gov. Figures](https://dailyexpose.uk/2021/12/29/triple-vaccinated-10-times-more-likely-to-catch-omicron/) | 发布时间：2021年12月29日
+**新闻来源**：[westernjournal][DeSantis Makes Big Move to Combat ‘Woke Corporate Ideology’ and Chinese Influence](https://www.westernjournal.com/desantis-makes-big-move-combat-woke-corporate-ideology-chinese-influence/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
 
 

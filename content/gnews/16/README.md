@@ -2,31 +2,61 @@
 ---
 
 
-## 1月6日委员会要求提供川普工作人员的银行记录
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804455/)
+## 40-49岁打了三针疫苗后感染率高出10.3倍
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1804478/)
 
 **编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1857.png)图片来源 ：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1859.png)
 
-泰勒·布多维奇（Taylor Budowich）–拯救美国和唐纳德·J.川普总统的通讯主任–1月6日委员会违宪地向摩根大通发出传票，并要求他提供银行记录。其后发表了一份声明。
+国家统计局（ONS）编制了一份报告，涵盖了（14天）从11月29日到12月12日Omicron感染。该报告给出了每个疫苗接种状态下，Covid-19阳性者出现Omicron变体的概率（这些统计数据是指发生在私人家庭的感染；不包括在医院、护理院或其他公共场所报告的感染）
 
-该声明全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1861.png)
 
-“民主正受到攻击。然而，不是由2021年1月6日非法进入国会大厦的人，而是由一个其成员每天在其大厅自由行走的委员会。在完全遵守委员会的规定，包括在12月22日坐了四个小时的取证后，我在12月23日回到家，却发现银行机构摩根大通给我的通知——如果我在12月24日之前不提供法院命令的停业执照，他们就会把我的银行记录交给委员会。更加荒唐的是，委员会和摩根大通都不会向我提供传票实际内容的副本。双方通过规避我受宪法保护的权利，该委员会只证明了一件事——宪法只在你的政党（共和党）掌权时适用。此外，向联邦法院提出的这项申诉不是关于政治或党派的问题。现实是，按照目前的速度，民主党人将失去前所未有的席位，包括国会参众两院。一些人可能会对这种可能性感到鼓舞，因为像马克·扎克伯格（脸书CEO）这样的亿万富翁的个人和商业记录肯定比我更有趣。然而，我不是，我不会允许一些政客因为我支持唐纳德·J.川普总统而恐吓我。政府不应成为随意用来对付政治对手和美国公民（隐私）的武器—但似乎这个由民主党领导的国会有意将这一先例编入法律。如果是这样的话，那么愿上帝在这个圣诞前夕帮助我们。”
+以下是OMS报告（图表1b）：英国COVID-19检测阳性者中Omicron可能检测结果的模拟可能性，按筛选的人口统计学特征划分：2021年11月29日至2021年12月12日，这些数字意味着，如果你感染中共病毒，而且你已经打了3针疫苗，那么你患Omicron的可能性比一个未接种疫苗的概率高4.45倍。
 
-布多维奇已经向委员会提供了1700多份文件，并坐在那里做了几个小时的宣誓证词。摩根大通在11月23日收到传票，在通知布多维奇将遵守传票的一个月前。摩根大通在此事件中的职责将由前奥巴马时代司法部长洛雷塔·林奇（Loretta Lynch）代理。
+因此，为了找到感染Omicron的概率，对于每一类疫苗接种状态，我们必须将上述数字（中共病毒患者属于Omicron的几率）乘以感染中共病毒的几率。
 
-1 月 6 日委员会在整个调查过程中是多次违反联邦法律行事。例如，包括对国会大厦抗议活动前几天的所谓与会者伪造证据，并[拒绝任命一名高级众议院少数派成员](https://thenationalpulse.com/2021/12/02/john-eastmans-lawyers-just-destroyed-the-jan-6-committee-and-its-subpoenas/)——约翰·伊士特曼（John Eastman），其指出，这使得他们无法遵守相关的众议院规则（包括适用于传票的规则）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1863.png)
 
-迄今为止，联邦调查局已发现了与1月6日抗议活动有关的任何有组织阴谋的“[少量证据](https://thenationalpulse.com/2021/08/20/fbi-finds-scant-evidence-of-jan-6-insurrection-plot-killing-off-another-anti-trump-media-hoax/)”。
+这些几率每周都由英国卫生协会（UKHSA）公布。[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1043608/Vaccine_surveillance_report_-_week_51.pdf)是第51周的疫苗监测报告（Vaccine Surveillance Report）的最新数据。
 
-新闻来源：[thenationalpulse.com] [Far-Left Jan 6 Commission Demands Bank Records of Trump Staff in Bizarre Intimidation Attempt.](https://www.politico.com/news/2021/12/27/biden-signs-defense-policy-bill-526171) | 发布时间：2021年12月29日
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1865.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1866.png)
+
+因此，现在我们只需将总感染中共病毒病例比例乘以其中为Omicron的概率，就可以得到所有年龄组的Omicron Covid病例的概率，即疫苗接种状况（如下图）。与未接种疫苗者相比，打了两针和打了三针疫苗的人的Covid/Omicron病例率（如下图）。因此，如果你的年龄在40至49岁之间，那么目前打了两针疫苗的人只能使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了5.2倍。此外，如果你的年龄在40到49岁之间，那么打了三针疫苗的人会使你感染中共病毒的几率增加2.3倍；其中使你感染Omicron的几率增加了10.3倍（这是因为Omicron病毒的感染率是10倍）。
+
+这是因为Omicron病毒可以逃避疫苗，而且中共病毒（COVID-19）疫苗会随着时间的推移逐渐损害免疫系统。事实上，你打的疫苗剂量越多，它们的损害就越大。此外，由于中共病毒有能力躲避COVID-19疫苗，而且该疫苗会损害免疫系统，因此疫苗可以防止Omicron住院和死亡的想法完全是胡说八道(情况显然是相反的)。幸运的是，Omicron的感染通常没有Delta那么严重，也没有那么致命。但似乎Omicron可能是一个完美的变体，显示出疫苗对我们的免疫系统到底有多大的破坏力。
+
+结论
+
+Omicron是“疫苗启示录”（在希腊语中意为揭开面具或启示录）。因此，由于40-49岁的打了三针疫苗的人的病例率是未接种者的10.3倍，他们的免疫系统在一般的中共病毒有效性方面肯定已经退化了（10.3-1.0）/10.3=90.3%。也就是说，他们现在只保留了未打过疫苗的人所能产生的9.7%的免疫反应。这意味着他们真正患上了打了疫苗引发的艾滋病或 VAIDS。
+
+英国卫生局的数据（UKHSA data）不再显示打了两针疫苗者的免疫系统出现每周5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1869.png)
+
+5%的衰退或出现5%的感染率（[如图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-303.png)，在第35-41周显示）。我心知肚明，当时的数据已经被篡改。但现在我们有更多证据证明这种政府机构的腐败。因为我继续向前推断分析，直到这个时候，我认为5%的衰退会继续下去。事实上，在最后，渐进式地接近100%的免疫系统失败。
+
+这是第[36-51 周](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)UKHSA[疫苗监测报告](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)中的政府数据（[如下图](https://dailyexpose.uk/wp-content/uploads/2021/12/image-304.png)）；疫苗效力是使用辉瑞的疫苗效力公式来衡量的：（未打疫苗的 病例率 – 打疫苗的病例率）/未打疫苗或打疫苗的病例率中的较大者——我们正在使用打疫苗的病例数与未打疫苗的病例数的标准化绝对比率来确定疫苗效率，这像辉瑞本身的工作一样。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1871.png)
+
+不管你怎么看，在未来几周后（1月中旬以后），许多完全接种疫苗的人的免疫系统将达到 100% 的 Omicron 类病毒衰退；或说是打三针疫苗的感染率为 100%。也就是说，所有打了三针疫苗的人百分百会感染 Omicron 或基本可以推断该新变异病毒会在打了三针疫苗的人之间传播。
+
+新闻来源：[dailyexpose.uk] [Triple Vaccinated 40-49 year olds are 10.3x more likely to catchOmicron than the Unvaccinated according to ONS and UK Gov. Figures](https://dailyexpose.uk/2021/12/29/triple-vaccinated-10-times-more-likely-to-catch-omicron/) | 发布时间：2021年12月29日
 
 * * *
 
 *发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+
+
+
+
+
+
 
 
  
