@@ -2,25 +2,25 @@
 ---
 
 
-## 奧地利政府将雇佣专人搜捕拒绝接种疫苗者
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803949/)
+## 印度大规模疫苗接种计划遭医学界反对
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804008/)
 
-采编撰稿：自由法兰西          校对编辑：硫酸羟氯喹64
+采编/翻译编撰：文明(添草灭共)    校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-15-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-6-edited.jpg)图片来源：TNH
 
 
-据英国自媒体《每日内幕》12月27日报道，为确保顺利执行其疫苗强制接种政策，奥地利政府正计划雇佣专门的检察人员来追踪和搜捕那些拒绝接种的人，后者将面临巨额罚款甚至被拘押监禁。
+据美国医疗媒体【试验网新闻】12月27日报道，印度流行病学家组织反对为该国青少年大规模接种“新冠病毒”疫苗。
 
-报道称，20万人口的林茨市目前正处于该暴政计划的最前沿。因为仅有63%的“低”接种率，该市正筹备招聘专员以检查那些未接种者是否支付了政府的罚金。这些被称为“猎人”的工作还包括执行刑事命令以及处理相关上诉等。同时，只有完全接种疫苗的奥地利公民才有资格获得这项年薪高达约4万欧元的工作。
+报道称，尽管印度近期的疫情呈现消退趋势，新增感染病例和死亡人数也开始减少，但政府却开始了大规模接种疫苗的准备。总理莫迪近日宣布：从明年1月3日开始，必须对15至18岁的青少年群体接种该疫苗。
 
-奥地利是欧洲首个推行疫苗强制接种的国家。当局规定从明年2月1日起，所有国民都必须接种新冠病毒疫苗，违者将被罚款最高7,200欧元，而拒绝缴纳罚款者则将面临牢狱之灾。
+印度【流行病学家组织 】对此则认为，盲目跟从其他国家的疫苗接种政策不仅违背科学，更是百害而无一利。同时，该国【公共卫生协会】也表示，在没有充分搜集和分析来自其他国家疫苗接种的相关数据，以评估其安全及有效性之前，反对紧急推行大规模的青少年接种计划。
 
 * * *
 
 发稿：硫酸羟氯喹64
 
-原文链接： [https://dailyexpose.uk/2021/12/27/austria-is-hiring-hitmen-to-track-down-covid-19-vaccine-refusers/](https://dailyexpose.uk/2021/12/27/austria-is-hiring-hitmen-to-track-down-covid-19-vaccine-refusers/)
+原文链接:  [https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/](https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/)
 
  
 

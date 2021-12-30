@@ -2,37 +2,32 @@
 ---
 
 
-## 英前外相华裔妻作节目为中共宣传洗白
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1803897/)
+## 辉瑞公司与中共国的疫苗护照平台支付宝合作
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803908/)
 
-撰稿：纽约香草山医疗部-云豹
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-50.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+据国家脉动12月29日报道，辉瑞公司已与中共的最大的在线支付平台-支付宝合作，该平台自中共病毒爆发以来一直被用于在中共国实施“疫苗护照”。支付宝最初是作为与中共有联系的阿里巴巴集团的离岸分支而成立的。
 
+这家制药巨头在美国的游说工作在去年创下历史新高，其在2018年6月6日的以下推文中表达了其对这个残酷的共产主义政权的自豪感。
 
+该推文写道，“我们很自豪能与中共国领导人和支付宝站在一起，推出新的数字解决方案，以改善疾病教育和疫苗接种，为中共国儿童创造一个更光明的未来”。
 
+辉瑞中共国总经理吴琨也献媚的说，辉瑞很荣幸能成为中共国‘互联网+疫苗接种’计划的合作伙伴。
 
+美国国务院负责国际安全和不扩散事务的助理国务卿克里斯托弗·福特说，阿里巴巴广泛参与了为中国人民解放军研究、生产和维修武器和设备，并与中共国的国家安全机构有深度的合作和协作记录。国务院还指出，该公司是中共的一个“工具”，协助其建立“技术促进的监视和社会控制”。
 
-英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
-![英國前外交大臣杭特（Jeremy Hunt）的華裔妻子露西亞‧郭（Lucia Guo，左），為中國官媒主持節目。右為另一位主持人Manoj Malde。（圖擷取自YouTube頻道「China Hour」）](https://img.ltn.com.tw/Upload/news/600/2021/12/27/phpVkG7Qt.jpg)照片来自：https://news.ltn.com.tw/
-郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+尽管有这些关系，辉瑞公司还是在2018年与该平台建立了合作关系。正如该公司的年度审查中所述，辉瑞正在利用在中共国拥有超过7亿活跃用户的支付宝平台，提供急需的疾病和疫苗接种教育。此外，为了帮助中共国实现其雄心勃勃的2030年降低婴儿死亡率的目标，该制药巨头正在探索利用该平台进行移动支付，以提高中共国疫苗接种中心的便利性，并提供分期付款的选择，以所谓减轻低收入家庭的经济负担。
 
-新闻连接]：[前英國外相華裔妻主持中國官媒節目 被指洗白迫害新疆](https://news.ltn.com.tw/news/world/breakingnews/3781150?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20211227https://www.localpresshk.com/2018/07/jeremy-hunt-mi6/)
+支付宝和辉瑞公司之间合作关系的出土，发生在中共病毒爆发发的前一年，也是在中共国依靠该平台建立疫苗护照之后。正如《纽约时报》所解释的，用户在支付宝上填写个人详细资料后，软件会生成三种颜色之一的二维码。绿色代码使其持有人可以不受限制地行动。持有黄色代码的人可能被要求呆在家里七天。红色意味着两个星期的隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+在杭州，如果不出示支付宝代码，就几乎不可能到处走动。中共大外宣传式的横幅提醒每个人注意这些规则。“绿色代码，自由出行。红色或黄色，立即报告。”
 
-总编: 文真
+阿里巴巴最近被中共处罚，因为它没有遵守近期的法律，要求该公司将习政权的利益置于向世界报告关键网络安全漏洞的责任之上。
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+新闻来源：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
 
  
 
