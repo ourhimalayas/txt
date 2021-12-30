@@ -2,33 +2,30 @@
 ---
 
 
-## 著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1803761/)
+## 微博再审个人主页 从内容到头像都要合党意
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1803764/)
 
-翻译：波士顿五月花  冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-35.jpg)微博再审个人主页 从内容到头像都要合党意 网络图片
+据美国之音12月29日报道，中共国社交媒体微博自12月起整治用户昵称后，日前又发出公告，将针对个人主页的简介或头像中带有低俗词汇的内容进行第二阶段排查。不只网友的发言内容必须要符合中共立场，连网民头像的个性表现也要符合党的要求。这不仅使得网民的发言毫无言论自由外，也意味着社交平台将承担更高的风险，运营成本大幅提高。受益的是网络监控公司，预料将会在中共国成热门生意。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-40.jpg)https://childrenshealthdefense.org/
-Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns
+中共从2015年起就开始管控网路舆论，如今整治力道更强、更全面。截至11月，微博被处罚44次，累计罚款人民币1430万元。豆瓣累计被罚20次，累计处罚人民币900万元。微博清剿了600多万条贴文，封杀112万个帐号；豆瓣已删除讯息2万2238条，禁言990个帐号。彭帅与张高丽的性丑闻是重要的背景因素，中共认为社交平台没有及时拦截，任其大量散布造成对党和国家的伤害，甚至对北京冬奥会都产生了巨大的影响。
 
-辉瑞和莫德纳mRNA 疫苗增加成为衡量人们心脏病风险的常用指标。这是根据心脏病学家史蒂夫‧冈德里博士最近在《循环》杂志上发表的“警告”得出的结论，他被称为婴儿心脏移植手术的先驱。该分析在美国心脏协会最近的会议上被提出。
+中共就是为了达到一种思想控制：党是唯一的，而且党在一切之上。归根结底是维护权贵阶层的集体利益。在中共国能做网络监控生意的公司，多半跟官方媒体有密切合作，甚至于就是官方媒体。对网络的全方位监管会形成一种垄断，既符合经济利益，也利于监管。
 
-冈德里表示：大多数患者出现的显著变化意味着他们患上新型急性冠状动脉综合症的风险更高，如心脏病发作。部分分析指出：我们得出结论，mRNA 病毒疫苗会显著增加心肌的内皮炎症和 T 细胞的渗透，并且可能造成我们观察到的疫苗接种后增加的血栓、心肌炎症和其他血管病症。
-
-冈德里解释说：最近，随着辉瑞和莫德纳mRNA中共病毒(COVID-19)疫苗的出现，大多数患者PULS(蛋白质不稳定病变特征测试)分值的显著变化变得十分明显。
-
-据报道，在接种中共病毒(COVID-19)mRNA 疫苗后，已报告了数千例与心脏相关的损伤案例。这些损伤导致心脏病变的形成和发展，可能变得不稳定和破裂，从而导致心脏事件。蛋白质不稳定病变特征测试衡量从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，提供身体免疫系统对动脉损伤的反应的测量。
-
-科学家们已经确定了中共病毒(COVID-19)疫苗在包括年轻人在内的一些患者身上产生的无数与心脏和血液有关的影响。与疫苗相关的不良事件包括由血栓形成的血块和称为心肌炎和心包炎的心脏炎症。
-
-美国疾控中心和食品药物管理局表示，他们推荐给民众的疫苗是安全有效的，带来的益处大于已知的风险。随着越来越多的人选择接种疫苗，“益处”将在几年内显现。
-
-新闻来源: [Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/)
+新闻参考链接：[https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html](https://www.voachinese.com/a/second-stage-of-Weibo-supervision-shows-20211224/6368428.html)
 
 * * *
 
-*素材来源：时空旅行者*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑**& 发布：jamie(文胤)*
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
