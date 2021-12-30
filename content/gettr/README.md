@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 10:30 PM (UTC)`
+
+12/29/2021 Miles Guo: Although Liu Yazhou used to support Xi Jinping, he was arrested by Xi anyway, indicating the CCP is the demon of the world and that its political infights are extremely evil by nature<br/><br/>12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的<br/>
+![img](https://media.gettr.com/group36/getter/2021/12/30/22/d825ad2f-c3be-cb3d-9272-4cbc65531e7a/out.jpg)
+
+---
+
 `@miles 12/30/2021 9:50 PM (UTC)`
 
 12月30日：非常幸福的，继续为战友们签七哥的海报，这种感觉太好了……
@@ -168,13 +175,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12/29/2021 Miles Guo: Although Putin accepted the $100 billion from the CCP and promised Xi to take his 4 buddies to attend the Winter Olympics, he is likely to break his promise, and that will be a huge blow to Xi!<br/><br/>12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击！<br/>
 ![img](https://media.gettr.com/group13/getter/2021/12/30/16/8853f62d-4ba9-93ea-8921-55ffa16a6580/out.jpg)
-
----
-
-`@miles 12/30/2021 3:47 PM (UTC)`
-
-<br/>12月30日：今天是个好日子。【历史上的今天：2006年12月30日 独裁总统萨达姆，判反人类罪处以绞刑。】
-![img](https://media.gettr.com/group39/getter/2021/12/30/15/19e13856-782a-a9cf-4267-88f18d062efc/360023e53470b2ffa390a1895702b3a8.jpg)
 
 ---
 
