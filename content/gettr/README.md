@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 7:22 PM (UTC)`
+
+12月30号：应战友的要求马上发一下snow的视频，有战友梦见SNOW 了💋💋💋💋😹😹😹😹
+![img](https://media.gettr.com/group11/getter/2021/12/30/19/ecd4da0a-fd0c-c01e-b59a-87dfa04e1631/out.jpg)
+
+---
+
 `@miles 12/30/2021 6:56 PM (UTC)`
 
 12/29/2021 Miles Guo: The China-US relationship has entered into a phase of vulnerability. Qin Gang has been finger-pointing, calling the US as the root cause of issues in Taiwan. He also equalized the genocide in Xinjiang to the previous discrimination against ethnic Chinese and African American in the US. He even claimed that it was the Han Chinese slaughtered by the Uyghurs, but not vice versa.<br/><br/>12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国，将新疆种族屠杀等同于过去美国白人对待华人和黑人，并称汉人被新疆人屠杀<br/>
@@ -169,13 +176,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12月30号：💋💋💋💋💋💋再次谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿……大馍馍就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
 ![img](https://media.gettr.com/group39/getter/2021/12/30/13/179859bb-05ff-5403-e495-22e62d0bb370/out.jpg)
-
----
-
-`@miles 12/30/2021 1:48 PM (UTC)`
-
-12月30号：谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
-![img](https://media.gettr.com/group7/getter/2021/12/30/13/ac03beb7-fbd3-ccc0-65b4-2a11298f94ad/out.jpg)
 
 ---
 
