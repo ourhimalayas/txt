@@ -2,52 +2,25 @@
 ---
 
 
-## 众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1803878/)
+## 奥密克戎使圣诞节期间的儿科医院人满为患
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803915/)
 
-众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了。 哦，等等。大多数共和党人是这样做的。 我记得那一段。 我们现在发现的关于‘格雷琴·惠特默(Gretchen Whitmer)绑架案’和‘一月6号事件’的相似之处不是很有意思吗？ 史蒂夫·班农确实警告过 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的危险。
+采编：青青           编译撰稿：文莱
 
-
-
-> If only everyone would listen to Bannon.
-> 
-> Oh wait. Most Republicans do.
-> 
-> I remember that episode.
-> 
-> Isn’t it interesting what we are now finding out about the Whitmer kidnapping case and the similarities of J6?
-> 
-> And Steve does warn about the dangers of the CCP.[#DownWithTheCCP](https://twitter.com/hashtag/DownWithTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rkhrPttxXM](https://t.co/rkhrPttxXM)
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [December 30, 2021](https://twitter.com/mtgreenee/status/1476350690805129217?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-13-edited.jpg)图片来源：CTV
 
 
+据加拿大【CTV新闻】12月28日报道，具有高度传染性的“奥密克戎”疫情在圣诞节期间的肆虐，使得本月纽约市的儿科入院人数增加了近五倍。而整个美国的儿科住院人数则在过去一周内增加了35%。
 
-参议员乔什·霍利： 共和党领导人猛烈抨击 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 逮捕记者的行为：“说明他们真的很害怕”。 【附Foxnews的相关文章】
+报道称，去年【德尔塔】变异体的平均感染率仅为17%，但近期儿童医院的病毒检测结果显示出“奥密克戎”的阳性率已高达近50%。因此，纽约州地区的医护人员对即将再次爆发的疫情忧心忡忡。
 
+据医院医生披露，所有年龄段的儿童都有感染“奥密克戎”的风险，并且该病毒变异体可能会导致儿童及成人患上“多系统炎症综合症”。目前，美国已报告了约6千起该病例，其中有52名儿童因此丧生。
 
+* * *
 
-> Republican leaders slam communist China for journalist arrests: 'Shows just how fearful they really are'[https://t.co/8qiTFMyrDg](https://t.co/8qiTFMyrDg)
-> — Josh Hawley (@HawleyMO) [December 30, 2021](https://twitter.com/HawleyMO/status/1476385183892967427?ref_src=twsrc%5Etfw)
+校对编辑，发稿：硫酸羟氯喹64
 
-
-
-众议员迈克.华尔兹: 阿门，本.多梅内克 [@bdomenech](https://twitter.com/bdomenech) 和我将一战到底，以确保美国和自由世界有一天不会向中国共产党低头。 这些就是赌注。 (转本.多梅内克在福克斯采访视频中说的一段话 – 见下推）（转本.多梅内克在福克斯采访视频中说的一段话：“我们是美国人。我们完全清醒。我们准备为我们的学校、我们的治理、我们的文化而战。未来不属于你们（指中共），我们也不属于你们。我们的思想是自由的，而且，不被出卖。”）
-
-
-
-> Amen [@bdomenech](https://twitter.com/bdomenech?ref_src=twsrc%5Etfw) and I for one will fight to the end to ensure the United States and the free world do not one day bow to the Chinese Communist Party. Those are the stakes. [https://t.co/oEBw6IXeQy](https://t.co/oEBw6IXeQy)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 30, 2021](https://twitter.com/michaelgwaltz/status/1476360655561269251?ref_src=twsrc%5Etfw)
-
-
-
-华盛顿时报资深记者比尔.格茨： 在被民主党和共和党告知中共国不构成威胁几十年后，拥有核武器的种族灭绝独裁的现实正变得越来越明显。 无神的中共共产主义与无神的苏联共产主义并没有什么不同转华尔街日报记者推文及报道：周二的华尔街日报头版：沃尔玛与英特尔、耐克、阿迪达斯、H&M、沃尔特迪斯尼、NBA 和其他西方品牌一起，因涉足新疆业务而在美、中之间陷入困境。）
-
-
-
-> Decades after being told by both Democrats and Republicans that China poses no threat, the reality of a nuclear-armed, genocidal dictatorship is becoming more apparent. Godless CCP communism turns out to be not all that different from Godless Soviet communism [https://t.co/IRxXXx2M04](https://t.co/IRxXXx2M04)
-> — Bill Gertz (@BillGertz) [December 28, 2021](https://twitter.com/BillGertz/status/1475959147443093506?ref_src=twsrc%5Etfw)
-
-
+參考链接： [https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007](https://www.ctvnews.ca/health/coronavirus/new-omicron-variant-fills-up-children-s-hospitals-in-the-u-s-1.5721007)
 
  
 

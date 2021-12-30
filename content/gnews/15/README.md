@@ -2,21 +2,29 @@
 ---
 
 
-## 拜登与普京通电话调停其在乌克兰边境的军事行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1803898/)
+## 中共国西安疫情急剧恶化全城封锁
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1803935/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-28.png)
-图片来源： www.bbc.com
+采编：文莱          编译撰稿：Quitman
 
-美国合众国际社12月29日报道，白宫周三说，乔·拜登总统将于周四与俄罗斯总统弗拉基米尔·普京通电话讨论“一系例议题，包括外交介入。”
-国家安全委员会发言人埃米莉·霍恩说，拜登政府将参与“咨询和协调的常规方法以应对俄罗斯在乌克兰边境的军事聚集行动。拜登总统已经与欧洲领导人通过话，拜登政府官员已经与北约，欧盟和欧洲安全与合作组织共同介入。”
-目前乌克兰估计有12万2千名俄罗斯军人被部署在离乌克兰边境124英里之内，其中有几万人是数星期前刚部署的。俄罗斯近来一直在乌克兰边境部署部队，导致西方国家担心其可能在冬天入侵乌克兰。
-上周美国国家安全顾问杰克·沙利文敦促俄罗斯减少在乌克兰边境的军事部署。沙利文说：“美国已准备好在外交层面通过多通道介入，包括双边会谈，北约-俄罗斯委员会和欧洲安全与合作组织的会谈等。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-14-edited.jpg)图片来源：TLW
 
-##### **新闻来源： **[Biden to have call with Putin over military build up in Ukraine](https://www.upi.com/Top_News/World-News/2021/12/29/Joe-Biden-call-with-Putin-Thursday/3801640807040/)
 
-# ** **
+据加拿大【温哥华太阳报】12月26日报道，中共国的本地症状性“新冠病毒”感染病例数再次攀升，随着西安进入第五天的封锁期，该西北城市报告的新增感染患者数居全国之首。
+
+报道称，在人口1300万的西安，从12月9日至26日期间，共有635个确诊病例，但当局尚未报告“奥密克戎”变体病毒的感染人数。而在12月23日封城后，仍不断有大量新病例涌现。
+
+为此，中共当局正试图通过严酷封锁社区以尽快遏制疫情。这些强制措施包括：未经地方当局批准，居民不可擅自离开城市；每个家庭只能每两天派出一人去购买生活必需品，而其他家庭成员则不得离家，违者即遭逮捕和监禁。
+
+目前，至今被封锁在家不得出户的西安居民已怨声载道，而民不聊生的古都西安现已沦为名副其实的将死之城。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+參考链接：[https://vancouversun.com/pmn/business-pmn/chinas-local-covid-19-cases-edge-higher-as-xian-enters-5th-day-of-lockdown/wcm/976740b4-6a15-4d2a-be39-80ab6d7f7658](https://vancouversun.com/pmn/business-pmn/chinas-local-covid-19-cases-edge-higher-as-xian-enters-5th-day-of-lockdown/wcm/976740b4-6a15-4d2a-be39-80ab6d7f7658)
+
+相关视频：[https://gettr.com/post/pktfk7f8b8](https://gettr.com/post/pktfk7f8b8)
 
  
 

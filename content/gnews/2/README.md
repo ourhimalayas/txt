@@ -2,25 +2,32 @@
 ---
 
 
-## 印度大规模疫苗接种计划遭医学界反对
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1804008/)
+## 辽宁129户邮储存款被行长挪用 警方：与银行无关
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1804073/)
 
-采编/翻译编撰：文明(添草灭共)    校对编辑：硫酸羟氯喹64
+#### **撰稿：**日本东京方舟农场 子辰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-6-edited.jpg)图片来源：TNH
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7F2971C4-CAA0-4E71-A718-D450CD4BB240.jpeg)（图片来自《大纪元》）
 
+据《大纪元》12月29日报道，辽宁省长山镇邮政储蓄银行原行长挪用储户存款，警方声称案件系“个人行为，与银行没有关系”。目前已知受害人达129位。
 
-据美国医疗媒体【试验网新闻】12月27日报道，印度流行病学家组织反对为该国青少年大规模接种“新冠病毒”疫苗。
+近期，位于辽宁省丹东市东港市长山镇邮政储蓄银行营业大厅，被民众团团围住要求还钱。
 
-报道称，尽管印度近期的疫情呈现消退趋势，新增感染病例和死亡人数也开始减少，但政府却开始了大规模接种疫苗的准备。总理莫迪近日宣布：从明年1月3日开始，必须对15至18岁的青少年群体接种该疫苗。
+日前，有网友反映，去该行取钱时被银行告知存款里没有所取的金额。25日，辽宁省丹东市东港市长山镇派出所警察证实，长山镇邮政储蓄银行原行长涉嫌诈骗挪用储户存款，已被立案调查。部分受害人已做笔录，目前已知受害人有129人。
 
-印度【流行病学家组织 】对此则认为，盲目跟从其他国家的疫苗接种政策不仅违背科学，更是百害而无一利。同时，该国【公共卫生协会】也表示，在没有充分搜集和分析来自其他国家疫苗接种的相关数据，以评估其安全及有效性之前，反对紧急推行大规模的青少年接种计划。
+但警方声称，该案系原行长与外地某理财公司“合作”，以邮政储蓄银行的名义骗取百姓存款，案件系“个人行为，与银行没有关系”。
+
+长山镇邮政储蓄银行营业厅的接线员称对具体情况不知情。
+
+*参考链接：[辽宁129储户存款被行长挪用 储户喊还钱](https://www.epochtimes.com/gb/21/12/29/n13465594.htm)*
 
 * * *
 
-发稿：硫酸羟氯喹64
+*素材采编：子辰*
 
-原文链接:  [https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/](https://trialsitenews.com/top-epidemiologist-in-india-mass-vaccination-of-young-people-unscientific-as-risk-benefit-analysis-favors-avoidance-of-the-jab/)
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
