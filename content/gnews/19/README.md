@@ -2,21 +2,39 @@
 ---
 
 
-## 大胡子医生：把你的孩子从公立学校中带走
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1803763/)
+## 西安疫苗灾难是中共造成的人祸
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1803823/)
 
-翻译：Rosa 视频：澳洲天好蓝
+撰稿：纽约香草山健身部—Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+12月29日，2021年最后一次大直播，许多战友们都非常关心西安的疫情现状，纷纷询问文贵先生。文贵先生表示，根据他收到的消息，西安现况非常糟糕。从北京时间28日下午开始，在西安跳楼的，自杀的，因病得不到救治的，翻墙去买食物发生意外的……共计发生了700多起事故。包含因病和意外，死亡共计3千多人。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/西安.png)
 
-视频来源：https://www.bitchute.com/video/gRflvq7bntu9/
-12月24日， 泽连科医生在参加Alex Jones的节目时候，再次揭露邪恶势力是如何通过推行新冠病毒疫苗来大量杀死人类，并且不尽余力的压制已经被证明简单有效且安全的药物-羥氯奎和伊维菌素。
+文贵先生称，西安的疫情这么严重，完全是疫苗后遗症造成的。消息人士透露，由于陕西省的书记找关系，定做最高倍数的疫苗，一人打了2针，相当于其他省份的10针。在西安很多发病的成年人都是七孔流血，孩子多是耳朵流血等，这些都是高倍数疫苗的后遗症，就是疫苗灾难。
 
-节目中他多次说到，请一定不要相信任何人的说法，也包括他的，但是请务必通过了解他提供的大量证据和事实去作出你自己的判断。
+西安现在的疫苗灾难，完全是由于中共官员的无知，和草菅人命所造成的。在以假治国，以骗治国的中共国，这些真实的消息是不会让民众知道的，所有的真相都会被中共掩盖。中共国去年销售的骨灰盒和花圈，是过去21年的总和，这些数据在谷歌都可以查到。中共企图掩盖事实的真相，但是，真实的数据是掩盖不了的。
 
-泽连科医生大声呼吁：请尽可能的把孩子从公立学校系统中带走，因为他们有权力在没经过你们同意的情况下就对你们的孩子们进行疫苗注射。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/hydro-doc-2.jpg)图片来源：https://www.timesofisrael.com/jewish-md-who-promoted-virus-cocktail-leaving-community-where-he-tested-it/
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![此图像的alt属性为空；文件名为澳喜图标2-1-3.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-3.jpg)
+文贵先生接着预警，下一个爆发的地方会是河北，从石家庄，廊坊，张家口到承德。再爆发是广州，武汉也有可能会再次爆发。
+
+最后，文贵先生寄语给中共国内的战友们，一定要注意安全，保重身体，最重要的是活下去。青蒿素是非常好的药，能解毒，能防毒，能救命，要善用青蒿素。
+
+12月29日大直播 00:36:00 & 03:29:00
+
+编辑/校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

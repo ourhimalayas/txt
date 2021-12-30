@@ -15,104 +15,104 @@
 
 ---
 
-### [灭共者之郭氏情报站（八）12月29日版](/content/gnews/1/README.md)
- ` MOS Designer香草山设计部`
-
-### [上元夜与苏冠宇宴饮归途有作](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/3/README.md)
+### [中共声称SpaceX威胁中共太空站运行安全](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵直播摘要和音频 2021.12.29](/content/gnews/4/README.md)
+### [印度大规模疫苗接种计划遭医学界反对](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [灭共者之郭氏情报站（八）12月29日版](/content/gnews/3/README.md)
+ ` MOS Designer香草山设计部`
+
+### [上元夜与苏冠宇宴饮归途有作](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [郭文贵直播摘要和音频 2021.12.29](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在31.271 HDO](/content/gnews/5/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在31.271 HDO](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/6/README.md)
+### [奧地利政府将雇佣专人搜捕拒绝接种疫苗者](/content/gnews/8/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共国西安疫情急剧恶化全城封锁](/content/gnews/7/README.md)
+### [中共国西安疫情急剧恶化全城封锁](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [研究发现新冠病毒疫苗与心肌炎高度关联](/content/gnews/8/README.md)
+### [研究发现新冠病毒疫苗与心肌炎高度关联](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [奥密克戎使圣诞节期间的儿科医院人满为患](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（八）](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [奥密克戎使圣诞节期间的儿科医院人满为患](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/10/README.md)
+### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/11/README.md)
+### [辉瑞公司与中共国的疫苗护照平台支付宝合作](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/12/README.md)
+### [拜登与普京通电话调停其在乌克兰边境的军事行动](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/13/README.md)
+### [英前外相华裔妻作节目为中共宣传洗白](/content/gnews/16/README.md)
  ` GTV News Talk`
 
-### [美议员要求对中共不公平贸易行为问责](/content/gnews/14/README.md)
+### [美议员要求对中共不公平贸易行为问责](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了](/content/gnews/15/README.md)
+### [众议员玛乔丽·泰勒·格林： 要是每个人都听班农的话就好了](/content/gnews/18/README.md)
  ` 美国政要直译推`
 
-### [西安疫苗灾难是中共造成的人祸](/content/gnews/16/README.md)
+### [西安疫苗灾难是中共造成的人祸](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [GTV新闻访谈简报|2021年12月29日晚](/content/gnews/17/README.md)
+### [GTV新闻访谈简报|2021年12月29日晚](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [微博再审个人主页 从内容到头像都要合党意](/content/gnews/18/README.md)
+### [微博再审个人主页 从内容到头像都要合党意](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/19/README.md)
+### [大胡子医生：把你的孩子从公立学校中带走](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险](/content/gnews/20/README.md)
+### [著名心脏病专家警告：辉瑞、莫德纳疫苗显著增加心脏病发作风险](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [美国的新冠肺炎病例创历史新高](/content/gnews/21/README.md)
+### [美国的新冠肺炎病例创历史新高](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [英法两国新增确诊中共病毒人数再创新高](/content/gnews/22/README.md)
+### [英法两国新增确诊中共病毒人数再创新高](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大阪发生日本首个中共病毒Omicron变种聚集性感染](/content/gnews/23/README.md)
+### [大阪发生日本首个中共病毒Omicron变种聚集性感染](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医药巨头辉瑞携手中共，与支付宝平台深度合作](/content/gnews/24/README.md)
+### [医药巨头辉瑞携手中共，与支付宝平台深度合作](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [焦点：揭下中共大外宣的画皮！](/content/gnews/25/README.md)
+### [焦点：揭下中共大外宣的画皮！](/content/gnews/28/README.md)
  ` 丁过`
 
-### [拜登签署法案邀台湾加入环太平洋军演，增强不对称防御能力](/content/gnews/26/README.md)
+### [拜登签署法案邀台湾加入环太平洋军演，增强不对称防御能力](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/27/README.md)
+### [12/29/2021 文贵直播：拜登最近签署的法案意义重大，让中共意识到中美之间的敌对关系是无法改变的](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭先生盖特直播：一切付出都值得](/content/gnews/28/README.md)
+### [郭先生盖特直播：一切付出都值得](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [日本大幅增加国防预算以因应中共威胁](/content/gnews/29/README.md)
- ` GTV News Talk`
+### [新瓶装旧酒 -辉瑞、默克公司的两款抗病毒“新药”](/content/gnews/32/README.md)
+ ` 纽约香草山MOS03`
 
-### [比利时将调整政策允许剧院和电影院重新开放](/content/gnews/30/README.md)
+### [比利时将调整政策允许剧院和电影院重新开放](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
-
-### [被封杀和开除的人大退休教授周孝正：说话是我的尊严](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12.28日郭先生盖特小视频内容](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记——西安疫情真相](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [许家印表态“决不允许恒大任何一个人躺平”](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
