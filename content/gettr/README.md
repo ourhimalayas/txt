@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 6:01 AM (UTC)`
+
+12/29/2021 Japanese media’s rare extensive in-depth report on various reasons why the CCP converted the Pangu Plaza’s dragon head-shaped building into a bird head-shaped building; this staggering move by the CCP reflects its dictatorial nature and superstition as well as the fact that Mr. Miles Guo’s revelation of the CCP’s corruption has made Xi Jinping very upset<br/><br/>12/29/2021 日媒罕见大篇幅报道分析中共将郭先生的盘古大观龙头改鸟头的诸多原因；中共这一令人咋舌的举动反映其独裁的本质和迷信以及郭先生对中共腐败的揭露让习近平非常不悦悦<br/>
+![img](https://media.gettr.com/group49/getter/2021/12/30/06/544295a7-1488-05ba-d013-f76c084ae046/out.jpg)
+
+---
+
 `@miles 12/30/2021 3:24 AM (UTC)`
 
 12/29/2021 Miles Guo: Qin Gang smears Bannon, Miles Guo, and his followers as the cause of the tension between the US and the CCP, which will surely cause the war between the two if they were not taken out; Qin Gang also denies the CCP’s “Wolf Warrior diplomacy”, calling it “dancing with the wolf (i.e., the US)” and shameless lying that it’s the Han Chinese who have suffered the genocide committed the Uyghurs<br/><br/>12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系，如不除之，必将导致中美一战；秦刚还否认“战狼外交”，竟称“与狼(指美国)共舞”，并无耻地谎称汉人遭新疆人大屠杀<br/>
@@ -150,13 +157,6 @@ HBO-VICE‘s Premeditated Lies<br/>HBO-VICE‘s 115-minute premeditated intervie
 
 12月27号：吃馍馍喽……
 ![img](https://media.gettr.com/group15/getter/2021/12/27/17/372e5e77-8381-55b4-d7da-fdc70526e47b/out.jpg)
-
----
-
-`@miles 12/27/2021 5:45 PM (UTC)`
-
-12/25/2021 Miles Guo: Tragic incidents are happening every day in Communist China; those who have a true spirit of exploration and critical thinking are treated as psychos in Communist China. Not only do our children have no hope in Communist China, but Xi Jinping’s children are no exception as well<br/><br/>12/25/2021 文贵直播：惨绝人寰的景象在中共国司空见惯；真正具有探索和批判精神的人在中共国会被当成精神病，不但我们的孩子们在中共国没有任何希望可言，习近平的孩子也不例外！<br/>
-![img](https://media.gettr.com/group41/getter/2021/12/27/17/305c6023-ba68-c3bc-2790-070cf79403a4/out.jpg)
 
 ---
 
