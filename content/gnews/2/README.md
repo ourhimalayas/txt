@@ -2,40 +2,38 @@
 ---
 
 
-## 中共病毒及疫苗一周伤害信息汇总
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805682/)
+## 银河快讯:维吾尔学生自日本返中共国后可能已死亡；日本处罚私营企业泄露信息
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1805690/)
 
-作者：纽约香草山农场医疗部 – Zion文恩
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月21日至28日，除中共国外，全球累计确诊中共病毒六百五十一万余例，同比上周增长了百分之35.6，增长率较上周的百分之9.36显著增加；本周累计死亡四万四千七百三十七例，同比上周下降百分之6.1。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20.jpg)
-截止28日，全球除中共国之外累计接种了64.1亿剂中共病毒疫苗，同比上周增长百分之2.23；疫苗接种的增长率较上周的百分之2.88稍有下降，尽管本周全球的确诊病例显著增加，但连续两周全球疫苗接种已趋于稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-156.png)[图片来源](https://english.kyodonews.net/)
+**1.****2021年上市公司破产率为零**
 
-中共国内区域性的疫情爆发从未间断。其中，西安市自当地时间23日凌晨起被执行封城措施，疫情形势不容乐观。民众普遍认为，中共西安市卫健委所声称的西安市百分之99.38的接种率是个笑话。而据郭文贵先生援引中共体制内知情者消息称，西安的疫情爆发并非由于中共蓄意投毒，而是由于高疫苗接种率所造成的突破性感染，完全是疫苗接种所造成的灾难。
+[据帝国数据银行12月29日报道，这是自2016年来，五年来首次无上市公司破产。上市公司破产数量曾在2008年达到顶峰（33家）。2021年来，公司破产数量继续远低于去年同月水准，年度破产数预计将降至自1966年（5919件）55年以来5000件大台的 “历史低点”）。 破产数量的急剧下降是由于政府迅速向公司提供资金，执行例如所谓的 “零零融资 “等金融政策，以及通过各种类型的福利金稳定了融资环境。](https://news.yahoo.co.jp/articles/5042c62905c51cab408f177c6d6967639fc41818)
 
-美国方面，上周全美中共病毒感染新增病例的七日平均值已经突破28万，达到自去年一月以来的最高值——“奥米克戎”毒株的高传染率可见一斑。值得注意的是，中共病毒疫苗的大面积接种显然没有阻止疫情的迅速扩散。
+**2.****为防止技术泄露至中共国，《经济安全法案》考虑对私营企业泄密行为进行处罚**
 
-此外，英国、法国、葡萄牙、希腊等国家均突破了单日新增病例的记录。
+[据产经新闻12月28日报道，政府考虑将在《经济安全促进法案》中制定对泄露敏感技术的私营企业进行处罚的条例，该法案将于明年提交给国会审议。 在官方和私企联动合作的情况下，政府对私营部门实行惩罚虽不同寻常，但政府已决定有必要严格执行信息管理，以防止泄露至中共国和其他国家。政府将 “官民技术合作 “列为《经济安全促进法案》的四大支柱之一。](https://news.yahoo.co.jp/articles/c328cc4b30d7967e916c1854c1de6e31ddf46374)
 
-本周是2021年的最后一周，面对中共病毒新毒株的肆虐，各国的强制疫苗政策仍在继续。德国议会将于2022年新年假期后展开全民强制接种的立法讨论工作。而美国总统拜登则在28日的州长电视会议上承认，联邦政府应对奥米克戎毒株不力，承诺给各州更大的自由应对疫情，同时，他还呼吁各州加大力度推行筛查和接种工作。
+**3.****日本新增4人死亡，501人感染**
 
-参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-21..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) .[Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2021-12-21..2021-12-28&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) .[COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-21..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+[据NHK 12月29日报道，日本全国各地新报501新增病例。 这是自两月前的10月16日以来，首次在一天内超过500人。同时还宣布了四例死亡：石川县两人，北海道一人，福冈县一人。 日本共有1,733,255人被确认感染，包括机场检疫及国内感染1,732,543人，邮轮钻石公主号712名乘客及船员。 共有18,405人死亡，包括日本国内18,392人及邮轮钻石公主号13人。](https://www3.nhk.or.jp/news/html/20211229/k10013409171000.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**4.****维吾尔学生自日本返中共国后可能已死亡**
 
-总编/编辑：Irene木木
-校正/发稿：Fei797
+[据共同社 12月29日报道，根据在日本维吾尔人信息，一名在日本学习和教书五年的维吾尔妇女恐在两年前返回中共国后，在国家安全警察调查时死亡。日本维吾尔协会相关人士及其友人说，31岁的米热阿依・艾尔肯来自新疆喀什地区，在得知其父被送入拘留所后，于2019年6月返回中共国。许多在日本维吾尔人说，他们的家人被送往该地区的拘留中心，那里有超过100万的穆斯林少数民族正在接受 “再教育”。](https://english.kyodonews.net/news/2021/12/a74b24f371af-feature-uyghur-student-feared-dead-after-returning-to-china-from-japan.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**5.****日本经产省向接受 “钚热 “发电城市提供补助金**
+
+[据NHK 12月29日报道，经济产业省已决定向接受再生钚的核电站所在城市提供补贴，以促进 “钚热发电”，这将重新利用从核电站废核燃料中提取的钚。由于钚可作为核武器原料，日本已做出国际承诺，不拥有无使用目的的钚，因此需要采取具体措施来减少钚的数量。另一方面，位于青森县六所村的一个提取处理厂计划在下一财政年度的上半年完工，当该厂开始全面运作时，日本钚的持有量有可能增加。围绕钚的使用，日本仍然存在大量的问题。](https://www3.nhk.or.jp/news/html/20211229/k10013408211000.html?utm_int=all_side_business-ranking_001)
+
+**6.****面对中共病毒（新冠病毒covid-19）疫情日本首相寄希望于工资上涨**
+
+[据共同社 12月29日报道，日本首相期待企业提高工资以加速财富再分配，这是他推动新资本主义的核心内容。工资增长对于增加消费和振兴这个世界第三大经济体至关重要。增涨的消费可使公司更易提高价格，并帮助日本银行努力将通胀率提高到至今难以企及的2%的目标。岸田最近在一次新闻发布会上说：”利用一切可能的手段创造一种企业希望提高工资的氛围。”他还号召企业在收入恢复到疫情前的水准后，可给员工加薪3%以上。](https://english.kyodonews.net/news/2021/12/7e0d6bf3693a-focus-input-cost-rise-omicron-await-as-pm-kishida-pins-hopes-on-wage-hikes.html)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Tagomi
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,69 +2,48 @@
 ---
 
 
-## 12月29日老班长联盟答疑G系列相关信息文字版
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1805567/)
+## 【Michael.Tonny专栏】中共病毒疫苗是死者自毁的导火索！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1805613/)
 
-非官方整理，一切信息以联盟答疑音频为准
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-G-听写： qiutian（邱甜）；飞花逐月； ohbigant；鲁西西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-1、问：通过联盟代购代持的有没有锁币凭证？
-答：最后会给出一个锁币的协议，锁币三年是初定的时间，相信只会更短，将根据整体形势变化，有可能提前返还给战友。如果战友有贷款需求，锁着的币我们直接通过法律文件将这个相当于质押的关系提交到出款方，出款方如果是我们G系列的金融机构的话，联盟会协助大家去完成。
+包括美国在内的越来越多的国家越来越强硬地要求其民众接种COVID-19（中共病毒）疫苗，甚至接种第三剂疫苗。一些国家，如以色列和德国，正在推出第四剂，更多的国家正在缩短初始接种和加强针之间的推荐间隔。
 
-2、问：美加日的喜币是联盟代持，没有自己的账户，那10%可以返到信任的战友账户吗？
-答：目前是不可以，那会有很大的安全漏洞，转直系亲属可以。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/booster-1.jpg)
 
-3、问：SEC的退款有什么消息吗？
-答：SEC开始动作了，等假期之后跟我们的律师团队进行沟通，尽早启动。
+然而，研究表明，大多数接种疫苗的人死于中共病毒疫苗导致的自身免疫系统对自身器官的攻击！几乎所有在接种后7天至6个月内死亡的中共病毒疫苗接种者都可能死于疫苗引起的自身免疫损伤。
 
-4、问：因房屋售卖，投资GTV和购买G|CLUB卡的资料信息需要更改吗？
-答：联系农场和咨询客服，能进行变更的尽量变更。
+为什么一个人接种中共病毒疫苗后，免疫系统会变得疯狂并攻击它旨在保护的东西？
 
-5、之前个人汇的款，发股时是不是可以用BVI公司来承接这个股票？
-答：在新G-TV重建项目中登记的公司名字，个人名字或家族信托名字，股票将来是放在这个名下，将来的股份变卖转让的资金要转入这个名下的账号。
+科学家们认为，发生致命的免疫反应的原因是，接种中共病毒疫苗会导致免疫系统将产生在自然状态下永远不可能生产的SARS-CoV-2刺突蛋白细胞，免疫系统又将这些SARS-CoV-2刺突蛋白细胞视为威胁并试图摧毁它们。
 
-6、数字银行的投资截止时间是12月31日吧？
-答：是的。数字银行是可以做数货业务的银行，我们目前还没有拿到贷款的牌照。现在的投资门槛降到了十万，要保证你的资金来源和KYC没有问题，十万以上就可以申请但是无法保证能否批准。
+在人体的任何器官中，任何因中共病毒疫苗诱导产生的这种外来抗原（SARS-CoV-2刺突蛋白细胞）的细胞都会受到免疫系统中IgG抗体（所有体液中发现的最丰富的抗体类型）和细胞毒性T淋巴细胞（保护身体免受癌细胞和被病原体感染的细胞侵害）的强烈攻击。
 
-7、今天的HCN价格和联盟的操作有关吗？
-答：没有关系。
+每打一针加强针，免疫系统就会“变得更具攻击性”。人的心肌、肝脏和肺在中共病毒疫苗诱导下开始产生这些该死的突刺蛋白（SARS-CoV-2刺突蛋白细胞），然后免疫系统的杀手淋巴细胞去那里……并摧毁自身的心脏、肺和肝脏。
 
-8、卡项目投资没有收到任何G-TV的KYC的文件。
-答：联系农场咨询一下。
+反过来，由于疫苗进入产生淋巴细胞或白细胞的淋巴结，这些细胞也可以被“教导（或诱导）”制造刺突蛋白。这反过来又使它们成为自身免疫攻击的目标，这削弱了免疫系统检查人体内的所有潜在致命病毒和细菌的能力。人体免疫能力完全被削弱。
 
-9、新联邦控股的数字银行什么时候可以开户？
-答：数字银行还没有到我们手上，现在还没有完成整个过程。是总共买了数字银行80%的股份，战友可以参与投资的是80%股份中的49%，数字银行交易完成后肯定会给战友优先开户。当全牌照申请完毕后，可以优先给有资质有能力的战友在当地开分行。
+爱达荷州（Idaho）的病理学家Ryan Cole博士就认为，结核病在亚洲、印度和非洲各地呈上升趋势，接种疫苗的患者的癌症和肿瘤有所增加，也可以通过免疫系统抑制细胞病理突变能力的减弱来解释。
 
-10、有原VOG和G2的，目前还没收到新建G|TV任何协议。正常吗？
-答：正常的，第三批还没开始呢。
+Peter McCullough博士指出，众所周知，刺突蛋白会导致疾病，例如心肌炎和神经系统损伤，以及损伤血管和促进血液凝。通过重复接种COVID-19疫苗，刺突蛋白会逐渐在大脑、心脏和其他重要器官中积聚，超过免疫系统清除能力。
 
-11、老班长能聊一下上次卖HCN的事吗？
-答：首先，当时有1000多账号还没锁币，且多次催促对方无果。这次展示了不锁币的危害性有多大；其次，大量战友的KYC一直都过不了，困扰我们至今；最后，很多人迟迟无法入帐HDO，特别是大额的。 这次是通过个人行为，合理表达诉求。 也振出局一些不坚定分子，让币能更多回归战友。
+Brian Hooker博士认为，疫苗伤害随着每一次额外的注射而呈指数增加，用相同的病原体一遍又一遍地重复攻击敏感的免疫系统。
 
-12、普通战友的海外护照何时能办理？
-答：新中国联邦护照吗？需要一些时间，没那么快。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Countering_Overreach3_banner728.jpg)
 
-13、美国公民何时成立私人信托比较好？
-答：任何时候都可以，不需要巨富，有相对的资产都应该成立。能有效保护你的资产且延续后代。去找当地律师会计师咨询。
+参考数据：
 
-14、多于5000个HCN就该锁币，但市场操作后不足5000个了怎么办？
-答：如果之前已经卖掉比较多，农场和联盟会有评估仲裁；如果卖掉的在10%内，这次锁币就自行扣除。
+[Study: Most of Vaccinated Die Because of Vax-induced Autoimmune Attacks on Their Own Organs](https://theparadise.ng/study-most-of-vaccinated-die-because-of-vax-induced-autoimmune-attacks-on-their-own-organs/)
 
-15、墙内追加投资10万美元以下还有机会吗？
-答：老战友没有过高门槛，新战友1万美元起投。汇款单笔3000美金起。
+[360X increase in the rate of adenopathy after vaccination](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)
 
-16、新建G|TV投资截止日期延后一个月吗？
-答：老投资者截止明年4月30号前到账，新投资者目前至少延期到明年1月31号。
-如果HPAY留下的时间不足以完成汇款转账，还会延期。
+[Bhakdi/Burkhardt pathology results show 93% of people who died after being vaccinated were killed by the vaccine](https://stevekirsch.substack.com/p/bhakdiburkhardt-pathology-results)
 
-G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
+[On COVID  vaccines:  why  they  cannot  work,  and  irrefutable evidence  of  their  causative  role  in  deaths  after  vaccination](https://doctors4covidethics.org/wp-content/uploads/2021/12/end-covax.pdf)
 
-语音链接：**[https://mega.nz/file/7NwkCCIA#BhQcxR5Bohn-eXT0HD6Bto89bt28jGq6PHyge7CQrqI](https://mega.nz/file/7NwkCCIA#BhQcxR5Bohn-eXT0HD6Bto89bt28jGq6PHyge7CQrqI)**
-
-*审核：哲道行者，夏目山竹*
-
-*发布：哲道行者*
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

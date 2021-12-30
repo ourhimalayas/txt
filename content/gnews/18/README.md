@@ -2,36 +2,28 @@
 ---
 
 
-## 雷·达里奥与中共狼狈为奸
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805459/)
+## 以色列Omicron疫情嚴重 最後一天確診了約3000人 來源N12news
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1805505/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月28日，据盖特消息显示，班农先生在22日接受英喜农场的采访中谈到，当前外国公司正在成群地撤离中共国，而美国亿万富翁、桥水集团创始人雷-达里奥却逆势而行，为其最大的中共国基金筹集了约12.5亿美元的投资。
+编译：GM
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-28.jpeg)
+疫苗（新冠疫苗）
+中共病毒（新冠病毒covid-19）
 
-班农先生表示，雷-达里奥正是习近平和王岐山的合伙人。为此，达里奥把美国的钱投到中共国基金，并与非法犯罪企业合作，压榨中国人民。另外，他们还欺骗中国百姓说，中共国的房地产公司是非常有价值的，它们规模小、债务少，而且像恒大这样的企业不仅通过了中共国的财务审计，甚至连美国的评级机构和投资银行也吹捧其运行良好，但这完全是无能和撒谎。
+我們不反疫苗，只針對假疫苗
+我們不反科學，只針對反人類
+![](https://assets.gnews.org/wp-content/uploads/2021/12/01e1c67b-f9ef-4f11-80df-1ad5024e54a1.jpg)
+今天早上（12.29日）corona發病率數據持續上升，衛生部更新說，在最後一天有2967名以色列人感染了該病毒。重症患者人數保持相似，為88人。感覺染率持槍續上升，今早為1.53昨天為1.47。這一數字表明以色列的流行病正在擴大。
 
-班农先生强调，中共控制的经济中，没有一个数字可以被相信。此外，郭文贵先生更是第一个爆料中共国房地产泡沫终将崩溃的人。
+衛生部最新統計數字顯示趨勢逆轉：大多數受Omicron感染者在社區進行了身份驗證,並沒有從國外返回，在進行的大約120000次crona測試中，88名被定義為嚴重患者，47名危重患者，18名與Acmo相關，39看呼吸系統疾病。此外，20名患者處於中度狀態，另外33名患者處於輕度狀態。以色列目前有17260名corona患者。自ccp病毒爆發以來，以色列因ccp病毒死亡人數累計為8343人。
 
-班农先生解释到，达里奥正在与中共狼狈为奸，试图正常化中共犯罪企业。同时，中共也定会在冬奥会之前极力掩盖这一问题，转移人们的视线并且镇压墙内人民的反抗，但即便如此，中共国内部巨大的危机已经在酝酿之中。
+編者按：在人口只有六百多萬的以色列，被ccp病毒奪取生命的猶太人已達8343，無數人失去工作、收入，生活方式完全被改變，變異病毒不斷侵蝕，疫苗災難肆虐以色列，已經到了非常危急的時刻，消滅ccp刻不容緩，是全世界人瓦正義的需要！
 
-参考链接：[https://gettr.com/post/pktqxxe332](https://gettr.com/post/pktqxxe332)
+參考鏈接：[https://mobile.mako.co.il/news-lifestyle/2021\_q4/Article-4798b5976250e71026.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-lifestyle/2021_q4/Article-4798b5976250e71026.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+審核校對：Barry Jack
+上傳排版：F
 
-总编：Irene木木
-编辑：童谣
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

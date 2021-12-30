@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|东京发现首例奥密克戎变体确诊病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1805585/)
+## 辉瑞公司与中共阿里巴巴早有合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805658/)
 
-配音：香草山教育部 – 百香果
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日，据美国媒体消息显示，自2018年起，辉瑞公司就一直与中共支付平台支付宝合作。而从中共病毒爆发以来，支付宝则长期协助中共政府在中共国内推行“健康码”政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-27.jpg)
+报道提到，辉瑞公司曾在其官方推特上多次对中共政府表示支持，甚至为与中共政府的合作表示自豪。据悉，辉瑞与中共政府的合作涉及疾病和疫苗接种的相关工作，而辉瑞公司也通过与支付宝的合作实现在中共国内的移动支付功能。
 
+但资料显示，支付宝是与中共有密切关联的阿里巴巴集团旗下的一个分支平台。而阿里巴巴作为帮助中共政府及其军队进行科研、生产、武器和设备维修等工作的大型企业，美国国务院此前已经将其标记为中共政府建立社会监视和控制机制的“工具”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据日本媒体报道，12月24日，日本东京报告了首例中共病毒奥密克戎变体确诊病例。
+参考链接：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp)
 
-东京市政府发言人小池由纪子，在新闻发布会上表示，将从25日开始进行免费中共病毒检测，并计划下周在东京180个地点，每天进行3万次测试。小池强调，重要的是要加强检测系统，以便人们能够尽早发现病情和隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-与此同时，日本首相岸田文雄呼吁，国民应谨慎行事，在制定旅行探亲新年假期计划时，慎重考虑出行措施。 截止25日，除东京外，京都和大阪分别发现4例和2例奥密克戎确诊病例。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-文字版原文：[东京发现首例奥密克戎变体确诊病例](https://gnews.org/zh-hans/1795450/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

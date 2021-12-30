@@ -2,10 +2,49 @@
 ---
 
 
-## 12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1805668/)
+## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
 
-秘密翻译组-北美组
+作者：纽约香草山翻译部 – defiance
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
+
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
+
+参考链接：
+1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
+2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：童谣
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
