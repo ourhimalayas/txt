@@ -2,25 +2,25 @@
 ---
 
 
-## 中国移动被加拿大政府停止运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1804863/)
+## 与原发感染相比，SARS-CoV-2 再感染的严重程度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1804905/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-353.png)
-[图片来源](https://www.google.com.hk/search?q=cmlink+canada&amp;tbm=isch&amp;ved=2ahUKEwi5rLT2tYv1AhWW0IsBHQsrDyAQ2-cCegQIABAA&amp;oq=CMLink+&amp;gs_lcp=CgNpbWcQARgAMgQIABATMgQIABATMgQIABATOgUIABCABDoECAAQHjoECAAQGFDqBljqBmDAFWgAcAB4AIABiQGIAYgCkgEDMC4ymAEAoAEBqgELZ3dzLXdpei1pbWfAAQ)
+撰文 : 新中国联邦静
 
-北京晚报12月30号报道，中国移动加拿大子公司CMLink于12月28日宣布，应加拿大联邦政府要求，该公司业务将于2022年1月5日起停止运营，当天起用户可申请退款。这被认为是加拿大政府以国家安全为由停止中企的又一例证。
+新英格兰医学杂志(NEJM.org )在2121年11月24日发表一则在排除了 87,547 名有疫苗接种记录的人后，在 2020 年 2 月 28 日至 2021 年 4 月 28 日期间，在 353,326 名聚合酶链反应 (PCR) 确诊感染的全国队列中，再感染与原发性感染相比的调查报告，该报告显示再感染导致住院或死亡的机率比原发感染低 90%。四次再感染严重到需要住院治疗。没有人导致在ICU住院，也没有人以死亡告终。再感染很少见，而且通常很轻微，这可能是因为初次感染后免疫系统已做好准备。
 
-中共为何不提出终止加拿大电信公司在我国的业务？因为中共的腐败体制不允许国际电信运营商进入，国内没有加拿大运营商，不能对等制裁。
+看起来 SARS-CoV-2 的作用类似于“其他季节性的“普通感冒”冠状病毒，它们对轻度再感染产生短期免疫力，但对再感染的更严重疾病产生长期免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-481.jpeg)
+引用来源
+[https://www.nejm.org/doi/full/10.1056/NEJMc2108120](https://www.nejm.org/doi/full/10.1056/NEJMc2108120)
 
-加拿大一个只有不到3800万人口的市场，中国移动的市场份额估计1‰都没有，通信网络还是租来的，接近一千万平方公里的国土面积，比中共国还大，去自建网络三辈子也别想收回成本，为何还要挤破脑袋去抢占市场？中共的电信运营商皆与军方共享信息，加拿大政府以国家安全为由停止运营，相信已掌握了中共的相关信息。
+* * *
 
-信息来源：[中国移动被迫终止加拿大业务！](https://mo.mbd.baidu.com/r/yQyh8B0BfW?f=cp&amp;rs=367366980&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=48120138a071f743)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
