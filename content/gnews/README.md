@@ -15,83 +15,83 @@
 
 ---
 
-### [中大研究止血粉 映射内地“出血热”](/content/gnews/1/README.md)
+### [新冠疫苗受害者投诉无门](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共治下的中国式婚姻](/content/gnews/2/README.md)
+### [澳媒报道：中共公布海外股票销售法规](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [中大研究止血粉 映射内地“出血热”](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [医学深层政府继续对伊维菌素撒谎](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [启示：1918 年西班牙流感期间只有“接种疫苗者”死亡](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共治下的中国式婚姻](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [被国家机器认可的民主](/content/gnews/3/README.md)
+### [被国家机器认可的民主](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/30每日播报｜美联邦法官驳回俄克拉荷马州阻止军队疫苗强制令的讼诉](/content/gnews/4/README.md)
+### [12/30每日播报｜美联邦法官驳回俄克拉荷马州阻止军队疫苗强制令的讼诉](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [此次西安疫情的感悟](/content/gnews/5/README.md)
+### [此次西安疫情的感悟](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [【速报】东京股市年末最后交易日创32年最高收盘价](/content/gnews/6/README.md)
+### [【速报】东京股市年末最后交易日创32年最高收盘价](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](/content/gnews/7/README.md)
+### [生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/8/README.md)
+### [美国邀请台湾参加环太洋军演习 中共又要重新划红线？](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [毕业即失业成常态！今年约13%的中共国大学生被“灵活就业”](/content/gnews/9/README.md)
+### [毕业即失业成常态！今年约13%的中共国大学生被“灵活就业”](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安出血热-疫苗后遗症](/content/gnews/10/README.md)
+### [西安出血热-疫苗后遗症](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [串珠507:郭先生谈养生；他的记忆力为什么那么好？](/content/gnews/11/README.md)
+### [串珠507:郭先生谈养生；他的记忆力为什么那么好？](/content/gnews/15/README.md)
  ` 郭爆料串珠`
 
-### [实验性mRNA疫苗会导致心脏损伤 极速破坏男孩健康](/content/gnews/12/README.md)
+### [实验性mRNA疫苗会导致心脏损伤 极速破坏男孩健康](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拐卖人口&#8212;无处安放的光棍](/content/gnews/13/README.md)
+### [拐卖人口&#8212;无处安放的光棍](/content/gnews/17/README.md)
  ` 骄子`
 
-### [文贵先生大直播给“爆二代”的寄语感悟（一）规划的东西不是自然的东西](/content/gnews/14/README.md)
+### [文贵先生大直播给“爆二代”的寄语感悟（一）规划的东西不是自然的东西](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [12/30每日播报｜拜登政府的失策导致中共病毒COVID-19的测试等待线长达数英里](/content/gnews/15/README.md)
+### [12/30每日播报｜拜登政府的失策导致中共病毒COVID-19的测试等待线长达数英里](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [哈佛教授利伯因涉及纳米技术等多项罪行被定罪](/content/gnews/16/README.md)
+### [哈佛教授利伯因涉及纳米技术等多项罪行被定罪](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拐卖人口&#8212;六十岁老夫妻生娃](/content/gnews/17/README.md)
+### [拐卖人口&#8212;六十岁老夫妻生娃](/content/gnews/21/README.md)
  ` 骄子`
 
-### [欧洲能源价飙升导致英国出现“国家危机”](/content/gnews/18/README.md)
+### [欧洲能源价飙升导致英国出现“国家危机”](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共出台新法严打互联网宗教活动](/content/gnews/19/README.md)
+### [中共出台新法严打互联网宗教活动](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [福奇博士了解 COVID 科学但不了解美国人民](/content/gnews/20/README.md)
+### [福奇博士了解 COVID 科学但不了解美国人民](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [极度自卑的CCP](/content/gnews/21/README.md)
- ` 银河勇气之星`
-
-### [等不及了？新西兰竟然准备为中共病毒患者实施安乐死](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [越来越多医院吹哨人揭完全接种者出现血栓及心脏病](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/30每日播报|社媒消息：班农先生 德国的Eddy医生](/content/gnews/24/README.md)
+### [12/30每日播报|社媒消息：班农先生 德国的Eddy医生](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/30每日播报｜新闻简讯:文贵爆料 12.29 港媒全面熄灯 班农荣获媒体信赖奖项](/content/gnews/25/README.md)
+### [12/30每日播报｜新闻简讯:文贵爆料 12.29 港媒全面熄灯 班农荣获媒体信赖奖项](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [阿联酋批准中共国药的蛋白疫苗](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [德桑蒂斯大举打击“唤醒企业意识形态”和中共影响力](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -144,47 +144,47 @@
 ### [新西兰财经G乐部2021年12月30日:财经新闻整理](/content/gnews/43/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [吉林检察机关对王立科提起公诉](/content/gnews/44/README.md)
+### [中国农村偷狗产业链](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [吉林检察机关对王立科提起公诉](/content/gnews/45/README.md)
  ` 首尔天池农场`
 
-### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/45/README.md)
+### [美方再次严正声明 坚决执行外交抵制冬奥会](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/46/README.md)
+### [澳洲工党猛烈抨击达尔文港租约](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国加入世贸组织20年后的教训](/content/gnews/47/README.md)
+### [中共国加入世贸组织20年后的教训](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/48/README.md)
+### [日澳将修订安全联合声明，全方位合作对抗中共](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/49/README.md)
+### [不惧威吓何来惹怒一说？拜登新疆令发威最大零售商惹怒北京](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中南坑的共产渔夫](/content/gnews/50/README.md)
+### [中南坑的共产渔夫](/content/gnews/51/README.md)
  ` 银河勇气之星`
 
-### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/51/README.md)
+### [研究表明SARS-CoV-2病毒可传播至人脑等身体诸多组织，并在其中进行复制](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/52/README.md)
+### [【秘翻在线】立陶宛议员发布立陶宛版“坦克人”照片，以声援台湾](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/53/README.md)
+### [港闻前线｜持续更新 取缔新闻自由！国安处清晨上门拘六名《立场新闻》涉串谋发布煽动刊物](/content/gnews/54/README.md)
  ` 關注組`
 
-### [新冠疫苗可能迫使病毒变异](/content/gnews/54/README.md)
+### [新冠疫苗可能迫使病毒变异](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/55/README.md)
+### [即使玩假擀面杖经济,被绑架的西方经济也得跟中共一上一下](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/56/README.md)
+### [习近平以龙椅、龙杯立帝位见港澳特首后对港澳大开杀戒](/content/gnews/57/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [2021/12/25 文贵先生直播精要](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [专家警告辉瑞抗病毒药可能构成风险](/content/gnews/58/README.md)
  ` 澳喜农场`
