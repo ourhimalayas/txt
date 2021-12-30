@@ -2,39 +2,30 @@
 ---
 
 
-## Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1802225/)
+## 文贵爆料 12.29：“铁幕”缓缓落下——拜登“国防支出法案”出炉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1802286/)
 
-12/29/2021 郭文贵先生的歌曲Hcoin To the Moon上线第27天位列3国iTunes摇滚音乐榜首
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-15.jpg)
+中共病毒及中美在科技、军事、政治、经济、网络和外交等各方面的龙争虎斗，终于让两国的关系已从假想敌人变成了敌人。郭先生在12月29日的大直播中说，美国”国防支出法案”是中美关系的“体温计”，它标志着美国正式向世界宣布，”中共你就是我的敌人”。
 
-* * *
+“国防支出法案”是美国国会参众两院起草的，参众两院中最重要的是众议院，有军事委员会和国防预算委员会。从1927年到1945年，在美苏冷战之前，美国通过欧洲在军事、技术等各方面对苏联的援助是巨大的，甚至对苏军冲入柏林后，对德国人烧、杀、抢及强奸200万妇女的暴行也充耳不闻。
 
-[【PDF 下载】Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+但在决定干掉苏联后，美国对其实施了经济围困，使其处于饥饿状态。它禁止苏联的输油管进入德国；不允许苏联的货币与欧洲其他国家的货币有超额交易，从而脱离美元的控制。现在美国的“国防支出法案”与当年的曼哈顿计划和登月计划如出一辙，它明确地宣布，中共你就是我的敌人。
 
-* * *
+当时就是用经济围堵、政治孤立这种“温水煮青蛙”的方式使其内乱。前俄罗斯总书记叶利钦曾警告中共“美国人不傻，他们在国家和民族利益上是百分之百的坚持。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_113.jpg)
+拜登很清楚，他无法阻挡灭共大势。刚发布的这个法案有三个核心：一，秘密军事力量。注意“秘密”这两个字，当时对付前苏联使用的是秘密经济结构。美国几乎掌握它对外的每一笔交易和每一分钱的去向。二，经济封锁。三核心技术封锁。这包括核动力潜水艇和核动力航母技术的封锁，以及将前苏联的核能及物理工程师转移到美国。
 
+对于这项法案，杨洁篪和王毅说，美国亡我之心不死，不管我们干啥，它都要灭我们，但这场中美世纪之战我们一定会赢，我们要继续释放病毒。拜登一定会放弃病毒溯源，美国内部及两党会产生分裂，这也是我们攻打台湾最好的机会。美国不会参战，日本由于迫于我们的核武威慑，也不敢参战。
 
-[【PDF 下载】Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-29-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+拿下台湾和南海，中国的版图就扩大了%47，随后就可压制印度和越南，中国将成为亚洲老大。美国在未来的20年，经济将接近崩溃。欧洲会分崩离析，欧元崩塌，各国会闭关锁国。剩下唯有共产党独大。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+郭先生最后强调，“国防支出法案”的核心是，它宣布了中美之间争锋相对的敌对关系从此开始，但这也助长了中共攻打台湾的野心。
+
+参考链接：
+
+[2021年12月29日 文贵大直播](https://gettr.com/streaming/pkznva4740)
 
  
 
