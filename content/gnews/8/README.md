@@ -2,29 +2,49 @@
 ---
 
 
-## 澳大利亚CCP病毒每日新增已突破2万关口
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1805196/)
+## 暴君和魔鬼全被好听的话毁掉,能听见不同的声音才有未来
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1805277/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1230C.jpeg)网络图片
-12月30日，澳大利亚汇报的CCP病毒新增感染数量突破20,000大关。其中新南威尔士汇报了12.2万左右的CCP病毒新增确诊，维多利亚汇报超5100例新增确诊，昆士兰州记录了超过2200例新增确诊。
+**郭文贵先生：**你看看希特勒这个家伙这个“魔头”身边的人，他聚集了人类有史以来最多的军事天才。他本身就是雕塑大师、服装大师、宣传大师、外宣大师，几乎让他所有的，你看戈培尔这样的人，是不是？Manstein、Speer，最伟大的建筑师，就全当他下边，这也是世界的“魔头”是吧？
 
-目前澳大利亚疫情最为严重的地区为悉尼所在的新南威尔士州。该州目前已经连续两日确诊突破1万，并且新增病例仍然处于上升趋势。虽然看上去今天的病例增加相较昨天变化不算太大，但这可能是因为假日期间检测量大幅下跌的原因。
+你就要想到一个，凡是没有麻烦的人甚至让你，一定要记住，凡是说话让你舒服到不行的人，你就要开始怀疑他了。我现在不跟你说。那“九指妖”你说说的话有多好听啊。全人类我活那么大，说话让我最受不了的就仨人，第一个你七嫂，她这从来就没让我舒服过，就说话，你反正我只要说好的，她一定说不好。
 
-澳大利亚首席医疗官保罗·凯利教授表示，当前澳大利亚有超过 110,00 例活跃的CCP病毒感染病例，而且这个数字预计在未来还会继续上升。至于当前因CCP病毒而入院的人数，凯利教授表示大约在1400人左右，同时他认为新的变异毒株在毒性方面似乎有下降的趋势。
+第二个人就让我最不舒服的就是这个王雁平，就坐在我旁边这个，她能把我气死一亿回不拉倒，我真的最让我不舒服就是王雁平。小王子在现场能看得见，我有时候，我看都不想看她一眼，就她那个脾气你没法儿接受得了。第三个人是我现在不能说的一个女人，非常非常，她就说话就让你不舒服，但是她都是好人，她对我最重要。
 
-对于即将到来的新年节日，澳大利亚总理莫里森提醒居民应采取必要的预防措施。他表示：“我们现在一直生活在这种病毒中，这种病毒已经在我们身边存在了两年……我希望人们表现出适当的谨慎并遵循常识，在尊重个人健康的同时享受一个美丽的、充满希望的夏日夜晚。”
+所以Rica你要找到一个像小王子这种会说的，在你旁边可让你开心了，那把你忽悠死，把你卖一万回都让你自己数钱去，是吧？你不信试试，你看小王子这嘴忽悠你那绝对是，你会看到一个不同的小王子，那嘴跟你说的，是吧？但是他可能是最危险的。
 
-从明年一月开始，澳大利亚的加强针注射等待时间将会被缩短至四个月，随后变为三个月。根据澳大利亚COVID应对小组的说法，当前已经有300万支疫苗被摆上货柜，在 1 月的开头两个星期，该部门将向澳洲各地的全科医生、药剂师和州立接种中心运送额外 600 万剂 CCP病毒mRNA疫苗。此外，还有另外 的1600 万剂 CCP病毒疫苗存放在仓库中等待运送。
+所以生活中永远记住，不是“良药苦口利于病”，这不是这么说，一定要记住，凡是让你舒服的，你都应该忽略掉它。所有的暴君、所有的魔鬼都是被那些说好话的人给毁了，培养出来的。当你能听进不同的声音，能听进不舒服的话，而且你能真心的对待他看他，老天会睁眼的。老天是给最终的有正义感有良知的人给你留未来的。
 
-笔者认为Omicron的全球大流行很可能就是为了进一步推广CCP病毒疫苗加强针而进行的前哨战或者铺垫。当世界各个地区出现剧烈的病例增长时，呼吁进一步的加强针疫苗接种就变得顺理成章。因为如果前两针打完就恢复正常秩序，加强针的存在似乎也就不再合理。同时Omicron变种的爆发和流行可以再一次刺激民众的恐惧心理，许多人在不明真相但求保命的思维模式下盲目追加疫苗注射，殊不知自己已经主动落入一个更加可怕的额深渊。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
 
-新闻参考链接：
+编辑整理：喜马拉雅的肉夹馍；
 
-[9 News](https://www.9news.com.au/national/australia-breaking-news-live-coronavirus-updates-omicron-headlines-december-30-2021-covid-national-cabinet-meeting-close-contacts-nsw-case-numbers-rapid-tests-shortage/6f030e72-877d-4391-a8b2-66a775d1623a)（一）
+字幕文件制作：小满；
 
-[9 News](https://www.9news.com.au/national/coronavirus-new-case-numbers-national-cabinet-update-testing-requirements/99f48758-3471-49db-907f-24f6da934030)（二）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+视频制作及上传：Cindy；
+
+技术支持：文肺猫
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
