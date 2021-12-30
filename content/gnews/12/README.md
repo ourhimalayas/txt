@@ -2,60 +2,46 @@
 ---
 
 
-## 魁北克再次甩锅给未接种疫苗的人，些人占重症监护病房人数的 75%
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1805059/)
+## 国人通病:不严肃对待当下这一刻,等死混日子,待人无礼节
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1805166/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片872-edited.png)图片来源：网络
-**“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”。**
+**郭文贵先生：**生活中所有的人，你都把当下这一刻，你都不严肃对待，几乎是全中国人。我走到世界去，中国人和非洲人最相像。就非洲人老觉得叫Kill Time英文，叫消磨时光。他们唯一的快乐就是音乐，就是大家在村里面围着草房子，转个圈，哼啊，哼啊啊唱。咱们中国人，东北叫扭秧歌，南方人叫煲汤。然后再一个打麻将，再一个就男的女的蹲地上，扯那些无聊的闲篇。就是你觉得世上最啥，就是寥寥无事，当下就是等死，混日子，完全没有时间概念的人，就是非洲和咱们中国。
 
-**“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”。**
+而且所有中国人在生活中打交道，打麻将的人抽着烟。（仰着头，叼着烟）叫什么，叫几饼，几象，都这样。是吧，一打打几小时，打死，打心梗。全世界只有中国人打麻将能打那么长时间。你七嫂子最爱就是麻将。我回到家一看他们打麻将，永远是支持看看，我永远没学会过。他们问我意见，我到现在没弄懂，你们为什么打麻将。
 
-**“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。**
+反过来你就说人和人打交道，中国人生活中只要身边亲的人，近的人，几乎都没有尊重的。更不在乎穿什么衣服，没有礼的，更没有礼节。礼节两回事，礼和节。礼是我对你表现的尊重的态度。节是标准，就没标准的。
 
-魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一，在全省的COVID-19 病房中，未接种疫苗的人占新住院人数的 52% 和重症监护病房人数的 75%，尽管未接种疫苗的人仅占总人口的 19%。魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二，2021 年 12 月 28 日，的新闻发布会上说，“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”，“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”，“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
+打麻将的时候，约打10次以上，基本上不光腚，就行了，穿越少越好。几乎中国人打麻将把鞋都脱下来，光着脚。那个钱“pia、pia、 pia”，数着钱，是吧，就这。多亲，多近，打麻将都能打翻脸了。
 
-这次魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 的讲话，显然要比几天前，本月 22 日，魁北克省省长弗朗索瓦-莱戈François Legault 的讲话，态度上更加强硬，更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
 
-2021 年 12 月 22 日，魁北克省省长弗朗索瓦-莱戈François Legault只是要求未接种疫苗的人：“为了魁北克的利益，请留在家里”。
+编辑整理：喜马拉雅的肉夹馍；
 
-**未接种疫苗的人占总人口比例增加9%。**
+字幕文件制作：小满；
 
-更加令人不解的是这次，2021 年 12 月 29 日，报道的未接种疫苗的人占总人口的 19%，然而上次，2021 年 12 月 22 日，报道的未接种疫苗的人占总人口的 10%。相差七天之后，未接种疫苗的人占总人口比例增加9%。这是什么原因造成的呢？只有一个解释：总人口数减少了，导致未接种疫苗的人占总人口比例增加。总人口中因感染疾病死亡人数增加了吗？有点可能。但是，有一点可以肯定，随着人们不断地接种疫苗，未接种疫苗的人数将总是会随着时间的推移而减少，绝对不会增加。
+视频制作及上传：Cindy；
 
-**第3剂疫苗加强剂**
+技术支持：文肺猫
 
-此外，克里斯蒂安·杜贝 Christian Dubé 宣布，从1月4日起可以预约第3剂疫苗的接种，该疫苗可以针对Omicron变体病毒提供最大限度地保护。
+G-News发布：小满；
 
-1月21日起，任何年满18岁或以上的人都有资格预约第3剂疫苗的接种。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-魁北克省希望每月能为200万至300万人接种疫苗。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**日前的文章报道**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-日前，加拿大广播公司CBC 2021 年 12 月 22 日发表题为《魁北克省长向未接种疫苗的人发送信息》的文章报道，魁北克省省长弗朗索瓦-莱戈François Legault 告诉未接种疫苗的魁北克人，他们正在给医疗保健系统带来压力，并要求他们接种疫苗或待在家里。蒙特利尔日报2021 年 12 月 22 日（文森特·拉林 VINCENT）也发表题为《圣诞节是安全的，从12月26日开始的有限聚会》的文章报道，未接种疫苗的人只占人口的10%，但占住院人数的50%左右，魁北克省省长弗朗索瓦-莱戈François Legault清楚，明确，直截了当地，要求未接种疫苗的人：“为了魁北克的利益，请留在家里”。蒙特利尔日报2021 年 12 月 20 日（吉纳维芙·拉乔伊GENEVIÈVE LAJOIE与达芙妮·迪翁-维恩斯 Daphnée Dion-Viens 合作）发表题为《新限制：酒吧和学校今晚关闭》的文章报道，奥米克戎 Omicron  变种的迅速传播迫使魁北克下令酒吧，体育馆，剧院和学校在晚上5点必须关闭，同时卫生部长担心魁北克人对卫生措施和疫苗接种的支持度会下降。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**综合这几篇文章我们可以看出，魁北克政府更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们，并声称“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。**
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-参考资料：
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-1. 蒙特利尔日报，AGENCE QMI，2021 年 12 月 19 日星期日，Le Journal De Montreal，COVID-19: Québec suspend les activités de ses ministres， [https://www.journaldemontreal.com/2021/12/19/le-gouvernement-se-met-en-mode-gestion-de-la-covid-1](https://www.journaldemontreal.com/2021/12/19/le-gouvernement-se-met-en-mode-gestion-de-la-covid-1)
-2. 加拿大广播公司，CBC， 2021 年 12 月 22 日下午 7:45更新，CBC: Quebec’s premier sends a message to the unvaccinated， [https://www.cbc.ca/player/play/1986751043588](https://www.cbc.ca/player/play/1986751043588)
-3. 蒙特利尔日报，文森特·拉林 VINCENT LARIN， 2021 年 12 月 22 日晚上 8:42更新，Le Journal de Montreal， Noël est sauf, les rassemblements limités dès le 26 décembre，[https://www.journaldemontreal.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre](https://www.journaldemontreal.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
-4. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上 10:14，Journal de Québec，Dubé sert une mise en garde aux non-vaccinés， [https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-TVA新闻，多米尼克·莱利耶夫Dominique Lelièvre，2021年12月29日 06：30‎‎ ‎， Dubé sert une mise en garde aux non-vaccinés，[https://www.tvanouvelles.ca/2021/12/29/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.tvanouvelles.ca/2021/12/29/dube-sert-une-mise-en-garde-aux-non-vaccines)
-
-编辑/发布：LILY
-
-20211230
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

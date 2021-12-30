@@ -2,62 +2,60 @@
 ---
 
 
-## 达沃斯创始人的惊人计划：利用 COVID 让全球主义者控制世界
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1804988/)
+## 魁北克再次甩锅给未接种疫苗的人，些人占重症监护病房人数的 75%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1805059/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-15.jpg)世界经济论坛（图片来源：www.imsilkroad.com）
-长期读者都知道，我们中间有一小群亿万富翁全球主义者，他们认为他们赚取或窃取的巨额财富以某种方式赋予了他们决定地球上 99.99999% 的人应该如何生活的权力。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片872-edited.png)图片来源：网络
+**“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”。**
 
-几十年来，这一小部分人一直在世界经济论坛等会议上,以“气候变化”等虚假模板开会，在那里他们讨论最新的计划，以牺牲未受洗礼的群众为代价，将更多权力拱手让给他们自己。
+**“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”。**
 
-根据一份揭露该计划的令人震惊的新报告，世界经济论坛的创始人克劳斯·施瓦布 (Klaus Schwab) 处于[全球主义收购最新阴谋的中心](https://naturalnews.com/2021-04-14-world-economic-forum-global-cyber-pandemic-reset.html)，他正在利用 COVID-19 大流行作为载体。
+**“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。**
 
-根据美国 RAIR 基金会的说法，该计划是创建“COVID 独裁者”，他们将盗窃公民自由的基础建立在“保护”我们免受病毒侵害的需要上，这种病毒的致命影响，远不如过去第一次世界大战结束时爆发的西班牙流感等流行病（好像死的人还不够多）：
+魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一，在全省的COVID-19 病房中，未接种疫苗的人占新住院人数的 52% 和重症监护病房人数的 75%，尽管未接种疫苗的人仅占总人口的 19%。魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二，2021 年 12 月 28 日，的新闻发布会上说，“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”，“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”，“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
 
-德国经济学家、记者和作家恩斯特·沃尔夫 (Ernst Wolff) ，在德国新冠病毒委员会播客的一段视频中，透露了一些有关施瓦布“全球青年领袖”学校的事实，这些事实与了解大流行期间的世界事件有关。虽然沃尔夫主要以批评全球主义金融体系而闻名，但最近，他专注于揭示他所认为的世界各地正在制定的反冠状病毒措施背后的隐藏议程。
+这次魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 的讲话，显然要比几天前，本月 22 日，魁北克省省长弗朗索瓦-莱戈François Legault 的讲话，态度上更加强硬，更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。
 
-报告指出，该计划围绕着施瓦布于 1971 年 32 岁时在瑞士创建的世界经济论坛。“世界经济论坛，因每年一月在瑞士达沃斯举行的年度会议而为公众所知，会议旨在汇集来自世界各地的政治和商业领袖，讨论当今的问题。今天，**它是全球主义权力精英的世界上最重要的网络之一，由大约一千家跨国公司资助，”报告指出。**
+2021 年 12 月 22 日，魁北克省省长弗朗索瓦-莱戈François Legault只是要求未接种疫苗的人：“为了魁北克的利益，请留在家里”。
 
-虽然世界经济论坛最初只吸引经济学家，但近年来，它已经发展壮大，扩展到商业、娱乐和媒体领域的**超级精英**。
+**未接种疫苗的人占总人口比例增加9%。**
 
-“1992 年，施瓦布还建立了一个平行机构，即“明天的全球领导者学校”，该机构于 2004 年重新建立为“全球青年领导者”。学校的参加者必须申请入学，然后接受严格的选拔过程，”报告解释说 ，早期和应届毕业生有：
+更加令人不解的是这次，2021 年 12 月 29 日，报道的未接种疫苗的人占总人口的 19%，然而上次，2021 年 12 月 22 日，报道的未接种疫苗的人占总人口的 10%。相差七天之后，未接种疫苗的人占总人口比例增加9%。这是什么原因造成的呢？只有一个解释：总人口数减少了，导致未接种疫苗的人占总人口比例增加。总人口中因感染疾病死亡人数增加了吗？有点可能。但是，有一点可以肯定，随着人们不断地接种疫苗，未接种疫苗的人数将总是会随着时间的推移而减少，绝对不会增加。
 
-- 德国总理安格拉·默克尔（Angela Merkel）
-- 法国总统埃马纽埃尔·马克龙（Emmanuel Macron）
-- 以及更多应届毕业生加州州长加文·纽瑟姆（Gavin Newsom）
-- 和拜登政府交通部长皮特·布蒂吉格（Pete Buttigieg）
+**第3剂疫苗加强剂**
+
+此外，克里斯蒂安·杜贝 Christian Dubé 宣布，从1月4日起可以预约第3剂疫苗的接种，该疫苗可以针对Omicron变体病毒提供最大限度地保护。
+
+1月21日起，任何年满18岁或以上的人都有资格预约第3剂疫苗的接种。
+
+魁北克省希望每月能为200万至300万人接种疫苗。
+
+**日前的文章报道**
+
+日前，加拿大广播公司CBC 2021 年 12 月 22 日发表题为《魁北克省长向未接种疫苗的人发送信息》的文章报道，魁北克省省长弗朗索瓦-莱戈François Legault 告诉未接种疫苗的魁北克人，他们正在给医疗保健系统带来压力，并要求他们接种疫苗或待在家里。蒙特利尔日报2021 年 12 月 22 日（文森特·拉林 VINCENT）也发表题为《圣诞节是安全的，从12月26日开始的有限聚会》的文章报道，未接种疫苗的人只占人口的10%，但占住院人数的50%左右，魁北克省省长弗朗索瓦-莱戈François Legault清楚，明确，直截了当地，要求未接种疫苗的人：“为了魁北克的利益，请留在家里”。蒙特利尔日报2021 年 12 月 20 日（吉纳维芙·拉乔伊GENEVIÈVE LAJOIE与达芙妮·迪翁-维恩斯 Daphnée Dion-Viens 合作）发表题为《新限制：酒吧和学校今晚关闭》的文章报道，奥米克戎 Omicron  变种的迅速传播迫使魁北克下令酒吧，体育馆，剧院和学校在晚上5点必须关闭，同时卫生部长担心魁北克人对卫生措施和疫苗接种的支持度会下降。
+
+**综合这几篇文章我们可以看出，魁北克政府更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们，并声称“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。**
+
+**文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。**
+
+参考资料：
+
+1. 蒙特利尔日报，AGENCE QMI，2021 年 12 月 19 日星期日，Le Journal De Montreal，COVID-19: Québec suspend les activités de ses ministres， [https://www.journaldemontreal.com/2021/12/19/le-gouvernement-se-met-en-mode-gestion-de-la-covid-1](https://www.journaldemontreal.com/2021/12/19/le-gouvernement-se-met-en-mode-gestion-de-la-covid-1)
+2. 加拿大广播公司，CBC， 2021 年 12 月 22 日下午 7:45更新，CBC: Quebec’s premier sends a message to the unvaccinated， [https://www.cbc.ca/player/play/1986751043588](https://www.cbc.ca/player/play/1986751043588)
+3. 蒙特利尔日报，文森特·拉林 VINCENT LARIN， 2021 年 12 月 22 日晚上 8:42更新，Le Journal de Montreal， Noël est sauf, les rassemblements limités dès le 26 décembre，[https://www.journaldemontreal.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre](https://www.journaldemontreal.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
+4. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上 10:14，Journal de Québec，Dubé sert une mise en garde aux non-vaccinés， [https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
 
 
-报告指出，其他校友包括：亿万富翁杰夫·贝索斯(Jeff Bezos)和比尔·盖茨(Bill Gates)。
+TVA新闻，多米尼克·莱利耶夫Dominique Lelièvre，2021年12月29日 06：30‎‎ ‎， Dubé sert une mise en garde aux non-vaccinés，[https://www.tvanouvelles.ca/2021/12/29/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.tvanouvelles.ca/2021/12/29/dube-sert-une-mise-en-garde-aux-non-vaccines)
 
-“鉴于对现在担任国家领导人的学校毕业生实施的反冠状病毒措施越来越不满，沃尔夫认为，这些人被选中，是因为他们愿意做任何被告知的事情，而且，**他们就是被设置为失败的**，这样可以利用随后的反弹，**来证明建立新的全球政府形式的合理性**，”报告说。
+编辑/发布：LILY
 
-“的确，沃尔夫指出，**具有独特个性和强烈原创观点的政治家**，已经变得稀有，过去 30 年国家领导人的显着特征是，**他们的温顺和坚持自上而下的严格全球主义路线**，” 报告补充说。
+20211230
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-这将有助于解释，为什么所有上过全球青年领袖学校的左翼分子，从不偏离公共“解决方案”来解决同样的问题和事件——就像北极苔原的旅鼠。他们是通过同一个过程手工挑选出来的，该过程将他们确定为全球主义事业（认可）的男男女女。这让我们回到了 COVID 大流行，**以及为什么所有这些人都选择了相同的措施来“减缓传播”**（没有一个措施有效，但所有这些措施都给了他们额外的权力）。
 
-“为什么来自世界各地的 190 多个政府，最终以几乎完全相同的方式应对 COVID-19 大流行：封锁、口罩强制要求和疫苗接种卡，现在无处不在？” 一位人士在回应该报告时指出。
 
-现在我们知道：**这是长达数十年的威权主义全球主义议程的一部分，而**** COVID-19 ****是最新的工具。**
-
-更多相关信息请点击Tyranny.news.
-
-**文章信息来源：**
-
-[RairFoundation.com](https://rairfoundation.com/exposed-klaus-schwabs-school-for-covid-dictators-plan-for-great-reset-videos/)
-
-[NaturalNews.com](https://naturalnews.com/2021-04-14-world-economic-forum-global-cyber-pandemic-reset.html)
-
-[newstarget][Stunning plan devised by Klaus Schwab, founder of World Economic Forum, to hand globalists control of the world using COVID pandemic](https://www.newstarget.com/2021-12-29-klaus-schwab-to-hand-globalists-control-of-the-world-using-covid-pandemic.html)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 
