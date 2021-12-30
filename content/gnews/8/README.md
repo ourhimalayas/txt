@@ -2,18 +2,48 @@
 ---
 
 
-## 【粤语配音】2021年12月29日：秦刚的三个问题等同于向美国宣战
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1805840/)
+## 中共释放新病毒？ “德尔米康(Delmicron)”变种悄然袭来！
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1805997/)
 
-紐約香草山-香港部
+温哥华扬帆农场   路仁
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-30-下午1.29.05.png)
+图片来源： https://www.nih.gov
 
-两件事儿 ，中国驻美国大使，美国驻中国大使又是代办，又是撤回 ，然后派来了秦刚 战狼外交变成战羊外交，美国第一次给中国政府提出了条件，说秦刚这个大使啊说的话是非常有问题的，说如果他这样下去的话，中美之间关系的改善是可能性没有了，其中一条人家来问他说，听说你们搞的战狼外交派你来了 ，你要变成战羊外交，你怎么看？
+德尔塔（Delta ）变种在 今年4 月中旬至 6 月中旬占据主导地位，是造成全球数百万人丧生的第二波冠状病毒的主要原因。这种病毒株会导致严重的症状，甚至住院或者死亡的风险。此外，感染后的菌株还会导致长期症状，如脑雾、肌肉酸痛和脱发。
 
-秦刚原话：我们不是战狼外交 ，我们是与狼共舞啊，跟你美国人不跟你玩到底这种挑战，然后台湾问题怎么回事，台湾问题秦刚说得精彩啊，所谓台湾问题全是美国人利用，台湾的台独分子挑起的所谓的台湾的问题 ，台湾的问题根源在你美国，是你美国的极少数人为了某些政客，给你们美国的所谓的武器装备公司拉政治、拉钱、利益勾兑 点燃了台海的问题和冲突，利用台独分子制造了麻烦，中国特别是共产党、大陆人民是受害者 ，所以台湾根源在美国，美国要只有尊重中美联合公报，有人说你这个新疆问题，你作为一个大使来了，你要有一个新的态度 ，西方很关注。
+而最初发现于南部非洲的omicron 变种，借着其极快的传播速度，以排山倒海之势，瞬间超越曾经横行几个月的“德尔塔”变种，称为多数国家感染中共病毒（COVID-19）最主要的的变种。
 
-秦刚讲得更精彩了：中国的新疆问题，就是美国对待华人和黑人的问题 ，就是你美国怎么对待华人的，怎么对待黑人的过去，但是扮演的角色不同的是，汉人是被新疆人给种族大屠杀的，而不是汉人屠杀了新疆人，他说你们知道吗，在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人多少是种族大屠杀了汉人 ，所有中国汉人过去的这些问题，绝大部分都来自新疆，我们就像你美国的黑人一样，曾经比奴隶还惨呢，但是现在我们对待新疆人是多好呢，我们对待他像亲兄弟姐妹。
+几个礼拜以来，“奥米克戎“变种病毒至少目前呈现给人们的是比较轻的症状，较低的住院率，以及较低的重症和死亡率。所以有专家乐观的分析认为“奥米克戎”（Omicron）变种病毒可以帮助实现群体免疫，从而人类有希望在未来的一年，即2022年结束肆虐人类近两年多的疫情。
 
-秦刚更夸张地给美国提出了警告 ：如果美国允许美国极右组织 ，例如班农和我们中国人出来的一小撮犯罪分子 ，现在已经形成了这种完全不可忽视的危险的 ，影响中美关系的这一小撮人这种国际政治气候 ，中美两国必有一战，就是班农和郭文贵，新中国联邦一小撮及美国极右分子，将引发中美大战，美国人听到这些以后，美国人什么样的感觉啊 ，这是完全宣战。
+然而，事情并非按照人们良好的愿望去发展。就在最近有报导称，一种新型的超级菌株—由“德尔塔”（Delta）变种和“奥米克戎”（Omicron）变种合并而来，人们给它起名叫“德尔米康（Delmicron）”变种病毒。
+
+顾名思义，这个病毒变种的命名，是兼有“德尔塔”和“奥米克戎”双重变异的结果。普遍认为，感染了“德尔塔”变种病毒的人，不大轻易再感染“奥米克戎”变种病毒。但这种情况的发生确实出现了。
+
+根据[《财经快讯》（Financial Express）](https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/)报导， Moderna 首席医疗官 保罗伯顿（Paul Burton ）博士就表示过，如果 Omicron 和 Delta 变体同时感染某人，就会产生新的超级变体。
+
+伯顿博士本月早些时候对《每日邮报》说，数据显示，早先在大流行期间从南非发表的论文表明，人们，尤其是免疫功能低下的人，可以同时感染这两种病毒 。
+
+“他们有可能交换基因并引发危险的变异。”伯顿博士告诉英国议会科学技术委员会。
+
+印度马哈拉施特拉邦 COVID-19 工作组成员 沙山克约希（Shashank Joshi ）博士声称，欧洲和美国中共毒病（COVID-19）例激增的罪魁祸首是 Delta 和 Omicron 变异的组合，即“德尔米康”（Delmicron），他声称这种变异传播速度更快.
+
+据 约希博士称，组合的“德尔米康“（Delmicron）”菌株“导致了小型病例海啸”。他补充说，欧洲和北美现在拥有双 “德尔米康”（Delmicron） 变体。
+
+根据印度[《娱乐时刻》（Etime）](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)描述，由于“ 德尔米康”Delmicron 是由中共病毒（COVID-19）的 Delta 和 Omicron 版本合并而成的，因此它被认为具有高度传染性，并且可能导致严重的症状。需要更多的研究来详细了解其性质。就症状而言，作为 Delta 和 Omicron 的组合，“德尔米康”（Delmicron） 感染往往表现出与其父变体或多或少相同的症状。
+
+评： 郭文贵先生在12月24日大直播中爆料：“国安委又特别成立了【关于新型冠状病毒控制小组】，这次可能真地要放最毒最毒的毒了。” 我们不仅联想到，这个新出现的合体病毒，即具有Delta变种病毒的高致命性，又兼有Omicron变种病毒的强传染性。莫非中共已经在不知不觉中实施了其新的放毒计划？我们不得而知。但可以想象的到，如果接下来的中共病毒（COVID-19）兼具高致命性和强传染性，人类将又一次面临一场大劫难！
+
+所谓“庆父不死，鲁难未已”，中共不灭，疫情难消！只有除去中共这个人类的毒瘤，世界才有可能有和平和安全的未来。
+
+参考链接：
+
+[https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/](https://www.financialexpress.com/lifestyle/health/what-exactly-is-delmicron-scientists-warn-of-super-strain-heres-all-about-its-origin-mutation-etc/2389547/)
+
+[https://www.dailysabah.com/life/science/covid-19-delta-omicron-merges-to-create-delmicron-claim](https://www.dailysabah.com/life/science/covid-19-delta-omicron-merges-to-create-delmicron-claim)
+
+[https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)
+
+编审：月亮之上  发布：Winner为自由而战（文祥）
 
  
 

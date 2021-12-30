@@ -2,50 +2,22 @@
 ---
 
 
-## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
+## 中共的虚假邪恶的造假对比视频
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1805803/)
 
-作者：纽约香草山翻译部 – defiance
+她如果不是被共产党这样的洗脑，她不会做出这种造假，明显是媒体犯罪，专业犯罪的事情。
 
+**【郭先生直播摘要】**** ****2021.12.22 ****中共的虚假邪恶的造假对比视频**
 
+**郭先生：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+像伊莎贝拉， 这样的年轻孩子， 她如果不是被共产党这样的洗脑， 她不会做出这种造假， 明显是媒体犯罪， 专业犯罪的事情， 她不会做出来。她不知道会给这人造成一生中的影响， 还给别人带上一个邪教的帽子有多麽可怕，瞪眼撒谎。她对这个小斯基，Nicole， 对青藤所有人带来的可能生命的危险。
 
+她没有意识到就是因为她傲慢， 包括她骨子里的种族歧视， 我是一半一半英国人， 我比你高三级， 甚至是高八级。 我见太多这种故事了， 这种无知这种愚昧， 没有法制观念，还要打着一个所谓民主旗帜的人，那真的很可怕的。所以这种丑恶在世界上的蔓延， 对我们每个人都是威胁。
 
+最后兄弟姐妹们，现在你们一定要看完整版的七哥被采访直播，如果七哥当时不是意识到他是来黑我们的。我们就不会要求直播， 千万要看七哥YouTube上和GTV盖特上播出的完整版Vice造假对比视频。你会深深的爱上七哥，你会看到七哥的智慧，还有七哥的勇气。
 
-据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
-
-在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
-小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
-
-参考链接：
-1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
-2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：Polaris | 校对：烟波浩淼 | 视频制作+字幕： CG. | 编辑&发布：断播
 
  
 

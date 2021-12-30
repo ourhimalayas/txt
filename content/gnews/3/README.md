@@ -2,31 +2,29 @@
 ---
 
 
-## WHO：182天内让10亿人打Covid-19疫苗（550万人/天）
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1805936/)
+## 英国科学家在重症COVID病毒患者中测试高剂量地塞米松
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1806046/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-01-21T073558Z_1718472463_RC27CL917U7G_RTRMADP_3_HEALTH-CORONAVIRUS-BRITAIN-HOSPITAL-edited.jpg)图片来源：网络
+来自AL JAZEERA NEWS星期四12月30日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1895.png)
+英国科学家将研究与标准低剂量相比，高剂量的廉价且广泛使用的称为地塞米松的类固醇是否对严重的冠状病毒患者更有效。
 
-世界卫生组织总干事谭德赛·阿达诺姆·格布雷耶苏斯（World Health Organization Director-General Tedros Adhanom Ghebreyesus）周二（28日）表示，WHO坚持其目标，即在6月底前（有182天）为全球70%（再打10亿）的人接种中共病毒（Covid-19）疫苗，这一目标将需要在未来六个月内每天为大约550万人接种（中共病毒）mRNA疫苗。
+去年，进行名为 RECOVERY 的大型试验的同一组科学家表明，地塞米松能够挽救 COVID-19 患者的生命，这是冠状病毒大流行的“重大突破”。
 
-“我们还有185天的时间，到2022年7月初实现70%的目标，”谭德赛在一次媒体简报会上补充说：“当我们说每个国家都达到70%时—如果所有高危人群、老年人、有合并症的人，以及卫生工作者和其他人都包括在这70%中，那么我们可以看到住院和死亡人数降到最低，”他说，这一动态”可以使我们进入大流行病急性阶段的末期。”
+他们发现，每天服用 6 毫克地塞米松，用于减轻关节炎等疾病的炎症，可使医院中病情最严重的 COVID-19 患者的死亡率降低约三分之一。
 
-世卫组织负责人（雄心勃勃）的目标要求在未来六个月为10亿多人再接种中共病毒疫苗，相当于每天550万人。根据牛津大学汇编的数据，迄今共有45.3亿人打了部分疫苗（未完全接种），即占世界人口的59%。
+“鉴于 Omicron 变体的传播速度如此之快，我们可以预期在未来一段时间内会看到患有严重 COVID-19 的患者入院，”牛津大学教授彼得霍比说，他是该试验的共同负责人。
 
-世界卫生组织总干事谭德赛（Tedros）没有说明WHO对”接种”的定义，是否会发展到需要辉瑞公司和Moderna公司开发的第二针或第三针加强剂。根据卫生数据，截至12月29日，73%的美国人已经部分接种了中共病毒疫苗；到目前为止只有62%的公民表示，会出现在第二剂疫苗的接种点。
+原文链接: [https://www.aljazeera.com/news/2021/12/30/us-hits-record-levels-of-new-covid-19-cases-covid-live-news](https://www.aljazeera.com/news/2021/12/30/us-hits-record-levels-of-new-covid-19-cases-covid-live-news)
 
-Covid-19的Omicron变体病例在本月将病毒（单日感染）推向了一个新的记录，在第一批中共病毒疫苗公布（流向市场）一年多后，（合计）单日的感染人数超过了26.5万。
+编辑/发布：LILY
 
-谭德赛补充说：“我高度关注Omicron，它的传播性更强，与Delta同时流通，导致了海啸式的感染病例暴发。”这正在并将继续给疲惫不堪的卫生工作者和濒临崩溃的卫生系统带来巨大的压力”。
+20211230
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-新闻来源：[mediaite.com] [WHO Chief Sets Goal of Vaccinating More than 1 Billion People —5.5 Million Daily — by July](https://www.mediaite.com/news/who-chief-sets-goal-of-vaccinating-more-than-1-billion-people-5-5-million-daily-by-july/) | 发布时间：2021年12月29日
 
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

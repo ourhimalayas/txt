@@ -2,73 +2,38 @@
 ---
 
 
-## 南非有望成为最早一批摆脱中共病毒威胁的国度
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1805247/)
+## 山姆会员店下架新疆产品 中共官媒借机煽动情绪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1805533/)
 
-作者：香草山健身部 – 正道新闻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年11月，南非发现最新CCP变种病毒Omicron。在随后的1个多月内，随着病毒发展，并没有出现Delta类似的情况——高死亡率。12月中旬约翰内斯堡IFK学院Pieter Streicher博士发文表示，虽然Omicron比Delta病毒有较强的传染率，但是得病致死率，不增反降。这一观点，也被欧盟军队保护的中共病毒研发专家所认同。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-18.png)
+[图片来源](https://www.cbndata.com/information/141289)
 
-12月23日，南非政府开始放宽了中共病毒自我隔离的要求：
-1. 与确诊的 Covid 病例接触过的人如果没有表现出任何症状，则不再需要隔离；
-2. 他们只需要监测五到七天的健康状况，并避免大型聚会；
-3. 将停止在家外设施中的所有隔离，同时将取消接触者追踪工作，除非在特定情况下（例如跟踪集群爆发）。
+自美国“维吾尔强迫劳动预防法案”12月23日被总统拜登正式签署后，美国企业被禁止从新疆进口一切产品，除非企业能“自证清白”，证明供应链中未出现所谓“强迫劳动”。这将直接影响包括山姆在内的美国公司的产品采购。
 
-该国的卫生部副部长 Sibongiseni Dhlomo 告诉广播公司 SABC，此举“基于我们科学家的建议，病毒并不再真正产生影响”。
+近日，山姆会员店开始下架新疆产品，由此又触动了中共的痛点，央广网、每日经济新闻、环球网等部分中共官媒开始借此操弄民众情绪。
 
-南非整体患病者在进入到峰值之后，开始快速下降。该国国家传染病研究所的 Harry Moultrie 对这些变化表示欢迎。
+12月29日，央广网发表评论文章《央广网评：山姆下架新疆产品引发退卡潮 “吃饭砸锅”没有市场》称，依靠着中国市场，挣着广大中国消费者的钱，却在背地里采取龌龊手段抵制这个国家和人民生产的产品，这样“吃饭砸锅”的行为，既是对正常市场规律的违背，也是对消费者合法权益和情感的伤害。
 
-图一：截止到12月22日，非洲中共病毒新增情况表
+12月30日，“每日经济新闻”跟进发布题为《山姆会员店疑似下架新疆产品，多地会员排队退卡？网友：早上8点多到店，前面已排50人！》的报道称，自12月25日起，江苏、福建等地出现了山姆会员退卡潮。不少网友晒出了退卡、不再续卡的相关照片，“我可以没有山姆，中国不能没有新疆”，“没有什么是不可替代的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1881.png)
+12月30日，“环球网”跟进发布题为《山姆被曝“停止上架新疆产品”，中国民众：外企要来中国赚钱“就要遵守中国规矩”！》的报道，并借用一个受访者之口称，“他们拒绝新疆，我就拒绝他。本着爱国的情怀，以后我去都不会去了。即使山姆店道歉或者重新上架新疆产品，我也不去”。外国企业要来中国赚钱“就要老老实实地遵守中国的规矩”。
 
-12月29号，南非政府，卫生部迫于舆论压力虽然恢复了之前的隔离要求，但是很显然，南非的疫情在这7天的放松管制下并没有明显的波动。
+值得注意的是，与此同时，仍有个别中共官媒比较客观的反映了央广网、每日经济新闻、环球网等官媒所宣称的山姆会员店退卡潮的实际情况。
 
-同日，根据南非豪登省的最新数据，Pieter Streicher在研究之后更新了自己的观点，Omicron导致的死亡人数比Delta低25倍，死亡感染率从估计的5.3‰下调至3.6‰。正常年份下各国流感致死率并不会低于这个数值。
+12月29日，也即中共央广网发布评论文章的当日，“界面新闻”发表题为《退卡风波下实探山姆会员店：难觅新疆商品，退卡者未明显增多》的报道称，记者走访了山姆北京石景山店，该店是山姆在中国开设的第二家店，也是山姆系统内销售额全球排名第二的门店。在山姆北京石景山店入口处的会籍办理处和收银台附近的会员服务柜台前，记者并未看到前来办理退卡业务的消费者。采访会籍办理处的一位工作人员得知，也并未看到最近有退卡突然增多的现象。
 
-图二： 南非豪登省患病，死亡病例表
+对比中共官媒的相关报道，不难看出，中共没有能力直接左右和对抗美国“维吾尔强迫劳动预防法案”，又开始使用下作手段煽动民意抵制在中共国的美国企业。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1882.png)
+信息来源：
 
-面对这一科学数据，英国首席科学家和医疗官员帕特里克·瓦兰斯爵士和克里斯·惠蒂对此虽然表示认同Omicron 比 Delta 温和得多，这一事实。但是，他们却在公开的场合拒绝承认来自南非的数据。
+[退卡风波下实探山姆会员店：难觅新疆商品，退卡者未明显增多](https://finance.sina.com.cn/tech/2021-12-29/doc-ikyamrmz1978995.shtml)
 
-**为什么在南非会有如此乐观的局面呢？**
-
-12月30日，克里斯皮安·巴尔默 (Crispian Balmer) 和亚历山德拉·阿尔珀 (Alexandra Alper)发文表示，南非研究人员发现，人体的T细胞在识别和攻击Omicron病毒上非常有效，可以预防大多数病毒感染发展为危重症状。
-
-但是令人遗憾的是科学实验已经证实，**无论接种外哪一种疫苗都会令身体的T细胞数量都会明显变少。这样导致的结果便是，疫苗不仅不能有效的阻止病毒的继续传播，而且会让身体更容易被感染，直至人体死亡。**
-
-目前，南非较低的疫苗接种率，不太重要的地缘政治，以及**长期使用羟氯喹、青蒿素的习惯**，使得南非既没有成为中共国放毒的首选之地，也没有成为疫苗祸害之地，加之南非总统坚持拒绝偏激的防疫措施，让南非成为了全球疫苗危机下，最为幸运的国度。
-
-南非作为最为重要的英联邦国家，他的情况逐渐受到了其他国家的关注与研究。就在短文撰写前的10个小时，BBC开始制作了一个短视频反思疫苗带给人类的问题。这个与之前BBC极力鼓吹“疫苗公平”的态度发生了松动。
-
-此时，我门不仅可以理解，为什么英国的官员拒绝承认南非数据的深层原因：他们害怕否定疫苗之后将会带来的名誉与利益的损失；同时，我们有理由相信郭文贵先生所言，2022年5月前后，全世界将会停掉疫苗推广。
-
-**参考文献**
-
-1. [南非 – 一个被Omicron污名化的国家](https://gnews.org/zh-hans/1748223/)
-2. [\[Omicron in South Africa: even milder than expected\](https://unherd.com/thepost/omicron-in-south-africa-even-milder-than-expected/)](https://unherd.com/thepost/omicron-in-south-africa-even-milder-than-expected/)
-3. [South Africa eases self-isolation rules as Omicron fades in the province where it first exploded](https://www.dailymail.co.uk/news/article-10344723/South-Africa-eases-self-isolation-rules-Omicron-fades-province-exploded.html)
-4. [World nations try to balance Omicron restrictions while keeping economies open](https://www.swissinfo.ch/eng/reuters/world-nations-try-to-balance-omicron-restrictions-while-keeping-economies-open/47225060)
-5. [What went wrong with vaccinating the world?](https://www.bbc.com/news/av/health-59755743)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

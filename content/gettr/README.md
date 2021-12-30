@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 6:56 PM (UTC)`
+
+12/29/2021 Miles Guo: The China-US relationship has entered into a phase of vulnerability. Qin Gang has been finger-pointing, calling the US as the root cause of issues in Taiwan. He also equalized the genocide in Xinjiang to the previous discrimination against ethnic Chinese and African American in the US. He even claimed that it was the Han Chinese slaughtered by the Uyghurs, but not vice versa.<br/><br/>12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国，将新疆种族屠杀等同于过去美国白人对待华人和黑人，并称汉人被新疆人屠杀<br/>
+![img](https://media.gettr.com/group24/getter/2021/12/30/18/17bfa707-1e9e-ad86-e121-8bfb5b3fd84e/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gmusic 12/30/2021 2:40 AM (UTC)`
@@ -169,13 +176,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12月30号：谢谢喜安迪美妙的音乐，如果旁边放一盆羊腿就好了😻😻😻😻😻😻会更大的引起共匪……伪类的注意‼️
 ![img](https://media.gettr.com/group7/getter/2021/12/30/13/ac03beb7-fbd3-ccc0-65b4-2a11298f94ad/out.jpg)
-
----
-
-`@miles 12/30/2021 6:46 AM (UTC)`
-
-12/29/2021 Miles Guo: Before being arrested, Liu Yazhou met with Zeng Qinghong and Wang Qishan, and both of them spoke for him. But why did Wang Qishan, who is also a son-in-law of a former senior cadre of the CCP just like Liu Yazhou, vow to defend him rather than Dong Hong, Chen Feng, Ren Zhiqiang, and Kang Dian?<br/><br/>12/29/2021 文贵直播：刘亚洲被抓前见了曾庆红和王岐山，他们都替刘亚洲说话，而同为中共元老女婿的王岐山为何誓死力保刘亚洲而不是董宏、陈峰、任志强和康典呢？<br/>
-![img](https://media.gettr.com/group4/getter/2021/12/30/06/ef08b342-43a5-85dc-baef-7218e94e7d92/out.jpg)
 
 ---
 
