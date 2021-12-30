@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/30/2021 5:34 PM (UTC)`
+
+12月30日：祝：活菩萨……人类的大救星……真正的修地敬天者．屠呦呦91岁生日快乐🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group44/getter/2021/12/30/17/f5e2d7a5-36aa-0553-2d13-64dd5c2b7e85/3b52086d078f1848efb644bd47771955.jpg)
+
+---
+
 `@miles 12/30/2021 4:51 PM (UTC)`
 
 12/29/2021 Miles Guo: Although Putin accepted the $100 billion from the CCP and promised Xi to take his 4 buddies to attend the Winter Olympics, he is likely to break his promise, and that will be a huge blow to Xi!<br/><br/>12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击！<br/>
@@ -150,13 +157,6 @@ Bolt From The Blue: Nearly a MILLION Americans Leave Dem States to the Safer, Le
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview With Miles Guo — Highlight (3) :<br/>☘️ We will never forget the June 4th Tiananmen Square Movement. This was China trying to get its democracy, freedom, and free religions. <br/>☘️ We are different from the CCP. The CCP is just a few people who are evil. They created the Hong Kong’s trouble, the genocide in Xinjiang and Tibet. They created the CCP Virus to kill people.<br/>☘️ We put all the people who’d like China to have democracy and freedom together against the CCP. That is why we created the New Federal State of China.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段三：<br/>💦 我们永远不会忘记89六四天安门广场的运动，这是中国试图获得民主、自由和宗教自由的运动。<br/>💦 我们与中共不同，中共只是少数邪恶的盗国贼家族。他们制造香港的问题，新疆的种族灭绝，屠杀了西藏人民，制造了中共病毒来杀人。<br/>💦 我们把所有希望中国拥有民主和自由的人联合起来反对中共，这就是为什么我们成立新中国联邦的原因。
 ![img](https://media.gettr.com/group13/origin/2021/12/28/20/3d1efc45-9cab-a458-81ca-8afb768546e3/out.jpg)
-
----
-
-`@miles 12/28/2021 8:23 PM (UTC)`
-
-#HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (2) :<br/>☘️ Miles is the first person to talk about the Xinjiang genocide. <br/>☘️ But the rogue media never talked about it. Why? That’s because they just like to keep their dignity and their power and they are selfish.<br/><br/>#HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段二 ：<br/>💦 郭先生是第一个在大众面前谈论新疆种族大屠杀的人。<br/>💦 但是流氓媒体从来没有谈论此事。为什么？那是因为他们只想维护他们媒体的尊严和权力，他们非常自私。
-![img](https://media.gettr.com/group37/origin/2021/12/28/20/8de34e9d-3483-c9cc-8df4-75a8ebd391eb/out.jpg)
 
 ---
 

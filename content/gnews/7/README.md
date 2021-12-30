@@ -2,20 +2,18 @@
 ---
 
 
-## 西安沦为去年武汉 民众生活物资采购无门
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805633/)
+## 辉瑞公司与中共阿里巴巴早有合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805658/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，据日本媒体报道称，中共国内目前的防疫现状一片混乱，中共政府不仅要求外来的航班和旅客一遍又一遍地消毒，更是改变之前在西安实施的防疫策略，让西安沉底沦为去年的武汉。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-39.jpg)
-报道提及，自西安疫情失控后，中共政府立即采取了封城措施，但该政策原本允许每个家庭每两天可派一名代表外出采购生活物资，但这项措施在上周末被突然撤回，这也导致西安市民的食物极度短缺。为此，许多市民在社交平台上质疑政府如何解决居民的日常生活物资问题，很多人也发出冰箱里仅剩的水果和调味料的照片请求外界援助。
+12月29日，据美国媒体消息显示，自2018年起，辉瑞公司就一直与中共支付平台支付宝合作。而从中共病毒爆发以来，支付宝则长期协助中共政府在中共国内推行“健康码”政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-27.jpg)
+报道提到，辉瑞公司曾在其官方推特上多次对中共政府表示支持，甚至为与中共政府的合作表示自豪。据悉，辉瑞与中共政府的合作涉及疾病和疫苗接种的相关工作，而辉瑞公司也通过与支付宝的合作实现在中共国内的移动支付功能。
 
-此外，中共政府为了在当地召集核酸检测志愿者，甚至以每人每天可以领取一包泡面和一根火腿肠作为交换条件。
+但资料显示，支付宝是与中共有密切关联的阿里巴巴集团旗下的一个分支平台。而阿里巴巴作为帮助中共政府及其军队进行科研、生产、武器和设备维修等工作的大型企业，美国国务院此前已经将其标记为中共政府建立社会监视和控制机制的“工具”。
 
-分析人士称，如此低廉的物品而今已经成为中共政府口中“非常诱人的奖励”，这或可表明西安已出现了生活物资供给严重不足的困境。
-
-参考链接:[北京五輪1カ月前に感染急増　1300万人を“ロックダウン”警戒高まる中国(2021年12月29日)](https://www.youtube.com/watch?v=NYCYBp5gfco)
+参考链接：[Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 

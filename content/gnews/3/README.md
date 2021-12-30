@@ -2,8 +2,8 @@
 ---
 
 
-## mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805679/)
+## 小罗伯特·肯尼迪解释邪恶势力为何给孩子打新冠毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805680/)
 
 作者：纽约香草山翻译部 – defiance
 
@@ -13,19 +13,20 @@
 
 
 
-据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-2.jpg)
-长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
+据外媒12月28日的报道，小罗伯特·肯尼迪在最近的一次采访中，揭示了大药厂和福奇坚持为孩子打中共病毒疫苗的背后原因。
 
-他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
+在美国，责任保险是一种保险政策，它为企业和/或个人提供保护，使其免于承担向公众提供商品和服务所带来的许多固有风险。如果一个企业或个人没有事先购买责任保险，他们可能要对各种事件负责，如人身伤害、渎职和过失等。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpg)
+小罗伯特·肯尼迪说，大药厂和福奇博士他们永远不会在没有责任保险的情况下推销他们的疫苗，而根据美国的《紧急法案》和《护理法案》，推荐给儿童使用的疫苗都有责任保险。这就是他们向儿童强推疫苗的最根本原因。他们知道这将死伤巨量的孩子，但他们需要这样做，来获得他们需要的责任保险。
 
 参考链接：
-1. [mRNA Vaccines Can Keep Creating Spike Proteins Forver By Permanently Altering Kids DNA Warns Doctor](https://greatgameindia.com/vaccine-permanently-alter-kids-dna/)
-2. [一位因给CCP肺炎病患使用伊维菌素而被开除的加拿大医生警告说，mRNA新冠毒疫苗可以通过永久地改变儿童的DNA，进而而永远产生尖峰蛋白。](https://gettr.com/post/pkq1bw4157)
+1. [Robert F Kennedy, Jr. Explains Why They’re Going After the Kids — And It’s Not What You Think (VIDEO)](https://www.thegatewaypundit.com/2021/12/robert-f-kennedy-jr-explains-going-kids-not-think-video/)
+2. [WHAT IS LIABILITY PROTECTION?](https://www.moranfinancialsolutions.com/what-liability-protection/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编/编辑：童谣
+总编：童谣
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
