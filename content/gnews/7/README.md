@@ -2,15 +2,28 @@
 ---
 
 
-## 为了能够举办冬奥 中共出卖中国人的利益 挥霍中国人的血汗钱
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1809008/)
+## GTV新聞訪談簡報|2021年12月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1809019/)
 
-[中共](//hashtag/%2523中共)以一国之力，出卖中国人的利益，挥霍中国人的血汗钱。为了能够举办[冬奥](//hashtag/%2523冬奥)。[共产党](//hashtag/%2523共产党)答应以每架7000万–1亿美元的价格，购买126架[空客飞机](//hashtag/%2523空客飞机)。为了让一个非洲小国来参加[北京冬奥](//hashtag/%2523北京冬奥)，竟答应免除其18亿美元的债务，还附赠2亿现金！每年[中共国实际对外捐款](//hashtag/%2523中共国实际对外捐款)高达12万亿人民币，1.5万亿美金。这等于一整个广东省一年的GDP，中共国10%GDP。不仅如此，共产党还把中国的学生和女性，送与非洲留学生享乐。这是中国人的奇耻大辱，也是这个民族的悲哀！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
-视频来源: 2021年12月29日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+作者：香草山翻譯部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-fan-23.png)
+文章僅代表作者本人觀點，與Gnews無關
+
+視頻參看： [2021.12.31早GTV新聞訪談](https://gtv.org/video/id=61cf0579ecc0b216cbb2a870)
+
+編輯： Lakers
+校對： Lakers
+發稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
+
+**更多資訊，更多關注**
+[紐約香草山農場GTV-香草山之聲](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[紐約香草山農場GTV-MOS TALK 香草山訪談](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[紐約香草山農場Gettr](https://www.gettr.com/user/himalaya_mos)
+[紐約香草山農場 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

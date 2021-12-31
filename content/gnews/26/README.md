@@ -2,25 +2,34 @@
 ---
 
 
-## 布林肯、蔡英文声援《立场新闻》 谴责中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808770/)
+## 西安出血热疑为某国产三针剂疫苗后遗症
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808803/)
 
-作者：纽约香草山-侠肝义胆，东京樱花团—在远方
+作者：纽约香草山教育部—Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日，据美国媒体消息显示，针对香港《立场新闻》高层29日清早被港共政府非法拘捕一事，美国国务卿布林肯呼吁中共和香港当局停止针对香港自由和独立媒体的打压，并立即释放那些被不公正拘留和指控的记者与媒体高管。同时，布林肯表示，“中共和香港地方当局压制独立媒体的行为损害了香港的信誉和生存能力。”
+12月29日，郭文贵先生在最新一期的直播节目中爆料，西安近期爆发的出血热疫情实为当地市民接种了某国产高剂量定制疫苗的后遗症。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-30.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-21.jpeg)
 
-同一时刻，台湾媒体也于当天报道称，台湾总统蔡英文在当晚发表讲话，谴责中共背信弃义、撕毁一国两制的承诺，以及中共再次打压、钳制香港言论自由的行为。蔡英文认为，民主自由是普世价值，也是人民的基本权利，更是人民勇敢追求民主自由的过程，但这绝不是犯罪，更不应该让民众因此遭受不正当的对待。蔡英文还表示，台湾会继续坚定地支持香港和香港民众，也期望遭到港共非法拘捕的人士能够尽早平安获释。
+郭先生表示，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白的含量是常规疫苗的5至8倍。因此，该疫苗副作用极大，患者接种后的具体表现即为“七窍流血”样的不良症状。
+
+另据盖特网友提供的信息显示，这批疫苗极有可能是中共国产的智飞龙马三针剂重组疫苗。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克，而该品牌疫苗在审批中仅有紧急使用权限。
+
+据中共国内公开信息显示，中共西安政府于今年5月中旬开始鼓励市民接种智飞品牌的三针剂疫苗，直至9月推进市民完成了第三剂次的接种。
+
+截至目前，距西安市民完全接种智飞疫苗仅仅过去三个月的时间，而当地的出血热定点医院却在上周就已经出现床位爆满、无力继续收治病人的惨象。
 
 参考链接：
-1）[聲援立場新聞 蔡總統遺憾中共再毀一國兩制承諾](https://cn.rti.org.tw/news/view/id/2120789)
-2）[U.S. calls on China and Hong Kong to release Stand News employees](https://www.reuters.com/business/media-telecom/us-calls-china-hong-kong-release-stand-news-employees-2021-12-30/)
+1）[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+2）[https://www.gettr.com/post/pl2bwh0afb](https://www.gettr.com/post/pl2bwh0afb)
+3）[西安 三针 安徽智飞（重组蛋白）新冠疫苗开打](https://www.toutiao.com/a6963510302516216320/?channel=&amp;source=search_tab&amp;wid=1640962877976)
+4）[打3针的新冠疫苗来陕西！首批到陕50万剂次](https://www.toutiao.com/a6962750731187126820/?channel=&amp;source=search_tab)
+5）[智飞疫苗西安各接种点到货 快快去打第二针](https://www.toutiao.com/a6972537511042089509/?channel=&amp;source=search_tab)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：Irene木木，飞虹
-编辑：飞虹
+总编：文特
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,6 +39,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

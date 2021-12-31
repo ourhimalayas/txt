@@ -2,26 +2,24 @@
 ---
 
 
-## 俄克拉荷马州州长抨击强制接种令违宪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808876/)
+## 日澳研议并修改安保共同宣言应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808892/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日，美国俄克拉荷马州州长斯蒂特在一份报道中表示，他反对联邦政府推行的中共病毒疫苗强制接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-28.jpg)
-斯蒂特强调，接种疫苗与否应该完全出于个人选择，而联邦政府目前所执行的一刀切政策并不符合实际情况。斯蒂特表示，随着疫情的变化，科学与实用治疗方法也在不断发展，这当中还包括自然免疫。而就俄克拉荷马州而言，即使不依靠强制疫苗令，当地近期的确诊人数与住院患者也都有了大幅下降。
+当地时间12月29日，据日本媒体报导，为全面加强抗共合作，日本与澳大利亚政府正在商讨并修改双方于2007年签署的《日澳安全保障共同宣言》，用以共同应对中共企图破坏台海、南海现状的挑衅行为，以及其日益增强的武力威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.09.png)
+资料显示，日澳双方于2007年签署的《日澳安全保障共同宣言》主要是为了应对当时来自朝鲜的威胁，但双方此次拟修改的新宣言将包括强化日本自卫队与澳洲军队的威慑力和应对力，以及提高双方的训练品质并达到能与美国协同作战的目标，从而能更好地应对源于中共的威胁。
 
-为此，斯蒂特州长声明，联邦政府的疫苗强制令根本不尊重美国民众的个人自由，政府利用权力强迫美国人在中共病毒疫苗和工作之间做出选择，但这不仅是联邦政府的过度行为，更是违反了宪法的举措。
+此外，报道提及，新宣言也将纳入有关太空防卫、网落情报共享技术合作、经济安全保障合作等内容。
 
-斯蒂特补充道，根据医生的建议以及自身的健康状况，他本人并不打算接种中共病毒疫苗加强针。
+参考链接：[強化抗中合作 日澳檢討修改安保共同宣言](https://www.cna.com.tw/news/firstnews/202112300007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-参考链接: [Oklahoma Governor Says He Doesn’t Plan to Get Booster Because He’s ‘Perfectly Healthy’](https://www.thegatewaypundit.com/2021/12/oklahoma-governor-says-doesnt-plan-get-booster-perfectly-healthy/?utm_source=ground.news&amp;utm_medium=referral)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：雪梨
-编辑：Kathy文艺
-校正/发稿：Fei797
+总编：文特
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
