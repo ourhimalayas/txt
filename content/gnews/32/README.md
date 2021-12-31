@@ -2,24 +2,38 @@
 ---
 
 
-## 台国防部侦测今年中共军机扰台 创纪录940架次
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807880/)
+## 美英德法支持立陶宛对抗中共胁迫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807888/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1926.png)[图片来源](https://www.chinadailyhk.com/article/240389)
-中共近年变本加厉对台军事威胁，中共军机2021年扰台次数更甚往年，根据台湾国防部统计，共机自今年1月迄今扰台已逾约940架次。而中共国国防部30日表示，中共国实际出动飞机架次「只会多、不会少」。
+作者：纽约香草山医疗部 – 云豹/东京樱花团 – 在远方
 
-台湾国防部专案报告「面对中共军力提升，我国战备因应作为」内容指出，中共迄今未放弃武力犯台，常态性频密派遣机、舰扰台，企图造成灰色地带冲突，军事威胁及挑衅意味更甚以往，国军随时保持高度警戒，严密掌握敌情动态，并积极强化自我防卫能力。据统计，今年1月迄今，共机扰台已逾约940架次，并多次在台湾周边从事针对性及抗击外军的军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
 
-而在中共国国防部例行记者会上有媒体询问，共机今年出动了940余架次进入台湾空域，美国国防部警告中共在台海空域的行动增加了印太武装部队之间误判的可能性，加强台湾自卫是急迫任务，中共国国防部对此有何看法？中国国防部新闻发言人大校谭克非回应：「目标十分明确，那就是以果断行动回击岛内外势力频繁勾连、挑战一个中国原则的恶劣行径」。
+在立陶宛面对中共政治施压、经济胁迫升级之际，12月29日，美国国务卿布林肯与英国、德国、法国的外交部长表示，将与立陶宛站在一起，反对中共野蛮行径。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-39-scaled.jpg)
+立陶宛因为支持台湾，并与台湾互相对等成立代表处，不但在政治上遭到中共的威胁，在经济上也遭受中共的无理干扰。中共故意制造经济障碍，阻挠立陶宛商品在中共境内销售，企图以商逼政。中共这些手段已经引起欧盟及美国的高度关注，他们多次在公开场合声明支持立陶宛行使国家自主权力的立场。
 
-谭克非宣称，今年以来，解放军常态环台湾组织轰炸机、侦察机、歼灭机等开展巡航，常态抵进台湾周边组织多军兵种力量联合战备警巡，常态在台湾附近海空域组织联合对海突击、联合对陆打击、联合防空作战等实战化演练，实际出动飞机架次的数量「只会多、不会少」。
+12月22日，布林肯还曾与欧盟外交和安全政策高级代表波瑞尔通话，两人就中共对立陶宛政治、经济压迫的升级表示关切，谴责中共所作所为对美国和欧洲企业造成的冲击。波瑞尔还于27日撰文表示，中共的做法对欧中关系已经造成负面影响。
 
-消息来源：[挑衅自由民主的恶劣行径!逾940架共机今年扰台中国：只会多不会少](https://tw.news.yahoo.com/%E6%8C%91%E9%87%81%E8%87%AA%E7%94%B1%E6%B0%91%E4%B8%BB%E7%9A%84%E6%83%A1%E5%8A%A3%E8%A1%8C%E5%BE%91-%E9%80%BE940%E6%9E%B6%E5%85%B1%E6%A9%9F%E4%BB%8A%E5%B9%B4%E6%93%BE%E5%8F%B0-%E4%B8%AD%E5%9C%8B-%E5%8F%AA%E6%9C%83%E5%A4%9A%E4%B8%8)
+参考链接：
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [美法德英外長通話 中國脅迫立陶宛再成焦點](https://cn.rti.org.tw/news/view/id/2120794)
+- [美法德英外長通話 聲援立陶宛反對中國脅迫](https://www.cna.com.tw/news/firstnews/202112300013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
