@@ -2,31 +2,20 @@
 ---
 
 
-## 七哥谈“都是利益”（2021-12-29摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809398/)
+## 历史性判决：拒绝打新冠疫苗的护士重返工作岗位
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1809432/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+####   编译/简评            意大利达芬奇农场                           小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-31-alle-19.19.11.png)图片来源：ilparagone.it
+这对维护劳动者的权益无疑是个非常好的消息，尤其是目前意大利处在民主最黑暗的时刻。由于与宪法相关的权利受损，意大利劳动法庭确认了维雷特利地方法庭前一时期的判决，下令被解雇护士重返当地卫生局(ASL)工作。这位提出上诉的护士拒绝接种新冠疫苗。12月14日公布的判决写道“医疗行业或其他行业都不应有歧视，也不能歧视性对待不愿（指提出上诉的护士）或不能注射新冠疫苗的人，因为给公共健康造成的危害是同样的。（注：指无论接种新冠疫苗与否都不会避免不得新冠病毒或不传染他人）。地方法官施加的唯一条款实际上是确保在提供护理服务时有足够的安全条件，以保护公众健康。
 
-来源：郭先生2021-12-29直播08：48：51摘录
+我们祝愿对这位护士有利的判决也能成为其他劳动者的样本，他们的权利和自由也能得到承认。
 
-英国为啥是抗议呀？英国是老子不去，你把钱给我，答应我投的什么核电3号，是吧？然后欧洲农业，是不是？买我的发动机，因为现在它不属于欧盟，整个空客计划它都要退出欧盟，那你来单独来买我发动机吧，单独买我项目，单独买我柴油机嘛，而且不能买高级的，技术上还不允许。中共说那你来呀，那你先给我下订单，俩人较量。那香港问题咋办呢？是吧？就讲不成数了。鲍里斯·约翰逊特想勾兑。所以大家记住，这个冬奥会和这个事儿上跟政治一点儿关系都没有，都是利益。
+这一胜利对那些因为不打疫苗而失去工作的人至关重要。我们正处于病毒战、疫苗战、司法战、经济战等。无论我们接受与否， 我们都身处其中。随着疫苗的强制令正步步逼近，所涉及的行业和范围越来越广，我们别无选择，只能选择各种方式战斗。这是第三次世界大战。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接：https://www.ilparagone.it/attualita/infermiera-no-vax-riammessa-lavoro/
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao   baige
 
 
 

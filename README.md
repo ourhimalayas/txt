@@ -15,56 +15,56 @@
 
 ---
 
-### [给中共送葬活动，只针对习、王、孟、江四大家族](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [福利金开放申请，但不打疫苗没份](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [HBO及VICE的采访, 其背后绝不是共产党一家行动](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [南非,英国4/5的死亡者 系接种疫苗接种者](/content/gnews/4/README.md)
+### [夕阳杂谈 西安真相](/content/gnews/1/README.md)
  ` 纽约香草山MOS02`
 
-### [日增16000!安省摊牌:实验室已满载 没能力筛了](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/6/README.md)
+### [谁来拯救你，活在新闻联播里的人们](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈空客订单（2021-12-29）](/content/gnews/7/README.md)
+### [给中共送葬活动，只针对习、王、孟、江四大家族](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [福利金开放申请，但不打疫苗没份](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥谈欧洲表面的喜欢（2021-12-29）](/content/gnews/8/README.md)
+### [HBO及VICE的采访, 其背后绝不是共产党一家行动](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [南非,英国4/5的死亡者 系接种疫苗接种者](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [日增16000!安省摊牌:实验室已满载 没能力筛了](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [历史性判决：拒绝打新冠疫苗的护士重返工作岗位](/content/gnews/9/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈空客订单（2021-12-29）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [七哥谈欧洲表面的喜欢（2021-12-29）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [历史性判决：拒绝打新冠疫苗的护士重返工作岗位](/content/gnews/11/README.md)
  ` xiaobaige`
 
-### [七哥谈欧洲和中共的较量（2021-12-29摘录）](/content/gnews/10/README.md)
+### [七哥谈欧洲和中共的较量（2021-12-29摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥谈“都是利益”（2021-12-29摘录）](/content/gnews/11/README.md)
+### [七哥谈“都是利益”（2021-12-29摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥说政客没有正义（2021-12-29摘录）](/content/gnews/12/README.md)
+### [七哥说政客没有正义（2021-12-29摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [管制升级，黑手伸向中小学学生](/content/gnews/13/README.md)
+### [管制升级，黑手伸向中小学学生](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/14/README.md)
+### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈青蒿素修复基因缺陷（2021-12-29摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/16/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥谈共产党放毒（2021-12-29摘录）](/content/gnews/17/README.md)
- ` MG FARM`
 
 ### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/18/README.md)
  ` 日本银河系农场-阿尔法星球`

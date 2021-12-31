@@ -2,49 +2,94 @@
 ---
 
 
-## 日增16000!安省摊牌:实验室已满载 没能力筛了
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809469/)
+## HBO及VICE的采访, 其背后绝不是共产党一家行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
 
-作者：Chris Fox
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-398.jpg)
-安大略省的日增新冠病例数再一次创纪录，公共卫生官员继续警告说，由于检测能力不足，目前所公布的病例数，与真正的感染数存在很大差别。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
+[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
 
-卫生部说，在过去24小时内，安省实验室确认了16,713个由新型冠状病毒引起的新病例，所有样本中29.8%呈阳性。
+郭文贵
+Miles Guo
 
-住院率也在继续上升。
+这个阴毒之狠
+Such cruel of this evilness
 
-该部报告说，目前住院的新冠患者为1,144人，其中有205名病例在重症监护室治疗。上周的这个时候，住院人数为508人，重症监护室为154人。
+大家想到这个HBO、VICE的时候
+When everyone talks about HBO and VICE
 
-安大略省还报告说，感染COVID-19的人中又有15人死亡，这是几个月来的最高数字。
+我就要回答刚才回答你们（问的）最重要的问题
+I would like to answer the most important question you have asked just now
 
-卫生部门首席医疗官Dr. Kieran Moore周五上午在接受CP24专访时警告说：”我不需要水晶球就可以知道，安省在整个1月份的感染数将继续加速上升。我确实希望我们在2月会控制住疫情，在3月我们会有群体免疫力，再加上通过我们强有力的免疫战略，使我们在明年春季和夏季有一个非常强大的保护力，这就是我们的希望。但是我确实认为1月份对我们来说将是一个艰难的月份，我们将密切关注数据。”
+这一次的采访和背后的动机绝不是一个共产党一个人玩的
+This interview and the intention of it were definitely not just the CCP alone to manipulate
 
-最新的病例数字来自于超过75,000次的测试，这几乎已经是安大略省实验室的最大检测能力了。
+你看它背后的股东你就能看得出来
+You would realize that by looking at the shareholders behind it (the interview),
 
-展望未来，福特政府表示，它将只向某些高风险个人提供公共资助的PCR测试，以确保那些最需要测试的人能够及时获得。
+单伟建、索罗斯、迪斯尼、BlackStone，
+Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
 
-然而，这将意味着在未来几周内，每天的病例数将不能再反应社区感染情况。
+全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
+This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
 
-传染病专家Isaac Bogoch周五在接受CP24采访时承认：”我不认为我们会对目前的社区感染有任何真正的了解，在揭露社区感染情况方面，我们将完全两眼一抹黑。”
+没有几个战友能看清楚这个本质的
+There are only a few comrades-in-arms that could clearly see this essence of it
 
-来源：https://www.cp24.com/news/ontario-reports-more-than-16-000-new-cases-of-covid-19-as-hospitalizations-continue-to-rise-1.5724354
+我再问你这时候
+I’m asking you again this time, Xiaoxin
 
-（文章仅代表作者个人观点）
+你想想小新，如果我不接受采访，它会怎么干这事儿？
+Think about it, what would they do if I didn’t accept their interview?
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+绝不是给你编辑编辑（就播）出来
+They would absolutely not just edit and broadcast out
 
-**关注我们**
+会给你玩得更恐怖、更大
+Instead, they would play bigger and more miserable
 
-Discord 账号
+而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
+And you may see that they already have eyes on snake demon Yan and Lude
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+就要（用）这俩人、就用你曾经说的话、用你的人来干你
+They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
 
-Gettr 账号
+用你的蛇来咬你
+and your snakes to bite you
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+这不是一般的行动
+This is not a normal action
+
+这跟七哥几个月以前说的
+This is what I said a few months ago
+
+我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
+I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
+
+都兑现了吧？
+Haven’t all these fulfilled my words?
+
+谢谢，我先说到这
+Thank you, and I’ll stop my words here
+
+* * *
+
+Date: 12/25/2021
+原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
+Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
+原视频日期：2021/12/24
+原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
+任务编号：KC379(3347)
+视频时间段 : 0:00-01:17
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
