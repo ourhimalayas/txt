@@ -15,179 +15,179 @@
 
 ---
 
-### [七哥谈欧洲表面的喜欢（2021-12-29）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [七哥谈欧洲和中共的较量（2021-12-29摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [七哥谈“都是利益”（2021-12-29摘录）](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [七哥说政客没有正义（2021-12-29摘录）](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [七哥谈青蒿素修复基因缺陷（2021-12-29摘录）](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/7/README.md)
+### [HBO及VICE的采访, 其背后绝不是共产党一家行动](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈共产党放毒（2021-12-29摘录）](/content/gnews/8/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈空客订单（2021-12-29）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [七哥谈西安打特定疫苗（2021-12-29摘录）](/content/gnews/9/README.md)
+### [七哥谈欧洲表面的喜欢（2021-12-29）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥说要有执行力和团结（2021-12-29摘录）](/content/gnews/10/README.md)
+### [七哥谈欧洲和中共的较量（2021-12-29摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/11/README.md)
+### [七哥谈“都是利益”（2021-12-29摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [七哥说政客没有正义（2021-12-29摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥谈青蒿素修复基因缺陷（2021-12-29摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈共产党放毒（2021-12-29摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [七哥谈西安打特定疫苗（2021-12-29摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [七哥说要有执行力和团结（2021-12-29摘录）](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/14/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥谈未来数字货币（2021-12-29摘录）](/content/gnews/12/README.md)
+### [七哥谈未来数字货币（2021-12-29摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/13/README.md)
+### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说去中心化的币一定会变成零（2021-12-29摘录）](/content/gnews/14/README.md)
+### [七哥说去中心化的币一定会变成零（2021-12-29摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/15/README.md)
+### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈盘古、裕达（2021-12-29摘录）](/content/gnews/16/README.md)
+### [七哥谈盘古、裕达（2021-12-29摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/17/README.md)
+### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈最佳出手时机（2021-12-29摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/19/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/21/README.md)
  ` wenwu`
 
-### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/20/README.md)
+### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/21/README.md)
+### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/23/README.md)
  ` 秘密翻译组金融团队`
 
-### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/22/README.md)
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [病理结果显示，接种疫苗后死亡的人中有93%是被疫苗杀死](/content/gnews/24/README.md)
+### [病理结果显示，接种疫苗后死亡的人中有93%是被疫苗杀死](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/31/21 香港快讯 香港今个财政年度首8个月赤字658亿港元](/content/gnews/25/README.md)
+### [12/31/21 香港快讯 香港今个财政年度首8个月赤字658亿港元](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [拜登政府宣布将解除对非洲八国的旅行禁令](/content/gnews/26/README.md)
+### [拜登政府宣布将解除对非洲八国的旅行禁令](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [日澳研议并修改安保共同宣言应对中共威胁](/content/gnews/27/README.md)
+### [日澳研议并修改安保共同宣言应对中共威胁](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [沃尔玛因下架新疆产品遭中纪委刊文警告](/content/gnews/28/README.md)
+### [沃尔玛因下架新疆产品遭中纪委刊文警告](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [川普宣称疫苗安全 遭支持者怒呛](/content/gnews/29/README.md)
+### [川普宣称疫苗安全 遭支持者怒呛](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [荣获艾美奖的加拿大导演心脏病突发猝死 震惊好莱坞](/content/gnews/30/README.md)
+### [荣获艾美奖的加拿大导演心脏病突发猝死 震惊好莱坞](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/31/README.md)
+### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [因加拿大确诊激增 魁北克跨年夜开始宵禁](/content/gnews/32/README.md)
+### [因加拿大确诊激增 魁北克跨年夜开始宵禁](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点1231](/content/gnews/33/README.md)
+### [DC每日热点1231](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [15个成员国签署全球最大自贸区](/content/gnews/34/README.md)
+### [15个成员国签署全球最大自贸区](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/35/README.md)
+### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农专访2：中共国经济衰退会影响全球金融市场](/content/gnews/36/README.md)
+### [班农专访2：中共国经济衰退会影响全球金融市场](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果不停止疯狂的疫苗接种，让人惊恐的疾病将爆发](/content/gnews/37/README.md)
+### [如果不停止疯狂的疫苗接种，让人惊恐的疾病将爆发](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访5：美国第六巡回法院解除了暂停的强制疫苗令](/content/gnews/38/README.md)
+### [班农专访5：美国第六巡回法院解除了暂停的强制疫苗令](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [接种过疫苗的人患癌风险加剧](/content/gnews/39/README.md)
+### [接种过疫苗的人患癌风险加剧](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访1: 房产崩塌，外资撤离，桥水集团投资中共](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共缓割韭菜，个人年终奖纳税延缓](/content/gnews/41/README.md)
+### [中共缓割韭菜，个人年终奖纳税延缓](/content/gnews/42/README.md)
  ` 澳喜农场`
 
-### [西媒头条 — 第143期](/content/gnews/42/README.md)
+### [西媒头条 — 第143期](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/31每日播报｜“奥米炕”肆虐致美国儿童住院人数激增](/content/gnews/43/README.md)
+### [12/31每日播报｜“奥米炕”肆虐致美国儿童住院人数激增](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/30每日播报|社媒消息：班农先生 PandaRolling](/content/gnews/44/README.md)
+### [12/30每日播报|社媒消息：班农先生 PandaRolling](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/31每日播报｜美国卫生专家称Omicron变种造成的风暴将在一月席卷美国](/content/gnews/45/README.md)
+### [12/31每日播报｜美国卫生专家称Omicron变种造成的风暴将在一月席卷美国](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [CDC承认PCR测试存在重大缺陷](/content/gnews/46/README.md)
+### [CDC承认PCR测试存在重大缺陷](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/47/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/48/README.md)
  ` 纽约香草山MOS01`
 
-### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/48/README.md)
+### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [德媒：中共国有个新毛泽东](/content/gnews/49/README.md)
+### [德媒：中共国有个新毛泽东](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/50/README.md)
+### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/51/README.md)
+### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/52/README.md)
+### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/53/README.md)
+### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/54/README.md)
+### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/55/README.md)
+### [全球疫情更新（灭白计划在疫情和疫苗数据中初露端倪）](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/56/README.md)
+### [全世界政权都在拖延疫苗追责进程和整个疫情](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/57/README.md)
+### [更多的中共病毒疫苗死亡新闻正在传出](/content/gnews/58/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [12/30每日播报｜香港《立场新闻》多名相关人士被捕 现已停止运作](/content/gnews/58/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [班农先生的一则盖文](/content/gnews/59/README.md)
  ` 秘密翻譯組G-Translators`

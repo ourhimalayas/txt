@@ -2,50 +2,31 @@
 ---
 
 
-## 中共国警告美国在台湾问题上将“面临难以承受的代价”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1809274/)
+## 七哥说要有执行力和团结（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809317/)
 
-编译：七叶之芒
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-12.jpg)法新社/安吉洛斯·佐尔齐尼斯
+来源：郭先生2021-12-29直播11:27:12摘录
 
-中共国外交部长周四表示，美国将因其对自我统治的台湾岛的行动而“面临无法承受的代价”，这是中共国政府对这个热点岛屿的最新威胁。
+永远要珍惜喜币、GTV、盖特、GNEWS这些平台。刚才所有说的共产党的假，和数字货币的革命时代，和全球M2货币增发的灾难时刻，和我们中国人14亿中国人民，像阿富汗一样被几个老杂毛，宇宙无限大，地球一粒沙，忽悠了我们上百年。我们要有媒体的力量，我们要有金融的力量，我们要有勇气贵族的精神，我们要有一个绝对没有的中国人不应该再继续的鼠目寸光，见利忘义，急功近利的毛病，我们不能有。还有更重要的是要执行力、团结。
 
-近年来，中共国和美国在人权、贸易和技术竞争等问题上的紧张关系急剧上升，而台湾则成为一个主要的爆发点。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-中共国宣称民主的台湾岛是自己的领土，并发誓有一天会在必要时用武力夺取台湾。
+**关注我们**
 
-尽管大多数国家都选择正式承认北京而不是台北，但许多国家仍与后者保持着强有力的非正式联系，而中共国对此感到愤怒。
+Discord 账号
 
-周四，外交部长王毅在接受国家广播公司中央电视台和官方新闻机构新华社的采访时警告说，华盛顿的干涉可能导致危险的局面。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“美国违反了中美建交时的承诺，纵容和鼓励‘台独’势力，并试图歪曲和掏空一个中国原则”，王毅说。
+Gettr 账号
 
-“这不仅会使台湾陷入极其危险的境地，也会使美国面临难以承受的代价。”
-
-作为对中共国的冷落，美国在本月初邀请台湾参加其民主峰会。
-
-美国总统拜登上个月将台湾描述为“独立的”–但他后来澄清了他的言论，确认美国对台湾的政策没有改变。
-
-根据《台湾法》，美国不承认台湾独立，但承诺帮助该岛自卫。
-
-北京认为任何正式宣布台湾“独立”的行为都是一种挑衅，并多次威胁要对支持台北自治的国家采取后果。
-
-最近几个月，中共军方在该岛附近开展了一系列日益咄咄逼人的海空军事行动，并在上个月一群美国立法者访台后，在台湾海峡附近进行了军事演习。
-
-近年来，中共国加强了在国际上孤立台湾的压力。
-
-本月早些时候，尼加拉瓜在外交上效忠于中共国，这对台湾是一个打击，现在台湾在全球范围内只剩下14个盟友。
-
-参考资料：[news.yahoo][China warns US will ‘face unbearable price’ on Taiwan](https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html)
-
-* * *
-
-*审核：Aries的星*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

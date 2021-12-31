@@ -2,31 +2,94 @@
 ---
 
 
-## 七哥谈欧洲表面的喜欢（2021-12-29）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809434/)
+## HBO及VICE的采访, 其背后绝不是共产党一家行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
+[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
 
-来源：郭先生2021-12-29直播08：51：12摘录
+郭文贵
+Miles Guo
 
-四国关系、四国演义，互相用互相玩，这个时候叫什么？这就叫地缘政治。而中国被玩的是什么？中国没有地缘跟人家欧洲，你玩什么地缘政治啊？中国玩的是什么？就是中国老百姓的血汗钱，就是市场经济、市场政治。所以中国人这些小粉红愚蠢到不是一般的愚蠢，以为欧洲人怕你呢。欧洲人对你的任何一个张嘴不骂你的，到嘴边儿没骂你的那个话，和欧洲人对你的所谓表面的喜欢，只有一个字：钱！欧洲人骨子里对中国人包括对中共永远是零看得起你，你在人家眼里真的是狗屁不是。它宁可被俄罗斯人真的是脱几把裤子，它都看得起俄罗斯人，它怕俄罗斯人，它也看不起你中国人。中国人完全不知道，就是你看到那些孩子们在巴黎大街上挎着一包一包的买，哎呀，到哪儿去人家店里面那种欢迎，“I Love China！我喜欢你！你好吗？谢谢！再见！”，讲点中文，中国人一看，厉害啊！“你是来自西安吗？我也去过西安。”唉呀，中国人的鼻子翘起来了，根本不知道出门以后，人家就是“Fuck, Get Out!”，都是这个。
+这个阴毒之狠
+Such cruel of this evilness
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+大家想到这个HBO、VICE的时候
+When everyone talks about HBO and VICE
 
-**关注我们**
+我就要回答刚才回答你们（问的）最重要的问题
+I would like to answer the most important question you have asked just now
 
-Discord 账号
+这一次的采访和背后的动机绝不是一个共产党一个人玩的
+This interview and the intention of it were definitely not just the CCP alone to manipulate
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+你看它背后的股东你就能看得出来
+You would realize that by looking at the shareholders behind it (the interview),
 
-Gettr 账号
+单伟建、索罗斯、迪斯尼、BlackStone，
+Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
+This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
+
+没有几个战友能看清楚这个本质的
+There are only a few comrades-in-arms that could clearly see this essence of it
+
+我再问你这时候
+I’m asking you again this time, Xiaoxin
+
+你想想小新，如果我不接受采访，它会怎么干这事儿？
+Think about it, what would they do if I didn’t accept their interview?
+
+绝不是给你编辑编辑（就播）出来
+They would absolutely not just edit and broadcast out
+
+会给你玩得更恐怖、更大
+Instead, they would play bigger and more miserable
+
+而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
+And you may see that they already have eyes on snake demon Yan and Lude
+
+就要（用）这俩人、就用你曾经说的话、用你的人来干你
+They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
+
+用你的蛇来咬你
+and your snakes to bite you
+
+这不是一般的行动
+This is not a normal action
+
+这跟七哥几个月以前说的
+This is what I said a few months ago
+
+我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
+I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
+
+都兑现了吧？
+Haven’t all these fulfilled my words?
+
+谢谢，我先说到这
+Thank you, and I’ll stop my words here
+
+* * *
+
+Date: 12/25/2021
+原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
+Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
+原视频日期：2021/12/24
+原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
+任务编号：KC379(3347)
+视频时间段 : 0:00-01:17
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

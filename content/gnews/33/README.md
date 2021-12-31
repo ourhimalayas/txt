@@ -2,37 +2,44 @@
 ---
 
 
-## DC每日热点1231
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1808701/)
+## 西安出血热疑为某国产三针剂疫苗后遗症
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808803/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3F71B24A-6250-43F4-8CCF-5167877D716C-scaled.jpeg)
-道琼斯指数 36398.08 ▼0.25%
-纳斯达克指数 15741.56 ▼0.16%
-WTI纽约原油CFD 75.544 ▼1.85%
-布伦特原油CFD 78.228 ▼1.64%
-标普50指数 3,016.97 ▼42.54%
-美元兑人民币 1USD=6.352 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1825.42 美元/盎司
-全球CCP病毒感染人数 287,035,172例
+作者：纽约香草山教育部—Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日，郭文贵先生在最新一期的直播节目中爆料，西安近期爆发的出血热疫情实为当地市民接种了某国产高剂量定制疫苗的后遗症。
 
-1、日中防长视频通话 设紧急联系热线恐难改善现状
-2、中共国最近制定宗教新规，自明年3月1日起除获得许可外，严禁网上传教，境外组织或个人也不得在华境内通过互联网传教
-3、俄罗斯外交部官员12月30日证实，美俄两国高级外交官将于明年1月10日在日内瓦举行会谈
-4、北京计划设立澳门国安顾问被视为让中共国涉入澳门的安全事务
-5、俄大型国有能源企业俄罗斯天然气工业股份公司（Gazprom）将于2022年敲定第二个将天然气从西伯利亚通往到中共国的大型天然气管道项目协议
-6、美国初次申请失业救济人数降到20万以下
-7、台湾赞赏美英德法外长发声反对北京施压立陶宛，承诺协助立陶宛商品转移市场
-8、台日执政党第二度2+2会谈 强化经济安保合作以抗衡中共国
-9、中共监管再立禁区 国足球员不得刺纹身
-10、伊朗：发射运载火箭 将3个研究装置送入太空
-11、立场新闻案明年2月25日再讯 何韵诗等四人获保释
-12、至少35人遭军方杀害 欧盟支持对缅甸实施武器禁运
-13、立陶宛政府拟向受立陶宛和中共国的外交争端影响企业提供1.3亿欧元援助
-14、台铁用中共国制劣质刹车皮 台湾交通部长要求检讨
-15、尼加拉瓜强夺台资产给中共 台湾将提国际诉讼
-16、美律所评估涉疆法案影响近1200亿中国货出口
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-21.jpeg)
+
+郭先生表示，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白的含量是常规疫苗的5至8倍。因此，该疫苗副作用极大，患者接种后的具体表现即为“七窍流血”样的不良症状。
+
+另据盖特网友提供的信息显示，这批疫苗极有可能是中共国产的智飞龙马三针剂重组疫苗。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克，而该品牌疫苗在审批中仅有紧急使用权限。
+
+据中共国内公开信息显示，中共西安政府于今年5月中旬开始鼓励市民接种智飞品牌的三针剂疫苗，直至9月推进市民完成了第三剂次的接种。
+
+截至目前，距西安市民完全接种智飞疫苗仅仅过去三个月的时间，而当地的出血热定点医院却在上周就已经出现床位爆满、无力继续收治病人的惨象。
+
+参考链接：
+1）[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+2）[https://www.gettr.com/post/pl2bwh0afb](https://www.gettr.com/post/pl2bwh0afb)
+3）[西安 三针 安徽智飞（重组蛋白）新冠疫苗开打](https://www.toutiao.com/a6963510302516216320/?channel=&amp;source=search_tab&amp;wid=1640962877976)
+4）[打3针的新冠疫苗来陕西！首批到陕50万剂次](https://www.toutiao.com/a6962750731187126820/?channel=&amp;source=search_tab)
+5）[智飞疫苗西安各接种点到货 快快去打第二针](https://www.toutiao.com/a6972537511042089509/?channel=&amp;source=search_tab)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：文特
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
