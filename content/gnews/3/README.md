@@ -2,93 +2,29 @@
 ---
 
 
-## 给中共送葬活动，只针对习、王、孟、江四大家族
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809519/)
+## 谁来拯救你，活在新闻联播里的人们
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809526/)
 
-[https://gtv.org/video/id=61ce7afcfb16a93456bfa52b](https://gtv.org/video/id=61ce7afcfb16a93456bfa52b)
+**【国内新闻短评**】
 
-**郭文贵
-Miles Guo**
+**据网易2021年12月29日报道：疫情危机、通胀危机和战争危机全世界都在发生，但是墙内岁月静好**。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/axnlz-x7yez.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2021/12/cg.jpg)
+***短评：***
 
-今年的送棺材，给共产党送棺材的活动
-This year’s action of sending coffins to the Communist Party
+***墙内许多人一直生活在新闻联播里，全世界都危机重重，只有中共国风景独好。他们真的相信这些谎言宣传，还是没有勇气面对真相？面对疫情危机，墙内不顾百姓死活，封锁严控，封焊楼门，违法规定者网上大肆批判，游街示众，他们认为这是最有效的管控措施，却没有胆量问一句，国内到底死亡多少、疫情源头来自何处。***
 
-咱只对习、王、孟、江.就对这四个，其他人一概不参与
-We are only interested in the four families of Xi, Wang, Meng and Jiang, but no one else
+***通胀永远是国外更可怕，月月新高，有谁来说——百姓半年没有肉吃，买不起高煤价而挨冻受困。为举办冬奥会，他们只是高歌连开两届奥运的伟大，有谁追问——多少企业被迫关停，多少人耕地被占，多少人被限制生火取暖。面对台海危机，他们赞扬中共强大，谁敢质疑——这是手足相残，华人的悲哀？中共国这么好，很少有欧美人移民到中国，疫情控制得利，生活安定富足，军事力量强大，为啥只见墙内人想方设法移民国外，鲜见欧美日澳等国移民天朝（非洲人除外）。***
 
-我刚才给他说我们不参乎任何人
-I just told him that we are not involved with anyone else
+***活在岁月静好的人们热爱强国，强国只当他们是韭菜收割。只要镰刀没到头上，他们就一直强调生活在墙内多么幸运。胆小懦弱，没有力量对抗邪恶中共，保持沉默躺平是做人的基本操守。但韭菜为镰刀唱赞歌，实在是不可理喻。这群人收割残害时，谁会为你鸣不平。谁来拯救活在新闻联播里面的人？ 只要他们自己不敢面对真相，谁也叫不醒装睡的人。***
 
-习、王、孟、江，就是相信风水的人，咱就给他送风水
-Xi, Wang, Meng and Jiang are the ones who believe in feng shui, so we will send them the feng shui
+**文章观点仅代表作者个人，与gnews平台无关**
 
-他给咱搞巫术的，咱也给他来巫术，是吧？
-People who gives us witchcraft, we also give that person witchcraft, right?
+**链接**：[https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w\_yw\_dy](https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w_yw_dy)
 
-而且这个棺材板上，咱就定这些人，其他人不定
-And on the coffin board, we will target these people, but not the others.
-
-这个棺材板一定要施巫术啊
-We have to do witchcraft on the coffin board
-
-那个巫术里面，比如那个流血泪
-Like the blood tears
-
-鬼流血泪是啥你知道吗？
-Do you know what means a ghost shedding tears of blood?
-
-就像那个自杀的，就那个人穿着红衣裳一样
-For example, the person who committed suicide, and the person who committed suicide was wearing a red dress
-
-他永远是，他是厉鬼啊，他不投胎的
-He (or she) will always be an evil spirit, he (or she) is not going to be reincarnated
-
-他跟你没完没了
-He will never end with you
-
-所以要把厉鬼啊
-That’s why we have to put the evil ghost
-
-鬼流血泪的鬼是不投胎的，是要跟你玩到底的
-A ghost with tears of blood will not be reincarnated. It will never end
-
-要把这些人都给他弄上去
-We have to get all these people to the coffin.
-
-咱现在就对这四大家族了，习、王、孟、江
-Let’s take on these four families, Xi, Wang, Meng and Jiang
-
-刚才我给他说了
-Just now I told him
-
-我说（你们）放心，转告，转告啊
-I said, “Don’t worry, tell everyone, tell everyone
-
-绝对不对任何人，不对现在法院的人，
-Absolutely not to anyone, not to the court now
-
-也不对大连的这个人，也不对三中院的人
-Not to the people of Dalian, not to the people of the Third Central Court
-
-不管你们，只对习、王、孟、江啊，只涉及他们，
-I don’t care about you, only involve Xi, Wang, Meng and Jiang.”
-
-新中国联邦一定会赢
-The new Federal State of China will definitely win
-
-Date:12/20/2021
-原视频标题: 给中共送葬活动，只针对习、王、孟、江四大家族
-Funeral activities for the Communist Party, only for the four families of Xi, Wang, Meng and Jiang
-原视频日期：2021/12/17
-原视频链接:**[https://gettr.com/post/pk255k345f](https://gettr.com/post/pk255k345f)**
-任务编号：KC381(3279)
-视频时间段 : 0:00-01:10
-中听校：洛杉矶盘古农场 -Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

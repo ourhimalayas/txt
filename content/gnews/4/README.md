@@ -2,51 +2,97 @@
 ---
 
 
-## 福利金开放申请，但不打疫苗没份
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809506/)
+## 给中共送葬活动，只针对习、王、孟、江四大家族
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809519/)
 
-作者：Sarah Turnbull
-翻译：谈海
+[https://gtv.org/video/id=61ce7afcfb16a93456bfa52b](https://gtv.org/video/id=61ce7afcfb16a93456bfa52b)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-399.jpg)
+**郭文贵
+Miles Guo**
 
-据报道，CWLB这项福利于11月宣布，但于12月22日扩大申请范围，如果在COVID-19大流行期间工作场所受到50%或更多的容量限制，则任何工人都可以申请CWLB。
+今年的送棺材，给共产党送棺材的活动
+This year’s action of sending coffins to the Communist Party
 
-在2022年5月7日之前，符合条件的工人每一周可获得300元——税后270元。但是扩大后的申请资格仅适用于2022年2月12日前。
+咱只对习、王、孟、江.就对这四个，其他人一概不参与
+We are only interested in the four families of Xi, Wang, Meng and Jiang, but no one else
 
-据联邦政府称，为了获得CWLB，工人还需要证明因这些容量限制而损失至少50%的收入。
+我刚才给他说我们不参乎任何人
+I just told him that we are not involved with anyone else
 
-本月早些时候，尽管有一些省或地区当时已经出台了新的公共卫生限制措施，但加拿大没有一个省或地区符合申请该福利的标准。
+习、王、孟、江，就是相信风水的人，咱就给他送风水
+Xi, Wang, Meng and Jiang are the ones who believe in feng shui, so we will send them the feng shui
 
-但是随着新一轮限制措施，目前除萨斯喀彻温省和育空地区以外的加拿大所有省或地区都符合申请资格，包括酒吧、餐馆和其他限制容量的工作场所。
+他给咱搞巫术的，咱也给他来巫术，是吧？
+People who gives us witchcraft, we also give that person witchcraft, right?
 
-联邦税务部长Diane Lebouthillier周四在一份声明中表示，一旦采取类似措施，政府将扩大对其余地区的申请资格。
+而且这个棺材板上，咱就定这些人，其他人不定
+And on the coffin board, we will target these people, but not the others.
 
-根据政府网站，拒绝遵守疫苗规定而失业或失去收入的个人不符合申领CWLB资格。联邦就业及劳动力发展部长Carla Qualtrough周四强调，只要公共卫生议题仍是首要考量，那些拒绝接种疫苗而失业的员工将无法申领CWLB福利。
+这个棺材板一定要施巫术啊
+We have to do witchcraft on the coffin board
 
-联邦政府网站称，申请CWLB的最简单方法是通过CRA的个人账户在线申请。
+那个巫术里面，比如那个流血泪
+Like the blood tears
 
-由于具有高度传染性的Omicron变体传播全国确诊的活跃病例数量现已激增至230,000多例。在上周宣布扩大福利的当天约有72,000例。
+鬼流血泪是啥你知道吗？
+Do you know what means a ghost shedding tears of blood?
 
-从那时起一些省份颁布了进一步的限制措施。周四魁省新增病例超过了14,000，魁北克重新实施了夜间宵禁，以遏制COVID-19病例的激增。
+就像那个自杀的，就那个人穿着红衣裳一样
+For example, the person who committed suicide, and the person who committed suicide was wearing a red dress
 
-来源：https://www.ctvnews.ca/politics/new-benefit-for-workers-only-intended-for-those-in-complete-lockdowns-qualtrough-1.5634934
+他永远是，他是厉鬼啊，他不投胎的
+He (or she) will always be an evil spirit, he (or she) is not going to be reincarnated
 
-（文章仅代表作者个人观点）
+他跟你没完没了
+He will never end with you
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+所以要把厉鬼啊
+That’s why we have to put the evil ghost
 
-**关注我们**
+鬼流血泪的鬼是不投胎的，是要跟你玩到底的
+A ghost with tears of blood will not be reincarnated. It will never end
 
-Discord 账号
+要把这些人都给他弄上去
+We have to get all these people to the coffin.
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+咱现在就对这四大家族了，习、王、孟、江
+Let’s take on these four families, Xi, Wang, Meng and Jiang
 
-Gettr 账号
+刚才我给他说了
+Just now I told him
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+我说（你们）放心，转告，转告啊
+I said, “Don’t worry, tell everyone, tell everyone
+
+绝对不对任何人，不对现在法院的人，
+Absolutely not to anyone, not to the court now
+
+也不对大连的这个人，也不对三中院的人
+Not to the people of Dalian, not to the people of the Third Central Court
+
+不管你们，只对习、王、孟、江啊，只涉及他们，
+I don’t care about you, only involve Xi, Wang, Meng and Jiang.”
+
+新中国联邦一定会赢
+The new Federal State of China will definitely win
+
+Date:12/20/2021
+原视频标题: 给中共送葬活动，只针对习、王、孟、江四大家族
+Funeral activities for the Communist Party, only for the four families of Xi, Wang, Meng and Jiang
+原视频日期：2021/12/17
+原视频链接:**[https://gettr.com/post/pk255k345f](https://gettr.com/post/pk255k345f)**
+任务编号：KC381(3279)
+视频时间段 : 0:00-01:10
+中听校：洛杉矶盘古农场 -Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
