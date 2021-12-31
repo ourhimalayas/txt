@@ -2,51 +2,42 @@
 ---
 
 
-## 福利金开放申请，但不打疫苗没份
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809506/)
+## 【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1809618/)
 
-作者：Sarah Turnbull
-翻译：谈海
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-399.jpg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-31-at-3.45.58-PM.jpeg)图片来源：SWiM EXCHANGE
+据《雅虎新闻》12月30日报道，在周四，中共极权政府对美国政府发出了最新的威胁。中共的外交部长在当日表示，美国将因其对自我统治的台湾岛的行动而 “面临无法承受的代价”。
 
-据报道，CWLB这项福利于11月宣布，但于12月22日扩大申请范围，如果在COVID-19大流行期间工作场所受到50%或更多的容量限制，则任何工人都可以申请CWLB。
+这几年来，中共国和美国在人权、贸易和技术竞争等问题上的紧张关系急剧上升，而台湾则成为一个主要的爆发点。
 
-在2022年5月7日之前，符合条件的工人每一周可获得300元——税后270元。但是扩大后的申请资格仅适用于2022年2月12日前。
+中共国宣称民主的台湾岛是自己的领土，并发誓有一天会在必要时用武力夺取台湾。
 
-据联邦政府称，为了获得CWLB，工人还需要证明因这些容量限制而损失至少50%的收入。
+尽管大多数国家都选择正式承认北京而不是台北，但许多国家仍与台湾保持着强有力的非正式联系，而中共对此感到极为愤怒。
 
-本月早些时候，尽管有一些省或地区当时已经出台了新的公共卫生限制措施，但加拿大没有一个省或地区符合申请该福利的标准。
+周四，中共的外交部长王毅，在接受采访时警告表示，华盛顿的干涉可能导致危险的局面。
 
-但是随着新一轮限制措施，目前除萨斯喀彻温省和育空地区以外的加拿大所有省或地区都符合申请资格，包括酒吧、餐馆和其他限制容量的工作场所。
+王毅说：“美国违反了中美建交时的承诺，纵容和鼓励’台独’势力，并试图歪曲和掏空一个中国原则。”
 
-联邦税务部长Diane Lebouthillier周四在一份声明中表示，一旦采取类似措施，政府将扩大对其余地区的申请资格。
+王毅认为“这不仅会让台湾陷入极其危险的境地，也会让美国付出难以承受的代价”。
 
-根据政府网站，拒绝遵守疫苗规定而失业或失去收入的个人不符合申领CWLB资格。联邦就业及劳动力发展部长Carla Qualtrough周四强调，只要公共卫生议题仍是首要考量，那些拒绝接种疫苗而失业的员工将无法申领CWLB福利。
+据报道， 美国本月早些时候邀请台湾参加其民主峰会，这是对中共国的冷落。
 
-联邦政府网站称，申请CWLB的最简单方法是通过CRA的个人账户在线申请。
+另一方面，拜登上个月将台湾描述为 “独立” — 但他后来澄清了他的言论，确认美国对台湾的政策没有改变。
 
-由于具有高度传染性的Omicron变体传播全国确诊的活跃病例数量现已激增至230,000多例。在上周宣布扩大福利的当天约有72,000例。
+根据《台湾法》（Taiwan Act），美国不承认台湾独立，但承诺帮助该岛自卫。
 
-从那时起一些省份颁布了进一步的限制措施。周四魁省新增病例超过了14,000，魁北克重新实施了夜间宵禁，以遏制COVID-19病例的激增。
+而北京认却为任何正式宣布台湾 “独立 “的行为都是一种挑衅，并多次威胁要对支持台北自决的国家考虑后果。
 
-来源：https://www.ctvnews.ca/politics/new-benefit-for-workers-only-intended-for-those-in-complete-lockdowns-qualtrough-1.5634934
+报道称，近几个月来，中共军方在台湾岛附近开展了一系列日益积极的海上和空中军事行动，在上个月一些美国立法者访问台湾海峡之后，中共在台湾海峡附近进行了军事演习。
 
-（文章仅代表作者个人观点）
+近年来，中共国与美国的关系日益恶劣，而中共却没停止加强在国际上孤立台湾的压力。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+本月早些时候，尼加拉瓜在外交上转效忠于中共国，这对台湾是一个打击，现在台湾在全球范围内只剩下14个盟友。
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：** [China warns US will ‘face unbearable price’ on Taiwan](https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html)
 
  
 
