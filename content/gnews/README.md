@@ -15,140 +15,140 @@
 
 ---
 
-### [美儿童感染CCP病毒入院人数升至接近最高记录水平](/content/gnews/1/README.md)
+### [2021年12月30日郭先生盖特 — 视频盖特1「9分42秒」](/content/gnews/1/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [12/31每日播报｜“奥米炕”肆虐致美国儿童住院人数激增](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美儿童感染CCP病毒入院人数升至接近最高记录水平](/content/gnews/3/README.md)
  ` 澳喜特战旅Gnews`
 
-### [做一个自豪的新中国联邦人](/content/gnews/2/README.md)
+### [做一个自豪的新中国联邦人](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [澳洲新南威尔士地区新增CCP病毒感染一夜间翻倍至两万](/content/gnews/3/README.md)
+### [澳洲新南威尔士地区新增CCP病毒感染一夜间翻倍至两万](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共两高发布司法解释严惩销售过期食品回收食品](/content/gnews/4/README.md)
+### [中共两高发布司法解释严惩销售过期食品回收食品](/content/gnews/6/README.md)
  ` 儒为`
 
-### [澳洲媒体报道：澳洲审查中共国与达尔文港租约](/content/gnews/5/README.md)
+### [澳洲媒体报道：澳洲审查中共国与达尔文港租约](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [中共国打击加密货币后泰国挖矿兴起](/content/gnews/6/README.md)
+### [中共国打击加密货币后泰国挖矿兴起](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [意大利药剂师在网上发布“92%的阳性是接种过新冠疫苗”的视频之后受到审查和惩罚。](/content/gnews/7/README.md)
+### [意大利药剂师在网上发布“92%的阳性是接种过新冠疫苗”的视频之后受到审查和惩罚。](/content/gnews/9/README.md)
  ` xiaobaige`
 
-### [12/31每日播报｜美国卫生专家称Omicron变种造成的风暴将在一月席卷美国](/content/gnews/8/README.md)
+### [12/31每日播报｜美国卫生专家称Omicron变种造成的风暴将在一月席卷美国](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美俄首脑本月二度通话，对乌克兰仍未达成共识](/content/gnews/9/README.md)
+### [美俄首脑本月二度通话，对乌克兰仍未达成共识](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [彼得·麦卡洛博士：应废除疫苗授权](/content/gnews/10/README.md)
+### [彼得·麦卡洛博士：应废除疫苗授权](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [雪崩前最后那一片“无辜”的雪花](/content/gnews/11/README.md)
+### [雪崩前最后那一片“无辜”的雪花](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [先是缺PPE再缺呼吸机 如今医院人手短缺](/content/gnews/12/README.md)
+### [先是缺PPE再缺呼吸机 如今医院人手短缺](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西安智飞疫苗让西安“忍饥挨饿”](/content/gnews/13/README.md)
+### [西安智飞疫苗让西安“忍饥挨饿”](/content/gnews/15/README.md)
  ` wenwu`
 
-### [全球央行加息会对中共带来何种影响](/content/gnews/14/README.md)
+### [全球央行加息会对中共带来何种影响](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [[ 聚焦港澳 ] 中共在香港推行南京大屠杀教育背后的阴谋](/content/gnews/15/README.md)
+### [[ 聚焦港澳 ] 中共在香港推行南京大屠杀教育背后的阴谋](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [奥米炕病毒起源：怎么没有人讨论这个问题？](/content/gnews/16/README.md)
+### [奥米炕病毒起源：怎么没有人讨论这个问题？](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [辉瑞与中共国疫苗护照平台合作，承认“自豪地与中共国领导人站在一起”](/content/gnews/17/README.md)
+### [辉瑞与中共国疫苗护照平台合作，承认“自豪地与中共国领导人站在一起”](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [历史性秘密会议：香港神职人员给习神打工](/content/gnews/18/README.md)
+### [历史性秘密会议：香港神职人员给习神打工](/content/gnews/20/README.md)
  ` wenwu`
 
-### [7·24系列——谁发起了《2022财政年度国防授权法》](/content/gnews/19/README.md)
+### [7·24系列——谁发起了《2022财政年度国防授权法》](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国的水资源正被伪政府耗尽](/content/gnews/20/README.md)
+### [中共国的水资源正被伪政府耗尽](/content/gnews/22/README.md)
  ` wenwu`
 
-### [台国防部侦测今年中共军机扰台 创纪录940架次](/content/gnews/21/README.md)
+### [台国防部侦测今年中共军机扰台 创纪录940架次](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚，请不要被中共国的鹰派人物吓倒](/content/gnews/22/README.md)
+### [澳大利亚，请不要被中共国的鹰派人物吓倒](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [不要把唱歌作为谋生饭碗不要为取悦他人而唱别唱口水歌](/content/gnews/23/README.md)
+### [不要把唱歌作为谋生饭碗不要为取悦他人而唱别唱口水歌](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [音乐是和懂你的人在交流和你的灵魂在交流和上帝在交流](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/25/README.md)
+### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/26/README.md)
+### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/27/README.md)
+### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【#G时新闻】新的研究表明MRNA疫苗助长奥米克戎的感染](/content/gnews/28/README.md)
+### [【#G时新闻】新的研究表明MRNA疫苗助长奥米克戎的感染](/content/gnews/29/README.md)
  ` G-时新闻`
 
-### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/29/README.md)
+### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/30/README.md)
+### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/31/README.md)
+### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共军方在西藏用军用机器人充当士兵](/content/gnews/32/README.md)
+### [中共军方在西藏用军用机器人充当士兵](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [12/31每日播报｜新闻简讯:何韵诗获保释 张庭夫妇公司被调查 “奥米炕”病毒变种大爆发](/content/gnews/33/README.md)
+### [12/31每日播报｜新闻简讯:何韵诗获保释 张庭夫妇公司被调查 “奥米炕”病毒变种大爆发](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [南非取消了新冠病毒宵禁令](/content/gnews/34/README.md)
+### [南非取消了新冠病毒宵禁令](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/35/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？](/content/gnews/36/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？](/content/gnews/37/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|中共疫情下的人生百态——J先生回国探父之路](/content/gnews/38/README.md)
+### [有声|中共疫情下的人生百态——J先生回国探父之路](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [有声|物资短缺 大量西安民众深夜求救](/content/gnews/39/README.md)
+### [有声|物资短缺 大量西安民众深夜求救](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/40/README.md)
+### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [有声|中国移动CMLink业务退出加拿大](/content/gnews/41/README.md)
+### [有声|中国移动CMLink业务退出加拿大](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|西安出血热-疫苗后遗症](/content/gnews/42/README.md)
+### [有声|西安出血热-疫苗后遗症](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [德媒：中共国有个新毛泽东](/content/gnews/43/README.md)
+### [德媒：中共国有个新毛泽东](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员帕特·法伦:中共国是这个国家今天面临的最大威胁](/content/gnews/44/README.md)
+### [众议员帕特·法伦:中共国是这个国家今天面临的最大威胁](/content/gnews/45/README.md)
  ` 美国政要直译推`
-
-### [习近平为奥运疯狂撒币，恐换来寂寞愁留守空房](/content/gnews/45/README.md)
- ` YALUN 亚伦`
 
 ### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

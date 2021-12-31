@@ -2,32 +2,27 @@
 ---
 
 
-## 中共军方在西藏用军用机器人充当士兵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
+## 美韩两国就正式结束朝鲜战争宣言草案达成协议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807622/)
 
-纽约香草山 信息部 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
-12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
-自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
+#### 撰稿：彩虹
 
-分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-54.jpg)
+12月30日，《国会山报》报道说，周三，韩国最高外交官表示，就正式结束朝鲜战争的宣言草案，美国和韩国已经“有效地”达成了协议。
 
-新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
+朝鲜战争停战协议于1953年7月签署，结束了1950年北朝鲜军队入侵南朝鲜时开始的战争，但是，结束战争的正式和平条约却从未签署。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
+《韩国联合通讯社》说，对于正式结束战争的谈判，朝鲜方面一直没有回应。
 
-总编/编辑：Irene木木
+该通讯社报道，周三，韩国外交部部长郑义溶（Chung Eui-yong）告诉记者，韩国和美国在结束战争的重要性上“已经达成共识”。
 
-校正/发稿：浪迹天涯
+郑义溶说：“关于结束战争的宣言，韩国和美国已经对其重要性有了共同的理解，双方已经就其草案文本有效地达成了协议”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
+**新闻来源**
+
+[South Korea ‘effectively’ reaches agreement with US to end Korean war](https://thehill.com/policy/defense/587747-south-korea-effectively-reaches-agreement-with-us-to-end-korean-war)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,56 @@
 ---
 
 
-## 美韩两国就正式结束朝鲜战争宣言草案达成协议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807622/)
+## 法国外长声援香港异议人士呼吁尊重新闻自由
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807677/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-31.jpg)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-54.jpg)
-12月30日，《国会山报》报道说，周三，韩国最高外交官表示，就正式结束朝鲜战争的宣言草案，美国和韩国已经“有效地”达成了协议。
+作者：纽约香草山 医疗部 云豹
 
-朝鲜战争停战协议于1953年7月签署，结束了1950年北朝鲜军队入侵南朝鲜时开始的战争，但是，结束战争的正式和平条约却从未签署。
 
-《韩国联合通讯社》说，对于正式结束战争的谈判，朝鲜方面一直没有回应。
 
-该通讯社报道，周三，韩国外交部部长郑义溶（Chung Eui-yong）告诉记者，韩国和美国在结束战争的重要性上“已经达成共识”。
 
-郑义溶说：“关于结束战争的宣言，韩国和美国已经对其重要性有了共同的理解，双方已经就其草案文本有效地达成了协议”。
 
-**新闻来源**
 
-[South Korea ‘effectively’ reaches agreement with US to end Korean war](https://thehill.com/policy/defense/587747-south-korea-effectively-reaches-agreement-with-us-to-end-korean-war)
+
+
+
+法国外长于当地时间12月30日，回答记者提问时表示，非常关切香港的新闻言论自由，并呼吁香港政府遵守基本法高度自治的原则。
+
+香港政府于12月29日拘捕曾参与「立场新闻」运作的6位重要成员，指控他们涉嫌「串谋发布煽动刊物罪」。「立场新闻」在2021年11月刚获得无国界记者组织（Reporters sans frontières）新闻自由奖的提名，是香港少数仅存的独立媒体，29日在重要成员被拘捕后，已经宣布停止运作。香港政府显然日益加强打击异议人士的拘捕行动，企图全面封杀香港的言论自由。
+
+法国国家科学研究中心（CNRS）研究主任、香港浸会大学中国政治专家高敬文（Jean-Pierre Cabestan）表示，这是香港政府对新闻自由的再次重击。他认为，香港政府此举的目的明显是要缩减中共与香港间的差距，让香港成为中共统治下众多城市中的一个。
+
+法国外交部表示，法国主张保护世界任何地区的媒体自由、言论自由，让记者及所有有利于自由的多元信息能公开辩论。并呼吁香港政府应保障行政区高度自治，以及尊重香港基本法中自由、法治与司法独立的原则。
+
+(本文为作者观点，不代表G NEWS立场)
+
+[参考连接]：
+
+&lt;[https://www.cna.com.tw/news/aopl/202112310013.aspx](https://www.cna.com.tw/news/aopl/202112310013.aspx)&gt;
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
