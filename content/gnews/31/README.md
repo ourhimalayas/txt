@@ -2,44 +2,32 @@
 ---
 
 
-## 川普宣称疫苗安全 遭支持者怒呛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1808848/)
+## 沃尔玛因下架新疆产品遭中纪委刊文警告
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1808859/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s9.jpg)图片来源：VOA
+据美国之音12月31日报道，中纪委周五官方刊文《山姆会员店恶意下架新疆产品：原则立场问题不容含糊》称，沃尔玛旗下的山姆会员店近期“恶意下架”所有新疆产品，并企图在关系中共国人民的原则问题上含糊其辞、蒙混过关，其背后藏有不可告人的目的，必将“自食恶果”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3B9ABA5B-8E1F-4331-BA1E-25E3F1293229.jpeg)（图片来自达志影像路透社）
+一些用户发帖称，沃尔玛的客服部门说，红枣、苹果等新疆产品已断货，是“库存”原因，美国沃尔玛发言人对此拒绝置评。本星期，中共国的社交媒体开始涌现山姆会员店“退卡潮”，包括中央电视台在内的官媒纷纷报道，评论指下架新疆商品是“吃饭砸锅”的行为。
 
-近日，美国前总统川普宣称COVID-19（中共病毒）疫苗安全，而且是他任内的一大成就，川普此番表态引其众多支持者不满。
+中纪委还指出，美国“反复借涉疆问题造谣生事，实质是打着人权的幌子搞政治操弄和经济霸凌”。美国科技巨头英特尔最近在给其供应商的一封公开信中要求他们不使用任何来自新疆的劳工、采购产品或服务，随即遭到中共国网民的批评。英特尔被迫向中共国公众公开致歉，称相关表述的初衷是确保遵守美国法律。
 
-据中央社报道，川普于19日接受Fox News主持人欧莱利（Bill O’Reilly）访问时表示，其已经接种疫苗加强针，但被观众报以一片嘘声。
+美国已认定中共政府对新疆地区信仰宗教的少数民族群体实施种族灭绝，拜登12月23日签署《防止强迫维吾尔人劳动法》使之正式生效成法，要求美国企业禁止采购新疆产品。如今中共已无力改变西方对其种族灭绝和强迫劳动的认定，在铁证如山的证据面前，中共只剩下了“战狼式”地嘶喊。
 
-尽管川普仍然表示反对拜登政府的疫苗强制令，但他对疫苗的表态仍然遭到了其大多数支持者的反对和不满。
-
-电台主持人亚历克斯·琼斯（Alex Jones）在他的节目中说，川普要么是“完全无知”，要么是“有史以来最邪恶的人之一”。
-
-他还表态称，是时候“抛开”川普了，并声称把这位前总统的“丑事全抖出来”。
-
-另一位电台主持人、坚定的川普支持者韦恩·埃林·鲁特（Wayne Allyn Root）说，川普在“每件事上都是对的”，除了疫苗以外。
-
-42岁的麦克林（Daniel McLean） 受访时说：「我再也无法支持他。」麦克林本人没有接种疫苗，并表示有数以千计的人因接种疫苗而死。
-
-有评论称，川普此时对疫苗做出错误的表态，可能和其新筹建的社交媒体平台“真实社交”（TRUTH Social）背后的中共特务有关，川普可能已成中共“政治木偶”。
-
-日前，新中国联邦创始人郭文贵在10月24日GTV大直播中爆料称，与川普筹建的新社交媒体平台“真实社交”（TRUTH Social）公司合并的SPAC和DWAC等公司和中国共产党特务吴征均有关系，这场交易是存在共产党深层资本和间谍参与其中的连环操作。
-
-*参考链接：*
-
-1. [*https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters*](https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters)
-2. [*https://gtv.org/video/id=617551cfeadeb11f5e79f5d5*](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+- 新闻参考链接：[https://www.voachinese.com/a/china-walmart-xinjiang-20211231/6376859.html](https://www.voachinese.com/a/china-walmart-xinjiang-20211231/6376859.html)
+- 《山姆会员店恶意下架新疆产品：原则立场问题不容含糊》链接：[https://www.ccdi.gov.cn/yaowenn/202112/t20211231\_161594\_m.html](https://www.ccdi.gov.cn/yaowenn/202112/t20211231_161594_m.html)
 
 
 * * *
 
-*素材采编：Kevin wang*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑：青城道姑*
 
-*发布：miumiu*
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

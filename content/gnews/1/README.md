@@ -2,90 +2,93 @@
 ---
 
 
-## HBO及VICE的采访, 其背后绝不是共产党一家行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
+## 给中共送葬活动，只针对习、王、孟、江四大家族
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809519/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
-[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
+[https://gtv.org/video/id=61ce7afcfb16a93456bfa52b](https://gtv.org/video/id=61ce7afcfb16a93456bfa52b)
 
-郭文贵
-Miles Guo
+**郭文贵
+Miles Guo**
 
-这个阴毒之狠
-Such cruel of this evilness
+今年的送棺材，给共产党送棺材的活动
+This year’s action of sending coffins to the Communist Party
 
-大家想到这个HBO、VICE的时候
-When everyone talks about HBO and VICE
+咱只对习、王、孟、江.就对这四个，其他人一概不参与
+We are only interested in the four families of Xi, Wang, Meng and Jiang, but no one else
 
-我就要回答刚才回答你们（问的）最重要的问题
-I would like to answer the most important question you have asked just now
+我刚才给他说我们不参乎任何人
+I just told him that we are not involved with anyone else
 
-这一次的采访和背后的动机绝不是一个共产党一个人玩的
-This interview and the intention of it were definitely not just the CCP alone to manipulate
+习、王、孟、江，就是相信风水的人，咱就给他送风水
+Xi, Wang, Meng and Jiang are the ones who believe in feng shui, so we will send them the feng shui
 
-你看它背后的股东你就能看得出来
-You would realize that by looking at the shareholders behind it (the interview),
+他给咱搞巫术的，咱也给他来巫术，是吧？
+People who gives us witchcraft, we also give that person witchcraft, right?
 
-单伟建、索罗斯、迪斯尼、BlackStone，
-Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
+而且这个棺材板上，咱就定这些人，其他人不定
+And on the coffin board, we will target these people, but not the others.
 
-全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
-This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
+这个棺材板一定要施巫术啊
+We have to do witchcraft on the coffin board
 
-没有几个战友能看清楚这个本质的
-There are only a few comrades-in-arms that could clearly see this essence of it
+那个巫术里面，比如那个流血泪
+Like the blood tears
 
-我再问你这时候
-I’m asking you again this time, Xiaoxin
+鬼流血泪是啥你知道吗？
+Do you know what means a ghost shedding tears of blood?
 
-你想想小新，如果我不接受采访，它会怎么干这事儿？
-Think about it, what would they do if I didn’t accept their interview?
+就像那个自杀的，就那个人穿着红衣裳一样
+For example, the person who committed suicide, and the person who committed suicide was wearing a red dress
 
-绝不是给你编辑编辑（就播）出来
-They would absolutely not just edit and broadcast out
+他永远是，他是厉鬼啊，他不投胎的
+He (or she) will always be an evil spirit, he (or she) is not going to be reincarnated
 
-会给你玩得更恐怖、更大
-Instead, they would play bigger and more miserable
+他跟你没完没了
+He will never end with you
 
-而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
-And you may see that they already have eyes on snake demon Yan and Lude
+所以要把厉鬼啊
+That’s why we have to put the evil ghost
 
-就要（用）这俩人、就用你曾经说的话、用你的人来干你
-They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
+鬼流血泪的鬼是不投胎的，是要跟你玩到底的
+A ghost with tears of blood will not be reincarnated. It will never end
 
-用你的蛇来咬你
-and your snakes to bite you
+要把这些人都给他弄上去
+We have to get all these people to the coffin.
 
-这不是一般的行动
-This is not a normal action
+咱现在就对这四大家族了，习、王、孟、江
+Let’s take on these four families, Xi, Wang, Meng and Jiang
 
-这跟七哥几个月以前说的
-This is what I said a few months ago
+刚才我给他说了
+Just now I told him
 
-我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
-I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
+我说（你们）放心，转告，转告啊
+I said, “Don’t worry, tell everyone, tell everyone
 
-都兑现了吧？
-Haven’t all these fulfilled my words?
+绝对不对任何人，不对现在法院的人，
+Absolutely not to anyone, not to the court now
 
-谢谢，我先说到这
-Thank you, and I’ll stop my words here
+也不对大连的这个人，也不对三中院的人
+Not to the people of Dalian, not to the people of the Third Central Court
 
-* * *
+不管你们，只对习、王、孟、江啊，只涉及他们，
+I don’t care about you, only involve Xi, Wang, Meng and Jiang.”
 
-Date: 12/25/2021
-原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
-Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
-原视频日期：2021/12/24
-原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
-任务编号：KC379(3347)
-视频时间段 : 0:00-01:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 文新
+新中国联邦一定会赢
+The new Federal State of China will definitely win
+
+Date:12/20/2021
+原视频标题: 给中共送葬活动，只针对习、王、孟、江四大家族
+Funeral activities for the Communist Party, only for the four families of Xi, Wang, Meng and Jiang
+原视频日期：2021/12/17
+原视频链接:**[https://gettr.com/post/pk255k345f](https://gettr.com/post/pk255k345f)**
+任务编号：KC381(3279)
+视频时间段 : 0:00-01:10
+中听校：洛杉矶盘古农场 -Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+发布 : 洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
