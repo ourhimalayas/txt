@@ -15,107 +15,107 @@
 
 ---
 
-### [两项研究展示新证据证明新冠疫苗“导致的疾病多于其预防”](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [辉瑞公司与中共国透过支付宝深度合作](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班](/content/gnews/2/README.md)
+### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [明年风水龙虎斗主角](/content/gnews/3/README.md)
+### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [两项研究展示新证据证明新冠疫苗“导致的疾病多于其预防”](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [明年风水龙虎斗主角](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈新中国联邦宣言：保护动物（2021-12-29摘录）](/content/gnews/4/README.md)
+### [七哥谈新中国联邦宣言：保护动物（2021-12-29摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [拜登和中共国因新的“武汉实验室”变成合作伙伴](/content/gnews/5/README.md)
+### [拜登和中共国因新的“武汉实验室”变成合作伙伴](/content/gnews/8/README.md)
  ` wenwu`
 
-### [七哥谈可怜可恨的中国人（2021-12-29摘录）](/content/gnews/6/README.md)
+### [七哥谈可怜可恨的中国人（2021-12-29摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈国家民族的悲哀（2021-12-29摘录）](/content/gnews/7/README.md)
+### [七哥谈国家民族的悲哀（2021-12-29摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [家庭反洗脑序列-第42篇 气味](/content/gnews/8/README.md)
+### [家庭反洗脑序列-第42篇 气味](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈中国60岁夫妻生孩子（2021-12-29摘录）](/content/gnews/9/README.md)
+### [七哥谈中国60岁夫妻生孩子（2021-12-29摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥谈西安的鸡毛信（2021-12-29摘录）](/content/gnews/10/README.md)
+### [七哥谈西安的鸡毛信（2021-12-29摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/11/README.md)
+### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥谈坦桑尼亚派学生（2021-12-29摘录）](/content/gnews/12/README.md)
+### [七哥谈坦桑尼亚派学生（2021-12-29摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈中共捐款（2021-12-29摘录）](/content/gnews/13/README.md)
+### [七哥谈中共捐款（2021-12-29摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [造神运动的无耻谎言《每日一习话》](/content/gnews/14/README.md)
+### [造神运动的无耻谎言《每日一习话》](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [夕阳杂谈 西安真相](/content/gnews/15/README.md)
+### [夕阳杂谈 西安真相](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [谁来拯救你，活在新闻联播里的人们](/content/gnews/16/README.md)
+### [谁来拯救你，活在新闻联播里的人们](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [香港立场新闻被警方查抄，一名加拿大人被捕](/content/gnews/17/README.md)
+### [香港立场新闻被警方查抄，一名加拿大人被捕](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [HBO及VICE的采访, 其背后绝不是共产党一家行动](/content/gnews/18/README.md)
+### [HBO及VICE的采访, 其背后绝不是共产党一家行动](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [南非,英国4/5的死亡者 系接种疫苗接种者](/content/gnews/19/README.md)
+### [南非,英国4/5的死亡者 系接种疫苗接种者](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [历史性判决：拒绝打新冠疫苗的护士重返工作岗位](/content/gnews/20/README.md)
- ` xiaobaige`
-
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/21/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/22/README.md)
+### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/23/README.md)
+### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/24/README.md)
+### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/25/README.md)
+### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/26/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/28/README.md)
  ` wenwu`
 
-### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/27/README.md)
+### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/28/README.md)
+### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/30/README.md)
  ` 秘密翻译组金融团队`
 
-### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/29/README.md)
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [病理结果显示，接种疫苗后死亡的人中有93%是被疫苗杀死](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12/31/21 香港快讯 香港今个财政年度首8个月赤字658亿港元](/content/gnews/32/README.md)
+### [12/31/21 香港快讯 香港今个财政年度首8个月赤字658亿港元](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [拜登政府宣布将解除对非洲八国的旅行禁令](/content/gnews/33/README.md)
+### [拜登政府宣布将解除对非洲八国的旅行禁令](/content/gnews/34/README.md)
  ` GTV新闻访谈`
-
-### [沃尔玛因下架新疆产品遭中纪委刊文警告](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/35/README.md)
  ` GTV新闻访谈`

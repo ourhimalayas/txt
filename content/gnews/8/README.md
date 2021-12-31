@@ -2,37 +2,37 @@
 ---
 
 
-## 家庭反洗脑序列-第42篇 气味
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1809632/)
+## 拜登和中共国因新的“武汉实验室”变成合作伙伴
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1809681/)
 
-作者：随风61
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-31-220315.jpg)图片来源 : google.es
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1978.png)
 
-我怎么会不记得这些呢?雨水打在泥土上湿湿的味道，面团发酵后散发着轻微的酸酸的味道，现在已更名为涂料而那时我们还将之称作大白的粉刷墙壁后的味道，在我小小的心里这些便是与繁荣、兴旺紧密联系在一起的。像肥皂，有些人闻出来怪怪的，我却格外喜欢。每每收回晾在院子中冻得咔咔作响，要使劲撕才能从铁丝杆上取下的用肥皂水洗过的衣服，挂在暖和的房间中，那种清冷、干净，分明就是妈妈身上的味道。于是我常爱把头靠在妈妈肩上，呼吸着妈妈身上淡淡的清香，安宁而快乐。
+最近发表的一篇论文显示，与中共病毒（新冠病毒、COVID-19）有关的武汉病毒研究所的研究人员与失宠的研究人员Peter Daszak的生态健康联盟（EcoHealth Alliance）对啮齿动物的”重组”新冠病毒，进行了新的研究；该论文将中共国政权以及乔·拜登的国际发展部（Joe Biden’s International Development）列为这项危险研究的资助者和支持者。
 
-蒸煮食物时的焦香味我也喜欢。平平地铺在锅底的米饭，薄薄的一层，有着金黄的颜色……水干后留在锅底的红薯的黏珍，颜色更是鲜艳得如同朝霞般灿烂。它们所散发出来的香气简直令人大快朵颐。
+10 月的[文件](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)——“一种新型的潜在重组的啮齿类动物新冠病毒，在其刺突蛋白中具有多碱基切位点（Polybasic Cleavage Site）”——描述了研究人员如何对从野外收集的啮齿类动物和鼩鼱进行采样，以了解冠状病毒的流行情况。在 COVID-19 之前的几年里，武汉病毒研究所进行了类似的考察，以收集有关蝙蝠的[数据](https://thenationalpulse.com/2021/06/13/footage-reveals-live-bats-in-wuhan-lab/)。
 
-有的人闻了会头昏、头痛的味道，我也百闻不厌，如油漆、汽油的味道。家中经常备有一小瓶汽油，爸爸用它来清理蹭上油渍的衣服。每次，我都会主动帮忙，并且故意放慢手脚，让汽油多多挥发，因为那刚烈鲜明的气味，给我一种“催人奋进”的感觉。
+武汉实验室的研究人员与美国非营利性的生态健康联盟合作，利用收集的样本发现——他们吹嘘的“[杀手](https://thenationalpulse.com/2021/06/08/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)”病毒（COVID-19）能够“[直接](https://thenationalpulse.com/exclusive/wuhan-report-boasted-of-human-infecting-covid/)感染人类”。
 
-那时我总是认为时间就像认生字，只是没完没了的重复，那些好闻的味道也会如影随形，伴随我们一生。有了这些味道，我的一生，该会多么快乐呀。
+这篇新论文统计了来自七家中共国国有科学机构，其中包括一名隶属于武汉病毒研究所特殊病原体和生物安全实验室的[研究人员](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)；该篇新论文是由三名生态健康联盟的研究人员所撰写， 其中包括 CEO 彼得·达扎克 (Peter Daszak)。《国家脉动》此前已经透露了 Daszak 与中国共产党的关系非常广泛，促使他因利益冲突而从《柳叶刀》的COVID-19委员会[除名](https://thenationalpulse.com/2021/06/21/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)。
 
-很快，我有了自己的家并颇具规模，我努力按照自己的意愿生活着。洗手间、书房、卧室、厨房增添了许多新的气味，那是我儿时闻所未闻的味道。而儿时那些令我快乐的气味，有的消失了，有的悄悄变了味儿，能使我安静下来的肥皂味儿被浓烈刺鼻的洗衣粉替代了，油漆、汽油的味道也不再“纯正”了……
+“在这项研究中，我们测试了从中国南方城市和农村地区收集的近 300 只啮齿类动物，”该论文总结了其方法，得出以下结果：在这里，我们从中国南方的三个城市取样了297只啮齿类动物和鼩鼱，代表8个物种。我们报告广州和桂林的新冠病毒流行率分别为23.3%和0.7%，城市地区的样本新冠病毒流行率明显高于农村地区的样本。我们从诺维谷鼠（Rattus norvegicus）中获得了三个冠状病毒基因组序列，包括一种贝特科罗纳病毒（Betacoronavirus，rat coronavirus，大鼠冠状病毒[COV]GCCDC3）、一种阿尔法科罗纳病毒（Alphacoronavirus，RCOV-GCCDC5）和一种新型贝特科罗纳病毒（novel Betacoronavirus，RCOV-GCCDC4）。重组分析表明，有一个潜在的重组事件涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和 Longquan Rl 大鼠冠状病毒（LRLV）。
 
-面没了面味儿，米没了米味儿，瓜果没了瓜果味儿……孩子们再也不知道什么是稻米飘香，也不再闻到蔬菜的清香……取而代之的是一些陌生的、暂时的味道。我不知道，什么时候，它们就会像时间一样溜走……
+“重组分析表明，存在一个涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和Longquan Rl 大鼠冠状病毒（LRLV）的潜在重组事件。此外，我们在RCOV-GCCDC4的刺突（S）蛋白中发现了一个多碱基切位点RARR，它在RCOV中占主导地位，”论文补充说。
 
-不再如从前的不仅仅是气味。人与人之间的关系也在日复一日的纠缠，头脑日复一日地复杂。从奔驰轿车里探出的目光，紧紧盯着衣服破旧的老妇人手中的杆秤，为了所买的瓜子，颗颗计较。乞丐演变成了一种职业，善良的人们无法分辨真假乞丐。有人告诉我一种方法：“如果他要钱，你就给他个馒头；如果他要馒头，你就给他些钱……”我觉得很有些道理。突然中风倒地的老人，没人敢扶，害怕做好事反被讹诈，就算长一百张嘴也说不清。公交车里的老头，因为年轻姑娘不让座，一屁股坐在年轻姑娘的身上……
+该论文的财政支持者中有几个中国共产党管理的科学机构，包括那些与该中共军方有[联系](https://thenationalpulse.com/2021/06/21/nih-signed-mou-with-chinese-science-org-funding-pla/)的机构。乔·拜登总统的美国国际开发署（USAID，[如下图](https://www.scribd.com/document/550016400/JVI-01173-21)）也资助了武毒所研究的实地动物采样部分。
 
-人心中的最污秽、最腐败的暗角，在中共国败坏的社会制度下都充分的表现出来。一个没有信仰，不辨真假，不识善恶，不知美丑的民族，不用谁去灭你，你会活活的把自己勒死在自己下的套中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1982.png)
 
-我开始怀念那清新、快乐、怪怪的气味，和那气味背后纯净的灵魂。儿时的种种记忆一刹那遥远如前生，只有记忆中各种各样气味依然清晰，使我安静、沉醉……
+新闻来源：[thenationalpulse.com] [Biden and China Are Partners in a New Wuhan Lab, EcoHealth Hunt for ‘Recombinant’ Rodent Coronaviruses.](https://nypost.com/2021/12/28/chinese-residents-starving-as-worlds-strictest-covid-lockdown-bans-them-leaving-home/) | 发布时间：2021年12月31日
 
 * * *
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-2.jpeg)
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

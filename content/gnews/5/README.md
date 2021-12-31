@@ -2,35 +2,41 @@
 ---
 
 
-## 拜登和中共国因新的“武汉实验室”变成合作伙伴
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1809681/)
+## 因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1809735/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-34.png)
+据《路透社》报道，因恶劣天气和奥米克戎（Omicron）变体病例的上升，截至美国东部时间14点（格林尼治标准时间19点），美国境内、进入或离开美国的航班取消了1034架次，有2694个航班延误，这是航班取消的第五天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1978.png)
+周一，太平洋西北地区的大雪天气导致超过110个原定在西雅图-塔科马机场降落的航班被取消。
 
-最近发表的一篇论文显示，与中共病毒（新冠病毒、COVID-19）有关的武汉病毒研究所的研究人员与失宠的研究人员Peter Daszak的生态健康联盟（EcoHealth Alliance）对啮齿动物的”重组”新冠病毒，进行了新的研究；该论文将中共国政权以及乔·拜登的国际发展部（Joe Biden’s International Development）列为这项危险研究的资助者和支持者。
+感染率上升导致飞行员和机舱人员隔离，也迫使许多航班被取消。
 
-10 月的[文件](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)——“一种新型的潜在重组的啮齿类动物新冠病毒，在其刺突蛋白中具有多碱基切位点（Polybasic Cleavage Site）”——描述了研究人员如何对从野外收集的啮齿类动物和鼩鼱进行采样，以了解冠状病毒的流行情况。在 COVID-19 之前的几年里，武汉病毒研究所进行了类似的考察，以收集有关蝙蝠的[数据](https://thenationalpulse.com/2021/06/13/footage-reveals-live-bats-in-wuhan-lab/)。
+疾病预防控制中心周一表示，如果受感染的美国人没有症状，隔离时间从之前的10天缩至5天。此举可帮航空公司和其他企业缓解人员短缺问题。
 
-武汉实验室的研究人员与美国非营利性的生态健康联盟合作，利用收集的样本发现——他们吹嘘的“[杀手](https://thenationalpulse.com/2021/06/08/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)”病毒（COVID-19）能够“[直接](https://thenationalpulse.com/exclusive/wuhan-report-boasted-of-human-infecting-covid/)感染人类”。
+美国航空公司达美航空（DAL.N）表示，预计周二，将取消原预定4133个班次中的250多架航班。并表示，正努力重新安排路线并替代一些飞机。
 
-这篇新论文统计了来自七家中共国国有科学机构，其中包括一名隶属于武汉病毒研究所特殊病原体和生物安全实验室的[研究人员](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)；该篇新论文是由三名生态健康联盟的研究人员所撰写， 其中包括 CEO 彼得·达扎克 (Peter Daszak)。《国家脉动》此前已经透露了 Daszak 与中国共产党的关系非常广泛，促使他因利益冲突而从《柳叶刀》的COVID-19委员会[除名](https://thenationalpulse.com/2021/06/21/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)。
+阿拉斯加航空公司表示，已取消170个网上预定航班，并警告整个星期会有更多航班取消和延误。周三、周四，将西雅图出发航班减少约20%，以便有更多时间为飞机除冰，这是在冬季天气中的一项要求。
 
-“在这项研究中，我们测试了从中国南方城市和农村地区收集的近 300 只啮齿类动物，”该论文总结了其方法，得出以下结果：在这里，我们从中国南方的三个城市取样了297只啮齿类动物和鼩鼱，代表8个物种。我们报告广州和桂林的新冠病毒流行率分别为23.3%和0.7%，城市地区的样本新冠病毒流行率明显高于农村地区的样本。我们从诺维谷鼠（Rattus norvegicus）中获得了三个冠状病毒基因组序列，包括一种贝特科罗纳病毒（Betacoronavirus，rat coronavirus，大鼠冠状病毒[COV]GCCDC3）、一种阿尔法科罗纳病毒（Alphacoronavirus，RCOV-GCCDC5）和一种新型贝特科罗纳病毒（novel Betacoronavirus，RCOV-GCCDC4）。重组分析表明，有一个潜在的重组事件涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和 Longquan Rl 大鼠冠状病毒（LRLV）。
+美国疾病控制和预防中心周二表示，目前没有考虑政府最高传染病专家安东尼-福奇博士前一天的建议，即对国内航班强制接种疫苗。
 
-“重组分析表明，存在一个涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和Longquan Rl 大鼠冠状病毒（LRLV）的潜在重组事件。此外，我们在RCOV-GCCDC4的刺突（S）蛋白中发现了一个多碱基切位点RARR，它在RCOV中占主导地位，”论文补充说。
+根据路透社的统计，在过去七天里，美国的COVID-19新病例平均上升了55%，每天超过20.5万例。
 
-该论文的财政支持者中有几个中国共产党管理的科学机构，包括那些与该中共军方有[联系](https://thenationalpulse.com/2021/06/21/nih-signed-mou-with-chinese-science-org-funding-pla/)的机构。乔·拜登总统的美国国际开发署（USAID，[如下图](https://www.scribd.com/document/550016400/JVI-01173-21)）也资助了武毒所研究的实地动物采样部分。
+备注：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1982.png)
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒COVID-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-新闻来源：[thenationalpulse.com] [Biden and China Are Partners in a New Wuhan Lab, EcoHealth Hunt for ‘Recombinant’ Rodent Coronaviruses.](https://nypost.com/2021/12/28/chinese-residents-starving-as-worlds-strictest-covid-lockdown-bans-them-leaving-home/) | 发布时间：2021年12月31日
 
-* * *
+[新闻来源链接](https://www.reuters.com/business/aerospace-defense/delta-air-lines-cancel-over-250-flights-2021-12-28/)
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
 
 
  

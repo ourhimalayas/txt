@@ -2,36 +2,31 @@
 ---
 
 
-## 夕阳杂谈 西安真相
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1809531/)
+## 七哥谈坦桑尼亚派学生（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809605/)
 
-作者：纽约香草山健身部–文鹰
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-周五傍晚，夕阳垂暮。疲惫了一天，放下手边工作。步到室外，让身体舒展一下。放松心情后，经过人事部门口。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/美好-2.jpg)
+来源：郭先生2021-12-29直播08：59：08摘录
 
-“嗨，一直没见到你，有事想问你！”声音让我心里一惊。定眼一看，原来是人事部G经理隔门喊我。“什么事啊，”话音未落，我已踏入办公室。
+现在我们坦桑尼亚今年最大的成就就是往中国派学生。我说：你们派了多少男的？多少女的？大家去上网查一查，坦桑尼亚一个这么小的国家派出了400个男学生、一个女学生。就这个国家能把自己的儿女，能把自己的同胞送给外国人睡觉，中国历史上还真没有多少个。过去有什么？大汉朝、唐朝、宋朝，是吧？有质押质子是吧，大秦朝，把自己的公主、王子押过去，咱俩不战争，那是几个。我没见过以一国之力这么干的在历史上，我不懂啊。五胡乱华的时候我估计也没有这么乱吧，也没那么惨吧？在那你从欧洲这个事情看以后非洲，那你再看看普京。刚才再看到一个，你从冬奥会的经济现在到什么程度？
 
-“让打第三剂加强针了，你怎么看？”她微笑着问。望一眼，还有两个同事在，迅速的回答“不能打！”，“为什么？”我用事例告诉她，“我的岳父，今天是五七日子。他以前身体健康，就是8月份被强制接种两剂以后。感冒发烧没有嗅觉没有胃口，医院检查以后，心脏积液癌症晚期，不到两个月走了！”另外补充到：“咱们公司的一个离职B先生上一个月心梗走了，最近的Y经理刚刚脑梗还在ICU。”事实让他们感到惊诧。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“给钱打怎么样？”我望了下窗外的夕阳，“如果你不想看到明天的太阳，你就去吧。即使给十万，也卖不到生命啊。”随后，把文贵先生大直播，西安的真相告诉她们：西安疫情不是病毒原因，是地方主官为了政绩和利益勾结黑商，让老百姓接种的，都是250高剂量的疫苗，造成严重的“七窍出血”副作用！
+**关注我们**
 
-“你看一下疫苗的副作用”我用盖特截图，让她浏览了一通。“我不打了，不打了”，“你不打，也不要让你的家人去打啊。”她会意一笑“嗯”。         红日西落，心情舒畅。中共谎言，烟消云散。
+Discord 账号
 
-编辑/校对/发稿：菩提树
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+Gettr 账号
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
