@@ -2,27 +2,41 @@
 ---
 
 
-## 纽约州民主党再提限制言论议案
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807256/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807271/)
 
-采编：UCool 优酷         编译撰稿：文明(添草灭共)
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-3-edited.jpg)图片来源：TGW
 
+杰西: 我也可以继续展开讨论我们未来的计划，我们在未来会推出一个应用程序，Himalaya Pay App，而这个应用程序将会允许用户在我们的生态系统中互相收取和发送加密货币资产。用户可以透过这个APP，在我们生态系统里面的商店、餐厅和服务中进行最高效以及安全的交易。
 
-据美国自媒体【网关专家】12月28日报道，纽约州民主党正试图通过立法，以惩罚和压制那些反对当局疫情政策、疫苗接种及病毒感染治疗方案的人士。
+Himalaya Pay是一款支付App， 专門为用户提供移动钱包，让他们能在现实世界中以加密货币进行交易。
 
-报道称，该州民主党参议员霍伊曼此前提出一项新法案，旨在让社交媒体平台对“故意宣传虚假信息、暴力仇恨言论和其他可能伤害他人”的内容负责，并阻止可能危害公众安全健康及欺诈性医学理论的宣传。
+在Himalaya Exchange Web应用程序发布后，我们将会发布IOS和Andriod的手机版本。根据我们的发展蓝图，今年我们就会发布。
 
-为此，作为反对实施该议案的保守党人士则认为，它无疑是一项保护科技巨头免遭诉讼而控制和扼杀自由言论的非法议案。
+最后，在未来，我现在想谈的是真正的喜马拉雅生态系统。我们正在积极寻求与商家一起扩大这个生态系统。这将使我们的用户能够在这个生态系统中选择任何地方消费喜马拉雅币。
 
-本台编辑评论：任何法案都是“双刃剑”，因此相关司法认定必须避免“双重标准”。但如果以上法案最终能将那些虚假宣传疫苗安全有效、掩盖中共病毒真相和疫苗危害的科技巨头，以及无良媒体绳之以法，那该法案必将获得所有正义力量的全力支持。
+关于这个生态系统，我还想说的一点是，我们确实在销售点系统（POS）以及我们在世界各地的数据中心方面投入了大量资金。因此，我们的基础设施是坚实的，是为这些跨境全球支付设计的。
 
-* * *
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-校对编辑,，发稿：硫酸羟氯喹64
+编辑/校对/发稿：Hetangyuese
 
-原文链接：[https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/](https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/)
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

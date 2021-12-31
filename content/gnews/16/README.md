@@ -2,22 +2,36 @@
 ---
 
 
-## 中共因人气艺人和高层官员而逮捕网民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807378/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807395/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1919.png)[图片来源](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
-12月31日早间新闻消息：中共当局拘留了三男一女，说是因为他（她）们在互联网上散布虚假谣言，讲一位人气女演员和国家媒体的负责人有染。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-香港媒体上周报道，38岁的中共国当红女演员佟丽娅和54岁的中共中央电视台台长、中共中央宣传部副部长慎海雄已经再婚。佟丽娅在今年5月宣布离婚，但互联网上称两人有婚外情的帖子接连不断。之后，北京公安机关宣布，两名30多岁男子和一名40多岁妇女因散布相关通奸和再婚的虚假谣言被拘留。
 
-另外，佟丽娅的经纪公司在29日的声明中否认她有外遇或再婚。说佟丽娅现在是单身，从未有任何不道德行为。并表示已经向有关部门举报了这些恶意帖子。
+杰西: 就像我之前所提到的，首次发行是一个巨大的事件，喜马拉雅币一开始就有着巨大的需求，所有的HCN都已分配完毕，但我们仍收到许多来自潜在投资者的查询，表示有意购买HCN。
 
-信息来源：[「中国人気女優と国営メディア副部長が不倫」などとデマか　男女3人拘束（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
+关于未来的发行，为了应付潜在的需求增长，我们可能会在未来推出后续的HCN发行，但每年会有一个上限，为HCN的市场需求和价值增长提供支持。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+
+编辑/校对/发稿：Hetangyuese
+
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,52 @@
 ---
 
 
-## 中共警告不要在台湾问题上越过“红线”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807260/)
+## 各主要国家中共病毒新增确诊数创新高
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807289/)
 
-**翻译：文 扬**
-**编辑：李易通**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-25.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image01111111111.jpg)图片来源：**Foreign Affairs**
+作者：纽约香草山 医疗部 云豹
 
-北京誓言若台独势力“挑衅”，将采取“严厉措施”。
 
-中国国台办警告该自治岛不要推动独立，并承诺如果分裂势力越过“红线”阻止统一，将不退缩。
 
-负责执行北京与该岛有关政策的机构发言人马晓光星期三说，如果”台湾寻求独立的分裂势力挑衅、施压，甚至突破任何红线”，中国将“不得不采取严厉措施”。
+至当地时间12月30日止，各主要国家单日新增确诊人数，美国489,025人，英国221,250人， 法国206,243人， 意大利126,888人，皆创下中共病毒疫情以来的新高纪录。
 
-虽然这位发言人没有明确说明台北不应越过哪些“红线”，但他谴责了对中国事务的“外部干预”，包括对中国与该岛统一的尝试。发言人说，这种外国干涉，以及台湾自己的支持独立的力量的“挑衅”，在未来几个月内必将变得“更加尖锐和激烈”，他预测该地区已经紧张的局势将变得“更加复杂和严重”。
 
-马英九警告外国干涉时，似乎指的是美国及其盟国。 美国对台湾保持“战略模糊”，拒绝说明在台北与北京爆发全面军事冲突的情况下是否会部署军队，但华盛顿及其盟国已加强在该地区的军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron.jpg)
+完整疫苗接种率及第三剂追加疫苗接种率，美国 61.9%，20.6%；英国 70.4%，49.2%；法国 73.2%，31.6%；意大利 75%，30.7%。除了美国以外，皆已达到70%以上的覆盖率。
 
-10月，在白宫对其声明进行反驳之前，美国总统拜登甚至说，美国“致力于”保护台湾免受任何假设的中国攻击。五角大楼本月声称，中国“可能正在准备”对该岛的入侵。
+此次中共病毒疫情在各主要国家再次爆发突破新高，除了需注意Omicron变异株的传染性可能比之前的变异株更强大外，也更显示出疫苗的注射无法达到各国政府及药厂所宣传的预防效果。疫苗谎言再次被揭穿。
 
-与此同时，台北驳斥了北京的指责，坚称它一直奉行“不挑衅”北京的政策。在周三自己的声明中，它呼吁中国“认真反思其对台工作，并对形势做出正确判断”。
+(本文为作者观点，不代表G NEWS立场)
 
-虽然北京认为台湾是中国领土不可分割的一部分，但台北坚持认为台湾自1949年以来一直是一个独立的国家，当时中国内战的失败一方逃往该岛。
+参考连接：
 
-本月早些时候，中国外交部长王毅称台湾是“最终会回家”并与大陆统一的“流浪者”，同时指责华盛顿试图破坏台湾海峡的现状。
+&lt;[https://www.cna.com.tw/news/aopl/202112310023.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112310023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
 
-原文链接： [China warns against crossing ‘red lines’ in Taiwan — RT World News](https://www.rt.com/news/544753-china-warns-taiwan-lines/)
+&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&hl=zh\_hant\_hk&dcr=0&ei=\_XTOYfOkPLnfmAXm-62gAQ&ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=_XTOYfOkPLnfmAXm-62gAQ&amp;ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&amp;sclient=gws-wiz-serp)&gt;
 
-*发布：盘古相聚*
+&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&hl=zh\_hant\_hk&dcr=0&ei=NnjOYe\_4IbOGr7wP0fKk6Ao&ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=NnjOYe_4IbOGr7wP0fKk6Ao&amp;ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&amp;sclient=gws-wiz-serp)&gt;
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
