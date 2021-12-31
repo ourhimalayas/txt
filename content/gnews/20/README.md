@@ -2,41 +2,23 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807271/)
+## 中共正将生物病毒技术军事化
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807282/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+采编/翻译编撰：自由法兰西    校对编辑，发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-4.jpg)图片来源：DWNS
 
 
-杰西: 我也可以继续展开讨论我们未来的计划，我们在未来会推出一个应用程序，Himalaya Pay App，而这个应用程序将会允许用户在我们的生态系统中互相收取和发送加密货币资产。用户可以透过这个APP，在我们生态系统里面的商店、餐厅和服务中进行最高效以及安全的交易。
+据加拿大自媒体《反叛新闻》12月27日报道，中共当局正在将“基因改造、人体功能增强，精神控制及病毒武器”等新兴生物技术用于其军事战争及对外侵略。由于此举对国家安全构成了严重威胁，美国政府于12月对中共37家参与此类研究的生物技术公司实施了制裁。
 
-Himalaya Pay是一款支付App， 专門为用户提供移动钱包，让他们能在现实世界中以加密货币进行交易。
+报道称，中共早就开始使用包括面部及生物识别等技术，追踪监控所有持不同政见者、记者以及镇压少数民族和宗教团体等。并不惜一切代价取得各项技术突破，甚至为此使用各种残酷手段迫害自己的人民。
 
-在Himalaya Exchange Web应用程序发布后，我们将会发布IOS和Andriod的手机版本。根据我们的发展蓝图，今年我们就会发布。
+为此，美国商务部近日声称，美方将进一步采取有力行动，以遏制中共开发和利用军事生物技术给世界带来的威胁，并继续为打击该政权企图在全球的扩张而努力。
 
-最后，在未来，我现在想谈的是真正的喜马拉雅生态系统。我们正在积极寻求与商家一起扩大这个生态系统。这将使我们的用户能够在这个生态系统中选择任何地方消费喜马拉雅币。
+* * *
 
-关于这个生态系统，我还想说的一点是，我们确实在销售点系统（POS）以及我们在世界各地的数据中心方面投入了大量资金。因此，我们的基础设施是坚实的，是为这些跨境全球支付设计的。
-
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
-
-编辑/校对/发稿：Hetangyuese
-
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+原文链接:  [https://www.rebelnews.com/us\_officials\_warn\_china\_is\_militarizing\_brain\_machine\_interfaces\_gene\_editing\_mind\_control\_weapons](https://www.rebelnews.com/us_officials_warn_china_is_militarizing_brain_machine_interfaces_gene_editing_mind_control_weapons)
 
  
 
