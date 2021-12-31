@@ -2,66 +2,42 @@
 ---
 
 
-## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
+## 美国媒体揭露中国政府深入研究“脑战武器”多年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807048/)
 
-众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-
-
-> China is the greatest threat this country faces today – period. 
-> 
-> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
-> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1162844475-700x420-1.jpg)
 
 
-
-比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
-
-
-
-> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
-> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
+ 
+图片来源：Wang Zhao/AFP via Getty Images
 
 
+#### 编译：小红帽
 
-参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
+根据RT12月30日报道，美国媒体报道称，在过去几年里，**中国的一个研究机构一直忙于开发能够“麻痹”敌人而不是杀敌人的武器。**
 
+《华盛顿时报》翻译并分析了中国人民解放军2019年的三份报告，这些报告曾发表在官方军事报纸《解放军日报》上。这家美国报纸称说，这些文件 **“揭示了中国脑战研究的深度，并表明它已经进行了几年。”**
 
+“战争已经开始从追求摧毁身体转变为麻痹和控制对手，”《解放军日报》的一篇名为 “军事优势霸权概念的未来”的报道中写道。
 
-> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
+据《华盛顿时报》报道，中国的研究人员一直在研究 “将人类和机器结合起来，以实现增强人类生理和认知能力的目标”，并致力于研究大脑对大脑控制攻击的防御。
 
+商务部负责人吉娜·雷蒙多(Gina Raimondo)称，**中国政府利用生物技术和医疗创新 “追求对其人民的控制以及对少数民族和宗教团体成员的压制”**。发表在联邦登记册上的文件进一步声称，AMMS和相关机构 “**使用生物技术来支持中国的军事最终用途和最终用户，包括所谓的大脑控制武器”。**
 
+据《金融时报》援引一位美国高级官员的话说，**中国政府正在研究 “基因编辑、人类性能增强[和]脑机接口”**。中国当局拒绝所有这类说法，认为其“毫无根据”。
 
-众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+新闻来源：[US media reports claim China deep in ‘brain warfare research’ — RT World News](https://www.rt.com/news/544811-china-weapon-brain-research/)
 
+***发布：小红帽***
 
-
-> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
-> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
-
-
-
-> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
-> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
-
-
-
-> Biden must hold Communist China accountable for the origins of COVID-19.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

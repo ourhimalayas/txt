@@ -2,31 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月30日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807005/)
+## 安大略省增加了对护理院的限制措施
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807109/)
 
-作者：香草山翻译部
+采编：青青           编译撰稿：苦尽甜来 (文来）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5-edited.png)图片来源：TNH
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1230text-SC.png)
-校对：Stay文苑
+据加拿大【CTV新闻】12月28日报道，安大略省正在对长期护理院实施更严格的疫情限制规定，包括禁止普通访客进入护理院及院内居民出于社交目的日常活动。政府的以上措施将于 12 月 30 日凌晨生效。
 
-编辑：Stay文苑
+报道称，目前安省有 41 家长期护理院正在爆发“奥密克戎”疫情，该数字高于日前的 37 家，预计疫情还将继续恶化。
 
-发稿：Stay文苑
+据悉，该省养老护理院的84% 居民和 43% 的护理工人都已接种了“新冠病毒”疫苗加强剂。政府同时还表示：将继续密切监控这些护理院，并将在必要时调整防疫措施。
 
-视频参看：[12.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ce5c9fecc0b216cbb261ea)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
+校对编辑，发稿：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接： [https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233](https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233)
 
  
 

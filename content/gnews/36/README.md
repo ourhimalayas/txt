@@ -2,34 +2,40 @@
 ---
 
 
-## 英国一座5G手机信号发射塔再次失火
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1806785/)
+## 秦刚警告美方若容忍新中国联邦与美国极右中美必有一战
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807021/)
 
-By：喜国公民
-视频来自网络
-英国德比市一座5G手机信号发射塔发生火灾后，警方呼吁提供信息。有视频显示，燃烧发生在天线的顶部，从很远的地方都可以看到火势。
+**郭文贵先生：**秦刚更夸张的给美国提出了警告，如果美国允许美国极右组织，例如班农和我们中国人出来的一小撮犯罪分子，那就是咱新中国联邦，我估计就咱爆料革命呗！还有谁呀！现在已经形成的这种完全不可忽视的、危险的、影响中美关系的这一小撮人，这种国际政治气候，中美两国必有一战。
 
-警方怀疑有人对发射塔做了手脚，但表示火灾的原因尚不清楚。
+就是班农啊！刚才我给班农发信息，班农说这是怎么回事，就是班农和郭文贵新中国联邦就是你们，小王子、文耀、安平、雅阁就你们这些人，一小撮儿就跟美国极右分子，将引发中美大战，哇塞！咱也太重要了吧！我们都是一帮流氓、骗子、三秒、性无能，我们哪有这本事是不是，啥都没有，秦刚也太看重我们啦！
 
-这是这座发射塔在投入使用后第二次失火。在去年5月，就在它被架起的几天后，被人纵火。
+编辑整理：海贼王M.D.LUFFY；
 
-这并不是唯一的一座5G信号发射塔发生失火的案例。[据报道](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)，在英国有多达77座5G发射塔发生过类似的火灾。
+字幕文件制作：小满；
 
-同样，[在澳洲，也发生过类似的](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)[5G发射塔失火案件。警方发现，其中一些大火是由人为纵火照成的。](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
+视频制作及上传：Cindy；
 
-[有媒体报道](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)，这些纵火的组织或个人认为5G信号会传播新冠病毒。[也有报道认为](https://gnews.org/zh-hans/1804700/)，注射在人体中的新冠疫苗当中的石墨烯会接收手机天线的信号，使接种者产生急性辐射综合症。
+技术支持：文肺猫
 
-有人对5G信号发射塔进行纵火，体现了人们对当今的科学，权威，以及政客的不信任。尽管网络运营商承诺5G信号对人体的辐射低于规范要求，可人们还是尽量避免长时间把手机直接靠近耳部来接听电话，以避免头痛或产生脑瘤。
+G-News发布：小满；
 
-特别是在政府大规模强制实行新冠疫苗接种政策后，同时故意打压羟氯喹和伊维菌素等有效治疗药物，人们开始对科学和政客产生更多的质疑和不信任。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-信息来源：[5G coronavirus conspiracy theory leads to 77 mobile towers burned in UK, report says](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[5G fires: Australian mobile companies work with police to prevent arson attacks](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[Burning Cell Towers, Out of Baseless Fear They Spread the Virus](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](https://gnews.org/zh-hans/1804700/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

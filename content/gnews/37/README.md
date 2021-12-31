@@ -2,30 +2,31 @@
 ---
 
 
-## 新西兰将辅助新冠病毒重症患者自杀或安乐死
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1806744/)
+## GTV新闻访谈简报|2021年12月30日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807005/)
 
-#### 作者：加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-483.jpeg)The central
-据鸿声传媒12月29日报道，新西兰卫生部最近证实，不幸感染冠状病毒的重症患者，可能有资格获得辅助自杀或安乐死。
+作者：香草山翻译部
 
-新西兰卫生部进一步解释说，如果一个人在感染新冠病毒后被诊断活不到6个月，那么他就可以根据《EOLC法》即《生命终结选择法》的规定，有资格获得医生的辅助提前结束自己的生命。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
-至于患者能否活到6个月，则由主治医生（AMP）和独立医生决定。
 
-根据新西兰《天主教先驱报》报道，根据相关法律，医生每诊断一例安乐死都会收取1000美元的政府费用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-484.jpeg)Staypark 
-但新西兰1.6万名医生中仅有96人主动申请参与安乐死的资格，全国32家收容机构中仅有一家支持安乐死，其余31家表示反对安乐死，而且不会协助政府的辅助自杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1230text-SC.png)
+校对：Stay文苑
 
-英国医学教授芬莱男爵夫人指出，政府关闭了人们自由获得预防和治疗新冠病毒的途径，在他们奄奄一息时建议医生杀死他们，这已经颠覆了医学精神。
+编辑：Stay文苑
 
-显然，人们强烈关注的焦点是，医生能够百分之百准确预测新冠病毒患者的死亡时间吗？这些不幸的患者可以选择政府允许的医疗方案之外的治疗手段吗？比如用伊维菌素、硫酸羟氯喹等被证实有效的药物为自己预防或治疗？如果不能，新西兰政府的以上行为无异于蓄意谋杀。
+发稿：Stay文苑
 
-参考：
+视频参看：[12.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ce5c9fecc0b216cbb261ea)
 
-[Some Doctors To Be Paid $1,000+ Expenses When They Help COVID Patients Die](https://www.redvoicemedia.com/2021/12/some-doctors-to-be-paid-1000-expenses-when-they-help-covid-patients-die/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
 
-编辑/发文：Kent
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

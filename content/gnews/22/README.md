@@ -2,44 +2,39 @@
 ---
 
 
-## 普京收一千亿要带的四个哥们有三个泡汤普京自己犯腰痛
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807046/)
+## 有声|文革2.0时代将给百姓带来深重苦难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807155/)
 
-**郭文贵先生：**更重要的事情—普京，这次冬奥会，这回打他脸，我可以告诉你确切的消息，普京同志收了钱啦，也公开了，是吧！收到钱24小时公布，本人决定应约参加北京冬奥会！
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生在直播中透露，在拜习视频会议之后的四小时，中共公布了六中全会的第三个重大决议，即中共的“10个坚持”，其实质就是宣布中共国继续坚持一党专制的独裁，大搞皇帝制。同时，中共国内将全面停止经济改革开放，开始新的文化大革命。
 
-然后呢普京私下答应，私下答应习，我一定弄几个哥们儿去，谁谁谁，一、二、三、四的，四个人仨已经正式拒绝，绝对不去了，就普京的面子也不给，习的面子也不给。
+郭先生还提到，中共将即刻收回所有经济自由权，也就是说，私有企业会全部被收归国有，实行资本共产制。此后，中共会逐步跟世界经济脱钩、思想脱钩，实现真正的闭关锁国。
 
-普京，据说也玄乎，钱收了！普京说最近身体有点状态，不太好！我要到这个整个的什么索契，我可能要度一下假，治疗一段时间，腰后椎疼、后椎疼。
+郭先生表示，共产党的本质是毫无自信且崇洋媚外，因此，共产党对美国会越来越软。然而，通过这次六中全会，美国和西方将视中共为更大的威胁。
 
-哇！这对习打击太大了，如果是普京收了这1000亿最后不来，还一个哥们儿没带来，这相当于什么？哇塞！这个事儿太大了，听说在党的影响巨大。
+郭先生还警告说，在中共国，没有一个人是安全的——阿富汗的今天就是中国人的明天。大家要做好准备，灾难正在以光速降临在中国人头上。
 
-编辑整理：海贼王M.D.LUFFY；
+原文链接：[文革2.0时代将给百姓带来深重苦难](https://gnews.org/zh-hans/1674555/)
+音频处理：喜山必胜Maverick
 
-字幕文件制作：小满；
+发稿：Daxia
 
-视频制作及上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-技术支持：文肺猫；
+**更多资讯，更多关注**
 
-G-News发布：小满；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

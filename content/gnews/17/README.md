@@ -2,25 +2,39 @@
 ---
 
 
-## 安大略省增加了对护理院的限制措施
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807109/)
+## 有声|西安出血热-疫苗后遗症
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807193/)
 
-采编：青青           编译撰稿：苦尽甜来 (文来）
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+12月29日，郭文贵先生在最新一期大直播节目中爆料，近期西安爆发的出血热疫情实为当地市民接种某国产高剂量定制疫苗的后遗症。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5-edited.png)图片来源：TNH
+据郭先生爆料，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白含量是常规疫苗的5～8倍之多。此疫苗副作用极大，接种后具体表现即为“七窍流血”样的不良症状。
+
+后经盖特网友爆料，此品牌疫苗极有可能为中共国产的智飞龙马三针剂重组疫苗。该品牌疫苗在审批中仅有紧急使用权限。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克。而普通的国产科兴疫苗每针剂的抗原含量仅为3微克。
+
+原文链接：[西安出血热-疫苗后遗症](https://gnews.org/zh-hans/1804687/)
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-据加拿大【CTV新闻】12月28日报道，安大略省正在对长期护理院实施更严格的疫情限制规定，包括禁止普通访客进入护理院及院内居民出于社交目的日常活动。政府的以上措施将于 12 月 30 日凌晨生效。
-
-报道称，目前安省有 41 家长期护理院正在爆发“奥密克戎”疫情，该数字高于日前的 37 家，预计疫情还将继续恶化。
-
-据悉，该省养老护理院的84% 居民和 43% 的护理工人都已接种了“新冠病毒”疫苗加强剂。政府同时还表示：将继续密切监控这些护理院，并将在必要时调整防疫措施。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233](https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233)
 
  
 

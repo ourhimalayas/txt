@@ -2,44 +2,55 @@
 ---
 
 
-## 秦刚不是去建立友好关系的张骞而是在朝堂撒尿羞辱美国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807028/)
+## 健身部内聊写作，健身又健脑——农场健身部的冬日小景
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807112/)
 
-**郭文贵先生：**你去想想啊！美国人、美国人听到这些以后，美国什么样的感觉，这完全突破了一个外交官，这是完全宣战的，这真的是、这过去的、历史上最荒唐的，就是唐朝之后最荒唐的时候，什么时候说唐朝怎么没落了呢？大家去想想历史上，派来的外来使节，在大堂上尿尿，就证明大唐完了。
+作者：纽约香草山农场健身部–Jack Li文阳
+联合撰稿人：格格、童谣、文鹰、Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+周四，明天将是今年的最后一天，2021即将过去，纽约香草山农场洋溢着辞旧迎新的气氛，战友们的情绪都活跃起来了。
 
-就过去来进贡的人，上来以后说我憋不住了，我撒一泡尿，它是什么国家，就是今天的阿富汗，是吧！派来的使节，阿富汗尿了泡尿憋不住了，就是侮辱你吗！是不是，大唐结束。
+健身部Discord的Gnews写作组房间里，战友们把部里战友近期编写的Gnews文章贴了出来。这是健身部组长童谣的习惯，借此鼓励战友士气，也让大家可以互相借鉴学习，开拓眼界，发挥想象。
 
-今天的美国的，今天他来就是这个，这不是张骞到了学习东西来了，跟你建立关系来了，这是在羞辱你来啦。让美国人自己照照镜子去，我们不是战狼外交，我们是与狼共舞。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/雪.png)
 
-台湾的问题的本质，是你美国人的极少数分子和美国人卖军火、政治勾兑结果，在中国被种族大屠杀的不是新疆人是汉人，如果你们不把班农、郭文贵这帮人给消灭了，那我们就有一战，哇塞！你说这可怕不可怕。
+“健身部第一推手”格格姐随即报告，已经把战友们的Gnews文章都一一转发+点赞了，并表示已经录完部里文阳战友的原创叙事新闻了。她调皮的和战友开玩笑说：“不要和我重复啊。”
 
-编辑整理：海贼王M.D.LUFFY；
+Ivy001“大将”接着说：“格格姐，您的有声读物发表了吗？记得转给我们看喔，我们要一起点赞转发。”
 
-字幕文件制作：小满；
+童谣战友鼓励大家：“多写文章、做视频、发盖特、赚躺平币。各种形式包含文字、图片、视频、音频 ，GNEWS都能发表，我们在多平台一起传播。”
 
-视频制作及上传：Cindy；
+墙内战友W郁闷的说：“刚刚想写文章，偏偏停电了，这是720大水灾来第二次无症状停电了。明天去省学校接孩子回家，回来又要耽误时间写作了。”
+W战友接着说：“虽然没有写东西，传播真相每一天不会停止的。今天给公司的部门经理讲了西安的事情，让她打消了接种第三剂的念头，小小的成功吧！”（编者按：这哪里是小小成功，已经是相当成功了。）
 
-技术支持：文肺猫
+文阳战友：“这就是很好的题材，建议您写一篇文章。”
 
-G-News发布：小满；
+格格姐隔空伸出大拇指，鼓励说：“太棒了。” Ivy001“大将”接着说：“救人一命胜造七级浮屠，对呀，这个故事可以发原创新闻啦。”
+对于W战友提出如何写的问题，Ivy001“大将”提点道：“把您刚刚说的，加上日期，加点细节补充，就是一篇好新闻啦。字数不用太多150左右都可以哒。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+W战友说：“本来昨天是屠哟哟的91岁生日，又到了两本和她有关系的书。里边有PLA参与的活动，想总结出来一点东西。哎，只有在蜡烛下用手机给战友们挠挠字了，满开心的。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+文阳战友灵光一闪：“第二篇的灵感又有了，蜡烛下的您，就记录您现在的小事，一篇感人文就出来了。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+W战友说：“哈哈，感谢战友们的鼓励，有您们在，幸福满满的。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+童谣组长终于“总结”了：“战友们说的好“故事”是特别能看进去的一种，用聊天的方式，讲一件事情，想到哪说到哪，不用语法和措辞，就是一篇好文章。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+窗外、门外，CCP和黑暗势力在疯狂乱舞，全世界都受到病毒和假疫苗的威胁和残害。新中国联邦战友在烛光下，在冬日里，喝着热茶，敲着键盘，按着手机。我们畅谈理想，飞舞思绪，切磋文采，畅叙战友情谊，憧憬灭共后相聚的情节。这就是我们每天的生活，这就是新中国联邦人的幸福。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑/校对/发稿：菩提树
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.jpg)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**更多资讯，更多关注**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

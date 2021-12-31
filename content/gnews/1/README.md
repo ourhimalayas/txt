@@ -2,40 +2,30 @@
 ---
 
 
-## 有声|中国移动CMLink业务退出加拿大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807242/)
+## 被推特永久封禁，马龙博士继续在盖特揭示真相
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807313/)
 
-配音：香草山健身部 – 玫瑰园
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1918.png)图片来源：推特
+近日《大纪元》英文网报道，罗伯特·马龙（Robert Malone）博士因为反对为年轻、健康的人们及儿童接种中共病毒疫苗，推特（Twitter）日前已经永久停止了他的推特账号。
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+罗伯特·马龙博士是mRNA技术的关键设计师，他赞同并鼓励年长和有风险的美国人接种中共病毒疫苗。但是现在，他却成为了中共病毒疫情规定和条例的强烈批评者他建议年轻、健康的人应该质疑疫苗的使用。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+面对推特的永久封号，马龙博士参加了主持人格雷格·斯廷奇菲尔德（格雷格*Stinchfield*）的节目，他在节目中提到，他正在积极接受路透社的事实核查，他说路透社通过“内部关系”与疫苗生产商辉瑞公司有联系。同时，他会继续“告诉世人真相”。
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
+主持人格雷格·斯廷奇菲尔德问这位疫苗的发明者：“他们对你称这些mRNA疫苗产生的刺突带白……有毒并会导致出生缺陷的说法感到非常震惊。他们说，‘这是错误的信息，完全是假新闻’。你怎么回应他们？”
 
-原文链接：[中国移动CMLink业务退出加拿大](https://gnews.org/zh-hans/1805678/)
+马龙博士回答到：“很抱歉，数据就是数据，事实就是事实。”
 
-音频处理：喜山必胜Maverick
+笔者注意到，[Diamond and Silk](https://gettr.com/user/rwmalonemd)是美国直播视频播客作者，政治活动家，也是《新闻极限》和FrankSpeech.com的主持人，12月30日，她们在盖特（Gettr）文章中提到了罗伯特·马龙博士。公开资料显示，马龙博士于10月初已经入住了盖特，并于10月9日发布了第一篇盖文，其盖特账号为[@rwmalonemd](https://gettr.com/user/rwmalonemd)。
 
-发稿：Daxia
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+[Blocked by Twitter, Vaccine Pioneer Malone Says He’ll Keep ‘Telling the Truth’](https://www.newsmax.com/newsmax-tv/newsmaxtv-robertmalone-covid-19/2021/12/30/id/1050536/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[Welcome to Gettr Dr. Robert Malone](https://gettr.com/post/pl2j6z1973)
 
 
 
