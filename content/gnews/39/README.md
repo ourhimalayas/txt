@@ -2,36 +2,35 @@
 ---
 
 
-## 美英德法支持立陶宛对抗中共胁迫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807888/)
+## 做一个自豪的新中国联邦人
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1808136/)
 
-作者：纽约香草山医疗部 – 云豹/东京樱花团 – 在远方
+作者：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日的大直播中，七哥和同心同框的战友们，都流露出对麻木、愚蠢、懦弱、自私、傲慢无礼、缺乏修养（尤其是很多国人在海外的所作所为造成了极坏的影响）的国人感到悲哀、失望、羞耻和痛心。我也有同感！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+由于中共的长期洗脑，环顾四周或想想我们那些尤其在国内的华人亲朋好友，有几个懂得尊重别人、而不轻易臧否人物？有几个真正懂得和能够爱自己和爱别人？有几个有信仰、心存感激地珍惜所拥有的一切？有几个能路见不平，拔刀相助？有几个不是自扫门前雪，抱着多一事不如少一事的理念，在“躲进小楼成一统，管它春夏与秋冬”的意境中苟且偷生？
 
-在立陶宛面对中共政治施压、经济胁迫升级之际，12月29日，美国国务卿布林肯与英国、德国、法国的外交部长表示，将与立陶宛站在一起，反对中共野蛮行径。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-39-scaled.jpg)
-立陶宛因为支持台湾，并与台湾互相对等成立代表处，不但在政治上遭到中共的威胁，在经济上也遭受中共的无理干扰。中共故意制造经济障碍，阻挠立陶宛商品在中共境内销售，企图以商逼政。中共这些手段已经引起欧盟及美国的高度关注，他们多次在公开场合声明支持立陶宛行使国家自主权力的立场。
+有几个能够优雅文明地去待人接物？有几个能在与人交往时真正给人带来启迪、愉悦和欢乐？有几个能够带着同理心、慈悲心去包容和理解别人？有几个能够摆脱贪嗔痴慢疑？有几个能真心祝福别人并为发生在别人身上的好事而喝彩、为别人的不幸而心痛？……
 
-12月22日，布林肯还曾与欧盟外交和安全政策高级代表波瑞尔通话，两人就中共对立陶宛政治、经济压迫的升级表示关切，谴责中共所作所为对美国和欧洲企业造成的冲击。波瑞尔还于27日撰文表示，中共的做法对欧中关系已经造成负面影响。
+相信我们的答案都是一致的：寥若晨星！而至少我这里的美国朋友，人人都是这样的。跟他（她）们交往非常轻松愉快！这就是文明与不文明的区别所在啊！
 
-参考链接：
+我们新中国联邦人都在努力做文明的、有信仰的、有正义感的人。我们可以满怀自豪地对人说：我是新中国联邦人！
 
-- [美法德英外長通話 中國脅迫立陶宛再成焦點](https://cn.rti.org.tw/news/view/id/2120794)
-- [美法德英外長通話 聲援立陶宛反對中國脅迫](https://www.cna.com.tw/news/firstnews/202112300013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

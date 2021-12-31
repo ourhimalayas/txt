@@ -2,80 +2,62 @@
 ---
 
 
-## 在班农的 “作战室：大流行”隔离两年（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1806015/)
+## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
 
-翻译：Jenny Ball
+[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-11.jpg)图片来源：6parkbbs.com
+**郭文贵**
+**Miles Guo**
 
-在大流行最初的时候，史蒂夫·班农就预测了不确定性。
+我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
+I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
 
-那是 2020 年 3 月——这个国家已经进入 COVID-19 大流行一个月了，川普正在举棋不定。
+而且会非常的危险，从美国西边到东边，从非洲过来
+And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
 
-班农在 2020 年 3 月 16 日说：“我认为库莫（Cuomo）州长在担任高管方面做得非常出色，在领导力、检测方面，在他们所谓的医院精疲力竭之前已经行动，” 这使他与未能“大胆”行动的川普形成鲜明对比。他说，总统只是在“股市下跌”时才“提出建议”。
+你说我咋就蒙那么准呢，那是情报不是蒙的
+Why am I so accurate? that is the intelligence, and it’s not guessed
 
-班农在他的播客“作战室：大流行”中发表了上述言论。在过去的两年里，这个表面上以大流行病为主题开始的节目，已经成为鼓舞川普世界人士和传播阴谋论者的聚集地。在 1 月 6 日抗议之前，这里曾是指控选举各种欺诈的传播场所，并且，在接下来的几天和几个月里，他们一直在传播这样的信息。
+我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
+Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
 
-为了了解该节目如何在 “让美国再次伟大”（MAGA）生态系统中占据如此重要的位置，从 2020 年 1 月 25 日的第一集，到 2021 年 12 月 16 日，我将其 24 小时长的节目主线化。结果是，班农试图以他的视角塑造过去两年的美国历史。
+最后获得了情报，还会放毒，为什么，知道吗？
+In the end, I got the intel, and they will release the virus again, why, do you know?
 
-他的愿景不一定总是与川普一致，但它在很大程度上是班农试图“推动美国政治叙事”的有意识的产物， 正如他所说，美国政治的“驱动叙事”（Drive the narrative
+最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
+In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
 
-）——以使他帮助竞选成功的前总统有益的方式来塑造国家新闻环境。
+要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
+that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
 
-通过我自己对班农播客的两年经历，我能够观察到在 COVID-19 危机蔓延和演变中，他如何摸索到正确的信息，并且在 2020 年中期，一旦川普没能成功变得越来越明显，他开始了一场表明新生的拜登政府不合法化运动。
+既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
+If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
 
-多亏了这个经历，我现在还有了一首由郭文贵写的歌——流亡的中国亿万富郭文贵是班农的赞助人——在我的结尾无休止地重复：“打倒中国共产党，”歌词写到， “跟我来，我们放飞自由。”
+美国亡我中共(之心)不死, 那不如咱把它亡喽
+The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
 
-**Covid-19新冠肺炎**
+杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
+Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
 
-班农似乎也有兴趣推翻中国共产党——并称中共是这场大流行病的罪魁祸首。
+Date: 12/25/2021
+原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
+原视频日期：2021/12/24
+**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
+任务编号：KC374（3334）
+视频时间段 : 0:00-1:20
 
-但直到Covid疫情几个月后，班农才坚定地指责中（共）国。值得称赞的是，在2020年1月播出的第一集中，讨论主要集中在疫情的严重程度，以及是否会导致中共失去政权。
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 ：洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 文新
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-24 集之后，也就是 2020 年 2 月 25 日，指责中共仍然不是焦点。
-
-班农说：“社会分裂将会成为我们要面对的形势，至少在疫苗出现之前。”大流行早期阶段，班农处于令人惊讶的主流地位，如果曾经是：遵守公共卫生指南，等待情况发展， 听听专家的意见。
-
-他在 2020 年 4 月 3 日的播客中指出：“当您查看替代方案时，我们认为它们并不过于严厉。”他指的是社交距离措施。
-
-在此期间，美国的经济陷入困境，股票自由落体，发生了有记录以来最大规模的解雇。或者，正如班农所说：“传染病已经席卷全球资本市场。”与此同时，川普希望“在复活节前”“开放”国家。
-
-但是，直到2020年5月，第一波疫情过后情况有所稳定，班农的观点开始沿着党派路线变得更加坚定，突然间播客似乎不再直接引导川普，而是全力将病毒标记为中共制造。
-
-班农在 2020 年 5 月 15 日的一集节目中评论道：“共产党和中共解放军确切地知道我们在哪些方面毫无防备，” 这一集还采访了有关美国对中国制造的药品的依赖。
-
-那时，班农仍将反共信息与基本的公共卫生劝诫混在一起：“这些都是战争中的伤亡，”他在同一集中说。 “他们中的很多人都是最伟大的一代，我们应该尊重他们，确保这些事情得到妥善处理。”
-
-到 2020 年 5 月，通过 2020 年选举的棱镜，MAGA world 中越来越多地看到 COVID-19真相。班农的节目中有参议院候选人前众议员杰森·刘易斯（Jason Lewis）。
-
-刘易斯开始咆哮地质疑，是否制造了 COVID-19 死亡证明，班农打断道：“如果争论死亡人数，我敢保证你秋天在明尼苏达州竞选会输，这是我的建议。”
-
-在下一集中，即 6 月 9 日，班农毫无问题地争论乔治·弗洛伊德的死，但也将其归咎于中共。
-
-到了 8 月，他试图完善叙述，也许是感觉到了川普即将失败。
-
-“（选举）胜利之路就在北京，”班农哀伤地说。 “我们得谈谈战术， 我们可能会输。”
-
-但随后，他转向了另一件事：“川普总统昨天说，‘嘿，如果我输了，那是因为他们偷走了选举。’”
-
-“但是你猜怎么着，我们不应该担心他们偷了选举，我们应该往前走，”他补充道。
-
-请继续阅读文章的后半部分： 坚韧的兄弟
-
-请阅读下一篇：[在班农的 “作战室：大流行”隔离两年（2/2）](https://gnews.org/zh-hans/1806055/)
-
-**参考资料：**[talkingpointsmemo][Two Years Of Quarantine In Steve Bannon’s War Room: Pandemic](https://talkingpointsmemo.com/muckraker/steve-bannon-war-room-pandemic-two-years-chaos)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

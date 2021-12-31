@@ -2,45 +2,34 @@
 ---
 
 
-## 川普宣称疫苗安全 遭支持者怒呛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1808848/)
+## 日媒报道中共强改郭先生盘古大观龙头
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808893/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月29日，日本媒体在新闻节目中报道了中共强改盘古大观龙头的事件。在记者电话询问相关负责人改变建筑外观的缘由时，中共方只给出“国家机密，无可奉告”的答复。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.18.png)
+对此，该节目的嘉宾们分析了其背后的三点原因：其一，中共为了避免盘古龙头在风水上与鸟巢旁的水龙相冲，出现“二龙相争，必有一伤”的结局； 其二，盘古大观龙头对中南海的俯视让中共高层难受； 其三，盘古大观是由一直以来揭露中国共产党邪恶内幕的郭文贵先生所建造。 而嘉宾们也提到，这恰恰体现出独裁中共政权的恐怖之处，即朝令夕改——即使是经过审批的建筑也会被强行改造。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3B9ABA5B-8E1F-4331-BA1E-25E3F1293229.jpeg)（图片来自达志影像路透社）
+另据郭先生在29日的直播中爆料称，中共已经对该日本媒体发出威胁，要求下架此视频。
 
-近日，美国前总统川普宣称COVID-19（中共病毒）疫苗安全，而且是他任内的一大成就，川普此番表态引其众多支持者不满。
+评论人士则指出，对于该视频中包含的对爆料革命及新中国联邦创始人郭文贵先生的宣传，以及有关龙图腾在风水上的意义和自诩无神论的中共其实无比迷信的事实，都另中共政府恐惧不已。
 
-据中央社报道，川普于19日接受Fox News主持人欧莱利（Bill O’Reilly）访问时表示，其已经接种疫苗加强针，但被观众报以一片嘘声。
+参考链接：[https://www.gettr.com/post/pl1kv8ecf7](https://www.gettr.com/post/pl1kv8ecf7)
 
-尽管川普仍然表示反对拜登政府的疫苗强制令，但他对疫苗的表态仍然遭到了其大多数支持者的反对和不满。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-电台主持人亚历克斯·琼斯（Alex Jones）在他的节目中说，川普要么是“完全无知”，要么是“有史以来最邪恶的人之一”。
+总编：Irene木木
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-他还表态称，是时候“抛开”川普了，并声称把这位前总统的“丑事全抖出来”。
-
-另一位电台主持人、坚定的川普支持者韦恩·埃林·鲁特（Wayne Allyn Root）说，川普在“每件事上都是对的”，除了疫苗以外。
-
-42岁的麦克林（Daniel McLean） 受访时说：「我再也无法支持他。」麦克林本人没有接种疫苗，并表示有数以千计的人因接种疫苗而死。
-
-有评论称，川普此时对疫苗做出错误的表态，可能和其新筹建的社交媒体平台“真实社交”（TRUTH Social）背后的中共特务有关，川普可能已成中共“政治木偶”。
-
-日前，新中国联邦创始人郭文贵在10月24日GTV大直播中爆料称，与川普筹建的新社交媒体平台“真实社交”（TRUTH Social）公司合并的SPAC和DWAC等公司和中国共产党特务吴征均有关系，这场交易是存在共产党深层资本和间谍参与其中的连环操作。
-
-*参考链接：*
-
-1. [*https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters*](https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters)
-2. [*https://gtv.org/video/id=617551cfeadeb11f5e79f5d5*](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
-
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

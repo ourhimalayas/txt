@@ -2,38 +2,34 @@
 ---
 
 
-## DC每日热点1231
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1808701/)
+## 布林肯、蔡英文声援《立场新闻》 谴责中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808770/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3F71B24A-6250-43F4-8CCF-5167877D716C-scaled.jpeg)
-道琼斯指数 36398.08 ▼0.25%
-纳斯达克指数 15741.56 ▼0.16%
-WTI纽约原油CFD 75.544 ▼1.85%
-布伦特原油CFD 78.228 ▼1.64%
-标普50指数 3,016.97 ▼42.54%
-美元兑人民币 1USD=6.352 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1825.42 美元/盎司
-全球CCP病毒感染人数 287,035,172例
+作者：纽约香草山-侠肝义胆，东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日，据美国媒体消息显示，针对香港《立场新闻》高层29日清早被港共政府非法拘捕一事，美国国务卿布林肯呼吁中共和香港当局停止针对香港自由和独立媒体的打压，并立即释放那些被不公正拘留和指控的记者与媒体高管。同时，布林肯表示，“中共和香港地方当局压制独立媒体的行为损害了香港的信誉和生存能力。”
 
-1、日中防长视频通话 设紧急联系热线恐难改善现状
-2、中共国最近制定宗教新规，自明年3月1日起除获得许可外，严禁网上传教，境外组织或个人也不得在华境内通过互联网传教
-3、俄罗斯外交部官员12月30日证实，美俄两国高级外交官将于明年1月10日在日内瓦举行会谈
-4、北京计划设立澳门国安顾问被视为让中共国涉入澳门的安全事务
-5、俄大型国有能源企业俄罗斯天然气工业股份公司（Gazprom）将于2022年敲定第二个将天然气从西伯利亚通往到中共国的大型天然气管道项目协议
-6、美国初次申请失业救济人数降到20万以下
-7、台湾赞赏美英德法外长发声反对北京施压立陶宛，承诺协助立陶宛商品转移市场
-8、台日执政党第二度2+2会谈 强化经济安保合作以抗衡中共国
-9、中共监管再立禁区 国足球员不得刺纹身
-10、伊朗：发射运载火箭 将3个研究装置送入太空
-11、立场新闻案明年2月25日再讯 何韵诗等四人获保释
-12、至少35人遭军方杀害 欧盟支持对缅甸实施武器禁运
-13、立陶宛政府拟向受立陶宛和中共国的外交争端影响企业提供1.3亿欧元援助
-14、台铁用中共国制劣质刹车皮 台湾交通部长要求检讨
-15、尼加拉瓜强夺台资产给中共 台湾将提国际诉讼
-16、美律所评估涉疆法案影响近1200亿中国货出口
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-30.jpeg)
 
+同一时刻，台湾媒体也于当天报道称，台湾总统蔡英文在当晚发表讲话，谴责中共背信弃义、撕毁一国两制的承诺，以及中共再次打压、钳制香港言论自由的行为。蔡英文认为，民主自由是普世价值，也是人民的基本权利，更是人民勇敢追求民主自由的过程，但这绝不是犯罪，更不应该让民众因此遭受不正当的对待。蔡英文还表示，台湾会继续坚定地支持香港和香港民众，也期望遭到港共非法拘捕的人士能够尽早平安获释。
+
+参考链接：
+1）[聲援立場新聞 蔡總統遺憾中共再毀一國兩制承諾](https://cn.rti.org.tw/news/view/id/2120789)
+2）[U.S. calls on China and Hong Kong to release Stand News employees](https://www.reuters.com/business/media-telecom/us-calls-china-hong-kong-release-stand-news-employees-2021-12-30/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木，飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
