@@ -2,25 +2,23 @@
 ---
 
 
-## 俄克拉荷马州州长抨击强制接种令违宪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808876/)
+## 墨西哥中共病毒受害者向中共和世卫追偿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808897/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日，美国俄克拉荷马州州长斯蒂特在一份报道中表示，他反对联邦政府推行的中共病毒疫苗强制接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-28.jpg)
-斯蒂特强调，接种疫苗与否应该完全出于个人选择，而联邦政府目前所执行的一刀切政策并不符合实际情况。斯蒂特表示，随着疫情的变化，科学与实用治疗方法也在不断发展，这当中还包括自然免疫。而就俄克拉荷马州而言，即使不依靠强制疫苗令，当地近期的确诊人数与住院患者也都有了大幅下降。
+当地时间12月30日，据相关媒体报道称，墨西哥公民米豪斯因女儿死于中共病毒而深受打击，目前，他与数百名墨西哥中共病毒受害者家属一起加入了向中共和世界卫生组织追偿的行动中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-21.jpg)
+据悉，这项追偿行动是由位于阿根廷首都布宜诺斯艾利斯的“波普拉夫斯基国际法律事务所”发起的。该事务所表示，其已和哥伦比亚、阿根廷等国家的中共病毒受害者及其家属签约。同时，该事务所希望诸如美国、英国和意大利等国家也能支持自己的公民针对中共病毒提出类似的诉讼。事务所表示，这将有助于其他国家的追偿者赢得诉讼。
 
-为此，斯蒂特州长声明，联邦政府的疫苗强制令根本不尊重美国民众的个人自由，政府利用权力强迫美国人在中共病毒疫苗和工作之间做出选择，但这不仅是联邦政府的过度行为，更是违反了宪法的举措。
+资料显示，这项指控中共和世界卫生组织违反《世界人权宣言》、高达数百万美元的索赔案将被提交给联合国审理。
 
-斯蒂特补充道，根据医生的建议以及自身的健康状况，他本人并不打算接种中共病毒疫苗加强针。
-
-参考链接: [Oklahoma Governor Says He Doesn’t Plan to Get Booster Because He’s ‘Perfectly Healthy’](https://www.thegatewaypundit.com/2021/12/oklahoma-governor-says-doesnt-plan-get-booster-perfectly-healthy/?utm_source=ground.news&amp;utm_medium=referral)
+参考链接: [墨西哥COVID-19受害者 加入向中國與世衛求償行動](https://cn.rti.org.tw/news/view/id/2120832)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
 总编：雪梨
-编辑：Kathy文艺
+编辑：文特
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

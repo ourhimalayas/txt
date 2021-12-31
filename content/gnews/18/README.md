@@ -2,34 +2,58 @@
 ---
 
 
-## 日媒报道中共强改郭先生盘古大观龙头
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808893/)
+## 病理结果显示，接种疫苗后死亡的人中有93%是被疫苗杀死
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1808957/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，日本媒体在新闻节目中报道了中共强改盘古大观龙头的事件。在记者电话询问相关负责人改变建筑外观的缘由时，中共方只给出“国家机密，无可奉告”的答复。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.18.png)
-对此，该节目的嘉宾们分析了其背后的三点原因：其一，中共为了避免盘古龙头在风水上与鸟巢旁的水龙相冲，出现“二龙相争，必有一伤”的结局； 其二，盘古大观龙头对中南海的俯视让中共高层难受； 其三，盘古大观是由一直以来揭露中国共产党邪恶内幕的郭文贵先生所建造。 而嘉宾们也提到，这恰恰体现出独裁中共政权的恐怖之处，即朝令夕改——即使是经过审批的建筑也会被强行改造。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s10.jpg)图片来源：Getty Images
+注射后6个月内死亡的尸体解剖显示，接种后的不良反应并非罕见事件（据媒体报道），但实际上是频繁发生的事件。事实上，它们可能是普遍的，每个接受者的严重程度和损害都不同。
 
-另据郭先生在29日的直播中爆料称，中共已经对该日本媒体发出威胁，要求下架此视频。
+总结
 
-评论人士则指出，对于该视频中包含的对爆料革命及新中国联邦创始人郭文贵先生的宣传，以及有关龙图腾在风水上的意义和自诩无神论的中共其实无比迷信的事实，都另中共政府恐惧不已。
+疫苗是坏消息。检查了15具尸体（均在接种疫苗后7天至6个月内死亡）。在任何案件中，验尸官或检察官都没有将疫苗与死因联系起来。然而，进一步检查显示疫苗与15例病例中的14例死亡有关。受攻击最多的器官是心脏（在所有死者中），但其他器官也受到攻击。其影响可能是巨大的，导致数百万人死亡。应立即停止接种疫苗。
 
-参考链接：[https://www.gettr.com/post/pl1kv8ecf7](https://www.gettr.com/post/pl1kv8ecf7)
+不用担心，任何事情都会发生是值得怀疑的，因为这项工作没有发表在同行评审的期刊上，所以会被科学界忽视，这就是它的工作方式。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+我最近收到一封来自辉瑞前副总裁迈克·耶登（Mike Yeadon）的电子邮件，他敦促我查看这段视频。他在21年12月24日给我写了这封电子邮件：
 
-总编：Irene木木
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+该视频引用了这篇发表于2021年12月10日的论文，关于新冠病毒疫苗：为什么它们不能工作，以及无可辩驳的证据表明它们在接种疫苗后的死亡中起致病作用，作者是医学博士苏查里·巴克迪（Sucharit Bhakdi）和医学博士阿恩·伯克哈特（Arne Burkhardt）。最近这篇文章受到了很多关注。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作者对15名接受新冠病毒疫苗后死亡（从7天到6个月）的患者进行了尸检， 这些都是验尸官裁定不是由疫苗引起死亡的案例。
+
+他们发现在15名患者中的14名中，有广泛的证据表明身体会攻击自己，这是以前从未见过的，所有14例患者的心脏均受到攻击。
+
+在所有病例的所有受影响的组织中，许多突出方面占主导地位：
+
+- 小血管中的炎症事件（内皮炎），其特征在于血管腔内有大量的T淋巴细胞和隔离的死亡内皮细胞；
+- 大规模的T淋巴细胞血管周围积聚；
+- 大量T淋巴细胞浸润周围非淋巴器官或组织。
+
+
+淋巴细胞浸润偶尔与强烈的淋巴细胞活化和滤泡形成结合发生。在这些存在的地方，它们通常伴随着组织破坏。疫苗不良事件报告系统（VAERS）以及其他独立研究（例如，参见这篇疫苗损伤论文）表明疫苗正在致人死亡，并且心脏事件高度增加。本研究与这些结果一致。
+
+这项工作独立验证了彼得·席马赫（Peter Schimacher）的分析，他表明疫苗接种后至少30%到40%的死亡是由疫苗引起的。
+
+**两位科学家的简介**
+
+苏查里·巴克迪（Sucharit Bhakdi）博士一生致力于医学微生物学和传染病的实践、教学和研究。从1990年到2012年退休，他一直担任德国美因茨约翰内斯古腾堡大学医学微生物学和卫生研究所的主席。他在免疫学、细菌学、病毒学和寄生虫学领域发表了300多篇研究文章，并于1990年到2012年间担任医学微生物学和免疫学杂志的主编，此杂志是该领域最早的科学期刊之一，由罗伯特·科赫 (Robert Koch)于1887年创立。
+
+阿恩·伯克哈特（Arne Burkhardt）博士是一位病理学家，曾在汉堡大学、伯尔尼大学和图宾根大学任教。他应邀在日本（日本大学）、美国（布鲁克海文国立研究所）、韩国、瑞典、马来西亚和土耳其做访问教授/学习访问。他领导罗伊特林根病理学研究所长达18年。随后，他作为一名独立的执业病理学家，与美国的实验室签订了咨询合同。布克哈特（Burkhardt）在德国和国际科学期刊上发表了150多篇科学文章，并为德语、英语和日语手册做出了贡献。 多年来，他一直在德国审核和认证病理学机构。
+
+简评：两位博士通过对死者的尸检解剖分析，得出死因由疫苗所导致的，郭文贵先生所领导的爆料革命新中国联邦反对的是强制打毒疫苗，最终世界会被唤醒，是通过民众的鲜血和怒吼，经济的崩塌和供应链的断裂。今天那些强制要求打疫苗的人，将来一定会受到人类有史以来最严厉的审判，他们会100%进监狱。
+
+新闻链接：[https://www.infowars.com/posts/pathology-results-show-93-of-people-who-died-after-being-vaccinated-were-killed-by-the-vaccine/](https://www.infowars.com/posts/pathology-results-show-93-of-people-who-died-after-being-vaccinated-were-killed-by-the-vaccine/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

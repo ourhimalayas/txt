@@ -2,56 +2,31 @@
 ---
 
 
-## 【战友心声】2022新年致词
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1809158/)
+## 七哥谈未来数字货币（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809292/)
 
-作者：纽约香草山福音部 — 黎明曙光
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
+来源：郭先生2021-12-29直播11:24:01摘录
 
-在2022年新年的钟声即將敲响的这一刻，給各位战友亲切的问候，恭祝战友们新年好！
+那么未来会是多少，我再说一遍，未来一定会超过比特币，是超过什么时候的比特币我不敢说，但一定会超过比特币，而且我相信世界上99.999的数字货币你看到的今天都会消失。所有代资的就是像今天我们看到的，必须中心化负责任，和去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化的，而且有支付系统的，被国家主权所接受的，而且能成为大宗交易的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0ed20ef1-25cc-4067-b5c3-a0a6583bed31-1.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-恭喜战友们拥抱喜币来到2022新的一年！
+**关注我们**
 
-預祝邪恶的CCP2022年进入地狱一百捌拾层！
+Discord 账号
 
-新中国联邦战友们既将相聚在盘古！
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-新中国联邦的旗帜马上飘扬在北京天安门广场的上空！
+Gettr 账号
 
-Take down the CCP！
-
-Take down the CCP！
-
-Take down the CCP！
-
-中共你完蛋了！
-
-2021年12月31号
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
-
-*编辑 /校对*：德州牛仔
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

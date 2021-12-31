@@ -2,15 +2,28 @@
 ---
 
 
-## 西安因接种计量超标疫苗而导致爆发热血病 下一个爆发疫情的是河北
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1808917/)
+## GTV新闻访谈简报|2021年12月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1809012/)
 
-至12月28号，在西安，自杀、疾病突发得不到救治，冒险取食而造成的事故，就高达700多起，死亡2000余人。中共国过去2年卖的殡葬用品及墓地，是过去21年的总和。近日西安的疫情不是因为新病毒，而是疫苗造成的。西安接种的都是特定的，一千六百万只含量250克，最强效的新冠疫苗。很多案例因为身体无法应对如此剂量的疫苗，而产生“七窍流血” 的热血病。更重要的是，这很容易导致新的强变异病毒产生。下一个疫情爆发地是河北！从石家庄、廊坊，张家口开始，到承德，然后是江浙一带，广州，武汉。青蒿素非常重要！它不仅能修复基因缺陷，还是作用于癌细胞最有效的自然药剂，并且对糖尿病，中风，妇科疾病均有很大的改善。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
-视频来源: 2021年12月29日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-31.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2021.12.31早GTV新闻访谈](https://gtv.org/video/id=61cf0579ecc0b216cbb2a870)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
