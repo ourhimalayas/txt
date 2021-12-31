@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/31/2021 1:27 PM (UTC)`
+
+Thanks to the Himalaya Washington DC Chapter, we now have a new English program The Potomac View, dedicated to enlightening the western audiences with truth in an environment where the mainstream media has largely succumbed to the CCP’s influence operation for money. We want to democratize the truth spread by Chinese Whistleblowers who took great risks upon themselves to expose the CCP’s attempts to destroy democracy and freedom in the west. This episode exposes the lies and smear campaign launched by Vice/HBO to attack Mr. Miles Guo and the Chinese freedom-loving Chinese diaspora who want to take down the CCP.
+![img](https://media.gettr.com/group6/getter/2021/12/31/13/41d8ea3f-df0f-27eb-223d-fa1ab1bb3a55/out.jpg)
+
+---
+
 `@miles 12/31/2021 12:25 PM (UTC)`
 
 20211229日本朝日TV報導CCP強改盤古大觀龍頭<br/>（完整·視頻、音頻清晰版）
@@ -166,15 +173,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 2021年度《我是音雄》第二季“十大音雄”出炉！ <br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。 <br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075... <br/><br/>麥可（美国纽约香草山农场） 麦可医生是新中国联邦的医疗博士之一，也曾是歌手，在中共病毒全球肆虐的今天，医疗部每天都在帮助大量的战友，并认真耐心的用他们的专业知识为大家答疑分享。在《我是音雄》的舞台上，歌声承载自己的感情和前行的决心：自信悠然、潇洒大方、 乐观而兼具幽默，真正的是歌如其人。
 ![img](https://media.gettr.com/group43/origin/2021/12/27/16/f7f3b558-fe25-e1a8-afab-4264ba85d891/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 3:58 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075/<br/><br/>七少（美国洛杉矶盘古农场） 一出场就轰动留言区，瞬间圈粉无数，评论区竞相邀请“签约”。歌声全程回荡在《我是音雄》的舞台上，可谓歌唱功底极为强悍，是此次十大音雄中绝对的实力派候选之一。
-![img](https://media.gettr.com/group10/origin/2021/12/27/15/96d1ec4d-269e-8039-9100-486357b1a15b/out.jpg)
 
 ---
 
