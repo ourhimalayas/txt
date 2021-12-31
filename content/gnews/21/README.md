@@ -2,27 +2,32 @@
 ---
 
 
-## 加拿大驱逐由中共控制的中国移动在加子公司
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1807520/)
+## 中共军方在西藏用军用机器人充当士兵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
 
-翻译/撰稿：GoergeC（乔治）
-校对：zzballack
-上传：无明逆流
+纽约香草山 信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
+12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
+自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
 
-据《发展电信》（Developing Telecoms）12月29日报道，出于对国家安全的担忧，加拿大联邦政府要求中国移动在加拿大的子公司中移动国际（CMLink）停止在加业务。该公司在其官网上发布了一份声明说，应加拿大联邦政府的要求， CMLink将于2022年1月5日起停止运营。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-3357.21-PM.jpeg)图片来源：mydrivers
-因此，CMLink通知用户说：“您的CMLink帐户中的余额可以从2021年12月28日开始退款，退款金额取决于提交申请当天的账户余额。” 对于在2022年1月5日或之后未激活的用户，购卡费将自动退还到同一支付方式，不需要进行退款登记。
+分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
 
-此前，加拿大媒体《国家邮报》（Natinoal Post）在12月初报道了中国移动申请临时搁置的提议如何被法院驳回。中国移动因为国家安全原因被命令剥离或者关闭其在加拿大子公司。
+新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
 
-据里士满新闻（Richmond News）报道，联邦法院首席大法官保罗·克兰普顿（Paul Crampton）表示，中移动国际加拿大公司继续运营对公众好奇心造成的伤害“明显大于”该公司在不遵守命令的情况下可能承受的伤害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
 
-报告称，加拿大联邦当局于1月份通知了中移动国际加拿大公司，由安全问题引发的对其业务的评估表明，该企业有可能被中共利用来进行海外干预。然后，加拿大当局于8月发布了一项命令，命令CMLink的母公司中国移动在90天内关闭或剥离其在加拿大的业务。
+总编/编辑：Irene木木
 
-**评论：**加拿大总理小土豆一直以来面对中共表现软弱，而且是世界七大工业国集团里表现最软弱的。但是，这次驱逐中共企业的强硬政策可以视为加拿大对香港民主运动领袖且持有加拿大护照的何韵诗被关押的直接回应。更重要的是，一向采取绥靖政策的加拿大正在跟随她南边邻居美国的脚步，彻底转变对中共能够接受世界主流价值观并且改正新冠疫情以来的一些列重大错误的幻想。可以看出，世界的正义力量正在集结，而我们新中国联邦人是这场即将到来的世纪灭共大战的主角！号角已经吹响，灭共势不可挡！
+校正/发稿：浪迹天涯
 
-新闻来源：[China Mobile leaving Canada](https://developingtelecoms.com/telecom-business/operator-news/12595-china-mobile-leaving-canada.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

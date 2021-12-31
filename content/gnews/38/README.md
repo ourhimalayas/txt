@@ -2,42 +2,34 @@
 ---
 
 
-## 有声|中国移动CMLink业务退出加拿大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807242/)
+## 因危及加拿大国家安全 中国移动在加公司停止运营
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1807257/)
 
-配音：香草山健身部 – 玫瑰园
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8FA960E8-040B-4922-9D85-152D0A8820F3.jpeg)（图片来源：路透社）
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+12月28日，中国移动加拿大子公司CMLink在官网上发布通知表示，该公司将于下月停止运营。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+据《自由时报》报导，CMLink于12月28日在其官网上发布的一则通知表示，该公司将配合加拿大政府的禁令，于2022年1月5日起停止运营，用户自当日起可申请退款。
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
+据悉，加拿大政府在8月发出禁令，勒令中国移动在90天内结束或剥离其在加拿大的业务，并在提交给法庭的文件中表示，中共通过中国移动进行间谍活动以及干涉外国的行动，对加拿大和加拿大人的安全构成重大威胁。
 
-原文链接：[中国移动CMLink业务退出加拿大](https://gnews.org/zh-hans/1805678/)
+随后，CMLink因不满上述禁令，便向法院申请撤销，但日前遭到法院驳回。联邦法院首席大法官保罗‧克兰普顿（Paul Crampton）表示，CMLink如果继续在加拿大运营，对公众利益造成的损害远超该公司所声称的禁令造成的危害。
 
-音频处理：喜山必胜Maverick
+*参考链接：*
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+1. [*中國移動被迫終止加拿大業務 下月5日停止營運*](https://ec.ltn.com.tw/article/breakingnews/3784982)
+2. [*中国移动危及加国安全 加拿大勒令其退出*](https://www.epochtimes.com/gb/21/12/29/n13467617.htm)
 
 
+* * *
+
+*素材采编：海星*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
