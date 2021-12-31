@@ -2,34 +2,35 @@
 ---
 
 
-## 不满中共和世卫疏忽疫情 数百名墨西哥人提出集体诉讼
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1807206/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807207/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+杰西: 在多变的监管环境下，我们希望走在合规制度的最前线。这就是为什么我们有白名单制度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/756DDA31-ECD2-49EB-AD23-B87E55E5EA89.jpeg)（图片来自网络）
+因此，说实行白名单的目的就是，是为了使注册地址收到的任何喜马拉雅币或喜马拉雅元不会受到限制期的影响。
 
-12月30日，因不满中共和世界卫生组织（WHO）对疫情的控制不力，数百名墨西哥人指控中共和世卫组织触犯《世界人权宣言》，提出集体诉讼并要求赔偿。
+现在，你可能会说，什么是锁定期呢？好的，不用被这个术语吓到。制定锁定期和白名单服务的目的是避免用户在无意间触犯法律。在出现欺诈交易时，用户将会有足够的时间来采取行动。而且，这确实是为了确保我们在所有多个司法管辖区的数字资产合规。
 
-据《中央社》报道，向中共国和世卫组织索赔的国际诉讼是由阿根廷首都布宜诺斯艾利斯（Buenos Aires）的波普拉夫斯基国际法律事务所（Poplavsky International Law Offices）所发起的。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-该事务所在墨西哥的代表龚萨雷兹（Denisse Gonzalez）表示，集体指控中共和世卫组织触犯《世界人权宣言》（Universal Declaration of Human Rights），是因为它们在疫情方面犯下疏失，导致大量人口死亡和感染。
+编辑/校对/发稿：Hetangyuese
 
-龚萨雷兹说，求偿金额从确诊20万美元到病故80万美元不等。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-据悉，这场金额达数百万美元的集体诉讼将提交联合国日内瓦办事处。目前已有数百名墨西哥人加入该诉讼。
+**更多资讯，更多关注**
 
-COVID-19（中共病毒）最早于2019年在中共国湖北省武汉市现踪，迄今造成全球540多万人丧生。墨西哥至今累计近30万人病故，高居全球第5，超过395万人确诊。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*参考链接： [不滿中國世衛疏忽疫情 數百墨西哥人提集體訴訟](https://www.cna.com.tw/news/aopl/202112300218.aspx)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：miumiu*
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

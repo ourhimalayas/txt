@@ -2,25 +2,23 @@
 ---
 
 
-## 加拿大各地区急缺医疗工作人员
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807172/)
+## 比利时应对疫情的限制措施遇阻
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807189/)
 
-采编/翻译：文莱       校对编辑：硫酸羟氯喹64
+采编/编译撰稿：薇文              校对编辑，发稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/b.jpg)图片来源：CP24
 
 
-据加拿大自媒体【后千禧年】12月29日报道，加拿大多个省份目前都正在考虑将允许“新冠病毒”检测呈阳性的卫生工作者在感染后仍继续工作。
+据加拿大媒体[CP24]12月28日报道，由于近期“奥密克戎”病毒感染人数剧增，比利时政府不顾相关组织、企业和国家科学委员会的反对意见，于12月26日发布限制令，要求关闭该国所有电影院、音乐厅和艺术中心等公共娱乐场所。
 
-报道称，由于近期“奥米克戎”疫情的肆虐，加拿大多数省份的感染病例均创下历史新高。而魁省卫生部长是首位对此做出以上极端决策的官员。并表示：该措施可以继续保持医疗系统的正常运转。安大略省和曼尼托巴省随后也在考虑实施相同政策，以缓解各自不堪重负的医疗系统压力。
+报道称，以上规定一出，即刻引发大量艺人、影院经营者及活动组织者等的强烈抗议。随后，在一家制作公司为确保其年终演出顺利进行，而对政府的限制令发起上诉后，比利时【国务委员会】立即启动了应急程序，对这一争议进行仲裁，并最终决定暂停执行当局的该限制令。
 
-尽管近期的研究报告指出，“奥密克戎”所造成的住院率和死亡率均低于之前的变体，但加拿大各级政府不仅继续采取更严厉的人身限制措施，甚至极端封锁方式来剥夺公众的自由权利，同时还实施以上匪夷所思的手段威胁医护工作者的健康和生命。
+据悉，比利时法语区文化部长对以上裁决表示肯定，但卫生部长对【国务委员会】的该决定则表示：任何仲裁结果都不可能立即改变政府行政命令的执行。
 
 * * *
 
-发稿：硫酸羟氯喹64
-
-原文链接: [Canadian provinces consider allowing COVID-positive health workers to keep working | The Post Millennial](https://thepostmillennial.com/canadian-provinces-consider-allowing-covid-positive-health-workers-to-keep-working)
+參考链接：[https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378](https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378)
 
  
 

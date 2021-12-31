@@ -2,42 +2,56 @@
 ---
 
 
-## 美国媒体揭露中国政府深入研究“脑战武器”多年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807048/)
+## 刘曾拜会过的曾庆红和王岐山公然向习近平替刘亚洲说情
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807071/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**郭文贵先生：**另外一个刘亚洲事情发酵，刘亚洲的空军的老部下，抓了将近400多个人，刘亚洲的兄弟做生意的，什么亚伟呀，刘亚伟什么在美国好像，几个兄弟姐妹，现在他同时抓了是他兄弟俩，又抓了当时抓四十几个人，现在抓了几百个人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1162844475-700x420-1.jpg)
+现在涉及到了军方，那他的老上级是谁呀？是吧！许其亮是什么人物啊？关键是刘亚洲在被抓以前，刘亚洲见了谁？刘亚洲见了最后，说后100个人一定要让习知道，他最后见了100个人，倒数第二人曾庆红，倒数第一人王岐山，傻眼了吧！兄弟姐妹们，傻眼了吧！
 
+最关键的事情刘亚洲此人，他这个人可是有脑子的，这可不是一般的共产党，他不仅有共产党的所谓女婿帮、太子帮的傲慢，他还见识多广，他有一个头发说：任何一个男人、一个女人，你看今天就是要这么一看，安平、文耀就是天下最富有的了，说头发是他一个人的最好的尊严，小王子你看你那么小头发那么短，你和安平比短那么多，是吧！所以说他说，男人没有头发了就完了，你看你七哥就完了嘛，这头发最短的在这里，是吧！
 
- 
-图片来源：Wang Zhao/AFP via Getty Images
+然后他专门比较，就是中国人有三大邪恶，中国人天下没有不吃的东西，是吧！除了潜水艇，带翅膀的，除了天上飞的飞机，没有不吃的，说中国人绝对是天下最邪恶的吃东西，这个对大自然的毁坏刘亚洲说最多；
 
+第二，他觉得中国有一帮傻人当官，这是中国人民的悲哀，永远是骗子、傻子、暴徒当官，这是他觉得中国人的悲哀，而且永远被最坏的人和最笨的人统治；
 
-#### 编译：小红帽
+第三个，他觉得中国这个民族没有信仰，到了一种不可理喻的程度，他认为中国人不但没有创造文明，简直是这个世界上，扼杀文明、对文明俩字，完全没有理解、完全是零。还有很多经典的谈话。
 
-根据RT12月30日报道，美国媒体报道称，在过去几年里，**中国的一个研究机构一直忙于开发能够“麻痹”敌人而不是杀敌人的武器。**
+听说进去以后，刘亚洲就这三条问题的来源，一问再问，刘亚洲威胁要自杀也咬舌头，现在听说已经是采取措施。
 
-《华盛顿时报》翻译并分析了中国人民解放军2019年的三份报告，这些报告曾发表在官方军事报纸《解放军日报》上。这家美国报纸称说，这些文件 **“揭示了中国脑战研究的深度，并表明它已经进行了几年。”**
+但是谁替刘亚洲说话了呢？大家要想到，他是李先念的女婿呀，李先念的女儿李林的老公，他兄妹几个是有钱的有钱、有权的有权。最后见的俩人王岐山、曾都来替他说话，事儿复杂啦！事儿复杂啦！
 
-“战争已经开始从追求摧毁身体转变为麻痹和控制对手，”《解放军日报》的一篇名为 “军事优势霸权概念的未来”的报道中写道。
+毫不回避，说亚洲这事情国际、国内影响巨大，当初毛之后专门有绝对不抓，所谓的老常委，共和国共产党的创始人——股东、董事。创始股东不能抓——李先念，是吧！姚依林这也是啊。
 
-据《华盛顿时报》报道，中国的研究人员一直在研究 “将人类和机器结合起来，以实现增强人类生理和认知能力的目标”，并致力于研究大脑对大脑控制攻击的防御。
+习马上去办公室回复说他是女婿，当时这个规矩定的是直系亲属女儿和儿子，不含女婿。欸~！王岐山同志又说话了，不！岳父姚依林逝世前说，王岐山同志你是被党内保护的人，我就是女婿啊！不被保护了吗。以女婿说女婿，这意味着什么？王岐山是誓死相保啊，哇！这个董宏、任志强他都没这么保，你想他这么保的，康典、陈峰都没保，这是多大的事儿。
 
-商务部负责人吉娜·雷蒙多(Gina Raimondo)称，**中国政府利用生物技术和医疗创新 “追求对其人民的控制以及对少数民族和宗教团体成员的压制”**。发表在联邦登记册上的文件进一步声称，AMMS和相关机构 “**使用生物技术来支持中国的军事最终用途和最终用户，包括所谓的大脑控制武器”。**
+编辑整理：海贼王M.D.LUFFY；
 
-据《金融时报》援引一位美国高级官员的话说，**中国政府正在研究 “基因编辑、人类性能增强[和]脑机接口”**。中国当局拒绝所有这类说法，认为其“毫无根据”。
+字幕文件制作：小满；
 
-新闻来源：[US media reports claim China deep in ‘brain warfare research’ — RT World News](https://www.rt.com/news/544811-china-weapon-brain-research/)
+视频制作及上传：Cindy；
 
-***发布：小红帽***
+技术支持：文肺猫；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
