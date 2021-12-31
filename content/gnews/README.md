@@ -15,74 +15,74 @@
 
 ---
 
-### [辉瑞与支付宝合作 利用“健康码” 监控中国民众](/content/gnews/1/README.md)
+### [中共冻结并延长电子游戏审查 但已导致14万家公司倒闭](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/2/README.md)
+### [辉瑞与支付宝合作 利用“健康码” 监控中国民众](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/3/README.md)
+### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文·贵天成——文贵先生谈“李友”（二）](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“李友”（二）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/5/README.md)
+### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [辉瑞公司与中共国透过支付宝深度合作](/content/gnews/6/README.md)
+### [辉瑞公司与中共国透过支付宝深度合作](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/7/README.md)
+### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/8/README.md)
+### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [两项研究展示新证据证明新冠疫苗“导致的疾病多于其预防”](/content/gnews/9/README.md)
+### [两项研究展示新证据证明新冠疫苗“导致的疾病多于其预防”](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班](/content/gnews/10/README.md)
+### [因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [明年风水龙虎斗主角](/content/gnews/11/README.md)
+### [明年风水龙虎斗主角](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈新中国联邦宣言：保护动物（2021-12-29摘录）](/content/gnews/12/README.md)
+### [七哥谈新中国联邦宣言：保护动物（2021-12-29摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [拜登和中共国因新的“武汉实验室”变成合作伙伴](/content/gnews/13/README.md)
+### [拜登和中共国因新的“武汉实验室”变成合作伙伴](/content/gnews/14/README.md)
  ` wenwu`
 
-### [七哥谈可怜可恨的中国人（2021-12-29摘录）](/content/gnews/14/README.md)
+### [七哥谈可怜可恨的中国人（2021-12-29摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈国家民族的悲哀（2021-12-29摘录）](/content/gnews/15/README.md)
+### [七哥谈国家民族的悲哀（2021-12-29摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [家庭反洗脑序列-第42篇 气味](/content/gnews/16/README.md)
+### [家庭反洗脑序列-第42篇 气味](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈中国60岁夫妻生孩子（2021-12-29摘录）](/content/gnews/17/README.md)
+### [七哥谈中国60岁夫妻生孩子（2021-12-29摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥谈西安的鸡毛信（2021-12-29摘录）](/content/gnews/18/README.md)
+### [七哥谈西安的鸡毛信（2021-12-29摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/19/README.md)
+### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥谈坦桑尼亚派学生（2021-12-29摘录）](/content/gnews/20/README.md)
+### [七哥谈坦桑尼亚派学生（2021-12-29摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [七哥谈中共捐款（2021-12-29摘录）](/content/gnews/21/README.md)
+### [七哥谈中共捐款（2021-12-29摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [造神运动的无耻谎言《每日一习话》](/content/gnews/22/README.md)
+### [造神运动的无耻谎言《每日一习话》](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [夕阳杂谈 西安真相](/content/gnews/23/README.md)
- ` 纽约香草山MOS02`
 
 ### [谁来拯救你，活在新闻联播里的人们](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
