@@ -2,97 +2,36 @@
 ---
 
 
-## 给中共送葬活动，只针对习、王、孟、江四大家族
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809519/)
+## 夕阳杂谈 西安真相
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1809531/)
 
-[https://gtv.org/video/id=61ce7afcfb16a93456bfa52b](https://gtv.org/video/id=61ce7afcfb16a93456bfa52b)
+作者：纽约香草山健身部–文鹰
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+周五傍晚，夕阳垂暮。疲惫了一天，放下手边工作。步到室外，让身体舒展一下。放松心情后，经过人事部门口。
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/美好-2.jpg)
 
-今年的送棺材，给共产党送棺材的活动
-This year’s action of sending coffins to the Communist Party
+“嗨，一直没见到你，有事想问你！”声音让我心里一惊。定眼一看，原来是人事部G经理隔门喊我。“什么事啊，”话音未落，我已踏入办公室。
 
-咱只对习、王、孟、江.就对这四个，其他人一概不参与
-We are only interested in the four families of Xi, Wang, Meng and Jiang, but no one else
+“让打第三剂加强针了，你怎么看？”她微笑着问。望一眼，还有两个同事在，迅速的回答“不能打！”，“为什么？”我用事例告诉她，“我的岳父，今天是五七日子。他以前身体健康，就是8月份被强制接种两剂以后。感冒发烧没有嗅觉没有胃口，医院检查以后，心脏积液癌症晚期，不到两个月走了！”另外补充到：“咱们公司的一个离职B先生上一个月心梗走了，最近的Y经理刚刚脑梗还在ICU。”事实让他们感到惊诧。
 
-我刚才给他说我们不参乎任何人
-I just told him that we are not involved with anyone else
+“给钱打怎么样？”我望了下窗外的夕阳，“如果你不想看到明天的太阳，你就去吧。即使给十万，也卖不到生命啊。”随后，把文贵先生大直播，西安的真相告诉她们：西安疫情不是病毒原因，是地方主官为了政绩和利益勾结黑商，让老百姓接种的，都是250高剂量的疫苗，造成严重的“七窍出血”副作用！
 
-习、王、孟、江，就是相信风水的人，咱就给他送风水
-Xi, Wang, Meng and Jiang are the ones who believe in feng shui, so we will send them the feng shui
+“你看一下疫苗的副作用”我用盖特截图，让她浏览了一通。“我不打了，不打了”，“你不打，也不要让你的家人去打啊。”她会意一笑“嗯”。         红日西落，心情舒畅。中共谎言，烟消云散。
 
-他给咱搞巫术的，咱也给他来巫术，是吧？
-People who gives us witchcraft, we also give that person witchcraft, right?
+编辑/校对/发稿：菩提树
 
-而且这个棺材板上，咱就定这些人，其他人不定
-And on the coffin board, we will target these people, but not the others.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-这个棺材板一定要施巫术啊
-We have to do witchcraft on the coffin board
+**更多资讯，更多关注**
 
-那个巫术里面，比如那个流血泪
-Like the blood tears
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-鬼流血泪是啥你知道吗？
-Do you know what means a ghost shedding tears of blood?
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-就像那个自杀的，就那个人穿着红衣裳一样
-For example, the person who committed suicide, and the person who committed suicide was wearing a red dress
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-他永远是，他是厉鬼啊，他不投胎的
-He (or she) will always be an evil spirit, he (or she) is not going to be reincarnated
-
-他跟你没完没了
-He will never end with you
-
-所以要把厉鬼啊
-That’s why we have to put the evil ghost
-
-鬼流血泪的鬼是不投胎的，是要跟你玩到底的
-A ghost with tears of blood will not be reincarnated. It will never end
-
-要把这些人都给他弄上去
-We have to get all these people to the coffin.
-
-咱现在就对这四大家族了，习、王、孟、江
-Let’s take on these four families, Xi, Wang, Meng and Jiang
-
-刚才我给他说了
-Just now I told him
-
-我说（你们）放心，转告，转告啊
-I said, “Don’t worry, tell everyone, tell everyone
-
-绝对不对任何人，不对现在法院的人，
-Absolutely not to anyone, not to the court now
-
-也不对大连的这个人，也不对三中院的人
-Not to the people of Dalian, not to the people of the Third Central Court
-
-不管你们，只对习、王、孟、江啊，只涉及他们，
-I don’t care about you, only involve Xi, Wang, Meng and Jiang.”
-
-新中国联邦一定会赢
-The new Federal State of China will definitely win
-
-Date:12/20/2021
-原视频标题: 给中共送葬活动，只针对习、王、孟、江四大家族
-Funeral activities for the Communist Party, only for the four families of Xi, Wang, Meng and Jiang
-原视频日期：2021/12/17
-原视频链接:**[https://gettr.com/post/pk255k345f](https://gettr.com/post/pk255k345f)**
-任务编号：KC381(3279)
-视频时间段 : 0:00-01:10
-中听校：洛杉矶盘古农场 -Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
