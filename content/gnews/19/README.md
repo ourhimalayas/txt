@@ -2,263 +2,58 @@
 ---
 
 
-## 郭文贵先生接受 HBO Vice 采访的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809361/)
+## 南非,英国4/5的死亡者 系接种疫苗接种者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1809470/)
 
-[https://gtv.org/video/id=61cd2a4bfb16a93456bf3b06](https://gtv.org/video/id=61cd2a4bfb16a93456bf3b06)
+作者：香草山健身部-正道新聞
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2021年11月，新性冠状病毒Omicron由荷兰登入南非之后，正道新闻先后发表多篇文章跟踪、介绍南非疫情。当下，南非由于较低的疫苗接种率，长期服用羟氯喹，青蒿素的习惯，以及政府没有采用极端的防疫措施，使得12月中旬，南非新增CCP病毒病例达到顶峰之后开始迅速回落，患病死亡率从最初的预估值5.3‰下调至3.6‰。这个数值与普通流感病毒死亡率相一致。
 
-我想深入了解你所说的, 但我们先谈谈, 谁是郭文贵
-Quiero saber más lo que dijiste, pero primero vamos a hablar, quién es Guo Wengui
+相同的时间、相同的病毒，登陆全球各个发达国家之后，却掀起了地狱一般的狂潮。除了每天的患病人数屡创新高之外，整个社会经济、族群、人民与政府之间的关系，不可调和的矛盾日益增强。
 
-你知道, 有很多两极化, 非常混乱的信息
-Sabes, hay muchas informaciones polarizadas y confusas
+因为注射疫苗失去生命的家属，再次、多次感染的患者，饱受疫苗副作用毒害的群体，以及那些失去发声渠道的人群正在一次次的集结，一次次的呐喊。注定2021年到2022年的跨年夜，不是一个平安的祥和的夜晚。
 
-有些人认为你是中国人民的救星, 你在和中国共产党抗争
-Algunas personas piensan que eres el salvador del pueblo chino, te estás enfrentando contra el PCCh
+2021年12月22日，英国卫生安全局公布最新冠状病毒数据。当这一数据公布之后，数据结论引起了广泛的关注和一片哗然。网站Dailyexpose甚至用《Covid-19 Deaths in past month were among the Triple/Double Vaccinated according to Official Data》（过去一个月中接受了至少2剂疫苗接种者贡献了英国4/5的Coivd-19死亡案例）为标题，控诉英国疫苗政策的失败。（见图一）
 
-有些人认为你是中共的间谍
-Algunas personas creen que eres un agente del PCCh
+图一：Covid-19 Deaths in past month were among the Triple/Double Vaccinated according to Official Data》
 
-还有一些人认为[听不清]
-Y también hay personas que creen [inaudible]
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1972.png)
 
-这是个好问题
-Esta es una buena pregunta
+通过数据我们可以发现，英国77%的疫苗接种率（见图2：英国疫苗接种率），并没有帮助到当地的群众摆脱疾病的困扰，让经济回归正常。相反，每一轮变异病毒毒株在英国都能卷起一波感染（见图3：英国每日新增患病数量），重症、死亡的狂潮。
 
-我想, 四年前是你第一次采访我吧?
-Yo creo que, hace cuatro años atrás fue la primera vez que me entrevistaste, ¿cierto?
+图2：英国疫苗接种率
 
-从2017年到2021年, 世界变化很大
-Desde el año 2017 hasta el 2021, los cambios en el mundo son muy grandes
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1974.png)
 
-首先, 美国环球, 华尔街, 华盛顿邮报上有很多谣言
-En primer lugar, hay muchos rumores en Universal, Wall Street y Washington Post
+图3：英国每日新增患病数量
 
-在昨天, 华盛顿邮报有一篇报导
-El día de ayer, hubo un informe en Washington Post
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1976.png)
 
-(上面写着) 有个AI调查公司编造关于我的谣言
-(Decía) hay una empresa de investigación de inteligencia artificial que inventa rumores sobre mí
+疫苗的副作用所导致的身体不适、住院治疗、以及死亡的案列，在很多的数据统计中并没有公布。但结合社交媒体透露出的视频和文字介绍，我们可以预估疫苗后遗症患者不仅将给家庭带来无尽的麻烦与辛苦，也会带来一系列的社会问题。
 
-这并不奇怪
-Esto no es raro
+2021年11月25日，英国BBC报道，疫苗副作用受害者Kerry Hurt为了能去土耳其旅游，选择接种了疫苗。在接受第一剂疫苗一周之后，便有了疫苗副作用的症状。先是头疼，后来发展到中风，被送入医院确诊为血栓，经过两次手术之后算是保住了性命，但是下半辈子可能需要与轮椅为伴。
 
-因为我的敌人是全球邪恶的中国共产党, CCP
-Porque mi enemigo es el malvado Partido Comunista de China global, PCCh
+值得庆幸的是她加入疫苗损害赔偿计划（VDPS）获得要求一定的经济赔偿。但不幸的是即便有了确凿的案例，英国卫生部门官员依然认为疫苗有效，且副作用小于十万分之一。结合上下文，BBC的文章主旨也并非斥责疫苗的危害，而是希望通过反例告诉民众，疫苗依然安全。
 
-它是世界第一的黑帮力量
-Él es la fuerza de la organización criminal número uno en el mundo
+这类政府、媒体的操作方式，不仅发生在英国，同时也发生在法国、德国、以色列、美国这些发达国家。主流媒体配和官方宣传，一方面尽量让疫苗副作用的消息噤声，另一方积极宣传开始施打第四针、第五针、乃至更多。即便是疫苗副作用爆发，大到不可收拾地步，这些政治家则可以把责任转嫁给科学家、所谓的科学数据。相比之下，同样是英联邦的南非，却用实践告诉世界，病毒大流行的背景下，正确的防疫操作方式。
 
-他们总是使用相同的解决方法来摧毁它的敌人
-Ellos siempre utilizan la misma solución para destruir a sus enemigos
+随着死亡人数的不断增加，各国国家所遭受的灾难已经超越了帐面上的损失，病毒、疫苗带来的伦理灾难与创伤，则需要数代人的努力才能抚平。二次世界大战英国、法国的绥靖政策纵容了希特勒，此时历史似乎再次回到了二战前夜。这一次，承载着数万英国人民性命的天枰已经交到了鲍里斯·强森的手中。他只有两条道路可以选择：一条通向张伯伦；还有一条通向丘吉尔。英国人的命运到了最关键的时刻，这位首相将会如何选择？
 
-造谣, 没人相信你
-Creando rumores, nadie cree en ti
+[https://gnews.org/zh-hans/1805247/ https://www.bbc.com/news/articles/c41nlvy5x85o https://dailyexpose.uk/2021/12/30/bbc-wont-tell-you-4-in-5-covid-deaths-vaccinated/ https://ourworldindata.org/covid-vaccinations?country=GBR](https://gnews.org/zh-hans/1805247/%20https://www.bbc.com/news/articles/c41nlvy5x85o%20https://dailyexpose.uk/2021/12/30/bbc-wont-tell-you-4-in-5-covid-deaths-vaccinated/%20https://ourworldindata.org/covid-vaccinations?country=GBR)
 
-冻结你的资产, 强奸你的家人, 绑架你的家人, 把他们关进监狱
-Congela tus activos, viola y secuestra a tu familia, los encierran en la cárcel
+编辑/校对/发稿：菩提树
 
-像在新疆一样, 他们威胁所有的家庭
-Así como en Xinjiang, ellos amenazaron a todas las familias
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-此外, 他们在散布关于我是双重间谍的谣言
-Además de esto, difundieron rumores acerca de que soy agente doble
+**更多资讯，更多关注**
 
-这很有趣. 你明白吗, 伊莎贝拉?
-Esto es muy interesante, ¿entiendes, Isabella?
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-连孩子们都知道, 如果你做间谍的工作
-Hasta los niños saben, si estás haciendo el trabajo de espía
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-政府必须给你确认
-El gobierno debe confirmar
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-你知道007詹姆斯邦德吗? 001? 对吧?
-Conoces a James Bond 007, 001, ¿verdad?
-
-他们必须有文件
-Ellos deben tener el documento
-
-即使我是”双面”间谍, “双面”指的是中共国和美国
-Aún así si soy agente “doble”, “doble” indica el PCCh y EE. UU
-我想他们想这样指控我
-Creo que me quieren acusar de esta manera
-
-即使我在中共国间谍系统工作
-Aunque esté trabajando en el sistema espionaje del PCCh
-
-他们可以很容易就给美国看
-Ellos fácilmente pueden hacer que EE. UU vean
-
-“看看郭文贵, 这是007号间谍”
-“Mire a Guo Wengui, este es el agente número 007”
-
-他们可以出示我的文档
-Ellos pueden presentar mi documento
-
-美国政府可以立即逮捕我
-El gobierno estadounidense puede arrestarme inmediatamente
-
-他们不需要做任何其他事情
-Ellos no necesitan hacer más nada
-
-还有, 他们说我是双重间谍
-Además, dicen que soy agente doble
-
-也许我为美国政府工作
-Quizás trabaje por el gobierno estadounidense
-
-如果他们能发现任何双重间谍证据
-Si ellos descubren cualquiera evidencia de agente doble
-
-并向社交媒体, 控制媒体的报纸展示
-Pueden mostrarles a las redes sociales y al periódico que controla los medios
-
-“郭文贵为美国工作”
-“Guo Wengui trabaja por EE. UU”
-
-我会被杀, 中共可以随时杀掉我. 简单啊!
-Seré asesinado, el PCCh puede matarme en cualquier momento, ¡es muy fácil!
-为什么无论是中共政府, 还是美国政府
-Por qué ya sea el gobierno del PCCh o el gobierno estadounidense
-
-没有人可以向我展示我从事双重间谍活动的证据
-Nadie puede mostrarme evidencia de mis actividades de doble espionaje
-
-那太荒谬了
-Eso es muy ridículo
-
-所有关于郭文贵是双重间谍的言论都来自华尔街日报
-Todos los comentarios sobre Guo Wengui como agente doble provienen del Wall Street Journal
-
-以及起诉我的那两个骗子
-Y los dos mentirosos que me demandaron
-
-这是美国的灾难
-Este es el desastre de EE. UU
-
-每一个判决都应该来自法庭
-Cada juicio debe provenir de la corte
-
-来自美国的法治体系, 来自政府
-Origina del sistema del estado de derecho en los Estados Unidos, del gobierno
-
-但在这个国家, 每一个”真相”和”正义”都来自媒体
-Pero este país, cada “verdad” y “justicia” provienen de los medios de comunicación
-
-社交媒体, CNN, 福克斯和你的公司
-Redes sociales, CNN, Fox y tu empresa
-
-那是一场灾难; 你只是个媒体
-Eso es un desastre; tú solamente eres un medio
-
-你无权做出判决
-No tienes derecho a emitir un juicio
-
-谁是双重间谍? 这很容易(得到答案的)
-¿Quién es el agente doble? Esto es fácil (de obtener la respuesta)
-
-这就是为什么你问了一个这么疯狂的问题
-Esto es por qué hiciste una pregunta tan demente
-
-因为也许你相信这一点吧
-Porque tal vez crees en este punto
-
-人云亦云
-Crees en lo que las personas dicen
-
-拜托, 你能出示一份小证据吗?
-Por favor, ¿puedes mostrar una pequeña evidencia?
-
-郭文贵到底是双重间谍还是单面间谍?
-¿Guo Wengui es un agente doble o un agente unilateral?
-
-很简单, 如果我是, 他们为什么逮捕我家里的18个人
-Es sencillo, si lo soy, por qué ellos arrestaron a 18 personas de mi familia
-
-他们杀了我的母亲
-Mataron a mi madre
-
-这让她很生气, 所以我母亲被它们气死了
-Esto le molestó mucho, por eso mi madre estaba tan enojada con ellos
-
-四年前你们采访我的时候, 我母亲还活着
-Hace cuatro años, cuando ustedes me estaban entrevistando, mi madre todavía estaba viva
-
-四年以后, 她走了
-Pasaron cuatro años, ya ella falleció
-
-我所有的家人和兄弟都在监狱里
-Toda mi familia y hermanos están en la cárcel
-
-你为什么不问我
-Por qué no me preguntas
-
-如果我为中共工作, 他们为什么要威胁我母亲致死
-Si trabajo por el Partido Comunista de China, por qué ellos amenazaron a mi madre hasta la muerte
-
-他们为什么要绑架我的同事和我的家人?
-¿Por qué secuestraron a mis compañeros de trabajo y mi familia?
-
-总有个好的理由. 简单吧! 答案是什么?
-Debe haber una buena excusa. ¡Es fácil! ¿Cuál es la respuesta?
-
-你不需要问我
-No necesitas preguntarme
-
-任何有常识的人都可以知道答案
-Cualquier persona que tenga sentido común puede saber la respuesta
-
-但这太荒谬了
-Esto es muy ridículo
-
-每个人都只相信坏的方面
-Cada persona sólo cree en la parte mala
-
-没有人相信这世界上仍有正义和勇敢的英雄, 没有人
-Nadie cree en que este mundo todavía existe héroes justos y valientes, nadie
-
-这就是为什么媒体现在是全球第二大癌症的原因
-Es por eso que los medios de comunicación son ahora el segundo cáncer más grande del mundo
-
-因为你们有比政府更大的权力
-Porque ustedes tienen el derecho más grande que el gobierno
-
-比法庭大, 比法官大
-Más grande que el tribunal, más grande que el juez
-
-如果法官都说郭文贵, 你是双重间谍
-Si hasta el juez dice que Guo Wengui, eres un agente doble
-
-是的, 我别无选择(只得承认)
-Sí, no tengo otra opción (debo reconocerlo)
-
-但当媒体做出判决: 郭文贵是双重间谍…
-Pero cuando los medios emiten el juicio: Guo Wengui es un agente doble…
-
-你们只看重钱, 你是为中共工作. 对不起, 伊莎贝拉
-Ustedes solamente les da importancia el dinero, estás trabajando por el PCCh. Lo siento, Isabella
-
-* * *
-
-日期：12/28/2021
-原视频标题：郭文贵先生接受 HBO Vice 采访的真相
-La verdad sobre la entrevista del Sr. Guo Wengui con HBO Vice
-
-原视频日期：12/23/2021
-原视频网址：[**https://gettr.com/post/pkexq84603**](https://gettr.com/post/pkexq84603)
-任务编号：3350
-视频时间段：26:57-31:39
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

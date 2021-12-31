@@ -2,93 +2,53 @@
 ---
 
 
-## 给中共送葬活动，只针对习、王、孟、江四大家族
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809519/)
+## 造神运动的无耻谎言《每日一习话》
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809574/)
 
-[https://gtv.org/video/id=61ce7afcfb16a93456bfa52b](https://gtv.org/video/id=61ce7afcfb16a93456bfa52b)
+**【国内新闻短评**】
 
-**郭文贵
-Miles Guo**
+**央广网2021年12月27日发布：《每日一习话》保护人民生命安全和身体健康可以不惜一切代价**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a6la5-7mctx-7.jpg)**图片来源：自由亚洲电台制图**![](https://assets.gnews.org/wp-content/uploads/2021/12/332-amq6p-x6e25-1.jpg)
+《每日一习话》最早可追溯到中共2015年5月出版发行的《习近平用典》一书。
 
-今年的送棺材，给共产党送棺材的活动
-This year’s action of sending coffins to the Communist Party
+2018年9月30日，湖南卫视推出“习近平思想问答秀《新时代学习大会》”。
 
-咱只对习、王、孟、江.就对这四个，其他人一概不参与
-We are only interested in the four families of Xi, Wang, Meng and Jiang, but no one else
+2018年10月8日起，中央电视台《百家讲坛》推出特别节目《平“语”近人——习近平总书记用典》。
 
-我刚才给他说我们不参乎任何人
-I just told him that we are not involved with anyone else
+2019年开始演变为《每日一习话》。
 
-习、王、孟、江，就是相信风水的人，咱就给他送风水
-Xi, Wang, Meng and Jiang are the ones who believe in feng shui, so we will send them the feng shui
+***跪舔，媒体人与知识分子的无耻***
 
-他给咱搞巫术的，咱也给他来巫术，是吧？
-People who gives us witchcraft, we also give that person witchcraft, right?
+总书记浓厚的为民情怀，你从他的话语，从他的眼神当中都能够体会到。
+在当代，科学的理论，伟大的理论就是习近平新时代中国特色社会主义思想。
 
-而且这个棺材板上，咱就定这些人，其他人不定
-And on the coffin board, we will target these people, but not the others.
+党的百年奋斗征程告诉我们，党的领导是我们战胜一切风险挑战、不断胜利前进的保证。
+……
 
-这个棺材板一定要施巫术啊
-We have to do witchcraft on the coffin board
+以上极近谄媚、令人作呕的文字都是主持人、教授、专家和学者们歌颂习“伟光正”的大话、空话、套话式马屁。从电视媒体到纸质媒体到网络平台，从《习近平用典》到《平语近人》到《每日一习话》，在轰轰烈烈的表演中，他们的“跪舔”之态已无耻到突破极限。这是媒体与知识分子的悲哀，也是民族的不幸。
 
-那个巫术里面，比如那个流血泪
-Like the blood tears
+***愚民，习近平的谎言***
 
-鬼流血泪是啥你知道吗？
-Do you know what means a ghost shedding tears of blood?
+习近平：“在重大疫情面前，我们一开始就鲜明提出把人民生命安全和健康放在第一位。”
 
-就像那个自杀的，就那个人穿着红衣裳一样
-For example, the person who committed suicide, and the person who committed suicide was wearing a red dress
+说到疫情，就让我们来看看今天军管的西安现状、看看一年前武汉的悲剧、看看这二年的一次次放毒、看看还未结束的强制疫苗接种，有多少冤魂死于牠的“亲自部署，亲自指挥”？
 
-他永远是，他是厉鬼啊，他不投胎的
-He (or she) will always be an evil spirit, he (or she) is not going to be reincarnated
+谎言说多了以后就成为习惯，中共自成立那天起产出的谎言罄竹难书，其最大目的就是“愚民”。愚民历来是牠们奴役、压榨、杀戮的良方。
 
-他跟你没完没了
-He will never end with you
+***个人崇拜，疯狂极权者的迷梦***
 
-所以要把厉鬼啊
-That’s why we have to put the evil ghost
+自毛泽东之后，习近平的极权与独裁，超过任何其他领袖。习近平上台以来，牠以惊人的速度为自己取得各种头衔，中共的“集体”领导模式被抛弃，并于2018年完成“修宪”，废除“国家领导人任期制”，为习皇帝的终身制铺平了道路。
 
-鬼流血泪的鬼是不投胎的，是要跟你玩到底的
-A ghost with tears of blood will not be reincarnated. It will never end
+既然如此，为何又要大费周章的搞造神运动？《每日一习话》看似滑稽无耻，而实质上，个人崇拜和造神运动，是独裁专制体制下神话领导人的必由之路。
 
-要把这些人都给他弄上去
-We have to get all these people to the coffin.
+**文章观点仅代表作者，与GNews 平台无关。**
 
-咱现在就对这四大家族了，习、王、孟、江
-Let’s take on these four families, Xi, Wang, Meng and Jiang
+**新闻链接**：[https://mr.mbd.baidu.com/r/yGsAmFiPNm?f=cp&u=45c16c922134cdc8](https://mr.mbd.baidu.com/r/yGsAmFiPNm?f=cp&amp;u=45c16c922134cdc8)
 
-刚才我给他说了
-Just now I told him
-
-我说（你们）放心，转告，转告啊
-I said, “Don’t worry, tell everyone, tell everyone
-
-绝对不对任何人，不对现在法院的人，
-Absolutely not to anyone, not to the court now
-
-也不对大连的这个人，也不对三中院的人
-Not to the people of Dalian, not to the people of the Third Central Court
-
-不管你们，只对习、王、孟、江啊，只涉及他们，
-I don’t care about you, only involve Xi, Wang, Meng and Jiang.”
-
-新中国联邦一定会赢
-The new Federal State of China will definitely win
-
-Date:12/20/2021
-原视频标题: 给中共送葬活动，只针对习、王、孟、江四大家族
-Funeral activities for the Communist Party, only for the four families of Xi, Wang, Meng and Jiang
-原视频日期：2021/12/17
-原视频链接:**[https://gettr.com/post/pk255k345f](https://gettr.com/post/pk255k345f)**
-任务编号：KC381(3279)
-视频时间段 : 0:00-01:10
-中听校：洛杉矶盘古农场 -Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
+素材：洛杉矶盘古农场 — 自由非侠
+评论：洛杉矶盘古农场 —心照
+编审：洛杉矶盘古农场 —柯镇恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

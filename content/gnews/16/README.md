@@ -2,90 +2,29 @@
 ---
 
 
-## HBO及VICE的采访, 其背后绝不是共产党一家行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
+## 谁来拯救你，活在新闻联播里的人们
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809526/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
-[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
+**【国内新闻短评**】
 
-郭文贵
-Miles Guo
+**据网易2021年12月29日报道：疫情危机、通胀危机和战争危机全世界都在发生，但是墙内岁月静好**。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/axnlz-x7yez.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2021/12/cg.jpg)
+***短评：***
 
-这个阴毒之狠
-Such cruel of this evilness
+***墙内许多人一直生活在新闻联播里，全世界都危机重重，只有中共国风景独好。他们真的相信这些谎言宣传，还是没有勇气面对真相？面对疫情危机，墙内不顾百姓死活，封锁严控，封焊楼门，违法规定者网上大肆批判，游街示众，他们认为这是最有效的管控措施，却没有胆量问一句，国内到底死亡多少、疫情源头来自何处。***
 
-大家想到这个HBO、VICE的时候
-When everyone talks about HBO and VICE
+***通胀永远是国外更可怕，月月新高，有谁来说——百姓半年没有肉吃，买不起高煤价而挨冻受困。为举办冬奥会，他们只是高歌连开两届奥运的伟大，有谁追问——多少企业被迫关停，多少人耕地被占，多少人被限制生火取暖。面对台海危机，他们赞扬中共强大，谁敢质疑——这是手足相残，华人的悲哀？中共国这么好，很少有欧美人移民到中国，疫情控制得利，生活安定富足，军事力量强大，为啥只见墙内人想方设法移民国外，鲜见欧美日澳等国移民天朝（非洲人除外）。***
 
-我就要回答刚才回答你们（问的）最重要的问题
-I would like to answer the most important question you have asked just now
+***活在岁月静好的人们热爱强国，强国只当他们是韭菜收割。只要镰刀没到头上，他们就一直强调生活在墙内多么幸运。胆小懦弱，没有力量对抗邪恶中共，保持沉默躺平是做人的基本操守。但韭菜为镰刀唱赞歌，实在是不可理喻。这群人收割残害时，谁会为你鸣不平。谁来拯救活在新闻联播里面的人？ 只要他们自己不敢面对真相，谁也叫不醒装睡的人。***
 
-这一次的采访和背后的动机绝不是一个共产党一个人玩的
-This interview and the intention of it were definitely not just the CCP alone to manipulate
+**文章观点仅代表作者个人，与gnews平台无关**
 
-你看它背后的股东你就能看得出来
-You would realize that by looking at the shareholders behind it (the interview),
+**链接**：[https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w\_yw\_dy](https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w_yw_dy)
 
-单伟建、索罗斯、迪斯尼、BlackStone，
-Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
-
-全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
-This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
-
-没有几个战友能看清楚这个本质的
-There are only a few comrades-in-arms that could clearly see this essence of it
-
-我再问你这时候
-I’m asking you again this time, Xiaoxin
-
-你想想小新，如果我不接受采访，它会怎么干这事儿？
-Think about it, what would they do if I didn’t accept their interview?
-
-绝不是给你编辑编辑（就播）出来
-They would absolutely not just edit and broadcast out
-
-会给你玩得更恐怖、更大
-Instead, they would play bigger and more miserable
-
-而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
-And you may see that they already have eyes on snake demon Yan and Lude
-
-就要（用）这俩人、就用你曾经说的话、用你的人来干你
-They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
-
-用你的蛇来咬你
-and your snakes to bite you
-
-这不是一般的行动
-This is not a normal action
-
-这跟七哥几个月以前说的
-This is what I said a few months ago
-
-我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
-I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
-
-都兑现了吧？
-Haven’t all these fulfilled my words?
-
-谢谢，我先说到这
-Thank you, and I’ll stop my words here
-
-* * *
-
-Date: 12/25/2021
-原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
-Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
-原视频日期：2021/12/24
-原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
-任务编号：KC379(3347)
-视频时间段 : 0:00-01:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

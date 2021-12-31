@@ -2,45 +2,32 @@
 ---
 
 
-## 川普宣称疫苗安全 遭支持者怒呛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1808848/)
+## 拜登政府宣布将解除对非洲八国的旅行禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808894/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月28日，据有关媒体消息显示，美国总统拜登当天宣布，他将在本周解除对来自南非和非洲其他国家的旅行禁令。另外，拜登总统也在一份公告中明确，旅行限制不再是保护公众健康所必需的措施，其将于本月31日结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.31.png)
+据悉，美国白宫在11月29日曾宣布，禁止来自南非、纳米比亚、莫桑比克等八个非洲国家的非美国公民入境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3B9ABA5B-8E1F-4331-BA1E-25E3F1293229.jpeg)（图片来自达志影像路透社）
+但拜登总统对此表示，基于美国疾病控制与预防中心的建议，他此次做出了取消旅行限制的决定。他补充道，目前中共病毒奥密克戎变种已经扩散至包括美国在内的100多个国家，但其威胁程度比最初全球所担心的有所降低。另外，美国的研究人员对奥密克戎变种的了解也取得了实质性进展。 因此，此项限制将不再必要。
 
-近日，美国前总统川普宣称COVID-19（中共病毒）疫苗安全，而且是他任内的一大成就，川普此番表态引其众多支持者不满。
+参考链接：[已無必要 拜登宣布解除非洲8國旅行禁令](https://cn.rti.org.tw/news/view/id/2120693)
 
-据中央社报道，川普于19日接受Fox News主持人欧莱利（Bill O’Reilly）访问时表示，其已经接种疫苗加强针，但被观众报以一片嘘声。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-尽管川普仍然表示反对拜登政府的疫苗强制令，但他对疫苗的表态仍然遭到了其大多数支持者的反对和不满。
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-电台主持人亚历克斯·琼斯（Alex Jones）在他的节目中说，川普要么是“完全无知”，要么是“有史以来最邪恶的人之一”。
-
-他还表态称，是时候“抛开”川普了，并声称把这位前总统的“丑事全抖出来”。
-
-另一位电台主持人、坚定的川普支持者韦恩·埃林·鲁特（Wayne Allyn Root）说，川普在“每件事上都是对的”，除了疫苗以外。
-
-42岁的麦克林（Daniel McLean） 受访时说：「我再也无法支持他。」麦克林本人没有接种疫苗，并表示有数以千计的人因接种疫苗而死。
-
-有评论称，川普此时对疫苗做出错误的表态，可能和其新筹建的社交媒体平台“真实社交”（TRUTH Social）背后的中共特务有关，川普可能已成中共“政治木偶”。
-
-日前，新中国联邦创始人郭文贵在10月24日GTV大直播中爆料称，与川普筹建的新社交媒体平台“真实社交”（TRUTH Social）公司合并的SPAC和DWAC等公司和中国共产党特务吴征均有关系，这场交易是存在共产党深层资本和间谍参与其中的连环操作。
-
-*参考链接：*
-
-1. [*https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters*](https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters)
-2. [*https://gtv.org/video/id=617551cfeadeb11f5e79f5d5*](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
-
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
