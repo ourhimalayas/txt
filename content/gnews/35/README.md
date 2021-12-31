@@ -2,32 +2,29 @@
 ---
 
 
-## 中共军方在西藏用军用机器人充当士兵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
+## 【#G时新闻】新的研究表明MRNA疫苗助长奥米克戎的感染
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1807811/)
 
-纽约香草山 信息部 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
-12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
-自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
+【真相报道】12月25日发表文章，题目是： 新的研究表明接种MRNA疫苗90天后实际上增加了感染奥米克戎的可能性。
 
-分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
+在南非尽管当时只有23.8%的人口接种了疫苗，但几乎所有早期奥米克戎病例都是在完全接种疫苗的人群中发生的，显然这些数据表明，接种疫苗的人比未接种疫苗的人更容易感染奥米克戎。
 
-新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
+目前南非的病例数量惊人地增加了1,000%，死亡人数只增加了8.32%，同样当时南非的疫苗接种率低于25%，与此同时美国的疫苗接种率是南非的两倍多，新病例数是南非的近两倍，中共病毒新冠肺炎死亡率是南非的五倍
+。这些数据表明，接种疫苗比未接种疫苗更容易感染奥米克戎
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
+一个南非的研究团队的研究表明，在接种了两剂或加强剂疫苗后，疫苗在阻止奥米克戎或DELTA变种的中共病毒
+传染的效力研究表明，两种MRNA疫苗保持了对中共疫苗变种之前50%的有效率，在接种疫苗60天后，这种有效性下降到几乎为零，而实际上在90天后会产生负面影响。
 
-总编/编辑：Irene木木
+现实告诉我们的是，数据一直在向我们讲述事实——疫苗对奥米克戎没有保护作用， 甚至可能使你更容易感染病毒。
 
-校正/发稿：浪迹天涯
+发布：加拿大温哥华扬帆农场
+盖特：[https://gettr.com/post/pkn45rb12b](https://gettr.com/post/pkn45rb12b)
+播报：文广
+听写/翻译：LuLu1312
+字幕：七觉花
+视频制作：kent /七觉花
+编辑/上传：七觉花
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

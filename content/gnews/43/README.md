@@ -2,42 +2,33 @@
 ---
 
 
-## 有声|中国移动CMLink业务退出加拿大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807242/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
 
-配音：香草山健身部 – 玫瑰园
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
+编辑/校对/发稿：Hetangyuese
 
-原文链接：[中国移动CMLink业务退出加拿大](https://gnews.org/zh-hans/1805678/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

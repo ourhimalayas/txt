@@ -2,56 +2,38 @@
 ---
 
 
-## 法国外长声援香港异议人士呼吁尊重新闻自由
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807677/)
+## 美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807830/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-31.jpg)
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-29.png)
+图片来源：谷歌图片
 
-作者：纽约香草山 医疗部 云豹
+就在您认为事情不可能再变得更荒谬的时候，拜登政府却正在将 [聚合酶链反应](https://context.reverso.net/%E7%BF%BB%E8%AF%91/%E4%B8%AD%E6%96%87-%E8%8B%B1%E8%AF%AD/%E8%81%9A%E5%90%88%E9%85%B6%E9%93%BE%E5%8F%8D%E5%BA%94)
 
+（以下简称PCR ）检测从其新冠病毒隔离结束指南中删除，原因是它们可以保持阳性长达 12 周。
 
+美国疾病控制与预防中心(以下简称CDC)主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 在周三哥伦比亚广播公司的“早安美国”节目中说到：“因此如果我们依赖 PCR检测，那我们就会让人们呆在隔离中很长时间。”
 
+针对一些人推测缺乏测试要求是由于测试供应不足 ，瓦伦斯基周三表示：”这真的与供应无关。而是它与在我们了解每一个信息后将知道如何应对有关。”她告诉“早安美国”。
 
+根据新的 疾控中心指南，新冠检测呈阳性但没有症状的人可以在五天而不是十天后离开隔离，无需再次检测，并应在接下来的五天内戴上口罩。
 
+“我们所知道的是，大约 85% 到 90% 的病毒传播发生在前五天，这就是为什么我们真的希望人们在那段时间呆在家里，”瓦伦斯基说。  “然后在剩下的时间用口晕以屏蔽最后的 10% 到 15%。”
 
+“我们知道病毒在你最初被感染的那段时间里表现得非常强烈，但 联邦食品药品监督管理局（简称FDA ）根本没有研究……你的阳性抗原是否真的与你是否会传播有关。”
 
+因此，即使有人在隔离五天后抗原检测结果为阴性，CDC 仍会敦促他们戴口罩以防止可能的传播。
 
+但是，她说，“绝对”建议接触过 新冠病毒患者的人进行抗原检测。  CDC 建议，他们应该在暴露后五天或出现症状时进行测试。
 
-法国外长于当地时间12月30日，回答记者提问时表示，非常关切香港的新闻言论自由，并呼吁香港政府遵守基本法高度自治的原则。
+纽约大学传染病专家 西琳.冈达 （Celine Gounder ）博士猛烈抨击 FDA 没有对抗原测试做更多的尽职调查。
 
-香港政府于12月29日拘捕曾参与「立场新闻」运作的6位重要成员，指控他们涉嫌「串谋发布煽动刊物罪」。「立场新闻」在2021年11月刚获得无国界记者组织（Reporters sans frontières）新闻自由奖的提名，是香港少数仅存的独立媒体，29日在重要成员被拘捕后，已经宣布停止运作。香港政府显然日益加强打击异议人士的拘捕行动，企图全面封杀香港的言论自由。
+“坦率地说，FDA 已经有两年的时间来进行 瓦伦斯基博士所指出的这些评估：他们做出初步诊断时说你具有传染性和他们说你不再具有传染性一样好，”  冈达周三在“哥伦比亚广播公司早间节目”中说道。  “他们有两年的时间却迟迟没有做！”
 
-法国国家科学研究中心（CNRS）研究主任、香港浸会大学中国政治专家高敬文（Jean-Pierre Cabestan）表示，这是香港政府对新闻自由的再次重击。他认为，香港政府此举的目的明显是要缩减中共与香港间的差距，让香港成为中共统治下众多城市中的一个。
+原文作者:《零对冲》泰勒.德登 Tyler Durden
 
-法国外交部表示，法国主张保护世界任何地区的媒体自由、言论自由，让记者及所有有利于自由的多元信息能公开辩论。并呼吁香港政府应保障行政区高度自治，以及尊重香港基本法中自由、法治与司法独立的原则。
-
-(本文为作者观点，不代表G NEWS立场)
-
-[参考连接]：
-
-&lt;[https://www.cna.com.tw/news/aopl/202112310013.aspx](https://www.cna.com.tw/news/aopl/202112310013.aspx)&gt;
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
+原文链接：[https://www.zerohedge.com/covid-19/bombshell-admission-cdc-drops-post-isolation-pcr-test-because-they-can-remain-positive-12](https://www.zerohedge.com/covid-19/bombshell-admission-cdc-drops-post-isolation-pcr-test-because-they-can-remain-positive-12)
 
  
 

@@ -2,34 +2,32 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
+## 中共军方在西藏用军用机器人充当士兵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+纽约香草山 信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
+12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
+自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
 
+分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
 
-杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
+新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
 
-编辑/校对/发稿：Hetangyuese
+总编/编辑：Irene木木
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
