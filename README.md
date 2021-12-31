@@ -15,59 +15,59 @@
 
 ---
 
-### [幻想“青天大老爷”申冤 新年前夕惊传北京信访局前清晨万人排队](/content/gnews/1/README.md)
+### [乔•罗根已售罄的演出因加拿大疫苗法规而被迫取消](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [幻想“青天大老爷”申冤 新年前夕惊传北京信访局前清晨万人排队](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [精神分裂症患者鉴定别人分裂 王毅：欧洲对华政策存在“认知分裂”](/content/gnews/2/README.md)
+### [精神分裂症患者鉴定别人分裂 王毅：欧洲对华政策存在“认知分裂”](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [15个成员国签署全球最大自贸区](/content/gnews/3/README.md)
+### [15个成员国签署全球最大自贸区](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登总统签署《国防授权法》 内容涉及应对中共威胁的措施](/content/gnews/4/README.md)
+### [拜登总统签署《国防授权法》 内容涉及应对中共威胁的措施](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [危中转机？日本名企进行根本性结构改革](/content/gnews/5/README.md)
+### [危中转机？日本名企进行根本性结构改革](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021全球市值前十 8家来自美国](/content/gnews/6/README.md)
+### [2021全球市值前十 8家来自美国](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧美奥密克戎肆虐，亚洲恐迎爆发高峰](/content/gnews/7/README.md)
+### [欧美奥密克戎肆虐，亚洲恐迎爆发高峰](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战友们要互相宽容、互相帮助、团结灭共](/content/gnews/8/README.md)
+### [战友们要互相宽容、互相帮助、团结灭共](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [何韵诗获保释 演唱会将如期举办](/content/gnews/9/README.md)
+### [何韵诗获保释 演唱会将如期举办](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌合之众群体之危害](/content/gnews/10/README.md)
+### [乌合之众群体之危害](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/11/README.md)
+### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农专访2：中共国经济衰退会影响全球金融市场](/content/gnews/12/README.md)
+### [班农专访2：中共国经济衰退会影响全球金融市场](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国的医院已成为COVID19患者的死亡集中营](/content/gnews/13/README.md)
+### [美国的医院已成为COVID19患者的死亡集中营](/content/gnews/14/README.md)
  ` Runaway`
 
-### [如果不停止疯狂的疫苗接种，让人惊恐的疾病将爆发](/content/gnews/14/README.md)
+### [如果不停止疯狂的疫苗接种，让人惊恐的疾病将爆发](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [浮华盛世下艰辛的港人](/content/gnews/15/README.md)
+### [浮华盛世下艰辛的港人](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农专访5：美国第六巡回法院解除了暂停的强制疫苗令](/content/gnews/16/README.md)
+### [班农专访5：美国第六巡回法院解除了暂停的强制疫苗令](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [接种过疫苗的人患癌风险加剧](/content/gnews/17/README.md)
+### [接种过疫苗的人患癌风险加剧](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [官商勾结摆上台面 土地供应为财团护航](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [班农专访1: 房产崩塌，外资撤离，桥水集团投资中共](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
