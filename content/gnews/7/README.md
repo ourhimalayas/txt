@@ -2,32 +2,49 @@
 ---
 
 
-## 中共军方在西藏用军用机器人充当士兵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
+## 让你的敌人和瞧不起你的人改变的就是行动就是你比他强
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807791/)
 
-纽约香草山 信息部 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
-12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
-自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
+**郭文贵先生：**我跟所有人打交道的时候，我知道每个人微笑那种春风得意的背后一定有他的不乐意。当你洞察别人的缺点和虚伪的时候，没有比你再伟大的。
 
-分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
+所以我这人经常照着镜子亲我自己。就像我小时候跟人打架一样，我打赢了，我真的我小时候打架的时候，我几乎很少（输），我几乎都是赢的。那为啥我能赢呢？因为我打架的时候我就没想到赢，我是照着输被打去的，但我一定要打，因为他欺负我了我就得要跟他打，我一定要反击是吧？最可怜的人就是躲在自己的家里面，躲在父母的背后。最可怜的人是不与人打交道的。最可怜的人就是每天说人家。
 
-新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
+永远不说人家的长短，你行动，最牛就是你自己比他强。让敌人和瞧不起你的人，让你改变一切就是你强大。你觉得这个世界还有看不起我的吗？我当然也不会看不起别人，是吧？这个你也知道的，是吧？除了路大脑袋、蛇妖闫、九指妖这些垃圾之外。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
+你想想就这样，Twins有Twins的不开心，Ray有 Ray小孩的烦恼是吧？他要探索外星人是吧？北极星有北极星也要探索外空人，这一对姐弟两个有自己的小烦恼。Rica有 Rica自己追求的偶像，她想当女神，她想当歌神，她想创造出伟大的音乐，对吧？她想受人尊重的一个艺术家。
 
-总编/编辑：Irene木木
+Bunny，你想干什么？告诉我，不要说出来，你自己告诉你自己，如果你现在还没有的话，你就做一个最好的人，Miles Guo就是你最好的榜样。我这个脸皮够厚的，你不要给我鼓掌，你鼓掌我也不接受。
 
-校正/发稿：浪迹天涯
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+技术支持：文肺猫
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

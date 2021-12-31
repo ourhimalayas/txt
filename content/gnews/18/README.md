@@ -2,33 +2,26 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
+## 中国 2022 年将发行创纪录国债 指导利率走低
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1807519/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+翻译/撰稿：GoergeC（乔治）
+校对：zzballack
+上传：无明逆流
 
+据《路透社》（Reuters）12月30日报道，中共财政部一位高级官员表示，随着北京采取激进的财政政策来稳定经济增长，中共计划在2022年发行创纪录的国债，同时保持较低的总体利率。
 
-杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsAp3.49.39-PM.jpeg)图片来源：凤凰网
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+财政部国库司司长王小龙在一次会议上表示，中国将为国债发行提供流动性支持，还将吸引更多的外国长期投资者进入世界第二大债券市场。据中央国债登记结算有限责任公司出版的《债券》杂志12月29日报道，王小龙在演讲中说，国债发行的扩大和收缩反映了宏观政策的走向。他说，中国在2021年发行了近7万亿元人民币（1.1万亿美元）的国债，但面临诸多挑战，包括新冠疫情、全球通胀压力和由于美联储退出量化宽松导致的不确定性。
 
-编辑/校对/发稿：Hetangyuese
+随着大量债券到期和中共政府继续奉行积极的货币政策，明年中国国债发行量将创下历史新高。王小龙表示，财政部将与相关政府机构协调，以确保有足够的市场现金流来保证国债的顺利发行。他补充说，由于明年到期债券的利息支付负担增加，中国将在2022年适度增加短期国债的发行比例，以引导整体利率下降。此外，中国将改革国债的到期日管理，从而稳定市场预期，帮助机构更好地管理流动性。中共政府希望国债收益率能够发挥更大的作用，成为其他类型借款的基准。。
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+王小龙说，中国将鼓励和引导更多的中长期外资进入中国债券市场，并长期持有中国债务；外资持有的中国国债连续11个季度增长，目前达到2.4万亿元人民币，占有11%的市场份额。
 
-**更多资讯，更多关注**
+**评论：**在王朝兴衰更替不断的中国历史上，财政的奔溃总是王朝即将灭亡的先兆。即将过去的2021年对于中共来说就是一个王朝灭亡迹象不断显现的不平凡的一年。外有美国、欧洲、日本、澳洲、印度等国家在经济、军事、人权各方面的重重围剿，内有习、江、曾、王、孟等中共大佬的激烈内斗。在总多中共政权即将奔溃的迹象中，由房地产引发的金融经济暴雷无疑是最具有说服力的一个，因为任何一个政权的维系离不开两个核心要素—金钱和武力。而今，看似强大的中共在财政上面临巨大的内外还债压力，已经顾不上长远发展，一再用饮鸩止渴的方式续命，可见中共内部已经开始溃败腐烂，新中国联邦必将联合全世界的正义力量彻底消灭中共！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+新闻来源：[China to issue record treasury bonds in 2022, guide rates lower](https://www.reuters.com/markets/rates-bonds/china-issue-record-treasury-bonds-2022-guide-rates-lower-2021-12-30/)
 
  
 

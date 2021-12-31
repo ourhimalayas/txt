@@ -2,22 +2,33 @@
 ---
 
 
-## 马斯克的SpaceX再获大额融资
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807363/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807398/)
 
-采编：青青        编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/07-image-3.jpg)
-据【每日电讯报】12月30日报道，埃隆-马斯克旗下的[太空探索技术公司]SpaceX在最近的一次股权融资中获得近3.4亿美元的太空技术开发资金。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-据悉，SpaceX在今年10月增发股权而获取7.55亿美元后，该公司目前的市场估值已达1003亿美元，而成为当之无愧的“巨型科技独角兽”。
 
-报道称，SpaceX目前正在进行 “星际飞船”开发计划，并试图通过其研制的新型太空船将人员和货物带到月球、火星甚至更远的太空。马斯克则在两天前宣称将有望在10年内将人类送往火星。
+杰西：我们正在非常努力的工作，以取得合适的拍照在这些国家设立网点。给出一个具体的时间线可能会比较困难，我相信我们在美国试图追求大概在12-15个月实现。在加拿大和日本，我相信时间线是差不多的，但应该会更短一些。但我们理解，这些国家是非常大的市场，所以是我们要进入的市场。我们只想确定，当我们进入这些市场时，我们是从一个合规的角度着手，是被这些国家合法监管并接受的。我们正在考虑不同的策略以及什么是最好的方式，但我认为大概一年或者一年半是我们可能做到的时间线。
 
-校对编辑：硫酸羟氯喹64
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-发稿： 苦尽甜来 (文來）
+编辑/校对/发稿：Hetangyuese
 
-[原文链接](https://www.dailywire.com/news/elon-musks-spacex-completes-337-million-fundraising-round?utm_source=thepostmillennial.com&amp;utm_medium=hotwire&amp;utm_content=dailywire-rightrail-sidebar)
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

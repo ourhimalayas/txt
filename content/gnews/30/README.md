@@ -2,22 +2,35 @@
 ---
 
 
-## 以色列政府批准中共病毒疫苗第二加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807332/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807395/)
 
-#### 撰稿：彩虹
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-53.jpg)图片来源：雅虎新闻
-根据《国会山报》12月30日的文章，临近新年，美联社报道以色列政府已经批准为那些“最容易感染疾病”的人接种中共病毒疫苗第二加强针。
 
-以色列卫生部部长纳赫曼·阿什（Nachman Ash）批准了这一决定，他说：“虽然目前情况下世界各地对此的认知不同，（但）我们正在采取的是谨慎和负责任的行动。”他说他将继续检测这种情况，以确定是否扩大第二加强针的人群范围。
+杰西: 就像我之前所提到的，首次发行是一个巨大的事件，喜马拉雅币一开始就有着巨大的需求，所有的HCN都已分配完毕，但我们仍收到许多来自潜在投资者的查询，表示有意购买HCN。
 
-根据以色列卫生部专家小组上周的建议，注射中共病毒疫苗第二加强针的人群包括：60岁以上的人、免疫系统受损的人和医护人员。该小组建议，这些人在接受第一次加强针后四个月就可以接种第二加强针。
+关于未来的发行，为了应付潜在的需求增长，我们可能会在未来推出后续的HCN发行，但每年会有一个上限，为HCN的市场需求和价值增长提供支持。
 
-**新闻来源**
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-[Israel approves fourth coronavirus vaccine dose for most vulnerable](https://thehill.com/policy/international/middle-east-north-africa/587739-israel-approves-fourth-coronavirus-vaccine-dose)
+编辑/校对/发稿：Hetangyuese
+
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

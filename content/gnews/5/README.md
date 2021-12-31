@@ -2,33 +2,47 @@
 ---
 
 
-## “德米克戎”会是下一个新变种么？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1807578/)
+## 拿到手的东西没有一样是你的,给出去的东西才是你的东西
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807822/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-364.png)图片来自网络
-印媒《印度时报》近日报道，欧洲国家奥米克戎变种病例的激增引发了对全球第三波中共病毒大流行可能性的担忧。 虽然专家们仍在努力了解这种新变种的性质以制定预防策略，但另一种名为德米克戎（音译）变种已经脱颖而出。专家认为，这种变种实际上是美国和欧洲发生中共病毒大流行的罪魁祸首。 但它其实不太难被破解，德米克戎是德尔塔和奥米克戎变体的组合。
+**郭文贵先生：**再一个再告诉你们一秘诀，刚才在掌声之后，永远要看别人的缺点，夸赞别人，夸奖别人；永远要，永远要，记住，永远你们小孩子什么东西给出去的东西是你的东西，你拿到手的东西没有一样是你的东西，你一定要相信我说的话。
 
-德尔塔变种在 4 月中旬至 6 月中旬占据主导地位，是造成全球数百万人丧生的第二波冠状病毒的主要原因。 这种病毒株会导致严重的症状，甚至住院的风险更大。 此外，感染后的菌株还会导致长期症状，如脑雾、肌肉酸痛和脱发。
+郭叔走到今天最大的感受就是拿到手东西已经不是你的了，给出去的东西才是你的。唯一不能给的就是你的啥，就是你的老婆你别给别人。除老婆你，别未来老婆送给别人，你什么都可以送给别人。
 
-当我们谈论奥米克戎时，它被认为会引起较轻的症状。 虽然它的传染性很强，但不会导致严重的症状，住院的风险也较低。 但是，专家认为，奥米克戎变体可以超越自然感染和疫苗接种提供的免疫力。奥米克戎感染的最初症状包括喉咙痛、头痛和疲劳。 在中共病毒患者感染奥米克戎的情况下，没有报告嗅觉和味觉的丧失。
+我的儿子很小就到英国读书了，就送给英国去了，我女儿很小来美国读书了，我没让她跟我在一起。我所有的一生的我从来不认为失去是失去，可悲的是我们人类所有的父母教孩子都要得到！得到！得到！
 
-由于德米克戎是由冠状病毒的德尔塔和奥米克戎版本合并而成的，因此它被认为具有高度传染性，并且会导致严重的症状。 需要更多的研究来详细了解其性质。 就症状而言，作为德尔塔和奥米克戎的组合，德米克戎感染往往表现出与其父变体或多或少相同的症状。 常见的标志包括：高温、持续咳嗽、嗅觉或味觉丧失或改变、头痛、流鼻涕以及咽喉痛。
+你的手就这么大，你能抓多少？但你给出去的东西你是摊平的，什么都给得出去。今天这秘诀Bunny一旦你悟会了，你要学好了，你绝对就像当年我跟长岛哥说，我说：“你比马云还会厉害”。他当时不信，咱今天马云已经完蛋了吧？他比马云牛多了吧？
 
-奥米克戎变体的案例在印度正在上升。 到目前为止，印度已发现 350 多例，据信由于圣诞节和新年聚会，未来几天会激增。 印度尚未报告德米克戎病例。 专家表示，目前尚不清楚奥米克戎变体在广泛接触德尔塔变体的印度会如何表现。 甚至有人认为，即使欧美出现这种变种也不会影响印度。 究竟会发生什么，只有时间才能知道。 到那时，我们所能做的就是采取所有预防措施，例如洗手和戴口罩尽最大的可能性去保护自己。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（二）](https://gnews.org/zh-hans/1794348/)
 
-“德米克戎”这种结合了高传染率和高重症率的新变种毒株是否会出现？还是这只是专家们放的烟雾弹？无论如何，郭先生已经明示中共在明年会把压箱底的病毒拿出来，打垮全球经济的同时来最大化自己的政治利益。
+编辑整理：喜马拉雅的肉夹馍；
 
-在19年宣称将要“打开潘多拉盒子”的中共现任外交部部长王毅在本月30日接受媒体时采访时声称“美国有可能为其在台湾的行动付出“不可抗拒的代价”。这将是全人类的终极之战，我们所有人都已经没有退路，这已经是共产党最后的疯狂，作为普通草根的我们应当在积极宣传真相的同时做好病毒防护工作，齐心协力度过这场世界大劫难。
+字幕文件制作：小满；
 
-参考链接：
+视频制作及上传：Cindy；
 
-[https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)
+技术支持：文肺猫
 
-[https://voi.id/zh/news/119139/read](https://voi.id/zh/news/119139/read)
+G-News发布：小满；
 
-[https://www.indiatoday.in/india-today-insight/story/the-delmicron-outbreak-why-we-should-worry-1892877-2021-12-27](https://www.indiatoday.in/india-today-insight/story/the-delmicron-outbreak-why-we-should-worry-1892877-2021-12-27)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,24 @@
 ---
 
 
-## 法国外长声援香港异议人士呼吁尊重新闻自由
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807677/)
+## 麦克·特纳成为众议院情报委员会排名第一共和党人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807834/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-31.jpg)
+#### 撰稿：彩虹
 
-作者：纽约香草山 医疗部 云豹
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-25.jpg)图片来源：政客
+12月30日，《新闻极限》报道，由于众议员德文·努内斯（Devin Nunes）即将离职，周四，来自俄亥俄州的众议员迈克·特纳（Mike Turner）被众议院少数党领袖凯文·麦卡锡（Kevin McCarthy）任命为众议院情报委员会排名第一的共和党人。
 
+根据报道，努内斯之所以要离职，是因为本月早些时候，他宣布将辞职以加盟前总统川普的新社交媒体企业。
 
+由于努内斯在12月31日午夜正式结束他在国会近二十年的工作，因此特纳的任期将从1月1日开始。自2015年以来，无论是作为主席还是作为排名第一的成员，努内斯一直担任情报委员会的最高共和党人。
 
+努内斯对特纳的任命表示祝贺，他说：“多年来，迈克一直是众议院情报委员会共和党人的一个极其宝贵的斗士。他在我们揭露通俄骗局的工作中发挥了重要作用，在（民主党）第一次弹劾川普总统期间，他是拆穿民主党人荒谬指控的重要人员”。
 
+**新闻来源**
 
-
-
-
-
-法国外长于当地时间12月30日，回答记者提问时表示，非常关切香港的新闻言论自由，并呼吁香港政府遵守基本法高度自治的原则。
-
-香港政府于12月29日拘捕曾参与「立场新闻」运作的6位重要成员，指控他们涉嫌「串谋发布煽动刊物罪」。「立场新闻」在2021年11月刚获得无国界记者组织（Reporters sans frontières）新闻自由奖的提名，是香港少数仅存的独立媒体，29日在重要成员被拘捕后，已经宣布停止运作。香港政府显然日益加强打击异议人士的拘捕行动，企图全面封杀香港的言论自由。
-
-法国国家科学研究中心（CNRS）研究主任、香港浸会大学中国政治专家高敬文（Jean-Pierre Cabestan）表示，这是香港政府对新闻自由的再次重击。他认为，香港政府此举的目的明显是要缩减中共与香港间的差距，让香港成为中共统治下众多城市中的一个。
-
-法国外交部表示，法国主张保护世界任何地区的媒体自由、言论自由，让记者及所有有利于自由的多元信息能公开辩论。并呼吁香港政府应保障行政区高度自治，以及尊重香港基本法中自由、法治与司法独立的原则。
-
-(本文为作者观点，不代表G NEWS立场)
-
-[参考连接]：
-
-&lt;[https://www.cna.com.tw/news/aopl/202112310013.aspx](https://www.cna.com.tw/news/aopl/202112310013.aspx)&gt;
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
+[Rep. Mike Turner to Take Nunes’ Spot on Intel Committee](https://www.newsmax.com/politics/mike-turner-devin-nunes-intelligence-committee/2021/12/30/id/1050516/)
 
  
 

@@ -2,41 +2,32 @@
 ---
 
 
-## 爱泼斯坦与安德鲁王子指控者的秘密协议细节将被公开
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807426/)
+## 中共军方在西藏用军用机器人充当士兵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807551/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+纽约香草山 信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
+12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1924.png)
+自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/virginia-roberts-prince-andrew-epstein-comp-1.jpg)
+分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
 
+新闻连接：[China Replacing Soldiers with Robots in Tibet Due to Poor Performance](https://www.breitbart.com/asia/2021/12/28/report-china-replacing-soldiers-robots-tibet-due-poor-performance/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
 
-图片来源：nypost.com
+总编/编辑：Irene木木
 
+校正/发稿：浪迹天涯
 
-#### 编译：小红帽
-
-根据RT12月30日报道， **杰弗里·爱泼斯坦（effrey Epstein ****）与弗吉尼亚·朱弗尔（Virginia Giuffre）之间的和解协议将在未来几天内公布。此前美国法官已下令解封该协议。朱弗尔目前正以性虐待罪名起诉安德鲁王子。**
-
-该文件的发布是在朱弗尔和约克公爵安德鲁王子之间正在进行的案件中进行的。朱弗尔指控安德鲁王子在她未满18岁时强迫她在吉斯莱恩·麦克斯韦（Ghislaine Maxwell）和爱泼斯坦的家里与他发生性关系。
-
-这位高级皇室成员多次极力否认朱弗尔提出的任何指控，包括在现在臭名昭著的BBC采访中，之后安德鲁王子暂时退出了公众视线。他并没有因为这些指控而受到刑事指控。
-
-现已故的被定罪的性犯罪者爱泼斯坦在2009年与朱弗尔达成协议，公爵的律师声称，该协议免除了英国人的任何责任，防止指控者起诉皇室。周三，曼哈顿的两名法官下令在2022年1月3日前后公布该协议文件，称没有理由对其保密。
-
-和解协议的发布是在爱泼斯坦的前红颜知己麦克斯韦被认定有罪之后。她犯有与帮助这位亿万富翁诱骗和招募少女进行虐待有关的六项罪名中的五项。麦克斯韦还没有被判刑，但如果所有罪名成立，她将面临长达80年的监禁。
-
-新闻来源：[Details of secret Epstein deal with Prince Andrew accuser to be made public — RT World News](https://www.rt.com/news/544834-epstein-settlement-giuffre-prince-andrew/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
