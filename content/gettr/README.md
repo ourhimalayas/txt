@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/31/2021 12:23 AM (UTC)`
+
+12/29/2021 Miles Guo: VICE's deliberate postponing the release of the interview with Miles Guo is a gift to the CCP's Winter Olympics; The military bills signed by Biden have made it clear to the CCP that the US is going to fight it till the end. However, no one in the CCP believes that it can defeat the US, and what Yang Jiechi and Wang Yi said in their secret speeches is the exact opposite of reality<br/><br/>12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼；拜登的军事法案让中共明白美国将与之决战，但中共无人认为能打赢美国，杨洁篪和王毅的秘密讲话和现实截然相反<br/>
+![img](https://media.gettr.com/group19/getter/2021/12/31/00/e96497dd-c20e-8178-23cb-8c0488ce92d2/out.jpg)
+
+---
+
 `@miles 12/30/2021 10:30 PM (UTC)`
 
 12/29/2021 Miles Guo: Although Liu Yazhou used to support Xi Jinping, he was arrested by Xi anyway, indicating the CCP is the demon of the world and that its political infights are extremely evil by nature<br/><br/>12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的<br/>
@@ -168,13 +175,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12月30日：祝：活菩萨……人类的大救星……真正的修地敬天者．屠呦呦91岁生日快乐🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group44/getter/2021/12/30/17/f5e2d7a5-36aa-0553-2d13-64dd5c2b7e85/3b52086d078f1848efb644bd47771955.jpg)
-
----
-
-`@miles 12/30/2021 4:51 PM (UTC)`
-
-12/29/2021 Miles Guo: Although Putin accepted the $100 billion from the CCP and promised Xi to take his 4 buddies to attend the Winter Olympics, he is likely to break his promise, and that will be a huge blow to Xi!<br/><br/>12/29/2021 文贵直播：普京虽收了中共1000亿美元并答应习要带他4个哥们去参加冬奥会，但他很可能会爽约，这对习将是巨大的打击！<br/>
-![img](https://media.gettr.com/group13/getter/2021/12/30/16/8853f62d-4ba9-93ea-8921-55ffa16a6580/out.jpg)
 
 ---
 
