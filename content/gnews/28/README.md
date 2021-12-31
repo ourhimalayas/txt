@@ -2,41 +2,30 @@
 ---
 
 
-## 大量外省救护车驰援西安显示疫情失控
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1806653/)
+## 新西兰将辅助新冠病毒重症患者自杀或安乐死
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1806744/)
 
-撰稿人：纽约香草山 医疗部 – 云豹
+#### 作者：加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-483.jpeg)The central
+据鸿声传媒12月29日报道，新西兰卫生部最近证实，不幸感染冠状病毒的重症患者，可能有资格获得辅助自杀或安乐死。
 
+新西兰卫生部进一步解释说，如果一个人在感染新冠病毒后被诊断活不到6个月，那么他就可以根据《EOLC法》即《生命终结选择法》的规定，有资格获得医生的辅助提前结束自己的生命。
 
+至于患者能否活到6个月，则由主治医生（AMP）和独立医生决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+根据新西兰《天主教先驱报》报道，根据相关法律，医生每诊断一例安乐死都会收取1000美元的政府费用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-484.jpeg)Staypark 
+但新西兰1.6万名医生中仅有96人主动申请参与安乐死的资格，全国32家收容机构中仅有一家支持安乐死，其余31家表示反对安乐死，而且不会协助政府的辅助自杀。
 
+英国医学教授芬莱男爵夫人指出，政府关闭了人们自由获得预防和治疗新冠病毒的途径，在他们奄奄一息时建议医生杀死他们，这已经颠覆了医学精神。
 
+显然，人们强烈关注的焦点是，医生能够百分之百准确预测新冠病毒患者的死亡时间吗？这些不幸的患者可以选择政府允许的医疗方案之外的治疗手段吗？比如用伊维菌素、硫酸羟氯喹等被证实有效的药物为自己预防或治疗？如果不能，新西兰政府的以上行为无异于蓄意谋杀。
 
-当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-31-西安.jpg)图片来源：Gettr
+参考：
 
+[Some Doctors To Be Paid $1,000+ Expenses When They Help COVID Patients Die](https://www.redvoicemedia.com/2021/12/some-doctors-to-be-paid-1000-expenses-when-they-help-covid-patients-die/)
 
-西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
-
-参考新闻链接：
-
-[西安新冠病毒疫情失控](https://gettr.com/post/pkn39b70db)
-
-![This image has an empty alt attribute; its file name is Dec-9.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
-
-总编: Irene木木
-
-校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+编辑/发文：Kent
 
  
 

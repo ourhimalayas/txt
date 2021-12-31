@@ -2,22 +2,42 @@
 ---
 
 
-## 【中日财经爆】神话，恒大第一款量产车型下线？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806569/)
+## 大量外省救护车驰援西安显示疫情失控
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1806653/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-115.jpg)[图片来源](https://www.qichezhuanye.com/news/177671.html)
-据财联社12月30日电，其记者独家获悉，恒大汽车第一款量产车型恒驰5首车已于12月30日成功下线，比原定时间提前了12天。知情人士透露，天津工厂当日举行了低调的下线活动。据悉，恒大汽车将在1月上旬举行首车下线仪式。
+撰稿人：纽约香草山 医疗部 – 云豹
 
-恒大汽车造假成性，展会靠模型，骗钱靠PPT，下线时间一推再推，突然间爆出提前下线。这个无图片，无发布，无真相的三无产品，恐怕只是为了稳定市场预期和收割韭菜以实现冬奥会前不能破产的政治企图。
 
-信息来源：
 
-[恒大汽车第一款量产车型恒驰5首车于12月30日提前下线](https://finance.sina.com.cn/stock/hkstock/ggscyd/2021-12-30/doc-ikyamrmz2165808.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-31-西安.jpg)图片来源：Gettr
+
+
+西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
+
+参考新闻链接：
+
+[西安新冠病毒疫情失控](https://gettr.com/post/pkn39b70db)
+
+![This image has an empty alt attribute; its file name is Dec-9.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+总编: Irene木木
+
+校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

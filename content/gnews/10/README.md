@@ -2,39 +2,45 @@
 ---
 
 
-## 为领到一百元 纽约市民排队打加强针
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1806916/)
+## 秦刚向美方指认汉人在新疆被种族大屠杀等同美国的黑人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1806980/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-圣诞节前，纽约市长白思豪宣布，凡是在市政府接种点，年底前打完第三针的纽约居民可以领到一百元。随着圣诞节过去，年底的最后期限即将到来，纽约各大政府接种点都排起了长队。
+**郭文贵先生：**人家说你这个新疆问题，新疆问题你这个、你作为一个大使来了，你要有个新的态度，西方很关注。哇塞！秦刚讲得更精彩了，中国的新疆问题，就是美国对待华人和黑人的问题，什么问题？就是你美国怎么对待华人的、怎么对待黑人的过去。
 
-本台记者文阳闻讯来到法拉盛的政府流动接种点，看见排队的人龙蔓延了一个多街区，三百多米长，排队的民众目测超过三百人，各种族裔都有。记者随机采访了多个排队民众，均表示已经排了几个小时了，就是来打第三针的。而且还说，如果不是为了赶在年底前打完第三针，拿到市长给的一百元，谁高兴顶着寒风排几个小时的队。
+但是扮演的角色不同的是，在中国汉人是当时美国的黑人，就是汉人是被新疆人屠杀的，跟种族大屠杀的，而不是汉人屠杀了新疆人。哇塞！这是我第一回听说呀！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-5.jpeg)
+他说你们知道吗，在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人多少次屠杀、种族大屠杀了汉人，所有中国汉人过去的这些问题，绝大多数问题都来自新疆、中国的北方，我们就像你美国的黑人一样，曾经比奴隶还惨的。
 
-文贵先生和新中国联邦一再告诫世人，我们反的是假疫苗，疫苗强推很快就会过去，不要让假疫苗伤害你和你的家人。还有世界各地的一线医生和医学专家发出警告，mRNA 疫苗内含的刺突蛋白，对人体有害。据一份11月15日发布的法庭文件显示，FDA计划到2076年才彻底公布新冠疫苗数据，足可证明现在的疫苗都是谋财害命的假疫苗。
+但是现在我们对待新疆人是多好呢？就像现在，你看到的我们中国人和很多种族相互和平相处一样，我们对待他们就像亲兄弟姐妹。哇塞！这真的是太夸张了！这个战羊外交已经不是羊了，哇塞！这已经是战魔了啊！
 
-有网友在新闻下留言，这些为了拿到一百元而去打第三针的人，可以堪比犹大手中的那袋银币。不过，小编认为，为了一百块而去打第三针的人，比犹大都不如。因为，犹大出卖的是耶稣，他们出卖的是自己的健康和未来。
+编辑整理：海贼王M.D.LUFFY；
 
-新闻链接：[https://gnews.org/zh-hans/1797180/](https://gnews.org/zh-hans/1797180/)
+字幕文件制作：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+视频制作及上传：Cindy；
 
-**校对/发稿：童谣**
+技术支持：文肺猫
 
-**更多资讯，更多关注**
+G-News发布：小满；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
