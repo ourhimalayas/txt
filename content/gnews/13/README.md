@@ -2,33 +2,36 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807398/)
+## 南非取消了新冠病毒宵禁令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807468/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+#### 【雅典娜快讯】，紧贴时事脉搏
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/African-nation-lifts-Covid-19-curfew.jpg)图片来源：BBC
 
 
-杰西：我们正在非常努力的工作，以取得合适的拍照在这些国家设立网点。给出一个具体的时间线可能会比较困难，我相信我们在美国试图追求大概在12-15个月实现。在加拿大和日本，我相信时间线是差不多的，但应该会更短一些。但我们理解，这些国家是非常大的市场，所以是我们要进入的市场。我们只想确定，当我们进入这些市场时，我们是从一个合规的角度着手，是被这些国家合法监管并接受的。我们正在考虑不同的策略以及什么是最好的方式，但我认为大概一年或者一年半是我们可能做到的时间线。
+#### 编译：小红帽
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+根据RT12月30日报道，** 南非政府从星期四起取消了对公民行动的夜间限制，因为由新的新冠病毒变种驱动的最新冠状病毒病例已经呈下降趋势。**
 
-编辑/校对/发稿：Hetangyuese
+“宵禁将被取消。因此，人们的行动时间将不受限制，”政府在一份声明中说，它在一次特别内阁会议后宣布放松新冠病毒（Covid-19）限制。这是自该大流行病开始以来，近两年首次取消午夜至凌晨4点的宵禁令。
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+声明说，“在截至12月25日的一周，这个非洲国家的新病例与前一周相比减少了近30%。它补充说，除两个省份外，所有省份的感染人数也在下降，住院人数也是如此，西开普省是唯一的例外。”
 
-**更多资讯，更多关注**
+“所有指标表明，该国可能已经度过了全国范围内的第四波高峰。这一更新是在南非流行病学家首次发现新的、高度传播的Omicron变种的一个月后。自那时起，该国的医务人员一再指出，新菌株在病人身上引起的症状不太严重。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+现在，政府表示，尽管 “Omicron变种具有高度传染性，但住院率比前几波要低”。以住院限制容量为由，南非还放宽了对聚会的限制，将聚会人数提高到室内1000人，室外最多2000人。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+上周，部长级咨询委员会估计，60%至80%的南非人对新冠病毒有免疫力，无论是通过以前的感染还是疫苗接种产生的。在全国范围内，只有大约10%的新冠病毒病例可能被诊断出来，因为大多数感染了该病毒的人从未出现明显的症状。
+
+新闻来源：[African nation lifts Covid-19 curfew — RT World News](https://www.rt.com/news/544857-south-africa-lift-covid-curfew/)
+
+***发布：小红帽*****更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

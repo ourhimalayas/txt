@@ -2,30 +2,35 @@
 ---
 
 
-## 饱受封城之苦的西安民众抱怨“蛋尽粮绝”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1807361/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807395/)
 
-![中国陕西西安新冠防疫封城后一名工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）](https://gdb.voanews.com/472EE81C-18E4-450B-8D1A-88246941112D_w1023_r1_s.jpg)*中国西安新冠防疫封城后一工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）*
-据美国之音12月31日报道，拥有1300万人口的陕西省西安市从12月23日起全面封城。“零容忍”政策不仅使当地经济凋零，更使民生火热水深。被囚禁在家中的西安居民只能通过网络发出求救，很多人面临生命危险。
-
-为了平息全城封禁导致的民怨，西安市各区政府组织多家大型超市和农贸市场，通过街道和社区的志愿者将分装好的免费蔬菜及其他食品分别送至封闭管理小区的居民家中。仅西安市曲江新区一地，就分发了130吨肉类、70吨鸡蛋以及650吨蔬菜。但很多民众仍表示，只收到新闻，没收到菜。
-
-中共国的“零容忍”政策只符合监管和镇压老百姓，对一切贪腐或欺行霸市则是“全开放”。突然间的足不出户和居家避疫，没有任何准备的时间，很多人来不及储存生活物资，危重病人得不到救治，哪怕产妇都不能幸免。这样灭绝人性的隔离无异于杀人。在临近新年之际，2年前武汉的悲剧又在重演。中共多存在一天，中共国每一天就会多出无数个冤魂。
-
-新闻参考链接：[https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html](https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+杰西: 就像我之前所提到的，首次发行是一个巨大的事件，喜马拉雅币一开始就有着巨大的需求，所有的HCN都已分配完毕，但我们仍收到许多来自潜在投资者的查询，表示有意购买HCN。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+关于未来的发行，为了应付潜在的需求增长，我们可能会在未来推出后续的HCN发行，但每年会有一个上限，为HCN的市场需求和价值增长提供支持。
+
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+
+编辑/校对/发稿：Hetangyuese
+
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

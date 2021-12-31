@@ -2,38 +2,22 @@
 ---
 
 
-## 有声|物资短缺 大量西安民众深夜求救
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807275/)
+## 以色列政府批准中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807332/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月27日，据盖特知情人士爆料称，大量西安民众当晚涌入中共媒体的微博账号下发出求救——他们纷纷留言表示，目前家中物资已极度短缺，但当地政府的供应却远不到位。
+#### 撰稿：彩虹
 
-据当地民众反映，自西安因疫情封城之后，该市不但菜价极速飞升，而且相关的配送物流也变得毫无保障。还有知情者提及，即使一些外地省市已经对西安进行了支援，但这些物资却根本没有到达民众的手中。就西安市民而言，仅仅是全家人的一日三餐就已经成为难题。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-53.jpg)图片来源：雅虎新闻
+根据《国会山报》12月30日的文章，临近新年，美联社报道以色列政府已经批准为那些“最容易感染疾病”的人接种中共病毒疫苗第二加强针。
 
-原文链接：[物资短缺 大量西安民众深夜求救](https://gnews.org/zh-hans/1801670/)
+以色列卫生部部长纳赫曼·阿什（Nachman Ash）批准了这一决定，他说：“虽然目前情况下世界各地对此的认知不同，（但）我们正在采取的是谨慎和负责任的行动。”他说他将继续检测这种情况，以确定是否扩大第二加强针的人群范围。
 
-音频处理：喜山必胜Maverick
+根据以色列卫生部专家小组上周的建议，注射中共病毒疫苗第二加强针的人群包括：60岁以上的人、免疫系统受损的人和医护人员。该小组建议，这些人在接受第一次加强针后四个月就可以接种第二加强针。
 
-发稿：Daxia
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Israel approves fourth coronavirus vaccine dose for most vulnerable](https://thehill.com/policy/international/middle-east-north-africa/587739-israel-approves-fourth-coronavirus-vaccine-dose)
 
  
 

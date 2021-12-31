@@ -2,52 +2,30 @@
 ---
 
 
-## 各主要国家中共病毒新增确诊数创新高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807289/)
+## 饱受封城之苦的西安民众抱怨“蛋尽粮绝”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1807361/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-25.jpg)
+![中国陕西西安新冠防疫封城后一名工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）](https://gdb.voanews.com/472EE81C-18E4-450B-8D1A-88246941112D_w1023_r1_s.jpg)*中国西安新冠防疫封城后一工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）*
+据美国之音12月31日报道，拥有1300万人口的陕西省西安市从12月23日起全面封城。“零容忍”政策不仅使当地经济凋零，更使民生火热水深。被囚禁在家中的西安居民只能通过网络发出求救，很多人面临生命危险。
 
-作者：纽约香草山 医疗部 云豹
+为了平息全城封禁导致的民怨，西安市各区政府组织多家大型超市和农贸市场，通过街道和社区的志愿者将分装好的免费蔬菜及其他食品分别送至封闭管理小区的居民家中。仅西安市曲江新区一地，就分发了130吨肉类、70吨鸡蛋以及650吨蔬菜。但很多民众仍表示，只收到新闻，没收到菜。
 
+中共国的“零容忍”政策只符合监管和镇压老百姓，对一切贪腐或欺行霸市则是“全开放”。突然间的足不出户和居家避疫，没有任何准备的时间，很多人来不及储存生活物资，危重病人得不到救治，哪怕产妇都不能幸免。这样灭绝人性的隔离无异于杀人。在临近新年之际，2年前武汉的悲剧又在重演。中共多存在一天，中共国每一天就会多出无数个冤魂。
 
+新闻参考链接：[https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html](https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html)
 
-至当地时间12月30日止，各主要国家单日新增确诊人数，美国489,025人，英国221,250人， 法国206,243人， 意大利126,888人，皆创下中共病毒疫情以来的新高纪录。
+编辑：胖丁
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron.jpg)
-完整疫苗接种率及第三剂追加疫苗接种率，美国 61.9%，20.6%；英国 70.4%，49.2%；法国 73.2%，31.6%；意大利 75%，30.7%。除了美国以外，皆已达到70%以上的覆盖率。
-
-此次中共病毒疫情在各主要国家再次爆发突破新高，除了需注意Omicron变异株的传染性可能比之前的变异株更强大外，也更显示出疫苗的注射无法达到各国政府及药厂所宣传的预防效果。疫苗谎言再次被揭穿。
-
-(本文为作者观点，不代表G NEWS立场)
-
-参考连接：
-
-&lt;[https://www.cna.com.tw/news/aopl/202112310023.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112310023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
-
-&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&hl=zh\_hant\_hk&dcr=0&ei=\_XTOYfOkPLnfmAXm-62gAQ&ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=_XTOYfOkPLnfmAXm-62gAQ&amp;ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&amp;sclient=gws-wiz-serp)&gt;
-
-&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&hl=zh\_hant\_hk&dcr=0&ei=NnjOYe\_4IbOGr7wP0fKk6Ao&ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=NnjOYe_4IbOGr7wP0fKk6Ao&amp;ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&amp;sclient=gws-wiz-serp)&gt;
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

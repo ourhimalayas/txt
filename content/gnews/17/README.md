@@ -2,69 +2,40 @@
 ---
 
 
-## 新年献词
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807394/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807401/)
 
-撰稿：东京樱花团/待命（文晓）
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-四年赛梭飞
 
-灭共终不悔
 
-今夜共仰望
 
-七芒星最美
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
 
-四年前，是我们新生的起点。
 
-置疑、懵懂、好奇的昨天。
 
-而今晚，是我们四年的沉淀。
 
-跟随、不屈、坚定的信念。
+杰西：未来会有其它的加密货币上线。显然，我们将推出比特币和以太坊。我们有一个被批准的虚拟资产清单，我们都作为一个团队在内部讨论。一旦我们决定加入某一个货币对，它们就会被推出。我认为，在未来几个月内，我们会有一个具有广泛深度的一系列虚拟币在交易所上线。我们希望成为一个非常强健的平台，会有很多不同的虚拟货币上市。
 
-爆料革命
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1701232/](https://gnews.org/zh-hans/1701232/)
 
-新中国联邦
+编辑/校对/发稿：Hetangyuese
 
-东京  　樱花团
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-从睡到醒
+**更多资讯，更多关注**
 
-我们也曾难分敌我 　恶语相间
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-从生到熟
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-我们战友亲如一家 　相携相伴
-
-从弱到强
-
-我们敲击键盘之和声 　滴答不停
-
-从小到大
-
-我们的游行队伍 　已浩荡绵延
-
-残暴下 　我们抱成一团
-
-病毒袭 　我们雪中送炭
-
-谎言里　 我们传递真相
-
-阴霾中 　我们振臂呐喊
-
-风雨骤 　我们不失方向
-
-征途中 　我们灯塔高悬
-
-投身爆料革命，是我们今生最正确的选择！
-
-推翻邪恶中共，是全人类正义的必然！
-
-向前！向前！灭共大军   东京　樱花团
-
-*发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

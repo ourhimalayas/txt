@@ -2,40 +2,31 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807401/)
+## 西安封城是防疫还是闹饥荒
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1807488/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/311.jpg)图片来自网络
+西安市12月27日升级疫情管控，强制全城居家避疫，1300万居民被限令足不出户，违者将被拘留10天和罚款500元人民币。城中封控居民只能靠志愿者送菜上门，有网友认为西安仿佛不是在闹病毒，是在闹饥荒。
 
+自12月9日以来，西安三周内累计本土确诊病例就已破千例，达到1117例。
 
+据西安市12月29日第40场新冠肺炎疫情防控工作新闻发布会上通报，疫情措施升级之后，出现保供员工到岗率低、物流配送困难的情况。
 
+由于多日无法出门买菜，一些食物吃完的居民上网求援。有人在微博上抱怨“我快要饿死了”、“没有吃的了，可我的小区不让我出门，我连方便面都快吃完了，快救救我！”、“我不想再听说一切都好。如果供应真的很充裕，你不把东西送给民众，那也没用。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+中共国CCP专政，垄断媒体，根本不可能有真相，西安实际情况一定更糟。据爆料革命郭文贵先生的透露，西安所谓的疫情，事实是疫苗副作用的显现，西安市民因为居家隔离没有食物翻墙取食，因为心脏病得不到及时救治，因为各种原因跳楼，已经有2000多人死亡！
 
+所谓的新冠病毒，其实就是CCP从武汉P4实验室向全世界故意投毒，如今在疫苗接种率95%以上的西安泛滥，是CCP一手造成的，或是自编自导的邪恶剧。爆料革命情报指出，自有疫情以来，中共国因感染病毒已死亡1300多万人，但是不会有任何一个媒体爆出真相，今天被封控在家，没吃没喝的西安市民，最终会有多少人惨遭不幸，在CCP的邪魔的统治下永远无法预见。
 
+西安的灾难完全是不该发生的。据爆料革命郭文贵先生透露，下一个类似情况会发生在河北，而且CCP会再次放毒！只要CCP不灭，灾难就不可能结束！世界就不可能安宁！全人类就不可能安全！
 
+那么我们该怎么做？
 
-杰西：未来会有其它的加密货币上线。显然，我们将推出比特币和以太坊。我们有一个被批准的虚拟资产清单，我们都作为一个团队在内部讨论。一旦我们决定加入某一个货币对，它们就会被推出。我认为，在未来几个月内，我们会有一个具有广泛深度的一系列虚拟币在交易所上线。我们希望成为一个非常强健的平台，会有很多不同的虚拟货币上市。
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7332/5998218?from=udn-catebreaknews_ch2)
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1701232/](https://gnews.org/zh-hans/1701232/)
-
-编辑/校对/发稿：Hetangyuese
-
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
