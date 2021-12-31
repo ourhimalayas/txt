@@ -15,91 +15,91 @@
 
 ---
 
-### [辉瑞与中共国疫苗护照平台合作，承认“自豪地与中共国领导人站在一起”](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
+### [先是缺PPE再缺呼吸机 如今医院人手短缺](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [历史性秘密会议：香港神职人员给习神打工](/content/gnews/2/README.md)
+### [西安智飞疫苗让西安“忍饥挨饿”](/content/gnews/2/README.md)
  ` wenwu`
 
-### [7·24系列——谁发起了《2022财政年度国防授权法》](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国的水资源正被伪政府耗尽](/content/gnews/4/README.md)
- ` wenwu`
-
-### [笑看中共评出的2021年国内和国际十大新闻](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台国防部侦测今年中共军机扰台 创纪录940架次](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚，请不要被中共国的鹰派人物吓倒](/content/gnews/7/README.md)
- ` 走进澳洲`
-
-### [不要把唱歌作为谋生饭碗不要为取悦他人而唱别唱口水歌](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [音乐是和懂你的人在交流和你的灵魂在交流和上帝在交流](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [父母的话一定要认真地听并坚决忘记很多事不要跟父母说](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拿到手的东西没有一样是你的,给出去的东西才是你的东西](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【#G时新闻】新的研究表明MRNA疫苗助长奥米克戎的感染](/content/gnews/15/README.md)
- ` G-时新闻`
-
-### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [让你的敌人和瞧不起你的人改变的就是行动就是你比他强](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [因为拼爹拼娘拼不过别人所以才要奋斗所以你才是最牛的](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [跟人打交道的唯一方式是主动打招呼别害羞真诚对待别人](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [因为有外星人我们才探索外空、发射火箭和登月](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [“德米克戎”会是下一个新变种么？](/content/gnews/23/README.md)
+### [[ 聚焦港澳 ] 中共在香港推行南京大屠杀教育背后的阴谋](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [中国的水资源正在枯竭，也是亚洲恐慌的原因](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
+### [奥米炕病毒起源：怎么没有人讨论这个问题？](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中共军方在西藏用军用机器人充当士兵](/content/gnews/25/README.md)
+### [辉瑞与中共国疫苗护照平台合作，承认“自豪地与中共国领导人站在一起”](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [历史性秘密会议：香港神职人员给习神打工](/content/gnews/6/README.md)
+ ` wenwu`
+
+### [7·24系列——谁发起了《2022财政年度国防授权法》](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国的水资源正被伪政府耗尽](/content/gnews/8/README.md)
+ ` wenwu`
+
+### [笑看中共评出的2021年国内和国际十大新闻](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台国防部侦测今年中共军机扰台 创纪录940架次](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚，请不要被中共国的鹰派人物吓倒](/content/gnews/11/README.md)
+ ` 走进澳洲`
+
+### [不要把唱歌作为谋生饭碗不要为取悦他人而唱别唱口水歌](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [音乐是和懂你的人在交流和你的灵魂在交流和上帝在交流](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [父母的话一定要认真地听并坚决忘记很多事不要跟父母说](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拿到手的东西没有一样是你的,给出去的东西才是你的东西](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【#G时新闻】新的研究表明MRNA疫苗助长奥米克戎的感染](/content/gnews/19/README.md)
+ ` G-时新闻`
+
+### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [让你的敌人和瞧不起你的人改变的就是行动就是你比他强](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [因为拼爹拼娘拼不过别人所以才要奋斗所以你才是最牛的](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [跟人打交道的唯一方式是主动打招呼别害羞真诚对待别人](/content/gnews/23/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/24/README.md)
+ ` 纽约香草山MOS03`
+
+### [因为有外星人我们才探索外空、发射火箭和登月](/content/gnews/25/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共军方在西藏用军用机器人充当士兵](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [疫苗后遗症导致西安疫情灾难](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案](/content/gnews/27/README.md)
+### [前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [加拿大驱逐由中共控制的中国移动在加子公司](/content/gnews/28/README.md)
- ` 首尔天池农场`
-
-### [中国 2022 年将发行创纪录国债 指导利率走低](/content/gnews/29/README.md)
+### [加拿大驱逐由中共控制的中国移动在加子公司](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
 ### [南非取消了新冠病毒宵禁令](/content/gnews/30/README.md)
