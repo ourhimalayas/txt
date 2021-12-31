@@ -2,69 +2,34 @@
 ---
 
 
-## 新年献词
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807394/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
 
-撰稿：东京樱花团/待命（文晓）
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-四年赛梭飞
 
-灭共终不悔
+杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
 
-今夜共仰望
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-七芒星最美
+编辑/校对/发稿：Hetangyuese
 
-四年前，是我们新生的起点。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-置疑、懵懂、好奇的昨天。
+**更多资讯，更多关注**
 
-而今晚，是我们四年的沉淀。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-跟随、不屈、坚定的信念。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-爆料革命
-
-新中国联邦
-
-东京  　樱花团
-
-从睡到醒
-
-我们也曾难分敌我 　恶语相间
-
-从生到熟
-
-我们战友亲如一家 　相携相伴
-
-从弱到强
-
-我们敲击键盘之和声 　滴答不停
-
-从小到大
-
-我们的游行队伍 　已浩荡绵延
-
-残暴下 　我们抱成一团
-
-病毒袭 　我们雪中送炭
-
-谎言里　 我们传递真相
-
-阴霾中 　我们振臂呐喊
-
-风雨骤 　我们不失方向
-
-征途中 　我们灯塔高悬
-
-投身爆料革命，是我们今生最正确的选择！
-
-推翻邪恶中共，是全人类正义的必然！
-
-向前！向前！灭共大军   东京　樱花团
-
-*发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

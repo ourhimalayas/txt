@@ -2,30 +2,33 @@
 ---
 
 
-## 前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1807521/)
+## “德米克戎”会是下一个新变种么？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1807578/)
 
-翻译：zzballack
-上传：无明逆流
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-364.png)图片来自网络
+印媒《印度时报》近日报道，欧洲国家奥米克戎变种病例的激增引发了对全球第三波中共病毒大流行可能性的担忧。 虽然专家们仍在努力了解这种新变种的性质以制定预防策略，但另一种名为德米克戎（音译）变种已经脱颖而出。专家认为，这种变种实际上是美国和欧洲发生中共病毒大流行的罪魁祸首。 但它其实不太难被破解，德米克戎是德尔塔和奥米克戎变体的组合。
 
-据《国家脉动》（The National Pulse）12月30日报道，辉瑞公司已经聘请了参议院少数党领袖米奇·麦康奈尔 (Mitch McConnell)的前政策主任哈森·马歇尔（Hazen Marshall）担任说客，以协助这家大药厂阻止《2021年虚假申报法修正案》(the False Claims Amendments Act of 2021) 被通过。这项拟议修正案将加强对举报人的保护，包括反报复以及保护正寻求就业的举报人不被列入黑名单。
+德尔塔变种在 4 月中旬至 6 月中旬占据主导地位，是造成全球数百万人丧生的第二波冠状病毒的主要原因。 这种病毒株会导致严重的症状，甚至住院的风险更大。 此外，感染后的菌株还会导致长期症状，如脑雾、肌肉酸痛和脱发。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/What21-at-4.11.10-PM.jpeg)资料：麦康奈尔
+当我们谈论奥米克戎时，它被认为会引起较轻的症状。 虽然它的传染性很强，但不会导致严重的症状，住院的风险也较低。 但是，专家认为，奥米克戎变体可以超越自然感染和疫苗接种提供的免疫力。奥米克戎感染的最初症状包括喉咙痛、头痛和疲劳。 在中共病毒患者感染奥米克戎的情况下，没有报告嗅觉和味觉的丧失。
 
-说客文件显示，辉瑞最近聘请了位于华盛顿特区的马歇尔-波普（Marshall & Popp）公司游说反对上述修正案，游说合同包括反对保护举报人和确认辉瑞的新冠疫苗专利。在2021年赚取了超过300万美元利润马歇尔-波普游说公司，由前米奇·麦康奈尔的工作人员哈森·马歇尔以及参议院共和党党鞭约翰·科宁 (John Cornyn)的前办公室主任莫妮卡·波普（Monica Popp）在2019年创办。根据2007年的《诚实领袖与透明政府法》(Honest Leadership and Open Government Act)，该公司暂时被禁止在美国参议院进行游说活动。除此之外，这些企业建制派共和党人看起来还代表谷歌母公司Alphabet、美国的跨国烟草公司奥驰亚 (Altria)和其它一系列制药商客户进行游说。
+由于德米克戎是由冠状病毒的德尔塔和奥米克戎版本合并而成的，因此它被认为具有高度传染性，并且会导致严重的症状。 需要更多的研究来详细了解其性质。 就症状而言，作为德尔塔和奥米克戎的组合，德米克戎感染往往表现出与其父变体或多或少相同的症状。 常见的标志包括：高温、持续咳嗽、嗅觉或味觉丧失或改变、头痛、流鼻涕以及咽喉痛。
 
-官方文件显示，马歇尔和他的团队被招募来游说反对上述修正案以及免除新冠疫苗的知识产权保护。免除对新冠疫苗专利的保护将迫使辉瑞放弃它们从联邦政府那里获得的的巨额财富。
+奥米克戎变体的案例在印度正在上升。 到目前为止，印度已发现 350 多例，据信由于圣诞节和新年聚会，未来几天会激增。 印度尚未报告德米克戎病例。 专家表示，目前尚不清楚奥米克戎变体在广泛接触德尔塔变体的印度会如何表现。 甚至有人认为，即使欧美出现这种变种也不会影响印度。 究竟会发生什么，只有时间才能知道。 到那时，我们所能做的就是采取所有预防措施，例如洗手和戴口罩尽最大的可能性去保护自己。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Im3300-PM.jpeg)图片来源：WSJ
+“德米克戎”这种结合了高传染率和高重症率的新变种毒株是否会出现？还是这只是专家们放的烟雾弹？无论如何，郭先生已经明示中共在明年会把压箱底的病毒拿出来，打垮全球经济的同时来最大化自己的政治利益。
 
-如果《虚假申报法》（False Claims Act）的修正案获得通过，它将使追责公司的欺诈行为变得更加容易。该法案自内战以来一直存在，《国家法律评论》（The National Law Review ）指出：“像许多其他制药公司一样，辉瑞公司已经因为违反《虚假申报法》而支付了巨额罚款。在2009年的一起和解案件中，辉瑞支付了23亿美元的罚款，以解决因非法推广某些药品而带来的刑事和民事责任，这是美国司法部历史上最大的医疗欺诈和解案件。”根据司法部的说法，这一创纪录的和解案源于六名举报人对辉瑞提起的诉讼。
+在19年宣称将要“打开潘多拉盒子”的中共现任外交部部长王毅在本月30日接受媒体时采访时声称“美国有可能为其在台湾的行动付出“不可抗拒的代价”。这将是全人类的终极之战，我们所有人都已经没有退路，这已经是共产党最后的疯狂，作为普通草根的我们应当在积极宣传真相的同时做好病毒防护工作，齐心协力度过这场世界大劫难。
 
-但是，最高法院2016年的一项裁决说，如果承包商在被指控欺诈后，政府仍向其支付报酬，则欺诈诉讼可以被驳回，这项裁决导致《虚假申报法》目前几乎无法保护公众免受辉瑞等公司的欺诈。就在马歇尔-波普公司担任辉瑞说客后不久，《英国医学杂志》在11月初公布了一份报告，举报人指出，辉瑞存在实验室管理不善、标本被贴上错误标签、缺乏对出现不良反应的病人的追踪等问题。所以尽管存在欺诈行为，但由于政府继续向辉瑞付款，根据2016年的裁决，辉瑞的欺诈行为可能不会被认可。但拟议修正案将修补这一法律漏洞。因此，证明举报人声明的责任将由辉瑞等公司承担。
+参考链接：
 
-目前，辉瑞已聘用了80多位说客，2021年的游说总支出超过了700万美元，其中马歇尔的公司获得了10万美元。截至目前，《2021年虚假申报法修正案》还未获得通过，辉瑞的新冠疫苗专利仍受保护。
+[https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms](https://timesofindia.indiatimes.com/life-style/health-fitness/health-news/covid-19-variant-what-is-delmicron-and-how-is-it-different-from-omicron/photostory/88472473.cms)
 
-新闻来源：[EXCLUSIVE: Top Mitch McConnell Staffer Leads Pfizer’s Lobbying Charge to Protect Vaccine Patent and Block Bill Holding Big Pharma Accountable for Fraud.](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
+[https://voi.id/zh/news/119139/read](https://voi.id/zh/news/119139/read)
 
+[https://www.indiatoday.in/india-today-insight/story/the-delmicron-outbreak-why-we-should-worry-1892877-2021-12-27](https://www.indiatoday.in/india-today-insight/story/the-delmicron-outbreak-why-we-should-worry-1892877-2021-12-27)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
