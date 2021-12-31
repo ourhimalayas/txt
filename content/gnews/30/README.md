@@ -2,36 +2,29 @@
 ---
 
 
-## 南非取消了新冠病毒宵禁令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807468/)
+## 前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1807521/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+翻译：zzballack
+上传：无明逆流
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/African-nation-lifts-Covid-19-curfew.jpg)图片来源：BBC
+据《国家脉动》（The National Pulse）12月30日报道，辉瑞公司已经聘请了参议院少数党领袖米奇·麦康奈尔 (Mitch McConnell)的前政策主任哈森·马歇尔（Hazen Marshall）担任说客，以协助这家大药厂阻止《2021年虚假申报法修正案》(the False Claims Amendments Act of 2021) 被通过。这项拟议修正案将加强对举报人的保护，包括反报复以及保护正寻求就业的举报人不被列入黑名单。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/What21-at-4.11.10-PM.jpeg)资料：麦康奈尔
 
-#### 编译：小红帽
+说客文件显示，辉瑞最近聘请了位于华盛顿特区的马歇尔-波普（Marshall & Popp）公司游说反对上述修正案，游说合同包括反对保护举报人和确认辉瑞的新冠疫苗专利。在2021年赚取了超过300万美元利润马歇尔-波普游说公司，由前米奇·麦康奈尔的工作人员哈森·马歇尔以及参议院共和党党鞭约翰·科宁 (John Cornyn)的前办公室主任莫妮卡·波普（Monica Popp）在2019年创办。根据2007年的《诚实领袖与透明政府法》(Honest Leadership and Open Government Act)，该公司暂时被禁止在美国参议院进行游说活动。除此之外，这些企业建制派共和党人看起来还代表谷歌母公司Alphabet、美国的跨国烟草公司奥驰亚 (Altria)和其它一系列制药商客户进行游说。
 
-根据RT12月30日报道，** 南非政府从星期四起取消了对公民行动的夜间限制，因为由新的新冠病毒变种驱动的最新冠状病毒病例已经呈下降趋势。**
+官方文件显示，马歇尔和他的团队被招募来游说反对上述修正案以及免除新冠疫苗的知识产权保护。免除对新冠疫苗专利的保护将迫使辉瑞放弃它们从联邦政府那里获得的的巨额财富。
 
-“宵禁将被取消。因此，人们的行动时间将不受限制，”政府在一份声明中说，它在一次特别内阁会议后宣布放松新冠病毒（Covid-19）限制。这是自该大流行病开始以来，近两年首次取消午夜至凌晨4点的宵禁令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Im3300-PM.jpeg)图片来源：WSJ
 
-声明说，“在截至12月25日的一周，这个非洲国家的新病例与前一周相比减少了近30%。它补充说，除两个省份外，所有省份的感染人数也在下降，住院人数也是如此，西开普省是唯一的例外。”
+如果《虚假申报法》（False Claims Act）的修正案获得通过，它将使追责公司的欺诈行为变得更加容易。该法案自内战以来一直存在，《国家法律评论》（The National Law Review ）指出：“像许多其他制药公司一样，辉瑞公司已经因为违反《虚假申报法》而支付了巨额罚款。在2009年的一起和解案件中，辉瑞支付了23亿美元的罚款，以解决因非法推广某些药品而带来的刑事和民事责任，这是美国司法部历史上最大的医疗欺诈和解案件。”根据司法部的说法，这一创纪录的和解案源于六名举报人对辉瑞提起的诉讼。
 
-“所有指标表明，该国可能已经度过了全国范围内的第四波高峰。这一更新是在南非流行病学家首次发现新的、高度传播的Omicron变种的一个月后。自那时起，该国的医务人员一再指出，新菌株在病人身上引起的症状不太严重。”
+但是，最高法院2016年的一项裁决说，如果承包商在被指控欺诈后，政府仍向其支付报酬，则欺诈诉讼可以被驳回，这项裁决导致《虚假申报法》目前几乎无法保护公众免受辉瑞等公司的欺诈。就在马歇尔-波普公司担任辉瑞说客后不久，《英国医学杂志》在11月初公布了一份报告，举报人指出，辉瑞存在实验室管理不善、标本被贴上错误标签、缺乏对出现不良反应的病人的追踪等问题。所以尽管存在欺诈行为，但由于政府继续向辉瑞付款，根据2016年的裁决，辉瑞的欺诈行为可能不会被认可。但拟议修正案将修补这一法律漏洞。因此，证明举报人声明的责任将由辉瑞等公司承担。
 
-现在，政府表示，尽管 “Omicron变种具有高度传染性，但住院率比前几波要低”。以住院限制容量为由，南非还放宽了对聚会的限制，将聚会人数提高到室内1000人，室外最多2000人。
+目前，辉瑞已聘用了80多位说客，2021年的游说总支出超过了700万美元，其中马歇尔的公司获得了10万美元。截至目前，《2021年虚假申报法修正案》还未获得通过，辉瑞的新冠疫苗专利仍受保护。
 
-上周，部长级咨询委员会估计，60%至80%的南非人对新冠病毒有免疫力，无论是通过以前的感染还是疫苗接种产生的。在全国范围内，只有大约10%的新冠病毒病例可能被诊断出来，因为大多数感染了该病毒的人从未出现明显的症状。
-
-新闻来源：[African nation lifts Covid-19 curfew — RT World News](https://www.rt.com/news/544857-south-africa-lift-covid-curfew/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[EXCLUSIVE: Top Mitch McConnell Staffer Leads Pfizer’s Lobbying Charge to Protect Vaccine Patent and Block Bill Holding Big Pharma Accountable for Fraud.](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
 
  
 

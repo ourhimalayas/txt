@@ -2,26 +2,66 @@
 ---
 
 
-## 习近平为奥运疯狂撒币，恐换来寂寞愁留守空房
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1806839/)
+## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
 
-新西兰伊甸农场Gnews组 财经G乐部 亚伦
-
-12月29日，郭文贵先生于GTV、Gettr大直播中深入解读之前提到过的世界新“四国演义”，并表示，政客的血液里没有正义，只有活着下去的利益。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3065736234c2389f1a5b744b10da11fd-2.jpg)图片来源Gettr
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
 
 
-在“战羊外交家”驻美大使秦刚发表把中美关系比作与狼共舞、并会奉陪到底（以卵击石）的言论之后，收取北京1000多亿美元纳贡的普京，曾私下答应习不但本人出席冬奥会，还会率领四位重要人士一起参加。然而，根据最新的消息，这四位当中的三位已经明确正式拒绝出席北京冬奥会。而普京也以恰逢其时的腰后椎疼痛为由，需要到索契治疗度假，导致普京本人到场也成未可知。习被接连打脸已习以为常，私自挥霍老百姓1000多亿美元的税收恐又买个寂寞。其实对于俄罗斯来说，欧洲才关系到俄罗斯的核心利益。俄罗斯为欧洲提供天然气和石油赚取外汇，欧洲也提供俄罗斯85%的高档饮食和生活消费品。
 
-源于欧洲和美国的共同文化和政治利益，导致运用政治手段也是如出一辙。德国新上任的总理朔尔茨，也是玩三面派的政治高手。在面对摄像机展示对中共的强硬之后，马上让自己的办公室秘书给中共方打电话解释，说这是表演给国内人民和外国领导人听的，请中共不要恶意反击。能把师从于美国的两面三刀的政治手段玩的炉火纯青，总理朔尔茨的政治智慧（坚决做到人前一套，私下另一套）可见一斑。包括法国总统马克龙之所以不明确外交抵制，也是被中共拿捏住了痛处。
+> China is the greatest threat this country faces today – period. 
+> 
+> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
 
-欧盟联合生产体空客公司的70%是属于德国和法国，两国在其中有巨大的核心利益。众所周知，美国的波音公司和欧洲的空客公司是一直以来中共玩弄、平衡欧洲和美国关系的筹码。为了这次艰难的北京冬奥会，中共祭出飞机订单的杀手锏，如果德法敢用外交抵制，会把之前签署的400架空客飞机订单都砍掉。
 
-经过桌下的一番讨价还价，中共答应在保留之前的400架空客飞机订单的基础之上，再增加126架空客飞机的新订单（每架7000万美元-1亿美元）。除此之外，德国生产55%的汽车，法国生产40%的红酒都是要供应给中国市场。总之，敢抵抗，就砍单。
 
-所谓美、欧、俄、中的相互利用、相互牵制的新“四国演义”，中共唯一能倚靠的就是国内老百姓的血汗消费市场。
+比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
 
-为了营造北京冬奥会万国来朝的门面，树立党内权威，习撒币已经到达丧心病狂的地步。习可以为一个仅派出20几个运动员参加北京冬奥会的非洲小国免除18亿美元债务，外加2亿美元的现金支持。据中共官方的数字，仅在习当政期间对外援助捐款已达6万亿人民币，实际数字高达12万亿人民币（约1.5万亿美元），相当于广东省一年的GDP。
+
+
+> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
+> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
+
+
+
+> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+
+
+
+> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
+
+
+
+> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
+> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
+
+
+
+> Biden must hold Communist China accountable for the origins of COVID-19.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
