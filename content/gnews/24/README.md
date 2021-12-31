@@ -2,94 +2,55 @@
 ---
 
 
-## HBO及VICE的采访, 其背后绝不是共产党一家行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
+## 香港立场新闻被警方查抄，一名加拿大人被捕
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809515/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
-[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
+作者：The Canadian Press
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5_150152559.jpg)
+香港警方突袭了在线民主新闻Stand News立场新闻后，一名加拿大人被逮捕。
 
-郭文贵
-Miles Guo
+警方正式指控两名为立场新闻工作的人犯有煽动叛乱罪，一天前立场新闻表示在警方突击搜查其办公室并逮捕7人后停止运营。
 
-这个阴毒之狠
-Such cruel of this evilness
+香港国家安全警察表示，警方已指控两名该新闻媒体的编辑共谋出版煽动性出版物。
 
-大家想到这个HBO、VICE的时候
-When everyone talks about HBO and VICE
+其他五人正在被拘留接受讯问，其中包括出生于香港、在加拿大长大的流行歌手何韵诗（ Denise Ho），她是立场新闻的董事会成员。
 
-我就要回答刚才回答你们（问的）最重要的问题
-I would like to answer the most important question you have asked just now
+温哥华东区新民主党国会议员关慧珍 (Jenny Kwan) 表示，逮捕行动表明，执政的共产党忽视了香港地区的自由和人权。
 
-这一次的采访和背后的动机绝不是一个共产党一个人玩的
-This interview and the intention of it were definitely not just the CCP alone to manipulate
+关慧珍说，邓小平创立的一国两制正在被毁掉，中国违反了在联合国登记的国际条约《中英联合声明》。
 
-你看它背后的股东你就能看得出来
-You would realize that by looking at the shareholders behind it (the interview),
+中华人民共和国大使馆没有立即回复置评请求。
 
-单伟建、索罗斯、迪斯尼、BlackStone，
-Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
+香港当局在这个半自治的中国城市镇压异议人士之际，对媒体组织进行了逮捕和突袭。
 
-全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
-This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
+在香港出生和长大的关慧珍说，她对事态的转变感到心碎。她希望加拿大领事馆尽最大努力帮助何韵诗。
 
-没有几个战友能看清楚这个本质的
-There are only a few comrades-in-arms that could clearly see this essence of it
+加拿大外交部长Mélanie Joly 周三在一系列推文中表示，加拿大“领事官员已参与并随时准备在当地提供援助。”她在推特上写道：我们对立场新闻的现任和前任董事会和工作人员在香港被捕深感关切，其中包括加拿大公民和活动家何韵诗。我们正在密切关注局势。
 
-我再问你这时候
-I’m asking you again this time, Xiaoxin
+立场新闻发布停止运作公告说：警方今早（12月29 日）拘捕本公司多名高层及前高层人员、带走多人协助调查，并在立场新闻办公室检走多部电脑及部分文件，立场新闻已为涉事人员提供协助。
 
-你想想小新，如果我不接受采访，它会怎么干这事儿？
-Think about it, what would they do if I didn’t accept their interview?
+因应情况，立场新闻即时停止运作，包括网站及所有社交媒体立即停止更新，并将于日内移除。署任总编辑林绍桐已请辞，立场新闻所有员工已即时遣散。
 
-绝不是给你编辑编辑（就播）出来
-They would absolutely not just edit and broadcast out
+立场新闻前身为主场新闻，于2014年12月成立、以不牟利原则营运，立足香港主场，《立场》编采方针独立自主，致力守护民主、人权、自由、法治与公义等香港核心价值，至2021年12月29日停运。
 
-会给你玩得更恐怖、更大
-Instead, they would play bigger and more miserable
+来源：https://globalnews.ca/news/8479828/canadian-denise-ho-arrested-hong-kong-police-raid-stand-news/
 
-而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
-And you may see that they already have eyes on snake demon Yan and Lude
+（文章仅代表作者个人观点）
 
-就要（用）这俩人、就用你曾经说的话、用你的人来干你
-They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-用你的蛇来咬你
-and your snakes to bite you
+**关注我们**
 
-这不是一般的行动
-This is not a normal action
+Discord 账号
 
-这跟七哥几个月以前说的
-This is what I said a few months ago
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
-I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
+Gettr 账号
 
-都兑现了吧？
-Haven’t all these fulfilled my words?
-
-谢谢，我先说到这
-Thank you, and I’ll stop my words here
-
-* * *
-
-Date: 12/25/2021
-原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
-Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
-原视频日期：2021/12/24
-原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
-任务编号：KC379(3347)
-视频时间段 : 0:00-01:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
