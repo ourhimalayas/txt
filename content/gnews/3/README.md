@@ -2,32 +2,26 @@
 ---
 
 
-## 郭文贵先生再谈新中国联邦的喜币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808758/)
+## 俄克拉荷马州州长抨击强制接种令违宪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808876/)
 
-作者：纽约香草山 信息部 – 6zero4
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在12月29日的直播里，郭文贵先生从虚拟货币的发展谈到了新中国联邦喜币的前景。
+12月27日，美国俄克拉荷马州州长斯蒂特在一份报道中表示，他反对联邦政府推行的中共病毒疫苗强制接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-28.jpg)
+斯蒂特强调，接种疫苗与否应该完全出于个人选择，而联邦政府目前所执行的一刀切政策并不符合实际情况。斯蒂特表示，随着疫情的变化，科学与实用治疗方法也在不断发展，这当中还包括自然免疫。而就俄克拉荷马州而言，即使不依靠强制疫苗令，当地近期的确诊人数与住院患者也都有了大幅下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-34.jpeg)
+为此，斯蒂特州长声明，联邦政府的疫苗强制令根本不尊重美国民众的个人自由，政府利用权力强迫美国人在中共病毒疫苗和工作之间做出选择，但这不仅是联邦政府的过度行为，更是违反了宪法的举措。
 
-郭先生表示，相较于去年，虚拟币的市值如今上涨超过13倍。其中，比特币的价格更是一路坐过山车般的跌宕起伏。 再者，全球金融市场的法币也在过去两年间超发约260万亿美元，而这些巨额超发或将通过战争重组，或将分别淹没在金融系统和经济活动中。
+斯蒂特补充道，根据医生的建议以及自身的健康状况，他本人并不打算接种中共病毒疫苗加强针。
 
-郭先生补充道，我们正面临着货币革命中数字货币最伟大的时代。因此，未来世界的第一大金融力量一定是虚拟币。其原因在于，没有人能阻挡虚拟币成为人类躲避金融、病毒及疫苗、政治与经济灾难的避险池，或是成为法币超发导致通货膨胀的蓄水池。
+参考链接: [Oklahoma Governor Says He Doesn’t Plan to Get Booster Because He’s ‘Perfectly Healthy’](https://www.thegatewaypundit.com/2021/12/oklahoma-governor-says-doesnt-plan-get-booster-perfectly-healthy/?utm_source=ground.news&amp;utm_medium=referral)
 
-郭先生也解释道，包括比特币在内的一些去中心化虚拟货币没有支付系统，其用户也没有经过合法的KYC。为此，这些虚拟货币大多成为犯罪与恐怖份子的洗钱工具，其在未来必将被瞬间消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-与之相对的，喜币作为中心化负责、去中心化加密技术的虚拟货币，其资金来源全部经过严密的KYC且有自己的支付系统。另外，价格稳定喜币还能支撑起大宗交易，并有国家主权货币的属性。最终，喜币将成为未来虚拟币的开拓者和游戏规则制定者。
-
-此外，郭先生还提到了一富可敌国且在全球有巨大影响力的某世界级机构掌门人对喜币的评价，即，未来5年内，喜币也许还不为大众所识，但五年后喜币将在世界一枝独秀。
-
-参考链接：[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：文特
+总编：雪梨
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
