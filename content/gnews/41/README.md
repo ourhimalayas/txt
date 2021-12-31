@@ -2,24 +2,37 @@
 ---
 
 
-## 台国防部侦测今年中共军机扰台 创纪录940架次
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807880/)
+## 台北某医院注射疫苗后胸痛患者暴增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807886/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1926.png)[图片来源](https://www.chinadailyhk.com/article/240389)
-中共近年变本加厉对台军事威胁，中共军机2021年扰台次数更甚往年，根据台湾国防部统计，共机自今年1月迄今扰台已逾约940架次。而中共国国防部30日表示，中共国实际出动飞机架次「只会多、不会少」。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台湾媒体12月30日消息，据台北市联合医院胸腔内科医师苏一峰爆料称，因注射新冠病毒疫苗，感到胸痛的年轻患者数量暴增，短短两周，就有100多人前来就诊。
 
-台湾国防部专案报告「面对中共军力提升，我国战备因应作为」内容指出，中共迄今未放弃武力犯台，常态性频密派遣机、舰扰台，企图造成灰色地带冲突，军事威胁及挑衅意味更甚以往，国军随时保持高度警戒，严密掌握敌情动态，并积极强化自我防卫能力。据统计，今年1月迄今，共机扰台已逾约940架次，并多次在台湾周边从事针对性及抗击外军的军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-40.jpg)
 
-而在中共国国防部例行记者会上有媒体询问，共机今年出动了940余架次进入台湾空域，美国国防部警告中共在台海空域的行动增加了印太武装部队之间误判的可能性，加强台湾自卫是急迫任务，中共国国防部对此有何看法？中国国防部新闻发言人大校谭克非回应：「目标十分明确，那就是以果断行动回击岛内外势力频繁勾连、挑战一个中国原则的恶劣行径」。
+苏一峰在脸书发文称，在前来看病的患者中，心电图比例异常的占20%至30%，其中大多数是心脏肥大。另外，约有10%至20%患者出现轻度心脏衰竭、心室肥大与心房扩大等症状。他表示，这些打完疫苗后、感到胸痛的患者大多是20至30岁的年轻人，男性占70%，一部分人接种第一针疫苗后感到不适，大多数在注射第二针后出现症状。
 
-谭克非宣称，今年以来，解放军常态环台湾组织轰炸机、侦察机、歼灭机等开展巡航，常态抵进台湾周边组织多军兵种力量联合战备警巡，常态在台湾附近海空域组织联合对海突击、联合对陆打击、联合防空作战等实战化演练，实际出动飞机架次的数量「只会多、不会少」。
+该脸书文章引发热烈讨论。有网友回复称，急诊每天都会遇到打完疫苗后抱怨胸痛的患者。
 
-消息来源：[挑衅自由民主的恶劣行径!逾940架共机今年扰台中国：只会多不会少](https://tw.news.yahoo.com/%E6%8C%91%E9%87%81%E8%87%AA%E7%94%B1%E6%B0%91%E4%B8%BB%E7%9A%84%E6%83%A1%E5%8A%A3%E8%A1%8C%E5%BE%91-%E9%80%BE940%E6%9E%B6%E5%85%B1%E6%A9%9F%E4%BB%8A%E5%B9%B4%E6%93%BE%E5%8F%B0-%E4%B8%AD%E5%9C%8B-%E5%8F%AA%E6%9C%83%E5%A4%9A%E4%B8%8)
+参考链接：
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [上百名胸痛病患擠爆門診 醫：90％都打這款疫苗](https://www.chinatimes.com/realtimenews/20211230000968-260405?ctrack=pc_main_life_p01&amp;chdtv)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：文特
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

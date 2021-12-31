@@ -2,26 +2,26 @@
 ---
 
 
-## 俄克拉荷马州州长抨击强制接种令违宪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808876/)
+## 日媒报道中共强改郭先生盘古大观龙头
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808893/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日，美国俄克拉荷马州州长斯蒂特在一份报道中表示，他反对联邦政府推行的中共病毒疫苗强制接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-28.jpg)
-斯蒂特强调，接种疫苗与否应该完全出于个人选择，而联邦政府目前所执行的一刀切政策并不符合实际情况。斯蒂特表示，随着疫情的变化，科学与实用治疗方法也在不断发展，这当中还包括自然免疫。而就俄克拉荷马州而言，即使不依靠强制疫苗令，当地近期的确诊人数与住院患者也都有了大幅下降。
+当地时间12月29日，日本媒体在新闻节目中报道了中共强改盘古大观龙头的事件。在记者电话询问相关负责人改变建筑外观的缘由时，中共方只给出“国家机密，无可奉告”的答复。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.18.png)
+对此，该节目的嘉宾们分析了其背后的三点原因：其一，中共为了避免盘古龙头在风水上与鸟巢旁的水龙相冲，出现“二龙相争，必有一伤”的结局； 其二，盘古大观龙头对中南海的俯视让中共高层难受； 其三，盘古大观是由一直以来揭露中国共产党邪恶内幕的郭文贵先生所建造。 而嘉宾们也提到，这恰恰体现出独裁中共政权的恐怖之处，即朝令夕改——即使是经过审批的建筑也会被强行改造。
 
-为此，斯蒂特州长声明，联邦政府的疫苗强制令根本不尊重美国民众的个人自由，政府利用权力强迫美国人在中共病毒疫苗和工作之间做出选择，但这不仅是联邦政府的过度行为，更是违反了宪法的举措。
+另据郭先生在29日的直播中爆料称，中共已经对该日本媒体发出威胁，要求下架此视频。
 
-斯蒂特补充道，根据医生的建议以及自身的健康状况，他本人并不打算接种中共病毒疫苗加强针。
+评论人士则指出，对于该视频中包含的对爆料革命及新中国联邦创始人郭文贵先生的宣传，以及有关龙图腾在风水上的意义和自诩无神论的中共其实无比迷信的事实，都另中共政府恐惧不已。
 
-参考链接: [Oklahoma Governor Says He Doesn’t Plan to Get Booster Because He’s ‘Perfectly Healthy’](https://www.thegatewaypundit.com/2021/12/oklahoma-governor-says-doesnt-plan-get-booster-perfectly-healthy/?utm_source=ground.news&amp;utm_medium=referral)
+参考链接：[https://www.gettr.com/post/pl1kv8ecf7](https://www.gettr.com/post/pl1kv8ecf7)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：雪梨
-编辑：Kathy文艺
-校正/发稿：Fei797
+总编：Irene木木
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

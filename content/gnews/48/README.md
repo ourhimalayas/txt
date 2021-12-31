@@ -2,84 +2,62 @@
 ---
 
 
-## 在班农的 “作战室：大流行”隔离两年（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1806055/)
+## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
 
-编译：Jenny Ball
+[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-11.jpg)图片来源：6parkbbs.com
+**郭文贵**
+**Miles Guo**
 
-**坚韧的人们**
+我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
+I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
 
-在过去两年的剧集中，出现了一种奇怪的动态，事件越激烈，班农的举止就越平静。
+而且会非常的危险，从美国西边到东边，从非洲过来
+And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
 
-随着对 COVID-19 的震惊消退（尽管死亡人数继续攀升）以及 2020 年大选在 2020 年夏末和秋季临近，班农更加专注于鼓励川普的支持者，并引导他们相信拜登获胜将是非法的 。
+你说我咋就蒙那么准呢，那是情报不是蒙的
+Why am I so accurate? that is the intelligence, and it’s not guessed
 
-“他获胜的唯一途径就是靠非法，”班农在 2020年9月18日的一集中直截了当地说 “这是一个非法政权——我们永远、永远、永远、永远不会屈服于它。”
+我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
+Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
 
-当然，到那时，拜登“政权”还没有合法化——选举还没有发生。但信息很明确：11月 3日，班农需要“坚韧的人们在房间里观看计数”，如果这不起作用，关于选举人的法律斗争将使投票“踢到众议院，1 月 6 日就座的新国会。” 班农的听众可以提前几个月预览川普将在动乱前推进的计划。
+最后获得了情报，还会放毒，为什么，知道吗？
+In the end, I got the intel, and they will release the virus again, why, do you know?
 
-在这一切中，班农的恩人郭文贵定期出现。在 2020 年 10 月的一集中，郭文贵先生指出，中共专门向川普投毒 COVID-19，使他在大选前一个月被感染。
+最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
+In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
 
-班农说，郭“几乎就像一位旧约里的先知来到这个国家，警告美国中共的邪恶及其对美国的颠覆。”
+要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
+that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
 
-**将婴儿窒息在襁褓里**
+既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
+If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
 
-11 月的选举为 War Room 播客提供了很好的素材。
+美国亡我中共(之心)不死, 那不如咱把它亡喽
+The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
 
-班农在 11 月 4 日宣称：“这不是小差距，不接近——这是一次井喷。你想要偷窃选举，——也做得令人相信。”
+杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
+Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
 
-当然，这都不是真的，但内容很棒。听到班农谈论选举被盗、和即将到来的宪法危机——即使是一年后——仍让你热血沸腾。
+Date: 12/25/2021
+原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
+原视频日期：2021/12/24
+**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
+任务编号：KC374（3334）
+视频时间段 : 0:00-1:20
 
-那股能量通向一个地方。
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 ：洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 文新
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-班农在 12 月 21 日的一集中说：“我们正朝着 6 日在华盛顿特区举行的会议冲刺。” “这关乎选举的合法性，这关乎合法性——我们正朝着宪法危机迈进，这将比我们国家历史上的任何其他宪法危机都更严重。”
-
-当那一天到来时，它类似于 2020 年 3 月：努力选择如何叙述。
-
-“你必须非常小心，别落入主流媒体的这些陷阱，”班农在 1 月 6 日的节目中说。
-
-他将暴力归咎于彭斯和川普顽固坚定支持者直接的“情绪反应”。
-
-“你不能闯入——他们要做的是离开这儿，”班农打断他自己说。
-
-“我们告诉过你们，这将是美国历史上最重要的日子之一，迈克·彭斯投下了一颗炸弹，”他说。 “这是你不做为的一种情绪反应。”
-
-**寻找出路**
-
-在 2021 年的头几个月，作战室仍然有些安静，旋转轮显然在等待。
-
-整个春天，各种反疫苗者开始出现在节目中，其中一个是声称这些疫苗对“先天免疫系统”构成了危险，相对于更可靠的预防措施，像多晒“太阳”，并从饮食中去除植物油。
-
-但是五个月过去了，随着记忆的消退，语气开始恢复到以前的攻击性。
-
-“现代的列克星敦和康科德，将是亚利桑那州和乔治亚州，”班农在 5 月 18 日的一集中说，并宣布前参议员凯利·洛夫勒 (Kelly Loefller) 和大卫·珀杜 (David Perdue) ，实际上在 2020 年 11 月已经获胜。
-
-动乱核心小组成员将出现在节目中 ，在 7 月 29 日与众议员玛乔丽·泰勒·格林（ Marjorie Taylor Greene）和众议员马特·盖茨（ Matt Gaetz）的一集中，盖茨认为，“如果我是密歇根州的当地检察官，我会根据 RICO法案” 起诉FBI在计划中的州长格雷琴·惠特默（Gretchen Whitmer ) 绑架案中，过度使用线人。
-
-可以说几乎是陈词滥调，但这不是一个真相很重要的地方，进入“作战室”就是“构建和推动叙事”，这是一个无尽旋转的世界，主线 MAGA 就像未切割的可卡因：令人振奋到精疲力竭的地步。
-
-班农说：“我们要把这个非法政权粉碎在襁褓里。”
-
-谁知道这是否属实——播客“构建和推动”的“叙事”，是否真的让拜登“政权”窒息。
-
-相反，留给你的是他和他周围的人想要创造的形象，正如我在 12 月 16 日听的最新一集中所描述的那样：“混乱”。 在这种情况下，这是 Omicron 带来的混乱，以班农的观点，这是联邦反应的拙劣。
-
-但这里，真正的混乱更多在于不断的旋转和叙事推进对听众的影响：对任何现实都没有固定的共识，正如班农曾经说过的那句名言，一切都被垃圾洪水淹没了 ，我们认为是现实的任何事物，都是瞬息万变，这是一些人隐蔽的利益寻求优势的反映。
-
-**评论：时间是最好的试金石，两年来班农先生的“大流行病作战室”，用真相揭示着美国所经历的宪政危机，用真相告诉美国人民病毒和病毒“疫苗”的真相，用事实在揭示中共和黑暗势力的阴谋。用事实在唤醒无数人们行动，用行动捍卫宪法赋予我们的权利和自由。**
-
-请阅读上一篇：[在班农的 “作战室：大流行”隔离两年（1/2）](https://gnews.org/zh-hans/1806015/)
-
-**参考资料：**[talkingpointsmemo][Two Years Of Quarantine In Steve Bannon’s War Room: Pandemic](https://talkingpointsmemo.com/muckraker/steve-bannon-war-room-pandemic-two-years-chaos)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

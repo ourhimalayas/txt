@@ -2,63 +2,30 @@
 ---
 
 
-## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
+## 德媒：中共国有个新毛泽东
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807163/)
 
-[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-363.png)[图片来源](https://zh.wikipedia.org/wiki/%E7%8D%A8%E8%A3%81%E6%94%BF%E9%AB%94#/media/File:DD_classification_2008_dataset_Cheibub_visualized_hanteng_zhs.png)
+德国n-tv指出，中共领导人习近平在2021年大幅扩展了执政权力，中共宣布的新时代，实际上是新毛泽东独裁政权的到来。并列举习走向独裁的几个关键步骤。
 
-**郭文贵**
-**Miles Guo**
+第一步是，修改宪法，原本只允许连任一次。习如今重新打开了一人终身统治的大门。
 
-我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
-I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
+第二步是，习集聚了权力职能，担任中共中央总书记、军委主席、国家主席，更主持了为他新设立的几个指挥中心。就如同毛泽东那样，他让自己被军队称为“舵手”，被党称为“领袖”。
 
-而且会非常的危险，从美国西边到东边，从非洲过来
-And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
+第三步则是，11月通过的“历史性决议”，以巩固长期执政的地位。
 
-你说我咋就蒙那么准呢，那是情报不是蒙的
-Why am I so accurate? that is the intelligence, and it’s not guessed
+文章还指出，习正大力推进大规模军备，在西方核武库缩减的同时，中共的核弹头数量正大量增加。而且中共目前还拥有全球最大的海军。在美国和欧洲因新冠疫情衰退之际，习在2021年的强权政治中崛起。并引用英国经济研究人员的说法，中共国在2028年将取代美国成为全球最大经济体，比先前的预期早了五年，届时中共国的新毛泽东可能还在任上。
 
-我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
-Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
+毛泽东的独裁是以独裁的方式结束的，独裁从未远去。只有文贵先生引领的爆料革命和新中国联邦才能给新中国联邦公民在监督下以一人一票的方式，用真民主彻底埋葬独裁。
 
-最后获得了情报，还会放毒，为什么，知道吗？
-In the end, I got the intel, and they will release the virus again, why, do you know?
+信息来源：
 
-最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
-In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
+[德语媒体：中国的新毛泽东](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%96%B0%E6%AF%9B%E6%B3%BD%E4%B8%9C/a-60279234)
 
-要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
-that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
-
-既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
-If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
-
-美国亡我中共(之心)不死, 那不如咱把它亡喽
-The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
-
-杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
-Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
-
-Date: 12/25/2021
-原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
-原视频日期：2021/12/24
-**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
-任务编号：KC374（3334）
-视频时间段 : 0:00-1:20
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 ：洛杉矶盘古农场 – Layka
-翻译终校 ：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 ：洛杉矶盘古农场 – 文新
-审片 ：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
