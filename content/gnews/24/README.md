@@ -2,37 +2,94 @@
 ---
 
 
-## 银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1809293/)
+## HBO及VICE的采访, 其背后绝不是共产党一家行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-160.png)[图片来源](https://www.asahi.com/)
-**1****.****美国海军横须贺基地新增75例感染**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
+[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
 
-[据读卖新闻报道30日报道，美国海军横须贺基地30日宣布，自本月23日以来已有75名美军人员感染了中共病毒（新型冠状病毒COVID-19）,但并未提及是否检测奥密克戎变种。基地称，所有的人已被隔离在基地中，感染者中没有日本当地工作人员。而位于青森县三泽市的美军三泽空军基地于30日宣布，该空军基地又有11人新确诊感染。](https://news.yahoo.co.jp/articles/d7089f33ad5bf34648d87e77f8a5dc4416747f27)
+郭文贵
+Miles Guo
 
-**2****.****东京证券交易所年底股价收于32年来****新****高**
+这个阴毒之狠
+Such cruel of this evilness
 
-[据TBS新闻30日报道，在今年的最后一个交易时段，东京证券交易所的日经225指数在年终收盘时创下了32年来的新高。在30日的东京股市中，由于担心经济因疫情而停滞，股价在上午的暂跌中超过300日元。之后，出现了回购，在今年的最后一个交易日以28,791.71日元收盘。该价格比去年年底高出1347日元，成为32年来年底的最高收盘价。截至30日下午3时，外汇市场的交易价格略低于115日元兑1美元，这是近一个月来日元兑美元的最低水准。](https://news.yahoo.co.jp/articles/e4e904bfd9634d89e3cc5ac97bb45d67982fd9b4)
+大家想到这个HBO、VICE的时候
+When everyone talks about HBO and VICE
 
-**3****.****海上自卫队****潜艇****搭载****1,000公里射程导弹**
+我就要回答刚才回答你们（问的）最重要的问题
+I would like to answer the most important question you have asked just now
 
-[据读卖新闻30日报道，日本政府已经开始研究为海上自卫队潜艇配备能够打击敌方地面目标的自产远程巡航导弹。该导弹将在海上发射，预计将被定位为具有“敌方基地攻击能力”的装备，以达到自卫和摧毁敌方导弹发射基地等目标。岸田首相的目标是在国家安全战略中明确规定拥有“对敌方基地的攻击能力”，该战略是将于2022年底修订， 是日本安保政策的基本准则。近年来，中国加强了军事挑衅，增加了包括航空母舰在内的舰队在日本周边水域及南海和东海的活动。北朝鲜也在发展核武器和导弹。](https://news.yahoo.co.jp/articles/283bd25d15668c77e7a32965acfdafc6ac14f0ad)
+这一次的采访和背后的动机绝不是一个共产党一个人玩的
+This interview and the intention of it were definitely not just the CCP alone to manipulate
 
-**4****.****东京的免费检测****点****挤满了****准备新年回乡的****人**
+你看它背后的股东你就能看得出来
+You would realize that by looking at the shareholders behind it (the interview),
 
-[据NHK 30日报道，由于对中共病毒（新冠病毒COVID-19）奥密克戎变种的担忧日益严重，东京都政府的免费检测点已经挤满了正准备返回家乡的人。本月25日，新宿区一家通常进行核酸检测的私人机构应东京都政府的要求，开始提供免费的检测。该测试点的免费测试无需预约，虽然29日希望者达到高峰，但30日仍有很多人前来，因此该设施正在增加工作人员应对。其他需要预约的检测点在新年假期期间仍然提供免费测试，但许多点预约已满。](https://www3.nhk.or.jp/news/html/20211230/k10013410091000.html?utm_int=news-social_contents_list-items_004)
+单伟建、索罗斯、迪斯尼、BlackStone，
+Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
 
-**5****.****国际黑客组织****瞄准****两家都****立****医院****，大量提及职员电邮地址**
+全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
+This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
 
-[据读卖新闻报道，东京都政府本月早些时候向东京都立医院发出了紧急警报，有消息称有国际黑客组织正在准备攻击负责高级急救医疗的东京都立医院。目前尚未证实有任何损害。虽然农村地区的中小型医院往往是医院网络攻击的受害者，但东京市中心的大型医院显然也成为了攻击目标。据ISAC（电信信息共享分析中心）官员称，这次攻击是由一家监测国际黑客组织动向的海外安全公司发现。在确认攻击者在聊天中提及这两家医院，且医院员工的电子邮件地址被大量张贴后，该公司联系了ISAC。ISAC将该事件报告至东京都政府。自2016年以来，至少有11个县报告了使用“勒索软件”对医院进行的网络攻击。](https://news.yahoo.co.jp/articles/2b0559e9ea3c956f92582bfe9a5eeb8048a3ef43)
+没有几个战友能看清楚这个本质的
+There are only a few comrades-in-arms that could clearly see this essence of it
 
-**6****.****日本企业采用人工智能约会****A****PP，帮助员工在****疫情****中寻找爱情**
+我再问你这时候
+I’m asking you again this time, Xiaoxin
 
-[据共同社30日报道，由于疫情大流行减少了人们见面的机会，日本的大量公司，包括几个最大的公司，已经转向一个人工智能的约会应用程序，以帮助他们的员工找到爱情。并希望因此能够增加员工的幸福度、使得他们的工作更富效率。据该服务的开发者称，全国共有约800家公司和组织驻入了该应用程序，一个很大的原因是该匹配库仅限于参与公司的员工，从而提供了“一个安全可靠的平台”。该APP首席执行官称，她的目标是创建一个平台，使员工更易获得工作与生活的平衡，反而更加促进公司的发展。](https://english.kyodonews.net/news/2021/12/14acfe13f34f-feature-japan-firms-adopt-ai-dating-app-to-help-staff-find-love-amid-pandemic.html)
+你想想小新，如果我不接受采访，它会怎么干这事儿？
+Think about it, what would they do if I didn’t accept their interview?
 
-【日本银河系农场-阿尔法星球】
-作者：帆間知津
-校对：Tagomi
+绝不是给你编辑编辑（就播）出来
+They would absolutely not just edit and broadcast out
+
+会给你玩得更恐怖、更大
+Instead, they would play bigger and more miserable
+
+而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
+And you may see that they already have eyes on snake demon Yan and Lude
+
+就要（用）这俩人、就用你曾经说的话、用你的人来干你
+They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
+
+用你的蛇来咬你
+and your snakes to bite you
+
+这不是一般的行动
+This is not a normal action
+
+这跟七哥几个月以前说的
+This is what I said a few months ago
+
+我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
+I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
+
+都兑现了吧？
+Haven’t all these fulfilled my words?
+
+谢谢，我先说到这
+Thank you, and I’ll stop my words here
+
+* * *
+
+Date: 12/25/2021
+原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
+Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
+原视频日期：2021/12/24
+原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
+任务编号：KC379(3347)
+视频时间段 : 0:00-01:17
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

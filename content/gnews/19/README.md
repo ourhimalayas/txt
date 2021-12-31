@@ -2,33 +2,31 @@
 ---
 
 
-## 谁来拯救你，活在新闻联播里的人们
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809526/)
+## 七哥谈中共捐款（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809584/)
 
-**【国内新闻短评**】
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**据网易2021年12月29日报道：疫情危机、通胀危机和战争危机全世界都在发生，但是墙内岁月静好**。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/axnlz-x7yez.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2021/12/cg.jpg)
-***短评：***
+来源：郭先生2021-12-29直播08：56：59摘录
 
-***墙内许多人一直生活在新闻联播里，全世界都危机重重，只有中共国风景独好。他们真的相信这些谎言宣传，还是没有勇气面对真相？面对疫情危机，墙内不顾百姓死活，封锁严控，封焊楼门，违法规定者网上大肆批判，游街示众，他们认为这是最有效的管控措施，却没有胆量问一句，国内到底死亡多少、疫情源头来自何处。***
+就连非洲一小国派出二十几个运动员给人家免除了18亿美元的债务，再加两亿美元现金给你。就这个国家到了这种丧心病狂就拿老百姓的钱完全不当钱。你知道头两天我跟那欧联盟的那几个人说，我说：“你们这样弄中国钱你们心里面安吗？你们舒服吗？”他说：“Miles你不能这么说，中国人一年往外捐款多少钱？赞助多少钱？”大家知道中共这几年往外、习时代、习太阳上来往外实际捐款多少钱吗？谁知道举手，谁说？谁能回答？不要查啊，摔跤的雅阁你甭查啊，咱别查啊。官方统计六万亿人民币，这是中国说的，还有二万亿在兑现的路上。事实多少钱我告诉你，1.5万亿美金，12万亿人民币呀，1.5万亿美金。1.5万亿美金什么概念战友们？整个广东一年GDP，老百姓都不吃不喝不尿给他。中国15万亿的GDP一年，也就是剩下就是一万亿，一年中国啥也不干都给他。我们得到了什么？得到了从非洲来了几个大黑棍子，把中国的女性给戳得住医院了，然后中国女性嫁给了黑人到了非洲以后，看到视频，被打成那个样子。非洲人到了山东学校里边一人睡两三个女学生啊。
 
-***通胀永远是国外更可怕，月月新高，有谁来说——百姓半年没有肉吃，买不起高煤价而挨冻受困。为举办冬奥会，他们只是高歌连开两届奥运的伟大，有谁追问——多少企业被迫关停，多少人耕地被占，多少人被限制生火取暖。面对台海危机，他们赞扬中共强大，谁敢质疑——这是手足相残，华人的悲哀？中共国这么好，很少有欧美人移民到中国，疫情控制得利，生活安定富足，军事力量强大，为啥只见墙内人想方设法移民国外，鲜见欧美日澳等国移民天朝（非洲人除外）。***
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-***活在岁月静好的人们热爱强国，强国只当他们是韭菜收割。只要镰刀没到头上，他们就一直强调生活在墙内多么幸运。胆小懦弱，没有力量对抗邪恶中共，保持沉默躺平是做人的基本操守。但韭菜为镰刀唱赞歌，实在是不可理喻。这群人收割残害时，谁会为你鸣不平。谁来拯救活在新闻联播里面的人？ 只要他们自己不敢面对真相，谁也叫不醒装睡的人。***
+**关注我们**
 
-**文章观点仅代表作者个人，与gnews平台无关**
+Discord 账号
 
-**链接**：[https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w\_yw\_dy](https://www.163.com/dy/article/GSESMPQ0052182V3.html?clickfrom=w_yw_dy)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-素材：洛杉矶盘古农场 — Poplar
-评论：洛杉矶盘古农场 — Poplar
-审核：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+Gettr 账号
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

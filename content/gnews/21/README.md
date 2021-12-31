@@ -2,94 +2,36 @@
 ---
 
 
-## HBO及VICE的采访, 其背后绝不是共产党一家行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
+## 夕阳杂谈 西安真相
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1809531/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
-[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
+作者：纽约香草山健身部–文鹰
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+周五傍晚，夕阳垂暮。疲惫了一天，放下手边工作。步到室外，让身体舒展一下。放松心情后，经过人事部门口。
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/12/美好-2.jpg)
 
-这个阴毒之狠
-Such cruel of this evilness
+“嗨，一直没见到你，有事想问你！”声音让我心里一惊。定眼一看，原来是人事部G经理隔门喊我。“什么事啊，”话音未落，我已踏入办公室。
 
-大家想到这个HBO、VICE的时候
-When everyone talks about HBO and VICE
+“让打第三剂加强针了，你怎么看？”她微笑着问。望一眼，还有两个同事在，迅速的回答“不能打！”，“为什么？”我用事例告诉她，“我的岳父，今天是五七日子。他以前身体健康，就是8月份被强制接种两剂以后。感冒发烧没有嗅觉没有胃口，医院检查以后，心脏积液癌症晚期，不到两个月走了！”另外补充到：“咱们公司的一个离职B先生上一个月心梗走了，最近的Y经理刚刚脑梗还在ICU。”事实让他们感到惊诧。
 
-我就要回答刚才回答你们（问的）最重要的问题
-I would like to answer the most important question you have asked just now
+“给钱打怎么样？”我望了下窗外的夕阳，“如果你不想看到明天的太阳，你就去吧。即使给十万，也卖不到生命啊。”随后，把文贵先生大直播，西安的真相告诉她们：西安疫情不是病毒原因，是地方主官为了政绩和利益勾结黑商，让老百姓接种的，都是250高剂量的疫苗，造成严重的“七窍出血”副作用！
 
-这一次的采访和背后的动机绝不是一个共产党一个人玩的
-This interview and the intention of it were definitely not just the CCP alone to manipulate
+“你看一下疫苗的副作用”我用盖特截图，让她浏览了一通。“我不打了，不打了”，“你不打，也不要让你的家人去打啊。”她会意一笑“嗯”。         红日西落，心情舒畅。中共谎言，烟消云散。
 
-你看它背后的股东你就能看得出来
-You would realize that by looking at the shareholders behind it (the interview),
+编辑/校对/发稿：菩提树
 
-单伟建、索罗斯、迪斯尼、BlackStone，
-Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
 
-全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
-This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
+**更多资讯，更多关注**
 
-没有几个战友能看清楚这个本质的
-There are only a few comrades-in-arms that could clearly see this essence of it
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我再问你这时候
-I’m asking you again this time, Xiaoxin
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-你想想小新，如果我不接受采访，它会怎么干这事儿？
-Think about it, what would they do if I didn’t accept their interview?
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-绝不是给你编辑编辑（就播）出来
-They would absolutely not just edit and broadcast out
-
-会给你玩得更恐怖、更大
-Instead, they would play bigger and more miserable
-
-而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
-And you may see that they already have eyes on snake demon Yan and Lude
-
-就要（用）这俩人、就用你曾经说的话、用你的人来干你
-They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
-
-用你的蛇来咬你
-and your snakes to bite you
-
-这不是一般的行动
-This is not a normal action
-
-这跟七哥几个月以前说的
-This is what I said a few months ago
-
-我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
-I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
-
-都兑现了吧？
-Haven’t all these fulfilled my words?
-
-谢谢，我先说到这
-Thank you, and I’ll stop my words here
-
-* * *
-
-Date: 12/25/2021
-原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
-Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
-原视频日期：2021/12/24
-原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
-任务编号：KC379(3347)
-视频时间段 : 0:00-01:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
