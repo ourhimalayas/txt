@@ -2,32 +2,61 @@
 ---
 
 
-## Apple公司支付工程师18万美元防人才流失
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1806519/)
+## 2021年加拿大警察执法时向多少人开过枪？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806560/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：Kelly Geraldine Malone
+翻译：HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/apple-is-paying-its-engineers-180000-bonuses-to-stop-them-from-joining-meta_resize_md.jpg)[菲尔丹泽/ iStock](https://www.istockphoto.com/photo/the-apple-computers-store-in-sydney-australia-gm458730043-18489219)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-381.jpg)
 
-Apple 公司正在给其硬件以及软件部门的顶级工程师发放额外的奖金（out-of-cycle bonuses），以阻止他们跳槽到Meta公司。据彭博社[报道](https://www.bloomberg.com/news/articles/2021-12-28/apple-pays-unusual-180-000-bonuses-to-retain-engineering-talent)，这些奖金主要是以限制性股票单位的形式，价值在5万至18万美元之间。
+根据环球新闻报道，犯罪学专家表示，尽管公众要求改变警务权力的呼声越来越大，但加拿大警察枪击事件的数量仍然过高。
 
-10月早些时候，我们报道了Meta公司，即当时的Facebook，正计划雇用[1万名工程师来建立扎克伯格版本](https://interestingengineering.com/facebook-to-hire-10000-people-to-build-zuckerbergs-metaverse)的元宇宙。在过去的一点时间里，脸书公司重塑了自己的品牌，甚至向用户开放了地平线世界。但据彭博社的报道，不为人知的是，在此期间，Meta 公司从苹果公司挖走了约100名工程师。
+2021年1月1日至11月30日期间，加拿大警察执法时开了64枪，其中一半人被打死。只有七人没有受伤。
 
-Apple 公司现在希望通过向其顶尖人才提供重要的股票期权，将他们锁定在公司多年，来结束这种情况。彭博社报道说，这些正在有选择地提供给硅设计、硬件、软件、甚至运营组的工程师的期权是不典型的（atypical），也是不合时宜的（untimely）。
+“我对这个问题深感担忧。这个现象并不是必须的，”阿尔伯塔大学犯罪学教授、阿省前特别顾问Temitope Oriola在审查其警察法时说。这种现象自2020年以来几乎没有变化，当时全球运动呼吁加强警察问责制和透明度。
 
-根据彭博社此前的报道，在未来几年里，Apple和Meta有可能在混合现实头盔、智能手表，以及家用设备等一系列产品中对垒。虽然Apple公司一直是智能手表类别的市场领导者，但Meta公司正寻求进入可穿戴设备领域。目前，虚拟和增强现实头盔和家用设备仍处于起步阶段，随着我们进入互联网连接设备的时代，这两家公司都是可以开发的潜在市场。
+今年到目前为止，警察枪击事件的数量与2020年的总数相当，当时有60人被枪击，其中36人被杀。那一年，12月发生了五起枪击事件，最小的是一名在安大略省遇害的一岁男孩。
 
-由于Meta公司正在寻求进入设备领域，它希望复制Apple公司的成功。这家位于库比蒂诺（Cupertino-based）的Apple公司也在寻找其标志性设备之外的新途径，比如已经出现延误的自动驾驶汽车，而且它不想轻易放走其顶尖人才。彭博社报道说，除了Meta公司的高薪之外，Apple公司自己坚持要求其工程师每周有四天甚至五天在办公室工作，也可能是一些人离开的原因（Meta公司的工作政策更加宽松）。
+2021年12月至少发生了3起致命枪击事件，统计没有将这些枪击事件列入总数。
 
-彭博社报道说，股票期权已经给了高达20%的工程师，随着Apple公司的市值达到3万亿美元，股票期权的价值可能进一步增加。报道称，Apple公司现在已经取消了返回办公室的最后期限，同时还提供1000美元的奖金，使他们的员工能够采购家用（办公）设备。
+2021 年，年轻人继续占被警察枪杀的绝大多数人。还有不成比例的有色人种。调查组可以在17次枪击事件中确定被枪击人的种族，其中超过50%涉及原住民，17%是黑人。
 
-**新闻来源：**[interestingengineering.com] [Apple Pays Its Engineers $180,000 Bonuses to Stop Them From Joining Meta](https://interestingengineering.com/apple-pays-its-engineers-180000-bonuses-to-stop-them-from-joining-meta) | 发布时间：2021年12月29日
+Oriola说，维持治安需要一定程度使用武器，在某些情况下，这可能是合法的。他说，与包括美国在内的其他国家相比，加拿大的警察枪击事件并不常见，但这个数字仍然令人担忧。
 
-* * *
+在今年26%的案件中，最初报警的原因是有关武器，随后是关于家庭暴力。在81%的枪击事件中，有人持有武器。52%的人是持刀或其他带刃的武器，31%的人持有枪支。
 
-*发稿：信心的选择*
+在六起枪击事件中，警方最初是接到报案要进行健康检查。这些事件中有四人被杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+通常，警察会被派去检查疑似心理健康出现问题的人。批评者呼吁警方改变警官处理此类电话的方式。
+
+28岁的Julian Jones于2021年2月下旬在BC省的Opitsaht保护区被加拿大皇家骑警开枪打死。
+
+2021 年，加拿大皇家骑警在所有警察部队中发生的枪击事件最多。骑警参与了23次枪击案件，高于去年的 15 次。
+
+多伦多警察局参与了六起枪击事件，安省警察局有五起，魁省和埃德蒙顿警察局各有四起。
+
+多伦多大学研究警务的助理教授Akwasi Owusu-Bempah说：“很难弄清楚有多少人被警察杀害以及这些人的死亡导致了什么样的结果。我们需要的是更好的数据收集、数据报告能力，以及透明度。”
+
+Owusu-Bempah说，他从没想过全球示威会立即导致加拿大执法人员权力的变化。但是继续讨论这些问题很重要。“就文化或制度变革而言，这些都需要时间。”
+
+来源：https://globalnews.ca/news/8475396/canada-police-shootings-2021/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

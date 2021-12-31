@@ -2,62 +2,64 @@
 ---
 
 
-## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1806410/)
 
-[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-**郭文贵**
-**Miles Guo**
+您若想了解全文报导内容，请点击标题链接
 
-我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
-I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-而且会非常的危险，从美国西边到东边，从非洲过来
-And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
+**1.  [密西西比州养老院发生63起中共病毒感染](https://www.newsweek.com/63-covid-outbreaks-hit-mississippi-nursing-homes-fifth-wave-expected-1664202)**
 
-你说我咋就蒙那么准呢，那是情报不是蒙的
-Why am I so accurate? that is the intelligence, and it’s not guessed
+![](https://assets.gnews.org/wp-content/uploads/2021/12/thomas-dobbs-mississippi-coronavirus-covid-cases-hospitalizations.png)尼古拉斯·卡姆/法新社通过盖蒂图片社
 
-我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
-Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
+据《NewsWeek》2021年12月29日电，密西西比州的养老院周一报告了63起疫情（上周报告30多起）；流行病学家保罗·拜尔斯博士（Dr. Paul Byers）说，上周该州共报告了8344个病例，比前一周增加了80%，主要是由于Omicron变体的传播；密西西比州卫生官员托马斯·多布斯博士（Mississippi State Health Officer Dr. Thomas Dobbs）说，（截至周一）该州至少有400人因感染中共病毒而住院，与上周末圣诞夜报告的239人相比，人数大幅增加。
 
-最后获得了情报，还会放毒，为什么，知道吗？
-In the end, I got the intel, and they will release the virus again, why, do you know?
+卫生官员周二说，48%的密西西比州居民已经完全接种了疫苗，29%的人已经接受了加强针。根据约翰·霍普金斯大学的数据，全国大约有63%的人完全接种了疫苗；杰克逊市市长乔克韦·安塔·卢蒙巴（Chokwe Antar Lumumba）关闭办公室的新行政命令于星期三生效，该命令将至少保持到2022年1月5日；市长在一份声明中说：“COVID-19通过Delta和Omicron变种的传染性传播在杰克逊市持续并急剧增加，住院人数和死亡率也相应增加。”
 
-最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
-In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
+**2. [台湾拒绝美国疾控中心关于5天隔离的指导](https://www.taiwannews.com.tw/en/news/4393548)**
 
-要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
-that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-16.jpg)图片来源：CNA photo
 
-既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
-If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
+据《台湾英文新闻》2021年12月30日电，中央疫情指挥中心（CECC）周四（30日）宣布，将不遵循美国疾病控制和预防中心（CDC）关于缩短隔离期的指导意见，因为境外输入 Omicron 病例在检测呈阳性后被发现，具有感染性可达12天；在12月30日的新闻发布会上，CECC医疗反应部门的副主管Philip Lo（罗一钧）宣布，在台湾共发现了59个进口 Omicron 病例（55例为突破性感染，3例接种过一剂疫苗，1例未接种过疫苗）。
 
-美国亡我中共(之心)不死, 那不如咱把它亡喽
-The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
+关于美国疾病预防控制中心将隔离时间从10天缩短到5天的建议，罗一钧说有23个境外输入Omicron病例被跟踪超过5天（17个病例的Ct水平达到了解除隔离的标准）；罗一钧补充说，Omicron病例达到释放标准所需的最长时间是诊断后的12天，其在与卫生和福利部免疫实践咨询委员会（ACIP）的专家小组讨论后，得出的结论是，如果检疫停留时间缩短到5天，仍然可能有感染的风险，并对社区安全产生影响。
 
-杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
-Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
+因此，专家们建议台湾不要跟随美国的指导意见，而是继续保持目前的检疫规定。
 
-Date: 12/25/2021
-原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
-原视频日期：2021/12/24
-**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
-任务编号：KC374（3334）
-视频时间段 : 0:00-1:20
+**3. [推特暂停mRNA疫苗先驱者的专业发言资格](https://www.newsmax.com/us/malone/2021/12/29/id/1050403/)**
 
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 ：洛杉矶盘古农场 – Layka
-翻译终校 ：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 ：洛杉矶盘古农场 – 文新
-审片 ：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-46.jpg)图片来源：美联社
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+据《大全》援引《大纪元》2021年12月29日电，推特已向罗伯特·马龙博士（Dr. Robert Malone）发出封杀令，他是mRNA技术的关键设计师，帮助中共病毒（COVID-19）疫苗进入早期使用，但他已成为COVID-19（mRNA疫苗）规定和条例的强烈批评者；马龙赞同并鼓励年长和有风险的美国人接受疫苗，但他建议年轻、健康的人应该质疑疫苗的使用。
+
+在今年早些时候接受Newsmax的采访时，马龙认为儿童接种疫苗的风险远远大于好处，并指出儿童接种中共病毒疫苗的死亡率极低；周三晚上，Twitter在马龙的页面上刊登了一个封杀通知，并附有文字说该账户因违反Twitter规则而被暂停；在今年早些时候接受《大纪元时报》采访时，马龙说，他相信人体自然免疫系统所产生的免疫力比打了mRNA疫苗所产生的免疫力要好。
+
+**4. [在宾夕法尼亚州家中发现，死于中共病毒的兄弟姐妹](https://nypost.com/2021/12/29/three-siblings-found-atz-home-two-months-ago-died-of-covid-19-coroner/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-19.jpg)图片来源：盖蒂图片社/ iStockphoto
+据《纽约邮报》2021年12月29日电，验尸官周三说，两个月前（10月底）在宾夕法尼亚州的一个家中发现的三对老年兄妹都死于中共病毒（COVID-19）；70岁的理查德·金赛（Richard Kinsey）和72岁的唐纳德·金赛（Donald Kinsey）–以及他们的妹妹，68岁的露丝·金赛（Ruth Kinsey）–于10月25日在 Johnstown 附近居民房中被发现，没有生命迹象。
+
+坎布里亚县验尸官杰夫·利斯（Cambria County Coroner Jeff Lees）告诉美联社：“他们对COVID-19呈阳性反应，肺部沉重而充血（这是根据尸检、毒理学测试和微生物学检查作出这一裁决的）。”
+
+这起案件使当局感到困惑，因为这对兄妹在被发现时没有外伤的迹象；利斯说，他不确定这些亲属是否接种过mRNA疫苗。
+
+**5. [福奇预测美国 Omicron 激增将在 1 月下旬达到顶峰](https://nypost.com/2021/12/29/dr-anthony-fauci-predicts-covid-19-omicron-surge-will-peak-in-late-january-in-us/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-18.jpg)中国新闻社通过盖蒂伊玛
+
+据《纽约邮报》2021年12月29日电，安东尼·福奇（Fauci）在CNBC的“收盘钟声”节目中被问及最新的冠状病毒激（Omicron变体）增何时开始减弱时说：“鉴于我们国家的规模和接种疫苗与不接种疫苗的多样性，我可以想象（认为）几周后会达到高峰（在提供时间表之前承认“很难说”）。”
+
+根据CDC的数据，美国周一有破纪录的（单日）44.1万例新的COVID-19感染病例–吹走了2021年1月8日的29.4万例的先前记录；尽管大多数美国人都接种了中共病毒（covid-19）疫苗，但还是出现了突破性感染（疫苗没用）。
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+
+
 
  
 

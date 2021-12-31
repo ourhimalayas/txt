@@ -2,46 +2,46 @@
 ---
 
 
-## Omicron感染者或增强对Delta变种病毒免疫力
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806402/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806472/)
 
-作者：Reuters
-翻译：HimaCoby
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+杰西: 是的，他们会非常容易的使用这个程序，因为用户界面是非常直观、简单易用的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-378.jpg)
+用戶可以轻松又容易地充值您的帐户，获得HDO 积分并在平台上进行交易，这真的很简单。
 
-南非科学家的最新研究表明，Omicron感染者增强了对Delta变种病毒的中和免疫力。这项尚未经过同行评审的研究发现，感染了Omicron变种病毒的人，尤其是那些接种过疫苗的人，对Delta变种病毒产生了增强的免疫力。但世界卫生组织专家说这个结论为时尚早。
+然后在另一个方面，我们真的让早期采用加密货币的人或首次使用的人感到简单，我们有24/7/365客户服务。
 
-据报道，南非科学家招募了33名在南非感染Omicron变种病毒患者，包括已经接种疫苗和未接种疫苗的人。
+因此，如果你需要帮助，总有一个团队成员可以在线上帮到你。我也认为这真的是我们公司的优势之一，也是我们和其它交易所不同的地方。
 
-科学家发现Omicron变种病毒的中和作用在感染后的14天内增加了14倍，但科学家同时也发现Delta变种病毒的中和作用也增加了4.4倍。
+我们也会陆续发布博客和一些其它的指引文章，教学文章、视频教程，以及一些的行业见解，向用户提供知识和最新消息。我认为这是人们了解市场的另一种方式。
 
-科学家们说：感染Omicron的患者再次感染Delta的机会下降了。
+我们真的花了很多时间来发展我们的社群，鼓励用户之间讨论和知识交流。
 
-南非非洲健康研究所教授Alex Sigal周一在推特上表示，从南非的经验来看Omicron的致病性较低，这将有助于将Delta抑制住。
+你知道，社群的设立是推动数字资产普及的驱动力。我们在喜马拉雅交易所也很重视我们的社群。
 
-根据南非较早的一项研究结果显示，与Delta变种病毒相比，感染Omicron变种病毒的人住院和患严重疾病的风险降低，但是作者也说其中部分原因可能是由于南非人群免疫力高。
+因此，我认为，你可以给新进入这个市场的人最好的建议就是要自己做好研究，
+用这些文章作为我们推出的信息，从总体上了解这个市场。我认为这就是我可以给出的最好建议。
 
-Omicron变种病毒于11月在南部非洲和香港首次被发现，此后已在全球蔓延，并威胁到医院不堪重负，并在今年的假期周让很多人旅行计划中断。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+﻿
 
-来源：https://globalnews.ca/news/8476320/covid-omicron-delta-immunity-study/
+![This image has an empty alt attribute; its file name is Dec-4-3-2.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-2.png)
 
-（文章仅代表作者个人观点）
+校对：文唐
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑/校对/发稿：Hetangyuese
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-3.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

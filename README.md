@@ -15,145 +15,145 @@
 
 ---
 
-### [中共病毒再次全球大爆发 七天日均确诊超104万人](/content/gnews/1/README.md)
+### [雨润负债超千亿，122家公司破产重组自救](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花灭共诗——雪归过淄川大桥](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国一座5G手机信号发射塔再次失火](/content/gnews/2/README.md)
+### [日本一大学教授被香港警察通辑](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拿起法律的武器获得赔偿 一一 低位错误卖出喜币的投资者](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [习近平为奥运疯狂撒币，恐换来寂寞愁留守空房](/content/gnews/5/README.md)
+ ` YALUN 亚伦`
+
+### [中共病毒再次全球大爆发 七天日均确诊超104万人](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国一座5G手机信号发射塔再次失火](/content/gnews/7/README.md)
  ` 喜国公民`
 
-### [日本时隔2个月 新增确诊中共病毒数再次超过500人](/content/gnews/3/README.md)
+### [日本时隔2个月 新增确诊中共病毒数再次超过500人](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安疫情失控蔓延，中国制造业釜底抽薪](/content/gnews/4/README.md)
+### [西安疫情失控蔓延，中国制造业釜底抽薪](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰将辅助新冠病毒重症患者自杀或安乐死](/content/gnews/5/README.md)
+### [新西兰将辅助新冠病毒重症患者自杀或安乐死](/content/gnews/10/README.md)
  ` 向真`
 
-### [12/29/2021 文贵直播：日媒报道中共把盘古大观龙头变鸟头竟引起了中日之间的政治大事件](/content/gnews/6/README.md)
+### [12/29/2021 文贵直播：日媒报道中共把盘古大观龙头变鸟头竟引起了中日之间的政治大事件](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼](/content/gnews/7/README.md)
+### [12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [个人经历验证新中国联邦信息的准确性](/content/gnews/8/README.md)
+### [个人经历验证新中国联邦信息的准确性](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【秘翻在线】中共国的严重水资源短缺将可能引发地缘政治的纷争](/content/gnews/9/README.md)
+### [【秘翻在线】中共国的严重水资源短缺将可能引发地缘政治的纷争](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 下一步是什么？](/content/gnews/10/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 下一步是什么？](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [大量外省救护车驰援西安显示疫情失控](/content/gnews/11/README.md)
+### [大量外省救护车驰援西安显示疫情失控](/content/gnews/16/README.md)
  ` GTV News Talk`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所的交易平台将有哪些功能？](/content/gnews/12/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所的交易平台将有哪些功能？](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（十一）](/content/gnews/13/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（十一）](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [近万航班取消民航局发熔断令 数百万人挤爆机场](/content/gnews/14/README.md)
+### [近万航班取消民航局发熔断令 数百万人挤爆机场](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [【中日财经爆】水能变油？没钱的恒大能“保交楼”？](/content/gnews/15/README.md)
+### [【中日财经爆】水能变油？没钱的恒大能“保交楼”？](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】神话，恒大第一款量产车型下线？](/content/gnews/16/README.md)
+### [【中日财经爆】神话，恒大第一款量产车型下线？](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共国货币宽松无效，明年将大幅扩大国债规模？](/content/gnews/17/README.md)
+### [【中日财经爆】中共国货币宽松无效，明年将大幅扩大国债规模？](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所如何看待自己在加密货币市场的定位？您觉得未来会有什么挑战和机遇？](/content/gnews/18/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所如何看待自己在加密货币市场的定位？您觉得未来会有什么挑战和机遇？](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年加拿大警察执法时向多少人开过枪？](/content/gnews/19/README.md)
+### [2021年加拿大警察执法时向多少人开过枪？](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字](/content/gnews/20/README.md)
+### [持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈打压宗教（2021-12-29摘录）](/content/gnews/21/README.md)
+### [七哥谈打压宗教（2021-12-29摘录）](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [七哥谈盘古（2021-12-29摘录）](/content/gnews/22/README.md)
+### [七哥谈盘古（2021-12-29摘录）](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [有声|美情报部门称中共使用基因编辑和脑控武器](/content/gnews/23/README.md)
+### [有声|美情报部门称中共使用基因编辑和脑控武器](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [Apple公司支付工程师18万美元防人才流失](/content/gnews/24/README.md)
+### [Apple公司支付工程师18万美元防人才流失](/content/gnews/29/README.md)
  ` wenwu`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（十）](/content/gnews/25/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（十）](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的](/content/gnews/26/README.md)
+### [12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？](/content/gnews/27/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 对于加密货币的投资新手来说，他们是否能够轻松进入交易平台？](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（九）](/content/gnews/28/README.md)
+### [疫苗揭秘——背后的惊天阴谋与人类何去何从（九）](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [台湾芯片业成为美中对决的战场-下部分](/content/gnews/29/README.md)
+### [台湾芯片业成为美中对决的战场-下部分](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/30/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [【#G时新闻】以色列将起诉向中共出口巡航导弹的公司和个人！](/content/gnews/31/README.md)
+### [【#G时新闻】以色列将起诉向中共出口巡航导弹的公司和个人！](/content/gnews/36/README.md)
  ` G-时新闻`
 
-### [Omicron感染者或增强对Delta变种病毒免疫力](/content/gnews/32/README.md)
+### [Omicron感染者或增强对Delta变种病毒免疫力](/content/gnews/37/README.md)
  ` MG FARM`
 
-### [台湾芯片业成为美中对决的战场 – 上半部](/content/gnews/33/README.md)
+### [台湾芯片业成为美中对决的战场 – 上半部](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年12月29日文贵大直播简报](/content/gnews/34/README.md)
+### [2021年12月29日文贵大直播简报](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
 
-### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/35/README.md)
+### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/36/README.md)
- ` wenwu`
-
-### [西媒头条 — 第142期](/content/gnews/37/README.md)
+### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国会议员提议：所有17岁以上人士可获基本收入](/content/gnews/38/README.md)
- ` MG FARM`
-
-### [疫苗揭秘——背后的惊天阴谋与人类何去何从（八）](/content/gnews/39/README.md)
- ` 纽约香草山MOS02`
-
-### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/40/README.md)
+### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [在班农的 “作战室：大流行”隔离两年（1/2）](/content/gnews/41/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [佛罗里达州将调查该州在中共国公司的持股情况](/content/gnews/42/README.md)
+### [佛罗里达州将调查该州在中共国公司的持股情况](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [班农成为当今美国最可信的消息来源](/content/gnews/43/README.md)
+### [班农成为当今美国最可信的消息来源](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 什么是白名单？](/content/gnews/44/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 什么是白名单？](/content/gnews/45/README.md)
  ` 纽约香草山MOS01`
 
-### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/45/README.md)
+### [近百万人从蓝州迁往防疫更人性化的南方红州](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共“零感染”政策下，人民无基本人权可言](/content/gnews/46/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [广西百色市靖西再现游街示众，历史重演](/content/gnews/47/README.md)
+### [中共“零感染”政策下，人民无基本人权可言](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [谷歌资助生态健康联盟进行与制造大流行病相关的研究](/content/gnews/48/README.md)

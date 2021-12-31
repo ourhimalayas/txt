@@ -2,114 +2,103 @@
 ---
 
 
-## 疫苗揭秘——背后的惊天阴谋与人类何去何从（十）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1806516/)
+## 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806545/)
 
-作者：日本银河系农场 – Renee Lee
+[https://gtv.org/video/id=61cd20f0fb16a93456bf373d](https://gtv.org/video/id=61cd20f0fb16a93456bf373d)
 
-## 解药爆料
+**郭文贵**
+**Miles Guo**
 
-在2021年8月30日，美东时间上午八点，郭文贵先生，又在GTV上，继续疫苗解密大直播。这将是又一个铭记人类史册的伟大的时刻。
-从8月30日这一天开始，有关病毒和疫苗的灾难，将有更多的好消息会到来。我们正在创造历史。我们相信，世界会因此，发生天翻地覆的改变。
+我真的从小坚信一句话，我只要坚持持之以恒我就不相信(有)磕不下来的事
+I’ve truly believed in a word since I was a child, as long as I persist in it, I don’t believe in things that can’t be done
 
-郭文贵先生，心怀人类的每一位众生，又一次，作为全世界第一人，以悲天悯人的慈悲心肠，独自承受着四面八方涌来的巨大的威胁、压力和责任，凝聚全身心超人的勇气和智慧，向全人类传递出，拯救生命的至关重要的情报，即病毒和疫苗的秘密解药。
+你们没想到七哥讲英文有多难，我40年我没把英文学会
+You didn’t expect how difficult it is for me to speak English, in 40 years I ha-ven’t learned English well
 
-郭先生在今年2021年9月1日直播中，透露了当时获得此机密的解药情报时，心中兴奋、紧张、忐忑等等各种心情交织的状况。
-当得到这一可以拯救生命的解药情报时，郭先生的心脏突突突地剧烈跳动。走出房间，连抽四支雪茄，企图缓解平静一下心绪，却被雪茄抽晕。已经长时未睡，却吞下四片安眠药，仍无法入眠。
-郭先生，在不断地问自己，“我应不应该说？我应不应该说？”
-郭先生心里明白，如果爆出解药信息，定会有四面八方涌来的各种软硬威胁。他是担心这个吗？不是。
-令郭先生心中忐忑、再三思量的是， “个解药到底怎么样？它对变异病毒有没有效？万一共产党释放纯新病毒，它能否对峙？人类又面临一场灾难吗？它有没有危险？”
-更令郭先生，不能轻易决定的，是他的信用、是新中国联邦在全世界的信用。
+而且我身边全是讲英文的，我这一生最失败的就是英文
+and all around me are English speakers, the most failed thing in my life is Eng-lish
 
-郭先生爆出的情报信息，都是经过他同时从多个不同渠道验证的。这条解药情报，也不例外。
-多方情报来源，与郭先生交流，认为共产党绝对不可能、也不敢再故伎重演。
-因为目前，全世界对病毒都极为敏感。武毒所的这点东西，共产党基本都使用了。它要再出手，那就是北毒所，即北青实验室，研发的，那直接就是武器了。
-那时共产党，不会再用什么蝙蝠、或者穿山甲做幌子了。而是直接光天化日之下，使用尽人皆知的纯粹的生化武器了。
-再者，就是俄罗斯与共产党合作研究的危险武器。若果真如此，那么，这个世界也就彻底大乱了。那时，也无需使用解药，直接开战了事。
+语言没学好，但是从爆料革命开始创建了郭氏英文
+I didn’t learn the language well, but since starting the whistleblower movement that I created Guo’s style English
 
-伟大的爆料革命，是郭先生开创和引领，无数个无私无畏的战友、跟随、付出和行动的结果。一些仍然身陷墙内的科学家和医务人员，冒着极大的风险，为郭先生输送情报。他们为郭先生，虽然毫无医药背景，却为了拯救生命，不顾一切地、向全世界传播救命信息，而深深感动。
-那位郭先生常常提及的”神秘的科学家“，对郭先生说，“看完你的直播，我所有的担心都烟消云散了。我的信息，传播给了那么多人、挽救了那么多人的生命，我就是死了，也值了。
-他还说，“我把遗书又重新写了一遍。当他们一旦抓捕或杀害我的时候，让他们去好好看看你的那些直播。告诉他们，这事就是我干的”。
-这，就是我们爆料革命，伟大的战友，视死如归。这，是信仰和理想的力量。
+你看看我用郭氏英文被这个Isobel Yeung采访的时候，现在响遍全中国
+Look at me what I used this Guo’s style English when I was interviewed by Iso-bel Yeung, now it’s resounding all over China
 
-疫苗之战，一定会结束。我们非常有信心，今年2021年年底之前，冠状病毒、疫苗灾难，会大幅缓解，甚至解决。
-在过去这一年，西方情报机构，在了解和分析中共领导人的出面、活动等规律， 发现全党都是有计划、科学性的参加活动，而且无一人感染病毒。他们的结论是，并非因为共产党高层的隔离措施，而是它们有某种手段，而且有解药。
-在郭先生的多次直播后，很多国家机构、国家部门，对郭先生爆料的相关情报，迅速反应。并表示，将不惜一切代价，迅速进行调查。
+哇塞，我的老师说第二个文贵你的英文太好了，我竟然全听懂了
+Wow, my teacher said the second one, Miles, your English was so good, I actual-ly understand it all
 
-### 10.1 D-NAb
+哈哈，我说老师，你这话真的说得太夸张了，
+Haha, I said “teacher, what you said is really exaggerated
 
-D-NAb，就是一种极为有效的解药。共产党已经在使用。
-此解药的关键，就在于“中和抗体”。
+你听懂了对我来讲，是讲得好还是不好，是不是
+you understand what I said, is it good or bad?”
 
-大多数的抗体，都是“结合抗体”，即通过与抗原结合，激发白细胞来处理抗原所在的外来物，并最终将其消灭。
-而“中和抗体”和“结合抗体”的区别在于，“中和抗体”有中和抗原的生化作用。而“结合抗体” 则与抗原结合，变成一个有待处理的标志。
-其根本的差别，在于”中和抗体“所产生的生化作用。
-根据医学硕士，马克·S·弗里德曼先生，这两种抗体的差异，可以用ß干扰素来说明。其原话为，“抗体可以仅仅与ß干扰素，或者醋酸格拉替雷，结合后不会影响其作用，此时是‘结合抗体’。又或者可以阻止，或者中和他们的生化活性，此时是‘中和抗体’。”
+说明我讲得很不好嘛，我讲好英文，你是听不懂的，因为你的英文很差，是吧
+That means that I speak very badly, I speak English well, but you can’t under-stand it because your English is not good, right?
 
-“中和抗体”，英文为 “Neutralizing Antibody”，缩写为NAb。它是生化研究、生化制药、和生化武器，必备的技术。
-NAb，是解除冠状病毒和疫苗，根本的要素和手段，不可跨越。
+她都听懂了，说明我讲得很差，还要把英文拿下来，你讲讲试试
+She understands everything, It means that I speak poorly, I still have to work hard on my English, give it a try
 
-现在共产党手里，拿到的和拥有的，就是“D-NAb”解药。该解药能迅速消灭覆盖在身体、或物质表面的冠状病毒。
-参加东京奥运会的中国运动员，每个人都被悄悄地覆盖了“D-NAb”这个纳米原子解药。中国运动员，无一人感染到病毒。
+神奇四侠，你的西班牙英文咋样，英文你给我秀秀
+Fantastic Four, how do you speak Spanish and English? Show me some yours
 
-共产党，现在已有多种形式的解药，如喷雾剂、覆盖剂、饮用剂、片剂、面剂、和溶剂。这些就是，共产党内部绝对机密控制的“D-NAb”解药。
-郭文贵先生于今年2021年9月1日直播中，告诉大家，新中国联邦，几乎可以肯定能够拿到 D-NAb的这五种解药。这是我们爆料革命的战友，对郭先生的承诺。他说，“七哥你放心，我可以用生命担保，它们已经在路途当中。天不塌地不陷，你就会得到它们”。
+西枫，你讲讲英文，顺利的英文，是不是? 虽然你是秘翻组
+Xifeng, you speak English and are fluent in English, right? although you are in the secret translation group
 
-“D-NAb”解药，其 为重要概念是，抗原的中和产品，是这个解药的根本基础。
-任何的新型变异病毒，万变不离其宗，都是冠状病毒的一部分。所有的“D-NAb”解药，完全同样有效。
+不容易，持之以恒
+it is not easy, it needs perseverance
 
-### 10.2 青蒿素
+灭共这件事，就关键你信不信，关键你干不干到底
+Believe it or not is the key point for you to taking down the CCP, the key point is whether you can persist do it or not
 
-2015年，中国科学家屠呦呦女士，因为创制了新型抗疟疾药，青蒿素和双氢青蒿素，荣获诺贝尔生理学或医学奖。
-屠呦呦女士，是中国人的骄傲，是拯救人类的英雄。
-青蒿素，是中国人献给世界人类的一份大礼。
-青蒿素，是抗冠状病毒和疫苗的极为有效的关键药物之一。只要是屠呦呦发明的“青蒿素” 系列的，如“青蒿素”、“青蒿素喹片”等，全部都有特效。
+某将军在私下里边，跟刘亚洲，已经被抓了，说那小子，记得吗
+In privately, there is a general talked to Liu Yazhou who had been arrested, he said do you remember that guy（Miles Guo）?
 
-在冠状病毒传播前后的时间，有谁知道屠呦呦女士在哪里吗？
-共产党，把所有研究小组的人员，都安置到哪里去了？
-共产党，为什么把很多医学研究人员，调走去某地，不能回家，秘密投入到青蒿素的另类产品的大量生产中？
+咱们一起吃过饭的，在外面折腾那么大，又建国又建邦的
+We have eaten together, and he（Miles Guo） made big noise abroad, also set up the nation and the federal state
 
-冠状病毒的感染者和疫苗接种者，一定要服用青蒿素。
-青蒿素，既解冠状病毒的毒，也解疫苗的毒。而且，青蒿素解毒，快速高效。
-青蒿素的喷剂，在今年2021年会有生产。使用非常简单，有效也是极好。参加日本东京奥运会的中国运动员，每人都有。此产品上市后，请大家务必备好。
+所有的五六个人，唰，全都停下来(夹)菜，没有一个人接这个茬的
+All five or six people suddenly all stopped talking and started picking the dish-es, no one want to continue this topic
 
-高质量的、真正的青蒿素、和高含量的，如百分之九十九到百分之九十七的含量，有效。有些保健品，则只能当作辅助作用。切记，保健品绝对不是药。
+这哥们儿喝多了，刚才我还没问你呢，亚洲
+This buddy drank too much, “I didn’t ask you just now, Yazhou
 
-感染病毒或接种疫苗后，服用青蒿素、或伊维菌素、或土霉素、或阿奇霉素时，这些“素”，绝对不能同时一起服用，一次只能选择一种“素”服用。切记。
+你怎么看那个人，哈哈，刘亚洲想想说，你他妈吃饱了撑的，是不是，喝多了吧
+What do you think of that person（Miles Guo）, haha, Liu Yazhou think about it and said that you damn eat too much, don’t you, drink too much?
 
-未来，人类会真正地看到，我们爆料革命和新中国联邦，向全世界揭秘的这个共产党暗藏的解药，会拯救很多同胞、同类的生命。我们，在走向一个新的时代。
-疫苗，会造成大量的死亡，这是整个世界，被黑暗势力控制的悲哀。我们要想尽一切办法，最广泛地传播解药的信息， 大程度地拯救生命。这是我们爆料革命和新中国联邦的使命。
+你提他干什么呀，说你提都不敢提，说明你很怕这件事
+Why are you mentioning him?” you dare not mention it, it shows that you are very afraid of it
 
-（免责声明：本人无医学背景，所有用药信息，悉科学家建议的转述。）
+结果刘亚洲说了句特别精彩的话，说咱一屋子的人全是带星的
+As a result, Liu Yazhou said something particularly wonderful, saying that all the people in this room are all with stars （military rank）
 
-系列文章阅读：
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（一）](https://gnews.org/zh-hans/1805718/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（二）](https://gnews.org/zh-hans/1805823/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（三）](https://gnews.org/zh-hans/1805874/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（四）](https://gnews.org/zh-hans/1806023/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（五）](https://gnews.org/zh-hans/1806077/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（六）](https://gnews.org/zh-hans/1806161/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（七）](https://gnews.org/zh-hans/1806213/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（八）](https://gnews.org/zh-hans/1806312/)
-[疫苗揭秘——背后的惊天阴谋与人类何去何从（九）](https://gnews.org/zh-hans/1806464/)
+我们敢提任何人，都不敢提他，你说我是啥观点，然后说，喝酒
+“We can mention anyone, we do not dare to mention him, you say what my opinion is” and then say let’s drink
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+这就是当时的刘亚洲，因为那时没抓呢， 我就不好意思说
+This was Liu Yazhou at that time, because he hasn’t arrested at that time, I’m a little hesitant to mention him
 
-校对/发稿：小鹿
+**原视频链接**: [https://gettr.com/post/pkq5kob109](https://gettr.com/post/pkq5kob109)
 
+Date: 12/28/2021
+原视频标题: 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
+Miles perseveres to practice Guo’s style English and persists on taking down the CCP so that the Communist Party dare not mention Miles’s name
+原视频日期：2021/12/24
+原视频链接 https://gettr.com/post/pkq5kob109
+任务编号：KC377（3355）
+视频时间段 : 0:00-2:17
 
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 天涯行
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

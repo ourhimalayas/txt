@@ -2,38 +2,32 @@
 ---
 
 
-## 台湾芯片业成为美中对决的战场-下部分
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806438/)
+## Apple公司支付工程师18万美元防人才流失
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1806519/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-31.png)
-去年7月，该行业的脆弱性得到了展示，当时台湾动员了数千名军队，以抵御中国对西海岸工业城市台中的模拟攻击，台积电的Gigafab 15是制造尖端芯片的代工厂之一。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-当被问及对岛上加工厂的威胁时，台湾经济部说，”在过去50年里，中共从未放弃过使用武力控制台湾的尝试，但其目的不是半导体行业”。它补充说，台湾有能力 “面对和管理这种风险”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/apple-is-paying-its-engineers-180000-bonuses-to-stop-them-from-joining-meta_resize_md.jpg)[菲尔丹泽/ iStock](https://www.istockphoto.com/photo/the-apple-computers-store-in-sydney-australia-gm458730043-18489219)
 
-台积电没有回答关于其代工厂的风险的具体问题。在一份声明中，它强调，芯片行业是全球性的，来自几个地区和许多专业公司的设计、原材料、设备和其他服务。该公司说：”因此，全球合作，而不是依赖于一家公司或一个地区，对半导体行业的成功至关重要。”
+Apple 公司正在给其硬件以及软件部门的顶级工程师发放额外的奖金（out-of-cycle bonuses），以阻止他们跳槽到Meta公司。据彭博社[报道](https://www.bloomberg.com/news/articles/2021-12-28/apple-pays-unusual-180-000-bonuses-to-retain-engineering-talent)，这些奖金主要是以限制性股票单位的形式，价值在5万至18万美元之间。
 
-对美国来说，日益强大的中共国在冲突中压倒台积电的代工厂将威胁到美国的军事和技术领导地位。然而，如果北京入侵台湾，美国也不能保证可完整地夺取这些珍贵的代工厂，很可能成为战争的牺牲品。即使代工厂在中共国的收购中幸存下来，重要的全球供应链几乎肯定会被切断。
+10月早些时候，我们报道了Meta公司，即当时的Facebook，正计划雇用[1万名工程师来建立扎克伯格版本](https://interestingengineering.com/facebook-to-hire-10000-people-to-build-zuckerbergs-metaverse)的元宇宙。在过去的一点时间里，脸书公司重塑了自己的品牌，甚至向用户开放了地平线世界。但据彭博社的报道，不为人知的是，在此期间，Meta 公司从苹果公司挖走了约100名工程师。
 
-**美国和中国都想打破其依赖性。**
+Apple 公司现在希望通过向其顶尖人才提供重要的股票期权，将他们锁定在公司多年，来结束这种情况。彭博社报道说，这些正在有选择地提供给硅设计、硬件、软件、甚至运营组的工程师的期权是不典型的（atypical），也是不合时宜的（untimely）。
 
-华盛顿已经说服台积电在美国开设制造先进半导体的代工厂，并准备花费数十亿美元重建其国内芯片制造行业。
+根据彭博社此前的报道，在未来几年里，Apple和Meta有可能在混合现实头盔、智能手表，以及家用设备等一系列产品中对垒。虽然Apple公司一直是智能手表类别的市场领导者，但Meta公司正寻求进入可穿戴设备领域。目前，虚拟和增强现实头盔和家用设备仍处于起步阶段，随着我们进入互联网连接设备的时代，这两家公司都是可以开发的潜在市场。
 
-北京也在花费巨资，但其芯片产业在许多关键领域落后于台湾十年左右。分析师说，这一差距预计将在未来几年内扩大。
+由于Meta公司正在寻求进入设备领域，它希望复制Apple公司的成功。这家位于库比蒂诺（Cupertino-based）的Apple公司也在寻找其标志性设备之外的新途径，比如已经出现延误的自动驾驶汽车，而且它不想轻易放走其顶尖人才。彭博社报道说，除了Meta公司的高薪之外，Apple公司自己坚持要求其工程师每周有四天甚至五天在办公室工作，也可能是一些人离开的原因（Meta公司的工作政策更加宽松）。
 
-台积电已经开始试生产其最先进的芯片，使用所谓的3纳米技术。它还启动了一项研发工作，以制造2纳米的芯片。
+彭博社报道说，股票期权已经给了高达20%的工程师，随着Apple公司的市值达到3万亿美元，股票期权的价值可能进一步增加。报道称，Apple公司现在已经取消了返回办公室的最后期限，同时还提供1000美元的奖金，使他们的员工能够采购家用（办公）设备。
 
-据台湾的经济规划机构–国家发展委员会的负责人孔铭鑫说，从现在到2025年，本地和外国公司计划在台湾的芯片行业投资超过3万亿新台币（1080亿美元）。
+**新闻来源：**[interestingengineering.com] [Apple Pays Its Engineers $180,000 Bonuses to Stop Them From Joining Meta](https://interestingengineering.com/apple-pays-its-engineers-180000-bonuses-to-stop-them-from-joining-meta) | 发布时间：2021年12月29日
 
-巩明鑫说，在对工厂和设备的这种大手笔投资之后，”台湾的半导体行业将只有为数不多的竞争对手。”
+* * *
 
-[新闻来源链接](https://www.reuters.com/investigates/special-report/taiwan-china-chips/)
+*发稿：信心的选择*
 
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 
