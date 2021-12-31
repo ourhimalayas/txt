@@ -2,27 +2,37 @@
 ---
 
 
-## 澳洲新南威尔士地区新增CCP病毒感染一夜间翻倍至两万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1808129/)
+## 做一个自豪的新中国联邦人
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1808136/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1231C-scaled.jpg)图片来自Pexels免费照片资料库；摄影：Patrick McLachlan
-12月30日，澳大利亚疫情目前最为严重的新南威尔士州报告了12,000例以上的新增CCP病毒感染病例。而在新年前的最后一日，即12月31日，这一数字则在一夜间突然翻倍至21,000例左右。
+作者：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日的大直播中，七哥和同心同框的战友们，都流露出对麻木、愚蠢、懦弱、自私、傲慢无礼、缺乏修养（尤其是很多国人在海外的所作所为造成了极坏的影响）的国人感到悲哀、失望、羞耻和痛心。我也有同感！
 
-新南威尔士州首席卫生官 钱特博士表示：“虽然我们在社区报告了 21,150 例病例，但实际病例很可能高于这个数字……当前CCP病毒的传播和感染风险很高。”
+由于中共的长期洗脑，环顾四周或想想我们那些尤其在国内的华人亲朋好友，有几个懂得尊重别人、而不轻易臧否人物？有几个真正懂得和能够爱自己和爱别人？有几个有信仰、心存感激地珍惜所拥有的一切？有几个能路见不平，拔刀相助？有几个不是自扫门前雪，抱着多一事不如少一事的理念，在“躲进小楼成一统，管它春夏与秋冬”的意境中苟且偷生？
 
-钱特博士同时建议人们限制参加活动的人数，尽可能在户外进行活动，并且进行快速测试，以作为额外的保护措施。
+有几个能够优雅文明地去待人接物？有几个能在与人交往时真正给人带来启迪、愉悦和欢乐？有几个能够带着同理心、慈悲心去包容和理解别人？有几个能够摆脱贪嗔痴慢疑？有几个能真心祝福别人并为发生在别人身上的好事而喝彩、为别人的不幸而心痛？……
 
-随着确诊人数的快速飙升，新南威尔士州因CCP病毒而住院的人数也在持续上升中，在最新的数据报告中，当前的入院人数已更新至832人，相较昨日增加了接近100人左右，同时有69人处于重症监护状态。另外有6名CCP病毒感染者不幸离世，他们的年龄大多在60岁以上，其中5位接种过至少一针CCP病毒疫苗。
+相信我们的答案都是一致的：寥若晨星！而至少我这里的美国朋友，人人都是这样的。跟他（她）们交往非常轻松愉快！这就是文明与不文明的区别所在啊！
 
-至于当前CCP病毒的测试情况，新南威尔士州卫生部门警告，他们的检测能力“目前正面临巨大压力”。在周四时，一个测试站的等待队伍从凌晨 3 点排到了早上 8 点，停车场人满为患，蜿蜒到一条主要道路上。在另一个测试点，汽车从午夜开始排队，到早上 8 点测试站开放时，车龙已经延伸了数百米。
+我们新中国联邦人都在努力做文明的、有信仰的、有正义感的人。我们可以满怀自豪地对人说：我是新中国联邦人！
 
-目前官方已经将接受 PCR（鼻咽拭子）检测的人限制在有 COVID-19 症状的人、住在确诊为 COVID-19 阳性病例家庭中的人以及新南威尔士州卫生局建议接受检测的人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-新闻参考链接：
+**校对/发稿：童谣**
 
-[9 News](https://www.9news.com.au/national/coronavirus-nsw-update-new-case-numbers-isolation-requirements-close-contacts-changed-thousands-wait-for-results-omicron-surge/cc742b29-589a-49dd-bb71-3a1daea43b65)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
