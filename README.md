@@ -15,107 +15,107 @@
 
 ---
 
-### [父母的话一定要认真地听并坚决忘记很多事不要跟父母说](/content/gnews/1/README.md)
+### [澳大利亚，请不要被中共国的鹰派人物吓倒](/content/gnews/1/README.md)
+ ` 走进澳洲`
+
+### [不要把唱歌作为谋生饭碗不要为取悦他人而唱别唱口水歌](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/2/README.md)
+### [音乐是和懂你的人在交流和你的灵魂在交流和上帝在交流](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [父母的话一定要认真地听并坚决忘记很多事不要跟父母说](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [麦克·特纳成为众议院情报委员会排名第一共和党人](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/3/README.md)
+### [美国疾控中心放弃新冠病人隔离后 的聚合酶链反应测试](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/4/README.md)
+### [面对减少使用煤炭的呼声，中共国燃起新的巨型煤电厂](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拿到手的东西没有一样是你的,给出去的东西才是你的东西](/content/gnews/5/README.md)
+### [拿到手的东西没有一样是你的,给出去的东西才是你的东西](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/6/README.md)
+### [研究显示奥米炕很少引起T细胞损伤](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [让你的敌人和瞧不起你的人改变的就是行动就是你比他强](/content/gnews/7/README.md)
+### [让你的敌人和瞧不起你的人改变的就是行动就是你比他强](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [因为拼爹拼娘拼不过别人所以才要奋斗所以你才是最牛的](/content/gnews/8/README.md)
+### [因为拼爹拼娘拼不过别人所以才要奋斗所以你才是最牛的](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [跟人打交道的唯一方式是主动打招呼别害羞真诚对待别人](/content/gnews/9/README.md)
+### [跟人打交道的唯一方式是主动打招呼别害羞真诚对待别人](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/10/README.md)
+### [法国外长声援香港异议人士呼吁尊重新闻自由](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [因为有外星人我们才探索外空、发射火箭和登月](/content/gnews/11/README.md)
+### [因为有外星人我们才探索外空、发射火箭和登月](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/12/README.md)
+### [美韩两国就正式结束朝鲜战争宣言草案达成协议](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“德米克戎”会是下一个新变种么？](/content/gnews/13/README.md)
+### [“德米克戎”会是下一个新变种么？](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [中国的水资源正在枯竭，也是亚洲恐慌的原因](/content/gnews/14/README.md)
+### [中国的水资源正在枯竭，也是亚洲恐慌的原因](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [中共军方在西藏用军用机器人充当士兵](/content/gnews/15/README.md)
+### [中共军方在西藏用军用机器人充当士兵](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [疫苗后遗症导致西安疫情灾难](/content/gnews/16/README.md)
+### [疫苗后遗症导致西安疫情灾难](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案](/content/gnews/17/README.md)
+### [前华盛顿政客代表辉瑞公司游说反对保护举报人和向大药厂追责的法案](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [中国 2022 年将发行创纪录国债 指导利率走低](/content/gnews/18/README.md)
+### [加拿大驱逐由中共控制的中国移动在加子公司](/content/gnews/21/README.md)
  ` 首尔天池农场`
 
-### [美“2022财年国防授权法案”成中共噩梦](/content/gnews/19/README.md)
+### [中国 2022 年将发行创纪录国债 指导利率走低](/content/gnews/22/README.md)
+ ` 首尔天池农场`
+
+### [美“2022财年国防授权法案”成中共噩梦](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [西安封城是防疫还是闹饥荒](/content/gnews/20/README.md)
+### [西安封城是防疫还是闹饥荒](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-7](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [南非取消了新冠病毒宵禁令](/content/gnews/22/README.md)
+### [南非取消了新冠病毒宵禁令](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [标题：美CDC撤销PCR测试，承认该测试不能区分流感和中共病毒](/content/gnews/23/README.md)
+### [标题：美CDC撤销PCR测试，承认该测试不能区分流感和中共病毒](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [爱泼斯坦与安德鲁王子指控者的秘密协议细节将被公开](/content/gnews/24/README.md)
+### [爱泼斯坦与安德鲁王子指控者的秘密协议细节将被公开](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/25/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？](/content/gnews/26/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？](/content/gnews/27/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 美国，加拿大和日本的用户什么时候可以做KYC？](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [辉瑞与中共疫苗护照平台合作并“很自豪与中共站在一起”](/content/gnews/28/README.md)
+### [辉瑞与中共疫苗护照平台合作并“很自豪与中共站在一起”](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 交易所和Himalaya Pay App将在何时上线启动？](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
-
-### [新年献词](/content/gnews/31/README.md)
+### [新年献词](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：COVID与腐败的联邦统计](/content/gnews/32/README.md)
+### [每日快报：COVID与腐败的联邦统计](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [饱受封城之苦的西安民众抱怨“蛋尽粮绝”](/content/gnews/33/README.md)
+### [饱受封城之苦的西安民众抱怨“蛋尽粮绝”](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [以色列政府批准中共病毒疫苗第二加强针](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [有声|中共疫情下的人生百态——J先生回国探父之路](/content/gnews/35/README.md)
  ` MOSREC`
