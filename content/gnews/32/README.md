@@ -2,35 +2,39 @@
 ---
 
 
-## 英国一座5G手机信号发射塔再次失火
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1806785/)
+## 为领到一百元 纽约市民排队打加强针
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1806916/)
 
-By：喜国公民
-视频来自网络
-英国德比市一座5G手机信号发射塔发生火灾后，警方呼吁提供信息。有视频显示，燃烧发生在天线的顶部，从很远的地方都可以看到火势。
+作者：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+圣诞节前，纽约市长白思豪宣布，凡是在市政府接种点，年底前打完第三针的纽约居民可以领到一百元。随着圣诞节过去，年底的最后期限即将到来，纽约各大政府接种点都排起了长队。
 
-警方怀疑有人对发射塔做了手脚，但表示火灾的原因尚不清楚。
+本台记者文阳闻讯来到法拉盛的政府流动接种点，看见排队的人龙蔓延了一个多街区，三百多米长，排队的民众目测超过三百人，各种族裔都有。记者随机采访了多个排队民众，均表示已经排了几个小时了，就是来打第三针的。而且还说，如果不是为了赶在年底前打完第三针，拿到市长给的一百元，谁高兴顶着寒风排几个小时的队。
 
-这是这座发射塔在投入使用后第二次失火。在去年5月，就在它被架起的几天后，被人纵火。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-5.jpeg)
 
-这并不是唯一的一座5G信号发射塔发生失火的案例。[据报道](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)，在英国有多达77座5G发射塔发生过类似的火灾。
+文贵先生和新中国联邦一再告诫世人，我们反的是假疫苗，疫苗强推很快就会过去，不要让假疫苗伤害你和你的家人。还有世界各地的一线医生和医学专家发出警告，mRNA 疫苗内含的刺突蛋白，对人体有害。据一份11月15日发布的法庭文件显示，FDA计划到2076年才彻底公布新冠疫苗数据，足可证明现在的疫苗都是谋财害命的假疫苗。
 
-同样，[在澳洲，也发生过类似的](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)[5G发射塔失火案件。警方发现，其中一些大火是由人为纵火照成的。](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
+有网友在新闻下留言，这些为了拿到一百元而去打第三针的人，可以堪比犹大手中的那袋银币。不过，小编认为，为了一百块而去打第三针的人，比犹大都不如。因为，犹大出卖的是耶稣，他们出卖的是自己的健康和未来。
 
-[有媒体报道](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)，这些纵火的组织或个人认为5G信号会传播新冠病毒。[也有报道认为](https://gnews.org/zh-hans/1804700/)，注射在人体中的新冠疫苗当中的石墨烯会接收手机天线的信号，使接种者产生急性辐射综合症。
+新闻链接：[https://gnews.org/zh-hans/1797180/](https://gnews.org/zh-hans/1797180/)
 
-有人对5G信号发射塔进行纵火，体现了人们对当今的科学，权威，以及政客的不信任。尽管网络运营商承诺5G信号对人体的辐射低于规范要求，可人们还是尽量避免长时间把手机直接靠近耳部来接听电话，以避免头痛或产生脑瘤。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-特别是在政府大规模强制实行新冠疫苗接种政策后，同时故意打压羟氯喹和伊维菌素等有效治疗药物，人们开始对科学和政客产生更多的质疑和不信任。
+**校对/发稿：童谣**
 
-信息来源：[5G coronavirus conspiracy theory leads to 77 mobile towers burned in UK, report says](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)
+**更多资讯，更多关注**
 
-[5G fires: Australian mobile companies work with police to prevent arson attacks](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[Burning Cell Towers, Out of Baseless Fear They Spread the Virus](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](https://gnews.org/zh-hans/1804700/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

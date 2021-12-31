@@ -2,42 +2,39 @@
 ---
 
 
-## 美国媒体揭露中国政府深入研究“脑战武器”多年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807048/)
+## 有声|文革2.0时代将给百姓带来深重苦难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807155/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生在直播中透露，在拜习视频会议之后的四小时，中共公布了六中全会的第三个重大决议，即中共的“10个坚持”，其实质就是宣布中共国继续坚持一党专制的独裁，大搞皇帝制。同时，中共国内将全面停止经济改革开放，开始新的文化大革命。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1162844475-700x420-1.jpg)
+郭先生还提到，中共将即刻收回所有经济自由权，也就是说，私有企业会全部被收归国有，实行资本共产制。此后，中共会逐步跟世界经济脱钩、思想脱钩，实现真正的闭关锁国。
 
+郭先生表示，共产党的本质是毫无自信且崇洋媚外，因此，共产党对美国会越来越软。然而，通过这次六中全会，美国和西方将视中共为更大的威胁。
 
- 
-图片来源：Wang Zhao/AFP via Getty Images
+郭先生还警告说，在中共国，没有一个人是安全的——阿富汗的今天就是中国人的明天。大家要做好准备，灾难正在以光速降临在中国人头上。
 
+原文链接：[文革2.0时代将给百姓带来深重苦难](https://gnews.org/zh-hans/1674555/)
+音频处理：喜山必胜Maverick
 
-#### 编译：小红帽
+发稿：Daxia
 
-根据RT12月30日报道，美国媒体报道称，在过去几年里，**中国的一个研究机构一直忙于开发能够“麻痹”敌人而不是杀敌人的武器。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-《华盛顿时报》翻译并分析了中国人民解放军2019年的三份报告，这些报告曾发表在官方军事报纸《解放军日报》上。这家美国报纸称说，这些文件 **“揭示了中国脑战研究的深度，并表明它已经进行了几年。”**
+**更多资讯，更多关注**
 
-“战争已经开始从追求摧毁身体转变为麻痹和控制对手，”《解放军日报》的一篇名为 “军事优势霸权概念的未来”的报道中写道。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据《华盛顿时报》报道，中国的研究人员一直在研究 “将人类和机器结合起来，以实现增强人类生理和认知能力的目标”，并致力于研究大脑对大脑控制攻击的防御。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-商务部负责人吉娜·雷蒙多(Gina Raimondo)称，**中国政府利用生物技术和医疗创新 “追求对其人民的控制以及对少数民族和宗教团体成员的压制”**。发表在联邦登记册上的文件进一步声称，AMMS和相关机构 “**使用生物技术来支持中国的军事最终用途和最终用户，包括所谓的大脑控制武器”。**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据《金融时报》援引一位美国高级官员的话说，**中国政府正在研究 “基因编辑、人类性能增强[和]脑机接口”**。中国当局拒绝所有这类说法，认为其“毫无根据”。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-新闻来源：[US media reports claim China deep in ‘brain warfare research’ — RT World News](https://www.rt.com/news/544811-china-weapon-brain-research/)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

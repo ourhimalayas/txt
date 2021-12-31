@@ -2,39 +2,34 @@
 ---
 
 
-## 有声|文革2.0时代将给百姓带来深重苦难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807155/)
+## 不满中共和世卫疏忽疫情 数百名墨西哥人提出集体诉讼
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1807206/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，郭文贵先生在直播中透露，在拜习视频会议之后的四小时，中共公布了六中全会的第三个重大决议，即中共的“10个坚持”，其实质就是宣布中共国继续坚持一党专制的独裁，大搞皇帝制。同时，中共国内将全面停止经济改革开放，开始新的文化大革命。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-郭先生还提到，中共将即刻收回所有经济自由权，也就是说，私有企业会全部被收归国有，实行资本共产制。此后，中共会逐步跟世界经济脱钩、思想脱钩，实现真正的闭关锁国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/756DDA31-ECD2-49EB-AD23-B87E55E5EA89.jpeg)（图片来自网络）
 
-郭先生表示，共产党的本质是毫无自信且崇洋媚外，因此，共产党对美国会越来越软。然而，通过这次六中全会，美国和西方将视中共为更大的威胁。
+12月30日，因不满中共和世界卫生组织（WHO）对疫情的控制不力，数百名墨西哥人指控中共和世卫组织触犯《世界人权宣言》，提出集体诉讼并要求赔偿。
 
-郭先生还警告说，在中共国，没有一个人是安全的——阿富汗的今天就是中国人的明天。大家要做好准备，灾难正在以光速降临在中国人头上。
+据《中央社》报道，向中共国和世卫组织索赔的国际诉讼是由阿根廷首都布宜诺斯艾利斯（Buenos Aires）的波普拉夫斯基国际法律事务所（Poplavsky International Law Offices）所发起的。
 
-原文链接：[文革2.0时代将给百姓带来深重苦难](https://gnews.org/zh-hans/1674555/)
-音频处理：喜山必胜Maverick
+该事务所在墨西哥的代表龚萨雷兹（Denisse Gonzalez）表示，集体指控中共和世卫组织触犯《世界人权宣言》（Universal Declaration of Human Rights），是因为它们在疫情方面犯下疏失，导致大量人口死亡和感染。
 
-发稿：Daxia
+龚萨雷兹说，求偿金额从确诊20万美元到病故80万美元不等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据悉，这场金额达数百万美元的集体诉讼将提交联合国日内瓦办事处。目前已有数百名墨西哥人加入该诉讼。
 
-**更多资讯，更多关注**
+COVID-19（中共病毒）最早于2019年在中共国湖北省武汉市现踪，迄今造成全球540多万人丧生。墨西哥至今累计近30万人病故，高居全球第5，超过395万人确诊。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*参考链接： [不滿中國世衛疏忽疫情 數百墨西哥人提集體訴訟](https://www.cna.com.tw/news/aopl/202112300218.aspx)*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+*素材采编：幽蘭自得*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑：文顺*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*发布：miumiu*
 
  
 

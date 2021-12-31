@@ -2,25 +2,25 @@
 ---
 
 
-## 安大略省增加了对护理院的限制措施
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807109/)
+## 加拿大各地区急缺医疗工作人员
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807172/)
 
-采编：青青           编译撰稿：苦尽甜来 (文来）
+采编/翻译：文莱       校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5-edited.png)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：TNH
 
 
-据加拿大【CTV新闻】12月28日报道，安大略省正在对长期护理院实施更严格的疫情限制规定，包括禁止普通访客进入护理院及院内居民出于社交目的日常活动。政府的以上措施将于 12 月 30 日凌晨生效。
+据加拿大自媒体【后千禧年】12月29日报道，加拿大多个省份目前都正在考虑将允许“新冠病毒”检测呈阳性的卫生工作者在感染后仍继续工作。
 
-报道称，目前安省有 41 家长期护理院正在爆发“奥密克戎”疫情，该数字高于日前的 37 家，预计疫情还将继续恶化。
+报道称，由于近期“奥米克戎”疫情的肆虐，加拿大多数省份的感染病例均创下历史新高。而魁省卫生部长是首位对此做出以上极端决策的官员。并表示：该措施可以继续保持医疗系统的正常运转。安大略省和曼尼托巴省随后也在考虑实施相同政策，以缓解各自不堪重负的医疗系统压力。
 
-据悉，该省养老护理院的84% 居民和 43% 的护理工人都已接种了“新冠病毒”疫苗加强剂。政府同时还表示：将继续密切监控这些护理院，并将在必要时调整防疫措施。
+尽管近期的研究报告指出，“奥密克戎”所造成的住院率和死亡率均低于之前的变体，但加拿大各级政府不仅继续采取更严厉的人身限制措施，甚至极端封锁方式来剥夺公众的自由权利，同时还实施以上匪夷所思的手段威胁医护工作者的健康和生命。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+发稿：硫酸羟氯喹64
 
-原文链接： [https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233](https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233)
+原文链接: [Canadian provinces consider allowing COVID-positive health workers to keep working | The Post Millennial](https://thepostmillennial.com/canadian-provinces-consider-allowing-covid-positive-health-workers-to-keep-working)
 
  
 
