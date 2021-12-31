@@ -2,23 +2,35 @@
 ---
 
 
-## 比利时应对疫情的限制措施遇阻
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807189/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807207/)
 
-采编/编译撰稿：薇文              校对编辑，发稿：硫酸羟氯喹64
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+杰西: 在多变的监管环境下，我们希望走在合规制度的最前线。这就是为什么我们有白名单制度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/b.jpg)图片来源：CP24
+因此，说实行白名单的目的就是，是为了使注册地址收到的任何喜马拉雅币或喜马拉雅元不会受到限制期的影响。
 
+现在，你可能会说，什么是锁定期呢？好的，不用被这个术语吓到。制定锁定期和白名单服务的目的是避免用户在无意间触犯法律。在出现欺诈交易时，用户将会有足够的时间来采取行动。而且，这确实是为了确保我们在所有多个司法管辖区的数字资产合规。
 
-据加拿大媒体[CP24]12月28日报道，由于近期“奥密克戎”病毒感染人数剧增，比利时政府不顾相关组织、企业和国家科学委员会的反对意见，于12月26日发布限制令，要求关闭该国所有电影院、音乐厅和艺术中心等公共娱乐场所。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-报道称，以上规定一出，即刻引发大量艺人、影院经营者及活动组织者等的强烈抗议。随后，在一家制作公司为确保其年终演出顺利进行，而对政府的限制令发起上诉后，比利时【国务委员会】立即启动了应急程序，对这一争议进行仲裁，并最终决定暂停执行当局的该限制令。
+编辑/校对/发稿：Hetangyuese
 
-据悉，比利时法语区文化部长对以上裁决表示肯定，但卫生部长对【国务委员会】的该决定则表示：任何仲裁结果都不可能立即改变政府行政命令的执行。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-* * *
+**更多资讯，更多关注**
 
-參考链接：[https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378](https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

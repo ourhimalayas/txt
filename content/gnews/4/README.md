@@ -2,32 +2,30 @@
 ---
 
 
-## 被推特永久封禁，马龙博士继续在盖特揭示真相
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807313/)
+## 饱受封城之苦的西安民众抱怨“蛋尽粮绝”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1807361/)
 
-#### 撰稿：彩虹       
+![中国陕西西安新冠防疫封城后一名工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）](https://gdb.voanews.com/472EE81C-18E4-450B-8D1A-88246941112D_w1023_r1_s.jpg)*中国西安新冠防疫封城后一工作人员为居家隔离的小区居民准备递送食品。（2021年12月23日）*
+据美国之音12月31日报道，拥有1300万人口的陕西省西安市从12月23日起全面封城。“零容忍”政策不仅使当地经济凋零，更使民生火热水深。被囚禁在家中的西安居民只能通过网络发出求救，很多人面临生命危险。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1918.png)图片来源：推特
-近日《大纪元》英文网报道，罗伯特·马龙（Robert Malone）博士因为反对为年轻、健康的人们及儿童接种中共病毒疫苗，推特（Twitter）日前已经永久停止了他的推特账号。
+为了平息全城封禁导致的民怨，西安市各区政府组织多家大型超市和农贸市场，通过街道和社区的志愿者将分装好的免费蔬菜及其他食品分别送至封闭管理小区的居民家中。仅西安市曲江新区一地，就分发了130吨肉类、70吨鸡蛋以及650吨蔬菜。但很多民众仍表示，只收到新闻，没收到菜。
 
-罗伯特·马龙博士是mRNA技术的关键设计师，他赞同并鼓励年长和有风险的美国人接种中共病毒疫苗。但是现在，他却成为了中共病毒疫情规定和条例的强烈批评者他建议年轻、健康的人应该质疑疫苗的使用。
+中共国的“零容忍”政策只符合监管和镇压老百姓，对一切贪腐或欺行霸市则是“全开放”。突然间的足不出户和居家避疫，没有任何准备的时间，很多人来不及储存生活物资，危重病人得不到救治，哪怕产妇都不能幸免。这样灭绝人性的隔离无异于杀人。在临近新年之际，2年前武汉的悲剧又在重演。中共多存在一天，中共国每一天就会多出无数个冤魂。
 
-面对推特的永久封号，马龙博士参加了主持人格雷格·斯廷奇菲尔德（格雷格*Stinchfield*）的节目，他在节目中提到，他正在积极接受路透社的事实核查，他说路透社通过“内部关系”与疫苗生产商辉瑞公司有联系。同时，他会继续“告诉世人真相”。
+新闻参考链接：[https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html](https://www.voachinese.com/a/officials-promise-groceries-for-Xian-residents-in-lockdown-20211230/6375720.html)
 
-主持人格雷格·斯廷奇菲尔德问这位疫苗的发明者：“他们对你称这些mRNA疫苗产生的刺突带白……有毒并会导致出生缺陷的说法感到非常震惊。他们说，‘这是错误的信息，完全是假新闻’。你怎么回应他们？”
+编辑：胖丁
 
-马龙博士回答到：“很抱歉，数据就是数据，事实就是事实。”
+* * *
 
-笔者注意到，[Diamond and Silk](https://gettr.com/user/rwmalonemd)是美国直播视频播客作者，政治活动家，也是《新闻极限》和FrankSpeech.com的主持人，12月30日，她们在盖特（Gettr）文章中提到了罗伯特·马龙博士。公开资料显示，马龙博士于10月初已经入住了盖特，并于10月9日发布了第一篇盖文，其盖特账号为[@rwmalonemd](https://gettr.com/user/rwmalonemd)。
-
-**新闻来源**
-
-[Blocked by Twitter, Vaccine Pioneer Malone Says He’ll Keep ‘Telling the Truth’](https://www.newsmax.com/newsmax-tv/newsmaxtv-robertmalone-covid-19/2021/12/30/id/1050536/)
-
-[Welcome to Gettr Dr. Robert Malone](https://gettr.com/post/pl2j6z1973)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

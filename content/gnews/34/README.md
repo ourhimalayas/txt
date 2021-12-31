@@ -2,42 +2,25 @@
 ---
 
 
-## 美国媒体揭露中国政府深入研究“脑战武器”多年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807048/)
+## 安大略省增加了对护理院的限制措施
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807109/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+采编：青青           编译撰稿：苦尽甜来 (文来）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1162844475-700x420-1.jpg)
-
-
- 
-图片来源：Wang Zhao/AFP via Getty Images
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-5-edited.png)图片来源：TNH
 
 
-#### 编译：小红帽
+据加拿大【CTV新闻】12月28日报道，安大略省正在对长期护理院实施更严格的疫情限制规定，包括禁止普通访客进入护理院及院内居民出于社交目的日常活动。政府的以上措施将于 12 月 30 日凌晨生效。
 
-根据RT12月30日报道，美国媒体报道称，在过去几年里，**中国的一个研究机构一直忙于开发能够“麻痹”敌人而不是杀敌人的武器。**
+报道称，目前安省有 41 家长期护理院正在爆发“奥密克戎”疫情，该数字高于日前的 37 家，预计疫情还将继续恶化。
 
-《华盛顿时报》翻译并分析了中国人民解放军2019年的三份报告，这些报告曾发表在官方军事报纸《解放军日报》上。这家美国报纸称说，这些文件 **“揭示了中国脑战研究的深度，并表明它已经进行了几年。”**
+据悉，该省养老护理院的84% 居民和 43% 的护理工人都已接种了“新冠病毒”疫苗加强剂。政府同时还表示：将继续密切监控这些护理院，并将在必要时调整防疫措施。
 
-“战争已经开始从追求摧毁身体转变为麻痹和控制对手，”《解放军日报》的一篇名为 “军事优势霸权概念的未来”的报道中写道。
+* * *
 
-据《华盛顿时报》报道，中国的研究人员一直在研究 “将人类和机器结合起来，以实现增强人类生理和认知能力的目标”，并致力于研究大脑对大脑控制攻击的防御。
+校对编辑，发稿：硫酸羟氯喹64
 
-商务部负责人吉娜·雷蒙多(Gina Raimondo)称，**中国政府利用生物技术和医疗创新 “追求对其人民的控制以及对少数民族和宗教团体成员的压制”**。发表在联邦登记册上的文件进一步声称，AMMS和相关机构 “**使用生物技术来支持中国的军事最终用途和最终用户，包括所谓的大脑控制武器”。**
-
-据《金融时报》援引一位美国高级官员的话说，**中国政府正在研究 “基因编辑、人类性能增强[和]脑机接口”**。中国当局拒绝所有这类说法，认为其“毫无根据”。
-
-新闻来源：[US media reports claim China deep in ‘brain warfare research’ — RT World News](https://www.rt.com/news/544811-china-weapon-brain-research/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233](https://toronto.ctvnews.ca/ontario-adding-new-restrictions-to-long-term-care-homes-due-to-omicron-spike-1.5721233)
 
  
 

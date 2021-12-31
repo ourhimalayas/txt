@@ -2,22 +2,22 @@
 ---
 
 
-## 未接种疫苗的NBA球员被允许归队重新比赛
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807047/)
+## 香港民主再次被中共肆意摧残
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807101/)
 
-采编：文莱           编译撰稿：苦尽甜来 (文来）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-8.jpg)
-[图片来源](https://www.rollingstone.com/culture/culture-news/kyrie-irving-returning-brooklyn-nets-1273581/)
+采编：文莱         翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-7.jpg)
+据加拿大《CP24新闻》12月29日报道，香港一家知名自由言论网站在当天被当局查封，警方同时还逮捕了6名现任和前任编辑及董事会成员，其中包括歌手和民主活动家何韵诗女士。
 
-据加拿大自媒体【后千禧年】12月30日报道，由于最近美国NBA蓝网队球员出现了大量伤病现象，此前曾因拒绝接种“新冠病毒”疫苗而被暂停比赛的球员凯里.欧文，近日已被允许归队参加训练。
+该网站是目前香港仅存的，敢于公开批评中共政府破坏民主的媒体。香港警方称，他们是在《国家安全法》授权下采取的以上行动。而何韵诗则是该网站前董事会成员，并已被当局指控阴谋出版煽动性出版物。
 
-报道称，由于纽约市的防疫规定，之前未接种疫苗的欧文既不被允许在蓝网队的主场比赛，也不允许他过境参加多伦多的比赛。除非接种疫苗，否则他将只能参加美国境内的客场赛事。据悉，欧文可能会在 1 月 5 日之前重返赛场。
+结合香港政府上周从大学校园移除表达民主的雕塑及其他艺术品等事件，中共当局这一系列破坏香港民主自由的镇压行动，标志着这个曾经蓬勃繁荣、文明开放的国际大都市现已彻底沦为中共暴政蹂躏下的“死港”。
 
 校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
+发稿： 苦尽甜来 (文來）
 
-[原文链接](https://thepostmillennial.com/kyrie-irving-rejoins-brooklyn-nets-despite-being-unvaccinated)
+[參考链接](https://www.cp24.com/world/hong-kong-pro-democracy-news-website-closes-after-raid-six-arrests-1.5721968)
 
  
 

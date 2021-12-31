@@ -2,35 +2,27 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807207/)
+## 纽约州民主党再提限制言论议案
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807256/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-杰西: 在多变的监管环境下，我们希望走在合规制度的最前线。这就是为什么我们有白名单制度。
+采编：UCool 优酷         编译撰稿：文明(添草灭共)
 
-因此，说实行白名单的目的就是，是为了使注册地址收到的任何喜马拉雅币或喜马拉雅元不会受到限制期的影响。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-3-edited.jpg)图片来源：TGW
 
-现在，你可能会说，什么是锁定期呢？好的，不用被这个术语吓到。制定锁定期和白名单服务的目的是避免用户在无意间触犯法律。在出现欺诈交易时，用户将会有足够的时间来采取行动。而且，这确实是为了确保我们在所有多个司法管辖区的数字资产合规。
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+据美国自媒体【网关专家】12月28日报道，纽约州民主党正试图通过立法，以惩罚和压制那些反对当局疫情政策、疫苗接种及病毒感染治疗方案的人士。
 
-编辑/校对/发稿：Hetangyuese
+报道称，该州民主党参议员霍伊曼此前提出一项新法案，旨在让社交媒体平台对“故意宣传虚假信息、暴力仇恨言论和其他可能伤害他人”的内容负责，并阻止可能危害公众安全健康及欺诈性医学理论的宣传。
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+为此，作为反对实施该议案的保守党人士则认为，它无疑是一项保护科技巨头免遭诉讼而控制和扼杀自由言论的非法议案。
 
-**更多资讯，更多关注**
+本台编辑评论：任何法案都是“双刃剑”，因此相关司法认定必须避免“双重标准”。但如果以上法案最终能将那些虚假宣传疫苗安全有效、掩盖中共病毒真相和疫苗危害的科技巨头，以及无良媒体绳之以法，那该法案必将获得所有正义力量的全力支持。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+校对编辑,，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/](https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/)
 
  
 
