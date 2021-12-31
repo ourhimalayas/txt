@@ -2,26 +2,24 @@
 ---
 
 
-## 俄克拉荷马州州长抨击强制接种令违宪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808876/)
+## 拜登政府宣布将解除对非洲八国的旅行禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808894/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月27日，美国俄克拉荷马州州长斯蒂特在一份报道中表示，他反对联邦政府推行的中共病毒疫苗强制接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-28.jpg)
-斯蒂特强调，接种疫苗与否应该完全出于个人选择，而联邦政府目前所执行的一刀切政策并不符合实际情况。斯蒂特表示，随着疫情的变化，科学与实用治疗方法也在不断发展，这当中还包括自然免疫。而就俄克拉荷马州而言，即使不依靠强制疫苗令，当地近期的确诊人数与住院患者也都有了大幅下降。
+12月28日，据有关媒体消息显示，美国总统拜登当天宣布，他将在本周解除对来自南非和非洲其他国家的旅行禁令。另外，拜登总统也在一份公告中明确，旅行限制不再是保护公众健康所必需的措施，其将于本月31日结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.31.png)
+据悉，美国白宫在11月29日曾宣布，禁止来自南非、纳米比亚、莫桑比克等八个非洲国家的非美国公民入境。
 
-为此，斯蒂特州长声明，联邦政府的疫苗强制令根本不尊重美国民众的个人自由，政府利用权力强迫美国人在中共病毒疫苗和工作之间做出选择，但这不仅是联邦政府的过度行为，更是违反了宪法的举措。
+但拜登总统对此表示，基于美国疾病控制与预防中心的建议，他此次做出了取消旅行限制的决定。他补充道，目前中共病毒奥密克戎变种已经扩散至包括美国在内的100多个国家，但其威胁程度比最初全球所担心的有所降低。另外，美国的研究人员对奥密克戎变种的了解也取得了实质性进展。 因此，此项限制将不再必要。
 
-斯蒂特补充道，根据医生的建议以及自身的健康状况，他本人并不打算接种中共病毒疫苗加强针。
+参考链接：[已無必要 拜登宣布解除非洲8國旅行禁令](https://cn.rti.org.tw/news/view/id/2120693)
 
-参考链接: [Oklahoma Governor Says He Doesn’t Plan to Get Booster Because He’s ‘Perfectly Healthy’](https://www.thegatewaypundit.com/2021/12/oklahoma-governor-says-doesnt-plan-get-booster-perfectly-healthy/?utm_source=ground.news&amp;utm_medium=referral)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：雪梨
-编辑：Kathy文艺
-校正/发稿：Fei797
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

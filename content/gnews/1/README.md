@@ -2,28 +2,15 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月31日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1809012/)
+## 中共国房地产庞氏骗局持续 经济崩盘最终老百姓买单
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1809037/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
+恒大两万亿借款，总资产和未来交房比例是70万比1，这是无论如何都不可能填补的大洞。近期恒大又融资了45亿，这些从各地商行和金融机构借到的钱，都是老百姓的钱！现在全国各省市不允许公报低价房产，全国继续造假票据，继续各种旁氏骗局，中共国经济一定会崩盘，无人可救，但最终将是老百姓买单。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-31.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2021.12.31早GTV新闻访谈](https://gtv.org/video/id=61cf0579ecc0b216cbb2a870)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 2021年12月29日郭先生大直播视频
+视频制作: 文星光
+文案: 梦田、文星光
+上传: 零点
 
  
 

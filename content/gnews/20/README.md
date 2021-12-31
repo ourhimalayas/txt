@@ -2,15 +2,38 @@
 ---
 
 
-## 曾庆红和王岐山出面力保刘亚洲
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1808778/)
+## MV版Hcoin To the Moon上线第22天位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1808849/)
 
-刘亚洲事件持续发酵，其空军部下已被抓捕400余人。刘亚洲被抓前，最后见了曾庆红和王岐山，王、曾二人都曾替他说话。刘亚洲是李先念女婿，王岐山说毛之后党内定的规矩，不抓中共 “创始人”的亲属，也包括了女婿。王岐山已四次出面力保刘亚洲。
+12/31/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第21天位列美国iTunes热门MV榜榜首。
 
-视频来源: 2021年12月29日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+* * *
+
+[【PDF 下载】Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_104.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_115.jpg)
+
+
+[【PDF 下载】Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-31-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

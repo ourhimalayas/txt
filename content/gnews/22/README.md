@@ -2,40 +2,37 @@
 ---
 
 
-## 郭文贵先生再谈新中国联邦的喜币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808758/)
+## 荣获艾美奖的加拿大导演心脏病突发猝死 震惊好莱坞
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1808836/)
 
-作者：纽约香草山 信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在12月29日的直播里，郭文贵先生从虚拟货币的发展谈到了新中国联邦喜币的前景。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-33.png)
+又一人因接种中共病毒疫苗猝死？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-34.jpeg)
+58岁的加拿大电影制片人让•马克•瓦莱(Jean•Marc Vallée)圣诞节期间，在魁北克市外的小屋突然死于心脏病发作。
 
-郭先生表示，相较于去年，虚拟币的市值如今上涨超过13倍。其中，比特币的价格更是一路坐过山车般的跌宕起伏。 再者，全球金融市场的法币也在过去两年间超发约260万亿美元，而这些巨额超发或将通过战争重组，或将分别淹没在金融系统和经济活动中。
+据报道，瓦莱非常注重健康，经常锻炼身体并戒酒。
 
-郭先生补充道，我们正面临着货币革命中数字货币最伟大的时代。因此，未来世界的第一大金融力量一定是虚拟币。其原因在于，没有人能阻挡虚拟币成为人类躲避金融、病毒及疫苗、政治与经济灾难的避险池，或是成为法币超发导致通货膨胀的蓄水池。
+与Jean•Marc Vallée合作的好莱坞明星对他的突然去世感到震惊。
 
-郭先生也解释道，包括比特币在内的一些去中心化虚拟货币没有支付系统，其用户也没有经过合法的KYC。为此，这些虚拟货币大多成为犯罪与恐怖份子的洗钱工具，其在未来必将被瞬间消失。
+妮可•基德曼在给《好莱坞报道》的一份声明中说：”很难想象像让-马克这样有生命力、有活力、有存在感的人已经离开了。我感到很震惊”。
 
-与之相对的，喜币作为中心化负责、去中心化加密技术的虚拟货币，其资金来源全部经过严密的KYC且有自己的支付系统。另外，价格稳定喜币还能支撑起大宗交易，并有国家主权货币的属性。最终，喜币将成为未来虚拟币的开拓者和游戏规则制定者。
+据Deadline报道，让•马克•瓦莱 “因《小谎大事》获得艾美奖和DGA奖，并因编辑《达拉斯买家俱乐部》获得奥斯卡提名，该片为马修•麦康纳和贾里德•莱托赢得了奥斯卡奖，并获得最佳影片奖”。
 
-此外，郭先生还提到了一富可敌国且在全球有巨大影响力的某世界级机构掌门人对喜币的评价，即，未来5年内，喜币也许还不为大众所识，但五年后喜币将在世界一枝独秀。
+备注：
 
-参考链接：[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+[新闻来源链接](https://www.thegatewaypundit.com/2021/12/emmy-award-winning-canadian-director-shocks-hollywood-suddenly-dies-heart-attack-age-58/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

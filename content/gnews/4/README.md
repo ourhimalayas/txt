@@ -2,98 +2,28 @@
 ---
 
 
-## 视频| 恒大地产的泡沫即将破灭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1808958/)
+## GTV新聞訪談簡報|2021年12月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1809019/)
 
-## 摘自2021.12.29郭先生大直播
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
-制作：香草山视频部
+作者：香草山翻譯部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-fan-23.png)
+文章僅代表作者本人觀點，與Gnews無關
 
+視頻參看： [2021.12.31早GTV新聞訪談](https://gtv.org/video/id=61cf0579ecc0b216cbb2a870)
 
+編輯： Lakers
+校對： Lakers
+發稿： Lakers
 
-就这几天许家印的伙伴们
-说郭先生能不能别再说许家印了
-我们在这整个全力第二次的奋斗之中
-我就问他们
-我说“你们是想再恢复到以前的恒大
-你觉得能恢复吗”他说难
-但是我们要拼搏
-我们跟许家印 习主席要战斗到底
-而且上边领导发言
-支持恒大 继续做强做大
-我说“我告诉你，你们恒大真大过了
-但肯定恒不了”
-你们现在的2万亿的借款当中
-是总资产和你未来要交的房子当中
-是多少比例呢，是70万比1
-你拿70万块钱换回来1块钱
-你上哪拿你70万块钱
-你骗谁呢
-他说我们现在有金融机构支持我们贷款
-我说那你就是继续在把这个
-庞氏骗局泡沫再吹大一点儿
-那你也不可能解决70万比1的泡沫
-但他又来了一句
-郭先生你不知道
-我们现在最近又融到了45亿
-从各地的商行 金融机构
-我们做长了过去老贷款延期
-他给我们增加了新贷款
-这是重点兄弟们
-你们但凡在国内搞过金融票据
-做过房地产就懂得
-这是玩儿谁呢 玩老百姓
-我欠你100万 你找我 我还不了了
-我快完了 咱俩商量一下
-我让你的报表今年过年好看
-你能不能再借给我300万
-然后呢你的报表也好看了
-又增加了300万
-那我用谁来借呢
-我和安平好 我叫安平出面帮我借
-担保转来转去 搞了个假票据
-你们要到100万
-你们要了300万的帐回去了
-兄弟姐妹们 你这种险恶这种悲剧
-只能在中共国发生
-现在市场流通的房子
-全国各省市不允许房地产管理部门
-房管局最低价的那套房 价格不能公布
-你就这么忽悠老百姓
-你说这个国家还了得了吗
-继续造假票据 庞氏骗局
-大家视而不见
-第二，便宜的房子不能公布
-第三，不允许你破产
-要等着党过完奥运会再破产
-最后谁为这买单
-政府不生产一分钱 老百姓买
-从此可见
-共产党接下来的所有房地产的崩盘
-金融的崩盘 他不是一般的崩
-我们没有办法能拯救任何人
-但是我们绝对要像过去5年一样
-我们要提前告知
-我们让所有尽可能的知道
-这个雪崩的时刻到来能救一个是一个
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
 
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多資訊，更多關注**
+[紐約香草山農場GTV-香草山之聲](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[紐約香草山農場GTV-MOS TALK 香草山訪談](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[紐約香草山農場Gettr](https://www.gettr.com/user/himalaya_mos)
+[紐約香草山農場 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

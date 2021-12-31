@@ -2,24 +2,24 @@
 ---
 
 
-## 日澳研议并修改安保共同宣言应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808892/)
+## 墨西哥中共病毒受害者向中共和世卫追偿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808897/)
 
-作者：纽约香草山 医疗部 云豹
+作者：东京樱花团 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，据日本媒体报导，为全面加强抗共合作，日本与澳大利亚政府正在商讨并修改双方于2007年签署的《日澳安全保障共同宣言》，用以共同应对中共企图破坏台海、南海现状的挑衅行为，以及其日益增强的武力威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.09.png)
-资料显示，日澳双方于2007年签署的《日澳安全保障共同宣言》主要是为了应对当时来自朝鲜的威胁，但双方此次拟修改的新宣言将包括强化日本自卫队与澳洲军队的威慑力和应对力，以及提高双方的训练品质并达到能与美国协同作战的目标，从而能更好地应对源于中共的威胁。
+当地时间12月30日，据相关媒体报道称，墨西哥公民米豪斯因女儿死于中共病毒而深受打击，目前，他与数百名墨西哥中共病毒受害者家属一起加入了向中共和世界卫生组织追偿的行动中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-21.jpg)
+据悉，这项追偿行动是由位于阿根廷首都布宜诺斯艾利斯的“波普拉夫斯基国际法律事务所”发起的。该事务所表示，其已和哥伦比亚、阿根廷等国家的中共病毒受害者及其家属签约。同时，该事务所希望诸如美国、英国和意大利等国家也能支持自己的公民针对中共病毒提出类似的诉讼。事务所表示，这将有助于其他国家的追偿者赢得诉讼。
 
-此外，报道提及，新宣言也将纳入有关太空防卫、网落情报共享技术合作、经济安全保障合作等内容。
+资料显示，这项指控中共和世界卫生组织违反《世界人权宣言》、高达数百万美元的索赔案将被提交给联合国审理。
 
-参考链接：[強化抗中合作 日澳檢討修改安保共同宣言](https://www.cna.com.tw/news/firstnews/202112300007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接: [墨西哥COVID-19受害者 加入向中國與世衛求償行動](https://cn.rti.org.tw/news/view/id/2120832)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编：雪梨
+编辑：文特
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

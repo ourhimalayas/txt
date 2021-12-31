@@ -2,34 +2,16 @@
 ---
 
 
-## 日媒报道中共强改郭先生盘古大观龙头
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808893/)
+## 西安因接种计量超标疫苗而导致爆发热血病 下一个爆发疫情的是河北
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1808917/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月29日，日本媒体在新闻节目中报道了中共强改盘古大观龙头的事件。在记者电话询问相关负责人改变建筑外观的缘由时，中共方只给出“国家机密，无可奉告”的答复。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.18.png)
-对此，该节目的嘉宾们分析了其背后的三点原因：其一，中共为了避免盘古龙头在风水上与鸟巢旁的水龙相冲，出现“二龙相争，必有一伤”的结局； 其二，盘古大观龙头对中南海的俯视让中共高层难受； 其三，盘古大观是由一直以来揭露中国共产党邪恶内幕的郭文贵先生所建造。 而嘉宾们也提到，这恰恰体现出独裁中共政权的恐怖之处，即朝令夕改——即使是经过审批的建筑也会被强行改造。
+至12月28号，在西安，自杀、疾病突发得不到救治，冒险取食而造成的事故，就高达700多起，死亡2000余人。中共国过去2年卖的殡葬用品及墓地，是过去21年的总和。近日西安的疫情不是因为新病毒，而是疫苗造成的。西安接种的都是特定的，一千六百万只含量250克，最强效的新冠疫苗。很多案例因为身体无法应对如此剂量的疫苗，而产生“七窍流血” 的热血病。更重要的是，这很容易导致新的强变异病毒产生。下一个疫情爆发地是河北！从石家庄、廊坊，张家口开始，到承德，然后是江浙一带，广州，武汉。青蒿素非常重要！它不仅能修复基因缺陷，还是作用于癌细胞最有效的自然药剂，并且对糖尿病，中风，妇科疾病均有很大的改善。
 
-另据郭先生在29日的直播中爆料称，中共已经对该日本媒体发出威胁，要求下架此视频。
+视频来源: 2021年12月29日郭先生大直播视频
+视频制作: 文星光
+文案: 梦田、文星光
+上传: 零点
 
-评论人士则指出，对于该视频中包含的对爆料革命及新中国联邦创始人郭文贵先生的宣传，以及有关龙图腾在风水上的意义和自诩无神论的中共其实无比迷信的事实，都另中共政府恐惧不已。
-
-参考链接：[https://www.gettr.com/post/pl1kv8ecf7](https://www.gettr.com/post/pl1kv8ecf7)
-
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
