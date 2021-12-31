@@ -2,103 +2,61 @@
 ---
 
 
-## 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806545/)
+## 2021年加拿大警察执法时向多少人开过枪？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806560/)
 
-[https://gtv.org/video/id=61cd20f0fb16a93456bf373d](https://gtv.org/video/id=61cd20f0fb16a93456bf373d)
+作者：Kelly Geraldine Malone
+翻译：HimaCoby
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-381.jpg)
 
-我真的从小坚信一句话，我只要坚持持之以恒我就不相信(有)磕不下来的事
-I’ve truly believed in a word since I was a child, as long as I persist in it, I don’t believe in things that can’t be done
+根据环球新闻报道，犯罪学专家表示，尽管公众要求改变警务权力的呼声越来越大，但加拿大警察枪击事件的数量仍然过高。
 
-你们没想到七哥讲英文有多难，我40年我没把英文学会
-You didn’t expect how difficult it is for me to speak English, in 40 years I ha-ven’t learned English well
+2021年1月1日至11月30日期间，加拿大警察执法时开了64枪，其中一半人被打死。只有七人没有受伤。
 
-而且我身边全是讲英文的，我这一生最失败的就是英文
-and all around me are English speakers, the most failed thing in my life is Eng-lish
+“我对这个问题深感担忧。这个现象并不是必须的，”阿尔伯塔大学犯罪学教授、阿省前特别顾问Temitope Oriola在审查其警察法时说。这种现象自2020年以来几乎没有变化，当时全球运动呼吁加强警察问责制和透明度。
 
-语言没学好，但是从爆料革命开始创建了郭氏英文
-I didn’t learn the language well, but since starting the whistleblower movement that I created Guo’s style English
+今年到目前为止，警察枪击事件的数量与2020年的总数相当，当时有60人被枪击，其中36人被杀。那一年，12月发生了五起枪击事件，最小的是一名在安大略省遇害的一岁男孩。
 
-你看看我用郭氏英文被这个Isobel Yeung采访的时候，现在响遍全中国
-Look at me what I used this Guo’s style English when I was interviewed by Iso-bel Yeung, now it’s resounding all over China
+2021年12月至少发生了3起致命枪击事件，统计没有将这些枪击事件列入总数。
 
-哇塞，我的老师说第二个文贵你的英文太好了，我竟然全听懂了
-Wow, my teacher said the second one, Miles, your English was so good, I actual-ly understand it all
+2021 年，年轻人继续占被警察枪杀的绝大多数人。还有不成比例的有色人种。调查组可以在17次枪击事件中确定被枪击人的种族，其中超过50%涉及原住民，17%是黑人。
 
-哈哈，我说老师，你这话真的说得太夸张了，
-Haha, I said “teacher, what you said is really exaggerated
+Oriola说，维持治安需要一定程度使用武器，在某些情况下，这可能是合法的。他说，与包括美国在内的其他国家相比，加拿大的警察枪击事件并不常见，但这个数字仍然令人担忧。
 
-你听懂了对我来讲，是讲得好还是不好，是不是
-you understand what I said, is it good or bad?”
+在今年26%的案件中，最初报警的原因是有关武器，随后是关于家庭暴力。在81%的枪击事件中，有人持有武器。52%的人是持刀或其他带刃的武器，31%的人持有枪支。
 
-说明我讲得很不好嘛，我讲好英文，你是听不懂的，因为你的英文很差，是吧
-That means that I speak very badly, I speak English well, but you can’t under-stand it because your English is not good, right?
+在六起枪击事件中，警方最初是接到报案要进行健康检查。这些事件中有四人被杀。
 
-她都听懂了，说明我讲得很差，还要把英文拿下来，你讲讲试试
-She understands everything, It means that I speak poorly, I still have to work hard on my English, give it a try
+通常，警察会被派去检查疑似心理健康出现问题的人。批评者呼吁警方改变警官处理此类电话的方式。
 
-神奇四侠，你的西班牙英文咋样，英文你给我秀秀
-Fantastic Four, how do you speak Spanish and English? Show me some yours
+28岁的Julian Jones于2021年2月下旬在BC省的Opitsaht保护区被加拿大皇家骑警开枪打死。
 
-西枫，你讲讲英文，顺利的英文，是不是? 虽然你是秘翻组
-Xifeng, you speak English and are fluent in English, right? although you are in the secret translation group
+2021 年，加拿大皇家骑警在所有警察部队中发生的枪击事件最多。骑警参与了23次枪击案件，高于去年的 15 次。
 
-不容易，持之以恒
-it is not easy, it needs perseverance
+多伦多警察局参与了六起枪击事件，安省警察局有五起，魁省和埃德蒙顿警察局各有四起。
 
-灭共这件事，就关键你信不信，关键你干不干到底
-Believe it or not is the key point for you to taking down the CCP, the key point is whether you can persist do it or not
+多伦多大学研究警务的助理教授Akwasi Owusu-Bempah说：“很难弄清楚有多少人被警察杀害以及这些人的死亡导致了什么样的结果。我们需要的是更好的数据收集、数据报告能力，以及透明度。”
 
-某将军在私下里边，跟刘亚洲，已经被抓了，说那小子，记得吗
-In privately, there is a general talked to Liu Yazhou who had been arrested, he said do you remember that guy（Miles Guo）?
+Owusu-Bempah说，他从没想过全球示威会立即导致加拿大执法人员权力的变化。但是继续讨论这些问题很重要。“就文化或制度变革而言，这些都需要时间。”
 
-咱们一起吃过饭的，在外面折腾那么大，又建国又建邦的
-We have eaten together, and he（Miles Guo） made big noise abroad, also set up the nation and the federal state
+来源：https://globalnews.ca/news/8475396/canada-police-shootings-2021/
 
-所有的五六个人，唰，全都停下来(夹)菜，没有一个人接这个茬的
-All five or six people suddenly all stopped talking and started picking the dish-es, no one want to continue this topic
+（文章仅代表作者个人观点）
 
-这哥们儿喝多了，刚才我还没问你呢，亚洲
-This buddy drank too much, “I didn’t ask you just now, Yazhou
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-你怎么看那个人，哈哈，刘亚洲想想说，你他妈吃饱了撑的，是不是，喝多了吧
-What do you think of that person（Miles Guo）, haha, Liu Yazhou think about it and said that you damn eat too much, don’t you, drink too much?
+**关注我们**
 
-你提他干什么呀，说你提都不敢提，说明你很怕这件事
-Why are you mentioning him?” you dare not mention it, it shows that you are very afraid of it
+Discord 账号
 
-结果刘亚洲说了句特别精彩的话，说咱一屋子的人全是带星的
-As a result, Liu Yazhou said something particularly wonderful, saying that all the people in this room are all with stars （military rank）
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-我们敢提任何人，都不敢提他，你说我是啥观点，然后说，喝酒
-“We can mention anyone, we do not dare to mention him, you say what my opinion is” and then say let’s drink
+Gettr 账号
 
-这就是当时的刘亚洲，因为那时没抓呢， 我就不好意思说
-This was Liu Yazhou at that time, because he hasn’t arrested at that time, I’m a little hesitant to mention him
-
-**原视频链接**: [https://gettr.com/post/pkq5kob109](https://gettr.com/post/pkq5kob109)
-
-Date: 12/28/2021
-原视频标题: 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
-Miles perseveres to practice Guo’s style English and persists on taking down the CCP so that the Communist Party dare not mention Miles’s name
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pkq5kob109
-任务编号：KC377（3355）
-视频时间段 : 0:00-2:17
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 ：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 ：洛杉矶盘古农场 – 天涯行
-审片 ：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

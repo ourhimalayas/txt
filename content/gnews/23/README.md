@@ -2,50 +2,62 @@
 ---
 
 
-## 新冠疫苗致死引爆韩全国范围抗议活动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806349/)
+## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-30.png)
-韩国是世界上各种疫苗接种率最高的国家之一，新冠疫苗也不例外。大约83%的韩国人已经接种了新冠疫苗，轻易成为G20国家中接种率最高国。
+[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
 
-现在，韩国民众正要求政府对接种疫苗致死案例负责。
+**郭文贵**
+**Miles Guo**
 
-12月25日，周六，在圣诞节期间，人们在首尔政府大楼举行了抗议集会。
+我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
+I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
 
-示威活动中展示了几十幅葬礼肖像。抗议者呼吁政府查明接种病毒疫苗导致的不良反应的原因，并承认是疫苗造成的。
+而且会非常的危险，从美国西边到东边，从非洲过来
+And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
 
-12月26日，周日，抗议者聚集在釜山，也举行了类似的集会。
+你说我咋就蒙那么准呢，那是情报不是蒙的
+Why am I so accurate? that is the intelligence, and it’s not guessed
 
-愤怒的示威者举着已故亲人的大型画像–就像韩国葬礼上通常展示的画像–并说明他们是如何在接种中共病毒疫苗不久后死亡的。
+我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
+Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
 
-*评论指出：日本卫生部一直对接种完全不必要的、实验性的新冠疫苗，所带来的严重和致命的副作用的风险非常坦诚，正因为如此，他们也谴责强制接种疫苗。*
+最后获得了情报，还会放毒，为什么，知道吗？
+In the end, I got the intel, and they will release the virus again, why, do you know?
 
-目前，有1000多名韩国人在接种疫苗不久后死亡，但政府只确认了其中少数案例与接种疫苗有关。
+最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
+In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
 
-一个罕见承认严重不良反应的例子是一名护理人员在接种阿斯利康公司的新冠疫苗注射后出现瘫痪，于8月被认定为工伤事故，并获得了政府津贴。
+要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
+that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
 
-在2月底到3月初，政府推出接种病毒疫苗的一周左右，韩国疾病控制和预防机构表示，有7人死亡，24人在接种阿斯利康疫苗后出现了严重的不良反应。
+既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
+If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
 
-据报道，一名没有潜在健康问题的青少年接种辉瑞-生物技术公司的新冠疫苗后死亡，政府于8月开始进行调查。
+美国亡我中共(之心)不死, 那不如咱把它亡喽
+The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
 
-*评论指出：一直以来，很少有政治家有能力抵制邪恶的疫苗封锁议程。政治家们的任何承诺充其量都是陈词滥调。*
+杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
+Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
 
-*在越南，辉瑞疫苗推出仅一周，就有3名儿童死亡，120人住院，官员们甚至承认这是由 “对疫苗的过度反应 “造成的。*
+Date: 12/25/2021
+原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
+原视频日期：2021/12/24
+**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
+任务编号：KC374（3334）
+视频时间段 : 0:00-1:20
 
-备注：
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 ：洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 文新
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
-
-
-[新闻来源链接](https://www.sott.net/article/462475-Protests-over-Covid-vaccine-deaths-spread-across-South-Korea)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

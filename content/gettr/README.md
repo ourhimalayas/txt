@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/31/2021 12:31 AM (UTC)`
+
+12/29/2021 Miles Guo: Japanese media’s coverage on the CCP's converting Pangu Plaza's “dragon head” tower into a “bird's head” led to a major event in the Sino-Japanese relationship - the CCP’s diplomats threatened the Japanese media and forced it to remove the video; I have declined interviews with 7 major world-class media outlets, because it’s not the time yet<br/><br/>12/29/2021 文贵直播：日媒报道中共把盘古大观龙头变鸟头竟引起了中日之间的政治大事件 - 中共外交官威胁日媒并将迫使其将视频下架；文贵拒绝了7家世界级媒体的采访，因为还不到时候<br/>
+![img](https://media.gettr.com/group14/getter/2021/12/31/00/b7576602-8015-a3bf-76a9-10ae97c96453/out.jpg)
+
+---
+
 `@miles 12/31/2021 12:23 AM (UTC)`
 
 12/29/2021 Miles Guo: VICE's deliberate postponing the release of the interview with Miles Guo is a gift to the CCP's Winter Olympics; The military bills signed by Biden have made it clear to the CCP that the US is going to fight it till the end. However, no one in the CCP believes that it can defeat the US, and what Yang Jiechi and Wang Yi said in their secret speeches is the exact opposite of reality<br/><br/>12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼；拜登的军事法案让中共明白美国将与之决战，但中共无人认为能打赢美国，杨洁篪和王毅的秘密讲话和现实截然相反<br/>
@@ -168,13 +175,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 12月30号：七哥又蒙对了😹😹😹😹😹感谢国内西安防役紧急领导小组的战友们发来的信息。【柒哥揭示了太多秘密！西安的疫苗灾难细品细看，发现了吗？】
 ![img](https://media.gettr.com/group44/getter/2021/12/30/18/fe9324e3-3a9a-4cf1-9e69-f8835eed4082/6bfbfc6012327e71cb9939e6feb5ad1c.jpg)
-
----
-
-`@miles 12/30/2021 5:34 PM (UTC)`
-
-12月30日：祝：活菩萨……人类的大救星……真正的修地敬天者．屠呦呦91岁生日快乐🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group44/getter/2021/12/30/17/f5e2d7a5-36aa-0553-2d13-64dd5c2b7e85/3b52086d078f1848efb644bd47771955.jpg)
 
 ---
 

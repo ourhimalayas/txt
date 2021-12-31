@@ -2,32 +2,37 @@
 ---
 
 
-## Apple公司支付工程师18万美元防人才流失
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1806519/)
+## 有声|美情报部门称中共使用基因编辑和脑控武器
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1806520/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+配音：香草山教育部 – 百香果
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/apple-is-paying-its-engineers-180000-bonuses-to-stop-them-from-joining-meta_resize_md.jpg)[菲尔丹泽/ iStock](https://www.istockphoto.com/photo/the-apple-computers-store-in-sydney-australia-gm458730043-18489219)
 
-Apple 公司正在给其硬件以及软件部门的顶级工程师发放额外的奖金（out-of-cycle bonuses），以阻止他们跳槽到Meta公司。据彭博社[报道](https://www.bloomberg.com/news/articles/2021-12-28/apple-pays-unusual-180-000-bonuses-to-retain-engineering-talent)，这些奖金主要是以限制性股票单位的形式，价值在5万至18万美元之间。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+盖特12月27日消息，美国情报部门情报显示，中共正在使用先进的基因编辑和脑控武器，来推进其军事发展和消除异议。
 
-10月早些时候，我们报道了Meta公司，即当时的Facebook，正计划雇用[1万名工程师来建立扎克伯格版本](https://interestingengineering.com/facebook-to-hire-10000-people-to-build-zuckerbergs-metaverse)的元宇宙。在过去的一点时间里，脸书公司重塑了自己的品牌，甚至向用户开放了地平线世界。但据彭博社的报道，不为人知的是，在此期间，Meta 公司从苹果公司挖走了约100名工程师。
+前白宫新闻秘书和媒体撰稿人阿里·弗莱舍，在接受采访中说，美国政府从被管理者的同意中获得正当的权利，即人民管理政府，而中共恰恰相反。因此，他对于中共正在寻求开发更多工具和方式来操纵人口并为中共国服务，并不感到惊讶，而这符合中共的一贯做法，无论这些技术是什么。
 
-Apple 公司现在希望通过向其顶尖人才提供重要的股票期权，将他们锁定在公司多年，来结束这种情况。彭博社报道说，这些正在有选择地提供给硅设计、硬件、软件、甚至运营组的工程师的期权是不典型的（atypical），也是不合时宜的（untimely）。
+弗莱舍指出，控制人民的一切是中共的长期模式，而人民的意志也必须被迫为中共国服务，包括军队。然而，人们变成炮灰，中共却通过操纵人民得到了它想要的任何；虽然，有些界限是不能逾越的，但如果有需要的话，中共就一定会越界。
 
-根据彭博社此前的报道，在未来几年里，Apple和Meta有可能在混合现实头盔、智能手表，以及家用设备等一系列产品中对垒。虽然Apple公司一直是智能手表类别的市场领导者，但Meta公司正寻求进入可穿戴设备领域。目前，虚拟和增强现实头盔和家用设备仍处于起步阶段，随着我们进入互联网连接设备的时代，这两家公司都是可以开发的潜在市场。
+文字版原文：[美情报部门称中共使用基因编辑和脑控武器](https://gnews.org/zh-hans/1796929/)
 
-由于Meta公司正在寻求进入设备领域，它希望复制Apple公司的成功。这家位于库比蒂诺（Cupertino-based）的Apple公司也在寻找其标志性设备之外的新途径，比如已经出现延误的自动驾驶汽车，而且它不想轻易放走其顶尖人才。彭博社报道说，除了Meta公司的高薪之外，Apple公司自己坚持要求其工程师每周有四天甚至五天在办公室工作，也可能是一些人离开的原因（Meta公司的工作政策更加宽松）。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-彭博社报道说，股票期权已经给了高达20%的工程师，随着Apple公司的市值达到3万亿美元，股票期权的价值可能进一步增加。报道称，Apple公司现在已经取消了返回办公室的最后期限，同时还提供1000美元的奖金，使他们的员工能够采购家用（办公）设备。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新闻来源：**[interestingengineering.com] [Apple Pays Its Engineers $180,000 Bonuses to Stop Them From Joining Meta](https://interestingengineering.com/apple-pays-its-engineers-180000-bonuses-to-stop-them-from-joining-meta) | 发布时间：2021年12月29日
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-* * *
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*发稿：信心的选择*
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,30 +2,45 @@
 ---
 
 
-## 台湾芯片业成为美中对决的战场 – 上半部
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806397/)
+## Omicron感染者或增强对Delta变种病毒免疫力
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806402/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-9.jpg)
-在美中军备竞赛中至关重要的最先进的芯片是那些被描述为10纳米或以下的芯片–由台湾主导的领域。这些微小的设备在小到几平方毫米的区域内装有数十亿的电子元件。
+作者：Reuters
+翻译：HimaCoby
 
-美中两国的经济极其依赖台湾生产的先进军用、民用的技术芯片。一些人将台湾的芯片行业称为 “硅盾”，以阻止中国的攻击并确保美国的支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-378.jpg)
 
-在主导最先进的半导体制造方面，巨大的台湾半导体制造有限公司（台积电）已经掌握了一项对今天和明天的尖端数字设备和武器至关重要的技术。据业界估计，台积电占这些芯片全球产量的90%以上。
+南非科学家的最新研究表明，Omicron感染者增强了对Delta变种病毒的中和免疫力。这项尚未经过同行评审的研究发现，感染了Omicron变种病毒的人，尤其是那些接种过疫苗的人，对Delta变种病毒产生了增强的免疫力。但世界卫生组织专家说这个结论为时尚早。
 
-这些代工厂对全球经济的价值如此之高，以至于在一次采访中，台湾经济部长王美华在9月告诉路透社，“这不仅仅是关于台湾的经济安全，该行业似乎也与国家安全有关。”
+据报道，南非科学家招募了33名在南非感染Omicron变种病毒患者，包括已经接种疫苗和未接种疫苗的人。
 
-美国中央情报局前高级情报官员和分析员Martijn Rasser说，”华盛顿的最大担忧是北京有可能获得对台湾半导体产能的控制。”
+科学家发现Omicron变种病毒的中和作用在感染后的14天内增加了14倍，但科学家同时也发现Delta变种病毒的中和作用也增加了4.4倍。
 
-台湾的危险在于，台积电的晶圆厂，也就是众所周知的芯片制造厂，正好处在火线上。
+科学家们说：感染Omicron的患者再次感染Delta的机会下降了。
 
-这些代工厂位于台湾西海岸的狭长平原上，面向中国，最近的地方距离中国约130公里。大多数靠近所谓的红海滩，被军事战略家认为是中国入侵的可能登陆点。台积电的总部和位于台湾西北部新竹的周边工厂群距离海岸仅12公里。
+南非非洲健康研究所教授Alex Sigal周一在推特上表示，从南非的经验来看Omicron的致病性较低，这将有助于将Delta抑制住。
 
-[新闻来源链接](https://www.reuters.com/investigates/special-report/taiwan-china-chips/)
+根据南非较早的一项研究结果显示，与Delta变种病毒相比，感染Omicron变种病毒的人住院和患严重疾病的风险降低，但是作者也说其中部分原因可能是由于南非人群免疫力高。
 
-审核校对：sherryok (水云间)
+Omicron变种病毒于11月在南部非洲和香港首次被发现，此后已在全球蔓延，并威胁到医院不堪重负，并在今年的假期周让很多人旅行计划中断。
 
-上传排版：漂流瓶
+来源：https://globalnews.ca/news/8476320/covid-omicron-delta-immunity-study/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

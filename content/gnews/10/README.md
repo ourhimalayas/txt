@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|美情报部门称中共使用基因编辑和脑控武器
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1806520/)
+## 七哥谈盘古（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806526/)
 
-配音：香草山教育部 – 百香果
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-29直播11:02:05摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-盖特12月27日消息，美国情报部门情报显示，中共正在使用先进的基因编辑和脑控武器，来推进其军事发展和消除异议。
+盘古要变成火龙了，都检查完了，这个什么都检查完了，这个什么管道都没问题了，它哪天boom变成火龙的时候，那个时候我该说话了。他一定会说这是郭文贵干的，在美国控制了把龙变成了火龙。那个绝对会成为全世界最大的，到底世界上存不存在的第三方力量，到底有没有外星人，小王子最关心的外星人，还有我们的小飞侠最关心的有没有外星人。这都会给你一个答案。
 
-前白宫新闻秘书和媒体撰稿人阿里·弗莱舍，在接受采访中说，美国政府从被管理者的同意中获得正当的权利，即人民管理政府，而中共恰恰相反。因此，他对于中共正在寻求开发更多工具和方式来操纵人口并为中共国服务，并不感到惊讶，而这符合中共的一贯做法，无论这些技术是什么。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-弗莱舍指出，控制人民的一切是中共的长期模式，而人民的意志也必须被迫为中共国服务，包括军队。然而，人们变成炮灰，中共却通过操纵人民得到了它想要的任何；虽然，有些界限是不能逾越的，但如果有需要的话，中共就一定会越界。
+**关注我们**
 
-文字版原文：[美情报部门称中共使用基因编辑和脑控武器](https://gnews.org/zh-hans/1796929/)
+Discord 账号
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
