@@ -2,23 +2,42 @@
 ---
 
 
-## 比利时应对疫情的限制措施遇阻
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807189/)
+## 有声|中国移动CMLink业务退出加拿大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807242/)
 
-采编/编译撰稿：薇文              校对编辑，发稿：硫酸羟氯喹64
+配音：香草山健身部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/b.jpg)图片来源：CP24
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+
+CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+
+本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
+
+原文链接：[中国移动CMLink业务退出加拿大](https://gnews.org/zh-hans/1805678/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-据加拿大媒体[CP24]12月28日报道，由于近期“奥密克戎”病毒感染人数剧增，比利时政府不顾相关组织、企业和国家科学委员会的反对意见，于12月26日发布限制令，要求关闭该国所有电影院、音乐厅和艺术中心等公共娱乐场所。
-
-报道称，以上规定一出，即刻引发大量艺人、影院经营者及活动组织者等的强烈抗议。随后，在一家制作公司为确保其年终演出顺利进行，而对政府的限制令发起上诉后，比利时【国务委员会】立即启动了应急程序，对这一争议进行仲裁，并最终决定暂停执行当局的该限制令。
-
-据悉，比利时法语区文化部长对以上裁决表示肯定，但卫生部长对【国务委员会】的该决定则表示：任何仲裁结果都不可能立即改变政府行政命令的执行。
-
-* * *
-
-參考链接：[https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378](https://www.cp24.com/world/setback-for-belgian-govt-as-coronavirus-measures-overturned-1.5721378)
 
  
 

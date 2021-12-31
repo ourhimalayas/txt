@@ -2,41 +2,22 @@
 ---
 
 
-## 有声|中共疫情下的人生百态——J先生回国探父之路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807301/)
+## 中共因人气艺人和高层官员而逮捕网民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807378/)
 
-配音：香草山巡管部 – 格格
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-10月初，旅居美国多年的J先生收到远在国内家乡家人的通知，父亲查出癌症晚期，现已住进医院。收到父亲的噩耗，J先生心急如焚，为了不留下遗憾，马上安排回国探父计划。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1919.png)[图片来源](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
+12月31日早间新闻消息：中共当局拘留了三男一女，说是因为他（她）们在互联网上散布虚假谣言，讲一位人气女演员和国家媒体的负责人有染。
 
-中共病毒蔓延全球，美国被蹂躏成疫情的重灾区。中共国规定，从海外进入国境的旅客，必须接种疫苗并将检测报告提交中共领事馆，以获得绿码，才能得到回国许可。一直坚持拒绝打中共疫苗的J先生，为了能够达成回国看望父亲的心愿，百般无奈，只能以身试毒，接种了中共病毒疫苗。
+香港媒体上周报道，38岁的中共国当红女演员佟丽娅和54岁的中共中央电视台台长、中共中央宣传部副部长慎海雄已经再婚。佟丽娅在今年5月宣布离婚，但互联网上称两人有婚外情的帖子接连不断。之后，北京公安机关宣布，两名30多岁男子和一名40多岁妇女因散布相关通奸和再婚的虚假谣言被拘留。
 
-获得回国许可后，J先生购买了回国的机票。旅行社现在只销售单程票，但也要4200美金，回程票还要另外购买。一切准备就绪后，J踏上了前途未知的回国之路。
+另外，佟丽娅的经纪公司在29日的声明中否认她有外遇或再婚。说佟丽娅现在是单身，从未有任何不道德行为。并表示已经向有关部门举报了这些恶意帖子。
 
-原文链接：[中共疫情下的人生百态——J先生回国探父之路](https://gnews.org/zh-hans/1805491/)
+信息来源：[「中国人気女優と国営メディア副部長が不倫」などとデマか　男女3人拘束（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,23 @@
 ---
 
 
-## 纽约州民主党再提限制言论议案
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807256/)
+## 中共正将生物病毒技术军事化
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807282/)
 
-采编：UCool 优酷         编译撰稿：文明(添草灭共)
+采编/翻译编撰：自由法兰西    校对编辑，发稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-3-edited.jpg)图片来源：TGW
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-4.jpg)图片来源：DWNS
 
 
-据美国自媒体【网关专家】12月28日报道，纽约州民主党正试图通过立法，以惩罚和压制那些反对当局疫情政策、疫苗接种及病毒感染治疗方案的人士。
+据加拿大自媒体《反叛新闻》12月27日报道，中共当局正在将“基因改造、人体功能增强，精神控制及病毒武器”等新兴生物技术用于其军事战争及对外侵略。由于此举对国家安全构成了严重威胁，美国政府于12月对中共37家参与此类研究的生物技术公司实施了制裁。
 
-报道称，该州民主党参议员霍伊曼此前提出一项新法案，旨在让社交媒体平台对“故意宣传虚假信息、暴力仇恨言论和其他可能伤害他人”的内容负责，并阻止可能危害公众安全健康及欺诈性医学理论的宣传。
+报道称，中共早就开始使用包括面部及生物识别等技术，追踪监控所有持不同政见者、记者以及镇压少数民族和宗教团体等。并不惜一切代价取得各项技术突破，甚至为此使用各种残酷手段迫害自己的人民。
 
-为此，作为反对实施该议案的保守党人士则认为，它无疑是一项保护科技巨头免遭诉讼而控制和扼杀自由言论的非法议案。
-
-本台编辑评论：任何法案都是“双刃剑”，因此相关司法认定必须避免“双重标准”。但如果以上法案最终能将那些虚假宣传疫苗安全有效、掩盖中共病毒真相和疫苗危害的科技巨头，以及无良媒体绳之以法，那该法案必将获得所有正义力量的全力支持。
+为此，美国商务部近日声称，美方将进一步采取有力行动，以遏制中共开发和利用军事生物技术给世界带来的威胁，并继续为打击该政权企图在全球的扩张而努力。
 
 * * *
 
-校对编辑,，发稿：硫酸羟氯喹64
-
-原文链接：[https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/](https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/)
+原文链接:  [https://www.rebelnews.com/us\_officials\_warn\_china\_is\_militarizing\_brain\_machine\_interfaces\_gene\_editing\_mind\_control\_weapons](https://www.rebelnews.com/us_officials_warn_china_is_militarizing_brain_machine_interfaces_gene_editing_mind_control_weapons)
 
  
 

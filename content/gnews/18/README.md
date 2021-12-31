@@ -2,24 +2,38 @@
 ---
 
 
-## 辉瑞与中共支付宝合作打造“疫苗”监管平台
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807247/)
+## 有声|物资短缺 大量西安民众深夜求救
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807275/)
 
-采编/编译撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-5.jpg)
-据美国《国家脉动》12月29日报道，制药巨头[辉瑞公司]近期表示，非常自豪和荣幸地能和中共领导人站在一起，并与其在线支付平台[支付宝]合作，共同打造“疫苗通行证”监管平台。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月27日，据盖特知情人士爆料称，大量西安民众当晚涌入中共媒体的微博账号下发出求救——他们纷纷留言表示，目前家中物资已极度短缺，但当地政府的供应却远不到位。
 
-报道指出，[支付宝]是[阿里巴巴公司]旗下分支，美国国务院已明确认定，[阿里巴巴]深度参与了中共党卫军武器设备的研究、生产及维修工程，并与中共[国家安全局]有着密切的合作，协助其实现“技术促进的监视和社会控制”。
+据当地民众反映，自西安因疫情封城之后，该市不但菜价极速飞升，而且相关的配送物流也变得毫无保障。还有知情者提及，即使一些外地省市已经对西安进行了支援，但这些物资却根本没有到达民众的手中。就西安市民而言，仅仅是全家人的一日三餐就已经成为难题。
 
-值得关注的是，[支付宝]和[辉瑞公司]之间的合作关系发生在“新冠病毒”疫情全球爆发的前一年，随着疫情在该国的蔓延，中共当局立即依靠该平台实施了其全民疫苗护照计划。
+原文链接：[物资短缺 大量西安民众深夜求救](https://gnews.org/zh-hans/1801670/)
 
-此外，由于中共党内的激烈政治斗争，[阿里巴巴]最近被当局全面整顿，并要求该公司应将所谓“政权的利益”置于“向外界报告网络安全漏洞的责任之上”。
+音频处理：喜山必胜Maverick
 
-校对编辑：硫酸羟氯喹64
+发稿：Daxia
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[原文链接](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

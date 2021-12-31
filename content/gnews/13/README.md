@@ -2,41 +2,32 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807271/)
+## 被推特永久封禁，马龙博士继续在盖特揭示真相
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807313/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+#### 撰稿：彩虹       
+
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1918.png)图片来源：推特
+近日《大纪元》英文网报道，罗伯特·马龙（Robert Malone）博士因为反对为年轻、健康的人们及儿童接种中共病毒疫苗，推特（Twitter）日前已经永久停止了他的推特账号。
+
+罗伯特·马龙博士是mRNA技术的关键设计师，他赞同并鼓励年长和有风险的美国人接种中共病毒疫苗。但是现在，他却成为了中共病毒疫情规定和条例的强烈批评者他建议年轻、健康的人应该质疑疫苗的使用。
+
+面对推特的永久封号，马龙博士参加了主持人格雷格·斯廷奇菲尔德（格雷格*Stinchfield*）的节目，他在节目中提到，他正在积极接受路透社的事实核查，他说路透社通过“内部关系”与疫苗生产商辉瑞公司有联系。同时，他会继续“告诉世人真相”。
+
+主持人格雷格·斯廷奇菲尔德问这位疫苗的发明者：“他们对你称这些mRNA疫苗产生的刺突带白……有毒并会导致出生缺陷的说法感到非常震惊。他们说，‘这是错误的信息，完全是假新闻’。你怎么回应他们？”
+
+马龙博士回答到：“很抱歉，数据就是数据，事实就是事实。”
+
+笔者注意到，[Diamond and Silk](https://gettr.com/user/rwmalonemd)是美国直播视频播客作者，政治活动家，也是《新闻极限》和FrankSpeech.com的主持人，12月30日，她们在盖特（Gettr）文章中提到了罗伯特·马龙博士。公开资料显示，马龙博士于10月初已经入住了盖特，并于10月9日发布了第一篇盖文，其盖特账号为[@rwmalonemd](https://gettr.com/user/rwmalonemd)。
+
+**新闻来源**
+
+[Blocked by Twitter, Vaccine Pioneer Malone Says He’ll Keep ‘Telling the Truth’](https://www.newsmax.com/newsmax-tv/newsmaxtv-robertmalone-covid-19/2021/12/30/id/1050536/)
+
+[Welcome to Gettr Dr. Robert Malone](https://gettr.com/post/pl2j6z1973)
 
 
-杰西: 我也可以继续展开讨论我们未来的计划，我们在未来会推出一个应用程序，Himalaya Pay App，而这个应用程序将会允许用户在我们的生态系统中互相收取和发送加密货币资产。用户可以透过这个APP，在我们生态系统里面的商店、餐厅和服务中进行最高效以及安全的交易。
-
-Himalaya Pay是一款支付App， 专門为用户提供移动钱包，让他们能在现实世界中以加密货币进行交易。
-
-在Himalaya Exchange Web应用程序发布后，我们将会发布IOS和Andriod的手机版本。根据我们的发展蓝图，今年我们就会发布。
-
-最后，在未来，我现在想谈的是真正的喜马拉雅生态系统。我们正在积极寻求与商家一起扩大这个生态系统。这将使我们的用户能够在这个生态系统中选择任何地方消费喜马拉雅币。
-
-关于这个生态系统，我还想说的一点是，我们确实在销售点系统（POS）以及我们在世界各地的数据中心方面投入了大量资金。因此，我们的基础设施是坚实的，是为这些跨境全球支付设计的。
-
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
-
-编辑/校对/发稿：Hetangyuese
-
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

@@ -2,26 +2,35 @@
 ---
 
 
-## 西安的中共病毒疫苗灾难刚刚开始
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807348/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807395/)
 
-采编/编译撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-10.jpg)
-据本台记者12月30日报道，人口超过1300万的中共国西安市，现已进入被封锁后的第八天，当地居民如无政府的允许，任何人都不得离家外出，违者即遭当局逮捕和关押。目前，该市已出现大量人数不详的死亡病例和人道灾难，并即将成为水尽粮绝的死城。
-
-对此，郭文贵先生日前在GTV直播节目中指出，目前陕西特别是西安地区的疫情并非新型病毒所致，而是因为接种了中共病毒疫苗后的严重副作用所造成。由于该地区之前所推广的疫苗含有超高的病毒抗体，因此其产生的身体伤害比中共国其他地区使用的普通疫苗要强十数倍。最明显的症状就是被接种者出现的各种器官性大出血，直至死亡。此外， 该疫苗还会引发中共病毒的再次变异。
-
-文贵先生因此警告道，类似西安这种疫苗灾难，可能不久将从河北的石家庄，廊坊以及将举办冬奥会的张家口开始突然爆发，并一路南下蔓延到江浙地区，然后经武汉到达广州等南部城市。可以预计，即将发生的全国性疫苗次生灾害将再次吞噬无数毫不知情的无辜百姓。
-
-校对编辑：硫酸羟氯喹64
-
-发稿： 苦尽甜来 (文來）
-
-[原文链接1](https://www.cp24.com/world/just-want-to-go-home-china-s-xi-an-in-covid-lockdown-for-7th-day-1.5721965)
-
-[原文链接2](https://gnews.org/zh-hans/1805268/)
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
 
+杰西: 就像我之前所提到的，首次发行是一个巨大的事件，喜马拉雅币一开始就有着巨大的需求，所有的HCN都已分配完毕，但我们仍收到许多来自潜在投资者的查询，表示有意购买HCN。
+
+关于未来的发行，为了应付潜在的需求增长，我们可能会在未来推出后续的HCN发行，但每年会有一个上限，为HCN的市场需求和价值增长提供支持。
+
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+
+编辑/校对/发稿：Hetangyuese
+
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 
