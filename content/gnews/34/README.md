@@ -2,20 +2,14 @@
 ---
 
 
-## 西媒头条 — 第142期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1806317/)
+## 2021年12月29日文贵大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1806369/)
 
-制作: 喜妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.29.png)
+【参考链接】[https://gettr.com/streaming/pkznva4740](https://gettr.com/streaming/pkznva4740)
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.29.pptx_3.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
-
-
+文案提供：回响 / Ermat / 卡拉马佐夫姐姐
+制作：艾伦
 
  
 

@@ -2,16 +2,16 @@
 ---
 
 
-## 全球抵制北京冬奥会的最新情况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805748/)
+## 班农成为当今美国最可信的消息来源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1805789/)
 
-作者：纽约香草山 – ILOVE战神（文凡）
+作者：纽约香草山翻译部 – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在12月29日的文贵大直播中，新中国联邦战友总结了全球抵制北京冬奥会的最新情况。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-6.jpg)
-截至12月28日，全球有10个国家对北京冬奥会坚决抵制，它们是：美国、英国、澳大利亚、加拿大、苏格兰、科索沃、比利时、爱沙尼亚、拉脱维亚、立陶宛。有三个国家表达了模糊抵制的态度，它们是新西兰、奥地利和日本。表示不抵制的有四个国家：法国、德国、韩国、意大利，另有俄罗斯、柬埔寨、阿根廷、玻利维亚、蒙古、波黑、以色列和15个非洲国家对北京冬奥会表示支持。
+据外媒28日报道，美国媒体监督组织“媒体事务”周二宣布获得“年度信息误导者”奖项的正是史蒂夫·班农先生。该则新闻在当天盖特传播中转发量第二。盖特网友纷纷将“媒体事务组织”的负面评价作为褒奖班农先生的殊荣。消息媒体评论班农再创新高度，是当之无愧的真相传播大师，当今对抗马克思主义攻势的美国第一人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture18-7.jpg)
+Gateway Pundit称，“媒体事务组织”将所有资源用于攻击和误导美国受众。如果“媒体事务”企图打击班农，只能说明班农战斗室正在有效分享，主流媒体不想让大众了解的真相。
 
-参考链接：[全球抵制北京冬奥会的最新情况](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+参考链接：[班农成为当今美国最可信的消息来源](https://www.thegatewaypundit.com/2021/12/congratulations-steve-bannon-wins-far-left-media-matters-misinformer-year-e-trusted-voice-media/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
