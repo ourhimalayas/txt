@@ -2,22 +2,38 @@
 ---
 
 
-## 【中日财经爆】神话，恒大第一款量产车型下线？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806569/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 下一步是什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806673/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-115.jpg)[图片来源](https://www.qichezhuanye.com/news/177671.html)
-据财联社12月30日电，其记者独家获悉，恒大汽车第一款量产车型恒驰5首车已于12月30日成功下线，比原定时间提前了12天。知情人士透露，天津工厂当日举行了低调的下线活动。据悉，恒大汽车将在1月上旬举行首车下线仪式。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+椰子: 下一步是什么？
 
-恒大汽车造假成性，展会靠模型，骗钱靠PPT，下线时间一推再推，突然间爆出提前下线。这个无图片，无发布，无真相的三无产品，恐怕只是为了稳定市场预期和收割韭菜以实现冬奥会前不能破产的政治企图。
+杰西: 这将是向大家推出喜马拉雅交易平台。我们对此非常期待。用户将可以通过网络平台上來为账户充值，购买信用积分和执行交易功能。
 
-信息来源：
+展望未来，我們的平台会新增其他获得批准的加密货币对。所以我们期待着这一点。而且，用户不仅可以使用美元，还可以使用其他法定货币来为他们的账户充值。
 
-[恒大汽车第一款量产车型恒驰5首车于12月30日提前下线](https://finance.sina.com.cn/stock/hkstock/ggscyd/2021-12-30/doc-ikyamrmz2165808.shtml)
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑/校对/发稿：Hetangyuese
+
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

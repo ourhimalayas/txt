@@ -2,34 +2,42 @@
 ---
 
 
-## 【中日财经爆】中共国货币宽松无效，明年将大幅扩大国债规模？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806568/)
+## 大量外省救护车驰援西安显示疫情失控
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1806653/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-361.png)[图片来源](https://twgreatdaily.com/zh-my/MCUVkXMBnkjnB-0zmkeo.html)
-近日，中泰证券首席经济学家李迅雷撰文《2022年要推出“超预期”举措，才能扭转预期转弱》，该文被各大门户网站转载。
+撰稿人：纽约香草山 医疗部 – 云豹
 
-文中结论十分简单粗暴，靠基建加大投资力度，靠国债落实大放水：
 
-1、2022年拉动基建投资增速是必须的，但估计仍然弥补不了房地产投资增速下降带来的固定资产投资增速的回落。而且，房地产投资增速回落，又会对其上下游产业链造成负面影响，进而拖累制造业投资。因此，2022年还是得在“稳房价、稳地价、稳预期”方面加大力度。
 
-2、仅仅靠宽松政策还不足以扭转预期。中共国的国债余额占GDP的比重只有20%左右，相比日本的260%、美国的110%左右，显得非常低。由于国债是中央政府的信用，扩大国债发行规模，比扩大地方政府专项债的发行规模，对社会和市场预期的改变将非常显著。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-以上结论符合末世逻辑。同样是李迅雷，于一个月前撰文《不要期望明年货币政策或财政政策会大幅放松》。文中畅谈，对中共国而言，2022年面临的最大压力来自房地产走弱，因为房地产是中共国经济过去那么多年来高度依赖的行业，在房地产税试点的触发下，在坚持房住不炒的政策的持续作用下，明年的房地产销售额和开发投资增速预计都将掉头向下。因此，不要期望明年的货币政策或财政政策会大幅放松，因为放水只能救一时，不能救永远。
 
-并进一步说明，如果说中共国在货币化程度比较低的时期可以大规模扩张货币而并不会出现高通胀和大规模的资产泡沫（如2005年之前），如今则已经出现了货币过剩现象。因此，未来只要放水，无论是水往高处流（导致资产泡沫）还是水往低处流（导致通胀），都会带来系统性风险。
 
-同一个人，时隔一月撰写两文，现象的认识未变，但提出的解决办法相互矛盾，我们无法猜测个中缘由。但近期债务危机频发，失业情况严重，群众大规模内卷，合格借款人严重不足，大量资金仍在银行体内循环。有银行开始为贷款者绕过个人征信提供贷款，这实为次级贷款，即便如此，也不能完成放贷要求。苟延残喘的唯一办法，只是也仅是大规模发行国债以大幅增加政府支出，正所谓只能救一时，不能救永远。
+当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-31-西安.jpg)图片来源：Gettr
 
-信息来源：
 
-[李迅雷：2022年要推出“超预期”举措，才能扭转预期转弱](https://m.yicai.com/news/101266080.html)
+西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
 
-[李迅雷：不要期望明年的货币政策或财政政策会大幅放松](https://m.jiemian.com/article/6860009.html)
+参考新闻链接：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[西安新冠病毒疫情失控](https://gettr.com/post/pkn39b70db)
+
+![This image has an empty alt attribute; its file name is Dec-9.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-9.png)
+
+总编: Irene木木
+
+校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

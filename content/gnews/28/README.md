@@ -2,49 +2,62 @@
 ---
 
 
-## 国会议员提议：所有17岁以上人士可获基本收入
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806316/)
+## 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806368/)
 
-作者：John Ibbitson
-翻译：S君
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-377-e1640899982884.jpg)
-日前有媒体发布了评论文章称，建议杜鲁多政府考虑用保证全民基本收入（UBI）的法来代替硬性的福利法案。
+[https://gtv.org/video/id=61cd1ef3fb16a93456bf3637](https://gtv.org/video/id=61cd1ef3fb16a93456bf3637)
 
-去年9月时，加拿大自由党核心小组就表示，首要考虑的政策就是保障全民基本收入。
+**郭文贵**
+**Miles Guo**
 
-上周，新民主党国会议员Leah Gazan提出了Bill C-223法案，希望联邦财政部长能够“制定一个全国性的框架，以向全国所有17岁以上人士实施可保障生活的基本收入”。在法案通过后的一年内，财政部长将需要向国会提交一个基本收入框架，并定期报告实施该框架的进展。
+我是全世界最早告诉大家的这一年来，今年年底共产党会重新放毒
+I’m the first in the world to tell you this year that the Communist Party will release the virus again at the end of this year
 
-“事实是，在我们国家人们陷入贫困是因为这是一种政治选择，” Gazan表示。“让我们停止对企业投资，让我们投资于人。”
+而且会非常的危险，从美国西边到东边，从非洲过来
+And it’s very dangerous from the U.S. west coast to the east coast , coming from Africa
 
-该评论文章认为，这项基本收入法案的一个有趣之处在于，它在某些方面对保守派和进步派都有吸引力。因为它可以结束福利国家的庞大官僚机构和复杂性。有保障的基本收入不仅可以减少贫困，还可以增加独立性和责任感。
+你说我咋就蒙那么准呢，那是情报不是蒙的
+Why am I so accurate? that is the intelligence, and it’s not guessed
 
-不过环球邮报这篇评论文章也认为，就像大部分私人法案一样无法获得通过一样，这项Bill C-223法案也将如此，但这种在加拿大实施基本收入法的可行性仍然值得研究和探讨。
+我再告诉你共产党还会放毒，在Omicron之后，我以为他不放毒了
+Let me tell you that the Communist Party will still release the virus, after Omi-cron, I thought they would not release new virus anymore
 
-今年早些时候，国会的预算官PBO就做了一份报告显示，若实施了全民基本收入方案，按照安省的试点项目，在保障单身个人每年有1万7000元、夫妇获得2万4000元的情况下，可以在2022年把贫困率降低近一半，不过这个比例会因为各个省份和地区而有所不同。若这个计划得以实施，到2026年时，政府每年的这笔开支将是930亿元。
+最后获得了情报，还会放毒，为什么，知道吗？
+In the end, I got the intel, and they will release the virus again, why, do you know?
 
-这项Bill C-223法案已经在2021年12月16日通过一读，并正在二读阶段。
+最近几天国内的人、党内的人给习近平，习太阳正在加大马力地劝说习近平
+In the past few days, senior people in the Communist Party gave Xi Jinping, the Xi “Sun”, they are turning up the heat to persuade Xi Jinping
 
-今年四月时，加拿大联邦自由党召开党大会，以491：85大比数票数通过全民基本收入、全民药物计划和长期护理等10多个方案。在这次大会上，自由党成员以77%的投票结果，呼吁永久实施类似每人每月$2000的加拿大紧急应对福利金(CERB)。
+要逮住这个时机，干掉美国，中美必有一战，早战比晚战好
+that you need to catch this opportunity and kill the United States, there must be a fight between China and the United States, and it is better to fight early than later
 
-对于全民基本收入保障制度，你怎么看？
+既然要战就战赢它，既然要打就打疼它，绝不能给美国这个机会
+If you want to fight, you must win it, if you want to fight, you must hurt it, we must never give this opportunity to the United States
 
-来源：https://www.theglobeandmail.com/politics/article-its-time-for-ottawa-to-seriously-study-how-a-guaranteed-basic-income/
+美国亡我中共(之心)不死, 那不如咱把它亡喽
+The United States is determined to end the Chinese Communist Party, so why don’t we kill them?
 
-（文章仅代表作者个人观点）
+杨洁篪、王毅，军方要领，王岐山，还有那些所谓的像中国的所谓的极左派
+Yang Jiechi, Wang Yi, military essentials, Wang Qishan, and the so-called extreme-leftists in the CCP
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+Date: 12/25/2021
+原视频标题: 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+In order to kill the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus
+原视频日期：2021/12/24
+**原视频链接: ** [https://gettr.com/post/pkm7255b72](https://gettr.com/post/pkm7255b72)
+任务编号：KC374（3334）
+视频时间段 : 0:00-1:20
 
-**关注我们**
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 ：洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 文新
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
