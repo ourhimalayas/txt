@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/31/2021 10:03 PM (UTC)`
+
+#HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (6) : <br/>☘️ Miles never takes one dollar from the Whistleblower Movement and the New Federal State of China. <br/>☘️ Miles is prepared from day one to take down the CCP. As long as it can take down the CCP, Miles can eat shit or be killed for a thousand times.<br/>☘️Taking down the CCP requires true faith, not money.<br/><br/> #HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段六：<br/>💦 郭文贵从未从爆料革命和新中国联邦那里拿走一分钱。 <br/>💦 郭文贵从第一天起就准备打倒中共，只要能灭共，郭文贵可以吃屎或被杀一千次。<br/>💦 灭共需要的是真正的信仰，而不是钱。
+![img](https://media.gettr.com/group23/origin/2021/12/31/22/739ad523-84cc-5846-a36e-ceaee314a2b8/out.jpg)
+
+---
+
 `@miles 12/31/2021 4:55 PM (UTC)`
 
 12月31号：尊敬的战友们好又蒸馍馍……卷子啦，吃饭饭啦……
@@ -155,15 +162,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/>娜娜醬（新西兰伊甸农场） 大家熟悉的GTV美女主播之一，她的节目深受战友喜爱。最初参加《我是音雄》简单的出自于希望挑战自己，经历一场场的练习和紧张比赛，上周她终于可以大声的唱出，挑战成功！她的歌声像深远的海洋，让人流连忘返。很开心看到她自由的演唱，非常期待在终极决赛中的给我们带来不一样的惊喜！
 ![img](https://media.gettr.com/group2/origin/2021/12/27/16/54f4f710-14e4-a374-3a0d-741cc2bf63fb/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:13 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/> <br/>Rica（纽约香草山农场） 她是大家熟悉的青春美丽爆二代，是GTV新闻访谈播报员，也是联盟工作汇报的主持人之一。选手拥有清亮纯洁、甜美并能带给人希望的嗓音，在《我是音雄》的舞台上她的歌声，和对爆料革命的感知灼见，都留给大家深刻的印象。期待她在总决赛中更加让人惊艳的绽放！
-![img](https://media.gettr.com/group18/origin/2021/12/27/16/9ea47769-7004-8a8c-4e3f-4f6e013b4fbe/out.jpg)
 
 ---
 
