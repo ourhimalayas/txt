@@ -2,39 +2,34 @@
 ---
 
 
-## 有声|西安出血热-疫苗后遗症
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807193/)
+## 不满中共和世卫疏忽疫情 数百名墨西哥人提出集体诉讼
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1807206/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-12月29日，郭文贵先生在最新一期大直播节目中爆料，近期西安爆发的出血热疫情实为当地市民接种某国产高剂量定制疫苗的后遗症。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-据郭先生爆料，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白含量是常规疫苗的5～8倍之多。此疫苗副作用极大，接种后具体表现即为“七窍流血”样的不良症状。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/756DDA31-ECD2-49EB-AD23-B87E55E5EA89.jpeg)（图片来自网络）
 
-后经盖特网友爆料，此品牌疫苗极有可能为中共国产的智飞龙马三针剂重组疫苗。该品牌疫苗在审批中仅有紧急使用权限。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克。而普通的国产科兴疫苗每针剂的抗原含量仅为3微克。
+12月30日，因不满中共和世界卫生组织（WHO）对疫情的控制不力，数百名墨西哥人指控中共和世卫组织触犯《世界人权宣言》，提出集体诉讼并要求赔偿。
 
-原文链接：[西安出血热-疫苗后遗症](https://gnews.org/zh-hans/1804687/)
-音频处理：喜山必胜Maverick
+据《中央社》报道，向中共国和世卫组织索赔的国际诉讼是由阿根廷首都布宜诺斯艾利斯（Buenos Aires）的波普拉夫斯基国际法律事务所（Poplavsky International Law Offices）所发起的。
 
-发稿：Daxia
+该事务所在墨西哥的代表龚萨雷兹（Denisse Gonzalez）表示，集体指控中共和世卫组织触犯《世界人权宣言》（Universal Declaration of Human Rights），是因为它们在疫情方面犯下疏失，导致大量人口死亡和感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+龚萨雷兹说，求偿金额从确诊20万美元到病故80万美元不等。
 
-**更多资讯，更多关注**
+据悉，这场金额达数百万美元的集体诉讼将提交联合国日内瓦办事处。目前已有数百名墨西哥人加入该诉讼。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+COVID-19（中共病毒）最早于2019年在中共国湖北省武汉市现踪，迄今造成全球540多万人丧生。墨西哥至今累计近30万人病故，高居全球第5，超过395万人确诊。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*参考链接： [不滿中國世衛疏忽疫情 數百墨西哥人提集體訴訟](https://www.cna.com.tw/news/aopl/202112300218.aspx)*
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*素材采编：幽蘭自得*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*编辑：文顺*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 

@@ -2,34 +2,26 @@
 ---
 
 
-## 英国一座5G手机信号发射塔再次失火
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1806785/)
+## 习近平为奥运疯狂撒币，恐换来寂寞愁留守空房
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1806839/)
 
-By：喜国公民
-视频来自网络
-英国德比市一座5G手机信号发射塔发生火灾后，警方呼吁提供信息。有视频显示，燃烧发生在天线的顶部，从很远的地方都可以看到火势。
+新西兰伊甸农场Gnews组 财经G乐部 亚伦
 
-警方怀疑有人对发射塔做了手脚，但表示火灾的原因尚不清楚。
+12月29日，郭文贵先生于GTV、Gettr大直播中深入解读之前提到过的世界新“四国演义”，并表示，政客的血液里没有正义，只有活着下去的利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3065736234c2389f1a5b744b10da11fd-2.jpg)图片来源Gettr
 
-这是这座发射塔在投入使用后第二次失火。在去年5月，就在它被架起的几天后，被人纵火。
 
-这并不是唯一的一座5G信号发射塔发生失火的案例。[据报道](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)，在英国有多达77座5G发射塔发生过类似的火灾。
+在“战羊外交家”驻美大使秦刚发表把中美关系比作与狼共舞、并会奉陪到底（以卵击石）的言论之后，收取北京1000多亿美元纳贡的普京，曾私下答应习不但本人出席冬奥会，还会率领四位重要人士一起参加。然而，根据最新的消息，这四位当中的三位已经明确正式拒绝出席北京冬奥会。而普京也以恰逢其时的腰后椎疼痛为由，需要到索契治疗度假，导致普京本人到场也成未可知。习被接连打脸已习以为常，私自挥霍老百姓1000多亿美元的税收恐又买个寂寞。其实对于俄罗斯来说，欧洲才关系到俄罗斯的核心利益。俄罗斯为欧洲提供天然气和石油赚取外汇，欧洲也提供俄罗斯85%的高档饮食和生活消费品。
 
-同样，[在澳洲，也发生过类似的](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)[5G发射塔失火案件。警方发现，其中一些大火是由人为纵火照成的。](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
+源于欧洲和美国的共同文化和政治利益，导致运用政治手段也是如出一辙。德国新上任的总理朔尔茨，也是玩三面派的政治高手。在面对摄像机展示对中共的强硬之后，马上让自己的办公室秘书给中共方打电话解释，说这是表演给国内人民和外国领导人听的，请中共不要恶意反击。能把师从于美国的两面三刀的政治手段玩的炉火纯青，总理朔尔茨的政治智慧（坚决做到人前一套，私下另一套）可见一斑。包括法国总统马克龙之所以不明确外交抵制，也是被中共拿捏住了痛处。
 
-[有媒体报道](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)，这些纵火的组织或个人认为5G信号会传播新冠病毒。[也有报道认为](https://gnews.org/zh-hans/1804700/)，注射在人体中的新冠疫苗当中的石墨烯会接收手机天线的信号，使接种者产生急性辐射综合症。
+欧盟联合生产体空客公司的70%是属于德国和法国，两国在其中有巨大的核心利益。众所周知，美国的波音公司和欧洲的空客公司是一直以来中共玩弄、平衡欧洲和美国关系的筹码。为了这次艰难的北京冬奥会，中共祭出飞机订单的杀手锏，如果德法敢用外交抵制，会把之前签署的400架空客飞机订单都砍掉。
 
-有人对5G信号发射塔进行纵火，体现了人们对当今的科学，权威，以及政客的不信任。尽管网络运营商承诺5G信号对人体的辐射低于规范要求，可人们还是尽量避免长时间把手机直接靠近耳部来接听电话，以避免头痛或产生脑瘤。
+经过桌下的一番讨价还价，中共答应在保留之前的400架空客飞机订单的基础之上，再增加126架空客飞机的新订单（每架7000万美元-1亿美元）。除此之外，德国生产55%的汽车，法国生产40%的红酒都是要供应给中国市场。总之，敢抵抗，就砍单。
 
-特别是在政府大规模强制实行新冠疫苗接种政策后，同时故意打压羟氯喹和伊维菌素等有效治疗药物，人们开始对科学和政客产生更多的质疑和不信任。
+所谓美、欧、俄、中的相互利用、相互牵制的新“四国演义”，中共唯一能倚靠的就是国内老百姓的血汗消费市场。
 
-信息来源：[5G coronavirus conspiracy theory leads to 77 mobile towers burned in UK, report says](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)
-
-[5G fires: Australian mobile companies work with police to prevent arson attacks](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
-
-[Burning Cell Towers, Out of Baseless Fear They Spread the Virus](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)
-
-[生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](https://gnews.org/zh-hans/1804700/)
+为了营造北京冬奥会万国来朝的门面，树立党内权威，习撒币已经到达丧心病狂的地步。习可以为一个仅派出20几个运动员参加北京冬奥会的非洲小国免除18亿美元债务，外加2亿美元的现金支持。据中共官方的数字，仅在习当政期间对外援助捐款已达6万亿人民币，实际数字高达12万亿人民币（约1.5万亿美元），相当于广东省一年的GDP。
 
  
 

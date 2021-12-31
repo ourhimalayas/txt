@@ -2,55 +2,38 @@
 ---
 
 
-## 健身部内聊写作，健身又健脑——农场健身部的冬日小景
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807112/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅的产品和服务的推广计划是什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807139/)
 
-作者：纽约香草山农场健身部–Jack Li文阳
-联合撰稿人：格格、童谣、文鹰、Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-周四，明天将是今年的最后一天，2021即将过去，纽约香草山农场洋溢着辞旧迎新的气氛，战友们的情绪都活跃起来了。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+椰子: 到目前为止，已经推出了哪些喜马拉雅交易所的产品和服务？
 
-健身部Discord的Gnews写作组房间里，战友们把部里战友近期编写的Gnews文章贴了出来。这是健身部组长童谣的习惯，借此鼓励战友士气，也让大家可以互相借鉴学习，开拓眼界，发挥想象。
+杰西: 四月时我们开启了第一阶段。向私募配售参与者开放了注册程序和KYC（了解你的客户）的验证流程。这是一次巨大的成功，超过10,000名客户加入了Himalaya Exchange平台。我们为此感到非常兴奋。到目前为止，私募配售参与者对我们的产品有强烈的需求。这让我们很清楚的看到人们很想要我们的产品。
+在这个过程中，我们采用了健全的KYC审查程序能够将不良行为者排除在平台之外。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/雪.png)
+这些通过审查的客户随后可以用美元充值他们账户，藉此购买Himalaya Dollar信用积分。值得一提的是，即使在疫情期间，我们的合规部门和银行顾问仍然在工作上表现出色。人们无法来办公室工作是很大的挣扎，但我们很好的应对了这些挑战。
 
-“健身部第一推手”格格姐随即报告，已经把战友们的Gnews文章都一一转发+点赞了，并表示已经录完部里文阳战友的原创叙事新闻了。她调皮的和战友开玩笑说：“不要和我重复啊。”
+七月份我们开始了第二阶段 — 快速购买功能，允许客户用HDO购买他们的配额。交易所在未来几周后开放时就会开启货币对的交易。
 
-Ivy001“大将”接着说：“格格姐，您的有声读物发表了吗？记得转给我们看喔，我们要一起点赞转发。”
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-童谣战友鼓励大家：“多写文章、做视频、发盖特、赚躺平币。各种形式包含文字、图片、视频、音频 ，GNEWS都能发表，我们在多平台一起传播。”
+编辑/校对/发稿：Hetangyuese
 
-墙内战友W郁闷的说：“刚刚想写文章，偏偏停电了，这是720大水灾来第二次无症状停电了。明天去省学校接孩子回家，回来又要耽误时间写作了。”
-W战友接着说：“虽然没有写东西，传播真相每一天不会停止的。今天给公司的部门经理讲了西安的事情，让她打消了接种第三剂的念头，小小的成功吧！”（编者按：这哪里是小小成功，已经是相当成功了。）
-
-文阳战友：“这就是很好的题材，建议您写一篇文章。”
-
-格格姐隔空伸出大拇指，鼓励说：“太棒了。” Ivy001“大将”接着说：“救人一命胜造七级浮屠，对呀，这个故事可以发原创新闻啦。”
-对于W战友提出如何写的问题，Ivy001“大将”提点道：“把您刚刚说的，加上日期，加点细节补充，就是一篇好新闻啦。字数不用太多150左右都可以哒。”
-
-W战友说：“本来昨天是屠哟哟的91岁生日，又到了两本和她有关系的书。里边有PLA参与的活动，想总结出来一点东西。哎，只有在蜡烛下用手机给战友们挠挠字了，满开心的。”
-
-文阳战友灵光一闪：“第二篇的灵感又有了，蜡烛下的您，就记录您现在的小事，一篇感人文就出来了。”
-
-W战友说：“哈哈，感谢战友们的鼓励，有您们在，幸福满满的。”
-
-童谣组长终于“总结”了：“战友们说的好“故事”是特别能看进去的一种，用聊天的方式，讲一件事情，想到哪说到哪，不用语法和措辞，就是一篇好文章。”
-
-窗外、门外，CCP和黑暗势力在疯狂乱舞，全世界都受到病毒和假疫苗的威胁和残害。新中国联邦战友在烛光下，在冬日里，喝着热茶，敲着键盘，按着手机。我们畅谈理想，飞舞思绪，切磋文采，畅叙战友情谊，憧憬灭共后相聚的情节。这就是我们每天的生活，这就是新中国联邦人的幸福。
-
-编辑/校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.jpg)
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

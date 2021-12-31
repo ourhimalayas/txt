@@ -2,41 +2,77 @@
 ---
 
 
-## 秦刚警告美方若容忍新中国联邦与美国极右中美必有一战
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807021/)
+## 币圈新闻动态：喜币（HCN）价格目前在32.898 HDO
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1807045/)
 
-**郭文贵先生：**秦刚更夸张的给美国提出了警告，如果美国允许美国极右组织，例如班农和我们中国人出来的一小撮犯罪分子，那就是咱新中国联邦，我估计就咱爆料革命呗！还有谁呀！现在已经形成的这种完全不可忽视的、危险的、影响中美关系的这一小撮人，这种国际政治气候，中美两国必有一战。
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-就是班农啊！刚才我给班农发信息，班农说这是怎么回事，就是班农和郭文贵新中国联邦就是你们，小王子、文耀、安平、雅阁就你们这些人，一小撮儿就跟美国极右分子，将引发中美大战，哇塞！咱也太重要了吧！我们都是一帮流氓、骗子、三秒、性无能，我们哪有这本事是不是，啥都没有，秦刚也太看重我们啦！
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
+## 每日一问
 
-技术支持：文肺猫
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+没有DAO，能有健康的元宇宙吗？
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+## 喜马拉雅交易所要闻
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
+
+
+
+- 喜交所网站行情显示，喜币（HCN）价格目前在32.898 HDO，24H最高价格为33.500 HDO，24H最低价格为30.120 HDO，24H成交量约为328292.340 HCN。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 12月31日消息，Coinbase首席产品官Surojit Chatterjee发表对2022年Web3和加密经济的10大预测，其中主要包括：1.以太坊的可扩展性将会提高，但新的Layer1链将出现大幅增长；2.L1-L2跨链桥的可用性将有显著改进；3.零知识证明技术将获得更多关注；4.受监管的DeFi和链上KYC证明将会出现；5.机构将在DeFi参与中发挥更大的作用；6.DeFi保险将出现；7.基于NFT的社区将给Web2.0社交网络带来实质性的竞争；8.品牌将开始积极参与Metaverse和NFT；9.Web2公司将觉醒并尝试进入Web3；10.DAO 2.0时代即将来临。
+2. 12月31日消息，Terra创始人Do Kwon发布了对2022年行业发展的预测，他表示，2021年对于Terra和加密行业来说是伟大的一年，加密行业从DeFi热潮延续到NFT热潮，Layer1也得到了迅猛发展，产生数十亿美元收益。Do Kwon认为，Web3肯定不会只是融入Token的Minecraft（我的世界），DeFi也会发生转变，如今热门DeFi应用仍是一些Web2世界里的应用，比如交易平台、保险等，但现在，向Web3的认知转变已经开始。
+3. 根据比特币教育门户网站99Bitcoins的比特币讣告数据，比特币在2021年被宣布“死亡”的次数多达45次，是2020年的至少三倍。尽管2021年批评比特币的人数不断增加，但今年的“被死亡”次数仍远低于2017年的记录。BTC在2017年首次接近20,000美元，BTC在那一年“死亡”了124次。
+4. 彭博社报道，Art Tactic的研究报告指出，过去21个月内，女性艺术家的NFT销售额仅占NFT总销售额的5%（另有16%的NFT创作者性别不明）。该报告称，NFT市场75%的收入都分配给了男性艺术家。另有研究发现，目前在主流博物馆展出的NFT艺术家中，87%是男性，85%是白人。
+5. TheBlock报道，跨链DeFi协议Umee通过在Coin List发行原生Token UMEE完成3200万美元融资。此次Token发行于12月2日开始启动，共有超92万个钱包地址在Coin List平台进行注册，最终购买UMEE Token的地址数达6.4万个。Umee是一个跨链DeFi平台，可在区块链之间互连。作为基础层DeFi协议，开发者可以在Umee之上构建应用程序生态系统。该团队计划在2022年2月中旬推出主网，测试网将在未来几天内推出。今年6月，Umee完成630万美元种子轮融资，Polychain、Coinbase等参投。
+6. 12月31日消息，Binance宣布收购Swipe的剩余流通股权，Swipe首席执行官Joselito Lizarondo将卸任并离开Binance。此前在2020年7月，Binance已收购Swipe的多数股权。据悉，Swipe是一个加密货币Visa卡发行平台，使用户能够在全球超过7000万个地点即时使用加密货币。Binance和Swipe与监管和许可实体合作发行Visa卡，Swipe充当Binance卡项目经理和技术平台。
+7. Twitch联合创始人Justin Kan基于Solana的游戏NFT平台Fractal于周四正式推出，推出了一系列play-to-earn游戏。Fractal的第一批游戏合作伙伴包括十多个Web3游戏，例如The Sandbox以及play-to-earn游戏Genopets和SynCity。该平台既是用户直接从公司购买NFT以在游戏中使用的市场，也是点对点交易的二级市场。
+8. CoinDesk报道，NFT项目More Than Gamers（MTG）将与运动服装品牌Champion达成合作，Champion计划在MTG平台上提供对虚拟商品和可穿戴设备的独家访问权限。此外，MTG完成种子轮融资，元宇宙投资集团Q Globe等参投。据悉，Q Globe首席执行官Apollo Green和前Kava首席营销官Sarah Austin领导。
+9. 官方消息，SHIB宣布将分阶段推出DOGGY DAO，并公布第一阶段DAO1（Beta）内容。DAO1专注于为社区提供直接的权力，以决定Shiba Swap WOOF池上的加密项目和交易对，以及BONE奖励将如何在它们之间分配。
+10. FXEmpire报道，俄罗斯最大的银行Sberbank周四宣布，Sber Asset Management将推出名为“Sberbank Blockchain Economy ETF”的基金，并将在俄罗斯股市上市，股票代码为“SBBE”。SBBE将跟踪由Sber CIB开发的Sber区块链经济指数，它跟踪与区块链技术相关的主要公司的股票。该基金将追踪大型加密公司，例如Coinbase、加密货币服务公司Galaxy Digital、区块链软件开发商Digindex等。
+11. 官方公告，Binance用户现在可以使用信用卡或借记卡以主要法定货币购买CTXC、JASMY、MITH、PEOPLE和SPELL。其中，可用于CTXC、JASMY和MITH购买的新法定货币包含澳元、欧元、英镑、美元；可用于PEOPLE和SPELL购买的新法定货币包含澳元、巴西雷亚尔、欧元、英镑、卢布、土耳其里拉、阿联酋、美元。
+12. CryptoNewsFlash报道，币安在法国斥资1.13亿美元用于支持该国加密货币和区块链的普及应用。据悉，币安还将于加密硬件钱包开发商Ledger和在线教育平台Open Classroom合作，支持初创孵化器和培训计划。法国央行对此回应，如果币安希望在法国成立相关部门，需接受强有力的反洗钱调查。
+13. 官方消息，目前Pocket Network的节点超过1,5000个，而今年8月份仅有5000个，增长了3倍。这大大降低了公链及行业DApps的服务停机风险，使其接近于零，因为它将所有工作均匀分布在数千个完整节点上，这也保护了最终用户的隐私。Pocket Network奖励节点运营者和网络参与者，以确保客户100%的正常运行时间，最近与石木资本（Rock Tree Capital）合作进行亚洲市场的扩张。
+14. Metro报道，据CoinATMRadar报告显示，自2021年1月1日起至12月28日，共计有33850台比特币ATM在运行。总数超越过去七年投入运营的所有加密ATM。
+15. CryptoPotato报道，以色列央行(BoI)已向当地银行分发了一份通知草案，并补充了适当的银行程序411，该文件侧重于洗钱和其他金融犯罪。该指令旨在升级对加密货币实体实施的规则，从而管理银行在接收和转移数字资产时的风险。具体而言，此举代表着以色列银行向所有当地金融机构发出的直接指示，即它们可能不再拒绝接受加密货币业务产生的利润。然而，该通知列出了银行在处理数字资产交易时应考虑的细节清单。其中包括初始资金的性质、结算规模和风险分类。
+16. CoinDesk报道，加拿大安大略省证券委员会(OSC)周四在一份激烈的声明中表示，币安仍未根据安大略省的证券法进行注册。OSC表示，币安“无权在加拿大安大略省向个人或公司提供衍生品或证券交易”。
+17. 12月31日消息，马来西亚当局通过突袭查获了1720台价值350万令吉（836,920美元）的比特币矿机。该非法矿场窃取了价值约200万令吉（478,240美元）的电力。一名负责监管矿场的28岁男子已被警方逮捕，他已被还押四天以协助调查。
+18. CoinDesk报道，使用萨尔瓦多政府研发的加密钱包Chivo的近百位用户表示其资金被盗。一些用户表示，其在使用Chivo进行转账时，金额长时间未到账，但是其区块记录显示资金已被转出。这些用户丢失的资金从几十美元到上千美元不等。
+19. Forkast报道，美国数字商会（CDC）创始人兼主席Perianne Boring近日在接受采访时表示，发行现货比特币ETF的公司可能会通过一些创造性的方式向美国人提供相关产品，也就是说，2022年现货比特币ETF可能不会在受美国监管的交易平台发行，而会选择在其他国家推出，但这个投资工具最终会进入美国市场供投资者使用。
+20. 12月31日消息，美国证券交易委员会(SEC)专员Hester Peirce周四表示，组建一个单一的监管机构来监督加密货币并不是解决该行业监管困境的灵丹妙药。Peirce称：“我当然理解需要一个监管机构的冲动，但我认为有几个问题。通常在华盛顿，当你建立另一个监管机构时，你得到的只是在所有现有监管机构之外再加上一个。”Peirce指出，现任SEC主席Gensler的加密监管方法比前任主席Clayton更加激进。Peirce称：“我只是希望我们下定决心致力于建立在监管清晰度方面有意义的东西，而不是总是只依靠执法。”
+21. Coingape报道，美国证券交易委员会(SEC)主席加里•詹斯勒(Gary Gensler)现在在其执行团队中增加了一名新顾问Corey Frayer，负责加密相关事务和政策制定。美国证券交易委员会周四宣布了Corey Frayer的任命，并声称他将担任该机构加密监管的高级顾问。但弗雷尔对这种任命并不陌生。他曾与众议员马克辛沃特斯和布拉德米勒一起担任众议院金融服务委员会的高级政策顾问，还担任过参议院银行委员会的成员。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

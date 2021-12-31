@@ -2,25 +2,35 @@
 ---
 
 
-## 加拿大安省乳制品价格或将大幅上涨
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807205/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807207/)
 
-采编/编译撰稿：薇文       校对编辑，发稿：硫酸羟氯喹64
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+杰西: 在多变的监管环境下，我们希望走在合规制度的最前线。这就是为什么我们有白名单制度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-2-edited.jpg)图片来源：TNH
+因此，说实行白名单的目的就是，是为了使注册地址收到的任何喜马拉雅币或喜马拉雅元不会受到限制期的影响。
 
+现在，你可能会说，什么是锁定期呢？好的，不用被这个术语吓到。制定锁定期和白名单服务的目的是避免用户在无意间触犯法律。在出现欺诈交易时，用户将会有足够的时间来采取行动。而且，这确实是为了确保我们在所有多个司法管辖区的数字资产合规。
 
-据加拿大【CBC 新闻】12月28日报道，由于奶牛场饲料、燃料、清洁用品等的供应价格在疫情期间持续上涨，而导致安省3500多个家庭经营农场的原奶成本不断上升。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-报道称，饲料成本，特别是玉米和大豆的涨幅都在20%以上。加上疫情影响，该行业目前已出现大量供应链及采购问题。因此，[加拿大乳业委员会]将从明年2月开始将原奶价格提高8.4%。
+编辑/校对/发稿：Hetangyuese
 
-此外，原奶价格上涨也使乳制品加工企业的各项成本都大幅增加。据专家预测，明年鲜奶的零售价格将至少上涨10%，而黄油、奶酪和酸奶等乳制品的价格可能会飙升15%。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-据新中国联邦对世界经济发展格局的预测，中共病毒及其疫苗灾难摧毁全球供应链的经济大崩溃将在2022年5月前后全面爆发。尽管各国政府或许能在今年苟且应对通货膨胀的打击，但明年即将来临的经济和金融风暴或将成为每一个人无可逃避的梦魇，而唯有新中国联邦将会是我们最值得依靠的诺亚方舟。
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文链接: [https://www.cbc.ca/news/canada/kitchener-waterloo/dairy-price-rise-2022-1.6297627](https://www.cbc.ca/news/canada/kitchener-waterloo/dairy-price-rise-2022-1.6297627)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 
