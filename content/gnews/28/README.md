@@ -2,27 +2,42 @@
 ---
 
 
-## 纽约州民主党再提限制言论议案
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807256/)
+## 中共警告不要在台湾问题上越过“红线”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807260/)
 
-采编：UCool 优酷         编译撰稿：文明(添草灭共)
+**翻译：文 扬**
+**编辑：李易通**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-3-edited.jpg)图片来源：TGW
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image01111111111.jpg)图片来源：**Foreign Affairs**
 
+北京誓言若台独势力“挑衅”，将采取“严厉措施”。
 
-据美国自媒体【网关专家】12月28日报道，纽约州民主党正试图通过立法，以惩罚和压制那些反对当局疫情政策、疫苗接种及病毒感染治疗方案的人士。
+中国国台办警告该自治岛不要推动独立，并承诺如果分裂势力越过“红线”阻止统一，将不退缩。
 
-报道称，该州民主党参议员霍伊曼此前提出一项新法案，旨在让社交媒体平台对“故意宣传虚假信息、暴力仇恨言论和其他可能伤害他人”的内容负责，并阻止可能危害公众安全健康及欺诈性医学理论的宣传。
+负责执行北京与该岛有关政策的机构发言人马晓光星期三说，如果”台湾寻求独立的分裂势力挑衅、施压，甚至突破任何红线”，中国将“不得不采取严厉措施”。
 
-为此，作为反对实施该议案的保守党人士则认为，它无疑是一项保护科技巨头免遭诉讼而控制和扼杀自由言论的非法议案。
+虽然这位发言人没有明确说明台北不应越过哪些“红线”，但他谴责了对中国事务的“外部干预”，包括对中国与该岛统一的尝试。发言人说，这种外国干涉，以及台湾自己的支持独立的力量的“挑衅”，在未来几个月内必将变得“更加尖锐和激烈”，他预测该地区已经紧张的局势将变得“更加复杂和严重”。
 
-本台编辑评论：任何法案都是“双刃剑”，因此相关司法认定必须避免“双重标准”。但如果以上法案最终能将那些虚假宣传疫苗安全有效、掩盖中共病毒真相和疫苗危害的科技巨头，以及无良媒体绳之以法，那该法案必将获得所有正义力量的全力支持。
+马英九警告外国干涉时，似乎指的是美国及其盟国。 美国对台湾保持“战略模糊”，拒绝说明在台北与北京爆发全面军事冲突的情况下是否会部署军队，但华盛顿及其盟国已加强在该地区的军事演习。
 
-* * *
+10月，在白宫对其声明进行反驳之前，美国总统拜登甚至说，美国“致力于”保护台湾免受任何假设的中国攻击。五角大楼本月声称，中国“可能正在准备”对该岛的入侵。
 
-校对编辑,，发稿：硫酸羟氯喹64
+与此同时，台北驳斥了北京的指责，坚称它一直奉行“不挑衅”北京的政策。在周三自己的声明中，它呼吁中国“认真反思其对台工作，并对形势做出正确判断”。
 
-原文链接：[https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/](https://www.thegatewaypundit.com/2021/12/new-york-democrats-propose-law-punish-silence-critics-regarding-covid-measures-treatments/)
+虽然北京认为台湾是中国领土不可分割的一部分，但台北坚持认为台湾自1949年以来一直是一个独立的国家，当时中国内战的失败一方逃往该岛。
+
+本月早些时候，中国外交部长王毅称台湾是“最终会回家”并与大陆统一的“流浪者”，同时指责华盛顿试图破坏台湾海峡的现状。
+
+原文链接： [China warns against crossing ‘red lines’ in Taiwan — RT World News](https://www.rt.com/news/544753-china-warns-taiwan-lines/)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

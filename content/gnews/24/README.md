@@ -2,41 +2,52 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807271/)
+## 各主要国家中共病毒新增确诊数创新高
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807289/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-25.jpg)
+
+作者：纽约香草山 医疗部 云豹
 
 
-杰西: 我也可以继续展开讨论我们未来的计划，我们在未来会推出一个应用程序，Himalaya Pay App，而这个应用程序将会允许用户在我们的生态系统中互相收取和发送加密货币资产。用户可以透过这个APP，在我们生态系统里面的商店、餐厅和服务中进行最高效以及安全的交易。
 
-Himalaya Pay是一款支付App， 专門为用户提供移动钱包，让他们能在现实世界中以加密货币进行交易。
+至当地时间12月30日止，各主要国家单日新增确诊人数，美国489,025人，英国221,250人， 法国206,243人， 意大利126,888人，皆创下中共病毒疫情以来的新高纪录。
 
-在Himalaya Exchange Web应用程序发布后，我们将会发布IOS和Andriod的手机版本。根据我们的发展蓝图，今年我们就会发布。
 
-最后，在未来，我现在想谈的是真正的喜马拉雅生态系统。我们正在积极寻求与商家一起扩大这个生态系统。这将使我们的用户能够在这个生态系统中选择任何地方消费喜马拉雅币。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron.jpg)
+完整疫苗接种率及第三剂追加疫苗接种率，美国 61.9%，20.6%；英国 70.4%，49.2%；法国 73.2%，31.6%；意大利 75%，30.7%。除了美国以外，皆已达到70%以上的覆盖率。
 
-关于这个生态系统，我还想说的一点是，我们确实在销售点系统（POS）以及我们在世界各地的数据中心方面投入了大量资金。因此，我们的基础设施是坚实的，是为这些跨境全球支付设计的。
+此次中共病毒疫情在各主要国家再次爆发突破新高，除了需注意Omicron变异株的传染性可能比之前的变异株更强大外，也更显示出疫苗的注射无法达到各国政府及药厂所宣传的预防效果。疫苗谎言再次被揭穿。
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+(本文为作者观点，不代表G NEWS立场)
 
-编辑/校对/发稿：Hetangyuese
+参考连接：
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+&lt;[https://www.cna.com.tw/news/aopl/202112310023.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112310023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
 
-**更多资讯，更多关注**
+&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&hl=zh\_hant\_hk&dcr=0&ei=\_XTOYfOkPLnfmAXm-62gAQ&ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=_XTOYfOkPLnfmAXm-62gAQ&amp;ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&amp;sclient=gws-wiz-serp)&gt;
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&hl=zh\_hant\_hk&dcr=0&ei=NnjOYe\_4IbOGr7wP0fKk6Ao&ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=NnjOYe_4IbOGr7wP0fKk6Ao&amp;ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&amp;sclient=gws-wiz-serp)&gt;
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

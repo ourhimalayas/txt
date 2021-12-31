@@ -2,66 +2,72 @@
 ---
 
 
-## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
+## 美国向中共国展示“不沉没”台湾的战略价值
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1807092/)
 
-众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
+![台湾驻美国机构可能“换名”？美中“切香肠”战略再受关注- BBC News 中文](https://ichef.bbci.co.uk/news/640/cpsprodpb/1744D/production/_120090359_whatsubject.jpg)资料图
+**摘要翻译：**内容来源于印度最大的门户网站《News07trends》12月29日报道：
 
+1950年6月，美军亚太地区司令官道格拉斯·麦克阿瑟(Normal Douglas MacArthur)在一份绝密的备忘录中敦促哈里·杜鲁门(Harry Truman)总统不允许中共国对台湾实施管理。
 
+麦克阿瑟写道：“台湾位于中国海岸附近岛链的中心，在战斗中可能具有战略价值，这意味着该岛（当时台湾被称为福尔摩沙），可以与“不沉的航空母舰”相提并论”。他警告说，“如果允许台湾被一个[敌对]势力所控制，美国的战略追求可能会处于严重危险之中”。
 
-> China is the greatest threat this country faces today – period. 
-> 
-> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
-> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
+大约七年后，这种语言的回声正在美中关系中回荡。
 
+负责印太安全事务的助理国防部长伊利·拉特纳(Ely Ratner)在三周前的参议院听证会上表示，台湾“对该地区的安全至关重要，对捍卫美国的重要利益也很重要”。他用与麦克阿瑟非常相似的措辞强调了该岛的位置“位于第一岛链的一个重要节点，是美国盟友和伙伴社区的支柱”。
 
+之所以记住这一点，因为华府第二次明确了它对台湾的意图。对中共当局，这一断言正在被理解为摒弃美国可能默许台湾与中共国统一的所有借口。
 
-比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
+中国复旦大学“美国研究之中心”主任吴心伯(（Wu Xinbo））认为，美国在台湾问题上的战略考量虑一直采用麦克阿瑟制定的路线。
 
+吴心伯说，即使在与中共国建交之后，美国仍“努力确保整个台湾海峡的分离状态继续存在”。“在我们问美国他们是否希望看到中国统一之后，他们否认了这一点。然而从美方的具体行动来看，很明显，他们并不希望看到中国的统一。伊利·拉特纳现在已经大声说出了这一点。”
 
+在华府，也有一些观察人士认为，除了美国在任何情况下都不应该允许台湾变成中共国的一部分之外，证词几乎没有得出任何结论。
 
-> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
-> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
+这是否会背离美国的“一个中国”政策还很难说。这个策略从一开始就很模糊：1979年，在将外交承认从台北转为中共当局时，华府“承认”了中共当局的地位，即台湾是中国的一部分，但并未予以承认可。与此同时，日本在二战战败后放弃台湾后，美国当局继续认为台湾的地位尚未确定。
 
+在随后的30年里，在华府的想法中，参与中共国比将台湾置于中共当局的轨道之外更有优先权。美国希望中共国的金融开放能让它越来越接受西方民主国家创建造的政治价值观和创建全球的规范。
 
+然而，随着美国对这种情况的信心崩溃，其台湾问题的目标也再次发生了变化。中共国快速的海军建设和对其邻国–其中一些是美国的盟友—越来越强硬的态度观点起到了关键作用。
 
-参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
+华盛顿智库“战略与国际全球研究中心”中国实力项目能源挑战中心主任邦妮·林碧莹(（Bonny Lin）)说：“在19世纪90年代中期的最后一次台海灾难中，中共国的空中力量几乎没有飞越台海中线的潜力，但在过去的20年里，解放军中获得了巨大的能力”。“如果中共国现在拥有台湾，它可以给中共国带来进一步的军事势力投射能力，甚至可能对美国盟友的安全产生巨大影响，包括日本和菲律宾。”
 
+对于大多数人长期拒绝与中共国统一的台湾来说，华府言论的转变显示出该国近来从西方民主国家获得了更多的帮助。
 
+“拉特纳的断言与之前的说法背道而驰吗？当然，它来自我们过去5年或10年的经历。但与我们最近看到的情况不同。，”台湾驻华盛顿顾问处政治部前主任赵怡翔(（Vincent Chao)）说，。“台湾面临的风险可能会有更大的认识，此外，地区对台湾和中共国的态度也会发生转变。”
 
-> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
+支持美国对台湾安全作出更明确承诺的人认为，全新的语言表明了这些调整，并试图更成功地威慑中共当局。
 
+这是否能奏效是一个公开的问题：每个国家都加强了在台湾周围的海军演习，因为他们正在为一场战斗进行训练，并试图警告对方。像吴心伯这样的中共国观察家认为拉特纳正在双边关系中挑起新的麻烦。
 
+由于这一事实，华府和中共当局现在在推动前进的道路上承担着巨大的责任。
 
-众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+简评：美国从乒乓外交开始就从来没有放弃过台湾，不论从地域第一岛链角度还是从政治角度。虽然主张并强调一个中国原则，可从近50年的现实行为分析，也能清晰的看到美国真正执行的是维持现状政策。任何政客的言行都是根据形势式和利益的变化而变化，但可以这样认为，无论中共如何发展勾兑，如何蓝金黄美国，甚至对美国卑躬屈膝，都无法改变美国永远会用台湾钳制中共的事实。
 
+另外，以美国为首的代表国际秩序的社会体系让中共国加入WTO，一直在给中共机会，希望用各种方法让中共能和平过渡到正常的社会体系之中，可是中共却一直以忽悠的方式对待国际社会的橄榄枝。中共用自己行为给自己造成了“天下围共”的局面。
 
-
-> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
-> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
-
-
-
-> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
-> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
+新闻链接：
 
 
 
-参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
+> [US Shows China Its Hand On Strategic Value Of ‘unsinkable’ Taiwan](https://uk.universalpersonality.com/economy/us-shows-china-its-hand-on-strategic-value-of-unsinkable-taiwan/)
 
 
 
-> Biden must hold Communist China accountable for the origins of COVID-19.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
+翻译/简评：Brianchow
+
+PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

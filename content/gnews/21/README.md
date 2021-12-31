@@ -2,52 +2,32 @@
 ---
 
 
-## 各主要国家中共病毒新增确诊数创新高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1807289/)
+## 被推特永久封禁，马龙博士继续在盖特揭示真相
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1807313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-25.jpg)
+#### 撰稿：彩虹       
 
-作者：纽约香草山 医疗部 云豹
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1918.png)图片来源：推特
+近日《大纪元》英文网报道，罗伯特·马龙（Robert Malone）博士因为反对为年轻、健康的人们及儿童接种中共病毒疫苗，推特（Twitter）日前已经永久停止了他的推特账号。
 
+罗伯特·马龙博士是mRNA技术的关键设计师，他赞同并鼓励年长和有风险的美国人接种中共病毒疫苗。但是现在，他却成为了中共病毒疫情规定和条例的强烈批评者他建议年轻、健康的人应该质疑疫苗的使用。
 
+面对推特的永久封号，马龙博士参加了主持人格雷格·斯廷奇菲尔德（格雷格*Stinchfield*）的节目，他在节目中提到，他正在积极接受路透社的事实核查，他说路透社通过“内部关系”与疫苗生产商辉瑞公司有联系。同时，他会继续“告诉世人真相”。
 
-至当地时间12月30日止，各主要国家单日新增确诊人数，美国489,025人，英国221,250人， 法国206,243人， 意大利126,888人，皆创下中共病毒疫情以来的新高纪录。
+主持人格雷格·斯廷奇菲尔德问这位疫苗的发明者：“他们对你称这些mRNA疫苗产生的刺突带白……有毒并会导致出生缺陷的说法感到非常震惊。他们说，‘这是错误的信息，完全是假新闻’。你怎么回应他们？”
 
+马龙博士回答到：“很抱歉，数据就是数据，事实就是事实。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron.jpg)
-完整疫苗接种率及第三剂追加疫苗接种率，美国 61.9%，20.6%；英国 70.4%，49.2%；法国 73.2%，31.6%；意大利 75%，30.7%。除了美国以外，皆已达到70%以上的覆盖率。
+笔者注意到，[Diamond and Silk](https://gettr.com/user/rwmalonemd)是美国直播视频播客作者，政治活动家，也是《新闻极限》和FrankSpeech.com的主持人，12月30日，她们在盖特（Gettr）文章中提到了罗伯特·马龙博士。公开资料显示，马龙博士于10月初已经入住了盖特，并于10月9日发布了第一篇盖文，其盖特账号为[@rwmalonemd](https://gettr.com/user/rwmalonemd)。
 
-此次中共病毒疫情在各主要国家再次爆发突破新高，除了需注意Omicron变异株的传染性可能比之前的变异株更强大外，也更显示出疫苗的注射无法达到各国政府及药厂所宣传的预防效果。疫苗谎言再次被揭穿。
+**新闻来源**
 
-(本文为作者观点，不代表G NEWS立场)
+[Blocked by Twitter, Vaccine Pioneer Malone Says He’ll Keep ‘Telling the Truth’](https://www.newsmax.com/newsmax-tv/newsmaxtv-robertmalone-covid-19/2021/12/30/id/1050536/)
 
-参考连接：
-
-&lt;[https://www.cna.com.tw/news/aopl/202112310023.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112310023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
-
-&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&hl=zh\_hant\_hk&dcr=0&ei=\_XTOYfOkPLnfmAXm-62gAQ&ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=_XTOYfOkPLnfmAXm-62gAQ&amp;ved=0ahUKEwizl6LFiI31AhW5L6YKHeZ9CxQQ4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzIFCAAQxAIyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIECAAQHjIECAAQHjIECAAQHjILCAAQgAQQsQMQgwE6CAgAEIAEELADOgYIABAHEB46BQgAEM0CSgQIQRgBSgQIRhgAUOwIWM8kYJUpaAFwAHgAgAFEiAG3BJIBAjEwmAEAoAEByAEBwAEB&amp;sclient=gws-wiz-serp)&gt;
-
-&lt;[https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&hl=zh\_hant\_hk&dcr=0&ei=NnjOYe\_4IbOGr7wP0fKk6Ao&ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&uact=5&oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&gs\_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&sclient=gws-wiz-serp](https://www.google.com.tw/search?q=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;hl=zh_hant_hk&amp;dcr=0&amp;ei=NnjOYe_4IbOGr7wP0fKk6Ao&amp;ved=0ahUKEwjv67nOi431AhUzw4sBHVE5Ca0Q4dUDCA8&amp;uact=5&amp;oq=%E7%BE%8E%E5%9C%8B%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E7%8E%87&amp;gs_lcp=Cgxnd3Mtd2l6LXNlcnAQAzoICAAQsAMQxAI6CAgAEIAEELADOgcIABCwAxAeOg4IABCABBCxAxCDARCwAzoECAAQDToFCAAQzQJKBAhBGAFKBAhGGABQ2x9YgZsBYIWeAWgBcAB4AIAB8wKIAdIRkgEIMzAuMS4wLjGYAQCgAQHIAQrAAQE&amp;sclient=gws-wiz-serp)&gt;
+[Welcome to Gettr Dr. Robert Malone](https://gettr.com/post/pl2j6z1973)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

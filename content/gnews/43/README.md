@@ -2,39 +2,34 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所的交易平台将有哪些功能？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806648/)
+## 英国一座5G手机信号发射塔再次失火
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1806785/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-杰西: 首先，会有一个充值的功能, 用户将把现金或加密货币存入他们的喜马拉雅账户，购买信贷。
+By：喜国公民
+视频来自网络
+英国德比市一座5G手机信号发射塔发生火灾后，警方呼吁提供信息。有视频显示，燃烧发生在天线的顶部，从很远的地方都可以看到火势。
 
-并且可以使用您的HDO信用额度，去购买其它的加密货币。包括HCN，以太币和比特币, 以及未来我们会批准的虚拟资产，都会被列入交易所进行交易。
+警方怀疑有人对发射塔做了手脚，但表示火灾的原因尚不清楚。
 
-还有其它的功能，我谈到资产的转换，利用平台上的这些信用，你可以把比特币转换为以太坊，你可以转换几乎所有的货币，在他们上线后，所以我们正在期待。我们期待一个稳固的交易所，未来会包含很多的交易货币。
+这是这座发射塔在投入使用后第二次失火。在去年5月，就在它被架起的几天后，被人纵火。
 
-当然，还有取款功能：用户可以将现金或加密货币提取或转移到他们登记在平台上的白名单地址。
+这并不是唯一的一座5G信号发射塔发生失火的案例。[据报道](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)，在英国有多达77座5G发射塔发生过类似的火灾。
 
-最后我还想提到的就是喜支付的应用程序，使用H-Pay手机应用程序。你也可以将资产转移账至已加入到白名单上的地址。
+同样，[在澳洲，也发生过类似的](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)[5G发射塔失火案件。警方发现，其中一些大火是由人为纵火照成的。](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+[有媒体报道](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)，这些纵火的组织或个人认为5G信号会传播新冠病毒。[也有报道认为](https://gnews.org/zh-hans/1804700/)，注射在人体中的新冠疫苗当中的石墨烯会接收手机天线的信号，使接种者产生急性辐射综合症。
 
-编辑/校对/发稿：Hetangyuese
+有人对5G信号发射塔进行纵火，体现了人们对当今的科学，权威，以及政客的不信任。尽管网络运营商承诺5G信号对人体的辐射低于规范要求，可人们还是尽量避免长时间把手机直接靠近耳部来接听电话，以避免头痛或产生脑瘤。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+特别是在政府大规模强制实行新冠疫苗接种政策后，同时故意打压羟氯喹和伊维菌素等有效治疗药物，人们开始对科学和政客产生更多的质疑和不信任。
 
-**更多资讯，更多关注**
+信息来源：[5G coronavirus conspiracy theory leads to 77 mobile towers burned in UK, report says](https://www.cnet.com/health/5g-coronavirus-conspiracy-theory-sees-77-mobile-towers-burned-report-says/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[5G fires: Australian mobile companies work with police to prevent arson attacks](https://www.theguardian.com/technology/2020/may/27/5g-fires-australian-mobile-companies-work-with-police-to-prevent-arson-attacks)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+[Burning Cell Towers, Out of Baseless Fear They Spread the Virus](https://www.nytimes.com/2020/04/10/technology/coronavirus-5g-uk.html)
+
+[生物统计学家谈新冠疫苗中的氧化石墨烯对人体产生的损害（二）](https://gnews.org/zh-hans/1804700/)
 
  
 

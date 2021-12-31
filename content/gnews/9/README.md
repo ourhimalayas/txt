@@ -2,16 +2,14 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 交易所和Himalaya Pay App将在何时上线启动？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807396/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
 
 翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
 
-杰西: 是的，除非遇到一些无法预见的事情，我们预期在本月底，即10月份推出喜马拉雅交易所。
-
-然后，正如我之前提到的，喜马拉雅支付应用程序将在年底前的第四季度发布。
+杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
 
 参考来源：
 1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
