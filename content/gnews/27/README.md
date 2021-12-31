@@ -2,45 +2,32 @@
 ---
 
 
-## 川普宣称疫苗安全 遭支持者怒呛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1808848/)
+## 日澳研议并修改安保共同宣言应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808892/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月29日，据日本媒体报导，为全面加强抗共合作，日本与澳大利亚政府正在商讨并修改双方于2007年签署的《日澳安全保障共同宣言》，用以共同应对中共企图破坏台海、南海现状的挑衅行为，以及其日益增强的武力威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.09.png)
+资料显示，日澳双方于2007年签署的《日澳安全保障共同宣言》主要是为了应对当时来自朝鲜的威胁，但双方此次拟修改的新宣言将包括强化日本自卫队与澳洲军队的威慑力和应对力，以及提高双方的训练品质并达到能与美国协同作战的目标，从而能更好地应对源于中共的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3B9ABA5B-8E1F-4331-BA1E-25E3F1293229.jpeg)（图片来自达志影像路透社）
+此外，报道提及，新宣言也将纳入有关太空防卫、网落情报共享技术合作、经济安全保障合作等内容。
 
-近日，美国前总统川普宣称COVID-19（中共病毒）疫苗安全，而且是他任内的一大成就，川普此番表态引其众多支持者不满。
+参考链接：[強化抗中合作 日澳檢討修改安保共同宣言](https://www.cna.com.tw/news/firstnews/202112300007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-据中央社报道，川普于19日接受Fox News主持人欧莱利（Bill O’Reilly）访问时表示，其已经接种疫苗加强针，但被观众报以一片嘘声。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-尽管川普仍然表示反对拜登政府的疫苗强制令，但他对疫苗的表态仍然遭到了其大多数支持者的反对和不满。
+总编：文特
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-电台主持人亚历克斯·琼斯（Alex Jones）在他的节目中说，川普要么是“完全无知”，要么是“有史以来最邪恶的人之一”。
-
-他还表态称，是时候“抛开”川普了，并声称把这位前总统的“丑事全抖出来”。
-
-另一位电台主持人、坚定的川普支持者韦恩·埃林·鲁特（Wayne Allyn Root）说，川普在“每件事上都是对的”，除了疫苗以外。
-
-42岁的麦克林（Daniel McLean） 受访时说：「我再也无法支持他。」麦克林本人没有接种疫苗，并表示有数以千计的人因接种疫苗而死。
-
-有评论称，川普此时对疫苗做出错误的表态，可能和其新筹建的社交媒体平台“真实社交”（TRUTH Social）背后的中共特务有关，川普可能已成中共“政治木偶”。
-
-日前，新中国联邦创始人郭文贵在10月24日GTV大直播中爆料称，与川普筹建的新社交媒体平台“真实社交”（TRUTH Social）公司合并的SPAC和DWAC等公司和中国共产党特务吴征均有关系，这场交易是存在共产党深层资本和间谍参与其中的连环操作。
-
-*参考链接：*
-
-1. [*https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters*](https://www.sbs.com.au/chinese/mandarin/zh-hans/donald-trump-touted-covid-19-vaccines-it-didn-t-go-down-well-with-some-supporters)
-2. [*https://gtv.org/video/id=617551cfeadeb11f5e79f5d5*](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
-
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,31 @@
 ---
 
 
-## 中共政治局党校秘密讲话 拜登军事法案是灭共大礼
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1809063/)
+## 七哥说去中心化的币一定会变成零（2021-12-29摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809270/)
 
-中共政治局党校秘密讲话：
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1.明确拜登军事法案意在灭共，中共与美国已为敌对关系。
+来源：郭先生2021-12-29直播11:22:31摘录
 
-2.认为之前释放新冠病毒“效果显著”，中共将继续对美释放生化病毒。
+当你们看这个数字货币，特别你们看喜币也好，什么币也好，再看这个拜登币，他们根本不懂什么叫数字货币。我不是说他们，没有支付的系统数字货币，你们会看到刚才列表当中90%会被消灭。比特币会变成零，一夜之间，一分钟之间，去中心化的币一定会变成零。那么不去中心化的币，像币安赵长鹏这个小兔崽子这个烂仔他一定会被清算，因为他是洗钱的平台，就是有犯罪历史的，有没有依法KYC的，一定会被灭。最近大家看到，喜币的这个价格。
 
-3.认定美国明年大选后将内部分裂，中共将利用一切方法，加剧美国内乱。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-4.王毅、杨洁篪认为此时是拿下台湾的最佳时期。
+**关注我们**
 
-5.认为这是建立共产党领导新的世界多级管理制度的最好机会。
+Discord 账号
 
-中共的狼子野心已经[昭然若揭](https://www.google.com/search?client=safari&amp;rls=en&amp;q=%E6%98%AD%E7%84%B6%E8%8B%A5%E6%8F%AD&amp;ie=UTF-8&amp;oe=UTF-8)。中共不灭，世界将没有未来！拜登军事法案明确恢复中（共)美关系已无可能，这是上天送给我们的灭共大礼！
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-视频来源: 2021年12月29日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
