@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/31/2021 2:00 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group16/getter/2021/12/08/20/951d62d5-04ce-28a8-7dbc-8b829f711f57/5c125a43706f38c524b59b7d0beb76aa.jpg)
+
+---
+
+`@miles 12/31/2021 1:58 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group16/getter/2021/12/31/13/73b9ff19-6d8d-db74-7692-74b637c26fd1/ba8e77daaedf656934500f5b83a7c91a.jpg)
+
+---
+
 `@miles 12/31/2021 1:27 PM (UTC)`
 
 Thanks to the Himalaya Washington DC Chapter, we now have a new English program The Potomac View, dedicated to enlightening the western audiences with truth in an environment where the mainstream media has largely succumbed to the CCP’s influence operation for money. We want to democratize the truth spread by Chinese Whistleblowers who took great risks upon themselves to expose the CCP’s attempts to destroy democracy and freedom in the west. This episode exposes the lies and smear campaign launched by Vice/HBO to attack Mr. Miles Guo and the Chinese freedom-loving Chinese diaspora who want to take down the CCP.
@@ -155,24 +169,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/>齐天二圣（秘密翻译组） 这位爆二代美女英文名叫 Quana，在密翻组团队里，不仅是英文频道GT-News的常驻嘉宾主播，也是字幕制作者之一。喜欢唱歌而且很有天赋，《我是音雄》的舞台上她的作品风格各异，从初赛就给人已非常深刻的印象。她演唱的战友填词的作品，更加令评委和观众为之动容。
 ![img](https://media.gettr.com/group48/origin/2021/12/27/16/d8841a61-de5a-ad37-f7a4-3853c5690777/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:03 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/>甜甜（美国纽约香草山农场） 新中国联邦的一名爆二代，在爆料革命的工作中和《我是音雄》的舞台上，可以感受到，她内心自然流露的那份情感。同时给人以新中国联邦女性的美，那种美像她的歌一样，可以让你沉静下来，将歌曲无限循环的听下去。非常期待决赛她的美丽释放。
-![img](https://media.gettr.com/group31/origin/2021/12/27/16/3215f765-669d-38f6-63e6-af30755017ca/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:02 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！ <br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。 <br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075... <br/><br/>麥可（美国纽约香草山农场） 麦可医生是新中国联邦的医疗博士之一，也曾是歌手，在中共病毒全球肆虐的今天，医疗部每天都在帮助大量的战友，并认真耐心的用他们的专业知识为大家答疑分享。在《我是音雄》的舞台上，歌声承载自己的感情和前行的决心：自信悠然、潇洒大方、 乐观而兼具幽默，真正的是歌如其人。
-![img](https://media.gettr.com/group43/origin/2021/12/27/16/f7f3b558-fe25-e1a8-afab-4264ba85d891/out.jpg)
 
 ---
 
