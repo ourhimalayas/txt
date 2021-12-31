@@ -2,50 +2,45 @@
 ---
 
 
-## 新冠疫苗致死引爆韩全国范围抗议活动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1806349/)
+## Omicron感染者或增强对Delta变种病毒免疫力
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1806402/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-30.png)
-韩国是世界上各种疫苗接种率最高的国家之一，新冠疫苗也不例外。大约83%的韩国人已经接种了新冠疫苗，轻易成为G20国家中接种率最高国。
+作者：Reuters
+翻译：HimaCoby
 
-现在，韩国民众正要求政府对接种疫苗致死案例负责。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-378.jpg)
 
-12月25日，周六，在圣诞节期间，人们在首尔政府大楼举行了抗议集会。
+南非科学家的最新研究表明，Omicron感染者增强了对Delta变种病毒的中和免疫力。这项尚未经过同行评审的研究发现，感染了Omicron变种病毒的人，尤其是那些接种过疫苗的人，对Delta变种病毒产生了增强的免疫力。但世界卫生组织专家说这个结论为时尚早。
 
-示威活动中展示了几十幅葬礼肖像。抗议者呼吁政府查明接种病毒疫苗导致的不良反应的原因，并承认是疫苗造成的。
+据报道，南非科学家招募了33名在南非感染Omicron变种病毒患者，包括已经接种疫苗和未接种疫苗的人。
 
-12月26日，周日，抗议者聚集在釜山，也举行了类似的集会。
+科学家发现Omicron变种病毒的中和作用在感染后的14天内增加了14倍，但科学家同时也发现Delta变种病毒的中和作用也增加了4.4倍。
 
-愤怒的示威者举着已故亲人的大型画像–就像韩国葬礼上通常展示的画像–并说明他们是如何在接种中共病毒疫苗不久后死亡的。
+科学家们说：感染Omicron的患者再次感染Delta的机会下降了。
 
-*评论指出：日本卫生部一直对接种完全不必要的、实验性的新冠疫苗，所带来的严重和致命的副作用的风险非常坦诚，正因为如此，他们也谴责强制接种疫苗。*
+南非非洲健康研究所教授Alex Sigal周一在推特上表示，从南非的经验来看Omicron的致病性较低，这将有助于将Delta抑制住。
 
-目前，有1000多名韩国人在接种疫苗不久后死亡，但政府只确认了其中少数案例与接种疫苗有关。
+根据南非较早的一项研究结果显示，与Delta变种病毒相比，感染Omicron变种病毒的人住院和患严重疾病的风险降低，但是作者也说其中部分原因可能是由于南非人群免疫力高。
 
-一个罕见承认严重不良反应的例子是一名护理人员在接种阿斯利康公司的新冠疫苗注射后出现瘫痪，于8月被认定为工伤事故，并获得了政府津贴。
+Omicron变种病毒于11月在南部非洲和香港首次被发现，此后已在全球蔓延，并威胁到医院不堪重负，并在今年的假期周让很多人旅行计划中断。
 
-在2月底到3月初，政府推出接种病毒疫苗的一周左右，韩国疾病控制和预防机构表示，有7人死亡，24人在接种阿斯利康疫苗后出现了严重的不良反应。
+来源：https://globalnews.ca/news/8476320/covid-omicron-delta-immunity-study/
 
-据报道，一名没有潜在健康问题的青少年接种辉瑞-生物技术公司的新冠疫苗后死亡，政府于8月开始进行调查。
+（文章仅代表作者个人观点）
 
-*评论指出：一直以来，很少有政治家有能力抵制邪恶的疫苗封锁议程。政治家们的任何承诺充其量都是陈词滥调。*
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-*在越南，辉瑞疫苗推出仅一周，就有3名儿童死亡，120人住院，官员们甚至承认这是由 “对疫苗的过度反应 “造成的。*
+**关注我们**
 
-备注：
+Discord 账号
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-[新闻来源链接](https://www.sott.net/article/462475-Protests-over-Covid-vaccine-deaths-spread-across-South-Korea)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

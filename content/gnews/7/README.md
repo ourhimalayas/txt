@@ -2,32 +2,103 @@
 ---
 
 
-## Apple公司支付工程师18万美元防人才流失
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1806519/)
+## 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1806545/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+[https://gtv.org/video/id=61cd20f0fb16a93456bf373d](https://gtv.org/video/id=61cd20f0fb16a93456bf373d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/apple-is-paying-its-engineers-180000-bonuses-to-stop-them-from-joining-meta_resize_md.jpg)[菲尔丹泽/ iStock](https://www.istockphoto.com/photo/the-apple-computers-store-in-sydney-australia-gm458730043-18489219)
+**郭文贵**
+**Miles Guo**
 
-Apple 公司正在给其硬件以及软件部门的顶级工程师发放额外的奖金（out-of-cycle bonuses），以阻止他们跳槽到Meta公司。据彭博社[报道](https://www.bloomberg.com/news/articles/2021-12-28/apple-pays-unusual-180-000-bonuses-to-retain-engineering-talent)，这些奖金主要是以限制性股票单位的形式，价值在5万至18万美元之间。
+我真的从小坚信一句话，我只要坚持持之以恒我就不相信(有)磕不下来的事
+I’ve truly believed in a word since I was a child, as long as I persist in it, I don’t believe in things that can’t be done
 
-10月早些时候，我们报道了Meta公司，即当时的Facebook，正计划雇用[1万名工程师来建立扎克伯格版本](https://interestingengineering.com/facebook-to-hire-10000-people-to-build-zuckerbergs-metaverse)的元宇宙。在过去的一点时间里，脸书公司重塑了自己的品牌，甚至向用户开放了地平线世界。但据彭博社的报道，不为人知的是，在此期间，Meta 公司从苹果公司挖走了约100名工程师。
+你们没想到七哥讲英文有多难，我40年我没把英文学会
+You didn’t expect how difficult it is for me to speak English, in 40 years I ha-ven’t learned English well
 
-Apple 公司现在希望通过向其顶尖人才提供重要的股票期权，将他们锁定在公司多年，来结束这种情况。彭博社报道说，这些正在有选择地提供给硅设计、硬件、软件、甚至运营组的工程师的期权是不典型的（atypical），也是不合时宜的（untimely）。
+而且我身边全是讲英文的，我这一生最失败的就是英文
+and all around me are English speakers, the most failed thing in my life is Eng-lish
 
-根据彭博社此前的报道，在未来几年里，Apple和Meta有可能在混合现实头盔、智能手表，以及家用设备等一系列产品中对垒。虽然Apple公司一直是智能手表类别的市场领导者，但Meta公司正寻求进入可穿戴设备领域。目前，虚拟和增强现实头盔和家用设备仍处于起步阶段，随着我们进入互联网连接设备的时代，这两家公司都是可以开发的潜在市场。
+语言没学好，但是从爆料革命开始创建了郭氏英文
+I didn’t learn the language well, but since starting the whistleblower movement that I created Guo’s style English
 
-由于Meta公司正在寻求进入设备领域，它希望复制Apple公司的成功。这家位于库比蒂诺（Cupertino-based）的Apple公司也在寻找其标志性设备之外的新途径，比如已经出现延误的自动驾驶汽车，而且它不想轻易放走其顶尖人才。彭博社报道说，除了Meta公司的高薪之外，Apple公司自己坚持要求其工程师每周有四天甚至五天在办公室工作，也可能是一些人离开的原因（Meta公司的工作政策更加宽松）。
+你看看我用郭氏英文被这个Isobel Yeung采访的时候，现在响遍全中国
+Look at me what I used this Guo’s style English when I was interviewed by Iso-bel Yeung, now it’s resounding all over China
 
-彭博社报道说，股票期权已经给了高达20%的工程师，随着Apple公司的市值达到3万亿美元，股票期权的价值可能进一步增加。报道称，Apple公司现在已经取消了返回办公室的最后期限，同时还提供1000美元的奖金，使他们的员工能够采购家用（办公）设备。
+哇塞，我的老师说第二个文贵你的英文太好了，我竟然全听懂了
+Wow, my teacher said the second one, Miles, your English was so good, I actual-ly understand it all
 
-**新闻来源：**[interestingengineering.com] [Apple Pays Its Engineers $180,000 Bonuses to Stop Them From Joining Meta](https://interestingengineering.com/apple-pays-its-engineers-180000-bonuses-to-stop-them-from-joining-meta) | 发布时间：2021年12月29日
+哈哈，我说老师，你这话真的说得太夸张了，
+Haha, I said “teacher, what you said is really exaggerated
 
-* * *
+你听懂了对我来讲，是讲得好还是不好，是不是
+you understand what I said, is it good or bad?”
 
-*发稿：信心的选择*
+说明我讲得很不好嘛，我讲好英文，你是听不懂的，因为你的英文很差，是吧
+That means that I speak very badly, I speak English well, but you can’t under-stand it because your English is not good, right?
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+她都听懂了，说明我讲得很差，还要把英文拿下来，你讲讲试试
+She understands everything, It means that I speak poorly, I still have to work hard on my English, give it a try
+
+神奇四侠，你的西班牙英文咋样，英文你给我秀秀
+Fantastic Four, how do you speak Spanish and English? Show me some yours
+
+西枫，你讲讲英文，顺利的英文，是不是? 虽然你是秘翻组
+Xifeng, you speak English and are fluent in English, right? although you are in the secret translation group
+
+不容易，持之以恒
+it is not easy, it needs perseverance
+
+灭共这件事，就关键你信不信，关键你干不干到底
+Believe it or not is the key point for you to taking down the CCP, the key point is whether you can persist do it or not
+
+某将军在私下里边，跟刘亚洲，已经被抓了，说那小子，记得吗
+In privately, there is a general talked to Liu Yazhou who had been arrested, he said do you remember that guy（Miles Guo）?
+
+咱们一起吃过饭的，在外面折腾那么大，又建国又建邦的
+We have eaten together, and he（Miles Guo） made big noise abroad, also set up the nation and the federal state
+
+所有的五六个人，唰，全都停下来(夹)菜，没有一个人接这个茬的
+All five or six people suddenly all stopped talking and started picking the dish-es, no one want to continue this topic
+
+这哥们儿喝多了，刚才我还没问你呢，亚洲
+This buddy drank too much, “I didn’t ask you just now, Yazhou
+
+你怎么看那个人，哈哈，刘亚洲想想说，你他妈吃饱了撑的，是不是，喝多了吧
+What do you think of that person（Miles Guo）, haha, Liu Yazhou think about it and said that you damn eat too much, don’t you, drink too much?
+
+你提他干什么呀，说你提都不敢提，说明你很怕这件事
+Why are you mentioning him?” you dare not mention it, it shows that you are very afraid of it
+
+结果刘亚洲说了句特别精彩的话，说咱一屋子的人全是带星的
+As a result, Liu Yazhou said something particularly wonderful, saying that all the people in this room are all with stars （military rank）
+
+我们敢提任何人，都不敢提他，你说我是啥观点，然后说，喝酒
+“We can mention anyone, we do not dare to mention him, you say what my opinion is” and then say let’s drink
+
+这就是当时的刘亚洲，因为那时没抓呢， 我就不好意思说
+This was Liu Yazhou at that time, because he hasn’t arrested at that time, I’m a little hesitant to mention him
+
+**原视频链接**: [https://gettr.com/post/pkq5kob109](https://gettr.com/post/pkq5kob109)
+
+Date: 12/28/2021
+原视频标题: 持之以恒 七哥练会郭氏英语, 坚持灭共 让共产党不敢提七哥名字
+Miles perseveres to practice Guo’s style English and persists on taking down the CCP so that the Communist Party dare not mention Miles’s name
+原视频日期：2021/12/24
+原视频链接 https://gettr.com/post/pkq5kob109
+任务编号：KC377（3355）
+视频时间段 : 0:00-2:17
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校 ：洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – 天涯行
+审片 ：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
