@@ -2,44 +2,38 @@
 ---
 
 
-## 秦刚不是去建立友好关系的张骞而是在朝堂撒尿羞辱美国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807028/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅的产品和服务的推广计划是什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807139/)
 
-**郭文贵先生：**你去想想啊！美国人、美国人听到这些以后，美国什么样的感觉，这完全突破了一个外交官，这是完全宣战的，这真的是、这过去的、历史上最荒唐的，就是唐朝之后最荒唐的时候，什么时候说唐朝怎么没落了呢？大家去想想历史上，派来的外来使节，在大堂上尿尿，就证明大唐完了。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+椰子: 到目前为止，已经推出了哪些喜马拉雅交易所的产品和服务？
 
-就过去来进贡的人，上来以后说我憋不住了，我撒一泡尿，它是什么国家，就是今天的阿富汗，是吧！派来的使节，阿富汗尿了泡尿憋不住了，就是侮辱你吗！是不是，大唐结束。
+杰西: 四月时我们开启了第一阶段。向私募配售参与者开放了注册程序和KYC（了解你的客户）的验证流程。这是一次巨大的成功，超过10,000名客户加入了Himalaya Exchange平台。我们为此感到非常兴奋。到目前为止，私募配售参与者对我们的产品有强烈的需求。这让我们很清楚的看到人们很想要我们的产品。
+在这个过程中，我们采用了健全的KYC审查程序能够将不良行为者排除在平台之外。
 
-今天的美国的，今天他来就是这个，这不是张骞到了学习东西来了，跟你建立关系来了，这是在羞辱你来啦。让美国人自己照照镜子去，我们不是战狼外交，我们是与狼共舞。
+这些通过审查的客户随后可以用美元充值他们账户，藉此购买Himalaya Dollar信用积分。值得一提的是，即使在疫情期间，我们的合规部门和银行顾问仍然在工作上表现出色。人们无法来办公室工作是很大的挣扎，但我们很好的应对了这些挑战。
 
-台湾的问题的本质，是你美国人的极少数分子和美国人卖军火、政治勾兑结果，在中国被种族大屠杀的不是新疆人是汉人，如果你们不把班农、郭文贵这帮人给消灭了，那我们就有一战，哇塞！你说这可怕不可怕。
+七月份我们开始了第二阶段 — 快速购买功能，允许客户用HDO购买他们的配额。交易所在未来几周后开放时就会开启货币对的交易。
 
-编辑整理：海贼王M.D.LUFFY；
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-字幕文件制作：小满；
+编辑/校对/发稿：Hetangyuese
 
-视频制作及上传：Cindy；
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-技术支持：文肺猫
+**更多资讯，更多关注**
 
-G-News发布：小满；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

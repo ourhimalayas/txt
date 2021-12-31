@@ -2,45 +2,30 @@
 ---
 
 
-## 普京收一千亿要带的四个哥们有三个泡汤普京自己犯腰痛
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1807046/)
+## 德媒：中共国有个新毛泽东
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807163/)
 
-**郭文贵先生：**更重要的事情—普京，这次冬奥会，这回打他脸，我可以告诉你确切的消息，普京同志收了钱啦，也公开了，是吧！收到钱24小时公布，本人决定应约参加北京冬奥会！
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-363.png)[图片来源](https://zh.wikipedia.org/wiki/%E7%8D%A8%E8%A3%81%E6%94%BF%E9%AB%94#/media/File:DD_classification_2008_dataset_Cheibub_visualized_hanteng_zhs.png)
+德国n-tv指出，中共领导人习近平在2021年大幅扩展了执政权力，中共宣布的新时代，实际上是新毛泽东独裁政权的到来。并列举习走向独裁的几个关键步骤。
 
-然后呢普京私下答应，私下答应习，我一定弄几个哥们儿去，谁谁谁，一、二、三、四的，四个人仨已经正式拒绝，绝对不去了，就普京的面子也不给，习的面子也不给。
+第一步是，修改宪法，原本只允许连任一次。习如今重新打开了一人终身统治的大门。
 
-普京，据说也玄乎，钱收了！普京说最近身体有点状态，不太好！我要到这个整个的什么索契，我可能要度一下假，治疗一段时间，腰后椎疼、后椎疼。
+第二步是，习集聚了权力职能，担任中共中央总书记、军委主席、国家主席，更主持了为他新设立的几个指挥中心。就如同毛泽东那样，他让自己被军队称为“舵手”，被党称为“领袖”。
 
-哇！这对习打击太大了，如果是普京收了这1000亿最后不来，还一个哥们儿没带来，这相当于什么？哇塞！这个事儿太大了，听说在党的影响巨大。
+第三步则是，11月通过的“历史性决议”，以巩固长期执政的地位。
 
-编辑整理：海贼王M.D.LUFFY；
+文章还指出，习正大力推进大规模军备，在西方核武库缩减的同时，中共的核弹头数量正大量增加。而且中共目前还拥有全球最大的海军。在美国和欧洲因新冠疫情衰退之际，习在2021年的强权政治中崛起。并引用英国经济研究人员的说法，中共国在2028年将取代美国成为全球最大经济体，比先前的预期早了五年，届时中共国的新毛泽东可能还在任上。
 
-字幕文件制作：小满；
+毛泽东的独裁是以独裁的方式结束的，独裁从未远去。只有文贵先生引领的爆料革命和新中国联邦才能给新中国联邦公民在监督下以一人一票的方式，用真民主彻底埋葬独裁。
 
-视频制作及上传：Cindy；
+信息来源：
 
-技术支持：文肺猫；
+[德语媒体：中国的新毛泽东](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%96%B0%E6%AF%9B%E6%B3%BD%E4%B8%9C/a-60279234)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,66 @@
 ---
 
 
-## 拿起法律的武器获得赔偿 一一 低位错误卖出喜币的投资者
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1806845/)
+## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
 
-#### **加拿大温哥华扬帆农场 蓝枫法律**
-![](https://lh6.googleusercontent.com/mFSICRKU-s246mJ82aQNk5V5wSWTMqYxFUpxwrdZ-Ai1t-2_S-F78Wp3AyhYhTW0LBAOB3UZobMgBIyjFb_I0R3Pe31ZDLC6GX0zIQwLYvHfEBS1FatPAcI5G5PVMWUf3s56aKbw)Pexel
-喜币在短短一个月就突破40块，现在35块左右，相信战友和投资者都能看到其中的实力和潜力。但是Sara九指妖从喜币未上市之前就开始一直污蔑喜币是骗局，更且在上市后继续诋毁否认喜币的价值和喜交所能够提现的事实。她持续教唆、蛊惑，施压战友和投资人抛售喜币。在这过程中Sara九指妖已经触犯了相关各种法律法规。
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
 
-在《加拿大温哥华扬帆农场蓝枫法律》第三十五期 ——诽谤及相关法律，提到了诽谤罪的标准，即6条原则。Sara九指妖触碰了这些原则（请看Sara九指妖陈述原视频，在蓝枫节目的播放时间自1:45:42开始）：
 
-第1，Sara九指妖的原视频是一个错误的陈述；
 
-第2，这个是具有污蔑性；
+> China is the greatest threat this country faces today – period. 
+> 
+> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
 
-第3，如果我们去告她，是可以的。因为Sara九指妖关于喜币的陈述与我们相关；
 
-第4，Sara九指妖的陈述是发布到第三方平台YouTube；
 
-第5，这个是有实质的恶意，因为Sara九指妖之前跟我们爆料革命和新中国联邦的关系；
+比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
 
-第6，这个陈述对我们喜币持有者和投资者造成了既成伤害。尤其是新进来的战友和投资者，听到她的视频（虚假陈述），可能10块钱买的，30块就卖了。但是现在就已经40多块，这个伤害是真实的，是可以立案，并且可以按照美国诽谤罪条文里的最高标准提出诉讼赔偿。
 
-如果你是听到Sara九指妖的污蔑虚假言语之后被误导了，而且在很早的时候就卖掉喜币，那么你就可以拿这个证据去律师事务所帮你代理，处理这个因Sara九指妖的虚假陈述而造成的投资损失的起诉。
 
-Elon Musk因为发了一个推文说：“特斯拉股票在420美元时私有化而且资金充足“，SEC就以他说这话后所产生的股票大波动为由而起诉他。为了避免司法程序， Elon Musk跟SEC达成和解，支付了20 million给SEC。
+> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
+> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
 
-郭文贵先生一直在说美国的伟大，是因为美国是一个有法律的国家。不会因为你是谁，你有多大的影响力而造成法律有失公正性。你如果误信了Sara九指妖的言论，请你一定要拿起法律的武器，也可以和其他因误信Sara九指妖的投资者和战友一起起诉她。行动！行动！只有行动才能更好保护我们自身的利益，使Sara九指妖受到法律应有的处罚！
 
-参考：
 
-[2021年11月18日 喜交所就是郭文贵开发的私人游戏的伺服器！在Sara、路德闫博士将近一年的提醒和好言相劝，还怨恨因为Sara耽误了投资喜币发大财的人已经不能称为受害者了！真心希望你们能及时止损！](https://www.youtube.com/watch?v=ohrWF5gwoEI&amp;t=1354s)
+参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
 
-[2021年11月17日 “喜币提现”是喜国的禁词，CFTC着手调查喜币和农场借款，郭文贵为何不敢提路德爆料？语无伦次已穷途末路？VOG良言善语，欢迎不同的观点，揭露病毒的真相关系到人类的幸福和未来。](https://www.youtube.com/watch?v=y2OwJYGlVb4&amp;t=1639s)
 
-作者：王一天  汀兰
 
-编辑：文桂妹
+> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
 
-视频/发文：  Kent
 
-审校 ：汀兰
 
-感谢听写的战友
+众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+
+
+
+> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
+
+
+
+> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
+> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
+
+
+
+> Biden must hold Communist China accountable for the origins of COVID-19.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

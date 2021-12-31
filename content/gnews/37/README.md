@@ -2,34 +2,38 @@
 ---
 
 
-## 【中日财经爆】中共国货币宽松无效，明年将大幅扩大国债规模？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806568/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 下一步是什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806673/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-361.png)[图片来源](https://twgreatdaily.com/zh-my/MCUVkXMBnkjnB-0zmkeo.html)
-近日，中泰证券首席经济学家李迅雷撰文《2022年要推出“超预期”举措，才能扭转预期转弱》，该文被各大门户网站转载。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+椰子: 下一步是什么？
 
-文中结论十分简单粗暴，靠基建加大投资力度，靠国债落实大放水：
+杰西: 这将是向大家推出喜马拉雅交易平台。我们对此非常期待。用户将可以通过网络平台上來为账户充值，购买信用积分和执行交易功能。
 
-1、2022年拉动基建投资增速是必须的，但估计仍然弥补不了房地产投资增速下降带来的固定资产投资增速的回落。而且，房地产投资增速回落，又会对其上下游产业链造成负面影响，进而拖累制造业投资。因此，2022年还是得在“稳房价、稳地价、稳预期”方面加大力度。
+展望未来，我們的平台会新增其他获得批准的加密货币对。所以我们期待着这一点。而且，用户不仅可以使用美元，还可以使用其他法定货币来为他们的账户充值。
 
-2、仅仅靠宽松政策还不足以扭转预期。中共国的国债余额占GDP的比重只有20%左右，相比日本的260%、美国的110%左右，显得非常低。由于国债是中央政府的信用，扩大国债发行规模，比扩大地方政府专项债的发行规模，对社会和市场预期的改变将非常显著。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-以上结论符合末世逻辑。同样是李迅雷，于一个月前撰文《不要期望明年货币政策或财政政策会大幅放松》。文中畅谈，对中共国而言，2022年面临的最大压力来自房地产走弱，因为房地产是中共国经济过去那么多年来高度依赖的行业，在房地产税试点的触发下，在坚持房住不炒的政策的持续作用下，明年的房地产销售额和开发投资增速预计都将掉头向下。因此，不要期望明年的货币政策或财政政策会大幅放松，因为放水只能救一时，不能救永远。
+编辑/校对/发稿：Hetangyuese
 
-并进一步说明，如果说中共国在货币化程度比较低的时期可以大规模扩张货币而并不会出现高通胀和大规模的资产泡沫（如2005年之前），如今则已经出现了货币过剩现象。因此，未来只要放水，无论是水往高处流（导致资产泡沫）还是水往低处流（导致通胀），都会带来系统性风险。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-同一个人，时隔一月撰写两文，现象的认识未变，但提出的解决办法相互矛盾，我们无法猜测个中缘由。但近期债务危机频发，失业情况严重，群众大规模内卷，合格借款人严重不足，大量资金仍在银行体内循环。有银行开始为贷款者绕过个人征信提供贷款，这实为次级贷款，即便如此，也不能完成放贷要求。苟延残喘的唯一办法，只是也仅是大规模发行国债以大幅增加政府支出，正所谓只能救一时，不能救永远。
+**更多资讯，更多关注**
 
-信息来源：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[李迅雷：2022年要推出“超预期”举措，才能扭转预期转弱](https://m.yicai.com/news/101266080.html)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-[李迅雷：不要期望明年的货币政策或财政政策会大幅放松](https://m.jiemian.com/article/6860009.html)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

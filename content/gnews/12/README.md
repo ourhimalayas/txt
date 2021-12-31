@@ -2,46 +2,42 @@
 ---
 
 
-## 秦刚回应对美外交是与狼共舞,台湾问题是美国与台独挑起
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1806954/)
+## 美国媒体揭露中国政府深入研究“脑战武器”多年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807048/)
 
-**郭文贵先生：**就像头两天在国内发生了一个事情，有人在内部的国安会上，秦刚那是直接是给习、跟着习直接通话的人。那么在国安会上讨论，为什么秦刚到美国以后一个基本的国礼都没了呢？大家想过没有？
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-两件事儿，中国驻美国大使，这两个你看看，美国驻中国大使，又是待办、又是撤回、然后派来了秦刚，战狼外交变成战羊外交，然后美国，美国第一次听说有人给中国政府提出来条件，说秦刚这个大使，说的话是非常有问题的，说如果他这样下去的话，中美之间关系的改善是可能性没有的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1162844475-700x420-1.jpg)
 
-其中一条，这个每天人家都问他，说你这个听说你们搞的战狼外交派你来啦，你要变成战羊外交，你怎么看？秦刚原话，我们不是战狼外交，我们是与狼共舞啊！哇塞！就是你是狼，我与狼共舞、我奉陪到底。然而外交部说的我要和你、共产党跟你美国人陪着你玩儿到底，这种挑战。
 
-然后台湾问题怎么回事儿？台湾问题秦刚说的精彩啊，是吧！都会耍流氓，这共产党流氓极了，说你们美国看看你们自己的脸，照照你们自己的镜子，所谓台湾问题，全是美国人利用台湾的台独分子挑起的所谓的台湾的问题，台湾的问题根源在你美国，是你美国的极少数人为了某些政客，给你们美国的所谓的武器装备公司，拉政治、拉钱、利益勾兑，点燃了台海的这个问题和冲突，利用台独分子制造了麻烦。
+ 
+图片来源：Wang Zhao/AFP via Getty Images
 
-中国特别是共产党、大陆人民是受害者，所以台湾根源在美国，美国只有尊重什么中美联合公报，你听这不要脸到什么程度。
 
-编辑整理：海贼王M.D.LUFFY；
+#### 编译：小红帽
 
-字幕文件制作：小满；
+根据RT12月30日报道，美国媒体报道称，在过去几年里，**中国的一个研究机构一直忙于开发能够“麻痹”敌人而不是杀敌人的武器。**
 
-视频制作及上传：Cindy；
+《华盛顿时报》翻译并分析了中国人民解放军2019年的三份报告，这些报告曾发表在官方军事报纸《解放军日报》上。这家美国报纸称说，这些文件 **“揭示了中国脑战研究的深度，并表明它已经进行了几年。”**
 
-技术支持：文肺猫
+“战争已经开始从追求摧毁身体转变为麻痹和控制对手，”《解放军日报》的一篇名为 “军事优势霸权概念的未来”的报道中写道。
 
-G-News发布：小满；
+据《华盛顿时报》报道，中国的研究人员一直在研究 “将人类和机器结合起来，以实现增强人类生理和认知能力的目标”，并致力于研究大脑对大脑控制攻击的防御。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+商务部负责人吉娜·雷蒙多(Gina Raimondo)称，**中国政府利用生物技术和医疗创新 “追求对其人民的控制以及对少数民族和宗教团体成员的压制”**。发表在联邦登记册上的文件进一步声称，AMMS和相关机构 “**使用生物技术来支持中国的军事最终用途和最终用户，包括所谓的大脑控制武器”。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+据《金融时报》援引一位美国高级官员的话说，**中国政府正在研究 “基因编辑、人类性能增强[和]脑机接口”**。中国当局拒绝所有这类说法，认为其“毫无根据”。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻来源：[US media reports claim China deep in ‘brain warfare research’ — RT World News](https://www.rt.com/news/544811-china-weapon-brain-research/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+***发布：小红帽***
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
