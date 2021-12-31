@@ -2,46 +2,66 @@
 ---
 
 
-## 秦刚回应对美外交是与狼共舞,台湾问题是美国与台独挑起
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1806954/)
+## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
 
-**郭文贵先生：**就像头两天在国内发生了一个事情，有人在内部的国安会上，秦刚那是直接是给习、跟着习直接通话的人。那么在国安会上讨论，为什么秦刚到美国以后一个基本的国礼都没了呢？大家想过没有？
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
 
-两件事儿，中国驻美国大使，这两个你看看，美国驻中国大使，又是待办、又是撤回、然后派来了秦刚，战狼外交变成战羊外交，然后美国，美国第一次听说有人给中国政府提出来条件，说秦刚这个大使，说的话是非常有问题的，说如果他这样下去的话，中美之间关系的改善是可能性没有的。
 
-其中一条，这个每天人家都问他，说你这个听说你们搞的战狼外交派你来啦，你要变成战羊外交，你怎么看？秦刚原话，我们不是战狼外交，我们是与狼共舞啊！哇塞！就是你是狼，我与狼共舞、我奉陪到底。然而外交部说的我要和你、共产党跟你美国人陪着你玩儿到底，这种挑战。
 
-然后台湾问题怎么回事儿？台湾问题秦刚说的精彩啊，是吧！都会耍流氓，这共产党流氓极了，说你们美国看看你们自己的脸，照照你们自己的镜子，所谓台湾问题，全是美国人利用台湾的台独分子挑起的所谓的台湾的问题，台湾的问题根源在你美国，是你美国的极少数人为了某些政客，给你们美国的所谓的武器装备公司，拉政治、拉钱、利益勾兑，点燃了台海的这个问题和冲突，利用台独分子制造了麻烦。
+> China is the greatest threat this country faces today – period. 
+> 
+> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
 
-中国特别是共产党、大陆人民是受害者，所以台湾根源在美国，美国只有尊重什么中美联合公报，你听这不要脸到什么程度。
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：小满；
+比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
 
-视频制作及上传：Cindy；
 
-技术支持：文肺猫
 
-G-News发布：小满；
+> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
+> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+
+
+
+> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
+
+
+
+> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
+> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
+
+
+
+> Biden must hold Communist China accountable for the origins of COVID-19.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
