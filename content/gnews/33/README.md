@@ -2,38 +2,51 @@
 ---
 
 
-## CDC承认PCR测试存在重大缺陷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807887/)
+## 中共国的水资源正被伪政府耗尽
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1807898/)
 
-作者：纽约香草山文艺部 – 宁文静；纽约香草山翻译部 – defiance
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1929.png)
 
-12月29日，美国疾病预防和控制中心CDC主任瓦伦斯基，在接受电视采访时承认，通过PCR方法检测中共病毒存在重大缺陷，并表示，在隔离5天后，只要没有相关症状，个人不需要通过PCR检测呈阴性，作为结束隔离的条件。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-53.jpg)
-而早在7月，CDC就悄悄在官网上公布，12月31日以后，CDC将撤销PCR测试的紧急使用授权，承认PCR测试不能有效区分流感和中共病毒。
+人类的地缘政治因素可以使得自然资源变得糟糕。历史学家杰弗里·帕克（Geoffrey Parker）认为，在17世纪漫长的全球危机中，气候模式的变化推动了战争、革命和动乱。最近，气候变化在北极地区开辟了新的贸易路线、资源和竞争。而现在，中共国，一个经常出现在国际体系中的大国，正在以可能激起国内和国外热战冲突的方式，耗尽水资源。
 
-这一结论激怒了许多美国人。政治评论家尤西表示，这意味着在过去的21个月里，人们无理由地被多关了几天甚至几周。
+自然资源一直是经济和全球权力的关键。在19世纪的英国遥遥领先于其他国家，这是因为其丰富的煤炭储备使其能够推动工业革命的发展；其次，英国最终被美国超越，美国利用其巨大的可耕地、大量的石油储备和其他资源，成为一个经济巨人。
 
-参考链接：
+中共国的崛起也是如此。资本主义改革、一个受欢迎的全球贸易体系和良好的人口统计学，都有助于北京在20世纪70年代末至21世纪初取得举世瞩目的经济增长。中国在土地、水和许多原材料方面几乎自给自足，而且其廉价的劳动力使其能够积极地开发这些资源，这一事实也帮助中共国成为世界的制造大国。
 
-- [After CDC’s Rochelle Walensky Admits COVID-19 PCR Tests Have A Major Flaw, Conservatives Demand Answers](https://www.dailywire.com/news/after-cdcs-rochelle-walensky-admits-covid-19-pcr-tests-has-a-major-flaw-conservatives-demand-answers?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
-- [HUGE. CDC Withdraws Use of PCR Test for COVID and Finally Admits the Test Can Not Differentiate Between the Flu and COVID Virus](https://www.thegatewaypundit.com/2021/12/huge-cdc-withdraws-use-pcr-test-covid-finally-admits-test-can-not-differentiate-flu-covid-virus/)
+然而，中共国的自然丰富性已成为过去。正如迈克尔·贝克利（Michael Beckley）与即将出版的《危险地带》（The Danger Zone）一书中所说，北京已经耗尽了它的许多资源。十年前，中共国成为世界上最大的农产品进口国。由于退化和过度使用，中国的可耕地一直在萎缩。（改革开放后的）高速发展也使中共国成为世界上最大的能源进口国：在美国成为净能源出口国的时候，中国四分之三的石油是在国外购买的。
 
+中国的水资源状况尤其严峻。正如 [Gopal Reddy](https://www.linkedin.com/in/gopal-reddy-1a7bb58) 指出的，中国拥有世界上20%的人口，但只有7%的淡水。整个地区，特别是北方地区，遭受的缺水比在干旱的中东地区还要严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+数以千计的河流已经消失，而工业化和污染已经破坏了大部分剩余的水。根据一些估计，中国80%到90%的地下水和一半的河水太脏，不能饮用；一半以上的地下水和四分之一的河水甚至不能用于工业或农业。
 
-总编：Irene木木
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
+这是一个昂贵的问题。中共国被迫从相对湿润的地区引水到受干旱困扰的北方；专家评估，由于缺水，中国每年的损失远远超过1000亿美元。（水资源）短缺和不可持续的农业正在造成大片土地的荒漠化。与水有关的能源短缺已经成为全国的普遍现象。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（中共）政府已经促进了配给和提高用水效率，但是没有任何东西足以阻止这个问题。本月，中共国当局宣布，广州和深圳–位于水资源相对丰富的珠江三角洲的两个主要城市–将在明年面临严重干旱。
+
+中共国的经济和政治影响是令人不安的：中共国的资源问题使增长成本增加，与其他一系列挑战–人口下降、日益窒息的政治气候、许多关键经济改革的停滞或逆转–一起导致经济放缓，甚至在武汉中共病毒（Covid-19)）暴发之前，就已经产生了明显的影响。中共国的社会契约将受到考验，因为资源的减少加剧了分配方面的争斗。
+
+2005年，温家宝总理表示，水资源的短缺威胁到“中华民族的生存”。中共有位水资源部长宣称，中共国必须“为每一滴水而战，否则就会死亡”。抛开夸张的说法，资源匮乏和政治不稳定往往是相辅相成的。
+
+（输出革命）国外的紧张局势可能随之加剧。中共国观察家们担心，如果中国共产党在国内感到不安全，它可能会对其国际对手大打出手。即使不这样做，水的问题也会引起地缘政治的纷争。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1931.png)
+
+中共国的大部分淡水都集中在西藏等地区，这些地区是共产党政府在1949年掌权后用武力夺取（国民党）的。多年来，中共国一直试图通过胁迫和使邻国陷入贫困，来解决其资源匮乏的挑战。
+
+通过在湄公河上建造一系列巨大的水坝，中共国伪政府在泰国和老挝等依赖湄公河水道的东南亚国家引发了反复的干旱和破坏性的洪水。新疆的河流改道对中亚地区下游产生了破坏性的影响。
+
+在喜马拉雅山脉日益紧张的一个根源是，中共国计划在关键水域到达印度之前筑坝，让印度（和孟加拉国）成为输家。正如印度战略分析家 Brahma Chellaney 所说，“中共国在南海和喜马拉雅山的领土扩张……一直伴随着在跨国河流流域占有水资源的隐秘努力。”
+
+换句话说，中共国越是饥渴，地缘政治上就越是肮脏。
+
+新闻来源：[bloomberg.com] [China Is Running Out of Water and That’s Scary for Asia](https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam) |发布时间：2021年12月29日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
