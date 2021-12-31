@@ -2,19 +2,25 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807401/)
 
 翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
 
-杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+
+
+
+
+杰西：未来会有其它的加密货币上线。显然，我们将推出比特币和以太坊。我们有一个被批准的虚拟资产清单，我们都作为一个团队在内部讨论。一旦我们决定加入某一个货币对，它们就会被推出。我认为，在未来几个月内，我们会有一个具有广泛深度的一系列虚拟币在交易所上线。我们希望成为一个非常强健的平台，会有很多不同的虚拟货币上市。
 
 参考来源：
 1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
 2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+3. [https://gnews.org/zh-hans/1701232/](https://gnews.org/zh-hans/1701232/)
 
 编辑/校对/发稿：Hetangyuese
 
