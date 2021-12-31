@@ -2,56 +2,50 @@
 ---
 
 
-## 【战友心声】2022新年致词
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1809158/)
+## 中共国警告美国在台湾问题上将“面临难以承受的代价”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1809274/)
 
-作者：纽约香草山福音部 — 黎明曙光
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-12.jpg)法新社/安吉洛斯·佐尔齐尼斯
 
-在2022年新年的钟声即將敲响的这一刻，給各位战友亲切的问候，恭祝战友们新年好！
+中共国外交部长周四表示，美国将因其对自我统治的台湾岛的行动而“面临无法承受的代价”，这是中共国政府对这个热点岛屿的最新威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0ed20ef1-25cc-4067-b5c3-a0a6583bed31-1.jpg)
+近年来，中共国和美国在人权、贸易和技术竞争等问题上的紧张关系急剧上升，而台湾则成为一个主要的爆发点。
 
-恭喜战友们拥抱喜币来到2022新的一年！
+中共国宣称民主的台湾岛是自己的领土，并发誓有一天会在必要时用武力夺取台湾。
 
-預祝邪恶的CCP2022年进入地狱一百捌拾层！
+尽管大多数国家都选择正式承认北京而不是台北，但许多国家仍与后者保持着强有力的非正式联系，而中共国对此感到愤怒。
 
-新中国联邦战友们既将相聚在盘古！
+周四，外交部长王毅在接受国家广播公司中央电视台和官方新闻机构新华社的采访时警告说，华盛顿的干涉可能导致危险的局面。
 
-新中国联邦的旗帜马上飘扬在北京天安门广场的上空！
+“美国违反了中美建交时的承诺，纵容和鼓励‘台独’势力，并试图歪曲和掏空一个中国原则”，王毅说。
 
-Take down the CCP！
+“这不仅会使台湾陷入极其危险的境地，也会使美国面临难以承受的代价。”
 
-Take down the CCP！
+作为对中共国的冷落，美国在本月初邀请台湾参加其民主峰会。
 
-Take down the CCP！
+美国总统拜登上个月将台湾描述为“独立的”–但他后来澄清了他的言论，确认美国对台湾的政策没有改变。
 
-中共你完蛋了！
+根据《台湾法》，美国不承认台湾独立，但承诺帮助该岛自卫。
 
-2021年12月31号
+北京认为任何正式宣布台湾“独立”的行为都是一种挑衅，并多次威胁要对支持台北自治的国家采取后果。
 
-（本文仅代表作者个人观点）
+最近几个月，中共军方在该岛附近开展了一系列日益咄咄逼人的海空军事行动，并在上个月一群美国立法者访台后，在台湾海峡附近进行了军事演习。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
+近年来，中共国加强了在国际上孤立台湾的压力。
 
-*编辑 /校对*：德州牛仔
+本月早些时候，尼加拉瓜在外交上效忠于中共国，这对台湾是一个打击，现在台湾在全球范围内只剩下14个盟友。
 
-*发稿：Yuki*jiang
+参考资料：[news.yahoo][China warns US will ‘face unbearable price’ on Taiwan](https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*审核：Aries的星*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1.jpeg)
 
  
 

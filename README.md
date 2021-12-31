@@ -15,74 +15,74 @@
 
 ---
 
-### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/1/README.md)
+### [七哥谈欧洲表面的喜欢（2021-12-29）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥谈青蒿素修复基因缺陷（2021-12-29摘录）](/content/gnews/2/README.md)
+### [七哥谈欧洲和中共的较量（2021-12-29摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥谈共产党放毒（2021-12-29摘录）](/content/gnews/3/README.md)
+### [七哥谈“都是利益”（2021-12-29摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [七哥谈西安打特定疫苗（2021-12-29摘录）](/content/gnews/4/README.md)
+### [七哥说政客没有正义（2021-12-29摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥说要有执行力和团结（2021-12-29摘录）](/content/gnews/5/README.md)
+### [七哥谈德国、法国（2021-12-29摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/6/README.md)
+### [七哥谈青蒿素修复基因缺陷（2021-12-29摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈共产党放毒（2021-12-29摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥谈西安打特定疫苗（2021-12-29摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [七哥说要有执行力和团结（2021-12-29摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [银河快讯：美军横须贺基地新增75例感染；东证年底股价收32年新高](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥谈未来数字货币（2021-12-29摘录）](/content/gnews/7/README.md)
+### [七哥谈未来数字货币（2021-12-29摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/8/README.md)
+### [中共国警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说去中心化的币一定会变成零（2021-12-29摘录）](/content/gnews/9/README.md)
+### [七哥说去中心化的币一定会变成零（2021-12-29摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/10/README.md)
+### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈盘古、裕达（2021-12-29摘录）](/content/gnews/11/README.md)
+### [七哥谈盘古、裕达（2021-12-29摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/12/README.md)
+### [纽约卫生专员公开承认夸大疫情，吓唬家长给孩子打疫苗](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【战友心声】2022新年致词](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [七哥谈最佳出手时机（2021-12-29摘录）](/content/gnews/14/README.md)
+### [七哥谈最佳出手时机（2021-12-29摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/15/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/19/README.md)
  ` wenwu`
 
-### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/16/README.md)
+### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共政治局党校秘密讲话 拜登军事法案是灭共大礼](/content/gnews/17/README.md)
- ` 焦點20分`
-
-### [中共国房地产庞氏骗局持续 经济崩盘最终老百姓买单](/content/gnews/18/README.md)
- ` 焦點20分`
-
-### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/19/README.md)
+### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/21/README.md)
  ` 秘密翻译组金融团队`
 
-### [【Michael.Tonny专栏】中南坑老杂毛们，已经自慰到高潮！](/content/gnews/20/README.md)
- ` 温哥华扬帆农场`
-
-### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/21/README.md)
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/22/README.md)
+### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
-
-### [为了能够举办冬奥 中共出卖中国人的利益 挥霍中国人的血汗钱](/content/gnews/23/README.md)
- ` 焦點20分`
 
 ### [病理结果显示，接种疫苗后死亡的人中有93%是被疫苗杀死](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
