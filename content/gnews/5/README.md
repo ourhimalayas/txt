@@ -2,47 +2,64 @@
 ---
 
 
-## 聚焦：中日澳韩及东盟参与的经贸协定（RCEP） 1月1日生效
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1806951/)
+## 众议员帕特·法伦:中共国是这个国家今天面临的最大威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1806956/)
 
-#### 作者：加拿大温哥华扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0171.jpeg)nikkei
-摘要：在美国前总统川普缷任前几天，白宫提前公开了由川普政府制定的旨在全面围堵中共国的印太战略，而RCEP协定的生效说明美国暂时输掉了和中共在东亚的经济博弈。
-关键词：东亚经济协定，现实利益，拜登政府 知耻而后勇
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是这个国家今天面临的最大威胁——完毕。 现在是本届政府开始采取行动的时候了。 【附视频，法伦议员接受福克斯的采访，谈到中共对台湾的军事挑衅以及对美国构成的严重威胁】
 
-聚焦：中日澳韩及东盟参与的经贸协定（RCEP） 1月1日生效
 
- 据日经新闻31日报道，由中共国、日本、韩国和东盟10国（ASEAN）及澳大利亚、新西兰等参加的东亚区域全面经济伙伴关系协定（RCEP）即将于2022年1月1日生效，目前该经济圈的GDP占到全球总GDP的30%。
 
-报道称，这是日本首次与有历史问题和领土争端的中韩签署自由贸易协定，预计日本面向该经济圈国家的出口将比疫情爆发前的2019年增长逾5％。
-   
- 在11月2日前已完成加入程序的国家有日本、中共国、澳大利亚、新西兰、新加坡、泰国、越南、文莱、柬埔寨和老挝10个国家。韩国将于2022年2月1日加入，印尼、马来西亚、菲律宾和缅甸完成国内程序后也将加入。
+> China is the greatest threat this country faces today – period. 
+> 
+> It's time this Administration start acting like it. [pic.twitter.com/qkGtHfpfNY](https://t.co/qkGtHfpfNY)
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476593170221703182?ref_src=twsrc%5Etfw)
 
-RCEP于2012年11月启动谈判，印度中途退出，2020年11月协定生效。
 
-该协定的关税取消率达到91％，低于《全面与进步跨太平洋伙伴关系协定》（CPTPP）的99％，但日本政府估计，其将为日本推高GDP约15万亿日元，是CPTPP贡献率的2倍，而中共国和韩国也将因此取得2％左右的出口增长。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-485.jpeg)comments
-毫无疑问，RCEP协定的生效为中共国的“世界工厂”找到了一个外销市场，中共起码得到了喘息的机会。
 
-在美国前总统川普缷任前几天，白宫提前公开了由川普政府制定的旨在全面围堵中共国的印太战略，而RCEP协定的生效说明美国暂时输掉了和中共在东亚的经济博弈。
+比尔.格茨： 解放军：“战争已经开始从摧毁身体转向瘫痪和控制对手。” 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 圈内专栏：解放军“脑控”战的新细节； 美国、日本为台湾防务做准备； 国防法打击中国 （转专栏报道：揭示解放军“脑控”战的新细节）
 
-郭文贵先生曾经指出，川普在印太的最大败笔是退出《全面与进步跨太平洋伙伴关系协定》（CPTPP），该协定原来由奥巴马政府主导，美国退出后东亚经济圈变成山中无老虎，中共当大王。
 
-好消息是拜登政府已经认识到美国退出CPTPP寒了东亚盟友的心，给了中共可乘之机，因此开始构建环绕整个印度太平洋的经济框架，目的是重组不再依赖于中共国的产业供应链，并在重要技术领域封锁中共国。
 
-为了宣传推销这个框架，美国商务部长雷蒙多及美国贸易代表戴琪11月访问日本等亚洲各国。12月中旬美国国务卿布林肯访问印尼和马来西亚。但日本政府的相关人员认为“构想根本不成熟”，构想的内容并无新意。
+> PLA: “War has started to shift from destroying bodies to paralyzing and controlling the opponent.” This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): New details on PLA "brain control" warfare; US, Japan prep for Taiwan defense; Defense law hits China [https://t.co/wqt0O6XTBK](https://t.co/wqt0O6XTBK)
+> — Bill Gertz (@BillGertz) [December 30, 2021](https://twitter.com/BillGertz/status/1476673783893221383?ref_src=twsrc%5Etfw)
 
-显然，这个画得很大的饼在两三年内很难实现，东亚各国包括澳大利亚、新西兰等国在短期内无法切断对中共国市场的依赖，否则将造成本国市场的激烈震荡。
 
-更深层次的原因是美国的外交政策受到了两党之争的严重困扰，印太国家在和美国打交道时也只能走一步算一步，另外，美国窘迫的财政状况限制了美国向这些唯利是图的国家输出利益。这些国家和中共的交往即使有再大的抵触和恐惧，为了现实利益都咬牙忍受。
 
-所幸的是美国人民和大多数精英已经彻底觉醒，拜登政府明白，只有奋起抗击中共，才能重新获得民众的支持，否则就要卷铺盖回家。因此拜登政府或将知耻而后勇，在政治、军事、金融等领域全面打击中共。
+参议员玛莎·布莱克本： 当 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 获胜时，各地的民主均处于危险之中。 【转华尔街日报：在香港没有人是安全的 当局扩大对任何反对共产党路线之人的攻击。 中共对香港自治的粉碎达到了新的下流程度。本周，当局强制关闭了在线出版物立场新闻(Stand News)，并对苹果日报的高管们提出了新的指控】
 
-参考：
 
-[RCEP 1月1日生效,推动日本出口增5％](https://cn.nikkei.com/politicsaeconomy/investtrade/47173-2021-12-31-04-59-21.html)
 
-编辑/发文：Kent
+> Democracy everywhere is at risk when the Chinese Communist Party wins.[https://t.co/cB1NDrxArp](https://t.co/cB1NDrxArp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476651741496188929?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 我们必须竭尽全力地确保我们的技术在包括网络在内的各个领域，都超越 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯。
+
+
+
+> We must do everything in our power to ensure our technology outmatches China and Russia in every domain, including cyber.
+> — Rep. Pat Fallon (@RepPatFallon) [December 30, 2021](https://twitter.com/RepPatFallon/status/1476645766974394368?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “新闻自由在香港持续争取自由的斗争中发挥了关键作用，这些逮捕行动是对北京追求权力的可耻提醒。 我将继续为追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任而战，”参议员霍利说。 【转福克斯新闻：共和党领导人抨击中共国逮捕(香港)记者：“只是表明他们真的很害怕”
+
+
+
+> “The free press has played a critical role in Hong Kong’s continued fight for freedom and these arrests are a shameful reminder of Beijing’s quest for power. I will continue to fight to hold the CCP accountable,” said Senator Hawley. [https://t.co/tnLJLTXruE](https://t.co/tnLJLTXruE)
+> — Senator Hawley Press Office (@SenHawleyPress) [December 30, 2021](https://twitter.com/SenHawleyPress/status/1476609412253069315?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登必须就新冠COVID-19 的起源问题追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的责任。
+
+
+
+> Biden must hold Communist China accountable for the origins of COVID-19.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 30, 2021](https://twitter.com/MarshaBlackburn/status/1476561331360870402?ref_src=twsrc%5Etfw)
+
+
 
 
 
