@@ -2,33 +2,24 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所将来是否会提供加密货币贷款和保证金/期货交易吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807400/)
+## 战友们参与棺材花运动需要的准备与前提
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1807418/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+第一个要防的是大家在上街的时候别染上病毒。它对家人的威，这是必须要做好准备的。
+
+【郭先生直播摘要】 **2021.12.15 **战友们参与棺材花运动需要的准备与前提
+
+郭先生：
+
+第一个要防的是， 大家在上街的时候别染上病毒，这是非常非常非常重要的。 防毒。第二个就是防止共产党利用当地的所谓，代理他们的华人领袖以及组织， 故意给你设置陷阱，法律陷阱，让你掉入到犯罪。
+
+你像猫本小哥他年轻，他会到现场很激动，来两个人给他一掺和弄两个美女，你看摸我胸了、摸我臀了，是吧？然后倒地了，心脏病了就这种，挖坑陷阱的它肯定要有。就是要防止它设计你。另外一个要防止国内家人，它知道是谁以后，它对家人的威胁，这是必须要做好准备的。 一定会有的，你不能妥协，你妥协那就完了。
+
+猫本小哥被威胁后妥协了，旁边的人看到妥协管用，接下来都会妥协，所以这是很危险的。第三个准备是要有，大家一定要三个防，两个准备，要准备啥呢？大家一定要记住，我们在现场的，还有所有参与这个活动的人，你一定要有一个最好的心理准备，我们要准备好这种事情出来以后，没灭共以前你再也不能回国了，它对你家人除了威胁之外，你会受到骚扰。一系列的骚扰都会有，我就不一一说了。再一个准备身上带着药，大家一定要有药，就是任何情况下伊维菌素、蒿素要有。你把这几个准备好，你把心理准备好，这事情到来的时候你会欣然接受，没满足这个条件你不要上街。
 
 
-杰西：当然，我们正在研究这些产品，我们正在分析它们监管与合规的方面的问题。如果我们推出这些产品，将会意味着什么，但它们肯定是在我们的发展蓝图中。我们每天都在讨论它们。希望在未来，我可以关于这个话题做出一些更具体的公告。
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
-
-编辑/校对/发稿：Hetangyuese
-
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+视频剪辑：北方信使 |听写：雨山溪桥客 | 翻译：叶子|校对：Polaris | 视频制作+字幕：芥末| 编辑&发布：闪电训练
 
  
 
