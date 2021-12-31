@@ -2,32 +2,44 @@
 ---
 
 
-## 中共国良心医生吹哨两周年，网民怀念李文亮
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1806923/)
+## 秦刚向美方指认汉人在新疆被种族大屠杀等同美国的黑人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1806980/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-37.jpg)中共国良心医生吹哨两周年，网民怀念李文亮 网络图片
-据美国之音12月30日报道，在新冠疫情仍然肆虐全球、西安仍然封城的情况下，无数的中共国网民在已故武汉中心医院医师李文亮生前的微博下留言，对这位当初为疫情拉响警报并因此而曾受到不公正待遇的医师表达尊敬与怀念之情。
+**郭文贵先生：**人家说你这个新疆问题，新疆问题你这个、你作为一个大使来了，你要有个新的态度，西方很关注。哇塞！秦刚讲得更精彩了，中国的新疆问题，就是美国对待华人和黑人的问题，什么问题？就是你美国怎么对待华人的、怎么对待黑人的过去。
 
-12月30日是有良心医生之称的李文亮医师首次就新冠疫情“吹哨”两周年的日子。李文亮原为武汉市中心医院的一名眼科医师。2019年12月30日，他在微信同学群中透露他看到的一份检测报告验出SARS冠状病毒高置信度阳性指标，因此提醒群内同学注意自我防护。李文亮也因此成为武汉新冠疫情的第一位“吹哨”人。
+但是扮演的角色不同的是，在中国汉人是当时美国的黑人，就是汉人是被新疆人屠杀的，跟种族大屠杀的，而不是汉人屠杀了新疆人。哇塞！这是我第一回听说呀！
 
-李文亮吹哨之后，中共国不但没有通报疫情，或者采取有效措施阻止病毒扩散，李文亮反而被武汉警方约谈，并被迫签署所谓的训诫书。随后李文亮医生继续工作，直到1月10日感染病毒，于2020年2月7日不治身亡。李文亮去世后，引发了国内外巨大反响。为了平息众怒，北京国家监察委派人对李文亮被医院领导及警方约谈经过进行调查，并对约谈的医院领导和派出所警员作出处罚。2020年4月，李文亮被湖北省政府评为“烈士”，后又被追授中共国奖章。
+他说你们知道吗，在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人多少次屠杀、种族大屠杀了汉人，所有中国汉人过去的这些问题，绝大多数问题都来自新疆、中国的北方，我们就像你美国的黑人一样，曾经比奴隶还惨的。
 
-有的人活着，他已经死了；有的人已经死了，他还活着。李文亮医生用他的生命诠释了作为医者和一个“人”应该有的责任和良心。李文亮的微博已经成为在中共国的高压管制下，民众宣泄内心情感的地方。目前李文亮微博留言区已经有超过100万条评论，人们通过留言寄托对他的哀思，也对仍在肆虐世界的疫情表达感叹。
+但是现在我们对待新疆人是多好呢？就像现在，你看到的我们中国人和很多种族相互和平相处一样，我们对待他们就像亲兄弟姐妹。哇塞！这真的是太夸张了！这个战羊外交已经不是羊了，哇塞！这已经是战魔了啊！
 
-新闻参考链接：[https://www.voachinese.com/a/Thousands-message-late-Chinese-covid-whistleblower-doctor-2-years-on-20211230/6375567.html](https://www.voachinese.com/a/Thousands-message-late-Chinese-covid-whistleblower-doctor-2-years-on-20211230/6375567.html)
+编辑整理：海贼王M.D.LUFFY；
 
-* * *
+字幕文件制作：小满；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+视频制作及上传：Cindy；
 
+技术支持：文肺猫
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News发布：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
