@@ -2,41 +2,40 @@
 ---
 
 
-## 乔•罗根已售罄的演出因加拿大疫苗法规而被迫取消
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1808684/)
+## 郭文贵先生再谈新中国联邦的喜币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808758/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.jpg)
-喜剧演员和播客主持人乔•罗根原定于2022年4月20日,在温哥华的罗杰斯体育馆举行的演出被迫取消。原因是加人体育娱乐公司的业主在12月17日发表声明，宣布由于不列颠哥伦比亚省政府发布的规定，对活动中心的容量有了新的限制。
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在12月29日的直播里，郭文贵先生从虚拟货币的发展谈到了新中国联邦喜币的前景。
 
-根据不列颠哥伦比亚省和省卫生官员今天的宣布，从12月20日星期一开始，罗杰斯体育馆和阿伯斯福德中心的容量将减少到50%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-34.jpeg)
 
-要进入竞技场，所有工作人员、客人和雇员必须出示“已完全接种中共病毒疫苗”证明。未接种疫苗的人，以及部分接种疫苗的人，将被拒绝进入。
+郭先生表示，相较于去年，虚拟币的市值如今上涨超过13倍。其中，比特币的价格更是一路坐过山车般的跌宕起伏。 再者，全球金融市场的法币也在过去两年间超发约260万亿美元，而这些巨额超发或将通过战争重组，或将分别淹没在金融系统和经济活动中。
 
-罗根在9月感染了中共病毒并已完全康复，虽然他没有接种中共病毒疫苗，但对该病毒已有自然免疫力。
+郭先生补充道，我们正面临着货币革命中数字货币最伟大的时代。因此，未来世界的第一大金融力量一定是虚拟币。其原因在于，没有人能阻挡虚拟币成为人类躲避金融、病毒及疫苗、政治与经济灾难的避险池，或是成为法币超发导致通货膨胀的蓄水池。
 
-虽然票已售罄，但这项规定意味着罗根将不被允许参加自己的演出。
+郭先生也解释道，包括比特币在内的一些去中心化虚拟货币没有支付系统，其用户也没有经过合法的KYC。为此，这些虚拟货币大多成为犯罪与恐怖份子的洗钱工具，其在未来必将被瞬间消失。
 
-12月24日，罗根在其播客 “The Joe Rogan Experience “上宣布，由于新冠疫苗的规定，在加拿大的演出很可能会被取消。
+与之相对的，喜币作为中心化负责、去中心化加密技术的虚拟货币，其资金来源全部经过严密的KYC且有自己的支付系统。另外，价格稳定喜币还能支撑起大宗交易，并有国家主权货币的属性。最终，喜币将成为未来虚拟币的开拓者和游戏规则制定者。
 
-此后，Ticketmaster公司确认该演出已被取消，所有门票将被退还，购票者不需要采取任何行动。
+此外，郭先生还提到了一富可敌国且在全球有巨大影响力的某世界级机构掌门人对喜币的评价，即，未来5年内，喜币也许还不为大众所识，但五年后喜币将在世界一枝独秀。
 
-备注：
+参考链接：[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-[新闻来源链接](https://thecovidworld.com/joe-rogans-sold-out-show-in-canada-canceled-due-to-vaccine-mandate-i-dont-think-i-can-even-get-into-the-country/)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

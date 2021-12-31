@@ -2,38 +2,61 @@
 ---
 
 
-## CDC承认PCR测试存在重大缺陷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807887/)
+## 历史性秘密会议：香港神职人员给习神打工
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1807934/)
 
-作者：纽约香草山文艺部 – 宁文静；纽约香草山翻译部 – defiance
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1933.png)
 
-12月29日，美国疾病预防和控制中心CDC主任瓦伦斯基，在接受电视采访时承认，通过PCR方法检测中共病毒存在重大缺陷，并表示，在隔离5天后，只要没有相关症状，个人不需要通过PCR检测呈阴性，作为结束隔离的条件。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-53.jpg)
-而早在7月，CDC就悄悄在官网上公布，12月31日以后，CDC将撤销PCR测试的紧急使用授权，承认PCR测试不能有效区分流感和中共病毒。
+据四位神职人员称，在大陆驻香港代表处组织的一次史无前例的会议上，中共国主教和宗教领袖向香港天主教高级神职人员介绍了习近平主席（习神）关于具有”中共国特色”的宗教愿景。
 
-这一结论激怒了许多美国人。政治评论家尤西表示，这意味着在过去的21个月里，人们无理由地被多关了几天甚至几周。
+参加或了解10月31日会议的神职人员称，这是北京试图影响香港教区的最坚定的行动，香港教区对梵蒂冈负责，包括一些长期以来一直在半自治领土上捍卫民主和人权的高级人员（主教）；香港的天主教领袖过去曾单独会见过他们的大陆同行，但这是双方第一次正式会面–也是由大陆宗教官员第一次促成的会面；尽管这次会议具有象征意义（需要公开），但大陆官员和宗教领袖普遍避免了公开的政治信息。
 
-参考链接：
+这次会议没有公开披露，它也揭示了一些宗教人士、政治家和外交官所描述，北京中央政府驻香港联络处不断扩大的作用，或中共伪政府办事处在香港正式代表大陆，但传统上一直保持低调。
 
-- [After CDC’s Rochelle Walensky Admits COVID-19 PCR Tests Have A Major Flaw, Conservatives Demand Answers](https://www.dailywire.com/news/after-cdcs-rochelle-walensky-admits-covid-19-pcr-tests-has-a-major-flaw-conservatives-demand-answers?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
-- [HUGE. CDC Withdraws Use of PCR Test for COVID and Finally Admits the Test Can Not Differentiate Between the Flu and COVID Virus](https://www.thegatewaypundit.com/2021/12/huge-cdc-withdraws-use-pcr-test-covid-finally-admits-test-can-not-differentiate-flu-covid-virus/)
+中联办和国家宗教事务局的官员监督了缩放会议，来自中国大陆国家支持的官方天主教会的三位主要主教和大约15位宗教人士，以及香港的大约15位高级神职人员参加了为期一天的会议。
 
+梵蒂冈视香港为一个教区，所以它只有一位主教；中联办和国家宗教事务局没有对评论请求，作出回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+习近平一直是中（共）国化的积极倡导者，制定了促进具有他所谓的”中共国特色”的宗教以及与党（和国家）更紧密联系的政策。它包括将宗教与中（共）国文化、爱国主义，以及执政的共产党（和国家）的目标更紧密地联系起来，以实现习神的”中国梦”。
 
-总编：Irene木木
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
+“这只是第一步，我觉得他们知道他们不能过于沉重或教条地进入这个领域；我们都知道「中共化」这个词背后有一个政治议程，他们没有必要把它说出来。”第一位教士说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“习近平是房间里的大象，”第二位教士说。
+
+两位教士说，香港方面广泛地谈到了长期以来的文化政策，避免给予任何政治上的冒犯和任何可能招致大陆干涉的话题。
+
+有三位教士如此说，当时的候任主教周守仁只是在活动开始后短暂出席，这可能会给他在未来的活动中留下回旋余地；他们说，代理主教汤若望枢机主教宣布活动开始和结束。
+
+虽然香港的一些政府和商业精英是天主教徒，而且亲北京，包括林郑月娥，但其他天主教徒长期以来一直积极参加支持民主和反政府运动。
+
+本月早些时候，习近平在北京举行的一次会议上说，中共国的所有宗教都需要拥护共产党，扩大了他长期以来的政策之一。
+
+“（我们）必须保持党在宗教工作上的基本方向，我们必须继续我们国家的宗教中国化方向，我们必须继续把大量的宗教信徒，团结在党（和政府）周围，”习神说。
+
+依然坚守
+
+一些外交官和活动人士说，他们正在密切关注北京在2020年6月对香港实施全面的《国安法》后的发展。
+
+他们认为香港广泛的宗教自由和传统，如法治，是“一国两制”模式的历史遗留财产之一（英国在1997年将其前殖民地交还给中共国统治）；《基本法》是管理“一国两制”的小型宪法，明确规定了良心自由和广泛的宗教自由，包括公开传教的权利。
+
+香港的教会基本上按照1997年以前的路线运作，与梵蒂冈保持密切联系，并接纳了大量外国传教士。
+
+梵蒂冈官员说，中共国和罗马教廷在2018年达成的一项协议，通过给予中共国伪政府在梵蒂冈任命主教方面的重要发言权，来缓解长期以来的摩擦是不适用于香港。
+
+中共国和香港官员一再表示，香港广泛的自由，包括宗教信仰和归属的自由，仍然保持不变。
+
+有三位神职人员说，10月的（历史性秘密）会议结束时，双方达成了一项松散的谅解，即今后应举行会议，但没有确定日期。
+
+其中有一位神职人员说：“我们在香港的压力越来越大……我们中的一些人认为（中共化）这是习神时代的标志。我们将不得不巧妙地进行抵制。”
+
+新闻来源：[reuters.com] [Historic conclave: Chinese bishops, priests brief Hong Kong clerics onXi’s religious views](https://www.reuters.com/world/china/exclusive-historic-conclave-chinese-bishops-priests-brief-hong-kong-clerics-xis-2021-12-30/) | 发布时间：2021年12月30日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
