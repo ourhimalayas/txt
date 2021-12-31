@@ -2,37 +2,30 @@
 ---
 
 
-## 做一个自豪的新中国联邦人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1808136/)
+## 数百名墨西哥人就新冠病毒提出对中共国和世卫组织的法律诉讼
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1808180/)
 
-作者：纽约香草山农场健身部 – 幸福鸟
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日的大直播中，七哥和同心同框的战友们，都流露出对麻木、愚蠢、懦弱、自私、傲慢无礼、缺乏修养（尤其是很多国人在海外的所作所为造成了极坏的影响）的国人感到悲哀、失望、羞耻和痛心。我也有同感！
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture4-1.png)图片来自网络
 
-由于中共的长期洗脑，环顾四周或想想我们那些尤其在国内的华人亲朋好友，有几个懂得尊重别人、而不轻易臧否人物？有几个真正懂得和能够爱自己和爱别人？有几个有信仰、心存感激地珍惜所拥有的一切？有几个能路见不平，拔刀相助？有几个不是自扫门前雪，抱着多一事不如少一事的理念，在“躲进小楼成一统，管它春夏与秋冬”的意境中苟且偷生？
 
-有几个能够优雅文明地去待人接物？有几个能在与人交往时真正给人带来启迪、愉悦和欢乐？有几个能够带着同理心、慈悲心去包容和理解别人？有几个能够摆脱贪嗔痴慢疑？有几个能真心祝福别人并为发生在别人身上的好事而喝彩、为别人的不幸而心痛？……
 
-相信我们的答案都是一致的：寥若晨星！而至少我这里的美国朋友，人人都是这样的。跟他（她）们交往非常轻松愉快！这就是文明与不文明的区别所在啊！
+数百名墨西哥人一起向在日内瓦的联合国提交对中共国和世界卫生组织的指控，指控他们在管理新冠大流行方面的疏忽，违反了《世界人权宣言》，并寻求经济赔偿。
 
-我们新中国联邦人都在努力做文明的、有信仰的、有正义感的人。我们可以满怀自豪地对人说：我是新中国联邦人！
+赔偿数额从因新冠病毒感染而获得的20万美元到因感染新冠病毒而导致死亡的80万美元不等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+例如，海梅·米豪斯 (Jaime Michaus) 因女儿死于新冠病毒感染而深受打击。他说：“我的心情很复杂，因为我似乎从我女儿的死中获利”。他的女儿去世时只有25 岁，留下一个月大的婴儿。这位 63 岁的退休人员说：“再多的钱也不能让她回来，但我这样做是为了我孙女的未来。”
 
-**校对/发稿：童谣**
+另有一名35岁的加油站员工在感染病毒后也在寻求赔偿，他说：“我从来没有患过高血压，现在我的血压上下波动，这很危险。”并说：“我一只耳朵出现耳鸣。我的视力也很模糊，不得不戴眼镜。”
 
-**更多资讯，更多关注**
+墨西哥报告了近 30万例因感染新冠病毒而死亡的案例，成为世界上死亡人数最高的国家之一，同时有超过395万例确诊病例。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+自2019 年12月在武汉首次发现冠状病毒以来，全球已有超过 540 万人死亡。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+如果这些诉讼能够成功的话，将给世界上受新冠病毒伤害的人们提供了一个案例。其总体的赔偿金额将是不可估量的。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：[Hundreds of Mexicans join in legal action against China and the WHO over COVID-19](https://www.sbs.com.au/news/hundreds-of-mexicans-join-in-legal-action-against-china-and-the-who-over-covid-19/58da6cf3-262d-4643-9899-36b4adc0a7d9)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
