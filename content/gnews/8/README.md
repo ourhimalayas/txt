@@ -2,10 +2,10 @@
 ---
 
 
-## 日本时隔2个月 新增确诊中共病毒数再次超过500人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806772/)
+## 中共病毒再次全球大爆发 七天日均确诊超104万人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1806786/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._31-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1231-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

@@ -2,20 +2,16 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅交易所的交易平台将有哪些功能？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806648/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 下一步是什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1806673/)
 
 翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-杰西: 首先，会有一个充值的功能, 用户将把现金或加密货币存入他们的喜马拉雅账户，购买信贷。
+椰子: 下一步是什么？
 
-并且可以使用您的HDO信用额度，去购买其它的加密货币。包括HCN，以太币和比特币, 以及未来我们会批准的虚拟资产，都会被列入交易所进行交易。
+杰西: 这将是向大家推出喜马拉雅交易平台。我们对此非常期待。用户将可以通过网络平台上來为账户充值，购买信用积分和执行交易功能。
 
-还有其它的功能，我谈到资产的转换，利用平台上的这些信用，你可以把比特币转换为以太坊，你可以转换几乎所有的货币，在他们上线后，所以我们正在期待。我们期待一个稳固的交易所，未来会包含很多的交易货币。
-
-当然，还有取款功能：用户可以将现金或加密货币提取或转移到他们登记在平台上的白名单地址。
-
-最后我还想提到的就是喜支付的应用程序，使用H-Pay手机应用程序。你也可以将资产转移账至已加入到白名单上的地址。
+展望未来，我們的平台会新增其他获得批准的加密货币对。所以我们期待着这一点。而且，用户不仅可以使用美元，还可以使用其他法定货币来为他们的账户充值。
 
 参考来源：
 1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
@@ -24,7 +20,7 @@
 
 编辑/校对/发稿：Hetangyuese
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
 **更多资讯，更多关注**
 
@@ -34,7 +30,9 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+
+
 
  
 
