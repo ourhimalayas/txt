@@ -2,42 +2,24 @@
 ---
 
 
-## 有声|中国移动CMLink业务退出加拿大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807242/)
+## 辉瑞与中共支付宝合作打造“疫苗”监管平台
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807247/)
 
-配音：香草山健身部 – 玫瑰园
+采编/编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-5.jpg)
+据美国《国家脉动》12月29日报道，制药巨头[辉瑞公司]近期表示，非常自豪和荣幸地能和中共领导人站在一起，并与其在线支付平台[支付宝]合作，共同打造“疫苗通行证”监管平台。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+报道指出，[支付宝]是[阿里巴巴公司]旗下分支，美国国务院已明确认定，[阿里巴巴]深度参与了中共党卫军武器设备的研究、生产及维修工程，并与中共[国家安全局]有着密切的合作，协助其实现“技术促进的监视和社会控制”。
 
-12月28日，中国移动加拿大官网突然宣布，应加拿大联邦政府要求，该公司CMLink业务将于2022年1月5日起停止运营。 这一突发消息在加拿大华人圈引起巨大震动。
+值得关注的是，[支付宝]和[辉瑞公司]之间的合作关系发生在“新冠病毒”疫情全球爆发的前一年，随着疫情在该国的蔓延，中共当局立即依靠该平台实施了其全民疫苗护照计划。
 
-CMLink主要涉及一卡多号业务，新用户购卡申请即日停止，旧卡可以使用到2022年3月底，中共国内地和香港号码将被收回。这将对那些使用大陆号码办理微信支付和银行业务的用户产生极大的影响。
+此外，由于中共党内的激烈政治斗争，[阿里巴巴]最近被当局全面整顿，并要求该公司应将所谓“政权的利益”置于“向外界报告网络安全漏洞的责任之上”。
 
-本月初，美国联邦通讯管理局也吊销了中国电信214公共运营商牌照，终止了其美国境内的无线转售业务。
+校对编辑：硫酸羟氯喹64
 
-原文链接：[中国移动CMLink业务退出加拿大](https://gnews.org/zh-hans/1805678/)
+发稿： 苦尽甜来 (文來）
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
 
  
 

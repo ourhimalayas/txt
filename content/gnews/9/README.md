@@ -2,23 +2,22 @@
 ---
 
 
-## 马斯克的SpaceX再获大额融资
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807363/)
+## 中共因人气艺人和高层官员而逮捕网民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1807378/)
 
-采编：青青        编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/07-image-3.jpg)
-据【每日电讯报】12月30日报道，埃隆-马斯克旗下的[太空探索技术公司]SpaceX在最近的一次股权融资中获得近3.4亿美元的太空技术开发资金。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1919.png)[图片来源](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
+12月31日早间新闻消息：中共当局拘留了三男一女，说是因为他（她）们在互联网上散布虚假谣言，讲一位人气女演员和国家媒体的负责人有染。
 
-据悉，SpaceX在今年10月增发股权而获取7.55亿美元后，该公司目前的市场估值已达1003亿美元，而成为当之无愧的“巨型科技独角兽”。
+香港媒体上周报道，38岁的中共国当红女演员佟丽娅和54岁的中共中央电视台台长、中共中央宣传部副部长慎海雄已经再婚。佟丽娅在今年5月宣布离婚，但互联网上称两人有婚外情的帖子接连不断。之后，北京公安机关宣布，两名30多岁男子和一名40多岁妇女因散布相关通奸和再婚的虚假谣言被拘留。
 
-报道称，SpaceX目前正在进行 “星际飞船”开发计划，并试图通过其研制的新型太空船将人员和货物带到月球、火星甚至更远的太空。马斯克则在两天前宣称将有望在10年内将人类送往火星。
+另外，佟丽娅的经纪公司在29日的声明中否认她有外遇或再婚。说佟丽娅现在是单身，从未有任何不道德行为。并表示已经向有关部门举报了这些恶意帖子。
 
-校对编辑：硫酸羟氯喹64
+信息来源：[「中国人気女優と国営メディア副部長が不倫」などとデマか　男女3人拘束（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d1238e2bffdb3e5080179097e61dbcf3349008c7)
 
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://www.dailywire.com/news/elon-musks-spacex-completes-337-million-fundraising-round?utm_source=thepostmillennial.com&amp;utm_medium=hotwire&amp;utm_content=dailywire-rightrail-sidebar)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

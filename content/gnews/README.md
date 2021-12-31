@@ -27,101 +27,101 @@
 ### [辉瑞与中共疫苗护照平台合作并“很自豪与中共站在一起”](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？](/content/gnews/5/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 交易所和Himalaya Pay App将在何时上线启动？](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [每日快报：COVID与腐败的联邦统计](/content/gnews/6/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？](/content/gnews/6/README.md)
+ ` 纽约香草山MOS01`
+
+### [每日快报：COVID与腐败的联邦统计](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国的粮食危机已迫在眉捷](/content/gnews/7/README.md)
+### [中共国的粮食危机已迫在眉捷](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [中共因人气艺人和高层官员而逮捕网民](/content/gnews/8/README.md)
+### [中共因人气艺人和高层官员而逮捕网民](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马斯克的SpaceX再获大额融资](/content/gnews/9/README.md)
+### [马斯克的SpaceX再获大额融资](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [饱受封城之苦的西安民众抱怨“蛋尽粮绝”](/content/gnews/10/README.md)
+### [饱受封城之苦的西安民众抱怨“蛋尽粮绝”](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西安的中共病毒疫苗灾难刚刚开始](/content/gnews/11/README.md)
+### [西安的中共病毒疫苗灾难刚刚开始](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [以色列政府批准中共病毒疫苗第二加强针](/content/gnews/12/README.md)
+### [以色列政府批准中共病毒疫苗第二加强针](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [被推特永久封禁，马龙博士继续在盖特揭示真相](/content/gnews/13/README.md)
+### [被推特永久封禁，马龙博士继续在盖特揭示真相](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共疫情下的人生百态——J先生回国探父之路](/content/gnews/14/README.md)
+### [有声|中共疫情下的人生百态——J先生回国探父之路](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [串珠509:共产党可能真的要放最毒最毒的毒啦！](/content/gnews/15/README.md)
+### [串珠509:共产党可能真的要放最毒最毒的毒啦！](/content/gnews/16/README.md)
  ` 郭爆料串珠`
 
-### [各主要国家中共病毒新增确诊数创新高](/content/gnews/16/README.md)
+### [各主要国家中共病毒新增确诊数创新高](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [中共正将生物病毒技术军事化](/content/gnews/17/README.md)
+### [中共正将生物病毒技术军事化](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声|物资短缺 大量西安民众深夜求救](/content/gnews/18/README.md)
+### [有声|物资短缺 大量西安民众深夜求救](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP](/content/gnews/19/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [中共警告不要在台湾问题上越过“红线”](/content/gnews/20/README.md)
+### [中共警告不要在台湾问题上越过“红线”](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [串珠508:废除郭七条，全面开战！](/content/gnews/21/README.md)
+### [串珠508:废除郭七条，全面开战！](/content/gnews/22/README.md)
  ` 郭爆料串珠`
 
-### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/22/README.md)
+### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [纽约州民主党再提限制言论议案](/content/gnews/23/README.md)
+### [纽约州民主党再提限制言论议案](/content/gnews/24/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [辉瑞与中共支付宝合作打造“疫苗”监管平台](/content/gnews/24/README.md)
+### [辉瑞与中共支付宝合作打造“疫苗”监管平台](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声|中国移动CMLink业务退出加拿大](/content/gnews/25/README.md)
+### [有声|中国移动CMLink业务退出加拿大](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [博彩行业及相关法律](/content/gnews/26/README.md)
+### [博彩行业及相关法律](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [马斯克自认为解开了比特币最大的谜团](/content/gnews/27/README.md)
+### [马斯克自认为解开了比特币最大的谜团](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？](/content/gnews/28/README.md)
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [不满中共和世卫疏忽疫情 数百名墨西哥人提出集体诉讼](/content/gnews/29/README.md)
+### [不满中共和世卫疏忽疫情 数百名墨西哥人提出集体诉讼](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大安省乳制品价格或将大幅上涨](/content/gnews/30/README.md)
+### [加拿大安省乳制品价格或将大幅上涨](/content/gnews/31/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声|西安出血热-疫苗后遗症](/content/gnews/31/README.md)
+### [有声|西安出血热-疫苗后遗症](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [郭文贵先生2021年12月30日盖特视频（9分42秒）全文字版](/content/gnews/32/README.md)
+### [郭文贵先生2021年12月30日盖特视频（9分42秒）全文字版](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德媒：中共国有个新毛泽东](/content/gnews/33/README.md)
+### [德媒：中共国有个新毛泽东](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|文革2.0时代将给百姓带来深重苦难](/content/gnews/34/README.md)
+### [有声|文革2.0时代将给百姓带来深重苦难](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [健身部内聊写作，健身又健脑——农场健身部的冬日小景](/content/gnews/35/README.md)
+### [健身部内聊写作，健身又健脑——农场健身部的冬日小景](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
-
-### [香港民主再次被中共肆意摧残](/content/gnews/36/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
 
 ### [美国向中共国展示“不沉没”台湾的战略价值](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

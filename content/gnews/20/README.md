@@ -2,42 +2,41 @@
 ---
 
 
-## 中共警告不要在台湾问题上越过“红线”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807260/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 未来有什么期待？ 喜马拉雅交易所APP
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807271/)
 
-**翻译：文 扬**
-**编辑：李易通**
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image01111111111.jpg)图片来源：**Foreign Affairs**
 
-北京誓言若台独势力“挑衅”，将采取“严厉措施”。
+杰西: 我也可以继续展开讨论我们未来的计划，我们在未来会推出一个应用程序，Himalaya Pay App，而这个应用程序将会允许用户在我们的生态系统中互相收取和发送加密货币资产。用户可以透过这个APP，在我们生态系统里面的商店、餐厅和服务中进行最高效以及安全的交易。
 
-中国国台办警告该自治岛不要推动独立，并承诺如果分裂势力越过“红线”阻止统一，将不退缩。
+Himalaya Pay是一款支付App， 专門为用户提供移动钱包，让他们能在现实世界中以加密货币进行交易。
 
-负责执行北京与该岛有关政策的机构发言人马晓光星期三说，如果”台湾寻求独立的分裂势力挑衅、施压，甚至突破任何红线”，中国将“不得不采取严厉措施”。
+在Himalaya Exchange Web应用程序发布后，我们将会发布IOS和Andriod的手机版本。根据我们的发展蓝图，今年我们就会发布。
 
-虽然这位发言人没有明确说明台北不应越过哪些“红线”，但他谴责了对中国事务的“外部干预”，包括对中国与该岛统一的尝试。发言人说，这种外国干涉，以及台湾自己的支持独立的力量的“挑衅”，在未来几个月内必将变得“更加尖锐和激烈”，他预测该地区已经紧张的局势将变得“更加复杂和严重”。
+最后，在未来，我现在想谈的是真正的喜马拉雅生态系统。我们正在积极寻求与商家一起扩大这个生态系统。这将使我们的用户能够在这个生态系统中选择任何地方消费喜马拉雅币。
 
-马英九警告外国干涉时，似乎指的是美国及其盟国。 美国对台湾保持“战略模糊”，拒绝说明在台北与北京爆发全面军事冲突的情况下是否会部署军队，但华盛顿及其盟国已加强在该地区的军事演习。
+关于这个生态系统，我还想说的一点是，我们确实在销售点系统（POS）以及我们在世界各地的数据中心方面投入了大量资金。因此，我们的基础设施是坚实的，是为这些跨境全球支付设计的。
 
-10月，在白宫对其声明进行反驳之前，美国总统拜登甚至说，美国“致力于”保护台湾免受任何假设的中国攻击。五角大楼本月声称，中国“可能正在准备”对该岛的入侵。
+参考来源：
+1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
+2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
 
-与此同时，台北驳斥了北京的指责，坚称它一直奉行“不挑衅”北京的政策。在周三自己的声明中，它呼吁中国“认真反思其对台工作，并对形势做出正确判断”。
+编辑/校对/发稿：Hetangyuese
 
-虽然北京认为台湾是中国领土不可分割的一部分，但台北坚持认为台湾自1949年以来一直是一个独立的国家，当时中国内战的失败一方逃往该岛。
+![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
 
-本月早些时候，中国外交部长王毅称台湾是“最终会回家”并与大陆统一的“流浪者”，同时指责华盛顿试图破坏台湾海峡的现状。
+**更多资讯，更多关注**
 
-原文链接： [China warns against crossing ‘red lines’ in Taiwan — RT World News](https://www.rt.com/news/544753-china-warns-taiwan-lines/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布：盘古相聚*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
  
 

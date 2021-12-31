@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|西安出血热-疫苗后遗症
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1807193/)
+## 加拿大安省乳制品价格或将大幅上涨
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1807205/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-12月29日，郭文贵先生在最新一期大直播节目中爆料，近期西安爆发的出血热疫情实为当地市民接种某国产高剂量定制疫苗的后遗症。
+采编/编译撰稿：薇文       校对编辑，发稿：硫酸羟氯喹64
 
-据郭先生爆料，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白含量是常规疫苗的5～8倍之多。此疫苗副作用极大，接种后具体表现即为“七窍流血”样的不良症状。
-
-后经盖特网友爆料，此品牌疫苗极有可能为中共国产的智飞龙马三针剂重组疫苗。该品牌疫苗在审批中仅有紧急使用权限。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克。而普通的国产科兴疫苗每针剂的抗原含量仅为3微克。
-
-原文链接：[西安出血热-疫苗后遗症](https://gnews.org/zh-hans/1804687/)
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c-2-edited.jpg)图片来源：TNH
 
 
+据加拿大【CBC 新闻】12月28日报道，由于奶牛场饲料、燃料、清洁用品等的供应价格在疫情期间持续上涨，而导致安省3500多个家庭经营农场的原奶成本不断上升。
+
+报道称，饲料成本，特别是玉米和大豆的涨幅都在20%以上。加上疫情影响，该行业目前已出现大量供应链及采购问题。因此，[加拿大乳业委员会]将从明年2月开始将原奶价格提高8.4%。
+
+此外，原奶价格上涨也使乳制品加工企业的各项成本都大幅增加。据专家预测，明年鲜奶的零售价格将至少上涨10%，而黄油、奶酪和酸奶等乳制品的价格可能会飙升15%。
+
+据新中国联邦对世界经济发展格局的预测，中共病毒及其疫苗灾难摧毁全球供应链的经济大崩溃将在2022年5月前后全面爆发。尽管各国政府或许能在今年苟且应对通货膨胀的打击，但明年即将来临的经济和金融风暴或将成为每一个人无可逃避的梦魇，而唯有新中国联邦将会是我们最值得依靠的诺亚方舟。
+
+* * *
+
+原文链接: [https://www.cbc.ca/news/canada/kitchener-waterloo/dairy-price-rise-2022-1.6297627](https://www.cbc.ca/news/canada/kitchener-waterloo/dairy-price-rise-2022-1.6297627)
 
  
 

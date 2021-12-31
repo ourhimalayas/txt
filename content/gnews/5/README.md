@@ -2,16 +2,16 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 喜马拉雅币首次发行的进展如何？喜马拉雅交易所未来是否会进一步发行更多HCN？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807395/)
+## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 交易所和Himalaya Pay App将在何时上线启动？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807396/)
 
 翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
 
-杰西: 就像我之前所提到的，首次发行是一个巨大的事件，喜马拉雅币一开始就有着巨大的需求，所有的HCN都已分配完毕，但我们仍收到许多来自潜在投资者的查询，表示有意购买HCN。
+杰西: 是的，除非遇到一些无法预见的事情，我们预期在本月底，即10月份推出喜马拉雅交易所。
 
-关于未来的发行，为了应付潜在的需求增长，我们可能会在未来推出后续的HCN发行，但每年会有一个上限，为HCN的市场需求和价值增长提供支持。
+然后，正如我之前提到的，喜马拉雅支付应用程序将在年底前的第四季度发布。
 
 参考来源：
 1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)

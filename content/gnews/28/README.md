@@ -2,35 +2,40 @@
 ---
 
 
-## 10月8日采访喜马拉雅交易所首席执行官杰西·布朗 – 什么是白名单？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1807207/)
+## 马斯克自认为解开了比特币最大的谜团
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1807208/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-杰西: 在多变的监管环境下，我们希望走在合规制度的最前线。这就是为什么我们有白名单制度。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-因此，说实行白名单的目的就是，是为了使注册地址收到的任何喜马拉雅币或喜马拉雅元不会受到限制期的影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1917.png)图片来源：Market Realist
 
-现在，你可能会说，什么是锁定期呢？好的，不用被这个术语吓到。制定锁定期和白名单服务的目的是避免用户在无意间触犯法律。在出现欺诈交易时，用户将会有足够的时间来采取行动。而且，这确实是为了确保我们在所有多个司法管辖区的数字资产合规。
+**整理报道：文扬**
+**编 辑：文泓**
 
-参考来源：
-1. [Himalaya Exchange CEO Interview – English Transcript of Second Episode, October 8th](https://gtv.org/video/id=6160457d304e992109b1bc65)
-2. [Link to the transcript of the First Episode](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-3. [https://gnews.org/zh-hans/1684267/](https://gnews.org/zh-hans/1684267/)
+12月29日，据RT新闻报道，比特币创造者中本聪的真实身份仍然未知，这是金融界的一个持久之谜。然而，埃隆·马斯克说他可能有答案。
 
-编辑/校对/发稿：Hetangyuese
+马斯克表示，高度神秘的加密货币专家尼克·萨博（Nick Szabo）可能是世界上最受欢迎的加密货币（比特币）的创造者。
 
-![This image has an empty alt attribute; its file name is Calender-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-3.png)
+在周二的播客中，马斯克告诉人工智能研究员莱克斯·弗里德曼：“你可以看看比特币推出之前的思想演变，看看谁写了这些想法”。特斯拉CEO还否认了关于他可能是中本聪的指认，表示如果他是中本聪，他也不会隐瞒。
 
-**更多资讯，更多关注**
+马斯克说，虽然他“显然”不知道到底是谁创造了比特币，但萨博的理论似乎是创造世界主要加密货币的基础。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“看起来，尼克·萨博可能比其他人更应该对这些想法的演变负责”，他说：“萨博声称自己不是中本聪，他应该对比特币背后的想法比其他任何人负有更大的责任。”
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+2014年，一个研究小组将中本聪的比特币白皮书，与萨博和其他10位潜在创作者的文字一起研究。他们说：“萨博的文字和比特币白皮书之间的语言相似度之高令人难以置信，”并补充说：“其他可能的作者都没有那么好的匹配度。”
+
+在2008年比特币首次亮相之前，人们看到萨博在他的博客上评论他“打算创造一个现实的假想货币版本”。他曾在1998年至2005年间开发了一种被称为Szabo Bit Gold的数字货币机制。这位密码学家也因研究数字合约而闻名，但他多次否认自己是比特币的发明者。
+
+原文链接： [Musk thinks he solved Bitcoin’s greatest mystery — RT Business News](https://www.rt.com/business/544693-elon-musk-names-bitcoin-inventor/)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
