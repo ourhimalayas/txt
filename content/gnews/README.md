@@ -15,61 +15,61 @@
 
 ---
 
-### [辉瑞骄傲宣称：自豪能与中共领导人站在一起](/content/gnews/1/README.md)
+### [中共煽动民众抵制不成 对沃尔玛再放狠话](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [辉瑞骄傲宣称：自豪能与中共领导人站在一起](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [希望与力量](/content/gnews/2/README.md)
+### [希望与力量](/content/gnews/3/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [七哥说—第40期](/content/gnews/3/README.md)
+### [七哥说—第40期](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [深度：接种过疫苗者“脱落”刺突蛋白，伤害未接种疫苗者](/content/gnews/4/README.md)
+### [深度：接种过疫苗者“脱落”刺突蛋白，伤害未接种疫苗者](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【G时新闻】新冠病毒可进入身体所有器官并存续达230天！](/content/gnews/5/README.md)
+### [【G时新闻】新冠病毒可进入身体所有器官并存续达230天！](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/6/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/7/README.md)
  ` wenwu`
 
-### [共产党操控过的美国政治](/content/gnews/7/README.md)
+### [共产党操控过的美国政治](/content/gnews/8/README.md)
  ` 骄子`
 
-### [全球疫情更新（南非和澳洲疫情差别的原因何在？）](/content/gnews/8/README.md)
+### [全球疫情更新（南非和澳洲疫情差别的原因何在？）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印度批评中共对争议地点命名](/content/gnews/9/README.md)
+### [印度批评中共对争议地点命名](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [事事难成自我](/content/gnews/10/README.md)
+### [事事难成自我](/content/gnews/11/README.md)
  ` 骄子`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/12/README.md)
  ` wenwu`
 
-### [7·24系列——谁是新《国防授权法》最关键人（二）](/content/gnews/12/README.md)
+### [7·24系列——谁是新《国防授权法》最关键人（二）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共使用基因编辑和脑控武器发展军事和消除异议](/content/gnews/13/README.md)
+### [中共使用基因编辑和脑控武器发展军事和消除异议](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [研究表明未接种Covid疫苗者比接种者更了解情况](/content/gnews/14/README.md)
+### [研究表明未接种Covid疫苗者比接种者更了解情况](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Illustration 3:The CCP may release the most toxic and poisonous.](/content/gnews/15/README.md)
+### [Illustration 3:The CCP may release the most toxic and poisonous.](/content/gnews/16/README.md)
  ` 郭爆料串珠`
 
-### [樱花灭共诗——风起长安（新韵）](/content/gnews/16/README.md)
+### [樱花灭共诗——风起长安（新韵）](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍](/content/gnews/17/README.md)
+### [放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [歌手陈升在台湾现场演出中向 “北京维尼”打招呼](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中川翔子入院,是否疫苗反应?](/content/gnews/19/README.md)
+### [歌手陈升在台湾现场演出中向 “北京维尼”打招呼](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [日本首相岸田说对中国要软硬兼施](/content/gnews/20/README.md)
