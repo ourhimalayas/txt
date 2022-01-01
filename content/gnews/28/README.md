@@ -2,45 +2,28 @@
 ---
 
 
-## 台湾总统表示：将追求自由、民主，反对独裁中国政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810962/)
+## 2022虎年求大吉 岸田首相却“骑虎难下”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811290/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.jpg)[图片来源](https://www.fnn.jp/articles/-/292737?display=full)
+2022年1月1日，岸田文雄首相在接受日本广播系统采访时说，今年是日中邦交正常化50周年，“通常情况下，我会有一种庆祝的心情，但着眼目前情势，却有一种紧张感”。他说：“这将是考验日本外交强硬程度的一年”，并表示将以软硬兼施的方式处理这一局势。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/TAIWAN-CCP.jpg)
+在提到第六波中共病毒是否会大范围蔓延时，他表示谨慎，说：“我们会时刻保持应对疫情的紧迫感。”
 
+谈到中共在冲绳县尖阁诸岛周围的挑衅行为以及在香港和新疆维吾尔自治区对人权的镇压行径，首相强调 “对此问题将坚定发声”。同时，他说，“考虑到双方经济方面的联系，必须考虑到稳定日中关系”，并表示将努力避免关系恶化。他还指出，“至于以后，以及关于北京奥运会的事态发展，尚需且行且看。”
 
- 
-图片来源：www.voanews.com
+中共病毒对日本造成的不可估量的影响已然让日本政界有种“穷寇莫追”且“骑虎难下”的窘境。
 
+孰不知，所骑之虎只是一只纸老虎而已。2022年虎年，希望日本政府别再“骑虎难下”，而能做到“不怒自威”，面对是非曲直，能旗帜鲜明，这才是一个政党执政之本。
 
-#### 编译：小红帽
+信息来源：
 
-根据Hindustan Times1月1日报道，** 在来自中国政府不断增加的军事和外交压力下，台湾总统指出，维护其自由、民主和与世界接轨的共识是一项挑战。**
+[中国に硬軟両様で対処　コロナ第6波警戒　岸田首相](中国に硬軟両様で対処　コロナ第6波警戒　岸田首相)
 
-台湾总统蔡英文周六强调，在中国政府不断增加的军事和外交压力下，台湾岛内正面临着维护其自由和民主的挑战。
-
-蔡总统在其元旦讲话中说：“追求民主和自由不是犯罪，台湾支持香港的立场不会改变。”
-
-即使经过几十年的单独治理，中国政府仍然认为台湾是一个分离的省份。台北通过加强与包括美国在内的民主国家的战略联系来对抗中国政府的侵略，即使北京当局继续以战争手段威胁 “台湾独立”。
-
-中国政府周四以好战的语气表示，中国派出了940多架战机进行例行演习，这比台湾当局透露的还要多。
-
-2021年至今，台湾目睹了950次中国人民解放军空军军机侵入其防空识别区，比上前一年增加了60%。
-
-此外，台湾媒体报道说，由于中国政府在过去几年中加大增加了飞行架次，台湾预计入侵次数将进一步增加。
-
-翻译新闻来源：[Freedom is not crime, will pursue democracy against authoritarian China: Taiwan | World News – Hindustan Times](https://www.hindustantimes.com/world-news/freedom-is-not-crime-will-pursue-democracy-against-authoritarian-china-taiwan-101641017490366.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

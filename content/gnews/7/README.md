@@ -2,42 +2,48 @@
 ---
 
 
-## 脱欧的英国不在空客之内则利用冬奥会勾兑中共单买项目
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811458/)
+## 我的亲身经历（一）——初进监狱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1811574/)
 
-**郭文贵先生：**英国为啥是抗议呀？英国是老子不去，你把钱给我，答应我投的什么核电三号，是吧！然后欧洲农业，是不是，买我的这个发动机。因为现在它不处在…它欧盟这个整个空客计划，它都要退出的、退出欧盟。
+作者：香草山文艺部-5月10日NB
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+作为一个国内普通草根，我在生活中到处都能碰到、看到共产党统治下以黑治国的种种恶行。下面是我自己的一段亲身经历。
 
-那你来单独买我发动机吧，单独买我项目吧、单独买我柴油机吗，而且不能买高级的，技术上还不允许。中国说，那你来呀！那你先给我订单呐！两人较量，是吧！那香港问题咋办呢？是吧！这叫讲不成数了，鲍里斯·约翰逊特想勾兑，所以大家记住，这个冬奥会和这个事儿，跟政治一点关系没有，都是利益。
+3年前，因为受到牵连，我被冤判入狱，在监狱的日子对我来说就是经历了一场噩梦。在布满铁丝网的高墙里，令人无法想象的黑暗让我刻骨铭心。我先说一说刚刚入狱时碰到的一个情景。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未命名的设计-2.jpg)
 
-编辑整理：海贼王M.D.LUFFY；
+被刑事判决后的罪犯入狱后有两个月的入监培训期，这两个月的日子是非常恐怖的。
 
-字幕文件制作：小满；
+新犯们在这两个月的活动区域叫入监警区。入狱第一天，狱警对新犯人的训话让我记忆非常深刻。训话的警察是入监警区的指导员，他有几句话是这样说的：“你们从现在开始什么身份都没有，只有编号，名称是犯人。你们不要想有尊严，这里没有公平，你们只有无条件地服从。无论在社会上你们地位多高，势力多大，在这个地方你们都要牢牢记住，我们是有执照的流氓，有的是手段对付你们。你们如果违反监规，轻的是电警棍辣椒水老虎凳等着你，重的要么关禁闭室，要么戴三十斤以上的镣铐，要么加刑期。你们随时随地都不许忘记自己是谁，和警察讲话必须说自己是罪犯XXX，和警察说话时必须蹲下。每个新犯人都要体验半个小时的坐老虎凳、尝电警棍和尝辣椒水。要让你们知道共产党铁拳的分量。”
 
-视频制作及上传：Cindy；
+他说这些话时脸上没有任何表情，口气也是文绉绉的，但是能让人感到一股杀气。我能感觉到犯人听着是很恐惧的，要知道这才是犯人恐怖日子的开始啊。因为这不是影视剧的场景，这些警察是说到做到的，而且会做到极致。
 
-技术支持：文肺猫；
+在监狱期间，我亲眼看到过、体会过犯人每时每刻都处于这种令人绝望的所谓共产党铁拳的威力之下，每个犯人在监狱里度过刑期出狱后，都像被抽过筋一样麻木。
 
-G-News发布：小满；
+郭文贵先生说中国共产党以黑治国，我体会得太深刻了，仅监狱的黑暗就可见一斑。郭文贵先生讲述的在清丰看守所的经历我能感同身受。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+现在各个省份都在兴建监狱，省级监狱达万人规模（刑期5年以上），市级监狱也要容纳几千人。看守所的规模也在扩大。我曾听狱警说过，当前从看守所送监的犯人都在排队等着，监狱太少了，以后犯人还会更多，现有的监狱已经容纳不了了。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+真不知未来是怎样的一幅恐怖景象。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+（未完待续）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+校对/发稿：飞虹
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**更多资讯，更多关注**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

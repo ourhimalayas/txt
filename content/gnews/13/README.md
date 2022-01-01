@@ -2,90 +2,42 @@
 ---
 
 
-## 一战和大英帝国的没落&#8212;-前韩国驻日本外交官禹东周教授系列讲座二
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1811401/)
+## 脱欧的英国不在空客之内则利用冬奥会勾兑中共单买项目
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811458/)
 
-整理：瑞沃路森
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-01-at-19.02.42.jpeg)
-**一、第一次世界大战和大英帝国的解体**
-伊丽莎白一世
-1588年 英国击溃西班牙无敌舰队 取得大西洋的制海权
-殖民帝国正式开始
-美洲大陆首先成为殖民地→出入印度洋→印度→缅甸→中国南部地区（广东 香港）与美国的战争中 失败 美国独立
+**郭文贵先生：**英国为啥是抗议呀？英国是老子不去，你把钱给我，答应我投的什么核电三号，是吧！然后欧洲农业，是不是，买我的这个发动机。因为现在它不处在…它欧盟这个整个空客计划，它都要退出的、退出欧盟。
 
-19世纪 欧洲 Napoleon战争
-19世纪 美国 南北战争 American Civil War
-产业革命  Industrial revolution
-尽管当时的英国已建成世界最大的殖民帝国
-美洲，非洲，印度，东南亚，中国
+那你来单独买我发动机吧，单独买我项目吧、单独买我柴油机吗，而且不能买高级的，技术上还不允许。中国说，那你来呀！那你先给我订单呐！两人较量，是吧！那香港问题咋办呢？是吧！这叫讲不成数了，鲍里斯·约翰逊特想勾兑，所以大家记住，这个冬奥会和这个事儿，跟政治一点关系没有，都是利益。
 
-维多利亚女王时代 19世纪后半叶
-19世纪后半叶
-英国的世界战略（Global Strategy）
-欧亚大陆 全部是岛屿
-英国：欧洲的小岛国
-Eurasia 大陆边缘地带 作为英国殖民地桥头堡
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-第一次世界大战
-英国，法国，意大利在与德国的战争中胜利
-英国国力耗尽
-持续300年以上的英国时代，开始没落。
-在英国衰退的契机、美国的登场
-南北战争以后，美国国力急速膨胀
-到了20世纪，美国经济开始凌驾于英国之上
+编辑整理：海贼王M.D.LUFFY；
 
-第一次世界大战 美国参战
-英国衰退
-在一战与二战之间，美国走到了英国前面
-在英国衰退的实力空白期，美国开始代替英国。
+字幕文件制作：小满；
 
-**二、第二次世界大战和冷战**
-**大西洋宪章（Atlantic Charter） 1941.8**
-**–领土扩张，住民的自由议事、领土返还**
-**–抢夺的主权，自治权返还**
-**–国际通商自愿，所有国家的机会均等Equal Opportunity**
-**–公海的自由航行**
+视频制作及上传：Cindy；
 
-英国与德国对抗已经非常困难
-没有美国支援的英国，无法进行战争
-所以，美国的参展不可避免
-轴心国—独裁主义国家（德，日，意）
-美，英（英联邦国家），法
-苏联和德国，日本
+技术支持：文肺猫；
 
-德国（希特勒）与美英法（盟军）是敌对关系，与苏联也是敌对关系。
-在自由民主主义与独裁主义的对抗中，独裁体制的德国败亡
+G-News发布：小满；
 
-美英自由民主与苏联
-第二次世界大战以后，美国继承英国的世界权力。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**1、欧亚大陆边缘地带，曾作为英国桥头的国家，成为美国同盟国，结束殖民地身份。**
-德国、日本也成为同盟国
-这是历史性的，史无前例
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**2、遏制政策 Containment policy冷战遏制苏联**
-二战后德国、日本灭亡
-冷战后苏联灭亡
-这是独裁体制国家崩溃的顺序
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-自由民主主义VS集体主义
-德国 纳粹主义
-日本 军国主义
-苏联 共产主义
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**3、苏联的崩溃**
-1991年冷战结束
-第二次世界大战 冷战
-1939—1991年 52年间
-与自由民主主义的美国，对抗的体制都灭亡了。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-自由市场经济 —- Free market economy
-自由民主主义 — Liberal democracy.
-自由意志—Free will
-自由精神—Free spirit
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-直播链接：[自由谈四十四期 一战和大英帝国的没落](https://gtv.org/video/id=61c6ff5c00f9a119180a65c6)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
