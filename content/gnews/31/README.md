@@ -2,36 +2,134 @@
 ---
 
 
-## 拜登和中共国因新的“武汉实验室”变成合作伙伴
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1809681/)
+## 明年风水龙虎斗主角
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809716/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a18cz-6osll.jpg)
+[https://gtv.org/video/id=61ce7b5afb16a93456bfa541](https://gtv.org/video/id=61ce7b5afb16a93456bfa541)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1978.png)
+**Miles Guo**
 
-最近发表的一篇论文显示，与中共病毒（新冠病毒、COVID-19）有关的武汉病毒研究所的研究人员与失宠的研究人员Peter Daszak的生态健康联盟（EcoHealth Alliance）对啮齿动物的”重组”新冠病毒，进行了新的研究；该论文将中共国政权以及乔·拜登的国际发展部（Joe Biden’s International Development）列为这项危险研究的资助者和支持者。
+彭丽媛属虎
+Peng Liyuan was born in the year of tiger
 
-10 月的[文件](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)——“一种新型的潜在重组的啮齿类动物新冠病毒，在其刺突蛋白中具有多碱基切位点（Polybasic Cleavage Site）”——描述了研究人员如何对从野外收集的啮齿类动物和鼩鼱进行采样，以了解冠状病毒的流行情况。在 COVID-19 之前的几年里，武汉病毒研究所进行了类似的考察，以收集有关蝙蝠的[数据](https://thenationalpulse.com/2021/06/13/footage-reveals-live-bats-in-wuhan-lab/)。
+龙虎相斗
+Dragon and tiger fight each other (don’t get along well)
 
-武汉实验室的研究人员与美国非营利性的生态健康联盟合作，利用收集的样本发现——他们吹嘘的“[杀手](https://thenationalpulse.com/2021/06/08/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)”病毒（COVID-19）能够“[直接](https://thenationalpulse.com/exclusive/wuhan-report-boasted-of-human-infecting-covid/)感染人类”。
+而且盘古龙属于阳龙
+and Pangu Dragon appertains to yang dragon
 
-这篇新论文统计了来自七家中共国国有科学机构，其中包括一名隶属于武汉病毒研究所特殊病原体和生物安全实验室的[研究人员](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)；该篇新论文是由三名生态健康联盟的研究人员所撰写， 其中包括 CEO 彼得·达扎克 (Peter Daszak)。《国家脉动》此前已经透露了 Daszak 与中国共产党的关系非常广泛，促使他因利益冲突而从《柳叶刀》的COVID-19委员会[除名](https://thenationalpulse.com/2021/06/21/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)。
+地上龙，阳龙，地上龙
+Yang dragon, the dragon on earth
 
-“在这项研究中，我们测试了从中国南方城市和农村地区收集的近 300 只啮齿类动物，”该论文总结了其方法，得出以下结果：在这里，我们从中国南方的三个城市取样了297只啮齿类动物和鼩鼱，代表8个物种。我们报告广州和桂林的新冠病毒流行率分别为23.3%和0.7%，城市地区的样本新冠病毒流行率明显高于农村地区的样本。我们从诺维谷鼠（Rattus norvegicus）中获得了三个冠状病毒基因组序列，包括一种贝特科罗纳病毒（Betacoronavirus，rat coronavirus，大鼠冠状病毒[COV]GCCDC3）、一种阿尔法科罗纳病毒（Alphacoronavirus，RCOV-GCCDC5）和一种新型贝特科罗纳病毒（novel Betacoronavirus，RCOV-GCCDC4）。重组分析表明，有一个潜在的重组事件涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和 Longquan Rl 大鼠冠状病毒（LRLV）。
+而且明年虎是壬水
+Also next year, the year of tiger is Ren Shui
 
-“重组分析表明，存在一个涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和Longquan Rl 大鼠冠状病毒（LRLV）的潜在重组事件。此外，我们在RCOV-GCCDC4的刺突（S）蛋白中发现了一个多碱基切位点RARR，它在RCOV中占主导地位，”论文补充说。
+啥叫壬水知道吗？
+Do you know anything about Ren Shui?
 
-该论文的财政支持者中有几个中国共产党管理的科学机构，包括那些与该中共军方有[联系](https://thenationalpulse.com/2021/06/21/nih-signed-mou-with-chinese-science-org-funding-pla/)的机构。乔·拜登总统的美国国际开发署（USAID，[如下图](https://www.scribd.com/document/550016400/JVI-01173-21)）也资助了武毒所研究的实地动物采样部分。
+水灾，查查中国历史
+Floods, look it up in the Chinese history
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1982.png)
+现在战友们在底下看一看
+Now everyone take a look
 
-新闻来源：[thenationalpulse.com] [Biden and China Are Partners in a New Wuhan Lab, EcoHealth Hunt for ‘Recombinant’ Rodent Coronaviruses.](https://nypost.com/2021/12/28/chinese-residents-starving-as-worlds-strictest-covid-lockdown-bans-them-leaving-home/) | 发布时间：2021年12月31日
+凡是在虎年壬水
+Always in the year of the tiger floods
 
-* * *
+壬水, 不是那个寅，是那个像主字似的
+Ren Shui, the word “Ren” looks similar to “Zhu”
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+壬水寅虎，你看过去发生了什么
 
+Yen Shui, Yin Tiger, look what happened in the past
+
+不是那个寅虎的寅啊
+（Yen ）not the tiger Yin (looking for the correct radical for “Yen”)
+
+是一个壬的，壬寅年
+It’s Yen shui, the year of Yen and Yin
+
+大家看一看这个啊
+Look at this, everyone
+
+阳水、阳木，对了
+Yang water, Yang wood, that’s right
+
+你看看文杨，文杨，盘古是飞天龙
+Look at what Wen Yang have here, Pangu is a flying dragon
+
+盘古是地上龙、火龙、火龙
+Pangu is the dragon on earth, fire dragon
+
+而且是盘古由地下五层连接在一起
+Pangu (buildings) are connected together by all five floors underground
+
+这叫什么？叫做龙韬
+What’s this called? It’s called Dragon Tao
+
+过去叫做韬龙
+It used to be called Tao Dragon（control）
+
+苍龙、渊龙、火龙
+Canglong, abyssal dragon, fire dragon
+
+所以说你看看就是你说对了，荣光依旧
+You are right, Glory Remains (an audience’s nickname)
+
+这对彭丽媛是大伤
+This (dragon head design) is a huge impact to Peng Liyuan (her destiny)
+
+然后小白接近了，JessicaG也知道是属蛇
+Xiao Bai is close, JessicaG also knows it’s about snakes (audiences are guessing an answer)
+
+你就不知道属虎跟蛇有啥关系？
+You just don’t know what is the Tiger has to do with snakes?
+
+跟蛇没关系
+It has nothing to do with snakes
+
+政清就明白，你们都蒙对了
+Zhengqing understood, you all got it right
+
+但就是不往前深入，这啥事儿不深入嘛
+But you just didn’t go deeper than that. Why not?
+
+兄弟姐妹们，是吧？
+Right? Brothers and sisters
+
+说对了，他（习近平）相信了
+You are correct, he (Xi Jinping) has believed it
+
+他相信了盘古这个龙对彭丽媛是挑战，绝对的挑战
+He believes that this dragon of Pangu designed is a challenge to Peng Liyuan, an ab-solute challenge
+
+而且明年是壬水寅虎，明年是水灾之年
+Also, next year is the year of Yenshui and Yin Tiger, that means next year would be the year of floods disaster
+
+所以必须在春节前，一定要搞
+So (reconstructing Pangu’s dragon head design) must be done before the Chinese New Year
+
+**原视频链接:**[https://gettr.com/post/pkck7hb2d1](https://gettr.com/post/pkck7hb2d1)
+
+Date:12/22/2021
+原视频标题: 明年风水龙虎斗主角
+Next year’s feng shui, dragon and tiger fight
+原视频日期：2021/12/19
+原视频链接:https://gettr.com/post/pkck7hb2d1
+任务编号：KC382(3312)
+视频时间段 : 0:00-01:58
+
+中听校: 洛杉矶盘古农场 -Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
