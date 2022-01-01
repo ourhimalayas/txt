@@ -2,38 +2,31 @@
 ---
 
 
-## 有声|班农先生：我永远不会退缩
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1809975/)
+## 有声|GTV新闻访谈简报|2021年12月29日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1809987/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间11月15日下午，班农在结束了国会的调查后，接受媒体采访。
+配音：香草山教育部 – Rita七号小青蛙
 
-班农说：拜登下令梅里克起诉我，对我无端调查，这是梅里克、佩洛西和拜登犯下的地狱般的罪行；现在，我们已经厌倦了防守，我们要顺势而为，就此展开攻势。
 
-原文链接：[班农先生：我永远不会退缩](https://gnews.org/zh-hans/1669771/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1229text-SC.png)
+文字版原文：[GTV新闻访谈简报|2021年12月29日晚](https://gnews.org/zh-hans/1803801/)
 
 音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
