@@ -2,60 +2,30 @@
 ---
 
 
-## 放射科医生报告，Covid-19 疫苗接种以后，腺病增加了 360倍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1810391/)
+## 老狐狸就是见过的猎人太多了
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1810488/)
 
-翻译：香草山商业部 —文锤
+为什么叫老狐狸呀？老狐狸就是见过的猎人太多了，一闻就知道对方是猎人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+**【****郭先生直播摘要****】 ****老狐狸就是见过的猎人太多了**
 
+**郭先生：**
 
+为什么叫老狐狸呀？老狐狸就是见过的猎人太多了，一闻就知道对方是猎人是吧！就明白了。就是那种感觉是必须时间积累的。七哥就是赔过钱、被骗过钱、又受过损失，被失去过自由，就是一闻就能闻出来。就像我要做什么事情一样，是吧！我说这个事能不能做  你比如说，我们的这个…这个…很多什么，什么GETTR 、Plan A、Plan C、Plan D。我不确定的我就给对方机会，我确定的告诉不可能，而且我告诉我自己，我有三把剑、五把剑，但是我一定会有一把剑  ，是我坚信不疑它会刺到敌人的，我最多我多付出了成本。
 
+但在我的人生哲学里边，我想成功，不在乎成本。我想成功，我就必须比别人快，我相信武学里面，“千招会不如一招绝”  我娘教我的。还有更重要(的)  我相信，我快是决胜之法宝。我要快的质量好，我必胜，所以我知道我怎么胜。我这事想好了，想明白了我就开始行动，谁都挡不住我，而且一定要快。
 
+就像我告诉你欧洲这个哥们发生的事情，你看这旁边的人  没有一个知道的，我不会让任何人知道的，最后告诉你成功的秘诀：万事败于失密。这时候你知道什么最重要吗？你一定要问你自己，谁是你的团队？我在欧洲里面就有好几个王雁平，永远互相不会见面 ，甚至一生都不会见面，甚至一生都不会知道。
 
-一位美国放射科医生匿名报告了今年令人震惊的观察结果。这位健康专家[目睹了](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)Covid-19疫苗被接种后不明原因的[腺病](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.healthline.com/health/adenopathy)[增加了360倍](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)。
+成功的要诀条件只有三个。第一个，你让对方做，对方为什么给你做，你想明白了吗？为什么给你做？你想明白的时候，对方为什么给你做的时候，你就可以开始了。第二条，做完以后，或做不成以后，你该咋办？想完以后这些事你必须做成，你不能让它发生，那怎么办？你想好办法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/download-3.jpeg)[图片来源](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)
-
-“腺病”是肿胀的腺体或淋巴结肿大（[淋巴结病](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.drugs.com/cg/lymphadenopathy.html)）的医学术语。它不是一种特定的疾病，而是多种潜在疾病的重要症状。然而，医生可能没有接受过足够的培训，无法确定何时接种疫苗导致淋巴结肿大。
-
-这位放射科医生表示，担心他会因为报告这些与疫苗相关的观察结果而失去工作，这也是他为什么用匿名的方式。在他原来的工作实践中，他每6个月会看到一例这样的淋巴异常肿大，然而自从启动了疫苗接种计划以后，这位放射科医生每天都会看到大约两到三例这种症状。这大约是原来的 360 倍。
-
-淋巴结在人体的免疫系统中起着非常重要的作用，因为它们携带淋巴液。通过身体组织的液体首先通过淋巴结过滤。[淋巴系统-](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.macmillan.org.uk/cancer-information-and-support/worried-about-cancer/the-lymphatic-system)负责提供白细胞以抵抗感染。如果淋巴结和腺体肿胀，通常表明身体正在感染病毒。其他经常伴随着口腔肿大的症状是流鼻涕、喉咙痛、耳痛、例假不规律和疲劳。
-
-腺病也可能由某些药物和损伤引起。身体任何部位的损伤都会导致水肿，导致受伤部位附近的淋巴结肿大。值得质疑的是，mRNA 疫苗中的刺突蛋白是否会损害全身的细胞和组织。
-
-在某些情况下，淋巴结和腺体肿胀可能表明体内存在癌症。最常见的涉及腺体的癌症是淋巴癌，腺病也可能是白血病的症状，白血病是一种血液和骨髓癌。再次让人值得怀疑的是，covid 疫苗注射是否会诱使身体更容易发展出这些类型的癌症。
-
-**原文阅读：**
-
-**[Radiologist Reports 360X Increase in Adenopathy (Swollen Glands) Post Covid-19 Vaccination – The Expose (dailyexpose.uk)](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)**
-
-原文作者：[captaindaretofly](https://dailyexpose.uk/author/captaindaretofly/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+第三条，当做任何事情的时候，没有做成这件事的钱和做成这件事的人你是永远不会成的，成了也是灾难。我就想好，我有没有这个做成事的钱  有没有做成事的人，这三件事想完了。GO！然后我就开始了。
 
 
 
 
+
+视频剪辑：小蜜蜂 | 听写 ：小蜜蜂 | 翻译： Arthur | 校对：烟波浩淼|视频制作+字幕：刀锋舞者 |编辑&发布：闪电训练
 
  
 
