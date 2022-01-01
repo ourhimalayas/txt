@@ -2,25 +2,31 @@
 ---
 
 
-## 中共利用舆情监控软件在世界搜集相关目标信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1810728/)
+## 有声|mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810875/)
 
-#### 撰稿：彩虹
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1.jpg)图片来源：重庆数锋科技
-12月31日，《国会山报》引述《华盛顿邮报》周五的报道，指中共国正利用内部互联网监控网络的一部分来挖掘西方国家社交媒体的数据，向中共政府人员提供有关外国目标的信息。
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
 
-《华盛顿邮报》查阅核实了几百份中共国的招标文件、合同和公司文件，发现中共国的舆情分析软件（用于检测网络上的政治敏感信息）也被用来在诸如推特（Twitter）、脸书（Facebook）上搜集信息。
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
 
-中共国不仅利用已有的软件来搜集数据，而且还投资（开发）更为复杂的程序以实现其（政治）野心。根据报道，有一项价值32万美元的由中共国有媒体控制的软件程序，正在通过推特和脸书进行数据挖掘，以建立一个针对外国媒体记者和学者的数据库。而根据其他报道说，这个名为“外籍人员分析平台”的项目旨在挖掘推特、脸书和油管（YouTube）等社交媒体平台，以获取“西方知名媒体记者”以及“政界、商界和媒体界关键人员”的数据。
+文字版原文：[mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](https://gnews.org/zh-hans/1805679/)
 
-之前，有关报道还揭示了中共国开发了其他程序来监测和观察香港和新疆的有关外国言论，而这两个地方正是中共侵犯人权严重的地区。根据《华盛顿邮报》的报道，这些（网络）舆情监测行动自2020年初以来一直在进行中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-**新闻来源**
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-[Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

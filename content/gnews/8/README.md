@@ -2,69 +2,45 @@
 ---
 
 
-## 锌能抑制中共病毒与排毒石墨烯
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811570/)
+## 美国顶尖医学院正成为培养医学白痴的洗脑中心
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1811677/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-17.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-31.png)图片来源 ：newstarget.com
 
-你的免疫系统是你抵御所有疾病的第一道防线，特别是传染病（瘟疫），有许多不同的方法来提高你的免疫系统，改善其功能。有一种营养素在你的免疫系统抵御病毒感染的能力中起着非常重要的作用，那就是锌。
+美国迅速发展走向衰落和最终沦为历史的灰烬，因为即使是现在，我们的精英医学院——曾经只专注于使用基于科学最新技术的实践——正在成为马克思主义极左派的宣传中心，它正在利用荒谬的“觉醒”来推动种族分裂，这将导致我们多元文化国家的毁灭。
 
-抗疟疾药物氯喹和羟氯喹是奎宁的合成形式，奎宁是一种在植物中发现的自然存在的化合物。 羟氯喹和氯喹与其他天然化合物槲皮素和表儿茶素-棓酸盐（”EGCG”）一样，是一种锌离子团。
+例证：西奈山伊坎医学院（Mount Sinai’s Icahn School of Medicine），突然之间，“觉醒”比教下一代医生如何无偏见地照顾病人更重要。
 
-锌可能是被大大低估了的中共病毒流行病的参与者。它对健康的免疫功能至关重要，2010年，在体外或”试管实验”中，锌与锌离子团（比方羟氯喹，一种促进锌在体内吸收的锌运输分子）的组合被证明能够抑制SARS冠状病毒。 在细胞培养中，它也在几分钟内阻止了病毒的复制。
+正如《城市杂志》报道的那样，该学校的管理人员去年发表了一篇文章，谈论了该机构长期运行的“文化变革倡议”，该倡议出现在曾经享有盛誉的学术医学杂志上。这篇文章声称：“我们必须走出去寻求真相，其中一部分是接受这一点，如果我们是白人，我们自身就是问题的重要组成部分。我们是结构性种族主义，每天监禁和压迫有色人种，无论他们走到哪里，无论他们做什么，都是问题的部分原因。”
 
-\*注：有趣的是，2010年这项研究的作者之一正是北卡罗来纳大学教堂山分校（University of North Carolina at Chapel Hill）的拉尔夫·巴里奇（Ralph Baric），他是与SARS-CoV-2的产生及其大流行有内在联系的四个人之一，其他四个人是武毒所的”蝙蝠女”石正丽、生态健康联盟的彼得·达扎克和美国白宫的安东尼·福奇。 根据大卫·马丁博士（Dr. David Martin）的说法，达扎克和福奇是这场大流行病的设计师。
+请注意，左派有很多白人辩护者，尽管他们中很少有人真的有任何合法的道歉（如果他们觉得必须道歉，那么也许他们是真正的种族主义者吧？）。但是，当做出这样的声明时，它们是代表所有白人做出的，包括我们这些没有任何理由道歉，并且厌倦了被指责的人。
 
-在下面的视频中，Dr. Roger Seheult 回顾了令人信服的证据，表明抗疟疾药物之所以在治疗Covid方面显得如此有用，实际上是因为它改善了细胞对锌的吸收。 请记住，这个[视频](https://www.youtube.com/watch?v=U7F1cnWup9M&amp;t=95s)是在2020年3月制作的。
+你听说过非裔美国人抱怨被警察拦下，是因为“黑人开车”的罪行吗？那么，被左派文化“觉醒” 警察拦下“白人”几乎是一回事，同样令人反感和厌恶。
 
-中共病毒患者和锌缺乏症有许多共同的症状——正如比尔·萨尔迪（Bill Sardi）所指出的，大部分中共病毒的症状（总共18个症状）与锌缺乏症的症状几乎没有区别。两者共有的症状包括但不限于（[如下图](https://knowledgeofhealth.com/symptoms-covid-19-coronavirus-match-zinc-deficiency/)）：
+无论如何，《城市日报》继续说：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-23.png)
+伊坎医学院最近宣布了一项“医学教育中的反种族主义转型”计划，旨在通过他们自己版本的学校“文化转型计划”，来指导其他医学院。如果伊坎自己的努力有任何指标，这些学校将接受速成课程，了解如何将“白人脆弱”、“侵略者”和“白人至上文化”等概念插入医学教育。
 
-锌和锌离子载体的相关研究:
+根据学术医学文章，伊坎部分通过“聊改变”（“Chats for Change”）实现了自己的转变，这是“一系列月度活动，引发以种族主义和偏见为中心的对话。”文章指出，“聊改变”涵盖了诸如，“我的侵略：接收和交付”、“白人脆弱”和“种族主义根源”等主题。最近，会谈变得更加明显意识形态化，被重新设计为包括“更勇敢和更安全”的内容，例如：“什么是批判种族理论，有什么大不了的？”； “白人至上文化的特征是要实现什么？”； “白人存在和意义是什么？”
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4728566/), NCBI, 2016
+提醒您一下，这些垃圾是由著名的医学院教授的；如果它流行起来——而且确实流行起来了——那么下一代医生将被教导：要对白人患者产生自然的怨恨和怀疑。这才是大问题。
 
+“也许最有说服力的是关于‘白人至上文化’的聊天，根据描述，这是‘禁果’，”《城市日报》援引材料指出。“‘咬一口，它会给你更多的知识和权力，” “对话的最终目标是确定，‘我们是否有办法帮助我们的同事和领导者接受这个概念’——大概是白人至上的普遍性——”而不会过多地影响他们的脆弱性和获得安慰的权利。 ”
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://pubmed.ncbi.nlm.nih.gov/26712783/), NCBI, 2015
+毫无疑问，这东西在多元文化社会中是纯粹的毒药。但是，当这种垃圾宣传作为“治疗白人患者时需要考虑的事情”呈现给医生时，作为一个有生存能力的国家，我们的垮台就注定了。
 
+**点评：文贵先生2017就告诉世界中共除了3F美国计划（搞弱搞残搞垮美国），中共还有一个全世界“灭白计划”。**
 
-- [Physicians work out treatment guidelines for coronavirus](http://www.koreabiomed.com/news/articleView.html?idxno=7428), Korea Biomedical Review, 2020
-
-
-- [Expert consensus on chloroquine phosphate for the treatment of novel coronavirus pneumonia](https://pubmed.ncbi.nlm.nih.gov/32075365/), NCBI, 2020
-
-
-- [Quercetin and Vitamin C: An Experimental, Synergistic Therapy for the Prevention and Treatment of SARS-CoV-2 Related Disease (COVID-19)](https://www.frontiersin.org/articles/10.3389/fimmu.2020.01451/full), Frontiers, 2020
-
-
-- [Quercetin as a Natural Therapeutic Candidate for the Treatment of Influenza Virus](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7824064/), NCBI, 2020
-
-
-- [Quercetin: Antiviral Significance and Possible COVID-19 Integrative Considerations](https://journals.sagepub.com/doi/full/10.1177/1934578X20976293), Sage, 2020
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-21.png)
-
-- [Unravelling the anti-influenza effect of flavonoids: Experimental validation of luteolin and its congeners as potent influenza endonuclease inhibitors](https://www.sciencedirect.com/science/article/pii/S0223523420307261), Science Direct, 2020（图片来源：[福布斯新闻](https://www.forbes.com/sites/brucelee/2021/07/10/graphene-oxide-in-pfizer-covid-19-vaccines-here-are-the-latest-unsupported-claims/?sh=145502c274d7)）
-
-
-与中共病毒有关的症状也与电磁场（EMF）辐射和氧化石墨烯中毒的症状相匹配。 例如，10月份发表的一项研究认为，中共病毒和无线通信系统暴露之间在病理上，有很大的重叠性。 而（拉·昆塔·科伦纳）La Quinta Columna 在6月表示，他公开了大量与口罩、测试棉签和中共病毒疫苗中发现的石墨烯有关的研究。
-
-“氧化石墨烯是一种在机体内产生血栓的毒物，氧化石墨烯是一种产生血液凝固的毒物。氧化石墨烯导致免疫系统的改变。通过使与[谷胱甘肽]储备有关的氧化平衡失衡。如果通过任何给药途径增加氧化石墨烯的剂量，就会引起免疫系统的崩溃和随后的细胞因子风暴……总之，氧化石墨烯是所谓的SARS-CoV-2，即所谓的中共病毒（新冠状病毒）在名为Covid-19的疾病在武汉爆发之前，所挑起的症状”（病毒和疫苗可挑起相同的症状，只是剂量不同而已）。
-
-石墨烯可以被自然地冲出体外。 在我们血液中发现的一种酶，即骨髓过氧化物酶（myeloperoxidase），可以降解氧化石墨烯（graphene oxide）。 例如，酒精（乙醇）或烟草（尼古丁），可以帮助增加这种酶。但也有更健康的选择，支持我们的身体分解进入我们体内的石墨烯。
-
-拉·昆塔·科伦纳的[视频](https://rumble.com/vk4c5q-la-quinta-columa-informs-on-antioxidants-that-degrade-graphene-oxide.html?mref=lveqv&amp;mc=48pz1)解说表示：每一种抗氧化剂，特别是主抗氧化剂谷胱甘肽，都可以降解氧化石墨烯。在拉·昆塔·科伦纳建议的食品补充剂清单中，包括锌和它的离子团，槲皮素。
-
-新闻来源：[dailyexpose.uk] [Zinc Inhibits Influenza Virus, Covid and Helps Our Body Detoxfrom Graphene](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) | 发布时间：2021年12月30日
+新闻来源：[newstarget.com] [America’s top medical schools are becoming woketard indoctrination centers churning out medical morons](https://www.newstarget.com/2021-12-30-americas-top-medical-schools-woketard-indoctrination-centers-churning-out-medical-morons.html)
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

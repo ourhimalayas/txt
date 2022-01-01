@@ -2,44 +2,25 @@
 ---
 
 
-## 台湾总统表示：将追求自由、民主，反对独裁中国政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810962/)
+## 台湾总统元旦讲话呼吁中共不要用军事力量解决问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811289/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/TAIWAN-CCP.jpg)
-
-
- 
-图片来源：www.voanews.com
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-3.png)（图片源自本文链接）
 
 
-#### 编译：小红帽
+1月1日时事通信社消息：台湾总统蔡英文在总统府的元旦讲话中强调，台湾与中国日益紧张的关系，”绝对不是用军事力量可以解决的”。
 
-根据Hindustan Times1月1日报道，** 在来自中国政府不断增加的军事和外交压力下，台湾总统指出，维护其自由、民主和与世界接轨的共识是一项挑战。**
+她呼吁中方避免发生威胁经济稳定的军事冲突，重视社会和人民生活的稳定。蔡英文在讲话中重申了”不会向压力屈服”之台湾的基本立场,,敦促中共当局不要误判形势，不应让军事扩张主义在国内蔓延。
 
-台湾总统蔡英文周六强调，在中国政府不断增加的军事和外交压力下，台湾岛内正面临着维护其自由和民主的挑战。
+关于香港民主媒体主管被逮捕，她表示对人权和言论自由的影响高度关切。并强调：台湾支持香港的立场没有改变。
 
-蔡总统在其元旦讲话中说：“追求民主和自由不是犯罪，台湾支持香港的立场不会改变。”
+信息来源：[「軍事で解決せず」　元旦談話で中国に呼び掛け　台湾総統（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c9b8e9615ce45de123522aa85ca61470632545d1)
 
-即使经过几十年的单独治理，中国政府仍然认为台湾是一个分离的省份。台北通过加强与包括美国在内的民主国家的战略联系来对抗中国政府的侵略，即使北京当局继续以战争手段威胁 “台湾独立”。
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-中国政府周四以好战的语气表示，中国派出了940多架战机进行例行演习，这比台湾当局透露的还要多。
-
-2021年至今，台湾目睹了950次中国人民解放军空军军机侵入其防空识别区，比上前一年增加了60%。
-
-此外，台湾媒体报道说，由于中国政府在过去几年中加大增加了飞行架次，台湾预计入侵次数将进一步增加。
-
-翻译新闻来源：[Freedom is not crime, will pursue democracy against authoritarian China: Taiwan | World News – Hindustan Times](https://www.hindustantimes.com/world-news/freedom-is-not-crime-will-pursue-democracy-against-authoritarian-china-taiwan-101641017490366.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
