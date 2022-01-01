@@ -2,27 +2,31 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-8
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812234/)
+## 以色列开始接种第四剂中共病毒疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1812235/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-HBO VICE的剪辑视频以“阴谋论”开头，把SEC听信中共特务谎言、恶意调查GTV的行为作为污蔑GTV攻击郭文贵先生的借口。但在中共制造的一系列障碍之下，投资者的利益不仅没有受到一分损害，反而在SEC调查的一年当中，GTV从20亿的规模猛增到了600亿。这种事情是前所未有的。 接下来让我们还原事实真相的第8部分：反击HBO VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-42.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-43.png)
-编辑: 童谣
+本文作者：Stranger
+![](https://assets.gnews.org/wp-content/uploads/2022/01/images.jpg)
+2021年12月31日，纽约邮报报道，以色列政府高级卫生官员说，该国正在给免疫系统孱弱人士、老年居民和疗养院员工接种第四剂中共病毒疫苗。
 
-新闻连接: [#HBO](https://www.gettr.com/hashtag/%23HBO) [#VICE](https://www.gettr.com/hashtag/%23VICE) [采访郭文贵先生背后的真相](https://www.gettr.com/post/pkglpna708)
+本周四，以色列的中共病毒感染病例在最近3个月内达到创纪录的4085例。作为全球疫苗接种率最高的国家之一，以色列超过650万人至少接种一剂，超过420万人接种3剂。但种种事实表明，所谓的疫苗对中共病毒根本就束手无策，感染率反而在大规模接种后爆发式增长。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+最聪明的犹太民族在面临死亡的威胁时，遗忘了自己的信仰，失去了基本的常识，盲从于科学宗教，在错误的疫苗之路上越走越远。这场疫苗灾难，对这个民族的伤害恐远远超过当年的纳粹。
 
-校正/发稿：浪迹天涯
+备注：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+[相关连结](https://www.cnbc.com/2021/12/31/britain-approves-pfizers-antiviral-covid-19-pill-paxlovid.html)
+
+审核校对：jake心锁
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
