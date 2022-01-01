@@ -2,23 +2,25 @@
 ---
 
 
-## 美国CDC变相证明中共病毒疫苗无效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812024/)
+## 美数百国会议员要求最高法阻止疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812026/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，据相关媒体报道，美国疾病控制与预防中心CDC表示，自中共病毒奥密克戎变种出现以来，邮轮上的新增确诊病例持续增长。因此，CDC目前已经将邮轮旅行的风险等级调升至最危险的4级。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.14.58.png)
-但CDC也建议民众，无论自身的中共病毒疫苗接种状况如何，大家在出行时都应尽量避免搭乘邮轮。 此外，CDC还补充道，如果民众必须要搭乘邮轮出行，请在确保自身已经完全接种过中共病毒疫苗的同时，仍需加强其他防疫措施，并且需要在旅行前1至3天，以及旅行后的3至5天内接受中共病毒核酸筛检。
+2021年12月30日，据当地媒体报道，由美国47名共和党参议员和136名众议员组成的团体共同要求最高法院阻止联邦政府对包含100名及以上雇员的企业推行的强制中共病毒疫苗接种政策。他们认为，拜登政府和职业安全与健康管理局OSHA此举已经涉嫌越权。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.31.png)
+议员们表示，赋予联邦政府的立法权属于国会，但国会授予机构的权力不应该被滥用。他们强调，中共病毒疫苗强制令属于典型的国家警察权力，而OSHA对企业提出的全国性强制疫苗接种要求已经涉足公共医疗政策，实属超越了《职业安全与健康法》的范围。
 
-有评论则认为，CDC要求已经接种疫苗的旅客继续做好防疫和核算筛查的举措，恰好从侧面证实了中共病毒疫苗并不具备此前CDC所宣传的预防和阻止病毒传染的效力。
+据悉，美国最高法院将于2022年1月7日安排一项与疫苗强制令有关的紧急上诉口头辩论。同一天，大法官们还将听取医护人员对疫苗强制令的挑战。
 
-参考链接：[美CDC：無論疫苗接種情況如何 都應避免搭乘郵輪](https://news.ltn.com.tw/news/world/breakingnews/3785840)
+评论指出，最高法院此次判决将成为反对联邦政府中共病毒疫苗强制令的唯一选择。
+
+参考链接：[Congressional Republicans tell Supreme Court to block Biden’s ‘health police’ vaccine mandate](https://news.yahoo.com/congressional-republicans-tell-supreme-court-225805961.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：童谣
-编辑：飞虹
+总编：Ivy001
+编辑：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

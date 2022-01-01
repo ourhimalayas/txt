@@ -2,69 +2,68 @@
 ---
 
 
-## 全球疫情更新（南非和澳洲疫情差别的原因何在？）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1811896/)
+## 西喜时事新闻简报 — 中共国时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811933/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-7.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 元旦）
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-**一，全球疫情基本数据**
-感染总数：2.88001777亿（日新增128.9万，14天增幅+105%）
-死亡总数：543.3222万（日新增 6,001人，14天增幅–15%）
-每万人感染人数：442.2949 人（除中国外）
+您若想了解全文报导内容，请点击标题链接
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-**三，澳洲疫情和“疫苗”数据**
-感染总数：430,794（今日新增 35,326人）
-死亡总数：2,254人（今日新增 15人）
-每万人感染人数：142.9319人
-以下澳洲疫苗为昨日数据，今日元旦数据未更新。
-“疫苗”毒针注射总数：42,598,706  （日新增160,279针）
-第二针“接种”：1884.5485万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.4%
-16岁以上人口接种至少两剂疫苗的比例：91.4%
+1. [习近平新年贺词隐匿的几个不确定因素](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211231-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%96%B0%E5%B9%B4%E8%B4%BA%E8%AF%8D%E9%9A%90%E5%8C%BF%E7%9A%84%E5%87%A0%E4%B8%AA%E4%B8%8D%E7%A1%AE%E5%AE%9A%E5%9B%A0%E7%B4%A0)
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-35.png)
-今日澳大利亚病例新增再创新高，跨越三万五大关。昨天我们谈到，南非已经度过
-奥米克戎毒株浪潮的疫情高峰。南非的疫情曲线如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-36.png)
-南非的最新消息显示，正如我们之前从南非获得的临床一线医生的早期印象一样，病情严重程度大为减轻。但是我们看到澳洲的住院数字曲线却看起来正在上升之中：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-37.png)
-澳大利亚的中共病毒感染住院人数曲线（深蓝色部分为重症监护室病人数字）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip22.png)
 
-上期的疫情更新我们解释了澳洲的住院率为何升高的可能原因：疫苗毒针的普及和伊维菌素、羟氯喹等药物的稀缺。从上文分享的南非四次疫情曲线图看，我们还应该补充第三个重要原因，那就是经历了前3次疫情，加上大部分人口没有注射疫苗毒针，南非人建立了比疫苗毒针靠谱得的多的群体免疫力，才能够免于如澳洲一般垂直向上，每天都在破历史记录的疫情曲线。
+据《法广网》2021年12月31日电，2022年新年贺词有几处引起分析人士注意，从字面看，习近平讲话时多处以“我”代之，比如说，“父老乡亲的话我都记在心里”，强调自己“父母官”的身份。习近平在2020年贺词中有过近似表述：“大家跟我说了很多心里话，我一直记在心上”，但区别在“大家”与“父老乡亲”上；而2021年（去年）贺词只在开头部分提到“我”，随后一直以“我们”贯通到底。
 
-今天我们就摘要介绍一些发表在《美国医学会杂志》的这篇最新论文，来看一下南非本次疫情研究的一些细节：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-38.png)
-这个图表展示了南非四波疫情的特点，左起第一栏从上到下依次是，吸氧治疗的比例，用呼吸机的人数，收入重症监护病房的人数，住院天数，比较这四个指标，可以发现，第四次疫情相对前三次相当轻微。
+2022年贺词中，习神（我也是从农村出来的，对贫困有着切身感受）的“成绩”自然不可或缺，他特别提到“党的十九届六中全会通过了党的第三个历史决议”，众所周知，这一名为“历史决议”实为习近平歌功颂德的决议，旨在为其20大续任铺路，对习本人的重要性可想而知；关于香港，仅提香港澳门“一国两制才能行稳致远”，但在习近平同日在全国政协新年茶话会讲话中却表达得很清晰很严酷：“贯彻落实爱国者治港、爱国者治澳根本原则……支持和推动香港由乱转治”（以“爱国者治港”之名，推出港版《国安法》，大举镇压香港民主派，“一国两制”名存实亡）。
 
-还有一个重要细节就是住院人数，第四次疫情仅有971人，相对于之前的三次疫情最少是第一次疫情2628人，相比之下第四波疫情的住院人数相对而言很低。可是反观澳洲的住院数字曲线的趋势却看起来实在不太妙。
+在2021年新年贺词中，习近平谈抗疫“取得重大成果”时候引用外国领导人及国际组织负责人的话说，“他们多次赞扬中共国抗疫和为全球疫情防控所作的贡献”（爆发于武汉的新冠疫情至今肆虐世界，国际社会要求调查新冠起源的呼声从来没有停止过）；民不聊生，有人形容，中共“苛政猛于疫也”（武汉、西安的挨饿封城“清零”政策）；习近平在新年祝词最后表示，“我们将竭诚为世界奉献一届奥运盛会。世界期待中共国，中共国做好了准备”，话是很动听的，但是，因为北京当局在新疆，在香港制造的恶劣的人权问题，许多西方国家以各种不同方式“外交抵制”北京冬奥会。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+2. [中纪委也管新疆货？沃尔玛因下架新疆产品传言遭警告](https://www.voachinese.com/a/china-walmart-xinjiang-20211231/6376859.html)
 
-发布：去中心化Math
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip23.png)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《美国之音》2021年12月31日电，中共中央纪律检查委员会国家监委星期五（31日）刊文警告美国零售企业沃尔玛：如果下架新疆产品将“自食恶果”（中共央视与其官方媒体开始涌现山姆会员店“退卡潮”）。
+
+美国指责中共国政府对新疆地区信仰宗教的少数民族群体实施种族灭绝。美国总统拜登12月23日签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），使之正式生效成法。法案禁止新疆产品进口美国，除非企业能提供明确且令人信服的证据，证明产品非由强迫劳动制造。中共国方面否认关于种族灭绝和强迫劳动的指控。
+
+沃尔玛“落难”之际，其在华竞争对手启动了以支持新疆产品为宣传噱头的营销行动。阿里巴巴旗下的盒马X会员店2022年1月1日起开启“新疆好货节”，以专区的方式推广新疆水果、蔬菜、家纺服饰等商品；《华尔街日报》报道，被苏宁易购收购的超市企业家乐福上周五（12月24日）分享了一篇带有“家乐福新疆好物节”标签的帖子，并附上其商店货架上产自新疆的产品的照片；美国科技巨头英特尔最近在官网上发布了一封要求供应商避免从新疆采购产品和服务的信函后，遭到中共国网民的批评并公开向中国客户、伙伴和中共国公众致歉；H&M、耐克等服饰和体育用品企业此前也因拒用新疆棉受到中共国舆论抨击和消费者的抵制。
+
+3. [宗教“元宇宙”化，中共新规严禁网上传教](https://www.voachinese.com/a/CCP-new-regulations-prohibit-online-preaching-due-to-the-religious-metaversilation-20211231/6376853.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip24.png)
+
+据《美国之音》2021年12月31日电，中共国国家宗教事务局12月20日公告“互联网宗教信息服务管理办法”（2022年3月1日生效），这项由中国国家宗教事务局、国家互联网信息办公室、工业和信息化部、公安部以及国家安全部等5个部门联合制定的办法，明文规定除非取得许可（归于习神教），不然任何组织或者个人不得在互联网上传教，不得开展宗教教育培训、发布讲经讲道内容或者转发、链接相关内容，也不得在互联网上组织开展宗教活动，并不得直播或者录播宗教仪式，不得以文字、图片、音视频等方式直播或者录播拜佛、烧香、受戒、诵经、礼拜、弥撒、受洗等宗教仪式。
+
+分析人士表示，从政治层面看，中共特别担心新兴宗教跟异议人士结合，共谋反叛，影响中共政权，重蹈太平天国的覆辙（中共国一直希望能跟梵蒂冈建交，关于主教任命的问题双方持续在交涉中，因此，当异议分子跑到教堂寻求庇护时，中共陷入抓与不抓的两难）；从经济层面看，宗教这一块其实已进入所谓的元宇宙和区块链，其去中心化、分散式的传教和募捐，使得中共难以掌控实际的宗教税收，因此必须严加控管；习近平在12月初的全国宗教工作会议上，提到要坚持宗教中共国化——引导宗教与社会主义社会相适应。
+
+4. [苹果爱中国：为农历新年推出“虎年”主题耳塞](https://www.breitbart.com/tech/2021/12/30/apple-loves-china-launches-year-of-the-tiger-themed-earbuds-for-chinese-new-year/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip25.png)
+
+据《布莱巴特》2021年12月30日电，Beats Studio，这家由说唱制作人Dr. Dre创立、后来被Apple收购的高端消费音频公司，正在推出他们的Beats Studio Buds的”虎年”特别版蓝牙耳机，以庆祝中国农历新年；Beats成立于2006年，在2014年被Apple公司以30亿美元收购，这仍然是这家科技巨头历史上最大的收购案。
+
+“我们正在用我们的特别版Beats Studio Buds庆祝农历新年，”该公司在其官方Twitter账户上[宣布](https://twitter.com/beatsbydre/status/1475632661804761092?s=20)。“作为对虎年的致敬，这款耳机采用了全红色设计，并配有金色的老虎图案装饰。1月1日上市！”Apple 还在日本推出限量版 AirTag 庆祝虎年。作为日本新年促销活动的一部分，在 1 月 2 日或 1 月 3 日从 Apple 订购新 iPhone 12、iPhone 12 mini 或 iPhone SE 的前 20,000 名日本客户将收到 AirTag，上面印有定制设计的老虎表情符号。
+
+5. [3架中共国军用侦察机进入台湾防空识别区](https://www.taiwannews.com.tw/en/news/4394137)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip26.png)
+
+据《台湾英文新闻》2021年12月31日电，[中华民国国防部](https://www.mnd.gov.tw/Publish.aspx?p=79444&amp;title=%E5%9C%8B%E9%98%B2%E6%B6%88%E6%81%AF&amp;SelectStyle=%E5%8D%B3%E6%99%82%E8%BB%8D%E4%BA%8B%E5%8B%95%E6%85%8B)周四（30日）称，一架中国人民解放军空军（PLAAF）的陕西运8电子战飞机、一架陕西运8侦察机和一架陕西运8反潜战飞机飞入台湾防空识别区的西南角（这是本月的第23次入侵）；作为回应，台湾派出飞机，发出无线电警告，并部署防空导弹系统来追踪解放军空军的飞机。
+
+12月至今，共有83架中共国飞机在台湾的识别区被发现，包括46架战斗机、2架轰炸机和35架观测机。
+
+自去年9月以来，中共国增加了对灰区战术的使用，经常派飞机进入台湾的ADIZ，大部分发生在该区的西南角。
+
+***发稿：信心满满***
+
+* * *
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+
+
 
  
 
