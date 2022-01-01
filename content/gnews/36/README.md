@@ -2,38 +2,42 @@
 ---
 
 
-## DC每日热点0101
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1812243/)
+## 麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812307/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/753597EB-6402-45C0-843D-81B9687E569A-scaled.jpeg)
-道琼斯指数 36338.30 ▼0.16%
-纳斯达克指数 15644.97 ▼0.61%
-WTI纽约原油CFD 75.400 ▼2.07%
-布伦特原油CFD 77.901 ▼2.05%
-标普50指数 2,978.47 ▼42.99%
-美元兑人民币 1USD=6.367 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1829.2 美元/盎司
-全球CCP病毒感染人数 288,680,388例
+撰稿：纽约香草山翻译部 -defiance
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+据美国媒体12月30日报道，辉瑞公司出资雇用了参议院共和党领袖米奇·麦康纳尔的前政策主任哈森·马歇尔的游说公司，试图阻止与大药厂相关的2021年虚假索赔修正案的通过。该法案的现行条款对保护公众免受如辉瑞公司等的欺诈行为几乎无效，修正案欲寻求通过将举证责任转移给大公司等措施对举报者进行保护，将更容易追责公司的欺诈行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-43.png)
+据悉，辉瑞公司与游说公司的游说合同中包括反对举报人保护，以及维护辉瑞公司的中共病毒疫苗专利等内容。
 
-1、蔡英文元旦谈话提醒北京防止“内部军事冒进主义扩张”
-2、美媒：中共国网监触角伸向国外 用数据分析工具压制网上异见声音
-3、拜登将与乌克兰总统泽连斯基通话 并说他已警告普京不要对乌克兰动手
-4、朝鲜举行盛大跨年庆祝活动，有音乐会以及金日成广场的烟花表演。朝鲜官方电视台KRT进行了直播
-5、法国岁末破纪录新增超过23万2千例确诊，
-6、香港又见奥密克戎，国泰紧急决定暂停货运一周
-7、巴黎大区工商会法中交流委员会邀请企业界和文化名人参与促进法国对华出口
-8、据英国《旁观者》（The Spectator）杂志12月30日报道说，该杂志获得的新数据显示，英国的大学从华为获得的资金是之前估计的两倍
-9、《区域全面经济伙伴关系协定》元旦生效 有关国家 期盼带动疫情后復甦
-10、特斯拉在中共国召回20万辆后备箱”可能”出现问题的车辆
-11、俄罗斯超过65.8万人染疫死亡，跃居全球第2
-12、纽约市近期日增万人染疫，仍恢复跨年活动，时代广场1.5万人倒数跨年
-13、美官员要求再推迟5G部署 确保航空安全
-14、中共最高纪律检查机构发文敲打美国零售企业山姆（Sam’s Club）
-15、 美国务院警告出国旅行公民：制定应急计划
-16、纽约侯任市长亚当斯提防疫六大计划 ：不再封城，将继续私企疫苗令，并考虑强制公立学校接种
+目前，辉瑞公司有80多名说客在册，2021年这方面的支出超过700万美元。马歇尔的公司收到了其中的10万美元。
 
+新闻链接：
+
+
+
+> [EXCLUSIVE: Top Mitch McConnell Staffer Leads Pfizer’s Lobbying Charge to Protect Vaccine Patent and Block Bill Holding Big Pharma Accountable for Fraud.](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
+
+
+
+[https://gettr.com/post/pl5qcuf6f1](https://gettr.com/post/pl5qcuf6f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编：童谣
+
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

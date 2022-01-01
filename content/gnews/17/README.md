@@ -2,33 +2,20 @@
 ---
 
 
-## 战友情真烛光暖
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1813085/)
+## 2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1813148/)
 
-作者：纽约香草山健身部–文鹰
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-夜深沉，直播声起，凝视荧屏思战友。
-静心下，构思文笔，渐入佳境蕴思绪。
-一瞬间，屏幕黑闪，室内照明突熄灭。
-惊忙中，点燃红烛，漆黑夜寒映孤影。
-神安后，划亮手机，进入频道览信息。
-香草山，农场家园，四面八方聚英豪。
-健身部， 健身健心, 兄弟姐妹齐一心。
-写作组，灭共佳文，青出于蓝胜于蓝。
-叙衷肠，战友勉励，温暖如春驱寒冬。
-战友爱，情真意切，万里同心烛光暖。
+撰稿：大浪小水花
+![此图像的alt属性为空；文件名为Screen-Shot-2022-01-01-at-11.49.41-AM.png](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM.png)图片来源：GETTR
+郭文贵先生在2022年元旦大直播中，再次向战友们展示了《新中国联邦宣言》。 郭先生强调《新中国联邦宣言》没有任何政治、利益、名誉之心，内容从天到地，从人到动物，从动物到植物，从植物到环境，到山到水，我们不仅说中国人的事，我们还要说全人类的事，全天下的事。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
-**更多资讯，更多关注**
+郭先生向战友们展示了宣言第一页那句郝海东先生宣读的名言：“灭共是正义的需要”。郭先生指出，郝海东先生宣读宣言，是告诉世人应该向《新中国联邦宣言》一样对天地对人充满敬意和爱意。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+郭先生提醒战友们永远不要忘记，我们是因为《新中国联邦宣言》走到一起。不论是谁，不论是铁血组、联盟委员会，还是战友们，谁忘记了《新中国联邦宣言》谁就一定会被淘汰。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+参考链接：[https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e](https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：Shifter
 
  
 
