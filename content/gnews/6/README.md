@@ -2,24 +2,30 @@
 ---
 
 
-## 音乐、人生——人可以能力不行，但不能造假
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1813188/)
+## 未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813208/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM.png)
-在一个充斥着暴力、恐吓、谎言和欺骗的国家，它的音乐也只能是虚假的、变态的、肮脏的、扭曲的。郭先生在2022年1月1日的大直播中说，我们的音乐不是“盆景”，它是真实的、愉悦的、自然的。郝海东先生说，“**人可以能力不行，但不能造假**。”
+据《babylonbee.com》，2021年12月31日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-44.png)图片源自原文
+俄亥俄州克利夫兰——当地未接种疫苗的男子查克-多恩利在这个假期感到非常孤独，他所有接种疫苗的朋友现在都感染了中共病毒。
 
-钊颖女士讲述了曾经和包括谭咏麟、曾志伟在内的港台歌手同台假声的“趣事”，她以为只有业余歌手才假唱，其实专业歌手也别无二致。而在大陆这种现象比比皆是。
+多恩利说：“也许我应该直接接种疫苗。然后我就会像其他人一样感染COVID，那样我和我接种过疫苗的朋友就有话可说了。现在我自己一个人感觉很健康。真是无奈！”
 
-郭先生说，从昨天的“音雄”节目中，看到了一个杂草和野草，和宫廷里养的盆景的完全不同。宫廷里再好的盆景，只供某些人欣赏，只取悦一人，是变态的、非自然的和扭曲的。而深山中的鲜花和大树它是自然的、愉悦的、无我的，是百分之百真实的。
+多恩利对记者说，几个月前，当他自己得了COVID时，他也感到被抛弃了，大家都叫他“奶奶杀手”。他希望，一旦一切恢复正常，他可以因为是克利夫兰布朗队的球迷而被冷落，而不是因为没有接种疫苗。
 
-**郝海东先生说，“人可以能力不行，但不能造假。”这句话不仅是在控诉那个虚假的世界，也是在警示我们，“唯真不破”不只是说个别人听的，也不仅仅是句口号。**
+原文连接：[https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid](https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid)
 
-**和所有艺人一样，我们的人生就是一个大舞台，无论你扮演什么角色，首先面对的也是一个“真”字。想问，今天你“真”了吗？**
+翻译：洛杉矶盘古农场 – TrueSky
 
-参考链接：
+校对：洛杉矶盘古农场 – Mike Li
 
-[2022年1月1日 文贵大直播](https://gettr.com/streaming/plas6p681c)
+编辑：洛杉矶盘古农场–WenXiong
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

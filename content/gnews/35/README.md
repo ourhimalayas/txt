@@ -2,41 +2,30 @@
 ---
 
 
-## 南极极地站多数工作人员感染新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812029/)
+## 以色列开始接种第四剂中共病毒疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1812235/)
 
-作者：银河勇气星 骄子
+本文作者：Stranger
+![](https://assets.gnews.org/wp-content/uploads/2022/01/images.jpg)
+2021年12月31日，纽约邮报报道，以色列政府高级卫生官员说，该国正在给免疫系统孱弱人士、老年居民和疗养院员工接种第四剂中共病毒疫苗。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周四，以色列的中共病毒感染病例在最近3个月内达到创纪录的4085例。作为全球疫苗接种率最高的国家之一，以色列超过650万人至少接种一剂，超过420万人接种3剂。但种种事实表明，所谓的疫苗对中共病毒根本就束手无策，感染率反而在大规模接种后爆发式增长。
+
+最聪明的犹太民族在面临死亡的威胁时，遗忘了自己的信仰，失去了基本的常识，盲从于科学宗教，在错误的疫苗之路上越走越远。这场疫苗灾难，对这个民族的伤害恐远远超过当年的纳粹。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
+[相关连结](https://www.cnbc.com/2021/12/31/britain-approves-pfizers-antiviral-covid-19-pill-paxlovid.html)
 
-当地时间2021年12月30日，据有关媒体报道，比利时伊丽莎白公主南极极地站25名工作人员中有三分之二确诊感染了中共病毒。
+审核校对：jake心锁
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.48.23-PM.png)
-
-消息显示，这些研究人员从比利时飞往南极站的途中曾在南非开普敦进行了为其10天的隔离。而他们在到达极地站后，已经确诊的三例感染者立即被隔离并在随后离开了站点。然而，奥密克戎病毒在极地站内的传播并未停止。
-
-据悉，这25名研究人员全部完成了中共病毒疫苗的全面接种，其中一人还接种了加强针。同时，所有的工作人员均通过了多次中共病毒PCR测试，且被隔离并生活在世界上最偏远的地方。即便如此，奥密克戎变种病毒仍然袭击该基地工作站。
-
-目前，该极地站点已经缩短了工作时间，且暂不会有新人员前往该工作站，剩余的工作人员包括两名随队急诊医生将在南极滞留到2022年1月12日。
-
-参考链接：[美CDC：無論疫苗接種情況如何 都應避免搭乘郵輪](https://news.ltn.com.tw/news/world/breakingnews/3785840)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-编辑：Kathy文艺
-总编：Ivy001
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+上传排版：漂流瓶
 
  
 

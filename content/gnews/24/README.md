@@ -2,33 +2,18 @@
 ---
 
 
-## 有声|大量外省救护车驰援西安显示疫情失控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1812544/)
+## 文贵大直播 1/1 音乐无国界 人须分善恶
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1812965/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FIBVjafWYAAWhmL.jpg)图片来源 GTV
+2022年的第一天，文贵大直播新年特别节目在纽约现场面向全球准时开播。开篇时段，新中国联邦创始人郭文贵先生和现场嘉宾，包括前世界羽毛球冠军叶钊颖女士，前亚洲足球先生郝海东先生等一起，特别谈到音乐灭共的话题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+作为多次荣登世界乐坛榜单、创造一个又一个世界流行乐坛传奇的郭先生，从新中国联邦《我是音雄》的唯真不破，谈到中共国音乐无处不假，重申音乐价值和力量，是真正的精神核武器。中共从窃国伊始，就无处不假、无时不偷，特别是抄袭了前苏联的大量邪恶音乐，甚至被俄国禁用某曲长达29年之久。如今中国大量所谓明星，其实肮脏不堪，只为一碗饭而已。
 
-当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
+郭先生感慨，德国瓦格纳，知道自己是音乐家，但帮了坏人杀人，应该下地狱。中共国的所谓音乐家，不知道自己帮着中共杀人，还在继续助纣为虐。这是本质的的差别。
 
-西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
-
-原文链接：[大量外省救护车驰援西安显示疫情失控](https://gnews.org/zh-hans/1806653/)
-
-音频处理：音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+【来源链接】https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e
 
  
 

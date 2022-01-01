@@ -2,40 +2,57 @@
 ---
 
 
-## 拜登 普京就乌克兰问题举行紧急电话会议
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1813218/)
+## 中共国警告美国将在台湾问题上面临“无法承受的代价”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813248/)
 
-作者：纽约香草山- 侠肝义胆
+**评论：***中国在国际上用尽各种手法孤立台湾,无论是外交施压或者是文攻武吓，然而历史趋势不可阻挡，台湾的民主越成功，国际的支持就越强。*
 
-美东时间周四下午，美国总统拜登和俄罗斯总统普京就乌克兰紧张局势进行了本月第二次电话会议。因俄罗斯与乌克兰边境军事对峙，双方相互发出警告：乌克兰局势进一步升级恐将破坏两国关系。但双方同意就此进行进一步外交接触。
+据《法新社》作者：Angelos Tzortzinis 2021年12月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-45-e1641064513108.png)中共国外交部长王毅警告，华盛顿的干预可能导致危险局势
+图片来源：《法新社》
+**中共国外交部长王毅周四表示，美国将因其对自治岛屿台湾采取的行动而“面临无法承受的代价”，这是北京对这个自由岛屿的最新威胁。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-1.jpg)图片源自网络
+近年来，中美之间在人权、贸易和技术竞争等问题上的紧张加剧，台湾也成为一个主要爆发点。
 
-白宫新闻秘书Jen Psaki在一份声明中说，拜登在电话中重申了他对缓和紧张局势的呼吁，并明确表示，如果俄罗斯进一步入侵乌克兰，美国及其盟友将 “果断回应”。
+中共国声称民主的台湾岛是自己的领土，并誓言如有必要，有一天会用武力夺取它。
 
- 俄罗斯塔斯社援引普京助手尤里-乌沙科夫的话报道说，普京警告拜登，如果美国继续实施 “前所未有的制裁”，应该预期双边关系将 “完全断绝”。 
+尽管大多数国家选择正式承认北京而不是台北，但许多国家仍与台湾保持着密切的非官方联系，中共国对此感到愤怒。
 
-拜登政府一直告诫说，如果对乌克兰的军事行动升级，莫斯科可能遭受的代价将 “远远超过2014年俄罗斯从乌克兰吞并克里米亚后实施的行动”。 
+**外交部长王毅周四在接受中共国中央电视台和官方通讯社新华社的采访时警告说，华盛顿的干预可能会导致危险的局面。**
 
-这些措施将包括经济制裁，调整北大西洋公约组织在盟国的兵力态势，以及向乌克兰提供额外援助，使其能够进一步保卫自己的领土。
+王毅表示，美方违背中美建交时作出的承诺，纵容和鼓励“台独”势力，试图歪曲和空心化一个中国原则。
 
- 不过普京外交政策顾问乌沙科夫表示，俄方对此次通话整体上感到“满意”，并补充说普京向拜登强调，俄方需要在明年1月10号的双方安全会谈中看到一个积极的成果，不能无限期地进行谈判.
+“这不仅会让台湾陷入极其危险的境地，也会让美国付出难以承受的代价。”
 
-参考链接：[https://english.kyodonews.net/news/2021/12/e93232037c5e-biden-putin-hold-phone-talks-amid-ukraine-standoff.html](https://english.kyodonews.net/news/2021/12/e93232037c5e-biden-putin-hold-phone-talks-amid-ukraine-standoff.html)
+美国本月早些时候邀请台湾参加其民主峰会，这是对中共国的公开奚落。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+美国总统乔·拜登上个月称台湾是“独立的”——但他后来澄清并确认美国对台湾的政策没有变化。
 
-总编：童谣
-校正/发稿：Daxia
+根据《台湾关系法案》，美国不承认台湾独立，但承诺帮助台湾自卫。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+北京将任何表示台湾“独立”的论述视为挑衅，并反复威胁支持台北自决的国家应当承担后果。
 
+**近几个月来，中共国军方在该岛附近展开了一系列咄咄逼人的海上和空中军事行动，继上个月一群美国国会议员访问台湾后，中共国在台湾海峡附近进行了军事演习。**
+
+近年来，中共国在国际上孤立台湾，并对台湾进行政治打压。
+
+本月早些时候，尼加拉瓜的外交立场转向中共，这让台湾现在全球剩下14个盟友。
+
+文章来源：[https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html](https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html)
+
+翻译/评论：洛杉矶盘古农场– maru
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
