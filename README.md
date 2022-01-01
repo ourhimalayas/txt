@@ -15,8 +15,8 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“G-Club”（十二）](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [GTV新闻访谈简报|2021年12月31日晚](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
 ### [有声|中共疫情封锁 严酷政策不顾民生](/content/gnews/2/README.md)
  ` MOSREC`
@@ -111,29 +111,29 @@
 ### [七哥谈新中国联邦宣言：保护动物（2021-12-29摘录）](/content/gnews/32/README.md)
  ` MG FARM`
 
-### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/33/README.md)
+### [拜登和中共国因新的“武汉实验室”变成合作伙伴](/content/gnews/33/README.md)
+ ` wenwu`
+
+### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/34/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/35/README.md)
+### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
 
-### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/36/README.md)
+### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/37/README.md)
+### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/38/README.md)
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/39/README.md)
+### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
-
-### [拜登政府宣布将解除对非洲八国的旅行禁令](/content/gnews/40/README.md)
- ` GTV新闻访谈`
 
 ### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/41/README.md)
  ` GTV新闻访谈`
