@@ -15,118 +15,118 @@
 
 ---
 
-### [中共国警告美国将在台湾问题上面临“无法承受的代价”](/content/gnews/1/README.md)
+### [受害人诉讼要求中共国和世卫组织赔偿Covid-19疫后损失](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/2/README.md)
- ` wenwu`
-
-### [MILES GUO歌声 CASSANDRA预言](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [拜登 普京就乌克兰问题举行紧急电话会议](/content/gnews/4/README.md)
- ` GTV News Talk`
-
-### [印尼邀请东协5国合作应对中共威胁](/content/gnews/5/README.md)
- ` GTV News Talk`
-
-### [未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [FDA警示：辉瑞的新冠病毒抗病毒药与许多常用药物联用时，会引起危及生命的反应](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [1/1/2022国际财经快讯：世界主权财富和公共养老基金资产创纪录；华尔街接近纪录高点](/content/gnews/8/README.md)
- ` 秘密翻译组金融团队`
-
-### [音乐、人生——人可以能力不行，但不能造假](/content/gnews/9/README.md)
- ` 秘密翻译组-原创组`
-
-### [2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》](/content/gnews/10/README.md)
- ` 秘密翻译组-原创组`
-
-### [GTV新闻访谈简报|2022年1月1日早](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [昨晚宵禁生效时，蒙特利尔看起来像一座鬼城](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [战友情真烛光暖](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|夕阳杂谈 西安真相](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [《告别2021》](/content/gnews/15/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|做一个自豪的新中国联邦人](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|维加诺大主教呼吁建立“反全球化联盟”](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [中共提高人民币汇率指数货币篮子中美元和欧元的权重](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [01/01/22香港快讯 《立场》前署任总编林绍桐出院 旁听亲友同事落泪挥手 庭外相拥而泣](/content/gnews/19/README.md)
- ` 英喜-粵語組`
-
-### [新年，新中国联邦人友情提醒](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|欧洲各地爆发反对封锁和疫苗抗议活动](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [新年夜随想](/content/gnews/22/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [文贵大直播 1/1 音乐无国界 人须分善恶](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [法国网球明星贝努瓦·派尔 (Benoit Paire) 在“第 250 次”检测出 Covid-19 呈阳性后大发雷霆](/content/gnews/25/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [德国外长及内务部长将不参加中共冬奥会](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [有声|大量外省救护车驰援西安显示疫情失控](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [华为2021年度营收下降30%](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2022/01/01 英喜时事速递](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [刘亚洲被抓将中共内斗推向新的高潮](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！](/content/gnews/33/README.md)
+### [【小雨专栏】在路上055—流氓篇](/content/gnews/2/README.md)
  ` 温哥华扬帆农场`
 
-### [DC每日热点0101](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共国警告美国将在台湾问题上面临“无法承受的代价”](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [以色列开始接种第四剂中共病毒疫苗](/content/gnews/35/README.md)
- ` 喜马拉雅农场新西兰站`
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/4/README.md)
+ ` wenwu`
 
-### [英国批准辉瑞抗中共病毒新药](/content/gnews/36/README.md)
- ` 喜马拉雅农场新西兰站`
+### [MILES GUO歌声 CASSANDRA预言](/content/gnews/5/README.md)
+ ` 纽约香草山MOS03`
 
-### [南极极地站多数工作人员感染新冠病毒](/content/gnews/37/README.md)
+### [拜登 普京就乌克兰问题举行紧急电话会议](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [印尼邀请东协5国合作应对中共威胁](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [FDA警示：辉瑞的新冠病毒抗病毒药与许多常用药物联用时，会引起危及生命的反应](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [1/1/2022国际财经快讯：世界主权财富和公共养老基金资产创纪录；华尔街接近纪录高点](/content/gnews/10/README.md)
+ ` 秘密翻译组金融团队`
+
+### [音乐、人生——人可以能力不行，但不能造假](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》](/content/gnews/12/README.md)
+ ` 秘密翻译组-原创组`
+
+### [GTV新闻访谈简报|2022年1月1日早](/content/gnews/13/README.md)
+ ` 纽约香草山MOS01`
+
+### [昨晚宵禁生效时，蒙特利尔看起来像一座鬼城](/content/gnews/14/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [战友情真烛光暖](/content/gnews/15/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|夕阳杂谈 西安真相](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [《告别2021》](/content/gnews/17/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|做一个自豪的新中国联邦人](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|维加诺大主教呼吁建立“反全球化联盟”](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [中共提高人民币汇率指数货币篮子中美元和欧元的权重](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [01/01/22香港快讯 《立场》前署任总编林绍桐出院 旁听亲友同事落泪挥手 庭外相拥而泣](/content/gnews/21/README.md)
+ ` 英喜-粵語組`
+
+### [新年，新中国联邦人友情提醒](/content/gnews/22/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|欧洲各地爆发反对封锁和疫苗抗议活动](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [新年夜随想](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [文贵大直播 1/1 音乐无国界 人须分善恶](/content/gnews/26/README.md)
+ ` 秘密翻译组-原创组`
+
+### [法国网球明星贝努瓦·派尔 (Benoit Paire) 在“第 250 次”检测出 Covid-19 呈阳性后大发雷霆](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [德国外长及内务部长将不参加中共冬奥会](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [美国疫情加剧导致航空业严重受挫](/content/gnews/38/README.md)
+### [有声|大量外省救护车驰援西安显示疫情失控](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [华为2021年度营收下降30%](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022/01/01 英喜时事速递](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！](/content/gnews/34/README.md)
+ ` 温哥华扬帆农场`
+
+### [DC每日热点0101](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [以色列开始接种第四剂中共病毒疫苗](/content/gnews/36/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [英国批准辉瑞抗中共病毒新药](/content/gnews/37/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [南极极地站多数工作人员感染新冠病毒](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
 ### [共产党操控过的美国政治](/content/gnews/39/README.md)

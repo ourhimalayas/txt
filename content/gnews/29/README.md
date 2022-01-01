@@ -2,172 +2,33 @@
 ---
 
 
-## 2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1812319/)
+## 有声|大量外省救护车驰援西安显示疫情失控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1812544/)
 
-12/31/2021 郭文贵先生的最新歌曲Hcoin To the Moon及其MV版视频上线iTunes的1个月内，创造了历史。
+配音：香草山健身部 – 玫瑰园
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-[【PDF 下载】1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)
+当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
+西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
 
+原文链接：[大量外省救护车驰援西安显示疫情失控](https://gnews.org/zh-hans/1806653/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_28-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_29-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_30-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_31-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_32-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_33-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_34-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_35-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_36-1.jpg)
+音频处理：音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_37.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_38.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_39.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_54.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_58.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_61.jpg)
+发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_62.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_63.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_64.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_65.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_66.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_67.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_68.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_69.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_70.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_72.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_73.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_84.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_85.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_86.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_87.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_90.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_91.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_92.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_93.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_98.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_99.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_100.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_101.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_103.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_104.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_105.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_106.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_108.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_110.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_111.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_112.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_113.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_114.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_115.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_116.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_117.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_118.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_119.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_120.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_121.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_122.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_123.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_124.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_125.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_126.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_127.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_128.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_129.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_130.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_131.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_132.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_133.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_134.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_135.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_136.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_137.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_138.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_139.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_140.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_141.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_142.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_143.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_144.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_145.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_146.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_147.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_148.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_149.jpg)
-
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_150.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_151.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_152.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_153.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_154.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_155.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_156.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_157.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_158.jpg)
-[【PDF 下载】1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
