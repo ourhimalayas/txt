@@ -2,42 +2,43 @@
 ---
 
 
-## 辉瑞公司与中共国透过支付宝深度合作
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809782/)
+## 安省重达4万公斤的黄油不知去向 总价值20万元
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809849/)
 
-**据《国家脉动》作者：Natalie Winters，2021年12月29日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/avlu5-zxdqi-1.jpg)**图片源自：国家脉动**
-辉瑞公司与中国共产党的一个支付平台合作，该平台自COVID-19爆发以来一直被用于在中共国实施“疫苗护照”。该公司表示，“很自豪能与中共领导人站在一起”。
-这家制药巨头——其在美国的游说工作在去年创下历史新高——在2018年6月6日的推文中表达了对残酷中国共产主义政权的自豪感。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xcg.png)**图片源自：推特**
-该推文写道，“我们很自豪能与中共国领导人和支付宝站在一起，推出新的数字解决方案，以改善疾病教育和疫苗接种，为中国儿童创造一个更光明的未来。”
-附图中引用辉瑞中国总经理吴昆的话：“我们很荣幸能成为中国‘互联网+疫苗接种’计划的合作伙伴。”
+作者：BlogTo
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-371.png)
+上周末期间，安省Trenton一家货运公司的两辆大型卡车被偷，接着至少4名嫌犯用大卡车偷走了近4万公斤的黄油，价值达20万元。
 
-该消息还透露了该公司与支付宝的合作关系，支付宝是中国在线支付平台，为中共关联公司阿里巴巴分公司。
+安省省警近日发布通告称，“12月26日早上9点45分左右，省警接到报案称，在Trenton的Glen Miller Road上一家货运公司有两家大型运输卡车被偷。”
 
-美国国务院负责国际安全和不扩散事务的助理国务卿克里斯托弗-福特说，阿里巴巴还参与了“为人民解放军研究、生产和维护武器和设备”的工作，并与中共国的“国家安全机构”有“深入的合作及良好的协作记录”。
-国务院还指出，该公司是中共的“工具”，协助其建立“社会监控”。
+“警方在调查中发现，25日晚11点左右，四名嫌疑人乘一辆黑色SUV汽车来到这家货运公司，并闯了进去。”
 
-尽管有这些不确定性，辉瑞公司在2018年与该平台合作，并在公司年度审查中透露出相关信息。
+警方表示，“这几名嫌犯当时偷走了两辆大型货运卡车，并用这些卡车盗走了装满黄油的两个拖车，每个拖车上各装载了两万公斤的黄油。”
 
-《纽约时报》提及，支付宝和辉瑞公司的合作关系始于COVID-19发病前一年，也是在中共国依靠该平台开始实施疫苗护照之后。
+据警方称，在12月27日时，警方在多伦多西面的两处位置分别发现了这两辆大卡车和两个拖车，但这些卡车和拖车上都已空无一物。
 
-用户在支付宝上填写个人详细资料后，软件会生成三种颜色之一的二维码。绿色代码使其持有人可以不受限制地行动。持有黄色代码的人可能被要求呆在家里隔离七天。红色意味着两个星期的强制隔离。
+对于这起案件，警方表示，正在调查是谁偷走了这些黄油以及它们现在都被放置到了何处，为什么这些人要偷走这么大量的乳制品。
 
-在杭州，如果不出示支付宝密码，就几乎不可能到处走动。宣传式的横幅提醒每个人注意这些规则。“绿色代码，自由出行。红色或黄色，立即报告。”
+警方呼吁有线索者致电1-888-310-1122或灭罪热线1-800-222- 8477 (TIPS)报案。
 
-阿里巴巴最近被中共处罚，因为它没有遵守最近的法律，要求该公司将政权的利益置于向世界报告关键网络安全漏洞的责任之上。
+来源：https://www.blogto.com/city/2021/12/200000-worth-butter-stolen-bizarre-ontario-transport-truck-heist/
 
-**原文连接：**[https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
+（文章仅代表作者个人观点）
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

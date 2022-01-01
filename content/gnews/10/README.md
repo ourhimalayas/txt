@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年12月29日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1809987/)
+## 有声|英前外相华裔妻做节目为中共宣传洗白
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810042/)
 
 配音：香草山教育部 – Rita七号小青蛙
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1229text-SC.png)
-文字版原文：[GTV新闻访谈简报|2021年12月29日晚](https://gnews.org/zh-hans/1803801/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+英国当地时间12月25日，有媒体揭露英国前外交大臣杭特的华裔妻子郭露西亚，为中共支持的媒体主持节目，大力宣扬被中共荼毒的新疆美景，却只字不提中共迫害新疆人权。 另外大夸中共有效控制疫情，却不提中共病毒是从武汉向世界散播。 其为中共粉饰遮掩的目的昭然若揭，明显是中共的大外宣。
+
+郭露西亚出身于中共统治下的西安，也正是当前中共病毒疫情重灾区。 她是于2008年藉由工作关系与杭特认识，次年结婚。 英国军情局数年前曾发出警告，说中共派出数百位美女来英国从事情报工作，色诱政界人士，要英国政界人士提高警觉。
+
+文字版原文：[英前外相华裔妻做节目为中共宣传洗白](https://gnews.org/zh-hans/1803897/)
 
 音频处理：喜山必胜Maverick
 发稿：Tom Li
