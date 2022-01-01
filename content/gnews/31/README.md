@@ -2,19 +2,36 @@
 ---
 
 
-## 文贵大直播 1/1 音乐无国界 人须分善恶
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1812965/)
+## 华为2021年度营收下降30%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812428/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FIBVjafWYAAWhmL.jpg)图片来源 GTV
-2022年的第一天，文贵大直播新年特别节目在纽约现场面向全球准时开播。开篇时段，新中国联邦创始人郭文贵先生和现场嘉宾，包括前世界羽毛球冠军叶钊颖女士，前亚洲足球先生郝海东先生等一起，特别谈到音乐灭共的话题。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2021年12月31日，在受到美国政府的多轮制裁后，中共华为集团在2021年的年度营业收入下降至六千三百四十亿人民币，相比去年下降约29%。
 
-作为多次荣登世界乐坛榜单、创造一个又一个世界流行乐坛传奇的郭先生，从新中国联邦《我是音雄》的唯真不破，谈到中共国音乐无处不假，重申音乐价值和力量，是真正的精神核武器。中共从窃国伊始，就无处不假、无时不偷，特别是抄袭了前苏联的大量邪恶音乐，甚至被俄国禁用某曲长达29年之久。如今中国大量所谓明星，其实肮脏不堪，只为一碗饭而已。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpeg)
 
-郭先生感慨，德国瓦格纳，知道自己是音乐家，但帮了坏人杀人，应该下地狱。中共国的所谓音乐家，不知道自己帮着中共杀人，还在继续助纣为虐。这是本质的的差别。
+相关报道提及，自2019年起，由于华为涉及盗窃数据和危害网络安全，美国政府开始对华为实施了一系列禁运制裁措施，当中包括限制华为对关键零部件供应和技术获取。此后，全球所有使用美国技术的企业均被禁止在未获得出口许可的情况下向华为提供相关技术和产品。
 
-【来源链接】https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e
+分析人士提及，虽然华为公司为了挽回其损失尝试推动了其他业务，但其市场份额目前正在大量流失，同时，其消费者业务，尤其是在智能手机制造方面也已经遭受了沉重的打击。
 
+参考链接：
+1）[https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458](https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458)
+2）[Huawei revenues fall 30% in 2021 but company sounds optimistic note](https://californianewstimes.com/huawei-revenues-fall-30-in-2021-but-company-sounds-optimistic-note/640017/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
