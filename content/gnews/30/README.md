@@ -2,19 +2,37 @@
 ---
 
 
-## Iosbel Yeung用一字之差来陷害爆料革命
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810976/)
+## 有声|灭共者之郭氏情报站（八）12月29日版
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810878/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+## **郭氏情报站 – 2021.12.29 文贵大直播总结提炼**：
 
-12月24日，郭文贵先生在GTV大直播指出：
+**1、中美外交战。**秦刚原话，“我们不是战狼外交、我们是与狼共舞啊”。哇塞，就是你是狼，我与狼共舞，我奉陪到底。共产党就是要和美国要玩到底，陪到底。
 
-爆料革命一再陈述事实，中共利用高科技操控美国大选，而伊莎贝拉话锋一转，一字之差，把爆料革命说成蓄意操控、甚至改变美国政治，这把火会引向全部海外华人，可见其用心何其阴歹！当年印尼媒体不断污蔑华人，华人非但毫无警戒甚至还给邪恶媒体输送利益，可见我们华人群体的麻木在全世界都无出其右。
+**2、白宫继续重申外交抵制冬奥会的立场不变。**法、德支持冬奥会的本质是中共捏住了两国的痛处。据说普京也悬乎，说最近身体有点状态不太好。如果是这样，普京收了1000亿最后不来，一个哥们没带来，相当于什么？这个事对习打击太大了，听说在党内影响巨大。对中共国是极大损失:不开对内无法交代，对外损害领导面子。中国人被愚昧到如此程度，一万亿美元玩一个冬奥会。举一国之力，就让习太阳玩一个游戏。皇帝一人爽三分钟，能让中国黑暗三百年。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**3、最近数字货币在世界引起巨大反响。**大家一定要记住，不能只看表面，你们要看数据。谁能挡得住数字货币成为全世界躲避金融灾难，疫苗灾难，政治灾难，通货膨胀的蓄水池，避险池呢？无人能够阻挡。喜币在五年后会非常好。未来一系列的宣布，你绝对会震惊。永远要珍惜喜币，GTV, GETTR, Gnews这些平台。
+
+**4、西安很邪，跟东部的文化完全不同。**他们和江浙很不一样。西安完全就是疫苗后遗症。听说西安打的都是特定的疫苗，是陕西书记找人定做的最强的。很多西安人是七窍流血，孩子耳朵流血。西安的灾难是不可想象的。青蒿素是神药：第一，修复基因缺陷几乎是天下最好的；第二，对身体里的癌细胞几乎百分之百的消除。
+
+
+
+文字版原文：[灭共者之郭氏情报站（八）12月29日版](https://gnews.org/zh-hans/1803971/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

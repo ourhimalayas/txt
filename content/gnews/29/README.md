@@ -2,19 +2,29 @@
 ---
 
 
-## 西方受过高等教育的人 因杀富济贫的精神救济而相信共产主义
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810991/)
+## 有声|秦刚接受美媒采访竟不见任何报道遭嘲笑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810879/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+台媒12月29日消息，中共驻美大使秦刚20日接受美国多家所谓“主流媒体”联合采访后，时至今日都没有一家美国媒体发出报道。秦刚气急败坏只有让中共驻美记者自己发布该新闻。 中共驻美大使馆24日发出新闻稿指出，秦刚的采访由彭博创新经济论坛举办，以“炉边谈话”形式用英文进行。
 
-12月24日，郭文贵先生在GTV大直播指出：
+中共官媒殃视驻美记者25日在微博发牢骚称，在这次谈话前，双方就已经商定，全部内容可供报道，也可用作背景吹风，但却没有发现任何一家美媒发出报道。该事件经媒体曝光后，立刻引来网络一片讽刺与嘲笑。
 
-信仰共产主义的有两种人，第一种是受过高等教育的、了解历史的，蓝领和白领级别的人。这些人不是喜欢共产主义，而是郁郁不得志，自己当不了官，也难以成为富人，他们从共产党杀富济贫中，得到了精神的快感。
+文字版原文：[秦刚接受美媒采访竟不见任何报道遭嘲笑](https://gnews.org/zh-hans/1805669/)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

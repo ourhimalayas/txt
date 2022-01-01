@@ -2,19 +2,31 @@
 ---
 
 
-## HBO出卖良知和原则 为了中共国4000亿美金市场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810914/)
+## 有声|辉瑞公司与中共阿里巴巴早有合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810876/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月29日，据美国媒体消息显示，自2018年起，辉瑞公司就一直与中共支付平台支付宝合作。而从中共病毒爆发以来，支付宝则长期协助中共政府在中共国内推行“健康码”政策。
 
-12月24日，郭文贵先生在GTV大直播指出：
+报道提到，辉瑞公司曾在其官方推特上多次对中共政府表示支持，甚至为与中共政府的合作表示自豪。据悉，辉瑞与中共政府的合作涉及疾病和疫苗接种的相关工作，而辉瑞公司也通过与支付宝的合作实现在中共国内的移动支付功能。
 
-HBO和VICE卖的是政治、影响力，是中共为它疏通的4000亿美元的市场，卖掉了良知、原则，还有多少人的安全，这就跟香港的黑警一模一样。中共利用HBO这种影响力在美国乃至世界上，给像Nicole这样的华人贴上“搅乱美国政治”的标签，是非常可怕的，这一蝴蝶效应引发的后果将是华人的灾难。
+但资料显示，支付宝是与中共有密切关联的阿里巴巴集团旗下的一个分支平台。而阿里巴巴作为帮助中共政府及其军队进行科研、生产、武器和设备维修等工作的大型企业，美国国务院此前已经将其标记为中共政府建立社会监视和控制机制的“工具”。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+文字版原文：[辉瑞公司与中共阿里巴巴早有合作](https://gnews.org/zh-hans/1805658/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

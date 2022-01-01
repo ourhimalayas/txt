@@ -2,118 +2,45 @@
 ---
 
 
-## 接客马《攻守道》真实版
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1811039/)
+## 台湾总统表示：将追求自由、民主，反对独裁中国政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810962/)
 
-作者： GBW
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
-0
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2.png)
-1
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-39.png)
-2
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1.png)
-3
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5.png)
-4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-1.png)
-5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-1.png)
-6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6.png)
-7
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7.png)
-8
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png)
-9
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9.png)
-10
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10.png)
-11
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11.png)
-12
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12.png)
-13
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13.png)
-14
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.png)
-15
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15.png)
-16
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16.png)
-17
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17.png)
-18
-![](https://assets.gnews.org/wp-content/uploads/2022/01/18.png)
-19
-![](https://assets.gnews.org/wp-content/uploads/2022/01/19.png)
-20
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20.png)
-21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/21.png)
-22
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22.png)
-23
-![](https://assets.gnews.org/wp-content/uploads/2022/01/23.png)
-24
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.png)
-25
-![](https://assets.gnews.org/wp-content/uploads/2022/01/25.png)
-26
-![](https://assets.gnews.org/wp-content/uploads/2022/01/26.png)
-27
-![](https://assets.gnews.org/wp-content/uploads/2022/01/27.png)
-28
-![](https://assets.gnews.org/wp-content/uploads/2022/01/28.png)
-29
-![](https://assets.gnews.org/wp-content/uploads/2022/01/29.png)
-30
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30.png)
-31
-![](https://assets.gnews.org/wp-content/uploads/2022/01/31.png)
-32
-![](https://assets.gnews.org/wp-content/uploads/2022/01/32.png)
-33
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33.png)
-34
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.png)
-35
-![](https://assets.gnews.org/wp-content/uploads/2022/01/35.png)
-36
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36.png)
-37
-![](https://assets.gnews.org/wp-content/uploads/2022/01/37.png)
-38
-![](https://assets.gnews.org/wp-content/uploads/2022/01/38.png)
-参考资料：
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-原版《攻守道》：[https://www.youtube.com/watch?v=wfS9Uf5SKu8](https://www.youtube.com/watch?v=wfS9Uf5SKu8)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/TAIWAN-CCP.jpg)
 
-阿里巴巴卖假货被告：[https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518](https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518)
 
-阿里巴巴清理假货：[https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last](https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last)
+ 
+图片来源：www.voanews.com
 
-阿里巴巴清理刷单：[https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest](https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest)
 
-蚂蚁金服上市叫停：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+#### 编译：小红帽
 
-阿里巴巴股价大跌：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+根据Hindustan Times1月1日报道，** 在来自中国政府不断增加的军事和外交压力下，台湾总统指出，维护其自由、民主和与世界接轨的共识是一项挑战。**
 
-郭文贵谈马云被捕：[https://gwins.org/cn/milesguo/22490.html](https://gwins.org/cn/milesguo/22490.html)
+台湾总统蔡英文周六强调，在中国政府不断增加的军事和外交压力下，台湾岛内正面临着维护其自由和民主的挑战。
 
-郭文贵谈马云和中共国企业家的遭遇和出路：[https://gnews.org/zh-hans/1606278/](https://gnews.org/zh-hans/1606278/)
+蔡总统在其元旦讲话中说：“追求民主和自由不是犯罪，台湾支持香港的立场不会改变。”
 
-郭文贵谈唯真不破：[https://gwins.org/cn/milesguo/22835.html](https://gwins.org/cn/milesguo/22835.html)
+即使经过几十年的单独治理，中国政府仍然认为台湾是一个分离的省份。台北通过加强与包括美国在内的民主国家的战略联系来对抗中国政府的侵略，即使北京当局继续以战争手段威胁 “台湾独立”。
 
-发稿：浪迹天涯
+中国政府周四以好战的语气表示，中国派出了940多架战机进行例行演习，这比台湾当局透露的还要多。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
+2021年至今，台湾目睹了950次中国人民解放军空军军机侵入其防空识别区，比上前一年增加了60%。
+
+此外，台湾媒体报道说，由于中国政府在过去几年中加大增加了飞行架次，台湾预计入侵次数将进一步增加。
+
+翻译新闻来源：[Freedom is not crime, will pursue democracy against authoritarian China: Taiwan | World News – Hindustan Times](https://www.hindustantimes.com/world-news/freedom-is-not-crime-will-pursue-democracy-against-authoritarian-china-taiwan-101641017490366.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

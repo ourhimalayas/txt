@@ -2,21 +2,31 @@
 ---
 
 
-## 毛用林彪干掉刘少奇
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810908/)
+## 有声|mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810875/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据印度媒体26日报道，长濑丹尼尔医生在《钢铁威尔》节目中警告，mRNA中共病毒疫苗可以永久地改变儿童的DNA，进而永远产生刺突蛋白，这是极为危险的事情。
 
-12月24日，郭文贵先生在GTV大直播指出：
+长濑丹尼尔是一位加拿大医生，曾因给中共病毒患者使用伊维菌素而被开除。他说，打进身体里的mRNA可以通过逆转录酶的方式转化为DNA，这对儿童来说特别危险，因为儿童特别容易发生DNA改变，他们的逆转录酶水平也比成人高。
 
-毛泽东眼看失去权力，由此带来的失落感，让他痛苦不堪。当他得知自己并不是军队最有权力的人，也不是百分百掌握绝对权力的时候，他决定发动文化大革命，用林彪干掉刘少奇，而刘少奇正是发起文化大革命最大的拥护者，这就是报应。
+他在节目中讨论，辉瑞公司公布的疫苗测试数据显示，疫苗的不良反应率为30%或更多，而且不良反应都是“恢复不了”的。卫生官员们应该早就知道到mRNA渗透到细胞中的危险，这些危险并不是“新闻“，实际“从90年代就已广为所知”。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+文字版原文：[mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](https://gnews.org/zh-hans/1805679/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,263 +2,74 @@
 ---
 
 
-## 郭文贵先生接受 HBO Vice 采访的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809361/)
+## 屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1809268/)
 
-[https://gtv.org/video/id=61cd2a4bfb16a93456bf3b06](https://gtv.org/video/id=61cd2a4bfb16a93456bf3b06)
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-387.jpg)图片来自：https://gettr.com/截图
+近2个小时的现场采访被Vice和伊莎贝尔凭空捏造和剪辑出一个完全违背事实的3分钟节目。不幸的是，Vice这次遇到了郭文贵先生，当天的采访在Vice知情及同意下被全程录影。3分钟的Vice节目在完整的采访录像对比之下，孰真孰假一目了然，郭文贵先生在采访过程中，向众人展现出一位真正灭共者的传奇人生，其内容大致如下：
 
-我想深入了解你所说的, 但我们先谈谈, 谁是郭文贵
-Quiero saber más lo que dijiste, pero primero vamos a hablar, quién es Guo Wengui
+**为什么要灭共？**
 
-你知道, 有很多两极化, 非常混乱的信息
-Sabes, hay muchas informaciones polarizadas y confusas
+“自从我还是个孩子的时候，我的父亲因为文革摔坏了膝盖，母亲受了很大的刺激，几个兄弟的身体都受到很大的伤害，父母跟我说中共是邪恶的不要相信中共，我长大了去了天安门广场抗议，给学生捐钱，中共的警察在抓捕我时在我面前杀死了我弟弟，在监狱的22个月里，我被戴上手铐和脚铐8个月，被折磨得身上到处是伤，关押我的同一间牢房里有60多人被中共杀害，因为他们要民主他们反共，我看到了所有这一切。后来我被释放，我去新疆、去西藏，在中国各地看到灾难，我看到杨改兰，一个年轻的妈妈，她仅有的300元补助因为政府腐败被拿走，她杀死了5个孩子然后自杀，这对我影响很大，这些都是我灭共的理由，反共在我的血液里。”
 
-有些人认为你是中国人民的救星, 你在和中国共产党抗争
-Algunas personas piensan que eres el salvador del pueblo chino, te estás enfrentando contra el PCCh
+**为灭共做足30年的准备**
 
-有些人认为你是中共的间谍
-Algunas personas creen que eres un agente del PCCh
+“刚从监狱释放，我的孩子还小、父母还在，家人都还在，我们需要为孩子的成长做准备，我需要练肌肉，我需要锻炼我的心智，我需要更了解中共，我需要准备钱、我需要资源，我需要变得更强大，我准备了30年，就为了消灭中国共产党，我创建了中国第一个五星级郑州裕达酒店和七星级盘古酒店，至今还在，2008年奥运会，我是首个也是唯一一个作为私人开发商在该地建造龙楼——盘古大观，当时中共官员甚至王岐山想抢走盘古，被我夺回来，这些都证明郭文贵有能力创造奇迹。这就是为什么我能创造新中国联邦，我可以让10万人甚至13亿人一起工作，我能实现这一目标。所以我坚持练心、练脑、练人际关系、练我自己，我知道，我有精力，我有力量，我有能力我能打倒CCP。”
 
-还有一些人认为[听不清]
-Y también hay personas que creen [inaudible]
+**为灭共正在努力的方向**
 
-这是个好问题
-Esta es una buena pregunta
+“天安门广场大屠杀是中国人民试图获得民主法治自由的一天，我永远不会忘记，我也从未放弃，这就是我们定6月4日在美国成立新中国联邦的原因。我们想让全球知道，中共不等于中国人，不等于中国，是中国共产党中少数邪恶的人制造香港问题，新疆种族灭绝，屠杀西藏的圣城，制造冠状病毒来杀人，我们把所有希望中国拥有民主和自由的人联合起来反对中共，建立一个在消灭共产党后实行法治的中国新政府体系——新中国联邦，我们一起支持让美国伟大，要让美国宗教信仰和法治社会成为西方文明的主基础，继续延续下去让世界和平。”
 
-我想, 四年前是你第一次采访我吧?
-Yo creo que, hace cuatro años atrás fue la primera vez que me entrevistaste, ¿cierto?
+“新中国联邦从来没有从支持者那里拿走一美元，郭文贵也绝不从爆料革命和新中国联邦那里拿走有一分钱，我在镜头前可以承当全部责任。去年同期，谷歌上有18亿人搜索新中国联邦，GTV在西方的VPN曾达到500万-800万，来自国内的数据是160万个VPN甚至更高（国内1个VPN有可能是N个用户）……这些我都有证据可查。越来越多中国人相信我信任我，我获得了能量获得了力量，我可以干倒CCP.我深信不疑。”
 
-从2017年到2021年, 世界变化很大
-Desde el año 2017 hasta el 2021, los cambios en el mundo son muy grandes
+**为灭共几乎失去了一切**
 
-首先, 美国环球, 华尔街, 华盛顿邮报上有很多谣言
-En primer lugar, hay muchos rumores en Universal, Wall Street y Washington Post
+“我的妈妈因此而死，共产党逮捕了我同事270人，把我兄弟送进监狱几进几出，两次逮捕了我妻子和女儿，冻结了我们家族资产共1000亿，对我实施超限战，在美国制造了60、70个诉讼，发动水军5毛在社交媒体上散布谣言攻击我，我失去了一切，每天都受到威胁。”
 
-在昨天, 华盛顿邮报有一篇报导
-El día de ayer, hubo un informe en Washington Post
+不仅如此，郭先生创立的盘古大观和郑州裕达被多次司法拍卖，盘古龙头被强拆改建，就在Vice节目播出前不久，盘古七星公寓、七星酒店和郑州裕达酒店被中共政府以执法的名义强行占领，甚至将盘古员工及业主、包括郭先生九十多岁高龄的父亲在内千余人赶到大街上 。
 
-(上面写着) 有个AI调查公司编造关于我的谣言
-(Decía) hay una empresa de investigación de inteligencia artificial que inventa rumores sobre mí
+“你看看自己，即便作为一个普通人你也要审视自己，你认为这是保持记者应有的方式吗？你有没有一次觉得郭文贵说的是中共的真相。你只在意有多少人关注你的节目，为什么你从来不问我，你有多少家人被捕？为什么妈妈会去世？为什么有这么多官司？为什么这么多案子，全都是吴征、马云、埃利奥特·布罗伊迪（Elliott Broidy）支付的？布罗伊迪拿了中共的1亿美元制造假案， 还控制华尔街日报编造一份假报道说郭文贵是双料间谍，试图把郭文贵遣返回国，你从来不问真相，你不在乎真相，你只是造谣然后继续造谣……也许这就是你来采访我的目的，我几乎所有的诉讼都赢了，你为什么要来诽谤我？郭文贵从来没做错过什么，我只是在保护自己。”
 
-这并不奇怪
-Esto no es raro
+很显然，伊莎尔贝很明白来采访郭文贵先生的根本目的，她开始在郭文贵先生和中共的关系上挖坑。
 
-因为我的敌人是全球邪恶的中国共产党, CCP
-Porque mi enemigo es el malvado Partido Comunista de China global, PCCh
+“为什么你会在房地产行业发大财，你一定是和中共合作了才能在这个行业这么成功……”；
 
-它是世界第一的黑帮力量
-Él es la fuerza de la organización criminal número uno en el mundo
+“这是一个有趣的策略，反对中国共产党却能同时达到如此财富和成功……”；
 
-他们总是使用相同的解决方法来摧毁它的敌人
-Ellos siempre utilizan la misma solución para destruir a sus enemigos
+“你能否澄清一下，你从中国从事房地产行业那几十年，你不必参与与中共的合作，不是为了你自己的致富，而是你在建设和准备这一刻，为了能推翻中国共产党？”
 
-造谣, 没人相信你
-Creando rumores, nadie cree en ti
+郭文贵先生回答说，“中共从2015年就开始调查我，共12000名警察参与调查5年，他们调查了我的家人和270名同事，他们进行了100多次审问，你看到任何审判说郭文贵从中国拿钱吗？你看到过任何刑事案件说，郭文贵从中共那里拿走一美元……”
 
-冻结你的资产, 强奸你的家人, 绑架你的家人, 把他们关进监狱
-Congela tus activos, viola y secuestra a tu familia, los encierran en la cárcel
+伊莎贝尔：“你现在和中国共产党是什么关系？”
 
-像在新疆一样, 他们威胁所有的家庭
-Así como en Xinjiang, ellos amenazaron a todas las familias
+郭文贵先生：“敌人，你知道我是中国共产党头号敌人。”
 
-此外, 他们在散布关于我是双重间谍的谣言
-Además de esto, difundieron rumores acerca de que soy agente doble
+伊莎贝尔：“你和共产党员有关系吗？”
 
-这很有趣. 你明白吗, 伊莎贝拉?
-Esto es muy interesante, ¿entiendes, Isabella?
+郭文贵先生：“有什么关系，我不知道，就我而言，我在大陆、中南海、在政治局有很多朋友，很多人跟我要打倒中共，我是中国唯一的希望，习近平王岐山利用反腐抓人，他们才是造成大腐败的人，有在监狱的人也要打倒中共，这就是中国，好人和坏人都在监狱，所以我要打倒CCP。而你是在帮助中南海，因为你所有的问题都是来诋毁我，你在帮助中共，说郭文贵是骗子，造谣、是没信用的人，你完全疯了。”
 
-连孩子们都知道, 如果你做间谍的工作
-Hasta los niños saben, si estás haciendo el trabajo de espía
+伊莎贝尔：“你现在是怎么赚钱的？”
 
-政府必须给你确认
-El gobierno debe confirmar
+郭文贵先生：“我不能，我无法赚钱……郭文贵从第一天要打倒共产党开始……在我的生命里只有一个优先事项，打倒CCP。”
 
-你知道007詹姆斯邦德吗? 001? 对吧?
-Conoces a James Bond 007, 001, ¿verdad?
+伊莎贝尔：“打倒CCP是需要钱的，你有多少钱，我的意思是你必须付钱……”
 
-他们必须有文件
-Ellos deben tener el documento
+郭文贵先生：“我不要钱，我认为这不是钱的问题，打倒CCP是关于你的信仰，钱是打不倒CCP的，美国人很有钱，但现在美国疫情如此严重，却没有人说实话询问真相，打倒CCP所需要的勇气，需要信心，这个非常重要，你以为钱能打倒CCP吗？算了吧，这就是我们的不同。
 
-即使我是”双面”间谍, “双面”指的是中共国和美国
-Aún así si soy agente “doble”, “doble” indica el PCCh y EE. UU
-我想他们想这样指控我
-Creo que me quieren acusar de esta manera
+**大学毕业后就在中共国混迹多年的伊莎贝尔，似乎深知中共国钱权相伴的特色文化，但她永远不会理解一个为灭共准备了30年的人的所想、所能和所为。Vice节目对以上内容选择了完全忽视，他们要的不是真相，而是准备好了彻头彻尾地造假。**（未来待续）
 
-即使我在中共国间谍系统工作
-Aunque esté trabajando en el sistema espionaje del PCCh
+参考链接：
 
-他们可以很容易就给美国看
-Ellos fácilmente pueden hacer que EE. UU vean
+[假新闻污蔑郭文贵先生是间谍 —Vice采访郭文贵先生始末系列之一](https://gnews.org/zh-hans/1786781/)
 
-“看看郭文贵, 这是007号间谍”
-“Mire a Guo Wengui, este es el agente número 007”
+[造假问答意在诋毁—Vice采访郭文贵先生始末系列之二](https://gnews.org/zh-hans/1789512/)
 
-他们可以出示我的文档
-Ellos pueden presentar mi documento
+[污蔑GTV被罚款5亿美元—Vice采访郭文贵先生始末系列之三](https://gnews.org/zh-hans/1795548/)
 
-美国政府可以立即逮捕我
-El gobierno estadounidense puede arrestarme inmediatamente
+[螃蟹登场—Vice采访郭文贵先生始末系列之四](https://gnews.org/zh-hans/1809106/)
 
-他们不需要做任何其他事情
-Ellos no necesitan hacer más nada
-
-还有, 他们说我是双重间谍
-Además, dicen que soy agente doble
-
-也许我为美国政府工作
-Quizás trabaje por el gobierno estadounidense
-
-如果他们能发现任何双重间谍证据
-Si ellos descubren cualquiera evidencia de agente doble
-
-并向社交媒体, 控制媒体的报纸展示
-Pueden mostrarles a las redes sociales y al periódico que controla los medios
-
-“郭文贵为美国工作”
-“Guo Wengui trabaja por EE. UU”
-
-我会被杀, 中共可以随时杀掉我. 简单啊!
-Seré asesinado, el PCCh puede matarme en cualquier momento, ¡es muy fácil!
-为什么无论是中共政府, 还是美国政府
-Por qué ya sea el gobierno del PCCh o el gobierno estadounidense
-
-没有人可以向我展示我从事双重间谍活动的证据
-Nadie puede mostrarme evidencia de mis actividades de doble espionaje
-
-那太荒谬了
-Eso es muy ridículo
-
-所有关于郭文贵是双重间谍的言论都来自华尔街日报
-Todos los comentarios sobre Guo Wengui como agente doble provienen del Wall Street Journal
-
-以及起诉我的那两个骗子
-Y los dos mentirosos que me demandaron
-
-这是美国的灾难
-Este es el desastre de EE. UU
-
-每一个判决都应该来自法庭
-Cada juicio debe provenir de la corte
-
-来自美国的法治体系, 来自政府
-Origina del sistema del estado de derecho en los Estados Unidos, del gobierno
-
-但在这个国家, 每一个”真相”和”正义”都来自媒体
-Pero este país, cada “verdad” y “justicia” provienen de los medios de comunicación
-
-社交媒体, CNN, 福克斯和你的公司
-Redes sociales, CNN, Fox y tu empresa
-
-那是一场灾难; 你只是个媒体
-Eso es un desastre; tú solamente eres un medio
-
-你无权做出判决
-No tienes derecho a emitir un juicio
-
-谁是双重间谍? 这很容易(得到答案的)
-¿Quién es el agente doble? Esto es fácil (de obtener la respuesta)
-
-这就是为什么你问了一个这么疯狂的问题
-Esto es por qué hiciste una pregunta tan demente
-
-因为也许你相信这一点吧
-Porque tal vez crees en este punto
-
-人云亦云
-Crees en lo que las personas dicen
-
-拜托, 你能出示一份小证据吗?
-Por favor, ¿puedes mostrar una pequeña evidencia?
-
-郭文贵到底是双重间谍还是单面间谍?
-¿Guo Wengui es un agente doble o un agente unilateral?
-
-很简单, 如果我是, 他们为什么逮捕我家里的18个人
-Es sencillo, si lo soy, por qué ellos arrestaron a 18 personas de mi familia
-
-他们杀了我的母亲
-Mataron a mi madre
-
-这让她很生气, 所以我母亲被它们气死了
-Esto le molestó mucho, por eso mi madre estaba tan enojada con ellos
-
-四年前你们采访我的时候, 我母亲还活着
-Hace cuatro años, cuando ustedes me estaban entrevistando, mi madre todavía estaba viva
-
-四年以后, 她走了
-Pasaron cuatro años, ya ella falleció
-
-我所有的家人和兄弟都在监狱里
-Toda mi familia y hermanos están en la cárcel
-
-你为什么不问我
-Por qué no me preguntas
-
-如果我为中共工作, 他们为什么要威胁我母亲致死
-Si trabajo por el Partido Comunista de China, por qué ellos amenazaron a mi madre hasta la muerte
-
-他们为什么要绑架我的同事和我的家人?
-¿Por qué secuestraron a mis compañeros de trabajo y mi familia?
-
-总有个好的理由. 简单吧! 答案是什么?
-Debe haber una buena excusa. ¡Es fácil! ¿Cuál es la respuesta?
-
-你不需要问我
-No necesitas preguntarme
-
-任何有常识的人都可以知道答案
-Cualquier persona que tenga sentido común puede saber la respuesta
-
-但这太荒谬了
-Esto es muy ridículo
-
-每个人都只相信坏的方面
-Cada persona sólo cree en la parte mala
-
-没有人相信这世界上仍有正义和勇敢的英雄, 没有人
-Nadie cree en que este mundo todavía existe héroes justos y valientes, nadie
-
-这就是为什么媒体现在是全球第二大癌症的原因
-Es por eso que los medios de comunicación son ahora el segundo cáncer más grande del mundo
-
-因为你们有比政府更大的权力
-Porque ustedes tienen el derecho más grande que el gobierno
-
-比法庭大, 比法官大
-Más grande que el tribunal, más grande que el juez
-
-如果法官都说郭文贵, 你是双重间谍
-Si hasta el juez dice que Guo Wengui, eres un agente doble
-
-是的, 我别无选择(只得承认)
-Sí, no tengo otra opción (debo reconocerlo)
-
-但当媒体做出判决: 郭文贵是双重间谍…
-Pero cuando los medios emiten el juicio: Guo Wengui es un agente doble…
-
-你们只看重钱, 你是为中共工作. 对不起, 伊莎贝拉
-Ustedes solamente les da importancia el dinero, estás trabajando por el PCCh. Lo siento, Isabella
-
-* * *
-
-日期：12/28/2021
-原视频标题：郭文贵先生接受 HBO Vice 采访的真相
-La verdad sobre la entrevista del Sr. Guo Wengui con HBO Vice
-
-原视频日期：12/23/2021
-原视频网址：[**https://gettr.com/post/pkexq84603**](https://gettr.com/post/pkexq84603)
-任务编号：3350
-视频时间段：26:57-31:39
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[HBO-VICE‘s Premeditated Lies](https://gettr.com/streaming/pkrzu601aa)
 
  
 

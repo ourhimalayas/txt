@@ -2,35 +2,35 @@
 ---
 
 
-## CDC：不断测试民众忍耐极限，帮助政府出台管控措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1811411/)
+## 01/01每日播报｜美国CDC被起诉要求提供疫苗安全应用数据
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1811456/)
 
-**翻译：George Warshing**
-**编辑：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11.jpg)图片来源：Jovial-Girl
-**当地时间12月30日，据Summit News报道，美国疾病预防控制中心****（CDC）主任罗谢尔·瓦伦斯基周三承认，该机构关于应对中共病毒的最新指导方针是基于政府认为人们会接受这些管控措施。**
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d01760ecc0b216cbb3225d)**
 
-在CNN节目里，瓦伦斯基谈到了这样一个事实，即在乔·拜登宣布面对该病毒“没有联邦通用的解决方案”后，CDC突然更新了其指导方针，包括限制措施规定的隔离时间，从十天减少到五天。
+**2022-01-01**
 
-她坦率地承认：“**这确实与我们对人们能够容忍程度的判断有很大关系**。特别是当疾病在人群之间具有最大传染性时，我们真的想确保在这一刻有一个指导人们面对瘟疫的有效办法，这样我们可以控制许多疾病，而人们也愿意坚持配合。因此，**它的确涉及到具体的操作，和人们在生活中能应对的极限**。”
+据《福克斯新闻》2021年12月31日报道，一个对疫苗持批评态度的非营利组织正在起诉美国疾病控制和预防中心（CDC），因为该机构拒绝遵守《信息自由法》（FOIA）的要求，不提供中共病毒疫苗的影响数据。
 
-她的论点与安东尼·福奇相吻合。而这位把所有人隔离了两年的家伙昨天终于承认了隔离“对社会不利”。
+周四宣布的这一诉讼围绕着CDC用于跟踪中共病毒疫苗接种者在接种疫苗后其健康状况的 “V-Safe “系统的数据。该组织称，CDC已经向政府承包商Oracle提供了非识别形式或缺乏个人信息的数据。
 
-瓦伦斯基在接受采访时说，政府正在考虑为12-15岁的儿童进行**加强注射**，并敦促“必须注意让您的孩子接种疫苗”。
+CDC还通过疫苗不良事件报告系统（VAERS）跟踪疫苗的安全性，并继续表示，经批准和授权的中共病毒疫苗是安全和有效的。
 
-她说：“我知道医药厂商们正努力搜集五岁以下儿童的治疗数据。这些数据在未来几个月内不可能得到，但我们正努力以求尽快实现。”
+CDC的一份文件显示，”V-safe数据将由Oracle公司收集、管理，并存放在一个安全的服务器上。”
 
-**原文链接：**[CDC Director Admits Latest COVID Restrictions Based On What Government “Thought People Would Be Able To Tolerate” – Summit News](https://summit.news/2021/12/30/cdc-director-admits-latest-covid-restrictions-based-on-what-government-thought-people-would-be-able-to-tolerate/)
+代表知情同意行动网络（ICAN）的律师亚伦·西里(Aaron Siri)说，CDC最初拒绝向其提供应用程序数据，因为据称这些数据没有 “去标识化 “或未被剥离个人信息。当ICAN接着要求提供 “所有提交给v-safe并随后进行了身份识别的数据 “时，CDC以与原始数据重复为由拒绝了该要求。
 
-发布：去中心化Math
+西里说：“如果这听起来很荒谬，那是因为它是荒谬的，公众应该对CDC的游戏感到愤慨”。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+此前，西里代表另一个团体起诉美国食品和药物管理局（FDA），要求提供40多万页有关辉瑞-生物技术公司的中共病毒疫苗审批过程的信息。FDA曾提出在1月前公布1.2万份文件，每月至少公布500页，这可能意味着所有文件要在几十年后才会被公开。
 
+秘翻新闻主编 Grace编译报道
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
