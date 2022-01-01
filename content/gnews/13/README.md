@@ -2,20 +2,20 @@
 ---
 
 
-## 纽约仅12月奥米克戎感染病例已达整个中共病毒感染记录的1/5
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812079/)
+## 中共国水资源短缺威胁到全亚洲
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812082/)
 
 作者：银河勇气星 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据12月30日消息，中共病毒大流行至今，纽约144万感染者中，近1/5病例是今年12月份记录的。此时奥米克戎变体在全球大爆发，成为中共病毒感染的主要毒株。
+12月30日外媒刊文称，中共国前些年经济的崛起，依靠水，可耕地，以及廉价劳动力等，使中共在全球贸易体系中，一跃成为世界工厂。然而近年来，中共政府炸毁了巨量资源，且由于土地退化，加上过度使用，使可耕地面积锐减，水资源状况尤其严峻。数千条河流消失，剩下的水被工业化污染，80%～90%的地下水和50%的河水无法饮用；50%以上的地下水和25%的河水无法用于工农业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7.jpg)
+水资源短缺导致中共经济增速放缓，人口下降，地缘政治冲突与日俱增，中共都是通过威胁贫困邻国来解决。如建造湄公河水坝导致当地反复的干旱和洪灾，新疆地区河流分流直接给中亚下游地区带来毁灭性影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2.png)
-
-CDC数据显示，纽约仅12月份感染病例即达27万例，12月27日周一，达到创纪录的24,102例。另一感染病例较高的州是佛州，12月病例数达其总病例数的9%。全美国总感染人数5,280万，12月奥米克戎变异体感染病例占8%。奥米克戎变异体的高传染率，导致纽约交通与商业不得不暂停服务。
+郭先生在直播中谈过，喜马拉雅山是亚洲最重要的水源地，86%-90%的河流自此发源。中共控制西藏并犯下反人类罪，背后是要掌控全亚洲水资源的野心。美参众两院此前提出的《西藏独立法案》给了中共致命一击，而爆料革命的情报发挥了重大作用。
 
 参考链接：
 
-- [Nearly a fifth of all NYC COVID-19 cases were recorded in December 2021 amid the rapid spread of the Omicron variant](https://www.businessinsider.com/new-york-city-covid-cases-december-winter-omicron-surge-coronavirus-2021-12)
+- [China is running out of water and that’s scary for Asia](https://www.tbsnews.net/analysis/china-running-out-water-and-thats-scary-asia-350938?amp)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)

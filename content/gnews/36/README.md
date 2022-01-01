@@ -2,69 +2,52 @@
 ---
 
 
-## 锌能抑制中共病毒与排毒石墨烯
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811570/)
+## 疫苗死亡案例：一位女士悲痛丈夫的最近离去
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1811623/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-17.png)
+一位女士的丈夫相信科学，相信自由，在疫苗强制令之前就主动打了第一针疫苗。几小时之后，他觉得很不舒服，头疼得非常厉害，他认为只是疫苗的副作用，睡一觉就好了。他的太太为他敷了湿毛巾，喝了点过滤水，就服侍他睡下了。期间太太几次起来检查他的状况，听到他睡得很不安稳，但是男人保证自己没事。5小时之后，当太太再次查看的时候，丈夫脸色发紫，已经去世了。法医的裁定结果是巧合，纯属巧合的死亡。一条鲜活的生命就在巧合中结束了。这就是科学。
 
-你的免疫系统是你抵御所有疾病的第一道防线，特别是传染病（瘟疫），有许多不同的方法来提高你的免疫系统，改善其功能。有一种营养素在你的免疫系统抵御病毒感染的能力中起着非常重要的作用，那就是锌。
+那些以科学的名义强制别人打疫苗的人，希望你们家人的健康和生命不会被所谓的科学所剥夺，不会被这种所谓的快餐疫苗所剥夺。那些论断别人应该打疫苗的人，请为你周边的人想一想。
 
-抗疟疾药物氯喹和羟氯喹是奎宁的合成形式，奎宁是一种在植物中发现的自然存在的化合物。 羟氯喹和氯喹与其他天然化合物槲皮素和表儿茶素-棓酸盐（”EGCG”）一样，是一种锌离子团。
+[GTV视频链接](https://gtv.org/video/id=61c1e6ba43ccb726a08968d5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010102.jpg)
+**视频字幕：**
 
-锌可能是被大大低估了的中共病毒流行病的参与者。它对健康的免疫功能至关重要，2010年，在体外或”试管实验”中，锌与锌离子团（比方羟氯喹，一种促进锌在体内吸收的锌运输分子）的组合被证明能够抑制SARS冠状病毒。 在细胞培养中，它也在几分钟内阻止了病毒的复制。
+大家好，你们知道，我一般不会讨论这样的话题，因为我不是这种人。但是昨天晚上我去了我孩子的学校，我一个人去的；因为我的丈夫刚刚去世，所以只能一个人去，很孤独。
 
-\*注：有趣的是，2010年这项研究的作者之一正是北卡罗来纳大学教堂山分校（University of North Carolina at Chapel Hill）的拉尔夫·巴里奇（Ralph Baric），他是与SARS-CoV-2的产生及其大流行有内在联系的四个人之一，其他四个人是武毒所的”蝙蝠女”石正丽、生态健康联盟的彼得·达扎克和美国白宫的安东尼·福奇。 根据大卫·马丁博士（Dr. David Martin）的说法，达扎克和福奇是这场大流行病的设计师。
+在学校，我听到一些人在说话，声音很大。我听到他们在说话，一位妇女两手叉在腰间说：“我就不明白了，那些人怎么就不能伸出胳膊打上一针呢？真的就那么难吗？” 由于很多原因，我听了立刻想吐。
 
-在下面的视频中，Dr. Roger Seheult 回顾了令人信服的证据，表明抗疟疾药物之所以在治疗Covid方面显得如此有用，实际上是因为它改善了细胞对锌的吸收。 请记住，这个[视频](https://www.youtube.com/watch?v=U7F1cnWup9M&amp;t=95s)是在2020年3月制作的。
+但是在这里，我要说我不反对疫苗，我从来不是反对疫苗的人。我相信自由，我相信**“我的身体，我做主”**。我不知道“我的身体我做主”口号的来历和过程，但是这是我的想法。但是，我觉得这些事情已经一去不复返了，
 
-中共病毒患者和锌缺乏症有许多共同的症状——正如比尔·萨尔迪（Bill Sardi）所指出的，大部分中共病毒的症状（总共18个症状）与锌缺乏症的症状几乎没有区别。两者共有的症状包括但不限于（[如下图](https://knowledgeofhealth.com/symptoms-covid-19-coronavirus-match-zinc-deficiency/)）：
+科学挺酷的，我相信所有的科学和科学家吗？当然不是。我的丈夫非常相信自由，他每天工作都支持和保护我们的自由。你们知道他相信什么吗？他相信科学。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-23.png)
+他去打了疫苗，他在強迫打疫苗之前就打了。他笑着对我说：“別傻了，没事，别担心，成千上万的人都打了，都没事，我们也不会有事的”。好，他打了第一针，几个小时之后就感觉不舒服，头疼得非常厉害，去睡了。他说他没事，只是头疼。我给他搓搓脚，用湿毛巾敷了敷，喝了点过滤的水，检查他好几次。我听到他翻来覆去睡不着，他保证他没事，只是头疼，是打针的副作用。大概是我跟他说话后的5个小时，我发现他脸色发紫，死了，一只胳膊吊在床边。
 
-锌和锌离子载体的相关研究:
+法医裁定这是个巧合，纯属巧合。这就是科学？我在这里祈求你们：那些发声反抗强制疫苗的，请你们知道他们不是因为不想伸出胳膊打疫苗。如果强制我们打疫苗，我的自由就被剥夺了，你们知道吗？
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4728566/), NCBI, 2016
-
-
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://pubmed.ncbi.nlm.nih.gov/26712783/), NCBI, 2015
-
-
-- [Physicians work out treatment guidelines for coronavirus](http://www.koreabiomed.com/news/articleView.html?idxno=7428), Korea Biomedical Review, 2020
+一些人对打针持怀疑态度，也许是因为他们了解我我丈夫的事情。现在已经有10000人死于疫苗，也许是因为他们认识其中的一位。也许那些死去的人中就有他们的亲人，那些人不应该这么快离开人世。请你们有点同情心！**那些强制别人打疫苗的人，我祷告和希望你们的家人的生命或健康不要被所谓的“科学”所剥夺，不要被这种这么快研发出来让我相信的“疫苗”所剥夺。**所以，请那些双手叉腰说—“我不明白那些人怎么就不能伸出胳膊打一针”的人，请为你周围的其他人想一想！
 
 
-- [Expert consensus on chloroquine phosphate for the treatment of novel coronavirus pneumonia](https://pubmed.ncbi.nlm.nih.gov/32075365/), NCBI, 2020
 
-
-- [Quercetin and Vitamin C: An Experimental, Synergistic Therapy for the Prevention and Treatment of SARS-CoV-2 Related Disease (COVID-19)](https://www.frontiersin.org/articles/10.3389/fimmu.2020.01451/full), Frontiers, 2020
-
-
-- [Quercetin as a Natural Therapeutic Candidate for the Treatment of Influenza Virus](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7824064/), NCBI, 2020
-
-
-- [Quercetin: Antiviral Significance and Possible COVID-19 Integrative Considerations](https://journals.sagepub.com/doi/full/10.1177/1934578X20976293), Sage, 2020
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-21.png)
-
-- [Unravelling the anti-influenza effect of flavonoids: Experimental validation of luteolin and its congeners as potent influenza endonuclease inhibitors](https://www.sciencedirect.com/science/article/pii/S0223523420307261), Science Direct, 2020（图片来源：[福布斯新闻](https://www.forbes.com/sites/brucelee/2021/07/10/graphene-oxide-in-pfizer-covid-19-vaccines-here-are-the-latest-unsupported-claims/?sh=145502c274d7)）
-
-
-与中共病毒有关的症状也与电磁场（EMF）辐射和氧化石墨烯中毒的症状相匹配。 例如，10月份发表的一项研究认为，中共病毒和无线通信系统暴露之间在病理上，有很大的重叠性。 而（拉·昆塔·科伦纳）La Quinta Columna 在6月表示，他公开了大量与口罩、测试棉签和中共病毒疫苗中发现的石墨烯有关的研究。
-
-“氧化石墨烯是一种在机体内产生血栓的毒物，氧化石墨烯是一种产生血液凝固的毒物。氧化石墨烯导致免疫系统的改变。通过使与[谷胱甘肽]储备有关的氧化平衡失衡。如果通过任何给药途径增加氧化石墨烯的剂量，就会引起免疫系统的崩溃和随后的细胞因子风暴……总之，氧化石墨烯是所谓的SARS-CoV-2，即所谓的中共病毒（新冠状病毒）在名为Covid-19的疾病在武汉爆发之前，所挑起的症状”（病毒和疫苗可挑起相同的症状，只是剂量不同而已）。
-
-石墨烯可以被自然地冲出体外。 在我们血液中发现的一种酶，即骨髓过氧化物酶（myeloperoxidase），可以降解氧化石墨烯（graphene oxide）。 例如，酒精（乙醇）或烟草（尼古丁），可以帮助增加这种酶。但也有更健康的选择，支持我们的身体分解进入我们体内的石墨烯。
-
-拉·昆塔·科伦纳的[视频](https://rumble.com/vk4c5q-la-quinta-columa-informs-on-antioxidants-that-degrade-graphene-oxide.html?mref=lveqv&amp;mc=48pz1)解说表示：每一种抗氧化剂，特别是主抗氧化剂谷胱甘肽，都可以降解氧化石墨烯。在拉·昆塔·科伦纳建议的食品补充剂清单中，包括锌和它的离子团，槲皮素。
-
-新闻来源：[dailyexpose.uk] [Zinc Inhibits Influenza Virus, Covid and Helps Our Body Detoxfrom Graphene](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) | 发布时间：2021年12月30日
+*字幕：Vekap | 听写：云岭 | 翻译：Roberts | 校对：clau |简评/文字整理/编辑：胖丁*
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

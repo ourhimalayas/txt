@@ -2,39 +2,24 @@
 ---
 
 
-## 美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812081/)
+## 【中日财经爆】因倒车摄像头隐患，特斯拉召回近50万辆车
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1812138/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿： 东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-39.png)[图片来源](https://www.tesla.com/zh_tw/model3)
+由于可能的安全隐患，电动汽车制造商特斯拉在美国召回近 50 万辆汽车，涉及 2017年至2020年生产的全部”Model 3″系列车和从2014年到2021年生产的11.9万辆”Model S” 。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国国家公路交通安全管理局（ NHTSA ）在互联网上公布的一份文件证实了这一消息。根据该文件， 其中，35.6万辆 “Model 3” 的倒车摄像头线束可能会因打开和关闭行李箱盖而受损，进而导致摄像故障。11.9万辆”Model S”则在解除锁定机构的情况下，存在前盖意外打开的风险，因而，可能”遮挡驾车人视线、从而增加事故风险”。
 
-12月28日，美橄榄球超级明星亚伦·罗杰斯称，美国国家橄榄球联盟NFL正秘密使用伊维菌素，和羟氯喹等FDA禁用药物治疗新冠病毒。
+特斯拉指出，迄今未知有涉及这两种情况的任何技术事故。马斯克 (Elon Musk) 创立的该企业表示将为车主免费解决问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-1-scaled.jpg)
+2018年，特斯拉曾因车上动力转向系统问题在全球召回12.3万辆汽车。
 
-罗杰斯在接受帕特·麦卡菲的节目采访时说，他确定许多球队正在为球员推荐这些药物来治疗。上个月，罗杰斯确诊后备受关注，但他很快就神奇地康复了。除了服用伊维菌素和羟氯喹，罗杰斯还接受了单克隆抗体、锌、维生素C和D的综合治疗。
+信息来源：[特斯拉召回近50万辆车](https://www.dw.com/zh/%E7%89%B9%E6%96%AF%E6%8B%89%E5%8F%AC%E5%9B%9E%E8%BF%9150%E4%B8%87%E8%BE%86%E8%BD%A6/a-60303307)
 
-这位未来的名人堂成员说，伊维菌素被媒体机构嘲笑为 “马用驱虫剂”，但它在48小时内就完全见效，这是不争的事实。罗杰斯用自己的亲身经历呼吁，在新冠病毒治疗与疫苗问题上，我们不能失去尊重不同意见的能力，对待科学，既要尊重，也容许质疑。
-
-参考链接：
-
-- [Aaron Rodgers bombshell: NFL secretly administering derided COVID drugs](https://www.wnd.com/2021/12/aaron-rodgers-bombshell-nfl-secretly-administering-derided-covid-drugs/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

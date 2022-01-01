@@ -2,53 +2,63 @@
 ---
 
 
-## Illustration 3:The CCP may release the most toxic and poisonous.
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1811736/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811851/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1BBB1D41-95E8-44EC-BC7F-75F5777EBC7B.png)![](https://lh5.googleusercontent.com/-LSXlfcNt6_5RI3nTAb8GRmCZn3UKe394L3Nlhr9ZNP-VPx5qrPepwZ3tzx5fso8ap64fvot3JOBI6BjLroRqGVIqLptEKK0yf02OedVeVSkwxiaVfVzSlyO11U_IlUQeDDIWKBw)
-No.1 The scientist showed them that there are thousands of different kinds of coronaviruses, coronaviruses in addition to what is called a bacterium, what is called a microbial virus, that is, in the grass grows out of the small worm, from this worm mutates into a kind of poison, very terrible. …… And he seriously warned the United States if another outbreak, absolutely not 500,000 or a million, 1/3 people of the United States are in danger of life, this is not a joke, this is not a joke. Miles Guo May 30, 2021
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-这位科学家向他们展示了中共有上千种的配好的各种冠状病毒，冠状病毒之外还有一个叫什么菌，叫什么微菌病毒，就是在草里边儿长出来小虫，从这个虫子身上又变异成的一种毒，非常之可怕。……而且他严重警告美国如果再次爆发，绝对不是死五十万、一百万，美国可能1/3的人都有生命的危险，这不是开玩笑的，这不是开玩笑的。Miles Guo 2021年5月30日
-![](https://lh6.googleusercontent.com/IXAkTe2fKEpgjYJRdNRLuPzQdaFCyhut1gLpV68VVBWaBmtz3E3tS-cGIPU2ZGu_jhKh_yQ3UzU1waf4re5viKVmiRlI-OZyJZZ9gzjJ1MUp8xo_hvW7JmJAgTlKT7G6JVuHR-5T)
-When the Chinese Communist Party is nearing its end, it will unleash a highly toxic “heat poison” on the world with no incubation period and a high lethality rate.
+您若想了解全文报导内容，请点击标题链接
 
-中共在快完蛋的时候，将在全世界释放毒性强的七窍流血的“热毒”，无潜伏期，高致死率。Miles Guo 2021年9月23日![](https://lh5.googleusercontent.com/KqsYFaJwy5NNsYxYRadp5AW-5vyxkcPt3YAlCNuyM4FsoZSVWPhBQmtcsKdpM-T3TyTDLcd1Fqm_8Ep7EKrzEPD2TGx00kXN9h9sZGrvL_dTtmhb6U3EzWV085tJqNtw10YBORdL)
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-No.2 Our whistle-blower scientist in Europe said to me the first two days, he said when it re-releases, if the Communist Party is crazy to re-release, it is not this, re-release out of the poison is called heat poison, remember my words today, it is called heat poison. What do you mean by “hot poison”? After you have the poison, immediately bleed from all the seven openings of one’s head, is the type of severe poison, there is no reaction period, no reaction period! Miles Guo September 23, 2021
+1. [网民纪念李文亮吹哨新冠2周年](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211230-%E7%BD%91%E6%B0%91%E7%BA%AA%E5%BF%B5%E6%9D%8E%E6%96%87%E4%BA%AE%E5%90%B9%E5%93%A8%E6%96%B0%E5%86%A02%E5%91%A8%E5%B9%B4)
 
-我们的欧洲的科学家头两天跟我说，他说再放，如果说共产党疯狂再放，他说就不是这个了，再放出来的毒叫热毒，记住我今天的话，叫热毒。什么叫热毒啊？就是你放完了(毒)，立马就七窍出血结束，就是剧毒型的，没有什么反应期，没有反应期！记住我说的话啊，再有毒的时候就是七窍流血，而且几乎是死亡率奇高。Miles Guo 2021年9月23日
-![](https://lh5.googleusercontent.com/bMxdQ-O5eRkbCdvX-HONj-lxFFf82S1wnrpIwquzsqWNXRXo0ekZlxvRwnGbVDC2wksQWiGpAGhxMVGISkMVV5CvxZc1BT0Rnor9NxfCmjH2qX6y51n0lsQciJC7Q0AcBVseYMSS)
-No.3 When the communist coronavirus has been released, there is no longer anyone can stop the problem of who dares to use biochemical weapons, and who uses them when it is a complication of the coronavirus. And all found an excuse and a platform, which is the most dangerous. All the deaths he considered normal, and human on from the past did not think that biochemical virus will be used, saw millions of people die around the world, hundreds of millions of people are infected when you have gotten used to the death, who then put the virus that is all right.Miles GuoSeptember 23, 2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip17.png)
 
-当共产党的冠状病毒放出去以后，已经没有任何人可以停止，谁敢不敢使用生化武器的问题了，而且谁使用生化武器的时候，这是冠状病毒的并发症。而且都找到借口和平台了，这是最危险的。所有的死亡他都认为是正常的，而且人类上从过去不认为生化病毒会被使用，看到了几百万人死亡在全世界，几亿人被感染的时候，你已经习惯了死亡的时候，谁再放病毒那都没事儿了。Miles Guo2021年9月23日
-![](https://lh5.googleusercontent.com/8U5CH-ru6lMMmUeyaxTUw-JyjgEls2ZI9DX9DHALWTQQRd49haQW7PhcSMH9dQFNWBA0RDGSviwy942afVhdr099uT0_24Nb6zK0vhTpEzalECrGorghhZcz8OsH3bDMFlyv2Ssk)
-No.4 About two weeks ago, I heard that the two people who created the virus for this project said something amazing: from now on, we can decide the fate of the Earth. How scary do you think that is, brothers and sisters, who want to decide the fate of the earth. You let us decide the fate of the earth, we will never do anything bad, we won’t even kill a chick. You let the communists, you let the forces of evil decide the fate of the earth, then the earth will be decided at any time. Miles Guo September 23, 2021
+据《法广网》2021年12月30日电，2019年12月30日17时43分，李文亮在大学同学微信群“武汉大学临床04级”转发、发布多条信息，一是“华南水果海鲜市场确诊了7例SARS”“在我们医院后湖院区急诊科隔离”两段文字信息；二是1张标有“SARS冠状病毒检出〈高置信度〉阳性指标”等字样的临床病原体筛查结果图片；三是1段时长11秒的肺部CT视频；1个小时后，李文亮在上述微信群发送了“最新消息是，冠状病毒感染确定了，正在进行病毒分型”（他还要求“大家不要外传，让家人亲人注意防范”）；12月31日凌晨1点半，李文亮被医院领导叫到武汉市卫健委询问情况，天亮上班后又被医院监察科约谈，并在此后应要求写下了一份《不实消息外传的反思与自我批评》。
 
-大概两周前，我听说这个项目两个制造病毒的人说出了惊人之话，说：从现在起，我们可以决定地球的命运了。你想这有多可怕，兄弟姐妹们，谁都想决定地球的命运。你让咱们决定地球的命运，咱们永远不会干坏事儿，杀个鸡都不舍得。你让共产党，你让邪恶的力量决定地球的命运，那地球随时都会被决定了。Miles Guo 2021年9月23日
-![](https://lh6.googleusercontent.com/uPbHF6tMB8fV0F3Bwq-hSNxvphHinoZhd0J7e473aGlZMs_69GRpb0nKNwDw-RbxtI_U5wwwaH0ytIjkBuVbRz0KIua3XZIKGKENAQA95CqcSMW1JLYHALhTvkFp_GdhAvUVDC9E)
-No.5 Many people ask exactly what is the purpose of its poisoning? Who is the Communist Party colluding with? The Communist Party and all the people it colluded with, its pursuit is two points, first, to reduce the world’s human population by a large amount, a large amount, and then to achieve a so-called globalism. Secondly, control your genes, your thinking and your old age, sickness and death to need to be eliminated. miles Guo November 26, 2021
+2020年1月3日，他因“在互联网上发布不实言论”而被武汉市公安局武昌区分局中南路街派出所提出警示和训诫；李文亮1月10日开始出现咳嗽症状，11号发热，12号住院；他于2月1日核酸检测结果阳性，正式确诊，收治院方并于7日凌晨宣布他去世的消息；李文亮“吹哨”2年后，不少网民前往他的微博账户下留言纪念。
 
-很多人说到底它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。第二，控制你的基因、思维和你的老弱病死，以需淘汰。Miles Guo 2021年11月26日
-![](https://lh3.googleusercontent.com/mbMPNk7fSyZxLYEIaIvfvlScwXWC_Gy5VHdhrW1yEae4O_TCIgplmKB3_dipY3LNYf6mY7Vg8JTTtjmXjFfeq-8CfqW8pWnvds16ZKj7S5ua4vM5gdz-iCUt2WvYBE2fqvDjgRTj)
-No.6 In recent days people in the party have advised Xi to take this opportunity to take out the U.S. The U.S. has a death wish for our Chinese Communist Party and he must be taken out. This is the latest information that I broke. I heard that the NSC has set up a special coronavirus control group, not to mention Omicron. he is not controlling the non-contagious, but where to contagious, and who to contagious. The new virus is much more advanced than the one leaked in Wuhan. Scientists say the communists may be about to release the most toxic and poisonous virus. Miles Guo December 24, 2021
+2. [全球单日感染突破百万](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211231-%E5%85%A8%E7%90%83%E5%8D%95%E6%97%A5%E6%84%9F%E6%9F%93%E7%AA%81%E7%A0%B4%E7%99%BE%E4%B8%87)
 
-最近几天党内的人劝习太阳借这个机会干掉美国，美国亡我中共之心不死，必须要干掉他。这是我爆的最新的消息。听说国安委成立了特别冠状新型病毒控制小组，没说Omicron。他不是控制不传染，而是往哪传染，让谁传染。新病毒比武汉泄露的病毒要高级的多。科学家说，共产党可能要放最毒最毒的毒了。Miles Guo2021年12月24日
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip18.png)
 
-资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
+据《法广网》2021年12月31日电，在过去一周（23日-29日），全世界官方统计的单日新增病例，首次突破一百万（104.5万例），与前一周（16日-22日）相比，增加了46%（中共病毒变体Omicron正在取代Delta成为超强传染的主力）。
 
-### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
+美国面临Omicron变体暴增和儿童患者突然变多的局面，美国医院感染Covid-19的儿童住院治疗人数达到大流行开始以来的最高水平；以色列在首次启动接种中共病毒疫苗活动的一年后，宣布31日（周五）开始为脆弱人群注射第四剂疫苗，希望能减轻与Omicron变体传播有关的新一轮感染的影响；在许多国家感染率创纪录的同时，南非出现了希望的迹象：该国在上月首先检测到新变体Omicron，日前南非当局宣布，该国已度过了Omicron浪潮的高峰期，死亡人数仅有”微弱”的增加。
 
-郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
+3. [尽管整个团队都接种了疫苗——三分之二的南极极地研究人员感染了 COVID-19](https://www.thegatewaypundit.com/2021/12/despite-entire-team-fully-vaccinated-two-thirds-antarctic-polar-researchers-contracted-covid-19/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip19.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+据《门户网》援引《[国家邮报》](https://nationalpost.com/news/world/covid-outbreak-at-remote-antarctic-station-among-fully-vaccinated-researchers-like-horror-movie-plot)2021年12月31日电，驻扎在南极洲比利时伊丽莎白公主极地站的25名研究人员中，有三分之二的人已经感染了中共病毒（COVID-19），尽管他们已经完全接种了疫苗，并且生活在远离人类文明的地方；尽管所有工作人员都通过了多项PCR测试，隔离并居住在世界最偏远的地方之一，但疫情还是发生了（预防病毒的疫苗会使人感染上该病毒）。
+
+4. [加拿大 COVID 护理联盟分析显示辉瑞为儿童接种疫苗是“全风险”无益处](https://www.thegatewaypundit.com/2021/12/part-2-canada-covid-care-alliance-analysis-shows-pfizers-vaccination-kids-risk-no-benefit-pfizer-acknowledges-will-cause-myocarditis-children-video/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip20.png)
+
+据《门户网》2021年12月31日电，就 5 至 11 岁的辉瑞 COVID-19 疫苗接种试验而言，[加拿大 COVID-19 护理联盟](https://www.canadiancovidcarealliance.org/wp-content/uploads/2021/12/The-COVID-19-Inoculations-More-Harm-Than-Good-REV-Dec-16-2021.pdf)表示，疫苗接种对他们的健康构成了不可接受的风险（甚至辉瑞公司也承认疫苗会导致儿童心肌炎）；但 FDA 表示，这对儿童来说是可以接受的风险。
+
+Maddie de Garay 是一名 12 岁的试验参与者，她在接种第二剂疫苗后出现严重反应，并在 24 小时内住院。她出现胃轻瘫、恶心、呕吐、血压不稳定、记忆力减退、脑雾、头痛、头晕、昏厥发作、语言和运动壁虱、月经周期问题、腰部以下感觉丧失、大便和膀胱失控，并且她患有因为她失去了进食的能力，所以需要一根喂食管。
+
+一家德国新闻网站实际上汇总了过去五个月内，超过 75 起已知的运动员倒地甚至死亡案例（辉瑞还在他们的报告中承认他们的长期免疫反应功效和安全性数据是有限的，他们的研究没有能力发现罕见的副作用）。这些事件应该是罕见的，我们不能忽视它们（辉瑞公司实际上操纵了他们的疗效数据）。
+
+5. [中共国惩罚在西安试图逃离中共病毒控制的人](https://www.apple.com/uk)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip21.png)
+
+据《彭博社》2021年12月30日电，中共国中共国于12月23日封锁了西安，并正在惩罚试图逃避其在西安的最新中共病毒疫情封锁的人，因为一位高级官员敦促采取”有力的行动”来遏制这个拥有1300万人口的中心城市的疫情；中共副总理孙春兰说，地方当局需要采取更加”有针对性和有力”的措施，并改善检疫控制。中国周四（30日）报告了166例确诊病例（161例在西安市）；孙春兰是执政的共产党25人政治局中唯一的女性，他还呼吁政府加强追踪工作。
+
+西安警方不得不追踪那些试图躲避严格控制的人：骑着共享单车踩着80公里（约50英里）的自行车回乡的男子被罚款，并被送去隔离治疗；一名男子从机场徒步走了100公里到附近的一个县，也被警方送去隔离，并被处以不明不白的处罚；《环球时报》等国媒宣传居民在购买食品时遇到的困难，已经得到中共官员们的缓解。
+
+科技公司美光科技公司和三星电子公司表示，该市工厂的生产在封锁中受到影响；芯片制造商美光公司说，它将能够满足大部分客户的需求，但新的供应安排可能会导致延误。
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
