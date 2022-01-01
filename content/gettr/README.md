@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/1/2022 10:39 PM (UTC)`
+
+1/1/2022 Miles Guo: How to cure the trauma caused by communism after the CCP is taken down? You can find all the answers in the Declaration of the New Federal State of China, and please read it carefully<br/><br/>1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/01/22/060e44cb-0555-cfc3-a6c2-8ab89d8987cb/out.jpg)
+
+---
+
+`@miles 1/1/2022 10:35 PM (UTC)`
+
+1/1/2022 Miles Guo: What’s the trauma of communism? CCP understands the interpersonal relationships and human nature well by taking advantage of vast majority’s selfishness and cowardice to make LaoBaixing ignorant, indifferent, being exhausted from being so busy without any free time to think independently and finally achieving its goal to rule the nation by just a few families, i.e., totalitarian regime<br/><br/>1/1/2022 文贵直播：什么是共产主义创伤？共产党深谙人与人的关系，利用自私懦弱等人性弱点，让老百姓无知冷漠、疲于奔命、无暇思考，最终实现“家天下” - 独裁<br/><br/>
+![img](https://media.gettr.com/group30/getter/2022/01/01/22/a01b9b0c-6a73-9c9b-40d7-df22e35b036e/out.jpg)
+
+---
+
 `@miles 1/1/2022 12:58 PM (UTC)`
 
 2022年1月1日 文贵大直播  元旦特别节目 正道至善 除恶建邦
@@ -138,22 +152,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12月30号：应战友的要求马上发一下snow的视频，有战友梦见SNOW 了💋💋💋💋😹😹😹😹
 ![img](https://media.gettr.com/group11/getter/2021/12/30/19/ecd4da0a-fd0c-c01e-b59a-87dfa04e1631/out.jpg)
-
----
-
-`@miles 12/30/2021 6:56 PM (UTC)`
-
-12/29/2021 Miles Guo: The China-US relationship has entered into a phase of vulnerability. Qin Gang has been finger-pointing, calling the US as the root cause of issues in Taiwan. He also equalized the genocide in Xinjiang to the previous discrimination against ethnic Chinese and African American in the US. He even claimed that it was the Han Chinese slaughtered by the Uyghurs, but not vice versa.<br/><br/>12/29/2021 文贵直播：中美关系进入了一个非常敏感的时期，秦刚大放厥词， 把台湾问题甩锅给美国，将新疆种族屠杀等同于过去美国白人对待华人和黑人，并称汉人被新疆人屠杀<br/>
-![img](https://media.gettr.com/group24/getter/2021/12/30/18/17bfa707-1e9e-ad86-e121-8bfb5b3fd84e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/30/2021 2:40 AM (UTC)`
-
-G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总决赛暨颁奖典礼！ <br/>直播时间：<br/>美东时间：2021年12月31日 7PM<br/>北京时间：2022年01月01日 8AM<br/>         <br/>灭共尖峰时刻，音雄再度归来！ <br/>音乐就是子弹，歌唱更有力量！<br/>讲诉你的灭共故事，唱出你的灭共心声！<br/>新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场！<br/><br/>当天将角逐出《我是音雄》第二季的年度冠亚季军，和“战友们最喜爱的音雄”。 请大家赶快到盖特的G|Music为你所喜爱的“音雄”点赞投票。 投票截止到所有选手演唱完毕。
-![img](https://media.gettr.com/group1/origin/2021/12/30/02/97fd63fd-48d3-d6b2-dd48-9370de1deaef/out.jpg)
 
 ---
 

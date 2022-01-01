@@ -2,33 +2,41 @@
 ---
 
 
-## 中共走狗谭德赛暗示2022年无法终结ccp病毒大流行
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813429/)
+## 有声|疫苗后遗症导致西安疫情灾难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813489/)
 
-**【国内新闻短评】**
+配音：香草山教育部 – Rose
 
-**搜狐首页2022年1月1日报道：谭德赛：新冠可以在2022年终结，前提是终止不公平**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/am89h-ywy2b.jpg)**图片来源：互联网**![](https://assets.gnews.org/wp-content/uploads/2022/01/zx.jpg)
-***短评：***
 
-***在过去的2020年和2021年，全世界人民都见证了世界卫生组织是如何沦落为ccp（世界仅存的五个社会主义国家的黑老大）的走狗，也见证了世界卫生组织在ccp的收买下完全变成了ccp的世界卫生犯罪组织。打着世界卫生的旗号，不仅将初心丢得一干二净，还成了替人杀人索命的宣传工具。***
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在今年最后一次大直播中，郭文贵先生解答战友们关心的西安的疫情现状。他强调，西安严重的疫情，是疫苗后遗症的结果。
 
-***世界卫生组织总干事谭德赛无数次前后打脸的讲话，更是将全世界人民的智商强奸了一遍又一遍，而被他掩护下的ccp放毒恶行将全世界人民的生命收割了一茬又一茬。全球即将步入这场病毒大流行的第三个年头，这场证据确凿的ccp放毒与毒疫苗大横行灾难却依然尚未终结。我们不知道，那些在天堂的人们还好吗？在天堂是否没有ccp的身影？在天堂是否大家都明白了真相？***
+根据郭先生的情报，陕西省委书记定做了最高剂量的疫苗，西安人的2针疫苗，相当于其他省份的10针。在西安，很多发病的成年人七孔流血，儿童耳朵流血，都是高剂量疫苗后遗症，是真正的疫苗灾难。
 
-***不知从何时起，这场人类浩劫的终结竟然荒唐地和我们开始讲条件与前提。“如果全世界不能给ccp想要的所谓公平，ccp就要在2022年继续放毒，继续强迫人类打需要自负后果的、已明显完全没用的第一针第二针后的第三针第四针第N针毒疫苗。”ccp口中的所谓公平无非就是任凭一党为皇地奴役所有民族的主义，无非就是只有ccp一家垄断全世界的疫苗和解药的权力。这是赤裸裸的要挟。邪恶啊，谭德赛；邪恶啊，ccp。悲哀啊，人类。***
+此次疫情还引发严重的次生灾难。北京时间29日，西安发生跳楼、自杀、因翻墙购买食物发生意外等事故，共计700多起，约3千多人死亡。
 
-**文章观点仅代表作者，与Gnews 平台无关**
+郭先生向国内同胞发出警示，河北，从石家庄，廊坊，张家口到承德，将会成为下一个疫苗灾难爆发的地点。广州、武汉也有可能爆发。
 
-**新闻链接**：[https://m.gmw.cn/baijia/2022-01/01/1302745491.html](https://m.gmw.cn/baijia/2022-01/01/1302745491.html)
+郭先生提醒战友务必注意安全，再次强调青蒿素是防毒救命的解药。
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+文字版原文：[疫苗后遗症导致西安疫情灾难](https://gnews.org/zh-hans/1807528/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

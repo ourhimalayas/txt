@@ -15,116 +15,116 @@
 
 ---
 
-### [因可能存在安全隐患 特斯拉召回近50万辆汽车](/content/gnews/1/README.md)
+### [CDC为了‘保持社会运转’缩减中共病毒患者的隔离期限到5天：奥米克戎阳性患者达到每天20万，自从一月以来的7天最高平均值](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [北京女教师教唆全班欺凌小学生引关注](/content/gnews/2/README.md)
+### [马斯克计划五年内载人登陆火星](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [法国加密货币税收：税收修正案将在国民议会上辩论](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [教宗方济各新年布道 呼吁终止对女性施暴](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [中共对西藏丰富矿产掠夺成为藏人生态劫难中共西藏谎言之二](/content/gnews/3/README.md)
+### [因可能存在安全隐患 特斯拉召回近50万辆汽车](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|疫苗后遗症导致西安疫情灾难](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [北京女教师教唆全班欺凌小学生引关注](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [中共对西藏丰富矿产掠夺成为藏人生态劫难中共西藏谎言之二](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [德国西门子CEO避开人权问题反对抵制中共](/content/gnews/4/README.md)
+### [德国西门子CEO避开人权问题反对抵制中共](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [德国外交部、内政部部长宣布不出席北京冬奥会](/content/gnews/5/README.md)
+### [德国外交部、内政部部长宣布不出席北京冬奥会](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [中共走狗谭德赛暗示2022年无法终结ccp病毒大流行](/content/gnews/6/README.md)
+### [中共走狗谭德赛暗示2022年无法终结ccp病毒大流行](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|中共病毒及疫苗一周伤害信息汇总](/content/gnews/7/README.md)
+### [有声|中共病毒及疫苗一周伤害信息汇总](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|为领到一百元 纽约市民排队打加强针](/content/gnews/8/README.md)
+### [有声|为领到一百元 纽约市民排队打加强针](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|健身部内聊写作，健身又健脑——农场健身部的冬日小景](/content/gnews/9/README.md)
+### [有声|健身部内聊写作，健身又健脑——农场健身部的冬日小景](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](/content/gnews/10/README.md)
+### [有声|mRNA毒疫苗永久改变儿童DNA 永远产生刺突蛋白](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [中共大规模监控西方网络言论 收集情报资源](/content/gnews/11/README.md)
+### [中共大规模监控西方网络言论 收集情报资源](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读](/content/gnews/12/README.md)
+### [1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [印尼禁止出口煤炭 中共国是其最大出口国](/content/gnews/13/README.md)
+### [印尼禁止出口煤炭 中共国是其最大出口国](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [有声|美“2022财年国防授权法案”成中共噩梦](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [1/1/2022 文贵直播：什么是共产主义创伤？](/content/gnews/15/README.md)
+### [1/1/2022 文贵直播：什么是共产主义创伤？](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [音乐洗脑需警醒，重建 随心颂天唱新声，归去](/content/gnews/16/README.md)
+### [音乐洗脑需警醒，重建 随心颂天唱新声，归去](/content/gnews/20/README.md)
  ` YALUN 亚伦`
 
-### [武毒所举办避免实验室泄露会议 啼笑皆非！](/content/gnews/17/README.md)
- ` 焦點20分`
-
-### [受害人诉讼要求中共国和世卫组织赔偿Covid-19疫后损失](/content/gnews/18/README.md)
+### [受害人诉讼要求中共国和世卫组织赔偿Covid-19疫后损失](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国警告美国将在台湾问题上面临“无法承受的代价”](/content/gnews/19/README.md)
+### [中共国警告美国将在台湾问题上面临“无法承受的代价”](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/20/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/23/README.md)
  ` wenwu`
 
-### [MILES GUO歌声 CASSANDRA预言](/content/gnews/21/README.md)
+### [MILES GUO歌声 CASSANDRA预言](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染](/content/gnews/22/README.md)
+### [未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [FDA警示：辉瑞的新冠病毒抗病毒药与许多常用药物联用时，会引起危及生命的反应](/content/gnews/23/README.md)
+### [FDA警示：辉瑞的新冠病毒抗病毒药与许多常用药物联用时，会引起危及生命的反应](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/1/2022国际财经快讯：世界主权财富和公共养老基金资产创纪录；华尔街接近纪录高点](/content/gnews/24/README.md)
+### [1/1/2022国际财经快讯：世界主权财富和公共养老基金资产创纪录；华尔街接近纪录高点](/content/gnews/27/README.md)
  ` 秘密翻译组金融团队`
 
-### [音乐、人生——人可以能力不行，但不能造假](/content/gnews/25/README.md)
+### [音乐、人生——人可以能力不行，但不能造假](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》](/content/gnews/26/README.md)
+### [2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2022年1月1日早](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2022年1月1日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [中共提高人民币汇率指数货币篮子中美元和欧元的权重](/content/gnews/28/README.md)
+### [中共提高人民币汇率指数货币篮子中美元和欧元的权重](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [01/01/22香港快讯 《立场》前署任总编林绍桐出院 旁听亲友同事落泪挥手 庭外相拥而泣](/content/gnews/29/README.md)
+### [01/01/22香港快讯 《立场》前署任总编林绍桐出院 旁听亲友同事落泪挥手 庭外相拥而泣](/content/gnews/32/README.md)
  ` 英喜-粵語組`
 
-### [德国外长及内务部长将不参加中共冬奥会](/content/gnews/30/README.md)
+### [德国外长及内务部长将不参加中共冬奥会](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [华为2021年度营收下降30%](/content/gnews/31/README.md)
+### [华为2021年度营收下降30%](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/32/README.md)
+### [2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/01/01 英喜时事速递](/content/gnews/33/README.md)
+### [2022/01/01 英喜时事速递](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说](/content/gnews/34/README.md)
+### [麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说](/content/gnews/37/README.md)
  ` GTV新闻访谈`
-
-### [DC每日热点0101](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [以色列开始接种第四剂中共病毒疫苗](/content/gnews/36/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [英国批准辉瑞抗中共病毒新药](/content/gnews/37/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [共产党操控过的美国政治](/content/gnews/38/README.md)
  ` 骄子`
