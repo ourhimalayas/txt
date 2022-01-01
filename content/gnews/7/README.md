@@ -2,118 +2,27 @@
 ---
 
 
-## 接客马《攻守道》真实版
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1811039/)
+## 2022年世界必须对中共在新疆的种族灭绝暴行追责
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1811040/)
 
-作者： GBW
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
-0
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2.png)
-1
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-39.png)
-2
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1.png)
-3
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5.png)
-4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-1.png)
-5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-1.png)
-6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6.png)
-7
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7.png)
-8
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png)
-9
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9.png)
-10
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10.png)
-11
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11.png)
-12
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12.png)
-13
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13.png)
-14
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.png)
-15
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15.png)
-16
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16.png)
-17
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17.png)
-18
-![](https://assets.gnews.org/wp-content/uploads/2022/01/18.png)
-19
-![](https://assets.gnews.org/wp-content/uploads/2022/01/19.png)
-20
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20.png)
-21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/21.png)
-22
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22.png)
-23
-![](https://assets.gnews.org/wp-content/uploads/2022/01/23.png)
-24
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.png)
-25
-![](https://assets.gnews.org/wp-content/uploads/2022/01/25.png)
-26
-![](https://assets.gnews.org/wp-content/uploads/2022/01/26.png)
-27
-![](https://assets.gnews.org/wp-content/uploads/2022/01/27.png)
-28
-![](https://assets.gnews.org/wp-content/uploads/2022/01/28.png)
-29
-![](https://assets.gnews.org/wp-content/uploads/2022/01/29.png)
-30
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30.png)
-31
-![](https://assets.gnews.org/wp-content/uploads/2022/01/31.png)
-32
-![](https://assets.gnews.org/wp-content/uploads/2022/01/32.png)
-33
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33.png)
-34
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.png)
-35
-![](https://assets.gnews.org/wp-content/uploads/2022/01/35.png)
-36
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36.png)
-37
-![](https://assets.gnews.org/wp-content/uploads/2022/01/37.png)
-38
-![](https://assets.gnews.org/wp-content/uploads/2022/01/38.png)
-参考资料：
+翻译/撰稿：GoergeC（乔治）
+校对：zzballack
+上传：追着曙光跑
 
-原版《攻守道》：[https://www.youtube.com/watch?v=wfS9Uf5SKu8](https://www.youtube.com/watch?v=wfS9Uf5SKu8)
+据《外交学者》杂志 (The Diplomat) 2021年 12月25日报道，陈全国卸任新疆维吾尔自治区中共党委书记一职。一些观察者认为这是中共政府的圣诞礼物，表明中共可能会改变其在新疆的强硬政策。但是，新疆维吾尔人没那么天真，因为继任陈全国的马兴瑞曾担任广东省长的中共技术官僚，他不可能为被种族灭绝的新疆人民带来任何帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-01-at-17.14.19.jpeg)Credit: AP Photo/Ng Han Guan
+令人困惑的是，这次中共地方大员的更换并没有伴随对陈全国的问责。对很多新疆维吾尔人来说，陈全国的名字是种族灭绝的同义词，而讨论陈全国结束他对新疆的恐怖统治毫无意义。重要的是为被失踪、拘留、监禁、绝育、酷刑和谋杀的新疆维吾尔人和其他少数民族伸张正义。
 
-阿里巴巴卖假货被告：[https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518](https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518)
+对新疆人民的未来而言，向应对21世纪种族灭绝负责的中共官员追责至关重要。2021年，在追责目标上有些进展，但全世界可以而且必须做更多的事情，因为在新疆的种族灭绝远未结束。12月9日，由国际专家小组监督的独立维吾尔法庭裁定，中共对新疆维吾尔人和其他少数民族“犯下了种族灭绝罪、危害人类罪和酷刑罪”。12月23日，美国总统乔·拜登签署了《防止强迫维吾尔人劳动法》（Uyghur Forced Labor Prevention Act），并使其成为法律，该法案禁止由新疆强迫劳动生产的商品进入美国市场。此外，越来越多的国家正在加入对2022年2月北京冬奥会的外交抵制。
 
-阿里巴巴清理假货：[https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last](https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last)
+在即将到来的2022年，世界需要加强对新疆侵犯人权行为的具体问责措施，例如关于强迫劳动的立法、免受中共的跨国镇压、对侵犯人权责任人实施马格尼茨基制裁、联合国有意义的施压以及确认中共的行为是种族灭绝，这些只是应该采取措施的一部分。当野心勃勃的独裁者不害怕暴行导致的后果时，所有老百姓都很脆弱。陈全国可能已经收拾好行李离开新疆，但他对新疆人民犯下了暴行，绝不能让他逃避被责。中共的最高层更是如此，坚决对施暴者追责是避免再次发生类似新疆种族灭绝灾难的关键。
 
-阿里巴巴清理刷单：[https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest](https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest)
+**评论：**根据郭文贵先生在12月29日大直播中的爆料，陈全国这次被调离新疆完全不是外界认为的降职，而是将要进入最中共核心领导层的前奏。由此可见，中共对在新疆所犯下的种族灭绝罪行不但毫无悔改之心，更是不以为耻反以为荣。美国政府和参众两院关于新疆的一系列强硬立法和政策，标志自由世界已完全抛弃中共，认清中共嗜血的邪恶本质，这必将促使全世界团结起来和新中国联邦一道加速灭共的脚步。
 
-蚂蚁金服上市叫停：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+新闻来源：[In 2022, The World Must Hold China to Account for Genocide](https://thediplomat.com/2021/12/in-2022-the-world-must-hold-china-to-account-for-genocide/)
 
-阿里巴巴股价大跌：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
 
-郭文贵谈马云被捕：[https://gwins.org/cn/milesguo/22490.html](https://gwins.org/cn/milesguo/22490.html)
-
-郭文贵谈马云和中共国企业家的遭遇和出路：[https://gnews.org/zh-hans/1606278/](https://gnews.org/zh-hans/1606278/)
-
-郭文贵谈唯真不破：[https://gwins.org/cn/milesguo/22835.html](https://gwins.org/cn/milesguo/22835.html)
-
-发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,64 +15,64 @@
 
 ---
 
-### [中共追踪脸书和推特平台上的匿名批评人士](/content/gnews/1/README.md)
+### [关于台湾长荣海运发巨额年终奖之猜测](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [中共追踪脸书和推特平台上的匿名批评人士](/content/gnews/2/README.md)
  ` 首尔天池农场`
 
-### [墙内新闻](/content/gnews/2/README.md)
+### [墙内新闻](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [方舱医院又现西安——西安的疫情到底有多严重？](/content/gnews/3/README.md)
+### [方舱医院又现西安——西安的疫情到底有多严重？](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [美媒报道：中共国房地产开发商土地竞拍走缓](/content/gnews/4/README.md)
+### [美媒报道：中共国房地产开发商土地竞拍走缓](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [2021/12/29 墙内世界](/content/gnews/5/README.md)
+### [2021/12/29 墙内世界](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年世界必须对中共在新疆的种族灭绝暴行追责](/content/gnews/6/README.md)
+### [2022年世界必须对中共在新疆的种族灭绝暴行追责](/content/gnews/7/README.md)
  ` 首尔天池农场`
 
-### [接客马《攻守道》真实版](/content/gnews/7/README.md)
+### [接客马《攻守道》真实版](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [纽约州长强制大学生接种中共病毒疫苗加强针](/content/gnews/8/README.md)
+### [纽约州长强制大学生接种中共病毒疫苗加强针](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [穷的没法再穷的人 精神意淫共产主义](/content/gnews/9/README.md)
+### [穷的没法再穷的人 精神意淫共产主义](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西方受过高等教育的人 因杀富济贫的精神救济而相信共产主义](/content/gnews/10/README.md)
+### [西方受过高等教育的人 因杀富济贫的精神救济而相信共产主义](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Iosbel Yeung用一字之差来陷害爆料革命](/content/gnews/11/README.md)
+### [Iosbel Yeung用一字之差来陷害爆料革命](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾总统表示：将追求自由、民主，反对独裁中国政府](/content/gnews/12/README.md)
+### [台湾总统表示：将追求自由、民主，反对独裁中国政府](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党和HBO的股东恐惧的恰恰是正道主义](/content/gnews/13/README.md)
+### [共产党和HBO的股东恐惧的恰恰是正道主义](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [HBO出卖良知和原则 为了中共国4000亿美金市场](/content/gnews/14/README.md)
+### [HBO出卖良知和原则 为了中共国4000亿美金市场](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [毛用林彪干掉刘少奇](/content/gnews/15/README.md)
+### [毛用林彪干掉刘少奇](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《赞美》](/content/gnews/16/README.md)
+### [《赞美》](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生喜币无国界 无政府操控 全球化描述](/content/gnews/17/README.md)
+### [郭文贵先生喜币无国界 无政府操控 全球化描述](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [独裁者都是梦游 必定黄粱一梦](/content/gnews/18/README.md)
+### [独裁者都是梦游 必定黄粱一梦](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [持之以恒七哥练会郭氏英语 坚持灭共 让共产党不敢提七哥的名字](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [正道主义的本质和邪教的特征背道而驰](/content/gnews/20/README.md)
+### [持之以恒七哥练会郭氏英语 坚持灭共 让共产党不敢提七哥的名字](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共利用舆情监控软件在世界搜集相关目标信息](/content/gnews/21/README.md)
@@ -144,38 +144,38 @@
 ### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/44/README.md)
- ` GTV新闻访谈`
-
-### [15个成员国签署全球最大自贸区](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西媒头条 — 第143期](/content/gnews/47/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/31每日播报｜“奥米炕”肆虐致美国儿童住院人数激增](/content/gnews/48/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [12/30每日播报|社媒消息：班农先生 PandaRolling](/content/gnews/49/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [CDC承认PCR测试存在重大缺陷](/content/gnews/50/README.md)
- ` GTV新闻访谈`
-
-### [“德米克戎”会是下一个新变种么？](/content/gnews/51/README.md)
- ` 澳喜农场`
-
-### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/52/README.md)
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
 
-### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/53/README.md)
- ` 日本东京方舟农场`
+### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
 
-### [为了搞死美国，中共高官纷纷劝谏习近平继续放毒](/content/gnews/54/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [15个成员国签署全球最大自贸区](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加州医院护士勇敢吹哨，完全接种出现中风心脏问题](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西媒头条 — 第143期](/content/gnews/48/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/31每日播报｜“奥米炕”肆虐致美国儿童住院人数激增](/content/gnews/49/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [12/30每日播报|社媒消息：班农先生 PandaRolling](/content/gnews/50/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [CDC承认PCR测试存在重大缺陷](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
+
+### [“德米克戎”会是下一个新变种么？](/content/gnews/52/README.md)
+ ` 澳喜农场`
+
+### [10月8日采访喜马拉雅交易所首席执行官杰西·布朗 &#8211; 是否会有其他在其他交易所流行的加密货币被添加到喜马拉雅交易所？你认为会加入吗？](/content/gnews/53/README.md)
+ ` 纽约香草山MOS01`
+
+### [因危及加拿大国家安全 中国移动在加公司停止运营](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
 
 ### [在班农的 “作战室：大流行”隔离两年（2/2）](/content/gnews/55/README.md)
  ` 西班牙巴塞罗那喜悦农场`
