@@ -2,36 +2,53 @@
 ---
 
 
-## 华为2021年度营收下降30%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812428/)
+## 法国网球明星贝努瓦·派尔 (Benoit Paire) 在“第 250 次”检测出 Covid-19 呈阳性后大发雷霆
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1812960/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2021年12月31日，在受到美国政府的多轮制裁后，中共华为集团在2021年的年度营业收入下降至六千三百四十亿人民币，相比去年下降约29%。
+作者：马修沙利文
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpeg)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/816691_640x360_large_20211229125442.jpg)图片来源：网络
+法国网球选手贝努瓦·派尔 (Benoit Paire) 透露，在下个月的澳大利亚网球公开赛之前，他的 Covid-19 检测呈阳性。
 
-相关报道提及，自2019年起，由于华为涉及盗窃数据和危害网络安全，美国政府开始对华为实施了一系列禁运制裁措施，当中包括限制华为对关键零部件供应和技术获取。此后，全球所有使用美国技术的企业均被禁止在未获得出口许可的情况下向华为提供相关技术和产品。
+世界排名第 46 位的选手原定于 1 月 4 日开始在墨尔本参加一场预选赛，但这些计划已被打乱。
 
-分析人士提及，虽然华为公司为了挽回其损失尝试推动了其他业务，但其市场份额目前正在大量流失，同时，其消费者业务，尤其是在智能手机制造方面也已经遭受了沉重的打击。
+在检测出 Covid 呈阳性后，Paire 似乎正在一个未知的地方隔离，他显然对这种折磨感到厌烦。
 
-参考链接：
-1）[https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458](https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458)
-2）[Huawei revenues fall 30% in 2021 but company sounds optimistic note](https://californianewstimes.com/huawei-revenues-fall-30-in-2021-but-company-sounds-optimistic-note/640017/)
+“嘿，我的名字是 Benoit Paire，这是我第 250 次检测出 Covid 呈阳性！！” 他在周三发布的 Instagram 新闻报道中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+“老实说，我再也受不了这个 Covid s\*\*\*了。 我怎么样呢？ 由于 Covid 我流鼻涕，但因为在国际旅途的酒店房间里进行了所有这些隔离，我的精神状态不佳”。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+“去年很艰难，今年开始完全一样！！”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这位 32 岁的年轻人接种了疫苗，并澄清说他“100%”支持疫苗。
+
+“只有一件事，我 100% 支持疫苗，但让我们像 Covid 之前一样生活，否则我不明白有何意义”，他补充道。
+
+澳大利亚网球公开赛将于 1 月 22 日开始，留给 Paire 有几周的时间进行阴性测试并评估他是否适合参加比赛。
+
+他最近的阳性测试继续为这位炫耀的球员带来厄运，他曾多次在大满贯赛事中闯入第四轮。
+
+Paire 在第一场比赛前几天对 Covid 检测呈阳性后，被排除在 2020 年美国公开赛之外。
+
+今年早些时候，他在飞往墨尔本的航班上的一个人对 Covid 呈阳性反应后，被迫在澳网前接受了 14 天的严格隔离。
+
+佩尔随后首轮失利，在澳网发起了惊人的进攻，称赛事“s\*\*t”，并抨击主办方不尊重球员。
+
+由于多次出现在场上的轻罪，包括随地吐痰和公然破坏比赛，他被禁止代表法国参加东京奥运会。
+
+澳大利亚公开赛可能没有几个大牌球员，因为许多顶级球员都在与新冠病毒或伤病作斗争。
+
+拉斐尔·纳达尔和俄罗斯的安德烈·鲁布列夫在过去一周的新冠病毒检测呈阳性，而罗杰·费德勒和斯坦·瓦林卡将因伤缺席澳网。
+
+来源链接：
+
+[https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058](https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058)
+
+编辑/发布：LILY
+
+20220101
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,25 @@
 ---
 
 
-## 全球多地中共病毒感染病例飙升
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812027/)
+## 美国疫情加剧导致航空业严重受挫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812028/)
 
-作者：纽约香草山教育部 Naughty(文行)，东京樱花团 在远方
+作者：纽约香草山教育部 Naughty(文行)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+2021年12月29日，美国捷蓝航空公司于当天晚些时候证实，由于美国东北部地区的奥密克戎病例预计将持续上升，这可能在未来几天对该公司机组人员造成进一步影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.35.18-PM.png)
+据公司相关人员透露，该公司眼下正在面临着因中共病毒确诊病例激增而导致的机组人员短缺现状，为此，公司已经取消了直至2022年1月13日的约1280个航班。目前，美国其他航空公司还没有详细说明他们在2022年1月份的行程变化。
 
+另外，数据显示，捷蓝航空公司的股票在本周内已经下跌了近2%，加之捷蓝航空已经公布的行程削减，评论人士指出，这预示着航空业已经开始准备应对因奥密克戎疫情爆发而造成的航空服务长时间中断的情形。
 
-2021年12月30日，据美国媒体报道称，纽约州当天报告了超过七万四千例新增中共病毒确诊病例，也是该州两周以来第十次打破了单日新增确诊纪录。州数据显示，当地住院人数也在继续上升，目前的总住院人数为 七千三百七十三人，相较周一的数据增加了近 20%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.08.40-PM.png)
-
-与此同时，澳大利亚新南威尔士州也在当天公布了超过两万一千例新增中共病毒确诊病例，该数据比前一天的统计数据猛增了近一万例，达到了自中共病毒大流行开始以来，澳大利亚各个地区报告的最高病例数。据新南威尔士州卫生部透露，这些确诊病例基于对近15万澳大利亚民众进行核酸筛查的结果，而这些感染患者则主要集中在悉尼地区。
-
-值得注意的是，韩国在当天也新增了四千八百七十五例中共病毒感染患者，其中，重症患者达一千零五十六例，另有108人死亡。数据表明，截止目前，在韩国政府加强中共病毒的防疫措施后，该国重症患者连续第11天仍维持在千人以上。对此，韩国当局于31日宣布，政府现行的防疫措施将被再度延长两周，包括餐厅及咖啡厅限时营业至晚间9时，私人聚会限员4人等。
-
-参考链接：
-
-1. [New York reports record 74K new COVID-19 cases ahead of New Year’s Eve](https://nystateofpolitics.com/state-of-politics/new-york/coronavirus/2021/12/30/new-york-reports-record-74-000-new-covid-19-cases)
-2. [December 30 coronavirus pandemic and Omicron variant news](https://edition.cnn.com/world/live-news/omicron-variant-coronavirus-news-12-30-21/index.html)
-3. [再刷新高！南韓激增269例Omicron確診 現行防疫措施延長2週](https://news.ltn.com.tw/news/world/breakingnews/3785844)
-
+参考链接：[JetBlue cancels flights through mid-January as Omicron sidelines crews](https://www.newsbreak.com/n/0dZ8E3qg?pd=0BtSHkgm&amp;lang=en_US&amp;s=i16)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑：飞虹，DM
-总编：童谣
+编辑：Kathy文艺
+总编：Irene木木 
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -40,6 +31,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

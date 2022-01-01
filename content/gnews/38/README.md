@@ -2,53 +2,32 @@
 ---
 
 
-## Illustration 3:The CCP may release the most toxic and poisonous.
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1811736/)
+## 共产党操控过的美国政治
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1811904/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1BBB1D41-95E8-44EC-BC7F-75F5777EBC7B.png)![](https://lh5.googleusercontent.com/-LSXlfcNt6_5RI3nTAb8GRmCZn3UKe394L3Nlhr9ZNP-VPx5qrPepwZ3tzx5fso8ap64fvot3JOBI6BjLroRqGVIqLptEKK0yf02OedVeVSkwxiaVfVzSlyO11U_IlUQeDDIWKBw)
-No.1 The scientist showed them that there are thousands of different kinds of coronaviruses, coronaviruses in addition to what is called a bacterium, what is called a microbial virus, that is, in the grass grows out of the small worm, from this worm mutates into a kind of poison, very terrible. …… And he seriously warned the United States if another outbreak, absolutely not 500,000 or a million, 1/3 people of the United States are in danger of life, this is not a joke, this is not a joke. Miles Guo May 30, 2021
+文：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AP_16327701075671.jpg)川普 / 图源：网路
+川普时代，中国人对川普的喜欢超过了美国本地人，不仅仅是在美华裔，就连在中共这样有防火墙的国家里，都没有阻挡川普接收到成倍成倍的喜欢。尤其在中文社交互联网上，川普更是妥妥的超级网红。美国现在有投票权的华裔不仅从数量上还是对自由民主的追求上，都迫切值得关注，不然秦刚这样的人不会专门来找他们。拥有投票权的华裔首先是在美国生活了有些年头的人了，再加上2017年文贵先生的爆料革命，几乎就是号召到了一大批有能力并且有信仰的美籍华裔，毕竟他们从中共国逃出来的目的很单纯，就是脱离共产党，觉得那不是正常人应该呆的地方。而川普为什么会受到如此众多的华裔喜欢，最主要一点就是因为他反共，以及对共产党的各种强硬态度，起码从白宫这里开始扭转世界对共产党的看法。只是这些华裔就算跑出来了还是要受到共产党的控制，秦刚试图让这些人的投票权重归共产党，换句话说，共产党就是在操控美国政治。毕竟美籍华裔，是入籍美国的，他们入籍的时候都宣誓过，要誓死效忠美国，维护美国的法治。共产党不但在中国大陆对本地老百姓进行控制，更加在全世界各地对华裔进行控制。私生子那些手段尚且是一用百用，控制正常美国公民的投票权更是无下限的。
 
-这位科学家向他们展示了中共有上千种的配好的各种冠状病毒，冠状病毒之外还有一个叫什么菌，叫什么微菌病毒，就是在草里边儿长出来小虫，从这个虫子身上又变异成的一种毒，非常之可怕。……而且他严重警告美国如果再次爆发，绝对不是死五十万、一百万，美国可能1/3的人都有生命的危险，这不是开玩笑的，这不是开玩笑的。Miles Guo 2021年5月30日
-![](https://lh6.googleusercontent.com/IXAkTe2fKEpgjYJRdNRLuPzQdaFCyhut1gLpV68VVBWaBmtz3E3tS-cGIPU2ZGu_jhKh_yQ3UzU1waf4re5viKVmiRlI-OZyJZZ9gzjJ1MUp8xo_hvW7JmJAgTlKT7G6JVuHR-5T)
-When the Chinese Communist Party is nearing its end, it will unleash a highly toxic “heat poison” on the world with no incubation period and a high lethality rate.
+爆料革命永远不会掺合他国政治，政治真得太肮脏了。然而搞政治的那些人，无论是总统还是议员，他们首先得是个人，优秀的政治家能够扭转危机，并不是在歌颂，只是因为他处的位置，能够让民众有信服的余地，毕竟在民主国家，这些人都是投票选上去的。一切具有政治因素的事件，总会让人恶心，这些政治家还以为自己的小伎俩不会被识破，都藏在西装和油头的粉饰之下，可这世上有几人是真瞎子？说白了，你先是个人，然后才是个从政的人，是人就有和所有人性一样的需求，家庭孩子钱享受，样样都没差，凭啥要从政治上来勾兑得到？美国人拥有自由民主，但是美国政治照样肮脏不堪，和共产党勾兑是底层美国议员一步一步往上走的阶梯，越和共产党走的近就越会爬得高。美国的某议员就是一个鲜活生动的例子，一开始非常强烈的反共，然而呢，到了关键时候就替共产党说话了。这些美国人和那些逃离中共国的华裔，从本质上来说，都是共产党一手操办的棋子，议员反共的因素被入选从政，反共是有追求的华裔唯一想要得到的，那好了，这事儿就完全被共产党捏在手里，能有什么真相呢？
 
-中共在快完蛋的时候，将在全世界释放毒性强的七窍流血的“热毒”，无潜伏期，高致死率。Miles Guo 2021年9月23日![](https://lh5.googleusercontent.com/KqsYFaJwy5NNsYxYRadp5AW-5vyxkcPt3YAlCNuyM4FsoZSVWPhBQmtcsKdpM-T3TyTDLcd1Fqm_8Ep7EKrzEPD2TGx00kXN9h9sZGrvL_dTtmhb6U3EzWV085tJqNtw10YBORdL)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/huangyi.jpg)
 
-No.2 Our whistle-blower scientist in Europe said to me the first two days, he said when it re-releases, if the Communist Party is crazy to re-release, it is not this, re-release out of the poison is called heat poison, remember my words today, it is called heat poison. What do you mean by “hot poison”? After you have the poison, immediately bleed from all the seven openings of one’s head, is the type of severe poison, there is no reaction period, no reaction period! Miles Guo September 23, 2021
+政治为什么能够到了这样肮脏的地步。民主政治何以堕落到了如此地步？大家不都是人嘛，感觉这些肮脏政治家都开始脱离人类成为其他品类了。原因只有一个，处在其位，不司其职，不配其位。更深一点的原因就是共产党把这些职位的人全部都蓝金黄了，只能更脏，所有的政治都变得和共产主义的政策一样，撒谎，手底下交易，出卖大多数人的利益，编织一些无法实现的乌托邦梦，全球开始迈向共产党的超级奴隶集中营。政客们习惯了肮脏，政治里充满了黑手交易。最受苦的永远都是老百姓，可是老百姓当初给这些政客投票的时候，有哪些人是被迫的，有人去问吗？问了有结果吗？老百姓合理游行到底有没有用？
 
-我们的欧洲的科学家头两天跟我说，他说再放，如果说共产党疯狂再放，他说就不是这个了，再放出来的毒叫热毒，记住我今天的话，叫热毒。什么叫热毒啊？就是你放完了(毒)，立马就七窍出血结束，就是剧毒型的，没有什么反应期，没有反应期！记住我说的话啊，再有毒的时候就是七窍流血，而且几乎是死亡率奇高。Miles Guo 2021年9月23日
-![](https://lh5.googleusercontent.com/bMxdQ-O5eRkbCdvX-HONj-lxFFf82S1wnrpIwquzsqWNXRXo0ekZlxvRwnGbVDC2wksQWiGpAGhxMVGISkMVV5CvxZc1BT0Rnor9NxfCmjH2qX6y51n0lsQciJC7Q0AcBVseYMSS)
-No.3 When the communist coronavirus has been released, there is no longer anyone can stop the problem of who dares to use biochemical weapons, and who uses them when it is a complication of the coronavirus. And all found an excuse and a platform, which is the most dangerous. All the deaths he considered normal, and human on from the past did not think that biochemical virus will be used, saw millions of people die around the world, hundreds of millions of people are infected when you have gotten used to the death, who then put the virus that is all right.Miles GuoSeptember 23, 2021
+去年美国1月6号的国会山暴徒事件，是美国大选中永远无法绕过的。还有几天就距离国会山暴徒事件快一年了，一年了，美国程序依然在为这件事声讨。这事儿要是放在中共国，也许当天这些人就会被抓起来全关进去，不用审判，直接击毙。多米尼机选总统拜登，在民众的质疑声中做了总统。就依然做了总统，因为这是程序。国会山的暴徒发生了流血事件，是因为不满意这个机选结局。视频画面里我们看到的是那些长得像塔利班一样的恐怖分子，戴着面纱，还有的嘴里讲着中文，这些都被媒体的镜头记录下来了。而同时在发生暴动的时候，郭先生也在直播中讲述了这些，并提醒战友尽量不要去，怕被利用，且可能会发生有人流血的事件。再然后，就是仅仅根据这件事关于媒体上的报道，注意仅仅是来自媒体的报道，先把班农先生唤去法庭，试图把他打成极右翼分子，然后把当天合理和平支持川普的美籍华裔我们的战友Nicole，打造成郭文贵先生的随从者，就是恐怖分子，暴徒。请再次注意，这件事的记录者，一切法律和法官的判断来源，是媒体。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11a1b15d14d14abaab83788fcc4106b0.jpeg)国会山事件 / 图源：网路
+文贵先生经常说，自己在法庭上被法官问到说某某媒体报道的关于你的信息，假新闻遍布本来已经不可思议了，现在居然在法庭上还能见到假新闻，还是被作为证据来展示。到底有没有人去核对这些媒体报道的真假？媒体上的一个镜头语言，比如当时暴动记录的那句中文，走了，快走了，那些蒙着面像塔利班一样的恐怖分子，被杨贝贝移花接木栽赃给了美籍华人。共产主义美化乌托邦，利用媒体的全方面操作来达到操控他国政治的目的，这是共产党一直在做的事情，分辨起来也很简单，是否刻意，是否移花接木？
 
-当共产党的冠状病毒放出去以后，已经没有任何人可以停止，谁敢不敢使用生化武器的问题了，而且谁使用生化武器的时候，这是冠状病毒的并发症。而且都找到借口和平台了，这是最危险的。所有的死亡他都认为是正常的，而且人类上从过去不认为生化病毒会被使用，看到了几百万人死亡在全世界，几亿人被感染的时候，你已经习惯了死亡的时候，谁再放病毒那都没事儿了。Miles Guo2021年9月23日
-![](https://lh5.googleusercontent.com/8U5CH-ru6lMMmUeyaxTUw-JyjgEls2ZI9DX9DHALWTQQRd49haQW7PhcSMH9dQFNWBA0RDGSviwy942afVhdr099uT0_24Nb6zK0vhTpEzalECrGorghhZcz8OsH3bDMFlyv2Ssk)
-No.4 About two weeks ago, I heard that the two people who created the virus for this project said something amazing: from now on, we can decide the fate of the Earth. How scary do you think that is, brothers and sisters, who want to decide the fate of the earth. You let us decide the fate of the earth, we will never do anything bad, we won’t even kill a chick. You let the communists, you let the forces of evil decide the fate of the earth, then the earth will be decided at any time. Miles Guo September 23, 2021
-
-大概两周前，我听说这个项目两个制造病毒的人说出了惊人之话，说：从现在起，我们可以决定地球的命运了。你想这有多可怕，兄弟姐妹们，谁都想决定地球的命运。你让咱们决定地球的命运，咱们永远不会干坏事儿，杀个鸡都不舍得。你让共产党，你让邪恶的力量决定地球的命运，那地球随时都会被决定了。Miles Guo 2021年9月23日
-![](https://lh6.googleusercontent.com/uPbHF6tMB8fV0F3Bwq-hSNxvphHinoZhd0J7e473aGlZMs_69GRpb0nKNwDw-RbxtI_U5wwwaH0ytIjkBuVbRz0KIua3XZIKGKENAQA95CqcSMW1JLYHALhTvkFp_GdhAvUVDC9E)
-No.5 Many people ask exactly what is the purpose of its poisoning? Who is the Communist Party colluding with? The Communist Party and all the people it colluded with, its pursuit is two points, first, to reduce the world’s human population by a large amount, a large amount, and then to achieve a so-called globalism. Secondly, control your genes, your thinking and your old age, sickness and death to need to be eliminated. miles Guo November 26, 2021
-
-很多人说到底它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。第二，控制你的基因、思维和你的老弱病死，以需淘汰。Miles Guo 2021年11月26日
-![](https://lh3.googleusercontent.com/mbMPNk7fSyZxLYEIaIvfvlScwXWC_Gy5VHdhrW1yEae4O_TCIgplmKB3_dipY3LNYf6mY7Vg8JTTtjmXjFfeq-8CfqW8pWnvds16ZKj7S5ua4vM5gdz-iCUt2WvYBE2fqvDjgRTj)
-No.6 In recent days people in the party have advised Xi to take this opportunity to take out the U.S. The U.S. has a death wish for our Chinese Communist Party and he must be taken out. This is the latest information that I broke. I heard that the NSC has set up a special coronavirus control group, not to mention Omicron. he is not controlling the non-contagious, but where to contagious, and who to contagious. The new virus is much more advanced than the one leaked in Wuhan. Scientists say the communists may be about to release the most toxic and poisonous virus. Miles Guo December 24, 2021
-
-最近几天党内的人劝习太阳借这个机会干掉美国，美国亡我中共之心不死，必须要干掉他。这是我爆的最新的消息。听说国安委成立了特别冠状新型病毒控制小组，没说Omicron。他不是控制不传染，而是往哪传染，让谁传染。新病毒比武汉泄露的病毒要高级的多。科学家说，共产党可能要放最毒最毒的毒了。Miles Guo2021年12月24日
-
-资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
-
-### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
-
-郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
+国会山这件事属于美国内部政治，爆料革命不掺合美国政治。但是共产党想利用这件事对海外中国人带来巨大伤害，并且是他们主动挑起的，杨贝贝的采访就是一种磨刀宣战的架势了。美国能让共产党玩成这样，那是美国的耻辱；中国人能被栽赃陷害成这种程度，更是奇耻大辱；新冠疫苗都扎到人的胳膊上，那是全人类的耻辱。这种满腔耻辱，时时刻刻在等着一颗火苗引燃。记得七哥说过的话，引燃以后赶紧跑开，做那个最后收拾战场的人。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+作者：骄子
+发布：骄子
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|夕阳杂谈 西安真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813080/)
+## GTV新闻访谈简报|2022年1月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1813141/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-周五傍晚，夕阳垂暮。疲惫了一天，放下手边工作。步到室外，让身体舒展一下。放松心情后，经过人事部门口。  “嗨，一直没见到你，有事想问你！”声音让我心里一惊。定眼一看，原来是人事部G经理隔门喊我。“什么事啊，”话音未落，我已踏入办公室。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
 
-“让打第三剂加强针了，你怎么看？”她微笑着问。望一眼，还有两个同事在，迅速的回答“不能打！”，“为什么？”我用事例告诉她，“我的岳父，今天是五七日子。他以前身体健康，就是8月份被强制接种两剂以后。感冒发烧没有嗅觉没有胃口，医院检查以后，心脏积液癌症晚期，不到两个月走了！”另外补充到：“咱们公司的一个离职B先生上一个月心梗走了，最近的Y经理刚刚脑梗还在ICU。”事实让他们感到惊诧。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“给钱打怎么样？”我望了下窗外的夕阳，“如果你不想看到明天的太阳，你就去吧。即使给十万，也卖不到生命啊。”随后，把文贵先生大直播，西安的真相告诉她们：西安疫情不是病毒原因，是地方主官为了政绩和利益勾结黑商，让老百姓接种的，都是250高剂量的疫苗，造成严重的“七窍出血”副作用！
+视频参看：[2022.01.01早GTV新闻访谈](https://gtv.org/video/id=61d056eaecc0b216cbb34c8b)
 
-原文链接：[夕阳杂谈 西安真相](https://gnews.org/zh-hans/1809531/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-音频处理：音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpeg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
