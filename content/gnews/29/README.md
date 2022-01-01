@@ -2,22 +2,40 @@
 ---
 
 
-## 2021年12月31日郭先生盖特 — 视频盖特1「2分28秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1810567/)
+## 荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810684/)
 
-听写：洛杉矶盘古农场 — Antsee-GTV
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-Video link: [https://gettr.com/post/pl8ateed0b](https://gettr.com/post/pl8ateed0b)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2B10C400-D608-4993-A282-E3113F431908.jpeg)
-看看啊，看这馍啊。啥馍～啥馍？来咧～你看看，兄弟姐妹们，这是蒸了20分钟，看着没有？20分钟。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Netherlands-quarantine.jpg)
 
-看看，这不是「上次的做法」，这是一个小时的发面，一个小时的发面。哎哟我的天哪！一个小时的发面，然后没有任何醒面的啊，醒面一共就一个小时。看到没有，厉害不，兄弟姐妹们？
 
-看看啊，看看啊 — 这个拿出来。看看这个，大家看看这个花卷 — 天呐！今天蒸的完全「成功」。看看啊，你想想这个有多好吃？！天呐！这真是死面的变成发面的了啊 — 用完全烫面的感觉蒸出的花卷。看看这个，哇～太牛了！太牛了！
+ 
+图片来源：www.viralnigeria.com.ng
 
-兄弟姐妹们，馍馍，花卷儿，哈哈 — 再给我一个盘子，这个边上别让它粘上了。看看啊，这个了不得了，了不得了！
 
-我来尝一下啊 — 哇～这个香的！没谁了，绝对天下第一！十分钟以后，吃个馍可以这样「扯着吃」，吃出跟牛筋一样的弹性！姆盖嗮了～
+#### 编译：小红帽
+
+根据RT12月31日报道，**在Omicron病例激增之后，荷兰将美国指定为 “非常高风险”的国家，从美国抵达的、完全接种新冠疫苗的旅客，现在必须在荷兰接受10天的隔离检疫。**
+
+周四，美国与阿富汗、海地、约旦、索马里、乌克兰、英国和委内瑞拉等国一起被列入黑名单。对美国旅客的强制检疫措施也在同一天推出。
+
+根据上周实施的限制，那些来自非常高风险国家的人“必须自我隔离10天，即使他们有新冠疫苗接种证明或康复证明”。
+
+如果旅行者在隔离过程中检测出新冠病毒呈阴性，则可以缩短自我隔离期时间。12岁及以上的旅客在进入荷兰时还必须提供新冠病毒检测阴性的证明。
+
+新的限制措施意义重大，因为该措施同样适用于已接种新冠疫苗和未接种新冠疫苗的旅行者。一些研究表明，某些新冠疫苗对Omicron的效果比对以前的毒株更差。
+
+新闻来源：[Netherlands forces vaxxed & unvaxxed Americans to quarantine — RT World News](https://www.rt.com/news/544865-netherlands-vaxxed-americans-quarantine/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
