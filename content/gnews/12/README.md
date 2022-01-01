@@ -2,32 +2,38 @@
 ---
 
 
-## 中共冻结并延长电子游戏审查 但已导致14万家公司倒闭
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1809923/)
+## 有声|班农先生：我永远不会退缩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1809975/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间11月15日下午，班农在结束了国会的调查后，接受媒体采访。
 
-据《自由时报》12月31日报道，中共国自2021年7月底起停止发表“过审”电子游戏名单，并预计将延长至2022年，至今已直接或间接导致14万家电子游戏产业相关公司倒闭停业。
+班农说：拜登下令梅里克起诉我，对我无端调查，这是梅里克、佩洛西和拜登犯下的地狱般的罪行；现在，我们已经厌倦了防守，我们要顺势而为，就此展开攻势。
 
-据《自由时报》援引《南华早报》报导，中（共）国国家新闻出版署（NPPA）自今年7月底开始，已经停止发布“过审”电子游戏名单，即已经停止发给游戏合法执照，预计将延长至2022年，将突破2018年长达9个月不发照的纪录。
+原文链接：[班农先生：我永远不会退缩](https://gnews.org/zh-hans/1669771/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-405.jpg)图片来自欧新社
+音频处理：喜山必胜Maverick
 
-尽管如此，中共国自今年7月以来，已有约14万家电子游戏产业公司，包括营销、广告、发行代理等相关领域，被迫关门倒闭、注销登记。而整个2020年度也仅有18万家电子游戏产业公司取消登记。
+发稿：Daxia
 
-另外，中共国电子游戏科技巨头腾讯、网易等公司，也因中共政府的这波“神操作”，将更多资源投往海外市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-*参考链接：*
+**更多资讯，更多关注**
 
-[2022也沒得玩！中國電玩審查延長凍結 14萬家公司倒閉](https://news.ltn.com.tw/news/world/breakingnews/3786436)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*素材采编：幽蘭自得*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：文顺*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*发布：Ranting*
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
