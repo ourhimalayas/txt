@@ -2,34 +2,31 @@
 ---
 
 
-## 全球多地中共病毒感染病例飙升
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812027/)
+## 南极极地站多数工作人员感染新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812029/)
 
-作者：纽约香草山教育部 Naughty(文行)，东京樱花团 在远方
+作者：银河勇气星 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-2021年12月30日，据美国媒体报道称，纽约州当天报告了超过七万四千例新增中共病毒确诊病例，也是该州两周以来第十次打破了单日新增确诊纪录。州数据显示，当地住院人数也在继续上升，目前的总住院人数为 七千三百七十三人，相较周一的数据增加了近 20%。
+当地时间2021年12月30日，据有关媒体报道，比利时伊丽莎白公主南极极地站25名工作人员中有三分之二确诊感染了中共病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.08.40-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.48.23-PM.png)
 
-与此同时，澳大利亚新南威尔士州也在当天公布了超过两万一千例新增中共病毒确诊病例，该数据比前一天的统计数据猛增了近一万例，达到了自中共病毒大流行开始以来，澳大利亚各个地区报告的最高病例数。据新南威尔士州卫生部透露，这些确诊病例基于对近15万澳大利亚民众进行核酸筛查的结果，而这些感染患者则主要集中在悉尼地区。
+消息显示，这些研究人员从比利时飞往南极站的途中曾在南非开普敦进行了为其10天的隔离。而他们在到达极地站后，已经确诊的三例感染者立即被隔离并在随后离开了站点。然而，奥密克戎病毒在极地站内的传播并未停止。
 
-值得注意的是，韩国在当天也新增了四千八百七十五例中共病毒感染患者，其中，重症患者达一千零五十六例，另有108人死亡。数据表明，截止目前，在韩国政府加强中共病毒的防疫措施后，该国重症患者连续第11天仍维持在千人以上。对此，韩国当局于31日宣布，政府现行的防疫措施将被再度延长两周，包括餐厅及咖啡厅限时营业至晚间9时，私人聚会限员4人等。
+据悉，这25名研究人员全部完成了中共病毒疫苗的全面接种，其中一人还接种了加强针。同时，所有的工作人员均通过了多次中共病毒PCR测试，且被隔离并生活在世界上最偏远的地方。即便如此，奥密克戎变种病毒仍然袭击该基地工作站。
 
-参考链接：
+目前，该极地站点已经缩短了工作时间，且暂不会有新人员前往该工作站，剩余的工作人员包括两名随队急诊医生将在南极滞留到2022年1月12日。
 
-1. [New York reports record 74K new COVID-19 cases ahead of New Year’s Eve](https://nystateofpolitics.com/state-of-politics/new-york/coronavirus/2021/12/30/new-york-reports-record-74-000-new-covid-19-cases)
-2. [December 30 coronavirus pandemic and Omicron variant news](https://edition.cnn.com/world/live-news/omicron-variant-coronavirus-news-12-30-21/index.html)
-3. [再刷新高！南韓激增269例Omicron確診 現行防疫措施延長2週](https://news.ltn.com.tw/news/world/breakingnews/3785844)
-
+参考链接：[美CDC：無論疫苗接種情況如何 都應避免搭乘郵輪](https://news.ltn.com.tw/news/world/breakingnews/3785840)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑：飞虹，DM
-总编：童谣
+编辑：Kathy文艺
+总编：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

@@ -2,35 +2,24 @@
 ---
 
 
-## 中共国水资源短缺威胁到全亚洲
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812082/)
+## 【中日财经爆】因倒车摄像头隐患，特斯拉召回近50万辆车
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1812138/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-12月30日外媒刊文称，中共国前些年经济的崛起，依靠水，可耕地，以及廉价劳动力等，使中共在全球贸易体系中，一跃成为世界工厂。然而近年来，中共政府炸毁了巨量资源，且由于土地退化，加上过度使用，使可耕地面积锐减，水资源状况尤其严峻。数千条河流消失，剩下的水被工业化污染，80%～90%的地下水和50%的河水无法饮用；50%以上的地下水和25%的河水无法用于工农业。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7.jpg)
-水资源短缺导致中共经济增速放缓，人口下降，地缘政治冲突与日俱增，中共都是通过威胁贫困邻国来解决。如建造湄公河水坝导致当地反复的干旱和洪灾，新疆地区河流分流直接给中亚下游地区带来毁灭性影响。
+撰稿： 东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-39.png)[图片来源](https://www.tesla.com/zh_tw/model3)
+由于可能的安全隐患，电动汽车制造商特斯拉在美国召回近 50 万辆汽车，涉及 2017年至2020年生产的全部”Model 3″系列车和从2014年到2021年生产的11.9万辆”Model S” 。
 
-郭先生在直播中谈过，喜马拉雅山是亚洲最重要的水源地，86%-90%的河流自此发源。中共控制西藏并犯下反人类罪，背后是要掌控全亚洲水资源的野心。美参众两院此前提出的《西藏独立法案》给了中共致命一击，而爆料革命的情报发挥了重大作用。
+美国国家公路交通安全管理局（ NHTSA ）在互联网上公布的一份文件证实了这一消息。根据该文件， 其中，35.6万辆 “Model 3” 的倒车摄像头线束可能会因打开和关闭行李箱盖而受损，进而导致摄像故障。11.9万辆”Model S”则在解除锁定机构的情况下，存在前盖意外打开的风险，因而，可能”遮挡驾车人视线、从而增加事故风险”。
 
-参考链接：
+特斯拉指出，迄今未知有涉及这两种情况的任何技术事故。马斯克 (Elon Musk) 创立的该企业表示将为车主免费解决问题。
 
-- [China is running out of water and that’s scary for Asia](https://www.tbsnews.net/analysis/china-running-out-water-and-thats-scary-asia-350938?amp)
+2018年，特斯拉曾因车上动力转向系统问题在全球召回12.3万辆汽车。
 
+信息来源：[特斯拉召回近50万辆车](https://www.dw.com/zh/%E7%89%B9%E6%96%AF%E6%8B%89%E5%8F%AC%E5%9B%9E%E8%BF%9150%E4%B8%87%E8%BE%86%E8%BD%A6/a-60303307)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
