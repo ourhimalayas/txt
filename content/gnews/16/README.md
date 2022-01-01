@@ -2,82 +2,172 @@
 ---
 
 
-## 【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1812281/)
+## 2021年郭文贵最新单曲Hcoin To The Moon创造的历史记录
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1812319/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-如果没有中共不断释放新的病毒，中共病毒将会很快就会消失！
+12/31/2021 郭文贵先生的最新歌曲Hcoin To the Moon及其MV版视频上线iTunes的1个月内，创造了历史。
 
-2021年11月24日，卡塔尔国家COVID-19（中共病毒）流行病学研究小组发表的题为《[Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections](https://dx.doi.org/10.1056%2FNEJMc2108120)》研究报告表明，对于没有注射中共病毒毒疫苗的人群来说，如果曾经感染过中共病毒，再次感染中共病毒发展为需要住院治疗的风险为之前从未感染者的1%，更不会有致命性的后果，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。
+* * *
 
-多哈公共卫生管理部门（Ministry of Public Health, Doha）、卡塔尔多哈康奈尔大学（Weill Cornell Medicine-Qatar, Cornell University, Doha）、卡塔尔大学（Qatar University）、多哈哈马德医疗公司（Hamad Medical Corporation, Doha）、多哈西德拉医学（Sidra  Medicine, Doha,  Qatar）、多哈基本卫生保健公司（Primary Health Care  Corporation, Doha）的几十名医学专家和学者共同参与了这项研究。
+[【PDF 下载】1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)
 
-这项研究获得了卡塔尔哈马德医疗公司（Hamad Medical Corporation）和卡塔尔机构审查委员会——卡塔尔威尔康奈尔医学（Weill  Cornell  Medicine-Qatar Institutional  Review  Boards）的批准和吉利德科学（Gilead Sciences）的机构赠款资金赞助。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
 
-这次研究的数据来源于卡塔尔国家严重急性呼吸系统综合症冠状病毒 (SARS-CoV-2，或Covid-19、中共病毒)数据库，这些数据库是从卡塔尔全国完全集成的数字健康信息平台中检索到的，数据的权威性勿容置疑。
 
-从2020年3月到2020年6月，卡塔尔出现了第一波Covid-19感染，此后大约40%的人口具有可检测到的SARS-CoV-2抗体。由于中共在2020年末和2021年初再次投毒，先后投放中共病毒的变体alpha（B.1.1.7）病毒和beta（B.1.351）病毒，该国随后从2021年1月到2021年5月经历了两次背靠背感染高峰，这为评估再感染可能性创造了流行病学机会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Qatar-COVID-19-New-Cases.jpg)
-2020年2月28日至2021年4月28日期间，卡塔尔通过聚合酶链反应(polymerase-chain-reaction，PCR)测试确诊353,326人感染中共病毒。在这353,326人中，有87,547人在2020年12月16日（卡塔尔开始中共病毒疫苗接种）到2021年4月28日期间有疫苗接种记录。剩下265,779名感染者从未打过中共病毒疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_28-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_29-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_30-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_31-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_32-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_33-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_34-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_35-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_36-1.jpg)
 
-在这87,547打了毒疫苗后感染中共病毒的人中，有59,937人注射了Pfizer-BioNTech的BNT162b2中共病毒疫苗，占68.5%。另外27,610人注射了Moderna的mRNA-1273中共病毒疫苗，占31.5%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_37.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_38.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_39.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_43.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_61.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/The-selection-process-for-identifying-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_62.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_63.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_64.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_65.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_66.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_67.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_68.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_69.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_70.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_72.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_73.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_74.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_84.jpg)
 
-根据性别、每隔5岁分段的年龄组、国籍和PCR检测日期的日历周期对数据进行调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_85.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_86.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_87.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_88.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_89.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_90.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_91.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_92.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_93.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_94.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_97.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_98.jpg)
 
-在这从未打过中共病毒疫苗的265,779名感染者中，有1,339人属于再次感染中共病毒，其中，有1304人属于初次感染90天后再次感染；有 264,440人属于初次感染中共病毒，其中仅6288人属于研究范围。曾经感染过中共病毒后，再次感染中共病毒的仅占1,339÷265,779=0.53%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_99.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_100.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_101.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_103.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_104.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_105.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_106.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_110.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_111.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_112.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_113.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_114.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_115.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_116.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_117.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_118.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_119.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_120.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_121.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_122.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_123.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_124.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_125.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_126.jpg)
 
-在第二次感染中共病毒的人1304中，有413人感染中共病毒变体B.1.351（beta）病毒，占31.7%、57人感染中共病毒变体B.1.1.7（alpha）病毒，占4.4%、213人感染一般的中共病毒，占16.3%，另外621人不确定感染了中共病毒的哪一种版本，占47.6%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_127.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_128.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_129.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_130.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_131.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_132.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_133.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_134.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_135.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_136.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_137.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_138.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_139.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_140.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_141.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_142.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_143.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_144.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_145.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_146.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_147.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_148.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_149.jpg)
 
-在初次感染中共病毒的6,288人中，有2,364人感染中共病毒变体B.1.351（beta）病毒，占37.6%、813人感染中共病毒变体B.1.1.7（alpha）病毒，占12.9%、919人感染一般的中共病毒，占15.8%，另外2,120人不确定感染了中共病毒的哪一种版本，占33.9%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Demographic-characteristics-of-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_150.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_151.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_152.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_153.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_154.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_155.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_156.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_157.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_158.jpg)
+[【PDF 下载】1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/1-31-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record-1.pdf)
 
-按照世界卫生组织（WHO）对COVID-19严重性、危急程度和死亡率分类，感染中共病毒的症状分为：轻型（Mild disease）和普通型（Moderate disease）（不需要住院治疗）、重型（Severe disease，需要住院治疗）、危重型（Critical disease）和死亡。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Sensitivity-analyses-for-severity-criticality-and-fatality-of-SARS-CoV-2-reinfections-versus-primary-infections-1-scaled.jpg)
-
-初次感染的6288人中，有6095例属于轻型和普通型，再感染的1304人中，有1300例属于轻型和普通型；
-
-初次感染的6288人中，有193例属于重型、危重型或死亡，再感染的1304人中，仅4例属于重型、危重型或死亡，其中：
-
-初次感染的6288人中，有158例属于重型，再感染的1304人中，有4例属于重型；
-
-初次感染的6288人中，有28例属于危重型，再感染的1304人中，没有危重型病例；
-
-初次感染的6288人中，有7例死亡，再感染的1304人中，没有死亡。
-
-根据以上的分析，可得出如下表的结论：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Severity-of-SARS-CoV-2-Reinfections-as-Compared-with-Primary-Infections-in-the-Population-of-Qatar-1.jpg)
-
-对于未接种中共病毒疫苗的人来说，再次感染时发展为严重病情的几率是初次感染时的0.12倍；再次感染时出现严重、危重或致命疾病的复合结局的几率是初次感染时的0.10 倍；没有人导致在ICU住院，也没有人以死亡告终。
-
-在2021年4月27日发表的论文《[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)》中，对2020年4月16日至12月31日期间所有 SARS-CoV-2 抗体检测呈阳性43,044人跟踪后发现，仅129人属于再次感染，在超过七个月的随访中，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。只有一人再感染是严重的，两人是中度的，没有一个是严重的或致命的。大多数再感染 (66.7%)人 是通过随机或常规检测或通过接触者追踪偶然诊断出来的，自然感染能对再感染提供强有力的保护。
-
-在2021年10月1日发表的论文《[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)》中，在对2020年2月28日至2020年8月12日期间的133,266例实验室确诊的SARS-CoV-2病例中，仅54人属于再次感染，仅1人在再次感染时住院，但于次日出院，没有死亡记录。病毒基因组测序证实了有4例属于遗传的再感染。得到了SARS-CoV-2再感染可能发生，但再感染风险估计为0.02%，这是一种罕见的现象，表明对再感染的保护性免疫在初次感染后持续至少几个月。
-
-对于未接种中共病毒疫苗的人来说，有过感染经历的人，再感染的可能性非常低，而且通常症状非常轻微，这可能是因为初次感染后免疫系统已经形成对中共病毒的自然免疫。
-
-如果没有中共不断投放新的放毒，中共病毒将很快发展为类似于其他季节性“普通感冒”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ccpVirus.jpg)
-
-目前，中共病毒感染数、重症数和死亡数不断飙升，根源在于CCP不断投放新的病毒！
-
-参考数据：
-
-[Severity of SARS-CoV-2 Reinfections as Compared with Primary Infections](https://www.nejm.org/doi/10.1056/NEJMc2108120)
-
-[Supplement  to: Abu‑Raddad LJ,  Chemaitelly  H, Bertollini  R. Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections. N Engl J Med 2021;385:2487‑9. DOI: 10.1056/NEJMc2108120](https://www.nejm.org/doi/suppl/10.1056/NEJMc2108120/suppl_file/nejmc2108120_appendix.pdf)
-
-[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)
-
-[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

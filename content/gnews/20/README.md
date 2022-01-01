@@ -2,42 +2,82 @@
 ---
 
 
-## 观电影切尔诺贝利核爆炸后感
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1812228/)
+## 【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1812281/)
 
-作者：温哥华扬帆农场 维京商人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-01-上午9.17.24.png)
-图片来源：news.un.org
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+如果没有中共不断释放新的病毒，中共病毒将会很快就会消失！
 
-圣诞假期，看了关于切尔诺贝利的影片，其中上至前苏联国家领导人，下至普通民众，包括切尔诺贝利核电站发生爆炸的第4号反应堆的工作人员，救火队员、医生护士、科学家和参与救援的军队，可谓众生百态，与我们当下面对的新冠病毒有很多相似之处。
+2021年11月24日，卡塔尔国家COVID-19（中共病毒）流行病学研究小组发表的题为《[Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections](https://dx.doi.org/10.1056%2FNEJMc2108120)》研究报告表明，对于没有注射中共病毒毒疫苗的人群来说，如果曾经感染过中共病毒，再次感染中共病毒发展为需要住院治疗的风险为之前从未感染者的1%，更不会有致命性的后果，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。
 
-事发时的掩盖
+多哈公共卫生管理部门（Ministry of Public Health, Doha）、卡塔尔多哈康奈尔大学（Weill Cornell Medicine-Qatar, Cornell University, Doha）、卡塔尔大学（Qatar University）、多哈哈马德医疗公司（Hamad Medical Corporation, Doha）、多哈西德拉医学（Sidra  Medicine, Doha,  Qatar）、多哈基本卫生保健公司（Primary Health Care  Corporation, Doha）的几十名医学专家和学者共同参与了这项研究。
 
-1986年4月26日当地时间凌晨1时23分，切尔诺贝利核电站的第4号反应堆发生爆炸，核反应堆堆芯直接暴露于空气中，释放出大量的放射性微粒。 爆炸发生后，现场附近已经测出了致命数量的核辐射，辐射值在不断升高，但是核专家们不愿相信，主观认为是测量辐射的机器出现了故障，更加讽刺的是，部分官员为了政绩竟然淡化事实，所以最初的上报结果是“核反应堆发生火灾，但并没有爆炸，核辐射数值在安全可控的范围内”。
+这项研究获得了卡塔尔哈马德医疗公司（Hamad Medical Corporation）和卡塔尔机构审查委员会——卡塔尔威尔康奈尔医学（Weill  Cornell  Medicine-Qatar Institutional  Review  Boards）的批准和吉利德科学（Gilead Sciences）的机构赠款资金赞助。
 
-这是多么熟悉的口吻，当2019年末武汉出现疫情，李文亮等多个医生在社交媒体平台开始转发出现不明肺炎的信息，武汉卫健委立即发通知禁止擅自公布与救治相关的信息，甚至司法机关也未审先判，说是扰乱社会。政府方面更是声称“不会人传人，可防可控”，被蒙在鼓里的老百姓不知道一场巨大的灾难正在袭来。
+这次研究的数据来源于卡塔尔国家严重急性呼吸系统综合症冠状病毒 (SARS-CoV-2，或Covid-19、中共病毒)数据库，这些数据库是从卡塔尔全国完全集成的数字健康信息平台中检索到的，数据的权威性勿容置疑。
 
-大规模爆发后的应急处理
+从2020年3月到2020年6月，卡塔尔出现了第一波Covid-19感染，此后大约40%的人口具有可检测到的SARS-CoV-2抗体。由于中共在2020年末和2021年初再次投毒，先后投放中共病毒的变体alpha（B.1.1.7）病毒和beta（B.1.351）病毒，该国随后从2021年1月到2021年5月经历了两次背靠背感染高峰，这为评估再感染可能性创造了流行病学机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Qatar-COVID-19-New-Cases.jpg)
+2020年2月28日至2021年4月28日期间，卡塔尔通过聚合酶链反应(polymerase-chain-reaction，PCR)测试确诊353,326人感染中共病毒。在这353,326人中，有87,547人在2020年12月16日（卡塔尔开始中共病毒疫苗接种）到2021年4月28日期间有疫苗接种记录。剩下265,779名感染者从未打过中共病毒疫苗。
 
-当第4号反应堆爆炸3个半小时后，约凌晨5点，前苏联总书记戈尔巴乔夫被叫醒，得知切尔诺贝利核电站发生爆炸；10小时后，莫斯科方面成立特别委员会，事故后当天夜间，莫斯科派遣部分特别委员会成员先行到达现场，这时，苏联政府终于明白事情远比他们想像的严重。爆炸后18小时，当局决定必须紧急疏散电站旁普里皮亚季市的居民；次日上午通知全市居民每人有2小时准备时间，只能携带有限物品撤离；在事故发生后34小时，官方调集的1000辆大客车开始疏散居民，政府也派出军队强制人们撤离，至下午2点，事故36小时后，约3万5千居民全部撤离。部分群众在撤离前就已经吸收了致命数量的辐射。
+在这87,547打了毒疫苗后感染中共病毒的人中，有59,937人注射了Pfizer-BioNTech的BNT162b2中共病毒疫苗，占68.5%。另外27,610人注射了Moderna的mRNA-1273中共病毒疫苗，占31.5%。
 
-那我们来看看中共病毒爆发时武汉的情况，2020年1月14日，武汉卫健委声称 确认“41例感染， 尚未发现人传人，不能排除有限人传人的可能，但是持续人传人的风险较低”。2020年1月20日，钟南山亮相央视，公开承认存在人传人情况，并强调病毒很可能来自于野生动物。2020年1月23日凌晨，中国传统佳节除夕的前一天，武汉市[疫情防控指挥部](https://zh.wikipedia.org/wiki/%E6%96%B0%E5%9E%8B%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%E7%9A%84%E8%82%BA%E7%82%8E%E7%96%AB%E6%83%85%E9%98%B2%E6%8E%A7%E6%8C%87%E6%8C%A5%E9%83%A8)宣布自当日10时起，武汉市全市城市[公交](https://zh.wikipedia.org/wiki/%E5%85%AC%E5%85%B1%E6%B1%BD%E8%BB%8A)、[地铁](https://zh.wikipedia.org/wiki/%E6%AD%A6%E6%B1%89%E5%9C%B0%E9%93%81)、轮渡、长途客运暂停运营，机场、火车站离汉通道暂时关闭。以此为标志，武汉市进入封城状态。之后从不同的渠道获悉，出现无数人道灾难，包括封锁小区，封条贴门，焊死单元入户大门，老人小孩缺乏食物和药物等；官方瞒报实际感染和死亡数字，小区和医院出现大量死亡案例，武汉火葬场出现尸体积压烧不完，转运至其他临近省市处理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/The-selection-process-for-identifying-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
 
-中长期的影响
+根据性别、每隔5岁分段的年龄组、国籍和PCR检测日期的日历周期对数据进行调整。
 
-切尔诺贝利核爆炸发生之后，苏联政府于1986年6月至11月间投入大量人力物力，建造了被称为“[石棺](https://zh.wikipedia.org/wiki/%E5%88%87%E5%B0%94%E8%AF%BA%E8%B4%9D%E5%88%A9%E6%A0%B8%E7%94%B5%E7%AB%99%E7%9F%B3%E6%A3%BA)”的水泥围墙和上盖，用来覆盖损毁的4号机组，以免核辐射扩散。2012年4月26日，即切尔诺贝利核电站事故26周年纪念日，又一座新石棺开工建设，2016年11月29日，新石棺正式安装完成。但是由于放射性物质[碘-131](https://zh.wikipedia.org/wiki/%E7%A2%98-131)、[锶-90](https://zh.wikipedia.org/wiki/%E9%8D%B6-90)和[铯-137](https://zh.wikipedia.org/wiki/%E9%8A%AB-137)暴露于大气中，科学家们担心核辐射会对当地人造成几个世纪的影响。相对比武汉，今天距离武汉爆出新冠疫情，已经2年了，大家还在疲于奔命地躲避变种病毒，老百姓们还在政府和科学家的呼吁下，一窝蜂地追打强化疫苗。面对打完疫苗已经出现大量突破性感染的事实，继续蒙骗大众只有继续打才可以提高免疫力和避免重症。与此同时，疫苗的副作用已经显现，环顾四周，案例比比皆是，问题只是大家有没有想到，愿不愿意接受这个事实。截至目前，官方统计，全球已经有48.3%的人口即37.7亿人完成2针接种，全球共接种88.1亿次针剂。当有一天疫苗灾难开始大规模爆发，病毒真相被公之于众之时，人类社会所面临的必然是毁灭性的打击，其影响远超切尔诺贝利核爆炸。
+在这从未打过中共病毒疫苗的265,779名感染者中，有1,339人属于再次感染中共病毒，其中，有1304人属于初次感染90天后再次感染；有 264,440人属于初次感染中共病毒，其中仅6288人属于研究范围。曾经感染过中共病毒后，再次感染中共病毒的仅占1,339÷265,779=0.53%。
 
-纵观影片，切尔诺贝利核爆炸暴露了苏共体制下，人治大于法治，政治正确高于一切。即使其核反应堆一直有设计上的缺陷，但是碍于要坚持苏共的伟大光明正确形象，一直将其列为最高机密，就连核电厂总工程师也不得而知。无独有偶，二十余年后的中华大地，共产国际的接班人中共的所作所为远远超过了老大哥苏共。毕竟，苏共从一开始的遮掩搪塞，到后来还是碍于国际关系准则和人道精神，积极减少核泄露带来的危害。当今的中共已经彻底不顾国民生死和全世界人类文明的基本底线，制毒放毒甚至以之来要挟国际社会。
+在第二次感染中共病毒的人1304中，有413人感染中共病毒变体B.1.351（beta）病毒，占31.7%、57人感染中共病毒变体B.1.1.7（alpha）病毒，占4.4%、213人感染一般的中共病毒，占16.3%，另外621人不确定感染了中共病毒的哪一种版本，占47.6%。
 
-戈尔巴乔夫曾说：“切尔诺贝利核事故可能是5年之后苏联解体的真正原因。”笔者认为，新冠病毒也将是中共解体的催化剂，它将中共体制下的假、丑、恶在全世界面前展露无遗。影片的结尾有2句话发人深省，负责处理切尔诺贝利事故的科学家在听证会上说 “Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid（每一句谎言都是真相前的负债，迟早都要还的) ”。
+在初次感染中共病毒的6,288人中，有2,364人感染中共病毒变体B.1.351（beta）病毒，占37.6%、813人感染中共病毒变体B.1.1.7（alpha）病毒，占12.9%、919人感染一般的中共病毒，占15.8%，另外2,120人不确定感染了中共病毒的哪一种版本，占33.9%。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Demographic-characteristics-of-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
 
-[早期病毒大流行时间线 – GNEWS](https://gnews.org/zh-hans/1747399/)
+按照世界卫生组织（WHO）对COVID-19严重性、危急程度和死亡率分类，感染中共病毒的症状分为：轻型（Mild disease）和普通型（Moderate disease）（不需要住院治疗）、重型（Severe disease，需要住院治疗）、危重型（Critical disease）和死亡。
 
-[切尔诺贝利核事故 – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/%E5%88%87%E5%B0%94%E8%AF%BA%E8%B4%9D%E5%88%A9%E6%A0%B8%E4%BA%8B%E6%95%85)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Sensitivity-analyses-for-severity-criticality-and-fatality-of-SARS-CoV-2-reinfections-versus-primary-infections-1-scaled.jpg)
 
-编审：月亮之上  发布：Winner为自由而战（文祥）
+初次感染的6288人中，有6095例属于轻型和普通型，再感染的1304人中，有1300例属于轻型和普通型；
+
+初次感染的6288人中，有193例属于重型、危重型或死亡，再感染的1304人中，仅4例属于重型、危重型或死亡，其中：
+
+初次感染的6288人中，有158例属于重型，再感染的1304人中，有4例属于重型；
+
+初次感染的6288人中，有28例属于危重型，再感染的1304人中，没有危重型病例；
+
+初次感染的6288人中，有7例死亡，再感染的1304人中，没有死亡。
+
+根据以上的分析，可得出如下表的结论：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Severity-of-SARS-CoV-2-Reinfections-as-Compared-with-Primary-Infections-in-the-Population-of-Qatar-1.jpg)
+
+对于未接种中共病毒疫苗的人来说，再次感染时发展为严重病情的几率是初次感染时的0.12倍；再次感染时出现严重、危重或致命疾病的复合结局的几率是初次感染时的0.10 倍；没有人导致在ICU住院，也没有人以死亡告终。
+
+在2021年4月27日发表的论文《[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)》中，对2020年4月16日至12月31日期间所有 SARS-CoV-2 抗体检测呈阳性43,044人跟踪后发现，仅129人属于再次感染，在超过七个月的随访中，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。只有一人再感染是严重的，两人是中度的，没有一个是严重的或致命的。大多数再感染 (66.7%)人 是通过随机或常规检测或通过接触者追踪偶然诊断出来的，自然感染能对再感染提供强有力的保护。
+
+在2021年10月1日发表的论文《[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)》中，在对2020年2月28日至2020年8月12日期间的133,266例实验室确诊的SARS-CoV-2病例中，仅54人属于再次感染，仅1人在再次感染时住院，但于次日出院，没有死亡记录。病毒基因组测序证实了有4例属于遗传的再感染。得到了SARS-CoV-2再感染可能发生，但再感染风险估计为0.02%，这是一种罕见的现象，表明对再感染的保护性免疫在初次感染后持续至少几个月。
+
+对于未接种中共病毒疫苗的人来说，有过感染经历的人，再感染的可能性非常低，而且通常症状非常轻微，这可能是因为初次感染后免疫系统已经形成对中共病毒的自然免疫。
+
+如果没有中共不断投放新的放毒，中共病毒将很快发展为类似于其他季节性“普通感冒”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ccpVirus.jpg)
+
+目前，中共病毒感染数、重症数和死亡数不断飙升，根源在于CCP不断投放新的病毒！
+
+参考数据：
+
+[Severity of SARS-CoV-2 Reinfections as Compared with Primary Infections](https://www.nejm.org/doi/10.1056/NEJMc2108120)
+
+[Supplement  to: Abu‑Raddad LJ,  Chemaitelly  H, Bertollini  R. Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections. N Engl J Med 2021;385:2487‑9. DOI: 10.1056/NEJMc2108120](https://www.nejm.org/doi/suppl/10.1056/NEJMc2108120/suppl_file/nejmc2108120_appendix.pdf)
+
+[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)
+
+[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
