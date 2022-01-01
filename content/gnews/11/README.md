@@ -2,60 +2,22 @@
 ---
 
 
-## 放射科医生报告，Covid-19 疫苗接种以后，腺病增加了 360倍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1810391/)
+## 巴尔的摩的病案经理报道因疫苗造成的不良事件
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1810500/)
 
-翻译：香草山商业部 —文锤
+注册护士实地报道说有很多病人因疫苗受伤害，她从未见过这样的事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+我是注册护士, 护理学学士，巴尔的摩的病案经理。 我的实地报道是说有很多病人(因疫苗)受伤，我从未见过这样的事情。自一月以来，我亲身经历了六次病人死亡。我已经数不清多少病人(因疫苗)受伤。我们不是在谈论典型的不良事件， 比如发烧、发冷、肌肉酸痛。 我在谈论的是，比如，排尿类血液感觉异常、 胃轻瘫、 精神状态改变、呼吸骤停、心脏骤停、细微差别的癫痫发作、新发的糖尿病。
 
+我的有些病人不再能走路。 病人不断抱怨，他们的脚和手在不停的灼烧地痛。 他们忘记了自己在哪里。在我多年的行医生涯中，我从未见过这样的事情。 随着时间的推移，我现在所看到的是几个月前接种新冠疫苗的病人，现在出现在了医院。他们产生了同样奇怪和令人困惑的不良反应。从医生的角度看，或许因为他们的认知偏差的存在，他们要么忽略，要么真的不知道如何处理。
 
-
-
-
-一位美国放射科医生匿名报告了今年令人震惊的观察结果。这位健康专家[目睹了](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)Covid-19疫苗被接种后不明原因的[腺病](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.healthline.com/health/adenopathy)[增加了360倍](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/download-3.jpeg)[图片来源](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)
-
-“腺病”是肿胀的腺体或淋巴结肿大（[淋巴结病](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.drugs.com/cg/lymphadenopathy.html)）的医学术语。它不是一种特定的疾病，而是多种潜在疾病的重要症状。然而，医生可能没有接受过足够的培训，无法确定何时接种疫苗导致淋巴结肿大。
-
-这位放射科医生表示，担心他会因为报告这些与疫苗相关的观察结果而失去工作，这也是他为什么用匿名的方式。在他原来的工作实践中，他每6个月会看到一例这样的淋巴异常肿大，然而自从启动了疫苗接种计划以后，这位放射科医生每天都会看到大约两到三例这种症状。这大约是原来的 360 倍。
-
-淋巴结在人体的免疫系统中起着非常重要的作用，因为它们携带淋巴液。通过身体组织的液体首先通过淋巴结过滤。[淋巴系统-](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;u=https://www.macmillan.org.uk/cancer-information-and-support/worried-about-cancer/the-lymphatic-system)负责提供白细胞以抵抗感染。如果淋巴结和腺体肿胀，通常表明身体正在感染病毒。其他经常伴随着口腔肿大的症状是流鼻涕、喉咙痛、耳痛、例假不规律和疲劳。
-
-腺病也可能由某些药物和损伤引起。身体任何部位的损伤都会导致水肿，导致受伤部位附近的淋巴结肿大。值得质疑的是，mRNA 疫苗中的刺突蛋白是否会损害全身的细胞和组织。
-
-在某些情况下，淋巴结和腺体肿胀可能表明体内存在癌症。最常见的涉及腺体的癌症是淋巴癌，腺病也可能是白血病的症状，白血病是一种血液和骨髓癌。再次让人值得怀疑的是，covid 疫苗注射是否会诱使身体更容易发展出这些类型的癌症。
-
-**原文阅读：**
-
-**[Radiologist Reports 360X Increase in Adenopathy (Swollen Glands) Post Covid-19 Vaccination – The Expose (dailyexpose.uk)](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)**
-
-原文作者：[captaindaretofly](https://dailyexpose.uk/author/captaindaretofly/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+全国各地每个治疗患者的医疗保健专业人士，肯定看到发生了什么。我在第一线也能看到。许多承受巨大痛苦(的病人)，没有得到很好的照顾，因为我们不知道怎么治疗这些病人。坦率地说是对因实验性疫苗而受到伤害的人，没有治疗他们的办法，没有怎样帮助他们的信息，。甚至突破医生的认知偏差，让他们接受该患者是因接种疫苗受到伤害是一个鸿沟，这是一个巨大的鸿沟。
 
 
 
 
+
+视频剪辑/听写/翻译：三分 |校对：烟波浩淼 | 视频制作+字幕：三分| 编辑&发布：闪电训练
 
  
 

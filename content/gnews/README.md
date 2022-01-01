@@ -15,124 +15,124 @@
 
 ---
 
-### [医学暗势力继续隐瞒伊维菌素真相](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年12月31日郭先生盖特 — 视频盖特1「2分28秒」](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [视频| 郭先生谈陈全国当年送“虫草”的那些事](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [全球疫情更新（南非入院率大降，澳洲则反而增加）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [禽流感抵达以色列加利利海，将对人类构成危险](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [被迫休无薪假的加拿大皇家骑警的离职信，措辞有力，值得阅读和传播](/content/gnews/6/README.md)
- ` MyWay`
-
-### [巴尔的摩的病案经理报道因疫苗造成的不良事件](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [老狐狸就是见过的猎人太多了](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [串珠510:我无数次说习会灭所有官二代，包括刘亚洲](/content/gnews/9/README.md)
- ` 郭爆料串珠`
-
-### [【世事解评】共产主义蚕食世界(十一) — 共产主义的圈套：新时代的阶级斗争](/content/gnews/10/README.md)
- ` 纽约香草山MOS03`
-
-### [放射科医生报告，Covid-19 疫苗接种以后，腺病增加了 360倍](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
-
-### [多国发声谴责港共非法拘捕《立场》高层](/content/gnews/12/README.md)
- ` GTV News Talk`
-
-### [文贵直播：美“国防支出法案”预示美国与中共正式为敌](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [三票专栏：别了，中共](/content/gnews/14/README.md)
- ` 三票先生`
-
-### [Omicron激增，美国在短短两天内突破100万个新COVID病例](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [市面上流通的枪支简介](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [GTV新闻访谈简报|2021年12月31日晚](/content/gnews/17/README.md)
- ` 纽约香草山MOS01`
-
-### [【#G时新闻】全球首例：英国团体就疫苗接种为反人类罪向海牙国际法庭提起诉讼！](/content/gnews/18/README.md)
- ` G-时新闻`
-
-### [文·贵天成——文贵先生谈“G-Club”（十二）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|中共疫情封锁 严酷政策不顾民生](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [因不遵守有关洗钱和恐怖活动的金融规定，加拿大金融交易与报告分析中心（FINTRAC）对中共国银行进行罚款](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [2021社交媒体万马齐喑，言论自由唯有盖特高歌一曲](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [全球超过2.87亿人感染中共病毒，超过543万人死亡](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美军在日本横须贺基地已有75人感染中共病毒](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|英前外相华裔妻做节目为中共宣传洗白](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [有声|西安疫苗灾难是中共造成的人祸](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|中共向普林斯顿大学迂回资助数百万美元](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/31/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/32/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/34/README.md)
+### [克鲁兹参议员指责福奇在儿童因新冠住院问题上玩政治游戏](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/35/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [此生所求](/content/gnews/2/README.md)
+ ` 澳喜农场`
 
-### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
+### [因发表疫苗真相，mRNA疫苗技术发明人推特账号被永久封禁](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
+### [遥远的南极站爆发中共病毒疫情](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/38/README.md)
- ` 秘密翻译组金融团队`
+### [医学暗势力继续隐瞒伊维菌素真相](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/39/README.md)
+### [2021年12月31日郭先生盖特 — 视频盖特1「2分28秒」](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [视频| 郭先生谈陈全国当年送“虫草”的那些事](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [全球疫情更新（南非入院率大降，澳洲则反而增加）](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [禽流感抵达以色列加利利海，将对人类构成危险](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [被迫休无薪假的加拿大皇家骑警的离职信，措辞有力，值得阅读和传播](/content/gnews/10/README.md)
+ ` MyWay`
+
+### [巴尔的摩的病案经理报道因疫苗造成的不良事件](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [老狐狸就是见过的猎人太多了](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [串珠510:我无数次说习会灭所有官二代，包括刘亚洲](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [【世事解评】共产主义蚕食世界(十一) — 共产主义的圈套：新时代的阶级斗争](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [放射科医生报告，Covid-19 疫苗接种以后，腺病增加了 360倍](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [多国发声谴责港共非法拘捕《立场》高层](/content/gnews/16/README.md)
+ ` GTV News Talk`
+
+### [文贵直播：美“国防支出法案”预示美国与中共正式为敌](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [Omicron激增，美国在短短两天内突破100万个新COVID病例](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [GTV新闻访谈简报|2021年12月31日晚](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2021年12月31日早](/content/gnews/40/README.md)
+### [【#G时新闻】全球首例：英国团体就疫苗接种为反人类罪向海牙国际法庭提起诉讼！](/content/gnews/20/README.md)
+ ` G-时新闻`
+
+### [有声|中共疫情封锁 严酷政策不顾民生](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [因不遵守有关洗钱和恐怖活动的金融规定，加拿大金融交易与报告分析中心（FINTRAC）对中共国银行进行罚款](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [2021社交媒体万马齐喑，言论自由唯有盖特高歌一曲](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [全球超过2.87亿人感染中共病毒，超过543万人死亡](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美军在日本横须贺基地已有75人感染中共病毒](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|英前外相华裔妻做节目为中共宣传洗白](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [有声|西安疫苗灾难是中共造成的人祸](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [有声|中共向普林斯顿大学迂回资助数百万美元](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/32/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/33/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/34/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/36/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [屏蔽灭共者的传奇人生—Vice采访郭文贵先生始末系列之五](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [螃蟹登场—Vice采访郭文贵先生始末系列之四](/content/gnews/38/README.md)
+ ` 秘密翻译组-原创组`
+
+### [12/31/2021国际财经快讯：摩根士丹利增持中国券商股份；德意志银行因Euribor控制而被罚款](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
+
+### [GTV新聞訪談簡報|2021年12月31日早](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
 
 ### [西安出血热疑为某国产三针剂疫苗后遗症](/content/gnews/41/README.md)
