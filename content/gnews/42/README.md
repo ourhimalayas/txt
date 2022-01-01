@@ -2,44 +2,38 @@
 ---
 
 
-## 西安出血热疑为某国产三针剂疫苗后遗症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808803/)
+## 螃蟹登场—Vice采访郭文贵先生始末系列之四
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1809106/)
 
-作者：纽约香草山教育部—Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日，郭文贵先生在最新一期的直播节目中爆料，西安近期爆发的出血热疫情实为当地市民接种了某国产高剂量定制疫苗的后遗症。
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-118.jpg)图片来自：https://gettr.com/截图
+上篇我们说到美国SEC对GTV Media Group的终查令内容写明包括VOG在内的民事罚款合计为3500万美元，SEC对外披露的时间是今年9月份， Vice是在SEC调查出来之前采访的郭文贵先生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-21.jpeg)
+5月18日采访当天，伊莎贝尔连续追问未经证实的虚假举证相关信息，被郭先生律师制止。伊莎贝尔仍不依不饶地问，“螃蟹帮助成立了GTV，他说你拒绝支付他的最后一笔款项，并将他的信息提供给了中共，中共控制了他在中国的银行账户，你对此有何看法？你和他有过工作关系吗？你认识他吗？”
 
-郭先生表示，陕西省省委书记曾专门定制了一批最高剂量的国产疫苗，该疫苗中刺突蛋白的含量是常规疫苗的5至8倍。因此，该疫苗副作用极大，患者接种后的具体表现即为“七窍流血”样的不良症状。
+郭文贵先生回答说，“你在撒谎，我保证这个人从来没有和我一起工作过，没有人使用过他编写的任何代码，也没有人欠他任何钱，这百分百是谎言。”“我认识他，他以前是我的追随者，曾是我的支持者，他和G-TV之前的另一家公司签约，做过一些（编程工作），但他违约了，我能在法庭上承担全部责任，你能吗？你在撒谎，你在捏造骗人的问题。”
 
-另据盖特网友提供的信息显示，这批疫苗极有可能是中共国产的智飞龙马三针剂重组疫苗。据了解，该疫苗是由中科院微生物所与安徽智飞生物共同研发的一款重组病毒疫苗，接种剂次为三剂，每针剂的抗原含量为25微克，而该品牌疫苗在审批中仅有紧急使用权限。
+上篇我们讲过，GTV（美国注册的GTV Media Group）私募被少数人虚假举报，SEC采信了这些虚假指控和证据启动调查程序。为了不影响灭共的进程，GTV结束了美国的运营，新G-TV在美国之外的地方重建，与螃蟹无关。换言之，自9月美国SEC发出终止调查令后，GTV的未了事项只剩下SEC对所有投资人的退款。
 
-据中共国内公开信息显示，中共西安政府于今年5月中旬开始鼓励市民接种智飞品牌的三针剂疫苗，直至9月推进市民完成了第三剂次的接种。
+郭文贵先生明确告知伊莎贝尔，他在GTV等所有的公司里的角色是创始者、主持人，是思想的建设者，仅给出建议，在法律上他不拥有任何公司。
 
-截至目前，距西安市民完全接种智飞疫苗仅仅过去三个月的时间，而当地的出血热定点医院却在上周就已经出现床位爆满、无力继续收治病人的惨象。
+然而，我们看看来自Vice的画面片段四：“这些投资者之一，是一个叫Ryan的软件工程师，他向GTV投入50万美元，他还开发了GTV和早期版本的Gettr，然后Gettr被改造成为一个保守派的社交媒体，并由前川普总统顾问(Jeson-Miller)掌舵……Ryan说，他和郭文贵在GTV平台发展上发生了分歧后被定为伪类。”
+
+片中的螃蟹自称因为看到郭文贵先生的奢华生活，就相信了郭先生所说的一切。然后毫无逻辑地说“郭文贵是个大骗子……GTV是是郭文贵诈骗的核心平台，他销售的是恐惧……他正在把中国人带入地狱。”
+
+**尽管郭先生在采访中对伊莎贝尔的问题给予了明确答复和严厉警告，Vice仍然编造螃蟹是一个投资和参与开发GTV的受骗者，并有目的地把Gettr牵涉进来，为诋毁郭文贵先生利用GTV影响海外华人分裂美国党派之间的矛盾埋下伏笔。**
+
+Gettr与螃蟹毫无关系，它从初期嵌入在GTV试用到分离出去，一直是一个完全独立开发和运营的平台。正是由于Twitter和Youtube等传统给社交媒体对不同政见和对言论自由的疯狂抹杀才催生了Gettr，Gettr是打破行业垄断、公平竞争的产物。它在今年7月4日上线后，迅速拥有全球逾300万用户，是有史以来增长最快的社交媒体平台。（未完待续）
 
 参考链接：
-1）[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
-2）[https://www.gettr.com/post/pl2bwh0afb](https://www.gettr.com/post/pl2bwh0afb)
-3）[西安 三针 安徽智飞（重组蛋白）新冠疫苗开打](https://www.toutiao.com/a6963510302516216320/?channel=&amp;source=search_tab&amp;wid=1640962877976)
-4）[打3针的新冠疫苗来陕西！首批到陕50万剂次](https://www.toutiao.com/a6962750731187126820/?channel=&amp;source=search_tab)
-5）[智飞疫苗西安各接种点到货 快快去打第二针](https://www.toutiao.com/a6972537511042089509/?channel=&amp;source=search_tab)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+[假新闻污蔑郭文贵先生是间谍 —Vice采访郭文贵先生始末系列之一](https://gnews.org/zh-hans/1786781/)
 
-总编：文特
-编辑：Irene木木
-校正/发稿：谐趣园
+[造假问答意在诋毁—Vice采访郭文贵先生始末系列之二](https://gnews.org/zh-hans/1789512/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[污蔑GTV被罚款5亿美元—Vice采访郭文贵先生始末系列之三](https://gnews.org/zh-hans/1795548/)
 
+[HBO-VICE‘s Premeditated Lies](https://gettr.com/streaming/pkrzu601aa)
 
  
 

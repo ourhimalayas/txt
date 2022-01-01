@@ -2,10 +2,10 @@
 ---
 
 
-## 美军在日本横须贺基地已有75人感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810067/)
+## 全球超过2.87亿人感染中共病毒，超过543万人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1810087/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20220101-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20220101.png)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
