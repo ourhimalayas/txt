@@ -2,118 +2,88 @@
 ---
 
 
-## 接客马《攻守道》真实版
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1811039/)
+## 01/01每日播报｜新闻简讯:接种中共病毒疫苗后淋巴腺病加倍 美国确诊暴增58万例 西安残酷封锁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1811042/)
 
-作者： GBW
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
-0
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2.png)
-1
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-39.png)
-2
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1.png)
-3
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5.png)
-4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-1.png)
-5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-1.png)
-6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6.png)
-7
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7.png)
-8
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png)
-9
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9.png)
-10
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10.png)
-11
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11.png)
-12
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12.png)
-13
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13.png)
-14
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.png)
-15
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15.png)
-16
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16.png)
-17
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17.png)
-18
-![](https://assets.gnews.org/wp-content/uploads/2022/01/18.png)
-19
-![](https://assets.gnews.org/wp-content/uploads/2022/01/19.png)
-20
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20.png)
-21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/21.png)
-22
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22.png)
-23
-![](https://assets.gnews.org/wp-content/uploads/2022/01/23.png)
-24
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.png)
-25
-![](https://assets.gnews.org/wp-content/uploads/2022/01/25.png)
-26
-![](https://assets.gnews.org/wp-content/uploads/2022/01/26.png)
-27
-![](https://assets.gnews.org/wp-content/uploads/2022/01/27.png)
-28
-![](https://assets.gnews.org/wp-content/uploads/2022/01/28.png)
-29
-![](https://assets.gnews.org/wp-content/uploads/2022/01/29.png)
-30
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30.png)
-31
-![](https://assets.gnews.org/wp-content/uploads/2022/01/31.png)
-32
-![](https://assets.gnews.org/wp-content/uploads/2022/01/32.png)
-33
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33.png)
-34
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.png)
-35
-![](https://assets.gnews.org/wp-content/uploads/2022/01/35.png)
-36
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36.png)
-37
-![](https://assets.gnews.org/wp-content/uploads/2022/01/37.png)
-38
-![](https://assets.gnews.org/wp-content/uploads/2022/01/38.png)
-参考资料：
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d01760ecc0b216cbb3225d)**
 
-原版《攻守道》：[https://www.youtube.com/watch?v=wfS9Uf5SKu8](https://www.youtube.com/watch?v=wfS9Uf5SKu8)
+**2022-01-01**
 
-阿里巴巴卖假货被告：[https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518](https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518)
+1. **全球石油和天然气发现量骤降将推高未来油价**
 
-阿里巴巴清理假货：[https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last](https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last)
 
-阿里巴巴清理刷单：[https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest](https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest)
+[《零对冲》12月31日分析报道，世界发现的石油和天然气资源已经枯竭，这是目前天然气价格高涨的原因。报道指出，该行业今年发现47亿桶石油，是75年来的最低水平。](https://www.zerohedge.com/markets/oil-and-gas-discoveries-plunge-lowest-level-75-years)
 
-蚂蚁金服上市叫停：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+[美国石英财经网一份新报告显示，石油和天然气公司目前正经历自1946年以来，新发现化石燃料最少的一年。在所有已发现的石油中，40%来自仅900个油气田。如果不对现有油田进行额外投资开采，预计全球石油产量每年会下降7%左右。能源研究公司Rystad Energy数据表明，“已探明石油储量与产量”比例目前处于自2011年以来的最低水平，开采量严重不足。](https://www.zerohedge.com/markets/oil-and-gas-discoveries-plunge-lowest-level-75-years)
 
-阿里巴巴股价大跌：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+[报道指出，受中共病毒疫情的影响，油气公司资本支出被大幅削减。开采量不足造成持续性供应短缺，此外各国重新开放，将大幅增加燃料需求，预计未来原油价格将继续升高。](https://www.zerohedge.com/markets/oil-and-gas-discoveries-plunge-lowest-level-75-years)
 
-郭文贵谈马云被捕：[https://gwins.org/cn/milesguo/22490.html](https://gwins.org/cn/milesguo/22490.html)
+秘翻新闻冰糖葫芦喵编译报道
 
-郭文贵谈马云和中共国企业家的遭遇和出路：[https://gnews.org/zh-hans/1606278/](https://gnews.org/zh-hans/1606278/)
+2.  **放射科医生报告：接种中共病毒疫苗后淋巴腺病加360倍**
 
-郭文贵谈唯真不破：[https://gwins.org/cn/milesguo/22835.html](https://gwins.org/cn/milesguo/22835.html)
+[英国媒体“每日爆料”12月31日披露，今年，美国一位放射科医生匿名报告，接种中共病毒疫苗后，出现不明原因的淋巴腺病几率增加了360倍。](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)
 
-发稿：浪迹天涯
+[这位放射科医生表示，他担心自己会因为报告这些与疫苗有关的观察结果而丢掉工作，因此他匿名发表，并透露，在过去的实践中，每六个月才会看到一个原因不明的淋巴腺病病例，但是自从大量接种中共病毒疫苗以后，放射科医生每天都能看到大约两到三例这种症状，是以前的360倍。](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
+[报道指出，淋巴腺病并非某种特定疾病，而是各种潜在疾病的一个重要症状。在某些情况下，肿大的淋巴结和腺体可能表明体内存在癌症。此外，淋巴腺病也可能是白血病的症状，这是一种血液和骨髓癌。](https://dailyexpose.uk/2021/12/31/radiologist-reports-360x-increase-in-adenopathy-swelling-glands-post-covid-19-vaccination/)
+
+秘翻新闻冰糖葫芦喵编译报道
+
+3.  **美国单日确诊暴增58万例 全球最高**
+
+[综合媒体12月31日消息，“奥米炕”病毒在美国境内肆虐，12月30日报告单日新增确诊感染病例高达58万，这个数字不仅打破美国过去的纪录，同时也创下全球新高。报道指出，过去一周全美已经累积240万确诊病例、8千多死亡病例。](https://tw.news.yahoo.com/%E7%BE%8E%E5%9C%8B%E5%96%AE%E6%97%A5%E7%A2%BA%E8%A8%BA%E6%9A%B4%E5%A2%9E58%E8%90%AC%E4%BE%8B%E5%89%B5%E4%B8%96%E7%95%8C%E7%B4%80%E9%8C%84-%E5%B0%88%E5%AE%B6%E6%86%82%E5%BF%831%E6%9C%88%E6%81%90%E9%9D%A2%E5%B0%8D-%E7%97%85%E6%AF%92%E6%9A%B4%E9%A2%A8%E9%9B%AA-%E8%A5%B2%E6%93%8A-055940278.html%20https://www.ettoday.net/news/20211231/2158633.htm)
+
+[有专家警告，明年1月将出现一场「病毒暴风雪」，美国民众应该对未来几周的混乱做好准备，因为病例激增已经冲击医院、校园和日常生活的其他层面。](https://tw.news.yahoo.com/%E7%BE%8E%E5%9C%8B%E5%96%AE%E6%97%A5%E7%A2%BA%E8%A8%BA%E6%9A%B4%E5%A2%9E58%E8%90%AC%E4%BE%8B%E5%89%B5%E4%B8%96%E7%95%8C%E7%B4%80%E9%8C%84-%E5%B0%88%E5%AE%B6%E6%86%82%E5%BF%831%E6%9C%88%E6%81%90%E9%9D%A2%E5%B0%8D-%E7%97%85%E6%AF%92%E6%9A%B4%E9%A2%A8%E9%9B%AA-%E8%A5%B2%E6%93%8A-055940278.html%20https://www.ettoday.net/news/20211231/2158633.htm)
+
+秘翻新闻明澈编辑报道
+
+4.  **江苏女实名举报公务员丈夫玩弄女性**
+
+[综合媒体12月31日消息，12月30日晚，江苏盐城市射阳县一名女子实名举报公务员丈夫玩弄女性，孕期出轨，买奢侈品公款报销等。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/718601/%E6%B1%9F%E8%98%87%E5%A5%B3%E5%AF%A6%E5%90%8D%E8%88%89%E5%A0%B1%E5%85%AC%E5%8B%99%E5%93%A1%E4%B8%88%E5%A4%AB%E7%8E%A9%E5%BC%84%E5%A5%B3%E6%80%A7-%E5%85%AC%E6%AC%BE%E6%B6%88%E8%B2%BB%E6%95%B8%E5%8D%83%E7%BE%8E%E9%87%91fendi%E5%8C%85%20https://www.soundofhope.org/post/580100?lang=b5)
+
+[女子在影片中实名举报自己的公务员丈夫，江苏射阳县盘湾镇经济发展局局长、安石村书记韩志远，指其玩弄女性、抛妻弃子、生活淫乱，而且日常穿戴奢侈，浑身上下都是奢侈品，包括6000多元人民币的古奇眼镜、价值数千美金的芬迪包等。她透露，韩志远曾说他买的东西是可以想办法公款报销的。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/718601/%E6%B1%9F%E8%98%87%E5%A5%B3%E5%AF%A6%E5%90%8D%E8%88%89%E5%A0%B1%E5%85%AC%E5%8B%99%E5%93%A1%E4%B8%88%E5%A4%AB%E7%8E%A9%E5%BC%84%E5%A5%B3%E6%80%A7-%E5%85%AC%E6%AC%BE%E6%B6%88%E8%B2%BB%E6%95%B8%E5%8D%83%E7%BE%8E%E9%87%91fendi%E5%8C%85%20https://www.soundofhope.org/post/580100?lang=b5)
+
+秘翻新闻明澈编辑报道
+
+5.  **西安疫情大封锁 婴儿出生一周被抛弃**
+
+[12月30日墙内西安网友爆料，西安市紫薇田园都市小区K区，有人将一周大的婴儿抛弃，并附上奶粉营养品和小纸条，纸条上写着孩子出生的时间和体重。孩子现在已经被小区好心居民收留。小区居民猜测：受中共当局非人道严厉封锁影响，许多家庭面临断粮，婴儿也深受其害，所以才将孩子抛弃在寒冬之中。](https://cdn.discordapp.com/attachments/895315867368312852/926481776719851550/WeChat_20211231193857.mp4%20https://cdn.discordapp.com/attachments/895315867368312852/926481802573541396/20211231193852.jpg%20https://cdn.discordapp.com/attachments/895315867368312852/926481802854563850/20211231193900.jpg%20https://cdn.discordapp.com/attachments/895315867368312852/926481803097817148/20211231193903.jpg%20https://cdn.discordapp.com/attachments/895315867368312852/926481803315925043/20211231193907.jpg%206.%20https://cdn.discordapp.com/attachments/895315867368312852/926481976553242625/)
+
+秘翻新闻菜园子编辑报道
+
+6.  **西安残酷封锁，老人三天没饭吃 只能靠热心民众相助**
+
+[综合媒体12月31日消息，西安当局在实施严酷封锁后，出现大量无法支付高昂隔离费用的外地人。据网友视频显示，西安市含阳门附近有不少滞留的外地人，他们没有钱住旅馆，只好露宿街头。幸亏有一位好心市民为他们送来热馒头和榨菜。](https://cdn.discordapp.com/attachments/895315867368312852/926481976553242625/WeChat_20211231185830.mp4%20https://cdn.discordapp.com/attachments/895315867368312852/926482019058352228/WeChat_20211231185838.mp4%20https://m.ntdtv.com/gb/2021/12/31/a103308826.html)
+
+[此外有报道指出，西安网民形容西安处于“饥荒”状态，并呼吁特别关注群租房、城中村、那些平时不做饭的人和不会用手机的老人。网传聊天截图显示，有上门做核酸检测的工作人员发现，小区内一名不会上网的老人已经三天没吃东西了。当地官员为保乌纱帽，到处封村、封路、封桥，导致生活物资运送受阻。官方宣称物资充足，价格稳定，但实际上民间药品、蔬菜、肉和副食一类的全都供应紧张，价格高涨，甚至高价也买不到东西。](https://cdn.discordapp.com/attachments/895315867368312852/926481976553242625/WeChat_20211231185830.mp4%20https://cdn.discordapp.com/attachments/895315867368312852/926482019058352228/WeChat_20211231185838.mp4%20https://m.ntdtv.com/gb/2021/12/31/a103308826.html)
+
+秘翻新闻菜园子、二丫编辑报道
+
+7.  **西安封城造成食物短缺 居民外出购买食品遭围殴**
+
+[综合媒体1月1日消息，西安市政府从23日午夜12时起启动封城措施，31日有视频曝光，一名男子因为封城饿的太久，忍不住外出买馒头，没想到被防疫人员围殴。](https://tw.news.yahoo.com/%E8%A5%BF%E5%AE%89%E5%B0%81%E5%9F%8E%E6%B2%92%E9%A3%9F%E7%89%A9-%E7%94%B7%E5%87%BA%E9%96%80%E8%B2%B7%E9%A5%85%E9%A0%AD%E9%81%AD%E5%9C%8D%E6%AF%86-015016377.html%20https://www.setn.com/News.aspx?NewsID=1050945)
+
+[西安封城已经进入第10天，有许多外来人员和租屋者，没有渠道采购食物，西安市雁塔区丈八街道南窑头西区，一名饿着肚子的男子出去买馒头，没想到被多名防疫人员拳打脚踢、击打头部，袋子中的馒头掉了一地。](https://tw.news.yahoo.com/%E8%A5%BF%E5%AE%89%E5%B0%81%E5%9F%8E%E6%B2%92%E9%A3%9F%E7%89%A9-%E7%94%B7%E5%87%BA%E9%96%80%E8%B2%B7%E9%A5%85%E9%A0%AD%E9%81%AD%E5%9C%8D%E6%AF%86-015016377.html%20https://www.setn.com/News.aspx?NewsID=1050945)
+
+[虽然事后警方已经要求施暴者道歉，当事人也表示自己没有受伤不再追究，但城中村租户吃饭的问题还是没有得到解决。](https://tw.news.yahoo.com/%E8%A5%BF%E5%AE%89%E5%B0%81%E5%9F%8E%E6%B2%92%E9%A3%9F%E7%89%A9-%E7%94%B7%E5%87%BA%E9%96%80%E8%B2%B7%E9%A5%85%E9%A0%AD%E9%81%AD%E5%9C%8D%E6%AF%86-015016377.html%20https://www.setn.com/News.aspx?NewsID=1050945)
+
+秘翻新闻明澈编辑报道
+
+8.  **恒大理财品只还本2.4万 兑付方案缩水**
+
+[综合媒体1月1日消息，中共国恒大推迟向理财产品投资者偿还逾期欠款，该公司旗下恒大财富公布，需要调整投资产品兑付方案，提出在2021年12月及2022年1月和2月，在这三个月中，每月向每名投资者兑付本金8000元人民币，最多支付2.4万元。 剩余部分，在2022年3月及以后，另行宣布兑付方案。](https://hk.news.yahoo.com/%E6%81%92%E5%A4%A7%E7%90%86%E8%B2%A1%E5%93%81%E5%8F%AA%E9%82%84%E6%9C%AC2-4%E8%90%AC-%E5%85%8C%E4%BB%98%E6%96%B9%E6%A1%88%E7%B8%AE%E6%B0%B4-%E9%A4%98%E6%AC%BE3%E6%9C%88%E5%86%8D%E5%AE%9A%E5%A5%AA-195100874.html%20https://hk.finance.yahoo.com/news/%E6%81%92%E5%A4%A7%E8%B2%A1%E5%AF%8C%E8%AA%BF%E6%95%B4%E6%8A%95%E8%B3%87%E7%94%A2%E5%93%81%E5%85%8C%E4%BB%98%E6%96%B9%E6%A1%88-071819021.html)
+
+[方案列明，若投资者已按原方案完成部分现金分期兑付、实物资产兑付、冲抵买楼尾数兑付，均视为投资产品本金已经兑付。方案又提出，自2018年4月1日起，曾担任恒大副总裁或恒大财富副总经理及以上职务的人员，以及其亲属如配偶等，所持合同约定的投资产品暂不兑付。](https://hk.news.yahoo.com/%E6%81%92%E5%A4%A7%E7%90%86%E8%B2%A1%E5%93%81%E5%8F%AA%E9%82%84%E6%9C%AC2-4%E8%90%AC-%E5%85%8C%E4%BB%98%E6%96%B9%E6%A1%88%E7%B8%AE%E6%B0%B4-%E9%A4%98%E6%AC%BE3%E6%9C%88%E5%86%8D%E5%AE%9A%E5%A5%AA-195100874.html%20https://hk.finance.yahoo.com/news/%E6%81%92%E5%A4%A7%E8%B2%A1%E5%AF%8C%E8%AA%BF%E6%95%B4%E6%8A%95%E8%B3%87%E7%94%A2%E5%93%81%E5%85%8C%E4%BB%98%E6%96%B9%E6%A1%88-071819021.html)
+
+秘翻新闻明澈编辑报道
+
+发布:恩典
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
