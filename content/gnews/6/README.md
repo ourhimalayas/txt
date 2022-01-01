@@ -2,26 +2,27 @@
 ---
 
 
-## 纽约仅12月奥米克戎感染病例已达整个中共病毒感染记录的1/5
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812079/)
+## 超七成台湾人愿意抗击中共极权保卫民主
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1812185/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据12月30日消息，中共病毒大流行至今，纽约144万感染者中，近1/5病例是今年12月份记录的。此时奥米克戎变体在全球大爆发，成为中共病毒感染的主要毒株。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅.png)
+12月29日，台湾民主基金会TFC公布了2020年度民调，超过70%的受访者表示愿意为保卫台湾，免受中共的入侵而战斗。此外，超过75%的人同意民主仍然是台湾的最佳政治制度。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1640834147-61cd2463b639b.jpg)
 
-CDC数据显示，纽约仅12月份感染病例即达27万例，12月27日周一，达到创纪录的24,102例。另一感染病例较高的州是佛州，12月病例数达其总病例数的9%。全美国总感染人数5,280万，12月奥米克戎变异体感染病例占8%。奥米克戎变异体的高传染率，导致纽约交通与商业不得不暂停服务。
+国立政治大学选举研究中心代表台湾民主联盟进行了这项调查，访问了20岁及以上在台湾出生的成年人。调查假设了两种状况：一是台湾主动宣布独立，招致中共国入侵，62.7%的人愿意站出来抵抗中共的武力胁迫；二是中共国主动发起武力攻台，寻求所谓的统一，愿意挺身而出保卫台湾的人增加了10%，达到72.5% 。当被问及 “民主可能有问题，但它仍然是最好的制度 “时，75.3%的人表示同意。
+
+在当天的新闻发布会上，基金会主席黄玉霖说，调查结果证明，只要人们对台湾的民主制度有信心，不管是什么党派，都愿意为此而战，而且年龄越小的台湾人意愿越强烈。
 
 参考链接：
 
-- [Nearly a fifth of all NYC COVID-19 cases were recorded in December 2021 amid the rapid spread of the Omicron variant](https://www.businessinsider.com/new-york-city-covid-cases-december-winter-omicron-surge-coronavirus-2021-12)
+- [72.5% of Taiwanese willing to fight against Chinese invasion](http://www.taiwannews.com.tw/en/news/4393119)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
 总编：Irene木木
-编辑：Kathy文艺
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

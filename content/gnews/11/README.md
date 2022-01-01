@@ -2,24 +2,31 @@
 ---
 
 
-## 美国CDC变相证明中共病毒疫苗无效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812024/)
+## 美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812081/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，据相关媒体报道，美国疾病控制与预防中心CDC表示，自中共病毒奥密克戎变种出现以来，邮轮上的新增确诊病例持续增长。因此，CDC目前已经将邮轮旅行的风险等级调升至最危险的4级。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.14.58.png)
-但CDC也建议民众，无论自身的中共病毒疫苗接种状况如何，大家在出行时都应尽量避免搭乘邮轮。 此外，CDC还补充道，如果民众必须要搭乘邮轮出行，请在确保自身已经完全接种过中共病毒疫苗的同时，仍需加强其他防疫措施，并且需要在旅行前1至3天，以及旅行后的3至5天内接受中共病毒核酸筛检。
+作者：纽约香草山文艺部 – 宁文静
 
-有评论则认为，CDC要求已经接种疫苗的旅客继续做好防疫和核算筛查的举措，恰好从侧面证实了中共病毒疫苗并不具备此前CDC所宣传的预防和阻止病毒传染的效力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
 
-参考链接：[美CDC：無論疫苗接種情況如何 都應避免搭乘郵輪](https://news.ltn.com.tw/news/world/breakingnews/3785840)
+12月28日，美橄榄球超级明星亚伦·罗杰斯称，美国国家橄榄球联盟NFL正秘密使用伊维菌素，和羟氯喹等FDA禁用药物治疗新冠病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-1-scaled.jpg)
 
-总编：童谣
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+罗杰斯在接受帕特·麦卡菲的节目采访时说，他确定许多球队正在为球员推荐这些药物来治疗。上个月，罗杰斯确诊后备受关注，但他很快就神奇地康复了。除了服用伊维菌素和羟氯喹，罗杰斯还接受了单克隆抗体、锌、维生素C和D的综合治疗。
+
+这位未来的名人堂成员说，伊维菌素被媒体机构嘲笑为 “马用驱虫剂”，但它在48小时内就完全见效，这是不争的事实。罗杰斯用自己的亲身经历呼吁，在新冠病毒治疗与疫苗问题上，我们不能失去尊重不同意见的能力，对待科学，既要尊重，也容许质疑。
+
+参考链接：
+
+- [Aaron Rodgers bombshell: NFL secretly administering derided COVID drugs](https://www.wnd.com/2021/12/aaron-rodgers-bombshell-nfl-secretly-administering-derided-covid-drugs/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
