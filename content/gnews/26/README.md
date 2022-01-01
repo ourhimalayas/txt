@@ -2,27 +2,38 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-8
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812234/)
+## DC每日热点0101
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1812243/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-HBO VICE的剪辑视频以“阴谋论”开头，把SEC听信中共特务谎言、恶意调查GTV的行为作为污蔑GTV攻击郭文贵先生的借口。但在中共制造的一系列障碍之下，投资者的利益不仅没有受到一分损害，反而在SEC调查的一年当中，GTV从20亿的规模猛增到了600亿。这种事情是前所未有的。 接下来让我们还原事实真相的第8部分：反击HBO VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-42.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-43.png)
-编辑: 童谣
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/753597EB-6402-45C0-843D-81B9687E569A-scaled.jpeg)
+道琼斯指数 36338.30 ▼0.16%
+纳斯达克指数 15644.97 ▼0.61%
+WTI纽约原油CFD 75.400 ▼2.07%
+布伦特原油CFD 77.901 ▼2.05%
+标普50指数 2,978.47 ▼42.99%
+美元兑人民币 1USD=6.367 RMB
+美元兑港币 1USD=7.798 HKD
+国际黄金 1829.2 美元/盎司
+全球CCP病毒感染人数 288,680,388例
 
-新闻连接: [#HBO](https://www.gettr.com/hashtag/%23HBO) [#VICE](https://www.gettr.com/hashtag/%23VICE) [采访郭文贵先生背后的真相](https://www.gettr.com/post/pkglpna708)
+1、蔡英文元旦谈话提醒北京防止“内部军事冒进主义扩张”
+2、美媒：中共国网监触角伸向国外 用数据分析工具压制网上异见声音
+3、拜登将与乌克兰总统泽连斯基通话 并说他已警告普京不要对乌克兰动手
+4、朝鲜举行盛大跨年庆祝活动，有音乐会以及金日成广场的烟花表演。朝鲜官方电视台KRT进行了直播
+5、法国岁末破纪录新增超过23万2千例确诊，
+6、香港又见奥密克戎，国泰紧急决定暂停货运一周
+7、巴黎大区工商会法中交流委员会邀请企业界和文化名人参与促进法国对华出口
+8、据英国《旁观者》（The Spectator）杂志12月30日报道说，该杂志获得的新数据显示，英国的大学从华为获得的资金是之前估计的两倍
+9、《区域全面经济伙伴关系协定》元旦生效 有关国家 期盼带动疫情后復甦
+10、特斯拉在中共国召回20万辆后备箱”可能”出现问题的车辆
+11、俄罗斯超过65.8万人染疫死亡，跃居全球第2
+12、纽约市近期日增万人染疫，仍恢复跨年活动，时代广场1.5万人倒数跨年
+13、美官员要求再推迟5G部署 确保航空安全
+14、中共最高纪律检查机构发文敲打美国零售企业山姆（Sam’s Club）
+15、 美国务院警告出国旅行公民：制定应急计划
+16、纽约侯任市长亚当斯提防疫六大计划 ：不再封城，将继续私企疫苗令，并考虑强制公立学校接种
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

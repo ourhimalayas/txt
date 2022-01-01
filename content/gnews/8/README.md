@@ -2,52 +2,30 @@
 ---
 
 
-## 中共提高人民币汇率指数货币篮子中美元和欧元的权重
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1813054/)
+## 有声|做一个自豪的新中国联邦人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813063/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010107-1.jpg)图片：来自网络
-**摘要翻译：**
-《路透社》2022年01月01日报道：
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月29日的大直播中，七哥和同心同框的战友们，都流露出对麻木、愚蠢、懦弱、自私、傲慢无礼、缺乏修养（尤其是很多国人在海外的所作所为造成了极坏的影响）的国人感到悲哀、失望、羞耻和痛心。我也有同感！
 
-香港：中共国外汇交易平台周五表示，中共国将在2022年调整一个关键的人民币汇率指数篮子（注：指与指数有关的一篮子买卖盘交易）货币的权重，交易员和分析师称此举将有助于确保人民币价值不会阻碍中共国的出口。
+由于中共的长期洗脑，环顾四周或想想我们那些尤其在国内的华人亲朋好友，有几个懂得尊重别人、而不轻易臧否人物？有几个真正懂得和能够爱自己和爱别人？有几个有信仰、心存感激地珍惜所拥有的一切？有几个能路见不平，拔刀相助？有几个不是自扫门前雪，抱着多一事不如少一事的理念，在“躲进小楼成一统，管它春夏与秋冬”的意境中苟且偷生？
 
-根据一份网上声明，从1月1日起，中国外汇交易中心(CFETS)将把美元在外汇交易中心货币篮子中的权重从18.79%上调至19.88%，并将欧元的权重从18.15%上调至18.45%。
+原文链接：[做一个自豪的新中国联邦人](https://gnews.org/zh-hans/1808136/)
 
-提高美元和欧元的权重不太可能在人民币交易中造成太大的波动，尽管这可能会影响人民币官方每日中间价的设定，即允许现货价格在此基础上上下波动2%。
+音频处理：音频处理：喜山必胜Maverick
 
-中国外汇交易中心指数年终收于102.47，上涨8.05%，而2021年人民币兑美元升值约2.8%，有望成为表现最佳的新兴市场货币。
+发稿：Daxia
 
-自2015年12月推出贸易加权人民币汇率指数以来，中共国已多次调整外汇交易中心一篮子货币，以更好地反映对外贸易状况。该交易平台还表示，将保持一个基于国际清算银行（BIS）货币篮子的人民币指数和另一个基于特别提款权（SDR）货币篮子的人民币指数的权重不变。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**简评：**
-
-2016年12月29日，中国外汇交易中心发布《关于发布CFETS人民币汇率指数货币篮子调整规则的公告》，确定了CFETS指数的调整规则和首次调整内容，由于CFETS指数是隐含中间价的计算依据，因此其币种和权重的调整会通过隐含中间价进入公式，最终间接影响官方公布的美元兑人民币中间价定价。
-
-从近一年的情况来看，2020年1月1日将美元权重下调至21.59%，美元人民币中间价由2019年8月底的7.18降至20年1月底的6.97。在由于外贸结算，外汇多空或其他未知因素影响下，中间价回升至5月底的7.17。再经过美元权重一系列的下调至18.79%，中间价由7.17逐步降至21年12月底的6.38。
-
-由此可以看出这次上调至19.88%的目的是结束人民币兑美元的走强，在多个国家从12月开始的取消对中共国普惠制关税以及对美顺差逐年下滑的情况下（2018年4182亿美元，2019年3443亿美元，2020年3102亿美元，来源：美国之音11月19日文章），引用此文的分析：此举将有助于确保人民币价值不会阻碍中共国的出口。
-
-新闻链接：[China to raise dollar, euro weightings in key yuan index basket](https://www.brecorder.com/news/40143966)
-
-*翻译/简评：Brianchow*
-
-*校对：Harvey（叶知秋）*
-
-
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

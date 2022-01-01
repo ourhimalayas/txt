@@ -2,35 +2,18 @@
 ---
 
 
-## 德国外长及内务部长将不参加中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812695/)
+## 文贵大直播 1/1 音乐无国界 人须分善恶
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1812965/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2021年12月30日，据媒体消息显示，德国外长贝尔伯克对媒体宣布，他本人确定将不参加中共2022北京冬奥会。贝尔伯克还透露，欧盟正在讨论是否应该集体加入抵制中共冬奥会的队伍。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FIBVjafWYAAWhmL.jpg)图片来源 GTV
+2022年的第一天，文贵大直播新年特别节目在纽约现场面向全球准时开播。开篇时段，新中国联邦创始人郭文贵先生和现场嘉宾，包括前世界羽毛球冠军叶钊颖女士，前亚洲足球先生郝海东先生等一起，特别谈到音乐灭共的话题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpeg)
+作为多次荣登世界乐坛榜单、创造一个又一个世界流行乐坛传奇的郭先生，从新中国联邦《我是音雄》的唯真不破，谈到中共国音乐无处不假，重申音乐价值和力量，是真正的精神核武器。中共从窃国伊始，就无处不假、无时不偷，特别是抄袭了前苏联的大量邪恶音乐，甚至被俄国禁用某曲长达29年之久。如今中国大量所谓明星，其实肮脏不堪，只为一碗饭而已。
 
-贝尔伯克也呼吁欧盟国家共同商讨出一个抵制中共冬奥会的态度，并希望可以比美国总统拜登的态度更坚定。另外，贝尔伯克还一再表示，欧盟应该出台一项政策，禁止进口新疆地区通过强制劳动所获得的产品。
+郭先生感慨，德国瓦格纳，知道自己是音乐家，但帮了坏人杀人，应该下地狱。中共国的所谓音乐家，不知道自己帮着中共杀人，还在继续助纣为虐。这是本质的的差别。
 
-与此同时，德国内务部长兼体育部长南希·弗雷泽也宣布，由于个人原因，他决定不出席北京冬奥会。据了解，按照惯例，德国通常会派遣内务部部长代替总统出席冬奥会，但德国政府发言人表示，德国新任总理朔尔茨尚未决定是否将出席北京冬奥会。此前，德国政府新闻发言人还首次在例行记者会上表示，“到目前为止，朔尔茨总理暂无出席北京冬奥会的计划”。
-
-参考链接：[德国外长、内政部长宣布因个人决定不出席北京冬奥会](http://chinese.joins.com/news/articleViewAmp.html?idxno=104472)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+【来源链接】https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e
 
  
 
