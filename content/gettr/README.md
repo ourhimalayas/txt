@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/1/2022 12:58 PM (UTC)`
+
+2022年1月1日 文贵大直播  元旦特别节目 正道至善 除恶建邦
+![img](https://media.gettr.com/group34/origin/2022/01/01/11/7e5aaa9a-4608-e036-9e5a-b5577a7d1f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/1/2022 5:50 AM (UTC)`
 
 一位来自澳大利亚的郭文贵先生和班农先生的粉丝：郭文贵先生告诉我们的有关中共病毒的消息，大约三个月后我们才能明白，所以他领先于事态的发展，因为他知道真相。 希望郭先生健康，平安，继续揭露真相！<br/><br/>A fan of Miles Guo and Steve Bannon in Australia: Miles Guo tells the news about the Virus that we find out about three months later, so he's ahead of the curve because he knows the truth. He hopes Mr. Guo stays healthy and safe, and keeps telling the truth. 
@@ -147,15 +154,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总决赛暨颁奖典礼！ <br/>直播时间：<br/>美东时间：2021年12月31日 7PM<br/>北京时间：2022年01月01日 8AM<br/>         <br/>灭共尖峰时刻，音雄再度归来！ <br/>音乐就是子弹，歌唱更有力量！<br/>讲诉你的灭共故事，唱出你的灭共心声！<br/>新中国联邦所有热爱音乐的战友们，行动起来，这里就是我们的战场！<br/><br/>当天将角逐出《我是音雄》第二季的年度冠亚季军，和“战友们最喜爱的音雄”。 请大家赶快到盖特的G|Music为你所喜爱的“音雄”点赞投票。 投票截止到所有选手演唱完毕。
 ![img](https://media.gettr.com/group1/origin/2021/12/30/02/97fd63fd-48d3-d6b2-dd48-9370de1deaef/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:26 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/> Superman（美国纽约香草山农场） 《我是音雄》节目组执行导演，美丽、开朗外加风趣的Superman，是一名专业音乐人。在节目组负责指导和帮助参赛音雄们完成参赛前的准备工作，保障他们以最好的状态登上舞台。这次，她将回归歌手的身份，在“我是音雄“终极决赛舞台上大放异彩！
-![img](https://media.gettr.com/group27/origin/2021/12/27/16/5a09e2f1-e27c-b087-f6ad-26dff6c5f518/out.jpg)
 
 ---
 
