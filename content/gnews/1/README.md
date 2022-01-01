@@ -2,36 +2,23 @@
 ---
 
 
-## 德国外长及内务部长将不参加中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812695/)
+## 新年，新中国联邦人友情提醒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1813021/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2021年12月30日，据媒体消息显示，德国外长贝尔伯克对媒体宣布，他本人确定将不参加中共2022北京冬奥会。贝尔伯克还透露，欧盟正在讨论是否应该集体加入抵制中共冬奥会的队伍。
+作者：天空的鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-01-at-2.32.19-AM.jpeg)图片来源：GNEWS
+新年到来，病毒依旧肆虐！新中国联邦人提醒大家，最近出门一定要小心注意，做好病毒的防护措施！听身边的人讲，他们周围时有发生中招感染病毒的，这比以往的其他病毒感染的概率都要多，可见这一次的病毒感染传染性太强太快，大家在新的一年里要多保重身体健康，不被病毒伤害，千万不能轻视麻痹大意！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpeg)
+还好没有听说周围附近的新联邦战友有感染病毒的，因为我们都听七哥的嘱托，战友们都吃羟氯奎+锌防护+VC来防病毒感染，现在被病毒感染的人大多数都是一些不看盖特、GTV的人中招。有很多还都是粉红、并且都打了所谓的疫苗针的人，让事实来说话证明，吃羟氯奎能防病毒，就是不幸被感染，在药物的治疗下也可以很快恢复。而打针（所谓的疫苗）纯属欺骗宣传阴谋，其结果反而更容易受到病毒的感染伤害，在这些被感染的人群中，有些人就再也回不来了！
 
-贝尔伯克也呼吁欧盟国家共同商讨出一个抵制中共冬奥会的态度，并希望可以比美国总统拜登的态度更坚定。另外，贝尔伯克还一再表示，欧盟应该出台一项政策，禁止进口新疆地区通过强制劳动所获得的产品。
+中共不是常说这句话吗？“事实是检验真理的唯一标准！”CCP不是常拿这句台词来忽悠老百姓吗？那就让事实来说话，证明谁才是真实可靠、谁是虚假的欺骗宣传！
 
-与此同时，德国内务部长兼体育部长南希·弗雷泽也宣布，由于个人原因，他决定不出席北京冬奥会。据了解，按照惯例，德国通常会派遣内务部部长代替总统出席冬奥会，但德国政府发言人表示，德国新任总理朔尔茨尚未决定是否将出席北京冬奥会。此前，德国政府新闻发言人还首次在例行记者会上表示，“到目前为止，朔尔茨总理暂无出席北京冬奥会的计划”。
+在辞旧迎新之际，愿世界上所有善良、诚实、守信、有信仰的人们都不被病毒伤害！让我们一起努力战胜邪恶的黑暗势力，让光明永照人间！祝2022年健康、平安、幸福、快乐！新中国联邦人加油！
 
-参考链接：[德国外长、内政部长宣布因个人决定不出席北京冬奥会](http://chinese.joins.com/news/articleViewAmp.html?idxno=104472)
+编辑/发布：LILY
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+20220101
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

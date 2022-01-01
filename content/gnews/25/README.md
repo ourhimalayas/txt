@@ -2,26 +2,27 @@
 ---
 
 
-## 美数百国会议员要求最高法阻止疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812026/)
+## 中共国水资源短缺威胁到全亚洲
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812082/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月30日，据当地媒体报道，由美国47名共和党参议员和136名众议员组成的团体共同要求最高法院阻止联邦政府对包含100名及以上雇员的企业推行的强制中共病毒疫苗接种政策。他们认为，拜登政府和职业安全与健康管理局OSHA此举已经涉嫌越权。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.31.png)
-议员们表示，赋予联邦政府的立法权属于国会，但国会授予机构的权力不应该被滥用。他们强调，中共病毒疫苗强制令属于典型的国家警察权力，而OSHA对企业提出的全国性强制疫苗接种要求已经涉足公共医疗政策，实属超越了《职业安全与健康法》的范围。
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+12月30日外媒刊文称，中共国前些年经济的崛起，依靠水，可耕地，以及廉价劳动力等，使中共在全球贸易体系中，一跃成为世界工厂。然而近年来，中共政府炸毁了巨量资源，且由于土地退化，加上过度使用，使可耕地面积锐减，水资源状况尤其严峻。数千条河流消失，剩下的水被工业化污染，80%～90%的地下水和50%的河水无法饮用；50%以上的地下水和25%的河水无法用于工农业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7.jpg)
+水资源短缺导致中共经济增速放缓，人口下降，地缘政治冲突与日俱增，中共都是通过威胁贫困邻国来解决。如建造湄公河水坝导致当地反复的干旱和洪灾，新疆地区河流分流直接给中亚下游地区带来毁灭性影响。
 
-据悉，美国最高法院将于2022年1月7日安排一项与疫苗强制令有关的紧急上诉口头辩论。同一天，大法官们还将听取医护人员对疫苗强制令的挑战。
+郭先生在直播中谈过，喜马拉雅山是亚洲最重要的水源地，86%-90%的河流自此发源。中共控制西藏并犯下反人类罪，背后是要掌控全亚洲水资源的野心。美参众两院此前提出的《西藏独立法案》给了中共致命一击，而爆料革命的情报发挥了重大作用。
 
-评论指出，最高法院此次判决将成为反对联邦政府中共病毒疫苗强制令的唯一选择。
+参考链接：
 
-参考链接：[Congressional Republicans tell Supreme Court to block Biden’s ‘health police’ vaccine mandate](https://news.yahoo.com/congressional-republicans-tell-supreme-court-225805961.html)
+- [China is running out of water and that’s scary for Asia](https://www.tbsnews.net/analysis/china-running-out-water-and-thats-scary-asia-350938?amp)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：Ivy001
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

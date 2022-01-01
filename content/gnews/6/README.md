@@ -2,83 +2,53 @@
 ---
 
 
-## 【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1812281/)
+## 法国网球明星贝努瓦·派尔 (Benoit Paire) 在“第 250 次”检测出 Covid-19 呈阳性后大发雷霆
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1812960/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-如果没有中共不断释放新的病毒，中共病毒将会很快就会消失！
+作者：马修沙利文
 
-2021年11月24日，卡塔尔国家COVID-19（中共病毒）流行病学研究小组发表的题为《[Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections](https://dx.doi.org/10.1056%2FNEJMc2108120)》研究报告表明，对于没有注射中共病毒毒疫苗的人群来说，如果曾经感染过中共病毒，再次感染中共病毒发展为需要住院治疗的风险为之前从未感染者的1%，更不会有致命性的后果，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/816691_640x360_large_20211229125442.jpg)图片来源：网络
+法国网球选手贝努瓦·派尔 (Benoit Paire) 透露，在下个月的澳大利亚网球公开赛之前，他的 Covid-19 检测呈阳性。
 
-多哈公共卫生管理部门（Ministry of Public Health, Doha）、卡塔尔多哈康奈尔大学（Weill Cornell Medicine-Qatar, Cornell University, Doha）、卡塔尔大学（Qatar University）、多哈哈马德医疗公司（Hamad Medical Corporation, Doha）、多哈西德拉医学（Sidra  Medicine, Doha,  Qatar）、多哈基本卫生保健公司（Primary Health Care  Corporation, Doha）的几十名医学专家和学者共同参与了这项研究。
+世界排名第 46 位的选手原定于 1 月 4 日开始在墨尔本参加一场预选赛，但这些计划已被打乱。
 
-这项研究获得了卡塔尔哈马德医疗公司（Hamad Medical Corporation）和卡塔尔机构审查委员会——卡塔尔威尔康奈尔医学（Weill  Cornell  Medicine-Qatar Institutional  Review  Boards）的批准和吉利德科学（Gilead Sciences）的机构赠款资金赞助。
+在检测出 Covid 呈阳性后，Paire 似乎正在一个未知的地方隔离，他显然对这种折磨感到厌烦。
 
-这次研究的数据来源于卡塔尔国家严重急性呼吸系统综合症冠状病毒 (SARS-CoV-2，或Covid-19、中共病毒)数据库，这些数据库是从卡塔尔全国完全集成的数字健康信息平台中检索到的，数据的权威性勿容置疑。
+“嘿，我的名字是 Benoit Paire，这是我第 250 次检测出 Covid 呈阳性！！” 他在周三发布的 Instagram 新闻报道中说。
 
-从2020年3月到2020年6月，卡塔尔出现了第一波Covid-19感染，此后大约40%的人口具有可检测到的SARS-CoV-2抗体。由于中共在2020年末和2021年初再次投毒，先后投放中共病毒的变体alpha（B.1.1.7）病毒和beta（B.1.351）病毒，该国随后从2021年1月到2021年5月经历了两次背靠背感染高峰，这为评估再感染可能性创造了流行病学机会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Qatar-COVID-19-New-Cases.jpg)
-2020年2月28日至2021年4月28日期间，卡塔尔通过聚合酶链反应(polymerase-chain-reaction，PCR)测试确诊353,326人感染中共病毒。在这353,326人中，有87,547人在2020年12月16日（卡塔尔开始中共病毒疫苗接种）到2021年4月28日期间有疫苗接种记录。剩下265,779名感染者从未打过中共病毒疫苗。
+“老实说，我再也受不了这个 Covid s\*\*\*了。 我怎么样呢？ 由于 Covid 我流鼻涕，但因为在国际旅途的酒店房间里进行了所有这些隔离，我的精神状态不佳”。
 
-在这87,547打了毒疫苗后感染中共病毒的人中，有59,937人注射了Pfizer-BioNTech的BNT162b2中共病毒疫苗，占68.5%。另外27,610人注射了Moderna的mRNA-1273中共病毒疫苗，占31.5%。
+“去年很艰难，今年开始完全一样！！”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/The-selection-process-for-identifying-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
+这位 32 岁的年轻人接种了疫苗，并澄清说他“100%”支持疫苗。
 
-根据性别、每隔5岁分段的年龄组、国籍和PCR检测日期的日历周期对数据进行调整。
+“只有一件事，我 100% 支持疫苗，但让我们像 Covid 之前一样生活，否则我不明白有何意义”，他补充道。
 
-在这从未打过中共病毒疫苗的265,779名感染者中，有1,339人属于再次感染中共病毒，其中，有1304人属于初次感染90天后再次感染；有 264,440人属于初次感染中共病毒，其中仅6288人属于研究范围。曾经感染过中共病毒后，再次感染中共病毒的仅占1,339÷265,779=0.53%。
+澳大利亚网球公开赛将于 1 月 22 日开始，留给 Paire 有几周的时间进行阴性测试并评估他是否适合参加比赛。
 
-在第二次感染中共病毒的人1304中，有413人感染中共病毒变体B.1.351（beta）病毒，占31.7%、57人感染中共病毒变体B.1.1.7（alpha）病毒，占4.4%、213人感染一般的中共病毒，占16.3%，另外621人不确定感染了中共病毒的哪一种版本，占47.6%。
+他最近的阳性测试继续为这位炫耀的球员带来厄运，他曾多次在大满贯赛事中闯入第四轮。
 
-在初次感染中共病毒的6,288人中，有2,364人感染中共病毒变体B.1.351（beta）病毒，占37.6%、813人感染中共病毒变体B.1.1.7（alpha）病毒，占12.9%、919人感染一般的中共病毒，占15.8%，另外2,120人不确定感染了中共病毒的哪一种版本，占33.9%。
+Paire 在第一场比赛前几天对 Covid 检测呈阳性后，被排除在 2020 年美国公开赛之外。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Demographic-characteristics-of-the-cohort-of-persons-with-reinfection-and-the-cohort-of-persons-with-primary-infection.jpg)
+今年早些时候，他在飞往墨尔本的航班上的一个人对 Covid 呈阳性反应后，被迫在澳网前接受了 14 天的严格隔离。
 
-按照世界卫生组织（WHO）对COVID-19严重性、危急程度和死亡率分类，感染中共病毒的症状分为：轻型（Mild disease）和普通型（Moderate disease）（不需要住院治疗）、重型（Severe disease，需要住院治疗）、危重型（Critical disease）和死亡。
+佩尔随后首轮失利，在澳网发起了惊人的进攻，称赛事“s\*\*t”，并抨击主办方不尊重球员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Sensitivity-analyses-for-severity-criticality-and-fatality-of-SARS-CoV-2-reinfections-versus-primary-infections-1-scaled.jpg)
+由于多次出现在场上的轻罪，包括随地吐痰和公然破坏比赛，他被禁止代表法国参加东京奥运会。
 
-初次感染的6288人中，有6095例属于轻型和普通型，再感染的1304人中，有1300例属于轻型和普通型；
+澳大利亚公开赛可能没有几个大牌球员，因为许多顶级球员都在与新冠病毒或伤病作斗争。
 
-初次感染的6288人中，有193例属于重型、危重型或死亡，再感染的1304人中，仅4例属于重型、危重型或死亡，其中：
+拉斐尔·纳达尔和俄罗斯的安德烈·鲁布列夫在过去一周的新冠病毒检测呈阳性，而罗杰·费德勒和斯坦·瓦林卡将因伤缺席澳网。
 
-初次感染的6288人中，有158例属于重型，再感染的1304人中，有4例属于重型；
+来源链接：
 
-初次感染的6288人中，有28例属于危重型，再感染的1304人中，没有危重型病例；
+[https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058](https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058)
 
-初次感染的6288人中，有7例死亡，再感染的1304人中，没有死亡。
+编辑/发布：LILY
 
-根据以上的分析，可得出如下表的结论：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Severity-of-SARS-CoV-2-Reinfections-as-Compared-with-Primary-Infections-in-the-Population-of-Qatar-1.jpg)
-
-对于未接种中共病毒疫苗的人来说，再次感染时发展为严重病情的几率是初次感染时的0.12倍；再次感染时出现严重、危重或致命疾病的复合结局的几率是初次感染时的0.10 倍；没有人导致在ICU住院，也没有人以死亡告终。
-
-在2021年4月27日发表的论文《[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)》中，对2020年4月16日至12月31日期间所有 SARS-CoV-2 抗体检测呈阳性43,044人跟踪后发现，仅129人属于再次感染，在超过七个月的随访中，再感染发生率没有显示任何免疫力减弱的证据。再感染不如原发感染严重。只有一人再感染是严重的，两人是中度的，没有一个是严重的或致命的。大多数再感染 (66.7%)人 是通过随机或常规检测或通过接触者追踪偶然诊断出来的，自然感染能对再感染提供强有力的保护。
-
-在2021年10月1日发表的论文《[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)》中，在对2020年2月28日至2020年8月12日期间的133,266例实验室确诊的SARS-CoV-2病例中，仅54人属于再次感染，仅1人在再次感染时住院，但于次日出院，没有死亡记录。病毒基因组测序证实了有4例属于遗传的再感染。得到了SARS-CoV-2再感染可能发生，但再感染风险估计为0.02%，这是一种罕见的现象，表明对再感染的保护性免疫在初次感染后持续至少几个月。
-
-对于未接种中共病毒疫苗的人来说，有过感染经历的人，再感染的可能性非常低，而且通常症状非常轻微，这可能是因为初次感染后免疫系统已经形成对中共病毒的自然免疫。
-
-如果没有中共不断投放新的放毒，中共病毒将很快发展为类似于其他季节性“普通感冒”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ccpVirus.jpg)
-
-目前，中共病毒感染数、重症数和死亡数不断飙升，根源在于CCP不断投放新的病毒！
-
-参考数据：
-
-[Severity of SARS-CoV-2 Reinfections as Compared with Primary Infections](https://www.nejm.org/doi/10.1056/NEJMc2108120)
-
-[Supplement  to: Abu‑Raddad LJ,  Chemaitelly  H, Bertollini  R. Severity  of SARS‑CoV‑2  reinfections  as compared with primary infections. N Engl J Med 2021;385:2487‑9. DOI: 10.1056/NEJMc2108120](https://www.nejm.org/doi/suppl/10.1056/NEJMc2108120/suppl_file/nejmc2108120_appendix.pdf)
-
-[SARS-CoV-2 antibody-positivity protects against reinfection for at least seven months with 95% efficacy](https://pubmed.ncbi.nlm.nih.gov/33937733/)
-
-[Assessment of the Risk of Severe Acute Respiratory Syndrome Coronavirus 2 (SARS-CoV-2) Reinfection in an Intense Reexposure Setting](https://pubmed.ncbi.nlm.nih.gov/33315061/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+20220101
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

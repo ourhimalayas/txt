@@ -2,26 +2,31 @@
 ---
 
 
-## 美退役空军准将称 疫苗强制令在分裂军队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812025/)
+## 美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812081/)
 
 作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，美国退役空军准将、驻北约副军事代表布莱恩·霍尔特在接受采访时表示，拜登政府各军事部门的中共病毒疫苗强制接种命令“分裂了美国军队”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.17.png)
-霍尔特提到，截止目前，美军共有206名海军陆战队队员因没有接种中共病毒疫苗而被开除。值得注意的是，军中所有“宗教豁免”的申请全部被不加考虑地拒绝了。此外，即使是那些已经接种了疫苗的军人也有被胁迫感觉，他们不得不默许这一强制令的推行。
 
-霍尔特也指出，这一疫苗强制令在美国军队中造成了分裂——其迫使军人之间互相指责，而那些被踢出军队的人员的处境却非常艰难。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
 
-霍尔特强调，联邦政府只是要求军人“以一种伟大、统一的方式，为战斗做好准备”，却没有充分评估疫苗强制令对美国各军种造成的恶劣影响。
+12月28日，美橄榄球超级明星亚伦·罗杰斯称，美国国家橄榄球联盟NFL正秘密使用伊维菌素，和羟氯喹等FDA禁用药物治疗新冠病毒。
 
-参考链接：[Retired Gen. Holt to Newsmax: Vaccine Mandate ‘Creates Division’ in Military Ranks](https://www.newsmax.com/us/generalblaineholt-vaccinemandate-marines/2021/12/31/id/1050583/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-1-scaled.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+罗杰斯在接受帕特·麦卡菲的节目采访时说，他确定许多球队正在为球员推荐这些药物来治疗。上个月，罗杰斯确诊后备受关注，但他很快就神奇地康复了。除了服用伊维菌素和羟氯喹，罗杰斯还接受了单克隆抗体、锌、维生素C和D的综合治疗。
 
-总编：Ivy001
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+这位未来的名人堂成员说，伊维菌素被媒体机构嘲笑为 “马用驱虫剂”，但它在48小时内就完全见效，这是不争的事实。罗杰斯用自己的亲身经历呼吁，在新冠病毒治疗与疫苗问题上，我们不能失去尊重不同意见的能力，对待科学，既要尊重，也容许质疑。
+
+参考链接：
+
+- [Aaron Rodgers bombshell: NFL secretly administering derided COVID drugs](https://www.wnd.com/2021/12/aaron-rodgers-bombshell-nfl-secretly-administering-derided-covid-drugs/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

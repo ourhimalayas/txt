@@ -2,30 +2,33 @@
 ---
 
 
-## 以色列开始接种第四剂中共病毒疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1812235/)
+## 有声|大量外省救护车驰援西安显示疫情失控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1812544/)
 
-本文作者：Stranger
-![](https://assets.gnews.org/wp-content/uploads/2022/01/images.jpg)
-2021年12月31日，纽约邮报报道，以色列政府高级卫生官员说，该国正在给免疫系统孱弱人士、老年居民和疗养院员工接种第四剂中共病毒疫苗。
+配音：香草山健身部 – 玫瑰园
 
-本周四，以色列的中共病毒感染病例在最近3个月内达到创纪录的4085例。作为全球疫苗接种率最高的国家之一，以色列超过650万人至少接种一剂，超过420万人接种3剂。但种种事实表明，所谓的疫苗对中共病毒根本就束手无策，感染率反而在大规模接种后爆发式增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-最聪明的犹太民族在面临死亡的威胁时，遗忘了自己的信仰，失去了基本的常识，盲从于科学宗教，在错误的疫苗之路上越走越远。这场疫苗灾难，对这个民族的伤害恐远远超过当年的纳粹。
+当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
 
-备注：
+西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+原文链接：[大量外省救护车驰援西安显示疫情失控](https://gnews.org/zh-hans/1806653/)
 
+音频处理：音频处理：喜山必胜Maverick
 
-[相关连结](https://www.cnbc.com/2021/12/31/britain-approves-pfizers-antiviral-covid-19-pill-paxlovid.html)
+发稿：Daxia
 
-审核校对：jake心锁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-上传排版：漂流瓶
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

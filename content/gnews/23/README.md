@@ -2,38 +2,24 @@
 ---
 
 
-## 美国疫情加剧导致航空业严重受挫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812028/)
+## 【中日财经爆】因倒车摄像头隐患，特斯拉召回近50万辆车
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1812138/)
 
-作者：纽约香草山教育部 Naughty(文行)
+撰稿： 东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-39.png)[图片来源](https://www.tesla.com/zh_tw/model3)
+由于可能的安全隐患，电动汽车制造商特斯拉在美国召回近 50 万辆汽车，涉及 2017年至2020年生产的全部”Model 3″系列车和从2014年到2021年生产的11.9万辆”Model S” 。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国国家公路交通安全管理局（ NHTSA ）在互联网上公布的一份文件证实了这一消息。根据该文件， 其中，35.6万辆 “Model 3” 的倒车摄像头线束可能会因打开和关闭行李箱盖而受损，进而导致摄像故障。11.9万辆”Model S”则在解除锁定机构的情况下，存在前盖意外打开的风险，因而，可能”遮挡驾车人视线、从而增加事故风险”。
 
-2021年12月29日，美国捷蓝航空公司于当天晚些时候证实，由于美国东北部地区的奥密克戎病例预计将持续上升，这可能在未来几天对该公司机组人员造成进一步影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.35.18-PM.png)
-据公司相关人员透露，该公司眼下正在面临着因中共病毒确诊病例激增而导致的机组人员短缺现状，为此，公司已经取消了直至2022年1月13日的约1280个航班。目前，美国其他航空公司还没有详细说明他们在2022年1月份的行程变化。
+特斯拉指出，迄今未知有涉及这两种情况的任何技术事故。马斯克 (Elon Musk) 创立的该企业表示将为车主免费解决问题。
 
-另外，数据显示，捷蓝航空公司的股票在本周内已经下跌了近2%，加之捷蓝航空已经公布的行程削减，评论人士指出，这预示着航空业已经开始准备应对因奥密克戎疫情爆发而造成的航空服务长时间中断的情形。
+2018年，特斯拉曾因车上动力转向系统问题在全球召回12.3万辆汽车。
 
-参考链接：[JetBlue cancels flights through mid-January as Omicron sidelines crews](https://www.newsbreak.com/n/0dZ8E3qg?pd=0BtSHkgm&amp;lang=en_US&amp;s=i16)
+信息来源：[特斯拉召回近50万辆车](https://www.dw.com/zh/%E7%89%B9%E6%96%AF%E6%8B%89%E5%8F%AC%E5%9B%9E%E8%BF%9150%E4%B8%87%E8%BE%86%E8%BD%A6/a-60303307)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-编辑：Kathy文艺
-总编：Irene木木 
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

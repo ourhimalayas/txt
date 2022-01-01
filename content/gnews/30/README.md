@@ -2,26 +2,38 @@
 ---
 
 
-## 印度批评中共对争议地点命名
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811877/)
+## 美国疫情加剧导致航空业严重受挫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812028/)
 
-撰稿：东京樱花团风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1.jpg)[图片来源](https://tibet.net/how-india-let-china-annex-tibet-created-present-day-conflict/)
-据法新社1月1日报道，针对中共为喜马拉雅地区15个有争议的地点进行中文命名事件，印度官方表达了批评态度。
+作者：纽约香草山教育部 Naughty(文行)
 
-在中共和印度之间存在争议领土，中共称为藏南，印度称阿鲁纳恰邦地区，中共民政部本周宣布，对争议地区的15个居民点、河流和山脉的名称进行了 “标准化”。这是自2017年以来中共在该地区的首次命名。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-而印度外交部在去年的12月30日宣称，”阿鲁纳恰尔邦一直是并将继续是印度领土不可分割的一部分”不会因中共命名而改变事实。
+2021年12月29日，美国捷蓝航空公司于当天晚些时候证实，由于美国东北部地区的奥密克戎病例预计将持续上升，这可能在未来几天对该公司机组人员造成进一步影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.35.18-PM.png)
+据公司相关人员透露，该公司眼下正在面临着因中共病毒确诊病例激增而导致的机组人员短缺现状，为此，公司已经取消了直至2022年1月13日的约1280个航班。目前，美国其他航空公司还没有详细说明他们在2022年1月份的行程变化。
 
-按照惯例，如果出现领土争议的情况下，可以向联合国国际法院提出持有相关管辖权的证据，通过法院裁决其管辖权。中共以一国政府为主导的无视法律的违规行为，不得不说，其行为唯我独尊、狂妄至极，对国际社会秩序起到极恶劣影响。
+另外，数据显示，捷蓝航空公司的股票在本周内已经下跌了近2%，加之捷蓝航空已经公布的行程削减，评论人士指出，这预示着航空业已经开始准备应对因奥密克戎疫情爆发而造成的航空服务长时间中断的情形。
 
-信息来源：
+参考链接：[JetBlue cancels flights through mid-January as Omicron sidelines crews](https://www.newsbreak.com/n/0dZ8E3qg?pd=0BtSHkgm&amp;lang=en_US&amp;s=i16)
 
-[**インド、中国を批判 係争地15か所に命名で**](https://www.afpbb.com/articles/-/3383339?cx_reffer=gunosy&amp;utm_source=gunosy&amp;utm_medium=news)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：Kathy文艺
+总编：Irene木木 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
