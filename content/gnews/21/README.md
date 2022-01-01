@@ -2,34 +2,40 @@
 ---
 
 
-## FDA警示：辉瑞的新冠病毒抗病毒药与许多常用药物联用时，会引起危及生命的反应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1813199/)
+## 拜登 普京就乌克兰问题举行紧急电话会议
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1813218/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s16.jpg)图片来源：大纪元
-根据美国食品和药物管理局(FDA)的说法，辉瑞(Pfizer)开发的用于治疗新冠病毒的抗病毒口服药物与包括一些抗凝剂、一些抗抑郁药和一些降胆固醇他汀类药物在内的常见药物一起使用时，可能会导致严重或危及生命的影响。
+作者：纽约香草山- 侠肝义胆
 
-FDA不推荐辉瑞制造的帕克斯洛维德(Paxlovid)用于患有严重肾脏或肝脏疾病的人。FDA于12月22日授予辉瑞帕克斯洛维德 (Paxlovid) 的新冠病毒治疗药紧急使用授权(EUA)，用于治疗12岁以上患者的轻度至中度新冠病毒病例。
+美东时间周四下午，美国总统拜登和俄罗斯总统普京就乌克兰紧张局势进行了本月第二次电话会议。因俄罗斯与乌克兰边境军事对峙，双方相互发出警告：乌克兰局势进一步升级恐将破坏两国关系。但双方同意就此进行进一步外交接触。
 
-帕克斯洛维德(Paxlovid)是FDA授权治疗新冠病毒的同类口服药物中的第一种，目的是在患者因感染而病重之前减少住院的需要。帕特里齐亚·卡瓦佐尼（Patrizia Cavazzoni）表示：“随着新变种的出现，这项授权提供了一种在大流行的关键时刻对抗新冠病毒的新工具，并有望使抗病毒治疗更容易被进展为严重新冠病毒的高风险患者所接受。”卡瓦佐尼是FDA药物评价和研究中心主任。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-1.jpg)图片源自网络
 
-帕克斯洛维德(Paxlovid)由两种药物的混合物组成，第一种是尼马瑞韦，可阻止SARS-CoV-2病毒的复制，而第二种成分则用于延长尼马瑞韦的持续时间。
+白宫新闻秘书Jen Psaki在一份声明中说，拜登在电话中重申了他对缓和紧张局势的呼吁，并明确表示，如果俄罗斯进一步入侵乌克兰，美国及其盟友将 “果断回应”。
 
-去年12月初，辉瑞宣布，在出现症状后不久服用该药丸，可使因中共病毒而住院或死亡的风险降低89%。辉瑞(Pfizer)首席执行官艾伯乐（Albert Bourla） 于12月8日告诉CNBC，该药丸已运抵美国，“因此，如果获得批准，该产品将在本月上市。”
+ 俄罗斯塔斯社援引普京助手尤里-乌沙科夫的话报道说，普京警告拜登，如果美国继续实施 “前所未有的制裁”，应该预期双边关系将 “完全断绝”。 
 
-**简评：**中共国制造并释放了病毒，以辉瑞制药公司为首的各疫苗公司借新冠病毒的大流行强推新冠毒疫苗，赚得盆满钵满。辉瑞制药预计其新冠疫苗将在今年为其带来360亿美元的巨额收入。现在，辉瑞制药又开始在与新冠病毒相关的治疗药物上下文章了。FDA等相关监管机构完全沦为了这些制药巨头的打工仔，放着疗效已经得到证实的伊维菌素，羟氯喹等治疗药物视而不见，对一些明显具有毒性和应用缺陷的新特药开绿灯，让全球的医疗机构都沦为了少数集团赚钱的工具。
+拜登政府一直告诫说，如果对乌克兰的军事行动升级，莫斯科可能遭受的代价将 “远远超过2014年俄罗斯从乌克兰吞并克里米亚后实施的行动”。 
 
-新闻链接：[https://www.theepochtimes.com/covid-antiviral-pills-cause-life-threatening-reactions-when-used-with-many-common-meds-fda\_4186839.html](https://www.theepochtimes.com/covid-antiviral-pills-cause-life-threatening-reactions-when-used-with-many-common-meds-fda_4186839.html)
+这些措施将包括经济制裁，调整北大西洋公约组织在盟国的兵力态势，以及向乌克兰提供额外援助，使其能够进一步保卫自己的领土。
 
-* * *
+ 不过普京外交政策顾问乌沙科夫表示，俄方对此次通话整体上感到“满意”，并补充说普京向拜登强调，俄方需要在明年1月10号的双方安全会谈中看到一个积极的成果，不能无限期地进行谈判.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：[https://english.kyodonews.net/news/2021/12/e93232037c5e-biden-putin-hold-phone-talks-amid-ukraine-standoff.html](https://english.kyodonews.net/news/2021/12/e93232037c5e-biden-putin-hold-phone-talks-amid-ukraine-standoff.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
+总编：童谣
+校正/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
