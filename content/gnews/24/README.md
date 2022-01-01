@@ -2,22 +2,40 @@
 ---
 
 
-## 克鲁兹参议员指责福奇在儿童因新冠住院问题上玩政治游戏
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1810627/)
+## 荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810684/)
 
-#### 翻译/撰稿：黃金精神
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1.png)图片来源：推特
-2021年12月31日据福克斯（Fox News）报道, 泰德·克鲁兹（Ted Cruz）参议员及福奇的最大批评者周四晚些时候在推特上指责福奇在谈到拜登执政期间新冠住院治疗时他编辑的信息。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Netherlands-quarantine.jpg)
 
-克鲁兹在推特上转发了福奇在MSNBC上的一次采访，他在采访中谈到感染新冠住院的儿童人数令人不安，并且明确表示感染新冠的住院儿童数量和“由于新冠”住院之间是有区别的。“我们这样说的意思是：如果一个孩子进了医院，他们会自动接受新冠检测，并被算作新冠住院病人，而事实上，他们可能是因腿部骨折或阑尾炎或类似疾病而住院。所以这过度计算了因感染新冠而住院的儿童的数量。”
 
-克鲁兹发帖说：“现在福奇这样说是因为拜登政府的大流行病政治已经改变了吗？”
+ 
+图片来源：www.viralnigeria.com.ng
 
-克鲁兹的推文是在拜登政府在处理新冠病毒爆发方面面临新的批评时发表的。批评者说，他发誓要控制病毒，但他本周承认，“没有联邦解决方案”。
 
-新闻来源：[**Cruz accuses Fauci of playing politics with COVID-19 after recent comment about hospitalized children**](https://www.foxnews.com/politics/cruz-accuses-fauci-of-playing-politics-with-covid-19-after-recent-comment-about-hospitalized-children)
+#### 编译：小红帽
+
+根据RT12月31日报道，**在Omicron病例激增之后，荷兰将美国指定为 “非常高风险”的国家，从美国抵达的、完全接种新冠疫苗的旅客，现在必须在荷兰接受10天的隔离检疫。**
+
+周四，美国与阿富汗、海地、约旦、索马里、乌克兰、英国和委内瑞拉等国一起被列入黑名单。对美国旅客的强制检疫措施也在同一天推出。
+
+根据上周实施的限制，那些来自非常高风险国家的人“必须自我隔离10天，即使他们有新冠疫苗接种证明或康复证明”。
+
+如果旅行者在隔离过程中检测出新冠病毒呈阴性，则可以缩短自我隔离期时间。12岁及以上的旅客在进入荷兰时还必须提供新冠病毒检测阴性的证明。
+
+新的限制措施意义重大，因为该措施同样适用于已接种新冠疫苗和未接种新冠疫苗的旅行者。一些研究表明，某些新冠疫苗对Omicron的效果比对以前的毒株更差。
+
+新闻来源：[Netherlands forces vaxxed & unvaxxed Americans to quarantine — RT World News](https://www.rt.com/news/544865-netherlands-vaxxed-americans-quarantine/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

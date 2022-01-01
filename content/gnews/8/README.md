@@ -2,118 +2,31 @@
 ---
 
 
-## 接客马《攻守道》真实版
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1811039/)
+## 美媒报道：中共国房地产开发商土地竞拍走缓
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1811044/)
 
-作者： GBW
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
-0
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2.png)
-1
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-39.png)
-2
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1.png)
-3
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5.png)
-4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-1.png)
-5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-1.png)
-6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6.png)
-7
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7.png)
-8
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png)
-9
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9.png)
-10
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10.png)
-11
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11.png)
-12
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12.png)
-13
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13.png)
-14
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.png)
-15
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15.png)
-16
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16.png)
-17
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17.png)
-18
-![](https://assets.gnews.org/wp-content/uploads/2022/01/18.png)
-19
-![](https://assets.gnews.org/wp-content/uploads/2022/01/19.png)
-20
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20.png)
-21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/21.png)
-22
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22.png)
-23
-![](https://assets.gnews.org/wp-content/uploads/2022/01/23.png)
-24
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.png)
-25
-![](https://assets.gnews.org/wp-content/uploads/2022/01/25.png)
-26
-![](https://assets.gnews.org/wp-content/uploads/2022/01/26.png)
-27
-![](https://assets.gnews.org/wp-content/uploads/2022/01/27.png)
-28
-![](https://assets.gnews.org/wp-content/uploads/2022/01/28.png)
-29
-![](https://assets.gnews.org/wp-content/uploads/2022/01/29.png)
-30
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30.png)
-31
-![](https://assets.gnews.org/wp-content/uploads/2022/01/31.png)
-32
-![](https://assets.gnews.org/wp-content/uploads/2022/01/32.png)
-33
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33.png)
-34
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.png)
-35
-![](https://assets.gnews.org/wp-content/uploads/2022/01/35.png)
-36
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36.png)
-37
-![](https://assets.gnews.org/wp-content/uploads/2022/01/37.png)
-38
-![](https://assets.gnews.org/wp-content/uploads/2022/01/38.png)
-参考资料：
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12E5AD22-1140-41A5-B9BF-6E0BB28F6FBC.jpeg)来自网络截图
+美国彭博社报道，即使中共国一些地方政府“放宽了招标规则”，开发商“资金紧张”已经“不愿收购土地”。这个动态“加剧了流动性紧缩的迹象，并有可能加剧中共国经济放缓”。报道指出，“面对房屋销售下滑、融资渠道受限和借贷成本上升”，许多中共国开发商“今年一直没有补充土地储备”。文章认为，中共国“长期以来对房地产行业的打压”，并“呼吁银行帮助其保持平稳健康发展”；但是，这些措施对“提振开发商信心几乎没有帮助”。
 
-原版《攻守道》：[https://www.youtube.com/watch?v=wfS9Uf5SKu8](https://www.youtube.com/watch?v=wfS9Uf5SKu8)
+报道引用相关行业报告指出，中共国的房地产“短期内市场情绪不太可能恢复”；同时，行业预计“明年上半年土地销售不会出现明显复苏”。文章认为，“土地销售疲软”对于中共国来说“是个坏兆头”。同时，由于“房地产和建筑业萎缩，第三季度经济放缓”等现实，必然“加剧地方政府的债务问题”。
 
-阿里巴巴卖假货被告：[https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518](https://www.reuters.com/article/us-alibaba-lawsuit-fake-idUSKBN0O02E120150518)
+报道指出，中共国的地方政府已经“面临着经济疲软带来的收入压力”，并在“多年投资热潮之后的沉重债务下苦苦挣扎”。根据报道内容，今年，即使中共国在土地拍卖的数量和规模上都缩小，仍然无法得到应有和想要的效果。
 
-阿里巴巴清理假货：[https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last](https://www.worldtrademarkreview.com/anti-counterfeiting/alibaba-anti-counterfeiting-alliance-seized-5362-million-fake-goods-last)
+综上所述，笔者认为，这篇报道充分说明中共国的房地产进一步走向全面的溃败和崩塌。要知道土地、资金和市场都不作美，无论你怎么想办法刺激都没有办法。土地没人买，政府就没有各种税收和各种利益。资金不充足，就没有各种带动和健康的运转。此外，没有了市场，没有了消费的欲望，自然就是死水一潭。
 
-阿里巴巴清理刷单：[https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest](https://www.scmp.com/tech/policy/article/3142275/china-punishes-online-merchants-fake-reviews-inflated-sales-latest)
+表面上看，似乎这里表现出来的就是一个暂时的土地竞拍和购买的停滞和走缓，可是实际上，这是中共经济全面走向衰落的最后。这里开始的都是狂奔直下。马上，中共国的各种经济情况都面临最惨的结果；而且中共国百姓的生活必将步入灾难。
 
-蚂蚁金服上市叫停：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+换句话说，如果在这种现实境况下，还有开发商要举债买土地，那就是完蛋；还有政府能卖出去土地，那就是天方夜谭；还有人持币待购和热炒热卖房子，真的就是末路。从这几个方面，加上政府没有资金的后续，什么都变成泡影。
 
-阿里巴巴股价大跌：[https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/](https://www.rt.com/business/538382-alibaba-value-drops-china-monopoly-crackdown/)
+人能生活在泡影中吗？人没有健康的实业和踏实可见的经济运转，不可能喝西北风生存，可是，最后能够怎样呢？最后当然是有巨大的人道危机，有无穷无尽的苦难，我们的同胞就要面对绝境。唯有灭共，才是正途，才是救赎。
 
-郭文贵谈马云被捕：[https://gwins.org/cn/milesguo/22490.html](https://gwins.org/cn/milesguo/22490.html)
+参考消息：
 
-郭文贵谈马云和中共国企业家的遭遇和出路：[https://gnews.org/zh-hans/1606278/](https://gnews.org/zh-hans/1606278/)
+[China Land Sales Remain Sluggish Even as Bidding Rules Eased](https://www.bloomberg.com/news/articles/2021-12-29/china-land-sales-remain-sluggish-even-as-bidding-rules-eased)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
+发稿：MG6
 
-郭文贵谈唯真不破：[https://gwins.org/cn/milesguo/22835.html](https://gwins.org/cn/milesguo/22835.html)
-
-发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-10.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
