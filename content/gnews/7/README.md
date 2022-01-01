@@ -2,37 +2,39 @@
 ---
 
 
-## 中共官方“承诺”为封城的西安居民提供食品
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1809983/)
+## 有声|中共向普林斯顿大学迂回资助数百万美元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1809998/)
 
-撰稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-372.png)图片来自网络
-美媒《NPR新闻》近日报道，中国官员承诺向拥有 1300 万人口的古都西安的居民提供稳定的食品杂货配送服务。西安是去年武汉疫情开始封城以来实施最严格封城规定的城市。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月22日，据当地媒体报道称，美国联邦记录显示，普林斯顿大学从与中共政府相关的大学和机构处获得了数百万美元的捐款。
 
-中共国商务部发言人周四表示，商务部已与附近省份联系，以帮助确保日常生活必需品的充足供应。
+报道提及，中共政府曾于2018年通过北京大学深圳分校与普林斯顿大学签订了一份为期五年、价值460万美元的合同，用以建立专注于药物研发和计算机科学领域的研究设施。而今年早些时候，普林斯顿大学还收到了来自中共政府两笔总计130万美元的匿名捐款，用于资助该校计算机科学系的教授。另外，自2012年以来，普林斯顿大学当代中国研究中心从中美交流基金会创始人董建华那里获得了至少100万美元的捐款。
 
-国家广播公司中央电视台周四播出了一个故事，显示大楼工作人员为西安一栋公寓楼的居民组装免费食品杂货。
+原文链接：[中共向普林斯顿大学迂回资助数百万美元](https://gnews.org/zh-hans/1801671/)
 
-交付的货物包括一盒 15 个鸡蛋、一袋 2.5 公斤（5.5 磅）的大米和一些绿色蔬菜。它说，居民还可以期待一些鸡肉或猪肉。
+音频处理：喜山必胜Maverick
 
-尽管如此，一些人在社交媒体平台微博上分享的片段下方的评论中抱怨说，他们在社区中没有收到相同的交付。许多人担心他们是否能够获得新鲜的蔬菜和肉类。
+发稿：Daxia
 
-本周，西安当局收紧了限制措施，使人们不能再出门购买杂货。此前，居民每两天被允许购买一次食物。这座城市也被封锁，这意味着人们未经特别许可不得离开。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-西安周三报告了 155 例新的本地传播病例，在最新的疫情中总共约有 1000 例。
+**更多资讯，更多关注**
 
-与世界其他地方的疫情相比，这些数字相形见绌，但对中国来说意义重大，中国继续奉行试图根除中共病毒的政策。这导致了广泛的封锁，以减少病毒的传播。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-自中共病毒大流行开始以来，中共国共报告了 101890 例病例和 4636 例死亡。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-七十年来的经验教训告诉我们，来自中共官方的“承诺”哪怕是一个字也不要信，网传蔬菜已经涨价到400元一箱，部分地区甚至已经出现以物易物的情况。笔者这几天也有关注从西安传来的信息，发现大量网友拍照截图或以短视频的形式说西安难买菜，另一方面却有“纯文字”版本的说西安买菜不愁。那些收了钱替中共洗白的五毛和粉红们，你们的良心难道不会痛么？
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考链接：
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[https://www.npr.org/2021/12/30/1069033446/officials-promise-groceries-for-xian-china-city-of-13-million-under-lockdown](https://www.npr.org/2021/12/30/1069033446/officials-promise-groceries-for-xian-china-city-of-13-million-under-lockdown)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
