@@ -2,69 +2,49 @@
 ---
 
 
-## 锌能抑制中共病毒与排毒石墨烯
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811570/)
+## 我的亲身经历（一）——初进监狱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1811574/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：香草山文艺部-5月10日NB
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+作为一个国内普通草根，我在生活中到处都能碰到、看到共产党统治下以黑治国的种种恶行。下面是我自己的一段亲身经历。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-17.png)
+3年前，因为受到牵连，我被冤判入狱，在监狱的日子对我来说就是经历了一场噩梦。在布满铁丝网的高墙里，令人无法想象的黑暗让我刻骨铭心。我先说一说刚刚入狱时碰到的一个情景。
 
-你的免疫系统是你抵御所有疾病的第一道防线，特别是传染病（瘟疫），有许多不同的方法来提高你的免疫系统，改善其功能。有一种营养素在你的免疫系统抵御病毒感染的能力中起着非常重要的作用，那就是锌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未命名的设计-2.jpg)
 
-抗疟疾药物氯喹和羟氯喹是奎宁的合成形式，奎宁是一种在植物中发现的自然存在的化合物。 羟氯喹和氯喹与其他天然化合物槲皮素和表儿茶素-棓酸盐（”EGCG”）一样，是一种锌离子团。
+被刑事判决后的罪犯入狱后有两个月的入监培训期，这两个月的日子是非常恐怖的。
 
-锌可能是被大大低估了的中共病毒流行病的参与者。它对健康的免疫功能至关重要，2010年，在体外或”试管实验”中，锌与锌离子团（比方羟氯喹，一种促进锌在体内吸收的锌运输分子）的组合被证明能够抑制SARS冠状病毒。 在细胞培养中，它也在几分钟内阻止了病毒的复制。
+新犯们在这两个月的活动区域叫入监警区。入狱第一天，狱警对新犯人的训话让我记忆非常深刻。训话的警察是入监警区的指导员，他有几句话是这样说的：“你们从现在开始什么身份都没有，只有编号，名称是犯人。你们不要想有尊严，这里没有公平，你们只有无条件地服从。无论在社会上你们地位多高，势力多大，在这个地方你们都要牢牢记住，我们是有执照的流氓，有的是手段对付你们。你们如果违反监规，轻的是电警棍辣椒水老虎凳等着你，重的要么关禁闭室，要么戴三十斤以上的镣铐，要么加刑期。你们随时随地都不许忘记自己是谁，和警察讲话必须说自己是罪犯XXX，和警察说话时必须蹲下。每个新犯人都要体验半个小时的坐老虎凳、尝电警棍和尝辣椒水。要让你们知道共产党铁拳的分量。”
 
-\*注：有趣的是，2010年这项研究的作者之一正是北卡罗来纳大学教堂山分校（University of North Carolina at Chapel Hill）的拉尔夫·巴里奇（Ralph Baric），他是与SARS-CoV-2的产生及其大流行有内在联系的四个人之一，其他四个人是武毒所的”蝙蝠女”石正丽、生态健康联盟的彼得·达扎克和美国白宫的安东尼·福奇。 根据大卫·马丁博士（Dr. David Martin）的说法，达扎克和福奇是这场大流行病的设计师。
+他说这些话时脸上没有任何表情，口气也是文绉绉的，但是能让人感到一股杀气。我能感觉到犯人听着是很恐惧的，要知道这才是犯人恐怖日子的开始啊。因为这不是影视剧的场景，这些警察是说到做到的，而且会做到极致。
 
-在下面的视频中，Dr. Roger Seheult 回顾了令人信服的证据，表明抗疟疾药物之所以在治疗Covid方面显得如此有用，实际上是因为它改善了细胞对锌的吸收。 请记住，这个[视频](https://www.youtube.com/watch?v=U7F1cnWup9M&amp;t=95s)是在2020年3月制作的。
+在监狱期间，我亲眼看到过、体会过犯人每时每刻都处于这种令人绝望的所谓共产党铁拳的威力之下，每个犯人在监狱里度过刑期出狱后，都像被抽过筋一样麻木。
 
-中共病毒患者和锌缺乏症有许多共同的症状——正如比尔·萨尔迪（Bill Sardi）所指出的，大部分中共病毒的症状（总共18个症状）与锌缺乏症的症状几乎没有区别。两者共有的症状包括但不限于（[如下图](https://knowledgeofhealth.com/symptoms-covid-19-coronavirus-match-zinc-deficiency/)）：
+郭文贵先生说中国共产党以黑治国，我体会得太深刻了，仅监狱的黑暗就可见一斑。郭文贵先生讲述的在清丰看守所的经历我能感同身受。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-23.png)
+现在各个省份都在兴建监狱，省级监狱达万人规模（刑期5年以上），市级监狱也要容纳几千人。看守所的规模也在扩大。我曾听狱警说过，当前从看守所送监的犯人都在排队等着，监狱太少了，以后犯人还会更多，现有的监狱已经容纳不了了。
 
-锌和锌离子载体的相关研究:
+真不知未来是怎样的一幅恐怖景象。
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4728566/), NCBI, 2016
+（未完待续）
 
+校对/发稿：飞虹
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://pubmed.ncbi.nlm.nih.gov/26712783/), NCBI, 2015
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
 
+**更多资讯，更多关注**
 
-- [Physicians work out treatment guidelines for coronavirus](http://www.koreabiomed.com/news/articleView.html?idxno=7428), Korea Biomedical Review, 2020
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-- [Expert consensus on chloroquine phosphate for the treatment of novel coronavirus pneumonia](https://pubmed.ncbi.nlm.nih.gov/32075365/), NCBI, 2020
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-- [Quercetin and Vitamin C: An Experimental, Synergistic Therapy for the Prevention and Treatment of SARS-CoV-2 Related Disease (COVID-19)](https://www.frontiersin.org/articles/10.3389/fimmu.2020.01451/full), Frontiers, 2020
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-
-- [Quercetin as a Natural Therapeutic Candidate for the Treatment of Influenza Virus](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7824064/), NCBI, 2020
-
-
-- [Quercetin: Antiviral Significance and Possible COVID-19 Integrative Considerations](https://journals.sagepub.com/doi/full/10.1177/1934578X20976293), Sage, 2020
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-21.png)
-
-- [Unravelling the anti-influenza effect of flavonoids: Experimental validation of luteolin and its congeners as potent influenza endonuclease inhibitors](https://www.sciencedirect.com/science/article/pii/S0223523420307261), Science Direct, 2020（图片来源：[福布斯新闻](https://www.forbes.com/sites/brucelee/2021/07/10/graphene-oxide-in-pfizer-covid-19-vaccines-here-are-the-latest-unsupported-claims/?sh=145502c274d7)）
-
-
-与中共病毒有关的症状也与电磁场（EMF）辐射和氧化石墨烯中毒的症状相匹配。 例如，10月份发表的一项研究认为，中共病毒和无线通信系统暴露之间在病理上，有很大的重叠性。 而（拉·昆塔·科伦纳）La Quinta Columna 在6月表示，他公开了大量与口罩、测试棉签和中共病毒疫苗中发现的石墨烯有关的研究。
-
-“氧化石墨烯是一种在机体内产生血栓的毒物，氧化石墨烯是一种产生血液凝固的毒物。氧化石墨烯导致免疫系统的改变。通过使与[谷胱甘肽]储备有关的氧化平衡失衡。如果通过任何给药途径增加氧化石墨烯的剂量，就会引起免疫系统的崩溃和随后的细胞因子风暴……总之，氧化石墨烯是所谓的SARS-CoV-2，即所谓的中共病毒（新冠状病毒）在名为Covid-19的疾病在武汉爆发之前，所挑起的症状”（病毒和疫苗可挑起相同的症状，只是剂量不同而已）。
-
-石墨烯可以被自然地冲出体外。 在我们血液中发现的一种酶，即骨髓过氧化物酶（myeloperoxidase），可以降解氧化石墨烯（graphene oxide）。 例如，酒精（乙醇）或烟草（尼古丁），可以帮助增加这种酶。但也有更健康的选择，支持我们的身体分解进入我们体内的石墨烯。
-
-拉·昆塔·科伦纳的[视频](https://rumble.com/vk4c5q-la-quinta-columa-informs-on-antioxidants-that-degrade-graphene-oxide.html?mref=lveqv&amp;mc=48pz1)解说表示：每一种抗氧化剂，特别是主抗氧化剂谷胱甘肽，都可以降解氧化石墨烯。在拉·昆塔·科伦纳建议的食品补充剂清单中，包括锌和它的离子团，槲皮素。
-
-新闻来源：[dailyexpose.uk] [Zinc Inhibits Influenza Virus, Covid and Helps Our Body Detoxfrom Graphene](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) | 发布时间：2021年12月30日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
