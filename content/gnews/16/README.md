@@ -2,134 +2,56 @@
 ---
 
 
-## 明年风水龙虎斗主角
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809716/)
+## 两项研究展示新证据证明新冠疫苗“导致的疾病多于其预防”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1809751/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a18cz-6osll.jpg)
-[https://gtv.org/video/id=61ce7b5afb16a93456bfa541](https://gtv.org/video/id=61ce7b5afb16a93456bfa541)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s8.jpg)图片来源：www.thegatewaypundit.com
+疫苗导致的疫情：两项研究展示新冠疫苗“导致的疾病多于其预防”的新证据——3个月后，辉瑞公司的疫苗接种者比未接种者感染新冠病毒的几率高出76.5%。
 
-**Miles Guo**
+两项新发布的研究表明，在一段短暂的适度的保护期之后，最终实验性新冠疫苗实际上导致了比其预防更多的疾病——特别是当涉及到像奥密克戎这样的占据主导且极温和的新变种时。
 
-彭丽媛属虎
-Peng Liyuan was born in the year of tiger
+第一项研究，由丹麦的一个研究小组发布于MedRXiv的预印本，显示实验性疫苗在接种两个月后绝对无法针对奥密克戎提供保护（他们称之为“峰值”保护）。
 
-龙虎相斗
-Dragon and tiger fight each other (don’t get along well)
+仅仅三个月后，完全接种疫苗的人们开始经历剧烈的负面保护。研究人员发现，一旦90天过去，接受辉瑞疫苗的人比未接种疫苗的人出现突破性感染的可能性高出惊人的76.5%——而接受莫德纳疫苗的人的这一比率则高达39.3%。根据该研究，新的奥密克戎变种的传播“可能”是由“年轻的、接种过疫苗的人”中的“超级传播者事件”引起的。
 
-而且盘古龙属于阳龙
-and Pangu Dragon appertains to yang dragon
+在这项研究中，只有那些接种了完整的两剂疫苗或接种了两剂疫苗和加强针的人被算作接种者。不知何故，该研究的作者仍然得出结论，大规模的疫苗接种和加强针的推广是必要的。如果这还不足以证明这是“疫苗导致的疫情，加拿大新冠护理联盟（CCCA）——一个由独立医疗专业人士组成的非营利性政府监督组织——本周另又单独发布了一份报告，并得出了类似的结论。
 
-地上龙，阳龙，地上龙
-Yang dragon, the dragon on earth
+在研究了辉瑞公司自己的疫苗临床试验数据后，CCCA专家小组也发现辉瑞疫苗对新冠有严重的负面保护作用，以至于他们认为“疫苗造成的伤害大于好处”。”辉瑞公司6个月的数据显示，辉瑞疫苗接种引发的疾病多于预防”。CCCA专家小组对辉瑞公司2020年12月31日的疫苗试验报告进行了全面分析。辉瑞公司的报告声称，接种是安全的，并在第2剂后7天显示出95%的强劲疗效。但研究人员没有提到的是，这95%实际上是相对风险降低。绝对风险降低，这才是应该考虑的因素——特别是如果这种疫苗将被全面强制执行的话，绝对风险的降低还不到百分之一。
 
-而且明年虎是壬水
-Also next year, the year of tiger is Ren Shui
+“声称接种是安全的，并且在第二针后7天显示出95%的疗效。但这个95%实际上是相对风险降低。绝对风险降低只有0.84%”。报告还显示，根据辉瑞公司的记录，与安慰剂组相比，接种疫苗的人患病风险增加——甚至死亡风险增加这一点也得到了辉瑞公司上个月发表的最新临床试验数据的支持。CCCA专家小组还发现，辉瑞公司在编制报告时采取了一些有问题的腐败做法。
 
-啥叫壬水知道吗？
-Do you know anything about Ren Shui?
+该疫苗制造商不仅淡化了实验性疫苗的副作用，而且没有遵循既定的临床试验方案，没有充分的对照组，这些对照组成员是混合的，且没有进行盲测，为了产生最好的结果，他们通过有误导性的人口统计学来测试疫苗。
 
-水灾，查查中国历史
-Floods, look it up in the Chinese history
+辉瑞公司没有将试验的重心放在最能从新冠疫苗中受益的目标人群上，即老年人和有严重并发症的人，而是选择了年轻人，而不是需要抵抗病毒的保护的老年人，这些实验参与者，a）不太可能需要疫苗，b）不太可能在试验中遭受不良反应，c）更可能对疫苗有良好的反应。
 
-现在战友们在底下看一看
-Now everyone take a look
+此外，由于辉瑞公司提前解除了临床试验的盲测，他们无法提供任何相关的长期安全数据，因为他们不再有对照组作为参考。
 
-凡是在虎年壬水
-Always in the year of the tiger floods
+到2021年初，研究中的几乎所有人，甚至是安慰剂组都已经接种了疫苗，这有效地结束了获取任何有意义数据的希望。
 
-壬水, 不是那个寅，是那个像主字似的
-Ren Shui, the word “Ren” looks similar to “Zhu”
+这只是最新的证据，表明辉瑞公司和公共卫生官僚机构完全知道这些实验性疫苗的危险性，但还是把它们推给了世界。几周前，《Gateway Pundit》报道了美国食品和药物管理局是如何批准延长辉瑞公司的紧急使用授权的，尽管在其上市的前90天内，就有1200多例与疫苗有关的死亡记录。
 
-壬水寅虎，你看过去发生了什么
+这就是犯罪。担责人在哪里？
 
-Yen Shui, Yin Tiger, look what happened in the past
+**简评：**新冠疫苗推广至今，不良反应、突破性感染甚至死亡层出不穷，但大药厂联手卫生官僚，向全世界人民施加的暴行丝毫没有退却。今天这则报道，我们能从事件的另一面捕捉到一丝从未被揭露的蹊跷。
 
-不是那个寅虎的寅啊
-（Yen ）not the tiger Yin (looking for the correct radical for “Yen”)
+首先，从表象上看，研究数据显示接种疫苗的人群要比未接种人群更容易感染病毒，光此一点就足以将这一所谓实验性疫苗打上毒针的标签。但发布这一数据的机构最后却能罔顾所有人的基本智商，仍结论称疫苗需要推广，这一明显的前后矛盾委实令人匪夷所思。
 
-是一个壬的，壬寅年
-It’s Yen shui, the year of Yen and Yin
+更进一步的，加拿大新冠护理联盟（CCCA）的研究深入到了疫苗实验的本身。根据辉瑞自己公布的资料，其实验上的纰漏没能完全掩盖，选择年轻人而非更脆弱的老年人做为实验对象，即使是对照组的人群也都有过疫苗接种——意味着完全不存在真正的对照组。为了自家疫苗赢得一个漂亮的成绩单，辉瑞想必做的手脚远不止这一两条，所幸参与实验的科学家们恪守条规将他们都记录了下来，为事态趋向恶劣的今天留下重要凭证。
 
-大家看一看这个啊
-Look at this, everyone
+简言之，辉瑞以及给辉瑞放行的官僚从第一天起就对疫苗的危险性有很深刻的了解，于是才有了报告上的欲盖弥彰。他们不单了解，还不遗余力地推广疫苗，任由疫苗杀人。正如文章结语所言，这就是犯罪。
 
-阳水、阳木，对了
-Yang water, Yang wood, that’s right
+新闻链接：[https://www.thegatewaypundit.com/2021/12/pandemic-vaccinated-two-studies-show-new-evidence-covid-19-vaccines-cause-illness-prevent/](https://www.thegatewaypundit.com/2021/12/pandemic-vaccinated-two-studies-show-new-evidence-covid-19-vaccines-cause-illness-prevent/)
 
-你看看文杨，文杨，盘古是飞天龙
-Look at what Wen Yang have here, Pangu is a flying dragon
+* * *
 
-盘古是地上龙、火龙、火龙
-Pangu is the dragon on earth, fire dragon
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-而且是盘古由地下五层连接在一起
-Pangu (buildings) are connected together by all five floors underground
 
-这叫什么？叫做龙韬
-What’s this called? It’s called Dragon Tao
+编辑：【英国伦敦喜庄园编辑部】
 
-过去叫做韬龙
-It used to be called Tao Dragon（control）
-
-苍龙、渊龙、火龙
-Canglong, abyssal dragon, fire dragon
-
-所以说你看看就是你说对了，荣光依旧
-You are right, Glory Remains (an audience’s nickname)
-
-这对彭丽媛是大伤
-This (dragon head design) is a huge impact to Peng Liyuan (her destiny)
-
-然后小白接近了，JessicaG也知道是属蛇
-Xiao Bai is close, JessicaG also knows it’s about snakes (audiences are guessing an answer)
-
-你就不知道属虎跟蛇有啥关系？
-You just don’t know what is the Tiger has to do with snakes?
-
-跟蛇没关系
-It has nothing to do with snakes
-
-政清就明白，你们都蒙对了
-Zhengqing understood, you all got it right
-
-但就是不往前深入，这啥事儿不深入嘛
-But you just didn’t go deeper than that. Why not?
-
-兄弟姐妹们，是吧？
-Right? Brothers and sisters
-
-说对了，他（习近平）相信了
-You are correct, he (Xi Jinping) has believed it
-
-他相信了盘古这个龙对彭丽媛是挑战，绝对的挑战
-He believes that this dragon of Pangu designed is a challenge to Peng Liyuan, an ab-solute challenge
-
-而且明年是壬水寅虎，明年是水灾之年
-Also, next year is the year of Yenshui and Yin Tiger, that means next year would be the year of floods disaster
-
-所以必须在春节前，一定要搞
-So (reconstructing Pangu’s dragon head design) must be done before the Chinese New Year
-
-**原视频链接:**[https://gettr.com/post/pkck7hb2d1](https://gettr.com/post/pkck7hb2d1)
-
-Date:12/22/2021
-原视频标题: 明年风水龙虎斗主角
-Next year’s feng shui, dragon and tiger fight
-原视频日期：2021/12/19
-原视频链接:https://gettr.com/post/pkck7hb2d1
-任务编号：KC382(3312)
-视频时间段 : 0:00-01:58
-
-中听校: 洛杉矶盘古农场 -Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
