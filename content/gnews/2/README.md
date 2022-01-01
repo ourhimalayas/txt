@@ -2,97 +2,41 @@
 ---
 
 
-## 此生所求
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1810619/)
+## 荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810684/)
 
-撰稿：娇气猫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16410172111.png)网络截图
-你懂什么 中共有什么好
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-若无贪嗔  若无痴慢疑
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Netherlands-quarantine.jpg)
 
-又怎能让你  一次次陷入
 
-为财求 为权斗
+ 
+图片来源：www.viralnigeria.com.ng
 
-为私欲把灵魂出卖
 
-害你害她 终害自己
+#### 编译：小红帽
 
-只要在这个体制
+根据RT12月31日报道，**在Omicron病例激增之后，荷兰将美国指定为 “非常高风险”的国家，从美国抵达的、完全接种新冠疫苗的旅客，现在必须在荷兰接受10天的隔离检疫。**
 
-你用什么 换这一家安全
+周四，美国与阿富汗、海地、约旦、索马里、乌克兰、英国和委内瑞拉等国一起被列入黑名单。对美国旅客的强制检疫措施也在同一天推出。
 
-若无污秽 若不再勾兑
+根据上周实施的限制，那些来自非常高风险国家的人“必须自我隔离10天，即使他们有新冠疫苗接种证明或康复证明”。
 
-又怎能让你继续留在地位
+如果旅行者在隔离过程中检测出新冠病毒呈阴性，则可以缩短自我隔离期时间。12岁及以上的旅客在进入荷兰时还必须提供新冠病毒检测阴性的证明。
 
-为官恶 累计罪
+新的限制措施意义重大，因为该措施同样适用于已接种新冠疫苗和未接种新冠疫苗的旅行者。一些研究表明，某些新冠疫苗对Omicron的效果比对以前的毒株更差。
 
-为何把人民坑害
+新闻来源：[Netherlands forces vaxxed & unvaxxed Americans to quarantine — RT World News](https://www.rt.com/news/544865-netherlands-vaxxed-americans-quarantine/)
 
-经历无数黑暗背叛
+***发布：小红帽***
 
-一直在争权夺势
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-有道说  半生追忆
-
-一世红尘如梦里
-
-无边苍穹
-
-抬头仰望
-
-身陷囹圄
-
-有道说 邪不胜正
-
-唯愿中共土崩瓦解
-
-手执利剑 秉持信念 斩妖除魔
-
-你拿什么
-
-换这一生自由
-
-若有懊悔若还有机会
-
-又怎能坐以待毙不做选择
-
-为己守 为家谋
-
-冲出老笼可以飞翔
-
-机会在新中国联邦
-
-绝无可能再有一个
-
-有道说  人性本善
-
-一灯能除千年暗
-
-梦被党囚 非你所求 唯有自救
-
-有道说 邪不胜正
-
-唯愿中共土崩瓦解
-
-梦被释放 赐我爱着 半生着落
-
-有道说  人性本善
-
-一灯能除千年暗
-
-梦被党囚 非你所求 唯有自救
-
-有道说  正义力量
-
-正道守法定乾坤
-
-唯真不破 辨别善恶 此生所求
-
-编辑：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AU-logo.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

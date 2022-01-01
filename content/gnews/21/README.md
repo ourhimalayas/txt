@@ -2,37 +2,48 @@
 ---
 
 
-## 有声|中共疫情封锁 严酷政策不顾民生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810190/)
+## Omicron激增，美国在短短两天内突破100万个新COVID病例
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1810285/)
 
-配音：香草山教育部 – 百香果
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间11月12日，中共大连市疫情防控总指挥部发出通告，宣布对下辖的县级市庄河市实施封城，全市40万户居民，总数达80万人全部被隔离在家14天，家家户户的门上都被贴上了封条。 据中共媒体报道，过去八天中，大连地区累计报告感染人数215例。
 
-当地居民反应，政府通知封门以后，还要求在室内将门反锁。如果不小心开门，破坏封条，就会被中共政府强制迁移到集中隔离点，进行自费隔离。
 
-中共一直严酷地实施“清零”抗疫政策，即使只有几例确诊病人，也会对所在小区、街道、城区，甚至整个城市进行封锁。不仅给民众日常生活造成阻碍和痛苦，而且抑制了社会经济。
 
-文字版原文：[中共疫情封锁 严酷政策不顾民生](https://gnews.org/zh-hans/1664896/)
+据[网关专家](https://www.thegatewaypundit.com/2021/12/omicron-surge-u-s-tops-one-million-new-covid-cases-just-two-days-wave-walmart-stores-close-deep-cleaning/)12月30日的报道**，**在本周三至周四期间，美国共报告了超过一百万个中共病毒的新增病例。高传染性的Omicron变体开始成为主要的中共病毒毒株。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-55.jpg)2021年12月29日显示的北美的感染人数
+
+尽管与以前的病毒菌株相比，住院人数和死亡人数相对较少，但是大量的病例在同一时间与挥之不去且毒性更强的Delta菌株重叠，再加上隔离和检疫协议的影响，人们的日常生活有可能在未来一个月内被扰乱。
+
+根据Omicron在南非蔓延的路线，预计其影响将在1月下旬达到高峰。过去一周，Omicron变体使得数以千计的航班被取消。威斯康星州、俄亥俄州、新泽西州、德克萨斯州、路易斯安那州和其他州的沃尔玛商店在圣诞购物季的高峰期突然关闭，进行深度清洁，或许就是未来情况的先兆。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
