@@ -2,25 +2,78 @@
 ---
 
 
-## 台湾总统元旦讲话呼吁中共不要用军事力量解决问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811289/)
+## 【战友心声】2022新年祝福
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1811324/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-3.png)（图片源自本文链接）
+作者：纽约香草山福音部 — melisa
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
 
 
-1月1日时事通信社消息：台湾总统蔡英文在总统府的元旦讲话中强调，台湾与中国日益紧张的关系，”绝对不是用军事力量可以解决的”。
 
-她呼吁中方避免发生威胁经济稳定的军事冲突，重视社会和人民生活的稳定。蔡英文在讲话中重申了”不会向压力屈服”之台湾的基本立场,,敦促中共当局不要误判形势，不应让军事扩张主义在国内蔓延。
 
-关于香港民主媒体主管被逮捕，她表示对人权和言论自由的影响高度关切。并强调：台湾支持香港的立场没有改变。
 
-信息来源：[「軍事で解決せず」　元旦談話で中国に呼び掛け　台湾総統（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c9b8e9615ce45de123522aa85ca61470632545d1)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3df642a0-f954-45e5-8028-34847d2bcf5f.jpg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+战友们带着满满的喜币迎来了2022年的新年钟声。
 
+我要献上给战友们的新年祝福！
+
+过去几年七哥带着战友们腾飞。
+
+Gtv媒体平台是我们战友的灭共舞台。
+
+喜币隆重上市战友们成了财富的主人。
+
+贵族的生活正在向我们招手。
+
+Gfashion时尚的潮流是我们新中国联邦人的形象。
+
+Gettr是所有人自由发声的平台。
+
+Gclub俱乐部是给战友们享受的盛宴。
+
+2022年必将是新中国联邦战友们灭共的大好时机。
+
+中共的经济崩溃,内部激裂决斗。
+
+习恶魔和王太監同时走向灭亡之路。
+
+国际黑暗势力也将成为阶下囚。
+
+中共给世界带来的黑暗即将过去。
+
+胜利的曙光就在我们眼前。
+
+世界将回归自然生活新时代。
+
+战友们，在这新年欢乐之夜，让我们尽情地欢呼跳跃！
+
+让我们举起红酒杯，迎接2022新年的到来！
+
+2022年1月1日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

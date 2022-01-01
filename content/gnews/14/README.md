@@ -2,74 +2,43 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在31.250 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1811353/)
+## 德国外强内软玩美国玩世界玩中国的三面派功夫不逊美国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811394/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+**郭文贵先生：**首先咱们看国际事务的时候，大家就都一起爆料几年了，你可以看得出来，就是欧洲和美国文化、和政治利益、和角度的不同。还有政治家呢，一定看的政治家，这个时候、这些国家的政治家是谁，马克龙，还有德国新上任、新上来的总理，这两个人你看上去，这都是…你不要看德国这个家伙。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+德国这个家伙玩三面派，是绝对是、高手中的高手。刚讲完，刚在这个讲完，这个对中国的强硬，马上叫他的这个办公室的秘书，赶快给这个中国的驻德国大使说，哎！我刚才讲的都讲给别人听的，你们别认真啊！你们不要恶意反击，你反击的太厉害以后呢，这个咱们后果很难收。
 
+美国也马上得到了消息，我美国也很惊讶，美国也是政治老手了，玩儿这一套的是吧！但发现是吧！跟随我的这个小王子比我玩的还熟，有点惊讶是吧！哎呦！小王子你也可以玩这个了是吧！我会玩三空翻，你都玩六空翻了，是吧！这个美国人就玩好几面派，玩美国人、玩世界人、玩儿中国人，它发现德国的这小子刚上来，就很会玩这一套。
 
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-## 每日一问
+编辑整理：海贼王M.D.LUFFY；
 
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-喜币从今天开始会如何波动？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-## 喜马拉雅交易所要闻
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在31.250 HDO，24H最高价格为32.580 HDO，24H最低价格为30.450 HDO，24H成交量约为84,728.432 HCN。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. 1月1日消息，据Statista相关数据显示，2021年比特币区块链从319GB增长到383GB，增长率为20%，创下近三年最低；2020年初比特币区块链为257GB，增长率为24%；2019年初为199GB，增长率为29%。
-2. 1月1日消息，Chainlink在官方博客发布年终总结，并表示目前超过700个去中心化预言机在各个链上的生产环境中发布数据，保护的资产总价值超过750亿美元，服务了250万次以上的安全链下计算请求。
-3. Coindesk报道，加拿大比特币矿商Bitfarms从区块链和加密货币金融服务提供商Galaxy Digital Holdings处获得了1亿美元的比特币抵押贷款。Bitfarms CFO Jeff Lucas表示，新的1亿美元BTC信贷额度为Bitfarms的多元化融资战略增加了另一个组成部分，并提供了大量非稀释性资本，以为其全球增长计划提供资金，其中包括四个在建的挖矿能力为298兆瓦的矿场。Bitfarms计划使用这些资金在3月31日之前达到3EH/s的算力，到明年12月31日达到8EH/s。
-4. Cryptobriefing报道，Token Terminal数据显示，NFT市场OpenSea 2021年的交易量为140亿美元，2020年交易量为2170万美元，同比增长646倍。市场从每个NFT买卖中抽取2.5%，即支付给OpenSea的总费用，目前累计为3.516亿美元。
-5. 12月31日消息，实物资产数字化交易平台“幻物”宣布获得天使轮融资，由国内天使投资人冯涛领投，上海量纬大数据科技有限公司跟投。据悉，“幻物”依靠扎实的底层技术自建联盟链、对实体商品提供NFT上链及发行服务。
-6. PRWeb报道，礼品卡销售商Gift Chill宣布上线SHIB电子礼品卡，可使用BTC、BCH、ETH、DOGE、KishuInu、LTC、USDT、USDC和BNB等购买。购买者将获得与包含所购买代币数量的MetaMask钱包相关联的唯一秘钥。
-7. Dailycoin报道，SHIB宣布，将于2022年1月3日推出DOGGYDAO测试版。Shiba Inu团队的官方博客文章称，此举是Shiba Inu致力于去中心化的最初使命的延续，旨在“传播以社区为导向的决策能力，以加速Shiba Inu的成长”。据悉，DOGGY DAO由SHIB社区运行和完全控制，赋予SHIB社区投票权和Shiba Inu治理的责任。
-8. 官方消息，Moveto Earn游戏STEPN将推出兑换功能，从展示视频看，用户可在SOL、USDC、GST、GMT等代币间进行兑换。
-9. 官方消息，Injective发布2021年回顾和未来之路，Injective将继续为开拓新的Web3经济铺平道路，2022年将专注于：继续构建去中心化衍生品交易所；集成预言机；增加流动性；引入更多交易对和市场类型；发挥Injective Chain的潜力，可以支持期货、合成资产、期权等；推动全球采用；高性能互操作智能合约，将多链智能合约CosmWasm集成到Injective；Injective上的无许可Web3应用程序；跨链集成。
-10. CoinDesk报道，灰度投资公司管理的加密货币资产（AUM）为436亿美元，与11月初的610亿美元相比，下降了28%以上。据悉，该公司最大持股比特币信托的AUM从435亿美元降至304亿美元，在此期间下降了30%。而其第二大持股以太坊信托的规模从近150亿美元下降到116亿美元，下降了22%。然而，其总资管规模比其一年前的164亿美元增加了约170%。此外，与一年前相比，Grayscale的现投资组合范围更广。
-11. 1月1日消息，Uniswap创始人Hayden Adams表示，在现有100到200万用户下，Uniswap协议到2022年的累计交易量将超过1万亿美元。CEX目前拥有100倍的用户群，因此DEX有很大的发展空间。在2022年，Uniswap Labs发展方向为：使用更多的DevX工具和小工具等鼓励开发人员，从而更容易参与社区治理；为廉价、安全、无缝的交易和协调创造更多途径；继续引领DeFi创新。
-12. 1月1日消息，多链交易基础设施Biconomy在官方博客表示，计划在今年第二季度或者第三季度上线多链中继协议主网，该协议允许跨链合约调用，允许开发人员在协议本身上构建各种用例，包括跨链传输和无气体交易，同时验证器和执行器有望上线，用户将可以抵押BICO代币。此外，Biconomy计划将功能集成至Solana、Fantom、Neon、Arbitrum、Optimism和Boba等网络，为Hyphen引入动态费用机制。
-13. Businessinsider报道，亿万富翁Chamath Palihapitya预测，两大支付处理商Visa和Mastercard（万事达卡）将在2022年被新兴区块链和DeFi项目推翻。Palihapitya此观点是基于“因为手续费高昂，亚马逊上月禁止在英国使用Visa信用卡。”据悉，Palihapitya是Facebook前高管，负责管理风险投资基金Social Capital。
-14. Finbold报道，日前，Race Capital合伙人兼创始人Alfred Chuang接受CNBC采访时，对2022年加密货币领域进行了展望。Chuang指出，仅从2020年至2021年间加密货币的交易量来看，从每天约500亿美元增加到每天1000亿美元，而纳斯达克总体的交易量在整个期间几乎保持不变，依旧为2000亿美元/年。随着加密交易量的增加以及Web3“长期生存能力”的凸显，他建议可以合理地预期整个加密货币行业，包括比特币，将在2022年持续盛行。
-15. Financemagnates报道，亚太地区(APAC)负责人Jeremy Ng和业务发展负责人Eugene Ng已离开美国加密货币交易所。Eugene Ng与《商业时报》媒体进行了交谈，两人正计划推出自己的加密货币企业，并将准备在2022年第一季度末讨论有关合资企业的更多细节。
-16. 12月31日消息，印度将拟议的加密货币法的讨论推迟到明年之后，此前一直保持增长的加密货币交易所在12月的新注册量有所放缓。有数据显示，截至11月，加密平台上的投资者注册量环比增长10%。然而在12月，大多数平台12月的月注册量下降了约15-25%。
-17. 火星财财经报道，印度商品和服务税（GST）部门已经对加密货币交易平台WazirX发起了调查，该交易所涉嫌逃税4.05亿卢比（约550万美元）。周四晚间，GST已从WazirX处收回了4.92亿卢比（超660万美元），作为消费税、利息和罚款。GST声称WazirX发行了自己的加密货币WRX，但拒绝支付18%的商品及服务税。
-18. Bitcoin报道，巴基斯坦联邦调查局（FIA）已经冻结1064名个人名下的银行账户。官员们声称，这些账户被用来处理一些人与一些加密货币交易所的交易，总价值为5100万巴基斯坦卢比（约28.8万美元），其中包括Binance、Coinbase和Coinmama等平台。该机构还封锁了他们用于购买和出售数字货币的信用卡。该机构还提醒居民，巴基斯坦国家银行（SBP）在2018年4月由其银行政策和监管部门发布了一份通知，禁止购买和销售加密货币。然而，尽管有禁令，像比特币这样的加密货币在该国的投资者中越来越受欢迎。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
-
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,35 @@
 ---
 
 
-## 德国外强内软玩美国玩世界玩中国的三面派功夫不逊美国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811394/)
+## 01/01每日播报｜美国CDC被起诉要求提供疫苗安全应用数据
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1811456/)
 
-**郭文贵先生：**首先咱们看国际事务的时候，大家就都一起爆料几年了，你可以看得出来，就是欧洲和美国文化、和政治利益、和角度的不同。还有政治家呢，一定看的政治家，这个时候、这些国家的政治家是谁，马克龙，还有德国新上任、新上来的总理，这两个人你看上去，这都是…你不要看德国这个家伙。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d01760ecc0b216cbb3225d)**
 
-德国这个家伙玩三面派，是绝对是、高手中的高手。刚讲完，刚在这个讲完，这个对中国的强硬，马上叫他的这个办公室的秘书，赶快给这个中国的驻德国大使说，哎！我刚才讲的都讲给别人听的，你们别认真啊！你们不要恶意反击，你反击的太厉害以后呢，这个咱们后果很难收。
+**2022-01-01**
 
-美国也马上得到了消息，我美国也很惊讶，美国也是政治老手了，玩儿这一套的是吧！但发现是吧！跟随我的这个小王子比我玩的还熟，有点惊讶是吧！哎呦！小王子你也可以玩这个了是吧！我会玩三空翻，你都玩六空翻了，是吧！这个美国人就玩好几面派，玩美国人、玩世界人、玩儿中国人，它发现德国的这小子刚上来，就很会玩这一套。
+据《福克斯新闻》2021年12月31日报道，一个对疫苗持批评态度的非营利组织正在起诉美国疾病控制和预防中心（CDC），因为该机构拒绝遵守《信息自由法》（FOIA）的要求，不提供中共病毒疫苗的影响数据。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+周四宣布的这一诉讼围绕着CDC用于跟踪中共病毒疫苗接种者在接种疫苗后其健康状况的 “V-Safe “系统的数据。该组织称，CDC已经向政府承包商Oracle提供了非识别形式或缺乏个人信息的数据。
 
-编辑整理：海贼王M.D.LUFFY；
+CDC还通过疫苗不良事件报告系统（VAERS）跟踪疫苗的安全性，并继续表示，经批准和授权的中共病毒疫苗是安全和有效的。
 
-字幕文件制作：小满；
+CDC的一份文件显示，”V-safe数据将由Oracle公司收集、管理，并存放在一个安全的服务器上。”
 
-视频制作及上传：Cindy；
+代表知情同意行动网络（ICAN）的律师亚伦·西里(Aaron Siri)说，CDC最初拒绝向其提供应用程序数据，因为据称这些数据没有 “去标识化 “或未被剥离个人信息。当ICAN接着要求提供 “所有提交给v-safe并随后进行了身份识别的数据 “时，CDC以与原始数据重复为由拒绝了该要求。
 
-G-News发布：小满；
+西里说：“如果这听起来很荒谬，那是因为它是荒谬的，公众应该对CDC的游戏感到愤慨”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+此前，西里代表另一个团体起诉美国食品和药物管理局（FDA），要求提供40多万页有关辉瑞-生物技术公司的中共病毒疫苗审批过程的信息。FDA曾提出在1月前公布1.2万份文件，每月至少公布500页，这可能意味着所有文件要在几十年后才会被公开。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+秘翻新闻主编 Grace编译报道
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布:星星
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+* * *
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

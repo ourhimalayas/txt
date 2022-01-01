@@ -2,42 +2,47 @@
 ---
 
 
-## 脱欧的英国不在空客之内则利用冬奥会勾兑中共单买项目
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811458/)
+## 港共政府拘捕《立场新闻》6名高层人士
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1811524/)
 
-**郭文贵先生：**英国为啥是抗议呀？英国是老子不去，你把钱给我，答应我投的什么核电三号，是吧！然后欧洲农业，是不是，买我的这个发动机。因为现在它不处在…它欧盟这个整个空客计划，它都要退出的、退出欧盟。
+作者：东京樱花团—在远方
 
-那你来单独买我发动机吧，单独买我项目吧、单独买我柴油机吗，而且不能买高级的，技术上还不允许。中国说，那你来呀！那你先给我订单呐！两人较量，是吧！那香港问题咋办呢？是吧！这叫讲不成数了，鲍里斯·约翰逊特想勾兑，所以大家记住，这个冬奥会和这个事儿，跟政治一点关系没有，都是利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：小满；
+![China Künstlerin | Denise Ho Wan-see oder HOCC](https://static.dw.com/image/58748802_303.jpg)
 
-视频制作及上传：Cindy；
+台媒消息，香港国安处于当地时间12月29日，出动200名黑警，拘捕了《立场新闻》现任、前任高层共6人，其中包括前董事、香港著名歌手、社运人士何韵诗。
+据悉，港共政府新闻处表示，遭拘捕的6人涉嫌违反《刑事罪行条例》第9及第10条，犯下所谓的“串谋发布煽动刊物罪”，香港黑警有权搜查及捡取新闻材料。
 
-技术支持：文肺猫；
+此次遭到拘捕的人士分别为《立场新闻》前总编辑钟沛权，前董事周达智、吴霭仪、方敏生、何韵诗，以及总编辑林绍桐，年龄介于34岁及73岁之间。
 
-G-News发布：小满；
+评论人士认为，这是自1970年以来，香港政府首次使用煽动法对记者和媒体做出指控，这对香港新闻界是一个危险的先例。虽然港共政府不断重申《国安法》没有追溯力，但是他们仍然可以肆意使用其他法律来追溯过往行为，并借此逮捕与指控特定人员。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参考链接：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[https://news.ltn.com.tw/news/world/breakingnews/3783545](https://news.ltn.com.tw/news/world/breakingnews/3783545)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+校对/发稿：有莫举名
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-12.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**更多资讯，更多关注**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
 
  
 
