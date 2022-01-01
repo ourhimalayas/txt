@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/1/2022 12:05 AM (UTC)`
+
+《我是音雄》第二季总决赛暨跨年颁奖典礼
+![img](https://media.gettr.com/group6/origin/2022/01/01/00/c99c4b6b-d27d-248e-4e90-195737826391/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/31/2021 10:03 PM (UTC)`
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (6) : <br/>☘️ Miles never takes one dollar from the Whistleblower Movement and the New Federal State of China. <br/>☘️ Miles is prepared from day one to take down the CCP. As long as it can take down the CCP, Miles can eat shit or be killed for a thousand times.<br/>☘️Taking down the CCP requires true faith, not money.<br/><br/> #HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段六：<br/>💦 郭文贵从未从爆料革命和新中国联邦那里拿走一分钱。 <br/>💦 郭文贵从第一天起就准备打倒中共，只要能灭共，郭文贵可以吃屎或被杀一千次。<br/>💦 灭共需要的是真正的信仰，而不是钱。
@@ -153,15 +160,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/> 青藤 （美国纽约香草山农场）他是GTV大家喜爱的主播之一，在GTV新闻访谈，郭先生大直播等节目中以及线下的活动中都能看到他的身影。他天生拥有沁人心脾的声音，在《我是音雄》舞台上，他每一首歌都源于自身的经历，如此的真诚。歌声中不仅有自己的过去和现在，还有同战友并肩工作战斗的回忆和感触。用歌唱的方式用心交流。期待青藤在终极决赛中继续感动每一位静下来听他唱歌的人。
 ![img](https://media.gettr.com/group27/origin/2021/12/27/16/8ad276de-ccd3-863b-1b41-0654bae2e612/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:19 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/>娜娜醬（新西兰伊甸农场） 大家熟悉的GTV美女主播之一，她的节目深受战友喜爱。最初参加《我是音雄》简单的出自于希望挑战自己，经历一场场的练习和紧张比赛，上周她终于可以大声的唱出，挑战成功！她的歌声像深远的海洋，让人流连忘返。很开心看到她自由的演唱，非常期待在终极决赛中的给我们带来不一样的惊喜！
-![img](https://media.gettr.com/group2/origin/2021/12/27/16/54f4f710-14e4-a374-3a0d-741cc2bf63fb/out.jpg)
 
 ---
 
