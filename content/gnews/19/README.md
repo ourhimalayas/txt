@@ -2,135 +2,49 @@
 ---
 
 
-## 明年风水龙虎斗主角
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809716/)
+## 中共国正在耗尽水资源，这对亚洲来说是可怕的
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1809761/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a18cz-6osll.jpg)
-[https://gtv.org/video/id=61ce7b5afb16a93456bfa541](https://gtv.org/video/id=61ce7b5afb16a93456bfa541)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48D3633D-4ED8-4F2E-8628-BDB317D06625_w1023_r1_s14.jpg)图片来源：AFP/Getty Images
+自然和地缘政治能以令人讨厌的方式相互作用。历史学家杰弗里·帕克 (Geoffrey Parker)认为，在17世纪长期的全球危机期间，不断变化的天气模式引发了战争、革命和动荡。最近，气候变化在北极开辟了新的贸易路线、资源和竞争。而现在，中共国这个经常表现出一心重整国际体系的大国，正在以可能引发国内外冲突的方式耗尽水资源。
 
-**Miles Guo**
+中共国的崛起也是如此。从1970年代末到2000年代初，资本主义改革、受欢迎的全球贸易体系和良好的人口统计数据都为中共的世界级经济增长做出了贡献。中共国在土地、水和许多原材料方面几乎自给自足——而且廉价劳动力允许它能积极地开发这些资源——这一事实也帮助它成为世界工厂。
 
-彭丽媛属虎
-Peng Liyuan was born in the year of tiger
+然而，中共国丰富的自然资源已成为过去。正如迈克尔·贝克利（Michael Beckley）和我在即将出版的《危险地带》一书中所说的那样，北京已经耗尽了它的许多资源。十年前，中共国成为世界上最大的农产品进口国。由于退化和过度使用，其耕地一直在减少。突飞猛进的发展也使中共国成为世界上最大的能源进口国：在美国成为能源净出口国的时候，中国四分之三的石油都来自国外。
 
-龙虎相斗
-Dragon and tiger fight each other (don’t get along well)
+中共国的水资源形势尤为严峻。正如戈帕尔·雷迪 (Gopal Reddy) 所指出的，中国拥有世界20%的人口，但仅拥有7%的淡水。整个地区，尤其是北部地区，缺水的情况比干旱的中东地区还要严重。
 
-而且盘古龙属于阳龙
-and Pangu Dragon appertains to yang dragon
+数以千计的河流消失了，而工业化和污染已经破坏了大部分剩余的水。据估计，中共国80%至90%的地下水和一半的河水太脏而无法饮用；一半以上的地下水和四分之一的河水甚至不能用于工业或农业。
 
-地上龙，阳龙，地上龙
-Yang dragon, the dragon on earth
+这是一个代价高昂的问题。中共国被迫从相对湿润的地区引水到干旱的北方； 专家估计，由于缺水，该国每年损失超过1000亿美元。短缺和不可持续的农业正在导致大片土地荒漠化，与水有关的能源短缺已在全国普遍存在。
 
-而且明年虎是壬水
-Also next year, the year of tiger is Ren Shui
+政府推动了配给和提高用水效率，但没能充分解决这个问题。本月，中共当局宣布，水资源相对丰富的珠江三角洲的两个主要城市广州和深圳将在明年面临严重干旱。
 
-啥叫壬水知道吗？
-Do you know anything about Ren Shui?
+经济和政治影响令人不安。由于增加了增长成本，中共国的资源问题已经加入了一系列其他挑战——人口下降、日益令人窒息的政治气候、许多关键经济改革的停滞或逆转——导致经济放缓，甚至在新冠病毒来袭之前就已经产生了明显的影响。随着资源的减少加剧分配斗争，中共国的社会契约将受到考验。
 
-水灾，查查中国历史
-Floods, look it up in the Chinese history
+2005年，温家宝总理表示，水资源短缺威胁着“中华民族的生死存亡”。一位水利部长宣布，中共国必须“为每一滴​​水而战，否则就会死去”。撇开夸张不谈，资源稀缺和政治不稳定往往是齐头并进的。
 
-现在战友们在底下看一看
-Now everyone take a look
+外国紧张局势可能会随之加剧。中共国观察人士担心，如果中国共产党在国内感到不安全，它可能会抨击国际竞争对手。即便如此，水资源问题也会引发地缘政治冲突。
 
-凡是在虎年壬水
-Always in the year of the tiger floods
+中国的大部分淡水集中在西藏等地区，1949年共产党政府上台后武力夺取了这些地区，多年来，中共国一直试图通过强迫邻国和使其贫困化来解决其资源挑战。
 
-壬水, 不是那个寅，是那个像主字似的
-Ren Shui, the word “Ren” looks similar to “Zhu”
+通过在湄公河上建造一系列巨型水坝，中共在依赖这条水道的泰国和老挝等东南亚国家引发了反复发生的干旱和毁灭性的洪水。新疆的河流改道对中亚下游产生了毁灭性的影响。
 
-壬水寅虎，你看过去发生了什么
+喜马拉雅山的一个日益紧张的根源是中共国计划在关键水域到达印度之前筑坝，让该国（和孟加拉国）成为输家。正如印度战略分析家布拉马·切拉尼 (Brahma Chellaney) 所说，“中共国在南海和喜马拉雅山脉的领土扩张……伴随着更隐秘地在跨国河流流域中挪用水资源的努力。”
 
-Yen Shui, Yin Tiger, look what happened in the past
+简评：自从中共政权开始其统治以来，中国的天空、土地和水，所有的自然资源被在被污染。CCP各个盗国家族急功近利，毫不在意对自然环境造成的巨大破坏，用整个中华民族的未来换取CCP几个盗国贼的“金山银山”。现在当他们面临自然资源的匮乏和环境的崩溃时，开始逐渐把手伸向周边其他国家，向外掠夺更多的资源，以维持自己的邪恶统治。
 
-不是那个寅虎的寅啊
-（Yen ）not the tiger Yin (looking for the correct radical for “Yen”)
+新闻链接：[https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam](https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam)
 
-是一个壬的，壬寅年
-It’s Yen shui, the year of Yen and Yin
+* * *
 
-大家看一看这个啊
-Look at this, everyone
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-阳水、阳木，对了
-Yang water, Yang wood, that’s right
 
-你看看文杨，文杨，盘古是飞天龙
-Look at what Wen Yang have here, Pangu is a flying dragon
-
-盘古是地上龙、火龙、火龙
-Pangu is the dragon on earth, fire dragon
-
-而且是盘古由地下五层连接在一起
-Pangu (buildings) are connected together by all five floors underground
-
-这叫什么？叫做龙韬
-What’s this called? It’s called Dragon Tao
-
-过去叫做韬龙
-It used to be called Tao Dragon（control）
-
-苍龙、渊龙、火龙
-Canglong, abyssal dragon, fire dragon
-
-所以说你看看就是你说对了，荣光依旧
-You are right, Glory Remains (an audience’s nickname)
-
-这对彭丽媛是大伤
-This (dragon head design) is a huge impact to Peng Liyuan (her destiny)
-
-然后小白接近了，JessicaG也知道是属蛇
-Xiao Bai is close, JessicaG also knows it’s about snakes (audiences are guessing an answer)
-
-你就不知道属虎跟蛇有啥关系？
-You just don’t know what is the Tiger has to do with snakes?
-
-跟蛇没关系
-It has nothing to do with snakes
-
-政清就明白，你们都蒙对了
-Zhengqing understood, you all got it right
-
-但就是不往前深入，这啥事儿不深入嘛
-But you just didn’t go deeper than that. Why not?
-
-兄弟姐妹们，是吧？
-Right? Brothers and sisters
-
-说对了，他（习近平）相信了
-You are correct, he (Xi Jinping) has believed it
-
-他相信了盘古这个龙对彭丽媛是挑战，绝对的挑战
-He believes that this dragon of Pangu designed is a challenge to Peng Liyuan, an ab-solute challenge
-
-而且明年是壬水寅虎，明年是水灾之年
-Also, next year is the year of Yenshui and Yin Tiger, that means next year would be the year of floods disaster
-
-所以必须在春节前，一定要搞
-So (reconstructing Pangu’s dragon head design) must be done before the Chinese New Year
-
-**原视频链接:**[https://gettr.com/post/pkck7hb2d1](https://gettr.com/post/pkck7hb2d1)
-
-Date:12/22/2021
-原视频标题: 明年风水龙虎斗主角
-Next year’s feng shui, dragon and tiger fight
-原视频日期：2021/12/19
-原视频链接:https://gettr.com/post/pkck7hb2d1
-任务编号：KC382(3312)
-视频时间段 : 0:00-01:58
-
-中听校: 洛杉矶盘古农场 -Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

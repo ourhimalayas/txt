@@ -2,94 +2,42 @@
 ---
 
 
-## HBO及VICE的采访, 其背后绝不是共产党一家行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809471/)
+## 【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1809618/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3347.png)
-[https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8](https://gtv.org/video/id=61ce7a61fb16a93456bfa4f8)
+**撰稿：Grace**
 
-郭文贵
-Miles Guo
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-31-at-3.45.58-PM.jpeg)图片来源：SWiM EXCHANGE
+据《雅虎新闻》12月30日报道，在周四，中共极权政府对美国政府发出了最新的威胁。中共的外交部长在当日表示，美国将因其对自我统治的台湾岛的行动而 “面临无法承受的代价”。
 
-这个阴毒之狠
-Such cruel of this evilness
+这几年来，中共国和美国在人权、贸易和技术竞争等问题上的紧张关系急剧上升，而台湾则成为一个主要的爆发点。
 
-大家想到这个HBO、VICE的时候
-When everyone talks about HBO and VICE
+中共国宣称民主的台湾岛是自己的领土，并发誓有一天会在必要时用武力夺取台湾。
 
-我就要回答刚才回答你们（问的）最重要的问题
-I would like to answer the most important question you have asked just now
+尽管大多数国家都选择正式承认北京而不是台北，但许多国家仍与台湾保持着强有力的非正式联系，而中共对此感到极为愤怒。
 
-这一次的采访和背后的动机绝不是一个共产党一个人玩的
-This interview and the intention of it were definitely not just the CCP alone to manipulate
+周四，中共的外交部长王毅，在接受采访时警告表示，华盛顿的干涉可能导致危险的局面。
 
-你看它背后的股东你就能看得出来
-You would realize that by looking at the shareholders behind it (the interview),
+王毅说：“美国违反了中美建交时的承诺，纵容和鼓励’台独’势力，并试图歪曲和掏空一个中国原则。”
 
-单伟建、索罗斯、迪斯尼、BlackStone，
-Weijian Shan (CEO of PAG Group), George Soros (American billionaire investor and philanthropist), Disney, and Blackstone
+王毅认为“这不仅会让台湾陷入极其危险的境地，也会让美国付出难以承受的代价”。
 
-全面的背后的力量的一场集体行动，（就为）达到刚才我说的那6个目的。
-This collective action of the forces behind this interview was to reach the six objectives that I just mentioned
+据报道， 美国本月早些时候邀请台湾参加其民主峰会，这是对中共国的冷落。
 
-没有几个战友能看清楚这个本质的
-There are only a few comrades-in-arms that could clearly see this essence of it
+另一方面，拜登上个月将台湾描述为 “独立” — 但他后来澄清了他的言论，确认美国对台湾的政策没有改变。
 
-我再问你这时候
-I’m asking you again this time, Xiaoxin
+根据《台湾法》（Taiwan Act），美国不承认台湾独立，但承诺帮助该岛自卫。
 
-你想想小新，如果我不接受采访，它会怎么干这事儿？
-Think about it, what would they do if I didn’t accept their interview?
+而北京认却为任何正式宣布台湾 “独立 “的行为都是一种挑衅，并多次威胁要对支持台北自决的国家考虑后果。
 
-绝不是给你编辑编辑（就播）出来
-They would absolutely not just edit and broadcast out
+报道称，近几个月来，中共军方在台湾岛附近开展了一系列日益积极的海上和空中军事行动，在上个月一些美国立法者访问台湾海峡之后，中共在台湾海峡附近进行了军事演习。
 
-会给你玩得更恐怖、更大
-Instead, they would play bigger and more miserable
+近年来，中共国与美国的关系日益恶劣，而中共却没停止加强在国际上孤立台湾的压力。
 
-而且你看它已经盯住蛇妖闫和路大脑袋了，是吧？
-And you may see that they already have eyes on snake demon Yan and Lude
+本月早些时候，尼加拉瓜在外交上转效忠于中共国，这对台湾是一个打击，现在台湾在全球范围内只剩下14个盟友。
 
-就要（用）这俩人、就用你曾经说的话、用你的人来干你
-They want to utilize these two individuals, the words you have ever said, and your own people to destroy you,
-
-用你的蛇来咬你
-and your snakes to bite you
-
-这不是一般的行动
-This is not a normal action
-
-这跟七哥几个月以前说的
-This is what I said a few months ago
-
-我说对我们的攻击还没开始呢，（攻击会在）年底冬奥会前
-I said that their attacks on us have not started yet, and it would be at the end of this year before the Winter Olympics
-
-都兑现了吧？
-Haven’t all these fulfilled my words?
-
-谢谢，我先说到这
-Thank you, and I’ll stop my words here
-
-* * *
-
-Date: 12/25/2021
-原视频标题: HBO及VICE的采访, 其背后绝不是共产党一家行动
-Behind The Scene of These Interviews With HBO And VICE is Definitely Not Just The Communist Party
-原视频日期：2021/12/24
-原视频链接: [**https://gettr.com/post/pkm5lieabf**](https://gettr.com/post/pkm5lieabf)
-任务编号：KC379(3347)
-视频时间段 : 0:00-01:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源：** [China warns US will ‘face unbearable price’ on Taiwan](https://news.yahoo.com/china-warns-us-face-unbearable-105844330.html)
 
  
 
