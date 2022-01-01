@@ -2,36 +2,25 @@
 ---
 
 
-## 华为2021年度营收下降30%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812428/)
+## 音乐、人生——人可以能力不行，但不能造假
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1813188/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2021年12月31日，在受到美国政府的多轮制裁后，中共华为集团在2021年的年度营业收入下降至六千三百四十亿人民币，相比去年下降约29%。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM.png)
+在一个充斥着暴力、恐吓、谎言和欺骗的国家，它的音乐也只能是虚假的、变态的、肮脏的、扭曲的。郭先生在2022年1月1日的大直播中说，我们的音乐不是“盆景”，它是真实的、愉悦的、自然的。郝海东先生说，“**人可以能力不行，但不能造假**。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpeg)
+钊颖女士讲述了曾经和包括谭咏麟、曾志伟在内的港台歌手同台假声的“趣事”，她以为只有业余歌手才假唱，其实专业歌手也别无二致。而在大陆这种现象比比皆是。
 
-相关报道提及，自2019年起，由于华为涉及盗窃数据和危害网络安全，美国政府开始对华为实施了一系列禁运制裁措施，当中包括限制华为对关键零部件供应和技术获取。此后，全球所有使用美国技术的企业均被禁止在未获得出口许可的情况下向华为提供相关技术和产品。
+郭先生说，从昨天的“音雄”节目中，看到了一个杂草和野草，和宫廷里养的盆景的完全不同。宫廷里再好的盆景，只供某些人欣赏，只取悦一人，是变态的、非自然的和扭曲的。而深山中的鲜花和大树它是自然的、愉悦的、无我的，是百分之百真实的。
 
-分析人士提及，虽然华为公司为了挽回其损失尝试推动了其他业务，但其市场份额目前正在大量流失，同时，其消费者业务，尤其是在智能手机制造方面也已经遭受了沉重的打击。
+**郝海东先生说，“人可以能力不行，但不能造假。”这句话不仅是在控诉那个虚假的世界，也是在警示我们，“唯真不破”不只是说个别人听的，也不仅仅是句口号。**
+
+**和所有艺人一样，我们的人生就是一个大舞台，无论你扮演什么角色，首先面对的也是一个“真”字。想问，今天你“真”了吗？**
 
 参考链接：
-1）[https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458](https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458)
-2）[Huawei revenues fall 30% in 2021 but company sounds optimistic note](https://californianewstimes.com/huawei-revenues-fall-30-in-2021-but-company-sounds-optimistic-note/640017/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[2022年1月1日 文贵大直播](https://gettr.com/streaming/plas6p681c)
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

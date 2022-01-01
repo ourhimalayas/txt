@@ -2,40 +2,36 @@
 ---
 
 
-## 刘亚洲被抓是以共灭共战役中的一个里程碑！
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1811863/)
+## 华为2021年度营收下降30%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812428/)
 
-作者：香草山信息部 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-4.png)
-郭先生在最近的大直播里谈到，中共元老李先念女婿、空军上将刘亚洲前不久被抓事件在党内持续发酵，其同时被抓的亲人就有四十几个，现在又抓了几百个，空军老部下也抓了400多人，并涉及其军方老上级、现任军委副主席许其亮。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2021年12月31日，在受到美国政府的多轮制裁后，中共华为集团在2021年的年度营业收入下降至六千三百四十亿人民币，相比去年下降约29%。
 
-刘亚洲不是一般的中共党员，此人是有脑子的共产党员，不仅有女婿帮的傲慢，还见多识广，当然他也不是什么好人，只是坏人中有见解的一个人。刘亚洲有很多经典谈话，其中谈到中国人的三大邪恶：第一，中国人天下没有不吃的东西，而且绝对是天下最邪恶的吃法，这对大自然生态链的毁坏无法想象：第二，中国永远由一帮傻子、骗子、暴徒当官，永远被最坏、最笨的人统治，这是中国人的悲哀；第三，中国人没有信仰到了不可理喻的地步，对“文明”两字完全没有概念，中国人不但没有创造文明，简直是在扼杀文明。刘亚洲被抓进去后就这三个问题的来源被一问再问，被问到奔溃要自杀！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture26-1.jpg)
-刘亚洲在习上台时与另一位太子党出身的上将、前中共国家主席刘少奇的儿子刘源都是挺习的两员军方干将，冒着全家生命财产危险鼎立助习根除军方异己，即时任军委副主席徐才厚和郭伯雄、总参谋长房峰辉、整个总后勤部领导班子等超重量级实权人物。习当时答应刘亚洲最起码将被提升为国防部长，很可能任总后勤部长，甚至进入权力取代了政治局常委的国安委，但习最后彻底食言。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpeg)
 
-曾经拍习的马屁以图个好职务的刘亚洲最后啥羹也没分到，因此转向跟随曾庆红、王岐山和孟建柱，这应该是习对其下手的原因之一。同时，才疏学浅、打着“包青天”旗子反腐将自己推上“包子帝”皇位的习，认为有见解有才华的党内高层人士对自己的帝位构成了巨大威胁，因此习一直耿耿于怀并不断根除这些威胁。可见中共一向卸磨杀驴、用完即弃的邪恶本质。
+相关报道提及，自2019年起，由于华为涉及盗窃数据和危害网络安全，美国政府开始对华为实施了一系列禁运制裁措施，当中包括限制华为对关键零部件供应和技术获取。此后，全球所有使用美国技术的企业均被禁止在未获得出口许可的情况下向华为提供相关技术和产品。
 
-刘亚洲被抓前见了至少100人，倒数第二人是太子党大哥曾庆红，最后一人是女婿帮老大王岐山，这两人现在都对刘亚洲被抓事件毫不回避、誓死相保，说党内专门有绝对不抓党的创始股东及其家人的规矩，且刘亚洲这事在党内、国内、国际影响巨大。习回复说刘亚洲是女婿，当时规矩定的是直系亲属，不含女婿。王岐山说：“不，我就是女婿，岳父姚依林说王岐山同志是被党内保护的人”。自己的左膀右臂董宏、任志强、康典、陈峰等被抓都不出面说话的王岐山以女婿说女婿，力保刘亚洲的事情非同小可，这会是反习派从地下游击战转入地面阵地战的开始吗？
+分析人士提及，虽然华为公司为了挽回其损失尝试推动了其他业务，但其市场份额目前正在大量流失，同时，其消费者业务，尤其是在智能手机制造方面也已经遭受了沉重的打击。
 
-这场闹剧本质上是中共内斗白热化的升级版，是习全速倒车搞毛贼东清除党内异己那一套的翻版。只是没有毛的份量与水平的习，其手段太过明显和粗糙，让党内不但异己分子，连稍显温和的共青团派系甚至同根同祖的太子党派系，都认识到了习是要消灭除习家以外的任何势力，以安心做终身皇帝，讲“党天下”变成“习天下”吃独食的本质问题。当下中共党内习家与外人之间已不是利益之争，而是生死之战！后续双方的厮杀必将更加血雨腥风、天昏地暗，以共灭共到了天时、地利、人和的关键节点！
+参考链接：
+1）[https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458](https://www.ft.com/content/22d89af2-c3e2-479b-8baf-5e079ff73458)
+2）[Huawei revenues fall 30% in 2021 but company sounds optimistic note](https://californianewstimes.com/huawei-revenues-fall-30-in-2021-but-company-sounds-optimistic-note/640017/)
 
-参考来源：[https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-
-编辑/校对/发稿：Hetangyuese
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
