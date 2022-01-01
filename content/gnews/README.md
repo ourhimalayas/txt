@@ -15,101 +15,101 @@
 
 ---
 
-### [文贵直播：美“国防支出法案”预示美国与中共正式为敌](/content/gnews/1/README.md)
- ` GTV News Talk`
-
-### [三票专栏：别了，中共](/content/gnews/2/README.md)
- ` 三票先生`
-
-### [Omicron激增，美国在短短两天内突破100万个新COVID病例](/content/gnews/3/README.md)
+### [放射科医生报告，Covid-19 疫苗接种以后，腺病增加了 360倍](/content/gnews/1/README.md)
  ` 纽约香草山MOS02`
 
-### [市面上流通的枪支简介](/content/gnews/4/README.md)
+### [文贵直播：美“国防支出法案”预示美国与中共正式为敌](/content/gnews/2/README.md)
+ ` GTV News Talk`
+
+### [三票专栏：别了，中共](/content/gnews/3/README.md)
+ ` 三票先生`
+
+### [Omicron激增，美国在短短两天内突破100万个新COVID病例](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [市面上流通的枪支简介](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [GTV新闻访谈简报|2021年12月31日晚](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2021年12月31日晚](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [【#G时新闻】全球首例：英国团体就疫苗接种为反人类罪向海牙国际法庭提起诉讼！](/content/gnews/6/README.md)
+### [【#G时新闻】全球首例：英国团体就疫苗接种为反人类罪向海牙国际法庭提起诉讼！](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [文·贵天成——文贵先生谈“G-Club”（十二）](/content/gnews/7/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（十二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共疫情封锁 严酷政策不顾民生](/content/gnews/8/README.md)
+### [有声|中共疫情封锁 严酷政策不顾民生](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [因不遵守有关洗钱和恐怖活动的金融规定，加拿大金融交易与报告分析中心（FINTRAC）对中共国银行进行罚款](/content/gnews/9/README.md)
+### [因不遵守有关洗钱和恐怖活动的金融规定，加拿大金融交易与报告分析中心（FINTRAC）对中共国银行进行罚款](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|中共持续迫害藏人](/content/gnews/10/README.md)
+### [有声|中共持续迫害藏人](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/11/README.md)
+### [有声|日本政府将推法补助企业禁止军事机密申请专利](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [2021社交媒体万马齐喑，言论自由唯有盖特高歌一曲](/content/gnews/12/README.md)
+### [2021社交媒体万马齐喑，言论自由唯有盖特高歌一曲](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/13/README.md)
+### [有声|郭先生在圣诞特别节目“爆二代”希望与力量大直播中的忠告](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“G-Club”（十一）](/content/gnews/14/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（十一）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球超过2.87亿人感染中共病毒，超过543万人死亡](/content/gnews/15/README.md)
+### [全球超过2.87亿人感染中共病毒，超过543万人死亡](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美军在日本横须贺基地已有75人感染中共病毒](/content/gnews/16/README.md)
+### [美军在日本横须贺基地已有75人感染中共病毒](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新研究发现 Omicron 变体可防止 delta毒株](/content/gnews/17/README.md)
+### [新研究发现 Omicron 变体可防止 delta毒株](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|英前外相华裔妻做节目为中共宣传洗白](/content/gnews/18/README.md)
+### [有声|英前外相华裔妻做节目为中共宣传洗白](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|西安疫苗灾难是中共造成的人祸](/content/gnews/19/README.md)
+### [有声|西安疫苗灾难是中共造成的人祸](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|中共向普林斯顿大学迂回资助数百万美元](/content/gnews/20/README.md)
+### [有声|中共向普林斯顿大学迂回资助数百万美元](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2021年12月29日晚](/content/gnews/21/README.md)
+### [有声|GTV新闻访谈简报|2021年12月29日晚](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中共官方“承诺”为封城的西安居民提供食品](/content/gnews/22/README.md)
+### [中共官方“承诺”为封城的西安居民提供食品](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [有声|班农先生：我永远不会退缩](/content/gnews/23/README.md)
+### [有声|班农先生：我永远不会退缩](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [CDC警告截至圣诞节每周将有一万五美国人死亡；正如独立医生一直告诫：疫苗导致的死亡正在加剧](/content/gnews/24/README.md)
+### [CDC警告截至圣诞节每周将有一万五美国人死亡；正如独立医生一直告诫：疫苗导致的死亡正在加剧](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [中共冻结并延长电子游戏审查 但已导致14万家公司倒闭](/content/gnews/25/README.md)
+### [中共冻结并延长电子游戏审查 但已导致14万家公司倒闭](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [辉瑞与支付宝合作 利用“健康码” 监控中国民众](/content/gnews/26/README.md)
+### [辉瑞与支付宝合作 利用“健康码” 监控中国民众](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/27/README.md)
+### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/28/README.md)
+### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [安省重达4万公斤的黄油不知去向 总价值20万元](/content/gnews/29/README.md)
+### [安省重达4万公斤的黄油不知去向 总价值20万元](/content/gnews/30/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“李友”（二）](/content/gnews/30/README.md)
+### [文·贵天成——文贵先生谈“李友”（二）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/31/README.md)
+### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [辉瑞公司与中共国透过支付宝深度合作](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
