@@ -2,68 +2,45 @@
 ---
 
 
-## 全球疫情更新（南非入院率大降，澳洲则反而增加）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810543/)
+## 因发表疫苗真相，mRNA疫苗技术发明人推特账号被永久封禁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1810602/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2021年 12月31日）
+![](https://www.thegatewaypundit.com/wp-content/uploads/malone-913x479.jpg)*右：mRNA疫苗的发明者马龙博士*
+来自《网关专家》网站2021年12月29日的报道，大科技公司的清洗行动升级。
+周三，“觉醒的真相仲裁者们”在推特将信使核糖核酸(mRNA)疫苗技术的发明者罗伯特·马龙(Robert Malone)博士的推特账号从他们的平台封号。
+这位国际知名的医生和科学家仅在推特上就积累了50多万的粉丝，这是证明中共病毒疫苗对预防中共病毒传播无效的最可靠证据来源之一。他还多次对疫苗危险的副作用和疫苗相关死亡率的上升提出警告。
+因为在推特上发表了关于mRNA疫苗的言论，mRNA疫苗的发明者马龙博士被推特封号。推特将矛头对准他只是时间的问题——无论他和他所分享的信息多么可信。
+在被封号的几个小时前，他分享了“加拿大新冠护理联盟”( Canadian Covid Care Alliance)对辉瑞公司临床疫苗数据的评审结果，“加拿大新冠护理联盟”是一个提供“独立的、基于科学的证据”的医学专家组织。
+根据专家小组的评审，该疫苗制造商自己的实验表明，在注射疫苗6个月后，实验性的中共病毒疫苗实际上“弊大于利”。
+同样值得注意的是，推特封号这位mRNA疫苗发明者恰恰发生在他将出现在乔·罗根(Joe Rogan)极受欢迎的播客节目《乔·罗根体验》中的前一天。一旦马龙博士的信息被传递到收听罗根节目的大量（更主流的）听众那里，大科技公司必将遭受一场无法避免的风暴，因此并不奇怪大科技公司为了脱身而给马龙博士封号。
+看看几周前，另一位直言不讳、世界著名的医生彼得·麦卡洛(Peter McCullough)在乔·罗根节目上公开反对疫苗时发生了什么。
+马龙博士将于12月30日与罗根一起录制他的那一集，预计将在下周的某个时候播出，敬请关注！
+在推特的言论审查之后，马龙博士立即通过他的Substack提供了一份更新的消息，指出他推特账号被封号是永久性的，并提供了他的替代链接，以便人们能够关注他的内容。
+来自他的帖子：
+“我们都知道它最终会发生。
+今天它发生了。眨眼间，50多万粉丝消失了。可以这么说，这意味着我一定已经成功了。超过目标。这也意味着，在我们阻止这些疫苗被强制用于儿童和阻止我们政府以及医疗工业综合体和制药业腐败的斗争中，我们失去了一个关键的战场。
+因此，请传播这个消息——在你自己的推特账号上或在任何你希望的社交媒体上分享这个消息。”
+因为推特公司新的激进、反自由言论的领导人帕拉格·阿格拉瓦尔(Parag Agrawal)加强了对未经批准的言论的打击，马龙博士成为最新一个在最近几周被审查的异议人士。
 
-**一，全球疫情基本数据**
-感染总数：2.86372619亿（日新增116.9063万，14天增幅+86%）
-死亡总数：542.6856万（日新增 5,967人，14天增幅–15%）
-每万人感染人数：439.6040人（除中国外）
+**简评**：mRNA疫苗的发明人站出来指出中共病毒疫苗的无效性和危险性，这是在科学层面上对疫苗的功效做出的分析。辉瑞公司作为全球最具影响力的制药企业之一，如果真的对自己的产品有信心，为什么不主动公布自己的实验数据，用“事实”来让反对者噤声，反倒打压传播真实数据的科学家呢？因为他们知道，他们的实验数据无法面对公众的质疑，所以他们只能联合黑暗力量掌控的所谓主流社交媒体通过删帖、封号来阻止人们对毒疫苗真相的传播。
+但是，随着毒疫苗副作用不断显现，随着更多的医疗专业人士和科学家站出来发声，随着我们爆料革命GNEWS,GETTR,GTV等社交媒体平台对病毒和疫苗真相的持续揭露和曝光，越来越多的人意识到了毒疫苗的危害。而像推特、脸书等主流媒体对真相的打击行为，只能让他们以更快的速度失去市场，最终被公众唾弃。
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：88.1亿
-完全“接种”：37.7亿人
-完全“接种”百分比：48.3%
+新闻链接:[https://www.thegatewaypundit.com/2021/12/ready-just-twitter-permanently-suspends-mrna-inventor-dr-robert-malone-tweeting-evidence-showing-vaccines-cause-illness-prevent-just-one-day-set-app/](https://www.thegatewaypundit.com/2021/12/ready-just-twitter-permanently-suspends-mrna-inventor-dr-robert-malone-tweeting-evidence-showing-vaccines-cause-illness-prevent-just-one-day-set-app/)
 
-**三，澳洲疫情和“疫苗”数据**
+翻译/简评: kkoto(芬兰大灰狼)
 
-感染总数：395,568（今日新增 32,946人）
-死亡总数：2239人
-每万人感染人数：140.1113人
-“疫苗”毒针注射总数：42,598,706  （今日新增160,279针）
-第二针“接种”：1884.5485万人
-第二针“接种”百分比：76.7%
-16岁以上人口接种至少一剂疫苗的比例：94.4%
-16岁以上人口接种至少两剂疫苗的比例：91.4%
+PR: Harvey（叶知秋）
 
-**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.png)
-今日澳大利亚病例新增再创新高，跨越三万大关。最近南非的最新消息显示，南非已经度过了奥米克戎毒株浪潮的疫情高峰，住院人数和死亡率并没有激增，相反死亡人数下降了80%，重症监护室入院人数减少了75%，住院时间缩短了50%。然而我们看一下澳洲的住院和重症监护病例数字曲线：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3.png)图片来源：Our World in Data
-澳大利亚的中共病毒感染住院人数曲线（深蓝色部分为重症监护室病人数字）
+* * *
 
-如上图所示，澳洲的住院率却伴随着疫情飙升也在上升，考虑到病毒感染的病程，重症监护的数字迟滞2-3周也是正常的 ，虽然目前看来重症的曲线上升还不明显，这还不足以证明疫情飙升对ICU的压力不大。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-那么澳洲和南非有什么不同之处导致如此的差异呢？
 
-第一个最重大的区别是疫苗接种率，南非的中共病毒疫苗毒针的接种率仅仅26.6%（“完全接种”），澳洲则高达76.9%。我们之前疫情更新也提到，丹麦研究显示，疫苗接种90天后对奥米克戎的免疫力可以下降7成之多，疫苗对人体免疫力的损害是有迹可循的。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4.png)
-对该图表的详细解释请参阅此处。疫苗接种率应该是造成澳大利亚与南非入院率差别的最重要原因。
+编辑：【英国伦敦喜庄园编辑部】
 
-另一个区别是伊维菌素和羟氯喹的应用。虽然疫情之后，南非同样对这两个药增加了严苛的限制，可是这两个药在非洲大陆已经有悠久的安全应用历史，前者曾经可以广泛地有护士等初级卫生人员直接开处方治疗寄生虫病，后者更是因为疟疾流行而在非洲多国长期属于非处方药，南非民众身处非洲大陆获得这些药物远比身处岛国的澳洲民众容易得多，病人因此更有机会获得早期治疗，尤其是羟氯喹这样半衰期超过30天的药物，更容易因其它治疗目的，比如预防治疗疟疾而服用，因此大幅度降低入院率和重症比例。反观澳洲民众，一旦感染，只能在家硬抗。连就泽连科医生推荐的用非处方药治疗中共病毒的方案，绝大多数澳洲人根本闻所未闻。病人基本上只是被告知多喝水加上使用解热镇痛药，根本不知道需要补充维生素和锌。
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
