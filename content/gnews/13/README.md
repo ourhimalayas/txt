@@ -2,36 +2,53 @@
 ---
 
 
-## 德国外长及内务部长将不参加中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812695/)
+## 法国网球明星贝努瓦·派尔 (Benoit Paire) 在“第 250 次”检测出 Covid-19 呈阳性后大发雷霆
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1812960/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2021年12月30日，据媒体消息显示，德国外长贝尔伯克对媒体宣布，他本人确定将不参加中共2022北京冬奥会。贝尔伯克还透露，欧盟正在讨论是否应该集体加入抵制中共冬奥会的队伍。
+作者：马修沙利文
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpeg)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/816691_640x360_large_20211229125442.jpg)图片来源：网络
+法国网球选手贝努瓦·派尔 (Benoit Paire) 透露，在下个月的澳大利亚网球公开赛之前，他的 Covid-19 检测呈阳性。
 
-贝尔伯克也呼吁欧盟国家共同商讨出一个抵制中共冬奥会的态度，并希望可以比美国总统拜登的态度更坚定。另外，贝尔伯克还一再表示，欧盟应该出台一项政策，禁止进口新疆地区通过强制劳动所获得的产品。
+世界排名第 46 位的选手原定于 1 月 4 日开始在墨尔本参加一场预选赛，但这些计划已被打乱。
 
-与此同时，德国内务部长兼体育部长南希·弗雷泽也宣布，由于个人原因，他决定不出席北京冬奥会。据了解，按照惯例，德国通常会派遣内务部部长代替总统出席冬奥会，但德国政府发言人表示，德国新任总理朔尔茨尚未决定是否将出席北京冬奥会。此前，德国政府新闻发言人还首次在例行记者会上表示，“到目前为止，朔尔茨总理暂无出席北京冬奥会的计划”。
+在检测出 Covid 呈阳性后，Paire 似乎正在一个未知的地方隔离，他显然对这种折磨感到厌烦。
 
-参考链接：[德国外长、内政部长宣布因个人决定不出席北京冬奥会](http://chinese.joins.com/news/articleViewAmp.html?idxno=104472)
+“嘿，我的名字是 Benoit Paire，这是我第 250 次检测出 Covid 呈阳性！！” 他在周三发布的 Instagram 新闻报道中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+“老实说，我再也受不了这个 Covid s\*\*\*了。 我怎么样呢？ 由于 Covid 我流鼻涕，但因为在国际旅途的酒店房间里进行了所有这些隔离，我的精神状态不佳”。
 
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+“去年很艰难，今年开始完全一样！！”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这位 32 岁的年轻人接种了疫苗，并澄清说他“100%”支持疫苗。
 
+“只有一件事，我 100% 支持疫苗，但让我们像 Covid 之前一样生活，否则我不明白有何意义”，他补充道。
 
+澳大利亚网球公开赛将于 1 月 22 日开始，留给 Paire 有几周的时间进行阴性测试并评估他是否适合参加比赛。
+
+他最近的阳性测试继续为这位炫耀的球员带来厄运，他曾多次在大满贯赛事中闯入第四轮。
+
+Paire 在第一场比赛前几天对 Covid 检测呈阳性后，被排除在 2020 年美国公开赛之外。
+
+今年早些时候，他在飞往墨尔本的航班上的一个人对 Covid 呈阳性反应后，被迫在澳网前接受了 14 天的严格隔离。
+
+佩尔随后首轮失利，在澳网发起了惊人的进攻，称赛事“s\*\*t”，并抨击主办方不尊重球员。
+
+由于多次出现在场上的轻罪，包括随地吐痰和公然破坏比赛，他被禁止代表法国参加东京奥运会。
+
+澳大利亚公开赛可能没有几个大牌球员，因为许多顶级球员都在与新冠病毒或伤病作斗争。
+
+拉斐尔·纳达尔和俄罗斯的安德烈·鲁布列夫在过去一周的新冠病毒检测呈阳性，而罗杰·费德勒和斯坦·瓦林卡将因伤缺席澳网。
+
+来源链接：
+
+[https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058](https://www.foxsports.com.au/tennis/australian-open/french-tennis-star-benoit-paire-rages-after-testing-positive-to-covid19-for-250th-time/news-story/49f563babac5ac4f917ec4d5ee0b6058)
+
+编辑/发布：LILY
+
+20220101
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,20 @@
 ---
 
 
-## 美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812081/)
+## 中共国水资源短缺威胁到全亚洲
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812082/)
 
-作者：纽约香草山文艺部 – 宁文静
-
+作者：银河勇气星 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+12月30日外媒刊文称，中共国前些年经济的崛起，依靠水，可耕地，以及廉价劳动力等，使中共在全球贸易体系中，一跃成为世界工厂。然而近年来，中共政府炸毁了巨量资源，且由于土地退化，加上过度使用，使可耕地面积锐减，水资源状况尤其严峻。数千条河流消失，剩下的水被工业化污染，80%～90%的地下水和50%的河水无法饮用；50%以上的地下水和25%的河水无法用于工农业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7.jpg)
+水资源短缺导致中共经济增速放缓，人口下降，地缘政治冲突与日俱增，中共都是通过威胁贫困邻国来解决。如建造湄公河水坝导致当地反复的干旱和洪灾，新疆地区河流分流直接给中亚下游地区带来毁灭性影响。
 
-12月28日，美橄榄球超级明星亚伦·罗杰斯称，美国国家橄榄球联盟NFL正秘密使用伊维菌素，和羟氯喹等FDA禁用药物治疗新冠病毒。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-1-scaled.jpg)
-
-罗杰斯在接受帕特·麦卡菲的节目采访时说，他确定许多球队正在为球员推荐这些药物来治疗。上个月，罗杰斯确诊后备受关注，但他很快就神奇地康复了。除了服用伊维菌素和羟氯喹，罗杰斯还接受了单克隆抗体、锌、维生素C和D的综合治疗。
-
-这位未来的名人堂成员说，伊维菌素被媒体机构嘲笑为 “马用驱虫剂”，但它在48小时内就完全见效，这是不争的事实。罗杰斯用自己的亲身经历呼吁，在新冠病毒治疗与疫苗问题上，我们不能失去尊重不同意见的能力，对待科学，既要尊重，也容许质疑。
+郭先生在直播中谈过，喜马拉雅山是亚洲最重要的水源地，86%-90%的河流自此发源。中共控制西藏并犯下反人类罪，背后是要掌控全亚洲水资源的野心。美参众两院此前提出的《西藏独立法案》给了中共致命一击，而爆料革命的情报发挥了重大作用。
 
 参考链接：
 
-- [Aaron Rodgers bombshell: NFL secretly administering derided COVID drugs](https://www.wnd.com/2021/12/aaron-rodgers-bombshell-nfl-secretly-administering-derided-covid-drugs/)
+- [China is running out of water and that’s scary for Asia](https://www.tbsnews.net/analysis/china-running-out-water-and-thats-scary-asia-350938?amp)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)

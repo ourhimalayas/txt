@@ -2,26 +2,32 @@
 ---
 
 
-## 刘亚洲被抓将中共内斗推向新的高潮
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812283/)
+## 麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812307/)
 
-撰稿：纽约香草山信息部 – 6zero4
+撰稿：纽约香草山翻译部 -defiance
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-根据郭文贵先生12月29日大直播，中共元老李先念女婿、空军上将刘亚洲前不久被抓事件在党内持续发酵，刘四十几个亲人同时被抓，空军老部下被抓400多人，涉及军方老上级、现任军委副主席许其亮。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-42.png)
-曾经鼎力助习消除军方异己的军委副主席徐才厚、郭伯雄、刘亚洲等人，本想图个好职位最后却遭倒戈相向，因此转为跟随曾庆红和王岐山。习将同党内有见解、有才华的高层人士，视为对自己帝位的威胁，而不断进行根除。一窥中共卸磨杀驴、用完即弃的邪恶本质。
+据美国媒体12月30日报道，辉瑞公司出资雇用了参议院共和党领袖米奇·麦康纳尔的前政策主任哈森·马歇尔的游说公司，试图阻止与大药厂相关的2021年虚假索赔修正案的通过。该法案的现行条款对保护公众免受如辉瑞公司等的欺诈行为几乎无效，修正案欲寻求通过将举证责任转移给大公司等措施对举报者进行保护，将更容易追责公司的欺诈行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-43.png)
+据悉，辉瑞公司与游说公司的游说合同中包括反对举报人保护，以及维护辉瑞公司的中共病毒疫苗专利等内容。
 
-据郭先生爆料，刘亚洲被抓前见了至少100人，倒数第二人是“太子党”大哥曾庆红，最后一人是“女婿帮”老大王岐山，这两人都对刘亚洲事件毫不回避、誓死相保，说党内有绝对不抓创始人及其家人的规矩。自己的左膀右臂董宏、陈峰等被抓都不出面的王岐山力保刘亚洲的事情非同小可。
+目前，辉瑞公司有80多名说客在册，2021年这方面的支出超过700万美元。马歇尔的公司收到了其中的10万美元。
 
-这场闹剧本质上是中共内斗白热化的升级版，是习全速开历史倒车，搞毛贼东清除党内异己的那一套。现在反习派都认识到了，习为了安心做皇帝，致力消灭除习家以外的任何势力。当下中共党内，习家与外人之间已不是利益之争，而是生死之战，以共灭共到了天时、地利、人和的关键节点！
+新闻链接：
 
 
 
-总编/编辑：童谣
+> [EXCLUSIVE: Top Mitch McConnell Staffer Leads Pfizer’s Lobbying Charge to Protect Vaccine Patent and Block Bill Holding Big Pharma Accountable for Fraud.](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
 
-新闻连接：[2021年12月29日 文贵大直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+
+
+[https://gettr.com/post/pl5qcuf6f1](https://gettr.com/post/pl5qcuf6f1)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编：童谣
+
+编辑：飞虹
 
 校正/发稿：浪迹天涯
 
