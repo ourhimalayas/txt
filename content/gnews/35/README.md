@@ -2,40 +2,24 @@
 ---
 
 
-## 荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1810684/)
+## 中共利用舆情监控软件在世界搜集相关目标信息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1810728/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Netherlands-quarantine.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1.jpg)图片来源：重庆数锋科技
+12月31日，《国会山报》引述《华盛顿邮报》周五的报道，指中共国正利用内部互联网监控网络的一部分来挖掘西方国家社交媒体的数据，向中共政府人员提供有关外国目标的信息。
 
+《华盛顿邮报》查阅核实了几百份中共国的招标文件、合同和公司文件，发现中共国的舆情分析软件（用于检测网络上的政治敏感信息）也被用来在诸如推特（Twitter）、脸书（Facebook）上搜集信息。
 
- 
-图片来源：www.viralnigeria.com.ng
+中共国不仅利用已有的软件来搜集数据，而且还投资（开发）更为复杂的程序以实现其（政治）野心。根据报道，有一项价值32万美元的由中共国有媒体控制的软件程序，正在通过推特和脸书进行数据挖掘，以建立一个针对外国媒体记者和学者的数据库。而根据其他报道说，这个名为“外籍人员分析平台”的项目旨在挖掘推特、脸书和油管（YouTube）等社交媒体平台，以获取“西方知名媒体记者”以及“政界、商界和媒体界关键人员”的数据。
 
+之前，有关报道还揭示了中共国开发了其他程序来监测和观察香港和新疆的有关外国言论，而这两个地方正是中共侵犯人权严重的地区。根据《华盛顿邮报》的报道，这些（网络）舆情监测行动自2020年初以来一直在进行中。
 
-#### 编译：小红帽
+**新闻来源**
 
-根据RT12月31日报道，**在Omicron病例激增之后，荷兰将美国指定为 “非常高风险”的国家，从美国抵达的、完全接种新冠疫苗的旅客，现在必须在荷兰接受10天的隔离检疫。**
-
-周四，美国与阿富汗、海地、约旦、索马里、乌克兰、英国和委内瑞拉等国一起被列入黑名单。对美国旅客的强制检疫措施也在同一天推出。
-
-根据上周实施的限制，那些来自非常高风险国家的人“必须自我隔离10天，即使他们有新冠疫苗接种证明或康复证明”。
-
-如果旅行者在隔离过程中检测出新冠病毒呈阴性，则可以缩短自我隔离期时间。12岁及以上的旅客在进入荷兰时还必须提供新冠病毒检测阴性的证明。
-
-新的限制措施意义重大，因为该措施同样适用于已接种新冠疫苗和未接种新冠疫苗的旅行者。一些研究表明，某些新冠疫苗对Omicron的效果比对以前的毒株更差。
-
-新闻来源：[Netherlands forces vaxxed & unvaxxed Americans to quarantine — RT World News](https://www.rt.com/news/544865-netherlands-vaxxed-americans-quarantine/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
 
  
 

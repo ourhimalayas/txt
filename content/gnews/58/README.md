@@ -2,20 +2,12 @@
 ---
 
 
-## 班农先生的一则盖文
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1793298/)
+## 谷歌资助生态健康联盟进行与制造大流行病相关的研究
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1805028/)
 
-#### 翻译：skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-335.jpg)
-Miles Guo很聪明，他拍下了整个采访过程，并把它放到网上，揭露Vice/HBO的谎言和不实报道。这些谎言已在我们的意料中，这些美国媒体公司对北京一丛罪犯们卑躬屈膝，叩首称臣。Miles Guo毫不留情地揭露了武汉生物武器实验室、罪犯福奇的谎言、中共精英们活摘器官的罪行和对（希特勒）柏林/种族灭绝运动会的拙劣模仿。
+娜塔莉·温特斯：谷歌2018年资助彼得·达扎克（打杂客）的“生态健康联盟”做研究，涉及制造大流行病。战斗室，节礼日特辑，2021年12月27日。
 
-Vice/HBO是北京犯罪政权的走狗，为了老百姓、美国人民和全人类的利益，这个政权需要被摧毁。
-
-感谢上天，我们有Miles Guo ！
-
-[来源](https://gettr.com/post/pkonj1d4f8)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

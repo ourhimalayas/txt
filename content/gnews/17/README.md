@@ -2,21 +2,78 @@
 ---
 
 
-## 宣布外交抵制北京冬奥会后的东京感染人数持续增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811320/)
+## 【战友心声】2022新年祝福
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1811324/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-1.png)（图片源自本文链接）
-每日新闻1月1日消息：元旦当天, 东京都政府宣布，东京新增感者79人,比上周同日（38人）增加41人。目前还没有新的死亡病例得到证实。其中,重症感染者1名。
+作者：纽约香草山福音部 — melisa
 
-众所周知,12月24日，日本政府宣布不派部长级官员参加北京冬奥会。此前，东京日感染人数已下降到个位数。24日后，感染者人数持续攀升，其中原因有待究明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-22.jpg)
 
-信息来源：[東京で新たに79人感染 先週より41人増 新型コロナ (msn.com)](https://www.msn.com/ja-jp/news/coronavirus/%E6%9D%B1%E4%BA%AC%E3%81%A7%E6%96%B0%E3%81%9F%E3%81%AB79%E4%BA%BA%E6%84%9F%E6%9F%93-%E5%85%88%E9%80%B1%E3%82%88%E3%82%8A41%E4%BA%BA%E5%A2%97-%E6%96%B0%E5%9E%8B%E3%82%B3%E3%83%AD%E3%83%8A/ar-AASkv1C?ocid=msedgntp)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3df642a0-f954-45e5-8028-34847d2bcf5f.jpg)
+
+战友们带着满满的喜币迎来了2022年的新年钟声。
+
+我要献上给战友们的新年祝福！
+
+过去几年七哥带着战友们腾飞。
+
+Gtv媒体平台是我们战友的灭共舞台。
+
+喜币隆重上市战友们成了财富的主人。
+
+贵族的生活正在向我们招手。
+
+Gfashion时尚的潮流是我们新中国联邦人的形象。
+
+Gettr是所有人自由发声的平台。
+
+Gclub俱乐部是给战友们享受的盛宴。
+
+2022年必将是新中国联邦战友们灭共的大好时机。
+
+中共的经济崩溃,内部激裂决斗。
+
+习恶魔和王太監同时走向灭亡之路。
+
+国际黑暗势力也将成为阶下囚。
+
+中共给世界带来的黑暗即将过去。
+
+胜利的曙光就在我们眼前。
+
+世界将回归自然生活新时代。
+
+战友们，在这新年欢乐之夜，让我们尽情地欢呼跳跃！
+
+让我们举起红酒杯，迎接2022新年的到来！
+
+2022年1月1日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
