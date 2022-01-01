@@ -2,61 +2,53 @@
 ---
 
 
-## 辉瑞与中共国疫苗护照合作
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1811649/)
+## Illustration 3:The CCP may release the most toxic and poisonous.
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1811736/)
 
-编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1BBB1D41-95E8-44EC-BC7F-75F5777EBC7B.png)![](https://lh5.googleusercontent.com/-LSXlfcNt6_5RI3nTAb8GRmCZn3UKe394L3Nlhr9ZNP-VPx5qrPepwZ3tzx5fso8ap64fvot3JOBI6BjLroRqGVIqLptEKK0yf02OedVeVSkwxiaVfVzSlyO11U_IlUQeDDIWKBw)
+No.1 The scientist showed them that there are thousands of different kinds of coronaviruses, coronaviruses in addition to what is called a bacterium, what is called a microbial virus, that is, in the grass grows out of the small worm, from this worm mutates into a kind of poison, very terrible. …… And he seriously warned the United States if another outbreak, absolutely not 500,000 or a million, 1/3 people of the United States are in danger of life, this is not a joke, this is not a joke. Miles Guo May 30, 2021
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-27.png)图片来源: warroom.org
+这位科学家向他们展示了中共有上千种的配好的各种冠状病毒，冠状病毒之外还有一个叫什么菌，叫什么微菌病毒，就是在草里边儿长出来小虫，从这个虫子身上又变异成的一种毒，非常之可怕。……而且他严重警告美国如果再次爆发，绝对不是死五十万、一百万，美国可能1/3的人都有生命的危险，这不是开玩笑的，这不是开玩笑的。Miles Guo 2021年5月30日
+![](https://lh6.googleusercontent.com/IXAkTe2fKEpgjYJRdNRLuPzQdaFCyhut1gLpV68VVBWaBmtz3E3tS-cGIPU2ZGu_jhKh_yQ3UzU1waf4re5viKVmiRlI-OZyJZZ9gzjJ1MUp8xo_hvW7JmJAgTlKT7G6JVuHR-5T)
+When the Chinese Communist Party is nearing its end, it will unleash a highly toxic “heat poison” on the world with no incubation period and a high lethality rate.
 
-《国家脉动》的娜塔莉·温特斯（Natalie Winters）爆出了关于医药巨头辉瑞与中国共产党政权合作的重大新闻。
+中共在快完蛋的时候，将在全世界释放毒性强的七窍流血的“热毒”，无潜伏期，高致死率。Miles Guo 2021年9月23日![](https://lh5.googleusercontent.com/KqsYFaJwy5NNsYxYRadp5AW-5vyxkcPt3YAlCNuyM4FsoZSVWPhBQmtcsKdpM-T3TyTDLcd1Fqm_8Ep7EKrzEPD2TGx00kXN9h9sZGrvL_dTtmhb6U3EzWV085tJqNtw10YBORdL)
 
-“我们今天发表的故事，甚至让我大吃一惊……在所谓的 Covid-19 爆发前一年，辉瑞实际上与支付宝合作，支付宝是阿里巴巴的一个分支，阿里巴巴是一家中共关联的科技公司……它因与中国军队的关系非常令人关注和非常密切而被美国国务院罚款。这家公司实际上被北京武器化了，不仅用于疫苗护照，而且在“社会信用评分”方面也与国家机器密切相关。在 Covid-19 开始前一年左右，辉瑞与该公司合作真是太奇怪了。”
+No.2 Our whistle-blower scientist in Europe said to me the first two days, he said when it re-releases, if the Communist Party is crazy to re-release, it is not this, re-release out of the poison is called heat poison, remember my words today, it is called heat poison. What do you mean by “hot poison”? After you have the poison, immediately bleed from all the seven openings of one’s head, is the type of severe poison, there is no reaction period, no reaction period! Miles Guo September 23, 2021
 
-辉瑞公司与中共支付平台合作，自 COVID-19 爆发以来，该平台一直用于在中国实施“疫苗护照”。该公司表示**“**很自豪能与中共国领导人站在一起”。
+我们的欧洲的科学家头两天跟我说，他说再放，如果说共产党疯狂再放，他说就不是这个了，再放出来的毒叫热毒，记住我今天的话，叫热毒。什么叫热毒啊？就是你放完了(毒)，立马就七窍出血结束，就是剧毒型的，没有什么反应期，没有反应期！记住我说的话啊，再有毒的时候就是七窍流血，而且几乎是死亡率奇高。Miles Guo 2021年9月23日
+![](https://lh5.googleusercontent.com/bMxdQ-O5eRkbCdvX-HONj-lxFFf82S1wnrpIwquzsqWNXRXo0ekZlxvRwnGbVDC2wksQWiGpAGhxMVGISkMVV5CvxZc1BT0Rnor9NxfCmjH2qX6y51n0lsQciJC7Q0AcBVseYMSS)
+No.3 When the communist coronavirus has been released, there is no longer anyone can stop the problem of who dares to use biochemical weapons, and who uses them when it is a complication of the coronavirus. And all found an excuse and a platform, which is the most dangerous. All the deaths he considered normal, and human on from the past did not think that biochemical virus will be used, saw millions of people die around the world, hundreds of millions of people are infected when you have gotten used to the death, who then put the virus that is all right.Miles GuoSeptember 23, 2021
 
-这家制药巨头——[其在美国的游说努力在过去一年创下历史新高](https://thenationalpulse.com/2021/10/06/pfizer-and-moderna-increase-lobbying-efforts/)——在 2018 年 6 月 6日的以下推文中，表达了其对残酷的共产主义政权的自豪：
+当共产党的冠状病毒放出去以后，已经没有任何人可以停止，谁敢不敢使用生化武器的问题了，而且谁使用生化武器的时候，这是冠状病毒的并发症。而且都找到借口和平台了，这是最危险的。所有的死亡他都认为是正常的，而且人类上从过去不认为生化病毒会被使用，看到了几百万人死亡在全世界，几亿人被感染的时候，你已经习惯了死亡的时候，谁再放病毒那都没事儿了。Miles Guo2021年9月23日
+![](https://lh5.googleusercontent.com/8U5CH-ru6lMMmUeyaxTUw-JyjgEls2ZI9DX9DHALWTQQRd49haQW7PhcSMH9dQFNWBA0RDGSviwy942afVhdr099uT0_24Nb6zK0vhTpEzalECrGorghhZcz8OsH3bDMFlyv2Ssk)
+No.4 About two weeks ago, I heard that the two people who created the virus for this project said something amazing: from now on, we can decide the fate of the Earth. How scary do you think that is, brothers and sisters, who want to decide the fate of the earth. You let us decide the fate of the earth, we will never do anything bad, we won’t even kill a chick. You let the communists, you let the forces of evil decide the fate of the earth, then the earth will be decided at any time. Miles Guo September 23, 2021
 
-推文内容：
+大概两周前，我听说这个项目两个制造病毒的人说出了惊人之话，说：从现在起，我们可以决定地球的命运了。你想这有多可怕，兄弟姐妹们，谁都想决定地球的命运。你让咱们决定地球的命运，咱们永远不会干坏事儿，杀个鸡都不舍得。你让共产党，你让邪恶的力量决定地球的命运，那地球随时都会被决定了。Miles Guo 2021年9月23日
+![](https://lh6.googleusercontent.com/uPbHF6tMB8fV0F3Bwq-hSNxvphHinoZhd0J7e473aGlZMs_69GRpb0nKNwDw-RbxtI_U5wwwaH0ytIjkBuVbRz0KIua3XZIKGKENAQA95CqcSMW1JLYHALhTvkFp_GdhAvUVDC9E)
+No.5 Many people ask exactly what is the purpose of its poisoning? Who is the Communist Party colluding with? The Communist Party and all the people it colluded with, its pursuit is two points, first, to reduce the world’s human population by a large amount, a large amount, and then to achieve a so-called globalism. Secondly, control your genes, your thinking and your old age, sickness and death to need to be eliminated. miles Guo November 26, 2021
 
-“我们很自豪能与中共国领导者和阿里巴巴支付宝站在一起，推出新的数字化解决方案，以改善疾病教育和疫苗获取——为中国儿童创造更美好的未来。”
+很多人说到底它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。第二，控制你的基因、思维和你的老弱病死，以需淘汰。Miles Guo 2021年11月26日
+![](https://lh3.googleusercontent.com/mbMPNk7fSyZxLYEIaIvfvlScwXWC_Gy5VHdhrW1yEae4O_TCIgplmKB3_dipY3LNYf6mY7Vg8JTTtjmXjFfeq-8CfqW8pWnvds16ZKj7S5ua4vM5gdz-iCUt2WvYBE2fqvDjgRTj)
+No.6 In recent days people in the party have advised Xi to take this opportunity to take out the U.S. The U.S. has a death wish for our Chinese Communist Party and he must be taken out. This is the latest information that I broke. I heard that the NSC has set up a special coronavirus control group, not to mention Omicron. he is not controlling the non-contagious, but where to contagious, and who to contagious. The new virus is much more advanced than the one leaked in Wuhan. Scientists say the communists may be about to release the most toxic and poisonous virus. Miles Guo December 24, 2021
 
-“我们很荣幸成为中国“互联网+疫苗”倡议的合作伙伴。
+最近几天党内的人劝习太阳借这个机会干掉美国，美国亡我中共之心不死，必须要干掉他。这是我爆的最新的消息。听说国安委成立了特别冠状新型病毒控制小组，没说Omicron。他不是控制不传染，而是往哪传染，让谁传染。新病毒比武汉泄露的病毒要高级的多。科学家说，共产党可能要放最毒最毒的毒了。Miles Guo2021年12月24日
 
-通过移动设备， 让公众更深入地了解疾病意识，疾病预防，并改善整体健康”。
+资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-29.png)图片来源: warroom.org
+### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
 
-该消息还透露了该公司与支付宝的合作关系，支付宝是一家中国在线支付平台，最初是中国共产党关联公司阿里巴巴的一个分支。
-
-助理国务卿表示，阿里巴巴还参与了“为中国人民解放军（PLA）研发、生产和维修武器装备”，并与中共“国家安全官僚机构”有着“深厚的合作与协作记录”。 美国国务院克里斯托弗·福特（Christopher Ford）负责国际安全和不扩散事务。
-
-国务院还将该公司标记为中共的“工具”，帮助其建立“技术促进的监视和社会控制”。
-
-尽管存在这些联系，辉瑞还是在 2018 年与该平台合作，如公司年度审查所述：
-
-“我们正在使用在中国拥有超过 7 亿活跃用户的支付宝平台，提供急需的疾病和疫苗接种教育。此外，为了帮助中共实现其雄心勃勃的 2030 年降低婴儿死亡率的目标，我们正在探索使用移动支付平台，来提高中国疫苗接种中心的便利性，以及分期付款的选择，以减轻低收入家庭的经济负担。”
-
-支付宝和辉瑞之间的合作伙伴关系的发现发生在 COVID-19 爆发前一年，也是在中共依靠该平台建立疫苗护照之后。正如《纽约时报》所解释的：
-
-“用户在支付宝上填写个人详细信息后，软件会生成三种颜色之一的二维码。绿色代码使其持有人可以不受限制地走动。黄色代码的人可能会被要求在家待 7 天。红色表示隔离两周。
-
-在杭州，不出示您的支付宝代码几乎不可能出门。宣传式的横幅提醒大家遵守规则：“绿码，自由出行。红色或黄色，立即报告。”
-
-阿里巴巴最近因未能遵守中共最近的法律而受到中共的处罚，该法律要求，该公司将政权的利益置于向世界报告关键网络安全漏洞的责任之上。
-
-**点评：辉瑞已经将中共的疫苗护照推广到了全世界！也就是把中共极权推广到了全世界！**
-
-新闻来源: [warroom.org] [Pfizer Partnered With China’s Vaccine Passport](https://warroom.org/2021/12/30/pfizer-partnered-with-chinas-vaccine-passport/)
+郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

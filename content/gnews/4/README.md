@@ -2,53 +2,69 @@
 ---
 
 
-## Illustration 3:The CCP may release the most toxic and poisonous.
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1811736/)
+## 西喜时事新闻简报 — 中共国时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811933/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1BBB1D41-95E8-44EC-BC7F-75F5777EBC7B.png)![](https://lh5.googleusercontent.com/-LSXlfcNt6_5RI3nTAb8GRmCZn3UKe394L3Nlhr9ZNP-VPx5qrPepwZ3tzx5fso8ap64fvot3JOBI6BjLroRqGVIqLptEKK0yf02OedVeVSkwxiaVfVzSlyO11U_IlUQeDDIWKBw)
-No.1 The scientist showed them that there are thousands of different kinds of coronaviruses, coronaviruses in addition to what is called a bacterium, what is called a microbial virus, that is, in the grass grows out of the small worm, from this worm mutates into a kind of poison, very terrible. …… And he seriously warned the United States if another outbreak, absolutely not 500,000 or a million, 1/3 people of the United States are in danger of life, this is not a joke, this is not a joke. Miles Guo May 30, 2021
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-这位科学家向他们展示了中共有上千种的配好的各种冠状病毒，冠状病毒之外还有一个叫什么菌，叫什么微菌病毒，就是在草里边儿长出来小虫，从这个虫子身上又变异成的一种毒，非常之可怕。……而且他严重警告美国如果再次爆发，绝对不是死五十万、一百万，美国可能1/3的人都有生命的危险，这不是开玩笑的，这不是开玩笑的。Miles Guo 2021年5月30日
-![](https://lh6.googleusercontent.com/IXAkTe2fKEpgjYJRdNRLuPzQdaFCyhut1gLpV68VVBWaBmtz3E3tS-cGIPU2ZGu_jhKh_yQ3UzU1waf4re5viKVmiRlI-OZyJZZ9gzjJ1MUp8xo_hvW7JmJAgTlKT7G6JVuHR-5T)
-When the Chinese Communist Party is nearing its end, it will unleash a highly toxic “heat poison” on the world with no incubation period and a high lethality rate.
+您若想了解全文报导内容，请点击标题链接
 
-中共在快完蛋的时候，将在全世界释放毒性强的七窍流血的“热毒”，无潜伏期，高致死率。Miles Guo 2021年9月23日![](https://lh5.googleusercontent.com/KqsYFaJwy5NNsYxYRadp5AW-5vyxkcPt3YAlCNuyM4FsoZSVWPhBQmtcsKdpM-T3TyTDLcd1Fqm_8Ep7EKrzEPD2TGx00kXN9h9sZGrvL_dTtmhb6U3EzWV085tJqNtw10YBORdL)
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-No.2 Our whistle-blower scientist in Europe said to me the first two days, he said when it re-releases, if the Communist Party is crazy to re-release, it is not this, re-release out of the poison is called heat poison, remember my words today, it is called heat poison. What do you mean by “hot poison”? After you have the poison, immediately bleed from all the seven openings of one’s head, is the type of severe poison, there is no reaction period, no reaction period! Miles Guo September 23, 2021
+1. [习近平新年贺词隐匿的几个不确定因素](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211231-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%96%B0%E5%B9%B4%E8%B4%BA%E8%AF%8D%E9%9A%90%E5%8C%BF%E7%9A%84%E5%87%A0%E4%B8%AA%E4%B8%8D%E7%A1%AE%E5%AE%9A%E5%9B%A0%E7%B4%A0)
 
-我们的欧洲的科学家头两天跟我说，他说再放，如果说共产党疯狂再放，他说就不是这个了，再放出来的毒叫热毒，记住我今天的话，叫热毒。什么叫热毒啊？就是你放完了(毒)，立马就七窍出血结束，就是剧毒型的，没有什么反应期，没有反应期！记住我说的话啊，再有毒的时候就是七窍流血，而且几乎是死亡率奇高。Miles Guo 2021年9月23日
-![](https://lh5.googleusercontent.com/bMxdQ-O5eRkbCdvX-HONj-lxFFf82S1wnrpIwquzsqWNXRXo0ekZlxvRwnGbVDC2wksQWiGpAGhxMVGISkMVV5CvxZc1BT0Rnor9NxfCmjH2qX6y51n0lsQciJC7Q0AcBVseYMSS)
-No.3 When the communist coronavirus has been released, there is no longer anyone can stop the problem of who dares to use biochemical weapons, and who uses them when it is a complication of the coronavirus. And all found an excuse and a platform, which is the most dangerous. All the deaths he considered normal, and human on from the past did not think that biochemical virus will be used, saw millions of people die around the world, hundreds of millions of people are infected when you have gotten used to the death, who then put the virus that is all right.Miles GuoSeptember 23, 2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip22.png)
 
-当共产党的冠状病毒放出去以后，已经没有任何人可以停止，谁敢不敢使用生化武器的问题了，而且谁使用生化武器的时候，这是冠状病毒的并发症。而且都找到借口和平台了，这是最危险的。所有的死亡他都认为是正常的，而且人类上从过去不认为生化病毒会被使用，看到了几百万人死亡在全世界，几亿人被感染的时候，你已经习惯了死亡的时候，谁再放病毒那都没事儿了。Miles Guo2021年9月23日
-![](https://lh5.googleusercontent.com/8U5CH-ru6lMMmUeyaxTUw-JyjgEls2ZI9DX9DHALWTQQRd49haQW7PhcSMH9dQFNWBA0RDGSviwy942afVhdr099uT0_24Nb6zK0vhTpEzalECrGorghhZcz8OsH3bDMFlyv2Ssk)
-No.4 About two weeks ago, I heard that the two people who created the virus for this project said something amazing: from now on, we can decide the fate of the Earth. How scary do you think that is, brothers and sisters, who want to decide the fate of the earth. You let us decide the fate of the earth, we will never do anything bad, we won’t even kill a chick. You let the communists, you let the forces of evil decide the fate of the earth, then the earth will be decided at any time. Miles Guo September 23, 2021
+据《法广网》2021年12月31日电，2022年新年贺词有几处引起分析人士注意，从字面看，习近平讲话时多处以“我”代之，比如说，“父老乡亲的话我都记在心里”，强调自己“父母官”的身份。习近平在2020年贺词中有过近似表述：“大家跟我说了很多心里话，我一直记在心上”，但区别在“大家”与“父老乡亲”上；而2021年（去年）贺词只在开头部分提到“我”，随后一直以“我们”贯通到底。
 
-大概两周前，我听说这个项目两个制造病毒的人说出了惊人之话，说：从现在起，我们可以决定地球的命运了。你想这有多可怕，兄弟姐妹们，谁都想决定地球的命运。你让咱们决定地球的命运，咱们永远不会干坏事儿，杀个鸡都不舍得。你让共产党，你让邪恶的力量决定地球的命运，那地球随时都会被决定了。Miles Guo 2021年9月23日
-![](https://lh6.googleusercontent.com/uPbHF6tMB8fV0F3Bwq-hSNxvphHinoZhd0J7e473aGlZMs_69GRpb0nKNwDw-RbxtI_U5wwwaH0ytIjkBuVbRz0KIua3XZIKGKENAQA95CqcSMW1JLYHALhTvkFp_GdhAvUVDC9E)
-No.5 Many people ask exactly what is the purpose of its poisoning? Who is the Communist Party colluding with? The Communist Party and all the people it colluded with, its pursuit is two points, first, to reduce the world’s human population by a large amount, a large amount, and then to achieve a so-called globalism. Secondly, control your genes, your thinking and your old age, sickness and death to need to be eliminated. miles Guo November 26, 2021
+2022年贺词中，习神（我也是从农村出来的，对贫困有着切身感受）的“成绩”自然不可或缺，他特别提到“党的十九届六中全会通过了党的第三个历史决议”，众所周知，这一名为“历史决议”实为习近平歌功颂德的决议，旨在为其20大续任铺路，对习本人的重要性可想而知；关于香港，仅提香港澳门“一国两制才能行稳致远”，但在习近平同日在全国政协新年茶话会讲话中却表达得很清晰很严酷：“贯彻落实爱国者治港、爱国者治澳根本原则……支持和推动香港由乱转治”（以“爱国者治港”之名，推出港版《国安法》，大举镇压香港民主派，“一国两制”名存实亡）。
 
-很多人说到底它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。第二，控制你的基因、思维和你的老弱病死，以需淘汰。Miles Guo 2021年11月26日
-![](https://lh3.googleusercontent.com/mbMPNk7fSyZxLYEIaIvfvlScwXWC_Gy5VHdhrW1yEae4O_TCIgplmKB3_dipY3LNYf6mY7Vg8JTTtjmXjFfeq-8CfqW8pWnvds16ZKj7S5ua4vM5gdz-iCUt2WvYBE2fqvDjgRTj)
-No.6 In recent days people in the party have advised Xi to take this opportunity to take out the U.S. The U.S. has a death wish for our Chinese Communist Party and he must be taken out. This is the latest information that I broke. I heard that the NSC has set up a special coronavirus control group, not to mention Omicron. he is not controlling the non-contagious, but where to contagious, and who to contagious. The new virus is much more advanced than the one leaked in Wuhan. Scientists say the communists may be about to release the most toxic and poisonous virus. Miles Guo December 24, 2021
+在2021年新年贺词中，习近平谈抗疫“取得重大成果”时候引用外国领导人及国际组织负责人的话说，“他们多次赞扬中共国抗疫和为全球疫情防控所作的贡献”（爆发于武汉的新冠疫情至今肆虐世界，国际社会要求调查新冠起源的呼声从来没有停止过）；民不聊生，有人形容，中共“苛政猛于疫也”（武汉、西安的挨饿封城“清零”政策）；习近平在新年祝词最后表示，“我们将竭诚为世界奉献一届奥运盛会。世界期待中共国，中共国做好了准备”，话是很动听的，但是，因为北京当局在新疆，在香港制造的恶劣的人权问题，许多西方国家以各种不同方式“外交抵制”北京冬奥会。
 
-最近几天党内的人劝习太阳借这个机会干掉美国，美国亡我中共之心不死，必须要干掉他。这是我爆的最新的消息。听说国安委成立了特别冠状新型病毒控制小组，没说Omicron。他不是控制不传染，而是往哪传染，让谁传染。新病毒比武汉泄露的病毒要高级的多。科学家说，共产党可能要放最毒最毒的毒了。Miles Guo2021年12月24日
+2. [中纪委也管新疆货？沃尔玛因下架新疆产品传言遭警告](https://www.voachinese.com/a/china-walmart-xinjiang-20211231/6376859.html)
 
-资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip23.png)
 
-### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
+据《美国之音》2021年12月31日电，中共中央纪律检查委员会国家监委星期五（31日）刊文警告美国零售企业沃尔玛：如果下架新疆产品将“自食恶果”（中共央视与其官方媒体开始涌现山姆会员店“退卡潮”）。
 
-郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
+美国指责中共国政府对新疆地区信仰宗教的少数民族群体实施种族灭绝。美国总统拜登12月23日签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），使之正式生效成法。法案禁止新疆产品进口美国，除非企业能提供明确且令人信服的证据，证明产品非由强迫劳动制造。中共国方面否认关于种族灭绝和强迫劳动的指控。
+
+沃尔玛“落难”之际，其在华竞争对手启动了以支持新疆产品为宣传噱头的营销行动。阿里巴巴旗下的盒马X会员店2022年1月1日起开启“新疆好货节”，以专区的方式推广新疆水果、蔬菜、家纺服饰等商品；《华尔街日报》报道，被苏宁易购收购的超市企业家乐福上周五（12月24日）分享了一篇带有“家乐福新疆好物节”标签的帖子，并附上其商店货架上产自新疆的产品的照片；美国科技巨头英特尔最近在官网上发布了一封要求供应商避免从新疆采购产品和服务的信函后，遭到中共国网民的批评并公开向中国客户、伙伴和中共国公众致歉；H&M、耐克等服饰和体育用品企业此前也因拒用新疆棉受到中共国舆论抨击和消费者的抵制。
+
+3. [宗教“元宇宙”化，中共新规严禁网上传教](https://www.voachinese.com/a/CCP-new-regulations-prohibit-online-preaching-due-to-the-religious-metaversilation-20211231/6376853.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip24.png)
+
+据《美国之音》2021年12月31日电，中共国国家宗教事务局12月20日公告“互联网宗教信息服务管理办法”（2022年3月1日生效），这项由中国国家宗教事务局、国家互联网信息办公室、工业和信息化部、公安部以及国家安全部等5个部门联合制定的办法，明文规定除非取得许可（归于习神教），不然任何组织或者个人不得在互联网上传教，不得开展宗教教育培训、发布讲经讲道内容或者转发、链接相关内容，也不得在互联网上组织开展宗教活动，并不得直播或者录播宗教仪式，不得以文字、图片、音视频等方式直播或者录播拜佛、烧香、受戒、诵经、礼拜、弥撒、受洗等宗教仪式。
+
+分析人士表示，从政治层面看，中共特别担心新兴宗教跟异议人士结合，共谋反叛，影响中共政权，重蹈太平天国的覆辙（中共国一直希望能跟梵蒂冈建交，关于主教任命的问题双方持续在交涉中，因此，当异议分子跑到教堂寻求庇护时，中共陷入抓与不抓的两难）；从经济层面看，宗教这一块其实已进入所谓的元宇宙和区块链，其去中心化、分散式的传教和募捐，使得中共难以掌控实际的宗教税收，因此必须严加控管；习近平在12月初的全国宗教工作会议上，提到要坚持宗教中共国化——引导宗教与社会主义社会相适应。
+
+4. [苹果爱中国：为农历新年推出“虎年”主题耳塞](https://www.breitbart.com/tech/2021/12/30/apple-loves-china-launches-year-of-the-tiger-themed-earbuds-for-chinese-new-year/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip25.png)
+
+据《布莱巴特》2021年12月30日电，Beats Studio，这家由说唱制作人Dr. Dre创立、后来被Apple收购的高端消费音频公司，正在推出他们的Beats Studio Buds的”虎年”特别版蓝牙耳机，以庆祝中国农历新年；Beats成立于2006年，在2014年被Apple公司以30亿美元收购，这仍然是这家科技巨头历史上最大的收购案。
+
+“我们正在用我们的特别版Beats Studio Buds庆祝农历新年，”该公司在其官方Twitter账户上[宣布](https://twitter.com/beatsbydre/status/1475632661804761092?s=20)。“作为对虎年的致敬，这款耳机采用了全红色设计，并配有金色的老虎图案装饰。1月1日上市！”Apple 还在日本推出限量版 AirTag 庆祝虎年。作为日本新年促销活动的一部分，在 1 月 2 日或 1 月 3 日从 Apple 订购新 iPhone 12、iPhone 12 mini 或 iPhone SE 的前 20,000 名日本客户将收到 AirTag，上面印有定制设计的老虎表情符号。
+
+5. [3架中共国军用侦察机进入台湾防空识别区](https://www.taiwannews.com.tw/en/news/4394137)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip26.png)
+
+据《台湾英文新闻》2021年12月31日电，[中华民国国防部](https://www.mnd.gov.tw/Publish.aspx?p=79444&amp;title=%E5%9C%8B%E9%98%B2%E6%B6%88%E6%81%AF&amp;SelectStyle=%E5%8D%B3%E6%99%82%E8%BB%8D%E4%BA%8B%E5%8B%95%E6%85%8B)周四（30日）称，一架中国人民解放军空军（PLAAF）的陕西运8电子战飞机、一架陕西运8侦察机和一架陕西运8反潜战飞机飞入台湾防空识别区的西南角（这是本月的第23次入侵）；作为回应，台湾派出飞机，发出无线电警告，并部署防空导弹系统来追踪解放军空军的飞机。
+
+12月至今，共有83架中共国飞机在台湾的识别区被发现，包括46架战斗机、2架轰炸机和35架观测机。
+
+自去年9月以来，中共国增加了对灰区战术的使用，经常派飞机进入台湾的ADIZ，大部分发生在该区的西南角。
+
+***发稿：信心满满***
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

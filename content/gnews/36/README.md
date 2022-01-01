@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|美台资深官员将于华盛顿举行会议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810877/)
+## 2022虎年求大吉 岸田首相却“骑虎难下”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1811290/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月15日，据台湾媒体消息，在当天的拜习视频会晤后，台湾与美国的资深官员将于16、17两日在美国华盛顿连续举办美台政治军事对话以及国防检讨会。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.jpg)[图片来源](https://www.fnn.jp/articles/-/292737?display=full)
+2022年1月1日，岸田文雄首相在接受日本广播系统采访时说，今年是日中邦交正常化50周年，“通常情况下，我会有一种庆祝的心情，但着眼目前情势，却有一种紧张感”。他说：“这将是考验日本外交强硬程度的一年”，并表示将以软硬兼施的方式处理这一局势。
 
-据了解，相较于拜习视频会的仓促，美台此次会晤经过充足的准备与协商，但两场会议同时举行于双方而言尚属首次。
+在提到第六波中共病毒是否会大范围蔓延时，他表示谨慎，说：“我们会时刻保持应对疫情的紧迫感。”
 
-媒体透露，目前已知的即将出席对话的人士包括台湾总统府副秘书长徐斯俭、外交部政务次长曾厚仁，以及国防部军政副部长柏鸿辉；美方则有国务院政军局助理国务卿露易丝和国防部印太事务助理部长瑞特纳。
+谈到中共在冲绳县尖阁诸岛周围的挑衅行为以及在香港和新疆维吾尔自治区对人权的镇压行径，首相强调 “对此问题将坚定发声”。同时，他说，“考虑到双方经济方面的联系，必须考虑到稳定日中关系”，并表示将努力避免关系恶化。他还指出，“至于以后，以及关于北京奥运会的事态发展，尚需且行且看。”
 
-数据显示，这是今年经由媒体公开的美台第二次政治军事对话。消息人士称，双方愿意公布这些会谈代表着美台关系的提升，同时，双方将过去模糊的策略变得明白化、公开化和正常化。
+中共病毒对日本造成的不可估量的影响已然让日本政界有种“穷寇莫追”且“骑虎难下”的窘境。
 
-文字版原文：[美台资深官员将于华盛顿举行会议](https://gnews.org/zh-hans/1672145/)
+孰不知，所骑之虎只是一只纸老虎而已。2022年虎年，希望日本政府别再“骑虎难下”，而能做到“不怒自威”，面对是非曲直，能旗帜鲜明，这才是一个政党执政之本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+信息来源：
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+[中国に硬軟両様で対処　コロナ第6波警戒　岸田首相](中国に硬軟両様で対処　コロナ第6波警戒　岸田首相)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

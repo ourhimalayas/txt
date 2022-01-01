@@ -2,47 +2,49 @@
 ---
 
 
-## 港共政府拘捕《立场新闻》6名高层人士
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1811524/)
+## 奥兹博士谴责COVID规则影响孩子们学说话能力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1811696/)
 
-作者：东京樱花团—在远方
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip14.png)Mehmet Oz 博士于 2010 年 12 月 13 日在纽约市大都会艺术博物馆举行的大卫林奇基金会举办的第二届年度“变革始于内心”福利庆典上发表讲话。 奥兹在竞选美国参议院时批评了拜登政府对 COVID 的处理。
+DIMITRIOS KAMBOURIS/WIREIMAGE/GETTY IMAGES
+美国参议院候选人穆罕默德·奥兹（Mehmet Oz）博士周四表示，孩子们正在吃力地学习说话，因为他们看不到老师的嘴，他批评 COVID 限制“伤害”了孩子。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+宾夕法尼亚州以共和党人身份参选的奥兹告诉福克斯新闻的皮特·赫格塞斯（Pete Hegseth），他不同意在大流行初期关闭学校，并批评CDC。
 
+CDC在其更新后的建议中受到了严厉批评，该建议认为COVID检测呈阳性但无症状的人应该自我隔离5天而不是10天。
 
+奥兹说，本周“作为一个问题，新冠肺炎再次被提上议事日程”。 “我得说，这说明拜登政府普遍无能，”他说。
 
-![China Künstlerin | Denise Ho Wan-see oder HOCC](https://static.dw.com/image/58748802_303.jpg)
+“CDC任意将隔离期从 10 天缩短到 5 天——这是基于方便，而不是科学，”他补充说。
 
-台媒消息，香港国安处于当地时间12月29日，出动200名黑警，拘捕了《立场新闻》现任、前任高层共6人，其中包括前董事、香港著名歌手、社运人士何韵诗。
-据悉，港共政府新闻处表示，遭拘捕的6人涉嫌违反《刑事罪行条例》第9及第10条，犯下所谓的“串谋发布煽动刊物罪”，香港黑警有权搜查及捡取新闻材料。
+奥兹对政府的做法提出了更多批评，然后讨论了对儿童的影响。
 
-此次遭到拘捕的人士分别为《立场新闻》前总编辑钟沛权，前董事周达智、吴霭仪、方敏生、何韵诗，以及总编辑林绍桐，年龄介于34岁及73岁之间。
+“像关闭学校这样的问题，在我看来并没有遵循科学，我两年前在这个项目中表达了这一观点，”奥兹说。
 
-评论人士认为，这是自1970年以来，香港政府首次使用煽动法对记者和媒体做出指控，这对香港新闻界是一个危险的先例。虽然港共政府不断重申《国安法》没有追溯力，但是他们仍然可以肆意使用其他法律来追溯过往行为，并借此逮捕与指控特定人员。
+**“**今天发表的一篇来自布朗的文章表明，在大流行期间出生的孩子发育迟缓，”他继续说道。
 
+“想想看，我们用一些政策伤害我们的孩子。看不到老师嘴巴移动的孩子学不会说话。5%的孩子戴眼镜，眼镜起雾了，他们不能读书，”奥兹说。
 
+这似乎是指在学校戴口罩。CDC 建议所有 2 岁以上的儿童在学校室内时应戴口罩。
 
-参考链接：
+“这些是我们付出的代价，由于这些破坏性的、专制的限制，我们并没有更安全，”奥兹补充道。
 
-[https://news.ltn.com.tw/news/world/breakingnews/3783545](https://news.ltn.com.tw/news/world/breakingnews/3783545)
+今年8月点研究报告发现，在大流行期间出生的 3 个月至 3 岁儿童，标准化测试的平均智商得分为 78。在大流行前的十年中，该分数约为 100 。
 
-校对/发稿：有莫举名
+由布朗大学进行这项研究，由儿科副教授肖恩·德奥尼 (Sean Deoni) 领导。该研究在 8 月份尚未经过同行评审。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-12.png)
+“我相信，我们应该赋予宾夕法尼亚人民权力，”奥兹周四表示。 “这就是我整个职业生涯所做的事情。人们很聪明，他们知道该怎么做。”
 
-**更多资讯，更多关注**
+**新闻来源**：[newsweek.com][Dr. Oz Says Kids Are Struggling to Learn to Speak, Condemns COVID Rules](https://www.newsweek.com/dr-oz-kids-struggling-learn-speak-condemns-covid-rules-1664591?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1640956475825&amp;subscriberId=6180566715c6fcdd524c7c95%20%20%20文章打分：)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 

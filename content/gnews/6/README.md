@@ -2,41 +2,70 @@
 ---
 
 
-## 放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1811711/)
+## 全球疫情更新（南非和澳洲疫情差别的原因何在？）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1811896/)
 
-编译： Jenny Ball
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-7.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 元旦）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-33.png)图片来源: newstarget.com
+**一，全球疫情基本数据**
+感染总数：2.88001777亿（日新增128.9万，14天增幅+105%）
+死亡总数：543.3222万（日新增 6,001人，14天增幅–15%）
+每万人感染人数：442.2949 人（除中国外）
 
-匿名放射科医生报告了 2021 年[令人震惊的观察结果](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy)。这位放射科医生目睹了 Covid-19 疫苗接种后不明原因的腺病增加了 360 倍。腺病是腺体肿胀或淋巴结肿大（淋巴结病）的医学术语。腺病不是一种特定的疾病，但它是某些潜在疾病的重要症状。医生可能没有接受足够的培训来确定，在何时疫苗是腺病的原因。
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
 
-这位放射科医生不愿透露姓名，因为他担心会因为报告这些与疫苗相关的观察结果而失去工作。在他的工作中，放射科医生每六个月会看到大约一例不明原因的淋巴结肿大。然而， Covid-19 疫苗推出后，放射科医生每天会看到两到三例不明原因的腺病！ 这是罕见情况的360倍增加，这也是他最保守的估计。
+**三，澳洲疫情和“疫苗”数据**
+感染总数：430,794（今日新增 35,326人）
+死亡总数：2,254人（今日新增 15人）
+每万人感染人数：142.9319人
+以下澳洲疫苗为昨日数据，今日元旦数据未更新。
+“疫苗”毒针注射总数：42,598,706  （日新增160,279针）
+第二针“接种”：1884.5485万人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.4%
+16岁以上人口接种至少两剂疫苗的比例：91.4%
 
-**Covid **疫苗会导致淋巴疾病、自身免疫疾病和**/**或癌症吗？
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-35.png)
+今日澳大利亚病例新增再创新高，跨越三万五大关。昨天我们谈到，南非已经度过
+奥米克戎毒株浪潮的疫情高峰。南非的疫情曲线如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-36.png)
+南非的最新消息显示，正如我们之前从南非获得的临床一线医生的早期印象一样，病情严重程度大为减轻。但是我们看到澳洲的住院数字曲线却看起来正在上升之中：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-37.png)
+澳大利亚的中共病毒感染住院人数曲线（深蓝色部分为重症监护室病人数字）
 
-人体包含大约六百个淋巴结。这些淋巴结携带淋巴液，是人体**“**免疫系统**”**的组成部分。通过身体组织的液体首先通过淋巴结过滤，淋巴系统负责提供白细胞以帮助抵抗传染性细菌和病毒。如果淋巴结和腺体肿胀，通常表明身体正在抵抗感染，如普通感冒。淋巴结肿大常伴有流鼻涕、喉咙痛、耳痛、发烧和疲倦。肿胀也可能表明更严重的感染，如链球菌、莱姆病或艾滋病毒。
+上期的疫情更新我们解释了澳洲的住院率为何升高的可能原因：疫苗毒针的普及和伊维菌素、羟氯喹等药物的稀缺。从上文分享的南非四次疫情曲线图看，我们还应该补充第三个重要原因，那就是经历了前3次疫情，加上大部分人口没有注射疫苗毒针，南非人建立了比疫苗毒针靠谱得的多的群体免疫力，才能够免于如澳洲一般垂直向上，每天都在破历史记录的疫情曲线。
 
-感染不是腺病的唯一原因。已知某些药物如苯妥英会引起腺病。身体任何部位的损伤都会导致水肿，导致受伤部位附近的淋巴结肿大。来自**mRNA **疫苗的自我复制刺突蛋白，是否会伤害全身的细胞和组织？
+今天我们就摘要介绍一些发表在《美国医学会杂志》的这篇最新论文，来看一下南非本次疫情研究的一些细节：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-38.png)
+这个图表展示了南非四波疫情的特点，左起第一栏从上到下依次是，吸氧治疗的比例，用呼吸机的人数，收入重症监护病房的人数，住院天数，比较这四个指标，可以发现，第四次疫情相对前三次相当轻微。
 
-类风湿性关节炎等自身免疫性疾病会引起淋巴结、关节和其他器官的炎症，从而导致淋巴结肿大。狼疮是另一种自身免疫性疾病，会导致淋巴结、皮肤、器官和关节发炎。 淋巴结肿大也可能是结节病的结果。当炎症细胞（称为肉芽肿）在身体的不同部位（包括肺部）生长时，就会诊断出这种炎症性疾病。免疫应答细胞是否会攻击人体自身的细胞以关闭这些进入体内的刺突蛋白？
+还有一个重要细节就是住院人数，第四次疫情仅有971人，相对于之前的三次疫情最少是第一次疫情2628人，相比之下第四波疫情的住院人数相对而言很低。可是反观澳洲的住院数字曲线的趋势却看起来实在不太妙。
 
-腺病也可以表明癌症的存在。最常见的包括淋巴瘤，它是淋巴系统或淋巴结的癌症。 另一种是白血病，它是一种血液和骨髓癌。新型冠状病毒疫苗能否让身体为这些类型的癌症做好准备？ 短期内证据尚不清楚。然而，长期研究目前正在进行中，并且正在全国人口中进行。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-医生是否接受过适当的培训能将疫苗与淋巴疾病联系起来？
+发布：去中心化Math
 
-在活检过程中，医生使用针头取出淋巴结样本，以便在显微镜下进行检查。谈到腺病增加的放射科医生说，活检显示出类似的结果。活检显示：没有转移性疾病和淋巴瘤。肿胀被认为是“非特异性的”，因此无法解释，并确定为未知原因。无法解释的腺病增加可能是疫苗引起的炎症、淋巴系统疾病，和刚刚开始形成的自身免疫疾病的病理证据。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-医生是否接受过适当的培训，将淋巴疾病与实验性**mRNA **疫苗引起的毒素、副作用和异常免疫反应联系起来？ 患有淋巴结病的人被要求询问他们的医生，为什么他们的淋巴结肿大。医生必须记录症状的开始时间、严重程度，以及涉及的药物。医生会触摸皮肤上的淋巴结，并检查它们的大小。医生将调查淋巴结的疼痛程度，并检查其大小和质地，以最终确定原因。但医生是否接受过适当的培训，可以客观地调查**Covid-19 **疫苗是否是造成伤害、疾病和癌症的潜在原因？有多少医生有胆量与多年来主导他们的制药公司决裂？
-
-新闻来源 : [newstarget.com] [Radiologist reports a 360-fold increase in adenopathy following covid vaccinations](https://www.newstarget.com/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html) / [SteveKirsch.substack.com](https://stevekirsch.substack.com/p/360x-increase-in-the-rate-of-adenopathy) / [Healthline.com](https://www.healthline.com/health/adenopathy)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
