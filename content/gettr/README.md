@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/1/2022 5:50 AM (UTC)`
+
+一位来自澳大利亚的郭文贵先生和班农先生的粉丝：郭文贵先生告诉我们的有关中共病毒的消息，大约三个月后我们才能明白，所以他领先于事态的发展，因为他知道真相。 希望郭先生健康，平安，继续揭露真相！<br/><br/>A fan of Miles Guo and Steve Bannon in Australia: Miles Guo tells the news about the Virus that we find out about three months later, so he's ahead of the curve because he knows the truth. He hopes Mr. Guo stays healthy and safe, and keeps telling the truth. 
+![img](https://media.gettr.com/group3/getter/2022/01/01/05/58e324ca-13fd-6da1-ac79-0f8de597d60a/out.jpg)
+
+---
+
 `@miles 1/1/2022 4:35 AM (UTC)`
 
 12月31号：祝所有的战友家人新年快乐，无限的感激无限的爱．献给所有的天下的我们的🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏志同道合的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 December 31: Happy New Year to all my comrades in arms and family, infinitely grateful for infinite love.  To all our 🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 like-minded brothers and sisters!  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 
@@ -149,15 +156,6 @@ G｜Music荣誉出品：<br/>G Forever《我是音雄》第二季音雄年度总
 
 2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/> Superman（美国纽约香草山农场） 《我是音雄》节目组执行导演，美丽、开朗外加风趣的Superman，是一名专业音乐人。在节目组负责指导和帮助参赛音雄们完成参赛前的准备工作，保障他们以最好的状态登上舞台。这次，她将回归歌手的身份，在“我是音雄“终极决赛舞台上大放异彩！
 ![img](https://media.gettr.com/group27/origin/2021/12/27/16/5a09e2f1-e27c-b087-f6ad-26dff6c5f518/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/27/2021 4:24 PM (UTC)`
-
-2021年度《我是音雄》第二季“十大音雄”出炉！<br/>请为你最喜爱的音雄点赞，获点赞数最高的一位音雄将获得2021年度“最受战友喜爱的音雄“称号，结果将在年度总决赛跨年晚会现场揭晓。<br/>点赞截止时间为美东2022年1月1日0:00分。 请战友们点赞并转发！https://gnews.org/zh-hans/1784075...<br/><br/>Bunny（台湾宝岛农场） 作为帅气零零后的爆二代，在音乐方面很有天赋，而且父母也非常的支持。比赛过程中，他的表现无论在唱功、技巧，还是音色，都被誉为《我是音雄》中一颗闪耀的星星。让我们看到新中国联邦未来音乐人的优质品质。期待他在决赛为我们带来更多精彩。
-![img](https://media.gettr.com/group27/origin/2021/12/27/16/37606131-3d8b-19c7-8b54-df562bdd5f94/out.jpg)
 
 ---
 
