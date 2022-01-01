@@ -2,25 +2,31 @@
 ---
 
 
-## 美国疫情加剧导致航空业严重受挫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812028/)
+## 南极极地站多数工作人员感染新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812029/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：银河勇气星 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2021年12月29日，美国捷蓝航空公司于当天晚些时候证实，由于美国东北部地区的奥密克戎病例预计将持续上升，这可能在未来几天对该公司机组人员造成进一步影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.35.18-PM.png)
-据公司相关人员透露，该公司眼下正在面临着因中共病毒确诊病例激增而导致的机组人员短缺现状，为此，公司已经取消了直至2022年1月13日的约1280个航班。目前，美国其他航空公司还没有详细说明他们在2022年1月份的行程变化。
 
-另外，数据显示，捷蓝航空公司的股票在本周内已经下跌了近2%，加之捷蓝航空已经公布的行程削减，评论人士指出，这预示着航空业已经开始准备应对因奥密克戎疫情爆发而造成的航空服务长时间中断的情形。
 
-参考链接：[JetBlue cancels flights through mid-January as Omicron sidelines crews](https://www.newsbreak.com/n/0dZ8E3qg?pd=0BtSHkgm&amp;lang=en_US&amp;s=i16)
+当地时间2021年12月30日，据有关媒体报道，比利时伊丽莎白公主南极极地站25名工作人员中有三分之二确诊感染了中共病毒。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.48.23-PM.png)
+
+消息显示，这些研究人员从比利时飞往南极站的途中曾在南非开普敦进行了为其10天的隔离。而他们在到达极地站后，已经确诊的三例感染者立即被隔离并在随后离开了站点。然而，奥密克戎病毒在极地站内的传播并未停止。
+
+据悉，这25名研究人员全部完成了中共病毒疫苗的全面接种，其中一人还接种了加强针。同时，所有的工作人员均通过了多次中共病毒PCR测试，且被隔离并生活在世界上最偏远的地方。即便如此，奥密克戎变种病毒仍然袭击该基地工作站。
+
+目前，该极地站点已经缩短了工作时间，且暂不会有新人员前往该工作站，剩余的工作人员包括两名随队急诊医生将在南极滞留到2022年1月12日。
+
+参考链接：[美CDC：無論疫苗接種情況如何 都應避免搭乘郵輪](https://news.ltn.com.tw/news/world/breakingnews/3785840)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 编辑：Kathy文艺
-总编：Irene木木 
+总编：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -31,8 +37,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
 
  
 

@@ -2,34 +2,23 @@
 ---
 
 
-## 有声|欧洲各地爆发反对封锁和疫苗抗议活动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813017/)
+## 新年，新中国联邦人友情提醒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1813021/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-随着新冠病毒感染人数的增加，欧洲各国政府实施了新的封锁限制和严厉的强制疫苗措施。
+作者：天空的鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-01-at-2.32.19-AM.jpeg)图片来源：GNEWS
+新年到来，病毒依旧肆虐！新中国联邦人提醒大家，最近出门一定要小心注意，做好病毒的防护措施！听身边的人讲，他们周围时有发生中招感染病毒的，这比以往的其他病毒感染的概率都要多，可见这一次的病毒感染传染性太强太快，大家在新的一年里要多保重身体健康，不被病毒伤害，千万不能轻视麻痹大意！
 
-欧洲时间11月20日，欧洲多地爆发了大规模的示威活动，反对封锁，以及强制疫苗政策。
+还好没有听说周围附近的新联邦战友有感染病毒的，因为我们都听七哥的嘱托，战友们都吃羟氯奎+锌防护+VC来防病毒感染，现在被病毒感染的人大多数都是一些不看盖特、GTV的人中招。有很多还都是粉红、并且都打了所谓的疫苗针的人，让事实来说话证明，吃羟氯奎能防病毒，就是不幸被感染，在药物的治疗下也可以很快恢复。而打针（所谓的疫苗）纯属欺骗宣传阴谋，其结果反而更容易受到病毒的感染伤害，在这些被感染的人群中，有些人就再也回不来了！
 
-约有3.8万人在维也纳游行，反对实施新的封锁限制。在罗马，大约四千人聚集在马克西姆广场，”自由 “的呼声在古老的体育场响起。荷兰也爆发多起大规模抗议示威活动。在瑞士苏黎世，大约两千人进行了抗议。据悉，计划在本月晚些时候举行的，关于疫苗护照的全国公投之前，瑞士各地还将举行其他示威活动。在英国曼彻斯特和伦敦，疫苗护照抗议者举行了游行活动，另外，大规模抗议活动也出现在奥地利大使馆外。
+中共不是常说这句话吗？“事实是检验真理的唯一标准！”CCP不是常拿这句台词来忽悠老百姓吗？那就让事实来说话，证明谁才是真实可靠、谁是虚假的欺骗宣传！
 
-原文链接：[欧洲各地爆发反对封锁和疫苗抗议活动](https://gnews.org/zh-hans/1685659/)
+在辞旧迎新之际，愿世界上所有善良、诚实、守信、有信仰的人们都不被病毒伤害！让我们一起努力战胜邪恶的黑暗势力，让光明永照人间！祝2022年健康、平安、幸福、快乐！新中国联邦人加油！
 
-音频处理：音频处理：喜山必胜Maverick
+编辑/发布：LILY
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+20220101
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

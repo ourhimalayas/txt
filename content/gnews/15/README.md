@@ -2,24 +2,26 @@
 ---
 
 
-## 有声|大量外省救护车驰援西安显示疫情失控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1812544/)
+## 德国外长及内务部长将不参加中共冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812695/)
 
-配音：香草山健身部 – 玫瑰园
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2021年12月30日，据媒体消息显示，德国外长贝尔伯克对媒体宣布，他本人确定将不参加中共2022北京冬奥会。贝尔伯克还透露，欧盟正在讨论是否应该集体加入抵制中共冬奥会的队伍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpeg)
 
-当地时间12月29日，从西安当地居民拍摄的影片显示，一大排的救护车停在路边，其中有从山东、山西、辽宁过来支援的救护车。 需要动用到外省的救护车来驰援，可见西安疫情失控。
+贝尔伯克也呼吁欧盟国家共同商讨出一个抵制中共冬奥会的态度，并希望可以比美国总统拜登的态度更坚定。另外，贝尔伯克还一再表示，欧盟应该出台一项政策，禁止进口新疆地区通过强制劳动所获得的产品。
 
-西安市在12月23日开始封城后，疫情并没有缓和下来，反而持续爆发。 因此当地政府27日停止原来「2天1出」的封闭管理政策，改为更严格的管制措施，所有人一律不准离开社区，只允许持有工作证明必需上班的人才能外出。
+与此同时，德国内务部长兼体育部长南希·弗雷泽也宣布，由于个人原因，他决定不出席北京冬奥会。据了解，按照惯例，德国通常会派遣内务部部长代替总统出席冬奥会，但德国政府发言人表示，德国新任总理朔尔茨尚未决定是否将出席北京冬奥会。此前，德国政府新闻发言人还首次在例行记者会上表示，“到目前为止，朔尔茨总理暂无出席北京冬奥会的计划”。
 
-原文链接：[大量外省救护车驰援西安显示疫情失控](https://gnews.org/zh-hans/1806653/)
+参考链接：[德国外长、内政部长宣布因个人决定不出席北京冬奥会](http://chinese.joins.com/news/articleViewAmp.html?idxno=104472)
 
-音频处理：音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
