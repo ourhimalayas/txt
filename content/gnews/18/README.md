@@ -2,42 +2,22 @@
 ---
 
 
-## 脱欧的英国不在空客之内则利用冬奥会勾兑中共单买项目
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1811458/)
+## 区域全面经济伙伴关系协定（RCEP）生效实施
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1811544/)
 
-**郭文贵先生：**英国为啥是抗议呀？英国是老子不去，你把钱给我，答应我投的什么核电三号，是吧！然后欧洲农业，是不是，买我的这个发动机。因为现在它不处在…它欧盟这个整个空客计划，它都要退出的、退出欧盟。
+作者：意大利达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/01/rcep生效.jpeg)封面来源：网络图片
+新华社北京2021年1月1日报道，区域全面经济伙伴关系协定（RCEP）生效实施，全球最大自由贸易区正式启航。RCEP现有15个成员国，包括中共国、日本、韩国、澳大利亚、新西兰5国以及东盟10国。从人口数量、经济体量、贸易总额三方面看，均占全球总量的约30%。RCEP生效给中共又注射了一剂强心针，从而形成一个以中共为核心的经济圈，这必将更加促进中共加速“数字人民币”国际化的进程，进而挑战美金国际货币地位，最终要取代美国当世界老大的野心。
 
-那你来单独买我发动机吧，单独买我项目吧、单独买我柴油机吗，而且不能买高级的，技术上还不允许。中国说，那你来呀！那你先给我订单呐！两人较量，是吧！那香港问题咋办呢？是吧！这叫讲不成数了，鲍里斯·约翰逊特想勾兑，所以大家记住，这个冬奥会和这个事儿，跟政治一点关系没有，都是利益。
+根据协定规定，6个东盟成员国和3个非东盟成员国正式提交核准书，即达到协定生效门槛。经各方努力，RCEP于2021年11月2日达到生效门槛。1月1日起，RCEP对文莱、柬埔寨、老挝、新加坡、泰国、越南、中国、日本、新西兰和澳大利亚10国正式生效。韩国将于2月1日加入到生效实施中。剩余成员国也将在完成国内批准程序后陆续生效实施。中共在亚洲耕耘多年，“蓝金黄”、绑架威胁等手段无所不用其极，再加上地理优势，这些国家不能也不敢直接和中共对抗，合作就成了唯一选项。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+RCEP生效，不只是降关税。RCEP还在原产地规则、海关程序、检验检疫等方面形成统一规则，域内贸易便利化程度将进一步提高。除了货物贸易，RCEP成员国在服务贸易、投资等方面也作出高水平开放承诺，并建立了高水平的知识产权、电子商务等规则，各类经济要素流动将更加顺畅，域内产业链、供应链和价值链将进一步巩固和发展。
 
-编辑整理：海贼王M.D.LUFFY；
+RCEP生效，这预示着小亚盟的成立，统一规则、统一程序、统一标准，中共设想是美好的，而现实是骨感的，一无技术、二无创新，有的只是谎言和暴力，剩下的也只有在自欺欺人的自我膨胀中等待灭亡的这个唯一结局。
 
-字幕文件制作：小满；
+新闻来源：🔗[RCEP生效！全球最大自由贸易区正式启航](http://www.news.cn/fortune/2022-01/01/c_1128223217.htm)
 
-视频制作及上传：Cindy；
-
-技术支持：文肺猫；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑/校对/发稿：意大利达芬奇农场-儒为*
 
  
 

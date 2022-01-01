@@ -2,69 +2,61 @@
 ---
 
 
-## 锌能抑制中共病毒与排毒石墨烯
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1811570/)
+## 辉瑞与中共国疫苗护照合作
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1811649/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-17.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-27.png)图片来源: warroom.org
 
-你的免疫系统是你抵御所有疾病的第一道防线，特别是传染病（瘟疫），有许多不同的方法来提高你的免疫系统，改善其功能。有一种营养素在你的免疫系统抵御病毒感染的能力中起着非常重要的作用，那就是锌。
+《国家脉动》的娜塔莉·温特斯（Natalie Winters）爆出了关于医药巨头辉瑞与中国共产党政权合作的重大新闻。
 
-抗疟疾药物氯喹和羟氯喹是奎宁的合成形式，奎宁是一种在植物中发现的自然存在的化合物。 羟氯喹和氯喹与其他天然化合物槲皮素和表儿茶素-棓酸盐（”EGCG”）一样，是一种锌离子团。
+“我们今天发表的故事，甚至让我大吃一惊……在所谓的 Covid-19 爆发前一年，辉瑞实际上与支付宝合作，支付宝是阿里巴巴的一个分支，阿里巴巴是一家中共关联的科技公司……它因与中国军队的关系非常令人关注和非常密切而被美国国务院罚款。这家公司实际上被北京武器化了，不仅用于疫苗护照，而且在“社会信用评分”方面也与国家机器密切相关。在 Covid-19 开始前一年左右，辉瑞与该公司合作真是太奇怪了。”
 
-锌可能是被大大低估了的中共病毒流行病的参与者。它对健康的免疫功能至关重要，2010年，在体外或”试管实验”中，锌与锌离子团（比方羟氯喹，一种促进锌在体内吸收的锌运输分子）的组合被证明能够抑制SARS冠状病毒。 在细胞培养中，它也在几分钟内阻止了病毒的复制。
+辉瑞公司与中共支付平台合作，自 COVID-19 爆发以来，该平台一直用于在中国实施“疫苗护照”。该公司表示**“**很自豪能与中共国领导人站在一起”。
 
-\*注：有趣的是，2010年这项研究的作者之一正是北卡罗来纳大学教堂山分校（University of North Carolina at Chapel Hill）的拉尔夫·巴里奇（Ralph Baric），他是与SARS-CoV-2的产生及其大流行有内在联系的四个人之一，其他四个人是武毒所的”蝙蝠女”石正丽、生态健康联盟的彼得·达扎克和美国白宫的安东尼·福奇。 根据大卫·马丁博士（Dr. David Martin）的说法，达扎克和福奇是这场大流行病的设计师。
+这家制药巨头——[其在美国的游说努力在过去一年创下历史新高](https://thenationalpulse.com/2021/10/06/pfizer-and-moderna-increase-lobbying-efforts/)——在 2018 年 6 月 6日的以下推文中，表达了其对残酷的共产主义政权的自豪：
 
-在下面的视频中，Dr. Roger Seheult 回顾了令人信服的证据，表明抗疟疾药物之所以在治疗Covid方面显得如此有用，实际上是因为它改善了细胞对锌的吸收。 请记住，这个[视频](https://www.youtube.com/watch?v=U7F1cnWup9M&amp;t=95s)是在2020年3月制作的。
+推文内容：
 
-中共病毒患者和锌缺乏症有许多共同的症状——正如比尔·萨尔迪（Bill Sardi）所指出的，大部分中共病毒的症状（总共18个症状）与锌缺乏症的症状几乎没有区别。两者共有的症状包括但不限于（[如下图](https://knowledgeofhealth.com/symptoms-covid-19-coronavirus-match-zinc-deficiency/)）：
+“我们很自豪能与中共国领导者和阿里巴巴支付宝站在一起，推出新的数字化解决方案，以改善疾病教育和疫苗获取——为中国儿童创造更美好的未来。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-23.png)
+“我们很荣幸成为中国“互联网+疫苗”倡议的合作伙伴。
 
-锌和锌离子载体的相关研究:
+通过移动设备， 让公众更深入地了解疾病意识，疾病预防，并改善整体健康”。
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4728566/), NCBI, 2016
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-29.png)图片来源: warroom.org
 
+该消息还透露了该公司与支付宝的合作关系，支付宝是一家中国在线支付平台，最初是中国共产党关联公司阿里巴巴的一个分支。
 
-- [Quercetin as an Antiviral Agent Inhibits Influenza A Virus (IAV) Entry](https://pubmed.ncbi.nlm.nih.gov/26712783/), NCBI, 2015
+助理国务卿表示，阿里巴巴还参与了“为中国人民解放军（PLA）研发、生产和维修武器装备”，并与中共“国家安全官僚机构”有着“深厚的合作与协作记录”。 美国国务院克里斯托弗·福特（Christopher Ford）负责国际安全和不扩散事务。
 
+国务院还将该公司标记为中共的“工具”，帮助其建立“技术促进的监视和社会控制”。
 
-- [Physicians work out treatment guidelines for coronavirus](http://www.koreabiomed.com/news/articleView.html?idxno=7428), Korea Biomedical Review, 2020
+尽管存在这些联系，辉瑞还是在 2018 年与该平台合作，如公司年度审查所述：
 
+“我们正在使用在中国拥有超过 7 亿活跃用户的支付宝平台，提供急需的疾病和疫苗接种教育。此外，为了帮助中共实现其雄心勃勃的 2030 年降低婴儿死亡率的目标，我们正在探索使用移动支付平台，来提高中国疫苗接种中心的便利性，以及分期付款的选择，以减轻低收入家庭的经济负担。”
 
-- [Expert consensus on chloroquine phosphate for the treatment of novel coronavirus pneumonia](https://pubmed.ncbi.nlm.nih.gov/32075365/), NCBI, 2020
+支付宝和辉瑞之间的合作伙伴关系的发现发生在 COVID-19 爆发前一年，也是在中共依靠该平台建立疫苗护照之后。正如《纽约时报》所解释的：
 
+“用户在支付宝上填写个人详细信息后，软件会生成三种颜色之一的二维码。绿色代码使其持有人可以不受限制地走动。黄色代码的人可能会被要求在家待 7 天。红色表示隔离两周。
 
-- [Quercetin and Vitamin C: An Experimental, Synergistic Therapy for the Prevention and Treatment of SARS-CoV-2 Related Disease (COVID-19)](https://www.frontiersin.org/articles/10.3389/fimmu.2020.01451/full), Frontiers, 2020
+在杭州，不出示您的支付宝代码几乎不可能出门。宣传式的横幅提醒大家遵守规则：“绿码，自由出行。红色或黄色，立即报告。”
 
+阿里巴巴最近因未能遵守中共最近的法律而受到中共的处罚，该法律要求，该公司将政权的利益置于向世界报告关键网络安全漏洞的责任之上。
 
-- [Quercetin as a Natural Therapeutic Candidate for the Treatment of Influenza Virus](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7824064/), NCBI, 2020
+**点评：辉瑞已经将中共的疫苗护照推广到了全世界！也就是把中共极权推广到了全世界！**
 
-
-- [Quercetin: Antiviral Significance and Possible COVID-19 Integrative Considerations](https://journals.sagepub.com/doi/full/10.1177/1934578X20976293), Sage, 2020
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-21.png)
-
-- [Unravelling the anti-influenza effect of flavonoids: Experimental validation of luteolin and its congeners as potent influenza endonuclease inhibitors](https://www.sciencedirect.com/science/article/pii/S0223523420307261), Science Direct, 2020（图片来源：[福布斯新闻](https://www.forbes.com/sites/brucelee/2021/07/10/graphene-oxide-in-pfizer-covid-19-vaccines-here-are-the-latest-unsupported-claims/?sh=145502c274d7)）
-
-
-与中共病毒有关的症状也与电磁场（EMF）辐射和氧化石墨烯中毒的症状相匹配。 例如，10月份发表的一项研究认为，中共病毒和无线通信系统暴露之间在病理上，有很大的重叠性。 而（拉·昆塔·科伦纳）La Quinta Columna 在6月表示，他公开了大量与口罩、测试棉签和中共病毒疫苗中发现的石墨烯有关的研究。
-
-“氧化石墨烯是一种在机体内产生血栓的毒物，氧化石墨烯是一种产生血液凝固的毒物。氧化石墨烯导致免疫系统的改变。通过使与[谷胱甘肽]储备有关的氧化平衡失衡。如果通过任何给药途径增加氧化石墨烯的剂量，就会引起免疫系统的崩溃和随后的细胞因子风暴……总之，氧化石墨烯是所谓的SARS-CoV-2，即所谓的中共病毒（新冠状病毒）在名为Covid-19的疾病在武汉爆发之前，所挑起的症状”（病毒和疫苗可挑起相同的症状，只是剂量不同而已）。
-
-石墨烯可以被自然地冲出体外。 在我们血液中发现的一种酶，即骨髓过氧化物酶（myeloperoxidase），可以降解氧化石墨烯（graphene oxide）。 例如，酒精（乙醇）或烟草（尼古丁），可以帮助增加这种酶。但也有更健康的选择，支持我们的身体分解进入我们体内的石墨烯。
-
-拉·昆塔·科伦纳的[视频](https://rumble.com/vk4c5q-la-quinta-columa-informs-on-antioxidants-that-degrade-graphene-oxide.html?mref=lveqv&amp;mc=48pz1)解说表示：每一种抗氧化剂，特别是主抗氧化剂谷胱甘肽，都可以降解氧化石墨烯。在拉·昆塔·科伦纳建议的食品补充剂清单中，包括锌和它的离子团，槲皮素。
-
-新闻来源：[dailyexpose.uk] [Zinc Inhibits Influenza Virus, Covid and Helps Our Body Detoxfrom Graphene](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) | 发布时间：2021年12月30日
+新闻来源: [warroom.org] [Pfizer Partnered With China’s Vaccine Passport](https://warroom.org/2021/12/30/pfizer-partnered-with-chinas-vaccine-passport/)
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
