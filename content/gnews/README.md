@@ -15,104 +15,104 @@
 
 ---
 
-### [2022/01/01 英喜时事速递](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [刘亚洲被抓将中共内斗推向新的高潮](/content/gnews/2/README.md)
+### [德国外长及内务部长将不参加中共冬奥会](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点0101](/content/gnews/3/README.md)
+### [华为2021年度营收下降30%](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [2022/01/01 英喜时事速递](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [刘亚洲被抓将中共内斗推向新的高潮](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [【Michael.Tonny专栏】消灭CCP病毒的关键在于没有中共不断投放新病毒！](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [DC每日热点0101](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以色列开始接种第四剂中共病毒疫苗](/content/gnews/4/README.md)
+### [以色列开始接种第四剂中共病毒疫苗](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-8](/content/gnews/5/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-8](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [观电影切尔诺贝利核爆炸后感](/content/gnews/6/README.md)
+### [观电影切尔诺贝利核爆炸后感](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [近日大批武警进入西安潘家庄](/content/gnews/7/README.md)
+### [近日大批武警进入西安潘家庄](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《同袍情》](/content/gnews/8/README.md)
+### [《同袍情》](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [超七成台湾人愿意抗击中共极权保卫民主](/content/gnews/9/README.md)
+### [超七成台湾人愿意抗击中共极权保卫民主](/content/gnews/13/README.md)
  ` GTV News Talk`
 
-### [英国批准辉瑞抗中共病毒新药](/content/gnews/10/README.md)
+### [英国批准辉瑞抗中共病毒新药](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【中日财经爆】因倒车摄像头隐患，特斯拉召回近50万辆车](/content/gnews/11/README.md)
+### [【中日财经爆】因倒车摄像头隐患，特斯拉召回近50万辆车](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银行再现支付错误，Nationwide的客户抱怨除夕夜没收到工资](/content/gnews/12/README.md)
+### [银行再现支付错误，Nationwide的客户抱怨除夕夜没收到工资](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国水资源短缺威胁到全亚洲](/content/gnews/13/README.md)
+### [中共国水资源短缺威胁到全亚洲](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠](/content/gnews/14/README.md)
+### [美国家橄榄球联盟被曝秘密使用伊维菌素治疗新冠](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [美国接种率低的州 假日销售增幅远超接种率高的州](/content/gnews/15/README.md)
+### [美国接种率低的州 假日销售增幅远超接种率高的州](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [纽约仅12月奥米克戎感染病例已达整个中共病毒感染记录的1/5](/content/gnews/16/README.md)
+### [纽约仅12月奥米克戎感染病例已达整个中共病毒感染记录的1/5](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [中共煽动民众抵制不成 对沃尔玛再放狠话](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [法官裁定圣地亚哥联合学区对儿童的疫苗强制令无效](/content/gnews/18/README.md)
+### [法官裁定圣地亚哥联合学区对儿童的疫苗强制令无效](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [南极极地站多数工作人员感染新冠病毒](/content/gnews/19/README.md)
+### [南极极地站多数工作人员感染新冠病毒](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [美国疫情加剧导致航空业严重受挫](/content/gnews/20/README.md)
+### [美国疫情加剧导致航空业严重受挫](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [全球多地中共病毒感染病例飙升](/content/gnews/21/README.md)
+### [全球多地中共病毒感染病例飙升](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [美数百国会议员要求最高法阻止疫苗强制令](/content/gnews/22/README.md)
+### [美数百国会议员要求最高法阻止疫苗强制令](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美退役空军准将称 疫苗强制令在分裂军队](/content/gnews/23/README.md)
+### [美退役空军准将称 疫苗强制令在分裂军队](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [美国CDC变相证明中共病毒疫苗无效](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞骄傲宣称：自豪能与中共领导人站在一起](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【G时新闻】新冠病毒可进入身体所有器官并存续达230天！](/content/gnews/26/README.md)
+### [【G时新闻】新冠病毒可进入身体所有器官并存续达230天！](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/27/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/28/README.md)
  ` wenwu`
 
-### [共产党操控过的美国政治](/content/gnews/28/README.md)
+### [共产党操控过的美国政治](/content/gnews/29/README.md)
  ` 骄子`
 
-### [印度批评中共对争议地点命名](/content/gnews/29/README.md)
+### [印度批评中共对争议地点命名](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/30/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/31/README.md)
  ` wenwu`
 
-### [中共使用基因编辑和脑控武器发展军事和消除异议](/content/gnews/31/README.md)
+### [中共使用基因编辑和脑控武器发展军事和消除异议](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Illustration 3:The CCP may release the most toxic and poisonous.](/content/gnews/32/README.md)
+### [Illustration 3:The CCP may release the most toxic and poisonous.](/content/gnews/33/README.md)
  ` 郭爆料串珠`
-
-### [歌手陈升在台湾现场演出中向 “北京维尼”打招呼](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [日本首相岸田说对中国要软硬兼施](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

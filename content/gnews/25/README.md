@@ -2,37 +2,34 @@
 ---
 
 
-## 辉瑞骄傲宣称：自豪能与中共领导人站在一起
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1812015/)
+## 美数百国会议员要求最高法阻止疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812026/)
 
-**翻译：Hakunamatata**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月30日，据当地媒体报道，由美国47名共和党参议员和136名众议员组成的团体共同要求最高法院阻止联邦政府对包含100名及以上雇员的企业推行的强制中共病毒疫苗接种政策。他们认为，拜登政府和职业安全与健康管理局OSHA此举已经涉嫌越权。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.31.png)
+议员们表示，赋予联邦政府的立法权属于国会，但国会授予机构的权力不应该被滥用。他们强调，中共病毒疫苗强制令属于典型的国家警察权力，而OSHA对企业提出的全国性强制疫苗接种要求已经涉足公共医疗政策，实属超越了《职业安全与健康法》的范围。
 
-**校对：人间四月**
+据悉，美国最高法院将于2022年1月7日安排一项与疫苗强制令有关的紧急上诉口头辩论。同一天，大法官们还将听取医护人员对疫苗强制令的挑战。
 
-据《国家脉动》报道：辉瑞公司与中国共产党的一个支付平台进行着合作。自中共病毒（Covid-9 病毒）疫情爆发以来，该平台已被用于在中共国实施“疫苗护照”的功能。该公司表示：“很自豪能与中共领导人站在一起”。2018年6月6日，这家制药巨头在美国的游说活动创下了历史新高，并在推特上表达了对野蛮的共产主义政权的骄傲:
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-1.jpg)
-推特上写道:“我们很自豪能与中共领导人和@支付宝站在一起，推出新的数字解决方案，改善疾病教育和疫苗接种，为中共国儿童创造更光明的未来。我们很荣幸成为中共‘互联网+疫苗接种’计划的合作伙伴，”附图中引用了辉瑞中共国总经理吴昆的话。
+评论指出，最高法院此次判决将成为反对联邦政府中共病毒疫苗强制令的唯一选择。
 
-这条信息还透露了该公司与支付宝的合作关系。支付宝是中共国主要的在线支付平台，最初是中国共产党关联公司阿里巴巴的子公司。美国国务院负责国际安全和不扩散事务的助理国务卿克里斯托弗·福特表示：阿里巴巴参与了“解放军武器装备的研究、生产和维修”，并与中共“国家安全部门”有着“深入的合作和协作记录”。美国国务院还将该公司标记为中国共产党的“工具”，帮助其建立“技术便利的监视和社会控制”。
+参考链接：[Congressional Republicans tell Supreme Court to block Biden’s ‘health police’ vaccine mandate](https://news.yahoo.com/congressional-republicans-tell-supreme-court-225805961.html)
 
-尽管存在这些关系，辉瑞还是在2018年与该平台进行了合作，公司的年度回顾概述如下:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-“我们正在使用在中共国拥有7亿多活跃用户的支付宝平台，来提供急需的疾病和疫苗教育。此外，为了帮助中共实现其雄心勃勃的2030年降低婴儿死亡率的目标，我们正在探索使用移动支付平台来提高中国疫苗接种中心的便利性，以及分期付款选项，这可能会减轻低收入家庭的经济负担。”
+总编：Ivy001
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在中共病毒爆发前1年，支付宝与辉瑞公司的合作伙伴关系被曝光，也是中共国依靠支付宝平台的先例研究所的新冠病毒疫苗护照。当时《纽约时报》（The New York Times）解释道: 用户在支付宝上填写个人信息后，该软件会生成三种颜色中的一种二维码。绿色代码使持卡人可以不受限制地四处移动。有黄色代码的人可能会被要求在家呆7天。红色代表两周的隔离。
-
-在中共国的城市杭州，如果不出示支付宝代码，你几乎不可能出门。宣传风格的横幅提醒着每个人:“绿码，自由出行。”红色或黄色，请立即报告。”
-
-阿里巴巴最近被中共处罚，原因是该公司未能遵守最近的法律，该法律要求阿里巴巴应该将政府的利益置于向世界报告关键网络安全漏洞的责任之上。实际上，只要了解中共体制的人们都知道，企业是中共几个家族获取利益最大化的平台，是中共几个家族内斗的筹码，而所谓的企业家到最后不过是中共绞肉机制度下的牺牲品！
-
-**原文链接：**
-
-
-
-> [Pfizer Partnered With China’s Vaccine Passport Platform, Admits Being ‘Proud To Stand With China Leaders.’](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,66 @@
 ---
 
 
-## 全球多地中共病毒感染病例飙升
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812027/)
+## 法官裁定圣地亚哥联合学区对儿童的疫苗强制令无效
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1812060/)
 
-作者：纽约香草山教育部 Naughty(文行)，东京樱花团 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010106.jpg)图片:JEFF KOWALSKY 摄/法新社 /盖蒂图片社
+**摘要翻译：**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国新闻网站《信息战》12月30日报道，
+
+在未执行任何合法民主程序的情况下，加州的多个学区在今年年初开始强制要求儿童接种中共病毒疫苗。儿童疫苗强制令定于1月生效，规定任何16岁及以上的儿童，如果未接种中共病毒疫苗，将会被禁止进入所有圣地亚哥的公立学校。这一专制举动引起了大规模民意的反弹，成千上万的儿童和家长拒绝服从疫苗强制令。
+
+拒绝接种疫苗的行为为1月24日民众与政府的最终对决埋下了伏笔，届时孩子们将因不遵守疫苗强制令而被赶出学校。然而，不会有任何对决发生，因为圣地亚哥的一名法官本周驳回了该项疫苗强制令，并明确指出，学区无权强制要求儿童接受医疗程序。
+
+据CBS7报道，高等法院法官约翰·S·迈耶(John S. Meyer)批准了“让他们选择”组织提起的对该强制令的诉讼，该组织寻求阻止该学区的中共病毒疫苗强制令生效，认为它不符合州法律。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40.png)亚历克斯·琼斯(Alex Jones)展示了一段视频剪辑，一名护士在市议会会议上公开谈论中共病毒疫苗对儿童的致命影响。
+迈耶(Meyer)法官在裁决中指出，学区的中共病毒疫苗强制令不可再继续执行，因为它与州法律相冲突，州法律规定，任何对疫苗强制令的决定必须在州一级作出，并且如果不是由州立法机构执行，强制令中必须包括“个人信仰豁免”。而圣地亚哥学区拟执行的强制令中并不包含该项豁免。
+
+“圣地亚哥联合学区(SDUSD)的规划看起来似乎是必要且合理的，该地区保护其学生免受中共病毒感染的愿望值得赞扬。不幸的是，学校疫苗强制令决定权在州政府而非学区，且该规划与州法律直接冲突。”法官在一项初步裁决中写道。
+
+当然，该学区不同意，并声称他们有权决定儿童是否接种疫苗。然而，就目前而言，学区的反对毫无意义，并且那些不想接种疫苗的儿童和家长也将不再被迫这样做。
+
+“我喜出望外，因为我们知道我们的法律论据是强有力的，我们代表数以千计关注的家长和学生提起此案，听到法官说没有学生应该被强制接种这种疫苗真是太棒了。”“让他们选择”（Let Them Choose）组织背后的创始人莎伦·麦基曼(Sharon McKeeman)说。
+
+正如“自由思想项目”(TFTP)网于本月早些时候报道的那样，美第二大学区洛杉矶联合学区(LAUSD)做出了类似的举动，强制要求为所有12岁以上的儿童接种中共病毒疫苗。学生们被告知，如果他们不遵守疫苗强制令并进行接种，他们将于2022年1月10日起被禁止进入校园。
+
+NBC4采访了一位关注这类案件的律师珍妮弗·肯尼迪(Jennifer Kennedy)，她解释到，学区没有权力强制执行这类医疗程序。就像圣地亚哥联合学区无权强制要求接种疫苗一样，洛杉矶联合学区也没有这个权力。
+
+“这些怪诞的比赛和治疗、糖果、礼物和恩惠、抽奖和现金奖励的展示诱导孩子们接种疫苗……这就是问题所在，加州的孩子不能同意接种疫苗。” 她补充到：“洛杉矶联合学区没有权力在加州学校的课程表上增加一门名叫疫苗接种的课程。”她说，“无论是一个偏远地区的学区，还是美国第二大学区洛杉矶学区，都不可以实施儿童疫苗强制令，因为你不具备执行该项强制令的法律权力。”
+
+几位学生家长就儿童疫苗强制令对洛杉矶学区提起诉讼，而洛杉矶联合学区仍有数千名儿童没有接种中共病毒疫苗。在多达2.8万名儿童拒绝接种中共病毒疫苗后，这条底线迫使洛杉矶联合学区于上周推迟了他们的儿童疫苗强制令。
+
+**只有通过抵抗，我们寻求的变革才会到来。正如历史告诉我们的那样，人们无法通过服从来摆脱暴政。**
 
 
 
-2021年12月30日，据美国媒体报道称，纽约州当天报告了超过七万四千例新增中共病毒确诊病例，也是该州两周以来第十次打破了单日新增确诊纪录。州数据显示，当地住院人数也在继续上升，目前的总住院人数为 七千三百七十三人，相较周一的数据增加了近 20%。
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-9.08.40-PM.png)
+一个法律健全并可以让人民自由发声的国家是让人尊敬和向往的。然而仅有健全的法律体系还远远不够，人民对法律的监督和维护也尤为重要。正如新闻最后写到的那样：“只有通过抵抗，我们寻求的变革才会到来。正如历史告诉我们的那样，人们无法通过服从来摆脱暴政。”
 
-与此同时，澳大利亚新南威尔士州也在当天公布了超过两万一千例新增中共病毒确诊病例，该数据比前一天的统计数据猛增了近一万例，达到了自中共病毒大流行开始以来，澳大利亚各个地区报告的最高病例数。据新南威尔士州卫生部透露，这些确诊病例基于对近15万澳大利亚民众进行核酸筛查的结果，而这些感染患者则主要集中在悉尼地区。
+在权力机构利用权威试图恐吓我们去遵守权威的时候，是很容易让人畏惧并且顺从的。美国圣地亚哥这些学区所做的，就是明知违反州法律，却依旧强推中共病毒疫苗强制令，这背后的利益勾兑我们不得而知，但是他们试图恐吓人民，逼迫人民服从它们的权威却是事实。所幸的是，我们看到孩子和家长们拿起了法律的武器对抗权威并最终获得了胜利。这一诉讼案例表明，在这是个疯狂并且动荡的时期，学校的教师早已不是尊重天赋人权和自由民主，利益和对科学的盲从已经让这些本应专注教育的机构转而成为了利益集团的走狗。此案也提醒人们，面对不公，唯有奋起抵抗才可能获得自己应得的利益和权利。
 
-值得注意的是，韩国在当天也新增了四千八百七十五例中共病毒感染患者，其中，重症患者达一千零五十六例，另有108人死亡。数据表明，截止目前，在韩国政府加强中共病毒的防疫措施后，该国重症患者连续第11天仍维持在千人以上。对此，韩国当局于31日宣布，政府现行的防疫措施将被再度延长两周，包括餐厅及咖啡厅限时营业至晚间9时，私人聚会限员4人等。
+新闻链接：[After Thousands Of Parents Refused To Comply, California School District Reverses Child Jab Mandate](https://www.infowars.com/posts/after-thousands-of-parents-refused-to-comply-california-school-district-reverses-child-jab-mandate/)
 
-参考链接：
+*翻译/简评：milkcat*
 
-1. [New York reports record 74K new COVID-19 cases ahead of New Year’s Eve](https://nystateofpolitics.com/state-of-politics/new-york/coronavirus/2021/12/30/new-york-reports-record-74-000-new-covid-19-cases)
-2. [December 30 coronavirus pandemic and Omicron variant news](https://edition.cnn.com/world/live-news/omicron-variant-coronavirus-news-12-30-21/index.html)
-3. [再刷新高！南韓激增269例Omicron確診 現行防疫措施延長2週](https://news.ltn.com.tw/news/world/breakingnews/3785844)
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：飞虹，DM
-总编：童谣
-校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 
