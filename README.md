@@ -15,80 +15,80 @@
 
 ---
 
-### [共产党和HBO的股东恐惧的恰恰是正道主义](/content/gnews/1/README.md)
+### [纽约州长强制大学生接种中共病毒疫苗加强针](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [穷的没法再穷的人 精神意淫共产主义](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《赞美》](/content/gnews/2/README.md)
+### [西方受过高等教育的人 因杀富济贫的精神救济而相信共产主义](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Iosbel Yeung用一字之差来陷害爆料革命](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾总统表示：将追求自由、民主，反对独裁中国政府](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生喜币无国界 无政府操控 全球化描述](/content/gnews/3/README.md)
+### [共产党和HBO的股东恐惧的恰恰是正道主义](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [独裁者都是梦游 必定黄粱一梦](/content/gnews/4/README.md)
+### [HBO出卖良知和原则 为了中共国4000亿美金市场](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [持之以恒七哥练会郭氏英语 坚持灭共 让共产党不敢提七哥的名字](/content/gnews/5/README.md)
+### [毛用林彪干掉刘少奇](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [正道主义的本质和邪教的特征背道而驰](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生GNEWS未来展望](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵先生的正面出击 接受采访](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共利用舆情监控软件在世界搜集相关目标信息](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [Isobel的歹毒让爆料革命被整个世界所仇视（上）](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Isobel的歹毒让爆料革命被整个世界所仇视（下）](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国人做事 缺少逻辑性思考](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离](/content/gnews/13/README.md)
+### [《赞美》](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [mRNA“疫苗”正在导致血栓，炎症，癌症，和大量死亡](/content/gnews/14/README.md)
+### [郭文贵先生喜币无国界 无政府操控 全球化描述](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [独裁者都是梦游 必定黄粱一梦](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [持之以恒七哥练会郭氏英语 坚持灭共 让共产党不敢提七哥的名字](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [正道主义的本质和邪教的特征背道而驰](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生GNEWS未来展望](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵先生的正面出击 接受采访](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共利用舆情监控软件在世界搜集相关目标信息](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [克鲁兹参议员指责福奇在儿童因新冠住院问题上玩政治游戏](/content/gnews/15/README.md)
+### [Isobel的歹毒让爆料革命被整个世界所仇视（上）](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Isobel的歹毒让爆料革命被整个世界所仇视（下）](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [荷兰强制所有接种或未接种新冠疫苗的美国人接受隔离](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [mRNA“疫苗”正在导致血栓，炎症，癌症，和大量死亡](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [此生所求](/content/gnews/16/README.md)
- ` 澳喜农场`
+### [克鲁兹参议员指责福奇在儿童因新冠住院问题上玩政治游戏](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [共产党末日之年－2022](/content/gnews/17/README.md)
- ` 首尔天池农场`
-
-### [一个中共体制内官员的心声](/content/gnews/18/README.md)
- ` 首尔天池农场`
-
-### [因发表疫苗真相，mRNA疫苗技术发明人推特账号被永久封禁](/content/gnews/19/README.md)
+### [因发表疫苗真相，mRNA疫苗技术发明人推特账号被永久封禁](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [遥远的南极站爆发中共病毒疫情](/content/gnews/20/README.md)
+### [遥远的南极站爆发中共病毒疫情](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [医学暗势力继续隐瞒伊维菌素真相](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年12月31日郭先生盖特 — 视频盖特1「2分28秒」](/content/gnews/22/README.md)
+### [2021年12月31日郭先生盖特 — 视频盖特1「2分28秒」](/content/gnews/24/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [视频| 郭先生谈陈全国当年送“虫草”的那些事](/content/gnews/23/README.md)
+### [视频| 郭先生谈陈全国当年送“虫草”的那些事](/content/gnews/25/README.md)
  ` MOSREC`
-
-### [全球疫情更新（南非入院率大降，澳洲则反而增加）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [禽流感抵达以色列加利利海，将对人类构成危险](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [被迫休无薪假的加拿大皇家骑警的离职信，措辞有力，值得阅读和传播](/content/gnews/26/README.md)
  ` MyWay`
@@ -114,13 +114,13 @@
 ### [美军在日本横须贺基地已有75人感染中共病毒](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/34/README.md)
+### [火柴里的小女孩](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [DC大中华时事：中共称自己是世界的“稳定器”](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/35/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美单日确诊暴增51万 破全球疫情新记录](/content/gnews/36/README.md)
+### [研究发现奥米克戎潜伏期仅3天 且再感染率极高](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
 ### [【秘翻在线】中共警告美国在台湾问题上将“面临难以承受的代价”](/content/gnews/37/README.md)
