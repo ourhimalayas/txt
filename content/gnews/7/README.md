@@ -2,30 +2,31 @@
 ---
 
 
-## 【#G时新闻】全球首例：英国团体就疫苗接种为反人类罪向海牙国际法庭提起诉讼！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1810226/)
+## GTV新闻访谈简报|2021年12月31日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1810240/)
 
-一个由前辉瑞副总裁麦迈克·耶登教授等组成的英国团体以代表英国公民向国际刑事法院提起诉讼，控告鲍里斯·约翰逊和英国官员比尔和梅琳达·盖茨大型制药公司的负责人，世界经济论坛主席克劳斯·施瓦布等人危害人类罪。
+作者：香草山翻译部
 
-此外起诉书提到安东尼福奇世界卫生组织总干事谭德赛 ，美国药品和保健品监管局负责任人琼·雷恩 ，洛克菲勒基金会主席拉迪夫·沙阿和生态健康联盟主席彼得·达扎克要为对英国和其他国家多次违反纽伦堡法典战争罪和侵略罪负责。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-6.jpg)
 
-在12月6日的诉讼中，该组织提供了证据表明COVID-19疫苗是利用蝙蝠冠状病毒的研究开发的实验性基因疗法，导致了大量死亡和副作用，并且PCR检测完全不可靠含有致癌的环氧乙烷。
 
-他们认为疫苗接种是灾难，羟氯喹和伊维菌素等对COVID-19的有效治疗被打压，学术期刊禁止刊登伊维菌素和羟氯喹等药物有效性的研究，导致COVID-19的死亡人数高于应有的水平，等同于谋杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1231text-SC.png)
+校对：Stay文苑
 
-政府人为夸大人造病毒的感染率和死亡率并借此封锁，严重剥夺人身自由，违反国际法基本规则。
+编辑：Stay文苑
 
-事实证明，政府和媒体就COVID大流行向公众撒谎。虽然多个国家政府正在推进强制疫苗计划，但是越来越多的人认识到邪恶集团的用心，清醒的人民在全世界用各种方式在反抗。
+发稿：Stay文苑
 
-现在我们正在经历人类最关键的一次正义与邪恶之战，我们一步都不能后退，否则就会失去自己和后代的未来。
+视频参看：[12.31  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61cfae00ecc0b216cbb2eb77)
 
-发布：加拿大温哥华扬帆农场
-盖特：[https://gettr.com/post/pksm4db9c1](https://gettr.com/post/pksm4db9c1)
-播报：莉李鲤
-听写：LuLu1312
-字幕：七觉花
-视频制作：文所未闻 /七觉花
-编辑/上传：七觉花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0002.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
