@@ -2,31 +2,84 @@
 ---
 
 
-## 有声|做一个自豪的新中国联邦人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813063/)
+## 《告别2021》
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1813076/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月29日的大直播中，七哥和同心同框的战友们，都流露出对麻木、愚蠢、懦弱、自私、傲慢无礼、缺乏修养（尤其是很多国人在海外的所作所为造成了极坏的影响）的国人感到悲哀、失望、羞耻和痛心。我也有同感！
+作者：香草山健身部 – 新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2021已经过去
+我最大的信念
+坚定不移心中的信仰
+健康的活着，是赢家
+生活虽然异常艰难
+黑暗依然笼罩当下
+可我坚信坚强的每一步
+就离歼灭中共的终极目标更近一步
+虽然肉身被党囚
+可我的灵魂飞翔
+自由在喜马拉雅
+苟活在谎言世界
+时悲悯时激情
+时光亮时消沉
+可我们知道，它们也知道
+那一刻必定会发生
+所以我坚强
+不管经历了什么
+不管还需要多久
+不要气馁不要急躁
+保持善良认真做事
+换这一生自由
+怎肯坐以待毙不做选择
+机会就在爆料革命
+有道是邪不压正
+唯有斩妖除魔
+为己为家也为国
+摸黑行走的这一段路
+不必忧伤的拼命去扛
+只需要不屈不挠
+坚持坚定
+你道生不逢时
+原是上天验证善恶
+在这新旧交集的岁月里
+任凭惊涛骇浪
+我心依旧向阳而跑
+待中共土崩瓦解
+谎言无处遁形
+罪恶暴露在光天化日之下
+所有的梦想有了翅膀
+莫道生不逢时
+每一个生命都是有使命的
+活好当下就是勇士
+天还暗，赶路不易
+摇不醒说不动
+那就随缘
+抬头仰望长空
+圣洁的七芒星之光
+直射神州而来
+随着光和亮
+幸福会随时落地
+拂尽所有的伤痕
+推翻头上三座窒息大山
+推翻催命的绞肉机
+所有的人感叹
+这样的活着才是真正的活着
+这样的活着真的很好！
+新中国联邦真好！
+新文明时代真好！
 
-由于中共的长期洗脑，环顾四周或想想我们那些尤其在国内的华人亲朋好友，有几个懂得尊重别人、而不轻易臧否人物？有几个真正懂得和能够爱自己和爱别人？有几个有信仰、心存感激地珍惜所拥有的一切？有几个能路见不平，拔刀相助？有几个不是自扫门前雪，抱着多一事不如少一事的理念，在“躲进小楼成一统，管它春夏与秋冬”的意境中苟且偷生？
+编辑/校对/发稿：菩提树
 
-原文链接：[做一个自豪的新中国联邦人](https://gnews.org/zh-hans/1808136/)
-
-音频处理：音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

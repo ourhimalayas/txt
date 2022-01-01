@@ -2,30 +2,32 @@
 ---
 
 
-## 未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813208/)
+## 印尼邀请东协5国合作应对中共威胁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1813211/)
 
-据《babylonbee.com》，2021年12月31日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-44.png)图片源自原文
-俄亥俄州克利夫兰——当地未接种疫苗的男子查克-多恩利在这个假期感到非常孤独，他所有接种疫苗的朋友现在都感染了中共病毒。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒12月31日报道，针对中共持续在南海扩张势力，印尼官员日前表示，将邀请东南亚国家协会的5国，于2022年2月开会，整合南海议题立场，建立讯息交换与能力构建机制，应对主权和安全的挑战。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0.jpg)图片源自网络
+据悉，印尼海事安全局局长阿安22日在记者会上说，中共国所谓的“九段线”主张，让很多东南亚协会的国家感到困扰，当遇到实际问题是，我们必须有能力应对。因此，印尼海安局将邀请马来西亚、新加坡、越南、菲律宾和文莱的海巡署，就中共对区域安全和主权威胁相关议题进行开会商讨。
 
-多恩利说：“也许我应该直接接种疫苗。然后我就会像其他人一样感染COVID，那样我和我接种过疫苗的朋友就有话可说了。现在我自己一个人感觉很健康。真是无奈！”
+ 此前印尼曾多次强调，中共的主张违反联合国海洋法公约，并多次致函联合国，表明印尼不接受“九段线”主张。也明确拒绝中共要求就所谓重叠海域协商的提议，因为该海域属印尼主权，没有与中共海域重叠，更没有必要协商。
 
-多恩利对记者说，几个月前，当他自己得了COVID时，他也感到被抛弃了，大家都叫他“奶奶杀手”。他希望，一旦一切恢复正常，他可以因为是克利夫兰布朗队的球迷而被冷落，而不是因为没有接种疫苗。
+参考链接：[https://udn.com/news/story/6809/6000784?from=udn-ch1\_breaknews-1-0-news](https://udn.com/news/story/6809/6000784?from=udn-ch1_breaknews-1-0-news)
 
-原文连接：[https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid](https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-翻译：洛杉矶盘古农场 – TrueSky
+总编：童谣
+校正/发稿：Daxia
 
-校对：洛杉矶盘古农场 – Mike Li
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-编辑：洛杉矶盘古农场–WenXiong
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
