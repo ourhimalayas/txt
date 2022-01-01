@@ -2,65 +2,22 @@
 ---
 
 
-## 视频| 郭先生谈陈全国当年送“虫草”的那些事
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1810547/)
+## 克鲁兹参议员指责福奇在儿童因新冠住院问题上玩政治游戏
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1810627/)
 
-## 摘自2021.12.29郭先生大直播
+#### 翻译/撰稿：黃金精神
 
-制作：香草山视频部
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1.png)图片来源：推特
+2021年12月31日据福克斯（Fox News）报道, 泰德·克鲁兹（Ted Cruz）参议员及福奇的最大批评者周四晚些时候在推特上指责福奇在谈到拜登执政期间新冠住院治疗时他编辑的信息。
 
+克鲁兹在推特上转发了福奇在MSNBC上的一次采访，他在采访中谈到感染新冠住院的儿童人数令人不安，并且明确表示感染新冠的住院儿童数量和“由于新冠”住院之间是有区别的。“我们这样说的意思是：如果一个孩子进了医院，他们会自动接受新冠检测，并被算作新冠住院病人，而事实上，他们可能是因腿部骨折或阑尾炎或类似疾病而住院。所以这过度计算了因感染新冠而住院的儿童的数量。”
 
+克鲁兹发帖说：“现在福奇这样说是因为拜登政府的大流行病政治已经改变了吗？”
 
-陈全国到北京去送那个虫草
-一麻袋一麻袋的送
-到我那儿去的时候
-老弟 给你的比给贾宝的还多
-给锦涛跟你的一样
-但是我这还有一包了 不给他 就给你
-你看陈全国 给我这一大包25公斤虫草
-每根上都有编号
-你们没见过虫草，
-每根
-现在你买了最好的虫草
-有的虫草里边它断了
-他拿那个牙签给你穿上
-你都会吃到
-但是你从没见过给共产党的
-上每一根都编号
-为什么呢 在那区山上 每个山坡
-共产党的特工都是有编号的
-那一根当时多少钱 一根150美金
-给我送一袋20几公斤都带编号的
-这是给温家宝常委的级别啊
-然后再拿出一袋是什么 统一编号
-那区山顶这是给你特别了
-当时他给习的姐姐乔乔去送东西
-就在我们盘古交接在楼下
-这王八蛋刚跟我说了我这待遇
-比温家宝得好 还有特殊
-结果是给乔乔就两袋子 那两袋子
-你想想当时的习 刚到北京
-他就弄两布袋来 再加上四袋给乔乔
-你想想这事了得了吗
-你想想啊这小子多会玩啊
+克鲁兹的推文是在拜登政府在处理新冠病毒爆发方面面临新的批评时发表的。批评者说，他发誓要控制病毒，但他本周承认，“没有联邦解决方案”。
 
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[**Cruz accuses Fauci of playing politics with COVID-19 after recent comment about hospitalized children**](https://www.foxnews.com/politics/cruz-accuses-fauci-of-playing-politics-with-covid-19-after-recent-comment-about-hospitalized-children)
 
  
 
