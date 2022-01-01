@@ -2,134 +2,38 @@
 ---
 
 
-## 明年风水龙虎斗主角
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1809716/)
+## 欧美疑出现新型的组合变种病毒-德尔密克戎Delmicron
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1809774/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a18cz-6osll.jpg)
-[https://gtv.org/video/id=61ce7b5afb16a93456bfa541](https://gtv.org/video/id=61ce7b5afb16a93456bfa541)
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-35.png)
+据《印度时报》24日报导，新变种病毒奥米克戎（Omicron）肆虐全球之际，欧美如今又出现一种名为德尔密克戎「Delmicron」的新变异毒株。
 
-**Miles Guo**
+顾名思义，德尔密克戎是德尔塔（Delta）与奥米克戎（Omicron）两种变异毒株的组合。
 
-彭丽媛属虎
-Peng Liyuan was born in the year of tiger
+由于德尔密克戎是两种毒株的综合体，被认为传播速度极快，引起的症状也比较严重。
 
-龙虎相斗
-Dragon and tiger fight each other (don’t get along well)
+报导称，德尔密克戎引起的常见症状是发高烧、咳嗽不止、失去嗅觉和味觉、头痛、喉咙痛。
 
-而且盘古龙属于阳龙
-and Pangu Dragon appertains to yang dragon
+据《今日印度》24日报导，印度马哈拉施特拉邦（Maharashtra）疫情防控工作组负责人乔希医生（Dr. Shashank Joshi）称，德尔塔病毒和奥米克戎病毒毒株导致该地区确诊病例上升。他认为德尔密克戎不是一种新型变异毒株，而是患者同时感染了德尔塔病毒和奥米克戎病毒两种毒株。
 
-地上龙，阳龙，地上龙
-Yang dragon, the dragon on earth
+印度尼西亚处理中共病毒（COVID-19）疫情的政府发言人阿斯莫洛（Reisa Broto Asmoro）博士告诉当地媒体，世界卫生组织（ WHO）还没有关于德尔密克戎变种命名的官方声明。
 
-而且明年虎是壬水
-Also next year, the year of tiger is Ren Shui
+截止目前，无论世界卫生组织（ WHO）还是美国疾病管制暨预防中心（CDC），至今也都未对所谓德尔密克戎毒株发表声明。
 
-啥叫壬水知道吗？
-Do you know anything about Ren Shui?
+备注：
 
-水灾，查查中国历史
-Floods, look it up in the Chinese history
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒COVID-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-现在战友们在底下看一看
-Now everyone take a look
 
-凡是在虎年壬水
-Always in the year of the tiger floods
+[新闻来源链接](https://news.seehua.com/?p=786318)
 
-壬水, 不是那个寅，是那个像主字似的
-Ren Shui, the word “Ren” looks similar to “Zhu”
+审核校对：sherryok (水云间)
 
-壬水寅虎，你看过去发生了什么
-
-Yen Shui, Yin Tiger, look what happened in the past
-
-不是那个寅虎的寅啊
-（Yen ）not the tiger Yin (looking for the correct radical for “Yen”)
-
-是一个壬的，壬寅年
-It’s Yen shui, the year of Yen and Yin
-
-大家看一看这个啊
-Look at this, everyone
-
-阳水、阳木，对了
-Yang water, Yang wood, that’s right
-
-你看看文杨，文杨，盘古是飞天龙
-Look at what Wen Yang have here, Pangu is a flying dragon
-
-盘古是地上龙、火龙、火龙
-Pangu is the dragon on earth, fire dragon
-
-而且是盘古由地下五层连接在一起
-Pangu (buildings) are connected together by all five floors underground
-
-这叫什么？叫做龙韬
-What’s this called? It’s called Dragon Tao
-
-过去叫做韬龙
-It used to be called Tao Dragon（control）
-
-苍龙、渊龙、火龙
-Canglong, abyssal dragon, fire dragon
-
-所以说你看看就是你说对了，荣光依旧
-You are right, Glory Remains (an audience’s nickname)
-
-这对彭丽媛是大伤
-This (dragon head design) is a huge impact to Peng Liyuan (her destiny)
-
-然后小白接近了，JessicaG也知道是属蛇
-Xiao Bai is close, JessicaG also knows it’s about snakes (audiences are guessing an answer)
-
-你就不知道属虎跟蛇有啥关系？
-You just don’t know what is the Tiger has to do with snakes?
-
-跟蛇没关系
-It has nothing to do with snakes
-
-政清就明白，你们都蒙对了
-Zhengqing understood, you all got it right
-
-但就是不往前深入，这啥事儿不深入嘛
-But you just didn’t go deeper than that. Why not?
-
-兄弟姐妹们，是吧？
-Right? Brothers and sisters
-
-说对了，他（习近平）相信了
-You are correct, he (Xi Jinping) has believed it
-
-他相信了盘古这个龙对彭丽媛是挑战，绝对的挑战
-He believes that this dragon of Pangu designed is a challenge to Peng Liyuan, an ab-solute challenge
-
-而且明年是壬水寅虎，明年是水灾之年
-Also, next year is the year of Yenshui and Yin Tiger, that means next year would be the year of floods disaster
-
-所以必须在春节前，一定要搞
-So (reconstructing Pangu’s dragon head design) must be done before the Chinese New Year
-
-**原视频链接:**[https://gettr.com/post/pkck7hb2d1](https://gettr.com/post/pkck7hb2d1)
-
-Date:12/22/2021
-原视频标题: 明年风水龙虎斗主角
-Next year’s feng shui, dragon and tiger fight
-原视频日期：2021/12/19
-原视频链接:https://gettr.com/post/pkck7hb2d1
-任务编号：KC382(3312)
-视频时间段 : 0:00-01:58
-
-中听校: 洛杉矶盘古农场 -Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：漂流瓶
 
  
 

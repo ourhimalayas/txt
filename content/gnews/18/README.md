@@ -2,28 +2,36 @@
 ---
 
 
-## 七哥谈中国60岁夫妻生孩子（2021-12-29摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809631/)
+## 拜登和中共国因新的“武汉实验室”变成合作伙伴
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1809681/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-来源：郭先生2021-12-29直播09：01：59摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1978.png)
 
-当时日本看到中共网上说中国60岁的夫妻生了一胎，日本的哥儿们给我打：Miles，这百分之百是假的。他说：遗传学做得世界上最好的是日本、丹麦、瑞士，然后才是美国。中国根本不沾边儿。他说：这里边一定有一方是假的。这个男的年龄不对、这个女的年龄不对，或者这个孩子就不是他的，就没这事儿。我马上了解说，这回一问，李克强的前秘书说：他去他娘的，他全是造假。他说：那个女的就想把这个生孩子指标给钱，生一个孩子拿3000块钱，然后一个月领多少钱，她精神有问题。就是那种、而且过去是什么，贩卖来的媳妇，像安平那小圆脸那时候最流行的，直接从四川绑架卖到山东、河南、安徽，绑架过来的，精神有问题，就是一个十几岁的学生被绑架过来的。然后她当时绑架了为了办结婚证就把她年龄给她改大了15岁16岁。她实际上43、42岁，这个男的是60多。这个男的根本就没性能力，在外面打工就没回来，这个女的就不知道谁给搞上去了。说不定是小王子的呢，你知道吗？好像小王子最近没回国，呵呵，冤枉不了你啊，是吧，估计是意淫的结果，小王子意淫的结果。就生这么一个孩子，这个孩子现在已经生下来就是残疾。就是共产党这个国家你都邪恶得我再跟你说，你能想想吗？它说不让你生一胎的时候天下就是你生了一胎好到了你可以当上帝，它让你必须生二胎、三胎，60岁人都能生孩子。和当年的“文化大革命”亩产万斤粮、一个猪生100个崽，一模一样！就共产党打自己的脸这种不要脸的结果，恨的应该是谁呀？我们中国老百姓。但是中国人他都信呐！
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+最近发表的一篇论文显示，与中共病毒（新冠病毒、COVID-19）有关的武汉病毒研究所的研究人员与失宠的研究人员Peter Daszak的生态健康联盟（EcoHealth Alliance）对啮齿动物的”重组”新冠病毒，进行了新的研究；该论文将中共国政权以及乔·拜登的国际发展部（Joe Biden’s International Development）列为这项危险研究的资助者和支持者。
 
-**关注我们**
+10 月的[文件](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)——“一种新型的潜在重组的啮齿类动物新冠病毒，在其刺突蛋白中具有多碱基切位点（Polybasic Cleavage Site）”——描述了研究人员如何对从野外收集的啮齿类动物和鼩鼱进行采样，以了解冠状病毒的流行情况。在 COVID-19 之前的几年里，武汉病毒研究所进行了类似的考察，以收集有关蝙蝠的[数据](https://thenationalpulse.com/2021/06/13/footage-reveals-live-bats-in-wuhan-lab/)。
 
-Discord 账号
+武汉实验室的研究人员与美国非营利性的生态健康联盟合作，利用收集的样本发现——他们吹嘘的“[杀手](https://thenationalpulse.com/2021/06/08/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)”病毒（COVID-19）能够“[直接](https://thenationalpulse.com/exclusive/wuhan-report-boasted-of-human-infecting-covid/)感染人类”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+这篇新论文统计了来自七家中共国国有科学机构，其中包括一名隶属于武汉病毒研究所特殊病原体和生物安全实验室的[研究人员](https://journals.asm.org/doi/epub/10.1128/JVI.01173-21)；该篇新论文是由三名生态健康联盟的研究人员所撰写， 其中包括 CEO 彼得·达扎克 (Peter Daszak)。《国家脉动》此前已经透露了 Daszak 与中国共产党的关系非常广泛，促使他因利益冲突而从《柳叶刀》的COVID-19委员会[除名](https://thenationalpulse.com/2021/06/21/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)。
 
-Gettr 账号
+“在这项研究中，我们测试了从中国南方城市和农村地区收集的近 300 只啮齿类动物，”该论文总结了其方法，得出以下结果：在这里，我们从中国南方的三个城市取样了297只啮齿类动物和鼩鼱，代表8个物种。我们报告广州和桂林的新冠病毒流行率分别为23.3%和0.7%，城市地区的样本新冠病毒流行率明显高于农村地区的样本。我们从诺维谷鼠（Rattus norvegicus）中获得了三个冠状病毒基因组序列，包括一种贝特科罗纳病毒（Betacoronavirus，rat coronavirus，大鼠冠状病毒[COV]GCCDC3）、一种阿尔法科罗纳病毒（Alphacoronavirus，RCOV-GCCDC5）和一种新型贝特科罗纳病毒（novel Betacoronavirus，RCOV-GCCDC4）。重组分析表明，有一个潜在的重组事件涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和 Longquan Rl 大鼠冠状病毒（LRLV）。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+“重组分析表明，存在一个涉及RCOV-GCCDC4、小鼠肝炎病毒（MHV）和Longquan Rl 大鼠冠状病毒（LRLV）的潜在重组事件。此外，我们在RCOV-GCCDC4的刺突（S）蛋白中发现了一个多碱基切位点RARR，它在RCOV中占主导地位，”论文补充说。
+
+该论文的财政支持者中有几个中国共产党管理的科学机构，包括那些与该中共军方有[联系](https://thenationalpulse.com/2021/06/21/nih-signed-mou-with-chinese-science-org-funding-pla/)的机构。乔·拜登总统的美国国际开发署（USAID，[如下图](https://www.scribd.com/document/550016400/JVI-01173-21)）也资助了武毒所研究的实地动物采样部分。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1982.png)
+
+新闻来源：[thenationalpulse.com] [Biden and China Are Partners in a New Wuhan Lab, EcoHealth Hunt for ‘Recombinant’ Rodent Coronaviruses.](https://nypost.com/2021/12/28/chinese-residents-starving-as-worlds-strictest-covid-lockdown-bans-them-leaving-home/) | 发布时间：2021年12月31日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-6.jpeg)
+
 
  
 

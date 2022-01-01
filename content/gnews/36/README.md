@@ -2,24 +2,32 @@
 ---
 
 
-## 15个成员国签署全球最大自贸区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1808612/)
+## 拜登政府宣布将解除对非洲八国的旅行禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1808894/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1963.png)[图片来源](http://hanoitimes.vn/rcep-regional-free-trade-pact-with-profound-impacts-on-the-world-314977.html)
-北青网12月31日报道，据中共央视报道，2022年1月1日，目前全球最大的自贸协定——《区域全面经济伙伴关系协定》（RCEP）将正式生效实施。这也是中共和日本首次达成自贸安排。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月28日，据有关媒体消息显示，美国总统拜登当天宣布，他将在本周解除对来自南非和非洲其他国家的旅行禁令。另外，拜登总统也在一份公告中明确，旅行限制不再是保护公众健康所必需的措施，其将于本月31日结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-31-下午11.32.31.png)
+据悉，美国白宫在11月29日曾宣布，禁止来自南非、纳米比亚、莫桑比克等八个非洲国家的非美国公民入境。
 
-RCEP共计15个成员国，包括中国、日本、韩国、澳大利亚、新西兰5国以及东盟10国。目前，6个东盟成员国和4个非东盟成员国正式提交核准书，达到协定生效门槛。根据协定规定，RCEP将于2022年1月1日对已正式提交核准书的10国生效。
+但拜登总统对此表示，基于美国疾病控制与预防中心的建议，他此次做出了取消旅行限制的决定。他补充道，目前中共病毒奥密克戎变种已经扩散至包括美国在内的100多个国家，但其威胁程度比最初全球所担心的有所降低。另外，美国的研究人员对奥密克戎变种的了解也取得了实质性进展。 因此，此项限制将不再必要。
 
-报道称，中日两国首次达成自贸安排，特别是明年中共国对日本出口57%的税号产品将立即实现零关税，《区域全面经济伙伴关系协定》是亚太地区规模最大、最重要的自由贸易协定谈判，达成后将覆盖世界近一半人口和近三分之一贸易量，成为世界上涵盖人口最多、成员构成最多元、发展最具活力的自由贸易区。
+参考链接：[已無必要 拜登宣布解除非洲8國旅行禁令](https://cn.rti.org.tw/news/view/id/2120693)
 
-CCP病毒世界蔓延，中共以零关税贸易协定捆绑更多国家，再多的贸易也难以掩盖中共经济的崩溃，中共灭亡是必要的结果。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-信息来源：[RCEP生效实施助力稳外贸  中日两国首次达成自贸安排](https://t.ynet.cn/baijia/31981980.html?sdkver=2c9d920d)
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,42 @@
 ---
 
 
-## 七哥谈可怜可恨的中国人（2021-12-29摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1809667/)
+## 因奥米克戎和恶劣天气 达美与阿拉斯加航空取消数百航班
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1809735/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-34.png)
+据《路透社》报道，因恶劣天气和奥米克戎（Omicron）变体病例的上升，截至美国东部时间14点（格林尼治标准时间19点），美国境内、进入或离开美国的航班取消了1034架次，有2694个航班延误，这是航班取消的第五天。
 
-来源：郭先生2021-12-29直播09：20：45摘录
+周一，太平洋西北地区的大雪天气导致超过110个原定在西雅图-塔科马机场降落的航班被取消。
 
-悲哀啊。好，我是不宜多说，说完心都疼啊，真能把我自己的牙给咬下来！你不知道我有多生气呀！我说到这我脚都在出汗，我跟你说，就中国人可怜可恨到了我这一说脚都生气，哪有这么一个14亿的民族人这话你听不进去，一个个苟且偷生。算了，不说了，你们说。
+感染率上升导致飞行员和机舱人员隔离，也迫使许多航班被取消。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+疾病预防控制中心周一表示，如果受感染的美国人没有症状，隔离时间从之前的10天缩至5天。此举可帮航空公司和其他企业缓解人员短缺问题。
 
-**关注我们**
+美国航空公司达美航空（DAL.N）表示，预计周二，将取消原预定4133个班次中的250多架航班。并表示，正努力重新安排路线并替代一些飞机。
 
-Discord 账号
+阿拉斯加航空公司表示，已取消170个网上预定航班，并警告整个星期会有更多航班取消和延误。周三、周四，将西雅图出发航班减少约20%，以便有更多时间为飞机除冰，这是在冬季天气中的一项要求。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+美国疾病控制和预防中心周二表示，目前没有考虑政府最高传染病专家安东尼-福奇博士前一天的建议，即对国内航班强制接种疫苗。
 
-Gettr 账号
+根据路透社的统计，在过去七天里，美国的COVID-19新病例平均上升了55%，每天超过20.5万例。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒COVID-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+[新闻来源链接](https://www.reuters.com/business/aerospace-defense/delta-air-lines-cancel-over-250-flights-2021-12-28/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
+
 
  
 
