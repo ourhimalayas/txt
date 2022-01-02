@@ -2,103 +2,46 @@
 ---
 
 
-## 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813825/)
+## 习近平新年致辞无视残忍的封城和新冠病毒应对失策
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1813878/)
 
-[https://gtv.org/video/id=61d07c29fb16a93456c037ec](https://gtv.org/video/id=61d07c29fb16a93456c037ec)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010109.jpg) 图片：Han Guan摄 /美联社
+中共独裁者习近平周五在新年致辞上庆祝中共在新冠病毒上的应对。他忽视了一点：由于中共处置不当，这个国家当下正在经受自疫情开始以来最严重的一次新冠病毒爆发。
 
-**郭文贵**
-**Miles Guo**
+中共病毒2019年底起源于中共中部城市武汉——中共外交部对这个事实多次否认，反而抛出一个未经证实的阴谋论，说病毒源自美国的马里兰州。一年前，中共满腔热情地晒出庞大人群摩肩接踵在武汉庆祝新年的图片——这标志着对疫情取得了胜利。国际传媒公司报道了那次庆典，但基本上都未能跟进报道两周后在全国各地爆发的新冠病例。
 
-咱们很多人来看这个问题时候，对阿富汗人讲是个灾难
-When many of us look at this issue that it’s a disaster for the Afghans
+如出一辙，中共10月份在全国宣扬“红色旅游”以庆祝其建党纪念日，这导致来自上海的一个旅游团将中共病毒传到北方的多数省份，爆发迅速地波及至少10个省。然而中共官方没有确认两者之间存在关联。继新冠病毒在内蒙古爆发后，北方陕西省的省会西安发生了更大规模的爆发。这促使官方在平安夜的前一天封锁了这座拥有1300万人口的城市。
 
-对待很多人道上绝对是灾难，我有很多朋友，你也知道我一直关注这个事情
-It is definitely a disaster for humanity, I have many friends there and you know that I have been following this matter
+截至本周，惊恐的西安居民已经开始在社交媒体上表达不满，说官方不允许他们出门购买食物，任由他们挨饿，因为供应短缺。
 
-但作为美国来讲，说实在话一定要看到
-But to be honest as the United States is concerned, we must see
+“这越来越荒谬。这辈子我从没想到过将来我会因为没有食物吃而无法睡觉，” 本周来自西安一位居民的微博评论。微博是中共政府办的社交媒体机构。
 
-阿富汗将近从过去的1000多万人到2000万人口，到最后美国在那儿驻军
-Afghanistan has grown from a population of more than 10 million in the past to a population of 20 million, to the end where the United States stationed troops there
+习在应对新冠爆发上没有扮演公众角色（没有证据显示他曾经采取何种方式去控制病毒），他在新年致辞中半点儿都没提到这个国家笼罩着的阴沉气氛。习声称过去的2021年，中共“在通往中华民族伟大复兴的道路上，自信地大步前进”，并描绘了一个快乐的、没有疾病的一年。习还特别宣称世界称赞中共国（疫情发源地）对疫情的应对。
 
-每年花了几千亿进去，到变成了将近5000万人口，人口增长
-that US has spent hundreds of billions dollars in there every year, and it has become a population of nearly 50 million, the population has grown
+周五。新华社把习在新冠疫情上蹩脚的领导力夸奖成为世界上其它国家“照亮了前进的道路”。新华社没有提到，在习的领导下，中共国故意无视海牙国际法院的裁决，正在实施持续的种族灭绝，并且是世界上最糟糕的污染国。
 
-塔利班才多少人，号称所谓80万大军，实际上就30几万人
-How many are the Taliban? The so-called 800,000 army is actually only 300,000 people
+**简评：**
 
-一个5000万人的国家，被30万人给蹂躏着要饿死一半人
-A country of 50 million people are ravaged by 300,000 people and half of them will starve to death
+中共是一个流氓犯罪集团，流氓没有法律道德底线。了解这一点可以帮助了解中共一贯的行事风格。希望中共一贯的行事风格不是让你麻木，而是让你清醒：中共无论编造什么样的谎言，无论怎么粉饰太平，都是为了延续它的存在，而这个存在必然以中国人的血为代价。
 
-就像我们中国人，14亿人被所谓的3000多个人民代表和中央政治局被七个常委就给全国人民
-Just like us Chinese people, 1.4 billion people are represented by the so-called more than 3000 people’s representatives and the whole nation is represented by the Political Bureau of the CPC Central Committee by seven Standing Com-mittees
+新闻链接：[Xi Jinping Ignores Brutal Lockdowns, Coronavirus Failure in New Year’s Address](https://www.breitbart.com/asia/2021/12/31/xi-jinping-ignores-brutal-lockdowns-coronavirus-failure-in-new-years-address/)
 
-宇宙无限大，地球是一粒沙，全给强奸了，一睡就睡了70年
-The universe is infinitely large, and the earth is a grain of sand, the whole country’s people are all been raped by CCP, and has been ravaged for 70 years
+*翻译/简评: 乡间小路*
 
-同样的悲哀的结果，凭啥美国人要让你阿富汗强大我拿钱
-The same sad situation, why the Americans want spend money to make Af-ghanistan（China） strong
+*校对：clau*
 
-美国再在阿富汗待下去，你知道什么结果，你觉得会有什么结果
-If the U.S. stays in Afghanistan, you know what the outcome will be, what do you think will be the outcome？
+* * *
 
-从这个道德上讲，绝对是不对的，从任何角度讲
-From this moral point of view, it is absolutely wrong about the withdrawal, from any other point of view
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-从阿富汗撤出，美国撤出是符合美国利益
-the U.S. withdrawal from Afghanistan is in the interests of the United States
 
-更重要的事情美国除了经济问题，除了战略问题，美国是真的再往下弄下去
-The more important thing is that in addition to economic issues and strategic issues, if the United States is really staying further
+编辑：【英国伦敦喜庄园编辑部】
 
-美国知道在阿富汗这个地方，美国会深陷其中，而且美国绝对是就是20年的计划
-The United States knows that in Afghanistan, the United States will be stuck in it, and the United States is definitely only has a 20-year plan
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-就是要对付，要把伊朗、中国共产党这个彻底改掉
-It is to completely get rid of Iran and the Chinese Communist Party
 
-把整个中东的整个局势彻底改变，它没有那么多精力和金钱，不可能的
-Completely change the entire situation in the entire Middle East, it doesn’t have so much energy and money, it’s impossible
-
-美国这已经搞了30年就准备好打赢绝对打赢一场战争，准备同时打两场战争
-The United States has been doing this for 30 years and is ready to win a war, and is ready to fight two wars at the same time
-
-在阿富汗你就同时在一场战争中，你怎么可能
-In Afghanistan you are in a war at the same time, how could you do it?
-
-你5000万多阿富汗人，干不掉30万多这小块, 加一起不过10万人的那些所谓的人
-More than 50 million Afghans can’t get rid of the small piece of more than 300,000 and the so-called Taliban who are less than 100,000
-
-都不会打的，吃都能把它吃了，甭说打了
-Afghans don’t need to fight, they can eat them alive, not even mention to fight
-
-所以回答这个问题很简单，美国的安全和战略经济的基本需要
-So the answer to this question is very simple, the basic needs of American secu-rity and strategic economy
-
-和阿富汗现在即将触发的巨大的问题
-and the huge problems that Afghanistan is about to trigger
-
-**原视频链接**: [https://gettr.com/post/pl3i1mb248](https://gettr.com/post/pl3i1mb248)
-
-Date: 12/31/2021
-原视频标题: 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-The withdrawal of troops from Afghanistan is in the interests of the United States and is also conducive to dealing with evil forces such as the CCP
-原视频日期：2021/12/29
-原视频链接 https://gettr.com/post/pl3i1mb248
-任务编号：KC385（3375）
-视频时间段 : 0:00-2:14
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

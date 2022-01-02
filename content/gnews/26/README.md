@@ -2,17 +2,11 @@
 ---
 
 
-## 青蒿素是神药 修复基因 杀癌细胞等
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1813800/)
+## 日本天皇发表新年贺词关怀中共病毒下民生疾苦
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1813839/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
-
-12月29日，郭文贵先生在GTV大直播指出：
-
-青蒿素、依维菌素在病毒和疫苗灾难中拯救着人类，青蒿素是神药。据专家信息，青蒿素的最大功能是可以修复基因缺陷，因此有一些人服用青蒿素后会出现头晕等症状。专家还指出，青蒿素对癌症、糖尿病、中风和妇科病具有明显疗效，尤其对身体中的癌细胞有清除和抑制作用。
-
-*编辑：东京樱花团/墨然
+![](https://assets.gnews.org/wp-content/uploads/2022/01/d601605ebe8d870af58f11ad03534225.jpg)
+*编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
