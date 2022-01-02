@@ -2,32 +2,28 @@
 ---
 
 
-## 中共政府从西方社交媒体收集了大量数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
+## 西安防疫人员群殴购买食物饥饿居民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814907/)
 
-者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+台媒1月1日消息，近日墙内社交媒体传出一段惊人影片，西安市雁塔区南窑头村一名男子，因为无法忍受饥饿，下楼买馒头，却遭到防疫人员群殴。该被打男子无力反击，最后被防疫人员掐脖摔倒，馒头也洒落一地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2-scaled.jpg)
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+此残忍画面被迅速转发，点击量迅速飙升。墙内网民纷纷感叹，此次疫情过后，将有许多人会选择离开西安。也有人指责，中共治下的大陆，只要手中握有一丁点权力的人，就会想方设法把权力用到最大。更有网友一针见血地指出，被打男子冒险外出的原因，是在小区买不到食物，而政府根本不管。
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
-
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
-
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+至今，西安已进入第10天封城状态。大量民众抱怨，中共当局封门禁止外出购买食物，更没有物流配送，家中早已断炊。
 
 参考链接：
 
-- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
+- [太慘了！西安居民封城多日餓壞 下樓買饅頭還被防疫人員圍毆](https://news.ltn.com.tw/news/world/breakingnews/3786764)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：DM
+编辑：DM
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

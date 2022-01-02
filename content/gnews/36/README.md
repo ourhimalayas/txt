@@ -2,43 +2,30 @@
 ---
 
 
-## 日本将协助比尔・盖茨在美国建造实验性核反应堆
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814438/)
+## 加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814444/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-1.jpg)图片来源：每日邮报
+据《每日曝光》（Daily Expose）2021年12月31日报道，在南加州的医院，因新冠疫苗导致的病患人数越来越多。少数勇敢的护士挺身而出，讲述了他们所目睹的情况。
 
+在位于洛杉矶北部的本图拉县 (Ventura County)，当地医院“不明原因”的心脏疾病、中风和血栓病例正在激增，但许多医生拒绝认为这些疾病与新冠疫苗有关。
 
+在本图拉县一家重症监护室工作的护士萨姆（Sam）决定向媒体《Conejo Guardian》说出他对此事的担忧。他说：“我厌倦了所有正在发生的事，因为医疗机构继续拒绝承认新冠疫苗的弊远大于利。没有人对此提出质疑，这太疯狂了。在接种新冠疫苗后，患有严重健康问题的年轻人明显增多。已经有很多年轻人前来就诊，我们看到了很多中风和心脏病患者。在一个案例中，一名38岁妇女的大脑出现了闭塞，血液流动受阻。我们知道新冠疫苗会导致血栓，她接种了两剂疫苗，但没有任何医生将其中风症状与疫苗联系起来！他们只说这症状无法解释，这真的很荒唐！另一个例子中，一位以前没有心脏病史的63岁妇女突然患上了心脏病。检测显示她的冠状动脉是清晰的，然而她刚刚接种了莫德纳的新冠疫苗。一位医生实际上对新冠疫苗提出了质疑，但他们没有在病历中提及这一点，因为无法证明。”
 
-图片来源： dailyenergyinsider.com
+萨姆补充说，该地区所有的医院都目睹了心肌炎病例的大幅飙升。新冠疫苗的副作用包括心肌炎，这一点已广为人知并被广泛报道。“但是每个人都想淡化这一问题，医生们不愿意质疑它和对此发出警告，甚至不愿讨论它，他们表现得好像无法找到病症原因，认为其是自发的。”
 
+另一位在重症监护室工作的护士达娜（Dana）说：“我所在单位从未如此繁忙，但没有一个病人是新冠患者。我们通常不会看到同时出现这么多的中风、动脉瘤（aneurysms）和心脏病患者。一般情况下，我们每年会看到六到十个急性主动脉夹层 (aortic dissection）病例，但在上个月我们就看到了六个，这很疯狂。这些疾病的死亡率非常高。”
 
-#### 编译：小红帽
+与萨姆的医院一样，达纳所在医院的医生们甚至不会考虑新冠疫苗导致了心脏相关疾病患者突然增加。相反，这些“卫生专家”将其归咎于“假期”等因素。
 
-根据RT1月1日报道，**两家日本工业巨头正计划与比尔・盖茨的风险投资公司合作，为将在美国怀俄明州建造的一个高科技核反应堆提供技术支援。**
+护士们说，这些病人中的大多数已完全接种了新冠疫苗。
 
-日本《读卖新闻》周六援引多位知情人士的话报道称，双方预计将在1月签署一项协议，由日本原子能机构（JAEA）和三菱重工提供工业援助和日本自己的先进反应堆的数据。
+新闻来源：
 
-盖茨建立的核电企业TerraPower计划最早于2028年在怀俄明州开设Natrium工厂，美国当局将提供资金以支付该项目的一半，估计为40亿美元。
-
-一座使用钠作为冷却剂、输出功率为34.5万千瓦的快速反应堆，其建设工程将于2024年开始。
-
-盖茨的风险公司最初计划与国有的中国核工业集团合作，但美国前总统唐纳德・特朗普推出的对与北京的核交易的限制迫使该公司放弃这一计划。美国与中国和俄罗斯的竞争由来已久，后者也在酝酿建造和出口先进反应堆的计划。
-
-日本原子能机构拥有丰富的钠冷快堆运行经验，如福井县的文殊原型快堆和茨城县的常阳实验快堆，将多次向TerraPower提供运行数据和设计。
-
-日本曾在2016年退役其文殊原型先进反应堆的痛苦经历，该项目耗资85亿美元，但收益甚微，而且多年来一直存在争议。文殊设施自成立以来就发生了事故、违反监管规定和掩盖事实。2011年福岛核灾难发生后，该反应堆被关闭。
-
-新闻来源：[Japan to assist Bill Gates in building experimental nuclear reactor — RT Business News](https://www.rt.com/business/544950-japan-bill-gates-nuclear-reactor/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[Nurses Blow Whistle on Staggering Number of Heart Problems and Strokes in The Fully Vaccinated](https://dailyexpose.uk/2021/12/31/nurses-blow-whistle-on-staggering-number-of-heart-problems-and-strokes-in-the-fully-vaccinated/)
 
  
 

@@ -2,26 +2,46 @@
 ---
 
 
-## 美国日感染中共病毒变体奥米炕病例即将达到高峰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814529/)
+## 美国机场继续陷入混乱，超过2600个航班被取消
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814584/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-5.jpg)图片来源：BBC
-1月1日，《新闻极限》报道，哥伦比亚大学研究人员估计，到1月9日，美国的中共病毒（COVID-19）变体奥米炕（Omicron）病例将可能达到高峰，介于周感染250万至540万例之间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor-1.jpg)
 
-领导哥伦比亚大学建模工作的流行病学家杰弗里·沙曼（Jeffrey Shaman）告诉《纽约时报》说：“这非常令人震惊和不安，我们正看到前所未有的COVID-19（中共病毒）感染病例的发生。”
 
-上个月，华盛顿大学的一个研究小组的另一个建模研究估计，美国的奥米炕病例将在1月底达到高峰，但该模型的研究人员认为该中共病毒变体的快速传播可能导致感染高峰在1月中旬之前到来。
 
-而哈佛大学陈曾熙公共卫生学院（Harvard TH Chan School of Public Health）的流行病学家威廉·汉纳奇（William Hanage）则评论说，感染奥米炕的病例增长数量如此之快，已经没有必要通过建模来预测了解医院的情况。他认为“医院资源紧张，我们没有那么多闲置能力，当然，奥米炕令这种情况更加糟糕”。
+图片来源：thethaiger.com
 
-埃默里大学（Emory University）流行病学家娜塔莉·迪恩（Natalie Dean）认为，在纽约这样的大城市，随着中共病毒感染完能够感染的人，新的感染病例将下降更快。
 
-**新闻来源：**
+#### 编译：小红帽
 
-[Study Predicts Omicron Peaks Jan. 9](https://www.newsmax.com/us/omicron-covid-pandemic-coronavirus/2022/01/01/id/1050664/)
+根据半岛电视台1月2日报道， **美国的航空旅行继续受到严重干扰，该国部分地区的恶劣天气加剧了由Omicron变种引发的新冠病毒（COVID-19）感染激增的影响。**
+
+根据追踪网站FlightAware的数据，美国周六时间下午4:30（格林尼治标准时间21:30）后，有2，604个航班被取消，占全球取消的4，529个航班的一半以上。
+
+在国际航空公司中，中国东方航空公司取消了500多个航班，约占其总数的四分之一；中国国际航空公司取消了200多个航班，占其时间表的五分之一。
+
+美国取消的航班是自圣诞节前夕航空公司开始宣布因机组人员感染新冠病毒而导致人员短缺以来最高的单日死亡人数。
+
+根据该网站，受影响最严重的美国航空公司是西南航空公司，该公司不得不取消全国范围内的450个航班，占其航班计划的13%。
+
+美国航空和达美航空各取消了200多个航班，联合航空取消了150多个航班。奥黑尔机场有800多个航班被取消，中途岛机场有250多个航班被取消。
+
+自12月24日以来，已有超过12，000个美国航班被取消。
+
+全球航空旅游业仍在为高度传染性的Omicron变种而影响。许多飞行员、空乘人员和其他工作人员在感染新冠病毒后缺勤，或在与感染者接触后被隔离。
+
+新闻来源：[US airport chaos continues as more than 2,600 flights cancelled | Coronavirus pandemic News | Al Jazeera](https://www.aljazeera.com/news/2022/1/2/us-airport-chaos-continue-as-more-than-2600-flights-cancelled)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
