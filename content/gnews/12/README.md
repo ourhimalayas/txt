@@ -2,74 +2,70 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗导致的死亡是过去其它疫苗的71倍以上！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1815664/)
+## 人们正在醒来 加州正在回归
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1815730/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-96.png)杰克·希布斯牧师于 2021 年 12 月在亚利桑那州凤凰城的 “美国转折点 ”（TurningPointUSA）活动上接受《大纪元时报》采访。
 
-根据霍普金斯大学的统计数据，截止至美东时间2022年1月2日10时22分，全世界总共已经有9,176,406,933剂中共病毒疫苗被注入人体，相当于全世界7,917,522,187人中，平均每人被注射1.16剂中共病毒疫苗。美国已向公众注射505,424,423剂疫苗，一针、两针、加强针接种率分别为73.35%、61.51%、20.69%。
+高犯罪率、州长长期严格的封锁令、高税收、高生活成本、城市中到处是无家可归的流浪者……加利福尼亚似乎已经失去了曾经的吸引力，越来越多的人正在离开。然而，牧师杰克·希布斯(Jack Hibbs)看到了金州的希望，并相信它会返璞归真。
 
-然而，尽管疫苗接种率如此之高，中共病毒祸害人类的速度不但没有停止，反而是不断飙升，目前全球有289,445,627人被感染，5,442,158人被中共病毒杀死，美国有54,894,787人被感染，825,865人死亡。说明目前实验性的中共病毒疫苗（又称Covid-19 Vaccine或Covid-19疫苗），完全不符合疫苗的临床要求，全世界接种这些疫苗的人们，事实上正在充当这种实验性疫苗的小白鼠。世界各国的统计数据分析表明，接种中共病毒疫苗，既不能预防病毒感染，更不能减少死亡，接种Covid-19疫苗，只会造成更多的感染和死亡。
+“我认为我们已经触底，我们正在回归，”希布斯上周在凤凰城举行的“美国转折点”活动中告诉《大纪元时报》。
 
-中共病毒疫苗灾难，带来的无穷无尽的后果！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Lives-destroyed-in-2021-from-COVID-Vaccines.jpg)
-美国VAERS统计数据表明，接种实验性Covid-19疫苗，导致的疫苗副作用报告是过去32年所有疫苗造成的年平均数的36.97倍，死亡人数的71.24倍。
+希布斯是全国著名的牧师，也是“各各他教堂” 加略山的创始人(1)，他是前总统唐纳德·川普福音派团队的一员。在过去的一年半里，他因反对封锁、关闭教堂和强制接种疫苗的坚定立场而成为头条新闻。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/All-Deaths-Reported-to-VAERS-by-Year.jpg)
+(注释1：加略山教堂不是一个教派，而是志同道合的教会的附属机构。因此，各各他教堂的信仰因教堂而异。然而，作为一项规则，各各他教堂相信福音派新教的基本教义，但拒绝一些不符合圣经的教义。)
 
-而根据VAERS的查询结果，截止至2021年12月24日，在要求民众接种试验性Covid-19疫苗后的第一年，VAERS 报告了1,000,229例疫苗副作用事件，因接种疫苗副作用死亡21,002人。
+“加州曾经是填充的堡垒，繁荣的堡垒，加州悠闲的生活方式，它是创新的地方……除此之外，加州是全国唯一可以夸耀是充满使命的州，”希布斯说，并指出，现在加利福尼亚已经严重败落，变成了全国的笑柄。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Cases-where-Vaccination-is-Covid-19.jpg)
+然而，希布斯相信并看到人们正在觉醒。 “信不信由你，人们来到加利福尼亚，或回到加利福尼亚做正确的事情，那就是再次夺回他们的家园。”
 
-而自VAERS系统建立以来到2021年12月24日共32年间，排除Covid-19疫苗后的其它疫苗副作用报告总数为865,684 例，死亡9,434人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Cases-where-Vaccination-is-All.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Cases-Table-where-Vaccination-is-All.jpg)
+12 月 15 日，加州政策实验室的一项新研究发现，越来越多的人搬出该州——比大流行前多 12%——尤其是湾区。然而，研究表明，也有人搬入该州，只是比大流行前的水平低了 38%。
 
-也就是说，Covid-19试验性的疫苗在过去一年中造成的疫苗副作用报告比过去32年其它所有疫苗造成的疫苗副作用报告还多出1,000,229-865,684=134,545例。
+“在过去的两年里，我们只是在成长，”希布斯说，指的是他的教会。 “我们已经有成千上万的人加入了教会。星期六，我们为 3,000 人施洗。为什么？因为人们在寻找真相，于是他们发现，在遇到麻烦的日子，仅仅一条温暖的、让人感觉良好的、秘密类型的信息，并不能回答你的疑问。在患难之日，上帝的话语应允你。所以，这就是我们的全部，这就是为什么我们看到了回应。”
 
-Covid-19试验性的疫苗在过去一年中造成的死亡事故报告比过去32年其它所有疫苗造成的死亡事故还多出21,002-9,434=11,568人。
+希布斯的网站称，他的教会每周通过每日媒体外展计划，向园内的一万多人和全球数百万人提供服务。
 
-据此可得下表计算结果：
+去年 7 月，当州长加文·纽森 (Gavin Newsom) 宣布教堂必须再次关门时，希布斯说：第一次关闭教堂就是错误的，他再也不会关闭教堂了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/VAERS-Report-for-Cases-and-Deaths.jpg)
+希布斯说，他向州长办公室发送了一段视频，说：“如果你要关闭教堂，你必须亲自来关。”
 
-如果您还觉得上面的1990~2001年共32年间的其它疫苗数据不一定精确，对比说服力还不够，下面选用美国政府卫生与公众服务部（[Health Resources & Services Administration](https://www.hrsa.gov/)）发布的国家疫苗伤害赔偿计划（National Vaccine Injury Compensation Program，VICP）报告的数据进行对比分析。
+后来纽森败诉，国家不能再对教堂服务施加歧视性的**COVID-19 **限制。
 
-2006年1月1日至2014年12月31日9年期间，在这美国总共接种了2,532,428,541剂（超过25亿剂）疫苗，这包括整个CDC儿童免疫接种计划和年度流感疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/VICP-Adjudication-Categories-by-Alleged-Vaccine.jpg)
-而根据VAERS数据库搜索结果，2006年1月1日至2014年12月31日之间，FDA批准的疫苗导致的副作用报告为272,681例，死亡2,204人。
+“为什么我们是最繁荣的国家？为什么我们是最自由的国家？为什么打疫苗或者不打疫苗会有这么大的争执？我们现在开始解决这个问题，因为我们是美国人，”希布斯说道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Cases-where-Vaccination-Date-from-2006-1-1-to-2014-12-31.jpg)
+希布斯支持海军海豹突击队队员，他们已提起诉讼以寻求 COVID-19 疫苗的宗教豁免。他要求他的会众为“第一自由学会”（ First Liberty Institute ）（2）祈祷，这是一家致力于捍卫宗教自由，并代表海军海豹突击队的非营利性公共利益律师事务所。
 
-根据美国CDC（Centers for Disease Control and Prevention的报告，从2020年12月14日到2021年12月20日，美国共接种了4.96亿剂COVID-19疫苗。
+（注释2：“第一自由学会”是美国最大的非营利性法律组织，专门致力于捍卫所有美国人的宗教自由。）
 
-据此可得下表计算结果：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-98.png)在 COVID-19 大流行期间，信徒聚集在加利福尼亚州奇诺岗的各各教堂的院子里服务（Calvary Chapel Chino Hills 提供）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Percentage-of-Adverse-Events-per-Vaccine-Doses-Administered-scaled.jpg)
+“我有孩子，我有孙子孙女，这就是我战斗的原因，”希布斯说。
 
-根据上表对比结果，目前试验性的Covid-19疫苗导致严重的后果。2021年毫无疑问是各种中共病毒疫苗对全世界人民进行大屠杀的一年。
+当希布斯小时候在加利福尼亚州奥兰治县上学时，他们在课堂上有圣经和祷告，他们在教室里宣誓。但后来，墙上不再允许出现圣经或十诫。
 
-世界各地的强制疫苗护照和鼓励人们打中共病毒疫苗的政客们，小心成为危害人类罪的帮凶。如果人民不起来拒绝这种毒疫苗，2022年的情况只会变得更糟。
+“你看看数据，看看接下来的几十年的变化，这不都是在退化，”希布斯补充道。
 
-消灭中共病毒的关键，在于消灭CCP，没有中共不断投毒，Covid-19病毒很快就会消失！
+希布斯认识到，传统媒体已将人们带到事物的阴暗面。
 
-参考数据：
+“我们现在开始挑战错误的叙述，”希布斯说。 “所以不要灰心！我会告诉人们，要对你听到的东西非常挑剔。并确保，消息来源除了带来真相外，没有其他目的。”
 
-[COVID-19DashboardbytheCenterforSystemsScienceandEngineering(CSSE)atJohnsHopkinsUniversity(JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+“坚持正确和真实的事情，”希布斯说。 “圣经称之为公义——不要让这个词吓到你——它只是意味着做正确的事情：反对推文、反对博客、反对任何恐吓，做正确的事情。”
 
-[VAERS COVID Vaccine Mortality Reports](https://openvaers.com/covid-data/mortality)
+“归根结底，做你认为正确的事情，你会睡得很好，你会变得无所畏惧，因为你做了正确的事情。”
 
-[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
+**评论：这也是为什么新中国联邦的人们这么无所畏惧，四年来坚持揭露中共邪恶真相，因为这就是我们认定的正确的事情：消灭中共不仅是正义的需要，更是人类生存的需要！**
 
-[Worldometers](https://www.worldometers.info/tw/)
+新闻来源：[theepochtimes.com] [People Are Waking up and California Is Coming Back: Pastor Jack Hibbs](https://www.theepochtimes.com/people-are-waking-up-and-california-is-coming-back-pastor-jack-hibbs_4187901.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-02)
 
-[VICP Adjudication Categories, by Alleged Vaccine,  For Petitions Filed Since the Inclusion of Influenza as an Eligible Vaccine for Filings 01/01/2006 Through 12/31/2014](https://www.hrsa.gov/)
+* * *
 
-[National Vaccine Information Center Your Health. Your Family. Your Choice.](https://medalerts.org/)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
