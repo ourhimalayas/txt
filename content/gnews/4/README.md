@@ -2,55 +2,57 @@
 ---
 
 
-## “美国归来”华盛顿将举行反医疗暴政大游行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814714/)
+## 当你是狮子王的时候你就注定是孤独的，因为你与众不同
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814740/)
 
-翻译： Jenny Ball
+**郭文贵先生：**就刚才Bunny的话对我是很有触动的，他在学校他被列为另类，神经不正常，在中国这社会多悲哀啊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-65.png)图片来源 : creativedestructionmedia.com
+任何一个好人无论是官员无论是商人你都会被视为另类，你觉得我在中国是不是另类？你见我跟中国任何的大亨有任何合资来往吗？你见我跟任何名人有什么样这样的来往吗？我更是另类。
 
-在接下来的几周内，包括小罗伯特·肯尼迪 (Robert F. Kennedy) 的儿童健康保护组织在内的团体，将联合起来对抗华盛顿特区的医疗暴政。
+这恰恰的我刚才没跟Bunny说完的话，我希望Bunny能记住。不是新中国联邦证明了我们多伟大，你要（记住）一个最简单的比喻。我喜欢动物世界，非洲大草原，你到坦桑尼亚大草原，大迁移的时候你看看，狮子它会在乎蛇和鬣狗的看法吗？
 
-新闻稿如下： 美国归来
+鬣狗可热闹了，一群一群的，狮子从来就不会尿它，直接冲过去就摁倒脖子给它拧断它。狮子永远是大草原的王，豹子叫二哥，是吧。三哥叫鬣狗，你觉得改变过这规则吗？当你是狮子王的时候，你注定就是孤独的，而且你要享受这种孤独，珍惜这种孤独，因为你与众不同。
 
-2022 年 1 月 23 日 / 华盛顿特区
+无论是在哪里，在学校、在社会上，当你发现很多人跟你不入群儿的时候，你告诉你自己，你成功了。就像我从小到大一样，我从来不在乎别人怎么看我，我买摩托车的时候人觉得我是疯子，我买汽车觉得我是疯子，是吧。
 
-**1 ****月 ****23 ****日**，数千名反抗疫苗授权的人们，包括医生、护士和医生在内的所有关心此事的公民——黑人、白人、亚洲人、西班牙裔，接种疫苗的人们和未接种疫苗的人们，民主党和共和党——将在华盛顿[和平游行](http://www.defeatthemandatesdc.com/)，反对Covid 疫苗授权。
+我到处欠了人家啤酒钱、烧鸡钱、肉钱，是吧，好几年后，从清丰看守所还有找我要钱的呢，都觉得我是骗子，我从来不在乎，因为我从来没想骗过人。就像我开始爆料革命，说我是骗子，什么这啊那，什么词儿都冠在我脑袋上，你受半点儿影响你都不会走到今天。
 
-**组织者将这项活动命名为“美国归来”，并强调，游行者并不是反对接种疫苗的人，他们中的许多人都接种了****Covid****疫苗，但他们反对强迫人民接种疫苗。**
+你想想那个高冰尘，黄河边，那个Isobel杨采访完以后，他（黄河边）第一个话说，这是个泼皮，有人发给我。你说这种烂崽，老婆都被别人给戴绿帽子戴走了，在身边儿给抢走了，然后骗了个一个女的，在飞机上认识的，生俩孩子，躲在一个小屋里边儿，你说连个律师费都不舍得花的人，回到中国共产党那儿。
 
-随着越来越多的美国人面临着更多的审查制度，并冒着失去工作的风险，冒着在社交媒体上失去平台的风险，因为表达与不断变化的“企业媒体叙事”背道而驰的个人观点 ，人们的挫败感继续增加，从餐馆酒店到当地企业，**许多人现在感受到的歧视，是非美国人的。**
+你看他长的那个样子，把他老婆内裤亮出来，来哗众取宠。他竟然能定义为叫“泼皮”，你有没有想过，黄河边你能当一次这样的泼皮，你一生都辉煌了，你老婆就不会给你戴绿帽子了。如果你有机会到HBO你磕头下跪，你有这个机会，你都是这一辈子不枉当一回男人，叫HBO、VICE追一两年，四年跟一个人，叫他泼皮一次。
 
-**疫苗安全，尤其是在儿童中，一直是世界各地医生关注的一个严重问题，也是推动这一进程的另一个推动力**。事实上，全世界有超过 15,000 名医生和医学科学家签署了一份声明，公开宣布健康儿童不应接种 Covid-19 疫苗。
+还能泼皮成那水平，从第一次泼皮不讲英文，到泼皮讲郭氏英文横扫天下，是吧。你看咱们那次采访的精彩，现在已经是，你见过世界上有一个媒体，大媒体受过一个个人，这样的媒体的精心安排、这样的反击，诱敌深入，彻底歼之，是吧？
 
-毕生致力于疫苗开发的罗伯特·马龙（Robert Malone）博士，代表这些医学博士和各专业博士向家长们提供了一份明确的声明，概述了这一决定背后的科学事实。
+你觉得我们要在乎了当年的高冰尘这样的人的评价，和路大脑袋给叫鸭王的评价，和蛇妖闫要把七哥踢出爆料革命的这种语言，和九指妖所谓的她要代表上帝写遗书，没有她就没有爆料革命，还要创造什么傻币，什么这种荒唐的笑话，还有建这……你觉得她那个九个指头哪个指头能完成？
 
-“作为父母和祖父母，我对您的建议是：**抵制和争取保护您的孩子**，”马龙博士在 12 月 13 日与全球新冠病毒峰会的直播中说。[可以在这里观看到视频](https://globalcovidsummit.org/news/live-stream-event-physicians-alerting-parents)。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-**作为全球自由集会的一部分**，欧洲和澳大利亚，以及世界各国，已经参加了一系列大规模抗议活动。这些事件已经吸引了数十万人——团结起来反对授权，并拒绝驯服。1 月 23 日将是整个世界聚集在一起的第二天。美国组织者认为，现在是美国站出来加入世界其他国家的时候了。
+编辑整理：喜马拉雅的肉夹馍；
 
-**游行将从华盛顿纪念碑开始，在林肯纪念堂结束**，在那里有演讲嘉宾、艺术家和音乐家的节目。上半场将由思想领袖和医学专家组成，下半场将重点介绍几位反对这些授权的国家名人。游行中对每个人的“要求”很简单：“**不遵守**”。
+字幕文件制作：小满；
 
-组织者认为，最终“击败强制接种——美国归来”([Defeat the Mandates – an American Homecoming](http://www.defeatthemandatesdc.com/))，将有助于在联邦、州和地方层面出台新政策，**以消除目前发生的公然歧视和审查制度**。
+视频制作及上传：Cindy；
 
-本次活动的合作伙伴包括：全球新冠肺炎峰会([Global Covid Summit](https://globalcovidsummit.org/))和儿童健康防御基金([Children’s Health Defense Fund](https://www.childrenshealthfund.org/?gclid=EAIaIQobChMI1t_SlLb19AIVshx9Ch2LYgrlEAAYASAAEgIXx_D_BwE))其目标是鼓励公众“不遵守”。
+G-News发布：小满；
 
-随着日期的临近，将发布更多详细信息。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-联系人：
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[\[email protected\]](/cdn-cgi/l/email-protection#90fdf5f4f9f1d0f4f5f6f5f1e4e4f8f5fdf1fef4f1e4f5e3f4f3bef3fffd)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[www.DefeatTheMandatesDC.com](http://www.defeatthemandatesdc.com/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻来源 : [creativedestructionmedia.com] [Thousands Of Americans Expected To Peacefully March On Washington, DC To Defeat The Mandates And Save Their Jobs](https://creativedestructionmedia.com/news/2021/12/31/thousands-of-americans-expected-to-peacefully-march-on-washington-dc-to-defeat-the-mandates-and-save-their-jobs/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-* * *
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
