@@ -2,62 +2,42 @@
 ---
 
 
-## 中共国“大脑控制”战争工程曝光
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1815497/)
+## 示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦•勒戈的办公室抗议宵禁
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1815518/)
 
-据《华盛顿时报》作者：Bill Gertz，2021年12月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-95.png)2019年10月1日，在北京举行的纪念中国共产党成立70周年的阅兵式上，运载DF-41弹道导弹的军车，观众挥舞中共国国旗。图片来源：Mark Schiefelbein
-美国总统拜登印太地区最高国家安全顾问表示，中共国军事集结引发了整个亚洲的不安，也是最近美英澳三方安全公约聚焦该地区的驱动因素。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片757.png)图片来源：AGENCE QMI
+**周六晚上（2022 年 1 月 1 日），大约50名示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦·勒戈 (François Legault) 的办公室，抗议自12月31日起在该省实施的宵禁。**
 
-**新闻和分析**
+蒙特利尔日报2022 年 1 月 1 日星期六 （AGENCE QMI）发表题为《[图片]示威者挑战蒙特利尔的宵禁》的文章报道，周六晚上（2022 年 1 月 1 日），蒙特利尔市出现抗议示威活动，旨在抗议12月31日起在该省实施的宵禁。以下是昨晚拍摄的蒙特利尔市出现的抗议活动的照片：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片758.png)
+**在接近晚上 10 点（2022 年 1 月 1 日），宵禁正式开始时，游行队伍出现在舍布鲁克西街Sherbrooke Street West上。走在游行队伍最前面的是反疫苗活动家弗朗索瓦·阿马莱加（François Amalega），几分钟后他被警方逮捕。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片759.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片780.png)
+**除了逮捕反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）之外，还开出了 57 张罚单（如果被认定构成违反宵禁令，将被处以最低1,000 至最高 6,000 加元的罚款），蒙特利尔市警察局 (SPVM) 发言人卡罗琳·雪佛瑞菲尔斯Caroline Chèvrefils 证实。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片781.png)
+**从周五（2021 年 12 月 31 日），开始，魁北克禁止任何人晚上 10 点到凌晨 5 点外出，除非持有豁免证明。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片782.png)
+**如果被认定构成违反宵禁令，此人将被处以最低1,000 至最高 6,000 加元的罚款**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片783.png)
+日前，蒙特利尔日报（纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五）发表题为《魁北克正在采取更严厉措施：以下是将于今天下午 5 点生效的新措施》的文章报道，宵禁令从周五晚上开始（2021 年 12 月 31 日星期五）生效。魁北克人被要求，在晚上 10 点至凌晨 5 点期间，不要，出于非必要原因，离开自己的住所。警察会密切布防监视，并可能会要求您，证明您在宵禁期间的外出是正当的，迫不得已的，或解释您在宵禁期间的外出原因。如果您被认定构成违反宵禁令，您将被处以最低1,000 至最高 6,000 加元的罚款。该篇文章报道还指出，今年的新年家庭聚会仅限于同一家庭成员（同一家庭的居住者），或者，可以邀请另外一个家庭的一个人和他的（未成年）孩子加入新年家庭聚会。另外，一个为他人提供基本服务，应急帮助，的人员，（列如警察，医疗急救人员，送餐人员），可以加入，或允许进入新年家庭聚会。
 
-美国商务部对中国科技公司实施制裁，并在上周透露中共国军方正在从事与“大脑控制”战争研究有关的危险工作。
+另外，魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一，尽管未接种疫苗的人仅占总人口的 19%，然而在全省的COVID-19 病房中，未接种疫苗的患者占新住院人数的 52% 和重症监护病房人数的 75%。魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二，2021 年 12 月 28 日，的新闻发布会上说，“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”，“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”，“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
 
-制裁公告对中国军事医学科学院和11个相关中国研究机构的工作提供了有限但具体的细节描述。美国商务部工业和安全局表示，该学院及其附属机构正在使用 “生物技术流程来支持中共国的军事终端和最终用户，包括所谓的脑控武器”。
+**后续的更多，更大规模的游行示威抗议活动很快会到来**
 
-然而，Inside the Ring获得的人民解放军的三份报告揭示了中共国脑战研究的深度，并表明它已经持续了数年之久。
+**文章编译及评论人提醒读者，魁北克政府更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们，并声称“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。这次游行示威抗议活动是对魁北克政府的一个回应。后续的更多，更大规模的游行示威抗议活动很快会到来。****每逢佳节倍思亲****，****魁北克省的战友们，及****全球的****战友们大家新年好。**
 
-获得的2019年报告讨论了开发脑控武器，作为中共国官员所谓的战争“智能化”的一部分。
+**参考资料：**
 
-根据其中一份报告，科学和技术进步正在导致制服敌人的方法和能力的升级。题为《军事优势概念的未来 》的报告说，“战争已经开始从追求摧毁身体转向瘫痪和控制对手。”
+1. 蒙特利尔日报，AGENCE QMI, 蒂埃里·拉福斯THIERRY LAFORCE，2022 年 1 月 1 日星期六，Le Journal De Montreal，[EN IMAGES] Des manifestants défient le couvre-feu à Montréal，[https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal](https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal)
+2. 蒙特利尔日报，纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五，Le Journal De Montreal，Québec serre la vis: voici les nouvelles mesures qui entreront en vigueur aujourd’hui à 17 h，[https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h](https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h)
+3. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上，Journal de Québec，Dubé sert une mise en garde aux non-vaccinés， [https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
 
-报告说：“重点是攻击敌人的抵抗意志，而不是身体的破坏。”
-报告补充说，脑科学正在被用来扩展人类意识领域的战争，“使大脑成为新概念武器的主要进攻对象和防御目标”。
 
-报告引用中国古代战略家孙子的格言认为“不战而胜”不再是牵强附会。
-这份发表在官方军事报纸《解放军报》上的报告还声称，中共国正在为军事目的融合四个主要技术领域：纳米、生物、信息和认知。
+编辑/发布：LILY
 
-预期的结果将是增强个人能力。报告说，“未来的人机融合将围绕争夺大脑展开，交战双方将利用各种脑控技术和有效设计，集中力量夺取敌人的思维和意识，甚至直接干预敌人领导人和工作人员的思维，并以此赢得战争”。
-
-同样来自2019年的第二份中共国报告披露，脑机接口是北京发展智能化战争计划的一部分。第二份报告说，“交互式智能化”将涉及“通过成熟的脑机接口用思想直接控制机器”。
-
-融合式智能化也在研究之中，涉及到将人类和机器融合在一起，以实现增强人类生理和认知能力的目标。
-
-解放军公布的第三份报告显示，中国电子科技集团正在研究用于战争的“大脑对抗”技术。
-
-第三份报告说，其各种研究重点包括“大脑控制技术，如测量大脑中的神经元活动并将神经信号转化为计算机信号，在大脑和外部设备之间建立单向或双向的信号传输”。
-
-报告说，目前还在进行“神经防御”技术的研究，如“利用电磁、生物物理和材料技术来加强人脑对外部攻击的防御”。
-
-一种大脑增强技术涉及刺激或操纵大脑活动的可穿戴设备。另一种是使用大脑植入的微芯片或其他计算机接口来增强大脑功能。
-
-美国商务部在制裁这些中共国研究所时说，这些研究活动“违背了美国的国家安全和外交政策”。
-
-受到制裁的其他研究所包括中国卫生服务和医学信息研究所；辐射和放射医学研究所；基础医学研究所；卫生和环境医学研究所；微生物学和流行病学研究所；毒理学和药理学研究所；医疗设备研究所；生物工程研究所；野外输血研究所；疾病控制和预防研究所；以及军事兽医研究所。
-
-这11家研究所已被列入商业黑名单，称为实体名单。
-
-原文连接：[**https://www.washingtontimes.com/news/2021/dec/29/pla-brain-control-warfare-work-revealed/**](https://www.washingtontimes.com/news/2021/dec/29/pla-brain-control-warfare-work-revealed/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20220102
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
