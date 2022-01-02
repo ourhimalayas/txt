@@ -2,31 +2,26 @@
 ---
 
 
-## 郭先生警醒战友们永记《新中国联邦宣言》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815157/)
+## 社交媒体寡头压制言论自由已图穷匕见
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815159/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约香草山教育部 Irene木木
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在2022年1月1日的直播中，郭文贵先生再次向战友们展示并强调了《新中国联邦宣言》的核心。郭先生表示，《宣言》没有任何政治、利益和名誉之心。
+2021年12月31日，盖特首席执行官杰森-米勒先生在相关媒体上发表署名文章指出，社交媒体寡头对自由言论的压制在2021年已显露无余。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-10.49.07-PM.png)
+米勒先生解释道，过去的一年里，从普通民众到知名公众人物，甚至包括前任总统川普，他们都因表达政治观点而被大型社交媒体公司禁言或封锁。然而，各类定向犯罪行为，甚至针对儿童的网络犯罪也在大幅上升。这当中，最为典型的例子应属社交媒体平台对有关中共病毒疫情以及疫苗真相的打压，他们封锁了所有传播真相的用户账号。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-10.38.01-PM.png)
+米勒先生认为，社交媒体寡头已经将自己看作是“思想警察”，为此，他们通过严厉的审查制度和有害的营销技巧推行着他们所认可的意见。但是，随着社交媒体市场竞争的加剧，人们早已厌倦了这些变本加厉的言论审查。
 
-郭先生也解释道，《新中国联邦宣言》的内容包含着天与地、山与水、人和周围的环境以及其中的所有动、植物。更为重要的是，《宣言》不仅言明了中国人的事，还涉及到全人类，乃至全天下的事。
+对此，米勒先生提及，这也是盖特能供横空出世并能茁壮发展原因——盖特为世界各地的人们提供一个可以自由、安全地表达政治观点的言论自由平台。米勒先生补充道，自2021年7月4日上线以来，盖特本着“不因政治观点、宗教信仰而删除言论，并对网络犯罪行为零容忍”的宗旨，迅速积累了超过300万注册用户，成为有史以来发展最快的社交媒体平台。
 
-此外，郭先生还向战友们又一次展示了《新中国联邦宣言》的第一页，也就是那句由郝海东先生宣读的名言：“灭共是正义的需要。”
-
-郭先生强调，宣读《新中国联邦宣言》的目的是为了告诉世人，我们应该向《宣言》中表述的一样，对天地、对人都充满敬意和爱意。
-
-郭先生最后提醒战友们，永远不要忘记我们是因为《新中国联邦宣言》才走到一起。因此，不论是谁，只要他忘记了《新中国联邦宣言》，他就一定会被淘汰。
-
-参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e)
+参考链接：[MILLER: Big Tech’s Worst Hits of 2021.](https://thenationalpulse.com/2021/12/31/miller-big-techs-worst-hits-of-2021/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑：Kathy文艺
-总编：Irene木木 
+编辑/总编：Zion文恩 
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -35,11 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,44 @@
 ---
 
 
-## 放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1814047/)
+## 日本将协助比尔・盖茨在美国建造实验性核反应堆
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814438/)
 
-作者：纽约香草山教育部 – Xiaojiucaia
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一位匿名放射科医生报告了2021年一个令人震惊的观察结果。这位放射科医生报告说中共病毒疫苗接种后不明原因的腺病增加了360倍。腺病是肿胀的腺体或淋巴结肿大（淋巴结病）的医学术语。腺病不是一种特定的疾病，但它是某些潜在疾病的重要症状。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-54.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor.jpg)
 
-这位放射科医生不愿透露姓名，因为他担心他会因为报告这些与疫苗相关的观察结果而失去工作。在他的实验室，放射科医生每六个月会看到大约一例不明原因的淋巴结肿大。然而，在中共病毒疫苗推出后，放射科医生每天会看到两到三例不明原因的腺病！病人总数量增加了360倍。这是极其罕见的。
 
-人体大约有六百个淋巴结。这些淋巴结携带淋巴液，是人体“免疫系统”的组成部分。通过身体组织液首先通过淋巴结过滤。淋巴系统负责提供白细胞以帮助抵抗传染性细菌和病毒。如果淋巴结和腺体肿胀，通常表明身体正在抵抗感染，如普通感冒。淋巴结肿大常伴有流鼻涕、喉咙痛、耳痛、发烧和疲倦。肿胀也可能表明更严重的感染，如链球菌、莱姆病或艾滋病毒。腺病也可以表明癌症的存在。最常见的包括淋巴瘤，它是淋巴系统或淋巴结的癌症。
 
-由此可见，疫苗的危害已经浮出水面，随着时间的推进，我们会看到越来越多的癌症病人，越来越多的死亡。只有爆料革命有勇气敢于站出来揭露疫苗真相，拯救人类。
+图片来源： dailyenergyinsider.com
 
-新闻链接：[https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html](https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+#### 编译：小红帽
 
-**校对/发稿：童谣**
+根据RT1月1日报道，**两家日本工业巨头正计划与比尔・盖茨的风险投资公司合作，为将在美国怀俄明州建造的一个高科技核反应堆提供技术支援。**
 
-**更多资讯，更多关注**
+日本《读卖新闻》周六援引多位知情人士的话报道称，双方预计将在1月签署一项协议，由日本原子能机构（JAEA）和三菱重工提供工业援助和日本自己的先进反应堆的数据。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+盖茨建立的核电企业TerraPower计划最早于2028年在怀俄明州开设Natrium工厂，美国当局将提供资金以支付该项目的一半，估计为40亿美元。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+一座使用钠作为冷却剂、输出功率为34.5万千瓦的快速反应堆，其建设工程将于2024年开始。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+盖茨的风险公司最初计划与国有的中国核工业集团合作，但美国前总统唐纳德・特朗普推出的对与北京的核交易的限制迫使该公司放弃这一计划。美国与中国和俄罗斯的竞争由来已久，后者也在酝酿建造和出口先进反应堆的计划。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+日本原子能机构拥有丰富的钠冷快堆运行经验，如福井县的文殊原型快堆和茨城县的常阳实验快堆，将多次向TerraPower提供运行数据和设计。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本曾在2016年退役其文殊原型先进反应堆的痛苦经历，该项目耗资85亿美元，但收益甚微，而且多年来一直存在争议。文殊设施自成立以来就发生了事故、违反监管规定和掩盖事实。2011年福岛核灾难发生后，该反应堆被关闭。
+
+新闻来源：[Japan to assist Bill Gates in building experimental nuclear reactor — RT Business News](https://www.rt.com/business/544950-japan-bill-gates-nuclear-reactor/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
