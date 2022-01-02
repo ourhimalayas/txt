@@ -2,55 +2,21 @@
 ---
 
 
-## “美国归来”华盛顿将举行反医疗暴政大游行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814714/)
+## 被“精神病”的刘芬老师
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1814751/)
 
-翻译： Jenny Ball
+撰稿：菜园子112～尕虎
+![](https://assets.gnews.org/wp-content/uploads/2022/01/203.jpg)图片制作：澳喜农场©森森
+湖南省湘潭市第一中学的刘芬老师，2019年3月向教育部和中纪委检举地方教育系统违规组织有偿补课、湘潭市一中巨额补课资金流向不明、相关人员涉嫌经济犯罪。举报后，湖南省范围内各中小学曾停止校内补课半年左右。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-65.png)图片来源 : creativedestructionmedia.com
+2020年8月3日晚，精神病院人员和其他几人将刘芬老师暴力捆绑，强行关进精神病院七天八晚，期间被拷住手脚，独立关押，隔绝与外界联系，被强行打针喂药。刘芬家族都没有精神病史，况且家中装有监控，案发前后几周及当时的视频都有，可以证明刘芬一直正常生活，更不存在自残自伤等行为。另可以佐证的是，案发前一周刘芬还一直在一线教学岗位上，每天进行英语教学。这分明就是他们以精神病为由实施非法拘禁和故意伤害，打击报复信访举报教师。案发当晚，就以被非法拘禁和故障伤害报案了。但后来层层申诉，至今也没有立案。其经历也形成了文字，去年就在微博上寻求网络帮助。
 
-在接下来的几周内，包括小罗伯特·肯尼迪 (Robert F. Kennedy) 的儿童健康保护组织在内的团体，将联合起来对抗华盛顿特区的医疗暴政。
+今年，刘芬所在的湘潭市一中以精神病为由，将刘芬老师停止一线教学（实质上是停职了）。学校告知刘芬，是湘潭市雨湖公安分局调取了她的精神病相关资料，向教育部门下达了协查函，建议将刘芬调离一线。刘芬几十次请求当地公安、教育部门出具精神病医学鉴定书和停职决定书，都被拒。这一年多来，一直在向市公安局、省公安厅、省、市检察院、公安部、最高检、中纪委、省、市纪委、全国政法教育整顿第十督导组等反映，无果。
 
-新闻稿如下： 美国归来
+刘芬老师的遭遇，就是中共集权下，官员胡作非为，打击报复举报人的真实体现，以警治国、以黑治国无处不在，老百姓无处伸冤。只有消灭这个专制的共产党，墙内的老百姓才有活路。
 
-2022 年 1 月 23 日 / 华盛顿特区
-
-**1 ****月 ****23 ****日**，数千名反抗疫苗授权的人们，包括医生、护士和医生在内的所有关心此事的公民——黑人、白人、亚洲人、西班牙裔，接种疫苗的人们和未接种疫苗的人们，民主党和共和党——将在华盛顿[和平游行](http://www.defeatthemandatesdc.com/)，反对Covid 疫苗授权。
-
-**组织者将这项活动命名为“美国归来”，并强调，游行者并不是反对接种疫苗的人，他们中的许多人都接种了****Covid****疫苗，但他们反对强迫人民接种疫苗。**
-
-随着越来越多的美国人面临着更多的审查制度，并冒着失去工作的风险，冒着在社交媒体上失去平台的风险，因为表达与不断变化的“企业媒体叙事”背道而驰的个人观点 ，人们的挫败感继续增加，从餐馆酒店到当地企业，**许多人现在感受到的歧视，是非美国人的。**
-
-**疫苗安全，尤其是在儿童中，一直是世界各地医生关注的一个严重问题，也是推动这一进程的另一个推动力**。事实上，全世界有超过 15,000 名医生和医学科学家签署了一份声明，公开宣布健康儿童不应接种 Covid-19 疫苗。
-
-毕生致力于疫苗开发的罗伯特·马龙（Robert Malone）博士，代表这些医学博士和各专业博士向家长们提供了一份明确的声明，概述了这一决定背后的科学事实。
-
-“作为父母和祖父母，我对您的建议是：**抵制和争取保护您的孩子**，”马龙博士在 12 月 13 日与全球新冠病毒峰会的直播中说。[可以在这里观看到视频](https://globalcovidsummit.org/news/live-stream-event-physicians-alerting-parents)。
-
-**作为全球自由集会的一部分**，欧洲和澳大利亚，以及世界各国，已经参加了一系列大规模抗议活动。这些事件已经吸引了数十万人——团结起来反对授权，并拒绝驯服。1 月 23 日将是整个世界聚集在一起的第二天。美国组织者认为，现在是美国站出来加入世界其他国家的时候了。
-
-**游行将从华盛顿纪念碑开始，在林肯纪念堂结束**，在那里有演讲嘉宾、艺术家和音乐家的节目。上半场将由思想领袖和医学专家组成，下半场将重点介绍几位反对这些授权的国家名人。游行中对每个人的“要求”很简单：“**不遵守**”。
-
-组织者认为，最终“击败强制接种——美国归来”([Defeat the Mandates – an American Homecoming](http://www.defeatthemandatesdc.com/))，将有助于在联邦、州和地方层面出台新政策，**以消除目前发生的公然歧视和审查制度**。
-
-本次活动的合作伙伴包括：全球新冠肺炎峰会([Global Covid Summit](https://globalcovidsummit.org/))和儿童健康防御基金([Children’s Health Defense Fund](https://www.childrenshealthfund.org/?gclid=EAIaIQobChMI1t_SlLb19AIVshx9Ch2LYgrlEAAYASAAEgIXx_D_BwE))其目标是鼓励公众“不遵守”。
-
-随着日期的临近，将发布更多详细信息。
-
-联系人：
-
-[\[email protected\]](/cdn-cgi/l/email-protection#90fdf5f4f9f1d0f4f5f6f5f1e4e4f8f5fdf1fef4f1e4f5e3f4f3bef3fffd)
-
-[www.DefeatTheMandatesDC.com](http://www.defeatthemandatesdc.com/)
-
-新闻来源 : [creativedestructionmedia.com] [Thousands Of Americans Expected To Peacefully March On Washington, DC To Defeat The Mandates And Save Their Jobs](https://creativedestructionmedia.com/news/2021/12/31/thousands-of-americans-expected-to-peacefully-march-on-washington-dc-to-defeat-the-mandates-and-save-their-jobs/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

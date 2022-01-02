@@ -2,52 +2,40 @@
 ---
 
 
-## 纽约法案和隔离营威胁公民基本权利
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814877/)
+## 以色列在大规模感染中醒了吗？扔推第4针？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814886/)
 
 **翻译： Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip32.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip34.png)
 
-《自然新闻》 – 纽约的立法者正准备对一项法案进行投票，该法案将允许当局对未接种疫苗的个人采取行动。这些行为包括——但不限于——驱逐被确定为携带病毒者或传染病毒的人，以及对公共健康有潜在危险的人。
+里奥·亚历山大（Leo Alexander）正在解释医学实验。1942 年 11 月 22 日在纽伦堡，被告赫塔·奥伯豪瑟 （Herta Oberheuser）和弗里茨·恩斯特·费舍尔（Fritz Ernst Fischer）给人造成的损害。
 
-该法案被列入下届州参议院和议会于 2022 年 1 月 5 日举行的立法会议议程。如果获得批准，**当局将获得与澳大利亚类似的行政权力**，澳大利亚建了武汉冠状病毒 (COVID-19) 检测呈阳性的人隔离营，包括检测结果呈阴性的人——即使它对个人和企业主的日常生活几乎没有影响。
+这个犹太国家可能已经对其公民进行了太多的试验，使用会产生可怕副作用的基因治疗血清，更不用说可能产生的长期自身免疫性疾病。对于一个对纳粹政权进行的人体实验记忆犹新的民族来说，难道这是自然结果？
 
-值得注意的是，纽约和加利福尼亚一直处于“紧急状态”之下，迅速扩大的授权和其他强制措施，继续威胁着其公民的自主权和基本权利。（相关：纽约市宣布上门疫苗接种小组将来到您家，并支付您 100 美元让你接受死亡注射。）
+或者，在疫苗强制执行显然不再可行之后，辉瑞还可能会有一种新药丸出售给以色列人。
 
-根据该法案，与 COVID-19 患者有过接触的人，**可能会被强行带离家并被安置在医疗机构，即使他们的病毒检测呈阴性**。 （相关：纽约法案将允许政府拘留任何被认为是公共卫生威胁的人）
+据报道，根据周三公布的数据，以色列连续第二天记录了近 3,000 例新的冠状病毒病例，感染率继续攀升，据《以色列时报》。报道，卫生部高级官员正在权衡转向通过大规模感染实现群体免疫的政策。
 
-该法案的批评者表达了他们的担忧，称**医疗要求**正变得越来越正常化，在美国不应强迫人使用药物进行所谓的治疗。
+第一次，大多数 Omicron 感染是在接种社区中，而不是最近从国外返回的人，或他们接触过的人，这表明真实数字可能比官方数字高得多。
 
-**更多关于疫苗授权的法案正在进行中**
+由于严重病例没有立即上升，第 12 频道新闻周二晚间报道称，卫生部高级官员最近提出了改用“大规模感染模式”的选项。
 
-与此同时，代表曼哈顿上西区的民主党人琳达·罗森塔尔 (Linda Rosenthal) 提出了议会法案 A11179，该法案提议，如果没有足够多的居民自愿接种 COVID-19 疫苗，就强制接种该疫苗。
+振兴主义（Tsionizm） 很早就对连续疫苗接种方法的疯狂，及其背后明显的邪恶发表了意见，还强调了政府拒绝说出疫苗副作用的真相，而对以色列人民实施的欺骗。
 
-根据该法案，该州将要求“根据卫生部的 COVID-19 疫苗接种管理计划”，“安全有效地”分发FDA批准的疫苗。
+要么政府意识到“强制疫苗”，“让你的（疫苗护照）软件更新”计划不再被接受，要么，他们正在与辉瑞合作开发一种新药丸，**使当权者更加富有**，因为它是一种基于与美国相同的技术， 更便宜、更有效，且容易获得的伊维菌素而开发的。
 
-根据该法案的支持备忘录，“虽然已采取措施减少 COVID-19 的传播，但流行病学家和公共卫生专家得出的结论是，疫苗对于培养群体免疫力并最终阻止疾病的传播是必要的。”
+为此……
 
-“国家必须努力促进疫苗接种，并确保足够高比例的人口接种 COVID-19 疫苗以产生足够的免疫力。”
+《以色列时报》补充说，辉瑞的第一批有希望的抗病毒 COVID 药丸，已于周四下午抵达以色列。
 
-如果该法案获得通过，该州卫生部门可以强制要求任何他们认为应该接种疫苗的人接种，如果它发现纽约人没有形成“对 COVID-19 的足够免疫力”——但该法案没有定义这个术语。
+以色列是世界上最早接受这种名为“帕克斯洛维德” （Paxlovid） 的药物的国家之一，实验室测试表明，该药物对 Omicron 变体非常有效。
 
-**如果低于 70% 的人口自愿接种疫苗，则该指令生效。**
+总理纳夫塔利·贝内特 (Naftali Bennett) 称这些药丸的到来“是我们抗击大流行的工具箱的重要补充”，“将帮助我们度过即将到来的 Omicron 高峰期”。
 
-罗森塔尔补充说：“那么州卫生部就能说必须让更多人接种。” “他们会制定规则，也会制定结构。”
+以色列要靠“辉维菌素”（Pfivermectin）来拯救！
 
-目前，CDC的专家仍不确定，需要接种多少百分比的人口，才能实现所谓的针对 COVID-19 的群体免疫。
-
-文章内容来源：
-
-[TheNationalPulse.com](https://thenationalpulse.com/2021/12/18/new-york-legislation-provides-for-indefinite-detention-of-unvaccinated-at-governors-whim/)
-
-[NaturalHealth365.com](https://www.naturalhealth365.com/new-york-bill-paves-way-to-forced-covid-jabs-3491.html)
-
-[Fox5NY.com](https://www.fox5ny.com/news/new-york-legislation-would-make-covid-19-vaccination-mandatory)
-
-[Brighteon.com](https://www.brighteon.com/79198c06-e902-4a57-b2bd-3378ea957fff)
-
-**新闻来源**：[naturalnews.com][New York bill threatens basic rights of citizens with forced COVID vaccinations, quarantine camps](https://www.naturalnews.com/2021-12-31-new-york-bill-threatens-basic-rights-of-citizens-covid-vaccinations-quarantine-camps.html)
+**新闻来源**：[tsionizm.com][Is Israel Finally Waking Up? No More VAX After 4th Shot? Mass Infection Now The Plan? Pfivermectin To The Rescue!](https://tsionizm.com/news/2021/12/31/is-israel-finally-waking-up-no-more-vax-after-4th-shot-mass-infection-now-the-plan-pfivermectin-to-the-rescue/)
 
 * * *
 
@@ -56,8 +44,6 @@
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
-
-
 
  
 

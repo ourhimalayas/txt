@@ -2,26 +2,22 @@
 ---
 
 
-## 中共政府从西方社交媒体收集了大量数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
+## 何韵诗在港被捕引加拿大各界关注
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814908/)
 
-者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+据国外媒体12月30日报道，香港警察29日逮捕“立场新闻”管理人员——包括加拿大籍何韵诗——的行动，引起了加拿大各界的关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-2-scaled.jpg)
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+前加拿大自由党政府内阁部长欧文‧科特勒指责这是受北京操纵的打压言论自由的犯罪行为。前加拿大驻华外交官查尔斯‧伯顿呼吁加拿大政府应立刻采取措施保护本国无辜公民。加拿大女王大学名誉教授金‧诺萨尔表示，加拿大政府应该持续关注北京对香港自治及香港新闻自由的不断侵蚀。加拿大外交部长赵美兰当天下午在推特上发文说，加拿大对该次逮捕行动深感关切，加拿大领事官员已经参与并准备好在当地提供援助。
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
-
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
-
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+另据香港媒体报道，何韵诗在被扣押1天多后，已于12月30日下午获得保释。
 
 参考链接：
 
-- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
+- [《立场新闻》遭中共镇压 关慧贞哀香港一国两制已死](https://gettr.com/post/pl3ehm970d)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
