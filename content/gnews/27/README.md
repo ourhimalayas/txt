@@ -2,42 +2,36 @@
 ---
 
 
-## 示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦•勒戈的办公室抗议宵禁
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1815518/)
+## 世界卫生委员会呼吁停止实验性“疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815598/)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片757.png)图片来源：AGENCE QMI
-**周六晚上（2022 年 1 月 1 日），大约50名示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦·勒戈 (François Legault) 的办公室，抗议自12月31日起在该省实施的宵禁。**
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月31日，据盖特消息显示，世界卫生委员会WCH日前呼吁，全球应立即停止接种中共病毒实验性“疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.11.png)
+一位该组织的工作人员在视频中表示，关于中共病毒，眼下其实已经存在安全、有效和低负担的治疗方法，但各个国家的政府、卫生部门和主流媒体非但不推广这些安全、实惠的治疗方法，反而只是将那些感染者隔离在家中，直至他们的病情恶化到需要入院治疗。
 
-蒙特利尔日报2022 年 1 月 1 日星期六 （AGENCE QMI）发表题为《[图片]示威者挑战蒙特利尔的宵禁》的文章报道，周六晚上（2022 年 1 月 1 日），蒙特利尔市出现抗议示威活动，旨在抗议12月31日起在该省实施的宵禁。以下是昨晚拍摄的蒙特利尔市出现的抗议活动的照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片758.png)
-**在接近晚上 10 点（2022 年 1 月 1 日），宵禁正式开始时，游行队伍出现在舍布鲁克西街Sherbrooke Street West上。走在游行队伍最前面的是反疫苗活动家弗朗索瓦·阿马莱加（François Amalega），几分钟后他被警方逮捕。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片759.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片780.png)
-**除了逮捕反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）之外，还开出了 57 张罚单（如果被认定构成违反宵禁令，将被处以最低1,000 至最高 6,000 加元的罚款），蒙特利尔市警察局 (SPVM) 发言人卡罗琳·雪佛瑞菲尔斯Caroline Chèvrefils 证实。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片781.png)
-**从周五（2021 年 12 月 31 日），开始，魁北克禁止任何人晚上 10 点到凌晨 5 点外出，除非持有豁免证明。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片782.png)
-**如果被认定构成违反宵禁令，此人将被处以最低1,000 至最高 6,000 加元的罚款**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片783.png)
-日前，蒙特利尔日报（纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五）发表题为《魁北克正在采取更严厉措施：以下是将于今天下午 5 点生效的新措施》的文章报道，宵禁令从周五晚上开始（2021 年 12 月 31 日星期五）生效。魁北克人被要求，在晚上 10 点至凌晨 5 点期间，不要，出于非必要原因，离开自己的住所。警察会密切布防监视，并可能会要求您，证明您在宵禁期间的外出是正当的，迫不得已的，或解释您在宵禁期间的外出原因。如果您被认定构成违反宵禁令，您将被处以最低1,000 至最高 6,000 加元的罚款。该篇文章报道还指出，今年的新年家庭聚会仅限于同一家庭成员（同一家庭的居住者），或者，可以邀请另外一个家庭的一个人和他的（未成年）孩子加入新年家庭聚会。另外，一个为他人提供基本服务，应急帮助，的人员，（列如警察，医疗急救人员，送餐人员），可以加入，或允许进入新年家庭聚会。
+与此同时，科学研究、专家经验和大量案例都清楚地表明，目前正在大规模进行的中共病毒实验性基因疫苗存在着严重的风险。该工作人员提到，这些基因疫苗既无效，更不安全，甚至已经被证明是有毒的。此外，这些中共病毒疫苗中的已知成分被证明会对人体造成生物危害，而其中未被公开的成分则更让人担忧，甚至可能会对被注射者构成更大危害。而世界各地的不良反应报告也表明，中共病毒疫苗有严重的副作用，甚至会使接种者死亡。
 
-另外，魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一，尽管未接种疫苗的人仅占总人口的 19%，然而在全省的COVID-19 病房中，未接种疫苗的患者占新住院人数的 52% 和重症监护病房人数的 75%。魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二，2021 年 12 月 28 日，的新闻发布会上说，“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”，“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”，“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
+对此，世界卫生委员会认为，对于这些中共病毒疫苗给个人和群体健康所构成的严重风险，政府、医疗机构和其他公司都表现出不诚实的做法。因此，该组织发布了一项停止和终结中共病毒疫苗接种的声明，当中要求政府、相关机构和公司以及个人立即停止参与中共病毒疫苗的制造、销售、管理和推广，并立即采取果断行动制止这一前所未有的医学实验，以此停止对包括儿童在内的民众造成更大的伤害。
 
-**后续的更多，更大规模的游行示威抗议活动很快会到来**
+参考链接：
+1）[https://gettr.com/post/pl6y3w809a](https://gettr.com/post/pl6y3w809a)
+2）[World Council for Health Calls for an Immediate Stop to the Covid-19 Experimental “Vaccines”](https://worldcouncilforhealth.org/campaign/covid-19-vaccine-cease-and-desist/)
 
-**文章编译及评论人提醒读者，魁北克政府更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们，并声称“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。这次游行示威抗议活动是对魁北克政府的一个回应。后续的更多，更大规模的游行示威抗议活动很快会到来。****每逢佳节倍思亲****，****魁北克省的战友们，及****全球的****战友们大家新年好。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-**参考资料：**
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-1. 蒙特利尔日报，AGENCE QMI, 蒂埃里·拉福斯THIERRY LAFORCE，2022 年 1 月 1 日星期六，Le Journal De Montreal，[EN IMAGES] Des manifestants défient le couvre-feu à Montréal，[https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal](https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal)
-2. 蒙特利尔日报，纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五，Le Journal De Montreal，Québec serre la vis: voici les nouvelles mesures qui entreront en vigueur aujourd’hui à 17 h，[https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h](https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h)
-3. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上，Journal de Québec，Dubé sert une mise en garde aux non-vaccinés， [https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
-
-
-编辑/发布：LILY
-
-20220102
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

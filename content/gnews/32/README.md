@@ -2,20 +2,36 @@
 ---
 
 
-## TikTok 变性视频 缺失媒体基本的社会责任
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1815426/)
+## 泽连科医生染疫后用羟氯喹自行治愈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815508/)
 
-TikTok今年早些时候与备受争议的女同性恋、男同性恋、双性恋和变性者权利慈善机构 Stonewall 签署了一份合作协议，帮助推广该机构相关材料。上周TikTok公布的数据显示，超过四分之一的英国TikTok用户年龄在 15 至 25 岁之间，注册的 4 至 15 岁儿童平均每天在该应用上平均花费69分钟。The Mail on Sunday分析显示，带有#Trans标签的视频已被观看超过260亿次。这些视频会让一代孩子相信，“改变性别很容易，而且可以解决所有的问题。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/114.jpg)
-相关人士指责TikTok通过托管病毒式社交媒体视频帮助儿童“洗脑”，这些视频宣传改变性别为“很酷”。一些家长担心，去年成为英国下载量最大的应用程序TikTok的参与，正在助长“社会传染”，对易受影响的年轻人施加压力，并增加被认定为跨性别的青少年，性别被视为新的反叛。
+作者：纽约香草山 医疗部- 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月31日，大力推广中共病毒治疗指南的泽连科医生在盖特平台上发布了一条视频表示，他本人在4天前感染了中共病毒，但在按时服用过羟氯喹后已经痊愈。
 
-混乱了孩子的性别意识，最终会制造混乱的社会问题。中共控制的社交媒体TIKTOK，推广换性材料促成盈利，洗脑儿童和青少年，彻底背弃了媒体应该承担的社会责任，服务中共政治的需要。TIKTOK不仅给儿童洗脑，而且在许多国家选举期间，利用其人工算法影响人们的选举决定。中共通过TIKTOK把其影响和控制延伸到其国门之外，社交媒体的威力大于核武器。越来多西方国家意识到了中共互联网应用的险恶用心，开始做出了一些防范措施。随着爆料革命的深入进行，这些中共的互联网应用都将消失。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpeg)
 
-文案：明亚
-校对：理工男文峰
+泽连科医生自述，他患病的原因可能是感染了孩子无意中从学校带回的中共病毒，此外，其自身并没有完全依照自己的建议服用预防药物。
 
-原文链接：[https://www.dailymail.co.uk/news/article-10344445/Children-brainwashed-TikTok-videos-cool-trans-surgery.html](https://www.dailymail.co.uk/news/article-10344445/Children-brainwashed-TikTok-videos-cool-trans-surgery.html)
+医生表示，他在4天前开始出现喉咙痒及流鼻水等症状，但并没有伴随发烧症状，同时，他也在症状出现后立即使用了羟氯喹作为治疗，目前其身体已恢复正常。
 
+泽连科医师最后强调，用羟氯喹治疗中共病毒非常有效，他眼下现在感觉很好，因此希望能将自己的经验分享给所有人。
+
+参考链接：[Zelenko Protocol testimonial from Dr. Zelenko](https://app.gettr.com/post/pl8exf8dd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
