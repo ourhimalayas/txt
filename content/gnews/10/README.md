@@ -2,33 +2,30 @@
 ---
 
 
-## 中共驻美大使、披着羊皮的战狼秦刚向美国宣战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814276/)
+## 健身 健心 控欲
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1814354/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-撰稿：纽约香草山 信息部 6zero4
+**作者：Ray裁决**
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/be7bcb23-bc0f-4c4a-ba68-15ad4a43c281.jpg?asset_id=f636b9d8-3f69-41ac-9fc6-ad7e34e20915&amp;img_etag=%2217596dde3f43fcfd8ad12cf201596645%22&amp;size=1024)](https://express.adobe.com/page/d3iXKYrdVDifR/images/be7bcb23-bc0f-4c4a-ba68-15ad4a43c281.jpg?asset_id=f636b9d8-3f69-41ac-9fc6-ad7e34e20915&amp;img_etag=%2217596dde3f43fcfd8ad12cf201596645%22&amp;size=1024)
+“亲爱的战友们，今天你们健身了吗？”
 
-在12月29日的大直播中，郭文贵先生透露，几天前在中共内部的国安会议上，大家注意到，中共驻美大使秦刚连基本的国礼都没有得到。同时，美国最近首次向中共表示，秦刚大使的讲话很有问题，如他继续这样下去，美中关系将没有改善的可能。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-2.png)
-郭先生谈到，在美国有人问秦刚是否要将战狼外交变战羊外交时，秦刚回答：“我们不是战狼外交，是与狼为伍、与狼共舞！美国才是狼，我们要与狼共舞，奉陪到底。”谈到台湾问题时他说，你美国看看自己的流氓嘴脸，台湾问题的根源在你美国，是你们极少数政客利用台独分子挑起的问题。谈到新疆问题时他明确表示，新疆问题就是美国过去的华人和黑人问题，是汉人被维族人种族大屠杀，而不是维族人被汉人种族大屠杀，我们现在对待维族人就像兄弟姐妹一样友好。秦刚还警告美国，如继续放任班农等极右分子与严重影响中美关系的一小撮人搞在一起，中美两国必有一战。
+伴随着熟悉的话语、熟悉的场景，经历了四年多风风雨雨的“北美健身教练”从一个中年“油腻大叔”变成了目光坚毅，一身正气的战神。每天用自己的汗水重塑自己的身体，还曾被伪类欺民贼们说成拿水泼自己，这种滑稽可笑的谎话说出来连他们自己都不信。这些伪类欺民贼们自己做不到，就说别人是表演的心态都是在中共体制下培养出来的极度变态心理。
 
-郭先生最后评论，秦刚如此荒唐地扭曲事实并血口喷人，完全突破了外交官的底线，他不是来建立和改善两国关系的，而是来羞辱和挑衅美国并向美国宣战的。披着羊皮的秦刚既不是战羊，也不是战狼，而是战魔，将美中关系的敏感神经紧绷到了极限。
+健身运动本身就是一个违反人类本能的一项运动。人类的本能是储存脂肪，再在人体需要能量的时候释放能量。随着现代人类生活水平的提高，物质的供应充足，人类在身体中囤积脂肪变得十分容易，因此现代人普遍体脂率都高于正常范围内。要把脂肪人为地消耗掉，降低身体的体脂率并不容易，我们的身体本能是在抵抗的，身体会分泌相应的激素来抵抗；同样，增长肌肉是需要做抗阻运动撕裂肌肉，补充营养再合成肌肉，做肌肥大的训练，对于这些行为，人体自身都会做出本能的抵抗。所以健身是对自我的一个挑战，长期健身是对自我意志的长期磨练。
 
-新闻链接：[2021年12月29日 文贵大直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+孤独、汗水、钢铁般的意志、时间观念、作息规律、坚持自律、控制饮食，这些都是健身者必须经历的，而这些也是对一个人最好的磨练，从身体上，更从心理上。所以健身往往和健心相伴，更多的是控制自己的欲望。郭文贵先生用自己的行动为我们诠释着这一切。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+爆料革命四年多来，其实是对追求正道主义的新中国联邦人身体和心灵的磨练。各种魑魅魍魉出来作妖进进出出，能留下来的都是真正有信仰的人。去往喜马拉雅的路上是一路的崎岖坎坷，强健的身体和坚强的意志是通过这条道路的必备条件，在今后的道路上真战友们一定要背靠背走下去，一起健身健心。
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/6e3025d5-649a-4b69-84ff-d9d89add79a0.jpg?asset_id=1052ff7c-3550-4973-86d0-390385a9798b&amp;img_etag=%22f42de443baf95eb62a5d15fa1adb7cf5%22&amp;size=3769)](https://express.adobe.com/page/d3iXKYrdVDifR/images/6e3025d5-649a-4b69-84ff-d9d89add79a0.jpg?asset_id=1052ff7c-3550-4973-86d0-390385a9798b&amp;img_etag=%22f42de443baf95eb62a5d15fa1adb7cf5%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-总编/编辑：飞虹
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
 
-校正/发稿：浪迹天涯
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/d3iXKYrdVDifR/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

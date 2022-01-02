@@ -2,35 +2,30 @@
 ---
 
 
-## 强推疫苗结出恶果，墨尔本男子当街自焚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814310/)
+## 加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814444/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955.jpg)图片来源：The West Australian
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-1.jpg)图片来源：每日邮报
+据《每日曝光》（Daily Expose）2021年12月31日报道，在南加州的医院，因新冠疫苗导致的病患人数越来越多。少数勇敢的护士挺身而出，讲述了他们所目睹的情况。
 
+在位于洛杉矶北部的本图拉县 (Ventura County)，当地医院“不明原因”的心脏疾病、中风和血栓病例正在激增，但许多医生拒绝认为这些疾病与新冠疫苗有关。
 
-#### 整理报道：小鱼儿
-编辑：文泓
+在本图拉县一家重症监护室工作的护士萨姆（Sam）决定向媒体《Conejo Guardian》说出他对此事的担忧。他说：“我厌倦了所有正在发生的事，因为医疗机构继续拒绝承认新冠疫苗的弊远大于利。没有人对此提出质疑，这太疯狂了。在接种新冠疫苗后，患有严重健康问题的年轻人明显增多。已经有很多年轻人前来就诊，我们看到了很多中风和心脏病患者。在一个案例中，一名38岁妇女的大脑出现了闭塞，血液流动受阻。我们知道新冠疫苗会导致血栓，她接种了两剂疫苗，但没有任何医生将其中风症状与疫苗联系起来！他们只说这症状无法解释，这真的很荒唐！另一个例子中，一位以前没有心脏病史的63岁妇女突然患上了心脏病。检测显示她的冠状动脉是清晰的，然而她刚刚接种了莫德纳的新冠疫苗。一位医生实际上对新冠疫苗提出了质疑，但他们没有在病历中提及这一点，因为无法证明。”
 
-2022年元旦，据《反叛新闻》报道，当晚8点左右，墨尔本紧急服务部门被呼叫赶到里士满的教堂街，有一辆汽车正迸发出熊熊火焰。
-警员们在绝望的情况下用水浇灌该男子，然后将其按倒在地并安排救护车护送至医院。
+萨姆补充说，该地区所有的医院都目睹了心肌炎病例的大幅飙升。新冠疫苗的副作用包括心肌炎，这一点已广为人知并被广泛报道。“但是每个人都想淡化这一问题，医生们不愿意质疑它和对此发出警告，甚至不愿讨论它，他们表现得好像无法找到病症原因，认为其是自发的。”
 
-据《先驱太阳报》报道，一名帮助救助该男子的妇女说，我看到“皮肤在燃烧，直到他身上火被水浇灭”。
-妇女说，这名男子的皮肤烧伤得很厉害，她的衬衫上也粘到了。
+另一位在重症监护室工作的护士达娜（Dana）说：“我所在单位从未如此繁忙，但没有一个病人是新冠患者。我们通常不会看到同时出现这么多的中风、动脉瘤（aneurysms）和心脏病患者。一般情况下，我们每年会看到六到十个急性主动脉夹层 (aortic dissection）病例，但在上个月我们就看到了六个，这很疯狂。这些疾病的死亡率非常高。”
 
-现场目击者说，一名男子在墨尔本内城区自焚，同时他大声哭诉，维多利亚州的疫苗强制规定，在自焚前他大喊“疫苗护照”、“疫苗强制”。
-附近餐馆的食客们被这一场景震惊了，其中一家餐馆客人看到，该男子在自焚前特意用汽油覆盖自己和汽车。
-“他大喊着，‘（政府）疫苗强制，我不要疫苗接种证，扔掉证书’，”目击者说。
+与萨姆的医院一样，达纳所在医院的医生们甚至不会考虑新冠疫苗导致了心脏相关疾病患者突然增加。相反，这些“卫生专家”将其归咎于“假期”等因素。
 
-新闻链接：[Man sets himself on fire in Melbourne over vaccine mandates in horrific scenes](https://www.rebelnews.com/man_sets_himself_on_fire_in_melbourne_over_vaccine_mandates_in_horrific_scenes) 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+护士们说，这些病人中的大多数已完全接种了新冠疫苗。
+
+新闻来源：
+
+[Nurses Blow Whistle on Staggering Number of Heart Problems and Strokes in The Fully Vaccinated](https://dailyexpose.uk/2021/12/31/nurses-blow-whistle-on-staggering-number-of-heart-problems-and-strokes-in-the-fully-vaccinated/)
 
  
 
