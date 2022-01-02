@@ -2,31 +2,64 @@
 ---
 
 
-## 北京冬奥犹战场，雪枪雪炮“战火纷飞”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1813688/)
+## 议员：“剥夺自由选择的权利就等于剥夺了民主。”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1813707/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0.png)[*图片来源*](https://www.dailysabah.com/sports/beijing-olympics-artificial-snow-raises-environmental-concerns/news)
-**距离北京冬奥赛越来越近，中共国北京承诺“绿色冬奥”却“完全依靠人工造雪”这一事实完全不具备奥组委的评估条件。批评人士认为，这种人造雪从环境角度看是不可持续的。但中共一直信奉“人定胜天”的理念。据延庆国家高山滑雪中心的新闻发布会透露，对运动员最大的危险是雪质软硬不均匀，这可能会造成运动员意外伤害。**
+#### 翻译：Kari
 
-据[雅虎日本](https://news.yahoo.co.jp/articles/53d453eed53b262d510ffb4d660628d3375380ac)1月1日援引法新社时事消息称，“距离2月举行的北京冬奥赛将在中共国内降雪量特别低的地区举办，因此几乎完全依靠人工造雪。距离比赛举行还有五个星期，管理方正忙于用优质雪覆盖斜坡庞大而复杂的工作。然而，有人批评这种人造雪从环境的角度来看是不可持续的。”但中共一直信奉“人定胜天”的理念，这一切都为了政治利益。
+#### 校对：枳实
 
-消息称，中共正在加紧为北京冬奥会场地的斜坡上，引进了大量亮黄色的人工造雪机， 场馆内持续喷洒人工雪。人工造雪虽然1980年在纽约举行的冬季奥运会上首次使用过，但完全依靠人工雪举办冬季奥运会，全世界就北京是独一家。北京用大约 300 台“造雪枪”的人工造雪机与压缩空气混合，在空气中形成雪。据延庆国家高山滑雪中心的新闻发布会上透露，“对运动员来说可能最大的危险是雪质不均匀，有些地方太硬，有些地方太软，这会造成运动员意外伤害。”
+#### 剪辑/字幕：蛮吉
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图172-1.png)
+字幕文本（英汉对照）：
 
-- ***延展阅读：***[***习近平总书记的“冬奥会承诺”：将创造三亿人参与冬季运动***](http://japanese.cri.cn/20211231/c2d76346-294e-8cbb-5716-4129397746ec.html)
+‘Democracies give people the freedom to say to do and to choose. ’
 
+“民主赋予人民言论自由，行动自由和选择自由的权利。”
 
-但专家指出，依靠造雪与北京提出的“绿色”赛事目标背道而驰。不仅如此，[北京冬奥会还严重受到雾霾影响](https://www.reuters.com/world/china/olympics-china-talks-up-green-olympics-prepares-fight-smog-2021-12-27/)，这对“绿色奥运”的承诺是一大讽刺。法国斯特拉斯堡大学地理学教授卡门·德容指责使用大量电力和资源在低水位地区造雪是“不负责任的”，因为等到春季，冰雪融化后会造成人道灾难。卡门教授讽刺地说，“然后中共会带我们在月球和火星上举办奥运会了。”[**阅读更多**](https://hongkongfp.com/2021/12/30/snow-guns-for-spouting-fake-snow-at-beijing-winter-olympics-raise-environmental-concerns/)
+Those are the words you spoke mis Von der Leyen at the summit for democracy on December 8, but on December the first you said the EU must consider mandatory COVID jabs.
 
-对此，延庆运营经理[吕宏友解释说](https://www.insidethegames.biz/articles/1116461/beijing-2022-snowmaking-alpine-skiing)：“即使天然降雪深达到3米，也只能压缩成30至40厘米深的雪层，离奥运赛道的要求还很远，这也是人造雪之所以能发挥作用的原因之一。”吕宏友可谓一语中的，高山滑雪需要至少天然降雪3米多深，虽然仍然不具备制造雪道压缩雪所需厚度，利用人造雪补充还不是问题，问题是北京完全靠人工造雪，可见这种赛前的经费浪费和赛后的环境破坏都是巨大的。
+冯德莱恩（Von der Leyen）女士（现任欧盟委员会主席），这是您在12月8日的民主峰会上说过的话，但是在12月1日您却说欧盟必须考虑实施强制疫苗政策。
 
-因此对于“高山滑雪，自然降雪无法提供足够的比赛用雪”的说法只是一个看似很科学的解释，却隐藏了北京根本不具备举办冬奥会的条件这一事实。对此，国际奥委会的一份评估报告称，举办高山滑雪和单板滑雪等户外活动的赛区张家口和延庆“将完全依赖人造雪”。
+If the freedom to choose is taken away, you take away democracy.
 
-2022年1月1日
+如果自由选择的权利被剥夺了，也就意味着民主自由被剥夺了。
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Vaccination is unfortunately not the solution we hoped for.
+
+不幸的是，疫苗政策的效果却是事与愿违。
+
+After six months, two shots of Pfizer gives exactly zero protection against Omicron, Scientists say.
+
+科学家认为，打过二针辉瑞疫苗六个月后，疫苗对抗奥密克戎变种病毒Omicron 的保护作用为零。
+
+Scientists also disagree on vaccination for young and healthy people. It is insane to make this mandatory.
+
+科学家们也不同意对年轻人和健康人注射这种疫苗。 实施强制疫苗政策是疯狂荒唐的。
+
+And how about transparency? Why are the vaccine contracts between the European Commission and the vaccine manufacturers so secret?
+
+还有透明度问题， 为什么欧盟委员会和疫苗制造商之间的疫苗合同如此保密？
+
+This is a matter of public interest, so release this information Ms. Von der Leyen. Dear colleagues, we are the representatives of the people, and I will defend democracy and the rights of all citizens vaccinated and unvaccinated. And it’s our duty to defend this and I count on you to do the same.
+
+这是一个关系到公众利益的问题，冯德莱恩女士，请将这一信息公之与众。亲爱的同仁们，我们代表的是民众，我将捍卫民主，捍卫所有公民的权利，无论是接种疫苗还是未接种疫苗的。而坚守这些（自由民主）是我们的责任，我期望在座的各位也能这样做。
+
+And I wish you all a Merry Christmas. Thank you very much.
+
+预祝大家圣诞快乐，非常感谢。
+
+视频链接：[“If the freedom to choose is taken away, you take away democracy.”](https://rumble.com/vr48qx-dutch-mep-robert-roos-calls-out-ursula-von-der-leyen-and-the-vaccine-agenda.html)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

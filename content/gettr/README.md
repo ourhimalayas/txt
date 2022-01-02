@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 4:56 AM (UTC)`
+
+2021 Miles Guo's Latest Song "Hcoin To the Moon" Makes History🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/1813005<br/><br/>2021年郭文贵先生最新单曲Hcoin To The Moon创造的历史记录🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/zh-hans/1812319/<br/>
+
+---
+
 `@miles 1/2/2022 3:20 AM (UTC)`
 
 1/1/2022 Miles Guo: The CCP’s taking away the Pangu Plaza, remodeling the dragon-head-shaped top of Pangu, seizing the Yuda Palace Hotel, and releasing the VICE interview happened at the same time, with all these being arranged by God; the Whistleblowers' Movement has managed to advance against all the odds and has proved the CCP’s superstitious nature by using the CCP’s own propaganda against itself; the Whistleblowers' Movement possesses the power of butterflies to change the world!<br/><br/>1/1/2022 文贵直播：中共抢盘古、改龙头、夺裕达和发布VICE采访视频这几件大事同时发生，是上天的安排；爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量！<br/>
@@ -146,13 +152,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12/29/2021 Miles Guo: Although Liu Yazhou used to support Xi Jinping, he was arrested by Xi anyway, indicating the CCP is the demon of the world and that its political infights are extremely evil by nature<br/><br/>12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的<br/>
 ![img](https://media.gettr.com/group36/getter/2021/12/30/22/d825ad2f-c3be-cb3d-9272-4cbc65531e7a/out.jpg)
-
----
-
-`@miles 12/30/2021 9:50 PM (UTC)`
-
-12月30日：非常幸福的，继续为战友们签七哥的海报，这种感觉太好了……
-![img](https://media.gettr.com/group16/getter/2021/12/30/21/9083d7c1-daf1-7e56-ef63-6761bddf4316/out.jpg)
 
 ---
 
