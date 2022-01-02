@@ -2,32 +2,41 @@
 ---
 
 
-## 【中日财经爆】恒大新年又传噩耗：海花岛39栋楼被责令10日内拆除
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1814885/)
+## 中共政府从西方社交媒体收集了大量数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/恒大新年又传噩耗：海花岛39栋楼被责令10日内拆除.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
 
-近日，一纸关于恒大海花岛的行政处罚（限期拆除）决定书在社交网络上刷屏。1月1日上午，海南儋州市城市管理局工作人员回复称，相关执法部门确实发过这个文书，下一步会按照法律程序办理。
+该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/恒大新年又传噩耗：海花岛39栋楼被责令10日内拆除2.png)
+中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
 
-据行政处罚决定书内容显示，海花岛2号岛2-14-1地块的三（六）期项目的39栋楼，总建筑面积434941.46平方米，因该项目违法取得的规划许可证已被撤销，相关单位被责令在10日内自行拆除上述违法建（构）筑物。
+此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
 
-落款是儋州市综合行政执法局，时间为2021年12月30日，而收到处罚决定书的企业为儋州信恒旅游开发有限公司，该公司也是恒大童世界集团有限公司旗下子公司。
+该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
 
-海花岛由1号、2号和3号岛组成。此次处罚决定书要求限期拆除的建筑，均位于作为居住功能区的2号岛。
+参考链接：
 
-当前的恒大集团已经处于“崩而将塌”的状态，海南儋州市城市管理局对恒大海花岛的行政处罚（限期拆除）决定书，对于试图续命的恒大集团而言无疑是新年的一大噩耗。
+- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
 
-信息来源：
 
-[新年又遭暴击：恒大海花岛39栋楼被责令10日内拆除！曾号称投资1600亿，许家印新年致辞刚发声：不惜一切代价](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-01-02/doc-ikyamrmz2729947.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

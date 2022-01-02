@@ -2,41 +2,33 @@
 ---
 
 
-## 中共政府从西方社交媒体收集了大量数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
+## 中概股2021年暴跌 市值蒸发三分之一
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1814937/)
 
-者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+#### **撰稿：**日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/76CD7C14-24F3-437E-AF5B-FC64625F25EF.jpeg)（图片来自《大纪元》）
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+据《大纪元》1月2日报道，中概股2021年大跌7600亿美元，市值蒸发了三分之一。
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
+根据中共国财经媒体“格隆汇”近日总结，中概股在2021年的表现报告显示，阿里巴巴、腾讯、京东、美团、拼多多等众多中共国互联网公司相继赴美国上市，中概股上市公司的行业多集中于互联网、教育、科技、娱乐、新能源等新经济领域，曾一度被投资者看好，股价也水涨船高。但自2021年以来，随着中共当局对互联网企业、教培行业等进行反垄断、双减“整顿”政策等，致使中概股累计跌去了7600亿美元，差不多蒸发了三分之一。中概股从2021年2月底开始就一路下滑，至2021年底，赴美上市的两百多家中概股公司中，约80%的公司股价下跌。其中，大跌80%及以上的有40家左右，跌幅40%以上的超过150家。
 
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
+据相关统计，双减政策出台后，在线教育板块股价集体下挫。截至去年年底，高途股价累计下跌96%，好未来下跌95%，掌门教育下跌94%，新东方下跌89%。
 
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+而互联行相关行业的阿里巴巴股价累计下跌51%，爱奇艺累计下跌76%，拼多多累计下跌69%。
 
-参考链接：
+有评论人士认为，中共当局的打压是造成中概股大跌的原因，中共对教培行业和滴滴出行的打压令它们股票立竿见影大跌就是最好的例证。
 
-- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
+*参考链接：[中概股2021年暴跌 市值蒸发三分之一](https://www.epochtimes.com/gb/22/1/1/n13474094.htm)*
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+*素材采编：子辰*
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+*编辑：青城道姑*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
