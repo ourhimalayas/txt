@@ -2,34 +2,32 @@
 ---
 
 
-## 有声|MILES GUO歌声 CASSANDRA预言
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814080/)
+## 《我是音雄》第二季2021年度总决赛完美收官
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814257/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-如果艺术家诅咒某种东西它必然灭亡，Cassandra意思是说，如果不相信他的预言，人就是在自取灭亡。 艺术是人对自我的叙事。是为提供人对生活的感知方式服务的。是容纳对生活的理解与想象的对象。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-4.png)
+Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
 
-人本主义的艺术价值观认为，如果一定要言说艺术的目的，那就是也只能是人。是人的意志与信念。从某种意义上说，艺术中其实只有两种艺术，一种是人性的善良艺术，另一种是反人性的邪恶艺术。
+《我是音雄》是由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目，迄今已进行了两季，挖掘出无数各个层面的人才，成为新中国联邦的中坚力量。今晚郭先生还给“十大音雄”颁发了奖品之外的“惊喜”，即郭先生亲笔签名、歃（sha，四声）血为盟的《新中国联邦宣言》，作为对杰出战友的表彰与鼓励，也为2021年划下了一个完美的句号。
 
-摇滚歌王郭文贵先生的歌之所以被全球传播，是因为很好的表达某种心情或某种境况之下所易于相信的东西。单纯的快乐或者忧伤并不是艺术思考的指向。只有对“普遍事物的沉浸”才有可能产生艺术的表达。艺术的价值诞生并再生于精神深处。
+新闻链接：[《我是音雄》第二季总决赛暨跨年颁奖典礼](https://gtv.org/video/id=61cf9aa8ecc0b216cbb2da80)
 
-原文链接：[MILES GUO歌声 CASSANDRA预言](https://gnews.org/zh-hans/1813223/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-音频处理：喜山必胜Maverick
+总编/编辑:飞虹
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

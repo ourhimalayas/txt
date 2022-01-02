@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 1:21 PM (UTC)`
+
+1/1/2022 Mr. Miles Guo: reading the manifesto of NFSC, staying in touch with the farms, staying away from the cities is the solution for the fellow fighters to hold together and get through the hard times.<br/><br/>1/1/2022 文贵先生新年大直播：读新中国联邦宣言、联系农场、远离城市是战友们抱团取暖、渡过难关的解决之道。<br/>
+![img](https://media.gettr.com/group5/getter/2022/01/02/13/bc105709-9aac-dcf8-db8a-6dab12dfabbc/out.jpg)
+
+---
+
 `@miles 1/2/2022 8:51 AM (UTC)`
 
 1/1/2022 Miles Guo: Every fellow fighter participating in yesterday’s I Am a Sing-ro was very touching, showing that we can do better than what we are doing now, and we need to have more fabulous shows like that; we should trust the power of human civilization even more, and hope to have more fellow fighters from Europe, the origin of civilizations, to achieve what is mentioned in the Declaration of the New Federal State of China<br/><br/>1/1/2022 文贵直播: 《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目；我们要更加相信人类文明的力量，希望明年有更多来自文明发源地欧洲的战友们站出来去实现《新中国联邦宣言》<br/>
@@ -144,13 +151,6 @@
 
 Thanks to the Himalaya Washington DC Chapter, we now have a new English program The Potomac View, dedicated to enlightening the western audiences with truth in an environment where the mainstream media has largely succumbed to the CCP’s influence operation for money. We want to democratize the truth spread by Chinese Whistleblowers who took great risks upon themselves to expose the CCP’s attempts to destroy democracy and freedom in the west. This episode exposes the lies and smear campaign launched by Vice/HBO to attack Mr. Miles Guo and the Chinese freedom-loving Chinese diaspora who want to take down the CCP.
 ![img](https://media.gettr.com/group6/getter/2021/12/31/13/41d8ea3f-df0f-27eb-223d-fa1ab1bb3a55/out.jpg)
-
----
-
-`@miles 12/31/2021 12:25 PM (UTC)`
-
-20211229日本朝日TV報導CCP強改盤古大觀龍頭<br/>（完整·視頻、音頻清晰版）
-![img](https://media.gettr.com/group33/origin/2021/12/31/12/5e892cbe-08b6-58fa-f8fe-37c9c121bf75/out.jpg)
 
 ---
 
