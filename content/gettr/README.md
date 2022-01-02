@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 3:20 AM (UTC)`
+
+1/1/2022 Miles Guo: The CCP’s taking away the Pangu Plaza, remodeling the dragon-head-shaped top of Pangu, seizing the Yuda Palace Hotel, and releasing the VICE interview happened at the same time, with all these being arranged by God; the Whistleblowers' Movement has managed to advance against all the odds and has proved the CCP’s superstitious nature by using the CCP’s own propaganda against itself; the Whistleblowers' Movement possesses the power of butterflies to change the world!<br/><br/>1/1/2022 文贵直播：中共抢盘古、改龙头、夺裕达和发布VICE采访视频这几件大事同时发生，是上天的安排；爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量！<br/>
+![img](https://media.gettr.com/group25/getter/2022/01/02/03/e43958b1-2dbc-bf73-abb0-d55944c9357e/out.jpg)
+
+---
+
 `@miles 1/2/2022 2:44 AM (UTC)`
 
 1/1/2022 Miles Guo: Each fellow fighter of the Whistleblowers’ Movement is fulfilling their mission to save the world, while the CCP’s old kleptocrats are living in the endless lies and fear; the Japanese media’s report on the CCP remodeling Pangu Plaza’s dragon-head-shaped tower has received extensive attention in Washington DC; the actual downloads of GETTR App are as many as 35 million - how powerful GETTR is!<br/><br/>1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中；日媒对盘古改龙头的报道在华盛顿受到广泛关注；盖特的真实下载量达3500万 - 这是多大的力量！<br/>
@@ -146,13 +153,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12月30日：非常幸福的，继续为战友们签七哥的海报，这种感觉太好了……
 ![img](https://media.gettr.com/group16/getter/2021/12/30/21/9083d7c1-daf1-7e56-ef63-6761bddf4316/out.jpg)
-
----
-
-`@miles 12/30/2021 9:25 PM (UTC)`
-
-12月30日：正在签给战友们签名……太幸福了！
-![img](https://media.gettr.com/group28/getter/2021/12/30/21/3dc417c1-fed4-d8d7-aff4-b7d7d928fb33/c21856fb61ff7edb49e01683713dade6.jpg)
 
 ---
 
