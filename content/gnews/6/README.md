@@ -2,104 +2,51 @@
 ---
 
 
-## 【秘翻在线】首届全球盖特用户年度大奖!
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816202/)
+## 早在2018年辉瑞公司与中共国的疫苗护照平台-支付宝合作
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1816287/)
 
-**撰稿：Grace**
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-2.png)
+辉瑞公司与中共支付宝平台的合作发生在中共病毒爆发的前一年。自2019年，中共病毒爆发以来，该平台一直被中共当 “疫苗护照”使用。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-5.03.06-PM.jpeg)
-在2022年1月1日，盖特（GETTR）首席执行官杰森·米勒(Jason Miller)和盖特高级副总裁凯兰·多尔(Kaelan Dorr)在直播中颁布了第一届全球盖特用户奖!
+辉瑞公司的年度审查中所述：
 
-首席执行官杰森·米勒先生说：“硅谷寡头对言论自由的镇压日益恶化，促使我们创建了盖特，结果是今年自由表达运动的一些真正闪亮的明星展示了他们的东西。充满活力的盖特社区证明，言论自由是有生命力的，只是需要一个人们可以自由表达自己的地方，而不必担心因其意见而被取消。祝贺我们的获奖者，而其他的用户，继续为自由发帖！”
+“用户在支付宝上填写个人详细资料后，软件会生成三种颜色之一的二维码。
 
-这些获奖者是：
-
-- **被询问最多的新用户（****Most Requested New User****）****:** [@ rwmalonemd](https://gettr.com/user/rwmalonemd) (DR. Malone)
-
-
-- **福奇最糟糕的噩梦****（****Fauci’s Worst Nightmare****）****:** [@RealPNavarro](https://gettr.com/user/realpnavarro) (Peter Navarro)
+- 绿色代码：可以不受限制地自由行动。
+- 黄色代码：被要求在家隔离七天。
+- 红色代码：意味着两个星期的隔离。
 
 
-- **年度自由战士（美国）（****Freedom Fighter of the Year (USA)****）****:**  [@ rwmalonemd](https://gettr.com/user/DrZevZelenko) (Dr. Vladimir Zev Zelenko)
+在杭州，如果不出示支付宝代码，几乎不可能到处走动。宣传式的横幅提醒每个人注意这些规则，”绿色代码，自由出行。红色或黄色，立即报告。”
+
+自2018年，辉瑞制药这家巨头公司在美国的游说工作创历史新高。
+
+该消息还透露了该公司与支付宝的合作关系，支付宝是中国的在线支付平台，最初是中共的阿里巴巴分公司。
+
+美国国务院负责国际安全和不扩散事务助理国务卿克里斯托弗-福特表示，阿里巴巴还参与了 “为人民解放军研究、生产和维修武器和设备”，并与中共国的 “国家安全局有很深的合作和协作记录”。
+
+美国务院还指出，该公司是中国共产党的一个 “工具”，协助其建立 “技术促进的监视和社会控制”。
+
+尽管有这些关系，辉瑞公司在其推文中表达了对中共这个残酷的共产主义政权的自豪感。 2018年6月6日，推文中写道”我们很自豪能与中共国领导人及@支付宝站在一起，推出新的数字化解决方案，以改善疾病教育和疫苗接种–为中共国儿童创造一个更光明的未来”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image003.png)
+2018年6月7日，辉瑞中共国总经理吴昆说，“”我们很荣幸成为中共国’互联网+疫苗接种’计划的合作伙伴”
+
+“我们正在利用在中共国拥有超过7亿活跃用户的支付宝平台，提供急需的疾病和疫苗接种教育。此外，为了帮助中共国实现其雄心勃勃的2030年降低婴儿死亡率的目标，我们正在探索利用该平台进行移动支付，以提高中共国疫苗接种点中心的便利性，以及分期付款的选择，这可能会减少低收入家庭的经济负担。”
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
-- **发最多帖的发帖者（****Most Prolific Poster****）****:** [@ DineshDSouza](https://gettr.com/user/DineshDSouza) (Dinesh D’s Souza)
+[新闻来源链接](https://thenationalpulse.com/2021/12/29/pfizer-partnered-with-alipay-praised-ccp/)
 
+审核校对：sherryok (水云间)
 
-- **年度社区组织者****（****Community Organizer of the Year****）****:** [@ ChatByCC](https://gettr.com/user/ChatByCC)
-
-
-- **人民的冠军****（****The People’s Champion****）****: **[@ JackPosobiec](https://gettr.com/user/jackposobiec) (Jack Posobiec)
-
-
-- **中共最大的恶梦（****CCP’s Biggest Nightmare****）****:** [@ Miles](https://gettr.com/user/miles) (Miles Guo)
-
-
-- **取消文化的最大眼中钉（****Cancel Culture’s Biggest Target****）****:** [@ TommyRobinson1](https://gettr.com/user/TommyRobinson1) (Tommy Robinson)
-
-
-- **国会年度人物（****Congress Person of the Year****）****: **[@ MTG4America](https://gettr.com/user/mtg4america) (Marjorie Taylor Greene)
-
-
-- **发最多Memer ****的用户**（**Most Prolific Memer****）****: **[@ ilPresidento](https://gettr.com/user/ilpresidento)
-
-
-- **年度最佳真正的新闻机构（****Real News Outlet of the Year****）****:** [@ nationalpulse](https://gettr.com/user/nationalpulse) (The National Pulse)
-
-
-- ** ****年度最佳评论员（****Biting Commentator of the Year****）****: **[@ TimRunsHisMouth](https://gettr.com/user/timrunshismouth) (Tim Young)
-
-
-- 最佳二人组（**Best Duo****）****: **[@ DiamondandSilk](https://gettr.com/user/%20DiamondandSilk) (Diamond and Silk)
-
-
-- **直播明星****（****Livestream Superstar****）****: **[@ vlogdolisboa](https://gettr.com/user/vlogdolisboa) (Femando Lisbor)
-
-
-- **年度自由战士（巴西）（****Freedom Fighter of the Year (Brazil)****）****: **[@allansantosbr](https://gettr.com/user/allansantosbr)  (Allan dos Santos)
-
-
-- **年度最佳发帖者** （**Troll of the Year****）****: **[@catturd2](https://gettr.com/user/catturd2)
-
-
-- **最大的声音（****Biggest Voice****）****: **[@ KamVTV](https://gettr.com/user/KamVTV) (Kambree)
-
-
-- **年度最佳活动家（****Activist of the Year****）****: **[**@** **ScottPresler**](https://gettr.com/user/ScottPresler)**  **(Scott Presler)
-
-
-- **火焰下的勇气（****Courage Under Fire****）****: **[@Project\_Veritas](https://gettr.com/user/project_veritas)
-
-
-- **盖特的核心和灵魂（****The Heart and Soul of GETTER****）****: **[@ RafaelGoldberg](https://gettr.com/user/RafaelGoldberg) (Rafael Goldberg), [@JPLyle](https://gettr.com/user/JPLyle) ( Jeanne Lyle), and [@CCBagley](https://gettr.com/user/CCBagley) (Christi Bagley)
-
-
-- **男人/****女人，神话，传奇（****The Man/Woman, the Myth, the Legend****）****: **[@SteveBannon](https://gettr.com/user/stevebannon)  (Steve Bannon)
-
-
-- **信仰战士（****Faith Warrior****）****: **[@ christineyeargs](https://gettr.com/user/christineyeargs) (Christine Yeargin)
-
-
-- **运动的未来（****The Future of the Movement****）****: **[@TheJordanRachel](https://gettr.com/user/TheJordanRachel) (Jordan Rachel), and @ [@theisabelbrown](https://gettr.com/user/theisabelbrown) (Isabel Brown)
-
-
-- **年度最佳自由斗士（英国）（****Freedom Fighter of the Year (U.K)****）****: **[@LozzaFox](https://gettr.com/user/lozzafox) (Laurence Fox)
-
-
-- **年度自由斗士（法国）（****Freedom Fighter of the Year (France)****）****: **[@zemmoureric](https://gettr.com/user/zemmoureric)** (**Eric Zemmour)
-
-
-- **年度自由斗士（德国）（Freedom Fighter of the Year (Germany)）: **[@ reitschuster](https://gettr.com/user/reitschuster) (Boris Reitschuster)
-
-
-- **年度自由斗士（全球**）（**Freedom Fighter of the Year (Global)****）****: **[@EnesKanter](https://gettr.com/user/EnesKanter) (Enes Kanter-Freedom)
-
-
-- **年度最佳人物**（**Person of the Year****）**** : **[@ JairBolsonaro](https://gettr.com/user/jairbolsonaro) (Jair Bolsonaro- President of Brazil巴西总统)
-
-
-**新闻来源****：**** **[The First Annual Worldwide GETTIE Awards](https://gettr.com/streaming/plctbxe658)
+上传排版：漂流瓶
 
  
 

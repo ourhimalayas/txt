@@ -2,34 +2,21 @@
 ---
 
 
-## 德国超过95%的奥密克戎病例接种过疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815597/)
+## 郭文贵先生荣获盖特帐号影响力排行榜第一名
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1815653/)
 
-作者：纽约香草山翻译部 defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，据联邦政府出具的一份新报告显示，德国超过95%的奥密克戎变种报告病例发生在完全接种过中共病毒疫苗的民众身上。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.01.png)
-有报道提及，德国机构罗伯特科赫研究所于2021年12月30日发表的一份文件中包含了四千两百零六名感染中共病毒奥密克戎变种的患者的疫苗接种状态信息。 其中，有95.6%的感染者至少接种了两剂中共病毒疫苗，另有28%的患者接种了第三剂加强针。此外，仅有186名感染者未曾接种过疫苗，占所有新变种感染病例数的4%。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AZ.jpg)
+**音乐界、社交媒体影响力第一的郭文贵先生**
 
-对此，报道中批评道，这些数据基本上可以表明，中共病毒疫苗对预防民众感染奥密克戎变种方面没有任何效用，但制药公司却试图继续推进疫苗的接种，同时，各大社交媒体平台也在着重审查那些关于中共病毒疫苗副作用和不良反应的报道。
+继连续拿下摇滚歌曲排行榜数个第一名，成为炙手可热、名副其实的摇滚巨星之后，爆料革命发起人及新中国联邦创始人郭文贵先生再度荣获荣获盖特GETTR帐号影响力排行榜第一名，遥遥领先第二名，影响力是第二名的四倍。史帝夫•班农是第五名，warroom为第十名，秘密翻译组紧追在后，成为第十二名。十三名是大纪元，支持川普的gatewaypundit,we\_love\_trump则分列十六、十七名。
 
-参考链接：
-1）[REPORT: Over 95% of Omicron Cases are in Vaccinated People.](https://thenationalpulse.com/2021/12/31/vaccinated-21-times-more-likely-to-get-omicron/)
-2）[https://www.gettr.com/post/plbrglc451](https://www.gettr.com/post/plbrglc451)
+**上达天听的音乐、传播真相的社交媒体是灭共的利器**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+“音乐是人与天地的沟通，与大自然沟通交流的唯一方式。”文贵先生说。共产党及独裁者深谙音乐的深远影响力，掌权之后首先控制音乐的形式与内容。文贵先生明白音乐对灭共的重要性，即便自嘲五音不全，仍努力不懈地录制《TAKE DOWN CCP》、《酒灭中共》、《马背英雄》，每一首歌曲都气势磅薄、深入人心，在共产党内部造成极大的震撼，最近的《H COIN TO THE MOON》更连续数周获得BILLBOARD 及其他音乐排行榜的世界第一名，影响力深远，令中共胆寒。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+如今郭文贵先生又取得社交媒体盖特影响力排行榜第一名，实属难能可贵。盖特是国际媒体，用户涵盖不同种族及语言，除了爆料革命、新中国联邦的战友支持的力量，国际的力量不容小觑。这也意味着全世界支持灭共的力量逐渐茁壮，共产党下地狱的日子不远了!
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

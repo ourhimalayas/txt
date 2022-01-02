@@ -2,34 +2,26 @@
 ---
 
 
-## 欧洲感染中共病毒者突破1亿 全球已接近3亿
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1816297/)
+## 加拿大魁北克省新冠禁宵令 禁止民众期间遛狗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1816336/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+翻译：Torsteintt
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-02-175015-edited.png)图片来源：网络
+根据Montreal Gazette报道，你的狗狗需要去户外小解？ “很不幸”， 魁北克政府宣告新的禁宵令实施包括户外遛狗也不能例外， 魁北克省已于上周五实施了该禁宵令。
 
-1月1日，据美国约翰霍普金斯大学发布的统计数据显示，自疫情爆发以来，欧洲感染COVID-19（中共病毒）的人数突破1亿 ，全球感染数已超2亿9千万。
+该禁宵令规定每天晚10点到早5点不得外出，此前包括一些例外比如允许户外遛狗。 但是户外遛狗的例外自从周六开始在政府官网上被移除。
 
-据美国之音报道，约翰霍普金斯大学于1月1日发布的这份关于COVID-19病毒（中共病毒）报告。
+魁北克省长弗朗索瓦·勒戈此前声明：“是否实施禁宵令取决于本省医疗系统是否能够承受未来几周的疫情。”
 
-报告称，自疫情爆发以来，欧洲的确诊病例已经突破1亿，全球确诊病例已经接近3亿，目前已超过了2亿8900万例，但疫苗的接种数量则高达91亿剂。
+尚未知政府是否特意的无声的，还是无意的错误的禁止了民众在禁宵期间遛狗的权力。 当问到， 首席卫生长官克里斯蒂安·杜贝把此问题提交给了安全长官吉纳维芙·吉尔博，之后问题又被提交回给了卫生部门。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-16.png)图片来自网络
+新闻链接：[https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec](https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec)
 
-有评论表示，在疫苗接种数量接近100亿剂时，全球的确诊数量仍然在持续增长。而且，病毒很有可能会再次变异，就目前Omicron变异病毒的感染速度来看，疫苗竟毫无抵抗之力，人类目前不止需要追问病毒的源头，也需要追问疫苗的真正用意。据GETTR用户‘盘古千寻’转载Planetes360的一篇报道显示，博士病理学家瑞安·科尔在视频中披露注射疫苗后被刺突蛋白损坏人体组织的图像，向世人展示了真实的新冠疫苗对人体造成的可怕伤害。
+编辑/发布：LILY
 
-*参考链接：*
+20220102
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-[欧洲新冠病例突破一亿，全球接近3亿](https://www.voachinese.com/a/europe-tops-100-million-covid-cases-20220101/6378484.html)
-
-[【#疫苗真相】据Planetes360报道，博士病理学家瑞安·科尔揭露了注射疫苗后被刺突蛋白损坏的人体组织图像。视频中Ryan Cole讲述了新冠病毒疫苗和尸检。心脏、肺、肾脏、卵巢、睾丸、肝脏……评论：科学家向世人展示了真实的新冠疫苗对人体造成的可怕的伤害。](https://gettr.com/post/pl7tz65348)
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：文顺*
-
-*发布：Ranting*
 
  
 
