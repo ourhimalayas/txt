@@ -15,119 +15,119 @@
 
 ---
 
-### [2022/01/01 大卫作战室跨年直播精要](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [香港演艺界需要更多何韵诗!](/content/gnews/2/README.md)
+### [拜登《国防授权法》或成灭共最大推力](/content/gnews/1/README.md)
  ` 焦點20分`
 
-### [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/gnews/3/README.md)
+### [史玉柱股权再遭冻结 白手套殊途同归](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [2022/01/01 大卫作战室跨年直播精要](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [香港演艺界需要更多何韵诗!](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/gnews/5/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [共党不灭，世界都变成香港&#8212;荷兰警察残暴放狗撕咬抗议民众](/content/gnews/4/README.md)
+### [共党不灭，世界都变成香港&#8212;荷兰警察残暴放狗撕咬抗议民众](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [DC大中华时事：外媒聚焦全球最大自贸区扬帆起航](/content/gnews/5/README.md)
+### [DC大中华时事：外媒聚焦全球最大自贸区扬帆起航](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共惩罚在西安试图逃离中共病毒管控的人](/content/gnews/6/README.md)
+### [中共惩罚在西安试图逃离中共病毒管控的人](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/7/README.md)
+### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [未接种疫苗的阿联酋人将从1月10日起被禁止离开阿联酋](/content/gnews/8/README.md)
+### [未接种疫苗的阿联酋人将从1月10日起被禁止离开阿联酋](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数千个航班取消：今年冬天取消、延误是新常态吗？](/content/gnews/9/README.md)
+### [数千个航班取消：今年冬天取消、延误是新常态吗？](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/10/README.md)
+### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [12/29/2022 文贵直播：未来拜登总统很有可能是世界上最大的灭共英雄](/content/gnews/11/README.md)
+### [12/29/2022 文贵直播：未来拜登总统很有可能是世界上最大的灭共英雄](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [海军陆战队已开除了200多名拒绝COVID疫苗强制令的军人](/content/gnews/12/README.md)
+### [海军陆战队已开除了200多名拒绝COVID疫苗强制令的军人](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [人们正在醒来 加州正在回归](/content/gnews/13/README.md)
+### [人们正在醒来 加州正在回归](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英卫生部长表示新COVID限制令将是最后手段](/content/gnews/14/README.md)
+### [英卫生部长表示新COVID限制令将是最后手段](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【Michael.Tonny专栏】中共病毒疫苗导致的死亡是过去其它疫苗的71倍以上！](/content/gnews/15/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗导致的死亡是过去其它疫苗的71倍以上！](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [郭文贵先生荣获盖特帐号影响力排行榜第一名](/content/gnews/16/README.md)
+### [郭文贵先生荣获盖特帐号影响力排行榜第一名](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1/1/2022 文贵直播：中国和西方文化其实并不冲突，新中国联邦将促进二者交融、取长补短，从而形成更先进的文明](/content/gnews/17/README.md)
+### [1/1/2022 文贵直播：中国和西方文化其实并不冲突，新中国联邦将促进二者交融、取长补短，从而形成更先进的文明](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/1/2022 文贵直播：什么是“风”？中国的五行和西方的星座都是人类文明的累积](/content/gnews/18/README.md)
+### [1/1/2022 文贵直播：什么是“风”？中国的五行和西方的星座都是人类文明的累积](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界卫生委员会呼吁停止实验性“疫苗”](/content/gnews/19/README.md)
+### [世界卫生委员会呼吁停止实验性“疫苗”](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [德国超过95%的奥密克戎病例接种过疫苗](/content/gnews/20/README.md)
+### [德国超过95%的奥密克戎病例接种过疫苗](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [2022/01/02 英喜时事速递](/content/gnews/21/README.md)
+### [2022/01/02 英喜时事速递](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共借由音乐的综合性洗脑艺术](/content/gnews/22/README.md)
+### [中共借由音乐的综合性洗脑艺术](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦•勒戈的办公室抗议宵禁](/content/gnews/23/README.md)
+### [示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦•勒戈的办公室抗议宵禁](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/24/README.md)
+### [泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共国“大脑控制”战争工程曝光](/content/gnews/25/README.md)
+### [中共国“大脑控制”战争工程曝光](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加拿大魁北克省再度无限期宵禁](/content/gnews/26/README.md)
+### [加拿大魁北克省再度无限期宵禁](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [01/02/22 香港快讯 何韵诗获释后 开网上个唱 唱《夕阳之歌》感谢梅艳芳常予勇气](/content/gnews/27/README.md)
+### [01/02/22 香港快讯 何韵诗获释后 开网上个唱 唱《夕阳之歌》感谢梅艳芳常予勇气](/content/gnews/29/README.md)
  ` 英喜-粵語組`
 
-### [TikTok 变性视频 缺失媒体基本的社会责任](/content/gnews/28/README.md)
+### [TikTok 变性视频 缺失媒体基本的社会责任](/content/gnews/30/README.md)
  ` 焦點20分`
 
-### [大直播后记——七哥谈蝴蝶效应](/content/gnews/29/README.md)
+### [大直播后记——七哥谈蝴蝶效应](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC每日热点0102](/content/gnews/30/README.md)
+### [DC每日热点0102](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [浅解大直播中金木水火土和颜色之间的关系](/content/gnews/31/README.md)
- ` 英喜-粵語組`
-
-### [宜家决定在 2022 年将商品价格上调 9%](/content/gnews/32/README.md)
+### [宜家决定在 2022 年将商品价格上调 9%](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [墙内红星新闻:云南丽江宁蒗县5.5级地震已致15人受伤！](/content/gnews/33/README.md)
+### [墙内红星新闻:云南丽江宁蒗县5.5级地震已致15人受伤！](/content/gnews/34/README.md)
  ` 首尔天池农场`
 
-### [1/1/2022 文贵直播：《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目](/content/gnews/34/README.md)
+### [1/1/2022 文贵直播：《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/35/README.md)
+### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [视频| 拜登法案意义重大（下）](/content/gnews/36/README.md)
+### [视频| 拜登法案意义重大（下）](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [视频| 拜登法案意义重大（上）](/content/gnews/37/README.md)
+### [视频| 拜登法案意义重大（上）](/content/gnews/38/README.md)
  ` MOSREC`
-
-### [港共政府或将继续抓捕立场新闻相关人员](/content/gnews/38/README.md)
- ` GTV新闻访谈`
 
 ### [社交媒体寡头压制言论自由已图穷匕见](/content/gnews/39/README.md)
  ` GTV新闻访谈`
