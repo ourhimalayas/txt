@@ -15,67 +15,67 @@
 
 ---
 
-### [自然感染与中共病毒疫苗导致的心肌炎有何不同？](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [《无问西东》Forever Young](/content/gnews/2/README.md)
+### [1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [走上特权之路的新西兰女总理](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [习近平新年致辞无视残忍的封城和新冠病毒应对失策](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022年1月1日郭先生大直播文字同步精要](/content/gnews/5/README.md)
- ` 焦點20分`
-
-### [串珠511:西安封城已致死2000多/陕西人打最毒疫苗](/content/gnews/6/README.md)
- ` 郭爆料串珠`
-
-### [日本天皇发表新年贺词关怀中共病毒下民生疾苦](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西安疫情 特定疫苗 七窍流血](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国去年一年花圈销量是过去20年总和](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为了冬奥会 共产党卑躬屈膝大撒币](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [青蒿素是神药 修复基因 杀癌细胞等](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党这次拿出杀手锏 逼迫欧洲必须来冬奥会](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党每时每秒在杀人 十四亿中国人苟且偷生](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共官员在新疆西藏玩奸小孩延长寿命 扶持塔利班饿死百姓](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登政府会取消对中国的关税 22日后表态出席冬奥会的都是共产党拿钱买来的](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [VOICE和一直缠诉郭文贵先生的PAG的幕后老板就是单伟健 幕后都是共产党](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NFT打破法币和政府垄断](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [短视频：大多数住院病人都接种了疫苗，而且病情严重](/content/gnews/19/README.md)
+### [自然感染与中共病毒疫苗导致的心肌炎有何不同？](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [阿富汗撤军符合美国利益 也有利于对应中共等邪恶势力](/content/gnews/20/README.md)
+### [《无问西东》Forever Young](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [走上特权之路的新西兰女总理](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [习近平新年致辞无视残忍的封城和新冠病毒应对失策](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年1月1日郭先生大直播文字同步精要](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [串珠511:西安封城已致死2000多/陕西人打最毒疫苗](/content/gnews/7/README.md)
+ ` 郭爆料串珠`
+
+### [日本天皇发表新年贺词关怀中共病毒下民生疾苦](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杨贝贝一定要为今天的采访负责](/content/gnews/21/README.md)
+### [西安疫情 特定疫苗 七窍流血](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国去年一年花圈销量是过去20年总和](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为了冬奥会 共产党卑躬屈膝大撒币](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [青蒿素是神药 修复基因 杀癌细胞等](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党这次拿出杀手锏 逼迫欧洲必须来冬奥会](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党每时每秒在杀人 十四亿中国人苟且偷生](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共官员在新疆西藏玩奸小孩延长寿命 扶持塔利班饿死百姓](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登政府会取消对中国的关税 22日后表态出席冬奥会的都是共产党拿钱买来的](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [VOICE和一直缠诉郭文贵先生的PAG的幕后老板就是单伟健 幕后都是共产党](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NFT打破法币和政府垄断](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [短视频：大多数住院病人都接种了疫苗，而且病情严重](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [阿富汗撤军符合美国利益 也有利于对应中共等邪恶势力](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [议员：“剥夺自由选择的权利就等于剥夺了民主。”](/content/gnews/22/README.md)
