@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 2:30 AM (UTC)`
+
+2022年：1月1号．伟大而神奇的一天．衷心地感谢所有的参与今天直播的台前幕后的所有战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏在此祝大家元旦节快乐……💋💋💋💋💋💋💋💋💋
+![img](https://media.gettr.com/group44/getter/2022/01/02/02/159dd2eb-c4a8-6dcb-4294-34c0ddbf9f9c/out.jpg)
+
+---
+
 `@miles 1/1/2022 10:39 PM (UTC)`
 
 1/1/2022 Miles Guo: How to cure the trauma caused by communism after the CCP is taken down? You can find all the answers in the Declaration of the New Federal State of China, and please read it carefully<br/><br/>1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读<br/>
@@ -145,13 +152,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 `@miles 12/30/2021 8:58 PM (UTC)`
 
 12月30日：Darkness has enveloped the world. 🙏🙏🙏🙏🙏🙏🙏🙏🙏【Brother Miles Guo warned America about this TWICE — spring 2019 and again with the problem with the Three Gorges Dam in spring 2020 <br/><br/><br/>https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam】
-
----
-
-`@miles 12/30/2021 7:22 PM (UTC)`
-
-12月30号：应战友的要求马上发一下snow的视频，有战友梦见SNOW 了💋💋💋💋😹😹😹😹
-![img](https://media.gettr.com/group11/getter/2021/12/30/19/ecd4da0a-fd0c-c01e-b59a-87dfa04e1631/out.jpg)
 
 ---
 
