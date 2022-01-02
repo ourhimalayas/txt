@@ -2,30 +2,46 @@
 ---
 
 
-## 加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814444/)
+## 美国机场继续陷入混乱，超过2600个航班被取消
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814584/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-1.jpg)图片来源：每日邮报
-据《每日曝光》（Daily Expose）2021年12月31日报道，在南加州的医院，因新冠疫苗导致的病患人数越来越多。少数勇敢的护士挺身而出，讲述了他们所目睹的情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor-1.jpg)
 
-在位于洛杉矶北部的本图拉县 (Ventura County)，当地医院“不明原因”的心脏疾病、中风和血栓病例正在激增，但许多医生拒绝认为这些疾病与新冠疫苗有关。
 
-在本图拉县一家重症监护室工作的护士萨姆（Sam）决定向媒体《Conejo Guardian》说出他对此事的担忧。他说：“我厌倦了所有正在发生的事，因为医疗机构继续拒绝承认新冠疫苗的弊远大于利。没有人对此提出质疑，这太疯狂了。在接种新冠疫苗后，患有严重健康问题的年轻人明显增多。已经有很多年轻人前来就诊，我们看到了很多中风和心脏病患者。在一个案例中，一名38岁妇女的大脑出现了闭塞，血液流动受阻。我们知道新冠疫苗会导致血栓，她接种了两剂疫苗，但没有任何医生将其中风症状与疫苗联系起来！他们只说这症状无法解释，这真的很荒唐！另一个例子中，一位以前没有心脏病史的63岁妇女突然患上了心脏病。检测显示她的冠状动脉是清晰的，然而她刚刚接种了莫德纳的新冠疫苗。一位医生实际上对新冠疫苗提出了质疑，但他们没有在病历中提及这一点，因为无法证明。”
 
-萨姆补充说，该地区所有的医院都目睹了心肌炎病例的大幅飙升。新冠疫苗的副作用包括心肌炎，这一点已广为人知并被广泛报道。“但是每个人都想淡化这一问题，医生们不愿意质疑它和对此发出警告，甚至不愿讨论它，他们表现得好像无法找到病症原因，认为其是自发的。”
+图片来源：thethaiger.com
 
-另一位在重症监护室工作的护士达娜（Dana）说：“我所在单位从未如此繁忙，但没有一个病人是新冠患者。我们通常不会看到同时出现这么多的中风、动脉瘤（aneurysms）和心脏病患者。一般情况下，我们每年会看到六到十个急性主动脉夹层 (aortic dissection）病例，但在上个月我们就看到了六个，这很疯狂。这些疾病的死亡率非常高。”
 
-与萨姆的医院一样，达纳所在医院的医生们甚至不会考虑新冠疫苗导致了心脏相关疾病患者突然增加。相反，这些“卫生专家”将其归咎于“假期”等因素。
+#### 编译：小红帽
 
-护士们说，这些病人中的大多数已完全接种了新冠疫苗。
+根据半岛电视台1月2日报道， **美国的航空旅行继续受到严重干扰，该国部分地区的恶劣天气加剧了由Omicron变种引发的新冠病毒（COVID-19）感染激增的影响。**
 
-新闻来源：
+根据追踪网站FlightAware的数据，美国周六时间下午4:30（格林尼治标准时间21:30）后，有2，604个航班被取消，占全球取消的4，529个航班的一半以上。
 
-[Nurses Blow Whistle on Staggering Number of Heart Problems and Strokes in The Fully Vaccinated](https://dailyexpose.uk/2021/12/31/nurses-blow-whistle-on-staggering-number-of-heart-problems-and-strokes-in-the-fully-vaccinated/)
+在国际航空公司中，中国东方航空公司取消了500多个航班，约占其总数的四分之一；中国国际航空公司取消了200多个航班，占其时间表的五分之一。
+
+美国取消的航班是自圣诞节前夕航空公司开始宣布因机组人员感染新冠病毒而导致人员短缺以来最高的单日死亡人数。
+
+根据该网站，受影响最严重的美国航空公司是西南航空公司，该公司不得不取消全国范围内的450个航班，占其航班计划的13%。
+
+美国航空和达美航空各取消了200多个航班，联合航空取消了150多个航班。奥黑尔机场有800多个航班被取消，中途岛机场有250多个航班被取消。
+
+自12月24日以来，已有超过12，000个美国航班被取消。
+
+全球航空旅游业仍在为高度传染性的Omicron变种而影响。许多飞行员、空乘人员和其他工作人员在感染新冠病毒后缺勤，或在与感染者接触后被隔离。
+
+新闻来源：[US airport chaos continues as more than 2,600 flights cancelled | Coronavirus pandemic News | Al Jazeera](https://www.aljazeera.com/news/2022/1/2/us-airport-chaos-continue-as-more-than-2600-flights-cancelled)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
