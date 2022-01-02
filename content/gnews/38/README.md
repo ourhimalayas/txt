@@ -2,22 +2,26 @@
 ---
 
 
-## 《我是音雄》第二季2021年度总决赛完美收官
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814257/)
+## 台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814284/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-4.png)
-Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
+纽约香草山医疗部-云豹；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-58.png)
+针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
 
-《我是音雄》是由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目，迄今已进行了两季，挖掘出无数各个层面的人才，成为新中国联邦的中坚力量。今晚郭先生还给“十大音雄”颁发了奖品之外的“惊喜”，即郭先生亲笔签名、歃（sha，四声）血为盟的《新中国联邦宣言》，作为对杰出战友的表彰与鼓励，也为2021年划下了一个完美的句号。
+另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
 
-新闻链接：[《我是音雄》第二季总决赛暨跨年颁奖典礼](https://gtv.org/video/id=61cf9aa8ecc0b216cbb2da80)
+新闻连接：[總統2022新年談話：穩健執政堅守主權 台灣珍惜民主挺香港](https://www.cna.com.tw/news/firstnews/202201015003.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[In New Year’s speech, Taiwan president warns China against ‘military adventurism’](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
 
-总编/编辑:飞虹
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.06.26-PM-1.png)
+
+总编/编辑：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -27,7 +31,9 @@ Superman是《我是音雄》节目组的执行导演，负责指导和帮助参
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,54 +2,88 @@
 ---
 
 
-## 柯林斯和福奇对传统公共卫生的攻击（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814948/)
+## 全球疫情更新（澳大利亚新州入院人数暴增）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1815037/)
 
-编译：Jenny Ball
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/33.jpg)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 元旦）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-2.jpg)图片来源：KAMIL KRZACZYNSKI/AFP via Getty Images
+**一，全球疫情基本数据**
 
-**GBD ****的根本目标是，在对公众健康危害最小的情况下，度过这场可怕的流行病**。当然，健康不仅限于 COVID， 对封锁政策的任何合理评估，都应考虑其对癌症、心血管疾病、糖尿病、其他传染病，以及心理健康等患者的附带损害。基于长期存在的公共卫生原则，在毁灭性的封锁和无所作为任病毒发展的策略之间，宣言和重点保护高危人群**是一个行动的中间地带。**
+感染总数：2.89229853亿（日新增139.0785万，14天增幅+117%）
 
-柯林斯和福奇出人意料地声称，如果没有疫苗，就不可能对老年人进行集中保护。科学家有自己的专长，但并非每个科学家都在公共卫生方面拥有深厚的专业知识。**对流行病学家和公共卫生科学家来说，自然的方法是他们的基础。**如果他们这样做了，柯林斯和福奇就会明白，公共卫生从根本上说是重点保护。
+死亡总数：543.8万（日新增 6,151人，14天增幅–11%）
 
-**完全关闭社会是不可能的**。封锁保护了年轻的，低风险的、富裕的在家工作的专业人士，例如行政人员、科学家、教授、记者和律师，而工人阶级中年长的高危成员，暴露并死亡的人数必然很高。未能理解封锁无法保护弱势群体，这导致 COVID 造成的死亡人数悲惨地高。
+每万人感染人数：447.9938 人（除中国外）
 
-我们不知道为什么柯林斯和福奇决定“取消” 科学讨论，而不是利用他们尊敬的立场来建立和促进对这些关键问题的激烈辩论，让具有不同专业知识和观点的科学家参与进来。**部分答案可能在于另一个谜题**——**那就是他们对封锁的破坏性影响和其他公共卫生结果视而不见。**
+**二，全球“疫苗”毒针统计数据**
 
-封锁危害影响了每个人：
+“疫苗”毒针注射总数：88.1亿
 
-- 慢性病患者的负担更加沉重；
-- 关闭学校对儿童的危害；
-- 工人阶级，尤其是人口稠密的城内的工人阶级；
-- 以及全球穷人，数以千万计的营养不良和饥饿的人们。
+完全“接种”：37.7亿人
 
+完全“接种”百分比：48.3%
 
-**福奇是关闭学校的主要倡导者**，这些现在已被广泛认为是一个巨大的错误，它并不影响疾病传播，但却伤害了儿童。未来几年，我们必须努力扭转错误的流行病战略所造成的损害。
+**三，澳洲疫情和“疫苗”数据**
 
-数以万计的科学家和医学专业人士签署了《大巴林顿宣言》，但为什么没有更多的媒体发声？ 有些媒体做到了，有些尝试过但失败了，而另一些对此非常谨慎。**当我们撰写《宣言》时，我们知道，我们正在将我们的职业生涯以及我们养家糊口的能力置于危险之中**。这是我们有意识的决定，我们也完全理解那些没有签名，决定专注于维护他们重要实验室研究和活动的人们。
+感染总数：462,928（今日新增 32,347人）
 
-科学家们自然会犹豫，**这将意味着掌握着年度科研预算为**** 429 ****亿美元的****NIH ****主任会取消他们的年度科研预算。让每年预算为**** 61 ****亿美元用于传染病研究的**** NIAID ****主任，或每年预算为**** 15 ****亿美元的惠康信托基金主任不高兴，也可能是不明智的**。作为强大的资助机构，柯林斯、福奇和法拉尔控制研究资金输送给美国和英国几乎所有传染病流行病学家、免疫学家和病毒学家。
+死亡总数：2,259人（今日新增 6人）
 
-**柯林斯、福奇和法拉尔，**与其他封锁支持者一起，**得到了他们倡导的大流行封锁战略**。 GBD 过去和现在，都给他们带来了不方便，因为《宣言》清楚地证明了一个更好、更不致命的可用的替代方案。
+每万人感染人数：156.2531人
 
-现在在美国，**有超过**** 800,000 ****例**** COVID ****死亡**，还有附带损害。与美国、英国和大多数其他欧洲国家相比，瑞典和其他斯堪的纳维亚国家——较少采取封锁，而更关注保护老年人——他们人均 COVID 死亡人数则较少。佛罗里达州避免了大部分附带封锁的危害，目前在美国按年龄组的 COVID 死亡率排名第 22 位。
+以下澳洲疫苗为昨日数据，今日元旦数据未更新。
 
-在学术医学领域，获得 NIH 的资助决定了职业生涯的成败，因此，科学家有强烈的动机站在 NIH 和 NIAID 优先事项的一边。未来，**如果想让科学家们畅所欲言**，就应该避免让同一个人负责公共卫生政策和医学研究经费。
+“疫苗”毒针注射总数：42,598,706  （日新增160,279针）
 
-**点评：一个人控制一切， 不就是独裁吗？这就是医疗独裁！**
+第二针“接种”：1884.5485万人
 
-请阅读上一篇：[柯林斯和福奇对传统公共卫生的攻击（1/2）](https://gnews.org/zh-hans/1814901/)
+第二针“接种”百分比：76.7%
 
-**参考资料：**[theepochtimes][Kulldorff & Bhattacharya Respond: The Collins and Fauci Attack on Traditional Public Health](https://www.theepochtimes.com/mkt_morningbrief/the-collins-and-fauci-attack-on-traditional-public-health_4187173.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-01&amp;mktids=dc2a6b2380e2d8d3b8bd3c7002360f44&amp;est=NfSa7yBw98cvGUoPBRDmpTLDRHTFQmprQtn3qqe6gB8IlMnuBH%2F8dMLliV4l3TUD8EcSNg%3D%3D)
+16岁以上人口接种至少一剂疫苗的比例：94.4%
 
-* * *
+16岁以上人口接种至少两剂疫苗的比例：91.4%**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/56.jpg)
+今日澳大利亚病例新增数字有所稳定，仍超过三五两千人，可能与检测数量下降有关。澳大利亚 的12岁以上人口已有超过90%完全接种了疫苗，澳洲全部人口的完全接种率也高达76.7%。当初“专家”曾经保证，当疫苗接种达到70%，疫情就能得到控制，我们都能恢复正常生活，“Our Best Shot”（疫苗针是我们最大的希望）曾经是“主流“媒体中不断重复的口号。看看如今澳洲疫情如火箭般上升的现实，回想这句口号，是如此讽刺。
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+如今的主流媒体和澳洲政府，还在继续鼓动人们施打加强针，继续声称疫苗能够帮助我们控制疫情。那么我们就看看加强针的一个模范国家丹麦的情况吧：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/57.jpg)
+丹麦每日新增病例曲线（图片来源：谷歌）![](https://assets.gnews.org/wp-content/uploads/2022/01/58-1.jpg)丹麦疫苗接种曲线（深绿色部分为加强针）
+从这两幅丹麦的疫情曲线和疫苗接种曲线我们可以看到，即使丹麦的加强针接种已经覆盖其人口的40%以上，仍然对阻止疫情进展毫无正面作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+谈到疫苗无法控制疫情这个问题时，支持中共病毒疫苗毒针的人们往往会说，疫苗不能阻止感染是没错，我也知道，可是疫苗可以防止我病重住院啊！不幸的是，澳大利亚新南威尔士州的传来的消息，该州的住院人数持续升高，在[一天之内上升了 18%](https://www.theguardian.com/australia-news/live/2022/jan/02/australia-news-live-update-rising-covid-patients-put-hospitals-under-pressure-as-victoria-and-nsw-expect-record-cases-omicron-scott-morrison)，达到 1,066人；医院已经缺乏人手到了政府宣布[对医护人员豁免隔离规定](https://www.theguardian.com/australia-news/2022/jan/01/decision-to-exempt-nsw-health-workers-from-covid-isolation-reflects-hospitals-desperate-situation)的地步，新南威尔士州卫生局周五深夜宣布，在“特殊情况”下，与无症状密切接触者的前线工作人员将无需自我隔离 7 天，以避免关键服务中断。医生们说，这个决定反映了“极其绝望的情况”，并警告说政策变化将增加住院患者的 感染风险。请看下面的澳洲中共病毒感染住院人数曲线。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/60.jpg)澳大利亚的中共病毒感染住院人数曲线（深蓝色部分为重症监护室病人数字）
+必须强调的是，包括新南威尔士州的澳洲大多数州已经对医院的工作人员实施了强制疫苗政策，没有接种新冠疫苗毒针的医护人员无权继续工作，连在家工作也不行。这加剧了医院人手的短缺。
+
+当初实施强制疫苗接种的借口就是为了控制疫情，而现实和数据都已经证明，这些毒针既不能控制疫情，也无法控制入院人数的迅猛增长。
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：kk
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

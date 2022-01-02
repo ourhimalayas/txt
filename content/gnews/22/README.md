@@ -2,49 +2,37 @@
 ---
 
 
-## 以色列在大规模感染中醒了吗？扔推第4针？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814886/)
+## 西安防疫人员群殴购买食物饥饿居民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814907/)
 
-**翻译： Jenny Ball**
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台媒1月1日消息，近日墙内社交媒体传出一段惊人影片，西安市雁塔区南窑头村一名男子，因为无法忍受饥饿，下楼买馒头，却遭到防疫人员群殴。该被打男子无力反击，最后被防疫人员掐脖摔倒，馒头也洒落一地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2-scaled.jpg)
 
-里奥·亚历山大（Leo Alexander）正在解释医学实验。1942 年 11 月 22 日在纽伦堡，被告赫塔·奥伯豪瑟 （Herta Oberheuser）和弗里茨·恩斯特·费舍尔（Fritz Ernst Fischer）给人造成的损害。
+此残忍画面被迅速转发，点击量迅速飙升。墙内网民纷纷感叹，此次疫情过后，将有许多人会选择离开西安。也有人指责，中共治下的大陆，只要手中握有一丁点权力的人，就会想方设法把权力用到最大。更有网友一针见血地指出，被打男子冒险外出的原因，是在小区买不到食物，而政府根本不管。
 
-这个犹太国家可能已经对其公民进行了太多的试验，使用会产生可怕副作用的基因治疗血清，更不用说可能产生的长期自身免疫性疾病。对于一个对纳粹政权进行的人体实验记忆犹新的民族来说，难道这是自然结果？
+至今，西安已进入第10天封城状态。大量民众抱怨，中共当局封门禁止外出购买食物，更没有物流配送，家中早已断炊。
 
-或者，在疫苗强制执行显然不再可行之后，辉瑞还可能会有一种新药丸出售给以色列人。
+参考链接：
 
-据报道，根据周三公布的数据，以色列连续第二天记录了近 3,000 例新的冠状病毒病例，感染率继续攀升，据《以色列时报》。报道，卫生部高级官员正在权衡转向通过大规模感染实现群体免疫的政策。
+- [太慘了！西安居民封城多日餓壞 下樓買饅頭還被防疫人員圍毆](https://news.ltn.com.tw/news/world/breakingnews/3786764)
 
-第一次，大多数 Omicron 感染是在接种社区中，而不是最近从国外返回的人，或他们接触过的人，这表明真实数字可能比官方数字高得多。
 
-由于严重病例没有立即上升，第 12 频道新闻周二晚间报道称，卫生部高级官员最近提出了改用“大规模感染模式”的选项。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-振兴主义（Tsionizm） 很早就对连续疫苗接种方法的疯狂，及其背后明显的邪恶发表了意见，还强调了政府拒绝说出疫苗副作用的真相，而对以色列人民实施的欺骗。
+总编：DM
+编辑：DM
+校正/发稿：海阔天空1
 
-要么政府意识到“强制疫苗”，“让你的（疫苗护照）软件更新”计划不再被接受，要么，他们正在与辉瑞合作开发一种新药丸，**使当权者更加富有**，因为它是一种基于与美国相同的技术， 更便宜、更有效，且容易获得的伊维菌素而开发的。
-
-为此……
-
-《以色列时报》补充说，辉瑞的第一批有希望的抗病毒 COVID 药丸，已于周四下午抵达以色列。
-
-以色列是世界上最早接受这种名为“帕克斯洛维德” （Paxlovid） 的药物的国家之一，实验室测试表明，该药物对 Omicron 变体非常有效。
-
-总理纳夫塔利·贝内特 (Naftali Bennett) 称这些药丸的到来“是我们抗击大流行的工具箱的重要补充”，“将帮助我们度过即将到来的 Omicron 高峰期”。
-
-以色列要靠“辉维菌素”（Pfivermectin）来拯救！
-
-**新闻来源**：[tsionizm.com][Is Israel Finally Waking Up? No More VAX After 4th Shot? Mass Infection Now The Plan? Pfivermectin To The Rescue!](https://tsionizm.com/news/2021/12/31/is-israel-finally-waking-up-no-more-vax-after-4th-shot-mass-infection-now-the-plan-pfivermectin-to-the-rescue/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

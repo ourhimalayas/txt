@@ -2,35 +2,43 @@
 ---
 
 
-## 强推疫苗结出恶果，墨尔本男子当街自焚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814310/)
+## 日本将协助比尔・盖茨在美国建造实验性核反应堆
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814438/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955.jpg)图片来源：The West Australian
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor.jpg)
 
 
-#### 整理报道：小鱼儿
-编辑：文泓
 
-2022年元旦，据《反叛新闻》报道，当晚8点左右，墨尔本紧急服务部门被呼叫赶到里士满的教堂街，有一辆汽车正迸发出熊熊火焰。
-警员们在绝望的情况下用水浇灌该男子，然后将其按倒在地并安排救护车护送至医院。
+图片来源： dailyenergyinsider.com
 
-据《先驱太阳报》报道，一名帮助救助该男子的妇女说，我看到“皮肤在燃烧，直到他身上火被水浇灭”。
-妇女说，这名男子的皮肤烧伤得很厉害，她的衬衫上也粘到了。
 
-现场目击者说，一名男子在墨尔本内城区自焚，同时他大声哭诉，维多利亚州的疫苗强制规定，在自焚前他大喊“疫苗护照”、“疫苗强制”。
-附近餐馆的食客们被这一场景震惊了，其中一家餐馆客人看到，该男子在自焚前特意用汽油覆盖自己和汽车。
-“他大喊着，‘（政府）疫苗强制，我不要疫苗接种证，扔掉证书’，”目击者说。
+#### 编译：小红帽
 
-新闻链接：[Man sets himself on fire in Melbourne over vaccine mandates in horrific scenes](https://www.rebelnews.com/man_sets_himself_on_fire_in_melbourne_over_vaccine_mandates_in_horrific_scenes) 
-发布：文泓
-更多资讯，请关注：**
+根据RT1月1日报道，**两家日本工业巨头正计划与比尔・盖茨的风险投资公司合作，为将在美国怀俄明州建造的一个高科技核反应堆提供技术支援。**
+
+日本《读卖新闻》周六援引多位知情人士的话报道称，双方预计将在1月签署一项协议，由日本原子能机构（JAEA）和三菱重工提供工业援助和日本自己的先进反应堆的数据。
+
+盖茨建立的核电企业TerraPower计划最早于2028年在怀俄明州开设Natrium工厂，美国当局将提供资金以支付该项目的一半，估计为40亿美元。
+
+一座使用钠作为冷却剂、输出功率为34.5万千瓦的快速反应堆，其建设工程将于2024年开始。
+
+盖茨的风险公司最初计划与国有的中国核工业集团合作，但美国前总统唐纳德・特朗普推出的对与北京的核交易的限制迫使该公司放弃这一计划。美国与中国和俄罗斯的竞争由来已久，后者也在酝酿建造和出口先进反应堆的计划。
+
+日本原子能机构拥有丰富的钠冷快堆运行经验，如福井县的文殊原型快堆和茨城县的常阳实验快堆，将多次向TerraPower提供运行数据和设计。
+
+日本曾在2016年退役其文殊原型先进反应堆的痛苦经历，该项目耗资85亿美元，但收益甚微，而且多年来一直存在争议。文殊设施自成立以来就发生了事故、违反监管规定和掩盖事实。2011年福岛核灾难发生后，该反应堆被关闭。
+
+新闻来源：[Japan to assist Bill Gates in building experimental nuclear reactor — RT Business News](https://www.rt.com/business/544950-japan-bill-gates-nuclear-reactor/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

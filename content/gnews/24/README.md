@@ -2,31 +2,41 @@
 ---
 
 
-## 中共国又一房企现危机 祥生集团面临千亿债务危机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1814884/)
+## 中共政府从西方社交媒体收集了大量数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2EA92B7C-A253-4DFD-8D0E-751E8D16F136.jpeg)（图片来自《大纪元》）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
 
-据《大纪元》1月2日报道，中共国房企祥生集团面临短期偿债，该公司一笔美元债距离到期日不到一个月，而祥生集团负债总额已经超过1,500亿元人民币。截至2021年6月底，祥生控股总资产达到1,726.56亿元人民币，其中负债总额达1,530.93亿元，账面资产负债率达到88.67%。在其负债总额之中，流动负债高达1,287.64亿元，有息负债462.11亿元。
+该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
 
-据悉，祥生控股一笔金额2.9155亿美元的美元债即将于2022年1月23日到期，目前距离到期日不到一个月。此外，祥生控股另有两只总额为4亿美元的债券在2022年6月和2023年8月到期。
+中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
 
-11月18日祥生集团在香港上市一周年之际，祥生控股遭遇股债双杀。当日股价跌幅逾53%，市值一日蒸发约55亿港元，同日祥生控股美元债也大幅下跌，跌幅近50%。评级机构标普近日在报告中将祥生控股的发行人信用评级从“B”下调至“B-”，还将其美元票据的长期发行评级从“B-”下调至“CCC+”。
+此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
 
-据祥生内部人士的消息表示，2019年5月份起，祥生内部就开启裁员模式，当时议定裁员30%。截至2020年4月末，祥生控股共有3,561名员工，如果按照30%的裁员规模，预计将有大约1,068人被裁掉。
+该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
 
-*参考链接：[中国又一房企现危机 祥生集团千亿债务压力大](https://www.epochtimes.com/gb/22/1/1/n13475209.htm)*
+参考链接：
 
-* * *
+- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
 
-*素材采编：子辰*
 
-*编辑：青城道姑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-*发布：miumiu*
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

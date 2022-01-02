@@ -2,41 +2,55 @@
 ---
 
 
-## 中共政府从西方社交媒体收集了大量数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
+## 柯林斯和福奇对传统公共卫生的攻击（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814948/)
 
-者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-2.jpg)图片来源：KAMIL KRZACZYNSKI/AFP via Getty Images
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+**GBD ****的根本目标是，在对公众健康危害最小的情况下，度过这场可怕的流行病**。当然，健康不仅限于 COVID， 对封锁政策的任何合理评估，都应考虑其对癌症、心血管疾病、糖尿病、其他传染病，以及心理健康等患者的附带损害。基于长期存在的公共卫生原则，在毁灭性的封锁和无所作为任病毒发展的策略之间，宣言和重点保护高危人群**是一个行动的中间地带。**
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
+柯林斯和福奇出人意料地声称，如果没有疫苗，就不可能对老年人进行集中保护。科学家有自己的专长，但并非每个科学家都在公共卫生方面拥有深厚的专业知识。**对流行病学家和公共卫生科学家来说，自然的方法是他们的基础。**如果他们这样做了，柯林斯和福奇就会明白，公共卫生从根本上说是重点保护。
 
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
+**完全关闭社会是不可能的**。封锁保护了年轻的，低风险的、富裕的在家工作的专业人士，例如行政人员、科学家、教授、记者和律师，而工人阶级中年长的高危成员，暴露并死亡的人数必然很高。未能理解封锁无法保护弱势群体，这导致 COVID 造成的死亡人数悲惨地高。
 
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+我们不知道为什么柯林斯和福奇决定“取消” 科学讨论，而不是利用他们尊敬的立场来建立和促进对这些关键问题的激烈辩论，让具有不同专业知识和观点的科学家参与进来。**部分答案可能在于另一个谜题**——**那就是他们对封锁的破坏性影响和其他公共卫生结果视而不见。**
 
-参考链接：
+封锁危害影响了每个人：
 
-- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
+- 慢性病患者的负担更加沉重；
+- 关闭学校对儿童的危害；
+- 工人阶级，尤其是人口稠密的城内的工人阶级；
+- 以及全球穷人，数以千万计的营养不良和饥饿的人们。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**福奇是关闭学校的主要倡导者**，这些现在已被广泛认为是一个巨大的错误，它并不影响疾病传播，但却伤害了儿童。未来几年，我们必须努力扭转错误的流行病战略所造成的损害。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+数以万计的科学家和医学专业人士签署了《大巴林顿宣言》，但为什么没有更多的媒体发声？ 有些媒体做到了，有些尝试过但失败了，而另一些对此非常谨慎。**当我们撰写《宣言》时，我们知道，我们正在将我们的职业生涯以及我们养家糊口的能力置于危险之中**。这是我们有意识的决定，我们也完全理解那些没有签名，决定专注于维护他们重要实验室研究和活动的人们。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+科学家们自然会犹豫，**这将意味着掌握着年度科研预算为**** 429 ****亿美元的****NIH ****主任会取消他们的年度科研预算。让每年预算为**** 61 ****亿美元用于传染病研究的**** NIAID ****主任，或每年预算为**** 15 ****亿美元的惠康信托基金主任不高兴，也可能是不明智的**。作为强大的资助机构，柯林斯、福奇和法拉尔控制研究资金输送给美国和英国几乎所有传染病流行病学家、免疫学家和病毒学家。
+
+**柯林斯、福奇和法拉尔，**与其他封锁支持者一起，**得到了他们倡导的大流行封锁战略**。 GBD 过去和现在，都给他们带来了不方便，因为《宣言》清楚地证明了一个更好、更不致命的可用的替代方案。
+
+现在在美国，**有超过**** 800,000 ****例**** COVID ****死亡**，还有附带损害。与美国、英国和大多数其他欧洲国家相比，瑞典和其他斯堪的纳维亚国家——较少采取封锁，而更关注保护老年人——他们人均 COVID 死亡人数则较少。佛罗里达州避免了大部分附带封锁的危害，目前在美国按年龄组的 COVID 死亡率排名第 22 位。
+
+在学术医学领域，获得 NIH 的资助决定了职业生涯的成败，因此，科学家有强烈的动机站在 NIH 和 NIAID 优先事项的一边。未来，**如果想让科学家们畅所欲言**，就应该避免让同一个人负责公共卫生政策和医学研究经费。
+
+**点评：一个人控制一切， 不就是独裁吗？这就是医疗独裁！**
+
+请阅读上一篇：[柯林斯和福奇对传统公共卫生的攻击（1/2）](https://gnews.org/zh-hans/1814901/)
+
+**参考资料：**[theepochtimes][Kulldorff & Bhattacharya Respond: The Collins and Fauci Attack on Traditional Public Health](https://www.theepochtimes.com/mkt_morningbrief/the-collins-and-fauci-attack-on-traditional-public-health_4187173.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-01&amp;mktids=dc2a6b2380e2d8d3b8bd3c7002360f44&amp;est=NfSa7yBw98cvGUoPBRDmpTLDRHTFQmprQtn3qqe6gB8IlMnuBH%2F8dMLliV4l3TUD8EcSNg%3D%3D)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

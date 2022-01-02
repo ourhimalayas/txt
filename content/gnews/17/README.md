@@ -2,37 +2,35 @@
 ---
 
 
-## 西安防疫人员群殴购买食物饥饿居民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814907/)
+## 未接种疫苗的阿联酋公民将被禁止出国旅行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814968/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台媒1月1日消息，近日墙内社交媒体传出一段惊人影片，西安市雁塔区南窑头村一名男子，因为无法忍受饥饿，下楼买馒头，却遭到防疫人员群殴。该被打男子无力反击，最后被防疫人员掐脖摔倒，馒头也洒落一地。
+**【雅典娜快讯】紧贴事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-11.jpg)图片来源：Mainland.press
+整理报道：小鱼儿
+编辑:文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2-scaled.jpg)
+2022年元旦，据《RT新闻》报道，据当地媒体援引该国危机管理机构的话说，未接种疫苗的阿联酋公民自1月10日起将被禁止出国旅行，只有完全接种疫苗和加强针的人将被允许离开。
 
-此残忍画面被迅速转发，点击量迅速飙升。墙内网民纷纷感叹，此次疫情过后，将有许多人会选择离开西安。也有人指责，中共治下的大陆，只要手中握有一丁点权力的人，就会想方设法把权力用到最大。更有网友一针见血地指出，被打男子冒险外出的原因，是在小区买不到食物，而政府根本不管。
+阿联酋外交和国际合作部周六与国家紧急危机和灾害管理局联合宣布了这项决定。这些机构说，那些因医疗原因不能打针的人，以及出于“人道主义问题”和在国外寻求医疗（帮助）的旅行者，可以获得豁免。
 
-至今，西安已进入第10天封城状态。大量民众抱怨，中共当局封门禁止外出购买食物，更没有物流配送，家中早已断炊。
+阿联酋远不是第一个根据疫苗接种情况限制旅行的国家，尽管大多数这样做的国家在制定法规时都禁止未接种疫苗的人进入其国家，而不是禁止他们离开。
 
-参考链接：
+什么才算是“完全接种”新冠疫苗的问题，一直是各国政府试图通过一套连贯的法规的症结所在。因为像以色列这样的国家已经强制要求注射加强针，等于剥夺了那些以前被认为完全接种疫苗护照的公民，并使其他国家处于不断变化的状态，因为他们被迫依靠外国政府的异想天开来起草自己的法律。
 
-- [太慘了！西安居民封城多日餓壞 下樓買饅頭還被防疫人員圍毆](https://news.ltn.com.tw/news/world/breakingnews/3786764)
+阿联酋周六报告了2556个新的冠状病毒病例，使总数达到764493个，并记录了一个归因于新冠并发症的死亡案例。自该大流行病开始以来，该国共有2165人死于该病毒，而745963人已经康复。
 
+新闻链接：[Country bans unvaccinated from leaving it](https://www.rt.com/news/544964-uae-bars-unvaxxed-citizens-leaving/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+发布：kk
 
-总编：DM
-编辑：DM
-校正/发稿：海阔天空1
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
