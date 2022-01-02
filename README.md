@@ -15,95 +15,95 @@
 
 ---
 
-### [DC每日热点0102](/content/gnews/1/README.md)
+### [TikTok 变性视频 缺失媒体基本的社会责任](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [大直播后记——七哥谈蝴蝶效应](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [DC每日热点0102](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [浅解大直播中金木水火土和颜色之间的关系](/content/gnews/2/README.md)
+### [浅解大直播中金木水火土和颜色之间的关系](/content/gnews/4/README.md)
  ` 英喜-粵語組`
 
-### [1/1/2022 文贵直播：《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [王丽——剽悍的云山镇女书记](/content/gnews/5/README.md)
+### [宜家决定在 2022 年将商品价格上调 9%](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [mRNA技术奠基人马龙博士在乔·罗根节目的爆料](/content/gnews/6/README.md)
+### [1/1/2022 文贵直播：《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [王丽——剽悍的云山镇女书记](/content/gnews/8/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [mRNA技术奠基人马龙博士在乔·罗根节目的爆料](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 拜登法案意义重大（下）](/content/gnews/7/README.md)
+### [视频| 拜登法案意义重大（下）](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [视频| 拜登法案意义重大（上）](/content/gnews/8/README.md)
+### [视频| 拜登法案意义重大（上）](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [法国网球明星Benoit Paire在第250次Covid检测呈阳性后发飙](/content/gnews/9/README.md)
+### [法国网球明星Benoit Paire在第250次Covid检测呈阳性后发飙](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [从西安集中隔离看中共体制之恶](/content/gnews/10/README.md)
+### [从西安集中隔离看中共体制之恶](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [第211期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/11/README.md)
+### [第211期玫瑰看新闻-新西兰本地疫情新闻](/content/gnews/14/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [港共政府或将继续抓捕立场新闻相关人员](/content/gnews/12/README.md)
+### [港共政府或将继续抓捕立场新闻相关人员](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [大直播后记——七哥讲风水](/content/gnews/13/README.md)
+### [大直播后记——七哥讲风水](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [社交媒体寡头压制言论自由已图穷匕见](/content/gnews/14/README.md)
+### [社交媒体寡头压制言论自由已图穷匕见](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [郭先生警醒战友们永记《新中国联邦宣言》](/content/gnews/15/README.md)
+### [郭先生警醒战友们永记《新中国联邦宣言》](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [防野猪横行 罗马花4千万欧元解决垃圾问题](/content/gnews/16/README.md)
+### [防野猪横行 罗马花4千万欧元解决垃圾问题](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [你是哪种水？](/content/gnews/17/README.md)
+### [你是哪种水？](/content/gnews/20/README.md)
  ` 骄子`
 
-### [大直播后记——七哥“逆增上缘”灭邪共](/content/gnews/18/README.md)
+### [大直播后记——七哥“逆增上缘”灭邪共](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第211期玫瑰看新闻-币圈新闻](/content/gnews/19/README.md)
+### [第211期玫瑰看新闻-币圈新闻](/content/gnews/22/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [2021年重大科技突破，你了解多少？](/content/gnews/20/README.md)
+### [2021年重大科技突破，你了解多少？](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [刘亚洲被抓或逼出“墙角效应”](/content/gnews/21/README.md)
+### [刘亚洲被抓或逼出“墙角效应”](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [第211期玫瑰看新闻-国际热点新闻](/content/gnews/22/README.md)
+### [第211期玫瑰看新闻-国际热点新闻](/content/gnews/25/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [“三八线”发生偷渡事件：从韩国进入朝鲜](/content/gnews/23/README.md)
+### [“三八线”发生偷渡事件：从韩国进入朝鲜](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登的2022年会有政治解药吗？除非向习近平病毒溯源](/content/gnews/24/README.md)
+### [拜登的2022年会有政治解药吗？除非向习近平病毒溯源](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：2022年非常的精彩，也会有巨大的挑战](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [第211期玫瑰看新闻-疫情新闻](/content/gnews/26/README.md)
+### [第211期玫瑰看新闻-疫情新闻](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [【G时新闻】WHO预在182天内让10亿人打COVID19疫苗](/content/gnews/27/README.md)
+### [【G时新闻】WHO预在182天内让10亿人打COVID19疫苗](/content/gnews/29/README.md)
  ` G-时新闻`
 
-### [文·贵天成——文贵先生谈“陈全国”（二）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [VICE采访事件透露的中共蓄意制造排华和媒体操控（四）](/content/gnews/29/README.md)
+### [VICE采访事件透露的中共蓄意制造排华和媒体操控（四）](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [全球疫情更新（澳大利亚新州入院人数暴增）](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [和Dr.Eglise聊中共医疗的阴谋和从医学角度解决性生活 I](/content/gnews/31/README.md)
  ` 喜马拉雅日本银河系农场`
