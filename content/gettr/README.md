@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 2:44 AM (UTC)`
+
+1/1/2022 Miles Guo: Each fellow fighter of the Whistleblowers’ Movement is fulfilling their mission to save the world, while the CCP’s old kleptocrats are living in the endless lies and fear; the Japanese media’s report on the CCP remodeling Pangu Plaza’s dragon-head-shaped tower has received extensive attention in Washington DC; the actual downloads of GETTR App are as many as 35 million - how powerful GETTR is!<br/><br/>1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中；日媒对盘古改龙头的报道在华盛顿受到广泛关注；盖特的真实下载量达3500万 - 这是多大的力量！<br/>
+![img](https://media.gettr.com/group20/getter/2022/01/02/02/07e1d40f-50b8-4a79-6324-8cf022fc4aef/out.jpg)
+
+---
+
 `@miles 1/2/2022 2:30 AM (UTC)`
 
 2022年：1月1号．伟大而神奇的一天．衷心地感谢所有的参与今天直播的台前幕后的所有战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏在此祝大家元旦节快乐……💋💋💋💋💋💋💋💋💋
@@ -146,12 +153,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12月30日：正在签给战友们签名……太幸福了！
 ![img](https://media.gettr.com/group28/getter/2021/12/30/21/3dc417c1-fed4-d8d7-aff4-b7d7d928fb33/c21856fb61ff7edb49e01683713dade6.jpg)
-
----
-
-`@miles 12/30/2021 8:58 PM (UTC)`
-
-12月30日：Darkness has enveloped the world. 🙏🙏🙏🙏🙏🙏🙏🙏🙏【Brother Miles Guo warned America about this TWICE — spring 2019 and again with the problem with the Three Gorges Dam in spring 2020 <br/><br/><br/>https://www.bloomberg.com/opinion/articles/2021-12-29/china-s-water-shortage-is-scary-for-india-thailand-vietnam】
 
 ---
 
