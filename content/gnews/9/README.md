@@ -2,46 +2,48 @@
 ---
 
 
-## 中共警告美国将因违反承诺而付出“无法承受”的代价
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814696/)
+## “美国归来”华盛顿将举行反医疗暴政大游行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814714/)
 
-编译： Jenny Ball
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-63.png)图片来源: westernjournal.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-65.png)图片来源 : creativedestructionmedia.com
 
-中共外交部长王毅周四警告美国，如果美国继续支持台湾的独立，美国将付出沉重代价。
+在接下来的几周内，包括小罗伯特·肯尼迪 (Robert F. Kennedy) 的儿童健康保护组织在内的团体，将联合起来对抗华盛顿特区的医疗暴政。
 
-“世界上只有一个中国，台湾是中国的一部分，”王在周四接受官方新华社采访时说， “这是不可否认的历史和法律事实。”
+新闻稿如下： 美国归来
 
-“尽管台海两岸因多年前内战而存在政治对立，但中国的主权和领土完整从未被切断，也不会被切断，”王说。
+2022 年 1 月 23 日 / 华盛顿特区
 
-王说，美国支持台湾人民的自决权，违反了美国在 1972 年与共产党建立外交关系、放弃与台湾的正式关系时对中华人民共和国作出的承诺。
+**1 ****月 ****23 ****日**，数千名反抗疫苗授权的人们，包括医生、护士和医生在内的所有关心此事的公民——黑人、白人、亚洲人、西班牙裔，接种疫苗的人们和未接种疫苗的人们，民主党和共和党——将在华盛顿[和平游行](http://www.defeatthemandatesdc.com/)，反对Covid 疫苗授权。
 
-中共外交部长说：“美国违背了与中国建交时的承诺，纵容和教唆‘台独’势力，企图歪曲和背弃一个中国原则。” “这将使台湾陷入极其危险的境地，并给美国自身带来难以承受的代价。”
+**组织者将这项活动命名为“美国归来”，并强调，游行者并不是反对接种疫苗的人，他们中的许多人都接种了****Covid****疫苗，但他们反对强迫人民接种疫苗。**
 
-中共声称对台湾岛拥有主权，认为它是一个最终必须与大陆重新统一的分离省份。然而，据台湾新闻报道，台湾民意基金会 2020 年的一项民意调查发现，民主台湾的大多数人不希望中共统治他们。
+随着越来越多的美国人面临着更多的审查制度，并冒着失去工作的风险，冒着在社交媒体上失去平台的风险，因为表达与不断变化的“企业媒体叙事”背道而驰的个人观点 ，人们的挫败感继续增加，从餐馆酒店到当地企业，**许多人现在感受到的歧视，是非美国人的。**
 
-台湾曾经是一个自治领土，在 1600 年代荷兰征服它之前，它缺乏单一的中央权力对其进行全面统治。到 17 世纪中叶，荷兰人放弃了台湾，此后该岛经历了短暂的独立，直到 17 世纪末清朝接管。
+**疫苗安全，尤其是在儿童中，一直是世界各地医生关注的一个严重问题，也是推动这一进程的另一个推动力**。事实上，全世界有超过 15,000 名医生和医学科学家签署了一份声明，公开宣布健康儿童不应接种 Covid-19 疫苗。
 
-日本在第一次中日战争中击败清朝，并将其作为殖民地统治，直到协约国在第二次世界大战中击败日本，之后，清政府的继承人中华民国随后获得了该岛的控制权。
+毕生致力于疫苗开发的罗伯特·马龙（Robert Malone）博士，代表这些医学博士和各专业博士向家长们提供了一份明确的声明，概述了这一决定背后的科学事实。
 
-随后，国民党和共产党这两个在中国内战中交战的政治派别，随着二战的结束又重新开始了冲突。冲突导致共产党击败国民党，并夺取了中国大陆的控制权，建立了今天的中华人民共和国。
+“作为父母和祖父母，我对您的建议是：**抵制和争取保护您的孩子**，”马龙博士在 12 月 13 日与全球新冠病毒峰会的直播中说。[可以在这里观看到视频](https://globalcovidsummit.org/news/live-stream-event-physicians-alerting-parents)。
 
-许多国民党人逃往台湾，在那里，他们以中华民国的名义统治该岛。美国最初认为，国民党是整个中国的合法统治者。然而，当尼克松成为美国总统时，他改变了立场，承认共产党政府是中国的合法统治者。
+**作为全球自由集会的一部分**，欧洲和澳大利亚，以及世界各国，已经参加了一系列大规模抗议活动。这些事件已经吸引了数十万人——团结起来反对授权，并拒绝驯服。1 月 23 日将是整个世界聚集在一起的第二天。美国组织者认为，现在是美国站出来加入世界其他国家的时候了。
 
-从那时起，美国在纸面上支持“一个中国”政策。然而，在 1980 年代和 1990 年代，台湾经历了重大的民主化之后，它对台湾自决的事实上的支持逐渐增加。即使在今天，尽管与该岛国享有外交和贸易关系，但美国仍未正式将台湾视为一个国家。
+**游行将从华盛顿纪念碑开始，在林肯纪念堂结束**，在那里有演讲嘉宾、艺术家和音乐家的节目。上半场将由思想领袖和医学专家组成，下半场将重点介绍几位反对这些授权的国家名人。游行中对每个人的“要求”很简单：“**不遵守**”。
 
-近年来，中共加紧要求台湾放弃独立，通过军事演习和飞越界线来警告台湾的独立势力。美国派遣海军舰艇过境台湾海峡，这是向北京发出不要破坏现状的有力信息。
+组织者认为，最终“击败强制接种——美国归来”([Defeat the Mandates – an American Homecoming](http://www.defeatthemandatesdc.com/))，将有助于在联邦、州和地方层面出台新政策，**以消除目前发生的公然歧视和审查制度**。
 
-在前总统川普的领导下，美国还加强了与该岛领导层的直接接触，这让北京感到沮丧。路透社在 2020 年报道称，美国对台湾的武器销售总额约为 50 亿美元。在川普离任前，时任国务卿迈克**·**蓬佩奥宣布，国务院结束了禁止与台湾官员进行直接官方接触的政策。
+本次活动的合作伙伴包括：全球新冠肺炎峰会([Global Covid Summit](https://globalcovidsummit.org/))和儿童健康防御基金([Children’s Health Defense Fund](https://www.childrenshealthfund.org/?gclid=EAIaIQobChMI1t_SlLb19AIVshx9Ch2LYgrlEAAYASAAEgIXx_D_BwE))其目标是鼓励公众“不遵守”。
 
-随着与中共国的紧张局势加剧，拜登继续与台湾接触，尽管是谨慎的。拜登去年 12 月邀请台湾参加民主峰会，此举激怒了中共，据美国CNN新闻网报道，**11 **月，他甚至称台湾是独立的，之后又回到以前的调子。
+随着日期的临近，将发布更多详细信息。
 
-“中国的统一是大势所趋，”王在接受新华社采访时说。 “谋求‘台独’必然以失败告终。 台湾除了回归大陆，别无他途，这是不可阻挡的历史潮流，也是唯一合乎逻辑的结果。”
+联系人：
 
-**点评：强盗中共70多年，中华民国一百多年，谁篡谁的政权啊？**
+[\[email protected\]](/cdn-cgi/l/email-protection#90fdf5f4f9f1d0f4f5f6f5f1e4e4f8f5fdf1fef4f1e4f5e3f4f3bef3fffd)
 
-新闻来源:[ westernjournal.com] [China Warns US Will Face an ‘Unbearable’ Price Because of Violated Promises](https://www.westernjournal.com/china-warns-us-will-face-unbearable-price-violated-promises/?utm_source=Email&amp;utm_medium=newsletter-WJ&amp;utm_campaign=dailyam&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+[www.DefeatTheMandatesDC.com](http://www.defeatthemandatesdc.com/)
+
+新闻来源 : [creativedestructionmedia.com] [Thousands Of Americans Expected To Peacefully March On Washington, DC To Defeat The Mandates And Save Their Jobs](https://creativedestructionmedia.com/news/2021/12/31/thousands-of-americans-expected-to-peacefully-march-on-washington-dc-to-defeat-the-mandates-and-save-their-jobs/)
 
 * * *
 
