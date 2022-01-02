@@ -2,37 +2,44 @@
 ---
 
 
-## 台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814284/)
+## 俄罗斯囤积黄金和外汇，新兴市场引领黄金购买热潮
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814290/)
 
-纽约香草山医疗部-云豹；纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
-1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-58.png)
-针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
-
-新闻连接：[總統2022新年談話：穩健執政堅守主權 台灣珍惜民主挺香港](https://www.cna.com.tw/news/firstnews/202201015003.aspx)
-
-[In New Year’s speech, Taiwan president warns China against ‘military adventurism’](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/54721.jpg)图片来源：Comos Chronicle
 
 
+#### 整理报道：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.06.26-PM-1.png)
+据《RT新闻》报道，俄罗斯央行最新数据显示，截至12月24日当周，俄罗斯外汇持有量增长0.7%，达到6305亿美元。目前俄罗斯是世界第五大外汇储备国。
+俄罗斯的国际储备是由货币黄金、外币和特别提款权组成的高流动性外国资产，由俄罗斯中央银行和政府支配。
+2015年，在2014年石油价格危机期间，政府不得不花费约2,500亿美元来救助经济后，外汇储备降至2008年后的低点3,560亿美元。
 
-总编/编辑：飞虹
+从那时起，俄罗斯的黄金和外汇持有量几乎翻了一番。它们超过了监管机构在2019年6月设定的5000亿美元的目标水平，此后一直保持在该门槛之上。
 
-校正/发稿：浪迹天涯
+2020年，尽管冠状病毒大流行对经济产生了影响，迫使政府增加支出以支持企业和家庭，但其外汇持有量仍增加了7.5%至5,958亿美元。
+仅上个月，外汇储备就达到了6263亿美元的历史新高，每周增长41亿美元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+同期，全球各国央行外汇储备中的黄金持有量一直在增加，2021年创下31年来的新高。与此同时，美元持有量却一直在下降。
+根据世界黄金协会的数据，在过去十年中，银行的黄金库存增加了4,500多吨。截至9月，储量总计约36,000吨，是1990年以来的最大数量，比十年前增加了15%。
+与此同时，美元在外汇储备中的占比在过去十年急剧下降。2020年，美元兑各国货币比率跌至25年来的最低水平。
 
+分析师表示，各国央行，尤其是新兴经济体的央行正在继续转向黄金，反映出全球对以美元为基础的货币制度的担忧。2021年前9个月，泰国购买了约90吨、印度70吨和巴西60吨黄金。
+2008年全球金融危机后，各国央行和公共机构开始增持黄金，导致美国国债资金外流，导致美元资产贬值。
+截至12月30日，黄金价格保持坚挺，交易价格为每金衡盎司1,806美元。
+
+新闻链接：
+1、[Russia keeps stockpiling gold & foreign currency — RT Business News](https://www.rt.com/business/544829-russia-foreign-reserves-surge/)
+2、[Countries accelerate shift away from US dollar — RT Business News](https://www.rt.com/business/544825-dump-dollar-gold/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

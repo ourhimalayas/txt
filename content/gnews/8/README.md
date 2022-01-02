@@ -2,43 +2,45 @@
 ---
 
 
-## 德国95%以上Omicron变体报告病例是完全接种者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814679/)
+## 七哥把别人看来不可能的事情变成现实创造神奇赢回时间
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814695/)
 
-编译： Jenny Ball
+**郭文贵先生：**你看Twins现在我就一生玩音乐，我也不缺钱花，是吧。我爹是王雪冰，我就不用管理我这个了，不是！你恰恰要把你的时间、人际关系要管好。你管不好，你们就会更输得更惨。为什么？越像你这样有……像喜安娜、喜安迪这样，像钟仁这样人，像你这样人，你要是一旦这几个方面犯了一样错误，你将失去爱，甚至没有人爱你。还有一个，你不可能成功。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-61.png)图片来源 : thenationalpulse.com
+这就是你看到我这个，我在盖裕达国贸的时候，拆林山寨，你们看到我当时的故事，别人说一年，我二十几天给它拆完。我就赢来了一年。盘古，人家要盖五年的房子，我不到一年建起来，我赢回了五年。收购海通方正，没有人不说你得两年，我都没有超过两个月的给他拿下来。
 
-根据联邦政府的一份新报告，德国 95% 以上的 Omicron COVID-19 变体报告病例发生在完全接种疫苗的人中。
+我们就是说你们亲身经历的，G-TV、喜联储所有的这些东西，没有一个人不说是三五年的，你跟任何一个人说，旁边这些人都可以作证。我说每件事他们都说不可能的，我不是个流氓，我不是个傻子，把不可能说成一定可能。我告诉他怎么可能，然后我已经准备好了，有没有可能？你们都看见了，我们创造了一切。
 
-这份由德国“罗伯特科赫研究所”于 12 月 30 日发表的论文，包括有关感染该病毒最新变体的 4,206 人的疫苗接种状况的信息。
+你们看到七哥这些年创造的，就不要说过去五年，就从过去一年到今天，就不让你们打疫苗这一件事，你要能明白过来的时候，你们每个人都是神了。七哥要说出来不让你打疫苗那要承担多大责任，要经过多少的关系和信息的整理。
 
-在研究中，报告的感染了 Omicron 的 420 人（相当于总病例的 95.6%），至少接种了两剂 COVID-19 疫苗。28% 的 Omicron 阳性组接受了第三剂或“加强”注射。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-在整个样本中，只有 186 名感染 Omicron 的人未接种疫苗，这表明接种疫苗的人感染 COVID-19 变体的可能性是其 21 倍以上。
+编辑整理：喜马拉雅的肉夹馍；
 
-12 月 14 日，国家脉动（The National Pulse）[宣布全球 COVID-19 形势为“接种疫苗的大流行”](https://thenationalpulse.com/2021/12/14/a-pandemic-of-the-vaccinated/)。
+字幕文件制作：小满；
 
-罗伯特·科赫研究所的报告还记录了近 7,000 名 Omicron 检测呈阳性的人的症状，然而，大多数人几乎没有经历任何不良反应：
+视频制作及上传：Cindy；
 
-“对于 6,788 例病例，提供了有关症状的信息，但大多数没有报告或症状轻微。124人住院，4人死亡。”
+G-News发布：小满；
 
-该数据似乎表明：疫苗对预防感染 Omicron 变种没有任何好处，但制药公司在美国的游说努力达到了创纪录的高水平，无论是在财务上还是在雇用人员方面。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-在对那些批评 COVID-19 疫苗副作用和不良反应的人进行严格审查的同时，国家脉动还披露，领先的制药巨头辉瑞公司与包括 Facebook 在内的社交媒体平台和路透社等媒体的利益冲突。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-该报告还跟踪了许多城市——包括纽约市和华盛顿特区——推出疫苗指令来防止 Omicron 变体的传播。尽管法院阻止了这项措施，拜登白宫也一直在寻求联邦疫苗的授权，并可能会提出要求所有乘坐国内飞机的旅客接种疫苗。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**评论：静心思考，一方面是科学真实证据证明“疫苗对预防感染 Omicron 变种没有任何好处”；一方面是政府强制疫苗指令。之间有什么逻辑？逻辑是：制药公司在美国的游说努力达到了创纪录的高水平，无论是在财务上还是在雇用人员方面。逻辑是：领先的制药巨头辉瑞公司与包括 Facebook 在内的社交媒体平台和《路透社》等媒体的利益冲突。**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻来源: [thenationalpulse.com] [over 95 percent of reported cases of the Omicron COVID-19 variant in Germany occurred in fully vaccinated individuals, according to a new report from the federal government.](https://thenationalpulse.com/2021/12/31/vaccinated-21-times-more-likely-to-get-omicron/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-* * *
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

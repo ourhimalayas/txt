@@ -2,34 +2,47 @@
 ---
 
 
-## 【中日财经爆】韩国巨头关闭超80%门店！外资化妆品牌撤离潮或将到来
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1814592/)
+## 管理时间是聊天时用感情大事决定上要想好要简单直接快
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814616/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-12.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://images.contentstack.io/v3/assets/blt8bcfaa71fdb930ca/blt06a1810137894d70/5f9c04aaf9cf41781dad52bc/F77-78_innisfree_shop_front_1500.jpg&amp;imgrefurl=https://www.popcorntko.com.hk/tch/shops/blt03ff0bd7e789cd55&amp;tbnid=XGRjh-VOl1lM9M&amp;vet=12ahUKEwj2vPCQz5L1AhUTB5QKHVzUBewQMyg9egQIARBN..i&amp;docid=t6gJbu6CNrJn9M&amp;w=1500&amp;h=968&amp;itg=1&amp;q=innisfree&amp;ved=2ahUKEwj2vPCQz5L1AhUTB5QKHVzUBewQMyg9egQIARBN)
-近日，根据多家媒体报道，韩国化妆品巨头爱茉莉太平洋（Amorepacific Corporation）旗下化妆品品牌悦诗风吟（innisfree）传将在中国市场被“大撤店”——从800多家关闭到仅剩140家，撤店600多家，撤店率超80%。
+另外一个为什么和怎么管好自己呢？管好时间，什么样时间？就像我手机，你打开我手机那个WhatsApp，就“嚓嚓嚓嚓”，你知道你七哥牛在哪儿你知道吗？我手机从来不需要任何人帮我，都是我自己的，这就叫与时俱进，是吧？我这边手拿着手机，我看着战友小王子 “啊郭先生”什么什么，我就知道他要说啥，我就基本能判断小王子说啥。我的答复就是答案Yes、No。是的我回是的，No我就回No。
 
-对于此番关店消息，爱茉莉太平洋相关负责人接受媒体采访时表示，集团正对悦诗风吟品牌进行渠道优化，而这样的门店调整在2022年仍将持续。该负责人还表示，爱茉莉太平洋集团将针对中国市场进行新一轮策略调整，不过仅对悦诗风吟门店进行优化缩减，暂不涉及其他品牌。
+然后我回复一个“欢喜”、“拜托了”啊。然后呢，“生气”，还有“不可思议”，我就这样，我能把很多人几乎全能回复80%、90%信息都能回，因为所有人问的问题基本就是仨答案，是吧。然后你发现这是要回复，马上按住键啊。我这边照样看着我的，我就知道来回复简单的啊。
 
-根据公开资料显示，爱茉莉太平洋集团是韩国最大的专业从事化妆品开发、生产和销售的国际性集团之一，创立于1945年。旗下品牌包括雪花秀、兰芝、后、吕、赫拉等。悦诗风吟的定位是20~26岁的学生和年轻女性可以使用的平价护肤彩妆。于2012年正式进入中国市场，从2014年起以每年新开100家门店的速度进入中国二三线城市，巅峰时期在中国拥有超过800家门店。
+小飞侠，你要抛弃掉小飞象是不好的，我不可能告诉你说把小飞象给踹了吧，不可能，“不行”，是吧，就完了。就你脑子的反应实际上答案就在你心里边儿，很多事情，答案就那么一两个不超过仨，你非要在第4个探讨，那你就完蛋了。
 
-事实上，外资化妆品企业关停、退市近年来已非罕见。
+王雁平就在一个问题上，用我老家的骂人的话说，“咬着屎橛子打滴溜不松手”那种人，我老家骂人最惨的，说你这个人的“脑袋咬着屎橛子打滴溜不松口”就是王雁平，就一件事儿唠叨来唠叨来转来转去的，车轱辘话说，你说什么说呀？答案就是Yes、 No。这个时候你说就完了，如果再接下来就是什么，你笑什么呀？是不是，她就是这样的。你接下来再说什么？就是最多你告诉他说我为什么说YES、NO就完了，越是大事儿，答案越简单。越是大事，你说得要简单。
 
-来自日本的可开嘉来也被传即将闭店并退出中国市场。除了可开嘉来之外，同样来自日本的花王集团旗下彩妆品牌KATE，也被传将直接撤出中国市场。
+像咱这今天直播，咱大家就用时间聊的时候，这就是你就完全是感情，在大事决定上一定要想好，简单、直接、快。这是一个跟你说管理好时间。
 
-甚至背靠奢侈品巨头LVMH集团的彩妆品牌贝玲妃（Benefit）在2021年4月就已经被传在全国多座城市已经撤柜，以后也将以丝芙兰和品牌天猫官方线上店为主。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-根据CNBData整理的信息显示，除前文提到的爱茉莉太平洋、花王集团等，世界日化巨头欧莱雅、资生堂、联合利华、雅诗兰黛旗下的品牌也传出撤店退市潮。
+编辑整理：喜马拉雅的肉夹馍；
 
-外资化妆品普遍性的闭店甚至撤离，其根本原因还是中共经济出了系统性问题，可以预计，随着中共经济的崩塌，作为非必要消费的外资化妆品牌撤离潮即将到来。
+字幕文件制作：小满；
 
-信息来源：
+视频制作及上传：Cindy；
 
-[关超80%中国门店！知名化妆品巨头撑不住了？](https://news.sina.com.cn/s/2022-01-02/doc-ikyamrmz2713897.shtml)
+G-News发布：小满；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
