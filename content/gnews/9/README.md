@@ -2,34 +2,43 @@
 ---
 
 
-## 【中日财经爆】韩国巨头关闭超80%门店！外资化妆品牌撤离潮或将到来
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1814592/)
+## 对于生命中的人际关系清单每天都要做减法而不是做加法
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814670/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-12.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://images.contentstack.io/v3/assets/blt8bcfaa71fdb930ca/blt06a1810137894d70/5f9c04aaf9cf41781dad52bc/F77-78_innisfree_shop_front_1500.jpg&amp;imgrefurl=https://www.popcorntko.com.hk/tch/shops/blt03ff0bd7e789cd55&amp;tbnid=XGRjh-VOl1lM9M&amp;vet=12ahUKEwj2vPCQz5L1AhUTB5QKHVzUBewQMyg9egQIARBN..i&amp;docid=t6gJbu6CNrJn9M&amp;w=1500&amp;h=968&amp;itg=1&amp;q=innisfree&amp;ved=2ahUKEwj2vPCQz5L1AhUTB5QKHVzUBewQMyg9egQIARBN)
-近日，根据多家媒体报道，韩国化妆品巨头爱茉莉太平洋（Amorepacific Corporation）旗下化妆品品牌悦诗风吟（innisfree）传将在中国市场被“大撤店”——从800多家关闭到仅剩140家，撤店600多家，撤店率超80%。
+**郭文贵先生：**再告诉你，我绝不会在我的生命的我的时间单上有浪费我时间的人。小飞侠，你的狐朋狗友也好，还是你是良友益师也好，有多少你自己知道。有些人是需要必须忘记的，他不应该出现在你生活，就要把他忘记了。
 
-对于此番关店消息，爱茉莉太平洋相关负责人接受媒体采访时表示，集团正对悦诗风吟品牌进行渠道优化，而这样的门店调整在2022年仍将持续。该负责人还表示，爱茉莉太平洋集团将针对中国市场进行新一轮策略调整，不过仅对悦诗风吟门店进行优化缩减，暂不涉及其他品牌。
+你看我和发小跟我那么好，是友情，但是我跟他不会做任何事情。我不会坐在那跟他聊几个小时，因为我说话他听不懂。需要钱，我给你，需要帮忙，我帮。
 
-根据公开资料显示，爱茉莉太平洋集团是韩国最大的专业从事化妆品开发、生产和销售的国际性集团之一，创立于1945年。旗下品牌包括雪花秀、兰芝、后、吕、赫拉等。悦诗风吟的定位是20~26岁的学生和年轻女性可以使用的平价护肤彩妆。于2012年正式进入中国市场，从2014年起以每年新开100家门店的速度进入中国二三线城市，巅峰时期在中国拥有超过800家门店。
+就像我哥哥、我嫂子回家，我绝不会在家呆2个小时。我哥给我讲述他在报纸上看到的新闻，还有什么明星的绯闻，是吧？你说我听他干什么？你说你跟他吵架去？不可能。所以告诉你，再一个秘诀，把你生命中的人的关系清单，每天都要做减法，而不是做加法。你就这么这几样，人际关系、时间关系、选择朋友。
 
-事实上，外资化妆品企业关停、退市近年来已非罕见。
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-来自日本的可开嘉来也被传即将闭店并退出中国市场。除了可开嘉来之外，同样来自日本的花王集团旗下彩妆品牌KATE，也被传将直接撤出中国市场。
+编辑整理：喜马拉雅的肉夹馍；
 
-甚至背靠奢侈品巨头LVMH集团的彩妆品牌贝玲妃（Benefit）在2021年4月就已经被传在全国多座城市已经撤柜，以后也将以丝芙兰和品牌天猫官方线上店为主。
+字幕文件制作：小满；
 
-根据CNBData整理的信息显示，除前文提到的爱茉莉太平洋、花王集团等，世界日化巨头欧莱雅、资生堂、联合利华、雅诗兰黛旗下的品牌也传出撤店退市潮。
+视频制作及上传：Cindy；
 
-外资化妆品普遍性的闭店甚至撤离，其根本原因还是中共经济出了系统性问题，可以预计，随着中共经济的崩塌，作为非必要消费的外资化妆品牌撤离潮即将到来。
+G-News发布：小满；
 
-信息来源：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-[关超80%中国门店！知名化妆品巨头撑不住了？](https://news.sina.com.cn/s/2022-01-02/doc-ikyamrmz2713897.shtml)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
