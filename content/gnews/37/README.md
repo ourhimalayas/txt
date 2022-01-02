@@ -2,66 +2,33 @@
 ---
 
 
-## 歌曲| 病毒和疫苗的解药
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814051/)
+## 有声|MILES GUO歌声 CASSANDRA预言
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814080/)
 
-制作：香草山视频部
-作词/作曲/演唱：家驹2020
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+如果艺术家诅咒某种东西它必然灭亡，Cassandra意思是说，如果不相信他的预言，人就是在自取灭亡。 艺术是人对自我的叙事。是为提供人对生活的感知方式服务的。是容纳对生活的理解与想象的对象。
 
+人本主义的艺术价值观认为，如果一定要言说艺术的目的，那就是也只能是人。是人的意志与信念。从某种意义上说，艺术中其实只有两种艺术，一种是人性的善良艺术，另一种是反人性的邪恶艺术。
 
+摇滚歌王郭文贵先生的歌之所以被全球传播，是因为很好的表达某种心情或某种境况之下所易于相信的东西。单纯的快乐或者忧伤并不是艺术思考的指向。只有对“普遍事物的沉浸”才有可能产生艺术的表达。艺术的价值诞生并再生于精神深处。
 
-病毒和疫苗解药
-地狱的魔鬼用解药换你的命
-天堂的英雄把解药送给全世界
-我们来人间，不过短短三万天
-但有灵魂和爱永存
+原文链接：[MILES GUO歌声 CASSANDRA预言](https://gnews.org/zh-hans/1813223/)
 
-伊维菌素，羟氯喹
-青蒿素，地塞米松
-阿奇霉素，锌
-土霉素，维生素C
+音频处理：喜山必胜Maverick
 
-地狱和天堂都在人间，
-也在你心里，就在一念之间
-干掉ccp才是唯一的解药
-你现在做的，是正义的必须
+发稿：Daxia
 
-Bridge
-魔鬼的蓝金黄是地狱的奶酪
-英雄的解药是天堂的一道光
-人间多诱惑， 也有太多真与乐
-百年过后，你能留下什么?
-
-伊维菌素，羟氯喹
-青蒿素，地塞米松
-阿奇霉素，锌
-土霉素，维生素D
-
-地狱和天堂是一步之遥
-就在你心里，你是否愿意
-干掉ccp，干掉CCP
-你现在做的，老天知道
-
-这才是唯一，唯一的解药
-救命的解药
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

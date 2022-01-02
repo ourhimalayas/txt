@@ -2,27 +2,55 @@
 ---
 
 
-## 美国日感染中共病毒变体奥米炕病例即将达到高峰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814529/)
+## “美国归来”华盛顿将举行反医疗暴政大游行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814714/)
 
-#### 撰稿：彩虹
+翻译： Jenny Ball
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-5.jpg)图片来源：BBC
-1月1日，《新闻极限》报道，哥伦比亚大学研究人员估计，到1月9日，美国的中共病毒（COVID-19）变体奥米炕（Omicron）病例将可能达到高峰，介于周感染250万至540万例之间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-65.png)图片来源 : creativedestructionmedia.com
 
-领导哥伦比亚大学建模工作的流行病学家杰弗里·沙曼（Jeffrey Shaman）告诉《纽约时报》说：“这非常令人震惊和不安，我们正看到前所未有的COVID-19（中共病毒）感染病例的发生。”
+在接下来的几周内，包括小罗伯特·肯尼迪 (Robert F. Kennedy) 的儿童健康保护组织在内的团体，将联合起来对抗华盛顿特区的医疗暴政。
 
-上个月，华盛顿大学的一个研究小组的另一个建模研究估计，美国的奥米炕病例将在1月底达到高峰，但该模型的研究人员认为该中共病毒变体的快速传播可能导致感染高峰在1月中旬之前到来。
+新闻稿如下： 美国归来
 
-而哈佛大学陈曾熙公共卫生学院（Harvard TH Chan School of Public Health）的流行病学家威廉·汉纳奇（William Hanage）则评论说，感染奥米炕的病例增长数量如此之快，已经没有必要通过建模来预测了解医院的情况。他认为“医院资源紧张，我们没有那么多闲置能力，当然，奥米炕令这种情况更加糟糕”。
+2022 年 1 月 23 日 / 华盛顿特区
 
-埃默里大学（Emory University）流行病学家娜塔莉·迪恩（Natalie Dean）认为，在纽约这样的大城市，随着中共病毒感染完能够感染的人，新的感染病例将下降更快。
+**1 ****月 ****23 ****日**，数千名反抗疫苗授权的人们，包括医生、护士和医生在内的所有关心此事的公民——黑人、白人、亚洲人、西班牙裔，接种疫苗的人们和未接种疫苗的人们，民主党和共和党——将在华盛顿[和平游行](http://www.defeatthemandatesdc.com/)，反对Covid 疫苗授权。
 
-**新闻来源：**
+**组织者将这项活动命名为“美国归来”，并强调，游行者并不是反对接种疫苗的人，他们中的许多人都接种了****Covid****疫苗，但他们反对强迫人民接种疫苗。**
 
-[Study Predicts Omicron Peaks Jan. 9](https://www.newsmax.com/us/omicron-covid-pandemic-coronavirus/2022/01/01/id/1050664/)
+随着越来越多的美国人面临着更多的审查制度，并冒着失去工作的风险，冒着在社交媒体上失去平台的风险，因为表达与不断变化的“企业媒体叙事”背道而驰的个人观点 ，人们的挫败感继续增加，从餐馆酒店到当地企业，**许多人现在感受到的歧视，是非美国人的。**
 
+**疫苗安全，尤其是在儿童中，一直是世界各地医生关注的一个严重问题，也是推动这一进程的另一个推动力**。事实上，全世界有超过 15,000 名医生和医学科学家签署了一份声明，公开宣布健康儿童不应接种 Covid-19 疫苗。
+
+毕生致力于疫苗开发的罗伯特·马龙（Robert Malone）博士，代表这些医学博士和各专业博士向家长们提供了一份明确的声明，概述了这一决定背后的科学事实。
+
+“作为父母和祖父母，我对您的建议是：**抵制和争取保护您的孩子**，”马龙博士在 12 月 13 日与全球新冠病毒峰会的直播中说。[可以在这里观看到视频](https://globalcovidsummit.org/news/live-stream-event-physicians-alerting-parents)。
+
+**作为全球自由集会的一部分**，欧洲和澳大利亚，以及世界各国，已经参加了一系列大规模抗议活动。这些事件已经吸引了数十万人——团结起来反对授权，并拒绝驯服。1 月 23 日将是整个世界聚集在一起的第二天。美国组织者认为，现在是美国站出来加入世界其他国家的时候了。
+
+**游行将从华盛顿纪念碑开始，在林肯纪念堂结束**，在那里有演讲嘉宾、艺术家和音乐家的节目。上半场将由思想领袖和医学专家组成，下半场将重点介绍几位反对这些授权的国家名人。游行中对每个人的“要求”很简单：“**不遵守**”。
+
+组织者认为，最终“击败强制接种——美国归来”([Defeat the Mandates – an American Homecoming](http://www.defeatthemandatesdc.com/))，将有助于在联邦、州和地方层面出台新政策，**以消除目前发生的公然歧视和审查制度**。
+
+本次活动的合作伙伴包括：全球新冠肺炎峰会([Global Covid Summit](https://globalcovidsummit.org/))和儿童健康防御基金([Children’s Health Defense Fund](https://www.childrenshealthfund.org/?gclid=EAIaIQobChMI1t_SlLb19AIVshx9Ch2LYgrlEAAYASAAEgIXx_D_BwE))其目标是鼓励公众“不遵守”。
+
+随着日期的临近，将发布更多详细信息。
+
+联系人：
+
+[\[email protected\]](/cdn-cgi/l/email-protection#90fdf5f4f9f1d0f4f5f6f5f1e4e4f8f5fdf1fef4f1e4f5e3f4f3bef3fffd)
+
+[www.DefeatTheMandatesDC.com](http://www.defeatthemandatesdc.com/)
+
+新闻来源 : [creativedestructionmedia.com] [Thousands Of Americans Expected To Peacefully March On Washington, DC To Defeat The Mandates And Save Their Jobs](https://creativedestructionmedia.com/news/2021/12/31/thousands-of-americans-expected-to-peacefully-march-on-washington-dc-to-defeat-the-mandates-and-save-their-jobs/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

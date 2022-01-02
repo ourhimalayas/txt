@@ -2,47 +2,37 @@
 ---
 
 
-## 三战中的我们圣诞之夜要跨过仇恨为所有有神的同类祈福
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814827/)
+## 何韵诗在港被捕引加拿大各界关注
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814908/)
 
-**郭文贵先生：**好，那我们今天就在这里，一定要完成圣诞之夜最重要的：为75亿我们所有的全世界的同类们，和受隔离和共产党病毒残害的失去亲人的，所有的全人类的朋友们，和14亿新中国联邦的同胞，爆料革命的战友、台湾同胞、香港同胞、西藏同胞、新疆同胞，所有的人，我们为他祈福！愿所有的天下人平安，早日铲除共产党，让这个人类多一点和平。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据国外媒体12月30日报道，香港警察29日逮捕“立场新闻”管理人员——包括加拿大籍何韵诗——的行动，引起了加拿大各界的关注。
 
-二战之后的美国让人类有了前所未有的最长的和平期，我们正处在世界第三次大战的之中。我们一定会铲除这个邪恶，让人类走向一个新的文明，让人类上有更多人真的有信仰，让人类不要活在当下无知和对大自然、对地球、对上天，完全不敬，失去了人类自我的这种灾难的境界，回归到人类最根本的文明。我们到底是哪里来的？我们应该去哪里？人类，在地球上主宰着人类还不到万年，我们没有理由毁掉这个世界，我们必须保护这个世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-2-scaled.jpg)
 
-我们为所有的天下人祈福，包括路大脑袋、蛇妖闫、九指妖，包括螃蟹、Isobel杨，包括这些人，他们都是我们的同类，我们决不能学共产党，一弄就弄死你。你看中国人一骂人的时候，我特别不喜欢就诅咒人家，就是全家这个。有时候我这破嘴有时说话搂不住，我们一定要记住。
+前加拿大自由党政府内阁部长欧文‧科特勒指责这是受北京操纵的打压言论自由的犯罪行为。前加拿大驻华外交官查尔斯‧伯顿呼吁加拿大政府应立刻采取措施保护本国无辜公民。加拿大女王大学名誉教授金‧诺萨尔表示，加拿大政府应该持续关注北京对香港自治及香港新闻自由的不断侵蚀。加拿大外交部长赵美兰当天下午在推特上发文说，加拿大对该次逮捕行动深感关切，加拿大领事官员已经参与并准备好在当地提供援助。
 
-我们要跨过仇恨，像圣诞之夜，就是耶稣改变了全人类。全人类无处不在，圣诞耶稣的影子。所以说我们今天坐在这里的时候，更要感恩美国、感恩西方的基督教和天主教的文化，还有西方，所有这个世界有神的所有的同类们，为他们祈福！！！
+另据香港媒体报道，何韵诗在被扣押1天多后，已于12月30日下午获得保释。
 
-阿弥陀佛！
+参考链接：
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
+- [《立场新闻》遭中共镇压 关慧贞哀香港一国两制已死](https://gettr.com/post/pl3ehm970d)
 
-编辑整理：喜马拉雅的肉夹馍；
 
-字幕文件制作：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-视频制作及上传：Cindy；
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
