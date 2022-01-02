@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 7:13 PM (UTC)`
+
+1月2号：尊敬的战友们好，一定要马上关注。这位有良知的……有国际视野的天才籍的媒体人．美国朋友。@joerogan 【Just in case shit over at Twitter gets even dumber, I’m here now as well. Rejoice! https://gettr.com/post/plg71j5d09 看到Joe Rogan来盖特了，简直太厉害了，这位可能是美国最有人气的主播，他的podcast在美国上亿的关注，太牛了🎉🎉🎉】
+
+---
+
 `@miles 1/2/2022 4:27 PM (UTC)`
 
 2022年1月2号：尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！
@@ -145,13 +151,6 @@
 
 #HBO #VICE 's Premeditated Lies — Uncut Interview with Miles Guo — Highlight (6) : <br/>☘️ Miles never takes one dollar from the Whistleblower Movement and the New Federal State of China. <br/>☘️ Miles is prepared from day one to take down the CCP. As long as it can take down the CCP, Miles can eat shit or be killed for a thousand times.<br/>☘️Taking down the CCP requires true faith, not money.<br/><br/> #HBO #VICE 有预谋的谎言 —— 郭先生未删减采访精彩片段六：<br/>💦 郭文贵从未从爆料革命和新中国联邦那里拿走一分钱。 <br/>💦 郭文贵从第一天起就准备打倒中共，只要能灭共，郭文贵可以吃屎或被杀一千次。<br/>💦 灭共需要的是真正的信仰，而不是钱。
 ![img](https://media.gettr.com/group23/origin/2021/12/31/22/739ad523-84cc-5846-a36e-ceaee314a2b8/out.jpg)
-
----
-
-`@miles 12/31/2021 4:55 PM (UTC)`
-
-12月31号：尊敬的战友们好又蒸馍馍……卷子啦，吃饭饭啦……
-![img](https://media.gettr.com/group18/getter/2021/12/31/16/cb01ab99-1f37-57e8-6717-de599cb55239/out.jpg)
 
 ---
 
