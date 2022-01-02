@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 7:17 AM (UTC)`
+
+1/1/2022 Miles Guo: It is the CCP’s deceptions and suppression that led to the lack of mutual trust and mutual fondness among the Chinese people; the citizens of the New Federal State of China shall be selfless and altruistic! Given that we are determined to take down the CCP, we shall love the fellow fighters and tolerate their shortcomings<br/><br/>1/1/2022 文贵直播: 中共的欺骗和打压导致中国人互不信任、互不喜欢；新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点！<br/>
+![img](https://media.gettr.com/group37/getter/2022/01/02/07/8aab39bc-1c61-a801-026d-6fe7bf73948f/out.jpg)
+
+---
+
 `@miles 1/2/2022 4:56 AM (UTC)`
 
 2021 Miles Guo's Latest Song "Hcoin To the Moon" Makes History🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/1813005<br/><br/>2021年郭文贵先生最新单曲Hcoin To The Moon创造的历史记录🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/zh-hans/1812319/<br/>
@@ -145,13 +152,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12/29/2021 Miles Guo: VICE's deliberate postponing the release of the interview with Miles Guo is a gift to the CCP's Winter Olympics; The military bills signed by Biden have made it clear to the CCP that the US is going to fight it till the end. However, no one in the CCP believes that it can defeat the US, and what Yang Jiechi and Wang Yi said in their secret speeches is the exact opposite of reality<br/><br/>12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼；拜登的军事法案让中共明白美国将与之决战，但中共无人认为能打赢美国，杨洁篪和王毅的秘密讲话和现实截然相反<br/>
 ![img](https://media.gettr.com/group19/getter/2021/12/31/00/e96497dd-c20e-8178-23cb-8c0488ce92d2/out.jpg)
-
----
-
-`@miles 12/30/2021 10:30 PM (UTC)`
-
-12/29/2021 Miles Guo: Although Liu Yazhou used to support Xi Jinping, he was arrested by Xi anyway, indicating the CCP is the demon of the world and that its political infights are extremely evil by nature<br/><br/>12/29/2021 文贵直播：虽然刘亚洲过去支持过习近平，但他却被习抓了，这反映出中共是世界上的魔鬼，其内部政治斗争的本质是极其邪恶的<br/>
-![img](https://media.gettr.com/group36/getter/2021/12/30/22/d825ad2f-c3be-cb3d-9272-4cbc65531e7a/out.jpg)
 
 ---
 
