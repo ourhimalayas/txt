@@ -2,30 +2,46 @@
 ---
 
 
-## 加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814444/)
+## 邓丽君高胜美王力宏这些港台歌星是富豪玩够了抛到社会
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814460/)
 
-#### 翻译/撰稿：zzballack
+**郭文贵先生：**王力宏抢过别人的女人，王力宏欠过人家的钱，王力宏没有兑现黑道的规矩，是吧？王力宏很可怜。王力宏能在咱这个节目上占那么长时间，他真是八辈儿烧了祖香了，他最后一次辉煌。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-1.jpg)图片来源：每日邮报
-据《每日曝光》（Daily Expose）2021年12月31日报道，在南加州的医院，因新冠疫苗导致的病患人数越来越多。少数勇敢的护士挺身而出，讲述了他们所目睹的情况。
+当年已经不在世的台湾的小黑，小黑子，就是飞跃黄河那个，对台湾和香港的艺人讲过一句话，说：“香港有多荣耀，香港、台湾过去整个电影事业有多荣耀，这些演员就有多么的可怜和可恨！”
 
-在位于洛杉矶北部的本图拉县 (Ventura County)，当地医院“不明原因”的心脏疾病、中风和血栓病例正在激增，但许多医生拒绝认为这些疾病与新冠疫苗有关。
+徐小凤，像这样的人，像邓丽君这样的人，几乎，像高胜美这样的人，到后来都是很惨的，很惨很惨的，王力宏这些人都会很惨的。所有台湾、香港歌星都是富豪的玩物，没别人要了或玩够了以后再抛到社会上去，返几回手。
 
-在本图拉县一家重症监护室工作的护士萨姆（Sam）决定向媒体《Conejo Guardian》说出他对此事的担忧。他说：“我厌倦了所有正在发生的事，因为医疗机构继续拒绝承认新冠疫苗的弊远大于利。没有人对此提出质疑，这太疯狂了。在接种新冠疫苗后，患有严重健康问题的年轻人明显增多。已经有很多年轻人前来就诊，我们看到了很多中风和心脏病患者。在一个案例中，一名38岁妇女的大脑出现了闭塞，血液流动受阻。我们知道新冠疫苗会导致血栓，她接种了两剂疫苗，但没有任何医生将其中风症状与疫苗联系起来！他们只说这症状无法解释，这真的很荒唐！另一个例子中，一位以前没有心脏病史的63岁妇女突然患上了心脏病。检测显示她的冠状动脉是清晰的，然而她刚刚接种了莫德纳的新冠疫苗。一位医生实际上对新冠疫苗提出了质疑，但他们没有在病历中提及这一点，因为无法证明。”
+你看这两天我看到好几个香港的老歌星，都跟我很熟，都出来了，为啥？没钱花了。这就是为啥我告诉你，唱歌，当咱们新中国联邦人我们未来啊就要，今天我本来想严肃宣布，但是今天我看到Bunny以后，看到Rica、Twins还有这么多人唱歌以后，我都不敢严肃宣布了，还有喜安娜、喜安妮，我怕严肃完以后这个世界会大乱。
 
-萨姆补充说，该地区所有的医院都目睹了心肌炎病例的大幅飙升。新冠疫苗的副作用包括心肌炎，这一点已广为人知并被广泛报道。“但是每个人都想淡化这一问题，医生们不愿意质疑它和对此发出警告，甚至不愿讨论它，他们表现得好像无法找到病症原因，认为其是自发的。”
+就我们永远要记住，我们再也不能成为别人的唱手和别人的演手，都不能。新中国联邦人一定要成立一个巨大的基金，要对你们这些爱好音乐的人永远不为钱而唱。
 
-另一位在重症监护室工作的护士达娜（Dana）说：“我所在单位从未如此繁忙，但没有一个病人是新冠患者。我们通常不会看到同时出现这么多的中风、动脉瘤（aneurysms）和心脏病患者。一般情况下，我们每年会看到六到十个急性主动脉夹层 (aortic dissection）病例，但在上个月我们就看到了六个，这很疯狂。这些疾病的死亡率非常高。”
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-与萨姆的医院一样，达纳所在医院的医生们甚至不会考虑新冠疫苗导致了心脏相关疾病患者突然增加。相反，这些“卫生专家”将其归咎于“假期”等因素。
+编辑整理：喜马拉雅的肉夹馍；
 
-护士们说，这些病人中的大多数已完全接种了新冠疫苗。
+字幕文件制作：小满；
 
-新闻来源：
+视频制作及上传：Cindy；
 
-[Nurses Blow Whistle on Staggering Number of Heart Problems and Strokes in The Fully Vaccinated](https://dailyexpose.uk/2021/12/31/nurses-blow-whistle-on-staggering-number-of-heart-problems-and-strokes-in-the-fully-vaccinated/)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

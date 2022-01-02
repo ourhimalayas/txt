@@ -2,37 +2,24 @@
 ---
 
 
-## 台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814284/)
+## 什么叫哲学？
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1814303/)
 
-纽约香草山医疗部-云豹；纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
-1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-58.png)
-针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
+文明是开启人类和探知未知世界的钥匙，(文明)就是把人和动物分开。把人和植物分开，把人和畜生分开的叫哲学。
 
-另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
+**【郭先生直播摘要】 2021.12.25 什么叫哲学****？**
 
-新闻连接：[總統2022新年談話：穩健執政堅守主權 台灣珍惜民主挺香港](https://www.cna.com.tw/news/firstnews/202201015003.aspx)
+**郭先生:**
 
-[In New Year’s speech, Taiwan president warns China against ‘military adventurism’](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
+什么叫哲学？我们要看到一个问题。 我专门就这问题请教过世界上所谓的大亨。 当时候我七哥字也不行  念成了大(亭)， 是吧！大(亭)子  大亨们。 见到那些大亨以后  我都很毕恭毕敬， 沐浴更衣，然后去。 拿着笔记本， 然后坐在那儿，带好俩翻译。 请教这(个)哲学。 大(亭)们都怎么看哲学， 我们文学上对哲学的定义， 非常之清楚，就是人类的文明行为和社会的各种族之间(的)关系，和人与人之间的关系和教育和文化就是文化包含了文字。
+
+你像非洲有些地方连文字都没有， 他所以没有文化，但是人家有选举啊！就这些产生的逻辑和深度的思考，现实行为的结果以后和思想结合。统一认为，符合事实和逻辑的行为结果，被记载为思想的，这就叫做逻辑思维。也就是人类的文明最高境界，对人类的定义，文明开启人类和探知未知世界的钥匙，就是把人和动物分开，把人和植物分开，把人和畜生分开的，叫哲学。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.06.26-PM-1.png)
 
-总编/编辑：飞虹
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
-
+视频剪辑：小蜜蜂 | 听写：小蜜蜂 | 翻译：中年少女 | 校对：tonyj | 视频制作+字幕：芥末 |编辑&发布:闪电训练
 
  
 
