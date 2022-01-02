@@ -2,41 +2,64 @@
 ---
 
 
-## 中共政府从西方社交媒体收集了大量数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814902/)
+## 美国和日本拟定针对中共攻台的联合应对计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1814903/)
 
-者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+这是美国和日本关于中共可能对台湾发动袭击的联合应对计划的第一份报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-1.jpg)
+据《亚洲时报》记者：STEPHEN BRYEN，2021年12月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-66.png)2014 年东方盾牌-14 期间，美国军官和日本陆上自卫队翻译。照片源自：美国陆军
+尽管细节未公开，日本共同社报道称，美国和日本已就台湾紧急状况达成一项应对计划草案。
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+应对计划草案最初由美国太平洋司令部 （PACOM）提出，计划本身由日本自卫队和美国海军陆战队共同制定。“紧急情况”一词在草案中保持模糊。
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
+这是第一份美国和日本关于中共可能对台湾发动袭击的联合应对计划的报告。虽然美国最近与日本和其他国家（但不是台湾）进行了多次演习，但这些演习并非基于共同的作战指挥。
 
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
+根据该计划草案，美国海军陆战队将在日本军队的协助下，在日本南西群岛（也称为琉球群岛）设立基地。
 
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+正如计划草案所述，各基地包含美国军队和远程火炮，而后者主要采用 HIMARS（高机动性火炮火箭系统）多管火箭系统的形式。
 
-参考链接：
+该计划没有定义琉球群岛中哪一个将作为美军基地，但很可能是离台湾最近的岛屿之一。据日本外相称，11月初，美国国务卿安东尼·布林肯向日本国务卿保证，美国保卫日本的承诺包括南部岛屿——南西链。
 
-- [Documents show Chinese government collects droves of data from Western social media: report](https://thehill.com/policy/international/china/587839-documents-show-chinese-government-collects-droves-of-data-from)
+日本越来越关注中共国在这些岛屿周围的行动，中共国以海警为前线，推动对至少一些最南端岛屿的领土主张。
 
+2018年，时任日本名誉天皇明仁天皇和皇后美智子访问了距离台湾最近的岛屿与那国岛，距离67英里。这是一个不寻常的姿态，天皇特地去与那国岛展示他与台湾的联系，据说他在那里向台湾朋友“挥手”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-67.png)高机动性火炮火箭系统。照片源自：维基共享资源
+2020年，共有1161艘中共国海上巡逻舰在有争议的尖阁诸岛周围停留了约333天。中共国称最南端的岛屿为钓鱼岛，而不是尖阁诸岛。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+华盛顿战略与预算评估中心（CSBA）高级研究员吉原俊认为，中共国的骚扰行动 最终旨在获得对东海的有效控制，目的是阻碍美国的军事行动。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+与那国町的人口略多于2,000 人。日本正在岛上建设电子战防御系统并增加防空设施，尽管日本人员的全部部署不足200人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据该计划草案，美国海军陆战队将把HIMARS系统移至其中一个岛屿，最有可能是与那国町，因为它靠近台湾。与那国町有一些森林地区、道路和一个机场。跑道长 6,562 英尺，适合满载 C-130降落。HIMARS可由C-130运输。
+
+HIMARS是一种建立在轮式车辆上的先进多管火箭系统。它的前身M270基于履带式车辆，具有相同的弹药，弹药在日本保有库存。
+
+这两种系统都可以发射多种不同的227毫米（8.9 英寸）火箭，例如M26、M30和M31。M31是一种使用GPS的制导火箭 (GMLRS)，很快就会增加一个远程版本——攻击射程大约100 英里。
+
+HIMARS还可以发射被称为ATACMS的大型火箭，其长度为610毫米（24 英寸），射程为300公里或186英里。更重要的是，洛克希德公司正在为名为PrSM（精确打击导弹）的系统开发一种新火箭，该系统具有多种导引系统。
+
+PrSM预计在2025年进入库存，可以摧毁敌方防空系统和海上船只。即使没有 PrSM，GMLRS已经可以作为具备多种火箭和配置的毁灭性武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-68.png)
+2020 年 6 月 18 日，美国海军陆战队第 3 海军陆战队第 12 团第 3 营在日本冲绳北部训练区的远征先遣基地作战演习中使用高机动性火箭炮系统，执行火力任务。照片源自：美国海军陆战队 / 多诺万·马西佩雷斯下士
+
+除了海军陆战队、美国陆军和日本自卫队之外，台湾在 6月份还签署了一项协议，旨在购买HIMARS和鱼叉海防系统。
+
+HIMARS系统的主要优势之一是对手很难精确定位并摧毁它。
+
+太平洋司令部的应对计划草案将在日本和美国即将举行的“二加二”（外交和国防部长）会议上讨论，并确认是否实施。
+
+文章来源：[**https://asiatimes.com/2021/12/us-and-japan-float-a-plan-to-defend-taiwan/**](https://asiatimes.com/2021/12/us-and-japan-float-a-plan-to-defend-taiwan/)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,71 +15,71 @@
 
 ---
 
-### [策划一场全球大瘟疫](/content/gnews/1/README.md)
+### [全球疫情更新（澳大利亚新州入院人数暴增）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [和Dr.Eglise聊中共医疗的阴谋和从医学角度解决性生活 I](/content/gnews/2/README.md)
+### [策划一场全球大瘟疫](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [和Dr.Eglise聊中共医疗的阴谋和从医学角度解决性生活 I](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [未接种疫苗的阿联酋公民将被禁止出国旅行](/content/gnews/3/README.md)
+### [未接种疫苗的阿联酋公民将被禁止出国旅行](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新年快乐 青蒿素吃了让你健康快乐](/content/gnews/4/README.md)
+### [新年快乐 青蒿素吃了让你健康快乐](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [柯林斯和福奇对传统公共卫生的攻击（2/2）](/content/gnews/5/README.md)
+### [柯林斯和福奇对传统公共卫生的攻击（2/2）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中概股2021年暴跌 市值蒸发三分之一](/content/gnews/6/README.md)
+### [中概股2021年暴跌 市值蒸发三分之一](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [何韵诗在港被捕引加拿大各界关注](/content/gnews/7/README.md)
+### [何韵诗在港被捕引加拿大各界关注](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [西安防疫人员群殴购买食物饥饿居民](/content/gnews/8/README.md)
+### [西安防疫人员群殴购买食物饥饿居民](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [美国和日本拟定针对中共攻台的联合应对计划](/content/gnews/9/README.md)
+### [美国和日本拟定针对中共攻台的联合应对计划](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共政府从西方社交媒体收集了大量数据](/content/gnews/10/README.md)
+### [中共政府从西方社交媒体收集了大量数据](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [柯林斯和福奇对传统公共卫生的攻击（1/2）](/content/gnews/11/README.md)
+### [柯林斯和福奇对传统公共卫生的攻击（1/2）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/2/2022国内经济财经周报：共同富裕新利器：持有股权股票等投资，一律按查账征收计个税](/content/gnews/12/README.md)
+### [1/2/2022国内经济财经周报：共同富裕新利器：持有股权股票等投资，一律按查账征收计个税](/content/gnews/13/README.md)
  ` 秘密翻译组金融团队`
 
-### [以色列在大规模感染中醒了吗？扔推第4针？](/content/gnews/13/README.md)
+### [以色列在大规模感染中醒了吗？扔推第4针？](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【中日财经爆】恒大新年又传噩耗：海花岛39栋楼被责令10日内拆除](/content/gnews/14/README.md)
+### [【中日财经爆】恒大新年又传噩耗：海花岛39栋楼被责令10日内拆除](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国又一房企现危机 祥生集团面临千亿债务危机](/content/gnews/15/README.md)
+### [中共国又一房企现危机 祥生集团面临千亿债务危机](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [纽约法案和隔离营威胁公民基本权利](/content/gnews/16/README.md)
+### [纽约法案和隔离营威胁公民基本权利](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [狂妄自大必自取灭亡，你不知道自己多伟大那比灭亡还惨](/content/gnews/17/README.md)
+### [狂妄自大必自取灭亡，你不知道自己多伟大那比灭亡还惨](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [三战中的我们圣诞之夜要跨过仇恨为所有有神的同类祈福](/content/gnews/18/README.md)
+### [三战中的我们圣诞之夜要跨过仇恨为所有有神的同类祈福](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [跟随](/content/gnews/19/README.md)
+### [跟随](/content/gnews/20/README.md)
  ` 儒为`
 
-### [灵魂来自地球之外我们来这里是为了超度自己到达彼岸的](/content/gnews/20/README.md)
+### [灵魂来自地球之外我们来这里是为了超度自己到达彼岸的](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [没打疫苗,救无数苍生,敢反对共产党的荣耀你一生享不尽](/content/gnews/21/README.md)
+### [没打疫苗,救无数苍生,敢反对共产党的荣耀你一生享不尽](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [被“精神病”的刘芬老师](/content/gnews/22/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [VICE采访事件透露的中共蓄意制造排华和媒体操控（二）](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
