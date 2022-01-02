@@ -2,27 +2,30 @@
 ---
 
 
-## 福奇最终承认儿童们并不是因为新冠病毒而住院
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814141/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-9
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814194/)
 
-编译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片4-1.png)
-据《零对冲》记者泰勒·德登报道，在过去的 18 个月中，我们报告了比例很大一部分“因新冠病毒而住院”的人实际上是因其他各种微恙而入院，但在入院后在常规检查中检测呈阳性——这意味所谓大量（既使不是绝大多数）因新冠病毒感染而住院的案例的说法是出于制定政策的目的而被夸大了。甚至直到现在公共卫生官在有关住院治疗的不实陈述中仍尽可能廻避这一区别。
+编辑: 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+HBO VICE的剪辑视频采信了一个名为“螃蟹”的工程师对郭先生的诽谤性叙述和评论，谎称他曾帮助郭先生创立了GTV和Gettr，郭先生没有向他支付最后的费用并将他的信息卖给了中共，使他的国内银行账号被冻结，以此恶意攻击郭先生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-11.png)
+事实上，在郭先生创立GTV早期，曾准备了几套方案。“螃蟹”只是为郭先生的项目编写代码的很多人之一，与之签订工作合同的也是目前的GTV之前的一家公司。当郭先生发现“螃蟹”做出的方案并非自己所需，并且在盗取GTV的机密信息时，立即指示相关公司向他支付了所有费用，并完全放弃了他的想法和具体工作，目前的GTV、Gettr与“螃蟹”没有丝毫关系。
 
-在周四出现在微软全国广播公司时，美国 主管新冠病毒的最高级官员安东尼·福奇博士承认，新冠病毒住院的儿童人数与“因为 新冠”而住院的儿童人数之间存在区别。
+接下来让我们还原事实真相的第9部分：反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。
 
-“我们的意思是：如果一个孩子去医院，他们会自然而然的接受 新冠检测，因此而被视为因新冠而住院的个人。事实上，他们可能会因为腿部骨折或阑尾炎或其他各种病例而住院，但因此入院儿童的数字都被视作与新冠有关，并不是因 新冠病毒感染而住院的儿童数量，”福奇说。
+新闻连接: [HBO采访郭文贵先生背后的真相](https://www.gettr.com/post/pkgcj58f1f)
 
-福奇：“如果你看看住院的孩子，他们中的许多人是因为新冠病毒而住院的，而不是因为感染了新冠病毒。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-福奇的评论是在美国“因新冠病毒住院”的儿童人数创历史新高之后发表的，遭到德克萨斯州共和党参议员特德.克鲁兹的猛烈抨击，他在推特上写道：“现在福奇在谈论这？” 补充说“这是不是因为拜登政府的病毒大流行政治已经改风向了吗？”
+校正/发稿：浪迹天涯
 
-当然，尽管福奇承认，他仍然建议父母为孩子接种疫苗，他告诉 国家新闻 的“美国早晨”，虽然“数字非常低”是真的，但父母必须考虑到“如果当他是你的孩子时，这是一个非常 高的数字。”
-
-所以 -实际上就是用“科学”来诱发孩子们的情绪而达到注射疫苗的目的。
-
-原文链接：[https://www.zerohedge.com/covid-19/fauci-goes-there-finally-admits-kids-not-being-hospitalized-covid](https://www.zerohedge.com/covid-19/fauci-goes-there-finally-admits-kids-not-being-hospitalized-covid)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

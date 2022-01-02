@@ -2,32 +2,27 @@
 ---
 
 
-## 有声|MILES GUO歌声 CASSANDRA预言
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814080/)
+## 纽约市新市长呼吁对抗新冠疫情
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814123/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-如果艺术家诅咒某种东西它必然灭亡，Cassandra意思是说，如果不相信他的预言，人就是在自取灭亡。 艺术是人对自我的叙事。是为提供人对生活的感知方式服务的。是容纳对生活的理解与想象的对象。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-8.png)
+图片来源：zh.detv.us
 
-人本主义的艺术价值观认为，如果一定要言说艺术的目的，那就是也只能是人。是人的意志与信念。从某种意义上说，艺术中其实只有两种艺术，一种是人性的善良艺术，另一种是反人性的邪恶艺术。
+美联社1月1日报道，纽约市新市长埃瑞克·亚当斯周六元旦之际警告这座全国最大的城市进入疫情反弹，政府将做更好的抗疫工作，尽管没有根本上的不同。
 
-摇滚歌王郭文贵先生的歌之所以被全球传播，是因为很好的表达某种心情或某种境况之下所易于相信的东西。单纯的快乐或者忧伤并不是艺术思考的指向。只有对“普遍事物的沉浸”才有可能产生艺术的表达。艺术的价值诞生并再生于精神深处。
+当时代广场的新年钟声响起，亚当斯曾在他的就职典礼上打下包票，说他会做得更有效，唤起纽约市民的坚强意志力，让9百万纽约市民不被疫情所困扰。他说：”打疫苗是为了不让疫情控制你，你可以享受百老汇，把孩子送去学校，你可以回到办公室，所有这些都在于我们自己。”
 
-原文链接：[MILES GUO歌声 CASSANDRA预言](https://gnews.org/zh-hans/1813223/)
+在他的就职演说中，他说要根本性地改善政府的工作，去除浪费和无效性。他说纽约将不再是一个暴力的城市，他说：“我很清楚我的使命是紧紧盯住那些带着武器的暴力犯罪人员。”。
 
-音频处理：喜山必胜Maverick
+他还说， 纽约已经历了两年的疫情危机，纽约市工作人员需要接种疫苗，进入室内活动者需接受疫苗，纽约市还要求私人公司员工打疫苗，这是最彻底的强制疫苗政策，他将继续保留。
 
-发稿：Daxia
+亚当斯是纽约市第110任市长，是自1990-1993年以来第二位黑人市长。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+##### **新闻来源： **[On busy 1st day, NYC mayor urges resiliency against pandemic](https://apnews.com/article/eric-adams-new-york-city-mayor-ced27d5d827f1be4ab74d350d4c64582)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+# ** **
+
 
 
  
