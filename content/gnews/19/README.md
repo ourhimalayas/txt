@@ -2,42 +2,53 @@
 ---
 
 
-## 示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦•勒戈的办公室抗议宵禁
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1815518/)
+## 中共借由音乐的综合性洗脑艺术
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1815522/)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片757.png)图片来源：AGENCE QMI
-**周六晚上（2022 年 1 月 1 日），大约50名示威者前往驻蒙特利尔市的魁北克省长弗朗索瓦·勒戈 (François Legault) 的办公室，抗议自12月31日起在该省实施的宵禁。**
+**作者 MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/d8735f0340893d08.png)图片来源 youtube
+**当艺术被专制绑架，浪漫主义的部分被蓄意拆剪和转嫁，虚空的美附着在“恶灵”之上，在“艺术的尸体” 上植入偏执、反智与盲从，使其成为圈禁奴隶的工具和豢养拥趸的场域。寂寥与晦暗的人间被单一血色的旗帜海洋所裹挟，在聒噪、偏执、混迷的蜃景中，一个“神”降临人世，驱使着信徒走向血腥的乌托邦……**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-15.png)图片来源 youtube 《东方红音乐舞蹈史诗》中的场景
+**月色半笼，华灯初上，宽阔绵长的长安街，微风轻抚、晦涩间或光明的天空下蕴含着古老帝都的深邃和崇荣，人们衣着整洁，脸上洋溢着笑容，共同趋向一个神圣之地……**
 
-蒙特利尔日报2022 年 1 月 1 日星期六 （AGENCE QMI）发表题为《[图片]示威者挑战蒙特利尔的宵禁》的文章报道，周六晚上（2022 年 1 月 1 日），蒙特利尔市出现抗议示威活动，旨在抗议12月31日起在该省实施的宵禁。以下是昨晚拍摄的蒙特利尔市出现的抗议活动的照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片758.png)
-**在接近晚上 10 点（2022 年 1 月 1 日），宵禁正式开始时，游行队伍出现在舍布鲁克西街Sherbrooke Street West上。走在游行队伍最前面的是反疫苗活动家弗朗索瓦·阿马莱加（François Amalega），几分钟后他被警方逮捕。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片759.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片780.png)
-**除了逮捕反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）之外，还开出了 57 张罚单（如果被认定构成违反宵禁令，将被处以最低1,000 至最高 6,000 加元的罚款），蒙特利尔市警察局 (SPVM) 发言人卡罗琳·雪佛瑞菲尔斯Caroline Chèvrefils 证实。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片781.png)
-**从周五（2021 年 12 月 31 日），开始，魁北克禁止任何人晚上 10 点到凌晨 5 点外出，除非持有豁免证明。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片782.png)
-**如果被认定构成违反宵禁令，此人将被处以最低1,000 至最高 6,000 加元的罚款**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片783.png)
-日前，蒙特利尔日报（纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五）发表题为《魁北克正在采取更严厉措施：以下是将于今天下午 5 点生效的新措施》的文章报道，宵禁令从周五晚上开始（2021 年 12 月 31 日星期五）生效。魁北克人被要求，在晚上 10 点至凌晨 5 点期间，不要，出于非必要原因，离开自己的住所。警察会密切布防监视，并可能会要求您，证明您在宵禁期间的外出是正当的，迫不得已的，或解释您在宵禁期间的外出原因。如果您被认定构成违反宵禁令，您将被处以最低1,000 至最高 6,000 加元的罚款。该篇文章报道还指出，今年的新年家庭聚会仅限于同一家庭成员（同一家庭的居住者），或者，可以邀请另外一个家庭的一个人和他的（未成年）孩子加入新年家庭聚会。另外，一个为他人提供基本服务，应急帮助，的人员，（列如警察，医疗急救人员，送餐人员），可以加入，或允许进入新年家庭聚会。
+在激昂、雄壮、充满期待的背景音乐中，《东方红音乐舞蹈史诗》电影的开篇的场景给人直观视觉冲击和不容辩驳的崇拜趋向。对伟人崇敬意涵的表达像极了纳粹德国时期纪律片《意志的胜利》的开篇。
 
-另外，魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一，尽管未接种疫苗的人仅占总人口的 19%，然而在全省的COVID-19 病房中，未接种疫苗的患者占新住院人数的 52% 和重症监护病房人数的 75%。魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二，2021 年 12 月 28 日，的新闻发布会上说，“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”，“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”，“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
+上图中美丽的女演员们，如果剥去他们时代的衣饰，她们就会显现的和我们的一样，没有审美的阻隔……，那修长光滑的脖颈、美丽标致的脸廓，洁白的皓齿，澄澈明亮的眼睛，无不曼妙灵动的身姿……，年轻、充满憧憬微微上扬的脸庞，每个人手中托举着金色、光辉的太阳……，伟大的领袖毛主席……这是这个时代所能拥有的最美飨宴——年轻、美丽、清丽的美人的一致趋向，奉献给人民的领袖……
 
-**后续的更多，更大规模的游行示威抗议活动很快会到来**
+中共高层权力斗争的肃杀，禁锢与晦暗的社会现实背景下，此剧于1964年首演，毛泽东、刘少奇、周恩来、朱德、邓小平、董必武等一众党魁观看了此剧。这是一种无比讽刺的场景。毛泽东的权力觊觎者在暗中斥骂的时候，崇拜领袖和党的意识形态风潮却在中国地域上急剧滚涌。这种集体行为艺术的氛围渲染力无情地收编个体的认知与理性，下层的民众在盲从中体会到融入、认同与收获。被愚化的无知民众响应随后的一系列清洗运动，被当做工具、杀手解决掉权力的觊觎者后，他们自己也毫无例外的被堕入到了无间地狱之中。
 
-**文章编译及评论人提醒读者，魁北克政府更加露骨地甩锅，嫁祸，威胁，恐吓未接种疫苗的人们，并声称“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。这次游行示威抗议活动是对魁北克政府的一个回应。后续的更多，更大规模的游行示威抗议活动很快会到来。****每逢佳节倍思亲****，****魁北克省的战友们，及****全球的****战友们大家新年好。**
+在反共产主义、反社会主义、反极权主义、反极端宗教形式崇拜的时代审视者里，那些被权力美化与兜售的年轻、美丽的躯体，也会感到一种强烈的无力感，就算自己能身处在那个年代，也注定只能眼睁睁地看着身边的人，不管是高尚的灵魂 ，还是丑陋的灵魂，都将随着扭曲、愚昧、狰狞的意识形态与乌合之众泥沙俱下。
 
-**参考资料：**
+《东方红音乐舞蹈史诗》视频链接：[https://www.youtube.com/watch?v=LQaK3tL6qIE](https://www.youtube.com/watch?v=LQaK3tL6qIE)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-5.png)彭丽媛 图片来源 youtube
+在《在希望的田野上》视频链接：https://www.youtube.com/watch?v=2D40CzOGcL4
 
-1. 蒙特利尔日报，AGENCE QMI, 蒂埃里·拉福斯THIERRY LAFORCE，2022 年 1 月 1 日星期六，Le Journal De Montreal，[EN IMAGES] Des manifestants défient le couvre-feu à Montréal，[https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal](https://www.journaldemontreal.com/2022/01/01/des-manifestants-defient-le-couvre-feu-a-montreal)
-2. 蒙特利尔日报，纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五，Le Journal De Montreal，Québec serre la vis: voici les nouvelles mesures qui entreront en vigueur aujourd’hui à 17 h，[https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h](https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h)
-3. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上，Journal de Québec，Dubé sert une mise en garde aux non-vaccinés， [https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
+歌颂伟大的共产党，驱使中国的农民把一生好在田间地头。乏味、无奈、贫苦的乡村现实，借由一张亢奋、充满憧憬的美丽脸庞饰以浪漫主义色彩，幻化成社会主义扎根土地的坚韧史诗……
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-3.png)张也 图片来源 youtube
+《走进新时代》视频链接[https://www.youtube.com/watch?v=Lgo2fF58Pw0](https://www.youtube.com/watch?v=Lgo2fF58Pw0)
 
+略显朴实的气质，却掩藏不住攀附权势的春风得意，全然融化在标准化“谄媚”的笑靥里，呈现了专制体制下的的人性对于妖冶、扭曲、变态的怪诞审美的搜罗与塑造……
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-3.png)祖海 图片来源 youtube
+《家在中国》视频连接：[https://www.youtube.com/watch?v=djKbBnqZsGM](https://www.youtube.com/watch?v=djKbBnqZsGM)
 
-编辑/发布：LILY
+中共号称是无产阶级政党，权力来自中国百姓，始终把人民的利益挂在嘴边，以实现绝对平等的“社会主义”为光荣己任，在宣传上体现了一个伟大无私的政党，然而遴选的歌唱演员都是姿色卓绝的美人，原来这是一个讲究等级的政党和体制，一切都是在卖弄概念。
 
-20220102
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+对于家族化的独裁政党，仙绝的躯体是取之不尽的泄欲工具，把供奉的意识形态、猎艳、占有、蹂躏统统加诸在幼稚清濯的胴体上，把原本美丽的生物进行改造和破坏，所激发出的变态满足感投射出了人性的至暗。不过，满足权力的无边放纵是他们在乎的人生主题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2.png)祖海 图片来源 youtube
+《为了谁》视频链接：[https://www.youtube.com/watch?v=lunsJD22-2I](https://www.youtube.com/watch?v=lunsJD22-2I)
+
+这些美人虽美，却暴露出了程式化、流水线化的空洞、呆板、虚假。明亮坚毅的眼神没有流露丝毫的迟疑，仿佛被脑控的机器人。通过这些美丽工具的表达和诱导，卑微的奴隶应该为了伟大的党所提供的专制现实去奉献你的一切……
+
+中共惯常利用年轻的美人、充满童稚的孩童、坚韧的士兵、底层的民众作为装饰，以这些附着在专制意识形态的作品之上，借助这些赏心悦目、天真、无邪、坚毅、勇敢真实、真挚的社会生物，烘托专制政党的光辉与伟大，营造时代的认知趋向……
+
+*发布：*去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
