@@ -2,40 +2,153 @@
 ---
 
 
-## 走上特权之路的新西兰女总理
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1813896/)
+## 《无问西东》Forever Young
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1813900/)
 
-题材：新闻评论
+秘密翻译组-北美组
 
-作者：sherryok(水云间)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-1.png)
-新西兰“和蔼可亲”， 经常上脸书发视频的女总理杰辛达（Jacinda Arden），在公开表示要把新西兰人分为两个阶级，苗族（接受新冠疫苗）和无苗族（不接受新冠疫苗）后，淳朴的新西兰人开始聚焦这位41岁的女总理，希望发现这位女总理身上到底发生了什么，让她不惜撕掉民主，富有爱心的伪装，也要将疫苗强制，分化民众进行到底。
+演唱：木兰传奇
+MV制作：蓝光
 
-2021年圣诞和2022年新年假期，这位女总理在媒体上消失了，人们猜测她是为筹备2022年1月的婚礼在忙碌，但是人们发现疫苗接种点也关门休息了，原来新西兰的病毒大流行的紧急程度是跟着政客的时间表走的啊！但是12月27日，新西兰第一例进入社区的奥米克戎病例， 又将杰辛达推到舆论中心，这位自英国远道而来的唱片骑师 (DJ) 是来参加基督城的跨年音乐节的，而杰辛达的未婚夫盖弗（Gayford）， 做为知名主持人，多次音乐活动的幕后推手，与音乐节的组织筹备有千丝万缕的联系。一张新西兰医务工作者的聊天截屏显示，盖弗曾过问为入境的音乐家们做快速检测的特殊安排，而非广泛使用的PCR测试，因为这些音乐家们不喜欢PCR测试。
+谁的手 总紧紧牵住我的手
 
-英国DJ这次入境是他在新西兰2020年12月关闭国门后第三次豁免入境。这更引起了大众的不满。媒体质问为什么众多急需的医疗护理工作者不能获得边境豁免，多少人去世都见不到亲人，一个唱片骑师却能有如此特权，据报道，这位名叫伊瑟雷奇（ Etheridge， 艺名维度）的DJ，是根据“其他关键工人边境例外”标准三度获得豁免，以便在节日期间表演。新西兰移民局评估他具有“在新西兰不易获得的独特经验和技术或专业技能”，并且“在工作中承担着时间紧迫的角色，为国家或地区经济带来显着的更广泛利益。” 难道新西兰的音乐骑师不具备在节日中打碟的能力？一些网友认为， 这绝对是对新西兰音乐工作者的侮辱。同时，杰辛达年轻的时候在音乐节上做DJ的照片也被挖出，杰辛达从政前，正式的工作就包括DJ这一项，杰辛达与她的未婚夫2013年认识的时候，也是从共同爱好DJ的话题聊开的。
+Whose hand is always holding my hand tightly
 
-新西兰事务网站12月30日报道了此事，并列举了节日期间海外新西兰人被拒绝豁免，无法回家与亲人团聚的故事。居住在[基督城](https://www-stuff-co-nz.translate.goog/the-press?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)的实验室技术员，印度移民达里亚·康德 (Dhariya Kant)说，他认为 DJ的豁免是不公平的，他在印度的女儿只有两岁，自 2019 年以来，他一直在[为家人申请签证来新西兰](https://www-stuff-co-nz.translate.goog/national/immigration?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)，在此期间，他们被禁止访问。等待家人回国的这段时间，康德一直是“精神上、身体上、情感上的折磨”，听到一位DJ一年之中获得三项豁免的消息，他感到“痛苦”。
+不回头 在人群沙漠中漂泊
 
-来自卡皮蒂海岸的莱斯利·哈迪 (Lesley Hardy) 迫切希望将她的儿子从澳大利亚珀斯接回家，在那里他患有严重的精神崩溃。但莱斯利度过了无数令人沮丧的一天，试图为他预订隔离位置，但都失败了。
+Don’t look back, drifting in the desert of people
 
-据报道今年 9 月底左右，超过[31,000 人排队争​​夺](https://www-stuff-co-nz.translate.goog/travel/news/126518008/excited-as-hell-but-bittersweet-some-secure-miq-spots-as-tens-of-thousands-miss-out-in-second-round-of-virtual-lobby?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)三个月内提供的 3718 间管理隔离室。超过 6000 人设法获得了一个位置，其中包括[海外新西兰人，他们的家人已经去世并为获得一个位置而奋斗了数月。](https://www-stuff-co-nz.translate.goog/travel/news/126518008/excited-as-hell-but-bittersweet-some-secure-miq-spots-as-tens-of-thousands-miss-out-in-second-round-of-virtual-lobby?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)
+你别用 含着泪的眼睛看我
 
-新西兰行动党党魁西蒙（David　Seymour）为新西兰本土DJ感到遗憾，他在推特上讽刺当局，曾经政府是非常支持本土音乐，但今天一个英国DJ竟然具备无以伦比的经验和技巧，而且这些是在新西兰无法获得的，以至于严重到要给他三次豁免入境。
+Don’t look at me with tearful eyes
 
-这不得不让人想到杰辛达的婚礼风波，原本预订在吉斯本一家拥有２００多年历史的著名餐厅举行，但是因为坚持要用一位知名的英国大厨掌勺，餐厅只要提供后院种植的有机食材即可，这一变更没有提前告知餐厅，惹得该餐厅老板大怒，预订取消，并向总理索赔５０００元，认为杰辛达侮辱了这家餐厅的声誉。“那位英国大厨除了能给总理增加出风头的机会，他并没有像我这样有３３年的经营餐厅的经验！”如今，婚礼改在一位美国富翁的新西兰庄园举行，当年购买新西兰的尼克斯海角，还因为涉及毛利人传统保留地引起了一场风波。
+听蝉声沉落
 
-说到出风头，还真不是光出名这么简单，最新的资料显示，杰辛达的个人净资产已达２５００万元，做为年薪４７万的国家公务员，人们疑惑之时，有人贴出了新西兰国会的投资清单，辉瑞和强生等大公司赫然在列，有分析认为，目前杰辛达又出书，又荣登福布斯全球杰出领导者，综合起来，身价应该达５０００万元。无怪乎，上月，媒体专门为她辟谣，说她未婚夫盖弗并未在北岛南部购买农场，生怕人们关注到她的巨额收入，影响到她的清新形象。
+Listen to the cicadas singing
 
-上有所好，下必甚焉。回到新西兰社区第一例奥米克戎患者的英国DJ，他在推特向民众道歉，但丝毫没意识到他错在哪里，他说他以为他的隔离期已经结束了，因此前往夜店，但是新西兰的隔离手册明确在离开隔离设施后，还必须在家隔离三日才算完成。因此不少民众在评论区发言，他已经违法，应该将他立即遣返英国。但是诡异的是，历来叫嚣推动严厉隔离及疫苗措施的媒体，第二天竟然为他开脱，说请大家理解，他前３次的测试都是阴性。（意思是他放任自己不负责任情有可原吗？）这样的媒体是在为民众的利益发声吗？在强制疫苗的宣传上，媒体向来寸步不让，不管毒副作用的危害，民众非打不可，但是轮到特事特办的英国DJ，马上双重标准，就连把新毒株带进新西兰也成了小事一桩。
+请抬头 今宵露重
 
-媒体是比军队还要强大的力量，这被文贵先生一语点破的秘籍，杰辛达总理深谙其道，据新西兰先驱报的报道，新西兰政府过去4年媒体上的投入增加了50%， 每年高达9000万元，原本在广告费上求生存，苦苦挣扎的媒体，如沐春风，谁还会去说政府不愿意听的话，报道杰辛达不愿意看的新闻呢?中共靠国家政权把持新闻媒体，而杰辛达用人民的税收也达到了同样的目的。
+Please look up, the dew is heavy tonight
 
-一个国家的领导人因为自己的爱好兴趣，利用权力开后门，搞特殊。在极权独裁国家一点也不奇怪。但是在民主国家，这个领导人就会遭到大众的揭露和批评，尽管媒体掩盖，但挡不住社交媒体的广泛传播，这也就是文贵先生所说的，与二战相比，今天的人民有了互联网这一武器。再想像希特勒那样靠强权管控信息，操纵民意是难上加难了。因此，相比中共国的５００特权家庭，及庞大的１４亿奴隶的体量，做为５００万人口的新西兰国的年轻女总理，杰辛达的特权之路还有很长的路要走，但是只要开了头，后面的就见怪不怪了，独裁和普罗大众的角力，拼的就是民众扫奸除恶的决心和毅力。
+是谁用 带露的草叶医治我
 
-即将出席杰辛达婚礼的知名歌星洛德LORDE, 不出所料，圣诞节拿到了神秘的隔离名额，回到新西兰家中与家人团聚，说是准备２－３月份的演出，但是最重要的恐怕是应邀担任１月底杰辛达和盖弗婚礼的演唱嘉宾吧。她的新歌”新政权的领袖”　(leader of a New Regime), 恐怕就是专门为杰辛达所写，歌中唱到：我们的新政权需要一个领导者（We need the leader of a new regime），这个政权是共产主义幽灵的政权吗，这个领导者指的是杰辛达吗，作为曾经的国际社会主义青年联合会主席‘有媒体，有文艺界支持，有财力做靠山，新西兰这个“杰辛达政权”对新西兰人来说，是福还是祸呢？
+Who heals me with the dewy leaves of grass
 
-新闻链接：https://www.stuff.co.nz/national/300488326/covid19-dj-dimension-on-third-border-exemption-to-nz-since-december-2020
+愿共我 顶风暴泥泞中跋涉
+
+May I walk with you through the mud and storms
+
+是谁说 经过的路都是必需
+
+Who said we must endure all the hard journeys
+
+磨难尽收获
+
+Experiencing all the hardships and tribulations
+
+山云做幕 攀岩观火
+
+Clouds and mountains are the curtains, watching the fire on the rock
+
+请由我引吭高歌
+
+Let me sing my song
+
+面迎啊海上风
+
+With the sea wind brushing my face
+
+在世界之外 在时间之中
+
+Beyond the world and time
+
+无问西东
+
+We shall be forever young
+
+就奋身做个英雄
+
+Let me be a hero
+
+不枉那青春勇
+
+Live up to youth and courage
+
+愿心之自由 共天地俊秀
+
+May my heart be free and the world be beautiful
+
+有情有梦
+
+With love and dreams
+
+是谁用 带露的草叶医治我
+
+Who heals me with the dewy leaves of grass
+
+愿共我 顶风暴泥泞中跋涉
+
+May I walk with you through the mud and storms
+
+是谁说 经过的路都是必需
+
+Who said we must endure all the hard journeys
+
+磨难尽收获
+
+Experiencing all the hardships and tribulations
+
+山云做幕 攀岩观火
+
+Clouds and mountains are the curtains, watching the fire on the rock
+
+请由我引吭高歌
+
+Let me sing my song
+
+面迎啊海上风
+
+With the sea wind brushing my face
+
+在世界之外 在时间之中
+
+Beyond the world and time
+
+无问西东
+
+We shall be forever young
+
+就奋身做个英雄
+
+Let me be a hero
+
+不枉那青春勇
+
+Live up to youth and courage
+
+愿心之自由 共天地俊秀
+
+May my heart be free and the world be beautiful
+
+有情有梦
+
+With love and dreams
+
+善良，无畏，勇敢，同情
+
+kindness, fearlessness, courage, compassion
+
+愿你在被打击时，记起你的珍贵，抵抗恶意
+
+May you remember your preciousness and resist malice when you are struck down
+
+愿你在迷茫时，坚信你的珍贵
+
+May you believe in your preciousness when you are confused
+
+爱你所爱，行你所行，听从你心，无问西东
+
+Love what you love, do what you do, listen to your heart, we shall be forever young
 
  
 
