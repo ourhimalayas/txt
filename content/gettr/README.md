@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 2:03 PM (UTC)`
+
+1/1/2022 Mr. Miles Guo: The “I’m the Music Hero” show last night is a sublimation of the whole NFSC team. CCP‘s Red songs are brainwashing tools and deny humanity, but our music is about human nature and respect to God.<br/><br/>1/1/2022 文贵先生新年大直播：昨晚的《我是音雄》是新中国联邦团队整个的升华。中共的红歌是洗脑的、泯灭人性，而我们的音乐是歌颂人的本能，敬崇上天的。
+![img](https://media.gettr.com/group5/getter/2022/01/02/14/b2cf4d19-f064-3f93-43bb-72cf29d9b1c0/out.jpg)
+
+---
+
 `@miles 1/2/2022 1:21 PM (UTC)`
 
 1/1/2022 Mr. Miles Guo: reading the manifesto of NFSC, staying in touch with the farms, staying away from the cities is the solution for the fellow fighters to hold together and get through the hard times.<br/><br/>1/1/2022 文贵先生新年大直播：读新中国联邦宣言、联系农场、远离城市是战友们抱团取暖、渡过难关的解决之道。<br/>
@@ -144,13 +151,6 @@
 
 ...
 ![img](https://media.gettr.com/group16/getter/2021/12/31/13/73b9ff19-6d8d-db74-7692-74b637c26fd1/ba8e77daaedf656934500f5b83a7c91a.jpg)
-
----
-
-`@miles 12/31/2021 1:27 PM (UTC)`
-
-Thanks to the Himalaya Washington DC Chapter, we now have a new English program The Potomac View, dedicated to enlightening the western audiences with truth in an environment where the mainstream media has largely succumbed to the CCP’s influence operation for money. We want to democratize the truth spread by Chinese Whistleblowers who took great risks upon themselves to expose the CCP’s attempts to destroy democracy and freedom in the west. This episode exposes the lies and smear campaign launched by Vice/HBO to attack Mr. Miles Guo and the Chinese freedom-loving Chinese diaspora who want to take down the CCP.
-![img](https://media.gettr.com/group6/getter/2021/12/31/13/41d8ea3f-df0f-27eb-223d-fa1ab1bb3a55/out.jpg)
 
 ---
 

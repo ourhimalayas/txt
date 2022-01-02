@@ -2,87 +2,36 @@
 ---
 
 
-## 全球疫情更新（澳大利亚新州入院人数暴增）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1815037/)
+## 大直播后记：2022年非常的精彩，也会有巨大的挑战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1815088/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33.jpg)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 元旦）
+整理：雅典娜速记组
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-14.png)图片来源：郭先生盖特大直播视频截屏
+兄弟姐妹们，一定要想到的事情就是这个时代、这个机会，不是我们想抓就抓得住的。当然，我们主动性要够，才能（抓住）时机，时机啊！时间不是（由）我们决定的，（是）老天决定的；机（会）是我们自己抓到的。兄弟姐妹们，特别是今天在这里（有）你们这么多高人，明年年底再想是什么概念？你会想象不到这个人类（会有）多大变化！
 
-**一，全球疫情基本数据**
+我不相信这个世界上印了200多万亿（美元），这个喷出来的GDP，（可以）这样继续下去，还要喷多少钱呢？如果明年还像今年，需要再喷400万亿美元，400万亿美元！所以我不相信，400万亿美元什么概念呢？（让）这个帽子又要涨10倍？你相信吗？不可能的事情啊！那么我们接下来怎么抓住这个机会呢？H-PAY，HCOIN，还有更重要的，接下来我们一系列的产品出来，1月份H-PAY就上线了。（所以）你们千万千万记住，你们如果能够做到最好，就一定要做到最好。
 
-感染总数：2.89229853亿（日新增139.0785万，14天增幅+117%）
+因为欧洲对我们太重要了，而且接下来共产党在欧洲对我们的攻击，就像对待日本一样啊。这基本上是美国、欧洲、日本这仨地方就是（遭到）猛烈攻击的地方，要做好充足的心理准备。
 
-死亡总数：543.8万（日新增 6,151人，14天增幅–11%）
+所以说兄弟姐妹，2022年会非常的精彩啊，（也）会有巨大的挑战。就凭今年年末共产党给送来的大礼，（这是）老天给我们送来的大礼。在2022年，我们绝对又是一个巨大的收获年，不仅是充满了希望，我希望是更多的是收获。但是我们一定要心里（做好）准备，在收获之前你是要付出汗水的，汗水啊！别搞错了啊，付出汗水的啊！你才能得到了眼睛愉悦的水，还能得到下面高兴的啊——这个情不自禁的啊，兴奋之水你才能高起来，你才能高潮起来，你才能开嗨起来啊！我们要尽情的享受我们付出汗水所收获的劳动成果。
 
-每万人感染人数：447.9938 人（除中国外）
+（还有）一个更重要的事情，我们要坚持的“唯真不破”。无论灭不灭共这条都不能忘，千万别忘了！
 
-**二，全球“疫苗”毒针统计数据**
+（如果）你大卫看到这个不顺眼，小鸟看那个不顺眼，萧亦（也）看着不过，这都不重要。昨天晚上我直播完了，好多战友给我发信息，（说）谁谁谁怎么样，我就发个信息就回复了。你说这大过年的，你啥时候你说这，刚刚那么好的节目，这个不对那个不好的，你说这是干什么呢？是不是啊？
 
-“疫苗”毒针注射总数：88.1亿
+**我们少看别人哪不行，你就一个基准，对灭共有没有利，对灭共有利咱全干，对共没有利的咱一样都不干，没有什么对错，只有对战友灭共有没有利。**
 
-完全“接种”：37.7亿人
+啊，所以说兄弟姐妹，我今天跟大家坐在这里的时候……今天上午的上半场直播已经是到时间了，非常非常的开心。然后呢，每个人在画面上我们展示真实的自己，就像在刚才方木的很感人的话，还有法治萌芽，这个刚才的2PAC、文科、小鸟，你们说的每一句话都是发自内心的，但没有一个人（事先）编排，每句话都是（代表着）未来，在几年后都会成为中国人和全世界了解新中国联邦人一个教科书（式）的题材啊！上天保佑所有的每个战友啊！再次祝大家新年快乐！
 
-完全“接种”百分比：48.3%
+资料来源：郭先生GTV和盖特直播视频。
 
-**三，澳洲疫情和“疫苗”数据**
+发布： 去中心化Math
 
-感染总数：462,928（今日新增 32,347人）
-
-死亡总数：2,259人（今日新增 6人）
-
-每万人感染人数：156.2531人
-
-以下澳洲疫苗为昨日数据，今日元旦数据未更新。
-
-“疫苗”毒针注射总数：42,598,706  （日新增160,279针）
-
-第二针“接种”：1884.5485万人
-
-第二针“接种”百分比：76.7%
-
-16岁以上人口接种至少一剂疫苗的比例：94.4%
-
-16岁以上人口接种至少两剂疫苗的比例：91.4%**四，数据分析和疫情要闻**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/56.jpg)
-今日澳大利亚病例新增数字有所稳定，仍超过三五两千人，可能与检测数量下降有关。澳大利亚 的12岁以上人口已有超过90%完全接种了疫苗，澳洲全部人口的完全接种率也高达76.7%。当初“专家”曾经保证，当疫苗接种达到70%，疫情就能得到控制，我们都能恢复正常生活，“Our Best Shot”（疫苗针是我们最大的希望）曾经是“主流“媒体中不断重复的口号。看看如今澳洲疫情如火箭般上升的现实，回想这句口号，是如此讽刺。
-
-如今的主流媒体和澳洲政府，还在继续鼓动人们施打加强针，继续声称疫苗能够帮助我们控制疫情。那么我们就看看加强针的一个模范国家丹麦的情况吧：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/57.jpg)
-丹麦每日新增病例曲线（图片来源：谷歌）![](https://assets.gnews.org/wp-content/uploads/2022/01/58-1.jpg)丹麦疫苗接种曲线（深绿色部分为加强针）
-从这两幅丹麦的疫情曲线和疫苗接种曲线我们可以看到，即使丹麦的加强针接种已经覆盖其人口的40%以上，仍然对阻止疫情进展毫无正面作用。
-
-谈到疫苗无法控制疫情这个问题时，支持中共病毒疫苗毒针的人们往往会说，疫苗不能阻止感染是没错，我也知道，可是疫苗可以防止我病重住院啊！不幸的是，澳大利亚新南威尔士州的传来的消息，该州的住院人数持续升高，在[一天之内上升了 18%](https://www.theguardian.com/australia-news/live/2022/jan/02/australia-news-live-update-rising-covid-patients-put-hospitals-under-pressure-as-victoria-and-nsw-expect-record-cases-omicron-scott-morrison)，达到 1,066人；医院已经缺乏人手到了政府宣布[对医护人员豁免隔离规定](https://www.theguardian.com/australia-news/2022/jan/01/decision-to-exempt-nsw-health-workers-from-covid-isolation-reflects-hospitals-desperate-situation)的地步，新南威尔士州卫生局周五深夜宣布，在“特殊情况”下，与无症状密切接触者的前线工作人员将无需自我隔离 7 天，以避免关键服务中断。医生们说，这个决定反映了“极其绝望的情况”，并警告说政策变化将增加住院患者的 感染风险。请看下面的澳洲中共病毒感染住院人数曲线。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/60.jpg)澳大利亚的中共病毒感染住院人数曲线（深蓝色部分为重症监护室病人数字）
-必须强调的是，包括新南威尔士州的澳洲大多数州已经对医院的工作人员实施了强制疫苗政策，没有接种新冠疫苗毒针的医护人员无权继续工作，连在家工作也不行。这加剧了医院人手的短缺。
-
-当初实施强制疫苗接种的借口就是为了控制疫情，而现实和数据都已经证明，这些毒针既不能控制疫情，也无法控制入院人数的迅猛增长。
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：kk
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
