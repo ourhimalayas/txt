@@ -2,44 +2,47 @@
 ---
 
 
-## 习近平新年致辞无视残忍的封城和新冠病毒应对失策
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1813878/)
+## 自然感染与中共病毒疫苗导致的心肌炎有何不同？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1813910/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010109.jpg) 图片：Han Guan摄 /美联社
-中共独裁者习近平周五在新年致辞上庆祝中共在新冠病毒上的应对。他忽视了一点：由于中共处置不当，这个国家当下正在经受自疫情开始以来最严重的一次新冠病毒爆发。
+#### 翻译：Fulin
 
-中共病毒2019年底起源于中共中部城市武汉——中共外交部对这个事实多次否认，反而抛出一个未经证实的阴谋论，说病毒源自美国的马里兰州。一年前，中共满腔热情地晒出庞大人群摩肩接踵在武汉庆祝新年的图片——这标志着对疫情取得了胜利。国际传媒公司报道了那次庆典，但基本上都未能跟进报道两周后在全国各地爆发的新冠病例。
+#### 校对：精靈藍
 
-如出一辙，中共10月份在全国宣扬“红色旅游”以庆祝其建党纪念日，这导致来自上海的一个旅游团将中共病毒传到北方的多数省份，爆发迅速地波及至少10个省。然而中共官方没有确认两者之间存在关联。继新冠病毒在内蒙古爆发后，北方陕西省的省会西安发生了更大规模的爆发。这促使官方在平安夜的前一天封锁了这座拥有1300万人口的城市。
+#### 编辑：枳实
 
-截至本周，惊恐的西安居民已经开始在社交媒体上表达不满，说官方不允许他们出门购买食物，任由他们挨饿，因为供应短缺。
+#### 字幕/剪辑：向上James
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图173.png)
+字幕文本（英汉对照）：
 
-“这越来越荒谬。这辈子我从没想到过将来我会因为没有食物吃而无法睡觉，” 本周来自西安一位居民的微博评论。微博是中共政府办的社交媒体机构。
+Dr. McCullough explains how myocarditis differs between natural infection and vaccine.
 
-习在应对新冠爆发上没有扮演公众角色（没有证据显示他曾经采取何种方式去控制病毒），他在新年致辞中半点儿都没提到这个国家笼罩着的阴沉气氛。习声称过去的2021年，中共“在通往中华民族伟大复兴的道路上，自信地大步前进”，并描绘了一个快乐的、没有疾病的一年。习还特别宣称世界称赞中共国（疫情发源地）对疫情的应对。
+美国顶尖心脏医生—彼得·麦卡洛博士（Dr. Peter McCullough）：中共病毒自然感染与中共病毒疫苗导致的心肌炎有何不同？
 
-周五。新华社把习在新冠疫情上蹩脚的领导力夸奖成为世界上其它国家“照亮了前进的道路”。新华社没有提到，在习的领导下，中共国故意无视海牙国际法院的裁决，正在实施持续的种族灭绝，并且是世界上最糟糕的污染国。
+Now the myocarditis that occurs with a natural infection is usually those sick enough to be in the ICU, and it’s a troponin elevation only. It’s very different than the myocarditis that we’re seeing with the vaccines, which we’ll get to. The myocarditis and COVID-19 is mild, it’s inconsequential, and it’s largely a troponin elevation. I don’t want anybody to think that the myocarditis of the natural infection is anything like what we’re seeing with the vaccines.
 
-**简评：**
+现在，自然感染发生的心肌炎通常发生于那些病得足以进入重症监护室的人身上，而且它只是肌钙蛋白升高。这与我们看到的疫苗引起的心肌炎非常不同，我们等会儿会讨论这个问题。心肌炎和COVID-19是温和的，是不重要的，而且主要原因是肌钙蛋白升高。我不希望任何人认为自然感染的心肌炎与疫苗引发的心肌炎是一样的。
 
-中共是一个流氓犯罪集团，流氓没有法律道德底线。了解这一点可以帮助了解中共一贯的行事风格。希望中共一贯的行事风格不是让你麻木，而是让你清醒：中共无论编造什么样的谎言，无论怎么粉饰太平，都是为了延续它的存在，而这个存在必然以中国人的血为代价。
+Exactly. The vaccine produces the inflammatory type process is on the heart.
 
-新闻链接：[Xi Jinping Ignores Brutal Lockdowns, Coronavirus Failure in New Year’s Address](https://www.breitbart.com/asia/2021/12/31/xi-jinping-ignores-brutal-lockdowns-coronavirus-failure-in-new-years-address/)
+正是如此。疫苗所导致的炎症是发生在心脏中的。
 
-*翻译/简评: 乡间小路*
+And the vaccine is directly there. Now there’s preclinical studies suggesting the lipid nanoparticles actually go right into the heart. The heart expresses the spike protein, the body attacks the heart. There are dramatic EKG changes. The troponin, the blood test for heart injury with the vaccine myocarditis is 10 to 100 fold higher than the troponin we see with a natural infection. It’s a totally different syndrome. About what when the kids get myocarditis after the vaccine 90% have to be hospitalized. They have dramatic EKG changes chest pain, early heart failure, they need echocardiograms, if the ejection fraction is low, they need medications to prevent heart failure. So vaccine induced myocarditis is a big deal. And in children, it’s way more serious and more prominent than a post COVID myocarditis.
 
-*校对：clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+而疫苗就直接作用于心脏。现在有临床前研究表明，脂质纳米颗粒实际上直接进入了心脏。心脏表达了刺突蛋白，身体就会攻击心脏。心电图发生了巨大的变化。肌钙蛋白，即疫苗性心肌炎的心脏损伤的血液测试，比我们在自然感染中看到的肌钙蛋白高10至100倍。这是一种完全不同的综合症。当孩子们在接种疫苗后得了心肌炎时，90%的人必须住院治疗。他们的心电图发生了巨大的变化，胸痛，早期心力衰竭，他们需要做超声心动图，如果射血分数很低，他们需要用药物来预防心力衰竭。因此，疫苗引发的心肌炎是一个大问题。而在儿童中，它比中共病毒感染后的心肌炎更严重、更突出。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+视频链接：[Dr. McCullough explains how myocarditis differs between natural infection and vaccine](https://www.bitchute.com/video/opHHs9lrpcIB/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
 

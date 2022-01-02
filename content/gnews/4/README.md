@@ -2,49 +2,51 @@
 ---
 
 
-## 自然感染与中共病毒疫苗导致的心肌炎有何不同？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1813910/)
+## 大直播概要——2022年是共产党的大灾之年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814042/)
 
-#### 翻译：Fulin
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM-1.png)
+**整理：**顺其自然
+**编辑：**翼族
 
-#### 校对：精靈藍
+2022年的第一天，郭文贵先生与100多位战友进行了12个小时的新年大直播，以下为概要内容：
 
-#### 编辑：枳实
+1）彭丽媛即将登场。习近平听了严格严肃管理已经失控的中国流行音乐市场的报告，拍案大起、惊叹万分、当面请教。中共国的歌星都很肮脏，都是为了要碗饭的选择。
 
-#### 字幕/剪辑：向上James
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图173.png)
-字幕文本（英汉对照）：
+2）共产主义最先研究，弄清楚了人的社会关系，就是绝大多数的人是自私的、懦弱的，而这是最好利用的。共产主义让人民少接触真正的教育，拼命辛苦工作，而不要有时间思考，让你无知。共产主义就是让你变得无知，直到变成动物，最后变成家天下，实现独裁统治。
 
-Dr. McCullough explains how myocarditis differs between natural infection and vaccine.
+3）2022年是共产党的大灾之年；20大的政治斗争会充满血腥和屠杀；疫苗灾难会比黑夜还要黑。2022年情况还会持续恶化下去，很多地方会爆发西安这样的疫情，也还会有新病毒或新变种的出现。尽可能远离一二线城市，到能自给自足的、人口密度相对少的农村地区去，中国最安全的是你的老家农村。
 
-美国顶尖心脏医生—彼得·麦卡洛博士（Dr. Peter McCullough）：中共病毒自然感染与中共病毒疫苗导致的心肌炎有何不同？
+有房子的房奴会被伤害。郑州淹死的都是有车的。要和农场保持联系，虽然不可能满足战友的全部要求，但是会尽力救战友。
 
-Now the myocarditis that occurs with a natural infection is usually those sick enough to be in the ICU, and it’s a troponin elevation only. It’s very different than the myocarditis that we’re seeing with the vaccines, which we’ll get to. The myocarditis and COVID-19 is mild, it’s inconsequential, and it’s largely a troponin elevation. I don’t want anybody to think that the myocarditis of the natural infection is anything like what we’re seeing with the vaccines.
+4）拜登政府会和中共有很多勾兑，但是一定会坚定的灭共。中共国目前的很多反应，都和美国灭共的决定有关系。
 
-现在，自然感染发生的心肌炎通常发生于那些病得足以进入重症监护室的人身上，而且它只是肌钙蛋白升高。这与我们看到的疫苗引起的心肌炎非常不同，我们等会儿会讨论这个问题。心肌炎和COVID-19是温和的，是不重要的，而且主要原因是肌钙蛋白升高。我不希望任何人认为自然感染的心肌炎与疫苗引发的心肌炎是一样的。
+5）共产党每一分钟都活在绝望和恐惧之中。共产党驻美大使的采访，媒体居然没有报道，共产党第一次被噤声。
 
-Exactly. The vaccine produces the inflammatory type process is on the heart.
+中共驻美大使秦刚12月20日接受美国多家主流媒体联合采访，但至今没有一家媒体刊发相关新闻和报导，只有墙内报道，秦刚称：“对有的国家动辄颐指气使诽谤并干涉中国内政，损害中国利益的不友善言行，我们必须站起来说不，我们并不是主动出击，而是做出回击。中国外交官不是战狼，而是与狼共舞”。
 
-正是如此。疫苗所导致的炎症是发生在心脏中的。
+6）GETTR有3500万的下载量，被黑掉2000万数据，是唯一99.9999%的纯净媒体。美国对Facebook、twitter会有一系列的法案推出，社交媒体的盈利模式会彻底改变。GTV、GNEWS会重新投胎，重生。喜币价格现在已经打不下去，换手率在50%以上。喜币现在的价格是34.8美元。比特币一定会消失。明年世界还要印发400万亿美元，Hpay马上就上线，时机刚刚好。喜联储每年法定增发10亿币。可以用喜币抵押，继续增持2022年的喜币。
 
-And the vaccine is directly there. Now there’s preclinical studies suggesting the lipid nanoparticles actually go right into the heart. The heart expresses the spike protein, the body attacks the heart. There are dramatic EKG changes. The troponin, the blood test for heart injury with the vaccine myocarditis is 10 to 100 fold higher than the troponin we see with a natural infection. It’s a totally different syndrome. About what when the kids get myocarditis after the vaccine 90% have to be hospitalized. They have dramatic EKG changes chest pain, early heart failure, they need echocardiograms, if the ejection fraction is low, they need medications to prevent heart failure. So vaccine induced myocarditis is a big deal. And in children, it’s way more serious and more prominent than a post COVID myocarditis.
+7）英国和德国平均寿命68，而到了比利时\意大利平均寿命就78岁了。因为英国和德国人喜欢喝啤酒，吃动物油脂，性生活质量不高。
 
-而疫苗就直接作用于心脏。现在有临床前研究表明，脂质纳米颗粒实际上直接进入了心脏。心脏表达了刺突蛋白，身体就会攻击心脏。心电图发生了巨大的变化。肌钙蛋白，即疫苗性心肌炎的心脏损伤的血液测试，比我们在自然感染中看到的肌钙蛋白高10至100倍。这是一种完全不同的综合症。当孩子们在接种疫苗后得了心肌炎时，90%的人必须住院治疗。他们的心电图发生了巨大的变化，胸痛，早期心力衰竭，他们需要做超声心动图，如果射血分数很低，他们需要用药物来预防心力衰竭。因此，疫苗引发的心肌炎是一个大问题。而在儿童中，它比中共病毒感染后的心肌炎更严重、更突出。
+8）中共的红旗最怕的就是水。共产党最害怕虎年。每年的元旦，共产党高官都要到雍和宫\天坛祭拜。历届虎年发生的事件：
+1914年，甲寅虎年，第一次世界大战;
+1926年，丙寅虎年，蒋介石在广州制造“中山舰事件〞;
+1938年，戊寅虎年，八年抗战;
+1950年，庚寅虎年，抗美援朝战争;
+1962年，王寅虎年，三年自然灾害;
+1974年，甲寅虎年，批林批孔;
+1986年，丙寅虎年，日币升值，世界股灾;
+1998年，戊寅虎年，东南亚金融风暴;
+2022年，王寅虎年，会发生什么呢？
 
+*发布：翼族*
 
-
-视频链接：[Dr. McCullough explains how myocarditis differs between natural infection and vaccine](https://www.bitchute.com/video/opHHs9lrpcIB/)
-
-发布：枳实
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

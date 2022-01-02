@@ -2,103 +2,53 @@
 ---
 
 
-## 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813825/)
+## 2022年1月1日郭先生大直播文字同步精要
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1813872/)
 
-[https://gtv.org/video/id=61d07c29fb16a93456c037ec](https://gtv.org/video/id=61d07c29fb16a93456c037ec)
+戰友們，新年快樂！今天是元旦，郭先生和戰友們繼續“文貴大直播”元旦特別節目：正道至善、除惡建邦！主要內容包括：
 
-**郭文贵**
-**Miles Guo**
+1、戰友因滅共走在一起，因新中國聯邦走在一起，因新中國聯邦宣言走在一起。如果忘掉誓言，就是離開爆料革命的時刻。
+2、裕達第一個項目賣了3個億，郭先生買了第一件黃鱷魚皮夾克。如今GFashion可以生產，而且戰友都買的起。
+3、昨天七嫂第一次全程看七哥直播&lt;&lt;我是音雄&gt;&gt;。歌者都是個人，但節目是新中國聯邦人的團隊行為。音樂是人與人最重要的溝通方式，是精神核武器。音樂一旦形成文化，對社會影響是巨大的。共產黨抄襲了俄羅斯的各種文化，包括音樂。
+4、彭麗媛即將登場。習近平聽了《嚴格嚴肅管理已經失控的中國流行音樂市場》的報告，拍案大起，驚嘆萬分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.jpg)
+5、中共國的歌星都很骯臟。德國的音樂家瓦格納，知道自己是音樂家，但是幫了壞人殺人，應該下地獄。中共國的所謂音樂家，不知道自己幫著中共殺人，還在繼續助紂為虐。這是本質的差別。
+6、2022年注定是艱難的一年。鐵血組，需要無我、善待戰友，要讓共產黨聽到鐵血組這三個字就尿褲子，滅共事業要進入新階段！
+7、因為地理位置的重要性，今年對亞洲的農場是更大的考驗。戰友的純潔性，亞洲農場聯合作戰，聯合滅共很重要。亞洲的音樂創作應該更有機會，日本是亞洲的音樂基地。日本有Jip hop、禦神樂、民神樂，音樂很多的層次。沒有日本的音樂，就沒有鄧麗君，沒有台灣和香港的音樂。韓國的音樂也來自日本。生活中的舞蹈，日本人可以跳出歐美人跳不出的舞步，絕對第一。期待2022年亞洲要出大動靜。
+8、日本的Hpay、數字貨幣市場，是美國之外最重要的陣地，其喜幣的實施是戰略性的。
 
-咱们很多人来看这个问题时候，对阿富汗人讲是个灾难
-When many of us look at this issue that it’s a disaster for the Afghans
+9、社會關系第一步就是要懂得心理學。共產主義最先弄清楚了人的社會關系，就是絕大多數人是自私懦弱的，而這是最好被利用的。共產主義讓人民少接觸真正的教育，只拼命辛苦工作，而沒有時間思考，讓你變得無知直到變成動物，最後變成家天下，實現獨裁統治。
+10、戰友們讀懂《新中國聯邦宣言》，答案都在里面。
+11、拜登政府會和中共有很多勾兌，但是一定堅定滅共。12、英國是世界音樂的聖地，是搖滾的誕生地，汽車搖滾、車庫搖滾、地下的男女搖滾、吸毒搖滾，披頭士樂隊。西方引領的基督文明，把人類從面朝黃土背朝天，變成了仰視面對文明。歐洲是西方文明的搖籃，美國、加拿大都是分支。2022年歐洲戰友繼續創造滅共神奇。
+13、楊貝貝的虛假采訪，共產黨的假充分暴露共產黨每一分鐘都活在絕望和恐懼之中。共產黨駐美大使的采訪，媒體居然沒有報道，共產黨第一次被噤聲。這是逆增上緣，這就是風水，就是緣分。我們沒有掛著獅子、鷹，只有蝴蝶。我們就是蝴蝶的力量，是宇宙中公認的和平的美麗的力量，蝴蝶效應。
+14、3500萬GETTR的下載量，被黑掉2000萬數據，唯一99.9999%的純凈媒體。對Facebook、Twitter會有一系列的法案推出，社交媒體的盈利模式將徹底改變。GTV、GNEWS會重生。喜幣價格打不下去，比特幣一定消失。明年世界還要印發400萬億美元，而Hpay馬上上線，時機剛剛好。
+15、2022年情況還會持續惡化，很多地方會爆發“西安疫情”，也還會有新病毒或新變種新冠出現。遠離一二線城市，到能自給自足，人口密度相對少的農村地區是首選。 戰友們不僅要自己做好一定的準備，還需要和農場保持緊密聯系。新中國聯邦不會放棄任何一位戰友。
+16、“水太多”，今天成了墻內屏蔽的敏感詞。郝海東大哥，對共匪殺傷力驚人。
+17、本來正常的生理反應，被共產黨屏蔽就不正常了。張高麗認為自己是宇宙，彭帥是沙。老雜毛們一滴水都沒有，吃了偉哥，精神變態。共產黨為了國慶下雨，往天上打炮彈，化學污染。中國的老百姓，失去了兩情相悅的能力。共產黨只讓你上面流眼淚，讓你失去性最基本的能力，這些都是違背天理，泯滅人性。
+18、民不聊生，水多水少，是中共國出生率不足的原因。1胎和3胎的變化，說明共產黨讓中國男人、女人都沒有水的根本變化。中共國醫生職業的孩子生育率
+最低，一個救死扶傷的人群成了被污染最嚴重的群體。
+19、今年是水年，天水之年、壬寅之年，水多水少是精神決定的。醫生是共產黨這個邪惡體制殘害最嚴重的群體。有良知的醫生都生活在貧困之中，而且備受心理煎熬。住院女醫生普遍月經不規律，普遍超時值班。
+20、市場上還有幾千萬個喜幣隨時可以出手，喜幣上市到現在，換手率超過了55%。長島哥用幾百萬的資金買入喜幣，驗證了這個級別的資金是無法撼動市場的。喜幣價格的上漲，必須有巨額的資金支持，這是常識。
+21、水談完之後，郭先生和大家談：風！瘋言瘋語，就是你不了解、不健康、無知、不自信。風水，是自然現象表現的結果。世界是由陽光、水、空氣組成。精氣神就是我們的內心世界。風帶著大自然的信息，人類最重要的元素。違背了自然的東西就會中風，就會瘋狂。風水是你的德行，和大自然相處的地位；風水即知識，提高自身的層次很重要。
+22、中共的紅旗最怕的就是水。甲子年，虎年，共產黨最害怕。每年的元旦，共產黨高官都要到雍和宮，天壇祭拜。
+23、五台山大師告訴郭先生：色彩就是你的運氣。你走過的路，穿過的衣服就是你的命。從此郭先生重新重視服飾。
 
-对待很多人道上绝对是灾难，我有很多朋友，你也知道我一直关注这个事情
-It is definitely a disaster for humanity, I have many friends there and you know that I have been following this matter
+24、中國的筷子是陰陽，在五個手指頭里，金木水火土，就是中國文明。西方人的刀叉是0和1，是邏輯。中國人口炮，行動的矮子；西方人行動的大師，精神上未必有多高。
+25、2022年是共產黨的大災之年。二十大，中國政治會充滿血腥和屠殺；疫苗災難會比黑夜還要黑。2022年是爆料革命的收割年，充滿神奇力量的一年。
+26、喜聯儲每年法定增發10億幣。可以用喜幣抵押，繼續增持2022年的喜幣。
+27、2022年第一場大直播，郭先生和100多位戰友連線。爆料革命從蝴蝶翅膀，變成了拯救全人類的力量。100多位戰友代表著身後的億萬戰友，每個戰友都是蝴蝶翅膀，這是我們所有人共同呼吸、共同行動的結果。
+28、約瑟戰友：50歲才明白人生要重新活過，要為自己活一次。有幸在重生6歲的時候遇到了爆料革命。感恩翻墻不易的墻內戰友，感謝默默無聞獻奉的戰友！（郭先生聽後流淚）
+29、我們是人不是神，郭先生沒有見過立地成佛的人。但我們可以在修行中成佛，修行中超越自己、完善自己。在日積月累的過程中，傳遞希望。這就是火的力量，共同的信仰，行動的結果。
+30、良知和正義會把很多人連在一起，火是我們的希望，是驅除邪惡的利器。
+31、木能生火，沒有水，沒有土哪來的木？中共國山川皆毀，人和木都無法生存。中共讓中國的金木水火土失去了輪回，把別人的信任和善良當成愚蠢。假是我們一切邪惡的根源。自私、懦弱、貪婪，沒有勇氣，變成了人類的另類、怪胎。這就造成了每天一切都在懷疑中，戰友以真相待，以善相待，獻奉。
+32、中國人過去把白色黑色都定為死亡，紅色定位吉祥。中國人以前不用藍，人死後用藍色。水和藍有很大的關系，春秋戰國到夏文化，藍色幾乎是中國人的忌諱，但事實上中國就缺藍，藍色克共產黨。藍色就是海洋，就是星空。金就是我們的金融系統，五行金為勝。當我們懂得藍色和金色，就知道上天給我們的神秘力量。
+33、人與人最重要的就是愛，否則就是動物。文曉沒名沒權沒錢，新中國聯邦不惜一切代價救出，這就是戰友之間的愛。博愛是基督文明最偉大的，還有誠實、平等。生存的本能和愛把戰友聯系在一起。共產黨最大的毒就是不相信人、不愛人，甚至不愛自己。要相信輪回報應，我們都是有緣分的。因為戰友，七哥和每一個戰友都過得不一樣。土就是包容，用公平的心看待這一切，就是愛自己。
+34、今年是5000年一遇的天地大轉換，大師給皇帝看了風水，共產黨一定會滅，人不滅它，天滅！
 
-但作为美国来讲，说实在话一定要看到
-But to be honest as the United States is concerned, we must see
+以上大直播文字精要，由新西蘭農場焦點組提供。最終內容請以郭先生大直播視頻為準。
 
-阿富汗将近从过去的1000多万人到2000万人口，到最后美国在那儿驻军
-Afghanistan has grown from a population of more than 10 million in the past to a population of 20 million, to the end where the United States stationed troops there
-
-每年花了几千亿进去，到变成了将近5000万人口，人口增长
-that US has spent hundreds of billions dollars in there every year, and it has become a population of nearly 50 million, the population has grown
-
-塔利班才多少人，号称所谓80万大军，实际上就30几万人
-How many are the Taliban? The so-called 800,000 army is actually only 300,000 people
-
-一个5000万人的国家，被30万人给蹂躏着要饿死一半人
-A country of 50 million people are ravaged by 300,000 people and half of them will starve to death
-
-就像我们中国人，14亿人被所谓的3000多个人民代表和中央政治局被七个常委就给全国人民
-Just like us Chinese people, 1.4 billion people are represented by the so-called more than 3000 people’s representatives and the whole nation is represented by the Political Bureau of the CPC Central Committee by seven Standing Com-mittees
-
-宇宙无限大，地球是一粒沙，全给强奸了，一睡就睡了70年
-The universe is infinitely large, and the earth is a grain of sand, the whole country’s people are all been raped by CCP, and has been ravaged for 70 years
-
-同样的悲哀的结果，凭啥美国人要让你阿富汗强大我拿钱
-The same sad situation, why the Americans want spend money to make Af-ghanistan（China） strong
-
-美国再在阿富汗待下去，你知道什么结果，你觉得会有什么结果
-If the U.S. stays in Afghanistan, you know what the outcome will be, what do you think will be the outcome？
-
-从这个道德上讲，绝对是不对的，从任何角度讲
-From this moral point of view, it is absolutely wrong about the withdrawal, from any other point of view
-
-从阿富汗撤出，美国撤出是符合美国利益
-the U.S. withdrawal from Afghanistan is in the interests of the United States
-
-更重要的事情美国除了经济问题，除了战略问题，美国是真的再往下弄下去
-The more important thing is that in addition to economic issues and strategic issues, if the United States is really staying further
-
-美国知道在阿富汗这个地方，美国会深陷其中，而且美国绝对是就是20年的计划
-The United States knows that in Afghanistan, the United States will be stuck in it, and the United States is definitely only has a 20-year plan
-
-就是要对付，要把伊朗、中国共产党这个彻底改掉
-It is to completely get rid of Iran and the Chinese Communist Party
-
-把整个中东的整个局势彻底改变，它没有那么多精力和金钱，不可能的
-Completely change the entire situation in the entire Middle East, it doesn’t have so much energy and money, it’s impossible
-
-美国这已经搞了30年就准备好打赢绝对打赢一场战争，准备同时打两场战争
-The United States has been doing this for 30 years and is ready to win a war, and is ready to fight two wars at the same time
-
-在阿富汗你就同时在一场战争中，你怎么可能
-In Afghanistan you are in a war at the same time, how could you do it?
-
-你5000万多阿富汗人，干不掉30万多这小块, 加一起不过10万人的那些所谓的人
-More than 50 million Afghans can’t get rid of the small piece of more than 300,000 and the so-called Taliban who are less than 100,000
-
-都不会打的，吃都能把它吃了，甭说打了
-Afghans don’t need to fight, they can eat them alive, not even mention to fight
-
-所以回答这个问题很简单，美国的安全和战略经济的基本需要
-So the answer to this question is very simple, the basic needs of American secu-rity and strategic economy
-
-和阿富汗现在即将触发的巨大的问题
-and the huge problems that Afghanistan is about to trigger
-
-**原视频链接**: [https://gettr.com/post/pl3i1mb248](https://gettr.com/post/pl3i1mb248)
-
-Date: 12/31/2021
-原视频标题: 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-The withdrawal of troops from Afghanistan is in the interests of the United States and is also conducive to dealing with evil forces such as the CCP
-原视频日期：2021/12/29
-原视频链接 https://gettr.com/post/pl3i1mb248
-任务编号：KC385（3375）
-视频时间段 : 0:00-2:14
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文案提供：夢田
+上傳：米線
 
  
 
