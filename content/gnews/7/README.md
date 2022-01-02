@@ -2,30 +2,46 @@
 ---
 
 
-## 加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1814444/)
+## 管理时间是聊天时用感情大事决定上要想好要简单直接快
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814616/)
 
-#### 翻译/撰稿：zzballack
+另外一个为什么和怎么管好自己呢？管好时间，什么样时间？就像我手机，你打开我手机那个WhatsApp，就“嚓嚓嚓嚓”，你知道你七哥牛在哪儿你知道吗？我手机从来不需要任何人帮我，都是我自己的，这就叫与时俱进，是吧？我这边手拿着手机，我看着战友小王子 “啊郭先生”什么什么，我就知道他要说啥，我就基本能判断小王子说啥。我的答复就是答案Yes、No。是的我回是的，No我就回No。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-1.jpg)图片来源：每日邮报
-据《每日曝光》（Daily Expose）2021年12月31日报道，在南加州的医院，因新冠疫苗导致的病患人数越来越多。少数勇敢的护士挺身而出，讲述了他们所目睹的情况。
+然后我回复一个“欢喜”、“拜托了”啊。然后呢，“生气”，还有“不可思议”，我就这样，我能把很多人几乎全能回复80%、90%信息都能回，因为所有人问的问题基本就是仨答案，是吧。然后你发现这是要回复，马上按住键啊。我这边照样看着我的，我就知道来回复简单的啊。
 
-在位于洛杉矶北部的本图拉县 (Ventura County)，当地医院“不明原因”的心脏疾病、中风和血栓病例正在激增，但许多医生拒绝认为这些疾病与新冠疫苗有关。
+小飞侠，你要抛弃掉小飞象是不好的，我不可能告诉你说把小飞象给踹了吧，不可能，“不行”，是吧，就完了。就你脑子的反应实际上答案就在你心里边儿，很多事情，答案就那么一两个不超过仨，你非要在第4个探讨，那你就完蛋了。
 
-在本图拉县一家重症监护室工作的护士萨姆（Sam）决定向媒体《Conejo Guardian》说出他对此事的担忧。他说：“我厌倦了所有正在发生的事，因为医疗机构继续拒绝承认新冠疫苗的弊远大于利。没有人对此提出质疑，这太疯狂了。在接种新冠疫苗后，患有严重健康问题的年轻人明显增多。已经有很多年轻人前来就诊，我们看到了很多中风和心脏病患者。在一个案例中，一名38岁妇女的大脑出现了闭塞，血液流动受阻。我们知道新冠疫苗会导致血栓，她接种了两剂疫苗，但没有任何医生将其中风症状与疫苗联系起来！他们只说这症状无法解释，这真的很荒唐！另一个例子中，一位以前没有心脏病史的63岁妇女突然患上了心脏病。检测显示她的冠状动脉是清晰的，然而她刚刚接种了莫德纳的新冠疫苗。一位医生实际上对新冠疫苗提出了质疑，但他们没有在病历中提及这一点，因为无法证明。”
+王雁平就在一个问题上，用我老家的骂人的话说，“咬着屎橛子打滴溜不松手”那种人，我老家骂人最惨的，说你这个人的“脑袋咬着屎橛子打滴溜不松口”就是王雁平，就一件事儿唠叨来唠叨来转来转去的，车轱辘话说，你说什么说呀？答案就是Yes、 No。这个时候你说就完了，如果再接下来就是什么，你笑什么呀？是不是，她就是这样的。你接下来再说什么？就是最多你告诉他说我为什么说YES、NO就完了，越是大事儿，答案越简单。越是大事，你说得要简单。
 
-萨姆补充说，该地区所有的医院都目睹了心肌炎病例的大幅飙升。新冠疫苗的副作用包括心肌炎，这一点已广为人知并被广泛报道。“但是每个人都想淡化这一问题，医生们不愿意质疑它和对此发出警告，甚至不愿讨论它，他们表现得好像无法找到病症原因，认为其是自发的。”
+像咱这今天直播，咱大家就用时间聊的时候，这就是你就完全是感情，在大事决定上一定要想好，简单、直接、快。这是一个跟你说管理好时间。
 
-另一位在重症监护室工作的护士达娜（Dana）说：“我所在单位从未如此繁忙，但没有一个病人是新冠患者。我们通常不会看到同时出现这么多的中风、动脉瘤（aneurysms）和心脏病患者。一般情况下，我们每年会看到六到十个急性主动脉夹层 (aortic dissection）病例，但在上个月我们就看到了六个，这很疯狂。这些疾病的死亡率非常高。”
+字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
 
-与萨姆的医院一样，达纳所在医院的医生们甚至不会考虑新冠疫苗导致了心脏相关疾病患者突然增加。相反，这些“卫生专家”将其归咎于“假期”等因素。
+编辑整理：喜马拉雅的肉夹馍；
 
-护士们说，这些病人中的大多数已完全接种了新冠疫苗。
+字幕文件制作：小满；
 
-新闻来源：
+视频制作及上传：Cindy；
 
-[Nurses Blow Whistle on Staggering Number of Heart Problems and Strokes in The Fully Vaccinated](https://dailyexpose.uk/2021/12/31/nurses-blow-whistle-on-staggering-number-of-heart-problems-and-strokes-in-the-fully-vaccinated/)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

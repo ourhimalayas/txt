@@ -2,29 +2,32 @@
 ---
 
 
-## 西安封城，运送物资靠人肉接力遭网友炮轰
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1814159/)
+## 《我是音雄》第二季2021年度总决赛完美收官
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814257/)
 
-![西安封城讓民眾叫苦連天直呼快斷糧，當地使用人肉接力方式運送食材讓中國網友罵翻，（圖取自微博）](https://img.ltn.com.tw/Upload/news/600/2022/01/01/phpNHa86D.jpg)*图片来自微博*
-据自由时报2022年1月1日报道，中共国陕西省西安市因疫苗灾难导致封城后，不少人微博发文称几乎弹尽粮绝。“西安直播”博主贴出一段“人肉接力送菜”的影片，显示大量堆积在地上的物资由穿着防护服的工作人员手动接力传送。强调当地政府正在运送物资。影片一出，遭中共国网友群嘲和炮轰。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-4.png)
+Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
 
-光看中共国媒体，整个世界水深火热，只有中共国风景独好。只是，在人民危难之时，中共政府救济的物资都在新闻里，永远送不到普通百姓的餐桌上。跟着共产党，走进火葬场，任何相信党会派人来救你的民众，都是自己把刀主动递给杀人凶手，还指望危难时凶手能来解救你。怎么可能救？凶手就是杀人的。中共七十年不改杀人的本性，西安人道灾难，中共当局不会想着救济，而是希望民众多死、早死、快死。所以，物资永远在路上，影片只是为作秀。
+《我是音雄》是由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目，迄今已进行了两季，挖掘出无数各个层面的人才，成为新中国联邦的中坚力量。今晚郭先生还给“十大音雄”颁发了奖品之外的“惊喜”，即郭先生亲笔签名、歃（sha，四声）血为盟的《新中国联邦宣言》，作为对杰出战友的表彰与鼓励，也为2021年划下了一个完美的句号。
 
-新闻参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3787274](https://news.ltn.com.tw/news/world/breakingnews/3787274)
+新闻链接：[《我是音雄》第二季总决赛暨跨年颁奖典礼](https://gtv.org/video/id=61cf9aa8ecc0b216cbb2da80)
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-* * *
+总编/编辑:飞虹
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校正/发稿：浪迹天涯
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

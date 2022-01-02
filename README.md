@@ -15,121 +15,121 @@
 
 ---
 
-### [永远别从嘴里说出我害羞，不要失礼，永远不要失去自信](/content/gnews/1/README.md)
+### [女人爱英雄爱强人，女人不爱窝囊废、啰嗦鬼、LOSER](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [可以相信爱情不要依靠爱情,爱情不如偷情,偷情不如偷不到](/content/gnews/2/README.md)
+### [德国95%以上Omicron变体报告病例是完全接种者](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [对于生命中的人际关系清单每天都要做减法而不是做加法](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦音乐人不用吸毒不用卖身不用犯法和出卖尊严](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [得罪彭丽媛和宋祖英被曾庆淮摆平的王力宏因曾庆淮被灭](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [邓丽君高胜美王力宏这些港台歌星是富豪玩够了抛到社会](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共西安宣传翻车，低智商煽情让人跌破眼镜](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本将协助比尔・盖茨在美国建造实验性核反应堆](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党养成龙刘德华张学友王力宏这些巨人时一定留把柄](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [CCCA报告揭示辉瑞公司疫苗试验数据造假并会导致心肌炎](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [我们大直播的意义](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [健身 健心 控欲](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [强推疫苗结出恶果，墨尔本男子当街自焚](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [在家也能“行万里路”](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [什么叫哲学？](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [俄罗斯囤积黄金和外汇，新兴市场引领黄金购买热潮](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [澳洲为疫苗副作用提供约60万澳元的赔偿，民众正在觉醒](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国政府收集脸书和推特信息的行动已扩大到海外](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [VICE采访事件透露的中共蓄意制造排华和媒体操控（一）](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [最新发布的2021年全球记者被害人数为何未含中共国数字?](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：美媒揭露中国网监黑手伸向西方社交网络](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [币圈新闻动态：喜币（HCN）价格目前在34.927 HDO](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-9](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [留下旧年最后的一天](/content/gnews/27/README.md)
+### [浅谈三只松鼠聘用“眯眯眼”模特被指辱华](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [西安封城，运送物资靠人肉接力遭网友炮轰](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [阅尽人间繁华历尽世间万物永远无法与井底之蛙同日而语](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [强迫孩子戴口罩会让其大脑受损、智商下降](/content/gnews/29/README.md)
+### [与人打交道最核心的东西是要取舍，今日事一定要今日毕](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [管理时间是聊天时用感情大事决定上要想好要简单直接快](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中朝同意本月内恢复陆路贸易](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】韩国巨头关闭超80%门店！外资化妆品牌撤离潮或将到来](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国机场继续陷入混乱，超过2600个航班被取消](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年澳洲股市总结](/content/gnews/11/README.md)
+ ` 澳喜农场`
+
+### [唤不醒中共统治下的‘愚民’](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [管理人际关系是你最牛的，是打开成功之门的第一把钥匙](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [绝招来自“杀手锏”的“反义词”——下篇](/content/gnews/14/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [永远世界上绝大多数人就是身边守着宝，你不知道谁叫宝](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [永远别从嘴里说出我害羞，不要失礼，永远不要失去自信](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [串珠512:盘古裕达变火龙火佛手将见证外星人存在](/content/gnews/17/README.md)
+ ` 郭爆料串珠`
+
+### [美国日感染中共病毒变体奥米炕病例即将达到高峰](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以色列不需要美国的许可就可以打击伊朗](/content/gnews/30/README.md)
+### [可以相信爱情不要依靠爱情,爱情不如偷情,偷情不如偷不到](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [加州护士吹哨说接种者中患上心脏疾病和中风的数量惊人](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本将协助比尔・盖茨在美国建造实验性核反应堆](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|《告别2021》](/content/gnews/31/README.md)
+### [CCCA报告揭示辉瑞公司疫苗试验数据造假并会导致心肌炎](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [强推疫苗结出恶果，墨尔本男子当街自焚](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄罗斯囤积黄金和外汇，新兴市场引领黄金购买热潮](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [澳洲为疫苗副作用提供约60万澳元的赔偿，民众正在觉醒](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [VICE采访事件透露的中共蓄意制造排华和媒体操控（一）](/content/gnews/29/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [每日快报：美媒揭露中国网监黑手伸向西方社交网络](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [强迫孩子戴口罩会让其大脑受损、智商下降](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|《告别2021》](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|MILES GUO歌声 CASSANDRA预言](/content/gnews/32/README.md)
+### [有声|MILES GUO歌声 CASSANDRA预言](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [我的新年愿望](/content/gnews/33/README.md)
+### [我的新年愿望](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
 
-### [歌曲| 病毒和疫苗的解药](/content/gnews/34/README.md)
+### [歌曲| 病毒和疫苗的解药](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [1/1/2022 文贵直播：爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量](/content/gnews/35/README.md)
+### [1/1/2022 文贵直播：爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中](/content/gnews/36/README.md)
+### [1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [自然感染与中共病毒疫苗导致的心肌炎有何不同？](/content/gnews/37/README.md)
+### [自然感染与中共病毒疫苗导致的心肌炎有何不同？](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [短视频：大多数住院病人都接种了疫苗，而且病情严重](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [议员：“剥夺自由选择的权利就等于剥夺了民主。”](/content/gnews/39/README.md)
+### [短视频：大多数住院病人都接种了疫苗，而且病情严重](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [2022年1月1日郭先生大直播文字同步精要](/content/gnews/40/README.md)
