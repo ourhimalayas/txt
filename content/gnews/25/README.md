@@ -2,39 +2,55 @@
 ---
 
 
-## 放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1814047/)
+## 我的新年愿望
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1814066/)
 
-作者：纽约香草山教育部 – Xiaojiucaia
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一位匿名放射科医生报告了2021年一个令人震惊的观察结果。这位放射科医生报告说中共病毒疫苗接种后不明原因的腺病增加了360倍。腺病是肿胀的腺体或淋巴结肿大（淋巴结病）的医学术语。腺病不是一种特定的疾病，但它是某些潜在疾病的重要症状。
+**作者**：香草山教育部-加州太阳
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-54.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1.jpg)
 
-这位放射科医生不愿透露姓名，因为他担心他会因为报告这些与疫苗相关的观察结果而失去工作。在他的实验室，放射科医生每六个月会看到大约一例不明原因的淋巴结肿大。然而，在中共病毒疫苗推出后，放射科医生每天会看到两到三例不明原因的腺病！病人总数量增加了360倍。这是极其罕见的。
 
-人体大约有六百个淋巴结。这些淋巴结携带淋巴液，是人体“免疫系统”的组成部分。通过身体组织液首先通过淋巴结过滤。淋巴系统负责提供白细胞以帮助抵抗传染性细菌和病毒。如果淋巴结和腺体肿胀，通常表明身体正在抵抗感染，如普通感冒。淋巴结肿大常伴有流鼻涕、喉咙痛、耳痛、发烧和疲倦。肿胀也可能表明更严重的感染，如链球菌、莱姆病或艾滋病毒。腺病也可以表明癌症的存在。最常见的包括淋巴瘤，它是淋巴系统或淋巴结的癌症。
 
-由此可见，疫苗的危害已经浮出水面，随着时间的推进，我们会看到越来越多的癌症病人，越来越多的死亡。只有爆料革命有勇气敢于站出来揭露疫苗真相，拯救人类。
 
-新闻链接：[https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html](https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+这个视频，真的让我愤怒，心情久久不能平复。
 
-**校对/发稿：童谣**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/out.jpg)
+
+穿着粉红色小裙子、扎着两只美丽小辨子的小女孩看上去和我的女儿同龄，小课桌后弯着小小的身躯，两只小小的手紧紧地握着桌沿，像一只受到惊怕的小花猫。恍惚的眼睛在恐惧中寻找着爷爷奶奶爸爸妈妈的呵护，可周边却只有一群被挑唆的“小战狼”围攻。本应充满爱、启蒙心灵的乐园却被浓浓的愤怒取代，没有欢乐、没有笑容，只有迷惑和恐惧……本应给孩童们带来快乐，传授知识的老师，却毫不留情地训斥、恶言咒骂着受伤的小女孩。不！她不是老师！她是猪！不！她猪都不是！发生什么啦？？？社会变的如此邪恶。
+
+我怒了，真的愤怒了！新年的钟声刚刚响起，如果问我2022新年愿望是什么？那么我会毫不犹豫地告诉你：第一时间想办法把这头“母猪”卖到非洲，让非洲黑兄弟去R她。或托托教育部的关系，将这母猪送到山东大学做陪读，是的，做黑人留学生的陪读！
+
+同胞们，战友们，新的一年里，我们要紧紧跟随着文贵先生的步伐，铲除中南坑老杂毛！铲除邪恶的共产主义！灭共是正义的必需！
+
+我要把欢乐的祝福送给这个和我女儿同龄的扎着两只小辫子的可爱小女孩。
+
+消息链接：
+
+[https://gettr.com/post/pl7l86a76b](https://gettr.com/post/pl7l86a76b)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
+
+***编辑/校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

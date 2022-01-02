@@ -2,45 +2,19 @@
 ---
 
 
-## 有声|《告别2021》
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814087/)
+## 韩联社：疑似一名韩国公民前往朝鲜，生死未明
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1814108/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2021已经过去
-我最大的信念
-坚定不移心中的信仰
-健康的活着，是赢家
-生活虽然异常艰难
-黑暗依然笼罩当下
-可我坚信坚强的每一步
-就离歼灭中共的终极目标更近一步
-虽然肉身被党囚
-可我的灵魂飞翔
-自由在喜马拉雅
-苟活在谎言世界
-时悲悯时激情
-时光亮时消沉
-可我们知道，它们也知道
-那一刻必定会发生
-所以我坚强
+撰稿—八木
+校对/上传—无明逆流
 
-原文链接：[《告别2021》](https://gnews.org/zh-hans/1813076/)
+据韩联社1月2日报道，韩国相关军事部门于1日晚9时20分在韩国东部战线非军事区（DMZ）发现一名身份不详人员。经确认，该人员于1日晚10时40分越过江原道东部战线军事分界线进入朝鲜境内，目前生死未明。
 
-音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha77.03-PM.jpeg)韩联社
 
-发稿：Daxia
+韩国联合参谋本部方面表示，韩军方当晚投入作战兵力赶赴现场，确认了这名人员于当晚10时40分左右越过军事分界线进入朝鲜。该人员有可能为韩国国民，为确保该人员安全，参谋本部2日早间已将情况通知朝鲜。目前，该人员生死情况不明，军方也尚未发现朝方有特别动向。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+据了解，根据韩国相关法律规定，韩方人员越境赴朝行为可能面临犯罪。
 
  
 

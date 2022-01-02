@@ -2,27 +2,37 @@
 ---
 
 
-## 中共国政府收集脸书和推特信息的行动已扩大到海外
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1814259/)
+## 台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814284/)
 
-撰稿：东京樱花团/待命（文晓）
+纽约香草山医疗部-云豹；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-58.png)
+针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中共国政府收集脸书和推特信息的行动已扩大到海外.png)
+另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
 
-《华盛顿邮报》12月31日（当地时间）报道，中共国政府正在利用脸书和推特等社交网络服务，将其谍报活动扩展到海外。《华盛顿邮报》获得并分析了与2020年初开始的中共国政府项目有关的官方和公司文件及其它材料。
+新闻连接：[總統2022新年談話：穩健執政堅守主權 台灣珍惜民主挺香港](https://www.cna.com.tw/news/firstnews/202201015003.aspx)
 
-据报道，中共国一直在本国境内使用名为“舆论分析软件”的在线监测程序，以追踪那些传播政治敏感信息的人。而最近，中共国政府开发了新程序，将这种信息追踪活动拓展到海外，对使用脸书、推特的外国人进行检索，收集其信息。据悉，包括国家媒体、政治和宣传部门、公安、军队和在线监管机构在内的多机构都向私营公司订购了此类程序。
+[In New Year’s speech, Taiwan president warns China against ‘military adventurism’](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
 
-一个简单的24小时作业的自动情报收集程序，其价值数十万美元。该报称，私营企业已接到了各种方案的订单。中共国国家媒体以32万美元（3700万人民币）购买了收集脸书和推特帖子的软件，以制作一个外国媒体的数据库，公安局还开发了一个21.6万美元（2500万人民币）的程序，用于分析西方用户与香港和台湾有关的聊天内容。
 
-中国共产党中央宣传部下属机构的一位专业分析人士说：我们现在对反华倡导者的地下网络已经有了更好的掌握。而中共国外交部没有就此发表任何回应。
 
-对此，该报表示担心，据专家称，“如果中共国获得先进的技术来监控社交媒体，可能会加强对那些批评中共的人的打压。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.06.26-PM-1.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+总编/编辑：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+
 
  
 

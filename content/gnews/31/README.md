@@ -2,31 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月1日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1813905/)
+## 韩国联合参谋本部：韩方有1人越过军事分界线前往朝鲜
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1814010/)
 
-作者：香草山翻译部
+撰稿—八木
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+**当地时间1月2日，韩国联合参谋本部称，韩方有1人越过军事分界线前往朝鲜。**
 
+军事分界线（停战线、三八线）是大韩民国和朝鲜民主主义共和国两方根据1953年《朝鲜停战协定》划定的军事分界线，大韩民国称《休战协定》。《朝鲜停战协定》是一项没有规定失效日期的军事协定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11text-SC.png)
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsA00.33-AM.jpeg)图片资料：《朝鲜停战协定》中文签名页
 
-编辑：Stay文苑
+协定于1953年7月27日10时在朝鲜半岛开城板门店举行签字，签字方是朝鲜人民军最高司令官、朝鲜民主主义人民共和国元帅金日成、中国人民志愿军司令员彭德怀同联合国军总司令、美国陆军上将马克·克拉克。
 
-发稿：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsA50-AM.jpeg)图源：纽约时报
 
-视频参看：[1.1  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d0ff8eecc0b216cbb3f1e5)
+《朝鲜停战协定》签订后即刻停止了韩战交战双方的敌对军事行为，韩战进入停战状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.png)
+根据《朝鲜停战协定》的规定，大韩民国和朝鲜民主主义人民共和国之间以全长247公里的实际控制区划定界线；例如战后由北韩实际控制的开城市就位于北纬38度以南。由此该线虽是大致依照北纬38度线划定，但主要是根据双方于1953年韩战停战时的实际控制线为准。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+相关新闻：[韩方有1人越过军事分界线前往朝鲜](https://m.sohu.com/a/513837152_116237/?pvid=000115_3w_a)
 
  
 
