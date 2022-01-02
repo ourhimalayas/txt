@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 4:06 PM (UTC)`
+
+1/1/2022 Miles Guo: The Chinese culture has its roots in yin and yang and the five elements, but was cut off during the Qin Dynasty. The Western civilization, on the other hand, is based on logic, which developed into science. Chinese culture and Western culture do not contradict each other, and the New Federal State of China will foster the integration of the two, drawing on each others' strengths to offset the weaknesses to build a more advanced civilization together.<br/><br/>1/1/2022 文贵直播：中国文化的根源是阴阳五行，但在秦朝出现了历史断层；而西方文明是在逻辑学的基础上持续发展并产生了科学；中国和西方文化其实并不冲突，新中国联邦将促进二者交融、取长补短，从而形成更先进的文明<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/02/16/ef3244d0-6115-57b4-18cf-e2a6ff2cec7c/out.jpg)
+
+---
+
+`@miles 1/2/2022 4:01 PM (UTC)`
+
+1/1/2022 Miles Guo: What is “wind” according to traditional Chinese culture? Both the Chinese Five Element Theory and the West’s astrology are the accumulation of culture and human civilization; the CCP’s red flag is most afraid of “water” in the five elements, and both the zodiac signs of Xi Jinping and Peng Liyuan fear the Year of Tiger; the CCP is the one that believes gods and Feng Shui the most so that they would remodel the dragon-head-shaped top of Pangu Plaza and go to the Temple of Heaven and the Yonghe Lamasery to worship on every lunar new year’s eve<br/><br/>1/1/2022 文贵直播：什么是“风”？中国的五行和西方的星座都是人类文明的累积；中共五星红旗怕水，习彭属相怕虎年；中共最相信神和风水，所以要改盘古的龙头并在大年三十去天坛和雍和宫祭拜
+![img](https://media.gettr.com/group14/getter/2022/01/02/16/17ab39fa-0c4d-8743-7bc0-93d242ba2818/out.jpg)
+
+---
+
 `@miles 1/2/2022 2:03 PM (UTC)`
 
 1/1/2022 Mr. Miles Guo: The “I’m the Music Hero” show last night is a sublimation of the whole NFSC team. CCP‘s Red songs are brainwashing tools and deny humanity, but our music is about human nature and respect to God.<br/><br/>1/1/2022 文贵先生新年大直播：昨晚的《我是音雄》是新中国联邦团队整个的升华。中共的红歌是洗脑的、泯灭人性，而我们的音乐是歌颂人的本能，敬崇上天的。
@@ -137,20 +151,6 @@
 `@miles 12/31/2021 3:43 PM (UTC)`
 
 12月31日，在2021最后一天, Hcoin To the Moon的iTunes打榜记录：<br/><br/>🥇持续排名美国🇺🇸摇滚MV榜首<br/><br/>🥇持续排名澳门🇲🇴MV总榜榜首<br/><br/>🥇持续排名新西兰🇳🇿摇滚歌榜榜首<br/><br/>🥇持续排名新西兰🇳🇿嘻哈歌榜榜首<br/><br/>万分感谢美国，澳门，新西兰的战友们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1808849/<br/><br/>31/12/2021 “Hcoin To the Moon" iTunes Charts  on the last day of 2021:<br/><br/>🥇No.1 in USA 🇺🇸 MV Rock Chart<br/><br/>🥇No.1 in Macau 🇲🇴 MV Chart <br/><br/>🥇No.1 in New Zealand 🇳🇿 Rock Song Chart <br/><br/>🥇No1. in New Zealand 🇳🇿 Hip- Hop/Rap Song Chart<br/><br/>Thank you very much to our fellow fighters in USA, Macau, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/>
-
----
-
-`@miles 12/31/2021 2:00 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group16/getter/2021/12/08/20/951d62d5-04ce-28a8-7dbc-8b829f711f57/5c125a43706f38c524b59b7d0beb76aa.jpg)
-
----
-
-`@miles 12/31/2021 1:58 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group16/getter/2021/12/31/13/73b9ff19-6d8d-db74-7692-74b637c26fd1/ba8e77daaedf656934500f5b83a7c91a.jpg)
 
 ---
 
