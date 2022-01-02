@@ -2,44 +2,30 @@
 ---
 
 
-## 1/1/2022国际财经快讯：世界主权财富和公共养老基金资产创纪录；华尔街接近纪录高点
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1813195/)
+## 未接种疫苗男子感到孤独，当他所有接种疫苗的朋友都被感染
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813208/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-6.png)[图片来源](https://www.reuters.com)
-**1.世界主权财富和公共养老基金资产达到创纪录的31.9万亿美元**
+据《babylonbee.com》，2021年12月31日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-44.png)图片源自原文
+俄亥俄州克利夫兰——当地未接种疫苗的男子查克-多恩利在这个假期感到非常孤独，他所有接种疫苗的朋友现在都感染了中共病毒。
 
-[伦敦，1月1日（路透社）–周六发布的一份年度报告显示，由于美国股票和石油价格上涨，世界主权财富和公共养老基金持有的资产在2021年上升到创纪录的31.9万亿美元，投资也上升到几年来的最高点。行业专家Global SWF关于国有投资工具的报告发现，主权财富基金管理的资产在过去一年中增长了6%，达到10.5万亿美元，而公共养老基金的资产增长了9%，达到21.4万亿美元。该报告还发现，国有投资者部署的资金，无论是交易数量还是数量，都比前六年的任何一年都要多。约有2156亿美元被使用，其中几乎一半是由主权财富基金支付的。](https://www.reuters.com/markets/europe/swf-public-pension-fund-assets-hit-record-319-trillion-report-2022-01-01/)
+多恩利说：“也许我应该直接接种疫苗。然后我就会像其他人一样感染COVID，那样我和我接种过疫苗的朋友就有话可说了。现在我自己一个人感觉很健康。真是无奈！”
 
-**2.****华尔街结束动荡的一年，接近纪录高点**
+多恩利对记者说，几个月前，当他自己得了COVID时，他也感到被抛弃了，大家都叫他“奶奶杀手”。他希望，一旦一切恢复正常，他可以因为是克利夫兰布朗队的球迷而被冷落，而不是因为没有接种疫苗。
 
-[纽约，12月31日（路透社）–周五，华尔街在2021年最后一个交易日的清淡交易中收盘，接近纪录高点，标志着从全球大流行中复苏的第二年。美国三大股指都取得了月度、季度和年度涨幅，创下了1999年以来最大的三年涨幅。标准普尔500指数自2020年最后一个交易日以来上涨了27%。截至周四，该基准指数已登记了70个创纪录的收盘价，或为有史以来的第二多。使用Refinitiv的数据可以追溯到1928年，标普500指数在一年中创下的最高收盘纪录是1995年的77次。道琼斯指数今年上涨了18.73%，纳斯达克指数上涨了21.4%。](https://www.reuters.com/markets/us/wall-street-ends-tumultuous-year-near-record-highs-2021-12-31/)
+原文连接：[https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid](https://babylonbee.com/news/unvaccinated-man-feeling-left-out-as-all-his-vaccinated-friends-have-covid)
 
-**3.****市场关注****COVID-19****的下一步行动，****LNG****和煤炭引领****2021****年商品反弹**
+翻译：洛杉矶盘古农场 – TrueSky
 
-[新加坡（路透社）–2021年，从能源和金属到农产品的大宗商品价格大幅反弹，电力燃料领涨，原因是COVID-19疫苗接种避免了大范围的封锁，供应紧张，经济复苏强劲。分析师和交易员说，随着世界经济继续复苏，预计2022年全球商品需求将保持强劲，并支撑价格，尽管类似的价格跳跃不太可能。经纪公司OANDA的高级分析师Jeffrey Halley说：”2021年的特点是一个巨大的广泛的反弹，”他说。”尽管我相信商品价格将保持强劲，但我认为2020年的反弹和2021年的反弹将是特殊的年份，因此我预计未来一年不会有同样水平的涨幅。”今年能源和食品价格扶摇直上，从北京到布鲁塞尔的公用事业和消费者受到冲击，提高了通胀压力。](https://www.oann.com/lng-coal-lead-2021-commodities-rally-as-markets-eye-covid-19-for-next-move/)
+校对：洛杉矶盘古农场 – Mike Li
 
-**4.****2021****年韩国出口同比增长****25.8%****，为****11****年来最大幅度**
+编辑：洛杉矶盘古农场–WenXiong
 
-[首尔（路透社）–2021年，韩国的出口以11年来的最快速度增长，在全球需求大流行后的复苏的支持下，出口总值达到了历史最高水平。贸易部周六的数据显示，全年出口额较上年同期增长25.8%，达到6,445.4亿美元，是2010年以来的最快速度。这也标志着在2020年和2019年分别收缩5.5%和10.4%之后，三年来的首次增长。”现在是迈向7000亿美元出口时代的时候了……贸易部将加大政策力度，使工业和出口能够在今年拖出完整的（经济）正常化，”Moon Sung-wook部长说。按项目分类显示，半导体的出口同比增长29%，达到创纪录的1280亿美元，而石油化工产品的出口也猛增54.8%，达到创纪录的551亿美元。其他项目，如汽车和钢铁，分别跃升24.2%和37%。](https://www.oann.com/s-korea-exports-expand-25-8-y-y-in-2021-sharpest-in-11-years/)
 
-**5.****德国关闭最后六座核电站中的三座**
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[柏林，1月1日（路透社）–德国已经关闭了其最后六座核电站中的三座，因为它正朝着完成退出核电的方向发展，将重点转向可再生能源。2011年日本福岛反应堆熔毁，地震和海啸摧毁了沿海电厂，这是自1986年切尔诺贝利事件以来世界上最严重的核灾难，政府决定加速淘汰核电。由E.ON（EONGn.DE）和RWE（RWEG.DE）运营的Brokdorf、Grohnde和Gundremmingen C的反应堆在运行三十五年后于周五晚些时候关闭。最后三座核电站–Isar 2、Emsland和Neckarwestheim II–将于2022年底关闭。经营Brokdorf和Grohnde电厂的Preussen Elektra周六在一份声明中说，这两座电厂在周五午夜前不久被关闭。RWE表示，Gundremmingen C厂也在周五晚上停止了发电。](https://www.reuters.com/markets/commodities/germany-shuts-three-its-last-six-nuclear-plants-2022-01-01/)
-
-**6.美国官员因航空安全问题要求AT&T和Verizon推迟5G无线通信**
-
-[华盛顿，12月31日（路透社）–美国交通部长Pete Buttigieg和联邦航空管理局（FAA）局长周五要求AT&T（T.N）和Verizon Communications（VZ.N）推迟计划于1月5日推出的新5G无线服务，以应对航空安全问题。在路透社周五看到的一封信中，Buttigieg和FAA局长Steve Dickson要求AT&T首席执行官John Stankey和Verizon首席执行官Hans Vestberg推迟不超过两周的时间，作为 “作为推进5G在C波段部署和安全飞行操作共存的近期解决方案的建议”。航空业和联邦航空局已经提出了对5G与敏感的飞机电子设备（如无线电高度计）的潜在干扰的担忧，这可能会扰乱飞行。](https://www.reuters.com/business/aerospace-defense/us-officials-ask-att-verizon-delay-5g-wireless-over-aviation-safety-concerns-2021-12-31/)
-
-**7.****德国希望****G7****财长们关注经济复苏和气候保护**
-
-[柏林，1月1日（路透社）–德国财政部长克里斯蒂安-林德纳周六表示，德国希望利用其作为七国集团（G7）主席国的身份，支持经济从COVID-19大流行病中恢复，并加强努力，改善气候保护。林德纳在一条推特上说：”德国已经接任2022年七国集团主席国–七国集团国家代表着自由、民主和进步。”他补充说：“考虑到这一点，我们必须克服大流行病并推动全球经济复苏。”林德纳是自由民主党（FDP）的党魁，也是总理奥拉夫-肖尔茨的三方执政联盟中的小伙伴，他说他希望在七国集团会议期间将数字化和气候中立问题放在财长和央行行长议程的首位。](https://www.reuters.com/markets/commodities/germany-wants-g7-finance-ministers-focus-recovery-climate-protection-2022-01-01/)
-
-**8.****土耳其提高能源价格；伊斯坦布尔月度通胀率为十年来最高**
-
-[伊斯坦布尔，1月1日（路透社）–周六的数据显示，上个月土耳其最大城市伊斯坦布尔的通货膨胀率飙升至至少十年来的最高水平，总统塔伊普-埃尔多安的政府大幅提高了新一年的全国电力和天然气价格。汽油、汽车保险和一些桥梁通行费的价格也出现了跳涨，给面临通货膨胀激增和由一系列非正统降息引发的货币危机的经济增加了压力。能源市场监管局以全球能源通胀高企为由，表示2022年高需求的商业用户电价上调高达125%，低需求的家庭电价上调约50%。](https://www.reuters.com/markets/europe/turkey-hikes-energy-prices-istanbul-monthly-inflation-highest-decade-2022-01-01/)
-
-By【秘密翻译组-金融组】
-作者：千年等一回
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

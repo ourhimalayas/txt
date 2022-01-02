@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月1日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1813141/)
+## 2022.1.1文贵先生警醒战友们永远牢记《新中国联邦宣言》
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1813148/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：大浪小水花
+![此图像的alt属性为空；文件名为Screen-Shot-2022-01-01-at-11.49.41-AM.png](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM.png)图片来源：GETTR
+郭文贵先生在2022年元旦大直播中，再次向战友们展示了《新中国联邦宣言》。 郭先生强调《新中国联邦宣言》没有任何政治、利益、名誉之心，内容从天到地，从人到动物，从动物到植物，从植物到环境，到山到水，我们不仅说中国人的事，我们还要说全人类的事，全天下的事。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+郭先生向战友们展示了宣言第一页那句郝海东先生宣读的名言：“灭共是正义的需要”。郭先生指出，郝海东先生宣读宣言，是告诉世人应该向《新中国联邦宣言》一样对天地对人充满敬意和爱意。
 
-视频参看：[2022.01.01早GTV新闻访谈](https://gtv.org/video/id=61d056eaecc0b216cbb34c8b)
+郭先生提醒战友们永远不要忘记，我们是因为《新中国联邦宣言》走到一起。不论是谁，不论是铁血组、联盟委员会，还是战友们，谁忘记了《新中国联邦宣言》谁就一定会被淘汰。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：[https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e](https://gtv.org/broadcast/watch/61d04feaecc0b216cbb3374e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：Shifter
 
  
 
