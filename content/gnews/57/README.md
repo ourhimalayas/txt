@@ -2,38 +2,24 @@
 ---
 
 
-## CDC承认PCR测试存在重大缺陷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1807887/)
+## 15个成员国签署全球最大自贸区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1808612/)
 
-作者：纽约香草山文艺部 – 宁文静；纽约香草山翻译部 – defiance
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1963.png)[图片来源](http://hanoitimes.vn/rcep-regional-free-trade-pact-with-profound-impacts-on-the-world-314977.html)
+北青网12月31日报道，据中共央视报道，2022年1月1日，目前全球最大的自贸协定——《区域全面经济伙伴关系协定》（RCEP）将正式生效实施。这也是中共和日本首次达成自贸安排。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+RCEP共计15个成员国，包括中国、日本、韩国、澳大利亚、新西兰5国以及东盟10国。目前，6个东盟成员国和4个非东盟成员国正式提交核准书，达到协定生效门槛。根据协定规定，RCEP将于2022年1月1日对已正式提交核准书的10国生效。
 
-12月29日，美国疾病预防和控制中心CDC主任瓦伦斯基，在接受电视采访时承认，通过PCR方法检测中共病毒存在重大缺陷，并表示，在隔离5天后，只要没有相关症状，个人不需要通过PCR检测呈阴性，作为结束隔离的条件。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-53.jpg)
-而早在7月，CDC就悄悄在官网上公布，12月31日以后，CDC将撤销PCR测试的紧急使用授权，承认PCR测试不能有效区分流感和中共病毒。
+报道称，中日两国首次达成自贸安排，特别是明年中共国对日本出口57%的税号产品将立即实现零关税，《区域全面经济伙伴关系协定》是亚太地区规模最大、最重要的自由贸易协定谈判，达成后将覆盖世界近一半人口和近三分之一贸易量，成为世界上涵盖人口最多、成员构成最多元、发展最具活力的自由贸易区。
 
-这一结论激怒了许多美国人。政治评论家尤西表示，这意味着在过去的21个月里，人们无理由地被多关了几天甚至几周。
+CCP病毒世界蔓延，中共以零关税贸易协定捆绑更多国家，再多的贸易也难以掩盖中共经济的崩溃，中共灭亡是必要的结果。
 
-参考链接：
+信息来源：[RCEP生效实施助力稳外贸  中日两国首次达成自贸安排](https://t.ynet.cn/baijia/31981980.html?sdkver=2c9d920d)
 
-- [After CDC’s Rochelle Walensky Admits COVID-19 PCR Tests Have A Major Flaw, Conservatives Demand Answers](https://www.dailywire.com/news/after-cdcs-rochelle-walensky-admits-covid-19-pcr-tests-has-a-major-flaw-conservatives-demand-answers?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
-- [HUGE. CDC Withdraws Use of PCR Test for COVID and Finally Admits the Test Can Not Differentiate Between the Flu and COVID Virus](https://www.thegatewaypundit.com/2021/12/huge-cdc-withdraws-use-pcr-test-covid-finally-admits-test-can-not-differentiate-flu-covid-virus/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Irene木木
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

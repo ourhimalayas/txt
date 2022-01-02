@@ -2,42 +2,36 @@
 ---
 
 
-## 麦康纳尔的前顶级幕僚领衔辉瑞公司的华盛顿游说
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812307/)
+## 德国外长及内务部长将不参加中共冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1812695/)
 
-撰稿：纽约香草山翻译部 -defiance
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-据美国媒体12月30日报道，辉瑞公司出资雇用了参议院共和党领袖米奇·麦康纳尔的前政策主任哈森·马歇尔的游说公司，试图阻止与大药厂相关的2021年虚假索赔修正案的通过。该法案的现行条款对保护公众免受如辉瑞公司等的欺诈行为几乎无效，修正案欲寻求通过将举证责任转移给大公司等措施对举报者进行保护，将更容易追责公司的欺诈行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-43.png)
-据悉，辉瑞公司与游说公司的游说合同中包括反对举报人保护，以及维护辉瑞公司的中共病毒疫苗专利等内容。
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2021年12月30日，据媒体消息显示，德国外长贝尔伯克对媒体宣布，他本人确定将不参加中共2022北京冬奥会。贝尔伯克还透露，欧盟正在讨论是否应该集体加入抵制中共冬奥会的队伍。
 
-目前，辉瑞公司有80多名说客在册，2021年这方面的支出超过700万美元。马歇尔的公司收到了其中的10万美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpeg)
 
-新闻链接：
+贝尔伯克也呼吁欧盟国家共同商讨出一个抵制中共冬奥会的态度，并希望可以比美国总统拜登的态度更坚定。另外，贝尔伯克还一再表示，欧盟应该出台一项政策，禁止进口新疆地区通过强制劳动所获得的产品。
 
+与此同时，德国内务部长兼体育部长南希·弗雷泽也宣布，由于个人原因，他决定不出席北京冬奥会。据了解，按照惯例，德国通常会派遣内务部部长代替总统出席冬奥会，但德国政府发言人表示，德国新任总理朔尔茨尚未决定是否将出席北京冬奥会。此前，德国政府新闻发言人还首次在例行记者会上表示，“到目前为止，朔尔茨总理暂无出席北京冬奥会的计划”。
 
+参考链接：[德国外长、内政部长宣布因个人决定不出席北京冬奥会](http://chinese.joins.com/news/articleViewAmp.html?idxno=104472)
 
-> [EXCLUSIVE: Top Mitch McConnell Staffer Leads Pfizer’s Lobbying Charge to Protect Vaccine Patent and Block Bill Holding Big Pharma Accountable for Fraud.](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-
-
-[https://gettr.com/post/pl5qcuf6f1](https://gettr.com/post/pl5qcuf6f1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-总编：童谣
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
