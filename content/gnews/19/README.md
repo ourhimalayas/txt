@@ -2,37 +2,34 @@
 ---
 
 
-## 有声|中共军方在西藏用军用机器人充当士兵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1813549/)
+## 中共国网监触及国外 用数据分析工具压制网上异议
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1813639/)
 
-配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010108.jpg)2016年8月16日，在中国北京举行国际互联网安全大会上呈现的视觉效果展示。美联社图片
+编辑摘要：
+
+据美国之音1月1日报道，中共国正在将其互联网监控的科技触角延伸到防火墙外，从西方社交媒体挖掘异见者言论，并向中共国政府安全部门提供批评中外批评者的个人信息。
+
+中共国政府使用“民意分析软件”，检测网上政治敏感信息。一个国营媒体花费32万美元打造了一款“外籍人员分析平台”，旨在挖掘推特、脸书和YouTube等社交媒体平台上西方知名媒体记者以及政界、商界和媒体界关键人员的数据。当局还使用数据收集工具分析正在香港和新疆地区使用的外国语言，搜查批评北京当局的言论，并试图让他们噤声。
+
+中共国政府建立了广泛的数字基础设施和安全机制，在国内平台上控制异见。同时也在不遗余力地扩大互联网搜索，找出并压制那些在推特、脸书和其他国际社交媒体上批评中共国的人。中共国有一群疯狂邪恶的盗国贼集团控制着十几亿被洗脑的中共国奴隶。如何控制这些奴隶，并延续这种控制是中共国延伸管制并发展所谓网络科技的最终目的。
+
+新闻参考链接：[美媒：中国网监触角伸向国外 用数据分析工具压制网上异见声音](https://www.voachinese.com/a/china-us-data-collection-20220101/6377879.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月28日，据印度媒体报道，中共政府将大量军用机器人部署至拉达克地区，继续与印度在双方有争议的边界上对峙。
+编辑：【英国伦敦喜庄园编辑部】
 
-自2020年中印交战后，中共逐步加强在拉达克的军事存在。据悉，中共解放军先是将88辆由北方工业总公司制造军用智能机器人转移到西藏，用于侦察等后勤工作，并为其配备了可自动搜索并攻击目标的武器。其后，又将超过60辆由中天智控生产的遥控军用机器人部署在中印边境，用以配置武器执行战斗任务。此后，中共解放军还在西藏军区举行了一次集步兵、炮兵、工兵、电子战、空中支援、特种部队和军用机器人在内的联合军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-分析人士指出，中共通过将大量人工智能化的军用机器人部署到地形复杂、低温且空气稀薄的西藏军区，并反复进行高海拔地区军事演习，实际上是中共试图转变在印度军队面前的弱势局面，妄图开启军事超限战。
 
-文字版原文：[中共军方在西藏用军用机器人充当士兵](https://gnews.org/zh-hans/1807551/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
