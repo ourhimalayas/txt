@@ -2,39 +2,62 @@
 ---
 
 
-## 放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1814047/)
+## 每日一回击——红歌送给红卫兵 杨贝贝
+` 文贵大直播后记` [轉載自GNews](https://gnews.org/zh-hans/1814415/)
 
-作者：纽约香草山教育部 – Xiaojiucaia
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一位匿名放射科医生报告了2021年一个令人震惊的观察结果。这位放射科医生报告说中共病毒疫苗接种后不明原因的腺病增加了360倍。腺病是肿胀的腺体或淋巴结肿大（淋巴结病）的医学术语。腺病不是一种特定的疾病，但它是某些潜在疾病的重要症状。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/每日一击cover.jpg)
+## 背景介绍：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-54.png)
+HBO-VICE派出Isobel Yeung 杨贝贝采访郭文贵先生2个多小时，只用了3分钟，然后各种片段拼凑，声音恐怖演绎，胡编出一个逻辑混乱的恐怖大片。
 
-这位放射科医生不愿透露姓名，因为他担心他会因为报告这些与疫苗相关的观察结果而失去工作。在他的实验室，放射科医生每六个月会看到大约一例不明原因的淋巴结肿大。然而，在中共病毒疫苗推出后，放射科医生每天会看到两到三例不明原因的腺病！病人总数量增加了360倍。这是极其罕见的。
+其视频内容充满种族歧视、种族挑拨、尝试制造恐怖主义、甚至导致种族大屠杀，同时企图抹黑嫁祸爆料革命、打击新中国联邦、启动海外反华仇华排华。
 
-人体大约有六百个淋巴结。这些淋巴结携带淋巴液，是人体“免疫系统”的组成部分。通过身体组织液首先通过淋巴结过滤。淋巴系统负责提供白细胞以帮助抵抗传染性细菌和病毒。如果淋巴结和腺体肿胀，通常表明身体正在抵抗感染，如普通感冒。淋巴结肿大常伴有流鼻涕、喉咙痛、耳痛、发烧和疲倦。肿胀也可能表明更严重的感染，如链球菌、莱姆病或艾滋病毒。腺病也可以表明癌症的存在。最常见的包括淋巴瘤，它是淋巴系统或淋巴结的癌症。
+并且VICE特别安排在2021年底播放其视频，原来就是准备献给中共2022北京冬奥会的大礼，以换取中国共产党提供给他中国市场。
 
-由此可见，疫苗的危害已经浮出水面，随着时间的推进，我们会看到越来越多的癌症病人，越来越多的死亡。只有爆料革命有勇气敢于站出来揭露疫苗真相，拯救人类。
+因HBO-VICE编造的这个谎言视频，每个在海外的华人都被置于危险境地。还有病毒灾难、疫苗灾难、灭白计划都是中共潘多拉盒子打开的后果。无论你住什么地方，属什么国家，是什么种族，说什么语言，无人能逃过它 的魔爪。灭掉中共是正义的需要，更是人类生存的需要。
 
-新闻链接：[https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html](https://vaccines.news/2021-12-30-radiologist-reports-a-360-fold-increase-in-adenopathy-following-covid-vaccinations.html)
+所以特别做此歌，以共产党从黄歌改编的红歌《东方红》，来反击它派来的红小兵伊萨贝尔。歌词是根据文贵大直播内容记录整理。这支新歌也是送给杨贝贝的新年礼物。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+[VICE 采访郭文贵先生之真相揭露视频](https://www.gettr.com/streaming/pkexq84603)链接
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnewsb01a.jpg)
+## **HBO,     Isobel,   魔窑出来个小蛇哟**
 
-**校对/发稿：童谣**
+## **她为挑起仇华来，伊萨贝尔，她是华人大灾星**
 
-**更多资讯，更多关注**
+## **她为冬奥献礼忙，伊萨贝尔，VICE要的是市场**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+## **访****2****时，****    ****播****3****分****,  ****故意抹黑****剪辑****陷害**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+## **为了采访得机会，伊萨贝尔，不惜纠缠一年多**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+## **为了完成党任务，伊萨贝尔，骗局被揭却强撑**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnewsb02-1.jpg)
+## **PAG****，****    ****单伟健，黑****势****T****PG****是一窝**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+## **各种缠诉灭共者，伊萨贝尔，一计不成又一计**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+## **螃蟹沆瀣乱伦彪，伊萨贝尔，蛇鼠臭味终相投**
+
+## **真善狠，假丑恶，正面交锋已现分晓**
+
+## **引蛇出洞是我招，伊萨贝尔，心存侥幸被全剿**
+
+## **诱敌深入瞄准了，伊萨贝尔，丑行败露于天下**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnewsb03-1.jpg)
+## **杨贝贝   被洗脑， 共产主义是她向往**
+
+## **病毒来源她掩盖，伊萨贝尔，制造仇恨使足劲**
+
+## **灭白计划她加油，伊萨贝尔，华人游行她骗访**
+
+## **老父亲****，奔****英伦****，****搭****着小船逃离****苦村**
+
+## **她却重投党怀抱，伊萨贝尔，CCTV去深造**
+
+## **反华危机她开启，伊萨贝尔，世界公敌跑不了。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1c.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2c.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3c.jpg)
+整理制作：Mindy10（雅典娜农场速记组）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
