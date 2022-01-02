@@ -2,44 +2,45 @@
 ---
 
 
-## 坎特自由：西方为何对中共侵犯人权行为保持沉默？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814052/)
+## 有声|《告别2021》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814087/)
 
-#### 【雅典娜快讯】紧贴事脉搏
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2021已经过去
+我最大的信念
+坚定不移心中的信仰
+健康的活着，是赢家
+生活虽然异常艰难
+黑暗依然笼罩当下
+可我坚信坚强的每一步
+就离歼灭中共的终极目标更近一步
+虽然肉身被党囚
+可我的灵魂飞翔
+自由在喜马拉雅
+苟活在谎言世界
+时悲悯时激情
+时光亮时消沉
+可我们知道，它们也知道
+那一刻必定会发生
+所以我坚强
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5825-1-scaled.jpg)图片来源：The Washington Post
+原文链接：[《告别2021》](https://gnews.org/zh-hans/1813076/)
 
+音频处理：喜山必胜Maverick
 
-#### 整理报道：文泓
+发稿：Daxia
 
-波士顿凯尔特人队中锋、中共直言不讳的批评者伊内斯·坎特自由已经站在要求中共为其侵犯人权行为负责运动的第一线。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-在接受《每日电讯报》的长篇采访时，坎特对香港各大学拆除纪念天安门广场大屠杀的雕像和纪念碑的举动做出了回应，并展开了对话。**据估计，中共政府在****1989年这场屠杀中杀害了10,000名民主活动人士。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-正如《千禧年报》12月报道那样，中共当局拆除了纪念这一事件的所谓“耻辱柱”纪念碑。
-“那里发生的事情令人心碎，我们需要尽我们所能来提高认知，”这位凯尔特人球员说。
-
-坎特随后猛烈抨击NBA运动员勒布朗·詹姆斯和科林·卡佩尼克,以及觉醒的资本公司，他将这些公司称为“社会正义公司”。例如耐克，**这些公司迅速支持“黑命贵”和其他社会正义倡议，而无视中共国侵犯人权的行为。**
-
-他指出,“涉及多少钱并不重要”，因为“当我们现在谈论时，那里正在发生种族灭绝”，指的是中国在西北省份新疆的拘留营中监禁了超过一百万的穆斯林维吾尔人。
-“我不是共和党人或民主党人”，坎特解释道：“我没有立场，我不做政治，我搞人权。”
-
-他确信，他的信息可以成为美国分裂的政治格局中的统一力量，**“人权没有右、左、东、西之分，我们都是人类，我们需要为那些无辜的人挺身而出。”**
-坎特说，他打算接触尽可能多的人，他已在CNN和CNBC上都谈到了这个问题。令人遗憾的是，**关注他从埃内斯·坎特 (Enes Kanter)改名为埃内斯·坎特自由(Enes Kanter Freedom)**的保守媒体表示，很多媒体有时会忽视他关于中共侵犯人权的信息，这令人遗憾。
-
-“**如果他们要提及我的姓氏，请提及不仅在我的祖国土耳其，而且在全世界发生的所有侵犯人权行为**，”他说。
-坎特同样对民主党的政治家表示失望，他说，**他们对西方的社会正义问题采取公开立场没有问题，但对中共的人权侵犯却保持沉默**。
-
-坎特回忆说，拜登政府“承诺他们将优先考虑人权”，“不仅在美国，而且在全世界”。坎特·自由表示，当美国没有做到时，令他心碎，但补充说**他****“仍在等待”并“仍然希望”拜登在世界舞台上采取行动打击侵犯人权的行为。**
-
-新闻链接：[Remote Antarctic station hit with Covid-19 outbreak](https://www.rt.com/news/544909-belgian-station-antarctic-covid-outbreak/)
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

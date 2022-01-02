@@ -2,33 +2,116 @@
 ---
 
 
-## 有声|MILES GUO歌声 CASSANDRA预言
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814080/)
+## 文明代价
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814103/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-如果艺术家诅咒某种东西它必然灭亡，Cassandra意思是说，如果不相信他的预言，人就是在自取灭亡。 艺术是人对自我的叙事。是为提供人对生活的感知方式服务的。是容纳对生活的理解与想象的对象。
+- 墓碑科技 死亡铸就
+- 认知飞越 人类革
+- 喜玛拉雅澳喜农场
+- 写给喜币上市之喜币文明
 
-人本主义的艺术价值观认为，如果一定要言说艺术的目的，那就是也只能是人。是人的意志与信念。从某种意义上说，艺术中其实只有两种艺术，一种是人性的善良艺术，另一种是反人性的邪恶艺术。
+![此图像的alt属性为空；文件名为CBDBB796-4BC9-47D7-B924-4DCD6277DE1A.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/CBDBB796-4BC9-47D7-B924-4DCD6277DE1A.jpg)
+作者：澄道来了、博士喜妈
+编辑：翼族
 
-摇滚歌王郭文贵先生的歌之所以被全球传播，是因为很好的表达某种心情或某种境况之下所易于相信的东西。单纯的快乐或者忧伤并不是艺术思考的指向。只有对“普遍事物的沉浸”才有可能产生艺术的表达。艺术的价值诞生并再生于精神深处。
+喜妈生活家
+爆料重生花
 
-原文链接：[MILES GUO歌声 CASSANDRA预言](https://gnews.org/zh-hans/1813223/)
+博士喜妈今生惑
+发问分享无闲多
+无有正道无直播
+生活加上科技说
 
-音频处理：喜山必胜Maverick
+外行谈科技
+精彩再继续
 
-发稿：Daxia
+何谓科技
+人类进步阶梯
+单行之道
+无可回头
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+何谓墓碑
+文明上攀代价
+与生俱来
+无可避免
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+火之于人类初
+莫过最大灾难
+＂钻木取火＂
+造福人类
+原始生存科技
 
+水之于人类存
+祸患时逼生死
+＂诺亚方舟＂
+救护苍生
+不失逃生科技
+
+嫦娥奔月
+飞机初上天
+大批人员丧
+墓碑机场
+人类科技终突破
+
+日行千里
+汽车落地日
+交通事故频
+死亡铺路
+规则技术今同步
+
+3F计划
+病毒超限武器
+死亡游戏
+全球灾难
+何去何从
+
+疫苗护照
+民主自由核打击
+毁族灭种
+人类文明
+旦㬢祸福
+
+世界经济
+任国无望
+狂印法币
+毫无锚定
+亘古荒唐
+街头火葬
+墓碑犹独印度？
+
+喜币科技
+一线生机
+上市数日
+闪耀环宇
+无我信仰
+无疆无域
+和平千载难逢！
+
+墓碑
+人类进步代价
+
+科技
+文明上攀阶梯
+
+直播认知
+创文明
+
+喜妈日常
+无代价
+
+@ 佛前一杯饮
+@ 博士喜妈
+@ 澄道来了
+@ 爱动爱爱码01011
+
+*發布：陶子*
+
+**更多資訊，請關注：**
+[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亞墨爾本雅典娜農場Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亞墨爾本雅典娜農場GTV直播1臺](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
