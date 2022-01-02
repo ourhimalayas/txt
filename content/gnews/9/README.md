@@ -2,26 +2,38 @@
 ---
 
 
-## 浅解大直播中金木水火土和颜色之间的关系
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1815383/)
+## 加拿大魁北克省再度无限期宵禁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815496/)
 
-撰稿：卡西欧
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image001.jpg)
-古老的中华文明中关于阴阳和五行，其博大精深和玄妙浩瀚如海，包罗万象。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月31日，加拿大魁北克省通过手机和电视通报向当地民众发出了即将执行无限期宵禁的紧急警报。这也是魁北克省在2021年内实行的第二次宵禁。
 
-五行的金、木、水、火、土是用五种元素或符号做代表，来阐述大自然和人类，人类社会之间不可分割的关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpeg)
 
-我们非常熟悉的「算命」和「风水」中就可以看到，命理上的八字在中医上可以对应人体的五脏如心肝脾肺肾，而且可以徙在五官上呈现出来的表相来断症：如脸色和眼睛呈黄色可能肝炎等；在风水上对应家中各个方位来看，可以趋吉避凶；在颜色上对应的分别是白、绿、蓝（黑）、红、黄。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image002.png)
-若五行对应一个国家和政权，天干地支排列出的金、木、水、火、土就可断出国运吉凶和政权的兴亡。天干地支的关系是「天干为君地支为臣」的君臣关系，地上的一切只能顺应上天做出反应，若背道而行就是我们常说的「逆天而行」，那么地上就会有反常的现象出现：例如天灾人祸、甚至战争和朝代更迭。
+有关报道提到，新的宵禁目前尚无截止限期，当中禁止该规定豁免之外的人员从晚上10点到第二天早上5点间在街上游荡，违者将被处以1000至6000加元的罚款，而14岁及以下的青少年将被罚款500加元。此外，该省的健身房、餐馆、酒吧等室内服务关闭，非同住的家庭聚餐也被禁止。同时，当地学校的开学日期将被推迟至2022年1月17日。 目前，当地已有一名法裔女子因无视宵禁规定被警方拘留。
 
-2022年是壬寅年，天干地支都属阳性，即其作用和影响都较阴性来得更为猛烈和深远。从其性来说，壬为水，颜色是蓝色；寅为木，对应颜色是绿色。
+对此，相关人士则指出，当地政府使用安珀警报向居民发出宵禁通知的做法不但对魁北克人极为不尊重，也增加了民众的焦虑与恐慌。该人士还表示，相较于加拿大其他地区对待奥密克戎疫情的温和做法，魁北克省再一次施行最严格的管控措施势必引起当地民众的强烈不满。
 
-中共是红色政权，红色代表「火」，火的特性是需要木来维持，但如果是阳木的话则一发不可收拾，（不知道郭先生直播中所说的「你会看到盘古和裕达变成火龙和火的佛手」是不是指这个）；而同时火忌大水，壬水是涛天大水，从天而来的壬水，会把地上的火连根拔起。我们新中国联邦的「七芒星」底色刚好就是克红色的「蓝」。
+参考链接：
+1）[Here’s what you need to know about the latest Quebec curfew and other restrictions](https://montreal.ctvnews.ca/mobile/here-s-what-you-need-to-know-about-the-latest-quebec-curfew-and-other-restrictions-1.5724818)
+2）[https://twitter.com/themarieoakes/status/1477126355569553411?s=21](https://twitter.com/themarieoakes/status/1477126355569553411?s=21)
+3）[https://twitter.com/themarieoakes/status/1477104981564084227?s=21](https://twitter.com/themarieoakes/status/1477104981564084227?s=21)
 
-中共是共产国际洐生出的一个恶魔，在中华大地横行了近百年，残害和屠杀了我们不计其数的同胞家人，现在中共更丧心病狂地全世界放毒，妄想统治全世界，我们新中国联邦真的是带着上天的旨意，下承民意来消灭这条红龙的天选之人，而2022壬寅年是上天灭共之年!
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-校对 / 封面合成：文粤 / 发布：文粤
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

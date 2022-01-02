@@ -2,28 +2,28 @@
 ---
 
 
-## 泽连科医生染疫后用羟氯喹自行治愈
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815508/)
+## 世界卫生委员会呼吁停止实验性“疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815598/)
 
-作者：纽约香草山 医疗部- 云豹
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，大力推广中共病毒治疗指南的泽连科医生在盖特平台上发布了一条视频表示，他本人在4天前感染了中共病毒，但在按时服用过羟氯喹后已经痊愈。
+2021年12月31日，据盖特消息显示，世界卫生委员会WCH日前呼吁，全球应立即停止接种中共病毒实验性“疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.11.png)
+一位该组织的工作人员在视频中表示，关于中共病毒，眼下其实已经存在安全、有效和低负担的治疗方法，但各个国家的政府、卫生部门和主流媒体非但不推广这些安全、实惠的治疗方法，反而只是将那些感染者隔离在家中，直至他们的病情恶化到需要入院治疗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpeg)
+与此同时，科学研究、专家经验和大量案例都清楚地表明，目前正在大规模进行的中共病毒实验性基因疫苗存在着严重的风险。该工作人员提到，这些基因疫苗既无效，更不安全，甚至已经被证明是有毒的。此外，这些中共病毒疫苗中的已知成分被证明会对人体造成生物危害，而其中未被公开的成分则更让人担忧，甚至可能会对被注射者构成更大危害。而世界各地的不良反应报告也表明，中共病毒疫苗有严重的副作用，甚至会使接种者死亡。
 
-泽连科医生自述，他患病的原因可能是感染了孩子无意中从学校带回的中共病毒，此外，其自身并没有完全依照自己的建议服用预防药物。
+对此，世界卫生委员会认为，对于这些中共病毒疫苗给个人和群体健康所构成的严重风险，政府、医疗机构和其他公司都表现出不诚实的做法。因此，该组织发布了一项停止和终结中共病毒疫苗接种的声明，当中要求政府、相关机构和公司以及个人立即停止参与中共病毒疫苗的制造、销售、管理和推广，并立即采取果断行动制止这一前所未有的医学实验，以此停止对包括儿童在内的民众造成更大的伤害。
 
-医生表示，他在4天前开始出现喉咙痒及流鼻水等症状，但并没有伴随发烧症状，同时，他也在症状出现后立即使用了羟氯喹作为治疗，目前其身体已恢复正常。
+参考链接：
+1）[https://gettr.com/post/pl6y3w809a](https://gettr.com/post/pl6y3w809a)
+2）[World Council for Health Calls for an Immediate Stop to the Covid-19 Experimental “Vaccines”](https://worldcouncilforhealth.org/campaign/covid-19-vaccine-cease-and-desist/)
 
-泽连科医师最后强调，用羟氯喹治疗中共病毒非常有效，他眼下现在感觉很好，因此希望能将自己的经验分享给所有人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-参考链接：[Zelenko Protocol testimonial from Dr. Zelenko](https://app.gettr.com/post/pl8exf8dd6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

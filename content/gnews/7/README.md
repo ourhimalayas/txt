@@ -2,29 +2,36 @@
 ---
 
 
-## 大直播后记——七哥谈蝴蝶效应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1815412/)
+## 泽连科医生染疫后用羟氯喹自行治愈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815508/)
 
-整理：雅典娜速记组
-编辑：**Kelly**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-14.png)图片来源：郭先生盖特大直播视频截屏
-感谢小羊，刚才重点说的特别好。我们坚持唯真不破，从一只蝴蝶翅膀的力量到现在已经掀起了拯救全人类的力量。 这要是在5年前我们说这话，人家说我们是不是神经 病了？人家都不会搭理我们的。那么到今天，我们用我们的唯真不破和追求真善狠的战术， 同时最重要的，我们让中国人和全世界人学会辨别真假、认识善恶，这种力量可以说是深入全球人民的民心。特别是现在共产党病毒疫苗、大外宣、武汉病毒，还有在四川、西安、武汉和香港、台湾、新疆大屠杀的一系列事件，共产党已经进入了塔西佗陷阱。 可以说从2017年的爆料到今天，我们用一次一次的事实和情报证明了共产党的邪恶以及我们拯救人类的力量。
+作者：纽约香草山 医疗部- 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月31日，大力推广中共病毒治疗指南的泽连科医生在盖特平台上发布了一条视频表示，他本人在4天前感染了中共病毒，但在按时服用过羟氯喹后已经痊愈。
 
-更重要的是我们要看到战友，今天这一百多位战友代表着背后亿万个战友。如果一年前、五年前这样说人家以为我们是神经病，现在你们是深信不疑的。而且能看到你们每个人都是一只蝴蝶，是你们每个人扇起那蝴蝶翅膀的力量而不是我。没有你们，我什么都不是，我没有任何超神秘的力量。满勺做过很多直播，跟我们老白做过那么多直播。他们讲过很多，我跟他们学了很多东西。战友“天赐良知”、扬帆农场我们的“双鱼侠”、澳喜的“宁南”、“一拳超人”是第一次跟七哥同心同框，约瑟是做了很多直播，他的英文七哥羡慕的不得了。小羊做了很多直播，你每次你讲的都比七哥的站位高，你有些方面肯定不如我，但是有些方面一定是比我强的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpeg)
 
-我跟你们在一起的时候就像蝴蝶扇动翅膀一样，我不是一生下来就长翅膀，我也不是一生下来就会呼扇这个翅膀，是因为和你们大家共同的进步和成长才能有我的今天，没有你们，我什么都不是。所以说我今天坐这儿每时每刻的直播，我觉得是我们所有的人生命共同的成长，共同呼吸、共同奋斗的结果。
+泽连科医生自述，他患病的原因可能是感染了孩子无意中从学校带回的中共病毒，此外，其自身并没有完全依照自己的建议服用预防药物。
 
-我们谁也不用感恩谁，但是我们要珍惜，我们要爱所有的战友们，我们今天这么长时间直播，大家觉得时间不够用。我们（爆料革命）已经过去5年了，从来没觉得时间够用过，从来没觉得我们浪费过生命，从来没觉得生命这么有价值，这么精彩过。 每天醒来的时候充满了无限的希望和无限的憧憬，更重要的是我们能看到自己行动的结果。
+医生表示，他在4天前开始出现喉咙痒及流鼻水等症状，但并没有伴随发烧症状，同时，他也在症状出现后立即使用了羟氯喹作为治疗，目前其身体已恢复正常。
 
-发布：去中心化Math
-**
-**更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+泽连科医师最后强调，用羟氯喹治疗中共病毒非常有效，他眼下现在感觉很好，因此希望能将自己的经验分享给所有人。
 
+参考链接：[Zelenko Protocol testimonial from Dr. Zelenko](https://app.gettr.com/post/pl8exf8dd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

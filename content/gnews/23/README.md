@@ -2,35 +2,43 @@
 ---
 
 
-## 社交媒体寡头压制言论自由已图穷匕见
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815159/)
+## 法国网球明星Benoit Paire在第250次Covid检测呈阳性后发飙
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1815249/)
 
-作者：纽约香草山教育部 Irene木木
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001.png)
+32岁的法国网球明星贝努瓦.帕尔（Benoit Paire）接种了中共病毒疫苗，曾表示他 “百分之百 “赞成接种疫苗，但接种后并没有让他恢复之前的生活，他不明白接种疫苗到底有什么意义。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在帕尔 “第250次中共病毒检测呈阳性 “，并威胁到他继续参加澳大利亚网球公开赛后大发雷霆地说, “我才不管这什么病毒了！”
 
-2021年12月31日，盖特首席执行官杰森-米勒先生在相关媒体上发表署名文章指出，社交媒体寡头对自由言论的压制在2021年已显露无余。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-10.49.07-PM.png)
-米勒先生解释道，过去的一年里，从普通民众到知名公众人物，甚至包括前任总统川普，他们都因表达政治观点而被大型社交媒体公司禁言或封锁。然而，各类定向犯罪行为，甚至针对儿童的网络犯罪也在大幅上升。这当中，最为典型的例子应属社交媒体平台对有关中共病毒疫情以及疫苗真相的打压，他们封锁了所有传播真相的用户账号。
+帕尔最近的病毒检测呈阳性，被迫在某地进行隔离，有可能使他错过澳大利亚网球公开赛。
 
-米勒先生认为，社交媒体寡头已经将自己看作是“思想警察”，为此，他们通过严厉的审查制度和有害的营销技巧推行着他们所认可的意见。但是，随着社交媒体市场竞争的加剧，人们早已厌倦了这些变本加厉的言论审查。
+帕尔曾多次在大满贯比赛中打进第四轮。
 
-对此，米勒先生提及，这也是盖特能供横空出世并能茁壮发展原因——盖特为世界各地的人们提供一个可以自由、安全地表达政治观点的言论自由平台。米勒先生补充道，自2021年7月4日上线以来，盖特本着“不因政治观点、宗教信仰而删除言论，并对网络犯罪行为零容忍”的宗旨，迅速积累了超过300万注册用户，成为有史以来发展最快的社交媒体平台。
+但2020年美国网球公开赛首场比赛前几天，帕尔中共病毒检测呈阳性，并被排除在外。
 
-参考链接：[MILLER: Big Tech’s Worst Hits of 2021.](https://thenationalpulse.com/2021/12/31/miller-big-techs-worst-hits-of-2021/)
+今年早些时候，他在飞往墨尔本的航班上有一位乘客中共病毒检测呈阳性。帕尔被迫在澳大利亚公开赛前，忍受了14天的酒店艰苦隔离期。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+随后，帕尔在首轮比赛中失利，对澳大利亚网球公开赛发起了惊人的言语攻击，并攻击组织者不尊重球员的做法。
 
-编辑/总编：Zion文恩 
-校正/发稿：我不在这里
+澳大利亚网球公开赛将于明年1月22日开赛，留给帕尔几周的时间来做检测，如果检测呈阴性，并评估其是否适合参加比赛。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+
+
+[新闻来源链接](https://www.thegatewaypundit.com/2021/12/cant-deal-covid-sht-anymore-french-tennis-star-goes-off-250th-positive-covid-test-threatens-derail-australian-open/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

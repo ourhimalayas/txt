@@ -2,62 +2,34 @@
 ---
 
 
-## 中共国“大脑控制”战争工程曝光
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1815497/)
+## 德国超过95%的奥密克戎病例接种过疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815597/)
 
-据《华盛顿时报》作者：Bill Gertz，2021年12月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-95.png)2019年10月1日，在北京举行的纪念中国共产党成立70周年的阅兵式上，运载DF-41弹道导弹的军车，观众挥舞中共国国旗。图片来源：Mark Schiefelbein
-美国总统拜登印太地区最高国家安全顾问表示，中共国军事集结引发了整个亚洲的不安，也是最近美英澳三方安全公约聚焦该地区的驱动因素。
+作者：纽约香草山翻译部 defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月31日，据联邦政府出具的一份新报告显示，德国超过95%的奥密克戎变种报告病例发生在完全接种过中共病毒疫苗的民众身上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.01.png)
+有报道提及，德国机构罗伯特科赫研究所于2021年12月30日发表的一份文件中包含了四千两百零六名感染中共病毒奥密克戎变种的患者的疫苗接种状态信息。 其中，有95.6%的感染者至少接种了两剂中共病毒疫苗，另有28%的患者接种了第三剂加强针。此外，仅有186名感染者未曾接种过疫苗，占所有新变种感染病例数的4%。
 
-**新闻和分析**
+对此，报道中批评道，这些数据基本上可以表明，中共病毒疫苗对预防民众感染奥密克戎变种方面没有任何效用，但制药公司却试图继续推进疫苗的接种，同时，各大社交媒体平台也在着重审查那些关于中共病毒疫苗副作用和不良反应的报道。
 
-美国商务部对中国科技公司实施制裁，并在上周透露中共国军方正在从事与“大脑控制”战争研究有关的危险工作。
+参考链接：
+1）[REPORT: Over 95% of Omicron Cases are in Vaccinated People.](https://thenationalpulse.com/2021/12/31/vaccinated-21-times-more-likely-to-get-omicron/)
+2）[https://www.gettr.com/post/plbrglc451](https://www.gettr.com/post/plbrglc451)
 
-制裁公告对中国军事医学科学院和11个相关中国研究机构的工作提供了有限但具体的细节描述。美国商务部工业和安全局表示，该学院及其附属机构正在使用 “生物技术流程来支持中共国的军事终端和最终用户，包括所谓的脑控武器”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-然而，Inside the Ring获得的人民解放军的三份报告揭示了中共国脑战研究的深度，并表明它已经持续了数年之久。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-获得的2019年报告讨论了开发脑控武器，作为中共国官员所谓的战争“智能化”的一部分。
-
-根据其中一份报告，科学和技术进步正在导致制服敌人的方法和能力的升级。题为《军事优势概念的未来 》的报告说，“战争已经开始从追求摧毁身体转向瘫痪和控制对手。”
-
-报告说：“重点是攻击敌人的抵抗意志，而不是身体的破坏。”
-报告补充说，脑科学正在被用来扩展人类意识领域的战争，“使大脑成为新概念武器的主要进攻对象和防御目标”。
-
-报告引用中国古代战略家孙子的格言认为“不战而胜”不再是牵强附会。
-这份发表在官方军事报纸《解放军报》上的报告还声称，中共国正在为军事目的融合四个主要技术领域：纳米、生物、信息和认知。
-
-预期的结果将是增强个人能力。报告说，“未来的人机融合将围绕争夺大脑展开，交战双方将利用各种脑控技术和有效设计，集中力量夺取敌人的思维和意识，甚至直接干预敌人领导人和工作人员的思维，并以此赢得战争”。
-
-同样来自2019年的第二份中共国报告披露，脑机接口是北京发展智能化战争计划的一部分。第二份报告说，“交互式智能化”将涉及“通过成熟的脑机接口用思想直接控制机器”。
-
-融合式智能化也在研究之中，涉及到将人类和机器融合在一起，以实现增强人类生理和认知能力的目标。
-
-解放军公布的第三份报告显示，中国电子科技集团正在研究用于战争的“大脑对抗”技术。
-
-第三份报告说，其各种研究重点包括“大脑控制技术，如测量大脑中的神经元活动并将神经信号转化为计算机信号，在大脑和外部设备之间建立单向或双向的信号传输”。
-
-报告说，目前还在进行“神经防御”技术的研究，如“利用电磁、生物物理和材料技术来加强人脑对外部攻击的防御”。
-
-一种大脑增强技术涉及刺激或操纵大脑活动的可穿戴设备。另一种是使用大脑植入的微芯片或其他计算机接口来增强大脑功能。
-
-美国商务部在制裁这些中共国研究所时说，这些研究活动“违背了美国的国家安全和外交政策”。
-
-受到制裁的其他研究所包括中国卫生服务和医学信息研究所；辐射和放射医学研究所；基础医学研究所；卫生和环境医学研究所；微生物学和流行病学研究所；毒理学和药理学研究所；医疗设备研究所；生物工程研究所；野外输血研究所；疾病控制和预防研究所；以及军事兽医研究所。
-
-这11家研究所已被列入商业黑名单，称为实体名单。
-
-原文连接：[**https://www.washingtontimes.com/news/2021/dec/29/pla-brain-control-warfare-work-revealed/**](https://www.washingtontimes.com/news/2021/dec/29/pla-brain-control-warfare-work-revealed/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
