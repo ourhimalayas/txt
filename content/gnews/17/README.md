@@ -2,29 +2,30 @@
 ---
 
 
-## 西安封城，运送物资靠人肉接力遭网友炮轰
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1814159/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-9
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814194/)
 
-![西安封城讓民眾叫苦連天直呼快斷糧，當地使用人肉接力方式運送食材讓中國網友罵翻，（圖取自微博）](https://img.ltn.com.tw/Upload/news/600/2022/01/01/phpNHa86D.jpg)*图片来自微博*
-据自由时报2022年1月1日报道，中共国陕西省西安市因疫苗灾难导致封城后，不少人微博发文称几乎弹尽粮绝。“西安直播”博主贴出一段“人肉接力送菜”的影片，显示大量堆积在地上的物资由穿着防护服的工作人员手动接力传送。强调当地政府正在运送物资。影片一出，遭中共国网友群嘲和炮轰。
+编辑: 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+HBO VICE的剪辑视频采信了一个名为“螃蟹”的工程师对郭先生的诽谤性叙述和评论，谎称他曾帮助郭先生创立了GTV和Gettr，郭先生没有向他支付最后的费用并将他的信息卖给了中共，使他的国内银行账号被冻结，以此恶意攻击郭先生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-11.png)
+事实上，在郭先生创立GTV早期，曾准备了几套方案。“螃蟹”只是为郭先生的项目编写代码的很多人之一，与之签订工作合同的也是目前的GTV之前的一家公司。当郭先生发现“螃蟹”做出的方案并非自己所需，并且在盗取GTV的机密信息时，立即指示相关公司向他支付了所有费用，并完全放弃了他的想法和具体工作，目前的GTV、Gettr与“螃蟹”没有丝毫关系。
 
-光看中共国媒体，整个世界水深火热，只有中共国风景独好。只是，在人民危难之时，中共政府救济的物资都在新闻里，永远送不到普通百姓的餐桌上。跟着共产党，走进火葬场，任何相信党会派人来救你的民众，都是自己把刀主动递给杀人凶手，还指望危难时凶手能来解救你。怎么可能救？凶手就是杀人的。中共七十年不改杀人的本性，西安人道灾难，中共当局不会想着救济，而是希望民众多死、早死、快死。所以，物资永远在路上，影片只是为作秀。
+接下来让我们还原事实真相的第9部分：反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。
 
-新闻参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3787274](https://news.ltn.com.tw/news/world/breakingnews/3787274)
+新闻连接: [HBO采访郭文贵先生背后的真相](https://www.gettr.com/post/pkgcj58f1f)
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-* * *
+校正/发稿：浪迹天涯
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

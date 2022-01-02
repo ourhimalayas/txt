@@ -2,45 +2,37 @@
 ---
 
 
-## 有声|《告别2021》
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1814087/)
+## 以色列不需要美国的许可就可以打击伊朗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814104/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2021已经过去
-我最大的信念
-坚定不移心中的信仰
-健康的活着，是赢家
-生活虽然异常艰难
-黑暗依然笼罩当下
-可我坚信坚强的每一步
-就离歼灭中共的终极目标更近一步
-虽然肉身被党囚
-可我的灵魂飞翔
-自由在喜马拉雅
-苟活在谎言世界
-时悲悯时激情
-时光亮时消沉
-可我们知道，它们也知道
-那一刻必定会发生
-所以我坚强
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/以色列.png)图片来源：rt网
 
-原文链接：[《告别2021》](https://gnews.org/zh-hans/1813076/)
 
-音频处理：喜山必胜Maverick
+**整理翻译：美哥
+编辑：Candy**
 
-发稿：Daxia
+1月1号，据RT电视台报道，以色列宣称如果有必要，将动用超过世界想象的能力来对付德黑兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+以色列外交部长亚伊尔·拉皮德清楚声明，以色列可以不通知美国拜登政府，武力阻止伊朗发展核武器。2021年最后一天，拉皮德在接受以色列第12频道采访说道：“以色列将会尽一切力量维系其安全。我们不需要任何人的许可，从我们建国第一天就坚持这一点。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当谈到以色列是否拥有成功实施这类攻击的手段时，这位外交部长说：“以色列有能力，其中一些是世界，甚至是该领域的一些专家都无法想象的；而且以色列将保护自己免受伊朗的威胁。”
 
+目前拜登政府恢复了2015年伊朗核协议（JCPOA）的对话，在该协议框架下，伊朗同意收紧核计划以换取国际制裁的减免。但同时以色列官方与军方就一直酝酿着对伊朗的空袭。德黑兰对以色列的警告表示轻蔑，称其为“空头威胁”，但强调对任何侵略都会予以强烈回击。
+
+2018年，前总统川普曾强势的取消了美国主导的伊朗核协议，称其为“史上最差的交易”。以色列也严正反对，坚持认为该协议无法阻止伊朗核弹的进展。
+
+在12月31的采访中，拉皮德称，在维也纳正在进行的会谈里，德黑兰没有屈服。“以色列不反对一个好的交易，只是反对错误的交易。”
+
+原文链接：[https://www.rt.com/news/544958-israel-us-iran-jcpoa/](https://www.rt.com/news/544958-israel-us-iran-jcpoa/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
