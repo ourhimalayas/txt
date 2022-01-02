@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 8:51 AM (UTC)`
+
+1/1/2022 Miles Guo: Every fellow fighter participating in yesterday’s I Am a Sing-ro was very touching, showing that we can do better than what we are doing now, and we need to have more fabulous shows like that; we should trust the power of human civilization even more, and hope to have more fellow fighters from Europe, the origin of civilizations, to achieve what is mentioned in the Declaration of the New Federal State of China<br/><br/>1/1/2022 文贵直播: 《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目；我们要更加相信人类文明的力量，希望明年有更多来自文明发源地欧洲的战友们站出来去实现《新中国联邦宣言》<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/02/08/a0df5abe-e9de-35eb-466c-d629137e947a/out.jpg)
+
+---
+
 `@miles 1/2/2022 7:58 AM (UTC)`
 
 【世界多语言文字版】2020年6月4日新中国联邦宣言<br/><br/>https://gnews.org/zh-hans/221944/<br/><br/>June 4, 2020 Declaration of the New Federal State of China in Multiple Languages<br/><br/>https://gnews.org/221992/
@@ -144,13 +151,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 20211229日本朝日TV報導CCP強改盤古大觀龍頭<br/>（完整·視頻、音頻清晰版）
 ![img](https://media.gettr.com/group33/origin/2021/12/31/12/5e892cbe-08b6-58fa-f8fe-37c9c121bf75/out.jpg)
-
----
-
-`@miles 12/31/2021 12:31 AM (UTC)`
-
-12/29/2021 Miles Guo: Japanese media’s coverage on the CCP's converting Pangu Plaza's “dragon head” tower into a “bird's head” led to a major event in the Sino-Japanese relationship - the CCP’s diplomats threatened the Japanese media and forced it to remove the video; I have declined interviews with 7 major world-class media outlets, because it’s not the time yet<br/><br/>12/29/2021 文贵直播：日媒报道中共把盘古大观龙头变鸟头竟引起了中日之间的政治大事件 - 中共外交官威胁日媒并将迫使其将视频下架；文贵拒绝了7家世界级媒体的采访，因为还不到时候<br/>
-![img](https://media.gettr.com/group14/getter/2021/12/31/00/b7576602-8015-a3bf-76a9-10ae97c96453/out.jpg)
 
 ---
 
