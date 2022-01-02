@@ -2,32 +2,45 @@
 ---
 
 
-## 《我是音雄》第二季2021年度总决赛完美收官
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814257/)
+## 俄罗斯囤积黄金和外汇，新兴市场引领黄金购买热潮
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814290/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-4.png)
-Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-《我是音雄》是由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目，迄今已进行了两季，挖掘出无数各个层面的人才，成为新中国联邦的中坚力量。今晚郭先生还给“十大音雄”颁发了奖品之外的“惊喜”，即郭先生亲笔签名、歃（sha，四声）血为盟的《新中国联邦宣言》，作为对杰出战友的表彰与鼓励，也为2021年划下了一个完美的句号。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/54721.jpg)图片来源：Comos Chronicle
 
-新闻链接：[《我是音雄》第二季总决赛暨跨年颁奖典礼](https://gtv.org/video/id=61cf9aa8ecc0b216cbb2da80)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+#### 整理报道：文泓
 
-总编/编辑:飞虹
+据《RT新闻》报道，俄罗斯央行最新数据显示，截至12月24日当周，俄罗斯外汇持有量增长0.7%，达到6305亿美元。目前俄罗斯是世界第五大外汇储备国。
+俄罗斯的国际储备是由货币黄金、外币和特别提款权组成的高流动性外国资产，由俄罗斯中央银行和政府支配。
+2015年，在2014年石油价格危机期间，政府不得不花费约2,500亿美元来救助经济后，外汇储备降至2008年后的低点3,560亿美元。
 
-校正/发稿：浪迹天涯
+从那时起，俄罗斯的黄金和外汇持有量几乎翻了一番。它们超过了监管机构在2019年6月设定的5000亿美元的目标水平，此后一直保持在该门槛之上。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+2020年，尽管冠状病毒大流行对经济产生了影响，迫使政府增加支出以支持企业和家庭，但其外汇持有量仍增加了7.5%至5,958亿美元。
+仅上个月，外汇储备就达到了6263亿美元的历史新高，每周增长41亿美元。
+
+同期，全球各国央行外汇储备中的黄金持有量一直在增加，2021年创下31年来的新高。与此同时，美元持有量却一直在下降。
+根据世界黄金协会的数据，在过去十年中，银行的黄金库存增加了4,500多吨。截至9月，储量总计约36,000吨，是1990年以来的最大数量，比十年前增加了15%。
+与此同时，美元在外汇储备中的占比在过去十年急剧下降。2020年，美元兑各国货币比率跌至25年来的最低水平。
+
+分析师表示，各国央行，尤其是新兴经济体的央行正在继续转向黄金，反映出全球对以美元为基础的货币制度的担忧。2021年前9个月，泰国购买了约90吨、印度70吨和巴西60吨黄金。
+2008年全球金融危机后，各国央行和公共机构开始增持黄金，导致美国国债资金外流，导致美元资产贬值。
+截至12月30日，黄金价格保持坚挺，交易价格为每金衡盎司1,806美元。
+
+新闻链接：
+1、[Russia keeps stockpiling gold & foreign currency — RT Business News](https://www.rt.com/business/544829-russia-foreign-reserves-surge/)
+2、[Countries accelerate shift away from US dollar — RT Business News](https://www.rt.com/business/544825-dump-dollar-gold/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
