@@ -2,19 +2,154 @@
 ---
 
 
-## 西安疫情 特定疫苗 七窍流血
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1813832/)
+## 《无问西东》Forever Young
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1813900/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+秘密翻译组-北美组
 
-12月29日，郭文贵先生在GTV大直播指出：
+演唱：木兰传奇
+MV制作：蓝光
 
-中共疫苗的浓度含量分为50、100和250微克。陕西省混不吝的书记，特别预订了1600万支250微克高浓度的疫苗给老百姓接种。这次西安疫情的所谓热血症，就是这种高浓度毒疫苗的剧烈反应，也就是7窍流血。
+谁的手 总紧紧牵住我的手
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Whose hand is always holding my hand tightly
+
+不回头 在人群沙漠中漂泊
+
+Don’t look back, drifting in the desert of people
+
+你别用 含着泪的眼睛看我
+
+Don’t look at me with tearful eyes
+
+听蝉声沉落
+
+Listen to the cicadas singing
+
+请抬头 今宵露重
+
+Please look up, the dew is heavy tonight
+
+是谁用 带露的草叶医治我
+
+Who heals me with the dewy leaves of grass
+
+愿共我 顶风暴泥泞中跋涉
+
+May I walk with you through the mud and storms
+
+是谁说 经过的路都是必需
+
+Who said we must endure all the hard journeys
+
+磨难尽收获
+
+Experiencing all the hardships and tribulations
+
+山云做幕 攀岩观火
+
+Clouds and mountains are the curtains, watching the fire on the rock
+
+请由我引吭高歌
+
+Let me sing my song
+
+面迎啊海上风
+
+With the sea wind brushing my face
+
+在世界之外 在时间之中
+
+Beyond the world and time
+
+无问西东
+
+We shall be forever young
+
+就奋身做个英雄
+
+Let me be a hero
+
+不枉那青春勇
+
+Live up to youth and courage
+
+愿心之自由 共天地俊秀
+
+May my heart be free and the world be beautiful
+
+有情有梦
+
+With love and dreams
+
+是谁用 带露的草叶医治我
+
+Who heals me with the dewy leaves of grass
+
+愿共我 顶风暴泥泞中跋涉
+
+May I walk with you through the mud and storms
+
+是谁说 经过的路都是必需
+
+Who said we must endure all the hard journeys
+
+磨难尽收获
+
+Experiencing all the hardships and tribulations
+
+山云做幕 攀岩观火
+
+Clouds and mountains are the curtains, watching the fire on the rock
+
+请由我引吭高歌
+
+Let me sing my song
+
+面迎啊海上风
+
+With the sea wind brushing my face
+
+在世界之外 在时间之中
+
+Beyond the world and time
+
+无问西东
+
+We shall be forever young
+
+就奋身做个英雄
+
+Let me be a hero
+
+不枉那青春勇
+
+Live up to youth and courage
+
+愿心之自由 共天地俊秀
+
+May my heart be free and the world be beautiful
+
+有情有梦
+
+With love and dreams
+
+善良，无畏，勇敢，同情
+
+kindness, fearlessness, courage, compassion
+
+愿你在被打击时，记起你的珍贵，抵抗恶意
+
+May you remember your preciousness and resist malice when you are struck down
+
+愿你在迷茫时，坚信你的珍贵
+
+May you believe in your preciousness when you are confused
+
+爱你所爱，行你所行，听从你心，无问西东
+
+Love what you love, do what you do, listen to your heart, we shall be forever young
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

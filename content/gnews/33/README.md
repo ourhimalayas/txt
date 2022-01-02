@@ -2,103 +2,40 @@
 ---
 
 
-## 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1813825/)
+## 走上特权之路的新西兰女总理
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1813896/)
 
-[https://gtv.org/video/id=61d07c29fb16a93456c037ec](https://gtv.org/video/id=61d07c29fb16a93456c037ec)
+题材：新闻评论
 
-**郭文贵**
-**Miles Guo**
+作者：sherryok(水云间)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-1.png)
+新西兰“和蔼可亲”， 经常上脸书发视频的女总理杰辛达（Jacinda Arden），在公开表示要把新西兰人分为两个阶级，苗族（接受新冠疫苗）和无苗族（不接受新冠疫苗）后，淳朴的新西兰人开始聚焦这位41岁的女总理，希望发现这位女总理身上到底发生了什么，让她不惜撕掉民主，富有爱心的伪装，也要将疫苗强制，分化民众进行到底。
 
-咱们很多人来看这个问题时候，对阿富汗人讲是个灾难
-When many of us look at this issue that it’s a disaster for the Afghans
+2021年圣诞和2022年新年假期，这位女总理在媒体上消失了，人们猜测她是为筹备2022年1月的婚礼在忙碌，但是人们发现疫苗接种点也关门休息了，原来新西兰的病毒大流行的紧急程度是跟着政客的时间表走的啊！但是12月27日，新西兰第一例进入社区的奥米克戎病例， 又将杰辛达推到舆论中心，这位自英国远道而来的唱片骑师 (DJ) 是来参加基督城的跨年音乐节的，而杰辛达的未婚夫盖弗（Gayford）， 做为知名主持人，多次音乐活动的幕后推手，与音乐节的组织筹备有千丝万缕的联系。一张新西兰医务工作者的聊天截屏显示，盖弗曾过问为入境的音乐家们做快速检测的特殊安排，而非广泛使用的PCR测试，因为这些音乐家们不喜欢PCR测试。
 
-对待很多人道上绝对是灾难，我有很多朋友，你也知道我一直关注这个事情
-It is definitely a disaster for humanity, I have many friends there and you know that I have been following this matter
+英国DJ这次入境是他在新西兰2020年12月关闭国门后第三次豁免入境。这更引起了大众的不满。媒体质问为什么众多急需的医疗护理工作者不能获得边境豁免，多少人去世都见不到亲人，一个唱片骑师却能有如此特权，据报道，这位名叫伊瑟雷奇（ Etheridge， 艺名维度）的DJ，是根据“其他关键工人边境例外”标准三度获得豁免，以便在节日期间表演。新西兰移民局评估他具有“在新西兰不易获得的独特经验和技术或专业技能”，并且“在工作中承担着时间紧迫的角色，为国家或地区经济带来显着的更广泛利益。” 难道新西兰的音乐骑师不具备在节日中打碟的能力？一些网友认为， 这绝对是对新西兰音乐工作者的侮辱。同时，杰辛达年轻的时候在音乐节上做DJ的照片也被挖出，杰辛达从政前，正式的工作就包括DJ这一项，杰辛达与她的未婚夫2013年认识的时候，也是从共同爱好DJ的话题聊开的。
 
-但作为美国来讲，说实在话一定要看到
-But to be honest as the United States is concerned, we must see
+新西兰事务网站12月30日报道了此事，并列举了节日期间海外新西兰人被拒绝豁免，无法回家与亲人团聚的故事。居住在[基督城](https://www-stuff-co-nz.translate.goog/the-press?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)的实验室技术员，印度移民达里亚·康德 (Dhariya Kant)说，他认为 DJ的豁免是不公平的，他在印度的女儿只有两岁，自 2019 年以来，他一直在[为家人申请签证来新西兰](https://www-stuff-co-nz.translate.goog/national/immigration?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)，在此期间，他们被禁止访问。等待家人回国的这段时间，康德一直是“精神上、身体上、情感上的折磨”，听到一位DJ一年之中获得三项豁免的消息，他感到“痛苦”。
 
-阿富汗将近从过去的1000多万人到2000万人口，到最后美国在那儿驻军
-Afghanistan has grown from a population of more than 10 million in the past to a population of 20 million, to the end where the United States stationed troops there
+来自卡皮蒂海岸的莱斯利·哈迪 (Lesley Hardy) 迫切希望将她的儿子从澳大利亚珀斯接回家，在那里他患有严重的精神崩溃。但莱斯利度过了无数令人沮丧的一天，试图为他预订隔离位置，但都失败了。
 
-每年花了几千亿进去，到变成了将近5000万人口，人口增长
-that US has spent hundreds of billions dollars in there every year, and it has become a population of nearly 50 million, the population has grown
+据报道今年 9 月底左右，超过[31,000 人排队争​​夺](https://www-stuff-co-nz.translate.goog/travel/news/126518008/excited-as-hell-but-bittersweet-some-secure-miq-spots-as-tens-of-thousands-miss-out-in-second-round-of-virtual-lobby?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)三个月内提供的 3718 间管理隔离室。超过 6000 人设法获得了一个位置，其中包括[海外新西兰人，他们的家人已经去世并为获得一个位置而奋斗了数月。](https://www-stuff-co-nz.translate.goog/travel/news/126518008/excited-as-hell-but-bittersweet-some-secure-miq-spots-as-tens-of-thousands-miss-out-in-second-round-of-virtual-lobby?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB)
 
-塔利班才多少人，号称所谓80万大军，实际上就30几万人
-How many are the Taliban? The so-called 800,000 army is actually only 300,000 people
+新西兰行动党党魁西蒙（David　Seymour）为新西兰本土DJ感到遗憾，他在推特上讽刺当局，曾经政府是非常支持本土音乐，但今天一个英国DJ竟然具备无以伦比的经验和技巧，而且这些是在新西兰无法获得的，以至于严重到要给他三次豁免入境。
 
-一个5000万人的国家，被30万人给蹂躏着要饿死一半人
-A country of 50 million people are ravaged by 300,000 people and half of them will starve to death
+这不得不让人想到杰辛达的婚礼风波，原本预订在吉斯本一家拥有２００多年历史的著名餐厅举行，但是因为坚持要用一位知名的英国大厨掌勺，餐厅只要提供后院种植的有机食材即可，这一变更没有提前告知餐厅，惹得该餐厅老板大怒，预订取消，并向总理索赔５０００元，认为杰辛达侮辱了这家餐厅的声誉。“那位英国大厨除了能给总理增加出风头的机会，他并没有像我这样有３３年的经营餐厅的经验！”如今，婚礼改在一位美国富翁的新西兰庄园举行，当年购买新西兰的尼克斯海角，还因为涉及毛利人传统保留地引起了一场风波。
 
-就像我们中国人，14亿人被所谓的3000多个人民代表和中央政治局被七个常委就给全国人民
-Just like us Chinese people, 1.4 billion people are represented by the so-called more than 3000 people’s representatives and the whole nation is represented by the Political Bureau of the CPC Central Committee by seven Standing Com-mittees
+说到出风头，还真不是光出名这么简单，最新的资料显示，杰辛达的个人净资产已达２５００万元，做为年薪４７万的国家公务员，人们疑惑之时，有人贴出了新西兰国会的投资清单，辉瑞和强生等大公司赫然在列，有分析认为，目前杰辛达又出书，又荣登福布斯全球杰出领导者，综合起来，身价应该达５０００万元。无怪乎，上月，媒体专门为她辟谣，说她未婚夫盖弗并未在北岛南部购买农场，生怕人们关注到她的巨额收入，影响到她的清新形象。
 
-宇宙无限大，地球是一粒沙，全给强奸了，一睡就睡了70年
-The universe is infinitely large, and the earth is a grain of sand, the whole country’s people are all been raped by CCP, and has been ravaged for 70 years
+上有所好，下必甚焉。回到新西兰社区第一例奥米克戎患者的英国DJ，他在推特向民众道歉，但丝毫没意识到他错在哪里，他说他以为他的隔离期已经结束了，因此前往夜店，但是新西兰的隔离手册明确在离开隔离设施后，还必须在家隔离三日才算完成。因此不少民众在评论区发言，他已经违法，应该将他立即遣返英国。但是诡异的是，历来叫嚣推动严厉隔离及疫苗措施的媒体，第二天竟然为他开脱，说请大家理解，他前３次的测试都是阴性。（意思是他放任自己不负责任情有可原吗？）这样的媒体是在为民众的利益发声吗？在强制疫苗的宣传上，媒体向来寸步不让，不管毒副作用的危害，民众非打不可，但是轮到特事特办的英国DJ，马上双重标准，就连把新毒株带进新西兰也成了小事一桩。
 
-同样的悲哀的结果，凭啥美国人要让你阿富汗强大我拿钱
-The same sad situation, why the Americans want spend money to make Af-ghanistan（China） strong
+媒体是比军队还要强大的力量，这被文贵先生一语点破的秘籍，杰辛达总理深谙其道，据新西兰先驱报的报道，新西兰政府过去4年媒体上的投入增加了50%， 每年高达9000万元，原本在广告费上求生存，苦苦挣扎的媒体，如沐春风，谁还会去说政府不愿意听的话，报道杰辛达不愿意看的新闻呢?中共靠国家政权把持新闻媒体，而杰辛达用人民的税收也达到了同样的目的。
 
-美国再在阿富汗待下去，你知道什么结果，你觉得会有什么结果
-If the U.S. stays in Afghanistan, you know what the outcome will be, what do you think will be the outcome？
+一个国家的领导人因为自己的爱好兴趣，利用权力开后门，搞特殊。在极权独裁国家一点也不奇怪。但是在民主国家，这个领导人就会遭到大众的揭露和批评，尽管媒体掩盖，但挡不住社交媒体的广泛传播，这也就是文贵先生所说的，与二战相比，今天的人民有了互联网这一武器。再想像希特勒那样靠强权管控信息，操纵民意是难上加难了。因此，相比中共国的５００特权家庭，及庞大的１４亿奴隶的体量，做为５００万人口的新西兰国的年轻女总理，杰辛达的特权之路还有很长的路要走，但是只要开了头，后面的就见怪不怪了，独裁和普罗大众的角力，拼的就是民众扫奸除恶的决心和毅力。
 
-从这个道德上讲，绝对是不对的，从任何角度讲
-From this moral point of view, it is absolutely wrong about the withdrawal, from any other point of view
+即将出席杰辛达婚礼的知名歌星洛德LORDE, 不出所料，圣诞节拿到了神秘的隔离名额，回到新西兰家中与家人团聚，说是准备２－３月份的演出，但是最重要的恐怕是应邀担任１月底杰辛达和盖弗婚礼的演唱嘉宾吧。她的新歌”新政权的领袖”　(leader of a New Regime), 恐怕就是专门为杰辛达所写，歌中唱到：我们的新政权需要一个领导者（We need the leader of a new regime），这个政权是共产主义幽灵的政权吗，这个领导者指的是杰辛达吗，作为曾经的国际社会主义青年联合会主席‘有媒体，有文艺界支持，有财力做靠山，新西兰这个“杰辛达政权”对新西兰人来说，是福还是祸呢？
 
-从阿富汗撤出，美国撤出是符合美国利益
-the U.S. withdrawal from Afghanistan is in the interests of the United States
-
-更重要的事情美国除了经济问题，除了战略问题，美国是真的再往下弄下去
-The more important thing is that in addition to economic issues and strategic issues, if the United States is really staying further
-
-美国知道在阿富汗这个地方，美国会深陷其中，而且美国绝对是就是20年的计划
-The United States knows that in Afghanistan, the United States will be stuck in it, and the United States is definitely only has a 20-year plan
-
-就是要对付，要把伊朗、中国共产党这个彻底改掉
-It is to completely get rid of Iran and the Chinese Communist Party
-
-把整个中东的整个局势彻底改变，它没有那么多精力和金钱，不可能的
-Completely change the entire situation in the entire Middle East, it doesn’t have so much energy and money, it’s impossible
-
-美国这已经搞了30年就准备好打赢绝对打赢一场战争，准备同时打两场战争
-The United States has been doing this for 30 years and is ready to win a war, and is ready to fight two wars at the same time
-
-在阿富汗你就同时在一场战争中，你怎么可能
-In Afghanistan you are in a war at the same time, how could you do it?
-
-你5000万多阿富汗人，干不掉30万多这小块, 加一起不过10万人的那些所谓的人
-More than 50 million Afghans can’t get rid of the small piece of more than 300,000 and the so-called Taliban who are less than 100,000
-
-都不会打的，吃都能把它吃了，甭说打了
-Afghans don’t need to fight, they can eat them alive, not even mention to fight
-
-所以回答这个问题很简单，美国的安全和战略经济的基本需要
-So the answer to this question is very simple, the basic needs of American secu-rity and strategic economy
-
-和阿富汗现在即将触发的巨大的问题
-and the huge problems that Afghanistan is about to trigger
-
-**原视频链接**: [https://gettr.com/post/pl3i1mb248](https://gettr.com/post/pl3i1mb248)
-
-Date: 12/31/2021
-原视频标题: 阿富汗撤军符合美国利益, 也有利于应对中共等邪恶势力
-The withdrawal of troops from Afghanistan is in the interests of the United States and is also conducive to dealing with evil forces such as the CCP
-原视频日期：2021/12/29
-原视频链接 https://gettr.com/post/pl3i1mb248
-任务编号：KC385（3375）
-视频时间段 : 0:00-2:14
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：https://www.stuff.co.nz/national/300488326/covid19-dj-dimension-on-third-border-exemption-to-nz-since-december-2020
 
  
 

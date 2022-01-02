@@ -2,153 +2,51 @@
 ---
 
 
-## 《无问西东》Forever Young
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1813900/)
+## 大直播概要——2022年是共产党的大灾之年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814042/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-11.49.41-AM-1.png)
+**整理：**顺其自然
+**编辑：**翼族
 
-演唱：木兰传奇
-MV制作：蓝光
+2022年的第一天，郭文贵先生与100多位战友进行了12个小时的新年大直播，以下为概要内容：
 
-谁的手 总紧紧牵住我的手
+1）彭丽媛即将登场。习近平听了严格严肃管理已经失控的中国流行音乐市场的报告，拍案大起、惊叹万分、当面请教。中共国的歌星都很肮脏，都是为了要碗饭的选择。
 
-Whose hand is always holding my hand tightly
+2）共产主义最先研究，弄清楚了人的社会关系，就是绝大多数的人是自私的、懦弱的，而这是最好利用的。共产主义让人民少接触真正的教育，拼命辛苦工作，而不要有时间思考，让你无知。共产主义就是让你变得无知，直到变成动物，最后变成家天下，实现独裁统治。
 
-不回头 在人群沙漠中漂泊
+3）2022年是共产党的大灾之年；20大的政治斗争会充满血腥和屠杀；疫苗灾难会比黑夜还要黑。2022年情况还会持续恶化下去，很多地方会爆发西安这样的疫情，也还会有新病毒或新变种的出现。尽可能远离一二线城市，到能自给自足的、人口密度相对少的农村地区去，中国最安全的是你的老家农村。
 
-Don’t look back, drifting in the desert of people
+有房子的房奴会被伤害。郑州淹死的都是有车的。要和农场保持联系，虽然不可能满足战友的全部要求，但是会尽力救战友。
 
-你别用 含着泪的眼睛看我
+4）拜登政府会和中共有很多勾兑，但是一定会坚定的灭共。中共国目前的很多反应，都和美国灭共的决定有关系。
 
-Don’t look at me with tearful eyes
+5）共产党每一分钟都活在绝望和恐惧之中。共产党驻美大使的采访，媒体居然没有报道，共产党第一次被噤声。
 
-听蝉声沉落
+中共驻美大使秦刚12月20日接受美国多家主流媒体联合采访，但至今没有一家媒体刊发相关新闻和报导，只有墙内报道，秦刚称：“对有的国家动辄颐指气使诽谤并干涉中国内政，损害中国利益的不友善言行，我们必须站起来说不，我们并不是主动出击，而是做出回击。中国外交官不是战狼，而是与狼共舞”。
 
-Listen to the cicadas singing
+6）GETTR有3500万的下载量，被黑掉2000万数据，是唯一99.9999%的纯净媒体。美国对Facebook、twitter会有一系列的法案推出，社交媒体的盈利模式会彻底改变。GTV、GNEWS会重新投胎，重生。喜币价格现在已经打不下去，换手率在50%以上。喜币现在的价格是34.8美元。比特币一定会消失。明年世界还要印发400万亿美元，Hpay马上就上线，时机刚刚好。喜联储每年法定增发10亿币。可以用喜币抵押，继续增持2022年的喜币。
 
-请抬头 今宵露重
+7）英国和德国平均寿命68，而到了比利时\意大利平均寿命就78岁了。因为英国和德国人喜欢喝啤酒，吃动物油脂，性生活质量不高。
 
-Please look up, the dew is heavy tonight
+8）中共的红旗最怕的就是水。共产党最害怕虎年。每年的元旦，共产党高官都要到雍和宫\天坛祭拜。历届虎年发生的事件：
+1914年，甲寅虎年，第一次世界大战;
+1926年，丙寅虎年，蒋介石在广州制造“中山舰事件〞;
+1938年，戊寅虎年，八年抗战;
+1950年，庚寅虎年，抗美援朝战争;
+1962年，王寅虎年，三年自然灾害;
+1974年，甲寅虎年，批林批孔;
+1986年，丙寅虎年，日币升值，世界股灾;
+1998年，戊寅虎年，东南亚金融风暴;
+2022年，王寅虎年，会发生什么呢？
 
-是谁用 带露的草叶医治我
+*发布：翼族*
 
-Who heals me with the dewy leaves of grass
-
-愿共我 顶风暴泥泞中跋涉
-
-May I walk with you through the mud and storms
-
-是谁说 经过的路都是必需
-
-Who said we must endure all the hard journeys
-
-磨难尽收获
-
-Experiencing all the hardships and tribulations
-
-山云做幕 攀岩观火
-
-Clouds and mountains are the curtains, watching the fire on the rock
-
-请由我引吭高歌
-
-Let me sing my song
-
-面迎啊海上风
-
-With the sea wind brushing my face
-
-在世界之外 在时间之中
-
-Beyond the world and time
-
-无问西东
-
-We shall be forever young
-
-就奋身做个英雄
-
-Let me be a hero
-
-不枉那青春勇
-
-Live up to youth and courage
-
-愿心之自由 共天地俊秀
-
-May my heart be free and the world be beautiful
-
-有情有梦
-
-With love and dreams
-
-是谁用 带露的草叶医治我
-
-Who heals me with the dewy leaves of grass
-
-愿共我 顶风暴泥泞中跋涉
-
-May I walk with you through the mud and storms
-
-是谁说 经过的路都是必需
-
-Who said we must endure all the hard journeys
-
-磨难尽收获
-
-Experiencing all the hardships and tribulations
-
-山云做幕 攀岩观火
-
-Clouds and mountains are the curtains, watching the fire on the rock
-
-请由我引吭高歌
-
-Let me sing my song
-
-面迎啊海上风
-
-With the sea wind brushing my face
-
-在世界之外 在时间之中
-
-Beyond the world and time
-
-无问西东
-
-We shall be forever young
-
-就奋身做个英雄
-
-Let me be a hero
-
-不枉那青春勇
-
-Live up to youth and courage
-
-愿心之自由 共天地俊秀
-
-May my heart be free and the world be beautiful
-
-有情有梦
-
-With love and dreams
-
-善良，无畏，勇敢，同情
-
-kindness, fearlessness, courage, compassion
-
-愿你在被打击时，记起你的珍贵，抵抗恶意
-
-May you remember your preciousness and resist malice when you are struck down
-
-愿你在迷茫时，坚信你的珍贵
-
-May you believe in your preciousness when you are confused
-
-爱你所爱，行你所行，听从你心，无问西东
-
-Love what you love, do what you do, listen to your heart, we shall be forever young
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
