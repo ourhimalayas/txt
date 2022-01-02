@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 4:27 PM (UTC)`
+
+2022年1月2号：尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！
+![img](https://media.gettr.com/group44/getter/2022/01/02/16/668566f0-2aaf-154c-2bf2-b8b3495aaad1/out.jpg)
+
+---
+
 `@miles 1/2/2022 4:06 PM (UTC)`
 
 1/1/2022 Miles Guo: The Chinese culture has its roots in yin and yang and the five elements, but was cut off during the Qin Dynasty. The Western civilization, on the other hand, is based on logic, which developed into science. Chinese culture and Western culture do not contradict each other, and the New Federal State of China will foster the integration of the two, drawing on each others' strengths to offset the weaknesses to build a more advanced civilization together.<br/><br/>1/1/2022 文贵直播：中国文化的根源是阴阳五行，但在秦朝出现了历史断层；而西方文明是在逻辑学的基础上持续发展并产生了科学；中国和西方文化其实并不冲突，新中国联邦将促进二者交融、取长补短，从而形成更先进的文明<br/>
@@ -145,12 +152,6 @@
 
 12月31号：尊敬的战友们好又蒸馍馍……卷子啦，吃饭饭啦……
 ![img](https://media.gettr.com/group18/getter/2021/12/31/16/cb01ab99-1f37-57e8-6717-de599cb55239/out.jpg)
-
----
-
-`@miles 12/31/2021 3:43 PM (UTC)`
-
-12月31日，在2021最后一天, Hcoin To the Moon的iTunes打榜记录：<br/><br/>🥇持续排名美国🇺🇸摇滚MV榜首<br/><br/>🥇持续排名澳门🇲🇴MV总榜榜首<br/><br/>🥇持续排名新西兰🇳🇿摇滚歌榜榜首<br/><br/>🥇持续排名新西兰🇳🇿嘻哈歌榜榜首<br/><br/>万分感谢美国，澳门，新西兰的战友们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1808849/<br/><br/>31/12/2021 “Hcoin To the Moon" iTunes Charts  on the last day of 2021:<br/><br/>🥇No.1 in USA 🇺🇸 MV Rock Chart<br/><br/>🥇No.1 in Macau 🇲🇴 MV Chart <br/><br/>🥇No.1 in New Zealand 🇳🇿 Rock Song Chart <br/><br/>🥇No1. in New Zealand 🇳🇿 Hip- Hop/Rap Song Chart<br/><br/>Thank you very much to our fellow fighters in USA, Macau, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/>
 
 ---
 
