@@ -39,7 +39,7 @@
 
 联系人：
 
-[\[email protected\]](/cdn-cgi/l/email-protection#2c414948454d6c48494a494d58584449414d42484d58495f484f024f4341)
+[\[email protected\]](/cdn-cgi/l/email-protection#90fdf5f4f9f1d0f4f5f6f5f1e4e4f8f5fdf1fef4f1e4f5e3f4f3bef3fffd)
 
 [www.DefeatTheMandatesDC.com](http://www.defeatthemandatesdc.com/)
 
