@@ -2,46 +2,62 @@
 ---
 
 
-## 三战中的我们圣诞之夜要跨过仇恨为所有有神的同类祈福
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1814827/)
+## 纽约法案和隔离营威胁公民基本权利
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1814877/)
 
-**郭文贵先生：**好，那我们今天就在这里，一定要完成圣诞之夜最重要的：为75亿我们所有的全世界的同类们，和受隔离和共产党病毒残害的失去亲人的，所有的全人类的朋友们，和14亿新中国联邦的同胞，爆料革命的战友、台湾同胞、香港同胞、西藏同胞、新疆同胞，所有的人，我们为他祈福！愿所有的天下人平安，早日铲除共产党，让这个人类多一点和平。
+**翻译： Jenny Ball**
 
-二战之后的美国让人类有了前所未有的最长的和平期，我们正处在世界第三次大战的之中。我们一定会铲除这个邪恶，让人类走向一个新的文明，让人类上有更多人真的有信仰，让人类不要活在当下无知和对大自然、对地球、对上天，完全不敬，失去了人类自我的这种灾难的境界，回归到人类最根本的文明。我们到底是哪里来的？我们应该去哪里？人类，在地球上主宰着人类还不到万年，我们没有理由毁掉这个世界，我们必须保护这个世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip32.png)
 
-我们为所有的天下人祈福，包括路大脑袋、蛇妖闫、九指妖，包括螃蟹、Isobel杨，包括这些人，他们都是我们的同类，我们决不能学共产党，一弄就弄死你。你看中国人一骂人的时候，我特别不喜欢就诅咒人家，就是全家这个。有时候我这破嘴有时说话搂不住，我们一定要记住。
+《自然新闻》 – 纽约的立法者正准备对一项法案进行投票，该法案将允许当局对未接种疫苗的个人采取行动。这些行为包括——但不限于——驱逐被确定为携带病毒者或传染病毒的人，以及对公共健康有潜在危险的人。
 
-我们要跨过仇恨，像圣诞之夜，就是耶稣改变了全人类。全人类无处不在，圣诞耶稣的影子。所以说我们今天坐在这里的时候，更要感恩美国、感恩西方的基督教和天主教的文化，还有西方，所有这个世界有神的所有的同类们，为他们祈福！！！
+该法案被列入下届州参议院和议会于 2022 年 1 月 5 日举行的立法会议议程。如果获得批准，**当局将获得与澳大利亚类似的行政权力**，澳大利亚建了武汉冠状病毒 (COVID-19) 检测呈阳性的人隔离营，包括检测结果呈阴性的人——即使它对个人和企业主的日常生活几乎没有影响。
 
-阿弥陀佛！
+值得注意的是，纽约和加利福尼亚一直处于“紧急状态”之下，迅速扩大的授权和其他强制措施，继续威胁着其公民的自主权和基本权利。（相关：纽约市宣布上门疫苗接种小组将来到您家，并支付您 100 美元让你接受死亡注射。）
 
-字幕来源：[2021年12月25日文贵大直播圣诞特别节目“爆二代——希望与力量”全文字版（三）](https://gnews.org/zh-hans/1794181/)
+根据该法案，与 COVID-19 患者有过接触的人，**可能会被强行带离家并被安置在医疗机构，即使他们的病毒检测呈阴性**。 （相关：纽约法案将允许政府拘留任何被认为是公共卫生威胁的人）
 
-编辑整理：喜马拉雅的肉夹馍；
+该法案的批评者表达了他们的担忧，称**医疗要求**正变得越来越正常化，在美国不应强迫人使用药物进行所谓的治疗。
 
-字幕文件制作：小满；
+**更多关于疫苗授权的法案正在进行中**
 
-视频制作及上传：Cindy；
+与此同时，代表曼哈顿上西区的民主党人琳达·罗森塔尔 (Linda Rosenthal) 提出了议会法案 A11179，该法案提议，如果没有足够多的居民自愿接种 COVID-19 疫苗，就强制接种该疫苗。
 
-G-News发布：小满；
+根据该法案，该州将要求“根据卫生部的 COVID-19 疫苗接种管理计划”，“安全有效地”分发FDA批准的疫苗。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+根据该法案的支持备忘录，“虽然已采取措施减少 COVID-19 的传播，但流行病学家和公共卫生专家得出的结论是，疫苗对于培养群体免疫力并最终阻止疾病的传播是必要的。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“国家必须努力促进疫苗接种，并确保足够高比例的人口接种 COVID-19 疫苗以产生足够的免疫力。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+如果该法案获得通过，该州卫生部门可以强制要求任何他们认为应该接种疫苗的人接种，如果它发现纽约人没有形成“对 COVID-19 的足够免疫力”——但该法案没有定义这个术语。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**如果低于 70% 的人口自愿接种疫苗，则该指令生效。**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+罗森塔尔补充说：“那么州卫生部就能说必须让更多人接种。” “他们会制定规则，也会制定结构。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+目前，CDC的专家仍不确定，需要接种多少百分比的人口，才能实现所谓的针对 COVID-19 的群体免疫。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+文章内容来源：
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[TheNationalPulse.com](https://thenationalpulse.com/2021/12/18/new-york-legislation-provides-for-indefinite-detention-of-unvaccinated-at-governors-whim/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[NaturalHealth365.com](https://www.naturalhealth365.com/new-york-bill-paves-way-to-forced-covid-jabs-3491.html)
+
+[Fox5NY.com](https://www.fox5ny.com/news/new-york-legislation-would-make-covid-19-vaccination-mandatory)
+
+[Brighteon.com](https://www.brighteon.com/79198c06-e902-4a57-b2bd-3378ea957fff)
+
+**新闻来源**：[naturalnews.com][New York bill threatens basic rights of citizens with forced COVID vaccinations, quarantine camps](https://www.naturalnews.com/2021-12-31-new-york-bill-threatens-basic-rights-of-citizens-covid-vaccinations-quarantine-camps.html)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
+
 
  
 
