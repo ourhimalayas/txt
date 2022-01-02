@@ -2,21 +2,24 @@
 ---
 
 
-## 中共驻美大使、披着羊皮的战狼秦刚向美国宣战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814276/)
+## 台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814284/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-撰稿：纽约香草山 信息部 6zero4
+纽约香草山医疗部-云豹；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-58.png)
+针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
 
-在12月29日的大直播中，郭文贵先生透露，几天前在中共内部的国安会议上，大家注意到，中共驻美大使秦刚连基本的国礼都没有得到。同时，美国最近首次向中共表示，秦刚大使的讲话很有问题，如他继续这样下去，美中关系将没有改善的可能。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-2.png)
-郭先生谈到，在美国有人问秦刚是否要将战狼外交变战羊外交时，秦刚回答：“我们不是战狼外交，是与狼为伍、与狼共舞！美国才是狼，我们要与狼共舞，奉陪到底。”谈到台湾问题时他说，你美国看看自己的流氓嘴脸，台湾问题的根源在你美国，是你们极少数政客利用台独分子挑起的问题。谈到新疆问题时他明确表示，新疆问题就是美国过去的华人和黑人问题，是汉人被维族人种族大屠杀，而不是维族人被汉人种族大屠杀，我们现在对待维族人就像兄弟姐妹一样友好。秦刚还警告美国，如继续放任班农等极右分子与严重影响中美关系的一小撮人搞在一起，中美两国必有一战。
+另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
 
-郭先生最后评论，秦刚如此荒唐地扭曲事实并血口喷人，完全突破了外交官的底线，他不是来建立和改善两国关系的，而是来羞辱和挑衅美国并向美国宣战的。披着羊皮的秦刚既不是战羊，也不是战狼，而是战魔，将美中关系的敏感神经紧绷到了极限。
+新闻连接：[總統2022新年談話：穩健執政堅守主權 台灣珍惜民主挺香港](https://www.cna.com.tw/news/firstnews/202201015003.aspx)
 
-新闻链接：[2021年12月29日 文贵大直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+[In New Year’s speech, Taiwan president warns China against ‘military adventurism’](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.06.26-PM-1.png)
 
 总编/编辑：飞虹
 
@@ -28,7 +31,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

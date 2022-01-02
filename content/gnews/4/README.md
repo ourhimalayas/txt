@@ -2,36 +2,30 @@
 ---
 
 
-## 强推疫苗结出恶果，墨尔本男子当街自焚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814310/)
+## 健身 健心 控欲
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1814354/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+**作者：Ray裁决**
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/be7bcb23-bc0f-4c4a-ba68-15ad4a43c281.jpg?asset_id=f636b9d8-3f69-41ac-9fc6-ad7e34e20915&amp;img_etag=%2217596dde3f43fcfd8ad12cf201596645%22&amp;size=1024)](https://express.adobe.com/page/d3iXKYrdVDifR/images/be7bcb23-bc0f-4c4a-ba68-15ad4a43c281.jpg?asset_id=f636b9d8-3f69-41ac-9fc6-ad7e34e20915&amp;img_etag=%2217596dde3f43fcfd8ad12cf201596645%22&amp;size=1024)
+“亲爱的战友们，今天你们健身了吗？”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955.jpg)图片来源：The West Australian
+伴随着熟悉的话语、熟悉的场景，经历了四年多风风雨雨的“北美健身教练”从一个中年“油腻大叔”变成了目光坚毅，一身正气的战神。每天用自己的汗水重塑自己的身体，还曾被伪类欺民贼们说成拿水泼自己，这种滑稽可笑的谎话说出来连他们自己都不信。这些伪类欺民贼们自己做不到，就说别人是表演的心态都是在中共体制下培养出来的极度变态心理。
 
+健身运动本身就是一个违反人类本能的一项运动。人类的本能是储存脂肪，再在人体需要能量的时候释放能量。随着现代人类生活水平的提高，物质的供应充足，人类在身体中囤积脂肪变得十分容易，因此现代人普遍体脂率都高于正常范围内。要把脂肪人为地消耗掉，降低身体的体脂率并不容易，我们的身体本能是在抵抗的，身体会分泌相应的激素来抵抗；同样，增长肌肉是需要做抗阻运动撕裂肌肉，补充营养再合成肌肉，做肌肥大的训练，对于这些行为，人体自身都会做出本能的抵抗。所以健身是对自我的一个挑战，长期健身是对自我意志的长期磨练。
 
-#### 整理报道：小鱼儿
-编辑：文泓
+孤独、汗水、钢铁般的意志、时间观念、作息规律、坚持自律、控制饮食，这些都是健身者必须经历的，而这些也是对一个人最好的磨练，从身体上，更从心理上。所以健身往往和健心相伴，更多的是控制自己的欲望。郭文贵先生用自己的行动为我们诠释着这一切。
 
-2022年元旦，据《反叛新闻》报道，当晚8点左右，墨尔本紧急服务部门被呼叫赶到里士满的教堂街，有一辆汽车正迸发出熊熊火焰。
-警员们在绝望的情况下用水浇灌该男子，然后将其按倒在地并安排救护车护送至医院。
+爆料革命四年多来，其实是对追求正道主义的新中国联邦人身体和心灵的磨练。各种魑魅魍魉出来作妖进进出出，能留下来的都是真正有信仰的人。去往喜马拉雅的路上是一路的崎岖坎坷，强健的身体和坚强的意志是通过这条道路的必备条件，在今后的道路上真战友们一定要背靠背走下去，一起健身健心。
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/6e3025d5-649a-4b69-84ff-d9d89add79a0.jpg?asset_id=1052ff7c-3550-4973-86d0-390385a9798b&amp;img_etag=%22f42de443baf95eb62a5d15fa1adb7cf5%22&amp;size=3769)](https://express.adobe.com/page/d3iXKYrdVDifR/images/6e3025d5-649a-4b69-84ff-d9d89add79a0.jpg?asset_id=1052ff7c-3550-4973-86d0-390385a9798b&amp;img_etag=%22f42de443baf95eb62a5d15fa1adb7cf5%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-据《先驱太阳报》报道，一名帮助救助该男子的妇女说，我看到“皮肤在燃烧，直到他身上火被水浇灭”。
-妇女说，这名男子的皮肤烧伤得很厉害，她的衬衫上也粘到了。
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
 
-现场目击者说，一名男子在墨尔本内城区自焚，同时他大声哭诉，维多利亚州的疫苗强制规定，在自焚前他大喊“疫苗护照”、“疫苗强制”。
-附近餐馆的食客们被这一场景震惊了，其中一家餐馆客人看到，该男子在自焚前特意用汽油覆盖自己和汽车。
-“他大喊着，‘（政府）疫苗强制，我不要疫苗接种证，扔掉证书’，”目击者说。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-新闻链接：[Man sets himself on fire in Melbourne over vaccine mandates in horrific scenes](https://www.rebelnews.com/man_sets_himself_on_fire_in_melbourne_over_vaccine_mandates_in_horrific_scenes) 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[![](https://express.adobe.com/page/d3iXKYrdVDifR/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/d3iXKYrdVDifR/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

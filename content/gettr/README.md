@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/2/2022 7:58 AM (UTC)`
+
+【世界多语言文字版】2020年6月4日新中国联邦宣言<br/><br/>https://gnews.org/zh-hans/221944/<br/><br/>June 4, 2020 Declaration of the New Federal State of China in Multiple Languages<br/><br/>https://gnews.org/221992/
+
+---
+
 `@miles 1/2/2022 7:17 AM (UTC)`
 
 1/1/2022 Miles Guo: It is the CCP’s deceptions and suppression that led to the lack of mutual trust and mutual fondness among the Chinese people; the citizens of the New Federal State of China shall be selfless and altruistic! Given that we are determined to take down the CCP, we shall love the fellow fighters and tolerate their shortcomings<br/><br/>1/1/2022 文贵直播: 中共的欺骗和打压导致中国人互不信任、互不喜欢；新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点！<br/>
@@ -145,13 +151,6 @@ Thanks to the Himalaya Washington DC Chapter, we now have a new English program 
 
 12/29/2021 Miles Guo: Japanese media’s coverage on the CCP's converting Pangu Plaza's “dragon head” tower into a “bird's head” led to a major event in the Sino-Japanese relationship - the CCP’s diplomats threatened the Japanese media and forced it to remove the video; I have declined interviews with 7 major world-class media outlets, because it’s not the time yet<br/><br/>12/29/2021 文贵直播：日媒报道中共把盘古大观龙头变鸟头竟引起了中日之间的政治大事件 - 中共外交官威胁日媒并将迫使其将视频下架；文贵拒绝了7家世界级媒体的采访，因为还不到时候<br/>
 ![img](https://media.gettr.com/group14/getter/2021/12/31/00/b7576602-8015-a3bf-76a9-10ae97c96453/out.jpg)
-
----
-
-`@miles 12/31/2021 12:23 AM (UTC)`
-
-12/29/2021 Miles Guo: VICE's deliberate postponing the release of the interview with Miles Guo is a gift to the CCP's Winter Olympics; The military bills signed by Biden have made it clear to the CCP that the US is going to fight it till the end. However, no one in the CCP believes that it can defeat the US, and what Yang Jiechi and Wang Yi said in their secret speeches is the exact opposite of reality<br/><br/>12/29/2021 文贵直播：VICE故意推迟公布采访是给中共冬奥会献礼；拜登的军事法案让中共明白美国将与之决战，但中共无人认为能打赢美国，杨洁篪和王毅的秘密讲话和现实截然相反<br/>
-![img](https://media.gettr.com/group19/getter/2021/12/31/00/e96497dd-c20e-8178-23cb-8c0488ce92d2/out.jpg)
 
 ---
 
