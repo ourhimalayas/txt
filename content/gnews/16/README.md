@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登、福奇和盖茨关于中共病毒疫苗满嘴谎言
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1817754/)
+## 乔·艾伦：人类可能会成为超自然AI的宠物
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1817818/)
 
-拜登政府，安东尼·福奇，和比尔·盖茨一直就新冠病毒疫苗的有效性向公众撒谎
+12/28/2021 班农战斗室：乔·艾伦谈机器人索菲亚。结合当下“Covid式邪教”施加的严酷措施，乔·艾伦担忧很多掌权的人会欣然运用AI和其他控制技术系统，把人们变成宠物。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
