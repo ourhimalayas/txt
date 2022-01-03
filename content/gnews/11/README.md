@@ -2,33 +2,57 @@
 ---
 
 
-## 澳大利亚男子自焚反抗疫苗强制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1819062/)
+## 带头反疫苗，福特女儿警察丈夫遭无限期停职
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819110/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/melbourne-mandate-self-immolation-nzh-1.jpg)图片来源：NewsTalk ZB
-根据美国《国会山报》(The Hill) 1月3日报道，一名澳大利亚男子于元旦在墨尔本自焚反抗疫苗强制。
+作者：BlogTo
+翻译：HimaFAFA
 
-目击者告诉当局，当时这名男子正坐在车里怒吼对冠状病毒疫苗强制的愤怒，他往自己和车辆浇上汽油并自焚。随后他被救护车送往当地医院，目前情况危急但稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-32.png)
 
-莉迪亚-奥康纳（Lydia O’Connor）告诉《先驱太阳报》：”他大声怒斥当前的疫苗强制规定，大喊’不要疫苗证’，并且摔书。” 随后往自己和他的车上浇汽油，并点燃。
+作为反疫苗代表、以及安省省长道格福特的大女儿Krista可算是在疫情期间吸足了流量。一个月前，Krista的丈夫Haynes因为违反多伦多警察局的疫苗接种规定而被停职，Krista对此“大骂不止”。
 
-“着火了，他的皮肤在燃烧”……一位身份明确的妇女告诉该媒体。
+然而近日，Krista丈夫在网络上发布的一篇“抱怨文”显示，他已经交出了警徽。而他这篇文章也被人们指出“博同情失败”！
 
-据报道，五名旁观者协助警察和消防员控制住该男子，随后用水将其扑灭。他被救护车送往当地医院，目前情况危急但稳定。
+像往常一样，Krista和Haynes将“停职”视为一种因疫苗而产生的不公正现象。
 
-事发地是澳大利亚维多利亚州，那里要求人们在进入酒吧、餐馆和其他企业时必须出示疫苗接种证明，工人工作也必须全面接种冠状病毒疫苗。
+这位肌肉哥和前警察在他的Instagram账户htrain8中发布了他的帖子。该帖充满了关于“荣誉”和“诚信”的讨论。
 
-该事件应该为所有政府强制新冠疫苗规定敲响警钟，引发民众反思，强制疫苗已经把民众逼到墙角，只有站起来反抗，才能拯救自己。
+Haynes说：“20年来，我从未用它来免费获得任何好处或牟利，或要求任何特殊待遇。20年了，它每天都放在我身边，在我的口袋里。”
 
-原文链接：
-https://thehill.com/changing-america/well-being/mental-health/587989-man-sets-himself-on-fire-after-angry-rant-about
+“今天，多伦多警察局吊销了我的证件，这是他们让我们休无薪假措施的一部分。我想，相比把警徽还回去，让我失去勇气和正直更难。我不需要警徽来获得荣誉、领导力，但是我需要勇气和正直来实现这些。”
 
+“注意安全，互相照顾。我希望你们每一个人都能找到自己需要的东西来照顾自己和所爱的人。”
 
+支持疫苗和反对疫苗的人们都对他发布的帖子发表了一些列评论。
 
-编辑，发稿 Spirit
+一些人认为警察的工作职责是“服务和保护”。在反疫苗者被边缘化的情况下，警察的工作职责应该包括保护他们免受病毒感染。
 
+但也有些人认为这篇告别帖明显的在博取同情，但是失败了。
 
+有些人甚至在庆祝Haynes的停职。
+
+而因为疫苗发生的一切似乎都影响到了省长道格福特和他的大女儿曾经亲密无间的关系。几年前，省长Ford的圣诞贺卡中总会出现Krista，但是现在她消失了。
+
+对于福特来说，Krista和她丈夫公开反对疫苗和公共卫生限制是个人的痛苦！
+
+来源：https://www.blogto.com/city/2021/12/krista-ford-toronto-cop-hubby-badge-revoked/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
