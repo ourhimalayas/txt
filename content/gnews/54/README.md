@@ -2,32 +2,44 @@
 ---
 
 
-## 《我是音雄》第二季2021年度总决赛完美收官
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1814257/)
+## 日本将协助比尔・盖茨在美国建造实验性核反应堆
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1814438/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
-2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-4.png)
-Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-《我是音雄》是由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目，迄今已进行了两季，挖掘出无数各个层面的人才，成为新中国联邦的中坚力量。今晚郭先生还给“十大音雄”颁发了奖品之外的“惊喜”，即郭先生亲笔签名、歃（sha，四声）血为盟的《新中国联邦宣言》，作为对杰出战友的表彰与鼓励，也为2021年划下了一个完美的句号。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-to-assist-Bill-Gates-in-building-experimental-nuclear-reactor.jpg)
 
-新闻链接：[《我是音雄》第二季总决赛暨跨年颁奖典礼](https://gtv.org/video/id=61cf9aa8ecc0b216cbb2da80)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编/编辑:飞虹
+图片来源： dailyenergyinsider.com
 
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新.png)
+#### 编译：小红帽
+
+根据RT1月1日报道，**两家日本工业巨头正计划与比尔・盖茨的风险投资公司合作，为将在美国怀俄明州建造的一个高科技核反应堆提供技术支援。**
+
+日本《读卖新闻》周六援引多位知情人士的话报道称，双方预计将在1月签署一项协议，由日本原子能机构（JAEA）和三菱重工提供工业援助和日本自己的先进反应堆的数据。
+
+盖茨建立的核电企业TerraPower计划最早于2028年在怀俄明州开设Natrium工厂，美国当局将提供资金以支付该项目的一半，估计为40亿美元。
+
+一座使用钠作为冷却剂、输出功率为34.5万千瓦的快速反应堆，其建设工程将于2024年开始。
+
+盖茨的风险公司最初计划与国有的中国核工业集团合作，但美国前总统唐纳德・特朗普推出的对与北京的核交易的限制迫使该公司放弃这一计划。美国与中国和俄罗斯的竞争由来已久，后者也在酝酿建造和出口先进反应堆的计划。
+
+日本原子能机构拥有丰富的钠冷快堆运行经验，如福井县的文殊原型快堆和茨城县的常阳实验快堆，将多次向TerraPower提供运行数据和设计。
+
+日本曾在2016年退役其文殊原型先进反应堆的痛苦经历，该项目耗资85亿美元，但收益甚微，而且多年来一直存在争议。文殊设施自成立以来就发生了事故、违反监管规定和掩盖事实。2011年福岛核灾难发生后，该反应堆被关闭。
+
+新闻来源：[Japan to assist Bill Gates in building experimental nuclear reactor — RT Business News](https://www.rt.com/business/544950-japan-bill-gates-nuclear-reactor/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

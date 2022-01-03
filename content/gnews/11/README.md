@@ -2,23 +2,23 @@
 ---
 
 
-## 美国防长奥斯汀感染新冠隔离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818033/)
+## 【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818111/)
 
-作者：东京樱花团｜上善若水
-![](https://lh5.googleusercontent.com/aHAGFRzTsEJWwsd6Ejs_hg7wF6RpI93Mxj8JcGGQTpTNW9RQVDPNTn6OmTR1gFA9dX6ocRuIbLFFjyQRsclfS06VCaKnFJ-iyWY1p9VAhfKZ2BLJUCo3yX9Ze768TbJ8-Kc6fyqW)[*图片来源*](https://static.dw.com/image/59887846_403.jpg)
-美国国防部长奥斯汀（Lloyd Austin）周日（1月2日）称，他的新冠检测呈阳性，但症状较轻，目前居家隔离。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-150.png)（三星即将推出的 NFT 电视平台的预览）[图片来源](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+据TheVege1月2日报道，三星表示，正计划从2022年的电视产品系列开始广泛支持NFT。
 
-奥斯汀周日晚间发布的声明称，本周他将“在可能的范畴内”通过在线视讯方式参加重要会议和讨论。其他需要的场合，则将由国防部副部长希克斯（Kathleen Hicks）将代为出席。奥斯汀提到，他最后一次会晤拜登总统是在去年12月21日，当天一早做的新冠测试为阴性。过了一周多之后，他才初次出现症状。
+三星公司在一份新闻稿中说：“随着对 NFT 的需求不断增加，对当今分散的观看和购买环境的解决方案的需求从未如此之大。在2022年，三星将推出世界上第一个基于电视屏幕的NFT浏览器和市场聚合器，这是一个突破性的平台，让你在一个地方浏览、购买和展示你最喜欢的艺术品。”
 
-奥斯汀表示，他已将检测阳性的消息通知了自己的领导团队和总统，已开始对过去一周里与他有过接触的工作人员进行追踪和检测。68岁的奥斯汀称，他已完整接种了两剂疫苗并在去年10月打过加强针。
+根据三星的说法，这个平台将让创作者“与世界分享他们的艺术”，并让潜在买家在购买前预览 NFT。
 
-在新年休假期间感觉到有关症状之后，他在上周日做了检测。他表示将按照美国疾控中心（CDC）颁布的标准建议在家继续隔离5天。去年10月，拜登内阁的另一位成员–国土安全部部长马约卡斯（Alejandro Mayorkas）也曾被检测出新冠阳性。
+当在其2022年的电视上观看NFT时，三星也非常注意细节。电视机上的智能校准功能将自动调整显示设置，“按照创作者的预设值，所以你可以放心，你的作品看起来无可挑剔，具有真实的图像质量。”
 
-新闻来源：[**美国防长奥斯汀感染新冠隔离**](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%95%BF%E5%A5%A5%E6%96%AF%E6%B1%80%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E9%9A%94%E7%A6%BB/a-60315102)
+信息来源：[Samsung promises ‘groundbreaking’ new TV feature: NFT support – The Verge](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
