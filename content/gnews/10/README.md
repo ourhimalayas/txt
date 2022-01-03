@@ -2,22 +2,37 @@
 ---
 
 
-## 日本政府已确定对人工智能监控技术出口进行管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1817499/)
+## 以色列出现首例流感与新冠病毒结合变种病毒“氟罗那”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817605/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-2.png)图片来源网站
-《共同通信》1月3日报道，日本政府今天已决定推出新的出口管制措施，以确保人工智能（AI）相机和面部识别设备等先进技术不会泄漏到海外，使其导致严重侵犯人权，如监视市民的活动等。
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-27.png)图片来源：Sea.mashable.com
+整理报道:美哥
+编辑:文泓
 
-中共国正在利用人工智能等先进技术，建立大规模监控系统，限制新疆维吾尔自治区市民的行动。由于人们对中共国和其它地方的人权侵犯行为越来越重视，为了防止先进技术滥用于侵犯人权的行为，日本政府已确定和以美国为首的国家开展新的必要性的国际合作，以在多个国家引入法规。
+1月2号，据《RT电视》报道，一位以色列孕妇同时感染了流感和新冠病毒。这是首例两株病毒的结合体，在这个年轻孕妇身上孕检时候被发现了。
 
-信息源：
+以色列《国土报》首发报道了这次“双感染”病例，据佩塔提克瓦市拉宾医学中心妇产科的负责人维兹尼瑟介绍：“该孕妇的流感和新冠检测两样都是阳性，反复确认也是如此。这个病人症状较轻，其实新冠肺炎和流感等于说是同一种疾病，因为同样的都是攻击患者的上呼吸道。估计（近期）孕妇感染流感会越来越多，区别发高烧症状的产妇是流感还是新冠引起的，是一个很困难的挑战，所以我们只能不区分的治疗对待。”该妇女目前已于周四出院。
 
-[AI監視技術の輸出規制へ、政府](https://nordot.app/850630403659284480?c=49404987701575680#:~:text=Follow%20us%20on)
+以色列的卫生部门目前正在评估“双感染”是否会有严重的后果。同时，以色列传染病防控中心也报告了流感案例的激增，促使卫生部警告公众，流感病毒“可以导致严重病患，包括肺炎、多重呼吸道感染、心肌炎和死亡”，同时呼吁“6个月以上的公众”都要接种流感疫苗，并称流感疫苗可与新冠疫苗**并行接种**。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+世界上的科学家也在评估多样病毒和新冠变种的结合能产生的潜在危险。莫德纳的首席医疗官保罗.伯顿，上个月警告德尔塔和奥密克戎的结合可能创造了一个新的危险变种病毒。
+
+对此，伦敦经济学院卫生政策教授埃利亚斯·莫西亚洛斯却有不同意见。他认为，不存在称为 氟罗那（流感+冠状病毒混合体）的“新病毒“，也没有理由恐慌。“这不是一种新病毒，而是冠状病毒和流感病毒的同时感染”。
+
+新闻链接：
+1、[1st case of ‘flurona’ reported in Israel — RT World News](https://www.rt.com/news/544991-flu-covid-combination-woman/)
+2、[Mossialos: no such thing as a ‘Flurona’ virus | eKathimerini.com](https://www.ekathimerini.com/news/1174885/mossialos-no-such-thing-as-a-flurona-virus/)
+
+发布：去中心化Math
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

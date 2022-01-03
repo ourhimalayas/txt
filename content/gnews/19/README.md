@@ -2,38 +2,67 @@
 ---
 
 
-## 截止1228西安因食品短缺发生700起事故死亡3000多人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1817423/)
+## 全球疫情更新（澳洲检测能力达到极限）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817504/)
 
-**郭文贵先生**：西安，咱一会儿说西安这个疫苗这个问题，西安饿死多少人，这今天大家说发生多大的事儿？昨天下午，也就是说大陆的凌晨4点多钟的时候，中共中央收到西安的紧急报道，这叫“鸡毛信”啊，“鸡毛信”发来的，说要报给中共中央。从到昨天下午西安发现在家里跳楼、自杀、由于老年人得心脏病得不到救治，还有人想从楼里爬到另外楼里边去取食品，还有人翻墙去取食品，事故700起，死亡2000多起，仅仅到昨天下午已经3000多人，这是已经报给中共的就这个已经是昨天的一天3000多起。共产党的病毒到今天才4000多起，哼。你去想想这个流氓到什么程度！中国过去26个月卖的花圈、卖的骨灰盒、卖的墓地是中国过去21年的总和。大家别听我的，完全当我放狗屁，你们去自己去查去，这不是我、你上谷歌去可以查，谷歌不给你真相但给你基本的数据，它总不能把中国人死弄成阿富汗人死去。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-25.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 1月3日）
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+**一，全球疫情基本数据**
 
-编辑整理：Jacques；
+感染总数：289,993,721（日新增1,431,341，14天增幅+121%）
+死亡总数：5,441,281（日新增 6,079人，14天增幅–11%）
+每万人感染人数：449.6784 人（除中国外）
 
-字幕文件制作：小满；
+**二，全球“疫苗”毒针统计数据**
 
-视频制作及上传：Cindy；
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
 
-G-News发布：小满；
+**三，澳洲疫情和“疫苗”数据**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+感染总数：499,958（今日新增 37,218人）
+死亡总数：2,266人（今日新增 7人）
+每万人感染人数：179.5219人
+以下澳洲疫苗为昨日数据，今日元旦数据未更新。
+“疫苗”毒针注射总数：42,787,000   （日新增29,730针）
+第二针“接种”：18,867,423人
+第二针“接种”百分比：76.7%
+16岁以上人口接种至少一剂疫苗的比例：94.4%
+16岁以上人口接种至少两剂疫苗的比例：91.5%
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**四，数据分析和疫情要闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-137.png)
+今日澳大利亚病例新增数字继续增长，已经超过三万七千人，真实数字肯定更高，因为检测能力已经到达极限。因为无法满足需求，一家私人病理学公司无限期关闭了它在新南威尔士州运营的 20 个 中共病毒测试点中的 19 个。为了缓解测试压力，联邦政府内阁会议改变了密切接触者的定义和检测要求，彻底废除“偶然接触”的概念。澳大利亚昆士兰州的首席卫生官今天甚至警告说，“我们所有人都将被奥米克戎毒株感染。“
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+医院面临的压力也接近极限，新洲的住院人数今天暴增200人，总数达到1,204人。从南非医生的早期报告，以及最新发表的研究来看，奥米克戎疫情在南非所导致的病情都很轻微，具体提情况可以参见这次疫情更新。然而澳洲的情况看起来却并非如此，不仅病例数如火箭般上窜，而且住院人数增加如此迅猛。要知道，澳洲和其它大多数西方发达国家一样，入院指证相当严格，轻症病人是绝不会收治入院的。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+南非和澳洲的奥米克戎疫情为何有这样的差异呢？疫苗接种情况很可能是重要原因之一。南非的完全接种率仅占全部人口的26.7%，而澳洲则高达76.7%，12岁以上人口的完全接种率更是超过了90%。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+最近丹麦一项观察性研究发表，发现接受疫苗毒针90天后，对抗奥米克戎毒株感染的“有效性”下降为负值，比不打疫苗的人群 相比，其有效性下降到-76.5%（辉瑞）和-39.3%（莫德纳）之多。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-138.png)
+之所以会出现这个现象，实质上是因为疫苗对人体的免疫系统造成了损害，才会导致注射疫苗之后的防护力持续下降，甚至比不打疫苗的人群还低三成甚至七成。这也就可以理解为何澳洲的疫情和住院人数双双暴增而南非的疫情曲线与之前的3次疫情大致相仿，而本次疫情的病情却普遍轻微，最主要的原因恐怕是大多数南非病人没有注射毒针，而且经过之前三次疫情的洗礼，建立了真正的群体免疫。不像澳洲，“疫苗“毒针如此普遍，12岁以上人口的接种率超过90%，仍然无法达成真正的群体免疫，甚至这些接受疫苗毒针的民众的免疫力受到了损害，更成为传播疫情的温床，这次导致澳洲受到这波疫情的重击。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+发布：去中心化Math
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
