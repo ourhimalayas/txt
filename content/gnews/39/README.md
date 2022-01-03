@@ -2,10 +2,10 @@
 ---
 
 
-## 欧洲中共病毒确诊病例超一亿人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817198/)
+## 梅西接种疫苗后依旧感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817200/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,19 +13,18 @@
 
 
 
-截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpg)
-仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
+2022年1月2日，巴黎圣日尔曼球队官方宣布，队内有四名球员确诊。 这四位球员分别是梅西，贝尔纳特，里科，比图马扎拉。 而早在2021年5月1日，2021年美洲杯为参赛球员接种了中共的科兴疫苗，梅西也在这个接种名单之中。
 
-全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
-
+分析人士指出，越来越多的知名运动员在接种后出现梗塞，以及依旧被感染，会唤醒更多的民众发现，目前的ccp病毒疫苗对人体百害而无一利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpg)
 参考链接：
-[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
+1. [梅西、内马尔将接种中国新冠疫苗征战美洲杯](http://www.xinhuanet.com/2021-05/01/c_1127401269.htm)
+2.[巴黎官方：梅西新冠检测呈阳性](https://news.zhibo8.cc/zuqiu/2022-01-02/61d18d3ca7a7e.htm)
+3. [Vannes/PSG – Le point officiel sur le groupe : Messi parmi les joueurs positifs au Covid](https://www.parisfans.fr/club/vannes-psg-le-point-officiel-sur-le-groupe-messi-parmi-les-joueurs-positifs-au-covid-579791.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：文特
-编辑：飞虹
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
