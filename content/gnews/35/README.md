@@ -2,22 +2,20 @@
 ---
 
 
-## 世界卫生委员会呼吁停止实验性“疫苗”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815598/)
+## 德国超过95%的奥密克戎病例接种过疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815597/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山翻译部 defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，据盖特消息显示，世界卫生委员会WCH日前呼吁，全球应立即停止接种中共病毒实验性“疫苗”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.11.png)
-一位该组织的工作人员在视频中表示，关于中共病毒，眼下其实已经存在安全、有效和低负担的治疗方法，但各个国家的政府、卫生部门和主流媒体非但不推广这些安全、实惠的治疗方法，反而只是将那些感染者隔离在家中，直至他们的病情恶化到需要入院治疗。
+2021年12月31日，据联邦政府出具的一份新报告显示，德国超过95%的奥密克戎变种报告病例发生在完全接种过中共病毒疫苗的民众身上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.01.png)
+有报道提及，德国机构罗伯特科赫研究所于2021年12月30日发表的一份文件中包含了四千两百零六名感染中共病毒奥密克戎变种的患者的疫苗接种状态信息。 其中，有95.6%的感染者至少接种了两剂中共病毒疫苗，另有28%的患者接种了第三剂加强针。此外，仅有186名感染者未曾接种过疫苗，占所有新变种感染病例数的4%。
 
-与此同时，科学研究、专家经验和大量案例都清楚地表明，目前正在大规模进行的中共病毒实验性基因疫苗存在着严重的风险。该工作人员提到，这些基因疫苗既无效，更不安全，甚至已经被证明是有毒的。此外，这些中共病毒疫苗中的已知成分被证明会对人体造成生物危害，而其中未被公开的成分则更让人担忧，甚至可能会对被注射者构成更大危害。而世界各地的不良反应报告也表明，中共病毒疫苗有严重的副作用，甚至会使接种者死亡。
-
-对此，世界卫生委员会认为，对于这些中共病毒疫苗给个人和群体健康所构成的严重风险，政府、医疗机构和其他公司都表现出不诚实的做法。因此，该组织发布了一项停止和终结中共病毒疫苗接种的声明，当中要求政府、相关机构和公司以及个人立即停止参与中共病毒疫苗的制造、销售、管理和推广，并立即采取果断行动制止这一前所未有的医学实验，以此停止对包括儿童在内的民众造成更大的伤害。
+对此，报道中批评道，这些数据基本上可以表明，中共病毒疫苗对预防民众感染奥密克戎变种方面没有任何效用，但制药公司却试图继续推进疫苗的接种，同时，各大社交媒体平台也在着重审查那些关于中共病毒疫苗副作用和不良反应的报道。
 
 参考链接：
-1）[https://gettr.com/post/pl6y3w809a](https://gettr.com/post/pl6y3w809a)
-2）[World Council for Health Calls for an Immediate Stop to the Covid-19 Experimental “Vaccines”](https://worldcouncilforhealth.org/campaign/covid-19-vaccine-cease-and-desist/)
+1）[REPORT: Over 95% of Omicron Cases are in Vaccinated People.](https://thenationalpulse.com/2021/12/31/vaccinated-21-times-more-likely-to-get-omicron/)
+2）[https://www.gettr.com/post/plbrglc451](https://www.gettr.com/post/plbrglc451)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
