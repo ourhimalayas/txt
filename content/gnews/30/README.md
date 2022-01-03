@@ -2,36 +2,39 @@
 ---
 
 
-## 新中国联邦人要拥有爱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818310/)
+## 有声|南极极地站多数工作人员感染新冠病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818293/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-2.jpg)
-郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
+配音：香草山教育部 – 百香果
 
-郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
 
-自从爆料革命开始至今，战友们从郭先生的言行中感受到了爱。他爱自己，爱家人，爱亲人，爱战友，爱朋友，爱员工，爱国人，爱世界上70多亿人民。战友们对此都有深刻的体会，这份大爱吸引了无数个新中国联邦人紧紧的跟随。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间2021年12月30日，据有关媒体报道，比利时伊丽莎白公主南极极地站25名工作人员中有三分之二确诊感染了中共病毒。
 
-12小时元旦大直播，多达100多位战友们积极参与，从头到尾都充满着爱，流露出爱，述说着爱！有爱就有幸福，有爱就有未来。我们有爱，必将战胜邪恶，消灭中共。
+消息显示，这些研究人员从比利时飞往南极站的途中曾在南非开普敦进行了为其10天的隔离。而他们在到达极地站后，已经确诊的三例感染者立即被隔离并在随后离开了站点。然而，奥密克戎病毒在极地站内的传播并未停止。
 
-参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gettr.com/post/plas6p681c)
+据悉，这25名研究人员全部完成了中共病毒疫苗的全面接种，其中一人还接种了加强针。同时，所有的工作人员均通过了多次中共病毒PCR测试，且被隔离并生活在世界上最偏远的地方。即便如此，奥密克戎变种病毒仍然袭击该基地工作站。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+目前，该极地站点已经缩短了工作时间，且暂不会有新人员前往该工作站，剩余的工作人员包括两名随队急诊医生将在南极滞留到2022年1月12日。
 
-总编/编辑：Jack Li文阳
-校正/发稿：Fei797
+文字版原文：[南极极地站多数工作人员感染新冠病毒](https://gnews.org/zh-hans/1812029/)
 
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
