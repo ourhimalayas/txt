@@ -2,19 +2,23 @@
 ---
 
 
-## 被毁坏的大台散落更多的新闻自由
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818075/)
+## 【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818111/)
 
-作者：东京樱花团｜阿恩
-![](https://lh5.googleusercontent.com/XvIuEUcxqSmmnyFGGo7EZIZ3k8-n3zPoP_4PALkPjtYEEw-6oEOnWPF55n4TfIOU8ebNwmKp_MFbW_RjR9hrX6lNqA8g3AMh4GcRMlddra4MTJ0aMOAl-lC38Qb5jCzW---2YvIO)*[图片来源](https://news.rthk.hk/rthk/ch/component/k2/1627063-20220103.htm)*
-网媒《众新闻》昨晚宣布，将于星期二起停止营运。记协表示，对一星期内接连有传媒机构停运深感痛心及遗憾。记协说，《立场新闻》及两名高层被控以「串谋发布煽动刊物」罪，不足一星期，再有传媒机构疑忧虑「寒蝉效应」而停运，香港被喻为「亚洲国际都会」，信息流通与新闻自由不可或缺，如今一再有传媒机构停运，对本港声誉所受的影响难以估计，促请港府履行《基本法》对新闻及信息流通自由应有的保障。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-150.png)（三星即将推出的 NFT 电视平台的预览）[图片来源](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+据TheVege1月2日报道，三星表示，正计划从2022年的电视产品系列开始广泛支持NFT。
 
-香港媒体在中共的白色恐怖下命运坎坷，不少媒体被渗透导致架构重组，各种民生专题被切，编辑人员被迫辞职；那些不堪屈服的媒体则被中共冠以危害国安的罪名取缔和冻结资产；不少自媒体转移到海外运营避开中共追击。而在一周内，立场新闻被中共抄家，昨日晚间众新闻也宣布解散，至此，属于香港人的媒体绝迹。许多市民在众新闻的网页下留言叹息，记协也发布申明斥责港府剥夺新闻自由，而中共党媒则落井下石嘲讽黄媒闻风而逃。不过在LINHK上有港人彼此鼓励要更加八卦，用每个人的手机记录和传递香港的一切。中共一贯行事简单粗暴，总以为港人的行动有大台支持，而中共除去这些所谓的大台，却成就了民众自主传递真像的能力。网络科技日新月异的时代，没有事情能被永远掩盖，中共对全球人类所做的恶将面临最严厉的审判。
+三星公司在一份新闻稿中说：“随着对 NFT 的需求不断增加，对当今分散的观看和购买环境的解决方案的需求从未如此之大。在2022年，三星将推出世界上第一个基于电视屏幕的NFT浏览器和市场聚合器，这是一个突破性的平台，让你在一个地方浏览、购买和展示你最喜欢的艺术品。”
 
-资料来源：[**记协对一星期内接连有传媒机构停运深感遗憾**](https://news.rthk.hk/rthk/ch/component/k2/1627063-20220103.htm)
+根据三星的说法，这个平台将让创作者“与世界分享他们的艺术”，并让潜在买家在购买前预览 NFT。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
+当在其2022年的电视上观看NFT时，三星也非常注意细节。电视机上的智能校准功能将自动调整显示设置，“按照创作者的预设值，所以你可以放心，你的作品看起来无可挑剔，具有真实的图像质量。”
+
+信息来源：[Samsung promises ‘groundbreaking’ new TV feature: NFT support – The Verge](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 

@@ -15,155 +15,155 @@
 
 ---
 
-### [被毁坏的大台散落更多的新闻自由](/content/gnews/1/README.md)
+### [【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】连续接种疫苗、加强针对新变异病毒有效性很低或完全无效！](/content/gnews/2/README.md)
+### [中共国保险业去年百万人离职 保险板块跌30%](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [樱花灭共诗——甲午中秋阁作](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [强制疫苗 凶相毕露](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被毁坏的大台散落更多的新闻自由](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】连续接种疫苗、加强针对新变异病毒有效性很低或完全无效！](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [中国移动上市，继续收割百姓](/content/gnews/3/README.md)
+### [中国移动上市，继续收割百姓](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [弃主求荣的牧者](/content/gnews/4/README.md)
+### [弃主求荣的牧者](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [混乱的“科学”还叫科学？研究显示疫苗免疫效果较低](/content/gnews/5/README.md)
+### [混乱的“科学”还叫科学？研究显示疫苗免疫效果较低](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港立法会议员就任 首次在中共国国徽下宣誓](/content/gnews/6/README.md)
+### [香港立法会议员就任 首次在中共国国徽下宣誓](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国防长奥斯汀感染新冠隔离](/content/gnews/7/README.md)
+### [美国防长奥斯汀感染新冠隔离](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《众新闻》宣布4日起停运 总编辑：无法拿捏是否触法](/content/gnews/8/README.md)
+### [《众新闻》宣布4日起停运 总编辑：无法拿捏是否触法](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵盖特音频2022.01.02](/content/gnews/9/README.md)
+### [《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [郭文贵盖特音频2022.01.02](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [河南多个城市被封](/content/gnews/10/README.md)
+### [河南多个城市被封](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [拜登承诺称：若俄罗斯“入侵”乌克兰，美国将果断回应](/content/gnews/11/README.md)
+### [拜登承诺称：若俄罗斯“入侵”乌克兰，美国将果断回应](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [参议员兰德·保罗：福奇手上沾满献血](/content/gnews/12/README.md)
+### [参议员兰德·保罗：福奇手上沾满献血](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生谈制造病毒疫苗灾难的罪犯和怪物们的动机](/content/gnews/13/README.md)
+### [泽连科医生谈制造病毒疫苗灾难的罪犯和怪物们的动机](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [01/03每日播报｜法定货币终走向地狱  富翁们纷纷涌入数字货币市场](/content/gnews/14/README.md)
+### [01/03每日播报｜法定货币终走向地狱  富翁们纷纷涌入数字货币市场](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [又一家香港新闻媒体因“自由环境恶化”而关闭](/content/gnews/15/README.md)
+### [又一家香港新闻媒体因“自由环境恶化”而关闭](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [乔·艾伦：人类可能会成为超自然AI的宠物](/content/gnews/16/README.md)
+### [乔·艾伦：人类可能会成为超自然AI的宠物](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从西安物资供应看中共对平民的歧视](/content/gnews/17/README.md)
+### [从西安物资供应看中共对平民的歧视](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [01/03每日播报｜又一家独立的香港新闻网站将关闭](/content/gnews/18/README.md)
+### [01/03每日播报｜又一家独立的香港新闻网站将关闭](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [杀死那个石家庄人变成杀不死的石家庄人](/content/gnews/19/README.md)
+### [杀死那个石家庄人变成杀不死的石家庄人](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [麦卡洛：抗疫须摈弃虚假言论并使用伊维菌素和羟氯喹](/content/gnews/20/README.md)
+### [麦卡洛：抗疫须摈弃虚假言论并使用伊维菌素和羟氯喹](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [01/03每日播报｜著名共和党众议员泰勒·格林的推特账户被永久封杀](/content/gnews/21/README.md)
+### [01/03每日播报｜著名共和党众议员泰勒·格林的推特账户被永久封杀](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登、福奇和盖茨关于中共病毒疫苗满嘴谎言](/content/gnews/22/README.md)
+### [拜登、福奇和盖茨关于中共病毒疫苗满嘴谎言](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内每经网：宁波北仑全区中小学校4日起暂停线下教学；台湾花莲县海域发生6.4级地震](/content/gnews/23/README.md)
+### [墙内每经网：宁波北仑全区中小学校4日起暂停线下教学；台湾花莲县海域发生6.4级地震](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [中共流行病砖家：每个中国人都要打疫苗，还要打加强针](/content/gnews/24/README.md)
+### [中共流行病砖家：每个中国人都要打疫苗，还要打加强针](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共谎言加暴力的“动态清零”式防疫策略](/content/gnews/25/README.md)
- ` 儒为`
-
-### [恒大用老贷款延期增加新贷款的方式融资45亿玩老百姓](/content/gnews/26/README.md)
+### [恒大用老贷款延期增加新贷款的方式融资45亿玩老百姓](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [上风上水上龙头](/content/gnews/27/README.md)
- ` 骄子`
-
-### [共产党每秒每时都在杀人吃人肉把人类变成畜生不如的类](/content/gnews/28/README.md)
+### [共产党每秒每时都在杀人吃人肉把人类变成畜生不如的类](/content/gnews/31/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [退出美国股市是中国企业的海外上市终结](/content/gnews/29/README.md)
+### [退出美国股市是中国企业的海外上市终结](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [德国持续发放签证给更多阿富汗雇员](/content/gnews/30/README.md)
+### [德国持续发放签证给更多阿富汗雇员](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共匪正向着跟死神见面的地点狂奔](/content/gnews/31/README.md)
+### [共匪正向着跟死神见面的地点狂奔](/content/gnews/34/README.md)
  ` 银河勇气之星`
 
-### [日本政府已确定对人工智能监控技术出口进行管制](/content/gnews/32/README.md)
+### [日本政府已确定对人工智能监控技术出口进行管制](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国今后将很难得到AI监控技术](/content/gnews/33/README.md)
+### [中共国今后将很难得到AI监控技术](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.799 HDO](/content/gnews/34/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.799 HDO](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国保险公司的CEO说，18至64岁年龄段的死亡率较大流行前增涨了40%](/content/gnews/35/README.md)
+### [美国保险公司的CEO说，18至64岁年龄段的死亡率较大流行前增涨了40%](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/03 英喜时事速递](/content/gnews/36/README.md)
+### [2022/01/03 英喜时事速递](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：东京日病毒感染人数三个月来首次破百](/content/gnews/37/README.md)
+### [秘翻在线：东京日病毒感染人数三个月来首次破百](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共公布与拉美国家的合作计划以扩大其影响力](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [01/03每日播报｜新闻简讯:西安作秀人链传菜 中共病毒药会引起危及生命](/content/gnews/39/README.md)
+### [01/03每日播报｜新闻简讯:西安作秀人链传菜 中共病毒药会引起危及生命](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [喜马拉雅币一周分析与总结（12月27日-1月2日）](/content/gnews/40/README.md)
+### [喜马拉雅币一周分析与总结（12月27日-1月2日）](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [梅西接种疫苗后依旧感染](/content/gnews/41/README.md)
+### [梅西接种疫苗后依旧感染](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [欧洲中共病毒确诊病例超一亿人](/content/gnews/42/README.md)
+### [欧洲中共病毒确诊病例超一亿人](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/43/README.md)
+### [中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/45/README.md)
  ` 纽约香草山MOS02`
 
-### [报告：超过95%的“奥米克戎”病例发生在接种疫苗的人群中](/content/gnews/44/README.md)
+### [报告：超过95%的“奥米克戎”病例发生在接种疫苗的人群中](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [躺平币思考系列-1: “躺平币”体系的未来展望 &#8211;](/content/gnews/45/README.md)
+### [躺平币思考系列-1: “躺平币”体系的未来展望 &#8211;](/content/gnews/47/README.md)
  ` 纽约香草山MOS01`
 
-### [播客超级明星乔-罗根加入盖特——自由的发声平台](/content/gnews/46/README.md)
- ` 纽约香草山MOS02`
-
-### [中共国人工智能专利占世界总量之高，将带给人类什么?](/content/gnews/47/README.md)
+### [中共国人工智能专利占世界总量之高，将带给人类什么?](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/48/README.md)
+### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/49/README.md)
+### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/50/README.md)
  ` 關注組`
-
-### [7·24系列——秦岭龙脉](/content/gnews/50/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/51/README.md)
  ` 秘密翻译组-北美组`
