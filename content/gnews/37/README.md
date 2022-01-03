@@ -2,58 +2,104 @@
 ---
 
 
-## 中共惩罚在西安试图逃离中共病毒管控的人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1815870/)
+## 【秘翻在线】首届全球盖特用户年度大奖!
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816202/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010206.jpg)中共国北部陕西省西安，一名居民接受中共病毒核酸检测。(法新社图片)
-**摘要翻译：**
+**撰稿：Grace**
 
-《印度时报》12月31日报道，
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-5.03.06-PM.jpeg)
+在2022年1月1日，盖特（GETTR）首席执行官杰森·米勒(Jason Miller)和盖特高级副总裁凯兰·多尔(Kaelan Dorr)在直播中颁布了第一届全球盖特用户奖!
 
-中共政府正在惩罚试图逃避其最近在西安实施的中共病毒疫情封锁的人，一位中共国高级官员敦促采取“有力的行动”来遏制这座拥有1300万人口的中心城市的疫情爆发。
+首席执行官杰森·米勒先生说：“硅谷寡头对言论自由的镇压日益恶化，促使我们创建了盖特，结果是今年自由表达运动的一些真正闪亮的明星展示了他们的东西。充满活力的盖特社区证明，言论自由是有生命力的，只是需要一个人们可以自由表达自己的地方，而不必担心因其意见而被取消。祝贺我们的获奖者，而其他的用户，继续为自由发帖！”
 
-据中共国官方媒体新华社周四晚间报道，中共国副总理孙春兰强调，地方当局需要采取更加“有针对性和有力的”措施，并加强隔离控制。当天中共国报告了166个本土中共病毒确诊病例，其中161例发生在该市。
+这些获奖者是：
 
-据报道，孙春兰在到访西安期间谈到，西安的疫情局势是严峻而复杂的。孙春兰是目前执政的中国共产党25名政治局成员中唯一的女性，她还呼吁政府加强病例追查力度。
-
-当地警方不得不追踪那些试图逃脱严密控制的人。当地政府称，一名试图涉水过渭河出城的男子被警告，而据警方表示，另一名骑着共享单车蹬了80公里(约50英里)前往家乡的男子被罚款，并被送去隔离。
-
-一名从机场徒步走了100公里到附近县城的男子也被警方抓去隔离，并被处以数额不明的惩罚。
-
-中共政府于12月23日对西安市实施了封城措施——这是自近两年前始于武汉的中共病毒大流行以来中共最让人错愕的抗疫举措，这表明世界第二大经济体领导人坚持对中共病毒的零容忍态度。这个以其拥有2200年历史的兵马俑而闻名的新兴科技中心要求人们呆在室内，禁止驾车，并限制全国其他地区的人进入。据当地政府报道，目前西安全市已进行了6轮中共病毒检测，最近一次检测覆盖了900万人口。
-
-总部位于北京的《财新国际》援引当地人的话报道称，本周早些时候，西安当地居民在购买食品杂货方面遇到了麻烦。包括《环球时报》在内的中共官媒随后报道称，随着官员们加强了家庭用品的分配，情况已经有所缓解。
-
-科技公司美光科技(Micron Technology Inc.)和三星电子(Samsung Electronics Co.)表示，在封城的举措下，他们位于该市的工厂生产受到影响。
-
-芯片制造商美光科技表示，他们目前能够满足大部分客户的需求，但新的供应安排可能会出现延误。并补充道，公司正在采取“适当的措施”，以减少其工厂感染病毒的风险，包括现场测试、保持物理距离和暂时降低“劳动力密度”。
-
-**简评：**
-
-自从2019年武汉爆发中共病毒疫情以来，类似的毫无预警的封城、禁止老百姓走动的措施，屡屡在各个爆发疫情的中共国城市出现。经过近两年不间断的疫情封锁，中共国老百姓似乎进入了一种麻木的状态，只要没发生在自己所在的城市，疫情以及疫情带来的封城都不是问题。这种事不关己高高挂起的旁观者心态，让中共非法政府的掌权人对老百姓的管控更加肆无忌惮。
-
-此次西安封城，市民生活用品和物资出现短缺甚至断供，又一次让人看到了中共政府脆弱的危机处理能力以及他们不把中共国的老百姓当人看的心态。而那些至今还在为中共政权卖命的警察和“红袖箍”们对普通老百姓的残忍也让人又一次感到彻骨的寒冷。雪崩时没有一片雪花是无辜的，独裁者习近平要建立的是一个家天下的中共国，中共国的老百姓和国家机器的执行者们要懂得，这样的国度没有人可以独善其身，如果不能及早反抗，推翻中共的暴政，迎接中国人的将是无边的黑暗。这也提醒我们爆料革命的战友们，要坚持传播真相，揭示中国共产党的邪恶面具，让墙内更多的老百姓觉醒，让墙内中共体制内更多的人看清中共这个极权体制的绞肉机属性，激发他们站起来反抗，与国际社会和新中国联邦人一起，消灭独裁者，推翻这个邪恶的中共政权。
-
-新闻链接：[China punishes people trying to flee Covid controls in Xi’an](https://timesofindia.indiatimes.com/world/china/china-punishes-people-trying-to-flee-covid-controls-in-xian/articleshow/88612490.cms)
-
-*翻译/简评：milkcat*
-
-*校对: Harvey（叶知秋）*
+- **被询问最多的新用户（****Most Requested New User****）****:** [@ rwmalonemd](https://gettr.com/user/rwmalonemd) (DR. Malone)
 
 
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- **福奇最糟糕的噩梦****（****Fauci’s Worst Nightmare****）****:** [@RealPNavarro](https://gettr.com/user/realpnavarro) (Peter Navarro)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- **年度自由战士（美国）（****Freedom Fighter of the Year (USA)****）****:**  [@ rwmalonemd](https://gettr.com/user/DrZevZelenko) (Dr. Vladimir Zev Zelenko)
 
 
+- **发最多帖的发帖者（****Most Prolific Poster****）****:** [@ DineshDSouza](https://gettr.com/user/DineshDSouza) (Dinesh D’s Souza)
+
+
+- **年度社区组织者****（****Community Organizer of the Year****）****:** [@ ChatByCC](https://gettr.com/user/ChatByCC)
+
+
+- **人民的冠军****（****The People’s Champion****）****: **[@ JackPosobiec](https://gettr.com/user/jackposobiec) (Jack Posobiec)
+
+
+- **中共最大的恶梦（****CCP’s Biggest Nightmare****）****:** [@ Miles](https://gettr.com/user/miles) (Miles Guo)
+
+
+- **取消文化的最大眼中钉（****Cancel Culture’s Biggest Target****）****:** [@ TommyRobinson1](https://gettr.com/user/TommyRobinson1) (Tommy Robinson)
+
+
+- **国会年度人物（****Congress Person of the Year****）****: **[@ MTG4America](https://gettr.com/user/mtg4america) (Marjorie Taylor Greene)
+
+
+- **发最多Memer ****的用户**（**Most Prolific Memer****）****: **[@ ilPresidento](https://gettr.com/user/ilpresidento)
+
+
+- **年度最佳真正的新闻机构（****Real News Outlet of the Year****）****:** [@ nationalpulse](https://gettr.com/user/nationalpulse) (The National Pulse)
+
+
+- ** ****年度最佳评论员（****Biting Commentator of the Year****）****: **[@ TimRunsHisMouth](https://gettr.com/user/timrunshismouth) (Tim Young)
+
+
+- 最佳二人组（**Best Duo****）****: **[@ DiamondandSilk](https://gettr.com/user/%20DiamondandSilk) (Diamond and Silk)
+
+
+- **直播明星****（****Livestream Superstar****）****: **[@ vlogdolisboa](https://gettr.com/user/vlogdolisboa) (Femando Lisbor)
+
+
+- **年度自由战士（巴西）（****Freedom Fighter of the Year (Brazil)****）****: **[@allansantosbr](https://gettr.com/user/allansantosbr)  (Allan dos Santos)
+
+
+- **年度最佳发帖者** （**Troll of the Year****）****: **[@catturd2](https://gettr.com/user/catturd2)
+
+
+- **最大的声音（****Biggest Voice****）****: **[@ KamVTV](https://gettr.com/user/KamVTV) (Kambree)
+
+
+- **年度最佳活动家（****Activist of the Year****）****: **[**@** **ScottPresler**](https://gettr.com/user/ScottPresler)**  **(Scott Presler)
+
+
+- **火焰下的勇气（****Courage Under Fire****）****: **[@Project\_Veritas](https://gettr.com/user/project_veritas)
+
+
+- **盖特的核心和灵魂（****The Heart and Soul of GETTER****）****: **[@ RafaelGoldberg](https://gettr.com/user/RafaelGoldberg) (Rafael Goldberg), [@JPLyle](https://gettr.com/user/JPLyle) ( Jeanne Lyle), and [@CCBagley](https://gettr.com/user/CCBagley) (Christi Bagley)
+
+
+- **男人/****女人，神话，传奇（****The Man/Woman, the Myth, the Legend****）****: **[@SteveBannon](https://gettr.com/user/stevebannon)  (Steve Bannon)
+
+
+- **信仰战士（****Faith Warrior****）****: **[@ christineyeargs](https://gettr.com/user/christineyeargs) (Christine Yeargin)
+
+
+- **运动的未来（****The Future of the Movement****）****: **[@TheJordanRachel](https://gettr.com/user/TheJordanRachel) (Jordan Rachel), and @ [@theisabelbrown](https://gettr.com/user/theisabelbrown) (Isabel Brown)
+
+
+- **年度最佳自由斗士（英国）（****Freedom Fighter of the Year (U.K)****）****: **[@LozzaFox](https://gettr.com/user/lozzafox) (Laurence Fox)
+
+
+- **年度自由斗士（法国）（****Freedom Fighter of the Year (France)****）****: **[@zemmoureric](https://gettr.com/user/zemmoureric)** (**Eric Zemmour)
+
+
+- **年度自由斗士（德国）（Freedom Fighter of the Year (Germany)）: **[@ reitschuster](https://gettr.com/user/reitschuster) (Boris Reitschuster)
+
+
+- **年度自由斗士（全球**）（**Freedom Fighter of the Year (Global)****）****: **[@EnesKanter](https://gettr.com/user/EnesKanter) (Enes Kanter-Freedom)
+
+
+- **年度最佳人物**（**Person of the Year****）**** : **[@ JairBolsonaro](https://gettr.com/user/jairbolsonaro) (Jair Bolsonaro- President of Brazil巴西总统)
+
+
+**新闻来源****：**** **[The First Annual Worldwide GETTIE Awards](https://gettr.com/streaming/plctbxe658)
 
  
 

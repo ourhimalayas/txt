@@ -2,24 +2,22 @@
 ---
 
 
-## 加拿大供应链或因跨境疫苗政策而断裂
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816872/)
+## 加拿大疫苗强制接种政策危及孕妇
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816939/)
 
-采编/编译撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image2.jpg)
-[图片来源](https://www.trucknews.com/transportation/canada-to-require-vaccines-for-cross-border-truck-drivers-cta-warns-of-perfect-storm/1003155235/)
+采编/编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image.jpg)
+据加拿大自媒体【真北方】1月2日报道，阿尔伯塔省[卫生服务局]日前表示，部分社区医院的妇女健康计划由于“人员配备紧张”而被迫暂停向孕妇提供分娩服务。
 
-据加拿大《头条新闻》1月1日报道，[加拿大卡车联盟]和[加拿大商会]日前联合发出警告称，目前联邦政府对跨越美加边境的货运卡车司机所实行的疫苗强制接种规定，将会破坏该国货物供应链，并有可能导致相关经济领域的崩溃。
+报道称，相关社区医院的孕妇已被告知要在数十公里外的医院制定替代计划。但由于“新冠病毒”疫情的影响，该医院的分娩部门将在关闭三个月后于3月份才能重新开放。
 
-报道指出，从1月15日开始，只有完全接种疫苗的货运卡车司机才被允许进入加拿大。为此，预计将有约3万名常年穿越美加边境，从事物资运输的加拿大卡车司机被迫离职。
-
-据悉，美加之间每年货物运输总量约为7000亿美元，其中62%经由卡车运输。大量卡车司机离职所造成的人手短缺，会让贸易运输能力下降约20%，从而对两国经济产生巨大影响，并因此导致物价上涨，最终损害加拿大消费者利益。
+据悉，加拿大目前有近万名未接种“新冠病毒”疫苗的医护人员被无薪休假或被解雇。为此，BC省的部分医院已因工作人员严重短缺而被迫关闭了手术室。同时，该省的儿童医院和妇女医院也因此取消了大量病患预约和紧急医疗服务。
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[參考链接](https://headtopics.com/ca/fragile-supply-chain-faces-risk-without-delay-to-january-cross-border-vaccine-mandate-warns-truckin-23106217)
+[原文链接](https://tnc.news/2022/01/02/no-more-childbirths-at-alberta-hospital-due-to-lack-of-staff/)
 
  
 
