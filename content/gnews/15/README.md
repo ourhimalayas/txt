@@ -2,32 +2,25 @@
 ---
 
 
-## 土耳其开打第五针新冠疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1816496/)
+## 大直播后记——计划生育之罪恶
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816508/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-17.png)图片来自网络
-土耳其媒体《DAILY SABAH》近日报道，土耳其卫生部周五表示，卫生部已开始为特定人群提供第五剂加强剂量的新冠疫苗。
+**——致被虐杀的新生命**
 
-至少三个月前接种过两剂中国科兴疫苗和两剂辉瑞新冠疫苗的个人将能够预约第五剂。
+**整理：**北极熊
+**编辑：**翼族
 
-他们将能够获得科兴、辉瑞或土耳其本国生产的图尔科瓦茨（Turkovac音译）新冠疫苗作为加强针施打。
+2022年元旦的文贵大直播中，“拥抱太阳”战友讲述了亲身经历的计划生育的残忍：
 
-图尔科瓦茨是一种国内开发的非活性新冠疫苗，在获得紧急使用批准后终于向公众开放。周四，市医院成为第一个接种图尔科瓦茨的场所，当地的新冠疫苗接种计划预计将在几周内扩展到所有医院和其他场所。
+我经历过当初的计划生育，亲身经历一个孕妇怀着要足月的孩子——因为是超生——被强迫到医院引产。结果那孩子生下来是活的！我说到这里心里特难受，那个孩子在卫生间里哭了一宿！她（他）还没死，你知道吗？！到了早上，没有办法了，我们的助产士就活活把她（他）闷死了！就是这样的！我经历过计划生育的残忍，为什么现在又让人生二胎三胎？你是把人不当作人，你把人当成一个机器，你需要她去给你生孩子就让她生，你以为那是个开关啊？你按一下她就动啊？！
 
-专家们也希望国产新冠疫苗能够消除国内民众对新冠疫苗的犹豫。
+*发布：翼族*
 
-在土耳其，有超过 83% 的 18 岁以上人群接种了两剂新冠疫苗，而 91.6% 接种了单剂。
-
-据土耳其卫生部称，该国注射的新冠疫苗数量已远远超过 130 万剂。
-
-如果说打两针或者三针吃青蒿素或伊维菌素还有得救的话，那打到第五针哪怕是神仙也难救了吧。新冠疫苗灾难真的无法想象，埃尔多安已经疯了，请立刻停止施打新冠疫苗，再打下去，土耳其可能真的要像古楼兰国一样举国消失了。
-
-参考链接：
-
-[https://www.dailysabah.com/turkey/turkey-starts-offering-5th-dose-of-covid-19-booster-shots/news?gallery\_image=undefined#big](https://www.dailysabah.com/turkey/turkey-starts-offering-5th-dose-of-covid-19-booster-shots/news?gallery_image=undefined#big)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

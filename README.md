@@ -15,119 +15,119 @@
 
 ---
 
-### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [驻冲绳美军感染中共病毒数一天从70例暴增至235例](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：七哥谈“风、风言风语、宇宙和沙”](/content/gnews/3/README.md)
+### [拜登：如果乌克兰受到攻击，美国将做出回应](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022，人类生死大决战](/content/gnews/4/README.md)
+### [澳洲网协跪拜金钱，专门开辟疫苗豁免绿色通道](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫情封城正摧毁加拿大年轻人的生命健康](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [驻冲绳美军感染中共病毒数一天从70例暴增至235例](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大直播后记：七哥谈“风、风言风语、宇宙和沙”](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022，人类生死大决战](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [元旦大直播后记：七哥谈“我是音雄”](/content/gnews/5/README.md)
+### [元旦大直播后记：七哥谈“我是音雄”](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/6/README.md)
+### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/9/README.md)
  ` 關注組`
 
-### [【粤语配音】2022年1月2日：远离城市舒适的生活，活下去&#8230;](/content/gnews/7/README.md)
+### [【粤语配音】2022年1月2日：远离城市舒适的生活，活下去&#8230;](/content/gnews/10/README.md)
  ` MOS香港部`
 
-### [元旦大直播后记：七哥谈亚洲音乐舞蹈之王日本](/content/gnews/8/README.md)
+### [元旦大直播后记：七哥谈亚洲音乐舞蹈之王日本](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特精要2022/01/02](/content/gnews/9/README.md)
+### [文贵先生盖特精要2022/01/02](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房](/content/gnews/10/README.md)
+### [缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房](/content/gnews/13/README.md)
  ` GTV News Talk`
 
-### [中共病毒在西方衍生出了一种邪教(一)](/content/gnews/11/README.md)
+### [中共病毒在西方衍生出了一种邪教(一)](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记——计划生育之罪恶](/content/gnews/12/README.md)
+### [大直播后记——计划生育之罪恶](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [众新闻成为第三家在最近几周被关闭的香港新闻媒体](/content/gnews/13/README.md)
+### [众新闻成为第三家在最近几周被关闭的香港新闻媒体](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗](/content/gnews/14/README.md)
+### [纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [土耳其开打第五针新冠疫苗](/content/gnews/15/README.md)
+### [土耳其开打第五针新冠疫苗](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [雅典娜时报-162期](/content/gnews/16/README.md)
+### [雅典娜时报-162期](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [足球名将梅西感染中共病毒，已被隔离](/content/gnews/17/README.md)
+### [足球名将梅西感染中共病毒，已被隔离](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/18/README.md)
+### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/19/README.md)
+### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/20/README.md)
+### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/23/README.md)
  ` 丁过`
 
-### [爆料革命日记（九）：跨年](/content/gnews/21/README.md)
+### [爆料革命日记（九）：跨年](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [丹麦的研究表明，接种疫苗的人更有可能感染奥密克戎](/content/gnews/22/README.md)
+### [丹麦的研究表明，接种疫苗的人更有可能感染奥密克戎](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加拿大魁北克省新冠禁宵令 禁止民众期间遛狗](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共国可防可控的不是病毒，而是人民](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
-
-### [NBA名人堂球员约翰-斯托克顿：我们必须阻止他们用疫苗伤害我们的孩子](/content/gnews/25/README.md)
+### [NBA名人堂球员约翰-斯托克顿：我们必须阻止他们用疫苗伤害我们的孩子](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [阿根廷3岁女孩注射疫苗一天后死亡](/content/gnews/26/README.md)
+### [阿根廷3岁女孩注射疫苗一天后死亡](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/27/README.md)
+### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/28/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/28/README.md)
+### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：外媒聚焦全球最大自贸区扬帆起航](/content/gnews/29/README.md)
+### [DC大中华时事：外媒聚焦全球最大自贸区扬帆起航](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共惩罚在西安试图逃离中共病毒管控的人](/content/gnews/30/README.md)
+### [中共惩罚在西安试图逃离中共病毒管控的人](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/31/README.md)
+### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [未接种疫苗的阿联酋人将从1月10日起被禁止离开阿联酋](/content/gnews/32/README.md)
+### [未接种疫苗的阿联酋人将从1月10日起被禁止离开阿联酋](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数千个航班取消：今年冬天取消、延误是新常态吗？](/content/gnews/33/README.md)
+### [数千个航班取消：今年冬天取消、延误是新常态吗？](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [海军陆战队已开除了200多名拒绝COVID疫苗强制令的军人](/content/gnews/35/README.md)
+### [海军陆战队已开除了200多名拒绝COVID疫苗强制令的军人](/content/gnews/36/README.md)
  ` 温哥华扬帆农场`
 
-### [世界卫生委员会呼吁停止实验性“疫苗”](/content/gnews/36/README.md)
+### [世界卫生委员会呼吁停止实验性“疫苗”](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [德国超过95%的奥密克戎病例接种过疫苗](/content/gnews/37/README.md)
+### [德国超过95%的奥密克戎病例接种过疫苗](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [2022/01/02 英喜时事速递](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/39/README.md)
  ` GTV新闻访谈`

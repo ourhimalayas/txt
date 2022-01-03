@@ -2,30 +2,22 @@
 ---
 
 
-## 一箭双雕——日本利用氢细菌固碳并实现资源化生产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816451/)
+## 雅典娜时报-162期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816466/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-13.jpg)
-为了实现到2050年去碳化的目标，日本政府已决定开始将一种名为“合成生物学”的技术商业化。2日获悉，政府将开始实际应用“合成生物”技术，通过给转基因微生物喂食二氧化碳（CO2）等温室气体的特定化学物质，高效生产燃料和生物塑料。该技术将纳入定于2022年6月前制定的岸田文雄政府的清洁能源战略。
+**《雅典娜时报》汇聚全球新闻时事**
 
-日本正在领导开发一种“二氧化碳回收技术”，利用生物技术将二氧化碳转化为一种资源，日本将率先开发这项技术，以帮助减少全世界的温室气体排放，并将考虑如何通过支持国内生物相关领域的创业和相关制造业来加速这一技术的发展。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2022/01/时报1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/时报2.jpg)
+发布：kk
 
-该技术的机制是对氢细菌进行基因改造，这些细菌可以食用收集的二氧化碳并产生各种物质，便于以最有效的方式生产燃料、纤维和塑料。据信，氢细菌吸收二氧化碳的能力是藻类的50倍。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-在日本，生产来自眼虫的生物燃料并使用转基因微生物加工高性能纤维的公司已经引起了众多关注。
-
-长期以来，日本在利用微生物发酵技术制造产品方面具有丰富的专业优势，如酱油和清酒。 利用氢细菌的脱碳技术有望推向世界。
-
-如果此“合成生物学”技术能顺利得以发展，则有望实现抑制全球变暖和资源化生产的双赢。
-
-信息源：
-
-[＜独自＞バイオでＣＯ２から資源　政府、クリーンエネ戦略盛り込みへ](https://news.yahoo.co.jp/articles/0df59018ba52db81c18d38ad96a80466259e04df)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
