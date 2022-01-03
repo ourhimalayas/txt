@@ -2,28 +2,31 @@
 ---
 
 
-## 视频| 《新中国联邦宣言》的初衷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1817178/)
+## 欧洲中共病毒确诊病例超一亿人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817198/)
 
-## 摘自2022.1.1郭先生大直播
-
-制作：香草山香港部
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
-今天特别是在2022年1月1号第一天,新中国联邦,我们的发起人和创始人,所有的战友们,我们在一起第一次,我们有一个铁血组，铁血组相当于过去的这些流氓组织最早发起的所谓爱国主义，咱们是救国主义，而且他们手里面举的是什么？是家天下、欺骗人的，所谓的黑社会的结社文化的叫结社大纲，咱们这个叫什么？新中国联邦，咱们跟他们完全不同，他们是右手，咱们是左手，咱们是手举着苍天、摸着良心的，从来不会有任何政权、利益、名义之心的，这样的一个新中国联邦的宣言。
-
-大家去看一看，第一章第一页倒数第四行，开始就明显的写着：灭共是正义的需要，然后接下来很简单的宣言，从天到地，从人到动物，从动物到植物，从植物到环境，到山到水，没有我们不能包括的，我们不仅说中国人的事，我们还说全人类的事，我们还说全天下的事。
-
-大家都知道今年发生了体育节最重要的彭帅事件，天天代表爹亲娘亲不如党亲的党，张高丽告诉彭帅同志说，“宇宙无限大，地球是一粒沙”
-
-它告诉大家，应该像这样对天地对人的敬意和爱意，它叫新中国联邦，这是我们今天大家坐在这里，我们说什么都不要忘了，因这个我们走在了一起，这是我们一切的原因，不是因为七哥。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-发稿：雪梨
+截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpg)
+仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
+
+参考链接：
+[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -33,9 +36,15 @@
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,89 +2,20 @@
 ---
 
 
-## 01/03每日播报|社媒消息：班农先生 罗伯特马龙博士
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1817267/)
+## 【中日财经爆】中共最大房企恒大香港停止交易
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1817290/)
 
-BY:[秘翻新闻](https://gtv.org/broadcast/watch/61d2ba2c31a71619b573f2e6)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-129.png)[图片来源](https://news.cnyes.com/news/id/4795611)
+1月3日据港交所披露，中国恒大发布公告称，公司将于今天(2022年1月3日)上午九时正起停止买卖。因此，与该公司有关的所有结构性产品亦将同时停止买卖，恒大的债务危机一发不可收拾，港股市场其他恒大系股票盘中集体下挫。恒大汽车跌超7%，恒腾网络跌4%，恒大物业跌0.76%。
 
-**2022-01-**03
+2022元旦假期，一则恒大海花岛被行政处罚的消息传开来：因违法取得的规划许可证已被撤销等，要求恒大海南海花岛2岛的39栋楼在10天内拆除，责令拆除令许家印雪上加霜，另外，在12月31日下午，恒大财富在官网披露公告称，现在公布未来3个月的兑付方案，新兑付方案即日起实施，原兑付方案暂停。对于调整方案的原因，恒大财富表示，自2021年9月13日实施以来，广大投资者提出了很多宝贵意见，特别是原方案中仅兑付已到期投资产品，大多数投资者反映不公平；同时，因恒大财富投资的项目资金回笼不理想，原兑付方案难以实施。房地产商也许没有想象的那么光鲜！
 
-**1. 班农先生1月1日在盖特发文：** 致所有的斗士： 新中国联邦、爆料革命、法治基金和法治社会，我们老百姓的“使命是伟大的”：干掉中共，并从根上铲除它。正如拿破仑对法国元帅所说：“一旦你着手要攻下维也纳，那就把它拿下吧！“ 祝各位新年快乐！ 明年北京相见！
+信息来源：[中国恒大在港交所暂停交易](https://me.mbd.baidu.com/r/z3b6TLhghq?f=cp&amp;rs=2321447262&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7acae39b88a968f6)
 
-[https://gettr.com/post/pl9q0c236b](https://gettr.com/post/pl9q0c236b)
-
-**2. 班农先生1月2日在盖特发文：** 中共和他们的喉舌–《环球时报》，从一开始就在中共病毒这一问题上撒了谎。他们恐吓武汉市民，虐待老百性，并感染了全世界。应该对其惩罚，但那些左派全球主义者却将奥运会赠送给中共。
-
-[https://gettr.com/post/plcfma445d](https://gettr.com/post/plcfma445d)
-
-**3. 班农先生1月3日在盖特发文：** 前英首相托尼·布莱尔被英女王列入荣誉名单。现已成为爵士的托尼正大力推动全民生物识别卡这一灾难性想法。
-
-[https://gettr.com/post/plfx6q3d38](https://gettr.com/post/plfx6q3d38)
-
-**4. 美国众议员马乔丽·泰勒·格林1月2日在盖特发文： **众议员玛克辛·沃特斯 (Maxine Waters)可以在推特上发出暴力威胁，卡马拉·哈里斯 (Kamala Harris) 和议员伊尔汗·奥马尔 (Ilhan Omar)可以发推说要保释暴徒，恐怖组织伊斯兰革命卫队的首席发言人可以在推特上悼念苏莱曼尼，我却因为在推特上发布疫苗不良反应事件报告系统（VAERS）的统计数据而被禁言。推特是美国的敌人，因为它打压真相。 那好吧！我会向美国展示我们不需要它们，现在是打败我们敌人的时候了。
-
-[https://gettr.com/post/plf6qx50e8](https://gettr.com/post/plf6qx50e8)
-
-**5. 喜马拉雅交易所1月1日发推说：** 2021年对喜马拉雅交易所来说是不寻常的一年，感谢各位在过去12个月的支持。 Hcoin的价格增长了33274%，Hcoin的市值达到了334亿美元，用户遍布172个国家。 2021年4月，喜交所正式上线，1万多名用户在5月底前完成注册。 2021年7月，私人客户可以进行“快速购买”，即时购买喜币。 2021年11月，我们的交易平台正式启动。在第一个交易日，喜币就从0.1美元涨到了8.107美元，涨幅高达8007%。 我们的旅程才刚刚开始，2022年会有更多利好消息！
-
-
-
-> Happy New Year everyone 🎉
-> 
-> 2021 has been quite a year. Thank you all for your support in the past 12 months.
-> 
-> Our journey has just started and there will be more coming in 2022! [#goodbye2021](https://twitter.com/hashtag/goodbye2021?src=hash&amp;ref_src=twsrc%5Etfw) [#hello2022](https://twitter.com/hashtag/hello2022?src=hash&amp;ref_src=twsrc%5Etfw) [#himalayaexchange](https://twitter.com/hashtag/himalayaexchange?src=hash&amp;ref_src=twsrc%5Etfw) [#newyear](https://twitter.com/hashtag/newyear?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/RefW7X7BMD](https://t.co/RefW7X7BMD)
-> — Himalaya Exchange Official (@himalayaxchange) [January 1, 2022](https://twitter.com/himalayaxchange/status/1477252930579410947?ref_src=twsrc%5Etfw)
-
-
-
-**6. 《国家脉动》1月1日在盖特发文：** 杰森米勒：盘点大科技公司在2021年的最糟表现。 【盖文转报道，对于大型社交媒体平台的用户来说，2021年是糟糕的一年。从普通公民到知名公众人物，甚至唐纳德·川普总统，都因表达政治观点而被平台冻结账号或禁言。这一年还爆出了这些平台泄露了用户的私人信息，包括儿童。在2020年之后，很难相信社交媒体上的言论自由情况会变得如此糟糕，但它确实存在。硅谷的寡头们认为他们是世界的思想警察，他们的独裁法令制定关于什么是可接受的意见证明了这一点。你会认为，随着社交媒体市场竞争的加剧，他们会意识到人们已经厌倦了他们严厉的审查制度和有害的营销技巧，但他们实际上变得更糟。这就是我们创建盖特的原因，一个新的言论自由平台，为世界各地的人们提供一个可以自由、安全地表达政治观点的地方。】
-
-[https://gettr.com/post/pl8i4j5acc](https://gettr.com/post/pl8i4j5acc)
-
-**7. 盖特官方1月3日在盖特发文：** 由于推特的审查制度愈发严厉，美国知名网红主播乔·罗根 (Joe Rogan) 加入盖特平台。 1月2日下午，随着推特继续禁言该平台用户，罗根创建了一个官方盖特账户。罗根在盖特上写道：“为了防止变得愈发愚蠢和糟糕的推特把我的账户冻结，我很高兴加入盖特。” 【盖文转《the post millennial》报道，推特最近以违反新冠政策为由，先后将罗伯特·马龙博士和美国众议员马乔丽·泰勒·格林等人逐出平台。马龙博士说：“由于不遵从科技寡头的叙事，所以他们把你禁言。在新冠病毒的治疗和新冠疫苗问题上，很明显科技公司有一个审查议程。如果你的言论被他们认定违反了平台政策，就可以把你禁言，即使你说的是科学事实。”】
-
-[https://gettr.com/post/plgurw90c5](https://gettr.com/post/plgurw90c5)
-
-**8. 罗伯特马龙博士1月3日在盖特发文：** 印第安纳州一家人寿保险公司的一份报告提出一个议题：如果这次在人类身上进行的历史最大规模试验失败了会发生何种情况？ 【盖文转报道，一位经验丰富的股票分析师同事今天给我发了一个报道链接，标题是“印第安纳州一家人寿保险公司的首席执行官说，18至64岁群体的死亡人数较大流行前增加了40%”。如果这篇报道属实，那么在我看来，对人类进行的有史以来最大实验已经宣告失败。德国政治家莱纳·福尔米奇（Reiner Füllmich）推动举行新的纽伦堡审判控诉“反人类罪”，也开始显得不再那么虚无缥缈，而且更具有预言性。】
-
-[https://gettr.com/post/plktidb32d](https://gettr.com/post/plktidb32d)
-
-**9. 秘密翻译组1月2日在盖特发文：** 正义的小新12月31日在接受《班农战斗室》采访时说：“美国的企业赞助商以及NBC绝对不应该支持北京的种族灭绝奥运会，即使是无所作为的袖手旁观者也是在犯罪。我在新疆出生、长大，直到18岁时离开那里。以前，新疆还算可以，没那么严格，我和我的维吾尔朋友一切都很好。但是3年前，当我回到新疆时，发现一切都变了。我曾经所在中学附近的清真寺，上面的维吾尔文字全被抹掉了，顶部有个横幅，写道：我们服从中共所说的一切，我们只有一个政府、一个国家。学校附近还有很多隔离障碍物。更疯狂的是，无论任何人去那里，都必须携带身份证和接受扫描。如果想给车加油，司机和所有乘客必须从车里出来，司机必须接受非常严格的全覆盖扫描。我父亲的一些朋友在某集中营工作，我通过他了解到，在那里工作的人没有任何休息，一个月只休一天。问题是，如果他们辞职，那么就会被关进集中营，他们根本就没有其他选择，所有人都特别恐惧。所有维吾尔人都被困在一个狭小的房间里，每6小时才有一次机会到外面的空地大小便，这实在毫无人性。除此之外，新疆地区还发生了其它很疯狂的事情。”
-
-[https://gettr.com/post/pldqyv9790](https://gettr.com/post/pldqyv9790)
-
-**10. 印太新闻 – 关注中共威胁 1月2日发推说：** 自2016年以来，剑桥大学接受了华为2570万英镑资助。 英国大学从华为获得的资金是之前估计的两倍，其中获得的捐赠和研究拨款最多的是剑桥大学。 【推文转英国的《旁观者》 (The Spectator)杂志报道，根据信息自由法获得的数据显示，除了中国研究小组（China Research Group）去年6月公布的一份报告中提及的捐赠金额外，英国9所著名大学还从华为那里获得了2870万英镑的资助。】
-
-
-
-> Cambridge University has accepted £25.7 million from [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) since 2016
-> 
-> British universities have received twice as much funding from Huawei as previous estimates suggest. The biggest recipient of donations and research grants is Cambridge University[https://t.co/FJXgdED4Hl](https://t.co/FJXgdED4Hl)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [January 2, 2022](https://twitter.com/IndoPac_Info/status/1477667593875955715?ref_src=twsrc%5Etfw)
-
-
-
-**11． Disclose.tv 1月3日在盖特发文：** 已完全接种了新冠疫苗的美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 感染了新冠病毒，并出现了症状。
-
-[https://gettr.com/post/plk7as81b3](https://gettr.com/post/plk7as81b3)
-
-**12. Disclose.tv 1月3日在盖特发文：** 一项最新研究显示，57%的德国人不再相信政府提供的新冠疫情数据。
-
-[https://gettr.com/post/plgq1b2d10](https://gettr.com/post/plgq1b2d10)
-
-**13. 郭文贵先生1月2日在盖特发文：** 尊敬的战友们好，一定要马上关注这位有良知的、有国际视野的天才媒体人，美国朋友乔·罗根 (Joe Rogan)。罗根来盖特了，简直太厉害了，他可能是美国最有人气的主播，他的播客在美国有上亿人关注！太牛了！
-
-[https://gettr.com/post/plgkql4a3f](https://gettr.com/post/plgkql4a3f)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
-
-发布：陸柒陸捌
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
