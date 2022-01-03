@@ -2,59 +2,18 @@
 ---
 
 
-## 年度最荒唐的911报警电话
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819242/)
+## 蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1819262/)
 
-作者：Michael Talbot
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-33.png)
-“Taco Bell餐厅的免下车队伍太长了。”
+有个很出名的21点的玩家，他和一群人玩，他会算牌数牌，他通过博弈论和数学概率的方法，到了有利的时候，会向跟他一起玩的所有人发一个信号，那些人慢慢懂了之后，他们一起来玩就会让赌场损失很严重。
 
-“我把wifi密码弄丢了。”
+他后来进了新泽西州法院的一个黑名单，他就对赌场发起了诉讼，因为他这个不是作弊，只是用了策略，他会发出这个信号，但信号不一定是语言，但其他人可以Get到这个信号。一般法律会站在赌场那边，个人去告赌场其实也是攻防双方的博弈。
 
-“你能吓到我那个伶牙俐齿的12岁小孩吗?”
+这令人想起电影里的老千，以后就拒绝你去赌场，赌场也会给客人贴标签，他们也在规避他们潜在的对手，对他们Business的掠夺。
 
-这些就是大多伦多杜兰区(Durham)市民在2021年拨打911报警电话的几个最荒谬的理由。
+直播视频：[第三十七期 法律你我她 – 博彩行业及相关法律](https://gtv.org/video/id=61be79697882000d51040aea)
 
-Durham区警方周五公布了这份令人惊讶的榜单。尽管听起来有点滑稽，但警方希望公众知道，这不是在开玩笑，事实上，这可能会危及生命。
-
-警方在一份新闻稿中说：“滥用911可能会延误有生命危险的人获得帮助。”
-
-“在拨打911之前，请记住这是警察、医疗或火灾紧急情况，这意味着有人的健康、安全或财产受到了直接威胁。”
-
-以下是2021年Durham区最荒唐的911报警电话：
-
-- Taco Bell餐厅的免下车队伍太长了。
-- 报警者的厨房进水了，所以打了911。当接线员建议他联系保险公司和一个水管工后，他不满意这个回复，于是挂断了电话，再次拨打911，说了同样的话。
-- 孩子们拨打911，询问接线员的冰箱是否还在运转。
-- 父母希望警察来“吓唬”他们12岁的儿子，因为他正在顶嘴。
-- 9岁儿子更改了wifi密码，拒绝给出新的密码。报警者希望派警察强迫孩子提供新密码。
-- 拨打911要求警方找到他们的wifi密码。
-- 想要知道COVID测试结果。
-- 10分钟后，Uber司机发现顾客没有到车前，这让他很不高兴。
-- 猫跑出了房子，卡在树上了。
-- 询问非紧急警察号码。
-- 一家披萨店送错了披萨，想收费，因为不会再做新的披萨了。
-- 一个停车场的收费点吞了钱，无法离开车库。
-
-
-来源：https://toronto.citynews.ca/2021/12/31/taco-bell-drive-thru-is-too-long-durham-police-release-most-ridiculous-911-calls-of-year/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑/发文：蓝枫法律栏目
 
  
 
