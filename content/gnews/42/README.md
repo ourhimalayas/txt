@@ -2,104 +2,64 @@
 ---
 
 
-## 【秘翻在线】首届全球盖特用户年度大奖!
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816202/)
+## 聚焦：2022世界印发400万亿美元纸币意味着什么？
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1816412/)
 
-**撰稿：Grace**
+#### 作者：加拿大温哥华农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-22.jpeg)Gettyimage
+新中国联邦创始人郭文贵先生在元旦直播中估计，2022年全球各国政府将印发等值于400万亿美元的主权货币。这是郭先生基于对铸币权垄断和世界经济本质的深刻洞察后作出的判断。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-5.03.06-PM.jpeg)
-在2022年1月1日，盖特（GETTR）首席执行官杰森·米勒(Jason Miller)和盖特高级副总裁凯兰·多尔(Kaelan Dorr)在直播中颁布了第一届全球盖特用户奖!
+人类货币史已经多次证明，只要铸币权被政府垄断，政府就绝不可能抑制住超发货币的冲动。而每一次货币超发最终都以爆发经济危机或惨烈的政权更迭结束一个周期循环。
 
-首席执行官杰森·米勒先生说：“硅谷寡头对言论自由的镇压日益恶化，促使我们创建了盖特，结果是今年自由表达运动的一些真正闪亮的明星展示了他们的东西。充满活力的盖特社区证明，言论自由是有生命力的，只是需要一个人们可以自由表达自己的地方，而不必担心因其意见而被取消。祝贺我们的获奖者，而其他的用户，继续为自由发帖！”
+近代西方为了限制政府超发货币的行为，除了构建类似于美联储这样的独立中央银行，还设置了货币锚定物的金本位制度。
 
-这些获奖者是：
+但今天我们看到的美联储并不独立，由于货币发行机制本身存在的内生性矛盾，金本位也在1971年解体。自此以后人类进入没有约束的货币滥发时代，导致了前所未有的资本泛滥。
 
-- **被询问最多的新用户（****Most Requested New User****）****:** [@ rwmalonemd](https://gettr.com/user/rwmalonemd) (DR. Malone)
+由于只有少数人受益于这场廉价资本推动的全球化盛宴，因而出现了严重的贫富分化。
 
+廉价资本造成了全球性的产能过剩，竞争性的货币贬值和廉价商品倾销，又导致各国实业受损，失业率上升，国家财政收入萎缩（如果将货币贬值率计算进去表现更严重）和政府债台高筑。
 
-- **福奇最糟糕的噩梦****（****Fauci’s Worst Nightmare****）****:** [@RealPNavarro](https://gettr.com/user/realpnavarro) (Peter Navarro)
+如此严重的连锁反应，罪魁祸首都是货币滥发，毫不夸张的说，几十年来世界各国竞争性的货币超发是当今人类危机重重的主要根源。
 
+虽然这是尽人皆知的事情，但各国政府超发货币的脚步根本停不下来，比如美国，即使通胀已经创下30多年新高，美联储也不能制定明确的加息时间表，因为充满泡沫的股市和处于疫情肆虐中的经济极度脆弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-20.jpeg)知乎
+1974年的诺贝尔经济学奖得主，曾经预言苏联解体的弗里德里希·哈耶克，在分析了历史上多次大萧条、大通胀、大失业后指出：铸币权被垄断和人民被奴役有必然的关系。
 
-- **年度自由战士（美国）（****Freedom Fighter of the Year (USA)****）****:**  [@ rwmalonemd](https://gettr.com/user/DrZevZelenko) (Dr. Vladimir Zev Zelenko)
+他说，一旦赋予法币不可撼动的合法性，百姓就失去了选择余地，就无可避免地被剥削，无论法币贬值多么厉害，也只能眼睁睁看着自己的财产被稀释、被掠夺，直到通胀引发经济萧条、压垮整个国家，酿成全局性的大灾难。
 
+哈耶克进一步解释：因为乌托邦主义的冲动永存于人性之中，狂妄而短视的人类渴望建立人间天国，他们总是拥抱那些承诺“包办一切”的强权政治，为此不惜牺牲个人的自由和责任。晚年的哈耶克对人类前途无比悲观。
 
-- **发最多帖的发帖者（****Most Prolific Poster****）****:** [@ DineshDSouza](https://gettr.com/user/DineshDSouza) (Dinesh D’s Souza)
+但哈耶克还是提出了他的建议：首先要破除政府对铸币权的垄断，然后明确个人自由才是货币的使命！只有铸币权真正掌握在私人机构手中，个人自由才可能得到最大保障。
 
+即使在疫情爆发前的2019年，美国的联邦债务已逼近21万亿美元，而且债务和货币发行量一直呈加速上升趋势，巨大的经济危机隐患早就埋下。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-26.jpeg)**美国债务率曲线图**（wallstreet）
+一切通胀都是货币现象，而债务是通账的主要推手，美国仅仅是世界各国的一个缩影。
 
-- **年度社区组织者****（****Community Organizer of the Year****）****:** [@ ChatByCC](https://gettr.com/user/ChatByCC)
+在中共（新冠）病毒爆发以来的两年时间里，美国发行了占总发行量约30%的美元，如果以狭义货币（M0：银行体系之外流通的现金之和）来估算，美国印发了两百多年以来所有狭义美元货币总量的近50%。
 
+以这样的规模和速度超发货币，恶性通胀和经济崩溃的爆发仅仅是时间问题。
 
-- **人民的冠军****（****The People’s Champion****）****: **[@ JackPosobiec](https://gettr.com/user/jackposobiec) (Jack Posobiec)
+美国被称为文明灯塔，民选政府的治理水平并不差，但出现长期财政收不抵支的结构性问题，绝大多数人的实际收入（扣除通胀因素后）和生活水平下降，国内矛盾重重，外部环境恶化的原因到底是什么呢？
 
+而和美国危机状况类似的国家比比皆是：日本有全世界几乎最高的政府负债率，土耳其2021年货币贬值超50%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-23.jpeg)Fashionbusiness
+尤其值得关注的是，中共国的货币超发最严重，盗国贼们不仅淘空了中国，还制造了深重的内部危机，由于中共国是全球产业供应链中极为重要的一环，而且和世界经济金融有很高的关连性，一旦危机爆发，将引发全球性的大灾难。
 
-- **中共最大的恶梦（****CCP’s Biggest Nightmare****）****:** [@ Miles](https://gettr.com/user/miles) (Miles Guo)
+已经有越来越多的人和哈耶克一样看到，政府是由人组成的，但比个人更容易集中和暴露人性的弱点，垄断了铸币权的政府是以上灾难的主要根源。
 
+当质疑和否定铸币权垄断的力量来自平民时，就注定是一股足以改变历史的力量，不仅西方各国政府无法抗拒，中共的极权体制和网络长城，也难以阻挡这股强大的力量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-24.jpeg)Gnews
+其里程牌式的事件是，在哈耶克1992年离世后17年即2009年，去中心化的加密货币比特币诞生。至2021年5月，全球数字货币市值首超美元流通量，标志着平民自觉否定法币、和政府争夺铸币权的时代全面启动。
 
-- **取消文化的最大眼中钉（****Cancel Culture’s Biggest Target****）****:** [@ TommyRobinson1](https://gettr.com/user/TommyRobinson1) (Tommy Robinson)
+可以预见，铸币权将经历激烈的反复争夺，但最终将由众多私人机构掌握，这是历史演化的必然选择。
 
+可以告慰哈耶克先生的是，由郭文贵先生设计，在2021年11月11日上市的喜马拉雅币，及即将在2022年6月4日发行的躺平币，是为了帮助平民实现个人价值和自由而生，这两种币的诞生开启了良币驱逐劣币和平民捍卫自由的崭新世纪。
 
-- **国会年度人物（****Congress Person of the Year****）****: **[@ MTG4America](https://gettr.com/user/mtg4america) (Marjorie Taylor Greene)
+参考：
 
+[2022年1月1日郭先生大直播文字同步精要](https://gnews.org/zh-hans/1813695/)
 
-- **发最多Memer ****的用户**（**Most Prolific Memer****）****: **[@ ilPresidento](https://gettr.com/user/ilpresidento)
-
-
-- **年度最佳真正的新闻机构（****Real News Outlet of the Year****）****:** [@ nationalpulse](https://gettr.com/user/nationalpulse) (The National Pulse)
-
-
-- ** ****年度最佳评论员（****Biting Commentator of the Year****）****: **[@ TimRunsHisMouth](https://gettr.com/user/timrunshismouth) (Tim Young)
-
-
-- 最佳二人组（**Best Duo****）****: **[@ DiamondandSilk](https://gettr.com/user/%20DiamondandSilk) (Diamond and Silk)
-
-
-- **直播明星****（****Livestream Superstar****）****: **[@ vlogdolisboa](https://gettr.com/user/vlogdolisboa) (Femando Lisbor)
-
-
-- **年度自由战士（巴西）（****Freedom Fighter of the Year (Brazil)****）****: **[@allansantosbr](https://gettr.com/user/allansantosbr)  (Allan dos Santos)
-
-
-- **年度最佳发帖者** （**Troll of the Year****）****: **[@catturd2](https://gettr.com/user/catturd2)
-
-
-- **最大的声音（****Biggest Voice****）****: **[@ KamVTV](https://gettr.com/user/KamVTV) (Kambree)
-
-
-- **年度最佳活动家（****Activist of the Year****）****: **[**@** **ScottPresler**](https://gettr.com/user/ScottPresler)**  **(Scott Presler)
-
-
-- **火焰下的勇气（****Courage Under Fire****）****: **[@Project\_Veritas](https://gettr.com/user/project_veritas)
-
-
-- **盖特的核心和灵魂（****The Heart and Soul of GETTER****）****: **[@ RafaelGoldberg](https://gettr.com/user/RafaelGoldberg) (Rafael Goldberg), [@JPLyle](https://gettr.com/user/JPLyle) ( Jeanne Lyle), and [@CCBagley](https://gettr.com/user/CCBagley) (Christi Bagley)
-
-
-- **男人/****女人，神话，传奇（****The Man/Woman, the Myth, the Legend****）****: **[@SteveBannon](https://gettr.com/user/stevebannon)  (Steve Bannon)
-
-
-- **信仰战士（****Faith Warrior****）****: **[@ christineyeargs](https://gettr.com/user/christineyeargs) (Christine Yeargin)
-
-
-- **运动的未来（****The Future of the Movement****）****: **[@TheJordanRachel](https://gettr.com/user/TheJordanRachel) (Jordan Rachel), and @ [@theisabelbrown](https://gettr.com/user/theisabelbrown) (Isabel Brown)
-
-
-- **年度最佳自由斗士（英国）（****Freedom Fighter of the Year (U.K)****）****: **[@LozzaFox](https://gettr.com/user/lozzafox) (Laurence Fox)
-
-
-- **年度自由斗士（法国）（****Freedom Fighter of the Year (France)****）****: **[@zemmoureric](https://gettr.com/user/zemmoureric)** (**Eric Zemmour)
-
-
-- **年度自由斗士（德国）（Freedom Fighter of the Year (Germany)）: **[@ reitschuster](https://gettr.com/user/reitschuster) (Boris Reitschuster)
-
-
-- **年度自由斗士（全球**）（**Freedom Fighter of the Year (Global)****）****: **[@EnesKanter](https://gettr.com/user/EnesKanter) (Enes Kanter-Freedom)
-
-
-- **年度最佳人物**（**Person of the Year****）**** : **[@ JairBolsonaro](https://gettr.com/user/jairbolsonaro) (Jair Bolsonaro- President of Brazil巴西总统)
-
-
-**新闻来源****：**** **[The First Annual Worldwide GETTIE Awards](https://gettr.com/streaming/plctbxe658)
+编辑/发文：Kent
 
  
 
