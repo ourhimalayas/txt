@@ -2,20 +2,22 @@
 ---
 
 
-## 足球名将梅西感染中共病毒，已被隔离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816458/)
+## 雅典娜时报-162期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816466/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-3.png)图片来源网站
-《每日新闻》1月2日报道，法国甲级足球联赛巴黎圣日耳曼2日宣布，包括阿根廷国家队主将梅西在内的四名球员感染了中共病毒（新冠病毒covid-19）目前正在隔离中。
+**《雅典娜时报》汇聚全球新闻时事**
 
-信息源：
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2022/01/时报1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/时报2.jpg)
+发布：kk
 
-[メッシがコロナ陽性で隔離　パリ・サンジェルマン、他に3選手](https://mainichi.jp/articles/20220102/k00/00m/050/175000c#:~:text=%E7%89%B9%E9%9B)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
