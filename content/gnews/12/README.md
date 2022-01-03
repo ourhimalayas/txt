@@ -2,48 +2,26 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月27日-1月2日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817201/)
+## 中共公布与拉美国家的合作计划以扩大其影响力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1817277/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-1.jpg)图片来源：中新网
+据《华盛顿观察家报》（Washington Examiner）1月2日报道，在与美国最近的邻国进行了新一轮的峰会后，中共官员公布了与拉美国家的“合作行动计划”，这相当于一个影响该地区并威胁美国利益的“全面”计划。
 
+去年12月3日举行的中国—拉美和加勒比国家共同体（CELAC）论坛最终通过了一项计划，不仅要增强经济联系，而且要加强“政治和安全合作”，同时深化中共在高科技领域的参与度—从网络空间和人工智能到“空间科学、卫星数据共享、卫星应用、地面基础设施建设”，甚至包括核能。CELAC于 2011年在已故委内瑞拉总统乌戈·查韦斯 (Hugo Chávez) 的主持下成立。查韦斯当时希望有一个与美洲国家组织（OAS）相抗衡的场所，并挑战美国在拉丁美洲的影响力。现在它为中共总书记习近平提供了一个平台，以组建一个符合北京利益的、由左派和独裁领导人组成的联盟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+前美国国务院政策规划人员、美国陆军战争学院（U.S. Army War College）的研究教授埃文·埃利斯（Evan Ellis）说：“尽管中共没有说‘我们想接管拉丁美洲’，但他们明确地提出了一个多维度的参与战略。如果成功，这将大大扩大他们的影响力，并对美国造成巨大的情报隐患。”
 
+参议员马尔科·鲁比奥 (Marco Rubio)说：“中共政府正在积极寻求加强其在整个西半球的关系，特别是与反美成员的关系。北京正在寻求在各个领域超越美国，我们必须认真对待这一威胁。”
 
+美洲国家尼加拉瓜去年12月9日宣布与台湾断交，转而与中共建立外交关系。鲁比奥12月20日在一篇专栏文章中对此评论说：“奥尔特加-穆里略（Ortega-Murillo）政权认为中共是比美国更好的意识形态盟友，北京的种族灭绝政权也不在乎其一长串的罪行和侵犯人权行为。奥尔特加还希望中共继续提供资金，在尼加拉瓜修建一条从大西洋到太平洋的运河，然后中共解放军的军舰可以通过这条运河进入加勒比地区。”
 
-过去一周，喜马拉雅币价格稳定在$35一段时间后，回落到$30至$35之间震荡，平均日交易量约22万喜币。喜币上市以来总交易量约2430万枚 ，占今年总发行量的仅约2.43%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.jpg)
-据郭文贵先生本周直播透露，过去两年全球印发法币260万亿美元，而目前数字货币市场只有2.6万亿美元。数字货币必将成为全球财富躲避金融灾难，政治经济灾难，疫苗灾难，病毒灾难和通货膨胀的M2货币超发的蓄水池和避险池。未来进入数字货币市场的法币可能会达到50%。但未来没有支付系统的数字货币90%会被淘汰。去中心化的、有犯罪历史、没有依法KYC的数字货币一定会被消灭。取而代之的将是中心化负责任，去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化，有支付系统，被国家主权所接受，而且能进行大宗商品交易。这意味着未来喜币的地位一定会远远超越今天的比特币。
+美国传统基金会 (The Heritage Foundation) 的研究助理马特奥·海达尔（Mateo Haydar）说：“中共绝对有成为拉丁美洲主导力量的野心。挑战是全面的，而且那里绝对有安全和军事利益。这种威胁正在增长，它是一种与我们曾看到的苏联威胁截然不同的威胁。”
 
-郭先生还透露，日本会成为美国之后第二大喜币流通的重要市场，喜支付的推广将在这个过程中起到关键作用。
-
-参考链接：
-[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[China unveils plan to ‘take over’ Latin America](https://www.washingtonexaminer.com/restoring-america/patriotism-unity/defense-national-security/china-unveils-plan-to-take-over-latin-america)
 
  
 

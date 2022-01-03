@@ -2,48 +2,27 @@
 ---
 
 
-## 欧洲中共病毒确诊病例超一亿人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817198/)
+## 每时每刻的认知 （五）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1817262/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+投稿人：春风秋雨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2554.jpg)网络截图
+每时每刻的认知，跟随文贵先生，加入爆料革命让我们开智，让我们打开思路，透过事物的表面学会深入思考。
 
+随着全世界各国开始给民众打第三针加强针的事态进一步发展，让我再次回想起多洛雷斯 卡希尔教授在接受采访时说：“Covid-19疫苗（mRNA注射剂）注射引发的抗体依赖增强作用，导致了人们自我毁灭。”而政府、媒体的宣传却让民众认为，打Covid-19疫苗（mRNA注射剂）能够激发人们免疫系统功能，他们会得到保护，这完全是违背良心、违背科学的宣传。
 
+众多有良知的专业人士站出来大声呐喊，告诉全世界的民众，这些Covid-19疫苗（mRNA注射剂），实际上是为免疫系统预设的机制，并不是保护并不是都免于病毒侵害，相反地让你的免疫系统，很快的把你自己的身体作为目标。其本质是在摧毁人们的健康并杀死人类，这种现象叫做抗体依赖增强作用。这些Covid-19疫苗（mRNA注射剂）增强了致病性，从而也叫细胞因子风暴免疫预置-免疫超级预置。所有的这些名字都是在警告人们，这是一个毒风暴，是这些Covid-19疫苗（mRNA注射剂）让注射的人变成了基因改造的生物体，力推了自身免疫系统去抵抗病毒蛋白，同时你自身又重复制造病毒蛋白。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+人类的免疫系统在经过数百年的进化就是要消灭病毒蛋白，现在因为这些Covid-19疫苗（mRNA注射剂），却让你自己重新开始制作病毒蛋白，产生的病毒蛋白能融合进你的细胞和生物组织，因此自身免疫系统就开始攻击病毒蛋白，如此矛盾的抵抗就这样悄悄的发生在你的体内。每日你都会感觉到长时间的疲倦，慢慢地你将被耗得精疲力尽，你的器官开始衰竭，出现各种炎症直至死去。
 
+有良知的专业人士，不顾诽谤、不顾威胁、不顾一切的努力传播真相。而那些黑暗势力利用民众的善良，利用民众相信科学的从众心理，阻止真相传播并制造恐慌。
 
+文贵先生在大直播里说过“整个世界相信科学，这次让科学蒙蔽了双眼，分辨不清善恶真伪。”我们新中国联邦人追随文贵先生，坚持不懈的传病毒疫苗播真相，做明眼开智人。
 
-截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpg)
-仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
+发布：Jenny
 
-全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
-
-参考链接：
-[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
 
  

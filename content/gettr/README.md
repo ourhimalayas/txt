@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 10:17 AM (UTC)`
+
+2021 Annual Worldwide Getties: Winner of CCP’s Biggest Nightmare - Miles Guo @Miles<br/><br/>2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵先生 @Miles<br/>
+![img](https://media.gettr.com/group2/getter/2022/01/03/10/b94124f0-8cb2-8380-b102-f4ca4edebee9/out.jpg)
+
+---
+
 `@miles 1/3/2022 8:18 AM (UTC)`
 
 1/1/2022 Mr.Miles Guo: The Story Behind Communist China's Intention to Strictly and Seriously Regulate the Out-of-Control Chinese Music and Culture Market<br/><br/>1/1/2022 文贵先生新年直播：中共意欲严格严肃管理失控中国音乐文化市场背后的故事<br/>
@@ -146,13 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 `@miles 1/2/2022 4:56 AM (UTC)`
 
 2021 Miles Guo's Latest Song "Hcoin To the Moon" Makes History🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/1813005<br/><br/>2021年郭文贵先生最新单曲Hcoin To The Moon创造的历史记录🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/zh-hans/1812319/<br/>
-
----
-
-`@miles 1/2/2022 3:20 AM (UTC)`
-
-1/1/2022 Miles Guo: The CCP’s taking away the Pangu Plaza, remodeling the dragon-head-shaped top of Pangu, seizing the Yuda Palace Hotel, and releasing the VICE interview happened at the same time, with all these being arranged by God; the Whistleblowers' Movement has managed to advance against all the odds and has proved the CCP’s superstitious nature by using the CCP’s own propaganda against itself; the Whistleblowers' Movement possesses the power of butterflies to change the world!<br/><br/>1/1/2022 文贵直播：中共抢盘古、改龙头、夺裕达和发布VICE采访视频这几件大事同时发生，是上天的安排；爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量！<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/02/03/e43958b1-2dbc-bf73-abb0-d55944c9357e/out.jpg)
 
 ---
 
