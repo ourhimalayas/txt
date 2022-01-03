@@ -2,49 +2,49 @@
 ---
 
 
-## 纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816503/)
+## 文贵先生盖特精要2022/01/02
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1816572/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/cdc.png)图片来源：抵制主流网
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010210.png)[盖特直播链接](https://gettr.com/post/plfpq4abf0)
+
+今早5点的时候，国内的战友说数据上分析昨天的大直播大概有六千万人次观看，但相对于在人口基数拥有14亿的中国，这个数字还真不算什么。我们昨天的大直播时间历时12个小时整，但是我们战友在幕后的工作准备时间远远地超过20个小时。昨天100多位战友的连线出场展现出了新中国联邦人的精气神，给西方世界也造成了不小的震撼。昨天是在过去的五年当中，第一次在海外通过Gettr、GTV收看我们直播的外国人次达到了最高。所以我们需要的冷静地意识到爆料革命的发展需要循序渐进，很多事情都需要被验证。昨天的直播打破了很多记录，再次证明了唯真不破的重要性，只有灭共，一切才有可能！
+
+我们将在今年的农历新年举办一场更大的大直播，到时我们会邀请更多的战友加入进来，我们也会对每位连线战友的发言时间上做更严格把控，保证直播高质量、做到更高效、更准确。大直播就是唤醒更多的人，这就是我们直播的价值和目的。
+
+七哥很感动，因为很多西安的战友在面临“生死未卜”的情况下依旧坚持收看我们的直播。西安的封城造成了无数的惨剧，因为共产党，全世界各地每天都在发生着惨剧，但这会促使着更多人的觉醒。这是不幸的，但是我们毕竟要面对这个现实。
+
+现在在台湾、香港，共产党制造的这种恐惧，以及在全球共产党的大外宣对于舆论的绝对控制，让人们很难了解到病毒和疫苗的真相。全世界越来越多的宗教界、科学界、知识界人士都站出来表态这是一场蓄谋已久的，黑暗势力和共产党一起勾结造成的一场人类大屠杀。
+
+面对这些现象我们必须要学会思考：病毒哪里来的？疫苗怎么研究出来的？疫苗含有什么成分？会引起什么副作用？打不打疫苗是每个人的自由，为什么要强制？最大的问题是之前宣称接种过疫苗后管用，为什么接种过两针以上的人们现在感染率高达百分之八十几、甚至九十几？现在谁来承担责任？所有这些问题时时刻刻威胁到每个人的健康和安全，都是共产党病毒引起的，为什么不找共产党溯源呢？这是基本的常识。
+
+在昨天的直播中我们看到了，新中国联邦人普遍接受过高等教育，素养好，家庭条件好，形象也好，有着成功的人生；每个人勇敢地站出来发声意味着他们的人生彻底进入了一个新的阶段，而绝非偶然的一时冲动，而是多种综合性的因素累积的结果。这其中的核心就是共产党的病毒和疫苗灾难，因为这危害着每个人的安全和存在。
+
+自昨天的直播结束后，我又继续和很多战友联系，回复了将近9000条信息，绝大多数针对的是国内战友，因为事关生死，所有回复的信息**主题只有一个就是要活下去**。只要能活下去，你们就能看到消灭共产党的那一天，正义战胜邪恶的那一天。
+
+那么该如何活下去呢？**需要改变生活方式和惯性意识**，**最好远离那些大城市**，远离高楼大厦，电梯、电灯、电冰箱，凡事大量**需要电能源地方都要小心**。**饮食从简节约，减少享乐，除了能源的问题然后就是粮食的短缺。**大量的现金、黄金、钻石不会成为你的帮助反而可能变成负担和祸患；也更不要想着这个时候去趁机发财钻空子，占便宜；**永远不要去赚死人的钱，永远不要去赚战乱、战争的钱；也永远不要去占他人在困难危难时候让给你的便宜。**
+
+**一定要意识到现在病毒和疫苗导致的次生灾害才刚刚开始，活下去是最根本的。**昨天的大直播看到了新中国联邦人的智慧，即通过正确合理的使用互联网让自己及时获得信息，再结合正确的思维逻辑，最后做出正确的决定，不靠猜也不靠蒙。
+
+再次感谢参与昨天直播的兄弟姊妹！周三、周五大直播，然后全力以赴准备农历除夕夜的大直播，希望更多的战友加入！一切都已经开始！
 
 
-**翻译：George Warshing
-编辑：Candy**
 
-**2021年12月30日，根据《烈火新闻》报道：在许多人看来，根据民主党的中共病毒大流行的标准，纽约市卫生专员在星期五“**[**承认**](https://www.theblaze.com/ny-health-commissioner-overblown-child-covid-hospitalizations)**用夸大的因中共病毒感染的儿童住院人数来吓唬父母，使其为孩子们接种疫苗”。**
+*听写：阿甘*
 
-**令人惊讶的是，大声说出秘密的是玛丽·巴塞特博士，她于本周承认了提供与感染中共病毒相关而住院的儿童的“上升趋势”的误导性信息。此外，她承认这些误导性说明是为了“鼓动”父母给他们的孩子接种疫苗。**
+*校对：小雨*
 
-**卫生专员办公室把误导性信息掺入到上星期五的健康警报中。这份健康警报没有包括来源、统计数据或可验证的陈述，却指出大纽约市地区感染中共病毒的儿童住院人数增加了400%。**
+* * *
 
-**巴塞特博士****（Dr. Bassett****）被迫在包括州长凯西·霍赫尔（****Kathy Hochul**）**在内的新闻发布会上说明此事。**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**《烈火新闻》**[**断言**](https://newyork.cbslocal.com/2021/12/27/new-york-health-officials-note-uptick-in-pediatric-covid-hospitalizations/)**，巴塞特博士“在新闻发布会上，直接承认了州卫生部门为吓唬孩子们的父母而故意编造了数字。”        **
 
-**巴塞特博士承认：“我们给出的儿科住院数字，并不是为了让孩子们看起来感染流行病，这些数字很小。”**
+编辑：【英国伦敦喜庄园编辑部】
 
-**然后她说，警报“是基于50例住院治疗患者，我现在给了你一些更大的数字，但它们仍然是小数字。”**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**当被追问时，她补充说：“这确实是为了促使儿科医生和家庭寻求疫苗接种的保护。**”
 
-《**NBC新闻 》**[**指出**](https://www.nbcnews.com/news/us-news/child-covid-hospitalizations-are-5-states-are-rise-rcna10089/)** ，费城儿童医院的疫苗专家保罗·奥菲特博士说，他“最近看到许多没有表现出症状或生病的孩子的病毒检测呈阳性。”**
-
-**奥菲特博士（Dr. Offit**）**补充道：“我们真的没看到儿童因感染中共病毒而住院、或进入重症监护室的病例数有所增加的情况。”**
-
-**奥菲特的声明似乎证实了本周CDC**[**承认**](https://www.christianitydaily.com/articles/14443/20211230/cdc-finally-admits-pcr-tests-unable-to-differentiate-between-flu-and-covid-withdraws-its-use.htm)**的事实，即用PCR（聚合酶链式反应）法对中共病毒进行测试易出现错误结果，且无法与流感病毒相区分。**
-
-**原文链接：**
-
-[https://resistthemainstream.org/watch-ny-health-commissioner-admits-using-overblown-claims-about-child-covid-hospitalizations-to-scare-parents-into-vaccinating-their-kids/?utm\_source=newsletter1](https://resistthemainstream.org/watch-ny-health-commissioner-admits-using-overblown-claims-about-child-covid-hospitalizations-to-scare-parents-into-vaccinating-their-kids/?utm_source=newsletter1)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

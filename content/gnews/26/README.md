@@ -2,78 +2,49 @@
 ---
 
 
-## 爆料革命日记（九）：跨年
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1816406/)
+## 纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816503/)
 
-作者：湖畔
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/cdc.png)图片来源：抵制主流网
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip02-2.png)
 
-2022年1月1日 农历十一月二十九 辛丑年 庚子月 甲寅日
+**翻译：George Warshing
+编辑：Candy**
 
-不知不觉中迎来了2022年元旦，新的一年悄然开启，
-这几年除了收获了皱纹，还收获了一个健康的身体，几段动魄的经历，
-这几年除了收获了惊险，还收获了一个勇敢的团队，几个生死的战友，
-这几年除了收获了质疑，还收获了战友之间无条件的信任和无底线的将就。
+**2021年12月30日，根据《烈火新闻》报道：在许多人看来，根据民主党的中共病毒大流行的标准，纽约市卫生专员在星期五“**[**承认**](https://www.theblaze.com/ny-health-commissioner-overblown-child-covid-hospitalizations)**用夸大的因中共病毒感染的儿童住院人数来吓唬父母，使其为孩子们接种疫苗”。**
 
-今年的跨年很特殊，年近知天命，第一次用视频连线的方式和分布在全球各地的、在一起奋战多年的战友跨年日本、台湾、美国、欧洲、大陆…
+**令人惊讶的是，大声说出秘密的是玛丽·巴塞特博士，她于本周承认了提供与感染中共病毒相关而住院的儿童的“上升趋势”的误导性信息。此外，她承认这些误导性说明是为了“鼓动”父母给他们的孩子接种疫苗。**
 
-在共同战斗中，收获了信任，开始慢慢了解彼此的经历、生活、性格、家庭。
-在相互慰藉中，收获了依靠，开始慢慢走入彼此的内心、感动、牵挂、思念。
+**卫生专员办公室把误导性信息掺入到上星期五的健康警报中。这份健康警报没有包括来源、统计数据或可验证的陈述，却指出大纽约市地区感染中共病毒的儿童住院人数增加了400%。**
 
-建立在共同信仰和目标之下的感情，异常的浓郁。
+**巴塞特博士****（Dr. Bassett****）被迫在包括州长凯西·霍赫尔（****Kathy Hochul**）**在内的新闻发布会上说明此事。**
 
-有亲情的关爱，却超越亲情的共振。
-有友情的支持，却丰满友情的生活。
-有爱情的思念，却摒弃爱情的独占。
+**《烈火新闻》**[**断言**](https://newyork.cbslocal.com/2021/12/27/new-york-health-officials-note-uptick-in-pediatric-covid-hospitalizations/)**，巴塞特博士“在新闻发布会上，直接承认了州卫生部门为吓唬孩子们的父母而故意编造了数字。”        **
 
-爆料革命战友之间的感情非常的特殊，面对如此强大的共产党和黑暗势力，战友们在七哥的带领下走到一起。我们没有任何资源，虽未谋面，组成了团队，各自展现了非凡的跨界能力。
+**巴塞特博士承认：“我们给出的儿科住院数字，并不是为了让孩子们看起来感染流行病，这些数字很小。”**
 
-做it的能写诗，
-做翻译的能剪辑视频，
-做平面设计的能推流，
-做安保的能校对，
-明明可以安享天伦之乐的大姐姐，带着一群年轻人，冲、冲、冲…
-明明可以享受年轻冲动的小姐姐，跟着一群老黄瓜，杀、杀、杀…
+**然后她说，警报“是基于50例住院治疗患者，我现在给了你一些更大的数字，但它们仍然是小数字。”**
 
-经历过相遇的澎湃，
-经历过渗透的破坏，
-经历过漫长的等待，
-我们依然保持着当初的热情，还发酵了理性的讨论和分歧的推理。
+**当被追问时，她补充说：“这确实是为了促使儿科医生和家庭寻求疫苗接种的保护。**”
 
-我们的连线里有温暖的关爱，有冷静的探讨，有分歧的争吵，有真诚的肯定，这些都是只有我们才明白的爆料革命战友之间的味道。
+《**NBC新闻 》**[**指出**](https://www.nbcnews.com/news/us-news/child-covid-hospitalizations-are-5-states-are-rise-rcna10089/)** ，费城儿童医院的疫苗专家保罗·奥菲特博士说，他“最近看到许多没有表现出症状或生病的孩子的病毒检测呈阳性。”**
 
-最近，不知道为什么，很多感情想要抒发。还是要回到现实中来的。
+**奥菲特博士（Dr. Offit**）**补充道：“我们真的没看到儿童因感染中共病毒而住院、或进入重症监护室的病例数有所增加的情况。”**
 
-普京就是会玩，自己爽了就走了，管你舒不舒服。
-欧洲还是不硬，为了飞机和汽车，半硬半软磨蹭。
-共匪内压升高，下手亚洲和女婿，战狼继续高潮。
-咱新联邦中国，虽有插曲，继续高歌猛进！
+**奥菲特的声明似乎证实了本周CDC**[**承认**](https://www.christianitydaily.com/articles/14443/20211230/cdc-finally-admits-pcr-tests-unable-to-differentiate-between-flu-and-covid-withdraws-its-use.htm)**的事实，即用PCR（聚合酶链式反应）法对中共病毒进行测试易出现错误结果，且无法与流感病毒相区分。**
 
-距离七哥2017年上明镜直播，快五年了，这五年除了收获了上文中写的战友，还见识了各式各样的伪类、潜伏，能聚在这个平台上的人类，体能、智商、情商、勇气、信仰，缺一不可。伪类想搞破坏，真的劝一句，省省吧！
+**原文链接：**
 
-新年了，还是又一些传统的科目，比如新年祝福，祝福全球的战友在2022年，身体健康，心情愉悦，天天性福，期待早日灭共、早日相聚！
+[https://resistthemainstream.org/watch-ny-health-commissioner-admits-using-overblown-claims-about-child-covid-hospitalizations-to-scare-parents-into-vaccinating-their-kids/?utm\_source=newsletter1](https://resistthemainstream.org/watch-ny-health-commissioner-admits-using-overblown-claims-about-child-covid-hospitalizations-to-scare-parents-into-vaccinating-their-kids/?utm_source=newsletter1)
 
-立春后即将迎来壬寅年，这一年，地震、洪水都不会缺席，病毒、毒苗还要肆虐，饥荒、恐慌会突如其来，对于爆料革命战友来说，只是等待降临，帮助身边更多的人度过这场浩劫。
+***发布：Candy***
 
-今天和姐姐聊天的时候，笔者告诉姐姐，
-“姐，我不会和您连线，以后，要么去你家过年，要么接你来我家过年。”
-
-* * *
-
-*审核：蚂蚁兄弟；校对：信心满满；发布：信心*的选择
-
-**欢迎阅读作者的其它文章作品：**
-[爆料革命日记（一）：至亲](https://gnews.org/zh-hans/1735878/)
-[爆料革命日记（二）：决战](https://gnews.org/zh-hans/1735900/)
-[爆料革命日记（三）：强子（上）](https://gnews.org/zh-hans/1736599/)
-[爆料革命日记（四）：强子（中）](https://gnews.org/zh-hans/1744190/)
-[爆料革命日记（五）：强 子（下）](https://gnews.org/wp-admin/post.php?post=1749842&amp;action=edit&amp;lang=zh-hans)
-[爆料革命日记（六）： 灵魂伴侣](https://gnews.org/zh-hans/1755021/)
-[爆料革命日记（七）: 感·触](https://gnews.org/zh-hans/1769144/)
-[爆料革命日记（八）：虞美人](https://gnews.org/zh-hans/1784396/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
