@@ -2,31 +2,46 @@
 ---
 
 
-## 有声|蔡英文正告中共停止对台商选择性执法恫吓
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819287/)
+## 第205期玫瑰看新闻-国际热点新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1819348/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月24日，就中共五省市执法部门以所谓“不允许支持台独”为由，对远东集团等台湾部分企业实行重罚一事，台湾总统蔡英文发表声明，呼吁朝野各界正告中共当局，要求中共立刻停止此种行为，不要继续伤害两岸及双边经贸关系。
+国际热点新闻
 
-蔡英文指出，中共通过政治献金，意图干预台湾的民主政治发展，但这类举动无助于两岸经贸的正常交流，反而对两岸关系造成了严重的伤害。另一方面，台商长期以来对大陆的经济发展、社会就业以及两岸交流做出了很大的贡献。因此，中共对台商进行选择性的执法恫吓，只会加速两岸分裂，同时恶化中共国内的投资环境，加速外商企业的投资转向。
+1. 美商务部将帮助中共国军方的中共国公司列入贸易黑名单
 
-原文链接：[蔡英文正告中共停止对台商选择性执法恫吓](https://gnews.org/zh-hans/1694958/)
+2. 欧盟将延续对中共国官员制裁可能危及双边投资协定
 
-音频处理：喜山必胜Maverick
+3.德国三党就组建新政府达成协议阐明中共国及印太政策
 
-发稿：Daxia
+4.全斗焕打完辉瑞疫苗患白血病身亡韩国展开调查
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+5.美国将在一月份要求所有过境者接种疫苗
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+6. 美国CDC对COVID-19的回应是危害人类的罪行
 
+7. 有自然免疫的儿童接种疫苗后，出现疫苗不良反应的风险更高
+
+8. 法官拒绝关于伊维菌素作为COVID-19 的治疗方法的诉讼
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
 
  
 
