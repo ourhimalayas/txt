@@ -2,31 +2,28 @@
 ---
 
 
-## 有声|蔡英文正告中共停止对台商选择性执法恫吓
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819287/)
+## 又一家香港媒体因“媒体环境恶化”而关闭
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1819293/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月24日，就中共五省市执法部门以所谓“不允许支持台独”为由，对远东集团等台湾部分企业实行重罚一事，台湾总统蔡英文发表声明，呼吁朝野各界正告中共当局，要求中共立刻停止此种行为，不要继续伤害两岸及双边经贸关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3432.jpg)图片来源：VOA 资料照片：香港警察逮捕了《立场新闻》的六名高管后突击搜查其办公室。（2021年12月29日）
+据美国之音2022年1月3日报道，香港一家在线新闻网站“众新闻”表示，鉴于新闻自由不断恶化，该网站将在1月4日停止更新其网站，并在此后关闭。众新闻是近几个月来第三家关闭的新闻媒体。
 
-蔡英文指出，中共通过政治献金，意图干预台湾的民主政治发展，但这类举动无助于两岸经贸的正常交流，反而对两岸关系造成了严重的伤害。另一方面，台商长期以来对大陆的经济发展、社会就业以及两岸交流做出了很大的贡献。因此，中共对台商进行选择性的执法恫吓，只会加速两岸分裂，同时恶化中共国内的投资环境，加速外商企业的投资转向。
+香港记者协会3日发表声明，对一周内接连有传媒机构停止运作“深感痛心及遗憾”，称这对香港作为亚洲国际都会的声誉造成难以估量的影响，并敦促政府履行基本法对新闻和资讯流通自由应有的保障。
 
-原文链接：[蔡英文正告中共停止对台商选择性执法恫吓](https://gnews.org/zh-hans/1694958/)
+香港最近关闭了三家新闻媒体。去年12月，香港当局拆除了纪念1989 年北京天安门广场纪念碑。国安法实施后，中共明目张胆地在香港打压新闻媒体自由和公民各项权利，大肆抓捕异议人士。中共的邪恶在香港兴风作浪，但自古邪不压正，香港终有一天会恢复原有的民主和自由，再现辉煌。荣光必定回归香港。
 
-音频处理：喜山必胜Maverick
+新闻参考链接：[https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html](https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html)
 
-发稿：Daxia
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

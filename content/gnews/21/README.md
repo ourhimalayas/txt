@@ -2,31 +2,40 @@
 ---
 
 
-## 有声|《我是音雄》第二季2021年度总决赛完美收官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819240/)
+## 再有新闻媒体遭鎭压 关慧贞哀香港一国两制已死
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819248/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%96%B0.png)
-2021年最后一天，经过三个多小时的紧张角逐，《我是音雄》第二季音雄年度总决赛各奖项荣耀揭晓。来自纽约香草山农场的Superman夺得年度总冠军，台湾宝岛农场爆二代Bunny、秘密翻译组齐天二圣分获亚军和季军。
+来源：国会议员关慧贞办公室
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-23.jpg)
+香港出生的关慧贞就香港近年不断恶化的状况感到痛心。一年前，国安警察大举搜捕《苹果日报》并且拘捕了黎智英及他的前员工。这宗震惊国际的新闻让世人看到香港人所享有的新闻自由受到攻击和践踏。就香港国安警察近日搜查《立场新闻》及拘捕其现任署理总编辑林绍桐、前总编辑钟沛权、及前任董事吴霭仪、何韵诗、周达智及方敏生的新闻，国会议员关慧贞认为，这显示香港已经沦为警察社会。
 
-Superman是《我是音雄》节目组的执行导演，负责指导和帮助参赛选手们完成参赛前的准备工作，却被唐平慧眼挖掘，精心打磨，以细腻的声线、几乎无瑕的演绎，登上了冠军宝座；齐天二圣的歌曲气势恢弘，波澜壮阔，母亲创作的歌词深度契合了爆料革命的宗旨和主线，军功章也有母亲的一半；而大家喜爱的主播青藤，虽然没有晋级三强，但真诚、平实地叙述了《父亲写的散文诗》，情之深意之切，观众无不动容，也获得了颁奖嘉宾郭先生的高度评价。
+关慧贞要求加拿大政府与盟国就事件发表声明谴责和研究进一步行动支持香港市民。
 
-原文链接：[《我是音雄》第二季2021年度总决赛完美收官](https://gnews.org/zh-hans/1814257/)
+关慧贞指出香港基本法第27条列明：“香港居民享有言论、新闻、出版的自由，结社、集会、游行、示威的自由，组织和参加工会、罢工的权利和自由。”
 
-音频处理：喜山必胜Maverick
+此外，中国人大在2020年6月30日通过要在香港实施国安法时，中国专责港澳事务的官员曾经在国务院的记者会里向世界媒体宣称：“香港的国安法与国际上法律的通常规定一致，就是不溯及既往，也表明了法律是遵从现代法律原则。”不过，黎智英及他的前雇员却被控在2019年4月1日至2021年6月24日期间“发布煽动刊物罪”。
 
-发稿：Daxia
+关慧贞认为中港官员过去两年的种种行为严重抵触基本法赋予港人的自由和基本人权，邓小平所建立的一国两制被摧毁，而中国也违反了中英联合声明这份在联合国备案的国际条约，这是令人感到痛心和沮丧的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+关慧贞要求加拿大政府尽速与盟国商讨香港的严峻情况。在《立场新闻》被捕人士当中，何韵诗拥有加拿大国籍，关慧贞期望加拿大领事馆会尽力协助她和她的家人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源：https://info.51.ca/news/canada/2021-12/1058700.html
 
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
