@@ -2,22 +2,48 @@
 ---
 
 
-## 中共国在镇压异议人士的过程中迫使另一家香港新闻机构关闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1817164/)
+## 喜马拉雅币一周分析与总结（12月27日-1月2日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817201/)
 
-#### 翻译/撰稿：黃金精神
+作者：纽约香草山金融部 – ILOVE战神
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-2.jpg)照片来源：路透社
-1月2日据NewsMax报道，香港一家在线新闻网站周日表示，鉴于新闻自由的恶化，该网站将停止运营。此前中共警方以煽动罪突袭并逮捕了独立民主派新闻机构的7人。
 
-《众新闻》（Citizen News）在周日的Facebook帖子中宣布了其决定。它将在1月4日停止更新其网站，之后就会关闭。众闻在一份声明中说：“我们一直热爱这片土地，但目前，我们很无助，因为我们不仅面临风和雨，还有龙卷风和巨浪。我们从未忘记自己的初衷，但遗憾的是，过去两年社会的快速变化和媒体环境的恶化，使我们无法安心实现自己的理想。”
 
-《众新闻》是近几个月来继在线网站《立场新闻》（Stand News）等媒体关闭之后的第三家新闻机构。在《众新闻》即将关闭的几天前，当局突击检查了《立场新闻》，并逮捕了七人，包括编辑和前董事会成员–他们被指控密谋出版煽动性材料。《立场新闻》在同一天宣布它将停止运营。《立场新闻》的两名前编辑后来被正式指控犯有叛乱罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-香港领导人林郑月娥上周为突袭《立场新闻》辩护并告诉记者：“在新闻报道的幌子下煽动其他人不能被宽恕。”
 
-**新闻来源**：[China Forces Another Hong Kong News Outlet to Close Amid Crackdown on Dissent](https://www.newsmax.com/newsfront/hong-kong-news-outlets-closed-dissent/2022/01/02/id/1050697/)
+
+过去一周，喜马拉雅币价格稳定在$35一段时间后，回落到$30至$35之间震荡，平均日交易量约22万喜币。喜币上市以来总交易量约2430万枚 ，占今年总发行量的仅约2.43%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.jpg)
+据郭文贵先生本周直播透露，过去两年全球印发法币260万亿美元，而目前数字货币市场只有2.6万亿美元。数字货币必将成为全球财富躲避金融灾难，政治经济灾难，疫苗灾难，病毒灾难和通货膨胀的M2货币超发的蓄水池和避险池。未来进入数字货币市场的法币可能会达到50%。但未来没有支付系统的数字货币90%会被淘汰。去中心化的、有犯罪历史、没有依法KYC的数字货币一定会被消灭。取而代之的将是中心化负责任，去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化，有支付系统，被国家主权所接受，而且能进行大宗商品交易。这意味着未来喜币的地位一定会远远超越今天的比特币。
+
+郭先生还透露，日本会成为美国之后第二大喜币流通的重要市场，喜支付的推广将在这个过程中起到关键作用。
+
+参考链接：
+[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

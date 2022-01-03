@@ -2,30 +2,30 @@
 ---
 
 
-## 中国人只有在自己国家站起来，才能在世界上被尊重
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1817079/)
+## 梅西接种疫苗后依旧感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817200/)
 
-作者：纽约香草山健身部 – 韵琴
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我是听到共产党建国以来，残害了近一亿中国人，让我醒悟的。这次听了郭先生的直播，还是让我非常震撼，直击心灵。
+作者：日本方舟农场 – Andy5
 
-追根溯源，中国人没有顾忌的吃法，最主要还是当时饿死人最多的二广地区、四川、河南……当人在极度饥饿，濒临死亡的时候，是没有人性可言的。中国人的撒谎、不诚实，是中国共产党的一贯作风，在这样的环境中，中国人很难不随波逐流。在这样的体制下的中国人，能有什么尊严可言？！
 
-![打破枷锁| 灵命日粮简体中文网站](https://d626yq9e83zk1.cloudfront.net/files/2018/04/30-770x425.jpg)
 
-我认为“富贵思淫欲”的另一种解释是，在人有了一定的经济基础，生活富足，没有生活压力，有更多时间的时候，才会有精神上的升华，对生活品质有更高的追求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-美国等西方国家就达到了这样的水平。
 
-只有推翻中共这个邪恶的统治，中国人才不会被奴役。中国人只有在自己的国家站起来，才能在世界上被尊重！
 
-期待早日灭共，当新中国联邦的旗帜在中华大地飘扬的时候，中国人在自己的国家，一人一票选出自己的政府。
+2022年1月2日，巴黎圣日尔曼球队官方宣布，队内有四名球员确诊。 这四位球员分别是梅西，贝尔纳特，里科，比图马扎拉。 而早在2021年5月1日，2021年美洲杯为参赛球员接种了中共的科兴疫苗，梅西也在这个接种名单之中。
 
-当中国人真正做到自己当家作主的时候，我相信会有一天，我们新中国联邦人，无论走到世界任何地方，都会骄傲的说—我是新中国联邦人！
+分析人士指出，越来越多的知名运动员在接种后出现梗塞，以及依旧被感染，会唤醒更多的民众发现，目前的ccp病毒疫苗对人体百害而无一利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpg)
+参考链接：
+1. [梅西、内马尔将接种中国新冠疫苗征战美洲杯](http://www.xinhuanet.com/2021-05/01/c_1127401269.htm)
+2.[巴黎官方：梅西新冠检测呈阳性](https://news.zhibo8.cc/zuqiu/2022-01-02/61d18d3ca7a7e.htm)
+3. [Vannes/PSG – Le point officiel sur le groupe : Messi parmi les joueurs positifs au Covid](https://www.parisfans.fr/club/vannes-psg-le-point-officiel-sur-le-groupe-messi-parmi-les-joueurs-positifs-au-covid-579791.html)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-**校对/发稿：童谣**
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -38,7 +38,13 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

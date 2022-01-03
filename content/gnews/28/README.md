@@ -2,49 +2,89 @@
 ---
 
 
-## 回顾2021年北京对台湾的威胁加剧了美中紧张局势
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1817232/)
+## 01/03每日播报|社媒消息：班农先生 罗伯特马龙博士
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1817267/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2555.jpg)网络截图1
-2021年[，随着北京对台湾的不断威胁，与美国承诺台湾一旦遭中国政府入侵将提供援助之间的矛盾，伴随着中美之间的紧张局势](https://www.foxnews.com/world/chinas-xi-warns-countries-about-breaking-their-heads-on-the-steel-great-wall)继续升温。
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61d2ba2c31a71619b573f2e6)
 
-中共政府声称台湾是其领土的一部分，坚决不允许台湾独立。大陆与台湾自1949年分裂，中共一直在加大对台湾政府的压力，反对其加入联合国等国际组织。美国没有正式承认台湾，但保持非官方关系，并支持其台湾的民主制度。
+**2022-01-**03
 
-多年来，双方的政治斗争一直在外交上走钢丝，直到2021 年，局势陡然紧张。
+**1. 班农先生1月1日在盖特发文：** 致所有的斗士： 新中国联邦、爆料革命、法治基金和法治社会，我们老百姓的“使命是伟大的”：干掉中共，并从根上铲除它。正如拿破仑对法国元帅所说：“一旦你着手要攻下维也纳，那就把它拿下吧！“ 祝各位新年快乐！ 明年北京相见！
 
-2021年初，时任美国国务卿迈克·蓬佩奥 (Mike Pompeo)[取消](https://www.washingtonpost.com/world/asia_pacific/trump-biden-taiwan-china/2021/01/13/1bbadee0-53c0-11eb-acc5-92d2819a1ccb_story.html)：禁止美国和台湾外交官互动政策，此举招致中国政府强烈反对。
+[https://gettr.com/post/pl9q0c236b](https://gettr.com/post/pl9q0c236b)
 
-随着拜登政府的上任，台湾最高代表团被邀请参加拜登总统就职典礼，也让中国政府看到，拜登政府不会在棘手的台湾问题上采取温和态度。总统就职典礼几天后，中国政府向台湾海峡派出战斗机，这被视为向拜登政府政府展示武力。
+**2. 班农先生1月2日在盖特发文：** 中共和他们的喉舌–《环球时报》，从一开始就在中共病毒这一问题上撒了谎。他们恐吓武汉市民，虐待老百性，并感染了全世界。应该对其惩罚，但那些左派全球主义者却将奥运会赠送给中共。
 
-在接下来的几个月里，拜登政府发表了一些亲台声明，其中包括国务卿安东尼·布林肯 (Antony Blinken) 呼吁让台湾加入世界卫生组织，但中国政府对此表示强烈反对。
+[https://gettr.com/post/plcfma445d](https://gettr.com/post/plcfma445d)
 
-随后中国政府的言论升级，中国国家主席习近平[声称](https://www.foxnews.com/world/chinas-xi-warns-countries-about-breaking-their-heads-on-the-steel-great-wall)中国有控制台湾的“历史使命”，并敦促其他国家不要干涉中国内政。
+**3. 班农先生1月3日在盖特发文：** 前英首相托尼·布莱尔被英女王列入荣誉名单。现已成为爵士的托尼正大力推动全民生物识别卡这一灾难性想法。
 
-8月，[白宫澄清](https://www.foxnews.com/politics/bidens-comment-on-taiwan-clarified-by-administration-official)拜登暗示美国有神圣承诺，即如果我们的北约盟国遭受侵犯，我们会做出回应。北约盟国包括日本、韩国、台湾。 这番陈述很快成为头条新闻，因为几十年来，美国对于此类侵犯一直是模糊战略。1979 年的《台湾关系法》承诺美国支持台湾，包括为其提供防御能力，但不一定参与军事冲突。
+[https://gettr.com/post/plfx6q3d38](https://gettr.com/post/plfx6q3d38)
 
-恰逢美国灾难性地从阿富汗撤军，中国又开始加大对台湾的侵略，一些专家认为两者之间有很大的关联性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pastedGraphic.png)图片来自网络
-10 月，[中国](https://www.foxnews.com/world/china-sends-more-aircraft-toward-taiwan-one-day-after-largest-ever-incursion)政府在两天内向台湾[派遣了80多架飞机，](https://www.foxnews.com/world/china-sends-more-aircraft-toward-taiwan-one-day-after-largest-ever-incursion)包括战斗机和轰炸机。在10月1日，派出两波飞机以纪念中华人民共和国国庆日，这导致台湾飞机紧急升空以作应对。
+**4. 美国众议员马乔丽·泰勒·格林1月2日在盖特发文： **众议员玛克辛·沃特斯 (Maxine Waters)可以在推特上发出暴力威胁，卡马拉·哈里斯 (Kamala Harris) 和议员伊尔汗·奥马尔 (Ilhan Omar)可以发推说要保释暴徒，恐怖组织伊斯兰革命卫队的首席发言人可以在推特上悼念苏莱曼尼，我却因为在推特上发布疫苗不良反应事件报告系统（VAERS）的统计数据而被禁言。推特是美国的敌人，因为它打压真相。 那好吧！我会向美国展示我们不需要它们，现在是打败我们敌人的时候了。
 
-随着紧张局势再次升级，拜登被问及美国是否会保护台湾免受中国的攻击，拜登回应是：是的，我们有这样做的承诺。
+[https://gettr.com/post/plf6qx50e8](https://gettr.com/post/plf6qx50e8)
 
-美国白宫发言人说美国与台湾的防务关系以《台湾关系法》为指导，我们将恪守该法案下的承诺，我们将继续支持台湾的自卫，我们将继续反对任何单方面改变现状的行为。
-
-中国政府很快就发表尖锐声明作为回应，据中国环球时报报道，中国外交部发言人说任何人都不应低估中国人民维护国家主权和领土完整的强大决心和能力，中国政府绝不会妥协。
-
-随着 2021 年接近尾声，双方的言辞激烈，表明紧张局势可能会在整个 2022 年持续升温。 12 月，国务卿安东尼·布林肯[表示](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)，如果北京入侵或袭击台湾，将发生可怕的后果。布林肯在谈到出兵问题时[说](https://www.reuters.com/world/us/blinken-says-any-move-by-china-invade-taiwan-would-be-potentially-disastrous-2021-12-03/)，多年来，我们一直非常清楚并始终明确，我们致力于确保台湾拥有自卫的手段和能力，如果中国政府真的入侵台湾，我们将继续兑现这一承诺。
-
-周四，中国外交部长王毅[指责](https://www.foxnews.com/politics/china-claims-us-will-pay-unbearable-cost-taiwan)美国“违背了美中建交时的承诺，纵容和教唆台独势力，企图歪曲和否认一个中国原则。他同时声称：这将使台湾陷入极其危险的境地，并给美国本身带来无法承受的代价。
-
-[参考信息：](https://www.foxnews.com/politics/2021-in-review-us-china-tensions-rise-beijing-aggression-taiwan)
-
-发布：Jenny
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+**5. 喜马拉雅交易所1月1日发推说：** 2021年对喜马拉雅交易所来说是不寻常的一年，感谢各位在过去12个月的支持。 Hcoin的价格增长了33274%，Hcoin的市值达到了334亿美元，用户遍布172个国家。 2021年4月，喜交所正式上线，1万多名用户在5月底前完成注册。 2021年7月，私人客户可以进行“快速购买”，即时购买喜币。 2021年11月，我们的交易平台正式启动。在第一个交易日，喜币就从0.1美元涨到了8.107美元，涨幅高达8007%。 我们的旅程才刚刚开始，2022年会有更多利好消息！
 
 
+
+> Happy New Year everyone 🎉
+> 
+> 2021 has been quite a year. Thank you all for your support in the past 12 months.
+> 
+> Our journey has just started and there will be more coming in 2022! [#goodbye2021](https://twitter.com/hashtag/goodbye2021?src=hash&amp;ref_src=twsrc%5Etfw) [#hello2022](https://twitter.com/hashtag/hello2022?src=hash&amp;ref_src=twsrc%5Etfw) [#himalayaexchange](https://twitter.com/hashtag/himalayaexchange?src=hash&amp;ref_src=twsrc%5Etfw) [#newyear](https://twitter.com/hashtag/newyear?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/RefW7X7BMD](https://t.co/RefW7X7BMD)
+> — Himalaya Exchange Official (@himalayaxchange) [January 1, 2022](https://twitter.com/himalayaxchange/status/1477252930579410947?ref_src=twsrc%5Etfw)
+
+
+
+**6. 《国家脉动》1月1日在盖特发文：** 杰森米勒：盘点大科技公司在2021年的最糟表现。 【盖文转报道，对于大型社交媒体平台的用户来说，2021年是糟糕的一年。从普通公民到知名公众人物，甚至唐纳德·川普总统，都因表达政治观点而被平台冻结账号或禁言。这一年还爆出了这些平台泄露了用户的私人信息，包括儿童。在2020年之后，很难相信社交媒体上的言论自由情况会变得如此糟糕，但它确实存在。硅谷的寡头们认为他们是世界的思想警察，他们的独裁法令制定关于什么是可接受的意见证明了这一点。你会认为，随着社交媒体市场竞争的加剧，他们会意识到人们已经厌倦了他们严厉的审查制度和有害的营销技巧，但他们实际上变得更糟。这就是我们创建盖特的原因，一个新的言论自由平台，为世界各地的人们提供一个可以自由、安全地表达政治观点的地方。】
+
+[https://gettr.com/post/pl8i4j5acc](https://gettr.com/post/pl8i4j5acc)
+
+**7. 盖特官方1月3日在盖特发文：** 由于推特的审查制度愈发严厉，美国知名网红主播乔·罗根 (Joe Rogan) 加入盖特平台。 1月2日下午，随着推特继续禁言该平台用户，罗根创建了一个官方盖特账户。罗根在盖特上写道：“为了防止变得愈发愚蠢和糟糕的推特把我的账户冻结，我很高兴加入盖特。” 【盖文转《the post millennial》报道，推特最近以违反新冠政策为由，先后将罗伯特·马龙博士和美国众议员马乔丽·泰勒·格林等人逐出平台。马龙博士说：“由于不遵从科技寡头的叙事，所以他们把你禁言。在新冠病毒的治疗和新冠疫苗问题上，很明显科技公司有一个审查议程。如果你的言论被他们认定违反了平台政策，就可以把你禁言，即使你说的是科学事实。”】
+
+[https://gettr.com/post/plgurw90c5](https://gettr.com/post/plgurw90c5)
+
+**8. 罗伯特马龙博士1月3日在盖特发文：** 印第安纳州一家人寿保险公司的一份报告提出一个议题：如果这次在人类身上进行的历史最大规模试验失败了会发生何种情况？ 【盖文转报道，一位经验丰富的股票分析师同事今天给我发了一个报道链接，标题是“印第安纳州一家人寿保险公司的首席执行官说，18至64岁群体的死亡人数较大流行前增加了40%”。如果这篇报道属实，那么在我看来，对人类进行的有史以来最大实验已经宣告失败。德国政治家莱纳·福尔米奇（Reiner Füllmich）推动举行新的纽伦堡审判控诉“反人类罪”，也开始显得不再那么虚无缥缈，而且更具有预言性。】
+
+[https://gettr.com/post/plktidb32d](https://gettr.com/post/plktidb32d)
+
+**9. 秘密翻译组1月2日在盖特发文：** 正义的小新12月31日在接受《班农战斗室》采访时说：“美国的企业赞助商以及NBC绝对不应该支持北京的种族灭绝奥运会，即使是无所作为的袖手旁观者也是在犯罪。我在新疆出生、长大，直到18岁时离开那里。以前，新疆还算可以，没那么严格，我和我的维吾尔朋友一切都很好。但是3年前，当我回到新疆时，发现一切都变了。我曾经所在中学附近的清真寺，上面的维吾尔文字全被抹掉了，顶部有个横幅，写道：我们服从中共所说的一切，我们只有一个政府、一个国家。学校附近还有很多隔离障碍物。更疯狂的是，无论任何人去那里，都必须携带身份证和接受扫描。如果想给车加油，司机和所有乘客必须从车里出来，司机必须接受非常严格的全覆盖扫描。我父亲的一些朋友在某集中营工作，我通过他了解到，在那里工作的人没有任何休息，一个月只休一天。问题是，如果他们辞职，那么就会被关进集中营，他们根本就没有其他选择，所有人都特别恐惧。所有维吾尔人都被困在一个狭小的房间里，每6小时才有一次机会到外面的空地大小便，这实在毫无人性。除此之外，新疆地区还发生了其它很疯狂的事情。”
+
+[https://gettr.com/post/pldqyv9790](https://gettr.com/post/pldqyv9790)
+
+**10. 印太新闻 – 关注中共威胁 1月2日发推说：** 自2016年以来，剑桥大学接受了华为2570万英镑资助。 英国大学从华为获得的资金是之前估计的两倍，其中获得的捐赠和研究拨款最多的是剑桥大学。 【推文转英国的《旁观者》 (The Spectator)杂志报道，根据信息自由法获得的数据显示，除了中国研究小组（China Research Group）去年6月公布的一份报告中提及的捐赠金额外，英国9所著名大学还从华为那里获得了2870万英镑的资助。】
+
+
+
+> Cambridge University has accepted £25.7 million from [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) since 2016
+> 
+> British universities have received twice as much funding from Huawei as previous estimates suggest. The biggest recipient of donations and research grants is Cambridge University[https://t.co/FJXgdED4Hl](https://t.co/FJXgdED4Hl)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [January 2, 2022](https://twitter.com/IndoPac_Info/status/1477667593875955715?ref_src=twsrc%5Etfw)
+
+
+
+**11． Disclose.tv 1月3日在盖特发文：** 已完全接种了新冠疫苗的美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 感染了新冠病毒，并出现了症状。
+
+[https://gettr.com/post/plk7as81b3](https://gettr.com/post/plk7as81b3)
+
+**12. Disclose.tv 1月3日在盖特发文：** 一项最新研究显示，57%的德国人不再相信政府提供的新冠疫情数据。
+
+[https://gettr.com/post/plgq1b2d10](https://gettr.com/post/plgq1b2d10)
+
+**13. 郭文贵先生1月2日在盖特发文：** 尊敬的战友们好，一定要马上关注这位有良知的、有国际视野的天才媒体人，美国朋友乔·罗根 (Joe Rogan)。罗根来盖特了，简直太厉害了，他可能是美国最有人气的主播，他的播客在美国有上亿人关注！太牛了！
+
+[https://gettr.com/post/plgkql4a3f](https://gettr.com/post/plgkql4a3f)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布：陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
