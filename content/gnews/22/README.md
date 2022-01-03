@@ -2,44 +2,52 @@
 ---
 
 
-## 拜登法案最关键人物都支持新中国联邦是上天送我们大礼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818266/)
+## 西安疫情加剧中共国芯片紧缺 恐再次引发公司外流
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1818319/)
 
-**郭文贵先生**：所以兄弟姐妹们，老天给了我们礼物！这个法案最关键的几个人都是支持我们新中国联邦的，好好查查军事委员这个法案的最关键人是谁，未来你看到未来跟G-TV啥关系，都会到G-TV，等G-TV再投胎以后你就明白了，最关键的。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-5.png)
+从上周开始，西安的中共病毒病例不断增加。最近，爆发流行性出血热更是雪上加霜。
 
-所以说兄弟姐妹们，我们新中国联邦人要懂得一个基本的逻辑，共产党到今天要不灭，不但我们什么都不存在，世界将没有任何未来，而且我们一定要相信老天在帮我们消灭共产党。
+虽然这个中国北方城市已封城一周，但未能控制不断上升的感染，最新爆发的疫情报告了1117个病例。现在正试图实施更严厉的措施——模仿武汉在2020年初经历的那种残酷阶段。
 
-这个法案和共产党的冬奥会和它的疯狂，不要小看了张高丽的“宇宙无限大，地球是一粒沙”，他们掩盖这种虚假新闻给全世界，再次进入塔西佗陷阱，还有这60岁生孩子，是吧？还有北京的整个的现在的政治和经济情况，都是天在帮我们。他们的虚伪、他们的造假、他们的流氓、他们的Low证明了我们的纯洁和伟大、我们的干净。
+要知道，西安至少有两个大规模的芯片生产设施，分属于三星与美光科技。
 
-Isobel Yeung把我们定义为，把海外华人定为恐怖份子和这种流氓的做法，七哥这次的这种引蛇出洞、诱敌深入，彻底歼之。我说实在话，七哥实在是太了不起了，做的实在是太好了！这是新中国联邦人给我们的智慧呀。说到这儿，法案意义重大，跟我们这Isobel Yeung有一拼。
+三星在西安的内存芯片业务是中共国最大的外资项目之一。这家科技巨头在西安有两条生产线，生产先进的NAND闪存产品，占其NAND闪存总产能的42.5%，占全球总体产出产能的15.3%。这说明了什么？
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+**中共国将再次被重大的芯片短缺所打击!**
 
-编辑整理：Jacques；
+目前，多家外资企业正逃离中共国。中共根本不可能说出西安疫情的真相。
 
-字幕文件制作：小满；
+因此，《环球时报》这个中共喉舌为其掩盖真相报道称，外国高科技制造商在西安的业务只受到了有限的影响。中共国在防疫中确保商业顺利运作，同时谎称印度等国在过去两年中经历了大规模的工厂和制造业中断。
 
-视频制作及上传：Cindy；
+**中****共****谎言坚持不了多久，三星和美光泄漏消息！**
 
-G-News发布：小满；
+三星电子和美光科技已警告说，中共严格的中共病毒遏制措施导致芯片制造基地的人员减少，用于数据中心的DRAM内存芯片可能会供应延迟。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+目前，不仅仅是制造方面的问题。西安的封锁也意味着芯片制造商将不得不面对大规模的物流问题，这只会使他们的供应问题恶化。考虑到中共国境内大部分使用的是西安生产的芯片，这个红色流氓政权在未来的日子里有很多事情需要准备。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**西安被封锁百姓遭受粮食危机**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+被封锁的西安居民说，他们正努力寻找足够的食物。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+中共对西安严密封锁，即使是为了确保每周一次的基本供应，也不允许任何人踏出家门半步。西安百姓完全听从中共的摆布。一些人可能会拿到甚至是过期的食品，而另一些人则只能靠家里存粮来维持生计。在极端情况下，甚至被饿死。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+没有外国公司愿意在这种条件下经营。这也加速芯片制造商和其他公司的大规模外流。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+备注：
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[新闻来源链接](https://tfiglobalnews.com/2021/12/31/xian-has-worsened-chinas-chip-crunch-triggering-another-possible-company-exodus/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 

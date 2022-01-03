@@ -2,42 +2,40 @@
 ---
 
 
-## 拜登承诺称：若俄罗斯“入侵”乌克兰，美国将果断回应
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1817982/)
+## 《新中国联邦宣言》是治愈共产主义创伤的答案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约香草山农场 文真
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/D97ACB6B-C6F8-4F89-8B7D-6760261841B5.jpeg)拜登与泽连斯基（图片来自搜狐网）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当地时间1月2日，美国总统拜登和乌克兰总统泽连斯基举行电话会谈。拜登在通话中承诺称，若俄罗斯“入侵”乌克兰，美国及盟友将做出“果断回应”。
+在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
+在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
 
-随着俄乌局势紧张，美俄两国外交局势“剑拔弩张”。拜登政府多次宣称，考虑对俄采取“前所未有的”严厉经济制裁。俄总统普京则回应称，俄罗斯已经“退无可退”，不排除采取“军事技术手段”。
+直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
 
-根据美国白宫网站消息，拜登与泽连斯基在电话会谈中达成一致，均表示支持通过外交努力处理俄乌边境问题，包括举行美俄双边会谈和北约与俄方的稳定对话。
+参考链接：
 
-在通话中，拜登向泽连斯基做出承诺，如果俄罗斯进一步“入侵”乌克兰，美国美国及盟友将做出“果断回应”。
-
-拜登还重申了美国对乌克兰主权和领土完整的承诺，支持通过建立信任措施来缓解当前的紧张局势。
-
-稍晚时候，泽连斯基在推特发文感谢拜登政府支持。他写道：“与美国总统的2022年首次通话证明了美乌关系的特殊性。我们讨论了两国和合作伙伴在维护欧洲和平、防止（局势）进一步升级、改革、去寡头化方面的联合行动。我们感谢美国对于乌克兰的坚定支持。”
-
-俄外交官员近日向美国和北约递交安全保障倡议，要求北约不接收乌克兰为成员国，并减少其在中欧和东欧的部署。
-
-俄罗斯外交部发言人扎哈罗娃上周表示，俄罗斯和美国有关安全保障议题的会谈将于2022年1月10日在日内瓦举行。双方代表团团长分别为俄罗斯外交部副部长里亚布科夫和美国副国务卿谢尔曼。
-
-*参考链接：*
-
-1. [*拜登承诺称：若俄罗斯“入侵”乌克兰，美国将果断回应*](https://www.sohu.com/a/513978846_115479)
-2. [*拜登对乌克兰总统说：如果俄罗斯进一步入侵乌克兰，美国和盟国将“果断回应”*](https://www.voachinese.com/a/biden-to-ukraine-us-allies-would-respond-decisively-if-russia-further-invade-ukraine/6379338.html)
+1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
+2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
+3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*素材采编：北极*
+编辑：Ivy001
+总编：文真 
+校正/发稿：我不在这里
 
-*编辑：青城道姑*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布：miumiu*
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
