@@ -2,30 +2,26 @@
 ---
 
 
-## 《新中国联邦宣言》是治愈共产主义创伤的答案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
+## 郭文贵先生深度解析“水是生命之源”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818024/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山文艺部 宁文静
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
-在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
+在2022开年大直播中，郭文贵先生深度解析了水在五行中的中心地位，以及水对于生命、幸福与希望的重要意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.55.55-PM.png)
+郭先生说，水和太阳、空气、土地，构成了人类生存的基本要素。水是大自然循环的动力源泉，也是人类的生命之源。人体70%的成分都是水，没有充足的水分来参与身体的各项机能，花会枯萎，容颜就会衰老憔悴。
 
-直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
+郭先生指出，中共国放开了三胎，但是人口出生率却连年下降，正是因为年轻人精神压抑，前途渺茫，超负荷的工作和生存压力压抑了人性的本能，失去了生育的动力，造成民不聊“生”。中共这个违背自然、违背天理、违背人性的专制体制，迫使老百姓不愿意让自己的后代生活在罪恶的世界里。郭先生总结，人的身体机能是由精神来控制的。找不到幸福，看不到希望，自然失去了水的滋润，老百姓觉得生命暗淡无光。
 
-参考链接：
+对比之下，新中国联邦提供了源源不断的精神甘泉、物质滋养，无数战友重新感受到生活的激情和生命的意义。同时，今年是天水之年，壬寅之年，中共破坏了盘古的风水，必遭天谴。
 
-1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
-2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
-3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
+参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
 
+[![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-编辑：Ivy001
-总编：文真 
+编辑/总编：文真
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

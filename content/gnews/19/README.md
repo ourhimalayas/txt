@@ -2,42 +2,42 @@
 ---
 
 
-## 七哥知道VICE有备而来提前把她瞄得准准的必须持续反击
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818364/)
+## 韩国前总统朴槿惠入狱近5年后获释
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1818383/)
 
-**郭文贵先生**：关于VICE这个采访，大家看到了。刚才很多人说，其中有一个重点大家没有看到。我们英喜这个编辑和历史的对比是极为重要的，和秘密翻译组做得是非常非常好，而且推出的时间、我们提前的准备，这是绝对的，这才能达到这个功效。光七哥提前已经知道她要干啥，我当时就讲，我说你来干啥，老子都知道，是吧？她也没想到只弄了3分钟吧？最后选出来只选出了3分钟，包括到年底前她要推出来。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-6.png)
+据《路透社》报道，12月31日，韩国前总统朴槿惠在被判腐败罪近五年后于周五获释，坊间热议她在来临3月的总统选举前会否充当任何角色。
 
-我们到后来说，你公不公布？你不公布，我们就公布了。她说我们要在RAW上来弄，然后我们要到年底。我就知道这是给冬奥会的献礼。所以说咱对她瞄得准准的，而且Isobel杨这次的出手，大家千万别小看，定义咱是邪教、定义我们是西方民主的威胁，这事非常非常大。所以说咱要反应不敏感、咱要反击没有力度，那就完了。
+朴槿惠现年69岁，是韩国第一位被赶下台的民选领导人。
 
-我上次我直播说，我说这个，咱一定要几周有个高潮，要在全世界看到，我说最起码坚持六周，是吧？就是中国共产党相信，中国老百姓没有一个天大地大死，郑州死多少人，什么事会记住六周的。两周是一个坎，三周是一个坎，四周是一个坎，看见没有？头一天到处都能看到Isobel杨的虚假采访、编辑，昨天就没了，很少了。今天、明天估计就没了，这是在爆料革命当中，咱们战友一定要小心的。精神阳痿、行动阳痿，他都是最后结果是，生不出孩子，你也打不住狼。没有持之以恒的动力，你啥也干不成。
+当时宪法法院维持了议会2017年对她的弹劾投票，该丑闻还导致三星和乐天这两家企业集团的负责人入狱。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+去年1月，韩国最高法院维持了朴槿惠20年的有期徒刑，因发现她与一位在监狱中的朋友勾结，从这些公司收取了数百亿韩元。其中大部分用于资助她朋友的家庭和非营利基金会。
 
-编辑整理：Jacques；
+上周，文在寅总统对朴槿惠特别赦免，理由是她的健康状况不断恶化，并表示希望 “克服过去不幸的历史，促进国民团结”。
 
-字幕文件制作：小满；
+据韩联社报道，司法部官员于周四午夜将赦免书送到朴槿惠住了一个月的医院。并补充说，周五朴槿惠仍在医院。该医院拒绝发表评论。
 
-视频制作及上传：Cindy；
+朴槿惠是一位前军统的女儿。据她的律师说，她为所引起的公众关注而道歉，并感谢文在寅作出的 “艰难决定”。
 
-G-News发布：小满；
+她的监禁造成了国家的分裂，右翼亲朴团体每周举行集会，谴责文在寅及其政策，并呼吁释放朴槿惠，直到去年中共病毒（COVID-19）阻断规则才被迫停止了集会活动。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+周四晚些时候，数百名朴槿惠的支持者冒着严寒涌向她所在的医院，庆祝她的获释，并送了1000多束鲜花。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+同时，在首尔市中心约有200人举行抗议活动，反对朴槿惠获释。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+目前还不清楚朴槿惠是否会恢复任何政治活动。但周四，在其发布的回忆录中说，对她的定罪是出于政治动机，她表示希望 “有一天能再次见到人民”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+朴槿惠获释时，她的旧党–主要的反对派人民力量党和文在寅的民主党正进行激烈的总统竞选。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+人民力量党的总统候选人尹石烈作为检察长调查了朴槿惠的丑闻。周五，尹石烈说，朴槿惠已完成一名公务员的工作，并补充说，他希望在朴槿惠健康状况好转时去看她。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[新闻来源链接](https://www.reuters.com/world/asia-pacific/skoreas-disgraced-ex-president-park-freed-after-nearly-5-years-prison-2021-12-31/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+审核校对：sherryok (水云间)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+上传排版：漂流瓶
 
  
 

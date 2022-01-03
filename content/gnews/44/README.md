@@ -2,37 +2,32 @@
 ---
 
 
-## 郭文贵先生深度解析“水是生命之源”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818024/)
+## 香港立法会议员就任 首次在中共国国徽下宣誓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818041/)
 
-作者：纽约香草山文艺部 宁文静
+作者：东京樱花团｜上善若水
+![](https://lh4.googleusercontent.com/nqezgOyCQc6Rz0iDhs_m91n3JwP_1tdpMWaX9xuX0RVc9_5qroSjoNunuWjQ5PNQpP0fQFyzaH8ESkYWzKT9G8ObnaE8M0A1xTmktmMfZh-RhMFh4hQlWxh80UYihM9XwBpnBD2m)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/Cs45QHlda2Kp3jLvCMIJUQ--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/x87yXBA15fBDMq19IPVZng--~B/aD01Mjk7dz05NDA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/ko/www_dw_com_641/a27cfd412f1450918983383a440fff6d)
+在香港民主派缺席的立法会选举于去年12月落幕后，香港立法会的90名新议员于周一（1月3日）宣誓就任。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本届宣誓仪式首次改由香港特首林郑月娥亲自监督，宣誓时会议厅上挂着的香港紫荆花区徽，也首次改成中华人民共和国的国徽。新任议员宣誓时的一举一动，像是发言和手势都成为香港媒体关注的焦点。
 
-在2022开年大直播中，郭文贵先生深度解析了水在五行中的中心地位，以及水对于生命、幸福与希望的重要意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.55.55-PM.png)
-郭先生说，水和太阳、空气、土地，构成了人类生存的基本要素。水是大自然循环的动力源泉，也是人类的生命之源。人体70%的成分都是水，没有充足的水分来参与身体的各项机能，花会枯萎，容颜就会衰老憔悴。
+《香港自由新闻》（HKFP）报道，有两名立法会议员在宣誓时漏掉一些字，被立法会秘书长陈维安要求重读他们的誓言。还有三人选择用普通话而不是人香港人普遍使用的广东语来进行宣誓。
 
-郭先生指出，中共国放开了三胎，但是人口出生率却连年下降，正是因为年轻人精神压抑，前途渺茫，超负荷的工作和生存压力压抑了人性的本能，失去了生育的动力，造成民不聊“生”。中共这个违背自然、违背天理、违背人性的专制体制，迫使老百姓不愿意让自己的后代生活在罪恶的世界里。郭先生总结，人的身体机能是由精神来控制的。找不到幸福，看不到希望，自然失去了水的滋润，老百姓觉得生命暗淡无光。
+港媒也关注到议员陈克勤在宣誓时，并未举起右手的行为。对此，陈克勤表示，自己庄重丶准确丶完整完成宣誓，举手动作并非《宣誓及声明条例》要求，他已向相关部门确认自己宣誓有效。
 
-对比之下，新中国联邦提供了源源不断的精神甘泉、物质滋养，无数战友重新感受到生活的激情和生命的意义。同时，今年是天水之年，壬寅之年，中共破坏了盘古的风水，必遭天谴。
+法新社报道，中共国已按照自己的专制形式重塑了香港，任何被当局认为“不爱国”的人都被逐出公职。在“爱国者治港”的原则下，未来四年内的立法会议员皆是由“效忠者”所组成，香港政府也不需再面对来自民主派议员的监督与反对。
 
-参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
+在12月举行的立法会选举中，当局审查了所有候选人的政治忠诚度。而在90个席位中，只有20个是透过直接选举产生的，其余的席次则是由亲北京的选举委员会选择的。在90名议员里，只有一人被认为是“非建制派”。
 
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
+3日的立法会宣誓仪式与上一次2016年的仪式相比安静了许多。当时有6名民主派议员利用他们的誓言高呼口号或展示标语，这些议员后来陆续遭到撤职。随着《香港国安法》的通过，香港着名的民主派人士目前大多已身陷囹圄，或者流亡海外。
 
-编辑/总编：文真
-校正/发稿：我不在这里
+许多西方国家批评称北京已撕毁了1997年香港回归时与英国所做出的、维持香港自由与自治的承诺。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[**香港立法会议员就任首次在中国国徽下宣誓**](https://tw.news.yahoo.com/%E9%A6%99%E6%B8%AF%E7%AB%8B%E6%B3%95%E6%9C%83%E8%AD%B0%E5%93%A1%E5%B0%B1%E4%BB%BB-%E9%A6%96%E6%AC%A1%E5%9C%A8%E4%B8%AD%E5%9C%8B%E5%9C%8B%E5%BE%BD%E4%B8%8B%E5%AE%A3%E8%AA%93-084000883.html)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
