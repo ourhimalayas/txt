@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 7:39 AM (UTC)`
+
+1/1/2022 Miles Guo：2022 will be very exciting, and there will be huge challenges. The only opportunity and market of social media left is for us. The United States, Europe, and Japan are the three places of fierce attacks, and we must be fully psychologically prepared and insist that only truth is indestructible. We will definitely have another great harvest year in 2022, but you have to work hard before the harvest.<br/><br/>1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。<br/>
+![img](https://media.gettr.com/group42/getter/2022/01/03/07/81046d91-f2aa-631e-e18f-2126bc9cd3a5/out.jpg)
+
+---
+
+`@miles 1/3/2022 7:31 AM (UTC)`
+
+1/2/2022 Miles Guo’s GETTR: Staying alive is of paramount importance! You’d better stay away from the modern life powered by electricity in tall buildings; forget about the fancy meals and keep food in stock; things like gold and diamonds that cannot be traded for life necessities are going to be useless; the disasters caused by the COVID vaccines and the CCP virus have yet started, but you will see the day when the CCP is taken down as long as you can survive<br/><br/>1/2/2022 文贵盖特：活下去最重要！最好远离电气化和高楼大厦的生活；不讲究吃，但要有粮食；不能兑换物质的黄金、钻石不管用；疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天<br/>
+![img](https://media.gettr.com/group12/getter/2022/01/03/07/98a1bcc8-d368-9dd2-baa5-d42e25bda69d/out.jpg)
+
+---
+
+`@miles 1/3/2022 7:26 AM (UTC)`
+
+1/2/2022 Miles Guo’s GETTR: The number of foreigners watching the New Year’s live broadcast reached an unprecedented peak. The purpose and value of our live broadcast is to wake up more people. The CCP is to blame for the tragedies in Xi'an and Afghanistan. The most critical question about the disasters caused by CCP virus and COVID vaccines is who will be responsible for them? Why not hold the CCP accountable for the origin of the virus?<br/><br/>1/2/2022 文贵盖特：元旦大直播外国观众人数创新高，我们直播的目的与价值在于唤醒更多的人；中共是在西安和阿富汗发生的惨剧的罪魁祸首；关于病毒和疫苗灾难最关键的问题是谁将为此负责？为何不找中共溯源呢？<br/>
+![img](https://media.gettr.com/group22/getter/2022/01/03/07/d7e7e60d-80b6-ca85-aaff-9570a8e73df9/out.jpg)
+
+---
+
 `@miles 1/3/2022 7:17 AM (UTC)`
 
 1/1/2022 Miles Guo: 2022 will be a year of catastrophes for the CCP, there will be flooding and agricultural disasters in China, and brutal and bloody political infightings will accompany the 20th Party Congress. People all over the world will be facing the darkness brought by the disasters of the CCP virus and COVID vaccines. Citizens of the New Federal State of China should take actions in unity, stay faithful, and make our financial and media sectors even stronger. We will definitely win in 2022!<br/><br/>1/1/2022 文贵直播：2022年将是灾难的一年，国内将发生洪灾、农灾，中共20大将发生血腥内斗，世界将面对病毒和疫苗灾难带来的黑暗；新中国联邦人要团结、坚持信仰、做强做大金融和媒体 - 2022年，我们一定会赢！<br/><br/>
@@ -132,27 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: How to cure the trauma caused by communism after the CCP is taken down? You can find all the answers in the Declaration of the New Federal State of China, and please read it carefully<br/><br/>1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/01/22/060e44cb-0555-cfc3-a6c2-8ab89d8987cb/out.jpg)
-
----
-
-`@miles 1/1/2022 10:35 PM (UTC)`
-
-1/1/2022 Miles Guo: What’s the trauma of communism? CCP understands the interpersonal relationships and human nature well by taking advantage of vast majority’s selfishness and cowardice to make LaoBaixing ignorant, indifferent, being exhausted from being so busy without any free time to think independently and finally achieving its goal to rule the nation by just a few families, i.e., totalitarian regime<br/><br/>1/1/2022 文贵直播：什么是共产主义创伤？共产党深谙人与人的关系，利用自私懦弱等人性弱点，让老百姓无知冷漠、疲于奔命、无暇思考，最终实现“家天下” - 独裁<br/><br/>
-![img](https://media.gettr.com/group30/getter/2022/01/01/22/a01b9b0c-6a73-9c9b-40d7-df22e35b036e/out.jpg)
-
----
-
-`@miles 1/1/2022 12:58 PM (UTC)`
-
-2022年1月1日 文贵大直播  元旦特别节目 正道至善 除恶建邦
-![img](https://media.gettr.com/group34/origin/2022/01/01/11/7e5aaa9a-4608-e036-9e5a-b5577a7d1f0e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/1/2022 5:50 AM (UTC)`
-
-一位来自澳大利亚的郭文贵先生和班农先生的粉丝：郭文贵先生告诉我们的有关中共病毒的消息，大约三个月后我们才能明白，所以他领先于事态的发展，因为他知道真相。 希望郭先生健康，平安，继续揭露真相！<br/><br/>A fan of Miles Guo and Steve Bannon in Australia: Miles Guo tells the news about the Virus that we find out about three months later, so he's ahead of the curve because he knows the truth. He hopes Mr. Guo stays healthy and safe, and keeps telling the truth. 
-![img](https://media.gettr.com/group3/getter/2022/01/01/05/58e324ca-13fd-6da1-ac79-0f8de597d60a/out.jpg)
 
 ---
 
