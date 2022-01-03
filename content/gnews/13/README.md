@@ -2,18 +2,31 @@
 ---
 
 
-## 蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1819262/)
+## 有声|蔡英文正告中共停止对台商选择性执法恫吓
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819287/)
 
-有个很出名的21点的玩家，他和一群人玩，他会算牌数牌，他通过博弈论和数学概率的方法，到了有利的时候，会向跟他一起玩的所有人发一个信号，那些人慢慢懂了之后，他们一起来玩就会让赌场损失很严重。
+配音：香草山教育部 – 百香果
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月24日，就中共五省市执法部门以所谓“不允许支持台独”为由，对远东集团等台湾部分企业实行重罚一事，台湾总统蔡英文发表声明，呼吁朝野各界正告中共当局，要求中共立刻停止此种行为，不要继续伤害两岸及双边经贸关系。
 
-他后来进了新泽西州法院的一个黑名单，他就对赌场发起了诉讼，因为他这个不是作弊，只是用了策略，他会发出这个信号，但信号不一定是语言，但其他人可以Get到这个信号。一般法律会站在赌场那边，个人去告赌场其实也是攻防双方的博弈。
+蔡英文指出，中共通过政治献金，意图干预台湾的民主政治发展，但这类举动无助于两岸经贸的正常交流，反而对两岸关系造成了严重的伤害。另一方面，台商长期以来对大陆的经济发展、社会就业以及两岸交流做出了很大的贡献。因此，中共对台商进行选择性的执法恫吓，只会加速两岸分裂，同时恶化中共国内的投资环境，加速外商企业的投资转向。
 
-这令人想起电影里的老千，以后就拒绝你去赌场，赌场也会给客人贴标签，他们也在规避他们潜在的对手，对他们Business的掠夺。
+原文链接：[蔡英文正告中共停止对台商选择性执法恫吓](https://gnews.org/zh-hans/1694958/)
 
-直播视频：[第三十七期 法律你我她 – 博彩行业及相关法律](https://gtv.org/video/id=61be79697882000d51040aea)
+音频处理：喜山必胜Maverick
 
-编辑/发文：蓝枫法律栏目
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
