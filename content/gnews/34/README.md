@@ -2,10 +2,10 @@
 ---
 
 
-## 驻冲绳美军感染中共病毒数一天从70例暴增至235例
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816721/)
+## 欧洲感染中共病毒人数突破1亿，法国突破1千万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816722/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._3-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220103-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 8:18 AM (UTC)`
+
+1/1/2022 Mr.Miles Guo: The Story Behind Communist China's Intention to Strictly and Seriously Regulate the Out-of-Control Chinese Music and Culture Market<br/><br/>1/1/2022 文贵先生新年直播：中共意欲严格严肃管理失控中国音乐文化市场背后的故事<br/>
+![img](https://media.gettr.com/group23/getter/2022/01/03/08/6561c8ea-a830-9ce3-d350-d100b133dbc1/out.jpg)
+
+---
+
 `@miles 1/3/2022 7:52 AM (UTC)`
 
 1/1/2022 Miles Guo: We grow in the negativity of others, to grow & mature rapidly in self-respect. There is only one reason that we are the ones who eliminate communism. Everyone is a butterfly; everyone can trigger the butterfly effect. When I live broadcast today, I feel that it is the result of the common growth, breathing, and struggle of all of our lives.You have been working on a great cause, something you might not fully appreciate its importance at this point in time.<br/><br/>1/1/2022 文贵先生新年直播：我们在否定中成长，在自恋中飞速的成长和成熟. 只有一个理由，因为我们是共同的灭共者.每个人都是一个蝴蝶，每个人都能扇起蝴蝶的力量.我每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸，共同奋斗的结果。你们在做着一生当中可能你自己到现在都无法想象的，多么伟大的事业。<br/>
@@ -146,13 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: The CCP’s taking away the Pangu Plaza, remodeling the dragon-head-shaped top of Pangu, seizing the Yuda Palace Hotel, and releasing the VICE interview happened at the same time, with all these being arranged by God; the Whistleblowers' Movement has managed to advance against all the odds and has proved the CCP’s superstitious nature by using the CCP’s own propaganda against itself; the Whistleblowers' Movement possesses the power of butterflies to change the world!<br/><br/>1/1/2022 文贵直播：中共抢盘古、改龙头、夺裕达和发布VICE采访视频这几件大事同时发生，是上天的安排；爆料革命逆增上缘、用中共的宣传反宣传，反而证明其迷信本质；爆料革命有着能改变世界的蝴蝶的力量！<br/>
 ![img](https://media.gettr.com/group25/getter/2022/01/02/03/e43958b1-2dbc-bf73-abb0-d55944c9357e/out.jpg)
-
----
-
-`@miles 1/2/2022 2:44 AM (UTC)`
-
-1/1/2022 Miles Guo: Each fellow fighter of the Whistleblowers’ Movement is fulfilling their mission to save the world, while the CCP’s old kleptocrats are living in the endless lies and fear; the Japanese media’s report on the CCP remodeling Pangu Plaza’s dragon-head-shaped tower has received extensive attention in Washington DC; the actual downloads of GETTR App are as many as 35 million - how powerful GETTR is!<br/><br/>1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中；日媒对盘古改龙头的报道在华盛顿受到广泛关注；盖特的真实下载量达3500万 - 这是多大的力量！<br/>
-![img](https://media.gettr.com/group20/getter/2022/01/02/02/07e1d40f-50b8-4a79-6324-8cf022fc4aef/out.jpg)
 
 ---
 
