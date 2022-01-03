@@ -2,34 +2,29 @@
 ---
 
 
-## 有声|郭先生圣诞、元旦大直播有感
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819251/)
+## 又一家香港媒体因“媒体环境恶化”而关闭
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1819293/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3432.jpg)图片来源：VOA 资料照片：香港警察逮捕了《立场新闻》的六名高管后突击搜查其办公室。（2021年12月29日）
+据美国之音2022年1月3日报道，香港一家在线新闻网站“众新闻”表示，鉴于新闻自由不断恶化，该网站将在1月4日停止更新其网站，并在此后关闭。众新闻是近几个月来第三家关闭的新闻媒体。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+香港记者协会3日发表声明，对一周内接连有传媒机构停止运作“深感痛心及遗憾”，称这对香港作为亚洲国际都会的声誉造成难以估量的影响，并敦促政府履行基本法对新闻和资讯流通自由应有的保障。
 
-郭先生圣诞大直播9个小时，元旦大直播12个小时，感受最深的是一个字：爱！
+香港最近关闭了三家新闻媒体。去年12月，香港当局拆除了纪念1989 年北京天安门广场纪念碑。国安法实施后，中共明目张胆地在香港打压新闻媒体自由和公民各项权利，大肆抓捕异议人士。中共的邪恶在香港兴风作浪，但自古邪不压正，香港终有一天会恢复原有的民主和自由，再现辉煌。荣光必定回归香港。
 
-圣诞大直播七哥跟“爆二代”年轻战友甚至还有小朋友联欢，七哥看着他们，满眼都是喜爱，对小战友更是有求必应。小战友们不仅可爱，更有灵性，对于七哥的分享，他们听得入神，也触动了屏幕前的我们。一场大直播，太多的欢笑和感动，满满都是爱！
+新闻参考链接：[https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html](https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html)
 
-元旦大直播，一百多位战友与七哥同框同心。无论是跟了5年的老战友，还是刚加入十几天的新战友；无论是年轻战友，还是老年战友，每个人都说着发自肺腑的话。不管是开怀的笑，还有激动的泪，都是那么真实打动人心。参与直播的战友很激动，屏幕前观看的战友也很激动。那一刻，战友之情，跨越时空，流进每个人的心田。
+* * *
 
-原文链接：[郭先生圣诞、元旦大直播有感](https://gnews.org/zh-hans/1816900/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-音频处理：喜山必胜Maverick
 
-发稿：Daxia
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

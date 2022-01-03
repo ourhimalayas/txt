@@ -2,39 +2,34 @@
 ---
 
 
-## 默克和辉瑞的“抗病毒”药丸只是利用新冠病毒歇斯底里的另一种牟取暴利的骗局
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1819216/)
+## 有声|苗难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819261/)
 
-作者：Lance D Johnson
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+元旦欢快的气息尚在
+同事的叹息就来了
+她的亲戚朋友中
+俩个60岁左右的走了
+还说年纪轻轻生病走
+好意问句打几针
+傲慢写在脸上
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Covid-vaccine-world-edited.jpg)图片来源：网络
-自然新闻：美国国立卫生研究院、疾病预防控制中心和 FDA 的科学大师们将扼杀任何廉价、有效的对抗病毒感染的解决方案列为首要任务。 这些机构压制了已知的治疗方法、营养保健品和抗病毒提取物，以便为大型制药公司对新疫苗技术的历史性投资和其他牟取暴利的骗局让路。
+原文链接：[苗难](https://gnews.org/zh-hans/1814081/)
 
-最新的暴利骗局是默克和辉瑞的“抗病毒”药丸。 默克 (Merck) 的新治疗计划 (Molnupiravir) 10 粒售价 700 美元！ 保证其有效性的研究根本不是很有希望，并且在研究的治疗组中仍然导致住院和死亡。
+音频处理：喜山必胜Maverick
 
-辉瑞的新型 DNA 聚合酶抑制剂 (Paxlovid) 是实验性两种药物方案的一部分，该方案使用了从伊维菌素中提取的特性。 当然，伊维菌素是一种廉价、有效的药物，它以特定种类的细菌为模型。 几十年来，伊维菌素一直被安全使用，但在 covid-19 丑闻期间反复受到审查、抹黑和撒谎，尽管非洲等地几十年来一直使用它来对抗呼吸道感染非常有效。
+发稿：Daxia
 
-**默克（Merck）加入敲诈勒索的腐败，推出自己的新的暴利骗局**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-辉瑞的新 Paxlovid 只能作为两种药物的处方，并且需要一个名为利托那韦的 HIV 药物的伴随处方。 该协议仍然是一种“研究药物”——并未完全获得 FDA 的批准。 该药物已获得 FDA 的紧急使用授权，因此处于试验阶段。 辉瑞没有什么可担心的，因为如果药物伤害了人们，他们就不会承担责任，就像他们的 mRNA 疫苗实验一样。
-
-默克公司即将到来的暴利骗局是一种名为molnupiravir的“重磅炸弹”。 这种口服药物起到核苷激动剂的作用。 它将 N-羟基胞苷输送到细胞中，然后转化为 NHC 三磷酸。 这种 NHC 三磷酸通过病毒 RNA 聚合酶掺入病毒 RNA 中，随后误导病毒聚合酶掺入鸟苷或腺苷，从而破坏病毒复制。 因为这种药物会对哺乳动物细胞造成未知的风险，所以在五天内的治疗仅限于十粒。 治疗费用高达 700 美元。 相比之下，一疗程的伊维菌素仅需 20 美元。 维生素 D、锌和维生素 C 甚至比这更便宜，并且准确提供了身体克服与 covid-19 相关的任何呼吸道感染所需的物质。
-
-在 molnupiravir 研究中，安慰剂组 699 人中有 68 人在 29 天观察期后住院或死亡。 在 29 天的观察期后，服用 molnupiravir 的住院或死亡的人数略少（709 人中有 48 人）。 该研究没有提到这两组人接受了什么样的医疗护理。 如果安慰剂组接受了实际的抗病毒治疗，这些人中的大多数人会康复吗？ 将一种实验性药物与不合标准的医疗保健和拒绝治疗进行比较并不是研究该药物疗效或为数百万美国人批准该药物的正确方法。
-
-**敲诈勒索、胁迫、医疗欺诈、禁言令继续**
-
-美国政府签订了一份价值 50 亿美元的合同，以获得和分销这些新药，使这些实验药物一夜之间取得了成功。 安东尼·福奇博士和拜登政权非常努力地压制社交媒体和有线电视新闻上的所有竞争疗法，以强制手段使辉瑞、Moderna、强生和默克的高利润骗局成为现实。
-
-在 covid-19 丑闻期间，制药公司以及 Fauci 博士的 NIAID、CDC 和 FDA 显然一直在进行敲诈勒索活动。 这些流氓机构利用 covid-19 的歇斯底里和欺诈性医疗诊断来剥夺人们的公民自由，压制他们的免疫系统，拒绝经过验证的治疗，所有这些都是为了要求对人们的生活进行政治和金融统治。 全国各地的医生才刚刚开始发声，因为这种胁迫、虐待和敲诈勒索的制度决定了他们作为医疗专业人员的存在。 许多医疗专业人士开始无视禁言令，公开谈论压制有效药物和医患关系，以及这种医学实验的严重危害。
-
-来源链接：[https://www.afinalwarning.com/581631.html](https://www.afinalwarning.com/581631.html)
-
-编辑/发布：LILY
-
-20220103
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
