@@ -2,67 +2,31 @@
 ---
 
 
-## 医生揭示Omicron4种新症状，打过疫苗者更常见
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818946/)
+## 有声|美国CDC变相证明中共病毒疫苗无效
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818947/)
 
-作者：Herb Scribner
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-30.png)
-据英国和印度媒体报道，随着COVID-19病例激增，感染Omicron变体的新症状继续出现。
+配音：香草山巡管部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2021年12月31日，据相关媒体报道，美国疾病控制与预防中心CDC表示，自中共病毒奥密克戎变种出现以来，邮轮上的新增确诊病例持续增长。因此，CDC目前已经将邮轮旅行的风险等级调升至最危险的4级。
 
-感染Omicron的人最常报告以下五种症状：
+但CDC也建议民众，无论自身的中共病毒疫苗接种状况如何，大家在出行时都应尽量避免搭乘邮轮。 此外，CDC还补充道，如果民众必须要搭乘邮轮出行，请在确保自身已经完全接种过中共病毒疫苗的同时，仍需加强其他防疫措施，并且需要在旅行前1至3天，以及旅行后的3至5天内接受中共病毒核酸筛检。
 
-- 喉咙痛
-- 头疼
-- 乏力
-- 流鼻涕
-- 打喷嚏
+有评论则认为，CDC要求已经接种疫苗的旅客继续做好防疫和核酸筛查的举措，恰好从侧面证实了中共病毒疫苗并不具备此前CDC所宣传的预防和阻止病毒传染的效力。
 
+文字版原文：[美国CDC变相证明中共病毒疫苗无效](https://gnews.org/zh-hans/1812024/)
 
-然而，Omicron的感染者也可能会出现以下一种或多种症状：
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-- 食欲不振
-- 恶心想吐
-- 脑雾
-- 盗汗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-
-“脑雾”指的是一种健忘、混乱、思维不清晰的感觉。
-
-来自英国的ZOE COVID研究提出了Omicron变种的新症状。该研究一直在监测Omicron变种的影响。
-
-遗传流行病学专家、ZOE COVID研究的首席科学家Tim Spector教授说：“恶心和食欲不振在那些完全接种疫苗和接种加强剂疫苗的人中更常见。”
-
-尽管关于盗汗的证据还没有定论，但一些Omicron检测呈阳性的人已经报告说经历过这种症状。
-
-**Omicron与Delta有什么不同**
-
-到目前为止的数据表明，Omicron变体虽然传播速度更快，但比Delta等其他变体更温和。
-
-在许多国家，因感染Omicron而住院的人数比例低于Delta。
-
-不过，全球已经有许多人由于感染和接种疫苗而建立了自然免疫力，这也是事实。
-
-证据还表明，与Delta变种主要在肺部复制不同，Omicron在上呼吸道，包括鼻子、嘴和喉咙中复制。这也许是Omicron不如Delta严重的原因之一。这可能也部分解释了为什么Omicron在人与人之间具有高度传染性，因为它在鼻部复制，通过流鼻涕和打喷嚏传播。
-
-来源：https://www.deseret.com/coronavirus/2021/12/21/22847247/new-omicron-variant-symptom-night-sweats-sweating-covid
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

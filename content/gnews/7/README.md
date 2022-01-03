@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|美退役空军准将称 疫苗强制令在分裂军队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819035/)
+## 澳大利亚男子自焚反抗疫苗强制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1819062/)
 
-配音：香草山巡管部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2021年12月31日，美国退役空军准将、驻北约副军事代表布莱恩·霍尔特在接受采访时表示，拜登政府各军事部门的中共病毒疫苗强制接种命令“分裂了美国军队”。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/melbourne-mandate-self-immolation-nzh-1.jpg)图片来源：NewsTalk ZB
+根据美国《国会山报》(The Hill) 1月3日报道，一名澳大利亚男子于元旦在墨尔本自焚反抗疫苗强制。
 
-霍尔特提到，截止目前，美军共有206名海军陆战队队员因没有接种中共病毒疫苗而被开除。值得注意的是，军中所有“宗教豁免”的申请全部被不加考虑地拒绝了。此外，即使是那些已经接种了疫苗的军人也有被胁迫感觉，他们不得不默许这一强制令的推行。
+目击者告诉当局，当时这名男子正坐在车里怒吼对冠状病毒疫苗强制的愤怒，他往自己和车辆浇上汽油并自焚。随后他被救护车送往当地医院，目前情况危急但稳定。
 
-霍尔特也指出，这一疫苗强制令在美国军队中造成了分裂——其迫使军人之间互相指责，而那些被踢出军队的人员的处境却非常艰难。
+莉迪亚-奥康纳（Lydia O’Connor）告诉《先驱太阳报》：”他大声怒斥当前的疫苗强制规定，大喊’不要疫苗证’，并且摔书。” 随后往自己和他的车上浇汽油，并点燃。
 
-霍尔特强调，联邦政府只是要求军人“以一种伟大、统一的方式，为战斗做好准备”，却没有充分评估疫苗强制令对美国各军种造成的恶劣影响。
+“着火了，他的皮肤在燃烧”……一位身份明确的妇女告诉该媒体。
 
-文字版原文：[美退役空军准将称 疫苗强制令在分裂军队](https://gnews.org/zh-hans/1812025/)
+据报道，五名旁观者协助警察和消防员控制住该男子，随后用水将其扑灭。他被救护车送往当地医院，目前情况危急但稳定。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+事发地是澳大利亚维多利亚州，那里要求人们在进入酒吧、餐馆和其他企业时必须出示疫苗接种证明，工人工作也必须全面接种冠状病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+该事件应该为所有政府强制新冠疫苗规定敲响警钟，引发民众反思，强制疫苗已经把民众逼到墙角，只有站起来反抗，才能拯救自己。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：
+https://thehill.com/changing-america/well-being/mental-health/587989-man-sets-himself-on-fire-after-angry-rant-about
+
+
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

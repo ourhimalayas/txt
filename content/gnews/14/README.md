@@ -2,50 +2,53 @@
 ---
 
 
-## 郭先生谈五行与爱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818981/)
+## 禁止室内用餐，福特内阁会议正在考虑进一步限制零售容量
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818982/)
 
-作者：纽约香草山 – 文特
+作者：Bryann Aguilar
+翻译：HimaFAFA
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31.png)
 
+福特政府正在考虑引入更严格的 COVID-19 限制，因为安大略省每天都有破纪录的新病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+消息人士周日告诉多伦多 CTV 新闻，省长道格福特与他的内阁会面，讨论在 Omicron 变种传播期间保持医院容量和保持学校开放的可能措施。
 
+正在考虑的措施包括禁止室内用餐，降低室内（从 10 人到 5 人，他们应该完全接种疫苗）和室外聚会的限制，以及将基本零售的容量减少到 50%，非基本零售的容量减少到 25%，消息人士称。
 
+消息人士称，政府也在考虑限制健身房和个人护理服务以及宴会厅和婚礼。
 
-2022元旦大直播中，郭先生谈到，2021年和2022年是爆料革命和新中国联邦甚至整个人类命运的分水岭。并提到人类生存最重要的有几个象征性因素——金木水火土——和爱。
+此外，该省正在考虑取消相关门票的活动。
 
-郭先生分享到，我们在地球上，面对一个物质的世界，和一个我们未知的、无法想象的星空，银河系，太阳系，面对的是无限大的宇宙与地球间一粒沙的关系，这是我们人类生存的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3.jpg)
-我们新中国联邦的旗是蓝色的，蓝色是海洋、星空的颜色，代表水。但在中国，从夏文化至今都不用蓝，在中国蓝代表死亡，中国人很忌讳。但中国人缺的就是蓝，缺的就是水，共产党的死敌就是蓝色的水。它用的是红色。在中国红色代表吉祥，代表火，代表杀戮。它旗帜上的星用的是土黄，地球是由土和水组成的，土和水滋养了木，滋养了一切生命。至于金，当下金融系统就是我们的金。金的代表色是白色，而中国人也非常忌讳白色，认为白色代表死亡。但五行金为首，没金什么都没有。
+消息人士称，如果这些措施获得批准，政府计划最早在周三实施，并将实施三周后重新评估。
 
-五种因素在我们的生命中各自发挥着自己的影响，起着不同的作用。而人与人之间最重要的就是爱。人类没有了爱，连畜生都不如。人类之所以穿上衣裳，有文明，就是因为爱。新中国联邦人因爱走在了一起，爱把金木水火土联系在一起，是最大的力量。
+内阁会议与安大略省报告超过 16,000 例新的 COVID-19病例发生在同一天。周六，该省创下了每日新增感染人数超过 18,000 人的记录。
 
-参考链接：
-[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://www.gettr.com/streaming/plas6p681c)
+官员们表示，由于测试限制，这些数字被低估了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+感染控制流行病学家科林·弗内斯 (Colin Furness) 周日晚间告诉 CTV 新闻频道，正在考虑的限制措施本应在上个月实施。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+“我们在 12 月需要一些措施，我认为这实际上可以阻止事情的发生。现在，这些限制只会在某种程度上解决我们面临的更大问题，如现在非常失控的传播，”弗内斯说。
 
-**更多资讯，更多关注**
+“因此，试图以容量限制与病毒进行谈判，我认为它不会取得太大成果。同时，我知道人们对适当关闭不感兴趣，但这却是我们正是需要的。所以，我们处于一个非常困难的地方。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+来源：https://www.cp24.com/news/ban-on-indoor-dining-further-capacity-limits-for-retail-being-considered-in-ford-cabinet-meeting-sources-1.5725771
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

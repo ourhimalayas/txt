@@ -2,36 +2,66 @@
 ---
 
 
-## 恒大集团新年首个交易日就被港交所停牌！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1818941/)
+## 医生揭示Omicron4种新症状，打过疫苗者更常见
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818946/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010301.jpg)恒大危机，中国房地产。 （美联社）
-编辑摘要：
+作者：Herb Scribner
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-30.png)
+据英国和印度媒体报道，随着COVID-19病例激增，感染Omicron变体的新症状继续出现。
 
-据BBC News中文2022年1月3日报道，2022年港股第一个交易日，中共国恒大集团及与该公司有关的所有结构性产品被公告停牌。停牌前，恒大集团过去一年累计下挫89%。上一次恒大停牌是在2021年10月4日，当时同时停牌的还有恒大旗下的恒大物业。
+感染Omicron的人最常报告以下五种症状：
 
-出售或抵押资产是恒大现阶段自救的主要办法，比如恒大集团主席许家印将位于香港的豪宅抵押偿还债券。恒大寄希望于“保交楼”来自救，即确保在建楼盘能够交付。目前恒大全国项目复工率已达91.7%，复工人数8.9万人，四季度累计交楼超过5.3万套。
-
-恒大面前似乎有好几条路，但条条道路都通向一个结局：倒闭。毫无悬念，恒大是救不活的，但是当局会让恒大有序地倒闭，因为恒大会引发全球经济危机。中共的邪恶就在于把活人榨干，死人也能拿来做文章。恒大就算死，在死之前也要被打上强心针，强扶起来继续吓唬和威胁那些曾经跪着的国家、企业或个人。恒大想活活不起，想死也死不了，每天在生死之间徘徊：生不如死。
-
-新闻参考链接：[中國房地產風暴》恒大集團新年首個交易日就被港交所停牌！北京到底救不救？](https://www.storm.mg/article/4131370)
-
-*编辑：胖丁*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- 喉咙痛
+- 头疼
+- 乏力
+- 流鼻涕
+- 打喷嚏
 
 
-编辑：【英国伦敦喜庄园编辑部】
+然而，Omicron的感染者也可能会出现以下一种或多种症状：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- 食欲不振
+- 恶心想吐
+- 脑雾
+- 盗汗
 
 
+“脑雾”指的是一种健忘、混乱、思维不清晰的感觉。
+
+来自英国的ZOE COVID研究提出了Omicron变种的新症状。该研究一直在监测Omicron变种的影响。
+
+遗传流行病学专家、ZOE COVID研究的首席科学家Tim Spector教授说：“恶心和食欲不振在那些完全接种疫苗和接种加强剂疫苗的人中更常见。”
+
+尽管关于盗汗的证据还没有定论，但一些Omicron检测呈阳性的人已经报告说经历过这种症状。
+
+**Omicron与Delta有什么不同**
+
+到目前为止的数据表明，Omicron变体虽然传播速度更快，但比Delta等其他变体更温和。
+
+在许多国家，因感染Omicron而住院的人数比例低于Delta。
+
+不过，全球已经有许多人由于感染和接种疫苗而建立了自然免疫力，这也是事实。
+
+证据还表明，与Delta变种主要在肺部复制不同，Omicron在上呼吸道，包括鼻子、嘴和喉咙中复制。这也许是Omicron不如Delta严重的原因之一。这可能也部分解释了为什么Omicron在人与人之间具有高度传染性，因为它在鼻部复制，通过流鼻涕和打喷嚏传播。
+
+来源：https://www.deseret.com/coronavirus/2021/12/21/22847247/new-omicron-variant-symptom-night-sweats-sweating-covid
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

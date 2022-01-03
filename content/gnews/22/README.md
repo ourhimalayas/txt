@@ -2,40 +2,40 @@
 ---
 
 
-## 马龙博士：COVID-19在美国引发“大规模精神病”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818901/)
+## 发布批评大药企视频 媒体推特帐户被封
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818920/)
 
 编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/malone-700x420-1.jpg)图片来源：大纪元时报
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-4.jpg)Bethany Clarke/Getty Images
 
-mRNA技术的主要发明者罗伯特·马龙博士（Robert Malone）是一位对强制接种 COVID-19 疫苗著名的质疑者，他在接受采访时向知名博主乔·罗根（Joe Rogan）建议说，美国正处于“大规模精神病”之中 。
+媒体公司《格拉比恩新闻》（ Grabien News ）创始人表示，因发布美国国会议员批评制药公司的视频，账号被 Twitter 暂停。
 
-“我们的政府在这方面失控了，”马龙在周末发布的采访中谈到疫苗规定。 “而且他们是无法无天的，他们完全无视生物伦理，他们完全无视联邦的共同规则，他们打破了我所知道的所有规则，我已经接受了这个专业多年的训练。”
+《格拉比恩新闻》 创始人汤姆·艾略特( Tom Elliott ) 12 月 31 日在 Twitter 上写道，格拉比恩新闻因引用众议员安迪·比格斯(Andy Biggs) 关于 COVID-19 治疗的评论而被停号。
 
-马龙是 mRNA 技术专家，曾在加州大学戴维斯分校、加州大学圣地亚哥分校和索尔克研究所接受过培训，上周被推特封号。马龙上周告诉《大纪元时报》，推特没有解释为什么他拥有 50 万粉丝的账户被暂停。
+“出于经济利益，大型制药公司不会考虑像羟氯奎（HCQ）或伊维菌素这样的治疗药物，”该帖子写道，并有一个包含国会议员评论的视频的附加链接。
 
-Twitter 的一位发言人告诉左翼媒体Daily Dot，马龙的帐户“因一再违反我们的 COVID-19 错误信息政策而被永久暂停……根据此处概述的罢工制度，我们将因一再违反此政策而永久暂停帐户。”
+艾略特附件了 Twitter 的截图声明，该声明向他发送了一条样板消息，称格拉比恩新闻因“违反传播与 COVID-19 相关的误导性和潜在有害信息的政策”而被停号，艾略特将其描述为“ Twitter低级荒谬”。
 
-（点评：也就是说**twitter**的审核员，比**mRNA**发明者更有权决定**mRNA**疫苗的话语权！）
+“显然，在这种情况下，无论你是否同意，在对每个人都重要的问题上，引用一位民选领导人的话，是重要且具有新闻价值的，”艾略特说。 “而且，我不得不补充说，他的基本观点曾经是进步人士的主流。
 
-马龙在接受罗根采访时说：“这些指令……显然是非法的”并且“明显不符合《纽伦堡法典》”，他指的是一套反对人体实验的研究伦理原则。 “它们明显与贝尔蒙特报告不一致，”他指的是 1978 年发表在《联邦公报》上的关于涉及人类受试者的研究的伦理原则和指导方针的报告。
+“我已经提出上诉，说明这一点。但是，我对 Twitter 做正确的事情没有信心，Twitter 不会承认这条推文没有违反其条款和条件。”
 
-“他们完全是非法的，他们不在乎。”
+暂停似乎表明，Twitter 旨在打击与 COVID-19 或疫苗相关的帖子和内容，这些帖子和内容与对此事的主流观点相反。
 
-在采访快结束时，马龙暗示，人们正处于一种“群体形成精神病”之中，这与 1920 年代和 1930 年代德国人口中形成的心态相似。
+帮助开发** mRNA **疫苗技术的罗伯特**·**马龙（**Robert Malone **）博士，上周因违反** Twitter **的条款和条件而被停号。他在社交媒体网站 Gettr 上写道，1 月 2 日，议员玛乔丽·泰勒·格林(Marjorie Taylor Greene) 的个人 Twitter 页面因类似原因被暂停。
 
-那些年，德国人“拥有高智商、受过高等教育的人口，他们狂吠不止，”马龙说。
+Twitter 发言人在 1 月 2 日的一份声明中说：“玛乔丽因屡次违反我们的** COVID-19 **错误信息政策而永久停号。我们已经明确表示，根据我们针对这项政策的制度，因屡次违反政策，我们将永久停其帐户。”
 
-“当你的社会变得彼此脱钩，并且在某种意义上说，事情没有意义时，焦虑是自由浮动的，我们无法理解，但之后，他们的注意力被一个领导者或一系列事件集中在一个小点上，就像催眠一样。他们真的被催眠了，可以被带到任何地方。”
+与此同时，马龙告诉《大纪元时报》，他拥有超过 50 万粉丝的账户，在没有任何预警的情况下被永久暂停。那是几天之前马龙在接受流行播客乔罗根采访时说的。
 
-**“**他们会跟着那个人，他们是否对他们撒谎，还是什么的，都没有关系了。”
+与此同时，前《纽约时报》记者亚历克斯·贝伦森 (Alex Berenson) 在推特账号被禁后，对推特提起了诉讼，该账号同样拥有数十万粉丝。
 
-他说，几年前，人们“抱怨这个世界没有意义”，而且，我们“除了通过社交媒体之外，不再有社交联系”。
+上个月，前 CEO 杰克·多尔西 (Jack Dorsey) 辞去了 Twitter 的职务，这引发了人们的担忧，即这家总部位于旧金山的公司，会对可以发布哪些内容采取更强硬的立场。在多尔西离职后，曾发表过批评言论自由的 Twitter 长期员工帕拉格·阿格拉瓦尔 (Parag Agrawal) 接任首席执行官一职。
 
-“然后，这件事就发生了，”马龙说，指的是 COVID-19 大流行。 “这就是大规模形成精神病的发生方式，这就是这里发生的事情。”
+**点评：试想，如果没有像Gettr这样的发声平台，任由大药企控制的媒体谎言欺骗，这个世界将走向怎样的灾难？**
 
-**参考资料：**[theepochtimes][Dr. Robert Malone to Rogan: US in ‘Mass Formation Psychosis’ Over COVID-19](https://www.theepochtimes.com/mkt_morningbrief/dr-robert-malone-to-rogan-us-in-mass-formation-psychosis-over-covid_4189087.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=xJRMSfopFjHw/eprt14kAWiT0meSZ6OMwSEQlw8QuHwVGmTmhRwWORt5xaHFACQWYMlqtw==)
+**参考资料：**[theepochtimes][Twitter Suspends Media Site’s Account for Posting Video of Congressman Criticizing Big Pharma](https://www.theepochtimes.com/mkt_morningbrief/twitter-suspends-media-sites-account-for-posting-video-of-house-rep-criticizing-big-pharma_4189099.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=M6fs9w6ls4i8QEKleCVecpVxLZQfKr0Zrwfe47CLxdU7RwkIXDqjCCT0Vs1Q+7yIaoywNQ==)
 
 * * *
 
