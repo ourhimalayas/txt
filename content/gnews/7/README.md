@@ -2,34 +2,42 @@
 ---
 
 
-## 恒大集团新年首个交易日就被港交所停牌！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1818941/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818983/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010301.jpg)恒大危机，中国房地产。 （美联社）
-编辑摘要：
-
-据BBC News中文2022年1月3日报道，2022年港股第一个交易日，中共国恒大集团及与该公司有关的所有结构性产品被公告停牌。停牌前，恒大集团过去一年累计下挫89%。上一次恒大停牌是在2021年10月4日，当时同时停牌的还有恒大旗下的恒大物业。
-
-出售或抵押资产是恒大现阶段自救的主要办法，比如恒大集团主席许家印将位于香港的豪宅抵押偿还债券。恒大寄希望于“保交楼”来自救，即确保在建楼盘能够交付。目前恒大全国项目复工率已达91.7%，复工人数8.9万人，四季度累计交楼超过5.3万套。
-
-恒大面前似乎有好几条路，但条条道路都通向一个结局：倒闭。毫无悬念，恒大是救不活的，但是当局会让恒大有序地倒闭，因为恒大会引发全球经济危机。中共的邪恶就在于把活人榨干，死人也能拿来做文章。恒大就算死，在死之前也要被打上强心针，强扶起来继续吓唬和威胁那些曾经跪着的国家、企业或个人。恒大想活活不起，想死也死不了，每天在生死之间徘徊：生不如死。
-
-新闻参考链接：[中國房地產風暴》恒大集團新年首個交易日就被港交所停牌！北京到底救不救？](https://www.storm.mg/article/4131370)
-
-*编辑：胖丁*
+作者：纽约香草山-文特
 
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+HBO-VICE断章取义进行混乱剪辑，诋毁郭先生爆料疫苗是中共毒害世界的工具以及中共的灭白计划为虚假信息。 接下来让我们还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-1.jpg)
+参考视频链接：
+[【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-10】](https://www.gettr.com/post/pkg4fq761b)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

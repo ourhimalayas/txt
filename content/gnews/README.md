@@ -15,115 +15,115 @@
 
 ---
 
-### [DC大中华时事:西安雁塔区党政一把手双双被免](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [澳大利亚男子自焚反抗疫苗强制](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
 
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [禁止室内用餐，福特内阁会议正在考虑进一步限制零售容量](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [荷兰警方放狗攻击数千反封锁抗议者](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|美国CDC变相证明中共病毒疫苗无效](/content/gnews/5/README.md)
+### [有声|美退役空军准将称 疫苗强制令在分裂军队](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [医生揭示Omicron4种新症状，打过疫苗者更常见](/content/gnews/6/README.md)
+### [警惕美国通胀带来的全球经济风险](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [恒大集团新年首个交易日就被港交所停牌！](/content/gnews/7/README.md)
+### [DC大中华时事:西安雁塔区党政一把手双双被免](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [多伦多华人餐馆疑似回收地上酱料 当事者回应](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [有声|美数百国会议员要求最高法阻止疫苗强制令](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [禁止室内用餐，福特内阁会议正在考虑进一步限制零售容量](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [郭先生谈五行与爱](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生谈爆料革命战友无我、利他](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [荷兰警方放狗攻击数千反封锁抗议者](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|美国CDC变相证明中共病毒疫苗无效](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [医生揭示Omicron4种新症状，打过疫苗者更常见](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [恒大集团新年首个交易日就被港交所停牌！](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|郭文贵先生就周日喜币价位振荡回复广大战友](/content/gnews/8/README.md)
+### [有声|郭文贵先生就周日喜币价位振荡回复广大战友](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [发布批评大药企视频 媒体推特帐户被封](/content/gnews/9/README.md)
+### [发布批评大药企视频 媒体推特帐户被封](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马龙博士：COVID-19在美国引发“大规模精神病”](/content/gnews/10/README.md)
+### [马龙博士：COVID-19在美国引发“大规模精神病”](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国防部长奥斯汀中共病毒测试阳性](/content/gnews/11/README.md)
+### [美国防部长奥斯汀中共病毒测试阳性](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们要提前告知中共国房地产雪崩的时刻的到来 能救一个是一个](/content/gnews/12/README.md)
+### [我们要提前告知中共国房地产雪崩的时刻的到来 能救一个是一个](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [卡尔加里的boot project：人们是否有权利对疫苗强制政策说不？](/content/gnews/13/README.md)
+### [卡尔加里的boot project：人们是否有权利对疫苗强制政策说不？](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|多家足球俱乐部因“烂房烂账”而导致资金链断裂](/content/gnews/14/README.md)
+### [有声|多家足球俱乐部因“烂房烂账”而导致资金链断裂](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [辉瑞等制药公司和其背后的金主并非活在普通的道德世界](/content/gnews/15/README.md)
+### [辉瑞等制药公司和其背后的金主并非活在普通的道德世界](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [支持者阻止警方关闭黄金海岸咖啡馆](/content/gnews/16/README.md)
+### [支持者阻止警方关闭黄金海岸咖啡馆](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|1120纪念大直播班农先生寄语：新中国联邦一定会赢](/content/gnews/17/README.md)
+### [有声|1120纪念大直播班农先生寄语：新中国联邦一定会赢](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [疫苗災難即將開始 活下去是最重要的目標](/content/gnews/18/README.md)
+### [疫苗災難即將開始 活下去是最重要的目標](/content/gnews/25/README.md)
  ` 焦點20分`
 
-### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/19/README.md)
+### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/20/README.md)
+### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/27/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共国日益增长的独裁主义不重要吗？](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [共产党的洗脑热土，中共原外交部长李肇星入驻“B站”](/content/gnews/22/README.md)
- ` 首尔天池农场`
-
-### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/23/README.md)
+### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/28/README.md)
  ` 英喜-粵語組`
 
-### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/24/README.md)
+### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/25/README.md)
+### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/26/README.md)
+### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [联盟工作汇报文字版2022.1.2](/content/gnews/27/README.md)
+### [联盟工作汇报文字版2022.1.2](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [中共国化工大省电费猛涨](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/29/README.md)
+### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/30/README.md)
+### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/31/README.md)
+### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/35/README.md)
  ` 焦點20分`
 
-### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/32/README.md)
+### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安疫情加剧中共国芯片紧缺 恐再次引发公司外流](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [新中国联邦人要拥有爱](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [有声|南极极地站多数工作人员感染新冠病毒](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [中共病毒已经改变了俄罗斯人的生活方式和人口结构](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
-
-### [中共不灭，人祸永存](/content/gnews/37/README.md)
+### [中共病毒已经改变了俄罗斯人的生活方式和人口结构](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
 
 ### [研究发现：将蜂蜜与黑孜然相结合有助于新冠患者](/content/gnews/38/README.md)

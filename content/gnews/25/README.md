@@ -2,28 +2,15 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1818541/)
+## 疫苗災難即將開始 活下去是最重要的目標
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1818742/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+全球科学界，宗教界已经开始认识到，这场[疫苗病毒危机](//hashtag/%2523疫苗病毒危机)是[中共](//hashtag/%2523中共)和[国际黑暗势力](//hashtag/%2523国际黑暗势力)勾结的对全人类进行的[大屠杀](//hashtag/%2523大屠杀)。尽量远离严重依赖电力的大都市，避免居住在高楼大厦里，适度地储备食品和物资，以应对即将到来的[病毒疫苗灾难](//hashtag/%2523病毒疫苗灾难)。在新的一年，活下去是最重要的目标。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.03早GTV新闻访谈](https://gtv.org/video/id=61d2fa3131a71619b5740b94)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.13.00-PM-1-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2022年1 月2日郭先生盖特
+视频制作: 文星光
+文案:文星光
+上传: 零点
 
  
 

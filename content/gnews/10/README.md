@@ -2,48 +2,50 @@
 ---
 
 
-## 马龙博士：COVID-19在美国引发“大规模精神病”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818901/)
+## 郭先生谈爆料革命战友无我、利他
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818980/)
 
-编译：Jenny Ball
+作者：东京樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/malone-700x420-1.jpg)图片来源：大纪元时报
 
-mRNA技术的主要发明者罗伯特·马龙博士（Robert Malone）是一位对强制接种 COVID-19 疫苗著名的质疑者，他在接受采访时向知名博主乔·罗根（Joe Rogan）建议说，美国正处于“大规模精神病”之中 。
 
-“我们的政府在这方面失控了，”马龙在周末发布的采访中谈到疫苗规定。 “而且他们是无法无天的，他们完全无视生物伦理，他们完全无视联邦的共同规则，他们打破了我所知道的所有规则，我已经接受了这个专业多年的训练。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-马龙是 mRNA 技术专家，曾在加州大学戴维斯分校、加州大学圣地亚哥分校和索尔克研究所接受过培训，上周被推特封号。马龙上周告诉《大纪元时报》，推特没有解释为什么他拥有 50 万粉丝的账户被暂停。
 
-Twitter 的一位发言人告诉左翼媒体Daily Dot，马龙的帐户“因一再违反我们的 COVID-19 错误信息政策而被永久暂停……根据此处概述的罢工制度，我们将因一再违反此政策而永久暂停帐户。”
 
-（点评：也就是说**twitter**的审核员，比**mRNA**发明者更有权决定**mRNA**疫苗的话语权！）
+在2022年元旦大直播中，郭先生谈到了新中国联邦人和爆料革命战友的无我、利他精神。
 
-马龙在接受罗根采访时说：“这些指令……显然是非法的”并且“明显不符合《纽伦堡法典》”，他指的是一套反对人体实验的研究伦理原则。 “它们明显与贝尔蒙特报告不一致，”他指的是 1978 年发表在《联邦公报》上的关于涉及人类受试者的研究的伦理原则和指导方针的报告。
+郭先生表示，世界上没有哪一种动物，觉得自己的同类是丑陋的和无法相处的。但当前中国人在世界上是没有丝毫尊严的，无论在何时何地，中国人都不愿意看见同胞，不跟同胞交流，也绝不相信同胞。中国人互相看对方不顺眼，都想远离对方。这都是在墙内受到共产党的奴役和洗脑所造成的恶果——受欺骗、受打压、到处都是虚假，然后到墙外一看正常世界就感觉极度不舒服。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2.jpg)
+郭先生表示在直播中与战友交流让他无比感动，我们新中国联邦人找到了属于自己的尊严。我们既不是东亚病夫，也不是东亚狂夫；我们既不是战狼，也不是战羊，我们就是正常的人类。我们虽然有无数的缺点，但我们也有无数同类的优点。
 
-“他们完全是非法的，他们不在乎。”
+我们还要超越更多的自我，要有一个新中国联邦的概念，和拯救他人的概念。如果每个人只为了自己活着，那么他将面临一次又一次的失败，只是失败的程度不同而已。只有拥有了无我、利他和灭共的决心，并在此基础上，每个人爱自己、爱战友，一切才会无限美好。
 
-在采访快结束时，马龙暗示，人们正处于一种“群体形成精神病”之中，这与 1920 年代和 1930 年代德国人口中形成的心态相似。
+参考链接：
+[我们大直播的意义](https://gnews.org/zh-hans/1814357/)
 
-那些年，德国人“拥有高智商、受过高等教育的人口，他们狂吠不止，”马龙说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-“当你的社会变得彼此脱钩，并且在某种意义上说，事情没有意义时，焦虑是自由浮动的，我们无法理解，但之后，他们的注意力被一个领导者或一系列事件集中在一个小点上，就像催眠一样。他们真的被催眠了，可以被带到任何地方。”
+编辑/总编：文特
+校对/发稿：为真不破20
 
-**“**他们会跟着那个人，他们是否对他们撒谎，还是什么的，都没有关系了。”
+**更多资讯，更多关注**
 
-他说，几年前，人们“抱怨这个世界没有意义”，而且，我们“除了通过社交媒体之外，不再有社交联系”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“然后，这件事就发生了，”马龙说，指的是 COVID-19 大流行。 “这就是大规模形成精神病的发生方式，这就是这里发生的事情。”
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**参考资料：**[theepochtimes][Dr. Robert Malone to Rogan: US in ‘Mass Formation Psychosis’ Over COVID-19](https://www.theepochtimes.com/mkt_morningbrief/dr-robert-malone-to-rogan-us-in-mass-formation-psychosis-over-covid_4189087.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=xJRMSfopFjHw/eprt14kAWiT0meSZ6OMwSEQlw8QuHwVGmTmhRwWORt5xaHFACQWYMlqtw==)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
