@@ -2,56 +2,53 @@
 ---
 
 
-## 荷兰警方放狗攻击数千反封锁抗议者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818978/)
+## 禁止室内用餐，福特内阁会议正在考虑进一步限制零售容量
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818982/)
 
-编译：Jenny Ball
+作者：Bryann Aguilar
+翻译：HimaFAFA
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6.jpg)2022 年 1 月 2 日，荷兰阿姆斯特丹，警察与反封锁抗议者之间爆发冲突。 (图片来源：sohu.com)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31.png)
 
-周日，荷兰首都阿姆斯特丹的数千人聚集在一起，抗议荷兰政府的 COVID-19 封锁措施，之后遭到警方镇压。
+福特政府正在考虑引入更严格的 COVID-19 限制，因为安大略省每天都有破纪录的新病例。
 
-在此之前，阿姆斯特丹市长费姆克·哈尔塞玛（ Femke Halsema ）发布了一项紧急法令，在 COVID-19 案件增加的情况下，抗议者违反了该市的公共集会禁令，要求更多警察清理中央博物馆广场。
+消息人士周日告诉多伦多 CTV 新闻，省长道格福特与他的内阁会面，讨论在 Omicron 变种传播期间保持医院容量和保持学校开放的可能措施。
 
-抗议者还沿着首都的一条主干道行走，演奏音乐并打着黄色雨伞，以表示反对政府的限制措施。
+正在考虑的措施包括禁止室内用餐，降低室内（从 10 人到 5 人，他们应该完全接种疫苗）和室外聚会的限制，以及将基本零售的容量减少到 50%，非基本零售的容量减少到 25%，消息人士称。
 
-一些参与者的横幅上写着：“少打压，多关心”，而一群戴着白色口罩和白色工作服的人举着标语，上面写着：“这不是病毒，而是控制。”另一个人举着“川普2024”的旗帜。
+消息人士称，政府也在考虑限制健身房和个人护理服务以及宴会厅和婚礼。
 
-网上上传的照片和视频片段显示，似乎是警察向反授权抗议者放狗。录像显示，荷兰当局部署了水炮，视频显示，据称是荷兰退伍军人与警察发生冲突。
+此外，该省正在考虑取消相关门票的活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4.png)图片来自原文
+消息人士称，如果这些措施获得批准，政府计划最早在周三实施，并将实施三周后重新评估。
 
-在警察进入之前，其他镜头显示，周日有数千人参加了抗议活动。
+内阁会议与安大略省报告超过 16,000 例新的 COVID-19病例发生在同一天。周六，该省创下了每日新增感染人数超过 18,000 人的记录。
 
-除荷兰外，德国的示威者上周在该国东部地区因新的 COVID-19 相关限制措施而与警方发生冲突，现在至少有 23 人面临刑事指控。
+官员们表示，由于测试限制，这些数字被低估了。
 
-在荷兰，根据当前的一系列限制，禁止两人以上的聚会。
+感染控制流行病学家科林·弗内斯 (Colin Furness) 周日晚间告诉 CTV 新闻频道，正在考虑的限制措施本应在上个月实施。
 
-与其他欧洲国家一样，荷兰因 Omicron 变种的传播而采取了这些措施，尽管甚至一些美国卫生官员表示，研究表明该菌株的症状较轻，住院人数也少得多。
+“我们在 12 月需要一些措施，我认为这实际上可以阻止事情的发生。现在，这些限制只会在某种程度上解决我们面临的更大问题，如现在非常失控的传播，”弗内斯说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362371034-ssss-600x400-1.jpg)人们于2022年1月2日在荷兰阿姆斯特丹参加反封锁示威。（Sanne Derks/Getty Images）
+“因此，试图以容量限制与病毒进行谈判，我认为它不会取得太大成果。同时，我知道人们对适当关闭不感兴趣，但这却是我们正是需要的。所以，我们处于一个非常困难的地方。”
 
-12 月 19 日，荷兰突然封锁，因为政府下令关闭所有商店，除认为是“必不可少”的商店除外。政府下令，餐馆、理发店、健身房、博物馆和其他公共场所，也至少关闭到 1 月 14 日。
+来源：https://www.cp24.com/news/ban-on-indoor-dining-further-capacity-limits-for-retail-being-considered-in-ford-cabinet-meeting-sources-1.5725771
 
-尽管研究表明 Omicron 变体虽然具有高度传染性，但其疾病严重程度明显低于 Delta 变体，但还是下达了封锁令。美国CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 上周表示，与之前的 COVID-19 激增期间相比，美国的住院率现在也相对较低。
+（文章仅代表作者个人观点）
 
-**点评：一针见血：这不是病毒，而是控制。**
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**参考资料：**[theepochtimes][Police Use Dogs as Thousands Protest Against Dutch COVID-19 Lockdowns](https://www.theepochtimes.com/mkt_morningbrief/police-use-attack-dogs-as-thousands-protest-against-dutch-covid-19-lockdowns_4189086.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=hNPhaeGQVYLGc/1e8oiMp0LCOLYDn5j70dghz+bkzrq74AAMotcprcNqRL6T5I9yVKLVTA==)
+**关注我们**
 
-* * *
+Discord 账号
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+Gettr 账号
 
-
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

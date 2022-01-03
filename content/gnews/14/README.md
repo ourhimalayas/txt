@@ -2,34 +2,54 @@
 ---
 
 
-## 恒大集团新年首个交易日就被港交所停牌！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1818941/)
+## 荷兰警方放狗攻击数千反封锁抗议者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010301.jpg)恒大危机，中国房地产。 （美联社）
-编辑摘要：
+编译：Jenny Ball
 
-据BBC News中文2022年1月3日报道，2022年港股第一个交易日，中共国恒大集团及与该公司有关的所有结构性产品被公告停牌。停牌前，恒大集团过去一年累计下挫89%。上一次恒大停牌是在2021年10月4日，当时同时停牌的还有恒大旗下的恒大物业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6.jpg)2022 年 1 月 2 日，荷兰阿姆斯特丹，警察与反封锁抗议者之间爆发冲突。 (图片来源：sohu.com)
 
-出售或抵押资产是恒大现阶段自救的主要办法，比如恒大集团主席许家印将位于香港的豪宅抵押偿还债券。恒大寄希望于“保交楼”来自救，即确保在建楼盘能够交付。目前恒大全国项目复工率已达91.7%，复工人数8.9万人，四季度累计交楼超过5.3万套。
+周日，荷兰首都阿姆斯特丹的数千人聚集在一起，抗议荷兰政府的 COVID-19 封锁措施，之后遭到警方镇压。
 
-恒大面前似乎有好几条路，但条条道路都通向一个结局：倒闭。毫无悬念，恒大是救不活的，但是当局会让恒大有序地倒闭，因为恒大会引发全球经济危机。中共的邪恶就在于把活人榨干，死人也能拿来做文章。恒大就算死，在死之前也要被打上强心针，强扶起来继续吓唬和威胁那些曾经跪着的国家、企业或个人。恒大想活活不起，想死也死不了，每天在生死之间徘徊：生不如死。
+在此之前，阿姆斯特丹市长费姆克·哈尔塞玛（ Femke Halsema ）发布了一项紧急法令，在 COVID-19 案件增加的情况下，抗议者违反了该市的公共集会禁令，要求更多警察清理中央博物馆广场。
 
-新闻参考链接：[中國房地產風暴》恒大集團新年首個交易日就被港交所停牌！北京到底救不救？](https://www.storm.mg/article/4131370)
+抗议者还沿着首都的一条主干道行走，演奏音乐并打着黄色雨伞，以表示反对政府的限制措施。
 
-*编辑：胖丁*
+一些参与者的横幅上写着：“少打压，多关心”，而一群戴着白色口罩和白色工作服的人举着标语，上面写着：“这不是病毒，而是控制。”另一个人举着“川普2024”的旗帜。
 
+网上上传的照片和视频片段显示，似乎是警察向反授权抗议者放狗。录像显示，荷兰当局部署了水炮，视频显示，据称是荷兰退伍军人与警察发生冲突。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4.png)图片来自原文
+
+在警察进入之前，其他镜头显示，周日有数千人参加了抗议活动。
+
+除荷兰外，德国的示威者上周在该国东部地区因新的 COVID-19 相关限制措施而与警方发生冲突，现在至少有 23 人面临刑事指控。
+
+在荷兰，根据当前的一系列限制，禁止两人以上的聚会。
+
+与其他欧洲国家一样，荷兰因 Omicron 变种的传播而采取了这些措施，尽管甚至一些美国卫生官员表示，研究表明该菌株的症状较轻，住院人数也少得多。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362371034-ssss-600x400-1.jpg)人们于2022年1月2日在荷兰阿姆斯特丹参加反封锁示威。（Sanne Derks/Getty Images）
+
+12 月 19 日，荷兰突然封锁，因为政府下令关闭所有商店，除认为是“必不可少”的商店除外。政府下令，餐馆、理发店、健身房、博物馆和其他公共场所，也至少关闭到 1 月 14 日。
+
+尽管研究表明 Omicron 变体虽然具有高度传染性，但其疾病严重程度明显低于 Delta 变体，但还是下达了封锁令。美国CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 上周表示，与之前的 COVID-19 激增期间相比，美国的住院率现在也相对较低。
+
+**点评：一针见血：这不是病毒，而是控制。**
+
+**参考资料：**[theepochtimes][Police Use Dogs as Thousands Protest Against Dutch COVID-19 Lockdowns](https://www.theepochtimes.com/mkt_morningbrief/police-use-attack-dogs-as-thousands-protest-against-dutch-covid-19-lockdowns_4189086.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=hNPhaeGQVYLGc/1e8oiMp0LCOLYDn5j70dghz+bkzrq74AAMotcprcNqRL6T5I9yVKLVTA==)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
 

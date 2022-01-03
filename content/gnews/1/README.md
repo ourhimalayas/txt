@@ -2,34 +2,31 @@
 ---
 
 
-## 澳大利亚男子自焚反抗疫苗强制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1819062/)
+## 有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819091/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/melbourne-mandate-self-immolation-nzh-1.jpg)图片来源：NewsTalk ZB
-根据美国《国会山报》(The Hill) 1月3日报道，一名澳大利亚男子于元旦在墨尔本自焚反抗疫苗强制。
+配音：香草山巡管部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
 
-目击者告诉当局，当时这名男子正坐在车里怒吼对冠状病毒疫苗强制的愤怒，他往自己和车辆浇上汽油并自焚。随后他被救护车送往当地医院，目前情况危急但稳定。
+针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
 
-莉迪亚-奥康纳（Lydia O’Connor）告诉《先驱太阳报》：”他大声怒斥当前的疫苗强制规定，大喊’不要疫苗证’，并且摔书。” 随后往自己和他的车上浇汽油，并点燃。
+另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
 
-“着火了，他的皮肤在燃烧”……一位身份明确的妇女告诉该媒体。
+文字版原文：[台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](https://gnews.org/zh-hans/1814284/)
 
-据报道，五名旁观者协助警察和消防员控制住该男子，随后用水将其扑灭。他被救护车送往当地医院，目前情况危急但稳定。
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-事发地是澳大利亚维多利亚州，那里要求人们在进入酒吧、餐馆和其他企业时必须出示疫苗接种证明，工人工作也必须全面接种冠状病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-该事件应该为所有政府强制新冠疫苗规定敲响警钟，引发民众反思，强制疫苗已经把民众逼到墙角，只有站起来反抗，才能拯救自己。
-
-原文链接：
-https://thehill.com/changing-america/well-being/mental-health/587989-man-sets-himself-on-fire-after-angry-rant-about
-
-
-
-编辑，发稿 Spirit
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
