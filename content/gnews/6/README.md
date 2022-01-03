@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|日本尖端临床医学会议报告称基因疫苗有毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819067/)
+## 不考虑代价暴露赵立坚智商底限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819123/)
 
-配音：香草山巡管部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-日本当地时间11月20日，第四次日本尖端临床医学会学术会议在东京召开。21日，大阪市立大学名誉教授井上正康先生发表关于中共病毒和中共病毒疫苗的演讲，引起了与会者的极大关注。
+**【国内新闻短评**】
 
-正康教授的研究显示，中共病毒的实质是导致血栓，肺炎是次要症状。S蛋白是一种雪凝块毒素。1233例因接种疫苗死亡的人，大多数是血栓和循环系统障碍。DNA疫苗是转基因的，半永久性的活性疫苗。mRNA疫苗会沉积于肾上腺和卵巢。
+**据新浪网2022年01月02日报道，交部发言人赵立坚发推特，质疑西方媒体偏颇报道中国的“万能模板”——只要标题加上代价是什么。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3355-a9oda-4en14-1.jpg)**图片来源：新浪**![](https://assets.gnews.org/wp-content/uploads/2022/01/qqq.jpg)**图片来源：新浪网**
+**短评：**
 
-正康教授的报告称，无症状感染后会获得免疫记忆。日本患者呈现ADE抗体。所以，他认为，让不存在中共病毒风险的儿童和育龄人群接种疫苗是疯狂之举。
+***赵战狼在国内可以发推特，本身就是一个悖论。网信办最新规定，个人翻墙登陆外国社交媒体违法。赵战狼代表国家可以发推特，关键是发了也只有国外民众才能看到，墙内为何宣传呢？这种逻辑不通，秀智商下限的报道好歹小编审核一下再发。***
 
-文字版原文：[日本尖端临床医学会议报告称基因疫苗有毒](https://gnews.org/zh-hans/1685660/)
+***来看下武汉疫情得到控制，代价是什么？赵战狼如果不是装疯卖傻么，那就是智商有问题。代价是什么不知道？几十万的人命为代价，孩子失去父母和亲人，家庭消亡破碎，多少人饿死家中，这不是代价？人命在战狼眼里连代价都不算，何等让人心寒。说别人酸葡萄心理，羡慕中共经济稳定发展。稍稍有点常识，就知道中共崛起的代价是环境污染和榨取老百姓的血汗。强国成为第一癌症大国，空气、水和土壤污染世界第一，这些环境污染代价就是用目前的2倍GDP总和去治理也无济于事。这个经济发展代价党国居然不清楚？小到个人，大到国家，任何重要决策首先考虑的就是代价核算。绝不是屁股决定脑袋，想干啥就干啥。***
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+***强国可以不考虑任何代价就做决策，因为不关心韭菜的命运，只要经济发展，中南坑永远可以有特供食品、空气和水，不行还可以用血汗钱从国外进口。 “一将功成万骨枯”的做法现在还要赞扬，智商下限也确实低。要么是战狼赵已彻底癫狂，装疯卖傻，要么就是智商太低，一句话彻底道出中共邪恶本质——国民生命连代价都不算。***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**文章观点仅代表作者个人，与gnews平台无关**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**链接：**[https://news.sina.com.cn/c/2022-01-02/doc-ikyamrmz2728792.shtml](https://news.sina.com.cn/c/2022-01-02/doc-ikyamrmz2728792.shtml)
+
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

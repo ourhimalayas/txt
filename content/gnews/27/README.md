@@ -2,31 +2,49 @@
 ---
 
 
-## 有声|多家足球俱乐部因“烂房烂账”而导致资金链断裂
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818802/)
+## 马龙博士：COVID-19在美国引发“大规模精神病”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818901/)
 
-配音：香草山巡管部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月22日，综合网络媒体报道，墙内多家中超俱乐部出现资金短缺，欠薪，球队面临解散，以及球员网上讨薪，退出的现象。
+编译：Jenny Ball
 
-近一段时间以来，中超俱乐部欠薪超过3个月的不在少数，其中有些球队甚至已经长达半年。例如，河北足球俱乐部无力缴纳水电费，要员工自行垫付才能参加足协杯。重庆两江球队的球员在网上通过公开信讨要薪资。广州俱乐部也面临无法负担大牌球员的薪资，球员们要接受事实上解约或降薪的窘境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/malone-700x420-1.jpg)图片来源：大纪元时报
 
-据查询，以上三家俱乐部资金链断裂的原因，与近期恒大爆雷事件相关。河北俱乐部的资金方是已爆美债违约的华夏幸福；重庆两江俱乐部背后，则是近期持续清仓股票的武汉当代集团；广州俱乐部背后无疑就是恒大。这些事件从侧面反映出，一方面，引起中共房地产崩溃的绝不只恒大一家，另一方面，房地产的爆雷正在向其他业界蔓延。
+mRNA技术的主要发明者罗伯特·马龙博士（Robert Malone）是一位对强制接种 COVID-19 疫苗著名的质疑者，他在接受采访时向知名博主乔·罗根（Joe Rogan）建议说，美国正处于“大规模精神病”之中 。
 
-文字版原文：[多家足球俱乐部因“烂房烂账”而导致资金链断裂](https://gnews.org/zh-hans/1688740/)
+“我们的政府在这方面失控了，”马龙在周末发布的采访中谈到疫苗规定。 “而且他们是无法无天的，他们完全无视生物伦理，他们完全无视联邦的共同规则，他们打破了我所知道的所有规则，我已经接受了这个专业多年的训练。”
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+马龙是 mRNA 技术专家，曾在加州大学戴维斯分校、加州大学圣地亚哥分校和索尔克研究所接受过培训，上周被推特封号。马龙上周告诉《大纪元时报》，推特没有解释为什么他拥有 50 万粉丝的账户被暂停。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+Twitter 的一位发言人告诉左翼媒体Daily Dot，马龙的帐户“因一再违反我们的 COVID-19 错误信息政策而被永久暂停……根据此处概述的罢工制度，我们将因一再违反此政策而永久暂停帐户。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（点评：也就是说**twitter**的审核员，比**mRNA**发明者更有权决定**mRNA**疫苗的话语权！）
+
+马龙在接受罗根采访时说：“这些指令……显然是非法的”并且“明显不符合《纽伦堡法典》”，他指的是一套反对人体实验的研究伦理原则。 “它们明显与贝尔蒙特报告不一致，”他指的是 1978 年发表在《联邦公报》上的关于涉及人类受试者的研究的伦理原则和指导方针的报告。
+
+“他们完全是非法的，他们不在乎。”
+
+在采访快结束时，马龙暗示，人们正处于一种“群体形成精神病”之中，这与 1920 年代和 1930 年代德国人口中形成的心态相似。
+
+那些年，德国人“拥有高智商、受过高等教育的人口，他们狂吠不止，”马龙说。
+
+“当你的社会变得彼此脱钩，并且在某种意义上说，事情没有意义时，焦虑是自由浮动的，我们无法理解，但之后，他们的注意力被一个领导者或一系列事件集中在一个小点上，就像催眠一样。他们真的被催眠了，可以被带到任何地方。”
+
+**“**他们会跟着那个人，他们是否对他们撒谎，还是什么的，都没有关系了。”
+
+他说，几年前，人们“抱怨这个世界没有意义”，而且，我们“除了通过社交媒体之外，不再有社交联系”。
+
+“然后，这件事就发生了，”马龙说，指的是 COVID-19 大流行。 “这就是大规模形成精神病的发生方式，这就是这里发生的事情。”
+
+**参考资料：**[theepochtimes][Dr. Robert Malone to Rogan: US in ‘Mass Formation Psychosis’ Over COVID-19](https://www.theepochtimes.com/mkt_morningbrief/dr-robert-malone-to-rogan-us-in-mass-formation-psychosis-over-covid_4189087.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=xJRMSfopFjHw/eprt14kAWiT0meSZ6OMwSEQlw8QuHwVGmTmhRwWORt5xaHFACQWYMlqtw==)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
