@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 6/38 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [38](/content/README-38.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年8月16日郭文贵先生G-TV直播](/content/2021/08/20210816-1474366.md)
 
 [2021年8月15日郭文贵先生健腹轮健身盖特全文字版](/content/2021/08/20210815-1569771.md)
 
@@ -64,7 +66,5 @@
 
 [全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/content/2021/07/20210704-1375674.md)
 
-[全文字版2021年6月30日郭文贵先生G-TV直播](/content/2021/06/20210630-1364325.md)
 
-
-## 頁面 6/38 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [38](/content/README-38.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

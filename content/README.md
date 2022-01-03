@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 1/38 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [38](/content/README-38.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/39 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [39](/content/README-39.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+
+[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/2022/01/20220101-1816030.md)
 
 [2021年12月29日郭文贵先生直播全文字版](/content/2021/12/20211229-1805851.md)
 
@@ -64,7 +66,5 @@
 
 [2021年12月3日郭文贵先生直播全文字版](/content/2021/12/20211203-1720736.md)
 
-[2021年12月1日郭文贵先生直播全文字版](/content/2021/12/20211201-1714674.md)
 
-
-## 頁面 1/38 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [38](/content/README-38.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/39 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [39](/content/README-39.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

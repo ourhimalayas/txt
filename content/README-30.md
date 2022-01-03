@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 30/38 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [38](/content/README-38.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
+## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
 
 [文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
 
@@ -64,7 +66,5 @@
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
-
-## 頁面 30/38 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [38](/content/README-38.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
+## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)

@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 18/38 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [38](/content/README-38.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+
+[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
 
 [文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
 
@@ -64,7 +66,5 @@
 
 [文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
 
-[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
 
-
-## 頁面 18/38 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [38](/content/README-38.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

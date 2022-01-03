@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 12/38 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [38](/content/README-38.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/39 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [39](/content/README-39.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
 
@@ -64,7 +66,5 @@
 
 [文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
 
-[文字版:5月15日郭先生GTV直播](/content/2020/05/20200519-1610344704805853359.md)
 
-
-## 頁面 12/38 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [38](/content/README-38.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/39 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [39](/content/README-39.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
