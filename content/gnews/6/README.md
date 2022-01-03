@@ -2,180 +2,35 @@
 ---
 
 
-## 2022/01/03 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1817391/)
+## 2022年1月2日郭先生盖特 — 视频盖特1「9分46秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1817434/)
 
-### Twitter：东正教表态这个影响太大了
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/0CFC9041-DBCF-4FCE-8432-0031624E3820.jpg?asset_id=EC767F63-C400-4359-BB07-286E5FCF2C2B&amp;size=2963)](https://express.adobe.com/page/UnPeLml5DW99O/images/0CFC9041-DBCF-4FCE-8432-0031624E3820.jpg?asset_id=EC767F63-C400-4359-BB07-286E5FCF2C2B&amp;size=868)
-*（图片来源：推特截图）*
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-**评论：**俄罗斯的爷爷，共产主义的爸爸出手了，吾皇这个孙子心太狠手太黑要玩赶尽杀绝，按这节奏把人都玩没了还统治个屁啊，左手统治右手？左脚统治右脚？事情大条了，这事儿吾皇不知道能不能兜得着住。
+Video link: [https://gettr.com/post/plfpq4abf0](https://gettr.com/post/plfpq4abf0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2CEE2C79-40DD-4BAA-8A65-E73DA68F3B87.jpeg)
+尊敬的战友们好啊，1月2号。这是元旦年的1月2号。
 
-### 人民网：宁波市北仑区通报发现7例新冠肺炎确诊病例
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/738E14E6-2967-4AAB-93AA-7A694832A5F5.png?asset_id=1F889958-F8D7-47AB-AD26-99019B48E285&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/738E14E6-2967-4AAB-93AA-7A694832A5F5.png?asset_id=1F889958-F8D7-47AB-AD26-99019B48E285&amp;size=579)
-*（图片来源：杭州市健康卫生委员会）*
+昨天我们做了一个大直播，这个大直播实在是太好了！今天早上5点的时候很多国内的战友说从信息上数据上分析，我们昨天大概6000多万人次看 — 6000多万次。虽然14亿中国人才6000万人次看不算很多，是吧？但是我觉得力量很大，我特别喜欢，昨天很享受。昨天真的是天意，就是一下到了直播12个小时，并且12个小时直播整点完成。我们的战友背后的工作超过可能20个小时，准备了几天。昨天100多位战友的连线整个展现出新中国联邦人的气质、精气神，特别是我觉得对西方的影响是特别大的。昨天我们是第一次在过去5年中在海外用盖特还有其它手段，包括G-TV，来看我们直播的外国人是过去几年最高的一次。
 
-**网友评论：**杭州接种的毒苗与西安同牌子，同属浙江省的宁波估计是一样的，若浓度也相同，那接下来毒苗爆发的惨烈可想而知。
+今天早上也是从5点到现在很多人发信息，都是恭喜啊，然后震撼呐…那么这就要让我们大家冷静地看到爆料革命必须需要一个时间，需要一个循序渐变的过程，它需要很多事情得到验证。昨天十几个小时说实话我觉得再播七、八个小时感觉才好，或者再播四、五个小时。我昨天是在最后的时候刚在状态，更好的状态应该说是，一开始就已经在状态了。
 
-### 环球网：驻冲绳美军新确诊235人感染新冠 创单日新增新高
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/4EF3D694-46B8-4C59-B6B9-DF531E7F50AA.jpg?asset_id=208E83B7-5F5B-4788-B308-B3171D6F3EC0&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/4EF3D694-46B8-4C59-B6B9-DF531E7F50AA.jpg?asset_id=208E83B7-5F5B-4788-B308-B3171D6F3EC0&amp;size=550)
-*资料图：冲绳民众举行抗议活动要求美军撤离。（图片来源：中新网）*
+昨天我觉得一切都打破了很多的历史，更加验证了“为真不破，”只有灭共一切才有可能，一切才会发生；否则一切都是空的，一切都是零！昨天看到了100多位战友站出来，因为时间太紧了，有太多战友加入，没办法没和机会。但我们在今年农历年会有一个大直播，在农历年我们再直播的时候可能就把时间、标准、发言上还有吸取这几次大直播所有的教训。我们会直播的更高效，更准确 — 比如绝对限制发言时间；绝对控制时间；给总导演绝对的时间控制的权力，让更多的战友加进来。我收到了太多战友说：“7哥，我一定要上直播，我一定要上这个节目。”我也是特别的感动，希望有更多的战友加入。这是7哥非常愿意的，也是很感激的。新中国联邦和爆料革命在这个元旦新年的时候，我们有这样一场大直播能唤醒更多的人？这就是我们直播的目的和价值。
 
-**评论：**解放军感染多少人呢？
+而且从昨天到现在，7哥一直处在兴奋激动之中，特别是在西安这样已经封锁的城市很多战友还看了直播。所以今天早上很多战友都是哭着给我发信息，说：“我在西安家里边儿，在这种情况下7哥，我们生死未卜。但是我们就看你直播比吃饭还重要。” — 太多惨剧了，就没办法形容了。我觉得没有一个人会怀疑现在正在西安，在阿富汗，在世界各地发生的惨剧都是共产党的原因造成的。而且我们也不希望像西安这种事情发生后才让西安人觉醒，但是它就发生了，而且它让更多人觉醒。这是不幸的，但毕竟我们要面对这个现实。
 
-### 新华网：坚持敢于斗争 勇于自我革命
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/34694DFF-4A0E-4180-B411-7D408B760FD3.jpg?asset_id=1C2686E2-2F9A-4949-B5F7-616810C5E217&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/34694DFF-4A0E-4180-B411-7D408B760FD3.jpg?asset_id=1C2686E2-2F9A-4949-B5F7-616810C5E217&amp;size=800)
-*（图片来源：办图网）*
+还有就是现在在香港，在台湾，共产党制造的这种恐惧以及在全球共产党的大外宣控制下的病毒和疫苗的真相没有任何办法让你能获得真相。全世界很多宗教、科学界、知识界人士都站出来讲这是一场有阴谋的，蓄谋已久的，和共产党勾兑的一场人类大屠杀。你信不信那是你的问题，但是现象让我们必须要问一些必须要问的问题：病毒哪来的？疫苗怎么研究的？疫苗里有什么成分？疫苗有没有副作用？打不打疫苗不是任何人决定的，「应该」是自我的决定，为什么要强制？强制最大的问题第一针说打了管用，为什么要打第二针？打了第二针为什么还要打第三针？为什么现在得病毒的人中90%多，80%多都是打了两针疫苗的人，为什么？那怎么办，谁来承担责任？这是非常重要的问题。所有这些问题时时刻刻威胁和危害着人类安全和存在，危害到了你的孩子、家人、父母的存在 — 那就是共产党病毒引起的。那为什么不找共产党溯源呢？这是个基本的常识。
 
-**评论：**唯有主动迎战、坚决斗争才有生路出路，这是唯恐天下不乱，纳粹的生存之道就是把水搅浑，然后浑水摸鱼，只能带来灾难和死亡，没有灾难就制造灾难，因为纳粹在欣欣向荣一片和谐的地方放活不下去。就目前情况看车是刹不住的，只有加大油门，撸起袖子甩开膀子加油干，撞上了自然能停了。
+在昨天的直播当中我们看到了新中国联邦人普遍教育很高，家庭经济条件很好，形象都非常的好，而且绝大多数人在国内的时候或在国外都受过高等教育，有很成功的家庭和人生。他们勇敢的站出来直播这意味着昨天第一次上直播以后他们的人生彻底改变了。这些决定绝不是一个偶然的因素让他们做出的，是多种因素。多种因素的核心就是共产党病毒和疫苗灾难危害了每个人的安全，每个人的存在。所以特别在昨天直播完以后，我跟很多战友联系，特别是国内的战友非常非常感动，他们羡慕这些上直播的战友们，觉得他们一生不白活。而且说我们一旦有这种机会一定会去做的。
 
-### 外交部网站：王毅：掏空一中原则将使美国面临不可承受的代价
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/1B322EA4-A9C8-4001-ADC2-89EB23D7BA33.png?asset_id=0CDE8FF6-DCB6-4B52-843E-90B98A4A38FC&amp;size=2714)](https://express.adobe.com/page/UnPeLml5DW99O/images/1B322EA4-A9C8-4001-ADC2-89EB23D7BA33.png?asset_id=0CDE8FF6-DCB6-4B52-843E-90B98A4A38FC&amp;size=530)
-*（图片来源：外交部）*
+但是我要告诉，和昨天告诉了很多人，你现在活着最重要，要活下去，只要活下去你就会看到消灭共产党的那一天，你就会看到正义战胜邪恶的那一天 — 这才是最重要的！如何活下去？现在首先一点，一定不要活在习惯了已久的实际上跟你没什么缘分的现代化生活里，电梯、电灯、电冰箱…反正带电的你都小心。你最好找一个电越少的生活越好。第二，高楼大厦，什么直穿云霄，越高的东西对你是越不好的。第三，过去所谓讲究的什么“四菜两汤”，“六菜两汤”，凡是这个饭上多字儿的你都给它减少，最好减成“一菜一汤”，“一肉一菜”。粮食是最核心的，要有粮食。现在什么现金啊，黄金啊，钻石啊，这都是「没用的」，你能吃钻石吗，你饿了？你能吃黄金吗？吃了要你命了。这些东西只要不能兑换物质的，不能解决你眼前之急的都是不管用的。所以兄弟姐妹们，一定要想到从现在起疫苗灾难，病毒灾难真正的才刚刚的开始，甚至说还没有开始。活下去是最根本的。
 
-**视频：**中共战狼外交部王毅又威胁美国了，中共用病毒和毒疫苗威胁全世界已经两年了，并且带来的灾难无法计量，不能在容忍中共继续这样无法无天，Take down the CCP！
+昨天的大直播让我们看到了新中国联邦人的智慧还有充分利用互联网和现代信息网络获得更多真相和信息让自己正确的思考让自己能得到很多真相，同时让自己经过逻辑性的思考和验证后做出正确的决定 — 这些才是根本！不能猜，不能蒙，猜和蒙的代价太大了，对吧？
 
-### 环球网：赵立坚灵魂反问：“西方媒体在混淆是非方面如此成功，但代价是什么？”
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/6B4373BF-6D61-4E90-905D-51D3B5F6523A.png?asset_id=E75C32F3-FE39-4768-953F-36A33C2CBC8B&amp;size=1024)](https://express.adobe.com/page/UnPeLml5DW99O/images/6B4373BF-6D61-4E90-905D-51D3B5F6523A.png?asset_id=E75C32F3-FE39-4768-953F-36A33C2CBC8B&amp;size=1024)
-*（图片来源：赵立坚推特截图）*
+从昨天直播完到现在，我最起码回复信息8000条到9000条之间。你去想想这8000条，9000条7哥回复当中绝大多数是美国之外，还有国内的战友 — 熟悉的战友我基本上都少回复，因为国内的很多战友直接关系他们的生命，所以我尽量给他们回复。我最重要的回复：“一定要活下去！”为了活下去不要再在乎你的生活品味。什么品味呀？还品味呢，是吧？还舒适度啊，你讲什么舒适度，是吧？你要活下去，更不要再规划着什么还要赚钱天大的钱纳，什么人家的楼卖了，我买呀 — 没有这机会，你绝对没这机会！永远不要去赚死人的钱！永远不要赚战争灾难的钱！永远不要赚别人在困难之时让你占的便宜，那才是灾难呢。
 
-**评论：**不要脸的中共就是喜欢用媒体混淆是非，如果中共你说的是真的，那就把防火墙打开，让人民自己寻求真相。
+啥都不说了，再次感谢昨天参加所有直播的兄弟姐妹们。星期三大直播，星期三我还有个大直播，然后星期五大直播。然后我们全力以赴准备今年农历春节的大年三十晚上的大直播。欢迎和希望更多的战友的加入。一切都已经开始，姆盖嗮～
 
-### 中国网：1月2日0至15时 浙江宁波新增3例本土确诊病例
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/345B8D94-6F78-4F6F-9666-103F2FA7FD6E.jpg?asset_id=1032C961-EC79-438A-821F-F2EC142BA20A&amp;size=3045)](https://express.adobe.com/page/UnPeLml5DW99O/images/345B8D94-6F78-4F6F-9666-103F2FA7FD6E.jpg?asset_id=1032C961-EC79-438A-821F-F2EC142BA20A&amp;size=892)
-*（图片来源：报道截图）*
-
-**评论：**看来病毒并没有可防可控，而是按照教练的准确情报四散开来。
-
-### 新浪：巴黎官方宣布梅西新冠阳性 接受隔离无缘法国杯
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/2B59ABE1-207D-4582-A953-B1EE789CE633.jpg?asset_id=056A529F-A3BA-498D-A85C-06D33D86B700&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/2B59ABE1-207D-4582-A953-B1EE789CE633.jpg?asset_id=056A529F-A3BA-498D-A85C-06D33D86B700&amp;size=750)
-*（图片来源：巴黎圣日耳曼官方宣布截图）*
-
-**网友评论：**天王球星中招了
-
-**评论：**要么病毒中招，要么疫苗中招，纳粹不灭总有一款适合你。”
-
-### 新浪：西安2名防疫工作人员殴打市民 警方通报来了
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/42F6CD92-3D8A-45FE-86AB-1812D5FE99BB.jpg?asset_id=75EB3CCC-B0E4-465E-9407-CC40BC7E9537&amp;size=3403)](https://express.adobe.com/page/UnPeLml5DW99O/images/42F6CD92-3D8A-45FE-86AB-1812D5FE99BB.jpg?asset_id=75EB3CCC-B0E4-465E-9407-CC40BC7E9537&amp;size=997)
-*（图片来源：视频报道截图）*
-
-**评论：**只有被老百姓拍了视频公开到网上的才能依法处理吗？有多少没有拍视频的成了冤假错案，整天宣扬的大国自信不是来自法制，是来自镜头，还得要曝光。
-
-### 搜狐：恒大海花岛39栋楼被责令拆除，违法获取的规划证已被撤销 “网友评价：网民不傻，什么都知道，换领导了，建可以赚一大笔，拆也可以赚一大笔
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/7C9AF72C-02C5-46E9-9D0D-F9AC4BDB9ACB.jpg?asset_id=3DBA3C39-0A0F-451E-95B7-4D28179F813D&amp;size=3516)](https://express.adobe.com/page/UnPeLml5DW99O/images/7C9AF72C-02C5-46E9-9D0D-F9AC4BDB9ACB.jpg?asset_id=3DBA3C39-0A0F-451E-95B7-4D28179F813D&amp;size=824)
-*（图片来源：高度新闻／搜狐新闻）*
-
-**评论：**只有撤销就结案了吗？违法获取要怎么处理？处理谁？
-
-### 网易：上映9天票房破10亿美元，《长津湖》正式让位，创造全新票房纪录
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/A01A05AE-139C-40C8-8F93-E1B5EA1A57A8.png?asset_id=B43D71BA-0F8B-457D-BDAB-FD241CCF0675&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/A01A05AE-139C-40C8-8F93-E1B5EA1A57A8.png?asset_id=B43D71BA-0F8B-457D-BDAB-FD241CCF0675&amp;size=640)
-*《蜘蛛侠：英雄无归》（图片来源：岚仔小弟／网易新闻）*
-
-**网友评论：**蜘蛛侠3：英雄无归，半个月票房74亿元，而且CCP还没让在墙内放。长津湖，3次延长上映时间，组织各个单位去观看勉强58亿元，这票房就像民主文明对共产专制的微缩图一样。
-
-### 星岛网：西安疫情未缓和 封城十日「断粮」慌
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/8B8F9752-AE64-47FF-8E8E-ADA77D5E17A4.jpg?asset_id=8A77AB3F-D0C4-4BD7-ABA6-8827FFFC67B9&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/8B8F9752-AE64-47FF-8E8E-ADA77D5E17A4.jpg?asset_id=8A77AB3F-D0C4-4BD7-ABA6-8827FFFC67B9&amp;size=680)
-*（图片来源：星岛网）*
-
-**评论：**相对被隔离居民买不到菜，断粮的情况，冬奧會678道菜，8天一循環供外国人选手享用，纳粹党永远都是对自己人最狠，对外国人下跪。
-
-### 新浪：拆解祥生控股：高依赖非标融资，隐现表外负债，短期偿债压力巨大，未来如何解困？
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/40651A61-8591-4E76-8E00-784A17C66B01.jpg?asset_id=A10AB656-BD62-4812-8D65-6F129220E605&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/40651A61-8591-4E76-8E00-784A17C66B01.jpg?asset_id=A10AB656-BD62-4812-8D65-6F129220E605&amp;size=750)
-*（图片来源：21世纪经济报道／新浪新闻）*
-
-**评论：**洞太大墙不够拆，习皇保得了恒大，保不了所有房地产企业，偌大个国居然没钱了，现在只是冰山一角。
-
-### 新浪：浙江宁波停售进京火车票 退票免收手续费
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/860CEBAD-42D5-4FD2-BD3E-C43C7702B7F4.jpg?asset_id=72231227-F11D-438A-A017-2C8D8AB71C84&amp;size=1024)](https://express.adobe.com/page/UnPeLml5DW99O/images/860CEBAD-42D5-4FD2-BD3E-C43C7702B7F4.jpg?asset_id=72231227-F11D-438A-A017-2C8D8AB71C84&amp;size=1024)
-*北京站 (图片来源：燕翔 摄 | 千龙网）*
-
-**网友评论：**下一个西安：浙江！ 浙江人民，你们要聪明点哈！若毛了就上街！就去市政府里吃喝拉撒去！
-
-**评论：**当今在搬石头国不哭不闹的只有等死，纳粹只找软柿子捏，只要你硬到底。
-
-### 新浪：北京冬奥会菜单有678道菜
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/789DD8D8-9A0A-4348-B0AC-3835B7F83134.png?asset_id=00C6D38A-764C-4C13-9838-073DA1A566B0&amp;size=1024)](https://express.adobe.com/page/UnPeLml5DW99O/images/789DD8D8-9A0A-4348-B0AC-3835B7F83134.png?asset_id=00C6D38A-764C-4C13-9838-073DA1A566B0&amp;size=1024)
-*（图片来源：视频报道截图）*
-
-**评论：**面对冬奥会，给外国人提供678道菜，8天一循环🤨而本国被隔离的西安老百姓却在家挨饿，吃不上饭。
-
-### 网易：两毒王合并，Delmicron降世！美国日增50万感染，1秒就有3人感染
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/EBDA2BC0-2B9F-4512-B3F5-E6876F9FD4B7.png?asset_id=A70EDEA6-533D-439D-B9E4-DAD59BA150E9&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/EBDA2BC0-2B9F-4512-B3F5-E6876F9FD4B7.png?asset_id=A70EDEA6-533D-439D-B9E4-DAD59BA150E9&amp;size=750)
-*（图片来源：北国向锡安／网易新闻）*
-
-**网友评论：**自己放了毒，再炫耀战绩，其实这是将来审判放毒者的证据。
-
-### 头条：法国新增近22万宗确诊 累计感染人数突破1千万
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/6FDF13EE-96FB-402C-B0D2-19C71539310B.jpg?asset_id=D140BAE5-2DCF-42DB-AEB5-9F97593C9008&amp;size=1024)](https://express.adobe.com/page/UnPeLml5DW99O/images/6FDF13EE-96FB-402C-B0D2-19C71539310B.jpg?asset_id=D140BAE5-2DCF-42DB-AEB5-9F97593C9008&amp;size=874)
-*周一6岁以下儿童在公共场合都必须戴上口罩。（图片来源：AP）*
-
-**评论：**法国突破上周的日增17万的感染记录，纳粹生化武器的杀戮令人发指，此时此刻仿佛可以看到纳粹在背后大笑，这笔账中国人不背，纳粹党必须背。
-
-### 网易：西安流浪者露宿街头 快餐店过夜闻味像吃肉
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/CBB96FC9-EBC4-4D61-9F09-F117349E5CFA.jpg?asset_id=9831D3E1-D7D8-43EF-A96A-EAA2489FBCE5&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/CBB96FC9-EBC4-4D61-9F09-F117349E5CFA.jpg?asset_id=9831D3E1-D7D8-43EF-A96A-EAA2489FBCE5&amp;size=750)
-*（图片来源：华商网）*
-
-**评论：**社会主义露宿街头能联系上吃肉，那就应该把政府的官员全都拉到街上体验生活。
-
-### 新浪：河南洛阳共发现8名本土感染者，一位感染者一周内两次跨市参加亲友聚餐
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/33D5DED7-BE8B-42EC-B262-0F32851BC080.jpg?asset_id=23050E7E-F0E9-4721-BE37-33E701DB7154&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/33D5DED7-BE8B-42EC-B262-0F32851BC080.jpg?asset_id=23050E7E-F0E9-4721-BE37-33E701DB7154&amp;size=600)
-*（图片来源：洛阳晚报／新华报业网）*
-
-**评论：**都被教练说中了，灾难正在蔓延，不是疫苗，就是瘟疫，纳粹统治下总有一款适合。
-
-### 网易新闻：西安紧急开建方舱医院有图有真相，为何会被称为不实信息？
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/C6582739-2D23-4C4C-806D-1B1843BA536E.jpg?asset_id=1500545F-9B11-4074-87BE-46114B184782&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/C6582739-2D23-4C4C-806D-1B1843BA536E.jpg?asset_id=1500545F-9B11-4074-87BE-46114B184782&amp;size=668)
-*（图片来源：安康迅点／网易新闻）*
-
-**评论：**中共国内，可见媒体对真相的打压，真的说成假的，中共以假治国，西安这次中共病毒后遗症爆发，会把中共的假恶丑让更多墙内的人看清。
-
-### 西安雁塔区委书记和副书记双双被免职 北京日报客户端-长安街知事 2022-01-02
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/0B0C322B-660B-41F6-AA9E-4222F24AF992.png?asset_id=2DD42AB5-DAFB-4F15-90C9-29BE9F8E8EC4&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/0B0C322B-660B-41F6-AA9E-4222F24AF992.png?asset_id=2DD42AB5-DAFB-4F15-90C9-29BE9F8E8EC4&amp;size=500)
-*崔诗越 资料图（图片来源：长安街知事／北京日报）*
-
-**评论：**任何中共政策引发的严重事件，邪恶共产党永远”伟光大”，总有无数的替罪羊可以顶罪。各级党政部门的官员们，应该看清形势，放弃利益和幻想，站在人民的一边，反戈一击，推翻中共！
-
-### 法广：中国全国政协昨天12月31日举行新年茶话会，全国人大委员长栗战书的缺席，引起外界揣测。中共政治局常委3号人物栗战书，被认为是习近平的铁杆亲信。
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/BB6A10AF-AA52-4D7C-A68A-9C7378E4BA69.jpg?asset_id=B3070287-E89B-4D7C-A333-082F45D2D18C&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/BB6A10AF-AA52-4D7C-A68A-9C7378E4BA69.jpg?asset_id=B3070287-E89B-4D7C-A333-082F45D2D18C&amp;size=719)
-*习近平与栗战书（左）2018年3月11日北京人大会堂 （图片来源：Reuters）*
-
-**评论：**吾皇除了自家人谁也不信，无人可信，无人可用，是吾皇走向梦想的第一步。
-
-### 美国之音：面对严重经济困难，金正恩要求军方“绝对忠诚”
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/0A7529E8-EBEA-4FAB-99AA-8980F3C01952.jpg?asset_id=DA4F26FF-8FDD-4746-98B3-045C37B1DD6D&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/0A7529E8-EBEA-4FAB-99AA-8980F3C01952.jpg?asset_id=DA4F26FF-8FDD-4746-98B3-045C37B1DD6D&amp;size=408)
-*2022年1月1日，韩国首尔地铁站人们在观看电视中朝鲜领导人金正恩的画面。（图片来源：AP）*
-
-**评论：**这两天念叨三胖就看到三胖的消息了，没事儿强调忠诚思，看来是有事了，是有人不忠诚了。
-
-### B-21隐形轰炸机为何令中共难以招架 大纪元 2022年01月02日
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/9D141925-2D88-4C00-93B7-1750C93F1E0D.jpg?asset_id=73B0254A-39C4-450D-B02F-3ED15F4F5045&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/9D141925-2D88-4C00-93B7-1750C93F1E0D.jpg?asset_id=73B0254A-39C4-450D-B02F-3ED15F4F5045&amp;size=450)
-*B-21在未来拥有众多优势应对和中俄潜在冲突，且2022年对B-21来说是重要的一年。（图片来源：Northrop Grumman／美国空军）*
-
-**评论：**美国新型武器不断研发投入使用，会严重影响中共对台湾和南海动武的信心。为此习神会否狗急跳墙，为他的帝业，先下手为强，对台湾动武？
-
-### 中国又一房企现危机 祥生集团千亿债务压力大 大纪元 02/01/2022
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/278F97C8-2375-4653-AC1E-4F6ED6C50B26.jpg?asset_id=0DD7CD00-7DBD-4678-B158-0E414BB7112A&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/278F97C8-2375-4653-AC1E-4F6ED6C50B26.jpg?asset_id=0DD7CD00-7DBD-4678-B158-0E414BB7112A&amp;size=450)
-*祥生控股负债总额达1,530.93亿元，账面资产负债率达到88.67%。图为北京一建筑群。(图片来源：Feng Li/Getty Images)*
-
-**评论：**截至2021年6月底，祥生控股总资产达到1,726.56亿元（人民币，下同），其中负债总额达1,530.93亿元，账面资产负债率达到88.67%。在其负债总额之中，流动负债高达1,287.64亿元，有息负债462.11亿元。中共房地产经济崩溃在所难免，只是时间问题。
-
-### 滴滴第三季巨额亏损 从美转香港上市前景堪忧 大纪元 2022年01月03日
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/39DEE418-6979-4C14-B872-647B2B7B80A7.jpg?asset_id=BFF255B5-ACBD-47CC-A5C3-CDAF340E1B49&amp;size=2560)](https://express.adobe.com/page/UnPeLml5DW99O/images/39DEE418-6979-4C14-B872-647B2B7B80A7.jpg?asset_id=BFF255B5-ACBD-47CC-A5C3-CDAF340E1B49&amp;size=450)
-*2021年7月2日，中国网约车巨头滴滴出行的标志出现在其北京总部。（图片来源：Jade GAO / AFP）*
-
-**评论：**在中共国各方面经济危机下，内斗加剧，墙内民怨四起。这将加速中共政权的灭亡。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*收集：*redsparrow，*Cindy，公平五十六 | 校对：Ganyan | PAGE：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-（世界协调时）部分信息收集于网络世界的各方，请自行甄别
-[![](https://express.adobe.com/page/UnPeLml5DW99O/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/UnPeLml5DW99O/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
