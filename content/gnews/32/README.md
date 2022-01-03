@@ -2,47 +2,117 @@
 ---
 
 
-## 回顾2021年北京对台湾的威胁加剧了美中紧张局势
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1817232/)
+## 01/03每日播报｜新闻简讯:西安作秀人链传菜 中共病毒药会引起危及生命
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1817258/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2555.jpg)网络截图1
-2021年[，随着北京对台湾的不断威胁，与美国承诺台湾一旦遭中国政府入侵将提供援助之间的矛盾，伴随着中美之间的紧张局势](https://www.foxnews.com/world/chinas-xi-warns-countries-about-breaking-their-heads-on-the-steel-great-wall)继续升温。
+**By:[秘翻新闻](https://gtv.org/video/id=61d2ba2c31a71619b573f2e5)**
 
-中共政府声称台湾是其领土的一部分，坚决不允许台湾独立。大陆与台湾自1949年分裂，中共一直在加大对台湾政府的压力，反对其加入联合国等国际组织。美国没有正式承认台湾，但保持非官方关系，并支持其台湾的民主制度。
+**2022-01-0**3
 
-多年来，双方的政治斗争一直在外交上走钢丝，直到2021 年，局势陡然紧张。
+**1、辉瑞的中共病毒特效药会引起危及生命的反应**
 
-2021年初，时任美国国务卿迈克·蓬佩奥 (Mike Pompeo)[取消](https://www.washingtonpost.com/world/asia_pacific/trump-biden-taiwan-china/2021/01/13/1bbadee0-53c0-11eb-acc5-92d2819a1ccb_story.html)：禁止美国和台湾外交官互动政策，此举招致中国政府强烈反对。
+[据《真理卫士》1月2日报道，FDA发布罕见的多达6页的警告称，辉瑞的抗中共病毒口服药物 Paxlovid是作為其早期治疗开发的，不能与一些抗凝剂、抗抑郁和降胆固醇等药物同时服用，因为会导致严重或危及生命的影响，同时不建议在美国广泛使用。](https://thetruedefender.com/pfizers-experimental-covid-pills-cause-life-threatening-reactions/)
 
-随着拜登政府的上任，台湾最高代表团被邀请参加拜登总统就职典礼，也让中国政府看到，拜登政府不会在棘手的台湾问题上采取温和态度。总统就职典礼几天后，中国政府向台湾海峡派出战斗机，这被视为向拜登政府政府展示武力。
+[除了潜在危险的药物组合外，该机构不建议患有肾脏或肝脏疾病的人服用，因為它也可能导致並发症。](https://thetruedefender.com/pfizers-experimental-covid-pills-cause-life-threatening-reactions/)
 
-在接下来的几个月里，拜登政府发表了一些亲台声明，其中包括国务卿安东尼·布林肯 (Antony Blinken) 呼吁让台湾加入世界卫生组织，但中国政府对此表示强烈反对。
+[Paxlovid是同类药物中第一种被授权用于治疗中共病毒的口服药物，但伊维菌素作为廉价且安全的治疗方法之一，却尚未被FDA批准使用，尽管它对病毒有很强的效果。](https://thetruedefender.com/pfizers-experimental-covid-pills-cause-life-threatening-reactions/)
 
-随后中国政府的言论升级，中国国家主席习近平[声称](https://www.foxnews.com/world/chinas-xi-warns-countries-about-breaking-their-heads-on-the-steel-great-wall)中国有控制台湾的“历史使命”，并敦促其他国家不要干涉中国内政。
+**密翻新闻文雀编辑报道**
 
-8月，[白宫澄清](https://www.foxnews.com/politics/bidens-comment-on-taiwan-clarified-by-administration-official)拜登暗示美国有神圣承诺，即如果我们的北约盟国遭受侵犯，我们会做出回应。北约盟国包括日本、韩国、台湾。 这番陈述很快成为头条新闻，因为几十年来，美国对于此类侵犯一直是模糊战略。1979 年的《台湾关系法》承诺美国支持台湾，包括为其提供防御能力，但不一定参与军事冲突。
+**2、乌克兰士兵遭亲俄势力击毙，乌俄情势紧绷 **
 
-恰逢美国灾难性地从阿富汗撤军，中国又开始加大对台湾的侵略，一些专家认为两者之间有很大的关联性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pastedGraphic.png)图片来自网络
-10 月，[中国](https://www.foxnews.com/world/china-sends-more-aircraft-toward-taiwan-one-day-after-largest-ever-incursion)政府在两天内向台湾[派遣了80多架飞机，](https://www.foxnews.com/world/china-sends-more-aircraft-toward-taiwan-one-day-after-largest-ever-incursion)包括战斗机和轰炸机。在10月1日，派出两波飞机以纪念中华人民共和国国庆日，这导致台湾飞机紧急升空以作应对。
+[据法新社1月1日报道，乌克兰政府今天表示，一名乌军士兵在与亲俄罗斯的分离主义分子交战时阵亡。美国先前已再度警告莫斯科，勿对邻国乌克兰发动任何攻击行动。](https://www.rfi.fr/cn/乌俄情势紧绷-一乌克兰士兵遭亲俄分离军击毙)
 
-随着紧张局势再次升级，拜登被问及美国是否会保护台湾免受中国的攻击，拜登回应是：是的，我们有这样做的承诺。
+[乌克兰军方发布声明称，联合部队的一名军人伤重不治。分离主义分子在24小时内用手榴弹和小型武器发动了3场攻击。](https://www.rfi.fr/cn/乌俄情势紧绷-一乌克兰士兵遭亲俄分离军击毙)
 
-美国白宫发言人说美国与台湾的防务关系以《台湾关系法》为指导，我们将恪守该法案下的承诺，我们将继续支持台湾的自卫，我们将继续反对任何单方面改变现状的行为。
+[美国总统拜登（Joe Biden）预定明天和乌克兰总统泽伦斯基（Volodymyr Zelensky）通话。拜登本周已和俄罗斯总统普京（Vladimir Putin）进行了3周以来的第2次通话，他也第2度警告普京，若俄国入侵乌克兰，将面临美国的强硬回应。](https://www.rfi.fr/cn/乌俄情势紧绷-一乌克兰士兵遭亲俄分离军击毙)
 
-中国政府很快就发表尖锐声明作为回应，据中国环球时报报道，中国外交部发言人说任何人都不应低估中国人民维护国家主权和领土完整的强大决心和能力，中国政府绝不会妥协。
+**密翻新闻vera编辑报道**
 
-随着 2021 年接近尾声，双方的言辞激烈，表明紧张局势可能会在整个 2022 年持续升温。 12 月，国务卿安东尼·布林肯[表示](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)，如果北京入侵或袭击台湾，将发生可怕的后果。布林肯在谈到出兵问题时[说](https://www.reuters.com/world/us/blinken-says-any-move-by-china-invade-taiwan-would-be-potentially-disastrous-2021-12-03/)，多年来，我们一直非常清楚并始终明确，我们致力于确保台湾拥有自卫的手段和能力，如果中国政府真的入侵台湾，我们将继续兑现这一承诺。
+**3、CDC承认PCR中共病毒检测法失败**
 
-周四，中国外交部长王毅[指责](https://www.foxnews.com/politics/china-claims-us-will-pay-unbearable-cost-taiwan)美国“违背了美中建交时的承诺，纵容和教唆台独势力，企图歪曲和否认一个中国原则。他同时声称：这将使台湾陷入极其危险的境地，并给美国本身带来无法承受的代价。
+[据《真理卫士》1月3日報道，CDC承认它要求紧急使用的PCR测试，无法区分流感和中共病毒。這就是为何中共病毒爆法之后，流感病毒消失的主要原因。](https://thetruedefender.com/cdc-confessed-pcr-cant-make-a-difference-between-flue-and-c-19/)
 
-[参考信息：](https://www.foxnews.com/politics/2021-in-review-us-china-tensions-rise-beijing-aggression-taiwan)
+[CDC因此推出另外一种测试叫罗氏核酸检测法，据称这种检测法能在20分钟内得出结果。CDC要求在7月份紧急使用。](https://thetruedefender.com/cdc-confessed-pcr-cant-make-a-difference-between-flue-and-c-19/)
 
-发布：Jenny
+[网上人们对此提出广泛质疑，除了怀疑罗氏核酸检测的有效性，也怀疑這一切都是为了钱。](https://thetruedefender.com/cdc-confessed-pcr-cant-make-a-difference-between-flue-and-c-19/)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+**密翻新闻文雀编译报道**
+
+**4、前FDA官员反对儿童接种中共疫苗**
+
+[据《真理卫报》1月3日报道，前FDA官员斯科特-戈特利布周日在《面对国家》这一节目受访時称，父母应该决定他们的孩子是否接种中共病毒疫苗，他还表示学校不应该強制要求接种。同时他指出，儿童是感染中共病毒风险最低的人群，包括任何类型的变种。](https://thetruedefender.com/must-watch-former-fda-commissioner-gottlieb-against-boosters-for-kids/)
+
+[但据《纽约时报》报道，预计FDA将在当地时间周一批准摩德纳和辉瑞的中共疫苗用于12-15岁儿童接种。](https://thetruedefender.com/must-watch-former-fda-commissioner-gottlieb-against-boosters-for-kids/)
+
+**密翻新闻文雀编译报道**
+
+**5、全球伊玛目理事会声明：声援新疆，抵制北京冬奥**
+
+[据《自由时报》1月2日报道，部位于伊拉克巴格达的全球伊玛目理事会（The Global Imams Council，GIC）日前发表声明，宣布抵制2022在中共国举办的北京冬季奥运会，并谴责中共国通过压迫、酷刑以及独裁统治，侵犯维吾尔族穆斯林的基本人权。](https://news.ltn.com.tw/news/world/breakingnews/3787663)
+
+[全球伊玛目理事会是全球第一个、也是最大的由所有伊斯兰教派领袖组成的跨国非政府机构。该机构裁定，禁止人员参加、出席2022年北京冬季奥运会，因为这项活动让对维吾尔族人进行种族灭绝、施行压迫、专制统治的中共得利。全球伊玛目理事会也表示，对越来越多的组织开始抵制冬季奥运表达赞赏。](https://news.ltn.com.tw/news/world/breakingnews/3787663)
+
+[联合签署该声明的机构，包含极富盛名的艾资哈尔大学（Al-Azhar University）、什叶派纳杰夫伊斯兰神学院（Holy Islamic Seminary of Najaf）等7所大学。](https://news.ltn.com.tw/news/world/breakingnews/3787663)
+
+**密翻新闻vera编辑报道**
+
+6、**中共国化工大省电费涨价 最高涨幅达70%**
+
+[据《新唐人》01月03日报道，2021年秋季，中共国多省市因煤炭短缺而无预警的进行限电、停电。此后当局出台新规允许全国各地调整电价。今年元旦开始，江苏、山东等化工大省均大幅度调升电价，有地区的电价在用电高峰期的涨幅高达70%。与此同时，向中共国出口煤炭最多的印尼突然宣布禁止出口煤炭。](https://m.ntdtv.com/gb/2022/01/02/a103310920.html)
+
+[中共国江苏、山东、陕西、山西、云南等化工大省日前都已宣布，自今年1月1日起调升电价。其中，山东省的电价升幅最大。](https://m.ntdtv.com/gb/2022/01/02/a103310920.html)
+
+[据台湾中央社报导，山东省的工商业电价在基准价的50%至170%之间浮动，高峰时段上调50%，尖峰时段上调70%，低谷时段下调50%，按计划全部电价调整工作将于3月31日前完成。](https://m.ntdtv.com/gb/2022/01/02/a103310920.html)
+
+**密翻新闻二丫编辑报道**
+
+7、**恒大旗下39栋房涉违建 被勒令10日内拆除**
+
+[据《新唐人》01月03日报道，恒大董事局主席许家印新年第一天刚喊话保证新房交付率，当天就传出恒大在海南省的度假村-建案《海花岛》的39栋住宅被勒令限期拆除的消息。海花岛项目遭遇打击，对于正深陷债务危机的恒大来说，无异于雪上加霜。](https://m.ntdtv.com/gb/2022/01/02/a103310845.html)
+
+[2022 新年第一天，一份由海南省儋州市行政执法局发布的《行政处罚决定书》在中共国网络社交平台上曝光。文件显示，恒大旗下的儋州信恒旅游开发有限公司在海花岛2号岛上的三(六)期住宅项目被指为违章建筑，必须在10天内拆除 。文件的发出日期为2021年12月30日。据悉，儋州信恒旅游开发有限公司为恒大旗下公司，上述项目因环保问题曾在2020年5月被要求停售。](https://m.ntdtv.com/gb/2022/01/02/a103310845.html)
+
+[当局勒令拆除这些建筑的原因主要有两条：](https://m.ntdtv.com/gb/2022/01/02/a103310845.html)
+
+[其一，相关建筑的规划许可证系违法取得，现已经被撤销；](https://m.ntdtv.com/gb/2022/01/02/a103310845.html)
+
+[其二，该项目存在违反《城乡规划法》第40条规定的情形。](https://m.ntdtv.com/gb/2022/01/02/a103310845.html)
+
+**密翻新闻二丫、菜园子编辑报道**
+
+8、**人链传菜  西安官方作秀网民评论大翻车**
+
+[据《新唐人》北京时间2022年01月02日报道，西安严厉封城造成饥荒，使民怨沸腾。但官方继续作秀欺骗民众，不过网友并不买账，纷纷对其吐槽。](https://m.ntdtv.com/gb/2022/01/01/a103309667.html)
+
+[去年12月31日，微博账号《西安直播》贴出一段视频，其中数十身穿防护服的人在大街人行道上排成长达百米人链，接力向小区内传送物资。宽阔的马路上少有车辆驶过。该帖声称，这是政府派送的免费菜，并将传送物资的人吹捧为可爱的逆行者。](https://m.ntdtv.com/gb/2022/01/01/a103309667.html)
+
+[该视频迅速引来大量批评的留言，网友们纷纷抨击当局作秀骗人，称这是浪费人力，就那么些菜，3-5辆推车一次就推完了，这么多人够几个社区同时发了，硬是把一个5G时代过成了古代，这一包菜这么晃悠着上百回，袋不破菜也烂了。还有网友发出视频显示，免费给业主发放的物资仅有3个萝卜4个土豆。](https://m.ntdtv.com/gb/2022/01/01/a103309667.html)
+
+[西安的作秀操作不止于此。当地多个小区的业主们纷纷在网上贴出官方通知，通知业主晚间统一参加高喊西安加油的活动，并要求自备灯光、手电筒，除了喊加油，还要齐唱红歌等。](https://m.ntdtv.com/gb/2022/01/01/a103309667.html)
+
+**密翻新闻二丫、菜园子编辑报道**
+
+9、**西安当局保疫情数据清零 大跃进式隔离 条件极差引不满**
+
+综合西安网友1月2日爆料信息，1月1日晚上，西安市疫情防控指挥部召开视频会议，称西安市疫情防控工作已进入全面决战时刻，1月4日必须实现社会全面清零的目标。
+
+另有网友爆料，当晚的会议雁塔区的书记和区长均被撤职，同时要求各区立军令状，3天之内社区必须清零。把有感染的小区居民，全部进行异地隔离。这样西安市就取得了第一阶段的全面胜利。
+
+有网友爆出被隔离的相关信息，称自己1月1日早晨被防疫部门叫去酒店隔离，但直到2日凌晨酒店都是满的，最后他们被安置到很偏僻的地方隔离，房间极其简陋。隔离人员有1千多人，其中很多老人和小孩子。
+
+雁塔区长丰园10号楼的住户集体发出求助，称1日凌晨2点到达灞桥区向阳沟小区2号楼隔离，发现隔离住房是出租屋，条件极差没有暖气。
+
+面对如此紧急且准备不足的隔离，不禁使人产生疑问，整个小区进行转移能否有效遏制疫情传播，大跃进式的隔离是否有必要。西安当局到底是为了控制疫情还是为了自己的政绩。
+
+**密翻新闻菜园子编辑报道 **
+
+发布: 恩典
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
 
 
  
