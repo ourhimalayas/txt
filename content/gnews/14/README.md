@@ -2,27 +2,30 @@
 ---
 
 
-## 加拿大魁北克省新冠禁宵令 禁止民众期间遛狗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1816336/)
+## 一箭双雕——日本利用氢细菌固碳并实现资源化生产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816451/)
 
-翻译：Torsteintt
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-02-175015-edited.png)图片来源：网络
-根据Montreal Gazette报道，你的狗狗需要去户外小解？ “很不幸”， 魁北克政府宣告新的禁宵令实施包括户外遛狗也不能例外， 魁北克省已于上周五实施了该禁宵令。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-13.jpg)
+为了实现到2050年去碳化的目标，日本政府已决定开始将一种名为“合成生物学”的技术商业化。2日获悉，政府将开始实际应用“合成生物”技术，通过给转基因微生物喂食二氧化碳（CO2）等温室气体的特定化学物质，高效生产燃料和生物塑料。该技术将纳入定于2022年6月前制定的岸田文雄政府的清洁能源战略。
 
-该禁宵令规定每天晚10点到早5点不得外出，此前包括一些例外比如允许户外遛狗。 但是户外遛狗的例外自从周六开始在政府官网上被移除。
+日本正在领导开发一种“二氧化碳回收技术”，利用生物技术将二氧化碳转化为一种资源，日本将率先开发这项技术，以帮助减少全世界的温室气体排放，并将考虑如何通过支持国内生物相关领域的创业和相关制造业来加速这一技术的发展。
 
-魁北克省长弗朗索瓦·勒戈此前声明：“是否实施禁宵令取决于本省医疗系统是否能够承受未来几周的疫情。”
+该技术的机制是对氢细菌进行基因改造，这些细菌可以食用收集的二氧化碳并产生各种物质，便于以最有效的方式生产燃料、纤维和塑料。据信，氢细菌吸收二氧化碳的能力是藻类的50倍。
 
-尚未知政府是否特意的无声的，还是无意的错误的禁止了民众在禁宵期间遛狗的权力。 当问到， 首席卫生长官克里斯蒂安·杜贝把此问题提交给了安全长官吉纳维芙·吉尔博，之后问题又被提交回给了卫生部门。
+在日本，生产来自眼虫的生物燃料并使用转基因微生物加工高性能纤维的公司已经引起了众多关注。
 
-新闻链接：[https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec](https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec)
+长期以来，日本在利用微生物发酵技术制造产品方面具有丰富的专业优势，如酱油和清酒。 利用氢细菌的脱碳技术有望推向世界。
 
-编辑/发布：LILY
+如果此“合成生物学”技术能顺利得以发展，则有望实现抑制全球变暖和资源化生产的双赢。
 
-20220102
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+信息源：
 
+[＜独自＞バイオでＣＯ２から資源　政府、クリーンエネ戦略盛り込みへ](https://news.yahoo.co.jp/articles/0df59018ba52db81c18d38ad96a80466259e04df)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,83 +15,83 @@
 
 ---
 
-### [文贵先生盖特精要2022/01/02](/content/gnews/1/README.md)
+### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/1/README.md)
+ ` 關注組`
+
+### [【粤语配音】2022年1月2日：远离城市舒适的生活，活下去&#8230;](/content/gnews/2/README.md)
+ ` MOS香港部`
+
+### [元旦大直播后记：七哥谈亚洲音乐舞蹈之王日本](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵先生盖特精要2022/01/02](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房](/content/gnews/2/README.md)
+### [缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房](/content/gnews/5/README.md)
  ` GTV News Talk`
 
-### [中共病毒在西方衍生出了一种邪教(一)](/content/gnews/3/README.md)
+### [中共病毒在西方衍生出了一种邪教(一)](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记——计划生育之罪恶](/content/gnews/4/README.md)
+### [大直播后记——计划生育之罪恶](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [众新闻成为第三家在最近几周被关闭的香港新闻媒体](/content/gnews/5/README.md)
+### [众新闻成为第三家在最近几周被关闭的香港新闻媒体](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [土耳其开打第五针新冠疫苗](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [雅典娜时报-162期](/content/gnews/7/README.md)
+### [纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [足球名将梅西感染中共病毒，已被隔离](/content/gnews/8/README.md)
+### [土耳其开打第五针新冠疫苗](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [雅典娜时报-162期](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [足球名将梅西感染中共病毒，已被隔离](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/9/README.md)
+### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/10/README.md)
+### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/11/README.md)
+### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/15/README.md)
  ` 丁过`
 
-### [爆料革命日记（九）：跨年](/content/gnews/12/README.md)
+### [爆料革命日记（九）：跨年](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [丹麦的研究表明，接种疫苗的人更有可能感染奥密克戎](/content/gnews/13/README.md)
+### [丹麦的研究表明，接种疫苗的人更有可能感染奥密克戎](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加拿大魁北克省新冠禁宵令 禁止民众期间遛狗](/content/gnews/14/README.md)
+### [加拿大魁北克省新冠禁宵令 禁止民众期间遛狗](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [爆料内幕，魁北克政府原准备为未接种疫苗的人实施特别宵禁](/content/gnews/15/README.md)
+### [爆料内幕，魁北克政府原准备为未接种疫苗的人实施特别宵禁](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共国可防可控的不是病毒，而是人民](/content/gnews/16/README.md)
+### [中共国可防可控的不是病毒，而是人民](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [欧洲感染中共病毒者突破1亿 全球已接近3亿](/content/gnews/17/README.md)
+### [欧洲感染中共病毒者突破1亿 全球已接近3亿](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [NBA名人堂球员约翰-斯托克顿：我们必须阻止他们用疫苗伤害我们的孩子](/content/gnews/18/README.md)
+### [NBA名人堂球员约翰-斯托克顿：我们必须阻止他们用疫苗伤害我们的孩子](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [早在2018年辉瑞公司与中共国的疫苗护照平台-支付宝合作](/content/gnews/19/README.md)
+### [早在2018年辉瑞公司与中共国的疫苗护照平台-支付宝合作](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [阿根廷3岁女孩注射疫苗一天后死亡](/content/gnews/20/README.md)
+### [阿根廷3岁女孩注射疫苗一天后死亡](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共强行封锁西安 当地民众严重缺粮](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/22/README.md)
+### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/25/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [1/1/2022 文贵直播：2022年将是灾难的一年，国内将发生洪灾、农灾，中共20大将发生血腥内斗，世界将面对病毒和疫苗灾难带来的黑暗](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/24/README.md)
+### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [拜登《国防授权法》或成灭共最大推力](/content/gnews/25/README.md)
- ` 焦點20分`
-
-### [2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](/content/gnews/26/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [DC大中华时事：外媒聚焦全球最大自贸区扬帆起航](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
