@@ -2,36 +2,41 @@
 ---
 
 
-## 新中国联邦人要拥有爱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818310/)
+## 有声|我的新年愿望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818363/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-2.jpg)
-郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
+配音：香草山佛教部 – 李傻
 
-郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
 
-自从爆料革命开始至今，战友们从郭先生的言行中感受到了爱。他爱自己，爱家人，爱亲人，爱战友，爱朋友，爱员工，爱国人，爱世界上70多亿人民。战友们对此都有深刻的体会，这份大爱吸引了无数个新中国联邦人紧紧的跟随。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+这个视频，真的让我愤怒，心情久久不能平复。
 
-12小时元旦大直播，多达100多位战友们积极参与，从头到尾都充满着爱，流露出爱，述说着爱！有爱就有幸福，有爱就有未来。我们有爱，必将战胜邪恶，消灭中共。
+穿着粉红色小裙子、扎着两只美丽小辨子的小女孩看上去和我的女儿同龄，小课桌后弯着小小的身躯，两只小小的手紧紧地握着桌沿，像一只受到惊怕的小花猫。恍惚的眼睛在恐惧中寻找着爷爷奶奶爸爸妈妈的呵护，可周边却只有一群被挑唆的“小战狼”围攻。本应充满爱、启蒙心灵的乐园却被浓浓的愤怒取代，没有欢乐、没有笑容，只有迷惑和恐惧……本应给孩童们带来快乐，传授知识的老师，却毫不留情地训斥、恶言咒骂着受伤的小女孩。不！她不是老师！她是猪！不！她猪都不是！发生什么啦？？？社会变的如此邪恶。
 
-参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gettr.com/post/plas6p681c)
+我怒了，真的愤怒了！新年的钟声刚刚响起，如果问我2022新年愿望是什么？那么我会毫不犹豫地告诉你：第一时间想办法把这头“母猪”卖到非洲，让非洲黑兄弟去R她。或托托教育部的关系，将这母猪送到山东大学做陪读，是的，做黑人留学生的陪读！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+同胞们，战友们，新的一年里，我们要紧紧跟随着文贵先生的步伐，铲除中南坑老杂毛！铲除邪恶的共产主义！灭共是正义的必需！
 
-总编/编辑：Jack Li文阳
-校正/发稿：Fei797
+我要把欢乐的祝福送给这个和我女儿同龄的扎着两只小辫子的可爱小女孩。
 
+文字版原文：[我的新年愿望](https://gnews.org/zh-hans/1814066/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
