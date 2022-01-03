@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@joerogan 1/2/2022 6:52 PM (UTC)`
+
+ https://gettr.com/user/joerogan&text=&lt;kdbgMxRcrbZ9lFlv&gt;<br/> #GETTR Set up my account at
+
+---
+
 `@miles 1/3/2022 4:16 PM (UTC)`
 
 ...
@@ -147,12 +155,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: Every fellow fighter participating in yesterday’s I Am a Sing-ro was very touching, showing that we can do better than what we are doing now, and we need to have more fabulous shows like that; we should trust the power of human civilization even more, and hope to have more fellow fighters from Europe, the origin of civilizations, to achieve what is mentioned in the Declaration of the New Federal State of China<br/><br/>1/1/2022 文贵直播: 《我是音雄》的每位战友都太让人感动，他们展示出我们能做得比现在更好，我们要有更多这样的好节目；我们要更加相信人类文明的力量，希望明年有更多来自文明发源地欧洲的战友们站出来去实现《新中国联邦宣言》<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/02/08/a0df5abe-e9de-35eb-466c-d629137e947a/out.jpg)
-
----
-
-`@miles 1/2/2022 7:58 AM (UTC)`
-
-【世界多语言文字版】2020年6月4日新中国联邦宣言<br/><br/>https://gnews.org/zh-hans/221944/<br/><br/>June 4, 2020 Declaration of the New Federal State of China in Multiple Languages<br/><br/>https://gnews.org/221992/
 
 ---
 

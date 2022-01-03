@@ -15,83 +15,83 @@
 
 ---
 
-### [疫苗災難即將開始 活下去是最重要的目標](/content/gnews/1/README.md)
- ` 焦點20分`
+### [辉瑞等制药公司和其背后的金主并非活在普通的道德世界](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/2/README.md)
- ` 焦點20分`
+### [支持者阻止警方关闭黄金海岸咖啡馆](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/3/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [中共国日益增长的独裁主义不重要吗？](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [共产党的洗脑热土，中共原外交部长李肇星入驻“B站”](/content/gnews/5/README.md)
- ` 首尔天池农场`
-
-### [1/2/2022 文贵盖特：中共是在西安和阿富汗发生的惨剧的罪魁祸首](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022年对所有人都是严峻的考验](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/8/README.md)
- ` 英喜-粵語組`
-
-### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/9/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [2022/01/03 大卫作战室直播精要](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [MV版Hcoin To the Moon上线第25天位列美国iTunes摇滚MV榜首](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [日本媒体只要传播共产党把盘古龙头变龟头鸟头就是成功](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [联盟工作汇报文字版2022.1.2](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [中共国化工大省电费猛涨](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [二战后的中国人越吃越胖骂人越来越脏,国人十之八九撒谎](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [东渡扶桑的七哥审视写着让你站起来和提供甜糕的报恩寺](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [做真正的手足肢体](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/21/README.md)
+### [有声|1120纪念大直播班农先生寄语：新中国联邦一定会赢](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [日本一句自救的话贴满全日本各地——让你自己站起来](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/24/README.md)
+### [疫苗災難即將開始 活下去是最重要的目標](/content/gnews/4/README.md)
  ` 焦點20分`
 
-### [【粤语配音】2022年1月1日：《新中國聯邦宣言》的初衷](/content/gnews/25/README.md)
- ` MOS香港部`
+### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/5/README.md)
+ ` 焦點20分`
 
-### [七哥知道VICE有备而来提前把她瞄得准准的必须持续反击](/content/gnews/26/README.md)
+### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/6/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共国日益增长的独裁主义不重要吗？](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [共产党的洗脑热土，中共原外交部长李肇星入驻“B站”](/content/gnews/8/README.md)
+ ` 首尔天池农场`
+
+### [1/2/2022 文贵盖特：中共是在西安和阿富汗发生的惨剧的罪魁祸首](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022年对所有人都是严峻的考验](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/11/README.md)
+ ` 英喜-粵語組`
+
+### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/12/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [2022/01/03 大卫作战室直播精要](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/14/README.md)
+ ` 纽约香草山MOS01`
+
+### [MV版Hcoin To the Moon上线第25天位列美国iTunes摇滚MV榜首](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [日本媒体只要传播共产党把盘古龙头变龟头鸟头就是成功](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
+
+### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [联盟工作汇报文字版2022.1.2](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共国化工大省电费猛涨](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [二战后的中国人越吃越胖骂人越来越脏,国人十之八九撒谎](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [东渡扶桑的七哥审视写着让你站起来和提供甜糕的报恩寺](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [做真正的手足肢体](/content/gnews/23/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/25/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/26/README.md)
+ ` 焦點20分`
 
 ### [有声|我的新年愿望](/content/gnews/27/README.md)
  ` MOSREC`

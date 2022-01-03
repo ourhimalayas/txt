@@ -2,45 +2,72 @@
 ---
 
 
-## 日本媒体只要传播共产党把盘古龙头变龟头鸟头就是成功
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818459/)
+## 2022/01/03 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1818543/)
 
-**郭文贵先生**：那么另外一个就日本这个，大家看法很多，说没有说什么好话。战友们千万记住，你就是想听好话，说你好话这个词儿，这个就出手就太low了。没有任何世界上的媒体是说人好话的，是不可能的。能出来说你好话的只有两个结局，说你好话，人死了说你两句好话，是吧？还有一个，顺便说句好话来证明，别人想说别人坏话的同时，来证明你说好话，没有人说，这怎么能这么要求呢？媒体哪有是好东西哪有说好话的？
+**主播**：大卫｜**嘉宾**：草根小哥
 
-我只要它传播就可以，它这个只要传播，共产党它把“龙头”变成了“龟头”，变成了“鸟头”它就行了。它说我什么国际通缉犯的什么，刚才还说播“蛇妖闫”的，它播“蛇妖闫”是因为我们把她弄成蛇妖闫，人家世界上并没有。我们把她干掉了，甚至她撒谎我们并没有大肆揭发她，这都是个客观地看待，不要要求的人家一个电台都和你一样。
 
-这就是我们身上很大的病，就是我们新中国联邦现在就有个毛病，只要说我不好的都是我敌人，只要不和我想法一样的都是我敌人，只要不按照我要求办的都是我敌人。川普没发布戒严令川普该死；川普没有抓拜登，川普窝囊；拜登没抓川普，拜登窝囊。用你这种想法的话，那世界上那不早就乱套了吗？在你世界上只有一种人，黑和白，要么白存在，要么黑存在，黑白是永远相互存在的，黑天和白夜永远是在的。
 
-就是特别是人家媒体，说你不好，你就……只能夸你好。像你们夸七哥一样，七哥夸的简直是……是吧！那就不叫媒体了。日本的报道它被共产党给黑掉，马上说你给我关了，就说明对共产党来讲它不是好事，是吧。我们要有一个基本的判断，接受得了别人说反话，能听进去不同的话，关键的问题，你可以说我，99.9都可以骂我，攻击我，你只要说一句管用的都行。
+[**GTV视频链接**](https://gtv.org/video/id=61d2e71f31a71619b57403a7)
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+**板块1–中共病毒**
 
-编辑整理：Jacques；
+1. 王毅曾狂傲宣布威胁打开“潘多拉盒子”，Omicron变异之后又新出Dmicron新变异。
 
-字幕文件制作：小满；
+2. 爆料革命农场合作快速救助在日本“中招”病毒战友亲戚，现状态稳定，恢复情况不错。英喜药物储备基本充足。
 
-视频制作及上传：Cindy；
+3. 《国家脉动》报道–超过95%的Omicron病例均是接种过疫苗的人。
 
-G-News发布：小满；
+美国内部关于病毒和疫苗的较量正在“激烈斗争中“。疫苗就像病毒感染诱导剂。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+4. 西安疫情未缓和，封城十日现“断粮荒”；西安紧急建设“方舱医院”在有图有真相的情况下，对外宣称为不实信息;西安雁塔区区委书记和副书记双双免职。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+中共治理的乱象，前后报道的信息不一致，“快刀斩乱麻”免职书记，实则拉“替罪羊”顶罪。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**板块2–财经**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+1. 西安的封锁对世界上一些最大的芯片制造厂商造成冲击。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+芯片短缺全球普遍存在现象，西安属于芯片原材料产出重地，使短缺“雪上加霜”。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+中共在西安疫情管控能力失控，西安芯片底层小供应商关闭，整个西安经济停滞并依次向上传导对最大芯片制造厂造成冲击，进而影响国际供应链和华尔街资本等。中共“吃透”西方对其供应链的依赖，为非作歹继续打击全球经济，恶性影响将导致外资企业撤离中共国。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**板块3–灭共者联盟**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+1.《国会山报》报道–中国政府从西方社交媒体获取大量数据信息。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+中共长期收集数据定点渗透和“蓝金黄”西方各行各界做准备。西方科技巨头手握用户大量信息与中共保持“暧昧”关系。
 
+2.元旦节文贵先生大直播，大量战友露脸参与，创直播新模式。预测彭帅在冬奥会后“危险”，七哥提前爆料彭帅接受领导人“慰问”，变相保护彭帅。
+
+3.重要提醒：凡是战友接到中共国大使馆电话，请积极与熟悉的义工联系报备，方便农场取证。中共“习惯性”滥用Low招。战友们请注意信息安全。
+
+4.草根小哥带领的GTV工程师专业团队被“表扬”。成功原则–让专业的人干专业的事。IT开发人员任需扩员，望人才积极加入。
+
+**板块4–军事**
+
+1.《每日邮报》报道–中共国声称在开发下一代寻热超高音速导弹已超越美国，可瞄准隐形战斗机、航母、移动车辆。
+
+中共在军事上继续“穷兵黩武”将刺激欧美军事发展（拜登政府刚签署国防授权法案）。中共军工抄袭美国技术，在军队“反腐”拿下数名高级将领的背景下，树立强大军事能力形象“稳定”混乱腐败的军队体系。大卫作战室后续会推出“军事专栏节目”，敬请期待。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/KTL9BkxxqZ5cj/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/KTL9BkxxqZ5cj/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/KTL9BkxxqZ5cj/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/KTL9BkxxqZ5cj/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
