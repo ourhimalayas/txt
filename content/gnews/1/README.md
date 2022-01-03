@@ -2,37 +2,35 @@
 ---
 
 
-## 乔•罗根加入盖特，推特的言论审查愈演愈烈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817585/)
+## 以色列出现首例流感与新冠病毒结合变种病毒“氟罗那”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817605/)
 
-**翻译：文扬**
-**编辑  MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-5.jpg)图片来源 ew.com
-随着 Twitter 继续禁止用户使用其平台，播客巨星乔•罗根 (Joe Rogan) 周日宣布，他已经开设了一个 盖特 帐户。
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-27.png)图片来源：Sea.mashable.com
+整理报道:美哥
+编辑:文泓
 
-罗根周日下午在他的盖特账户上写道：“为了防止推特上的狗屎变得更蠢，我现在也在这里了。欢呼吧！”
+1月2号，据《RT电视》报道，一位以色列孕妇同时感染了流感和新冠病毒。这是首例两株病毒的结合体，在这个年轻孕妇身上孕检时候被发现了。
 
-最近，推特公司以多次违反该社交媒体巨头的COVID-19政策为由，禁止众议员马乔里·泰勒·格林（Marjorie Taylor Greene）进入其平台。
+以色列《国土报》首发报道了这次“双感染”病例，据佩塔提克瓦市拉宾医学中心妇产科的负责人维兹尼瑟介绍：“该孕妇的流感和新冠检测两样都是阳性，反复确认也是如此。这个病人症状较轻，其实新冠肺炎和流感等于说是同一种疾病，因为同样的都是攻击患者的上呼吸道。估计（近期）孕妇感染流感会越来越多，区别发高烧症状的产妇是流感还是新冠引起的，是一个很困难的挑战，所以我们只能不区分的治疗对待。”该妇女目前已于周四出院。
 
-罗根最近在他的播客上接受的一个采访是罗伯特·马龙博士，他最近也因为对COVID-19疫苗的立场而被禁止进入该平台。
+以色列的卫生部门目前正在评估“双感染”是否会有严重的后果。同时，以色列传染病防控中心也报告了流感案例的激增，促使卫生部警告公众，流感病毒“可以导致严重病患，包括肺炎、多重呼吸道感染、心肌炎和死亡”，同时呼吁“6个月以上的公众”都要接种流感疫苗，并称流感疫苗可与新冠疫苗**并行接种**。
 
-罗根告诉马龙：“他们删除你是因为你不顺从科技界的任何说法，因为科技界显然有一个审查议程，当涉及到COVID在治疗方面，无论你是否在宣传他们所谓的疫苗犹豫症，他们可以为此禁止你，他们可以禁止你在他们眼中认为是合理的罪行。”
+世界上的科学家也在评估多样病毒和新冠变种的结合能产生的潜在危险。莫德纳的首席医疗官保罗.伯顿，上个月警告德尔塔和奥密克戎的结合可能创造了一个新的危险变种病毒。
 
-马龙在后来的谈话中说：“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们该怎么想。但问题是，如果我不是或不能成为对话的一部分，即使我指出了可能不方便的科学事实，那么谁是可以被允许的？”
+对此，伦敦经济学院卫生政策教授埃利亚斯·莫西亚洛斯却有不同意见。他认为，不存在称为 氟罗那（流感+冠状病毒混合体）的“新病毒“，也没有理由恐慌。“这不是一种新病毒，而是冠状病毒和流感病毒的同时感染”。
 
-盖特在今年早些时候作为 Twitter 的竞争对手推出。 特朗普政府前高级顾问兼盖特首席执行官杰森米勒在 7 月表示，平台将继续接受来自任何政治领域的意见。盖特允许用户选择将他们现有的推文导入这个新平台”，此外还有更长字符数的帖子，以及更清晰的照片。
+新闻链接：
+1、[1st case of ‘flurona’ reported in Israel — RT World News](https://www.rt.com/news/544991-flu-covid-combination-woman/)
+2、[Mossialos: no such thing as a ‘Flurona’ virus | eKathimerini.com](https://www.ekathimerini.com/news/1174885/mossialos-no-such-thing-as-a-flurona-virus/)
 
-盖特是思想的市场。米勒在声明中说：”我们不会因为人们的政治观点而取消他们，而且盖特提供的功能和技术远远超过其他任何东西。
+发布：去中心化Math
 
-原文链接：
-[https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies](https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies)
-
-*发布：*去中心化Math
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
