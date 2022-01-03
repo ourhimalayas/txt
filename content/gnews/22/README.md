@@ -2,54 +2,29 @@
 ---
 
 
-## 缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1816548/)
+## 元旦大直播后记：七哥谈“我是音雄”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816715/)
 
-作者：日本方舟农场 Andy5
+**翻译：雅典娜速记组**
+**编辑：守望黎明**
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/1-14.png)图片来源：雅典娜农场设计组
+我今天想说的就是，昨天这个《我是音雄》节目做完以后，真的是感触特别深。我特别感动的是英国的很多老战友发的信息，还有他们对昨天整个音乐的评价。实际上音乐在世界文明当中是最重要的啊，而英国是现代音乐的发源地。摇滚真正的来源是英国，包括汽车摇滚、车库摇滚啊，甚至英国地下室流行的男女摇滚，包括后边的什么吸毒摇滚都是来自英国，包括朋克披头士（The Beatles），这种都是神人级的，是吧？这在美国人是没法想象的。英国的音乐是了不起的，了不得的啊！ 那么昨天我们看到《我是音雄》的时候，现在我们在英国的大卫的英喜农场这块儿，特别像西班牙、这还有意大利的这些热血国家，你们都要了解我们昨天这个《我是音雄》给了大家展示个最好的一面，我们能做的比自己现在更好。我们内心里有很多个自己，只是自己不知道，或者你还没找到。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+你看昨天二圣唱歌的时候，还有他娘文雍给他写那些歌词儿，多好啊。你看到我们昨天那些兄弟姐妹们展示的情感，后面还有很多战友，大家都还没出来呢！ 你看昨天的娜娜酱，小兜兜装一穿，以色取胜啊！色音双全，是吧？ 昨天你看Superman那音乐一出来…….还有每个孩子都是让人太感动了。我们这今天所有的人都要上，兄弟姐妹们，我们有太多的人才被埋没了，我们应该做出更多这样精彩的节目。
 
+特别是今天正好是公元2022年的一个纪年，纪年是从基督降生开始的。进入2022个年头的时候，我们想想西方和欧洲的文明领导的人类走向，到今天改变了人类。在2022年以前人是什么状态？面朝黄土背朝天？基督文明让人是面对苍天，知道有上帝，也知道了地球是圆的，有了经纬线，有了文明，有了飞行，有了航海…..，我们在过公元2022年的时候，我们更要相信文明，相信人类的文明的力量，而欧洲是文明的发源地呀！
 
+加拿大也属于欧洲文明的一个分枝啊，美国就更是了，是吧。所以说，我希望明年看到更多的来自于欧洲的文明能绽放在新中国联邦里，让新中国联邦的宣言里所有的内容能够尽快地得到实施！
 
+大卫兄弟和所有的欧洲的兄弟们，你们要有自信，你们是很重要的！非常感谢！
 
+*发布：*去中心化Math
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/下载-2.jpg)
-
-《蜘蛛侠3》引发全球影迷狂欢，上映仅半个月票房已经突破74亿元，超越中共为了煽动仇美民族情绪而拍摄的《长津湖》。
-
-据了解，中共的《长津湖》自9月底上映以来，三个月的票房达到58亿元，成为墙内影视票房冠军。而这背后是各个单位组织观看、以及上映期间的三次延长。但就这样，也被上映仅12天的《蜘蛛侠3》所超越，并且该片直至目前依旧没有得到中共的上映许可。
-
-分析人士表示，《蜘蛛侠3》的票房打脸中共一直以来用中共国市场绑架他国的行为，同时也表明哪怕中共垄断式创造《长津湖》票房，这种背离世界主流价值观的电影是不会被任何文明国家所接受的。
-
-新闻链接：
-
-[https://www.163.com/ent/article/GSEUDTQ400038FO9.html](https://www.163.com/ent/article/GSEUDTQ400038FO9.html)
-
-[https://ent.sina.com.cn/m/c/2021-12-27/doc-ikyamrmz1553705.shtml](https://ent.sina.com.cn/m/c/2021-12-27/doc-ikyamrmz1553705.shtml)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-18.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
-
-
-
-
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

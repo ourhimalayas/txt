@@ -2,42 +2,104 @@
 ---
 
 
-## DC大中华时事：外媒聚焦全球最大自贸区扬帆起航
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1815968/)
+## 【秘翻在线】首届全球盖特用户年度大奖!
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816202/)
 
-*编辑：西北风 / 作图：*信正
+**撰稿：Grace**
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-5.03.06-PM.jpeg)
+在2022年1月1日，盖特（GETTR）首席执行官杰森·米勒(Jason Miller)和盖特高级副总裁凯兰·多尔(Kaelan Dorr)在直播中颁布了第一届全球盖特用户奖!
 
-#   墙国妄语每日驳
+首席执行官杰森·米勒先生说：“硅谷寡头对言论自由的镇压日益恶化，促使我们创建了盖特，结果是今年自由表达运动的一些真正闪亮的明星展示了他们的东西。充满活力的盖特社区证明，言论自由是有生命力的，只是需要一个人们可以自由表达自己的地方，而不必担心因其意见而被取消。祝贺我们的获奖者，而其他的用户，继续为自由发帖！”
 
-### **0**1.02.2022
+这些获奖者是：
 
-[王毅：掏空一中原则将使美国面临不可承受的代价 (huanqiu.com)](https://world.huanqiu.com/article/46EbdXL9Ov3)
-
-***简评：***如果我们跳出当下纷乱复杂的形式，还是要看中共，中共最担心的是什么，这样才能更好理解当下。还记得郭先去家里挂的宋微宗与秦桧的《听琴图》吗？你要说当下的中共更像中国历史上那个朝代，当然是宋朝，他的经济状况，地缘态势，军事边防，外交策略像极了当下的中共。我们都说中共天天在给小红粉们打鸡血进行着主动战狼外交，给人感觉中共已是全世界老大，无人感惹。其实这就是中共给小红粉们洗脑洗出的错觉。实际上在中共习总书记心目中，对于中共最重要的不是国家而是皇权。国家的危险在边境之上，皇权的危险在萧墙之内。两害相权取其轻，他们是宁可牺牲军事效率甚至国家安全，也要保证皇位不受觊觎，皇权不会旁落的。所以对于习书说永远是内忧大于外患，攘外必先安内的，中共内部权力的争斗才是主角，一切国际形势，地缘事件，军事冒险都是围绕着保皇权进行的，你要相信习总他们就像媒体报道一样为国为民头可断血可流那是你个人认识上的问题。中共什么时候真正为人民服务了。中共自己还是知道自己有几斤几两的，中共怎么敢真正和西方国家尢其是美国叫板呢？看看当年宋朝也是全世界大撤币买和平，当下习神和世界邪恶势力合作发动生化武器超限战，配合的无非是习神要拿下前任中共在海外布局，情报，金融，媒体，科技，政治等一系列网络和资源，否则怎么做习一神，怎么能确保皇权不会旁落。一切都是为了权力。但想想微、钦二宗被金人掳去点了天灯其下场可是历史永留传了。祝福吧习神您会步其后尘，青史留名。
-
-### 01.02.2022
-
-[2022跨年夜：多了口罩，少了拥抱\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/world/20220102/2464834.shtml)
-
-***简评：***新冠病毒肆虐全球，照这样的速度感染下去，几乎无人可见避勉。如果这你都要说这是来自自然病毒，那你被中共洗脑洗的绝对是大神级别了。敌人有多疯狂只能说明敌人有多么绝望。病毒生化超限战发展到现在远远未能达到中共干倒世界经济，引发世界经济大危机的预期目标。在世界的经济大乱局后中共从而脱颖而出，求得再也一次孽磐重过，预期目标很诱人，而中共自认为有把世界经济拖入危机的能力。病毒在肆虐，考验各国经济政治承受极限，高压锅压力在增加，中共绝不会吝啬在这关健时刻多加几把火。可以想见，中共不灭，病毒不止。
-
-### 01.02.2022
-
-[外媒聚焦：全球最大自贸区扬帆起航\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220102/2464850.shtml)
-
-***简评：***根据郭先生直播中提到在中共灭亡之前，以美国为首的西方国家仍然会给中共一些好外，比如取消关税，就像这此加入RCEP。美国这也是的“涵养”中共吧。这正说明了美国正开始一步步要灭亡中共具体措施开始了。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/927199150540476466/DC12.19-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/927199155850457118/DC12.19-2-2.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/927199158920708116/DC12.19-3.jpg?width=1040&amp;height=586)
+- **被询问最多的新用户（****Most Requested New User****）****:** [@ rwmalonemd](https://gettr.com/user/rwmalonemd) (DR. Malone)
 
 
+- **福奇最糟糕的噩梦****（****Fauci’s Worst Nightmare****）****:** [@RealPNavarro](https://gettr.com/user/realpnavarro) (Peter Navarro)
 
 
-*编辑：*西北风
-*作图：信正
-发布：文顾*
+- **年度自由战士（美国）（****Freedom Fighter of the Year (USA)****）****:**  [@ rwmalonemd](https://gettr.com/user/DrZevZelenko) (Dr. Vladimir Zev Zelenko)
+
+
+- **发最多帖的发帖者（****Most Prolific Poster****）****:** [@ DineshDSouza](https://gettr.com/user/DineshDSouza) (Dinesh D’s Souza)
+
+
+- **年度社区组织者****（****Community Organizer of the Year****）****:** [@ ChatByCC](https://gettr.com/user/ChatByCC)
+
+
+- **人民的冠军****（****The People’s Champion****）****: **[@ JackPosobiec](https://gettr.com/user/jackposobiec) (Jack Posobiec)
+
+
+- **中共最大的恶梦（****CCP’s Biggest Nightmare****）****:** [@ Miles](https://gettr.com/user/miles) (Miles Guo)
+
+
+- **取消文化的最大眼中钉（****Cancel Culture’s Biggest Target****）****:** [@ TommyRobinson1](https://gettr.com/user/TommyRobinson1) (Tommy Robinson)
+
+
+- **国会年度人物（****Congress Person of the Year****）****: **[@ MTG4America](https://gettr.com/user/mtg4america) (Marjorie Taylor Greene)
+
+
+- **发最多Memer ****的用户**（**Most Prolific Memer****）****: **[@ ilPresidento](https://gettr.com/user/ilpresidento)
+
+
+- **年度最佳真正的新闻机构（****Real News Outlet of the Year****）****:** [@ nationalpulse](https://gettr.com/user/nationalpulse) (The National Pulse)
+
+
+- ** ****年度最佳评论员（****Biting Commentator of the Year****）****: **[@ TimRunsHisMouth](https://gettr.com/user/timrunshismouth) (Tim Young)
+
+
+- 最佳二人组（**Best Duo****）****: **[@ DiamondandSilk](https://gettr.com/user/%20DiamondandSilk) (Diamond and Silk)
+
+
+- **直播明星****（****Livestream Superstar****）****: **[@ vlogdolisboa](https://gettr.com/user/vlogdolisboa) (Femando Lisbor)
+
+
+- **年度自由战士（巴西）（****Freedom Fighter of the Year (Brazil)****）****: **[@allansantosbr](https://gettr.com/user/allansantosbr)  (Allan dos Santos)
+
+
+- **年度最佳发帖者** （**Troll of the Year****）****: **[@catturd2](https://gettr.com/user/catturd2)
+
+
+- **最大的声音（****Biggest Voice****）****: **[@ KamVTV](https://gettr.com/user/KamVTV) (Kambree)
+
+
+- **年度最佳活动家（****Activist of the Year****）****: **[**@** **ScottPresler**](https://gettr.com/user/ScottPresler)**  **(Scott Presler)
+
+
+- **火焰下的勇气（****Courage Under Fire****）****: **[@Project\_Veritas](https://gettr.com/user/project_veritas)
+
+
+- **盖特的核心和灵魂（****The Heart and Soul of GETTER****）****: **[@ RafaelGoldberg](https://gettr.com/user/RafaelGoldberg) (Rafael Goldberg), [@JPLyle](https://gettr.com/user/JPLyle) ( Jeanne Lyle), and [@CCBagley](https://gettr.com/user/CCBagley) (Christi Bagley)
+
+
+- **男人/****女人，神话，传奇（****The Man/Woman, the Myth, the Legend****）****: **[@SteveBannon](https://gettr.com/user/stevebannon)  (Steve Bannon)
+
+
+- **信仰战士（****Faith Warrior****）****: **[@ christineyeargs](https://gettr.com/user/christineyeargs) (Christine Yeargin)
+
+
+- **运动的未来（****The Future of the Movement****）****: **[@TheJordanRachel](https://gettr.com/user/TheJordanRachel) (Jordan Rachel), and @ [@theisabelbrown](https://gettr.com/user/theisabelbrown) (Isabel Brown)
+
+
+- **年度最佳自由斗士（英国）（****Freedom Fighter of the Year (U.K)****）****: **[@LozzaFox](https://gettr.com/user/lozzafox) (Laurence Fox)
+
+
+- **年度自由斗士（法国）（****Freedom Fighter of the Year (France)****）****: **[@zemmoureric](https://gettr.com/user/zemmoureric)** (**Eric Zemmour)
+
+
+- **年度自由斗士（德国）（Freedom Fighter of the Year (Germany)）: **[@ reitschuster](https://gettr.com/user/reitschuster) (Boris Reitschuster)
+
+
+- **年度自由斗士（全球**）（**Freedom Fighter of the Year (Global)****）****: **[@EnesKanter](https://gettr.com/user/EnesKanter) (Enes Kanter-Freedom)
+
+
+- **年度最佳人物**（**Person of the Year****）**** : **[@ JairBolsonaro](https://gettr.com/user/jairbolsonaro) (Jair Bolsonaro- President of Brazil巴西总统)
+
+
+**新闻来源****：**** **[The First Annual Worldwide GETTIE Awards](https://gettr.com/streaming/plctbxe658)
 
  
 
