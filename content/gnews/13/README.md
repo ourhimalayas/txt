@@ -2,28 +2,30 @@
 ---
 
 
-## 视频| 《新中国联邦宣言》的初衷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1817178/)
+## 梅西接种疫苗后依旧感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817200/)
 
-## 摘自2022.1.1郭先生大直播
-
-制作：香草山香港部
+作者：日本方舟农场 – Andy5
 
 
 
-今天特别是在2022年1月1号第一天,新中国联邦,我们的发起人和创始人,所有的战友们,我们在一起第一次,我们有一个铁血组，铁血组相当于过去的这些流氓组织最早发起的所谓爱国主义，咱们是救国主义，而且他们手里面举的是什么？是家天下、欺骗人的，所谓的黑社会的结社文化的叫结社大纲，咱们这个叫什么？新中国联邦，咱们跟他们完全不同，他们是右手，咱们是左手，咱们是手举着苍天、摸着良心的，从来不会有任何政权、利益、名义之心的，这样的一个新中国联邦的宣言。
-
-大家去看一看，第一章第一页倒数第四行，开始就明显的写着：灭共是正义的需要，然后接下来很简单的宣言，从天到地，从人到动物，从动物到植物，从植物到环境，到山到水，没有我们不能包括的，我们不仅说中国人的事，我们还说全人类的事，我们还说全天下的事。
-
-大家都知道今年发生了体育节最重要的彭帅事件，天天代表爹亲娘亲不如党亲的党，张高丽告诉彭帅同志说，“宇宙无限大，地球是一粒沙”
-
-它告诉大家，应该像这样对天地对人的敬意和爱意，它叫新中国联邦，这是我们今天大家坐在这里，我们说什么都不要忘了，因这个我们走在了一起，这是我们一切的原因，不是因为七哥。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-发稿：雪梨
+2022年1月2日，巴黎圣日尔曼球队官方宣布，队内有四名球员确诊。 这四位球员分别是梅西，贝尔纳特，里科，比图马扎拉。 而早在2021年5月1日，2021年美洲杯为参赛球员接种了中共的科兴疫苗，梅西也在这个接种名单之中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+分析人士指出，越来越多的知名运动员在接种后出现梗塞，以及依旧被感染，会唤醒更多的民众发现，目前的ccp病毒疫苗对人体百害而无一利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpg)
+参考链接：
+1. [梅西、内马尔将接种中国新冠疫苗征战美洲杯](http://www.xinhuanet.com/2021-05/01/c_1127401269.htm)
+2.[巴黎官方：梅西新冠检测呈阳性](https://news.zhibo8.cc/zuqiu/2022-01-02/61d18d3ca7a7e.htm)
+3. [Vannes/PSG – Le point officiel sur le groupe : Messi parmi les joueurs positifs au Covid](https://www.parisfans.fr/club/vannes-psg-le-point-officiel-sur-le-groupe-messi-parmi-les-joueurs-positifs-au-covid-579791.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -33,9 +35,15 @@
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

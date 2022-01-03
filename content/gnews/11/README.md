@@ -2,49 +2,44 @@
 ---
 
 
-## 欧洲中共病毒确诊病例超一亿人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817198/)
+## 墨西哥银行计划在2024年推出数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817228/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Bank-of-Mexico.jpg)
 
 
-
-截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpg)
-仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
-
-全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
-
-参考链接：
-[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+ 
+图片来源：WIRED
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+根据《曼谷邮报》1月3日报道，**墨西哥政府称，墨西哥银行计划在2024年前将自己的数字货币投入流通，以利用最新的支付技术，在一个大多数交易都依赖现金的经济体中促进金融包容性。**
 
+墨西哥银行表示，它正在研究分几个阶段开发一种数字货币。它将把目前的电子支付系统作为平台的基础，以“在快速、安全和高效”框架下扩大支付选择。
 
+一位熟悉墨西哥银行计划的人士表示，中央银行当局一直在与金融机构，就推出一种可用于基本交易的数字货币所需的实施和基础设施进行谈判。
+
+大量的交易使用现金进行，特别是考虑到庞大的非正规经济。2020年，非正规经济占墨西哥国内生产总值的22%左右。
+
+这家以正统货币政策而闻名的央行已经警告说，鉴于比特币等私人发行的加密货币资产的价值波动和接受程度有限，要防范其风险。然而，官员们对中央银行的数字货币持开放态度，作为促进金融包容性的一种方式。
+
+墨西哥银行、墨西哥财政部以及银行和证券监管机构对此表示，包括比特币和其他货币在内的加密货币在墨西哥不是法定货币，金融机构不允许提供此类资产的业务。
+
+与比特币和其他货币不同，中央银行的数字货币是一种虚拟的，或法币的电子形式。
+
+新闻来源：[Bank of Mexico Plans to Launch Digital Currency by 2024 (bangkokpost.com)](https://www.bangkokpost.com/business/2241159/bank-of-mexico-plans-to-launch-digital-currency-by-2024)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
