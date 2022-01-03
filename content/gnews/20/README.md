@@ -2,49 +2,25 @@
 ---
 
 
-## 梅西接种疫苗后依旧感染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817200/)
+## 中共的千人计划过去两年如何运行
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1817237/)
 
-作者：日本方舟农场 – Andy5
+撰稿：葱大白
+![](https://assets.gnews.org/wp-content/uploads/2022/01/302.jpg)图片来自网络
+中共的千人计划在2019年进行了最后一期国内选拔。当时的国际国内政治形势已经明显紧张。2020年开始的新冠病毒大流行，导致了千人计划并没有如期进行公示，进入了地下状态。一些入选的人并没有被省级组织部人才办兑现人才政策，失去了一生中重要的发展机会。也是由于没有公示，地方组织部人员可以完全黑箱操作，换成自己的关系人作为人才领取头衔及千万元的各类补贴。这样办事的人能得到好处才有动力办事。
 
+2020年，千人计划正式取消了这个名字及网站，以存在多年的长江学者头衔代替，长江学者是大陆内地在没有千人计划前，仅次于院士的一个高级人才头衔，可兑现的补贴在八百万元左右，但主要给在体制内高校的人。另外政策兑现必须通过所在单位的组织及领导，对外来人才来讲大幅度增加了不确定性。
 
+2021年，长江学者仍然对海内外外籍高技术高学历人才开放，但影响力及吸引力似乎没有国家千人计划大，所以又逐步开始了国家级的千人计划，但名称换成了其他名字，外部有不同的称呼，内容基本一致。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+目前浙江、江苏、山东省仍然保留了省级的千人计划，名称及内容与以前相同，因为省级千人计划并为被国际上所重视及指责。但省级千人计划补贴也较雄厚，在得到党的认可后，还可以有各种名目的补贴。但省级千人计划明确进行政审，对申请人的政治背景进行比千人计划更十分严格的审核，并且政审是第一位的。另外省级人才项目更注重关系，只有打通了的本地及省级关系才有望得名得利得发展，更类似于体制内部提干。
 
+去年大外宣李毅的一个视频说过，地方政府为什么留不住人才，真正的人才不精于送礼、贿赂及全身心投资建立关系，办事的人得不到直接回报，所以真正的人才很难拿到支持，也很难生存下去，如去年复旦刺杀书记的姜博士。
 
+在全球病毒及疫苗恐怖情况下，国际旅行变得昂贵、困难及危险，加上国内政治形势日趋紧张，揭发、举报在学校和社会中大规模开展。经济萧条，增加税赋，政府人员减工资，人才政策的兑现更加不确定。在这种情况下，没有强大背景的科技人才来回辗转并无获得资助及成功的希望。
 
-2022年1月2日，巴黎圣日尔曼球队官方宣布，队内有四名球员确诊。 这四位球员分别是梅西，贝尔纳特，里科，比图马扎拉。 而早在2021年5月1日，2021年美洲杯为参赛球员接种了中共的科兴疫苗，梅西也在这个接种名单之中。
-
-分析人士指出，越来越多的知名运动员在接种后出现梗塞，以及依旧被感染，会唤醒更多的民众发现，目前的ccp病毒疫苗对人体百害而无一利。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpg)
-参考链接：
-1. [梅西、内马尔将接种中国新冠疫苗征战美洲杯](http://www.xinhuanet.com/2021-05/01/c_1127401269.htm)
-2.[巴黎官方：梅西新冠检测呈阳性](https://news.zhibo8.cc/zuqiu/2022-01-02/61d18d3ca7a7e.htm)
-3. [Vannes/PSG – Le point officiel sur le groupe : Messi parmi les joueurs positifs au Covid](https://www.parisfans.fr/club/vannes-psg-le-point-officiel-sur-le-groupe-messi-parmi-les-joueurs-positifs-au-covid-579791.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

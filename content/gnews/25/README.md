@@ -2,22 +2,49 @@
 ---
 
 
-## 中共国在镇压异议人士的过程中迫使另一家香港新闻机构关闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1817164/)
+## 欧洲中共病毒确诊病例超一亿人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817198/)
 
-#### 翻译/撰稿：黃金精神
+作者：纽约香草山教育部 – Naughty(文行)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-2.jpg)照片来源：路透社
-1月2日据NewsMax报道，香港一家在线新闻网站周日表示，鉴于新闻自由的恶化，该网站将停止运营。此前中共警方以煽动罪突袭并逮捕了独立民主派新闻机构的7人。
 
-《众新闻》（Citizen News）在周日的Facebook帖子中宣布了其决定。它将在1月4日停止更新其网站，之后就会关闭。众闻在一份声明中说：“我们一直热爱这片土地，但目前，我们很无助，因为我们不仅面临风和雨，还有龙卷风和巨浪。我们从未忘记自己的初衷，但遗憾的是，过去两年社会的快速变化和媒体环境的恶化，使我们无法安心实现自己的理想。”
 
-《众新闻》是近几个月来继在线网站《立场新闻》（Stand News）等媒体关闭之后的第三家新闻机构。在《众新闻》即将关闭的几天前，当局突击检查了《立场新闻》，并逮捕了七人，包括编辑和前董事会成员–他们被指控密谋出版煽动性材料。《立场新闻》在同一天宣布它将停止运营。《立场新闻》的两名前编辑后来被正式指控犯有叛乱罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-香港领导人林郑月娥上周为突袭《立场新闻》辩护并告诉记者：“在新闻报道的幌子下煽动其他人不能被宽恕。”
 
-**新闻来源**：[China Forces Another Hong Kong News Outlet to Close Amid Crackdown on Dissent](https://www.newsmax.com/newsfront/hong-kong-news-outlets-closed-dissent/2022/01/02/id/1050697/)
+
+截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4.jpg)
+仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
+
+全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
+
+参考链接：
+[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
