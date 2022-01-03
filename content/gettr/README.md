@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 3:54 PM (UTC)`
+
+1月3号，Hcoin To the Moon MV上线第25天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1818473/<br/><br/>Jan 3rd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 25th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1818540/
+
+---
+
 `@miles 1/3/2022 10:17 AM (UTC)`
 
 2021 Annual Worldwide Getties: Winner of CCP’s Biggest Nightmare - Miles Guo @Miles<br/><br/>2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵先生 @Miles<br/>
@@ -147,12 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: It is the CCP’s deceptions and suppression that led to the lack of mutual trust and mutual fondness among the Chinese people; the citizens of the New Federal State of China shall be selfless and altruistic! Given that we are determined to take down the CCP, we shall love the fellow fighters and tolerate their shortcomings<br/><br/>1/1/2022 文贵直播: 中共的欺骗和打压导致中国人互不信任、互不喜欢；新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点！<br/>
 ![img](https://media.gettr.com/group37/getter/2022/01/02/07/8aab39bc-1c61-a801-026d-6fe7bf73948f/out.jpg)
-
----
-
-`@miles 1/2/2022 4:56 AM (UTC)`
-
-2021 Miles Guo's Latest Song "Hcoin To the Moon" Makes History🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/1813005<br/><br/>2021年郭文贵先生最新单曲Hcoin To The Moon创造的历史记录🎉🎉🎉🎉🎉🎉🎉<br/><br/>https://gnews.org/zh-hans/1812319/<br/>
 
 ---
 
