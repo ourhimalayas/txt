@@ -2,13 +2,32 @@
 ---
 
 
-## 驻冲绳美军感染中共病毒数一天从70例暴增至235例
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816721/)
+## GTV新闻访谈简报|2022年1月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1816750/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._3-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+作者：香草山翻译部
+
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0102text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.2  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d2512831a71619b5739af4)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.13.00-PM-1-1.png)
+
+**更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

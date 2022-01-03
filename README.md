@@ -15,131 +15,131 @@
 
 ---
 
-### [全面展望2022日本外交 日中关系仍是焦点](/content/gnews/1/README.md)
+### [视频| 远离城市舒适的生活，活下去&#8230;](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [视频| 《新中国联邦宣言》的初衷](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [全面展望2022日本外交 日中关系仍是焦点](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新年大直播的两个瞬间，诠释了爆料革命的真](/content/gnews/2/README.md)
+### [中共国在镇压异议人士的过程中迫使另一家香港新闻机构关闭](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新年大直播的两个瞬间，诠释了爆料革命的真](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [第三十七期·法律你我她-博彩行业及相关法律](/content/gnews/3/README.md)
+### [第三十七期·法律你我她-博彩行业及相关法律](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [敲竹杠不成反被怼 马斯克将星链建设到底](/content/gnews/4/README.md)
+### [敲竹杠不成反被怼 马斯克将星链建设到底](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“蔚小理”光鲜销量背后注定是这个产业的原形毕露](/content/gnews/5/README.md)
+### [“蔚小理”光鲜销量背后注定是这个产业的原形毕露](/content/gnews/8/README.md)
  ` Siena`
 
-### [山东法院“不能仅以出轨为由请求离婚”民间炸锅”](/content/gnews/6/README.md)
+### [山东法院“不能仅以出轨为由请求离婚”民间炸锅”](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [油管删除乔·罗根对罗伯特·马龙博士深度采访](/content/gnews/7/README.md)
+### [油管删除乔·罗根对罗伯特·马龙博士深度采访](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报告：超过95%的“奥米克戎”病例发生在接种疫苗的人群中](/content/gnews/8/README.md)
+### [报告：超过95%的“奥米克戎”病例发生在接种疫苗的人群中](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年日本公司并购数量创新高 三菱UFJ、日立榜上有名](/content/gnews/9/README.md)
+### [2021年日本公司并购数量创新高 三菱UFJ、日立榜上有名](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [彼得-麦卡洛博士认为VAERS的报告数量应该是现在的4-5倍](/content/gnews/10/README.md)
+### [彼得-麦卡洛博士认为VAERS的报告数量应该是现在的4-5倍](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [今年日本著名的年度箱根站接力马拉松大赛异常冷清](/content/gnews/11/README.md)
+### [今年日本著名的年度箱根站接力马拉松大赛异常冷清](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [胡萝卜和大棒，‘专家’公开谈论像动物一样操纵人的行为，这样他们就会服从](/content/gnews/12/README.md)
+### [胡萝卜和大棒，‘专家’公开谈论像动物一样操纵人的行为，这样他们就会服从](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [清的究竟是啥零疫情还是官患？ 传立军令状“社会面清零”](/content/gnews/13/README.md)
+### [清的究竟是啥零疫情还是官患？ 传立军令状“社会面清零”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登表示如果俄罗斯入侵乌克兰他将“果断回应”](/content/gnews/14/README.md)
+### [拜登表示如果俄罗斯入侵乌克兰他将“果断回应”](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国国防部长中共病毒检测呈阳性](/content/gnews/15/README.md)
+### [美国国防部长中共病毒检测呈阳性](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文件显示中共国收集了大量西方目标的数据](/content/gnews/16/README.md)
+### [文件显示中共国收集了大量西方目标的数据](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奇怪的神经系统疾病困扰着年轻的加拿大人](/content/gnews/17/README.md)
+### [奇怪的神经系统疾病困扰着年轻的加拿大人](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [牙买加银行报告数字货币试点成功](/content/gnews/18/README.md)
+### [牙买加银行报告数字货币试点成功](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲新冠病例激增，一线医护工作者面临极大压力](/content/gnews/19/README.md)
+### [澳洲新冠病例激增，一线医护工作者面临极大压力](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“疫情恐慌的持续”与“3年后完工的建厂投资”](/content/gnews/20/README.md)
+### [“疫情恐慌的持续”与“3年后完工的建厂投资”](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [斯科特·约翰逊医生：我们必须要回到事情的本质上来，必须真正的为病人服务](/content/gnews/21/README.md)
+### [斯科特·约翰逊医生：我们必须要回到事情的本质上来，必须真正的为病人服务](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [郭先生谈论灵魂](/content/gnews/22/README.md)
+### [郭先生谈论灵魂](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国人工智能专利占世界总量之高，将带给人类什么?](/content/gnews/23/README.md)
+### [中共国人工智能专利占世界总量之高，将带给人类什么?](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年1月2日盖特视频（9分46秒）全文字版](/content/gnews/24/README.md)
+### [郭文贵先生2022年1月2日盖特视频（9分46秒）全文字版](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年1月1日郭文贵先生直播中文简报](/content/gnews/25/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [中共国开发商一月份将面临1970亿美元的支付挑战](/content/gnews/26/README.md)
+### [中共国开发商一月份将面临1970亿美元的支付挑战](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登：如果乌克兰受到攻击，美国将做出回应](/content/gnews/27/README.md)
+### [拜登：如果乌克兰受到攻击，美国将做出回应](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2022年1月2日晚](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2022年1月2日晚](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/29/README.md)
+### [欧洲感染中共病毒人数突破1亿，法国突破1千万](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [驻冲绳美军感染中共病毒数一天从70例暴增至235例](/content/gnews/30/README.md)
+### [驻冲绳美军感染中共病毒数一天从70例暴增至235例](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：七哥谈“风、风言风语、宇宙和沙”](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/32/README.md)
+### [针下亡魂｜巴西 28 岁著名男歌手接种疫苗六周后死亡](/content/gnews/33/README.md)
  ` 關注組`
 
-### [【粤语配音】2022年1月2日：远离城市舒适的生活，活下去&#8230;](/content/gnews/33/README.md)
+### [【粤语配音】2022年1月2日：远离城市舒适的生活，活下去&#8230;](/content/gnews/34/README.md)
  ` MOS香港部`
 
-### [纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗](/content/gnews/34/README.md)
+### [纽约卫生专员承认用虚假数字吓唬父母而为孩子们接种疫苗](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/35/README.md)
+### [欧盟宣布，承认核电站为“绿色投资”](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/36/README.md)
+### [一箭双雕——日本利用氢细菌固碳并实现资源化生产](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/37/README.md)
+### [聚焦：2022世界印发400万亿美元纸币意味着什么？](/content/gnews/38/README.md)
  ` 丁过`
 
-### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/38/README.md)
+### [2022年1月1日 文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（二）](/content/gnews/39/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/39/README.md)
+### [【秘翻在线】首届全球盖特用户年度大奖!](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/40/README.md)
+### [香草山翻译部周刊|2022年1月2日第29期](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/41/README.md)
+### [GTV新闻访谈简报|2022年1月2日早](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
-
-### [世界卫生委员会呼吁停止实验性“疫苗”](/content/gnews/42/README.md)
- ` GTV新闻访谈`
 
 ### [1/1/2022 文贵直播：新中国联邦人要无我利他！在有灭共决心的大前提下，要爱战友并包容战友的缺点](/content/gnews/43/README.md)
  ` 秘密翻译组-北美组`

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 7:17 AM (UTC)`
+
+1/1/2022 Miles Guo: 2022 will be a year of catastrophes for the CCP, there will be flooding and agricultural disasters in China, and brutal and bloody political infightings will accompany the 20th Party Congress. People all over the world will be facing the darkness brought by the disasters of the CCP virus and COVID vaccines. Citizens of the New Federal State of China should take actions in unity, stay faithful, and make our financial and media sectors even stronger. We will definitely win in 2022!<br/><br/>1/1/2022 文贵直播：2022年将是灾难的一年，国内将发生洪灾、农灾，中共20大将发生血腥内斗，世界将面对病毒和疫苗灾难带来的黑暗；新中国联邦人要团结、坚持信仰、做强做大金融和媒体 - 2022年，我们一定会赢！<br/><br/>
+![img](https://media.gettr.com/group29/getter/2022/01/03/07/2c3bd06c-a9f7-78f0-ea29-8e2059afdee4/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jasonmillerindc 1/2/2022 11:19 PM (UTC)`
@@ -146,13 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 一位来自澳大利亚的郭文贵先生和班农先生的粉丝：郭文贵先生告诉我们的有关中共病毒的消息，大约三个月后我们才能明白，所以他领先于事态的发展，因为他知道真相。 希望郭先生健康，平安，继续揭露真相！<br/><br/>A fan of Miles Guo and Steve Bannon in Australia: Miles Guo tells the news about the Virus that we find out about three months later, so he's ahead of the curve because he knows the truth. He hopes Mr. Guo stays healthy and safe, and keeps telling the truth. 
 ![img](https://media.gettr.com/group3/getter/2022/01/01/05/58e324ca-13fd-6da1-ac79-0f8de597d60a/out.jpg)
-
----
-
-`@miles 1/1/2022 4:35 AM (UTC)`
-
-12月31号：祝所有的战友家人新年快乐，无限的感激无限的爱．献给所有的天下的我们的🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏志同道合的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 December 31: Happy New Year to all my comrades in arms and family, infinitely grateful for infinite love.  To all our 🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 like-minded brothers and sisters!  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 
-![img](https://media.gettr.com/group24/getter/2022/01/01/04/628fff35-ad98-95df-2fdd-b42653a23ba3/out.jpg)
 
 ---
 
