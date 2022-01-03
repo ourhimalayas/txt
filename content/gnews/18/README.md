@@ -2,39 +2,44 @@
 ---
 
 
-## 有声|文贵直播：美“国防支出法案”预示美国与中共正式为敌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818200/)
+## 拜登法案最关键人物都支持新中国联邦是上天送我们大礼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818266/)
 
-配音：香草山教育部 – Rose
+**郭文贵先生**：所以兄弟姐妹们，老天给了我们礼物！这个法案最关键的几个人都是支持我们新中国联邦的，好好查查军事委员这个法案的最关键人是谁，未来你看到未来跟G-TV啥关系，都会到G-TV，等G-TV再投胎以后你就明白了，最关键的。
 
+所以说兄弟姐妹们，我们新中国联邦人要懂得一个基本的逻辑，共产党到今天要不灭，不但我们什么都不存在，世界将没有任何未来，而且我们一定要相信老天在帮我们消灭共产党。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生在12月29日的大直播中表示，美国“国防支出法案”的推出，预示着美国向全世界宣布正式与中共为敌。新中国联邦知共才能灭共，知美才能以美灭共。这个法案是美国国会两院起草的，是美国与中共关系的试温表，不可能经过处理，是典型的美国人的核心利益。
+这个法案和共产党的冬奥会和它的疯狂，不要小看了张高丽的“宇宙无限大，地球是一粒沙”，他们掩盖这种虚假新闻给全世界，再次进入塔西佗陷阱，还有这60岁生孩子，是吧？还有北京的整个的现在的政治和经济情况，都是天在帮我们。他们的虚伪、他们的造假、他们的流氓、他们的Low证明了我们的纯洁和伟大、我们的干净。
 
-美苏冷战前，美国对苏联的援助是巨大的，甚至对苏联在占领柏林后的烧、杀、奸、掠都视而不见。但是在决定干掉苏联后，美国就对其开始了经济围困，禁止苏联给德国供油，禁止苏联卢布与欧洲进行超额交易。如今的“国防支出法案”，与当年的曼哈顿计划和登月计划如出一辙，等于美国明确宣布，中共就是我的敌人。 拜登很清楚他无法阻挡灭共。这个法案有三个重点，第一是秘密军事力量。第二经济封锁。第三核心技术封锁。当年对付苏联，重大交易美国都掌握。当时所有潜艇和航母，在二战前后进度和质量完全不同。然后美国把苏联所有工程师全部弄走。 对中共过去二十年没用过“秘密”这个词。因此王毅和杨洁篪说，美国要改变中共的制度并消灭中共。王毅表示一定能打赢中美世纪大战，因为通过放毒看到了美国的虚弱，看到了美国人全部的本事和招式，中共有把握在未来两三年内绝对赢。所以中共要继续防毒，而拜登会放弃病毒溯源。如此会让美国的联邦制度受到考验，造成美国社会分裂。
+Isobel Yeung把我们定义为，把海外华人定为恐怖份子和这种流氓的做法，七哥这次的这种引蛇出洞、诱敌深入，彻底歼之。我说实在话，七哥实在是太了不起了，做的实在是太好了！这是新中国联邦人给我们的智慧呀。说到这儿，法案意义重大，跟我们这Isobel Yeung有一拼。
 
-王毅和杨洁篪都表示是时候侵略台湾了，只要拿下台湾和南海，中共的版图就扩张47%，不过唯一担心的就是俄罗斯是个变数，而日本无所谓，因为害怕中共的核武器，所以美国和日本不敢干涉中共武装犯台。他们认为，未来二十年，美国会处于崩溃边缘，欧洲一盘散沙。世界唯有共产党独大，此时的俄罗斯和日本只能认可以中共为中心的多级管理格局。
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-中共决心利用冬奥会挑逗起墙内的爱国情绪。拜登法案让中共彻底死了心，但是侥幸的认为如果侵略台湾美国会袖手旁观。中共认为2022年共和党会大赢并造成美国内战。郭先生表示，这是上天在帮助新中国联邦灭掉共产党。
+编辑整理：Jacques；
 
-文字版原文：[文贵直播：美“国防支出法案”预示美国与中共正式为敌](https://gnews.org/zh-hans/1810318/)
+字幕文件制作：小满；
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+视频制作及上传：Cindy；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+G-News发布：小满；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

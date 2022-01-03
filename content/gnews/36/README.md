@@ -2,41 +2,24 @@
 ---
 
 
-## 《新中国联邦宣言》是治愈共产主义创伤的答案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
+## 【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818111/)
 
-作者：纽约香草山农场 文真
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-150.png)（三星即将推出的 NFT 电视平台的预览）[图片来源](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+据TheVege1月2日报道，三星表示，正计划从2022年的电视产品系列开始广泛支持NFT。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+三星公司在一份新闻稿中说：“随着对 NFT 的需求不断增加，对当今分散的观看和购买环境的解决方案的需求从未如此之大。在2022年，三星将推出世界上第一个基于电视屏幕的NFT浏览器和市场聚合器，这是一个突破性的平台，让你在一个地方浏览、购买和展示你最喜欢的艺术品。”
 
-在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
-在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
+根据三星的说法，这个平台将让创作者“与世界分享他们的艺术”，并让潜在买家在购买前预览 NFT。
 
-直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
+当在其2022年的电视上观看NFT时，三星也非常注意细节。电视机上的智能校准功能将自动调整显示设置，“按照创作者的预设值，所以你可以放心，你的作品看起来无可挑剔，具有真实的图像质量。”
 
-参考链接：
+信息来源：[Samsung promises ‘groundbreaking’ new TV feature: NFT support – The Verge](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
 
-1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
-2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
-3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-编辑：Ivy001
-总编：文真 
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

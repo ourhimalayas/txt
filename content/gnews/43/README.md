@@ -2,33 +2,41 @@
 ---
 
 
-## 01/03每日播报｜著名共和党众议员泰勒·格林的推特账户被永久封杀
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1817763/)
+## 《新中国联邦宣言》是治愈共产主义创伤的答案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61d2ba2c31a71619b573f2e5)**
+作者：纽约香草山农场 文真
 
-**2022-01-03**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-赫芬顿邮报1月2日报道，美国推特公司周日表示，佐治亚州共和党众议员泰勒·格林的个人推特账户在多次违反推特关于中共病毒所谓的相关错误信息发布规定后被永久停止。
+在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
+在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
 
-这位被认为是美国极右翼政治代表人物的共和党人在她第五次被社交媒体平台巨头推特暂停账户后再次触犯推特的相关规定，导致她被推特永久封杀。
+直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
 
-泰勒·格林在代表乔治亚州参加第14 届国会选区竞选众议员时一直使用的一个单独的推特账户截至周日仍然活跃发推。泰勒·格林于周日回击推特，称推特为“美国的敌人”，她在一份声明中说道，“没关系，我会告诉美国我们不需要他们，是时候打败我们的敌人了。当人们说真话时，这些人便无法成功完成共产主义革命。”
+参考链接：
 
-泰勒·格林的个人推特账户上一次被暂停是在 2021年的8月份，当时她在推特上说 中共病毒疫苗“失败”并且“FDA不应该批准中共病毒疫苗”。
+1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
+2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
+3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
 
-泰勒·格林于本周六在推特上发布了一份清单，列举了美国因中共病毒大流行而“不再自由”的一些方面。泰勒·格林的一位发言人告诉赫芬顿邮报，这就是导致她被推特永久性封杀的帖子。
 
-泰勒·格林发布的清单包括“未接种疫苗的健康人是一个新的人种”以及戴口罩会让孩子生病并“破坏他们的自然学习的过程”等。另一条推文声称，如今有大量的因中共病毒疫苗死亡的案例被忽视，政府强制接种疫苗的要求也在持续增加。” 截至周日早晨，该帖子在她的脸书帐户上仍然可见。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-（秘翻新闻主编 清风先生编译报道）
+编辑：Ivy001
+总编：文真 
+校正/发稿：我不在这里
 
-发布:星星
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-* * *
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

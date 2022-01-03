@@ -2,69 +2,42 @@
 ---
 
 
-## 有声|【战友心声】2022新年祝福
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1818124/)
+## 要尽可能在中共房地产和金融雪崩到来前救一个是一个
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818187/)
 
-配音：香草山教育部 – Rose
+**郭文贵先生**：然后房地产现在市场流通的房子，全国各省市不允许房地产管理部门、房管局公报所有的……就是今年卖了100套房，后边最低的那套房价格不能公布。
 
+你就这么忽悠老百姓，你说这个国家还了得吗？继续造假票据、庞氏骗局，大家视而不见。第二、便宜的房子不能公布；第三、不允许你破产，要等着党过完奥运会再破产，最后谁为这买单呢？政府不生产一分钱，没有一个国家的政府会生钱，这个钱都是谁拿的？老百姓拿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-战友们带着满满的喜币迎来了2022年的新年钟声。
+兄弟姐妹们，从此可见，共产党接下来的所有房地产的崩盘，金融的崩盘，它不是一般的崩，我们没有办法能拯救任何人，但是我们绝对要像过去五年一样，我们要提前告知。我们让所有尽可能地知道这个雪崩的时刻的到来，能救一个是一个。
 
-我要献上给战友们的新年祝福！
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-过去几年七哥带着战友们腾飞。
+编辑整理：Jacques；
 
-Gtv媒体平台是我们战友的灭共舞台。
+字幕文件制作：小满；
 
-喜币隆重上市战友们成了财富的主人。
+视频制作及上传：Cindy；
 
-贵族的生活正在向我们招手。
+G-News发布：小满；
 
-Gfashion时尚的潮流是我们新中国联邦人的形象。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-Gettr是所有人自由发声的平台。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-Gclub俱乐部是给战友们享受的盛宴。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-2022年必将是新中国联邦战友们灭共的大好时机。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-中共的经济崩溃,内部激裂决斗。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-习恶魔和王太監同时走向灭亡之路。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-国际黑暗势力也将成为阶下囚。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-中共给世界带来的黑暗即将过去。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-胜利的曙光就在我们眼前。
-
-世界将回归自然生活新时代。
-
-战友们，在这新年欢乐之夜，让我们尽情地欢呼跳跃！
-
-让我们举起红酒杯，迎接2022新年的到来！
-
-2022年1月1日
-
-文字版原文：[【战友心声】2022新年祝福](https://gnews.org/zh-hans/1811324/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
