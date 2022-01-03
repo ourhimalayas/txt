@@ -15,77 +15,77 @@
 
 ---
 
-### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/1/README.md)
+### [第205期玫瑰看新闻-国际热点新闻](/content/gnews/1/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/2/README.md)
+### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/2/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/3/README.md)
+### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共征税大变局，高收入人群被一锅端](/content/gnews/4/README.md)
+### [中共征税大变局，高收入人群被一锅端](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/5/README.md)
+### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/6/README.md)
+### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/7/README.md)
+### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/8/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例](/content/gnews/8/README.md)
+### [蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|苗难](/content/gnews/9/README.md)
+### [有声|苗难](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|郭先生圣诞、元旦大直播有感](/content/gnews/10/README.md)
+### [有声|郭先生圣诞、元旦大直播有感](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [再有新闻媒体遭鎭压 关慧贞哀香港一国两制已死](/content/gnews/11/README.md)
+### [再有新闻媒体遭鎭压 关慧贞哀香港一国两制已死](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [年度最荒唐的911报警电话](/content/gnews/12/README.md)
+### [年度最荒唐的911报警电话](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [有声|《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/13/README.md)
+### [有声|《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/14/README.md)
+### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [默克和辉瑞的“抗病毒”药丸只是利用新冠病毒歇斯底里的另一种牟取暴利的骗局](/content/gnews/15/README.md)
+### [默克和辉瑞的“抗病毒”药丸只是利用新冠病毒歇斯底里的另一种牟取暴利的骗局](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/16/README.md)
+### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [随着全国新的 Covid 病例达到六个月高点，以色列的大规模疫苗接种噩梦恶化](/content/gnews/17/README.md)
+### [随着全国新的 Covid 病例达到六个月高点，以色列的大规模疫苗接种噩梦恶化](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共显露奴役地球殖民星际的险恶用心](/content/gnews/18/README.md)
+### [中共显露奴役地球殖民星际的险恶用心](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [每日快报：乔·罗根 (Joe Rogan) 加入 GETTR](/content/gnews/19/README.md)
+### [每日快报：乔·罗根 (Joe Rogan) 加入 GETTR](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [不考虑代价暴露赵立坚智商底限](/content/gnews/20/README.md)
+### [不考虑代价暴露赵立坚智商底限](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [带头反疫苗，福特女儿警察丈夫遭无限期停职](/content/gnews/21/README.md)
+### [带头反疫苗，福特女儿警察丈夫遭无限期停职](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/22/README.md)
+### [有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [马龙博士：如果历史上最大的人类实验失败了怎么办？](/content/gnews/23/README.md)
+### [马龙博士：如果历史上最大的人类实验失败了怎么办？](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|日本尖端临床医学会议报告称基因疫苗有毒](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [澳大利亚男子自焚反抗疫苗强制](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`

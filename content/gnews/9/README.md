@@ -2,35 +2,18 @@
 ---
 
 
-## 有声|苗难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819261/)
+## 蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1819262/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-元旦欢快的气息尚在
-同事的叹息就来了
-她的亲戚朋友中
-俩个60岁左右的走了
-还说年纪轻轻生病走
-好意问句打几针
-傲慢写在脸上
+有个很出名的21点的玩家，他和一群人玩，他会算牌数牌，他通过博弈论和数学概率的方法，到了有利的时候，会向跟他一起玩的所有人发一个信号，那些人慢慢懂了之后，他们一起来玩就会让赌场损失很严重。
 
-原文链接：[苗难](https://gnews.org/zh-hans/1814081/)
+他后来进了新泽西州法院的一个黑名单，他就对赌场发起了诉讼，因为他这个不是作弊，只是用了策略，他会发出这个信号，但信号不一定是语言，但其他人可以Get到这个信号。一般法律会站在赌场那边，个人去告赌场其实也是攻防双方的博弈。
 
-音频处理：喜山必胜Maverick
+这令人想起电影里的老千，以后就拒绝你去赌场，赌场也会给客人贴标签，他们也在规避他们潜在的对手，对他们Business的掠夺。
 
-发稿：Daxia
+直播视频：[第三十七期 法律你我她 – 博彩行业及相关法律](https://gtv.org/video/id=61be79697882000d51040aea)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑/发文：蓝枫法律栏目
 
  
 

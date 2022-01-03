@@ -2,57 +2,33 @@
 ---
 
 
-## 带头反疫苗，福特女儿警察丈夫遭无限期停职
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819110/)
+## 不考虑代价暴露赵立坚智商底限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819123/)
 
-作者：BlogTo
-翻译：HimaFAFA
+**【国内新闻短评**】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-32.png)
+**据新浪网2022年01月02日报道，交部发言人赵立坚发推特，质疑西方媒体偏颇报道中国的“万能模板”——只要标题加上代价是什么。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3355-a9oda-4en14-1.jpg)**图片来源：新浪**![](https://assets.gnews.org/wp-content/uploads/2022/01/qqq.jpg)**图片来源：新浪网**
+**短评：**
 
-作为反疫苗代表、以及安省省长道格福特的大女儿Krista可算是在疫情期间吸足了流量。一个月前，Krista的丈夫Haynes因为违反多伦多警察局的疫苗接种规定而被停职，Krista对此“大骂不止”。
+***赵战狼在国内可以发推特，本身就是一个悖论。网信办最新规定，个人翻墙登陆外国社交媒体违法。赵战狼代表国家可以发推特，关键是发了也只有国外民众才能看到，墙内为何宣传呢？这种逻辑不通，秀智商下限的报道好歹小编审核一下再发。***
 
-然而近日，Krista丈夫在网络上发布的一篇“抱怨文”显示，他已经交出了警徽。而他这篇文章也被人们指出“博同情失败”！
+***来看下武汉疫情得到控制，代价是什么？赵战狼如果不是装疯卖傻么，那就是智商有问题。代价是什么不知道？几十万的人命为代价，孩子失去父母和亲人，家庭消亡破碎，多少人饿死家中，这不是代价？人命在战狼眼里连代价都不算，何等让人心寒。说别人酸葡萄心理，羡慕中共经济稳定发展。稍稍有点常识，就知道中共崛起的代价是环境污染和榨取老百姓的血汗。强国成为第一癌症大国，空气、水和土壤污染世界第一，这些环境污染代价就是用目前的2倍GDP总和去治理也无济于事。这个经济发展代价党国居然不清楚？小到个人，大到国家，任何重要决策首先考虑的就是代价核算。绝不是屁股决定脑袋，想干啥就干啥。***
 
-像往常一样，Krista和Haynes将“停职”视为一种因疫苗而产生的不公正现象。
+***强国可以不考虑任何代价就做决策，因为不关心韭菜的命运，只要经济发展，中南坑永远可以有特供食品、空气和水，不行还可以用血汗钱从国外进口。 “一将功成万骨枯”的做法现在还要赞扬，智商下限也确实低。要么是战狼赵已彻底癫狂，装疯卖傻，要么就是智商太低，一句话彻底道出中共邪恶本质——国民生命连代价都不算。***
 
-这位肌肉哥和前警察在他的Instagram账户htrain8中发布了他的帖子。该帖充满了关于“荣誉”和“诚信”的讨论。
+**文章观点仅代表作者个人，与gnews平台无关**
 
-Haynes说：“20年来，我从未用它来免费获得任何好处或牟利，或要求任何特殊待遇。20年了，它每天都放在我身边，在我的口袋里。”
+**链接：**[https://news.sina.com.cn/c/2022-01-02/doc-ikyamrmz2728792.shtml](https://news.sina.com.cn/c/2022-01-02/doc-ikyamrmz2728792.shtml)
 
-“今天，多伦多警察局吊销了我的证件，这是他们让我们休无薪假措施的一部分。我想，相比把警徽还回去，让我失去勇气和正直更难。我不需要警徽来获得荣誉、领导力，但是我需要勇气和正直来实现这些。”
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-“注意安全，互相照顾。我希望你们每一个人都能找到自己需要的东西来照顾自己和所爱的人。”
-
-支持疫苗和反对疫苗的人们都对他发布的帖子发表了一些列评论。
-
-一些人认为警察的工作职责是“服务和保护”。在反疫苗者被边缘化的情况下，警察的工作职责应该包括保护他们免受病毒感染。
-
-但也有些人认为这篇告别帖明显的在博取同情，但是失败了。
-
-有些人甚至在庆祝Haynes的停职。
-
-而因为疫苗发生的一切似乎都影响到了省长道格福特和他的大女儿曾经亲密无间的关系。几年前，省长Ford的圣诞贺卡中总会出现Krista，但是现在她消失了。
-
-对于福特来说，Krista和她丈夫公开反对疫苗和公共卫生限制是个人的痛苦！
-
-来源：https://www.blogto.com/city/2021/12/krista-ford-toronto-cop-hubby-badge-revoked/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
