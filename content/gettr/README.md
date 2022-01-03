@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/3/2022 7:52 AM (UTC)`
+
+1/1/2022 Miles Guo: We grow in the negativity of others, to grow & mature rapidly in self-respect. There is only one reason that we are the ones who eliminate communism. Everyone is a butterfly; everyone can trigger the butterfly effect. When I live broadcast today, I feel that it is the result of the common growth, breathing, and struggle of all of our lives.You have been working on a great cause, something you might not fully appreciate its importance at this point in time.<br/><br/>1/1/2022 文贵先生新年直播：我们在否定中成长，在自恋中飞速的成长和成熟. 只有一个理由，因为我们是共同的灭共者.每个人都是一个蝴蝶，每个人都能扇起蝴蝶的力量.我每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸，共同奋斗的结果。你们在做着一生当中可能你自己到现在都无法想象的，多么伟大的事业。<br/>
+![img](https://media.gettr.com/group23/getter/2022/01/03/07/476ea90f-4124-f274-25c6-e9ff23fd32a8/out.jpg)
+
+---
+
+`@miles 1/3/2022 7:47 AM (UTC)`
+
+1/1/2022 Mr. Miles Guo: We have to be selfless, recognize truth and falsehood, discern between good and evil, conscience and justice will connect many people together, like fire to bring you life and remove evil.<br/><br/>1/1/2022  文贵先生新年直播：我们要无我，识真假，辨善恶，良知和正义会把很多人连在一起，像火一样给你带来生机，驱除邪。<br/>
+![img](https://media.gettr.com/group48/getter/2022/01/03/07/18efd499-eed2-6533-a181-db1dcee21d2e/out.jpg)
+
+---
+
 `@miles 1/3/2022 7:39 AM (UTC)`
 
 1/1/2022 Miles Guo：2022 will be very exciting, and there will be huge challenges. The only opportunity and market of social media left is for us. The United States, Europe, and Japan are the three places of fierce attacks, and we must be fully psychologically prepared and insist that only truth is indestructible. We will definitely have another great harvest year in 2022, but you have to work hard before the harvest.<br/><br/>1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。<br/>
@@ -139,20 +153,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: Each fellow fighter of the Whistleblowers’ Movement is fulfilling their mission to save the world, while the CCP’s old kleptocrats are living in the endless lies and fear; the Japanese media’s report on the CCP remodeling Pangu Plaza’s dragon-head-shaped tower has received extensive attention in Washington DC; the actual downloads of GETTR App are as many as 35 million - how powerful GETTR is!<br/><br/>1/1/2022 文贵直播：每位爆料革命战友都在执行拯救世界的使命，而中共老杂毛却活在无尽的恐惧和谎言中；日媒对盘古改龙头的报道在华盛顿受到广泛关注；盖特的真实下载量达3500万 - 这是多大的力量！<br/>
 ![img](https://media.gettr.com/group20/getter/2022/01/02/02/07e1d40f-50b8-4a79-6324-8cf022fc4aef/out.jpg)
-
----
-
-`@miles 1/2/2022 2:30 AM (UTC)`
-
-2022年：1月1号．伟大而神奇的一天．衷心地感谢所有的参与今天直播的台前幕后的所有战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏在此祝大家元旦节快乐……💋💋💋💋💋💋💋💋💋
-![img](https://media.gettr.com/group44/getter/2022/01/02/02/159dd2eb-c4a8-6dcb-4294-34c0ddbf9f9c/out.jpg)
-
----
-
-`@miles 1/1/2022 10:39 PM (UTC)`
-
-1/1/2022 Miles Guo: How to cure the trauma caused by communism after the CCP is taken down? You can find all the answers in the Declaration of the New Federal State of China, and please read it carefully<br/><br/>1/1/2022 文贵直播：灭共后如何治愈共产主义创伤？《新中国联邦宣言》给了你一切的答案，请一定认真阅读<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/01/22/060e44cb-0555-cfc3-a6c2-8ab89d8987cb/out.jpg)
 
 ---
 
