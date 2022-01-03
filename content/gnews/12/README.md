@@ -2,59 +2,23 @@
 ---
 
 
-## 郭先生圣诞、元旦大直播有感
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1816900/)
+## “疫情恐慌的持续”与“3年后完工的建厂投资”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816944/)
 
-作者：香草山教育部 – 文玖
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-14.png)
+图片来源： 网络图片合成
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据“美国思想家”网（American Thinker）12月31日文章揭露，滋养于人们对PCR核酸检测法的盲信、及各方对病毒新变种不断的虚夸报告，新冠疫情的恐慌这厢持续延绵；而那厢，政府签署投资1.4亿美元、2024年底完工“新冠检测试纸”材料厂，笔墨未干。
 
+虚夸的疫情报道长期霸占新闻头条，一方面源于人们对病毒检测的盲信， “PCR核酸检测”至今为止作为主流的新冠病毒检测法，不仅会产生大量的假阳病例，而且无法辨别新冠病毒和普通流感病毒，导致染病数据长期被大幅虚计。另一方面，媒体推波助澜、引发人们对奥米克戎新变种产生恐慌。实际上，奥米克戎不仅引发症状基本非常轻微、和普通感冒很难区分；而且传染性可能也被高估，美国疾控中心（CDC）18日报告显示一周新增的新冠病例中73%为奥米克戎，随即25日大幅纠正该比例成23%。但数据逐渐表明的一个不容忽视的趋势是，奥米克戎更容易感染新冠疫苗接种者。
 
+让恐慌持续，政府也许非常明白其必要性。拜登政府刚与德国默克旗下的生命科学业务子公司“密理博·西格玛”（MilliporeSigma）签订了一项价值1.37亿美元的建厂协议，生产硝酸纤维素膜（nitrocellulose membrane）用于新冠自检试剂盒，预计月产量可供应生产8330万套产品，最早可于2024年底在威斯康星州完工。
 
+**新闻来源：**
 
-
-郭先生圣诞大直播9个小时，元旦大直播12个小时，感受最深的是一个字：爱！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-20.png)
-
-圣诞大直播七哥跟“爆二代”年轻战友甚至还有小朋友联欢，七哥看着他们，满眼都是喜爱，对小战友更是有求必应。小战友们不仅可爱，更有灵性，对于七哥的分享，他们听得入神，也触动了屏幕前的我们。一场大直播，太多的欢笑和感动，满满都是爱！
-
-元旦大直播，一百多位战友与七哥同框同心。无论是跟了5年的老战友，还是刚加入十几天的新战友；无论是年轻战友，还是老年战友，每个人都说着发自肺腑的话。不管是开怀的笑，还有激动的泪，都是那么真实打动人心。参与直播的战友很激动，屏幕前观看的战友也很激动。那一刻，战友之情，跨越时空，流进每个人的心田。
-
-这就是爆料革命，这就是新中国联邦，这就是我们战友。我们一起经历过，一起笑过，一起哭过，甚至吵过……这一切都让战友情更深，因为我们的心灵是相通的。
-
-试问哪一个人不想要这样的战友？哪一个人不想要这样的情感？哪怕是那些体制内的官员，他们也是人。他们虽不缺钱和权，但他们从来不会得到这种爱！不是他们不想，而是自身所在的中共体制，不容许他们想！在中共体制下，动真情意味着粉身碎骨；而在新中国联邦，真情实感让我们更安全！这就是新中国联邦与中共最大的不同！
-
-两次大直播告诉我们：
-
-因为爱，我们更坚定；
-
-因为爱，我们更强大；
-
-因为爱，我们一定能消灭中共！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+1. [COVID testing has become ridiculous and even counterproductive](https://www.americanthinker.com/blog/2021/12/covid_testing_has_become_ridiculous_and_even_counterproductive.html)
+2. [Biden inks $137 million contract to boost supply of key material for COVID tests](https://www.yahoo.com/news/biden-inks-137-million-contract-220308052.html)
 
 
  
