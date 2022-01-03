@@ -15,110 +15,110 @@
 
 ---
 
-### [从西安物资供应看中共对平民的歧视](/content/gnews/1/README.md)
+### [泽连科医生谈制造病毒疫苗灾难的罪犯和怪物们的动机](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [01/03每日播报｜法定货币终走向地狱  富翁们纷纷涌入数字货币市场](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [又一家香港新闻媒体因“自由环境恶化”而关闭](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [乔·艾伦：人类可能会成为超自然AI的宠物](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [从西安物资供应看中共对平民的歧视](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [杀死那个石家庄人变成杀不死的石家庄人](/content/gnews/2/README.md)
+### [01/03每日播报｜又一家独立的香港新闻网站将关闭](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [杀死那个石家庄人变成杀不死的石家庄人](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [麦卡洛：抗疫须摈弃虚假言论并使用伊维菌素和羟氯喹](/content/gnews/3/README.md)
+### [麦卡洛：抗疫须摈弃虚假言论并使用伊维菌素和羟氯喹](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [01/03每日播报｜著名共和党众议员泰勒·格林的推特账户被永久封杀](/content/gnews/4/README.md)
+### [01/03每日播报｜著名共和党众议员泰勒·格林的推特账户被永久封杀](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登、福奇和盖茨关于中共病毒疫苗满嘴谎言](/content/gnews/5/README.md)
+### [拜登、福奇和盖茨关于中共病毒疫苗满嘴谎言](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内每经网：宁波北仑全区中小学校4日起暂停线下教学；台湾花莲县海域发生6.4级地震](/content/gnews/6/README.md)
+### [墙内每经网：宁波北仑全区中小学校4日起暂停线下教学；台湾花莲县海域发生6.4级地震](/content/gnews/11/README.md)
  ` 首尔天池农场`
 
-### [中共流行病砖家：每个中国人都要打疫苗，还要打加强针](/content/gnews/7/README.md)
+### [中共流行病砖家：每个中国人都要打疫苗，还要打加强针](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共谎言加暴力的“动态清零”式防疫策略](/content/gnews/8/README.md)
+### [中共谎言加暴力的“动态清零”式防疫策略](/content/gnews/13/README.md)
  ` 儒为`
 
-### [一位女孩分享了她接种辉瑞加强针后的噩梦般的生活](/content/gnews/9/README.md)
+### [一位女孩分享了她接种辉瑞加强针后的噩梦般的生活](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大用老贷款延期增加新贷款的方式融资45亿玩老百姓](/content/gnews/10/README.md)
+### [恒大用老贷款延期增加新贷款的方式融资45亿玩老百姓](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西安小伙买馒头被防疫人员群殴](/content/gnews/11/README.md)
+### [西安小伙买馒头被防疫人员群殴](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [上风上水上龙头](/content/gnews/12/README.md)
+### [上风上水上龙头](/content/gnews/17/README.md)
  ` 骄子`
 
-### [中共“声称”西安疫情开始出现拐点](/content/gnews/13/README.md)
+### [中共“声称”西安疫情开始出现拐点](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [中共病毒在西方衍生出了一种邪教(二)](/content/gnews/14/README.md)
+### [中共病毒在西方衍生出了一种邪教(二)](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党每秒每时都在杀人吃人肉把人类变成畜生不如的类](/content/gnews/15/README.md)
+### [共产党每秒每时都在杀人吃人肉把人类变成畜生不如的类](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [以色列出现首例流感与新冠病毒结合变种病毒“氟罗那”](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [麦卡洛谈接种中共病毒疫苗后患心肌炎的治疗方法](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [鲜血淋漓的断供者](/content/gnews/18/README.md)
+### [鲜血淋漓的断供者](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [乔•罗根加入盖特，推特的言论审查愈演愈烈](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳总理表示不会给做快速抗原测试的人给予资金支持](/content/gnews/20/README.md)
+### [澳总理表示不会给做快速抗原测试的人给予资金支持](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [已屏蔽秦刚](/content/gnews/21/README.md)
+### [已屏蔽秦刚](/content/gnews/23/README.md)
  ` 骄子`
 
-### [退出美国股市是中国企业的海外上市终结](/content/gnews/22/README.md)
+### [退出美国股市是中国企业的海外上市终结](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [德国持续发放签证给更多阿富汗雇员](/content/gnews/23/README.md)
+### [德国持续发放签证给更多阿富汗雇员](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共匪正向着跟死神见面的地点狂奔](/content/gnews/24/README.md)
+### [共匪正向着跟死神见面的地点狂奔](/content/gnews/26/README.md)
  ` 银河勇气之星`
 
-### [日本政府已确定对人工智能监控技术出口进行管制](/content/gnews/25/README.md)
+### [日本政府已确定对人工智能监控技术出口进行管制](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国今后将很难得到AI监控技术](/content/gnews/26/README.md)
+### [中共国今后将很难得到AI监控技术](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记——七哥谈无我利他](/content/gnews/27/README.md)
+### [大直播后记——七哥谈无我利他](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在35.799 HDO](/content/gnews/28/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在35.799 HDO](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国保险公司的CEO说，18至64岁年龄段的死亡率较大流行前增涨了40%](/content/gnews/29/README.md)
+### [美国保险公司的CEO说，18至64岁年龄段的死亡率较大流行前增涨了40%](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/03 英喜时事速递](/content/gnews/30/README.md)
+### [2022/01/03 英喜时事速递](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：东京日病毒感染人数三个月来首次破百](/content/gnews/31/README.md)
+### [秘翻在线：东京日病毒感染人数三个月来首次破百](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [和Dr.Eglise聊中共医疗的阴谋和从医学角度解决性生活II](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [秘翻在线：韩国1023人针对政府”强制疫苗接种“提起行政诉讼](/content/gnews/33/README.md)
+### [秘翻在线：韩国1023人针对政府”强制疫苗接种“提起行政诉讼](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共公布与拉美国家的合作计划以扩大其影响力](/content/gnews/34/README.md)
+### [中共公布与拉美国家的合作计划以扩大其影响力](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [01/03每日播报|社媒消息：班农先生 罗伯特马龙博士](/content/gnews/35/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [01/03每日播报｜新闻简讯:西安作秀人链传菜 中共病毒药会引起危及生命](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
