@@ -2,30 +2,26 @@
 ---
 
 
-## 中共国可防可控的不是病毒，而是人民
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1816308/)
+## 加拿大魁北克省新冠禁宵令 禁止民众期间遛狗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1816336/)
 
-作者：纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当地时间2022年1月2日晚上，盖特网友发布视频显示，数目非常多的穿白色防护衣人员，以及大量的巴士车、中巴车和各种车辆，出现在西安病例比较集中的地区和城中村。随后疑似防疫人员逐户敲门，进行检查。
+翻译：Torsteintt
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-02-175015-edited.png)图片来源：网络
+根据Montreal Gazette报道，你的狗狗需要去户外小解？ “很不幸”， 魁北克政府宣告新的禁宵令实施包括户外遛狗也不能例外， 魁北克省已于上周五实施了该禁宵令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/002.png)
+该禁宵令规定每天晚10点到早5点不得外出，此前包括一些例外比如允许户外遛狗。 但是户外遛狗的例外自从周六开始在政府官网上被移除。
 
-经查证，原来是西安市政府启动了重点区域核酸筛查工作：对病症较多的社区和城中村等地方，通过敲门行动，摸清人员底数，确保核酸检测不漏一人一户。
+魁北克省长弗朗索瓦·勒戈此前声明：“是否实施禁宵令取决于本省医疗系统是否能够承受未来几周的疫情。”
 
-随后有中共国墙内网友高亮留言：原来“可防可控”说的不是病毒，而是我们。[https://gettr.com/post/plipoq02e6](https://gettr.com/post/plipoq02e6)
+尚未知政府是否特意的无声的，还是无意的错误的禁止了民众在禁宵期间遛狗的权力。 当问到， 首席卫生长官克里斯蒂安·杜贝把此问题提交给了安全长官吉纳维芙·吉尔博，之后问题又被提交回给了卫生部门。
 
-编辑/校对/发稿：菩提树
+新闻链接：[https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec](https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec)
 
-**更多资讯，更多关注**
+编辑/发布：LILY
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+20220102
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
