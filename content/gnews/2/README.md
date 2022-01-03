@@ -2,42 +2,24 @@
 ---
 
 
-## 拜登：如果乌克兰受到攻击，美国将做出回应
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816779/)
+## 辉瑞重金阻挠《虚假申报法修正案》的通过
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816806/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+采编：UCool 优酷      编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image.jpg)
+[图片来源](https://fortune.com/2021/07/28/pfizer-court-fight-medicare-patients-copay-lawsuit/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Mr-Biden-spoke-with-Russian-President-Vladimir-Putin.jpg)
+据美国【国家脉动】近日报道，[辉瑞制药]在被其解雇员工举报了该公司“新冠病毒疫苗”的副作用伤害后，重金聘请了多家公关公司，游说反对《虚假申报法》的修正案，试图以此削弱对举报人的法律保护，并避免承担巨额赔偿。
 
+据悉，《虚假申报法》是打击针对政府欺诈行为的主要诉讼工具，该法所提出的索赔通常涉及医疗保健、军事或其他政府采购项目等。而在去年7月提出的该法修正案，则将重要的举证责任置于被指控方，同时还制定了新的保护举报人措施，以防止后者被列入行业黑名单而导致将来无法就业。
 
+报道称，[辉瑞公司]为此招募了近百名说客，2021年的相关支出已超过700万美元，并因此导致该修正案历经“提议-否决-再提议”的反复拉锯，目前仍处于参议院的立法排期等待之中。
 
-图片来源：www.wsj.com
+校对编辑：硫酸羟氯喹64
 
+发稿： 苦尽甜来 (文來）
 
-#### 编译：小红帽
-
-根据News Daily 1月3日报道， 美国总统乔·拜登（ Joe Biden）在与乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelensky）的电话中表示，如果俄罗斯进一步入侵乌克兰，美国及其盟国将“果断回应”。
-
-“拜登总统明确表示，如果俄罗斯进一步入侵乌克兰，美国及其盟友和伙伴将做出果断反应，”白宫周日就这次通话发表声明说。
-
-声明说，拜登先生还重申了华盛顿当局对乌克兰“主权和领土完整”的承诺以及 “没有你就没有我”的原则。
-
-美国总统还表示支持采取措施，缓解乌克兰顿巴斯分离主义地区的紧张局势，并“积极开展外交活动，推动明斯克协议的实施”，以支持所谓的诺曼底模式，这是一系列由法国和德国调解的会谈，旨在实现乌克兰东部地区的和平。
-
-周四，拜登先生与俄罗斯总统弗拉基米尔·普京（Vladimir Putin）通了近一个小时的电话，谈到了乌克兰冲突和其他重要议题。
-
-这次通话是在1月9日和10日在日内瓦举行会谈之前进行的。在此期间，两国外交官将会面讨论对峙问题。俄罗斯和北约计划在两天后，即1月12日举行单独会谈。
-
-新闻来源：[US will respond if Ukraine attacked: Biden (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2022/01/03/us-will-respond-ukraine-attacked-biden/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
 
  
 

@@ -17,6 +17,16 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 1/2/2022 11:19 PM (UTC)`
+
+Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
+> `@jessicavaugn 1/2/2022 10:04 PM (UTC)`<br/>It’s 2022 and we will be free. Thank you for the follow! 
+![img](https://media.gettr.com/group16/getter/2022/01/02/22/f2946c97-18a6-3a78-8bdd-07bbbb26b13c/cf4d6dd5d08b9664e2ee580f69a9659d.jpg)
+
+---
+
 `@miles 1/2/2022 10:02 PM (UTC)`
 
 1月2号：@joerogan 今天整天很匆忙的一天. 各位請務必分工合作.  我們今天有5個緊急的bugs得解決. 以及幾個大v的貼心服務. 至於被黑的統計, 其餘有空的人可以幫忙分享一些數據證明. 我們兩天前已開始關注這被黑的可能性. <br/>https://www.washingtonpost.com/national-security/china-harvests-masses-of-data-on-western-targets-documents-show/2021/12/31/3981ce9c-538e-11ec-8927-c396fa861a71_story.html <br/>12/31/2021 华盛顿邮报报导，中国正把对国内网络的监控手段转为对外，深入搜集脸书、推特等西方社群媒体的数据，为政府机构和军警单位搜集外国目标的情资。<br/>华盛顿邮报（The Washington Post）报导指出，中国过去10年开发出「舆情分析软件」，大范围监控国内网友和媒体的政治敏感言论，而该报审查300多份中国政府从2020年起对外招标的文档、合同和公司档案发现，中国开始把这套手段用在海外，采购软件从推特（Twitter）、脸书（Facebook）和其他西方社群平台搜集情资。
@@ -143,13 +153,6 @@
 
 12月31号：祝所有的战友家人新年快乐，无限的感激无限的爱．献给所有的天下的我们的🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏志同道合的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 December 31: Happy New Year to all my comrades in arms and family, infinitely grateful for infinite love.  To all our 🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 like-minded brothers and sisters!  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏💋💋💋🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏  🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏 
 ![img](https://media.gettr.com/group24/getter/2022/01/01/04/628fff35-ad98-95df-2fdd-b42653a23ba3/out.jpg)
-
----
-
-`@miles 1/1/2022 12:05 AM (UTC)`
-
-《我是音雄》第二季总决赛暨跨年颁奖典礼
-![img](https://media.gettr.com/group6/origin/2022/01/01/00/c99c4b6b-d27d-248e-4e90-195737826391/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

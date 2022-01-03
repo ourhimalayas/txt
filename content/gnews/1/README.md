@@ -2,24 +2,24 @@
 ---
 
 
-## 辉瑞重金阻挠《虚假申报法修正案》的通过
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816806/)
+## 南极科考站爆发奥密克戎疫情
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816831/)
 
-采编：UCool 优酷      编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image.jpg)
-[图片来源](https://fortune.com/2021/07/28/pfizer-court-fight-medicare-patients-copay-lawsuit/)
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image.jpg)
+据加拿大[国家邮报]2021年12月30日报道，在南极洲比利时极地科考站的25名工作人员中，目前大部分都感染了“奥密克戎”病毒，而且所有感染者都接种了两剂以上“新冠病毒”疫苗。
 
-据美国【国家脉动】近日报道，[辉瑞制药]在被其解雇员工举报了该公司“新冠病毒疫苗”的副作用伤害后，重金聘请了多家公关公司，游说反对《虚假申报法》的修正案，试图以此削弱对举报人的法律保护，并避免承担巨额赔偿。
+报道称，这些工作人员在离开比利时飞往南非前的两小时内进行了病毒测试。抵达开普敦后被就地隔离了10天，并进行了第二次病毒测试。在飞往南极科考站之前，他们又做了第三次病毒测试，并在到达南极五天后做了最后一次病毒阴性测试。
 
-据悉，《虚假申报法》是打击针对政府欺诈行为的主要诉讼工具，该法所提出的索赔通常涉及医疗保健、军事或其他政府采购项目等。而在去年7月提出的该法修正案，则将重要的举证责任置于被指控方，同时还制定了新的保护举报人措施，以防止后者被列入行业黑名单而导致将来无法就业。
+尽管如此，“奥密克戎”疫情仍然于近期在该科考站内爆发，虽然感染人员已被立即隔离，但始终无法阻止该病毒的继续传播。目前，整个南极科考站不再允许任何新成员到来，直至疫情消失。
 
-报道称，[辉瑞公司]为此招募了近百名说客，2021年的相关支出已超过700万美元，并因此导致该修正案历经“提议-否决-再提议”的反复拉锯，目前仍处于参议院的立法排期等待之中。
+虽然南极洲看似远离被人类文明污染的一片净土，但最终也未能逃脱“中共病毒”的无辜戕害。
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
+[原文链接](https://nationalpost.com/news/world/covid-outbreak-at-remote-antarctic-station-among-fully-vaccinated-researchers-like-horror-movie-plot)
 
  
 

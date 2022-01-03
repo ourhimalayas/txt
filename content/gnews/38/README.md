@@ -2,36 +2,32 @@
 ---
 
 
-## 世界卫生委员会呼吁停止实验性“疫苗”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1815598/)
+## 海军陆战队已开除了200多名拒绝COVID疫苗强制令的军人
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1815763/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，据盖特消息显示，世界卫生委员会WCH日前呼吁，全球应立即停止接种中共病毒实验性“疫苗”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-上午12.06.11.png)
-一位该组织的工作人员在视频中表示，关于中共病毒，眼下其实已经存在安全、有效和低负担的治疗方法，但各个国家的政府、卫生部门和主流媒体非但不推广这些安全、实惠的治疗方法，反而只是将那些感染者隔离在家中，直至他们的病情恶化到需要入院治疗。
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/EAHTZFERFFHARNEHV2LL6264F4.jpg)图片来源：The Washington Post
+根据《Business Insider》12月31 日报道，美国海军陆战队目前共开除了206名拒绝遵守疫苗强制的服役人员，比12月16日首次开除的100多名部队人员有所增加。
 
-与此同时，科学研究、专家经验和大量案例都清楚地表明，目前正在大规模进行的中共病毒实验性基因疫苗存在着严重的风险。该工作人员提到，这些基因疫苗既无效，更不安全，甚至已经被证明是有毒的。此外，这些中共病毒疫苗中的已知成分被证明会对人体造成生物危害，而其中未被公开的成分则更让人担忧，甚至可能会对被注射者构成更大危害。而世界各地的不良反应报告也表明，中共病毒疫苗有严重的副作用，甚至会使接种者死亡。
+根据这项强制令，所有现役海军陆战队员和后备队员都必须分别在11月14日和12月14日之前完全接种疫苗。海军陆战队航空部发言人杰伊-埃尔南德斯（Jay Hernandez）在一份声明中告称，未能获得 “待定或批准的行政豁免、医疗豁免或宗教便利或上诉的成员，将被处理为行政离职”。
 
-对此，世界卫生委员会认为，对于这些中共病毒疫苗给个人和群体健康所构成的严重风险，政府、医疗机构和其他公司都表现出不诚实的做法。因此，该组织发布了一项停止和终结中共病毒疫苗接种的声明，当中要求政府、相关机构和公司以及个人立即停止参与中共病毒疫苗的制造、销售、管理和推广，并立即采取果断行动制止这一前所未有的医学实验，以此停止对包括儿童在内的民众造成更大的伤害。
+埃尔南德斯在声明中说：”目前所有的豁免请求都在逐一审查。每个请求都将根据请求中提交的事实和情况得到充分考虑”。
 
-参考链接：
-1）[https://gettr.com/post/pl6y3w809a](https://gettr.com/post/pl6y3w809a)
-2）[World Council for Health Calls for an Immediate Stop to the Covid-19 Experimental “Vaccines”](https://worldcouncilforhealth.org/campaign/covid-19-vaccine-cease-and-desist/)
+根据海军陆战队的数据，目前94%的现役军人已完全接种疫苗，83%的预备役军人已完全接种疫苗。赫尔南德斯在声明中说，海军陆战队 “认识到COVID-19是一个战备问题。这种疾病在个人之间传播的速度增加了海军陆战队执行任务的风险。我们相信，疫苗可以保护我们的海军陆战队员、我们的社区和国家”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+到目前为止，该部门已经批准了1007项行政或医疗豁免。海军陆战队还收到了总共3,247份宗教豁免疫苗的请求，其中3,115份已被处理，没有一份被批准。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+根据乔-拜登总统周一签署成为法律的《2022年国防授权法》规定的保护措施，所有因拒绝接种疫苗而被开除的海军陆战队员都不会被认为是不光彩地解雇。据Politico报道，除名必须被列为荣誉行政离职。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+原文链接
+https://www.businessinsider.com/more-than-200-marines-discharged-for-refusing-covid-19-vaccines-2021-12
+
+
+
+发稿 Spirit
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
