@@ -2,24 +2,24 @@
 ---
 
 
-## 辉瑞重金阻挠《虚假申报法修正案》的通过
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816806/)
+## 加拿大供应链或因跨境疫苗政策而断裂
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1816872/)
 
-采编：UCool 优酷      编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image.jpg)
-[图片来源](https://fortune.com/2021/07/28/pfizer-court-fight-medicare-patients-copay-lawsuit/)
+采编/编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image2.jpg)
+[图片来源](https://www.trucknews.com/transportation/canada-to-require-vaccines-for-cross-border-truck-drivers-cta-warns-of-perfect-storm/1003155235/)
 
-据美国【国家脉动】近日报道，[辉瑞制药]在被其解雇员工举报了该公司“新冠病毒疫苗”的副作用伤害后，重金聘请了多家公关公司，游说反对《虚假申报法》的修正案，试图以此削弱对举报人的法律保护，并避免承担巨额赔偿。
+据加拿大《头条新闻》1月1日报道，[加拿大卡车联盟]和[加拿大商会]日前联合发出警告称，目前联邦政府对跨越美加边境的货运卡车司机所实行的疫苗强制接种规定，将会破坏该国货物供应链，并有可能导致相关经济领域的崩溃。
 
-据悉，《虚假申报法》是打击针对政府欺诈行为的主要诉讼工具，该法所提出的索赔通常涉及医疗保健、军事或其他政府采购项目等。而在去年7月提出的该法修正案，则将重要的举证责任置于被指控方，同时还制定了新的保护举报人措施，以防止后者被列入行业黑名单而导致将来无法就业。
+报道指出，从1月15日开始，只有完全接种疫苗的货运卡车司机才被允许进入加拿大。为此，预计将有约3万名常年穿越美加边境，从事物资运输的加拿大卡车司机被迫离职。
 
-报道称，[辉瑞公司]为此招募了近百名说客，2021年的相关支出已超过700万美元，并因此导致该修正案历经“提议-否决-再提议”的反复拉锯，目前仍处于参议院的立法排期等待之中。
+据悉，美加之间每年货物运输总量约为7000亿美元，其中62%经由卡车运输。大量卡车司机离职所造成的人手短缺，会让贸易运输能力下降约20%，从而对两国经济产生巨大影响，并因此导致物价上涨，最终损害加拿大消费者利益。
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://thenationalpulse.com/2021/12/30/exclusive-top-mitch-mcconnell-staffer-leads-pfizers-lobbying-charge-to-protect-vaccine-patent-and-block-bill-holding-big-pharma-accountable-for-fraud/)
+[參考链接](https://headtopics.com/ca/fragile-supply-chain-faces-risk-without-delay-to-january-cross-border-vaccine-mandate-warns-truckin-23106217)
 
  
 
