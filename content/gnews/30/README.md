@@ -2,40 +2,34 @@
 ---
 
 
-## 《新中国联邦宣言》是治愈共产主义创伤的答案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
+## 中共国保险业去年百万人离职 保险板块跌30%
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1818086/)
 
-作者：纽约香草山农场 文真
+#### **撰稿：**日本东京方舟农场 子辰
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6F3F3003-C508-4A2A-8DFC-7D08FEC18655.jpeg)（图片来自网络）
 
-在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
-在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
+据《大纪元》1月3日报道，中共国保险业2021年整个板块跌了30%，百万保险人员离开了保险业。
 
-直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
+此前，《证券时报》在2021年12月31日也有报导： 2021年中共国的保险业生存艰难，上市险企股价跌跌不休，保险板块指数全年跌幅高达39%，位居各行业跌幅榜第二位，仅次于教育板块。
 
-参考链接：
+报导认为，股价的下跌源于投资者对险企负债端和投资端的悲观情绪。
 
-1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
-2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
-3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
+来自新华保险副总裁李源的分析认为，大致有三方面原因导致保险板块指数大跌：一是疫情不断反复对个险行业冲击较大；二是监管部门对行业的“强监管、严监管”提出更加严格的要求；三是个险行业的传统个人营销策略难以适应市场的推移和变化。
 
+另外，中共监管当局去年10月底发布《关于进一步规范保险机构互联网人身保险业务有关事项的通知》，导致大批险企失去继续销售部分互联网产品的资质。新规落地后，在互联网渠道保费占比较高的分红险、万能险和投连险等将全部停售，广受市场关注并被部分险企大力推销的一些“网红爆款”产品也将下架。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+保险业低迷，致使从业人员也相继离职。截至9月底，中国平安、中国人寿的营销员分别为70.6万、98万，较二季度末分别下降19.5%、14.8%。营销员的快速流失压制险企高价值业务增速，使多家寿险公司长期期交业务及新业务价值出现负增长，个别险企新业务价值同比下滑逾30%。
 
-编辑：Ivy001
-总编：文真 
-校正/发稿：我不在这里
+*参考链接：[大陆保险业去年百万人员离职 保险板块跌39%](https://www.epochtimes.com/gb/22/1/3/n13477661.htm)*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*素材采编：子辰*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 

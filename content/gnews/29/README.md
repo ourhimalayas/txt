@@ -2,37 +2,24 @@
 ---
 
 
-## 郭文贵先生深度解析“水是生命之源”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818024/)
+## 【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818111/)
 
-作者：纽约香草山文艺部 宁文静
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-150.png)（三星即将推出的 NFT 电视平台的预览）[图片来源](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+据TheVege1月2日报道，三星表示，正计划从2022年的电视产品系列开始广泛支持NFT。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+三星公司在一份新闻稿中说：“随着对 NFT 的需求不断增加，对当今分散的观看和购买环境的解决方案的需求从未如此之大。在2022年，三星将推出世界上第一个基于电视屏幕的NFT浏览器和市场聚合器，这是一个突破性的平台，让你在一个地方浏览、购买和展示你最喜欢的艺术品。”
 
-在2022开年大直播中，郭文贵先生深度解析了水在五行中的中心地位，以及水对于生命、幸福与希望的重要意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.55.55-PM.png)
-郭先生说，水和太阳、空气、土地，构成了人类生存的基本要素。水是大自然循环的动力源泉，也是人类的生命之源。人体70%的成分都是水，没有充足的水分来参与身体的各项机能，花会枯萎，容颜就会衰老憔悴。
+根据三星的说法，这个平台将让创作者“与世界分享他们的艺术”，并让潜在买家在购买前预览 NFT。
 
-郭先生指出，中共国放开了三胎，但是人口出生率却连年下降，正是因为年轻人精神压抑，前途渺茫，超负荷的工作和生存压力压抑了人性的本能，失去了生育的动力，造成民不聊“生”。中共这个违背自然、违背天理、违背人性的专制体制，迫使老百姓不愿意让自己的后代生活在罪恶的世界里。郭先生总结，人的身体机能是由精神来控制的。找不到幸福，看不到希望，自然失去了水的滋润，老百姓觉得生命暗淡无光。
+当在其2022年的电视上观看NFT时，三星也非常注意细节。电视机上的智能校准功能将自动调整显示设置，“按照创作者的预设值，所以你可以放心，你的作品看起来无可挑剔，具有真实的图像质量。”
 
-对比之下，新中国联邦提供了源源不断的精神甘泉、物质滋养，无数战友重新感受到生活的激情和生命的意义。同时，今年是天水之年，壬寅之年，中共破坏了盘古的风水，必遭天谴。
+信息来源：[Samsung promises ‘groundbreaking’ new TV feature: NFT support – The Verge](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
 
-参考链接：[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
-
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)](https://gtv.org/video/id=61d04feaecc0b216cbb3374d)
-
-编辑/总编：文真
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,44 @@
 ---
 
 
-## 捷克新内阁重拾人权价值外交政策 审视与中共的关系
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1818165/)
+## 拜登法案最关键人物都支持新中国联邦是上天送我们大礼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818266/)
 
-#### 撰稿：日本东京方舟农场 北极
+**郭文贵先生**：所以兄弟姐妹们，老天给了我们礼物！这个法案最关键的几个人都是支持我们新中国联邦的，好好查查军事委员这个法案的最关键人是谁，未来你看到未来跟G-TV啥关系，都会到G-TV，等G-TV再投胎以后你就明白了，最关键的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B2326663-BB32-40D9-BCA0-C730C498F596.jpeg)（图片来自网络）
+所以说兄弟姐妹们，我们新中国联邦人要懂得一个基本的逻辑，共产党到今天要不灭，不但我们什么都不存在，世界将没有任何未来，而且我们一定要相信老天在帮我们消灭共产党。
 
-2021年12月中旬，捷克新一届内阁发布了联合执政协议，重拾前总统哈维尔（Václav Havel）主张的以人权价值为导向的外交政策，并重新审视与中共的关系。
+这个法案和共产党的冬奥会和它的疯狂，不要小看了张高丽的“宇宙无限大，地球是一粒沙”，他们掩盖这种虚假新闻给全世界，再次进入塔西佗陷阱，还有这60岁生孩子，是吧？还有北京的整个的现在的政治和经济情况，都是天在帮我们。他们的虚伪、他们的造假、他们的流氓、他们的Low证明了我们的纯洁和伟大、我们的干净。
 
-该协议明确表示，捷克内阁政府将在其外交政策中支持公民社会，促进人权和民主，并推动捷克版的《全球马格尼茨基人权问责法》（Magnitsky Act），该法将允许捷克针对侵犯人权的个人和企业实施制裁。
+Isobel Yeung把我们定义为，把海外华人定为恐怖份子和这种流氓的做法，七哥这次的这种引蛇出洞、诱敌深入，彻底歼之。我说实在话，七哥实在是太了不起了，做的实在是太好了！这是新中国联邦人给我们的智慧呀。说到这儿，法案意义重大，跟我们这Isobel Yeung有一拼。
 
-捷克新总理彼得·菲亚拉（Petr Fiala）曾多次批评上届内阁对中国太过软弱。 他表示，上届内阁的外交政策均建立在“交易”的基础上，对人权的支持是具有选择性，尤其是在与独裁国家交往更容易弃守人权。
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-新内阁成员中，外交部长扬·利帕夫斯基（Jan Lipavsky）在上任后即明确表示要推动“人权外交”，并重新审视捷克与中共的关系。
+编辑整理：Jacques；
 
-本届捷克内阁由5个政党联合组阁。根据五党党魁签署的联合执政协议，捷克新政府将扭转上届政府的亲中俄、反美国、反欧盟统合深化的路线，并重拾前总统哈维尔（Václav Havel）以人权价值为导向的外交政策。
+字幕文件制作：小满；
 
-哈维尔是1989年捷克斯洛伐克推翻共产党专制统治的“天鹅绒革命”（Velvet Revolution）的灵魂人物。1993年成为捷克共和国首任总统，2011年逝世。
+视频制作及上传：Cindy；
 
-90年代末担任过前捷克总统哈维尔顾问的政治分析人士吉里·佩赫（Jiri Pehe）11月中旬曾对美国之音表示，希望新政府会采取与哈维尔理念一致的外交政策，坚定支持人权、支持民主。
+G-News发布：小满；
 
-*参考链接：[捷克重拾价值外交 新政府预期退出与中国的合作机制](https://www.voachinese.com/a/czech-s-newly-inaugurated-government-turns-hawkish-toward-china-20220102/6378660.html)*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*素材采编：北极*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：青城道姑*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*发布：miumiu*
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
