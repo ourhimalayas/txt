@@ -16,6 +16,8 @@
 ---
 ## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年8月23文贵在船上谈王建](/content/2018/08/20180827-6547778481544377583.md)
+
 [翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
 
 [文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
@@ -63,8 +65,6 @@
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
-
-[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
 
 ## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
