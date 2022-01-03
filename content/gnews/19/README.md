@@ -2,31 +2,276 @@
 ---
 
 
-## 有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819091/)
+## 每日快报：乔·罗根 (Joe Rogan) 加入 GETTR
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1819173/)
 
-配音：香草山巡管部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月1日，台湾总统蔡英文发表元旦讲话称：“稳定治理是台湾2022年最重要的目标。我们将坚守主权，维护自由民主价值观，捍卫领土主权和国家安全，维护印太地区和平稳定。我们必须提醒北京当局不要误判形势，防止军事冒险主义在内部蔓延。”
+*作者：*文鸣
 
-针对前一天习近平表示的中国的完全统一是两岸人民共同心愿的态度，蔡英文强调，台湾的一贯立场是“遇到压力不屈服，得到支持不冒进”。追求民主自由不是犯罪，台湾会珍惜得来不易的民主自由，让全世界都看见民主的台湾，不屈服于中共的压力，有勇气走出中共威权的阴影。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-另外蔡英文指出，台中双方共同肩负着维护地区和平与稳定的责任。军事行动绝对不是解决两岸分歧的选择，军事冲突只会影响双方的经济稳定。为缓和地区紧张局势，台北和北京都必须努力”照顾民生，安抚民心”，共同寻求和平解决问题的方法。
+# ***今日摘要***
 
-文字版原文：[台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](https://gnews.org/zh-hans/1814284/)
+1. **[乔·罗根 (Joe Rogan) 加入 GETTR](https://www.zerohedge.com/markets/joe-rogan-joins-gettr-anticipation-censorship-twitter-getting-even-dumber)**
+2. **[感染专家：我们“永远”不会看到冠状病毒的终结](https://www.zerohedge.com/covid-19/infection-experts-we-will-never-see-end-coronavirus)**
+3. **[在法国南部发现具有 46 个突变的新 COVID-19 变体](https://www.zerohedge.com/medical/new-variant-46-mutations-discovered-southern-france)**
+4. **[人寿保险公司 CEO 称 18-64 岁人群的死亡率上升了 40%](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)**
+5. **[阿联酋禁止未接种疫苗的公民离开该国](https://www.zerohedge.com/covid-19/uae-bans-unvaccinated-citizens-leaving-country)**
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+# 重要事件
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- **[01.03 zerohedge：乔·罗根 (Joe Rogan) 加入 GETTR](https://www.zerohedge.com/markets/joe-rogan-joins-gettr-anticipation-censorship-twitter-getting-even-dumber)**
+
+
+播客之王乔·罗根 (Joe Rogan) 周日宣布，在 Twitter 和 YouTube 禁止分享他最新内容的人之后，他已加入社交媒体平台 GETTR。“以防万一推特上的狗屎变得更加愚蠢，我现在也在这里。麾！” Rogan 在GETTR上 发帖，在那里他已经拥有超过 800 万粉丝。该平台发誓要让所有意见保持不受审查，允许新用户导入他们的旧推文，以吸引人们远离 Twitter。
+
+Rogan 最近采访了 mRNA 疫苗的发明者 Robert Malone 博士，他最近因反对使用该技术大规模接种 COVID 的言论而被 Twitter 禁止。在采访中，马龙概述了他认为世界在接受疫苗和广泛的限制作为解决方案时已陷入“大规模形成精神病”。
+
+在采访中，罗根指出：“他们因为不同意任何技术叙述而将你撤职，因为在处理 COVID 方面，技术显然有审查议程，无论你是否在推广他们所谓的疫苗犹豫不决，他们可以因此禁止你，他们可以禁止你在他们眼中，他们认为这是一种正当的冒犯。”
+
+马龙回答说：“我非常努力地向人们提供信息并帮助他们思考，而不是告诉他们该想什么。好的？但关键是如果我不是——如果我不能参与对话，即使我指出可能不方便的科学事实，那么谁可以被允许？”
+
+这段采访的 YouTube 版本以及 Rogan 对心脏病专家 Peter McCullough 博士的采访都被撤下，而 Google 还被指控更改 Malone 的搜索结果和“Mass Formation Psychosis”一词。
+
+Twitter 周日还永久禁止众议员 Marjorie Taylor Greene 质疑其叙述。最后一根稻草似乎是格林询问极左翼众议员亚历山大·奥卡西奥·科尔特斯，她是否因批评罗恩·德桑蒂斯州长缺席而向州长道歉，结果证明是因为他正在照顾患有癌症的妻子。
+
+- **[01.03 zerohedge：感染专家：我们“永远”不会看到冠状病毒的终结](https://www.zerohedge.com/covid-19/infection-experts-we-will-never-see-end-coronavirus)**
+
+
+丹麦感染专家反驳了世卫组织关于 COVID-19 大流行可能在 2022 年结束的预测，声称“我们将永远无法向冠状病毒挥手告别”。
+
+世卫组织总干事谭德塞在今年年初的一份声明中表示，如果所有国家的大多数人都接种疫苗，今年的大流行可能会结束。他补充说，“狭隘的民族主义”和“疫苗囤积”是阻碍实现这一目标的绊脚石。
+
+然而，Ghebreyesus 遭到了丹麦传染病专家的反对，他们认为 COVID-19 对人们生活的影响没有尽头。奥尔胡斯大学传染病学教授埃斯基尔德·彼得森说，大流行真正结束还需要几年的时间。
+
+奥尔胡斯大学医院的首席医师和教授 Lars Østergaard 断言，虽然病毒的大流行阶段可能已经结束，但冠状病毒将始终在幕后徘徊。“大流行可能会结束。但这并不意味着电晕会从我们的日常生活中消失。我认为我们永远无法向冠状病毒挥手告别。我们想要的是在人群中拥有如此良好的免疫力，以至于我们可以像处理我们所知道的其他疾病一样应对它，”Østergaard 说。
+
+正如我们 上个月强调的那样，一项民意调查发现，三分之一的英国人认为大流行永远不会结束，这突显出人们如何由于习得性无助而接受了永久生物安全警察国家。
+
+- **[01.03 zerohedge：在法国南部发现具有 46 个突变的新 COVID-19 变体](https://www.zerohedge.com/medical/new-variant-46-mutations-discovered-southern-france)**
+
+
+自 11 月下旬到来以来，毫无疑问是温和的 Omicron Covid-19 菌株使每日新感染人数创下历史新高，而与巨大的新分母相比，住院人数——尤其是死亡人数——仍然相对较低。
+
+但是，新的变种出现只是时间问题。与 omicron 一样，这种新变种似乎起源于一个非洲国家——喀麦隆——在被法国南部的科学家分离出来后。据报道，第一个官方病例是来自喀麦隆的旅行者，现在它正在法国南部蔓延，根据 medrvix 上发表的研究，至少有12 人感染了它。
+
+需要明确的是——除了它存在的事实之外，我们几乎对这种新菌株一无所知。没有关于严重性、传播性、“长期covid”等的任何内容。我们确实知道它是从原始菌株高度变异的，很像 Omicron。现在判断它是否会被归类为“关注的变体”还为时过早。
+
+在尚未经过同行评审的 medrvix 预印本中，来自法国政府支持项目的专家表示，他们已经在该变体中发现了 46 个突变。该论文的作者写道：“SARS-CoV-2 变体已成为一个主要的病毒学、流行病学和临床问题，特别是在逃避疫苗诱导免疫的风险方面。”
+
+科学家们还假设新变种可能来自“喀麦隆”。读者可以在下面找到完整的报告。该变种被命名为 B.1.640.2，由马赛 IHU 地中海感染基金会的专家首次发现。根据该论文，科学家对变异基因组的分析揭示了46 个突变和“37 个缺失导致 30 个氨基酸替换和 12 个缺失。14 个 43 个氨基酸替换，包括 N501Y 和 E484K，9 个缺失位于 44蛋白质。”
+
+新变种经常被发现，但大多数不会继续成为“受关注的变种”，例如 omicron、delta 和 beta。世卫组织为每个关注的变体分配了一个希腊字母的名称（第一个是“alpha”，第二个是“beta”，而字母“Xi”和“Nu”被跳过，因为它们“令人困惑”，根据谁）。
+
+- **[01.03 zerohedge：人寿保险公司 CEO 称 18-64 岁人群的死亡率上升了 40%](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)**
+
+
+总部位于印第安纳波利斯的保险公司 OneAmerica 的首席执行官表示，18-64 岁人群的死亡率比大流行前的水平高出惊人的40%。“我们现在看到了这项业务历史上最高的死亡率——不仅仅是在 OneAmerica，”这家价值 1000 亿美元的保险公司的负责人说，这家保险公司自 1877 年开始运营，拥有大约 2,400 名员工.
+
+据The Center Square称，这一增长代表了“庞大的、庞大的人数”，其中“主要是工作年龄的人”通过 OneAmerica 拥有雇主赞助的团体生活计划。戴维森上周在一次在线新闻发布会上说：“我们在第三季度看到的情况，我们看到它一直持续到第四季度，死亡率比大流行前高出 40%。” “只是为了让您了解这有多糟糕，三西格玛或 200 年一遇的灾难将比大流行前增加 10%。”
+
+“所以 40% 是闻所未闻的，”他补充道。根据戴维森的说法，大多数被提交的死亡都没有归类为 Covid-19。
+
+“数据向我们显示的是，被报告为 COVID 死亡的死亡人数大大低估了大流行造成的工作年龄人群的实际死亡人数。他们的死亡证明上可能并不全是 COVID，但死亡人数只是上升了巨大的数字，”他说，并补充说，该公司已经看到伤残索赔“上升”——起初是短期的，现在是长期的。
+
+“对于 OneAmerica，我们预计其成本将远远超过 1 亿美元，这是我们最小的业务。因此它对此产生了巨大影响，”他说，并补充说成本将转嫁给雇主购买团体人寿保险单。
+
+在戴维森发表讲话的同一新闻发布会上，印第安纳州医院协会主席布赖恩·塔博尔说，全州的医院都充斥着“病情各异”的患者，“不幸的是，印第安纳州的平均健康状况在疫情。”在后续电话中，他说他没有详细说明为什么该州有这么多人住院 – 是因为什么条件或疾病。但他表示，戴维森引用的极高死亡率与该州医院的情况相符。“对我来说，它证实了我们在前端看到的东西，……”他说。-中心广场
+
+印第安纳州首席医疗官 Lindsay Weaver 博士表示，现在印第安纳州的住院人数比一年前引入 Covid-19 疫苗之前要高，实际上比过去五年中的任何时候都多。同时，该文章无法在英国查看。
+
+- **[01.02 zerohedge：阿联酋禁止未接种疫苗的公民离开该国](https://www.zerohedge.com/covid-19/uae-bans-unvaccinated-citizens-leaving-country)**
+
+
+自 COVID 大流行开始以来，阿拉伯联合酋长国对其居民实施了限制，让那些拒绝接种疫苗的人陷入一种二等公民的境地。现在，他们甚至不会被允许离开阿联酋，因为这个小小的石油国家下令其未完全接种疫苗的公民不能再出国旅行。
+
+新的限制措施将于 1 月 10 日生效，与此同时，亚洲各国以及世界其他地区正在实施一波旅行限制措施。新法令的报道首先是通过阿联酋国家控制的新闻机构 WAM 传来的，该机构援引外交部和国家紧急危机与灾害管理局的消息（路透社援引 WAM 的报道）。
+
+根据这些报告，完全接种疫苗的公民也需要加强注射才有资格旅行。该禁令不适用于那些获得医疗或人道主义豁免的人。消息传出之际，阿联酋周六又确认了 2,556 例新的 COVID 病例，使该国的总数达到 764,493 例。他们还确认了另外 1 人死亡，总数达到 2,165 人。
+
+MoHAP 还指出，有 908 人已从 COVID 中完全康复，使康复总数达到 745,963。该部表示，在截至周六的 24 小时内，已进行了 463,616 次额外测试。
+
+自 12 月中旬以来，阿联酋的新病例激增，就像世界其他地区一样，尽管目前的激增尚未达到去年年初的水平。
+
+# 每日文宣
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/01/6b8cd95bce6774c2f686daec942f187c-1024x576.jpeg)
+# 更多要闻链接
+
+1. **[罗伯特·马龙博士对乔·罗根进行了令人瞩目的采访](https://www.zerohedge.com/covid-19/covid-ivermectin-and-mass-formation-psychosis-dr-robert-malone-gives-blistering-interview)**
+2. **[媒体正在失去生命的战斗……感谢乔罗根](https://www.zerohedge.com/news/2021-01-02/media-losing-fight-its-lifethanks-joe-rogan)**
+3. **[“新常态”下的未来一年](https://www.zerohedge.com/geopolitical/year-ahead-new-normal)**
+4. **[华尔街交易额在创纪录的一年中突破 5.8 万亿美元，因为美联储用钱淹没世界](https://www.zerohedge.com/markets/wall-street-dealmaking-tops-58-trillion-record-year-fed-floods-world-money)**
+5. **[格伦格林沃尔德在史诗般的主题中猛烈抨击“反乌托邦”万智牌推特禁令](https://www.zerohedge.com/political/marjorie-taylor-green-permanently-banned-twitter-spreading-covid-misinformation)**
+6. **[美元作为主导“全球储备货币”的地位处于 25 年低点](https://www.zerohedge.com/geopolitical/us-dollars-status-dominant-global-reserve-currency-25-year-low)**
+7. **[如果……我们对比特币的看法是对的怎么办？](https://www.zerohedge.com/crypto/what-if-were-right-about-bitcoin)**
+
+
+# 每日推特文摘
+
+
+
+中共国拔韭菜的时代正式来临
+
+
+
+
+
+> [#中共國](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 拔韭菜的時代正式來臨 [pic.twitter.com/y8TwIH7DPu](https://t.co/y8TwIH7DPu)
+> — 暗夜KIN (@KIN20220604) [January 3, 2022](https://twitter.com/KIN20220604/status/1477905610083815425?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+身价数亿美元的美国人气王牌媒体一哥Joe Rogan加入GETTR，Miles Guo的Big Fans
+
+
+
+
+
+> WOW出大事了‼️‼️‼️
+> 身价数亿美元的美国人气王牌媒体一哥
+> Joe Rogan加入GETTR🎉🎊
+> Miles Guo的Big Fans❤️❤️❤️[https://t.co/JKvAnu25rI](https://t.co/JKvAnu25rI)&lt;kdbgMxRcrbZ9lFlv&gt;
+>  [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) Set up my account at [https://t.co/k2c2Hpy9GP](https://t.co/k2c2Hpy9GP)
+> — 草根小哥（新号） (@caogenxiaogex) [January 3, 2022](https://twitter.com/caogenxiaogex/status/1477929010185515020?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+可防可控指的是“人民”，不是病毒
+
+
+
+
+
+> 可防可控指的是“人民”，不是病毒 [pic.twitter.com/EFFqxVweDc](https://t.co/EFFqxVweDc)
+> — 三文鱼Salmon (@Salmon\_Ten) [January 3, 2022](https://twitter.com/Salmon_Ten/status/1477820619836170242?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2022/01/01文贵先生大直播：短短三十天，共产党的所做所为，用班农话说，这个故事太大了。日本的视频在华盛顿传播，戳穿了共产党的无神论谎言，证明了郭文贵和他的新中国联邦，让共产党多害怕。秦刚的采访没有西方媒体报道，而郭杨的采访到处乱传。 这是天意，盖特下载量是3500万，盖特是最纯净的媒体
+
+
+
+
+
+> 2022/01/01文贵先生大直播：短短三十天，共产党的所做所为，用班农话说，这个故事太大了。日本的视频在华盛顿传播，戳穿了共产党的无神论谎言，证明了郭文贵和他的新中国联邦，让共产党多害怕。秦刚的采访没有西方媒体报道，而郭杨的采访到处乱传。 这是天意，盖特下载量是3500万，盖特是最纯净的媒体 [pic.twitter.com/7NVPDwhBCN](https://t.co/7NVPDwhBCN)
+> — wendy（澳喜特战旅） (@Wendyy2009Wendy) [January 3, 2022](https://twitter.com/Wendyy2009Wendy/status/1477871718802722816?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+星期日一天美国总确诊中共病毒人数是四十万五千四百七十人，14天总变化增长了204%。华人病例飙升,从华盛顿到纽约，从旧金山到芝加哥，最近中招的人数恐怖飙升。 全美的新冠检测供不应求，有的地方在室内排队两个小时，本来没有感染的人去检测排队更有可能感染。 这样下去最后很可能无人幸免！
+
+
+
+
+
+> 星期日一天美国总确诊中共病毒人数是四十万五千四百七十人，14天总变化增长了204%。华人病例飙升,从华盛顿到纽约，从旧金山到芝加哥，最近中招的人数恐怖飙升。
+> 全美的新冠检测供不应求，有的地方在室内排队两个小时，本来没有感染的人去检测排队更有可能感染。
+> 这样下去最后很可能无人幸免！ [pic.twitter.com/MLcpHT6oWr](https://t.co/MLcpHT6oWr)
+> — 约翰 (@JohnDoe1284495) [January 3, 2022](https://twitter.com/JohnDoe1284495/status/1478056138264375298?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+活下去很重要，只要能活下去，你们就能看到消灭共产党的那一天，正义战胜邪恶的那一天。要改变生活方式和惯性意识，最好远离那些大城市，远离高楼大厦，凡是大量需要电或能源的地方都要小心。饮食从简节约，减少享乐，除了能源的问题就是粮食的短缺问题。
+
+
+
+
+
+> 活下去很重要，只要能活下去，你们就能看到消灭共产党的那一天，正义战胜邪恶的那一天。要改变生活方式和惯性意识，最好远离那些大城市，远离高楼大厦，凡是大量需要电或能源的地方都要小心。饮食从简节约，减少享乐，除了能源的问题就是粮食的短缺问题。 [pic.twitter.com/nAyOk2Atae](https://t.co/nAyOk2Atae)
+> — 特战时讯 （澳喜特战旅） (@HSoldiers01) [January 3, 2022](https://twitter.com/HSoldiers01/status/1478015353540292609?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+India declares officially COVID-19 FREE after widespread use of Ivermectin 印度在广泛使用伊维菌素后正式宣布无 新冠病毒病例
+
+
+
+
+
+> India declares officially COVID-19 FREE after widespread use of Ivermectin
+> 印度在广泛使用伊维菌素后正式宣布无 新冠病毒病例 [pic.twitter.com/vmftrEZhHK](https://t.co/vmftrEZhHK)
+> — 7喜小蚂蚁（澳喜特战旅） (@wangming77777) [January 2, 2022](https://twitter.com/wangming77777/status/1477772107266560000?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这帮孙子为了给病毒来源洗地，已经没有任何底线了，本来需要成千上万年的物种跨越，Omicron却在短短几个月内实现了从人到老鼠，再从老鼠到人的两次物种跨越，这种瞎话也编的出来，老天爷赶紧把这帮孙子都收了吧……
+
+
+
+
+
+> 这帮孙子为了给病毒来源洗地，已经没有任何底线了，本来需要成千上万年的物种跨越，Omicron却在短短几个月内实现了从人到老鼠，再从老鼠到人的两次物种跨越，这种瞎话也编的出来，老天爷赶紧把这帮孙子都收了吧…… [pic.twitter.com/yPICdaDciu](https://t.co/yPICdaDciu)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [January 3, 2022](https://twitter.com/jsdfposjpqyuee1/status/1477809890974330880?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+太惊人了，生产了15亿针疫苗，辉瑞技术总裁及其家人居然自己没打疫苗。是该感谢他呢还是应该怀疑他自己都不敢打这个疫苗呢？
+
+
+
+
+
+> 太惊人了，生产了15亿针疫苗，辉瑞技术总裁及其家人居然自己没打疫苗。是该感谢他呢还是应该怀疑他自己都不敢打这个疫苗呢？ [pic.twitter.com/JFRrad84Da](https://t.co/JFRrad84Da)
+> — 特战一兵（澳喜特战旅 Henry） (@jspch666) [January 2, 2022](https://twitter.com/jspch666/status/1477717295464005632?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+一人被插管，全家被吸血！ 最后人财两空，家徒四壁。 爹亲娘亲不如党亲。。。。。。亲死你！
+
+
+
+
+
+> 一人被插管，全家被吸血！
+> 最后人财两空，家徒四壁。
+> 爹亲娘亲不如党亲。。。。。。亲死你！ [https://t.co/oRapax9Twe](https://t.co/oRapax9Twe)
+> — Bo Lu II (文龍） (@BoLu213) [January 3, 2022](https://twitter.com/BoLu213/status/1478038634528141312?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+*编辑：文鸣
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

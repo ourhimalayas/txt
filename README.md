@@ -15,119 +15,119 @@
 
 ---
 
-### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/5/README.md)
+### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/1/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|苗难](/content/gnews/6/README.md)
+### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [有声|郭先生圣诞、元旦大直播有感](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [再有新闻媒体遭鎭压 关慧贞哀香港一国两制已死](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [年度最荒唐的911报警电话](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [有声|《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [默克和辉瑞的“抗病毒”药丸只是利用新冠病毒歇斯底里的另一种牟取暴利的骗局](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [随着全国新的 Covid 病例达到六个月高点，以色列的大规模疫苗接种噩梦恶化](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共显露奴役地球殖民星际的险恶用心](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [每日快报：乔·罗根 (Joe Rogan) 加入 GETTR](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [不考虑代价暴露赵立坚智商底限](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [带头反疫苗，福特女儿警察丈夫遭无限期停职](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [马龙博士：如果历史上最大的人类实验失败了怎么办？](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|日本尖端临床医学会议报告称基因疫苗有毒](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [澳大利亚男子自焚反抗疫苗强制](/content/gnews/22/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|美退役空军准将称 疫苗强制令在分裂军队](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [警惕美国通胀带来的全球经济风险](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [DC大中华时事:西安雁塔区党政一把手双双被免](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [郭先生谈五行与爱](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [郭先生谈爆料革命战友无我、利他](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [恒大集团新年首个交易日就被港交所停牌！](/content/gnews/29/README.md)
+### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [发布批评大药企视频 媒体推特帐户被封](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [马龙博士：COVID-19在美国引发“大规模精神病”](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [我们要提前告知中共国房地产雪崩的时刻的到来 能救一个是一个](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
-
-### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [联盟工作汇报文字版2022.1.2](/content/gnews/35/README.md)
- ` 纽约香草山MOS02`
-
-### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/36/README.md)
- ` 秘密翻译组-北美组`
-
-### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/37/README.md)
+### [中共征税大变局，高收入人群被一锅端](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒已经改变了俄罗斯人的生活方式和人口结构](/content/gnews/38/README.md)
+### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/7/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [蓝枫法律·法律你我他专栏：肯乌斯顿度假村赌场的案例](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [有声|苗难](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|郭先生圣诞、元旦大直播有感](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [再有新闻媒体遭鎭压 关慧贞哀香港一国两制已死](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [年度最荒唐的911报警电话](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [有声|《我是音雄》第二季2021年度总决赛完美收官](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [默克和辉瑞的“抗病毒”药丸只是利用新冠病毒歇斯底里的另一种牟取暴利的骗局](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [随着全国新的 Covid 病例达到六个月高点，以色列的大规模疫苗接种噩梦恶化](/content/gnews/17/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共显露奴役地球殖民星际的险恶用心](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [每日快报：乔·罗根 (Joe Rogan) 加入 GETTR](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [不考虑代价暴露赵立坚智商底限](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [带头反疫苗，福特女儿警察丈夫遭无限期停职](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [有声|台湾蔡英文总统元旦讲话 警告中共不要犯“军事冒险主义”错误](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [马龙博士：如果历史上最大的人类实验失败了怎么办？](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|日本尖端临床医学会议报告称基因疫苗有毒](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [澳大利亚男子自焚反抗疫苗强制](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [DC大中华时事:西安雁塔区党政一把手双双被免](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生谈五行与爱](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生谈爆料革命战友无我、利他](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [恒大集团新年首个交易日就被港交所停牌！](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [发布批评大药企视频 媒体推特帐户被封](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [马龙博士：COVID-19在美国引发“大规模精神病”](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [我们要提前告知中共国房地产雪崩的时刻的到来 能救一个是一个](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
+
+### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [联盟工作汇报文字版2022.1.2](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
+
+### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/37/README.md)
+ ` 秘密翻译组-北美组`
+
+### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [研究发现：将蜂蜜与黑孜然相结合有助于新冠患者](/content/gnews/39/README.md)
  ` 温哥华圆成农场🇨🇦`
