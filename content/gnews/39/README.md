@@ -2,10 +2,10 @@
 ---
 
 
-## 梅西接种疫苗后依旧感染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817200/)
+## 喜马拉雅币一周分析与总结（12月27日-1月2日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817201/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,14 +13,14 @@
 
 
 
-2022年1月2日，巴黎圣日尔曼球队官方宣布，队内有四名球员确诊。 这四位球员分别是梅西，贝尔纳特，里科，比图马扎拉。 而早在2021年5月1日，2021年美洲杯为参赛球员接种了中共的科兴疫苗，梅西也在这个接种名单之中。
+过去一周，喜马拉雅币价格稳定在$35一段时间后，回落到$30至$35之间震荡，平均日交易量约22万喜币。喜币上市以来总交易量约2430万枚 ，占今年总发行量的仅约2.43%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.jpg)
+据郭文贵先生本周直播透露，过去两年全球印发法币260万亿美元，而目前数字货币市场只有2.6万亿美元。数字货币必将成为全球财富躲避金融灾难，政治经济灾难，疫苗灾难，病毒灾难和通货膨胀的M2货币超发的蓄水池和避险池。未来进入数字货币市场的法币可能会达到50%。但未来没有支付系统的数字货币90%会被淘汰。去中心化的、有犯罪历史、没有依法KYC的数字货币一定会被消灭。取而代之的将是中心化负责任，去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化，有支付系统，被国家主权所接受，而且能进行大宗商品交易。这意味着未来喜币的地位一定会远远超越今天的比特币。
 
-分析人士指出，越来越多的知名运动员在接种后出现梗塞，以及依旧被感染，会唤醒更多的民众发现，目前的ccp病毒疫苗对人体百害而无一利。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5.jpg)
+郭先生还透露，日本会成为美国之后第二大喜币流通的重要市场，喜支付的推广将在这个过程中起到关键作用。
+
 参考链接：
-1. [梅西、内马尔将接种中国新冠疫苗征战美洲杯](http://www.xinhuanet.com/2021-05/01/c_1127401269.htm)
-2.[巴黎官方：梅西新冠检测呈阳性](https://news.zhibo8.cc/zuqiu/2022-01-02/61d18d3ca7a7e.htm)
-3. [Vannes/PSG – Le point officiel sur le groupe : Messi parmi les joueurs positifs au Covid](https://www.parisfans.fr/club/vannes-psg-le-point-officiel-sur-le-groupe-messi-parmi-les-joueurs-positifs-au-covid-579791.html)
+[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 

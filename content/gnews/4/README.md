@@ -2,12 +2,24 @@
 ---
 
 
-## 乔·艾伦：人类可能会成为超自然AI的宠物
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1817818/)
+## 郭文贵盖特音频2022.01.02
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1817987/)
 
-12/28/2021 班农战斗室：乔·艾伦谈机器人索菲亚。结合当下“Covid式邪教”施加的严酷措施，乔·艾伦担忧很多掌权的人会欣然运用AI和其他控制技术系统，把人们变成宠物。
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/01/out-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+### 视频链接：
+
+[https://www.gettr.com/post/plfpq4abf0](https://www.gettr.com/post/plfpq4abf0)
+
+### 音频链接：
+
+
+
+
+
+编辑发布：闪电训练
 
  
 
