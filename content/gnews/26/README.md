@@ -2,104 +2,58 @@
 ---
 
 
-## 【秘翻在线】首届全球盖特用户年度大奖!
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1816202/)
+## 阿根廷3岁女孩注射疫苗一天后死亡
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1816245/)
 
-**撰稿：Grace**
+以下是来自COVIDWorld.com的一篇报道。一名来自阿根廷的三岁女孩，Amber Suarez，在接种COVID-19疫苗第二天去世了。她母亲说：“我很确信我女儿是被疫苗杀死的”。女孩在12月15日接种了疫苗，第二天死于心脏骤停。她是为了去幼儿园才接种的疫苗。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-02-at-5.03.06-PM.jpeg)
-在2022年1月1日，盖特（GETTR）首席执行官杰森·米勒(Jason Miller)和盖特高级副总裁凯兰·多尔(Kaelan Dorr)在直播中颁布了第一届全球盖特用户奖!
+大流行病和利用疫苗杀人的活动正在进行中。
 
-首席执行官杰森·米勒先生说：“硅谷寡头对言论自由的镇压日益恶化，促使我们创建了盖特，结果是今年自由表达运动的一些真正闪亮的明星展示了他们的东西。充满活力的盖特社区证明，言论自由是有生命力的，只是需要一个人们可以自由表达自己的地方，而不必担心因其意见而被取消。祝贺我们的获奖者，而其他的用户，继续为自由发帖！”
+如果你问我对当前世界的真实看法，我认为我们正处在战争之中。这是一场摧毁西方文明，乃至整个人类文明的战争，这是对我们人类的攻击。他们冲着我们和我们的孩子们来了，他们想把我们灭掉，或者让我们断子绝孙。
 
-这些获奖者是：
+我们（老人院）的住户死了。我们的住户在接种疫苗后一个接一个的死了。在2020年一整年，我们没有一例死亡。听清了吗？我们那些得了COVID-19的住户，没有一例死亡。到了2020年12月22号之后，住户们就开始接种疫苗。今天是2021年1月18日。在2020年，（我们）没有（一例）死亡，而且在我知道的其他很多很多疗养院里，也都没有人死亡。整个2020年，没有一个人死亡。到了2021年，才到1月中旬，就在我工作的地方，已经有14个人死了，一个接着一个地死去。
 
-- **被询问最多的新用户（****Most Requested New User****）****:** [@ rwmalonemd](https://gettr.com/user/rwmalonemd) (DR. Malone)
+我看到的是，死于疫苗的人数比死于COVID的人数多。
 
+我无法用其他的词语形容，只能说这是一场大屠杀。在美国将会有5000万人死于疫苗。
 
-- **福奇最糟糕的噩梦****（****Fauci’s Worst Nightmare****）****:** [@RealPNavarro](https://gettr.com/user/realpnavarro) (Peter Navarro)
+1500万人？（不是），是5000万人。
 
+Sherri Tenpenny，骨科医生，自2000年以来，花费4万小时研究疫苗。
 
-- **年度自由战士（美国）（****Freedom Fighter of the Year (USA)****）****:**  [@ rwmalonemd](https://gettr.com/user/DrZevZelenko) (Dr. Vladimir Zev Zelenko)
+我急切地想让人们知道这些疫苗的成分，以及为什么一定要拒绝接种，因为这些疫苗是致命的。而且要等到4-14个月以后，才能看到接种疫苗的全部副作用在接种者的身上显现出来。
 
+让整个疫苗产业坍塌并彻底结束，是我的终极目标。疫苗产业是针对人类的系统性的毒害。看看这些疫苗的受害者们，都是因为接种这些邪恶的疫苗导致的。这些疫苗根本不应该存在。我认为，在100年以后，当社会人类学家回顾这段历史时4，他们会感叹：“这些人当时怎么想的？他们怎么会给孩子接种这些含有动物DNA、流产胎儿细胞等等一系列（不安全）成分的疫苗？（疫苗甚至）包括几毫克的金属铝…他们当时怎么会认为这（疫苗）会有帮助？他们怎么想的？”
 
-- **发最多帖的发帖者（****Most Prolific Poster****）****:** [@ DineshDSouza](https://gettr.com/user/DineshDSouza) (Dinesh D’s Souza)
+Judy Mikovits医生上周在我们的节目上说，如果继续接种疫苗，未来会有5000万美国人死亡。这个预测数字很不乐观，而且这个数字似乎有点夸张。
 
+但这还只是美国。而且即使这些人不死，也会严重伤残。我觉得这个数字一点都不夸张。
 
-- **年度社区组织者****（****Community Organizer of the Year****）****:** [@ ChatByCC](https://gettr.com/user/ChatByCC)
+这背后的人，真的是那么邪恶的坏人么？我想知道他们的动机到底是什么。
 
+其实在疫苗圈里我们都在回避一个话题，那就是所谓“优生学”主义。比尔盖茨的父亲就是非营利组织“计划家长”的创始人之一。他也是美国优生学运动的最早创始人之一。比尔盖茨在他的TED论坛演讲中提到，地球无法支持太多人口，而现在人口已经太多。我们必须采取措施减少人口。
 
-- **人民的冠军****（****The People’s Champion****）****: **[@ JackPosobiec](https://gettr.com/user/jackposobiec) (Jack Posobiec)
+我深爱着我的祖国，但我已经不再相信政府。我的儿子打了疫苗，几天后他就死了。
 
+还记得1976年猪流感引起的恐慌吗？那一年美国政府告诉我们说，猪流感会成为致死性病毒，并在全国大流行。后来政府决定给个人都接种疫苗，以防止形成全国大流行。有4600万美国人打了疫苗。后来有4000人，由于疫苗副作用，向政府索赔35亿美元。这是有史以来最大的索赔案。而这4000人中，有2/3是因为疫苗造成了神经系统伤害，甚至死亡。
 
-- **中共最大的恶梦（****CCP’s Biggest Nightmare****）****:** [@ Miles](https://gettr.com/user/miles) (Miles Guo)
+1979年11月4日播出的《60分钟》节目，报道1976年猪流感疫苗造成的伤残情况
 
+Michael Hattwick 医生，1976年“猪流感疫情监视小组”带头人
 
-- **取消文化的最大眼中钉（****Cancel Culture’s Biggest Target****）****:** [@ TommyRobinson1](https://gettr.com/user/TommyRobinson1) (Tommy Robinson)
+我无法相信，他们居然会说不知道（猪）流感疫苗会造成神经系统疾病。这完全是假话。实际上，我们知道有这个问题。
 
+我让她去接种疫苗。她本来不想去接种，而且她以前也从没接种过疫苗。政府那些人，他们知道真相，但是他们不公布真相。因为他们知道，一旦公布了真相，就没人会去接种疫苗了。所以现在，哪怕明天有人跳出来说，大流行病要来了，会死很多人，我也不再会听政府的话，去接种疫苗了。
 
-- **国会年度人物（****Congress Person of the Year****）****: **[@ MTG4America](https://gettr.com/user/mtg4america) (Marjorie Taylor Greene)
+当我看到整个（反疫苗）运动的时候，我很奇怪为什么人们还没有上街游行示威。这明明就是在杀人，因为我们都是这场庞大的医学实验中的实验品。而这个疫苗接种计划，完全没有充分进行过研究。事实上，只有CDC为了平息人民的反对意见，做了一些研究。我们知道，CDC不是一个讲实话的机构，它实际上就是个风险管理机构。他们专门炮制研究结果，来引导公众舆论，让人们顺着CDC想要的目标去做。而这个目标就是，把疫苗全部打完。
 
+字幕：文雅
 
-- **发最多Memer ****的用户**（**Most Prolific Memer****）****: **[@ ilPresidento](https://gettr.com/user/ilpresidento)
+翻译：文永
 
+素材：文倩
 
-- **年度最佳真正的新闻机构（****Real News Outlet of the Year****）****:** [@ nationalpulse](https://gettr.com/user/nationalpulse) (The National Pulse)
-
-
-- ** ****年度最佳评论员（****Biting Commentator of the Year****）****: **[@ TimRunsHisMouth](https://gettr.com/user/timrunshismouth) (Tim Young)
-
-
-- 最佳二人组（**Best Duo****）****: **[@ DiamondandSilk](https://gettr.com/user/%20DiamondandSilk) (Diamond and Silk)
-
-
-- **直播明星****（****Livestream Superstar****）****: **[@ vlogdolisboa](https://gettr.com/user/vlogdolisboa) (Femando Lisbor)
-
-
-- **年度自由战士（巴西）（****Freedom Fighter of the Year (Brazil)****）****: **[@allansantosbr](https://gettr.com/user/allansantosbr)  (Allan dos Santos)
-
-
-- **年度最佳发帖者** （**Troll of the Year****）****: **[@catturd2](https://gettr.com/user/catturd2)
-
-
-- **最大的声音（****Biggest Voice****）****: **[@ KamVTV](https://gettr.com/user/KamVTV) (Kambree)
-
-
-- **年度最佳活动家（****Activist of the Year****）****: **[**@** **ScottPresler**](https://gettr.com/user/ScottPresler)**  **(Scott Presler)
-
-
-- **火焰下的勇气（****Courage Under Fire****）****: **[@Project\_Veritas](https://gettr.com/user/project_veritas)
-
-
-- **盖特的核心和灵魂（****The Heart and Soul of GETTER****）****: **[@ RafaelGoldberg](https://gettr.com/user/RafaelGoldberg) (Rafael Goldberg), [@JPLyle](https://gettr.com/user/JPLyle) ( Jeanne Lyle), and [@CCBagley](https://gettr.com/user/CCBagley) (Christi Bagley)
-
-
-- **男人/****女人，神话，传奇（****The Man/Woman, the Myth, the Legend****）****: **[@SteveBannon](https://gettr.com/user/stevebannon)  (Steve Bannon)
-
-
-- **信仰战士（****Faith Warrior****）****: **[@ christineyeargs](https://gettr.com/user/christineyeargs) (Christine Yeargin)
-
-
-- **运动的未来（****The Future of the Movement****）****: **[@TheJordanRachel](https://gettr.com/user/TheJordanRachel) (Jordan Rachel), and @ [@theisabelbrown](https://gettr.com/user/theisabelbrown) (Isabel Brown)
-
-
-- **年度最佳自由斗士（英国）（****Freedom Fighter of the Year (U.K)****）****: **[@LozzaFox](https://gettr.com/user/lozzafox) (Laurence Fox)
-
-
-- **年度自由斗士（法国）（****Freedom Fighter of the Year (France)****）****: **[@zemmoureric](https://gettr.com/user/zemmoureric)** (**Eric Zemmour)
-
-
-- **年度自由斗士（德国）（Freedom Fighter of the Year (Germany)）: **[@ reitschuster](https://gettr.com/user/reitschuster) (Boris Reitschuster)
-
-
-- **年度自由斗士（全球**）（**Freedom Fighter of the Year (Global)****）****: **[@EnesKanter](https://gettr.com/user/EnesKanter) (Enes Kanter-Freedom)
-
-
-- **年度最佳人物**（**Person of the Year****）**** : **[@ JairBolsonaro](https://gettr.com/user/jairbolsonaro) (Jair Bolsonaro- President of Brazil巴西总统)
-
-
-**新闻来源****：**** **[The First Annual Worldwide GETTIE Awards](https://gettr.com/streaming/plctbxe658)
+编辑/发文：Kent
 
  
 

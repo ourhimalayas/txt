@@ -2,31 +2,53 @@
 ---
 
 
-## 土耳其开打第五针新冠疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1816496/)
+## 缺少中国市场的《蜘蛛侠3》依旧仅用12天击败《长津湖》票房
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1816548/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-17.png)图片来自网络
-土耳其媒体《DAILY SABAH》近日报道，土耳其卫生部周五表示，卫生部已开始为特定人群提供第五剂加强剂量的新冠疫苗。
+作者：日本方舟农场 Andy5
 
-至少三个月前接种过两剂中国科兴疫苗和两剂辉瑞新冠疫苗的个人将能够预约第五剂。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
 
-他们将能够获得科兴、辉瑞或土耳其本国生产的图尔科瓦茨（Turkovac音译）新冠疫苗作为加强针施打。
 
-图尔科瓦茨是一种国内开发的非活性新冠疫苗，在获得紧急使用批准后终于向公众开放。周四，市医院成为第一个接种图尔科瓦茨的场所，当地的新冠疫苗接种计划预计将在几周内扩展到所有医院和其他场所。
 
-专家们也希望国产新冠疫苗能够消除国内民众对新冠疫苗的犹豫。
 
-在土耳其，有超过 83% 的 18 岁以上人群接种了两剂新冠疫苗，而 91.6% 接种了单剂。
 
-据土耳其卫生部称，该国注射的新冠疫苗数量已远远超过 130 万剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/下载-2.jpg)
 
-如果说打两针或者三针吃青蒿素或伊维菌素还有得救的话，那打到第五针哪怕是神仙也难救了吧。新冠疫苗灾难真的无法想象，埃尔多安已经疯了，请立刻停止施打新冠疫苗，再打下去，土耳其可能真的要像古楼兰国一样举国消失了。
+《蜘蛛侠3》引发全球影迷狂欢，上映仅半个月票房已经突破74亿元，超越中共为了煽动仇美民族情绪而拍摄的《长津湖》。
 
-参考链接：
+据了解，中共的《长津湖》自9月底上映以来，三个月的票房达到58亿元，成为墙内影视票房冠军。而这背后是各个单位组织观看、以及上映期间的三次延长。但就这样，也被上映仅12天的《蜘蛛侠3》所超越，并且该片直至目前依旧没有得到中共的上映许可。
 
-[https://www.dailysabah.com/turkey/turkey-starts-offering-5th-dose-of-covid-19-booster-shots/news?gallery\_image=undefined#big](https://www.dailysabah.com/turkey/turkey-starts-offering-5th-dose-of-covid-19-booster-shots/news?gallery_image=undefined#big)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+分析人士表示，《蜘蛛侠3》的票房打脸中共一直以来用中共国市场绑架他国的行为，同时也表明哪怕中共垄断式创造《长津湖》票房，这种背离世界主流价值观的电影是不会被任何文明国家所接受的。
+
+新闻链接：
+
+[https://www.163.com/ent/article/GSEUDTQ400038FO9.html](https://www.163.com/ent/article/GSEUDTQ400038FO9.html)
+
+[https://ent.sina.com.cn/m/c/2021-12-27/doc-ikyamrmz1553705.shtml](https://ent.sina.com.cn/m/c/2021-12-27/doc-ikyamrmz1553705.shtml)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-18.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+
+
+
+
+
 
 
  

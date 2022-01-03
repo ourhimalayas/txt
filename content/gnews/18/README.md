@@ -2,27 +2,24 @@
 ---
 
 
-## 加拿大魁北克省新冠禁宵令 禁止民众期间遛狗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1816336/)
+## 欧盟宣布，承认核电站为“绿色投资”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816452/)
 
-翻译：Torsteintt
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-02-175015-edited.png)图片来源：网络
-根据Montreal Gazette报道，你的狗狗需要去户外小解？ “很不幸”， 魁北克政府宣告新的禁宵令实施包括户外遛狗也不能例外， 魁北克省已于上周五实施了该禁宵令。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-4.png)图片来源网站
+1月2日《共同通信》网站报道，欧盟委员会（EU）1日宣布，将承认核电站与天然气一起成为绿色投资的目的地。
 
-该禁宵令规定每天晚10点到早5点不得外出，此前包括一些例外比如允许户外遛狗。 但是户外遛狗的例外自从周六开始在政府官网上被移除。
+作为一种促进向低碳社会过渡的手段，使其发挥作用，以实现到2050年温室气体排放实际为零的目标。但由于成员国分为亲核和反核两派，各国和欧洲议会间有可能会反对该计划。
 
-魁北克省长弗朗索瓦·勒戈此前声明：“是否实施禁宵令取决于本省医疗系统是否能够承受未来几周的疫情。”
+报道称去年4月欧盟委员会宣布已同意建立绿色投资标准，并鼓励对考虑到其环境影响的公司进行投资，生物燃料和其它产品也被纳入绿色投资范围，但没有对核电做出相应决定。
 
-尚未知政府是否特意的无声的，还是无意的错误的禁止了民众在禁宵期间遛狗的权力。 当问到， 首席卫生长官克里斯蒂安·杜贝把此问题提交给了安全长官吉纳维芙·吉尔博，之后问题又被提交回给了卫生部门。
+信息源：
 
-新闻链接：[https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec](https://thepostmillennial.com/quebec-forbids-citizens-from-walking-their-dogs-during-covid-curfew?fbclid=IwAR0kdisQkEulvNqjGGzQ4-SCqIQMvq4kq6fAhDgGHXU-8jVlcUUCMUeknkcQuebec)
+[原発「グリーンな投資先」と認定　EUが方針、低炭素移行で役割](https://news.yahoo.co.jp/articles/8572f13b30155694dac2b4d3a594d98081f3ab17#:~:text)
 
-编辑/发布：LILY
-
-20220102
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
