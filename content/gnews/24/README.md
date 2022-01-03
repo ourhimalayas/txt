@@ -2,41 +2,24 @@
 ---
 
 
-## 《新中国联邦宣言》是治愈共产主义创伤的答案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
+## 中国移动上市，继续收割百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818061/)
 
-作者：纽约香草山农场 文真
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-148.png)[图片来源](https://www.sohu.com/a/491763401_116237)
+1月3日每日经济新闻报道，中国移动发布公告称，2022 年1月5日将在上海证券交易所上市。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中国移动本次IPO发行价格为57.58 元/股，募集资金总额将近560亿元，中国移动本次融资规模是自2010年6月农业银行上市后，A股融资规模最大的新股。
 
-在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
-在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
+中国移动由其控股在国内31个省（自治区、直辖市）和香港设立全资子公司，并在香港和纽约上市，注册资本3000亿人民币，资产规模近1.7万亿人民币，员工总数近50万人。2019年7月，《财富》世界500强排行榜发布，中国移动通信集团公司位列56，2019年7月，中国移动在中共国500强排行中，排名第8，2020年《财富》世界500强排行榜第65名，2021年《财富》世界500强排名第56位。
 
-直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
+在香港上市24年之后，红筹“第一”中共国移动通信终于回到境内资本市场，成为第一个在主板发行的红筹企业。将取代此前回归A股的中国电信，成为A股史上第五大IPO。作为中共国垄断企业，赚钱还不忘来股市分享红利？如此巨无霸上市后，割韭菜套利才是目的，也成为圈钱融资第一名。
 
-参考链接：
+信息来源：[近10年最大规模IPO 中国移动1月5日上市](https://ml.mbd.baidu.com/r/z409XdHUUU?f=cp&amp;rs=2815644410&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a3aff93fdacc32f3)
 
-1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
-2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
-3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-编辑：Ivy001
-总编：文真 
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

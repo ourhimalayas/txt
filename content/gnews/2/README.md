@@ -2,43 +2,55 @@
 ---
 
 
-## 要尽可能在中共房地产和金融雪崩到来前救一个是一个
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1818187/)
+## 研究发现：将蜂蜜与黑孜然相结合有助于新冠患者
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1818265/)
 
-**郭文贵先生**：然后房地产现在市场流通的房子，全国各省市不允许房地产管理部门、房管局公报所有的……就是今年卖了100套房，后边最低的那套房价格不能公布。
+作者：Ethan Huff
 
-你就这么忽悠老百姓，你说这个国家还了得吗？继续造假票据、庞氏骗局，大家视而不见。第二、便宜的房子不能公布；第三、不允许你破产，要等着党过完奥运会再破产，最后谁为这买单呢？政府不生产一分钱，没有一个国家的政府会生钱，这个钱都是谁拿的？老百姓拿。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/114028340_d6ef2cb4-c23c-4951-ad15-f420594cad8a.jpg1_.jpg)图片来源：网络
+自然新闻：麻省总医院的一名研究员说，黑种草（黑孜然）与蜂蜜结合是治疗武汉冠状病毒（Covid-19）的有效药物。
 
-兄弟姐妹们，从此可见，共产党接下来的所有房地产的崩盘，金融的崩盘，它不是一般的崩，我们没有办法能拯救任何人，但是我们绝对要像过去五年一样，我们要提前告知。我们让所有尽可能地知道这个雪崩的时刻的到来，能救一个是一个。
+仍在等待同行评审的 Sohaib Ashraf 博士的随机对照试验 (RCT) 发现，用黑孜然（也称为“黑种子”）和蜂蜜一起治疗新冠肺炎患者可帮助他们在六天内康复。 与此同时，对照组需要 13 天才能恢复。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+黑孜然和蜂蜜还帮助患者比未接受治疗的对照组患者提前约四天实现“阴性”PCR 检测。
 
-编辑整理：Jacques；
+Ashraf 的论文目前可在 medRxiv 预印本服务器上找到，这里是最近发表了大量具有令人难以置信的前景的新兴研究的地方。
 
-字幕文件制作：小满；
+“当 Covid-19 在 3 月下旬袭来时，我们很快就清楚这种疾病将在全球范围内造成严重破坏，并将成为世界经济的重置按钮”，同样隶属于哈佛医学院的 Ashraf  ，引述说。
 
-视频制作及上传：Cindy；
+“因此，我们搜索了已发表的关于任何药物对 Covid-19 的有效性的临床试验，但不幸的是，我们没有发现任何药物被证明对 Covid-19 有效”。
 
-G-News发布：小满；
+Ashraf 和他的同事仔细研究了科学文献，寻找任何其他安全且对病毒和其他微生物具有广泛功效以及抗炎、免疫调节和抗凝血特性的药物。 这导致他们选择了蜂蜜和黑孜然，Ashraf 将其描述为“完美搭配”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+“我们推断这种组合在减轻疾病的严重程度、控制病毒复制和治愈 Covid-19 患者方面可能更有效”，Ashraf 的论文解释道。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**自然疗法有效，即使对抗新冠病毒**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+该研究在巴基斯坦进行，涉及 313 名具有中度或重度新冠病毒症状的患者。 这些症状包括咳嗽、发烧、喉咙痛、鼻塞和呼吸急促，以及更极端情况下的肺炎和呼吸窘迫。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+没有一个生病的参与者知道他们服用的是黑孜然和蜂蜜还是安慰剂。 他们都被告知每天服用两到三次。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+所有患者还接受了医生的标准护理，包括解热药、抗生素、补充氧气，甚至在必要时进行机械通气。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+在研究结束时，蜂蜜和黑种草 (HNS) 组在四天（中度病例）或六天（严重病例）内从症状中恢复，而对照组则为 7-13 天。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+HNS 治疗被发现可以降低重症患者的死亡率，同时还允许 96.25% 的中度患者在第 10 天恢复正常的日常活动。与此同时，只有 68.93% 的对照组在 10 天后恢复到基本正常。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+令人惊讶的是，据报道，对照组的 30 天死亡率为 18.87%，而 HNS 治疗组仅为 4%。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+“即使在试验之外，我们也看到患者通过这种治疗方案奇迹般地好转，”Ashraf 进一步解释说。  “作为一种廉价的营养品，它可以单独使用，也可以与其他药物联合使用以达到加成效果。 这种治疗很可能会显着减轻医疗保健系统的负担。”
 
+“它具有巨大的商业化潜力，但为了证明它是否是世界上最有效的治疗选择，我们可能需要进行更大规模的 RCT（随机对照试验）。”
+
+Ashraf 说，事实上，他的团队正计划使用相同的方式进行更大规模的跨国试验。 与此同时，黑草籽补充剂和蜂蜜都广泛适用于那些希望立即开始增强免疫系统的人。
+
+来源链接：[https://www.afinalwarning.com/581877.html](https://www.afinalwarning.com/581877.html)
+
+编辑/发布：LILY
+
+20220103
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

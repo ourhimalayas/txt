@@ -2,48 +2,36 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月27日-1月2日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1817201/)
+## 秘翻在线：东京日病毒感染人数三个月来首次破百
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1817379/)
 
-作者：纽约香草山金融部 – ILOVE战神
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-11.png)（图片源自本文链接）
+1月3日TBS消息：东京都政府宣布，今天103人感染了中共病毒(新冠病毒)。这这数字比上周一同一天报告的35例增加了68例。
 
+这是自去年10月8日以来，近三个月来首次日感染人数超过100。
 
+按照年龄划分,
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+4人不满10岁。
 
+9人十多岁。
 
+30人20多岁。
 
-过去一周，喜马拉雅币价格稳定在$35一段时间后，回落到$30至$35之间震荡，平均日交易量约22万喜币。喜币上市以来总交易量约2430万枚 ，占今年总发行量的仅约2.43%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.jpg)
-据郭文贵先生本周直播透露，过去两年全球印发法币260万亿美元，而目前数字货币市场只有2.6万亿美元。数字货币必将成为全球财富躲避金融灾难，政治经济灾难，疫苗灾难，病毒灾难和通货膨胀的M2货币超发的蓄水池和避险池。未来进入数字货币市场的法币可能会达到50%。但未来没有支付系统的数字货币90%会被淘汰。去中心化的、有犯罪历史、没有依法KYC的数字货币一定会被消灭。取而代之的将是中心化负责任，去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化，有支付系统，被国家主权所接受，而且能进行大宗商品交易。这意味着未来喜币的地位一定会远远超越今天的比特币。
+24人30多岁。
 
-郭先生还透露，日本会成为美国之后第二大喜币流通的重要市场，喜支付的推广将在这个过程中起到关键作用。
+17人40多岁。
 
-参考链接：
-[Europe records over 100 million Covid-19 cases, more than third of entire global tally](https://www.hindustantimes.com/world-news/europe-records-over-100-million-covid-19-cases-more-than-third-of-entire-global-tally-101641099662596.html)
+9人50多岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+65岁以上高危人群，有10人。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+目前住院的感染者中，根据东京的标准，有一人被认为是 “重症”。
 
-**更多资讯，更多关注**
+自12月24日日本政府宣布不派政府官员参加北京冬奥会后，日本日感染人数不断增加。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息源：[【速報】新型コロナ　東京都で新たに103人感染　100人超は約3か月ぶり（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/758b1e2602cb30540808d01e9a36f293575e7420)
 
  
 

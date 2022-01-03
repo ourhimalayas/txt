@@ -2,37 +2,41 @@
 ---
 
 
-## 01/03每日播报｜法定货币终走向地狱  富翁们纷纷涌入数字货币市场
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1817861/)
+## 《新中国联邦宣言》是治愈共产主义创伤的答案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818023/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61d2ba2c31a71619b573f2e5)**
+作者：纽约香草山农场 文真
 
-**2022-01-03**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-《零对冲》1月2日分析报道，随着世界各国央行毫无底线的超发法定货币，世界上的亿万富翁们最终认输，认为法定货币即将崩塌，开始加仓加密数字货币。
+在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-03-at-9.53.12-PM.png)
+在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
 
-现在，就连各国政府央行都承认，法币再这样超发下去终将走向地狱，必将推动建立“中央银行数字货币”（CBDC）系统，这只是一个时间问题。
+直播中郭先生多次强调，请一定认真阅读《新中国联邦宣言》，因为这不仅是渡过中共病毒危机的生存之道，更是灭共后， 治愈共产主义创伤和精神病毒的一切答案。
 
-美国亿万富翁、盈透证券（Interactive Brokers）创始人托马斯•彼得菲(Thomas Peterffy)就曾表示，为防止法定货币崩盘，明智的做法是将个人部分财富投资于加密数字货币。他还说，数字货币很有可能获得惊人的回报。
+参考链接：
 
-而且，彼得菲的盈透证券机构最近向客户提供了交易数字货币提现的能力，这使得许多普通投资者接受并转向投资有潜在巨大收益的加密数字货币市场。
+1. [1/1/2022 Miles Guo: What’s the trauma of communism?](https://gettr.com/post/pldbjkd75b)
+2. [1/1/2022 Miles Guo: How to cure the trauma caused by CCP.](https://gettr.com/post/pldgxda491)
+3. [1/1/2022 Mr. Miles Guo on how to get through the hard times.](https://gettr.com/post/plev3x05c4)
 
-美国桥水投资公司(Bridgewater Associates)创始人雷•戴利奥(Ray Dalio)最近透露，他在投资组合中至少持有一些加密数字货币对冲。而就在几个月前，他还在质疑加密数字货币存储财富的实用性。这位创始人认为，在一个“现金是垃圾”、恶性通胀侵蚀着购买力的世界里，这些投资被视为一种替代货币。
 
-美国亿万富翁、对冲基金经理保罗·都铎·琼斯（PaulTudorJones）透露，他投资加密数字货币的目的是对冲通胀风险，与高盛集团业务往来的家族理财室中，近一半投资者有兴趣将数字货币加入投资组合中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-尽管如此，并不是每个亿万富翁都是加密数字货币的拥护者。比如，美国亿万富翁、对冲基金Citadell集团的首席执行官肯·格里芬（Ken Griffin）表示，加密数字货币的兴起是对美元发起的圣战。但格里芬又说，如果有更多的监管，他自己的公司也会加入交易加密数字货币的行列。
+编辑：Ivy001
+总编：文真 
+校正/发稿：我不在这里
 
-据报道，纽约的银行巨头摩根大通银行董事长杰米·戴蒙(Jamie Dimon)在10月份称，比特币 “一文不值”。甚至，他还威胁要解雇任何交易比特币的摩根员工。但值得注意的是，当时它正在大量招聘职员以帮助客户交易加密数字货币。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-（秘翻新闻主编  冰糖葫芦喵编译报道)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

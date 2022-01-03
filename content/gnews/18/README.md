@@ -2,19 +2,23 @@
 ---
 
 
-## 弃主求荣的牧者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818052/)
+## 【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1818111/)
 
-作者：东京樱花团｜阿恩
-![](https://lh6.googleusercontent.com/Yv1p5tvUa7mwEsv-ocwdLMhCQQ2FAbGFXpQtMpBEyHT1BoqGmE2vewTEGJb7-bikG3SMmDPf-TlxTjR31zonMNbvF8AVAHX6n90ryFNlBgyNe_56yLNbdubG62ii8t8YSJ1aPxCb)*[图片来源](https://news.rthk.hk/rthk/ch/component/k2/1627110-20220103.htm)*
-新任立法会议员管浩鸣表示，将会辞去香港圣公会教省秘书长的职务，以便专注议员工作，他称会继续做牧师，继续助台湾杀人案疑犯陈同佳台湾自首。他形容陈同佳「想祈求被监禁也求得很辛苦」。管又说，只要台湾容许陈同佳入境，就能够成事，但大家都知道他很难再与台湾方面沟通。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-150.png)（三星即将推出的 NFT 电视平台的预览）[图片来源](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+据TheVege1月2日报道，三星表示，正计划从2022年的电视产品系列开始广泛支持NFT。
 
-曾是国际都市的香港，信仰可以自由的传播，各宗教组织以“导人向善”吸纳了相当数量的会众，尤其是基督教，在香港的会堂遍布各区，还在香港开设了二十多间神学院，用于培育大量本地教牧人员，每年可从香港的教会差派众多的宣教士到东南亚国家宣教，无论从人力和财力上都居众宗教组织之冠。不过爆料革命郭文贵先生揭露香港的神学院早就被中共渗透。相比欧洲的宣教，香港的教牧向会众传递的大部分是单纯的圣经教导，避免将政治引入宗教中。而事实上宗教组织与政治力量一直苟且，更不惜成为中共代言人，为推动逃犯条例立法助力。中共篡改香港立法会选举制度后，宗教人士史无前例地进入了立法会，为中共特色的香港民主套上了光环；管浩鸣在立法会宣誓后辞去宗教职务专心服侍中共，他声称会保留牧师的职责，其意图显然是要将香港的基督徒领入中共的羊圈中。由一个满口谎言的牧者，披着中共赐予的立法会议员的外衣代表有信仰的香港人，可见香港宗教界已经彻底没落。
+三星公司在一份新闻稿中说：“随着对 NFT 的需求不断增加，对当今分散的观看和购买环境的解决方案的需求从未如此之大。在2022年，三星将推出世界上第一个基于电视屏幕的NFT浏览器和市场聚合器，这是一个突破性的平台，让你在一个地方浏览、购买和展示你最喜欢的艺术品。”
 
-资料来源：[**管浩鸣称将辞去香港圣公会教省秘书长职务专注议员工作**](https://news.rthk.hk/rthk/ch/component/k2/1627110-20220103.htm)
+根据三星的说法，这个平台将让创作者“与世界分享他们的艺术”，并让潜在买家在购买前预览 NFT。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
+当在其2022年的电视上观看NFT时，三星也非常注意细节。电视机上的智能校准功能将自动调整显示设置，“按照创作者的预设值，所以你可以放心，你的作品看起来无可挑剔，具有真实的图像质量。”
+
+信息来源：[Samsung promises ‘groundbreaking’ new TV feature: NFT support – The Verge](https://www.theverge.com/2022/1/2/22858698/samsung-2022-tvs-nft-support-announced-cryptocurrency)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
