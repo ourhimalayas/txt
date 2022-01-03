@@ -2,22 +2,44 @@
 ---
 
 
-## 中共国在镇压异议人士的过程中迫使另一家香港新闻机构关闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1817164/)
+## 墨西哥银行计划在2024年推出数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1817228/)
 
-#### 翻译/撰稿：黃金精神
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-2.jpg)照片来源：路透社
-1月2日据NewsMax报道，香港一家在线新闻网站周日表示，鉴于新闻自由的恶化，该网站将停止运营。此前中共警方以煽动罪突袭并逮捕了独立民主派新闻机构的7人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Bank-of-Mexico.jpg)
 
-《众新闻》（Citizen News）在周日的Facebook帖子中宣布了其决定。它将在1月4日停止更新其网站，之后就会关闭。众闻在一份声明中说：“我们一直热爱这片土地，但目前，我们很无助，因为我们不仅面临风和雨，还有龙卷风和巨浪。我们从未忘记自己的初衷，但遗憾的是，过去两年社会的快速变化和媒体环境的恶化，使我们无法安心实现自己的理想。”
 
-《众新闻》是近几个月来继在线网站《立场新闻》（Stand News）等媒体关闭之后的第三家新闻机构。在《众新闻》即将关闭的几天前，当局突击检查了《立场新闻》，并逮捕了七人，包括编辑和前董事会成员–他们被指控密谋出版煽动性材料。《立场新闻》在同一天宣布它将停止运营。《立场新闻》的两名前编辑后来被正式指控犯有叛乱罪。
+ 
+图片来源：WIRED
 
-香港领导人林郑月娥上周为突袭《立场新闻》辩护并告诉记者：“在新闻报道的幌子下煽动其他人不能被宽恕。”
 
-**新闻来源**：[China Forces Another Hong Kong News Outlet to Close Amid Crackdown on Dissent](https://www.newsmax.com/newsfront/hong-kong-news-outlets-closed-dissent/2022/01/02/id/1050697/)
+#### 编译：小红帽
+
+根据《曼谷邮报》1月3日报道，**墨西哥政府称，墨西哥银行计划在2024年前将自己的数字货币投入流通，以利用最新的支付技术，在一个大多数交易都依赖现金的经济体中促进金融包容性。**
+
+墨西哥银行表示，它正在研究分几个阶段开发一种数字货币。它将把目前的电子支付系统作为平台的基础，以“在快速、安全和高效”框架下扩大支付选择。
+
+一位熟悉墨西哥银行计划的人士表示，中央银行当局一直在与金融机构，就推出一种可用于基本交易的数字货币所需的实施和基础设施进行谈判。
+
+大量的交易使用现金进行，特别是考虑到庞大的非正规经济。2020年，非正规经济占墨西哥国内生产总值的22%左右。
+
+这家以正统货币政策而闻名的央行已经警告说，鉴于比特币等私人发行的加密货币资产的价值波动和接受程度有限，要防范其风险。然而，官员们对中央银行的数字货币持开放态度，作为促进金融包容性的一种方式。
+
+墨西哥银行、墨西哥财政部以及银行和证券监管机构对此表示，包括比特币和其他货币在内的加密货币在墨西哥不是法定货币，金融机构不允许提供此类资产的业务。
+
+与比特币和其他货币不同，中央银行的数字货币是一种虚拟的，或法币的电子形式。
+
+新闻来源：[Bank of Mexico Plans to Launch Digital Currency by 2024 (bangkokpost.com)](https://www.bangkokpost.com/business/2241159/bank-of-mexico-plans-to-launch-digital-currency-by-2024)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

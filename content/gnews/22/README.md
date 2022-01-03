@@ -2,39 +2,22 @@
 ---
 
 
-## 澳洲新冠病例激增，一线医护工作者面临极大压力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1816957/)
+## 美国国防部长中共病毒检测呈阳性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1816978/)
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-18.jpg)图片来源：AMA
-整理报道：小鱼儿
-编辑：文泓
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-119.png)[图片来源](https://news.yahoo.co.jp/articles/23767bd5af5ac05be811f1a07011f2f0e3aa3e1e)
+1月3日Q电视新闻消息：美国国防部长约翰-奥斯汀2日宣布，他的中共病毒(新冠病毒)检测结果呈阳性，目前尚属轻微症状。
 
-1月2日，据《每日邮报》报道，随着奥密克戎肆虐，澳洲新冠病例爆发性激增，医务人员的短缺正在冲击着澳大利亚的卫生系统。一封泄露的电子邮件声称，悉尼的一家医院已经“极其脆弱”。
+国防部长约翰-奥斯汀是自己亲自发布的这一消息，他说2日在家中出现轻微症状后，做了病毒检测，其结果呈阳性。他还说，他与拜登的最后一次接触是在上个月21日，那天早上他的检测的结果是阴性。
 
-澳大利亚医学协会副主席克里斯·莫伊说，他接到了医生和管理人员的电话，他们对住院人数减少但新冠病例增加感到“非常担心”。他说，医务工作人员因为生病或被视为密切接触者被迫休假。
+为此，他将开始为期五天的家庭隔离。但可以在网上参加必要的会议，并将保留其作为国防部长的权力。
 
-周日上午，莫伊博士告诉澳大利亚广播公司，“那里发生的情况是，人员配置情况目前正变得相当严峻”。他说，这种情况“是全面的”，但新南威尔士州可能比其他地区更糟糕。
+信息来源：[米・国防長官が新型コロナ陽性　軽い症状（日本テレビ系（NNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/23767bd5af5ac05be811f1a07011f2f0e3aa3e1e)
 
-“我所知道一些团队已被完全消失了，因为他们要么是接触者，要么是检测结果阳性”，莫伊博士解释说：“这导致了一个真正的难题，这对非常疲惫的卫生工作人员造成了极大的压力。”
-
-据澳广报道，悉尼圣文森特医院执行董事凯文·梁向员工发送了一封电子邮件，概述了医务人员低配置水平造成的影响。梁博士在电子邮件中写道：“此外，人们非常担心在接下来的几天里急诊科（ED）的活动会激增，这可能会使我们系统非常脆弱，并有可能影响到对病人的护理。”
-
-据该州卫生部门称，周日有1000多人因Covid-19在新南威尔士州医院住院，现在有83人接受重症监护。
-
-自圣诞节以来，新州的新冠感染住院人数在一周内翻了一番，预计还会进一步上升。周日，该州记录了18278个新的Covid病例，而维多利亚州有7172人，昆士兰州有3587人。
-
-新闻链接：[‘Wiped out’: Health workers under extreme pressure as Covid cases surge nationally](https://www.dailytelegraph.com.au/coronavirus/wiped-out-health-workers-under-extreme-pressure-as-covid-cases-surge-nationally/news-story/713b08aca977d44024d899fd83e7aec0)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
