@@ -2,33 +2,37 @@
 ---
 
 
-## 2022企业将会用加密货币支付薪酬
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1818135/)
+## DC每日热点0103
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1818136/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/https___specials-images.forbesimg.com_imageserve_61d05a53cf379243c7ce8cd4_Gold-Bitcoin-sign-standing-on-stripped-background-_960x0-1.jpg)
-据外媒作者文章，2022年大多数企业将会选择用加密货币支付员工薪酬。2021年因疫情的影响，就业市场收到极大冲击，迫使更多企业作出更有吸引力的政策，其中就包括用加密货币支付薪酬的方式。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E6A5B11F-E0FC-43B6-8256-4611560DC145-scaled.jpeg)
+道琼斯指数 36338.30 ▼0.16%
+纳斯达克指数 15644.97 ▼0.61%
+WTI纽约原油CFD 75.400 ▼2.07%
+布伦特原油CFD 77.901 ▼2.05%
+标普50指数 2,978.47 ▼42.99%
+美元兑人民币 1USD=6.367 RMB
+美元兑港币 1USD=7.798 HKD
+国际黄金 1829.2 美元/盎司
+全球CCP病毒感染人数 290,770,251例
 
-由于通胀的上升和美联储的某些可疑政策，导致雇员得到的工资实际价值时刻在下降，美元正在贬值。年轻人作为最主要的劳动力市场，更加倾向于加密货币支付，因为这可以让他们迅速致富。同时新冠疫情也导致了远程工作的兴起，加密货币支付的优点促使它成为了更加能够被接受的资金转移的方式。
+1、美国防长测出感染新冠病毒，症状轻微 将居家隔离5天
+2、拜登与乌克兰领导人在俄军集结的紧张局势中通话
+3、印巴两核敌对国依协议新年互换对方犯人及各自核设施名单
+4、以色列宣布为60岁以上人群以及医务人员接种第4剂疫苗
+5、捷克重拾价值外交 新政府预期退出与中共国的合作机制
+6、立陶宛外销中共国兰姆酒遭卡关台湾出面收购月底在台上市
+7、土耳其统计局今日出炉的数据显示，该国2021年12月的年通胀率飙升到2002年以来的最高水平
+8、德国西门子集团总裁布希警告外长贝尔博客不要对中共国采取对抗性外交政策，并呼吁相互尊重
+9、德国反对欧盟将核电天然气纳入”绿色 “能源计
+10、印度尼西亚因担忧国内电力供应不足，宣布将于2022年1月1日至1月31日间停止煤炭出口，或将影响中共国进货
+11、伊朗-巴基斯坦:边境省再爆冲突酿9死
+12、中共国取消电动车补贴 财政部解释原因：考虑到新能源汽车行业的发展与销售趋势和制造商的平稳过渡
+13、福奇：CDC或要求无症状COVID患者进行检测
+14、苏丹政变两个月后 过渡政府总理宣布辞职
+15、 每周300元，加拿大启动病毒封锁福利。申请人需要满足政府对“封锁”的定义
 
-但目前因为加密货币市场价格的暴涨与暴跌，确实成为一个必须重视的风险。市场在呼唤一个更具信心的加密货币。
-
-新闻链接：[https://www.forbes.com/sites/jackkelly/2022/01/01/in-2022-workers-will-be-paid-in-bitcoin-and-cryptocurrencies/](https://www.forbes.com/sites/jackkelly/2022/01/01/in-2022-workers-will-be-paid-in-bitcoin-and-cryptocurrencies/)
-
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

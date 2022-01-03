@@ -2,30 +2,33 @@
 ---
 
 
-## 【G时新闻】连续接种疫苗、加强针对新变异病毒有效性很低或完全无效！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1818062/)
+## 2022企业将会用加密货币支付薪酬
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1818135/)
 
-加拿大温哥华扬帆农场 播报：莉李鲤 视频制作： GraceIshan
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/https___specials-images.forbesimg.com_imageserve_61d05a53cf379243c7ce8cd4_Gold-Bitcoin-sign-standing-on-stripped-background-_960x0-1.jpg)
+据外媒作者文章，2022年大多数企业将会选择用加密货币支付员工薪酬。2021年因疫情的影响，就业市场收到极大冲击，迫使更多企业作出更有吸引力的政策，其中就包括用加密货币支付薪酬的方式。
 
-美国医学专家接受视频采访时对病毒被迫变异选择做出了科学的解释，他以注射抗生素产生耐药性的例子例举大肠杆菌大部分对细菌没有抵抗力，抗生素杀死的是那些没有抗药性的细胞，所以停止使用抗生素才能激发这些没有耐药性的细菌在人体中茁壮成长，论证了连续接种疫苗接种加强针对新的变异病毒有效性很低或者完全无效的事实。
+由于通胀的上升和美联储的某些可疑政策，导致雇员得到的工资实际价值时刻在下降，美元正在贬值。年轻人作为最主要的劳动力市场，更加倾向于加密货币支付，因为这可以让他们迅速致富。同时新冠疫情也导致了远程工作的兴起，加密货币支付的优点促使它成为了更加能够被接受的资金转移的方式。
 
-而现在随着人们连续接种疫苗不仅没有减少世界上任何国家的SARSCOVID2感染的数量，反倒已经从HQI变异到Alpha到Beta到Delta，Lambda和Mu 未来甚至更多的变异。
+但目前因为加密货币市场价格的暴涨与暴跌，确实成为一个必须重视的风险。市场在呼唤一个更具信心的加密货币。
 
-事实证明了加强针并不能改变任何这样的情况，那些令人担忧的打了疫苗的人，那些推动加强针的人，他们看起来并不明白自己在做什么。
+新闻链接：[https://www.forbes.com/sites/jackkelly/2022/01/01/in-2022-workers-will-be-paid-in-bitcoin-and-cryptocurrencies/](https://www.forbes.com/sites/jackkelly/2022/01/01/in-2022-workers-will-be-paid-in-bitcoin-and-cryptocurrencies/)
 
-我们应该用对待抗生素的方式解决细菌耐药性的方法来脱离抗生素，告诉我们同样的方法来撤回药物疫苗以停止病毒变异，人们自身的自然免疫力就会赶上，因为我们人类最善于保护自己从识别病毒到避免被攻击的部分根本就不在疫苗中。
+编辑/校对/发稿：文留
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+**更多资讯，更多关注**
 
-而辉瑞公司首席执行官却说，假如我们疫苗对某些变异不起作用，我们可以制造一种新的疫苗。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-专家提示新的疫苗无需进行审批。美国食品药物管理局一开始就没有进行太多的审查，一切都在紧急使用授权下畅通无阻，这是残酷的现实。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-疫苗对病毒变异无效的事实正在与疫苗疯狂的接种进行的殊死决斗，人们会被越来越多的真相唤醒，我们更希望疫苗停止接种的日子能够尽早到来，挽救尽可能多的生命和健康。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-盖特：[https://gettr.com/post/pl5seu52ea](https://gettr.com/post/pl5seu52ea)
-听写/翻译：LuLu1312
-字幕：七觉花
-编辑/上传：七觉花
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
