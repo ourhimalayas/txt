@@ -2,66 +2,56 @@
 ---
 
 
-## 医生揭示Omicron4种新症状，打过疫苗者更常见
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818946/)
+## 荷兰警方放狗攻击数千反封锁抗议者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818978/)
 
-作者：Herb Scribner
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-30.png)
-据英国和印度媒体报道，随着COVID-19病例激增，感染Omicron变体的新症状继续出现。
+编译：Jenny Ball
 
-感染Omicron的人最常报告以下五种症状：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6.jpg)2022 年 1 月 2 日，荷兰阿姆斯特丹，警察与反封锁抗议者之间爆发冲突。 (图片来源：sohu.com)
 
-- 喉咙痛
-- 头疼
-- 乏力
-- 流鼻涕
-- 打喷嚏
+周日，荷兰首都阿姆斯特丹的数千人聚集在一起，抗议荷兰政府的 COVID-19 封锁措施，之后遭到警方镇压。
+
+在此之前，阿姆斯特丹市长费姆克·哈尔塞玛（ Femke Halsema ）发布了一项紧急法令，在 COVID-19 案件增加的情况下，抗议者违反了该市的公共集会禁令，要求更多警察清理中央博物馆广场。
+
+抗议者还沿着首都的一条主干道行走，演奏音乐并打着黄色雨伞，以表示反对政府的限制措施。
+
+一些参与者的横幅上写着：“少打压，多关心”，而一群戴着白色口罩和白色工作服的人举着标语，上面写着：“这不是病毒，而是控制。”另一个人举着“川普2024”的旗帜。
+
+网上上传的照片和视频片段显示，似乎是警察向反授权抗议者放狗。录像显示，荷兰当局部署了水炮，视频显示，据称是荷兰退伍军人与警察发生冲突。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4.png)图片来自原文
+
+在警察进入之前，其他镜头显示，周日有数千人参加了抗议活动。
+
+除荷兰外，德国的示威者上周在该国东部地区因新的 COVID-19 相关限制措施而与警方发生冲突，现在至少有 23 人面临刑事指控。
+
+在荷兰，根据当前的一系列限制，禁止两人以上的聚会。
+
+与其他欧洲国家一样，荷兰因 Omicron 变种的传播而采取了这些措施，尽管甚至一些美国卫生官员表示，研究表明该菌株的症状较轻，住院人数也少得多。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362371034-ssss-600x400-1.jpg)人们于2022年1月2日在荷兰阿姆斯特丹参加反封锁示威。（Sanne Derks/Getty Images）
+
+12 月 19 日，荷兰突然封锁，因为政府下令关闭所有商店，除认为是“必不可少”的商店除外。政府下令，餐馆、理发店、健身房、博物馆和其他公共场所，也至少关闭到 1 月 14 日。
+
+尽管研究表明 Omicron 变体虽然具有高度传染性，但其疾病严重程度明显低于 Delta 变体，但还是下达了封锁令。美国CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 上周表示，与之前的 COVID-19 激增期间相比，美国的住院率现在也相对较低。
+
+**点评：一针见血：这不是病毒，而是控制。**
+
+**参考资料：**[theepochtimes][Police Use Dogs as Thousands Protest Against Dutch COVID-19 Lockdowns](https://www.theepochtimes.com/mkt_morningbrief/police-use-attack-dogs-as-thousands-protest-against-dutch-covid-19-lockdowns_4189086.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=hNPhaeGQVYLGc/1e8oiMp0LCOLYDn5j70dghz+bkzrq74AAMotcprcNqRL6T5I9yVKLVTA==)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
 
-然而，Omicron的感染者也可能会出现以下一种或多种症状：
-
-- 食欲不振
-- 恶心想吐
-- 脑雾
-- 盗汗
 
 
-“脑雾”指的是一种健忘、混乱、思维不清晰的感觉。
 
-来自英国的ZOE COVID研究提出了Omicron变种的新症状。该研究一直在监测Omicron变种的影响。
 
-遗传流行病学专家、ZOE COVID研究的首席科学家Tim Spector教授说：“恶心和食欲不振在那些完全接种疫苗和接种加强剂疫苗的人中更常见。”
-
-尽管关于盗汗的证据还没有定论，但一些Omicron检测呈阳性的人已经报告说经历过这种症状。
-
-**Omicron与Delta有什么不同**
-
-到目前为止的数据表明，Omicron变体虽然传播速度更快，但比Delta等其他变体更温和。
-
-在许多国家，因感染Omicron而住院的人数比例低于Delta。
-
-不过，全球已经有许多人由于感染和接种疫苗而建立了自然免疫力，这也是事实。
-
-证据还表明，与Delta变种主要在肺部复制不同，Omicron在上呼吸道，包括鼻子、嘴和喉咙中复制。这也许是Omicron不如Delta严重的原因之一。这可能也部分解释了为什么Omicron在人与人之间具有高度传染性，因为它在鼻部复制，通过流鼻涕和打喷嚏传播。
-
-来源：https://www.deseret.com/coronavirus/2021/12/21/22847247/new-omicron-variant-symptom-night-sweats-sweating-covid
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

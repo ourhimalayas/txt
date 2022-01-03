@@ -2,54 +2,48 @@
 ---
 
 
-## 荷兰警方放狗攻击数千反封锁抗议者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818978/)
+## 郭先生谈五行与爱
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818981/)
 
-编译：Jenny Ball
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6.jpg)2022 年 1 月 2 日，荷兰阿姆斯特丹，警察与反封锁抗议者之间爆发冲突。 (图片来源：sohu.com)
-
-周日，荷兰首都阿姆斯特丹的数千人聚集在一起，抗议荷兰政府的 COVID-19 封锁措施，之后遭到警方镇压。
-
-在此之前，阿姆斯特丹市长费姆克·哈尔塞玛（ Femke Halsema ）发布了一项紧急法令，在 COVID-19 案件增加的情况下，抗议者违反了该市的公共集会禁令，要求更多警察清理中央博物馆广场。
-
-抗议者还沿着首都的一条主干道行走，演奏音乐并打着黄色雨伞，以表示反对政府的限制措施。
-
-一些参与者的横幅上写着：“少打压，多关心”，而一群戴着白色口罩和白色工作服的人举着标语，上面写着：“这不是病毒，而是控制。”另一个人举着“川普2024”的旗帜。
-
-网上上传的照片和视频片段显示，似乎是警察向反授权抗议者放狗。录像显示，荷兰当局部署了水炮，视频显示，据称是荷兰退伍军人与警察发生冲突。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4.png)图片来自原文
-
-在警察进入之前，其他镜头显示，周日有数千人参加了抗议活动。
-
-除荷兰外，德国的示威者上周在该国东部地区因新的 COVID-19 相关限制措施而与警方发生冲突，现在至少有 23 人面临刑事指控。
-
-在荷兰，根据当前的一系列限制，禁止两人以上的聚会。
-
-与其他欧洲国家一样，荷兰因 Omicron 变种的传播而采取了这些措施，尽管甚至一些美国卫生官员表示，研究表明该菌株的症状较轻，住院人数也少得多。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362371034-ssss-600x400-1.jpg)人们于2022年1月2日在荷兰阿姆斯特丹参加反封锁示威。（Sanne Derks/Getty Images）
-
-12 月 19 日，荷兰突然封锁，因为政府下令关闭所有商店，除认为是“必不可少”的商店除外。政府下令，餐馆、理发店、健身房、博物馆和其他公共场所，也至少关闭到 1 月 14 日。
-
-尽管研究表明 Omicron 变体虽然具有高度传染性，但其疾病严重程度明显低于 Delta 变体，但还是下达了封锁令。美国CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 上周表示，与之前的 COVID-19 激增期间相比，美国的住院率现在也相对较低。
-
-**点评：一针见血：这不是病毒，而是控制。**
-
-**参考资料：**[theepochtimes][Police Use Dogs as Thousands Protest Against Dutch COVID-19 Lockdowns](https://www.theepochtimes.com/mkt_morningbrief/police-use-attack-dogs-as-thousands-protest-against-dutch-covid-19-lockdowns_4189086.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=hNPhaeGQVYLGc/1e8oiMp0LCOLYDn5j70dghz+bkzrq74AAMotcprcNqRL6T5I9yVKLVTA==)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+作者：纽约香草山 – 文特
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
+
+
+2022元旦大直播中，郭先生谈到，2021年和2022年是爆料革命和新中国联邦甚至整个人类命运的分水岭。并提到人类生存最重要的有几个象征性因素——金木水火土——和爱。
+
+郭先生分享到，我们在地球上，面对一个物质的世界，和一个我们未知的、无法想象的星空，银河系，太阳系，面对的是无限大的宇宙与地球间一粒沙的关系，这是我们人类生存的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3.jpg)
+我们新中国联邦的旗是蓝色的，蓝色是海洋、星空的颜色，代表水。但在中国，从夏文化至今都不用蓝，在中国蓝代表死亡，中国人很忌讳。但中国人缺的就是蓝，缺的就是水，共产党的死敌就是蓝色的水。它用的是红色。在中国红色代表吉祥，代表火，代表杀戮。它旗帜上的星用的是土黄，地球是由土和水组成的，土和水滋养了木，滋养了一切生命。至于金，当下金融系统就是我们的金。金的代表色是白色，而中国人也非常忌讳白色，认为白色代表死亡。但五行金为首，没金什么都没有。
+
+五种因素在我们的生命中各自发挥着自己的影响，起着不同的作用。而人与人之间最重要的就是爱。人类没有了爱，连畜生都不如。人类之所以穿上衣裳，有文明，就是因为爱。新中国联邦人因爱走在了一起，爱把金木水火土联系在一起，是最大的力量。
+
+参考链接：
+[2022年1月1日 文贵大直播 元旦特别节目 正道至善 除恶建邦](https://www.gettr.com/streaming/plas6p681c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,38 +2,40 @@
 ---
 
 
-## 美国防部长奥斯汀中共病毒测试阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818883/)
+## 发布批评大药企视频 媒体推特帐户被封
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1818920/)
 
-翻译：**Lulumi**
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1473B5FA-4132-4C52-A169-C564531C464A_w1023_r1_s.png)美国国防部长奥斯汀（图片来源：路透社2021年7月21日）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-4.jpg)Bethany Clarke/Getty Images
 
-美国国防部长劳埃德·奥斯汀星期天晚上宣布，他的Covid-19检测结果呈阳性，并报告说他的症状很轻微。
+媒体公司《格拉比恩新闻》（ Grabien News ）创始人表示，因发布美国国会议员批评制药公司的视频，账号被 Twitter 暂停。
 
-奥斯汀在一份声明中说，他在周日早上收到阳性的测试结果。他在家中出现症状后要求进行测试。
+《格拉比恩新闻》 创始人汤姆·艾略特( Tom Elliott ) 12 月 31 日在 Twitter 上写道，格拉比恩新闻因引用众议员安迪·比格斯(Andy Biggs) 关于 COVID-19 治疗的评论而被停号。
 
-奥斯汀已经完全接种了疫苗并接种了加强针，他说他将在未来五天内在家隔离。
+“出于经济利益，大型制药公司不会考虑像羟氯奎（HCQ）或伊维菌素这样的治疗药物，”该帖子写道，并有一个包含国会议员评论的视频的附加链接。
 
-“正如我的医生向我明确表示的那样，我完全接种疫苗以及我在10月初接受的加强针的状态，使感染的症状比原来要温和得多。我对此表示感谢，”奥斯汀说。
+艾略特附件了 Twitter 的截图声明，该声明向他发送了一条样板消息，称格拉比恩新闻因“违反传播与 COVID-19 相关的误导性和潜在有害信息的政策”而被停号，艾略特将其描述为“ Twitter低级荒谬”。
 
-五角大楼负责人说，他已将他的阳性检测结果告知总统乔·拜登和国防部其他官员。奥斯汀说，他最后一次与拜登见面是在12月21日，自周四以来没有到过五角大楼。
+“显然，在这种情况下，无论你是否同意，在对每个人都重要的问题上，引用一位民选领导人的话，是重要且具有新闻价值的，”艾略特说。 “而且，我不得不补充说，他的基本观点曾经是进步人士的主流。
 
-他表示，他计划本周以虚拟方式参加会议。
+“我已经提出上诉，说明这一点。但是，我对 Twitter 做正确的事情没有信心，Twitter 不会承认这条推文没有违反其条款和条件。”
 
-他说：“阻止这种病毒的传播，保障我们的战斗力，并确保我自己迅速和安全的恢复，仍然是我的优先事项。在可能的范围内，我计划在下周以虚拟方式参加那些关键的会议和讨论，以了解我的情况并作出决定。我将保留所有权力。”
+暂停似乎表明，Twitter 旨在打击与 COVID-19 或疫苗相关的帖子和内容，这些帖子和内容与对此事的主流观点相反。
 
-国防部副部长凯瑟琳·希克斯将“在适当的时候”代替他处理其他事务。
+帮助开发** mRNA **疫苗技术的罗伯特**·**马龙（**Robert Malone **）博士，上周因违反** Twitter **的条款和条件而被停号。他在社交媒体网站 Gettr 上写道，1 月 2 日，议员玛乔丽·泰勒·格林(Marjorie Taylor Greene) 的个人 Twitter 页面因类似原因被暂停。
 
-奥斯汀是五角大楼最新一位中共冠状病毒检测呈阳性的官员。上个月，国民警卫局局长丹·霍坎森将军检测出阳性。
+Twitter 发言人在 1 月 2 日的一份声明中说：“玛乔丽因屡次违反我们的** COVID-19 **错误信息政策而永久停号。我们已经明确表示，根据我们针对这项政策的制度，因屡次违反政策，我们将永久停其帐户。”
 
-奥斯汀的突破性病例发生在Omicron变体在美国肆虐之际，并在最近几周感染病例急剧上升。
+与此同时，马龙告诉《大纪元时报》，他拥有超过 50 万粉丝的账户，在没有任何预警的情况下被永久暂停。那是几天之前马龙在接受流行播客乔罗根采访时说的。
 
-奥斯汀还再次呼吁国防部人员接种疫苗。五角大楼已经强制要求部队接种疫苗，五角大楼负责人指出，对中共病毒的免疫力是一个战备问题。
+与此同时，前《纽约时报》记者亚历克斯·贝伦森 (Alex Berenson) 在推特账号被禁后，对推特提起了诉讼，该账号同样拥有数十万粉丝。
 
-奥斯汀说：“疫苗是有效的，并继续成为我们保持战斗力的一项军事医疗要求。我继续鼓励每个有资格接受加强针的人接受注射。这仍然是一个战备问题。”
+上个月，前 CEO 杰克·多尔西 (Jack Dorsey) 辞去了 Twitter 的职务，这引发了人们的担忧，即这家总部位于旧金山的公司，会对可以发布哪些内容采取更强硬的立场。在多尔西离职后，曾发表过批评言论自由的 Twitter 长期员工帕拉格·阿格拉瓦尔 (Parag Agrawal) 接任首席执行官一职。
 
-**参考资料：**[politico][Pentagon chief Austin tests positive for Covid-19](https://www.politico.com/news/2022/01/02/pentagon-lloyd-austin-covid-526376)
+**点评：试想，如果没有像Gettr这样的发声平台，任由大药企控制的媒体谎言欺骗，这个世界将走向怎样的灾难？**
+
+**参考资料：**[theepochtimes][Twitter Suspends Media Site’s Account for Posting Video of Congressman Criticizing Big Pharma](https://www.theepochtimes.com/mkt_morningbrief/twitter-suspends-media-sites-account-for-posting-video-of-house-rep-criticizing-big-pharma_4189099.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-03&amp;mktids=8e27e86280e1cb6da02ffcddc523bb5b&amp;est=M6fs9w6ls4i8QEKleCVecpVxLZQfKr0Zrwfe47CLxdU7RwkIXDqjCCT0Vs1Q+7yIaoywNQ==)
 
 * * *
 

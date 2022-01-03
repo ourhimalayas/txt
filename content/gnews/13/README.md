@@ -2,50 +2,53 @@
 ---
 
 
-## 郭先生谈爆料革命战友无我、利他
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818980/)
+## 禁止室内用餐，福特内阁会议正在考虑进一步限制零售容量
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1818982/)
 
-作者：东京樱花团—在远方
+作者：Bryann Aguilar
+翻译：HimaFAFA
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-31.png)
 
+福特政府正在考虑引入更严格的 COVID-19 限制，因为安大略省每天都有破纪录的新病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+消息人士周日告诉多伦多 CTV 新闻，省长道格福特与他的内阁会面，讨论在 Omicron 变种传播期间保持医院容量和保持学校开放的可能措施。
 
+正在考虑的措施包括禁止室内用餐，降低室内（从 10 人到 5 人，他们应该完全接种疫苗）和室外聚会的限制，以及将基本零售的容量减少到 50%，非基本零售的容量减少到 25%，消息人士称。
 
+消息人士称，政府也在考虑限制健身房和个人护理服务以及宴会厅和婚礼。
 
-在2022年元旦大直播中，郭先生谈到了新中国联邦人和爆料革命战友的无我、利他精神。
+此外，该省正在考虑取消相关门票的活动。
 
-郭先生表示，世界上没有哪一种动物，觉得自己的同类是丑陋的和无法相处的。但当前中国人在世界上是没有丝毫尊严的，无论在何时何地，中国人都不愿意看见同胞，不跟同胞交流，也绝不相信同胞。中国人互相看对方不顺眼，都想远离对方。这都是在墙内受到共产党的奴役和洗脑所造成的恶果——受欺骗、受打压、到处都是虚假，然后到墙外一看正常世界就感觉极度不舒服。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2.jpg)
-郭先生表示在直播中与战友交流让他无比感动，我们新中国联邦人找到了属于自己的尊严。我们既不是东亚病夫，也不是东亚狂夫；我们既不是战狼，也不是战羊，我们就是正常的人类。我们虽然有无数的缺点，但我们也有无数同类的优点。
+消息人士称，如果这些措施获得批准，政府计划最早在周三实施，并将实施三周后重新评估。
 
-我们还要超越更多的自我，要有一个新中国联邦的概念，和拯救他人的概念。如果每个人只为了自己活着，那么他将面临一次又一次的失败，只是失败的程度不同而已。只有拥有了无我、利他和灭共的决心，并在此基础上，每个人爱自己、爱战友，一切才会无限美好。
+内阁会议与安大略省报告超过 16,000 例新的 COVID-19病例发生在同一天。周六，该省创下了每日新增感染人数超过 18,000 人的记录。
 
-参考链接：
-[我们大直播的意义](https://gnews.org/zh-hans/1814357/)
+官员们表示，由于测试限制，这些数字被低估了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+感染控制流行病学家科林·弗内斯 (Colin Furness) 周日晚间告诉 CTV 新闻频道，正在考虑的限制措施本应在上个月实施。
 
-编辑/总编：文特
-校对/发稿：为真不破20
+“我们在 12 月需要一些措施，我认为这实际上可以阻止事情的发生。现在，这些限制只会在某种程度上解决我们面临的更大问题，如现在非常失控的传播，”弗内斯说。
 
-**更多资讯，更多关注**
+“因此，试图以容量限制与病毒进行谈判，我认为它不会取得太大成果。同时，我知道人们对适当关闭不感兴趣，但这却是我们正是需要的。所以，我们处于一个非常困难的地方。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+来源：https://www.cp24.com/news/ban-on-indoor-dining-further-capacity-limits-for-retail-being-considered-in-ford-cabinet-meeting-sources-1.5725771
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
