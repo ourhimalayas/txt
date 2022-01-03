@@ -15,92 +15,92 @@
 
 ---
 
-### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/1/README.md)
+### [疫苗災難即將開始 活下去是最重要的目標](/content/gnews/1/README.md)
  ` 焦點20分`
 
-### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/2/README.md)
+### [22年多地会爆发“西安疫情” 远离城市 备好物资 和农场紧密联系](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [1/2 银河快讯: 驻冲绳美军感染中共病毒；岸田首相警告说将出现第六波疫情](/content/gnews/3/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共国日益增长的独裁主义不重要吗？](/content/gnews/3/README.md)
+### [中共国日益增长的独裁主义不重要吗？](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党的洗脑热土，中共原外交部长李肇星入驻“B站”](/content/gnews/4/README.md)
+### [共产党的洗脑热土，中共原外交部长李肇星入驻“B站”](/content/gnews/5/README.md)
  ` 首尔天池农场`
 
-### [1/2/2022 文贵盖特：中共是在西安和阿富汗发生的惨剧的罪魁祸首](/content/gnews/5/README.md)
+### [1/2/2022 文贵盖特：中共是在西安和阿富汗发生的惨剧的罪魁祸首](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年对所有人都是严峻的考验](/content/gnews/6/README.md)
+### [2022年对所有人都是严峻的考验](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/7/README.md)
+### [01/03/22 香港快讯 《众新闻》宣布后日停运：身在风眼，须确保船上人平安](/content/gnews/8/README.md)
  ` 英喜-粵語組`
 
-### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/8/README.md)
+### [银河快讯：2022日本铁路全面减员；日本企业并购数量创历史新高](/content/gnews/9/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022/01/03 大卫作战室直播精要](/content/gnews/9/README.md)
+### [2022/01/03 大卫作战室直播精要](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/10/README.md)
+### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [MV版Hcoin To the Moon上线第25天位列美国iTunes摇滚MV榜首](/content/gnews/11/README.md)
+### [MV版Hcoin To the Moon上线第25天位列美国iTunes摇滚MV榜首](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本媒体只要传播共产党把盘古龙头变龟头鸟头就是成功](/content/gnews/12/README.md)
+### [日本媒体只要传播共产党把盘古龙头变龟头鸟头就是成功](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/13/README.md)
+### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [联盟工作汇报文字版2022.1.2](/content/gnews/14/README.md)
+### [联盟工作汇报文字版2022.1.2](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [中共国化工大省电费猛涨](/content/gnews/15/README.md)
+### [中共国化工大省电费猛涨](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [二战后的中国人越吃越胖骂人越来越脏,国人十之八九撒谎](/content/gnews/16/README.md)
+### [二战后的中国人越吃越胖骂人越来越脏,国人十之八九撒谎](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/17/README.md)
+### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [东渡扶桑的七哥审视写着让你站起来和提供甜糕的报恩寺](/content/gnews/18/README.md)
+### [东渡扶桑的七哥审视写着让你站起来和提供甜糕的报恩寺](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [做真正的手足肢体](/content/gnews/19/README.md)
+### [做真正的手足肢体](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/20/README.md)
+### [有声|中共驻美大使、披着羊皮的战狼秦刚向美国宣战](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [日本一句自救的话贴满全日本各地——让你自己站起来](/content/gnews/21/README.md)
+### [日本一句自救的话贴满全日本各地——让你自己站起来](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/22/README.md)
+### [韩国前总统朴槿惠入狱近5年后获释](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/23/README.md)
+### [盘古乃真龙 中共改龙首 坏风水 必定加速灭亡](/content/gnews/24/README.md)
  ` 焦點20分`
 
-### [【粤语配音】2022年1月1日：《新中國聯邦宣言》的初衷](/content/gnews/24/README.md)
+### [【粤语配音】2022年1月1日：《新中國聯邦宣言》的初衷](/content/gnews/25/README.md)
  ` MOS香港部`
 
-### [七哥知道VICE有备而来提前把她瞄得准准的必须持续反击](/content/gnews/25/README.md)
+### [七哥知道VICE有备而来提前把她瞄得准准的必须持续反击](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|我的新年愿望](/content/gnews/26/README.md)
+### [有声|我的新年愿望](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/27/README.md)
+### [浙江宁波、河南禹州疫情形势严峻](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安疫情加剧中共国芯片紧缺 恐再次引发公司外流](/content/gnews/28/README.md)
+### [西安疫情加剧中共国芯片紧缺 恐再次引发公司外流](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [有声|德国外长及内务部长将不参加中共冬奥会](/content/gnews/29/README.md)
- ` MOSREC`
 
 ### [新中国联邦人要拥有爱](/content/gnews/30/README.md)
  ` GTV新闻访谈`
@@ -111,38 +111,38 @@
 ### [海花岛被拆，员工被裁，恒大雪上加霜](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共不灭，人祸永存](/content/gnews/33/README.md)
+### [中共病毒已经改变了俄罗斯人的生活方式和人口结构](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [研究发现：将蜂蜜与黑孜然相结合有助于新冠患者](/content/gnews/34/README.md)
+### [中共不灭，人祸永存](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
+
+### [研究发现：将蜂蜜与黑孜然相结合有助于新冠患者](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [为剔除华为 日本切实推进6G全球合作](/content/gnews/35/README.md)
+### [为剔除华为 日本切实推进6G全球合作](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [科研发现 至少有40万美国人可能因接种中共病毒疫苗致死](/content/gnews/36/README.md)
+### [科研发现 至少有40万美国人可能因接种中共病毒疫苗致死](/content/gnews/37/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [1/3/2022国际财经快讯：美联邦存款保险公司主席拟于2月辞职；2021年是加密货币盗窃案疯狂一年](/content/gnews/37/README.md)
+### [1/3/2022国际财经快讯：美联邦存款保险公司主席拟于2月辞职；2021年是加密货币盗窃案疯狂一年](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|华为2021年度营收下降30%](/content/gnews/38/README.md)
+### [有声|华为2021年度营收下降30%](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [美国国防部长奥斯汀感染中共病毒，有症状，隔离中](/content/gnews/39/README.md)
+### [美国国防部长奥斯汀感染中共病毒，有症状，隔离中](/content/gnews/40/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国参议员谈加密货币和比特币](/content/gnews/40/README.md)
+### [美国参议员谈加密货币和比特币](/content/gnews/41/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [捷克新内阁重拾人权价值外交政策 审视与中共的关系](/content/gnews/41/README.md)
+### [捷克新内阁重拾人权价值外交政策 审视与中共的关系](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点0103](/content/gnews/42/README.md)
+### [DC每日热点0103](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [【中日财经爆】数字经济进千家万户！三星电视从2022年起支持NFT功能](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【G时新闻】连续接种疫苗、加强针对新变异病毒有效性很低或完全无效！](/content/gnews/44/README.md)
  ` G-时新闻`
