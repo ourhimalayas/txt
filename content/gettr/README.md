@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mngop 1/3/2022 3:41 PM (UTC)`
+
+In radio interviews this morning, @GovTimWalz made no mention of the violent crime rising in MN. He has no plan to protect Minnesota’s families and businesses. Just this weekend, the state’s largest city saw the most homicides in a generation:  https://www.usnews.com/news/best-states/minnesota/articles/2021-12-31/minneapolis-nears-record-homicide-count-for-2021 (1/3)
+
+---
+
+`@miles 1/4/2022 12:23 AM (UTC)`
+
+1月3号：可悲可怜的．西安人和14亿同胞——悲愤交加……
+![img](https://media.gettr.com/group9/getter/2022/01/04/00/deb161a3-908e-de55-29a9-752147a0a645/out.jpg)
+
+---
+
 `@miles 1/4/2022 12:02 AM (UTC)`
 
 1月12号：七哥好，上边的截图是昨天小Sarah接到一个工程师的电话，说他刚从国内逃出来，现在在多伦多，一家三口人生活上钱不够用，想把之前要存去HDO的4万美金拿回来做生活费，请小Sarah帮忙沟通一下找木兰；<br/>在通话过程中了解到他生活上基本生活的家具都没有呢，很多商店都缺货买不到；<br/>然后，我让小Sarah马上联系卢比肯的太太（她是给卖房经济做家居摆设的，疫情之下就不做了，有很多家居正在出卖）约了一下今天去她的库房看看；<br/>这位战友还没有车子，今天卢比肯和他太太亲自驾车去接战友到库房，<br/>来回跑了两趟送家具，一分没要；<br/><br/>在七哥的带领下，真的都是爱战友！把战友都当家人！感动！🙏🙏🙏一群有爱的人在一起，这就是灭共的力量和灭共的信心！💪💪💪
@@ -141,20 +156,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 1/1/2022 Miles Guo: What is “wind” according to traditional Chinese culture? Both the Chinese Five Element Theory and the West’s astrology are the accumulation of culture and human civilization; the CCP’s red flag is most afraid of “water” in the five elements, and both the zodiac signs of Xi Jinping and Peng Liyuan fear the Year of Tiger; the CCP is the one that believes gods and Feng Shui the most so that they would remodel the dragon-head-shaped top of Pangu Plaza and go to the Temple of Heaven and the Yonghe Lamasery to worship on every lunar new year’s eve<br/><br/>1/1/2022 文贵直播：什么是“风”？中国的五行和西方的星座都是人类文明的累积；中共五星红旗怕水，习彭属相怕虎年；中共最相信神和风水，所以要改盘古的龙头并在大年三十去天坛和雍和宫祭拜
 ![img](https://media.gettr.com/group14/getter/2022/01/02/16/17ab39fa-0c4d-8743-7bc0-93d242ba2818/out.jpg)
-
----
-
-`@miles 1/2/2022 2:03 PM (UTC)`
-
-1/1/2022 Mr. Miles Guo: The “I’m the Music Hero” show last night is a sublimation of the whole NFSC team. CCP‘s Red songs are brainwashing tools and deny humanity, but our music is about human nature and respect to God.<br/><br/>1/1/2022 文贵先生新年大直播：昨晚的《我是音雄》是新中国联邦团队整个的升华。中共的红歌是洗脑的、泯灭人性，而我们的音乐是歌颂人的本能，敬崇上天的。
-![img](https://media.gettr.com/group5/getter/2022/01/02/14/b2cf4d19-f064-3f93-43bb-72cf29d9b1c0/out.jpg)
-
----
-
-`@miles 1/2/2022 1:21 PM (UTC)`
-
-1/1/2022 Mr. Miles Guo: reading the manifesto of NFSC, staying in touch with the farms, staying away from the cities is the solution for the fellow fighters to hold together and get through the hard times.<br/><br/>1/1/2022 文贵先生新年大直播：读新中国联邦宣言、联系农场、远离城市是战友们抱团取暖、渡过难关的解决之道。<br/>
-![img](https://media.gettr.com/group5/getter/2022/01/02/13/bc105709-9aac-dcf8-db8a-6dab12dfabbc/out.jpg)
 
 ---
 

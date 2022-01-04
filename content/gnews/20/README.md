@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|蔡英文正告中共停止对台商选择性执法恫吓
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819287/)
+## 第205期玫瑰看新聞-新西蘭本地新聞
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1819308/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月24日，就中共五省市执法部门以所谓“不允许支持台独”为由，对远东集团等台湾部分企业实行重罚一事，台湾总统蔡英文发表声明，呼吁朝野各界正告中共当局，要求中共立刻停止此种行为，不要继续伤害两岸及双边经贸关系。
+新西蘭本地新聞:
 
-蔡英文指出，中共通过政治献金，意图干预台湾的民主政治发展，但这类举动无助于两岸经贸的正常交流，反而对两岸关系造成了严重的伤害。另一方面，台商长期以来对大陆的经济发展、社会就业以及两岸交流做出了很大的贡献。因此，中共对台商进行选择性的执法恫吓，只会加速两岸分裂，同时恶化中共国内的投资环境，加速外商企业的投资转向。
+1.最新通報：社區新增144例，又一病例死亡
 
-原文链接：[蔡英文正告中共停止对台商选择性执法恫吓](https://gnews.org/zh-hans/1694958/)
+2.奧克蘭北部突發大火，40名消防員、數架直升機趕往滅火
 
-音频处理：喜山必胜Maverick
+**推出問題，敲出真相，爆料在路上！**
 
-发稿：Daxia
+**請關注和訂閱我們的以下帳號：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+**新西蘭伊甸農場蓋特**：https://gettr.com/user/himalayanz
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**【玫瑰看新聞】蓋特**：https://gettr.com/user/rosenews
 
+**玫瑰看新聞****YouTube****帳號**：
+
+**玫瑰看新聞**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新聞】推特帳號**：
+
+**Rose News (@RoseNews4)**
 
  
 
