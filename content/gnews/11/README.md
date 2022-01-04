@@ -2,42 +2,75 @@
 ---
 
 
-## 台湾政府假借疫苗悄悄实施极权政策
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1820927/)
+## 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1820931/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/biden.jpg)
-**台湾政府逐渐成为警察国家**
+[https://gtv.org/video/id=61d2bf33dffab035958a31c9](https://gtv.org/video/id=61d2bf33dffab035958a31c9)
 
-据《GTV NEWS TALK》1月3日的报导，台湾政府假借疫苗政策，破坏台湾人民好不容易建立的民主体制，逐步走向集权统治。无论是月子中心，到医院陪伴病患，民众都被要求出示疫苗证明，形同实施疫苗护照政策。
+**郭文贵
+Miles Guo**
 
-各县市民选市长的做法更是天怒人怨，据台湾《工商时报》报导，台北市长柯文哲认为即便打满2剂还是会被感染，提醒市民把疫苗打好打满，必须再打第三针加强针。柯将锚头指向旅馆工作人员，要求防疫旅馆人员再打第三针加强针，威胁以抽查方式给业者压力，企图将防疫责任推给旅馆业者。
+在新疆里边强奸、轮奸的那是多少孩子
+How many children were raped and gang-raped in Xinjiang at that time
 
-而据《华视》报导，高雄市长陈其迈胆敢以民选市长的立场，建议全国一律将居家隔离者送到集中检疫所，表面上看似为了降低传染风险，实际上是要进一步控制人民的行动，成为名副其实极权统治的警察国家。
+都是小孩
+They were all children
 
-**台湾政府及相关医疗机构图利业者严重渎职**
+共产党在西藏、在新疆
+The CCP in Tibet and Xinjiang,
 
-台湾政府号称医疗体系完整，医疗能力傲视全球，医疗人员素质完整，然而从此次冠状病毒(中共病毒)疫情来看，台湾政府及相关医疗机构严重渎职。他们用价格高昂却对冠状病毒(中共病毒)疫情毫无助益的实验性疫苗，破坏人体免疫系统副作用遍及人体各部位，从头部到内脏，无一倖免!
+多少当官的到西藏到新疆叫什么..去干什么呀？
+what’s that called when most of the officials go there? What are they doing there?
 
-台湾总统蔡英文认为台湾是民主体制，与中共国的独裁极权统治完全不同。然而在此次的冠状病毒(中共病毒)疫情之下，无论民选总统或者市长，全部原形毕露展现集权中央的独裁狰狞嘴脸。
+叫修炼自己
+That’s called self-cultivate (in the evil way)
 
-他们将人民的生命福祉弃之不顾，利用已失去灵魂的媒体给民众洗脑，甚至连专业的医护人员都无法轻易得到冠状病毒(中共病毒)的相关真实讯息。台湾政府及医疗机构将因此次重大严重渎职，付出巨额代价。
+专找当地的处女玩，处男玩，（目的是）让自己延长寿命
+They hunt for the local virgins and boys and rape them in order to extend themselves’ life
 
-除了有形世界的刑责，在因果轮回下，所有渎职人员都将永世无法超生!
+那杀了多少人
+How many people have been killed for that
 
-消息来源:
+你觉得现在阿富汗每时每刻在直播当中饿死的人
+The Afghanistan people are starve to death every second during our live broadcasts right now
 
-1.
+你觉得关键是谁（造成的）？
+Who do you think the key person is (for causing)?
 
-[https://tw.news.yahoo.com/amphtml/%E6%86%82%E7%96%AB%E6%83%85%E7%A0%B4%E5%8F%A3-%E9%99%B3%E5%85%B6%E9%82%81%E7%B1%B2%E5%B1%85%E9%9A%94%E8%80%85%E7%A7%BB%E8%87%B3%E9%9B%86%E6%AA%A2%E6%89%80-102400040.html](https://tw.news.yahoo.com/amphtml/%E6%86%82%E7%96%AB%E6%83%85%E7%A0%B4%E5%8F%A3-%E9%99%B3%E5%85%B6%E9%82%81%E7%B1%B2%E5%B1%85%E9%9A%94%E8%80%85%E7%A7%BB%E8%87%B3%E9%9B%86%E6%AA%A2%E6%89%80-102400040.html)
+不就是共产党扶持的塔利班吗？
+No doubt, that’s the Taliban who supported by the CCP
 
-2.
+将近5000万人呢
+Nearly 50 million people
 
-[https://gtv.org/video/id=61d2fa3131a71619b5740b94](https://gtv.org/video/id=61d2fa3131a71619b5740b94)
+2300到2500万人没饭
+23-25 million people have no food
 
-3.
+此时此刻5000万人98%的没饭吃
+At this moment, 98% of this 50 million people have no food
 
-[https://gtv.org/video/id=6190c57d1827025081051e6f](https://gtv.org/video/id=6190c57d1827025081051e6f)
+就是（因为）共产党一念之差要给美国人要制造动乱
+because of a wrong decision that the CCP made which was creating turmoil for Americans
+
+* * *
+
+Date: 12/29/2021
+原视频标题: 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
+The CCP officials rape Tibetan children in Xinjiang to prolong their lives and support the Taliban to starve people to death
+原视频日期：2021/12/29
+原视频链接: [**https://gettr.com/post/pl2zeh7633**](https://gettr.com/post/pl2zeh7633)
+任务编号：3373
+视频时间段 : 0:00-00:56
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

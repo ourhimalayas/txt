@@ -2,76 +2,31 @@
 ---
 
 
-## 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1820931/)
+## 01/04每日播报｜Omicron变种感染潮正在摧毁美国教育系统
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1820932/)
 
-[https://gtv.org/video/id=61d2bf33dffab035958a31c9](https://gtv.org/video/id=61d2bf33dffab035958a31c9)
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d40c0d31a71619b5747c96)**
 
-**郭文贵
-Miles Guo**
+**2022-01-04**
 
-在新疆里边强奸、轮奸的那是多少孩子
-How many children were raped and gang-raped in Xinjiang at that time
+纽约时报1月3日报道，由于中共病毒的爆发以及相应的人员短缺问题，美国越来越多的公立学校决定推迟元旦、新年假期后的返校时间或直接采用远程教学方式。
 
-都是小孩
-They were all children
+据了解，美国的克利夫兰、底特律、 密尔沃基、纽瓦克等地区已相继宣布，辖区内的各所学校将在未来的几天至几周内专用远程教学的方式。
 
-共产党在西藏、在新疆
-The CCP in Tibet and Xinjiang,
+当地时间的上周日晚，拥有 75,000 名学生的密尔沃基公立学校系统也发出公告表示，将从周二开始暂时转向远程教学，理由是“学区工作人员中报告的中共病毒阳性病例大量涌入”。此前，伊利诺伊州东圣路易斯的学校负责人亚瑟也于上周五在 Facebook 中发帖表示，学校课程将于周二通过网络远程授课。而拥有 35,000 名学生的纽瓦克学校则在上周宣布，他们将在至少未来两周内转向网络远程学习。本周内一些开放线下教学的学校系统将由于缺乏教职员工而不得不关闭一些校区，其中包括俄亥俄州哥伦布市的 8 所学校和匹兹堡的 12 所学校。
 
-多少当官的到西藏到新疆叫什么..去干什么呀？
-what’s that called when most of the officials go there? What are they doing there?
+时隔一年，中共病毒病例在美国寒假的前一周再次出现激增，目前已导致 11 所学校和 400 多间教室关闭，城市学校的密接者追踪系统在此情况下已经面临崩溃。
 
-叫修炼自己
-That’s called self-cultivate (in the evil way)
+与此同时，美国的青年群体也因长期肆虐的中共疫情而面临着“毁灭性”的心理健康影响。 相关报告显示，在疫情期间，抑郁、焦虑和因心理健康挑战而到急诊室就诊的自我报告数量显著增加。与 2019 年同期相比，2021 年初美国少女因自杀未遂而到急诊室就诊的次数也增加了 51%之多。 种种数据表明，中共病毒、疫情灾难会为这一代青年人带来不可磨灭的影响。
 
-专找当地的处女玩，处男玩，（目的是）让自己延长寿命
-They hunt for the local virgins and boys and rape them in order to extend themselves’ life
+（秘翻新闻主编 清风先生编译报道）
 
-那杀了多少人
-How many people have been killed for that
-
-你觉得现在阿富汗每时每刻在直播当中饿死的人
-The Afghanistan people are starve to death every second during our live broadcasts right now
-
-你觉得关键是谁（造成的）？
-Who do you think the key person is (for causing)?
-
-不就是共产党扶持的塔利班吗？
-No doubt, that’s the Taliban who supported by the CCP
-
-将近5000万人呢
-Nearly 50 million people
-
-2300到2500万人没饭
-23-25 million people have no food
-
-此时此刻5000万人98%的没饭吃
-At this moment, 98% of this 50 million people have no food
-
-就是（因为）共产党一念之差要给美国人要制造动乱
-because of a wrong decision that the CCP made which was creating turmoil for Americans
+发布:星星
 
 * * *
 
-Date: 12/29/2021
-原视频标题: 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
-The CCP officials rape Tibetan children in Xinjiang to prolong their lives and support the Taliban to starve people to death
-原视频日期：2021/12/29
-原视频链接: [**https://gettr.com/post/pl2zeh7633**](https://gettr.com/post/pl2zeh7633)
-任务编号：3373
-视频时间段 : 0:00-00:56
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
