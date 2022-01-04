@@ -15,65 +15,65 @@
 
 ---
 
-### [麦卡洛博士：COVID-19的门诊治疗已被禁止](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [新中国联邦爆料革命日历](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
 
-### [联邦法官对拜登政府另一重拳：军事疫苗强制令非法](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [【G时新闻】超级计算机模拟结果推翻了中共病毒自然来源说](/content/gnews/3/README.md)
- ` G-时新闻`
-
-### [中共西藏谎言系列之三：中共对西藏水资源的掠夺和控制](/content/gnews/4/README.md)
+### [中共西藏谎言系列之四：寄宿学校制度和清洗教育的摧残](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年COVID疫苗回顾：2亿人接种45万人死亡](/content/gnews/5/README.md)
+### [麦卡洛博士：COVID-19的门诊治疗已被禁止](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [自乔·罗根加入后，社交平台盖特48小时内猛增50万新用户](/content/gnews/6/README.md)
- ` 全球G系列咨服群`
-
-### [【G时新闻】专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/7/README.md)
- ` G-时新闻`
-
-### [推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [海豹突击队在美国反疫苗规定的斗争中取得了惊人的胜利](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [人生的十二条法则：路上碰到一只猫咪时，记得摸摸它](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [人生的十二条法则：孩子玩滑板的时候，别打扰他](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [人生的十二条法则: 说话时，语言要精确](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [人生的十二条法则：提醒自己他懂的一些东西我可能真的不懂](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [人生的十二条法则：说实话，或者至少不要说谎](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [CDC承认PCR测试是骗局](/content/gnews/16/README.md)
+### [联邦法官对拜登政府另一重拳：军事疫苗强制令非法](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/01/01新年直播精要](/content/gnews/17/README.md)
+### [【G时新闻】超级计算机模拟结果推翻了中共病毒自然来源说](/content/gnews/5/README.md)
+ ` G-时新闻`
+
+### [中共西藏谎言系列之三：中共对西藏水资源的掠夺和控制](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年COVID疫苗回顾：2亿人接种45万人死亡](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [自乔·罗根加入后，社交平台盖特48小时内猛增50万新用户](/content/gnews/8/README.md)
+ ` 全球G系列咨服群`
+
+### [【G时新闻】专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/9/README.md)
+ ` G-时新闻`
+
+### [推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由有时是凌乱的，但它改善了一切](/content/gnews/18/README.md)
+### [在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [海豹突击队在美国反疫苗规定的斗争中取得了惊人的胜利](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [人生的十二条法则：路上碰到一只猫咪时，记得摸摸它](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：孩子玩滑板的时候，别打扰他](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则: 说话时，语言要精确](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：提醒自己他懂的一些东西我可能真的不懂](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：说实话，或者至少不要说谎](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [CDC承认PCR测试是骗局](/content/gnews/18/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [2022/01/01新年直播精要](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [自由有时是凌乱的，但它改善了一切](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
-
-### [雅典娜时报-第164期](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [人生的十二条法则：追求有意义的事情而非快速便捷的事](/content/gnews/21/README.md)
  ` MG FARM`
