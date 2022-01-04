@@ -2,33 +2,32 @@
 ---
 
 
-## 台湾总统蔡英文就中共的“军事冒险主义”发出警告
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1819639/)
+## 中共山东最高法：不能仅以出轨为由离婚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819804/)
 
-撰稿：GeorgeC（乔治）
-校对：zzballack
-上传：追着曙光跑
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月2日，中共山东最高法院宣布，夫妻双方不能以出轨为由请求离婚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.24.png)
+该法院援引中共《民法典》中婚姻法的法律解释：即出轨的证据仅证明配偶存在不忠行为，但是未能证明配偶与他人同居，或夫妻感情破裂，因此不能以此作为起诉离婚的理由，更不能作为要求离婚损害赔偿的条件。
 
-据《国会山报》（The Hill）1月2日报道，《路透社》上周日报道说，台湾总统蔡英文警告中共，“军事冒险主义”绝不可行。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-09.47.42.jpeg)图片来源：网络
-蔡英文1月1日在脸书（Facebook）上庆祝新年时表示：“我们必须提醒北京当局不要误判局势，并防止军事冒险主义在内部蔓延。”
+中共的高压独裁下，人性压抑。用法律手段强制维持情感破裂的婚姻，只会让整个社会更加恐惧婚姻。中共国婚姻率和生育率恐怕将会一降再降。
 
-台湾当局已多次公开表示，台湾是一个独立的国家，并发誓要捍卫其自由和民主。与此同时，中共政府声称台湾是中共国的领土，在过去两年里，中共增加了其对台的军事威胁和外交压力。
+参考链接：[山东高法：不能仅以出轨为由请求离婚](https://view.inews.qq.com/a/20220102A04KRK00)
 
-中共国务院台湾事务办公室的发言人朱凤莲表示，北京政府“愿意为和平统一的前景而努力”。朱凤莲在一份声明中说：“如果台独分裂势力继续挑衅和威胁，甚至越过红线，我们将不得不采取果断措施加以回应。台湾当局追求独立只会使台湾陷入深渊，并带来巨大的灾难。“
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-据路透社报道，蔡英文总统还表示：“军事冲突绝对不是解决两岸分歧的合理选项“，并表示这类冲突将损害两岸的经济稳定。同时，中共总书记习近平在新年讲话中表示：“实现祖国完全统一是两岸同胞的共同心愿。“
+总编：飞虹
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**评论：**新年刚开始，习总加速师再一次体现了一个优秀共产党人的固有品质—撒谎。现在台湾的主流民意对于两岸统一的期望远远小于独立建国和保持现状，而在台湾的年轻一代中，对于两岸统一的呼声几乎可以忽略不计。
-
-然而，共产党却一再提到要统一台湾，不排除付诸于武力。更有甚者，中共在2021年十月、十一月期间派遣了多达百次的战斗机入侵台湾航空识别区，极大提振墙内民族主义情绪。这是因为独裁者知道，民族主义是一个可以掩盖内政外交困局的法宝，可以转移国内国外诸多矛盾。
-
-对于被全世界抵制北京冬奥会所困扰的总加速师来说，以统一台湾为由给小粉红们打鸡血是他最后一张可以打的牌。客观来说，台湾的命运取决于中共和美国的博弈，蔡英文的态度可以理解为代表美国的态度。同时，在全世界新冠疫情不断恶化，疫苗灾难不断爆发的今天，中共已经走向绝路。相信在接下来的几年内，中共必将被消灭！
-
-参考新闻：[Taiwan president warns China over ‘military adventurism’](https://thehill.com/policy/international/asia-pacific/587917-taiwan-president-warns-china-over-military-adventurism)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

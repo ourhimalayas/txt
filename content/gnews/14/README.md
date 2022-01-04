@@ -2,26 +2,23 @@
 ---
 
 
-## 香港《众新闻》将于4日被关停
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819803/)
+## 有声|各界质疑中共人权劣迹官员任国际刑警执委
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819835/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.38.png)
-刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月25日，据国际刑警组织宣布的消息显示，中共公安部副局长胡彬郴当选该组织执委会委员。
 
-分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
+据了解，在侵犯人权以及镇压不同政见者方面，胡彬郴存在很大污点。为此，胡彬郴此次的任职受到国际社会的强烈质疑。
 
-参考链接：
-1）[香港律政司司长：新闻自由在香港备受尊重](https://www.sohu.com/a/513542983_123753)
-2）[快讯！港媒：“众新闻”宣布4日起停止运作，曾发表误导公众言论](https://www.sohu.com/a/513926824_162522)
+由多个国家和党派组成的“对华跨国议会联盟”致函国际刑警组织表示，允许胡彬郴进入执委会就是向中共政府继续滥用国际刑警组织的行为大开绿灯。同时，此举会让成千上万生活在海外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+该联盟警告国际刑警组织，倘若继续作为中共压迫政策的工具，将对其国际地位造成严重损害。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[各界质疑中共人权劣迹官员任国际刑警执委](https://gnews.org/zh-hans/1700458/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

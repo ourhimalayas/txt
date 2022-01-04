@@ -2,26 +2,21 @@
 ---
 
 
-## 华为斥巨资渗透收买英国顶尖大学
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819802/)
+## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-9
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819834/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体12月30日报导，依据信息自由要求所获得的部分数据显示，中共华为电信公司自2016年至2021年底，至少已花费七千万英镑，分别送给英国各大顶尖大学，用于收买渗透各大学的教授及相关人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.31.png)
-华为用钱收买顶尖大学的明显例子发生于剑桥大学耶稣书院，在2020年，剑桥大学耶稣书院发表了一份关于电信改革的研究报告，并在报告中赞扬华为。此后，耶稣学院承认从华为收到了15万英镑，用于撰写此报告的费用；此外，该学院还从中共国家留学基金委分别收到了20万到40万英镑的献金。在2021年9月，剑桥一个研究中心的大部分研究人员被发现与华为有关联，因此，华为被指控“渗透”了该研究中心。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+HBO VICE的剪辑视频采信了一个名为“螃蟹”的工程师对郭先生的诽谤性叙述和评论，谎称他曾帮助郭先生创立了GTV和Gettr，郭先生没有向他支付最后的费用并将他的信息卖给了中共，使他的国内银行账号被冻结，以此恶意攻击郭先生。
 
-目前，已知剑桥、牛津、皇家艺术学院、伦敦玛丽皇后大学、伦敦国王学院、利物浦大学等知名大学皆有收受来自华为的献金。但是，尚有许多大学拒绝公布从华为收到献金的详细内容。
+事实上，在郭先生创立GTV早期，曾准备了几套方案。“螃蟹”只是为郭先生的项目编写代码的很多人之一，与之签订工作合同的也是目前的GTV之前的一家公司。当郭先生发现“螃蟹”做出的方案并非自己所需，并且在盗取GTV的机密信息时，立即指示相关公司向他支付了所有费用，并完全放弃了他的想法和具体工作，目前的GTV、Gettr与“螃蟹”没有丝毫关系。
 
-参考链接：
-1）[Revealed: Huawei’s Oxbridge millions](https://www.spectator.co.uk/article/revealed-huawei-s-oxbridge-millions)
-2）[Data: Chinese research partnerships with UK universities](https://chinaresearchgroup.org/research/data-chinese-research-partnerships-with-uk-universities)
+接下来让我们还原事实真相的第9部分：反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-9](https://gnews.org/zh-hans/1814194/)
 
-总编：文特
-编辑：文徬
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +24,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
