@@ -2,26 +2,28 @@
 ---
 
 
-## 参议员兰德·保罗宣布退出YouTube加入Rumble
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820253/)
+## 中共国人民银行原党委书记、主任牟善刚接受调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1820315/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown.jpg)中共国人民银行原党委书记、主任牟善刚接受调查 网络图片
+据网易新闻1月4日报道，中央纪委国家监委网站讯据中央纪委国家监委驻中国人民银行纪检监察组、天津市监察委员会消息：中共国人民银行机关服务中心原党委书记、主任牟善刚涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-2.jpg)图片来源：纽约客
-1月3日，《国会山报》报道参议员兰德·保罗（Rand Paul）说，由于YouTube（油管）对其采取了行动，他将停止在YouTube上发布视频。
+中共国现在除了各个房地产公司违约、暴雷，就是教育系统被调查、网络公司被查处，各级高管或被抓、或被杀，真正是人人自危、各行各业都发抖，不知道哪一天大锤就砸到自己头上。中共不仅害外人，对自己人下手同样毫不留情。只要跟中共搭边，最后的结局都是粉身碎骨。
 
-他说，他决定停止在YouTube上发布视频内容，是他“逃离大科技（公司审查）”的部分行动，指责YouTube对他的视频内容进行审查。
+新闻参考资料：[https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp](https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp)
 
-报道说，在8月和9月份，保罗受到YouTube的两次打击，因为该平台声称保罗的视频违反了中共病毒（COVID-19）“错误”信息政策。他的账户因而每次被暂停7天。根据YouTube的政策，如果一个用户在90天内受到三次暂停（惩罚），该账户将被永久停止使用。
+* * *
 
-周一，保罗在《华盛顿观察家报》发布一篇专栏文章，鼓励其他对主流媒体平台政策不同意者选择不使用这些网站。他写道：“大约一半的公众倾向于右派（观点）。如果我们都把我们的信息带到自由交流的媒体平台，我们就能在一瞬间削弱大科技公司。因此，今天我迈出了第一步，拒绝向大科技公司提供我的视频内容。希望其他热爱自由的人也能跟随”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-保罗说，他将只在YouTube上发帖批评该平台，而主要在视频分享网站Rumble上发布视频内容。
 
-**新闻来源**
+编辑：【英国伦敦喜庄园编辑部】
 
-[Rand Paul announces exit from YouTube](https://thehill.com/policy/technology/587997-rand-paul-announces-exit-from-youtube)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

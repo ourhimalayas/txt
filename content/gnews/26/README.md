@@ -2,20 +2,46 @@
 ---
 
 
-## 日本将对面部识别技术进行出口管制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820877/)
+## 中国外交部表示：将继续推进核武库“现代化”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820913/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-3.jpg)图片来源：BBC
-据《台湾英文新闻网》（Taiwan News）1月3日报道，日本政府将对使用人工智能的相机与人脸识别设备进行出口管制，以防止被用于监视或迫害人权，特别是被中共享于监视和迫害少数民族。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国核武库.jpg)
 
-据 《中新社》报道，一些国家对中共侵犯人权和持续镇压维吾尔族及其他群体的行为越来越关注。中共一直在使用人工智能和其他先进技术，并在新疆维吾尔自治区和其他地区部署大规模监控系统，限制人们的行动。
 
-为防范先进技术被用于侵害人权，日本政府判断有必要采取新的措施，并与美国和其他志同道合的国家合作，在各国间引进新的相关规定。
+ 
+图片来源：路透社
 
-新闻来源：[Japan bans facial recognition tech exports due to China’s human rights abuses](https://www.taiwannews.com.tw/en/news/4396710)
+
+#### 编译：小红帽
+
+根据《马尼拉时报》1月4日报道，中国政府周二表示，**将继续使其核武库 “现代化”，并在全球大国承诺防止此类武器扩散的第二天，呼吁美国和俄罗斯削减其库存。**
+
+在一份罕见的联合声明中，美国、中国、俄罗斯、英国和法国抛开不断加剧的东西方紧张局势，重申要建立一个没有原子武器的世界和避免核冲突的目标。
+
+这五个核大国还承诺在未来全面解除原子武器。这些武器只在第二次世界大战结束时美国对日本的轰炸中被使用过。
+
+但是，在这些全球大国之间的紧张局势加剧的时候，将这种言辞与现实对调并不容易。
+
+全球对中国政府军事现代化的担忧日益加剧，特别是在中国武装部队去年宣布他们已经开发了一种超高音速导弹后，其飞行速度是声音传播的五倍。
+
+美国还表示，中国政府正在扩大其核武库，到2027年将有多达700枚弹头，到2030年可能达到1000枚。
+
+周二，中国政府为其核武器政策辩护，并表示俄罗斯和美国，作为迄今为止世界上最大的核大国，应该采取裁军行动。
+
+中国外交部军控司司长傅聪对记者表示：“中国一贯奉行不首先使用的政策，我们将核能力维持在国家安全所需的最低水平。为了可靠性和安全问题，中国将继续对其核武库进行现代化改造。”
+
+新闻来源： [China will continue to ‘modernize’ nuclear arsenal – foreign ministry | The Manila Times](https://www.manilatimes.net/2022/01/04/news/china-will-continue-to-modernize-nuclear-arsenal-foreign-ministry/1828136)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
