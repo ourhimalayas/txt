@@ -2,33 +2,23 @@
 ---
 
 
-## 有声|新中国联邦人要拥有爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822409/)
+## 福奇：打了疫苗和加强针也要留在家里
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1822463/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
+**【雅典娜快讯】紧贴事脉搏**
 
-郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
+整理报道：小鱼儿
+编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Fauci.jpeg)图片来源：Yahoo News
+据巅峰新闻1月3日报道，福奇已经两次干掉了人们的圣诞节和新年。现在他又开始要干掉人们的日常生活，甚至包括那些接种过疫苗的人们的生活。安东尼·福奇（Anthony Fauci ）是1月1日在CNN上发表了这一意见。 当初福奇们的说法是：接种疫苗吧！你就能重回自由的生活。现在的说法则改成了：呆在家里，不要去餐馆或酒吧！即使你打过疫苗和加强针，也应该这样做。 主持人达纳·巴什（Dana Bash）问道：“接种过疫苗和加强针的人应该怎么行事？他们现在出去到室内餐馆吃饭，安全吗？” 福奇回答：“现在的情况我称之为海啸式感染。那些接种了疫苗和加强针的人正在被病毒突破而被感染。因此，当处身于这么多感染发生的环境下，如果你想外出聚会，最好能你知道你周围的人是否接种疫苗的情况。” 福奇进一步说明：“这就是为什么别人问我怎么过节假日时，我一直说最安全的是留在家庭环境中。因为那些过来的亲戚朋友，你知道他们是否打了疫苗和加强针。” 他继续说道：“如果你想在安全方面再多做点什么，那就去做一个快速病毒抗原测试，这将进一步提升你的安全程度。你要避免的是有20、30人或40、50人这样的地方，因为其中许多人你并不知道他们是否打了疫苗或加强针。这就比家庭环境有了更大的风险”。
 
-郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
+发布：去中心化Math
 
-原文链接：[新中国联邦人要拥有爱](https://gnews.org/zh-hans/1818310/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

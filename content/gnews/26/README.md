@@ -2,32 +2,36 @@
 ---
 
 
-## 北朝鲜特工利用日本公司赚取外币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1822215/)
+## 因言被封：推特永久封禁美众议员的个人账户
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822292/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-6.jpg)
-[图片来源](https://asia.nikkei.com/Politics/International-relations/Japan-and-North-Korea-held-secret-meeting-in-October)
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-2.jpg)
+格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
 
-《读卖新闻》1月4日消息，在中（共）国以贸易公司作掩护的朝鲜特工被怀疑利用日本公司帮助朝鲜获取外汇，警察局已将此确定为“情报案件”。
+据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
 
-这是自二战结束以来确认的第54起与朝鲜有关的情报案件，也是第一起涉及获取外国货币的案件。警察局与海外情报机构合作正在深入调查。
+耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
 
-据消息来源称，该特工是一名60多岁的男子，使用化名“李虎南”，属于朝鲜的外国情报机构侦察总局，并且拥有多个头衔。2017年前后，韩国当局收到了关于李虎南与日本公司接触的信息，警视厅进行了调查。2020年秋天，警视厅对东京的一家贸易公司进行了搜查，怀疑其违反了有关法律。在搜查过程中，警方查获了一些文件，包括2014年至2018年间贸易公司购买和转售利比亚重油及俄罗斯液化天然气（LNG）和其它产品的合同，其中有部分交易额支付给李虎南作为中介费的文件。
+参考链接：
+1) . [Twitter permanently suspends Rep. Marjorie Taylor Greene’s personal account over covid-19 misinformation](https://www.washingtonpost.com/nation/2022/01/02/marjorie-taylor-greene-twitter-suspension/)
+2) .[When Maxine Waters can go to the streets and threaten violence on Twitter, Kamala and Ilhan can bail out rioters on Twitter, and Chief spokesman for terrorist IRGC can tweet mourning Soleimani but I get suspended for tweeting VAERS statistics, Twitter is an enemy to America and can’t handle the truth.](https://gettr.com/post/plf6qx50e8)
 
-警方认为，中介费可能是对李虎南促使利比亚等政府官员达成协议的一种奖励。在进行交易的相关邮件中警察局判断，极有可能有获取外币的活动，并将其确定为一起情报案件。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-朝鲜的主要外汇来源是煤炭和铁矿石的出口，但在多次核试验和导弹发射后，被联合国经济制裁禁止出口。  因此，据说朝鲜试图通过海路运送煤炭和其它材料及网络攻击获得资金来源。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-信息来源：
-
-[【独自】北の工作員、日本企業を利用して外貨獲得か…警察は「諜報事件」に認定](https://news.yahoo.co.jp/articles/c3b0d3d60550f7a57d12d5947e762a85f638b0c0)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

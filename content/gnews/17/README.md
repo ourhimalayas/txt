@@ -2,24 +2,26 @@
 ---
 
 
-## 有声|郭文贵先生深度解析“水是生命之源”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822351/)
+## 洛杉矶联合学区被迫取消对学童疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822425/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022开年大直播中，郭文贵先生深度解析了水在五行中的中心地位，以及水对于生命、幸福与希望的重要意义。
+据外媒1月 2日报道，洛杉矶联合学区过去计划对学生实施极端的疫苗强制措施，由于3万名学童未遵守而不得不取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9.jpg)
+去年9月，这个美国第二大学区的校董会投票决定，要求12岁以上的学生在1月10日前接种疫苗。现在，该区已将这项任务推迟到秋季，因为许多人没有遵守。
 
-郭先生说，水和太阳、空气、土地，构成了人类生存的基本要素。水是大自然循环的动力源泉，也是人类的生命之源。人体70%的成分都是水，没有充足的水分来参与身体的各项机能，花会枯萎，容颜就会衰老憔悴。
+据POLITICO报道，”美国其他民主党州的学区，也在减退以前的学生强制疫苗计划的强度。俄勒冈州波特兰市的校领导们在强烈的反对声中，于秋天暂停了讨论，而纽约和芝加哥则采取了观望态度。他们不仅对强制疫苗批评者小心翼翼，而且还提出疑问：他们是否应该在FDA完全批准为他们的学生接种疫苗之前，实施这种强制” 。
 
-郭先生指出，中共国放开了三胎，但是人口出生率却连年下降，正是因为年轻人精神压抑，前途渺茫，超负荷的工作和生存压力压抑了人性的本能，失去了生育的动力，造成民不聊“生”。中共这个违背自然、违背天理、违背人性的专制体制，迫使老百姓不愿意让自己的后代生活在罪恶的世界里。郭先生总结，人的身体机能是由精神来控制的。找不到幸福，看不到希望，自然失去了水的滋润，老百姓觉得生命暗淡无光。
+参考链接：
+1) . [Los Angeles Public Schools Canceled Their Vaccine Mandate After 30,000 Kids Were Not Complying](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
+2) . [洛杉矶公立学校在3万名儿童未遵守规定的情况下取消了他们的疫苗接种强制](https://gettr.com/post/plpy89ff50)
 
-原文链接：[郭文贵先生深度解析“水是生命之源”](https://gnews.org/zh-hans/1818024/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：Ivy001
+编辑：Lakeman (文仁）
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
