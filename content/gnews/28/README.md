@@ -2,35 +2,36 @@
 ---
 
 
-## 有声|苗难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819261/)
+## 第205期玫瑰看新闻-新中国联邦新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1819267/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-元旦欢快的气息尚在
-同事的叹息就来了
-她的亲戚朋友中
-俩个60岁左右的走了
-还说年纪轻轻生病走
-好意问句打几针
-傲慢写在脸上
+新中国联邦新闻：
 
-原文链接：[苗难](https://gnews.org/zh-hans/1814081/)
+1.为何能1毛买到一个币你的承诺是什么
 
-音频处理：喜山必胜Maverick
+2.喜币已经设计好了七个升级的版本
 
-发稿：Daxia
+3.区块链的隐私，是各国政府最想打破的
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
 
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
 
  
 

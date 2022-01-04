@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 12:38 AM (UTC)`
+
+1月3号：不可思议的2022年1月1号72小时，我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，全球．全美国都是前5名……一切都已经开始！
+![img](https://media.gettr.com/group48/getter/2022/01/04/00/3cdce462-d23b-2f28-650e-502b57fa7ada/bb2cf5e8fafa9d14dbe654cf1b5df2fb.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@entrepreneur 1/3/2022 9:05 PM (UTC)`
+
+#GETTR Setting up my account at  ja1QkknxW6IXmV6W <br/>  https://www.gettr.com/user/entrepreneur
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mngop 1/3/2022 3:41 PM (UTC)`
@@ -142,20 +157,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 
 2022年1月2号：尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！
 ![img](https://media.gettr.com/group44/getter/2022/01/02/16/668566f0-2aaf-154c-2bf2-b8b3495aaad1/out.jpg)
-
----
-
-`@miles 1/2/2022 4:06 PM (UTC)`
-
-1/1/2022 Miles Guo: The Chinese culture has its roots in yin and yang and the five elements, but was cut off during the Qin Dynasty. The Western civilization, on the other hand, is based on logic, which developed into science. Chinese culture and Western culture do not contradict each other, and the New Federal State of China will foster the integration of the two, drawing on each others' strengths to offset the weaknesses to build a more advanced civilization together.<br/><br/>1/1/2022 文贵直播：中国文化的根源是阴阳五行，但在秦朝出现了历史断层；而西方文明是在逻辑学的基础上持续发展并产生了科学；中国和西方文化其实并不冲突，新中国联邦将促进二者交融、取长补短，从而形成更先进的文明<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/02/16/ef3244d0-6115-57b4-18cf-e2a6ff2cec7c/out.jpg)
-
----
-
-`@miles 1/2/2022 4:01 PM (UTC)`
-
-1/1/2022 Miles Guo: What is “wind” according to traditional Chinese culture? Both the Chinese Five Element Theory and the West’s astrology are the accumulation of culture and human civilization; the CCP’s red flag is most afraid of “water” in the five elements, and both the zodiac signs of Xi Jinping and Peng Liyuan fear the Year of Tiger; the CCP is the one that believes gods and Feng Shui the most so that they would remodel the dragon-head-shaped top of Pangu Plaza and go to the Temple of Heaven and the Yonghe Lamasery to worship on every lunar new year’s eve<br/><br/>1/1/2022 文贵直播：什么是“风”？中国的五行和西方的星座都是人类文明的累积；中共五星红旗怕水，习彭属相怕虎年；中共最相信神和风水，所以要改盘古的龙头并在大年三十去天坛和雍和宫祭拜
-![img](https://media.gettr.com/group14/getter/2022/01/02/16/17ab39fa-0c4d-8743-7bc0-93d242ba2818/out.jpg)
 
 ---
 
