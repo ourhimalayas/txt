@@ -2,51 +2,38 @@
 ---
 
 
-## 2022年伊始恒大再次在港股停牌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820395/)
+## 追求“动态清零”，河南禹州突击封城
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820511/)
 
-作者：日本方舟农场 – Andy5
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-7.jpg)图片来源：Anadolu Agency
+整理编译：美哥
+编辑：文泓
 
+1月4日，据华盛顿时报报道，北京时间1月3号晚，拥有117万人口的中共国河南禹州政府宣布，自周一晚上起，所有居民需要居家隔离防疫，因辖区内已发现三例无症状感染病例。
 
+目前北京中共政府追求感染“动态清零”目标，使得在疫情发生第一时间，地方政府就纷纷采取更为严厉的跨省限制和封城手段。因各地疫情仍持续爆发，使得下个月临近的北京冬奥会倍感压力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+目前禹州封城由三个中共病毒感染病例而引发。政府宣布“民众不能外出，同时所有的小区将建立岗哨和门禁，来严格执行防疫管控”，暂停一切巴士公交车和出租车服务，购物商场、博物馆和旅游景点也全部歇业。
 
+周二，中共国报道了175个新增病例，包括河南省的5例，以及东部城市宁波的服装厂8例集体感染。尽管和世界其他地区相比，其报道的新增病例很少，但是最近几周也是达到了自2020年3月以来的最高峰。
 
+同期，西安仍有95例新增案例报道，这个毗邻山西省拥有1300万人口的古城，已经被封城2周了。自去年12月9号以来，西安累计报道了超过1600例的新冠感染病例，但最近几天数据同比有所下降。
 
-当地时间1月3日一早，港股开盘时，恒大突然再次宣布暂时停牌。目前恒大还没有对此次停牌做出说明。
+当地政府官员防疫失控通常会面临被免职和其他惩罚，促使政府出台很多史无前例的措施，试图迅速压制新冠病毒。西安已有两个中共高级官员因“抗疫不力”而免职。
 
-恒大曾于2021年9月16日和10月4日分别两次停牌，也正是其股债遭双杀以及信用崩塌的时期。当时，国际评级机构惠誉对恒大的评级从CCC+下调至CC，而穆迪将恒大及其子公司的企业家族评级也调至垃圾等级的Ca。最新消息表明，恒大再次停牌与早前恒大被海南省勒令自行拆除建筑物有关。
+下个月的北京冬奥会举办之时，正值这波疫情的高峰。
 
-分析人士指出，此次停牌，意味着恒大再一次面临债务危机，而2-3月的债务集中到期，将进一步加剧恒大的债务爆雷。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpg)
-参考链接：
-1. [财联社1月3日电，中国恒大在香港交易所暂时停牌。](https://www.cls.cn/detail/907230)
-2. [雪上加霜！恒大39栋楼突被限期10天拆除，77亿没了？许家印刚发新年致辞：把保交楼进行到底](https://www.163.com/money/article/GSNJQHLA00259DLP.html?clickfrom=w_money)
-3. [中国恒大、恒大物业在港交所暂停交易](https://www.163.com/money/article/GLF17HSJ00258152.html)
-4. [恒大地产集团：9月16日所有存续的公司债券停牌1个交易日](https://www.163.com/money/article/GK0NI32P00258105.html)
+原文链接：[China locks down Yuzhou, city of 1.2 million, after recording 3 Cov…](https://www.hindustantimes.com/world-news/china-locks-down-yuzhou-city-of-1-2-million-after-recording-3-covid-19-cases-101641267093194.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+发布：kk
 
-总编/编辑：文真
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

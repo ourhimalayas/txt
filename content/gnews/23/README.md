@@ -2,31 +2,49 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（12月27日-1月2日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820381/)
+## 中共国可防可控的不是病毒，而是人民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820394/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-过去一周，喜马拉雅币价格稳定在$35一段时间后，回落到$30至$35之间震荡，平均日交易量约22万喜币。喜币上市以来总交易量约2430万枚 ，占今年总发行量的仅约2.43%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+作者：纽约香草山健身部—Ivy001
 
-据郭文贵先生本周直播透露，过去两年全球印发法币260万亿美元，而目前数字货币市场只有2.6万亿美元。数字货币必将成为全球财富躲避金融灾难，政治经济灾难，疫苗灾难，病毒灾难和通货膨胀的M2货币超发的蓄水池和避险池。未来进入数字货币市场的法币可能会达到50%。但未来没有支付系统的数字货币90%会被淘汰。去中心化的、有犯罪历史、没有依法KYC的数字货币一定会被消灭。取而代之的将是中心化负责任，去中心化技术的数字货币，而且绝对不给犯罪机构提供任何机会，百分之百KYC和专业化，有支付系统，被国家主权所接受，而且能进行大宗商品交易。这意味着未来喜币的地位一定会远远超越今天的比特币。
 
-郭先生还透露，日本会成为美国之后第二大喜币流通的重要市场，喜支付的推广将在这个过程中起到关键作用。
 
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+
+当地时间1月2日晚上，盖特网友发布了两则视频。一则视频显示，很多穿白色防护衣人员，以及大量的巴士、中巴和各种车辆，聚集在西安病例比较集中的地区和城中村。另外一则视频中，身穿全套白色防护服的疑似防疫人员，一队一队的在逐户敲门，进行检查。
+
+西安市政府称启动了重点区域核酸筛查工作：对病症较多的社区和城中村等地方，通过敲门行动，摸清人员底数，确保核酸检测不漏一人一户。
+
+随后有中共国墙内网友留言：原来“可防可控”说的不是病毒，而是我们。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-1.jpg)
+参考链接：
+[西安对病例集中地区采取敲门行动：确保筛查不漏一人](https://gettr.com/post/plipoq02e6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：Jack Li文阳
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
