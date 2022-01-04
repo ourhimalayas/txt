@@ -15,107 +15,107 @@
 
 ---
 
-### [人生的十二条法则: 说话时，语言要精确](/content/gnews/1/README.md)
+### [在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [海豹突击队在美国反疫苗规定的斗争中取得了惊人的胜利](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [人生的十二条法则：路上碰到一只猫咪时，记得摸摸它](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [人生的十二条法则：提醒自己他懂的一些东西我可能真的不懂](/content/gnews/2/README.md)
+### [人生的十二条法则：孩子玩滑板的时候，别打扰他](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [人生的十二条法则：说实话，或者至少不要说谎](/content/gnews/3/README.md)
+### [人生的十二条法则: 说话时，语言要精确](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [CDC承认PCR测试是骗局](/content/gnews/4/README.md)
+### [人生的十二条法则：提醒自己他懂的一些东西我可能真的不懂](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：说实话，或者至少不要说谎](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [CDC承认PCR测试是骗局](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/01/01新年直播精要](/content/gnews/5/README.md)
+### [2022/01/01新年直播精要](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由有时是凌乱的，但它改善了一切](/content/gnews/6/README.md)
+### [自由有时是凌乱的，但它改善了一切](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [雅典娜时报-第164期](/content/gnews/7/README.md)
+### [雅典娜时报-第164期](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/8/README.md)
+### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：追求有意义的事情而非快速便捷的事](/content/gnews/9/README.md)
+### [人生的十二条法则：追求有意义的事情而非快速便捷的事](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/10/README.md)
+### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [西媒头条 — 第145期](/content/gnews/11/README.md)
+### [西媒头条 — 第145期](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/12/README.md)
+### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/13/README.md)
+### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [人生的十二条法则：我们比较的对象应该是昨天的自己，而非今天的他人](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [中共入侵台湾会是什么样子](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [聊聊盘古风水的那些事](/content/gnews/16/README.md)
+### [聊聊盘古风水的那些事](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/17/README.md)
+### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/18/README.md)
+### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福奇：打了疫苗和加强针也要留在家里](/content/gnews/19/README.md)
+### [福奇：打了疫苗和加强针也要留在家里](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/20/README.md)
+### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/21/README.md)
+### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/22/README.md)
+### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/23/README.md)
+### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦人要拥有爱](/content/gnews/24/README.md)
+### [有声|新中国联邦人要拥有爱](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [受疫情影响英国面临严重员工短缺](/content/gnews/25/README.md)
+### [受疫情影响英国面临严重员工短缺](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [有声|恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/26/README.md)
+### [有声|恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生深度解析“水是生命之源”](/content/gnews/27/README.md)
+### [有声|郭文贵先生深度解析“水是生命之源”](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [防止被推特封帐号 大V播主乔·罗根加入盖特](/content/gnews/28/README.md)
+### [防止被推特封帐号 大V播主乔·罗根加入盖特](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订](/content/gnews/29/README.md)
+### [银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [因言被封：推特永久封禁美众议员的个人账户](/content/gnews/30/README.md)
+### [因言被封：推特永久封禁美众议员的个人账户](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [美国政府阻止新冠早期治疗或造成50万人的额外死亡](/content/gnews/31/README.md)
+### [美国政府阻止新冠早期治疗或造成50万人的额外死亡](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2022年1月4日早](/content/gnews/32/README.md)
+### [GTV新闻访谈简报|2022年1月4日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
-
-### [1/4 银河快讯:日本防卫省开始研发电磁炮；总务省拟开放“6G”](/content/gnews/33/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [抵御中共破坏 日本花重金分散海底电缆登陆点](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [突发：美司法部承认在 1 月 6 日抗议活动中秘密组织“突击队”](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`

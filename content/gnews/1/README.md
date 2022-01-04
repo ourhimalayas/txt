@@ -2,33 +2,32 @@
 ---
 
 
-## 人生的十二条法则: 说话时，语言要精确
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1822866/)
+## 在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822909/)
 
-作者：吴迪
-编辑：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-39.jpg)
-语言是把“混乱”变成秩序的一个重要工具。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3436.jpg)图片来源 ：www.thegatewaypundit.com
+美国保守派媒体《网关专家》12月29日报道，洛杉矶学区计划对学生实施一项极端的疫苗强制政策，但在3万名儿童反抗的情况下不得不将其取消。在2021年9月，美国第二大学区洛杉矶学区的校董会投票表决，要求12岁及以上的学生于2022年1月10日前完成中共病毒疫苗接种。由于许多人的反抗与抵制，该学区现在已经将儿童疫苗强制令推迟到秋季实施。
 
-如果你最近感觉不太对，心情也很低落，但又说不出来是什么在困扰你，或感觉自己被某种神秘又难以捉摸的力量包围着，这时候，便可以试着去写日记，或跟朋友讨论这种感觉，给这种感觉一个名字，并描述它。由此，这个模糊抽象的东西就会变得具体。一旦被命名，不可名状的模糊感就变成了可触摸，可调整的具体行为。
+“洛杉矶学区曾计划将1月10日前仍未接种疫苗的学生转至在线学校–天使之城。许多人担心该在线学校在新学期伊始容纳数万名新学生的能力，以及这将对工作人员和儿童造成的困扰，”《今日美国》报道。
 
-如果无法表达和描述某种东西，意味着它对你来说陌生或可怕，以致于你甚至无法思考它。这个模糊的过程会让你变得更弱小，而那个神秘的模糊力量则愈发强大。因此，Jordan Peterson倡导大家：让事情摆脱不可言说的境界。言语具有创造力，精确的言语会创造“秩序”，击碎“黑暗”。
+《政客》杂志报道到，“美国其他蓝州的学区也在思考暂停儿童疫苗强制令。今年秋季，俄勒冈州波特兰市的学校领导在强烈的反对声中对（疫苗强制令）进行了讨论，而纽约和芝加哥的学校则采取了观望的态度。他们不仅担心民众对疫苗强制令的批评，还质疑他们是否应在食品和药物管理局(Food and Drug Administration, FDA)完全批准为他们的学生接种疫苗前执行强制令–而洛杉矶学区并没有等待这一门槛准备提前执行。”
 
-（文章仅代表作者个人观点）
+根据《政客》杂志的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移至远程学习是有利还是有害。《政客》杂志报道称：“如果实施儿童疫苗强制令，其他地区已经权衡了哪些学生最有可能不接种中共病毒疫苗，以及让这些学生在远程教育下学习的弊端。”然而，该报告中没有详细说明各学区关注哪些标准或指标。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**简评：**新变种的中共病毒带来的是全世界各国变本加厉的疫苗强制令，尽管新增感染者中完成了疫苗接种的人占多数。这一次他们将魔爪伸向了还尚未发育完全的儿童，洛杉矶学区无视法律，计划实施的儿童疫苗强制令在多数人的反抗下暂停，带来的是美国许多学区的人站出来保护自己的孩子，迫使学区停止疫苗强制令。主流媒体仍旧无视中共病毒疫苗的无效以及副作用，胡言乱语地劝诫人们接种疫苗，而渐渐的会有越来越多的人觉醒。随着中共毒疫苗的副作用逐渐开始显现，爆料革命更应积极传播疫苗及病毒真相，让越来越多的人们看清主流媒体的邪恶嘴脸，更深的理解并抵制中共病毒疫苗，早日停止这场对人类的大屠杀。这场拉锯战才刚刚开始。
 
-**关注我们**
+新闻链接： [https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
