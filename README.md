@@ -15,65 +15,65 @@
 
 ---
 
-### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [西媒头条 — 第145期](/content/gnews/2/README.md)
+### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/3/README.md)
+### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/4/README.md)
+### [西媒头条 — 第145期](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [人生的十二条法则：我们比较的对象应该是昨天的自己，而非今天的他人](/content/gnews/5/README.md)
+### [人生的十二条法则：我们比较的对象应该是昨天的自己，而非今天的他人](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [中共入侵台湾会是什么样子](/content/gnews/6/README.md)
+### [中共入侵台湾会是什么样子](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：谨慎择友](/content/gnews/7/README.md)
+### [人生的十二条法则：谨慎择友](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [聊聊盘古风水的那些事](/content/gnews/8/README.md)
+### [聊聊盘古风水的那些事](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/9/README.md)
+### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人生的十二条法则：把自己当做一个“需要帮助的人”来对待](/content/gnews/10/README.md)
+### [人生的十二条法则：把自己当做一个“需要帮助的人”来对待](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [人生的十二条法则：挺起你的胸，背直起来！](/content/gnews/11/README.md)
+### [人生的十二条法则：挺起你的胸，背直起来！](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/12/README.md)
+### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [小米MIUI13系统内置反诈功能 以反诈名义监控大众](/content/gnews/13/README.md)
+### [小米MIUI13系统内置反诈功能 以反诈名义监控大众](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [福奇：打了疫苗和加强针也要留在家里](/content/gnews/14/README.md)
+### [福奇：打了疫苗和加强针也要留在家里](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [不断制造苦难是CCP统治奴役中国老百姓的常用手段](/content/gnews/15/README.md)
+### [不断制造苦难是CCP统治奴役中国老百姓的常用手段](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/16/README.md)
+### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/17/README.md)
+### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/18/README.md)
+### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/19/README.md)
+### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/20/README.md)
  ` MOSREC`
-
-### [布林肯与北约九国外长通话 再度重申支持立陶宛](/content/gnews/20/README.md)
- ` 首尔天池农场`
 
 ### [有声|新中国联邦人要拥有爱](/content/gnews/21/README.md)
  ` MOSREC`
