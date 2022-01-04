@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@realmattcouch 1/4/2022 1:57 AM (UTC)`
+
+Bacteria is a life on Mars, but a heartbeat isn't life on earth... Weird..
+
+---
+
 `@miles 1/4/2022 1:21 AM (UTC)`
 
 1月3号：【七哥好，上边的截图是昨天小Sarah接到一个工程师的电话，说他刚从国内逃出来，现在在多伦多，一家三口人生活上钱不够用，想把之前要存去HDO的4万美金拿回来做生活费，请小Sarah帮忙沟通一下找木兰；<br/>在通话过程中了解到他生活上基本生活的家具都没有呢，很多商店都缺货买不到；<br/>然后，我让小Sarah马上联系卢比肯的太太（她是给卖房经济做家居摆设的，疫情之下就不做了，有很多家居正在出卖）约了一下今天去她的库房看看；<br/>这位战友还没有车子，今天卢比肯和他太太亲自驾车去接战友到库房，<br/>来回跑了两趟送家具，一分没要；<br/><br/>在七哥的带领下，真的都是爱战友！把战友都当家人！感动！🙏🙏🙏一群有爱的人在一起，这就是灭共的力量和灭共的信心！💪💪💪】
@@ -150,13 +158,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 `@miles 1/2/2022 7:13 PM (UTC)`
 
 1月2号：尊敬的战友们好，一定要马上关注。这位有良知的……有国际视野的天才籍的媒体人．美国朋友。@joerogan 【Just in case shit over at Twitter gets even dumber, I’m here now as well. Rejoice! https://gettr.com/post/plg71j5d09 看到Joe Rogan来盖特了，简直太厉害了，这位可能是美国最有人气的主播，他的podcast在美国上亿的关注，太牛了🎉🎉🎉】
-
----
-
-`@miles 1/2/2022 4:27 PM (UTC)`
-
-2022年1月2号：尊敬的战友们好，万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息，有一些战友的问题无法一一回复，我在这里．一并回答，一切都已经开始！
-![img](https://media.gettr.com/group44/getter/2022/01/02/16/668566f0-2aaf-154c-2bf2-b8b3495aaad1/out.jpg)
 
 ---
 
