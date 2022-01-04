@@ -2,21 +2,20 @@
 ---
 
 
-## 雅典娜时报-第164期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1822707/)
+## 自由有时是凌乱的，但它改善了一切
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1822722/)
 
-**《雅典娜时报》汇聚全球新闻时事**
+**作者：日本东京方舟农场 JIHO**
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/927715910427492382/928006569885593681/155.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/927715910427492382/928006588701216768/155_1.png?width=910&amp;height=1355)
-发布：陶子
+纵观历史的长河，随着时间的推移，更多的自由会带来更多的繁荣，而事实上，反之会导致完全的衰败或落后，这始终是正确的。我们今天面临的挑战之一是让人们相信自由实际上是一件好事。您如何看待自由？
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+*素材采编：JIHO*
+
+*发布：Ranting*
+
+*封面制作：Kotek*
 
  
 

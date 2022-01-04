@@ -43,15 +43,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@missionisgreat 1/4/2022 5:11 AM (UTC)`
-
-MALONE: “Where the country is going is where Joe Rogan just went, from Twitter to GETTR.” 
-![img](https://media.gettr.com/group16/getter/2022/01/04/05/ec0639ba-9b4e-94fb-cc2e-f146108a5da5/out.jpg)
-
----
-
 `@miles 1/4/2022 6:00 AM (UTC)`
 
 2021 Year In Review<br/><br/>2021年大事回顾
@@ -157,6 +148,13 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/1/2022 Miles Guo：2022 will be very exciting, and there will be huge challenges. The only opportunity and market of social media left is for us. The United States, Europe, and Japan are the three places of fierce attacks, and we must be fully psychologically prepared and insist that only truth is indestructible. We will definitely have another great harvest year in 2022, but you have to work hard before the harvest.<br/><br/>1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。<br/>
 ![img](https://media.gettr.com/group42/getter/2022/01/03/07/81046d91-f2aa-631e-e18f-2126bc9cd3a5/out.jpg)
+
+---
+
+`@miles 1/3/2022 7:31 AM (UTC)`
+
+1/2/2022 Miles Guo’s GETTR: Staying alive is of paramount importance! You’d better stay away from the modern life powered by electricity in tall buildings; forget about the fancy meals and keep food in stock; things like gold and diamonds that cannot be traded for life necessities are going to be useless; the disasters caused by the COVID vaccines and the CCP virus have yet started, but you will see the day when the CCP is taken down as long as you can survive<br/><br/>1/2/2022 文贵盖特：活下去最重要！最好远离电气化和高楼大厦的生活；不讲究吃，但要有粮食；不能兑换物质的黄金、钻石不管用；疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天<br/>
+![img](https://media.gettr.com/group12/getter/2022/01/03/07/98a1bcc8-d368-9dd2-baa5-d42e25bda69d/out.jpg)
 
 ---
 
