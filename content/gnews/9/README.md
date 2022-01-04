@@ -2,28 +2,49 @@
 ---
 
 
-## 悉尼一医院：休年假员工重返岗位每班可获250澳币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820146/)
+## 宋词新作：西河·2022水太多好灭共
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1820183/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-38.png)图片来源：Lebanese American University
-整理报道：小鱼儿
-编辑：Mttfly
+作者： 蝴蝶泉
+![](https://assets.gnews.org/wp-content/uploads/2022/01/b69d.png)
+前言：2022年1月1日，文贵元旦大直播，首次文贵先生与100余位战友同心同框，长达整整12小时，盛况空前，全球6500万人次观看。此次直播，“水太多”成为开年热词，刷屏网络，更激起中共惊恐万分，当即网络屏蔽该词。为此，作词抒发心声。
 
-据天空新闻台1月2号报道，悉尼一家领头的医院向其护理人员提供现金奖励，让他们取消年假，以应对COVID-19造成的“严重人员短缺”。圣文森特医院提出，如果员工同意返回工作岗位，每班可获得250澳币现金奖励。
+河图示。
 
-当医院接收并正在治疗的病毒感染者超过了1000人时，医院还要求一线工作人员确认病人是否可以提前出院。但重症监护率仍然很低，只有0.001%的活动病例在重症监护室（ICU）。
+天一生水始起。
 
-**新闻链接：**[Sydney hospital offering cash incentives to nursing staff on annual leave amid worker shortages](https://www.skynews.com.au/australia-news/coronavirus/sydney-hospital-offering-cash-incentives-to-nursing-staff-on-annual-leave-amid-worker-shortages/video/5e9eb67331e4334e18776ad16b859ed2)
+水生万物启五行，生生不息。
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+天赐灵魂智慧水，生育天水济。
+
+中共魔，邪火炙。
+
+违天逆地役民制。
+
+防火墙加大外宣，民智水闭。
+
+计划生育草菅命，生命源水难继。
+
+壬寅2022阳水至。
+
+中共红、水克火逝。
+
+新中国联邦蓝，水济水，汪洋豪气。
+
+承天意得天助，送葬祭。
+
+词释意：
+
+（中华经典文献中有“五大天书”，其中之一为河图。）河图显示，天一生水，地六成之。揭示了宇宙万物初始由水起，水生木、木生火、火生土、土生金、金生水，万物五行由水起循环往复，生生不息。智慧属水，上天赐予我们人类灵魂拥有智慧水。而且人类的生育之水，也是来自天水相济。这些在《黄帝内经》中皆有相关阐述，肾水主智慧，主生育等。而肾水先天部分来自天地与父母。
+
+然而中共魔鬼，是一团邪火炙烤大地。其实施违背天赋人权的奴役恶法制度。高筑网络防火墙，还向全世界派出大外宣，谎言欺骗恐吓威胁，企图将民众的智慧之水关闭。还制定了荒唐的计划生育政策，强行节育，强行堕胎，杀死新生儿，眼看计划生育后人口比例严重失衡，又强推生育，把天赐与人的生育源水玩弄于股掌中，破坏了中华民族生命的自然新旧更替相续相济。
+
+2022年是壬寅年，壬为阳水，故为阳水年到。五星红旗代表了中共魔鬼集团是邪火，水克火，所以阳水年是克伐中共的，邪火遇水便要熄灭了。新中国联邦蓝，是海洋蓝，代表了生命之水。不仅能够克制中共邪火，而且2022阳水年水水相济，承天意得天助，新中国联邦更是如虎添翼，灭共之势更加汪洋豪气，将开启为中共魔鬼们送葬仪式。
+
+
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,24 +2,25 @@
 ---
 
 
-## 中共山东最高法：不能仅以出轨为由离婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819804/)
+## 有声|郭先生警醒战友们永记《新中国联邦宣言》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819824/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日，中共山东最高法院宣布，夫妻双方不能以出轨为由请求离婚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.24.png)
-该法院援引中共《民法典》中婚姻法的法律解释：即出轨的证据仅证明配偶存在不忠行为，但是未能证明配偶与他人同居，或夫妻感情破裂，因此不能以此作为起诉离婚的理由，更不能作为要求离婚损害赔偿的条件。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2022年1月1日的直播中，郭文贵先生再次向战友们展示并强调了《新中国联邦宣言》的核心。郭先生表示，《宣言》没有任何政治、利益和名誉之心。
 
-中共的高压独裁下，人性压抑。用法律手段强制维持情感破裂的婚姻，只会让整个社会更加恐惧婚姻。中共国婚姻率和生育率恐怕将会一降再降。
+郭先生也解释道，《新中国联邦宣言》的内容包含着天与地、山与水、人和周围的环境以及其中的所有动、植物。更为重要的是，《宣言》不仅言明了中国人的事，还涉及到全人类，乃至全天下的事。
 
-参考链接：[山东高法：不能仅以出轨为由请求离婚](https://view.inews.qq.com/a/20220102A04KRK00)
+此外，郭先生还向战友们又一次展示了《新中国联邦宣言》的第一页，也就是那句由郝海东先生宣读的名言：“灭共是正义的需要。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭先生强调，宣读《新中国联邦宣言》的目的是为了告诉世人，我们应该向《宣言》中表述的一样，对天地、对人都充满敬意和爱意。
 
-总编：飞虹
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+郭先生最后提醒战友们，永远不要忘记我们是因为《新中国联邦宣言》才走到一起。因此，不论是谁，只要他忘记了《新中国联邦宣言》，他就一定会被淘汰。
+
+文字版原文：[郭先生警醒战友们永记《新中国联邦宣言》](https://gnews.org/zh-hans/1815157/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

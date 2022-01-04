@@ -2,22 +2,30 @@
 ---
 
 
-## 女演员乌比-戈德堡的中共病毒检测结果呈阳性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820187/)
+## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33-1.png)（图片源自本文链接）
-日本雅虎网站1月4日消息：一名演员在1月3日的节目播出中透露，(CNN)美国脱口秀节目“观点”的主持人、女演员乌比-戈德堡，中共病毒(新冠病毒Covid-19)检测呈阳性。
+By GTV 新闻访谈 作者：纽约香草山农场 文真
 
-该节目的共同主持人乔伊-贝哈尔说，目前为止，戈德堡的症状很轻微。现在节目中的每个人都在家里上网出演，希望这种情况只用这一星期的时间就会结束。不知为什么，感觉到处都是奥密克戎。为什么我在这里代表乌比？她不幸检测出阳性，但下周她可能会回来。她已经接种了疫苗并进行了强化治疗，所以到目前为止她的症状非常轻微。
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
+图片来源：网络截图
+December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
 
-笔者无语，感叹可悲!因为人们，甚至这些所谓的名人们至今还在认为疫苗带给他(她)们的是好处。
+A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
 
-信息来源：[女優ウーピー・ゴールドバーグ、新型コロナ陽性（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/55db281cfa60659e286024539027c9bd576d14b4)
+A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+
+参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
 
  
