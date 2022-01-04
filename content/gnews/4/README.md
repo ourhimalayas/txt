@@ -2,51 +2,49 @@
 ---
 
 
-## 参议员兰德·保罗因言论审查弃用Youtube
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1820718/)
+## 中国央行推出安卓和iOS版数字人民币钱包应用程序
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820854/)
 
-**翻译：Lulumi**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-187.png)2021年10月7日星期四，在华盛顿，参议员兰德·保罗在国会山散步时与记者交谈。(AP Photo/Alex Brandon)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/digital-yuan.jpg)
 
-参议员兰德·保罗周一表示，他将停止使用大科技平台，由于担心网上的言论审查，他首先抛弃了谷歌旗下的YouTube。
 
-这位肯塔基州的共和党人在一份声明中说：“今天，我开始从大科技公司出走，从最糟糕的审查员YouTube开始。作为一个倾向自由主义的参议员，我认为私营公司有权禁止我，如果他们想的话。然而，我们这些相信真理来自于争论和思想市场是创新的先决条件的人应该避开那些思想封闭的审查员，把我们的想法带到其他地方，这正是我正在做的。”
+ 
+图片来源：asia.nikkei.com
 
-保罗先生的办公室说，他只有在批评YouTube平台，或将人们引向YouTube的竞争对手Rumble的例外情况下，才会在YouTube上发布视频。
 
-科技平台的规则和执行做法已经使一些知名的政治家和保守派的热门人物陷入困境。最近几天，Twitter禁止了佐治亚州共和党人玛乔丽·泰勒·格林的个人账户，司法观察组织主席汤姆·菲顿说，他也在TikTok遭遇了类似的禁令，这个流行的视频平台的所有者在中共国。
+#### 整理/编辑：小红帽
 
-格林女士周一宣布，Facebook也暂停了她的账号，并在Gettr上发布了一张图片，显示Facebook在24小时内阻止她发帖或发表评论。脸书表示，它没有消除她的账户。
+根据《频道新闻亚洲网》1月4日报道， **随着中国央行加紧开发自己的数字货币，中国已在手机应用商店上发布了数字人民币钱包应用程序的试点版本。**
 
-政治家和公众人物并不是唯一被公司盯上的人。例如，YouTube此前曾暂停了保守的 “一个美国新闻网”(OneAmerica)，因为它被指控违反了该平台的COVID-19错误信息政策。
+由中国人民银行（PBOC）数字货币研究所开发的“e-CNY（试点版）”应用程序于周二在上海在中国安卓和苹果应用程序商店开放下载。
 
-科技公司有各种各样的工具来审查和塑造其平台上的内容。这些工具包括禁言、删除内容以及使个人的帖子和视频的观众人数远远少于其他情况。
+该应用程序中的一条通知称，程序处于研发试点阶段，仅通过提供电子人民币服务的支持机构（包括国内主要银行）向特定用户提供。
 
-对右派公众人物的积极打压形成热点，当2021年前总统唐纳德·川普在任时，一些平台也将他封杀过。
+中国人民银行行长易纲在 11 月表示，中国将继续推进央行数字货币的发展并改进其设计和使用，包括提高其与现有支付工具的互操作性。
 
-8月，YouTube禁止保罗先生发布视频一周，因为该公司称参议员违反了其关于口罩对
+在年终会议上，中国人民银行表示将继续推进数字人民币的研发。
 
-阻止中共病毒COVID-19的有效性的错误信息政策。保罗先生在他的Twitter上回应称YouTube的禁令是“荣誉勋章”，并在Rumble上分享了被禁视频。
+阿登纳基金会（Konrad Adenauer Stiftung）高级项目经理巴登海姆（Alexander Badenheim）曾于2020年10月份对《德国之声》驻北京记者说，**发行数字主权货币可能是中国政府重新控制国内金融的一种手段。**中国可能希望创建自己的国际支付机制，类似于SWIFT，帮助金融机构处理交易的代码。**新的数字货币国际支付机制将不由美元主导，而是由中国的数字人民币主导。**
 
-保罗先生与YouTube的争议导致他决定在周一公开他与该视频平台的分裂。
+通过成为第一个主导数字货币领域的大国，中国有可能在全球经济中占据更强势位置，再也不担心受到美国制裁。**这是中国挑战美国全球主导地位的又一大步。**
 
-“在过去的一年里，YouTube继续发动其危险的、反科学进步的、反对言论自由的战争，选择与政府步调一致，禁止保罗博士发布的敢于违背政府立场的视频，”这位参议员的办公室在一份声明中说道。“这些视频包括与记者的对话，他在对话中讨论了口罩的功效，特别是布质口罩，还有一段视频解释了布质口罩不起作用的科学原因。”
+新闻来源：
 
-YouTube没有立即回应评论请求。
+1、[China central bank launches digital yuan wallet apps for Android, iOS – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/business/china-central-bank-launches-digital-yuan-wallet-apps-android-ios-2414061)
 
-保罗先生还宣布他正在创建一个名为libertytree.com的新闻聚合网站，他在那里发表了一篇文章，说他的目标是“最终完全退出大科技公司平台”。
+2、[中国在数字货币领域领先一步，但谁会跟着走？ | 经济纵横 | DW | 11.10.2020](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81%E9%A2%86%E5%9F%9F%E9%A2%86%E5%85%88%E4%B8%80%E6%AD%A5%E4%BD%86%E8%B0%81%E4%BC%9A%E8%B7%9F%E7%9D%80%E8%B5%B0/a-55184812)
 
-在寻求创建新的信息共享场所的政治家中，保罗先生并不是唯一一个。川普先生已经宣布，他正在开发一个新的社交平台TRUTH Social，由川普媒体和技术集团主持。加州共和党人德文·努内斯(Devin Nunes)议员将于今年作为首席执行官负责该平台。
+***发布：小红帽***
 
-新闻来源: [washingtontimes.com] [Rand Paul says he’s leaving Big Tech platforms, starting with YouTube](https://www.washingtontimes.com/news/2022/jan/3/rand-paul-says-hes-leaving-big-tech-platforms-star/)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,51 +2,28 @@
 ---
 
 
-## 习近平11月演讲稿刻意歪曲89.64惨案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820484/)
+## 为防中共窃取数据 日本开售“国产无人机”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820642/)
 
-作者：日本方舟农场 – Andy5
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-184.png)[图片来源](https://dpcajapan.org/latest-technology/%e6%97%a5%e6%9c%ac%e6%94%bf%e5%ba%9c%e3%81%ae%e5%9b%bd%e7%94%a3%e3%83%89%e3%83%ad%e3%83%bc%e3%83%b3%e8%a8%88%e7%94%bb%e3%81%8c%e5%a7%8b%e5%8b%95%ef%bc%81%ef%bc%81%e9%80%b2%e3%82%80%e5%9b%bd%e7%94%a3/)
+日本官民合作开发了一种“国产无人机”，可以防止数据提取及劫持操纵，并已开始销售。 无人机还可用于处理高度机密信息，例如勘测和了解灾害造成的损失。国产化会强化数据保护，避免数据存储在中共国服务器上带来安全隐患。
 
+名为“苍天”的无人机宽约64厘米，重1.7公斤。 由政府和新能源工业技术开发组织（NEDO）以及无人机开发初创公司“ACSL”（东京）、NTT DoCoMo 和雅马哈汽车等私营公司共同开发，并从上个月7日开始销售。
 
+其特点是对获取的航路数据和信息进行即时加密。数据存储在日本国内服务器上。可避免第三方恶意提取数据或接管操作。此无人机预计将用于调查日本周围海域的偏远岛屿以及发生灾害时的搜救活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+对于诸如“苍天”这样的小型无人机，中共企业占据了全球80%左右的市场份额。通信数据、拍摄的图像和飞行路线等信息经常通过专用应用程序存储在中国服务器上，引发了信息泄露的担忧。
 
+无人机正在被广泛应用于各个领域，如测量检查桥梁、道路等基础设施。到2022年底，修订后的《民用航空法》将允许无人机在市区等地使用，从而进一步扩大其使用范围。国内无人机市场预计将从2020财年约1800亿日元，到2025财年将增长到约6400亿日元。
 
+为了避免在疫情等混乱情况下难以从国外获得必要的零件，“苍天”所用零件几乎全部是国产的。
 
-1月1日，中共喉舌媒体《求是》杂志上，刊登了习近平于去年11月召开的十九届中央委员会议的讲话。
+信息源：[中国へデータ漏洩の心配無用…「国産ドローン」販売開始、災害時・測量で活用](https://news.yahoo.co.jp/articles/2ac9dae080c5919a347aee2d322d20da06c7a9b5)
 
-这次会议中，中共总结其所谓百年重大成就和历史经验。其中，引人关注的是习近平在讲话中，不仅抨击了美国参与朝鲜战争，更是扭曲了89.64天安门事件。同时，将89.64这个严重政治风波的解决，归功于所谓“中共紧紧依靠人民，采取果断措施打赢党和国家生死存亡的斗争”。该讲话在提及89.64惨案时，并无丝毫的悔恨甚至还是丧事喜办，称这是“正确航向和改革发展的正确方向”。
-
-分析人士指出，继去年5月，习近平专题学习班将文革的定义改为偏向“取得令人瞩目的成就”之后，此次在元旦刊登扭曲天安门事件的讲话，就是要将习的个人独裁转至合法化，并给中共党内定调。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.jpg)
-参考链接：
-1. [以史为鉴、开创未来　埋头苦干、勇毅前行](http://www.qstheory.cn/dukan/qs/2022-01/01/c_1128219233.htm)
-2. [时事大家谈: 重新定调文革，习近平释放危险信号？](https://www.voachinese.com/a/voaweishi-20210505-voaio-xi-jinping-redefine-the-cultural-revolution/5879012.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：DM
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

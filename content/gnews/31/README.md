@@ -2,29 +2,31 @@
 ---
 
 
-## 中共国人民银行原党委书记、主任牟善刚接受调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1820315/)
+## 有声|欧洲中共病毒确诊病例超一亿人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820380/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown.jpg)中共国人民银行原党委书记、主任牟善刚接受调查 网络图片
-据网易新闻1月4日报道，中央纪委国家监委网站讯据中央纪委国家监委驻中国人民银行纪检监察组、天津市监察委员会消息：中共国人民银行机关服务中心原党委书记、主任牟善刚涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
 
-中共国现在除了各个房地产公司违约、暴雷，就是教育系统被调查、网络公司被查处，各级高管或被抓、或被杀，真正是人人自危、各行各业都发抖，不知道哪一天大锤就砸到自己头上。中共不仅害外人，对自己人下手同样毫不留情。只要跟中共搭边，最后的结局都是粉身碎骨。
+仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
 
-新闻参考资料：[https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp](https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp)
+全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
 
-* * *
+文字版原文：[欧洲中共病毒确诊病例超一亿人](https://gnews.org/zh-hans/1817198/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
