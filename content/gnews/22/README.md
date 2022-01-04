@@ -2,37 +2,38 @@
 ---
 
 
-## 《耶鲁日报》匿名刊文，中共国留学生质问彭帅行踪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1821607/)
+## 为实现硬性“清零” 大批西安民众被迫异地隔离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1.jpg)《耶鲁日报》匿名刊文，中共国留学生质问彭帅行踪 网络图片
-据美国之音1月4日报道，全美历史最悠久的大学校报《耶鲁日报》2日刊载题为 “彭帅在哪里”的匿名评论文章，以彭帅因曝光与张高丽的暧昧黑幕被失踪作为引子，呼吁国际社会不能让彭帅“被埋葬”，不能继续容忍中共使用“权力的语言”对付异己，同时抨击包括耶鲁大学在内的西方机构，用“中国投资组合”安抚中共的不道德行为，并呼吁它们撤资中共国。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.39.png)
+所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
 
-该文章作者是一名大学生，由于可能危及作者在中共国的家人安全，《耶鲁日报》总编引证《纽约时报》2021年12月31日的文章“数字搜捕：中共国警方如何在推特和脸书上追踪批评者”，首次授权作者匿名发文。
+这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
 
-彭帅去年11月2日在新浪微博上自曝与中共前常委张高丽多年前开始的性关系，并且指控张性侵。这引发了包括WTA在中共国退赛的国际震荡，并进一步助推西方抵制北京冬奥会，让中共颜面尽失。不过，彭帅引发的关注热度随着时间的推移逐渐降温。迄今为止，没有人知道彭帅是否安全。文章作者对彭帅的处境“忧心忡忡”。
+有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
 
-作者指出：“我仍然不知道她是否安全和自由。但我知道这个专制政权会如何埋葬她…她会从公众视野中消失…几个月和几年之后，她将被遗忘，或者说中国共产党是这样计划的”。作者表示，自己写出这篇文章，是“为了让彭帅不被忘记”，不能让“彭帅在哪里”仅仅成为社交媒体上的一个标签。
+参考链接：
+1）[https://gettr.com/post/plkvl848b7](https://gettr.com/post/plkvl848b7)
+2）[https://gettr.com/post/plf4s28b20](https://gettr.com/post/plf4s28b20)
+3）[https://gettr.com/post/plnqiua97c](https://gettr.com/post/plnqiua97c)
+4）[https://gettr.com/post/pll5m660ad](https://gettr.com/post/pll5m660ad)
 
-美国《外交政策》杂志指出，“习近平无意带领中共国走向西方。因此西方大学不能以追求更大的文明使命为借口，继续与中共国打交道。《耶鲁日报》的这篇匿名文章，敦促耶鲁大学停止从中共国获利，其捐赠基金“需要从中共国撤资”，因为在中共国的每一美元投资都是不道德的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-在中共的舆论和体制下，“彭帅在哪里”？就是彭帅在那里，在中共需要她去的地方。每一天中共国都有无数个“彭帅”被消失，在西安、在洪水之后的郑州、在被疫情肆虐的每一个地方、在任何想对抗强权的个人身上。“彭帅”是中共国没有人权和自由、个人安全更无法保障的活生生的例子。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-新闻参考链接：[https://www.voachinese.com/a/yale-chinese-student-pengshuai-20220103/6380863.html](https://www.voachinese.com/a/yale-chinese-student-pengshuai-20220103/6380863.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
