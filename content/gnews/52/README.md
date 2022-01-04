@@ -2,25 +2,27 @@
 ---
 
 
-## 郭文贵先生成为2021年度最具影响力盖特用户
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820021/)
+## 盖特迎来单日最大用户注册量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820035/)
 
 作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，在“2021年度全球盖特人物”网络颁奖礼中，郭文贵先生荣获 “中共最大噩梦奖” 这一殊荣。同时，郭先生也是2021最具影响力用户，其影响力指数超出第二名的四倍之多。
+据盖特官方消息，2022年1月2日，盖特迎来了171.629名新用户，创下了自2021年7月4日正式上线以来，盖特单日新增用户的纪录。增幅较前一日相比上涨782%，较上周相比，增幅为1357%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2.jpeg)
 
-据大数据显示，盖特自2021年7月正式上线到今天已经经历了半年的发展，首席执行官 杰森-米勒先生分享了最初的愿景，即盖特并非只是要做一个赚钱的平台，它所有的价值以及真正的使命是推翻中共，这也是拥有远见卓识的郭先生花费数年一直在致力的事业。当初两个人肩并肩地战斗，一起推出了盖特这一自由发生的自媒体平台，如今，郭文贵先生的账号影响力排名第一，杰森-米勒先生表示，郭文贵先生是那个让中共夜不能寐，夜夜噩梦的人。
+据悉，因违反推特和Facebook有关“中共病毒”及其劣质疫苗的非法言论管控，不少用户的账号被永久封禁，其中不乏自媒体的流量大咖。越来越多的人意识到这一危险的现实，并渴望有一个保护言论自由的替代方案。1月2日，著名博客自媒体人乔-罗根正式入驻盖特，关注量已达840万；著名心理学家、自媒体人、多伦多大学的乔丹-彼得森教授的关注量也在同日达到220万人。
 
-参考链接：
-1）[盖特账号影响力排名出炉：](https://gettr.com/post/plf2zg26fc)
-2）[https://gettr.com/post/plo3lr687e](https://gettr.com/post/plo3lr687e)
+在与推特和Facebook的用户增长期数据对比看来，盖特明显超出了预期；秉承“绝不因政治倾向而注销用户”的原则，盖特名副其实地成为有史以来用户增长最快的社交媒体平台。
+
+由于激增的用户注册量，盖特在苹果应用商店“社交媒体“类别中的下载量已名列前五。对此，郭文贵先生在3日的盖文中表示：“我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，全球．全美国都是前5名，一切都已经开始。 ”
+
+参考链接： [https://gettr.com/post/plqu3m4cc3](https://gettr.com/post/plqu3m4cc3)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
-编辑：文特
+总编：Zion文恩
+编辑：Zion文恩
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
