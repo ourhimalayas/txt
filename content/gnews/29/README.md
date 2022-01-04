@@ -2,43 +2,28 @@
 ---
 
 
-## 加拿大武装部队部署到魁北克以开展新冠疫苗接种活动
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819271/)
+## 又一家香港媒体因“媒体环境恶化”而关闭
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1819293/)
 
-作者: Amy Luft
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-34.png)
-魁省政府在3日通报，当日新增确诊15,293人，新增死亡15人，至今11,760人死于新冠。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3432.jpg)图片来源：VOA 资料照片：香港警察逮捕了《立场新闻》的六名高管后突击搜查其办公室。（2021年12月29日）
+据美国之音2022年1月3日报道，香港一家在线新闻网站“众新闻”表示，鉴于新闻自由不断恶化，该网站将在1月4日停止更新其网站，并在此后关闭。众新闻是近几个月来第三家关闭的新闻媒体。
 
-目前魁省的现有确诊病例达103,797人，自疫情发生以来，该省有651,328人感染。
+香港记者协会3日发表声明，对一周内接连有传媒机构停止运作“深感痛心及遗憾”，称这对香港作为亚洲国际都会的声誉造成难以估量的影响，并敦促政府履行基本法对新闻和资讯流通自由应有的保障。
 
-魁省医疗系统中现有1396名新冠患者住院，其中181人在重症病房。
+香港最近关闭了三家新闻媒体。去年12月，香港当局拆除了纪念1989 年北京天安门广场纪念碑。国安法实施后，中共明目张胆地在香港打压新闻媒体自由和公民各项权利，大肆抓捕异议人士。中共的邪恶在香港兴风作浪，但自古邪不压正，香港终有一天会恢复原有的民主和自由，再现辉煌。荣光必定回归香港。
 
-联邦紧急预备部部长Bill Blair在3日发布Twitter表示，“在收到魁省的支援请求后，联邦予以批复。加拿大武装部队将从今天开始派往魁省提供支持，帮助魁省进一步推进疫苗接种。”
+新闻参考链接：[https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html](https://www.voachinese.com/a/hk-news-outlet-to-close-amid-crackdown-on-dissent/6378901.html)
 
-“我们的人员还将继续评估可以为协助魁省抗击疫情提供哪些资源。”
+* * *
 
-两周前，魁省公共安全厅厅长Geneviève Guilbault向联邦政府求助，希望能够帮助魁省推进疫苗接种。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-“Omicron毒株对魁省的医疗系统造成了威胁，我们必须加快给民众接种疫苗。”
 
-来源：https://montreal.ctvnews.ca/canadian-armed-forces-deployed-to-quebec-to-help-with-covid-19-vaccination-campaign-1.5726240
+编辑：【英国伦敦喜庄园编辑部】
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
