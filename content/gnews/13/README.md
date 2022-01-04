@@ -2,35 +2,21 @@
 ---
 
 
-## 人生的十二条法则：追求有意义的事情而非快速便捷的事
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1822657/)
+## 雅典娜时报-第164期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1822707/)
 
-作者：Carmabola
-编辑：KK
+**《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/927715910427492382/928006569885593681/155.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/927715910427492382/928006588701216768/155_1.png?width=910&amp;height=1355)
+发布：陶子
 
-
-大部分人都会同意的是，过一个有意义的人生是快乐的。许多研究也证实了这一点：生活的“意义”和“快乐”是紧密联系在一起的。我想朋友们问我人生究竟有什么意义的时候，也是因为一时之间快乐缺席，所以就想用意义来补充。
-
-有意义使人快乐，这没有错；但假设有人以和身边的人维持良好的关系为意义，那么在追求这个意义的过程里，亲人有可能会离去，爱人有可能会变心，朋友之间有可能有嫌隙。追求某些事物为意义，那么在追求它的开端过程和结尾，痛苦总会相伴。
-
-来源：https://baike.baidu.com/tashuo/browse/content?id=f483ebd14a5364d63610c6d0
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

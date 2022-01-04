@@ -2,43 +2,32 @@
 ---
 
 
-## 人生的十二条法则：路上碰到一只猫咪时，记得摸摸它
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1822888/)
+## 在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822909/)
 
-作者：吴迪
-编辑：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3436.jpg)图片来源 ：www.thegatewaypundit.com
+美国保守派媒体《网关专家》12月29日报道，洛杉矶学区计划对学生实施一项极端的疫苗强制政策，但在3万名儿童反抗的情况下不得不将其取消。在2021年9月，美国第二大学区洛杉矶学区的校董会投票表决，要求12岁及以上的学生于2022年1月10日前完成中共病毒疫苗接种。由于许多人的反抗与抵制，该学区现在已经将儿童疫苗强制令推迟到秋季实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-41.jpg)
+“洛杉矶学区曾计划将1月10日前仍未接种疫苗的学生转至在线学校–天使之城。许多人担心该在线学校在新学期伊始容纳数万名新学生的能力，以及这将对工作人员和儿童造成的困扰，”《今日美国》报道。
 
-在说猫咪之前，Jordan Peterson花了大概5页纸讲自己多么地爱狗狗，描述了自己和自己爱犬的逸闻趣事，希望爱狗人士不会因为他标题中提到的猫咪而觉得他是“另一个阵营”的人。然后，他又在正式开始讲自己对猫的热爱之前，花了很长时间给爱猫人士道歉，说你们看了这么久都没看到猫的内容，辛苦了。
+《政客》杂志报道到，“美国其他蓝州的学区也在思考暂停儿童疫苗强制令。今年秋季，俄勒冈州波特兰市的学校领导在强烈的反对声中对（疫苗强制令）进行了讨论，而纽约和芝加哥的学校则采取了观望的态度。他们不仅担心民众对疫苗强制令的批评，还质疑他们是否应在食品和药物管理局(Food and Drug Administration, FDA)完全批准为他们的学生接种疫苗前执行强制令–而洛杉矶学区并没有等待这一门槛准备提前执行。”
 
-我们对标签的热爱，对“不跟我们一伙儿”的人的敌意，把这个可爱的教授已经搞出了心理阴影，但他的讽刺手法幽默又可爱。
+根据《政客》杂志的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移至远程学习是有利还是有害。《政客》杂志报道称：“如果实施儿童疫苗强制令，其他地区已经权衡了哪些学生最有可能不接种中共病毒疫苗，以及让这些学生在远程教育下学习的弊端。”然而，该报告中没有详细说明各学区关注哪些标准或指标。
 
-他说人生很苦，有时候暗得见不到光，但是他邀请大家，在被生活打得喘不过气的时候，能够看到微小的神秘，生命力和奇迹。 他描述着在街上偶遇的猫猫总能提醒他生活是多么地不可控和不可预测，同时又多么地美好和值得感激。
+**简评：**新变种的中共病毒带来的是全世界各国变本加厉的疫苗强制令，尽管新增感染者中完成了疫苗接种的人占多数。这一次他们将魔爪伸向了还尚未发育完全的儿童，洛杉矶学区无视法律，计划实施的儿童疫苗强制令在多数人的反抗下暂停，带来的是美国许多学区的人站出来保护自己的孩子，迫使学区停止疫苗强制令。主流媒体仍旧无视中共病毒疫苗的无效以及副作用，胡言乱语地劝诫人们接种疫苗，而渐渐的会有越来越多的人觉醒。随着中共毒疫苗的副作用逐渐开始显现，爆料革命更应积极传播疫苗及病毒真相，让越来越多的人们看清主流媒体的邪恶嘴脸，更深的理解并抵制中共病毒疫苗，早日停止这场对人类的大屠杀。这场拉锯战才刚刚开始。
 
-他的女儿在6岁的时候得了罕见的疾病，整个家庭被阴云笼罩，有时走在路上Peterson都会忍不住崩溃地哭出声来。他不知道为什么上帝会这么残忍，他一想到自己可爱的女儿每天承受的刻骨铭心的疼痛，就撕心裂肺。（女儿得的是一种病因未明的、以炎性滑膜炎为主的慢性系统疾病，疼痛感是人类所能测量出来的疼痛感里的最高级，10级）。
+新闻链接： [https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
 
-有一天，他在家附近又忍不住哭了出来，这时一只小猫过来好奇地看着他，优雅地踱步。这片刻的柔软和美好，让他眼前的乌云短暂地散开，他突然感受到这只小猫的纯真，这种双方短暂的交集，生命的易逝，和他美丽女儿的善良与脆弱，都是一体的。如果不是因为“病痛“和”死亡的可能“， 他女儿的生命也不会如此地不可替代，生命之美震撼人心。
+* * *
 
-所以，路上碰到一只猫咪，要记得摸摸它。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-来源：https://matters.news/@philosophia1979/350-jordan-peterson-%E5%B8%A6%E4%BD%A0%E5%8E%98%E6%B8%85%E6%B7%B7%E4%B9%B1%E7%9A%84%E5%8D%81%E4%BA%8C%E6%9D%A1%E4%BA%BA%E7%94%9F%E6%B3%95%E5%88%99-%E9%87%8E%E5%85%BD%E7%94%B5%E5%8F%B0-bafyreicavekyycmky6uaabqkgvxbjfcz2ayuqj6b4cfc7fzqaqpcn2cuba
 
-（文章仅代表作者个人观点）
+编辑：【英国伦敦喜庄园编辑部】
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
