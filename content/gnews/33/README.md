@@ -2,29 +2,24 @@
 ---
 
 
-## 有声|何韵诗在港被捕引加拿大各界关注
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819825/)
+## 盖特年度“中共最大梦魇奖”获得者—郭文贵先生
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1820120/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据国外媒体12月30日报道，香港警察29日逮捕“立场新闻”管理人员——包括加拿大籍何韵诗——的行动，引起了加拿大各界的关注。
+采编/编译撰稿：Quitman     校对编辑，发稿：硫酸羟氯喹64
 
-前加拿大自由党政府内阁部长欧文‧科特勒指责这是受北京操纵的打压言论自由的犯罪行为。前加拿大驻华外交官查尔斯‧伯顿呼吁加拿大政府应立刻采取措施保护本国无辜公民。加拿大女王大学名誉教授金‧诺萨尔表示，加拿大政府应该持续关注北京对香港自治及香港新闻自由的不断侵蚀。加拿大外交部长赵美兰当天下午在推特上发文说，加拿大对该次逮捕行动深感关切，加拿大领事官员已经参与并准备好在当地提供援助。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-edited.png)图片来源：GETTR
 
-另据香港媒体报道，何韵诗在被扣押1天多后，已于12月30日下午获得保释。
 
-文字版原文：[何韵诗在港被捕引加拿大各界关注](https://gnews.org/zh-hans/1814908/)
+据本台记者1月3日报道，盖特总裁Jason Miller 当天宣布：2021年度全球盖特人物颁奖礼之：中共最大恶梦奖项获得者—-新中国联邦创建人之首郭文贵先生。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+Jason Miller总裁在其盖特直播节目中指出：“努力铲除中共邪恶政权是盖特应该完成的首要任务和必须履行的真正使命。而当谈论到中共暴政所面临的致命打击时，我们会首先想起在全世界热播的劲歌《TAKE DOWN THE CCP》，这首歌的演唱者是一位伟大的爱国者，我们的战友，盖特的奠基人–郭文贵先生。”并由衷表示：郭先生是一位远见卓识，做事从不考虑自身利益，一心为全人类着想的非凡行动者。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+此外，Jason Miller在回忆被邀请担任盖特执行总裁时，他曾问郭先生，盖特的主要目标是成为一个能赚大钱的巨型上市公司，还是应该首先干灭中共。郭先生当时毫不犹豫地选择了铲除中国共产党。为此，郭先生每天都在付诸于行动，并全身心支持和参与所有消灭中共的事业。有鉴于此，郭文贵先生是当之无愧的2021年盖特人物-中共最大恶梦奖获奖者。
+
+* * *
+
+原文链接：[https://gettr.com/post/plo3lr687e](https://gettr.com/post/plo3lr687e)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

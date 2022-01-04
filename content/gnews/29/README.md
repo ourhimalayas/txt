@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|中共政府从西方社交媒体收集了大量数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819829/)
+## 悉尼一医院：休年假员工重返岗位每班可获250澳币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820146/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-38.png)图片来源：Lebanese American University
+整理报道：小鱼儿
+编辑：Mttfly
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+据天空新闻台1月2号报道，悉尼一家领头的医院向其护理人员提供现金奖励，让他们取消年假，以应对COVID-19造成的“严重人员短缺”。圣文森特医院提出，如果员工同意返回工作岗位，每班可获得250澳币现金奖励。
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
+当医院接收并正在治疗的病毒感染者超过了1000人时，医院还要求一线工作人员确认病人是否可以提前出院。但重症监护率仍然很低，只有0.001%的活动病例在重症监护室（ICU）。
 
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
+**新闻链接：**[Sydney hospital offering cash incentives to nursing staff on annual leave amid worker shortages](https://www.skynews.com.au/australia-news/coronavirus/sydney-hospital-offering-cash-incentives-to-nursing-staff-on-annual-leave-amid-worker-shortages/video/5e9eb67331e4334e18776ad16b859ed2)
 
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-文字版原文：[中共政府从西方社交媒体收集了大量数据](https://gnews.org/zh-hans/1814902/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

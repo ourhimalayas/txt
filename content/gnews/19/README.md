@@ -2,28 +2,44 @@
 ---
 
 
-## 悉尼一医院：休年假员工重返岗位每班可获250澳币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820146/)
+## COVID-19 变种干扰了假期旅行但不影响购物
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1820258/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-38.png)图片来源：Lebanese American University
-整理报道：小鱼儿
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-22.png)圣诞节前几天，迈阿密的蒙面购物者。（乔·雷德尔(Joe Raedle) /盖蒂图片社）
+据《新闻大全》2021年12月26日报道
 
-据天空新闻台1月2号报道，悉尼一家领头的医院向其护理人员提供现金奖励，让他们取消年假，以应对COVID-19造成的“严重人员短缺”。圣文森特医院提出，如果员工同意返回工作岗位，每班可获得250澳币现金奖励。
+最新的 COVID-19 变种正在颠覆成千上万旅客的假期计划, 但它并没有对假期购物造成太大损害。
+ 周日航空公司取消了数百个航班，理由是与 COVID-19 相关的人员配备问题，使国家的旅行困境已经延续到圣诞节之后，并且没有明确的迹象表明何时可以恢复正常行程。
+ 但购物者对Omicron变种不屑一顾，根据一项支出指标，假日销售额以 17 年来最快的速度增长。Omicron可能会通过扰乱旅行并打消一些消费者冒险外出的念头，从而减缓经济从去年中共病毒衰退中意外强劲反弹的速度。该变体还可能由于迫使工厂和港口停工、延迟发货和推高价格，为已经在酝酿中的通胀火上浇油。
 
-当医院接收并正在治疗的病毒感染者超过了1000人时，医院还要求一线工作人员确认病人是否可以提前出院。但重症监护率仍然很低，只有0.001%的活动病例在重症监护室（ICU）。
+由金融公司贸易集团组成的国际金融研究所（Institute of International Finance）首席经济学家罗宾·布鲁克斯（Robin Brooks）说：“美国经济的全面重新开放将再次被推迟。” 但目前尚不清楚伤害会有多深或会持续多久。
+ 目前，该变体正在对旅游业造成严重破坏。 根据航班追踪网站(FlghtAware)数据，超过 700个进出美国或在美国境内飞行的航班被取消。 这一数字比周六的近 1,000 个航班有所下降。 周一已有超过50个航班被取消。达美航空(Delta)、联合航空(United)、捷蓝航空(JetBlue)和美国航空(American)都将人员短缺而被迫取消航班归咎于omicron。
 
-**新闻链接：**[Sydney hospital offering cash incentives to nursing staff on annual leave amid worker shortages](https://www.skynews.com.au/australia-news/coronavirus/sydney-hospital-offering-cash-incentives-to-nursing-staff-on-annual-leave-amid-worker-shortages/video/5e9eb67331e4334e18776ad16b859ed2)
+美联航发言人玛迪·金(Maddie King)在谈到该变种对人员配置的影响时说：“这是出乎意料的。” 航班追踪网站的数据显示，截至周日上午，全球航空公司取消了约2,200个航班，低于前一天的2,800多个取消航班。该网站没有说明航班取消的原因。
+ 捷蓝航空周日取消了10%的航班。 据航班追踪网站称，达美航空取消了5%，美联航取消了4%。 这三家航空公司周六取消了超过10%的定期航班。梅森·赫洛克(Mason Herlocker)周日在新泽西州的纽瓦克自由国际机场(ewark Liberty International Airport)等候接他从巴黎来的女朋友。她的航班延误了四个小时。
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在进入美国的前一天，她花了五个小时才做了COVID-19测试。她要访问三个星期，梅森·赫洛克说他担心，，如果她在尝试返回法国的家之前没有获得阴性测试结果，她会被困在这里。由于担心他的父母生病，梅森·赫洛克最近打了加强针，并鼓励其他人也接受注射。 他说，他不相信大流行即将结束。
+
+赫洛克说：“我认为这是种新常态”，“我预计（病毒）不会很快消失。”阿内什·阿比扬卡(Aneesh Abhyankar) 周日从亚特兰大(Atlanta)飞来，正在等待飞往印度的航班。他的航班都没有延误或取消，但他说Omicron变种的消息促使他加快行程，以确保他能到达目的地。他说，在可预见的未来，口罩和疫苗很可能会在日常生活中根深蒂固。
+ 他说：“如果我们采取所有预防措施，我认为我们不必担心，我认为我们将进入一种只能与病毒共存的境地。”尽管有 omicron，但美国消费者似乎未被吓倒。 追踪包括现金和借记卡在内的各种支付方式的万事达卡，消费脉动(Mastercard SpendingPulse)周日报告称，假日销售额较上年同期增长8.5%，为 17 年来的最大年度增幅。万事达卡消费脉动曾预计增长7.4%。
+
+涵盖11月1日至12月24日的消费结果， 是受到购买服装和珠宝的推动。 与大流行前的2019年假期相比，假期销售额增长了10.7%。
+ 受到Omicron冲击后，一些消费者将消费转向电子商务，但销售额依然强劲。
+ 万事达卡高级顾问、萨克斯公司(Saks Inc.)前首席执行官史蒂夫·萨多夫（Steve Sadove）说：“我对这一季的表现感觉非常好。当人们感到有点不舒服时，你会看到网上购物的情况有点好转，商店的业绩表现也有点放缓。”萨多夫说，消费者正在“学会接受”COVID-19 给他们带来的一切。他说：“您将带着相当多的消费动力走出2021年。”
+
+约翰霍普金斯大学(Johns Hopkins)传染病专家阿梅什·阿达利亚(Amesh Adalja)博士周日表示，关于Omicron在美国的激增将有多严重，仍有许多疑问。与此同时，在欧洲，法国在大流行中首次在一天内记录了超过10万例病毒感染。 过去一个月，COVID-19 住院人数增加了一倍，omicron使法国政府避免新的活动限制努力复杂化。该国的总死亡人数超过122,000人。
+
+总统埃马纽埃尔·马克龙 (Emmanuel Macron) 的政府计划在周一召开紧急会议，讨论接下来的步骤。 一些科学家和教育工作者敦促推迟假期后返校，或建议重新实施宵禁。
+
+
+
+原文链接：[https://www.newsmax.com/finance/streettalk/virus-outbreak/2021/12/26/id/1050004/](https://www.newsmax.com/finance/streettalk/virus-outbreak/2021/12/26/id/1050004/)
+
+
+
+
+
+翻译： 飞利普 |校对：烟波浩淼 | 编辑&发布：闪电训练
 
  
 

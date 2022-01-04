@@ -2,33 +2,29 @@
 ---
 
 
-## 郭文贵先生在盖特上就新冠病毒疫苗提出质疑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819354/)
+## 美国国防部长接种加强针后依旧确诊中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819356/)
 
-作者：纽约香草山农场福音部 – 恩永存
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022年1月2日，郭文贵先生在盖特短视频中，就新冠病毒及疫苗提出了诸多质疑。
+1月2日，美国国防部长劳埃德·奥斯汀在一份声明中证实，他本人的新冠病毒检测呈阳性。而信息显示，这位在去年8月要求全美国军职人员强制接种疫苗的国防部长，已经在10月接种了加强针疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-11.jpg)
+分析人士称，尽管其本人在感染后依旧在推行中共病毒疫苗接种，但这会进一步引发人们对疫苗有效性的质疑。
 
-首先，新冠病毒从哪里来，治病要找病根。
+根据约翰·霍普金斯大学的统计，美国的中共病毒累计病例数在周日超过了5500万，其中包括过去28天内报告的近600万新病例。
 
-第二，疫苗有哪些成分，有什么副作用，是否对症下药。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-8.jpg)
-第三，疫苗有无预防作用。若有作用，为何打了一针，还要打二针三针。若能预防，为何打了两针疫苗的人还会感染新冠病毒。
+参考链接：
+1.[美国国防部长接种加强针后依旧确诊中共病毒](https://www.kiro7.com/news/trending/coronavirus-us-defense-secretary-lloyd-austin-tests-positive-breakthrough-covid-19-case/JOKILOU2GRFVDE4SHCEQAHVUIQ/)
+2.[美国国防部长接种加强针后依旧确诊中共病毒](https://www.defense.gov/News/Releases/Release/Article/2886520/statement-by-secretary-of-defense-lloyd-j-austin-iii-on-covid-status/)
+3. [美国国防部长接种加强针后依旧确诊中共病毒](https://world.huanqiu.com/article/46FQ67v8BSp)
+4. [美国国防部长接种加强针后依旧确诊中共病毒](https://www.sohu.com/a/485727082_260616)
 
-第四，新冠病毒疫苗导致各种疾病及死亡，为何不正确面对，不向公众公告，不停止打疫苗。
 
-第五，主推中共病毒疫苗的人是否为了经济利益，亦或为了邪恶计划。如今几亿人感染，千万人死亡，无数家庭受害，谁来负责。
-
-郭先生宣告，新中国联邦有情报，最早在GTV、GETTR、Gnews上爆料，中共病毒来自中共实验室，是中共放毒；最早指出中共病毒疫苗是毒疫苗，会导致心脑血管堵塞，甚至导致死亡；也最早告诉世界青蒿素，伊维菌素是解药，已有许多治愈的病例。
-
-郭先生多次警告，新冠病毒疫苗大灾难甚至还未到来。人们要做好各种防备，活着才是最重要的！
-
-参考链接：[郭文贵先生在盖特上就新冠病毒疫苗提出质疑](https://gettr.com/post/plfpq4abf0)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：Jack Li文阳
-编辑：Kathy文艺
+总编：DM
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

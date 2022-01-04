@@ -2,19 +2,26 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-11
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819353/)
+## 播客巨星乔·罗根入驻盖特，文贵先生呼吁战友关注
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819355/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-7.jpg)
-HBO VICE 针对郭先生的依法惩贼行动，说郭先生在没有证据的情况下诋毁他们，并对采访郭先生的视频进行了断章取义，只播放了一小部分。我们还原当时的原始采访进行反击。郭先生在视频中针对ISOBEL的提问坚称，美国的法律可以最终判定自己是不是诋毁，在以往针对这些伪类的诉讼中，自己从未败诉过。事实上，自己从未主动攻击他人，至于其他的美国公民，他们都有权合法进行抗议。被他们抗议的那些人，都是为中共工作的人，他们不仅通过渗透传播错误信息，而且多次对郭先生和他的追随者进行各种骚扰和侵犯。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2022年1月2日，播客超级明星乔·罗根宣布入驻盖特账户。他在周日下午的盖特上写道，为了防止推特变得更垃圾，很高兴来到这里。当天，郭文贵先生立即发表盖特，呼吁战友们马上关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-9.jpg)
+乔·罗根曾是一名喜剧演员，参演过多个电视节目。 后来担任终极格斗锦标赛 的记者和解说员。 之后开始表演脱口秀。2009年，罗根开办了播客《乔·罗根体验》 ，这档节目给他带来了“名气，财富和播客超级巨星的地位”。不久前，他在一期节目现场服用了伊维菌素，有力地抨击了FDA污蔑该药是“马驱虫药”的无耻行径。而最近罗根的一则采访视频更是把当事人推上了风口浪尖，令Masspsychosis（群体性精神病）迅速成为推特和谷歌热搜。众多的罗根关注者在推上询问、了解，并跟随罗根下载注册了盖特账户。
 
-接下来让我们还原事实真相的第11部分。（*播放视频：**5.59分钟*）
+郭文贵先生在盖特上称，上亿关注量的罗根来到盖特，简直太厉害了。
 
-参考視頻链接：[采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-11](https://www.gettr.com/post/pkgi5rd328)
+参考链接：
+1. [播客巨星乔·罗根入驻盖特，文贵先生呼吁战友关注](https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies)
+2. [播客巨星乔·罗根入驻盖特，文贵先生呼吁战友关注](https://twitter.com/joerogan/status/1477715450477830156?s=21)
+3. [播客巨星乔·罗根入驻盖特，文贵先生呼吁战友关注](https://twitter.com/electionwiz/status/1477731689640210438?s=21)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编/编辑：DM
+总编：Ivy001
+编辑：Jack Li文阳
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
