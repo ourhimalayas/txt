@@ -2,31 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819896/)
+## 奥密克戎导致新年期间大量航班被取消
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1819947/)
 
-作者：香草山翻译部
+采编：青青       编译撰稿：苦尽甜来 (文来）
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-edited.jpg)图片来源：LAP
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0103text-SC.png)
-校对：Stay文苑
+据加拿大媒体【CP24】1月1日报道，对于大部分航空旅客来说，新的一年从很多挫折开始。截至当天，已有2,600多个美国航班和近4,600 个全球航班被取消。
 
-编辑：Stay文苑
+报道称：自圣诞节前夕以来，已有超过 12,000 趟美国航班被取消。而航空公司一开始将此归咎于大量机组人员感染“奥密克戎病毒”所导致的工作人员严重短缺。同时，部分地区的暴风雪寒冷天气也是原因之一。
 
-发稿：Stay文苑
+美联航对此表示，为了保证一月份的航班正常运行，该公司将向飞行员和机乘人员支付三倍或更多的工资。
 
-视频参看：[1.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d3a29831a71619b5744169)
+尽管如此，由于中共暴政在全球持续不断地投放新型病毒，还有即将到来的各种疫苗伤害及其次生灾难，相信世界各国航空运输业的寒冬才刚刚开始。
 
-![r](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.cp24.com/news/new-year-brings-more-canceled-flights-for-air-travelers-1.5725270](https://www.cp24.com/news/new-year-brings-more-canceled-flights-for-air-travelers-1.5725270)
 
  
 

@@ -2,48 +2,28 @@
 ---
 
 
-## 纽约市市长考虑对城市工人实施强制加强针疫苗接种
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1819920/)
+## 荷兰首都数千人顶着禁令聚会反对荷兰的病毒强制措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1819958/)
 
-作者：纽约香草山农场 – 四季
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-21.png)
+图片来源：谷歌图片
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来自美联社的报道，2022 年 1 月 2 日星期日，在荷兰阿姆斯特丹，数千人无视禁令聚集和抗议荷兰政府的冠状病毒封锁措施，在阿姆斯特有数千示威者聚集在一个中央广场上，然后游行走向阿姆斯特丹的一个公园。
 
+在示威中，警方与示威者发生冲突, 因为警察根据阿姆斯特丹市长 菲姆克.豪斯姆（Femke Halsema ）的命令，试图将人群从博物馆广场清除出去。首都市政府禁止抗议活动，警方称有迹象表明 一些示威者可能“准备使用暴力”。而当地政府宣布抗议活动为非法,记者在现场看到，至少有1人被拘留。
 
+在警方声称有一些示威者可能正计划参加“为暴力”做好准备，市政当局随后发布紧急命令，要求人们离开广场，防暴警察穿过草地清理该地区，将示威者送往邻近街道。
 
+在警察进入之前，一些参与者在梵高博物馆附近展开了一条横幅，上面写着“少打压，多关爱。”一群穿着白色工作服和白色口罩的人举着标语，其中一个标语写着：“这不是关于病毒，而是关于控制”，另一边写着“自由”。 一个人举着“特朗普2024”的旗帜穿过人群。
 
+广场上和附近街道上有大量警察。 市政府将该地区指定为风险区，赋予警方预防性搜身的权力。
 
-据据[布赖特巴特新闻网（Breitbart News）](https://www.breitbart.com/politics/2022/01/03/nyc-mayor-eric-adams-considering-booster-mandate-for-city-workers/)1月3日的报道，新近宣布就职的纽约市市长埃里克·亚当斯（Eric Adams）周日宣布，他准备强制要求所有市政工作人员接受中共病毒加强针的接种。
+游行穿过城市后，示威者开始聚集在阿姆斯特丹西部的一个公园，参加民粹主义的民主党论坛集会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362159093.jpg)2021年12月31日，埃里克-亚当斯在纽约市出席时代广场2022年新年庆典。（Arturo Holmes/Getty）
+在示威发生的同一天，荷兰警方表示，他们将采取行动抗议日益增长的工作要求。 工会代表表示，如有必要，防暴警察将继续工作。
 
-亚当斯说，如果我们觉得必须到强制执行的地步，我们愿意这样做，但我们鼓励现在就这样做。他表示将继续执行对该市私营部门进行中共病毒疫苗的强制接种。
-
-自去年11月以来，纽约城市工人已经被强制要求接种中共病毒疫苗。然而，这是官员们首次提出将后续的疫苗接种加入强制清单这一可能性。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+原文链接：[https://apnews.com/article/coronavirus-pandemic-health-europe-riots-netherlands-22d23ceea93fb5d2d5d03eb08dc6bddf](https://apnews.com/article/coronavirus-pandemic-health-europe-riots-netherlands-22d23ceea93fb5d2d5d03eb08dc6bddf)
 
  
 

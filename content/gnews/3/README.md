@@ -2,29 +2,24 @@
 ---
 
 
-## 悉尼一医院：休年假员工重返岗位每班可获250澳币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820146/)
+## 为避免核战争五个核大国不寻常的联合声明
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820178/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-38.png)图片来源：Lebanese American University
-整理报道：小鱼儿
-编辑：Mttfly
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/77.png)（图片源自本文链接）
+1月4日时事通信社华盛顿报道：五个核大国–美国、英国、法国、中共国和俄罗斯–于1月3日发表了一份联合声明，确认他们对避免核大国之间战争的承诺。在声明中，五国强调，核战争没有赢家，永远不应发动核战争。并强调，五国将遵守《核不扩散条约》（NPT），并采取多边、外交方式来防止军事冲突和军备竞赛。
 
-据天空新闻台1月2号报道，悉尼一家领头的医院向其护理人员提供现金奖励，让他们取消年假，以应对COVID-19造成的“严重人员短缺”。圣文森特医院提出，如果员工同意返回工作岗位，每班可获得250澳币现金奖励。
+五个核大国为避免战争发表联合声明，实属罕见之事。随着中共国加强军事压力，人们对台湾紧急情况的担忧日益加剧。俄罗斯军队在边境附近集结，也使得乌克兰局势日益紧张，这份声明是否会缓和紧张的战争局势，相当引人注目。
 
-当医院接收并正在治疗的病毒感染者超过了1000人时，医院还要求一线工作人员确认病人是否可以提前出院。但重症监护率仍然很低，只有0.001%的活动病例在重症监护室（ICU）。
+声明指出，使用核武器，其影响面甚广。声明强调，虽然五国都保有核武器，但其使用应限于”自卫目的、防止侵略和避免战争”。
 
-**新闻链接：**[Sydney hospital offering cash incentives to nursing staff on annual leave amid worker shortages](https://www.skynews.com.au/australia-news/coronavirus/sydney-hospital-offering-cash-incentives-to-nursing-staff-on-annual-leave-amid-worker-shortages/video/5e9eb67331e4334e18776ad16b859ed2)
+笔者认为，声明本身是积极的，有利于世界和平的。但五国中哪怕有一国是习惯于不守规则的流氓，其意义将一落千丈!
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[核戦争回避に努力＝「勝者なし」と米英仏中ロ―保有５大国、異例の共同声明 (msn.com)](https://www.msn.com/ja-jp/news/world/%E6%A0%B8%E6%88%A6%E4%BA%89%E5%9B%9E%E9%81%BF%E3%81%AB%E5%8A%AA%E5%8A%9B-%E5%8B%9D%E8%80%85%E3%81%AA%E3%81%97-%E3%81%A8%E7%B1%B3%E8%8B%B1%E4%BB%8F%E4%B8%AD%E3%83%AD-%E4%BF%9D%E6%9C%89%EF%BC%95%E5%A4%A7%E5%9B%BD-%E7%95%B0%E4%BE%8B%E3%81%AE%E5%85%B1%E5%90%8C%E5%A3%B0%E6%98%8E/ar-AASo2v6?ocid=msedgntp)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
