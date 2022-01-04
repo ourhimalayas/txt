@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 6:00 AM (UTC)`
+
+2021 Year In Review<br/><br/>2021年大事回顾
+![img](https://media.gettr.com/group12/getter/2022/01/04/06/9b90a8cc-c87c-e7f8-59bd-5be3f250cbe2/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@realmattcouch 1/4/2022 1:57 AM (UTC)`
@@ -152,12 +159,6 @@ Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
 `@miles 1/2/2022 10:02 PM (UTC)`
 
 1月2号：@joerogan 今天整天很匆忙的一天. 各位請務必分工合作.  我們今天有5個緊急的bugs得解決. 以及幾個大v的貼心服務. 至於被黑的統計, 其餘有空的人可以幫忙分享一些數據證明. 我們兩天前已開始關注這被黑的可能性. <br/>https://www.washingtonpost.com/national-security/china-harvests-masses-of-data-on-western-targets-documents-show/2021/12/31/3981ce9c-538e-11ec-8927-c396fa861a71_story.html <br/>12/31/2021 华盛顿邮报报导，中国正把对国内网络的监控手段转为对外，深入搜集脸书、推特等西方社群媒体的数据，为政府机构和军警单位搜集外国目标的情资。<br/>华盛顿邮报（The Washington Post）报导指出，中国过去10年开发出「舆情分析软件」，大范围监控国内网友和媒体的政治敏感言论，而该报审查300多份中国政府从2020年起对外招标的文档、合同和公司档案发现，中国开始把这套手段用在海外，采购软件从推特（Twitter）、脸书（Facebook）和其他西方社群平台搜集情资。
-
----
-
-`@miles 1/2/2022 7:13 PM (UTC)`
-
-1月2号：尊敬的战友们好，一定要马上关注。这位有良知的……有国际视野的天才籍的媒体人．美国朋友。@joerogan 【Just in case shit over at Twitter gets even dumber, I’m here now as well. Rejoice! https://gettr.com/post/plg71j5d09 看到Joe Rogan来盖特了，简直太厉害了，这位可能是美国最有人气的主播，他的podcast在美国上亿的关注，太牛了🎉🎉🎉】
 
 ---
 
