@@ -15,109 +15,109 @@
 
 ---
 
-### [01/04每日播报｜Omicron变种感染潮正在摧毁美国教育系统](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [郭文贵谈中共严格严肃管理失控的音乐文化市场内幕](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [郭文贵：元旦前一天《我是音雄》是新中国联邦团队的升华](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾政府假借疫苗悄悄实施极权政策](/content/gnews/3/README.md)
- ` 秘密翻译组-原创组`
+### [郭文贵：读新中国联邦宣言、联系农场、远离城市是解决之道](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国外交部表示：将继续推进核武库“现代化”](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [川普称推特和脸书是美国的耻辱，并敦促美国人放弃它们](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共互联网信息办公室修订发布《网络安全审查办法》](/content/gnews/6/README.md)
- ` 儒为`
-
-### [澳大利亚男子咆哮反对Covid疫苗后自焚](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本将对面部识别技术进行出口管制](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳大利亚与东北亚日益紧密的联系](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [人权组织敦促国际奥委会主席巴赫辞职](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [中国央行推出安卓和iOS版数字人民币钱包应用程序](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [五千万的阿富汗人被30万塔利班蹂躏唯有自救绝无他法](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美国议员反对接种疫苗 遭推特永久封锁](/content/gnews/13/README.md)
- ` 日本东京方舟农场`
-
-### [推背图壬寅-中共2022一朝听得金鸡叫](/content/gnews/14/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共社交媒体目标以获取西方的数据](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [胡春华要当总理或人大主任丁薛祥接郭声琨陈全国进核心](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [01/04每日播报｜印尼禁止煤炭出口 中共用电危机恐加剧](/content/gnews/17/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [拜登法案的核心让共产党彻底死了心同时又存在侥幸心理](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [过去20年美国的核心机构和商业机构的合作都在收拾中共](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [参议员兰德·保罗因言论审查弃用Youtube](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参议员克鲁兹：2023年共和党可能会弹劾拜登总统](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [01/04每日播报｜新闻简讯:河南疫情扩散 印尼禁止煤炭出口 西安封城乱象频发](/content/gnews/22/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [拜登法案与美国当年对苏联温水煮青蛙灭共计划异曲同工](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [人寿保险公司 CEO 称 18-64 岁人群的死亡率上升了 40%](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共朝是黑格尔的“中国史只是君主覆灭的重复”的片段](/content/gnews/25/README.md)
+### [澳洲新南威尔士CCP病毒新增确诊今日再度打破记录](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [泰山会成员爆雷不断](/content/gnews/26/README.md)
+### [中共公开宣布将在美国制造新的疫情风暴](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西安发布会中共满嘴谎言，挨饿的老百姓发弹幕怒骂](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [01/04每日播报｜恒大海花岛被勒令强拆  其股票已经停牌](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [女军人指出强制军队疫苗接种非法](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [01/04每日播报｜Omicron变种感染潮正在摧毁美国教育系统](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾政府假借疫苗悄悄实施极权政策](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中国外交部表示：将继续推进核武库“现代化”](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法国科学家发现新的中共病毒变体IHU](/content/gnews/27/README.md)
+### [川普称推特和脸书是美国的耻辱，并敦促美国人放弃它们](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平11月演讲稿刻意歪曲89.64惨案](/content/gnews/28/README.md)
+### [中共互联网信息办公室修订发布《网络安全审查办法》](/content/gnews/14/README.md)
+ ` 儒为`
+
+### [澳大利亚男子咆哮反对Covid疫苗后自焚](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本将对面部识别技术进行出口管制](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳大利亚与东北亚日益紧密的联系](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [人权组织敦促国际奥委会主席巴赫辞职](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [中国央行推出安卓和iOS版数字人民币钱包应用程序](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [五千万的阿富汗人被30万塔利班蹂躏唯有自救绝无他法](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国议员反对接种疫苗 遭推特永久封锁](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [推背图壬寅-中共2022一朝听得金鸡叫](/content/gnews/22/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共社交媒体目标以获取西方的数据](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [胡春华要当总理或人大主任丁薛祥接郭声琨陈全国进核心](/content/gnews/24/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [01/04每日播报｜印尼禁止煤炭出口 中共用电危机恐加剧](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [拜登法案的核心让共产党彻底死了心同时又存在侥幸心理](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [过去20年美国的核心机构和商业机构的合作都在收拾中共](/content/gnews/27/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [参议员兰德·保罗因言论审查弃用Youtube](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [参议员克鲁兹：2023年共和党可能会弹劾拜登总统](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [01/04每日播报｜新闻简讯:河南疫情扩散 印尼禁止煤炭出口 西安封城乱象频发](/content/gnews/30/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [人寿保险公司 CEO 称 18-64 岁人群的死亡率上升了 40%](/content/gnews/31/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [法国科学家发现新的中共病毒变体IHU](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习近平11月演讲稿刻意歪曲89.64惨案](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [2022年将是国内民众最穷困的一年](/content/gnews/29/README.md)
+### [2022年将是国内民众最穷困的一年](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [有声|研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [有声|郭先生谈五行与爱](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声|喜马拉雅币一周分析与总结（12月27日-1月2日）](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声|欧洲中共病毒确诊病例超一亿人](/content/gnews/35/README.md)
+### [有声|中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/35/README.md)
  ` MOSREC`
 
 ### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/36/README.md)

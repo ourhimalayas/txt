@@ -2,51 +2,45 @@
 ---
 
 
-## 参议员兰德·保罗因言论审查弃用Youtube
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1820718/)
+## 五千万的阿富汗人被30万塔利班蹂躏唯有自救绝无他法
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1820843/)
 
-**翻译：Lulumi**
+**郭文贵先生**：阿富汗将近从过去的1000多万到2000万人口，到最后美国在那块儿驻军，每年花了几千亿进去，是吧？到变成了将近5000万人口，人口的增长。塔利班才多少人？号称所谓80万大军，实际上就30几万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-187.png)2021年10月7日星期四，在华盛顿，参议员兰德·保罗在国会山散步时与记者交谈。(AP Photo/Alex Brandon)
+一个5000万人的国家被30万人给蹂躏着，要饿死一半人。就像我们中国人，14亿人被所谓的3000多个人民代表和中央政治局，被七个常委，就给全国人民“宇宙无限大、地球是一粒沙“全给强奸了。一睡就睡了70年，同样的悲哀的结果。凭啥美国人要让你，为阿富汗强大我拿钱？美国再在阿富汗呆下去，你知道什么结果？你觉得会有什么结果？从这个道德上讲，绝对是不对的，从任何角度讲，阿富汗撤出，美国撤出是符合美国利益的。
 
-参议员兰德·保罗周一表示，他将停止使用大科技平台，由于担心网上的言论审查，他首先抛弃了谷歌旗下的YouTube。
+更重要的事情，美国除了经济问题、除了战略问题，美国是真的是，再往下弄下去，美国知道在阿富汗这个地方，美国会深陷其中。而且美国是，绝对是就是20年的计划，就是要对付要把伊朗中国共产党这个彻底改掉，把整个中东的整个局势彻底改变。它没有那么多精力和金钱，不可能的。美国这已经搞了30年，就准备好打赢，绝对打赢一场战争。准备同时打两场战争，在阿富汗，你就同时在一场战争中，你怎么可能？
 
-这位肯塔基州的共和党人在一份声明中说：“今天，我开始从大科技公司出走，从最糟糕的审查员YouTube开始。作为一个倾向自由主义的参议员，我认为私营公司有权禁止我，如果他们想的话。然而，我们这些相信真理来自于争论和思想市场是创新的先决条件的人应该避开那些思想封闭的审查员，把我们的想法带到其他地方，这正是我正在做的。”
+你5000万的阿富汗人干不掉30万的这个小破——加一起不过10万人的那些所谓人，都不会打的，吃都能把它吃了，甭说打了。
 
-保罗先生的办公室说，他只有在批评YouTube平台，或将人们引向YouTube的竞争对手Rumble的例外情况下，才会在YouTube上发布视频。
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-科技平台的规则和执行做法已经使一些知名的政治家和保守派的热门人物陷入困境。最近几天，Twitter禁止了佐治亚州共和党人玛乔丽·泰勒·格林的个人账户，司法观察组织主席汤姆·菲顿说，他也在TikTok遭遇了类似的禁令，这个流行的视频平台的所有者在中共国。
+编辑整理：Jacques；
 
-格林女士周一宣布，Facebook也暂停了她的账号，并在Gettr上发布了一张图片，显示Facebook在24小时内阻止她发帖或发表评论。脸书表示，它没有消除她的账户。
+字幕文件制作：小满；
 
-政治家和公众人物并不是唯一被公司盯上的人。例如，YouTube此前曾暂停了保守的 “一个美国新闻网”(OneAmerica)，因为它被指控违反了该平台的COVID-19错误信息政策。
+视频制作及上传：Cindy；
 
-科技公司有各种各样的工具来审查和塑造其平台上的内容。这些工具包括禁言、删除内容以及使个人的帖子和视频的观众人数远远少于其他情况。
+G-News发布：小满；
 
-对右派公众人物的积极打压形成热点，当2021年前总统唐纳德·川普在任时，一些平台也将他封杀过。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-8月，YouTube禁止保罗先生发布视频一周，因为该公司称参议员违反了其关于口罩对
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-阻止中共病毒COVID-19的有效性的错误信息政策。保罗先生在他的Twitter上回应称YouTube的禁令是“荣誉勋章”，并在Rumble上分享了被禁视频。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-保罗先生与YouTube的争议导致他决定在周一公开他与该视频平台的分裂。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“在过去的一年里，YouTube继续发动其危险的、反科学进步的、反对言论自由的战争，选择与政府步调一致，禁止保罗博士发布的敢于违背政府立场的视频，”这位参议员的办公室在一份声明中说道。“这些视频包括与记者的对话，他在对话中讨论了口罩的功效，特别是布质口罩，还有一段视频解释了布质口罩不起作用的科学原因。”
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-YouTube没有立即回应评论请求。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-保罗先生还宣布他正在创建一个名为libertytree.com的新闻聚合网站，他在那里发表了一篇文章，说他的目标是“最终完全退出大科技公司平台”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-在寻求创建新的信息共享场所的政治家中，保罗先生并不是唯一一个。川普先生已经宣布，他正在开发一个新的社交平台TRUTH Social，由川普媒体和技术集团主持。加州共和党人德文·努内斯(Devin Nunes)议员将于今年作为首席执行官负责该平台。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-新闻来源: [washingtontimes.com] [Rand Paul says he’s leaving Big Tech platforms, starting with YouTube](https://www.washingtontimes.com/news/2022/jan/3/rand-paul-says-hes-leaving-big-tech-platforms-star/)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

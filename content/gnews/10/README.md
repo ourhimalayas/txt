@@ -2,34 +2,75 @@
 ---
 
 
-## 人权组织敦促国际奥委会主席巴赫辞职
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1820857/)
+## 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1820931/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+[https://gtv.org/video/id=61d2bf33dffab035958a31c9](https://gtv.org/video/id=61d2bf33dffab035958a31c9)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/241EDE01-0B06-48C0-9DBC-24E6DD04B49E.jpeg)（图片来自德国之声）
+**郭文贵
+Miles Guo**
 
-据《德国之声》1月3日报道，人权组织《人权观察》德国分部主席米歇尔斯基（Wenzel Michalski）敦促巴赫辞去国际奥委会主席一职。他表示，不注重人权、只注重金钱利益的国际奥委会已经不合时宜。
+在新疆里边强奸、轮奸的那是多少孩子
+How many children were raped and gang-raped in Xinjiang at that time
 
-据报道，距离北京冬奥会开幕只剩四周时间，国际人权组织《人权观察》德国分部主席米歇尔斯基在接受德意志电台采访时表示，2008年北京奥运会已经过去了14年，而中共国的人权状况正在变得越来越糟糕。他以新疆和香港的现状为例，强调中共国的情况恰恰说明，体育并没有起到促进社会进步的作用。
+都是小孩
+They were all children
 
-米歇尔斯基表示，全面抵制北京冬奥会，并不属于人权组织的职责范围，但如果国际奥委会和国际足联等重要国际体育协会继续同专制政权合作，人权组织将不得不采取行动。他表示：“我可以明确地说，上述国际体育协会的信誉已经丧失殆尽。2022年是一个分水岭，它将决定国际奥委会和国际足联是否还有存在下去的必要。”
+共产党在西藏、在新疆
+The CCP in Tibet and Xinjiang,
 
-米歇尔斯基还表示，国际奥委会的高管们已经无法认清当今的形势。”经济界都在要求企业对新疆的人权践踏表明立场，这也意味着巴赫及其他高管们的时代已经结束了。他们必须辞职，必须让位于更具人权意识的新一代。必须打破国际奥委会和国际足联的无上权威，因为他们的种种行为都说明，他们没有责任感，一切都以金钱至上。”
+多少当官的到西藏到新疆叫什么..去干什么呀？
+what’s that called when most of the officials go there? What are they doing there?
 
-由于中共政府在新疆和西藏践踏人权，对香港民主运动进行打压，并不断加强对台湾的武力威胁，目前美国、澳大利亚、英国和加拿大等国已正式宣布，将对北京冬奥会进行”外交抵制”。德国方面则有外交部长贝尔博克以及内政部长费泽尔宣布，她们不会出席北京冬奥会的开幕式。
+叫修炼自己
+That’s called self-cultivate (in the evil way)
 
-尽管一些国家宣布不派遣政府官员出席北京冬奥会开幕式，但国际奥委会主席巴赫仍在重申国际社会对北京冬奥的支持。巴赫还在其新年讲话中强调：”国际社会对冬奥会的支持非常明显，我们对此表示高度欢迎。”此外，巴赫对中共国人权状况保持沉默以及在彭帅事件上的表现，一段时间来引起了广泛的争议。
+专找当地的处女玩，处男玩，（目的是）让自己延长寿命
+They hunt for the local virgins and boys and rape them in order to extend themselves’ life
 
-*参考链接：[人权组织敦促国际奥委会主席巴赫辞职](https://www.dw.com/zh/%E4%BA%BA%E6%9D%83%E7%BB%84%E7%BB%87%E6%95%A6%E4%BF%83%E5%9B%BD%E9%99%85%E5%A5%A5%E5%A7%94%E4%BC%9A%E4%B8%BB%E5%B8%AD%E5%B7%B4%E8%B5%AB%E8%BE%9E%E8%81%8C/a-60315835)*
+那杀了多少人
+How many people have been killed for that
+
+你觉得现在阿富汗每时每刻在直播当中饿死的人
+The Afghanistan people are starve to death every second during our live broadcasts right now
+
+你觉得关键是谁（造成的）？
+Who do you think the key person is (for causing)?
+
+不就是共产党扶持的塔利班吗？
+No doubt, that’s the Taliban who supported by the CCP
+
+将近5000万人呢
+Nearly 50 million people
+
+2300到2500万人没饭
+23-25 million people have no food
+
+此时此刻5000万人98%的没饭吃
+At this moment, 98% of this 50 million people have no food
+
+就是（因为）共产党一念之差要给美国人要制造动乱
+because of a wrong decision that the CCP made which was creating turmoil for Americans
 
 * * *
 
-*素材采编：幽蘭自得*
+Date: 12/29/2021
+原视频标题: 中共官员在新疆西藏玩奸小孩延长寿命扶持塔利班饿死百姓
+The CCP officials rape Tibetan children in Xinjiang to prolong their lives and support the Taliban to starve people to death
+原视频日期：2021/12/29
+原视频链接: [**https://gettr.com/post/pl2zeh7633**](https://gettr.com/post/pl2zeh7633)
+任务编号：3373
+视频时间段 : 0:00-00:56
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：文顺*
-
-*发布：miumiu*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

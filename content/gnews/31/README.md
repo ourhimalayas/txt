@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|中国人只有在自己国家站起来，才能在世界上被尊重
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820385/)
+## 人寿保险公司 CEO 称 18-64 岁人群的死亡率上升了 40%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1820697/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-我是听到共产党建国以来，残害了近一亿中国人，让我醒悟的。这次听了郭先生的直播，还是让我非常震撼，直击心灵。
+翻译报道：Elli
+![](https://assets.gnews.org/wp-content/uploads/2022/01/829a0081-edited.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
+美国人寿保险公司OneAmerica市值1000 亿美元，这家保险公司自 1877 年开始运营，拥有大约 2400 名员工。
 
-追根溯源，中国人没有顾忌的吃法，最主要还是当时饿死人最多的二广地区、四川、河南……当人在极度饥饿，濒临死亡的时候，是没有人性可言的。中国人的撒谎、不诚实，是中国共产党的一贯作风，在这样的环境中，中国人很难不随波逐流。在这样的体制下的中国人，能有什么尊严可言？！
+上周，也就是2021年12月底，其CEO戴维森在一次在线新闻发布会上说“我们现在看到了人寿保险业务历史上最高的死亡率——而且不仅仅是在 OneAmerica出现。2021年第三季度持续到第四季度数据显示，人口死亡率比新冠大流行前上升了 40%。为了让大家可以有参照物，以往 200 年难得一遇的大灾难也仅仅只造成整体人口10%的死亡率的上升。这将直接导致One Aemrica 人寿保险业务额外1 亿美元成本，这项成本会转嫁给雇主购买团体人寿保险单。”
 
-我认为“富贵思淫欲”的另一种解释是，在人有了一定的经济基础，生活富足，没有生活压力，有更多时间的时候，才会有精神上的升华，对生活品质有更高的追求。
+同一新闻发布会上，印第安纳州医院协会主席布赖恩·塔博尔说：“全州的医院都充斥着“病情各异”的患者。”他没有详细说明背后原因，到底是何种疾病 。但他表示，戴维森引用的极高死亡率与该州医院的情况相符。
 
-美国等西方国家就达到了这样的水平。
+印第安纳州首席医疗官林赛·韦弗 (Lindsay Weaver) 博士表示，现在印第安纳州的住院人数比一年前推出 Covid-19 疫苗之前要高，实际上比过去五年中的任何时候都多。
 
-只有推翻中共这个邪恶的统治，中国人才不会被奴役。中国人只有在自己的国家站起来，才能在世界上被尊重！
+2021年5月份Zerohedge记者曾经问询人寿保险业务人员，是否在承保过程因为covid新冠疫情有所变化？当时回复是 covid刚刚升温时，保险公司暂时收紧了承保并减少承保范围。但随着时间的流逝，保险公司又完全恢复照常营业了。
 
-期待早日灭共，当新中国联邦的旗帜在中华大地飘扬的时候，中国人在自己的国家，一人一票选出自己的政府。
+**评：**
 
-当中国人真正做到自己当家作主的时候，我相信会有一天，我们新中国联邦人，无论走到世界任何地方，都会骄傲的说—我是新中国联邦人！
+对比保险公司从2021年5月-12月，Covid作为几十年来最致命的流行病降临全球，夺走了数百万无辜的生命，人寿保险公司5月竟然毫不在乎，保费也没有升高。注意人口整体死亡率数据在新冠大流行后没有明显变化，反而是在大规模covid 新冠疫苗接种半年以后不同寻常的上升40%。那么按照正常逻辑，covid疫苗是造成40%死亡率上升的唯一原因。Covid 疫苗灾难不过刚刚显露冰山一角，全球人寿保险公司在人口死亡率继续上升情况下会不会陆续破产？作为金融基石的保险业破产后，给整个社会带来的震动无法想象。这是不是也是为何这篇文章在英国竟然被屏蔽呢？
 
-文字版原文：[中国人只有在自己国家站起来，才能在世界上被尊重](https://gnews.org/zh-hans/1817079/)
+参考资料：
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+[ZeroHedge: Life Insurance CEO Says Deaths Up 40% Among Those Aged 18-64](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+[ZeroHedge: Life Insurance & COVID-19; Something Doesn’t Make Sense](https://www.zerohedge.com/covid-19/life-insurance-covid-19-something-doesnt-make-sense)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[2022-01-03晚 GTV新闻访谈](https://gtv.org/video/id=61d3a29831a71619b5744168)
+
+校对发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,46 @@
 ---
 
 
-## 五千万的阿富汗人被30万塔利班蹂躏唯有自救绝无他法
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1820843/)
+## 中国外交部表示：将继续推进核武库“现代化”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820913/)
 
-**郭文贵先生**：阿富汗将近从过去的1000多万到2000万人口，到最后美国在那块儿驻军，每年花了几千亿进去，是吧？到变成了将近5000万人口，人口的增长。塔利班才多少人？号称所谓80万大军，实际上就30几万人。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-一个5000万人的国家被30万人给蹂躏着，要饿死一半人。就像我们中国人，14亿人被所谓的3000多个人民代表和中央政治局，被七个常委，就给全国人民“宇宙无限大、地球是一粒沙“全给强奸了。一睡就睡了70年，同样的悲哀的结果。凭啥美国人要让你，为阿富汗强大我拿钱？美国再在阿富汗呆下去，你知道什么结果？你觉得会有什么结果？从这个道德上讲，绝对是不对的，从任何角度讲，阿富汗撤出，美国撤出是符合美国利益的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国核武库.jpg)
 
-更重要的事情，美国除了经济问题、除了战略问题，美国是真的是，再往下弄下去，美国知道在阿富汗这个地方，美国会深陷其中。而且美国是，绝对是就是20年的计划，就是要对付要把伊朗中国共产党这个彻底改掉，把整个中东的整个局势彻底改变。它没有那么多精力和金钱，不可能的。美国这已经搞了30年，就准备好打赢，绝对打赢一场战争。准备同时打两场战争，在阿富汗，你就同时在一场战争中，你怎么可能？
 
-你5000万的阿富汗人干不掉30万的这个小破——加一起不过10万人的那些所谓人，都不会打的，吃都能把它吃了，甭说打了。
+ 
+图片来源：路透社
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-编辑整理：Jacques；
+#### 编译：小红帽
 
-字幕文件制作：小满；
+根据《马尼拉时报》1月4日报道，中国政府周二表示，**将继续使其核武库 “现代化”，并在全球大国承诺防止此类武器扩散的第二天，呼吁美国和俄罗斯削减其库存。**
 
-视频制作及上传：Cindy；
+在一份罕见的联合声明中，美国、中国、俄罗斯、英国和法国抛开不断加剧的东西方紧张局势，重申要建立一个没有原子武器的世界和避免核冲突的目标。
 
-G-News发布：小满；
+这五个核大国还承诺在未来全面解除原子武器。这些武器只在第二次世界大战结束时美国对日本的轰炸中被使用过。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+但是，在这些全球大国之间的紧张局势加剧的时候，将这种言辞与现实对调并不容易。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+全球对中国政府军事现代化的担忧日益加剧，特别是在中国武装部队去年宣布他们已经开发了一种超高音速导弹后，其飞行速度是声音传播的五倍。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+美国还表示，中国政府正在扩大其核武库，到2027年将有多达700枚弹头，到2030年可能达到1000枚。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+周二，中国政府为其核武器政策辩护，并表示俄罗斯和美国，作为迄今为止世界上最大的核大国，应该采取裁军行动。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+中国外交部军控司司长傅聪对记者表示：“中国一贯奉行不首先使用的政策，我们将核能力维持在国家安全所需的最低水平。为了可靠性和安全问题，中国将继续对其核武库进行现代化改造。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻来源： [China will continue to ‘modernize’ nuclear arsenal – foreign ministry | The Manila Times](https://www.manilatimes.net/2022/01/04/news/china-will-continue-to-modernize-nuclear-arsenal-foreign-ministry/1828136)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***发布：小红帽***
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

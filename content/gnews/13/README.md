@@ -2,36 +2,22 @@
 ---
 
 
-## 美国议员反对接种疫苗 遭推特永久封锁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1820828/)
+## 川普称推特和脸书是美国的耻辱，并敦促美国人放弃它们
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820906/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8B32409B-1B41-493A-86A7-454FBC29102F.jpeg)（图片来源：路透社）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-8.jpg)图片来源：商业内幕
+据《真正美国之声》（Real America’s Voice）1月4日报道，前美国总统川普1月3日晚上称，推特和脸书对保守派声音的持续审查是“我们国家的耻辱”，并恳请美国人放弃这些平台。
 
-1月1日，美国议员葛林（Marjorie Taylor Greene）在推特上发文表示美国有很多人因接种疫苗而死亡，随后其推特账号被永久封锁。
+在川普发表此声明之前的24小时里，推特永久冻结了共和党众议员马乔丽·泰勒·格林(Marjorie Taylor Greene)的账户，脸书暂时暂停其账户24小时，原因是格林议员发布的有关新冠病毒的信息违法了平台政策。
 
-据《自由时报》报导，美国乔治亚州众议员葛林于1月1日在大型社交媒体平台推特上发文表示，美国有非常多的人因接种疫苗而死亡。隔日，推特便宣布永久封锁该议员的个人账号，其账号有465000人关注。
+川普对此评论说：“推特是民主的耻辱，他们不应被允许在这个国家做生意。马乔丽·泰勒·格林有一个由诚实、爱国和努力工作的人组成的庞大选区，他们不应该被推特和脸书等低级别平台这样对待！每个人都应该放弃推特和脸书！它们很无趣，只有激进左派的观点，而且被所有人厌恶。继续战斗下去，马乔丽！”
 
-该报导指出，葛林曾4次在推特上发文表示疫苗政策是失败的，呼吁监管机构停止批准新疫苗，都遭到推特禁言。
+川普不久前推出了自己的社交媒体平台Truth Social。该平台将于今年晚些时候亮相，并承诺成为一个没有审查制度的论坛。
 
-对此，葛林在另一社交媒体上批评推特掩盖真相，是美国的敌人。她坚信，大型社交媒体平台无法阻止真相的广泛传播，共产主义无法掩盖真相。
-
-事实上，美国哥伦比亚大学的研究人员日前发现，美国至少有 40 万人死于接种疫苗，远超美国CDC官方公布的数据。
-
-*参考链接：*
-
-1. [*https://news.ltn.com.tw/news/world/breakingnews/3788084*](https://news.ltn.com.tw/news/world/breakingnews/3788084)
-2. [*https://gnews.org/zh-hans/1801028/*](https://gnews.org/zh-hans/1801028/)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：文顺*
-
-*发布：miumiu*
+新闻来源：[Trump calls Twitter, Facebook ‘disgrace to our Nation,’ urges Americans to abandon platforms](https://americasvoice.news/justthenews/trump-calls-twitter-facebook-disgrace-our-nation-urges-americans/)
 
  
 
