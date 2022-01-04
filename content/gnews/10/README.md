@@ -2,34 +2,39 @@
 ---
 
 
-## 美国民众强烈质疑批评扩大中共病毒疫苗加强针接种范围
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820209/)
+## 任凭奥斯汀防长“全副武装”，依然感染奥密克戎
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820220/)
 
-#### 撰稿：彩虹
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-26.jpg)图片来源：Snopes
+整理报道：文泓
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-3.jpg)图片来源：新唐人
-1月3日，《新闻极限》分别发表了两篇文章，报道美国正在扩大中共病毒（COVID-19）加强针的接种范围，FDA（食品和药物管理局）允许为年仅12岁的儿童注射中共病毒辉瑞疫苗加强针，批评者抨击FDA在未经FDA咨询小组批准的情况下擅自作出了该决定。
+当地时间1月3日，据《国际文档》报道，拜登政府的国防部长劳埃德·奥斯汀尽管已接受了三次疫苗接种，但还是感染了有症状的冠状病毒。
 
-周一，FDA决定，一旦12至15岁的儿童在最后一次注射（中共病毒疫苗）并经过足够的时间后，就应该为其注射中共病毒疫苗加强针。
+看来，遵循各项防护措施——口罩、面罩和第三次加强针疫苗，并不足以防止拜登政府国防部长劳埃德·奥斯汀中招。
 
-FDA还表示，所有12岁及以上的人都有资格接种中共病毒疫苗加强针，最早可以在最后一针后的5个月内接受加强针，而不是6个月。
+“今天早上，我的新冠病毒检测结果呈阳性”，奥斯汀在周日晚些时候的一份声明中说：“休假期间，在家时表现出症状后，我今天要求进行测试。我的症状很轻微，而且我正在遵循我的医生的指示。”
 
-随着假期后重新开始上课，这还不是最后一步。CDC（美国疾病控制和预防中心）必须决定是否建议为年龄较小的青少年接种中共病毒疫苗加强针。预计CDC主任罗切尔·瓦伦斯基（Rochelle Walensky）将于本周晚些时候做出裁决。
+他说：“为了遵守这些指示，并根据疾病预防控制中心的指导方针，我将在未来五天内在家里进行隔离。”
 
-对此，周六时，约翰霍普金斯大学胰岛移植中心主任、福克斯新闻撰稿人马蒂·马卡里博士（Marty Makary）发推文说：“FDA 绕过专家咨询委员会的标准召集咨询程序，这是对科学的一记耳光……。FDA正在悄悄地做这件事，因为之前的专家投票否决了这个（决定），并且对产生的医疗危害表达担忧。”
+奥斯汀已经完全接种新冠疫苗，并在去年10月份接受了一次加强针接种。
 
-根据《纽约时报》的报道，FDA咨询委员会成员之一，费城儿童医院疫苗教育中心主任保罗·奥菲特（Paul Offit）博士上周说：“我们是被要求批准为16岁及以上人群接种第三剂疫苗。（但）我们没有任何证据表明，与老年人相比，年轻人接种第三剂（加强针）疫苗是否有价值”。
+“我与拜登总统的最后一次会面发生在12月21日星期二，这是在我开始出现症状的一个多星期前”，奥斯汀说：“就在那天早上，我的检测结果为阴性。自星期四以来，我没有去过五角大楼，在那里我简短地——而且只是–与我的几个工作人员会面。我们自始至终都戴着适当的口罩，并保持社交距离。”
 
-对于FDA代理局长詹妮特·伍德科克（Janet Woodcock）在声明中辩称说，在目前由中共病毒变体奥米炕（Omicron）引起的感染病例激增期间，为公众采取“有效的、拯救生命的预防措施”，包括疫苗加强针注射，是至关重要的。
+奥斯汀防长规定所有军人必须接种新冠疫苗，去年他因在出访菲律宾时戴上口罩和面罩作为防护措施而受到广泛嘲笑。当时，奥斯汀进行外交访问期间，在菲律宾大马尼拉奎松市的阿吉纳尔多营军营观看军队仪仗队。
 
-对此，马卡里博士称这一决定“不合情理”，认为它“破坏了FDA标准程序的完整性！请要求FDA将这一授权提交给疫苗与相关生物制品咨询委员会（VRBPAC）进行表决！”
+**因为与未接种疫苗的人相比，这次新发现的奥密克戎变种病毒似乎压倒性地感染了接种疫苗的人，这一点在德国、丹麦和美国都可以看到。**
 
-**新闻来源**
+新闻链接：[Def Sec Austin Infected With COVID Despite Triple Vax Injections, Face Mask, Shield Use – National File](https://nationalfile.com/def-sec-austin-infected-covid-despite-triple-vax-injections-face-mask-shield-use/?utm_source=Email&amp;utm_medium=newsletter-NF&amp;utm_campaign=dailyam&amp;utm_content=national-file)
 
-[FDA Approves Pfizer Boosters for Children Ages 12 to 15](https://www.newsmax.com/newsfront/covid-boosters-fda-pfizer/2022/01/03/id/1050782/)
+发布：去中心化Math
 
-[Critics Slam FDA Approval of Booster Shots for 12- to 15-Year-Olds](https://www.newsmax.com/newsfront/fda-advisory-panel-emergency-use-authorization/2022/01/03/id/1050850/)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
