@@ -2,27 +2,28 @@
 ---
 
 
-## 以色列开始60岁以上老人的第四轮疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1822191/)
+## GTV新闻访谈简报|2022年1月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822250/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.png)
-（图片源自本文链接）
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
 
-朝日新闻1月4日消息：奥密克戎菌株感染激增的以色列境内，已开始60岁以上老人的第四轮疫苗接种。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-因为奥密克戎毒株的传播造成以色列的感染者人数正在迅速增加。2日以色列政府决定对60岁以上老人实施第四剂中共病毒(新冠病毒)疫苗接种。3日，政府开始呼吁60岁以上的老人接种第四剂中共病毒疫苗。同日，政府还宣布，来自感染风险高的国家的入境者以外的，已接种疫苗的外国人将被允许在9日之后入境。
+视频参看：[2022.01.04早GTV新闻访谈](https://gtv.org/video/id=61d44ba331a71619b5749bca)
 
-贝内特总理3日晚说：约有10万人已经接受，或已经预约了第四剂中共病毒疫苗接种。疫苗将保护我们免受中共病毒重症和隔离之苦。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
 
-[オミクロン株急増のイスラエル、60歳以上の4回目接種開始（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/83aef35896d283dd6d5a38a32db61a5daf533c13)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

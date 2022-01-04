@@ -2,38 +2,36 @@
 ---
 
 
-## 银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1822294/)
+## 受疫情影响英国面临严重员工短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822402/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-29.png)[图片来源](https://jp.sputniknews.com/)
-**1.****日本新增510人确认感染中共病毒（新冠病毒covid-19）**
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据英国《独立报》1月3日报道，由于中共病毒感染继续导致员工短缺，英国各地的垃圾箱收集已被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8.jpg)
+因中共病毒自我隔离导致员工人数减少，曼彻斯特、埃塞克斯、萨默塞特和白金汉郡的地方当局宣布减少服务或完全暂停废物收集。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-1-1.jpg)
+最近几周，由于奥米克戎变种病毒疫情的爆发，“中共病毒”确诊病例不断上升，数个行业普遍存在工人缺勤，促使政府警告公共部门领导人要为多达四分之一的员工无法工作做好准备。
 
-[据NHK 12月31日报道，日本的确诊病例总数为1,733,544人，包括机场的检疫人员，以及邮轮上的712名乘客和船员，总数为1,734,256。共有18,405人死亡，包括日本的18,392名确诊病例和13名游船乘客。此外，有5546人（72人）在机场和其他检疫机构被确认感染，还有173人被感染，包括乘坐包机从中共国返回的人和政府雇员及检疫人员。](https://www3.nhk.or.jp/news/html/20211231/k10013411041000.html)
+在中共病毒感染率高升的情况下，中学被告知在返回上课之前，要对所有学生进行现场新冠病毒检测。教育部长表示，如果教师短缺，也允许学校将学生留在家里进行在线教学。
 
-**2.****横须贺美军基地75人感染**
+英国卫生安全局表示，截至1月2日上午9点，英格兰和威尔士记录了137,583例新冠确诊病例。
 
-[据NHK 12月31日报道，据美国海军横须贺基地称，自本月23日以来，已有75名军事人员被证实感染了中共病毒（新冠病毒covid-19），并全部在该基地进行了隔离。 目前还不清楚是否有病人感染了Omicron毒株。神奈川县知事敦促外交部长和国防部长对感染者实施隔离，限制他们离开基地，并尽量减少美军人员从国外入境以及在日本各基地之间的流动。](https://www3.nhk.or.jp/news/html/20211231/k10013411071000.html)
+参考链接：[Bin collections cancelled as Covid infections cause staff shortages](https://www.independent.co.uk/news/uk/home-news/bin-collections-staff-shortages-covid-b1985770.html?utm_source=ground.news&amp;utm_medium=referral)
 
-**3.****国防计划大纲修订以便在安全形势发生急剧变化时具有灵活性**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-[据产经新闻12月31日报道，国防部已开始研究修订《国防计划大纲》的可能性，该大纲大约每10年修订一次。 政府还将审查《中期国防力量发展计划》，该计划规定了每五年的设备采购计划。 这是因为在战略环境迅速变化的情况下，有必要灵活地修订《国防计划大纲》和中期防务计划。 政府计划在明年年底前修订这三份战略文件，包括《国家安全战略》（NSS），而包括框架在内的基本审查将在今年年初正式开始。](https://news.yahoo.co.jp/articles/3bd6f317792a107ab265035b154668a36bb0b289)
+总编：文特
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-**4.****世界上第一颗环保型 “木质 “卫星将于2023年发射**
-
-[据共同社 12月31日报道，京都大学和住友林业正在计划于2023年发射世界上第一颗 “木制 “卫星。 卫星运行后将在大气层中燃烧，因此对环境的影响很低。 第一次测试将在2月进行，通过将木材暴露在空间中来检查其耐久性。 卫星的外部将用木材和太阳能电池覆盖，内部将包含电子板和其他部件。](https://news.yahoo.co.jp/articles/7c1aae6e88c8282a0674c391df71c8c1ed0e3f02)
-
-**5.****日本新增成人120万，为历史最低**
-
-[据NHK 12月31日报道，将于元旦年满20岁的新成年人数量为120万占日本总人口的0.96%，是总务省自1968年开始进行估算以来的最低数字，也是连续第12年低于日本总人口的1%。其中包括61万名男性和59万名女性。总务省表示，除了因出生率下降导致年轻人数量减少外，来自国外的留学生和技术实习生的数量也中共病毒（新冠病毒covid-19）而减少。](https://www3.nhk.or.jp/news/html/20211231/k10013410621000.html?utm_int=news-politics_contents_list-items_001)
-
-**6.****俄罗斯总统在新年贺词中热切希望与岸田接触**
-
-[据时事通讯社 12月30日报道，俄罗斯总统向各国家元首发出新年贺词，并向岸田文雄首相表示，”俄罗斯和日本之间建设性的合作发展符合两国人民的利益，有助于建立该地区的安全和稳定”，并表示希望进一步接触。 俄罗斯总统办公室于3月30日宣布了这一消息。](https://www.jiji.com/jc/article?k=2021123000699&amp;g=pol)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,22 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822355/)
+## 布林肯与北约九国外长通话 再度重申支持立陶宛
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1822416/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](https://gnews.org/zh-hans/1822281/)
+撰稿—八木
+校对/上传—无明逆流
 
-印第安纳州医院协会主席Brian Tabor (布赖恩·塔博尔) 也印证了Scott Davison的说法。
+美国国务卿布林肯3日与北约九国外长通话提及中共与立陶宛关系时表示北约国家将与立陶宛团结一致。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsAp42.43.24-AM.jpeg)图片资料：布林肯
+美国国务卿布林肯周一（1月3日）与保加利亚、捷克、爱沙尼亚、匈牙利、拉脱维亚、波兰、罗马尼亚、斯洛伐克及立陶宛，九个北约成员国外长进行通话，通话中讨论了乌克兰局势和立陶宛相关议题。美国国务院发言人表示，北约必须做好准备，采取团结一致的坚决立场，集体防御盟国，并在共同关切的议题上，进行跨大西洋合作。
+在中共议题上，国务卿布林肯和各国外长强调，面对中共对立陶宛多次施加政治与经济胁迫，美国及北约成员国将与立陶宛团结一致。
 
-事实上，印第安纳州还是目前美国疫苗接种率最低的州。
+布林肯与北约九国外长通话中提及中共的言论，再度遭到中共外交部发言人的抨击。1月4日中共外交部例行记者会上，汪文斌借“中国记者”的发问回应了美国国务卿布林肯的最新讲话。汪文斌称，“美方一再为立陶宛一中一台的错误言行辩解帮腔，试图拉拢纵容‘台独’势力小圈子，此举丝毫动摇不了中方维护国家主权和领土完整的坚定决心。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/state-Vaccine-1.jpg)
+汪文斌还要求美国恪守中共的一个中国政策和中美三个联合公报规定。希望“各国”明辨是非，不要被美国裹挟蒙蔽。
 
-根据[USAFacts.org 的数据](https://usafacts.org/visualizations/covid-vaccine-tracker-states/)显示，该州仅57%的人口至少接种了一剂疫苗，52%的人口“完全接种了疫苗”，远远低于美国疫苗接种率全国平均水平（74%的人口至少接种了一剂，63% 的人口已完全接种疫苗）。这表明，在其他州的人寿保险索赔中，推出COVID-19疫苗后的死亡人数可能会更高。Scott Davison在本周的在线新闻发布会上就说：“我们现在看到了这项业务历史上最高的死亡率——不仅仅是在 OneAmerica，该业务的每个参与者的数据都是一致的，40%是闻所未闻的”。
-
-根据VAERS（疫苗不良事件报告系统）查询结果，过去一年，接种COVID-19疫苗后报告的劳动力年龄死亡百分比远高于过去31年所有疫苗每年报告的平均死亡人数。
-
-过去的一年，VAERS报告了3,294名18至65岁的人在注射COVID-19后死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/between-the-ages-of-18-and-65-for-one-year.jpg)
-在接种COVID-19之前的前31年中，VAERS报告的劳动力年龄组中总共只有851人在接种疫苗后死亡，平均每年仅有27人死亡。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots-1.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots.jpg)
-
-接种疫苗后报告的死亡人数实际上增加了（3294-27）÷27=121倍！
-
-根据杰西卡罗斯博士的推算，VAERS系统至少漏报了41倍，这意味着大约135,054名劳动年龄的人在去年注射了COVID-19疫苗后死亡。
-
-把这个数字加上现在由于实验性注射Covid-19毒疫苗的副作用而致残的创纪录人数，在COVID-19疫苗注射后看到的创纪录的胎儿死亡人数，以及可能永远无法再次怀孕的女孩和妇女的人数未知的数量相结合时，每一个人都应当认真思考中共发动的这场生化武器战争以及随后的疫苗灾难，对美国经济和劳动力带来的危机，这场全国性的灾难将对现在和未来的劳动力产生重大影响！
-
-新中国联邦人在不遗余力的呐喊，试图唤醒每一个沉睡的人们，珍爱生命，远离Covid-19疫苗！
-
-这是一场生化武器战争！普通民众应当认真对待！
-
-只有消灭共惨党，才能彻底消灭中共病毒！
-
-参考数据：
-
-[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
-
-[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
-
-[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
-
-[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
-
-[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+相关新闻：[汪文斌敦促美方不要为立陶宛错误言行辩解](http://www.news.cn/world/2022-01/04/c_1128231209.htm)
 
  
 

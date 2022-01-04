@@ -2,40 +2,56 @@
 ---
 
 
-## 瑞士完成移交银行客户资料的承诺 最安全的藏钱之地不复存在
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1822289/)
+## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822355/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](https://gnews.org/zh-hans/1822281/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0A689B81-00C2-4D8E-9ABE-832B7811416D.jpeg)（  图片来自《大纪元》）
+印第安纳州医院协会主席Brian Tabor (布赖恩·塔博尔) 也印证了Scott Davison的说法。
 
-据大纪元1月4日报道，瑞士联邦税务管理局在2021年底前基本完成了向上百个国家或地区移交相关离岸客户资料的工作。至此，全球最大离岸金融中心瑞士，放弃了其延续了数百年的银行客户信息保密制度。
+事实上，印第安纳州还是目前美国疫苗接种率最低的州。
 
-瑞士的银行为客户保密制度已有约300年历史，并在1934年正式立法，其《银行法》规定，瑞士的金融机构可以拒绝任何政府对客户账户的调查和监控，除非有确凿证据证明存款人存在犯罪行为，否则账户的信息会受到永久性保护。而且客户还可以选择自己认为最安全的匿名方式来办理业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/state-Vaccine-1.jpg)
 
-同时，瑞士的税率也低于美国及大多数实行高税收高福利政策的欧洲国家。因此吸引了全球数以万计的富豪，在瑞士银行开设秘密账户，把自己的巨额财富和资金转入瑞士。
+根据[USAFacts.org 的数据](https://usafacts.org/visualizations/covid-vaccine-tracker-states/)显示，该州仅57%的人口至少接种了一剂疫苗，52%的人口“完全接种了疫苗”，远远低于美国疫苗接种率全国平均水平（74%的人口至少接种了一剂，63% 的人口已完全接种疫苗）。这表明，在其他州的人寿保险索赔中，推出COVID-19疫苗后的死亡人数可能会更高。Scott Davison在本周的在线新闻发布会上就说：“我们现在看到了这项业务历史上最高的死亡率——不仅仅是在 OneAmerica，该业务的每个参与者的数据都是一致的，40%是闻所未闻的”。
 
-有利既有弊，此规定也使各国富豪避税、使洗钱等犯罪活动成为了可能，为恐怖分子及独裁政权的非法资金提供了安全的藏身之地，所以瑞士也一直受到来自美欧等国的压力。
+根据VAERS（疫苗不良事件报告系统）查询结果，过去一年，接种COVID-19疫苗后报告的劳动力年龄死亡百分比远高于过去31年所有疫苗每年报告的平均死亡人数。
 
-2008年金融风暴后的美国，就瑞士银行（UBS，瑞银）的税务欺诈调查事件向瑞士施压，并指控瑞银隐瞒了持有该行秘密账户的52,000名美国人数以十亿美元的未缴税资产。最终，瑞士政府不但同意支付7.8亿美元罚金，还允许瑞银提交约280位美国严重避税者名单，瑞银也承诺在一年内提供4450名美国客户的资料。
+过去的一年，VAERS报告了3,294名18至65岁的人在注射COVID-19后死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/between-the-ages-of-18-and-65-for-one-year.jpg)
+在接种COVID-19之前的前31年中，VAERS报告的劳动力年龄组中总共只有851人在接种疫苗后死亡，平均每年仅有27人死亡。
 
-之后，美国在2010年3月通过了追查美国人海外避税的《海外账户税收合规法案》（US Foreign Account Tax Compliance Act，FATCA），要求非美国银行也必须向美国税务当局呈报其美国客户在该银行的资产信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots-1.jpg)
 
-此外，欧盟方面也一直在向瑞士这个非欧盟国家施压，并在2017年12月把瑞士列入一个不合作国家“灰名单”。 直到瑞士当局承诺并开始配合与上百个国家和地区交换其税务数据，才把瑞士从该名单中移除。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots.jpg)
 
-截至2021年10月11日，瑞士联邦税务管理局已向缔约成员国提供了约330万个银行账户的财务信息。
+接种疫苗后报告的死亡人数实际上增加了（3294-27）÷27=121倍！
 
-瑞士就此打破坚持了几个世纪的瑞士银行业保密制度。让全球那些把钱藏入瑞士银行以避税的富豪客户，包括那些恐怖分子、犯罪组织，以及独裁国家官员也包括中共高官，失去了曾经最安全的藏钱之地。
+根据杰西卡罗斯博士的推算，VAERS系统至少漏报了41倍，这意味着大约135,054名劳动年龄的人在去年注射了COVID-19疫苗后死亡。
 
-*参考链接：[瑞士完成移交银行客户资料 藏钱天堂不再](https://www.epochtimes.com/gb/22/1/4/n13480256.htm)*
+把这个数字加上现在由于实验性注射Covid-19毒疫苗的副作用而致残的创纪录人数，在COVID-19疫苗注射后看到的创纪录的胎儿死亡人数，以及可能永远无法再次怀孕的女孩和妇女的人数未知的数量相结合时，每一个人都应当认真思考中共发动的这场生化武器战争以及随后的疫苗灾难，对美国经济和劳动力带来的危机，这场全国性的灾难将对现在和未来的劳动力产生重大影响！
 
-* * *
+新中国联邦人在不遗余力的呐喊，试图唤醒每一个沉睡的人们，珍爱生命，远离Covid-19疫苗！
 
-*素材采编：子辰*
+这是一场生化武器战争！普通民众应当认真对待！
 
-*编辑：文顺*
+只有消灭共惨党，才能彻底消灭中共病毒！
 
-*发布：miumiu*
+参考数据：
+
+[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
+
+[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
+
+[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
+
+[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
+
+[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
