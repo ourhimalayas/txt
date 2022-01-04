@@ -2,52 +2,25 @@
 ---
 
 
-## 2022年伊始恒大再次在港股停牌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820395/)
+## 港媒众新闻熄灯
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1820486/)
 
-作者：日本方舟农场 – Andy5
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2022/01/402.jpg)图片制作：澳喜农场©森森
+继香港苹果日报、立场新闻之后，又一媒体众新闻1月4日起停止运营。
 
+众新闻1月2日在有30多万人点赞的Facebook粉丝专页上表示，“我们，怀着沉重和百般不舍的心情宣布，众新闻将于2022年1月4日起，停止运营，网站不再更新，一段时间后将会关闭”。
 
+两年前香港国安法推行后，香港人连续数月上百万人上街抗议游行，但最终还是被CCP的黑帮血腥镇压下去了。从那时起香港已经变成了臭港、死港，香港的世界金融要地也就跟着消失了，民主法治更是烟消云散了。新闻媒体在言论自由的前提下报道事实真相，在CCP治下当然是不可以的。CCP治下的每天由党来垄断，一切要为党服务，要成为党的喉舌，替党说好话，为党点赞，至于什么真相、事实，那都不符合党的要求。媒体只能报道党希望你报道的，只能说党希望听到的话，这样才能统一思想，步调一致，让广大人民紧紧团结在党中央周围。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+由此可见，关掉几个敢说真话的媒体，对于CCP来说，那是再正常不过了，CCP是无法无天，想抓谁就抓谁，想让谁死谁就立刻得死，在大陆的老百姓任由CCP随意宰杀七十年了，早就习以为常，不是什么新闻。香港过了100年的法治社会，突然来了个CCP流氓团伙指手画脚，甚至动手抓人打人。起初有点不适应，慢慢所有那些有点正义感的媒体或个人就被抓、被关、被消失从而无影无踪了。有的要么出逃香港，要么沉寂下来不敢发声，而替代这些声音的将是一大批港奸，甘愿做CCP走狗的人。
 
+香港的灾难正在进行，只要CCP还在一天，灾难就不会停，只有跟随爆料革命，灭掉CCP，香港才能重回昔日之光！
 
+参考链接：[联合新闻网](https://udn.com/news/story/7331/6005388?from=udn-catebreaknews_ch2)
 
-当地时间1月3日一早，港股开盘时，恒大突然再次宣布暂时停牌。目前恒大还没有对此次停牌做出说明。
-
-恒大曾于2021年9月16日和10月4日分别两次停牌，也正是其股债遭双杀以及信用崩塌的时期。当时，国际评级机构惠誉对恒大的评级从CCC+下调至CC，而穆迪将恒大及其子公司的企业家族评级也调至垃圾等级的Ca。最新消息表明，恒大再次停牌与早前恒大被海南省勒令自行拆除建筑物有关。
-
-分析人士指出，此次停牌，意味着恒大再一次面临债务危机，而2-3月的债务集中到期，将进一步加剧恒大的债务爆雷。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.jpg)
-参考链接：
-1. [财联社1月3日电，中国恒大在香港交易所暂时停牌。](https://www.cls.cn/detail/907230)
-2. [雪上加霜！恒大39栋楼突被限期10天拆除，77亿没了？许家印刚发新年致辞：把保交楼进行到底](https://www.163.com/money/article/GSNJQHLA00259DLP.html?clickfrom=w_money)
-3. [中国恒大、恒大物业在港交所暂停交易](https://www.163.com/money/article/GLF17HSJ00258152.html)
-4. [恒大地产集团：9月16日所有存续的公司债券停牌1个交易日](https://www.163.com/money/article/GK0NI32P00258105.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文真
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

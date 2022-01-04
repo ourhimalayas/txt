@@ -2,37 +2,60 @@
 ---
 
 
-## 澳大利亚的核潜艇交易是应对来自中共国的威胁
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820520/)
+## 加拿大联邦开始在魁北克省部署武装部队
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1820644/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-182.png)
-图片来自网络
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-185-edited.png)图片来源：蒙特利尔日报存档照片
+**加拿大联邦开始在魁北克省部署武装部队军人和士兵**
 
-台湾安全部的高级代表王定宇表示，来自中共国内部的信息显示，澳洲从美国和英国购买核动力潜艇的交易在北京引发了 “非常大的震动”。北京亦将堪培拉与美国和英国的AUKUS安全伙伴关系视为对其区域议程的 “重大威胁”。
+蒙特利尔日报（QMI AGENCY，2022 年 1 月 3 日，星期一，下午 4:44）发表题为《军队为魁北克省的疫苗接种活动伸出援手》的文章报道，从周一（2022 年 1 月 3 日）加拿大联邦开始在魁北克省部署武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模和快速地进行。
 
-几周前，中国领导人将反对核动力潜艇协议作为向东南亚领导人发表的重要讲话的中心内容。
+这是（加拿大联邦）公共安全和应急准备部长比尔布莱尔Bill Blair早上在推特上宣布的。
 
-中共国外交部用种族术语攻击AUKUS安全协议，称其为 “盎格鲁-撒克逊集团”。北京的宣传机器说澳洲是受 “白人至上 “的驱使。
+“在‘魁北克省的联邦援助请求’获得批准后，将于今天开始部署武装部队军人和士兵，以支持该省的疫苗接种活动，”他周一在推特上这样写道。
 
-虽然澳洲的核动力潜艇运行还有十多年的时间，但它们将增加美国和日本现有的舰队和台湾的新船，因为堪培拉、东京和其他盟国在台湾海峡的安全局势上与华盛顿进行更密切的协调。
+部长补充说：“我们的官员将继续评估可以使用哪些其他联邦资源来帮助该省抗击 COVID-19。”
 
-另外，日本首相岸田文雄将在本周访问澳洲，期间将与总理莫里森讨论北京对台湾的威胁，和其对东海和南海的入侵。
+**加拿大第二战区和联合特遣部队（东部战区）**
 
-澳洲与合作伙伴的协调、外国干预立法的通过以及国防开支的增加，都表明堪培拉了解北京带来的挑战。
+加拿大第二战区和联合特遣部队（东部战区）公共事务官员， 丹尼尔·亚历杭德罗·皮内达·雷维洛Daniel Alejandro Pineda Revelo 中尉，通过电子邮件表示，军方目前正在进行需求评估，以确定具体需求并部署适当数量的军人和士兵。
 
-王先生告诉《澳大利亚人报》，日本和其他伙伴的合作增加是历史性的，合作发出了明确的信号，即盟国将把中共国挡在第一岛链内，并将其扼杀在近海之内。
+从周二开始，向军队士兵提供“战前”培训。
 
-澳洲政府在与印度洋-太平洋及其他地区的国家进行协调以试图阻止来自北京的侵略方面发挥了越来越积极的作用。
+中尉指出：“经过最近几天的计划和讨论，已经制定了几个涉及不同地区的沙盘排练和‘战斗方案’。应魁北克省的要求并根据他们提出的优先等级安排，我们目前正专注于蒙特利尔地区。”
 
-消息来源：
+**一部分****“****作战****”****任务**
 
-[Australia’s nuclear submarine deal sets off ‘very big alarm’ in China, Taiwan security says](https://www.theaustralian.com.au/nation/australias-nuclear-submarine-deal-sets-off-very-big-alarm-in-china-taiwan-security-says/news-story/702307efb90c102dc9e46ee25a119041)
+一部分“作战”任务是在指定的疫苗接种中心接待前来接种疫苗的人员，以及做清洁和消毒工作。
 
-[Why Australia’s submarine deal with the US and UK has set off ‘a very big alarm’ in China](https://www.dailymail.co.uk/news/article-10365857/AUKUS-Australias-submarine-deal-UK-set-big-alarm-China.html)
+渥太华积极响应魁北克省的呼吁，帮助其应对 Omicron 变种在该省的传播。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+魁北克省公安厅长，吉纳维夫·吉尔博尔 (Geneviève Guilbeault)，在致联邦政府的一封信中提到，疫情（COVID-19）形势“变得危急”。
+
+**魁北克省周一宣布了**** 15,293 ****例新病例。**
+
+日前，蒙特利尔日报（纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE ，2021 年 12 月 31 日，星期五）发表题为《魁北克省正在采取更严厉措施：以下是将于今天下午 5 点生效的新措施》的文章报道，宵禁令从周五晚上开始（2021 年 12 月 31 日，星期五）生效。2021年初，弗朗索瓦•勒戈(François Legault)政府制定了晚上8点至凌晨5点的宵禁，也被称作“休克疗法”，以便控制第二波疫情。这次宵禁令的出台是魁北克省政府一年内第二次实施宵禁。
+
+另外，魁北克弗朗索瓦·勒戈François Legault 政府内阁成员曾一致认为那些未接种疫苗的人给魁北克医疗健康保健系统带来不必要的压力。正如，魁北克杂志2021 年 12 月 29 日（多米尼克 Lelièvre ）发表题为《杜贝Dubé 警告未接种疫苗的人》的文章报道，周一（2021 年 12 月 27日），在全省的COVID-19 病房中，未接种疫苗的人占新住院人数的 52% 和重症监护病房人数的 75%，尽管未接种疫苗的人仅占总人口的 19%。另外，魁北克省卫生部长克里斯蒂安·杜贝 Christian Dubé 在本周二（2021 年 12 月 28 日）的新闻发布会上说：“我告诉你们这些未接种疫苗的人，要么你们接种疫苗，要么你们会感染疾病”；“当你们因为没有接种疫苗而感染疾病时，你们会给我们的医疗健康保健系统带来不必要的压力”；“即使你们（染病后，幸运地）活了下来，你们也会带有严重的后遗症，并且这个严重的后遗症会持续在你们的一生中”。
+
+**魁北克省政府自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们**
+
+文章编译及评论人提醒读者，魁北克省政府自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。在针对未接种疫苗的人群而采取的不得已的措施——宵禁令，出台后，魁北克省政府开始请求联邦援助，部署加拿大武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模和快速地进行。
+
+魁北克省政府还会针对未接种疫苗的人群采取更多的其它措施。病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。
+
+每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
+
+**参考资料**：
+
+1. 蒙特利尔日报，QMI AGENCY，2022 年 1 月 3 日，星期一，下午 4:44，[Le Journal De Montreal，L’armée prête main-forte pour la campagne de vaccination au Québec](https://www.journaldemontreal.com/2022/01/03/larmee-prete-main-forte-pour-la-campagne-de-vaccination-au-quebec-1-1)[.](https://www.journaldemontreal.com/2022/01/03/larmee-prete-main-forte-pour-la-campagne-de-vaccination-au-quebec-1-1)
+2. 蒙特利尔日报，纪尧姆·圣皮埃尔GUILLAUME ST-PIERRE 2021 年 12 月 31 日星期五，[Le Journal De Montreal，Québec serre la vis: voici les nouvelles mesures qui entreront en vigueur aujourd’hui à 17 h.](https://www.journaldemontreal.com/2021/12/31/quebec-serre-la-vis-voici-les-nouvelles-mesures-qui-entreront-en-vigueur-aujourdhui-a-17-h)
+3. 魁北克杂志，多米尼克·莱利耶夫Dominic Lelièvre ，2021 年 12 月 28 日，星期二晚上，[Journal de Québec，Dubé sert une mise en garde aux non-vaccinés.](https://www.journaldequebec.com/2021/12/28/dube-sert-une-mise-en-garde-aux-non-vaccines)
+
+
+校对发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

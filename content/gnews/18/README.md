@@ -2,31 +2,49 @@
 ---
 
 
-## 有声|欧洲中共病毒确诊病例超一亿人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820380/)
+## 中共国可防可控的不是病毒，而是人民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820394/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-截至格林尼治标准时间2022年1月1日18点45分，欧洲地区——包括从大西洋沿岸到阿塞拜疆和俄罗斯的52个国家和地区，在过去两年来共有100,074,753个中共病毒确诊病例，占全世界确诊病例的1/3以上。
+作者：纽约香草山健身部—Ivy001
 
-仅在过去七天，欧洲就报告了490多万确诊病例，在52个国家或地区中，有17个国家或地区单周确诊人数都创下新高。仅法国在过去一周的确诊人数就超过百万。
 
-全球中共病毒感染率最高的国家都在欧洲。其中丹麦感染率最高，超过2%，塞浦路斯为1.97%，爱尔兰为1.96%。 同时，欧洲有65%的人接种了疫苗，其中61%的人完成了全面接种，接种率远高于世界平均水平。
 
-文字版原文：[欧洲中共病毒确诊病例超一亿人](https://gnews.org/zh-hans/1817198/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+
+当地时间1月2日晚上，盖特网友发布了两则视频。一则视频显示，很多穿白色防护衣人员，以及大量的巴士、中巴和各种车辆，聚集在西安病例比较集中的地区和城中村。另外一则视频中，身穿全套白色防护服的疑似防疫人员，一队一队的在逐户敲门，进行检查。
+
+西安市政府称启动了重点区域核酸筛查工作：对病症较多的社区和城中村等地方，通过敲门行动，摸清人员底数，确保核酸检测不漏一人一户。
+
+随后有中共国墙内网友留言：原来“可防可控”说的不是病毒，而是我们。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-1.jpg)
+参考链接：
+[西安对病例集中地区采取敲门行动：确保筛查不漏一人](https://gettr.com/post/plipoq02e6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：Jack Li文阳
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
