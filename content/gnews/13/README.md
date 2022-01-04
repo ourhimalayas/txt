@@ -2,40 +2,31 @@
 ---
 
 
-## 洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1819500/)
+## 通胀高企，土耳其人钱袋持续缩水
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819549/)
 
-编译：七叶之芒
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+伊斯坦布尔，1月3日（路透社）—土耳其在刚刚过去的12月数据显示年度通货膨胀率已经飙升至36.1%，是19年以来的最高值。食品和交通等在2021年期间占家庭预算的份额越来越大，上涨速度越来越快。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-5.jpg)
+土耳其货币里拉去年贬值了44%，从年初的1美元对7.43里拉贬值到年末的1美元对13.3里拉。但是政府为了扩大出口和提高信贷持续降低利率。一些经济学家预测，除非货币政策的方向得到扭转，否则通货膨胀率到春季可能达到50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-10.jpg)图片来源：thegatewaypundit.com
+普通老百姓有限的薪资提升不能抵消交通和食品等主要支出的大幅上涨。人们开始减少不必要开支，比如上咖啡馆享受一杯拿铁，更有许多人开始领取政府补贴面包。
 
-洛杉矶联合学校正计划对学生实施一项极端的疫苗接种任务，但由于3万名孩子不符合要求，不得不取消。
+参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
 
-9月，这个美国第二大学区的学校董事会投票决定，要求12岁以上的学生在1月10日前接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-该区现在将他们的任务推迟到秋季，因为许多人没有遵守。
+编辑/校对/发稿：Hetangyuese
 
-“洛杉矶曾计划将在1月10日前仍未接种疫苗的学生转移到其在线学校–天使之城。许多人担心它在下个学期开始时容纳数以万计的新学生的能力，以及它将对工作人员和儿童造成的干扰”，《今日美国》报道。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Politico报道说：“美国其他蓝州的学区也在缩减以前的学生授权想法。俄勒冈州波特兰市的学校领导在强烈的反对声中，于今年秋天放弃了讨论，而纽约和芝加哥则采取了观望的态度。他们不仅对任务的批评者有戒心，而且还质疑他们是否应该在食品和药物管理局完全批准为他们的学生接种疫苗之前强加一项要求–洛杉矶联合大学没有等待这一门槛。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-5.png)（推特地址：[twitter.com](https://twitter.com/BrimJulia/status/1459383085640798217?s=20)）
-
-根据Politico的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移到远程学习是否会有帮助或损害。
-
-“其他地方的地区已经权衡了如果强制执行任务，哪些学生最有可能不接种疫苗，以及让这些学生在远程教学中学习的弊端”，Politico报道。
-
-该报告没有详细说明各地区正在研究什么标准或指标。
-
-**参考资料：**[thegatewaypundit][Los Angeles Public Schools Canceled Their Vaccine Mandate After 30,000 Kids Were Not Complying](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
-
-* * *
-
-*审核：蚂蚁兄弟*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

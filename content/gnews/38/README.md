@@ -2,10 +2,28 @@
 ---
 
 
-## 1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1818424/)
+## GTV新闻访谈简报|2022年1月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1818541/)
 
-秘密翻译组-北美组
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.03早GTV新闻访谈](https://gtv.org/video/id=61d2fa3131a71619b5740b94)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.13.00-PM-1-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,52 +2,53 @@
 ---
 
 
-## 研究显示减肥可大大降低中共病毒重症发生的可能性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1819527/)
+## 政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819575/)
 
-**作者**：纽约香草山翻译部-defiance
+作者：Sheila Gunn Reid
+翻译：HimaFAFA
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-24.jpg)
 
+综合分析加拿大人对新冠措施的看法，从重新开放边境到疫苗接种证明再到登机，大多数加拿大人表明拒绝基于疫苗状态歧视他人的措施。
 
+Blacklock’s首次报道了加拿大人观点的连续定性数据收集分析，该分析于2021 年 10 月 29 日通过对加拿大人跨地域和人口统计的焦点小组投票，枢密院办公室编制。
 
+对于许多接受调查的人来说，“有人担心基于疫苗接种状态的潜在歧视。” 民意调查还表明，“对某些人来说，出示文件的要求似乎‘过于侵扰’，‘根本没有必要’。”
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021.12.31-04.55-redvoicemedia-61ce8d41b677a.jpg)
-
-据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
-
-“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
-
-这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
-
-新闻链接：
-
-[https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/](https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-***总编：文真***
-
-***校对/发稿：遍地开花***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+根据加拿大人观点的总结：
 
 
+> 许多人提到了实施疫苗护照对公民自由的影响，将其视为对未接种疫苗的人旅行能力的侵犯……一些对疫苗护照持怀疑态度的人认为他们强迫人们接种疫苗以便旅行，他们被视为不当胁迫。”
+> 
+> 其他人则担心疫苗护照的实施是迈向强制疫苗接种政策的第一步……他们认为朝这个方向前进直接违反了加拿大人在这种情况下选择是否接种疫苗的权利，并且可能会影响就业机会和未接种疫苗者在经济上支持家庭的能力。
 
 
+尽管加拿大人在很大程度上支持医疗选择并尊重同胞的隐私，但他们反对加拿大总理仍然很乐意对未接种疫苗的人进行污名化。 特鲁多最近在接受法语采访时说，未接种疫苗的是一群讨厌女性的人和种族主义者：
+
+
+> “但也有一些人强烈反对疫苗接种，他们不相信科学，他们往往厌恶女性，也常常是种族主义者。这是一小群人们。
+> 
+> “我们必须做出选择，就领导人而言，就国家而言。我们能容忍这些人吗？”
+
+
+来源：https://www.rebelnews.com/internal\_government\_polling\_shows\_trudeau\_out\_of\_step\_with\_canadians\_on\_vaccine\_passports
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
