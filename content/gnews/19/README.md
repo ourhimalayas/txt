@@ -2,27 +2,35 @@
 ---
 
 
-## 以色列开始60岁以上老人的第四轮疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1822191/)
+## 狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822211/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.png)
-（图片源自本文链接）
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+香港，1月4日（路透社）—香港法院周二判处一名36岁的大律师15个月监禁，罪名是煽动未经授权的集会。该集会是纪念在1989年6月4日中共政府残暴镇压民主抗议者中死去的人们。
 
-朝日新闻1月4日消息：奥密克戎菌株感染激增的以色列境内，已开始60岁以上老人的第四轮疫苗接种。
+邹幸彤是去年6月4日镇压周年纪念日的前一天被捕的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-13.jpg)
+香港一直都有纪念6.4的守夜活动。但是过去两年，港警以冠状病毒限制为由，禁止了守夜活动。尽管有禁令，2020年仍有数千人在全市范围内点燃蜡烛。由于港警大肆抓捕导致2021年守夜人数骤减。
 
-因为奥密克戎毒株的传播造成以色列的感染者人数正在迅速增加。2日以色列政府决定对60岁以上老人实施第四剂中共病毒(新冠病毒)疫苗接种。3日，政府开始呼吁60岁以上的老人接种第四剂中共病毒疫苗。同日，政府还宣布，来自感染风险高的国家的入境者以外的，已接种疫苗的外国人将被允许在9日之后入境。
+法官认为邹煽动他人参加未经批准的集会，造成了公共健康风险。而邹自己则认为她只是想提醒人们不要忘记6.4，并补充说”暴政是贪婪的，红线会不断扩大。”
 
-贝内特总理3日晚说：约有10万人已经接受，或已经预约了第四剂中共病毒疫苗接种。疫苗将保护我们免受中共病毒重症和隔离之苦。
+中共狰狞的嘴脸终于暴露出来。50年不变的政治制度已经荡然无存。谁不听话就抓起来，安个理由，投到监狱。
 
-信息来源：
+参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
 
-[オミクロン株急増のイスラエル、60歳以上の4回目接種開始（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/83aef35896d283dd6d5a38a32db61a5daf533c13)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+编辑/校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

@@ -2,36 +2,38 @@
 ---
 
 
-## 因言被封：推特永久封禁美众议员的个人账户
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822292/)
+## 银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1822294/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-2.jpg)
-格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-29.png)[图片来源](https://jp.sputniknews.com/)
+**1.****日本新增510人确认感染中共病毒（新冠病毒covid-19）**
 
-据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
+[据NHK 12月31日报道，日本的确诊病例总数为1,733,544人，包括机场的检疫人员，以及邮轮上的712名乘客和船员，总数为1,734,256。共有18,405人死亡，包括日本的18,392名确诊病例和13名游船乘客。此外，有5546人（72人）在机场和其他检疫机构被确认感染，还有173人被感染，包括乘坐包机从中共国返回的人和政府雇员及检疫人员。](https://www3.nhk.or.jp/news/html/20211231/k10013411041000.html)
 
-耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
+**2.****横须贺美军基地75人感染**
 
-参考链接：
-1) . [Twitter permanently suspends Rep. Marjorie Taylor Greene’s personal account over covid-19 misinformation](https://www.washingtonpost.com/nation/2022/01/02/marjorie-taylor-greene-twitter-suspension/)
-2) .[When Maxine Waters can go to the streets and threaten violence on Twitter, Kamala and Ilhan can bail out rioters on Twitter, and Chief spokesman for terrorist IRGC can tweet mourning Soleimani but I get suspended for tweeting VAERS statistics, Twitter is an enemy to America and can’t handle the truth.](https://gettr.com/post/plf6qx50e8)
+[据NHK 12月31日报道，据美国海军横须贺基地称，自本月23日以来，已有75名军事人员被证实感染了中共病毒（新冠病毒covid-19），并全部在该基地进行了隔离。 目前还不清楚是否有病人感染了Omicron毒株。神奈川县知事敦促外交部长和国防部长对感染者实施隔离，限制他们离开基地，并尽量减少美军人员从国外入境以及在日本各基地之间的流动。](https://www3.nhk.or.jp/news/html/20211231/k10013411071000.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**3.****国防计划大纲修订以便在安全形势发生急剧变化时具有灵活性**
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：Fei797
+[据产经新闻12月31日报道，国防部已开始研究修订《国防计划大纲》的可能性，该大纲大约每10年修订一次。 政府还将审查《中期国防力量发展计划》，该计划规定了每五年的设备采购计划。 这是因为在战略环境迅速变化的情况下，有必要灵活地修订《国防计划大纲》和中期防务计划。 政府计划在明年年底前修订这三份战略文件，包括《国家安全战略》（NSS），而包括框架在内的基本审查将在今年年初正式开始。](https://news.yahoo.co.jp/articles/3bd6f317792a107ab265035b154668a36bb0b289)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**4.****世界上第一颗环保型 “木质 “卫星将于2023年发射**
+
+[据共同社 12月31日报道，京都大学和住友林业正在计划于2023年发射世界上第一颗 “木制 “卫星。 卫星运行后将在大气层中燃烧，因此对环境的影响很低。 第一次测试将在2月进行，通过将木材暴露在空间中来检查其耐久性。 卫星的外部将用木材和太阳能电池覆盖，内部将包含电子板和其他部件。](https://news.yahoo.co.jp/articles/7c1aae6e88c8282a0674c391df71c8c1ed0e3f02)
+
+**5.****日本新增成人120万，为历史最低**
+
+[据NHK 12月31日报道，将于元旦年满20岁的新成年人数量为120万占日本总人口的0.96%，是总务省自1968年开始进行估算以来的最低数字，也是连续第12年低于日本总人口的1%。其中包括61万名男性和59万名女性。总务省表示，除了因出生率下降导致年轻人数量减少外，来自国外的留学生和技术实习生的数量也中共病毒（新冠病毒covid-19）而减少。](https://www3.nhk.or.jp/news/html/20211231/k10013410621000.html?utm_int=news-politics_contents_list-items_001)
+
+**6.****俄罗斯总统在新年贺词中热切希望与岸田接触**
+
+[据时事通讯社 12月30日报道，俄罗斯总统向各国家元首发出新年贺词，并向岸田文雄首相表示，”俄罗斯和日本之间建设性的合作发展符合两国人民的利益，有助于建立该地区的安全和稳定”，并表示希望进一步接触。 俄罗斯总统办公室于3月30日宣布了这一消息。](https://www.jiji.com/jc/article?k=2021123000699&amp;g=pol)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
