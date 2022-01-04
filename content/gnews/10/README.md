@@ -2,34 +2,84 @@
 ---
 
 
-## 华为斥巨资渗透收买英国顶尖大学
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819802/)
+## 众议员马特·盖茨：跟我来盖特吧
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1819846/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体12月30日报导，依据信息自由要求所获得的部分数据显示，中共华为电信公司自2016年至2021年底，至少已花费七千万英镑，分别送给英国各大顶尖大学，用于收买渗透各大学的教授及相关人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.31.png)
-华为用钱收买顶尖大学的明显例子发生于剑桥大学耶稣书院，在2020年，剑桥大学耶稣书院发表了一份关于电信改革的研究报告，并在报告中赞扬华为。此后，耶稣学院承认从华为收到了15万英镑，用于撰写此报告的费用；此外，该学院还从中共国家留学基金委分别收到了20万到40万英镑的献金。在2021年9月，剑桥一个研究中心的大部分研究人员被发现与华为有关联，因此，华为被指控“渗透”了该研究中心。
+众议员马特·盖茨： 我不想生活在一个推特服务条款比我们的宪法还牛X的世界里。 首先，他们来封锁川普总统。然后他们来封锁玛乔丽·泰勒·格林[@RepMTG](https://twitter.com/RepMTG)。最终，如果我们不阻止他们，他们会到处禁止我们。 跟我来盖特吧 @Gettroficial: [https://gettr.com/user/repmattgaetz](https://t.co/zw3RIqA7RD)
 
-目前，已知剑桥、牛津、皇家艺术学院、伦敦玛丽皇后大学、伦敦国王学院、利物浦大学等知名大学皆有收受来自华为的献金。但是，尚有许多大学拒绝公布从华为收到献金的详细内容。
 
-参考链接：
-1）[Revealed: Huawei’s Oxbridge millions](https://www.spectator.co.uk/article/revealed-huawei-s-oxbridge-millions)
-2）[Data: Chinese research partnerships with UK universities](https://chinaresearchgroup.org/research/data-chinese-research-partnerships-with-uk-universities)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+> I don’t want to live in a world where Twitter’s Terms of Service are more important than our Constitution.
+> 
+> First they came for Trump. Then they came for [@RepMTG](https://twitter.com/RepMTG?ref_src=twsrc%5Etfw). Eventually, they’ll ban us everywhere if we don’t stop them.
+> 
+> Follow me on [@GETTRofficial](https://twitter.com/GETTRofficial?ref_src=twsrc%5Etfw):[https://t.co/6tWlVmHTPU](https://t.co/6tWlVmHTPU) [pic.twitter.com/WrsduWf69w](https://t.co/WrsduWf69w)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 3, 2022](https://twitter.com/RepMattGaetz/status/1478109981719371778?ref_src=twsrc%5Etfw)
 
-总编：文特
-编辑：文徬
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在使用其政权的全部力量来打击反对维吾尔奴工的公司。 更多的公司应该站出来反对这些侵犯人权的行为。 【附华尔街日报的文章：山姆会员店的老板沃尔玛在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 面临强烈的反对，因据称其在中共国的商店已经停止从新疆进货。】
+
+
+
+> Communist China is using the full force of its regime to target companies that are standing against Uyghur slave labor.
+> 
+> More companies should stand up against these human rights violations. [https://t.co/Y4eSYkdGbh](https://t.co/Y4eSYkdGbh)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 4, 2022](https://twitter.com/MarshaBlackburn/status/1478161631553200128?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔兹 告诉乌克兰人我们将在俄罗斯入侵之后才会采取行动，就像在告诉台湾我们将在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 拿下台湾后才采取行动一样。 拜登现在就应该实施制裁，加速采取致命的手段，以提高普京的成本，并在他入侵前打破他的如意算盘。
+
+
+
+> Telling the Ukrainians that we will act AFTER Russia invades is like telling Taiwan that we will act AFTER China acts. 
+> 
+> Biden should enact sanctions and accelerate lethal aide now to raise costs for Putin and change his calculus BEFORE he invades. [pic.twitter.com/oNzETs0Xyy](https://t.co/oNzETs0Xyy)
+> — Rep. Mike Waltz (@michaelgwaltz) [January 4, 2022](https://twitter.com/michaelgwaltz/status/1478157839298441219?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 距北京奥运会开幕式还有 32 天。但是世界正在看我所看到的。 赞扬欧盟主席冯德莱恩和德国外长贝尔博克以实际行动挑战 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可怕的人权政策。 【附政治报欧洲版报道：贝尔博克要求禁止奴工，并不会参加奥运】绝与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对抗——假装只有在允许中共破坏香港的自由以及其境内被拘留的数百万人的生活的情况下，它才会减少碳排放——这在道德上是危险的，而且是非常不美国的。 [#种族灭绝奥运会](https://twitter.com/hashtag/%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click)
+
+
+
+> 32 days out from the Beijing Genocide Olympics opening ceremonies. But the world is coming to see what I saw.
+> 
+> Good on EU President von der Leyen and German FM Baerbock for challenging China's terrible human rights policies with real actions. [https://t.co/hwEkU4dYDy](https://t.co/hwEkU4dYDy)
+> — Mike Pompeo (@mikepompeo) [January 3, 2022](https://twitter.com/mikepompeo/status/1478119562541473794?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔尼·恩斯特： 还未对 COVID-19 的起源进行全面彻底的调查。 我们不能等待下一次危机来袭。 【附华盛顿邮报专栏：世界应该对这一流行病进行彻底的审查。国会必须设立一个 covid-19 委员会。】
+
+
+
+> There has yet to be a full and thorough investigation into the origins of COVID-19. 
+> 
+> We simply cannot wait for the next crisis to hit. ⬇️ [https://t.co/XqCtTa9TDI](https://t.co/XqCtTa9TDI)
+> — Joni Ernst (@SenJoniErnst) [January 3, 2022](https://twitter.com/SenJoniErnst/status/1478109236852834309?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 我们的对手看到了一个他们可以利用的政府。 我们需要醒过来并认真对待他们的威胁——以免为时已晚。 【附华尔街日报报道：中俄军事合作给美国实力带来新挑战】
+
+
+
+> Right after President Biden signed Sen. Rubio’s Uyghur Forced Labor Prevention Act into law, [@Tesla](https://twitter.com/Tesla?ref_src=twsrc%5Etfw) opened a store in [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw). Nationless corporations are helping the Chinese Communist Party cover up genocide and slave labor in the region. [https://t.co/2yWBTQSLbM](https://t.co/2yWBTQSLbM)
+> — Senator Rubio Press (@SenRubioPress) [January 3, 2022](https://twitter.com/SenRubioPress/status/1478090139406684165?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 离奥运还有一个月的时间，但总统仍然没有采取任何措施来确保美国运动员的安全，他们无疑会成为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的目标。拜登必须解释美国人将如何受到保护。 【附斯科特议员官网新闻：拜登对2022奥运的软弱外交抵制不足以追责中共】
+
+
+
+> The [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) are one month away, yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has still done nothing to ensure the safety of American athletes who’ll undoubtedly be targeted by Communist China. Biden must explain how Americans will be protected. [https://t.co/rkBg6WAJfB](https://t.co/rkBg6WAJfB)
+> — Rick Scott (@SenRickScott) [January 3, 2022](https://twitter.com/SenRickScott/status/1478081484703555585?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

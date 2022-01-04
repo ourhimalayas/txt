@@ -2,40 +2,46 @@
 ---
 
 
-## 洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1819500/)
+## 别了，我们可爱的小鹦鹉-猕猴桃（Kiwi)！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1819573/)
 
-编译：七叶之芒
+作者：纽约香草山农场健身部-幸福鸟
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-10.jpg)图片来源：thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1.jpg)
 
-洛杉矶联合学校正计划对学生实施一项极端的疫苗接种任务，但由于3万名孩子不符合要求，不得不取消。
 
-9月，这个美国第二大学区的学校董事会投票决定，要求12岁以上的学生在1月10日前接种疫苗。
 
-该区现在将他们的任务推迟到秋季，因为许多人没有遵守。
 
-“洛杉矶曾计划将在1月10日前仍未接种疫苗的学生转移到其在线学校–天使之城。许多人担心它在下个学期开始时容纳数以万计的新学生的能力，以及它将对工作人员和儿童造成的干扰”，《今日美国》报道。
 
-Politico报道说：“美国其他蓝州的学区也在缩减以前的学生授权想法。俄勒冈州波特兰市的学校领导在强烈的反对声中，于今年秋天放弃了讨论，而纽约和芝加哥则采取了观望的态度。他们不仅对任务的批评者有戒心，而且还质疑他们是否应该在食品和药物管理局完全批准为他们的学生接种疫苗之前强加一项要求–洛杉矶联合大学没有等待这一门槛。”
+今天早上4点醒来后，发现我们可爱的猕猴桃的肉身永远地离开了我们！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-167.png)
+昨天，猕猴桃知道他在尘世间上的时间快要结束了。于是，他总是黏着我们，只为了想有更多的时间和我们在一起。甚至，连我们的晚餐时间也不肯离开，一直赖在我手上。我也实在不忍心强行把它放回去，只好一只手吃着饭，一只手让他待着。好几次，我们把他放回了自己的“家”——他可以自由进出的门一直开着的鸟笼，但他吃力地钻出来飞到地板上，只为了能和我们再多待些时候……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-5.png)（推特地址：[twitter.com](https://twitter.com/BrimJulia/status/1459383085640798217?s=20)）
+更为奇妙的是，我们卧室的钟，在我们早晨4点醒来时竟突然停了！看来猕猴桃是一直等到我们早晨4点醒时才走的。当我们起床后去看望他时，他是刚走的，眼睛半睁着，身上还有些微热。他肯定是等了我们一晚上！这种独特的表达方式让我们泪目！太让人心疼了！万物皆有情！连动物都懂得知恩图报……
 
-根据Politico的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移到远程学习是否会有帮助或损害。
+想想那些制造和释放中共病毒以及强迫人打毒疫苗、让全球陷入灾难的共匪和邪恶的黑暗势力，他们残酷狠毒，让全球至少500多万无辜的人命丧黄泉，让成千上万个家庭支离破碎，让全世界的人生活在危险和恐惧中！再想想那些被共匪洗过脑的无数国人，他们变得冷漠无情，麻木不仁，好坏不分！他们根本连猕猴桃这样的重情重义，知恩图报的小生命都不如！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/灭共者-疫苗.jpg)
+毫无疑问，我们跟随七哥的新中国联邦人都是上天派下来的使者。我们都是志同道合的战友、兄弟姐妹；我们都有信仰，相信有上天，相信灵魂不灭，相信轮回和因果报应；我们充满爱心地去爱自己和爱世间万物，包括像猕猴桃这样的小鸟以及猫咪和狗狗。
 
-“其他地方的地区已经权衡了如果强制执行任务，哪些学生最有可能不接种疫苗，以及让这些学生在远程教学中学习的弊端”，Politico报道。
+我们新中国联邦人一定会完成上天赋予的使命：消灭万恶的中共、清除黑暗势力，让爱心、善意、正义、美好回归人间！
 
-该报告没有详细说明各地区正在研究什么标准或指标。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
 
-**参考资料：**[thegatewaypundit][Los Angeles Public Schools Canceled Their Vaccine Mandate After 30,000 Kids Were Not Complying](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
+*校对/编辑/发稿: Amanda艾曼达*
 
-* * *
+**更多资讯，更多关注**
 
-*审核：蚂蚁兄弟*
-*校对 : 信心满满*
-*发布：信心的选择*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1.jpg)
 
  
 

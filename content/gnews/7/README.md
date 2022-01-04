@@ -2,22 +2,83 @@
 ---
 
 
-## 中共高层对西安发出“清零”命令，后果会多严重？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1819805/)
+## 共产党每时每秒在杀人，十四亿中国人苟且偷生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819884/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-2.jpg)
-图片来自网络
-华尔街日报日前报道，北京中央政府的一些官员参考国外经验，建议抛弃“动态清零”，与病毒共存。该报引述知情人士称，“习近平当时很生气”，甚至质问官员们的思想是否正变得松懈麻痹？要求继续贯彻清零政策。清零，不惜一切清零，官员们明知无法清零，还要高呼清零，因为党要求清零，清零成了他们保住乌纱帽的必要手段。这样就让西安的百姓步入了地狱。
+[https://gtv.org/video/id=61d2b60adffab035958a2ec1](https://gtv.org/video/id=61d2b60adffab035958a2ec1)
 
-首先，中共对于新冠病毒的疫情控制措施基本都是一个老套路，封城，封楼，集中隔离，集中多次核酸检测。针对真正医学的方案根本没有实质性进展。爆料革命新中国联邦开出的药方羟氯喹加锌，伊维菌素，青蒿素，地塞米松等，在墙内100%被控制无法传播。中共自己释放的生化武器，他们在袭击全球的同时，一样要对自己的百姓无情践踏，为的就是更好的控制底层百姓。也对世界有一个交代，我也是疫情受害者。另外就是更加方便的对14亿人民更好的奴役。
+**郭文贵**
+**Miles Guo**
 
-其次，西安的清零政策，基本随后的措施，就是把老百姓集中的拉到规定地点隔离，这个隔离的条件，根据网友的反馈，简直跟地狱一模一样。推特网友贴文，“好狠！官员为了保官位，将本区感染者及上千人的所谓密接全拉去郊区[隔离](https://www.secretchina.com/news/gb/tag/%E9%9A%94%E7%A6%BB)，不给吃喝，饿死不算新冠感染死！”没错，死亡的方式有千万种，但是只要不是新冠死，其余的方式总有一款适合你。为的就是抱住他们头上的乌纱帽。
+你想想共产党每时每刻每秒都在杀人，都在吃人肉
+Think about it that the Communist Party is killing and cannibal-izing people every moment every second
 
-最后，中共中央的强制清零命令后，被传染的感染者，会很快被定点清除；隔离封锁的楼层和小区，还有底层百姓进城务工居住在城中村的人，会被强制管控无法发声，只能等死。随后在西安会出现尸横遍野。我们在海外的华夏儿女，只有努力传播真相，尽快消灭这个中共恶党，只有行动，行动，行动。
+都在把人类变成了畜生都不如的(种)类，而且中国人现在要领导全世界
+Are turning all humans into the races that are not even as good as animals, and Chinese now wants to lead the whole world
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+根本之原因，雅阁，就是没信仰，没上天，对万物之不敬
+Yage, the fundamental reason is that there is no faith, no God, and disrespect to everything
+
+雅阁你现在长这个样子，你要在国内待着你一定不是这个样子
+Yage, your appearance look like this now, you must not be like this if you live in China
+
+就那个环境，就那个人文，那个没有信仰的、那个土壤里长出来的人的样子就是邪恶
+Just the environment and the humanities, the appearance of people who grow up from that land without faith, it is evil
+
+每个人的眼神里边带着一种狰狞和邪恶，男女老少都这样，这是核心兄弟
+In everyone’s eyes there have a kind of hideousness and evil look, men and women, young and old, they all like this, this is the core problem, brother
+
+没有信仰的中国是最微小的中国，而且最后一定中国人要为此付出代价
+China without faith is the insignificance and dangerous China, and in the end the Chinese people must pay the price
+
+瞪眼撒谎，人家美国人不去，你看你看你要来嘛，是吧
+lying in front of your face, the Americans don’t go to Bei-jing(olympic), look at it that you want to come, right?
+
+我不让你来你(偏)要来嘛，就这样糊弄中国十几亿同胞，你可见中国人在它眼里成了啥
+I won’t let you come that you come anyway, just like this to fool the billions of Chinese compatriots, you can see what the Chinese have become in its eyes
+
+你给普京1000多亿，你给法国你给德国订了100多架空客飞机
+CCP gave Putin more than 100 billion dollars, and CCP ordered more than 100 Airbus planes from France and Germany
+
+你就搞个狗屁一个月的奥运会，它能产啥，冬奥会
+And they just want to have the Olympic Game for a month, what can it produce from the Winter Olympic Game
+
+就像文化大革命一样，你搞那么多工程，最后留下了啥，悲哀呀
+Just like the Cultural Revolution, they did so many movements, what was left in the end, it’s sad!
+
+我不多说了，我说完心都疼啊，我真能把我自己的牙都咬下来
+I won’t say too much, my heart hurts after I say it, I can real-ly bite off my own teeth
+
+你不知道我有多生气呀，我说到这我脚都在出汗我跟你说
+You don’t know how angry I am, I tell you this that my feet are sweating
+
+就中国人的可怜可恨到了我这一说这脚都生气，哪有这么一个十四亿的民族
+the Chinese people are so pitiful and hateful, I’m so angry when I say that, how can there be such nation with 1.4 billion people?
+
+连这话你听不进去，一个个苟且偷生，哎，算了不说了，你们说
+They can’t even listen to these words, and people are living on the run, hey, forget about it, you guys say something
+
+**原视频链接**[:](https://gettr.com/post/pl2wy61dbc)[https://gettr.com/post/pl2wy61dbc](https://gettr.com/post/pl2wy61dbc)
+
+Date: 01/01/2022
+原视频标题: 共产党每时每秒在杀人，十四亿中国人苟且偷生
+The Communist Party is killing people every second, and 1.4 bil-lion Chinese people are scared surreptitiously live their life
+原视频日期：2021/12/29
+**原视频链接**[** **https://gettr.com/post/pl2wy61dbc](https://gettr.com/post/pl2wy61dbc)
+任务编号：KC389（3374）
+视频时间段 : 0:00-2:02
+
+中听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –天涯行
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
