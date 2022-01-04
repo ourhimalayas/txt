@@ -2,39 +2,39 @@
 ---
 
 
-## Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820285/)
+## 有声|播客超级明星乔-罗根加入盖特——自由的发声平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820378/)
 
-By 日本东京方舟农场 撰稿-海星
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+随着推特继续禁止用户使用其平台，播客超级明星乔-罗根周日宣布，他已经设立了一个盖特账户。截止发稿之时，乔-罗根在盖特上已经有了八百万粉丝，当前，他在推特仍有七百八十万粉丝。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpg)
-图片来源：网络截图
-December 27-én Biden amerikai elnök hivatalosan aláírta a nemzeti védelmi felhatalmazásról szóló törvényt (NDAA), amely ma lépett hatályba. A törvényjavaslat a CCP fenyegetésének leküzdésére irányuló intézkedésekkel foglalkozik.
+乔-罗根是美国一位知名的脱口秀明星，登台表演已有20多年，拥有众多粉丝，罗根的第六个喜剧特辑《乔-罗根：奇怪的时代》于2018年10月在奈飞（Netflix）首播。根据他个人[网站](https://www.joerogan.com/)的自我介绍，他主持一档播客节目《乔-罗根体验》。这是一个长篇对话节目，嘉宾包括喜剧演员、演员、音乐家、综合格斗选手、作家、艺术家，以及其他人士。自2002年以来，罗根曾在福克斯电视台、付费观看（Pay Per View）、以及斯派克有线电视频道（Spike Television）为终极格斗锦标赛(UFC)担任评论员。罗根还还在两部电影中担任角色，在NBC电视台主持过竞争性真人秀节目《恐惧因素》。
 
-Az “Amerika Hangja” jelentése szerint Biden elnök még ugyanazon a napon aláírta a 2022-es pénzügyi évre vonatkozó nemzetvédelmi felhatalmazási törvényt. A törvényjavaslat 777 milliárd amerikai dollár elkülönítését engedélyezi az Egyesült Államok védelmi kiadásaira. Közülük 7,1 milliárd dollárt különítettek el a “Csendes-óceáni Elrettentési Kezdeményezés” (Pacific Deterrence Initiative) számára, hogy válaszoljon a CCP katonai fenyegetéseire.
+“为了防止推特上的狗屎变得更加愚蠢，我现在也在这里。欢呼吧！” 罗根周日下午在他的盖特账户上写道。
 
-Ezen túlmenően, a törvényjavaslat nem csak nyilatkozatot adott ki, hogy az Egyesült Államok Kongresszusa támogatja Tajvan védelmét. Ugyanakkor számos konkrét intézkedést fognak meghozni, hogy segítsék Tajvant önvédelmi képességeinek fejlesztésében. És meghívta Tajvant, hogy vegyen részt a Csendes-óceán körüli katonai gyakorlatokon.
+罗根最近在他的播客中采访了罗伯特-马龙博士，而马龙博士最近也因为对中共病毒疫苗的立场而被禁止使用推特。罗根告诉马龙博士，“只要你不顺从科技界的任何说法，他们（推特）就可以删除你，因为科技界显然有一个审查议程，当涉及到中共病毒的治疗时，无论你是否在宣传他们所谓的疫苗接种迟疑现象，他们可以为此禁止你，他们可以禁止你，因为在他们眼中，他们认为这是一个正当的罪行。”
 
-A törvényjavaslat ugyanakkor előírja, hogy a Nemzetvédelmi Minisztériumnak tilos kényszermunkával előállított termékeket vásárolni a kínai Xin Jiang-ban.
+“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们该想什么。但问题是，如果我不能参与发言，即使指出了可能不方便的科学事实，那么谁可以被允许（发言）？” 马龙后来在谈话中说。
 
-A hírek szerint a hónap elején a törvényjavaslatot elsöprő többséggel elfogadták az Egyesült Államok Szenátusának és a Képviselőháznak mindkét házában, és széles körű támogatást kapott a demokrata és republikánus kongresszusi képviselők részéről.
+郭先生在昨天的新年直播上指出，盖特自从2021年7月上线以来，总下载量已经达到3500万。盖特目前的用户包括来自美国、巴西、英国、法国、德国、印度、日本、以及爆料革命追随者，正在逐步成长为国际化的社交平台。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+盖特首席执行官杰森-米勒（Jason Miller）表示，该平台将对来自政治任何一端的意见保持开放。“盖特就是思想的自由平台”。米勒在声明中说：“我们不会因为人们的政治观点而噤声他们，盖特提供的功能和技术远远超过其他任何东西”。盖特允许用户选择 “将他们现有的推文导入这个新平台”，此外，还有更长的字符数的帖子，以及更清晰的照片。
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1800494/](https://gnews.org/zh-hans/1800494/))
+文字版原文：[播客超级明星乔-罗根加入盖特——自由的发声平台](https://gnews.org/zh-hans/1816910/)
 
-参考链接：
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
-2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
-3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
 
-
-
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

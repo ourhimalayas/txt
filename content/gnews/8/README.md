@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820382/)
+## 俄罗斯联手印度遏制中共渗透中亚
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1820433/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-HBO-VICE断章取义进行混乱剪辑，诋毁郭先生爆料疫苗是中共毒害世界的工具以及中共的灭白计划为虚假信息。 接下来让我们还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击。
+撰稿：GeorgeC（乔治）
+校对：zzballack
+上传：追着曙光跑
 
-文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10](https://gnews.org/zh-hans/1818983/)
+据《星期日卫报》（Sunday Guardian）1月1日新德里报道：俄罗斯和中共在近期可能彼此关系更为密切，但莫斯科现在“非常渴望”与新德里合作，以遏制北京在能源丰富和具有重要战略意义的中亚地区日益增长的影响力。顶级外交人士告诉《星期日卫报》，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）本人已经向印度领导层传达了这一信息。他表示俄罗斯政府与印度一样，对中共这一地区越来越大的影响力感到担忧。消息人士援引莫斯科外交官的话说，“北京在阿富汗的激进政策也引起了俄罗斯机构的关注。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-16.25.18.jpeg)图片来源：原新闻
+这位外交官说：“俄罗斯将加强与印度在中亚地区的国防合作，两国还将研究如何加强在该地区的合作和联合行动。”他补充说：“除了在中亚国家的军事演习外，一旦俄罗斯和印度更加积极地参与其他项目和建设性活动，这将重挫中共意图加强在该地区存在的巨大野心。”
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+据消息人士称，俄罗斯领导人也向印度表达了对渗透中亚的伊斯兰国和基地组织等恐怖组织的担忧。有鉴于此，俄罗斯希望大幅加强与印度的伙伴关系，以打击恐怖主义的威胁。消息人士表示：“两国专家正在制定实际行动计划，该计划的具体形式很快就会出炉。印度外交部部长苏杰生（S. Jaishankar）和俄罗斯外长谢尔盖·拉夫罗夫（Sergey Lavrov）在这些问题上一直保持联系。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+俄罗斯和印度最近“就如何加强在中亚的国防合作”交换了一份白皮书。该白皮书就两国如何在哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦、土库曼斯坦和乌兹别克斯坦联合建造国防设施提出了建议。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+印度和俄罗斯还将进行双边反恐和军事演习。外交官们认为，这不仅对于打击该地区恐怖主义的联合行动计划，而且对于“在那里制衡中国”，都是一个积极发展。一位高级外交官说：“目前与中共保持密切联系的俄罗斯准备与印度合作，遏制北京在中亚地区不必要的存在，这对印度来说是一项重大的外交成就。“
+
+**评论：**普京绝对是本世纪国际政治的顶级玩家，远不是梁家河博士可以比拟的。在冬奥会即将到来之际，即使已经收到习总加速师的千亿美金支票，俄罗斯依然继续敲打中共。早在中共与苏联决裂的时代，苏联和印度就一直保持准盟友关系。而在中共惨遭全世界围剿的今天，俄罗斯表态加强和印度的军事关系，既是表明中亚是俄罗斯的地盘，也是对中共的面子和里子的双重巨大打击。
+
+新闻来源：[Russia, India to counter China in Central Asia](https://www.sundayguardianlive.com/news/russia-india-counter-china-central-asia)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

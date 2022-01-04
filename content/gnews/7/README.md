@@ -2,33 +2,27 @@
 ---
 
 
-## 有声|郭先生谈五行与爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820383/)
+## COVID-19 最新情报｜美国保险公司CEO：18 至 64 岁死亡率增长40% 长短期伤残索赔飙升
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1820480/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022元旦大直播中，郭先生谈到，2021年和2022年是爆料革命和新中国联邦甚至整个人类命运的分水岭。并提到人类生存最重要的有几个象征性因素——金木水火土——和爱。
+**撰文｜疫情关注组 / 发布时间｜4/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-郭先生分享到，我们在地球上，面对一个物质的世界，和一个我们未知的、无法想象的星空，银河系，太阳系，面对的是无限大的宇宙与地球间一粒沙的关系，这是我们人类生存的地方。
+美国主流保险公司“OneAmerica”首席执行官斯考特·戴维森（Scott Davidson）上周在视像会议上表示，“印地安纳州工龄人群的死亡率比新冠疫情前增长40%，这是前所未有的惊人数字。”
 
-我们新中国联邦的旗是蓝色的，蓝色是海洋、星空的颜色，代表水。但在中国，从夏文化至今都不用蓝，在中国蓝代表死亡，中国人很忌讳。但中国人缺的就是蓝，缺的就是水，共产党的死敌就是蓝色的水。它用的是红色。在中国红色代表吉祥，代表火，代表杀戮。它旗帜上的星用的是土黄，地球是由土和水组成的，土和水滋养了木，滋养了一切生命。至于金，当下金融系统就是我们的金。金的代表色是白色，而中国人也非常忌讳白色，认为白色代表死亡。但五行金为首，没金什么都没有。
+戴维森 12月30日 出席印第安纳商会组织的在线新闻发布会，他在会上指出，“我们现在看到了这个行业历史上最高的死亡率，不只是OneAmerica，从事该业务的所有公司，大家得到的数据都是一致的。”
 
-五种因素在我们的生命中各自发挥着自己的影响，起着不同的作用。而人与人之间最重要的就是爱。人类没有了爱，连畜生都不如。人类之所以穿上衣裳，有文明，就是因为爱。新中国联邦人因爱走在了一起，爱把金木水火土联系在一起，是最大的力量。
+根据戴维森的说法，大规模死亡的并不是老年人，而是18 至 64 岁的工龄人群，“这个年龄段的死亡率比疫情爆发前上升了40%，要知道3年总合数，或者200年一遇的大灾难都只是增加10%的死亡率，所以，增长40% 是闻所未闻的。”
 
-文字版原文：[郭先生谈五行与爱](https://gnews.org/zh-hans/1818981/)
+戴维森认为，“数据告诉我们，新冠疫情对18～64岁人群所造成的实际死亡率，远远高出官方通报的死亡病例数。”
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+不仅如此，戴维森续指，长短期的伤残索赔也在不断增长，“因为医院已经人满为患，民众根本无法得到妥善救治，情况很糟糕。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+印第安纳州首席医疗官林赛·伟弗（ Dr. Lindsay Weaver ）上周三(29 日）在与州长 Eric Holcomb 举行的新闻发布会上说，目前印第安纳州的住院人数比一年前推出 COVID-19 疫苗时还要高，事实上，比过去5年都要高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+来源｜会议影片（如下所示）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

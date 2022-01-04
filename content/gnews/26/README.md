@@ -2,49 +2,31 @@
 ---
 
 
-## 宋词新作：西河·2022水太多好灭共
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1820183/)
+## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
 
-作者： 蝴蝶泉
-![](https://assets.gnews.org/wp-content/uploads/2022/01/b69d.png)
-前言：2022年1月1日，文贵元旦大直播，首次文贵先生与100余位战友同心同框，长达整整12小时，盛况空前，全球6500万人次观看。此次直播，“水太多”成为开年热词，刷屏网络，更激起中共惊恐万分，当即网络屏蔽该词。为此，作词抒发心声。
+By GTV 新闻访谈 作者：纽约香草山农场 文真
 
-河图示。
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
+图片来源：网络截图
+December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
 
-天一生水始起。
+A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
 
-水生万物启五行，生生不息。
+A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
 
-天赐灵魂智慧水，生育天水济。
+Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
 
-中共魔，邪火炙。
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-违天逆地役民制。
+参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
 
-防火墙加大外宣，民智水闭。
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
 
-计划生育草菅命，生命源水难继。
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
-壬寅2022阳水至。
-
-中共红、水克火逝。
-
-新中国联邦蓝，水济水，汪洋豪气。
-
-承天意得天助，送葬祭。
-
-词释意：
-
-（中华经典文献中有“五大天书”，其中之一为河图。）河图显示，天一生水，地六成之。揭示了宇宙万物初始由水起，水生木、木生火、火生土、土生金、金生水，万物五行由水起循环往复，生生不息。智慧属水，上天赐予我们人类灵魂拥有智慧水。而且人类的生育之水，也是来自天水相济。这些在《黄帝内经》中皆有相关阐述，肾水主智慧，主生育等。而肾水先天部分来自天地与父母。
-
-然而中共魔鬼，是一团邪火炙烤大地。其实施违背天赋人权的奴役恶法制度。高筑网络防火墙，还向全世界派出大外宣，谎言欺骗恐吓威胁，企图将民众的智慧之水关闭。还制定了荒唐的计划生育政策，强行节育，强行堕胎，杀死新生儿，眼看计划生育后人口比例严重失衡，又强推生育，把天赐与人的生育源水玩弄于股掌中，破坏了中华民族生命的自然新旧更替相续相济。
-
-2022年是壬寅年，壬为阳水，故为阳水年到。五星红旗代表了中共魔鬼集团是邪火，水克火，所以阳水年是克伐中共的，邪火遇水便要熄灭了。新中国联邦蓝，是海洋蓝，代表了生命之水。不仅能够克制中共邪火，而且2022阳水年水水相济，承天意得天助，新中国联邦更是如虎添翼，灭共之势更加汪洋豪气，将开启为中共魔鬼们送葬仪式。
-
-
-
-审核校对：Barry Jack
-上传排版：F
 
  
 

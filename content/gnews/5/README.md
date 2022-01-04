@@ -2,31 +2,39 @@
 ---
 
 
-## 有声|研究显示减肥可大大降低中共病毒重症发生的可能性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820386/)
+## 追求“动态清零”，河南禹州突击封城
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820511/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-7.jpg)图片来源：Anadolu Agency
+整理编译：美哥
+编辑：文泓
 
-“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
+1月4日，据华盛顿时报报道，北京时间1月3号晚，拥有117万人口的中共国河南禹州政府宣布，自周一晚上起，所有居民需要居家隔离防疫，因辖区内已发现三例无症状感染病例。
 
-这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
+目前北京中共政府追求感染“动态清零”目标，使得在疫情发生第一时间，地方政府就纷纷采取更为严厉的跨省限制和封城手段。因各地疫情仍持续爆发，使得下个月临近的北京冬奥会倍感压力。
 
-文字版原文：[研究显示减肥可大大降低中共病毒重症发生的可能性](https://gnews.org/zh-hans/1819527/)
+目前禹州封城由三个中共病毒感染病例而引发。政府宣布“民众不能外出，同时所有的小区将建立岗哨和门禁，来严格执行防疫管控”，暂停一切巴士公交车和出租车服务，购物商场、博物馆和旅游景点也全部歇业。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+周二，中共国报道了175个新增病例，包括河南省的5例，以及东部城市宁波的服装厂8例集体感染。尽管和世界其他地区相比，其报道的新增病例很少，但是最近几周也是达到了自2020年3月以来的最高峰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+同期，西安仍有95例新增案例报道，这个毗邻山西省拥有1300万人口的古城，已经被封城2周了。自去年12月9号以来，西安累计报道了超过1600例的新冠感染病例，但最近几天数据同比有所下降。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+当地政府官员防疫失控通常会面临被免职和其他惩罚，促使政府出台很多史无前例的措施，试图迅速压制新冠病毒。西安已有两个中共高级官员因“抗疫不力”而免职。
+
+下个月的北京冬奥会举办之时，正值这波疫情的高峰。
+
+原文链接：[China locks down Yuzhou, city of 1.2 million, after recording 3 Cov…](https://www.hindustantimes.com/world-news/china-locks-down-yuzhou-city-of-1-2-million-after-recording-3-covid-19-cases-101641267093194.html)
+
+发布：kk
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
