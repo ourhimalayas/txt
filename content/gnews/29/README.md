@@ -2,33 +2,50 @@
 ---
 
 
-## 有声|郭先生谈五行与爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1820383/)
+## 2022年将是国内民众最穷困的一年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820396/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022元旦大直播中，郭先生谈到，2021年和2022年是爆料革命和新中国联邦甚至整个人类命运的分水岭。并提到人类生存最重要的有几个象征性因素——金木水火土——和爱。
+作者：纽约香草山 – 侠肝义胆
 
-郭先生分享到，我们在地球上，面对一个物质的世界，和一个我们未知的、无法想象的星空，银河系，太阳系，面对的是无限大的宇宙与地球间一粒沙的关系，这是我们人类生存的地方。
 
-我们新中国联邦的旗是蓝色的，蓝色是海洋、星空的颜色，代表水。但在中国，从夏文化至今都不用蓝，在中国蓝代表死亡，中国人很忌讳。但中国人缺的就是蓝，缺的就是水，共产党的死敌就是蓝色的水。它用的是红色。在中国红色代表吉祥，代表火，代表杀戮。它旗帜上的星用的是土黄，地球是由土和水组成的，土和水滋养了木，滋养了一切生命。至于金，当下金融系统就是我们的金。金的代表色是白色，而中国人也非常忌讳白色，认为白色代表死亡。但五行金为首，没金什么都没有。
 
-五种因素在我们的生命中各自发挥着自己的影响，起着不同的作用。而人与人之间最重要的就是爱。人类没有了爱，连畜生都不如。人类之所以穿上衣裳，有文明，就是因为爱。新中国联邦人因爱走在了一起，爱把金木水火土联系在一起，是最大的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[郭先生谈五行与爱](https://gnews.org/zh-hans/1818981/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-3.jpg)
+据墙内媒体1月2日报道，由于债务压力加上无收入来源，2022年墙内民众将是穷困的一年。
+
+报道提示，中共国内很多人都处于负债状态，多数人承担着巨额贷款，网贷、信用卡、房贷、车贷之类债务很常见。综合各种债务，保守估计国内债务人数现在超过6亿，这意味着有42%的居民有债务需要偿还，而实际债务人数还可能高于这一数字。负债人数的增加，导致了老百姓近几年整体消费能力急剧下降，各种消费行为受到巨大影响。
+
+在中共病毒肆虐以及西方国家对中共的制裁之下，中共经济处于崩溃边缘，墙内许多企业纷纷倒闭、破产。相关数据显示，中共国总体失业人数已高达1.2亿，接下来，会有更多人没有工作和收入来源。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8.jpg)
+参考链接：
+[2022年可能将是最穷的一年，从现在开始好好珍惜手里的现金](https://3g.163.com/dy/article/GSMPB89Q0545MJC6.html?spss=adap_pc)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
