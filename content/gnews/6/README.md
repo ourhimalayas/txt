@@ -2,33 +2,22 @@
 ---
 
 
-## 有声|恒大海花岛39栋违章建筑限期十日内拆除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822389/)
+## 布林肯与北约九国外长通话 再度重申支持立陶宛
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1822416/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年伊始，恒大又遭暴击。1月1日，中共国网络媒体曝光一则新闻，恒大在海南海花岛的39栋建筑被判为“违章建筑”，要求在十日内自行拆
+撰稿—八木
+校对/上传—无明逆流
 
-一份海南省儋（dan）州市综合行政执法局的处罚决定书显示，儋州信恒旅游开发有限公司开发的，海花岛2号岛三 期项目共39栋楼，总建筑面积逾43万平方米。因该项目违法取得的规划许可证已被撤销，现责令相关单位在十日内自行拆除上述违建。
+美国国务卿布林肯3日与北约九国外长通话提及中共与立陶宛关系时表示北约国家将与立陶宛团结一致。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsAp42.43.24-AM.jpeg)图片资料：布林肯
+美国国务卿布林肯周一（1月3日）与保加利亚、捷克、爱沙尼亚、匈牙利、拉脱维亚、波兰、罗马尼亚、斯洛伐克及立陶宛，九个北约成员国外长进行通话，通话中讨论了乌克兰局势和立陶宛相关议题。美国国务院发言人表示，北约必须做好准备，采取团结一致的坚决立场，集体防御盟国，并在共同关切的议题上，进行跨大西洋合作。
+在中共议题上，国务卿布林肯和各国外长强调，面对中共对立陶宛多次施加政治与经济胁迫，美国及北约成员国将与立陶宛团结一致。
 
-公开信息表明，信恒旅游是恒大童世界集团有限公司旗下子公司，注册资金8亿元人民币。海花岛项目号称世界上最大的花型人工旅游岛。此次处罚决定书涉及的建筑，均位于居住功能区的2号岛。
+布林肯与北约九国外长通话中提及中共的言论，再度遭到中共外交部发言人的抨击。1月4日中共外交部例行记者会上，汪文斌借“中国记者”的发问回应了美国国务卿布林肯的最新讲话。汪文斌称，“美方一再为立陶宛一中一台的错误言行辩解帮腔，试图拉拢纵容‘台独’势力小圈子，此举丝毫动摇不了中方维护国家主权和领土完整的坚定决心。”
 
-原文链接：[恒大海花岛39栋违章建筑限期十日内拆除](https://gnews.org/zh-hans/1818457/)
+汪文斌还要求美国恪守中共的一个中国政策和中美三个联合公报规定。希望“各国”明辨是非，不要被美国裹挟蒙蔽。
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+相关新闻：[汪文斌敦促美方不要为立陶宛错误言行辩解](http://www.news.cn/world/2022-01/04/c_1128231209.htm)
 
  
 

@@ -2,36 +2,36 @@
 ---
 
 
-## 西安“清零”政策的背后：对普通民众的肆意践踏
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1821926/)
+## MV版Hcoin To the Moon上线第26天位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821943/)
 
-撰稿：纽约香草山教育部-Noemi
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当地时间1月3日，许多墙内网友在微博平台上爆料称，近期因中共国西安市政府出台了“社会面疫情清零”的相关政策，导致大批居家隔离的西安市民在元旦假期期间被迫连夜乘坐长途大巴，转移至市郊、农村甚至是周边城市的偏远隔离点中。
+1/4/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第26天位列美国iTunes热门MV榜榜首。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/001.jpeg)
+* * *
 
-据了解，此前就有一份名为《2022年1月1日市疫情防控指挥部视频调度会议精神》的内部文件在中共国的各大社交媒体平台上广泛传播。该文件显示，陕西省省委书记刘国中在下达命令时称西安市1月4日前必须实现“社会面清零”的防疫目标。随后，有关“#西安4号清零”的话题就迅速登上微博热搜，但随即被全网删除。
+[【PDF 下载】Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-目前，已有大量的墙内视频都证实了这一消息的真实性。有视频显示，大多数的居家隔离人员都是在当地时间的31日深夜才被通知需要异地隔离的。这些民众随后就被几十辆封闭的大巴车先后运往西安市郊以及周边的太康、宝鸡等地。在几十辆大巴车均已满载之后，当地甚至还出现了市民们深夜徒步赶往隔离点的情况，而路边还跟随着一辆辆的中共警车来维持现场秩序。
+* * *
 
-有被隔离人员爆料，转移当天防疫人员未曾提供给民众们任何的防护、消毒措施，大家都被迫在几十人的大巴车中密闭了两个多小时，彼此间交叉感染的风险大幅提高。而车上的老人、儿童、孕妇等特殊人群在运送途中想要上厕所都不被相关人员允许，只能被迫在原地解决，所有被隔离人员在转移过程中毫无尊严、甚至毫无人权可言。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_105.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_117.jpg)
 
-据微博消息称，目前仅西安枫叶高层小区、明德八英里小区及糜家桥小区等三个封控小区就已有一千多人被拉至市郊公租房进行集中隔离。此外，还有西安航空学院两个校区的数千名学生已被紧急转运到陕西省南部进行异地封闭隔离。而这一消息已被当地的市疾控中心证实。据西安市民的曝光视频显示，异地隔离点的设施十分简陋，床具只有上下铺，配发的被褥很薄，也没有暖气等取暖设备。每间房还需同时入住七、八个隔离人员，人与人之间的交叉感染风险大大增加。
 
-有知情人士透露，西安政府此举完全是出于对自身政绩的考量，却不顾普通民众的死活。大规模的异地转移隔离政策不仅更加地劳民伤财，同时还极大地增加了被隔离人员的交叉感染风险，使当地的阳性病例大幅上升。但按照当前的防疫规定，这些转移之后的新发病例就会属于集中隔离期间的发病病例，与社区传播再无关联。当地政府依此政策也就消除了自身防控不力的种种罪证，同时也实现了所谓社会层面的一夜清零。
+[【PDF 下载】Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-编辑/校对/发稿：菩提树
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
