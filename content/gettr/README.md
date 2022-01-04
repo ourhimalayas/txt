@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 1:52 PM (UTC)`
+
+1月4号：我的那乖乖来……这个世界变化太大了<br/><br/>Incredible tweet from Turley who is NO trump fan<br/><br/><br/>You should reach out Jason <br/><br/><br/>Jonathan Turley (@JonathanTurley) Tweeted:<br/>Twitter is continuing to crackdown on conservatives and those who espouse dissenting views. The latest bans, however, led to Joe Rogan to move over to Gettr. https://t.co/LjZLwV0WdV Much like the MSM, Twitter seems to be ditching half of the country. https://t.co/bQDr3tJcXq<br/>https://twitter.com/JonathanTurley/status/1477992218506018817?s=20
+![img](https://media.gettr.com/group35/getter/2022/01/04/13/c9b8beaa-9da4-314d-b0c1-682dd5503e64/7f02ae0fb1eae4c8ece7b8e99e242602.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@missionisgreat 1/4/2022 5:11 AM (UTC)`
+
+MALONE: “Where the country is going is where Joe Rogan just went, from Twitter to GETTR.” 
+![img](https://media.gettr.com/group16/getter/2022/01/04/05/ec0639ba-9b4e-94fb-cc2e-f146108a5da5/out.jpg)
+
+---
+
 `@miles 1/4/2022 6:00 AM (UTC)`
 
 2021 Year In Review<br/><br/>2021年大事回顾
@@ -143,22 +159,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/1/2022 Miles Guo: 2022 will be a year of catastrophes for the CCP, there will be flooding and agricultural disasters in China, and brutal and bloody political infightings will accompany the 20th Party Congress. People all over the world will be facing the darkness brought by the disasters of the CCP virus and COVID vaccines. Citizens of the New Federal State of China should take actions in unity, stay faithful, and make our financial and media sectors even stronger. We will definitely win in 2022!<br/><br/>1/1/2022 文贵直播：2022年将是灾难的一年，国内将发生洪灾、农灾，中共20大将发生血腥内斗，世界将面对病毒和疫苗灾难带来的黑暗；新中国联邦人要团结、坚持信仰、做强做大金融和媒体 - 2022年，我们一定会赢！<br/><br/>
 ![img](https://media.gettr.com/group29/getter/2022/01/03/07/2c3bd06c-a9f7-78f0-ea29-8e2059afdee4/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 1/2/2022 11:19 PM (UTC)`
-
-Thank you for joining #GETTR, @JessicaVaugn! We’re glad to have you here!!!
-> `@jessicavaugn 1/2/2022 10:04 PM (UTC)`<br/>It’s 2022 and we will be free. Thank you for the follow! 
-![img](https://media.gettr.com/group16/getter/2022/01/02/22/f2946c97-18a6-3a78-8bdd-07bbbb26b13c/cf4d6dd5d08b9664e2ee580f69a9659d.jpg)
-
----
-
-`@miles 1/2/2022 10:02 PM (UTC)`
-
-1月2号：@joerogan 今天整天很匆忙的一天. 各位請務必分工合作.  我們今天有5個緊急的bugs得解決. 以及幾個大v的貼心服務. 至於被黑的統計, 其餘有空的人可以幫忙分享一些數據證明. 我們兩天前已開始關注這被黑的可能性. <br/>https://www.washingtonpost.com/national-security/china-harvests-masses-of-data-on-western-targets-documents-show/2021/12/31/3981ce9c-538e-11ec-8927-c396fa861a71_story.html <br/>12/31/2021 华盛顿邮报报导，中国正把对国内网络的监控手段转为对外，深入搜集脸书、推特等西方社群媒体的数据，为政府机构和军警单位搜集外国目标的情资。<br/>华盛顿邮报（The Washington Post）报导指出，中国过去10年开发出「舆情分析软件」，大范围监控国内网友和媒体的政治敏感言论，而该报审查300多份中国政府从2020年起对外招标的文档、合同和公司档案发现，中国开始把这套手段用在海外，采购软件从推特（Twitter）、脸书（Facebook）和其他西方社群平台搜集情资。
 
 ---
 
