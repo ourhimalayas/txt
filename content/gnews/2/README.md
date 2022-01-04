@@ -2,10 +2,10 @@
 ---
 
 
-## 东京2号感染中共病毒的84人中有43人已打过2针疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1819713/)
+## 美国国防部长奥斯汀感染中共病毒 之前已打过3针疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1819721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220104-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220104-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

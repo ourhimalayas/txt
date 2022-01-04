@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|泽连科医生染疫后用羟氯喹自行治愈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819297/)
+## 第205期玫瑰看新聞-新西蘭本地新聞
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1819308/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月31日，大力推广中共病毒治疗指南的泽连科医生在盖特平台上发布了一条视频表示，他本人在4天前感染了中共病毒，但在按时服用过羟氯喹后已经痊愈。
+新西蘭本地新聞:
 
-泽连科医生自述，他患病的原因可能是感染了孩子无意中从学校带回的中共病毒，此外，其自身并没有完全依照自己的建议服用预防药物。
+1.最新通報：社區新增144例，又一病例死亡
 
-医生表示，他在4天前开始出现喉咙痒及流鼻水等症状，但并没有伴随发烧症状，同时，他也在症状出现后立即使用了羟氯喹作为治疗，目前其身体已恢复正常。
+2.奧克蘭北部突發大火，40名消防員、數架直升機趕往滅火
 
-原文链接：[泽连科医生染疫后用羟氯喹自行治愈](https://gnews.org/zh-hans/1815508/)
+**推出問題，敲出真相，爆料在路上！**
 
-音频处理：喜山必胜Maverick
+**請關注和訂閱我們的以下帳號：**
 
-发稿：Daxia
+**新西蘭伊甸農場蓋特**：https://gettr.com/user/himalayanz
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+**【玫瑰看新聞】蓋特**：https://gettr.com/user/rosenews
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**玫瑰看新聞****YouTube****帳號**：
 
+**玫瑰看新聞**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新聞】推特帳號**：
+
+**Rose News (@RoseNews4)**
 
  
 

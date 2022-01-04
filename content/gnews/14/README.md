@@ -2,52 +2,31 @@
 ---
 
 
-## 研究显示减肥可大大降低中共病毒重症发生的可能性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1819527/)
+## 通胀高企，土耳其人钱袋持续缩水
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819549/)
 
-**作者**：纽约香草山翻译部-defiance
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+伊斯坦布尔，1月3日（路透社）—土耳其在刚刚过去的12月数据显示年度通货膨胀率已经飙升至36.1%，是19年以来的最高值。食品和交通等在2021年期间占家庭预算的份额越来越大，上涨速度越来越快。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-5.jpg)
+土耳其货币里拉去年贬值了44%，从年初的1美元对7.43里拉贬值到年末的1美元对13.3里拉。但是政府为了扩大出口和提高信贷持续降低利率。一些经济学家预测，除非货币政策的方向得到扭转，否则通货膨胀率到春季可能达到50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+普通老百姓有限的薪资提升不能抵消交通和食品等主要支出的大幅上涨。人们开始减少不必要开支，比如上咖啡馆享受一杯拿铁，更有许多人开始领取政府补贴面包。
 
+参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021.12.31-04.55-redvoicemedia-61ce8d41b677a.jpg)
-
-据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
-
-“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
-
-这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
-
-新闻链接：
-
-[https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/](https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-***总编：文真***
-
-***校对/发稿：遍地开花***
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
