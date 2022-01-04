@@ -42,53 +42,53 @@
 ### [中共教育部以“双减”为由大力整顿校外培训机构](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2022年伊始恒大再次在港股停牌](/content/gnews/10/README.md)
+### [2022年将是国内民众最穷困的一年](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [中共国可防可控的不是病毒，而是人民](/content/gnews/11/README.md)
+### [2022年伊始恒大再次在港股停牌](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [有声|研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/12/README.md)
+### [中共国可防可控的不是病毒，而是人民](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [有声|研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/13/README.md)
+### [有声|中国人只有在自己国家站起来，才能在世界上被尊重](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|郭先生谈五行与爱](/content/gnews/14/README.md)
+### [有声|郭先生谈五行与爱](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/15/README.md)
+### [有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅币一周分析与总结（12月27日-1月2日）](/content/gnews/16/README.md)
+### [有声|喜马拉雅币一周分析与总结（12月27日-1月2日）](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|欧洲中共病毒确诊病例超一亿人](/content/gnews/17/README.md)
+### [有声|欧洲中共病毒确诊病例超一亿人](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|梅西接种疫苗后依旧感染](/content/gnews/18/README.md)
+### [有声|梅西接种疫苗后依旧感染](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|播客超级明星乔-罗根加入盖特——自由的发声平台](/content/gnews/19/README.md)
+### [有声|播客超级明星乔-罗根加入盖特——自由的发声平台](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/20/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本将与澳大利亚签署防卫协议](/content/gnews/21/README.md)
+### [日本将与澳大利亚签署防卫协议](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [7·24系列——盘古龙头的东西中轴线上有什么？](/content/gnews/22/README.md)
+### [7·24系列——盘古龙头的东西中轴线上有什么？](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [接受得了别人说反话 能听进去不同的话](/content/gnews/23/README.md)
+### [接受得了别人说反话 能听进去不同的话](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国人民银行原党委书记、主任牟善刚接受调查](/content/gnews/24/README.md)
+### [中共国人民银行原党委书记、主任牟善刚接受调查](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [防卫省开发轨道弹：科幻和动漫走进生活](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését](/content/gnews/26/README.md)
  ` 澳喜农场`
