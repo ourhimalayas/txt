@@ -2,20 +2,13 @@
 ---
 
 
-## 【速报】今日日本中共病毒感染人数破千
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821215/)
+## 一位来自澳大利亚郭文贵和班农的粉丝推广盖特
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821231/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-199.png)[图片来源](https://www3.nhk.or.jp/news/html/20210130/k10012841371000.html)
-据日本媒体报道，截至4日下午5点，日本全国感染中共病毒的人数达到1057人，这是自去年10月6日以来，近三个月首次在一天内感染人数超过1000人。
+12/31/2021 一位来自澳大利亚郭文贵先生和班农先生的粉丝：郭文贵先生告诉我们有关中共病毒的消息大约三个月后我们才能明白，所以他领先于事态的发展，因为他知道真相。希望郭先生健康，平安，继续揭露真相！
 
-4日，东京有151人确认感染，大阪有124人，冲绳县有225人。广岛县的确诊感染人数也超过了100人。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-信息源：[【速報】新型コロナ　全国の感染者数が1000人超　およそ3カ月ぶり](https://news.yahoo.co.jp/articles/44ef9ead78e97c5243f4709af00d66b70ce0badc)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

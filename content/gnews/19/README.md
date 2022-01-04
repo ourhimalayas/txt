@@ -2,58 +2,22 @@
 ---
 
 
-## 全球疫情更新（美国今日新增病例突破百万）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821226/)
+## 借花献佛假慈善——港府速批54万元助中共援助菲律宾风灾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821283/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-40.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月4日）
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/J6YaWJ8E1hT-dnaiFOEZOjPiRMNo_UBn5ryOX5tzJmzBO2jAkVICHGHYTHn4i_MTTl3dDymuqwacITmgUlTsbnSyoMhizi4Y5ZIFbPp72ao7jmAJs7QQSHy4gNhnTs_2-CX1zXCA)[图片来源](https://hk.epochtimes.com/news/2022-01-04/4675218)
+港府昨日（3日）公布，从赈灾基金批出54万元的拨款予爱德基金会（香港）为菲律宾风灾灾民提供食物。爱德基金会（英语：The Amity Foundation）是与[中国基督教协会](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E5%9F%BA%E7%9D%A3%E6%95%99%E5%8D%8F%E4%BC%9A)有关联的团体，本部在[南京](https://zh.wikipedia.org/wiki/%E5%8D%97%E4%BA%AC)。拨款是按赈灾基金咨询委员会设立的快速审批拨款申请机制批出。有关机制旨在加快处理拨款申请，让救援机构能够在灾祸发生后第一时间进行首阶段的赈灾工作。发言人说：“按程序，爱德基金会（香港）在完成赈灾计划后，会向委员会呈交评估报告及经审核的账目。”
 
-**一，全球疫情基本数据**
-感染总数：292,155,190（日新增1,522,713，14天增幅+127%）
-死亡总数：5,446,606（日新增 5,907人，14天增幅–14%）
-每万人感染人数：451.0160 人（除中国外）
+香港社会曾经非常富庶，每逢有地方出现天灾，香港的慈善团体都能迅速筹集巨额的资金用于赈灾。自从2018年内地红十字会丑闻曝光，连累香港红十字会筹款进度，加上中共残酷镇压香港的民主运动，2019年武汉疫情惨重，港府和亲共团体发起捐款，但香港人史无前例的冷淡，最后由财团、建制党派及亲共组织自筹了些钱上贡给了中共。中共将病毒散播到世界各地拖累各国的民生状况，自己也没讨上好，国内疫情失控，党内权力斗争异常残酷激烈，人为制造各种灾害将同胞们困于水生火热之中。
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：92.1亿
-完全“接种”：38.8亿人
-完全“接种”百分比：49.8%
+短短的两年的时间，香港已经被中共摧残成“死港”，民主、自由和法治全部失去，港口关闭、贸易没落、外资撤出、移民潮持续，国际社会对中共的管制骂声一片；港人面对高失业率、高消费、强制新冠毒疫苗接种、国安高压等营造的恶劣生存环境，不但得不到港府开仓解决民生疾苦，反而成为港府支持中共对外蓝金黄的牺牲品，港府从港人的荷包中掏出所剩不多的财政储备去援助中共的穷兄弟。被中共赤化的香港已是水深火热，港人的苦日子还只是刚刚开始。
 
-**三，澳洲疫情和“疫苗”数据**
-感染总数：547,162（今日新增 47,813人）
-死亡总数：2,270人（今日新增 4人）
-每万人感染人数：191.0031人
-“疫苗”毒针注射总数：42,831,533 t   （日新增44,533针）
-完全“接种”：18,872,228人
-第二针“接种”百分比：77.0%%
-16岁以上人口接种至少一剂疫苗的比例：94.4%
-16岁以上人口接种至少两剂疫苗的比例：91.5%
+资料来源：[**港府速批54万元拨款援助菲律宾风灾灾民**](https://hk.epochtimes.com/news/2022-01-04/4675218)
 
-**四，疫情要闻**
-
-澳大利亚病例新增数字继续暴增，接近五万人，感染总数超过五十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量急剧增加，有 1204 人正在接受治疗。这个数字比昨天增加了 138例。重症监护室有 95 人，比昨天增加了 12 人。其中 ICU 中的 25 人需要呼吸机。
-
-而美国今天创造了每日新增病例突破100 万的全球记录。在英国，疫苗机构（JCVI）负责人告诉《每日电讯报》，每六个月向人们提供加强针是“不可持续的”。JCVI 主席安德鲁·波拉德爵士教授说，在有更多证据之前，不应进行第四次 加强针注射。他告诉该报，未来“我们需要针对弱势群体”，而不是向所有 12 岁及以上的人提供加强针。“在某个时候，社会必须开放，”他说，并补充说试图预防所有感染是没有意义的。
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
