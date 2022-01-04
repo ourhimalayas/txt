@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 3:26 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group44/getter/2021/12/14/09/6bf02752-1fa8-0221-fdda-69706d5eceaf/ce0fc8d4aa1226b2f69c405e18955801.jpg)
+
+---
+
 `@miles 1/4/2022 3:16 PM (UTC)`
 
 1月4号，Hcoin To the Moon MV上线第26天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1821943/<br/><br/>Jan 4th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 26th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1821944/
@@ -150,13 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/1/2022 Miles Guo：2022 will be very exciting, and there will be huge challenges. The only opportunity and market of social media left is for us. The United States, Europe, and Japan are the three places of fierce attacks, and we must be fully psychologically prepared and insist that only truth is indestructible. We will definitely have another great harvest year in 2022, but you have to work hard before the harvest.<br/><br/>1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。<br/>
 ![img](https://media.gettr.com/group42/getter/2022/01/03/07/81046d91-f2aa-631e-e18f-2126bc9cd3a5/out.jpg)
-
----
-
-`@miles 1/3/2022 7:31 AM (UTC)`
-
-1/2/2022 Miles Guo’s GETTR: Staying alive is of paramount importance! You’d better stay away from the modern life powered by electricity in tall buildings; forget about the fancy meals and keep food in stock; things like gold and diamonds that cannot be traded for life necessities are going to be useless; the disasters caused by the COVID vaccines and the CCP virus have yet started, but you will see the day when the CCP is taken down as long as you can survive<br/><br/>1/2/2022 文贵盖特：活下去最重要！最好远离电气化和高楼大厦的生活；不讲究吃，但要有粮食；不能兑换物质的黄金、钻石不管用；疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天<br/>
-![img](https://media.gettr.com/group12/getter/2022/01/03/07/98a1bcc8-d368-9dd2-baa5-d42e25bda69d/out.jpg)
 
 ---
 
