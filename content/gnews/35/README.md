@@ -2,34 +2,35 @@
 ---
 
 
-## 中共疫情扩散 河南禹州封城
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821722/)
+## 中共借疫情施暴政，苟延残喘
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1821828/)
 
-作者：纽约香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒1月3日报道，继中共国陕西省西安市疫情失控之后，近期河南洛阳市下辖的新安县与禹州市，也相继爆出疫情。目前，禹州市已全程封闭管理，辖区内人员只能进不能出。全市处于停运、停工、停课的大停摆状态。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.08.png)
-禹州市于当地时间1月2日发现2例本土无症状感染者，当晚官方即发出封城禁令。通告还要求该市内所有公交车、出租车、网约车，以及客运班线等全部停运，全市各类中小学校立即暂停线下教学。
+作者：纽约香草山健身部–Jack Li文阳
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+据了解，近日，郑州发生的所谓疫情，出现了市民断粮断菜，被禁止出小区，能够买到的菜既贵又少。更有消息说任何人都不能购买指定供应之外的蔬菜等物品，一经发现黄码处理。甚至病人都不能去医院看病，需要化疗、透析等急重病人只能在家受尽煎熬，足月的孕妇要准备“自力更生”。还有网友发出照片，某小区的一千多市民被大巴拉去强制隔离，隔离房只有简单的铁架床，没有取暖设备。市民质疑：为何不能在自己家里隔离，非要全家老小去别的地方隔离。还要坐挤满人的巴士，不怕交叉感染吗？
 
-有知情人士透露，此次禹州迅速封城的主要原因是疫情源头未知，这也预示着禹州的中心区域可能已出现交叉感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郑州.png)
 
-网民表示，中共“一刀切”的防疫政策，不仅未能根除疫情，连普通民众的基本维生也难以保障，社会心理、法治、经济等体系都已承受不起。
+在中共国，郑州不是第一个封城的城市，武汉、南京、广州、通化、瑞丽等地在前，为何仍然使用看似简单粗暴恶劣的处理方式呢？
 
-参考链接：[河南疫情扩散 禹州全域封闭 停运停课](https://www.epochtimes.com/gb/22/1/3/n13478417.htm)
+当今的中共国，国内政治内斗剧烈；经济上百业俱废，房地产、金融濒临崩溃边缘，失业率高企；国际上，全世界大多数国家都要与其脱钩。中共政权岌岌可危，单纯的靠搞文革，习近平已没有十足的底气能够为中共续命。为了巩固邪党统治，就得要把老百姓玩弄在饱饿边缘。中共认为饿了的人是不会胡乱思想的，他们只有一个想法就是要吃饱饭，活下去。以习近平一家独裁的中共为了达到一己之私，把疫情作为统治和奴役人民的法宝。当它发觉哪个地方的老百姓不好带了的时候，疫情就象鞭子一样抽过来。中共将商鞅五术变本加厉，登峰造极。竟然使出限制急重病人看病如此恶毒的手段，那所谓的隔离营，其实就是集中营，都是给不听话的人准备的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+中共现在的暴政，超越了历史上所有的暴君。中共施放病毒导致的灾难，令全人类也因此跌入历史上最黑暗的深渊。所幸的是，人类不该死绝，也不会回到奴隶社会。地球人有新中国联邦，有爆料革命，中共必灭，人类定会回归正常。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑/校对/发稿：菩提树
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

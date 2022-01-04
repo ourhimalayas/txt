@@ -2,38 +2,40 @@
 ---
 
 
-## 为实现硬性“清零” 大批西安民众被迫异地隔离
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821721/)
+## 有声|港共政府或将继续抓捕立场新闻相关人员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1821766/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.39.png)
-所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
+配音：香草山巡管部 – 文凯琳
 
-这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
 
-有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间2022年1月1日，港共政府警务处处长萧泽颐在出席活动时声称，由于《立场新闻》高层涉嫌《国安法》定义的“串谋发布煽动刊物”罪，除了已经抓捕归案的6名人员，不排除将有更多人被捕。
 
-参考链接：
-1）[https://gettr.com/post/plkvl848b7](https://gettr.com/post/plkvl848b7)
-2）[https://gettr.com/post/plf4s28b20](https://gettr.com/post/plf4s28b20)
-3）[https://gettr.com/post/plnqiua97c](https://gettr.com/post/plnqiua97c)
-4）[https://gettr.com/post/pll5m660ad](https://gettr.com/post/pll5m660ad)
+据悉，港共政府于2021年12月29日抓捕了6名《立场新闻》的高层人员，并冻结其6100万港元的资产。目前，香港警方正在通缉《立场新闻》母公司的两名董事。
 
+对此，香港联会长冯玉兰则表示，截至目前，港共政府仍未出具任何证据表明《立场新闻》属于煽动性出版，相反的，《立场新闻》只是实现了作为独立媒体应该承担的守住真相、说真话的责任。而冯玉兰也指出，这恰好是专制的中共政府最不能接受的行为。
+
+冯玉兰还补充道，中共对香港的打压是全方位的，其借由《国安法》强力抹杀香港所有的核心价值。这当中，香港的新闻自由被进一步压制，这种打击甚至将继续扩展到所有网络媒体和社交媒体平台，从而最终导致香港变成一个沉默无声的、没有围墙的大监狱。
+
+文字版原文：[港共政府或将继续抓捕立场新闻相关人员](https://gnews.org/zh-hans/1815161/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

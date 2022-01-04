@@ -2,80 +2,62 @@
 ---
 
 
-## 01/04/22 香港快讯 邹幸彤煽惑2021六四集结罪成 判囚15个月
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1822164/)
+## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822281/)
 
-搜集/整理：卡西欧
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0104fenmian.jpg)
-封面素材：独立媒体
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.02-AM.png)
-**1. ****邹幸彤煽惑****2021****六四集结罪成****   ****判囚****15****个月**** **
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-[据【独立媒体】01月04日讯，2021年六四悼念晚会遭警方禁止，已解散的支联会副主席邹幸彤被控于六四前，在社交媒体Twitter和《明报》发表文章，煽惑市民参与未经批准集结，邹不认罪受审，案件今早（4日）于西九龙裁判法院裁决。裁判官陈慧敏裁定邹罪成，批评她在庭上供称文章只是呼吁市民六四晚8时「在任何地点点起烛光」，是扭曲事实、推卸责任、逃避罪责；又指她对「坚守阵地」一词的解释，言词闪缩、态度回避，以支联会在维园举办了31年集会的背景，以及邹支联会副主席的身份撰文，「坚守阵地」明显是指维园。陈官最终判监15个月，其中10个月与2020年六四案分期执行，总刑期22个月。](https://www.inmediahk.net/node/社運/鄒幸彤煽惑2021六四集結罪成-判囚15個月-官批言詞閃縮、態度迴避)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-[邹于2021年六四当日被捕，提堂后不获准保释，直至8月5日向高院申请保释获批。惟警方于9月10日另起诉邹及支联会成员「煽动颠覆国家政权」和「没有遵从通知规定提供资料」罪，还柙至今。](https://www.inmediahk.net/node/社運/鄒幸彤煽惑2021六四集結罪成-判囚15個月-官批言詞閃縮、態度迴避)
+2019年末，中共向全世界发动生化武器战争，不断投放的生化武器病毒Covid-19(中共病毒或CCP病毒)，全世界善良的人们被生化武器战争阴云笼罩，不明真相的人们争相接种随后开始的Covid-19 Vaccine（中共病毒疫苗）。
 
-[邹另涉2020年六四集结案，被裁定煽惑及参与未经批准集结罪成，上月判处监禁12个月，现正服刑。](https://www.inmediahk.net/node/社運/鄒幸彤煽惑2021六四集結罪成-判囚15個月-官批言詞閃縮、態度迴避)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.13-AM.png)
-**2. ****林郑月娥否认特区打压新闻自由　反指西方国安法更严厉**
+在没有彻底查清病毒来源真相以前，实验性的Covid-19疫苗造成的疫苗灾难比Covid-19本身还要可怕得多！
 
-[据【香港电台】01月04日讯，网媒《立场新闻》和《众新闻》一星期内相继停运。行政长官林郑月娥说，有关做法是媒体自己的决定，不能将事件与香港的新闻自由直接挂钩，特区政府并无打压新闻自由，而是依法办事。](https://news.rthk.hk/rthk/ch/component/k2/1627315-20220104.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/dead-2022-beginning.jpg)
 
-[她又说，西方国家的国安法更严厉，如果两间媒体停运与《香港国安法》有关，西方国家亦没有新闻自由。](https://news.rthk.hk/rthk/ch/component/k2/1627315-20220104.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.24-AM.png)
-**3.****【政治酬庸】两前港高官获委任香港航天科技独立非执董**
+57岁的健康医生Dimitri Ndina在接种辉瑞COVID-19疫苗后不久因血栓死亡；49岁的纽约时报编辑Carlos Tejada于12月17日在韩国接种Moderna加强针后不到24小时死于心脏病；英国指挥家Tom Hammond在推特发布自己打了COVID加强针的推文后1周“突然死亡”；28岁的巴西歌手Cantor Maurílio在接种COVID-19疫苗6 周后，在录制新专辑时突然昏倒在自己的工作室里，Jardim América医院遭受了3次心脏病发作后去世；25岁的阿根廷足球运动员Diego Armando Montiel在接种COVID-19疫苗数月后去世；32岁的奥运跳水明星Ian Matos在接种COVID-19疫苗数月后去世；21岁的澳大利亚奥运自行车手Sarah Gigante在接种COVID-19疫苗后被诊断出患有心肌炎（myocarditis）和心包炎（pericarditis）的组合病症心肌心包炎（Myopericarditis）后不久去世……
 
-[香港航天科技（01725，升2.9%）宣布委任两名香港前高官出任独立非执行董事，他们分别为前律政司司长袁国强、前财库局局长陈家强，由昨天（3日）起生效。同时，罗志聪已辞任独立非执行董事，而林家礼博士则获调任为执行董事。该公司已转型增设航天业务，覆盖测控、制造与发射卫星等。](https://hk.epochtimes.com/news/2022-01-04/40228086)
+甚至真实死亡数据被漏报至少41倍的VAERS系统显示，过去的一年，因Covid-19疫苗导致的死亡人数比过去31年高出71倍。
 
-[据公布表示，陈家强现为新创建（00659，跌0.9%）、朗廷酒店投资（01270，升1.2%）、国泰君安（01788，升1.9%）及中海外（00688，升6.1%）的独立非执行董事；袁国强现为神华（01088，升0.3%）独立非执行董事。](https://hk.epochtimes.com/news/2022-01-04/40228086)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.32-AM.png)
-**4. ****林郑指下月****24****日起扩大疫苗气泡　进入场地至少要一针**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/All-Deaths-Reported-to-VAERS-by-Year.jpg)
 
-[据【香港电台】01月04日讯，行政长官林郑月娥宣布，将会在下月24日起，扩大「疫苗气泡」涵盖范围，要求市民要至少接种一剂疫苗，才能进入表列处所及其他特定场地，包括食肆、学校及图书馆等。她又话，现阶段不会收紧社交距离措施，亦不会宣布停课，否则对学生的影响好大。](https://news.rthk.hk/rthk/ch/component/k2/1627308-20220104.htm)
+如果灭共者郭文贵（MileGuo）先生、新中国联邦不断的呐喊，如果上面这些血淋淋的数据都无法让世人从对政客的迷信中醒悟，但愿美国印第安纳波利斯（Indianapolis-based）的OneAmerica保险公司首席执行官Scott Davison（斯科特·戴维森）在本周的在线新闻发布会上给出的18至64岁的工作年龄人群死亡率，比中共发动生化武器战争（Covid-19）前高出40%的消息能够让世人从疫苗灾难中被唤醒！
 
-[林郑月娥又承认，本港出现OMICRON个案，无可避免影响与内地通关的进程，相信两地离正常通关仍需一段时间。](https://news.rthk.hk/rthk/ch/component/k2/1627308-20220104.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.41-AM.png)
-**5. ****本港暂停进口葡萄牙、英国和波兰部分地区禽肉禽类产品**
+18-64岁的工作年龄人群死亡率飙升40%是什么概念？
 
-[据【香港电台】01月04日讯，食物安全中心宣布，因应世界动物卫生组织及波兰兽医检查总署分别通报，指葡萄牙圣塔伦区、英国诺福克郡King’s Lynn & West Norfolk区，及波兰下西里西亚省Milicki区和Średzki区爆发高致病性H5N1禽流感，本港暂停从有关地区进口禽肉及禽类产品。](https://news.rthk.hk/rthk/ch/component/k2/1627285-20220104.htm)
+首先在中共发动生化武器战争（Covid-19）以前，200年一遇的灾难也最多导致工作年龄人群死亡率增加10%！
 
-[根据政府统计处的资料，本港去年首九个月并无从葡萄牙进口禽肉或禽蛋，同期从英国进口约70公吨冰鲜禽肉、约2970公吨冷藏禽肉及约25万只禽蛋，以及从波兰进口约4070公吨冷藏禽肉及约2482万只禽蛋。](https://news.rthk.hk/rthk/ch/component/k2/1627285-20220104.htm)
+同时意味着购买团体人寿保险单的雇主将不得不支付更高的保费！
 
-[中心已就事件联络葡萄牙、英国及波兰当局，并会继续密切留意世界动物卫生组织及有关当局发出关于爆发禽流感的消息，因应当地疫情发展，采取适当行动。](https://news.rthk.hk/rthk/ch/component/k2/1627285-20220104.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.13.50-AM.png)
-**6. ****数字人民币试点版****App****正式上架**
+更多无法妇女再次怀孕！
 
-[据【Now新闻台】01月04日讯，由人民银行数字货币研究所开发的数字人民币App，属中共国法定数码货币，即日起在安卓及苹果的应用程式商店开放下载。](https://news.now.com/home/finance/player?newsId=462181)
+美国现在和未来面临着经济和劳动力方面的危机！
 
-[营运机构在试点地区及场景拓展的白名单用户，可注册数字人民币App，开通及管理个人钱包，以及兑换数字人民币等，提供服务的机构包括四大国有银行(工商银行、中国银行、建设银行、农业银行)、交通银行、招商银行及邮储银行等。](https://news.now.com/home/finance/player?newsId=462181)
+尽管目前印第安纳州的数据显示，COVID-19造成的每日死亡人数的移动平均值不到一年前的一半。在一年前的COVID-19大流行高峰期，2020年12月29日一天就有125人死亡。在过去三个月中，一天中死亡人数最多的一天是12月13日，一天中有58人死亡。
 
-[此外，数字人民币试点已增至11个，包括上海、海南、西安、深圳、成都及北京冬奥会场等。](https://news.now.com/home/finance/player?newsId=462181)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.14.01-AM.png)
-**7.****【推****5G****业务】长和完成合并印尼电讯业务****   ****料年收益约****30****亿美元**
+千万不要被这种假像所迷惑！
 
-[据【Now新闻台】01月04日讯，长和公布，完成与一家国际通讯公司合并印尼业务，将成为当地第2大流动电讯公司。](https://news.now.com/home/finance/player?newsId=462182)
+印第安纳州首席医疗官Lindsay Weaver博士在与州长 Eric Holcomb 举行的一次新闻发布会上说，该州的住院人数现在高于COVID-19疫苗推出之前，也高于过去五年的水平。
 
-[长和表示，这个总值60亿美元的合并议案，已获得所有股东及监管部门批准，并完成交易，合并后公司将结合双方高度互补的业务，带来成本效益、带动创新及提升网络技术，包括在印尼推出5G网络，预期每年收益约30亿美元。](https://news.now.com/home/finance/player?newsId=462182)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.14.13-AM.png)
-**8. ****美联独家销售恒大楼盘****   ****有信心收到售楼佣金**
+目前该州医院仅有8.9%的ICU床位可用，这是今年的最低水平，并且低于COVID-19疫苗推出之前的任何时候。只有37%ICU病床被COVID-19患者占用，而54%的ICU病床被患有其他疾病或病症的人占用。现在，印第安纳全州的医院都挤满了“病情各异”的患者，印第安纳州人的平均健康状况有所下降。
 
-[据【香港电台】01月04日讯，美联物业获屯门「恒大·珺珑湾」独家销售代理委托。美联物业住宅部行政总裁布少明表示，有信心可以收到售楼佣金。](https://news.rthk.hk/rthk/ch/component/k2/1627294-20220104.htm)
+说明COVID-19疫苗灾难有多么严重！
 
-[布少明未有透露发展商恒大就独家销售代理委托，向公司支付多少佣金，以及恒大现时欠公司几多佣金；亦不评论其他地产代理行追讨恒大佣金的事件。今次销售涉及逾200个单位。](https://news.rthk.hk/rthk/ch/component/k2/1627294-20220104.htm)
+接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）](https://gnews.org/zh-hans/1822355/)
 
-[另外，中原地产表示，由于「恒大·珺珑湾」未有依期缴付佣金，公司第4度入禀追讨佣金135.6万元，连同之前3次入禀，合共追讨佣金逾1.14亿元，涉及单位数目528个。](https://news.rthk.hk/rthk/ch/component/k2/1627294-20220104.htm)
+参考数据：
 
-[公司表示，不排除考虑向发展商提出清盘呈请，公司已于去年底停止相关楼盘销售，并拒绝接受发展商提出的不平等合作条款。](https://news.rthk.hk/rthk/ch/component/k2/1627294-20220104.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-04-at-10.14.23-AM.png)
-**9. ****中移动拟下月****7****日后回购香港股份**
+[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
 
-[据【香港电台】01月04日讯，中国移动公布，由于人民币股份发行已经完成，在人民币股份发行超额配售选择权行使期于下月7日届满后，公司计划行使授权下的权力，在联交所场内购回香港股份。有关计划已经获董事会通过。](https://news.rthk.hk/rthk/ch/component/k2/1627323-20220104.htm)
+[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
 
-[集团在公告指出， 去年4月29日举行的股东周年大会表决通过授权董事会在联交所购回香港股份，数目不超过股东周年大会当日已发行香港股份数目10%，相当于约20.48亿股。](https://news.rthk.hk/rthk/ch/component/k2/1627323-20220104.htm)
+[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
 
-[公司去年5月17日公布发行人民币股份。由于香港上市规则不允许公司进行任何购回后30日内发行或公布发行普通股，公司在不影响人民币股份发行时间表前提下，无法行使购回股份的授权。](https://news.rthk.hk/rthk/ch/component/k2/1627323-20220104.htm)
+[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
 
-校对 / 封面合成：文粤 / 发布：流光飞舞
+[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
