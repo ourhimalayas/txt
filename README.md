@@ -15,59 +15,59 @@
 
 ---
 
-### [CDC承认PCR测试是骗局](/content/gnews/1/README.md)
+### [人生的十二条法则: 说话时，语言要精确](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：提醒自己他懂的一些东西我可能真的不懂](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [人生的十二条法则：说实话，或者至少不要说谎](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [CDC承认PCR测试是骗局](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/01/01新年直播精要](/content/gnews/2/README.md)
+### [2022/01/01新年直播精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由有时是凌乱的，但它改善了一切](/content/gnews/3/README.md)
+### [自由有时是凌乱的，但它改善了一切](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [雅典娜时报-第164期](/content/gnews/4/README.md)
+### [雅典娜时报-第164期](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/5/README.md)
+### [中共国在胁迫和共识之间日益失衡的关系](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/6/README.md)
+### [人生的十二条法则：追求有意义的事情而非快速便捷的事](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [西媒头条 — 第145期](/content/gnews/7/README.md)
+### [人生的十二条法则：在批评世界之前，先把自己的房间收拾干净](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [西媒头条 — 第145期](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/8/README.md)
+### [人生的十二条法则：不要让孩子做一些会导致你讨厌他们的事情](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/9/README.md)
+### [Vice记者杨贝贝是中共的一杆枪，为什么采访郭文贵先生的结果却是中共受伤呢？](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [人生的十二条法则：我们比较的对象应该是昨天的自己，而非今天的他人](/content/gnews/10/README.md)
+### [人生的十二条法则：我们比较的对象应该是昨天的自己，而非今天的他人](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [中共入侵台湾会是什么样子](/content/gnews/11/README.md)
+### [中共入侵台湾会是什么样子](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人生的十二条法则：谨慎择友](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [聊聊盘古风水的那些事](/content/gnews/13/README.md)
+### [聊聊盘古风水的那些事](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/14/README.md)
+### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人生的十二条法则：把自己当做一个“需要帮助的人”来对待](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [人生的十二条法则：挺起你的胸，背直起来！](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/17/README.md)
+### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [小米MIUI13系统内置反诈功能 以反诈名义监控大众](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
 
 ### [福奇：打了疫苗和加强针也要留在家里](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
