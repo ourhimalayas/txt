@@ -2,11 +2,13 @@
 ---
 
 
-## 1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1818424/)
+## 美国国防部长奥斯汀感染中共病毒 之前已打过3针疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1819721/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220104-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,46 @@
 ---
 
 
-## 中国央行推出安卓和iOS版数字人民币钱包应用程序
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820854/)
+## 青蒿素修复基因缺陷对中风糖尿病癌症妇科病有绝对奇效
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1821145/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**郭文贵先生**：还有再说青蒿素，青蒿素是神药。昨天飞飞给我发信息，让我问科学家，说青蒿素啊，整个是到底是对这个蛋白这块是到底是什么情况。我这不懂，赶快给科学家转发。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/digital-yuan.jpg)
+科学家马上回来说，我不能代表屠呦呦发明者说任何话，但是青蒿素两件事是肯定的，修复基因的，修复基因的缺陷，他说几乎是天下最好的。哇塞，他说修复……青蒿素最大功能就是修复基因的缺陷。他说有些人吃了头晕呐，有副作用，严格讲是好事，他说除了要补铁之外，那说明你身体上需要修复，它在修复你的时候，敲敲打打的时候，你才有症状，越有症状越好。没有症状的，他说七哥就攻你的小弟去了。他说你就把洞……被子戳好几个洞，是吧，真的是这个他说。
 
+第二个他讲它这个特殊功能，他说整个青蒿素是目前看来在自然中的药当中，除了恢复基因的缺陷之外，对身体里的癌细胞，他叫着说个什么词啊？两个字，他说是几乎是百分之百的杀伤力。
 
- 
-图片来源：asia.nikkei.com
+这是刚刚飞飞问我，我回答完飞飞之后，科学家告诉我的，特别对糖尿病、中风。我有个战友昨天要中风的事，几十年了，我问那个青蒿素群，我给他建议：你一定要吃青蒿素。他说青蒿素一定是对中风、糖尿病、癌症、妇科病啊，是有绝对奇效。
 
+伊维菌素就别提救多少人了，你就别提了。这每天救人就无数了，战友们。我印度的好几个朋友全家都不行了，完全不相信的原来，吃了伊维菌素、青蒿素全家恢复。美国人、欧洲人、希腊人多了去了，战友们。我们就每时每刻都在救人，一定要相信青蒿素、伊维菌素是救命的。
 
-#### 整理/编辑：小红帽
+字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
 
-根据《频道新闻亚洲网》1月4日报道， **随着中国央行加紧开发自己的数字货币，中国已在手机应用商店上发布了数字人民币钱包应用程序的试点版本。**
+编辑整理：Jacques；
 
-由中国人民银行（PBOC）数字货币研究所开发的“e-CNY（试点版）”应用程序于周二在上海在中国安卓和苹果应用程序商店开放下载。
+字幕文件制作：小满；
 
-该应用程序中的一条通知称，程序处于研发试点阶段，仅通过提供电子人民币服务的支持机构（包括国内主要银行）向特定用户提供。
+视频制作及上传：Cindy；
 
-中国人民银行行长易纲在 11 月表示，中国将继续推进央行数字货币的发展并改进其设计和使用，包括提高其与现有支付工具的互操作性。
+G-News发布：小满；
 
-在年终会议上，中国人民银行表示将继续推进数字人民币的研发。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-阿登纳基金会（Konrad Adenauer Stiftung）高级项目经理巴登海姆（Alexander Badenheim）曾于2020年10月份对《德国之声》驻北京记者说，**发行数字主权货币可能是中国政府重新控制国内金融的一种手段。**中国可能希望创建自己的国际支付机制，类似于SWIFT，帮助金融机构处理交易的代码。**新的数字货币国际支付机制将不由美元主导，而是由中国的数字人民币主导。**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-通过成为第一个主导数字货币领域的大国，中国有可能在全球经济中占据更强势位置，再也不担心受到美国制裁。**这是中国挑战美国全球主导地位的又一大步。**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-新闻来源：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-1、[China central bank launches digital yuan wallet apps for Android, iOS – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/business/china-central-bank-launches-digital-yuan-wallet-apps-android-ios-2414061)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-2、[中国在数字货币领域领先一步，但谁会跟着走？ | 经济纵横 | DW | 11.10.2020](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81%E9%A2%86%E5%9F%9F%E9%A2%86%E5%85%88%E4%B8%80%E6%AD%A5%E4%BD%86%E8%B0%81%E4%BC%9A%E8%B7%9F%E7%9D%80%E8%B5%B0/a-55184812)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-***发布：小红帽***
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
