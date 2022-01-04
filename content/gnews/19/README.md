@@ -2,12 +2,10 @@
 ---
 
 
-## 谭德赛书记要让未接种疫苗的打上疫苗，目标是70%接种率
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821400/)
+## 韩国19岁高中生，起诉政府疫苗政策负责人（厉害的年轻人-杨大林）
+` STHK` [轉載自GNews](https://gnews.org/zh-hans/1821560/)
 
-12/29/2021 谭书记说世卫组织的工作重心是让未接种疫苗的打上疫苗，目标是在2022年7月前达到70%接种率。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+STHK001
 
  
 

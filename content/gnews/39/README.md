@@ -2,27 +2,97 @@
 ---
 
 
-## 美寿险公司首席执行官称18-64岁的人中死亡人数增加了40%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1821146/)
+## 01/04每日播报|社媒消息：蓬佩奥 美国众议员特洛伊·尼斯 Troy Nehls
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1821223/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-24.png)
-图片来源：网络截图
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61d40c0d31a71619b5747c96)
 
-据零对冲1月3日报道，据总部设在印第安纳波利斯的保险公司OneAmerica的首席执行官斯科特·戴维森说，18-64岁的人的死亡率比大流行之前的水平上升了40%，这个数字令人吃惊。“我们现在看到的是这个行业历史上最高的死亡率，不仅仅是在OneAmerica，”这家自1877年开始运营，拥有约2400名员工的价值1000亿美元的保险公司的负责人说。
+**2022-01-**04
 
-中心广场网站称，这一增长代表了在主要的工作年龄的人中的死亡的巨大的数字，他们通过OneAmerica公司拥有雇主赞助的团体人寿计划。“我们在第三季度看到的，它将持续到第四季度，就是死亡率比大流行前上升了40%，” 戴维森在上周的在线新闻发布会上说。“只是为了让你知道这有多糟糕，一个三西格玛或200年一遇的灾难将比大流行前增加10%，所以40%是闻所未闻的，”他补充说。
+**1. 蓬佩奥1月4日发推说：** 距北京种族灭绝奥运会开幕只有32天了，世界开始正视我所看到的事情。 欧盟主席乌尔苏拉·冯德莱恩 (Ursula von der Leyen)和德国外交部长安娜莱娜·贝尔伯克 (Annalena Baerbock)用实际行动挑战中共可怕的人权政策，这很好！ 拒绝与中共对抗，允许中共破坏香港的自由、允许中共将生活在其境内的数百万人关押在拘留营，以换取中共减少碳排放，这在道德上是危险的，而且极不符合美国的行事方式。 【推文转政客 (Politico)报道，贝尔伯克说，她支持欧洲议会推动禁止所有与强迫劳动有关的产品进入欧盟市场。贝尔伯克还表示她不会参加北京冬奥会。但这是她的个人决定，而不是德国政府的官方路线。欧盟仍在就他们是否应共同参与外交抵制冬奥会进行内部讨论。欧盟主席乌尔苏拉·冯德莱恩在去年9月表示，她希望欧盟对强迫劳动产品实行进口禁令，但如何制定这一措施仍在讨论中。】
 
-据戴维森说，正在申报的大多数死亡并没有被归类为中共病毒所致。他说数据显示，被报告为因中共病毒的死亡人数大大少报了工作年龄的人因该大流行病而造成的实际死亡损失。他说：“他们的死亡证明上可能不全是中共病毒，但死亡人数增加了，而且是巨大的，”他补充说，该公司已经看到残疾索赔的“上升”，起初是短期，现在是长期。对OneAmerica来说，他预计这方面的成本将远远超过1亿美元，而这只是他们最小的业务。他说，这些成本将转嫁到购买团体人寿保险的雇主身上。
 
-在戴维森发言的同一新闻发布会上，印第安纳州医院协会主席布莱恩·塔伯说，全州的医院都被“患有许多不同疾病 ”的病人所淹没，他说在这场大流行中，印第安纳州人的平均健康状况有所下降，而且证实了戴维森引用的超高死亡率与该州的医院所看到的情况相符。
 
-印第安纳州首席医疗官林赛·韦弗博士说，现在印第安纳州住院的人数比一年前推出中共病毒疫苗之前还要高，事实上比过去五年的任何时候都要高。
+> 32 days out from the Beijing Genocide Olympics opening ceremonies. But the world is coming to see what I saw.
+> 
+> Good on EU President von der Leyen and German FM Baerbock for challenging China's terrible human rights policies with real actions. [https://t.co/hwEkU4dYDy](https://t.co/hwEkU4dYDy)
+> — Mike Pompeo (@mikepompeo) [January 3, 2022](https://twitter.com/mikepompeo/status/1478119562541473794?ref_src=twsrc%5Etfw)
 
-同时，中心网站的这篇文章在英国无法浏览。
 
-新闻来源：[Life Insurance CEO Says Deaths Up 40% Among Those Aged 18-64](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
 
+**2. 盖特新闻1月4日在盖特发文：** 油管删除了乔·罗根（Joe Rogan）对罗伯特·马龙博士的深度采访视频。 【盖文转《The Post Millennial》报道，油管指出该视频违反了该网站制定的社区准则，并将视频删除。马龙博士在采访中将当前的美国社会与1920年代和1930年代纳粹上台时的德国进行了比较，称美国社会正在“群体形成精神病（mass formation psychosis）”。马龙说：“当你所在的社会彼此脱钩，并伴有自由烦躁的焦虑，从某种意义上说，什么事情都没有意义，我们也无法理解。然后他们的注意力被一个领导者或一系列事件牵引至一个小点上，就像催眠一样。他们真的被催眠了，他们可以被引导到任何地方。”上周，马龙博士被推特禁言，他对此评论说：“我真的很努力地向人们提供信息并帮助他们思考，而不是告诉他们该想什么。但关键是，如果我不能参与谈话，即使我指出了科学事实，那么谁是哪个被允许说话的人呢？”】
+
+[https://gettr.com/post/plrxv9cebb](https://gettr.com/post/plrxv9cebb)
+
+**3. 美国众议员特洛伊·尼斯 (Troy Nehls) 1月4日发推说：** 今天，我将乔·罗根对罗伯特·马龙博士的采访全文提交给了国会议事录 (Congressional Record)。 大科技公司想限制你获得这些信息，但他们不能审查国会议事录。 你们也可以在我的个人网站上下载全文记录。 【推文转报道，尼斯议员说：“马龙博士在采访中提出了对新冠疫苗的担忧。推特将马龙博士禁言、油管删除他和罗根的采访视频，这是大科技公司对反对新冠疫苗和疫苗强制令的个人进行一系列审查的最新举措。推特和油管再次证明他们不是为用户工作，而是为大药厂、大媒体和精英们工作。当我们偏离了言论自由、表达自由和辩论自由的核心原则，民主就会丧失。大科技公司也许可以审查自己平台上的信息，但他们不能审查国会议事录。”】
+
+
+
+> 🚨BREAKING🚨
+> 
+> Today, I submitted the transcript from the [@joerogan](https://twitter.com/joerogan?ref_src=twsrc%5Etfw) experience podcast episode #1757 with Dr. Robert Malone to the Congressional Record.
+> 
+> Big tech wants to restrict your access to this information- but they cannot censor the Congressional Record.
+> — Congressman Troy Nehls (@RepTroyNehls) [January 3, 2022](https://twitter.com/RepTroyNehls/status/1478038517771128835?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> You can also read the full transcript on my website HERE: [https://t.co/M73ezBIQHJ](https://t.co/M73ezBIQHJ)
+> — Congressman Troy Nehls (@RepTroyNehls) [January 3, 2022](https://twitter.com/RepTroyNehls/status/1478059806657327110?ref_src=twsrc%5Etfw)
+
+
+
+**4. 《国家脉动》1月4日在盖特发文：** 中共部署“人工智能检察官”来鉴别异议人士。 【盖文转报道，中共开发了一种人工智能检察官，可以识别和建议对“异议人士和“寻衅人士提出指控。该工具由上海市浦东新区人民检察院打造与测试，根据案件口头描述，就能针对罪行进行起诉。“人工智能检察官”在一台标准的台式电脑上执行，内含2015年至2020年间的17000多个案例的数据，对于每个嫌疑人，它依据人类提供的案例文本中找寻1000 个“特征”来对上海最常见的八种犯罪进行起诉。其中一项罪名是“寻衅滋事”–这是一个经常被中共政府用来打压政治和社会异议及批评意见的术语。该项目的首席科学家石勇声称该系统的准确率为97%，并补充说“该系统可以在一定程度上取代检察官的决策过程”。然而，中共国的其他检察官对该机器的准确性表示担忧。广东省的一位检察官表示：“机器总有出错的时候，到时由谁来承担责任？检察官、机器、还是算法的设计者？”中共越来越依赖人工智能来实施其“社会信用评分”系统，它们以新冠大流行病为借口，实施疫苗护照。《国家脉动》此前曾披露，在新冠大流行病爆发的前一年，制药巨头辉瑞公司就与中共社会信用评分系统的首要平台阿里巴巴合作，推出疫苗护照。】
+
+[https://gettr.com/post/pltejz6842](https://gettr.com/post/pltejz6842)
+
+**5. zaq1868 1月3日在盖特发文**： 美联储正准备让金融体系崩溃以执行“大重启（The Great Reset）”计划。 【盖文转《Humans are Free》报道，在 Global Research发表的一份报告中，作者威廉·恩格达尔（F. William Engdahl）指出，美联储将与其他全球主义大国一起，以通胀导致成本上升为借口，打压美国金融市场。这将导致历史上最大的金融泡沫破灭，为“大重启”铺平道路。来自亚洲和北美的供应链中断，导致美国出现了四十年来最严重的通货膨胀危机。这为中央银行废除债务膨胀的系统、并为世界金融体系的大重启创造了条件。美联储正在为2022年的股市崩盘做准备，这将迎来真正的大萧条，甚至比1930年代更糟糕，从而导致普通美国人的储蓄归零。】
+
+[https://gettr.com/post/plmuff3001](https://gettr.com/post/plmuff3001)
+
+**6. 高级政策分析师卡丽·设菲尔德 (Carrie Sheffield) 1月3日在盖特发文：** 随着奥米炕病例的激增，人手不足的医院放宽了规定，重新聘用未接种新冠疫苗的员工。 【盖文转《正义报》（Just The News）报道，为了应对医护人员短缺，医院不得不采取权宜之计，重新雇佣旅行护士、救援人员和国民警卫队，来应对人手不足的问题。】
+
+[https://gettr.com/post/plnta57e1f](https://gettr.com/post/plnta57e1f)
+
+**7. Newsmax 1月3日在盖特发文： **NBC新闻的高级医学记者约翰·托雷斯（John Torres）博士说，奥米炕患者报告了夜间盗汗现象，他们说这是一种非常奇怪的症状。如果你开始生病，除非另有证明，否则你必须假设你感染了中共病毒。我的意思是，你应自己隔离并进行检测，以确保它不是中共病毒。” 【盖文转报道，英国国民医疗服务体系（NHS）的医生阿米尔·汗(Amir Khan)博士告诉《太阳报》说，盗汗是奥米炕变种的特有症状。还有喉咙发痒、轻微的肌肉疼痛、极度疲劳、干咳和盗汗是与奥米炕有关的所有五个症状。”】
+
+[https://gettr.com/post/plpp5gd819](https://gettr.com/post/plpp5gd819)
+
+**8. 莲心不染1月4日在盖特发文：** 最新研究结果显示：在从新冠感染中康复数月后，幸存者的抗体水平升高，这些抗体可能会错误地攻击自己的器官和组织，即使他们之前并未患上重症。 持续存在的自身抗体可引起关节、皮肤和神经系统的慢性炎症和损伤。 这就是理查德弗莱明博士自1994 年以来一直在谈论的炎症血栓形成反应机制。 这或许解释了郭文贵先生和爆料革命科学家的预警：所有得过新冠者，无论年龄大小，在 3-10 年内都将面临50%的淋巴或免疫系统癌症风险，所以他们需要后续排毒治疗。
+
+[https://gettr.com/post/plx4td7837](https://gettr.com/post/plx4td7837)
+
+**9. 李昂纳多1月3日在盖特发文： **NBA名人堂球员约翰·斯托克顿发声：“我们必须阻止他们用疫苗伤害我们的孩子。罗伯特马龙博士提到这种mRNA疫苗会伤害儿童，伤害他们的大脑、血管、心脏和生殖系统，并最终伤害他们的免疫系统，而这些都是不可逆的。这些都是疫苗发明者亲口说的。我实在不明白对孩子使用这个有毒疫苗的想法。我希望你们澳大利亚人能阻止疫苗强制令的蔓延，我们美国也将与之战斗。”
+
+[https://gettr.com/post/plkb3jcfaf](https://gettr.com/post/plkb3jcfaf)
+
+**10. 美国作家蒂姆·扬 (Tim Young)1月4日发推说：** 祝贺杰森米勒以及盖特团队的其他队伍，昨天盖特新增的注册人数超过了17万1千人，创下新高。各位赶紧去盖特注册账户，然后享受言论自由的社交媒体平台。 杰森米勒1月4日回复说： 如果你们看到盖特今天的注册人数接近多少时肯定会大声惊叹！
+
+
+
+> Just wait till you all see what today’s [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) signup numbers close at…WOW! [https://t.co/nuWSTM4StD](https://t.co/nuWSTM4StD)
+> — Jason Miller (@JasonMillerinDC) [January 4, 2022](https://twitter.com/JasonMillerinDC/status/1478175072334581761?ref_src=twsrc%5Etfw)
+
+
+
+**11. Disclose.tv 1月3日在盖特发文：** 美国食品和药物管理局本周一扩大了辉瑞新冠疫苗加强针的紧急使用授权，正式将其用于12至15岁儿童。
+
+[https://gettr.com/post/plqda95778](https://gettr.com/post/plqda95778)
+
+**12. 郭文贵先生1月4日在盖特发文：** 2022年1月1日之后72小时内发生的事情不可思议，我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，盖特在全球和全美国都是前5名！一切都已经开始！
+
+[https://gettr.com/post/plvjzb2470](https://gettr.com/post/plvjzb2470)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报导**
+
+发布：陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

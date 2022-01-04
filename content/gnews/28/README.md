@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第144期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1821323/)
+## 辉瑞在疫情前一年就与支付宝合作开展疫苗相关项目
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821392/)
 
-**制作: 蚂蚁兄弟**
+12/29/2021 娜塔莉·温特斯的重磅新闻：辉瑞实际上在疫情前一年就开始与支付宝合作开展疫苗相关项目。
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm210101.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
