@@ -2,21 +2,33 @@
 ---
 
 
-## 在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822909/)
+## 推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822924/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3436.jpg)图片来源 ：www.thegatewaypundit.com
-美国保守派媒体《网关专家》12月29日报道，洛杉矶学区计划对学生实施一项极端的疫苗强制政策，但在3万名儿童反抗的情况下不得不将其取消。在2021年9月，美国第二大学区洛杉矶学区的校董会投票表决，要求12岁及以上的学生于2022年1月10日前完成中共病毒疫苗接种。由于许多人的反抗与抵制，该学区现在已经将儿童疫苗强制令推迟到秋季实施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-4.png)
+**非常重要：在GETTR上关注亚历克斯·琼斯（[Alex Jones](https://www.gettr.com/user/alexjones)）播客之王乔·罗根（Joe Rogan）周日宣布，他已经加入了社交媒体平台GETTR，此前Twitter和YouTube封禁分享他最新内容的人们。**
 
-“洛杉矶学区曾计划将1月10日前仍未接种疫苗的学生转至在线学校–天使之城。许多人担心该在线学校在新学期伊始容纳数万名新学生的能力，以及这将对工作人员和儿童造成的困扰，”《今日美国》报道。
+“为了防止推特上糟糕的事情变得更蠢，我现在也在这里了。欢呼吧！” 罗根在GETTR上发帖，他在该平台已经积累了超过800万的粉丝。这个平台发誓所有言论不会被屏蔽，并允许新用户导入他们的旧推文，以期吸引人们离开推特（Twitter）。
 
-《政客》杂志报道到，“美国其他蓝州的学区也在思考暂停儿童疫苗强制令。今年秋季，俄勒冈州波特兰市的学校领导在强烈的反对声中对（疫苗强制令）进行了讨论，而纽约和芝加哥的学校则采取了观望的态度。他们不仅担心民众对疫苗强制令的批评，还质疑他们是否应在食品和药物管理局(Food and Drug Administration, FDA)完全批准为他们的学生接种疫苗前执行强制令–而洛杉矶学区并没有等待这一门槛准备提前执行。”
+罗根最近采访了mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士，他最近因为反对该技术被用于抗新冠病毒（COVID）的大规模接种而被推特禁言。在采访中，马龙概述了他是如何认为世界在接受疫苗接种和实施过度的限制作为解决方案后堕入了“大规模形成性精神病”。
 
-根据《政客》杂志的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移至远程学习是有利还是有害。《政客》杂志报道称：“如果实施儿童疫苗强制令，其他地区已经权衡了哪些学生最有可能不接种中共病毒疫苗，以及让这些学生在远程教育下学习的弊端。”然而，该报告中没有详细说明各学区关注哪些标准或指标。
+在采访中，罗根指出：“他们删除你是因为你不顺从大科技叙事，因为当涉及到新冠病毒在治疗方面，在–无论你是否在宣传他们所谓的疫苗接种迟疑不决，技术显然有一个审查议程，他们可以因此禁止你的发言，他们可以因为在他们眼中他们认为是一个合理的冒犯而禁言你”。马龙回应说：“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们思考什么。好吗？但问题是，如果我不是–如果我参与对话是不对的，即使我指出了令人不安的科学事实，那么谁是，谁又可以被允许呢？”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-5.png)
+油管（YouTube）的马龙采访已经被撤下，同时撤下的还有罗根对心脏病专家彼得·麦卡洛（Peter McCullough）博士的采访，而谷歌（Google）也被指控改动了马龙和他的“大规模形成性精神病”术语的搜索结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-9.png)
+推特还在周日永久封禁了众议员马乔里·泰勒·格林（Marjorie Taylor Greene），因为她质疑大技术叙事。最后一击似乎是当格林问极左派众议员亚历山德拉·奥卡西奥·科特兹(Alexandria Ocasio-Cortez)是否已经向州长罗恩·德桑蒂斯(Ron DeSantis)道歉，因为亚历山德拉批评他公开场合缺席，原来是因为他在照顾他患癌症的妻子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-11.png)
+**简评：**
 
-**简评：**新变种的中共病毒带来的是全世界各国变本加厉的疫苗强制令，尽管新增感染者中完成了疫苗接种的人占多数。这一次他们将魔爪伸向了还尚未发育完全的儿童，洛杉矶学区无视法律，计划实施的儿童疫苗强制令在多数人的反抗下暂停，带来的是美国许多学区的人站出来保护自己的孩子，迫使学区停止疫苗强制令。主流媒体仍旧无视中共病毒疫苗的无效以及副作用，胡言乱语地劝诫人们接种疫苗，而渐渐的会有越来越多的人觉醒。随着中共毒疫苗的副作用逐渐开始显现，爆料革命更应积极传播疫苗及病毒真相，让越来越多的人们看清主流媒体的邪恶嘴脸，更深的理解并抵制中共病毒疫苗，早日停止这场对人类的大屠杀。这场拉锯战才刚刚开始。
+Twitter等社交媒体平台大公司启动焦土审查制度，对政治不正确的人士进行封杀。上周末，Twitter禁言了顶级病毒学家和mRNA技术发明人罗伯特·马龙（Robert Malone）博士和素有火爆性格的保守派众议员马乔里·泰勒·格林（Marjorie Taylor Greene），原因就只是他们分享了关于Covid的真相。
 
-新闻链接： [https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
+被永久封杀的人士还包括独立新闻社Infowars的创建者亚历克斯·琼斯（Alex Jones），Spotify顶级播客乔·罗根因对其审查制度深感厌恶，也转移到正在迅速崛起的GETTR媒体平台。在GETTR上，任何人都可以自由发表言论，并可关注和及时获取有关世界上正在发生的事情的真实消息。
+
+物以类聚，人以群分。Twitter等社交媒体平台对讲真话的、勇于向主流恶势力挑战的人永久封杀在其平台外。证明Twitter是鼓吹非真话的平台，其已经沦为极权的工具，正如马乔里·泰勒·格林所指责的：推特协助不明身份的敌人进行“共产主义革命”。
+
+如果说Twitter协助“共产主义革命”，那么，GETTR就是捍卫“正义、自由和利于人类未来的革命”。
+
+新闻链接: [https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/](https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/)
 
 * * *
 
