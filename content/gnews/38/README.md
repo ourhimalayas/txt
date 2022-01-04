@@ -2,43 +2,52 @@
 ---
 
 
-## 郭文贵先生在盖特上就新冠病毒疫苗提出质疑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819354/)
+## 研究显示减肥可大大降低中共病毒重症发生的可能性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1819527/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022年1月2日，郭文贵先生在盖特短视频中，就新冠病毒及疫苗提出了诸多质疑。
+**作者**：纽约香草山翻译部-defiance
 
-首先，新冠病毒从哪里来，治病要找病根。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-第二，疫苗有哪些成分，有什么副作用，是否对症下药。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-8.jpg)
-第三，疫苗有无预防作用。若有作用，为何打了一针，还要打二针三针。若能预防，为何打了两针疫苗的人还会感染新冠病毒。
 
-第四，新冠病毒疫苗导致各种疾病及死亡，为何不正确面对，不向公众公告，不停止打疫苗。
 
-第五，主推中共病毒疫苗的人是否为了经济利益，亦或为了邪恶计划。如今几亿人感染，千万人死亡，无数家庭受害，谁来负责。
 
-郭先生宣告，新中国联邦有情报，最早在GTV、GETTR、Gnews上爆料，中共病毒来自中共实验室，是中共放毒；最早指出中共病毒疫苗是毒疫苗，会导致心脑血管堵塞，甚至导致死亡；也最早告诉世界青蒿素，伊维菌素是解药，已有许多治愈的病例。
 
-郭先生多次警告，新冠病毒疫苗大灾难甚至还未到来。人们要做好各种防备，活着才是最重要的！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2021.12.31-04.55-redvoicemedia-61ce8d41b677a.jpg)
 
-参考链接：[郭文贵先生在盖特上就新冠病毒疫苗提出质疑](https://gettr.com/post/plfpq4abf0)
+据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校对/发稿：Hetangyuese
+这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
+
+新闻链接：
+
+[https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/](https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
+
+
+
 
  
 

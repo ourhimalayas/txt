@@ -2,34 +2,34 @@
 ---
 
 
-## 香港《众新闻》将于4日被关停
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819803/)
+## 郭文贵先生最新单曲创造的历史纪录是力量和生命的显示
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819832/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.38.png)
-刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-174.png)图片来源：Gnews
+音符的识别是区别人和生物的重要标志之一。所有音乐形式因感动受众而形成传播市场，所以音乐的传播力影响力历来被人群所重视並被追求。其精髓就是通过音乐可以最大限度地彰显人类的自由意志，创造力和市场完美结合的最直观显现。音乐，人和神沟通的语言；自由的音乐是邪灵的送葬歌⋯
 
-分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
+爆料革命新中国联邦作为正道主义和追求自由民主法治的主体在不遗余力地推动全球灭共的同时，也在音乐追求的道路中可圈可点。 新中国联邦宣言由郭文贵先生带领全球喜马拉雅农场起草並宣示之后的两次跨越两年的“我是音雄”大型音乐选秀，以喜马拉雅农场战友为主，好莱坞专业音乐团队为辅的数次郭文贵先生和众战友的首首单曲，不停出现在各个主流音乐平台。《Hcoin to the Moon》这首歌从喜币上市当天至今一个多月时间里更是强势占据Itunes 、Spotify 、YouTube 、billboard的流行乐、摇滚、说唱多国平台榜首！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-175.png)
+12/31/2021 Miles Guo的最新歌曲《Hcoin To the Moon》及其音乐视频版本在Itunes上推出后1个月内创造了历史。链接：https://gnews.org/zh-hans/1812319/
 
-参考链接：
-1）[香港律政司司长：新闻自由在香港备受尊重](https://www.sohu.com/a/513542983_123753)
-2）[快讯！港媒：“众新闻”宣布4日起停止运作，曾发表误导公众言论](https://www.sohu.com/a/513926824_162522)
+在漫长的认识自然的过程中，人类经过了愚昧的历程。通常追求集权神化的统治都结局悲慘，文化毁灭、道德沦丧、财富积累崩塌，尤以中共窃夺中华这七十年为甚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭文贵先生开启的爆料革命，恰恰正是从客观上唯真实破除中共假恶丑，从意识形态上解放中共蓝金黃下全球范围人们的恐惧，使得人们认识自己，回归真实生产和需求，音乐上的真和善同时有效地反映这一过程。音乐的传播力度最能直接从全球音乐榜单上得到说明，也是这种形态最有力地激厉著全球灭共者的信心。中共长期深耕统战，深黯媒体、舆论、音乐对社会的影响力，惊恐我门爆料革命所有所出的音乐作品就显而易見了。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+这一切音乐成就的获得是在中共以一个国家的强大政治和经济力量围追堵截的情况下取得的，让人在不得不暗自由衷赞叹和骄傲的同时，让全球看到爆料革命真实、意志、团结、文明、灭共的惊人力量，看到新中国联邦这一新兴中国人的进步力量所拥有的强大生命力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+作者：洛杉矶盘古农场 — 文胃
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

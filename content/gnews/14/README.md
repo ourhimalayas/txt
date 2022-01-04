@@ -2,31 +2,28 @@
 ---
 
 
-## 有声|各界质疑中共人权劣迹官员任国际刑警执委
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819835/)
+## 奥密克戎导致新年期间大量航班被取消
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1819947/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月25日，据国际刑警组织宣布的消息显示，中共公安部副局长胡彬郴当选该组织执委会委员。
+采编：青青       编译撰稿：苦尽甜来 (文来）
 
-据了解，在侵犯人权以及镇压不同政见者方面，胡彬郴存在很大污点。为此，胡彬郴此次的任职受到国际社会的强烈质疑。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-edited.jpg)图片来源：LAP
 
-由多个国家和党派组成的“对华跨国议会联盟”致函国际刑警组织表示，允许胡彬郴进入执委会就是向中共政府继续滥用国际刑警组织的行为大开绿灯。同时，此举会让成千上万生活在海外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
 
-该联盟警告国际刑警组织，倘若继续作为中共压迫政策的工具，将对其国际地位造成严重损害。
+据加拿大媒体【CP24】1月1日报道，对于大部分航空旅客来说，新的一年从很多挫折开始。截至当天，已有2,600多个美国航班和近4,600 个全球航班被取消。
 
-文字版原文：[各界质疑中共人权劣迹官员任国际刑警执委](https://gnews.org/zh-hans/1700458/)
+报道称：自圣诞节前夕以来，已有超过 12,000 趟美国航班被取消。而航空公司一开始将此归咎于大量机组人员感染“奥密克戎病毒”所导致的工作人员严重短缺。同时，部分地区的暴风雪寒冷天气也是原因之一。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+美联航对此表示，为了保证一月份的航班正常运行，该公司将向飞行员和机乘人员支付三倍或更多的工资。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+尽管如此，由于中共暴政在全球持续不断地投放新型病毒，还有即将到来的各种疫苗伤害及其次生灾难，相信世界各国航空运输业的寒冬才刚刚开始。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.cp24.com/news/new-year-brings-more-canceled-flights-for-air-travelers-1.5725270](https://www.cp24.com/news/new-year-brings-more-canceled-flights-for-air-travelers-1.5725270)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

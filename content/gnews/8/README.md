@@ -2,48 +2,23 @@
 ---
 
 
-## 纽约市市长考虑对城市工人实施强制加强针疫苗接种
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1819920/)
+## 盖特年度“中共最大梦魇奖”获得者—郭文贵先生
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1820120/)
 
-作者：纽约香草山农场 – 四季
+采编/编译撰稿：Quitman     校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-edited.png)图片来源：GETTR
 
 
+据本台记者1月3日报道，盖特总裁Jason Miller 当天宣布：2021年度全球盖特人物颁奖礼之：中共最大恶梦奖项获得者—-新中国联邦创建人之首郭文贵先生。
 
-据据[布赖特巴特新闻网（Breitbart News）](https://www.breitbart.com/politics/2022/01/03/nyc-mayor-eric-adams-considering-booster-mandate-for-city-workers/)1月3日的报道，新近宣布就职的纽约市市长埃里克·亚当斯（Eric Adams）周日宣布，他准备强制要求所有市政工作人员接受中共病毒加强针的接种。
+Jason Miller总裁在其盖特直播节目中指出：“努力铲除中共邪恶政权是盖特应该完成的首要任务和必须履行的真正使命。而当谈论到中共暴政所面临的致命打击时，我们会首先想起在全世界热播的劲歌《TAKE DOWN THE CCP》，这首歌的演唱者是一位伟大的爱国者，我们的战友，盖特的奠基人–郭文贵先生。”并由衷表示：郭先生是一位远见卓识，做事从不考虑自身利益，一心为全人类着想的非凡行动者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362159093.jpg)2021年12月31日，埃里克-亚当斯在纽约市出席时代广场2022年新年庆典。（Arturo Holmes/Getty）
+此外，Jason Miller在回忆被邀请担任盖特执行总裁时，他曾问郭先生，盖特的主要目标是成为一个能赚大钱的巨型上市公司，还是应该首先干灭中共。郭先生当时毫不犹豫地选择了铲除中国共产党。为此，郭先生每天都在付诸于行动，并全身心支持和参与所有消灭中共的事业。有鉴于此，郭文贵先生是当之无愧的2021年盖特人物-中共最大恶梦奖获奖者。
 
-亚当斯说，如果我们觉得必须到强制执行的地步，我们愿意这样做，但我们鼓励现在就这样做。他表示将继续执行对该市私营部门进行中共病毒疫苗的强制接种。
+* * *
 
-自去年11月以来，纽约城市工人已经被强制要求接种中共病毒疫苗。然而，这是官员们首次提出将后续的疫苗接种加入强制清单这一可能性。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+原文链接：[https://gettr.com/post/plo3lr687e](https://gettr.com/post/plo3lr687e)
 
  
 

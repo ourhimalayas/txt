@@ -2,33 +2,49 @@
 ---
 
 
-## 有声|中共政府从西方社交媒体收集了大量数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819829/)
+## 纽约市市长考虑对城市工人实施强制加强针疫苗接种
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1819920/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国媒体12月31日报道，中共国正在利用其内部互联网监控网络的一部分从西方社交媒体上挖掘数据，并向其政府机构提供有关外国目标的信息。
+作者：纽约香草山农场 – 四季
 
-该媒体审查了数百份中共国招标文件、合同和公司文件，称中共国的舆论分析软件也被用于通过 Twitter 和 Facebook 等美国公司收集有关外国目标的信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-中共政府还启动了一项耗资30万美元的”外国人员分析平台”项目，旨在挖掘Twitter、Facebook和YouTube等社交媒体平台，以获取 “知名西方媒体记者 “以及 “政治、商业和媒体界关键人员 “的数据。
 
-此外中共政府在香港和新疆还制定了其他观察西方和外国语言的方案。
 
-该报道发布之际，美国和中共国之间正因一系列问题处于关系紧张状态，美国国会山已联系中共政府的外国新闻办公室以及中共国驻华盛顿大使馆征求意见。
 
-文字版原文：[中共政府从西方社交媒体收集了大量数据](https://gnews.org/zh-hans/1814902/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+据据[布赖特巴特新闻网（Breitbart News）](https://www.breitbart.com/politics/2022/01/03/nyc-mayor-eric-adams-considering-booster-mandate-for-city-workers/)1月3日的报道，新近宣布就职的纽约市市长埃里克·亚当斯（Eric Adams）周日宣布，他准备强制要求所有市政工作人员接受中共病毒加强针的接种。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1362159093.jpg)2021年12月31日，埃里克-亚当斯在纽约市出席时代广场2022年新年庆典。（Arturo Holmes/Getty）
+
+亚当斯说，如果我们觉得必须到强制执行的地步，我们愿意这样做，但我们鼓励现在就这样做。他表示将继续执行对该市私营部门进行中共病毒疫苗的强制接种。
+
+自去年11月以来，纽约城市工人已经被强制要求接种中共病毒疫苗。然而，这是官员们首次提出将后续的疫苗接种加入强制清单这一可能性。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,21 @@
 ---
 
 
-## 中共山东最高法：不能仅以出轨为由离婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819804/)
+## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-9
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819834/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日，中共山东最高法院宣布，夫妻双方不能以出轨为由请求离婚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.24.png)
-该法院援引中共《民法典》中婚姻法的法律解释：即出轨的证据仅证明配偶存在不忠行为，但是未能证明配偶与他人同居，或夫妻感情破裂，因此不能以此作为起诉离婚的理由，更不能作为要求离婚损害赔偿的条件。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+HBO VICE的剪辑视频采信了一个名为“螃蟹”的工程师对郭先生的诽谤性叙述和评论，谎称他曾帮助郭先生创立了GTV和Gettr，郭先生没有向他支付最后的费用并将他的信息卖给了中共，使他的国内银行账号被冻结，以此恶意攻击郭先生。
 
-中共的高压独裁下，人性压抑。用法律手段强制维持情感破裂的婚姻，只会让整个社会更加恐惧婚姻。中共国婚姻率和生育率恐怕将会一降再降。
+事实上，在郭先生创立GTV早期，曾准备了几套方案。“螃蟹”只是为郭先生的项目编写代码的很多人之一，与之签订工作合同的也是目前的GTV之前的一家公司。当郭先生发现“螃蟹”做出的方案并非自己所需，并且在盗取GTV的机密信息时，立即指示相关公司向他支付了所有费用，并完全放弃了他的想法和具体工作，目前的GTV、Gettr与“螃蟹”没有丝毫关系。
 
-参考链接：[山东高法：不能仅以出轨为由请求离婚](https://view.inews.qq.com/a/20220102A04KRK00)
+接下来让我们还原事实真相的第9部分：反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-9](https://gnews.org/zh-hans/1814194/)
 
-总编：飞虹
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +24,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

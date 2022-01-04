@@ -2,27 +2,34 @@
 ---
 
 
-## 全球发现首例同时感染新冠病毒和“氟罗那”(flurona)流感病毒的病例
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1819674/)
+## 香港《众新闻》将于4日被关停
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819803/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Shirley.png)
-图片来自网络
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.38.png)
+刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
 
-以色列的一名孕妇被认为是第一个同时感染新冠病毒和流感病毒的人，成为世界上第一个同时患新冠病毒和“流感”病毒的病例。
+分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
 
-该名妇女上周在以色列佩塔提克瓦市的贝林森医院被检测出两种病毒均呈阳性。据报道她感到呼吸困难。世界各地的专家都对此病例都很感兴趣。
+参考链接：
+1）[香港律政司司长：新闻自由在香港备受尊重](https://www.sohu.com/a/513542983_123753)
+2）[快讯！港媒：“众新闻”宣布4日起停止运作，曾发表误导公众言论](https://www.sohu.com/a/513926824_162522)
 
-医院报告说，越来越多的孕妇感染新冠病毒或流感，并指出这两种病毒的表现非常相似，都是呼吸道疾病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-该名妇女是否接种了新冠疫苗不得而知。然而卫生部门官员还是督促民众即接种新冠疫苗也接种流感疫苗。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-以色列卫生部长表示，该国将向护理机构中的老年人提供第四剂新冠疫苗。以色列已经将第四剂疫苗的推出范围扩大到免疫力较弱的人。
-
-消息来源：[Flurona: Pregnant woman tests positive to Covid-19 and the flu in Israel | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/a-pregnant-woman-has-tested-positive-for-both-covid-and-the-flu/news-story/cc184f5cabd9c87f4709c022531eac05)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
