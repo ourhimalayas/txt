@@ -2,48 +2,26 @@
 ---
 
 
-## 拜登法案与美国当年对苏联温水煮青蛙灭共计划异曲同工
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1820704/)
+## 参议员克鲁兹：2023年共和党可能会弹劾拜登总统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820713/)
 
-**郭文贵先生**：大家要记住在前苏联，大家要看到前苏联，从1927年就是二战之前到1945年结束世界大战，希特勒死亡，美国怎么对待苏联的？在那个时候对苏联是既不打也不拉。
+#### 撰稿：彩虹   
 
-当把希特勒干掉以后，联军特别是美国联军司令部说：“赶快停，咱不进柏林。” 让苏军红军冲进了德国，恶狼般地冲进去。冲进去以后，奸杀、强奸德国人两百万，能抢的抢，能拿的拿，是吧？在这种情况下，美国联军还进行了国际上合法大审判，德军（被）抢走的东西从来没说过，联军也从来不讲，就你随便干。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-7.jpg)图片来源：达拉斯新闻
+1月3日，《新闻极限》报道泰德·克鲁兹参议员预测，共和党在今年晚些时候举行的中期选举中将接管众议院，并可能在2023年采取行动弹劾总统乔·拜登（Joe Biden）。
 
-从那之后对付苏联变成了共产党，东西德一成立以后，二战之后双方的规则越来越模糊，把它定为假想敌以后，大家千万别忘了，就是在那个情况下，斯大林情况下，美国给苏联提供的军事支持、技术支持通过欧洲，一定记住欧洲啊，包括当时的东德，是巨大的。
+克鲁兹有一个播客“Verdict with Ted Cruz”，在其最新一期节目中，他说，他“对2022年（中期选举）非常乐观。我认为共和党赢得众议院的几率为百分之九十，甚至比这还要高”。
 
-当决定干掉苏联的时候，它做了两个决策：经济上我一定不能让你吃饱，当时一个苏联的GDP才30亿美元，我绝不让你俄罗斯的油气西供政策，到今天啊，已经五六十年了还没建成呢，我不能让你把这个管儿弄到德国去，弄个输油管输气管？绝不让你进去！
+他指出，如果共和党拿下了众议院，明年有可能发生对总统的弹劾，“如果我们（共和党）拿下了众议院，我说过这种可能性是极大的，那么我们认为将看到对拜登政府的严肃追责调查”。
 
-所有苏联的跟欧洲，绝不让你和英镑，包括当时的瑞元，和英国、法国形成货币的超额的桌子下交易，就你脱离我美元体系绝不可以！看到了吗？然后对待俄罗斯还很多支持的同时，叫你饿不死你，而且还发了卫星上了天，然后俄罗斯竟然将导弹计划竟然能弄到古巴去，你看看，这跟今天的共产党是一模一样的。
+关于弹劾（拜登总统），他说存在这样的机会，指出“无论公平与否，民主党将弹劾作为了武器，他们用弹劾来达到党派的目的，用来对付与他们达不成一致的川普。这样做的弊端之一就是，你越将其武器化，将其作为党派的工具，那么也会导致对方以其人之道还施彼身”。
 
-但美国在重大事情它干了什么？大家看看当年美国所有的当时的曼哈顿计划还有登月计划上天计划，跟今天的拜登法案你一对比你就明白了。你说什么你都不能影响我，你就是我的敌人，我要干掉你！当时是什么？清水煮青蛙，温水煮青蛙，慢慢煮，饿死你，我不能把你饿死，最后让你拉倒，然后围堵让你内乱。
+关于弹劾的理由，他说：“我认为共和党的众议院将面临巨大的压力要开始弹劾程序。我认为考虑进行弹劾有潜在的多种理由,最有说服力的可能是拜登总统在边境执法上的完全无法无天。这可能是现在最有力的弹劾理由，但可能还有其他理由”。
 
-字幕来源：[2021年12月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1805851/)
+**新闻来源**
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Sen. Ted Cruz: GOP May Impeach Biden if They Win House](https://www.newsmax.com/politics/tedcruz-gop-joebiden-impeachment/2022/01/03/id/1050874/)
 
  
 
