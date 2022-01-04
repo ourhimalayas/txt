@@ -2,26 +2,25 @@
 ---
 
 
-## 香港《众新闻》将于4日被关停
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819803/)
+## 有声|郭先生警醒战友们永记《新中国联邦宣言》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819824/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.38.png)
-刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2022年1月1日的直播中，郭文贵先生再次向战友们展示并强调了《新中国联邦宣言》的核心。郭先生表示，《宣言》没有任何政治、利益和名誉之心。
 
-分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
+郭先生也解释道，《新中国联邦宣言》的内容包含着天与地、山与水、人和周围的环境以及其中的所有动、植物。更为重要的是，《宣言》不仅言明了中国人的事，还涉及到全人类，乃至全天下的事。
 
-参考链接：
-1）[香港律政司司长：新闻自由在香港备受尊重](https://www.sohu.com/a/513542983_123753)
-2）[快讯！港媒：“众新闻”宣布4日起停止运作，曾发表误导公众言论](https://www.sohu.com/a/513926824_162522)
+此外，郭先生还向战友们又一次展示了《新中国联邦宣言》的第一页，也就是那句由郝海东先生宣读的名言：“灭共是正义的需要。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭先生强调，宣读《新中国联邦宣言》的目的是为了告诉世人，我们应该向《宣言》中表述的一样，对天地、对人都充满敬意和爱意。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+郭先生最后提醒战友们，永远不要忘记我们是因为《新中国联邦宣言》才走到一起。因此，不论是谁，只要他忘记了《新中国联邦宣言》，他就一定会被淘汰。
+
+文字版原文：[郭先生警醒战友们永记《新中国联邦宣言》](https://gnews.org/zh-hans/1815157/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
