@@ -2,62 +2,40 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822281/)
+## 瑞士完成移交银行客户资料的承诺 最安全的藏钱之地不复存在
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1822289/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+#### **撰稿：**日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0A689B81-00C2-4D8E-9ABE-832B7811416D.jpeg)（  图片来自《大纪元》）
 
-2019年末，中共向全世界发动生化武器战争，不断投放的生化武器病毒Covid-19(中共病毒或CCP病毒)，全世界善良的人们被生化武器战争阴云笼罩，不明真相的人们争相接种随后开始的Covid-19 Vaccine（中共病毒疫苗）。
+据大纪元1月4日报道，瑞士联邦税务管理局在2021年底前基本完成了向上百个国家或地区移交相关离岸客户资料的工作。至此，全球最大离岸金融中心瑞士，放弃了其延续了数百年的银行客户信息保密制度。
 
-在没有彻底查清病毒来源真相以前，实验性的Covid-19疫苗造成的疫苗灾难比Covid-19本身还要可怕得多！
+瑞士的银行为客户保密制度已有约300年历史，并在1934年正式立法，其《银行法》规定，瑞士的金融机构可以拒绝任何政府对客户账户的调查和监控，除非有确凿证据证明存款人存在犯罪行为，否则账户的信息会受到永久性保护。而且客户还可以选择自己认为最安全的匿名方式来办理业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/dead-2022-beginning.jpg)
+同时，瑞士的税率也低于美国及大多数实行高税收高福利政策的欧洲国家。因此吸引了全球数以万计的富豪，在瑞士银行开设秘密账户，把自己的巨额财富和资金转入瑞士。
 
-57岁的健康医生Dimitri Ndina在接种辉瑞COVID-19疫苗后不久因血栓死亡；49岁的纽约时报编辑Carlos Tejada于12月17日在韩国接种Moderna加强针后不到24小时死于心脏病；英国指挥家Tom Hammond在推特发布自己打了COVID加强针的推文后1周“突然死亡”；28岁的巴西歌手Cantor Maurílio在接种COVID-19疫苗6 周后，在录制新专辑时突然昏倒在自己的工作室里，Jardim América医院遭受了3次心脏病发作后去世；25岁的阿根廷足球运动员Diego Armando Montiel在接种COVID-19疫苗数月后去世；32岁的奥运跳水明星Ian Matos在接种COVID-19疫苗数月后去世；21岁的澳大利亚奥运自行车手Sarah Gigante在接种COVID-19疫苗后被诊断出患有心肌炎（myocarditis）和心包炎（pericarditis）的组合病症心肌心包炎（Myopericarditis）后不久去世……
+有利既有弊，此规定也使各国富豪避税、使洗钱等犯罪活动成为了可能，为恐怖分子及独裁政权的非法资金提供了安全的藏身之地，所以瑞士也一直受到来自美欧等国的压力。
 
-甚至真实死亡数据被漏报至少41倍的VAERS系统显示，过去的一年，因Covid-19疫苗导致的死亡人数比过去31年高出71倍。
+2008年金融风暴后的美国，就瑞士银行（UBS，瑞银）的税务欺诈调查事件向瑞士施压，并指控瑞银隐瞒了持有该行秘密账户的52,000名美国人数以十亿美元的未缴税资产。最终，瑞士政府不但同意支付7.8亿美元罚金，还允许瑞银提交约280位美国严重避税者名单，瑞银也承诺在一年内提供4450名美国客户的资料。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/All-Deaths-Reported-to-VAERS-by-Year.jpg)
+之后，美国在2010年3月通过了追查美国人海外避税的《海外账户税收合规法案》（US Foreign Account Tax Compliance Act，FATCA），要求非美国银行也必须向美国税务当局呈报其美国客户在该银行的资产信息。
 
-如果灭共者郭文贵（MileGuo）先生、新中国联邦不断的呐喊，如果上面这些血淋淋的数据都无法让世人从对政客的迷信中醒悟，但愿美国印第安纳波利斯（Indianapolis-based）的OneAmerica保险公司首席执行官Scott Davison（斯科特·戴维森）在本周的在线新闻发布会上给出的18至64岁的工作年龄人群死亡率，比中共发动生化武器战争（Covid-19）前高出40%的消息能够让世人从疫苗灾难中被唤醒！
+此外，欧盟方面也一直在向瑞士这个非欧盟国家施压，并在2017年12月把瑞士列入一个不合作国家“灰名单”。 直到瑞士当局承诺并开始配合与上百个国家和地区交换其税务数据，才把瑞士从该名单中移除。
 
-18-64岁的工作年龄人群死亡率飙升40%是什么概念？
+截至2021年10月11日，瑞士联邦税务管理局已向缔约成员国提供了约330万个银行账户的财务信息。
 
-首先在中共发动生化武器战争（Covid-19）以前，200年一遇的灾难也最多导致工作年龄人群死亡率增加10%！
+瑞士就此打破坚持了几个世纪的瑞士银行业保密制度。让全球那些把钱藏入瑞士银行以避税的富豪客户，包括那些恐怖分子、犯罪组织，以及独裁国家官员也包括中共高官，失去了曾经最安全的藏钱之地。
 
-同时意味着购买团体人寿保险单的雇主将不得不支付更高的保费！
+*参考链接：[瑞士完成移交银行客户资料 藏钱天堂不再](https://www.epochtimes.com/gb/22/1/4/n13480256.htm)*
 
-更多无法妇女再次怀孕！
+* * *
 
-美国现在和未来面临着经济和劳动力方面的危机！
+*素材采编：子辰*
 
-尽管目前印第安纳州的数据显示，COVID-19造成的每日死亡人数的移动平均值不到一年前的一半。在一年前的COVID-19大流行高峰期，2020年12月29日一天就有125人死亡。在过去三个月中，一天中死亡人数最多的一天是12月13日，一天中有58人死亡。
+*编辑：文顺*
 
-千万不要被这种假像所迷惑！
-
-印第安纳州首席医疗官Lindsay Weaver博士在与州长 Eric Holcomb 举行的一次新闻发布会上说，该州的住院人数现在高于COVID-19疫苗推出之前，也高于过去五年的水平。
-
-目前该州医院仅有8.9%的ICU床位可用，这是今年的最低水平，并且低于COVID-19疫苗推出之前的任何时候。只有37%ICU病床被COVID-19患者占用，而54%的ICU病床被患有其他疾病或病症的人占用。现在，印第安纳全州的医院都挤满了“病情各异”的患者，印第安纳州人的平均健康状况有所下降。
-
-说明COVID-19疫苗灾难有多么严重！
-
-接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）](https://gnews.org/zh-hans/1822355/)
-
-参考数据：
-
-[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
-
-[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
-
-[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
-
-[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
-
-[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+*发布：miumiu*
 
  
 

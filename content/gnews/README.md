@@ -27,98 +27,98 @@
 ### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/5/README.md)
+### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [布林肯与北约九国外长通话 再度重申支持立陶宛](/content/gnews/6/README.md)
+### [布林肯与北约九国外长通话 再度重申支持立陶宛](/content/gnews/7/README.md)
  ` 首尔天池农场`
 
-### [有声|新中国联邦人要拥有爱](/content/gnews/7/README.md)
+### [有声|新中国联邦人要拥有爱](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [受疫情影响英国面临严重员工短缺](/content/gnews/8/README.md)
+### [受疫情影响英国面临严重员工短缺](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [有声|恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/9/README.md)
+### [有声|恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）](/content/gnews/10/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）](/content/gnews/11/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|郭文贵先生深度解析“水是生命之源”](/content/gnews/11/README.md)
+### [有声|郭文贵先生深度解析“水是生命之源”](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [防止被推特封帐号 大V播主乔·罗根加入盖特](/content/gnews/12/README.md)
+### [防止被推特封帐号 大V播主乔·罗根加入盖特](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订](/content/gnews/13/README.md)
+### [银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订](/content/gnews/14/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [因言被封：推特永久封禁美众议员的个人账户](/content/gnews/14/README.md)
+### [因言被封：推特永久封禁美众议员的个人账户](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [医疗欺诈：FDA承认抗原测试未检测到Omicron](/content/gnews/15/README.md)
+### [医疗欺诈：FDA承认抗原测试未检测到Omicron](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [瑞士完成移交银行客户资料的承诺 最安全的藏钱之地不复存在](/content/gnews/16/README.md)
+### [瑞士完成移交银行客户资料的承诺 最安全的藏钱之地不复存在](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](/content/gnews/17/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [美国政府阻止新冠早期治疗或造成50万人的额外死亡](/content/gnews/18/README.md)
+### [美国政府阻止新冠早期治疗或造成50万人的额外死亡](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2022年1月4日早](/content/gnews/19/README.md)
+### [GTV新闻访谈简报|2022年1月4日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [北朝鲜特工利用日本公司赚取外币](/content/gnews/20/README.md)
+### [北朝鲜特工利用日本公司赚取外币](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/4 银河快讯:日本防卫省开始研发电磁炮；总务省拟开放“6G”](/content/gnews/21/README.md)
+### [1/4 银河快讯:日本防卫省开始研发电磁炮；总务省拟开放“6G”](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](/content/gnews/22/README.md)
+### [狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [抵御中共破坏 日本花重金分散海底电缆登陆点](/content/gnews/23/README.md)
+### [抵御中共破坏 日本花重金分散海底电缆登陆点](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列开始60岁以上老人的第四轮疫苗接种](/content/gnews/24/README.md)
+### [以色列开始60岁以上老人的第四轮疫苗接种](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [突发：美司法部承认在 1 月 6 日抗议活动中秘密组织“突击队”](/content/gnews/25/README.md)
+### [突发：美司法部承认在 1 月 6 日抗议活动中秘密组织“突击队”](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [01/04/22 香港快讯 邹幸彤煽惑2021六四集结罪成 判囚15个月](/content/gnews/26/README.md)
+### [01/04/22 香港快讯 邹幸彤煽惑2021六四集结罪成 判囚15个月](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [里拉危机爆发导致土耳其通胀飙升](/content/gnews/27/README.md)
+### [里拉危机爆发导致土耳其通胀飙升](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国、加拿大和日本的税务居民能不能通过在BVI成立公司来喜交所做KYC开户？](/content/gnews/28/README.md)
+### [美国、加拿大和日本的税务居民能不能通过在BVI成立公司来喜交所做KYC开户？](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [核五国为防止之间的战争和军备竞赛，同意签署联合声明的重点内容](/content/gnews/29/README.md)
+### [核五国为防止之间的战争和军备竞赛，同意签署联合声明的重点内容](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [1/4/2022国际财经快讯：拜登公布促进美国肉类行业竞争计划；苹果成为首家市值达3万亿美元公司](/content/gnews/30/README.md)
+### [1/4/2022国际财经快讯：拜登公布促进美国肉类行业竞争计划；苹果成为首家市值达3万亿美元公司](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [福奇再次撒谎被逮个正着 Covaxin未在美获批](/content/gnews/31/README.md)
+### [福奇再次撒谎被逮个正着 Covaxin未在美获批](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版Hcoin To the Moon上线第26天位列美国iTunes摇滚MV榜首](/content/gnews/32/README.md)
+### [MV版Hcoin To the Moon上线第26天位列美国iTunes摇滚MV榜首](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍](/content/gnews/33/README.md)
+### [有声|放射科医师报告：接种新冠病毒疫苗后腺病增加了360倍](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [万物有灵 敬畏生命](/content/gnews/34/README.md)
+### [万物有灵 敬畏生命](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
-
-### [樱花灭共诗——与诸公游利津黄河别石鹏飞](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [文贵先生2021年大事回顾及感想](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822250/)
+## 美国政府阻止新冠早期治疗或造成50万人的额外死亡
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1822261/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+**作者：日本东京方舟农场 JIHO**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1.png)
-文章仅代表作者本人观点，与Gnews无关
+罗伯特·马龙博士说，由于美国政府故意阻止对新冠疫情的早期治疗，美国可能发生了 50 万例超额死亡，这种治疗组合就是伊维菌素和硫酸羟氯喹。
 
-视频参看：[2022.01.04早GTV新闻访谈](https://gtv.org/video/id=61d44ba331a71619b5749bca)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*素材采编：JIHO*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+*发布：Ranting*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*封面制作：Kotek*
 
  
 

@@ -2,31 +2,35 @@
 ---
 
 
-## 抵御中共破坏 日本花重金分散海底电缆登陆点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1822206/)
+## 狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822211/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-5.jpg)
-[图片来源](https://globe.asahi.com/article/13885226)
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+香港，1月4日（路透社）—香港法院周二判处一名36岁的大律师15个月监禁，罪名是煽动未经授权的集会。该集会是纪念在1989年6月4日中共政府残暴镇压民主抗议者中死去的人们。
 
-日本政府将在2022年全面分散海底电缆登陆点，海底电缆是互联网等国际通信的重要基础设施。目前日本海底电缆主要铺设在太平洋一侧，登陆点集中在东京圈。为了提高抵御经济安全风险，政府将支持把电缆分散到各地区。
+邹幸彤是去年6月4日镇压周年纪念日的前一天被捕的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-13.jpg)
+香港一直都有纪念6.4的守夜活动。但是过去两年，港警以冠状病毒限制为由，禁止了守夜活动。尽管有禁令，2020年仍有数千人在全市范围内点燃蜡烛。由于港警大肆抓捕导致2021年守夜人数骤减。
 
-海底电缆集中在特定区域会面临恐怖主义和敌对势力破坏的危险。2013 年，曾发生电缆在埃及海岸被切断事件。从日本一位政府官员口中得知，中共国船只也曾在日本周围切断电缆。
+法官认为邹煽动他人参加未经批准的集会，造成了公共健康风险。而邹自己则认为她只是想提醒人们不要忘记6.4，并补充说”暴政是贪婪的，红线会不断扩大。”
 
-岸田文雄首相在去年11月中旬下令分散电缆，并在2021财年的补充预算中列入了建立一个约500亿日元的基金。
+中共狰狞的嘴脸终于暴露出来。50年不变的政治制度已经荡然无存。谁不听话就抓起来，安个理由，投到监狱。
 
-利用此基金，政府计划在大约三年内建成一条环绕日本的海底电缆，并计划约五年内在地方建设十多个数据中心。
+参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
 
-中共国一直在 “一带一路 “阴谋之下，在发展中国家安装海底电缆。考虑到数据可能被中共国窃取，因此美国、日本和澳大利亚将联手支援在南太平洋岛国铺设电缆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-信息来源：
+编辑/校对/发稿：Hetangyuese
 
-[政府、海底ケーブル拠点を分散　安保・災害リスク低減へ](https://www.sankei.com/article/20220104-NLLUPNDBWJPFJDPYYQQORR4XMA/)
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
