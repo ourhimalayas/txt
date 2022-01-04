@@ -2,43 +2,37 @@
 ---
 
 
-## 万物有灵 敬畏生命
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1821871/)
+## MV版Hcoin To the Moon上线第26天位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821943/)
 
-作者：纽约香草山健身部 – 杉杉
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-人世间万物皆有灵，尊重生命敬畏生灵，请相信那说不清的神秘力量及人的第六感应。
+1/4/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第26天位列美国iTunes热门MV榜榜首。
 
-也不知怎么了，连续几天心里闹得慌，眼前梦里总是挥之不去我家小花可爱逗趣的一幕幕，而且总是莫名得心想可别把我的小花丢了，担心之余抓起电话左交右待了一番，可没过多久，传来了电话那端的哭泣声，小花丢了。
+* * *
 
-这个调皮的孩子，喜欢痴情两个狗娃到无极限，天天不回窝，守在狗娃们的窝边寸步不离。给狗娃们留的小门掉了，它跟着狗娃跑出去就在也没有回来。
+[【PDF 下载】Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-听到此消息，当时是二耳发鸣头蒙仿佛时间静止了，泪不停的流，我聪明可爱调皮的鸟娃，给我们生活带来了多少个欢乐，我的心随着鸟娃被掏走了。话说回来，家里没有断过小动物，猫狗鸟娃们，基于上个鸟娃小芒果夭折了，小花是给予我的小天使、开心果。
+* * *
 
-记得小花刚来家时的情景，不论谁讲话，它总是伸个头，瞪着那双绿豆般的小眼睛，盯着你认真地听你讲话，表现出不一般的智商，那就给它起个名字叫装小花吧！随着时间的推移也没有刻意的教它说话，只是平常主人随口叫它的名字，可是惊喜的一幕发生了，突然隐隐约约的声音有叫小花，小花，装小花，从此，一发不可收拾天天自己叫自己，有时撒娇还拖长了音叫自己小花花。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_105.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_117.jpg)
 
-它真的是太通灵性了，早上起来必须先给它打招呼，如果先招呼狗娃出去撒尿尿，鸟娃会生气的，怎么哄它也不理人，非得气上一阵子，这鸟娃很有眼力架，当手忙脚乱在干家务活做饭的时候，它就站在吊扇上从高处察言观色。时间把握的非常到位，一旦手停下来，它立马飞到主人的头上肩上甩都甩不掉。平常表现的非常霸道，与主人并肩齐坐在餐桌上一起用餐，哪盘菜都少不了它的光顾。平时把二狗娃欺负的哇哇叫，把狗娃追的满屋子乱躲也不舍的咬它，这些美好欢乐的时光是永远也写不完忘不了的。
 
-可是在共产党统治下的墙国，正如文贵先生大直播爆料的，这些恶魔们活吃猴子，听到此时心在颤抖在流血，共产党这孽仗产物，涂炭生灵践踏生命岂止是吃猴子吃狗肉，吃猫肉，吃老鼠，吃蛇，吃人（胎盘）没有牠们不吃的，因为牠们是魔鬼。共产党习习屁中南坑这群僵尸病毒的传播者，把病毒、毒疫苗投向人类的罪犯，正在干着摧毁地球，毁灭全球全世界全人类的罪恶。
+[【PDF 下载】Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-4-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-人们已逐渐清醒，看清了共产党利用病毒、毒疫苗，把人类玩弄于鼓掌之中，全世界全人类都会站在正义的、拯救世界、拯救人类的爆料革命、新中国联邦这边。共同奋起团结一致，人人点燃一把熊熊燃烧的烈火，投向共产党、习习屁、中南坑这群病毒僵尸，让恶魔在地球上消失殆尽👊
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,56 @@
 ---
 
 
-## 银河快讯:普京在新年贺词中热切希望与岸田接触；《国防计划大纲》修订
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1822294/)
+## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822355/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-29.png)[图片来源](https://jp.sputniknews.com/)
-**1.****日本新增510人确认感染中共病毒（新冠病毒covid-19）**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](https://gnews.org/zh-hans/1822281/)
 
-[据NHK 12月31日报道，日本的确诊病例总数为1,733,544人，包括机场的检疫人员，以及邮轮上的712名乘客和船员，总数为1,734,256。共有18,405人死亡，包括日本的18,392名确诊病例和13名游船乘客。此外，有5546人（72人）在机场和其他检疫机构被确认感染，还有173人被感染，包括乘坐包机从中共国返回的人和政府雇员及检疫人员。](https://www3.nhk.or.jp/news/html/20211231/k10013411041000.html)
+印第安纳州医院协会主席Brian Tabor (布赖恩·塔博尔) 也印证了Scott Davison的说法。
 
-**2.****横须贺美军基地75人感染**
+事实上，印第安纳州还是目前美国疫苗接种率最低的州。
 
-[据NHK 12月31日报道，据美国海军横须贺基地称，自本月23日以来，已有75名军事人员被证实感染了中共病毒（新冠病毒covid-19），并全部在该基地进行了隔离。 目前还不清楚是否有病人感染了Omicron毒株。神奈川县知事敦促外交部长和国防部长对感染者实施隔离，限制他们离开基地，并尽量减少美军人员从国外入境以及在日本各基地之间的流动。](https://www3.nhk.or.jp/news/html/20211231/k10013411071000.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/state-Vaccine-1.jpg)
 
-**3.****国防计划大纲修订以便在安全形势发生急剧变化时具有灵活性**
+根据[USAFacts.org 的数据](https://usafacts.org/visualizations/covid-vaccine-tracker-states/)显示，该州仅57%的人口至少接种了一剂疫苗，52%的人口“完全接种了疫苗”，远远低于美国疫苗接种率全国平均水平（74%的人口至少接种了一剂，63% 的人口已完全接种疫苗）。这表明，在其他州的人寿保险索赔中，推出COVID-19疫苗后的死亡人数可能会更高。Scott Davison在本周的在线新闻发布会上就说：“我们现在看到了这项业务历史上最高的死亡率——不仅仅是在 OneAmerica，该业务的每个参与者的数据都是一致的，40%是闻所未闻的”。
 
-[据产经新闻12月31日报道，国防部已开始研究修订《国防计划大纲》的可能性，该大纲大约每10年修订一次。 政府还将审查《中期国防力量发展计划》，该计划规定了每五年的设备采购计划。 这是因为在战略环境迅速变化的情况下，有必要灵活地修订《国防计划大纲》和中期防务计划。 政府计划在明年年底前修订这三份战略文件，包括《国家安全战略》（NSS），而包括框架在内的基本审查将在今年年初正式开始。](https://news.yahoo.co.jp/articles/3bd6f317792a107ab265035b154668a36bb0b289)
+根据VAERS（疫苗不良事件报告系统）查询结果，过去一年，接种COVID-19疫苗后报告的劳动力年龄死亡百分比远高于过去31年所有疫苗每年报告的平均死亡人数。
 
-**4.****世界上第一颗环保型 “木质 “卫星将于2023年发射**
+过去的一年，VAERS报告了3,294名18至65岁的人在注射COVID-19后死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/between-the-ages-of-18-and-65-for-one-year.jpg)
+在接种COVID-19之前的前31年中，VAERS报告的劳动力年龄组中总共只有851人在接种疫苗后死亡，平均每年仅有27人死亡。
 
-[据共同社 12月31日报道，京都大学和住友林业正在计划于2023年发射世界上第一颗 “木制 “卫星。 卫星运行后将在大气层中燃烧，因此对环境的影响很低。 第一次测试将在2月进行，通过将木材暴露在空间中来检查其耐久性。 卫星的外部将用木材和太阳能电池覆盖，内部将包含电子板和其他部件。](https://news.yahoo.co.jp/articles/7c1aae6e88c8282a0674c391df71c8c1ed0e3f02)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots-1.jpg)
 
-**5.****日本新增成人120万，为历史最低**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots.jpg)
 
-[据NHK 12月31日报道，将于元旦年满20岁的新成年人数量为120万占日本总人口的0.96%，是总务省自1968年开始进行估算以来的最低数字，也是连续第12年低于日本总人口的1%。其中包括61万名男性和59万名女性。总务省表示，除了因出生率下降导致年轻人数量减少外，来自国外的留学生和技术实习生的数量也中共病毒（新冠病毒covid-19）而减少。](https://www3.nhk.or.jp/news/html/20211231/k10013410621000.html?utm_int=news-politics_contents_list-items_001)
+接种疫苗后报告的死亡人数实际上增加了（3294-27）÷27=121倍！
 
-**6.****俄罗斯总统在新年贺词中热切希望与岸田接触**
+根据杰西卡罗斯博士的推算，VAERS系统至少漏报了41倍，这意味着大约135,054名劳动年龄的人在去年注射了COVID-19疫苗后死亡。
 
-[据时事通讯社 12月30日报道，俄罗斯总统向各国家元首发出新年贺词，并向岸田文雄首相表示，”俄罗斯和日本之间建设性的合作发展符合两国人民的利益，有助于建立该地区的安全和稳定”，并表示希望进一步接触。 俄罗斯总统办公室于3月30日宣布了这一消息。](https://www.jiji.com/jc/article?k=2021123000699&amp;g=pol)
+把这个数字加上现在由于实验性注射Covid-19毒疫苗的副作用而致残的创纪录人数，在COVID-19疫苗注射后看到的创纪录的胎儿死亡人数，以及可能永远无法再次怀孕的女孩和妇女的人数未知的数量相结合时，每一个人都应当认真思考中共发动的这场生化武器战争以及随后的疫苗灾难，对美国经济和劳动力带来的危机，这场全国性的灾难将对现在和未来的劳动力产生重大影响！
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+新中国联邦人在不遗余力的呐喊，试图唤醒每一个沉睡的人们，珍爱生命，远离Covid-19疫苗！
+
+这是一场生化武器战争！普通民众应当认真对待！
+
+只有消灭共惨党，才能彻底消灭中共病毒！
+
+参考数据：
+
+[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
+
+[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
+
+[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
+
+[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
+
+[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
