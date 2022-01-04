@@ -2,38 +2,13 @@
 ---
 
 
-## 为实现硬性“清零” 大批西安民众被迫异地隔离
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821721/)
+## 辉瑞知道 FDA也知道 疫苗对神经系统的损害
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1821729/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.39.png)
-所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
+台灣寶島農場
 
-这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
+在疫苗紧急授权的方式推出前三个月,有超过42,000份报告 显示，接种疫苗的人，有超过160,000的人受到（疫苗对健康的）损害 年龄在31至50岁之间已有1,223人丧生有超过25,000的人有神经系统的损伤 270名婴儿不幸流产 数以千计的人有心脏病或中风。
 
-有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
-
-参考链接：
-1）[https://gettr.com/post/plkvl848b7](https://gettr.com/post/plkvl848b7)
-2）[https://gettr.com/post/plf4s28b20](https://gettr.com/post/plf4s28b20)
-3）[https://gettr.com/post/plnqiua97c](https://gettr.com/post/plnqiua97c)
-4）[https://gettr.com/post/pll5m660ad](https://gettr.com/post/pll5m660ad)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

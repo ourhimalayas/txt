@@ -2,37 +2,32 @@
 ---
 
 
-## 《耶鲁日报》匿名刊文，中共国留学生质问彭帅行踪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1821607/)
+## 疫情蔓延至郑州和北京冬奥场地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821723/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1.jpg)《耶鲁日报》匿名刊文，中共国留学生质问彭帅行踪 网络图片
-据美国之音1月4日报道，全美历史最悠久的大学校报《耶鲁日报》2日刊载题为 “彭帅在哪里”的匿名评论文章，以彭帅因曝光与张高丽的暧昧黑幕被失踪作为引子，呼吁国际社会不能让彭帅“被埋葬”，不能继续容忍中共使用“权力的语言”对付异己，同时抨击包括耶鲁大学在内的西方机构，用“中国投资组合”安抚中共的不道德行为，并呼吁它们撤资中共国。
+作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月3日，郭文贵先生发布盖特视频透露，西安因新冠疫情严重封城后，有民众由于食物供应不足，已经开始抓老鼠充饥。河南郑州也将封城。郑州市新冠肺炎疫情防控指挥部办公室，发布2022年1号通告称：对管城回族区，二七区部分区域实行分类管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.22.png)
+据悉，郑州几家医院都已被迫关闭，救死扶伤的医生被像畜生一样对待。不只郑州，中国还会有更多的城市因疫封城。
 
-该文章作者是一名大学生，由于可能危及作者在中共国的家人安全，《耶鲁日报》总编引证《纽约时报》2021年12月31日的文章“数字搜捕：中共国警方如何在推特和脸书上追踪批评者”，首次授权作者匿名发文。
+前天，北京冬奥会会场发现了新冠病毒疑似病例，50多人被送往紧急安置地点，最终确认无一人感染。但是检验新冠病毒的方式富有争议，除了正常检查喉咙，男孩女孩竟被要求褪下裤子检查下体，且均由中共领导亲自上手。疫情汹涌之际，中共官员极尽卑鄙荒淫之能事，颇具败亡之兆。
 
-彭帅去年11月2日在新浪微博上自曝与中共前常委张高丽多年前开始的性关系，并且指控张性侵。这引发了包括WTA在中共国退赛的国际震荡，并进一步助推西方抵制北京冬奥会，让中共颜面尽失。不过，彭帅引发的关注热度随着时间的推移逐渐降温。迄今为止，没有人知道彭帅是否安全。文章作者对彭帅的处境“忧心忡忡”。
+参考链接：[https://gettr.com/streaming/plrbe5aa53](https://gettr.com/streaming/plrbe5aa53)
 
-作者指出：“我仍然不知道她是否安全和自由。但我知道这个专制政权会如何埋葬她…她会从公众视野中消失…几个月和几年之后，她将被遗忘，或者说中国共产党是这样计划的”。作者表示，自己写出这篇文章，是“为了让彭帅不被忘记”，不能让“彭帅在哪里”仅仅成为社交媒体上的一个标签。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-美国《外交政策》杂志指出，“习近平无意带领中共国走向西方。因此西方大学不能以追求更大的文明使命为借口，继续与中共国打交道。《耶鲁日报》的这篇匿名文章，敦促耶鲁大学停止从中共国获利，其捐赠基金“需要从中共国撤资”，因为在中共国的每一美元投资都是不道德的。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在中共的舆论和体制下，“彭帅在哪里”？就是彭帅在那里，在中共需要她去的地方。每一天中共国都有无数个“彭帅”被消失，在西安、在洪水之后的郑州、在被疫情肆虐的每一个地方、在任何想对抗强权的个人身上。“彭帅”是中共国没有人权和自由、个人安全更无法保障的活生生的例子。
-
-新闻参考链接：[https://www.voachinese.com/a/yale-chinese-student-pengshuai-20220103/6380863.html](https://www.voachinese.com/a/yale-chinese-student-pengshuai-20220103/6380863.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

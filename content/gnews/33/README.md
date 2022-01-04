@@ -2,43 +2,38 @@
 ---
 
 
-## 美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821573/)
+## 为实现硬性“清零” 大批西安民众被迫异地隔离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821721/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.39.png)
+所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/800px-United_States_Navy_SEALs_542.jpg)
+这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
 
+有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
 
- 
-图片来源：commons.wikimedia.org
+参考链接：
+1）[https://gettr.com/post/plkvl848b7](https://gettr.com/post/plkvl848b7)
+2）[https://gettr.com/post/plf4s28b20](https://gettr.com/post/plf4s28b20)
+3）[https://gettr.com/post/plnqiua97c](https://gettr.com/post/plnqiua97c)
+4）[https://gettr.com/post/pll5m660ad](https://gettr.com/post/pll5m660ad)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-#### 编译：小红帽
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-根据《RT新闻》1月4日报道，**美国德克萨斯州法院裁定，美国海军惩罚不接受总统乔·拜登的疫苗强制令而寻求宗教豁免的军人，是违宪的。**
-
-**地区法官里德·奥康纳(Reed O’Connor)周一发布了一项初步命令，阻止海军和国防部执行其疫苗强制令。**
-
-法官在裁决中写道：“本案中的海军服役人员试图证明他们为保护而牺牲的自由是正确的”。“新冠病毒（Covid-19）大流行没有为政府提供取消这些自由的许可。第一修正案没有对新冠病毒例外。我们的宪法没有将军事上排除在外。”
-
-法官正在对35名军人提起的诉讼采取行动，其中包括海豹突击队、海军船员及潜水员，他们希望以宗教理由拒绝接种新冠疫苗。根据法庭文件，原告是天主教徒、东正教徒和新教徒。
-
-法官写道，原告因拒绝接种新冠疫苗而面临被取消服役资格，这将使他们“永远不能被部署”。
-
-代表原告的法律组织 “第一自由研究所”（First Liberty Institute）对该命令表示欢迎。该组织的总顾问迈克尔·贝里（Michael Berry）在给媒体的一份声明中说：“仅仅因为海豹突击队要求提供宗教便利而对他们进行惩罚，这纯粹是报复性和惩罚性的。”
-
-海军没有对此事进行评论。五角大楼发言人约翰·柯比（John Kirby）说：“我们知道该禁令，并正在审查它。”
-
-新闻来源：[Judge rules on US Navy SEALs vaccination dispute — RT World News](https://www.rt.com/news/545113-vaccination-mandate-navy-ruling/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

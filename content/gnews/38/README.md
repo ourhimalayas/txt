@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第144期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1821323/)
+## 郭文贵：2022年新中国联邦又是一个巨大的收获年
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821368/)
 
-**制作: 蚂蚁兄弟**
+1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm210101.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
