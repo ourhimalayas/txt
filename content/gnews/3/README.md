@@ -2,30 +2,27 @@
 ---
 
 
-## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
+## 中共国人民银行原党委书记、主任牟善刚接受调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1820315/)
 
-By GTV 新闻访谈 作者：纽约香草山农场 文真
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown.jpg)中共国人民银行原党委书记、主任牟善刚接受调查 网络图片
+据网易新闻1月4日报道，中央纪委国家监委网站讯据中央纪委国家监委驻中国人民银行纪检监察组、天津市监察委员会消息：中共国人民银行机关服务中心原党委书记、主任牟善刚涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
-图片来源：网络截图
-December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
+中共国现在除了各个房地产公司违约、暴雷，就是教育系统被调查、网络公司被查处，各级高管或被抓、或被杀，真正是人人自危、各行各业都发抖，不知道哪一天大锤就砸到自己头上。中共不仅害外人，对自己人下手同样毫不留情。只要跟中共搭边，最后的结局都是粉身碎骨。
 
-A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
+新闻参考资料：[https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp](https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp)
 
-A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
+* * *
 
-Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
 
  

@@ -2,27 +2,39 @@
 ---
 
 
-## 参议员兰德·保罗宣布退出YouTube加入Rumble
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820253/)
+## Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820285/)
 
-#### 撰稿：彩虹
+By 日本东京方舟农场 撰稿-海星
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-2.jpg)图片来源：纽约客
-1月3日，《国会山报》报道参议员兰德·保罗（Rand Paul）说，由于YouTube（油管）对其采取了行动，他将停止在YouTube上发布视频。
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpg)
+图片来源：网络截图
+December 27-én Biden amerikai elnök hivatalosan aláírta a nemzeti védelmi felhatalmazásról szóló törvényt (NDAA), amely ma lépett hatályba. A törvényjavaslat a CCP fenyegetésének leküzdésére irányuló intézkedésekkel foglalkozik.
 
-他说，他决定停止在YouTube上发布视频内容，是他“逃离大科技（公司审查）”的部分行动，指责YouTube对他的视频内容进行审查。
+Az “Amerika Hangja” jelentése szerint Biden elnök még ugyanazon a napon aláírta a 2022-es pénzügyi évre vonatkozó nemzetvédelmi felhatalmazási törvényt. A törvényjavaslat 777 milliárd amerikai dollár elkülönítését engedélyezi az Egyesült Államok védelmi kiadásaira. Közülük 7,1 milliárd dollárt különítettek el a “Csendes-óceáni Elrettentési Kezdeményezés” (Pacific Deterrence Initiative) számára, hogy válaszoljon a CCP katonai fenyegetéseire.
 
-报道说，在8月和9月份，保罗受到YouTube的两次打击，因为该平台声称保罗的视频违反了中共病毒（COVID-19）“错误”信息政策。他的账户因而每次被暂停7天。根据YouTube的政策，如果一个用户在90天内受到三次暂停（惩罚），该账户将被永久停止使用。
+Ezen túlmenően, a törvényjavaslat nem csak nyilatkozatot adott ki, hogy az Egyesült Államok Kongresszusa támogatja Tajvan védelmét. Ugyanakkor számos konkrét intézkedést fognak meghozni, hogy segítsék Tajvant önvédelmi képességeinek fejlesztésében. És meghívta Tajvant, hogy vegyen részt a Csendes-óceán körüli katonai gyakorlatokon.
 
-周一，保罗在《华盛顿观察家报》发布一篇专栏文章，鼓励其他对主流媒体平台政策不同意者选择不使用这些网站。他写道：“大约一半的公众倾向于右派（观点）。如果我们都把我们的信息带到自由交流的媒体平台，我们就能在一瞬间削弱大科技公司。因此，今天我迈出了第一步，拒绝向大科技公司提供我的视频内容。希望其他热爱自由的人也能跟随”。
+A törvényjavaslat ugyanakkor előírja, hogy a Nemzetvédelmi Minisztériumnak tilos kényszermunkával előállított termékeket vásárolni a kínai Xin Jiang-ban.
 
-保罗说，他将只在YouTube上发帖批评该平台，而主要在视频分享网站Rumble上发布视频内容。
+A hírek szerint a hónap elején a törvényjavaslatot elsöprő többséggel elfogadták az Egyesült Államok Szenátusának és a Képviselőháznak mindkét házában, és széles körű támogatást kapott a demokrata és republikánus kongresszusi képviselők részéről.
 
-**新闻来源**
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-[Rand Paul announces exit from YouTube](https://thehill.com/policy/technology/587997-rand-paul-announces-exit-from-youtube)
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1800494/](https://gnews.org/zh-hans/1800494/))
 
+参考链接：
+
+1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
+3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
+
+
+
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

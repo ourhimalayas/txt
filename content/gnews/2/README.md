@@ -2,39 +2,37 @@
 ---
 
 
-## Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820285/)
+## 接受得了别人说反话 能听进去不同的话
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1820324/)
 
-By 日本东京方舟农场 撰稿-海星
+媒体哪有是好东西，哪有说好话的，我只要它传播就可以。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpg)
-图片来源：网络截图
-December 27-én Biden amerikai elnök hivatalosan aláírta a nemzeti védelmi felhatalmazásról szóló törvényt (NDAA), amely ma lépett hatályba. A törvényjavaslat a CCP fenyegetésének leküzdésére irányuló intézkedésekkel foglalkozik.
+**【郭先生直播摘要】 2022.1.1 接受得了别人说反话 能听进去不同的****话**
 
-Az “Amerika Hangja” jelentése szerint Biden elnök még ugyanazon a napon aláírta a 2022-es pénzügyi évre vonatkozó nemzetvédelmi felhatalmazási törvényt. A törvényjavaslat 777 milliárd amerikai dollár elkülönítését engedélyezi az Egyesült Államok védelmi kiadásaira. Közülük 7,1 milliárd dollárt különítettek el a “Csendes-óceáni Elrettentési Kezdeményezés” (Pacific Deterrence Initiative) számára, hogy válaszoljon a CCP katonai fenyegetéseire.
+**郭先生：**
 
-Ezen túlmenően, a törvényjavaslat nem csak nyilatkozatot adott ki, hogy az Egyesült Államok Kongresszusa támogatja Tajvan védelmét. Ugyanakkor számos konkrét intézkedést fognak meghozni, hogy segítsék Tajvant önvédelmi képességeinek fejlesztésében. És meghívta Tajvant, hogy vegyen részt a Csendes-óceán körüli katonai gyakorlatokon.
+那么另外一个就日本，大家看法很多，说没有说什么好话。战友们千万记住，你就是想听好话，说你好话这个词。这个就出手就太low了，没有任何世界上的媒体是说人好话的，几乎不可能。能出来说你好话的，只有两个结局，说你好话，人死了。说你两句好话，还有一个，顺便说你好话来证明别人。别人说想说别人坏话的同时，来证明你说好话。
 
-A törvényjavaslat ugyanakkor előírja, hogy a Nemzetvédelmi Minisztériumnak tilos kényszermunkával előállított termékeket vásárolni a kínai Xin Jiang-ban.
+没有人说，这怎么(能)这么要求呢？媒体哪有是好东西，哪有说好话的？我只要它传播就可以，它这个只要传播。共产党它把龙头，变成了“龟头”、变成了“鸟头”  它就行了。它说我什么国际通缉犯啊！  什么，刚才还说播蛇妖闫(闫丽梦)呢，它播，“蛇妖闫”是因为我们把她弄成蛇妖闫。
 
-A hírek szerint a hónap elején a törvényjavaslatot elsöprő többséggel elfogadták az Egyesült Államok Szenátusának és a Képviselőháznak mindkét házában, és széles körű támogatást kapott a demokrata és republikánus kongresszusi képviselők részéről.
+人家世界上并没有，我们把她干掉了，甚至她撒谎，我们并没有大肆揭发她，这都是个客观地看待。不要要求人家一个电台都和你一样，这就是我们身上很大的病，就是我们新中国联邦现在就有个毛病。只要说我不好的，都是我敌人，只要不和我想法一样的，都是我敌人，只要不按照我要求办的，都是我敌人。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+川普没发布戒严令，川普该死。川普没有抓拜登，川普窝囊。拜登没抓川普，拜登窝囊，。用你这种想法的话，那世界上，那不早就乱套了吗？在你世界上，只有一种人——黑和白，要么白存在，要么黑存在。黑白是永远相互存在的，黑天和白夜永远是在的。就是特别是人家媒体，说你不好  你就……只能夸你好，像你们夸七哥一样，把七哥夸的简直是……  是吧！
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1800494/](https://gnews.org/zh-hans/1800494/))
+那就不叫媒体，就是日本的报道  ，它被共产党给黑掉，马上说你给我关了。这说明对共产党来讲  ，它不是好事。我们要有一个，有一个基本的判断，接受得了别人说反话，能听进去不同的话。关键的问题 ，你可以说我，99.9%都可以骂我，攻击我，你只要说一句管用的都行。
 
-参考链接：
+刚才你没有回答我的问题。为什么十大媒体要采访我 ，我都拒绝了？答案非常简单，十家媒体来采访这个“龙头”的事情。最后一定记住，我们会发生十家媒体的大战，它一定会说你坏话，同时也(达到)传播目的。为啥我不接受呢？不到时候，就是一句话，不到时候。什么时候到时候？盘古要变成火龙了，都检查完了，什么都检查完了，什么管道都没问题了。它哪天“嘣”  变成火龙的时候，那个时候我该说话了。他一定会说，这是郭文贵干的。在美国控制了，把龙变成了火龙，那个绝对会成为全世界最大的，到底世界上存不存在着第三方力量，到底有没有外星人。
 
-1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
-2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
-3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
+小王子最关心的外星人，还有我们的小飞侠最关心的。有没有外星人，这都会给你一个答案，另外一个会告诉你，共产党它到底是一个无神论党 ，还是有神论党。它打压宗教到底是假的是真的，它为什么打压其他宗教？无神论的时候，它要装神弄鬼 。第三个会证明，到时裕达的佛手要成为火手。它为什么会同时爆发？然后它栽赃我的时候，到时候看看，到底是新中国联邦干的，
+
+还是天意干的。不到时候，这在西方留下的痕迹是不可抹杀的。
 
 
 
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+
+视频剪辑/听写：小蜜蜂 | 翻译：Arthur | 校对：烟波浩淼 | 视频制作+字幕：CG. |编辑&发布：闪电训练
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
