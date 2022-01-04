@@ -2,53 +2,25 @@
 ---
 
 
-## 政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1819575/)
+## 美国边境执法部门截获的芬太尼数量历史上首次超过海洛因
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1819620/)
 
-作者：Sheila Gunn Reid
-翻译：HimaFAFA
+翻译：zzballack
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-24.jpg)
+据《华盛顿观察家报》（Washington Examiner）1月2日报道，在过去一年，驻扎在边境的美国联邦执法部门截获的芬太尼数量比海洛因还多，这在美国历史上尚属首次。根据美国海关和边境保护局（CBP）的数据，在2021财年，即2020年10月1日至2021年9月30日，CBP在国际邮件检查设施、海、陆、空入境口岸以及试图在入境口岸之间偷渡的走私者那里一共查获了11200磅芬太尼，是2020财年的两倍。同年缴获的海洛因数量为5400磅。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-09.31.54.jpeg)图片来源：原新闻
+大概在十年前，芬太尼首次出现。CBP在2013年首次报告查获了芬太尼，当时只发现了2磅。另外，美国缉毒局（DEA）还缴获了2040万颗掺有芬太尼的假药丸。缉毒局称，这些药丸足以杀死每一个美国人，因为2毫克芬太尼就足以让人死亡。街头毒品也被掺入了芬太尼，每10个药丸中就有4个含有致命剂量的芬太尼，这使得所有类型的非法毒品都不安全。由于很小剂量的毒品就能发挥很大的作用，这也使得毒贩更容易潜入美国境内。
 
-综合分析加拿大人对新冠措施的看法，从重新开放边境到疫苗接种证明再到登机，大多数加拿大人表明拒绝基于疫苗状态歧视他人的措施。
+芬太尼的生产中心位于中共国的武汉市。墨西哥的贩毒集团从武汉的实验室购买芬太尼的原料，然后将生产的芬太尼输入美国。中共国的金融家们为墨西哥毒枭洗钱，将赃钱从美国转到中共国，然后再转回墨西哥。
 
-Blacklock’s首次报道了加拿大人观点的连续定性数据收集分析，该分析于2021 年 10 月 29 日通过对加拿大人跨地域和人口统计的焦点小组投票，枢密院办公室编制。
+几十年来，美墨边境的联邦执法部门已经缴获了数百万磅毒品，其中大部分是大麻。但在过去5年，由于美国各州将娱乐性大麻（recreational cannabis）和大麻的种植合法化，大麻的缉获量明显下降。而且大麻只能只能在特定气候下生长，与可卡因类似，这使得芬太尼和甲基苯丙胺（methamphetamines ）等毒品更具吸引力，因为它们可以在任何地方、任何时间生产。缉毒局局长安妮·米尔格拉姆 (Anne Milgram) 说：“现今的毒品威胁与以往不同，因为这些毒品这都是合成的或人造的，可以无限量地生产。”
 
-对于许多接受调查的人来说，“有人担心基于疫苗接种状态的潜在歧视。” 民意调查还表明，“对某些人来说，出示文件的要求似乎‘过于侵扰’，‘根本没有必要’。”
+中共推动的芬太尼热潮导致了阿片类药物的第三次泛滥，第一次是世纪之交的处方止痛药滥用，然后是海洛因。海洛因是一种非常容易上瘾的镇痛药物，它来自鸦片植物自然产生的吗啡，但合成药物芬太尼比吗啡强100倍。芬太尼的泛滥，也导致美国的吸毒过量致死人数创下新高，在2020年5月至2021年4月期间，有10万多美国人死于吸毒过量，之前一年有7.8万人。美国疾控中心的发言人说，芬太尼是最能推动过量死亡大增的毒品。
 
-根据加拿大人观点的总结：
+一直在追踪芬太尼对公众影响的团体—反对芬太尼之家（Families Against Fentanyl）呼吁拜登政府将芬太尼定义为大规模杀伤性武器（Weapon of Mass Destruction），并敦促联邦政府调动所有力量来应对和缓解这一持续不断的威胁。
 
-
-> 许多人提到了实施疫苗护照对公民自由的影响，将其视为对未接种疫苗的人旅行能力的侵犯……一些对疫苗护照持怀疑态度的人认为他们强迫人们接种疫苗以便旅行，他们被视为不当胁迫。”
-> 
-> 其他人则担心疫苗护照的实施是迈向强制疫苗接种政策的第一步……他们认为朝这个方向前进直接违反了加拿大人在这种情况下选择是否接种疫苗的权利，并且可能会影响就业机会和未接种疫苗者在经济上支持家庭的能力。
-
-
-尽管加拿大人在很大程度上支持医疗选择并尊重同胞的隐私，但他们反对加拿大总理仍然很乐意对未接种疫苗的人进行污名化。 特鲁多最近在接受法语采访时说，未接种疫苗的是一群讨厌女性的人和种族主义者：
-
-
-> “但也有一些人强烈反对疫苗接种，他们不相信科学，他们往往厌恶女性，也常常是种族主义者。这是一小群人们。
-> 
-> “我们必须做出选择，就领导人而言，就国家而言。我们能容忍这些人吗？”
-
-
-来源：https://www.rebelnews.com/internal\_government\_polling\_shows\_trudeau\_out\_of\_step\_with\_canadians\_on\_vaccine\_passports
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+信息来源：[More fentanyl than heroin stopped at border for first time ever as US overdoses rage](https://www.washingtonexaminer.com/restoring-america/fairness-justice/more-fentanyl-than-heroin-stopped-at-border-for-first-time-ever-as-us-overdoses-rage)
 
  
 

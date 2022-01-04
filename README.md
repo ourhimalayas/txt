@@ -15,116 +15,116 @@
 
 ---
 
-### [外媒报道：中共国本次奥运会面临西方日益增长的抵制](/content/gnews/1/README.md)
+### [G时评218期直播摘要（1.3）：俄罗斯高调揭露疫苗阴谋](/content/gnews/1/README.md)
+ ` GISELLE`
+
+### [美国边境执法部门截获的芬太尼数量历史上首次超过海洛因](/content/gnews/2/README.md)
+ ` 首尔天池农场`
+
+### [外媒报道：中共国本次奥运会面临西方日益增长的抵制](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致](/content/gnews/2/README.md)
+### [政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [川普民主党支持者：美企不应与“红魔共舞”，应把工作带回美国](/content/gnews/3/README.md)
+### [川普民主党支持者：美企不应与“红魔共舞”，应把工作带回美国](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [通胀高企，土耳其人钱袋持续缩水](/content/gnews/4/README.md)
+### [通胀高企，土耳其人钱袋持续缩水](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/5/README.md)
+### [研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [重磅炸弹：接种疫苗的人因自身器官受到自身免疫性攻击而死亡](/content/gnews/6/README.md)
+### [重磅炸弹：接种疫苗的人因自身器官受到自身免疫性攻击而死亡](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [爆料内幕，魁北克政府准备为未接种疫苗的人实施《疫苗税》](/content/gnews/7/README.md)
+### [爆料内幕，魁北克政府准备为未接种疫苗的人实施《疫苗税》](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务](/content/gnews/8/README.md)
+### [洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲航空业里的疫苗副作用现象](/content/gnews/9/README.md)
+### [澳洲航空业里的疫苗副作用现象](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [魁北克省在新的COVID-19浪潮中开始关闭零售商店](/content/gnews/10/README.md)
+### [魁北克省在新的COVID-19浪潮中开始关闭零售商店](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [亿万富豪拥抱加密货币以防“财产堕入地狱”](/content/gnews/11/README.md)
+### [亿万富豪拥抱加密货币以防“财产堕入地狱”](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拥核五大国声称不搞核战和核竞赛](/content/gnews/12/README.md)
+### [拥核五大国声称不搞核战和核竞赛](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安的人道灾难与CCP病毒](/content/gnews/13/README.md)
+### [西安的人道灾难与CCP病毒](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭先生谈风水](/content/gnews/14/README.md)
+### [郭先生谈风水](/content/gnews/16/README.md)
  ` GTV News Talk`
 
-### [1/3/2022 文贵盖特：郑州要封城，更多城市会被封](/content/gnews/15/README.md)
+### [1/3/2022 文贵盖特：郑州要封城，更多城市会被封](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [第205期玫瑰看新闻-币圈新闻](/content/gnews/16/README.md)
+### [第205期玫瑰看新闻-币圈新闻](/content/gnews/18/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [1/3/2022 文贵盖特：《我是音雄》和元旦直播震撼了国内](/content/gnews/17/README.md)
+### [1/3/2022 文贵盖特：《我是音雄》和元旦直播震撼了国内](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [第205期玫瑰看新闻-疫苗新闻](/content/gnews/18/README.md)
+### [第205期玫瑰看新闻-疫苗新闻](/content/gnews/20/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [文贵先生盖特精要2022/01/03](/content/gnews/19/README.md)
+### [文贵先生盖特精要2022/01/03](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟三大经济体的政治变革正在到来](/content/gnews/20/README.md)
+### [欧盟三大经济体的政治变革正在到来](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [第205期玫瑰看新闻-国际热点新闻](/content/gnews/21/README.md)
+### [第205期玫瑰看新闻-国际热点新闻](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/22/README.md)
+### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/24/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/23/README.md)
+### [有声|泽连科医生染疫后用羟氯喹自行治愈](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/24/README.md)
+### [又一家香港媒体因“媒体环境恶化”而关闭](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共征税大变局，高收入人群被一锅端](/content/gnews/25/README.md)
+### [中共征税大变局，高收入人群被一锅端](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/26/README.md)
+### [有声|蔡英文正告中共停止对台商选择性执法恫吓](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/27/README.md)
+### [加拿大武装部队部署到魁北克以开展新冠疫苗接种活动](/content/gnews/29/README.md)
  ` MG FARM`
 
-### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/28/README.md)
+### [第205期玫瑰看新闻-新中国联邦新闻](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/29/README.md)
+### [中共国正在耗尽水资源，这对亚洲来说是可怕的](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/30/README.md)
+### [12/29/2021 文贵直播：西安百分百是疫苗灾难，陕西特定剧毒疫苗，后果就是七窍流血](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [每日快报：乔·罗根 (Joe Rogan) 加入 GETTR](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/32/README.md)
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [郭先生谈五行与爱](/content/gnews/33/README.md)
+### [郭先生谈五行与爱](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [郭先生谈爆料革命战友无我、利他](/content/gnews/34/README.md)
+### [郭先生谈爆料革命战友无我、利他](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2022年1月3日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/36/README.md)
+### [恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/37/README.md)
  ` GTV新闻访谈`
-
-### [联盟工作汇报文字版2022.1.2](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
 
 ### [1/2/2022 文贵盖特：疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
