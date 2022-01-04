@@ -18,86 +18,86 @@
 ### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [7·24系列——盘古龙头的东西中轴线上有什么？](/content/gnews/2/README.md)
+### [日本将与澳大利亚签署防卫协议](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [7·24系列——盘古龙头的东西中轴线上有什么？](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [接受得了别人说反话 能听进去不同的话](/content/gnews/3/README.md)
+### [接受得了别人说反话 能听进去不同的话](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国人民银行原党委书记、主任牟善刚接受调查](/content/gnews/4/README.md)
+### [中共国人民银行原党委书记、主任牟善刚接受调查](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [防卫省开发轨道弹：科幻和动漫走进生活](/content/gnews/5/README.md)
+### [防卫省开发轨道弹：科幻和动漫走进生活](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire](/content/gnews/6/README.md)
+### [Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését](/content/gnews/7/README.md)
+### [Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [COVID-19 变种干扰了假期旅行但不影响购物](/content/gnews/8/README.md)
+### [COVID-19 变种干扰了假期旅行但不影响购物](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [参议员兰德·保罗宣布退出YouTube加入Rumble](/content/gnews/9/README.md)
+### [参议员兰德·保罗宣布退出YouTube加入Rumble](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [任凭奥斯汀防长“全副武装”，依然感染奥密克戎](/content/gnews/10/README.md)
+### [任凭奥斯汀防长“全副武装”，依然感染奥密克戎](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国民众强烈质疑批评扩大中共病毒疫苗加强针接种范围](/content/gnews/11/README.md)
+### [美国民众强烈质疑批评扩大中共病毒疫苗加强针接种范围](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [女演员乌比-戈德堡的中共病毒检测结果呈阳性](/content/gnews/12/README.md)
+### [女演员乌比-戈德堡的中共病毒检测结果呈阳性](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宋词新作：西河·2022水太多好灭共](/content/gnews/13/README.md)
+### [宋词新作：西河·2022水太多好灭共](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [为避免核战争五个核大国不寻常的联合声明](/content/gnews/14/README.md)
+### [为避免核战争五个核大国不寻常的联合声明](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】印尼突然禁止煤炭出口 对中共国影响巨大？](/content/gnews/15/README.md)
+### [【中日财经爆】印尼突然禁止煤炭出口 对中共国影响巨大？](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】受中共病毒和中共债务陷阱双重打击 斯里兰卡将破产](/content/gnews/16/README.md)
+### [【中日财经爆】受中共病毒和中共债务陷阱双重打击 斯里兰卡将破产](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美中俄英法5国发表联合声明承诺防止核战](/content/gnews/17/README.md)
+### [美中俄英法5国发表联合声明承诺防止核战](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [悉尼一医院：休年假员工重返岗位每班可获250澳币](/content/gnews/18/README.md)
+### [悉尼一医院：休年假员工重返岗位每班可获250澳币](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频| 郭先生对“铁血组”2022年的希望](/content/gnews/19/README.md)
+### [视频| 郭先生对“铁血组”2022年的希望](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【文炬拾字】元旦灭共又一年](/content/gnews/20/README.md)
+### [【文炬拾字】元旦灭共又一年](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [视频| 拜登签署的国防授权法案的意义](/content/gnews/21/README.md)
+### [视频| 拜登签署的国防授权法案的意义](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦国旗蓝的寓意](/content/gnews/22/README.md)
+### [视频| 新中国联邦国旗蓝的寓意](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [盖特年度“中共最大梦魇奖”获得者—郭文贵先生](/content/gnews/23/README.md)
+### [盖特年度“中共最大梦魇奖”获得者—郭文贵先生](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [魁北克省宵禁规定因民怨沸腾而被迫放宽](/content/gnews/24/README.md)
+### [魁北克省宵禁规定因民怨沸腾而被迫放宽](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共病毒疫苗具有诱发艾滋病的超高风险](/content/gnews/25/README.md)
+### [中共病毒疫苗具有诱发艾滋病的超高风险](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美主流媒体欺诈性报道疫情新闻](/content/gnews/26/README.md)
+### [美主流媒体欺诈性报道疫情新闻](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [GTV新闻访谈简报|2022年1月3日晚](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2022年1月3日晚](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
-
-### [有声|各界质疑中共人权劣迹官员任国际刑警执委](/content/gnews/28/README.md)
- ` MOSREC`
 
 ### [有声|中共政府从西方社交媒体收集了大量数据](/content/gnews/29/README.md)
  ` MOSREC`

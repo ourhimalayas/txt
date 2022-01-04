@@ -2,31 +2,32 @@
 ---
 
 
-## 有声|各界质疑中共人权劣迹官员任国际刑警执委
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1819835/)
+## GTV新闻访谈简报|2022年1月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819896/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月25日，据国际刑警组织宣布的消息显示，中共公安部副局长胡彬郴当选该组织执委会委员。
+作者：香草山翻译部
 
-据了解，在侵犯人权以及镇压不同政见者方面，胡彬郴存在很大污点。为此，胡彬郴此次的任职受到国际社会的强烈质疑。
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
 
-由多个国家和党派组成的“对华跨国议会联盟”致函国际刑警组织表示，允许胡彬郴进入执委会就是向中共政府继续滥用国际刑警组织的行为大开绿灯。同时，此举会让成千上万生活在海外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
 
-该联盟警告国际刑警组织，倘若继续作为中共压迫政策的工具，将对其国际地位造成严重损害。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0103text-SC.png)
+校对：Stay文苑
 
-文字版原文：[各界质疑中共人权劣迹官员任国际刑警执委](https://gnews.org/zh-hans/1700458/)
+编辑：Stay文苑
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+发稿：Stay文苑
+
+视频参看：[1.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d3a29831a71619b5744169)
+
+![r](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
