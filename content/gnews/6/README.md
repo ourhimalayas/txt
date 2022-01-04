@@ -2,43 +2,44 @@
 ---
 
 
-## 人生的十二条法则：路上碰到一只猫咪时，记得摸摸它
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1822888/)
+## 推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822924/)
 
-作者：吴迪
-编辑：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-4.png)
+**非常重要：在GETTR上关注亚历克斯·琼斯（[Alex Jones](https://www.gettr.com/user/alexjones)）播客之王乔·罗根（Joe Rogan）周日宣布，他已经加入了社交媒体平台GETTR，此前Twitter和YouTube封禁分享他最新内容的人们。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-41.jpg)
+“为了防止推特上糟糕的事情变得更蠢，我现在也在这里了。欢呼吧！” 罗根在GETTR上发帖，他在该平台已经积累了超过800万的粉丝。这个平台发誓所有言论不会被屏蔽，并允许新用户导入他们的旧推文，以期吸引人们离开推特（Twitter）。
 
-在说猫咪之前，Jordan Peterson花了大概5页纸讲自己多么地爱狗狗，描述了自己和自己爱犬的逸闻趣事，希望爱狗人士不会因为他标题中提到的猫咪而觉得他是“另一个阵营”的人。然后，他又在正式开始讲自己对猫的热爱之前，花了很长时间给爱猫人士道歉，说你们看了这么久都没看到猫的内容，辛苦了。
+罗根最近采访了mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士，他最近因为反对该技术被用于抗新冠病毒（COVID）的大规模接种而被推特禁言。在采访中，马龙概述了他是如何认为世界在接受疫苗接种和实施过度的限制作为解决方案后堕入了“大规模形成性精神病”。
 
-我们对标签的热爱，对“不跟我们一伙儿”的人的敌意，把这个可爱的教授已经搞出了心理阴影，但他的讽刺手法幽默又可爱。
+在采访中，罗根指出：“他们删除你是因为你不顺从大科技叙事，因为当涉及到新冠病毒在治疗方面，在–无论你是否在宣传他们所谓的疫苗接种迟疑不决，技术显然有一个审查议程，他们可以因此禁止你的发言，他们可以因为在他们眼中他们认为是一个合理的冒犯而禁言你”。马龙回应说：“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们思考什么。好吗？但问题是，如果我不是–如果我参与对话是不对的，即使我指出了令人不安的科学事实，那么谁是，谁又可以被允许呢？”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-5.png)
+油管（YouTube）的马龙采访已经被撤下，同时撤下的还有罗根对心脏病专家彼得·麦卡洛（Peter McCullough）博士的采访，而谷歌（Google）也被指控改动了马龙和他的“大规模形成性精神病”术语的搜索结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-9.png)
+推特还在周日永久封禁了众议员马乔里·泰勒·格林（Marjorie Taylor Greene），因为她质疑大技术叙事。最后一击似乎是当格林问极左派众议员亚历山德拉·奥卡西奥·科特兹(Alexandria Ocasio-Cortez)是否已经向州长罗恩·德桑蒂斯(Ron DeSantis)道歉，因为亚历山德拉批评他公开场合缺席，原来是因为他在照顾他患癌症的妻子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-11.png)
+**简评：**
 
-他说人生很苦，有时候暗得见不到光，但是他邀请大家，在被生活打得喘不过气的时候，能够看到微小的神秘，生命力和奇迹。 他描述着在街上偶遇的猫猫总能提醒他生活是多么地不可控和不可预测，同时又多么地美好和值得感激。
+Twitter等社交媒体平台大公司启动焦土审查制度，对政治不正确的人士进行封杀。上周末，Twitter禁言了顶级病毒学家和mRNA技术发明人罗伯特·马龙（Robert Malone）博士和素有火爆性格的保守派众议员马乔里·泰勒·格林（Marjorie Taylor Greene），原因就只是他们分享了关于Covid的真相。
 
-他的女儿在6岁的时候得了罕见的疾病，整个家庭被阴云笼罩，有时走在路上Peterson都会忍不住崩溃地哭出声来。他不知道为什么上帝会这么残忍，他一想到自己可爱的女儿每天承受的刻骨铭心的疼痛，就撕心裂肺。（女儿得的是一种病因未明的、以炎性滑膜炎为主的慢性系统疾病，疼痛感是人类所能测量出来的疼痛感里的最高级，10级）。
+被永久封杀的人士还包括独立新闻社Infowars的创建者亚历克斯·琼斯（Alex Jones），Spotify顶级播客乔·罗根因对其审查制度深感厌恶，也转移到正在迅速崛起的GETTR媒体平台。在GETTR上，任何人都可以自由发表言论，并可关注和及时获取有关世界上正在发生的事情的真实消息。
 
-有一天，他在家附近又忍不住哭了出来，这时一只小猫过来好奇地看着他，优雅地踱步。这片刻的柔软和美好，让他眼前的乌云短暂地散开，他突然感受到这只小猫的纯真，这种双方短暂的交集，生命的易逝，和他美丽女儿的善良与脆弱，都是一体的。如果不是因为“病痛“和”死亡的可能“， 他女儿的生命也不会如此地不可替代，生命之美震撼人心。
+物以类聚，人以群分。Twitter等社交媒体平台对讲真话的、勇于向主流恶势力挑战的人永久封杀在其平台外。证明Twitter是鼓吹非真话的平台，其已经沦为极权的工具，正如马乔里·泰勒·格林所指责的：推特协助不明身份的敌人进行“共产主义革命”。
 
-所以，路上碰到一只猫咪，要记得摸摸它。
+如果说Twitter协助“共产主义革命”，那么，GETTR就是捍卫“正义、自由和利于人类未来的革命”。
 
-来源：https://matters.news/@philosophia1979/350-jordan-peterson-%E5%B8%A6%E4%BD%A0%E5%8E%98%E6%B8%85%E6%B7%B7%E4%B9%B1%E7%9A%84%E5%8D%81%E4%BA%8C%E6%9D%A1%E4%BA%BA%E7%94%9F%E6%B3%95%E5%88%99-%E9%87%8E%E5%85%BD%E7%94%B5%E5%8F%B0-bafyreicavekyycmky6uaabqkgvxbjfcz2ayuqj6b4cfc7fzqaqpcn2cuba
+新闻链接: [https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/](https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/)
 
-（文章仅代表作者个人观点）
+* * *
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**关注我们**
 
-Discord 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

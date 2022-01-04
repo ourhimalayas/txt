@@ -2,44 +2,48 @@
 ---
 
 
-## 推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822924/)
+## 2021年COVID疫苗回顾：2亿人接种45万人死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1823033/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-4.png)
-**非常重要：在GETTR上关注亚历克斯·琼斯（[Alex Jones](https://www.gettr.com/user/alexjones)）播客之王乔·罗根（Joe Rogan）周日宣布，他已经加入了社交媒体平台GETTR，此前Twitter和YouTube封禁分享他最新内容的人们。**
+编译：Jenny Ball
 
-“为了防止推特上糟糕的事情变得更蠢，我现在也在这里了。欢呼吧！” 罗根在GETTR上发帖，他在该平台已经积累了超过800万的粉丝。这个平台发誓所有言论不会被屏蔽，并允许新用户导入他们的旧推文，以期吸引人们离开推特（Twitter）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-1231726973-700x420-1.jpg)2021年3月13日，人们在华盛顿州西雅图 流明场活动中心的社区疫苗接种站点开放日期间，接种了辉瑞 Covid-19 疫苗。（Jason Redmond/AFP via Getty Images）
 
-罗根最近采访了mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士，他最近因为反对该技术被用于抗新冠病毒（COVID）的大规模接种而被推特禁言。在采访中，马龙概述了他是如何认为世界在接受疫苗接种和实施过度的限制作为解决方案后堕入了“大规模形成性精神病”。
+随着除夕夜的过去，2021 年是中共病毒大流行及其全球应对措施实施的第二年。与2020年相比，去年不仅更加致命，而且更加复杂。病毒变异、疫苗耐药性和效力等问题已成为首要问题。强制接种疫苗在几个月内，从“阴谋论”变成了官方政策。政府对人口限制的法律斗争也越来越突出，不同州采取的方法进一步分歧。
 
-在采访中，罗根指出：“他们删除你是因为你不顺从大科技叙事，因为当涉及到新冠病毒在治疗方面，在–无论你是否在宣传他们所谓的疫苗接种迟疑不决，技术显然有一个审查议程，他们可以因此禁止你的发言，他们可以因为在他们眼中他们认为是一个合理的冒犯而禁言你”。马龙回应说：“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们思考什么。好吗？但问题是，如果我不是–如果我参与对话是不对的，即使我指出了令人不安的科学事实，那么谁是，谁又可以被允许呢？”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-5.png)
-油管（YouTube）的马龙采访已经被撤下，同时撤下的还有罗根对心脏病专家彼得·麦卡洛（Peter McCullough）博士的采访，而谷歌（Google）也被指控改动了马龙和他的“大规模形成性精神病”术语的搜索结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-9.png)
-推特还在周日永久封禁了众议员马乔里·泰勒·格林（Marjorie Taylor Greene），因为她质疑大技术叙事。最后一击似乎是当格林问极左派众议员亚历山德拉·奥卡西奥·科特兹(Alexandria Ocasio-Cortez)是否已经向州长罗恩·德桑蒂斯(Ron DeSantis)道歉，因为亚历山德拉批评他公开场合缺席，原来是因为他在照顾他患癌症的妻子。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-11.png)
-**简评：**
+尽管 2021 年以一波与 COVID-19 相关的住院治疗开始，但人们也曾预计，这种流行病将很快结束，或至少会逐渐消失。疫苗接种被宣传为恢复正常的保票。最初看起来像是这样，到** ****6 **月中旬，大约有 1.8 亿美国人至少接种了一种经批准的疫苗，甚至采取最专制措施的纽约等州，也取消了大部分限制。
 
-Twitter等社交媒体平台大公司启动焦土审查制度，对政治不正确的人士进行封杀。上周末，Twitter禁言了顶级病毒学家和mRNA技术发明人罗伯特·马龙（Robert Malone）博士和素有火爆性格的保守派众议员马乔里·泰勒·格林（Marjorie Taylor Greene），原因就只是他们分享了关于Covid的真相。
+**Delta**变异
 
-被永久封杀的人士还包括独立新闻社Infowars的创建者亚历克斯·琼斯（Alex Jones），Spotify顶级播客乔·罗根因对其审查制度深感厌恶，也转移到正在迅速崛起的GETTR媒体平台。在GETTR上，任何人都可以自由发表言论，并可关注和及时获取有关世界上正在发生的事情的真实消息。
+然而，喘息是短暂的。**7 **月，感染人数再次激增。CCP 病毒变异成一种新的变种，称为 Delta，它似乎不那么致命，但更具传染性。疫苗的接种放缓，达美航空似乎对它更有抵抗力。但当局提出的解决方案是：再注射一次疫苗——“加强剂”。
 
-物以类聚，人以群分。Twitter等社交媒体平台对讲真话的、勇于向主流恶势力挑战的人永久封杀在其平台外。证明Twitter是鼓吹非真话的平台，其已经沦为极权的工具，正如马乔里·泰勒·格林所指责的：推特协助不明身份的敌人进行“共产主义革命”。
+8 月，当时饱受诟病的总统乔·拜登宣布了一项重大政策转变——政府工作人员、承包商，甚至拥有 100 多名雇员的私人雇主，必须接种疫苗。就在几个月前，政府还驳回了强制接种疫苗的想法。任何有关政府可能会强迫人们使用仍在长期临床试验过程中的新型疫苗的建议，甚至被一些人嘲笑为“阴谋论”。
 
-如果说Twitter协助“共产主义革命”，那么，GETTR就是捍卫“正义、自由和利于人类未来的革命”。
+拜登宣布后不久，一些以民主党为主的州和地方紧随其后，制定了自己的各种授权，纽约市率先采取了行动。纽约一点一点地要求政府工作人员、私立学校工作人员、大多数室内机构工作人员，甚至健身房、娱乐场所和餐馆的顾客都要求疫苗接种。要在室内看电影、锻炼或吃饭，纽约人现在必须出示“完全”疫苗接种证明，目前不包括加强疫苗和带照片的身份证。
 
-新闻链接: [https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/](https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/)
+对疫苗任务的法律挑战既有失败也有胜利。通常，法院会阻止授权，但只是为了稍后允许它生效。预计最高法院将听取拜登对私人雇主的授权要求的挑战。
+
+与 Delta 相关的另一个现象是，儿童中严重疾病甚至死亡人数的增加。根据CDC的数据，2021年儿童与 COVID-19 相关的死亡人数总计为 678 人。相比之下，CDC在 2009-2010 年流感大流行期间记录了 358 名儿科死亡。
+
+**Omicron**
+
+随着冬天的临近，大约有 5000 万美国人接种了加强针。然而，如果那是给他们一种安全感，那将是短暂的。南非出现了一种能够广泛传播的新变种，名为 Omicron。有迹象表明，疫苗和在较小程度上通过先前感染获得的自然免疫，只能对 Omicron 提供有限的抵抗力。另一方面，该变种似乎更具传染性，但同样如 Delta 一样不那么致命，据报道，全世界的症状要轻得多，死亡人数要少得多。
+
+无论是否有 Omicron，在东北部，因 COVID-19 导致的住院人数激增。纽约州州长再次要求人们在室内场所戴口罩，无论是否接种疫苗。
+
+共和党领导的各州普遍采取相反的方向，不仅避免强制执行，有的甚至将其取缔。佛罗里达州甚至明确禁止地方政府和学区对其员工或设施强加戴口罩和接种疫苗的规定。由共和党州长罗恩·德桑蒂斯 (Ron DeSantis) 领导的该州，还通过制定多项豁免（包括健康问题和先前感染）来限制私营企业实施疫苗要求。
+
+**点评：有对比才有结论，这就解释了为什么大量的美国人逃离蓝州，去往像佛州这样的红州。**
+
+**参考资料：**[theepochtimes][2021 COVID-19 Recap: 200 Million Vaccinated, 450,000 Dead](https://www.theepochtimes.com/2021-covid-19-recap-200-million-vaccinated-450000-dead_4190440.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-04)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 
