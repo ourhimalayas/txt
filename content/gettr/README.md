@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 1:56 PM (UTC)`
+
+1月4号：我的乖乖哟……估计过几天共产党也得给拆了？<br/><br/>https://gnews.org/zh-hans/1820344/<br/>在谷歌地图上，沿着盘古七星酒店从东往西拉一条横线，可以看到这条横线穿过山西省大同市。在大同市的和阳街，有一面九龙壁，建于明洪武年间，是中国现存九龙壁中建筑年代最早、最大的一座。
+
+---
+
 `@miles 1/4/2022 1:52 PM (UTC)`
 
 1月4号：我的那乖乖来……这个世界变化太大了<br/><br/>Incredible tweet from Turley who is NO trump fan<br/><br/><br/>You should reach out Jason <br/><br/><br/>Jonathan Turley (@JonathanTurley) Tweeted:<br/>Twitter is continuing to crackdown on conservatives and those who espouse dissenting views. The latest bans, however, led to Joe Rogan to move over to Gettr. https://t.co/LjZLwV0WdV Much like the MSM, Twitter seems to be ditching half of the country. https://t.co/bQDr3tJcXq<br/>https://twitter.com/JonathanTurley/status/1477992218506018817?s=20
@@ -152,13 +158,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/2/2022 Miles Guo’s GETTR: The number of foreigners watching the New Year’s live broadcast reached an unprecedented peak. The purpose and value of our live broadcast is to wake up more people. The CCP is to blame for the tragedies in Xi'an and Afghanistan. The most critical question about the disasters caused by CCP virus and COVID vaccines is who will be responsible for them? Why not hold the CCP accountable for the origin of the virus?<br/><br/>1/2/2022 文贵盖特：元旦大直播外国观众人数创新高，我们直播的目的与价值在于唤醒更多的人；中共是在西安和阿富汗发生的惨剧的罪魁祸首；关于病毒和疫苗灾难最关键的问题是谁将为此负责？为何不找中共溯源呢？<br/>
 ![img](https://media.gettr.com/group22/getter/2022/01/03/07/d7e7e60d-80b6-ca85-aaff-9570a8e73df9/out.jpg)
-
----
-
-`@miles 1/3/2022 7:17 AM (UTC)`
-
-1/1/2022 Miles Guo: 2022 will be a year of catastrophes for the CCP, there will be flooding and agricultural disasters in China, and brutal and bloody political infightings will accompany the 20th Party Congress. People all over the world will be facing the darkness brought by the disasters of the CCP virus and COVID vaccines. Citizens of the New Federal State of China should take actions in unity, stay faithful, and make our financial and media sectors even stronger. We will definitely win in 2022!<br/><br/>1/1/2022 文贵直播：2022年将是灾难的一年，国内将发生洪灾、农灾，中共20大将发生血腥内斗，世界将面对病毒和疫苗灾难带来的黑暗；新中国联邦人要团结、坚持信仰、做强做大金融和媒体 - 2022年，我们一定会赢！<br/><br/>
-![img](https://media.gettr.com/group29/getter/2022/01/03/07/2c3bd06c-a9f7-78f0-ea29-8e2059afdee4/out.jpg)
 
 ---
 

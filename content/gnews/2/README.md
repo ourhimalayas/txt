@@ -2,10 +2,10 @@
 ---
 
 
-## 辉瑞CEO：FDA已批复含微生物芯片药物以追踪病人是否服药
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821616/)
+## 佛州将限制其2500亿美元的州基金投资于中共国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821625/)
 
-在2018年一次论坛上，辉瑞CEO阿尔伯特•伯拉说FDA已经批复第一种电子药物，这种药物含有微生物芯片，会追踪病人是否服用这种药物。
+12/28/2021 佛罗里达州的首席财务官吉米·帕特罗尼斯：佛罗里达州将加强对其2500亿美元州基金的投资控制，而不是让贝莱德将它们投资于中共国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

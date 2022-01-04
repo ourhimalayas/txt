@@ -2,10 +2,10 @@
 ---
 
 
-## 历史重演：福奇在近30年前就被指控犯有种族灭绝罪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821614/)
+## 纽约民选市长埃里克•亚当斯继续私营企业疫苗强制
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821620/)
 
-历史重演：福奇在近30年前就被罗伯特·E·威尔纳博士指控犯有种族灭绝罪。
+12/30/2021 纽约民选市长埃里克•亚当斯会继续保留对私营企业的疫苗强制政策。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
