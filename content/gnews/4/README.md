@@ -2,25 +2,23 @@
 ---
 
 
-## 华为斥巨资渗透收买英国顶尖大学
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819802/)
+## 中共山东最高法：不能仅以出轨为由离婚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819804/)
 
-作者：纽约香草山 医疗部 云豹
+作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体12月30日报导，依据信息自由要求所获得的部分数据显示，中共华为电信公司自2016年至2021年底，至少已花费七千万英镑，分别送给英国各大顶尖大学，用于收买渗透各大学的教授及相关人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.31.png)
-华为用钱收买顶尖大学的明显例子发生于剑桥大学耶稣书院，在2020年，剑桥大学耶稣书院发表了一份关于电信改革的研究报告，并在报告中赞扬华为。此后，耶稣学院承认从华为收到了15万英镑，用于撰写此报告的费用；此外，该学院还从中共国家留学基金委分别收到了20万到40万英镑的献金。在2021年9月，剑桥一个研究中心的大部分研究人员被发现与华为有关联，因此，华为被指控“渗透”了该研究中心。
+当地时间1月2日，中共山东最高法院宣布，夫妻双方不能以出轨为由请求离婚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.24.png)
+该法院援引中共《民法典》中婚姻法的法律解释：即出轨的证据仅证明配偶存在不忠行为，但是未能证明配偶与他人同居，或夫妻感情破裂，因此不能以此作为起诉离婚的理由，更不能作为要求离婚损害赔偿的条件。
 
-目前，已知剑桥、牛津、皇家艺术学院、伦敦玛丽皇后大学、伦敦国王学院、利物浦大学等知名大学皆有收受来自华为的献金。但是，尚有许多大学拒绝公布从华为收到献金的详细内容。
+中共的高压独裁下，人性压抑。用法律手段强制维持情感破裂的婚姻，只会让整个社会更加恐惧婚姻。中共国婚姻率和生育率恐怕将会一降再降。
 
-参考链接：
-1）[Revealed: Huawei’s Oxbridge millions](https://www.spectator.co.uk/article/revealed-huawei-s-oxbridge-millions)
-2）[Data: Chinese research partnerships with UK universities](https://chinaresearchgroup.org/research/data-chinese-research-partnerships-with-uk-universities)
+参考链接：[山东高法：不能仅以出轨为由请求离婚](https://view.inews.qq.com/a/20220102A04KRK00)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：文特
-编辑：文徬
+总编：飞虹
+编辑：文特
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
