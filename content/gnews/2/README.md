@@ -2,43 +2,82 @@
 ---
 
 
-## 台湾可能以观察员身份参加2022年环太军演
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1819868/)
+## 共产党每时每秒在杀人，十四亿中国人苟且偷生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819884/)
 
-![Ship-based version of Harpoon missile fired during RIMPAC 2016 maneuvers.
-](https://tnimage.s3.hicloud.net.tw/photos/2021/10/22/1634882276-617252e46638b.jpg)图为2016年的环太平洋军演。来自维基。
-来自《台湾英文新闻》网站2022年01月02日的报道，一位台湾国防分析人士表示，台湾很可能以观察员而不是参与者的身份参加今年的环太平洋军事演习(RIMPAC)。
+[https://gtv.org/video/id=61d2b60adffab035958a2ec1](https://gtv.org/video/id=61d2b60adffab035958a2ec1)
 
-据美国有线电视新闻网(CNN)报道，作为世界上最大的海上作战军事演习，环太平洋军演定于今年夏天再次举行，有20个国家和25000名军事人员参加。在美国总统拜登上周签署了2022年国防授权法案(NDAA)之后，台湾将如何参与正受到密切关注。
+**郭文贵**
+**Miles Guo**
 
-该法案的一部分要求台湾参与由美国印太司令部主办的演习。
+你想想共产党每时每刻每秒都在杀人，都在吃人肉
+Think about it that the Communist Party is killing and cannibal-izing people every moment every second
 
-为台湾安全提供分析和战略评估的智库国防安全研究院(INDSR)的研究员刘颖杰认为，尽管规模较小，但可能参演的方式有三种，作为观察员、战争游戏的成员或实弹演习的参与者。
+都在把人类变成了畜生都不如的(种)类，而且中国人现在要领导全世界
+Are turning all humans into the races that are not even as good as animals, and Chinese now wants to lead the whole world
 
-他说，战争游戏的目的是帮助决策者在高压的环境中发现问题和盲点，而不是找到赢得战争的方法。这种机会将使台湾更清楚地了解它和它的盟友在不同情况下应该扮演的角色。
+根本之原因，雅阁，就是没信仰，没上天，对万物之不敬
+Yage, the fundamental reason is that there is no faith, no God, and disrespect to everything
 
-刘颖杰建议，如果台湾被邀请参加实弹演习，例如加入其他海上巡逻队或海军陆战队的模拟行动，这将在很大程度上提高台湾在涉及多个盟国的战争中的协同作战能力。
+雅阁你现在长这个样子，你要在国内待着你一定不是这个样子
+Yage, your appearance look like this now, you must not be like this if you live in China
 
-然而，这位分析人士认为，美国政府受其“一个中国”政策的束缚，最有可能的选择是邀请台湾作为观察员，以避免激怒中共政权。他说，虽然这种做法会限制台湾与其他国家进行训练和向其他国家学习的能力，但它仍然会让台湾的军事人员有机会参与演习计划，为未来的演习作参考。
+就那个环境，就那个人文，那个没有信仰的、那个土壤里长出来的人的样子就是邪恶
+Just the environment and the humanities, the appearance of people who grow up from that land without faith, it is evil
 
-简评：台湾的风土人情和台湾人民的温文尔雅一直是自由民主状态下华人生活的一个范例，台湾的事迹就在向全世界宣告，中国人是需要民主的，中国人是值得拥有民主的。美国邀请台湾作为2022年环太平洋军演的观察员国是在一定层度上表达对台湾安全的支持，但我们也不能小看了中共在美国蓝金黄的力量，台湾很可能已经被多次勾兑了。冬奥会之后，台湾的局势可能会更加危险。但有新中国联邦的存在和积极参与台海事务，中共对台湾的企图一定不会得逞！
+每个人的眼神里边带着一种狰狞和邪恶，男女老少都这样，这是核心兄弟
+In everyone’s eyes there have a kind of hideousness and evil look, men and women, young and old, they all like this, this is the core problem, brother
 
-新闻链接: [https://www.taiwannews.com.tw/en/news/4395839](https://www.taiwannews.com.tw/en/news/4395839)
+没有信仰的中国是最微小的中国，而且最后一定中国人要为此付出代价
+China without faith is the insignificance and dangerous China, and in the end the Chinese people must pay the price
 
-翻译/简评: kkoto(芬兰大灰狼)
+瞪眼撒谎，人家美国人不去，你看你看你要来嘛，是吧
+lying in front of your face, the Americans don’t go to Bei-jing(olympic), look at it that you want to come, right?
 
-PR:Harvey（叶知秋）
+我不让你来你(偏)要来嘛，就这样糊弄中国十几亿同胞，你可见中国人在它眼里成了啥
+I won’t let you come that you come anyway, just like this to fool the billions of Chinese compatriots, you can see what the Chinese have become in its eyes
 
-* * *
+你给普京1000多亿，你给法国你给德国订了100多架空客飞机
+CCP gave Putin more than 100 billion dollars, and CCP ordered more than 100 Airbus planes from France and Germany
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你就搞个狗屁一个月的奥运会，它能产啥，冬奥会
+And they just want to have the Olympic Game for a month, what can it produce from the Winter Olympic Game
 
+就像文化大革命一样，你搞那么多工程，最后留下了啥，悲哀呀
+Just like the Cultural Revolution, they did so many movements, what was left in the end, it’s sad!
 
-编辑：【英国伦敦喜庄园编辑部】
+我不多说了，我说完心都疼啊，我真能把我自己的牙都咬下来
+I won’t say too much, my heart hurts after I say it, I can real-ly bite off my own teeth
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你不知道我有多生气呀，我说到这我脚都在出汗我跟你说
+You don’t know how angry I am, I tell you this that my feet are sweating
+
+就中国人的可怜可恨到了我这一说这脚都生气，哪有这么一个十四亿的民族
+the Chinese people are so pitiful and hateful, I’m so angry when I say that, how can there be such nation with 1.4 billion people?
+
+连这话你听不进去，一个个苟且偷生，哎，算了不说了，你们说
+They can’t even listen to these words, and people are living on the run, hey, forget about it, you guys say something
+
+**原视频链接**[:](https://gettr.com/post/pl2wy61dbc)[https://gettr.com/post/pl2wy61dbc](https://gettr.com/post/pl2wy61dbc)
+
+Date: 01/01/2022
+原视频标题: 共产党每时每秒在杀人，十四亿中国人苟且偷生
+The Communist Party is killing people every second, and 1.4 bil-lion Chinese people are scared surreptitiously live their life
+原视频日期：2021/12/29
+**原视频链接**[** **https://gettr.com/post/pl2wy61dbc](https://gettr.com/post/pl2wy61dbc)
+任务编号：KC389（3374）
+视频时间段 : 0:00-2:02
+
+中听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –天涯行
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

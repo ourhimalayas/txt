@@ -2,40 +2,52 @@
 ---
 
 
-## 洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1819500/)
+## 研究显示减肥可大大降低中共病毒重症发生的可能性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1819527/)
 
-编译：七叶之芒
+**作者**：纽约香草山翻译部-defiance
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-10.jpg)图片来源：thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-洛杉矶联合学校正计划对学生实施一项极端的疫苗接种任务，但由于3万名孩子不符合要求，不得不取消。
 
-9月，这个美国第二大学区的学校董事会投票决定，要求12岁以上的学生在1月10日前接种疫苗。
 
-该区现在将他们的任务推迟到秋季，因为许多人没有遵守。
 
-“洛杉矶曾计划将在1月10日前仍未接种疫苗的学生转移到其在线学校–天使之城。许多人担心它在下个学期开始时容纳数以万计的新学生的能力，以及它将对工作人员和儿童造成的干扰”，《今日美国》报道。
 
-Politico报道说：“美国其他蓝州的学区也在缩减以前的学生授权想法。俄勒冈州波特兰市的学校领导在强烈的反对声中，于今年秋天放弃了讨论，而纽约和芝加哥则采取了观望的态度。他们不仅对任务的批评者有戒心，而且还质疑他们是否应该在食品和药物管理局完全批准为他们的学生接种疫苗之前强加一项要求–洛杉矶联合大学没有等待这一门槛。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2021.12.31-04.55-redvoicemedia-61ce8d41b677a.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-5.png)（推特地址：[twitter.com](https://twitter.com/BrimJulia/status/1459383085640798217?s=20)）
+据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
 
-根据Politico的报道，各区正在研究哪些学生最不可能接种疫苗，并权衡将他们转移到远程学习是否会有帮助或损害。
+“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
 
-“其他地方的地区已经权衡了如果强制执行任务，哪些学生最有可能不接种疫苗，以及让这些学生在远程教学中学习的弊端”，Politico报道。
+这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
 
-该报告没有详细说明各地区正在研究什么标准或指标。
+新闻链接：
 
-**参考资料：**[thegatewaypundit][Los Angeles Public Schools Canceled Their Vaccine Mandate After 30,000 Kids Were Not Complying](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
+[https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/](https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
 
-*审核：蚂蚁兄弟*
-*校对 : 信心满满*
-*发布：信心的选择*
+***总编：文真***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+***校对/发稿：遍地开花***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
+
+
+
 
  
 

@@ -2,60 +2,34 @@
 ---
 
 
-## 几个馒头引发的底层悲剧
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1819752/)
+## 华为斥巨资渗透收买英国顶尖大学
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1819802/)
 
-网易新闻2022年1月2日报道：2021年的最后一个痛，男子因买馒头挨顿打，自封“权力”是硬伤
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-170.png)图片来源：新闻原图![](https://assets.gnews.org/wp-content/uploads/2022/01/image-171.png)
-**短评：**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体12月30日报导，依据信息自由要求所获得的部分数据显示，中共华为电信公司自2016年至2021年底，至少已花费七千万英镑，分别送给英国各大顶尖大学，用于收买渗透各大学的教授及相关人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-上午10.12.31.png)
+华为用钱收买顶尖大学的明显例子发生于剑桥大学耶稣书院，在2020年，剑桥大学耶稣书院发表了一份关于电信改革的研究报告，并在报告中赞扬华为。此后，耶稣学院承认从华为收到了15万英镑，用于撰写此报告的费用；此外，该学院还从中共国家留学基金委分别收到了20万到40万英镑的献金。在2021年9月，剑桥一个研究中心的大部分研究人员被发现与华为有关联，因此，华为被指控“渗透”了该研究中心。
 
-小区封锁，食物供应中断，饥饿难耐，一小伙被迫无奈，走出小区买馒头。等他返回小区时，被2名防控人员当场暴打、抢手机，并被谩骂：“草泥马，你是不是找死？”可怜的是，小伙全程只是被动挨打，连一丁点的反抗都没有，只说“我饿了”。
+目前，已知剑桥、牛津、皇家艺术学院、伦敦玛丽皇后大学、伦敦国王学院、利物浦大学等知名大学皆有收受来自华为的献金。但是，尚有许多大学拒绝公布从华为收到献金的详细内容。
 
-生存是生命的第一需求，也是最低需求。当最基本食物无法获得的时候，我们还剩下什么？只要悲剧！
+参考链接：
+1）[Revealed: Huawei’s Oxbridge millions](https://www.spectator.co.uk/article/revealed-huawei-s-oxbridge-millions)
+2）[Data: Chinese research partnerships with UK universities](https://chinaresearchgroup.org/research/data-chinese-research-partnerships-with-uk-universities)
 
-**是谁制造了盛世强国的饥饿悲剧**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-1300万人口的西安被封锁，同时被中共封锁的还有那里的悲惨现状；但是通过网络上的只言片语，我们依然能看到关于食品供应的一丝迹象。如：一个白菜换二包香烟。
+总编：文特
+编辑：文徬
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-“被隔离的很多人五六天都没人送饭菜，社区群里面发生的事情，也无人搭理”。
-
-“大量市民反映买菜难、送餐难，有外来务工人员甚至饿一整天，房间内仅剩几袋牛奶，连泡面也没有”。
-
-“小区出不去，送菜的进不来，也不让上路，线上买菜抢不到，抢到了也没有配送员，请问我们吃什么？”
-
-……
-
-当我们追问“请问我们吃什么？”的时候我们能不能问问——是谁制造了这一切？是隔离区的管理员？是封城？是冠状病毒？不！上中国共产党，是牠们释放的病毒，是牠们为你注射的过量毒疫苗。
-
-**是公权力给了防疫人员这样的底气？**
-
-谩骂、群殴并抢一位饥饿者的手机，防疫人员的恶劣行为，不仅仅是野蛮、嚣张或不懂法可以概括，显然，这是一种没有人性的土匪行为。那么，是谁给了他们这样的权利滥用的底气？
-
-是的，我们可以直观的认为是公权力给了防疫人员这样的底气；而这种公权力的背后是自认为“准奴才”的防控人员对主子的奴才“公检法”等政府部门的上行下效，是主子中共70年来对人民道德和人性的摧毁和荼毒。70年来中共不仅收割了韭菜的肉体，同时收割了韭菜的人性。
-
-**可悲的底层互害模式**
-
-事后，迫于舆论，西安市公安局高新分局“同时对闫某某、彭某某分别处拘留七天并处人民币200元罚款”。“准奴才”以公权力为底气殴打饥饿者，结果被主子为了面子而揍了回去。
-
-其实被群殴者和群殴者都是中共“可防可控”的对对象，都是最底层的韭菜。然而，在西安的几个馒头下却制造了可悲的底层互害行为；其实70年来中共对人性的摧毁导致的底层互害悲剧数不胜数。
-
-看到这一新闻，西安买馒头小伙连一丁点都没有反抗，只弱弱的一句“我只是饿了”，是否会让你唏嘘、悲凉，或者愤怒？
-
-* * *
-
-文章观点仅代表作者，与Gnews平台无关
-
-新闻链接：[https://3g.163.com/dy/article/GSMTLU0R0528I04D.html?spss=adap\_pc](https://3g.163.com/dy/article/GSMTLU0R0528I04D.html?spss=adap_pc)
-
-素材：洛杉矶盘古农场 — 心照
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯镇恶
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
