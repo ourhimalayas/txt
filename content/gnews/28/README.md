@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|世界卫生委员会呼吁停止实验性“疫苗”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1821808/)
+## 百姓无性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821818/)
 
-配音：香草山巡管部 – 文凯琳
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-9.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww-1.baobaonews.com%2Fgotvimgs%2Fview%2Fimgs%2Fcf043e06-08f8-4285-a5cd-4b2fe602017e-1521235219289&amp;imgrefurl=https%3A%2F%2Fgotv.ctitv.com.tw%2F2018%2F03%2F862847.htm&amp;tbnid=s5eHTfQzX4CeaM&amp;vet=12ahUKEwjA4)
 
+提到爱情每个人想的都是如诗如歌一样浪漫……
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-2021年12月31日，据盖特消息显示，世界卫生委员会WCH日前呼吁，全球应立即停止接种中共病毒实验性“疫苗”。
+对于中共国的权贵之人，他们（她们）想怎样浪漫就可以怎样浪漫。对于中共国的百姓来说，菜米油盐都是问题何来的浪漫呢？
 
-一位该组织的工作人员在视频中表示，关于中共病毒，眼下其实已经存在安全、有效和低负担的治疗方法，但各个国家的政府、卫生部门和主流媒体非但不推广这些安全、实惠的治疗方法，反而只是将那些感染者隔离在家中，直至他们的病情恶化到需要入院治疗。
+每天为了生活四处奔波，每日忙碌完胡乱的吃口就会睡得象“死猪”一样，哪里有浪漫，连最起码的夫妻生活都没有力气，何谈性福，和谈养育呢？每日除了累就是累。除了糊口，还要还房贷、车贷等等的债务；他们（她们）甚至不敢生病，小病抗，大病只能认命。这无数座大山压得喘不过气来。哪有中共高层的“宇宙无限大、地球是一粒沙”，和少女“恋爱”，想睡谁就能睡的任性呢？
 
-与此同时，科学研究、专家经验和大量案例都清楚地表明，目前正在大规模进行的中共病毒实验性基因疫苗存在着严重的风险。该工作人员提到，这些基因疫苗既无效，更不安全，甚至已经被证明是有毒的。此外，这些中共病毒疫苗中的已知成分被证明会对人体造成生物危害，而其中未被公开的成分则更让人担忧，甚至可能会对被注射者构成更大危害。而世界各地的不良反应报告也表明，中共病毒疫苗有严重的副作用，甚至会使接种者死亡。
+中共国的百姓无性，什么时候推翻中共什么时候才能搂着心爱的人过轻松性福生活。
 
-对此，世界卫生委员会认为，对于这些中共病毒疫苗给个人和群体健康所构成的严重风险，政府、医疗机构和其他公司都表现出不诚实的做法。因此，该组织发布了一项停止和终结中共病毒疫苗接种的声明，当中要求政府、相关机构和公司以及个人立即停止参与中共病毒疫苗的制造、销售、管理和推广，并立即采取果断行动制止这一前所未有的医学实验，以此停止对包括儿童在内的民众造成更大的伤害。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-文字版原文：[世界卫生委员会呼吁停止实验性“疫苗”](https://gnews.org/zh-hans/1815598/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

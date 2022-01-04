@@ -2,33 +2,38 @@
 ---
 
 
-## 布林肯呼吁北约在俄罗斯陈兵乌克兰事件上保持团结一致
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1821572/)
+## 为实现硬性“清零” 大批西安民众被迫异地隔离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821721/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.39.png)
+所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/BE03FDD6-4CE4-499F-8F7F-F0FC69163A24.jpeg)（图片来自VOA）
+这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
 
-据VOA1月4日报道，美国国务卿布林肯和北约东部盟国互通电话，讨论关于俄罗斯陈兵乌克兰的事件，并喊话北约拿出“团结一致”的立场。
+有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
 
-据美国国务院发言人普赖斯说，布林肯与布加勒斯特九国外长通了电话。电话中主要商讨了最近俄罗斯陈兵乌克兰的事件，同时强调了美国与其所有盟国之间的密切关系。
+参考链接：
+1）[https://gettr.com/post/plkvl848b7](https://gettr.com/post/plkvl848b7)
+2）[https://gettr.com/post/plf4s28b20](https://gettr.com/post/plf4s28b20)
+3）[https://gettr.com/post/plnqiua97c](https://gettr.com/post/plnqiua97c)
+4）[https://gettr.com/post/pll5m660ad](https://gettr.com/post/pll5m660ad)
 
-普赖斯还说，通话中布林肯呼吁北约盟国要拿出集体防御的团结一致及准备就绪和坚定不移的立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-乌克兰虽然不是北约成员国，但在10多年前就申请入盟。也是因为乌克兰这个立场，彻底激怒了俄罗斯，俄罗斯一直要求北约拒绝接纳乌克兰并减少在欧洲中部和东部的军事部署。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-日前，俄罗斯在与前苏联共和国乌克兰的边界附近部署了大约10万部队。美国总统拜登在上周日与乌克兰总统泽连斯基通电话时说，假如俄罗斯进一步入侵乌克兰，美国及其盟友将做出果断回应。
-
-*参考链接：[布林肯呼吁北约在俄罗斯陈兵乌克兰边界问题上拿出团结一致的立场](https://www.voachinese.com/a/blinken-calls-for-united-nato-stance-on-russia-troops-buildup-near-ukraine/6380832.html)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,37 @@
 ---
 
 
-## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
+## 01/04每日播报｜恒大海花岛被勒令强拆  其股票已经停牌
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1820953/)
 
-By GTV 新闻访谈 作者：纽约香草山农场 文真
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d40c0d31a71619b5747c96)**
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
-图片来源：网络截图
-December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
+**2022-01-04**
 
-A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
+《路透社》香港1月3日报道，周一，中共国地产开发商恒大集团表示，在海南的海花岛项目的39栋住宅楼已经被当地政府勒令强拆，其股票已经停牌，等待“内幕消息”的披露。
 
-A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
+中共国恒大目前是全球负债最多的房地产开发商，正在努力偿还官方宣称的超过3000亿美元的债务，其中包括近200亿美元的离岸债券，上个月该公司未能偿还到期债务利息，被评级机构认定为交叉违约。就在上周二，恒大也没有支付到期的2.55亿美元的到期债务利息。
 
-Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+恒大周一晚些时候表示，在12月30日接到海南省儋州市有关部门的命令，要求其拆除其在建的海花岛项目的39栋住宅楼。海花岛是一个大型度假开发项目，已经投入了130亿美元，建造了6万多套住房。这些建筑的面积超过43.5万平方米，需要在10天内拆除。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+恒大没有透露海花岛被强拆的原因；路透社无法立即联系到海南省政府给予置评。
 
-参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+2021年12月31日，恒大集团宣布向其理财产品的个人投资者制定了新的还款计划，称无论投资何时到期，从2021年12月至2022年2月，每位投资者每个月都会获得8,000元人民币的本金。
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+恒大上周表示，其91.7%的全国项目已经恢复施工。此前，由于该开发商未能向供应商和承包商支付款项，许多项目被叫停。
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+虎信资产管理公司（Tiger Faith asset Management）投资策略总监康妮塔·洪（Conita Hung）表示:“市场正在关注恒大为偿还债务进行的资产处置过程，海南的强拆令将损害购房者对该公司仅存的一点信心。”
 
+据报道，恒大股价在2021年下跌89%，上周五以1.59港元收盘。
 
+（ 秘翻主编  冰糖葫芦喵编译报道 ）
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
