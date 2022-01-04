@@ -2,52 +2,56 @@
 ---
 
 
-## 防止被推特封帐号 大V播主乔·罗根加入盖特
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1822328/)
+## 【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1822355/)
 
-翻译：**Lulumi**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+接：[【Michael.Tonny专栏】中共病毒疫苗，给美国现在和未来的和劳动力带来灾难！（上）](https://gnews.org/zh-hans/1822281/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Joe-Rogan.jpg)乔·罗根已加入GETTR。（图片来源：www.foxbusiness.com）
+印第安纳州医院协会主席Brian Tabor (布赖恩·塔博尔) 也印证了Scott Davison的说法。
 
-在乔·罗根(Joe Rogan)加入川普前顾问杰森·米勒(Jason Miller)创立的倾向于保守派的社交媒体平台后，GETTR新用户激增。
+事实上，印第安纳州还是目前美国疫苗接种率最低的州。
 
-“万一Twitter那边变得更愚蠢，我现在也加入这边（GETTR）。欢呼吧！”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/state-Vaccine-1.jpg)
 
-这是乔·罗根周日在GETTR上的自我介绍。
+根据[USAFacts.org 的数据](https://usafacts.org/visualizations/covid-vaccine-tracker-states/)显示，该州仅57%的人口至少接种了一剂疫苗，52%的人口“完全接种了疫苗”，远远低于美国疫苗接种率全国平均水平（74%的人口至少接种了一剂，63% 的人口已完全接种疫苗）。这表明，在其他州的人寿保险索赔中，推出COVID-19疫苗后的死亡人数可能会更高。Scott Davison在本周的在线新闻发布会上就说：“我们现在看到了这项业务历史上最高的死亡率——不仅仅是在 OneAmerica，该业务的每个参与者的数据都是一致的，40%是闻所未闻的”。
 
-乔·罗根是美国著名喜剧演员，播客主持人和综合格斗解说员。他成为周末在GETTR上开设账户的最抓眼球的名字之一。在同一天，因多次违反推特关于中共病毒COVID-19错误信息政策，乔治亚州共和党议员马乔丽·泰勒·格林的个人账户被推特永久禁止。
+根据VAERS（疫苗不良事件报告系统）查询结果，过去一年，接种COVID-19疫苗后报告的劳动力年龄死亡百分比远高于过去31年所有疫苗每年报告的平均死亡人数。
 
-在这方面，罗根有理由担心，因为他在整个中共病毒大流行中也被指控散布错误信息。他淡化了年轻人接种COVID-19疫苗的必要性，虽然美国疾病控制和预防中心在内的公共卫生官员都建议这样做。他在感染COVID时还服用了伊维菌素，尽管食品和药物管理局警告说，这种给马和牲畜驱虫的药物“很危险，会对人体造成严重伤害”。
+过去的一年，VAERS报告了3,294名18至65岁的人在注射COVID-19后死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/between-the-ages-of-18-and-65-for-one-year.jpg)
+在接种COVID-19之前的前31年中，VAERS报告的劳动力年龄组中总共只有851人在接种疫苗后死亡，平均每年仅有27人死亡。
 
-川普前高级顾问杰森·米勒在去年国庆节推出的社交媒体平台GETTR报告称，周日有171,629名新用户注册，“是GETTR上线以来单日注册人数的最大增长”，这要归功于罗根和其他人物，如喜剧演员“王牌接线员”拉里（Larry the Cable Guy）和UFC格斗家蒂姆·肯尼迪（Tim Kennedy）在最近几天加入该平台。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots-1.jpg)
 
-GETTR首席执行官、川普前顾问杰森·米勒在一份声明中说：“大科技公司正在对自己进行审查，使其变得无关紧要。很明显，他们将川普总统从社交平台驱逐只是他们对言论自由战争的开始，现在他们要对付任何不符合他们世界观的人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/previous-31-years-prior-to-the-COVID-19-shots.jpg)
 
-米勒告诉《华盛顿邮报》，截至2021年11月，GETTR拥有近300万总用户和近40万日均用户，其目标是在2022年初达到1000万总用户。
+接种疫苗后报告的死亡人数实际上增加了（3294-27）÷27=121倍！
 
-相比之下，推特在2021年第三季度有2.11亿日活跃用户，比上一季度增加了500万。
+根据杰西卡罗斯博士的推算，VAERS系统至少漏报了41倍，这意味着大约135,054名劳动年龄的人在去年注射了COVID-19疫苗后死亡。
 
-但罗根转投保守派社交媒体平台GETTR，并且他在推特上邀请780万粉丝加入他的行列，这导致GETTR从周日一直到周一早上在推特上成为潮流。
+把这个数字加上现在由于实验性注射Covid-19毒疫苗的副作用而致残的创纪录人数，在COVID-19疫苗注射后看到的创纪录的胎儿死亡人数，以及可能永远无法再次怀孕的女孩和妇女的人数未知的数量相结合时，每一个人都应当认真思考中共发动的这场生化武器战争以及随后的疫苗灾难，对美国经济和劳动力带来的危机，这场全国性的灾难将对现在和未来的劳动力产生重大影响！
 
-GETTR还包括保守派记者安迪·恩戈(Andy Ngo)、政治评论员和YouTuber戴夫·鲁宾(Dave Rubin)以及综合格斗选手詹姆斯·韦伯(James Webb)等近期的高知名度成员。
+新中国联邦人在不遗余力的呐喊，试图唤醒每一个沉睡的人们，珍爱生命，远离Covid-19疫苗！
 
-推特还禁止了罗伯特·马龙博士，他是一名mRNA疫苗科学家，就在他上周出现在罗根的播客中的前几天被指控散布关于COVID-19的错误信息。马龙也开设了一个GETTR账户。
+这是一场生化武器战争！普通民众应当认真对待！
 
-值得注意的是，在2021年1月6日一群川普支持者冲进美国国会大厦后，“由于存在进一步煽动暴力的风险”，推特对总统唐纳德·川普的账户进行了永久关停。
+只有消灭共惨党，才能彻底消灭中共病毒！
 
-罗根上周也成为头条新闻，他在他的Sirius卫星广播中预测，如果总统乔·拜登不竞选连任，前第一夫人米歇尔·奥巴马将在2024年击败川普。
+参考数据：
 
-罗根说：“我真的相信，如果米歇尔·奥巴马参选，她会赢，”他的话激怒了他的一些保守派粉丝。
+[Determining the VAERS Under-Reporting Multiplier](https://healthimpactnews.com/determining-the-vaers-under-reporting-multiplier/)
 
-**参考资料：**[marketwatch][Joe Rogan joins GETTR ‘just in case’ Twitter bans him like it did Marjorie Taylor Greene](https://www.marketwatch.com/story/joe-rogan-joins-gettr-just-in-case-twitter-bans-him-like-it-did-marjorie-taylor-greene-11641228504?reflink=mw_share_twitter)
+[VAERS COVID Vaccine Mortality Reports Through December 24, 2021](https://openvaers.com/covid-data/mortality)
 
-* * *
+[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.thecentersquare.com/indiana/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/article_71473b12-6b1e-11ec-8641-5b2c06725e2c.html)
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+[Sarah Gigante: Fully Vaccinated Olympic Athlete Suffering From Myopericarditis: “It’s Been A Really Rough Few Months Since Tokyo”](https://thecovidworld.com/sarah-gigante-fully-vaccinated-olympic-athlete-suffers-myopericarditis-its-been-a-really-rough-few-months-since-tokyo/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+[Crisis in America: Deaths Up 40% Among Those Aged 18-64 Based on Life Insurance Claims for 2021 After COVID-19 Vaccine Roll Outs](https://healthimpactnews.com/2022/crisis-in-america-deaths-up-40-among-those-aged-18-64-based-on-life-insurance-claims-for-2021-after-covid-19-vaccine-roll-outs/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

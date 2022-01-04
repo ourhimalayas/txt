@@ -2,35 +2,31 @@
 ---
 
 
-## 狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822211/)
+## 北朝鲜特工利用日本公司赚取外币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1822215/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-香港，1月4日（路透社）—香港法院周二判处一名36岁的大律师15个月监禁，罪名是煽动未经授权的集会。该集会是纪念在1989年6月4日中共政府残暴镇压民主抗议者中死去的人们。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-6.jpg)
+[图片来源](https://asia.nikkei.com/Politics/International-relations/Japan-and-North-Korea-held-secret-meeting-in-October)
 
-邹幸彤是去年6月4日镇压周年纪念日的前一天被捕的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-13.jpg)
-香港一直都有纪念6.4的守夜活动。但是过去两年，港警以冠状病毒限制为由，禁止了守夜活动。尽管有禁令，2020年仍有数千人在全市范围内点燃蜡烛。由于港警大肆抓捕导致2021年守夜人数骤减。
+《读卖新闻》1月4日消息，在中（共）国以贸易公司作掩护的朝鲜特工被怀疑利用日本公司帮助朝鲜获取外汇，警察局已将此确定为“情报案件”。
 
-法官认为邹煽动他人参加未经批准的集会，造成了公共健康风险。而邹自己则认为她只是想提醒人们不要忘记6.4，并补充说”暴政是贪婪的，红线会不断扩大。”
+这是自二战结束以来确认的第54起与朝鲜有关的情报案件，也是第一起涉及获取外国货币的案件。警察局与海外情报机构合作正在深入调查。
 
-中共狰狞的嘴脸终于暴露出来。50年不变的政治制度已经荡然无存。谁不听话就抓起来，安个理由，投到监狱。
+据消息来源称，该特工是一名60多岁的男子，使用化名“李虎南”，属于朝鲜的外国情报机构侦察总局，并且拥有多个头衔。2017年前后，韩国当局收到了关于李虎南与日本公司接触的信息，警视厅进行了调查。2020年秋天，警视厅对东京的一家贸易公司进行了搜查，怀疑其违反了有关法律。在搜查过程中，警方查获了一些文件，包括2014年至2018年间贸易公司购买和转售利比亚重油及俄罗斯液化天然气（LNG）和其它产品的合同，其中有部分交易额支付给李虎南作为中介费的文件。
 
-参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
+警方认为，中介费可能是对李虎南促使利比亚等政府官员达成协议的一种奖励。在进行交易的相关邮件中警察局判断，极有可能有获取外币的活动，并将其确定为一起情报案件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
+朝鲜的主要外汇来源是煤炭和铁矿石的出口，但在多次核试验和导弹发射后，被联合国经济制裁禁止出口。  因此，据说朝鲜试图通过海路运送煤炭和其它材料及网络攻击获得资金来源。
 
-编辑/校对/发稿：Hetangyuese
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[【独自】北の工作員、日本企業を利用して外貨獲得か…警察は「諜報事件」に認定](https://news.yahoo.co.jp/articles/c3b0d3d60550f7a57d12d5947e762a85f638b0c0)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

@@ -2,41 +2,36 @@
 ---
 
 
-## 瑞士完成移交银行客户资料的承诺 最安全的藏钱之地不复存在
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1822289/)
+## 因言被封：推特永久封禁美众议员的个人账户
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822292/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-2.jpg)
+格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0A689B81-00C2-4D8E-9ABE-832B7811416D.jpeg)（  图片来自《大纪元》）
+据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
 
-据大纪元1月4日报道，瑞士联邦税务管理局在2021年底前基本完成了向上百个国家或地区移交相关离岸客户资料的工作。至此，全球最大离岸金融中心瑞士，放弃了其延续了数百年的银行客户信息保密制度。
+耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
 
-瑞士的银行为客户保密制度已有约300年历史，并在1934年正式立法，其《银行法》规定，瑞士的金融机构可以拒绝任何政府对客户账户的调查和监控，除非有确凿证据证明存款人存在犯罪行为，否则账户的信息会受到永久性保护。而且客户还可以选择自己认为最安全的匿名方式来办理业务。
+参考链接：
+1) . [Twitter permanently suspends Rep. Marjorie Taylor Greene’s personal account over covid-19 misinformation](https://www.washingtonpost.com/nation/2022/01/02/marjorie-taylor-greene-twitter-suspension/)
+2) .[When Maxine Waters can go to the streets and threaten violence on Twitter, Kamala and Ilhan can bail out rioters on Twitter, and Chief spokesman for terrorist IRGC can tweet mourning Soleimani but I get suspended for tweeting VAERS statistics, Twitter is an enemy to America and can’t handle the truth.](https://gettr.com/post/plf6qx50e8)
 
-同时，瑞士的税率也低于美国及大多数实行高税收高福利政策的欧洲国家。因此吸引了全球数以万计的富豪，在瑞士银行开设秘密账户，把自己的巨额财富和资金转入瑞士。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-有利既有弊，此规定也使各国富豪避税、使洗钱等犯罪活动成为了可能，为恐怖分子及独裁政权的非法资金提供了安全的藏身之地，所以瑞士也一直受到来自美欧等国的压力。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-2008年金融风暴后的美国，就瑞士银行（UBS，瑞银）的税务欺诈调查事件向瑞士施压，并指控瑞银隐瞒了持有该行秘密账户的52,000名美国人数以十亿美元的未缴税资产。最终，瑞士政府不但同意支付7.8亿美元罚金，还允许瑞银提交约280位美国严重避税者名单，瑞银也承诺在一年内提供4450名美国客户的资料。
-
-之后，美国在2010年3月通过了追查美国人海外避税的《海外账户税收合规法案》（US Foreign Account Tax Compliance Act，FATCA），要求非美国银行也必须向美国税务当局呈报其美国客户在该银行的资产信息。
-
-此外，欧盟方面也一直在向瑞士这个非欧盟国家施压，并在2017年12月把瑞士列入一个不合作国家“灰名单”。 直到瑞士当局承诺并开始配合与上百个国家和地区交换其税务数据，才把瑞士从该名单中移除。
-
-截至2021年10月11日，瑞士联邦税务管理局已向缔约成员国提供了约330万个银行账户的财务信息。
-
-瑞士就此打破坚持了几个世纪的瑞士银行业保密制度。让全球那些把钱藏入瑞士银行以避税的富豪客户，包括那些恐怖分子、犯罪组织，以及独裁国家官员也包括中共高官，失去了曾经最安全的藏钱之地。
-
-*参考链接：[瑞士完成移交银行客户资料 藏钱天堂不再](https://www.epochtimes.com/gb/22/1/4/n13480256.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
