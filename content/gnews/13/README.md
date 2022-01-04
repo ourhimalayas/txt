@@ -2,39 +2,36 @@
 ---
 
 
-## 人生的十二条法则：把自己当做一个“需要帮助的人”来对待
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1822512/)
+## 马龙表示：美国在新冠问题上处于“大规模精神病”状态
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822516/)
 
-作者：吴迪
-编辑：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1.jpeg)
-多年的临床数据让心理学家们惊叹于我们的“自恨”是多么得深。对此，Jordan Peterson举了一个例子：如果让你好好地去照顾自己生病的宠物或家人，我们大多数人都能一丝不苟地完成其中复杂的任务，比如督促别人按时吃药，嘘寒问暖，对于对方的各种需求我们都能赴汤蹈火地去完成。但是，如果要我们用同样的方法对待自己，我们可能连最基本的每天要喝足够的水都无法做到。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-3434.jpg)图片来源：大纪元
+信使核糖核酸技术（mRNA）的主要贡献者罗伯特·马龙博士（Dr. Robert Malone），一个对强制性新冠疫苗接种持怀疑态度的知名人士，在其推特账户被关闭后接受采访时，向流行的主播乔·罗根（Joe Rogan）表示，美国正处于 “大规模形成精神病”的状态中。
 
-造成这个现象的原因有很多，Peterson从社会学心理学以及神学的层面上进行了深入的分析，他给出的解决方案便是：“别把自己太当自己人”。
+“我们的政府在（新冠）方面失去了控制”马龙在周末发布的采访中谈到了疫苗的强制性。“而且他们无法无天。他们完全无视生物伦理学。他们完全无视联邦共同规则。他们已经打破了我所知道的和多年培训中接受的所有规则。”
 
-他让我们试着把我们自己当成一个需要“帮助”的人来对待。对一个需要帮助的人，你的终极目标不是让他舒服，而是让他健康。在圣经里曾讲到，身体是神圣的庙宇，我们的生命也是神给的，我们要好好地对待它，尊重它。 中国文化里的“身体发肤，受之父母，不敢毁伤，孝之始也”说的也是此理。 所以请把自己当成一个神圣的存在，一个不属于自己，需要认真对待好好保管的对象。因为我们的状态和生命质量真的不只属于自己，它直接影响着周围的家人朋友和整个社会。不要对自己不负责任。
+马龙在接受罗根采访时说：“这些规定……显然是非法的”，“显然不符合纽伦堡法典”，他指的是一套反对人体实验的研究伦理原则。他说：“它们明显不符合贝尔蒙特报告”他指的是1978年发表在联邦公报上的关于涉及人类研究的伦理原则和指导方针的报告。
+
+在采访的最后，马龙提出，人们正处于他所说的“大规模形成精神病”状态之中，并与20世纪20年代和30年代德国人中形成的心态相提并论。当时，德国“有高智商、高学历的人口，但他们却疯了”马龙说。
+
+“当你处在一个已经变得相互脱钩的社会，并在某种意义上，发现事情不对劲，我们无法理解而产生焦虑。然后人们的注意力被一个领导人或一系列事件集中在一个小点上，就像催眠一样。人们真的会被催眠，可以被带到任何地方。人们会跟随那个人。即使那个人对他们撒谎或其他什么，都不重要了。”
+
+他说，几年前，人们“抱怨这个世界没有意义”，我们“除了通过社交媒体，
+
+“然后这件事发生了”马龙说，新冠大流行病发生了。“这就是大规模形成精神病的过程，这就是现在美国发生的事情。”
+
+原文链接：[https://www.theepochtimes.com/dr-robert-malone-to-rogan-us-in-mass-formation-psychosis-over-covid\_4189087.html](https://www.theepochtimes.com/dr-robert-malone-to-rogan-us-in-mass-formation-psychosis-over-covid_4189087.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-补充视频：Jordan Peterson讲解法则第二条，不懂得善待自己来自自我评估后的自我轻视，我们要看到自己只是芸芸众生中的一员，自己值得得到跟他人一样的尊重，要好好帮助自己，而不是自我蔑视和自我毁灭。因为对于未来，你比你想象的重要的多。
-
-来源：https://matters.news/@philosophia1979/350-jordan-peterson-%E5%B8%A6%E4%BD%A0%E5%8E%98%E6%B8%85%E6%B7%B7%E4%B9%B1%E7%9A%84%E5%8D%81%E4%BA%8C%E6%9D%A1%E4%BA%BA%E7%94%9F%E6%B3%95%E5%88%99-%E9%87%8E%E5%85%BD%E7%94%B5%E5%8F%B0-bafyreicavekyycmky6uaabqkgvxbjfcz2ayuqj6b4cfc7fzqaqpcn2cuba
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
