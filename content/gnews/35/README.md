@@ -2,44 +2,34 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1818983/)
+## 第205期玫瑰看新聞-新西蘭本地新聞
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1819308/)
 
-作者：纽约香草山-文特
+新西蘭本地新聞:
 
+1.最新通報：社區新增144例，又一病例死亡
 
+2.奧克蘭北部突發大火，40名消防員、數架直升機趕往滅火
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**推出問題，敲出真相，爆料在路上！**
 
+**請關注和訂閱我們的以下帳號：**
 
+**新西蘭伊甸農場蓋特**：https://gettr.com/user/himalayanz
 
-HBO-VICE断章取义进行混乱剪辑，诋毁郭先生爆料疫苗是中共毒害世界的工具以及中共的灭白计划为虚假信息。 接下来让我们还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-1.jpg)
-参考视频链接：
-[【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-10】](https://www.gettr.com/post/pkg4fq761b)
+**【玫瑰看新聞】蓋特**：https://gettr.com/user/rosenews
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+**玫瑰看新聞****YouTube****帳號**：
 
-总编/编辑：文特
-校对/发稿：为真不破20
+**玫瑰看新聞**
 
-**更多资讯，更多关注**
+**黑森林的故事**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**Rose news**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**【玫瑰看新聞】推特帳號**：
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**Rose News (@RoseNews4)**
 
  
 

@@ -2,19 +2,32 @@
 ---
 
 
-## 澳洲航空业里的疫苗副作用现象
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1819495/)
+## 通胀高企，土耳其人钱袋持续缩水
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819549/)
 
-作者：XO酱
-视频出处：Graham Hood 语音，字幕来自文章作者
-澳洲航空公司（Qantas）的一名资深机长，Graham Hood，近期在社交媒体上发了一段语音。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+伊斯坦布尔，1月3日（路透社）—土耳其在刚刚过去的12月数据显示年度通货膨胀率已经飙升至36.1%，是19年以来的最高值。食品和交通等在2021年期间占家庭预算的份额越来越大，上涨速度越来越快。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-5.jpg)
+土耳其货币里拉去年贬值了44%，从年初的1美元对7.43里拉贬值到年末的1美元对13.3里拉。但是政府为了扩大出口和提高信贷持续降低利率。一些经济学家预测，除非货币政策的方向得到扭转，否则通货膨胀率到春季可能达到50%。
 
-语音里透露出这名机长所了解的新冠疫苗副作用现象。Graham Hood 机长特别提到了三家澳洲航空公司（澳航、捷星和维珍航空）自从强制打新冠疫苗后，机长、空乘和其他员工受到的伤害甚至是死亡。
+普通老百姓有限的薪资提升不能抵消交通和食品等主要支出的大幅上涨。人们开始减少不必要开支，比如上咖啡馆享受一杯拿铁，更有许多人开始领取政府补贴面包。
 
-Graham Hood机长说在他从业的56年中，他从未碰到过机组人员在空中心脏病发作的现象，而在强制疫苗后的这短短几个月时间，他已经看到和听到过不少这样的事件，有些受害者还是他非常熟悉的同事。
+参考来源：[通胀高企，土耳其人钱袋持续缩水](https://www.reuters.com/world/middle-east/turkey-inflation-surges-361-amid-lira-crisis-highest-since-2002-2022-01-03/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=3-1-21&amp;utm_campaign=3-1-21)
 
-澳洲的这三家航空公司自2021年下半年起向员工强推新冠疫苗，跟Graham Hood机长一样不愿意打疫苗的员工都被下岗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/qantas.jpg)图片来自网络截图
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

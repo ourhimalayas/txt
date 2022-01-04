@@ -2,60 +2,52 @@
 ---
 
 
-## 魁北克省在新的COVID-19浪潮中开始关闭零售商店
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1819444/)
+## 研究显示减肥可大大降低中共病毒重症发生的可能性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1819527/)
 
-编译：七叶之芒
+**作者**：纽约香草山翻译部-defiance
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-9.jpg)周日，随着加拿大COVID-19大流行病的持续，一名妇女从蒙特利尔一家购物中心的一家关闭的商店旁边走过。魁北克省政府制定的一些新措施，包括关闭商店，今天开始生效。Graham Hughes/AP
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-魁北克省蒙特利尔市（美联社）–魁北克省周日开始关闭三个计划中的第一个非必要的零售商店，因为省政府试图遏制由高传染性的Omicron变体引发的新一轮COVID-19。
 
-魁北克省和加拿大北部偏远社区的医院和医疗资源也因病例数量的爆炸性增长而捉襟见肘。
 
-魁北克省长弗朗索瓦-莱戈尔（Francois Legault）上周宣布，除了药店、便利店和加油站外，该省大部分商店将在未来的三个周日关闭。
 
-魁北克商会联合会主席查尔斯-米利亚德（Charles Milliard）敦促政府尽快取消这些措施。
 
-米利亚德在一份声明中说：“在这些困难时期，企业最不需要的就是额外的限制。我们必须让企业选择在对他们、他们的员工和他们的客户最有意义的时候开业或关门。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2021.12.31-04.55-redvoicemedia-61ce8d41b677a.jpg)
 
-魁北克省报告了15,845个新的COVID-19病例，以及另外13例与该病毒有关的死亡病例，因此出现了关闭。
+据美国媒体12月31日报道，克利夫兰诊所最新研究发现，肥胖和中共病毒肺炎重症病例之间，存在明显关联，做过减肥手术的中共病毒肺炎患者，因病毒导致严重并发症的风险降低了60%。这项研究发表在《美国医学会外科杂志》上。
 
-卫生局说，与该疾病有关的住院人数增加了70人，达到1231人。他说有162人正在接受重症监护，增加了9人。
+“肥胖削弱了免疫系统，造成了慢性炎症状态，并增加了心血管疾病、血栓和肺部疾病的风险。所有这些情况都会使中共病毒的伤害复杂化”。
 
-魁北克市的主要医院网络称，由于COVID患者的激增，它将从周三开始推迟一半的手术和医疗预约。
+这项观察性研究共调查了20212名成年肥胖症患者的情况，其中5053名BMI大于等于35的患者，在2004年至2017年期间进行了减肥手术。他们与非手术患者进行了1:3对照。研究人员观察了与肺炎有关的四项内容：感染率、住院率、吸氧率和ICU重症率。
 
-魁北克大学拉瓦尔分校校长兼首席执行官马丁-博蒙特（Martin Beaumont）在一次新闻发布会上说，可能有多达1万个医疗预约被推迟，使大约50名护士也被重新安排到大流行病的病房里。
+新闻链接：
 
-医院网络称有783名医护人员处于隔离状态，此外还有600名护士在大流行病第五波来袭之前就已经失踪。
+[https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/](https://www.redvoicemedia.com/2021/12/study-shows-weight-loss-dramatically-reduces-risk-of-severe-covid-cases/)
 
-越来越多的病例所造成的压力在卫生保健已经很有限的偏远社区更加严重了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
 
-12月30日，安大略省北部的熊皮湖第一民族（Bearskin Lake First Nation）在43名居民的病毒检测结果呈阳性时宣布进入紧急状态。到星期天，有169人确诊或怀疑感染了COVID-19，占总人口的40%以上。
+***总编：文真***
 
-“这是一个危机”，Nishnawbe Aski Nation大酋长Derek Fox在接受采访时说。
+***校对/发稿：遍地开花***
 
-熊皮湖没有医院，通常由一个有两名护士的护理站提供服务。紧急疏散需要三个多小时的时间，飞机才能从Sioux Lookout或Thunder Bay进出，而且这还是在天气允许降落的情况下。
+**更多资讯，更多关注**
 
-一个由三名初级保健护士、一名护理人员和两名环境卫生官员组成的联邦快速反应小组于12月30日在熊皮湖降落，带来了更多的检测能力。苏澳第一民族卫生局也派出了两名公共卫生护士。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-偏远社区的疫情也在影响努纳武特、魁北克北部和拉布拉多。
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-努纳武特地区周日又确认了22例COVID-19病例，使总数在短短10天内达到196例。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-努纳武特地区正在劝阻该地区内所有非必要的旅行，并已禁止非必要的旅行进出几个社区，包括伊魁特、兰金因莱特、阿尔维亚特、伊格洛利克和潘尼尔通。
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-魁北克北部的努纳维克也在实施旅行禁令，直到1月中旬，只允许关键或必要的旅行进入或离开该地区的14个村庄。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**参考资料：**[npr.org][Quebec begins retail store closures amid new COVID-19 wave](https://www.npr.org/2022/01/03/1069828724/quebec-begins-retail-store-closures-amid-new-covid-19-wave)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-* * *
 
-*审核：蚂蚁兄弟*
-*校对 : 信心满满*
-*发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+
 
  
 
