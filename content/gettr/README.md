@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/4/2022 3:16 PM (UTC)`
+
+1月4号，Hcoin To the Moon MV上线第26天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1821943/<br/><br/>Jan 4th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 26th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1821944/
+
+---
+
 `@miles 1/4/2022 1:56 PM (UTC)`
 
 1月4号：我的乖乖哟……估计过几天共产党也得给拆了？<br/><br/>https://gnews.org/zh-hans/1820344/<br/>在谷歌地图上，沿着盘古七星酒店从东往西拉一条横线，可以看到这条横线穿过山西省大同市。在大同市的和阳街，有一面九龙壁，建于明洪武年间，是中国现存九龙壁中建筑年代最早、最大的一座。
@@ -151,13 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/2/2022 Miles Guo’s GETTR: Staying alive is of paramount importance! You’d better stay away from the modern life powered by electricity in tall buildings; forget about the fancy meals and keep food in stock; things like gold and diamonds that cannot be traded for life necessities are going to be useless; the disasters caused by the COVID vaccines and the CCP virus have yet started, but you will see the day when the CCP is taken down as long as you can survive<br/><br/>1/2/2022 文贵盖特：活下去最重要！最好远离电气化和高楼大厦的生活；不讲究吃，但要有粮食；不能兑换物质的黄金、钻石不管用；疫苗和病毒的灾难尚未开始，活下去就能看到灭共的那天<br/>
 ![img](https://media.gettr.com/group12/getter/2022/01/03/07/98a1bcc8-d368-9dd2-baa5-d42e25bda69d/out.jpg)
-
----
-
-`@miles 1/3/2022 7:26 AM (UTC)`
-
-1/2/2022 Miles Guo’s GETTR: The number of foreigners watching the New Year’s live broadcast reached an unprecedented peak. The purpose and value of our live broadcast is to wake up more people. The CCP is to blame for the tragedies in Xi'an and Afghanistan. The most critical question about the disasters caused by CCP virus and COVID vaccines is who will be responsible for them? Why not hold the CCP accountable for the origin of the virus?<br/><br/>1/2/2022 文贵盖特：元旦大直播外国观众人数创新高，我们直播的目的与价值在于唤醒更多的人；中共是在西安和阿富汗发生的惨剧的罪魁祸首；关于病毒和疫苗灾难最关键的问题是谁将为此负责？为何不找中共溯源呢？<br/>
-![img](https://media.gettr.com/group22/getter/2022/01/03/07/d7e7e60d-80b6-ca85-aaff-9570a8e73df9/out.jpg)
 
 ---
 

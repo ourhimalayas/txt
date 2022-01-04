@@ -2,30 +2,36 @@
 ---
 
 
-## 【中日财经爆】受中共病毒和中共债务陷阱双重打击 斯里兰卡将破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820166/)
+## 盖特迎来单日最大用户注册量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1820035/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-5.jpg)[图片来源](https://guojiribao.com/?p=113650)
-印度外海岛国斯里兰卡受中共病毒疫情影响，经济受到强烈动荡，面临人道灾难，再加上中共国一带一路的债务陷阱。有经济学者忧虑，如果通膨日益加剧、民生物价持续飙升、国库入不敷出，2022年恐彻底破产。
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据盖特官方消息，2022年1月2日，盖特迎来了171.629名新用户，创下了自2021年7月4日正式上线以来，盖特单日新增用户的纪录。增幅较前一日相比上涨782%，较上周相比，增幅为1357%。
 
-斯里兰卡政府现今面临崩溃，除了疫情的直接影响和当地旅游业损失，政府的高额支出和减税使国库收入与巨额负债问题雪上加霜。政府以印钞方式偿还国内贷款和外国债券，更刺激通货膨胀。据《卫报》指出，世界银行估算，自中共病毒肆虐全球起，已有500,000人生活在贫困线以下，相当于在5 年内消弭消除贫困的进展。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2.jpeg)
 
-此外，斯里兰卡也落是中国一带一路的债务陷阱，原已积欠中共国逾50亿美元，去年又因财政困窘再向中共国再借10亿美元，至今仍无力偿还，外汇存底已创下近10年新低。
+据悉，因违反推特和Facebook有关“中共病毒”及其劣质疫苗的非法言论管控，不少用户的账号被永久封禁，其中不乏自媒体的流量大咖。越来越多的人意识到这一危险的现实，并渴望有一个保护言论自由的替代方案。1月2日，著名博客自媒体人乔-罗根正式入驻盖特，关注量已达840万；著名心理学家、自媒体人、多伦多大学的乔丹-彼得森教授的关注量也在同日达到220万人。
 
-反对党议员兼经济学家席尔瓦( Harsha de Silva )指出，截至1月，外汇储备将达到负4.37亿美元。2 月到10月期间，偿还的外债总额也将达到48亿美元，他认为“这个国家将完全破产”。
+在与推特和Facebook的用户增长期数据对比看来，盖特明显超出了预期；秉承“绝不因政治倾向而注销用户”的原则，盖特名副其实地成为有史以来用户增长最快的社交媒体平台。
 
-去年11月斯里兰卡通胀率创下11.1%的历史新高，许多人无法负担民生基本用品。斯里兰卡总统戈塔巴雅·拉贾帕克萨(Gotabaya Rajapaksa)宣布进入经济紧急状态后，授权军方确保米、糖等基本物资是以政府规定价格出售，但仍无法缓解经济紧缩困境。
+由于激增的用户注册量，盖特在苹果应用商店“社交媒体“类别中的下载量已名列前五。对此，郭文贵先生在3日的盖文中表示：“我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，全球．全美国都是前5名，一切都已经开始。 ”
 
-中央银行行长阿吉特·妮凡尔德·卡布拉尔( Ajith Nivard Cabraal ) 公开保证，斯里兰卡能够“无缝”偿还债务，但前中央银行副行长维耶瓦德纳( WA Wijewardena ) 对此反驳，表示斯里兰卡面临拖欠还款的巨大风险，将带来灾难性的经济后果。
+参考链接： [https://gettr.com/post/plqu3m4cc3](https://gettr.com/post/plqu3m4cc3)
 
-消息来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-[疫情加中国债务陷阱南亚「这一国家」2022年料将彻底破产](https://tw.news.yahoo.com/%E7%96%AB%E6%83%85%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%82%B5%E5%8B%99%E9%99%B7%E9%98%B1-%E5%8D%97%E4%BA%9E-%E9%80%99-%E5%9C%8B%E5%AE%B6-2022%E5%B9%B4%E6%96%99%E5%B0%87%E5%BE%B9%E5%BA%95%E7%A0%B4%E7%94%A2-074241573.html)
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：谐趣园
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

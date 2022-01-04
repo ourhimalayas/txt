@@ -2,31 +2,32 @@
 ---
 
 
-## 01/04每日播报｜印尼禁止煤炭出口 中共用电危机恐加剧
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1820781/)
+## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d40c0d31a71619b5747c96)**
+By GTV 新闻访谈 作者：纽约香草山农场 文真
 
-**2022-01-04**
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
+图片来源：网络截图
+December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
 
-据法新社1月2日报道，近期印度尼西亚因担忧国内电力供应不足，宣布将于2022年1月1日至1月31日间停止煤炭出口。此消息一出立时就被各大中文媒体争相报道，随后登上了中共国的墙内新闻热搜。据了解，印度尼西亚一直是中共国最大的煤炭进口国，此禁令一出无疑会让中共国的用电危机再度加剧。
+A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
 
-据公开数据显示，印尼是全球最大的动力煤出口国，仅2020年的煤炭出口量就高达4亿吨，其中，最主要的出口大户就是中共国。与此同时，印尼也是中共国最主要的煤炭进口来源国。据中共海关数据显示，中共国在2021年1月至11月期间共计进口煤炭2.9亿吨，其中印尼对华进口煤炭量就达到了1.78亿吨，占中共全年煤炭进口量的61%。
+A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
 
-此前，中共国就曾因与澳洲关系交恶从而导致了去年的大面积限电现象。之后，中共便只好从印尼进口大量煤炭。而今在印尼煤炭也被禁止的情况下，中共国却正值寒冬，面临着巨大的供电、取暖压力。对于当下的中共国而言，缺电危机迫在眉睫。
+Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
 
-中共电网官方数据显示，自今年元旦起国内多省市电价再出新高，部分地区尖峰时段最高涨价七成。据了解，中共国内目前已有江苏、山东、陕西、山西、云南等二十余个省市都再次调整了当地的燃煤电价。其中，部分化工大省如江苏、山东等地已接连调整区间电价，尖峰时段电价最高涨幅达到了70%。这些被调整地区大多是化工行业重镇，在精细化工、煤化工、燐化工等细分领域，对数万间化工企业都会带来直接的冲击。
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-新年伊始，中共国的电价上涨却扑面而来。然而，电力紧缺与涨价都将推升中小企业的营运成本，使开工率下滑，而众多化工大省同步调涨电价，也牵连多个细分产业链的开工率、市场库存、采购销售等。中共国的用电危机将促使国内的供应链、金融等问题进一步加剧。
+参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
 
-（ 秘翻新闻主编  Noemi编译报道 ）
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
 
-发布:星星
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
-* * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

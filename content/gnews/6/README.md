@@ -2,29 +2,19 @@
 ---
 
 
-## 樱花灭共诗——与诸公游利津黄河别石鹏飞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821863/)
+## 元旦のライブ配信 大盛況
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821924/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2.jpg)
-圣贤多困顿，
+翻译： 東京櫻花団/夏目&山竹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-6.png)
+2022年1月2日 郭文貴氏の Gettr： 元旦のライブ配信は、過去最高の海外外国人視聴者数を記録した。 私たちのライブ配信の目的とその価値は、より多くの人々を目覚めさせることだ。 西安やアフガニスタンで起きた悲劇は、中国共産党に責任がある。 中共ウイルスとコロナワクチンによる災害について、最も核心的な問題は、誰がその責任を負うのか、ということだ。なぜ、中国共産党にウイルスの起源について責任を問わないのか。
 
-愧与列公游。
+情報源：
 
-百转何能阻，
+[https://gettr.com/post/pln8rbb33e](https://gettr.com/post/pln8rbb33e)
 
-千回未肯休。
-
-长堤同海没，
-
-残照共河流。
-
-过日人将去，
-
-高飞久不投。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+校正：東京桜花団/闻雨
+アップロード：東京桜花団/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 

@@ -2,12 +2,18 @@
 ---
 
 
-## 郭文贵先生：我们在否定中成长，因为我们是灭共者
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821295/)
+## 西媒头条 — 第144期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1821323/)
 
-1/1/2022 郭文贵先生新年直播：我们在否定中成长，只有一个理由，因为我们是共同的灭共者。每个人都是一个蝴蝶，每个人都能扇起蝴蝶的力量。我每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸，共同奋斗的结果。你们在做着一生当中可能你自己到现在都无法想象的，多么伟大的事业。
+**制作: 蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm210101.001.jpeg)
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 

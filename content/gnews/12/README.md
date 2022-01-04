@@ -2,12 +2,31 @@
 ---
 
 
-## 疫苗已经违反生物武器公约
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1821813/)
+## 樱花灭共诗——与诸公游利津黄河别石鹏飞
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1821863/)
 
-台灣寶島農場
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2.jpg)
+圣贤多困顿，
 
-疫苗所造成的伤害不仅已违反生物武器公约，同时也未能落实提供知情同意，违反了国际公约中的公民和政治上的权利。
+愧与列公游。
+
+百转何能阻，
+
+千回未肯休。
+
+长堤同海没，
+
+残照共河流。
+
+过日人将去，
+
+高飞久不投。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

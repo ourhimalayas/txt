@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第144期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1821323/)
+## 郭文贵：无我，识真假，辨善恶，良知和正义会把很多人连在一起
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821344/)
 
-**制作: 蚂蚁兄弟**
+1/1/2022 文贵先生新年直播：我们要无我，识真假，辨善恶，良知和正义会把很多人连在一起，像火一样给你带来生机，驱除邪。
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm210101.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
