@@ -2,32 +2,36 @@
 ---
 
 
-## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
+## 防卫省开发轨道弹：科幻和动漫走进生活
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820295/)
 
-By GTV 新闻访谈 作者：纽约香草山农场 文真
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-179.png)[图片来源](https://news.yahoo.co.jp/articles/dbee9d642f9ab56241f5e4c2fcbdb6824ddfd437#:~:text=%E9%)
+《每日新闻》1月3日报道，日本防卫省已在研究和开发一种一直是科幻小说和动画片素材的新武器。即一种不使用火药就能发射的超高速、远距离轨道弹。政府在已在今年的初步预算中，拨出了65亿日元的专款用于开发。其目的是将其作为一种新的防空手段投入实际使用，以对付中共国和朝鲜，因为它们正在开发难以拦截的高超音速武器。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
-图片来源：网络截图
-December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
+什么是轨道弹?在科幻动作片《变形金刚：复仇》的最后一幕，一艘漂浮在海面上的美国导弹驱逐舰发射出的轨道弹消灭了将要摧毁金字塔的敌人。
 
-A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
+轨道弹由导电材料制成，在轨道枪中，类似导电的子弹夹在两根由导电材料制成的导轨之间，通过大量的电流穿过轨道产生磁场，成为炮弹的驱动力。
 
-A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
+过去，轨道弹是一种虚构的武器，是小说世界的武器。但是，防卫省在2016年的追加预算中已将10亿日元列为“电磁加速系统研究”，并一直在制造样机。目标性能超过每秒2000米（约6马赫），这比坦克炮每秒1700米的速度要快，据防卫装备厅消息，该原型机记录的速度为2297米/秒。
 
-Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+防卫省将研究重点放在轨道炮上是因为邻国正在相继开发高超音速武器。据信这种轨道炮很难被拦截，因为它的飞行速度是音速的五倍以上，据说有可能突破日本的导弹防御系统（MD）。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+2021年10月美军参谋长联席会议主席米利，在接受美国媒体采访时指出，中共国在同年夏天进行了高超音速武器的试射。同年9月，朝鲜中央通讯社报道了朝鲜国防科学研究院开发的火星8号高超音速导弹的试射。2019年末，俄罗斯部署了用于实战的高超音速导弹系统先锋（Avangard)。
 
-参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+据防卫厅透露，在开发方面处于领先地位的美国的研究表明，轨道弹可以飞行大约100至180公里的距离。日本大和号战舰的46厘米火炮最大射程约为42公里，而轨道炮的射程与导弹一样长，它还可以快速连续发射，能够对付大量的导弹。另外还有一种看法认为，它将成为军事“游戏规则的改变者”，可望用于陆、舰、空所有领域。
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+然而，当涉及到实际发展时有很多问题。曾率先开发该装置的美国已经停止了研究。原因是判断它的效果与导弹相差不大，不值得付出代价。一位日本政府官员说：“我们不能依赖美国，它已经变成了普通弹头。”
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+发射轨道炮所需的电力是巨大的，约为25兆瓦，足以为大约7000个日本家庭提供一年的电力，因此，除如何确保电力来源是一个重大问题之外，如何解决在发射过程中产生的高热量对轨道的损伤等也是难题。
 
+防卫省从今年开始研究如何提高能源效率和高速连射技术，预计在2028年之后开始部署。
 
+信息源：[防衛省、レールガン開発に本腰　SF・アニメが現実に?](https://news.yahoo.co.jp/articles/dbee9d642f9ab56241f5e4c2fcbdb6824ddfd437#:~:text=%E9%)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

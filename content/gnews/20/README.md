@@ -2,26 +2,31 @@
 ---
 
 
-## 参议员兰德·保罗宣布退出YouTube加入Rumble
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1820253/)
+## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
 
-#### 撰稿：彩虹
+By GTV 新闻访谈 作者：纽约香草山农场 文真
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-2.jpg)图片来源：纽约客
-1月3日，《国会山报》报道参议员兰德·保罗（Rand Paul）说，由于YouTube（油管）对其采取了行动，他将停止在YouTube上发布视频。
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
+图片来源：网络截图
+December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
 
-他说，他决定停止在YouTube上发布视频内容，是他“逃离大科技（公司审查）”的部分行动，指责YouTube对他的视频内容进行审查。
+A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
 
-报道说，在8月和9月份，保罗受到YouTube的两次打击，因为该平台声称保罗的视频违反了中共病毒（COVID-19）“错误”信息政策。他的账户因而每次被暂停7天。根据YouTube的政策，如果一个用户在90天内受到三次暂停（惩罚），该账户将被永久停止使用。
+A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
 
-周一，保罗在《华盛顿观察家报》发布一篇专栏文章，鼓励其他对主流媒体平台政策不同意者选择不使用这些网站。他写道：“大约一半的公众倾向于右派（观点）。如果我们都把我们的信息带到自由交流的媒体平台，我们就能在一瞬间削弱大科技公司。因此，今天我迈出了第一步，拒绝向大科技公司提供我的视频内容。希望其他热爱自由的人也能跟随”。
+Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
 
-保罗说，他将只在YouTube上发帖批评该平台，而主要在视频分享网站Rumble上发布视频内容。
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-**新闻来源**
+参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
 
-[Rand Paul announces exit from YouTube](https://thehill.com/policy/technology/587997-rand-paul-announces-exit-from-youtube)
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+
 
  
 

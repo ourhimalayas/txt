@@ -2,31 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1819896/)
+## 美主流媒体欺诈性报道疫情新闻
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1819983/)
 
-作者：香草山翻译部
+采编/编译撰稿：薇文       校对编辑，发稿：硫酸羟氯喹64
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-9-edited.jpg)图片来源：GNEWS
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0103text-SC.png)
-校对：Stay文苑
+据英国[每日内幕] 1月2日报道，[雅虎]近日引用一则未经证实的新闻，在其头版刊登了题为：“因医院内未接种疫苗者人满为患而导致男子死亡”的文章。 试图以此向公众传递“由于医院床位被未接种疫苗的‘新冠病毒’感染者所占据，而使急需救治的病人无法及时住院治疗而身亡”的错误信息。
 
-编辑：Stay文苑
+报道称，正如大多数主流媒体一样，[雅虎]无视大部分病毒感染人员都是疫苗接种者这一基本事实，为掩盖病毒及疫苗真相而不择手段。通过对当事人言论的断章取义，蓄意篡改来颠倒事实，误导公众。并最终因此制造社会矛盾，挑起已接种疫苗者和未接种人群之间的争端。其用心之歹毒，目的之险恶，已不言自明。
 
-发稿：Stay文苑
+报道继续指出， 虽然每天都有为数众多的网络事实核查员对该报道进行监测，并应基于真相对其进行纠正，但他们没有也不打算这样做。
 
-视频参看：[1.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d3a29831a71619b5744169)
+通过以上鲜明例证，结合不久前美国另一主流媒体HBO的VICE节目主持人，中共长期豢养的喉舌杨贝贝，对郭文贵先生所采取的欺诈性恶棍采访和造谣性流氓报道手段如出一辙，无不充分体现出主流媒体新闻报道是如何变成中共统治当局的宣传工具。
 
-![r](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：[https://dailyexpose.uk/2022/01/02/how-the-media-distort-the-truth-about-covid-19/](https://dailyexpose.uk/2022/01/02/how-the-media-distort-the-truth-about-covid-19/)
 
  
 

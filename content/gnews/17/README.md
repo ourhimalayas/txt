@@ -2,39 +2,29 @@
 ---
 
 
-## Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820285/)
+## 中共国人民银行原党委书记、主任牟善刚接受调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1820315/)
 
-By 日本东京方舟农场 撰稿-海星
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown.jpg)中共国人民银行原党委书记、主任牟善刚接受调查 网络图片
+据网易新闻1月4日报道，中央纪委国家监委网站讯据中央纪委国家监委驻中国人民银行纪检监察组、天津市监察委员会消息：中共国人民银行机关服务中心原党委书记、主任牟善刚涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpg)
-图片来源：网络截图
-December 27-én Biden amerikai elnök hivatalosan aláírta a nemzeti védelmi felhatalmazásról szóló törvényt (NDAA), amely ma lépett hatályba. A törvényjavaslat a CCP fenyegetésének leküzdésére irányuló intézkedésekkel foglalkozik.
+中共国现在除了各个房地产公司违约、暴雷，就是教育系统被调查、网络公司被查处，各级高管或被抓、或被杀，真正是人人自危、各行各业都发抖，不知道哪一天大锤就砸到自己头上。中共不仅害外人，对自己人下手同样毫不留情。只要跟中共搭边，最后的结局都是粉身碎骨。
 
-Az “Amerika Hangja” jelentése szerint Biden elnök még ugyanazon a napon aláírta a 2022-es pénzügyi évre vonatkozó nemzetvédelmi felhatalmazási törvényt. A törvényjavaslat 777 milliárd amerikai dollár elkülönítését engedélyezi az Egyesült Államok védelmi kiadásaira. Közülük 7,1 milliárd dollárt különítettek el a “Csendes-óceáni Elrettentési Kezdeményezés” (Pacific Deterrence Initiative) számára, hogy válaszoljon a CCP katonai fenyegetéseire.
+新闻参考资料：[https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp](https://c.m.163.com/news/a/GSRRFLA200258105.html?spss=newsapp)
 
-Ezen túlmenően, a törvényjavaslat nem csak nyilatkozatot adott ki, hogy az Egyesült Államok Kongresszusa támogatja Tajvan védelmét. Ugyanakkor számos konkrét intézkedést fognak meghozni, hogy segítsék Tajvant önvédelmi képességeinek fejlesztésében. És meghívta Tajvant, hogy vegyen részt a Csendes-óceán körüli katonai gyakorlatokon.
+* * *
 
-A törvényjavaslat ugyanakkor előírja, hogy a Nemzetvédelmi Minisztériumnak tilos kényszermunkával előállított termékeket vásárolni a kínai Xin Jiang-ban.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-A hírek szerint a hónap elején a törvényjavaslatot elsöprő többséggel elfogadták az Egyesült Államok Szenátusának és a Képviselőháznak mindkét házában, és széles körű támogatást kapott a demokrata és republikánus kongresszusi képviselők részéről.
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1800494/](https://gnews.org/zh-hans/1800494/))
-
-参考链接：
-
-1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
-2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
-3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

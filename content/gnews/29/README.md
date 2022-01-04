@@ -2,29 +2,30 @@
 ---
 
 
-## 悉尼一医院：休年假员工重返岗位每班可获250澳币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1820146/)
+## 【中日财经爆】受中共病毒和中共债务陷阱双重打击 斯里兰卡将破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1820166/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-38.png)图片来源：Lebanese American University
-整理报道：小鱼儿
-编辑：Mttfly
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-5.jpg)[图片来源](https://guojiribao.com/?p=113650)
+印度外海岛国斯里兰卡受中共病毒疫情影响，经济受到强烈动荡，面临人道灾难，再加上中共国一带一路的债务陷阱。有经济学者忧虑，如果通膨日益加剧、民生物价持续飙升、国库入不敷出，2022年恐彻底破产。
 
-据天空新闻台1月2号报道，悉尼一家领头的医院向其护理人员提供现金奖励，让他们取消年假，以应对COVID-19造成的“严重人员短缺”。圣文森特医院提出，如果员工同意返回工作岗位，每班可获得250澳币现金奖励。
+斯里兰卡政府现今面临崩溃，除了疫情的直接影响和当地旅游业损失，政府的高额支出和减税使国库收入与巨额负债问题雪上加霜。政府以印钞方式偿还国内贷款和外国债券，更刺激通货膨胀。据《卫报》指出，世界银行估算，自中共病毒肆虐全球起，已有500,000人生活在贫困线以下，相当于在5 年内消弭消除贫困的进展。
 
-当医院接收并正在治疗的病毒感染者超过了1000人时，医院还要求一线工作人员确认病人是否可以提前出院。但重症监护率仍然很低，只有0.001%的活动病例在重症监护室（ICU）。
+此外，斯里兰卡也落是中国一带一路的债务陷阱，原已积欠中共国逾50亿美元，去年又因财政困窘再向中共国再借10亿美元，至今仍无力偿还，外汇存底已创下近10年新低。
 
-**新闻链接：**[Sydney hospital offering cash incentives to nursing staff on annual leave amid worker shortages](https://www.skynews.com.au/australia-news/coronavirus/sydney-hospital-offering-cash-incentives-to-nursing-staff-on-annual-leave-amid-worker-shortages/video/5e9eb67331e4334e18776ad16b859ed2)
+反对党议员兼经济学家席尔瓦( Harsha de Silva )指出，截至1月，外汇储备将达到负4.37亿美元。2 月到10月期间，偿还的外债总额也将达到48亿美元，他认为“这个国家将完全破产”。
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+去年11月斯里兰卡通胀率创下11.1%的历史新高，许多人无法负担民生基本用品。斯里兰卡总统戈塔巴雅·拉贾帕克萨(Gotabaya Rajapaksa)宣布进入经济紧急状态后，授权军方确保米、糖等基本物资是以政府规定价格出售，但仍无法缓解经济紧缩困境。
 
+中央银行行长阿吉特·妮凡尔德·卡布拉尔( Ajith Nivard Cabraal ) 公开保证，斯里兰卡能够“无缝”偿还债务，但前中央银行副行长维耶瓦德纳( WA Wijewardena ) 对此反驳，表示斯里兰卡面临拖欠还款的巨大风险，将带来灾难性的经济后果。
+
+消息来源:
+
+[疫情加中国债务陷阱南亚「这一国家」2022年料将彻底破产](https://tw.news.yahoo.com/%E7%96%AB%E6%83%85%E5%8A%A0%E4%B8%AD%E5%9C%8B%E5%82%B5%E5%8B%99%E9%99%B7%E9%98%B1-%E5%8D%97%E4%BA%9E-%E9%80%99-%E5%9C%8B%E5%AE%B6-2022%E5%B9%B4%E6%96%99%E5%B0%87%E5%BE%B9%E5%BA%95%E7%A0%B4%E7%94%A2-074241573.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

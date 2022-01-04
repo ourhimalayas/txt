@@ -2,45 +2,39 @@
 ---
 
 
-## COVID-19 变种干扰了假期旅行但不影响购物
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1820258/)
+## Biden elnök aláírta a 《nemzetvédelmi felhatalmazásról szóló törvényt》 hogy reagáljon a CCP katonai fenyegetéseire
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820285/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-22.png)圣诞节前几天，迈阿密的蒙面购物者。（乔·雷德尔(Joe Raedle) /盖蒂图片社）
-据《新闻大全》2021年12月26日报道
+By 日本东京方舟农场 撰稿-海星
 
-最新的 COVID-19 变种正在颠覆成千上万旅客的假期计划, 但它并没有对假期购物造成太大损害。
- 周日航空公司取消了数百个航班，理由是与 COVID-19 相关的人员配备问题，使国家的旅行困境已经延续到圣诞节之后，并且没有明确的迹象表明何时可以恢复正常行程。
- 但购物者对Omicron变种不屑一顾，根据一项支出指标，假日销售额以 17 年来最快的速度增长。Omicron可能会通过扰乱旅行并打消一些消费者冒险外出的念头，从而减缓经济从去年中共病毒衰退中意外强劲反弹的速度。该变体还可能由于迫使工厂和港口停工、延迟发货和推高价格，为已经在酝酿中的通胀火上浇油。
+匈牙利语翻译：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpg)
+图片来源：网络截图
+December 27-én Biden amerikai elnök hivatalosan aláírta a nemzeti védelmi felhatalmazásról szóló törvényt (NDAA), amely ma lépett hatályba. A törvényjavaslat a CCP fenyegetésének leküzdésére irányuló intézkedésekkel foglalkozik.
 
-由金融公司贸易集团组成的国际金融研究所（Institute of International Finance）首席经济学家罗宾·布鲁克斯（Robin Brooks）说：“美国经济的全面重新开放将再次被推迟。” 但目前尚不清楚伤害会有多深或会持续多久。
- 目前，该变体正在对旅游业造成严重破坏。 根据航班追踪网站(FlghtAware)数据，超过 700个进出美国或在美国境内飞行的航班被取消。 这一数字比周六的近 1,000 个航班有所下降。 周一已有超过50个航班被取消。达美航空(Delta)、联合航空(United)、捷蓝航空(JetBlue)和美国航空(American)都将人员短缺而被迫取消航班归咎于omicron。
+Az “Amerika Hangja” jelentése szerint Biden elnök még ugyanazon a napon aláírta a 2022-es pénzügyi évre vonatkozó nemzetvédelmi felhatalmazási törvényt. A törvényjavaslat 777 milliárd amerikai dollár elkülönítését engedélyezi az Egyesült Államok védelmi kiadásaira. Közülük 7,1 milliárd dollárt különítettek el a “Csendes-óceáni Elrettentési Kezdeményezés” (Pacific Deterrence Initiative) számára, hogy válaszoljon a CCP katonai fenyegetéseire.
 
-美联航发言人玛迪·金(Maddie King)在谈到该变种对人员配置的影响时说：“这是出乎意料的。” 航班追踪网站的数据显示，截至周日上午，全球航空公司取消了约2,200个航班，低于前一天的2,800多个取消航班。该网站没有说明航班取消的原因。
- 捷蓝航空周日取消了10%的航班。 据航班追踪网站称，达美航空取消了5%，美联航取消了4%。 这三家航空公司周六取消了超过10%的定期航班。梅森·赫洛克(Mason Herlocker)周日在新泽西州的纽瓦克自由国际机场(ewark Liberty International Airport)等候接他从巴黎来的女朋友。她的航班延误了四个小时。
+Ezen túlmenően, a törvényjavaslat nem csak nyilatkozatot adott ki, hogy az Egyesült Államok Kongresszusa támogatja Tajvan védelmét. Ugyanakkor számos konkrét intézkedést fognak meghozni, hogy segítsék Tajvant önvédelmi képességeinek fejlesztésében. És meghívta Tajvant, hogy vegyen részt a Csendes-óceán körüli katonai gyakorlatokon.
 
-在进入美国的前一天，她花了五个小时才做了COVID-19测试。她要访问三个星期，梅森·赫洛克说他担心，，如果她在尝试返回法国的家之前没有获得阴性测试结果，她会被困在这里。由于担心他的父母生病，梅森·赫洛克最近打了加强针，并鼓励其他人也接受注射。 他说，他不相信大流行即将结束。
+A törvényjavaslat ugyanakkor előírja, hogy a Nemzetvédelmi Minisztériumnak tilos kényszermunkával előállított termékeket vásárolni a kínai Xin Jiang-ban.
 
-赫洛克说：“我认为这是种新常态”，“我预计（病毒）不会很快消失。”阿内什·阿比扬卡(Aneesh Abhyankar) 周日从亚特兰大(Atlanta)飞来，正在等待飞往印度的航班。他的航班都没有延误或取消，但他说Omicron变种的消息促使他加快行程，以确保他能到达目的地。他说，在可预见的未来，口罩和疫苗很可能会在日常生活中根深蒂固。
- 他说：“如果我们采取所有预防措施，我认为我们不必担心，我认为我们将进入一种只能与病毒共存的境地。”尽管有 omicron，但美国消费者似乎未被吓倒。 追踪包括现金和借记卡在内的各种支付方式的万事达卡，消费脉动(Mastercard SpendingPulse)周日报告称，假日销售额较上年同期增长8.5%，为 17 年来的最大年度增幅。万事达卡消费脉动曾预计增长7.4%。
+A hírek szerint a hónap elején a törvényjavaslatot elsöprő többséggel elfogadták az Egyesült Államok Szenátusának és a Képviselőháznak mindkét házában, és széles körű támogatást kapott a demokrata és republikánus kongresszusi képviselők részéről.
 
-涵盖11月1日至12月24日的消费结果， 是受到购买服装和珠宝的推动。 与大流行前的2019年假期相比，假期销售额增长了10.7%。
- 受到Omicron冲击后，一些消费者将消费转向电子商务，但销售额依然强劲。
- 万事达卡高级顾问、萨克斯公司(Saks Inc.)前首席执行官史蒂夫·萨多夫（Steve Sadove）说：“我对这一季的表现感觉非常好。当人们感到有点不舒服时，你会看到网上购物的情况有点好转，商店的业绩表现也有点放缓。”萨多夫说，消费者正在“学会接受”COVID-19 给他们带来的一切。他说：“您将带着相当多的消费动力走出2021年。”
+A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
 
-约翰霍普金斯大学(Johns Hopkins)传染病专家阿梅什·阿达利亚(Amesh Adalja)博士周日表示，关于Omicron在美国的激增将有多严重，仍有许多疑问。与此同时，在欧洲，法国在大流行中首次在一天内记录了超过10万例病毒感染。 过去一个月，COVID-19 住院人数增加了一倍，omicron使法国政府避免新的活动限制努力复杂化。该国的总死亡人数超过122,000人。
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1800494/](https://gnews.org/zh-hans/1800494/))
 
-总统埃马纽埃尔·马克龙 (Emmanuel Macron) 的政府计划在周一召开紧急会议，讨论接下来的步骤。 一些科学家和教育工作者敦促推迟假期后返校，或建议重新实施宵禁。
+参考链接：
 
-
-
-原文链接：[https://www.newsmax.com/finance/streettalk/virus-outbreak/2021/12/26/id/1050004/](https://www.newsmax.com/finance/streettalk/virus-outbreak/2021/12/26/id/1050004/)
+1. [*拜登总统签署《国防授权法》 内容涉及应对中国威胁的措施*](https://www.voachinese.com/a/bidens-signed-ndaa-into-law-20211227/6371713.html)
+2. [*美参院通过国防授权法 邀台参与环太军演*](https://www.zaobao.com.sg/realtime/china/story20211216-1223634)
+3. [*拜登签署国防授权法 拨款71亿美元用于太平洋威慑倡议*](https://www.zaobao.com.sg/realtime/world/story20211228-1227149)
 
 
 
 
-
-翻译： 飞利普 |校对：烟波浩淼 | 编辑&发布：闪电训练
-
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
