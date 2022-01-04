@@ -15,115 +15,115 @@
 
 ---
 
-### [众议员马特·盖茨：跟我来盖特吧](/content/gnews/1/README.md)
+### [【粤语配音】2022年1月1日：新中国联邦国旗蓝的寓意](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [台湾可能以观察员身份参加2022年环太军演](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [众议员马特·盖茨：跟我来盖特吧](/content/gnews/3/README.md)
  ` 美国政要直译推`
 
-### [郭文贵先生最新单曲创造的历史纪录是力量和生命的显示](/content/gnews/2/README.md)
+### [郭文贵先生最新单曲创造的历史纪录是力量和生命的显示](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共高层对西安发出“清零”命令，后果会多严重？](/content/gnews/3/README.md)
+### [中共高层对西安发出“清零”命令，后果会多严重？](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [中共山东最高法：不能仅以出轨为由离婚](/content/gnews/4/README.md)
+### [中共山东最高法：不能仅以出轨为由离婚](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [香港《众新闻》将于4日被关停](/content/gnews/5/README.md)
+### [香港《众新闻》将于4日被关停](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [华为斥巨资渗透收买英国顶尖大学](/content/gnews/6/README.md)
+### [华为斥巨资渗透收买英国顶尖大学](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [恒大海花岛39栋楼/43万平方建筑被要求10天内拆除 恒大停牌 港股地产板块普跌](/content/gnews/7/README.md)
+### [恒大海花岛39栋楼/43万平方建筑被要求10天内拆除 恒大停牌 港股地产板块普跌](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [几个馒头引发的底层悲剧](/content/gnews/8/README.md)
+### [几个馒头引发的底层悲剧](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国防部长奥斯汀感染中共病毒 之前已打过3针疫苗](/content/gnews/9/README.md)
+### [美国国防部长奥斯汀感染中共病毒 之前已打过3针疫苗](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东京2号感染中共病毒的84人中有43人已打过2针疫苗](/content/gnews/10/README.md)
+### [东京2号感染中共病毒的84人中有43人已打过2针疫苗](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美联储正准备迎接一场全球金融体系的“大崩溃和大重置”](/content/gnews/11/README.md)
+### [美联储正准备迎接一场全球金融体系的“大崩溃和大重置”](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Jordan Peterson：带你厘清混乱的十二条人生法则](/content/gnews/12/README.md)
+### [Jordan Peterson：带你厘清混乱的十二条人生法则](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [全球发现首例同时感染新冠病毒和“氟罗那”(flurona)流感病毒的病例](/content/gnews/13/README.md)
+### [全球发现首例同时感染新冠病毒和“氟罗那”(flurona)流感病毒的病例](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [G时评218期直播摘要（1.3）：俄罗斯高调揭露疫苗阴谋](/content/gnews/14/README.md)
+### [G时评218期直播摘要（1.3）：俄罗斯高调揭露疫苗阴谋](/content/gnews/16/README.md)
  ` GISELLE`
 
-### [台湾总统蔡英文就中共的“军事冒险主义”发出警告](/content/gnews/15/README.md)
+### [台湾总统蔡英文就中共的“军事冒险主义”发出警告](/content/gnews/17/README.md)
  ` 首尔天池农场`
 
-### [美国边境执法部门截获的芬太尼数量历史上首次超过海洛因](/content/gnews/16/README.md)
+### [美国边境执法部门截获的芬太尼数量历史上首次超过海洛因](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [外媒报道：中共国本次奥运会面临西方日益增长的抵制](/content/gnews/17/README.md)
+### [外媒报道：中共国本次奥运会面临西方日益增长的抵制](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致](/content/gnews/18/README.md)
+### [政府内部民意调查显示特鲁多与加拿大人在疫苗护照上不一致](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [别了，我们可爱的小鹦鹉-猕猴桃（Kiwi)！](/content/gnews/19/README.md)
+### [别了，我们可爱的小鹦鹉-猕猴桃（Kiwi)！](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [川普民主党支持者：美企不应与“红魔共舞”，应把工作带回美国](/content/gnews/20/README.md)
+### [川普民主党支持者：美企不应与“红魔共舞”，应把工作带回美国](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [通胀高企，土耳其人钱袋持续缩水](/content/gnews/21/README.md)
+### [通胀高企，土耳其人钱袋持续缩水](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/22/README.md)
+### [研究显示减肥可大大降低中共病毒重症发生的可能性](/content/gnews/24/README.md)
  ` GTV News Talk`
 
-### [重磅炸弹：接种疫苗的人因自身器官受到自身免疫性攻击而死亡](/content/gnews/23/README.md)
+### [重磅炸弹：接种疫苗的人因自身器官受到自身免疫性攻击而死亡](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务](/content/gnews/24/README.md)
+### [洛杉矶学校3万名儿童不遵守规定，取消了疫苗接种任务](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲航空业里的疫苗副作用现象](/content/gnews/25/README.md)
+### [澳洲航空业里的疫苗副作用现象](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [魁北克省在新的COVID-19浪潮中开始关闭零售商店](/content/gnews/26/README.md)
+### [魁北克省在新的COVID-19浪潮中开始关闭零售商店](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [亿万富豪拥抱加密货币以防“财产堕入地狱”](/content/gnews/27/README.md)
+### [亿万富豪拥抱加密货币以防“财产堕入地狱”](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拥核五大国声称不搞核战和核竞赛](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西安的人道灾难与CCP病毒](/content/gnews/29/README.md)
+### [西安的人道灾难与CCP病毒](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭先生谈风水](/content/gnews/30/README.md)
+### [郭先生谈风水](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [1/3/2022 文贵盖特：郑州要封城，更多城市会被封](/content/gnews/31/README.md)
+### [1/3/2022 文贵盖特：郑州要封城，更多城市会被封](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [第205期玫瑰看新闻-币圈新闻](/content/gnews/32/README.md)
+### [第205期玫瑰看新闻-币圈新闻](/content/gnews/33/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [1/3/2022 文贵盖特：《我是音雄》和元旦直播震撼了国内](/content/gnews/33/README.md)
+### [1/3/2022 文贵盖特：《我是音雄》和元旦直播震撼了国内](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [第205期玫瑰看新闻-疫苗新闻](/content/gnews/34/README.md)
+### [第205期玫瑰看新闻-疫苗新闻](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [文贵先生盖特精要2022/01/03](/content/gnews/35/README.md)
+### [文贵先生盖特精要2022/01/03](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [第205期玫瑰看新闻-国际热点新闻](/content/gnews/36/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [第205期玫瑰看新聞-新西蘭本地新聞](/content/gnews/37/README.md)
+### [第205期玫瑰看新闻-国际热点新闻](/content/gnews/37/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [郭先生谈五行与爱](/content/gnews/38/README.md)
