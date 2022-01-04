@@ -2,12 +2,10 @@
 ---
 
 
-## 一名在英国国家医疗服务体系的注册护士反对疫苗强制
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821395/)
+## 韩国19岁高中生，起诉政府疫苗政策负责人（厉害的年轻人-杨大林）
+` STHK` [轉載自GNews](https://gnews.org/zh-hans/1821560/)
 
-12/29/2021 一名在英国国家医疗服务体系工作超过25年的注册护士站出来反对疫苗强制，表明其立场支持医疗自由和人们自由选择的权利。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+STHK001
 
  
 
