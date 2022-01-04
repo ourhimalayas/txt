@@ -2,48 +2,35 @@
 ---
 
 
-## 全球疫情更新（美国今日新增病例突破百万）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821226/)
+## 借口保护女性，英国政府布置监视无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821330/)
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-40.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月4日）
+整理报道：文扬
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-8.jpg)图片来源：UAS Vision
+现在看来，更像是一个玩世不恭的公关噱头，当地时间1月3日，英国政府正在考虑允许在街上感觉受到威胁的妇女，呼叫（警方）监视无人机，这些无人机将在几分钟内到达并向任何潜在的攻击者发出（警告）亮光。
 
-**一，全球疫情基本数据**
-感染总数：292,155,190（日新增1,522,713，14天增幅+127%）
-死亡总数：5,446,606（日新增 5,907人，14天增幅–14%）
-每万人感染人数：451.0160 人（除中国外）
+据《电讯报》报道：“那些担心受到攻击的妇女，将能够使用手机应用程序召唤（警用）无人机，无人机可以在几分钟内到达，并配备强大的聚光灯和热成像仪，足以吓跑任何潜在的攻击者”。
 
-**二，全球“疫苗”毒针统计数据**
-“疫苗”毒针注射总数：92.1亿
-完全“接种”：38.8亿人
-完全“接种”百分比：49.8%
+该项试验将在诺丁汉大学的校园内进行，预算为50万英镑。在此期间，该技术将被用于“保护学生和工作人员”。
 
-**三，澳洲疫情和“疫苗”数据**
-感染总数：547,162（今日新增 47,813人）
-死亡总数：2,270人（今日新增 4人）
-每万人感染人数：191.0031人
-“疫苗”毒针注射总数：42,831,533 t   （日新增44,533针）
-完全“接种”：18,872,228人
-第二针“接种”百分比：77.0%%
-16岁以上人口接种至少一剂疫苗的比例：94.4%
-16岁以上人口接种至少两剂疫苗的比例：91.5%
+该方案将是提交给英国政府的创新研究项目，最终人们可能看到（警用）直升机将被无人机取代，成为一线的执法工具。
 
-**四，疫情要闻**
+无人机防御公司的创始人理查德·吉尔说：“这是一种高性能的无人机，每小时只需花费100英镑，但可以完成警用直升机80%的工作。它不能做高速追击，但它可以完成其他任务，如搜索人员和地面监视。”
 
-澳大利亚病例新增数字继续暴增，接近五万人，感染总数超过五十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量急剧增加，有 1204 人正在接受治疗。这个数字比昨天增加了 138例。重症监护室有 95 人，比昨天增加了 12 人。其中 ICU 中的 25 人需要呼吸机。
+吉尔指出，在伦敦，25架无人机可以用低廉的费用完成一架警用直升机的工作，这些无人机被安置在整个城市的五个基地地点。
 
-而美国今天创造了每日新增病例突破100 万的全球记录。在英国，疫苗机构（JCVI）负责人告诉《每日电讯报》，每六个月向人们提供加强针是“不可持续的”。JCVI 主席安德鲁·波拉德爵士教授说，在有更多证据之前，不应进行第四次 加强针注射。他告诉该报，未来“我们需要针对弱势群体”，而不是向所有 12 岁及以上的人提供加强针。“在某个时候，社会必须开放，”他说，并补充说试图预防所有感染是没有意义的。
+无数政府无人机在城市周围呼啸而过，无死角地监视人民的一举一动。
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+当然，允许个人使用无人机也会被完全滥用和误用。有些人将通过不断调用无人机来随机骚扰普通人，或使用无人机进行目标（跟踪）练习来嘲弄这个系统。
+
+防止此类袭击的一种更简单有效的方法是允许女性携带胡椒喷雾，但英国现行法律规定这是非法的。
+
+政府可以通过修改法律来赋予女性保护自己的权力，同时避免让政府采用监视无人机所带来的反乌托邦噩梦。
+
+现在让感到受到威胁的女性召唤（警用）无人机的想法，显然是一种政府的公关噱头，目的是让公众接受普遍引入无人机作为大规模监视（民众）的工具。
+
+原文链接： [UK Government Greases Skids For Fleets of Surveillance Drones Over Cities – Summit News](https://summit.news/2022/01/03/uk-government-greases-skids-for-fleets-of-surveillance-drones-over-cities/)
 
 发布：去中心化Math
 

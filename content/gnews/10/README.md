@@ -2,53 +2,57 @@
 ---
 
 
-## 美国国会两院2022中期选举
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821176/)
+## 全球疫情更新（美国今日新增病例突破百万）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821226/)
 
-整理报道：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/midterm_1.jpg)图片来源：国家地理
-美国是世界政治的中心，而美国政治的重心焦点体现在了国会两院，即参议院和众议院。两院的代表分别代表着不同的州的利益、代表着不同利益群体的利益、表达着各个群体的意见。郭文贵先生在直播中多次讲到美国2022年国会两院中期选举对于灭共的重要性，因此，整理、学习和研究美国国会两院中期选举的有关资料，对于了解美国国内的政治走向有着重要的意义。本系列带领大家了解相关本次中期选举参议院和众议院的部分情况，以抛砖引玉，促进相关深入思考。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-40.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 1月4日）
 
-**中期选举包含哪些内容？**
+**一，全球疫情基本数据**
+感染总数：292,155,190（日新增1,522,713，14天增幅+127%）
+死亡总数：5,446,606（日新增 5,907人，14天增幅–14%）
+每万人感染人数：451.0160 人（除中国外）
 
-1. 改选美国众议院435席全部席位，选民直接选举产生。众议员按各州人口比例选出，大约50万人选一名，任期两年，但会依据每十年的人口普查重新划定选区。候选人必须年满25周岁，作为美国公民已满7年，且为选出州的居民。任何文官不得担任；
-2. 改选美国参议院约1/3的席位，选民直接选举产生。参议员每州选两名，任期六年。候选人必须年满30周岁，作为美国公民已满9年，且必须是选出州的居民。任何文官不得担任；
-3. 部分州长的选举，各州州长由选民直接选出。一般任期为4年，佛蒙特州和新罕布什尔州任期2年、无连任限制次数；部分州长有任期限制，但不少州长无任期限制；
-4. 各州、市、县举行的行政（州长、市长、县长）、立法（州议会【州参议院、州众议院）、市议会、县议会）地方议会选举。
+**二，全球“疫苗”毒针统计数据**
+“疫苗”毒针注射总数：92.1亿
+完全“接种”：38.8亿人
+完全“接种”百分比：49.8%
 
+**三，澳洲疫情和“疫苗”数据**
+感染总数：547,162（今日新增 47,813人）
+死亡总数：2,270人（今日新增 4人）
+每万人感染人数：191.0031人
+“疫苗”毒针注射总数：42,831,533 t   （日新增44,533针）
+完全“接种”：18,872,228人
+第二针“接种”百分比：77.0%%
+16岁以上人口接种至少一剂疫苗的比例：94.4%
+16岁以上人口接种至少两剂疫苗的比例：91.5%
 
-**众议院中期选举**
+**四，疫情要闻**
 
-美国众议院的选举将于2022年11月8日举行，所有435个席位都将进行选举。特别选举也将举行，以填补第117届国会中出现的空缺。
+澳大利亚病例新增数字继续暴增，接近五万人，感染总数超过五十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量急剧增加，有 1204 人正在接受治疗。这个数字比昨天增加了 138例。重症监护室有 95 人，比昨天增加了 12 人。其中 ICU 中的 25 人需要呼吸机。
 
-在2020年的选举中，民主党在美国众议院保持了多数，赢得了222个席位，而共和党则为213个席位。该次选举民主党翻转了3个席位，共和党人翻转了15个席位，另加一个由自由党人持有的席位。 下图为1999年至2021年美国众议院共和党和民主党席位的变动趋势图（红线代表共和党，蓝线代表民主党）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-39.png)图片来源：Ballotpedia
-**参议院中期选举**
+而美国今天创造了每日新增病例突破100 万的全球记录。在英国，疫苗机构（JCVI）负责人告诉《每日电讯报》，每六个月向人们提供加强针是“不可持续的”。JCVI 主席安德鲁·波拉德爵士教授说，在有更多证据之前，不应进行第四次 加强针注射。他告诉该报，未来“我们需要针对弱势群体”，而不是向所有 12 岁及以上的人提供加强针。“在某个时候，社会必须开放，”他说，并补充说试图预防所有感染是没有意义的。
 
-美国参议院的选举将于2022年11月8日举行，100个席位中的34个将进行定期选举。在2022年的34位定期选举中当选为美国参议院议员的人将于2023年1月3日开始其六年任期。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-在2020年参议院选举和2021年1月佐治亚州的决选之后，民主党人和共和党人占据的席位对半分。这使得副总统卡玛拉·哈里斯（Kamala Harris）获得了打破僵局的一票，民主党人通过权力分享协议控制了美国参议院。
+发布：去中心化Math
 
-2022年将有14个由民主党人占据的席位和20个由共和党人占据的席位要进行选举。在2022年选举的这34个席位中，有32个是在2016年进行的最后一次选举。佐治亚州和亚利桑那州2022年的选举席位是在2020年进行的特别选举。 下图为1999年至2021年美国参议院共和党和民主党席位的变动趋势图（红线代表共和党，蓝线代表民主党）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-10.png)图片来源：Ballotpedia
-综合以上情况，面对中共利用生化病毒发起的第三次世界大战以及对美国实施的蓝金黄和3F方案，由于世界暗黑势力与中共的勾结，美国内部分化严重。美国2022年中期大选结果将决定着美国的政治走向，决定着世界的政治走向，也是决定人类世界走向的重要因素。
-
-接下来的系列文章，我们将对各个州的选举情况和选举人分别做一个简要的概括，在这一决定人类生存与发展的重要阶段，分析和解读美国各州国会两院参选人的情况，对于理解和践行新中国联邦“为真不破”的理念，客观地经验这一历史进程，对于新中国联邦未来政治的重构和建设，有着重要的参考意义。
-
-**参考资料来源**
-
-[United States Congress elections, 2022](https://ballotpedia.org/United_States_Congress_elections,_2022)
-
-**发布：彩虹**
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

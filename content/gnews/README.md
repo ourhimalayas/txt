@@ -15,137 +15,137 @@
 
 ---
 
-### [2022/01/04 英喜时事速递](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [专家反水 认新冠疫苗无阻Omicron](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球疫情更新（美国今日新增病例突破百万）](/content/gnews/2/README.md)
+### [借口保护女性，英国政府布置监视无人机](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [正义的小新揭露中共在新疆灭绝人性残害维族人](/content/gnews/3/README.md)
+### [西媒头条 — 第144期](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭文贵先生：我们在否定中成长，因为我们是灭共者](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【速报】今日日本中共病毒感染人数破千](/content/gnews/4/README.md)
+### [借花献佛假慈善——港府速批54万元助中共援助菲律宾风灾](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上野动物园即将向公众公开双胞胎大熊猫](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [游街示众——文革又复活了](/content/gnews/6/README.md)
- ` 澳喜特战旅Gnews`
-
-### [01/04每日播报｜联邦法官暂停对寻求宗教豁免的军人的强制疫苗规定](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [秘翻在线：河南禹州封城，中共防疫就是制造人道灾难！](/content/gnews/8/README.md)
+### [秘翻在线：中共国数字货币赶在冬奥会前试水 暂无跨境支付功能](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Charlie and his Orchestra](/content/gnews/9/README.md)
+### [2022/01/04 英喜时事速递](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [莘7女孩：中共凶残犯罪集团是老百姓的敌人](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [Eglise医生：中共以为他们能继续放毒戕害世界还能逍遥无事](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [全球疫情更新（美国今日新增病例突破百万）](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [正义的小新揭露中共在新疆灭绝人性残害维族人](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花灭共诗——圣诞有感](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【速报】今日日本中共病毒感染人数破千](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [上野动物园即将向公众公开双胞胎大熊猫](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [游街示众——文革又复活了](/content/gnews/15/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [01/04每日播报｜联邦法官暂停对寻求宗教豁免的军人的强制疫苗规定](/content/gnews/16/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线：河南禹州封城，中共防疫就是制造人道灾难！](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [Charlie and his Orchestra](/content/gnews/18/README.md)
  ` 骄子`
 
-### [美国国会两院2022中期选举](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [未接种新冠疫苗的人，教皇不付工资](/content/gnews/11/README.md)
+### [未接种新冠疫苗的人，教皇不付工资](/content/gnews/19/README.md)
  ` xiaobaige`
 
-### [郭文贵先生2022年1月3日盖特直播视频（17分14秒）全文字版](/content/gnews/12/README.md)
+### [郭文贵先生2022年1月3日盖特直播视频（17分14秒）全文字版](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美寿险公司首席执行官称18-64岁的人中死亡人数增加了40%](/content/gnews/13/README.md)
+### [美寿险公司首席执行官称18-64岁的人中死亡人数增加了40%](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [青蒿素修复基因缺陷对中风糖尿病癌症妇科病有绝对奇效](/content/gnews/14/README.md)
+### [青蒿素修复基因缺陷对中风糖尿病癌症妇科病有绝对奇效](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西安疫苗灾难将在石家庄廊坊张家口承德江浙广州武汉重演](/content/gnews/15/README.md)
+### [西安疫苗灾难将在石家庄廊坊张家口承德江浙广州武汉重演](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [99.999%数字货币会消失，取代它们的是有支付系统的喜币](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [风与水](/content/gnews/17/README.md)
+### [风与水](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [盘古变成火龙的时候就是七哥接受世界十家媒体采访之时](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
+### [【G时新闻】强推疫苗结出恶果，墨尔本男子当街自焚!](/content/gnews/25/README.md)
+ ` G-时新闻`
 
-### [盘古裕达物归原主后将全素餐厅、恢复原貌、惩罚背叛者](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [容忍共产党在中华大地肆虐是每个中国人的原罪,必须自救](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵谈中共严格严肃管理失控的音乐文化市场内幕](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭文贵：元旦前一天《我是音雄》是新中国联邦团队的升华](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳洲新南威尔士CCP病毒新增确诊今日再度打破记录](/content/gnews/23/README.md)
- ` 澳喜特战旅Gnews`
-
-### [01/04每日播报｜恒大海花岛被勒令强拆  其股票已经停牌](/content/gnews/24/README.md)
+### [01/04每日播报｜恒大海花岛被勒令强拆  其股票已经停牌](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [01/04每日播报｜Omicron变种感染潮正在摧毁美国教育系统](/content/gnews/25/README.md)
+### [01/04每日播报｜Omicron变种感染潮正在摧毁美国教育系统](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中国外交部表示：将继续推进核武库“现代化”](/content/gnews/26/README.md)
+### [中国外交部表示：将继续推进核武库“现代化”](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [川普称推特和脸书是美国的耻辱，并敦促美国人放弃它们](/content/gnews/27/README.md)
+### [川普称推特和脸书是美国的耻辱，并敦促美国人放弃它们](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本将对面部识别技术进行出口管制](/content/gnews/28/README.md)
+### [日本将对面部识别技术进行出口管制](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国央行推出安卓和iOS版数字人民币钱包应用程序](/content/gnews/29/README.md)
+### [中国央行推出安卓和iOS版数字人民币钱包应用程序](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [01/04每日播报｜印尼禁止煤炭出口 中共用电危机恐加剧](/content/gnews/30/README.md)
+### [01/04每日播报｜印尼禁止煤炭出口 中共用电危机恐加剧](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [娜奥米·沃尔夫：我希望福奇面临第二次纽伦堡审判](/content/gnews/31/README.md)
+### [娜奥米·沃尔夫：我希望福奇面临第二次纽伦堡审判](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大表示在复工方面初显成效](/content/gnews/32/README.md)
+### [恒大表示在复工方面初显成效](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：中共病毒是生物武器](/content/gnews/33/README.md)
+### [泽连科医生：中共病毒是生物武器](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彼得·麦卡洛：大医药公司为了金钱鼓励人们接种疫苗](/content/gnews/34/README.md)
+### [彼得·麦卡洛：大医药公司为了金钱鼓励人们接种疫苗](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [麦卡洛：由于死亡人数过高，早在二月疫苗接种就该叫停](/content/gnews/35/README.md)
+### [麦卡洛：由于死亡人数过高，早在二月疫苗接种就该叫停](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [参议员克鲁兹：2023年共和党可能会弹劾拜登总统](/content/gnews/36/README.md)
+### [参议员克鲁兹：2023年共和党可能会弹劾拜登总统](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [01/04每日播报｜新闻简讯:河南疫情扩散 印尼禁止煤炭出口 西安封城乱象频发](/content/gnews/37/README.md)
+### [01/04每日播报｜新闻简讯:河南疫情扩散 印尼禁止煤炭出口 西安封城乱象频发](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [法国科学家发现新的中共病毒变体IHU](/content/gnews/38/README.md)
+### [法国科学家发现新的中共病毒变体IHU](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平11月演讲稿刻意歪曲89.64惨案](/content/gnews/39/README.md)
+### [习近平11月演讲稿刻意歪曲89.64惨案](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [2022年将是国内民众最穷困的一年](/content/gnews/40/README.md)
+### [2022年将是国内民众最穷困的一年](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/41/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在38.100 HDO](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国人民银行原党委书记、主任牟善刚接受调查](/content/gnews/42/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését](/content/gnews/43/README.md)
+### [Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését](/content/gnews/44/README.md)
  ` 澳喜农场`
-
-### [参议员兰德·保罗宣布退出YouTube加入Rumble](/content/gnews/44/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [【中日财经爆】印尼突然禁止煤炭出口 对中共国影响巨大？](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

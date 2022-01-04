@@ -2,12 +2,18 @@
 ---
 
 
-## 正义的小新揭露中共在新疆灭绝人性残害维族人
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1821224/)
+## 西媒头条 — 第144期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1821323/)
 
-12/31/2021 灭共斗士正义的小新讲述中共在新疆灭绝人性残害维族人。《战斗室》12月31日年度人物老百姓特辑，班农先生连线爆料革命、新中国联邦三位战友（莘7女孩、Eglisebell 圣母院钟声、正义的小新Emma）。
+**制作: 蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm210101.001.jpeg)
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 
