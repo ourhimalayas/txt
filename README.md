@@ -15,74 +15,74 @@
 
 ---
 
-### [维加诺主教2021年圣诞节讲话：大重启（04）](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [全球疫情更新（伦敦十分之一的人口已经感染）](/content/gnews/2/README.md)
+### [疫苗灾难开始显露？美国青壮年死亡大增40%](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [维加诺主教2021年圣诞节讲话：大重启（03）](/content/gnews/3/README.md)
+### [中国证监会制定海外上市规则](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [维加诺主教2021年圣诞节讲话：大重启（04）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第41期](/content/gnews/4/README.md)
+### [全球疫情更新（伦敦十分之一的人口已经感染）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [维加诺主教2021年圣诞节讲话：大重启（03）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [咳嗽、感冒或新冠？医生说症状重叠无法辨别](/content/gnews/5/README.md)
+### [七哥说—第41期](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [咳嗽、感冒或新冠？医生说症状重叠无法辨别](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [香港警方以煽动罪逮捕6名记者](/content/gnews/6/README.md)
+### [香港警方以煽动罪逮捕6名记者](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喜马拉雅币：郭文贵先生喜爱的加密货币](/content/gnews/7/README.md)
+### [喜马拉雅币：郭文贵先生喜爱的加密货币](/content/gnews/9/README.md)
  ` wenwu`
 
-### [特鲁多简要介绍了目前可用的联邦新冠福利](/content/gnews/8/README.md)
+### [特鲁多简要介绍了目前可用的联邦新冠福利](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [文贵爆料 1.5：北京冬奥会：一场历史轮回的闹剧](/content/gnews/9/README.md)
+### [文贵爆料 1.5：北京冬奥会：一场历史轮回的闹剧](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [维加诺主教2021年圣诞节讲话：大重启（02）](/content/gnews/10/README.md)
+### [维加诺主教2021年圣诞节讲话：大重启（02）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022.1.5文贵直播：哈萨克斯坦动乱，中共是幕后黑手，黄金是暴乱的真正原因](/content/gnews/11/README.md)
+### [2022.1.5文贵直播：哈萨克斯坦动乱，中共是幕后黑手，黄金是暴乱的真正原因](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [联邦交通部长要求对 Sunwing 飞往墨西哥的航班派对事件进行调查](/content/gnews/12/README.md)
+### [联邦交通部长要求对 Sunwing 飞往墨西哥的航班派对事件进行调查](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [领土扩张：入侵乌克兰和台湾](/content/gnews/13/README.md)
+### [领土扩张：入侵乌克兰和台湾](/content/gnews/15/README.md)
  ` wenwu`
 
-### [美国科学教师因给17岁学生接种疫苗而被捕](/content/gnews/14/README.md)
+### [美国科学教师因给17岁学生接种疫苗而被捕](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [2022年1月5日郭先生大直播文字同步精要](/content/gnews/15/README.md)
+### [2022年1月5日郭先生大直播文字同步精要](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [维加诺主教2021年圣诞节讲话：大重启（01）](/content/gnews/16/README.md)
+### [维加诺主教2021年圣诞节讲话：大重启（01）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [最高法院法官都接种了 COVID-19 加强疫苗](/content/gnews/17/README.md)
+### [最高法院法官都接种了 COVID-19 加强疫苗](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [我的亲身经历（二）——严管期与管理犯](/content/gnews/18/README.md)
+### [我的亲身经历（二）——严管期与管理犯](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
 
-### [令人恐怖的美国保险业的大流行数据](/content/gnews/19/README.md)
+### [令人恐怖的美国保险业的大流行数据](/content/gnews/21/README.md)
  ` Itana`
 
-### [[小雨专栏]在路上055——懒惰篇](/content/gnews/20/README.md)
+### [[小雨专栏]在路上055——懒惰篇](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大生活美谈 2021-12-30第三十六期](/content/gnews/21/README.md)
- ` canadalifetalk`
-
-### [为何肯尼迪新书未登《纽时》畅销书榜首](/content/gnews/22/README.md)
+### [为何肯尼迪新书未登《纽时》畅销书榜首](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [西安残酷封城的根由或是共匪内斗](/content/gnews/23/README.md)
- ` 波士顿五月花农场`
 
 ### [对推特谷歌等垄断机构 一系列法案正在进行中](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
