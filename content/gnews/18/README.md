@@ -2,32 +2,23 @@
 ---
 
 
-## 捷克新政府将与台湾全面合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825352/)
+## 狮城快讯：腾讯从虾皮母公司套现超30亿美金
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1825361/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据台湾媒体报导，2021年12月中旬上任的捷克总理费亚拉率领新政府公开表示，捷克将展开与包括台湾在内的全球民主国家合作，同时将修正前任政府过度偏向中共与俄罗斯的路线。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-16.jpg)
-报道提及，由五大党派组成的捷克新政府在最新的联合执政协议中明确指出，捷克会重拾以人权为价值导向的外交政策，包括推动捷克版“马格尼茨基法案”，并允许捷克政府对侵犯人权的个人和企业实施制裁。此外，本届政府将扭转总统齐曼和前任总统巴比斯此前采取的亲中共路线。
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-233938.jpg)
+据路透社周三报道，中共国游戏和社交媒体公司腾讯控股有限公司以每股 208 美元的价格出售了其在东海集团（Sea）的 1450 万股股票，套现 30 亿美元，东海集团拥有电子商务公司 Shopee。 腾讯周二晚间表示，公司已与Shopee达成协议，将其在这家总部位于新加坡的游戏和电子商务集团的股份从 21.3% 减少至 18.7%。
 
-也有分析人士认为，在中共难以兑现“17+1”承诺的前提下，捷克或将跟随立陶宛的脚步，退出与中共政府的合作机制。而在捷克新政府重新审视与中共关系的同时，其将深化加强与台湾的伙伴关系。
+撤资消息传出后，东海集团的股价周二在纽约下跌 11.4%，至 197.8 美元。在宣布之前，东海表示腾讯还同意将其在该公司的投票权削减至 10% 以下。
 
-参考链接：[捷克新政府友台 專家：料跟進立陶宛 退出中國「17+1」機制](https://news.ltn.com.tw/news/world/breakingnews/3788483)
+经过这样的股权变动，东海的所有流通 B 类股份将由该集团创始人、董事长兼首席执行官 Forrest Li （李小东）作为最终受益人，目前该公司市值为 1100 亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+李小冬是谁呢？小编一看这名字就知道肯定来自中共国的呀。 原来他出生于天津，父母是国营企业员工。[\[](https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%B0%8F%E5%86%AC#cite_note-Feminine-5)他在获得上海交通大学工程学位和斯坦福商学研究生院工商管理硕士学位后移居新加坡。
 
-总编：飞虹
-编辑：天滅中共
-校正/发稿：Fei797
+2021年8月，李小冬以198亿美元的净资产成为新加坡首富。连续多少年了，新加坡首富都是来自中共国，从海底捞的张勇夫妇到麦瑞医疗的李西廷，如今的李小东，他们是否是白手套不好说，但是和中共国的关系一定是非常紧密的，新加坡显然已经成为中共的天下了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://www.reuters.com/technology/tencent-sells-301-bln-stake-singapore-tech-group-sea-2022-01-05/)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

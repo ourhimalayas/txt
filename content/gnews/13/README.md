@@ -2,26 +2,24 @@
 ---
 
 
-## 航空公司支付员工高薪维持假期运营
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825387/)
+## 瑞典国王伉俪接种三剂疫苗后双双确诊染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825403/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：台湾宝岛农场 鬥陣來拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
+当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.44.png)
+报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpeg)
+另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
 
-据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
+参考链接：[瑞典國王與王后雙雙確診染疫 暫時自我隔離](https://www.cna.com.tw/news/aopl/202201040397.aspx)
 
-报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
-
-参考链接：[Airlines Triple Pay For Pilots, Double For Flight Attendants Amid Widespread Cancellations](https://theparadise.ng/airlines-triple-pay-for-pilots-double-for-flight-attendants-amid-widespread-cancellations/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：文特
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
