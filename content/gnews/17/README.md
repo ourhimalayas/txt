@@ -2,38 +2,36 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第27天位列美国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1825110/)
+## DC每日热点0105
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1825244/)
 
-1/5/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第27天位列美国iTunes热门MV榜榜首。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F614DC2C-1E0A-4C12-B2C2-031B371F4BEB-scaled.jpeg)
+道琼斯指数 36799.65 ▲0.59%
+纳斯达克指数 15622.72 ▼1.33%
+WTI纽约原油CFD 77.571 ▲0.75%
+布伦特原油CFD 80.696 ▲0.87%
+标普50指数 2,845.41 ▼44.71%
+美元兑人民币 1USD=6.368 RMB
+美元兑港币 1USD=7.794 HKD
+国际黄金 1821.52美元/盎司
+全球CCP病毒感染人数 295,815,006例
 
-* * *
-
-[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+1、美日本周举行年度首场外长防长会议 预计重点应对朝鲜和中共国威胁
+2、瑞典国王卡尔十六世·古斯塔夫和王后西尔维娅日前新冠病毒检测结果呈阳性，正在进行隔离，两人都接种过三剂疫苗
+3、哈萨克斯坦宣布爆发抗议城市和州进入紧急状态
+4、 北约俄罗斯将就莫斯科在乌克兰边境集结军队问题举行谈判
+5、韩国和日本：朝鲜进行了2022年的首次导弹试射6、美驻伊拉克部队4日挫败了几天来第二次充满爆炸物的无人机袭击
+7、拜登警告：由于新冠病毒的奥密克戎变种，病例将持续上升，接下来的几个星期将具有挑战性
+8、立陶宛总统：让台北以台湾名义设立代表处是一个错误
+9、法国科研人员发现新冠新变种B.1.640.2，可能对疫苗具有更强的抵抗力，且比原始毒株更具传染性
+10、香港新任立法会议员首次向中共国国徽及特首宣誓就职
+11、特斯拉在人权广受诟病的新疆开设首家门店
+12、恒大在港交所恢复交易 股价一度暴涨10%
+13、北京冬奥进入倒计时，史上最严管理程序启动：数千位涉奥工作人员进入全封闭点对点闭环管理
+14、法国民议会疫苗通行证速审议程意外受阻后重开讨论
+15、港府下月24日推文娱饮食场所须打针方可进入
+16、世卫：抵御奥密克戎必须达到70%人口的疫苗接种目标
 
  
 

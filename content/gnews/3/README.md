@@ -2,24 +2,26 @@
 ---
 
 
-## 墙内网络管控进一步收紧 微信再出审核新规
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825376/)
+## 芝加哥警察工会主席猛烈抨击中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825404/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7.jpg)
-据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
+1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.53.png)
+对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
 
-有报道称，在过去两年中，为了隔绝墙内外的信息交流，同时维持对墙内民众的谎言，中共当局不断加强对科技企业的管控。其中，腾讯仅在2021年7月内就曾被中共政府罚款六次。
+此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
 
-参考链接：[微信六大严规 违者永久封号 学校开始排查](http://www.cbeiji.com/shownews.php?id=142257&amp;fid=2)
+据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+参考链接：[Vaccinated Chicago Police Union Boss Says He Has COVID, Slams Vaccine](https://www.thedailybeast.com/john-catanzara-chicago-police-union-president-says-he-tested-positive-for-covid-19-slams-vaccine)
 
-总编：飞虹
-编辑：文特
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,28 +2,39 @@
 ---
 
 
-## 干支文贵灭共建联邦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1825037/)
+## MV版Hcoin To the Moon上线第27天位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1825110/)
 
-作者：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-260.png)
-丁酉文贵初语录，
+1/5/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第27天位列美国iTunes热门MV榜榜首。
 
-戊戌法变党政中。
+* * *
 
-己亥命数已定运，
+[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-庚子释毒欺世人。
+* * *
 
-辛丑事相文贵露，
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
-壬寅灭共全民起。
 
-癸卯联邦立中华。
+[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
