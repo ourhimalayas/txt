@@ -2,96 +2,28 @@
 ---
 
 
-## 七哥介绍新中国联邦宣言(下)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
+## 【中日财经爆】美元兑日元汇率创五年来新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824149/)
 
-[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
+整理编辑：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/to5HXrOspz3I7BDO511w0Qn5TrdYjjor_zfiMpqmZDWlRSzbNft2AdMD6I7j4WpOX44YlAXyLQMl3qAvWZm_svABCP_2_iq19jtTOzNHdZwomTzWBx6-I2sGSC6GFpmL-DM8t1vb)[*图片来源*](https://doqvf81n9htmm.cloudfront.net/data/crop_article/103719/shutterstock_635487812.jpg_1140x855.jpg)
+美元兑日元周二（1月4日）连续第五个交易日上涨，触及五年高点，因投资者认为中共病毒Omicron变种不太可能扰乱全球经济，或推迟美国联邦储备委员会(FED/美联储)预期中的升息。
 
-**郭文贵
-Miles Guo**
+芝加哥商业交易所(CME)Fedwatch Tool发现，因预期美联储今年将升息而导致美债收益率上升支撑了美元，预计美联储3月政策制定委员会会议至少将升息25个基点的人超过了60%。对升息预期敏感的五年期美债收益率升至2020年2月以来最高水平。两年期美债收益率在周一触及22个月高位后小幅下滑。该收益率也反映出市场对利率的看法。
 
-我们说什么的时候都不要忘了
-Whatever we say, please don’t forget
+美元指数上涨0.06%，欧元[EUR=](https://cn.reuters.com/quote/EURUSD)下跌0.05%，至1.1288美元。
 
-因这个我们走在了一起
-Because of this (the New Federal State of China Declaration) we have gotten together
+日元兑美元[JPY=](https://cn.reuters.com/quote/JPYUSD)下跌0.65%，至116.08日元，此前美元兑日元达到116.34日元高点，这是自2017年1月11日以来的最高水平。
 
-这是我们一切的原因
-This is the reason for everything
+“美元/日元绝对会走高，都是受收益率驱动，2022年已经到了，市场正准备迎接美联储升息，因此这是推动美元/日元走高的关键催化剂，”西联汇款商业解决方案资深市场分析师Joe Manimbo表示。“最主要的，Omicron非常难以预测，但市场到目前为止的想法是，它看起来不会严重打击经济复苏，只是增加了对央行和它们可能如何升息的关注度。”
 
-不是因为七哥
-It’s not because of (Brother 7) Miles Guo
+明尼亚波利斯联邦储备银行总裁卡什卡利(Neel Kashkari)周二表示，他预计美联储今年将需升息两次，以应对持续高企的通胀，一改他长期以来坚持的利率需要维持在近零水准直到至少2024年的观点。
 
-不是因为任何人，也不是摇滚巨星
-It’s not because of anyone, nor a rock star
+消息来源：[**美元兑日元触及五年高位 市场料美联储将于3月升息**](https://cn.reuters.com/article/global-forex-0104-tues-idCNKBS2JF01C?il=0)
 
-刚才长岛哥念我的Title的时候
-Just now earlier when Brother Long Island stated my title
-
-已经快和当年的斯大林、列宁同志相比肩了
-It was almost on par with the comrades Stalin and Lenin back then
-
-伟大的国际共产主义创始人
-the great founder of international communism,
-
-伟大的苏联共产党创始人
-the great founder of the Communist Party of the Soviet Union,
-
-伟大的苏联苏维埃主席
-the great Soviet chairman of the Soviet Union,
-
-伟大的苏维埃共产党主席、总书记
-the great chairman of the Soviet Communist Party, General Secretary
-
-念好半天，大家都快睡着了
-He has spent half a day to state, and everyone is almost falling to sleep
-
-实际上很简单
-It’s actually very simple
-
-就这一个
-Just this one (the New Federal State of China Declaration)
-
-我们今天就这一个
-Just this one today
-
-绝对是因为这个走在一起
-It’s definitely because of this one we have gotten together
-
-无论是铁血组，还是联盟委员会，还是战友们
-Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
-
-当谁忘掉这个的时候
-Whoever forgets this,
-
-你真的没有记住的时候
-and really don’t keep this in mind,
-
-你一定是被淘汰那个人
-You will definitely be that individual that gets eliminated
-
-* * *
-
-Date: 01/02/2022
-原视频标题: 七哥介绍新中国联邦宣言(下)
-(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
-原视频日期：2022/01/01
-原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
-任务编号：KC394(3394)
-视频时间段 : 0:00-00:52
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-00：11 Title 改为 头衔
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
