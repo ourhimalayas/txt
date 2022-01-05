@@ -17,6 +17,31 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@adam22 12/28/2021 6:11 PM (UTC)`
+
+The new episode of @plugtalkshow is now live featuring the ridiculously hot @emilywillisxoxo 😳 this is actually the first episode we ever shot. We interviewed her and then we ate her ass together. It was beautiful. Link in my bio  
+![img](https://media.gettr.com/group18/tw/2022/01/02/23/40f264d2-0276-2880-4d2c-a9c7c6f70e21/04bd80f1f88c6132846fcaf485219e6f.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@reploudermilk 1/4/2022 7:12 PM (UTC)`
+
+I love freedom and the First Amendment - that's why I'm on GETTR.
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@tulsigabbard 1/5/2022 7:34 PM (UTC)`
+
+Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me were fake. Now you can hear from me directly.  https://gettr.com/user/tulsigabbard
+
+---
+
 `@miles 1/5/2022 7:25 PM (UTC)`
 
 1月5号：这个范围好像是包含了裕达国贸．希望所有郑州的同胞和裕达的同仁们能保护好自己。【都跟着七哥的剧本在演，连个自由发挥都没有。郑州，又轮到你了。】
@@ -135,29 +160,6 @@ Bacteria is a life on Mars, but a heartbeat isn't life on earth... Weird..
 `@entrepreneur 1/3/2022 9:05 PM (UTC)`
 
 #GETTR Setting up my account at  ja1QkknxW6IXmV6W <br/>  https://www.gettr.com/user/entrepreneur
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mngop 1/3/2022 3:41 PM (UTC)`
-
-In radio interviews this morning, @GovTimWalz made no mention of the violent crime rising in MN. He has no plan to protect Minnesota’s families and businesses. Just this weekend, the state’s largest city saw the most homicides in a generation:  https://www.usnews.com/news/best-states/minnesota/articles/2021-12-31/minneapolis-nears-record-homicide-count-for-2021 (1/3)
-
----
-
-`@miles 1/4/2022 12:23 AM (UTC)`
-
-1月3号：可悲可怜的．西安人和14亿同胞——悲愤交加……
-![img](https://media.gettr.com/group9/getter/2022/01/04/00/deb161a3-908e-de55-29a9-752147a0a645/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@joerogan 1/2/2022 6:52 PM (UTC)`
-
- https://gettr.com/user/joerogan&text=&lt;kdbgMxRcrbZ9lFlv&gt;<br/> #GETTR Set up my account at
 
 ---
 
