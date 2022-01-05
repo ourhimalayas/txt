@@ -2,104 +2,127 @@
 ---
 
 
-## 共同的信仰像火一样 让我们同心灭共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825643/)
+## 对推特谷歌等垄断机构 一系列法案正在进行中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
 
-[https://gtv.org/video/id=61d57fa1dffab035958b0477](https://gtv.org/video/id=61d57fa1dffab035958b0477)
+[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
 
-**郭文贵
-Miles Guo**
+据我所知
+Hasta donde yo sé
 
-咱们谈一个非常重要的，谈一个火的事，这个火呀，它是什么，是生命
-Let’s talk about a very important thing, the fire, what is fire, it’s life
+对待Facebook, 谷歌
+Hacia Facebook, Google
 
-水和火几乎是生命的源泉，这什么叫生命的源泉呢
-Water and fire are almost the source of life, and what is the source of life?
+还有这些垄断机构, 像Twitter
+Y estos órganos administrativos monopolista como Twitter
 
-没有火，我们人类就完了，没有水，我们生命也就完了
-Without fire, we humans are over, without water, our lives are also over
+一系列的法案正在进行中
+Una serie de Proyecto de Ley está en proceso
 
-阳光和水，空气和大地，我们的希望就是下一代
-Sun and water, air and earth, our hope is the next generation
+大家一定要记住
+Todos deben recordar
 
-在中国的历史上，真正的火就是人类生存下
-In the history of China, the real fire is the survival of mankind
+GTV 会再次投胎
+GTV reencarnará otra vez
 
-驱除邪恶的，最好驱鬼的，最好的利器就是火，
-the one that drives out evil, the best way to drive out ghosts, the best weapon is fire
+会以你意想不到的形式投胎
+Y lo hará de una forma inimaginable
 
-你到了大草原，万恶的动物，看到火它躲得远远的
-When you get to the prairie, all the evil animals if they see the fire that they will hide away
+Gnews 也会转身投胎
+Gnews también se dará la vuelta para reencarnar
 
-人类不能没有火，那么我们如何让心中的这种激情和灭共的决心和行动
-Human beings can’t live without fire, so how do we let the passion in our hearts and the determination and action to take down the CCP
+你也会想象不到
+También no lo podrás imaginar
 
-就像火一样，邦我们驱除邪恶，驱除魔鬼
-Just like fire that it can help us drive away evil, and drive away the devil
+没有任何人知道
+No hay alguien que lo sepa
 
-你首先真的要是没有一个巨大的脑袋，那个自我
-First of all, if you are really not be an arrogant, that myself
+你别看现在很多人以为自己知道 你们都不知道
+No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
 
-你真的要认识到谁是你的战友，谁是好坏
-you really have to recognize who is your comrade-in-arms, who is good or bad
+那么盖特
+Y Gettr
 
-我们在修行中成佛，或在修行中完善超越自己
-We become a Buddha in our practice, or complete ourselves in our practice
+还有一个现在你看我这希望暴跌的喜币
+Y lo otro ahora yo espero que el precio de H-coin desplome
+它现在一直不跌
+Pero ahora no se quiere bajar
 
-我们只有在日积月累的过程当中，才能传递我们的希望
-We can only pass on our hope in the process of accumulating practice day by day
+（想）给大家点机会进来
+(Quiero) darle a todos la oportunidad de entrar
 
-我们坚信这种灭共的这种信心，才真正是火的力量
-We firmly believe that this confidence in taking down the CCP, and this is the real power of fire
+大家要知道
+Todos deben saber
 
-才能邦我们驱除各种心中的魔，这种魔就是佛教讲的，贪、嗔、痴、慢、疑
-It finally helps us to get rid of all kinds of demons in our hearts, this kind of demons is what Buddhism says, greed, anger, foolishness, arrogance, suspicion
+你知道（这是）什么概念 兄弟姐妹们
+Sabes qué concepto es (este) hermanos y hermanas
 
-无限的自我，太大的自我，还有一个就是贪婪，再一个就是一副傲慢
-Infinite myself, too big myself, another one is greed, and the other one is arrogance
+这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
+Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
 
-再一个不识真假，不辨善恶，更重要的事情没有包容
-Another thing don’t know true or false, don’t know good or evil, and more important things are not tolerated
+而唯一的一个
+Y el único
 
-我们是人，我们不是神，我们来到这个世界上，十之八九不如意
-We are human beings, we are not gods, we come into this world, and we are unsatisfactory in all likelihood
+留下的机会和市场就是我们
+Que quedará de oportunidad y mercado seremos nosotros
 
-人存在世上，都是有缺漏才当人的，我们的灵魂到这块是来完善来了
-People are in the world, and we have shortcomings to be human, our souls are here to be completed
+喜币一定（会）超过比特币
+El H-coin sobrepasará (de seguro) al Bitcoin
 
-不是到这来成佛了，我不相信在这块能成佛，但你的修行决定了你的未来
-It’s not here to become a Buddha, I don’t believe that you can become a Buddha here, but your practice determines your future
+一定会
+Seguro que sí
 
-新中国联邦，今天看到了所有人存在在这里的时候，都有真实的故事
-The New Federal State of China, today we saw that when everyone exists here, all have real stories
+比特币一定会消失
+El Bitcoin seguramente desaparecerá
 
-我们没有一句安排，没有任何人告诉你怎么讲，这就是事实
-We don’t have an arrangement, no one tells you what to say, this is the fact
+就是这个时代这个机会
+Y esta oportunidad de esta época
 
-行动的结果，共同的一个灭共的信仰和信心，像火一样
-The result of the action, a common belief and faith that takes down the CCP is like fire
+不是我们想抓就抓得住的
+No es que lo agarramos porque queremos
 
-和激情和灭共的目标存在着，才让我们在今天同心同框
-passion and the goal of extinction exists which allows us to be in the same video frame with the same belief today
+当然我们主动性要够
+Claro que debemos tener suficiente iniciativa
 
-永远要珍惜这一切，没有你们我什么都不是
-Always cherish all this, I am nothing without you
+时机 时机
+El tiempo y la oportunidad (Shí Jī)
+
+时间不是我们决定的
+(Shí ) El tiempo no lo decidimos nosotros
+
+是老天决定的
+Eso lo decide Dios
+
+机是我们自己抓到的
+(Jī)) Pero la oportunidad lo atrapamos nosotros
+
+兄弟姐妹们
+Hermanos y hermanas
+
+特别好是今天在这块儿你们这么多高人
+Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
+
+明年年底再想想是什么概念
+Piensen cómo será la idea el fin del año que viene
+
+你会想象不到这个人类（会有）多大变化
+No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
 
 * * *
 
-Date: 01/03/2022
-原视频标题: 共同的信仰像火一样 让我们同心灭共
-Common belief is like fire, let us take down the CCP with the same belief together
-原视频日期：2022/01/01
-原视频链接 **[https://gettr.com/post/plf2km0c4f](https://gettr.com/post/plf2km0c4f)**
-任务编号：KC390(3395)
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+日期：01/04/2022
+原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
+Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
+任务编号：KC395（3305）
+视频时间段：0:00-01:35
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+发布 ：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

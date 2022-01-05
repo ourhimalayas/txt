@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 7:25 PM (UTC)`
+
+1月5号：这个范围好像是包含了裕达国贸．希望所有郑州的同胞和裕达的同仁们能保护好自己。【都跟着七哥的剧本在演，连个自由发挥都没有。郑州，又轮到你了。】
+![img](https://media.gettr.com/group47/getter/2022/01/05/19/56dd52b7-b6dd-fdae-0644-b4e8839b8a85/a10891d087f50b5a5a8116b07515d9a2.jpg)
+
+---
+
 `@miles 1/5/2022 1:16 PM (UTC)`
 
 2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果
@@ -151,13 +158,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 `@joerogan 1/2/2022 6:52 PM (UTC)`
 
  https://gettr.com/user/joerogan&text=&lt;kdbgMxRcrbZ9lFlv&gt;<br/> #GETTR Set up my account at
-
----
-
-`@miles 1/3/2022 4:16 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group35/getter/2022/01/03/16/4771091a-f830-f28f-7799-c94dbea509e2/0c26e746e1c990c362f252182ab1c0b0.jpg)
 
 ---
 
