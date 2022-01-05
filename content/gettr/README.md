@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@belannf 1/5/2022 9:20 PM (UTC)`
+
+💓💓MORE THAN HALF A MILLION NOW - This was published on January 4, 2021 - - - Huge: Half million follow Joe Rogan to GETTR💓💓<br/><br/>"GETTR, an upstart Twitter challenger aimed at free speech advocates and conservatives who have been squelched on liberal-leaning social media sites, is nearing four million users exactly six months after its Independence Day launch.<br/><br/> The site reported that Rogan’s announcement prompted more than 171,000 people to open GETTR accounts Sunday. On Monday, another 341,000 joined, and as of today, new sign-ups have totaled 545,000 since Rogan said, “Just in case s*** over at Twitter gets even dumber, I’m here now as well. Rejoice!”"<br/>https://tinyurl.com/3t87jdbc
+![img](https://media.gettr.com/group44/getter/2022/01/05/18/7262295d-6eb1-55e5-bf9d-b7582dbe16e9/0c1a723880ab2e24374dc47aac3df742.gif)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@adam22 12/28/2021 6:11 PM (UTC)`
 
 The new episode of @plugtalkshow is now live featuring the ridiculously hot @emilywillisxoxo 😳 this is actually the first episode we ever shot. We interviewed her and then we ate her ass together. It was beautiful. Link in my bio  
@@ -152,14 +161,6 @@ Bacteria is a life on Mars, but a heartbeat isn't life on earth... Weird..
 
 1月3号：不可思议的2022年1月1号72小时，我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，全球．全美国都是前5名……一切都已经开始！
 ![img](https://media.gettr.com/group48/getter/2022/01/04/00/3cdce462-d23b-2f28-650e-502b57fa7ada/bb2cf5e8fafa9d14dbe654cf1b5df2fb.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@entrepreneur 1/3/2022 9:05 PM (UTC)`
-
-#GETTR Setting up my account at  ja1QkknxW6IXmV6W <br/>  https://www.gettr.com/user/entrepreneur
 
 ---
 
