@@ -2,27 +2,201 @@
 ---
 
 
-## 又有一位华裔科学家承认从葛兰素史克公司窃取商业机密
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1823275/)
+## 日本一定会成为第二大数字货币市场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823348/)
 
-翻译：zzballack
-上传：追着曙光跑
+[https://gtv.org/video/id=61d44db6dffab035958aab37](https://gtv.org/video/id=61d44db6dffab035958aab37)
 
-据《大纪元》1月4日报道，美国司法部1月3日宣布，又有一名制药业巨头葛兰素史克公司（GSK）的前华裔研究人员承认窃取商业机密，为中国制药公司任诺药业（Renopharma）谋取利益，该公司得到了中共政权的资助。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-05-at-10.18.48-1.jpeg)图片来源：原新闻
-司法部的声明说，露西·习（Lucy Xi）与其他三位被告薛宇(Yu Xue)、李涛（Tao Li）和梅岩(Yan Mei)在中国南京成立了任诺药业公司，据称是为了研究和开发抗癌药物。实际上，该公司被用来存放从GSK窃取的商业机密，任诺药业得到了中共政府的财政支持和补贴。中国多个商业网站刊登的公司信息显示，任诺药业公司设在南京江宁区国家级的科技创新园，据称这是一家由几位留美博士回国创立的生物医药高科技公司，立足于生物大分子抗癌药物研发，并列出李涛为公司法定代表人。
+**郭文贵
+Miles Guo**
 
-2015年1月，露西·习向自己的丈夫梅岩发送了一份GSK的文件，其中包含该公司对单克隆抗体研究的相关商业秘密和机密信息。露西·习在这封电子邮件的正文中写道：“你要好好理解这些文件，这将有助于你未来的业务。”案发时，露西·习和薛宇在宾夕法尼亚州上梅里恩（Upper Merion）的GSK工厂担任科学家。该工厂致力于开发生物制药产品，这些产品的研究和开发成本通常超过10亿美元。
+我一再地说的
+He estado diciendo
 
-美国检察官詹妮弗‧威廉姆斯（Jennifer Williams）说：“对于像GSK这样的公司，知识产权是它的命脉，当该财产被盗窃并转移到外国，美国数以万计的工作岗位会受到威胁，并危及通过研究和开发带来的战略利益，因此这类犯罪行为必须在法律的最大范围内受到起诉。”
+日本的H-pay市场
+El mercado de H-pay de Japón
 
-薛宇和她的妹妹薛天（Tian Xue，音译）和李涛都对他们在这一共谋中的角色表示认罪。身居中国的梅岩目前在逃。
+还有日本的未来的数字货币
+Y en el futuro, las monedas digitales en Japón
 
-48岁的薛宇于2018年8月31日在联邦法院就共谋指控认罪。这名华裔美国公民是全球顶尖蛋白质生物化学家之一。她曾在GSK位于费城郊区的研究机构工作约10年，并成为一名高级经理。司法部的声明说，薛宇被指控将GSK大量的科学文件，其中一些为商业机密，发送给李涛和梅岩。2016年1月5日，联邦调查局抓捕了李涛，并在其电脑上发现了一些来自薛宇的GSK商业秘密和机密信息文件。
+整个的未来
+Todo el futuro
 
-联邦调查局费城分局的特别探员杰奎琳‧马奎尔（Jacqueline Maguire）表示：“像葛兰素史克这样的制药公司投入了惊人的时间和金钱来开发新药并将其推向市场，我们不会允许美国的研究和开发被用来为其它公司或国家谋取利益。”
+还有在日本的
+También la popularidad
 
-信息来源：[3rd Chinese Scientist Pleads Guilty to Stealing Trade Secrets From Drug Maker GlaxoSmithKline](https://www.theepochtimes.com/3rd-chinese-scientist-pleads-guilty-to-stealing-trade-secrets-from-drug-maker-glaxosmithkline_4190280.html)
+整个的喜币和喜美元的流行
+De toda la moneda y el dólar de Himalaya en Japón
+
+还有未来的整个的实施
+Y toda la implementación en el futuro
+
+可以说它是战略性的
+Se puede decir que es estratégica
+
+应该说是排在第二位置
+Debería decirse que ocupa el segundo lugar
+
+除了美国之外, 它就是最重要的
+A parte de EE. UU, él es el más importante
+
+而且日本这个国家
+Y este país, Japón
+
+一定会在数字货币市场上
+En el mercado de monedas digitales
+
+这次会抓住这个机会
+De seguro aprovechará esta oportunidad
+它不会再输掉了
+No lo dejará perder de nuevo
+
+过去的日本
+Japón en el pasado
+
+二战之后
+Luego de la segunda guerra mundial
+
+在金融市场上
+En el mercado financiero
+
+简直这个
+La verdad este
+
+日本这个国家
+Este país, Japón
+
+把所有的国家财富全输光了
+Ha perdido toda la riqueza del país
+
+日本的金融烂到什么程度
+Qué tan mal están las finanzas de Japón
+
+共产党的科技发明有多烂
+Qué tan malo son los inventos tecnológicos del Partido Comunista
+
+日本的金融就有多烂
+Así de malo es la finanza de Japón
+
+就这么简单
+Así de sencillo
+
+所以说日本的整个的交易
+Por eso todas las transacciones de Japón
+
+一定会有
+Hay seguramente
+不管中间有多大的曲折
+No importa cuantas dificultades tiene en medio de esto
+
+日本最后一定会成为
+Al final, Japón de seguro se convertirá en
+
+喜币流行的重要市场
+El mercado importante de la popularidad de la moneda de Himalaya
+
+不管有多少挫折
+No importa cuantos obstáculos
+
+然后在日本
+Y en Japón
+
+这个喜支付是绝对的重要
+Este H-pay es de suma importancia
+
+千万不要错过这个时机
+No se puede perder esta oportunidad
+
+日本这几个农场
+Estas fincas en Japón
+
+因为今天没有说太(细)
+Porque hoy no se dijo con muchos (detalles)
+
+如果你们错过这个机会
+Si ustedes pierden esta oportunidad
+
+那草根小哥明年这个
+Entonces el año que viene, el hermano Caogen
+
+再大直播
+Si hará nuevamente la transmisión en vivo
+
+你绝对看不到草根小哥了
+No lo verás
+你不会再看到Cosmos
+No verás a Cosmos
+
+你不会再看到马拉多纳
+A Maradona
+
+你不会再看到勇气, 魔女
+A Yongqi, Monu
+
+不会看到的
+No los verás
+
+温暖姐姐, 你别在那块很自信
+Hermana Wennuan, no seas presumida en esa parte
+
+你别老是
+No seas siempre
+
+今天你和文嘉
+Hoy tu y Wenjia
+
+你俩一唱一和地
+Ustedes dos cantan juntos
+
+我们有蓄积着力量
+Nosotros estamos acumulando fuerzas
+
+明年如果在这个事上没搞明白
+Si el año que viene no se aclara este asunto
+
+明年你就成笑话了
+Entonces te convertirás en un chiste el año que viene
+
+你自己都不好意思看电视了
+Tu misma te avergonzarás de ver la televisión
+
+所以说抓住这机会
+Por lo tanto, aprovechen esta oportunidad
+一定会最重要的
+Seguramente es lo más importante
+
+对喜币发(展)的市场
+Para el desarrollo del mercado de moneda de Himalaya
+
+就是第二市场
+Es el segundo mercado
+
+日本
+Japón
+
+谢谢
+Gracias
+
+* * *
+
+日期：01/03/2022
+原视频标题：日本一定会成为第二大数字货币市场
+Japón definitivamente se convertirá en el segundo mercado más grande
+de monedas digitales
+原视频日期：01/02/2022
+原视频网址：[https://gettr.com/post/ple42ae1c8](https://gettr.com/post/ple42ae1c8)
+任务编号：KC391（3391）
+视频时间段：00:00-01:38
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
