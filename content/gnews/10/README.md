@@ -2,47 +2,32 @@
 ---
 
 
-## 以色列出现首例新型混合病毒FluRona
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1825400/)
+## 瑞典国王伉俪接种三剂疫苗后双双确诊染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825403/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-8.png)
-以色列贝林森医院（Beilinson Hospital）出现了新的突变病毒，是中共病毒+流感的混合病毒，被称为Flurona。
+作者：台湾宝岛农场 鬥陣來拼
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.44.png)
+报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
 
-据当地媒体报道，本周早些时候，以色列城市佩塔赫蒂克瓦的拉宾医疗中心首次在一名年轻孕妇身上发现了这种混合感染。
+另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
 
-据医院称，这位年轻孕妇没有接种过中共病毒疫苗，也没接种过流感疫苗，她只出现了轻微的症状，生产也顺利结束，并准备周四出院。
+参考链接：[瑞典國王與王后雙雙確診染疫 暫時自我隔離](https://www.cna.com.tw/news/aopl/202201040397.aspx)
 
-拉宾医疗中心贝林森医院妇科主任阿农-维兹尼泽（Arnon Vizhnitser）博士在接受当地媒体Hamodia采访时谈到，这位孕妇一到医院就出现症状，并被诊断出患有流感和中共病毒。三次测试结果都是阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-这两种病毒都攻击患者上呼吸道导致呼吸困难。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-阿农-维兹尼泽博士还指出，这位孕妇是世界上首例Flurona混合病毒病例。
-
-以色列专家推测，国内可能会有更多的’Flurona’混合病毒感染者，尤其是在流感 “神秘地 “休息了一年之后，又猛然出现。
-
-另据《国土报》报道，截至上周五，以色列卫生部最新统计数据显示，已有5,000例奥米克戎（omicron）病例，其中大多数跟普通感冒类似–没有一例奥米克戎病例是致命的。
-
-尽管如此，以色列军队冠状病毒工作组的负责人上周四警告说，随着奥米克戎的传播，医疗系统将 “崩溃”。
-
-虽然以色列是世界上中共病毒疫苗接种率最高的国家之一，并且，政府官员们也承认没有任何证据表明接种中共病毒疫苗对奥米克戎新变体有效，但以色列还是为第四剂实验性中共病毒疫苗接种开了绿灯。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
-
-
-[新闻来源链接](https://www.thegatewaypundit.com/2022/01/first-case-flurona-detected-almost-fully-vaxxed-israel-virus-supposedly-hybrid-flu-coronavirus-go/)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
