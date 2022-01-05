@@ -2,95 +2,28 @@
 ---
 
 
-## 七哥介绍新中国联邦宣言(下)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
+## 联邦法官支持未接种疫苗的海豹突击队员 阻止五角大楼的惩罚
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824153/)
 
-[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-9.png)
+图片来源：网络截图
 
-**郭文贵
-Miles Guo**
+零对冲1月4日撰文，据《华盛顿邮报》当天报道，由35名海豹突击队员组成的团体就全军范围内的中共病毒疫苗规定起诉拜登政府、五角大楼和美国海军，并赢得了一项关键决定，此前德克萨斯州的一名美国地区法院法官阻止了五角大楼对该案中拒绝接种疫苗的特定海军人员进行惩罚。
 
-我们说什么的时候都不要忘了
-Whatever we say, please don’t forget
+五角大楼发言人约翰·柯比周一晚间说，国防部正在审查这一决定，以确定它将如何影响其开除所有不遵守规定的军人的持续政策。美国地区法官里德·奥康纳（Reed O’Connor）裁定，这种大流行病“没有为政府提供废除”任何美国人的个人自由的许可。
 
-因这个我们走在了一起
-Because of this (the New Federal State of China Declaration) we have gotten together
+他主张并捍卫军人的宗教豁免权，根据广泛的报道，在海军陆战队等部门最近遭到了全面拒绝。奥康纳法官在其26页的禁止令中写道，“宗教自由的损失超过了即将对海军造成的任何伤害”，“即使是最糟糕的情况也不能成为丧失宪法权利的理由。”
 
-这是我们一切的原因
-This is the reason for everything
+这些部队，包括海军海豹突击队和海军特种作战司令部的其他成员，对拜登总统、国防部长劳埃德·奥斯汀、海军部长卡洛斯·德尔托罗和国防部提起诉讼，挑战海军在11月的疫苗接种要求。这些部队引用了基督教信仰，认为他们不应该服用由流产胎儿细胞系开发的疫苗，并认为对他们身体的改造是对“造物主的侮辱”。
 
-不是因为七哥
-It’s not because of (Brother 7) Miles Guo
+代表海豹突击队的第一自由研究所的总顾问迈克·贝里在法官下令停止军队指挥官对疫苗强制令的惩罚后说：“强迫一名军人在他们的信仰和为国家服务之间做出选择，是对宪法和美国价值观的憎恶，” 贝里说。“仅仅因为海豹突击队要求提供宗教通融而惩罚他们，这纯粹是报复性和惩罚性的。我们很高兴法院采取行动，在我们的国家安全受到更多损害之前保护我们勇敢的战士。”
 
-不是因为任何人，也不是摇滚巨星
-It’s not because of anyone, nor a rock star
+回顾上个月，军方承认它几乎全面拒绝了宗教例外请求。海军陆战队发言人瑞安·布鲁斯上尉告诉福克斯新闻，在过去7年中，没有任何关于疫苗的宗教通融得到批准。
 
-刚才长岛哥念我的Title的时候
-Just now earlier when Brother Long Island stated my title
+很可能该法院命令会开启针对拜登政府和国防部的类似成功诉讼的雪崩。目前，全国各地都有类似的诉讼，以阻止军队惩罚未接种疫苗人员的能力，正在通过民事法庭进行审理。
 
-已经快和当年的斯大林、列宁同志相比肩了
-It was almost on par with the comrades Stalin and Lenin back then
-
-伟大的国际共产主义创始人
-the great founder of international communism,
-
-伟大的苏联共产党创始人
-the great founder of the Communist Party of the Soviet Union,
-
-伟大的苏联苏维埃主席
-the great Soviet chairman of the Soviet Union,
-
-伟大的苏维埃共产党主席、总书记
-the great chairman of the Soviet Communist Party, General Secretary
-
-念好半天，大家都快睡着了
-He has spent half a day to state, and everyone is almost falling to sleep
-
-实际上很简单
-It’s actually very simple
-
-就这一个
-Just this one (the New Federal State of China Declaration)
-
-我们今天就这一个
-Just this one today
-
-绝对是因为这个走在一起
-It’s definitely because of this one we have gotten together
-
-无论是铁血组，还是联盟委员会，还是战友们
-Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
-
-当谁忘掉这个的时候
-Whoever forgets this,
-
-你真的没有记住的时候
-and really don’t keep this in mind,
-
-你一定是被淘汰那个人
-You will definitely be that individual that gets eliminated
-
-* * *
-
-Date: 01/02/2022
-原视频标题: 七哥介绍新中国联邦宣言(下)
-(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
-原视频日期：2022/01/01
-原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
-任务编号：KC394(3394)
-视频时间段 : 0:00-00:52
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-00：11 Title 改为 头衔
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[Federal Judge Backs Un-Vaxx’d Navy SEALs, Blocks Pentagon Punishment](https://www.zerohedge.com/covid-19/judge-backs-seals-vax-mandate-loss-religious-liberties-outweighs-any-forthcoming-harm-navy)
 
  
 

@@ -2,26 +2,28 @@
 ---
 
 
-## 篮网队同意未接种疫苗的欧文重返赛场
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824358/)
+## 在生命之战中主流媒体已输了……这多亏了乔·罗根
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824432/)
 
-翻译：**Lulumi**
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-240.png)ttutu’ptu’p’ltu’p’l’y图片来源: breitbart.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-244.png)图片来源: creativedestructionmedia.com
 
-布鲁克林篮网队在去年10月份宣布，欧文将在可预见的未来缺阵，因为他一直坚定地拒绝接种冠状病毒疫苗。球队当时指出，欧文既不会被允许参加比赛，甚至也不会和他的队友们一起训练。
+在过去的 48 小时内，有几件事同时发生。
 
-同月，欧文解释说，他拒绝接种疫苗并不是什么政治声明，而只是“忠于”自己。他补充说，“这是关于我的生活和我选择做的事情”。
+首先，我想出了为我的博客“边缘金融”撰写 2022 年 100 项预测的想法——我可能仍会在某个时候完成这篇博文。 其次，我听了乔·罗根播客采访了 mRNA 发明者罗伯特·马龙医学博士，医生因对 Covid 发表的观点与主流叙事不一致，几个小时后被禁止使用 Twitter。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-242.png)2021年10月3日洛杉矶斯台普斯中心，布鲁克林篮网队的凯里·欧文在与洛杉矶湖人队的季前赛中。
+马龙在罗根节目所回应的意见包括如下，但不限于这些：
 
-尽管球队在10月份有严格的立场，但到了12月球队自打嘴巴，告诉欧文他可以回来参加客场比赛。然而，即使在他准备上场的时候，蓝网队之前已经把他列入了COVID协议名单。
+- 指责政府的 Covid 回应是“失控”和“无法无天”
+- 强制“实验性”疫苗是“明确非法的”
+- 注意到印度在早期使用伊维菌素等药物治疗 Covid 方面取得了成功
+- 政府行为造成了“五十万”的超量死亡
+- 争论那些说具有天然免疫力的人有更高的疫苗不良事件风险的谎言
+- 声称人们生活正在形成群体精神病之中
 
-最后，在经历了这一切之后，网队宣布，欧文在错过了本赛季前35场比赛之后，终于将在周三进行他的赛季首秀。
 
-尽管在客场比赛中亮相，不过，欧文仍然不会被允许在自己的主场比赛中出场，因为纽约市要求所有的艺人和运动员都必须接种疫苗才能进入任何体育场、竞技场、剧院或音乐厅。因此，欧文也仍然被禁止参加麦迪逊广场花园对纽约尼克斯队的比赛，以及在洛杉矶对湖人队的比赛。他还将被禁止参加勇士队和快船队的主场比赛。
-
-新闻来源 : [breitbart.com] [Brooklyn Nets Agree to Bring Unvaxed Kyrie Irving Back to Play](https://www.breitbart.com/sports/2022/01/03/brooklyn-nets-agree-to-bring-unvaxed-kyrie-irving-back-to-play/)
+新闻来源 : [creativedestructionmedia.com] [The Mainstream Media Is Losing The Fight Of Its Life…All Thanks To Joe Rogan](https://creativedestructionmedia.com/analysis/2022/01/03/the-mainstream-media-is-losing-the-fight-of-its-life-all-thanks-to-joe-rogan/)
 
 * * *
 
