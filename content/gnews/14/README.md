@@ -2,67 +2,76 @@
 ---
 
 
-## 乔·罗根采访罗伯特·马龙博士的12大要点
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824994/)
+## 2022/01/05 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1825000/)
 
-翻译：Jenny Ball
+**主播**：大卫｜**嘉宾**：Nick、大西瓜
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-1.jpg)图片来源：newstarget.com
 
-2021 年最具洞察力的对话之一是乔·罗根( Joe Rogan )对罗伯特·马龙（Robert Malone）博士的采访。马龙博士发明了 mRNA 技术，该技术正用于实验性新冠病毒疫苗。马龙博士开发了医疗产品、药物和临床试验，直接与福奇（Anthony Fauci）博士和CDC的科学家合作。然而，**在这个历史的关键时刻，马龙博士拒绝遵循他们废除医学伦理、破坏医疗隐私和知情同意原则的议程**。
 
-由于不遵守规定，马龙博士被禁止使用 Twitter。他也被取消了Twitter账户，然后在 LinkedIn 重新寻职，因为他陈述了一个简单的事实，即：**路透社的负责人是辉瑞的董事会成员**。（**路透社被用作 ****Twitter ****和其他社交媒体网站的终极、无所不知的事实检查员**）罗伯特·马龙发誓要继续“说实话”——即使制药公司试图审查他的言论。
+[**GTV视频链接**](https://gtv.org/video/id=61d439fc31a71619b5749066)
 
-**以下是采访的一些主要内容：**
+**板块1–国内政治**
 
-1. 生物武器刺突蛋白开发背后的功能获得性研究，最终为开发类似但不同的刺突蛋白铺平了道路，**该蛋白目前在新冠病毒疫苗中用作**** mRNA ****指令**。马龙说，**制药公司有道德义务证明他们疫苗中的刺突蛋白的毒性。**
+1. 中共国为全球疫苗公平分配做出重要贡献，全年对外输出20亿剂疫苗。
 
-2. 许多人并没有受到疫苗的严重伤害，有些人根本没有表现出任何副作用。罗根问为什么。马龙解释说，**反应曲线是由于个体免疫系统的差异**决定，包括表型/遗传差异。
+中共在海外侨界侨民大肆宣传发送“福利和温暖”，可能涉及收集海外中国人的数据。配合全球发送疫苗根本目的：宣传配合洗脑海外中国人、向外推行中共国的“大国管理模式”。
 
-3. 马龙谈到了“**反疫苗**”（anti-vaxxer）这个词，它被用来错误地羞辱那些不听从公共卫生官员命令的人。它同样被用来在社会上排斥任何对制药公司宣传持异议的人。 马龙讨论了 BBC 的“可信新倡议”，该倡议指控个人在公开反对谭德塞、福奇或其他疫苗宣传者时，就是散布“错误信息”。
+新加坡在疫情爆发后迅速反应发放防疫装备。海外中国人严格遵守法律红线、真实报税缴税，中共只注重“情感关注”，物质支持基本不靠谱。
 
-4. 马龙博士强调了对儿童心灵造成的创伤，以及随之而来的非人化、去社会化和虐待儿童，被迫戴口罩和隔离。
+2. 中共国RCEP正式生效！聚焦全球最大自贸区四大看点。
 
-5. 当罗根问到为什么羟氯喹和伊维菌素被媒体抹黑并被监管机构阻挠时，马龙说，这个决定的关键两个人， 其中之一是疫苗发起人里克·布莱特 (Rick Bright)，他负责管理洛克菲勒基金会的流行病预防研究所。布莱特利用他作为生物医学高级研究与发展局局长的职位，诋毁氯喹和羟氯喹，这两种药物在对抗 SARS-CoV-1 的历史上表现出安全性和有效性。
+中共国曾经签署WTO至今大部分未履行（教育、医疗、银行、能源等行业），再推RCEP重新“炒作新概念和大概年”继续“欺骗”世界，与各国实际订单并未增长，向国内人洗脑经济形势向好。侧面反应中共国经济面临困境。
 
-6. 另一个阻止 Covid-19 治疗的人物是珍妮·伍德科克（Janet Woodcock）。她在 2021 年 1 月 20 日掌舵FDA后，利用该机构模拟伊维菌素，并通过其兽医应用来扭曲其在人类中的正确使用。参议员罗恩·约翰逊（Ron Johnson）写信给伍德科克、福奇和其他公共卫生官员，详细说明了他们的担忧，即为了推出危险的疫苗而拒绝有效治疗，而这些疫苗没有得到适当的知情同意。马龙博士没有推测伍德科克和布莱特的意图，但表示他们的说法是错误的。
+中共可能收紧赌博彩票行业（澳门）“收割”有钱人。
 
-7. **羟氯喹和伊维菌素**均在世卫组织提供的基本药物目录中， 数十亿剂已安全给药。 这些药物可缓解症状，并缩短病程，预防严重疾病和死亡。马龙还表示，默克对这两种药物的反复攻击，至少可以说是奇怪的——尤其是印度北方邦证明使用伊维菌素与较低的死亡率相关。
+3. 习进平新年致辞–不负历史、不负时代、不负人民。
 
-8. 乔·罗根向马龙询问了在医院环境中诊断 Covid-19 的经济激励。马龙说，对于每次 Covid-19 诊断，医院可报销约 3,000 美元。治疗方案被拒绝是因为医院被进一步鼓励使用**瑞德西韦和呼吸机**，这些与肾功能衰竭、肺损伤和致命的医院感染有关。个人最初住院的原因并不重要，他们是否患有潜在疾病、调解错误、手术延迟等。如果医院“怀疑”Covid-19 ，或可以在高循环阈值 PCR 测试中获得阳性读数 ，**医院可以欺诈性地宣布**** Covid-19 ****诊断，并因其医疗欺诈和医疗事故而获得补偿。**
+新年贺词形式本质“抄袭”西方。典型中共国政治宣传（全面建设小康社会、彻底解决贫困、运动健儿不断突破、探测器登陆火星）。体制内公检法基层人员压力大，站队哪边都不靠谱，脏活、烂活全接。
 
-9. 当被问及疫苗的效力减弱时，马龙同意，疫苗会导致负面效力，就像丹麦的研究一样，**随着剂量的增加**，**个体变得更容易感染**。在以色列，公民被迫接种第四剂疫苗，但数据显示：**接种疫苗的人病情加重**。他们的 B 和 T 记忆细胞正在接受训练，以攻击早已发生突变的**刺突蛋白**，**从而为抗体依赖性增强、自身免疫问题和癌症做好准备**。
+4. 韩国最大化妆品集团(Amorepacific Corporation旗下Innisfree）在中共国关店80%.
 
-10. 罗根和马龙讨论了自然免疫，以及研究证明先天免疫优于半生不熟的疫苗增强免疫反应。
+Innisfree属于中端消费品，受众倾向年轻人，反应中共国内需求减少、消费能力降低。品牌退出中共国市场及时“止损”。
 
-11. 马龙指出，接种疫苗后，**年轻男孩心肌炎**的趋势令人不安。他谈到了脂质纳米颗粒对**女性卵巢的影响导致的不孕**风险。他警告说，刺突蛋白及其**导致血栓的倾向**。他们讨论了对在辉瑞试验中，受重伤的年轻女孩麦迪（Maddie de Garay）的遭遇。马龙说，经济激励和预期结果，被用来隐藏疫苗伤害的数据，同时用宣传让疫苗看起来是不错。
+5. 全国建设街面警务站1.6万个，日均投入50万个警力巡逻防控。
 
-12. 马龙警告说：“我们的政府在这方面已经失控了，他们是无法无天的，他们完全无视生物伦理”,“强制实验性疫苗的这些规定显然是非法的，它们明显不符合《纽伦堡法典》。”
+对外宣传国富民安的中共国投入大量警力维稳，宣传和实际相互矛盾。
 
-**采访视频:** [www.brighteon.com](https://www.brighteon.com/ef9413d0-d61c-4132-928c-a453e73b93c2)
+6. 中共国开始鼓励夫妻生育。
 
-文章信息来源：
+中共国压抑人性、工作压力大、配套福利不匹配导致年轻人生育欲望低下，社会不敢讨论–为什么年轻人不想生育问题。凸显计划生育政策的失败。
 
-[Brighteon.com](https://www.brighteon.com/ef9413d0-d61c-4132-928c-a453e73b93c2)
-[RWMaloneMD.substack.com](https://rwmalonemd.substack.com/p/i-dont-always-lose-half-a-million)
-[Threadreaderapp.com](https://threadreaderapp.com/thread/1477032151493267460.html)
-[Nature.com](https://www.nature.com/articles/s41421-020-0156-0?fbclid=IwAR3kk5Xmcn9smdmOT2UN4aNNY3jq9N1rXT_5g4ACHywblAgJWN5ZzF0N4n4)
-[NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC1232869/)
-[RonJohnson.Senate.gov](https://www.ronjohnson.senate.gov/services/files/3F84D215-46DE-4FD4-A317-A110D1EF1468)
-[Lifesitenews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo)
-[ImmuneSystem.news](https://immunesystem.news/2021-12-14-study-natural-immunity-better-than-vaccine.html)
-[NewsTarget.com](https://newstarget.com/2021-12-29-experimental-mrna-vaccines-cause-heart-damage-destroy-young-boys-health.html)
+**板块2–网络科技**
 
-素材来源：[newstarget][Top 12 takeaways from the Joe Rogan and Dr. Robert Malone interview](https://www.newstarget.com/2022-01-04-top-12-takeaways-from-joe-rogan-dr-robert-malone-interview.html)
+1. 司法观察负责人汤姆-费顿强调：抖音永久封杀他。
 
-* * *
+抖音利用虚假宣传“诱导”年轻人。封杀为正义发声人士，海外抖音对外“宣称”与中共无关。
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+Gettr近期吸引大量用户加入，后期计划上线私密直播、吸引模特名人加入。现阶段不用广告谋利任然飞速发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+**板块3–财经**
 
+1. 恒大在香港停牌，试图筹集资金。
+
+恒大曾经许诺分红多，吸引多大资金进入，实行“击鼓传花”模式。恒大财务问题严重，香港停盘目的：继续拖，不让其提前爆雷。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/sZopokHzfJqGS/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/sZopokHzfJqGS/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/sZopokHzfJqGS/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/sZopokHzfJqGS/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
