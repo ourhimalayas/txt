@@ -2,21 +2,14 @@
 ---
 
 
-## 七哥说—第41期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1825890/)
+## 维加诺主教2021年圣诞节讲话：大重启（03）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1825901/)
 
-制作：Inzaghi
+制作：peacelv
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郭文贵-七哥说.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥说-郭文贵.png)
-
-*发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
-
 
  
 

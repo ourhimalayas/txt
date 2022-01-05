@@ -2,131 +2,84 @@
 ---
 
 
-## 对推特谷歌等垄断机构 一系列法案正在进行中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
+## 为何肯尼迪新书未登《纽时》畅销书榜首
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1825710/)
 
-[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
+翻译： Jenny Ball
 
-据我所知
-Hasta donde yo sé
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-2-1.jpg)图片来源：childrenshealthdefense.org
 
-对待Facebook, 谷歌
-Hacia Facebook, Google
+据报道，《纽约时报》将一本书基于他们所谓的专有算法，在其畅销书排行榜上排名。 无论采用何种方法，他们都偏爱特定的书籍，而忽略其他书籍，**而且排名通常与实际销售给消费者的书籍数量无关**。
 
-还有这些垄断机构, 像Twitter
-Y estos órganos administrativos monopolista como Twitter
+您可能认为《纽约时报》畅销书排行榜反映了图书销量，但事实并非如此，**它是审查、腐败和错误信息的引擎**。
 
-一系列的法案正在进行中
-Una serie de Proyecto de Ley está en proceso
+我们怎么知道呢？ 跟随数字。
 
-大家一定要记住
-Todos deben recordar
+在美国，一本书的销量能否超过其他所有书籍，却不是《纽约时报》畅销书第一名？ 当然， 这可能是一种审查制度吗？ 说对了。
 
-GTV 会再次投胎
-GTV reencarnará otra vez
+小罗伯特·肯尼迪的[最新著作](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)《**真正的安东尼·福奇：比尔·盖茨，大型制药公司，以及他们向全球民主和公共卫生发起的战争**》由天马出版社（Skyhorse Publishing, Inc. ）2021 年 11 月 16 日出版。
 
-会以你意想不到的形式投胎
-Y lo hará de una forma inimaginable
+正如美国所有出版商都知道的，如果不通过巴恩斯与诺布尔（Barnes & Noble），或“独立出版社”销售大量书籍，您就无法登上《纽约时报》的榜单。
 
-Gnews 也会转身投胎
-Gnews también se dará la vuelta para reencarnar
+但是，如果巴恩斯与诺布尔决定根据一本书的主题而购买很少的副本怎么办？ 如果一些独立人士表现出类似的偏见，抵制这本书，拒绝携带它，并告诉客户，他们甚至不会特别订购这本书怎么办？
 
-你也会想象不到
-También no lo podrás imaginar
+这就是肯尼迪的书《真正的安东尼福奇》所发生的情况：巴恩斯与诺布尔购买的数量异常少，而且，他们在大多数商店都隐藏了这本书。
 
-没有任何人知道
-No hay alguien que lo sepa
+独立书商，例如总部位于旧金山的“城市之光”不会在他们的网站上列出这本书，告诉客户他们“不能带这本书”并拒绝订购，即使是在要求时也是拒绝。这些决定与客户对本书的需求或兴趣毫无关系。
 
-你别看现在很多人以为自己知道 你们都不知道
-No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
+也许是由于《纽约时报》报告销售额的书店趋于政治化的趋势，亚马逊现在在美国的图书销售额中所占的比例越来越大。
 
-那么盖特
-Y Gettr
+一方面，《纽约时报》的清单不准确，因为它采用了一种过时且越来越无关紧要的图书销售方式。另一方面，《纽约时报》的畅销书排行榜，似乎故意歪曲了实际的消费者销售和需求。
 
-还有一个现在你看我这希望暴跌的喜币
-Y lo otro ahora yo espero que el precio de H-coin desplome
-它现在一直不跌
-Pero ahora no se quiere bajar
+让我们用《真正的安东尼福奇》为例研究，来看看它的实际效果。这本书大胆挑战主流叙事， 这是一项严肃的工作，提出了合理的、经过精心研究的论点。
 
-（想）给大家点机会进来
-(Quiero) darle a todos la oportunidad de entrar
+这本书有 2,000 多处引文和参考文献，要求读者参与对话和辩论，每章末尾都有一个二维码，链接到一个包含更新、评论和新信息的网站。
 
-大家要知道
-Todos deben saber
+《真正的安东尼·福奇》经过医生、科学家和律师的仔细审查，它得到了顶尖科学家的大力支持，其中至少包括一位诺贝尔奖获得者。
 
-你知道（这是）什么概念 兄弟姐妹们
-Sabes qué concepto es (este) hermanos y hermanas
+这种类型的书，不可能是任何有理智的人在寻求保护公众免受“错误信息”侵害时所想到的。
 
-这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
-Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
+肯尼迪的杰作，在美国公众中引起了如此强烈的共鸣，以至于尽管存在地狱般的审查制度，《真正的安东尼·福奇》仍然是美国最畅销的书籍之一。
 
-而唯一的一个
-Y el único
+尽管媒体完全封锁，但它还是达到了销量第一。没有一家主要报纸上有任何一条评论，在线平台拒绝了广告——有些人在真正想阅读它之前，称其为“错误信息”——书店正在抵制它。
 
-留下的机会和市场就是我们
-Que quedará de oportunidad y mercado seremos nosotros
+过去，人们仔细阅读《纽约时报》畅销书排行榜，因为他们相信它代表了全国各地人们正在阅读的内容的真实记录。
 
-喜币一定（会）超过比特币
-El H-coin sobrepasará (de seguro) al Bitcoin
+今天，唉，《纽约时报》畅销书排行榜代**表了一种政治观点**，并已成为鼓励读者购买和阅读报纸认可的书籍的一种方式——并避免他们不认可的书籍。
 
-一定会
-Seguro que sí
+主要报纸和媒体的剧本是一致的：攻击作者，无视这本书。
 
-比特币一定会消失
-El Bitcoin seguramente desaparecerá
+然而，《纽约时报》在第一周将其列为第 7 名，在第二周将其列为第 8 名。那一定意味着这本书的销量比榜单上排名靠前的书卖的要少，对吧？ 错！
 
-就是这个时代这个机会
-Y esta oportunidad de esta época
+很少有人看到实际售出的书籍数量，所以让我们打破传统并分享这一切：肯尼迪的书被《纽约时报》评为第 7 的书，售出了 92,000 多本精装本。
 
-不是我们想抓就抓得住的
-No es que lo agarramos porque queremos
+这是《真正的安东尼·福奇》之前的两本书的四倍半，是**排在它前面的所有书的平均值的两倍多**。
 
-当然我们主动性要够
-Claro que debemos tener suficiente iniciativa
+事实上，榜单上没有任何一本书的销量比《真正的安东尼·福奇》多。纽约时报畅销书排行榜，2021年11月21日（12月5日报道）
 
-时机 时机
-El tiempo y la oportunidad (Shí Jī)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4-1.png)
 
-时间不是我们决定的
-(Shí ) El tiempo no lo decidimos nosotros
+一周后，《纽约时报》再次将《1619计划》排在第 1 位，就好像它卖出了最多的书一样，尽管它的销量比肯尼迪的书少 20% 多。
 
-是老天决定的
-Eso lo decide Dios
+他们将《真正的安东尼·福奇》移到了第 8 位——尽管它的销量超过了榜单上的所有其他书籍。它的销量几乎是《纽约时报》列为第 3 本书的三倍。纽约时报畅销书排行榜2021年11月28日（12月12日报道）
 
-机是我们自己抓到的
-(Jī)) Pero la oportunidad lo atrapamos nosotros
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-5-1.png)
 
-兄弟姐妹们
-Hermanos y hermanas
+《纽约时报》显然不希望读者知道肯尼迪的书卖得如何，同样不希望读者有需求。
 
-特别好是今天在这块儿你们这么多高人
-Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
+但美国人比《纽约时报》认为的要聪明——在不到四个星期的时间里**，《真正的安东尼·福奇》以各种形式售出超过**** 400,000 ****份。**
 
-明年年底再想想是什么概念
-Piensen cómo será la idea el fin del año que viene
+美国人显然不喜欢被告知该如何思考或该阅读什么——或者不该阅读什么。购买《真正的安东尼·福奇》有点像民意调查，已成为一种反对美国日益阴险的审查制度的投票。
 
-你会想象不到这个人类（会有）多大变化
-No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
+**素材来源：**[childrenshealthdefense.org][Why RFK, Jr.’s Latest Book Didn’t Hit No. 1 on New York Times Best Sellers List](https://childrenshealthdefense.org/defender/rfk-jr-book-new-york-times-best-sellers-list/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6d5ad0a7-148a-4a9f-9ed7-5a8e3819d621)
 
 * * *
 
-日期：01/04/2022
-原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
-Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
-任务编号：KC395（3305）
-视频时间段：0:00-01:35
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 
