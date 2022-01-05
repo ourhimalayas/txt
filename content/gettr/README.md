@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 11:33 PM (UTC)`
+
+1月5号：战友做的这个视频实在是太棒了，文贵在此向您鞠九躬……衷心的感谢……如果有英文字幕……那就更好了……
+![img](https://media.gettr.com/group28/getter/2022/01/05/23/c3477f24-5673-ac54-a3af-f86f5dd2fd19/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@belannf 1/5/2022 9:20 PM (UTC)`
@@ -154,13 +161,6 @@ Bacteria is a life on Mars, but a heartbeat isn't life on earth... Weird..
 
 1月3号：【七哥好，上边的截图是昨天小Sarah接到一个工程师的电话，说他刚从国内逃出来，现在在多伦多，一家三口人生活上钱不够用，想把之前要存去HDO的4万美金拿回来做生活费，请小Sarah帮忙沟通一下找木兰；<br/>在通话过程中了解到他生活上基本生活的家具都没有呢，很多商店都缺货买不到；<br/>然后，我让小Sarah马上联系卢比肯的太太（她是给卖房经济做家居摆设的，疫情之下就不做了，有很多家居正在出卖）约了一下今天去她的库房看看；<br/>这位战友还没有车子，今天卢比肯和他太太亲自驾车去接战友到库房，<br/>来回跑了两趟送家具，一分没要；<br/><br/>在七哥的带领下，真的都是爱战友！把战友都当家人！感动！🙏🙏🙏一群有爱的人在一起，这就是灭共的力量和灭共的信心！💪💪💪】
 ![img](https://media.gettr.com/group10/getter/2022/01/04/01/4e4a7d6a-0bdf-3734-b440-2eb4e102983a/5c241417a921cad3e18fad26903c2e8c.jpg)
-
----
-
-`@miles 1/4/2022 12:38 AM (UTC)`
-
-1月3号：不可思议的2022年1月1号72小时，我们创造的奇迹和在社交媒体上产生的革命效应是巨大的，全球．全美国都是前5名……一切都已经开始！
-![img](https://media.gettr.com/group48/getter/2022/01/04/00/3cdce462-d23b-2f28-650e-502b57fa7ada/bb2cf5e8fafa9d14dbe654cf1b5df2fb.jpg)
 
 ---
 
