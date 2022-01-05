@@ -2,31 +2,40 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月4日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1823509/)
+## 妈妈，我不想打实验性的疫苗!
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1823531/)
 
-作者：香草山翻译部
+**撰稿：挺郭吃榴莲**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-104955.jpg)
+亲爱的妈妈，我去上幼儿园了，在幼儿园里有好朋友和喜欢的老师。
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+2020年初，病毒来了，我们都被困在了家里。
 
+2021年，多数大人打疫苗了，小孩也要打疫苗了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0104text-SC.png)
-校对：Stay文苑
+2022年，我还是被困在了家里。
 
-编辑：Stay文苑
+妈妈，我出生时，打了好多保护我身体的疫苗，我能顺利健康长大。
 
-发稿：Stay文苑
+这次的冠状病毒疫苗，政府、学校、医生和老师都说，是为我们好，是让我们能抵抗病毒的攻击，打了疫苗我们都能出去玩了，打了疫苗，我们就能上学了，打了疫苗，我们就能逛商场去游乐园去动物园了。
 
-视频参看：[1.4  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d4f43c31a71619b574d6f3)
+可是，妈妈，我听说有哥哥姐姐们打疫苗有严重的副作用，倒下了，永远的离开了，从今以后再也没有机会陪着爸爸妈妈了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+医生说这些是偶合作用，打疫苗时签的知情同意书说有任何的副作用自己承担责任。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+妈妈，我不明白，没有经过第三期临床试验的疫苗，紧急授用的疫苗，你真的要用给我吗？
+
+妈妈，打进我身体的疫苗，拿不出来了，你真的要把我送去做实验的小白鼠吗？
+
+妈妈，你同意我打这个疫苗之前，你真的搞明白疫苗的成分了吗？
+
+妈妈，你有认真读打疫苗的知情同意书吗？
+
+妈妈，为了能让我去上学，你真的愿意让我打有风险的疫苗吗？
+
+妈妈，这疫苗对我身体的长远期影响，你知道吗？医生能解答吗？
+
+妈妈，我热爱这个世界，我还有好多梦想要去实现，我不想这个打没有任何保证的实验性的疫苗！
 
  
 

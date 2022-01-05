@@ -2,37 +2,24 @@
 ---
 
 
-## 持续封锁限制措施，让英国住院人数激增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1823588/)
+## 两种病毒同时爆发的担忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823598/)
 
-整理报道：**George Warshing
-**编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-43.jpg)图片来源：The Guardian
-当地时间1月3日，据《RT电视》报道，成千上万的英国人在封锁期间为了打发时间在寻求新的爱好，而医院住院记录显示，由此人们引发很多健康问题需要接受治疗。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-13.jpg)[图片来源](https://healthcare-in-europe.com/en/news/will-there-be-a-twindemic.html)
+日本雅虎1月5日消息，近日，在巴西和匈牙利，出现了“flurona”（“流感”和冠状病毒的复合词），即同时感染新型冠状病毒和流感的病例。 上月30日从以色列开始，全球范围内不断传出双重感染病例，引发对“Twindemic（两种病毒同时爆发）”的担忧。
 
-根据国民医疗服务体系数据中心（NHS Digital）提供的数据，由于中共病毒疫情导致各地封锁，人们被迫滞留在家中，为打发时间而从事个人爱好的活动，因此2020-21年间英格兰受伤住院人数激增。
+美国也很紧张。根据美国疾病控制与预防中心（CDC）的数据，截至去年 12 月 18 日的一周内，报告的流感病例超过 4,500 例，大约是两周前（超过 2,500 例）的两倍。
 
-其中，与动手制作（DIY）、园艺和宠物相关的伤害，以及游乐场事故都导致了住院治疗需求的增加，上述活动的日益增加有时会遭遇不良后果。
+“今年冬天的流感大流行预计将比去年冬天更严重，”疾病预防控制中心流行病学调查员林德特·布雷默说。确实如此。也有警告称，如果发生与 Omicron 病毒株和流感大流行重叠的双重流行病，公共卫生系统可能会崩溃。 CNBC援引美国卫生官员的话说，去年冬天住院的流感患者平均每天不超过125人，但最近已接近250人。美国医院协会副主任南希·福斯特 (Nancy Foster) 说：“如果流感进一步传播，可能会给已经在照顾新冠患者的医疗界带来沉重负担。”
 
-年度数据还显示，有5,600多人在使用手持电动工具引发的事故后需要治疗；超过2,700人在使用锤子或锯子等其他工具发生事故后被收治入院；超过5,300人在游乐场发生的事故中受伤，962人从树上坠落受伤。
+信息来源：
 
-再譬如，封锁措施引发了宠物热潮，自中共病毒大流行以来，英国有超过300万个家庭购买了宠物。然而，它们也成为让人们治疗的原因，在英格兰有7,386人被狗咬伤或攻击后被送往医院，60人因毒蜘蛛受伤而接受治疗，47人被老鼠咬伤。
+[ブラジル・ハンガリーでも「フルロナ」事例…「同時感染の危険」](https://news.yahoo.co.jp/articles/e7a6f02aae5df3415f92c6e0ef7d6eb1f9b817c2)
 
-还有2,243人因烹饪时因热饮、食物、（高温）油导致受伤而需要就医。在第一次封锁期间，在阳光明媚的天气里晒日光浴也让153人因晒伤住院。
-
-以上收集的数据仅涵盖入院的患者，在急诊室和当地医生的手术中也治疗了更多伤害。虽然封锁措施使英格兰有数千人受伤，但由于人们呆在家里，事故和受伤的数量比往年有所减少。
-
-新闻链接：[Lockdown activities led to spike in hospitalizations — RT World News](https://www.rt.com/news/545058-uk-lockdown-hobbies-hospital-admissions/)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
