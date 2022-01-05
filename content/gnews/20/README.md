@@ -2,34 +2,38 @@
 ---
 
 
-## 冬奥会邻近 北京街头一片索然
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825419/)
+## “南菜北运”工程是蔬菜供应短缺的遮羞布
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825598/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月4日，据日本媒体报道，距离2月4日开幕的中共北京冬奥会仅剩一个月，但北京街头当下仍旧没有任何迎接冬奥会氛围。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-3.jpg)
-对此，日本媒体分析其原因有三：首先，所有冬奥会的相关人员只能停留在选手村，但不能进入北京市；其次，中共北京政府用巨大的幕墙将当地机场一份为二，仿若戒严；最后，由于习近平亲自部署、指挥此次冬奥会，这导致当地政府将重点放在了加强管理上。
+据环球网2022年01月02日报道，海南迎来冬季瓜菜上市集中期，大部分瓜菜会被运往全国各地，“南菜北运”新工程，运输至北方市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-263-e1641399277453.png)图片来源：新浪
+“奇迹工程”总是在强国，先有“南水北调”工程，后有“西电东送”项目，现今推出“南菜北运”新工程。北京冬奥会即将召开之际，全国疫情又陆续封锁城市之时，党国确实要推出新工程让外界看到强国一片祥和盛世。
 
-同时，日媒记者也在采访时表示，当地居民有些根本不知道冬奥会，而有些则认为，相较于冬奥会，同一时间的农历新年更为重要。
+然而，中共的报道刻意掩盖了北方主要蔬菜大省因灾害天气，导致蔬菜大幅减产这一事实。
 
-分析人士则指出，中共北京冬奥会不仅遭到了由新中国联邦发起的国际抵制浪潮，墙内民众实则也对此一片索然，加之中共为了疫情清零所制造的高压氛围，这些都让其寄托于冬奥会带来的效果在开幕前就大打折扣了。
+首先，北方有河南、河北和山东三个蔬菜种植大省，无论从运输成本还是便利条件上，他们为北方市场提供冬季蔬菜才是上选，为何要从海南运到北方，这从侧面证实这三个省份供应不足的事实。
 
-参考链接：[北京冬奧會開幕前1個月，北京沒有歡迎冬奧的氣氛](https://www.gettr.com/post/plymro4b4e)
+其次，强国有天价高速过路费，现在油价也过高，这些菜运到北方市场如何保证百姓买到平价菜？同时，河南因为疫情开始陆续封城，这些蔬菜如何通过中转地段运达其他省份？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+另外，中共的表面文章功夫和虚假媒体众所熟知。已有西安居民网上曝光，某些小区所谓的支援与送菜，居然是拍完照片和视频之后，把菜拉走了。所以， 我们有理由怀疑，所谓的“南菜北运”，到底中共运了几车菜？这些菜是否真正流入到了普通老百姓家中，还是特权阶层特供？
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：Fei797
+最后，据中共自己吹嘘，强国今年粮食蔬菜都大丰收。既然如此何必浪费篇幅整版报道这一工程？为稳定民心，回击“疫情封城，老百姓没有菜吃”的报道？还是营造供应正常假象，喜迎冬奥会召开？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+不管哪一种目的，强国内老百姓冬季吃上菜就是官员重大政绩。“南菜北运”这一遮羞布太小，如何宣传也掩盖不住百姓买不到平价菜的事实。中共“奇迹工程”从不出奇迹，所谓“南菜北运工程”又是一次愚民欺民的把戏而已。
+
+声明：文章观点仅代表作者个人，与Gnews平台无关。
+
+链接：**[https://china.huanqiu.com/article/46EsVhgU9aO](https://china.huanqiu.com/article/46EsVhgU9aO)**
+
+素材：洛杉矶盘古农场 —Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 柯镇恶
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

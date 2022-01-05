@@ -2,108 +2,48 @@
 ---
 
 
-## 共同的信仰像火一样 让我们同心灭共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825643/)
+## 我的亲身经历（二）——严管期与管理犯
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1825740/)
 
-[https://gtv.org/video/id=61d57fa1dffab035958b0477](https://gtv.org/video/id=61d57fa1dffab035958b0477)
+作者：香草山文艺部-5月10日NB
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-2.jpg)
 
-咱们谈一个非常重要的，谈一个火的事，这个火呀，它是什么，是生命
-Let’s talk about a very important thing, the fire, what is fire, it’s life
 
-水和火几乎是生命的源泉，这什么叫生命的源泉呢
-Water and fire are almost the source of life, and what is the source of life?
 
-没有火，我们人类就完了，没有水，我们生命也就完了
-Without fire, we humans are over, without water, our lives are also over
+新犯们入监第一天接受了狱警充满杀气的思想教育课后（他说的后来都成为了现实），开始进入了非人道的入监严管期，而对以后会遭遇到什么，大家都满心恐惧。
 
-阳光和水，空气和大地，我们的希望就是下一代
-Sun and water, air and earth, our hope is the next generation
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1.jpeg)
 
-在中国的历史上，真正的火就是人类生存下
-In the history of China, the real fire is the survival of mankind
+我们这一期的犯人有一百二十人左右，都是本市区各个看守所送进来的。因为监狱实行准军事化管理，犯人除了内衣裤以外其他用品都要被丢弃掉（后来知道比较好的东西被管理犯私下瓜分了）。监狱只发了一套囚服，一双囚鞋，监狱专用的简单生活用品勉强够用两个月。
 
-驱除邪恶的，最好驱鬼的，最好的利器就是火，
-the one that drives out evil, the best way to drive out ghosts, the best weapon is fire
+严管期的日常活动都是狱警下达指令后由管理犯实施的。管理犯也是犯人，共产党发明了用犯人管犯人邪恶管理手段。狱警对新犯们宣布过：“管理犯做的一切都代表政府，不管对和错都要绝对服从。”这些管理犯以前也是被虐待者，他们的心理是阴暗和变态的，有了后台就有恃无恐。在严管期，这些管理犯会对新犯们进行肆无忌惮的欺凌。郭文贵先生曾说“奴才成为主人会比主人更可怕”，在监狱里体现得淋漓尽致。这些管理犯就是奴才，就是监奸，是一群丑陋的监狱流氓，每天折磨同类是他们最大的乐趣。
 
-你到了大草原，万恶的动物，看到火它躲得远远的
-When you get to the prairie, all the evil animals if they see the fire that they will hide away
+郭文贵先生还说过，“中国人是世界上对同胞最狠的民族”，我太同意了。我亲眼看到过很多个新犯因为不服管教而被管理犯打小报告，受到电警棍、辣椒水、老虎凳的惩罚，被罚站或者罚坐半天（由管理犯监视。在寒风中被惩罚是非常痛苦的），被罚吃一星期豆腐乳（早中晚都是一块饭一块豆腐乳，几天下来人都崩溃了），抄上百遍的监规纪律，等等。
 
-人类不能没有火，那么我们如何让心中的这种激情和灭共的决心和行动
-Human beings can’t live without fire, so how do we let the passion in our hearts and the determination and action to take down the CCP
+在严管期，每天从早晨五点半到晚上九点间，新犯们都要在管理犯严密的监视下进行各种操练和思想教育，写不完的认罪悔罪书，唱不完的囚犯歌和红歌，说话、走路、坐下、睡觉、上厕所……，一举一动有时间和动作标准，没有达到标准和要求就要接受各种惩罚。这些现象每天都有发生。他们让新犯们每天都战战兢兢、提心吊胆地度过。
 
-就像火一样，邦我们驱除邪恶，驱除魔鬼
-Just like fire that it can help us drive away evil, and drive away the devil
+共产党声称他们的监狱里没有打人骂人，但是这种对每个狱友的精神上的摧残太可怕了，完全就是温水煮青蛙。新犯们每天听到的都是呵斥声，每天都要忍受着冷和饿，还有随时降临的惩罚。
 
-你首先真的要是没有一个巨大的脑袋，那个自我
-First of all, if you are really not be an arrogant, that myself
+两个月严管期内，新犯不能被亲友探视，不能购买生活用品。我们入监时已经是11月份，气温已经在10度以下。新犯们基本上是穿着单薄衣服，在不许关门窗的监舍里是很冷的。基本上每个新犯都感冒过，但申请吃药也要看管理犯的脸色。被子不知道几年没有换了，污秽不堪，充满异味，又薄又硬又小。很多狱友和衣而睡，但是不少人还是得皮肤病了。这里日常没有热水供应，新犯们只有中午和晚上能见到半热的饭和水，吃饭喝水也都有定量。我们吃的菜永远是豆腐乳、酱菜、大蒜和没有油的水煮白菜或者水煮胡萝卜或者煮豆腐。一周有一次水煮小烂鱼算是荤菜。根本没有营养也吃不饱。再加上每天长时间无休止的思想教育和操练，新犯们的体力和精神都处于极限状态，两个月的苦难日子对新犯们来说太漫长了。
 
-你真的要认识到谁是你的战友，谁是好坏
-you really have to recognize who is your comrade-in-arms, who is good or bad
+共产党的监狱让人没有自由，只有绝望。打开监狱大门，人们就可以看到高墙上白底黑字的三句话：“你是谁？为什么来这里？来这里干什么？”监狱里所有邪恶手段的目的就是摧毁人的一切意志。监狱的黑暗是共产党用来“杀人诛心”的最好工具。
 
-我们在修行中成佛，或在修行中完善超越自己
-We become a Buddha in our practice, or complete ourselves in our practice
+校对/发稿：飞虹
 
-我们只有在日积月累的过程当中，才能传递我们的希望
-We can only pass on our hope in the process of accumulating practice day by day
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
 
-我们坚信这种灭共的这种信心，才真正是火的力量
-We firmly believe that this confidence in taking down the CCP, and this is the real power of fire
+**更多资讯，更多关注**
 
-才能邦我们驱除各种心中的魔，这种魔就是佛教讲的，贪、嗔、痴、慢、疑
-It finally helps us to get rid of all kinds of demons in our hearts, this kind of demons is what Buddhism says, greed, anger, foolishness, arrogance, suspicion
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-无限的自我，太大的自我，还有一个就是贪婪，再一个就是一副傲慢
-Infinite myself, too big myself, another one is greed, and the other one is arrogance
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-再一个不识真假，不辨善恶，更重要的事情没有包容
-Another thing don’t know true or false, don’t know good or evil, and more important things are not tolerated
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-我们是人，我们不是神，我们来到这个世界上，十之八九不如意
-We are human beings, we are not gods, we come into this world, and we are unsatisfactory in all likelihood
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-人存在世上，都是有缺漏才当人的，我们的灵魂到这块是来完善来了
-People are in the world, and we have shortcomings to be human, our souls are here to be completed
-
-不是到这来成佛了，我不相信在这块能成佛，但你的修行决定了你的未来
-It’s not here to become a Buddha, I don’t believe that you can become a Buddha here, but your practice determines your future
-
-新中国联邦，今天看到了所有人存在在这里的时候，都有真实的故事
-The New Federal State of China, today we saw that when everyone exists here, all have real stories
-
-我们没有一句安排，没有任何人告诉你怎么讲，这就是事实
-We don’t have an arrangement, no one tells you what to say, this is the fact
-
-行动的结果，共同的一个灭共的信仰和信心，像火一样
-The result of the action, a common belief and faith that takes down the CCP is like fire
-
-和激情和灭共的目标存在着，才让我们在今天同心同框
-passion and the goal of extinction exists which allows us to be in the same video frame with the same belief today
-
-永远要珍惜这一切，没有你们我什么都不是
-Always cherish all this, I am nothing without you
-
-* * *
-
-Date: 01/03/2022
-原视频标题: 共同的信仰像火一样 让我们同心灭共
-Common belief is like fire, let us take down the CCP with the same belief together
-原视频日期：2022/01/01
-原视频链接 **[https://gettr.com/post/plf2km0c4f](https://gettr.com/post/plf2km0c4f)**
-任务编号：KC390(3395)
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

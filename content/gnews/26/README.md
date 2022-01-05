@@ -2,26 +2,26 @@
 ---
 
 
-## 航空公司支付员工高薪维持假期运营
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825387/)
+## 冬奥会邻近 北京街头一片索然
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825419/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
+当地时间1月4日，据日本媒体报道，距离2月4日开幕的中共北京冬奥会仅剩一个月，但北京街头当下仍旧没有任何迎接冬奥会氛围。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-3.jpg)
+对此，日本媒体分析其原因有三：首先，所有冬奥会的相关人员只能停留在选手村，但不能进入北京市；其次，中共北京政府用巨大的幕墙将当地机场一份为二，仿若戒严；最后，由于习近平亲自部署、指挥此次冬奥会，这导致当地政府将重点放在了加强管理上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpeg)
+同时，日媒记者也在采访时表示，当地居民有些根本不知道冬奥会，而有些则认为，相较于冬奥会，同一时间的农历新年更为重要。
 
-据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
+分析人士则指出，中共北京冬奥会不仅遭到了由新中国联邦发起的国际抵制浪潮，墙内民众实则也对此一片索然，加之中共为了疫情清零所制造的高压氛围，这些都让其寄托于冬奥会带来的效果在开幕前就大打折扣了。
 
-报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
+参考链接：[北京冬奧會開幕前1個月，北京沒有歡迎冬奧的氣氛](https://www.gettr.com/post/plymro4b4e)
 
-参考链接：[Airlines Triple Pay For Pilots, Double For Flight Attendants Amid Widespread Cancellations](https://theparadise.ng/airlines-triple-pay-for-pilots-double-for-flight-attendants-amid-widespread-cancellations/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 总编：文特
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

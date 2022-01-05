@@ -2,32 +2,29 @@
 ---
 
 
-## 印度推进15至18岁青少年的疫苗接种工作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825402/)
+## GTV新闻访谈简报|2022年1月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1825472/)
 
-作者：纽约香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据有关媒体新闻显示，即日起，印度开始为本国15至18岁的青少年人群接种中共病毒疫苗。 为此，当局已下令将私立和公立学校作为学生的疫苗接种中心，并要求学校每天向地方政府汇报接种数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.36.png)
-据印度卫生部最新通报的数据显示，当地已有一千七百人感染了奥密克戎变种病毒。而值得注意的是，自去年六月份大规模接种中共病毒疫苗以来，印度的单日新增病例数就一直居高不下。
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
 
-有评论分析称，各国陆续有科学家反复呼吁，在中共病毒疫苗副作用明朗化之前，应暂停继续为青少年接种疫苗。而对于印度来说，其拥有2.53亿青少年，是全球青少年人口最多的国家。因此，该国强推青少年疫苗的措施无疑会为自身庞大的未成年群体带来难以预估的灾难。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-参考链接：[印度开始为15至18岁青少年接种冠病疫苗](https://www.zaobao.com.sg/realtime/world/story20220103-1229267)
+视频参看：[2022.01.05早GTV新闻访谈](https://gtv.org/video/id=61d59cd831a71619b57529fe)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-总编：飞虹
-编辑：天滅中共
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
