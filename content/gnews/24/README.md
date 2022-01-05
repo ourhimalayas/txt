@@ -2,19 +2,34 @@
 ---
 
 
-## 文贵大直播 1/5 中共企图用数字货币控制未来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1825314/)
+## 西安中共病毒感染者1月4日被强制清零
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825341/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot.jpg)图片来源：GTV
-2022年的第一场文贵大直播如约而至，1月5日，爆料革命发起人郭文贵先生在纽约直播现场，用他特有的轻松幽默开场不久，即严正告诉世界，数字货币绝对是人类的未来，但中共正企图通过数字货币控制未来。
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月4日一大早，据墙内知情人士透露，为了让中共高官孙春兰和陕西省省委书记刘国中在进行所谓的“考察”时可以达到虚假宣传的目的，中共西安市政府强制“清零”了当地的中共病毒感染病例。
 
-中共的房地产是控制百姓几十年甚至几代人的重要战略工具，是中共一贯沿用的商鞅五术苦民、弱民的典型表现。郭先生不止一次对此爆料、刨析，但中共正在企图运用数字货币，来实现所谓财富共享，努力“稳定”房产市场，让百姓不至于起来推翻政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-5.jpeg)
 
-更令人难以置信的是，中共竟然计划利用数字货币，来实现其开疆扩土的疯狂意图。
+据悉，当天西安市的“一码通”一直处于崩溃中，并没有任何真实的病例数据可供参考，但西安政府仍然实行了严格的清零计划，即以一个小区内一栋单元楼为单位，只要当中有一例中共病毒确诊病例，楼内所有居民全部被拉走隔离，从而达到物理意义上的清零。此外，所有住户必须严格停留家中并被禁止外出。
 
-【来源链接】https://gtv.org/broadcast/watch/61d59a1931a71619b57520a5
+目前，西安市的各大酒店几乎全部被隔离人员占满，其余的多数隔离病例只能入住当地的公租房或回迁房，但其中的居住条件非常恶劣。据消息称，无论当地隔离者身处何地，他们都面临着食物缺乏等民生问题。
 
+参考链接：[这个图就解释了为什么1月4日早晨一码通崩溃](https://gettr.com/post/pm0mb4982d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

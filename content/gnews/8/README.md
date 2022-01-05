@@ -2,28 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1825472/)
+## 秘翻在线：中共党员 活着当奴隶 死了当烈士
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1825493/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+**撰稿：葛大饼**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-235447.jpg)图片来源： gnzhong
+根据2022年1月4日新浪报道， 浙江省绍兴市上虞区委改革办常务副主任崔煜 在抗击新冠肺炎疫情的重大斗争中， 连续23天坚守岗位、废寝忘食，最终累倒在工作岗位上，于2022年1月1日不幸去世。
 
-视频参看：[2022.01.05早GTV新闻访谈](https://gtv.org/video/id=61d59cd831a71619b57529fe)
+绍兴市委宣传部追授崔煜忠“最美绍兴人”荣誉，绍兴市政府追记崔煜忠个人二等功。与崔煜忠一起被追授“最美绍兴人”荣誉、追记二等功的还有绍兴市汽运集团驾驶员楼建勇，他因突发疾病倒在了抗疫一线，经抢救无效不幸离世。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+中共洗脑媒体塑造了雷锋，焦裕禄等“党的好儿女”，历史书上也是无数个为党而献身的英雄儿女们，共产党从来都是让大家为它去送死，从来没有让老百姓好好爱自己和家人。这两位突然离世的“好党员”们倒在了抗疫一线，确定不是因为感染中共病毒而死？！确定不是打了毒疫苗而死？！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+在中共国活着当奴隶，死了当烈士，尤其是这些基层的中共党员，老杂毛们就是要消费你的死亡去洗脑所有老百姓！所谓本性都还算善良的99%的党员们，快点醒来吧！
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**
+
+[https://news.sina.cn/2022-01-04/detail-ikyakumx8283395.d.html?sinawapsharesource=newsapp&wm=3200\_0024](https://news.sina.cn/2022-01-04/detail-ikyakumx8283395.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
 
  
 

@@ -2,18 +2,20 @@
 ---
 
 
-## 瑞典国王伉俪接种三剂疫苗后双双确诊染疫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825403/)
+## 芝加哥警察工会主席猛烈抨击中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825404/)
 
-作者：台湾宝岛农场 鬥陣來拼
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.44.png)
-报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
+1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.53.png)
+对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
 
-另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
+此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
 
-参考链接：[瑞典國王與王后雙雙確診染疫 暫時自我隔離](https://www.cna.com.tw/news/aopl/202201040397.aspx)
+据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
+
+参考链接：[Vaccinated Chicago Police Union Boss Says He Has COVID, Slams Vaccine](https://www.thedailybeast.com/john-catanzara-chicago-police-union-president-says-he-tested-positive-for-covid-19-slams-vaccine)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
