@@ -2,47 +2,34 @@
 ---
 
 
-## 大型制药公司推动批准儿童 COVID-19 疫苗以逃避法律责任
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826056/)
+## 有声|受疫情影响英国面临严重员工短缺
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826161/)
 
-作者：马修·戴维斯
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据英国《独立报》1月3日报道，由于中共病毒感染继续导致员工短缺，英国各地的垃圾箱收集已被取消。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片16.png)图片来源：网络
-自然新闻：调查记者乔丹·沙赫特尔 (Jordan Schachtel) 表示，目前美国没有食品和药物管理局 (FDA) 批准的针对武汉冠状病毒 (COVID-19) 的疫苗，大型制药公司打算使用儿童作为疫苗的合法的人体盾牌。
+因中共病毒自我隔离导致员工人数减少，曼彻斯特、埃塞克斯、萨默塞特和白金汉郡的地方当局宣布减少服务或完全暂停废物收集。
 
-除了金钱收益之外，辉瑞、Moderna 和其他制造商似乎需要儿童作为其产品的合法人盾。 儿童面临来自 COVID-19 的风险几乎为零，但继续经历令人担忧的副作用。 美国卫生当局已经确认，儿童和青少年以极其温和的方式感染 COVID-19（如果有的话）。
+最近几周，由于奥米克戎变种病毒疫情的爆发，“中共病毒”确诊病例不断上升，数个行业普遍存在工人缺勤，促使政府警告公共部门领导人要为多达四分之一的员工无法工作做好准备。
 
-一项研究还表明，多达 80% 的儿童会出现可能导致严重创伤的副作用。 在这项研究中，辉瑞 (Pfizer) 的 COVID-19 疫苗在 1,097 名 12 至 15 岁的儿童和青少年中进行了测试。 至少 866 人经历了某种形式的令人不快的副作用——466 人被描述为“轻度”，393 人被描述为“中度”，7 人被描述为“严重”。
+原文链接:[受疫情影响英国面临严重员工短缺](https://gnews.org/zh-hans/1822402/)
 
-根据沙赫特尔的说法，新闻周刊、《今日美国》、路透社和美联社的事实核查员兜售虚假信息以掩盖真相。
+音频处理：喜山必胜Maverick
 
-观察人士指出，里根政府通过了一项法律，如果制药商获得批准在儿童身上使用疫苗，他们就可以通过法律保护他们的疫苗免于承担责任。  1986 年通过成为法律的《全国儿童疫苗伤害法》(NCVIA) 为药品制造商提供了法律责任保护，如果他们获得了所有年龄段的完全授权。
+发稿：Daxia
 
-加上缺乏批准的疫苗，沙赫特尔说，没有计划很快在美国提供一种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**辉瑞 的 FDA 批准的 COVID 疫苗无处可寻**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在 8 月 23 日获得 FDA 的批准后，拜登政府和其他州将辉瑞的 comirnaty 的批准视为具有里程碑意义的时刻。但这里有一个问题：Comirnaty 无处可寻。
 
-辉瑞（Pfizer）公司获得了紧急使用授权的单独产品是市场上可用的产品。 辉瑞解释说，由于 EUA 注射剂的存在，comirnaty 尚不可用，但向公众保证它很快就会可用。
-
-尽管声称它与 comirnaty 相同，但为什么 FDA 不会批准可用产品的问题也被提出。 观察人士指出，辉瑞希望所有年龄段的人都可以使用 comirnaty，以便获得额外的法律责任保护。
-
-Steve Kirsch 在他的 Substack 上说，如果被批准用于儿童，comirnaty 将神奇地出现在市场上。
-
-“comirnaty 不可用的原因是这些注射剂会使公司承担责任，因为完全许可的产品没有 EUA 产品的责任豁免，”Kirsch 说。
-
-“但是，一旦辉瑞疫苗在儿童中得到完全批准，由于联邦儿童疫苗法 (NCVIA) 的一项规定，辉瑞将获得所有年龄组的责任豁免。 到时候，他们就完成了。 他们可以在完全批准的情况下为所有年龄组销售 COVID 疫苗产品，并且在它导致您死亡或致残时不承担任何责任。”  （相关：超过 80% 接受辉瑞 Covid 注射的儿童出现副作用。）
-
-美国疾病控制与预防中心 (CDC) 表示，辉瑞不打算生产含有 EUA 的comirnaty疫苗，同时全国仍可使用 EUA 疫苗。 根据 FDA 的说法，Comirnaty 是一种法律上独特的但存在某些差异的产品。
-
-[https://www.afinalwarning.com/582454.html](https://www.afinalwarning.com/582454.html)
-
-编辑/发布：LILY
-
-20220105
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

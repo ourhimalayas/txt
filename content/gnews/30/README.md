@@ -2,131 +2,48 @@
 ---
 
 
-## 对推特谷歌等垄断机构 一系列法案正在进行中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
+## 我的亲身经历（二）——严管期与管理犯
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1825740/)
 
-[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
+作者：香草山文艺部-5月10日NB
 
-据我所知
-Hasta donde yo sé
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-2.jpg)
 
-对待Facebook, 谷歌
-Hacia Facebook, Google
 
-还有这些垄断机构, 像Twitter
-Y estos órganos administrativos monopolista como Twitter
 
-一系列的法案正在进行中
-Una serie de Proyecto de Ley está en proceso
+新犯们入监第一天接受了狱警充满杀气的思想教育课后（他说的后来都成为了现实），开始进入了非人道的入监严管期，而对以后会遭遇到什么，大家都满心恐惧。
 
-大家一定要记住
-Todos deben recordar
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1.jpeg)
 
-GTV 会再次投胎
-GTV reencarnará otra vez
+我们这一期的犯人有一百二十人左右，都是本市区各个看守所送进来的。因为监狱实行准军事化管理，犯人除了内衣裤以外其他用品都要被丢弃掉（后来知道比较好的东西被管理犯私下瓜分了）。监狱只发了一套囚服，一双囚鞋，监狱专用的简单生活用品勉强够用两个月。
 
-会以你意想不到的形式投胎
-Y lo hará de una forma inimaginable
+严管期的日常活动都是狱警下达指令后由管理犯实施的。管理犯也是犯人，共产党发明了用犯人管犯人邪恶管理手段。狱警对新犯们宣布过：“管理犯做的一切都代表政府，不管对和错都要绝对服从。”这些管理犯以前也是被虐待者，他们的心理是阴暗和变态的，有了后台就有恃无恐。在严管期，这些管理犯会对新犯们进行肆无忌惮的欺凌。郭文贵先生曾说“奴才成为主人会比主人更可怕”，在监狱里体现得淋漓尽致。这些管理犯就是奴才，就是监奸，是一群丑陋的监狱流氓，每天折磨同类是他们最大的乐趣。
 
-Gnews 也会转身投胎
-Gnews también se dará la vuelta para reencarnar
+郭文贵先生还说过，“中国人是世界上对同胞最狠的民族”，我太同意了。我亲眼看到过很多个新犯因为不服管教而被管理犯打小报告，受到电警棍、辣椒水、老虎凳的惩罚，被罚站或者罚坐半天（由管理犯监视。在寒风中被惩罚是非常痛苦的），被罚吃一星期豆腐乳（早中晚都是一块饭一块豆腐乳，几天下来人都崩溃了），抄上百遍的监规纪律，等等。
 
-你也会想象不到
-También no lo podrás imaginar
+在严管期，每天从早晨五点半到晚上九点间，新犯们都要在管理犯严密的监视下进行各种操练和思想教育，写不完的认罪悔罪书，唱不完的囚犯歌和红歌，说话、走路、坐下、睡觉、上厕所……，一举一动有时间和动作标准，没有达到标准和要求就要接受各种惩罚。这些现象每天都有发生。他们让新犯们每天都战战兢兢、提心吊胆地度过。
 
-没有任何人知道
-No hay alguien que lo sepa
+共产党声称他们的监狱里没有打人骂人，但是这种对每个狱友的精神上的摧残太可怕了，完全就是温水煮青蛙。新犯们每天听到的都是呵斥声，每天都要忍受着冷和饿，还有随时降临的惩罚。
 
-你别看现在很多人以为自己知道 你们都不知道
-No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
+两个月严管期内，新犯不能被亲友探视，不能购买生活用品。我们入监时已经是11月份，气温已经在10度以下。新犯们基本上是穿着单薄衣服，在不许关门窗的监舍里是很冷的。基本上每个新犯都感冒过，但申请吃药也要看管理犯的脸色。被子不知道几年没有换了，污秽不堪，充满异味，又薄又硬又小。很多狱友和衣而睡，但是不少人还是得皮肤病了。这里日常没有热水供应，新犯们只有中午和晚上能见到半热的饭和水，吃饭喝水也都有定量。我们吃的菜永远是豆腐乳、酱菜、大蒜和没有油的水煮白菜或者水煮胡萝卜或者煮豆腐。一周有一次水煮小烂鱼算是荤菜。根本没有营养也吃不饱。再加上每天长时间无休止的思想教育和操练，新犯们的体力和精神都处于极限状态，两个月的苦难日子对新犯们来说太漫长了。
 
-那么盖特
-Y Gettr
+共产党的监狱让人没有自由，只有绝望。打开监狱大门，人们就可以看到高墙上白底黑字的三句话：“你是谁？为什么来这里？来这里干什么？”监狱里所有邪恶手段的目的就是摧毁人的一切意志。监狱的黑暗是共产党用来“杀人诛心”的最好工具。
 
-还有一个现在你看我这希望暴跌的喜币
-Y lo otro ahora yo espero que el precio de H-coin desplome
-它现在一直不跌
-Pero ahora no se quiere bajar
+校对/发稿：飞虹
 
-（想）给大家点机会进来
-(Quiero) darle a todos la oportunidad de entrar
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
 
-大家要知道
-Todos deben saber
+**更多资讯，更多关注**
 
-你知道（这是）什么概念 兄弟姐妹们
-Sabes qué concepto es (este) hermanos y hermanas
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
-Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-而唯一的一个
-Y el único
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-留下的机会和市场就是我们
-Que quedará de oportunidad y mercado seremos nosotros
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-喜币一定（会）超过比特币
-El H-coin sobrepasará (de seguro) al Bitcoin
-
-一定会
-Seguro que sí
-
-比特币一定会消失
-El Bitcoin seguramente desaparecerá
-
-就是这个时代这个机会
-Y esta oportunidad de esta época
-
-不是我们想抓就抓得住的
-No es que lo agarramos porque queremos
-
-当然我们主动性要够
-Claro que debemos tener suficiente iniciativa
-
-时机 时机
-El tiempo y la oportunidad (Shí Jī)
-
-时间不是我们决定的
-(Shí ) El tiempo no lo decidimos nosotros
-
-是老天决定的
-Eso lo decide Dios
-
-机是我们自己抓到的
-(Jī)) Pero la oportunidad lo atrapamos nosotros
-
-兄弟姐妹们
-Hermanos y hermanas
-
-特别好是今天在这块儿你们这么多高人
-Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
-
-明年年底再想想是什么概念
-Piensen cómo será la idea el fin del año que viene
-
-你会想象不到这个人类（会有）多大变化
-No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
-
-* * *
-
-日期：01/04/2022
-原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
-Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
-任务编号：KC395（3305）
-视频时间段：0:00-01:35
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

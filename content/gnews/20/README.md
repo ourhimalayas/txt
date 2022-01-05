@@ -2,84 +2,39 @@
 ---
 
 
-## 全球疫情更新（伦敦十分之一的人口已经感染）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825916/)
+## 中国恒大2021年全年销售额4430亿元，同比下降38%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826042/)
 
-#### **整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜疫情更新.png)
-雅典娜疫情更新（2022年 1月5日）
+消息来源：澎湃新闻
 
-**一，全球疫情基本数据**
+评论：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片145778.png)图片来源：网络
+1月4日，中国恒大（03333.HK）发布全年销售数据情况。
 
-感染总数：295,242,378（日新增1,771,851，14天增幅+156%）
+公告显示，中国恒大2021年全年实现合约销售金额约4430.2亿元，合约销售面积5426.5万平方米。而中国恒大2021年的合约销售金额为7232.5亿元，相比来说，2021年的销售额4430.2亿元同比下降38.74%。中国恒大曾在公告中表示，2021年的合约销售额目标为7500亿元。
 
-死亡总数：5,455,889（日新增6,153人，14天增幅–11%）
+对于公司目前的流动性状况，中国恒大称，公司将继续积极与债权人保持沟通，努力化解风险，维护各方合法权益。
 
-每万人感染人数：454.8777 人（除中国外）
+1月3日早间，中国恒大公告称公司股票将短暂停牌。
 
-**二，全球“疫苗”毒针统计数据**
+此后，中国恒大在1月4日的内幕消息及恢复买卖的公告中提到，2021年12月30日，公司收到儋州市综合行政执法局下发的海花岛39栋建筑《行政处罚（限期拆除）决定书》。该决定书仅针对位于2号岛的2-14-1地块39栋楼，不涉及海花岛其它地块。公司将按照决定书的指引，积极沟通、妥善处理。
 
-“疫苗”毒针注射总数：92.1亿
+在这份处罚决定书中提到，恒大集团旗下的儋州信恒旅游开发有限公司位于儋州市白马井镇海花岛2号岛三（六）期项目共建设39栋楼，总建筑面积434941.46平方米，因违法取得的规划许可证已被撤销、项目存在违反《中华人民共和国城乡规划法》第四十条之规定情形，依据规定，现责令该公司在10日内自行拆除上述违法建筑物。如逾期不拆除，执法局将依法组织拆除。
 
-完全“接种”：38.8亿人
+恒大集团称，自2015年起，恒大陆续通过公开招拍挂方式取得土地使用权，并开始开发建设。经过六年多的建设，海花岛已累计投入约810亿元。
 
-完全“接种”百分比：49.8%
+恒大童世界集团表示，2017年以来，恒大方面根据环保、海洋督察对海花岛提出的海洋生态修复、涵管桥整改等要求，正在坚定不移、不折不扣地积极整改。
 
-**三，澳洲疫情和“疫苗”数据**
+截至1月4日收盘，中国恒大报1.61港元/股，涨幅1.26%，总市值213.91亿港元。
 
-感染总数：612,106（今日新增 64,774人）
+**评：**恒大地产的崩盘是板上钉钉的，只是早一点或者晚一点，这是不可改变的事实。地产经济是中共经济的最重要支柱产业之一，从恒大地产的暴雷到地产行业的集体轟塌再到中共经济的大崩溃只是一步之遥。请大家注意安全，迎接新中国大变革时代的到来。
 
-死亡总数： 2,289人（今日新增 18人）
+来源链接：[finance.sina.com.cn/chanjing/gsnew…](http://finance.sina.com.cn/chanjing/gsnew…)
 
-每万人感染人数：208.3541人
+编辑/发布：LILY
 
-“疫苗”毒针注射总数：43,044,030 （日新增212,497针）
-
-完全“接种”：18,894,113人
-
-第二针“接种”百分比：77.0%%
-
-16岁以上人口接种至少一剂疫苗的比例：94.6%
-
-16岁以上人口接种至少两剂疫苗的比例：91.6%
-
-**四，疫情要闻**
-
-澳大利亚病例新增数字继续暴增，超过六万人，感染总数超过六十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量继续增加，共有 3,101 人正在接受治疗。重症监护室共有 194 位患者，其中56 人需要呼吸机。澳洲的真实病例数更高，因为目前报告的病例数受限于测试能力。[为了减缓测试压力，澳洲总理表示](https://www.smh.com.au/national/australia-news-live-national-cabinet-to-discuss-rapid-antigen-tests-as-covid-19-cases-continue-to-grow-across-nsw-victoria-and-qld-novak-djokovic-confirmed-for-australian-open-20220105-p59lxw.html)，通过快速抗原检测呈阳性的患者将不再需要通过 PCR 检测来确认他们的诊断，同时进行住院治疗和 卡车司机的每周测试要求也被取消了。
-
-[九次获得澳网冠军的塞尔维亚人德约科维奇](https://www.smh.com.au/sport/tennis/handful-from-26-applicants-granted-open-medical-exemptions-but-no-special-favour-for-djokovic-tiley-20220105-p59lxn.html)继续成为“主流”媒体和部分民众的粗暴批判的对象。德约科维奇此前数次公开表示拒绝公布他是否接种了中共病毒疫苗毒针。最近他获得了进入澳大利亚参赛的医疗豁免。这本是与其职业和专业无关的个人医疗隐私，维多利亚州政府和澳大利亚网球协会却要求他向公众解释为什么他被授予医疗豁免。主流媒体中对他一片讨伐之声。
-
-[英国国家统计局 (ONS) 报告](https://www.theguardian.com/world/2022/jan/05/covid-england-ons-data-one-in-15-infected)，根据从随机选择的家庭收集的拭子样本，在截至 12 月 31 日的一周内，英格兰估计每15人中就有一人感染了中共病毒，而在伦敦，这个比例高达十分之一。
-
-昆士兰大学的 Garrick法学教授James Allan在《澳大利亚人报》发表文章，标题为[《强制疫苗使我们走向种族隔离和专制》](https://www.theaustralian.com.au/inquirer/vaccine-mandates-set-us-on-path-towards-segregation-and-despotism/news-story/4e708abfa1c62544355bb1575ab9848d)。在主流媒体上发出了对荒诞的疫苗强制政策的的批判。该文章从病毒的致命性，疫苗的有效性等方面论述了强制疫苗政策的非理性及其对民主制度根基的严重破坏，并警告说，＂强制疫苗是一个可怕的、反对个人自由的、灾难性的主意，人们若不能站出来反对，就将永远面对专制、强权的政府。＂
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+20220105
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

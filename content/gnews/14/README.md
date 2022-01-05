@@ -2,27 +2,30 @@
 ---
 
 
-## 如果共和党在 2022 年赢得参议院，保罗誓言将福奇绳之以法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826030/)
+## 有声|郭文贵先生成为2021年度最具影响力盖特用户
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826144/)
 
-作者：肯尼·韦伯斯特
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月1日，在“2021年度全球盖特人物”网络颁奖礼中，郭文贵先生荣获 “中共最大噩梦奖” 这一殊荣。同时，郭先生也是2021最具影响力用户，其影响力指数超出第二名的四倍之多。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61d444b68ce8cd307827de851-edited.jpg)图片来源：网络
-“我将担任参议院一个委员会的主席，我们将使用传票的权力把所有的记录拿出来”，参议员兰德保罗已承诺直接追捕安东尼福奇，并将他绳之以法，因为他多次宣誓就他参与了武汉病毒学实验室的功能获得研究。
+据大数据显示，盖特自2021年7月正式上线到今天已经经历了半年的发展，首席执行官 杰森-米勒先生分享了最初的愿景，即盖特并非只是要做一个赚钱的平台，它所有的价值以及真正的使命是推翻中共.
 
-兰德最近在接受他的老人、前国会议员和自由主义传奇人物罗恩·保罗的采访时说，他计划领导参议院惩罚福奇，因为他用美国税收资助了 COVID 大流行的开始。
+原文链接:[郭文贵先生成为2021年度最具影响力盖特用户](https://gnews.org/zh-hans/1820021/)
 
-华盛顿特区 – 11 月 4 日：参议员Rand Paul（肯塔基州共和党）于2021年11月4日在华盛顿特区国会山德克森参议院办公楼举行的参议院卫生、教育、劳工和养老金委员会听证会上向国家过敏和传染病研究所所长Anthony Fauci询问了正在进行的新冠病毒疫情应对措施。Paul呼吁Fauci辞职，并指控他谎报中国武汉一家实验室的工作。
+音频处理：喜山必胜Maverick
 
-来源链接：
+发稿：Daxia
 
-[https://wjbo.iheart.com/featured/walton-and-johnson/content/2022-01-04-rand-paul-vows-to-bring-fauci-to-justice-if-gop-wins-back-senate-in-2022/](https://wjbo.iheart.com/featured/walton-and-johnson/content/2022-01-04-rand-paul-vows-to-bring-fauci-to-justice-if-gop-wins-back-senate-in-2022/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-编辑/发布：LILY
-
-20220105
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

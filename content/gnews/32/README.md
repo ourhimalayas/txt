@@ -2,84 +2,108 @@
 ---
 
 
-## 福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1825569/)
+## 共同的信仰像火一样 让我们同心灭共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825643/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=61d57fa1dffab035958b0477](https://gtv.org/video/id=61d57fa1dffab035958b0477)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F-1-768x432-1.jpg)图片来源：thekycker.com
+**郭文贵
+Miles Guo**
 
-**巴塔查里亚发声回击**
+咱们谈一个非常重要的，谈一个火的事，这个火呀，它是什么，是生命
+Let’s talk about a very important thing, the fire, what is fire, it’s life
 
-当福奇-柯林斯勾结的消息传出时，巴塔查里亚在推特上写道：“现在我知道自己成为我们政府宣传攻击的对象是什么感觉。讨论和参与本来是一条更好的道路。”
+水和火几乎是生命的源泉，这什么叫生命的源泉呢
+Water and fire are almost the source of life, and what is the source of life?
 
-根据巴塔查里亚的说法，柯林斯和福奇编造了虚假的反驳说法，什么集中保护将“让病毒肆虐”对人群造成破坏性影响。后来这个错误的论点一次又一次地打脸他们自己。
+没有火，我们人类就完了，没有水，我们生命也就完了
+Without fire, we humans are over, without water, our lives are also over
 
-“当记者开始问我为什么要‘让病毒肆虐’时，我感到很困惑，”巴塔查里亚于 2021 年 12 月 19 日在推特上写道。
+阳光和水，空气和大地，我们的希望就是下一代
+Sun and water, air and earth, our hope is the next generation
 
-“现在我知道，柯林斯和福奇已经用谎言为媒体攻击做好了准备。我也对他们将《大巴林顿宣言》错误描述为“群体免疫策略”感到困惑。从生物学上讲，当足够多的人通过** COVID **恢复，或疫苗接种获得免疫力时，流行病就会结束。封锁、放任自流和 《宣言》都是为了结束大流行病这个目的。
+在中国的历史上，真正的火就是人类生存下
+In the history of China, the real fire is the survival of mankind
 
-“正如马丁·库尔多夫 (Martin Kulldorff) 所说，说‘群体免疫战略’和说‘重力引力’着陆飞机一样的道理。唯一的问题是如何安全着陆，而不是重力是否适用。
+驱除邪恶的，最好驱鬼的，最好的利器就是火，
+the one that drives out evil, the best way to drive out ghosts, the best weapon is fire
 
-“所以，问题是如何以最小的伤害度过这场可怕的大流行，其中所考虑的危害包括所有公共健康，而不仅仅是 COVID病毒。《宣言》声明的对弱势群体的集中保护是在封锁和放任自流之间的中间地带。
+你到了大草原，万恶的动物，看到火它躲得远远的
+When you get to the prairie, all the evil animals if they see the fire that they will hide away
 
-“像柯林斯和福奇这样的封锁者……本可以诚实地参与讨论，就会发现公共卫生从根本上讲是集中保护……但是，福奇和柯林斯决定抹黑马丁·库尔多夫、苏内特拉·古普塔、我和《宣言》的支持者 。他们对其中包含的想法造谣，并精心策划了一场针对我们的宣传活动……
+人类不能没有火，那么我们如何让心中的这种激情和灭共的决心和行动
+Human beings can’t live without fire, so how do we let the passion in our hearts and the determination and action to take down the CCP
 
-“福奇和柯林斯对封锁的危害保持沉默，因为他们是有罪的。可悲的事实是，他们赢得了政策战，他们得到了想要的封锁，现在……要承担封锁造成的伤害，所以他们不能承认自己的罪过。《宣言》里警告过他们。”
+就像火一样，邦我们驱除邪恶，驱除魔鬼
+Just like fire that it can help us drive away evil, and drive away the devil
 
-“他们也不能说封锁有效地抑制了 COVID。在美国，我们遵循了福奇-柯林斯的锁定策略，但我们有 80 万人死于新冠肺炎。瑞典——更注重保护弱势群体——做得更好，是不容忽视的……
+你首先真的要是没有一个巨大的脑袋，那个自我
+First of all, if you are really not be an arrogant, that myself
 
-“[历史] 会评判那些负责 COVID 政策的人，它不会是友好地评判。[柯林斯] 诽谤 《宣言》 及其作者，因为他已经没有实质性的论点了……柯林斯对拜尔的采访标志着他辉煌职业生涯的悲惨结局，虽然我不想这么说。福奇应该和他一起退休，他们已经造成了足够的破坏。”
+你真的要认识到谁是你的战友，谁是好坏
+you really have to recognize who is your comrade-in-arms, who is good or bad
 
-面对**“**疫苗**”**不断下降的可能性，福奇试图让他的叙事保持活力。
+我们在修行中成佛，或在修行中完善超越自己
+We become a Buddha in our practice, or complete ourselves in our practice
 
-就在福奇和拜登总统极力激起人们对 Omicron 的恐慌，以保持对大流行对策的需求之际，具有启示性的破坏性现象出现了。这当然是一个挑战，因为大多数人已经意识到 Omicron 并不比普通感冒更严重。
+我们只有在日积月累的过程当中，才能传递我们的希望
+We can only pass on our hope in the process of accumulating practice day by day
 
-福奇在 2021 年 12 月 19 日接受 CNN 采访时表示，他们“没有预料到 Omicron 发生的突变程度”。因此，基本上，尽管投入了数十亿美元进行研究，科学家们还是无法预测突变。那应该告诉我们一些事情。
+我们坚信这种灭共的这种信心，才真正是火的力量
+We firmly believe that this confidence in taking down the CCP, and this is the real power of fire
 
-令人不安的是，现在有证据表明，Omicron 可能是实验室创造的另一个病毒。在最近的“班农作战室”（ Bannon’s War Room ）采访中，mRNA 和 DNA 疫苗核心平台技术的发明者罗伯特·马龙（ Robert Malone） 博士回顾了我们迄今为止对 Omicron 变体的了解。
+才能邦我们驱除各种心中的魔，这种魔就是佛教讲的，贪、嗔、痴、慢、疑
+It finally helps us to get rid of all kinds of demons in our hearts, this kind of demons is what Buddhism says, greed, anger, foolishness, arrogance, suspicion
 
-正如马龙所指出的，媒体一直在谈论“除了显而易见的事情之外，那就是，这是一个‘疫苗逃逸的突变体’。” 该变体似乎对** COVID **疫苗具有高度抵抗力，这表明它已经在一个或多个感染 COVID 的个体中发生了变异，但负责 COVID 反应的精神巨人的第一个建议却是要推动** COVID **加强剂注射。这是不负责任和不合理的，也是不科学的。
+无限的自我，太大的自我，还有一个就是贪婪，再一个就是一副傲慢
+Infinite myself, too big myself, another one is greed, and the other one is arrogance
 
-（点评：不用科学家那么发达的大脑，孩童都会问：如果专家已经得出结论“该变体似乎对 COVID 疫苗具有高度抵抗力”，即是说疫苗无作用，为什么还要继续打？）
+再一个不识真假，不辨善恶，更重要的事情没有包容
+Another thing don’t know true or false, don’t know good or evil, and more important things are not tolerated
 
-“加强剂是一种完美的方式来偏置我们的免疫系统，因此我们对这种新变体的反应能力更差，”马龙解释说。 “这 [就像] 三个季节之前给每个人打流感疫苗针，并期望它对当前的 [流感毒株] 产生作用。”
+我们是人，我们不是神，我们来到这个世界上，十之八九不如意
+We are human beings, we are not gods, we come into this world, and we are unsatisfactory in all likelihood
 
-**Omicron 从 2020 年的菌株中脱胎而出**
+人存在世上，都是有缺漏才当人的，我们的灵魂到这块是来完善来了
+People are in the world, and we have shortcomings to be human, our souls are here to be completed
 
-对于 Omicron 的性质和起源，马龙表示：“它具有在严格的遗传选择下进行进化的病毒剂的标志，以逃避针对受体结合区域的‘疫苗’反应。现在悬而未决的问题是——因为这与正在追踪的其他菌株大不相同；它在自己独立的小进化分支中——这是怎么发生的？”
+不是到这来成佛了，我不相信在这块能成佛，但你的修行决定了你的未来
+It’s not here to become a Buddha, I don’t believe that you can become a Buddha here, but your practice determines your future
 
-马龙所指的是，与 Omicron 最接近的基因序列可以追溯到 2020 年中期，但它似乎不属于此后出现的任何进化分支。在下面的延时图表中，Twitter 用户 Chief Nerd 使用来自 [https://nextstrain.org/ncov/gisaid/global](https://t.co/fFLpbNWA2q)的数据，说明了从原始毒株到现在的 SARS-CoV-2 的基因组流行病学。
+新中国联邦，今天看到了所有人存在在这里的时候，都有真实的故事
+The New Federal State of China, today we saw that when everyone exists here, all have real stories
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-2-2.png)
+我们没有一句安排，没有任何人告诉你怎么讲，这就是事实
+We don’t have an arrangement, no one tells you what to say, this is the fact
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-1.png)图片来自原文
+行动的结果，共同的一个灭共的信仰和信心，像火一样
+The result of the action, a common belief and faith that takes down the CCP is like fire
 
-这很好地说明了一个不自然的 Omicron 的出现真的很奇怪。随着时间推移，到 2021 年底，突然出现了 Omicron，它像一条直线从 2020 年中期的菌株中出现，与其他任何菌株都没有相似之处。这种奇怪的现象在自然界中是没有先例的。
+和激情和灭共的目标存在着，才让我们在今天同心同框
+passion and the goal of extinction exists which allows us to be in the same video frame with the same belief today
 
-据说 Omicron 总共有来自原始 Alpha 菌株的大约 50 个突变，其中许多突变，特别使它能够绕过 COVID 疫苗诱导的抗体防御。
-
-2021 年 12 月 14 日，冠状病毒危机众议院选择小组委员会举行了远程听证会，国会议员吉姆·乔丹（Jim Jordan）指出，CDC和NIH/NIAID(国家过敏和传染病研究所)每年都有 预算约为 580 亿美元，员工总数为 31,000 人。
-
-有这样大的预算和如此多的工作人员，为什么美国政府没有进行一项研究来确定自然免疫力和 COVID 疫苗对比？乔丹问道。他收到的答案是（不幸的是，来自一位身份不明的医生）令人耳目一新：
-
-“我认为他们根本不想知道答案”，因为“这会破坏针对每个人不分青红皂白的疫苗接种政策，包括对极低风险的人。”
-
-请阅读上一篇：[福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（1/2）](https://gnews.org/zh-hans/1825295/)
-
-**视频内容请点击：**
-[www.youtube.com](https://www.youtube.com/watch?v=Yi1g4HGkllk)
-[www.youtube.com](https://www.youtube.com/watch?v=lJE7Tc8YGsc)
-
-**素材来源：**[childrenshealthdefense.org][Fauci, NIH Colluded to Discredit Scientists Behind Great Barrington Declaration, Emails Reveal](https://childrenshealthdefense.org/defender/fauci-nih-great-barrington-declaration-emails/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=08ffe540-bb9b-41ef-a50e-6e7db1d5d616)
+永远要珍惜这一切，没有你们我什么都不是
+Always cherish all this, I am nothing without you
 
 * * *
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+Date: 01/03/2022
+原视频标题: 共同的信仰像火一样 让我们同心灭共
+Common belief is like fire, let us take down the CCP with the same belief together
+原视频日期：2022/01/01
+原视频链接 **[https://gettr.com/post/plf2km0c4f](https://gettr.com/post/plf2km0c4f)**
+任务编号：KC390(3395)
+视频时间段 : 0:00-2:17
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

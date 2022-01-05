@@ -2,56 +2,60 @@
 ---
 
 
-## 俄罗斯冰球队因大闹加拿大航班被卡尔加里警方押下飞机
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1826024/)
+## 2022/01/05 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826125/)
 
-作者：Radana Williams & Matthew Conrod
-翻译：Himasally
+**主播**：舒平风｜**嘉宾**：防木
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-52.png)
 
-上周五晚，卡尔加里警方接报赶到卡尔加里国际机场，协助将一架航班上的俄罗斯冰球队队员押走。
 
-报警电话是在下午5点45分左右打来的，称加拿大航空公司的一架航班上有人闹事。
+**板块1–中共病毒**
 
-警方在一份声明中表示，“由于机舱内多名乘客闹事，乘客被要求下飞机。”警方证实事件涉及酒精。
+1. 法国马赛附近发现新的变种病毒“IHU”，比Omicron更有传染性，对疫苗更高抗性。
 
-有几位在飞机上的乘客在推特上发布了航班延误的消息，并确认闹事的是俄罗斯世界少年冰球队(Russian Junior World Hockey Team)的队员，该球队当时正在阿尔伯塔省参加2022年世界青少年锦标赛(World Junior Championship)。
+各大医疗公司和政府可能随着病毒不断变异，不断加强疫苗加强针推广。
 
-Kathleen Scherf坐在这架航班的商务舱，她称旁边坐着的是两名俄罗斯教练。
+2. 英、法单日感染数创新记录。法国新增二十七万，英国新增二十二万。
 
-她在接受采访时表示：“空乘人员很难对付这些人。”
+新病毒传染性强，全球单日新增超千万。法国总统马克龙表示将进一步管控主要针对未接种疫苗人群并“甩锅”疫情责任给未接种人群，马克龙在法国支持率上升。
 
-“他们不愿呆在自己的座位上，没有一直戴着口罩。其中一个在吸电子烟……他们的iphone手机放着音乐，很大声，而且不停地站起来拥抱对方。”
+疫苗刺突蛋白攻击人体免疫系统。
 
-Scherf说，这架飞机当时停在停机坪上，延误了一个半小时，然后警察蜂拥而至，要求所有乘客下飞机。
+**板块2–财经**
 
-“我从来没有遇到过因为安全原因而下飞机的情况。所以，这些年轻人影响了数百名乘客，这非常有趣，也非常震惊。我不需要转机，但其他人有，他们错过了。飞机上有很多孩子，很多机组人员可能受到影响，就因为他们这些激素分泌旺盛的年轻人。”
+1. 因冬奥会临近，中共国封锁宁波港。
 
-不久之后，大多数乘客重新登机，飞机起飞。
+发现几例新增感染，随即封锁，宁波港关闭将对全球物流运输有影响。中共国强硬的隔离政策凸显治理方式强硬且不讲人性。
 
-据悉，由于新冠疫情，国际冰球联盟于12月29日取消了剩余的赛事。
+2. 国家队救市猛投六十六亿美元，华融股份复牌交易暴跌50%以上。
 
-在周六下午的一份电子邮件声明中，冰联表示“正在从有关部门收集这一事件的进一步信息，并将该事件提交给道德委员会，以确定俄罗斯队的行为是否违反了国际冰联的道德准则。在道德委员会作出决定后，该事件将提交纪律委员会处理。”
+华融前董事长赖小明去年被判处死刑，因受贿罪、重婚罪等，明显判决过重。毛泽东外孙女孔东梅与陈东升（泰康保险）。存在明显“重婚罪”痕迹，依然相安无事，中共治下只准州官放火不准百姓点灯。
 
-来源：https://globalnews.ca/news/8483475/calgary-police-russian-hockey-team-flight/
+3. 前川普总统情报官员克里夫-西姆斯痛斥华尔街和大科技公司协助中共国崛起。
 
-（文章仅代表作者个人观点）
+西方华尔街和大科技公司普遍属于私人企业单纯注重利益，中共正好“投其所好”，双方“一拍即合”。导致现在西方媒体和舆论导向看中共“脸色”。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**板块3–网络科技**
 
-**关注我们**
+1.乔·罗根宣布加入Gettr和马乔里·泰勒·格林事件，吸引大量新用户加入Gettr。
 
-Discord 账号
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
 
-Gettr 账号
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
