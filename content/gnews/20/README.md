@@ -2,44 +2,30 @@
 ---
 
 
-## 顶级记者披露离开主流媒体CBC的原因
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1824250/)
+## 法国新发现奥密克戎变种的远亲仍是中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824308/)
 
-**【雅典娜观察】，与您一起洞察世界**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CBC.png)图片来源：logos-world.net
-翻译：文扬
-编辑：Mttfly
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/namC9KTJ1gmUQShxocpwjJUvh6we_xl8xoc3Nxwob7-zrWFIQcp17OcqQ6ZItDxQ6gK2G9Dn_0RUjxmfNEP7lC22lKM1NPPvXVUKgCqRCj0g2Qy4O3ZlYGBkBjV0ZvC8dH_v_yS6)[*图片来源（中共病毒出现在实验室培养的细胞表面）*](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
+**法国科学家再次发现 COVID-19 的另一种毒株变体是IHU Mediterranee Infection 。研究人员于发现该毒株有“46 个突变” ，据信比原始病毒更具传染性。大流行进入第三年，它的变体不断翻新，根源只有一种，即中共以舟山蝙蝠为骨架，对世界上几乎所有新发突发高致病性病毒进行研究并于2020年年初发布的结果。**
 
-塔拉·亨利（Tara Henley）写道：“在加拿大广播公司工作就是接受认知失调，放弃新闻诚信。”
+据美国红色之声援引《[每日邮报](https://www.dailymail.co.uk/tvshowbiz/article-10367191/Kate-Garraway-says-husband-Derek-Draper-phenomenally-fatigued.html?ito=chromelessDM_0)》报道称，“[法国科学家这次发现了 COVID-19 的另一种变体](https://www.redvoicemedia.com/2022/01/breaking-new-ihu-covid-variant-discovered-heres-what-you-need-to-know/?utm_source=daily-email-breaking&amp;utm_medium=email)。”毒株是研究人员于 12 月 10 日发现的，由 IHU地中海感染 （ IHU Mediterranee Infection ） 的。 该毒株有 46 个突变，据信可以抵抗 COVID-19 刺突蛋白，并且它们被认为比原始病毒更具传染性。迄今为止，在法国马赛市附近发现了 12 个病例，第一个病例与前往非洲国家喀麦隆有关。[**阅读更是多**](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
 
-记者兼作家的亨利向加拿大政府资助的加拿大广播公司CBC写了一封言辞尖锐的辞职信，指责它兜售社会正义教条，禁止自由辩论，并以公平的名义对特邀嘉宾进行种族定性。
+据报道，这种被称为 B.1.640.2 的菌株携带 E484K 突变，专家认为这使其更能抵抗所谓疫苗。该菌株是目前在世界各地流行的奥密克戎（ Omicron ） 变种的远亲。
 
-亨利的作品也出现在美国和英国的多家媒体上，在近十年后，她本周从该新闻网辞职。亨利发表了一篇类似辞职信文章在她的新Substack博客和偏向保守的《国家邮报》上。文章写道，自从她开始在加拿大广播公司工作以来，该公司“从一个值得信赖的新闻来源，变成了炒作点击率、读起来像模仿学生报刊的烂新闻。”
+- ***延展阅读：***[***比Omicron更夸张！又一新变异株出现，全身46处变异，世卫紧急回应***](https://www.sohu.com/a/514432939_165533)
+- ***延展阅读：***[***没完了？法国发现传染性更强的新冠病毒新变体HMN.19B***](https://t.qianzhan.com/caijing/detail/210401-5387d4e9.html)
 
-自称是左翼的亨利声称，加拿大广播公司的管理层完全接受了“源自美国常春藤大学校园的激进政治议程”，禁止对“清醒”的正统观念提出任何质疑。
 
-亨利称，这一议程延伸到了选择哪些嘉宾出现在加拿大广播公司的节目中。根据她的信，记者在预订嘉宾时必须填写“种族概况表”，以确保他们预订的“某些种族的人多，其他种族的人少”。
+1月4日当天，中共[网易](https://3g.163.com/dy/article/GSSKSMR705198CJN.html)援引上海财联社消息报道了同一消息，称“一波未平一波又起，在奥密克戎在全球快速蔓延之际，一种新发现的新冠病毒毒株也显示出了一定的威胁，不过这并不令人意外。”阅读更多。
 
-在选择报道的主题时，亨利说，关于“像封城、疫苗强制令和停课停学这样使社会产生天翻地覆的变化”之类的真正热点话题，加拿大广播公司的管理层没有报道的兴趣。而是优先报道“争议较小的新闻”和“推特不喜欢的普通人的想法”。
+显然，法国发现的 IHU Mediterranee Infection地中海病毒仍在中共研发并投放的COVID19 第一代系列病毒的研究之一。广为人知的中东呼吸综合征冠状病毒就是一种在动物与人类之间传播的人畜共患病毒。中共对人畜共患的传播进行了广泛的研究，此前，“清华大学张林琦教授从事传染病病毒研究30余年，他的团队解析出病毒蛋白和受体结合过程。曾经主导或参与[埃博拉病毒、寨卡病毒、中东呼吸道冠状病毒、禽流感病毒等新发突发高致病性病毒](https://www.81.cn/gnxw/2020-03/04/content_9759172.htm)研究。”
 
-亨利说，几个月来，她一直收到读者和观众对该网络编辑方向的投诉。她写道：“人们想知道为什么加拿大广播公司不优先报道当地广泛关注的问题，相反去报道一些细枝末节的新闻。”例如，加拿大广播公司今年发表了多篇关于菲律宾他加禄语中缺乏“非二元”术语的文章和视频，并将“头脑风暴”和“蹩脚”以及“黑名单”和“野蛮人”等术语描述为“你在使用时可能要三思而行”的词汇和短语。
+2022年1月5日
 
-亨利对加拿大广播公司的不满并不是唯一的，她也远不是近年来第一个抨击所谓“清醒”的主流媒体的人。她和其他记者一样，离开了让他们成名的主流媒体，在Substack等平台上追求编辑自由。前《纽约时报》专栏作家巴里·韦斯（Bari Weiss）和《拦截》（The Intercept）联合创始人格伦·格林沃尔德（Glenn Greenwald）在过去一年多的时间里迁移到了Substack平台上。两人都指责其前雇主的意识形态审查制度，甚至Vox联合创始人马修·伊格莱西亚斯（Matthew Yglesias）也很快效仿，他是一名公开的自由派。
-
-但是，另一位前加拿大广播公司记者周一在推特上发表反对亨利的观点。艾哈迈尔·汗（Ahmar Khan）在提到亨利转投Substack时，在推特上说：“亨利因糟糕的写作能力想通过批判主流媒体以骗取声誉。”但艾哈迈尔的说法无法解释亨利能在加拿大广播公司工作将近十年的原因。
-
-原文链接：[Top reporter explains quitting the ‘woke’ broadcasting corporation](https://www.rt.com/news/545156-cbc-canada-woke-resignation/)
-
-发布：Mttfly
-
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,95 +2,48 @@
 ---
 
 
-## 七哥介绍新中国联邦宣言(下)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
+## 《柳叶刀》编辑承认他知道彼得·达扎克有“极其重大、令人遗憾”的利益冲突
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824154/)
 
-[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-6.png)
+图片来源：谷歌图片
 
-**郭文贵
-Miles Guo**
+《零对冲》泰勒·杜登报道
 
-我们说什么的时候都不要忘了
-Whatever we say, please don’t forget
+世界上最负盛名的医学期刊之一《柳叶刀》的编辑承认，他知道一位充满争议的研究人员在发表一封谴责新冠病毒实验室泄漏理论的信、并将任何质疑泄漏论的人称为阴谋论者时所涉及的利益冲突。
 
-因这个我们走在了一起
-Because of this (the New Federal State of China Declaration) we have gotten together
+“我们花了一年多的时间试图说服他公开他的所有相关的利益冲突，我们最终在今年 6 月做到了，”《柳叶刀》编辑理查德.霍顿博士在英国议会科学和技术选择委员会面前作证时承认，他指的是美国国立卫生研究院资助的生态健康联盟的 彼得.达扎克（Peter.Daszak)。
 
-这是我们一切的原因
-This is the reason for everything
+《柳叶刀》用了 16 个月的时间发表了承认达扎克与武汉理工大学的关系的与杂志本身利益冲突的声明，
 
-不是因为七哥
-It’s not because of (Brother 7) Miles Guo
+“我100%完全同意，我们在 6 月份作为附录发布的信息绝对应该包含在 2 月份的信函中，”他告诉国会议员。  “令人遗憾的是，在这种特殊情况下，作者声称他们没有竞争利益，当然……确实存在极重大的竞争利益，尤其是与彼得.达扎克相关的利益。”
 
-不是因为任何人，也不是摇滚巨星
-It’s not because of anyone, nor a rock star
+据《每日邮报》报道，保守党议员亚伦·贝尔告诉霍顿，他做的“太少、太晚”，并询问《柳叶刀》的原信是否“有助于结束科学辩论”。
 
-刚才长岛哥念我的Title的时候
-Just now earlier when Brother Long Island stated my title
+Daszak 一直在武汉实验室对蝙蝠冠状病毒进行基因操作以使其更容易传染给人类，他于 2020 年 2 月组织撰写并由其他 26 名主要研究人员签署的“病毒源于自然”的信，与此同时谴责有关所谓新冠病毒起源的“阴谋论”
 
-已经快和当年的斯大林、列宁同志相比肩了
-It was almost on par with the comrades Stalin and Lenin back then
+《柳叶刀》本身是否有冲突？
 
-伟大的国际共产主义创始人
-the great founder of international communism,
+2010 年，《柳叶刀》除纽约和伦敦总部外，还在北京设立了办事处；2015年，霍顿博士前往北京接受中国友谊奖——这是授予“为国家经济和社会进步做出杰出贡献的外国专家”的最高荣誉。
 
-伟大的苏联共产党创始人
-the great founder of the Communist Party of the Soviet Union,
+他声称中国政府面临着一场关于大流行起源的“指责游戏”，尽管知道它拒绝了世界卫生组织有关要求进入实验室获得调查病毒爆发原因所需的关键信息的事实。
 
-伟大的苏联苏维埃主席
-the great Soviet chairman of the Soviet Union,
+今年早些时候泄露的电子邮件显示，是 达扎克博士起草了《柳叶刀》的信函，将否认病毒大流行的原因源于自然的理论视为阴谋论。
 
-伟大的苏维埃共产党主席、总书记
-the great chairman of the Soviet Communist Party, General Secretary
+与此同时，达扎克被指控在幕后进行“恐吓”活动，以确保将病毒来源的责任从他在中国实验室的合作伙伴身上转移开。
 
-念好半天，大家都快睡着了
-He has spent half a day to state, and everyone is almost falling to sleep
+“柳叶刀的信是彻头彻尾的宣传，是暴行和恐吓，”杰米.梅茨尔说，他是世界卫生组织人类基因组编辑咨询委员会的成员，也是比尔克林顿政府的前工作人员。
 
-实际上很简单
-It’s actually very simple
+在会议期间，哈佛大学科学家 艾琳娜.单（Alaina Chan)博士说，武汉实验室泄漏现在最有可能是新冠病毒大流行的起源，因为中国政府试图掩盖它，尽管专家们进行了极广泛的搜索，但仍未发现所谓的产生病毒的自然源头。她还强调了 新冠病毒时间表中的几个巧合，并补充说，中国在大流行初期发起的国家背景的信息压制活动增加了人们的怀疑。
 
-就这一个
-Just this one (the New Federal State of China Declaration)
+“我认为实验室起源的可能性更大，”单说，并补充说：“现在知道大流行起源的人站出来并不安全。”
 
-我们今天就这一个
-Just this one today
+“但我们生活在一个存储了如此多信息以至于这些信息最终都会泄露出来的时代。我们从许多顶级病毒学家那里听说，基因工程起源是合理的，其中包括对第一个非典病毒进行修改的病毒学家。”
 
-绝对是因为这个走在一起
-It’s definitely because of this one we have gotten together
+然而，尽管有所有证据表明达扎克的行为并非出于善意，但《国家脉搏》指出，他仍被纽约州任命以协助应对病毒大流行。
 
-无论是铁血组，还是联盟委员会，还是战友们
-Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
-
-当谁忘掉这个的时候
-Whoever forgets this,
-
-你真的没有记住的时候
-and really don’t keep this in mind,
-
-你一定是被淘汰那个人
-You will definitely be that individual that gets eliminated
-
-* * *
-
-Date: 01/02/2022
-原视频标题: 七哥介绍新中国联邦宣言(下)
-(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
-原视频日期：2022/01/01
-原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
-任务编号：KC394(3394)
-视频时间段 : 0:00-00:52
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-00：11 Title 改为 头衔
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接：[https://www.zerohedge.com/covid-19/lancet-editor-comes-clean-admits-he-knew-peter-daszak-had-significant-regrettable](https://www.zerohedge.com/covid-19/lancet-editor-comes-clean-admits-he-knew-peter-daszak-had-significant-regrettable)
 
  
 

@@ -2,26 +2,33 @@
 ---
 
 
-## 特斯拉新疆开展厅 被批支持种族灭绝
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824290/)
+## 篮网队同意未接种疫苗的欧文重返赛场
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824358/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/rMRJflONBV_sKao-2jP-5InpgjUBmigFju4iQnSc1BLc23PSzp-MOYKLubX4tcL3L6kLOYKMwB9xuo9S76jNOqz5uLv3a4T614l2_ArKVSYAfO2YSHiHnNo9Q8k8eFG4rxCGGuUp)[*图片来源*](https://tw.appledaily.com/resizer/NGUYYkT9_VkgAMLhfZnXTIWbwaM=/arc-photo-appledaily/ap-ne-1-prod/public/GZWY46BLMRCKFOSQ5IRBL34BKQ.jpg)
-全球市值最高的汽车制造商特斯拉在12月31日宣布，将在新疆首府乌鲁木齐开设一个展厅。“2021年的最后一天我们在新疆相遇，”特斯拉官方微博账号说。
+翻译：**Lulumi**
 
-美国人权和行业团体周二（1月4日）批评特斯拉新年前夕宣布在新疆开设展厅，指出这是在支持中共种族灭绝。美国最大的穆斯林倡导组织美国伊斯兰关系委员会说，特斯拉在“支持种族灭绝”。另一个美国行业团体美国制造业联盟和美国参议员鲁比奥也发出了类似的批评。“马斯克必须关闭特斯拉的新疆展厅，”美国伊斯兰关系委员会在其官方推特帐号发文称。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-240.png)ttutu’ptu’p’ltu’p’l’y图片来源: breitbart.com
 
-美国总统拜登和美国国会议员都已加强对企业施压，要求他们与新疆保持距离。拜登在去年12月23日签署了一项法案，禁止从该地区进口产品。白宫发言人普萨基说，她不会直接评论特斯拉的行动，但一般来说，“民间部门应该反对中共国在新疆的侵犯人权和种族灭绝行为。”“国际社会，包括公共和民间部门，在谈到新疆发生的事情时，不能视而不见。”
+布鲁克林篮网队在去年10月份宣布，欧文将在可预见的未来缺阵，因为他一直坚定地拒绝接种冠状病毒疫苗。球队当时指出，欧文既不会被允许参加比赛，甚至也不会和他的队友们一起训练。
 
-特斯拉没有立即回应评论请求。特斯拉在上海有一家工厂，在中共国销量激增的情况下，这家工厂正在加大生产力度。中共国也已成为特斯拉对欧洲和其他市场的出口中心。近几个月来，多家外国公司被西方和中共国之间在新疆问题上的紧张局势所困扰，试图在西方的压力和中共国作为市场和供应基地的重要性之间取得平衡。
+同月，欧文解释说，他拒绝接种疫苗并不是什么政治声明，而只是“忠于”自己。他补充说，“这是关于我的生活和我选择做的事情”。
 
-“全球投资者和中国政府之间存在着这种紧张关系。全球投资者希望获得市场准入。中共国政府称，获得准入的成本是要持默认态度，”Zo Zo Go的首席执行官Michael Dunne说。该公司是一家投资顾问公司，与在中共国开展业务的汽车和科技公司合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-242.png)2021年10月3日洛杉矶斯台普斯中心，布鲁克林篮网队的凯里·欧文在与洛杉矶湖人队的季前赛中。
 
-消息来源：[**特斯拉在新疆开设汽车展厅 引来美国人权和行业团体批评**](https://cn.reuters.com/article/tesla-xinjiang-showroom-0104-tues-idCNKBS2JF035?il=0)
+尽管球队在10月份有严格的立场，但到了12月球队自打嘴巴，告诉欧文他可以回来参加客场比赛。然而，即使在他准备上场的时候，蓝网队之前已经把他列入了COVID协议名单。
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+最后，在经历了这一切之后，网队宣布，欧文在错过了本赛季前35场比赛之后，终于将在周三进行他的赛季首秀。
+
+尽管在客场比赛中亮相，不过，欧文仍然不会被允许在自己的主场比赛中出场，因为纽约市要求所有的艺人和运动员都必须接种疫苗才能进入任何体育场、竞技场、剧院或音乐厅。因此，欧文也仍然被禁止参加麦迪逊广场花园对纽约尼克斯队的比赛，以及在洛杉矶对湖人队的比赛。他还将被禁止参加勇士队和快船队的主场比赛。
+
+新闻来源 : [breitbart.com] [Brooklyn Nets Agree to Bring Unvaxed Kyrie Irving Back to Play](https://www.breitbart.com/sports/2022/01/03/brooklyn-nets-agree-to-bring-unvaxed-kyrie-irving-back-to-play/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
