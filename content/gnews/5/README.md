@@ -2,108 +2,39 @@
 ---
 
 
-## 共同的信仰像火一样 让我们同心灭共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825643/)
+## 令人恐怖的美国保险业的大流行数据
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/1825733/)
 
-[https://gtv.org/video/id=61d57fa1dffab035958b0477](https://gtv.org/video/id=61d57fa1dffab035958b0477)
+翻译/整理：意大利罗马达芬奇农场 – 阿娜
 
-**郭文贵
-Miles Guo**
+此篇文章的原报道员是玛丽贝丝-费弗（Mary Beth Pfeiffer），她是一名调查记者，她在文章中介绍到她自己对政府未能通过早期治疗阻止中共病毒的卑劣行为感到愤怒。她说到审查制度和贪婪助长了这种大流行病。
 
-咱们谈一个非常重要的，谈一个火的事，这个火呀，它是什么，是生命
-Let’s talk about a very important thing, the fire, what is fire, it’s life
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https-bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com-public-images-da2169b7-439d-4f48-9111-07b682fde306_572x288.png)Image: rescue
 
-水和火几乎是生命的源泉，这什么叫生命的源泉呢
-Water and fire are almost the source of life, and what is the source of life?
+这张图由 OneAmerica 保险公司提供，代表了美国疾病控制中心公开报告的2019至2021年间18至64岁年龄组的死亡率，它展示了中共病毒的趋势和重大影响。一家位于（美国）印第安纳州的大型保险公司报告说，与大流行前的数据相比，2021年全行业工作年龄的美国人的死亡率增加了40%。
 
-没有火，我们人类就完了，没有水，我们生命也就完了
-Without fire, we humans are over, without water, our lives are also over
+这家保险公司对2021年18至64岁的成年人死亡人数大幅上升表示担忧，这不能简单地用病毒感染本身来解释。
 
-阳光和水，空气和大地，我们的希望就是下一代
-Sun and water, air and earth, our hope is the next generation
+OneAmerica 是一家自1877年以来总部设在印第安纳波利斯的1000亿美元的保险公司，它在1月4日星期二晚上向玛丽发布的一份声明中说：“我们的数据显示，我们的业务在美国各地的死亡率增加，这与我们在全国行业数据中看到的情况一致。”
 
-在中国的历史上，真正的火就是人类生存下
-In the history of China, the real fire is the survival of mankind
+该声明援引其对美国疾病控制中心数字的分析，说：“将2021年第3季度的数据与2019年同期大流行前的数据相比较，全美国18至64岁个人的死亡率增加了40%。”
 
-驱除邪恶的，最好驱鬼的，最好的利器就是火，
-the one that drives out evil, the best way to drive out ghosts, the best weapon is fire
+这一惊人的结论更加令人担忧，因为它所涵盖的年龄组并不是受中共病毒打击最严重的，而该年龄组占病毒死亡人数的25%。此外，这一趋势涵盖了所有的死亡原因，表明这一大流行病以各种方式导致了死亡。
 
-你到了大草原，万恶的动物，看到火它躲得远远的
-When you get to the prairie, all the evil animals if they see the fire that they will hide away
+OneAmerica 公司准备的一份图表描述了这一趋势，从去年7月到去年9月，即最新的数字，黑线急剧上升。
 
-人类不能没有火，那么我们如何让心中的这种激情和灭共的决心和行动
-Human beings can’t live without fire, so how do we let the passion in our hearts and the determination and action to take down the CCP
+“美国疾病控制中心在2021年第3季度的数据显示，这个年龄组的实际死亡人数为25万人（或比基线预期增加45%），通常是工作年龄人口。在这个总数中，5.06万人被美国疾病控制中心归因于中共病毒。”
 
-就像火一样，邦我们驱除邪恶，驱除魔鬼
-Just like fire that it can help us drive away evil, and drive away the devil
+玛丽把 OneAmerica 的声明分享给罗伯特-马龙，他是病毒疫苗所基于的mRNA技术的发明人。他在一次电话交谈中说，死亡人数的增加 “绝对是前所未有的，令人震惊，并引起了严重的重大关切”。他说，这些数字指出了应对该大流行病的失败方法的后果。
 
-你首先真的要是没有一个巨大的脑袋，那个自我
-First of all, if you are really not be an arrogant, that myself
+评论：
 
-你真的要认识到谁是你的战友，谁是好坏
-you really have to recognize who is your comrade-in-arms, who is good or bad
+对于罗伯特-马龙所说的如此高的死亡率的数字是应对大流行病采用失败方法的后果，那很明显就是疫苗后的结果。按着此文章的数据分析，那意味着2021年第3季度近20万的18岁到64岁间的成年人因非病毒原因导致死亡。
 
-我们在修行中成佛，或在修行中完善超越自己
-We become a Buddha in our practice, or complete ourselves in our practice
+原文参考链接：
+[https://rescue.substack.com/p/chilling-pandemic-data-from-the-insurance](https://rescue.substack.com/p/chilling-pandemic-data-from-the-insurance)
 
-我们只有在日积月累的过程当中，才能传递我们的希望
-We can only pass on our hope in the process of accumulating practice day by day
 
-我们坚信这种灭共的这种信心，才真正是火的力量
-We firmly believe that this confidence in taking down the CCP, and this is the real power of fire
-
-才能邦我们驱除各种心中的魔，这种魔就是佛教讲的，贪、嗔、痴、慢、疑
-It finally helps us to get rid of all kinds of demons in our hearts, this kind of demons is what Buddhism says, greed, anger, foolishness, arrogance, suspicion
-
-无限的自我，太大的自我，还有一个就是贪婪，再一个就是一副傲慢
-Infinite myself, too big myself, another one is greed, and the other one is arrogance
-
-再一个不识真假，不辨善恶，更重要的事情没有包容
-Another thing don’t know true or false, don’t know good or evil, and more important things are not tolerated
-
-我们是人，我们不是神，我们来到这个世界上，十之八九不如意
-We are human beings, we are not gods, we come into this world, and we are unsatisfactory in all likelihood
-
-人存在世上，都是有缺漏才当人的，我们的灵魂到这块是来完善来了
-People are in the world, and we have shortcomings to be human, our souls are here to be completed
-
-不是到这来成佛了，我不相信在这块能成佛，但你的修行决定了你的未来
-It’s not here to become a Buddha, I don’t believe that you can become a Buddha here, but your practice determines your future
-
-新中国联邦，今天看到了所有人存在在这里的时候，都有真实的故事
-The New Federal State of China, today we saw that when everyone exists here, all have real stories
-
-我们没有一句安排，没有任何人告诉你怎么讲，这就是事实
-We don’t have an arrangement, no one tells you what to say, this is the fact
-
-行动的结果，共同的一个灭共的信仰和信心，像火一样
-The result of the action, a common belief and faith that takes down the CCP is like fire
-
-和激情和灭共的目标存在着，才让我们在今天同心同框
-passion and the goal of extinction exists which allows us to be in the same video frame with the same belief today
-
-永远要珍惜这一切，没有你们我什么都不是
-Always cherish all this, I am nothing without you
-
-* * *
-
-Date: 01/03/2022
-原视频标题: 共同的信仰像火一样 让我们同心灭共
-Common belief is like fire, let us take down the CCP with the same belief together
-原视频日期：2022/01/01
-原视频链接 **[https://gettr.com/post/plf2km0c4f](https://gettr.com/post/plf2km0c4f)**
-任务编号：KC390(3395)
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

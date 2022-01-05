@@ -2,28 +2,24 @@
 ---
 
 
-## 专家呼吁关注奥密克戎变种出现的独特症状
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825357/)
+## 瑞典国王伉俪接种三剂疫苗后双双确诊染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825403/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：台湾宝岛农场 鬥陣來拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
+当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.44.png)
+报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-4.jpeg)
+另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
 
-此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
+参考链接：[瑞典國王與王后雙雙確診染疫 暫時自我隔離](https://www.cna.com.tw/news/aopl/202201040397.aspx)
 
-不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-参考链接：
-1）[‘Very Strange’ Omicron Symptom: Night Sweats](https://www.newsmax.com/us/covid19-omicron-symptoms-night-sweats/2022/01/02/id/1050743/)
-2）[Watch for These Symptoms of the Omicron Variant](https://www.newsmax.com/health/health-news/covid-omicron-variant-symptoms/2021/12/23/id/1049793/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹 
-编辑：天滅中共
-校正/发稿：谐趣园
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

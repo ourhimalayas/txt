@@ -2,55 +2,131 @@
 ---
 
 
-## 古以色列亡国启示录
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1825527/)
+## 对推特谷歌等垄断机构 一系列法案正在进行中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
 
-作者：纽约香草山福音部 – 山城小哥
+[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
 
+据我所知
+Hasta donde yo sé
 
+对待Facebook, 谷歌
+Hacia Facebook, Google
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+还有这些垄断机构, 像Twitter
+Y estos órganos administrativos monopolista como Twitter
 
+一系列的法案正在进行中
+Una serie de Proyecto de Ley está en proceso
 
+大家一定要记住
+Todos deben recordar
 
-估计许多基督徒都曾有个疑问：既然以色列人是创造天地万物至高神的选民，神为什么会让祂选民的国度灭亡，让以色列人被外族人掳去呢？我们今天就来简单地回顾一下以色列人的那段亡国史，看看神给我们的启示。
+GTV 会再次投胎
+GTV reencarnará otra vez
 
-神带领以色列人从埃及为奴之地出来进入奶蜜之乡后，他们却很快犯罪堕落，不再专心信靠带他们出埃及的神，反而去拜人手造的偶像。对神的话和公义律法“不听不理，人人凭自己顽固的恶念行事。”（耶利米书 11:8）因此神说：“我要使约中的一切咒诅临到他们，因为我吩咐他们遵守这约，他们却拒绝遵守。”（耶利米书 11:8）
+会以你意想不到的形式投胎
+Y lo hará de una forma inimaginable
 
-北国灭亡前神指控他们说：“他们为了银子卖掉义人，为了一双鞋子卖掉穷人。（阿摩司书 2:6）北国灭亡时神又指证以色列人的祭司和官长说：“你们像设在米斯巴的圈套，铺在他泊山的网罗。（何西阿书 5:1）”可见北国以色列那时候败坏到了什么地步，同胞之间彼此算计，彼此利用和出卖。在长期不悔改的情况下，于是神就只好降罚，让亚述帝国灭了他们的国，把他们掳走了。
+Gnews 也会转身投胎
+Gnews también se dará la vuelta para reencarnar
 
+你也会想象不到
+También no lo podrás imaginar
 
+没有任何人知道
+No hay alguien que lo sepa
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220105-1.jpg)图片来自网络
+你别看现在很多人以为自己知道 你们都不知道
+No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
 
+那么盖特
+Y Gettr
 
+还有一个现在你看我这希望暴跌的喜币
+Y lo otro ahora yo espero que el precio de H-coin desplome
+它现在一直不跌
+Pero ahora no se quiere bajar
 
-南国也是差不多，神指证他们说“虔敬人已从大地上灭绝，世间再没有正直人。人人伺机杀人流血，用网罗猎取自己的弟兄。（弥迦书 7:2）神让巴比伦王去灭亡南国的时候说到自己不得不这样做的原因“我要把他们的妻子和田地交给别人，因为他们无论贵贱，个个贪图不义之财；无论是先知还是祭司，都行为诡诈。（耶利米书 8:10）”
+（想）给大家点机会进来
+(Quiero) darle a todos la oportunidad de entrar
 
-因为南国的罪恶，神要求他们臣服在巴比伦王的权势之下，以求生存，接受神的管教。结果南国却背誓毁约不肯臣服。最后神只好让巴比伦王彻底攻灭南国，让他们被掳到巴比伦。因为一个彻底败坏的国，在神眼前已失去了存在的意义，神必须用苦难来炼净和管教他的子民，用强力使他们停止作恶，使他们重新归向神，认识神，在神面前谦卑下来并重新切实遵行神的教诲。就像神亲自说的“因为锈垢太厚，就是用火也不能清除。耶路撒冷啊，淫荡使你污秽不堪，我要洁净你，你却不愿被洁净。所以，除非我向你倾尽一切愤怒，否则你的污秽将不能清除。（以西结书 24:12-13）”
+大家要知道
+Todos deben saber
 
-神对自己的选民如此做，是因为至高的父神是一位具有公义圣洁、爱和怜悯、不收受贿赂、不偏待人等一切美善的神，祂更是一位会降罚管教自己的儿女的神。此外，作为造物主，神的主权大而可畏，祂掌管一切，世间的一切都是按父神的旨意运行。正如祂在《圣经》里说的“谁成就了这事？谁在太初就掌管历史的方向？是我耶和华，我太初就在那里，末了也在那里。（以赛亚书 41:4）”
+你知道（这是）什么概念 兄弟姐妹们
+Sabes qué concepto es (este) hermanos y hermanas
 
-神让以色列人的这些历史发生，其实都是为了向祂所拣选的儿女显明自己，让祂的儿女认识祂，敬畏祂，并学习祂的儿子耶稣基督。因为神让“万事互相效力，叫爱　神的人得益处（罗马书 8:28）”
+这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
+Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
 
-犹大人被掳70年之后，他们在被掳之地痛悔地寻求神，最后神开恩实现祂对犹大人的应许，让他们回到故土重建家园和圣殿。如今，我们华人也是被中共掳掠73年了。希望我们全体华人真的都来痛悔地寻求神，跟随爆料革命，解散中共，重归故土，重建我们的家园和圣殿。让神州真的成为敬拜赞美神的地方。愿神光照华人的心，阿门。
+而唯一的一个
+Y el único
 
+留下的机会和市场就是我们
+Que quedará de oportunidad y mercado seremos nosotros
 
+喜币一定（会）超过比特币
+El H-coin sobrepasará (de seguro) al Bitcoin
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
+一定会
+Seguro que sí
 
+比特币一定会消失
+El Bitcoin seguramente desaparecerá
 
+就是这个时代这个机会
+Y esta oportunidad de esta época
 
-编辑/校对/发稿：武裝的羔羊
+不是我们想抓就抓得住的
+No es que lo agarramos porque queremos
 
-**更多资讯，更多关注**
+当然我们主动性要够
+Claro que debemos tener suficiente iniciativa
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+时机 时机
+El tiempo y la oportunidad (Shí Jī)
+
+时间不是我们决定的
+(Shí ) El tiempo no lo decidimos nosotros
+
+是老天决定的
+Eso lo decide Dios
+
+机是我们自己抓到的
+(Jī)) Pero la oportunidad lo atrapamos nosotros
+
+兄弟姐妹们
+Hermanos y hermanas
+
+特别好是今天在这块儿你们这么多高人
+Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
+
+明年年底再想想是什么概念
+Piensen cómo será la idea el fin del año que viene
+
+你会想象不到这个人类（会有）多大变化
+No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
+
+* * *
+
+日期：01/04/2022
+原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
+Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
+任务编号：KC395（3305）
+视频时间段：0:00-01:35
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

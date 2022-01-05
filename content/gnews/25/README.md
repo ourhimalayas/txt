@@ -2,32 +2,47 @@
 ---
 
 
-## 捷克新政府将与台湾全面合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825352/)
+## 以色列出现首例新型混合病毒FluRona
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1825400/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据台湾媒体报导，2021年12月中旬上任的捷克总理费亚拉率领新政府公开表示，捷克将展开与包括台湾在内的全球民主国家合作，同时将修正前任政府过度偏向中共与俄罗斯的路线。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-16.jpg)
-报道提及，由五大党派组成的捷克新政府在最新的联合执政协议中明确指出，捷克会重拾以人权为价值导向的外交政策，包括推动捷克版“马格尼茨基法案”，并允许捷克政府对侵犯人权的个人和企业实施制裁。此外，本届政府将扭转总统齐曼和前任总统巴比斯此前采取的亲中共路线。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-8.png)
+以色列贝林森医院（Beilinson Hospital）出现了新的突变病毒，是中共病毒+流感的混合病毒，被称为Flurona。
 
-也有分析人士认为，在中共难以兑现“17+1”承诺的前提下，捷克或将跟随立陶宛的脚步，退出与中共政府的合作机制。而在捷克新政府重新审视与中共关系的同时，其将深化加强与台湾的伙伴关系。
+据当地媒体报道，本周早些时候，以色列城市佩塔赫蒂克瓦的拉宾医疗中心首次在一名年轻孕妇身上发现了这种混合感染。
 
-参考链接：[捷克新政府友台 專家：料跟進立陶宛 退出中國「17+1」機制](https://news.ltn.com.tw/news/world/breakingnews/3788483)
+据医院称，这位年轻孕妇没有接种过中共病毒疫苗，也没接种过流感疫苗，她只出现了轻微的症状，生产也顺利结束，并准备周四出院。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+拉宾医疗中心贝林森医院妇科主任阿农-维兹尼泽（Arnon Vizhnitser）博士在接受当地媒体Hamodia采访时谈到，这位孕妇一到医院就出现症状，并被诊断出患有流感和中共病毒。三次测试结果都是阳性。
 
-总编：飞虹
-编辑：天滅中共
-校正/发稿：Fei797
+这两种病毒都攻击患者上呼吸道导致呼吸困难。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿农-维兹尼泽博士还指出，这位孕妇是世界上首例Flurona混合病毒病例。
+
+以色列专家推测，国内可能会有更多的’Flurona’混合病毒感染者，尤其是在流感 “神秘地 “休息了一年之后，又猛然出现。
+
+另据《国土报》报道，截至上周五，以色列卫生部最新统计数据显示，已有5,000例奥米克戎（omicron）病例，其中大多数跟普通感冒类似–没有一例奥米克戎病例是致命的。
+
+尽管如此，以色列军队冠状病毒工作组的负责人上周四警告说，随着奥米克戎的传播，医疗系统将 “崩溃”。
+
+虽然以色列是世界上中共病毒疫苗接种率最高的国家之一，并且，政府官员们也承认没有任何证据表明接种中共病毒疫苗对奥米克戎新变体有效，但以色列还是为第四剂实验性中共病毒疫苗接种开了绿灯。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+[新闻来源链接](https://www.thegatewaypundit.com/2022/01/first-case-flurona-detected-almost-fully-vaxxed-israel-virus-supposedly-hybrid-flu-coronavirus-go/)
+
+
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

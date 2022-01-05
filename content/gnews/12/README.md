@@ -2,28 +2,35 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1825472/)
+## 中共颁布家庭教育恶法再走文革，制造对立违背人权伦理
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825611/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+网易2022年1月3日刊载：家庭教育从“家事”上升到“国事”，父母“依法带娃”时代来了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-264.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/01/image-265.png)
+**短评：**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+中共的恶法，从来没有一条是为老百姓考虑的，每一条法律条文都是射进老百姓身体的子弹。这一次，邪恶的中共又把手伸向了娃娃的脑袋。 全国人大也再次在悄无声息中就把人民给代表了。
 
-视频参看：[2022.01.05早GTV新闻访谈](https://gtv.org/video/id=61d59cd831a71619b57529fe)
+2022年新年伊始，中共就迫不及待地颁布了家庭教育恶法，摆明了是要走文革的路线。“依法带娃”，剥夺父母、家庭、监护人对孩子教育的自主权，今后教育孩子的必须遵从中共指令，破坏人权、违背伦理，邪恶与暴力无以言表。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+恶法第一条：“教育未成年人爱党、爱国、爱人民、爱集体、爱社会主义，树立维护国家统一的观念，铸牢中华民族共同体意识”。爱党、爱党的国、爱人民、爱集体、爱社会主义被摆在了最重要的位置，尤其是把强制爱党放在至高的地位，竟然比自己的父母和亲人都要重要！这不仅仅是荒唐，更是用心险恶、伤天害理。人为制造家庭对立，企图让娃娃听党话谋害父母，文革时父母与子女互相检举揭发陷害的画面再次回到了你我身边，历史再次重演，不知又要酿成多少人间惨剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+如果所谓的统一是让大家像韭菜一样被收割一辈子、而且看不到任何希望，那么，独立便成了唯一的退路。所谓的共同体意识无非是让娃娃从小就学习把大家威胁绑架到一条贼船上的绑匪思维，就像这次的中共病毒与毒疫苗一样，“要么让我当皇上听我的，要么让你下地狱”。可是中共忘了自己才是魔鬼，地狱就在中共治下。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+邪恶的中共不仅性侵要从娃娃开始，现在连对韭菜的洗脑都要从娃娃开始，而且更加变本加厉，丧心病狂。但是，坚信善良正义的人们不会退让。中共，是时候在娃娃和父母们的愤怒与呐喊声中归位了，和发动文革的毛腊肉一起，见鬼去吧！
+
+文章观点仅代表作者，与Gnews平台无关
+
+新闻链接：[**https://www.163.com/dy/article/GSQ7FMFL0551NG2W.html**](https://www.163.com/dy/article/GSQ7FMFL0551NG2W.html)
+
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
