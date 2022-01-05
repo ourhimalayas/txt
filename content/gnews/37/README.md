@@ -2,27 +2,27 @@
 ---
 
 
-## 因言被封：推特永久封禁美众议员的个人账户
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822292/)
+## 受疫情影响英国面临严重员工短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822402/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-2.jpg)
-格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
+据英国《独立报》1月3日报道，由于中共病毒感染继续导致员工短缺，英国各地的垃圾箱收集已被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8.jpg)
+因中共病毒自我隔离导致员工人数减少，曼彻斯特、埃塞克斯、萨默塞特和白金汉郡的地方当局宣布减少服务或完全暂停废物收集。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-1-1.jpg)
+最近几周，由于奥米克戎变种病毒疫情的爆发，“中共病毒”确诊病例不断上升，数个行业普遍存在工人缺勤，促使政府警告公共部门领导人要为多达四分之一的员工无法工作做好准备。
 
-据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
+在中共病毒感染率高升的情况下，中学被告知在返回上课之前，要对所有学生进行现场新冠病毒检测。教育部长表示，如果教师短缺，也允许学校将学生留在家里进行在线教学。
 
-耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
+英国卫生安全局表示，截至1月2日上午9点，英格兰和威尔士记录了137,583例新冠确诊病例。
 
-参考链接：
-1) . [Twitter permanently suspends Rep. Marjorie Taylor Greene’s personal account over covid-19 misinformation](https://www.washingtonpost.com/nation/2022/01/02/marjorie-taylor-greene-twitter-suspension/)
-2) .[When Maxine Waters can go to the streets and threaten violence on Twitter, Kamala and Ilhan can bail out rioters on Twitter, and Chief spokesman for terrorist IRGC can tweet mourning Soleimani but I get suspended for tweeting VAERS statistics, Twitter is an enemy to America and can’t handle the truth.](https://gettr.com/post/plf6qx50e8)
+参考链接：[Bin collections cancelled as Covid infections cause staff shortages](https://www.independent.co.uk/news/uk/home-news/bin-collections-staff-shortages-covid-b1985770.html?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 总编：文特
-编辑：Kathy文艺
+编辑：Lakeman文仁
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
