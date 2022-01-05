@@ -2,51 +2,46 @@
 ---
 
 
-## 特鲁多简要介绍了目前可用的联邦新冠福利
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1825835/)
+## 喜马拉雅币：郭文贵先生喜爱的加密货币
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1825849/)
 
-作者：Lisa Belmonte
-翻译：Himasally
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-50.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-271.png)
 
-由于Omicron近期在多个地区迅速扩散，一些省市相继实施更严格的管制措施。对于近日受到公共卫生措施影响的人，总理特鲁多在3日发文表示，现在联邦已经提供了一系列福利和资助，人们可以申请领取。
+喜马拉雅币有很多东西需要解读：比方不到两周的时间里悄然放大到270亿美元（单价27美元）的估值；另有有一个音乐视频“Hcoin to the Moon”，视频中的新中国联邦领导者郭文贵先生抽着雪茄，在游艇上闲逛，开着一辆红色跑车。
 
-特鲁多昨日在Twitter上表示，“由于Omicron毒株迅速扩散，全国一些地区已经开始实施新的限制政策，新的一年并非以我们想要的方式开始。”
+这首歌的歌词，从中文翻译成英文后，描述了一个暗淡的世界：“自由，这样一个熟悉的词/但它不知不觉地离我越来越远。” Hcoin to the moon的[歌词](https://youtu.be/skF_lX46_7Y)还列举了相关的喜马拉雅币的优点，喜马拉雅币是一种追踪美元的稳定币：
 
-“不过我想要你知道的是，我们将继续确保你能得到所需要的支持，” 杜鲁多写道。
+由最先进的加密技术守护的安全；没有人可以把你的财富夺走；还有20%的黄金储备附加在价值上；欢迎来到世界/来到新世界/欢迎来到世界/H-Coin to the moon。
 
-接着特鲁多在这条推文下面接连发布了五条信息，细数联邦所提供的几项福利项目：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-275.png)
 
-“如果你因为必须留在家里照顾12岁以下的孩子，或者你的家人需要监管照顾，那么你可以申请Canada Recovery Caregiving Benefit（CRCB）福利。这项支持对那些雇员以及自雇人士都适用。”（据悉，这项福利将为每个家庭每周提供500元的收入，税后大约每周450元）
+“到月球”是值得注意的，因为这已经成为一个集结号，是加密货币交易者的指导性希望，即持有的价格将巨大地飙升。
 
-“如果你因为新冠而生病或需要自我隔离，导致无法工作，你将可以申请Canada Recovery Sickness Benefit福利。这个项目对于那些因患有严重的健康问题，感染新冠后出现的风险更高，从而影响到工作的人也适用。”（据悉，这项福利将为符合条件者每周提供500元的收入，税后约每周450元）
+但是，来自郭文贵显示和前唐纳德·川普顾问史蒂夫·班农的支持表明，喜马拉雅币的工作不仅仅是加密货币的欢呼声。
 
-“如果你是一位员工，因为疫情导致的公共卫生封锁措施而受到直接影响，那么Canada Worker Lockdown Benefit福利将能为你提供帮助。它将给你临时的收入支持，帮助你维持生计。”（据悉，这个项目将每周提供300元的资助，税后计270元）
+郭文贵先生和班农先生多年来一直公开反对中共国伪政府，而班农上周的评论表明加密货币是这场斗争的最新战场。喜马拉雅币本月的首次亮相也很引人注目，因为在9月，中共国扩大了对使用加密货币的打击力度。
 
-“如果你有自己的企业，那么Tourism and Hospitality Recovery Program项目、Hardest-Hit Business Recovery Program项目将能为你提供薪资及租金补贴。此外，Canada Recovery Hiring Program项目有效期也已经被延长至5月7日。”
+班农在其节目中声称称，喜马拉雅币的首次亮相具有”纪念意义”，并将其放在与中共国的斗争中。“如果你看一下对中共的反击的制度化，它是相当令人印象深刻的，”Bannon说。
 
-“如果你想了解这些福利或资助项目的细则，或者如果你想要申请支持，可以点击t.co/2Bcvjv6Dc5查询。我们将继续为你、你的家人以及你的企业提供帮助，因为我们说过，我们会支持你，我们是认真的，” 特鲁多在文中写道。
+喜马拉雅币只出现在喜马拉雅交易所的交易中。它不包括在 CoinMarketCap 的一长串全球加密货币名单中，该名单已经成为数字代币估值的实际来源。在喜马拉雅交易所，其价格已经从月初开始交易时的10美分跃升至现在的27美元左右（目前在30-40美元左右震荡）。
 
-此前，联邦政府已经扩大了对封锁的定义，被限制容量的区域等也被算在封锁的范围内，因此更多人可以得到福利金。
+喜马拉雅交易所首席执行官杰西·布朗(Jesse Brown)说，已经发行了10亿枚硬币。这相当于大约270亿美元的市场价值，与 CoinMarketCap 所说的以狗币（Shiba）的价值相似。
 
-来源：https://www.narcity.com/justin-trudeau-gave-a-rundown-of-federal-covid-19-benefits-that-are-available-right-now
+布朗在接受采访时说，郭文贵先生与喜马拉雅交易所达成协议，允许他的商业客户使用喜马拉雅元稳定币从与这位亿万富翁有关的公司购买产品。布朗说，该交易平台已经积累了2万个账户，其中一半以上是由讲普通话的华人投资者拥有。
 
-（文章仅代表作者个人观点）
+他补充说，美国、加拿大和日本的人不能使用该交易所，尽管有计划让美国人进入。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+布朗说：“郭文贵先生正在利用他的平台（影响力），让人们参与加密货币和财务自由;我认为这与他的爆料革命灭共计划，以及他希望打击更多的 Cancle culture 有关。”
 
-**关注我们**
+新闻来源：[livemint.com] [Himalaya coin: The $27 bn token loved by exiled billionaire, ex-Trump adviser](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) |发布时间：2021年11月13日
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
