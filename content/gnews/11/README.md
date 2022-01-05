@@ -2,96 +2,42 @@
 ---
 
 
-## 七哥介绍新中国联邦宣言(下)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
+## 德国超过95%的奥密克戎感染病例是疫苗接种者
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1824159/)
 
-[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
+撰稿: 纽约香草山 侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
+据国家脉动12月31日报道，根据美国联邦政府的一份新报告，德国95%以上的奥密克戎中共病毒感染报告病例发生在完全接种疫苗的人身上。这份来自德国的新数据证明了疫苗的危害性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%9B%BE%E7%89%872-1.png)[首页](https://gnews.org/zh-hans/)
 
-**郭文贵
-Miles Guo**
+新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上
+新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上
+[奥米炕病毒](https://gnews.org/zh-hans/tag/%e5%a5%a5%e7%b1%b3%e7%82%95%e7%97%85%e6%af%92/)[注射疫苗人群](https://gnews.org/zh-hans/tag/%e6%b3%a8%e5%b0%84%e7%96%ab%e8%8b%97%e4%ba%ba%e7%be%a4/)
 
-我们说什么的时候都不要忘了
-Whatever we say, please don’t forget
+ [秘密翻譯組G-Translators](https://gnews.org/zh-hans/author/mimifanyizu/) 1月 01日
 
-因这个我们走在了一起
-Because of this (the New Federal State of China Declaration) we have gotten together
 
-这是我们一切的原因
-This is the reason for everything
+0
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%9B%BE%E7%89%872-1.png)
+图片来源：网络截图
+这篇论文由德国机构罗伯特·科赫研究所于12月30日发表，其中包括4,206名感染该病毒最新变体的人的疫苗接种状况信息。研究中报告感染奥密克戎的4020人，相当于总病例的95.6%，已经接受了至少两剂中共病毒疫苗。在奥米炕阳性群体中，28%的人还接受了第三针或加强针。 在整个样本中，只有186名感染奥米炕的人没有接种疫苗，这表明接种疫苗的人感染中共病毒变体的可能性是21倍以上。《国家脉动》曾在12月14日宣布在世界范围内的中共病毒的状况实际就是“接种疫苗（产生）的大流行病”。 罗伯特·科赫研究所的报告还记录了近7000名奥米炕病毒检测呈阳性的人的症状，大多数人几乎没有经历任何不良反应。对于提供了有关症状的信息的6788个病例，大部分没有报告症状或症状轻微。124名患者住院治疗，4人死亡。
 
-不是因为七哥
-It’s not because of (Brother 7) Miles Guo
+这些数据表明中共病毒疫苗不但在防止感染奥米炕变种病毒方面没有任何优势，而且还导致了病毒大规模流行。
 
-不是因为任何人，也不是摇滚巨星
-It’s not because of anyone, nor a rock star
+新闻链接：[新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上](https://gnews.org/zh-hans/1814137/)
 
-刚才长岛哥念我的Title的时候
-Just now earlier when Brother Long Island stated my title
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
 
-已经快和当年的斯大林、列宁同志相比肩了
-It was almost on par with the comrades Stalin and Lenin back then
+校正/发稿：浪迹天涯
 
-伟大的国际共产主义创始人
-the great founder of international communism,
-
-伟大的苏联共产党创始人
-the great founder of the Communist Party of the Soviet Union,
-
-伟大的苏联苏维埃主席
-the great Soviet chairman of the Soviet Union,
-
-伟大的苏维埃共产党主席、总书记
-the great chairman of the Soviet Communist Party, General Secretary
-
-念好半天，大家都快睡着了
-He has spent half a day to state, and everyone is almost falling to sleep
-
-实际上很简单
-It’s actually very simple
-
-就这一个
-Just this one (the New Federal State of China Declaration)
-
-我们今天就这一个
-Just this one today
-
-绝对是因为这个走在一起
-It’s definitely because of this one we have gotten together
-
-无论是铁血组，还是联盟委员会，还是战友们
-Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
-
-当谁忘掉这个的时候
-Whoever forgets this,
-
-你真的没有记住的时候
-and really don’t keep this in mind,
-
-你一定是被淘汰那个人
-You will definitely be that individual that gets eliminated
-
-* * *
-
-Date: 01/02/2022
-原视频标题: 七哥介绍新中国联邦宣言(下)
-(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
-原视频日期：2022/01/01
-原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
-任务编号：KC394(3394)
-视频时间段 : 0:00-00:52
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-00：11 Title 改为 头衔
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

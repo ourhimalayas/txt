@@ -2,26 +2,33 @@
 ---
 
 
-## 秘翻在线：是供应链关闭的声音吗？——中共封闭世界最大的港口城市
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823809/)
+## 疫苗暴政酿悲剧 澳洲男子被迫自焚抗议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823867/)
 
-**翻译：意翎**
+作者：加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒1月3日消息，澳洲一名男子选择在元旦日当天，自焚反抗当局的疫苗暴政。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-132011.jpg)**宁波空无一人的街道**
-《零对冲》资深记者泰勒·歌顿（Tyler Burden）报道，中共国正在应对三起严重的疫情，包括东部港口城市宁波，拥有130万居民的小城市禹州以及1300万人口的大城市西安，都无一例外均被封锁，公共交通、出租车禁止运行和学校停课。
+有目击者表示，该男子当时正坐在车里，一边大声疾呼自己对强制疫苗的愤怒，一边往身上和车里浇汽油，然后点火自焚。救护车很快赶到，将当事人送往医院救治，目前情况危殆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-16.jpg)
+事发地隶属维多利亚州，当地政府要求所有进出酒吧、餐馆及其他公共场所的人，都必须出示疫苗接种证明，所有公司雇员也必须完全接种新冠疫苗。
 
-世界最大的港口城巿宁波上周末报告了16例病例，在过去的6个月里，这座港口城市已经经历了3次封城。与此同时，在两名飞行员的病毒检测呈阳性后，过去一周已有大约200名飞行员被隔离。
+参考链接：[疫苗暴政酿悲剧 澳洲男子被迫自焚抗议](https://thehill.com/changing-america/well-being/mental-health/587989-man-sets-himself-on-fire-after-angry-rant-about)
 
-对中共国经济来说，幸运的是宁波的新增病例数量远低于西安的新增病例数量。西安目前处于大规模的封锁中，这座大城市的人们正在为购买食物而苦苦挣扎，这种情况连中共国的官媒都承认，但目前尚不清楚这种情况是否有所缓解。世界对西安的情况感到好奇，因为批评中共的人士在推特上指出，西安没有出现像武汉当时报道封城消息的“公民记者”，那些人大多数都失踪了，或者被中共当局以其他方式处罚了，中共以杀鸡儆猴的方式恫吓吹哨人。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-中共目前必须控制住宁波的局势，因为冻结港口将对整个中共国经济乃至更广泛的全球经济产生巨大影响。正如我们前几天所注意到，特拉维夫的以色列事务所的交易员们已经开始对中共国的供应链关闭前景感到恐慌，尽管西安的大型国有企业坚称封锁并未对生产造成重大影响。但值得提醒的是，上一次中共国的大型港口深圳盐田港或宁波港被关闭时，供应链几乎崩溃，海运费变成了天文数字。
+总编：飞虹
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-中共国于上周结束了2021年的封锁，报告了自武汉封城以来最多的新增病例，从总体上看，新年以来每天新增病例接近200例。对此，有网友怀疑中共有相当多的借口将他们负债累累的经济崩溃归咎于新冠病毒，他们封锁城市是为了遏制潜在的叛乱爆发，而不是关心人民的福利。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**原文链接：**
-
-[https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port](https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

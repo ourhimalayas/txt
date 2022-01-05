@@ -2,32 +2,20 @@
 ---
 
 
-## 使用消毒鼻腔喷雾剂和漱口液来预防中共病毒感染
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1823868/)
+## 郑州今天起开展全市核酸检测，不参加者健康码标记为黄码
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1823985/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-6.28.12-PM.jpeg)Image: 24hamburg.de
-就像静脉注射和羟氯喹（HCQ）一样，碘被大制药公司贴上了 “危险 “的标签，因为它可以保护/治疗，不需要消毒剂、口罩、”疫苗 “和封锁, 而且价格便宜。
+撰稿：追着曙光跑
 
-前线 COVID-19重症监护联盟 (FLCCCA)建议:
+根据中共郑州发布1月5日的消息，郑州市新冠肺炎疫情防控指挥部办公室5日发布3号通告：鉴于目前国内外疫情防控形势的复杂性、严峻性，为彻底排查潜在人群感染者，经郑州市新冠肺炎疫情防控指挥部研究，决定在郑州市域开展全员核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-05-at-15.41.57.jpeg)图片来源：网络
+通告指出，对不参加本次全员核酸检测的居民，健康码一律标记为黄码，同时按照《中共国传染病防治法》等相关规定，本人将承担相应法律责任。
 
-抗病毒漱口水, 每天漱口3次（不要吞咽；必须含有洗必泰、聚维酮碘或氯化乙酰吡啶）。
+根据通告，本次采样分时段、分区域错峰进行，航空港区、郑东新区、经开区、高新区、金水区、二七区、中原区、管城回族区、惠济区检测时间为1月5日10:00-20:00。上街区、巩义市、新密市、荥阳市、登封市、新郑市、中牟县检测时间为1月6日9:00-20:00。
 
-碘酒喷鼻剂/滴鼻剂, 使用1%聚维酮碘，每天2-3次。(怀孕期间不超过5天）。
+本次检测对象为郑州市域内所有居民（包括本地常住人口、暂住人口、临时流动人口、外籍人口等）。实行分类管理的封控区、管控区、防范区区域内已在1月4日参加核酸检测的人群不再参加本次全员核酸检测。
 
-来自孟加拉国的随机控制试验发现，鼻/口碘喷雾剂可使白血病的住院率降低84%，死亡率降低88%。
-
-聚维酮碘鼻腔喷雾剂杀死病毒并防止未来感染，便宜、简单、有效!
-
-参考链接:
-
-[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/)
-
-[https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections](https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections)
-
-[https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x](https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x)
-
-校对发布：Shifter
+信息来源：[​郑州市新冠肺炎疫情防控指挥部关于开展全市全员新冠病毒肺炎核酸检测的通告](https://mp.weixin.qq.com/s/eCofdnem1VuGBdfsu268nQ)
 
  
 
