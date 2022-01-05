@@ -2,23 +2,24 @@
 ---
 
 
-## 德国执政党呼吁加强网站监控，防止人们上街游行抗议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824165/)
+## 瑞典国王和王后打过3针疫苗仍然感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824182/)
 
-#### 撰稿：彩虹 
+整理编辑：东京樱花团｜peterwong
+![](https://lh4.googleusercontent.com/nqmm5sCjNa6JCAvnySdZWuPVCU-5CyqxdL76K-puXb_LYejXjRt-qMiX7aJWxE6GaStzF8imxuVV2wmmm1j9ep3rYL5Ayv2NYn7RPt9_UHjkkSZXn7VTXe5SCb4u2ni8TGrjRW6A)[*图片来源*](https://cdn.hk01.com/di/media/images/3381317/org/1e6d5b03c2a0d587077f83681387629a.jpg/rLkRz6aKRkk1vqtydCgfvHpDp4vvPWPHfGdbZnxnW2Y?v=w1280r16_9)
+瑞典王室周二（1月4日）在声明中表示，国王卡尔十六世古斯塔夫(King Carl XVI Gustaf)和王后西维亚(Queen Silvia)中共病毒（新冠）检测呈阳性，他们之前都已打过三针中共病毒疫苗。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-4.jpg)图片来源：美国新闻网
-1月4日，《新闻极限》报道说，周一，近十万名德国人走上街头，抗议国家推行强制接种中共病毒（COVID-19）疫苗。为了应对越来越多的“激进抗议”，德国执政的自由民主党(FDP)成员呼吁国家监控社交媒体网站电报群（Telegram），因为该网站被该国持不同意见者用来组织抗议活动。
+在Omicron病毒变体的肆虐下，瑞典染疫人数不断增加。卫生机构周二的最新数据显示，瑞典12月30日新增11,507例病例，创下单日纪录新高。
 
-据《柏林日报》报道，最近的抗议活动虽然主要是和平的，但确实出现了一些冲突。参加“未经授权允许”步行的大多数人，让人想起了该国共产主义时代。在1989年至1991年，每到周一，德国人会参加德意志民主共和国的和平抗议活动。
+王室在声明中表示：“已经完整接种三剂疫苗的国王和王后症状轻微，在这样的情况下，他们感觉还好。”
 
-根据德国《明镜周刊》报道，（政府）正在努力开始用公共巴士将未接种中共病毒疫苗的人送往中共病毒疫苗接种点。而《布赖特巴特新闻网》则说，一项由总理奥拉夫·肖尔茨（Olaf Scholz）支持的措施则目的是将接种中共病毒疫苗变为强制性的。
+王室表示，75岁的国王和78岁的王后正在自我隔离，目前追踪相关接触者的工作也在进行中。
 
-**新闻来源**
+消息来源：[**瑞典国王和王后确诊染疫隔离中 症状轻微**](https://cn.reuters.com/article/sweden-king-queen-covid-0105-idCNKBS2JF03B?il=0)
 
-[100K Germans Protesting COVID-19 Mandates, Ruling Party Cracks Down on Speech](https://www.newsmax.com/newsfront/germans-speech-protests-covid19/2022/01/04/id/1051058/)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
