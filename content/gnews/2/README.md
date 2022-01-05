@@ -2,44 +2,31 @@
 ---
 
 
-## 美国保险公司数据显示疫情后工作年龄人口死亡率激增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826091/)
+## 有声|华为斥巨资渗透收买英国顶尖大学
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826156/)
 
-作者：纽约香草山教育部 Naughty(文行)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体12月30日报导，依据信息自由要求所获得的部分数据显示，中共华为电信公司自2016年至2021年底，至少已花费七千万英镑，分别送给英国各大顶尖大学，用于收买渗透各大学的教授及相关人员。
 
+华为用钱收买顶尖大学的明显例子发生于剑桥大学耶稣书院，在2020年，剑桥大学耶稣书院发表了一份关于电信改革的研究报告，并在报告中赞扬华为。此后，耶稣学院承认从华为收到了15万英镑，用于撰写此报告的费用；此外，该学院还从中共国家留学基金委分别收到了20万到40万英镑的献金。在2021年9月，剑桥一个研究中心的大部分研究人员被发现与华为有关联，因此，华为被指控“渗透”了该研究中心。
 
+原文链接:[华为斥巨资渗透收买英国顶尖大学](https://gnews.org/zh-hans/1819802/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+音频处理：喜山必胜Maverick
 
+发稿：Daxia
 
-
-总部位于印第安纳波利斯的保险公司OneAmerica首席执行官戴维森表示，公司18-64岁的客户的死亡率比疫情前增加了40%，他称这是保险业历史上团体人寿保险业务最高的死亡率。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-18.jpg)图片来源：Zerohedge
-戴维森在上周的在线新闻发布会上称如此高的死亡率从2021年第三季度一直持续到第四季度，40%的增幅是闻所未闻的。
-
-据戴维森称，大多数提交的死亡案例并没有被归类为新冠病毒致死，实际上工作年龄人口因疫情而死亡的数字远比统计数字要高。
-
-他补充说，“目前该公司的索赔率不断上升，这部分本来是公司最小的业务板块，但现在我们预计这笔费用将远远超过1亿美元，它对公司产生了巨大影响。”
-
-OneAmerica遭遇的情况真实的验证了郭文贵先生在中共病毒爆发之初的判断：病毒爆发必然导致保险公司破产，保险公司破产必将导致银行破产，银行破产最终会导致金融崩溃。
-
-新闻来源：[https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

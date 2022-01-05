@@ -2,47 +2,60 @@
 ---
 
 
-## 大型制药公司推动批准儿童 COVID-19 疫苗以逃避法律责任
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826056/)
+## 2022/01/05 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826125/)
 
-作者：马修·戴维斯
+**主播**：舒平风｜**嘉宾**：防木
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片16.png)图片来源：网络
-自然新闻：调查记者乔丹·沙赫特尔 (Jordan Schachtel) 表示，目前美国没有食品和药物管理局 (FDA) 批准的针对武汉冠状病毒 (COVID-19) 的疫苗，大型制药公司打算使用儿童作为疫苗的合法的人体盾牌。
 
-除了金钱收益之外，辉瑞、Moderna 和其他制造商似乎需要儿童作为其产品的合法人盾。 儿童面临来自 COVID-19 的风险几乎为零，但继续经历令人担忧的副作用。 美国卫生当局已经确认，儿童和青少年以极其温和的方式感染 COVID-19（如果有的话）。
 
-一项研究还表明，多达 80% 的儿童会出现可能导致严重创伤的副作用。 在这项研究中，辉瑞 (Pfizer) 的 COVID-19 疫苗在 1,097 名 12 至 15 岁的儿童和青少年中进行了测试。 至少 866 人经历了某种形式的令人不快的副作用——466 人被描述为“轻度”，393 人被描述为“中度”，7 人被描述为“严重”。
+**板块1–中共病毒**
 
-根据沙赫特尔的说法，新闻周刊、《今日美国》、路透社和美联社的事实核查员兜售虚假信息以掩盖真相。
+1. 法国马赛附近发现新的变种病毒“IHU”，比Omicron更有传染性，对疫苗更高抗性。
 
-观察人士指出，里根政府通过了一项法律，如果制药商获得批准在儿童身上使用疫苗，他们就可以通过法律保护他们的疫苗免于承担责任。  1986 年通过成为法律的《全国儿童疫苗伤害法》(NCVIA) 为药品制造商提供了法律责任保护，如果他们获得了所有年龄段的完全授权。
+各大医疗公司和政府可能随着病毒不断变异，不断加强疫苗加强针推广。
 
-加上缺乏批准的疫苗，沙赫特尔说，没有计划很快在美国提供一种疫苗。
+2. 英、法单日感染数创新记录。法国新增二十七万，英国新增二十二万。
 
-**辉瑞 的 FDA 批准的 COVID 疫苗无处可寻**
+新病毒传染性强，全球单日新增超千万。法国总统马克龙表示将进一步管控主要针对未接种疫苗人群并“甩锅”疫情责任给未接种人群，马克龙在法国支持率上升。
 
-在 8 月 23 日获得 FDA 的批准后，拜登政府和其他州将辉瑞的 comirnaty 的批准视为具有里程碑意义的时刻。但这里有一个问题：Comirnaty 无处可寻。
+疫苗刺突蛋白攻击人体免疫系统。
 
-辉瑞（Pfizer）公司获得了紧急使用授权的单独产品是市场上可用的产品。 辉瑞解释说，由于 EUA 注射剂的存在，comirnaty 尚不可用，但向公众保证它很快就会可用。
+**板块2–财经**
 
-尽管声称它与 comirnaty 相同，但为什么 FDA 不会批准可用产品的问题也被提出。 观察人士指出，辉瑞希望所有年龄段的人都可以使用 comirnaty，以便获得额外的法律责任保护。
+1. 因冬奥会临近，中共国封锁宁波港。
 
-Steve Kirsch 在他的 Substack 上说，如果被批准用于儿童，comirnaty 将神奇地出现在市场上。
+发现几例新增感染，随即封锁，宁波港关闭将对全球物流运输有影响。中共国强硬的隔离政策凸显治理方式强硬且不讲人性。
 
-“comirnaty 不可用的原因是这些注射剂会使公司承担责任，因为完全许可的产品没有 EUA 产品的责任豁免，”Kirsch 说。
+2. 国家队救市猛投六十六亿美元，华融股份复牌交易暴跌50%以上。
 
-“但是，一旦辉瑞疫苗在儿童中得到完全批准，由于联邦儿童疫苗法 (NCVIA) 的一项规定，辉瑞将获得所有年龄组的责任豁免。 到时候，他们就完成了。 他们可以在完全批准的情况下为所有年龄组销售 COVID 疫苗产品，并且在它导致您死亡或致残时不承担任何责任。”  （相关：超过 80% 接受辉瑞 Covid 注射的儿童出现副作用。）
+华融前董事长赖小明去年被判处死刑，因受贿罪、重婚罪等，明显判决过重。毛泽东外孙女孔东梅与陈东升（泰康保险）。存在明显“重婚罪”痕迹，依然相安无事，中共治下只准州官放火不准百姓点灯。
 
-美国疾病控制与预防中心 (CDC) 表示，辉瑞不打算生产含有 EUA 的comirnaty疫苗，同时全国仍可使用 EUA 疫苗。 根据 FDA 的说法，Comirnaty 是一种法律上独特的但存在某些差异的产品。
+3. 前川普总统情报官员克里夫-西姆斯痛斥华尔街和大科技公司协助中共国崛起。
 
-[https://www.afinalwarning.com/582454.html](https://www.afinalwarning.com/582454.html)
+西方华尔街和大科技公司普遍属于私人企业单纯注重利益，中共正好“投其所好”，双方“一拍即合”。导致现在西方媒体和舆论导向看中共“脸色”。
 
-编辑/发布：LILY
+**板块3–网络科技**
 
-20220105
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+1.乔·罗根宣布加入Gettr和马乔里·泰勒·格林事件，吸引大量新用户加入Gettr。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,42 @@
 ---
 
 
-## 如果共和党在 2022 年赢得参议院，保罗誓言将福奇绳之以法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826030/)
+## 外媒：中共故意少报新冠病毒死亡人数
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826069/)
 
-作者：肯尼·韦伯斯特
+作者：银河勇气星—骄子
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61d444b68ce8cd307827de851-edited.jpg)图片来源：网络
-“我将担任参议院一个委员会的主席，我们将使用传票的权力把所有的记录拿出来”，参议员兰德保罗已承诺直接追捕安东尼福奇，并将他绳之以法，因为他多次宣誓就他参与了武汉病毒学实验室的功能获得研究。
 
-兰德最近在接受他的老人、前国会议员和自由主义传奇人物罗恩·保罗的采访时说，他计划领导参议院惩罚福奇，因为他用美国税收资助了 COVID 大流行的开始。
 
-华盛顿特区 – 11 月 4 日：参议员Rand Paul（肯塔基州共和党）于2021年11月4日在华盛顿特区国会山德克森参议院办公楼举行的参议院卫生、教育、劳工和养老金委员会听证会上向国家过敏和传染病研究所所长Anthony Fauci询问了正在进行的新冠病毒疫情应对措施。Paul呼吁Fauci辞职，并指控他谎报中国武汉一家实验室的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-来源链接：
 
-[https://wjbo.iheart.com/featured/walton-and-johnson/content/2022-01-04-rand-paul-vows-to-bring-fauci-to-justice-if-gop-wins-back-senate-in-2022/](https://wjbo.iheart.com/featured/walton-and-johnson/content/2022-01-04-rand-paul-vows-to-bring-fauci-to-justice-if-gop-wins-back-senate-in-2022/)
 
-编辑/发布：LILY
+1月2日据福布斯评论员文章，自新冠病毒大流行以来，其起伏和变异逐渐成为经济活动和金融市场反应的晴雨表，呈正相关。西方民主国家和中共国因体制的不同，对待各自的新冠疫情采取了不同的方式。尽管中共在疫情数字表现上似乎非常完美，但金融市场的表现却在下跌，让人不得不怀疑新冠病毒统计数字的准确性。
 
-20220105
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+美国有超过82.5万人死于新冠病毒，中共国官方公布只有4636人。研究表明由于新冠病毒大流行期间公共卫生条件的制约，美国可能存在的新冠病毒死亡人数少报了大约30%。据郭先生直播，2021年11月8日前，中共死于新冠病毒人数为1370万人。
 
+中共对经济数据的谎报向来臭名昭著。对新冠病毒大流行以来的各种不配合溯源调查，从未共享的真实病例数据，严重阻碍了对疾病的科学理解和应对措施的有效性。
+
+种种迹象显示中共已经深陷塔西陀陷阱。
+
+新闻来源：[https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/](https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

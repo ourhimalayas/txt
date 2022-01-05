@@ -2,82 +2,58 @@
 ---
 
 
-## 全球疫情更新（伦敦十分之一的人口已经感染）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825916/)
+## 疫苗灾难开始显露？美国青壮年死亡大增40%
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825966/)
 
-#### **整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜疫情更新.png)
-雅典娜疫情更新（2022年 1月5日）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/us-coronavirus-dead.jpeg)图片来源：NPR
+翻译/编辑：守望黎明
 
-**一，全球疫情基本数据**
+总部设在印第安纳波利斯的壹美人寿保险公司（OneAmerica）的负责人说，工作年龄的人的死亡率比新冠疫情前的水平惊人地上升了40%。
 
-感染总数：295,242,378（日新增1,771,851，14天增幅+156%）
+该公司首席执行官斯科特·戴维森（Scott Davison）在本周的一个在线新闻发布会上说：“我们现在看到的是这个行业历史上最高的死亡率——得出这个结论的不仅仅是我们OneAmerica一家保险公司。这一数据在保险业务的每个行业中人都是一致的。”
 
-死亡总数：5,455,889（日新增6,153人，14天增幅–11%）
+OneAmerica是一家价值1000亿美元的保险公司，自1877年以来，其总部一直设在印第安纳波利斯。该公司有大约2400名员工，销售人寿保险，包括向该州的雇主提供团体人寿保险。
 
-每万人感染人数：454.8777 人（除中国外）
+戴维森说，死亡人数的增加代表了 “巨大的、巨大的数字”，而且死亡的不是老人，而 “主要是18至64岁的工作年龄的人”，他们都是通过OneAmerica公司办理团体人寿保险计划的公司雇员。
 
-**二，全球“疫苗”毒针统计数据**
+他说：“这种情况在2021年三季度就出现了，而且一直持续到了第四季度，死亡率比大流行前足足增长了40%。”
 
-“疫苗”毒针注射总数：92.1亿
+他说：“一个200年一遇的灾难也只能把死亡率推高10%，所以你可以想见死亡率闻所未闻的提高40%，是多么糟糕的事情。”
 
-完全“接种”：38.8亿人
+戴维森是在12月30日由印第安纳州商会组织的网络新闻发布会上发言的几位商业领袖之一。
 
-完全“接种”百分比：49.8%
+戴维森说，已经提交的大多数死亡索赔没有被归类为新冠死亡。
 
-**三，澳洲疫情和“疫苗”数据**
+“数据向我们显示的是，已报告的工作年龄人口新冠死亡的人数大大低于大疫情中的实际死亡人数。他们的死亡证明并未标明新冠为死因，但死亡人数上升了，只是巨大的、巨大的上升。”
 
-感染总数：612,106（今日新增 64,774人）
+他说，与此同时，OneAmerica公司发现残疾索赔在“上升”，起初是短期残疾索赔，现在增加的是长期残疾索赔。
 
-死亡总数： 2,289人（今日新增 18人）
+他说：“对OneAmerica来说，预计这方面的成本增加将远远超过1亿美元，对于这个最小的业务品种来说，这一影响是巨大的。”
 
-每万人感染人数：208.3541人
+他说，这些费用将转嫁给购买团体人寿保险的雇主，使他们不得不支付更高的保费。
 
-“疫苗”毒针注射总数：43,044,030 （日新增212,497针）
+疾病预防控制中心的每周死亡人数反映了死亡证明上的信息，因此有长达八周或更长的滞后期。在11月6日为止的一周内，印第安纳州死于新冠的人数比一年前少得多——是现在的195人对过去的336人，但死于其他原因的人数却更多——是1350人对过去的1319人。
 
-完全“接种”：18,894,113人
+这些死亡数是针对所有年龄段的汇总，而戴维森所引用的信息是针对办理了团体人寿保险的工作年龄段的企业雇员。
 
-第二针“接种”百分比：77.0%%
+在戴维森发言的同一新闻发布会上，印第安纳州医院协会主席布莱恩·塔伯（Brian Tabor）说，全州的医院正被 “患有许多不同疾病”的病人所淹没，他说： “不幸的是，在这场大流行中，平均健康状况在下降。”
 
-16岁以上人口接种至少一剂疫苗的比例：94.6%
+在后续的谈话中，他说他没有详细的疾病、病况明细来解释为什么印第安纳州有这么多人住院，但戴维森引用的超高死亡率与该州的医院所看到的情况相符。他说：“它证实了我们在一线看到的情况。”
 
-16岁以上人口接种至少两剂疫苗的比例：91.6%
+印第安纳州首席医疗官林赛·韦弗（Lindsay Weaver）博士在12月29日与州长埃里克·霍尔科姆（Eric Holcomb）举行的新闻发布会上说，现在该州的住院人数比一年前引入新冠疫苗之前要高，事实上是过去五年里最高的。
 
-**四，疫情要闻**
+该州医院的ICU床位只剩下8.9%可用，是今年的低点，比大流行期间的任何时候都低。但是大多数重症监护室的床位并不是被新冠患者占用——新冠患者只占用37%，而他疾病的患者使用了54%的重症监护室床位。
 
-澳大利亚病例新增数字继续暴增，超过六万人，感染总数超过六十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量继续增加，共有 3,101 人正在接受治疗。重症监护室共有 194 位患者，其中56 人需要呼吸机。澳洲的真实病例数更高，因为目前报告的病例数受限于测试能力。[为了减缓测试压力，澳洲总理表示](https://www.smh.com.au/national/australia-news-live-national-cabinet-to-discuss-rapid-antigen-tests-as-covid-19-cases-continue-to-grow-across-nsw-victoria-and-qld-novak-djokovic-confirmed-for-australian-open-20220105-p59lxw.html)，通过快速抗原检测呈阳性的患者将不再需要通过 PCR 检测来确认他们的诊断，同时进行住院治疗和 卡车司机的每周测试要求也被取消了。
+印第安纳州的在线数据显示，现在全州新冠的每日死亡平均人数不到一年前的一半。在一年前新冠最高峰的2020年12月29日，单日死亡125人。在过去的三个月里，单日最高的死亡人数是58人，发生在2021年12月13日。
 
-[九次获得澳网冠军的塞尔维亚人德约科维奇](https://www.smh.com.au/sport/tennis/handful-from-26-applicants-granted-open-medical-exemptions-but-no-special-favour-for-djokovic-tiley-20220105-p59lxn.html)继续成为“主流”媒体和部分民众的粗暴批判的对象。德约科维奇此前数次公开表示拒绝公布他是否接种了中共病毒疫苗毒针。最近他获得了进入澳大利亚参赛的医疗豁免。这本是与其职业和专业无关的个人医疗隐私，维多利亚州政府和澳大利亚网球协会却要求他向公众解释为什么他被授予医疗豁免。主流媒体中对他一片讨伐之声。
+原文链接：[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.fox41yakima.com/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/)
 
-[英国国家统计局 (ONS) 报告](https://www.theguardian.com/world/2022/jan/05/covid-england-ons-data-one-in-15-infected)，根据从随机选择的家庭收集的拭子样本，在截至 12 月 31 日的一周内，英格兰估计每15人中就有一人感染了中共病毒，而在伦敦，这个比例高达十分之一。
+发布：Peter Xin
 
-昆士兰大学的 Garrick法学教授James Allan在《澳大利亚人报》发表文章，标题为[《强制疫苗使我们走向种族隔离和专制》](https://www.theaustralian.com.au/inquirer/vaccine-mandates-set-us-on-path-towards-segregation-and-despotism/news-story/4e708abfa1c62544355bb1575ab9848d)。在主流媒体上发出了对荒诞的疫苗强制政策的的批判。该文章从病毒的致命性，疫苗的有效性等方面论述了强制疫苗政策的非理性及其对民主制度根基的严重破坏，并警告说，＂强制疫苗是一个可怕的、反对个人自由的、灾难性的主意，人们若不能站出来反对，就将永远面对专制、强权的政府。＂
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
