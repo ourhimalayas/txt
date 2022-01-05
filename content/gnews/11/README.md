@@ -2,24 +2,26 @@
 ---
 
 
-## 捷克新政府将与台湾全面合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825352/)
+## 航空公司支付员工高薪维持假期运营
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825387/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据台湾媒体报导，2021年12月中旬上任的捷克总理费亚拉率领新政府公开表示，捷克将展开与包括台湾在内的全球民主国家合作，同时将修正前任政府过度偏向中共与俄罗斯的路线。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-16.jpg)
-报道提及，由五大党派组成的捷克新政府在最新的联合执政协议中明确指出，捷克会重拾以人权为价值导向的外交政策，包括推动捷克版“马格尼茨基法案”，并允许捷克政府对侵犯人权的个人和企业实施制裁。此外，本届政府将扭转总统齐曼和前任总统巴比斯此前采取的亲中共路线。
+1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
 
-也有分析人士认为，在中共难以兑现“17+1”承诺的前提下，捷克或将跟随立陶宛的脚步，退出与中共政府的合作机制。而在捷克新政府重新审视与中共关系的同时，其将深化加强与台湾的伙伴关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpeg)
 
-参考链接：[捷克新政府友台 專家：料跟進立陶宛 退出中國「17+1」機制](https://news.ltn.com.tw/news/world/breakingnews/3788483)
+据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
 
-总编：飞虹
-编辑：天滅中共
-校正/发稿：Fei797
+参考链接：[Airlines Triple Pay For Pilots, Double For Flight Attendants Amid Widespread Cancellations](https://theparadise.ng/airlines-triple-pay-for-pilots-double-for-flight-attendants-amid-widespread-cancellations/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

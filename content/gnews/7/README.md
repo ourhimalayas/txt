@@ -2,26 +2,26 @@
 ---
 
 
-## 航空公司支付员工高薪维持假期运营
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825387/)
+## 芝加哥警察工会主席猛烈抨击中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825404/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
+1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.53.png)
+对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpeg)
+此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
 
-据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
+据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
 
-报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
+参考链接：[Vaccinated Chicago Police Union Boss Says He Has COVID, Slams Vaccine](https://www.thedailybeast.com/john-catanzara-chicago-police-union-president-says-he-tested-positive-for-covid-19-slams-vaccine)
 
-参考链接：[Airlines Triple Pay For Pilots, Double For Flight Attendants Amid Widespread Cancellations](https://theparadise.ng/airlines-triple-pay-for-pilots-double-for-flight-attendants-amid-widespread-cancellations/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：文特
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,33 +2,38 @@
 ---
 
 
-## 有声|为实现硬性“清零” 大批西安民众被迫异地隔离
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1825027/)
+## 工作意愿创新低，全美现离职潮
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825044/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据网易1月2日消息，西安防疫指挥部发布最新指令，1月4日必须实现“社会面清零”。
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/S8N968PP_8RJY82AN8LAA.png)图片来源：NTD News
+翻译：小鱼儿
 
-所谓“社会面清零”，是指社区筛查中的PCR全员阴性。目前西安市已报告了1,600多起病例，在3天之内达到“清零”的硬性要求，而唯一的手段就是强制染疫社区中，所有确诊的和密接的社区居民，进行“连坐式异地集中隔离”。
+编辑： 隔壁老章
 
-这些受重点监控的地区，连夜开展核酸检测，组织人员转移。如果不在规定的时间内接受检测和转移的，一码通自动转红。多个视频显示，数百辆大巴车排满街道，将带着简单行李的大批民众送往城郊，甚至远至陕南陕北的安置房。西安航空学院2000名学生，已被送到商洛和汉中异地隔离。视频可见有的隔离点只有简易架子床，被褥单薄，没有暖气，条件极为艰苦。
+根据《RT新闻》1月4日报道，美国工人辞职的速度创历史新高，加剧了餐馆、酒店等行业的人员短缺，这些企业在竞相争夺求职者，以努力填补空缺的岗位。
 
-有社会舆论批评这样密集地转移人员，会增加群体性感染的风险，实在是劳民伤财。但中共从来都是拍脑袋决策，采用“假大空”措施，罔顾人权，草菅人命。这样的人道主义灾难即将在多个城市上演。
+美国劳工统计局（BLS）周二统计数据显示，11月约有453万工人主动离职，超过了9月份创下的436万的前纪录，辞职总数为全美劳动力的3%，这一数据比一年前跃升了37%。
 
-文字版原文：[为实现硬性“清零” 大批西安民众被迫异地隔离](https://gnews.org/zh-hans/1821721/)
+损失最大的行业是住宿和餐饮业，有92万名工人离职；零售业也有68.6万名工人离职。统计报告显示，医院和其他医疗健保机构也受到严重冲击，离开了59.8万名工人。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+解雇与离职很大程度上是同向的，每有一个人被解雇，就伴有三个以上人辞职。11月企业裁员和其他方式解雇员工总数为137万，比一年前下降了36%，雇主显然不愿意在供给紧张的劳动力市场环境下解雇工人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+看到有政府福利和更多的跳槽机会，以及竞争对手会提供更高的工资和签约奖金，工人们大批离职。其他情况方面看，大流行病也是导致他们重新考虑自己的工作和家庭生活的原因。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+美国劳工局周一表示，11月份仅增加了21万个工作岗位，是近一年来最少的，就业增长远远低于预期。通过道琼斯调查，经济学家曾预测就业增长为57.3万，美国失业率会降至4.2%，但这个数字仍高于新冠大流病前的3.5%。
+
+**原文链接：**[Americans quit their jobs at record pace](https://www.rt.com/news/545160-americans-quit-jobs/)
+
+发布：xinxicangsheng
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

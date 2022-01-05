@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|中共抗疫一瞥：权贵享特供，平民户外冻
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1825028/)
+## 西安社会面“清零”：隧道、车库、看守所竟成隔离点
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1825109/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月3日，据综合消息，西安市由于疫情扩散，在上月23日开始实施封城。 民众只被允许出门接种疫苗，除此之外全部不准离开住家，形同被监管。 近一周来，每日新增有症状确诊人数仍超过百人，无症状者并未被列入统计，其数应更甚于确诊者。
+撰稿:纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
 
-有一盖特视频显示，一曲江新区权贵之家，收到官方特地准备且亲自送来的猪肉、鸡肉、蛋、时蔬等，满满一桌。 另一个盖特视频则呈现出几位大人抱着小孩，站在尚有余雪的户外，抗议官员为了防疫将社区清空，把社区所有住民赶到户外凛冽的寒风下哆嗦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西安隔离.jpg)
 
-为了达成中央要求在1月4日「社会面清零」的指令，西安市政府直接把有阳性病例出现的社区所有住户赶出住家，并集中送到城外的管控区，以此来塑造城内疫情已受到控制的假象。 因此受苦的只有平民百姓，在寒天中挨饿受冻，以及增加感染病毒或加重病情的风险。
+然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
 
-文字版原文：[中共抗疫一瞥：权贵享特供，平民户外冻](https://gnews.org/zh-hans/1820063/)
+郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。[https://www.gettr.com/post/pm3q2xda91 https://www.gettr.com/post/pm149m7a71 https://www.gettr.com/post/pm0rxo83b5 https://m.jiemian.com/article/6982300.html https://www.gettr.com/post/pm9ii6a914](https://www.gettr.com/post/pm3q2xda91%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pm149m7a71 %20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pm0rxo83b5%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://m.jiemian.com/article/6982300.html%20https://www.gettr.com/post/pm9ii6a914)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+编辑/校对/发稿：菩提树
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

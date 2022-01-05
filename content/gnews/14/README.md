@@ -2,18 +2,37 @@
 ---
 
 
-## 文贵大直播 1/5 中共企图用数字货币控制未来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1825314/)
+## 专家呼吁关注奥密克戎变种出现的独特症状
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825357/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot.jpg)图片来源：GTV
-2022年的第一场文贵大直播如约而至，1月5日，爆料革命发起人郭文贵先生在纽约直播现场，用他特有的轻松幽默开场不久，即严正告诉世界，数字货币绝对是人类的未来，但中共正企图通过数字货币控制未来。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
 
-中共的房地产是控制百姓几十年甚至几代人的重要战略工具，是中共一贯沿用的商鞅五术苦民、弱民的典型表现。郭先生不止一次对此爆料、刨析，但中共正在企图运用数字货币，来实现所谓财富共享，努力“稳定”房产市场，让百姓不至于起来推翻政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-4.jpeg)
 
-更令人难以置信的是，中共竟然计划利用数字货币，来实现其开疆扩土的疯狂意图。
+此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
 
-【来源链接】https://gtv.org/broadcast/watch/61d59a1931a71619b57520a5
+不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
+
+参考链接：
+1）[‘Very Strange’ Omicron Symptom: Night Sweats](https://www.newsmax.com/us/covid19-omicron-symptoms-night-sweats/2022/01/02/id/1050743/)
+2）[Watch for These Symptoms of the Omicron Variant](https://www.newsmax.com/health/health-news/covid-omicron-variant-symptoms/2021/12/23/id/1049793/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：飞虹 
+编辑：天滅中共
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
