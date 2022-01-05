@@ -2,42 +2,33 @@
 ---
 
 
-## 美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821573/)
+## 有声|新中国联邦人要拥有爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822409/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/800px-United_States_Navy_SEALs_542.jpg)
+郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
 
+郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
 
- 
-图片来源：commons.wikimedia.org
+原文链接：[新中国联邦人要拥有爱](https://gnews.org/zh-hans/1818310/)
 
+音频处理：喜山必胜Maverick
 
-#### 编译：小红帽
+发稿：Daxia
 
-根据《RT新闻》1月4日报道，**美国德克萨斯州法院裁定，美国海军惩罚不接受总统乔·拜登的疫苗强制令而寻求宗教豁免的军人，是违宪的。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**地区法官里德·奥康纳(Reed O’Connor)周一发布了一项初步命令，阻止海军和国防部执行其疫苗强制令。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-法官在裁决中写道：“本案中的海军服役人员试图证明他们为保护而牺牲的自由是正确的”。“新冠病毒（Covid-19）大流行没有为政府提供取消这些自由的许可。第一修正案没有对新冠病毒例外。我们的宪法没有将军事上排除在外。”
-
-法官正在对35名军人提起的诉讼采取行动，其中包括海豹突击队、海军船员及潜水员，他们希望以宗教理由拒绝接种新冠疫苗。根据法庭文件，原告是天主教徒、东正教徒和新教徒。
-
-法官写道，原告因拒绝接种新冠疫苗而面临被取消服役资格，这将使他们“永远不能被部署”。
-
-代表原告的法律组织 “第一自由研究所”（First Liberty Institute）对该命令表示欢迎。该组织的总顾问迈克尔·贝里（Michael Berry）在给媒体的一份声明中说：“仅仅因为海豹突击队要求提供宗教便利而对他们进行惩罚，这纯粹是报复性和惩罚性的。”
-
-海军没有对此事进行评论。五角大楼发言人约翰·柯比（John Kirby）说：“我们知道该禁令，并正在审查它。”
-
-新闻来源：[Judge rules on US Navy SEALs vaccination dispute — RT World News](https://www.rt.com/news/545113-vaccination-mandate-navy-ruling/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

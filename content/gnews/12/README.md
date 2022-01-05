@@ -2,30 +2,32 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-12
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823865/)
+## 使用消毒鼻腔喷雾剂和漱口液来预防中共病毒感染
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1823868/)
 
-作者：纽约香草山农场 – 天滅中共
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在本期的采访视频中，记者 ISOBEL YEUNG 指鹿为马，将滕彪形容成，为中国人争取民主自由的人权律师，并将滕彪对郭文贵先生的单方面指控作为事实陈述，当郭先生针对细节提出质疑时，Isobel顾左右而言他，并在最后的采访视频中，精心剪辑，以达到丑化郭先生的险恶用心。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-14.jpg)
-现在，我们一起看到，还原采访真相第12期：HBO-VICE拿滕彪说事，断章取义，抹黑郭文贵先生。（播放视频09:48）
+翻译：nstar
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-6.28.12-PM.jpeg)Image: 24hamburg.de
+就像静脉注射和羟氯喹（HCQ）一样，碘被大制药公司贴上了 “危险 “的标签，因为它可以保护/治疗，不需要消毒剂、口罩、”疫苗 “和封锁, 而且价格便宜。
 
-参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-12](https://www.gettr.com/post/pkgc524e89)
+前线 COVID-19重症监护联盟 (FLCCCA)建议:
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+抗病毒漱口水, 每天漱口3次（不要吞咽；必须含有洗必泰、聚维酮碘或氯化乙酰吡啶）。
 
-总编/编辑：天滅中共
-校对/发稿：Hetangyuese
+碘酒喷鼻剂/滴鼻剂, 使用1%聚维酮碘，每天2-3次。(怀孕期间不超过5天）。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+来自孟加拉国的随机控制试验发现，鼻/口碘喷雾剂可使白血病的住院率降低84%，死亡率降低88%。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+聚维酮碘鼻腔喷雾剂杀死病毒并防止未来感染，便宜、简单、有效!
+
+参考链接:
+
+[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/)
+
+[https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections](https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections)
+
+[https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x](https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x)
+
+校对发布：Shifter
 
  
 

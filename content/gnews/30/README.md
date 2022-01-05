@@ -2,25 +2,24 @@
 ---
 
 
-## 加拿大安省绝望宣布最新管制政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823646/)
+## 秘翻在线： 马克龙对未接种疫苗者爆粗口
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823701/)
 
-采编：青青       编译撰稿：文所未闻
+**翻译：  Evalu**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-2.jpg)图片来源：TNH
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-123921.png)
+路透社1月4日报道，法国总统马克龙本周二说，他对那些未接种疫苗者很恼火（用了很不敬的粗话），他目前正值下一任总统选举还剩不到4个月，这样的言论面临着竞争对手的激烈谴责。
 
+马克龙周二在对巴黎新闻报访谈时说：“ 我对那些不打疫苗的人，真的很生气，我们还会继续努力，直到疫情结束，这是战略。我虽然不会把他们（未注射疫苗者）送监狱，也不会强制疫苗，但我们要告诉他们，1月15日以后你们再也不能去饭店，咖啡馆，剧院或电影院…”
 
-据加拿大《CP24新闻》1月3日报道，鉴于近日“新冠病毒”感染病例数的激增，安大略省政府当天宣布最新疫情限制措施，其中包括关闭所有全学校，并实行网上虚拟授课直至1月17日。
+法国去年对人们去饭店，咖啡馆和其他地方规定必须有核酸检测或注射疫苗证明，政府想要搞成疫苗护照，这就意味着只有打过疫苗的人才能有健康通行证。
 
-报道称，近期安大略省报告了创纪录的新增病毒感染人数，当局因此被迫宣布将不再从学校收集疫情相关数据，也不再报告学生和学校工作人员中新出现的感染病例。
+马克龙一直被许多法国人称之为傲慢，对他人轻蔑。法国右翼领导人马林·勒庞在推特上说：“马克龙根本不配当总统。
 
-为此，安省政府除了寄希望于尽快推行毫无效果的疫苗加强剂接种，以及实施更多公共卫生限制措施以外，再无其它有效措施来控制当前几乎失控的疫情。
+**新闻来源**： [Macron says he wants to ‘piss off’ the non-vaccinated](https://www.reuters.com/markets/rates-bonds/frances-macron-rules-out-new-covid-19-curbs-ahead-wednesday-meeting-2022-01-04/)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://www.cp24.com/news/ontario-schools-closed-for-in-person-learning-until-at-least-jan-17-1.5726301](https://www.cp24.com/news/ontario-schools-closed-for-in-person-learning-until-at-least-jan-17-1.5726301)
+#  
 
  
 

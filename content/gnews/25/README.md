@@ -2,23 +2,27 @@
 ---
 
 
-## 安大略省长的果断决定已丧失理智
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823711/)
+## 网络运营商对自媒体用户进行独裁管控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823749/)
 
-采编/编译撰稿： 苦尽甜来 (文来）       校对编辑，发稿：硫酸羟氯喹64
+采编： UCool 优酷            编译撰稿：自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-4-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/tgp-link-tmobile-deleted-e1641139132794.jpg)图片来源：thegatewaypundit
 
 
-据加拿大媒体【真北方】1月3日报道，安大略省长福特日前自豪表示，正是得益于他的“果断决定”，才致使该省重新进入接近封城锁户的紧急状态。
+据美国[网关专家]1月3日报道，继支付宝此前无故关闭了该自媒体及其创始人的账户后，网络运营商[T-Mobile]也开始在该网站的链接转发过程中作梗。
 
-报道称，福特在媒体发布会上绝望预告说：由于“奥密克戎”变体病毒的更强传播性，未来几周内，安省将面临新增感染病例的海啸般浪潮。但省长却未提及疫苗接种，这一被其政府始终视为预防疫情的灵丹妙药，将无法阻止人们感染”奥密克戎“。公众也从未被当局告知有关该病毒的任何具体信息以及它将导致的死亡人数。
+报道称，如果用户使用T-Mobile的网络服务器转发[网关专家]的文章，那么相关链接就会在传输过程中莫名消失而无法接收。据悉，该自媒体是2021年美国排名前300的网站之一。但在2017年川普总统竞选过程中发挥了巨大影响力后，Facebook就开始人为减少该媒体的关注量。
 
-对此，福特竟然自豪宣称，他仅用了30秒就决定重新封锁该省。殊不知，省长大人用这30秒的时间就决定将安省企业推向死亡的漩涡，让渴望社交和面对面学习的孩子们放弃了课堂，并迫使所有已身心俱损的居民包括无数学龄儿童和非病毒感染的病患再次被困于家中，而无法及时获得医疗救助。
+由于一直坚持真相报道，[网关专家]的用户不断增长，并在去年发布了美国大选期间，底特律民主党计票中心非法偷运选票的视频后，[推特]随即冻结了该媒体的账户。
+
+报道因此指出，网络运营巨头们利用高科技来人为管控其用户的在线观看量以及阅读和讨论内容等，与前苏联独裁者斯大林的暴政无任何本质区别。
 
 * * *
 
-原文链接：[https://tnc.news/2022/01/03/levy-fords-decisive-decision-shows-nothing-but-indecision/](https://tnc.news/2022/01/03/levy-fords-decisive-decision-shows-nothing-but-indecision/)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接： [https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/](https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/)
 
  
 

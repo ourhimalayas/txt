@@ -2,33 +2,20 @@
 ---
 
 
-## 有声|新中国联邦人要拥有爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822409/)
+## 【G时新闻】超级计算机模拟结果推翻了中共病毒自然来源说
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1823043/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
+加拿大温哥华扬帆农场 主播：文广
 
-郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
+12月27日国家脉动调查记者娜塔丽·温特斯发布了文章，指甲骨文公司的超级计算机进行了模拟结果显示，中共病毒高度适应人类感染，从而推翻了该病毒是通过野生动物蔓延到人类的自然来源说。
 
-郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
+正如澳大利亚知名记者主播沙立·马克森在《武汉到底发生了什么》中揭示的那样，弗林德斯大学教授兼澳大利亚生物科技公司VACCINE研究主任尼古拉·比德罗夫斯基博士使用甲骨文超级计算机的电脑模拟方法来确定中共病毒的原始宿主，比德罗夫斯基的研究结果似乎确定了人类才是中共病毒的原始宿主，削弱了该病毒从动物转移到人类的理论，而应该是该病毒直接起源于人类。
 
-原文链接：[新中国联邦人要拥有爱](https://gnews.org/zh-hans/1818310/)
+最终彼得罗夫斯基的团队于2021年6月在著名的自然科学报告杂志上发表了该研究成果，题为：《跨物种的次突蛋白ACE2结合亲和力的电脑模拟比较对SARS-COVID2病毒可能性起源的意义》
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+盖特：[https://gettr.com/post/pkvjfy79a0](https://gettr.com/post/pkvjfy79a0)
+听写：LuLu1312
+编辑/上传：七觉花
 
  
 

@@ -2,27 +2,26 @@
 ---
 
 
-## 网络运营商对自媒体用户进行独裁管控
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823749/)
+## 秘翻在线：是供应链关闭的声音吗？——中共封闭世界最大的港口城市
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823809/)
 
-采编： UCool 优酷            编译撰稿：自由法兰西
+**翻译：意翎**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/tgp-link-tmobile-deleted-e1641139132794.jpg)图片来源：thegatewaypundit
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-132011.jpg)**宁波空无一人的街道**
+《零对冲》资深记者泰勒·歌顿（Tyler Burden）报道，中共国正在应对三起严重的疫情，包括东部港口城市宁波，拥有130万居民的小城市禹州以及1300万人口的大城市西安，都无一例外均被封锁，公共交通、出租车禁止运行和学校停课。
 
+世界最大的港口城巿宁波上周末报告了16例病例，在过去的6个月里，这座港口城市已经经历了3次封城。与此同时，在两名飞行员的病毒检测呈阳性后，过去一周已有大约200名飞行员被隔离。
 
-据美国[网关专家]1月3日报道，继支付宝此前无故关闭了该自媒体及其创始人的账户后，网络运营商[T-Mobile]也开始在该网站的链接转发过程中作梗。
+对中共国经济来说，幸运的是宁波的新增病例数量远低于西安的新增病例数量。西安目前处于大规模的封锁中，这座大城市的人们正在为购买食物而苦苦挣扎，这种情况连中共国的官媒都承认，但目前尚不清楚这种情况是否有所缓解。世界对西安的情况感到好奇，因为批评中共的人士在推特上指出，西安没有出现像武汉当时报道封城消息的“公民记者”，那些人大多数都失踪了，或者被中共当局以其他方式处罚了，中共以杀鸡儆猴的方式恫吓吹哨人。
 
-报道称，如果用户使用T-Mobile的网络服务器转发[网关专家]的文章，那么相关链接就会在传输过程中莫名消失而无法接收。据悉，该自媒体是2021年美国排名前300的网站之一。但在2017年川普总统竞选过程中发挥了巨大影响力后，Facebook就开始人为减少该媒体的关注量。
+中共目前必须控制住宁波的局势，因为冻结港口将对整个中共国经济乃至更广泛的全球经济产生巨大影响。正如我们前几天所注意到，特拉维夫的以色列事务所的交易员们已经开始对中共国的供应链关闭前景感到恐慌，尽管西安的大型国有企业坚称封锁并未对生产造成重大影响。但值得提醒的是，上一次中共国的大型港口深圳盐田港或宁波港被关闭时，供应链几乎崩溃，海运费变成了天文数字。
 
-由于一直坚持真相报道，[网关专家]的用户不断增长，并在去年发布了美国大选期间，底特律民主党计票中心非法偷运选票的视频后，[推特]随即冻结了该媒体的账户。
+中共国于上周结束了2021年的封锁，报告了自武汉封城以来最多的新增病例，从总体上看，新年以来每天新增病例接近200例。对此，有网友怀疑中共有相当多的借口将他们负债累累的经济崩溃归咎于新冠病毒，他们封锁城市是为了遏制潜在的叛乱爆发，而不是关心人民的福利。
 
-报道因此指出，网络运营巨头们利用高科技来人为管控其用户的在线观看量以及阅读和讨论内容等，与前苏联独裁者斯大林的暴政无任何本质区别。
+**原文链接：**
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/](https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/)
+[https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port](https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port)
 
  
 

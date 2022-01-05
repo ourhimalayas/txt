@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|《新中国联邦宣言》是治愈共产主义创伤的答案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822421/)
+## 【G时新闻】沃尔玛因下架新疆产品遭中纪委刊文警告
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1823259/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月1日元旦大直播中，郭文贵先生深刻揭示了共产主义带给中国人的创伤，并告知所有新中国联邦人，《新中国联邦宣言》就是灭共后，治愈共产主义创伤的一切答案。
+加拿大温哥华扬帆农场 主播：文广 视频制作： Greacelshan
 
-在大直播中，郭先生痛批共产党深谙人与人的关系，并善于放大和利用人性中的自私和懦弱。共产党利用利用减少教育和洗脑，让老百姓变得无知冷漠、疲于奔命、无暇思考，从而忽视了共产党的邪恶为自身带来的创伤。共产党制造统一的行为、统一的思想、统一的服装和统一的音乐，就是为了到达”家天下“独裁统治的目的。
+据美国之音12月31日报道，中纪委周五官方刊文，《山姆会员店恶意下架新疆产品，原则立场不容含糊》，称沃尔玛旗下的山姆会员店近期恶意下架所有新疆产品，并企图在关系中共国人民的原则问题上含糊其辞、蒙混过关，其背后藏有不可告人的目的，必将自食恶果。
 
-原文链接：[《新中国联邦宣言》是治愈共产主义创伤的答案](https://gnews.org/zh-hans/1818023/)
+一些用户发帖称，沃尔玛的客服部门说，红枣、苹果等新疆产品已经断货是库存原因，美国沃尔玛发言人对此拒绝置评。
 
-音频处理：喜山必胜Maverick
+本星期中共国的社交媒体开始涌现山姆会员店退卡潮，包括中央电视台在内的官媒纷纷报道，评论指下架新疆产品是吃饱饭砸锅的行为。
 
-发稿：Daxia
+中纪委还指出，美国反复借用社交问题造谣生事，实质是打着人权的幌子搞政治操弄和经济霸凌。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+美国科技巨头英特尔最近在给其供应商的一封公开信中要求，不使用任何来自新疆的劳工、采购产品或服务，随即遭到中共国网民的批评，英特尔被迫向中共国公众公开致歉，称相关表述的初衷是确保遵守美国法律。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国已经认定，中共政府对新疆地区信仰宗教的少数民族群体实施了种族灭绝。
 
+拜登12月23日签署《防止强迫维吾尔人劳动法》，使之正式生效惩罚，要求美国企业禁止采购新疆产品。
+
+如今中共已经无力改变西方对些种族灭绝和强迫劳动的认定，在铁证如山的证据面前，中共只剩下了战狼式的嘶喊。
+
+盖特：[https://gettr.com/post/pl8xlj2cc8](https://gettr.com/post/pl8xlj2cc8)
+听写：LuLu1312
+编辑/上传：七觉花
 
  
 
