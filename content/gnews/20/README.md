@@ -2,22 +2,23 @@
 ---
 
 
-## 日本冲绳新增中共病毒数暴增 或将进入半紧急状态
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824162/)
+## 德国执政党呼吁加强网站监控，防止人们上街游行抗议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824165/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh6.googleusercontent.com/NEmPrUvTjPqAmcJBQlaPgqROsgGj9dkg7RprzH3R31F8zptAuqxFQRJxWpEl9WrfeBsGTYHkOr_kF6AdZCUpAx1FbZtaizn-Sq0tVlDq6Id7LtKtrs-a9lDryq9lYcmd3IxGcMCj)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2021/05/1621594463071-3e295e2f9fe64d0d98bf5a302cf7a0ae-1200x742.jpeg?unShow=false)
-日本每日新闻周三(1月5日）称，由于中共病毒（新冠）病例激增，日本政府正准备宣布冲绳县进入半紧急状态，可能最早在本周宣布。这将是自去年9月30日以来的第一次此类声明，当时日本解除了2021年大部分时间内实施的所有紧急状态和半紧急状态。
+#### 撰稿：彩虹 
 
-周二，日本单日新增中共病毒病例数在三个月内首次超过1,000例，其中冲绳有225例，成为全国受影响最严重的地区之一。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-4.jpg)图片来源：美国新闻网
+1月4日，《新闻极限》报道说，周一，近十万名德国人走上街头，抗议国家推行强制接种中共病毒（COVID-19）疫苗。为了应对越来越多的“激进抗议”，德国执政的自由民主党(FDP)成员呼吁国家监控社交媒体网站电报群（Telegram），因为该网站被该国持不同意见者用来组织抗议活动。
 
-每日新闻说，冲绳县知事玉城丹尼(Denny Tamaki)周二告诉内阁官房长官松野博一，他正在考虑要求进入半紧急状态，将包括限制餐馆和酒吧的营业时间等措施。报导称，松野博一表示政府将迅速作出回应。没有提供进一步的细节。
+据《柏林日报》报道，最近的抗议活动虽然主要是和平的，但确实出现了一些冲突。参加“未经授权允许”步行的大多数人，让人想起了该国共产主义时代。在1989年至1991年，每到周一，德国人会参加德意志民主共和国的和平抗议活动。
 
-消息来源：[**日本将宣布受新冠冲击的冲绳县进入半紧急状态**](https://cn.reuters.com/article/japan-quasiemergency-okinawa-idCNKBS2JF01O?il=0)
+根据德国《明镜周刊》报道，（政府）正在努力开始用公共巴士将未接种中共病毒疫苗的人送往中共病毒疫苗接种点。而《布赖特巴特新闻网》则说，一项由总理奥拉夫·肖尔茨（Olaf Scholz）支持的措施则目的是将接种中共病毒疫苗变为强制性的。
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**新闻来源**
+
+[100K Germans Protesting COVID-19 Mandates, Ruling Party Cracks Down on Speech](https://www.newsmax.com/newsfront/germans-speech-protests-covid19/2022/01/04/id/1051058/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

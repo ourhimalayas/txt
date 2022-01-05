@@ -2,47 +2,22 @@
 ---
 
 
-## 造假习近平受万民拥戴，中共官员下达政治任务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1824089/)
+## 为什么最近有这么多打过疫苗的人感染新冠病毒？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824136/)
 
-作者：东京樱花团—在远方
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-32.png)
+图片来源： www.bbc.com
 
+美联社1月4日报道，为什么近来有这么多打过疫苗的人感染新冠病毒？有许多因素引起，首先是新出现的奥米克戎变种具有高传染性，更容易感染人，即使其并非使人引起更严重的症状，但在节日期间人们的旅行度假造成病例数大量增加。
+人们可能认为打过了疫苗就能阻止感染，但这个疫苗仅防止严重疾病。
+辉瑞和莫德纳的两剂疫苗或强生的一剂疫苗仍然具有保护人们免受奥米克戎的严重疾病，如果还不行的话，加强针可以增加抗体浓度以帮助人们免受感染。
+奥米克戎比其他变种更具复制能力，很容易传染给别人，医生建议室内戴口罩，避免人多的地方，打疫苗和打加强针，虽然疫苗不能防止人们感染病毒，但可以帮助人们活着，不需要去医院。
+问题是：为什么那么多打了疫苗甚至是加强针的人还是不得不住院甚至死亡？
 
+##### 新闻来源： [Why are so many vaccinated people getting COVID-19 lately?](https://apnews.com/article/coronavirus-pandemic-lifestyle-health-travel-coronavirus-vaccine-69b19dcb2cf9527e22083e9547d70228)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-台媒1月4日报道，中共党魁习近平发表元旦讲话之后，为了配合制造，习近平受万民拥戴的假象，中共各级官员层层施压，要求党内所有人必须转发、点赞，并发表吹捧言论，在规定时间内上报总结各自的转发及评论次数。
-
-这项“政治任务”被网络曝光后，受到不少网友的嘲讽，有网友笑指“难怪评论一个样，原来是粉红欢乐颂。”还有网友愤怒表示，“西安上千万人饥肠辘辘，政府忙着歌功颂德，对民众惨况只字不提。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.2.jpg)
-参考链接：
-[吹捧習皇新年講話 中共官員任務：下午3點前提報點讚、轉發數](https://news.ltn.com.tw/news/world/breakingnews/3789031)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+# ** **
 
  
 
