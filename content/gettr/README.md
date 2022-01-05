@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 1:16 PM (UTC)`
+
+2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果
+![img](https://media.gettr.com/group47/origin/2022/01/05/12/340c53ef-68c3-8d27-548f-790cfee6196c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/5/2022 12:48 PM (UTC)`
 
 1月5号：尊敬的战友们好！一会儿．8:30大直播中见！
@@ -151,12 +158,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 ...
 ![img](https://media.gettr.com/group35/getter/2022/01/03/16/4771091a-f830-f28f-7799-c94dbea509e2/0c26e746e1c990c362f252182ab1c0b0.jpg)
-
----
-
-`@miles 1/3/2022 3:54 PM (UTC)`
-
-1月3号，Hcoin To the Moon MV上线第25天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1818473/<br/><br/>Jan 3rd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 25th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1818540/
 
 ---
 
