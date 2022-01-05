@@ -2,136 +2,54 @@
 ---
 
 
-## “人类豚鼠”的自白：为什么我要退出莫德纳疫苗试验
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1826348/)
+## 灭共者之新中国联邦人之真言真语
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1826393/)
 
-编译：Jenny Ball
+**出品：纽约香草山设计部**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-1.jpg)图片来源：The Defender Staff（childrenshealthdefense.org）
 
-《捍卫者》 的 COVID 新闻观察提供了与 SARS CoV-2 病毒相关的最新头条新闻，包括其起源和 COVID 疫苗。
 
-**“人类豚鼠”的自白：为什么我要退出莫德纳疫苗试验**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**STAT ****新闻报道**：
 
-2020 年 7 月，我自愿参加莫德纳(Moderna)的 COVID-19 疫苗试验。 如果我那时了解公司如何追求利润的，我就不会那样做。
 
-作为大约 30,000 只“人类豚鼠”中的一员，我允许莫德纳在我身上测试其实验性疫苗，看看它是否能提供对 SARS-CoV-2（导致 COVID-19 的病毒）的保护。
 
-让一家从未将疫苗推向市场的公司，使用我的身体作为测试对象。是可怕、痛苦和疲惫的。
 
-我逐渐明白，我曾想象自己参与了这项崇高的科学事业，实际上，首先就是一项无情的企业盈利活动。
 
-**佛罗里达医院系统表示，其**** 50% ****的**** COVID ****患者主要是其他原因**
 
-商业内幕报道：
 
-佛罗里达州卫生当局表示，被列为 COVID-19 住院的患者中约有一半, 因“非 COVID 原因”而入院。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-20220104-07.jpg)Everything you own has to be captured with your own hands, earned by your own actions. Don’t ever believe or rely on anything that you’ve not worked for, for those don’t belong to you, and may even bring harm to you. 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 25, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/2-20220104-03.jpg)一切都要靠自己的双手夺来，靠自己的行动换来，永远不要相信也不要去依靠任何你没有付出的东西，那些都不是你的，是你的伤害。 
+– 2021年12月25日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220104-06.jpg)Without faith, China as a country is the most dangerous form of China; and in the end, it is the Chinese people who will pay dearly for it! 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 29, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220104-04.jpg)没有信仰的中国是最危险的中国，而最后中国人一定要为此付出代价！ 
+-2021年12月29日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/5-20220104-02.jpg)新中国联邦人要包容、要持之以恒、要真心灭共、要善待对方，还要唯真不破。这都是绝对真言真语！ 
+– 2021年12月24日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/6-20220104-05.jpg)The people of the New Federal State of China (NFSC) should be tolerant, persistent, and genuine in taking down the CCP; should be kind, and always truthful. These are our mottos! 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 24, 2021
 
-杰克逊卫生系统周一在一条推文中说：“杰克逊卫生系统医院目前有 439 名患者的 COVID-19 检测呈阳性。”“其中，有 220 名患者（或 50%）主要是因为非 COVID 原因入院。”
 
-该帖子是对美国所谓的偶然 COVID 流行情况的相对罕见的快照。
+**编辑/发稿：小鹿**
 
-据《知情人》( Insider) 此前报道，白宫首席医疗顾问安东尼·福奇 (Anthony Fauci) 最近警告说，应对 COVID-19 住院数据持谨慎态度。
 
-**美**** CDC ****建议辉瑞**** COVID****加强剂量间隔五个月**
 
-**路透社报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
 
-美国CDC周二建议，将辉瑞-生物科技的第二剂 COVID-19 疫苗与加强注射之间的间隔，从六个月缩短至五个月。
+**更多资讯，更多关注**
 
-此举是在美国FDA周一决定缩短加强剂间隔，并授权为 12 至 15 岁儿童使用第三剂辉瑞-生物科技疫苗之后做出的。
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-CDC 还建议 5 至 11 岁中度或重度免疫功能低下的儿童，在第二次注射后 28 天，再接种一剂疫苗。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**感染了新冠病毒吗？ 您无法获得失业救济金**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-CNBC报道：
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-COVID-19 感染人数激增，因病毒而错过工作的生病的美国人可能想知道他们是否有资格获得失业救济金。 简短的回答：他们没有。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-美国劳工部失业保险高级政策顾问米歇尔·埃弗莫尔 (Michele Evermore) 表示，COVID-19 检测呈阳性并留在家中康复，并与他人隔离的个人，没有资格领取失业救济金。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-失业救济金是一种按周支付的社会保险。法律要求美国人“有能力并且有工作”，才有资格获得援助。埃弗莫尔说，患有 COVID-19 的人不符合这一核心要求。
 
-**据**** CDC ****称，****Omicron ****变体现在占美国近期**** COVID ****病例的**** 95%**
 
-商业内幕报道：
 
-根据美国CDC的最新估计，高度传播的 Omicron 变体现在估计占美国最近 COVID-19 病例的 95%，这一比例惊人。
-
-CDC 预计，截至 1 月 1 日，95.4% 的 COVID-19 病例是由 Omicron 变体引起的，而 Delta 变体病例中只有 4.6%。
-
-**亚伦·罗杰斯和公共卫生可信度危机**
-
-**新闻周刊报道：**
-
-绿湾包装工队四分卫亚伦·罗杰斯**（****Aaron Rodgers****）**在 11 月感染 COVID 后透露，他在季前赛中关于“免疫”的评论，**指的是未经批准的治疗方案**，而不是疫苗接种，这激怒了许多人。
-
-上周，罗杰斯出现在他最喜欢的平台时，向批评者发出了挑战，他指出：“如果科学不能被质疑，那么它就不再是科学，就是宣传。” 这句话又引发了一阵哄笑。
-
-尽管罗杰斯抱怨自己是唤醒暴徒和取消文化的受害者，但他没有失去工作的危险。而且罗杰斯关于科学的基本原理也是正确的。
-
-**纽约市人手不足的学校要求有轻度**** COVID ****症状的教师返回课堂**
-
-**商业内幕报道：**
-
-在纽约市创纪录的 COVID-19 病例激增的情况下，学生们重返学校时，有些人可能会由五天前测试呈阳性的老师教授。
-
-根据教育部发给教师的一封电子邮件，最新的协议现在规定，检测呈阳性但无症状或有轻微症状的教师和学校工作人员，可以在 5 天后返回工作，而不是 10 天后。
-
-对于检测呈阳性的教师，允许他们返回的症状包括“轻微咳嗽”——他们不能“咳痰”——而且症状必须是轻微的或有所改善。
-
-他们还必须“在工作之外继续呆在家里”，并“观察”其他隔离因素，直到 10 天过去。他们不需要阴性测试就可以返回学校。
-
-**州长要求学校保持开放，但地区可能缺乏足够的教师**
-
-**政治报道：**
-
-乔·拜登总统在面对快速传播的 Omicron 变体时保持学校开放的请求，本周面临重大挑战，因为工作人员短缺、疾病和劳工骚乱席卷了美国一些最大的学校系统，正值学生应该从寒假返回。
-
-亚特兰大、密尔沃基和底特律的学校本周关闭了教室。 芝加哥教师工会正在考虑单方面采取远程学习行动，无视市长和市学校官员要求。
-
-加利福尼亚州的一些地区面临严重的人员短缺问题，这迫使他们制定各种应急计划——Zoom 除外。
-
-**为什么最近有这么多接种疫苗的人感染了**** COVID****？**
-
-**美联社报道：**
-
-为什么最近有这么多接种疫苗的人感染 COVID-19？
-
-有几个因素在起作用，首先是具有高度传染性的 Omicron 变体的出现。Omicron 更有可能感染人，即使它不会使人们病得很重，而且它的激增恰逢许多地方的假期旅行季节。
-
-明尼苏达大学病毒研究员路易斯曼斯基说，人们可能会错误地认为 COVID-19 疫苗会完全阻止感染，但这些疫苗主要是为了**预防严重疾病**。
-
-**尽管**** COVID ****病例激增，疫苗股票仍下跌**
-
-**巴伦的报道：**
-
-COVID-19 疫苗制造商的股票在今年的第一个交易日暴跌，即使病毒病例激增，政府也加大了使用疫苗来对抗 Omicron 变种的力度。
-
-抛售发生在 2021 年之后，给股票带来了惊人的收益，这可能表明 COVID-19 疫苗的长期市场，以及制造商的估值越来越不确定。
-
-美国领先的两种 COVID-19 疫苗的三个开发商，周一股价均大幅下跌，而标准普尔 500 指数上涨 0.6%
-
-**以色列开始第四剂**** COVID ****疫苗接种运动**
-
-**卫报报道：**
-
-以色列已成为世界上第一个开展第四针 COVID-19 疫苗接种运动的国家，作为遏制由 Omicron 变体引起的快速上升感染率的努力的一部分。
-
-官员们此前曾表示，他们将等待更多关于第四针功效的数据，然后再将其更广泛地提供。然而，以色列卫生部周二表示，尽管它认为 Omicron 构成的威胁微乎其微，但面对飞涨的感染率，它被迫更快地采取行动。 点评： 从这些报道看，所谓卫生机构的决定，完全是随心所欲，不仅没有科学依据，相反，个个违背科学！
-
-参考资料：[childrenshealthdefense.org][Confessions of a ‘Human Guinea Pig’: Why I’m Resigning From Moderna Vaccine Trials + More](https://childrenshealthdefense.org/defender/covid-nw-confessions-human-guinea-pig-resigning-from-moderna-vaccine-trials/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6d5ad0a7-148a-4a9f-9ed7-5a8e3819d621)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 
