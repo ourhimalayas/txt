@@ -2,29 +2,101 @@
 ---
 
 
-## 美国军人初步打赢被告为总统的疫苗宗教豁免官司
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1823249/)
+## 灭网红、外教和内教是在为习统一天下做铺垫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823274/)
 
-#### 
-加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0247.jpeg)militarytalk
-据鸿声传媒1月4日报道，美国海军35名海豹突击队员和军人作为集体原告，本周一赢得了被告为乔·拜登总统、国防部长劳埃德·奥斯汀、国防部和海军部长卡洛斯·德尔托罗等侵犯军人宗教豁免权诉讼的初步胜利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-1.jpg)
+[https://gtv.org/video/id=61d44451dffab035958aa83c](https://gtv.org/video/id=61d44451dffab035958aa83c)
 
-德克萨斯州北部地区法院于1月4日对国防部（DOD）发出初步禁令，阻止国防部惩罚寻求中共（新冠）病毒宗教豁免的军人，从而保障这些军人在拒绝接种疫苗的情况下不被国防部解职。但这并不是最终判决，而是“初步禁令”。
+**郭文贵**
+**Miles Guo**
 
-这起诉讼由非营利法律组织［第一自由研究所（FLI）］作为原告代理，诉讼称，国防部要求包括有宗教豁免权的所有军人接种疫苗，否则将“面临军事法庭或非自愿离职”，这是违法行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-52.jpeg)Neozion
-FLI总法律顾问Mike Berry表示：“强迫军人在信仰和服务国家之间做出选择，已经违反了宪法和美国的价值观。我们很高兴法院在国家安全受到更多损害之前采取行动保护我们的勇敢战士。”
+网红所有卖的东西有几件事中国人的文化的东西，都是西方的衣服
+How many things that the Internet opinion leaders sell are the Chinese cultural stuff, they are all western clothes
 
-负责该案的法官里德·奥康纳透露，据相关记录，海军没有批准任何一项宗教豁免申请。他说，在本案中，海军军人试图捍卫他们神圣的自由，而中共（新冠）疫情不能成为政府剥夺军人自由的理由，因为宪法第一修正案没有COVID-19这个例外，而军人同样享受所有的宪法权利。
+网红卖的钻石、戒指，你见有中国产的吗？是吧？
+have you seen any diamonds and rings produced in China that sold by the Internet opinion leaders, right?
 
-判例法制度最早产生于中世纪的英国，美国是最典型的实行判例法的国家，因此，不管该案的最终判决如何，都将对所有美国军人产生重大影响。
+网红一年多少钱呢？几万亿人民币，网红又是一个直播
+How much money do the internet opinion leaders earn in a year? a few trillion yuan, and the Internet opinion leaders are also doing live broadcast
 
-来源：
+所以基于以上, 必须把网红造成的、不可控的政治的隐患拿掉，几万亿的人民币花下去
+so based on the above reasons, the uncontrollable political hid-den dangers caused by the Internet opinion leaders must be re-moved, and spent trillions of yuan on it
 
-[Texas Judge Grants Preliminary Injunction For Navy SEALS Against Covid Shots](https://www.redvoicemedia.com/2022/01/texas-judge-grants-preliminary-injunction-for-navy-seals-against-covid-shots/)
+中国有钱吗？中国没有钱了，你这几万亿，老百姓形成了消费
+Is China rich? China has no money anymore, for those trillions of yuans, Laobaixing have formed consumption
 
-编辑/发文：Kent
+老百姓在自己家里边儿欠一屁股债，消费完了全都不还
+Laobaixing in their own homes do not repay any debts after they have finished their spending
+
+谁买单，共产党买单，你就别花钱了，关键是网红，这种媒体平台
+Whoever pays? the Communist Party pays? don’t spend money, the key point is the Internet opinion leaders and this kind of media platform
+
+如果有一天突然把爆料革命的今天大直播里边1/10播出去
+If one day suddenly they do live broadcast the 1/10 of today’s grand broadcast of the whistleblower movement
+
+造成几千万人几百万人的影响，会对共产党是致命一击
+will affect tens of millions of people and also will be a fatal attack to the Communist Party
+
+绝对的网络和绝对的思想控制和资源控制
+absolute network and absolute thought control and resource con-trol
+
+和让老百姓准备好当牛做马的、远离时尚和物质生活的时代
+and the era that prepares Laobaixing to be the slaves, away from fashion and material life
+
+和不可控的因素全部干掉
+and get rid of all the uncontrollable factors
+
+为什么要关外教、内教呢？都能赚钱呢
+Why shut down the foreign and domestic teachers? they all can make money
+
+外教教的什么? 教的英文
+What do the foreign teachers teach? they teach English
+
+内教教的是什么？教的是所有的这些所谓的有钱、有身份人的孩子，花钱么，花钱
+What do the domestic teachers teach? they teach all the so-called rich and identifiable person’s children, do they spend money? they do
+
+钱哪来的，钱去哪儿了，最后习觉得这帮人绝对是我们的威胁
+Where did the money come from? Where did the money go? In the end, Xi felt that these people were definitely the threat to us
+
+这些钱都会流向海外的，绝对的控制财富，让中国人不要学英文
+The money will flow to overseas, need absolutely control the wealth, so that the Chinese people can not learn English
+
+更不要传西教，更不要培养这种反抗的种子
+Don’t preach Western religion, don’t cultivate the seeds of re-sistance
+
+更不允许这些人成为我党绝对思想统一的障碍，干掉
+absolutely not allowed people to become the obstacles to the ab-solute ideological unity, and get rid of them
+
+财富统一、思想统一、技术统一
+unity of wealth, unity of thought, unity of technology
+
+最后再习一神不能有习二神的情况下，像北朝鲜一样
+Finally, there is only one Xi God, can’t have the second Xi God, it’s like North Korea
+
+中国只有一个救星，没有第二个救星，就是一个太阳，就是习大神，习太阳
+There is only one savior in China, there is no second savior, it is just one sun, that is Xi God, Xi Sun
+
+**原视频链接** :[https://gettr.com/post/pklvom8f7f](https://gettr.com/post/pklvom8f7f)
+
+Date: 12/29/2021
+原视频标题: 灭网红、外教和内教是在为习统一天下做铺垫
+Eliminating the internet celebrities, foreign teachers and domestic teachers is paving the way for Xi to unify the world
+原视频日期：2021/12/24
+原视频链接 https://gettr.com/post/pklvom8f7f
+任务编号：KC383（3333）
+视频时间段 : 0:00-2:09
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

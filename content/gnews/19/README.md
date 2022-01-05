@@ -2,56 +2,33 @@
 ---
 
 
-## 新中国联邦爆料革命日历
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
+## 中共败相（一）： 河北霸州（县级市）财政亏空
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823178/)
 
-**出品：纽约香草山设计部**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a5fak-lberp.jpg)
+**图片来源：bbs.gongkong.com**
 
+中共国务院办公厅督查室12月17日通报，霸州官方近来以突击罚款和摊派的方式创收，试图弥补财政亏空。 通报称，霸州这场“非税收入创收运动”从22年10月1日开始全面实施，持续了两个多月，直到12月6日。期间平均每家企业被罚款、收费达2.64万元人民币。
 
+通报还提到，11月份，该市15个乡镇行政区划单位中，有13个出现明显的“运动式执法”，官方以罚款、安全检查、强行摊派等方式，向辖区内企业征收各种费用，当月入库罚没收入是1—9月间月均罚没收入的80倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+通报明确称，这场运动的起因是霸州市政府财政紧张。当地官方曾发文规定这些“非税收入”的分配方案，80%归实际征收的单位，剩余20%归市政府财政。 霸州市企业相关人员面对这种质疑，没有人敢回应他们是否被罚款，以及罚款是否已经退还。但有业主表示，当地经济形式不好，小企业基本都停产了，大企业也停了一半，因为生产出的产品没人要。
 
+**各地政府普遍面临财政赤字压力，像霸州这种现象会越来越普遍。**
 
+比如，湖北省黄冈市也面对财政困难，体制内的一些单位的基本工资还在发，但年底的绩效工资和奖金恐怕难以兑现，而当地其它一些政府单位已经发不出工资了。 在此之前，中国多地曝出公务员和事业单位降薪的消息，连工业大省广东和浙江都未能幸免。
 
+河北霸州的财政困境在中共的县域经济里已不是个案，许多像霸州一样的县级单位已经入不敷出。中共经济败相纷生，什么时候中共经济崩塌导致中共政权结束，我们拭目以待。
 
+**【文章仅代表作者个人观点，与 Gnews 平台无关】**
 
+作者：洛杉矶盘古农场-蓝莲花
+编辑：洛杉矶盘古农场- 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
-
-
-#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

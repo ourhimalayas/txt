@@ -2,101 +2,38 @@
 ---
 
 
-## 灭网红、外教和内教是在为习统一天下做铺垫
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823274/)
+## 美国即将开通新5G网络
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1823276/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-1.jpg)
-[https://gtv.org/video/id=61d44451dffab035958aa83c](https://gtv.org/video/id=61d44451dffab035958aa83c)
+翻译：lovemiles
+编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2022/01/us_5G.jpeg)图片来源：Getty Images
+美国最大的两家电信公司AT&T和Verizon已同意延后推出其C波段5G网络，因为他们与政府官员和航空公司的谈判还未结束，政府和航空公司担心这一5G技术可能会影响飞机设备。
 
-**郭文贵**
-**Miles Guo**
+两家公司在1月3日分别发表的声明中证实了这一暂停行为。Verizon 公司表示同意延后两周推出， “这确保了5G网络在1月份面市的承诺。它的问世对美国来说是足以改变游戏规则的大事件。”
 
-网红所有卖的东西有几件事中国人的文化的东西，都是西方的衣服
-How many things that the Internet opinion leaders sell are the Chinese cultural stuff, they are all western clothes
+与此同时，AT&T表示，应交通部长皮特·布蒂吉格 (Pete Buttigieg) 的要求，它同样接受了的两周的推迟。AT&T还表示：“航空安全和5G并不对立，我们相信进一步的合作和技术评估将消除任何疑虑。”
 
-网红卖的钻石、戒指，你见有中国产的吗？是吧？
-have you seen any diamonds and rings produced in China that sold by the Internet opinion leaders, right?
+AT&T 和 Verizon两家公司的决定与在不到 24 小时前发表的声明形成鲜明对比。在那份声明中，两家公司坚持之前设定的1月5日的5G推出日期。当时他们认为，任何延迟都等于“不负责任地放弃了部署世界级的、具有全球竞争力的通信网络的运营计划。”
 
-网红一年多少钱呢？几万亿人民币，网红又是一个直播
-How much money do the internet opinion leaders earn in a year? a few trillion yuan, and the Internet opinion leaders are also doing live broadcast
+最初的计划是在2021年12月开通C波段5G网络，但由于存在该系统会损害飞行机载设备的担心，电信公司同意了延后到1月份。1月3日的协议将该日期又推迟了两周。目前尚不清楚是什么导致了情况突然的转变。但据报道，这些公司正在与监管机构进行积极的谈判。
 
-所以基于以上, 必须把网红造成的、不可控的政治的隐患拿掉，几万亿的人民币花下去
-so based on the above reasons, the uncontrollable political hid-den dangers caused by the Internet opinion leaders must be re-moved, and spent trillions of yuan on it
+最主要的安全问题是担心飞机的无线高度计受影响，这一装置起到辅助飞机在低能见度条件下安全着陆的作用。美国联邦航空管理局 (FAA) 指出，如果高度计读数受到5G信号的影响，将会引发其他17个飞行装置出现问题。
 
-中国有钱吗？中国没有钱了，你这几万亿，老百姓形成了消费
-Is China rich? China has no money anymore, for those trillions of yuans, Laobaixing have formed consumption
+美国联邦航空局在一份声明中感谢两家公司“自愿”暂停的举动，并补充说“安全性是我们的核心目标，我们的一切决定都与此相关”。同时希望把多出来的时间用于“减少因5G开通带来的航班中断问题。”
 
-老百姓在自己家里边儿欠一屁股债，消费完了全都不还
-Laobaixing in their own homes do not repay any debts after they have finished their spending
+除了联邦机构外，航空业和航空公司也对5G计划提出了抗议，游说组织“美国航空”曾经预测说，5G开通会对大约35万个航班和数百万名旅客产生影响。
 
-谁买单，共产党买单，你就别花钱了，关键是网红，这种媒体平台
-Whoever pays? the Communist Party pays? don’t spend money, the key point is the Internet opinion leaders and this kind of media platform
+原文链接：[Tech giants alter 5G rollout plans](https://www.rt.com/news/545106-verizon-att-delay-5g/)
 
-如果有一天突然把爆料革命的今天大直播里边1/10播出去
-If one day suddenly they do live broadcast the 1/10 of today’s grand broadcast of the whistleblower movement
+发布：去中心化Math
 
-造成几千万人几百万人的影响，会对共产党是致命一击
-will affect tens of millions of people and also will be a fatal attack to the Communist Party
-
-绝对的网络和绝对的思想控制和资源控制
-absolute network and absolute thought control and resource con-trol
-
-和让老百姓准备好当牛做马的、远离时尚和物质生活的时代
-and the era that prepares Laobaixing to be the slaves, away from fashion and material life
-
-和不可控的因素全部干掉
-and get rid of all the uncontrollable factors
-
-为什么要关外教、内教呢？都能赚钱呢
-Why shut down the foreign and domestic teachers? they all can make money
-
-外教教的什么? 教的英文
-What do the foreign teachers teach? they teach English
-
-内教教的是什么？教的是所有的这些所谓的有钱、有身份人的孩子，花钱么，花钱
-What do the domestic teachers teach? they teach all the so-called rich and identifiable person’s children, do they spend money? they do
-
-钱哪来的，钱去哪儿了，最后习觉得这帮人绝对是我们的威胁
-Where did the money come from? Where did the money go? In the end, Xi felt that these people were definitely the threat to us
-
-这些钱都会流向海外的，绝对的控制财富，让中国人不要学英文
-The money will flow to overseas, need absolutely control the wealth, so that the Chinese people can not learn English
-
-更不要传西教，更不要培养这种反抗的种子
-Don’t preach Western religion, don’t cultivate the seeds of re-sistance
-
-更不允许这些人成为我党绝对思想统一的障碍，干掉
-absolutely not allowed people to become the obstacles to the ab-solute ideological unity, and get rid of them
-
-财富统一、思想统一、技术统一
-unity of wealth, unity of thought, unity of technology
-
-最后再习一神不能有习二神的情况下，像北朝鲜一样
-Finally, there is only one Xi God, can’t have the second Xi God, it’s like North Korea
-
-中国只有一个救星，没有第二个救星，就是一个太阳，就是习大神，习太阳
-There is only one savior in China, there is no second savior, it is just one sun, that is Xi God, Xi Sun
-
-**原视频链接** :[https://gettr.com/post/pklvom8f7f](https://gettr.com/post/pklvom8f7f)
-
-Date: 12/29/2021
-原视频标题: 灭网红、外教和内教是在为习统一天下做铺垫
-Eliminating the internet celebrities, foreign teachers and domestic teachers is paving the way for Xi to unify the world
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pklvom8f7f
-任务编号：KC383（3333）
-视频时间段 : 0:00-2:09
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
