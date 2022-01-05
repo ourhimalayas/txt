@@ -2,27 +2,32 @@
 ---
 
 
-## 网络运营商对自媒体用户进行独裁管控
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823749/)
+## 感染中共病毒住院的儿童大多数患有肥胖症或严重肥胖症
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823751/)
 
-采编： UCool 优酷            编译撰稿：自由法兰西
+**撰稿：彩虹**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-130031.jpg)图片来源：BBC
+1月4日《国家脉动》研究人员凯·斯迈思（Kay Smythe）发布文章，报道CDC（美国疾病控制和预防中心）的一项新研究显示，儿童肥胖症和严重肥胖症是感染中共病毒（COVID-19）而入院的儿童中最普遍的合并症。这项研究考察了六家主要医院的数据，得出结论说，近62%的感染中共病毒住院儿童（12-17岁）被描述为严重肥胖或肥胖。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/tgp-link-tmobile-deleted-e1641139132794.jpg)图片来源：thegatewaypundit
+最新的信息证实了《国家脉动》主编拉希姆·卡萨姆（Raheem Kassam）近两年前在《战斗室》上首次发表的报告。
 
+研究中的大多数青少年是严重肥胖的（60.5%）。在5至11岁的儿童中，33.6%是肥胖的。三分之二的入院患者至少有一种合并症，这表明不是严重肥胖的健康儿童基本上不会受到中共病毒的影响。
 
-据美国[网关专家]1月3日报道，继支付宝此前无故关闭了该自媒体及其创始人的账户后，网络运营商[T-Mobile]也开始在该网站的链接转发过程中作梗。
+虽然当局一直坚持让儿童接种中共病毒疫苗，但科学表明，健康实际上是确保儿童不会因这种可能是生物武器的病毒而住院的最好方法。
 
-报道称，如果用户使用T-Mobile的网络服务器转发[网关专家]的文章，那么相关链接就会在传输过程中莫名消失而无法接收。据悉，该自媒体是2021年美国排名前300的网站之一。但在2017年川普总统竞选过程中发挥了巨大影响力后，Facebook就开始人为减少该媒体的关注量。
+该研究的作者进一步指出，肥胖儿童需要更高水平和更长的护理时间，而且肥胖是导致感染中共病毒复杂化的最重要的基础条件。
 
-由于一直坚持真相报道，[网关专家]的用户不断增长，并在去年发布了美国大选期间，底特律民主党计票中心非法偷运选票的视频后，[推特]随即冻结了该媒体的账户。
+对于肥胖儿童来说，平均住院时间是4天，41.1%的肥胖儿童需要转到重症监护室。对于所有年龄组的所有儿童，平均住院时间是3天。
 
-报道因此指出，网络运营巨头们利用高科技来人为管控其用户的在线观看量以及阅读和讨论内容等，与前苏联独裁者斯大林的暴政无任何本质区别。
+作者进一步提到“这些发现与以前的报告一致，强调了肥胖和其他医疗条件是儿童和青少年导致严重中共病毒感染风险因素的重要因素”。
 
-* * *
+该研究调查了915名18岁以下儿童的入院情况。所有的医院都位于美国南部。从技术上讲，南方的肥胖儿童比例较高，但研究结果仍然很好地证明了超重是感染中共病毒的一个重要合并症。
 
-校对编辑，发稿：硫酸羟氯喹64
+迄今为止，包括福奇（Fauci）博士在内的拜登政府没有人敦促父母或儿童减少肥胖，以帮助对抗感染中共病毒。
 
-原文链接： [https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/](https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/)
+**新闻来源**
+
+[SHOCKER: Obese Kids More Likely to be Hospitalized With COVID-19](https://thenationalpulse.com/2022/01/04/shocker-obese-kids-more-likely-to-be-hospitalized-with-covid-19/)
 
  
 

@@ -15,86 +15,86 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“彭丽媛”（五）](/content/gnews/1/README.md)
+### [德约科维奇获疫苗豁免参加澳网触怒澳洲人](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：是供应链关闭的声音吗？——中共封闭世界最大的港口城市](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“彭丽媛”（五）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：是供应链关闭的声音吗？——中共封闭世界最大的港口城市](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022疫苗灾难年？新西兰溺水事故频发](/content/gnews/3/README.md)
+### [2022疫苗灾难年？新西兰溺水事故频发](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国博客超级明星罗根慕名加入盖特](/content/gnews/4/README.md)
+### [美国博客超级明星罗根慕名加入盖特](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [感染中共病毒住院的儿童大多数患有肥胖症或严重肥胖症](/content/gnews/5/README.md)
+### [感染中共病毒住院的儿童大多数患有肥胖症或严重肥胖症](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [网络运营商对自媒体用户进行独裁管控](/content/gnews/6/README.md)
+### [网络运营商对自媒体用户进行独裁管控](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共2015年就窃取了对抗中共病毒的单克隆抗体疗法](/content/gnews/7/README.md)
+### [中共2015年就窃取了对抗中共病毒的单克隆抗体疗法](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大广播公司极端思潮受到猛烈抨击](/content/gnews/8/README.md)
+### [加拿大广播公司极端思潮受到猛烈抨击](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/9/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [安大略省长的果断决定已丧失理智](/content/gnews/10/README.md)
+### [安大略省长的果断决定已丧失理智](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [秘翻在线： 马克龙对未接种疫苗者爆粗口](/content/gnews/11/README.md)
+### [秘翻在线： 马克龙对未接种疫苗者爆粗口](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多数加拿大人反对疫苗强制接种规定](/content/gnews/12/README.md)
+### [多数加拿大人反对疫苗强制接种规定](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [疫苗和病毒的次生危机即将到来：猪肉价格将上涨](/content/gnews/13/README.md)
+### [疫苗和病毒的次生危机即将到来：猪肉价格将上涨](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [西安封城“粉红”绝境呼救　网民讽“别给国家添乱”](/content/gnews/14/README.md)
+### [西安封城“粉红”绝境呼救　网民讽“别给国家添乱”](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大安省绝望宣布最新管制政策](/content/gnews/15/README.md)
+### [加拿大安省绝望宣布最新管制政策](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [币圈新闻动态：超过三分之一18-54岁的消费者拥有加密货币](/content/gnews/16/README.md)
+### [币圈新闻动态：超过三分之一18-54岁的消费者拥有加密货币](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登面临重大疫苗诉讼](/content/gnews/17/README.md)
+### [拜登面临重大疫苗诉讼](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [医护人员短缺，英国多家医院告急](/content/gnews/18/README.md)
+### [医护人员短缺，英国多家医院告急](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国反政府抗疫措施示威接连不断](/content/gnews/19/README.md)
+### [德国反政府抗疫措施示威接连不断](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国日新增中共病毒病例首超百万](/content/gnews/20/README.md)
+### [美国日新增中共病毒病例首超百万](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [两种病毒同时爆发的担忧](/content/gnews/21/README.md)
+### [两种病毒同时爆发的担忧](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [突发！北朝鲜向日本海发射了一枚弹道导弹](/content/gnews/22/README.md)
+### [突发！北朝鲜向日本海发射了一枚弹道导弹](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如果历史上规模最大的人类实验阴谋破产了](/content/gnews/23/README.md)
+### [如果历史上规模最大的人类实验阴谋破产了](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [持续封锁限制措施，让英国住院人数激增](/content/gnews/24/README.md)
+### [持续封锁限制措施，让英国住院人数激增](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在法国发现名为“IHU”的新型冠状病毒变种，IHU 比Omicron具有更多的突变](/content/gnews/25/README.md)
+### [在法国发现名为“IHU”的新型冠状病毒变种，IHU 比Omicron具有更多的突变](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [我们面临最大的挑战就是自私懦弱](/content/gnews/26/README.md)
+### [我们面临最大的挑战就是自私懦弱](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [妈妈，我不想打实验性的疫苗!](/content/gnews/27/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
 
 ### [GTV新闻访谈简报|2022年1月4日晚](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
