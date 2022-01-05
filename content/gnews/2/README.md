@@ -2,59 +2,44 @@
 ---
 
 
-## 疫苗灾难开始显露？美国青壮年死亡大增40%
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825966/)
+## 美国保险公司数据显示疫情后工作年龄人口死亡率激增
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826091/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/us-coronavirus-dead.jpeg)图片来源：NPR
-翻译/编辑：守望黎明
+作者：纽约香草山教育部 Naughty(文行)
 
-总部设在印第安纳波利斯的壹美人寿保险公司（OneAmerica）的负责人说，工作年龄的人的死亡率比新冠疫情前的水平惊人地上升了40%。
 
-该公司首席执行官斯科特·戴维森（Scott Davison）在本周的一个在线新闻发布会上说：“我们现在看到的是这个行业历史上最高的死亡率——得出这个结论的不仅仅是我们OneAmerica一家保险公司。这一数据在保险业务的每个行业中人都是一致的。”
 
-OneAmerica是一家价值1000亿美元的保险公司，自1877年以来，其总部一直设在印第安纳波利斯。该公司有大约2400名员工，销售人寿保险，包括向该州的雇主提供团体人寿保险。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-戴维森说，死亡人数的增加代表了 “巨大的、巨大的数字”，而且死亡的不是老人，而 “主要是18至64岁的工作年龄的人”，他们都是通过OneAmerica公司办理团体人寿保险计划的公司雇员。
 
-他说：“这种情况在2021年三季度就出现了，而且一直持续到了第四季度，死亡率比大流行前足足增长了40%。”
 
-他说：“一个200年一遇的灾难也只能把死亡率推高10%，所以你可以想见死亡率闻所未闻的提高40%，是多么糟糕的事情。”
+总部位于印第安纳波利斯的保险公司OneAmerica首席执行官戴维森表示，公司18-64岁的客户的死亡率比疫情前增加了40%，他称这是保险业历史上团体人寿保险业务最高的死亡率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-18.jpg)图片来源：Zerohedge
+戴维森在上周的在线新闻发布会上称如此高的死亡率从2021年第三季度一直持续到第四季度，40%的增幅是闻所未闻的。
 
-戴维森是在12月30日由印第安纳州商会组织的网络新闻发布会上发言的几位商业领袖之一。
+据戴维森称，大多数提交的死亡案例并没有被归类为新冠病毒致死，实际上工作年龄人口因疫情而死亡的数字远比统计数字要高。
 
-戴维森说，已经提交的大多数死亡索赔没有被归类为新冠死亡。
+他补充说，“目前该公司的索赔率不断上升，这部分本来是公司最小的业务板块，但现在我们预计这笔费用将远远超过1亿美元，它对公司产生了巨大影响。”
 
-“数据向我们显示的是，已报告的工作年龄人口新冠死亡的人数大大低于大疫情中的实际死亡人数。他们的死亡证明并未标明新冠为死因，但死亡人数上升了，只是巨大的、巨大的上升。”
+OneAmerica遭遇的情况真实的验证了郭文贵先生在中共病毒爆发之初的判断：病毒爆发必然导致保险公司破产，保险公司破产必将导致银行破产，银行破产最终会导致金融崩溃。
 
-他说，与此同时，OneAmerica公司发现残疾索赔在“上升”，起初是短期残疾索赔，现在增加的是长期残疾索赔。
+新闻来源：[https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
 
-他说：“对OneAmerica来说，预计这方面的成本增加将远远超过1亿美元，对于这个最小的业务品种来说，这一影响是巨大的。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
 
-他说，这些费用将转嫁给购买团体人寿保险的雇主，使他们不得不支付更高的保费。
+编辑/校对/发稿：滚滚长江都是水
 
-疾病预防控制中心的每周死亡人数反映了死亡证明上的信息，因此有长达八周或更长的滞后期。在11月6日为止的一周内，印第安纳州死于新冠的人数比一年前少得多——是现在的195人对过去的336人，但死于其他原因的人数却更多——是1350人对过去的1319人。
+**更多资讯，更多关注**
 
-这些死亡数是针对所有年龄段的汇总，而戴维森所引用的信息是针对办理了团体人寿保险的工作年龄段的企业雇员。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在戴维森发言的同一新闻发布会上，印第安纳州医院协会主席布莱恩·塔伯（Brian Tabor）说，全州的医院正被 “患有许多不同疾病”的病人所淹没，他说： “不幸的是，在这场大流行中，平均健康状况在下降。”
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-在后续的谈话中，他说他没有详细的疾病、病况明细来解释为什么印第安纳州有这么多人住院，但戴维森引用的超高死亡率与该州的医院所看到的情况相符。他说：“它证实了我们在一线看到的情况。”
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-印第安纳州首席医疗官林赛·韦弗（Lindsay Weaver）博士在12月29日与州长埃里克·霍尔科姆（Eric Holcomb）举行的新闻发布会上说，现在该州的住院人数比一年前引入新冠疫苗之前要高，事实上是过去五年里最高的。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-该州医院的ICU床位只剩下8.9%可用，是今年的低点，比大流行期间的任何时候都低。但是大多数重症监护室的床位并不是被新冠患者占用——新冠患者只占用37%，而他疾病的患者使用了54%的重症监护室床位。
-
-印第安纳州的在线数据显示，现在全州新冠的每日死亡平均人数不到一年前的一半。在一年前新冠最高峰的2020年12月29日，单日死亡125人。在过去的三个月里，单日最高的死亡人数是58人，发生在2021年12月13日。
-
-原文链接：[Indiana life insurance CEO says deaths are up 40% among people ages 18-64](https://www.fox41yakima.com/indiana-life-insurance-ceo-says-deaths-are-up-40-among-people-ages-18-64/)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
