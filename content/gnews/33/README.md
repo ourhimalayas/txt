@@ -2,53 +2,36 @@
 ---
 
 
-## 防止被推特封帐号 大V播主乔·罗根加入盖特
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1822328/)
+## 受疫情影响英国面临严重员工短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822402/)
 
-翻译：**Lulumi**
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据英国《独立报》1月3日报道，由于中共病毒感染继续导致员工短缺，英国各地的垃圾箱收集已被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8.jpg)
+因中共病毒自我隔离导致员工人数减少，曼彻斯特、埃塞克斯、萨默塞特和白金汉郡的地方当局宣布减少服务或完全暂停废物收集。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-1-1.jpg)
+最近几周，由于奥米克戎变种病毒疫情的爆发，“中共病毒”确诊病例不断上升，数个行业普遍存在工人缺勤，促使政府警告公共部门领导人要为多达四分之一的员工无法工作做好准备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Joe-Rogan.jpg)乔·罗根已加入GETTR。（图片来源：www.foxbusiness.com）
+在中共病毒感染率高升的情况下，中学被告知在返回上课之前，要对所有学生进行现场新冠病毒检测。教育部长表示，如果教师短缺，也允许学校将学生留在家里进行在线教学。
 
-在乔·罗根(Joe Rogan)加入川普前顾问杰森·米勒(Jason Miller)创立的倾向于保守派的社交媒体平台后，GETTR新用户激增。
+英国卫生安全局表示，截至1月2日上午9点，英格兰和威尔士记录了137,583例新冠确诊病例。
 
-“万一Twitter那边变得更愚蠢，我现在也加入这边（GETTR）。欢呼吧！”
+参考链接：[Bin collections cancelled as Covid infections cause staff shortages](https://www.independent.co.uk/news/uk/home-news/bin-collections-staff-shortages-covid-b1985770.html?utm_source=ground.news&amp;utm_medium=referral)
 
-这是乔·罗根周日在GETTR上的自我介绍。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-乔·罗根是美国著名喜剧演员，播客主持人和综合格斗解说员。他成为周末在GETTR上开设账户的最抓眼球的名字之一。在同一天，因多次违反推特关于中共病毒COVID-19错误信息政策，乔治亚州共和党议员马乔丽·泰勒·格林的个人账户被推特永久禁止。
+总编：文特
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-在这方面，罗根有理由担心，因为他在整个中共病毒大流行中也被指控散布错误信息。他淡化了年轻人接种COVID-19疫苗的必要性，虽然美国疾病控制和预防中心在内的公共卫生官员都建议这样做。他在感染COVID时还服用了伊维菌素，尽管食品和药物管理局警告说，这种给马和牲畜驱虫的药物“很危险，会对人体造成严重伤害”。
-
-川普前高级顾问杰森·米勒在去年国庆节推出的社交媒体平台GETTR报告称，周日有171,629名新用户注册，“是GETTR上线以来单日注册人数的最大增长”，这要归功于罗根和其他人物，如喜剧演员“王牌接线员”拉里（Larry the Cable Guy）和UFC格斗家蒂姆·肯尼迪（Tim Kennedy）在最近几天加入该平台。
-
-GETTR首席执行官、川普前顾问杰森·米勒在一份声明中说：“大科技公司正在对自己进行审查，使其变得无关紧要。很明显，他们将川普总统从社交平台驱逐只是他们对言论自由战争的开始，现在他们要对付任何不符合他们世界观的人。”
-
-米勒告诉《华盛顿邮报》，截至2021年11月，GETTR拥有近300万总用户和近40万日均用户，其目标是在2022年初达到1000万总用户。
-
-相比之下，推特在2021年第三季度有2.11亿日活跃用户，比上一季度增加了500万。
-
-但罗根转投保守派社交媒体平台GETTR，并且他在推特上邀请780万粉丝加入他的行列，这导致GETTR从周日一直到周一早上在推特上成为潮流。
-
-GETTR还包括保守派记者安迪·恩戈(Andy Ngo)、政治评论员和YouTuber戴夫·鲁宾(Dave Rubin)以及综合格斗选手詹姆斯·韦伯(James Webb)等近期的高知名度成员。
-
-推特还禁止了罗伯特·马龙博士，他是一名mRNA疫苗科学家，就在他上周出现在罗根的播客中的前几天被指控散布关于COVID-19的错误信息。马龙也开设了一个GETTR账户。
-
-值得注意的是，在2021年1月6日一群川普支持者冲进美国国会大厦后，“由于存在进一步煽动暴力的风险”，推特对总统唐纳德·川普的账户进行了永久关停。
-
-罗根上周也成为头条新闻，他在他的Sirius卫星广播中预测，如果总统乔·拜登不竞选连任，前第一夫人米歇尔·奥巴马将在2024年击败川普。
-
-罗根说：“我真的相信，如果米歇尔·奥巴马参选，她会赢，”他的话激怒了他的一些保守派粉丝。
-
-**参考资料：**[marketwatch][Joe Rogan joins GETTR ‘just in case’ Twitter bans him like it did Marjorie Taylor Greene](https://www.marketwatch.com/story/joe-rogan-joins-gettr-just-in-case-twitter-bans-him-like-it-did-marjorie-taylor-greene-11641228504?reflink=mw_share_twitter)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

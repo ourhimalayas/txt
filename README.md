@@ -15,104 +15,104 @@
 
 ---
 
-### [中共败相（二）：黑龙江鹤岗或成为中共首个破产的地级城市](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [【G时新闻】沃尔玛因下架新疆产品遭中纪委刊文警告](/content/gnews/1/README.md)
+ ` G-时新闻`
 
-### [雷·达利欧表示在印钞过程中，“愚蠢地拥有”现金和债券](/content/gnews/2/README.md)
- ` MG FARM`
+### [美国军人初步打赢被告为总统的疫苗宗教豁免官司](/content/gnews/2/README.md)
+ ` 向真`
 
-### [中共败相（一）： 河北霸州（县级市）财政亏空](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [犬儒主义与最坏者当政](/content/gnews/4/README.md)
+### [恒大集团：海花岛投入810亿，拆除整改](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦爆料革命日历](/content/gnews/5/README.md)
+### [中共败相（三）：河南省全部102个县面临财政危机](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共败相（二）：黑龙江鹤岗或成为中共首个破产的地级城市](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022BC省一些郊区的房屋评估价值上涨了 40% 以上](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [雷·达利欧表示在印钞过程中，“愚蠢地拥有”现金和债券](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [中共败相（一）： 河北霸州（县级市）财政亏空](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [犬儒主义与最坏者当政](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新中国联邦爆料革命日历](/content/gnews/10/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共西藏谎言系列之四：寄宿学校制度和清洗教育的摧残](/content/gnews/6/README.md)
+### [中共西藏谎言系列之四：寄宿学校制度和清洗教育的摧残](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [麦卡洛博士：COVID-19的门诊治疗已被禁止](/content/gnews/7/README.md)
+### [麦卡洛博士：COVID-19的门诊治疗已被禁止](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联邦法官对拜登政府另一重拳：军事疫苗强制令非法](/content/gnews/8/README.md)
+### [联邦法官对拜登政府另一重拳：军事疫苗强制令非法](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【G时新闻】超级计算机模拟结果推翻了中共病毒自然来源说](/content/gnews/9/README.md)
+### [【G时新闻】超级计算机模拟结果推翻了中共病毒自然来源说](/content/gnews/14/README.md)
  ` G-时新闻`
 
-### [中共西藏谎言系列之三：中共对西藏水资源的掠夺和控制](/content/gnews/10/README.md)
+### [中共西藏谎言系列之三：中共对西藏水资源的掠夺和控制](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年COVID疫苗回顾：2亿人接种45万人死亡](/content/gnews/11/README.md)
+### [2021年COVID疫苗回顾：2亿人接种45万人死亡](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [自乔·罗根加入后，社交平台盖特48小时内猛增50万新用户](/content/gnews/12/README.md)
+### [自乔·罗根加入后，社交平台盖特48小时内猛增50万新用户](/content/gnews/17/README.md)
  ` 全球G系列咨服群`
 
-### [【G时新闻】专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/13/README.md)
+### [【G时新闻】专家称新冠病毒导致一代智商较低的儿童和问题少年](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR](/content/gnews/14/README.md)
+### [推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令](/content/gnews/15/README.md)
+### [在3万名儿童反抗下，洛杉矶公立学校取消实施儿童疫苗强制令](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [海豹突击队在美国反疫苗规定的斗争中取得了惊人的胜利](/content/gnews/16/README.md)
+### [海豹突击队在美国反疫苗规定的斗争中取得了惊人的胜利](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人生的十二条法则：路上碰到一只猫咪时，记得摸摸它](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [人生的十二条法则：孩子玩滑板的时候，别打扰他](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [人生的十二条法则: 说话时，语言要精确](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [2022/01/01新年直播精要](/content/gnews/20/README.md)
+### [2022/01/01新年直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由有时是凌乱的，但它改善了一切](/content/gnews/21/README.md)
+### [自由有时是凌乱的，但它改善了一切](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [西媒头条 — 第145期](/content/gnews/22/README.md)
+### [西媒头条 — 第145期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [聊聊盘古风水的那些事](/content/gnews/23/README.md)
+### [聊聊盘古风水的那些事](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/24/README.md)
+### [马龙表示：美国在新冠问题上处于“大规模精神病”状态](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/25/README.md)
+### [新冠疫苗行业中的商业利益与公共健康相冲突](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/26/README.md)
+### [揭秘中共国全球间谍网络—不断收集个人数据](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/27/README.md)
+### [COVID疫苗伤害报告超百万 FDA仍批准儿童加强剂](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/28/README.md)
+### [洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/29/README.md)
+### [有声|《新中国联邦宣言》是治愈共产主义创伤的答案](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦人要拥有爱](/content/gnews/30/README.md)
+### [有声|新中国联邦人要拥有爱](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [受疫情影响英国面临严重员工短缺](/content/gnews/31/README.md)
+### [受疫情影响英国面临严重员工短缺](/content/gnews/33/README.md)
  ` GTV新闻访谈`
-
-### [有声|恒大海花岛39栋违章建筑限期十日内拆除](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [防止被推特封帐号 大V播主乔·罗根加入盖特](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [因言被封：推特永久封禁美众议员的个人账户](/content/gnews/34/README.md)
  ` GTV新闻访谈`
