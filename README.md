@@ -15,83 +15,83 @@
 
 ---
 
-### [加拿大生活美谈 2021-12-30第三十六期](/content/gnews/1/README.md)
+### [[小雨专栏]在路上055——懒惰篇](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大生活美谈 2021-12-30第三十六期](/content/gnews/2/README.md)
  ` canadalifetalk`
 
-### [西安残酷封城的根由或是共匪内斗](/content/gnews/2/README.md)
+### [西安残酷封城的根由或是共匪内斗](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [对推特谷歌等垄断机构 一系列法案正在进行中](/content/gnews/3/README.md)
+### [对推特谷歌等垄断机构 一系列法案正在进行中](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共同的信仰像火一样 让我们同心灭共](/content/gnews/4/README.md)
+### [共同的信仰像火一样 让我们同心灭共](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共颁布家庭教育恶法再走文革，制造对立违背人权伦理](/content/gnews/5/README.md)
+### [中共颁布家庭教育恶法再走文革，制造对立违背人权伦理](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“南菜北运”工程是蔬菜供应短缺的遮羞布](/content/gnews/6/README.md)
+### [“南菜北运”工程是蔬菜供应短缺的遮羞布](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（2/2）](/content/gnews/7/README.md)
+### [福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（2/2）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [01/05/22 香港快讯 周五起晚市禁堂食　酒吧和健身室等表列处所要关闭](/content/gnews/8/README.md)
+### [01/05/22 香港快讯 周五起晚市禁堂食　酒吧和健身室等表列处所要关闭](/content/gnews/9/README.md)
  ` 英喜-粵語組`
 
-### [古以色列亡国启示录](/content/gnews/9/README.md)
+### [古以色列亡国启示录](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线：中共党员 活着当奴隶 死了当烈士](/content/gnews/10/README.md)
+### [秘翻在线：中共党员 活着当奴隶 死了当烈士](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年1月5日早](/content/gnews/11/README.md)
+### [GTV新闻访谈简报|2022年1月5日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [已接种中共病毒疫苗的飞行员成飞行风险之一](/content/gnews/12/README.md)
+### [已接种中共病毒疫苗的飞行员成飞行风险之一](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [冬奥会邻近 北京街头一片索然](/content/gnews/13/README.md)
+### [冬奥会邻近 北京街头一片索然](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [2022年伊始，盖特的西班牙语用户暴涨了571%](/content/gnews/14/README.md)
+### [2022年伊始，盖特的西班牙语用户暴涨了571%](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [芝加哥警察工会主席猛烈抨击中共病毒疫苗](/content/gnews/15/README.md)
+### [芝加哥警察工会主席猛烈抨击中共病毒疫苗](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/16/README.md)
+### [瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [印度推进15至18岁青少年的疫苗接种工作](/content/gnews/17/README.md)
+### [印度推进15至18岁青少年的疫苗接种工作](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [以色列出现首例新型混合病毒FluRona](/content/gnews/18/README.md)
+### [以色列出现首例新型混合病毒FluRona](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [航空公司支付员工高薪维持假期运营](/content/gnews/19/README.md)
+### [航空公司支付员工高薪维持假期运营](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/20/README.md)
+### [墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [狮城快讯：腾讯从虾皮母公司套现超30亿美金](/content/gnews/21/README.md)
+### [狮城快讯：腾讯从虾皮母公司套现超30亿美金](/content/gnews/22/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [专家呼吁关注奥密克戎变种出现的独特症状](/content/gnews/22/README.md)
+### [专家呼吁关注奥密克戎变种出现的独特症状](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】进口水果蔬菜甚至包装盒都改姓党？](/content/gnews/23/README.md)
+### [【Michael.Tonny专栏】进口水果蔬菜甚至包装盒都改姓党？](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [捷克新政府将与台湾全面合作](/content/gnews/24/README.md)
+### [捷克新政府将与台湾全面合作](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [福克斯新闻：中共正积极进行一场针对美国生活方式的战争](/content/gnews/25/README.md)
+### [福克斯新闻：中共正积极进行一场针对美国生活方式的战争](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西安中共病毒感染者1月4日被强制清零](/content/gnews/26/README.md)
- ` GTV新闻访谈`
 
 ### [福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（1/2）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`

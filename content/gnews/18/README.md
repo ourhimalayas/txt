@@ -2,47 +2,32 @@
 ---
 
 
-## 以色列出现首例新型混合病毒FluRona
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1825400/)
+## 印度推进15至18岁青少年的疫苗接种工作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825402/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-8.png)
-以色列贝林森医院（Beilinson Hospital）出现了新的突变病毒，是中共病毒+流感的混合病毒，被称为Flurona。
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月3日，据有关媒体新闻显示，即日起，印度开始为本国15至18岁的青少年人群接种中共病毒疫苗。 为此，当局已下令将私立和公立学校作为学生的疫苗接种中心，并要求学校每天向地方政府汇报接种数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.36.png)
+据印度卫生部最新通报的数据显示，当地已有一千七百人感染了奥密克戎变种病毒。而值得注意的是，自去年六月份大规模接种中共病毒疫苗以来，印度的单日新增病例数就一直居高不下。
 
-据当地媒体报道，本周早些时候，以色列城市佩塔赫蒂克瓦的拉宾医疗中心首次在一名年轻孕妇身上发现了这种混合感染。
+有评论分析称，各国陆续有科学家反复呼吁，在中共病毒疫苗副作用明朗化之前，应暂停继续为青少年接种疫苗。而对于印度来说，其拥有2.53亿青少年，是全球青少年人口最多的国家。因此，该国强推青少年疫苗的措施无疑会为自身庞大的未成年群体带来难以预估的灾难。
 
-据医院称，这位年轻孕妇没有接种过中共病毒疫苗，也没接种过流感疫苗，她只出现了轻微的症状，生产也顺利结束，并准备周四出院。
+参考链接：[印度开始为15至18岁青少年接种冠病疫苗](https://www.zaobao.com.sg/realtime/world/story20220103-1229267)
 
-拉宾医疗中心贝林森医院妇科主任阿农-维兹尼泽（Arnon Vizhnitser）博士在接受当地媒体Hamodia采访时谈到，这位孕妇一到医院就出现症状，并被诊断出患有流感和中共病毒。三次测试结果都是阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-这两种病毒都攻击患者上呼吸道导致呼吸困难。
+总编：飞虹
+编辑：天滅中共
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-阿农-维兹尼泽博士还指出，这位孕妇是世界上首例Flurona混合病毒病例。
-
-以色列专家推测，国内可能会有更多的’Flurona’混合病毒感染者，尤其是在流感 “神秘地 “休息了一年之后，又猛然出现。
-
-另据《国土报》报道，截至上周五，以色列卫生部最新统计数据显示，已有5,000例奥米克戎（omicron）病例，其中大多数跟普通感冒类似–没有一例奥米克戎病例是致命的。
-
-尽管如此，以色列军队冠状病毒工作组的负责人上周四警告说，随着奥米克戎的传播，医疗系统将 “崩溃”。
-
-虽然以色列是世界上中共病毒疫苗接种率最高的国家之一，并且，政府官员们也承认没有任何证据表明接种中共病毒疫苗对奥米克戎新变体有效，但以色列还是为第四剂实验性中共病毒疫苗接种开了绿灯。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
-
-
-[新闻来源链接](https://www.thegatewaypundit.com/2022/01/first-case-flurona-detected-almost-fully-vaxxed-israel-virus-supposedly-hybrid-flu-coronavirus-go/)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

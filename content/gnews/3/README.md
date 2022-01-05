@@ -2,131 +2,38 @@
 ---
 
 
-## 对推特谷歌等垄断机构 一系列法案正在进行中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
+## 西安残酷封城的根由或是共匪内斗
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1825706/)
 
-[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
+作者：波士顿五月花 淘喵先生
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220105-2.jpg)
+因为近期疫情爆发，中共在西安市内实行了残酷的封锁政策。根据各种渠道流传出来的信息，该政策引起的食物短缺和缺医少药已经导致了大量民众死亡。就短期来看，封城对老百姓的伤害已经远远超过了中共病毒（Covid-19）的伤害。
 
-据我所知
-Hasta donde yo sé
+因此，西安封城背后的政策动机非常值得深思。
 
-对待Facebook, 谷歌
-Hacia Facebook, Google
+根据郭文贵先生爆料的信息，目前中共内部正处于以习、江两家为代表的两派势力的激烈内斗之中。因此，在近1300万人口的西安实行如此残酷的封城政策，极有可能是共匪内斗的结果。
 
-还有这些垄断机构, 像Twitter
-Y estos órganos administrativos monopolista como Twitter
+在共匪的内斗中，执政的习家处于攻势，近期主要是想通过冬奥会与西方各种势力进行勾兑，并借此在党内树立威信，然后到今年中共二十大时进一步巩固习家王朝；而江家则处于守势，为了保命保身家保护家人及走狗爪牙，不惜铤而走险、多次对习实施暗杀。
 
-一系列的法案正在进行中
-Una serie de Proyecto de Ley está en proceso
+对于江家来说，如果政变不成，至少也要尽量搞乱国内局势，以便浑水摸鱼。因此，在这种背景下，病毒不但要有党性，而且关键时候还得听江曾王孟上海帮的命令。西安借疫情大爆发而实行残酷封城，可能只是江派势力更大动作的前奏和演练，接下来一大波大小城市的瘟疫爆发和封城也许将接踵而至。
 
-大家一定要记住
-Todos deben recordar
+而且郭先生根据情报已经预言接下来有可能爆发疫情的就是河北。试想一下，如果到冬奥会前，大半个中国都处于封城的状态，甚至连举办地河北都处于封锁之中，那么到时候习太阳估计在天上也就挂不住了。
 
-GTV 会再次投胎
-GTV reencarnará otra vez
+也许正是因为如此，所以习才紧急下令西安在1月4日必须实现新感染人数清零。
 
-会以你意想不到的形式投胎
-Y lo hará de una forma inimaginable
+但是现在的西安不是当初的武汉。最初爆发病毒时，在武汉实行强制隔离的措施可以实现表面清零。而现在中共国内几乎人人体内都有浓度不一的毒疫苗，自身免疫力也因此急剧降低。在这种情况下，连疫情的不断爆发都无法阻止，清零更是无从谈起。
 
-Gnews 也会转身投胎
-Gnews también se dará la vuelta para reencarnar
+当年周永康在倒台之前，凭借掌控政法委的便利，安排黑警党羽到十个大城市去实施随机大刀砍杀无辜民众。其目的就是想要搞乱社会、制造恐慌，以便趁机全身而退。最后是以死伤数十个老百姓为代价而失败收场。
 
-你也会想象不到
-También no lo podrás imaginar
-
-没有任何人知道
-No hay alguien que lo sepa
-
-你别看现在很多人以为自己知道 你们都不知道
-No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
-
-那么盖特
-Y Gettr
-
-还有一个现在你看我这希望暴跌的喜币
-Y lo otro ahora yo espero que el precio de H-coin desplome
-它现在一直不跌
-Pero ahora no se quiere bajar
-
-（想）给大家点机会进来
-(Quiero) darle a todos la oportunidad de entrar
-
-大家要知道
-Todos deben saber
-
-你知道（这是）什么概念 兄弟姐妹们
-Sabes qué concepto es (este) hermanos y hermanas
-
-这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
-Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
-
-而唯一的一个
-Y el único
-
-留下的机会和市场就是我们
-Que quedará de oportunidad y mercado seremos nosotros
-
-喜币一定（会）超过比特币
-El H-coin sobrepasará (de seguro) al Bitcoin
-
-一定会
-Seguro que sí
-
-比特币一定会消失
-El Bitcoin seguramente desaparecerá
-
-就是这个时代这个机会
-Y esta oportunidad de esta época
-
-不是我们想抓就抓得住的
-No es que lo agarramos porque queremos
-
-当然我们主动性要够
-Claro que debemos tener suficiente iniciativa
-
-时机 时机
-El tiempo y la oportunidad (Shí Jī)
-
-时间不是我们决定的
-(Shí ) El tiempo no lo decidimos nosotros
-
-是老天决定的
-Eso lo decide Dios
-
-机是我们自己抓到的
-(Jī)) Pero la oportunidad lo atrapamos nosotros
-
-兄弟姐妹们
-Hermanos y hermanas
-
-特别好是今天在这块儿你们这么多高人
-Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
-
-明年年底再想想是什么概念
-Piensen cómo será la idea el fin del año que viene
-
-你会想象不到这个人类（会有）多大变化
-No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
+这次的习江大战，将武器从大砍刀改为病毒和毒疫苗，其杀伤力更大、隐蔽性更强，最后被屠杀的黎民百姓的数量，恐怕将再创共匪窃政以来新的纪录。
 
 * * *
 
-日期：01/04/2022
-原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
-Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
-任务编号：KC395（3305）
-视频时间段：0:00-01:35
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：黄金时代*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
  
 

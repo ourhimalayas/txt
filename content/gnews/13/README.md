@@ -2,34 +2,37 @@
 ---
 
 
-## 冬奥会邻近 北京街头一片索然
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825419/)
+## 已接种中共病毒疫苗的飞行员成飞行风险之一
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1825435/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月4日，据日本媒体报道，距离2月4日开幕的中共北京冬奥会仅剩一个月，但北京街头当下仍旧没有任何迎接冬奥会氛围。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-3.jpg)
-对此，日本媒体分析其原因有三：首先，所有冬奥会的相关人员只能停留在选手村，但不能进入北京市；其次，中共北京政府用巨大的幕墙将当地机场一份为二，仿若戒严；最后，由于习近平亲自部署、指挥此次冬奥会，这导致当地政府将重点放在了加强管理上。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-9.png)
+中共病毒（COVID-19）疫苗受害者-美国飞行员格雷格-皮尔森最近在接受《美国真实之声》采访时透露了一个令人震惊的真相。
 
-同时，日媒记者也在采访时表示，当地居民有些根本不知道冬奥会，而有些则认为，相较于冬奥会，同一时间的农历新年更为重要。
+皮尔森说，已接种病毒疫苗的飞行员是飞行风险之一。因为这些飞行员是带着胸口和头部的剧痛去工作的。他们不敢站出来说话…….害怕遭到报复，害怕会失去工作。
 
-分析人士则指出，中共北京冬奥会不仅遭到了由新中国联邦发起的国际抵制浪潮，墙内民众实则也对此一片索然，加之中共为了疫情清零所制造的高压氛围，这些都让其寄托于冬奥会带来的效果在开幕前就大打折扣了。
+皮尔森原本不想接种中共病毒疫苗，但雇主强制要求，不得不去打了病毒疫苗针。
 
-参考链接：[北京冬奧會開幕前1個月，北京沒有歡迎冬奧的氣氛](https://www.gettr.com/post/plymro4b4e)
+但没多久，皮尔森的心脏开始剧烈跳动，挂了急诊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+医生很快给皮尔森做了心电图分析，迅速做了血液检查，并确定其心房颤动——这是导致中风的主要原因。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：Fei797
+皮尔森还说，他可能在飞行100英尺的高空试图降落的时候中风，很可能在副驾驶反应过来之前，就把那个飞行杆压了下去，如果是那样，一切都太迟了。对很多人来说，一切都结束了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+[新闻来源链接](https://thecovidworld.com/vaccine-injured-pilot-reveals-there-are-pilots-that-are-going-to-work-with-crushing-chest-pains/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
