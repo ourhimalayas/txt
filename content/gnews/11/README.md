@@ -2,42 +2,24 @@
 ---
 
 
-## 德国超过95%的奥密克戎感染病例是疫苗接种者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1824159/)
+## 【中日财经爆】“亏损王”华融复牌首日股价遭腰斩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824197/)
 
-撰稿: 纽约香草山 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
-据国家脉动12月31日报道，根据美国联邦政府的一份新报告，德国95%以上的奥密克戎中共病毒感染报告病例发生在完全接种疫苗的人身上。这份来自德国的新数据证明了疫苗的危害性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%9B%BE%E7%89%872-1.png)[首页](https://gnews.org/zh-hans/)
+整理编辑：东京樱花团｜peterwong
+![](https://lh5.googleusercontent.com/RoAudis_9EZmKM7W55zzwbDjV_kTMc75MO5sHOTmtQ-zg4aFAB-IIzgPauxcOKeqkzR0yVPHew1abq9-7W3WqSnTEWNbOI3SqMNnck95D1hvQebTXQnfpzfc3s8oR--DdilY6CIQ)[*图片来源*](https://upload.wikimedia.org/wikipedia/commons/9/9d/HK_%E7%81%A3%E4%BB%94_Wan_Chai_%E5%91%8A%E5%A3%AB%E6%89%93%E9%81%93_60_Gloucester_Road_%E4%B8%AD%E5%9C%8B%E8%8F%AF%E8%9E%8D%E5%A4%A7%E5%8E%A6_China_Huarong_Tower_%E7%9B%A7%E6%8A%BC%E9%81%93_Luard_Road_September_2019_SSG_03.jpg?uselang=zh-tw)
+停牌时间长达九个月的中国四大资产管理公司之一的华融资产周三（1月5日）复牌，早盘一度暴跌近55%至0.46港元，为其自2015年10月上市以来最低水平。华融在今日召开的新闻发布会上表示，二级市场股价取决于多方面因素，目前其首要任务是努力做好经营、提升业绩，坚持规范运作，确保公司可持续发展。
 
-新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上
-新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上
-[奥米炕病毒](https://gnews.org/zh-hans/tag/%e5%a5%a5%e7%b1%b3%e7%82%95%e7%97%85%e6%af%92/)[注射疫苗人群](https://gnews.org/zh-hans/tag/%e6%b3%a8%e5%b0%84%e7%96%ab%e8%8b%97%e4%ba%ba%e7%be%a4/)
+华融官方微信公众号刊文援引董办负责人在发布会上的发言称，二级市场公司股价既取决于公司经营业绩等内在因素，也取决于宏观经济环境、监管政策导向、行业趋势、市场情绪等外在因素。
 
- [秘密翻譯組G-Translators](https://gnews.org/zh-hans/author/mimifanyizu/) 1月 01日
+华融于去年4月初停牌并延迟刊发2020年度业绩，引发市场广泛担忧。8月中旬华融预计2020年净亏损1,029.03亿元人民币，被市场喻为“亏损王”；同时公告称，其与中信集团、中保投资、中国人寿资产管理公司、中国信达1359.HK、远洋资本等签署投资框架协议，拟通过认购公司新发行股份的方式对华融进行战略投资。9月后，华融开启剥离非核心主业进程，先后转让华融证券、华融交易中心、华融金融租赁、华融湘江银行及华融消费金融公司股权。
 
+12月上旬，中国银保监会核准华融非公开发行内资股及H股股份，募资资金总额不超过420亿元；其中，内资股的发行对象为：中信集团、中保融信基金、中国信达、工银投资，分别认购不超过188.2亿股、145.1亿股、39.2亿股和19.6亿股。H股的发行对象为中国人寿601628.SS2628.HK，其作为合格境内机构投资者认购不超过19.6亿股。
 
-0
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%9B%BE%E7%89%872-1.png)
-图片来源：网络截图
-这篇论文由德国机构罗伯特·科赫研究所于12月30日发表，其中包括4,206名感染该病毒最新变体的人的疫苗接种状况信息。研究中报告感染奥密克戎的4020人，相当于总病例的95.6%，已经接受了至少两剂中共病毒疫苗。在奥米炕阳性群体中，28%的人还接受了第三针或加强针。 在整个样本中，只有186名感染奥米炕的人没有接种疫苗，这表明接种疫苗的人感染中共病毒变体的可能性是21倍以上。《国家脉动》曾在12月14日宣布在世界范围内的中共病毒的状况实际就是“接种疫苗（产生）的大流行病”。 罗伯特·科赫研究所的报告还记录了近7000名奥米炕病毒检测呈阳性的人的症状，大多数人几乎没有经历任何不良反应。对于提供了有关症状的信息的6788个病例，大部分没有报告症状或症状轻微。124名患者住院治疗，4人死亡。
+消息来源：[**中国华融停牌九个月后首日复牌股价遭“腰斩” 称首要任务是做好经营**](https://cn.reuters.com/article/huarong-stock-resume-trading-0105-idCNKBS2JF0B2?il=0)
 
-这些数据表明中共病毒疫苗不但在防止感染奥米炕变种病毒方面没有任何优势，而且还导致了病毒大规模流行。
-
-新闻链接：[新数据显示超过95%的奥米炕病例发生是在接种疫苗的人身上](https://gnews.org/zh-hans/1814137/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,25 @@
 ---
 
 
-## 【中日财经爆】腾讯出售东南亚网络巨头SEA股份套现30亿美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823902/)
+## 乔·罗根带领其数百万推特粉丝入驻盖特
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823994/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh5.googleusercontent.com/wK11C8FCUXt5QXAJ6skWQIxDwuxJhFQgsMaBtdxX9MkW6IHRQfkqBi7e4LrHYYLmIbGCltpg2MvETckm8Cv0fcDAhFEdzt3CoCmrhqnHtZdTJxX82eA5hYGhQwi35UG7vbgEsSCV)[*图片来源*](https://pic1.zhimg.com/80/v2-c431e75f90af0fa745c25fdd1cf4a6f4_1440w.jpg)
-腾讯控股有限公司周三（1月5日）出售了价值30.1亿美元的新加坡游戏和电子商务公司冬海集团的股份。SEA（冬海集团）主要业务有，游戏Garena、电商Shopee（虾皮）、数字金融SeaMoney。
+#### 翻译/校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/joe-rogan.png)图片来源：outkick
+根据福克斯商业新闻电视台（Fox Business）1月3日的报道，博客巨头乔·罗根（Joe Rogan）周日开设了他的盖特（GETTR）账号，并鼓励他的780万推特粉丝加入盖特。
 
-根据一份销售文件，腾讯在一次大宗交易中以每股208美元的价格出售了1,450万股冬海股票。腾讯周二表示，腾讯于冬海集团所持有的投票权预计将减少至10%以下。
+许多推特用户对罗根的推文做出反应，致使盖特在整个周日下午成为推特上的热门话题，许多人显然接受了罗根的建议并开设了账号。罗根在盖特上写道，“（防止）如果有一天推特变得更蠢，我现在也（搬到）这里，欢呼吧。”
 
-**SEA（冬海集团）核心业务：游戏**
+在罗根搬到盖特的同一天，众议员马乔里·泰勒·格林（Marjorie Taylor Greene）的个人账户因传播推特所认为的中共病毒“错误信息”被推特永久封禁。
 
-SEA（冬海集团）由天津人李小东于09年创立,总部位于新加坡。由于其业务由游戏起家，加之腾讯又是其大股东,因此也被人称为“东南亚小腾讯”。但从营收结构上来看，说它是腾讯+阿里的结合体似乎更为贴切。财报数据显示，当前Sea主要有三块业务：游戏的Garena、电商的Shopee（虾皮）以及数字金融的SeaMoney。
+罗伯特·马龙（Robert Malone）博士是mRNA疫苗技术的贡献者。上周在他参加罗根播客节目的几天前，推特也封禁了他的账号，目前马龙博士也在盖特开设了账号。
 
-当下，游戏业务仍是Sea最核心的业务。财报数据显示，Garena的业务营收占比超过10亿美元。即便与国内游戏巨头比起来，Garena也已经不逊色多少。网易今年Q2的游戏收入是145.2亿元，而Garena的预售收入也已经达到12亿美元，几乎是2/3个网易的体量。
+盖特是由前川普顾问杰森·米勒（Jason Miller）于7月4日推出的。米勒在采访中表示，他希望盖特这个社交媒体应用“独立于社交媒体垄断，独立于取消文化（Cancel culture）；拥抱自由言论。“仅在盖特面市的第一天就突破100万次下载量，而且推出后仅三天盖特就达到100万名注册用户，这是有史以来最快达到100万用户的平台。
 
-**综合业务**
+米勒说：“盖特平台还在成长中，当你看看那些其他平台时，这真的很令人兴奋，看看他们花了多长时间才到达100万名用户，脸书在他推出的第一年达到该目标，而推特则用了近24个月才达到100万名用户。我们只花了三天。我认为这表明，人们对一个不对政治信仰进行审查的平台兴趣极大。”
 
-除了游戏平台Garena，Sea还有电商的Shopee（虾皮）以及数字金融的SeaMoney等业务，甚至还有外卖业务和短视频业务，只不过相对前者，后者的业务更多处于试水阶段。其中，电商业务无疑是Sea的重点发力方向。在东南亚，电商市场仍然处于蓝海市场。数据显示，东南亚有超4亿人在使用互联网，占据全球互联网总人数10%，且这个数字还在快速增长；二是东南亚的电商渗透率仍然较低，但人均收入消费增速却在高速增长，提供广阔市场空间。
+新闻来源：[Joe Rogan leads move to GETTR after Twitter bans Dr. Robert Malone, Rep. Marjorie Taylor Greene](https://www.foxbusiness.com/politics/joe-rogan-gettr-twitter-bans-dr-robert-malone-rep-marjorie-taylor-greene)
 
-在Sea进军电商之前，阿里投资的Lazada是绝对的霸主。但在2015年Shopee成立后，情况发生了变化。尽管起步晚，但得益于本地化运营的优势，Shopee最终得以反超Lazada。比如，Lazada只有一个统一的网址，Shopee则在每个市场都发布了独立的App，且每一款都有特定的功能。再比如，在注重性价比的马来西亚，就不间断地推送各种“秒杀”商品；在注重明星代言的泰国，就频繁邀请网红宣传带货；在印尼，则推出专门的伊斯兰产品和服务
-
-据Frost&Sullivan统计，2019年Shopee在泛东南亚电商市场GMV与订单量排名第一，成为东南亚最大的电商平台。截至Q2，Shopee的GMV达到150亿美元，其相当于1/5个拼多多的GMV；增速方面，Shopee的GMV同比增长87.5%。
-
-电商业务的崛起，也为其金融业务带来了更多可能。在电商业务的场景优势下，Sea的数金业务增速也非常快。数据显示，在2015年Q1，SeaMoney平台的总交易金额（GTV）仅为2880万美元，到2018年Q2时，平台的总交易金额已经达到24.64亿美元，是2015年Q1的85倍之多，增长十分迅速。
-
-消息来源：
-
-[**腾讯出售新加坡冬海集团股份套现30.1亿美元**](https://cn.reuters.com/article/tencent-sg-sea-stocks-0105-idCNKBS2JF031?il=0)
-
-[**2年10倍，Sea何以成为亚洲第三？**](https://m.jiemian.com/article/6717346.html)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
