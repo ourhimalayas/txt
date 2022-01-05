@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 1:27 AM (UTC)`
+
+1月4号：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group27/getter/2022/01/05/01/ac23239c-9127-d592-9f8e-8d0a0b773aca/cf31a1f1343a34bf4e05a438267c4ec9.jpg)
+
+---
+
 `@miles 1/5/2022 1:24 AM (UTC)`
 
 1月4号：【郭先生的情报准确无误，悲剧正在一幕一幕上演🙏🙏🙏】
@@ -150,13 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/1/2022 Mr.Miles Guo: The Story Behind Communist China's Intention to Strictly and Seriously Regulate the Out-of-Control Chinese Music and Culture Market<br/><br/>1/1/2022 文贵先生新年直播：中共意欲严格严肃管理失控中国音乐文化市场背后的故事<br/>
 ![img](https://media.gettr.com/group23/getter/2022/01/03/08/6561c8ea-a830-9ce3-d350-d100b133dbc1/out.jpg)
-
----
-
-`@miles 1/3/2022 7:52 AM (UTC)`
-
-1/1/2022 Miles Guo: We grow in the negativity of others, to grow & mature rapidly in self-respect. There is only one reason that we are the ones who eliminate communism. Everyone is a butterfly; everyone can trigger the butterfly effect. When I live broadcast today, I feel that it is the result of the common growth, breathing, and struggle of all of our lives.You have been working on a great cause, something you might not fully appreciate its importance at this point in time.<br/><br/>1/1/2022 文贵先生新年直播：我们在否定中成长，在自恋中飞速的成长和成熟. 只有一个理由，因为我们是共同的灭共者.每个人都是一个蝴蝶，每个人都能扇起蝴蝶的力量.我每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸，共同奋斗的结果。你们在做着一生当中可能你自己到现在都无法想象的，多么伟大的事业。<br/>
-![img](https://media.gettr.com/group23/getter/2022/01/03/07/476ea90f-4124-f274-25c6-e9ff23fd32a8/out.jpg)
 
 ---
 
