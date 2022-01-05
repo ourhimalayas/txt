@@ -2,30 +2,53 @@
 ---
 
 
-## 法国新发现奥密克戎变种的远亲仍是中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824308/)
+## 人寿保险公司CEO称美国18-64岁人群的死亡率增加了40%
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1824534/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/namC9KTJ1gmUQShxocpwjJUvh6we_xl8xoc3Nxwob7-zrWFIQcp17OcqQ6ZItDxQ6gK2G9Dn_0RUjxmfNEP7lC22lKM1NPPvXVUKgCqRCj0g2Qy4O3ZlYGBkBjV0ZvC8dH_v_yS6)[*图片来源（中共病毒出现在实验室培养的细胞表面）*](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
-**法国科学家再次发现 COVID-19 的另一种毒株变体是IHU Mediterranee Infection 。研究人员于发现该毒株有“46 个突变” ，据信比原始病毒更具传染性。大流行进入第三年，它的变体不断翻新，根源只有一种，即中共以舟山蝙蝠为骨架，对世界上几乎所有新发突发高致病性病毒进行研究并于2020年年初发布的结果。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010403-1.jpg)图片:Keith Brofsky摄/盖蒂图片社
+来自美国《信息战》新闻网站2022年1月3日报道，
 
-据美国红色之声援引《[每日邮报](https://www.dailymail.co.uk/tvshowbiz/article-10367191/Kate-Garraway-says-husband-Derek-Draper-phenomenally-fatigued.html?ito=chromelessDM_0)》报道称，“[法国科学家这次发现了 COVID-19 的另一种变体](https://www.redvoicemedia.com/2022/01/breaking-new-ihu-covid-variant-discovered-heres-what-you-need-to-know/?utm_source=daily-email-breaking&amp;utm_medium=email)。”毒株是研究人员于 12 月 10 日发现的，由 IHU地中海感染 （ IHU Mediterranee Infection ） 的。 该毒株有 46 个突变，据信可以抵抗 COVID-19 刺突蛋白，并且它们被认为比原始病毒更具传染性。迄今为止，在法国马赛市附近发现了 12 个病例，第一个病例与前往非洲国家喀麦隆有关。[**阅读更是多**](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
+**摘要翻译：**
 
-据报道，这种被称为 B.1.640.2 的菌株携带 E484K 突变，专家认为这使其更能抵抗所谓疫苗。该菌株是目前在世界各地流行的奥密克戎（ Omicron ） 变种的远亲。
+总部位于印第安纳波利斯的保险公司OneAmerica的首席执行官表示，18至64岁人群的死亡率比大流行前的水平高出惊人的40%。
 
-- ***延展阅读：***[***比Omicron更夸张！又一新变异株出现，全身46处变异，世卫紧急回应***](https://www.sohu.com/a/514432939_165533)
-- ***延展阅读：***[***没完了？法国发现传染性更强的新冠病毒新变体HMN.19B***](https://t.qianzhan.com/caijing/detail/210401-5387d4e9.html)
+“我们现在看到了这个行业历史上所见的最高死亡率——不仅仅是在OneAmerica公司。”这家价值1000亿美元的保险公司负责人斯科特·戴维森(Scott Davison)说，该公司自1877年开始运营，拥有大约2400名员工。
+
+据美国新闻网站“中心广场”(The Center Square)称，这一增长意味着“庞大的、庞大的人数”，其中“主要是工作年龄段的人”，这些人通过OneAmerica拥有雇主赞助的团体生活计划。
+
+戴维森上周在一场网络新闻发布会上说：“并且我们仅仅是在第三季度看到的情况，我们看着它一直持续到第四季度，死亡率就比大流行前高出了40%。”“只是为了让您了解这种情况的严重程度，与大流行前相比，发生一次三西格玛事件或遭遇200年一遇的大灾难将增加10%。”“所以40%是闻所未闻的。”他补充道。
+
+戴维森表示，大多数被归档的死亡都没有归为中共病毒。“这些数据向我们显示的是，目前被报告为因中共病毒死亡的死亡人数大大少于大流行造成的工作年龄人群的实际死亡人数。他们的死亡证明上可能并不全是中共病毒，但死亡人数增加了很多。”他说，并补充说，该公司已经看到伤残索赔的“增加”，起初是短期的，现在是长期的。
+
+“对于OneAmerica来说，我们预计这方面的成本将远远超过1亿美元，而这是我们最小的业务。因此，它对这个行业产生了巨大影响。”他说，并补充说，成本将转嫁给购买团体人寿保险单的雇主。
+
+*在戴维森讲话的同一次新闻发布会上，印第安纳医院协会主席布莱恩**·**塔博尔**(**Brian Tabor**)**说，全州的医院都充斥着“患有许多不同疾病”的病人，他说，“不幸的是，印第安纳州居民的平均健康状况在大流行期间已经下降了。”*
+
+印第安纳州首席医疗官林赛·韦弗(Lindsay Weaver)博士表示，现在印第安纳州的住院人数比一年前推出新冠病毒疫苗之前要高，实际上比过去五年中的任何时候都要高。
+
+**简评：**
+
+OneAmerica是美国发展最快的互助保险控股公司之一，公司主要从事保险业务，他们的对比统计数据都是非常有说服力的关于中共病毒疫苗危害的证据，他们最初也是在工作场所要求强制接种疫苗，并在疫苗接种率较低的地区提高保费，现在认识到他们的判断是错误的，为了适应因中共病毒疫苗造成的死亡率变化，未来该公司将在中共病毒疫苗接种率较高的区域提高保费。所以说，任何人对事物都有一个认知的过程，各国政府和民间机构想要通过疫苗来终结中共病毒传染的方案都将走入“死胡同”。随着时间的推移，将会有越来越多的证据证明“疫苗”有毒，有害，无效这一事实。
+
+新闻链接：[Life Insurance CEO Says Deaths Up 40% Among Those Aged 18-64](https://www.infowars.com/posts/life-insurance-ceo-says-deaths-up-40-among-those-aged-18-64/)
+
+*翻译/简评: 希望*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-1月4日当天，中共[网易](https://3g.163.com/dy/article/GSSKSMR705198CJN.html)援引上海财联社消息报道了同一消息，称“一波未平一波又起，在奥密克戎在全球快速蔓延之际，一种新发现的新冠病毒毒株也显示出了一定的威胁，不过这并不令人意外。”阅读更多。
+编辑：【英国伦敦喜庄园编辑部】
 
-显然，法国发现的 IHU Mediterranee Infection地中海病毒仍在中共研发并投放的COVID19 第一代系列病毒的研究之一。广为人知的中东呼吸综合征冠状病毒就是一种在动物与人类之间传播的人畜共患病毒。中共对人畜共患的传播进行了广泛的研究，此前，“清华大学张林琦教授从事传染病病毒研究30余年，他的团队解析出病毒蛋白和受体结合过程。曾经主导或参与[埃博拉病毒、寨卡病毒、中东呼吸道冠状病毒、禽流感病毒等新发突发高致病性病毒](https://www.81.cn/gnxw/2020-03/04/content_9759172.htm)研究。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-2022年1月5日
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

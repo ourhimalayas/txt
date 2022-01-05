@@ -2,23 +2,22 @@
 ---
 
 
-## 为什么最近有这么多打过疫苗的人感染新冠病毒？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824136/)
+## 日本冲绳新增中共病毒数暴增 或将进入半紧急状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824162/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-32.png)
-图片来源： www.bbc.com
+整理编辑：东京樱花团｜peterwong
+![](https://lh6.googleusercontent.com/NEmPrUvTjPqAmcJBQlaPgqROsgGj9dkg7RprzH3R31F8zptAuqxFQRJxWpEl9WrfeBsGTYHkOr_kF6AdZCUpAx1FbZtaizn-Sq0tVlDq6Id7LtKtrs-a9lDryq9lYcmd3IxGcMCj)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2021/05/1621594463071-3e295e2f9fe64d0d98bf5a302cf7a0ae-1200x742.jpeg?unShow=false)
+日本每日新闻周三(1月5日）称，由于中共病毒（新冠）病例激增，日本政府正准备宣布冲绳县进入半紧急状态，可能最早在本周宣布。这将是自去年9月30日以来的第一次此类声明，当时日本解除了2021年大部分时间内实施的所有紧急状态和半紧急状态。
 
-美联社1月4日报道，为什么近来有这么多打过疫苗的人感染新冠病毒？有许多因素引起，首先是新出现的奥米克戎变种具有高传染性，更容易感染人，即使其并非使人引起更严重的症状，但在节日期间人们的旅行度假造成病例数大量增加。
-人们可能认为打过了疫苗就能阻止感染，但这个疫苗仅防止严重疾病。
-辉瑞和莫德纳的两剂疫苗或强生的一剂疫苗仍然具有保护人们免受奥米克戎的严重疾病，如果还不行的话，加强针可以增加抗体浓度以帮助人们免受感染。
-奥米克戎比其他变种更具复制能力，很容易传染给别人，医生建议室内戴口罩，避免人多的地方，打疫苗和打加强针，虽然疫苗不能防止人们感染病毒，但可以帮助人们活着，不需要去医院。
-问题是：为什么那么多打了疫苗甚至是加强针的人还是不得不住院甚至死亡？
+周二，日本单日新增中共病毒病例数在三个月内首次超过1,000例，其中冲绳有225例，成为全国受影响最严重的地区之一。
 
-##### 新闻来源： [Why are so many vaccinated people getting COVID-19 lately?](https://apnews.com/article/coronavirus-pandemic-lifestyle-health-travel-coronavirus-vaccine-69b19dcb2cf9527e22083e9547d70228)
+每日新闻说，冲绳县知事玉城丹尼(Denny Tamaki)周二告诉内阁官房长官松野博一，他正在考虑要求进入半紧急状态，将包括限制餐馆和酒吧的营业时间等措施。报导称，松野博一表示政府将迅速作出回应。没有提供进一步的细节。
 
-# ** **
+消息来源：[**日本将宣布受新冠冲击的冲绳县进入半紧急状态**](https://cn.reuters.com/article/japan-quasiemergency-okinawa-idCNKBS2JF01O?il=0)
 
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

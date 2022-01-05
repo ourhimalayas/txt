@@ -2,24 +2,22 @@
 ---
 
 
-## 接种疫苗女性开始为生育困难和择偶受歧视而后悔
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1824048/)
+## 为什么最近有这么多打过疫苗的人感染新冠病毒？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1824136/)
 
-翻译：nstar
-![此图像的alt属性为空；文件名为xwoimanan.jpg.pagespeed.ic_.iNJpvXFBsT.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/xwoimanan.jpg.pagespeed.ic_.iNJpvXFBsT.jpg)图片来源：div
-之前每个人都被告知，没有接种疫苗的人将会后悔。但现在情况恰恰相反，接种过中共病毒（COVID-19）疫苗的女性在约会中被潜在的伴侣拒绝，因为她们可能有生育缺陷和不孕的问题。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-32.png)
+图片来源： www.bbc.com
 
-纽约的女性开始谎报她们的疫苗接种情况，因为男性普遍认为她们不育或会生下有先天缺陷的孩子。对于那些相信‘纯血统’的人来说，熬过漫长而经受住疫苗接种压力的男性和女性认为，未接种疫苗的女性卵子和精子会非常有价值。事实上，有人开玩笑说它可能是下一个比特币。
+美联社1月4日报道，为什么近来有这么多打过疫苗的人感染新冠病毒？有许多因素引起，首先是新出现的奥米克戎变种具有高传染性，更容易感染人，即使其并非使人引起更严重的症状，但在节日期间人们的旅行度假造成病例数大量增加。
+人们可能认为打过了疫苗就能阻止感染，但这个疫苗仅防止严重疾病。
+辉瑞和莫德纳的两剂疫苗或强生的一剂疫苗仍然具有保护人们免受奥米克戎的严重疾病，如果还不行的话，加强针可以增加抗体浓度以帮助人们免受感染。
+奥米克戎比其他变种更具复制能力，很容易传染给别人，医生建议室内戴口罩，避免人多的地方，打疫苗和打加强针，虽然疫苗不能防止人们感染病毒，但可以帮助人们活着，不需要去医院。
+问题是：为什么那么多打了疫苗甚至是加强针的人还是不得不住院甚至死亡？
 
-世界各地关于接种疫苗的女性出现出生缺陷的报告正在激增。许多受人尊敬的医生提出的一个非常早期的理论是，mRNA疫苗会干扰一种叫做Syntectin-1的蛋白质，这种蛋白质在怀孕期间是至关重要的。
+##### 新闻来源： [Why are so many vaccinated people getting COVID-19 lately?](https://apnews.com/article/coronavirus-pandemic-lifestyle-health-travel-coronavirus-vaccine-69b19dcb2cf9527e22083e9547d70228)
 
-不幸的是，许多女性 “相信 “来自主流媒体的“科学”，她们现在正在承受政府在扩大宣传和压制不同声音方面的行为的后果。
-
-参考链接:
-
-[https://thecovidworld.com/vaccinated-women-are-now-lying-about-their-vax-status-as-more-men-see-them-as-infertility-risk/](https://thecovidworld.com/vaccinated-women-are-now-lying-about-their-vax-status-as-more-men-see-them-as-infertility-risk/)
-
-校对发布：Shifter
+# ** **
 
  
 
