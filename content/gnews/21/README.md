@@ -2,56 +2,31 @@
 ---
 
 
-## 新中国联邦爆料革命日历
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
+## 中共败相（二）：黑龙江鹤岗或成为中共首个破产的地级城市
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823198/)
 
-**出品：纽约香草山设计部**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-amq6p-x6e25-2.jpg)**图片来源： finance.sina.cn**
+21年12月23日，鹤岗市人力资源和社会保障局发出通知，因鹤岗市政府实施财政重整计划，财政狀况发生重大变化，决定取消公开招聘政府基层工作人员计划。
 
+21年12月28日，中共重量级媒体《财新》也发布了一条有关鹤岗的报道，标题是《黑龙江鹤岗宣布实施财政重整 财力不足以偿付到期政府债务本息》，《财新》的报道无异于官方宣布鹤岗市政府财政破产。事实是鹤岗市财政早都入不敷出，只是现在因无力招聘公务人员报道出来引起关注而已。
 
+近三年鹤岗财政总收入大幅缩水，土地出让金疲弱。2019年、2020年连续两年鹤岗市无力偿付的到期政府债务本金及利息，相关本息或由省级政府代偿，表明法定债务流动性存在较大风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+鹤岗市人口98万人，2021年市政府负债131亿余元，比上年增加15亿多元，平均每人负债1.3万元人民币。2021年3月的《鹤岗市2020年决算分析报告》显示，2021年该市公共财政收入完成两亿多元，同比下降7.8%，除资源税、房产税、印花税、耕地占用税及契税外，其他10个税种全呈负增长。
 
+鹤岗市曾因低廉的房价，过去几年被媒体炒作成为网红城市，但其本质是资源型枯竭城市之一。 东北三省长期存在经济发展缓慢的现象，受近两年的疫情影响，疫情之后，经济更加萧条，民不聊生。鹤岗客服财政困境无非开源节流，依托省政府再多给钱，会把省级财政也拖垮，鹤岗市实施财政重整，说明只能减少市政府开支来度过困境。而财政重整必须要优先保障政府基本运转。财政事实破产，势必导致公务人员拖欠薪金，维稳经费难以为继，中共赖以生存的国家机器从基层开始失控。
 
+还有多少像鹤岗一样的城市面临破产危机，成为压倒中共政权的最后一根稻草，我们拭目以待。
 
+**【文章仅代表作者个人观点，与 Gnews 平台无关】**
 
+作者：洛杉矶盘古农场-蓝莲花
+编辑：洛杉矶盘古农场-柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
-
-
-#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

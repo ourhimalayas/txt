@@ -2,22 +2,56 @@
 ---
 
 
-## 【G时新闻】专家称新冠病毒导致一代智商较低的儿童和问题少年
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1822995/)
+## 新中国联邦爆料革命日历
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
 
-加拿大温哥华扬帆农场 主播：文广 视频制作： Greacelshan
+**出品：纽约香草山设计部**
 
-据宏声传媒12月27日报道，享誉世界的八所常春藤名校之一的布朗大学近期发布的一项研究报告显示，由于新冠病毒爆发后各国政府采取的封锁隔离政策，将产生一代智商较低的儿童。
 
-马克麦克唐纳博士在 The Nation Speaks 上对该报告进行了解读，与疫情大流行前出生的儿童相比，在疫情期间出生的孩子在语言、运动和整体认知能力方面均呈现出显著下降现象。
 
-麦克唐纳博士指出，人们戴上口罩，学校停课以及社区封锁导致正常的社会接触被剥夺。孩子们整天被困在家里，出门后相互之间看不到面孔，这实际上对孩子造成了脑损伤。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-该研究得出结论：新冠病毒疫情从根本上改变了儿童的成长环境和健康格局，与两年前相比，孕妇和新生儿童生活在截然不同的经济心理和教育环境中，我们的研究表明在疫情期间出生的儿童获得的认知能力和表现显著下降。
 
-盖特：[https://gettr.com/post/pkvzg9ce03](https://gettr.com/post/pkvzg9ce03)
-听写：LuLu1312
-编辑/上传：七觉花
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
+
+
+#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
 
  
 

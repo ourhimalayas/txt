@@ -2,34 +2,33 @@
 ---
 
 
-## 纽约市长考虑强制城市雇员注射加强针
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1823468/)
+## 在法国发现名为“IHU”的新型冠状病毒变种，IHU 比Omicron具有更多的突变
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1823544/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/392cdb7e03160471626e18da58b084e0.jpg)图片来源：Yahoo News
-根据《纽约时报》1月2 日报道，纽约市长埃里克-亚当斯在周日（他上任的第二天）表示，可能会强制城市雇员注射Covid疫苗的加强针。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/231268-untitled-design-31.jpg)图片来源：网络
+法新社报道：在法国发现名为“IHU”的新型冠状病毒变种
 
-城市雇员已经被要求接种冠状病毒疫苗，但随着新病例每天都在创造记录，亚当斯先生在美国广播公司的《本周》节目中说，城市的 “下一步行动和决定 “将是 “审查数字”，并决定是否需要对教师和警察等市政工作人员强制加强针注射。
+在 Omicron 病例在全球迅速激增的情况下，法国出现了一种名为“IHU”的新型冠状病毒变种。
 
-亚当斯对主持人乔治-斯特凡诺普洛斯说：“如果我们不得不施行强制，我们会这样做，但我们鼓励大家现在就打加强针”。
+B.1.640.2 变体是在 IHU 地中海感染研究所发现的。 研究人员认为它包含 46 个突变。 这比 COVID-19 的 Omicron 变体具有更多的突变。
 
-冠状病毒的Omicron变体已经表明可以躲避疫苗，尽管Moderna和辉瑞公司的加强针声称可能提供对该变体的实质性保护。该变体在全国范围内的迅速蔓延导致一些专家呼吁重新定义全面接种疫苗，企业、学校、政府甚至体育联盟都在权衡是否该强制加强针。
+新变种与非洲国家喀麦隆有关，法国报告了至少 12 例这种变体。
 
-上周，纽约州州长Kathy Hochul宣布，近60万名公立大学学生将很快被要求注射疫苗加强针。计划周一重新开学的大学区也在扩大测试。
+美国流行病学家和健康经济学家埃里克·费格尔丁 (Eric Feigl-Ding) 在 Twitter 上对这种变异“敲响了警钟”。
 
-随着教师和近100万名学生返回纽约市的公立学校，亚当斯说，他认为城市里的学校的 “测试应该是强制性的 “，但他说，决定权属于州政府。他没有要求对学童进行强制性疫苗接种。
+“这些观察结果再次表明，#SARSCoV2 新变种的出现及其从国外传入的不可预测性，也证明了控制此类传入和随后传播的难度。”
 
-他说：“强制接种疫苗，我认为我们应该朝这方向扩大规模。我认为我们现在还未达到强制注射的地步，但我希望现在就进行强制检测”。
+通过对不同于 Delta 和 Omicron 的信号进行仔细的 PCR 分析，可以来识别该变体。
 
-纽约市正在启动一个加强的测试计划，允许冠状病毒检测阴性且没有症状的学生继续留在学校。
+然而，Feigl-Ding 强调说，“一直有很多新变种被发现，但这并不一定意味着它们会更危险。 使变种更广为人知和更危险的是它的繁殖能力，因为它与原始病毒相关的突变数量很多。”
 
+来源链接：[https://www.wionews.com/world/new-coronavirus-variant-called-ihu-discovered-in-france-442158/amp](https://www.wionews.com/world/new-coronavirus-variant-called-ihu-discovered-in-france-442158/amp)
 
+编辑/发布：LILY
 
-原文链接：
-[https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests](https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests)
-
-编辑，发稿 Spirit
-
+20220104
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  

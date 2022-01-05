@@ -2,36 +2,69 @@
 ---
 
 
-## 新闻述评：中共大肆炒作美防长奥斯汀感染中共病毒前会见总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823329/)
+## 参议员卢比奥新闻办:中国共产党公司在美国监控行业中没有立足之地
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1823434/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2.png)[*图片来源（国防部）*](https://www.flickr.com/photos/secdef/51770320643/)
-**美国防部长奥斯汀中共病毒（Covid-19）检测结果呈阳性。并强调自己已“完全接种疫苗”，坚持认为“疫苗有效”，称疫苗将继续成为军事医疗的需求。中共国解放军曾承认，这是他们发动的“生物战”和“生物恐怖主义战”，并可以根据特定目标借中共病毒疫苗“启动死亡程序”。全世界都在怀疑中共就是罪魁祸首，令人遗憾的是，已经中招的奥斯汀仍然坚信疫苗是有效防御武器。**
-
-据中共国新华社4日消息，美国国防部官网当地时间1月2日发布了防长[奥斯汀的声明](https://www.defense.gov/News/Releases/Release/Article/2886520/statement-by-secretary-of-defense-lloyd-j-austin-iii-on-covid-status/)。声明称，“我今天早上新冠检测结果呈阳性，我在休假期间出现症状后，今天要求进行检测。我的症状很轻，我正在遵照医生的指示和CDC的指导方针，我将在接下来的5天在家进行隔离。”
-
-该消息称，奥斯汀在声明中还透露和美国总统拜登的最后一次会面是在2021年12月21日星期二。他称：“我最后一次与拜登总统会面，比我开始出现症状还早一个多星期。那天早上我的检测呈阴性。自周四以来，我就没有去过五角大楼，之前也只是和几名工作人员进行了短暂的会面，而且在整个过程中都戴着口罩并保持社交距离。”
-
-- ***延展阅读：***[***隔离指挥权，美国国防部长感染新冠病毒***](https://zh.detv.us/2022/01/03/%E9%9A%94%E7%A6%BB%E6%8C%87%E6%8C%A5%E6%9D%83%EF%BC%9A%E7%BE%8E%E5%9B%BD%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/)
+参议员卢比奥新闻办： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 公司在美国监控行业中没有立足之地，参议员卢比奥的现行法律《安全设备法》则清楚地表明了这一点。 国会不应理会 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传，并驳回海康威视对ipvideo（美监控设备公司）的可耻指控。 【转推：大意 中共国监控公司海康威视加大力度反击（美）监管】
 
 
-值得注意的是，奥斯汀在《声明》中还强调自己已“完全接种疫苗”，并在去年10月初接受了疫苗加强针，他强调，“疫苗有效，并将继续成为我们劳动力的军事医疗需求。我继续鼓励每个有资格打加强针的人都去施打。”
 
-中共评论认为，“美国军政界多次出现有人中共病毒检测结果呈阳性的情况，中共国对美国军方和政界人士感染中共病毒情况历历在目。”该新闻评论称，“美国国务院发言人普赖斯也于2021年9月27日早上出现中共病毒的相关症状，并得到了中共病毒检测呈阳性的结果；同年10月19日，美国国土安全部发言人玛莎·埃斯皮诺萨宣布，该部部长马约卡斯当天早上的中共病毒检测结果呈阳性；同年12月23日，五角大楼发言人柯比表示，前一周随同副防长希克斯出访的7名国防部职员中共病毒检测结果呈阳性，国防部已经开始进行密接人群筛查，检测结果呈阳性的人员已经被隔离。”
+> Chinese Communist companies have no place in the U.S. surveillance industry, and Sen. Rubio’s Secure Equipment Act, which is current law, makes that crystal-clear.
+>  
+> Congress should pay no heed to [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda and dismiss Hikvision's pathetic claims against [@ipvideo](https://twitter.com/ipvideo?ref_src=twsrc%5Etfw). [https://t.co/4jmMbclDjy](https://t.co/4jmMbclDjy)
+> — Senator Rubio Press (@SenRubioPress) [January 4, 2022](https://twitter.com/SenRubioPress/status/1478483710320197633?ref_src=twsrc%5Etfw)
 
-- ***延展阅读：***[***爆炸性 | 中国在大流行之前讨论将冠状病毒武器化，用生物武器预测第三次世界大战***](https://www.republicworld.com/world-news/china/china-discussed-weaponising-coronaviruses-before-pandemic-predicted-ww3-with-bio-weapons.html)
 
 
-人们不应忘记暴料革命一直向西方国家警告，中共病毒是中共解放军“精心设计的疾病”，他们在其专著中公开承认这是“生物恐怖主义”。认为他们已经达到可以“提出一种假设疾病的症状，然后设计或创制此病原体或病原（因），并引起预期的复杂疾病。后者可通过多种途径实现，如关闭免疫系统，或诱导特异性细胞增殖和快速分裂（如癌症），中共解放军特别提到他们可以做到根据战争需要“启动程序性细胞死亡”。“由此运用在‘进攻性生物战或恐怖主义战’的能力上呈数量级提高。”并且明确强调，将“生物战”或“恐怖主义”战同时发动，且在“生物战”前冠以“进攻性”标志。因此，中共毋庸置疑地定义，“生物战之发动者即为‘生物恐怖主义者’”。（见 《[非典非自然起源和人制人新种病毒基因武器](http://www.wyzxwk.com/Article/shidai/2020/01/412966.html)》第98-99P）
+国会-行政当局中国委员会： 在中共国寻求人权保护的妇女不断受到骚扰和拘留,包括那些寻求结束性侵犯和歧视的妇女。 奥林匹克团结和包容的精神因而在中共国受到玷污。[#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click) [#奥运囚犯](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E7%8A%AF?src=hashtag_click)
 
-这是中共国解放军自己承认他们发动了 “生物战”或“生物恐怖主义战”，并可以根据特定目标借着毒疫苗 “启动死亡程序”。令人遗憾的是，已经中招的[美国防长奥斯汀](https://apnews.com/article/coronavirus-vaccine-us-military-requirement-pentagon-3975940c732352f72e41f6e34a3a2669)仍然坚信疫苗是有效防御载体。
 
-2022年1月4日
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+> The [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) spirit of unity and inclusiveness is tarnished by the ongoing harassment and detention of women seeking to protect human rights in China, including those seeking an end to sexual assault and discrimination in China. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [January 4, 2022](https://twitter.com/CECCgov/status/1478456511647080456?ref_src=twsrc%5Etfw)
+
+
+
+前副国务卿基思·卡拉奇： 我们有结束新疆种族灭绝的道义责任，企业们可以通过拒绝采购由强迫维吾尔劳工生产的商品来发挥作用。 中国就新疆产品向沃尔玛和山姆会员店发出警告 【附路透社新闻报道】
+
+
+
+> We have a moral imperative to end the Xinjiang genocide, and corporations have a role to play by refusing to source goods produced by forced Uyghur labor. 
+> 
+> China warns Walmart and Sam's Club over Xinjiang products [https://t.co/1pJCU16N60](https://t.co/1pJCU16N60)
+> — Keith J. Krach (@KeithJKrach) [January 4, 2022](https://twitter.com/KeithJKrach/status/1478436086162542592?ref_src=twsrc%5Etfw)
+
+
+
+前美驻联合国大使尼基·海莉： 再过一个月，冬奥会将在北京开幕。与此同时，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 将在集中营关押一百万维吾尔人。 世界应该抵制种族灭绝，而不是给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 宣传胜利。
+
+
+
+> In one month, the Winter Olympic Games will open in Beijing. At the same time, Communist China will be holding one million Uyghurs in concentration camps. 
+> 
+> The world should be boycotting genocide, not giving China a propaganda victory.
+> — Nikki Haley (@NikkiHaley) [January 4, 2022](https://twitter.com/NikkiHaley/status/1478445367918223360?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 中国共产党不是美国的朋友。如果我们要保持与中国的竞争力，就必须把网络安全放在首位。 （转华盛顿邮报：文件显示，中国获取了大量西方有关目标的数据）
+
+
+
+> The Chinese Communist Party is not a friend of the United States. We must make cyber security a priority if we are going to remain competitive with China. [https://t.co/vqr20gs9gR](https://t.co/vqr20gs9gR)
+> — Rep. Mike Garcia (@RepMikeGarcia) [January 4, 2022](https://twitter.com/RepMikeGarcia/status/1478430204032864257?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 第三名前葛兰素史克的科学家承认盗窃商业机密，让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的医药公司受益。[@FBIPhiladelphia](https://twitter.com/FBIPhiladelphia) 【附图为费城FBI说，当有人窃取和新药有价值的商业机密时，这样的威胁不只是对公司。因为创新推动了美国经济。FBI承诺通过法律保护国家的经济不受盗窃。不允许美国的研究发展被其他公司和国家收割】
+
+
+
+> Third Former GlaxoSmithKline Scientist Pleads Guilty to Stealing Trade Secrets to Benefit Chinese Pharmaceutical Company [@FBIPhiladelphia](https://twitter.com/FBIPhiladelphia?ref_src=twsrc%5Etfw) [https://t.co/FhgPq9mu9K](https://t.co/FhgPq9mu9K) [pic.twitter.com/XvsGs4gCH4](https://t.co/XvsGs4gCH4)
+> — FBI (@FBI) [January 4, 2022](https://twitter.com/FBI/status/1478380753247420417?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
