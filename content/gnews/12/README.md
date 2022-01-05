@@ -2,36 +2,202 @@
 ---
 
 
-## 新闻述评：中共大肆炒作美防长奥斯汀感染中共病毒前会见总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823329/)
+## 日本一定会成为第二大数字货币市场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823348/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2.png)[*图片来源（国防部）*](https://www.flickr.com/photos/secdef/51770320643/)
-**美国防部长奥斯汀中共病毒（Covid-19）检测结果呈阳性。并强调自己已“完全接种疫苗”，坚持认为“疫苗有效”，称疫苗将继续成为军事医疗的需求。中共国解放军曾承认，这是他们发动的“生物战”和“生物恐怖主义战”，并可以根据特定目标借中共病毒疫苗“启动死亡程序”。全世界都在怀疑中共就是罪魁祸首，令人遗憾的是，已经中招的奥斯汀仍然坚信疫苗是有效防御武器。**
+[https://gtv.org/video/id=61d44db6dffab035958aab37](https://gtv.org/video/id=61d44db6dffab035958aab37)
 
-据中共国新华社4日消息，美国国防部官网当地时间1月2日发布了防长[奥斯汀的声明](https://www.defense.gov/News/Releases/Release/Article/2886520/statement-by-secretary-of-defense-lloyd-j-austin-iii-on-covid-status/)。声明称，“我今天早上新冠检测结果呈阳性，我在休假期间出现症状后，今天要求进行检测。我的症状很轻，我正在遵照医生的指示和CDC的指导方针，我将在接下来的5天在家进行隔离。”
+**郭文贵
+Miles Guo**
 
-该消息称，奥斯汀在声明中还透露和美国总统拜登的最后一次会面是在2021年12月21日星期二。他称：“我最后一次与拜登总统会面，比我开始出现症状还早一个多星期。那天早上我的检测呈阴性。自周四以来，我就没有去过五角大楼，之前也只是和几名工作人员进行了短暂的会面，而且在整个过程中都戴着口罩并保持社交距离。”
+我一再地说的
+He estado diciendo
 
-- ***延展阅读：***[***隔离指挥权，美国国防部长感染新冠病毒***](https://zh.detv.us/2022/01/03/%E9%9A%94%E7%A6%BB%E6%8C%87%E6%8C%A5%E6%9D%83%EF%BC%9A%E7%BE%8E%E5%9B%BD%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/)
+日本的H-pay市场
+El mercado de H-pay de Japón
 
+还有日本的未来的数字货币
+Y en el futuro, las monedas digitales en Japón
 
-值得注意的是，奥斯汀在《声明》中还强调自己已“完全接种疫苗”，并在去年10月初接受了疫苗加强针，他强调，“疫苗有效，并将继续成为我们劳动力的军事医疗需求。我继续鼓励每个有资格打加强针的人都去施打。”
+整个的未来
+Todo el futuro
 
-中共评论认为，“美国军政界多次出现有人中共病毒检测结果呈阳性的情况，中共国对美国军方和政界人士感染中共病毒情况历历在目。”该新闻评论称，“美国国务院发言人普赖斯也于2021年9月27日早上出现中共病毒的相关症状，并得到了中共病毒检测呈阳性的结果；同年10月19日，美国国土安全部发言人玛莎·埃斯皮诺萨宣布，该部部长马约卡斯当天早上的中共病毒检测结果呈阳性；同年12月23日，五角大楼发言人柯比表示，前一周随同副防长希克斯出访的7名国防部职员中共病毒检测结果呈阳性，国防部已经开始进行密接人群筛查，检测结果呈阳性的人员已经被隔离。”
+还有在日本的
+También la popularidad
 
-- ***延展阅读：***[***爆炸性 | 中国在大流行之前讨论将冠状病毒武器化，用生物武器预测第三次世界大战***](https://www.republicworld.com/world-news/china/china-discussed-weaponising-coronaviruses-before-pandemic-predicted-ww3-with-bio-weapons.html)
+整个的喜币和喜美元的流行
+De toda la moneda y el dólar de Himalaya en Japón
 
+还有未来的整个的实施
+Y toda la implementación en el futuro
 
-人们不应忘记暴料革命一直向西方国家警告，中共病毒是中共解放军“精心设计的疾病”，他们在其专著中公开承认这是“生物恐怖主义”。认为他们已经达到可以“提出一种假设疾病的症状，然后设计或创制此病原体或病原（因），并引起预期的复杂疾病。后者可通过多种途径实现，如关闭免疫系统，或诱导特异性细胞增殖和快速分裂（如癌症），中共解放军特别提到他们可以做到根据战争需要“启动程序性细胞死亡”。“由此运用在‘进攻性生物战或恐怖主义战’的能力上呈数量级提高。”并且明确强调，将“生物战”或“恐怖主义”战同时发动，且在“生物战”前冠以“进攻性”标志。因此，中共毋庸置疑地定义，“生物战之发动者即为‘生物恐怖主义者’”。（见 《[非典非自然起源和人制人新种病毒基因武器](http://www.wyzxwk.com/Article/shidai/2020/01/412966.html)》第98-99P）
+可以说它是战略性的
+Se puede decir que es estratégica
 
-这是中共国解放军自己承认他们发动了 “生物战”或“生物恐怖主义战”，并可以根据特定目标借着毒疫苗 “启动死亡程序”。令人遗憾的是，已经中招的[美国防长奥斯汀](https://apnews.com/article/coronavirus-vaccine-us-military-requirement-pentagon-3975940c732352f72e41f6e34a3a2669)仍然坚信疫苗是有效防御载体。
+应该说是排在第二位置
+Debería decirse que ocupa el segundo lugar
 
-2022年1月4日
+除了美国之外, 它就是最重要的
+A parte de EE. UU, él es el más importante
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+而且日本这个国家
+Y este país, Japón
+
+一定会在数字货币市场上
+En el mercado de monedas digitales
+
+这次会抓住这个机会
+De seguro aprovechará esta oportunidad
+它不会再输掉了
+No lo dejará perder de nuevo
+
+过去的日本
+Japón en el pasado
+
+二战之后
+Luego de la segunda guerra mundial
+
+在金融市场上
+En el mercado financiero
+
+简直这个
+La verdad este
+
+日本这个国家
+Este país, Japón
+
+把所有的国家财富全输光了
+Ha perdido toda la riqueza del país
+
+日本的金融烂到什么程度
+Qué tan mal están las finanzas de Japón
+
+共产党的科技发明有多烂
+Qué tan malo son los inventos tecnológicos del Partido Comunista
+
+日本的金融就有多烂
+Así de malo es la finanza de Japón
+
+就这么简单
+Así de sencillo
+
+所以说日本的整个的交易
+Por eso todas las transacciones de Japón
+
+一定会有
+Hay seguramente
+不管中间有多大的曲折
+No importa cuantas dificultades tiene en medio de esto
+
+日本最后一定会成为
+Al final, Japón de seguro se convertirá en
+
+喜币流行的重要市场
+El mercado importante de la popularidad de la moneda de Himalaya
+
+不管有多少挫折
+No importa cuantos obstáculos
+
+然后在日本
+Y en Japón
+
+这个喜支付是绝对的重要
+Este H-pay es de suma importancia
+
+千万不要错过这个时机
+No se puede perder esta oportunidad
+
+日本这几个农场
+Estas fincas en Japón
+
+因为今天没有说太(细)
+Porque hoy no se dijo con muchos (detalles)
+
+如果你们错过这个机会
+Si ustedes pierden esta oportunidad
+
+那草根小哥明年这个
+Entonces el año que viene, el hermano Caogen
+
+再大直播
+Si hará nuevamente la transmisión en vivo
+
+你绝对看不到草根小哥了
+No lo verás
+你不会再看到Cosmos
+No verás a Cosmos
+
+你不会再看到马拉多纳
+A Maradona
+
+你不会再看到勇气, 魔女
+A Yongqi, Monu
+
+不会看到的
+No los verás
+
+温暖姐姐, 你别在那块很自信
+Hermana Wennuan, no seas presumida en esa parte
+
+你别老是
+No seas siempre
+
+今天你和文嘉
+Hoy tu y Wenjia
+
+你俩一唱一和地
+Ustedes dos cantan juntos
+
+我们有蓄积着力量
+Nosotros estamos acumulando fuerzas
+
+明年如果在这个事上没搞明白
+Si el año que viene no se aclara este asunto
+
+明年你就成笑话了
+Entonces te convertirás en un chiste el año que viene
+
+你自己都不好意思看电视了
+Tu misma te avergonzarás de ver la televisión
+
+所以说抓住这机会
+Por lo tanto, aprovechen esta oportunidad
+一定会最重要的
+Seguramente es lo más importante
+
+对喜币发(展)的市场
+Para el desarrollo del mercado de moneda de Himalaya
+
+就是第二市场
+Es el segundo mercado
+
+日本
+Japón
+
+谢谢
+Gracias
+
+* * *
+
+日期：01/03/2022
+原视频标题：日本一定会成为第二大数字货币市场
+Japón definitivamente se convertirá en el segundo mercado más grande
+de monedas digitales
+原视频日期：01/02/2022
+原视频网址：[https://gettr.com/post/ple42ae1c8](https://gettr.com/post/ple42ae1c8)
+任务编号：KC391（3391）
+视频时间段：00:00-01:38
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

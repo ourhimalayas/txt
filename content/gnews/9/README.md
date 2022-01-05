@@ -2,10 +2,10 @@
 ---
 
 
-## 美国日增染疫超百万，法国现中共病毒新变种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823380/)
+## 日本追加65亿研发“轨道炮”应对中共高超音速导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823381/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220105-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._5-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
