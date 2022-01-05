@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月4日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1823509/)
+## 在法国发现名为“IHU”的新型冠状病毒变种，IHU 比Omicron具有更多的突变
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1823544/)
 
-作者：香草山翻译部
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/231268-untitled-design-31.jpg)图片来源：网络
+法新社报道：在法国发现名为“IHU”的新型冠状病毒变种
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+在 Omicron 病例在全球迅速激增的情况下，法国出现了一种名为“IHU”的新型冠状病毒变种。
 
+B.1.640.2 变体是在 IHU 地中海感染研究所发现的。 研究人员认为它包含 46 个突变。 这比 COVID-19 的 Omicron 变体具有更多的突变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0104text-SC.png)
-校对：Stay文苑
+新变种与非洲国家喀麦隆有关，法国报告了至少 12 例这种变体。
 
-编辑：Stay文苑
+美国流行病学家和健康经济学家埃里克·费格尔丁 (Eric Feigl-Ding) 在 Twitter 上对这种变异“敲响了警钟”。
 
-发稿：Stay文苑
+“这些观察结果再次表明，#SARSCoV2 新变种的出现及其从国外传入的不可预测性，也证明了控制此类传入和随后传播的难度。”
 
-视频参看：[1.4  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d4f43c31a71619b574d6f3)
+通过对不同于 Delta 和 Omicron 的信号进行仔细的 PCR 分析，可以来识别该变体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+然而，Feigl-Ding 强调说，“一直有很多新变种被发现，但这并不一定意味着它们会更危险。 使变种更广为人知和更危险的是它的繁殖能力，因为它与原始病毒相关的突变数量很多。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+来源链接：[https://www.wionews.com/world/new-coronavirus-variant-called-ihu-discovered-in-france-442158/amp](https://www.wionews.com/world/new-coronavirus-variant-called-ihu-discovered-in-france-442158/amp)
+
+编辑/发布：LILY
+
+20220104
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 
