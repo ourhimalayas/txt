@@ -2,96 +2,22 @@
 ---
 
 
-## 七哥介绍新中国联邦宣言(下)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
+## 日本冲绳新增中共病毒数暴增 或将进入半紧急状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824162/)
 
-[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
+整理编辑：东京樱花团｜peterwong
+![](https://lh6.googleusercontent.com/NEmPrUvTjPqAmcJBQlaPgqROsgGj9dkg7RprzH3R31F8zptAuqxFQRJxWpEl9WrfeBsGTYHkOr_kF6AdZCUpAx1FbZtaizn-Sq0tVlDq6Id7LtKtrs-a9lDryq9lYcmd3IxGcMCj)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2021/05/1621594463071-3e295e2f9fe64d0d98bf5a302cf7a0ae-1200x742.jpeg?unShow=false)
+日本每日新闻周三(1月5日）称，由于中共病毒（新冠）病例激增，日本政府正准备宣布冲绳县进入半紧急状态，可能最早在本周宣布。这将是自去年9月30日以来的第一次此类声明，当时日本解除了2021年大部分时间内实施的所有紧急状态和半紧急状态。
 
-**郭文贵
-Miles Guo**
+周二，日本单日新增中共病毒病例数在三个月内首次超过1,000例，其中冲绳有225例，成为全国受影响最严重的地区之一。
 
-我们说什么的时候都不要忘了
-Whatever we say, please don’t forget
+每日新闻说，冲绳县知事玉城丹尼(Denny Tamaki)周二告诉内阁官房长官松野博一，他正在考虑要求进入半紧急状态，将包括限制餐馆和酒吧的营业时间等措施。报导称，松野博一表示政府将迅速作出回应。没有提供进一步的细节。
 
-因这个我们走在了一起
-Because of this (the New Federal State of China Declaration) we have gotten together
+消息来源：[**日本将宣布受新冠冲击的冲绳县进入半紧急状态**](https://cn.reuters.com/article/japan-quasiemergency-okinawa-idCNKBS2JF01O?il=0)
 
-这是我们一切的原因
-This is the reason for everything
-
-不是因为七哥
-It’s not because of (Brother 7) Miles Guo
-
-不是因为任何人，也不是摇滚巨星
-It’s not because of anyone, nor a rock star
-
-刚才长岛哥念我的Title的时候
-Just now earlier when Brother Long Island stated my title
-
-已经快和当年的斯大林、列宁同志相比肩了
-It was almost on par with the comrades Stalin and Lenin back then
-
-伟大的国际共产主义创始人
-the great founder of international communism,
-
-伟大的苏联共产党创始人
-the great founder of the Communist Party of the Soviet Union,
-
-伟大的苏联苏维埃主席
-the great Soviet chairman of the Soviet Union,
-
-伟大的苏维埃共产党主席、总书记
-the great chairman of the Soviet Communist Party, General Secretary
-
-念好半天，大家都快睡着了
-He has spent half a day to state, and everyone is almost falling to sleep
-
-实际上很简单
-It’s actually very simple
-
-就这一个
-Just this one (the New Federal State of China Declaration)
-
-我们今天就这一个
-Just this one today
-
-绝对是因为这个走在一起
-It’s definitely because of this one we have gotten together
-
-无论是铁血组，还是联盟委员会，还是战友们
-Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
-
-当谁忘掉这个的时候
-Whoever forgets this,
-
-你真的没有记住的时候
-and really don’t keep this in mind,
-
-你一定是被淘汰那个人
-You will definitely be that individual that gets eliminated
-
-* * *
-
-Date: 01/02/2022
-原视频标题: 七哥介绍新中国联邦宣言(下)
-(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
-原视频日期：2022/01/01
-原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
-任务编号：KC394(3394)
-视频时间段 : 0:00-00:52
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-00：11 Title 改为 头衔
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,95 @@
 ---
 
 
-## 郭文贵先生爆料：普京将缺席北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1824079/)
+## 七哥介绍新中国联邦宣言(下)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1824146/)
 
-作者：纽约香草山信息部 – 6zero4
+[https://gtv.org/video/id=61d469f6dffab035958ab516](https://gtv.org/video/id=61d469f6dffab035958ab516)
 
+**郭文贵
+Miles Guo**
 
+我们说什么的时候都不要忘了
+Whatever we say, please don’t forget
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+因这个我们走在了一起
+Because of this (the New Federal State of China Declaration) we have gotten together
 
+这是我们一切的原因
+This is the reason for everything
 
+不是因为七哥
+It’s not because of (Brother 7) Miles Guo
 
-距离北京冬奥会还有五周，目前，美国、英国、澳大利亚、加拿大、立陶宛等10国已明确表态会抵制，而俄罗斯、以色列、阿根廷等国公开承诺会派人到场支持。
+不是因为任何人，也不是摇滚巨星
+It’s not because of anyone, nor a rock star
 
-对此，郭文贵先生在12月29日的大直播中爆料指，俄罗斯总统普京在收到中共1000亿美元的出场费后，私下应允习近平，届时将邀请另外四名政要一同前往参加北京冬奥。可惜，事与愿违，四人中有三人拒绝参加，普京本人也突然转态，对习近平谎称腰后椎疼痛，需要度假静养，不得不缺席北京冬奥。
+刚才长岛哥念我的Title的时候
+Just now earlier when Brother Long Island stated my title
 
-不过，郭先生未有透露习近平对普京的言而无信是否会有相应的反制措施回击。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-50.jpg)
-参考链接：
-[2021年12月29日 文贵大直播：北京冬奥会中美较量；国内经济惨状；虚拟货币市场变化；美国新法案中共噩梦](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+已经快和当年的斯大林、列宁同志相比肩了
+It was almost on par with the comrades Stalin and Lenin back then
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+伟大的国际共产主义创始人
+the great founder of international communism,
 
-总编：飞虹
-编辑：天滅中共
-校对/发稿：为真不破20
+伟大的苏联共产党创始人
+the great founder of the Communist Party of the Soviet Union,
 
-**更多资讯，更多关注**
+伟大的苏联苏维埃主席
+the great Soviet chairman of the Soviet Union,
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+伟大的苏维埃共产党主席、总书记
+the great chairman of the Soviet Communist Party, General Secretary
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+念好半天，大家都快睡着了
+He has spent half a day to state, and everyone is almost falling to sleep
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+实际上很简单
+It’s actually very simple
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+就这一个
+Just this one (the New Federal State of China Declaration)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+我们今天就这一个
+Just this one today
 
+绝对是因为这个走在一起
+It’s definitely because of this one we have gotten together
 
+无论是铁血组，还是联盟委员会，还是战友们
+Whether you are in the Jagged Team, the Alliance Committee or our battle buddy,
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+当谁忘掉这个的时候
+Whoever forgets this,
 
+你真的没有记住的时候
+and really don’t keep this in mind,
 
+你一定是被淘汰那个人
+You will definitely be that individual that gets eliminated
+
+* * *
+
+Date: 01/02/2022
+原视频标题: 七哥介绍新中国联邦宣言(下)
+(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 2)
+原视频日期：2022/01/01
+原视频链接: [https://gettr.com/post/plec8l7139](https://gettr.com/post/plec8l7139)
+任务编号：KC394(3394)
+视频时间段 : 0:00-00:52
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+
+00：11 Title 改为 头衔
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
