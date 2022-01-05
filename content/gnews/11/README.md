@@ -2,48 +2,30 @@
 ---
 
 
-## 雷·达利欧表示在印钞过程中，“愚蠢地拥有”现金和债券
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1823180/)
+## 恒大集团：海花岛投入810亿，拆除整改
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1823222/)
 
-作者：Nathan Crooks
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-42-scaled.jpg)
-雷·达利欧 (Ray Dalio) 周二重申了关于持有现金和债券的警告，因为受疫情影响美国的债务和货币宽松持​​续增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-2.jpg)恒大集团：海花岛投入810亿，拆除整改 网络图片
+据澎湃新闻1月4日报道，恒大童世界集团3日针对海花岛39栋建筑被拆一事作出了回应。2021年12月30日，海南省儋州市综合行政执法局给恒大下发了《行政处罚（限期拆除）决定书》，责令该公司在10日内自行拆除位于海花岛2号岛的39栋违法建筑。否则，执法局将依法组织拆除。
 
-他在 LinkedIn 上的一篇文章中写道：“这种印钞和购买债务资产已经将利率推低导致持有现金和债券是愚蠢的地步。” “我认为应该考虑尽量减少自己持有的美元、欧元和日元现金和债券。”
+2010年10月14日，儋州市政府与恒大集团签订了《海南省儋州市白马井填海项目投资开发框架协议》；截至2013年8月28日，恒大取得了全部《海域使用权证书》；2015年恒大取得土地使用权，上马开工。经过六年多的建设，投入约810亿。如今一声令下：拆除。
 
-Bridgewater Associates 创始人、亿万富翁达里奥表示，现在是借入这些货币的好时机。他补充说，应该投资财务状况良好的国家的股票以对冲资产通胀。
+拆哪？哪都拆。中共用实际行动解释了中国这个词的英文含义，整天拆了建，建了拆。前人留下的古迹要拆，新建好的看着不满意要拆、不符合上级精神的也要拆。该拆的拆，不该拆的找借口也要拆，虽然劳民伤财，但是肥了各级官吏，还是乐此不疲。810亿元，39栋楼，建好了才发现是违章建筑，开工之前为什么没发现？是当初没看清楚文件还是如今动了谁的奶酪？
 
-长期以来，达利欧一直以对中国及其作为全球大国的崛起感兴趣，但他表示，当前的经济同样受到美国内部财富和价值观的冲突，这种冲突自 1930 年代以来就从未出现过。
+新闻参考链接：[https://c.m.163.com/news/a/GSRN264Q0514R9P4.html?spss=newsapp](https://c.m.163.com/news/a/GSRN264Q0514R9P4.html?spss=newsapp)
 
-他写道：“美国现在正在发生巨大的内部冲突，这使它成为一个危险的地方。” “例如，有可能双方都不会接受输掉结果的 2024 年选举。”
+* * *
 
-关键要点：
-
-- “我认为应该考虑尽量减少持有美元、欧元和日元现金和债券（或借入这些资产），并将资金投入高度多元化的资产组合，包括股票和通胀对冲资产，尤其是那些国家拥有健康的财务状况和受过良好教育的公民，以及安稳的内部秩序。”
-- “我认为，在任何时期内，政府都不会允许现金回报优于你可接受的风险水平之内多元化、非现金投资组合的回报。因为那会导致可怕的问题。”
-- “三大储备货币帝国：美国、欧洲，以及日本的财务状况都不佳。”
-- “金融资产相对于实物资产的数量非常高，这可能会导致 ‘银行挤兑’式的从金融资产转向实物资产。”
-- “随着主导力量的削弱，其他力量变得强大到足以挑战它，内部和外部的冲突就会更加明显，从而导致谁将拥有财富和权力的革命性变化。旧时代将终止下一个新时代将到来。现在正在发生着这种情况。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-来源：https://finance.yahoo.com/news/ray-dalio-says-cash-bonds-174352409.html
+编辑：【英国伦敦喜庄园编辑部】
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

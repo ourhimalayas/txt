@@ -2,29 +2,36 @@
 ---
 
 
-## 美国、加拿大和日本的税务居民能不能通过在BVI成立公司来喜交所做KYC开户？
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1822106/)
+## 因言被封：推特永久封禁美众议员的个人账户
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822292/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
-![](https://assets.gnews.org/wp-content/uploads/2022/01/KYC-2022-01-04-at-22.21.36.png)
-**美国、加拿大和日本的税务居民现在不允许在喜交所注册账户，那么他们能不能建立一个境外公司（比如说在BVI），然后以这个公司的名义在喜交所注册KYC呢？**
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-2.jpg)
+格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
 
-**答案是肯定的，但是有需要注意的地方。喜交所白皮书提到，无论是自然人、机构或公司，只要认定这个自然人/机构/公司不在美国、加拿大和日本，并且能正确提供认证所需要的材料，就能被喜交所认可。**
+据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
 
-**所以，从喜交所的角度来看 ，KYC只认证这个公司的实体是在哪个国家，至于这个公司的股东可以是世界上任何一个地方的居民，因为对这个喜交所账户负责的是这个公司，而不是这个公司的某个股东，因此喜交所会接受这样的公司来做KYC并开户。**
+耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
 
-**但要清楚的是，喜交所接受你的KYC，跟你做这个事情之后，它在你当地国产生的税务问题，是完全分开的两回事情。单独来讲，这样做是可行的，但是涉及到股东所在地的税务方面的责任和义务，必须单独拿出来对待，要遵循当地税务法的规定，比如美国的IRS和加拿大的CRA。**
+参考链接：
+1) . [Twitter permanently suspends Rep. Marjorie Taylor Greene’s personal account over covid-19 misinformation](https://www.washingtonpost.com/nation/2022/01/02/marjorie-taylor-greene-twitter-suspension/)
+2) .[When Maxine Waters can go to the streets and threaten violence on Twitter, Kamala and Ilhan can bail out rioters on Twitter, and Chief spokesman for terrorist IRGC can tweet mourning Soleimani but I get suspended for tweeting VAERS statistics, Twitter is an enemy to America and can’t handle the truth.](https://gettr.com/post/plf6qx50e8)
 
-**还有更深入一些的问题，比如说每个国家之间是怎样来处理这种离岸投资？如何登记？这个人和所在国家税务局之间的关系是怎样？喜交所是如何确认这个公司的KYC资料是否完整？联名里的Director是谁？各个懂事是谁？最大的股东是谁？他们是哪国的公民？个人的资料是否需要进行公布？**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**综上所述，简单回答美国、加拿大和日本的税务居民能不能通过在BVI（或美国、加拿大和日本除外的其他国家）成立公司来喜交所做KYC开户？答案是肯定的，但里面涉及到的股东、懂事和税务问题是另当别论，且不容忽视。**
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-直播视频：
-
-[第三十六期 金融税务专题](https://gtv.org/video/id=61b53fbb56f4921401b5860d)
-
-编辑/发文：蓝枫法律栏目
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

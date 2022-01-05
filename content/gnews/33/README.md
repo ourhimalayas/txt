@@ -2,24 +2,26 @@
 ---
 
 
-## 有声|新中国联邦人要拥有爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1822409/)
+## 洛杉矶联合学区被迫取消对学童疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1822425/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月1日，郭文贵先生在12小时的大直播中与战友们分享了五行，金、木、水、火、土所代表的实际意义之后说：我们还需要一样东西——那就是爱。
+据外媒1月 2日报道，洛杉矶联合学区过去计划对学生实施极端的疫苗强制措施，由于3万名学童未遵守而不得不取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9.jpg)
+去年9月，这个美国第二大学区的校董会投票决定，要求12岁以上的学生在1月10日前接种疫苗。现在，该区已将这项任务推迟到秋季，因为许多人没有遵守。
 
-郭先生认为，人与人之间最重要的就是要有爱。人之所以为人，就是因为有爱。人类有文明，也是因为有爱，爱是最大的力量。郭先生对基督教与天主教的“博爱”表示认同。他说，因为“博爱”，产生了西方最伟大的基督文明。他还指出没有信仰，不敬畏上天，就不可能有爱，更不懂得爱。
+据POLITICO报道，”美国其他民主党州的学区，也在减退以前的学生强制疫苗计划的强度。俄勒冈州波特兰市的校领导们在强烈的反对声中，于秋天暂停了讨论，而纽约和芝加哥则采取了观望态度。他们不仅对强制疫苗批评者小心翼翼，而且还提出疑问：他们是否应该在FDA完全批准为他们的学生接种疫苗之前，实施这种强制” 。
 
-郭先生对战友们说：用公平的心对战友，就是爱自己。五行中土生万物，土就是包容。爱就是要包容，战友们要互相包容。
+参考链接：
+1) . [Los Angeles Public Schools Canceled Their Vaccine Mandate After 30,000 Kids Were Not Complying](https://www.thegatewaypundit.com/2022/01/los-angeles-public-schools-cancelled-vaccine-mandate-30000-kids-not-complying/)
+2) . [洛杉矶公立学校在3万名儿童未遵守规定的情况下取消了他们的疫苗接种强制](https://gettr.com/post/plpy89ff50)
 
-原文链接：[新中国联邦人要拥有爱](https://gnews.org/zh-hans/1818310/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：Ivy001
+编辑：Lakeman (文仁）
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

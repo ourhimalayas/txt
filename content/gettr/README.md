@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 1:43 AM (UTC)`
+
+1月4号： 【川普总统呼吁大家停止使用“退它”和“非死不可”称其为国家耻辱，应该被禁止在美国做生意，知名媒体人Dinesh DSouza发贴表示它和它一伙的长期将无法生存。👏👏👏👏👏让我们送它们一程✊✊<br/>恭祝它俩发展无望👹破产有期】
+![img](https://media.gettr.com/group12/getter/2022/01/05/01/99fe1bad-a12b-0d93-8dc7-e40aead86cb3/807c4bacc22e5db55313af2c16dc5361.jpg)
+
+---
+
 `@miles 1/5/2022 1:27 AM (UTC)`
 
 1月4号：🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
@@ -150,13 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 2021 Annual Worldwide Getties: Winner of CCP’s Biggest Nightmare - Miles Guo @Miles<br/><br/>2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵先生 @Miles<br/>
 ![img](https://media.gettr.com/group2/getter/2022/01/03/10/b94124f0-8cb2-8380-b102-f4ca4edebee9/out.jpg)
-
----
-
-`@miles 1/3/2022 8:18 AM (UTC)`
-
-1/1/2022 Mr.Miles Guo: The Story Behind Communist China's Intention to Strictly and Seriously Regulate the Out-of-Control Chinese Music and Culture Market<br/><br/>1/1/2022 文贵先生新年直播：中共意欲严格严肃管理失控中国音乐文化市场背后的故事<br/>
-![img](https://media.gettr.com/group23/getter/2022/01/03/08/6561c8ea-a830-9ce3-d350-d100b133dbc1/out.jpg)
 
 ---
 

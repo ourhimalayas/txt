@@ -2,56 +2,99 @@
 ---
 
 
-## 新中国联邦爆料革命日历
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
+## 2022BC省一些郊区的房屋评估价值上涨了 40% 以上
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1823195/)
 
-**出品：纽约香草山设计部**
+作者：CBC News
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-45.png)
+根据 BC Assessment 的数据，新数据显示，该省房屋的评估价值全面上涨，一些较小的社区和郊区在过去一年中涨幅最大，涨幅为 40% 或更多。
 
+在弗雷泽河谷相对更实惠的地区，房价大幅上涨。在奇利瓦克，单户住宅的平均价值比去年飙升了 40%。在阿伯茨福德，这一比例为 39%，兰利为 38%。
 
+相比之下，温哥华已经天价的独栋房屋价值上涨了 16%，平均接近 200 万美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+SFU 城市项目主任安迪·严 (Andy Yan) 表示，这些数字突显了温哥华的负担能力问题正在蔓延到其他城市。
 
+“我认为我们面临着一些严峻的挑战，只是在价格上涨中有多少超过了当地收入，以及与房地产价值的可观增长相比，当地收入如何保持相对平稳，”严说。
 
+**卑诗省房屋销售数量创下年度新纪录**
 
+房主可能会欢迎房价上涨，但这些数字对希望进入市场的人来说是又一次打击，也是租房者的主要担忧。
 
+40 年来，Jim Close 在阳光海岸的一处休闲租赁地契上拥有一处住宅。由于房产的评估价值几乎上涨了 100%，他每年支付给政府的租金也翻了一番。
 
+“涨到这么高真是太疯狂了。但是，我知道整个阳光海岸的房价都在上涨，”他说。
 
+“作为一个有固定收入的退休人员，这会让我考虑不留在这个地方。”
 
+Close说，评估师在确定价值时不区分租赁和永久业权。
 
+**报告发现，尽管房价飙升，但不列颠哥伦比亚省的住房供应仍处于历史低位**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
+严说，需要结合供应、需求和融资措施来解决日益严重的负担能力紧缩问题。
 
+“在大流行之前，你必须注意 Airbnb 还有拥有多套房屋的人的想法，将住房作为投资而不是房屋的想法给这个市场带来了特别的压力。”
 
-#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
+BC Assessment是省级当局负责确定全省房屋的价值以用于税收目的和官方记录。2022 年评估通知反映的是 2021 年 7 月 1 日房产的市场价值。
 
+据该组织称，该省的房地产市场仍然“非常活跃”，大多数业主应该期待 2022 年的评估更高。
 
+BC Assessment 的副评估员 Bryan Murao 表示，过去两年大流行对房屋的需求增加导致房产价值上涨，不仅在温哥华和维多利亚等传统热点地区，在较小的地区也是如此。
 
-**编辑/发稿：小鹿**
+他说，低陆平原的平均涨幅在 10% 至 30% 之间。
 
+“然而，温哥华市的公寓处于变化的低端，通常只有个位数的增长，而菲沙河谷郊区的房屋与大温哥华地区的大部分地区相比，变化幅度更大，”穆拉奥在一份新闻稿中说。
 
+Chilliwack 的单户住宅现在平均价值 877,000 元。从 2021 年的 428,000 元增加到 2022 年的 620,000 美元，增长了 45%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+素里、高贵林和三角洲的涨幅也超过 30%。
 
-**更多资讯，更多关注**
+BC Assessment 表示，对于低陆平原地区，总体评估总额已从 2021 年的约 1.46 万亿元增加到今年的约 1.75 万亿元。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+它说，该地区的最新评估中有超过 237 亿美元来自新建筑、细分和财产重新分区。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+去年 12 月，BC 省房地产协会表示，该省的房屋销售数量在 2021 年创下新高。现在房屋的平均价格略低于 100 万元，为 993,922 元，比 2020 年 11 月的 814,310 元上涨了 22.1% .
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+##### 阿尔伯尼港上涨 47%，托菲诺上涨 42%
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+同样，在温哥华岛，小城市、卧室社区或更多农村地区对房屋的需求正在推动评估的增加。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+阿尔伯尼港典型的单户住宅价值从 2021 年的 320,000 元增加到 2022 年的 470,000 元，增长了 47%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+托菲诺的估价增加了 42%，将平均价值从 2021 年的 956,000 元推高至 2022 年的 1,358,000 元。
 
+Sooke、Gulf Islands、Duncan、North Cowichan、Qualicum Beach 和 Parksville 等地的增幅超过 30%。
 
+根据 BC Assessment 的数据，总体而言，温哥华岛的评估总额从 2021 年的约 2690 亿元增加到今年的 3430 亿元。
 
+南部内陆地区的房屋评估也显着增加。
 
+在基洛纳，典型的单户住宅价格从 2021 年的 $650,000 上涨到今年的 $869,000，涨幅为 34%。
 
+该地区涨幅最大的是 Peachland，那里的估价上涨了 39%。2021 年，单户住宅的价值为 590,000 元；2022 年为 820,000 元。
 
+BC Assessment 表示，房产评估的变化不会自动转化为房产税的增加。
+
+业主必须在 1 月 31 日之前对评估通知提出上诉。
+
+来源：https://www.cbc.ca/amp/1.6303403
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

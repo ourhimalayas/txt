@@ -2,102 +2,36 @@
 ---
 
 
-## 灭网红、外教和内教是在为习统一天下做铺垫
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823274/)
+## 新闻述评：中共大肆炒作美防长奥斯汀感染中共病毒前会见总统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823329/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-1.jpg)
-[https://gtv.org/video/id=61d44451dffab035958aa83c](https://gtv.org/video/id=61d44451dffab035958aa83c)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2.png)[*图片来源（国防部）*](https://www.flickr.com/photos/secdef/51770320643/)
+**美国防部长奥斯汀中共病毒（Covid-19）检测结果呈阳性。并强调自己已“完全接种疫苗”，坚持认为“疫苗有效”，称疫苗将继续成为军事医疗的需求。中共国解放军曾承认，这是他们发动的“生物战”和“生物恐怖主义战”，并可以根据特定目标借中共病毒疫苗“启动死亡程序”。全世界都在怀疑中共就是罪魁祸首，令人遗憾的是，已经中招的奥斯汀仍然坚信疫苗是有效防御武器。**
 
-**郭文贵**
-**Miles Guo**
+据中共国新华社4日消息，美国国防部官网当地时间1月2日发布了防长[奥斯汀的声明](https://www.defense.gov/News/Releases/Release/Article/2886520/statement-by-secretary-of-defense-lloyd-j-austin-iii-on-covid-status/)。声明称，“我今天早上新冠检测结果呈阳性，我在休假期间出现症状后，今天要求进行检测。我的症状很轻，我正在遵照医生的指示和CDC的指导方针，我将在接下来的5天在家进行隔离。”
 
-网红所有卖的东西有几件事中国人的文化的东西，都是西方的衣服
-How many things that the Internet opinion leaders sell are the Chinese cultural stuff, they are all western clothes
+该消息称，奥斯汀在声明中还透露和美国总统拜登的最后一次会面是在2021年12月21日星期二。他称：“我最后一次与拜登总统会面，比我开始出现症状还早一个多星期。那天早上我的检测呈阴性。自周四以来，我就没有去过五角大楼，之前也只是和几名工作人员进行了短暂的会面，而且在整个过程中都戴着口罩并保持社交距离。”
 
-网红卖的钻石、戒指，你见有中国产的吗？是吧？
-have you seen any diamonds and rings produced in China that sold by the Internet opinion leaders, right?
+- ***延展阅读：***[***隔离指挥权，美国国防部长感染新冠病毒***](https://zh.detv.us/2022/01/03/%E9%9A%94%E7%A6%BB%E6%8C%87%E6%8C%A5%E6%9D%83%EF%BC%9A%E7%BE%8E%E5%9B%BD%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/)
 
-网红一年多少钱呢？几万亿人民币，网红又是一个直播
-How much money do the internet opinion leaders earn in a year? a few trillion yuan, and the Internet opinion leaders are also doing live broadcast
 
-所以基于以上, 必须把网红造成的、不可控的政治的隐患拿掉，几万亿的人民币花下去
-so based on the above reasons, the uncontrollable political hid-den dangers caused by the Internet opinion leaders must be re-moved, and spent trillions of yuan on it
+值得注意的是，奥斯汀在《声明》中还强调自己已“完全接种疫苗”，并在去年10月初接受了疫苗加强针，他强调，“疫苗有效，并将继续成为我们劳动力的军事医疗需求。我继续鼓励每个有资格打加强针的人都去施打。”
 
-中国有钱吗？中国没有钱了，你这几万亿，老百姓形成了消费
-Is China rich? China has no money anymore, for those trillions of yuans, Laobaixing have formed consumption
+中共评论认为，“美国军政界多次出现有人中共病毒检测结果呈阳性的情况，中共国对美国军方和政界人士感染中共病毒情况历历在目。”该新闻评论称，“美国国务院发言人普赖斯也于2021年9月27日早上出现中共病毒的相关症状，并得到了中共病毒检测呈阳性的结果；同年10月19日，美国国土安全部发言人玛莎·埃斯皮诺萨宣布，该部部长马约卡斯当天早上的中共病毒检测结果呈阳性；同年12月23日，五角大楼发言人柯比表示，前一周随同副防长希克斯出访的7名国防部职员中共病毒检测结果呈阳性，国防部已经开始进行密接人群筛查，检测结果呈阳性的人员已经被隔离。”
 
-老百姓在自己家里边儿欠一屁股债，消费完了全都不还
-Laobaixing in their own homes do not repay any debts after they have finished their spending
+- ***延展阅读：***[***爆炸性 | 中国在大流行之前讨论将冠状病毒武器化，用生物武器预测第三次世界大战***](https://www.republicworld.com/world-news/china/china-discussed-weaponising-coronaviruses-before-pandemic-predicted-ww3-with-bio-weapons.html)
 
-谁买单，共产党买单，你就别花钱了，关键是网红，这种媒体平台
-Whoever pays? the Communist Party pays? don’t spend money, the key point is the Internet opinion leaders and this kind of media platform
 
-如果有一天突然把爆料革命的今天大直播里边1/10播出去
-If one day suddenly they do live broadcast the 1/10 of today’s grand broadcast of the whistleblower movement
+人们不应忘记暴料革命一直向西方国家警告，中共病毒是中共解放军“精心设计的疾病”，他们在其专著中公开承认这是“生物恐怖主义”。认为他们已经达到可以“提出一种假设疾病的症状，然后设计或创制此病原体或病原（因），并引起预期的复杂疾病。后者可通过多种途径实现，如关闭免疫系统，或诱导特异性细胞增殖和快速分裂（如癌症），中共解放军特别提到他们可以做到根据战争需要“启动程序性细胞死亡”。“由此运用在‘进攻性生物战或恐怖主义战’的能力上呈数量级提高。”并且明确强调，将“生物战”或“恐怖主义”战同时发动，且在“生物战”前冠以“进攻性”标志。因此，中共毋庸置疑地定义，“生物战之发动者即为‘生物恐怖主义者’”。（见 《[非典非自然起源和人制人新种病毒基因武器](http://www.wyzxwk.com/Article/shidai/2020/01/412966.html)》第98-99P）
 
-造成几千万人几百万人的影响，会对共产党是致命一击
-will affect tens of millions of people and also will be a fatal attack to the Communist Party
+这是中共国解放军自己承认他们发动了 “生物战”或“生物恐怖主义战”，并可以根据特定目标借着毒疫苗 “启动死亡程序”。令人遗憾的是，已经中招的[美国防长奥斯汀](https://apnews.com/article/coronavirus-vaccine-us-military-requirement-pentagon-3975940c732352f72e41f6e34a3a2669)仍然坚信疫苗是有效防御载体。
 
-绝对的网络和绝对的思想控制和资源控制
-absolute network and absolute thought control and resource con-trol
+2022年1月4日
 
-和让老百姓准备好当牛做马的、远离时尚和物质生活的时代
-and the era that prepares Laobaixing to be the slaves, away from fashion and material life
-
-和不可控的因素全部干掉
-and get rid of all the uncontrollable factors
-
-为什么要关外教、内教呢？都能赚钱呢
-Why shut down the foreign and domestic teachers? they all can make money
-
-外教教的什么? 教的英文
-What do the foreign teachers teach? they teach English
-
-内教教的是什么？教的是所有的这些所谓的有钱、有身份人的孩子，花钱么，花钱
-What do the domestic teachers teach? they teach all the so-called rich and identifiable person’s children, do they spend money? they do
-
-钱哪来的，钱去哪儿了，最后习觉得这帮人绝对是我们的威胁
-Where did the money come from? Where did the money go? In the end, Xi felt that these people were definitely the threat to us
-
-这些钱都会流向海外的，绝对的控制财富，让中国人不要学英文
-The money will flow to overseas, need absolutely control the wealth, so that the Chinese people can not learn English
-
-更不要传西教，更不要培养这种反抗的种子
-Don’t preach Western religion, don’t cultivate the seeds of re-sistance
-
-更不允许这些人成为我党绝对思想统一的障碍，干掉
-absolutely not allowed people to become the obstacles to the ab-solute ideological unity, and get rid of them
-
-财富统一、思想统一、技术统一
-unity of wealth, unity of thought, unity of technology
-
-最后再习一神不能有习二神的情况下，像北朝鲜一样
-Finally, there is only one Xi God, can’t have the second Xi God, it’s like North Korea
-
-中国只有一个救星，没有第二个救星，就是一个太阳，就是习大神，习太阳
-There is only one savior in China, there is no second savior, it is just one sun, that is Xi God, Xi Sun
-
-**原视频链接** :[https://gettr.com/post/pklvom8f7f](https://gettr.com/post/pklvom8f7f)
-
-Date: 12/29/2021
-原视频标题: 灭网红、外教和内教是在为习统一天下做铺垫
-Eliminating the internet celebrities, foreign teachers and domestic teachers is paving the way for Xi to unify the world
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pklvom8f7f
-任务编号：KC383（3333）
-视频时间段 : 0:00-2:09
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

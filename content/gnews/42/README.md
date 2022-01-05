@@ -2,43 +2,32 @@
 ---
 
 
-## 美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1821573/)
+## 疫情蔓延至郑州和北京冬奥场地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1821723/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月3日，郭文贵先生发布盖特视频透露，西安因新冠疫情严重封城后，有民众由于食物供应不足，已经开始抓老鼠充饥。河南郑州也将封城。郑州市新冠肺炎疫情防控指挥部办公室，发布2022年1号通告称：对管城回族区，二七区部分区域实行分类管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-04-下午10.09.22.png)
+据悉，郑州几家医院都已被迫关闭，救死扶伤的医生被像畜生一样对待。不只郑州，中国还会有更多的城市因疫封城。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/800px-United_States_Navy_SEALs_542.jpg)
+前天，北京冬奥会会场发现了新冠病毒疑似病例，50多人被送往紧急安置地点，最终确认无一人感染。但是检验新冠病毒的方式富有争议，除了正常检查喉咙，男孩女孩竟被要求褪下裤子检查下体，且均由中共领导亲自上手。疫情汹涌之际，中共官员极尽卑鄙荒淫之能事，颇具败亡之兆。
 
+参考链接：[https://gettr.com/streaming/plrbe5aa53](https://gettr.com/streaming/plrbe5aa53)
 
- 
-图片来源：commons.wikimedia.org
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-#### 编译：小红帽
-
-根据《RT新闻》1月4日报道，**美国德克萨斯州法院裁定，美国海军惩罚不接受总统乔·拜登的疫苗强制令而寻求宗教豁免的军人，是违宪的。**
-
-**地区法官里德·奥康纳(Reed O’Connor)周一发布了一项初步命令，阻止海军和国防部执行其疫苗强制令。**
-
-法官在裁决中写道：“本案中的海军服役人员试图证明他们为保护而牺牲的自由是正确的”。“新冠病毒（Covid-19）大流行没有为政府提供取消这些自由的许可。第一修正案没有对新冠病毒例外。我们的宪法没有将军事上排除在外。”
-
-法官正在对35名军人提起的诉讼采取行动，其中包括海豹突击队、海军船员及潜水员，他们希望以宗教理由拒绝接种新冠疫苗。根据法庭文件，原告是天主教徒、东正教徒和新教徒。
-
-法官写道，原告因拒绝接种新冠疫苗而面临被取消服役资格，这将使他们“永远不能被部署”。
-
-代表原告的法律组织 “第一自由研究所”（First Liberty Institute）对该命令表示欢迎。该组织的总顾问迈克尔·贝里（Michael Berry）在给媒体的一份声明中说：“仅仅因为海豹突击队要求提供宗教便利而对他们进行惩罚，这纯粹是报复性和惩罚性的。”
-
-海军没有对此事进行评论。五角大楼发言人约翰·柯比（John Kirby）说：“我们知道该禁令，并正在审查它。”
-
-新闻来源：[Judge rules on US Navy SEALs vaccination dispute — RT World News](https://www.rt.com/news/545113-vaccination-mandate-navy-ruling/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

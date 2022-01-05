@@ -2,44 +2,72 @@
 ---
 
 
-## 推特上的审查制度“变得更蠢”, Spotify顶级播客乔·罗根加入GETTR
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1822924/)
+## 麦卡洛博士：COVID-19的门诊治疗已被禁止
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1823070/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-4.png)
-**非常重要：在GETTR上关注亚历克斯·琼斯（[Alex Jones](https://www.gettr.com/user/alexjones)）播客之王乔·罗根（Joe Rogan）周日宣布，他已经加入了社交媒体平台GETTR，此前Twitter和YouTube封禁分享他最新内容的人们。**
+翻译：Jenny Ball
 
-“为了防止推特上糟糕的事情变得更蠢，我现在也在这里了。欢呼吧！” 罗根在GETTR上发帖，他在该平台已经积累了超过800万的粉丝。这个平台发誓所有言论不会被屏蔽，并允许新用户导入他们的旧推文，以期吸引人们离开推特（Twitter）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/qqen5bh1zy4.jpg)图片来源：m.bkanbing.com
 
-罗根最近采访了mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士，他最近因为反对该技术被用于抗新冠病毒（COVID）的大规模接种而被推特禁言。在采访中，马龙概述了他是如何认为世界在接受疫苗接种和实施过度的限制作为解决方案后堕入了“大规模形成性精神病”。
+麦卡洛博士告诉《大纪元时报》，公众应该质疑：为什么世界各地的政府和公共卫生官员在抗击 COVID-19 病毒的努力中，很少或根本不重视门诊治疗，而是一味大力推广疫苗。
 
-在采访中，罗根指出：“他们删除你是因为你不顺从大科技叙事，因为当涉及到新冠病毒在治疗方面，在–无论你是否在宣传他们所谓的疫苗接种迟疑不决，技术显然有一个审查议程，他们可以因此禁止你的发言，他们可以因为在他们眼中他们认为是一个合理的冒犯而禁言你”。马龙回应说：“我非常努力地给人们提供信息，帮助他们思考，而不是告诉他们思考什么。好吗？但问题是，如果我不是–如果我参与对话是不对的，即使我指出了令人不安的科学事实，那么谁是，谁又可以被允许呢？”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-5.png)
-油管（YouTube）的马龙采访已经被撤下，同时撤下的还有罗根对心脏病专家彼得·麦卡洛（Peter McCullough）博士的采访，而谷歌（Google）也被指控改动了马龙和他的“大规模形成性精神病”术语的搜索结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-9.png)
-推特还在周日永久封禁了众议员马乔里·泰勒·格林（Marjorie Taylor Greene），因为她质疑大技术叙事。最后一击似乎是当格林问极左派众议员亚历山德拉·奥卡西奥·科特兹(Alexandria Ocasio-Cortez)是否已经向州长罗恩·德桑蒂斯(Ron DeSantis)道歉，因为亚历山德拉批评他公开场合缺席，原来是因为他在照顾他患癌症的妻子。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-11.png)
-**简评：**
+“很多关于疫苗的信息，但是提及的治疗信息为零，根本没有。而且从一开始就是如此。这里有一个主题，我希望每个人都开始明白这个主题，对 COVID-19 患者早期治疗的努力、兴趣、提升或关心为零，”麦卡洛说。 “但却关注那些根本没有感染 COVID-19 的人，并为他们接种疫苗。”
 
-Twitter等社交媒体平台大公司启动焦土审查制度，对政治不正确的人士进行封杀。上周末，Twitter禁言了顶级病毒学家和mRNA技术发明人罗伯特·马龙（Robert Malone）博士和素有火爆性格的保守派众议员马乔里·泰勒·格林（Marjorie Taylor Greene），原因就只是他们分享了关于Covid的真相。
+麦卡洛博士是一名内科医生、心脏病学家、流行病学家，也是第一篇关于早期** COVID-19 **门诊治疗的论文的主要作者，该论文涉及多种药物治疗。在最近接受大纪元电视（EpochTV）的“美国思想领袖”节目采访时，他讨论了世界各地正在使用的 COVID-19 预防性治疗的广泛证据。
 
-被永久封杀的人士还包括独立新闻社Infowars的创建者亚历克斯·琼斯（Alex Jones），Spotify顶级播客乔·罗根因对其审查制度深感厌恶，也转移到正在迅速崛起的GETTR媒体平台。在GETTR上，任何人都可以自由发表言论，并可关注和及时获取有关世界上正在发生的事情的真实消息。
+他说，为了消除 COVID-19 的威胁，必须优先考虑药物治疗。 “所以早期治疗显着改变了传播。因此，我们减少了新病例，降低了症状的强度和严重程度，以及感染持续时间。通过这种机制，我们减少了住院和死亡。”
 
-物以类聚，人以群分。Twitter等社交媒体平台对讲真话的、勇于向主流恶势力挑战的人永久封杀在其平台外。证明Twitter是鼓吹非真话的平台，其已经沦为极权的工具，正如马乔里·泰勒·格林所指责的：推特协助不明身份的敌人进行“共产主义革命”。
+麦卡洛医生列举了最近在感染早期有效杀死病毒的一些治疗方法：伊克巴尔·马哈茂德·乔杜里（Iqbal Mahmud Chowdhury ）博士在孟加拉国进行了一项方案，使用聚维酮碘冲洗鼻子和眼睛来杀死病毒。另一项治疗工作，法国医生迪迪埃·拉乌尔 (Didier Raoult) 使用羟氯喹治疗患者取得了巨大成功。
 
-如果说Twitter协助“共产主义革命”，那么，GETTR就是捍卫“正义、自由和利于人类未来的革命”。
+“乔杜里是第一个认识到病毒存在于空气中的作者，人们吸入它，它在鼻子里停留，然后开始复制这一事实。并且，它必须达到一定的阈值，并克服鼻子里的其他生物，并克服我们自己的免疫系统，才能成为临床感染。因此，大约有三到五天的时间可以直接杀死病毒。”
 
-新闻链接: [https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/](https://summit.news/2022/01/03/joe-rogan-joins-gettr-in-anticipation-of-censorship-on-twitter-getting-even-dumber/)
+麦卡洛说，新冠肺炎会造成“可怕的炎症”，而羟氯喹已被证明可以有效减轻这种炎症，但该药物的使用和研究并未增加，反而受到限制，在某些国家，医生用它来治疗他们的病人可能会被判入狱。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/c19study.com_-600x315-1.jpg)3月1日，目前在全球范围内羟氯喹用于治疗 COVID-19 的地图。（红色：限制使用。绿色1: 广泛使用；绿色2:混合使用；绿色3:HCQ预防。白色：未知（图由 c19study.org提供）
+
+在美国，羟氯喹只能在医院使用。
+
+麦卡洛详细介绍了导致这些限制的事件，他说，其中之一是“在《柳叶刀》上发表了一篇伪造的论文……声称在全球多个中心有数万名 40 多岁的 COVID-19 患者住院。”他说这项假设的研究未经证实，并声称该药物对健康有负面影响。
+
+这项“错误”的研究，导致医疗专业人员对这种药物失去信心，之后，“医院信息开始说，听着，不要使用羟氯喹。”
+
+“在我们最初的 COVID-19 浪潮中，美国**NIH**将该计划一项资金充足的试验撤回。然后，不久之后，**FDA **发表声明：疫情期间，不应全面使用羟氯喹。
+
+“另一种药物是伊维菌素。”
+
+《大纪元时报》联系 NIH，询问他们对麦卡洛博士对 NIH 的 COVID-19 治疗指南的批评有何看法。NIH 发言人拒绝置评。她说 NIH 依靠一个由许多专家组成的小组，负责制定 COVID-19 治疗指南。
+
+FDA 告诉《大纪元时报》，他们致力于“加速患者获得药物，以预防或治疗 COVID-19，前提是他们符合该机构的严格标准”，但他们认为，疫苗是预防疾病和住院治疗的最佳方法。
+
+麦卡洛说，除了抵制羟氯喹的消息传递外，伊维菌素也受到美国医学协会的反对。
+
+“因此，美国人看到了 COVID-19 住院治疗最令人困惑的画面，以及 COVID-19 门诊治疗的一幅非常混乱的画面。我的经验，至少我试着把采取门诊治疗，我们会在那里使用药物……中期治疗炎症，后期治疗凝血；我们一直坚持这些原则，”麦卡洛说。
+
+麦卡洛，医院不进行疾病治疗试验是非常不寻常的，尤其是对于** COVID-19**，没有进行重大试验来改善治疗，也没有医院公布任何结果。
+
+麦卡洛说，改善对 COVID-19 患者的治疗，从来都不是负责公共卫生的人的优先事项，因为从一开始就推出疫苗。他还记得各大药房在疫苗获得完全授权之前，如何为它们做广告。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-vaccine-booster-600x400-1.jpg)2021年11月19日，纽约市一家药店的招牌宣传 COVID-19 疫苗。（Spencer Platt/Getty Images）
+
+他说，美国媒体几乎完全屏蔽了世界各地正在发生的 COVID 治疗事件。 “在早期采用口服药物方法的任何地方，在 COVID-19 方面都取得了成功。而现在最近，它非常吸引人，任何地方都需要注意直接通过杀病毒疗法，对鼻子和嘴巴进行净化，这取得了惊人的成果。”
+
+他质疑：为什么美国没有审查世界各地为治疗这种疾病所做的工作？ “我们还没有看到合作医生小组。我们从未见过关于局部疗法的研讨会，什么对鼻子最有效。公共卫生官员没有提及。”麦卡洛说，美国那些领先的公共卫生机构无能。
+
+（点评：与其说他们无能，我更倾向于说他们无良！）
+
+麦卡洛博士建议，每月在国家和全球范围内，对用于治疗 COVID 的新疗法进行审查，供医生审查，并向同行学习。 “没有审查的想法，你会认为世卫组织实际上会分配一个工作组。这是最大的公共卫生问题，每月审查有希望的疗法。”
+
+“所以，两年后，我们这个时代最大的疾病的住院和门诊治疗还是个谜。”
+
+**参考资料：**[theepochtimes][Dr. McCullough: Outpatient Treatments for COVID-19 Have Been Suppressed](https://www.theepochtimes.com/dr-mccollough-says-outpatient-treatments-for-covid-19-have-been-suppressed_4189353.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-04)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
 
  
 

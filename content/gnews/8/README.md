@@ -2,30 +2,96 @@
 ---
 
 
-## 中共败相（三）：河南省全部102个县面临财政危机
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823220/)
+## 灭网红、外教和内教是在为习统一天下做铺垫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823274/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/aluks-1muvy.jpg)**图片来源：www.people.com.cn**
-1月3日中共新华网发布消息，为全面推行省直管县财政改革，河南省人民政府办公厅近日印发《省与市县共同财政事权支出责任省级分担办法》，进一步理顺省、市、县级政府间财政关系，规范统一核定省与市县共同财政事权支出责任分担比例。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-1.jpg)
+[https://gtv.org/video/id=61d44451dffab035958aa83c](https://gtv.org/video/id=61d44451dffab035958aa83c)
 
-为赋予县(市)更多经济管理权限，2021年9月，河南省人民政府印发《深化省与市县财政体制改革方案》，方案明确2022年1月1日起，河南全面推行省直管县财政改革，财政直管县的范围由目前的24个扩大至全部102个县(市)。这意味着各县(市)财政收入除上划中央和省级部分外全部留归当地使用，市级不再参与分享，各类转移支付、债券资金由省财政直接下达到县(市)。
+**郭文贵**
+**Miles Guo**
 
-相关方案明确，对基本公共服务、教育、医疗卫生领域相关事项，结合地方财政困难程度实行分档分担办法，省财政对各档分担不同比例的支出责任。其中，17个省辖市本级(含市辖区)分为三档，省级分担比例分别为20%、30%、40%;济源示范区和102个县(市)分为四档，省级分担比例分别为30%、40%、50%、60%。
+网红所有卖的东西有几件事中国人的文化的东西，都是西方的衣服
+How many things that the Internet opinion leaders sell are the Chinese cultural stuff, they are all western clothes
 
-***以上中共河南省下发的文件说明以下几个问题：***
+网红卖的钻石、戒指，你见有中国产的吗？是吧？
+have you seen any diamonds and rings produced in China that sold by the Internet opinion leaders, right?
 
-1、河南省全部102个县全部都有财政困难，只是程度不同。
+网红一年多少钱呢？几万亿人民币，网红又是一个直播
+How much money do the internet opinion leaders earn in a year? a few trillion yuan, and the Internet opinion leaders are also doing live broadcast
 
-2、全部102个县由省财政直管救济，县级财政自顾不暇，已无力给17个省辖地级市财政输血，河南省财政事实已分割为120个市县财政单元，每一个出问题都要省财政输血救命。
+所以基于以上, 必须把网红造成的、不可控的政治的隐患拿掉，几万亿的人民币花下去
+so based on the above reasons, the uncontrollable political hid-den dangers caused by the Internet opinion leaders must be re-moved, and spent trillions of yuan on it
 
-3、河南已有周口市、洛阳市、许昌市爆发疫情，三地经济还会衰退。
+中国有钱吗？中国没有钱了，你这几万亿，老百姓形成了消费
+Is China rich? China has no money anymore, for those trillions of yuans, Laobaixing have formed consumption
 
-4、中共还有哪个省，会和河南省一样，县级财政即将全面破产？
+老百姓在自己家里边儿欠一屁股债，消费完了全都不还
+Laobaixing in their own homes do not repay any debts after they have finished their spending
 
-**【文章仅代表作者个人观点，与 Gnews 平台无关】**
+谁买单，共产党买单，你就别花钱了，关键是网红，这种媒体平台
+Whoever pays? the Communist Party pays? don’t spend money, the key point is the Internet opinion leaders and this kind of media platform
 
-作者：洛杉矶盘古农场-蓝莲花
-编辑：洛杉矶盘古农场-柯镇恶
+如果有一天突然把爆料革命的今天大直播里边1/10播出去
+If one day suddenly they do live broadcast the 1/10 of today’s grand broadcast of the whistleblower movement
+
+造成几千万人几百万人的影响，会对共产党是致命一击
+will affect tens of millions of people and also will be a fatal attack to the Communist Party
+
+绝对的网络和绝对的思想控制和资源控制
+absolute network and absolute thought control and resource con-trol
+
+和让老百姓准备好当牛做马的、远离时尚和物质生活的时代
+and the era that prepares Laobaixing to be the slaves, away from fashion and material life
+
+和不可控的因素全部干掉
+and get rid of all the uncontrollable factors
+
+为什么要关外教、内教呢？都能赚钱呢
+Why shut down the foreign and domestic teachers? they all can make money
+
+外教教的什么? 教的英文
+What do the foreign teachers teach? they teach English
+
+内教教的是什么？教的是所有的这些所谓的有钱、有身份人的孩子，花钱么，花钱
+What do the domestic teachers teach? they teach all the so-called rich and identifiable person’s children, do they spend money? they do
+
+钱哪来的，钱去哪儿了，最后习觉得这帮人绝对是我们的威胁
+Where did the money come from? Where did the money go? In the end, Xi felt that these people were definitely the threat to us
+
+这些钱都会流向海外的，绝对的控制财富，让中国人不要学英文
+The money will flow to overseas, need absolutely control the wealth, so that the Chinese people can not learn English
+
+更不要传西教，更不要培养这种反抗的种子
+Don’t preach Western religion, don’t cultivate the seeds of re-sistance
+
+更不允许这些人成为我党绝对思想统一的障碍，干掉
+absolutely not allowed people to become the obstacles to the ab-solute ideological unity, and get rid of them
+
+财富统一、思想统一、技术统一
+unity of wealth, unity of thought, unity of technology
+
+最后再习一神不能有习二神的情况下，像北朝鲜一样
+Finally, there is only one Xi God, can’t have the second Xi God, it’s like North Korea
+
+中国只有一个救星，没有第二个救星，就是一个太阳，就是习大神，习太阳
+There is only one savior in China, there is no second savior, it is just one sun, that is Xi God, Xi Sun
+
+**原视频链接** :[https://gettr.com/post/pklvom8f7f](https://gettr.com/post/pklvom8f7f)
+
+Date: 12/29/2021
+原视频标题: 灭网红、外教和内教是在为习统一天下做铺垫
+Eliminating the internet celebrities, foreign teachers and domestic teachers is paving the way for Xi to unify the world
+原视频日期：2021/12/24
+原视频链接 https://gettr.com/post/pklvom8f7f
+任务编号：KC383（3333）
+视频时间段 : 0:00-2:09
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -文新
+审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
