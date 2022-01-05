@@ -2,47 +2,45 @@
 ---
 
 
-## 大型制药公司推动批准儿童 COVID-19 疫苗以逃避法律责任
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826056/)
+## 美国保险公司数据显示疫情后工作年龄人口死亡率激增
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826091/)
 
-作者：马修·戴维斯
+作者：纽约香草山教育部 Naughty(文行)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片16.png)图片来源：网络
-自然新闻：调查记者乔丹·沙赫特尔 (Jordan Schachtel) 表示，目前美国没有食品和药物管理局 (FDA) 批准的针对武汉冠状病毒 (COVID-19) 的疫苗，大型制药公司打算使用儿童作为疫苗的合法的人体盾牌。
 
-除了金钱收益之外，辉瑞、Moderna 和其他制造商似乎需要儿童作为其产品的合法人盾。 儿童面临来自 COVID-19 的风险几乎为零，但继续经历令人担忧的副作用。 美国卫生当局已经确认，儿童和青少年以极其温和的方式感染 COVID-19（如果有的话）。
 
-一项研究还表明，多达 80% 的儿童会出现可能导致严重创伤的副作用。 在这项研究中，辉瑞 (Pfizer) 的 COVID-19 疫苗在 1,097 名 12 至 15 岁的儿童和青少年中进行了测试。 至少 866 人经历了某种形式的令人不快的副作用——466 人被描述为“轻度”，393 人被描述为“中度”，7 人被描述为“严重”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-根据沙赫特尔的说法，新闻周刊、《今日美国》、路透社和美联社的事实核查员兜售虚假信息以掩盖真相。
 
-观察人士指出，里根政府通过了一项法律，如果制药商获得批准在儿童身上使用疫苗，他们就可以通过法律保护他们的疫苗免于承担责任。  1986 年通过成为法律的《全国儿童疫苗伤害法》(NCVIA) 为药品制造商提供了法律责任保护，如果他们获得了所有年龄段的完全授权。
 
-加上缺乏批准的疫苗，沙赫特尔说，没有计划很快在美国提供一种疫苗。
+总部位于印第安纳波利斯的保险公司OneAmerica首席执行官戴维森表示，公司18-64岁的客户的死亡率比疫情前增加了40%，他称这是保险业历史上团体人寿保险业务最高的死亡率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-18.jpg)图片来源：Zerohedge
+戴维森在上周的在线新闻发布会上称如此高的死亡率从2021年第三季度一直持续到第四季度，40%的增幅是闻所未闻的。
 
-**辉瑞 的 FDA 批准的 COVID 疫苗无处可寻**
+据戴维森称，大多数提交的死亡案例并没有被归类为新冠病毒致死，实际上工作年龄人口因疫情而死亡的数字远比统计数字要高。
 
-在 8 月 23 日获得 FDA 的批准后，拜登政府和其他州将辉瑞的 comirnaty 的批准视为具有里程碑意义的时刻。但这里有一个问题：Comirnaty 无处可寻。
+他补充说，“目前该公司的索赔率不断上升，这部分本来是公司最小的业务板块，但现在我们预计这笔费用将远远超过1亿美元，它对公司产生了巨大影响。”
 
-辉瑞（Pfizer）公司获得了紧急使用授权的单独产品是市场上可用的产品。 辉瑞解释说，由于 EUA 注射剂的存在，comirnaty 尚不可用，但向公众保证它很快就会可用。
+OneAmerica遭遇的情况真实的验证了郭文贵先生在中共病毒爆发之初的判断：病毒爆发必然导致保险公司破产，保险公司破产必将导致银行破产，银行破产最终会导致金融崩溃。
 
-尽管声称它与 comirnaty 相同，但为什么 FDA 不会批准可用产品的问题也被提出。 观察人士指出，辉瑞希望所有年龄段的人都可以使用 comirnaty，以便获得额外的法律责任保护。
+新闻来源：[https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
 
-Steve Kirsch 在他的 Substack 上说，如果被批准用于儿童，comirnaty 将神奇地出现在市场上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
 
-“comirnaty 不可用的原因是这些注射剂会使公司承担责任，因为完全许可的产品没有 EUA 产品的责任豁免，”Kirsch 说。
+编辑/校对/发稿：滚滚长江都是水
 
-“但是，一旦辉瑞疫苗在儿童中得到完全批准，由于联邦儿童疫苗法 (NCVIA) 的一项规定，辉瑞将获得所有年龄组的责任豁免。 到时候，他们就完成了。 他们可以在完全批准的情况下为所有年龄组销售 COVID 疫苗产品，并且在它导致您死亡或致残时不承担任何责任。”  （相关：超过 80% 接受辉瑞 Covid 注射的儿童出现副作用。）
+**更多资讯，更多关注**
 
-美国疾病控制与预防中心 (CDC) 表示，辉瑞不打算生产含有 EUA 的comirnaty疫苗，同时全国仍可使用 EUA 疫苗。 根据 FDA 的说法，Comirnaty 是一种法律上独特的但存在某些差异的产品。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www.afinalwarning.com/582454.html](https://www.afinalwarning.com/582454.html)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-编辑/发布：LILY
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-20220105
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

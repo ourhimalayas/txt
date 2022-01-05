@@ -2,44 +2,26 @@
 ---
 
 
-## 美国保险公司数据显示疫情后工作年龄人口死亡率激增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826091/)
+## 中共国网络监管部门审查影响舆论的APP
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826146/)
 
-作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CHINA-PROPERTY-DEBT-0_1640331803787_16403320714013.jpg)图片来源：sputniknews.cn
+据俄罗斯卫星通讯社1月5日报道，中共国国家互联网信息办公室5日发布的《移动互联网应用程序信息服务管理规定（征求意见稿）》中指出，应当对影响舆论的应用程序APP进行安全评估。4日，网信办发布新的《网络安全审查办法》，自2022年2月15日起施行，其中针对算法服务特别要求，建立完善人工干预和用户自主选择机制。
+
+点石成金，梦想成真。现在的中共国，习近平的手指点到哪个行业，哪个行业一片哀嚎，顷刻间跌倒。房地产点倒了，科技公司点倒了，教育行业点倒了，现在点到了应用程序APP。给APP一条建议，赶紧先买好骨灰盒再想对策，否则只怕来不及。中共现在不是割韭菜，是斩草除根，挖地三尺，因为中共没钱了，不抢老百姓的钱怎么活？在中共死还是老百姓死之间，选择永远是老百姓死。不想死的就站起来反抗，在2022年推翻中共。
+
+新闻参考链接：[https://sputniknews.cn/20220105/app-1036955773.html](https://sputniknews.cn/20220105/app-1036955773.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
-
-
-
-总部位于印第安纳波利斯的保险公司OneAmerica首席执行官戴维森表示，公司18-64岁的客户的死亡率比疫情前增加了40%，他称这是保险业历史上团体人寿保险业务最高的死亡率。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-18.jpg)图片来源：Zerohedge
-戴维森在上周的在线新闻发布会上称如此高的死亡率从2021年第三季度一直持续到第四季度，40%的增幅是闻所未闻的。
-
-据戴维森称，大多数提交的死亡案例并没有被归类为新冠病毒致死，实际上工作年龄人口因疫情而死亡的数字远比统计数字要高。
-
-他补充说，“目前该公司的索赔率不断上升，这部分本来是公司最小的业务板块，但现在我们预计这笔费用将远远超过1亿美元，它对公司产生了巨大影响。”
-
-OneAmerica遭遇的情况真实的验证了郭文贵先生在中共病毒爆发之初的判断：病毒爆发必然导致保险公司破产，保险公司破产必将导致银行破产，银行破产最终会导致金融崩溃。
-
-新闻来源：[https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

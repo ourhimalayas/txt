@@ -2,132 +2,49 @@
 ---
 
 
-## 对推特谷歌等垄断机构 一系列法案正在进行中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
+## 领土扩张：入侵乌克兰和台湾
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1825807/)
 
-[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-据我所知
-Hasta donde yo sé
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-269.png)图片来源 : wsj.com
 
-对待Facebook, 谷歌
-Hacia Facebook, Google
+乌克兰的危机可能迫在眉睫，因为弗拉基米尔·普京在俄罗斯边境集结军队，准备进行可能的入侵；美国政策制定者也开始关注台湾的潜在热战，这个冲突的沸腾速度更慢。但美国的政治家们应该明白。这些事件不能被孤立地看待；它们是相互关联的，是争夺欧亚大陆的更大政治竞争的一部分。
 
-还有这些垄断机构, 像Twitter
-Y estos órganos administrativos monopolista como Twitter
+普京先生是否在认真考虑对乌克兰采取行动是一个开放的问题。但普京先生仅仅通过提出可信的威胁就达到了三个目的。首先，他获得了拜登总统的关注，两人在12月7日和30日举行了电话会议。俄罗斯认为自己是一个大国，希望直接与其他大国打交道，而不是通过北大西洋公约组织（NATO，意味苏联的解体崩溃、俄罗斯的软弱）。
 
-一系列的法案正在进行中
-Una serie de Proyecto de Ley está en proceso
+第二，拜登先生没有承诺进行军事部署以支持乌克兰，而是强调对俄罗斯的进攻作出经济反应，如制裁。这是一个信号，表明拜登先生不愿意进行军事干预；第三，也是最重要的一点，普京先生已经调动了俄罗斯军队，允许几乎立即对白俄罗斯（Belarus）采取作战行动，使他能够吞下明斯克（Minsk）。这些事件不能被孤立地看待；它们是相互关联的，是争夺欧亚大陆的更大政治竞争的一部分。
 
-大家一定要记住
-Todos deben recordar
+普京先生是否在认真考虑对乌克兰采取行动是一个开放的问题。但普京先生仅仅通过提出可信的威胁就达到了三个目的。首先，他获得了拜登总统的关注，两人在12月7日和30日举行了电话会议。俄罗斯认为自己是一个大国，希望直接与其他大国打交道，而不是通过北大西洋公约组织，该组织是俄罗斯软弱和苏联崩溃的可恶提醒。
 
-GTV 会再次投胎
-GTV reencarnará otra vez
+第二，拜登先生没有承诺进行军事部署以支持乌克兰，而是强调对俄罗斯的进攻作出经济反应，如制裁。这是一个信号，表明拜登先生不愿意进行军事干预；第三，也是最重要的一点，普京先生已经调动了俄罗斯军队，允许几乎立即对白俄罗斯（Belarus）采取作战行动，使他能够吞下明斯克（Minsk）。在国际上，普京先生仍然希望实现苏联的梦想，拆除美国主导的欧洲安全体系。这与他在中东的目标相似：取代美国成为中东地区的主要境外力量。
 
-会以你意想不到的形式投胎
-Y lo hará de una forma inimaginable
+虽然在地理上相隔甚远，但乌克兰和台湾在俄罗斯和中共国的战略经验和历史想象中占据着相似的位置。夺取这两个国家对所有其他战略目标都至关重要。对俄罗斯来说，夺取乌克兰将确保其对黑海的控制，并对脆弱的北约成员国罗马尼亚和保加利亚打开其他压力点。对中国共产党来说，夺取台湾将使该国能够冲出第一岛链，对日本、菲律宾甚至美国在中太平洋的领土进行进攻。
 
-Gnews 也会转身投胎
-Gnews también se dará la vuelta para reencarnar
+历史上，后苏联时期的俄罗斯统治寡头对独立的乌克兰培养了强烈的不满情绪。它活生生地提醒人们，斯拉夫（Slavic）民族不需要生活在一面旗帜之下。台湾证明了讲中文的民族完全有能力治理自己。现代共产党源于一个野蛮（杀戮）的革命政权，中共政权通过其救世主（造神洗脑）的野心和纯粹的无能，屠杀了数百万中国人民。只有通过吞噬台湾，中共国才能确认其优越性。鉴于中国共产党在征服台湾方面所投入的政治资本，即使中共想主动缓和对台局势，也不可能办到。
 
-你也会想象不到
-También no lo podrás imaginar
+俄罗斯和中共国升级（开疆扩土）的最明显的障碍是乌克兰和台湾与美国及其盟友的关系。普京先生明白，与北约的冲突不断升级将使俄罗斯军队不堪重负。由于无法像 2014 年在叙利亚、利比亚和乌克兰那样隐藏伤亡人数，他将面临国内的反对。普京先生有动力在军事上孤立乌克兰，并将侵略乌克兰导致的问题与北约分开，只有在时机成熟时才出手。
 
-没有任何人知道
-No hay alguien que lo sepa
+同样，一场涉及更广泛的太平洋联盟的中美冲突将证明，中国共产党的生存遇到前所未有的危机：对中共国从中东资源进口的封锁，可能在几周到几个月内摧毁中共政权。
 
-你别看现在很多人以为自己知道 你们都不知道
-No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
+然而，对台湾的既成事实比对乌克兰的类似打击更加可行。俄罗斯可能的战略目标是夺取顿巴斯和克里米亚之间的陆地走廊。然而，2014年，乌克兰武装部队因俄罗斯吞并克里米亚而陷入困境，并依靠准军事部队获得额外的战斗力，击退了俄罗斯对马里乌波尔的攻势，并将俄罗斯和分离主义势力赶回了他们目前的突出部。
 
-那么盖特
-Y Gettr
+七年的战争使乌克兰军队获得了宝贵的战斗经验。乌克兰社会，甚至是东部地区，对俄罗斯的敌意越来越强。乌克兰公众似乎愿意接受伤亡。虽然俄罗斯可能会深入乌克兰领土，并在向南渗透时从北部向基辅（Kyiv）施压，但乌克兰政治崩溃的可能性不大,而且预计会出现反对俄罗斯占领的叛乱。乌克兰的意愿和能力，不亚于北约的潜在干预，有助于阻止俄罗斯的行动。
 
-还有一个现在你看我这希望暴跌的喜币
-Y lo otro ahora yo espero que el precio de H-coin desplome
-它现在一直不跌
-Pero ahora no se quiere bajar
+相比之下，台湾面积小，人口稠密。它的军队没有装备来维持对岛屿周围的空中和海上控制，这是防御两栖入侵的先决条件。而且，共产党极有可能在台湾内部部署了情报资产，准备在台湾社会中挑拨离间，扰乱民用通信。人民解放军的问题不在于它能否攻占台湾，而在于它能否在潜在的美国和盟国联盟做出反应之前，取得成功。
 
-（想）给大家点机会进来
-(Quiero) darle a todos la oportunidad de entrar
+随着中共国和俄罗斯的战略合作，这是一个非常危险的局面。鉴于中共国日益强大的军事能力，西太平洋地区潜在敌人之间的武力差距远比东欧要小。俄罗斯不必在亚太部署主要的地面或海军部队，也不必与中共国的攻势同时进行。俄罗斯太平洋舰队有足够的潜艇来阻挡日本和美国的部队，（以保护日本本土岛屿）这将使中共国的任务更有可能成功。
 
-大家要知道
-Todos deben saber
+在两个半球大致上，同时进行的进攻行动会使美国和盟国的资源过度紧张；台湾必须变得有能力自卫。但更广泛地说，美国必须开始在全球范围内，而不是在区域范围内思考其战略挑战。这是一场欧亚大陆的竞争（敌我矛盾），因此也是世界的竞争。
 
-你知道（这是）什么概念 兄弟姐妹们
-Sabes qué concepto es (este) hermanos y hermanas
+克罗普西先生（Mr. Cropsey）是哈德逊研究所的高级研究员和哈德逊美国海权中心的主任；他曾担任过海军军官和海军副部长。
 
-这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
-Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
-
-而唯一的一个
-Y el único
-
-留下的机会和市场就是我们
-Que quedará de oportunidad y mercado seremos nosotros
-
-喜币一定（会）超过比特币
-El H-coin sobrepasará (de seguro) al Bitcoin
-
-一定会
-Seguro que sí
-
-比特币一定会消失
-El Bitcoin seguramente desaparecerá
-
-就是这个时代这个机会
-Y esta oportunidad de esta época
-
-不是我们想抓就抓得住的
-No es que lo agarramos porque queremos
-
-当然我们主动性要够
-Claro que debemos tener suficiente iniciativa
-
-时机 时机
-El tiempo y la oportunidad (Shí Jī)
-
-时间不是我们决定的
-(Shí ) El tiempo no lo decidimos nosotros
-
-是老天决定的
-Eso lo decide Dios
-
-机是我们自己抓到的
-(Jī)) Pero la oportunidad lo atrapamos nosotros
-
-兄弟姐妹们
-Hermanos y hermanas
-
-特别好是今天在这块儿你们这么多高人
-Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
-
-明年年底再想想是什么概念
-Piensen cómo será la idea el fin del año que viene
-
-你会想象不到这个人类（会有）多大变化
-No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
+新闻来源 : [wsj.com] [The Two-Headed Fight for Ukraine and Taiwan](https://dailyexpose.uk/2021/12/30/zinc-inhibits-influenza-virus-covid-and-helps-our-body-detox-from-graphene/) | 发布时间：2021年11月04日
 
 * * *
 
-日期：01/04/2022
-原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
-Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
-任务编号：KC395（3305）
-视频时间段：0:00-01:35
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

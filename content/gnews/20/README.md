@@ -2,43 +2,60 @@
 ---
 
 
-## 外媒：中共故意少报新冠病毒死亡人数
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826069/)
+## 2022/01/05 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826125/)
 
-作者：银河勇气星—骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+**主播**：舒平风｜**嘉宾**：防木
 
 
 
-1月2日据福布斯评论员文章，自新冠病毒大流行以来，其起伏和变异逐渐成为经济活动和金融市场反应的晴雨表，呈正相关。西方民主国家和中共国因体制的不同，对待各自的新冠疫情采取了不同的方式。尽管中共在疫情数字表现上似乎非常完美，但金融市场的表现却在下跌，让人不得不怀疑新冠病毒统计数字的准确性。
+**板块1–中共病毒**
 
-美国有超过82.5万人死于新冠病毒，中共国官方公布只有4636人。研究表明由于新冠病毒大流行期间公共卫生条件的制约，美国可能存在的新冠病毒死亡人数少报了大约30%。据郭先生直播，2021年11月8日前，中共死于新冠病毒人数为1370万人。
+1. 法国马赛附近发现新的变种病毒“IHU”，比Omicron更有传染性，对疫苗更高抗性。
 
-中共对经济数据的谎报向来臭名昭著。对新冠病毒大流行以来的各种不配合溯源调查，从未共享的真实病例数据，严重阻碍了对疾病的科学理解和应对措施的有效性。
+各大医疗公司和政府可能随着病毒不断变异，不断加强疫苗加强针推广。
 
-种种迹象显示中共已经深陷塔西陀陷阱。
+2. 英、法单日感染数创新记录。法国新增二十七万，英国新增二十二万。
 
-新闻来源：[https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/](https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/)
+新病毒传染性强，全球单日新增超千万。法国总统马克龙表示将进一步管控主要针对未接种疫苗人群并“甩锅”疫情责任给未接种人群，马克龙在法国支持率上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+疫苗刺突蛋白攻击人体免疫系统。
 
-编辑/校对/发稿：滚滚长江都是水
+**板块2–财经**
 
-**更多资讯，更多关注**
+1. 因冬奥会临近，中共国封锁宁波港。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发现几例新增感染，随即封锁，宁波港关闭将对全球物流运输有影响。中共国强硬的隔离政策凸显治理方式强硬且不讲人性。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+2. 国家队救市猛投六十六亿美元，华融股份复牌交易暴跌50%以上。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+华融前董事长赖小明去年被判处死刑，因受贿罪、重婚罪等，明显判决过重。毛泽东外孙女孔东梅与陈东升（泰康保险）。存在明显“重婚罪”痕迹，依然相安无事，中共治下只准州官放火不准百姓点灯。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+3. 前川普总统情报官员克里夫-西姆斯痛斥华尔街和大科技公司协助中共国崛起。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+西方华尔街和大科技公司普遍属于私人企业单纯注重利益，中共正好“投其所好”，双方“一拍即合”。导致现在西方媒体和舆论导向看中共“脸色”。
 
+**板块3–网络科技**
+
+1.乔·罗根宣布加入Gettr和马乔里·泰勒·格林事件，吸引大量新用户加入Gettr。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/fDknaApEPpFHN/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
