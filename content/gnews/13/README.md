@@ -2,69 +2,62 @@
 ---
 
 
-## 参议员卢比奥新闻办:中国共产党公司在美国监控行业中没有立足之地
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1823434/)
+## 【樱花深度报道】专家分析：中共将“三战”战略延伸至太空（二）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823532/)
 
-参议员卢比奥新闻办： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 公司在美国监控行业中没有立足之地，参议员卢比奥的现行法律《安全设备法》则清楚地表明了这一点。 国会不应理会 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传，并驳回海康威视对ipvideo（美监控设备公司）的可耻指控。 【转推：大意 中共国监控公司海康威视加大力度反击（美）监管】
+编译：东京樱花团/Hopkins
 
+【摘要】中共正在将其“三战”战略扩展到太空。这一广阔的新边疆将成为该政权媒体扩张运动的核心、心理战的主题，并且至关重要的是，随着中国寻求取代美国成为新的全球霸权地位，这将是重塑国际秩序的新法律斗争的核心。人们可以将太空的战略价值视为中共野心的重点。它是一个不断壮大的大国可能超越全球霸权主宰地球事务未来的门户。“谁控制了空间，谁就可以控制世界。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-222.png)（图片说明）长征五号乙火箭于 2020 年 5 月 5 日从中国海南岛的文昌发射场升空。长征火箭的另一种变体用于将中国的高超音速导弹于 7 月送入轨道 (STR/AFP via Getty Images)
+**正在篡夺优势**
 
+与中美竞争的任何其他方面相比，月球竞赛更有可能彻底改变国际关系。当谈到规定地球大气层之外的法律时，克雷斯波和利斯特纳相信谁先到达那里就是赢家。
 
-> Chinese Communist companies have no place in the U.S. surveillance industry, and Sen. Rubio’s Secure Equipment Act, which is current law, makes that crystal-clear.
->  
-> Congress should pay no heed to [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda and dismiss Hikvision's pathetic claims against [@ipvideo](https://twitter.com/ipvideo?ref_src=twsrc%5Etfw). [https://t.co/4jmMbclDjy](https://t.co/4jmMbclDjy)
-> — Senator Rubio Press (@SenRubioPress) [January 4, 2022](https://twitter.com/SenRubioPress/status/1478483710320197633?ref_src=twsrc%5Etfw)
+“这一切都与大国竞争有关，”利斯特纳说。
 
+“关于大国竞争的普遍共识是谁最终将在国际舞台上制定规则。换句话说，谁将对未来几十年的合法性和世界观的形成产生最大的影响。”
 
+利斯特纳将美国和中国之间在塑造世界及其规范方面的影响力之争描述为一种相互竞争的愿景，其中两种截然不同的理念和运作世界的方式正在相互对抗。
 
-国会-行政当局中国委员会： 在中共国寻求人权保护的妇女不断受到骚扰和拘留,包括那些寻求结束性侵犯和歧视的妇女。 奥林匹克团结和包容的精神因而在中共国受到玷污。[#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click) [#奥运囚犯](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E7%8A%AF?src=hashtag_click)
+他说，这场斗争正在太空中上演。
 
+“现在，有两种相互竞争的愿景，” 利斯特纳说。
 
+“一个是特朗普政府发起的阿尔忒弥斯协议。”
 
-> The [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) spirit of unity and inclusiveness is tarnished by the ongoing harassment and detention of women seeking to protect human rights in China, including those seeking an end to sexual assault and discrimination in China. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [January 4, 2022](https://twitter.com/CECCgov/status/1478456511647080456?ref_src=twsrc%5Etfw)
+“俄罗斯联邦和中华人民共和国以他们自己的竞争愿景进行反击，称为国际月球研究站。”
 
+利斯特纳说，阿尔忒弥斯协议是关于探索和使用月球、火星和其他天文物体的国际合作框架。这项工作主要基于 1967 年的联合国外层空间条约，旨在确认和平合作，促进互操作性，并以统一标准注册太空物体。
 
+《外层空间条约》目前有 111 个签署国，其中包括中国和俄罗斯。阿尔忒弥斯协议于 2020 年首次签署，有 14 个签署方；中国和俄罗斯没有签署，认为这是一项美国主导的商业协议。
 
-前副国务卿基思·卡拉奇： 我们有结束新疆种族灭绝的道义责任，企业们可以通过拒绝采购由强迫维吾尔劳工生产的商品来发挥作用。 中国就新疆产品向沃尔玛和山姆会员店发出警告 【附路透社新闻报道】
+另一方面，国际月球研究站是中共和俄罗斯试图从美国宇航局手中夺取国际太空领导权，并拥护新的欧亚秩序的努力。
 
+事实上，小小玉兔二号只是中国和俄罗斯计划的七个探索任务中的第一个，这将为基地的建设做准备。当太空主导地位的未来岌岌可危时，这很重要。
 
+利斯特纳说：“这是关于法治将是什么以及谁将在月球表面和开发太空中制定规则的竞争观点。”
 
-> We have a moral imperative to end the Xinjiang genocide, and corporations have a role to play by refusing to source goods produced by forced Uyghur labor. 
-> 
-> China warns Walmart and Sam's Club over Xinjiang products [https://t.co/1pJCU16N60](https://t.co/1pJCU16N60)
-> — Keith J. Krach (@KeithJKrach) [January 4, 2022](https://twitter.com/KeithJKrach/status/1478436086162542592?ref_src=twsrc%5Etfw)
+“谁先到达那里并开始建设，谁就会制定规则。”
 
+为此，克雷斯波警告说，中共正试图以自己的形象重塑太空，削弱美国不仅作为世界超级大国，而且可能作为一个维持世界文明次序的能力。
 
+“削弱我们的太空优势将严重阻碍我们赢得任何重大冲突的能力，甚至最终阻碍我们维持稳定、现代、正常运转的社会的能力，”他说。
 
-前美驻联合国大使尼基·海莉： 再过一个月，冬奥会将在北京开幕。与此同时，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 将在集中营关押一百万维吾尔人。 世界应该抵制种族灭绝，而不是给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 宣传胜利。
+“如果中国超越我们而且消除我们的主导地位，并自己获得明确的太空主导地位，这将几乎成为美国失去保持世界强国甚至独立主权国家能力的既成事实。”
 
+利斯特纳说，这是最好的灰色地带冲突，美国和中国正在以任何其他名义卷入战争。
 
+“从中国共产党的角度来看，我们正处于战争之中，”利斯特纳说。
 
-> In one month, the Winter Olympic Games will open in Beijing. At the same time, Communist China will be holding one million Uyghurs in concentration camps. 
-> 
-> The world should be boycotting genocide, not giving China a propaganda victory.
-> — Nikki Haley (@NikkiHaley) [January 4, 2022](https://twitter.com/NikkiHaley/status/1478445367918223360?ref_src=twsrc%5Etfw)
+（未完待续）
 
+作者： 安德鲁·索恩布鲁克 (Andrew Thornebrooke) /Zerohedge
 
+信息来源：[**CCP Extending “3 Warfares” Strategy Into Space: Expert**](https://www.zerohedge.com/geopolitical/ccp-extending-3-warfares-strategy-space-expert)
 
-众议员迈克·加西亚： 中国共产党不是美国的朋友。如果我们要保持与中国的竞争力，就必须把网络安全放在首位。 （转华盛顿邮报：文件显示，中国获取了大量西方有关目标的数据）
-
-
-
-> The Chinese Communist Party is not a friend of the United States. We must make cyber security a priority if we are going to remain competitive with China. [https://t.co/vqr20gs9gR](https://t.co/vqr20gs9gR)
-> — Rep. Mike Garcia (@RepMikeGarcia) [January 4, 2022](https://twitter.com/RepMikeGarcia/status/1478430204032864257?ref_src=twsrc%5Etfw)
-
-
-
-FBI： 第三名前葛兰素史克的科学家承认盗窃商业机密，让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的医药公司受益。[@FBIPhiladelphia](https://twitter.com/FBIPhiladelphia) 【附图为费城FBI说，当有人窃取和新药有价值的商业机密时，这样的威胁不只是对公司。因为创新推动了美国经济。FBI承诺通过法律保护国家的经济不受盗窃。不允许美国的研究发展被其他公司和国家收割】
-
-
-
-> Third Former GlaxoSmithKline Scientist Pleads Guilty to Stealing Trade Secrets to Benefit Chinese Pharmaceutical Company [@FBIPhiladelphia](https://twitter.com/FBIPhiladelphia?ref_src=twsrc%5Etfw) [https://t.co/FhgPq9mu9K](https://t.co/FhgPq9mu9K) [pic.twitter.com/XvsGs4gCH4](https://t.co/XvsGs4gCH4)
-> — FBI (@FBI) [January 4, 2022](https://twitter.com/FBI/status/1478380753247420417?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

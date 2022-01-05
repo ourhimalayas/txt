@@ -2,97 +2,197 @@
 ---
 
 
-## 灭网红、外教和内教是在为习统一天下做铺垫
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823274/)
+## 日本一定会成为第二大数字货币市场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823348/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-1.jpg)
-[https://gtv.org/video/id=61d44451dffab035958aa83c](https://gtv.org/video/id=61d44451dffab035958aa83c)
+[https://gtv.org/video/id=61d44db6dffab035958aab37](https://gtv.org/video/id=61d44db6dffab035958aab37)
 
-**郭文贵**
-**Miles Guo**
+**郭文贵
+Miles Guo**
 
-网红所有卖的东西有几件事中国人的文化的东西，都是西方的衣服
-How many things that the Internet opinion leaders sell are the Chinese cultural stuff, they are all western clothes
+我一再地说的
+He estado diciendo
 
-网红卖的钻石、戒指，你见有中国产的吗？是吧？
-have you seen any diamonds and rings produced in China that sold by the Internet opinion leaders, right?
+日本的H-pay市场
+El mercado de H-pay de Japón
 
-网红一年多少钱呢？几万亿人民币，网红又是一个直播
-How much money do the internet opinion leaders earn in a year? a few trillion yuan, and the Internet opinion leaders are also doing live broadcast
+还有日本的未来的数字货币
+Y en el futuro, las monedas digitales en Japón
 
-所以基于以上, 必须把网红造成的、不可控的政治的隐患拿掉，几万亿的人民币花下去
-so based on the above reasons, the uncontrollable political hid-den dangers caused by the Internet opinion leaders must be re-moved, and spent trillions of yuan on it
+整个的未来
+Todo el futuro
 
-中国有钱吗？中国没有钱了，你这几万亿，老百姓形成了消费
-Is China rich? China has no money anymore, for those trillions of yuans, Laobaixing have formed consumption
+还有在日本的
+También la popularidad
 
-老百姓在自己家里边儿欠一屁股债，消费完了全都不还
-Laobaixing in their own homes do not repay any debts after they have finished their spending
+整个的喜币和喜美元的流行
+De toda la moneda y el dólar de Himalaya en Japón
 
-谁买单，共产党买单，你就别花钱了，关键是网红，这种媒体平台
-Whoever pays? the Communist Party pays? don’t spend money, the key point is the Internet opinion leaders and this kind of media platform
+还有未来的整个的实施
+Y toda la implementación en el futuro
 
-如果有一天突然把爆料革命的今天大直播里边1/10播出去
-If one day suddenly they do live broadcast the 1/10 of today’s grand broadcast of the whistleblower movement
+可以说它是战略性的
+Se puede decir que es estratégica
 
-造成几千万人几百万人的影响，会对共产党是致命一击
-will affect tens of millions of people and also will be a fatal attack to the Communist Party
+应该说是排在第二位置
+Debería decirse que ocupa el segundo lugar
 
-绝对的网络和绝对的思想控制和资源控制
-absolute network and absolute thought control and resource con-trol
+除了美国之外, 它就是最重要的
+A parte de EE. UU, él es el más importante
 
-和让老百姓准备好当牛做马的、远离时尚和物质生活的时代
-and the era that prepares Laobaixing to be the slaves, away from fashion and material life
+而且日本这个国家
+Y este país, Japón
 
-和不可控的因素全部干掉
-and get rid of all the uncontrollable factors
+一定会在数字货币市场上
+En el mercado de monedas digitales
 
-为什么要关外教、内教呢？都能赚钱呢
-Why shut down the foreign and domestic teachers? they all can make money
+这次会抓住这个机会
+De seguro aprovechará esta oportunidad
+它不会再输掉了
+No lo dejará perder de nuevo
 
-外教教的什么? 教的英文
-What do the foreign teachers teach? they teach English
+过去的日本
+Japón en el pasado
 
-内教教的是什么？教的是所有的这些所谓的有钱、有身份人的孩子，花钱么，花钱
-What do the domestic teachers teach? they teach all the so-called rich and identifiable person’s children, do they spend money? they do
+二战之后
+Luego de la segunda guerra mundial
 
-钱哪来的，钱去哪儿了，最后习觉得这帮人绝对是我们的威胁
-Where did the money come from? Where did the money go? In the end, Xi felt that these people were definitely the threat to us
+在金融市场上
+En el mercado financiero
 
-这些钱都会流向海外的，绝对的控制财富，让中国人不要学英文
-The money will flow to overseas, need absolutely control the wealth, so that the Chinese people can not learn English
+简直这个
+La verdad este
 
-更不要传西教，更不要培养这种反抗的种子
-Don’t preach Western religion, don’t cultivate the seeds of re-sistance
+日本这个国家
+Este país, Japón
 
-更不允许这些人成为我党绝对思想统一的障碍，干掉
-absolutely not allowed people to become the obstacles to the ab-solute ideological unity, and get rid of them
+把所有的国家财富全输光了
+Ha perdido toda la riqueza del país
 
-财富统一、思想统一、技术统一
-unity of wealth, unity of thought, unity of technology
+日本的金融烂到什么程度
+Qué tan mal están las finanzas de Japón
 
-最后再习一神不能有习二神的情况下，像北朝鲜一样
-Finally, there is only one Xi God, can’t have the second Xi God, it’s like North Korea
+共产党的科技发明有多烂
+Qué tan malo son los inventos tecnológicos del Partido Comunista
 
-中国只有一个救星，没有第二个救星，就是一个太阳，就是习大神，习太阳
-There is only one savior in China, there is no second savior, it is just one sun, that is Xi God, Xi Sun
+日本的金融就有多烂
+Así de malo es la finanza de Japón
 
-**原视频链接** :[https://gettr.com/post/pklvom8f7f](https://gettr.com/post/pklvom8f7f)
+就这么简单
+Así de sencillo
 
-Date: 12/29/2021
-原视频标题: 灭网红、外教和内教是在为习统一天下做铺垫
-Eliminating the internet celebrities, foreign teachers and domestic teachers is paving the way for Xi to unify the world
-原视频日期：2021/12/24
-原视频链接 https://gettr.com/post/pklvom8f7f
-任务编号：KC383（3333）
-视频时间段 : 0:00-2:09
+所以说日本的整个的交易
+Por eso todas las transacciones de Japón
 
-中听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -文新
+一定会有
+Hay seguramente
+不管中间有多大的曲折
+No importa cuantas dificultades tiene en medio de esto
+
+日本最后一定会成为
+Al final, Japón de seguro se convertirá en
+
+喜币流行的重要市场
+El mercado importante de la popularidad de la moneda de Himalaya
+
+不管有多少挫折
+No importa cuantos obstáculos
+
+然后在日本
+Y en Japón
+
+这个喜支付是绝对的重要
+Este H-pay es de suma importancia
+
+千万不要错过这个时机
+No se puede perder esta oportunidad
+
+日本这几个农场
+Estas fincas en Japón
+
+因为今天没有说太(细)
+Porque hoy no se dijo con muchos (detalles)
+
+如果你们错过这个机会
+Si ustedes pierden esta oportunidad
+
+那草根小哥明年这个
+Entonces el año que viene, el hermano Caogen
+
+再大直播
+Si hará nuevamente la transmisión en vivo
+
+你绝对看不到草根小哥了
+No lo verás
+你不会再看到Cosmos
+No verás a Cosmos
+
+你不会再看到马拉多纳
+A Maradona
+
+你不会再看到勇气, 魔女
+A Yongqi, Monu
+
+不会看到的
+No los verás
+
+温暖姐姐, 你别在那块很自信
+Hermana Wennuan, no seas presumida en esa parte
+
+你别老是
+No seas siempre
+
+今天你和文嘉
+Hoy tu y Wenjia
+
+你俩一唱一和地
+Ustedes dos cantan juntos
+
+我们有蓄积着力量
+Nosotros estamos acumulando fuerzas
+
+明年如果在这个事上没搞明白
+Si el año que viene no se aclara este asunto
+
+明年你就成笑话了
+Entonces te convertirás en un chiste el año que viene
+
+你自己都不好意思看电视了
+Tu misma te avergonzarás de ver la televisión
+
+所以说抓住这机会
+Por lo tanto, aprovechen esta oportunidad
+一定会最重要的
+Seguramente es lo más importante
+
+对喜币发(展)的市场
+Para el desarrollo del mercado de moneda de Himalaya
+
+就是第二市场
+Es el segundo mercado
+
+日本
+Japón
+
+谢谢
+Gracias
+
+* * *
+
+日期：01/03/2022
+原视频标题：日本一定会成为第二大数字货币市场
+Japón definitivamente se convertirá en el segundo mercado más grande
+de monedas digitales
+原视频日期：01/02/2022
+原视频网址：[https://gettr.com/post/ple42ae1c8](https://gettr.com/post/ple42ae1c8)
+任务编号：KC391（3391）
+视频时间段：00:00-01:38
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – Jambo
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+发布 ：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
