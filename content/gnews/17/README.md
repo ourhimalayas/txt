@@ -2,26 +2,24 @@
 ---
 
 
-## 航空公司支付员工高薪维持假期运营
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825387/)
+## 印度推进15至18岁青少年的疫苗接种工作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825402/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部- Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
+当地时间1月3日，据有关媒体新闻显示，即日起，印度开始为本国15至18岁的青少年人群接种中共病毒疫苗。 为此，当局已下令将私立和公立学校作为学生的疫苗接种中心，并要求学校每天向地方政府汇报接种数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.36.png)
+据印度卫生部最新通报的数据显示，当地已有一千七百人感染了奥密克戎变种病毒。而值得注意的是，自去年六月份大规模接种中共病毒疫苗以来，印度的单日新增病例数就一直居高不下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpeg)
+有评论分析称，各国陆续有科学家反复呼吁，在中共病毒疫苗副作用明朗化之前，应暂停继续为青少年接种疫苗。而对于印度来说，其拥有2.53亿青少年，是全球青少年人口最多的国家。因此，该国强推青少年疫苗的措施无疑会为自身庞大的未成年群体带来难以预估的灾难。
 
-据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
+参考链接：[印度开始为15至18岁青少年接种冠病疫苗](https://www.zaobao.com.sg/realtime/world/story20220103-1229267)
 
-报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-参考链接：[Airlines Triple Pay For Pilots, Double For Flight Attendants Amid Widespread Cancellations](https://theparadise.ng/airlines-triple-pay-for-pilots-double-for-flight-attendants-amid-widespread-cancellations/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+总编：飞虹
+编辑：天滅中共
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

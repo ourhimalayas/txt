@@ -2,26 +2,26 @@
 ---
 
 
-## 芝加哥警察工会主席猛烈抨击中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825404/)
+## 冬奥会邻近 北京街头一片索然
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825419/)
 
-作者：纽约香草山 侠肝义胆
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.53.png)
-对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
+当地时间1月4日，据日本媒体报道，距离2月4日开幕的中共北京冬奥会仅剩一个月，但北京街头当下仍旧没有任何迎接冬奥会氛围。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-3.jpg)
+对此，日本媒体分析其原因有三：首先，所有冬奥会的相关人员只能停留在选手村，但不能进入北京市；其次，中共北京政府用巨大的幕墙将当地机场一份为二，仿若戒严；最后，由于习近平亲自部署、指挥此次冬奥会，这导致当地政府将重点放在了加强管理上。
 
-此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
+同时，日媒记者也在采访时表示，当地居民有些根本不知道冬奥会，而有些则认为，相较于冬奥会，同一时间的农历新年更为重要。
 
-据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
+分析人士则指出，中共北京冬奥会不仅遭到了由新中国联邦发起的国际抵制浪潮，墙内民众实则也对此一片索然，加之中共为了疫情清零所制造的高压氛围，这些都让其寄托于冬奥会带来的效果在开幕前就大打折扣了。
 
-参考链接：[Vaccinated Chicago Police Union Boss Says He Has COVID, Slams Vaccine](https://www.thedailybeast.com/john-catanzara-chicago-police-union-president-says-he-tested-positive-for-covid-19-slams-vaccine)
+参考链接：[北京冬奧會開幕前1個月，北京沒有歡迎冬奧的氣氛](https://www.gettr.com/post/plymro4b4e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 总编：文特
 编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

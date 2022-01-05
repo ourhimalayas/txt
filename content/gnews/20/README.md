@@ -2,28 +2,24 @@
 ---
 
 
-## 专家呼吁关注奥密克戎变种出现的独特症状
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825357/)
+## 墙内网络管控进一步收紧 微信再出审核新规
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825376/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
+当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7.jpg)
+据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-4.jpeg)
+有报道称，在过去两年中，为了隔绝墙内外的信息交流，同时维持对墙内民众的谎言，中共当局不断加强对科技企业的管控。其中，腾讯仅在2021年7月内就曾被中共政府罚款六次。
 
-此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
+参考链接：[微信六大严规 违者永久封号 学校开始排查](http://www.cbeiji.com/shownews.php?id=142257&amp;fid=2)
 
-不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-参考链接：
-1）[‘Very Strange’ Omicron Symptom: Night Sweats](https://www.newsmax.com/us/covid19-omicron-symptoms-night-sweats/2022/01/02/id/1050743/)
-2）[Watch for These Symptoms of the Omicron Variant](https://www.newsmax.com/health/health-news/covid-omicron-variant-symptoms/2021/12/23/id/1049793/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹 
-编辑：天滅中共
-校正/发稿：谐趣园
+总编：飞虹
+编辑：文特
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
