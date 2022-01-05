@@ -2,32 +2,34 @@
 ---
 
 
-## 澳洲维多利亚地区商业受到重创
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1825217/)
+## 盖特西班牙语注册量 2022 年初激增 571%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825306/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-8.jpg)
-图片来源：Pexels免费照片素材库；摄影：Felix Haumann
-随着 Omicron变种CCP病毒 席卷澳大利亚的维多利亚州，许多公司、企业以及商铺在假期旺季被迫关门或不得不减少营业时间。
+作者：纽约香草山商业部 – 往后余生 Jane
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月4日，盖特总裁杰森-米勒先生表示，鉴于越来越多的民众反对脸书、推特和谷歌等大科技公司滥用的审查制度，盖特的西班牙语注册量自2022年1月1日以来提升了571%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-51.jpg)
+数据显示，盖特于2日当天吸引了超过17万名新用户，其中还包括包括知名记者安迪-吴、政治评论员戴夫-鲁宾、喜剧演员拉里电缆人，以及著名的心理学家和作家乔丹-彼得森教授。
 
-在一年中本应该最为繁忙的时期，维多利亚州迅速增加的 CCP病毒病例数量你和密切接触者数量严重打击了当地的餐馆、酒吧、咖啡馆和服务机构。
+值得注意的是，在盖特的注册人数大幅增加之前，推特刚刚决定永久暂停共和党众议员泰勒-格林的个人账号，还声称该账号属于涉嫌违反推特中共病毒政策的账户。同时，YouTube也审查了播客超级明星乔-罗根的视频内容。 目前，泰勒已经入住盖特并迅速累积了超过59万的关注者。
 
-莫宁顿半岛的索伦托酒店“出于健康和安全原因”在新年前夜关闭了餐厅和酒吧，并宣布将在 1 月 7 日星期五之前重新开放。该酒店通常会举办大型新年前夜活动，据称，此次突然宣布关闭是由于 12 月 30 日星期四该酒店出现了CCP病毒的阳性病例。
+对此，米勒先生则表示，大型科技公司正在打压民众的言论自由，他们会审查任何不符合他们世界观的人。而盖特的注册用户数量难以置信的增长签好证明了人们正在意识到这个危险的现实，他们渴望有一个保护言论自由的社交媒体平台。
 
-附近的索伦托帆船俱乐部也受到了CCP病毒的严重打击，该俱乐部有9 名员工及其许多成员都感染了CCP病毒。
+参考链接：[“GETTR Spanish-Language Sign-Ups Explode 571% in 2022”](https://gettr.com/post/pm2wofaa20)
 
-在贝拉林半岛的菲利普港湾对面，受欢迎的巴旺海兹酒店也因 CCP病毒大流行而关闭，据悉关闭原因是由于该地区的 疫情导致员工大量短缺。酒店在脸书上分享道：“我们本地的小企业又要经历一段艰难的时期……与该地区所有其他的服务类企业一样，自 12 月 1 日以来，我们有许多员工的病毒检测出现阳性或成为家庭接触者。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-维多利亚首府墨尔本市区内的商业也受到了明显的打击。一家热门餐厅的管理层表示，在员工短缺的情况下他们别无选择，只能关闭餐厅。由于员工短缺，霍松区的Nevermind酒吧不得不在近日关闭，酒吧老板估计这期间的业务将损失将超过 20,000 澳币。
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：Fei797
 
-今日，澳大利亚维多利亚州报道了一共17,636名新增确诊病例，即便该地区的两剂疫苗接种率已经超过90%。在该州再次记录病例激增的情况下，维多利亚州的非紧急类手术将会被延后或取消，以帮助医院应对不断增加的 CCP病毒患者数量。
-
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/businesses-forced-to-close-in-peak-season-as-victorias-covid19-cases-soar/376ea4ff-766c-46ff-bd6b-040447ee8f96)
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

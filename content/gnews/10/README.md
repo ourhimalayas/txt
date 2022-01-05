@@ -2,26 +2,38 @@
 ---
 
 
-## 秘翻在线：中共国最新数据显示本科应届毕业生平均起薪5825元 但网友普遍不认同
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1825042/)
+## MV版Hcoin To the Moon上线第27天位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1825110/)
 
-**撰稿：Ping**
+1/5/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第27天位列美国iTunes热门MV榜榜首。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-221301.jpg)
-今天新浪新闻热点，“本科毕业月平均起薪5825元”冲上热搜！中共国又在描绘就业形式一片大好的情景，但是当你结合中共国现下的经济状况和就业状况分析，并看看网友们的评论，就知道这是共产党自娱自乐。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-222424.jpg)
-由58同城发布的《2021年高校毕业生就业报告》显示2021年毕业生就业率只有34%，也就是只有34%的人顺利找到了工作！而2021年国内应届毕业生人数达909万，那也就是说真正找到工作的人数在309万。而海归80万毕业生也在抢占国内毕业生的就业岗位。那么也就意味着，国内2021届毕业生真正就业的人数也就只有250万左右。
+* * *
 
-中共国各大高校的专业分门别类，但只有与数字化、研发创新相关的岗位不断涌现且招聘需求量较大，如大数据分析师、自动化控制工程师、工业机器人系统操作员、芯片工程师、反欺诈算法工程师、云计算工程师等等，“供不应求”趋势明显。那么，其他专业，例如文史等文科专业是不是一旦毕业就意味着失业呢？既然这样，高校为什么要设立这些专业，只是因为可以创收吗？
+[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-2021年中共国的就业情况，十分不乐观，灵活就业人数高达2亿。中共政府又推行延迟退休，这也是造成就业困难的一个因素。但影响就业的主要原因还是中共国经济低迷，就业岗位的大量减少。中共政府对私营经济的打压，使得沿海地区大多公司关门停产，更多的人失业。有工作经验的人都在失业，何况没有工作经验的应届毕业生呢！
+* * *
 
-本科毕业平均起薪每月5825元，这样的工资在一线城市是否能够很好的生活呢？如今物价不断攀升，人们生活压力越来越沉重。中共国的高房价，高税收，收入与支出根本不成正比。中共的税收可以说是世界上最高的国家之一。我们举一个年收入30万的中产收入者为例。他的个税约11.4万，住房公积金，医疗保险，失业保险和其他杂费月2万，最后纯收入约是17.6万。中共压榨奴隶的狠毒程度可见一斑！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
-中共欲称霸世界，一切以习近平的喜恶为准绳。近两年来中共经济在美国等西方国家的制裁中，愈显颓势。再加之党内政治斗争，开始拿企业家，娱乐圈，富豪开刀，以便搜刮钱财。同时随之衍生而出的副作用就是，企业倒闭，公司关门就业岗位大量减少，这样的现状，无论给出多少工资，也只是一个数字而已，能够真正就业的又有多少人呢？
 
-**[新闻来源](https://news.sina.cn/2022-01-05/detail-ikyamrmz3269397.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+[【PDF 下载】Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-5-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
