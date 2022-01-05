@@ -2,37 +2,20 @@
 ---
 
 
-## 持续封锁限制措施，让英国住院人数激增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1823588/)
+## 医护人员短缺，英国多家医院告急
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823615/)
 
-整理报道：**George Warshing
-**编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-43.jpg)图片来源：The Guardian
-当地时间1月3日，据《RT电视》报道，成千上万的英国人在封锁期间为了打发时间在寻求新的爱好，而医院住院记录显示，由此人们引发很多健康问题需要接受治疗。
+整理编辑：东京樱花团｜上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-226.png)[*图片来源*](https://static.dw.com/image/60309089_403.jpg)
+英国至少六家医院基金会宣布进入灾难状态，有些基金会拥有多家医院。英国国家医疗服务体系联盟(NHS Confederation)负责人马修·泰勒（Matthew Taylor）发文表示，英国医疗体系部分处于危机状态，一些医院已经请求员工放弃休息日，以维持医院运转。
 
-根据国民医疗服务体系数据中心（NHS Digital）提供的数据，由于中共病毒疫情导致各地封锁，人们被迫滞留在家中，为打发时间而从事个人爱好的活动，因此2020-21年间英格兰受伤住院人数激增。
+英国首相约翰逊承认，医疗体系面对的压力还将持续数周。目前，感染人数不断创下新高，英国政府拒绝引入更加严厉的防疫措施。本周五，英格兰和苏格兰的新增确诊人数达到近16万，疫情急速蔓延已冲击到很多领域。12月29日，英国每10万人7天的感染率为1526。英国学校方面估计，开学后将出现大规模教师无法上课的情况。英国铁路运行协会表示，铁路员工中目前有十分之一抱病在家。但由于节日因素，这一数字未能反映真实的感染人数。
 
-其中，与动手制作（DIY）、园艺和宠物相关的伤害，以及游乐场事故都导致了住院治疗需求的增加，上述活动的日益增加有时会遭遇不良后果。
+新闻来源：[**医护人员紧缺 英国多家医院告急**](https://www.dw.com/zh/%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98%E7%B4%A7%E7%BC%BA-%E8%8B%B1%E5%9B%BD%E5%A4%9A%E5%AE%B6%E5%8C%BB%E9%99%A2%E5%91%8A%E6%80%A5/a-60329808)
 
-年度数据还显示，有5,600多人在使用手持电动工具引发的事故后需要治疗；超过2,700人在使用锤子或锯子等其他工具发生事故后被收治入院；超过5,300人在游乐场发生的事故中受伤，962人从树上坠落受伤。
-
-再譬如，封锁措施引发了宠物热潮，自中共病毒大流行以来，英国有超过300万个家庭购买了宠物。然而，它们也成为让人们治疗的原因，在英格兰有7,386人被狗咬伤或攻击后被送往医院，60人因毒蜘蛛受伤而接受治疗，47人被老鼠咬伤。
-
-还有2,243人因烹饪时因热饮、食物、（高温）油导致受伤而需要就医。在第一次封锁期间，在阳光明媚的天气里晒日光浴也让153人因晒伤住院。
-
-以上收集的数据仅涵盖入院的患者，在急诊室和当地医生的手术中也治疗了更多伤害。虽然封锁措施使英格兰有数千人受伤，但由于人们呆在家里，事故和受伤的数量比往年有所减少。
-
-新闻链接：[Lockdown activities led to spike in hospitalizations — RT World News](https://www.rt.com/news/545058-uk-lockdown-hobbies-hospital-admissions/)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

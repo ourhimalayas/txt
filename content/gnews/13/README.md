@@ -2,23 +2,27 @@
 ---
 
 
-## 多数加拿大人反对疫苗强制接种规定
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823694/)
+## 网络运营商对自媒体用户进行独裁管控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823749/)
 
-采编/编译撰稿：苦尽甜来 (文来）        校对编辑，发稿：硫酸羟氯喹64
+采编： UCool 优酷            编译撰稿：自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-3-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/tgp-link-tmobile-deleted-e1641139132794.jpg)图片来源：thegatewaypundit
 
 
-据加拿大自媒体【真北方】1月3日报道，近期的政府研究报告表明，大多数加拿大人都不赞同对拒绝接种疫苗的个人采取污名化和惩罚的措施。同时，任何疫苗护照系统都不受加拿大人的欢迎。
+据美国[网关专家]1月3日报道，继支付宝此前无故关闭了该自媒体及其创始人的账户后，网络运营商[T-Mobile]也开始在该网站的链接转发过程中作梗。
 
-报告显示，大多数加拿大人认为”禁止未接种疫苗人群获得公共服务“的方针是错误的，而且强制接种疫苗侵犯了公民的自由权利。虽然包括总理特鲁多和安大略省长福特在内的政界人士，最初都反对强制接种和疫苗护照，但最终这两项政策都已在加拿大全面实施，并因此导致未接种疫苗的加拿大人无法进入大部分公共服务场所，包括餐厅、体育场馆和健身房等。此外，拒绝接种者已被该国的政客和主流媒体污名化。
+报道称，如果用户使用T-Mobile的网络服务器转发[网关专家]的文章，那么相关链接就会在传输过程中莫名消失而无法接收。据悉，该自媒体是2021年美国排名前300的网站之一。但在2017年川普总统竞选过程中发挥了巨大影响力后，Facebook就开始人为减少该媒体的关注量。
 
-报道最后指出，最新疫情数据证明，“新冠病毒”疫苗完全无法有效保护加拿大人免受“奥密克戎”变种病毒的侵害。例如在安大略省，几乎所有新增病毒感染病例都主要发生在完全接种疫苗的人群中。
+由于一直坚持真相报道，[网关专家]的用户不断增长，并在去年发布了美国大选期间，底特律民主党计票中心非法偷运选票的视频后，[推特]随即冻结了该媒体的账户。
+
+报道因此指出，网络运营巨头们利用高科技来人为管控其用户的在线观看量以及阅读和讨论内容等，与前苏联独裁者斯大林的暴政无任何本质区别。
 
 * * *
 
-原文链接： https://tnc.news/2022/01/03/majority-of-canadians-including-the-vaccinated-oppose-vaccine-mandates/
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接： [https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/](https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/)
 
  
 

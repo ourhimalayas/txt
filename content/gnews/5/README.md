@@ -2,25 +2,38 @@
 ---
 
 
-## 美国博客超级明星罗根慕名加入盖特
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823768/)
+## 纽约每天的COVID阳性率飙升至近20%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823864/)
 
-采编：文莱     编译撰稿：文明(添草灭共)
+评论：《共产党宣言》的书中首句就是“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” ，现在这个幽灵已经冲出欧洲，在全球徘徊了。病毒已经把全世界祸害得没有一块净土，但其溯源竟然还没有得出官方定论，如此说来人类首先不应抗疫，而是应先除魔，因为魔不除，祸不止！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-5-edited.jpg)图片来源：thepostmillennial
+据《New York Daily News》 作者：Tim Balk，2021年12月28日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-230.png)图片来源：New York Daily News
+12月28日星期二，纽约曼哈顿，游客挤满了时代广场，人们在接受Covid-19检测。（Barry Williams/for New York Daily News）
 
+在最新一批全州每日数据中，几乎每五个接受COVID测试的纽约人中就有一个得到阳性结果，这惊人地反映了Omicron毒株的高传播率。
 
-据加拿大自媒体【后千禧年】1月2日报道，美国著名喜剧演员、播客主持人及综合格斗解说员乔-罗根当日宣布，已加入新崛起的社交媒体平台[盖特]。
+根据Hochul州长办公室的数据，该州周二记录了40,780个新的COVID病例，其中27,774个出现在纽约市。
 
-报道称，社交媒体巨头[推特公司]近期对言论自由的打压已日渐疯狂。日前，该公司以违反其“疫情立场”为由封锁了反对现行疫苗政策的格林议员和马龙医生的账号。罗根对此愤然表示：这是无良科技巨头为实现其对病毒治疗和疫苗销售的垄断，而对任何反对它们的人所采取的打击报复。
+最新的病例数标志着从最近的高峰期有所下降 —— 自进入圣诞节后，全州每天的病例数几乎达到了50,000个 —— 但整体测试在假期前激增，使数字出现偏差。
 
-作为[推特]的直接竞争杀手，[盖特]于去年7月份正式启动运营。其首席执行官杰森-米勒当时自豪宣称：[盖特]是自由思想和开放言论的平台，绝不会因为人们的政治观点不同而对其实施封禁。而且[盖特]先进的后台技术和因此提供的全新功能将远超目前任何陈腐的社交媒体。
+根据州长办公室的数据，周二的阳性率为19.3%，七天的平均值攀升至13.4%。
+
+虽然严重变异的Omicron菌株可能导致较不严重的疾病，但其闪电般的传播速度已造成医院和运输系统等基本服务的人员短缺。
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+文章来源: [https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html](https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html)
 
-原文链接： https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

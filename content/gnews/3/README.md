@@ -2,26 +2,32 @@
 ---
 
 
-## 秘翻在线：是供应链关闭的声音吗？——中共封闭世界最大的港口城市
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823809/)
+## 使用消毒鼻腔喷雾剂和漱口液来预防中共病毒感染
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1823868/)
 
-**翻译：意翎**
+翻译：nstar
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-6.28.12-PM.jpeg)Image: 24hamburg.de
+就像静脉注射和羟氯喹（HCQ）一样，碘被大制药公司贴上了 “危险 “的标签，因为它可以保护/治疗，不需要消毒剂、口罩、”疫苗 “和封锁, 而且价格便宜。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-132011.jpg)**宁波空无一人的街道**
-《零对冲》资深记者泰勒·歌顿（Tyler Burden）报道，中共国正在应对三起严重的疫情，包括东部港口城市宁波，拥有130万居民的小城市禹州以及1300万人口的大城市西安，都无一例外均被封锁，公共交通、出租车禁止运行和学校停课。
+前线 COVID-19重症监护联盟 (FLCCCA)建议:
 
-世界最大的港口城巿宁波上周末报告了16例病例，在过去的6个月里，这座港口城市已经经历了3次封城。与此同时，在两名飞行员的病毒检测呈阳性后，过去一周已有大约200名飞行员被隔离。
+抗病毒漱口水, 每天漱口3次（不要吞咽；必须含有洗必泰、聚维酮碘或氯化乙酰吡啶）。
 
-对中共国经济来说，幸运的是宁波的新增病例数量远低于西安的新增病例数量。西安目前处于大规模的封锁中，这座大城市的人们正在为购买食物而苦苦挣扎，这种情况连中共国的官媒都承认，但目前尚不清楚这种情况是否有所缓解。世界对西安的情况感到好奇，因为批评中共的人士在推特上指出，西安没有出现像武汉当时报道封城消息的“公民记者”，那些人大多数都失踪了，或者被中共当局以其他方式处罚了，中共以杀鸡儆猴的方式恫吓吹哨人。
+碘酒喷鼻剂/滴鼻剂, 使用1%聚维酮碘，每天2-3次。(怀孕期间不超过5天）。
 
-中共目前必须控制住宁波的局势，因为冻结港口将对整个中共国经济乃至更广泛的全球经济产生巨大影响。正如我们前几天所注意到，特拉维夫的以色列事务所的交易员们已经开始对中共国的供应链关闭前景感到恐慌，尽管西安的大型国有企业坚称封锁并未对生产造成重大影响。但值得提醒的是，上一次中共国的大型港口深圳盐田港或宁波港被关闭时，供应链几乎崩溃，海运费变成了天文数字。
+来自孟加拉国的随机控制试验发现，鼻/口碘喷雾剂可使白血病的住院率降低84%，死亡率降低88%。
 
-中共国于上周结束了2021年的封锁，报告了自武汉封城以来最多的新增病例，从总体上看，新年以来每天新增病例接近200例。对此，有网友怀疑中共有相当多的借口将他们负债累累的经济崩溃归咎于新冠病毒，他们封锁城市是为了遏制潜在的叛乱爆发，而不是关心人民的福利。
+聚维酮碘鼻腔喷雾剂杀死病毒并防止未来感染，便宜、简单、有效!
 
-**原文链接：**
+参考链接:
 
-[https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port](https://www.zerohedge.com/covid-19/chinas-latest-covid-outbreak-spreads-ningbo-home-worlds-biggest-port)
+[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/)
+
+[https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections](https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections)
+
+[https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x](https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x)
+
+校对发布：Shifter
 
  
 

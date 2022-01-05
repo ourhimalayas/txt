@@ -2,225 +2,36 @@
 ---
 
 
-## 郭文贵先生接受 HBO Vice 采访的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823724/)
+## 2022疫苗灾难年？新西兰溺水事故频发
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1823794/)
 
-[https://gtv.org/video/id=61d458f2dffab035958aaf19](https://gtv.org/video/id=61d458f2dffab035958aaf19)
+作者：sherryok(水云间）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-3.png)
+综合新西兰媒体报道，2022年1月4日成了新西兰恐怖溺水日，3人溺水身亡，夏季刚刚开始1个月，新西兰溺水死亡人数已达 26 人，刚刚过去的2021 年 12 月已有 20 人溺水身亡，是2020年 12 月溺水人数的两倍多。水上安全部门称2021年夏天是自 2015 年以来最糟糕的夏天。
 
-**郭文贵
-Miles Guo**
+1月4日下午 1 点 30 分左右，有人向紧急服务部门报告说，在奥克兰地区的温德霍尔姆地区公园，一名潜水者在水中遇到困难后没有反应。救援组织发言人说：“救援人员在现场对溺水者进行了心肺复苏术，但不幸的是该人已经死亡。”报道没有提供有关此人的年龄或性别的详细信息，死者将被提交给验尸官。
 
-你现在有多穷？
-¿Qué tan pobre estás ahora?
+网上资料显示，潜水项目在奥克兰属于必须提供疫苗证书的服务项目，所以这位水中失去意识的潜水者是接种过疫苗的。
 
-我不知道从哪里开始
-No sé desde dónde empezar
+潜水是一项对心肺功能要求非常高的运动，相信选择潜水的人对自己的健康非常有信心。而且死者没有教练陪伴自行潜水，说明这位潜水者也不是首次潜水。但是疫苗改变了一切，潜水者不知道，打了疫苗后，人体随时会发生的心梗，心衰，心率不齐，心绞痛甚至脑梗， 就像在身体埋入一枚定时炸弹，随时都会爆炸，断送性命。
 
-我不能给你答案
-No te puedo dar respuestas
+1月4日当天，另一名28岁男子在纳鲁瓦希亚（Ngāruawāhia）的温加罗（Waingaro）河游泳时失踪，该男子被找到后证实死亡。就在前一天，1月3日，警方证实，在阿瓦普尼（Awapuni）附近的河里失踪的两名男子的尸体已被找到，年龄分别为 30 多及 40 多岁。
 
-因为我现在有很多诉讼
-Porque ahorita tengo muchos litigios
+据报道，溺水而亡者多数是男性。（而新冠疫苗导致的心肌炎和心包炎恰恰多数发生在年轻男性身上）。
 
-我不能在这里谈论我个人财务
-No puedo hablar de mis finanzas personales aquí
+溺水地点阿瓦普尼（Ahimate Reserve） 是一个占地 22 公顷的河畔公园，这里本是一个受欢迎的海滩、一个遛狗公园和围栏围栏、山地自行车道和一个天然游乐场。它之前在议会小册子中被描述为“帕尔米最好的游泳点之一”。
 
-好的
-Está bien
+然而，现在市议会网站现在将其列为“危险的游泳地点”，并表示从 2022 年 1 月起不再建议在那里游泳。
 
-你在卖这套公寓、你在卖你的游艇吗？
-¿Estás vendiendo tu yate y este apartamento?
+新西兰水安全局首席执行官丹尼尔杰拉德表示，死亡人数的上升是“前所未有的”。他提到去年的封锁限制，可能进一步加剧了这种情况。奥克兰、北地和怀卡托长达一个月的封锁，导致人们主动尝试以前从未做过的事情，高估自己的健康状况。
 
-那是…
-Eso es…
+他说： “我确实认为我们中的大部分人都被封锁了这么长时间，也许我们的健康状况不如以前了”。“它也可能是潜水设备，或者你船上的马达……而你在外面的某个地方，你的设备可能会出现故障。”
 
-不卖我的游艇也不卖我的公寓
-No vendo mi yate ni mi apartamento
+这位安全部门的官员考虑到了封城对人健康的影响，考虑到了设备缺乏维护，但是他打破脑袋，也不会想到疫苗可能是所有这些溺水事故的主因。山川，河流，公园仍然还是老样子，变化的是人的健康状况，许多“苗族”对疫苗引发的血管和心脏损伤一无所知。最新一项研究表明，50%的心肌炎患者是没有症状的，必须通过心脏磁共振才能发现，因此身患心脏疾病不自知者大有人在，猝死随着疫苗的推广成上升趋势。以往在激流中游泳，在深水里潜泳能承受的生理压力，现在都成了死亡压力。
 
-四年前我告诉过你
-Hace 4 años te lo había dicho
+新西兰的疫苗推广仍在继续，疫苗的杀人目的仍未被全面揭露，不少人争打加强针，渴望第四，第五针，以为这样就能在中共病毒大流行中生存下来。殊不知黑暗势力操控的人口灭绝计划已经成功实施，疫苗的灾难才刚刚开始，2022年初看到的众多溺水事故仅仅是个开端，预示着2022年疫苗灾难的大爆发。
 
-好的
-Está bien
-
-重要的是, 在对你的业务部门进行联邦调查时
-Lo importante es al realizar una investigación federal de su departamento de negocios
-
-有几个人声称
-Varias personas dicen que
-你已经骗取了他们投资于你各个业务部门的资金
-Los ha defraudado de los fondos invertidos en sus diversos departamentos de negocio
-
-你能对此发表评论吗？
-¿Puedes comentar sobre esto?
-
-你有证据吗？
-¿Tienes pruebas?
-
-给我看看！
-¡Déjame ver!
-
-你又造谣了
-Vuelves a difundir rumores otra vez
-
-不 我只是问…
-No, sólo pregunto…
-
-你又造谣了
-Otra vez estás creando rumores
-
-你问我（这些问题）是因为
-Tú me (haces estas) preguntas es porque
-
-你想把这些放在 HBO VICE 镜头前
-Quieres colocar esto delante de la cámara de HBO VICE
-
-就像你上次采访我一样
-Como la vez anterior que me entrevistaste
-
-哦 文贵 看看价值8200万的房子
-Wow, miren la casa de Miles valorada en 82 millones
-
-在你节目的最后一分钟你损害了我的声誉
-En el último minuto de tu programa dañaste mi reputación
-
-那是你的老伎俩
-Ese es tu viejo truco
-因为你可以让更多人观看你的节目并诋毁郭文贵
-Porque puedes dejar que más personas vean tu programa y difame a Guo Wengui
-
-那就是你想要的
-Eso es lo que tu quieres
-
-你有证据他们起诉我吗？
-¿Tienes evidencias para acusarme?
-
-这个怎么样？我都不知道
-¿Qué tal esto? Yo no lo sé
-
-可以展示给我吗？
-¿Puedes mostrármelo?
-
-很多投资者…
-Muchos inversionistas…
-
-很多… 你完全在撒谎
-Muchos… Estás totalmente mintiendo
-
-百分之百的谎言
-100% una mentira
-
-你完全是在撒谎
-Estás totalmente mintiendo
-
-你百分之百在撒谎
-Al 100%
-
-伊莎贝拉, 你在撒谎
-Isobel, estás mintiendo
-
-我保证我承担全部责任…
-Prometo asumir toda la responsabilidad…
-
-高回报
-Alto rendimiento
-你有证据吗？
-¿Tienes evidencias?
-
-如何？什么是“很多”？
-¿Cómo?, ¿qué es “mucho”?
-
-是多少？多数…
-¿Es cuánto?, ¿qué tanto?
-
-多少人告我？你能出示证据吗？
-¿Cuántas personas me ha demandado?, ¿puedes mostrar las pruebas?
-
-请回答问题
-Por favor responda las preguntas
-
-回答问题？不！
-¿Responder las preguntas? ¡No!
-
-你撒谎
-Tu mientes
-
-你尚未误导投资找者…
-Aún no has engañado a los inversores…
-
-你撒谎！
-¡Tu mientes!
-
-我再说一遍 我负全部责任
-Lo digo otra vez y asumo todas las responsabilidades
-
-你能在镜头前（前面）负责吗？
-¿Tú puedes hacer responsable (frente) delante de la cámara?
-
-你是听了这些垃圾、谣言、八卦…
-Tu escuchaste rumores, chismes, basuras…
-
-你也可以说说第二种想法
-Tu también puedes decir una segunda idea
-我在问…
-Yo estoy preguntando…
-
-这不是真的
-Esto no es verdad
-
-你撒谎 我告诉过你
-Usted está mintiendo, ya te lo había dicho
-
-你撒谎
-Estás mintiendo
-
-那么就投资者在不同业务领域给你的所有资金而言…
-Entonces, en términos de todos los fondos que le brindan los inversores en diferentes áreas de negocio…
-
-零 你撒谎！
-Cero, ¡estás mintiendo!
-
-没有人投资 我没有公司
-Nadie invierte, yo no tengo empresa
-
-他们是否在投资我
-Otra vez mientes completamente
-
-你又完全撒谎了
-Si es que ellos invierten en mí o no
-
-（律师）我想你不能谈论任何关于这事
-(Abogado) pienso que no puedes hablar de nada sobre esto
-
-是的
-Si
-
-你不能谈论任何关于任何投资…
-No puedes hablar nada referente a cualquiera inversión
-
-好的
-Está bien
-
-* * *
-
-日期：01/03/2022
-原视频标题：郭文贵先生接受 HBO Vice 采访的真相
-La verdad sobre la entrevista del Sr. Guo Wengui con HBO Vice
-VICE采访原片 (1:30:23-1:33:02)
-原视频日期：12/23/2021
-原视频网址：[https://gettr.com/streaming/pkexq84603](https://gettr.com/streaming/pkexq84603)
-任务编号：KC392（3353）
-视频时间段：1:30:23-1:33:02
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：https://www.msn.com/en-nz/news/national/person-drowns-at-wenderholm-regional-park/ar-AASoTYv?li=AAFtepJ
 
  
 

@@ -2,40 +2,40 @@
 ---
 
 
-## 德约科维奇获疫苗豁免参加澳网触怒澳洲人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1823848/)
+## 【中日财经爆】腾讯出售东南亚网络巨头SEA股份套现30亿美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823902/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-48.jpg)图片来源：Fox Sports
-整理报道：小鱼儿
-编辑：李易通
+整理编辑：东京樱花团｜peterwong
+![](https://lh5.googleusercontent.com/wK11C8FCUXt5QXAJ6skWQIxDwuxJhFQgsMaBtdxX9MkW6IHRQfkqBi7e4LrHYYLmIbGCltpg2MvETckm8Cv0fcDAhFEdzt3CoCmrhqnHtZdTJxX82eA5hYGhQwi35UG7vbgEsSCV)[*图片来源*](https://pic1.zhimg.com/80/v2-c431e75f90af0fa745c25fdd1cf4a6f4_1440w.jpg)
+腾讯控股有限公司周三（1月5日）出售了价值30.1亿美元的新加坡游戏和电子商务公司冬海集团的股份。SEA（冬海集团）主要业务有，游戏Garena、电商Shopee（虾皮）、数字金融SeaMoney。
 
-据澳大利亚广播新闻1月5日报道，网球明星诺瓦克·德约科维奇透露，他获得了参加澳大利亚网球公开赛的旅行豁免权，随后澳大利亚人做出了愤怒和困惑的反应。
+根据一份销售文件，腾讯在一次大宗交易中以每股208美元的价格出售了1,450万股冬海股票。腾讯周二表示，腾讯于冬海集团所持有的投票权预计将减少至10%以下。
 
-德约科维奇一直拒绝透露他的疫苗接种情况，因此看起来不太可能被允许参加比赛。然而，这位塞尔维亚明星周二在Instagram上透露，他已经获得了医疗豁免。
+**SEA（冬海集团）核心业务：游戏**
 
-澳大利亚网球公开赛和维多利亚州政府在周二晚上确认了这项豁免，并表示已经进行了审查，确认德约科维奇有 “真正的医疗状况，符合豁免的标准”。
+SEA（冬海集团）由天津人李小东于09年创立,总部位于新加坡。由于其业务由游戏起家，加之腾讯又是其大股东,因此也被人称为“东南亚小腾讯”。但从营收结构上来看，说它是腾讯+阿里的结合体似乎更为贴切。财报数据显示，当前Sea主要有三块业务：游戏的Garena、电商的Shopee（虾皮）以及数字金融的SeaMoney。
 
-这一决定在社交媒体上引起了澳大利亚人的愤怒。
+当下，游戏业务仍是Sea最核心的业务。财报数据显示，Garena的业务营收占比超过10亿美元。即便与国内游戏巨头比起来，Garena也已经不逊色多少。网易今年Q2的游戏收入是145.2亿元，而Garena的预售收入也已经达到12亿美元，几乎是2/3个网易的体量。
 
-“诺瓦克·德约科维奇是有史以来最伟大的网球运动员之一。忘掉拉沃、阿加西、费德勒、桑普拉斯、纳达尔、麦肯罗、康纳斯和博格吧，诺瓦克已经赢得了20个大满贯和87个冠军，并在我们不知道他有一个衰弱的健康问题情况下赢得了10亿澳币。”伟大的澳式足球员凯文·巴特利写道：“我们被当做了傻瓜。”
+**综合业务**
 
-网球记者罗滕伯格对德约科维奇豁免的合法性提出质疑，“澳大利亚当局列出了‘急性重大疾病’，一个排名第一的健康的运动员能有什么‘急性重大疾病’？”
+除了游戏平台Garena，Sea还有电商的Shopee（虾皮）以及数字金融的SeaMoney等业务，甚至还有外卖业务和短视频业务，只不过相对前者，后者的业务更多处于试水阶段。其中，电商业务无疑是Sea的重点发力方向。在东南亚，电商市场仍然处于蓝海市场。数据显示，东南亚有超4亿人在使用互联网，占据全球互联网总人数10%，且这个数字还在快速增长；二是东南亚的电商渗透率仍然较低，但人均收入消费增速却在高速增长，提供广阔市场空间。
 
-澳大利亚新星亚历克斯·德米纳尔在职业网球锦标赛后的新闻发布会上做出了简短的回应：“这非常有趣，这就是我要说的。”
+在Sea进军电商之前，阿里投资的Lazada是绝对的霸主。但在2015年Shopee成立后，情况发生了变化。尽管起步晚，但得益于本地化运营的优势，Shopee最终得以反超Lazada。比如，Lazada只有一个统一的网址，Shopee则在每个市场都发布了独立的App，且每一款都有特定的功能。再比如，在注重性价比的马来西亚，就不间断地推送各种“秒杀”商品；在注重明星代言的泰国，就频繁邀请网红宣传带货；在印尼，则推出专门的伊斯兰产品和服务
 
-维多利亚州著名的急诊科医生斯蒂芬·帕尼斯说，这项豁免向试图阻止新冠病毒传播的人们发出了一个令人震惊的信息。“我不关心他是多么优秀的网球运动员。如果他拒绝接种疫苗，他就不应该被允许进入。”帕尼斯写道。
+据Frost&Sullivan统计，2019年Shopee在泛东南亚电商市场GMV与订单量排名第一，成为东南亚最大的电商平台。截至Q2，Shopee的GMV达到150亿美元，其相当于1/5个拼多多的GMV；增速方面，Shopee的GMV同比增长87.5%。
 
-原文链接：[Novak Djokovic’s exemption to play the Australian Open sparks fury and confusion](https://www.abc.net.au/news/2022-01-05/novak-djokovic-reaction-after-tennis-exemption/100738672?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web)
+电商业务的崛起，也为其金融业务带来了更多可能。在电商业务的场景优势下，Sea的数金业务增速也非常快。数据显示，在2015年Q1，SeaMoney平台的总交易金额（GTV）仅为2880万美元，到2018年Q2时，平台的总交易金额已经达到24.64亿美元，是2015年Q1的85倍之多，增长十分迅速。
 
-发布：去中心化Math
+消息来源：
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**腾讯出售新加坡冬海集团股份套现30.1亿美元**](https://cn.reuters.com/article/tencent-sg-sea-stocks-0105-idCNKBS2JF031?il=0)
 
+[**2年10倍，Sea何以成为亚洲第三？**](https://m.jiemian.com/article/6717346.html)
+
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
