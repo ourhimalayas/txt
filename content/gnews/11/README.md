@@ -2,49 +2,24 @@
 ---
 
 
-## 推特禁马龙博士、格林议员后乔·罗根率先转向盖特
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824756/)
+## 习近平1号军令要求军队在党代会前加强训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824777/)
 
-编译：Jenny Ball
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-248.png)[图片来源](https://news.yahoo.co.jp/articles/eb61f4000142e9b1fe7e80065e09f31682f98736)
+1月5日时事通信社北京消息：中国共产党（CPC）的官方报纸《人民日报》报道说，习近平（中央军委主席）为军队签署了今年的第一份命令，命令军队加强训练，以励成为“一支能打胜仗的精英部队”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-16.jpg)图片来源：迈克尔·施瓦茨/WireImage摄
+这份军令状的签字仪式在4日举行，同时呼吁为秋季的党代会努力完成任务。
 
-罗根的举动是在 Twitter因 COVID-19“错误信息”禁止众议员玛乔丽·泰勒·格林（Marjorie Taylor Greene）和罗伯特·马龙（Robert Malone）博士之后做出的。
+看来，秋季的党代会没那么容易，需要军队严加防范。习近平对此心知肚明!
 
-播客巨头乔·罗根周日开设了一个Gettr 账户，并鼓励他的 780 万推特粉丝加入他的Gettr社交媒体应用程序。
+另外，日本媒体为这篇报道配的图片很有意思，其中两名离习近平非常近，却完全站在习近平的对立面。
 
-罗根在 Gettr 上写道：“以防万一推特上的屁事变得更加愚蠢，我现在在Gettr这里开了个帐号。” “爽！”
+信息来源：[習氏、党大会へ訓練強化指示　軍に新年1号命令　中国（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eb61f4000142e9b1fe7e80065e09f31682f98736)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-11.png)图片来自原文
-
-罗根转向 Gettr 的同一天，Twitter 永久禁止了共和党众议员 玛乔丽·泰勒·格林的个人帐户，**因为她传播了社交媒体公司认为的**** COVID-19****“错误信息”**。
-
-众议员格林在她位于美国华盛顿朗沃斯之家（Longworth House）办公楼的办公室向记者表示，她的推文违反了社交媒体关于 COVID-19 的错误信息政策，因此被 Twitter 暂时停号（路透社/伊丽莎白·弗兰茨 / 路透社）
-
-上周，今天前，罗伯特·马龙博士出现在罗根的播客上，讨论政府对 COVID-19 大流行和疫苗的反应，推特也禁止了他的账号。mRNA疫苗技术的开发者马龙博士也开设了Gettr账户。
-
-（点评：mRNA疫苗技术的开发者马龙博士，被Twitter审查员判定为发布了mRNA疫苗的“错误信息”！多么讽刺！）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-1.png)图片来自原文
-
-Gettr于 7 月 4 日由前川普顾问杰森·米勒(Jason Miller)推出，当时他在接受福克斯新闻采访时告诉福克斯新闻，他希望社交媒体应用程序“独立于社交媒体垄断，**独立于取消文化；拥抱言论自由。**”
-
-“这真是太棒了，”米勒在接受福克斯商业台采访时表示，该应用程序在第一天的下载量就超过了 100 万。“**这是有史以来最快用户达到**** 100 ****万的社交媒体平台**——我们在发布后仅三天，就做到了。”
-
-“这个平台正在增长，当你看到其他一些不同的平台时，你真的很兴奋，看看它们达到 100 万用户需要多长时间，”米勒说，并指出 Facebook 在第一年才达到了 100 万用户的目标，Twitter 在推出近 24 个月后才达到 100 万用户。
-
-**而我们仅花了三天时间，”米勒说。“我认为，这表明一个不审查政治信仰的平台，合乎大众的胃口**。”
-
-**参考资料：**[foxbusiness][Joe Rogan leads move to GETTR after Twitter bans Dr. Robert Malone, Rep. Marjorie Taylor Greene](https://www.foxbusiness.com/politics/joe-rogan-gettr-twitter-bans-dr-robert-malone-rep-marjorie-taylor-greene)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

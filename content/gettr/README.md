@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 12:48 PM (UTC)`
+
+1月5号：尊敬的战友们好！一会儿．8:30大直播中见！
+![img](https://media.gettr.com/group32/getter/2022/01/05/12/89ae8ef9-e931-48ef-bc9c-b8e47b92343d/439fa23904b39666878134f0f9b25381.jpg)
+
+---
+
 `@miles 1/5/2022 1:43 AM (UTC)`
 
 1月4号： 【川普总统呼吁大家停止使用“退它”和“非死不可”称其为国家耻辱，应该被禁止在美国做生意，知名媒体人Dinesh DSouza发贴表示它和它一伙的长期将无法生存。👏👏👏👏👏让我们送它们一程✊✊<br/>恭祝它俩发展无望👹破产有期】
@@ -150,13 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 `@miles 1/3/2022 3:54 PM (UTC)`
 
 1月3号，Hcoin To the Moon MV上线第25天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1818473/<br/><br/>Jan 3rd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 25th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1818540/
-
----
-
-`@miles 1/3/2022 10:17 AM (UTC)`
-
-2021 Annual Worldwide Getties: Winner of CCP’s Biggest Nightmare - Miles Guo @Miles<br/><br/>2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵先生 @Miles<br/>
-![img](https://media.gettr.com/group2/getter/2022/01/03/10/b94124f0-8cb2-8380-b102-f4ca4edebee9/out.jpg)
 
 ---
 
