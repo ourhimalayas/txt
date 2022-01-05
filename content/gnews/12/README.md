@@ -2,24 +2,31 @@
 ---
 
 
-## 【中日财经爆】中共在秘鲁的矿业公司被叫停
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824843/)
+## 有声|2022年伊始恒大再次在港股停牌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1825023/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-258.png)[图片来源](https://ujoy.net/topics/5116441)
-【东洋经济】1月5日报道，2021年12月16日，中共有色金属巨头五矿集团宣布，将暂停其在南美秘鲁拉斯班巴斯铜矿的运营，该矿占五矿集团净利润的80%。消息一出，该公司在香港证券交易所的股价就暴跌了12%（与12月15日的收盘价相比）。虽然此后有所恢复，但12月16日收于2.3港元，比前一天低5.35%。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月3日一早，港股开盘时，恒大突然再次宣布暂时停牌。目前恒大还没有对此次停牌做出说明。
 
-这次中共矿业公司暂停运营的原因是，未能解决与当地居民的争端。当地人民要求获得经济保障，并采取措施处理运输矿石卡车产生的灰尘污染问题，他们封锁了通往铜矿的道路。五矿公司与当地人举行了一系列会谈，但仍旧无法解决这一问题。
+恒大曾于2021年9月16日和10月4日分别两次停牌，也正是其股债遭双杀以及信用崩塌的时期。当时，国际评级机构惠誉对恒大的评级从CCC+下调至CC，而穆迪将恒大及其子公司的企业家族评级也调至垃圾等级的Ca。最新消息表明，恒大再次停牌与早前恒大被海南省勒令自行拆除建筑物有关。
 
-秘鲁是仅次于智利的世界第二大铜生产国，拉斯班巴斯铜矿是秘鲁第四大铜矿，为露天开采，可开采储量为720万吨。2014年起，五矿集团和其他两家公司，包括一家中共国有投资公司，共投资58.5亿美元收购瑞士大型资源公司持有的开发权，并发展成为五矿集团最大的收入来源，占五矿集团总收入78%的纯利润。
+分析人士指出，此次停牌，意味着恒大再一次面临债务危机，而2-3月的债务集中到期，将进一步加剧恒大的债务爆雷。
 
-因与当地居民的协商无法达成，中共五矿企业恐将难以持续运营。
+文字版原文：[2022年伊始恒大再次在港股停牌](https://gnews.org/zh-hans/1820395/)
 
-信息来源：[中国企業が経営の｢ペルー銅山｣操業中断の事情](https://toyokeizai.net/articles/-/478996?display=b&amp;ismmark=a)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
