@@ -2,83 +2,75 @@
 ---
 
 
-## 全球疫情更新（伦敦十分之一的人口已经感染）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825916/)
+## 中国证监会制定海外上市规则
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1825950/)
 
-#### **整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜疫情更新.png)
-雅典娜疫情更新（2022年 1月5日）
+作者：香草山金融部-Opal
 
-**一，全球疫情基本数据**
 
-感染总数：295,242,378（日新增1,771,851，14天增幅+156%）
 
-死亡总数：5,455,889（日新增6,153人，14天增幅–11%）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo.jpeg)
 
-每万人感染人数：454.8777 人（除中国外）
 
-**二，全球“疫苗”毒针统计数据**
 
-“疫苗”毒针注射总数：92.1亿
+12月24日周五，中国证券监管机构发布了国内公司去海外上市的规则草案。中国证监会表示，寻求在海外出售股票的国内公司将必须遵循国内规则并申请本地注册，这一框架草案旨在澄清因国家打击海外上市而受到冲击的市场的程序。
 
-完全“接种”：38.8亿人
+中国证监会表示，规则草案并不是为了收紧海外上市的政策，但它也强调，在海外上市的公司不能泄露国家机密，它们必须遵守国内法规，如外商投资、网络安全和数据安全法。它正在征求公众意见，直到1月23日。
 
-完全“接种”百分比：49.8%
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-.png)
 
-**三，澳洲疫情和“疫苗”数据**
+该规则还为被称为可变利益实体的结构提供了便利，自2000年代初以来，几乎所有的中国互联网公司都在使用这种结构，以规避中国对外国投资国内企业的限制。监管机构周五表示，公司可以利用VIE结构向国外出售股票，但必须遵守国内法律，并首先向中国证监会注册。这些规则将首先适用于那些寻求在海外出售股票的公司，也将适用于那些寻求二次上市、后门上市或通过特殊目的收购公司上市的公司。中国证监会表示，对于那些已经在海外上市的公司，将有一个时间不详的宽限期。
 
-感染总数：612,106（今日新增 64,774人）
+中国证监会表示，制定规则草案的目的是为海外上市提供一个更清晰的框架，并促进一个稳定和可预测的政策环境。它补充说，它一直支持中国公司选择自己的上市目的地。
 
-死亡总数： 2,289人（今日新增 18人）
+中国证监会的这一规则草案是在中国企业赴美上市暂停近六个月之后发布的，此前滴滴出行巨头在纽约的首次公开募股失败了。7月，中国政府对滴滴出行违反国内法规的行为进行了处罚，随后表示将为中国公司在海外销售股票制定指导方针。各公司已经搁置了他们的上市计划，等待中国政府在监管方面的进一步明确。这是中国证监会出台这个草案规则的前后背景。
 
-每万人感染人数：208.3541人
+通常美国的证券交易委员会 SEC的会计机构，称为上市公司会计监督委员会（PCAOB），对于其监管的上市公司的审计师进行检验，换言之，对在美国的上市公司的账目进行认证。许多国家都没有问题，50多个国家/地区都是同意并配合PCAOB 对他们国家/地区在美国上市的公司的审计进行检验，很简单，外国公司要在美国上市，必须遵守美国证券法，但是世界上就是中共国和香港，不允许美国证交会的会计机构–上市公司会计监督委员会（PCAOB）检查其审计师，不愿意让海外监管机构检查当地的会计事务所，也就是不允许他们对在美国上市的中国公司的账目进行认证，说是“出于国家安全考虑”。很简单，中共国当然不愿意海外监管机构检查他们这些公司的账目，有百分之多少的中概股公司能经得起查账的？中共国一贯造假。2020年，瑞幸咖啡(Luckin Coffee Inc.)是星巴克公司在中国的新晋对手，它承认编造了收入和支出。它欺骗了投资者。投资者冲着瑞幸咖啡靓丽的财报投钱下去，公司高额的营业额和盈利让投资者们相信瑞幸咖啡的前景无限，更看好它是潜力股、优质股，搞了半天，却是垃圾股，当然会告他们。2021年10月瑞幸咖啡达成一项金额1.75亿美元的集体诉讼和解。我可以想象，中概股财报作假，绝不仅仅是瑞幸咖啡这一家公司。
 
-“疫苗”毒针注射总数：43,044,030 （日新增212,497针）
+正是因为中国监管机构多次拒绝了美国上市公司会计监督委员会（PCAOB）的要求检查在美国上市和交易的中国公司的审计工作，在2020年，时任总统唐纳德-特朗普在12月签署的《追究外国公司责任法》旨在将连续三年不符合美国审计标准的中国公司从美国交易所除名。
 
-完全“接种”：18,894,113人
+美国证券交易委员会在2021年12月2 日发布新规则，这些规则将连续三年不符合美国审计标准的中国公司从美国交易所除名，还要求公司向美国证券交易委员会证明它们没有被外国政府的实体所拥有或控制，并说明任何身为中国共产党官员的董事会成员。这就会影响到200多家中概股公司的命运，如果连续3年不符合美国审计标准，就被从美国交易所除名。
 
-第二针“接种”百分比：77.0%%
+虽然美国SEC的新规则是去年12月2日发布的，但之前美国国内各方的呼声四起，特别是瑞幸咖啡事件造成很大影响，中国证监会也早就知道的，他们承认说：”近年来，一些海外上市公司存在财务欺诈等严重违法行为，损害了中国公司的整体国际形象，对中国公司的海外融资产生了不利影响。”，但是唯独没有提及中共政府多次拒绝PCAOB的检验审计的要求，更没有承担中共政府的责任。
 
-16岁以上人口接种至少一剂疫苗的比例：94.6%
+这次中国证券监管机构发布的国内公司去海外上市的规则草案，规定一家公司需要在申请海外IPO后的三个工作日内向中国证监会提出注册申请。作为中国公司海外上市的保荐人或主承销商的国际银行也需要向中国证监会注册。让监管机构审查其上市计划，以确保它们遵守中国的法律，如数据安全。如果当局认为股票销售会威胁到国家安全，提案将授权他们阻止公司在海外上市。
 
-16岁以上人口接种至少两剂疫苗的比例：91.6%
+证监会的规则明确了中国公司结构为可变利益实体（VIEs），在法律上是合规的，可以利用VIE结构向国外出售股票，但必须遵守国内法律，并首先向中国证监会注册。VIEs是中国科技集团，包括行业领军者阿里巴巴和腾讯二十年来一直使用的法律结构，以规避中共国严格的外国投资限制，并从国际投资者那里吸收数十亿美元。这里的“注册”（register），我个人理解，还算是比较温和的一个词，语气算是比较友好的。就是说，想要让中国证监会开绿灯，同意国内公司去海外上市的话，就要让这公司 “注册”、“登记”，通常表明监管机构将只检查公司信息披露的完整性、以及是否存在重大的合规或法律问题。
 
-**四，疫情要闻**
+另外，公司在配合海外监管机构的调查之前，需要得到中国证监会的批准。监管机构重申，它将继续与海外同行在跨境证券监管方面进行合作，包括加强信息共享和审计检查合作。
 
-澳大利亚病例新增数字继续暴增，超过六万人，感染总数超过六十万。更令人担忧的是，住院的 中共病毒肺炎 患者数量继续增加，共有 3,101 人正在接受治疗。重症监护室共有 194 位患者，其中56 人需要呼吸机。澳洲的真实病例数更高，因为目前报告的病例数受限于测试能力。[为了减缓测试压力，澳洲总理表示](https://www.smh.com.au/national/australia-news-live-national-cabinet-to-discuss-rapid-antigen-tests-as-covid-19-cases-continue-to-grow-across-nsw-victoria-and-qld-novak-djokovic-confirmed-for-australian-open-20220105-p59lxw.html)，通过快速抗原检测呈阳性的患者将不再需要通过 PCR 检测来确认他们的诊断，同时进行住院治疗和 卡车司机的每周测试要求也被取消了。
+中国证监会表示，根据规则草案，中国当局将能够要求寻求在境外上市的公司处置国内资产或业务，以此来减轻国家安全问题。换言之，如果公司有内部纠纷或其他未解决的问题，也将禁止公司举行国际股票发行。
 
-[九次获得澳网冠军的塞尔维亚人德约科维奇](https://www.smh.com.au/sport/tennis/handful-from-26-applicants-granted-open-medical-exemptions-but-no-special-favour-for-djokovic-tiley-20220105-p59lxn.html)继续成为“主流”媒体和部分民众的粗暴批判的对象。德约科维奇此前数次公开表示拒绝公布他是否接种了中共病毒疫苗毒针。最近他获得了进入澳大利亚参赛的医疗豁免。这本是与其职业和专业无关的个人医疗隐私，维多利亚州政府和澳大利亚网球协会却要求他向公众解释为什么他被授予医疗豁免。主流媒体中对他一片讨伐之声。
+这草案正在征求公众意见，截止1月23日。之后的正式版本到底会有那些改动，我们再继续跟进。
 
-[英国国家统计局 (ONS) 报告](https://www.theguardian.com/world/2022/jan/05/covid-england-ons-data-one-in-15-infected)，根据从随机选择的家庭收集的拭子样本，在截至 12 月 31 日的一周内，英格兰估计每15人中就有一人感染了中共病毒，而在伦敦，这个比例高达十分之一。
+（本文仅代表作者个人观点）
 
-昆士兰大学的 Garrick法学教授James Allan在《澳大利亚人报》发表文章，标题为[《强制疫苗使我们走向种族隔离和专制》](https://www.theaustralian.com.au/inquirer/vaccine-mandates-set-us-on-path-towards-segregation-and-despotism/news-story/4e708abfa1c62544355bb1575ab9848d)。在主流媒体上发出了对荒诞的疫苗强制政策的的批判。该文章从病毒的致命性，疫苗的有效性等方面论述了强制疫苗政策的非理性及其对民主制度根基的严重破坏，并警告说，＂强制疫苗是一个可怕的、反对个人自由的、灾难性的主意，人们若不能站出来反对，就将永远面对专制、强权的政府。＂
+图片来源：
 
-数据来源：
+[http://www.csrc.gov.cn/](http://www.csrc.gov.cn/)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+直播链接：
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+[https://gtv.org/video/id=61d1b7cf31a71619b57337a9](https://gtv.org/video/id=61d1b7cf31a71619b57337a9)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+参考：
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[https://www.wsj.com/articles/chinas-securities-regulator-lays-out-overseas-listing-rules-11640374590?mod=markets\_lead\_pos6](https://www.wsj.com/articles/chinas-securities-regulator-lays-out-overseas-listing-rules-11640374590?mod=markets_lead_pos6)
 
-[covidlive.com.au](https://covidlive.com.au/)
+[https://www.reuters.com/markets/europe/chinas-offshore-listing-rules-should-reduce-market-uncertainty-2021-12-25/](https://www.reuters.com/markets/europe/chinas-offshore-listing-rules-should-reduce-market-uncertainty-2021-12-25/)
 
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[https://www.ft.com/content/50bf56d9-cf1b-43ae-8c92-f2e33b4fb52d](https://www.ft.com/content/50bf56d9-cf1b-43ae-8c92-f2e33b4fb52d)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+编辑/校对/发稿：遵从内心
 
-发布：
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
