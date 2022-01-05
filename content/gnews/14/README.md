@@ -2,34 +2,25 @@
 ---
 
 
-## 美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823866/)
+## 中共疫情管制下的众生：西安一名孕妇因疫情管制在医院门口流产
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1823899/)
 
-作者：纽约香草山农场疫情关注组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国主流保险公司OneAmerica ，首席执行官Scott Davidson 12月30日出席了一场由印第安纳州商会组织的，在线新闻发布会，他在会上表示，18 至 64 岁工龄人群的死亡率比新冠疫情前增长40%，这对于所有从事该行业的公司来说，都是闻所未闻的惊人数字。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-15.jpg)
-通过这些数据，Davidson 认为，新冠疫情对18～64岁人群所造成的实际死亡率，远远高出官方通报的死亡病例数。
+撰稿—八木
+校对/上传—无明逆流
 
-不仅如此，由于医院人满为患，民众得不到及时而妥善的救治，长短期的伤残索赔也在不断增长。早前，印第安纳州首席医疗官Dr. Lindsay Weaver也曾表示，目前该州的住院人数比一年前推出 COVID-19 疫苗时要高，确切地说，住院人数比过去五年都要高。
+1月4日，陕西西安一名产妇家属发帖称，1月1日，有孕在身的小姨晚上肚子疼便紧急拨打120求救，可120一直处于占线打不通的状态。没办法之下打了110将小姨送往医院。晚上8点多到达西安高新医院，在医院门口由于“核酸超时”问题无法入院，一直等到晚上10点多。在门口等待期间小姨大出血，8个月的婴儿流产。
 
-另一方面，Davidson预计，高额的死亡及伤残索赔成本对任何一家保险公司来说，都无力承担，通过增加保费来转嫁压力是保险业的惯常做法，随着时间的推移，公司会因为不断增长的用人成本而逐渐倒闭，18～64岁受雇人群也会因为不断出现的健康问题，而造成严重的人力短缺。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/W9-05-at-2.00.05-PM.jpeg)视频截图
 
-参考链接：[美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增](https://gnews.org/zh-hant/1820434/)
+发帖人称，医院是看到孕妇大出血实在不行了，才接诊的。最终8个月大的孩子因医院见死不救胎死腹中。据发帖人说，在看到好友的朋友圈留言后才发现这种情况在医院并非个例。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Whats47.35-PM.jpeg)图片资料：微博
+目前，该发帖人三十万点赞量的“微博”帖子已被删除清空。据微博官方发布的核实通报显示，发帖人自行删除了微博内容。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+世界上最悲惨的事情，就是与医院只一步之遥的距离，你只能死在外面而不能进，他却能住在高干病房享受用之不尽的免费医疗。这就是中共统治下中国真正的面貌。
 
-总编/编辑：天滅中共
-校对/发稿：Hetangyuese
+在这个国家，有能在疫情封城管制期间动用权力顺利从一个城市开车到另一个城市的“关系户”，也有因官员儿子要出城，某地病毒确诊区域就下调防控风险…这种种双重标准因人而异，唯独没有你我人民。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+病毒因中共而生，也将随中共而灭。中共若不覆灭，人们也该放弃病毒会消失、强权管制会结束的希望。疫情管制下人的可怕，中共的可怕，相信经历其中的人已经深有体会。国人或许应该真正去审视现实，幡然觉醒才能避免灾上加灾，难上加难。
 
  
 

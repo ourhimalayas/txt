@@ -2,26 +2,38 @@
 ---
 
 
-## 法国在野党联合抵制疫苗通行证新法
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1823845/)
+## 纽约每天的COVID阳性率飙升至近20%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823864/)
 
-#### 撰稿：日本东京方舟农场  海星
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FDBA239E-42E2-445E-802C-5698BD3B7120.jpeg)（图片来源：法新社）
-1月3日，法国国民议会上，法国在野党联合抵制执政党强推的疫苗通行证法案。
+评论：《共产党宣言》的书中首句就是“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” ，现在这个幽灵已经冲出欧洲，在全球徘徊了。病毒已经把全世界祸害得没有一块净土，但其溯源竟然还没有得出官方定论，如此说来人类首先不应抗疫，而是应先除魔，因为魔不除，祸不止！
 
-据《中央社》报导，1月3日法国国会议员就疫苗通行证新法案展开激烈讨论。执政党希望这项新法案能尽快通过审议，并在1月15日正式生效执行；在野党强烈反对该法案的实施，在国会上联合抵制执政党，因此审议暂时中止。
+据《New York Daily News》 作者：Tim Balk，2021年12月28日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-230.png)图片来源：New York Daily News
+12月28日星期二，纽约曼哈顿，游客挤满了时代广场，人们在接受Covid-19检测。（Barry Williams/for New York Daily News）
 
-目前，法国施行健康通行证管理办法，要求民众出示疫苗接种证明，或近期病毒测试为阴性的证明，或已染疫康复的证明，才能进入许多公共场所。这已经限制了民众的部分行为，然而新法案将进一步升级，规定民众一定要完整接种才能参加活动、进入餐厅或搭城际列车旅行，限制他们更多的行为。
+在最新一批全州每日数据中，几乎每五个接受COVID测试的纽约人中就有一个得到阳性结果，这惊人地反映了Omicron毒株的高传播率。
 
-*参考链接：[法國擬立法要求疫苗接種證明 在野黨聯合杯葛](https://www.cna.com.tw/news/aopl/202201040362.aspx)*
+根据Hochul州长办公室的数据，该州周二记录了40,780个新的COVID病例，其中27,774个出现在纽约市。
+
+最新的病例数标志着从最近的高峰期有所下降 —— 自进入圣诞节后，全州每天的病例数几乎达到了50,000个 —— 但整体测试在假期前激增，使数字出现偏差。
+
+根据州长办公室的数据，周二的阳性率为19.3%，七天的平均值攀升至13.4%。
+
+虽然严重变异的Omicron菌株可能导致较不严重的疾病，但其闪电般的传播速度已造成医院和运输系统等基本服务的人员短缺。
 
 * * *
 
-*素材采编：海星*
+文章来源: [https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html](https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html)
 
-*编辑：oliver lee*
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*发布：miumiu*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
