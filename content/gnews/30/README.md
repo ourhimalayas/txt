@@ -2,74 +2,204 @@
 ---
 
 
-## 疫苗伤害案例：飞行员接种后失去飞行能力
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1824256/)
+## 2022/01/05 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1824284/)
 
-**简评：**
+### 央视新闻:国家互联网信息办公室等十三部门修订发布《网络安全审查办法》
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/35AF682C-9C52-483A-9BE2-B627259B7DFC.jpg?asset_id=D6E65BB1-09C4-4B15-852D-EDD130769233&amp;size=3458)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/35AF682C-9C52-483A-9BE2-B627259B7DFC.jpg?asset_id=D6E65BB1-09C4-4B15-852D-EDD130769233&amp;size=1013)
+*（图片来源：报道截图）*
 
-Cody是一名拥有17年飞行驾照的空中喷洒飞行员。在强制疫苗之前，Cody主动接种了疫苗。大概30分钟之后，Cody就出现了严重的头痛，然后转移到脖子后方，同时伴有灼热感。第二天，Cody有3个小时的飞行任务。Cody忍着头痛飞行了一个半小时，头痛一直加剧，视力也出现问题，到最后无法呼吸、颤抖。Cody最后成功迫降，被工作人员抬出机舱，送到家庭医生那里。随后Cody被诊断出患有眩晕症和恐慌症，两天之后，Cody就不能走路了。Cody预约了一些世界上最好的医生，通过两天的各种检查和测试，显示Cody有两个麻痹性瘘管，颅内高压超出正常值三倍，并导致内耳破裂。
+**评论：**中共全面封堵网络真相传播，尤其在海外真相信息方面下重手。
 
-33岁的Cody之前身体健康，没有得过流感，从来没生过病。接种疫苗10天前刚刚完成FAA美国联邦管理局的飞行员体验，更新了飞行驾照，17年来Cody每年的体检都显示他的身体非常健康。但是打完疫苗48小时之后出现了严重的副作用。医生说Cody的症状是由疫苗引发的。Cody的生活被彻底改变，他自费做了两次手术、六次脊髓穿刺。他努力保住他的工作，希望将来可以重新回去上班。但是他自己不确定是否还能继续飞行。
+### 人民网：陕西商洛街道上这一幕泪目了！群众拉着骡子运送物资支援疫情防控！
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/289BAF02-3775-4D42-A0A0-F0DF3B0762A4.png?asset_id=D745D5FC-A18C-4201-BFD6-62C25223F291&amp;size=4553)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/289BAF02-3775-4D42-A0A0-F0DF3B0762A4.png?asset_id=D745D5FC-A18C-4201-BFD6-62C25223F291&amp;size=1024)
+*（图片来源：视频截图）*
 
-YouTube视频链接：
+**评论：“**网友评论：這就是中共統治的紅毒，把老百姓愚弄至如此田地，21世纪了，一千多万人的城市要靠马来运物资，有什么好骄傲的”
 
+平坦马路不用车，刚刚拍完人肉传送带，这次连骡子都用上了，这剧本也是下了大投资，不过话说回来，导演你是故意的吧”
 
+### 河南省大数据管理局：郑州市新冠肺炎疫情防控指挥部办公室发布2022年1号通告，郑州市新冠肺炎疫情防控指挥部办公室关于对管城回族区、二七区部分区域实行分类管理的通告
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/895CBE49-F118-49CA-8130-7A5798407D13.jpg?asset_id=25F91F73-5BB5-4EC3-982C-2C540B1624CF&amp;size=3721)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/895CBE49-F118-49CA-8130-7A5798407D13.jpg?asset_id=25F91F73-5BB5-4EC3-982C-2C540B1624CF&amp;size=1024)
+*（图片来源：报道截图）*
 
-[GTV视频链接](https://gtv.org/video/id=61d3ccb2dffab035958a879a)
+**评论：**分类意味着武汉，西安的一幕再次上演，这次是在郑州，没上演分什么类怎么分
 
-**视频字幕：**
+### 人民网：习近平签署中央军委2022年1号命令 向全军发布开训动员令
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/F7BAEE24-F130-4D83-BFF8-35EF66D371A0.png?asset_id=8F199CAD-784A-42BF-9FE7-C940E5856B8A&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/F7BAEE24-F130-4D83-BFF8-35EF66D371A0.png?asset_id=8F199CAD-784A-42BF-9FE7-C940E5856B8A&amp;size=1024)
+*（图片来源：新闻联播截图）*
 
-**主持人：**Cody不久前你还是名飞行员。你干这一行多久了？
+**评论：**动员令，吾皇的步伐是越来越大了，油门不能停
 
-**Cody****：**这是我第15个年头了，我拥有飞行执照17年，但作为干这份工作15年，是一名空中喷洒员。
+### 外交部网站：外交部军控司司长傅聪就五核国领导人发表防止核战争联合声明举行中外媒体吹风会
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6E024693-F418-410C-89EC-A2C890065B55.jpg?asset_id=FC20A281-E369-4618-AD3A-D33B131AB579&amp;size=2560)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6E024693-F418-410C-89EC-A2C890065B55.jpg?asset_id=FC20A281-E369-4618-AD3A-D33B131AB579&amp;size=500)
+*（图片来源：外交部网站／环球网）*
 
-**主持人：**也就是为农作物空中喷施？
+**评论：**中共从来都不会遵守任何国际合约，中共本身就是以骗得了政权，又以假治国，违反《中英联合声明》，又是种族灭绝反人类罪，这样的恶党说什么千万不能相信
 
-**Cody****：**是的，喷洒肥料、运输农作物。
+### 参考消息：新媒文章：中国政治进入二十大时间
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/3092E9C1-F634-431B-908B-59D0B03D4329.png?asset_id=919A6845-CA97-4463-A3B1-2055848A1EF3&amp;size=2560)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/3092E9C1-F634-431B-908B-59D0B03D4329.png?asset_id=919A6845-CA97-4463-A3B1-2055848A1EF3&amp;size=480)
+*（图片来源：参考消息／六度网）*
 
-**主持人：**请告诉我们在二月份发生了什么，你接受了疫苗注射，这是你雇主的要求吗？
+**评论：**中共内部的血腥杀戮开始了，也预示着以共灭共到了最后阶段，越来越觉得习大神是真战友，在自己最后时刻带着中共一起下地狱
 
-**Cody****：**不是的，我不是被迫打疫苗的。我的雇主是位年长的绅士，我父亲也认为我做的对，我只想做我应该做的。所以，我不是被强迫去接种的。所以，人们不应该称我为反疫苗者。我是最先一批打疫苗的。
+### 环球网：布林肯与北约9国外长通话强调“挺立陶宛”，外交部回应
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/46D3C198-24C8-41DE-9B02-65635B67EBB4.png?asset_id=58507927-CBF7-47DF-B03B-968AF3264E63&amp;size=2560)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/46D3C198-24C8-41DE-9B02-65635B67EBB4.png?asset_id=58507927-CBF7-47DF-B03B-968AF3264E63&amp;size=371)
+*（图片来源：环球网）*
 
-**主持人：**是的，告诉大家具体发生了什么？
+**评论：**中共外交部在国际舞台上已经没有一点威信了，不是威胁各国就是泼妇骂街，中共病毒彻底让世界各国看清了中共的邪恶和无耻，让中共付出代价的时候到了
 
-**Cody****：**我是2月1日大约早上11点接种的，之后我和我太太一起吃午饭，开始感觉到头痛。在接种大约30分钟后，我的头顶右侧开始出现奇怪的疼痛。我想应该属于正常，因为我们常会听人说打了疫苗后身体会出现一些小反应。开车一个小时回家后，我感觉疼痛转移到脖子后方，还伴有灼热感，而且越来越严重。这时候，我太太开始问我的感觉，因为我开车时急转弯，我的感觉就像喝醉了。
+### 新浪财经:秦刚：在美侨胞应努力打破族裔障碍
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/42480735-AD8C-4C0B-AD90-2EAD88031C3E.jpg?asset_id=87A13B5D-80FC-48C4-BD36-EA54C2FDF022&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/42480735-AD8C-4C0B-AD90-2EAD88031C3E.jpg?asset_id=87A13B5D-80FC-48C4-BD36-EA54C2FDF022&amp;size=1024)
+*秦刚（图片来源：RFA）*
 
-第二天，也就是2月2日，做了一些办公室工作。2月3日星期三我要开始我的（喷洒农作物）工作。一直头痛，而且不断加重。在中午饭的时候我起飞了，也就是我接种新冠疫苗48小时后，我意识到我的视力有一圈边界（像个隧道）。但是那天我需要飞三个小时，我想忍一忍，工作结束后去看家庭医生
+**评论：**中共利用自己控制的海外华人组织，甚至亚裔组织。传播意识形态渗透美国各界。对于不受中共控制的海外华人，则是栽赃陷害。
 
-差不多飞行了1个半小时，我视力的隧道越来越小，我开始担心起来。但是很快工作就结束了，我想我可以干完。我把我的飞机转过来，在非常低的水平飞行，所以我的视力和压力没关系。我的意思是，我离地面不超过500英尺。我把飞机升高几百英尺去转弯。这时就像一颗炸弹在我脑中爆炸，这是我所知道的最好的描述，从一秒前的头痛欲裂到下一秒的隧道视觉，我在飞机座位上瘫软下来，几乎无法呼吸，无法控制地颤抖、恶心、耳鸣，而且非常头晕。
+### 搜狐：首次披露！“辽宁号”与日本“出云号”航母对峙现场，细节有哪些
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/A445BCB7-B477-48B4-A120-155619A09022.png?asset_id=B52708F6-0C5B-4E0E-A02A-3E9D24F50C6E&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/A445BCB7-B477-48B4-A120-155619A09022.png?asset_id=B52708F6-0C5B-4E0E-A02A-3E9D24F50C6E&amp;size=1024)
+*（图片来源：央视军事）*
 
-当时我在大概距离跑道4、5英里的地方，我开始朝那个方向开。我不认为我会成功，我想迫降在4道的高速路上，但是太多的车辆，我无法掌握好时机，所以我决定迫降在高速路的一侧，万一我昏了或撞了，至少还有人能发现我， 不至于在一个人烟稀少的地方不被发现。
+**评论：**航母能做到同框，还不是演戏，针尖对麦芒，离奉命撞击就不远了，记住航母是有编队的，航母同框那编队呢。照片是12月19日之后的，现在公开，寓意如何，油门不要停
 
-我记得的最后一件事是我看到我们的机场，大概在两三英里外，然后迫降。后来才知道是地面上的工人看到我迫降前飞机转了个圈儿，而且我的脸色煞白，一直在颤抖。他们把我抬出机舱，下午送我去了我家庭医生那里，随后我被诊断出患有眩晕症和恐慌症。我的家庭医生从我两岁起就开始给我看病，我从来没有过这样的症状。
+### 东方网：霍启刚当选香港立法会议员，郭晶晶献花祝贺
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6CB66C1D-8183-4B25-A93F-49B6BEF51BD8.jpg?asset_id=19D0D9A1-7EED-4BED-839D-A5B36E42FFA7&amp;size=2970)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6CB66C1D-8183-4B25-A93F-49B6BEF51BD8.jpg?asset_id=19D0D9A1-7EED-4BED-839D-A5B36E42FFA7&amp;size=870)
+*（图片来源：视频截图）*
 
-**主持人：**你的医生是否认为这些症状与疫苗有关？
+**评论：“**网友评论：霍启刚昨天宣誓就任香港立法会议员，其妻为跳水运动员郭晶晶。霍英东家族亲共，在香港和澳门的地位，稳如泰山”
 
-**Cody****：**我想听听别人的意见。随后，医生给我开了药，叫我回家休息，说过两天就好了。两天后我不能走路了。所以我预约了一些世界上最好的处理内耳平衡问题的医生，在路易斯安那州耳朵和平衡研究所，我去找他们，花了整整两天的时间进行诊断性测试、核磁共振、CT、扫描、脊髓穿刺、听力测试、平衡测试。核磁共振成像显示我有两个麻痹性瘘管。由于颅内高压，我的两个内耳都破裂了。因此当他们破裂时，就会漏出内耳的液体，而这些液体是能使你获得平衡的保证，流出来的液体进入我的大脑。脊髓穿刺显示我的颅内压比正常值高出三倍。
+香港在换血，习大神在京城也在换血，传陈全国进京，原常委要全体换掉，习大神步伐很大，不知道能不能扯到蛋，还以为姓赵的党员同志们你们准备好了吗
 
-这是2月10日，仅仅是接种9天后。Joshua知道每年飞行员都要进行FAA（美国联邦管理局）的体检才能更新执照。我在接种疫苗前10天完成了FAA的体检，完全健康，而且过去17年我每年都做。
+### LVV2:中国医院比抢劫还狠，一病倾家荡产
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/76AE02E3-803D-484F-B79C-CEBF1DE9A43B.jpg?asset_id=76D0DE71-1ADF-42A4-97C0-0A29B4346D7F&amp;size=5535)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/76AE02E3-803D-484F-B79C-CEBF1DE9A43B.jpg?asset_id=76D0DE71-1ADF-42A4-97C0-0A29B4346D7F&amp;size=1024)
+*（图片来源：网友推特）*
 
-**主持人：**那么，第二组医生得知你的体检结果后说什么？你的身体一直很好，100%，打了疫苗后突然有了这些症状？
+**评论：**明码标价，基础费用13204元／天，自费占比83.9%，一面拆光东墙也永远补不过来的西墙，一个畸形的医保，面对享受特殊医疗吃特供的上层架构，韭菜就得买单
 
-**Cody****：**他向我解释说，如果有人说这不是疫苗引起的，那就太可笑了。我的意思是，怎么可能一个33岁的健康人，甚至都没有得过流感的人，从来没生过病，打完疫苗48小时之内（出现症状）？出现一个麻痹廔管并不是完全不正常，但同时经历两种瘘管，这只会来自于极度升高的颅内压。所以你会问，颅内压升高是怎么来的？通常，汽车事故或头部创伤，诸如此类的事情。很明显，我没有这两种情况。在48小时内唯一改变我生命的就是新冠疫苗。
+### 网易：郑州地铁部分站点临时关闭
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/3E01DDD0-4AA1-48F1-82C1-5770EE2A92C6.jpg?asset_id=A85EECBB-278D-4411-B6EA-D910B13EA425&amp;size=4551)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/3E01DDD0-4AA1-48F1-82C1-5770EE2A92C6.jpg?asset_id=A85EECBB-278D-4411-B6EA-D910B13EA425&amp;size=1024)
+*（图片来源：大象新闻视频截图）*
 
-**主持人：**所以自从接种了新冠疫苗以来，对你的生活发生了什么影响？造成的伤害，对你的生活发生了什么样的改变？
+**评论：“**网友评论：看起来越来越严重了”
 
-**Cody：**自二月份以来，我做了两次手术，不得不自掏腰包。我的意思是，我存的每一分钱都花在了六次脊髓穿刺，一趟趟地去专科医院。在这期间，我一直努力尽量保住我的工作，万一我可以回来上班。在整个这一年的时间里，这是最糟糕的部分。我不确定是否还能继续飞行。
+范围越来越广，影响越来越大
 
-字幕：雨中漫步/ 听写：云岭 /  翻译：Blue /  PR：Roberts / 简评/文字整理/编辑：胖丁
+### 网易：西安一码通疑再现故障，部分小区发布通知称正在抢修
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/9C35E201-4224-4415-B8E7-DEDD46CC015E.png?asset_id=FB836144-88B0-4E65-AA3F-AD154C204FFD&amp;size=2560)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/9C35E201-4224-4415-B8E7-DEDD46CC015E.png?asset_id=FB836144-88B0-4E65-AA3F-AD154C204FFD&amp;size=342)
+*（图片来源：都市快报）*
 
-* * *
+**评论：**“必须清零”，清不了中共病毒就清人，清不完系统就故障
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+### 搜狐：河南禹州重要通知：居民居家隔离、机动车辆不得上路，城区公共区域全面消杀
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/CA012270-84EE-4A89-A8D6-EF6267729D6B.png?asset_id=578CE5AC-4790-4948-B281-02F12CBEB455&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/CA012270-84EE-4A89-A8D6-EF6267729D6B.png?asset_id=578CE5AC-4790-4948-B281-02F12CBEB455&amp;size=1024)
+*（图片来源：禹州发布）*
+
+**评论：“**网友评论：河南禹州封城！也就是出现了三个所谓无症状感染者，就要封掉678个村，全城所有人员只进不出，这下指令的官员脑子里进水了吗？”
+
+不是，这些官员精着呢，他们可能在完成上头另外一个司令部下达的指令，属于一局大棋中的一步而已
+
+“另一位网友评论：生活在由這樣一幫王八蛋統治的地方，不死於病毒，就可能死於疫苗。不死與疫苗，也許會死於這樣被毫無人性的折騰”
+
+### 网易新闻：突发！ASML光刻机工厂突发火灾！
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/564D928A-0D48-4D46-8409-95F3041E1978.png?asset_id=A19E2FDB-B0E5-46D4-9D68-781D3C6C38F2&amp;size=600)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/564D928A-0D48-4D46-8409-95F3041E1978.png?asset_id=A19E2FDB-B0E5-46D4-9D68-781D3C6C38F2&amp;size=600)
+*（图片来源：半导体行业联盟／网易新闻）*
+
+**评论：**西安的芯片厂由于中共病毒还在封控中，德国的芯片厂又起大火，自从中共病毒威胁了全世界的安全后，不是口罩厂着火就是芯片厂着火，有这么多的巧合吗？
+
+### 中时新闻网：华为电动车是骗局？新车还没交付就停产！300车主傻眼
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/2B726FF2-B290-467D-82AA-10D8C95E41CE.jpg?asset_id=3AE2DDA0-97E5-4ED0-BABC-8BC803E014B7&amp;size=656)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/2B726FF2-B290-467D-82AA-10D8C95E41CE.jpg?asset_id=3AE2DDA0-97E5-4ED0-BABC-8BC803E014B7&amp;size=656)
+*华为与电动车企赛力斯合作的首款电动车停产。（图片来源：shutterstock）*
+
+**评论：**新能源汽车补助停止，挨骂的是中央，是经济部，能源部，工业部，怎么才能保证中央不挨骂呢，那就让新能源车停产，自然用不上补助了，韭菜你上哪里喊冤，这一招下去能去骂谁呢，骂谁都可以就是不能骂“裆”中央
+
+### 印尼禁止煤炭出口对中国造成极大压力，中国进口煤炭6成来自印尼
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6D45B672-6913-4849-9334-183D790D1A39.png?asset_id=E682C000-BA9F-4750-AA2D-AF088B245852&amp;size=750)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6D45B672-6913-4849-9334-183D790D1A39.png?asset_id=E682C000-BA9F-4750-AA2D-AF088B245852&amp;size=750)
+*中国煤炭进口量有6成来自印尼，印尼突然禁煤炭出口，对中国造成极大供电压力。（图片来源：欧新社）*
+
+**评论：**中共病毒对全球的产业链是前所未有的破坏，中共也因自己放的毒尝到了苦果，一边被全球孤立，一边被全球围剿，2022年，中共的末日年
+
+### 澎湃新闻：观察｜数字人民币App上架，对数字人民币试点意味着什么
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/225533AA-2DA6-45F9-9CC5-16434ED37B51.jpg?asset_id=61FB48F9-CAE2-4173-97DA-8678BFF518B1&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/225533AA-2DA6-45F9-9CC5-16434ED37B51.jpg?asset_id=61FB48F9-CAE2-4173-97DA-8678BFF518B1&amp;size=1024)
+*（图片来源：澎湃新闻）*
+
+**评论：**“中共目前的数字人民币的指定运营机构包括工行、农行、中行、建行、交行、邮储银行、招商银行、微众银行、网商银行等；试点地区则包括上海、海南、长沙、西安、青岛、大连、深圳、苏州、雄安新区、成都四地及北京冬奥会场等。”中共用数字人民币对国内百姓的管控会更加严苛，习大神的“倒车”政策有目共睹，中共的权斗也更加如火如荼，以共灭共也即将有成果
+
+### 网易新闻：疫情下西安的方舱医院到底有多“豪华”？网友：看完我也想住
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/9C4D9183-7466-4DE4-9089-930427703F77.jpg?asset_id=4A9FCD49-D2A1-4AEE-84EE-02BCE8056671&amp;size=667)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/9C4D9183-7466-4DE4-9089-930427703F77.jpg?asset_id=4A9FCD49-D2A1-4AEE-84EE-02BCE8056671&amp;size=667)
+*（图片来源：企鹅号 不能吃土豆／网易新闻）*
+
+**评论：**不要脸的中共竟然美化“方舱”，明明就是一个监狱，既然豪华，那就让中南坑的老杂毛先住
+
+### 澎湃新闻：香港新冠疫苗接种总剂次超千万
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/24928CFF-7CBF-4B90-B5BF-703C776185DB.png?asset_id=9F10398C-BF40-4D66-9888-44B33E5F0D27&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/24928CFF-7CBF-4B90-B5BF-703C776185DB.png?asset_id=9F10398C-BF40-4D66-9888-44B33E5F0D27&amp;size=1024)
+*（图片来源：联合报）*
+
+**评论：**香港还在强迫民众接种中共毒疫苗，国内的各地疫情爆发为什么，就是中共毒疫苗的后遗症，林郑妖娥与中共为伍，一定也绞进会绞肉机
+
+### 美国之音:《耶鲁日报》罕见匿名刊文，中国留学生质问彭帅在哪里
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6919FBB3-B179-48F5-836E-10094494D79C.jpg?asset_id=31FD565C-7F7B-470F-9794-211D828B8395&amp;size=408)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/6919FBB3-B179-48F5-836E-10094494D79C.jpg?asset_id=31FD565C-7F7B-470F-9794-211D828B8395&amp;size=408)
+*路透社11月21日从社交媒体上获取的照片。照片说明中说，彭帅在北京的Fila网球赛青少年选手决赛开幕式上在超大纪念网球上签名。（图片来源：路透社）*
+
+**评论：**《耶鲁日报》刊载题为 “彭帅在哪里”的匿名评论文章，反映出中共已经全面掉进塔西坨陷阱。
+
+### 联合早报:500多家中企取道场外交易在美融资
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/8D339FEA-E528-422B-A949-782D8B26E558.jpg?asset_id=7617771E-8777-47C2-B839-0CF00C7CCFB4&amp;size=1009)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/8D339FEA-E528-422B-A949-782D8B26E558.jpg?asset_id=7617771E-8777-47C2-B839-0CF00C7CCFB4&amp;size=1009)
+*（图片来源：VOA报道截图）*
+
+**评论：**中共渗透到美国的金融企业，受到了围堵的迹象，金融脱钩循序渐进。
+
+### 放言：武漢封城2年後「西安」今也封！陳時中：應有「隱藏風險」存在！
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/48CACC89-928D-4101-B315-FB43E04C444A.png?asset_id=BD497599-A358-406B-9BF4-9A5A54EDDAE4&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/48CACC89-928D-4101-B315-FB43E04C444A.png?asset_id=BD497599-A358-406B-9BF4-9A5A54EDDAE4&amp;size=1024)
+*（图片来源：推特、微博合成图 | 放言）*
+
+**评论：**西安日前公告全市疫苗覆蓋率達到99.38%如今卻緊急封城。网友评价：疫苗的骗局已经开始明着骗了
+
+### 自由亚洲之声：西安“清零”数十万人清出城 被隔离者哭声叫骂声不停
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/AA32E2C6-FCF8-49F2-BB40-C01552DADECE.jpg?asset_id=48E90A51-0761-4E9E-AFD5-905AA48107AB&amp;size=620)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/AA32E2C6-FCF8-49F2-BB40-C01552DADECE.jpg?asset_id=48E90A51-0761-4E9E-AFD5-905AA48107AB&amp;size=620)
+*新型肺炎重灾区西安的疫情“清零政策”，一名保安在限制居民区入口处。（图片来源：AFP）*
+
+**评论：**重点不是拉走，重点不是清零，重点是不能影响冬奥会和二十大，其余的纳粹不会在意，可防可控指的是人不是病毒
+
+### yahoo奇摩：张韶涵跨年与刘德华 为习近平唱红歌
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/696669AD-EA63-496F-8346-E09E60301BC5.jpg?asset_id=0BB6E226-3C7B-45FD-8739-8805317B0656&amp;size=854)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/696669AD-EA63-496F-8346-E09E60301BC5.jpg?asset_id=0BB6E226-3C7B-45FD-8739-8805317B0656&amp;size=854)
+*（图片来源：张韶涵微博）*
+
+**评论：**王力宏彻底废了，周杰伦回台湾避风头去了，张信哲据传差点也完蛋，从来不觉得隐形的翅膀有多好听，因为张韶涵很会舔而已，而华仔…身不由己，多少人指望着他吃饭，纳粹统治艺人就是跪着要饭的
+
+### 亚马逊Kindle天猫旗舰店关闭 在中国前景未定 大纪元 05/01/2022
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/60099B52-5C49-4737-B028-84C07ECF9707.jpg?asset_id=8B1C6D94-A932-40AA-9FF4-EB633596454D&amp;size=450)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/60099B52-5C49-4737-B028-84C07ECF9707.jpg?asset_id=8B1C6D94-A932-40AA-9FF4-EB633596454D&amp;size=450)
+*2015年11月4日，在华盛顿州西雅图市的亚马逊图书商店，可看到亚马逊的Kindle阅读器。(图片来源：Stephen Brashear/Getty Images)*
+
+**评论：**中共国的经济衰败，经营环境恶化，被国际社会定义为反人类罪，种族灭绝罪。跨国公司纷纷撤离中共国，国际社会将抛弃中共！
+
+### 中国金币总公司前总经理牟善刚落马 大纪元 04/01/2022
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/441872D7-77D5-4206-8007-AC7B2AEB0BAC.jpg?asset_id=F1E94850-52AE-452F-AAD0-341398D7C572&amp;size=650)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/441872D7-77D5-4206-8007-AC7B2AEB0BAC.jpg?asset_id=F1E94850-52AE-452F-AAD0-341398D7C572&amp;size=650)
+*（图片来源：极目新闻视频截图）*
+
+**评论：**中共国金融行业已彻底腐败，这只是内部利益争夺战上的你死我活。
+
+### 【习近平又磨刀霍霍】推特 韩连潮 03/01/2022
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/0631E8D4-AC68-448F-9FAE-B4CEEB18F29F.jpg?asset_id=F1B8FD57-7958-4B26-B4C2-8A0D9C291D20&amp;size=796)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/0631E8D4-AC68-448F-9FAE-B4CEEB18F29F.jpg?asset_id=F1B8FD57-7958-4B26-B4C2-8A0D9C291D20&amp;size=796)
+*（图片来源：新华社报道截图／昆仑策研究院微信公众号）*
+
+**评论：**中共党媒《求是》2022年第一期登了习近平以史为鉴的讲话，称中共“没有任何自己特殊的利益“，提出向党内被利益集团、权势团体、特权阶层“所裹挟的人开刀”，看到让人笑掉大牙，试问习主席，你不去惩治裹挟人的人，反而拿受害者开刀，这是什么大套路？
+
+### 网易新闻：西安居民打了疫苗还是被传染了？其实疫苗的这两大作用被忽视了
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/31D528E5-6D73-4930-A3FE-D10652A5D59C.png?asset_id=69746362-4AB6-4A92-B5F4-D89C5F433740&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/31D528E5-6D73-4930-A3FE-D10652A5D59C.png?asset_id=69746362-4AB6-4A92-B5F4-D89C5F433740&amp;size=1024)
+*（图片来源：视频截图）*
+
+**评论：**又是给中共毒疫苗洗地的，网上那么多打了毒疫苗副作用的案例，从头到尾就不提疫苗的副作用，要按这个所谓的医生说，那打了两针疫苗的人都会是潜在无症状感染者了，中共国都打了12亿人了，想想真是细思极恐
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*收集：安公子偷窥文明，redsparrow，Cindy，公平五十六 | 校对：Cindy | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+（世界协调时）部分信息收集于网络世界的各方，请自行甄别
+[![](https://express.adobe.com/page/4wI3NoWpPUqFb/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/4wI3NoWpPUqFb/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
