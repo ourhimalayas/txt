@@ -2,34 +2,47 @@
 ---
 
 
-## 西安中共病毒感染者1月4日被强制清零
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825341/)
+## 以色列出现首例新型混合病毒FluRona
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1825400/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月4日一大早，据墙内知情人士透露，为了让中共高官孙春兰和陕西省省委书记刘国中在进行所谓的“考察”时可以达到虚假宣传的目的，中共西安市政府强制“清零”了当地的中共病毒感染病例。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-8.png)
+以色列贝林森医院（Beilinson Hospital）出现了新的突变病毒，是中共病毒+流感的混合病毒，被称为Flurona。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-5.jpeg)
+据当地媒体报道，本周早些时候，以色列城市佩塔赫蒂克瓦的拉宾医疗中心首次在一名年轻孕妇身上发现了这种混合感染。
 
-据悉，当天西安市的“一码通”一直处于崩溃中，并没有任何真实的病例数据可供参考，但西安政府仍然实行了严格的清零计划，即以一个小区内一栋单元楼为单位，只要当中有一例中共病毒确诊病例，楼内所有居民全部被拉走隔离，从而达到物理意义上的清零。此外，所有住户必须严格停留家中并被禁止外出。
+据医院称，这位年轻孕妇没有接种过中共病毒疫苗，也没接种过流感疫苗，她只出现了轻微的症状，生产也顺利结束，并准备周四出院。
 
-目前，西安市的各大酒店几乎全部被隔离人员占满，其余的多数隔离病例只能入住当地的公租房或回迁房，但其中的居住条件非常恶劣。据消息称，无论当地隔离者身处何地，他们都面临着食物缺乏等民生问题。
+拉宾医疗中心贝林森医院妇科主任阿农-维兹尼泽（Arnon Vizhnitser）博士在接受当地媒体Hamodia采访时谈到，这位孕妇一到医院就出现症状，并被诊断出患有流感和中共病毒。三次测试结果都是阳性。
 
-参考链接：[这个图就解释了为什么1月4日早晨一码通崩溃](https://gettr.com/post/pm0mb4982d)
+这两种病毒都攻击患者上呼吸道导致呼吸困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+阿农-维兹尼泽博士还指出，这位孕妇是世界上首例Flurona混合病毒病例。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+以色列专家推测，国内可能会有更多的’Flurona’混合病毒感染者，尤其是在流感 “神秘地 “休息了一年之后，又猛然出现。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另据《国土报》报道，截至上周五，以色列卫生部最新统计数据显示，已有5,000例奥米克戎（omicron）病例，其中大多数跟普通感冒类似–没有一例奥米克戎病例是致命的。
+
+尽管如此，以色列军队冠状病毒工作组的负责人上周四警告说，随着奥米克戎的传播，医疗系统将 “崩溃”。
+
+虽然以色列是世界上中共病毒疫苗接种率最高的国家之一，并且，政府官员们也承认没有任何证据表明接种中共病毒疫苗对奥米克戎新变体有效，但以色列还是为第四剂实验性中共病毒疫苗接种开了绿灯。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+[新闻来源链接](https://www.thegatewaypundit.com/2022/01/first-case-flurona-detected-almost-fully-vaxxed-israel-virus-supposedly-hybrid-flu-coronavirus-go/)
+
+
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
