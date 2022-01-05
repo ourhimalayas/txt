@@ -2,37 +2,32 @@
 ---
 
 
-## 工作意愿创新低，全美现离职潮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1825044/)
+## 西安社会面“清零”：隧道、车库、看守所竟成隔离点
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1825109/)
 
-【雅典娜快讯】，紧贴时代脉搏
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S8N968PP_8RJY82AN8LAA.png)图片来源：NTD News
-翻译：小鱼儿
+撰稿:纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
 
-编辑： 隔壁老章
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西安隔离.jpg)
 
-根据《RT新闻》1月4日报道，美国工人辞职的速度创历史新高，加剧了餐馆、酒店等行业的人员短缺，这些企业在竞相争夺求职者，以努力填补空缺的岗位。
+然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
 
-美国劳工统计局（BLS）周二统计数据显示，11月约有453万工人主动离职，超过了9月份创下的436万的前纪录，辞职总数为全美劳动力的3%，这一数据比一年前跃升了37%。
+郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。[https://www.gettr.com/post/pm3q2xda91 https://www.gettr.com/post/pm149m7a71 https://www.gettr.com/post/pm0rxo83b5 https://m.jiemian.com/article/6982300.html https://www.gettr.com/post/pm9ii6a914](https://www.gettr.com/post/pm3q2xda91%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pm149m7a71 %20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pm0rxo83b5%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://m.jiemian.com/article/6982300.html%20https://www.gettr.com/post/pm9ii6a914)
 
-损失最大的行业是住宿和餐饮业，有92万名工人离职；零售业也有68.6万名工人离职。统计报告显示，医院和其他医疗健保机构也受到严重冲击，离开了59.8万名工人。
+编辑/校对/发稿：菩提树
 
-解雇与离职很大程度上是同向的，每有一个人被解雇，就伴有三个以上人辞职。11月企业裁员和其他方式解雇员工总数为137万，比一年前下降了36%，雇主显然不愿意在供给紧张的劳动力市场环境下解雇工人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 
-看到有政府福利和更多的跳槽机会，以及竞争对手会提供更高的工资和签约奖金，工人们大批离职。其他情况方面看，大流行病也是导致他们重新考虑自己的工作和家庭生活的原因。
+**更多资讯，更多关注**
 
-美国劳工局周一表示，11月份仅增加了21万个工作岗位，是近一年来最少的，就业增长远远低于预期。通过道琼斯调查，经济学家曾预测就业增长为57.3万，美国失业率会降至4.2%，但这个数字仍高于新冠大流病前的3.5%。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**原文链接：**[Americans quit their jobs at record pace](https://www.rt.com/news/545160-americans-quit-jobs/)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：xinxicangsheng
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
