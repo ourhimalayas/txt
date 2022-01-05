@@ -2,40 +2,171 @@
 ---
 
 
-## 【中日财经爆】腾讯出售东南亚网络巨头SEA股份套现30亿美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1823902/)
+## 七哥介绍新中国联邦宣言(上)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823968/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh5.googleusercontent.com/wK11C8FCUXt5QXAJ6skWQIxDwuxJhFQgsMaBtdxX9MkW6IHRQfkqBi7e4LrHYYLmIbGCltpg2MvETckm8Cv0fcDAhFEdzt3CoCmrhqnHtZdTJxX82eA5hYGhQwi35UG7vbgEsSCV)[*图片来源*](https://pic1.zhimg.com/80/v2-c431e75f90af0fa745c25fdd1cf4a6f4_1440w.jpg)
-腾讯控股有限公司周三（1月5日）出售了价值30.1亿美元的新加坡游戏和电子商务公司冬海集团的股份。SEA（冬海集团）主要业务有，游戏Garena、电商Shopee（虾皮）、数字金融SeaMoney。
+[https://gtv.org/video/id=61d4698cdffab035958ab4d9](https://gtv.org/video/id=61d4698cdffab035958ab4d9)
 
-根据一份销售文件，腾讯在一次大宗交易中以每股208美元的价格出售了1,450万股冬海股票。腾讯周二表示，腾讯于冬海集团所持有的投票权预计将减少至10%以下。
+**郭文贵
+Miles Guo**
 
-**SEA（冬海集团）核心业务：游戏**
+家天下
+Families world
 
-SEA（冬海集团）由天津人李小东于09年创立,总部位于新加坡。由于其业务由游戏起家，加之腾讯又是其大股东,因此也被人称为“东南亚小腾讯”。但从营收结构上来看，说它是腾讯+阿里的结合体似乎更为贴切。财报数据显示，当前Sea主要有三块业务：游戏的Garena、电商的Shopee（虾皮）以及数字金融的SeaMoney。
+欺骗人的所谓的黑社会的劫社文化，叫劫社大纲
+The so-called gangster culture that deceives people is called the gangster outline
 
-当下，游戏业务仍是Sea最核心的业务。财报数据显示，Garena的业务营收占比超过10亿美元。即便与国内游戏巨头比起来，Garena也已经不逊色多少。网易今年Q2的游戏收入是145.2亿元，而Garena的预售收入也已经达到12亿美元，几乎是2/3个网易的体量。
+咱们这叫什么？
+What’s our outline called?
 
-**综合业务**
+新中国联邦，联邦，联邦!
+The New Federal State of China, federation!
 
-除了游戏平台Garena，Sea还有电商的Shopee（虾皮）以及数字金融的SeaMoney等业务，甚至还有外卖业务和短视频业务，只不过相对前者，后者的业务更多处于试水阶段。其中，电商业务无疑是Sea的重点发力方向。在东南亚，电商市场仍然处于蓝海市场。数据显示，东南亚有超4亿人在使用互联网，占据全球互联网总人数10%，且这个数字还在快速增长；二是东南亚的电商渗透率仍然较低，但人均收入消费增速却在高速增长，提供广阔市场空间。
+咱们跟他们完全不同
+We are totally different with them
 
-在Sea进军电商之前，阿里投资的Lazada是绝对的霸主。但在2015年Shopee成立后，情况发生了变化。尽管起步晚，但得益于本地化运营的优势，Shopee最终得以反超Lazada。比如，Lazada只有一个统一的网址，Shopee则在每个市场都发布了独立的App，且每一款都有特定的功能。再比如，在注重性价比的马来西亚，就不间断地推送各种“秒杀”商品；在注重明星代言的泰国，就频繁邀请网红宣传带货；在印尼，则推出专门的伊斯兰产品和服务
+他是右手，咱是左手
+They use right hand but we use left hand
 
-据Frost&Sullivan统计，2019年Shopee在泛东南亚电商市场GMV与订单量排名第一，成为东南亚最大的电商平台。截至Q2，Shopee的GMV达到150亿美元，其相当于1/5个拼多多的GMV；增速方面，Shopee的GMV同比增长87.5%。
+他是擦屁股的手
+The hand they used is the one that wipe their butt
 
-电商业务的崛起，也为其金融业务带来了更多可能。在电商业务的场景优势下，Sea的数金业务增速也非常快。数据显示，在2015年Q1，SeaMoney平台的总交易金额（GTV）仅为2880万美元，到2018年Q2时，平台的总交易金额已经达到24.64亿美元，是2015年Q1的85倍之多，增长十分迅速。
+咱是手举向上天、摸着良心的
+The hand that we used is the one that we raise to the God and touch our conscience
 
-消息来源：
+从来不会有任何政权、利益、名义之心的这样的一个新中国联邦的宣言
+There has never been such a New Federal State of China declaration without any political power, interests, or a sense of reputation and morality
 
-[**腾讯出售新加坡冬海集团股份套现30.1亿美元**](https://cn.reuters.com/article/tencent-sg-sea-stocks-0105-idCNKBS2JF031?il=0)
+没有任何人去认真研究
+No one has gone to study it closely
 
-[**2年10倍，Sea何以成为亚洲第三？**](https://m.jiemian.com/article/6717346.html)
+大家去看看
+Let’s take a look,
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+第一章第一页倒数第四行
+the fourth line from the bottom of the first page of Chapter 1,
+
+你看看开始第四行的上头就明显的写着：灭共是正义的需要
+if you look at the top of the fourth line at the beginning, it clearly says that destroying communism is the need of justice
+
+然后你接下来很简单的宣言
+after that, it’s a very self-explanatory declaration
+
+你看看往下
+Continue reading down,
+
+每一个从天到地
+everything from the sky to the earth,
+
+从人到动物，从动物到植物
+from humans to animals, plants,
+
+从植物到环境、到山、到水
+and from plants to the environment, the mountains and water,
+
+没有我们不囊括进去的
+there is nothing that we do not included
+
+我们不仅说中国人的事
+We not only talk about things of the Chinese
+
+我们要说全人类的事
+We want to talk about thins of the whole mankind
+
+我们还说全天下的事
+We also talk about the whole world
+
+大家都知道去年发生了体育界最重要的彭帅事件
+Everyone knows that the most important Peng Shuai incident in sports took place last year
+
+彭帅和我东弟、颖妹妹，还不是一个重量级的，是吧？
+Peng Shuai and our brother Hao Haidong, sister Ye Zhaoying are not the same weight-class, right?
+
+发生了张高丽作为一个国家副总理
+It happens that Zhang Gaoli, as a deputy prime minister of the country
+
+天天代表着爹亲娘亲不如党亲的党
+who is representing a party whose fathers and mothers were inferior to the party
+
+张高丽告诉彭帅同志“宇宙无限大，地球是一粒沙”
+Zhang Gaoli told Comrade Peng Shuai that the universe is infinite, and the earth is a grain of sand
+
+但没有人问呢
+But no one asked
+
+谁是宇宙？谁是那个地球？谁是那个沙呢？
+Who is the universe, who is that earth, and who is that sand?
+
+没有人问过这些话
+No one has asked these subjects
+
+我憋了好几天了
+I have been holding back for several days
+
+我今天就憋着等东弟、颖妹妹
+I am holding back today to wait for brother Hao Haidong and sister Ye Zhaoying
+
+我东弟估计跟别人讲过这个
+My brother Dong probably has already told others
+
+宇宙无限大，地球是一粒沙
+that the universe is infinite, and the earth is a grain of sand
+
+然后意思我郝海东是宇宙
+and then he meant himself is the universe
+
+我是球星嘛，是吧？
+because he’s a soccer player star. Right?
+
+我颖妹妹肯定没干过
+My sister Ye Zhaoying must had never done it (PengShuai’s situation) before
+
+那意思我是宇宙，你是那一个沙子
+So that she is the universe and you are a grain of sand
+
+我想干啥就干啥，你跟我能比吗？
+She can do whatever she wants, and no one can compare with
+
+我宇宙当然是沙子的主人了，是吧？
+Of course, as the universe, one should be the master of sand. Correct?
+
+后来东弟决定不做那宇宙了
+Later on, brother Hao Haidong had decided not to be that universe
+
+也不跟人家玩一粒沙的游戏了
+and also didn’t want to play the game of a grain of sand with others
+
+他告诉大家，应该像这样
+He told everyone similar to this
+
+对天地、对人的敬意和爱意
+how respect and love to the world and people
+
+它叫新中国联邦
+it is called the New Federal State of China
+
+* * *
+
+Date: 01/02/2022
+原视频标题: 七哥介绍新中国联邦宣言(上)
+(Brother 7) Miles Guo introducing the New Federal State of China Declaration (Part 1)
+原视频日期：2022/01/01
+原视频链接: [https://gettr.com/post/ple87v57b5](https://gettr.com/post/ple87v57b5)
+任务编号：KC393（3393）
+视频时间段 : 0:00-02:17
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+
+00：07 黑社会的劫社文化，叫劫社大纲 改为 黑社会的结社文化，叫结社大纲
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
