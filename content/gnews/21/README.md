@@ -2,39 +2,24 @@
 ---
 
 
-## 德约科维奇获疫苗豁免参加澳网触怒澳洲人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1823848/)
+## 乔·罗根带领其数百万推特粉丝入驻盖特
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823994/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-48.jpg)图片来源：Fox Sports
-整理报道：小鱼儿
-编辑：李易通
+#### 翻译/校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/joe-rogan.png)图片来源：outkick
+根据福克斯商业新闻电视台（Fox Business）1月3日的报道，博客巨头乔·罗根（Joe Rogan）周日开设了他的盖特（GETTR）账号，并鼓励他的780万推特粉丝加入盖特。
 
-据澳大利亚广播新闻1月5日报道，网球明星诺瓦克·德约科维奇透露，他获得了参加澳大利亚网球公开赛的旅行豁免权，随后澳大利亚人做出了愤怒和困惑的反应。
+许多推特用户对罗根的推文做出反应，致使盖特在整个周日下午成为推特上的热门话题，许多人显然接受了罗根的建议并开设了账号。罗根在盖特上写道，“（防止）如果有一天推特变得更蠢，我现在也（搬到）这里，欢呼吧。”
 
-德约科维奇一直拒绝透露他的疫苗接种情况，因此看起来不太可能被允许参加比赛。然而，这位塞尔维亚明星周二在Instagram上透露，他已经获得了医疗豁免。
+在罗根搬到盖特的同一天，众议员马乔里·泰勒·格林（Marjorie Taylor Greene）的个人账户因传播推特所认为的中共病毒“错误信息”被推特永久封禁。
 
-澳大利亚网球公开赛和维多利亚州政府在周二晚上确认了这项豁免，并表示已经进行了审查，确认德约科维奇有 “真正的医疗状况，符合豁免的标准”。
+罗伯特·马龙（Robert Malone）博士是mRNA疫苗技术的贡献者。上周在他参加罗根播客节目的几天前，推特也封禁了他的账号，目前马龙博士也在盖特开设了账号。
 
-这一决定在社交媒体上引起了澳大利亚人的愤怒。
+盖特是由前川普顾问杰森·米勒（Jason Miller）于7月4日推出的。米勒在采访中表示，他希望盖特这个社交媒体应用“独立于社交媒体垄断，独立于取消文化（Cancel culture）；拥抱自由言论。“仅在盖特面市的第一天就突破100万次下载量，而且推出后仅三天盖特就达到100万名注册用户，这是有史以来最快达到100万用户的平台。
 
-“诺瓦克·德约科维奇是有史以来最伟大的网球运动员之一。忘掉拉沃、阿加西、费德勒、桑普拉斯、纳达尔、麦肯罗、康纳斯和博格吧，诺瓦克已经赢得了20个大满贯和87个冠军，并在我们不知道他有一个衰弱的健康问题情况下赢得了10亿澳币。”伟大的澳式足球员凯文·巴特利写道：“我们被当做了傻瓜。”
+米勒说：“盖特平台还在成长中，当你看看那些其他平台时，这真的很令人兴奋，看看他们花了多长时间才到达100万名用户，脸书在他推出的第一年达到该目标，而推特则用了近24个月才达到100万名用户。我们只花了三天。我认为这表明，人们对一个不对政治信仰进行审查的平台兴趣极大。”
 
-网球记者罗滕伯格对德约科维奇豁免的合法性提出质疑，“澳大利亚当局列出了‘急性重大疾病’，一个排名第一的健康的运动员能有什么‘急性重大疾病’？”
-
-澳大利亚新星亚历克斯·德米纳尔在职业网球锦标赛后的新闻发布会上做出了简短的回应：“这非常有趣，这就是我要说的。”
-
-维多利亚州著名的急诊科医生斯蒂芬·帕尼斯说，这项豁免向试图阻止新冠病毒传播的人们发出了一个令人震惊的信息。“我不关心他是多么优秀的网球运动员。如果他拒绝接种疫苗，他就不应该被允许进入。”帕尼斯写道。
-
-原文链接：[Novak Djokovic’s exemption to play the Australian Open sparks fury and confusion](https://www.abc.net.au/news/2022-01-05/novak-djokovic-reaction-after-tennis-exemption/100738672?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Joe Rogan leads move to GETTR after Twitter bans Dr. Robert Malone, Rep. Marjorie Taylor Greene](https://www.foxbusiness.com/politics/joe-rogan-gettr-twitter-bans-dr-robert-malone-rep-marjorie-taylor-greene)
 
  
 

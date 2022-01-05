@@ -2,32 +2,34 @@
 ---
 
 
-## 中共2015年就窃取了对抗中共病毒的单克隆抗体疗法
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1823726/)
+## 美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823866/)
 
-**撰稿：彩虹**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-124923.jpg)
-自2016年费城联邦检察官起诉5人盗窃葛兰素史克（GSK）新药成果，谋划卖往中国后，2022年1月4日，《国家脉动》新闻调查记者娜塔莉·温特斯（Natalie Winters）发布了新的报道，指第三位受雇于葛兰素史克公司的科学家承认窃取商业机密，包括中共病毒（COVID-19）疗法背后的科学知识，帮助一家竞争对手、由中共国家资助的中国制药公司。
+作者：纽约香草山农场疫情关注组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国主流保险公司OneAmerica ，首席执行官Scott Davidson 12月30日出席了一场由印第安纳州商会组织的，在线新闻发布会，他在会上表示，18 至 64 岁工龄人群的死亡率比新冠疫情前增长40%，这对于所有从事该行业的公司来说，都是闻所未闻的惊人数字。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-15.jpg)
+通过这些数据，Davidson 认为，新冠疫情对18～64岁人群所造成的实际死亡率，远远高出官方通报的死亡病例数。
 
-文章报道，席露（Lucy Xi）与三名共同被告人在中国共产党的资助下成立了中国任诺药业（Renopharma）公司，宣称是为了研究和开发抗癌药物。然而，该团队利用该公司作为一个通道，从美国葛兰素史克公司（GSK）窃取信息。
+不仅如此，由于医院人满为患，民众得不到及时而妥善的救治，长短期的伤残索赔也在不断增长。早前，印第安纳州首席医疗官Dr. Lindsay Weaver也曾表示，目前该州的住院人数比一年前推出 COVID-19 疫苗时要高，确切地说，住院人数比过去五年都要高。
 
-席露和她的同事们在位于宾夕法尼亚州上梅仁（Upper Merion）的一家葛兰素史克公司的工厂工作。
+另一方面，Davidson预计，高额的死亡及伤残索赔成本对任何一家保险公司来说，都无力承担，通过增加保费来转嫁压力是保险业的惯常做法，随着时间的推移，公司会因为不断增长的用人成本而逐渐倒闭，18～64岁受雇人群也会因为不断出现的健康问题，而造成严重的人力短缺。
 
-据美国司法部（DOJ）称，2015年1月，她向同谋者梅岩（Yan Mei）发送了一份包含“机密和商业秘密数据和信息”的葛兰素史克公司文件。
+参考链接：[美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增](https://gnews.org/zh-hant/1820434/)
 
-司法部指出，这封电子邮件侧重于单克隆抗体的研究，这是一种实验室生产的分子，通常作为中共病毒（COVID-19）的治疗手段，尽管这是在中共病毒爆发前几年发送的。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-在电子邮件的正文中，席露写道：“该文件提供了葛兰素史克公司当时对单克隆抗体的研究摘要，你需要很好地理解它，将有助于你（任诺药业）未来的商业业务”。
+总编/编辑：天滅中共
+校对/发稿：Hetangyuese
 
-美国检察官威廉姆斯（Williams）指出，“这名被告非法窃取商业机密，使她丈夫的公司受益，而该公司是由中国政府资助的。像葛兰素史克这样公司的命脉是其知识产权，当该财产被盗并转移到外国时，它威胁到成千上万的美国就业机会，并危及通过研究和开发带来的战略利益。这种犯罪行为必须在法律的最大范围内受到起诉”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-联邦调查局费城分局负责的特别探员杰奎琳·马奎尔（Philadelphia Division）说：“像葛兰素史克这样的制药公司投入了惊人的时间和金钱来开发新药并将其推向市场。当个人窃取有关这些药物的宝贵商业机密时，对该公司和其他公司都是一种威胁。毕竟，像这样的创新推动了美国经济的发展。联邦调查局致力于执行法律，保护美国的企业免受此类盗窃。我们不会允许美国的研究和开发被用来为其他公司或国家谋取利益”。
-
-**新闻来源**
-
-[Chinese Communist Researcher Stole U.S. Monoclonal Antibody ‘Secrets’… In 2015](https://thenationalpulse.com/2022/01/04/ccp-pharma-stole-gsk-antibody-secrets/)
-
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

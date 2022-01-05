@@ -2,38 +2,24 @@
 ---
 
 
-## 纽约每天的COVID阳性率飙升至近20%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823864/)
+## 接种疫苗女性开始为生育困难和择偶受歧视而后悔
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1824048/)
 
-评论：《共产党宣言》的书中首句就是“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” ，现在这个幽灵已经冲出欧洲，在全球徘徊了。病毒已经把全世界祸害得没有一块净土，但其溯源竟然还没有得出官方定论，如此说来人类首先不应抗疫，而是应先除魔，因为魔不除，祸不止！
+翻译：nstar
+![此图像的alt属性为空；文件名为xwoimanan.jpg.pagespeed.ic_.iNJpvXFBsT.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/xwoimanan.jpg.pagespeed.ic_.iNJpvXFBsT.jpg)图片来源：div
+之前每个人都被告知，没有接种疫苗的人将会后悔。但现在情况恰恰相反，接种过中共病毒（COVID-19）疫苗的女性在约会中被潜在的伴侣拒绝，因为她们可能有生育缺陷和不孕的问题。
 
-据《New York Daily News》 作者：Tim Balk，2021年12月28日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-230.png)图片来源：New York Daily News
-12月28日星期二，纽约曼哈顿，游客挤满了时代广场，人们在接受Covid-19检测。（Barry Williams/for New York Daily News）
+纽约的女性开始谎报她们的疫苗接种情况，因为男性普遍认为她们不育或会生下有先天缺陷的孩子。对于那些相信‘纯血统’的人来说，熬过漫长而经受住疫苗接种压力的男性和女性认为，未接种疫苗的女性卵子和精子会非常有价值。事实上，有人开玩笑说它可能是下一个比特币。
 
-在最新一批全州每日数据中，几乎每五个接受COVID测试的纽约人中就有一个得到阳性结果，这惊人地反映了Omicron毒株的高传播率。
+世界各地关于接种疫苗的女性出现出生缺陷的报告正在激增。许多受人尊敬的医生提出的一个非常早期的理论是，mRNA疫苗会干扰一种叫做Syntectin-1的蛋白质，这种蛋白质在怀孕期间是至关重要的。
 
-根据Hochul州长办公室的数据，该州周二记录了40,780个新的COVID病例，其中27,774个出现在纽约市。
+不幸的是，许多女性 “相信 “来自主流媒体的“科学”，她们现在正在承受政府在扩大宣传和压制不同声音方面的行为的后果。
 
-最新的病例数标志着从最近的高峰期有所下降 —— 自进入圣诞节后，全州每天的病例数几乎达到了50,000个 —— 但整体测试在假期前激增，使数字出现偏差。
+参考链接:
 
-根据州长办公室的数据，周二的阳性率为19.3%，七天的平均值攀升至13.4%。
+[https://thecovidworld.com/vaccinated-women-are-now-lying-about-their-vax-status-as-more-men-see-them-as-infertility-risk/](https://thecovidworld.com/vaccinated-women-are-now-lying-about-their-vax-status-as-more-men-see-them-as-infertility-risk/)
 
-虽然严重变异的Omicron菌株可能导致较不严重的疾病，但其闪电般的传播速度已造成医院和运输系统等基本服务的人员短缺。
-
-* * *
-
-文章来源: [https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html](https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对发布：Shifter
 
  
 

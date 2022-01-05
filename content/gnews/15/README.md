@@ -2,32 +2,47 @@
 ---
 
 
-## 使用消毒鼻腔喷雾剂和漱口液来预防中共病毒感染
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1823868/)
+## 联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1824073/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-04-at-6.28.12-PM.jpeg)Image: 24hamburg.de
-就像静脉注射和羟氯喹（HCQ）一样，碘被大制药公司贴上了 “危险 “的标签，因为它可以保护/治疗，不需要消毒剂、口罩、”疫苗 “和封锁, 而且价格便宜。
+作者：东京樱花团—在远方
 
-前线 COVID-19重症监护联盟 (FLCCCA)建议:
 
-抗病毒漱口水, 每天漱口3次（不要吞咽；必须含有洗必泰、聚维酮碘或氯化乙酰吡啶）。
 
-碘酒喷鼻剂/滴鼻剂, 使用1%聚维酮碘，每天2-3次。(怀孕期间不超过5天）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-来自孟加拉国的随机控制试验发现，鼻/口碘喷雾剂可使白血病的住院率降低84%，死亡率降低88%。
 
-聚维酮碘鼻腔喷雾剂杀死病毒并防止未来感染，便宜、简单、有效!
 
-参考链接:
+台媒报道，美国当地时间1月3日，针对35名特种部队成员的申诉，联邦地方法院法官欧康纳颁发一项临时禁制令，禁止五角大楼对因宗教理由而拒绝接种中共病毒疫苗的特种部队成员执行惩罚。
 
-[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8026810/)
+欧康纳法官给出的判词是：本案的海军服役人员，用他们的牺牲，来维护和捍卫美国的自由，中共病毒并没有提供给政府可以废除这些自由的许可。 代表35名原告的法律团队，自由至上协会(First Liberty Institute)，对法官的这项判决非常满意，该协会的法务长贝瑞表示，强迫一名军人在自己的信仰、以及为国家服务之间抉择，违反了宪法和美国的价值观。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.1.jpg)
+参考链接：
+[特種部隊拒打疫苗遭罰 美法官出手擋下](https://cn.rti.org.tw/news/view/id/2121215)
 
-[https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections](https://uknow.uky.edu/research/clinical-trial-looks-antiseptic-nasal-spray-and-gargle-prevent-covid-19-infections)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-[https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x](https://journalotohns.biomedcentral.com/articles/10.1186/s40463-020-00474-x)
+总编：飞虹
+编辑：天滅中共
+校对/发稿：为真不破20
 
-校对发布：Shifter
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

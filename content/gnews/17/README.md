@@ -2,34 +2,25 @@
 ---
 
 
-## 美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823866/)
+## 美国人寿保险索赔人数之高创美国历史
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1824056/)
 
-作者：纽约香草山农场疫情关注组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国主流保险公司OneAmerica ，首席执行官Scott Davidson 12月30日出席了一场由印第安纳州商会组织的，在线新闻发布会，他在会上表示，18 至 64 岁工龄人群的死亡率比新冠疫情前增长40%，这对于所有从事该行业的公司来说，都是闻所未闻的惊人数字。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-15.jpg)
-通过这些数据，Davidson 认为，新冠疫情对18～64岁人群所造成的实际死亡率，远远高出官方通报的死亡病例数。
+作者：Snowman
+![](https://assets.gnews.org/wp-content/uploads/2022/01/OneAmerica.jpeg)
+2022年1月4日The Expose报道： 美国一家主要的人寿保险公司OneAmerica的报告称，自开始推行COVID-19疫苗计划以来，死亡索赔的数量大幅上升，死亡率上升了40%，这些死亡主要发生在18岁至64岁的工作年龄段的群体。OneAmerica人寿保险公司的总部位于印第安纳波利斯，建立于1877年，是有着悠久历史的保险公司。公司首席执行官Scott Davison说：”我们现在看到的，是我们这个行业历史上的最高的死亡率。而且不仅仅是在OneAmerica公司内部，参与该业务的每一个参与者提交的数据都是一致的。“
 
-不仅如此，由于医院人满为患，民众得不到及时而妥善的救治，长短期的伤残索赔也在不断增长。早前，印第安纳州首席医疗官Dr. Lindsay Weaver也曾表示，目前该州的住院人数比一年前推出 COVID-19 疫苗时要高，确切地说，住院人数比过去五年都要高。
+用于制造COVID-19疫苗的mRNA技术的发明人、医学博士罗伯特-马龙告诉记者：“当他收到一位股票分析师同事发来的、有关OneAmerica公司的电子邮件时，让他感到极为震惊”。马龙说：“这个（邮件）标题，就像被伪装成了一个保险代理人装满统计表格的信封的真正的原子弹“。邮件标题是：印第安纳州人寿保险公司首席执行官说，18-64岁的死亡人数增加了40%。
 
-另一方面，Davidson预计，高额的死亡及伤残索赔成本对任何一家保险公司来说，都无力承担，通过增加保费来转嫁压力是保险业的惯常做法，随着时间的推移，公司会因为不断增长的用人成本而逐渐倒闭，18～64岁受雇人群也会因为不断出现的健康问题，而造成严重的人力短缺。
+为了更 清楚的解释这个问题，分析师同事告诉马龙：”你要知道这有多么糟糕，有多么严重。在疫情前，一个三西格玛极限（一种统计计算）或一个200年一遇的大灾难的死亡率也就会增加10%，所以40%是闻所未闻的“。马龙还被告知：“绝大多数被提交的死亡索赔没有被归纳于COVID-19。因此，在工作年龄段的人群中，因为疫情而死亡的实际人数被大大低估了，他们肯定不全是死于COVID-19，但死亡人数增加巨大，巨大的数字。”
 
-参考链接：[美国保险公司CEO证实，18～64岁人群死亡率增长40%， 长短期伤残索赔激增](https://gnews.org/zh-hant/1820434/)
+评论：我们都不会怀疑，保险公司对于任何索赔率都是有严格运算团队精确计算的，我一直认为人寿保险基本上是只赚不赔的生意。如果死亡索赔增加了40%，这应该还不包括没有申请人寿保险的死亡人数，那么按200年一遇的大灾难死亡人数增加10%来计算，剩下的30%的全因死亡率因如何归类呢？除非与COVID-19疫苗有关，否则无法解释死亡人数会有如此大量的增加。无论如何，未来世界上所有的人寿保险公司将面临巨大的挑战，承担巨额索赔的压力，尤其涉及到众多名人的昂贵保险索赔。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+参考链接：[US Life Insurance Company](https://dailyexpose.uk/2022/01/04/us-life-insurance-company-reports%20-40-increase-in-death-claims-since-start-of-covid-19-vaccine-rollout/)
 
-总编/编辑：天滅中共
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,30 +2,35 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-12
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823865/)
+## CCP ，你要全民皆兵吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1824055/)
 
-作者：纽约香草山农场 – 天滅中共
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在本期的采访视频中，记者 ISOBEL YEUNG 指鹿为马，将滕彪形容成，为中国人争取民主自由的人权律师，并将滕彪对郭文贵先生的单方面指控作为事实陈述，当郭先生针对细节提出质疑时，Isobel顾左右而言他，并在最后的采访视频中，精心剪辑，以达到丑化郭先生的险恶用心。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-14.jpg)
-现在，我们一起看到，还原采访真相第12期：HBO-VICE拿滕彪说事，断章取义，抹黑郭文贵先生。（播放视频09:48）
+撰稿：二号电梯
 
-参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-12](https://www.gettr.com/post/pkgc524e89)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1.jpg)
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+图片来自网络
 
-总编/编辑：天滅中共
-校对/发稿：Hetangyuese
+中共乌鲁木齐晚报全媒体讯（记者陈彦仿）2022年起，新的体育项目武术兵道正式在新疆推广，最先向全疆中小学生普及，同时为国家体育总局将此项目申请进入奥运会提前做专业筹备和训练。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+昨日，全国武术兵道教练员、裁判员考核培训班（乌鲁木齐站）正式开班，新疆121名教练员、裁判员接受培训。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+据了解，武术兵道是中国武术以手持兵器为特征的现代武术项目。武术兵道是一个改革运动项目，在继承传统短兵基本技术基础上加以提炼，动作可以归纳为“劈(力劈华山)、砍(石破天惊)、斩(苍龙探海)、刺(仙人点画)”。比赛采取连续得分制，并且加入了减分阵亡制，大幅提高了对抗强度和观赏性，更符合现代青年人的喜好。
+
+大家都记得超限战这本书吧，这本书在中共高级军事院校是作为教材使用的。它的作者之一是国防大学教授乔良，军衔解放军少将。书中写道：
+
+如果我们真正遭遇了与美军的作战…….我们只要让美军……整体能力……降到“二战”时的水平。这时，决定胜利的主要因素就变成：一是数量，二是勇敢。而这两者我们都不缺。
+
+中共现在正在做的事情难道不就是利用病毒+疫苗，瘫痪美国最先进最发达的体系，迫使其回到与中共同等的“二战”时的水平吗？而这时中共人口数量绝对碾压美国，而且中共对老百姓成功洗脑几十年，勇气也绝对不输美军！这种情形下，中共自认为完全可以不用惧怕美军！
+
+而中共现在从新疆开始，对小学生，中学生进行的所谓“劈”，“砍”，“斩”，“刺”训练，哪是什么传统武术项目！这完全就是步兵作战的基础动作！看来中共的用心已经昭然若揭了，它这是打算要全民皆兵呀！
+
+参考消息：
+[武术兵道正式在新疆推广 – 今日头条](https://m.toutiao.com/is/8mRauHm/)
+
+发稿： Hong
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
  
 

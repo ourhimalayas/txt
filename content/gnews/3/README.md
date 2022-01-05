@@ -2,48 +2,24 @@
 ---
 
 
-## 联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1824073/)
+## 瑞典国王和王后打过3针疫苗仍然感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824182/)
 
-作者：东京樱花团—在远方
+整理编辑：东京樱花团｜peterwong
+![](https://lh4.googleusercontent.com/nqmm5sCjNa6JCAvnySdZWuPVCU-5CyqxdL76K-puXb_LYejXjRt-qMiX7aJWxE6GaStzF8imxuVV2wmmm1j9ep3rYL5Ayv2NYn7RPt9_UHjkkSZXn7VTXe5SCb4u2ni8TGrjRW6A)[*图片来源*](https://cdn.hk01.com/di/media/images/3381317/org/1e6d5b03c2a0d587077f83681387629a.jpg/rLkRz6aKRkk1vqtydCgfvHpDp4vvPWPHfGdbZnxnW2Y?v=w1280r16_9)
+瑞典王室周二（1月4日）在声明中表示，国王卡尔十六世古斯塔夫(King Carl XVI Gustaf)和王后西维亚(Queen Silvia)中共病毒（新冠）检测呈阳性，他们之前都已打过三针中共病毒疫苗。
 
+在Omicron病毒变体的肆虐下，瑞典染疫人数不断增加。卫生机构周二的最新数据显示，瑞典12月30日新增11,507例病例，创下单日纪录新高。
 
+王室在声明中表示：“已经完整接种三剂疫苗的国王和王后症状轻微，在这样的情况下，他们感觉还好。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+王室表示，75岁的国王和78岁的王后正在自我隔离，目前追踪相关接触者的工作也在进行中。
 
+消息来源：[**瑞典国王和王后确诊染疫隔离中 症状轻微**](https://cn.reuters.com/article/sweden-king-queen-covid-0105-idCNKBS2JF03B?il=0)
 
-
-台媒报道，美国当地时间1月3日，针对35名特种部队成员的申诉，联邦地方法院法官欧康纳颁发一项临时禁制令，禁止五角大楼对因宗教理由而拒绝接种中共病毒疫苗的特种部队成员执行惩罚。
-
-欧康纳法官给出的判词是：本案的海军服役人员，用他们的牺牲，来维护和捍卫美国的自由，中共病毒并没有提供给政府可以废除这些自由的许可。 代表35名原告的法律团队，自由至上协会(First Liberty Institute)，对法官的这项判决非常满意，该协会的法务长贝瑞表示，强迫一名军人在自己的信仰、以及为国家服务之间抉择，违反了宪法和美国的价值观。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.1.jpg)
-参考链接：
-[特種部隊拒打疫苗遭罰 美法官出手擋下](https://cn.rti.org.tw/news/view/id/2121215)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

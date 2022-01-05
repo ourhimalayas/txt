@@ -2,27 +2,33 @@
 ---
 
 
-## 网络运营商对自媒体用户进行独裁管控
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823749/)
+## 疫苗暴政酿悲剧 澳洲男子被迫自焚抗议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823867/)
 
-采编： UCool 优酷            编译撰稿：自由法兰西
+作者：加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒1月3日消息，澳洲一名男子选择在元旦日当天，自焚反抗当局的疫苗暴政。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/tgp-link-tmobile-deleted-e1641139132794.jpg)图片来源：thegatewaypundit
+有目击者表示，该男子当时正坐在车里，一边大声疾呼自己对强制疫苗的愤怒，一边往身上和车里浇汽油，然后点火自焚。救护车很快赶到，将当事人送往医院救治，目前情况危殆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-16.jpg)
+事发地隶属维多利亚州，当地政府要求所有进出酒吧、餐馆及其他公共场所的人，都必须出示疫苗接种证明，所有公司雇员也必须完全接种新冠疫苗。
 
+参考链接：[疫苗暴政酿悲剧 澳洲男子被迫自焚抗议](https://thehill.com/changing-america/well-being/mental-health/587989-man-sets-himself-on-fire-after-angry-rant-about)
 
-据美国[网关专家]1月3日报道，继支付宝此前无故关闭了该自媒体及其创始人的账户后，网络运营商[T-Mobile]也开始在该网站的链接转发过程中作梗。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-报道称，如果用户使用T-Mobile的网络服务器转发[网关专家]的文章，那么相关链接就会在传输过程中莫名消失而无法接收。据悉，该自媒体是2021年美国排名前300的网站之一。但在2017年川普总统竞选过程中发挥了巨大影响力后，Facebook就开始人为减少该媒体的关注量。
+总编：飞虹
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-由于一直坚持真相报道，[网关专家]的用户不断增长，并在去年发布了美国大选期间，底特律民主党计票中心非法偷运选票的视频后，[推特]随即冻结了该媒体的账户。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-报道因此指出，网络运营巨头们利用高科技来人为管控其用户的在线观看量以及阅读和讨论内容等，与前苏联独裁者斯大林的暴政无任何本质区别。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/](https://www.thegatewaypundit.com/2022/01/upodate-stalinist-censorship-gateway-pundit-t-mobile-makes-members-board-users-urge-calls-state-attorneys-general/)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

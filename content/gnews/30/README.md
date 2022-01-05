@@ -2,23 +2,30 @@
 ---
 
 
-## 加拿大广播公司极端思潮受到猛烈抨击
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1823725/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-12
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1823865/)
 
-采编/编译撰稿：薇文      校对编辑，发稿：硫酸羟氯喹64
+作者：纽约香草山农场 – 天滅中共
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在本期的采访视频中，记者 ISOBEL YEUNG 指鹿为马，将滕彪形容成，为中国人争取民主自由的人权律师，并将滕彪对郭文贵先生的单方面指控作为事实陈述，当郭先生针对细节提出质疑时，Isobel顾左右而言他，并在最后的采访视频中，精心剪辑，以达到丑化郭先生的险恶用心。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-14.jpg)
+现在，我们一起看到，还原采访真相第12期：HBO-VICE拿滕彪说事，断章取义，抹黑郭文贵先生。（播放视频09:48）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-edited.jpeg)图片来源：tarahenley
+参考链接：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-12](https://www.gettr.com/post/pkgc524e89)
 
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-据由联邦政府资助的[加拿大广播公司]前雇员塔娜·亨利女士当天宣称，由于维护自己言论自由以及报道真相受阻等原因，她不久前已辞去该公司广播电视节目制作人之职。
+总编/编辑：天滅中共
+校对/发稿：Hetangyuese
 
-为此，塔娜在其个人网页刊文揭露道，[加拿大广播公司]不仅无视认知真伪，放弃新闻的完整真实性，还为减少与当权政府的摩擦，而对后者唯命是从，并极力展示对当局教条般的忠诚；同时，该主要媒体因为普通民众的观点与其相左，而敌视公众和封杀民意。并始终沉迷于被种族和身份政治的新闻文化所包围，甚至主张通过极端有偿化的社交媒体平台来煽动社会分裂。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-塔娜同时还斥责[加拿大广播公司]只关注于政治的陈词滥调，漠视其雇员的工资和工作条件；认可极权政府因采取诸如封城、强制接种疫苗和关闭学校等违宪措施所导致的社会民主消亡；此外，该公司不仅放弃对富豪财富和官僚权力的非法积累进行监督，也不允许民意和舆论对这些真相进行揭露。而所有这些都无疑体现出加拿大主流媒体最卑劣无耻的邪恶本质。
-
-* * *
-
-原文链接： [https://tarahenley.substack.com/p/speaking-freely?r=9dpfg&utm\_campaign=post&utm\_medium=web](https://tarahenley.substack.com/p/speaking-freely?r=9dpfg&amp;utm_campaign=post&amp;utm_medium=web)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
