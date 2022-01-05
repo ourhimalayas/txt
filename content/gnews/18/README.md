@@ -2,10 +2,10 @@
 ---
 
 
-## 外媒：中共故意少报新冠病毒死亡人数
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826069/)
+## 美国保险公司数据显示疫情后工作年龄人口死亡率激增
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1826091/)
 
-作者：银河勇气星—骄子
+作者：纽约香草山教育部 Naughty(文行)
 
 
 
@@ -13,15 +13,17 @@
 
 
 
-1月2日据福布斯评论员文章，自新冠病毒大流行以来，其起伏和变异逐渐成为经济活动和金融市场反应的晴雨表，呈正相关。西方民主国家和中共国因体制的不同，对待各自的新冠疫情采取了不同的方式。尽管中共在疫情数字表现上似乎非常完美，但金融市场的表现却在下跌，让人不得不怀疑新冠病毒统计数字的准确性。
+总部位于印第安纳波利斯的保险公司OneAmerica首席执行官戴维森表示，公司18-64岁的客户的死亡率比疫情前增加了40%，他称这是保险业历史上团体人寿保险业务最高的死亡率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-18.jpg)图片来源：Zerohedge
+戴维森在上周的在线新闻发布会上称如此高的死亡率从2021年第三季度一直持续到第四季度，40%的增幅是闻所未闻的。
 
-美国有超过82.5万人死于新冠病毒，中共国官方公布只有4636人。研究表明由于新冠病毒大流行期间公共卫生条件的制约，美国可能存在的新冠病毒死亡人数少报了大约30%。据郭先生直播，2021年11月8日前，中共死于新冠病毒人数为1370万人。
+据戴维森称，大多数提交的死亡案例并没有被归类为新冠病毒致死，实际上工作年龄人口因疫情而死亡的数字远比统计数字要高。
 
-中共对经济数据的谎报向来臭名昭著。对新冠病毒大流行以来的各种不配合溯源调查，从未共享的真实病例数据，严重阻碍了对疾病的科学理解和应对措施的有效性。
+他补充说，“目前该公司的索赔率不断上升，这部分本来是公司最小的业务板块，但现在我们预计这笔费用将远远超过1亿美元，它对公司产生了巨大影响。”
 
-种种迹象显示中共已经深陷塔西陀陷阱。
+OneAmerica遭遇的情况真实的验证了郭文贵先生在中共病毒爆发之初的判断：病毒爆发必然导致保险公司破产，保险公司破产必将导致银行破产，银行破产最终会导致金融崩溃。
 
-新闻来源：[https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/](https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/)
+新闻来源：[https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid](https://www.zerohedge.com/medical/life-insurance-ceo-says-deaths-40-among-those-aged-18-64-and-not-because-covid)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
 
