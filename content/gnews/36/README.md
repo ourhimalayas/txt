@@ -2,28 +2,28 @@
 ---
 
 
-## 美国、加拿大和日本的税务居民能不能通过在BVI成立公司来喜交所做KYC开户？
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1822106/)
+## GTV新闻访谈简报|2022年1月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1822250/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
-![](https://assets.gnews.org/wp-content/uploads/2022/01/KYC-2022-01-04-at-22.21.36.png)
-**美国、加拿大和日本的税务居民现在不允许在喜交所注册账户，那么他们能不能建立一个境外公司（比如说在BVI），然后以这个公司的名义在喜交所注册KYC呢？**
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO.jpg)
 
-**答案是肯定的，但是有需要注意的地方。喜交所白皮书提到，无论是自然人、机构或公司，只要认定这个自然人/机构/公司不在美国、加拿大和日本，并且能正确提供认证所需要的材料，就能被喜交所认可。**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**所以，从喜交所的角度来看 ，KYC只认证这个公司的实体是在哪个国家，至于这个公司的股东可以是世界上任何一个地方的居民，因为对这个喜交所账户负责的是这个公司，而不是这个公司的某个股东，因此喜交所会接受这样的公司来做KYC并开户。**
+视频参看：[2022.01.04早GTV新闻访谈](https://gtv.org/video/id=61d44ba331a71619b5749bca)
 
-**但要清楚的是，喜交所接受你的KYC，跟你做这个事情之后，它在你当地国产生的税务问题，是完全分开的两回事情。单独来讲，这样做是可行的，但是涉及到股东所在地的税务方面的责任和义务，必须单独拿出来对待，要遵循当地税务法的规定，比如美国的IRS和加拿大的CRA。**
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**还有更深入一些的问题，比如说每个国家之间是怎样来处理这种离岸投资？如何登记？这个人和所在国家税务局之间的关系是怎样？喜交所是如何确认这个公司的KYC资料是否完整？联名里的Director是谁？各个懂事是谁？最大的股东是谁？他们是哪国的公民？个人的资料是否需要进行公布？**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
 
-**综上所述，简单回答美国、加拿大和日本的税务居民能不能通过在BVI（或美国、加拿大和日本除外的其他国家）成立公司来喜交所做KYC开户？答案是肯定的，但里面涉及到的股东、懂事和税务问题是另当别论，且不容忽视。**
-
-直播视频：
-
-[第三十六期 金融税务专题](https://gtv.org/video/id=61b53fbb56f4921401b5860d)
-
-编辑/发文：蓝枫法律栏目
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

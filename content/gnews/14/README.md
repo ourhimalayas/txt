@@ -2,47 +2,55 @@
 ---
 
 
-## 联邦法官对拜登政府另一重拳：军事疫苗强制令非法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1823053/)
+## 新中国联邦爆料革命日历
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-12375223701.jpg)图片来源：网络
-来自CONSERVATIVE BRIEF星期二1月4日的新闻报道：
+**出品：纽约香草山设计部**
 
-总统拜登 (Joe Biden) 政府用来对抗 COVID 大流行的主要武器之一是疫苗强制授权。
 
-问题是，我们的宪法规定，在大多数情况下，政府不能将其意志强加于人，在这方面拜登一直在法庭上学习。
 
-最近的一个例子发生在周一，一名联邦法官发布了一项临时禁令，终止了总统对 35 名起诉政府的海豹突击队的疫苗强制授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-美国地区法官里德·奥康纳 (Reed O’Connor) 说：“我们的国家要求我们军队中的男男女女服役、受苦和牺牲。 但我们不会要求他们放弃他们的公民，放弃他们发誓要保护的权利。”
 
-“Covid-19 大流行不为政府提供取消这些自由的许可，第一修正案不因 Covid-19 有例外，我们的宪法没有将军事排除在外。 本法院没有轻视 COVID-19对军队的影响。 总的来说，在大流行期间，我们的武装部队已因 COVID-19 丧生 80 多人”，法官在他的决定中说。
 
-但他表示，“宗教自由的丧失超过了对海军即将造成的任何伤害”，“即使是最糟糕的情况也不能成为失去宪法权利的理由”。
 
-五角大楼发言人约翰·柯比周一晚间表示，国防部官员已知道法官的裁决并对其进行审查。
 
-11 月，由海豹突击队和海军特种作战司令部其他成员组成的部队向拜登总统、国防部长劳埃德·奥斯汀、海军部长卡洛斯·德尔托罗和国防部提起诉讼，挑战海军的疫苗接种要求。军队援引基督教信仰，即他们不应该接受由流产的胎儿细胞系开发的疫苗，并将他们身体的改造视为“对造物主的侮辱”。许多基督徒寻求接种疫苗，教皇方济各以人道主义为由敦促天主教徒这样做。
 
-该诉讼是由专门捍卫宗教自由的非营利组织 First Liberty Institute 提起的。该研究所的律师迈克尔贝里在接受电话采访时表示，该裁决“向拜登政府、五角大楼和海军发出了一个明确的信息，即我们的军人在为国家服务时不会放弃他们的宗教自由。 。”
 
-该决定是在周六另一位联邦法官阻止联邦启蒙早期教育计划中的职员接种疫苗之后做出的。
 
-美国地方法官特里·A·道蒂 (Terry A. Doughty) 在 24 个州提出的挑战中发出的初步禁令也阻止了该指令要求 2 岁或以上的启蒙学生在室内或与他人密切接触时戴口罩的要求。
 
-“如果允许行政部门篡夺立法部门制定法律的权力，那么这个国家就不再是民主国家，而是君主制国家”，美国地区法官特里·道蒂说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
 
-“他们能走多远？”道蒂补充道，“秘书能否要求启蒙计划中的所有儿童都接种疫苗？秘书能否要求 Head Start 中儿童的父母和兄弟姐妹接种 COVID-19 疫苗？这些例子可能看起来很牵强，但可以强制要求数百万美国公民接种疫苗的想法也是如此”。
 
-法官继续说：“这个国家显然已经走到了十字路口，如果允许行政部门篡夺立法部门制定法律的权力，那么这个国家就不再是民主国家，而是君主制国家。两年的大流行使整个国家都感到疲倦，然而，这并不是放弃三权分立的借口”。
+#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
 
-原文链接: [https://conservativebrief.com/federal-judge-4-57375/?utm\_source=Conservativebrief.com&utm\_medium=Push](https://conservativebrief.com/federal-judge-4-57375/?utm_source=Conservativebrief.com&amp;utm_medium=Push)
 
-编辑/发布：LILY
 
-20220104
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
 
 
  

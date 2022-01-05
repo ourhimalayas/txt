@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/5/2022 1:24 AM (UTC)`
+
+1月4号：【郭先生的情报准确无误，悲剧正在一幕一幕上演🙏🙏🙏】
+![img](https://media.gettr.com/group3/getter/2022/01/05/01/a48cde92-030e-11c7-ddac-9e9e10843388/62762ea58140d10125acdd323a72fec9.jpg)
+
+---
+
+`@miles 1/5/2022 1:19 AM (UTC)`
+
+1月4号：中国人当中我最尊敬的人之一……就是李小龙大师【Seven brothers interacted with an American friend on Gate, and he (or she) sent out a self-made tabloid card.  I feel like Brother Seven is Bruce Lee 😂.  Seven brothers are more legendary and more powerful than Bruce Lee!七哥 在盖特上与一位美国朋友互动，他（或她）发来自制的小报卡片。感觉把七哥当作李小龙啦😂。七哥比李小龙更传奇，更厉害多啦！】
+![img](https://media.gettr.com/group42/getter/2022/01/05/01/3f2cc38c-d9bc-a32c-1dd4-510ea5d789ca/32f6246749f099193ab3d144f16b65ef.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mtg4america 1/4/2022 4:56 PM (UTC)`
@@ -143,20 +157,6 @@ In radio interviews this morning, @GovTimWalz made no mention of the violent cri
 
 1/1/2022 Miles Guo: We grow in the negativity of others, to grow & mature rapidly in self-respect. There is only one reason that we are the ones who eliminate communism. Everyone is a butterfly; everyone can trigger the butterfly effect. When I live broadcast today, I feel that it is the result of the common growth, breathing, and struggle of all of our lives.You have been working on a great cause, something you might not fully appreciate its importance at this point in time.<br/><br/>1/1/2022 文贵先生新年直播：我们在否定中成长，在自恋中飞速的成长和成熟. 只有一个理由，因为我们是共同的灭共者.每个人都是一个蝴蝶，每个人都能扇起蝴蝶的力量.我每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸，共同奋斗的结果。你们在做着一生当中可能你自己到现在都无法想象的，多么伟大的事业。<br/>
 ![img](https://media.gettr.com/group23/getter/2022/01/03/07/476ea90f-4124-f274-25c6-e9ff23fd32a8/out.jpg)
-
----
-
-`@miles 1/3/2022 7:47 AM (UTC)`
-
-1/1/2022 Mr. Miles Guo: We have to be selfless, recognize truth and falsehood, discern between good and evil, conscience and justice will connect many people together, like fire to bring you life and remove evil.<br/><br/>1/1/2022  文贵先生新年直播：我们要无我，识真假，辨善恶，良知和正义会把很多人连在一起，像火一样给你带来生机，驱除邪。<br/>
-![img](https://media.gettr.com/group48/getter/2022/01/03/07/18efd499-eed2-6533-a181-db1dcee21d2e/out.jpg)
-
----
-
-`@miles 1/3/2022 7:39 AM (UTC)`
-
-1/1/2022 Miles Guo：2022 will be very exciting, and there will be huge challenges. The only opportunity and market of social media left is for us. The United States, Europe, and Japan are the three places of fierce attacks, and we must be fully psychologically prepared and insist that only truth is indestructible. We will definitely have another great harvest year in 2022, but you have to work hard before the harvest.<br/><br/>1/1/2022 文贵先生新年直播：2022年会非常的精彩，会有巨大的挑战。社交媒体唯一留下的机会和市场就是给我们的。美国、欧洲、日本这仨地方，会是猛烈攻击的地方，要做好充足的心理准备并坚持唯真不破。2022年我们绝对又是一个巨大的收获年，但收获之前你是要付出汗水的。<br/>
-![img](https://media.gettr.com/group42/getter/2022/01/03/07/81046d91-f2aa-631e-e18f-2126bc9cd3a5/out.jpg)
 
 ---
 

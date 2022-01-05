@@ -2,56 +2,48 @@
 ---
 
 
-## 新中国联邦爆料革命日历
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1823091/)
+## 雷·达利欧表示在印钞过程中，“愚蠢地拥有”现金和债券
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1823180/)
 
-**出品：纽约香草山设计部**
+作者：Nathan Crooks
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-42-scaled.jpg)
+雷·达利欧 (Ray Dalio) 周二重申了关于持有现金和债券的警告，因为受疫情影响美国的债务和货币宽松持​​续增加。
 
+他在 LinkedIn 上的一篇文章中写道：“这种印钞和购买债务资产已经将利率推低导致持有现金和债券是愚蠢的地步。” “我认为应该考虑尽量减少自己持有的美元、欧元和日元现金和债券。”
 
+Bridgewater Associates 创始人、亿万富翁达里奥表示，现在是借入这些货币的好时机。他补充说，应该投资财务状况良好的国家的股票以对冲资产通胀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+长期以来，达利欧一直以对中国及其作为全球大国的崛起感兴趣，但他表示，当前的经济同样受到美国内部财富和价值观的冲突，这种冲突自 1930 年代以来就从未出现过。
 
+他写道：“美国现在正在发生巨大的内部冲突，这使它成为一个危险的地方。” “例如，有可能双方都不会接受输掉结果的 2024 年选举。”
 
+关键要点：
 
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/00-whistleblower_movement_calendar_verticle-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0-whistleblower_movement_calendar-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-43C550F8-8850-4C65-9FB9-B9846D1E57F7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-7273794F-0F72-4321-B401-4F3F15CA8786.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-62A530A7-98A2-410C-BB4B-DBE9A43C2926-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-FDA30143-C877-40BD-BC6B-30F07E7F47A6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-DE94941D-3CB2-44B3-BE50-0BB81604D12C.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-27DA0B6E-3180-4BF6-A746-9128E3C56901.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-CFF06460-1BFA-46FA-B2C8-EB86A50E2E65-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-AB10C53F-3662-4EF6-8CDF-5FD5CEAE3627.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4BCB5531-0DB7-4331-89D3-E6FEF1D2B6C0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11-26CD52D9-E72A-4AC6-8255-822D253D66C5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-8D5058A1-B307-48EE-A2AC-9EA3E45B8330.jpg)
-
-
-#### 如战友**想要下载打印文件，请点击 **[**这里**](https://mega.nz/folder/dNtEDBJa#OJ7hp7WIwb5LLOJdXKDbuA)
-
-
-
-**编辑/发稿：小鹿**
+- “我认为应该考虑尽量减少持有美元、欧元和日元现金和债券（或借入这些资产），并将资金投入高度多元化的资产组合，包括股票和通胀对冲资产，尤其是那些国家拥有健康的财务状况和受过良好教育的公民，以及安稳的内部秩序。”
+- “我认为，在任何时期内，政府都不会允许现金回报优于你可接受的风险水平之内多元化、非现金投资组合的回报。因为那会导致可怕的问题。”
+- “三大储备货币帝国：美国、欧洲，以及日本的财务状况都不佳。”
+- “金融资产相对于实物资产的数量非常高，这可能会导致 ‘银行挤兑’式的从金融资产转向实物资产。”
+- “随着主导力量的削弱，其他力量变得强大到足以挑战它，内部和外部的冲突就会更加明显，从而导致谁将拥有财富和权力的革命性变化。旧时代将终止下一个新时代将到来。现在正在发生着这种情况。”
 
 
+来源：https://finance.yahoo.com/news/ray-dalio-says-cash-bonds-174352409.html
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**关注我们**
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Discord 账号
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Gettr 账号
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
