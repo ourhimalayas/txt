@@ -2,23 +2,32 @@
 ---
 
 
-## 狮城快讯：腾讯从虾皮母公司套现超30亿美金
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1825361/)
+## 瑞典国王伉俪接种三剂疫苗后双双确诊染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1825403/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-05-233938.jpg)
-据路透社周三报道，中共国游戏和社交媒体公司腾讯控股有限公司以每股 208 美元的价格出售了其在东海集团（Sea）的 1450 万股股票，套现 30 亿美元，东海集团拥有电子商务公司 Shopee。 腾讯周二晚间表示，公司已与Shopee达成协议，将其在这家总部位于新加坡的游戏和电子商务集团的股份从 21.3% 减少至 18.7%。
+作者：台湾宝岛农场 鬥陣來拼
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-05-下午11.22.44.png)
+报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
 
-撤资消息传出后，东海集团的股价周二在纽约下跌 11.4%，至 197.8 美元。在宣布之前，东海表示腾讯还同意将其在该公司的投票权削减至 10% 以下。
+另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
 
-经过这样的股权变动，东海的所有流通 B 类股份将由该集团创始人、董事长兼首席执行官 Forrest Li （李小东）作为最终受益人，目前该公司市值为 1100 亿美元。
+参考链接：[瑞典國王與王后雙雙確診染疫 暫時自我隔離](https://www.cna.com.tw/news/aopl/202201040397.aspx)
 
-李小冬是谁呢？小编一看这名字就知道肯定来自中共国的呀。 原来他出生于天津，父母是国营企业员工。[\[](https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%B0%8F%E5%86%AC#cite_note-Feminine-5)他在获得上海交通大学工程学位和斯坦福商学研究生院工商管理硕士学位后移居新加坡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-2021年8月，李小冬以198亿美元的净资产成为新加坡首富。连续多少年了，新加坡首富都是来自中共国，从海底捞的张勇夫妇到麦瑞医疗的李西廷，如今的李小东，他们是否是白手套不好说，但是和中共国的关系一定是非常紧密的，新加坡显然已经成为中共的天下了。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**[新闻来源](https://www.reuters.com/technology/tencent-sells-301-bln-stake-singapore-tech-group-sea-2022-01-05/)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
