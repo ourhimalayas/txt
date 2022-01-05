@@ -2,38 +2,25 @@
 ---
 
 
-## 纽约每天的COVID阳性率飙升至近20%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1823864/)
+## 中共疫情管制下的众生：西安一名孕妇因疫情管制在医院门口流产
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1823899/)
 
-评论：《共产党宣言》的书中首句就是“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” ，现在这个幽灵已经冲出欧洲，在全球徘徊了。病毒已经把全世界祸害得没有一块净土，但其溯源竟然还没有得出官方定论，如此说来人类首先不应抗疫，而是应先除魔，因为魔不除，祸不止！
+撰稿—八木
+校对/上传—无明逆流
 
-据《New York Daily News》 作者：Tim Balk，2021年12月28日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-230.png)图片来源：New York Daily News
-12月28日星期二，纽约曼哈顿，游客挤满了时代广场，人们在接受Covid-19检测。（Barry Williams/for New York Daily News）
+1月4日，陕西西安一名产妇家属发帖称，1月1日，有孕在身的小姨晚上肚子疼便紧急拨打120求救，可120一直处于占线打不通的状态。没办法之下打了110将小姨送往医院。晚上8点多到达西安高新医院，在医院门口由于“核酸超时”问题无法入院，一直等到晚上10点多。在门口等待期间小姨大出血，8个月的婴儿流产。
 
-在最新一批全州每日数据中，几乎每五个接受COVID测试的纽约人中就有一个得到阳性结果，这惊人地反映了Omicron毒株的高传播率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/W9-05-at-2.00.05-PM.jpeg)视频截图
 
-根据Hochul州长办公室的数据，该州周二记录了40,780个新的COVID病例，其中27,774个出现在纽约市。
+发帖人称，医院是看到孕妇大出血实在不行了，才接诊的。最终8个月大的孩子因医院见死不救胎死腹中。据发帖人说，在看到好友的朋友圈留言后才发现这种情况在医院并非个例。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Whats47.35-PM.jpeg)图片资料：微博
+目前，该发帖人三十万点赞量的“微博”帖子已被删除清空。据微博官方发布的核实通报显示，发帖人自行删除了微博内容。
 
-最新的病例数标志着从最近的高峰期有所下降 —— 自进入圣诞节后，全州每天的病例数几乎达到了50,000个 —— 但整体测试在假期前激增，使数字出现偏差。
+世界上最悲惨的事情，就是与医院只一步之遥的距离，你只能死在外面而不能进，他却能住在高干病房享受用之不尽的免费医疗。这就是中共统治下中国真正的面貌。
 
-根据州长办公室的数据，周二的阳性率为19.3%，七天的平均值攀升至13.4%。
+在这个国家，有能在疫情封城管制期间动用权力顺利从一个城市开车到另一个城市的“关系户”，也有因官员儿子要出城，某地病毒确诊区域就下调防控风险…这种种双重标准因人而异，唯独没有你我人民。
 
-虽然严重变异的Omicron菌株可能导致较不严重的疾病，但其闪电般的传播速度已造成医院和运输系统等基本服务的人员短缺。
-
-* * *
-
-文章来源: [https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html](https://www.nydailynews.com/coronavirus/ny-state-covid-positivity-rate-surges-to-almost-20-percent-20211228-ydsk3jy5hnhw7ex3t2in3cc74m-story.html)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+病毒因中共而生，也将随中共而灭。中共若不覆灭，人们也该放弃病毒会消失、强权管制会结束的希望。疫情管制下人的可怕，中共的可怕，相信经历其中的人已经深有体会。国人或许应该真正去审视现实，幡然觉醒才能避免灾上加灾，难上加难。
 
  
 
