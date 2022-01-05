@@ -2,38 +2,30 @@
 ---
 
 
-## 飞行员被迫注射实验性疫苗，出现心跳异常
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1824273/)
+## 法国新发现奥密克戎变种的远亲仍是中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824308/)
 
-**简评：**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/namC9KTJ1gmUQShxocpwjJUvh6we_xl8xoc3Nxwob7-zrWFIQcp17OcqQ6ZItDxQ6gK2G9Dn_0RUjxmfNEP7lC22lKM1NPPvXVUKgCqRCj0g2Qy4O3ZlYGBkBjV0ZvC8dH_v_yS6)[*图片来源（中共病毒出现在实验室培养的细胞表面）*](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
+**法国科学家再次发现 COVID-19 的另一种毒株变体是IHU Mediterranee Infection 。研究人员于发现该毒株有“46 个突变” ，据信比原始病毒更具传染性。大流行进入第三年，它的变体不断翻新，根源只有一种，即中共以舟山蝙蝠为骨架，对世界上几乎所有新发突发高致病性病毒进行研究并于2020年年初发布的结果。**
 
-飞行员Greg Peason不想打实验性的新冠疫苗，他一生中连流感疫苗都没有打过。但他要在夏威夷和加利福尼亚两个州之间旅行，而两个州有旅行限制。他所在的航空公司要求强制疫苗，无奈之下， 他接种了疫苗。开始一切正常，他睡醒之后，感觉心脏剧烈跳动。随后他去了急诊，被诊断得了房颤，这是引发中风的一个主要诱因。这就意味着，当Greg在飞行途中，随时可能发生中风，让整个飞机处在危险之中。政府、媒体、NIH和CDC都压制这些信息。有几个飞行员知道实情，但是害怕遭到报复不敢说。有的飞行员忍着胸部和头部的疼痛继续工作，因为他们害怕失业，他们只有25岁。这种情况必须停止。
+据美国红色之声援引《[每日邮报](https://www.dailymail.co.uk/tvshowbiz/article-10367191/Kate-Garraway-says-husband-Derek-Draper-phenomenally-fatigued.html?ito=chromelessDM_0)》报道称，“[法国科学家这次发现了 COVID-19 的另一种变体](https://www.redvoicemedia.com/2022/01/breaking-new-ihu-covid-variant-discovered-heres-what-you-need-to-know/?utm_source=daily-email-breaking&amp;utm_medium=email)。”毒株是研究人员于 12 月 10 日发现的，由 IHU地中海感染 （ IHU Mediterranee Infection ） 的。 该毒株有 46 个突变，据信可以抵抗 COVID-19 刺突蛋白，并且它们被认为比原始病毒更具传染性。迄今为止，在法国马赛市附近发现了 12 个病例，第一个病例与前往非洲国家喀麦隆有关。[**阅读更是多**](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
 
-YouTube视频链接：
+据报道，这种被称为 B.1.640.2 的菌株携带 E484K 突变，专家认为这使其更能抵抗所谓疫苗。该菌株是目前在世界各地流行的奥密克戎（ Omicron ） 变种的远亲。
 
-
-
-[GTV视频链接](https://gtv.org/video/id=61d30de9dffab035958a4e12)
-
-**视频链接：**
-
-**飞行员****Greg Peason****：**我也不想打疫苗。 在我的一生中没有打过流感疫苗。给我的身体内注射实验性药物，不是我想要的。在我居住的两个州之间旅行，夏威夷和加利福尼亚，我在那里有家，两个州有旅游限制。我的航空公司要求强制疫苗，在这种压力下，我决定接受疫苗。上午11:30在夏威夷我打了疫苗，一切都正常。睡觉后，早晨3:30醒来，我的心脏要跳出胸膛了。我去了急診，他们很快给我做了心电图、静脉注射、血液检查，很快确定我是房颤。这是中风的一个主要诱因。
-
-Lee（医生）说，飞行中有一个很关键的阶段，是什么呢？在我驾驶价值几百万的飞机搭乘着你们飞往你们想去的地方之前，我必须在飞行许可的一个选项上打勾。我打勾的那个选项说的是，我是适合飞行的，那是在新冠病毒之前。在那个时候你能及时知道自己身上出现食物中毒、感冒之类的症狀。但你永远不知道这个精灵（疫苗副作用）什么时候会从瓶子里出来把你打倒。
-
-我也许会在距离飞机着陆100英尺的时候出现中风，下面也许会有40架飞机排成一排，那时我会在旁边的人能做任何事之前将操纵杆向前推，飞机上所有的人都会完蛋，太可怕了。Pete Buttigieg 沒有告诉我这些情况，政府没有告诉我们，NIH和CDC都压制这些信息。有几个飞行员害怕不敢说出实情，他们害怕遭到报复。有些人会在胸部和头部剧烈疼痛的情况下继续工作，他们害怕失去自己的事业，因为他们只有25岁。 这种事情必须停止。
-
-字幕：雨中漫步/ 听写：云岭 /  翻译：Roberts /  PR：nights / 简评/文字整理/编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ***延展阅读：***[***比Omicron更夸张！又一新变异株出现，全身46处变异，世卫紧急回应***](https://www.sohu.com/a/514432939_165533)
+- ***延展阅读：***[***没完了？法国发现传染性更强的新冠病毒新变体HMN.19B***](https://t.qianzhan.com/caijing/detail/210401-5387d4e9.html)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+1月4日当天，中共[网易](https://3g.163.com/dy/article/GSSKSMR705198CJN.html)援引上海财联社消息报道了同一消息，称“一波未平一波又起，在奥密克戎在全球快速蔓延之际，一种新发现的新冠病毒毒株也显示出了一定的威胁，不过这并不令人意外。”阅读更多。
+
+显然，法国发现的 IHU Mediterranee Infection地中海病毒仍在中共研发并投放的COVID19 第一代系列病毒的研究之一。广为人知的中东呼吸综合征冠状病毒就是一种在动物与人类之间传播的人畜共患病毒。中共对人畜共患的传播进行了广泛的研究，此前，“清华大学张林琦教授从事传染病病毒研究30余年，他的团队解析出病毒蛋白和受体结合过程。曾经主导或参与[埃博拉病毒、寨卡病毒、中东呼吸道冠状病毒、禽流感病毒等新发突发高致病性病毒](https://www.81.cn/gnxw/2020-03/04/content_9759172.htm)研究。”
+
+2022年1月5日
+
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

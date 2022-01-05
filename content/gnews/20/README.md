@@ -2,30 +2,41 @@
 ---
 
 
-## 法国新发现奥密克戎变种的远亲仍是中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1824308/)
+## 尽管Omicron持续 西班牙学生仍将在圣诞假期后重返校园
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824394/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/namC9KTJ1gmUQShxocpwjJUvh6we_xl8xoc3Nxwob7-zrWFIQcp17OcqQ6ZItDxQ6gK2G9Dn_0RUjxmfNEP7lC22lKM1NPPvXVUKgCqRCj0g2Qy4O3ZlYGBkBjV0ZvC8dH_v_yS6)[*图片来源（中共病毒出现在实验室培养的细胞表面）*](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
-**法国科学家再次发现 COVID-19 的另一种毒株变体是IHU Mediterranee Infection 。研究人员于发现该毒株有“46 个突变” ，据信比原始病毒更具传染性。大流行进入第三年，它的变体不断翻新，根源只有一种，即中共以舟山蝙蝠为骨架，对世界上几乎所有新发突发高致病性病毒进行研究并于2020年年初发布的结果。**
+翻译: 里奇
 
-据美国红色之声援引《[每日邮报](https://www.dailymail.co.uk/tvshowbiz/article-10367191/Kate-Garraway-says-husband-Derek-Draper-phenomenally-fatigued.html?ito=chromelessDM_0)》报道称，“[法国科学家这次发现了 COVID-19 的另一种变体](https://www.redvoicemedia.com/2022/01/breaking-new-ihu-covid-variant-discovered-heres-what-you-need-to-know/?utm_source=daily-email-breaking&amp;utm_medium=email)。”毒株是研究人员于 12 月 10 日发现的，由 IHU地中海感染 （ IHU Mediterranee Infection ） 的。 该毒株有 46 个突变，据信可以抵抗 COVID-19 刺突蛋白，并且它们被认为比原始病毒更具传染性。迄今为止，在法国马赛市附近发现了 12 个病例，第一个病例与前往非洲国家喀麦隆有关。[**阅读更是多**](https://www.epochtimes.com/gb/22/1/4/n13480780.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-05-105508.jpg)图片来源 : reuters.com
 
-据报道，这种被称为 B.1.640.2 的菌株携带 E484K 突变，专家认为这使其更能抵抗所谓疫苗。该菌株是目前在世界各地流行的奥密克戎（ Omicron ） 变种的远亲。
+西班牙**omicron**持续，但政府卫生部门投票赞成学生重返课堂学习并做好防护措施。
 
-- ***延展阅读：***[***比Omicron更夸张！又一新变异株出现，全身46处变异，世卫紧急回应***](https://www.sohu.com/a/514432939_165533)
-- ***延展阅读：***[***没完了？法国发现传染性更强的新冠病毒新变体HMN.19B***](https://t.qianzhan.com/caijing/detail/210401-5387d4e9.html)
+马德里，1 月 4 日（路透社）——西班牙卫生部长周二表示，新学期于 1 月 10 日开始时，西班牙中小学和大学的学生将返回课堂接受面授教育，从而结束人们有关 COVID-19 感染记录可能引发远程学习的猜测。
 
+自大约两个月前检测到具有高度传染性的 Omicron 冠状病毒变种以来，病例数创下新高，引发了人们对圣诞节假期后儿童无法重返学校的担忧。
 
-1月4日当天，中共[网易](https://3g.163.com/dy/article/GSSKSMR705198CJN.html)援引上海财联社消息报道了同一消息，称“一波未平一波又起，在奥密克戎在全球快速蔓延之际，一种新发现的新冠病毒毒株也显示出了一定的威胁，不过这并不令人意外。”阅读更多。
+西班牙卫生当局周一表示，在圣诞节前一周，Omicron 变体约占病例的 43%。
 
-显然，法国发现的 IHU Mediterranee Infection地中海病毒仍在中共研发并投放的COVID19 第一代系列病毒的研究之一。广为人知的中东呼吸综合征冠状病毒就是一种在动物与人类之间传播的人畜共患病毒。中共对人畜共患的传播进行了广泛的研究，此前，“清华大学张林琦教授从事传染病病毒研究30余年，他的团队解析出病毒蛋白和受体结合过程。曾经主导或参与[埃博拉病毒、寨卡病毒、中东呼吸道冠状病毒、禽流感病毒等新发突发高致病性病毒](https://www.81.cn/gnxw/2020-03/04/content_9759172.htm)研究。”
+但是，来自制定自己的卫生政策的 17 个西班牙地区的官员在周二都投票赞成重返课堂，在这个因明显的政治分歧而分裂的国家中，这是罕见的一致表现。
 
-2022年1月5日
+“这涉及从明年 1 月 10 日起全国所有学生的实际出勤” 卫生部长卡罗莱纳·达里亚斯在地区会议后告诉记者。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+她说，学生在任何时候都必须戴口罩，学校必须保证足够的通风，而地区政府将努力弥补因感染而缺勤的教师。
+
+周一，过去 14 天测出的全国感染率升至每 10 万人 2,296 例的新记录，自 12 月初以来增加了 10 倍以上。
+
+医院面临的压力正在上升，但仍远低于一年前的高位。周一重症监护室入住率达到 21.2%，高于一个月前的 8%，但不到去年 1 月创下的 43% 峰值的一半。
+
+根据卫生部的数据，超过 90% 的 12 岁以上西班牙人接受了疫苗完全接种，而自西班牙于 12 月中旬开始为该年龄组接种疫苗以来，只有不到三分之一的 5-11 岁儿童接种了第一剂疫苗。
+
+新闻来源: [reuters.com] [Spanish students to go back to school after Christmas break, despite Omicron](https://www.reuters.com/world/europe/spanish-students-go-back-school-after-christmas-break-despite-omicron-2022-01-04/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

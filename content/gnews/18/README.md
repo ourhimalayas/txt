@@ -2,40 +2,34 @@
 ---
 
 
-## 比利时在南极洲的研究前哨遭遇COVID-19疫情
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824337/)
+## 在生命之战中主流媒体已输了……这多亏了乔·罗根
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824432/)
 
-翻译：七叶之芒
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-237.png)图片来源：nypost.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-244.png)图片来源: creativedestructionmedia.com
 
-据报道，目前COVID-19病例的激增已经到达南极洲，影响了比利时一个科学考察站的完全接种疫苗的工作人员。
+在过去的 48 小时内，有几件事同时发生。
 
-据BBC报道，自12月14日以来，伊丽莎白公主极地站的25名工作人员中至少有16人感染了这种致命的疾病。
+首先，我想出了为我的博客“边缘金融”撰写 2022 年 100 项预测的想法——我可能仍会在某个时候完成这篇博文。 其次，我听了乔·罗根播客采访了 mRNA 发明者罗伯特·马龙医学博士，医生因对 Covid 发表的观点与主流叙事不一致，几个小时后被禁止使用 Twitter。
 
-但是这些病例都很温和。
+马龙在罗根节目所回应的意见包括如下，但不限于这些：
 
-经营该站的国际极地基金会的项目经理Joseph Cheek告诉BBC：“情况并不夸张。”
+- 指责政府的 Covid 回应是“失控”和“无法无天”
+- 强制“实验性”疫苗是“明确非法的”
+- 注意到印度在早期使用伊维菌素等药物治疗 Covid 方面取得了成功
+- 政府行为造成了“五十万”的超量死亡
+- 争论那些说具有天然免疫力的人有更高的疫苗不良事件风险的谎言
+- 声称人们生活正在形成群体精神病之中
 
-他告诉BBC：“虽然不得不隔离某些感染病毒的工作人员是一种不便，但它并没有明显影响我们在该站的工作。”
 
-“该站的所有居民都有机会在1月12日乘坐预定航班离开。然而，他们都表示希望留下并继续工作”，Cheek补充说。
-
-英国广播公司说，伊丽莎白公主极地站的工作人员有两名医生，他们在抵达时必须接种疫苗并接受病毒测试。
-
-在病毒被根除之前，新抵达该站的人员已被暂停。
-
-这次爆发并不是在南极洲发生的第一次。
-
-据报道，去年，在一艘补给船上的水手对该病毒检测呈阳性后，驻扎在贝尔纳多-奥希金斯研究站的几名智利军事人员被感染了。
-
-新闻来源：[nypost.com][Belgian research outpost in Antarctica hit by COVID-19 outbreak](https://nypost.com/2022/01/04/belgian-outpost-in-antarctica-hit-by-covid-19-outbreak/)
+新闻来源 : [creativedestructionmedia.com] [The Mainstream Media Is Losing The Fight Of Its Life…All Thanks To Joe Rogan](https://creativedestructionmedia.com/analysis/2022/01/03/the-mainstream-media-is-losing-the-fight-of-its-life-all-thanks-to-joe-rogan/)
 
 * * *
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 

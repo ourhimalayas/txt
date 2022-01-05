@@ -2,33 +2,47 @@
 ---
 
 
-## 篮网队同意未接种疫苗的欧文重返赛场
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1824358/)
+## 市面上青蒿素保健品中青蒿素的含量微乎其微
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1824503/)
 
-翻译：**Lulumi**
+**Dr.Eglise****：**因为为什么？这就讲到青蒿素这个保健品，我们今天大直播也在讲这个青蒿素保健品，很多人问我为什么没有想到我今天晚上有跟你们直播呢？我就在对付我的上百个询问的这些信息，我真的来不及回。我觉得大家都有个有个误解，首先第一点，青蒿素保健品啊，特别是在欧美市场，因为青蒿素被屠呦呦女士发明了以后，其实它在作为药用价值用的最多的是在中国市场、亚洲市场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-240.png)ttutu’ptu’p’ltu’p’l’y图片来源: breitbart.com
+因为它是主要的生产国，其实销量是销到非洲的一些国家，因为他们是疟疾高发区。欧美国家它用了这个技术做什么呢？美国经商的理念特别强，他们马上就把这个产品化成了保健品，其实最早的青蒿素保健品就是在美国市场上生根发芽的。美国青蒿素保健品已有十几年了，但是有一点，美国这个保健品市场大家都知道，是个很畸形的市场。
 
-布鲁克林篮网队在去年10月份宣布，欧文将在可预见的未来缺阵，因为他一直坚定地拒绝接种冠状病毒疫苗。球队当时指出，欧文既不会被允许参加比赛，甚至也不会和他的队友们一起训练。
+为什么呢？你看美国的药品市场管理非常严格，非常有序，而这个保健品市场就走了一个极端，走向另一端，是最少的管理措施，他们的原则基本上就是你用了保健品以后，在短期内没有出现生命危险，基本上就没有问题，没人告你，你这个产品就一直可以生产下去。所以从某种意义上就鼓励这些商家作假，以最少最少的原料的价钱，当然告诉你是怎么怎么纯的。
 
-同月，欧文解释说，他拒绝接种疫苗并不是什么政治声明，而只是“忠于”自己。他补充说，“这是关于我的生活和我选择做的事情”。
+这个青蒿素你看他们标签的都是98%，其实不可能的，美国市场上所有标签都98%的青蒿素含量，里面有0.5毫克的青蒿素，我觉得它已经是个最好的产品了，因为我没有给它量化过，把它拆开做这些化学检查，但是按照它这个价钱，就是化工原料价钱跟他做成青蒿素成品保健品胶囊的价钱比的话，它对不上号。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-242.png)2021年10月3日洛杉矶斯台普斯中心，布鲁克林篮网队的凯里·欧文在与洛杉矶湖人队的季前赛中。
+也就是说按照他们这个原料价钱来做，他们所谓声称的98%的比方说100毫克的青蒿素胶囊的话，本身就要85美金一克，那一瓶里至少100克吧？那得多少钱？得8000块钱，你加上你的运输费、装配费、生产费，你至少一瓶也得上万美金才合理，才可能，否则的话是不可能的。所以从这个价钱你就可想而知，那青蒿素里面真正有效青蒿素含量有多少，那是微乎其微的。
 
-尽管球队在10月份有严格的立场，但到了12月球队自打嘴巴，告诉欧文他可以回来参加客场比赛。然而，即使在他准备上场的时候，蓝网队之前已经把他列入了COVID协议名单。
+视频文字版整理：青桐；
 
-最后，在经历了这一切之后，网队宣布，欧文在错过了本赛季前35场比赛之后，终于将在周三进行他的赛季首秀。
+编辑整理：海贼王M.D.LUFFY；
 
-尽管在客场比赛中亮相，不过，欧文仍然不会被允许在自己的主场比赛中出场，因为纽约市要求所有的艺人和运动员都必须接种疫苗才能进入任何体育场、竞技场、剧院或音乐厅。因此，欧文也仍然被禁止参加麦迪逊广场花园对纽约尼克斯队的比赛，以及在洛杉矶对湖人队的比赛。他还将被禁止参加勇士队和快船队的主场比赛。
+字幕文件制作：小满；
 
-新闻来源 : [breitbart.com] [Brooklyn Nets Agree to Bring Unvaxed Kyrie Irving Back to Play](https://www.breitbart.com/sports/2022/01/03/brooklyn-nets-agree-to-bring-unvaxed-kyrie-irving-back-to-play/)
+视频制作及上传：Cindy；
 
-* * *
+G-News发布：小满；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]nGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
