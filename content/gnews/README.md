@@ -15,107 +15,107 @@
 
 ---
 
-### [法国总统马克龙表示他的目标是“恐吓”未接种疫苗的人](/content/gnews/1/README.md)
+### [DC大中华时事：川普子女收到传票被调查](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [联盟答疑G系列相关信息文字版](/content/gnews/2/README.md)
+ ` 全球G系列咨服群`
+
+### [法国总统马克龙表示他的目标是“恐吓”未接种疫苗的人](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [灭共者之新中国联邦人之真言真语](/content/gnews/2/README.md)
+### [灭共者之新中国联邦人之真言真语](/content/gnews/4/README.md)
  ` MOS Designer香草山设计部`
 
-### [“人类豚鼠”的自白：为什么我要退出莫德纳疫苗试验](/content/gnews/3/README.md)
+### [“人类豚鼠”的自白：为什么我要退出莫德纳疫苗试验](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾总统在新年讲话中警告中共不要搞 “军事冒险主义”](/content/gnews/4/README.md)
+### [台湾总统在新年讲话中警告中共不要搞 “军事冒险主义”](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/5/README.md)
+### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/6/README.md)
+### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [蒙特利尔华人在当地超市被质问：“疫情都是因为你们中国人”](/content/gnews/7/README.md)
+### [蒙特利尔华人在当地超市被质问：“疫情都是因为你们中国人”](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [辉瑞公司在疫苗临床试验中犯有欺诈行为](/content/gnews/8/README.md)
+### [辉瑞公司在疫苗临床试验中犯有欺诈行为](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [兰德·保罗不堪忍受对其新冠病毒帖子的审查停止在YouTube上发帖](/content/gnews/9/README.md)
+### [兰德·保罗不堪忍受对其新冠病毒帖子的审查停止在YouTube上发帖](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共病毒加重并发症患者的肾脏问题](/content/gnews/10/README.md)
+### [中共病毒加重并发症患者的肾脏问题](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/11/README.md)
+### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [1/5/2022 文贵直播：“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价](/content/gnews/12/README.md)
+### [1/5/2022 文贵直播：“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥大直播全文速记](/content/gnews/13/README.md)
+### [七哥大直播全文速记](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|安“清零”政策的背后：对普通民众的肆意践踏](/content/gnews/14/README.md)
+### [有声|安“清零”政策的背后：对普通民众的肆意践踏](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/15/README.md)
+### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [1/5/2022 文贵直播：扎尔巴耶夫是王岐山最好的哥们儿，帮王和江藏了100吨黄金在哈萨克斯坦](/content/gnews/16/README.md)
+### [1/5/2022 文贵直播：扎尔巴耶夫是王岐山最好的哥们儿，帮王和江藏了100吨黄金在哈萨克斯坦](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [温哥华岛房产估值在 2022 年飙升](/content/gnews/17/README.md)
+### [温哥华岛房产估值在 2022 年飙升](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [有声|香港《众新闻》将于4日被关停](/content/gnews/18/README.md)
+### [有声|香港《众新闻》将于4日被关停](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|受疫情影响英国面临严重员工短缺](/content/gnews/19/README.md)
+### [有声|受疫情影响英国面临严重员工短缺](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|华为斥巨资渗透收买英国顶尖大学](/content/gnews/20/README.md)
+### [有声|华为斥巨资渗透收买英国顶尖大学](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中共国网络监管部门审查影响舆论的APP](/content/gnews/21/README.md)
+### [中共国网络监管部门审查影响舆论的APP](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|郭文贵先生成为2021年度最具影响力盖特用户](/content/gnews/22/README.md)
+### [有声|郭文贵先生成为2021年度最具影响力盖特用户](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [2022/01/05 大卫作战室直播精要](/content/gnews/23/README.md)
+### [2022/01/05 大卫作战室直播精要](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国保险公司数据显示疫情后工作年龄人口死亡率激增](/content/gnews/24/README.md)
- ` GTV News Talk`
-
-### [美国最高法院将权衡拜登的疫苗强制令](/content/gnews/25/README.md)
+### [美国最高法院将权衡拜登的疫苗强制令](/content/gnews/26/README.md)
  ` 温哥华扬帆农场`
 
-### [疫苗灾难开始显露？美国青壮年死亡大增40%](/content/gnews/26/README.md)
+### [疫苗灾难开始显露？美国青壮年死亡大增40%](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港警方以煽动罪逮捕6名记者](/content/gnews/27/README.md)
+### [香港警方以煽动罪逮捕6名记者](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喜马拉雅币：郭文贵先生喜爱的加密货币](/content/gnews/28/README.md)
+### [喜马拉雅币：郭文贵先生喜爱的加密货币](/content/gnews/29/README.md)
  ` wenwu`
 
-### [文贵爆料 1.5：北京冬奥会：一场历史轮回的闹剧](/content/gnews/29/README.md)
+### [文贵爆料 1.5：北京冬奥会：一场历史轮回的闹剧](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022.1.5文贵直播：哈萨克斯坦动乱，中共是幕后黑手，黄金是暴乱的真正原因](/content/gnews/30/README.md)
+### [2022.1.5文贵直播：哈萨克斯坦动乱，中共是幕后黑手，黄金是暴乱的真正原因](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [领土扩张：入侵乌克兰和台湾](/content/gnews/31/README.md)
+### [领土扩张：入侵乌克兰和台湾](/content/gnews/32/README.md)
  ` wenwu`
 
-### [我的亲身经历（二）——严管期与管理犯](/content/gnews/32/README.md)
+### [我的亲身经历（二）——严管期与管理犯](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [对推特谷歌等垄断机构 一系列法案正在进行中](/content/gnews/33/README.md)
+### [对推特谷歌等垄断机构 一系列法案正在进行中](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（2/2）](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [GTV新闻访谈简报|2022年1月5日早](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`

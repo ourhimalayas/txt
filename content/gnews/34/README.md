@@ -2,84 +2,131 @@
 ---
 
 
-## 福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1825569/)
+## 对推特谷歌等垄断机构 一系列法案正在进行中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1825671/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=61d5801adffab035958b0499](https://gtv.org/video/id=61d5801adffab035958b0499)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F-1-768x432-1.jpg)图片来源：thekycker.com
+据我所知
+Hasta donde yo sé
 
-**巴塔查里亚发声回击**
+对待Facebook, 谷歌
+Hacia Facebook, Google
 
-当福奇-柯林斯勾结的消息传出时，巴塔查里亚在推特上写道：“现在我知道自己成为我们政府宣传攻击的对象是什么感觉。讨论和参与本来是一条更好的道路。”
+还有这些垄断机构, 像Twitter
+Y estos órganos administrativos monopolista como Twitter
 
-根据巴塔查里亚的说法，柯林斯和福奇编造了虚假的反驳说法，什么集中保护将“让病毒肆虐”对人群造成破坏性影响。后来这个错误的论点一次又一次地打脸他们自己。
+一系列的法案正在进行中
+Una serie de Proyecto de Ley está en proceso
 
-“当记者开始问我为什么要‘让病毒肆虐’时，我感到很困惑，”巴塔查里亚于 2021 年 12 月 19 日在推特上写道。
+大家一定要记住
+Todos deben recordar
 
-“现在我知道，柯林斯和福奇已经用谎言为媒体攻击做好了准备。我也对他们将《大巴林顿宣言》错误描述为“群体免疫策略”感到困惑。从生物学上讲，当足够多的人通过** COVID **恢复，或疫苗接种获得免疫力时，流行病就会结束。封锁、放任自流和 《宣言》都是为了结束大流行病这个目的。
+GTV 会再次投胎
+GTV reencarnará otra vez
 
-“正如马丁·库尔多夫 (Martin Kulldorff) 所说，说‘群体免疫战略’和说‘重力引力’着陆飞机一样的道理。唯一的问题是如何安全着陆，而不是重力是否适用。
+会以你意想不到的形式投胎
+Y lo hará de una forma inimaginable
 
-“所以，问题是如何以最小的伤害度过这场可怕的大流行，其中所考虑的危害包括所有公共健康，而不仅仅是 COVID病毒。《宣言》声明的对弱势群体的集中保护是在封锁和放任自流之间的中间地带。
+Gnews 也会转身投胎
+Gnews también se dará la vuelta para reencarnar
 
-“像柯林斯和福奇这样的封锁者……本可以诚实地参与讨论，就会发现公共卫生从根本上讲是集中保护……但是，福奇和柯林斯决定抹黑马丁·库尔多夫、苏内特拉·古普塔、我和《宣言》的支持者 。他们对其中包含的想法造谣，并精心策划了一场针对我们的宣传活动……
+你也会想象不到
+También no lo podrás imaginar
 
-“福奇和柯林斯对封锁的危害保持沉默，因为他们是有罪的。可悲的事实是，他们赢得了政策战，他们得到了想要的封锁，现在……要承担封锁造成的伤害，所以他们不能承认自己的罪过。《宣言》里警告过他们。”
+没有任何人知道
+No hay alguien que lo sepa
 
-“他们也不能说封锁有效地抑制了 COVID。在美国，我们遵循了福奇-柯林斯的锁定策略，但我们有 80 万人死于新冠肺炎。瑞典——更注重保护弱势群体——做得更好，是不容忽视的……
+你别看现在很多人以为自己知道 你们都不知道
+No veas que ahora hay mucha gente creyéndose saber, ustedes no saben
 
-“[历史] 会评判那些负责 COVID 政策的人，它不会是友好地评判。[柯林斯] 诽谤 《宣言》 及其作者，因为他已经没有实质性的论点了……柯林斯对拜尔的采访标志着他辉煌职业生涯的悲惨结局，虽然我不想这么说。福奇应该和他一起退休，他们已经造成了足够的破坏。”
+那么盖特
+Y Gettr
 
-面对**“**疫苗**”**不断下降的可能性，福奇试图让他的叙事保持活力。
+还有一个现在你看我这希望暴跌的喜币
+Y lo otro ahora yo espero que el precio de H-coin desplome
+它现在一直不跌
+Pero ahora no se quiere bajar
 
-就在福奇和拜登总统极力激起人们对 Omicron 的恐慌，以保持对大流行对策的需求之际，具有启示性的破坏性现象出现了。这当然是一个挑战，因为大多数人已经意识到 Omicron 并不比普通感冒更严重。
+（想）给大家点机会进来
+(Quiero) darle a todos la oportunidad de entrar
 
-福奇在 2021 年 12 月 19 日接受 CNN 采访时表示，他们“没有预料到 Omicron 发生的突变程度”。因此，基本上，尽管投入了数十亿美元进行研究，科学家们还是无法预测突变。那应该告诉我们一些事情。
+大家要知道
+Todos deben saber
 
-令人不安的是，现在有证据表明，Omicron 可能是实验室创造的另一个病毒。在最近的“班农作战室”（ Bannon’s War Room ）采访中，mRNA 和 DNA 疫苗核心平台技术的发明者罗伯特·马龙（ Robert Malone） 博士回顾了我们迄今为止对 Omicron 变体的了解。
+你知道（这是）什么概念 兄弟姐妹们
+Sabes qué concepto es (este) hermanos y hermanas
 
-正如马龙所指出的，媒体一直在谈论“除了显而易见的事情之外，那就是，这是一个‘疫苗逃逸的突变体’。” 该变体似乎对** COVID **疫苗具有高度抵抗力，这表明它已经在一个或多个感染 COVID 的个体中发生了变异，但负责 COVID 反应的精神巨人的第一个建议却是要推动** COVID **加强剂注射。这是不负责任和不合理的，也是不科学的。
+这个社交媒体未来的所有盈利模式和数据交换方式都将彻底的改变
+Todos los futuros modelos de ganancias y métodos de intercambio de datos de esta red social cambiarán por completo
 
-（点评：不用科学家那么发达的大脑，孩童都会问：如果专家已经得出结论“该变体似乎对 COVID 疫苗具有高度抵抗力”，即是说疫苗无作用，为什么还要继续打？）
+而唯一的一个
+Y el único
 
-“加强剂是一种完美的方式来偏置我们的免疫系统，因此我们对这种新变体的反应能力更差，”马龙解释说。 “这 [就像] 三个季节之前给每个人打流感疫苗针，并期望它对当前的 [流感毒株] 产生作用。”
+留下的机会和市场就是我们
+Que quedará de oportunidad y mercado seremos nosotros
 
-**Omicron 从 2020 年的菌株中脱胎而出**
+喜币一定（会）超过比特币
+El H-coin sobrepasará (de seguro) al Bitcoin
 
-对于 Omicron 的性质和起源，马龙表示：“它具有在严格的遗传选择下进行进化的病毒剂的标志，以逃避针对受体结合区域的‘疫苗’反应。现在悬而未决的问题是——因为这与正在追踪的其他菌株大不相同；它在自己独立的小进化分支中——这是怎么发生的？”
+一定会
+Seguro que sí
 
-马龙所指的是，与 Omicron 最接近的基因序列可以追溯到 2020 年中期，但它似乎不属于此后出现的任何进化分支。在下面的延时图表中，Twitter 用户 Chief Nerd 使用来自 [https://nextstrain.org/ncov/gisaid/global](https://t.co/fFLpbNWA2q)的数据，说明了从原始毒株到现在的 SARS-CoV-2 的基因组流行病学。
+比特币一定会消失
+El Bitcoin seguramente desaparecerá
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-2-2.png)
+就是这个时代这个机会
+Y esta oportunidad de esta época
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-1.png)图片来自原文
+不是我们想抓就抓得住的
+No es que lo agarramos porque queremos
 
-这很好地说明了一个不自然的 Omicron 的出现真的很奇怪。随着时间推移，到 2021 年底，突然出现了 Omicron，它像一条直线从 2020 年中期的菌株中出现，与其他任何菌株都没有相似之处。这种奇怪的现象在自然界中是没有先例的。
+当然我们主动性要够
+Claro que debemos tener suficiente iniciativa
 
-据说 Omicron 总共有来自原始 Alpha 菌株的大约 50 个突变，其中许多突变，特别使它能够绕过 COVID 疫苗诱导的抗体防御。
+时机 时机
+El tiempo y la oportunidad (Shí Jī)
 
-2021 年 12 月 14 日，冠状病毒危机众议院选择小组委员会举行了远程听证会，国会议员吉姆·乔丹（Jim Jordan）指出，CDC和NIH/NIAID(国家过敏和传染病研究所)每年都有 预算约为 580 亿美元，员工总数为 31,000 人。
+时间不是我们决定的
+(Shí ) El tiempo no lo decidimos nosotros
 
-有这样大的预算和如此多的工作人员，为什么美国政府没有进行一项研究来确定自然免疫力和 COVID 疫苗对比？乔丹问道。他收到的答案是（不幸的是，来自一位身份不明的医生）令人耳目一新：
+是老天决定的
+Eso lo decide Dios
 
-“我认为他们根本不想知道答案”，因为“这会破坏针对每个人不分青红皂白的疫苗接种政策，包括对极低风险的人。”
+机是我们自己抓到的
+(Jī)) Pero la oportunidad lo atrapamos nosotros
 
-请阅读上一篇：[福奇和NIH勾结诋毁《大巴林顿宣言》背后的科学家（1/2）](https://gnews.org/zh-hans/1825295/)
+兄弟姐妹们
+Hermanos y hermanas
 
-**视频内容请点击：**
-[www.youtube.com](https://www.youtube.com/watch?v=Yi1g4HGkllk)
-[www.youtube.com](https://www.youtube.com/watch?v=lJE7Tc8YGsc)
+特别好是今天在这块儿你们这么多高人
+Lo bueno es que hoy en día aquí hay tantos expertos entre ustedes
 
-**素材来源：**[childrenshealthdefense.org][Fauci, NIH Colluded to Discredit Scientists Behind Great Barrington Declaration, Emails Reveal](https://childrenshealthdefense.org/defender/fauci-nih-great-barrington-declaration-emails/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=08ffe540-bb9b-41ef-a50e-6e7db1d5d616)
+明年年底再想想是什么概念
+Piensen cómo será la idea el fin del año que viene
+
+你会想象不到这个人类（会有）多大变化
+No te podrás imaginar qué tan grande es el cambio (que habrá) del ser humano
 
 * * *
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+日期：01/04/2022
+原视频标题：对推特谷歌等垄断机构 一系列法案正在进行中
+Una serie de Proyecto de Ley está en curso para Twitter, Google y otros órganos administrativos monopolista
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plopqr2be6**](https://gettr.com/post/plopqr2be6)
+任务编号：KC395（3305）
+视频时间段：0:00-01:35
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

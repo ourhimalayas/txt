@@ -2,38 +2,54 @@
 ---
 
 
-## 台湾总统在新年讲话中警告中共不要搞 “军事冒险主义”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1826315/)
+## 灭共者之新中国联邦人之真言真语
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1826393/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-13.png)
-《路透社》报道，中共一直声称台湾是中国的领土，并在过去两年中加大了军事和外交压力以维护其主权主张。
-
-最近几个月，中共政府已多次在台湾海峡上空执行空中任务。
-
-台湾方面表示，它不会向威胁屈服。
-
-中共国国家主席习近平在周五的新年讲话中说，”祖国 “的完全统一是台湾海峡两岸人民的共同愿望。
-
-台湾总统蔡英文向中共发出新年贺词：军事冲突不是解决办法。军事绝对不是解决两岸分歧的一个选项。军事冲突会影响经济稳定。
-
-1月1日，周六，蔡英文在Facebook直播新年演讲中说，我们必须提醒北京当局不要误判形势，防止’军事冒险主义’的扩张。
-
-台湾是一个独立的国家，我们将坚守我们的主权，维护自由和民主的价值观，捍卫领土主权和国家安全，并维护印度洋-太平洋地区的和平与稳定。
-
-蔡英文还说，台湾将继续监测香港的局势，并补充说，对最近立法选举的干预以及本周逮捕亲民主媒体《立场新闻》的高级工作人员，”使人们对香港的人权和言论自由更加担忧”。
-
-在蔡英文讲话后，当日，中共国国台办发言人朱凤莲说，”我们愿意为和平统一的前景而努力。但如果’台独’分裂势力继续挑衅和胁迫，甚至跨越任何红线，我们将不得不采取果断措施。”
-
-台湾中国国民党主席朱立伦表态，追求独立只会把台湾扔进一个 “深深的鸿沟”，带来 “深重的灾难”。
+**出品：纽约香草山设计部**
 
 
 
-[新闻来源链接](https://www.reuters.com/business/aerospace-defense/new-years-speech-taiwan-president-warns-china-against-military-adventurism-2022-01-01/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-审核校对：sherryok (水云间)
 
-上传排版：漂流瓶
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-20220104-07.jpg)Everything you own has to be captured with your own hands, earned by your own actions. Don’t ever believe or rely on anything that you’ve not worked for, for those don’t belong to you, and may even bring harm to you. 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 25, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/2-20220104-03.jpg)一切都要靠自己的双手夺来，靠自己的行动换来，永远不要相信也不要去依靠任何你没有付出的东西，那些都不是你的，是你的伤害。 
+– 2021年12月25日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220104-06.jpg)Without faith, China as a country is the most dangerous form of China; and in the end, it is the Chinese people who will pay dearly for it! 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 29, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220104-04.jpg)没有信仰的中国是最危险的中国，而最后中国人一定要为此付出代价！ 
+-2021年12月29日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/5-20220104-02.jpg)新中国联邦人要包容、要持之以恒、要真心灭共、要善待对方，还要唯真不破。这都是绝对真言真语！ 
+– 2021年12月24日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/6-20220104-05.jpg)The people of the New Federal State of China (NFSC) should be tolerant, persistent, and genuine in taking down the CCP; should be kind, and always truthful. These are our mottos! 
+– Mr. Miles Guo, GTV/GETTR livecast on Dec. 24, 2021
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
