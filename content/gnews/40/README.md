@@ -2,24 +2,40 @@
 ---
 
 
-## 【中日财经爆】立陶宛终止国营铁路公司与中资公司签约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827192/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-289.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fsinakd20210823s%2F186%2Fw603h383%2F20210823%2Fa668-f0bd3fc71c601812aa62e8bee22a455b.png&amp;imgrefurl=https%3A%2F%2Fnews.sina.cn%2Fgn%2F2021-08-23%2Fdetail-ikqcfncc4414233.d.html&amp;tbnid=iD41WTCubATgzM&amp;vet=12ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ..i&amp;docid=sYFJXETgjk8zcM&amp;w=603&amp;h=383&amp;itg=1&amp;q=%E7%AB%8B%E9%99%B6%E5%AE%9B%E7%BB%88%E6%AD%A2&amp;ved=2ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ)
-立陶宛去年允许台湾于维尔纽斯设立“驻立陶宛台湾代表处”后，中共持续对立陶宛施压并恶意采取政治与经济报复手段。立陶宛总理发言人告诉“波罗的海通讯社”（BNS），立陶宛政府今天（1月5日）下令，基于国家安全利益考量，立陶宛国营的铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-根据路透社报导，在西班牙登记的公司Puentes yCalzadas Infraestructuras以最低出价6250万欧元，赢得了一项在立陶宛的桥梁建设招标。该在公司网站上将中国路桥集团国际建设股份有限公司列为母公司。
+总编：童谣
 
-国营立陶宛铁路公司去年曾表示，已要求政府审查这项合约，并认为这家公司与“中共国的关系”为合约风险之一。立陶宛政府今天下令，基于“国安利益”考量，立陶宛铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
+编辑：飞虹
 
-驻立陶宛台湾代表处去年11月18日正式挂牌，立陶宛也规划在台设处，引发中共强烈不满，祭出多项报复，包括砍订单、抱怨立陶宛农作物病虫害，海关系统移除立陶宛导致无法清关；中共国国有企业“中铁集装箱”中断直达立陶宛的铁路货运；北京锁定跨国公司施压，要求断绝与立陶宛往来；欧盟成员国产品若使用立陶宛首产的零组件也会受刁难。
+新闻来源：
 
-消息来源：[中國又搬石頭砸自己腳！ 立陶宛下令國營鐵路公司不與中資建商簽約](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%88%E6%90%AC%E7%9F%B3%E9%A0%AD%E7%A0%B8%E8%87%AA%E5%B7%B1%E8%85%B3-%E7%AB%8B%E9%99%B6%E5%AE%9B%E4%B8%8B%E4%BB%A4%E5%9C%8B%E7%87%9F%E9%90%B5%E8%B7%AF%E5%85%AC%E5%8F%B8%E4%B8%8D%E8%88%87%E4%B8%AD%E8%B3%87%E5%BB%BA%E5%95%86%E7%B0%BD%E7%B4%84-232037817.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
+
+
+
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

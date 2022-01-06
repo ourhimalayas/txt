@@ -2,35 +2,49 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 郭文贵直播摘要和音频 2022.01.05
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1827606/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+摘要撰稿人：文俊
 
-新闻来源:
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/01/efea16f05bf6d27e63b27cbc857616cb_500x0.jpg)
+### 视频链接：
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+[https://gtv.org/video/id=61d59a1931a71619b57520a4](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
+### 音频链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+### 摘要：
 
-总编:文特
+- 中俄外交官在红场后台走廊聊最多的就是爆料革命、喜联储和郭文贵
+- 中国各大银行以郭文贵代表性的“7”推数字货币，不是偶然
+- 很多美国人了解MILES GUO，真不是爆料革命，是MILES GUO的歌
+- 中国的房地产是圈老百姓钱和西方房地产不一样
+- 共产党倒闭前，食品不会大幅涨价，房地产不会大幅跌
+- 房价跌，粮食短缺，就是共产党倒闭的时候
+- 共产党买了世界62%的粮食、储备24个月粮食，让老百姓吃不饱饿不死
+- 中共以数字货币继续稳房地产
+- 共产党预计中共国会有1-1.5亿人死亡
+- 中共国今年5月到12月份是最困难的
+- 中共第一次有开疆扩土的想法，通过数字货币控制经济收回周边国家
+- 人生就是黄粱一梦
+- 王岐山、江家藏了100多吨黄金在哈萨克斯坦，习要他们交出来，不交颠覆政权，所以王毅刚走，他们就动乱
+- 哈萨克斯坦已经同意分三四次返还100吨黄金
+- 立陶宛在台湾的问题认错, 因为立陶宛总统的私生活被习给抓住
+- UBS和德意志银行，这两家银行是盗国贼藏匿巨额财富和犯罪的合作者
+- #HBO [#VICE](https://www.gettr.com/hashtag/%23VICE) [#IsobelYeung](https://www.gettr.com/hashtag/%23IsobelYeung) 制造的虚假新闻栽赃，危害到了海内外所有华人甚至包括亚洲面孔的所有人
+- 盖特就是智慧的结果，保护华人不被种族大屠杀
+- GETTR是疫苗灾难救命媒体，是改变社交媒体收入方式的第一媒体
+- 疫苗就是病毒
+- 接下来会有几个大直播，G-club大直播，春节大直播，春节后大直播会讲病毒、疫苗真相
 
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
 
+
+
+
+编辑发布：闪电训练
 
  
 

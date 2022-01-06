@@ -2,49 +2,35 @@
 ---
 
 
-## 印度担心默克新冠药片副作用，将不纳入国家治疗方案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827478/)
+## 魁北克省政府称“应该出台针对未接种疫苗者的措施”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1827773/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+2022-01-05
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-PILLS.jpeg)
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9E2AAFE1-5513-4D05-AC99-B698754EA5B6.jpeg)图片来源：蒙特利尔日报 2022 年 1 月 5 日星期三
+**卫生和社会服务部长杜贝将在周四宣布针对未接种疫苗者的措施。**
 
+蒙特利尔日报（TVA NOUVELLES，2022 年 1 月 5 日星期三下午 4:24）发表题为《魁北克省政府应该出台将针对未接种疫苗者的措施》的文章报道，魁北克省政府卫生和社会服务部长克里斯蒂安·杜贝 （Christian Dubé） 将在周四 （2022 年 1 月 6 日）上午 11 点举行的新闻发布会上宣布针对未接种疫苗者的措施。
 
- 
-图片来源：*NurPhoto | NurPhoto | Getty Images*
+**不排除对未接种疫苗的魁北克人采取强硬态度**
 
+上周，魁北克省长弗朗索瓦·勒戈（François Legault）表示，他不排除对未接种疫苗的魁北克人采取强硬态度。蒙特利尔日报本周早期报道，可能会对 SAQ（一家政府垄断的公司，其职责是在魁北克全境经销酒精饮料）和 SQCD（SAQ 的子公司，其职责是管理魁北克全境的大麻销售）的所有的分支机构实施疫苗护照措施，从而禁止未接种 COVID-19 疫苗的魁北克人进入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F7FD8A05-4DB0-4C21-A64F-5957EE86BC02.jpeg)图片来源：蒙特利尔日报 2022 年 1 月 5 日星期三
+此外，大学、医疗、护理和药物事务副部长助理露西·奥帕特尼博士（Lucie Opatrny）评估了医院的情况并指出，目前有 1,750 名 COVID-19 患者正在住院治疗。
 
-#### 编译：小红帽
+执行一个减轻医疗健康保健系统压力的措施应该是有必要的。同时有关部门也必须对医疗健康保健系统的未来有一个清楚的预测。
 
-根据《RT新闻》1月5日报道，** 印度已经宣布不会将默克公司的治疗新冠（Covid-19）的药片加入其国家治疗方案，原因是担心其安全性。据该国的医学研究委员会称，该药物可能导致胎儿缺陷和细胞突变。**
+文章编译及评论人提醒读者，邪恶势力自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。在针对未接种疫苗的人群而采取的不得已的措施——宵禁令，出台后，魁北克省政府开始请求联邦援助，部署加拿大武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模且快速地进行。
 
-周三，国营印度医学研究委员会（ICMR）表示已经意识到了该药物的“重大安全问题”。
+魁北克省政府还会针对未接种疫苗的人群采取更多的其它措施。病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。
 
-“这种药物可能导致致畸和致突变，还可能导致软骨损伤，对肌肉有损害，”ICMR总干事巴尔拉姆·巴尔加瓦 (Balram Bhargava)表示。“更重要的是，如果服用这种药物，必须避孕三个月，因为出生的孩子可能是有问题的，有致畸影响。”
+参考资料：
 
-致畸剂是一种可以损害胎儿发育的药剂，而诱突变药物会改变受试者的基因构成。
+蒙特利尔日报，TVA NOUVELLES，2022 年 1 月 5 日，星期三，下午 4:24，[Le Journal De Montreal: Québec devrait annoncer des mesures qui toucheront les non-vaccinés](https://www.journaldemontreal.com/2022/01/05/quebec-fera-le-point-sur-la-pandemie-de-covid-19-demain-a-11h-1).
 
-默克公司声称，对其药物的研究证明它不会导致出生缺陷或癌症。
-
-“世卫组织没有将其包含在内，英国截至目前也没有将其包含在内。截至目前，目前的建议是，该药物不是国家工作队治疗的一部分，”巴尔加瓦说。
-
-该药物在12月获得了印度监管机构的批准，原定于下周在私人市场上销售。
-
-默克公司和印度制药商雷迪博士实验室（Dr. Reddy’s Laboratories）均没有回应媒体的评论请求，后者曾计划推出该药的通用版本。
-
-该药物已被批准在世界其他地方使用，包括英国、日本和丹麦。
-
-新闻来源：[India concerned by Merck Covid pill side effects — RT World News](https://www.rt.com/news/545237-india-covid19-merck-drug/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

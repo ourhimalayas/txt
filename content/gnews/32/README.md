@@ -2,37 +2,48 @@
 ---
 
 
-## 牛津疫苗研发专家称定期注射疫苗“不理智”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827309/)
+## 印度担心默克新冠药片副作用，将不纳入国家治疗方案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827478/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-294.png)
-波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-PILLS.jpeg)
 
 
+ 
+图片来源：*NurPhoto | NurPhoto | Getty Images*
 
-新闻链接：[January 4 coronavirus pandemic and Omicron variant news](https://www.cnn.com/webview/world/live-news/omicron-variant-coronavirus-news-01-04-22/h_b563a607338c0ca3ff13520fa4d5f96e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+#### 编译：小红帽
 
-总编: 文特
+根据《RT新闻》1月5日报道，** 印度已经宣布不会将默克公司的治疗新冠（Covid-19）的药片加入其国家治疗方案，原因是担心其安全性。据该国的医学研究委员会称，该药物可能导致胎儿缺陷和细胞突变。**
 
-编辑: 飞虹
+周三，国营印度医学研究委员会（ICMR）表示已经意识到了该药物的“重大安全问题”。
 
-校正/发稿：浪迹天涯
+“这种药物可能导致致畸和致突变，还可能导致软骨损伤，对肌肉有损害，”ICMR总干事巴尔拉姆·巴尔加瓦 (Balram Bhargava)表示。“更重要的是，如果服用这种药物，必须避孕三个月，因为出生的孩子可能是有问题的，有致畸影响。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+致畸剂是一种可以损害胎儿发育的药剂，而诱突变药物会改变受试者的基因构成。
 
+默克公司声称，对其药物的研究证明它不会导致出生缺陷或癌症。
+
+“世卫组织没有将其包含在内，英国截至目前也没有将其包含在内。截至目前，目前的建议是，该药物不是国家工作队治疗的一部分，”巴尔加瓦说。
+
+该药物在12月获得了印度监管机构的批准，原定于下周在私人市场上销售。
+
+默克公司和印度制药商雷迪博士实验室（Dr. Reddy’s Laboratories）均没有回应媒体的评论请求，后者曾计划推出该药的通用版本。
+
+该药物已被批准在世界其他地方使用，包括英国、日本和丹麦。
+
+新闻来源：[India concerned by Merck Covid pill side effects — RT World News](https://www.rt.com/news/545237-india-covid19-merck-drug/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
