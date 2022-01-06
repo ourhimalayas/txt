@@ -2,42 +2,22 @@
 ---
 
 
-## 网球名将Novak Djokovic已获得疫苗豁免，将准时参加澳网公开赛
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1828591/)
+## 买酒加投资 台湾力挺立陶宛
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828732/)
 
-作者：银河勇气星—骄子
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-57.jpg)（图片来源于本文链接）
+据台湾中央社报道，立陶宛外交部长发言人本周三（1月5日）告诉中央社，立陶宛政府欢迎台湾设立“台湾代表处”，此一决定“坚定不移”。立陶宛外长兰茨贝尔吉斯（Gabrielius Landsbergis）的发言人库列绪叶内（Vytautė Šmaižytė-Kuliešienė）表示，立陶宛政府期待与台湾发展商务、科学、技术与文化关系，期待双边人民有更多接触；立陶宛与台湾人民因共享价值观及奠基于创新的开放有活力社会而亲近。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+去年11月18日，台湾当局以“台湾”名义在立陶宛设的代表处正式挂牌，这是台湾政府首次在欧洲土地上以台湾名义设立的外交办事处。此举招致北京抗议，中共将与立的关系降至“代办”级，并一度将立陶宛从海关体系除名，暂停从立陶宛进口的贸易许可，施压跨国企业不得使用立陶宛生产的部件，据报道，立陶宛MV Group Production（简称MV公司）出口中共国的20400瓶深色朗姆酒在抵达中共国港口后无法清关。《南华早报》1月4日报道，台湾烟酒公司在得知这一消息后随即决定收购了这批朗姆酒，以示对这个波罗的海国家的支持。台烟酒公司呼吁民众为“立（国）挺我，我挺立（国）”而干杯。
 
+信息来源：
 
+[买酒加投资 台湾力挺立陶宛](https://www.dw.com/zh/%E4%B9%B0%E9%85%92%E5%8A%A0%E6%8A%95%E8%B5%84-%E5%8F%B0%E6%B9%BE%E5%8A%9B%E6%8C%BA%E7%AB%8B%E9%99%B6%E5%AE%9B/a-60341277)
 
-
-
-![Tennis | Wimbledon 2021 | Novak Djokovic](https://static.dw.com/image/58095492_303.jpg)
-
-日前，世界排名第一的网球名将Novak Djokovic宣布他已获得疫苗豁免，将如期参加此次澳网开幕大满贯赛事。
-
-澳网公开赛举办日期为1.17-1.30日，此前Novak曾表示由于担心澳大利亚的检疫规则而不确定自己是否能够参赛。赛事方严格要求所有参与者都必须接种新冠疫苗或获得独立专家小组的医疗豁免。Novak的父亲曾在接受采访中说道，他的儿子可能会退出此次澳网赛事，因为澳洲网球协会对于强制接种新冠疫苗的立场简直就是敲诈。据悉Novak已退出悉尼的ATP杯赛事。 1月4日即本周二，澳网赛事方宣布允许Novak参加比赛，因他成功申请了医疗豁免，无须接种新冠疫苗，并将获得和完全接种疫苗者相同的待遇。
-
-
-
-参考链接：
-
-[https://www.espn.com/tennis/story/\_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp](https://www.espn.com/tennis/story/_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp)
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

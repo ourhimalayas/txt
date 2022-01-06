@@ -2,34 +2,22 @@
 ---
 
 
-## 法国检测到中共病毒新毒株IHU
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827333/)
+## 日美将加强核能等清洁能源领域的合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828054/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月4日，科学家在法国南部发现一个中共病毒的新毒株，命名为IHU，目前已知12位感染病例。据悉，IHU首例感染来自去年11月中旬实验室采集到的成年人鼻咽样本。有科学家表示，这个新毒株比奥米克戎繁殖性更快，突变数量很大，传染性更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-298.png)
-新闻来源:
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-309.png)[图片来源](https://www.arabnews.jp/article/japan/article_51634/)
+6日，据日本媒体报道，日本经济产业大臣萩生田光一与美国能源部部长格兰霍姆进行视频会谈，传达了日本政府与国际合作开展新型核电站示范项目的意向，项目包括“小型模块化反应堆”和“快速反应堆”。
 
-[France detects new Covid variant IHU, 12 infected](http://timesofindia.indiatimes.com/articleshow/88684678.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst)
+日本政府去年10月修订的基本能源计划包括一项政策，即积极支持日本公司参与与美国、英国、法国、加拿大和其他国家合作开展的“小型模块化反应堆”和“快速反应堆”等示范项目。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+在今天的会议上，双方谈到日本在脱碳方面的努力，并确认将在氢、氨、核电等广泛的“清洁能源领域”加强合作以促进社会化应用。
 
-总编：文特
+信息源：[日米・原子力などクリーンエネ分野で連携強化を確認](https://news.yahoo.co.jp/articles/197d62830daa30fc5e22766465ea771bcdc81fe1)
 
-编辑: Kathy文艺
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

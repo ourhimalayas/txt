@@ -2,37 +2,32 @@
 ---
 
 
-## 牛津疫苗研发专家称定期注射疫苗“不理智”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827309/)
+## 日澳将签署“历史性”防务安全条约
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827935/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-294.png)
-波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
+#### **撰稿：**日本东京方舟农场 子辰
 
-波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3B99F77B-A7EA-4FFC-BD3D-E27097FD0B71.jpeg)（图片来自《美国之音》）
 
+1月6日，澳大利亚和日本将签署一项加强防务和安全合作的条约。条约被视为具有“历史性”的举动，是促进美国的盟友加强合作关系，以抗击来自中共不断增长威胁的最新示例。
 
+据美联社报道，澳大利亚总理莫里森和日本首相岸田文雄将在当天举行的视频峰会上签署这一协议。莫里森说，协议将支撑澳大利亚武装力量和日本自卫队之间更广泛和更复杂的实际接触。
 
-新闻链接：[January 4 coronavirus pandemic and Omicron variant news](https://www.cnn.com/webview/world/live-news/omicron-variant-coronavirus-news-01-04-22/h_b563a607338c0ca3ff13520fa4d5f96e)
+莫里森在1月5日的一份声明中说，条约将表明，我们两国致力于共同应对我们面临的共同战略之安全挑战，并为建立一个安全和稳定的印太地区做出贡献。并称新防务条约是历史性的，将首次为两国防卫力量之间强化互相合作提供一个清晰的框架。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+日本首相岸田文雄也在1月4日表示，基于维护自由和开放的印太地区的原则，日本希望提升与美国、澳大利亚和印度的合作，通过密切协商同这些国家的领导人建立紧密关系。
 
-总编: 文特
+此外，美国华尔街日报报道说，澳日防务条约使澳大利亚成为继美国之后的第2个与日本签订正式防务协定的国家。这个条约包含允许澳大利亚军人进入日本。意味着双方的部队将自由进入对方国家从事训练和演习，不用每次都要就条件进行谈判。
 
-编辑: 飞虹
+*参考链接：[日澳将签署防务安全条约 取得一项“历史性”突破](https://www.voachinese.com/a/Australia-Japan-to-sign-security-pact-20220105/6383636.html)*
 
-校正/发稿：浪迹天涯
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+*素材采编：子辰*
 
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

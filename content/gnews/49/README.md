@@ -2,52 +2,24 @@
 ---
 
 
-## 中共研究人员在2015年就窃取了美国单克隆抗体商业秘密
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827313/)
+## 美国新任驻日大使批评中共国不是好邻居
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828023/)
 
-撰稿：纽约香草山翻译部 – defiance
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-据国家脉动4日报道，受雇于葛兰素史克公司GSK的前科学家Lucy Xi，承认窃取中共病毒疗法相关的商业秘密，目的是帮助一个国资药企。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-297.png)
-Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美国司法部消息，2015年1月，她向同伙梅岩发送了一份包含“保密商业机密数据与信息”的GSK内部文件。该文件提供了GSK当时对单克隆抗体的研究概况。Lucy Xi在邮件正文中写道：“你需要充分弄懂这个，将有助于任诺的未来发展。”
+整理编辑：东京樱花团丨peterwong
+![](https://lh5.googleusercontent.com/30twM3G50W1Dx11enBYqFwhVP0upAhoc49YwDuxk2j6OJqSvWbA0UBlhHAVbiGHuvQgSfGgyRm2zoLF8RuzWYVjBAgliJerBA0nwDv7JkLFEngOFV2aZkTMJ9zH8NX3pm7gb8lGU)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211021/527784405251395584075916.jpeg/mttbk6woi1ZfugknbjRHBLk4fTBeBSksV2XNBFdlzQQ?v=w1920r16_9)
+即将走马上任的美国新任驻日大使拉姆·伊曼纽尔1月5日在华盛顿接受了日本NHK电视台的专访。伊曼纽尔直指中共国不是好邻居，不利于地区发展。
 
-检察官威廉姆斯指出：“这名被告非法窃取商业秘密，使由中共政府出资的公司受益，这种犯罪行为必须在法律的最大范围内受到起诉。”
+伊曼纽尔透露，早在拜登就任总统之前的2020年12月，就接到了拜登关于是否有意担任驻日大使的问询。他接着表示：“对于美国来说，日本是一个重要的国家，历任驻日大使都是杰出人物，我深感责任重大。”
 
+关于拜登政府视为美国最大竞争对手的中共国，伊曼纽尔谈及了香港及南海局势相关问题，指出：“中共国不是日本的好邻居，也不是有利于地区发展的积极因素。”他强调，美日两国正因为拥有民主这一共同价值观，所以才能为地区发展做出贡献。
 
+伊曼纽尔表示，自己将为促进美日双边关系竭尽全力。他指出，美日这两个民主国家正在就发展共同的价值观迎来一个重要时期。
 
-新闻链接：
+消息来源：[**美新任驻日大使：将为发展双边关系竭尽全力**](https://www3.nhk.or.jp/nhkworld/zh/news/342121/)
 
-
-
-> [Chinese Communist Researcher Stole U.S. Monoclonal Antibody ‘Secrets’… In 2015.](https://thenationalpulse.com/2022/01/04/ccp-pharma-stole-gsk-antibody-secrets/)
-
-
-
-[中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](https://gettr.com/post/pm9nc152d9)
-
-参考链接：
-
-[南京任诺药业有限公司相关信息](https://gettr.com/post/pm923tf660)
-
-[梅岩、李涛的发明专利](https://gettr.com/post/pm9dj5f07e)
-
-[美国司法部：再有一名药物研究员对窃取商业机密指控认罪](https://www.163.com/dy/article/GSU8EN3E0552M0B2.html?f=post2020_dy_recommends)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑: 童谣
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

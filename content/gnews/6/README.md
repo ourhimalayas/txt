@@ -2,13 +2,30 @@
 ---
 
 
-## 美国防长奥斯汀感染中共病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828697/)
+## 樱花灭共诗——临会波亭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828823/)
 
-01/03/2022 路透社报道，美国防部长劳埃德·奥斯汀称，其中共病毒检测结果呈阳性，症状轻微。在接下来的5天里，他将在家中隔离，并保留其现有的所有权力。
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-341.png)
+胜景闻名久，
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+登临夕照残。
 
+楹中镶墨字，
+
+梁上画金鸾。
+
+但慕浮华好，
+
+焉知国事难。
+
+老夫长倚立，
+
+月下听波澜。
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

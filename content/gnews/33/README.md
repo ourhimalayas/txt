@@ -2,29 +2,42 @@
 ---
 
 
-## 01/06每日播报｜美国第六巡回上诉法院拒绝暂停阻止联邦承包商接受疫苗强制令的禁令
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1828371/)
+## 网球名将Novak Djokovic已获得疫苗豁免，将准时参加澳网公开赛
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1828591/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d55d2931a71619b574fdbd)**
+作者：银河勇气星—骄子
 
-**2022-01-0**6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-据网关专家1月5日报道，当日下午， 美国第六巡回上诉法院(The US 6th Circuit Court of Appeals)的一个分歧小组驳回了拜登政府关于暂停执行下级法院禁令的请求，该禁令禁止对俄亥俄州、肯塔基州和田纳西州的联邦承包商的雇员执行中共病毒COVID-19疫苗强制令。
 
-第六巡上诉法院以 2：1 的投票做出了该裁决。
 
-据报道，俄亥俄州、田纳西州和肯塔基州对拜登提起诉讼，认为《联邦财产和行政服务法》（Federal Property and Administrative Services Act）中没有任何条款授权承包商的任务，而且该规定违反了其他几项联邦法规。
 
-布什法官在他的意见中说：“作为回应，俄亥俄州、肯塔基州和田纳西州和两个俄亥俄州的警长办公室提起诉讼。他们集体声称，《财产法》中没有任何内容授权承包商任务，承包商任务违反了其他各种联邦法规，而且根据联邦主义原则和第十修正案，其对传统州特权的侵犯引起了严重的宪法问题。地区法院同意，禁止在俄亥俄州、肯塔基州和田纳西州执行对承包商的疫苗强制令。它还拒绝了联邦政府被告随后提出的在上诉期间暂停禁令的动议。”
 
-秘翻新闻主编 Grace编译报道
+![Tennis | Wimbledon 2021 | Novak Djokovic](https://static.dw.com/image/58095492_303.jpg)
 
-发布: 文橙
+日前，世界排名第一的网球名将Novak Djokovic宣布他已获得疫苗豁免，将如期参加此次澳网开幕大满贯赛事。
 
-* * *
+澳网公开赛举办日期为1.17-1.30日，此前Novak曾表示由于担心澳大利亚的检疫规则而不确定自己是否能够参赛。赛事方严格要求所有参与者都必须接种新冠疫苗或获得独立专家小组的医疗豁免。Novak的父亲曾在接受采访中说道，他的儿子可能会退出此次澳网赛事，因为澳洲网球协会对于强制接种新冠疫苗的立场简直就是敲诈。据悉Novak已退出悉尼的ATP杯赛事。 1月4日即本周二，澳网赛事方宣布允许Novak参加比赛，因他成功申请了医疗豁免，无须接种新冠疫苗，并将获得和完全接种疫苗者相同的待遇。
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+
+
+参考链接：
+
+[https://www.espn.com/tennis/story/\_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp](https://www.espn.com/tennis/story/_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

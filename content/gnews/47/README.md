@@ -2,36 +2,37 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 佐治亚州官员对2020年非法选票展开调查
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1828121/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-新闻来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-313.png)图片来源：thenationalpulse.com
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+据《Just The News》报道，佐治亚州官员已经对2020年总统选举和随后的美国参议院决选期间的民主党人收票行为，展开调查。
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
+佐治亚州务卿办公室还在考虑发出传票以确保证据，这些证据在选民诚信组织”真实投票”(True the Vote)于11月30日提交的申诉中，作了详细说明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+True the Vote”收集到的证据表明，数十名活动家与非营利团体合作，在大流行期间，经常在凌晨时分收集并运送数以千计的缺席选票到分布在全州的临时投票箱。” 这一努力与佐治亚州禁止第三方活动家代表选民领取和递送选票的法律相抵触。
 
-总编:文特
+《Just The News》总结了选民诚信组织的调查结果，包括活动分子放下成批选票的监控录像，以及一个人承认他在亚特兰大收获选票的报酬：
 
-校正/发稿：浪迹天涯
+根据《Just the News》审查的文件，True the Vote告知秘书，其证据包括各县在投递箱外放置的监控摄像头的录像，以及200多名活动人士的手机的地理位置数据，据称这些录像显示了投递选票的日期和时间。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+True the Vote还表示，它采访了一名佐治亚州的男子，该男子承认在11月选举和2021年1月5日佐治亚州两个美国参议院席位决选前，他得到了数千美元的报酬，在亚特兰大市区收获选票，这两个席位都被民主党人夺得，结束了美国国会的控制。True the Vote尚未向州当局确认合作证人（报酬收获者）的身份，在投诉中只称他为无名氏。
 
+True the Vote并没有指称快递员交付的选票是欺诈性的。然而，由第三方运送到投递箱的合法选票会触犯佐治亚州的法律。
 
+“佐治亚州州务卿布拉德·拉芬斯佩尔格（Brad Raffensperger）在周二播出的播客（John Solomon Reports）的采访中证实，他的办公室已经认为这些指控足够可信，可以展开调查，并可能向州选举委员会寻求传票，以确保证据，”报告补充说。
+
+“这将是我们正在考虑的程序之一，如果我们有一些人出于某种考虑不想站出来，因为我们真的需要弄清事情的真相，”拉芬斯佩尔格在采访中说。”我们不能让真相坐在那里，躺在那里。因此，如果事情发展到这一步，那么这可能是我们要考虑的下一步。”
+
+新闻来源：[thenationalpulse.com] [Georgia Officials Launch Investigation Into Illegal BallotHarvesting.](https://thenationalpulse.com/2022/01/05/ga-investigating-ballot-harvesting/) | 发布时间：2022年01月05日
+
+* * *
+
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
