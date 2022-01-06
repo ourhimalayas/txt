@@ -2,63 +2,79 @@
 ---
 
 
-## 澳网赛会给与医疗豁免,小德签证却被边检取消
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1826695/)
+## 2022年1月5日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1826754/)
 
-#### 整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot_副本.jpg)
+视频连接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比——Gettr](https://gettr.com/streaming/pmcnn12304)  或 [2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果 ——GTV](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955-3.jpg)图片来源：Zimbio.com
+1、中俄外交官在红场后台走廊聊最多的就是爆料革命、喜联储和郭文贵；
 
+2、中国各大银行以郭文贵代表性的“7”推数字货币，不是偶然；
 
-据《福克斯体育》报道，当地时间周三晚上11点30分德约科维奇降落在墨尔本，当他在空中时不会意识到即将发生的戏剧性事件。
+3、很多美国人了解MILES GUO，真不是爆料革命，是MILES GUO的歌；
 
-登机前，小德已在社交媒体上庆祝他获得了参加澳网公开赛的医疗豁免，但并没有提供他已完全接种新冠疫苗证明。
+4、中国的房地产是圈老百姓的钱和西方房地产不一样；
 
-在他的申请被两个医疗小组批准后，赛会事组织者授予了他医疗豁免，却在已经忍受了两年封锁和限制的澳大利亚人中引发了愤怒。
+5、共产党倒闭前，食品不会大幅涨价，房地产不会大幅跌；
 
-**“****德约科维奇先生的签证已被取消，****”****莫里森总理周四早上发推文**，证实了澳大利亚边防部队此前发布的新闻稿。“规则就是规则，尤其是涉及到我们的边界时。没有人可以超越这些规则。
+6、房价跌，粮食短缺，就是共产党倒闭的时候；
 
-第九频道的记者克林特·斯坦纳威跟进报道说，德约科维奇正在被送往联邦政府经营的一家城市隔离酒店。另[据《时代](https://twitter.com/paulsakkal/status/1478836799195664386)报》报道，德约科维奇的律师已经在着手上诉。
+7、共产党买了世界62%的粮食、储备24个月粮食，让老百姓吃不饱饿不死；
 
-虽然维多利亚州政府声称在德约科维奇抵达墨尔本前几个小时拒绝了他的签证，但《时代报》援引澳大利亚网球部消息人士的话称，此举是一种宣传噱头，澳网大门并没有对他最终关闭。
+8、中共以数字货币继续稳房地产；
 
-**德约科维奇似乎是唯一一位获得医疗豁免但被拒绝进入该国的球员，****“****少数****”****其他球员成功抵达该国并计划参加比赛。**
+9、共产党预计中共国会有1-1.5亿人死亡；
 
-澳大利亚边防部队（ABF）在一份声明中说：“ABF将继续确保抵达我们边境的人遵守法律和入境要求。我们可以确认德约科维奇先生未能提供适当的证据来满足澳大利亚的入境要求，他的签证随后被取消。”
+10、中共国今年5月到12月份是最困难的；
 
-周三晚些时候，维多利亚州代理体育部长在推特上说：“我们不会为诺瓦克·德约科维奇提供参加2022年澳大利亚网球公开赛大满贯的个人签证申请支持。我们一直很清楚两点：**签证批准是联邦政府的事情，医疗豁免是医生的事情**。”
+11、中共第一次有开疆扩土的想法，通过数字货币控制经济收回周边国家；
 
-随着周四上午双方紧张态势升级，塞尔维亚总统亚历山大·武契奇猛烈抨击澳大利亚边防部队对德约科维奇团队的“骚扰”。
+12、人生就是黄粱一梦；
 
-“塞尔维亚正在尽一切努力确保对诺瓦克·德约科维奇的骚扰立即结束，”武契奇说。
+13、王岐山、江家藏了100多吨黄金在哈萨克斯坦，习要他们交出来，不交就颠覆政权，所以王毅刚走，他们就动乱；
 
-据报道，德约科维奇在机场的一间房间里被关押了9个小时，边境官员对他的疫苗豁免证据进行了盘问。据他父亲说，德约科维奇与他的球队分开，没有手机。
+14、哈萨克斯坦已经同意分三四次返还100吨黄金；
 
-德约科维奇的教练戈兰·伊万尼塞维奇于周四凌晨在Instagram上发帖称：“这是一次罕见的澳洲之旅。”
+15、立陶宛在台湾的问题认错, 因为立陶宛总统的私生活被习给抓住；
 
-周三下午，内政部长凯伦安德鲁斯发表了一份强有力的声明，重申德约科维奇必须“提供可接受的证据”，证明他可以在没有接种疫苗的情况下进入该国。
+16、瑞士UBS和德意志银行，这两家银行是盗国贼藏匿巨额财富和犯罪的合作者；
 
-**“****虽然维多利亚州政府和澳大利亚网球协会可能允许未接种疫苗的球员参加澳大利亚网球公开赛，但联邦政府将在澳大利亚边境执行我们的要求。”**
+17、#HBO #VICE #IsobelYeung 制造的虚假新闻栽赃，危害到了海内外所有华人甚至包括亚洲面孔的所有人；
 
-此前，**这位备受争议的塞尔维亚球星在社交媒体上透露，他已获得旅行的****“****豁免许可****”****，之后澳大利亚网球协会确认他将参加澳大利亚网球公开赛**。
+18、盖特就是智慧的结果，保护华人不被种族大屠杀；
 
-在拒绝透露自己的疫苗接种情况后，德约科维奇在墨尔本的比赛已经有一段时间了，但官员们表示，在对其案件进行“严格审查”后，他已获准参加比赛。
+19、GETTR是疫苗灾难救命媒体，是改变社交媒体收入方式的第一媒体；
 
-今年夏天的澳大利亚锦标赛，包括1月17日在墨尔本公园举行的澳大利亚网球公开赛，都强制要求接种疫苗。
+20、疫苗就是病毒；
 
-澳大利亚网球协会在周二晚间发表了一份声明。
+21、接下来会有几个大直播，G-club大直播，春节大直播，春节后大直播会讲病毒、疫苗真相；
 
-“诺瓦克·德约科维奇将参加澳大利亚公开赛，并且正在前往澳大利亚的路上”，它写道：“德约科维奇申请了医疗豁免，该豁免是在涉及两个独立的独立医学专家小组的严格审查程序后获得的。”
+**注：大直播音频正在制作和上传中，敬请关注——**
 
-新闻链接：[Australian Open 2022: Novak Djokovic visa, airport, updates, exemption, flight, Covid-19, explainer, Scott Morrison (foxsports.com.au)](https://www.foxsports.com.au/tennis/australian-open/tennis-2022-australian-open-novak-djokovic-receives-exemption-to-enter-australia-unvaccinated-covid19/news-story/5b7430ea0b9d579d623225984d6ead3b)
+**（大直播音频位置）**
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
