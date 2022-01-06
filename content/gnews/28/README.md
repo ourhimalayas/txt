@@ -2,26 +2,42 @@
 ---
 
 
-## 德国监察机关将谷歌列为反托拉斯密切检查之列
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827160/)
+## 朝鲜声称再次进行高超音速导弹试验，金正恩没有参加
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827188/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-34.png)
-图片来源：udn.com
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-美联社1月5日报道，德国反托拉斯监察机关周三将谷歌列为一个具有“至高无尚的意义”的公司，而需进行额外的检查，这是首次赋予检察机关更多的权利去阻止大科技数字公司滥用权力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/North-Korea-claims-another-hypersonic-missile-test.jpg)
 
-这一决定始于去年引入的允许“更早干预和更有效”地阻止这些公司采用反竞争手段。该检查的决定，持续5年，可以延长检查权以监管谷歌“滥用权力”。
 
-监管机构说谷歌比其他公司更具有“重要的影响力”，可以接近用户和通过搜索为顾客打广告，油管，安卓系统和网上商店可以在市场上为其他业务设置规定和状况”。
+ 
+图片来源：www.dailyadvent.com
 
-最近的例子是大科技公司在面对与他们竞争的对手时担心被取代优势而伤害到消费者。欧洲已经引领全球开始对抗大科技公司，但早期的批评是这些调查耗费太长时间，甚至几年，德国的这项规定是针对这个问题而提出的。
 
-德国的监管开始检查谷歌去年在个人数据方面的过程和新闻列表，并且调查亚马逊，苹果和脸书的上级元素。
+#### 编译：小红帽
 
-##### **新闻来源： **[German watchdog puts Google under closer antitrust scrutiny](https://apnews.com/article/technology-business-europe-germany-664440cb027ad76916c7a24e29852a60)
+根据《RT新闻》1月5日报道， **朝鲜表示，其在最近的一次试验中成功发射了一枚高超音速导弹，并声称在华盛顿谴责此举 “破坏稳定”之后，该导弹击中了数百英里之外的目标。**
 
-# ** **
+《朝鲜中央通讯社》星期四表示，在试射期间，导弹“精确地击中了朝鲜东海岸约700公里（435英里）的既定目标”，并补充说，领导人金正恩没有参加发射。
+
+韩国军方在周三首次报道了这次发射，这是自去年10月以来的第一次。此后，首尔敦促朝鲜 “真诚地回应我们通过对话实现和平与合作的努力”。
+
+就在试验后几个小时，韩国总统文在寅出席了一条穿过边境城镇高城的铁路线的奠基仪式。这是重新连接两个邻国之间交通的努力之一。
+
+美国国务院谴责这次导弹试验 “违反了联合国安理会的多项决议”和“对朝鲜邻国和国际社会的威胁”。然而，华盛顿的印太司令部早些时候承认，“这一事件没有对美国人员或领土或我们的盟友构成直接威胁”，但仍抨击这次发射在该地区产生了 “破坏稳定的影响”。
+
+平壤在去年9月的另一次试验后，首次声称拥有高超音速武器–华星-8导弹，但首尔的军事官员表示，当时该弹药似乎处于早期开发阶段。
+
+新闻来源：[North Korea claims another hypersonic missile test — RT World News](https://www.rt.com/news/545265-north-korea-unveils-missile/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,44 +2,45 @@
 ---
 
 
-## 继西安封城之后中共国河南禹州市和浙江宁波市相继被封
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1827194/)
+## 九号楼全体住户请做好准备等待专车前往指定地点隔离
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1827229/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-288.png)*这张拍摄于2021年12月18日的照片显示，在中共国东部浙江省宁波市的一个检查站，身穿个人防护装备（PPE）的警察在与卡车司机核检查信息。（图片来源：STR/AFP via Getty Images）*
-《布赖特巴特新闻网》1月4日报道，中共国的中共病毒封锁在周二蔓延到中部省份河南省的大型城市禹州，和东部浙江省的重要港口城市宁波。
-禹州对其110万居民的封锁引起了外国记者的注意，但全球贸易分析师对宁波更加紧张，因为宁波元旦期间在一家服装厂发现了一组中共病毒病例。按运输量计算，宁波是世界上最繁忙的港口，按每天处理的集装箱数量计算，则是世界第三大港口。
-中共官媒《环球时报》坚称，虽然宁波的“部分封锁”“导致了司机和卡车减少等问题”，并可能导致耐克和阿迪达斯等西方服装品牌的供应中断，但问题“没有一些人想象的那么严重，因为中国供应商有能力重新分配其产业链，而且当地政府已经介入，帮助稳定物流供应。”
-《环球时报》对“海外媒体”所谓国际服装运输可能会受到更严重“打击”这一担忧嗤之以鼻，因为当地官员已采取措施保护港口的物流，例如向卡车司机发放特别通行证，以便他们能够进入该市的隔离区。
-宁波一家进口公司经理声称：“封锁造成了一些不便，例如愿意进入封锁区的司机和车辆的减少。但总的来说，这些问题不是很严重，对我们的业务没有太大影响。”
-当地官员表示，截至周二，中共病毒的爆发仅包括23例病例，并且都“高度集中”在一家名为申洲国际的大型服装公司拥有的工厂群中。
-周日，申洲开始向配合“防疫控制措施”的员工发放奖金，并向愿意在宁波“前线”工作的员工发放更丰厚的奖金。
-宁波爆发的疫情据称是中共病毒的德尔塔变种毒株，随着北京冬奥会的临近，这对中共官员来说是一个重要的问题，因为他们坚称更温和但更具传染性的奥密克戎变种毒株已经在中共国受到了控制。
-禹州市下令其所有百万居民在室内隔离至少三天——这一封锁令与两周前对同等规模的西安市实施的封锁令相似。
-西安至今仍处于封锁状态，该市饥饿的居民只能以物换食，并在社交媒体上乞求帮助，而一支由4万名警察组成的大军在街上气势汹汹地徘徊。来自西安的一段疯传视频显示，一名男子说他用一袋大米换来了一部智能手机和一台平板电脑。
-中共官媒宣称，一支卡车车队上周末正在向绝望的西安人民运送肉类和蔬菜，但勇敢的社交媒体用户发现，该车队实际上将其物资运送到一个满是政府官员的大院。
-西安日益愤怒和恐惧的民众注意到，他们的政府把更多的精力放在了监禁他们上面，而不是为他们提供食物。一些人指出，在街上随处可见的4万名警察大军被大量的线人和秘密警察进一步扩大了规模。
-一位社交媒体留言者说：“我不认为这次西安封城是为了防止疾病。这更像是在控制人民。”
-禹州市政府周二表示，“我市的病毒防控形势非常严峻”，尽管官方仅报告了两例本土传播的中共病毒感染病例和18例无症状感染病例。
-当局表示：“在最短时间内圈住封死扑灭疫情是该市所有官员和人民面临的一项首要政治任务。”
-**简评：**
-河南禹州与浙江宁波相继落入西安市同样的命运，只言片语间百万民众便被政府囚禁在水泥森林中，楼下的超市隔着一纸禁令变得遥不可及。中共政府对宁波的封锁使全球的贸易伙伴意识到了对中共国过度依赖的后果。中共一如既往地将一切政治化，中共病毒疫情继续被中共当成首要的政治任务，而人命在这场人为制造的危机下，则沦为随时可以为了政治任务而牺牲的损耗品。为了让中国人不再继续过被邪恶的中共政权玩弄于股掌之间的日子，唯有消灭中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获2_副本.png)
+据[**张洲**](https://weibo.com/lbtgs) [2022年1月5日 14:05](https://weibo.com/1867099473/L9lBq5AcV?from=page_1003061867099473_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-新闻链接：[https://www.breitbart.com/asia/2022/01/04/china-locks-down-another-major-city-worlds-busiest-port-genocide-olympics-loom/](https://www.breitbart.com/asia/2022/01/04/china-locks-down-another-major-city-worlds-busiest-port-genocide-olympics-loom/)
+“9号楼全体住户请注意……”这个大喇叭里传出的声音，令人闻之色变 [L张洲的微博视频](http://t.cn/A6JAb0Wr) ​​​​
 
-翻译/简评：Dlrow
+九号楼全体住户请注意，接上级通知，请你们做好准备，带上生活必需品、防寒衣物，在小区门口等待专车前往指定地点做集中隔离。
 
-PR: Harvey（叶知秋）
+反复播放的高音喇叭透露出来的是不容质疑的权威和令人胆寒的高压，如果每个听到广播的人把这当成是别人家的故事，那么下一个你就可能是这种无差别隔离的被通知者。
 
-* * *
+当年纳粹驱赶犹太人去集中营的时候是什么样的场景？当年占领南京的几个日本军人押送数百国军俘虏并集体枪杀的时候是什么样的场景？虽然所有这些惨剧离我们不到百年，但是恐怕没有人会把纳粹驱赶犹太人去集中营与九号楼全体住户被驱离联系起来，恐怕也没有人会把几个日本军人押送数百国军俘虏集体枪杀与九号楼全体住户的被驱离联系起来。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+也许每个人在回看历史的时候，会说如果他是那个被驱赶的犹太人，他会如何反抗，如果他是那个被押送的国军俘虏，他会如何反抗，可是在当下，95%的西安成年人都被打了高剂量的中共病毒疫苗，就在当下西安为了实现所谓社会清零用这种方式把整个住宅楼的住户送往集中营。
 
+今天我们进步了吗？应该说，这个社会还是有进步的，至少，至少，在他们用高音喇叭驱离九号楼全体住户的时候，我们看到了这样的实时影像，至少我们会在惨剧实时发生的时候，每个人都应该扪心自问，如果你就是那个九号楼住户，你是乖乖送死呢？还是以死相搏呢？
 
-编辑：【英国伦敦喜庄园编辑部】
+撰稿：喜马拉雅的肉夹馍；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

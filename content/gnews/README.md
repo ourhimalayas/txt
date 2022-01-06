@@ -15,137 +15,137 @@
 
 ---
 
-### [中共GDP下降意味着什么?](/content/gnews/1/README.md)
+### [千亿房企阳光城董事长亏损3000万割肉辞任](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [G时评219期(1.5)直播摘要：5G与疫苗究竟有关系吗？](/content/gnews/2/README.md)
+ ` GISELLE`
+
+### [印度担心默克新冠药片副作用，将不纳入国家治疗方案](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【粤语配音】2022年1月5日：共匪想统治世界的“黄粱美梦”](/content/gnews/4/README.md)
+ ` MOS香港部`
+
+### [中共GDP下降意味着什么?](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [谁给了西安所谓志愿者勒令翻墙取食品者公开道歉的权力](/content/gnews/2/README.md)
+### [谁给了西安所谓志愿者勒令翻墙取食品者公开道歉的权力](/content/gnews/6/README.md)
  ` NewFOC`
 
-### [各方呼吁公众停用Twitter、FB等社交媒体](/content/gnews/3/README.md)
+### [各方呼吁公众停用Twitter、FB等社交媒体](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [日本单日新增感染近两千例，东京七成感染者曾接种疫苗](/content/gnews/4/README.md)
+### [日本单日新增感染近两千例，东京七成感染者曾接种疫苗](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [法国检测到中共病毒新毒株IHU](/content/gnews/5/README.md)
+### [法国检测到中共病毒新毒株IHU](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [2022年1月5日文贵大直播概要](/content/gnews/6/README.md)
+### [2022年1月5日文贵大直播概要](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“中国人的饭碗要装中国粮”，这个饭碗端得牢吗？](/content/gnews/7/README.md)
+### [“中国人的饭碗要装中国粮”，这个饭碗端得牢吗？](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/8/README.md)
+### [中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/9/README.md)
+### [牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [西安被讥讽，郑州落笑柄，千万检测只为几个病例？](/content/gnews/10/README.md)
+### [西安被讥讽，郑州落笑柄，千万检测只为几个病例？](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国政府数据：完全接种中共疫苗者或将患上艾滋病](/content/gnews/11/README.md)
+### [德国政府数据：完全接种中共疫苗者或将患上艾滋病](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：美最高法院将权衡拜登疫苗强制令](/content/gnews/12/README.md)
+### [每日快报：美最高法院将权衡拜登疫苗强制令](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在37.243 HDO](/content/gnews/13/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在37.243 HDO](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [&#8220;儿子死了，我做好了死的准备&#8221;…新型冠状病毒疫苗受害者遗属访问青瓦台](/content/gnews/14/README.md)
+### [&#8220;儿子死了，我做好了死的准备&#8221;…新型冠状病毒疫苗受害者遗属访问青瓦台](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [家长和补习班团体:&#8221;防疫通行证侵害了青少年的基本权利&#8221; 提起行政诉讼/ YTN](/content/gnews/15/README.md)
+### [家长和补习班团体:&#8221;防疫通行证侵害了青少年的基本权利&#8221; 提起行政诉讼/ YTN](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [澳门监管部门预期在博彩业引入数字人民币](/content/gnews/16/README.md)
+### [澳门监管部门预期在博彩业引入数字人民币](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [九号楼全体住户请做好准备等待专车前往指定地点隔离](/content/gnews/17/README.md)
+### [九号楼全体住户请做好准备等待专车前往指定地点隔离](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [国会共和党众议员呼吁举报人提供有关新冠病毒起源证据](/content/gnews/18/README.md)
+### [国会共和党众议员呼吁举报人提供有关新冠病毒起源证据](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】2021年日本企业破产数惊人 较去年增加一倍](/content/gnews/19/README.md)
+### [【中日财经爆】2021年日本企业破产数惊人 较去年增加一倍](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [HBO VICE采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-13](/content/gnews/20/README.md)
+### [HBO VICE采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-13](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [继西安封城之后中共国河南禹州市和浙江宁波市相继被封](/content/gnews/21/README.md)
+### [继西安封城之后中共国河南禹州市和浙江宁波市相继被封](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/22/README.md)
+### [儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [【中日财经爆】立陶宛终止国营铁路公司与中资公司签约](/content/gnews/23/README.md)
+### [【中日财经爆】立陶宛终止国营铁路公司与中资公司签约](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [朝鲜声称再次进行高超音速导弹试验，金正恩没有参加](/content/gnews/24/README.md)
+### [朝鲜声称再次进行高超音速导弹试验，金正恩没有参加](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G时评：原创时政小段子：核武器，税收](/content/gnews/25/README.md)
+### [G时评：原创时政小段子：核武器，税收](/content/gnews/29/README.md)
  ` GISELLE`
 
-### [澳大利亚取消德约科维奇的签证 因疫苗豁免被拒绝入境](/content/gnews/26/README.md)
+### [澳大利亚取消德约科维奇的签证 因疫苗豁免被拒绝入境](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [人权组织批国际奥委会不愿就新疆问题进行对话](/content/gnews/27/README.md)
+### [人权组织批国际奥委会不愿就新疆问题进行对话](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国监察机关将谷歌列为反托拉斯密切检查之列](/content/gnews/28/README.md)
+### [德国监察机关将谷歌列为反托拉斯密切检查之列](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国CDC玩文字游戏： &#8220;完全接种 &#8220;定义不变 但敦促进行“最新”疫苗注射](/content/gnews/29/README.md)
+### [美国CDC玩文字游戏： &#8220;完全接种 &#8220;定义不变 但敦促进行“最新”疫苗注射](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】受疫情影响英国面临严重员工短缺](/content/gnews/30/README.md)
+### [【G时新闻】受疫情影响英国面临严重员工短缺](/content/gnews/34/README.md)
  ` G-时新闻`
 
-### [G时评：什么是“性”？](/content/gnews/31/README.md)
- ` GISELLE`
+### [有感与文贵先生元旦大直播](/content/gnews/35/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [推特将审查跟1月6日国会大厦暴动有关的“有害内容”](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【中日财经爆】“债券天王”冈拉克：中共国不可投资 会被没收](/content/gnews/33/README.md)
+### [【中日财经爆】“债券天王”冈拉克：中共国不可投资 会被没收](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比](/content/gnews/34/README.md)
+### [【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共漫画——CCP&#8217;s Biggest Nightmare](/content/gnews/35/README.md)
- ` MOS Designer香草山设计部`
-
-### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/36/README.md)
+### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [串珠516:现在还不能杀习近平，美国人也不会杀他](/content/gnews/37/README.md)
+### [串珠516:现在还不能杀习近平，美国人也不会杀他](/content/gnews/39/README.md)
  ` 郭爆料串珠`
 
-### [串珠515:中共把流氓之歌改编成红歌给中国人洗脑](/content/gnews/38/README.md)
- ` 郭爆料串珠`
-
-### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/39/README.md)
+### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/40/README.md)
+### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/41/README.md)
+### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/42/README.md)
  ` YALUN 亚伦`
 
-### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/42/README.md)
+### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/43/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/43/README.md)
+### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/44/README.md)
  ` MOSREC`
-
-### [1/5/2022 文贵直播：“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价](/content/gnews/44/README.md)
- ` 秘密翻译组-北美组`
 
 ### [我的亲身经历（二）——严管期与管理犯](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`

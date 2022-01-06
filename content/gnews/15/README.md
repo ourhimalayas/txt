@@ -2,27 +2,40 @@
 ---
 
 
-## 家长和补习班团体:&#8221;防疫通行证侵害了青少年的基本权利&#8221; 提起行政诉讼/ YTN
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1827246/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-韩国首尔天池农场
-翻译：势在必行
-校对：鱼子酱
-上传：无明逆流
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-新型冠状病毒， 关于确认疫苗接种等的防疫通行证扩大到青少年的问题,争议不断。家长团体和补习班团体等甚至向法院提出了行政诉讼,要求取消青少年防疫通行证的引进。金庆洙记者报道。”立即撤回！撤回！撤回！”今年入冬以来最寒冷的一天,家长们聚集在法院前。
+总编：童谣
 
-“我是来递交取消&lt;青少年防疫通行证&gt;的行政诉讼状的”[金秀珍/’全国家长团体联合’代表:我的孩子是声乐专业，如果不接种疫苗，就不能去其他学校唱歌。 学习的权利，接受教育的权利至少应该得到保障吧？]
+编辑：飞虹
 
-此前,政府表示,为了加强新型冠状病毒的防疫,从明年2月开始对青少年也将适用防疫通行证。青少年如果想进入补习班、读书室、图书馆等，也要提交疫苗接种证明书或阴性确认书。但是,事实上无异于强制注射疫苗,并强烈反对的声音非常强烈。如果孩子们出现疫苗副作用,谁、如何负责也不明确,也有人批评说,政府盲目鼓励接种。
+新闻来源：
 
-[李尚武/”一起进行的医生教育联合”代表:将引入出现很多死亡病例、事实上强制进行未经验证的疫苗的所谓”防疫通行”制度,侵犯宪法第12条保障的人类最基本权利–人身自由。]参与诉讼的家长团体和私人教育团体还申请了停止执行,因为有可能发生难以恢复的损失,所以在法院判决出来之前,停止防疫通行正。另外提出了宪法诉愿,一周前高三学生已经和450多名市民一起提出了宪法诉愿。
 
-因为没有接种疫苗,就不能使用补习班和读书室,其宗旨是侵害学生的学习权等,违反宪法。梁大林 / 高中3年级:比起接种完成者，政府更严格地限制未接种者的日常生活，此次的方针是没有合理理由或根据的随意差别….]由于现场的反对呼声高涨,政府表示将重新调整防疫通行证适用对象和时间,估计法庭攻防战是不可避免。
-YTN金庆洙.
 
-뉴스 출처：[학부모·학원 단체 “방역패스는 청소년 기본권 침해”…행정소송 제기 / YTN](https://www.youtube.com/watch?v=qmZIg_PbZOQ)
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
 
+
+
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
