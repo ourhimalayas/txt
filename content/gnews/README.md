@@ -15,55 +15,55 @@
 
 ---
 
-### [法国总统马克龙：未接种疫苗的不再是公民](/content/gnews/1/README.md)
+### [文⋅贵天成——文贵先生谈“瑞银UBS”（一）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中国在印度边境部署“杀手机器人”自主武器平台](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [法国总统马克龙：未接种疫苗的不再是公民](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [习近平失败政绩大总结（四）](/content/gnews/2/README.md)
+### [习近平失败政绩大总结（四）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卫生厅局表明此前专家预测模型被证实失灵](/content/gnews/3/README.md)
+### [卫生厅局表明此前专家预测模型被证实失灵](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“数字人民币”（三）](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“数字人民币”（三）](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [他们说他们会减缓病毒传播（2/2）](/content/gnews/5/README.md)
+### [他们说他们会减缓病毒传播（2/2）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [杜鲁多：“加拿大人对还没打疫苗的人感到愤怒”](/content/gnews/6/README.md)
+### [杜鲁多：“加拿大人对还没打疫苗的人感到愤怒”](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“数字人民币”（二）](/content/gnews/7/README.md)
+### [文·贵天成——文贵先生谈“数字人民币”（二）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/8/README.md)
+### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [他们说他们会减缓病毒传播（1/2）](/content/gnews/9/README.md)
+### [他们说他们会减缓病毒传播（1/2）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿科医院联发警告：婴儿住院率上升](/content/gnews/10/README.md)
+### [儿科医院联发警告：婴儿住院率上升](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/11/README.md)
+### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/12/README.md)
+### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/13/README.md)
+### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/14/README.md)
+### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [COVID-19疫苗发明者：我们不能每6个月为地球人接种一次](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈音乐政治（2021-01-05摘录）](/content/gnews/17/README.md)
+### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
 ### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/18/README.md)
