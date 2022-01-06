@@ -2,49 +2,43 @@
 ---
 
 
-## 日本年后确诊数激增，岸田首相取消访问美澳行程
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1829360/)
+## 联邦法官阻止政府对启蒙计划的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829368/)
 
-作者: 日本方舟农场 – Andy5
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月2日，据当地媒体报道，一名联邦地区法官于当天阻止了美国政府要求启蒙计划早期教育项目的教师及员工接种中共病毒疫苗的强制令。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-5.jpeg)
 
+资料显示，启蒙计划是美国联邦政府资助的教育项目，其主要为低收入家庭的婴幼儿及学龄前儿童提供教育帮助。此前，联邦政府要求所有就职于启蒙计划的教育工作人员于2022年1月31日前接种中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+对此，在美国24个州起诉卫生与公众服务部长哈维尔-贝塞拉的案件中，路易斯安那州门罗地区法官特里-道蒂对此项疫苗强制政策发出了初步禁止令。
 
+道蒂法官表示，美国目前已经走到了十字路口。此时，如果民众继续允许行政部门篡夺立法部门制定法律的权利，那么美国就不再是民主国家。 道蒂强调，中共病毒疫情不是美国放弃三权分立的借口。
 
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06-2.jpg)图片来源: 网络
-
-在日本的年末年始小长假，许多日本人返家团聚过年之后，日本的疫情出现强烈反弹，全国新增感染人数，自去年九月以来首次超过2000人。而人群最集中的东京都，本周三的新增感染人数更是从昨日的新增151人陡增至390人，相对于上周三的76人，暴增5倍。 受此影响，日本首相岸田文雄放弃了在日本国会开始前，于1月中旬访问美国和澳大利亚进行面对面领导人会晤的行程，转而将精力集中在应对疫情上。
+与此同时，美国最高法院也正在考虑阻止加州一个学区针对当地学生实行的中共病毒疫苗强制接种要求。
 
 参考链接：
+1）[联邦法官阻止拜登政府针对启蒙计划（Head Start）的疫苗强制令](https://gnews.org/zh-hans/1821714/)
+2）[美联邦法官叫停“启蒙计划”强制疫苗令](https://www.aboluowang.com/2022/0104/1691293.html)
 
-1. [https://www.tokyo-np.co.jp/article/152503](https://www.tokyo-np.co.jp/article/152503)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-2. [http://www.cankaoxiaoxi.com/world/20220105/2465052.shtml](http://www.cankaoxiaoxi.com/world/20220105/2465052.shtml)
-
-3. [https://www3.nhk.or.jp/news/html/20220105/k10013416551000.html](https://www3.nhk.or.jp/news/html/20220105/k10013416551000.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-
-新闻采集人: 日本方舟农场 Andy5
-
-总编 : Irene木木
-
-校对/发稿：Petite abeille
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
+
 
  
 

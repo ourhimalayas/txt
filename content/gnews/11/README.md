@@ -2,36 +2,14 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第28天位列美国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1829703/)
+## 战斗室：精英合并意味着什么，它将这个世界看作什么？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1829807/)
 
-1/6/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第28天位列美国iTunes热门MV榜榜首。
-
-* * *
-
-[【PDF 下载】Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_117.jpg)
-
-
-[【PDF 下载】Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
+12/30/2021 杰克·波索别克：我们生活在一个集权政治的时代，而这个集权是无定形的。它是连续的，无边界的，是无形的。它是一个高我层次，高于我们看到的所有事物，高于我们每天做的所有决定。它把国家看成一个仓库，一个储存设施，它只看重资源，它把土地看成一种资源，它把人看成可以移动的货品。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
 
  
 

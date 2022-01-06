@@ -2,38 +2,45 @@
 ---
 
 
-## 美国司法部：又一名华裔药物研究员对窃取商业机密指控认罪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829565/)
+## 芝加哥教师工会无视政府复课命令开始远程教学
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1829660/)
 
-#### 撰稿：日本东京方舟农场  老孙
+作者：纽约香草山教育部 – Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F11C0B81-0A2C-422A-9F1A-07886029225D.jpeg)华裔癌症研究专家薛宇(美联社资料照片)
 
-1月3日，美国司法部宣布，又一名制药业巨头葛兰素史克(GlaxoSmithKline)公司的前华裔研究人员对窃取商业机密指控认罪。
 
-司法部宾夕法尼亚州东区检察官办公室1月3日，在一份声明中表示，44岁的露西·习(Lucy Xi音译)承认阴谋窃取葛兰素史克公司医药研究成果，并提供给中共南京任诺药业有限公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-声明指出，露西·习与其他三位华裔被告成立了任诺药业公司，用于掩盖他们从葛兰素史克公司盗取商业机密的行为，并且他们还从中共政府得到财务支持和补贴。
 
-声明强调，他们盗窃行为涉及的药物研制需要耗费10亿美元，背后牵涉到数以万计的工作岗位，所以司法部要对这类犯罪行为进行全力打击。
 
-南京任诺药业有限公司成立于2013年07月09日，注册地位于南京市江宁区芝兰路18号（江宁科学园），法定代表人为李涛，称这是一家由几位留美博士回国创立的生物医药高科技公司，立足于生物大分子抗癌药物研发，李涛为公司法定代表人。
 
-本案中的其他几名华裔被告，薛宇、其妹妹薛田和李涛三人此前已经认罪，但梅岩已逃离美国，目前在中共国居住。
 
-近年来，美国破获华裔偷盗美国商业机密的案件屡见报端，背后或多或少都与中共政府的“千人计划”有关，以丰厚报酬和高额研究资金引诱外国科学家和研究人员与中共分享他们的科研成果，从而达到窃取外国产业和学术机密的目的。
+在冠状病毒病例激增的情况下，教师工会以压倒性多数投票决定恢复远程学习，无视该市恢复课堂的命令，芝加哥公立学校于周三取消了课程。 芝加哥教师工会周二在一份声明中表示，近 90% 的芝加哥教师工会代表投票赞成转向远程学习。 芝加哥市工会称这座城市的教育工作者希望和学生一起在教室学习，但市长对病毒的疏于防范危及教师和学生的安全。芝加哥市长表示，远程学习损害了学生的学习机会，也给无法下班在家照顾孩子的父母带来了负担。 由于冬季欧米克隆病例的激增，全国各地的许多学校系统都面临着人们从假期回来后是现场教学还是远程教学的争论。
 
-美国司法部为了打击中共政府非常猖獗的窃取美国产业和学术机密的行动，已在2018年11月提出的一项名为“中（共）国倡议”的严打行动计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06-3-scaled.jpg)图片来源：The Washington Post
 
-参考链接：[https://www.voachinese.com/a/pharmaceutical-researcher-pleads-guilty-stealing-for-china-20220104/6380968.html](https://www.voachinese.com/a/pharmaceutical-researcher-pleads-guilty-stealing-for-china-20220104/6380968.html)
 
-* * *
 
-素材采编：老孙
+参考链接：
 
-编辑：文顺
+[https://www.washingtonpost.com/nation/2022/01/05/covid-omicron-variant-live-updates/](https://www.washingtonpost.com/nation/2022/01/05/covid-omicron-variant-live-updates/)
 
-校对：miumiu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+
+
+总编 : Irene木木
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
  
 

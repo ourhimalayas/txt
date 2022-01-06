@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 5:58 PM (UTC)`
+
+1月6号：乖乖哟……梦游开始！@tbeansprout 【20大 习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长  ……】
+![img](https://media.gettr.com/group7/getter/2022/01/03/21/9918d665-fb95-c155-47ca-e7e122a9660b/ac179b42c0c7e584c8c35c64efe03aea.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jasonmillerindc 1/6/2022 3:32 AM (UTC)`
@@ -155,14 +162,6 @@ The new episode of @plugtalkshow is now live featuring the ridiculously hot @emi
 `@reploudermilk 1/4/2022 7:12 PM (UTC)`
 
 I love freedom and the First Amendment - that's why I'm on GETTR.
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tulsigabbard 1/5/2022 7:34 PM (UTC)`
-
-Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me were fake. Now you can hear from me directly.  https://gettr.com/user/tulsigabbard
 
 ---
 
