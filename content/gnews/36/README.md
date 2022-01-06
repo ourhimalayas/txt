@@ -2,20 +2,22 @@
 ---
 
 
-## 【中日财经爆】比特币和以太币下跌至数月低点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828022/)
+## 【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828039/)
 
 整理编辑：东京樱花团丨peterwong
-![](https://lh3.googleusercontent.com/sTAdv_zarYaG6HnGCuT0to1C2ZJusRHbMtlFcNFE5wolwr_RWMRn8Gws2zdF_ILqRIiRa__3wno_-WawSkSZ0WEmmfiKMU4COjb_LGDFA2c0GcgNDi3PDiHdHc9O2wc6QVTbp4vy)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20210108/424023018293956608802965.jpeg/DPGKGy8pfCNtVkU-uIUIqPur_icIGLrCoPa5JKD2uSQ)
-比特币周四(1月6日）跌破43,000美元，创数月低点，此前美国联邦储备委员会(美联储/FED)最近一次政策会议的记录显示，其倾向于采取更积极的政策行动，这削弱了投资者对高风险资产的胃口。
+![](https://lh6.googleusercontent.com/_dR6mjou77H-ysxyhdVaU4e2S_FTzVVl2PZSjQoZKHUqTMwdTNeOZPPA83rMTAJ81YyjDUVu67nMPTvOptSa9s7bBzleZp8jGRTuNxdgJ7iviKgXf3j6M85IIFj8ut8h1_DqRHpg)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/Own8GQ26Z4nQGzqgCgK8mg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/L03kLisPoS2xiGtActtsOQ--~B/aD0xMDAwO3c9MTUwMDthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/zh-tw/newtalk.tw/d00cdb2baa9680dfefbec89dd7cbc28a)
+加拿大国会禁用中共国制口罩！加拿大国会议员日前投票通过决议，明令在国会禁止使用中共国制造的口罩，甚至在加拿大所有的联邦政府建筑物内，也不得使用中共国口罩。众议院议长罗塔（Anthony Rota）表示，最快从1月31日开始，禁令生效。
 
-比特币最新报42,700美元，下跌1.7%，周三下跌5.2%。若跌破上月低点42,000美元，将创下9月以来最低水准。比特币在11月创下了69,000美元的历史新高。
+加拿大媒体「True North」新闻网报导，国会议员意识到他们使用的口罩，竟然是从共产主义政权进口，而不是来自当地制造商后，做出此一决定。
 
-比特币下跌“与大多数传统资产类别的‘风险偏好降温’走势相关”，新加坡加密货币基金分销商Stack Funds的首席运营官Matt Dibb表示，他特别提到纳斯达克指数[.IXIC](https://cn.reuters.com/quote/.IXIC)的下跌。
+原来，此次国会口罩招标，得标的加拿大公司向国会提供2种非医用口罩，1种在安大略省生产，另1种在中共国生产。罗塔表示，根据众议院的投票决定，已把禁止中共国口罩的要求通知该供应商。
 
-以太币下跌了5.2%，并触及10月以来的最低水平，之后小幅反弹至3,460美元。
+原本还有部分国会议员担心此举恐怕得罪中共，影响与中共国贸易协定，还有人声称“没有证据”可以证明中共国口罩进到国会里。不过，魁人政团议员维格诺拉（Julie Vignola）指出，盒子上明明印着“Made in China”（中共国制造），还要睁眼说瞎话吗？
 
-消息来源：[**比特币和以太币接近数月低点 美联储的鹰派立场打击高风险资产**](https://cn.reuters.com/article/cryptocurrencies-0106-thur-idCNKBS2JG0B7?il=0)
+据了解，去年加拿大国会分发给国会议员的就包括中共国制口罩，当时就有保守党提出动议，要求联邦政府只能使用加拿大自己制造的个人防护装备。
+
+消息来源：[**中共国口罩out！加拿大国会与联邦大楼月底前禁用**](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%A3%E7%BD%A9out-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%9C%8B%E6%9C%83%E8%88%87%E8%81%AF%E9%82%A6%E5%A4%A7%E6%A8%93%E6%9C%88%E5%BA%95%E5%89%8D%E7%A6%81%E7%94%A8-023311497.html)
 
 *校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 平安卿卿*

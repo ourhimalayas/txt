@@ -2,121 +2,139 @@
 ---
 
 
-## 01/06每日播报｜新闻简讯:朝鲜宣布试射导弹 日澳联合签署国防协议 美国首次两例&#8221;Flurona &#8220;
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1828083/)
+## 文贵先生告诉墙内同胞远离城市呆在农村
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61d6b1dd31a71619b575bed0)**
+[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
 
-**2022-01-06**
+兄弟姊妹们记住啊
+Recuerden, hermanos y hermanas
 
-1、**朝鲜宣布试射高超音速导弹**
+你们都是银河农场, 台湾农场
+Todos ustedes son de la finca Galaxy y finca Taiwán
 
-[据朝鲜官媒《朝中社》1月6日报道，该国国防科学院周三成功试射一枚高超音速导弹。报道称，导弹准确命中700公里外的目标，高超音速导弹试射连续取得成功，具有战略意义，也是是2022开年以来朝鲜第一次展示武力。](https://www.zaobao.com.sg/realtime/world/story20220106-1230126)
+还有我们刚才说的, 天池农场, 方舟(农场)
+Y lo que acabamos de decir, la finca Tianchi y Fangzhou
 
-[朝鲜进行试射活动后，韩国政府立即以视频方式召开国家安全保障会议（NSC），最终决定与韩美国防及情报部门密切协作，分析飞行器的具体参数，并重申与朝鲜重启对话的重要性。](https://www.zaobao.com.sg/realtime/world/story20220106-1230126)
+都是最特别的
+Son las más especiales
 
-秘翻新闻vera编辑报道
+樱花农场
+La finca Flor de cerezo
 
-2、**鼓吹中共病毒疫苗的主持人在直播中突發心臟病**
+阿信, 小熊
+Axin, Xiaoxiong
 
-[据《真理卫士》1月6日報道，巴西阿尔特罗萨电视台的一位36 岁記者，拉斐爾·席爾瓦 (Rafael Silva) 在发布新闻時心梗暈倒。](https://thetruedefender.com/arrogant-journalist-promoting-the-c-19-shots-has-heart-attack-on-live-tv/)
+告诉战友们
+Díganle a los compañeros luchadores
 
-[他是阿爾特羅薩警報 (Alterosa Alert) 節目的主持人，他不断的推广中共病毒疫苗的接种，并且本人接種了三劑疫苗。](https://thetruedefender.com/arrogant-journalist-promoting-the-c-19-shots-has-heart-attack-on-live-tv/)
+一切答案在这
+Todas las respuestas están aquí
 
-[在被送往醫院的途中，他又經歷了五次心跳停止，不過所幸的是他最終沒有死，不知他经历此番生死之後，是否还会继续推廣中共病毒疫苗。](https://thetruedefender.com/arrogant-journalist-promoting-the-c-19-shots-has-heart-attack-on-live-tv/)
+明年会很黑暗
+El año que viene será muy oscuro
 
-秘翻新闻文雀编辑报道
+你唯一的希望
+Tu única esperanza
 
-3、**中共病毒疫苗导致五分之一的儿童嚴重發燒**
+你唯一的机会
+Tu única oportunidad
 
-[据《真理卫士》1月6日報道，《Unreported Truths》最新報告中，揭露了令人震驚的可怕数据，輝瑞公司的疫苗臨床試驗數據顯示，五分之一的兒童會出現嚴重發燒。這其實意味著兒童根本不适合接種中共病毒疫苗。](https://thetruedefender.com/shocking-pfizer-c-19-shot-causes-severe-fever-in-1-of-5-children/)
+就是跟农场和联盟保持联系
+Es mantenerte en contacto con la finca y la alianza
 
-[一位前纽约时报记者表示，辉瑞尚未在同行评审期刊上公布疫苗在5岁以下儿童中的任何安全性或有效性数据。这意味着孩子的父母只能参考疫苗生产商提供的数据。](https://thetruedefender.com/shocking-pfizer-c-19-shot-causes-severe-fever-in-1-of-5-children/)
+还有远离城市
+También alejarse de la ciudad
+中国的现代城市化
+La urbanización moderna de China
 
-秘翻新闻文雀编辑报道
+和迅速地城市化
+Y el proceso de urbanización rápida
 
-4、**辉瑞与生物新技术公司合作开发 mRNA 带状疱疹疫苗**
+乡村城市化
+La urbanización rural
 
-[据合众国际社1 月 5 日报导，本周三，辉瑞和生物新技术公司(BioNTech SE)宣布计划合作开发一种 mRNA 疫苗来预防带状疱疹。两家公司表示，计划在中共病毒疫苗中使用相同的抗原和 mRNA 技术来制造带状疱疹疫苗。](https://www.upi.com/Top_News/US/2022/01/05/Pfizer-BioNTech-shingles-vaccine/8511641408182/)
+绝对是中国的灾难
+Es absolutamente el desastre de China
 
-[生物新技术公司的首席执行官兼联合创始人乌尔·萨欣(Ugur Sahin )表示，此次合作旨在利用两家公司的专业知识和资源，开发一种基于 mRNA 的新型带状疱疹疫苗。目标是开发一种具有良好安全性和高效性的 mRNA 疫苗，同时更易扩展以支持全球接种。](https://www.upi.com/Top_News/US/2022/01/05/Pfizer-BioNTech-shingles-vaccine/8511641408182/)
+任何有脑子的人记住
+Cualquier persona que tenga cerebro recuerde
 
-[作为两家公司协议的一部分，总部位于纽约市的辉瑞将向生物新技术公司支付 2.25 亿美元，其中包括 1.5 亿美元的股权投资。生物新技术公司将向辉瑞公司支付 2500 万美元用于其专有抗原技术。带状疱疹疫苗的临床试验预计将于 2022 年下半年开始。本次两公司合作开发的将是第一个使用 mRNA 技术的带状疱疹疫苗。](https://www.upi.com/Top_News/US/2022/01/05/Pfizer-BioNTech-shingles-vaccine/8511641408182/)
+现在被伤害的人是你买房的
+Persona que está siendo lastimada es porque tu has comprado la casa
 
-[值得注意的是，采用mRNA技术的中共病毒疫苗已在全球广泛应用，出现大量副作用包括心包炎、心肌炎等症状，并且长期安全性未知。因此采用mRNA技术的带状疱疹疫苗在安全性上非常令人担忧。](https://www.upi.com/Top_News/US/2022/01/05/Pfizer-BioNTech-shingles-vaccine/8511641408182/)
+被伤害的人
+Personas que son lastimadas
 
-秘翻新闻文洋MAS编辑报道
+郑州被淹死的, 是有车的(人)
+Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
 
-5、**中共审查影响舆论的App 被指信息管控再加锁**
+现在在西安城市里饿死的
+El que se murió de hambre en la ciudad de Xi’an en este momento
 
-[据《大纪元》1月6日报导，根据中共网信办周三发布的规定，所有具备影响公众舆论能力的应用程序都应接受安全审查。分析人士称，这一新规其实就是在互联网信息管控上再加一把锁。目前尚不清楚监管机构认为哪些功能或技术可以影响公众舆论。](https://www.epochtimes.com/gb/22/1/5/n13484759.htm)
+是在城市里边
+Es el que estaba dentro de la ciudad
 
-[这一最新规则是中共网信办（CAC）周三发布的法规草案的一部分，该法规旨在为应用程序制造商的运营方式制定一个框架。法规规定，应用程序提供者和应用程序分发平台不得利用其应用程序从事所谓的危害国家安全、扰乱社会秩序等活动。](https://www.epochtimes.com/gb/22/1/5/n13484759.htm)
+当房奴, 当街奴, 当打工奴的
+Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
 
-[根据网信办发布的信息，应用程序在运营中需要接受监管结构的审查，最终获得许可。严禁未经许可或者超越许可范围开展互联网新闻信息服务活动，并且所有用户必须使用真实身份注册应用程序。](https://www.epochtimes.com/gb/22/1/5/n13484759.htm)
+你待在老家绝对比在西安安全
+Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
 
-[旅美时事评论员郑浩昌周三告诉大纪元，这个网信办的新规，其实就是在互联网信息管控上又加了一把锁。把即时通讯、新闻资讯、知识问答、论坛社区、网络直播、电子商务、网络音视频都包括在里面，无死角一网打尽。](https://www.epochtimes.com/gb/22/1/5/n13484759.htm)
+绝对比在郑州安全
+Será más seguro que estar en Zhengzhou
+绝对比待在任何二级城市安全
+Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
 
-[中共进一步加强言论管控，与当前中共内外交困、北京冬奥临近、中共二十大将要举行等都有很大关系。中共解决不了危机，但它可以封住老百姓的嘴，不让危负面信息四处传播，以免影响政权的稳定。](https://www.epochtimes.com/gb/22/1/5/n13484759.htm)
+更不要说在北京
+Menos mencionemos estar en Beijing
 
-秘翻新闻文洋MAS编辑报道
+每年要赶一次什么二级下流人士
+Corran a los indecentes de segundo nivel una vez al año
 
-6、**香港禁英美等8国航班 同时关闭公共场所取消大型活动**
+低级人士被驱赶的城市
+La ciudad donde las personas de bajo rango son expulsadas
 
-[据《香港无线新闻》报道，香港特区行政长官林郑月娥5日表示，1月8日凌晨零点起禁止八国航班赴港，为期14天，包括英国、美国、澳大利亚、加拿大、法国、菲律宾、印度、巴基斯坦。](https://ishare.ifeng.com/c/s/v002ea8UCuaPlb8i6UZpGg-_8hK8Ka0gTpn5iVD--mAzAIAto__)
+永远记住中国人最安全的地方
+Recuerden siempre el lugar más seguro para los chinos
 
-[同时，香港特区政府认为第五波疫情一触即发，因而宣布自7日凌晨零点至1月20日，收紧现行的社交距离措施，维持14天。](https://ishare.ifeng.com/c/s/v002ea8UCuaPlb8i6UZpGg-_8hK8Ka0gTpn5iVD--mAzAIAto__)
+在你老家
+Es tu ciudad natal
 
-[措施包括餐饮场所傍晚18时至翌日清晨5时禁止堂食；关闭酒吧、游戏厅、派对房间、健身中心、按摩院、体育场等场所；医院、院舍暂停探访；7日起取消所有大型活动及非必要聚会，包括香港单车节，为期14天。](https://ishare.ifeng.com/c/s/v002ea8UCuaPlb8i6UZpGg-_8hK8Ka0gTpn5iVD--mAzAIAto__)
+在农村, 绝不在城市
+En el campo, nunca en la ciudad
 
-秘翻新闻vera编辑报道
+七哥今天第一次这么告诉你们
+Les digo esto por primera vez
 
-7、**传许家印8000万甩卖上亿元豪宅 售价再降1500万**
+听七哥的
+Escúchenme
 
-[据《新唐人》01月06日报道，中共国恒大正甩卖资产还债。网传其创始人许家印8000万人民币甩卖亿万豪宅的广告。日前又传消息，该豪宅再降1500万。](https://m.ntdtv.com/gb/2022/01/05/a103313628.html)
+看这个, 联系农场
+Vean esto, contacten a la finca
 
-[近日，中共国社交媒体上流传许家印出售广州珠江新城豪宅的信息。网传截图显示，该房产为珠江新城金碧华府25楼复式豪宅，面积753平方米，市场价1.1亿元，现售8000万，要求看房者要先验资5000万，一次性付款的购买者优先。](https://m.ntdtv.com/gb/2022/01/05/a103313628.html)
-
-秘翻新闻二丫编辑报道
-
-8、**有无接种疫苗成医生问诊关键问题 打过疫苗的患者需另行观察**
-
-根据网友1月4日在某聊天群的聊天记录显示，某网友透露上海某三甲医院对没打疫苗的病人直接治疗，而对打了疫苗的病人还需经过事先观察。
-
-另一位网友也有相同经历，称到某医院看病时，医生首先咨询他的问题并非病情，而是问是否打过疫苗。当他称自己没打疫苗时，医生回复表示可以安心了。
-
-该网友还透露，该医院最近接诊了很多病人，他们都打了疫苗。从CT影像中观察很像恶性瘤，并且患者患病处疼痛，肿大厉害，但血项指标正常，不像发炎。最后鉴定结果为脓肿，没有确诊为癌症，医生对此表示他们过去从没碰到这类病人，但他们也未上报这些疑似疫苗后遗症的情况。或许是因为上报了也没有用，反而会给自己带来负面影响。
-
-秘翻新闻巴拉克编辑报道
-
-9、**西安市民曝：核酸检测导致多人感染**
-
-[据《新唐人》01月05日报道，陕西西安市封城进入第14天，为了达成疫情清零目标，当局管控持续升级，并不断有大批外地医护人员前来支援做核酸检测。有西安市民曝光，核酸检测过程中感染了很多人，其中包括医护人员和志愿者。](https://www.ntdtv.com/gb/2022/01/05/a103313239.html)
-
-[西安市民透露，做核酸检测时人员聚集，导致很多医护人员和志愿者被感染、被隔离，但这一消息受到严厉封锁。同时因为聚集民众做核酸检测，最终造成一码通崩溃。](https://www.ntdtv.com/gb/2022/01/05/a103313239.html)
-
-[4号，网友发布的视频显示，咸阳派出数百人的医护队伍支援西安做核酸检测。有市民表示，做核酸检测的医护人员常常换新面孔，可能跟外地支援有关，也可能是当中有人感染。](https://www.ntdtv.com/gb/2022/01/05/a103313239.html)
-
-秘翻新闻文洋MAS编辑报道
-
-10、**河南多地疫情升温 禹州急建5000个隔离房**
-
-[据《新唐人》1月5日报道，河南禹州市2号宣布封城，所有人员只进不出，4号，再新增2个高风险地区。消息指出，当局正紧急建造5千个隔离房。此外，河南省周口市太康县也出现关联病例，现在当地已经停业停课。](https://m.ntdtv.com/gb/2022/01/05/a103313253.html)
-
-[据河南许昌官方消息，截至1月4号12点，禹州市在核酸检测中，发现了20例确诊病例，同日，新增了2个高风险地区，并将10个区域划定为封控区，其它区域均为管控区。目前禹州全市居民被要求居家隔离、足不出户。](https://m.ntdtv.com/gb/2022/01/05/a103313253.html)
-
-[据中共官媒报导，禹州市目前已投用10个集中隔离点，隔离房间1500间，还将增建5000个隔离房。](https://m.ntdtv.com/gb/2022/01/05/a103313253.html)
-
-[另据河南周口官方通报，太康县发现禹州关联确诊病例。1月5号，太康县启动了8个集中隔离点，1000个隔离房间，同时在当地进行核酸检测。当局要求各级学校暂缓开学，停止举办聚集性活动，人员非必要禁止离开。因此物流业及零售业均受到极大影响，恐出现西安物资紧张的情况。](https://m.ntdtv.com/gb/2022/01/05/a103313253.html)
-
-秘翻新闻二丫编辑报道
-
-发布: 恩典
+远离城市
+Aléjanse de la ciudad
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+日期：01/04/2022
+原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
+Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
+原视频日期：01/02/2022
+原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
+任务编号：3392
+视频时间段：00:00-01:23
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

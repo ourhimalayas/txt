@@ -2,37 +2,42 @@
 ---
 
 
-## 佐治亚州官员对2020年非法选票展开调查
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1828121/)
+## 因星链技术，中共近期频繁碰瓷马斯克
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1828323/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-313.png)图片来源：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-据《Just The News》报道，佐治亚州官员已经对2020年总统选举和随后的美国参议院决选期间的民主党人收票行为，展开调查。
 
-佐治亚州务卿办公室还在考虑发出传票以确保证据，这些证据在选民诚信组织”真实投票”(True the Vote)于11月30日提交的申诉中，作了详细说明。
 
-True the Vote”收集到的证据表明，数十名活动家与非营利团体合作，在大流行期间，经常在凌晨时分收集并运送数以千计的缺席选票到分布在全州的临时投票箱。” 这一努力与佐治亚州禁止第三方活动家代表选民领取和递送选票的法律相抵触。
+![](https://n.sinaimg.cn/tech/crawl/63/w550h313/20220103/3602-68bc7104ffb18e3efb84c2a66b184945.jpg)
 
-《Just The News》总结了选民诚信组织的调查结果，包括活动分子放下成批选票的监控录像，以及一个人承认他在亚特兰大收获选票的报酬：
+因为星链技术，以及该技术跟美国军方的关系，中共在近期疯狂碰瓷马斯克。先是在2021年上半年，通过所谓“女车主”维权，将特斯拉推到了舆论的风口浪尖，然后在年底爆出所谓星链卫星一度威胁到中共的空间站，现在又有中共写手发布一篇标题为“你买的每一辆特斯拉，都成了打向中共空间站的子弹”报道，来呼吁民众不要购买特斯拉产品。 分析人士称，中共真正害怕的是马斯克的星链将让它的防火墙形同虚设。而中共写手的那篇文章，不禁让人联想到苏联解体前，苏联政府那句有名的宣传口号“每吃一个美国的汉堡，就多了一颗射向苏联的子弹”，中共离解体不远了。
 
-根据《Just the News》审查的文件，True the Vote告知秘书，其证据包括各县在投递箱外放置的监控摄像头的录像，以及200多名活动人士的手机的地理位置数据，据称这些录像显示了投递选票的日期和时间。
 
-True the Vote还表示，它采访了一名佐治亚州的男子，该男子承认在11月选举和2021年1月5日佐治亚州两个美国参议院席位决选前，他得到了数千美元的报酬，在亚特兰大市区收获选票，这两个席位都被民主党人夺得，结束了美国国会的控制。True the Vote尚未向州当局确认合作证人（报酬收获者）的身份，在投诉中只称他为无名氏。
 
-True the Vote并没有指称快递员交付的选票是欺诈性的。然而，由第三方运送到投递箱的合法选票会触犯佐治亚州的法律。
+参考链接：
 
-“佐治亚州州务卿布拉德·拉芬斯佩尔格（Brad Raffensperger）在周二播出的播客（John Solomon Reports）的采访中证实，他的办公室已经认为这些指控足够可信，可以展开调查，并可能向州选举委员会寻求传票，以确保证据，”报告补充说。
+1. [https://oversea.huanqiu.com/article/46CrdkAK9rU](https://oversea.huanqiu.com/article/46CrdkAK9rU)
 
-“这将是我们正在考虑的程序之一，如果我们有一些人出于某种考虑不想站出来，因为我们真的需要弄清事情的真相，”拉芬斯佩尔格在采访中说。”我们不能让真相坐在那里，躺在那里。因此，如果事情发展到这一步，那么这可能是我们要考虑的下一步。”
+2. [https://finance.sina.com.cn/tech/csj/2022-01-03/doc-ikyakumx7993287.shtml](https://finance.sina.com.cn/tech/csj/2022-01-03/doc-ikyakumx7993287.shtml)
 
-新闻来源：[thenationalpulse.com] [Georgia Officials Launch Investigation Into Illegal BallotHarvesting.](https://thenationalpulse.com/2022/01/05/ga-investigating-ballot-harvesting/) | 发布时间：2022年01月05日
+3. [https://finance.sina.com.cn/tech/2021-04-19/doc-ikmyaawc0583823.shtml](https://finance.sina.com.cn/tech/2021-04-19/doc-ikmyaawc0583823.shtml)
 
-* * *
+校对/发稿：有莫举名
 
-*发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

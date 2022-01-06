@@ -15,119 +15,119 @@
 
 ---
 
-### [粮价涨幅加大，令人担忧](/content/gnews/1/README.md)
+### [秘翻在线：哈萨克斯坦暴乱的前因后果，谁将成为背锅侠？](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西安封城13天，居民基本生活不能保证](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [西安在建造方舱医院](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2021年全球盖特人物：中共最大恶梦奖获奖者——郭文贵](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳联邦政府为接种中共病毒疫苗而病重的人提供赔偿](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [粮价涨幅加大，令人担忧](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/2/README.md)
+### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [报告称Omicron感染有个其他变体未出现过的“非常奇怪的症状”](/content/gnews/3/README.md)
+### [报告称Omicron感染有个其他变体未出现过的“非常奇怪的症状”](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [网球名将Novak Djokovic已获得疫苗豁免，将准时参加澳网公开赛](/content/gnews/4/README.md)
+### [网球名将Novak Djokovic已获得疫苗豁免，将准时参加澳网公开赛](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [秘翻在线：中共式“社会面清零” 等同于感染一个消灭一个](/content/gnews/5/README.md)
+### [秘翻在线：中共式“社会面清零” 等同于感染一个消灭一个](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花灭共诗——辛丑小寒日有感西安新冠清零](/content/gnews/6/README.md)
+### [樱花灭共诗——辛丑小寒日有感西安新冠清零](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英卫生机构称双剂疫苗或破坏自然免疫系统](/content/gnews/7/README.md)
+### [英卫生机构称双剂疫苗或破坏自然免疫系统](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [全球疫情更新（澳网名将法庭挑战澳洲政府疫苗要求）](/content/gnews/8/README.md)
+### [全球疫情更新（澳网名将法庭挑战澳洲政府疫苗要求）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本外相林芳正就驻日美军感染扩散问题对美方提出要求](/content/gnews/9/README.md)
+### [日本外相林芳正就驻日美军感染扩散问题对美方提出要求](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国首次发布出口管制的白皮书](/content/gnews/10/README.md)
+### [中共国首次发布出口管制的白皮书](/content/gnews/15/README.md)
  ` 秘密翻译组金融团队`
 
-### [先天下之忧而忧](/content/gnews/11/README.md)
+### [先天下之忧而忧](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共要真心实意在香港搞“特色民主”](/content/gnews/12/README.md)
+### [中共要真心实意在香港搞“特色民主”](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [借 Omicron封锁港人 推强制注射新冠疫苗](/content/gnews/13/README.md)
+### [借 Omicron封锁港人 推强制注射新冠疫苗](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中大获拨巨款 成中共病毒研究基地](/content/gnews/14/README.md)
+### [中大获拨巨款 成中共病毒研究基地](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】专家分析：中共将“三战”战略延伸至太空（三）](/content/gnews/15/README.md)
+### [【樱花深度报道】专家分析：中共将“三战”战略延伸至太空（三）](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [是美国人自己帮助了中共崛起](/content/gnews/16/README.md)
+### [是美国人自己帮助了中共崛起](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [来自中国共产党的外部威胁切实存在](/content/gnews/17/README.md)
+### [来自中国共产党的外部威胁切实存在](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国众议院委员会启动中共病毒溯源调查](/content/gnews/18/README.md)
+### [美国众议院委员会启动中共病毒溯源调查](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [沃尔玛因移除新疆产品遭中共国警告](/content/gnews/19/README.md)
+### [沃尔玛因移除新疆产品遭中共国警告](/content/gnews/24/README.md)
  ` 秘密翻译组金融团队`
 
-### [朝鲜新年导弹测试或加剧朝鲜半岛紧张局势](/content/gnews/20/README.md)
+### [朝鲜新年导弹测试或加剧朝鲜半岛紧张局势](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [01/06每日播报｜美国第六巡回上诉法院拒绝暂停阻止联邦承包商接受疫苗强制令的禁令](/content/gnews/21/README.md)
+### [01/06每日播报｜美国第六巡回上诉法院拒绝暂停阻止联邦承包商接受疫苗强制令的禁令](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [北韩怎么变成家天下的](/content/gnews/22/README.md)
+### [北韩怎么变成家天下的](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年1月6日新闻集](/content/gnews/23/README.md)
+### [2021年1月6日新闻集](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [因星链技术，中共近期频繁碰瓷马斯克](/content/gnews/24/README.md)
+### [因星链技术，中共近期频繁碰瓷马斯克](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [7·24系列——九龙壁的历史起源](/content/gnews/25/README.md)
+### [7·24系列——九龙壁的历史起源](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生告诉墙内同胞远离城市呆在农村](/content/gnews/26/README.md)
+### [文贵先生告诉墙内同胞远离城市呆在农村](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西安内部人员曝中共管理混乱，疫情清零作假](/content/gnews/27/README.md)
+### [西安内部人员曝中共管理混乱，疫情清零作假](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [01/06每日播报|社媒消息:班农先生 Newsmax](/content/gnews/28/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [佐治亚州官员对2020年非法选票展开调查](/content/gnews/29/README.md)
+### [佐治亚州官员对2020年非法选票展开调查](/content/gnews/33/README.md)
  ` wenwu`
 
-### [2022/01/06 英喜时事速递](/content/gnews/30/README.md)
+### [2022/01/06 英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [01/06每日播报｜新闻简讯:朝鲜宣布试射导弹 日澳联合签署国防协议 美国首次两例&#8221;Flurona &#8220;](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [日美将加强核能等清洁能源领域的合作](/content/gnews/32/README.md)
+### [日美将加强核能等清洁能源领域的合作](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩](/content/gnews/33/README.md)
+### [【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [债券大王杰弗里·冈德拉克：目前不可投资中共国](/content/gnews/34/README.md)
+### [债券大王杰弗里·冈德拉克：目前不可投资中共国](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国新任驻日大使批评中共国不是好邻居](/content/gnews/35/README.md)
+### [美国新任驻日大使批评中共国不是好邻居](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】比特币和以太币下跌至数月低点](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共砖家大放厥词说西方政党只代表一部分人利益](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [金灿荣说中共国国防开支小荷才露尖尖角](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [龙头变龟头透露共产党的恐惧和绝望,而我们有无尽的希望](/content/gnews/39/README.md)
  ` 喜马拉雅日本银河系农场`
