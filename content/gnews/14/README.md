@@ -2,35 +2,19 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 从我自己的事说起，看看共产党的邪恶。
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1827501/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+撰稿—无名小卒
+校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2022/01/21-1.jpg)
+2017年5月，由于习政府出台一个政策：所有行政单位包括部队所有产权的门面房、住房通通往回收，部队的我不清楚因为我家店面属于行政单位，行政单位的收归国资委，我家经营了十年多的老店就这样被政府以这种名义收（其实就是抢）了，没有补偿。
 
-新闻来源:
+十多年前我们是花了几万块转回来的门面，因为年龄大了没啥学历就又转了个门面重新创业，结果因为种种原因，失败了，并且负债累累，导致现在只能打最底层的工勉强维持生存，期间如果没有来自家人及朋友们的帮助怕是也撑不到现在，真是应了人家说的那句话：辛辛苦苦几十年（我家是十几年），一朝回到解放前。
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+其实我更甚，因为当初我至少没有现在这么艰难，当时才负债三万多还有两门面，现在，啥也没有了除了债务… 据我所知，就我们所在城市和我相同遭遇的就有不少人，全国就不晓得是有多少人受害了，而我的这种情况还只是中共国内无数种被割韭菜其中一种而已，更惨的还大有人在，懂的人就可以窥一斑而知全豹了。不灭了CCP，中国人的灾难不会停，只会越来越多越惨重，就像现在的毒疫苗。
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
-
-总编:文特
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-
+**Take Down The CCP**
 
  
 

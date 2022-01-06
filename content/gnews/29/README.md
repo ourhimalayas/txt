@@ -2,43 +2,40 @@
 ---
 
 
-## 国会共和党众议员呼吁举报人提供有关新冠病毒起源证据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827208/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-#### 撰稿：彩虹
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-9.jpg)图片来源：福布斯
-1月5日，《新闻极限》发布文章，指国会针对新冠病毒（COVID-19）起源的调查可能真正开始了。
+总编：童谣
 
-报道指，美国众议院能源和商业委员会共和党领袖凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）、健康问题小组委员会共和党领袖布雷特·格思里（Brett Guthrie）以及监督和调查小组委员会共和党领袖摩根·格里菲斯（Morgan Griffith）宣布推出一个网页，供举报人联系他们，提供与调查新冠病毒（COVID-19）起源有关的信息。
+编辑：飞虹
 
-（编者注：举报链接为：[https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/](https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/)）
-
-在一份声明中，他们说，“我们需要知道这种大流行病是如何开始的，以便阻止它再次发生。为了每一个因COVID-19（中共病毒）而失去亲人的美国人、每一个夜以继日工作的前线工作人员以及每一个面临心理健康紧急情况的儿童，我们有义务找到答案。无论事实（证据）指向哪里，我们都希望得到真相。我们鼓励能够为完整、科学和客观地调查COVID-19的起源提供信息的举报人与委员会联系。”
-
-报道说，调查人员正在寻求与以下事项有关的信息：
-
-- 与SARS-CoV-2的起源有关的科学实验；
-- 与SARS-CoV-2的起源有关的美国研究政策/程序性问题；
-- 武汉病毒研究所的实验室安全问题；
-- 与SARS-CoV-2的起源有关的基因组序列数据/数据库；
-- 生态健康联盟的研究，包括研究提案（资助或未资助）；
-- 与早期武汉COVID-19患者病例有关的信息；
-- 中国人民解放军在武汉病毒研究所实验室的研究（BSL2、3或4）；
-- 与SARS-CoV-2起源调查的有关文件：电子邮件、合同、照片、研究报告。
+新闻来源：
 
 
-文章特别指出，2021年8月份，乔·拜登总统发表声明，指责中共国隐瞒了与新型冠状病毒的起源有关的关键信息。
 
-2021年11月份，共和党参议员兰德·保罗（Rand Paul）告诉《新闻极限》说，几个月来，他一直呼吁两党对COVID-19（中共病毒）的起源进行调查，并指安东尼·福奇（Anthony Facui）博士领导的美国国立卫生研究院支持武汉实验室对蝙蝠病毒进行功能性增强研究。
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
 
-在新闻极限电视台的“Spicer & Co”节目中，保罗说：“几个月来，我一直呼吁（对此）进行调查。我们应该对新冠病毒的起源进行两党联合调查，以努力确保不再发生这种情况。”
 
-**新闻来源**
 
-[House Committees Launch COVID Origins Inquiry for Whistleblowers](https://www.newsmax.com/politics/house-covid-web-page-whistleblower/2022/01/05/id/1051167/)
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

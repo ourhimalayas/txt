@@ -2,30 +2,37 @@
 ---
 
 
-## 澳门监管部门预期在博彩业引入数字人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1827245/)
+## 牛津疫苗研发专家称定期注射疫苗“不理智”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827309/)
 
-据《路透社》记者：Katrina Hamlin，2022年1月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-291.png)2020年2月20日，中共国澳门葡京赌场午夜夜景。路透社/Aleksander Solum
-香港，1月3日（路透社Breakingviews）——中共国将赌上数字人民币。随着澳门赌场业主准备竞标新牌照，监管机构将利用这个机会迫使这些运营商成为数字人民币的试验田。
-随着这个价值370亿美元市场的优惠政策即将到期，金沙中国（1928.HK）和永利澳门（1128.HK）等公司将急于证明自己是合格的团队成员。监管机构已经在施展他们的力量。一份关于重新招标的政府咨询文件提出了一些想法，包括任命政府人员监督日常运营。
-伯恩斯坦公司分析师估计，普通赌客每次到澳门赌桌前的损失超过27,000美元。澳门赌场也一直是腐败官员和商人的聚集地。12月，博彩公司Suncity（太阳城）老板Alvin Chan被卷入了非法博彩调查。太阳城为富有的贵宾提供服务，在Covid-19发生的前一年，其博彩收入约为80亿美元。一个月前，中共国央行行长易纲建议使用新开发的加密货币来打击犯罪和解决复杂的跨境支付问题，包括洗钱。澳门可能已经在他的思考范围。
-在博彩中心应用数字支付将有助于中共国政府对现金流和客户进行更多监督。澳门位于中共国资本管制之外，也是在大陆推广数字支付前测试该技术的理想场所。有关方提出使用可追踪资金进行无现金博彩的概念。例如，澳大利亚星际娱乐(SGR.AX)表示，它正在探索数字支付，以安抚其监督者。
-银河娱乐(0027.HK)和澳门永利(Wynn Macau)等曾经担心，大额客户对审查望而却步。然而，他们不再是收入的主要来源。根据官方数据和Breakingviews的估计，大众客户贡献博彩营业收入的三分之二和收益的九成。
-技术已经就绪。在试点中，中共国消费者花费了大约100亿美元的数字人民币。监督者有很多胜算，运营商也不会有损失，2022年将是数字货币进入赌场的第一年。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-294.png)
+波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
 
-* * *
+波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
 
-原文连接：[https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：[January 4 coronavirus pandemic and Omicron variant news](https://www.cnn.com/webview/world/live-news/omicron-variant-coronavirus-news-01-04-22/h_b563a607338c0ca3ff13520fa4d5f96e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编: 文特
+
+编辑: 飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+
 
  
 
