@@ -2,22 +2,24 @@
 ---
 
 
-## 法国检测到中共病毒新毒株IHU
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827333/)
+## 各方呼吁公众停用Twitter、FB等社交媒体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月4日，科学家在法国南部发现一个中共病毒的新毒株，命名为IHU，目前已知12位感染病例。据悉，IHU首例感染来自去年11月中旬实验室采集到的成年人鼻咽样本。有科学家表示，这个新毒株比奥米克戎繁殖性更快，突变数量很大，传染性更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-298.png)
+撰稿: 银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
+另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+
 新闻来源:
 
-[France detects new Covid variant IHU, 12 infected](http://timesofindia.indiatimes.com/articleshow/88684678.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst)
+[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+
+[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
-总编：文特
-
-编辑: Kathy文艺
+总编:文特
 
 校正/发稿：浪迹天涯
 
@@ -27,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
 
 
  

@@ -2,10 +2,10 @@
 ---
 
 
-## 西安封城惨景：很多农民工无家可归
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827976/)
+## 金灿荣说中共国国防开支小荷才露尖尖角
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827982/)
 
-12/31/2021 西安封城惨景：很多农民工无家可归，甚至没人去看看路上躺着的人。
+金灿荣说中共国国防开支小荷才露尖尖角，而中共国制造成本比美国低，花同样的钱可以买更先进的武器。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

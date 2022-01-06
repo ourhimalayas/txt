@@ -2,35 +2,48 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 印度担心默克新冠药片副作用，将不纳入国家治疗方案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827478/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-新闻来源:
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-PILLS.jpeg)
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
+ 
+图片来源：*NurPhoto | NurPhoto | Getty Images*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
-总编:文特
+#### 编译：小红帽
 
-校正/发稿：浪迹天涯
+根据《RT新闻》1月5日报道，** 印度已经宣布不会将默克公司的治疗新冠（Covid-19）的药片加入其国家治疗方案，原因是担心其安全性。据该国的医学研究委员会称，该药物可能导致胎儿缺陷和细胞突变。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+周三，国营印度医学研究委员会（ICMR）表示已经意识到了该药物的“重大安全问题”。
 
+“这种药物可能导致致畸和致突变，还可能导致软骨损伤，对肌肉有损害，”ICMR总干事巴尔拉姆·巴尔加瓦 (Balram Bhargava)表示。“更重要的是，如果服用这种药物，必须避孕三个月，因为出生的孩子可能是有问题的，有致畸影响。”
+
+致畸剂是一种可以损害胎儿发育的药剂，而诱突变药物会改变受试者的基因构成。
+
+默克公司声称，对其药物的研究证明它不会导致出生缺陷或癌症。
+
+“世卫组织没有将其包含在内，英国截至目前也没有将其包含在内。截至目前，目前的建议是，该药物不是国家工作队治疗的一部分，”巴尔加瓦说。
+
+该药物在12月获得了印度监管机构的批准，原定于下周在私人市场上销售。
+
+默克公司和印度制药商雷迪博士实验室（Dr. Reddy’s Laboratories）均没有回应媒体的评论请求，后者曾计划推出该药的通用版本。
+
+该药物已被批准在世界其他地方使用，包括英国、日本和丹麦。
+
+新闻来源：[India concerned by Merck Covid pill side effects — RT World News](https://www.rt.com/news/545237-india-covid19-merck-drug/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

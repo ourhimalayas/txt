@@ -2,10 +2,10 @@
 ---
 
 
-## 赵立坚：对于中共的疫情滥诉和指责都是闹剧
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827978/)
+## 中共砖家大放厥词说西方政党只代表一部分人利益
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827984/)
 
-12/30/2021 中共外交部发言人赵立坚：对于中共的疫情滥诉和指责都是闹剧。
+中共砖家郑若麟大放厥词说西方政党只代表一部分人利益而中共代表大部分中国人利益。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,48 +2,32 @@
 ---
 
 
-## 日本农场绝不可错过作为美国之外的第二喜币市场的日本
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1827923/)
+## CDC外部专家小组建议向青少年接种中共病毒疫苗加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827947/)
 
-**郭文贵先生**：我一再地说日本的H-Pay市场，还有日本未来的数字货币整个儿的未来，还有在日本整个儿的喜币和喜美元的流行，还有和未来整个的实施，可以说它是战略性的，应该说是排在第二位置。它除了美国之外，它就是最重要的。
+#### 撰稿：彩虹 
 
-而且日本这个国家一定会在数字货币市场上，这次会抓住这个机会，它不会再输掉了。过去的日本二战之后，在金融市场上简直这个，日本这个国家把所有国家的财富全输光了。就日本的金融烂到什么程度？就共产党的科技发明有多烂，日本的金融就有多烂，就这么简单。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-10.jpg)图片来源：雅虎财经
+据《新闻极限》1月5日报道，周三，一个为CDC（美国疾病控制和预防中心）提供咨询的外部专家小组投票，建议向12至15岁的青少年提供辉瑞生物科技的中共病毒（COVID-19）疫苗的加强针。
 
-所以说日本的整个儿的交易一定会有一个……不管中间会有多大的曲折，日本最后一定会成为喜币流行的重要市场，不管有多少挫折。然后在日本这个喜支付是绝对的重要。你这个我再不具体说了，你千万不要错过这个时机。
+CDC的这个免疫接种咨询委员会（ACIP）以13票对1票，建议美国卫生机构支持为12至15岁的人在第二次接种中共病毒疫苗后至少5个月进行疫苗加强针注射。
 
-日本这几个农场，因为今天没有说太具体，如果你们错过这个机会，那草根明年再大直播，你绝对看不到草根小哥了。你不会再看到 Cosmos你不会再看到马拉多纳，你不会再看到勇气、魔女，不会再看到的。
+同时，该小组还扩大了其最近对年龄较大的青少年的建议，明确表示16和17岁的青少年也“应该”接受中共病毒疫苗加强针。该机构以前曾向这些青少年提供过疫苗，但没有建议他们所有人都应该接受额外的中共病毒疫苗加强针注射。
 
-温暖姐姐你别在那块儿很自信，你别老是，今天你和文嘉在一块儿一唱一和的，我们有蓄积着力量。明年如果在这个事上搞不明白，你明年都成笑话了，你自己都不好意思看电视了。
+根据之前的报道，周一，FDA（美国食品和药物管理局）授权为12至15岁的儿童注射中共病毒疫苗加强针，但在（允许接种加强针）之前CDC需要签字。
 
-所以说抓住这机会，说的得别好，一定会重要的对喜币发生的市场、就是第二市场日本。谢谢。
+另据《国会山报》报道，一旦CDC签字，将允许进行中共病毒疫苗加强针的注射。CDC的一位官员周三告诉委员会，大约500万青少年将立即有资格获得中共病毒疫苗加强针。
 
-字幕来源：[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](https://gnews.org/zh-hans/1816030/)
+文章透露，唯一投反对票的小组成员海伦·凯普·塔尔博特（Helen Keipp Talbot）说，她并不反对给青少年注射中共病毒疫苗强化针，但她担心心肌炎的风险。
 
-编辑整理：Jacques；
+预计CDC疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）将迅速作出决定，允许最快在本周开始进行注射中共病毒疫苗加强针。
 
-字幕文件制作：小满；
+**新闻来源**
 
-视频制作及上传：Cindy；
+[CDC Advisory Panel in Favor of Pfizer Vaccine Booster for Ages 12 to 15](https://www.newsmax.com/health/health-news/covid-cdc-booster-12-15/2022/01/05/id/1051201/)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[CDC panel recommends Pfizer COVID-19 booster for adolescents](https://thehill.com/policy/healthcare/588459-cdc-advisors-recommend-pfizer-covid-19-vaccine-booster-for-adolescents)
 
  
 
