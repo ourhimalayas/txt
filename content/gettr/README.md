@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 1/6/2022 3:32 AM (UTC)`
+
+This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick! #GETTR
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@rickyberwick 8/30/2021 5:34 PM (UTC)`
+
+LOL I'M ON A BILLBOARD @metapcs  
+![img](https://media.gettr.com/group8/tw/2022/01/06/02/996c164b-4117-b933-757c-ca301744d6a2/out.jpg)
+
+---
+
 `@miles 1/6/2022 1:22 PM (UTC)`
 
 11月6号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -146,20 +163,6 @@ I love freedom and the First Amendment - that's why I'm on GETTR.
 `@tulsigabbard 1/5/2022 7:34 PM (UTC)`
 
 Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me were fake. Now you can hear from me directly.  https://gettr.com/user/tulsigabbard
-
----
-
-`@miles 1/5/2022 7:25 PM (UTC)`
-
-1月5号：这个范围好像是包含了裕达国贸．希望所有郑州的同胞和裕达的同仁们能保护好自己。【都跟着七哥的剧本在演，连个自由发挥都没有。郑州，又轮到你了。】
-![img](https://media.gettr.com/group47/getter/2022/01/05/19/56dd52b7-b6dd-fdae-0644-b4e8839b8a85/a10891d087f50b5a5a8116b07515d9a2.jpg)
-
----
-
-`@miles 1/5/2022 1:16 PM (UTC)`
-
-2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果
-![img](https://media.gettr.com/group47/origin/2022/01/05/12/340c53ef-68c3-8d27-548f-790cfee6196c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
