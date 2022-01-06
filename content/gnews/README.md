@@ -15,125 +15,125 @@
 
 ---
 
-### [文⋅贵天成——文贵先生谈“瑞银UBS”（一）](/content/gnews/1/README.md)
+### [1/5/2022 文贵直播：GETTR是揭露中共疫苗灾难的救命媒体，也是首个不靠广告费和出卖个人信息盈利的革命性的社交媒体平台](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [辉瑞公司预测2022年Covid疫苗的销售额将达到290亿美元](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
+
+### [文⋅贵天成——文贵先生谈“瑞银UBS”（一）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国在印度边境部署“杀手机器人”自主武器平台](/content/gnews/2/README.md)
+### [中国在印度边境部署“杀手机器人”自主武器平台](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [法国总统马克龙：未接种疫苗的不再是公民](/content/gnews/3/README.md)
+### [法国总统马克龙：未接种疫苗的不再是公民](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [习近平失败政绩大总结（四）](/content/gnews/4/README.md)
+### [习近平失败政绩大总结（四）](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卫生厅局表明此前专家预测模型被证实失灵](/content/gnews/5/README.md)
+### [卫生厅局表明此前专家预测模型被证实失灵](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“数字人民币”（三）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“数字人民币”（三）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [他们说他们会减缓病毒传播（2/2）](/content/gnews/7/README.md)
+### [他们说他们会减缓病毒传播（2/2）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [杜鲁多：“加拿大人对还没打疫苗的人感到愤怒”](/content/gnews/8/README.md)
+### [杜鲁多：“加拿大人对还没打疫苗的人感到愤怒”](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“数字人民币”（二）](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“数字人民币”（二）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/10/README.md)
+### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [他们说他们会减缓病毒传播（1/2）](/content/gnews/11/README.md)
+### [他们说他们会减缓病毒传播（1/2）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿科医院联发警告：婴儿住院率上升](/content/gnews/12/README.md)
+### [儿科医院联发警告：婴儿住院率上升](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/13/README.md)
+### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/14/README.md)
+### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/15/README.md)
+### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/16/README.md)
+### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/17/README.md)
+### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/18/README.md)
+### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/19/README.md)
+### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/20/README.md)
+### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/21/README.md)
+### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/22/README.md)
+### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/23/README.md)
+### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/24/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿子危在旦夕，父亲因没有打疫苗不允许进入医院探望](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/26/README.md)
+### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/28/README.md)
+### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒](/content/gnews/29/README.md)
+### [01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [香港人的房屋悲歌：从「纳米楼」到「渐进式按揭」](/content/gnews/30/README.md)
+### [香港人的房屋悲歌：从「纳米楼」到「渐进式按揭」](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/31/README.md)
+### [联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [美单日新增病例破百万 超去年同期高峰4倍](/content/gnews/32/README.md)
+### [美单日新增病例破百万 超去年同期高峰4倍](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [印尼近七成未接种疫苗者产生中共病毒抗体](/content/gnews/33/README.md)
+### [印尼近七成未接种疫苗者产生中共病毒抗体](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [2022年1月粮食专题：警惕中共国“菜篮子工程”温水煮青蛙，让老百姓不知不觉中进入“吃草模式”](/content/gnews/34/README.md)
+### [2022年1月粮食专题：警惕中共国“菜篮子工程”温水煮青蛙，让老百姓不知不觉中进入“吃草模式”](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [DC每日热点0106](/content/gnews/35/README.md)
+### [DC每日热点0106](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线:普京与习近平要联手侵略世界?](/content/gnews/36/README.md)
+### [秘翻在线:普京与习近平要联手侵略世界?](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1/6/2022 国际财经快讯：美联储会议纪要显示最快可能3月加息, 克莱斯勒计划在2028年前成为一家全电动汽车制造商](/content/gnews/37/README.md)
+### [1/6/2022 国际财经快讯：美联储会议纪要显示最快可能3月加息, 克莱斯勒计划在2028年前成为一家全电动汽车制造商](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [香港针对中共病毒疫情实施严厉手段](/content/gnews/38/README.md)
+### [香港针对中共病毒疫情实施严厉手段](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [海外少数民族团体控告中共并抗议冬奥会](/content/gnews/39/README.md)
+### [海外少数民族团体控告中共并抗议冬奥会](/content/gnews/40/README.md)
  ` GTV新闻访谈`
-
-### [【中日财经爆】江苏泰州房协喊话开发商：不得降价](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [英国军情六处“感谢”新华社“反讽”](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

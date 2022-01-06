@@ -2,28 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1829502/)
+## 哈萨克斯坦境内所有金融机构暂停运营
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829677/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+#### 撰稿：日本东京方舟农场  海星
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/01/EC130D58-34DE-49E3-899C-5CF7278C6A0B.jpeg)（图片来源：德国之声）
 
-视频参看：[2022.01.06早GTV新闻访谈](https://gtv.org/video/id=61d6ee6431a71619b575d95f)
+1月6日，哈萨克斯坦国家银行宣布，暂停国内所有金融机构的运营。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据《自由时报》报道， 哈萨克斯坦国家银行发言人奥尔扎斯·拉马扎诺夫（Olzhas Ramazanov）1月6日表示，根据总统托卡耶夫下达的行政命令，哈萨克全国已进入紧急状态，为保护金融机构员工和金融服务消费者的安全，已通知境內所有金融机构暂停运营。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+目前，除国家银行外，哈萨克斯坦境内所有银行及证券交易所均已停止运营。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1月4日，哈萨克斯坦爆发了有数千人参加的大规模“抗议”活动，并导致严重冲突，造成数十人死亡、数百人受伤。骚乱随后一直持续并不断升级，总统托卡耶夫称这场动乱已成为“恐怖威胁”，随即宣布全国进入紧急状态。
+
+参考链接：[https://ec.ltn.com.tw/article/breakingnews/3792101](https://ec.ltn.com.tw/article/breakingnews/3792101)
+
+* * *
+
+素材采编：海星
+
+编辑：青衣青青
+
+发布：miumiu
 
  
 
