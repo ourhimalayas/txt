@@ -2,59 +2,139 @@
 ---
 
 
-## CDC承认PCR测试是骗局那么过去两年……？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1828163/)
+## 文贵先生告诉墙内同胞远离城市呆在农村
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-319.png)图片来源: naturalnews.com
+兄弟姊妹们记住啊
+Recuerden, hermanos y hermanas
 
-自然新闻 – 美国CDC 终于承认，PCR 测试无法检测人体内是否存在武汉冠状病毒 Covid-19。
+你们都是银河农场, 台湾农场
+Todos ustedes son de la finca Galaxy y finca Taiwán
 
-假联邦机构的头号人物罗谢尔·瓦伦斯基 (Rochelle Walensky) 在最近的一次采访中告诉 ABC 新闻，“新科学”表明 PCR 测试不起作用，政府不再使用它们。
+还有我们刚才说的, 天池农场, 方舟(农场)
+Y lo que acabamos de decir, la finca Tianchi y Fangzhou
 
-瓦伦斯基解释说：“结合所有这些科学，我们提出了隔离五天，然后戴口罩五天的隔离建议”（观看下面的采访）。
+都是最特别的
+Son las más especiales
 
-“现在我们为什么不包括测试的问题，仅仅是因为我们知道 PCR 可以保持阳性长达 12 周。因此，如果我们依赖 PCR，就会让人们隔离很长时间。”
+樱花农场
+La finca Flor de cerezo
 
-（**点评：难道两年来，美国人民在头号假机构的谎言里受苦受难死亡，她轻言单语一句“政府不再使用它们”就完事了？法律呢**？**都不是撒谎罪了，是有意灭绝生命罪！）**
+阿信, 小熊
+Axin, Xiaoxiong
 
-罗谢尔·瓦伦斯基说过实话吗？
+告诉战友们
+Díganle a los compañeros luchadores
 
-此前美国FDA的文件中已经透露，PCR 测试是在没有任何分离的福奇流感样本的情况下开发的，因为不存在任何分离的福奇流感样本。
+一切答案在这
+Todas las respuestas están aquí
 
-**（点评：到现在都没有病毒溯源，怎么出来试剂和“疫苗”？）**
+明年会很黑暗
+El año que viene será muy oscuro
 
-相反，FDA 使用普通流感来“校准”测试，我们现在知道这会产生异常数量的假阳性。
+你唯一的希望
+Tu única esperanza
 
-不过，CDC 花了很长时间才赶上最新的科学。几个月来，瓦伦斯基本人一直在散布谎言－关于“数据”（基于错误的 PCR 测试结果）表明人们如何需要“接种”和“加强剂”以阻止大流行。
+你唯一的机会
+Tu única oportunidad
 
-**早在 9 月，瓦伦斯基就承认，她对提升的指导是基于“希望”，而不是数据。**
+就是跟农场和联盟保持联系
+Es mantenerte en contacto con la finca y la alianza
 
-“所以，实际上有希望——我们还没有数据，”瓦伦斯基告诉“今日”主持人萨凡纳·格思里。
+还有远离城市
+También alejarse de la ciudad
+中国的现代城市化
+La urbanización moderna de China
 
-“我们确实知道 Alpha 变体中更高级别的保护肯定会导致更少的传播，**我们还没有看到数据，**但我们希望加强剂不仅可以保护你，给你更高级别的保护，而不是仅针对 Delta 变体，但针对范围广泛的变体。它还可能会降低您携带的病毒水平，并降低其传播性。”
+和迅速地城市化
+Y el proceso de urbanización rápida
 
-现在，**在世界其他地方发现 ****PCR ****测试是欺诈性的整整一年半之后，瓦伦斯基终于也承认了这一点**。问题是：Covid恐惧症人会听吗，还是会继续在永远的恐慌中接受“测试”，同时戴着口罩，并在每次瓦伦斯基告诉他们时强化？
+乡村城市化
+La urbanización rural
 
-“然而，公司和政府机构仍然坚持说疫苗或每周测试，不是吗？”问一位心烦意乱的评论者，无论**瓦伦斯基**最近承认如何，**PCR ****测试可能会如何继续**。
+绝对是中国的灾难
+Es absolutamente el desastre de China
 
-“叛国罪审判什么时候开始？”另一个问道。
+任何有脑子的人记住
+Cualquier persona que tenga cerebro recuerde
 
-另一位写道：“难怪新冠病毒呈上升趋势，”并暗示我们仍然有“病例”的唯一原因是 PCR 检测结果造假。“**政府计划向所有人发送测试？**我们肯定会再次封锁，遵循科学？对对对。”
+现在被伤害的人是你买房的
+Persona que está siendo lastimada es porque tu has comprado la casa
 
-另一位写道，所有这一切的一线希望是，通过所有这一切，最终可能会广为人知的是，“血栓注射”不起作用，只会助长大流行，阻止它结束。
+被伤害的人
+Personas que son lastimadas
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-321.png)图片来源: naturalnews.com
+郑州被淹死的, 是有车的(人)
+Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
 
-新闻来源: [naturalnews.com][CDC admits PCR tests are a fraud… so what about the last two years, then?](https://www.naturalnews.com/2022-01-04-cdc-admits-pcr-tests-fraud.html)
+现在在西安城市里饿死的
+El que se murió de hambre en la ciudad de Xi’an en este momento
+
+是在城市里边
+Es el que estaba dentro de la ciudad
+
+当房奴, 当街奴, 当打工奴的
+Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
+
+你待在老家绝对比在西安安全
+Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
+
+绝对比在郑州安全
+Será más seguro que estar en Zhengzhou
+绝对比待在任何二级城市安全
+Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
+
+更不要说在北京
+Menos mencionemos estar en Beijing
+
+每年要赶一次什么二级下流人士
+Corran a los indecentes de segundo nivel una vez al año
+
+低级人士被驱赶的城市
+La ciudad donde las personas de bajo rango son expulsadas
+
+永远记住中国人最安全的地方
+Recuerden siempre el lugar más seguro para los chinos
+
+在你老家
+Es tu ciudad natal
+
+在农村, 绝不在城市
+En el campo, nunca en la ciudad
+
+七哥今天第一次这么告诉你们
+Les digo esto por primera vez
+
+听七哥的
+Escúchenme
+
+看这个, 联系农场
+Vean esto, contacten a la finca
+
+远离城市
+Aléjanse de la ciudad
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+日期：01/04/2022
+原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
+Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
+原视频日期：01/02/2022
+原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
+任务编号：3392
+视频时间段：00:00-01:23
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

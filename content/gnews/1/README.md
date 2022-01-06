@@ -2,30 +2,111 @@
 ---
 
 
-## 共产不平等规则化
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1828248/)
+## 北韩怎么变成家天下的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828341/)
 
-文：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/i.jpeg)Novak Djokovic / 图源：网路
-世界第一的网球名将Novak被关押在了机场。因为本届澳网公开赛主办方要求所有人必须接种新冠疫苗，不接种的要提供严格的医疗豁免。在澳网赛事开始宣传的时候，这位网球名将就曾表示，这个强制接种疫苗作为比赛的硬性规定，极其不合理，他父亲说这是敲诈。就在大家都在猜测的时候，Novak获得了医疗豁免，可以不接种疫苗而继续参赛。然而，因为有赛前隔离要求，在他到达墨尔本机场的当天，就是昨天，他就被扣在那儿了。自己一个人呆在一个房间里长达八个小时，外面还守了俩警察。他父亲说你们这是非法关押，再不放人，我就要上街和你们战斗。然后Novak的母国塞尔维亚总统都介入了此事。不久以后澳网宣布Novak的医疗豁免无效，比赛泡汤了，网球名将被遣送出境。
+[https://gtv.org/video/id=61d6b473dffab035958b6679](https://gtv.org/video/id=61d6b473dffab035958b6679)
 
-这不是故事。这事儿就发生在这两天，一个网球名将，世界第一，被这样对待。如果不说名字，隐去地点，这事儿如果发生在中共国的话，看着也不违和。毕竟中共国内总是有这样的事情发生，事先办好的医疗豁免到了当地就不管用了，虽然规定里说的是可以申请医疗豁免，但这个豁免都是人说了算，他说行就行，他说不行就不行，没有什么平等，没有什么人权，他是爷，你得拜他。在中共国的公务员办事都基本是这个臭德行，总是不把话全都说完，一次说一样，等你跑一次说一句，就是不让你一次把事儿办完，浪费你的时间。并且你的态度还得好，他们不是你的公仆，他们个个都是你的爷，你得万分谦卑地求着这些大爷。然而那些所谓的资料其实，多一样并不会怎么样，少一样也并不会怎么样，主要作用就是来使唤人的，国内公务员无论官职大小，是个红袖章都能把自己当皇帝，只要让他做点事情他就千方百计作威作福，好似要把自己受到的委屈全都报复给他人。
+**郭文贵
+Miles Guo**
 
-这不是故事。这事儿就发生在这两天，一个网球名将，世界第一，被这样对待。如果不说名字，隐去地点，这事儿如果发生在中共国的话，看着也不违和。毕竟中共国内总是有这样的事情发生，事先办好的医疗豁免到了当地就不管用了，虽然规定里说的是可以申请医疗豁免，但这个豁免都是人说了算，他说行就行，他说不行就不行，没有什么平等，没有什么人权，他是爷，你得拜他。在中共国的公务员办事都基本是这个臭德行，总是不把话全都说完，一次说一样，等你跑一次说一句，就是不让你一次把事儿办完，浪费你的时间。并且你的态度还得好，他们不是你的公仆，他们个个都是你的爷，你得万分谦卑地求着这些大爷。然而那些所谓的资料其实，多一样并不会怎么样，少一样也并不会怎么样，主要作用就是来使唤人的，国内公务员无论官职大小，是个红袖章都能把自己当皇帝，只要让他做点事情他就千方百计作威作福，好似要把自己受到的委屈全都报复给他人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/j.jpeg)Novak Djokovic / 图源：网路
-澳网赛方在对待新冠疫苗问题上就是非常共产党公务员的做法，医疗豁免一旦到了当地就不管用了。明明比赛上面清清楚楚地写着，要么全部接种疫苗，要么提供医疗豁免不接种疫苗，这个规定非常人性化？字里行间都读不出任何对疫苗的强制行为来是不是？但是实际上他们是怎么操作的？这位世界冠军在到达的那天，他持有的是医疗豁免，由于没有接种疫苗，周围人把他当成真正的病毒一样看管起来，他不再是一个人，一个拥有肉体，生理，和心理情绪的个人。Novak的父亲都开始大骂了，甚至都要上街战斗了。可想而知这位世界冠军所经历的一切。那么我们回过头来看这个规定：要么接种疫苗，要么医疗豁免，有谁还会觉得这不是在强制疫苗？这个澳网公开赛学共产党学得有模有样，字面上从来不会说什么必须，强制，但是他们的做法比强制接种疫苗还恶劣。为什么？因为这位世界冠军Novak，他反对强制疫苗。曾经在2020年4月份他就表达过对疫苗的看法。民主国家，这些运动员，名人，自身拥有巨大成就的个人，是非常受到社会的尊重的，毕竟这是非常不容易的，一个运动员付出的汗水和热爱，直至今日取得的成就，那包含了多少辛苦多少智慧。就算不在民主国家，在中共国的郝海东先生、叶钊颖女士，凭借非常优秀的比赛表现，拿了世界冠军的啊，也让整个世界都喜欢。然而彼时的郝海东先生叶钊颖女士遭受着什么样的待遇？叶钊颖女士的家人一直都被共产党威胁着，郝海东的儿子差点被共产党遣送回去，七哥拿私人飞机给救回来的，为什么，就因为郝海东先生宣读了《新中国联邦宣言》。同样的，这位网球世界冠军Novak先生，也就是因为反对强制疫苗，被非法扣押，并且被非法取消参赛资格。如果你觉得他技术不好，或者他作弊，再或者像孙杨那样，吃了点药，于比赛的公正角度，那肯定要取消，但是由于这个打疫苗的事情被取消了比赛，并且是在他已经按照要求拿到医疗豁免的情况下被取消的，呵呵，能有比这还憋屈和耻辱的吗？
+这三本书改变了他的一生，他也改变了整个北朝鲜和南韩
+These three books changed his life, he also changed the entire North Korea and South Korea
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郝海东.jpeg)郝海东、叶钊颖 / 图源：网路
+其中一本书就是弗洛伊德，弗洛伊德的书就是《梦(的解析)》
+One of the books is Freud’s “The Interpretation of Dreams”
 
-反过来说，这件事也是一个很好的例子，如果世界运动圈各路网球爱好者，世界冠军Novak被这样对待你感觉到不公平的话，请回去看看中共国的运动员郝海东、叶钊颖，他们受到的不公平比这个要多万亿倍都不止。另外，这位世界网球冠军先生在运动和健康方面有比常人更专业的参考，他很早就反对强制疫苗，另外世界上最近有多少因为打了疫苗而忽然倒地的优秀运动员，很多都是天才运动员，年纪轻轻就倒地不起了。在网上看了太多关于这位世界冠军Novak不打疫苗的各界猜测，怎么说呢，掉进了互联网垃圾的海洋，各种各样的人风言风语，都开始讨论规则了，说大赛的规则不能被个人打破，这个世界有多荒唐，杀人变成了规则。你想活下去吗？杀人吧，杀了他你就能活下去，那试问，如何确定下一个被杀的不会是自己？恐惧、无知、贪婪的人太多了，看这些互联网讨论，让人深深觉得，我们绝对不是一个世界的人。一个对比，gettr看那么几条，全都是有用信息，而另外的，Twitter、FB，或者BBC这种大外宣，看完全篇，一个字都没用，而且篇幅出奇地，又臭又长。但话说回来，有对比才有快乐。今天世界上所有的黑暗，不过都是光明的背面。太阳一定会升起，但外面阳光再好，还是有人在屋里睡觉。
+然后就是人与人的关系，就是他是从弗洛伊德的书学的
+Then there is the relationship between people, that is he learned from Freud’s book
+
+第二个就读了托尔斯泰，那么第三个看了什么
+The second one he read Tolstoy’s, so what did the third one he read
+
+他就把希特勒的事情全看了，他全看完了，就希特勒，什么戈培尔、斯佩尔
+He read all about Hitler’s, and after he read them all, Hitler, Goebbels and Speer
+
+什么这些人啊，曼斯坦因，这些所有的他都看完了
+these people, Manstein, he has read all of their lives and deeds
+
+那么看完之后，他最后给他爹干什么，他爹给了他一个任务
+So after read it, what did he do for his father in the end? his dad gave him a task
+
+就是叫做当时的北朝鲜，叫文艺宣传组的副组长，就现在宣传部的副部长
+It’s called North Korea at that time, it’s called the deputy leader of the literature and art propaganda group, that is deputy head of the propaganda department now
+
+这哥们厉害在哪里，他把整个好莱坞所有的电影全看了个遍
+What’s so good about this buddy? He watched all the Hollywood’s movies
+
+当初拍出那些荒唐的电影，今天看这荒唐的电影
+he made those ridiculous movies at the beginning, and watch this ridiculous movie today
+
+金日成、金正日父子俩干出那些电影，那就是他干出来的
+Kim Il-Sung and Kim Jong-il, father and son made those movies, that’s what he did
+
+而且拍了整个的什么梦工厂，完全学好莱坞的，然后那个宣传
+And he filmed the whole DreamWorks, he copied Hollywood completely, and then the publicity
+
+然后首先把这个白头山，他的家族化，然后把他爹更神秘化
+Then first make this Changbai Mountain and his familization, and then make his father more mysterious
+
+抗日当时是他爹是在哪出生，白头山出生，怎么这些故事，爱情故事
+At the time of the Anti-Japanese War, it was where his father was born, at Changbai Mountain, the stories, love stories
+
+什么啪一枪上去了，飞机掉下来了，是吧，如何如何
+Like a snap shot up, the plane fell down, right? Blabla
+
+然后整个的白头山上，开满了整个的什么山花了，这故事
+Then the whole Changbai Mountain（Heaven Lake）was full of all kinds of flowers, this story
+
+在瑞士有人研究过他的，就这个人学的是心理学
+Someone in Switzerland studied him, and this man(Kim Jong-il) studied psychology
+
+他把人的心里给研究透了，你不懂心理学，你怎么懂人际关系，是不是
+He has thoroughly studied the human mind, if you don’t understand psychology, how do you understand interpersonal relationships? right?
+
+共产主义，就是把人与人的关系给搞明白了
+Communism is to understand the relationship between people
+
+绝大多数的人是自私的，是懦弱的，特别是怎么让他自私和懦弱呢
+The vast majority of people are selfish and weak, especially how to make them selfish and weak?
+
+让他少教育，知道的越少越好，让他非常辛苦地拼命去工作
+Let him be less educated, the less he knows the better, and let him work very hard
+
+没有时间闲暇考虑别的，真的很忙，让你忙无所事
+No spare time to think about other things, keeping you busy and doing nothing
+
+然后让你这个人完全不懂这个世界，共产主义的创伤，就让人变得无知
+Then make you not understand the world at all, the trauma of communism is to make people ignorant
+
+然后自私，然后懦弱，最后就变成了动物，这就达到了共产主义
+Then selfishness, then weakness, and finally becoming an animal which reaches communism
+
+最后是什么统一的行动，统一的思想，统一的服装，统一的音乐
+In the end, it is unified action, unified thought, unified clothing, unified music
+
+最后听一个人说话，达到了家天下
+Finally, listening to one person, the country became a family country
 
 * * *
 
-作者：骄子
-发布：骄子
+Date: 01/05/2022
+原视频标题: 北韩怎么变成家天下的
+How North Korea became family country
+原视频日期：2022/01/01
+原视频链接 [**https://gettr.com/post/plqhwu2e35**](https://gettr.com/post/plqhwu2e35)
+任务编号：KC398（3408）
+视频时间段 : 0:00-2:13
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
