@@ -2,13 +2,11 @@
 ---
 
 
-## 中共病毒疫苗接种率最高的几个国家 新增感染频创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1826812/)
+## 1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1826993/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

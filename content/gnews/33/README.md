@@ -2,46 +2,40 @@
 ---
 
 
-## 九号楼全体住户请做好准备等待专车前往指定地点隔离
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1827229/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获2_副本.png)
-据[**张洲**](https://weibo.com/lbtgs) [2022年1月5日 14:05](https://weibo.com/1867099473/L9lBq5AcV?from=page_1003061867099473_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-“9号楼全体住户请注意……”这个大喇叭里传出的声音，令人闻之色变 [L张洲的微博视频](http://t.cn/A6JAb0Wr) ​​​​
+总编：童谣
 
-九号楼全体住户请注意，接上级通知，请你们做好准备，带上生活必需品、防寒衣物，在小区门口等待专车前往指定地点做集中隔离。
+编辑：飞虹
 
-反复播放的高音喇叭透露出来的是不容质疑的权威和令人胆寒的高压，如果每个听到广播的人把这当成是别人家的故事，那么下一个你就可能是这种无差别隔离的被通知者。
+新闻来源：
 
-当年纳粹驱赶犹太人去集中营的时候是什么样的场景？当年占领南京的几个日本军人押送数百国军俘虏并集体枪杀的时候是什么样的场景？虽然所有这些惨剧离我们不到百年，但是恐怕没有人会把纳粹驱赶犹太人去集中营与九号楼全体住户被驱离联系起来，恐怕也没有人会把几个日本军人押送数百国军俘虏集体枪杀与九号楼全体住户的被驱离联系起来。
 
-也许每个人在回看历史的时候，会说如果他是那个被驱赶的犹太人，他会如何反抗，如果他是那个被押送的国军俘虏，他会如何反抗，可是在当下，95%的西安成年人都被打了高剂量的中共病毒疫苗，就在当下西安为了实现所谓社会清零用这种方式把整个住宅楼的住户送往集中营。
 
-今天我们进步了吗？应该说，这个社会还是有进步的，至少，至少，在他们用高音喇叭驱离九号楼全体住户的时候，我们看到了这样的实时影像，至少我们会在惨剧实时发生的时候，每个人都应该扪心自问，如果你就是那个九号楼住户，你是乖乖送死呢？还是以死相搏呢？
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago；
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+校正/发稿：浪迹天涯
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

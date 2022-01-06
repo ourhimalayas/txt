@@ -2,41 +2,104 @@
 ---
 
 
-## “中国人的饭碗要装中国粮”，这个饭碗端得牢吗？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1827315/)
+## 最新科学更新：病毒，疫苗伤害，新冠后遗症，预防和早期治疗
+` PureLotusHeart` [轉載自GNews](https://gnews.org/zh-hans/1827395/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-7.jpg)“中国人的饭碗要装中国粮”，这个饭碗端得牢吗？ 网络图片
-据美国之音1月5日报道，中共领导人习近平日前在中共中央农村工作会议上说“中国人的饭碗要装中国粮”，要保证粮食安全，要做好“三农”（农业、农村、农民）工作。但去年中共国粮食进口就同比增长了28%，尤其大豆几乎95%以上都依赖进口，而且中共领导人在很多不同场合都表达了粮食安全的重要性，甚至以节约之名提倡“光盘行动”，诸多迹象显示了中共国的粮食不仅不如官媒声称的储备充足，反而可能存在诸多隐患。
+加拿大温哥华扬帆农场 莲心不染
 
-中共国国家统计局2021年12月6日公布，中共国全国粮食总产量比2020年增长2.0%。中共官媒用“粮食生产将迎来十八连丰”来形容中共国粮食连续18年丰收。然而，中共国农业农村部乡村产业发展司“2020年中国农产品加工业经济运行报告”却显示，中共国粮食进口在2020年创下新高，而且不少项目甚至翻倍成长。该报告指，中共国2020年的粮食进口同比增幅28.0%。三大主粮中，玉米、小麦的进口量均是“爆发式”增长。
+**最新科学更新 – Omicron (奥米克戎 )**
 
-著有《中国危机大逃亡》一书的经济学家、旅美时事评论员秦伟平表示，中共国海关总署公布的数据显示，中共国粮食进口连年上升，这也意味着中国粮食自给率年年下降。如果中共国粮食充足，就不会有28%的进口增幅了。
-
-中共国还有近一半人属于低收入人群。中共国总理李克强2020年5月在十三届人大三次会议记者会上说，中共国有6亿人每个月收入在1000块人民币左右。对这些人而言，即使中共国的粮食产量足够，他们也买不起足够温饱一天三餐的粮食，这些吃不饱的贫困人口是中共国政府必须正视的问题。
-
-中共国粮食就算短期不缺，但长期未必，因为比如疫情和河南水灾造成了大量减产，若气候变迁导致洪灾经常性发生，粮食就可能会长期短缺。虽然中共国政府帐面上有18亿亩耕地，但这些可用来耕作的土地实际上到底在哪里，以及还是不是良田，却无从而知。
-
-对一般国家而言，如果缺乏资源从国外进口，是很正常的事；但中共不一样，缺粮是一件很丢人的事，甚至会上升到党国荣耀以及民族国家的一种虚妄的观念。不单单中共如此，在纳粹时期和前苏联时期也都是如此，因为这种极权封闭的政治化理念已经深入到中共日常生活的每一个细节，导致发生了任何不好的事，它就得说谎，然后用一个谎子套着另一个谎子。
-
-当中共强调某一个问题时，就代表这个问题的反方向发展出了更大的问题，这是一个屡试不爽的规律，就好比“光盘行动”要大家不要浪费食物，但实际情况可能正好相反，根本就是粮食不足，这才是中共营造节约光荣的社会氛围背后、不能说出口的秘密。
-
-凡是中共政府不管的时候，农村就是最好的时候，管的时候就是乱的时候。这是规律。不学无术、以欺骗、琢磨人心理存活并强大的中共，在中共国独裁统治七十年之后，各行各业民不聊生。而每次大灾来临的时候，底层民众都是最大的受害者。2022年全球金融危机来临的时候，中共国的饭碗还能端得住吗？碗里还有饭吗？没有任何保障的中共国农民会面临怎样凄惨的境况呢？
-
-新闻参考链接：[https://www.voachinese.com/a/is-it-feasible-Chinese-people-s-rice-bowls-must-be-filled-with-Chinese-grain-20220105/6381302.html](https://www.voachinese.com/a/is-it-feasible-Chinese-people-s-rice-bowls-must-be-filled-with-Chinese-grain-20220105/6381302.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. Omicron是特洛伊木马：看似温和，后果很严重
+2. Omicron 的复制速度是 Delta 的 70 倍
+3. 引发大规模疾病，高危人群可能出现严重症状
+4. 以前有效的单克隆抗体产品（双礼来和再生元）无效
+5. 新中国联邦科学家警告，如果没有后续排毒治疗，所有年龄组的新冠幸存者在 3-10 年内患癌症的风险为 50%
 
 
-编辑：【英国伦敦喜庄园编辑部】
+Source: [https://www.americaoutloud.com/omicron-unleashes-mass-illness-and-a-new-reality/](https://www.americaoutloud.com/omicron-unleashes-mass-illness-and-a-new-reality/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-301.png)
+疫苗增强剂更容易感染Omicron
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- 英国政府最新数据：几乎在所有年龄段，疫苗效率均为负值
+- 接种疫苗更容易感染Omicron
+- 全球 80-90% 的 Omicron 病例都已完全接种了疫苗
+- Omicron 感染率最高的几个国家都是疫苗接种率高的国家
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/15.jpg)
+**最新科学更新 -疫苗伤害**
+
+1.猝死：无症状心肌炎
+
+- 全球：约1/3000 接种者患有心肌炎
+- 美国：通过心脏核磁共振检测到：10 大联赛中 50% 的精英运动员患有心肌炎，但没有任何症状，这可能导致猝死。
+- 进一步的强制疫苗令将增加和恶化心肌炎病例
+
+
+Source: [https://twitter.com/PureLotusHeart1/status/1478230288769720322?s=20](https://twitter.com/PureLotusHeart1/status/1478230288769720322?s=20)
+
+2. 自身免疫杀伤淋巴细胞能攻击和杀死人体
+
+- 近六个月接种疫苗后死亡的人体器官解剖图：90%的病例中明确“自身免疫杀伤淋巴细胞”“自我攻击”了人体组织，即使对无症状病人也是
+- 疫苗破坏免疫系统，激活我们身体中处于休眠状态的传染性病原体，例如带状疱疹，爱泼斯坦-巴尔病毒（传染性单核细胞增多症），巨细胞病毒、细菌（尤其是肺结核）和寄生虫。
+- 疫苗会破坏压制癌症的淋巴细胞，原来有结核病和恶性肿瘤等的人将爆满全球医院
+
+
+Source:[https://doctors4covidethics.org/on-covid-vaccines-why-they-cannot-work-and-irrefutable-evidence-of-their-causative-role-in-deaths-after-vaccination/](https://doctors4covidethics.org/on-covid-vaccines-why-they-cannot-work-and-irrefutable-evidence-of-their-causative-role-in-deaths-after-vaccination/)
+
+[https://doctors4covidethics.org/dr-explains-basic-immunology/](https://doctors4covidethics.org/dr-explains-basic-immunology/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16-1.png)
+**最新科学更新 – 新冠后遗症**
+
+1. 新冠康复后抗体蛋白对器官的持续的损伤
+
+- 新冠康复者的抗体水平持续升高，即使他们之前病情并不严重，这些抗体也会错误地攻击人体自身的器官和组织，导致关节、皮肤、神经系统的慢性炎症和损伤
+- 美国心脏病专家Dr. Richard Fleming 在1994 年提出的炎症血栓形成反应机制理论解释了其中的原理
+- 郭文贵先生和爆料革命科学家的预警：所有新冠幸存者，无论年龄大小，在 3-10 年内都有 50% 罹患淋巴和免疫系统癌症的风险，所以必须进行后续的排毒治疗
+
+
+Source:[https://www.yahoo.com/news/virus-leaves-antibodies-may-attack-204240584.html](https://www.yahoo.com/news/virus-leaves-antibodies-may-attack-204240584.html)
 
 
 
+> This is the InflammoThrombotic Response I have been talking about since 1994. [https://t.co/nPm8X6oubO](https://t.co/nPm8X6oubO)
+> — Dr Richard M Fleming (@Doctor\_I\_am\_The) [January 3, 2022](https://twitter.com/Doctor_I_am_The/status/1478146133448966153?ref_src=twsrc%5Etfw)
+
+
+
+4. 新冠康复后出现神经或精神损害
+
+- 236 379 名确诊新冠幸存者，在 6个月后：
+    - 33.62% 的人被诊断患有神经或精神损害，其中 12.84% 的人首次确诊
+    - 入住重症病房的患者：大约 46.42%被诊断患有神经或精神损害，其中 25.79%首次确诊
+
+
+Source:[https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366(21)00084-5/fulltext](https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366%2821%2900084-5/fulltext)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20.jpg)
+**最新科学更新 – Omicron预防和早期治疗**
+
+美国名医彼得·麦卡洛 （Peter McCullough）医生：
+
+- 用稀释后的杀病毒的非处方药聚维酮碘进行鼻腔和喉部冲洗对预防和急性治疗Omicron 和Delta有效
+- 鼻子：向鼻子里喷稀释的杀病毒溶液，仰头，让液体流到喉咙后再吐出，重复几次
+- 喉咙：用稀释液漱口
+- 预防：每天两次
+- 早期治疗：每4小时进行 Ø杀病毒溶液配制：0.5 茶匙非处方 药10% 聚维酮碘 (PVD-I)，溶于 1.5 盎司无菌水或自来水，加少许盐
+- 数据显示冲洗可显着降低新冠疾病的严重程度和死亡率
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/21.jpg)
+**法国发现新的冠状病毒变异毒株 IHU B.1.640.2**
+
+据比利时《最新消息报》（Het Laatste Nieuws）2022年1月4日报导
+
+- 2021年12月10日，在法国南部发现了一种新的冠状病毒变异毒株，被称为B.1.640.2
+- 第一个病例发生在上普罗旺斯阿尔卑斯省的福卡尔基耶镇，与喀麦隆旅行有关
+- 目前法国南部马赛地区至少有十二个患者确认感染此病毒
+- 马赛“地中海感染研究中心”（IHU Méditerranée Infection）首先发现此毒株，并命名它为IHU
+- 该毒株是9月底在刚果共和国发现的B.1.640的两个衍生物之一 Ø该毒株有46个突变，Omicron有37个突变，也就是说比Omicron还要多 Ø该毒株是 Omicron 变异毒株的远亲
+- 该毒株可能更易传播
+- 该毒株可以抵抗新冠疫苗
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/19-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
