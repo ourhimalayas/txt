@@ -2,49 +2,30 @@
 ---
 
 
-## 德国：双重疫苗接种者将不再允许不经测试进入餐馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1827034/)
+## 【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827088/)
 
-作者：纽约香草山农场 – 四季
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-60.png)图片来源：印度政府新闻局
+印度当地时间周三（1月5日），印度财政部在印度政府新闻局（PIB）发表声明称，印度税收情报局（DRI）已向小米科技印度有限公司发出通知，向该公司追缴65.3亿卢比（约5.6亿人民币）税款。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+印度财政部称，根据一份情报，小米印度公司通过低估价值的方式逃避关税，DRI对该公司及其合同制造商发起了调查。
 
+声明显示，DRI在小米印度公司的经营场所进行了搜查，并追回了表明小米印度公司向美国高通公司和北京小米软件有限公司支付特许权使用费和许可费的文件。
 
+印度财政部称，小米印度公司及其合同制造商的关键人物的陈述被记录下来，在此期间，一位小米印度的董事确认了上述付款。DRI的调查进一步显示，小米印度公司从事MI品牌手机的销售，这些手机有两个来源，小米印度公司进口的，或小米印度公司的合同制造商进口手机零部件后在印度组装的，根据合同协议，合同制造商生产的MI品牌手机只销售给小米印度公司。
 
+印度财政部表示，DRI调查期间收集的证据表明，小米印度及其合同制造商均未将小米印度支付的特许权使用费金额计入商品的评估价值，这违反了印度1962年《海关法》第14条和2007年海关估价（确定进口货物价值）的规则。
 
+声明称，根据1962年《海关法》的规定，已向小米印度公司发出了三份表明原因的通知，要求收回2017年1月1日至2020年3月6日期间65.3亿卢比的关税。
 
-据[网关专家](https://www.thegatewaypundit.com/2022/01/germany-double-vaccinated-no-longer-allowed-restaurants-without-taking-tests-triple-vaxxed-allowed-inside/)1月5日报道，德国宣布了新的限制措施——从下周一开始将不再允许双重疫苗接种者进入餐馆，只有接种过第三剂疫苗的人才能进入。
+消息来源:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6A0830C8-FB69-4650-B7A8-690B091821E8.jpeg)图片来源：网关专家
+[印度财政部称小米“逃税” 追缴65.3亿卢比“税款”](https://api3.cls.cn/share/article/909204?os=web&amp;sv=698)
 
-这一措施将影响到双重疫苗接种者和已经从Covid中康复的人。他们现在需要提供每日阴性测试结果，才能进入德国汉堡的许多机构。
-
-与此同时，只有那些已经注射了疫苗加强针的人，才能在该城市的室内参加餐馆、文化和体育活动，而无需进行检测。这意味着双重接种者不再被视为完全接种，未接种者不再有机会参加这些活动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
