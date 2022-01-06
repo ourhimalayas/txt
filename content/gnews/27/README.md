@@ -2,24 +2,43 @@
 ---
 
 
-## 【中日财经爆】立陶宛终止国营铁路公司与中资公司签约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827192/)
+## 国会共和党众议员呼吁举报人提供有关新冠病毒起源证据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827208/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-289.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fsinakd20210823s%2F186%2Fw603h383%2F20210823%2Fa668-f0bd3fc71c601812aa62e8bee22a455b.png&amp;imgrefurl=https%3A%2F%2Fnews.sina.cn%2Fgn%2F2021-08-23%2Fdetail-ikqcfncc4414233.d.html&amp;tbnid=iD41WTCubATgzM&amp;vet=12ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ..i&amp;docid=sYFJXETgjk8zcM&amp;w=603&amp;h=383&amp;itg=1&amp;q=%E7%AB%8B%E9%99%B6%E5%AE%9B%E7%BB%88%E6%AD%A2&amp;ved=2ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ)
-立陶宛去年允许台湾于维尔纽斯设立“驻立陶宛台湾代表处”后，中共持续对立陶宛施压并恶意采取政治与经济报复手段。立陶宛总理发言人告诉“波罗的海通讯社”（BNS），立陶宛政府今天（1月5日）下令，基于国家安全利益考量，立陶宛国营的铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
+#### 撰稿：彩虹
 
-根据路透社报导，在西班牙登记的公司Puentes yCalzadas Infraestructuras以最低出价6250万欧元，赢得了一项在立陶宛的桥梁建设招标。该在公司网站上将中国路桥集团国际建设股份有限公司列为母公司。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-9.jpg)图片来源：福布斯
+1月5日，《新闻极限》发布文章，指国会针对新冠病毒（COVID-19）起源的调查可能真正开始了。
 
-国营立陶宛铁路公司去年曾表示，已要求政府审查这项合约，并认为这家公司与“中共国的关系”为合约风险之一。立陶宛政府今天下令，基于“国安利益”考量，立陶宛铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
+报道指，美国众议院能源和商业委员会共和党领袖凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）、健康问题小组委员会共和党领袖布雷特·格思里（Brett Guthrie）以及监督和调查小组委员会共和党领袖摩根·格里菲斯（Morgan Griffith）宣布推出一个网页，供举报人联系他们，提供与调查新冠病毒（COVID-19）起源有关的信息。
 
-驻立陶宛台湾代表处去年11月18日正式挂牌，立陶宛也规划在台设处，引发中共强烈不满，祭出多项报复，包括砍订单、抱怨立陶宛农作物病虫害，海关系统移除立陶宛导致无法清关；中共国国有企业“中铁集装箱”中断直达立陶宛的铁路货运；北京锁定跨国公司施压，要求断绝与立陶宛往来；欧盟成员国产品若使用立陶宛首产的零组件也会受刁难。
+（编者注：举报链接为：[https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/](https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/)）
 
-消息来源：[中國又搬石頭砸自己腳！ 立陶宛下令國營鐵路公司不與中資建商簽約](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%88%E6%90%AC%E7%9F%B3%E9%A0%AD%E7%A0%B8%E8%87%AA%E5%B7%B1%E8%85%B3-%E7%AB%8B%E9%99%B6%E5%AE%9B%E4%B8%8B%E4%BB%A4%E5%9C%8B%E7%87%9F%E9%90%B5%E8%B7%AF%E5%85%AC%E5%8F%B8%E4%B8%8D%E8%88%87%E4%B8%AD%E8%B3%87%E5%BB%BA%E5%95%86%E7%B0%BD%E7%B4%84-232037817.html)
+在一份声明中，他们说，“我们需要知道这种大流行病是如何开始的，以便阻止它再次发生。为了每一个因COVID-19（中共病毒）而失去亲人的美国人、每一个夜以继日工作的前线工作人员以及每一个面临心理健康紧急情况的儿童，我们有义务找到答案。无论事实（证据）指向哪里，我们都希望得到真相。我们鼓励能够为完整、科学和客观地调查COVID-19的起源提供信息的举报人与委员会联系。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+报道说，调查人员正在寻求与以下事项有关的信息：
+
+- 与SARS-CoV-2的起源有关的科学实验；
+- 与SARS-CoV-2的起源有关的美国研究政策/程序性问题；
+- 武汉病毒研究所的实验室安全问题；
+- 与SARS-CoV-2的起源有关的基因组序列数据/数据库；
+- 生态健康联盟的研究，包括研究提案（资助或未资助）；
+- 与早期武汉COVID-19患者病例有关的信息；
+- 中国人民解放军在武汉病毒研究所实验室的研究（BSL2、3或4）；
+- 与SARS-CoV-2起源调查的有关文件：电子邮件、合同、照片、研究报告。
+
+
+文章特别指出，2021年8月份，乔·拜登总统发表声明，指责中共国隐瞒了与新型冠状病毒的起源有关的关键信息。
+
+2021年11月份，共和党参议员兰德·保罗（Rand Paul）告诉《新闻极限》说，几个月来，他一直呼吁两党对COVID-19（中共病毒）的起源进行调查，并指安东尼·福奇（Anthony Facui）博士领导的美国国立卫生研究院支持武汉实验室对蝙蝠病毒进行功能性增强研究。
+
+在新闻极限电视台的“Spicer & Co”节目中，保罗说：“几个月来，我一直呼吁（对此）进行调查。我们应该对新冠病毒的起源进行两党联合调查，以努力确保不再发生这种情况。”
+
+**新闻来源**
+
+[House Committees Launch COVID Origins Inquiry for Whistleblowers](https://www.newsmax.com/politics/house-covid-web-page-whistleblower/2022/01/05/id/1051167/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

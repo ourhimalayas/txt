@@ -2,40 +2,24 @@
 ---
 
 
-## 中共研究人员在2015年就窃取了美国单克隆抗体商业秘密
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827313/)
+## 各方呼吁公众停用Twitter、FB等社交媒体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
 
-撰稿：纽约香草山翻译部 – defiance
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-据国家脉动4日报道，受雇于葛兰素史克公司GSK的前科学家Lucy Xi，承认窃取中共病毒疗法相关的商业秘密，目的是帮助一个国资药企。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-297.png)
-Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美国司法部消息，2015年1月，她向同伙梅岩发送了一份包含“保密商业机密数据与信息”的GSK内部文件。该文件提供了GSK当时对单克隆抗体的研究概况。Lucy Xi在邮件正文中写道：“你需要充分弄懂这个，将有助于任诺的未来发展。”
+撰稿: 银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
+另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
 
-检察官威廉姆斯指出：“这名被告非法窃取商业秘密，使由中共政府出资的公司受益，这种犯罪行为必须在法律的最大范围内受到起诉。”
+新闻来源:
 
+[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
 
+[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
 
-新闻链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
-
-
-> [Chinese Communist Researcher Stole U.S. Monoclonal Antibody ‘Secrets’… In 2015.](https://thenationalpulse.com/2022/01/04/ccp-pharma-stole-gsk-antibody-secrets/)
-
-
-
-[中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](https://gettr.com/post/pm9nc152d9)
-
-参考链接：
-
-[南京任诺药业有限公司相关信息](https://gettr.com/post/pm923tf660)
-
-[梅岩、李涛的发明专利](https://gettr.com/post/pm9dj5f07e)
-
-[美国司法部：再有一名药物研究员对窃取商业机密指控认罪](https://www.163.com/dy/article/GSU8EN3E0552M0B2.html?f=post2020_dy_recommends)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑: 童谣
+总编:文特
 
 校正/发稿：浪迹天涯
 
@@ -45,7 +29,7 @@ Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
 
 
  
