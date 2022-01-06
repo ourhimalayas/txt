@@ -2,26 +2,51 @@
 ---
 
 
-## 【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828039/)
+## 风波再起，网球明星德约科维奇疫苗豁免得而复失
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1828052/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://lh6.googleusercontent.com/_dR6mjou77H-ysxyhdVaU4e2S_FTzVVl2PZSjQoZKHUqTMwdTNeOZPPA83rMTAJ81YyjDUVu67nMPTvOptSa9s7bBzleZp8jGRTuNxdgJ7iviKgXf3j6M85IIFj8ut8h1_DqRHpg)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/Own8GQ26Z4nQGzqgCgK8mg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/L03kLisPoS2xiGtActtsOQ--~B/aD0xMDAwO3c9MTUwMDthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/zh-tw/newtalk.tw/d00cdb2baa9680dfefbec89dd7cbc28a)
-加拿大国会禁用中共国制口罩！加拿大国会议员日前投票通过决议，明令在国会禁止使用中共国制造的口罩，甚至在加拿大所有的联邦政府建筑物内，也不得使用中共国口罩。众议院议长罗塔（Anthony Rota）表示，最快从1月31日开始，禁令生效。
+作者：雄起
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-5.png)
+据媒体最新报道，世界排名第一的塞尔维亚网球运动员诺瓦克·德约科维奇（Novak Djokovic）1月5日被拒绝入境澳大利亚参加即将举行的比赛，原因是他拒绝接种新冠疫苗且也不符合“医疗豁免条件”。这意味着他将无法参加1月17日举行的2022年澳网，错失卫冕机会。
 
-加拿大媒体「True North」新闻网报导，国会议员意识到他们使用的口罩，竟然是从共产主义政权进口，而不是来自当地制造商后，做出此一决定。
+这一戏剧性的变化，发生在1月4日，诺瓦克在Instagram上兴奋地透露自己将带着豁免许可前往澳大利亚参赛。这意味着他无须接种新冠疫苗就能直接参赛。但是最新报道称，诺瓦克在经过了14个小时长途飞行后，1月5日抵达墨尔本塔拉马林（Tullamarine）机场。过海关时，边境部门认为德约科维奇申请的签证类型有误，不能用于“医疗豁免”入境，他随即被机场“关押”。据消息人士描述，他被安置在机场的一间隔离室中，直到6日凌晨才有边境部队官员对其进行询问，随后他得签证被宣布撤销。
 
-原来，此次国会口罩招标，得标的加拿大公司向国会提供2种非医用口罩，1种在安大略省生产，另1种在中共国生产。罗塔表示，根据众议院的投票决定，已把禁止中共国口罩的要求通知该供应商。
+德约科维奇是公众瞩目的世界头号网球球星，赢得20座大满贯冠军，其中9次在澳网夺冠。难道之前他拿到的是虚假疫苗豁免许可？否则怎么会冒着长途飞行后滞留机场，签证还被撤销的风险前往澳洲？
 
-原本还有部分国会议员担心此举恐怕得罪中共，影响与中共国贸易协定，还有人声称“没有证据”可以证明中共国口罩进到国会里。不过，魁人政团议员维格诺拉（Julie Vignola）指出，盒子上明明印着“Made in China”（中共国制造），还要睁眼说瞎话吗？
+这就不得不提诺瓦克宣布获得疫苗豁免后，引发的澳大利亚公众的愤怒，他是在即将举行的比赛中，被豁免接种Covid-19疫苗的”少数“球员和官员之一。澳大利亚网球协会说，已经收到26份医疗豁免申请，其中获准的人数没有透露。
 
-据了解，去年加拿大国会分发给国会议员的就包括中共国制口罩，当时就有保守党提出动议，要求联邦政府只能使用加拿大自己制造的个人防护装备。
+澳洲联邦自由党议员Trent Zimmerman称这个决定是 “耻辱”：这是对每一个一直在做正确的事情并遵守健康指令的澳大利亚人的一记耳光–特别是那些从海外回来并确保他们已经全程接种疫苗的人。他说：”如果要保护澳大利亚网球公开赛的信誉，更重要的是要保护我们所制定的旅行规则，就必须取消这项豁免。”
 
-消息来源：[**中共国口罩out！加拿大国会与联邦大楼月底前禁用**](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%A3%E7%BD%A9out-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%9C%8B%E6%9C%83%E8%88%87%E8%81%AF%E9%82%A6%E5%A4%A7%E6%A8%93%E6%9C%88%E5%BA%95%E5%89%8D%E7%A6%81%E7%94%A8-023311497.html)
+澳大利亚免疫技术咨询小组（ATAGI）在11月发布了关于临时豁免情况的指导方针，包括规定对于 “经PCR证实的SARS-CoV-2感染者 “可以推迟六个月接种疫苗。这位塞尔维亚球星在2020年6月曾被证实感染了中共病毒。但之后未见再次感染中共病毒的报道，他豁免的原因没有公开。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+诺瓦克-德约科维奇被敦促解释这一问题。澳大利亚网球公开赛老板Craig Tiley和维多利亚州代理体育部长Jaala Pulford鼓励这位网球明星讨论他的豁免申请背后的原因，而维州代理州长Jacinta Allan说，当德约科维奇抵达维多利亚州时，政府希望他能向社会解释。这 “可能是唯一体面的做法”。
+
+豁免申请由两个独立的医疗小组，根据澳大利亚免疫技术咨询小组制定的准则进行评估，并对个人信息进行了删节。ATAGI首席医疗官卡罗琳.布罗德里克博士周三表示，ATAGI或政府专家小组都没有检查申请中提供文件的真实性。布罗德里克博士说，” ATAGI捍卫了国家和维多利亚州政府运行的审查机制的完整性。 我们花了很长时间，通过任命该领域的专家–免疫学、传染病和全科医生，确保它是公平和严格的。”
+
+澳大利亚网球公开赛老板泰利说，”没有给予诺瓦克任何特殊机会”。”如果他们不符合准则，有很多人不符合，所以他们被拒绝了，但如果他们符合准则，包括例如–很多人忘记了–其中一个条件是在过去六个月里感染过中共病毒。任何符合这些条件的人都被允许进来。没有任何特殊的恩惠。没有给予诺瓦克任何特殊的机会。”
+
+与德约科维奇被豁免形成鲜明对比的是，俄罗斯球员Natalia Vikhlyantseva尽管已经接种疫苗，但由于她的疫苗Sputnik V不被澳大利亚当局认可，导致她无法前往澳大利亚。
+
+一些球员对德约科维奇获得豁免也表示惊讶。
+
+英国的杰米-穆雷说，”我不知道该说些什么。我想如果是我没有接种疫苗，我就不会得到豁免。”而澳大利亚排名第一的亚历克斯-德米纳尔说，”我只是认为这非常有趣。我听说还有其他案例也得到了豁免。我只是希望他们都符合标准。”
+
+虽然澳网老板与首席医疗官的解释言之凿凿，但是德约科维奇的豁免在澳大利亚全国对疫苗接种的强制规定面前显得如此扎眼。在标榜平等的民主国家都能出现这样的特权，不得不说，全世界范围内，所谓的公平和平等正在被摧毁，少数精英阶层总是有办法和渠道取得特权。
+
+此前中共驻联合国代表耿爽，在被日本记者问及是否已接种疫苗时，以涉及隐私为由，拒绝回答。在中共国内，红色家族与党内高官是否已接种疫苗，打的什么疫苗更不会被披露。但是他们却强制全国人民接种疫苗。
+
+笔者认为，澳网为了保持比赛的高水准，让更多的高水平选手参赛，为头号种子选手开了绿灯，本来想暗箱操作，也抱着侥幸心理，认为民众对喜爱的明星不会严厉追杀。但殊不知，长期的严厉封锁，和无情的强制疫苗政策，已经把民众的愤怒推到了顶点，任何的火星都会燃起熊熊烈火。民意汹涌，政府不得不铁拳相向，苦的是无辜的运动员。但是事情并未结束，据悉，诺瓦克团队已经向澳大利亚联邦巡回法院提起了诉讼（以防止他被送回国）。1月6日上午10点左右，德约科维奇离开机场，入住了墨尔本一家酒店。
+
+事件后续发展一定会爆出更多疫苗豁免实施过程中的人为操纵内幕，将揭露更多的疫苗真相，强制疫苗目的不是控制疫情，而是控制民众，分划社会阶层，达到大重启的目的。
+
+[新闻链接](https://www.stuff.co.nz/sport/tennis/300490518/novak-djokovic-urged-to-speak-up-as-tennis-australia-says-most-exemptions-were-for-prior-covid19-infection):[https://www.stuff.co.nz/sport/tennis/300490518/novak-djokovic-urged-to-speak-up-as-tennis-australia-says-most-exemptions-were-for-prior-covid19-infection](https://www.stuff.co.nz/sport/tennis/300490518/novak-djokovic-urged-to-speak-up-as-tennis-australia-says-most-exemptions-were-for-prior-covid19-infection)
+
+[https://www.reuters.com/article/tennis-australia-djokovic-morrison/australia-pm-morrison-says-rules-are-rules-on-djokovic-visa-cancellation-idUSS9N2PO009](https://www.reuters.com/article/tennis-australia-djokovic-morrison/australia-pm-morrison-says-rules-are-rules-on-djokovic-visa-cancellation-idUSS9N2PO009)
+
+审核校对：sherryok
+
+上传排版：水云间
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

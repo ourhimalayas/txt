@@ -15,107 +15,107 @@
 
 ---
 
-### [CDC承认PCR测试是骗局那么过去两年……？](/content/gnews/1/README.md)
+### [辉瑞试验数据显示接种每5名儿童就有1名出现高烧](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马龙博士宣布将在DC举行反新冠疫苗授权大集会](/content/gnews/2/README.md)
+### [CDC承认PCR测试是骗局那么过去两年……？](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【中日财经爆】富力地产公告债务打8.3折兑付还要延期到7月](/content/gnews/3/README.md)
+### [马龙博士宣布将在DC举行反新冠疫苗授权大集会](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【中日财经爆】富力地产公告债务打8.3折兑付还要延期到7月](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佐治亚州官员对2020年非法选票展开调查](/content/gnews/4/README.md)
+### [佐治亚州官员对2020年非法选票展开调查](/content/gnews/5/README.md)
  ` wenwu`
 
-### [2022/01/06 英喜时事速递](/content/gnews/5/README.md)
+### [2022/01/06 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【中日财经爆】中共威胁台商：想在中共国赚钱必须与台湾政府划清界线](/content/gnews/6/README.md)
+### [01/06每日播报｜新闻简讯:朝鲜宣布试射导弹 日澳联合签署国防协议 美国首次两例&#8221;Flurona &#8220;](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【中日财经爆】中共威胁台商：想在中共国赚钱必须与台湾政府划清界线](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美将加强核能等清洁能源领域的合作](/content/gnews/7/README.md)
+### [日美将加强核能等清洁能源领域的合作](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [风波再起，网球明星德约科维奇疫苗豁免得而复失](/content/gnews/8/README.md)
+### [风波再起，网球明星德约科维奇疫苗豁免得而复失](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国海军横须贺基地，强化管理，必须戴口罩](/content/gnews/9/README.md)
+### [美国海军横须贺基地，强化管理，必须戴口罩](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩](/content/gnews/10/README.md)
+### [【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [债券大王杰弗里·冈德拉克：目前不可投资中共国](/content/gnews/11/README.md)
+### [债券大王杰弗里·冈德拉克：目前不可投资中共国](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国新任驻日大使批评中共国不是好邻居](/content/gnews/12/README.md)
+### [美国新任驻日大使批评中共国不是好邻居](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】比特币和以太币下跌至数月低点](/content/gnews/13/README.md)
+### [【中日财经爆】比特币和以太币下跌至数月低点](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共砖家大放厥词说西方政党只代表一部分人利益](/content/gnews/14/README.md)
+### [中共砖家大放厥词说西方政党只代表一部分人利益](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [金灿荣说中共国国防开支小荷才露尖尖角](/content/gnews/15/README.md)
+### [金灿荣说中共国国防开支小荷才露尖尖角](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [王毅吹嘘中俄结盟、领导世界](/content/gnews/16/README.md)
+### [王毅吹嘘中俄结盟、领导世界](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [赵立坚：对于中共的疫情滥诉和指责都是闹剧](/content/gnews/17/README.md)
+### [赵立坚：对于中共的疫情滥诉和指责都是闹剧](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西安封城惨景：很多农民工无家可归](/content/gnews/18/README.md)
+### [西安封城惨景：很多农民工无家可归](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中俄狼狈：台湾比乌克兰更加危险](/content/gnews/19/README.md)
+### [中俄狼狈：台湾比乌克兰更加危险](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [龙头变龟头透露共产党的恐惧和绝望,而我们有无尽的希望](/content/gnews/20/README.md)
+### [龙头变龟头透露共产党的恐惧和绝望,而我们有无尽的希望](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [CDC外部专家小组建议向青少年接种中共病毒疫苗加强针](/content/gnews/21/README.md)
+### [CDC外部专家小组建议向青少年接种中共病毒疫苗加强针](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产主义创伤就是让人变得无知自私最后就变成了动物](/content/gnews/22/README.md)
+### [共产主义创伤就是让人变得无知自私最后就变成了动物](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日澳将签署“历史性”防务安全条约](/content/gnews/23/README.md)
+### [日澳将签署“历史性”防务安全条约](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [日本农场绝不可错过作为美国之外的第二喜币市场的日本](/content/gnews/24/README.md)
+### [日本农场绝不可错过作为美国之外的第二喜币市场的日本](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共在冬奥会前加大言论监控](/content/gnews/25/README.md)
+### [中共在冬奥会前加大言论监控](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2022年对韩国和日本农场是巨大考验,必须联合作战灭共](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/29文贵直播：刘亚洲被抓前见了曾庆红和王岐山（粤语配音）](/content/gnews/27/README.md)
+### [12/29文贵直播：刘亚洲被抓前见了曾庆红和王岐山（粤语配音）](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：拜登军事法案重点在于针对中共秘密军事力量（粤语配音）](/content/gnews/28/README.md)
+### [12/29文贵直播：拜登军事法案重点在于针对中共秘密军事力量（粤语配音）](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系（粤语配音）](/content/gnews/29/README.md)
+### [12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系（粤语配音）](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：拜登最近签署的法案意义重大（粤语配音）](/content/gnews/30/README.md)
+### [12/29文贵直播：拜登最近签署的法案意义重大（粤语配音）](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：杨洁篪和王毅说现在是打台湾的最佳时期（粤语配音）](/content/gnews/31/README.md)
+### [12/29文贵直播：杨洁篪和王毅说现在是打台湾的最佳时期（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/22文贵直播：国家安全委员会卑鄙手段处理彭帅事件（粤语配音）](/content/gnews/32/README.md)
+### [12/22文贵直播：国家安全委员会卑鄙手段处理彭帅事件（粤语配音）](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](/content/gnews/33/README.md)
+### [纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
-
-### [即将到来的人类最黑暗的2022年里钱血组不要输掉本质](/content/gnews/34/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [日美外交大臣就驻日美军基地奥密克戎蔓延一事电话协商](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,10 +2,10 @@
 ---
 
 
-## 西安封城惨景：很多农民工无家可归
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827976/)
+## 王毅吹嘘中俄结盟、领导世界
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827980/)
 
-12/31/2021 西安封城惨景：很多农民工无家可归，甚至没人去看看路上躺着的人。
+12/30/2021 中共外交部长王毅吹嘘中俄结盟、领导世界。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
