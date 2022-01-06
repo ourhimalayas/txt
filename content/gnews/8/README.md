@@ -2,64 +2,35 @@
 ---
 
 
-## 澳网赛会给与医疗豁免,小德签证却被边检取消
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1826695/)
+## 英国实施新版国家安全投资法 以防中共恶意收购
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826735/)
 
-#### 整理报道：文泓
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间1月4日，英国政府宣布开始实施新版「国家安全投资法」。该法案授与各部会首长权力，来审察、限制、否决外国投资者收购有可能造成国家安全疑虑的产业。新法案限制17项战略产业的收购，包括AI、核电、机器人和太空产业等。并将回溯到2020年11月12日以来所做的任何收购案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955-3.jpg)图片来源：Zimbio.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-7.png)
+
+英国政府还呼吁美国、法国、澳洲、意大利等国采取相同政策，意在防堵中共恶意收购主要国家的国防安全相关产业。
+
+参考链接：
+
+- [英國外商投資新法上路 加強國安限制](https://www.cna.com.tw/news/aopl/202201040402.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
-据《福克斯体育》报道，当地时间周三晚上11点30分德约科维奇降落在墨尔本，当他在空中时不会意识到即将发生的戏剧性事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-登机前，小德已在社交媒体上庆祝他获得了参加澳网公开赛的医疗豁免，但并没有提供他已完全接种新冠疫苗证明。
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
-在他的申请被两个医疗小组批准后，赛会事组织者授予了他医疗豁免，却在已经忍受了两年封锁和限制的澳大利亚人中引发了愤怒。
-
-**“****德约科维奇先生的签证已被取消，****”****莫里森总理周四早上发推文**，证实了澳大利亚边防部队此前发布的新闻稿。“规则就是规则，尤其是涉及到我们的边界时。没有人可以超越这些规则。
-
-第九频道的记者克林特·斯坦纳威跟进报道说，德约科维奇正在被送往联邦政府经营的一家城市隔离酒店。另[据《时代](https://twitter.com/paulsakkal/status/1478836799195664386)报》报道，德约科维奇的律师已经在着手上诉。
-
-虽然维多利亚州政府声称在德约科维奇抵达墨尔本前几个小时拒绝了他的签证，但《时代报》援引澳大利亚网球部消息人士的话称，此举是一种宣传噱头，澳网大门并没有对他最终关闭。
-
-**德约科维奇似乎是唯一一位获得医疗豁免但被拒绝进入该国的球员，****“****少数****”****其他球员成功抵达该国并计划参加比赛。**
-
-澳大利亚边防部队（ABF）在一份声明中说：“ABF将继续确保抵达我们边境的人遵守法律和入境要求。我们可以确认德约科维奇先生未能提供适当的证据来满足澳大利亚的入境要求，他的签证随后被取消。”
-
-周三晚些时候，维多利亚州代理体育部长在推特上说：“我们不会为诺瓦克·德约科维奇提供参加2022年澳大利亚网球公开赛大满贯的个人签证申请支持。我们一直很清楚两点：**签证批准是联邦政府的事情，医疗豁免是医生的事情**。”
-
-随着周四上午双方紧张态势升级，塞尔维亚总统亚历山大·武契奇猛烈抨击澳大利亚边防部队对德约科维奇团队的“骚扰”。
-
-“塞尔维亚正在尽一切努力确保对诺瓦克·德约科维奇的骚扰立即结束，”武契奇说。
-
-据报道，德约科维奇在机场的一间房间里被关押了9个小时，边境官员对他的疫苗豁免证据进行了盘问。据他父亲说，德约科维奇与他的球队分开，没有手机。
-
-德约科维奇的教练戈兰·伊万尼塞维奇于周四凌晨在Instagram上发帖称：“这是一次罕见的澳洲之旅。”
-
-周三下午，内政部长凯伦安德鲁斯发表了一份强有力的声明，重申德约科维奇必须“提供可接受的证据”，证明他可以在没有接种疫苗的情况下进入该国。
-
-**“****虽然维多利亚州政府和澳大利亚网球协会可能允许未接种疫苗的球员参加澳大利亚网球公开赛，但联邦政府将在澳大利亚边境执行我们的要求。”**
-
-此前，**这位备受争议的塞尔维亚球星在社交媒体上透露，他已获得旅行的****“****豁免许可****”****，之后澳大利亚网球协会确认他将参加澳大利亚网球公开赛**。
-
-在拒绝透露自己的疫苗接种情况后，德约科维奇在墨尔本的比赛已经有一段时间了，但官员们表示，在对其案件进行“严格审查”后，他已获准参加比赛。
-
-今年夏天的澳大利亚锦标赛，包括1月17日在墨尔本公园举行的澳大利亚网球公开赛，都强制要求接种疫苗。
-
-澳大利亚网球协会在周二晚间发表了一份声明。
-
-“诺瓦克·德约科维奇将参加澳大利亚公开赛，并且正在前往澳大利亚的路上”，它写道：“德约科维奇申请了医疗豁免，该豁免是在涉及两个独立的独立医学专家小组的严格审查程序后获得的。”
-
-新闻链接：[Australian Open 2022: Novak Djokovic visa, airport, updates, exemption, flight, Covid-19, explainer, Scott Morrison (foxsports.com.au)](https://www.foxsports.com.au/tennis/australian-open/tennis-2022-australian-open-novak-djokovic-receives-exemption-to-enter-australia-unvaccinated-covid19/news-story/5b7430ea0b9d579d623225984d6ead3b)
-
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
