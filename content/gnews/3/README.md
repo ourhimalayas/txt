@@ -2,35 +2,49 @@
 ---
 
 
-## 陕西疫情封城，野蛮混乱管理，次生灾难严重
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1826553/)
+## 如果共和党议员在 2022 年中期选举中赢得多数席位，他们可能会弹劾乔·拜登
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1826666/)
 
-**【国内新闻短评】**
+作者：Ian Miles Cheong
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-57.png)
+众议院共和党会议主席埃莉斯·斯特凡尼克 (Elise Stefanik) 表示，如果共和党在即将到来的 2022 年中期接管众议院，乔·拜登总统可能面临弹劾。当被问及是否会采取措施将民主党赶下台时，她说，任何事情都“摆在桌面上”。
 
-**新浪微博，网易号2022年1月5日报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-2.jpg)**新浪微博，网易号2022年1月5日报道**![](https://assets.gnews.org/wp-content/uploads/2022/01/11-amq6p-x6e25-3.jpg)
-**评论正文**：
-**战争时期都可以抢救伤员，优先救治妇女儿童，然而和平年代的中国陕西省，孕妇在医院门口等待就医长达2个小时，导致流产。管理能力低下导致的次生灾难，没有人被追责，宣传媒体把丧事当成喜事报道，被免职官员休息一段时间，异地再执政。**
+“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克在接受Just The News的简短采访时说。斯特凡尼克的言论与德克萨斯州共和党参议员特德克鲁兹的言论相呼应，后者表示共和党领导的众议院很有可能就拜登未能处理南部边境危机而采取行动。
 
-**善良的中国人，请快醒来吧！**
+克鲁兹在他的播客“与泰德克鲁兹的判决”一集中说：“如果我们拿下众议院，我说这很有可能，那么我认为我们将看到对拜登政府的认真调查。”
 
-**CCP（中国共产党）视民众生命如蝼蚁，自己的乌纱帽比临产的孕妇更重要，本该救死扶伤的医院却创造灾难与悲剧。这次由于疫情封城，陕西省的次生灾难才刚刚开始。只有take down the ccp（推翻中共共产党）才能解决。**
+“我们像激光一样专注于美国的危机，以及我从选民那里听到的，即使我在纽约北部的选区，因为我代表一次又一次被转移到南部边境的边境巡逻人员。这是一场又一场的危机，这是一场灾难，”这位纽约议员周一表示。
 
-**参考资料：**
-**图片来源：**[https://m.weibo.cn/detail/4722211887777831](https://m.weibo.cn/detail/4722211887777831)
+“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克说。“但我认为我们应该关注的是进行监督并确保我们通过立法以一劳永逸地保护边界。特朗普总统领导下的前任政府的政策正在发挥作用。”
 
-**新闻视频**：[https://video.h5.weibo.cn/1034:4722069099970670/4722069470971581](https://video.h5.weibo.cn/1034:4722069099970670/4722069470971581)
+美国有线电视新闻网报道称，2020 年 11 月非法越境人数增加了 5%，同比增加了 140%。拜登政府尚未公布 12 月非法越境的统计数据。
 
-**【声明：文章观点仅代表作者个人，与gnews平台无关】**
+“我的重点是进行监督并确保通过我们引入的立法，”斯特凡尼克补充道。“我们提出了许多法案来确保边境安全，并确保边境资金充足。”
 
-素材：洛杉矶盘古农场 —期待明天
-评论：洛杉矶盘古农场 —期待明天
-审核：洛杉矶盘古农场 —柯镇恶
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+有可能弹劾拜登的举动是因为民主党在任期间两次大规模弹劾特朗普。特朗普第一次面临弹劾是因为指控这位前总统请求俄罗斯干预 2016 年美国总统大选。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+第二次弹劾发生在 2021 年 1 月 13 日，也就是他的总统任期届满前一周。指控他煽动了 1 月 6 日在美国国会大厦发生的骚乱。
+
+尽管两项弹劾条款均在众议院获得通过，但由于民主党未能获得参议院三分之二的支持，两项努力均未成功。
+
+来源：https://www.rebelnews.com/\_anything\_is\_on\_the\_table\_republican\_lawmakers\_likely\_to\_impeach\_joe\_biden\_if\_they\_win\_majority\_in\_2022\_midterm\_elections
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

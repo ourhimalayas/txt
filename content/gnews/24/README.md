@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|受疫情影响英国面临严重员工短缺
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826161/)
+## 有声|中共借疫情施暴政，苟延残喘
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826183/)
 
 配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据英国《独立报》1月3日报道，由于中共病毒感染继续导致员工短缺，英国各地的垃圾箱收集已被取消。
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+据了解，近日，郑州发生的所谓疫情，出现了市民断粮断菜，被禁止出小区，能够买到的菜既贵又少。更有消息说任何人都不能购买指定供应之外的蔬菜等物品，一经发现黄码处理。甚至病人都不能去医院看病，需要化疗、透析等急重病人只能在家受尽煎熬，足月的孕妇要准备“自力更生”。还有网友发出照片，某小区的一千多市民被大巴拉去强制隔离，隔离房只有简单的铁架床，没有取暖设备。市民质疑：为何不能在自己家里隔离，非要全家老小去别的地方隔离。还要坐挤满人的巴士，不怕交叉感染吗？
 
-因中共病毒自我隔离导致员工人数减少，曼彻斯特、埃塞克斯、萨默塞特和白金汉郡的地方当局宣布减少服务或完全暂停废物收集。
+在中共国，郑州不是第一个封城的城市，武汉、南京、广州、通化、瑞丽等地在前，为何仍然使用看似简单粗暴恶劣的处理方式呢？
 
-最近几周，由于奥米克戎变种病毒疫情的爆发，“中共病毒”确诊病例不断上升，数个行业普遍存在工人缺勤，促使政府警告公共部门领导人要为多达四分之一的员工无法工作做好准备。
-
-原文链接:[受疫情影响英国面临严重员工短缺](https://gnews.org/zh-hans/1822402/)
+原文链接:[中共借疫情施暴政，苟延残喘](https://gnews.org/zh-hans/1821828/)
 
 音频处理：喜山必胜Maverick
 
@@ -28,6 +26,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
 
  
