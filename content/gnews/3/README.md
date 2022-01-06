@@ -2,31 +2,40 @@
 ---
 
 
-## 澳门监管部门预期在博彩业引入数字人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1827245/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-据《路透社》记者：Katrina Hamlin，2022年1月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-291.png)2020年2月20日，中共国澳门葡京赌场午夜夜景。路透社/Aleksander Solum
-香港，1月3日（路透社Breakingviews）——中共国将赌上数字人民币。随着澳门赌场业主准备竞标新牌照，监管机构将利用这个机会迫使这些运营商成为数字人民币的试验田。
-随着这个价值370亿美元市场的优惠政策即将到期，金沙中国（1928.HK）和永利澳门（1128.HK）等公司将急于证明自己是合格的团队成员。监管机构已经在施展他们的力量。一份关于重新招标的政府咨询文件提出了一些想法，包括任命政府人员监督日常运营。
-伯恩斯坦公司分析师估计，普通赌客每次到澳门赌桌前的损失超过27,000美元。澳门赌场也一直是腐败官员和商人的聚集地。12月，博彩公司Suncity（太阳城）老板Alvin Chan被卷入了非法博彩调查。太阳城为富有的贵宾提供服务，在Covid-19发生的前一年，其博彩收入约为80亿美元。一个月前，中共国央行行长易纲建议使用新开发的加密货币来打击犯罪和解决复杂的跨境支付问题，包括洗钱。澳门可能已经在他的思考范围。
-在博彩中心应用数字支付将有助于中共国政府对现金流和客户进行更多监督。澳门位于中共国资本管制之外，也是在大陆推广数字支付前测试该技术的理想场所。有关方提出使用可追踪资金进行无现金博彩的概念。例如，澳大利亚星际娱乐(SGR.AX)表示，它正在探索数字支付，以安抚其监督者。
-银河娱乐(0027.HK)和澳门永利(Wynn Macau)等曾经担心，大额客户对审查望而却步。然而，他们不再是收入的主要来源。根据官方数据和Breakingviews的估计，大众客户贡献博彩营业收入的三分之二和收益的九成。
-技术已经就绪。在试点中，中共国消费者花费了大约100亿美元的数字人民币。监督者有很多胜算，运营商也不会有损失，2022年将是数字货币进入赌场的第一年。
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-* * *
+总编：童谣
 
-原文连接：[https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+编辑：飞虹
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+新闻来源：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
+
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
+
+
+
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

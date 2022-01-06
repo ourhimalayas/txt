@@ -2,26 +2,42 @@
 ---
 
 
-## 德国监察机关将谷歌列为反托拉斯密切检查之列
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827160/)
+## 儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1827193/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-34.png)
-图片来源：udn.com
+作者：香草山教育部-九妹
 
-美联社1月5日报道，德国反托拉斯监察机关周三将谷歌列为一个具有“至高无尚的意义”的公司，而需进行额外的检查，这是首次赋予检察机关更多的权利去阻止大科技数字公司滥用权力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo.jpeg)
 
-这一决定始于去年引入的允许“更早干预和更有效”地阻止这些公司采用反竞争手段。该检查的决定，持续5年，可以延长检查权以监管谷歌“滥用权力”。
 
-监管机构说谷歌比其他公司更具有“重要的影响力”，可以接近用户和通过搜索为顾客打广告，油管，安卓系统和网上商店可以在市场上为其他业务设置规定和状况”。
 
-最近的例子是大科技公司在面对与他们竞争的对手时担心被取代优势而伤害到消费者。欧洲已经引领全球开始对抗大科技公司，但早期的批评是这些调查耗费太长时间，甚至几年，德国的这项规定是针对这个问题而提出的。
+恒大在海南建设的人工岛——恒大海花岛，总建筑面积8平方公里，到目前为止已投入资金810亿元，共计三个人工岛屿。
 
-德国的监管开始检查谷歌去年在个人数据方面的过程和新闻列表，并且调查亚马逊，苹果和脸书的上级元素。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/im-461394.jpeg)
 
-##### **新闻来源： **[German watchdog puts Google under closer antitrust scrutiny](https://apnews.com/article/technology-business-europe-germany-664440cb027ad76916c7a24e29852a60)
+2021年12月30日，海南省儋州市政府向海花岛项目责任方恒大集团发出行政处罚通知，2号岛三(六)期项目39栋楼被儋州市综合行政执法局取消规划许可证，责令通知发出之日起十日内拆除，逾期不拆，政府将强行拆除。
 
-# ** **
+本次设计拆除的39栋楼都在二号人工岛上，不涉及已经交付使用的6万户业主和待交付的600多户业主。
+
+儋州市政府此次决定突如其来，恒大屋漏偏遭连夜雨，措手不及。消息传出，震惊了房地产界。
+
+根据《中国海域使用管理法》第23条明确规定，填海项目竣工后的土地仍归国有，儋州市政府的这一决定意味深长。
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
