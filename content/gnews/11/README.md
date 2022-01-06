@@ -2,34 +2,22 @@
 ---
 
 
-## 严重雾霾打脸中共“绿色冬奥”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828775/)
+## 【中日财经爆】富力地产再暴雷，违约7.25亿美元债
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828788/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，据相关媒体报道，在距离中共北京冬奥会开幕仅剩不到一个月的时间里，中共当局虽然妄图打造所谓的“绿色冬奥”，但墙内严重的空气污染问题却难以被掩盖，北京市内的空气品质仍远低于世界卫生组织可以接受的标准。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-06-下午9.30.21.png)
-据悉，中共政府试图通过此次北京冬奥会想世界展示其在环境方面的成绩，为此，中共不惜花费巨资建立了数十座风力和太阳能发电厂为冬奥会供电，但最终收效甚微。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-339.png)[图片来源](https://www.sohu.com/a/477655478_100001551)
+1月6日每日经济报报道，富力地产以八三折兑付7.25亿美元债的方案获得了债权人71.69%的投票率支持。富力地产此前的公告显示，富力地产境外全资子公司EASY TACTIC LIMITED拟对“GZRFPR 5.75% 1/13/22”美元优先票据进行要约回购和征求同意。该笔美元债在2017年1月13日发行，存续金额为7.25亿美元，发行利率5.75%，到期日2022年1月13日。
 
-资料显示，PM2.5悬浮颗粒是造成肺癌、心脏疾病和婴儿早产案例增加的头号杀手。对此，世界卫生组织官方建议的最低空气品质标准为每立方米含有5微克PM2.5悬浮颗粒。而据中共北京市环境局的调查文件显示，2021年北京市PM2.5悬浮颗粒的浓度为每立方米33微克，是世卫组织最低标准的6倍有余。
+富力地产建立于1994年，是中共国市场当中一家老牌的房地产企业。从业务角度来看，富力集团的业务覆盖到了房地产设计，开发销售、物业管理以及工程监理方面等方面，综合发展实力最为强劲的房地产企业。富力也是能够排在500强企业的前列，下半年即将到期需要支付利息的美元债务以及10只境内债券，总体的债务规模也是接近200亿元。
 
-上周，中共环境部被迫承认，北京的雾霾风险仍然严重。
+除了1月份到期的7.25亿美元债券外，富力地产明年还面临不少的到期债券。包括全年95亿元人民币的在岸债券到期及可回售，以及2022年下半年需偿还的6.48亿美元的离岸到期债券。
 
-参考链接：[北京力推綠色冬奧 霧霾問題仍籠罩](https://cn.rti.org.tw/news/view/id/2121341)
+信息来源：[富力地产发布重要公告，涉7.25亿美元债务兑付](https://mr.baidu.com/r/zdWcncaMb6?f=cp&amp;rs=3406126492&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=9892ee8369287907)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

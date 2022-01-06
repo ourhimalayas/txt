@@ -2,10 +2,10 @@
 ---
 
 
-## 阿姆斯特丹反疫苗政策抗议者被警犬撕咬，并被警棍殴打
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828691/)
+## 盖特：拥有最佳整体用户体验的多合一的言论自由平台
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828695/)
 
-01/02/2022 阿姆斯特丹反对疫苗政策的抗议者被警犬撕咬，并被警棍殴打。
+01/02/2022 杰森·米勒：盖特将是一个拥有最佳整体用户体验的多合一的言论自由平台。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

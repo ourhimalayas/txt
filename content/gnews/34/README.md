@@ -2,22 +2,48 @@
 ---
 
 
-## 秘翻在线：中共式“社会面清零” 等同于感染一个消灭一个
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828587/)
+## 报告称Omicron感染有个其他变体未出现过的“非常奇怪的症状”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1828593/)
 
-**撰稿：葛大饼**
+编译： Jenny Ball
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-06-201439.jpg)图片来源：新浪
-根据2022年1月4日报道， 自2021年12月9日至2022年1月3日24时，西安市已累计报告新冠肺炎本土确诊病例1758例。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-8-1.jpg)Shutterstock（epochtimes.com）
 
-西安市疾病预防控制中心表示，西安本轮疫情社会面基本实现清零，疫情蔓延势头得到有效遏制。西安在推进“社会面清零”， 把确诊病例送到医疗机构进行治疗之后，将密切接触者还有相应的次密接者集中到单人单间的酒店进行隔离医学观察，为逐步恢复正常生活创造良好的条件。
+随着 COVID-19 的 Omicron 变体在美国各地传播，医生警告会出现一种通常与早期病毒株不同的新症状。
 
-凌晨把老百姓叫醒去做核酸检测，那么多人聚集一起做检测不是更危险吗？大半夜叫人去做检测，中共心里很变态，很喜欢虐待老百姓。在中共新闻管控的环境下， “社会面清零”太容易了，感染人数，死亡人数，数字随便写，死了再多老百姓对于中共来说根本不算事，当初武汉被感染病毒的老百姓都还没断气就被送去火化了，这种和北朝鲜模式的感染一个枪毙一个相比，五十步笑百步，疫情在中共国都带党性的，说今天清零绝不后天，苦了“被清零”的百姓！
+据报道，盗汗在 Omicron 变体患者中变得更加普遍。
 
-**[新闻来源](https://www.toutiao.com/i7049295413832057380/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1641388820&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=20220105212020010150161042011A5F37&amp;share_token=2AF6662A-0CB3-4697-9301-B344BBD39BE8&amp;group_id=7049295413832057380)**
+NBC 新闻高级医学记者约翰·托雷斯（John Torres）博士告诉《今日》，虽然其他 Omicron 症状通常与普通感冒或流感（如咳嗽、疲劳、充血和流鼻涕）相同，但盗汗是一种新症状 。
 
-#  
+“但人们报告盗汗，这是他们所说的一种非常奇怪的症状，”托雷斯说。
+
+味觉或嗅觉的丧失仍然是 COVID-19 的一个指标，但 omicron 变体似乎不像第一个菌株那样经常引起这种情况。
+
+据《财富》杂志报道，通常情况下，盗汗是由流感、焦虑，甚至癌症等其他问题引起的。
+
+随着 Omicron 菌株的传播，它导致美国和全世界的 COVID 病例总体激增。
+
+据《纽约时报》报道，在全球范围内，随着 Omicron 推动整体病例数字上升，平均每天有 180 万例病例。
+
+但是，尽管病例激增，但 Omicron 似乎并不像其他菌株那样严重。尽管科学家们仍在研究该变体的影响，但南非的数据表明， Omicron 并不像英国卫报报道的那样危险。
+
+“在南非，这就是流行病：Omicron 的行为不那么严重，”该国国家传染病研究所的谢丽尔·科恩（Cheryl Cohen）教授说。
+
+人们遇到的一个问题是，这也是流感和普通感冒的流行季节。由于这三种病毒的症状非常相似，因此很难区分它们。
+
+“你会注意到这些症状有很多重叠，这就是为什么很难区分所有这些症状，”托雷斯说。
+
+目前，Omicron 唯一明显区分的症状似乎是盗汗。
+
+**参考资料：**[westernjournal][Feeling Sick? Report Says Omicron Infections Have a ‘Very Strange Symptom’ Not Seen in Other Variants](https://www.westernjournal.com/feeling-sick-report-says-omicron-infections-strange-symptom-not-seen-variants/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
 
  
 

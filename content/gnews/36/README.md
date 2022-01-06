@@ -2,27 +2,23 @@
 ---
 
 
-## 英卫生机构称双剂疫苗或破坏自然免疫系统
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1828579/)
+## 秘翻在线：中共式“社会面清零” 等同于感染一个消灭一个
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828587/)
 
-撰稿人：文月
+**撰稿：葛大饼**
 
-英国政府承认，疫苗已经破坏了那些完全接种者（即两剂疫苗接种者）的自然免疫系统。英国政府已经承认，在接受双剂疫苗接种后，人们将永远无法再获得对CCP病毒变种——或者可能是任何其他病毒——的完全自然免疫力。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16414706311.png)图片制作：澳喜农场©森森
-在其第42周的 “COVID-19疫苗监测报告 “中，英国卫生局在第23页承认，”在接种两剂疫苗后被感染的人中，N-抗体 (N-antibody)水平似乎较低”。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-06-201439.jpg)图片来源：新浪
+根据2022年1月4日报道， 自2021年12月9日至2022年1月3日24时，西安市已累计报告新冠肺炎本土确诊病例1758例。
 
-它接着说，这种抗体的下降基本上是永久性的，这意味着什么呢？我们知道，疫苗并不能防止病毒的感染或传播（事实上，其他地方的报告显示，现在接种疫苗的成年人比未接种疫苗的成年人更有可能被感染）。
+西安市疾病预防控制中心表示，西安本轮疫情社会面基本实现清零，疫情蔓延势头得到有效遏制。西安在推进“社会面清零”， 把确诊病例送到医疗机构进行治疗之后，将密切接触者还有相应的次密接者集中到单人单间的酒店进行隔离医学观察，为逐步恢复正常生活创造良好的条件。
 
-英国人现在发现，这种疫苗干扰了身体在感染病毒后制造抗体的能力，不仅是针对刺突蛋白，而且还针对病毒的其他组成部分。值得一提的是，接种疫苗的人似乎没有形成针对核苷酸蛋白的抗体，即病毒的包膜蛋白（Envelope），而这是免疫反应的关键部分。
+凌晨把老百姓叫醒去做核酸检测，那么多人聚集一起做检测不是更危险吗？大半夜叫人去做检测，中共心里很变态，很喜欢虐待老百姓。在中共新闻管控的环境下， “社会面清零”太容易了，感染人数，死亡人数，数字随便写，死了再多老百姓对于中共来说根本不算事，当初武汉被感染病毒的老百姓都还没断气就被送去火化了，这种和北朝鲜模式的感染一个枪毙一个相比，五十步笑百步，疫情在中共国都带党性的，说今天清零绝不后天，苦了“被清零”的百姓！
 
-从长期来看，接种疫苗的人更容易受到刺突蛋白任何突变的影响，即使他们已经被感染并治愈过一次或多次。另一方面，未接种疫苗的人在自然感染病毒后，即使不能永久性获得对所有毒株的免疫力，其效力依旧会较为持久。
+**[新闻来源](https://www.toutiao.com/i7049295413832057380/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1641388820&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=20220105212020010150161042011A5F37&amp;share_token=2AF6662A-0CB3-4697-9301-B344BBD39BE8&amp;group_id=7049295413832057380)**
 
-参考文献：
+#  
 
-[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment\_data/file/1027511/Vaccine-surveillance-report-week-42.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1027511/Vaccine-surveillance-report-week-42.pdf)
-
-编辑：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
