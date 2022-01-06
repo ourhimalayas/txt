@@ -2,43 +2,32 @@
 ---
 
 
-## COVID-19疫苗发明者：我们不能每6个月为地球人接种一次
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1829883/)
+## 七哥谈以乐灭共（2021-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1829898/)
 
-编译：Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-359.png)2021年12月7日，在墨西哥城一名护士准备牛津-阿斯利康 COVID-19 疫苗。（Pedro Pardo/AFP via Getty Images）
+来源：郭先生2021-01-05直播08：51：15摘录
 
-**世界上最常用的 COVID-19 疫苗之一的发明者周二承认，每年两次连续向人们提供加强剂量是“不可持续的”**。
+所以我们今天谈这个我们个人音乐的时候，谈今天我是英雄的时候，你一定要想到几个核心的问题，就是当初GTV有的时候，唐平上来，几乎 GTV 那个音乐是没法听的，我们经历了一年以后市值600亿了，我们才刚刚的跨过山，今天听得很好，这不是一句话你就带过的啊！你不能忽视了唐平，还有威廉王的背后像Superman、Q妹、瑞恩等无数个战友们的贡献，大家忘了这个，你光弹歌的时候实在是不公平的啊。为什么你既然那么大这个平台你做不了技术？最后是唐平那么解决的。第二，我们所有人都不是唱歌的专家，结果把我们这个专门砸音乐专家的人啊，像我这板砖似的人物变成了世界摇滚歌星。它就是音乐的本质，就是歌唱个人的，不是歌唱集体的，我们才出来了。第三个，我们大家一定要记住，这个里面的羞辱，和专业的挑战，和人的整个的耐心，和爱的挑战是根本用语言无法形容。特别是我们今天在这个屏幕上那么多人曾经出来唱歌，这个对每个人的人生的影响是巨大的。你人生你上一次夜总会可能你会忘掉，但你人生公开的唱过一次歌你永远不会被忘掉，它对你的影响是彻底的永远的。这更重要的是我们以乐灭供的这个事业上让中国人开启了我们最想做的自信、面对自己，把共产党拿走我们一个属于每个人都应有的尊严、本能，就像缪斯，Music，Music就是缪斯神的名字，给我们的每个人的歌唱的本能是上天给的而我们拿回来了。这就是人权的基本开始，我们为什么不能唱？为什么唱不好？只要你唱就是对的，我唱根本没有标准，没什么好坏，而真的是他们给了我们所有人这个力量和自信。
 
-在周二接受《每日电讯报》采访时，牛津-阿斯利康 COVID-19 疫苗的创造者之一安德鲁·波拉德 (Andrew Pollard) 表示：“我们不能每六个月为地球人接种一次疫苗。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-政策制定者应该努力推进“针对弱势群体”，而不是向 12 岁及以上的任何人提供疫苗，同时，还是英国负责疫苗接种和免疫联合委员会的波拉德继续说，**应该收集更多关于“****弱势群体****是否、何时，以及多久需要额外剂量”的数据。**
+**关注我们**
 
-与此同时，包括以色列在内的一些国家，正在开始或正在考虑推出第四剂疫苗。周一，以色列官员开始向所有医务人员和 60 岁及以上的人提供第四剂疫苗。
+Discord 账号
 
-在以色列，加强剂与个人的 COVID-19 疫苗护照有关，称为“绿色通行证”，用于进入某些企业。当局去年宣布，**如果该人在接种前二剂初始疫苗后的六个月内，没有接受加强剂，则绿色通行证将过期**。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）在 12 月底告诉公共广播公司 ZDF，德国人在未来几个月内“将需要第四次接种 COVID-19 疫苗”，而荷兰当局上周表示，他们已经购买了足够的疫苗剂量，以提供三个到 2023 年的额外加强剂。
+Gettr 账号
 
-“在某个时候，**社会必须开放！当我们开放时，会有一段感染高峰期，这就是为什么冬天可能不是最好的时间**，”波拉德在周二的采访中说。 “**但这是决策者的决定，而不是科学家**。”
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-（**点评：医疗问题由政治家决定？但这正是我们现在所处的荒唐时代：政客为全世界开药方，所以两年了病毒依然肆虐，一波又一波，这正是政客想要达到的目的：以病毒为借口，剥夺自由世界法律保护的自由，大行独裁之道**！）
-
-他补充说，英国不应盲目遵循德国和在以色列实施或正在提出的加强剂政策。
-
-自从去年 11 月首次发现这种严重突变的变种以来，世卫组织的数据显示，它已迅速传播并出现在至少128个国家/地区，这让经历了近两年与 COVID 相关的破坏之后，许多国家和寻求重启经济和生活的人们又陷入困境。
-
-但越来越多的证据表明， **Omicron 变种正在影响上呼吸道**，导致比以前的变种更轻微的症状，在某些地方导致病例数飙升但死亡率低这样的“脱钩”，世卫组织一名官员周二表示。
-
-新闻来源 :[theepochtimes.com] [COVID-19 Vaccine Creator: ‘We Can’t Vaccinate the Planet Every 6 Months’](https://www.theepochtimes.com/mkt_morningbrief/covid-19-vaccine-creator-we-cant-vaccinate-the-planet-every-six-months_4190735.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-05&amp;mktids=5d404b681323fd86de8b6863b8c21aca&amp;est=ACGgrk0ltBcN%2FlWSVlsccLT2ExwpBQXCUyyga4Safy0RSsSOReo4Txf270xhyvMcBUXQlw%3D%3D)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@michaelgwaltz 12/13/2021 2:05 PM (UTC)`
+
+Just concluded a bipartisan congressional delegation visit to Ukraine where we met with military officials and observed training exercises.  
+![img](https://media.gettr.com/group47/tw/2022/01/05/01/97d7b454-e448-aff2-a914-225e6f5d9019/36f0f9c729a7a3d5f5b0c251f7cfc0d1.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@rsbnetwork 1/6/2022 6:35 PM (UTC)`
 
 @mtg4america calls for ANSWERS regarding the FBI's possible involvement in the Jan. 6 Capitol riots
@@ -154,13 +163,6 @@ Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is 
 
 1/05/2021 Miles Guo: Was the riot happening in Kazakhstan provoked by the CIA or part of the CCP’s insidious plan? The President of Kazakhstan will face serious consequences if he refuses to hand over the CCP kleptocrats’ gold to Xi. It’s said that the President has backed down, but as always, the CCP will blame the US for the riot<br/><br/>1/05/2021 文贵直播：哈萨克斯坦暴乱到底是美国CIA挑唆，还是中共使坏？哈总统拒绝返还中共盗国贼的黄金，后果很严重；据说哈总统已服软，但中共这一次照样会甩锅给美国<br/>
 ![img](https://media.gettr.com/group16/getter/2022/01/06/00/9de03529-b39e-ca4a-c374-51d0e109685a/out.jpg)
-
----
-
-`@miles 1/6/2022 12:15 AM (UTC)`
-
-1/5/2022 Miles Guo: Nursultan Nazarbayev, Wang Qishan’s best buddy, helped Wang and Jiang Zemin hide 100 tons of gold in Kazakhstan; Xi Jinping had sent Wang Yi to ask Nazarbayev for the gold, and a social unrest occurred right after Wang Yi left Kazakhstan; Nazarbayev threatened Xi that he would establish a diplomatic relationship with Taiwan if Xi demanded gold from him again<br/><br/>1/5/2022 文贵直播：扎尔巴耶夫是王岐山最好的哥们儿，帮王和江藏了100吨黄金在哈萨克斯坦；习近平派王毅找扎尔巴耶夫要黄金，王毅刚走哈萨克斯坦就发生了动乱；纳扎尔巴耶夫竟威胁习，称若习再来要黄金就和台湾建交<br/>
-![img](https://media.gettr.com/group46/getter/2022/01/06/00/70d582e5-3085-c554-3693-d3ee20479c7d/out.jpg)
 
 ---
 
