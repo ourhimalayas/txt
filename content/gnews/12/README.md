@@ -2,49 +2,28 @@
 ---
 
 
-## 德国：双重疫苗接种者将不再允许不经测试进入餐馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1827034/)
+## 澳大利亚新州超市出现短缺
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1827078/)
 
-作者：纽约香草山农场 – 四季
+撰稿：云彩
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+视频来自网络
+1月4日，新南威尔士州单日感染COVID-19人数录得新高，35,054例。
 
+随着新州开放边境，从每日感染人数从1000多例，迅速攀升到2万多，3万多。随之而来的是，人们发现超市里越来越多的货架空了。一些主要超市里，新鲜水果ˎ蔬菜和肉类短缺。
 
+大超市Woolworths 表示，持续的健康危机造成了重大的物流中断。主要是因为有超市员工（包括卡车司机和配送中心的员工）感染新冠病毒不得不离开工作岗位，造成人手奇缺，无法及时把产品送到商店，摆上货架。
 
+莫纳什大学澳大利亚供应链管理研究部主任阿姆里克·索哈尔 (Amrik Sohal) 表示，在 COVID 病例数激增的同时，需求也在增加。
 
+民众恐慌购买和因为感染病毒而无法工作的员工，使得供应链再次中断。我们又回到了一个不确定的时期。每个行业都受到影响 ，到处缺乏工人。
 
-据[网关专家](https://www.thegatewaypundit.com/2022/01/germany-double-vaccinated-no-longer-allowed-restaurants-without-taking-tests-triple-vaxxed-allowed-inside/)1月5日报道，德国宣布了新的限制措施——从下周一开始将不再允许双重疫苗接种者进入餐馆，只有接种过第三剂疫苗的人才能进入。
+点评：从放病毒到疫苗经济，是人祸。政府在推行强制疫苗政策时，理由是如果你打了疫苗，我们的生活将恢复到从前。但是，政府开放边境，让人们自由活动的时候，病毒感染人数飙升。因为，疫苗不能阻挡病毒传染，反而加快传播速度。由于感染人数上升，造成供应链物流环节断裂，对各个国家的经济和民生都是重创。这正中中共下怀，借此侵略台湾，再而打垮美国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6A0830C8-FB69-4650-B7A8-690B091821E8.jpeg)图片来源：网关专家
+参考资料：
 
-这一措施将影响到双重疫苗接种者和已经从Covid中康复的人。他们现在需要提供每日阴性测试结果，才能进入德国汉堡的许多机构。
-
-与此同时，只有那些已经注射了疫苗加强针的人，才能在该城市的室内参加餐馆、文化和体育活动，而无需进行检测。这意味着双重接种者不再被视为完全接种，未接种者不再有机会参加这些活动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[新州超市货品短缺](https://www.abc.net.au/news/2022-01-04/food-shortages-at-major-supermarkets-covid-rises/100737066)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,30 @@
 ---
 
 
-## 灭共漫画——CCP&#8217;s Biggest Nightmare
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1827054/)
+## 【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827088/)
 
-**出品：纽约香草山设计部**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-60.png)图片来源：印度政府新闻局
+印度当地时间周三（1月5日），印度财政部在印度政府新闻局（PIB）发表声明称，印度税收情报局（DRI）已向小米科技印度有限公司发出通知，向该公司追缴65.3亿卢比（约5.6亿人民币）税款。
 
+印度财政部称，根据一份情报，小米印度公司通过低估价值的方式逃避关税，DRI对该公司及其合同制造商发起了调查。
 
+声明显示，DRI在小米印度公司的经营场所进行了搜查，并追回了表明小米印度公司向美国高通公司和北京小米软件有限公司支付特许权使用费和许可费的文件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+印度财政部称，小米印度公司及其合同制造商的关键人物的陈述被记录下来，在此期间，一位小米印度的董事确认了上述付款。DRI的调查进一步显示，小米印度公司从事MI品牌手机的销售，这些手机有两个来源，小米印度公司进口的，或小米印度公司的合同制造商进口手机零部件后在印度组装的，根据合同协议，合同制造商生产的MI品牌手机只销售给小米印度公司。
 
+印度财政部表示，DRI调查期间收集的证据表明，小米印度及其合同制造商均未将小米印度支付的特许权使用费金额计入商品的评估价值，这违反了印度1962年《海关法》第14条和2007年海关估价（确定进口货物价值）的规则。
 
+声明称，根据1962年《海关法》的规定，已向小米印度公司发出了三份表明原因的通知，要求收回2017年1月1日至2020年3月6日期间65.3亿卢比的关税。
 
+消息来源:
 
+[印度财政部称小米“逃税” 追缴65.3亿卢比“税款”](https://api3.cls.cn/share/article/909204?os=web&amp;sv=698)
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-IMG_3623.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-IMG_3339.jpg)
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
