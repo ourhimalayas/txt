@@ -2,35 +2,45 @@
 ---
 
 
-## 魁北克省政府称“应该出台针对未接种疫苗者的措施”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1827773/)
+## 即将到来的人类最黑暗的2022年里钱血组不要输掉本质
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1827857/)
 
-2022-01-05
+**郭文贵先生**：我们在今天我们想特别重要的，我就有两个希望：我希望2022年，在我们将迎来人类上最黑暗的时间里面，铁血组不要输掉了、也不要丢掉了我们铁血组的本质，“铁”和“铁血”。铁血本身就不能有自己，一定要给战友们看，应该爱战友，一切以灭共为核心！
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9E2AAFE1-5513-4D05-AC99-B698754EA5B6.jpeg)图片来源：蒙特利尔日报 2022 年 1 月 5 日星期三
-**卫生和社会服务部长杜贝将在周四宣布针对未接种疫苗者的措施。**
+这不是共产党要求的奉献，也不是共产党要求的爹亲娘亲不如党亲，我们要一切服务的不是七哥、不是任何人，就是灭共，这时候必须要无我，因为只有灭了共我们才能拥有一切。
 
-蒙特利尔日报（TVA NOUVELLES，2022 年 1 月 5 日星期三下午 4:24）发表题为《魁北克省政府应该出台将针对未接种疫苗者的措施》的文章报道，魁北克省政府卫生和社会服务部长克里斯蒂安·杜贝 （Christian Dubé） 将在周四 （2022 年 1 月 6 日）上午 11 点举行的新闻发布会上宣布针对未接种疫苗者的措施。
+第二个我希望的事情，我们铁血组今年更多的而不是说开会，更多的而不是说仅仅是协调，我们今年一定要以身作则，把整个新中国联邦像昨天看到《我是音雄》一样，叫大家认识到铁血组真正的是能包容战友、爱战友、替战友解决问题，而且能把我们的联盟委员会提高到一个最高的层次，高效率、高质量、高道德，让共产党听到“铁血组”就让它发抖！就让它男的女的全流水，全让它流水，叫它水流成河，这就是我们今年铁血组要干的事儿。
 
-**不排除对未接种疫苗的魁北克人采取强硬态度**
+所以说今天特别感谢老班长、长岛哥、东弟颖妹妹、如水、大卫、草根兄弟、木兰妹妹，今天在这个关键时刻，我们铁血组2022年是由我们先开始的，就让今年这个未来的365天走向一个新的阶段吧。谢谢兄弟姐妹们！谢谢！
 
-上周，魁北克省长弗朗索瓦·勒戈（François Legault）表示，他不排除对未接种疫苗的魁北克人采取强硬态度。蒙特利尔日报本周早期报道，可能会对 SAQ（一家政府垄断的公司，其职责是在魁北克全境经销酒精饮料）和 SQCD（SAQ 的子公司，其职责是管理魁北克全境的大麻销售）的所有的分支机构实施疫苗护照措施，从而禁止未接种 COVID-19 疫苗的魁北克人进入。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F7FD8A05-4DB0-4C21-A64F-5957EE86BC02.jpeg)图片来源：蒙特利尔日报 2022 年 1 月 5 日星期三
-此外，大学、医疗、护理和药物事务副部长助理露西·奥帕特尼博士（Lucie Opatrny）评估了医院的情况并指出，目前有 1,750 名 COVID-19 患者正在住院治疗。
+字幕来源：[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](https://gnews.org/zh-hans/1816030/)
 
-执行一个减轻医疗健康保健系统压力的措施应该是有必要的。同时有关部门也必须对医疗健康保健系统的未来有一个清楚的预测。
+编辑整理：Jacques；
 
-文章编译及评论人提醒读者，邪恶势力自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。在针对未接种疫苗的人群而采取的不得已的措施——宵禁令，出台后，魁北克省政府开始请求联邦援助，部署加拿大武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模且快速地进行。
+字幕文件制作：小满；
 
-魁北克省政府还会针对未接种疫苗的人群采取更多的其它措施。病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。
+视频制作及上传：Cindy；
 
-参考资料：
+G-News发布：小满；
 
-蒙特利尔日报，TVA NOUVELLES，2022 年 1 月 5 日，星期三，下午 4:24，[Le Journal De Montreal: Québec devrait annoncer des mesures qui toucheront les non-vaccinés](https://www.journaldemontreal.com/2022/01/05/quebec-fera-le-point-sur-la-pandemie-de-covid-19-demain-a-11h-1).
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-编辑发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

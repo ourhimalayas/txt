@@ -2,51 +2,48 @@
 ---
 
 
-## 中共研究人员在2015年就窃取了美国单克隆抗体商业秘密
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827313/)
+## 印度担心默克新冠药片副作用，将不纳入国家治疗方案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827478/)
 
-撰稿：纽约香草山翻译部 – defiance
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-据国家脉动4日报道，受雇于葛兰素史克公司GSK的前科学家Lucy Xi，承认窃取中共病毒疗法相关的商业秘密，目的是帮助一个国资药企。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-297.png)
-Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美国司法部消息，2015年1月，她向同伙梅岩发送了一份包含“保密商业机密数据与信息”的GSK内部文件。该文件提供了GSK当时对单克隆抗体的研究概况。Lucy Xi在邮件正文中写道：“你需要充分弄懂这个，将有助于任诺的未来发展。”
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-检察官威廉姆斯指出：“这名被告非法窃取商业秘密，使由中共政府出资的公司受益，这种犯罪行为必须在法律的最大范围内受到起诉。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-PILLS.jpeg)
 
 
-
-新闻链接：
-
-
-
-> [Chinese Communist Researcher Stole U.S. Monoclonal Antibody ‘Secrets’… In 2015.](https://thenationalpulse.com/2022/01/04/ccp-pharma-stole-gsk-antibody-secrets/)
+ 
+图片来源：*NurPhoto | NurPhoto | Getty Images*
 
 
+#### 编译：小红帽
 
-[中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](https://gettr.com/post/pm9nc152d9)
+根据《RT新闻》1月5日报道，** 印度已经宣布不会将默克公司的治疗新冠（Covid-19）的药片加入其国家治疗方案，原因是担心其安全性。据该国的医学研究委员会称，该药物可能导致胎儿缺陷和细胞突变。**
 
-参考链接：
+周三，国营印度医学研究委员会（ICMR）表示已经意识到了该药物的“重大安全问题”。
 
-[南京任诺药业有限公司相关信息](https://gettr.com/post/pm923tf660)
+“这种药物可能导致致畸和致突变，还可能导致软骨损伤，对肌肉有损害，”ICMR总干事巴尔拉姆·巴尔加瓦 (Balram Bhargava)表示。“更重要的是，如果服用这种药物，必须避孕三个月，因为出生的孩子可能是有问题的，有致畸影响。”
 
-[梅岩、李涛的发明专利](https://gettr.com/post/pm9dj5f07e)
+致畸剂是一种可以损害胎儿发育的药剂，而诱突变药物会改变受试者的基因构成。
 
-[美国司法部：再有一名药物研究员对窃取商业机密指控认罪](https://www.163.com/dy/article/GSU8EN3E0552M0B2.html?f=post2020_dy_recommends)
+默克公司声称，对其药物的研究证明它不会导致出生缺陷或癌症。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+“世卫组织没有将其包含在内，英国截至目前也没有将其包含在内。截至目前，目前的建议是，该药物不是国家工作队治疗的一部分，”巴尔加瓦说。
 
-总编/编辑: 童谣
+该药物在12月获得了印度监管机构的批准，原定于下周在私人市场上销售。
 
-校正/发稿：浪迹天涯
+默克公司和印度制药商雷迪博士实验室（Dr. Reddy’s Laboratories）均没有回应媒体的评论请求，后者曾计划推出该药的通用版本。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+该药物已被批准在世界其他地方使用，包括英国、日本和丹麦。
 
+新闻来源：[India concerned by Merck Covid pill side effects — RT World News](https://www.rt.com/news/545237-india-covid19-merck-drug/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

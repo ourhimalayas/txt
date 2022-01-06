@@ -2,31 +2,20 @@
 ---
 
 
-## 千亿房企阳光城董事长亏损3000万割肉辞任
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1827502/)
+## 对抗中共 日澳正式签署《互惠准入协定》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827836/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-8.jpg)千亿房企阳光城董事长亏损3000万割肉辞任 网络图片
-据第一财经资讯1月6日报道，阳光城集团5日发布公告，董事局、监事会已收到执行董事长兼总裁朱荣斌的书面辞职报告。千亿房企阳光城的“朱荣斌时代”宣告终结。
+撰搞：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.png)[图片来源](https://www.voachinese.com/a/Japan-PM-Suga-says-broad-agreement-reached-military-pact-Australia-20201117/5666033.html)
+6日下午，岸田文雄首相与澳大利亚总理莫里森签署了《互惠准入协定》，其中规定了自卫队和澳大利亚军队在访问对方国时所处的法律地位，随后双方进行了视频电话会谈。
 
-朱荣斌是房地产行业知名的职业经理人，是阳光城的一块“金字招牌”。朱荣斌仅用两年时间就把阳光城带入2000亿规模，创造了阳光城发展最迅猛的时代。他曾经花一个亿与阳光城深度绑定，但在离职前亏损套现3000多万割肉离场。
+此协定的签署目的是加强防务合作，对抗中共国在印太地区的霸权行径。《互惠准入协定》相当于基于《日美安保条约》签署的《日美地位协定》。澳大利亚被日本定位为“准同盟国”，继美国之后，日本与澳方缔造此协定尚属首例。日方愿以此为先例，加快与各同盟国的合作。
 
-中共国房企已经是朝不保夕，此时离场无疑是明智的。只是离职后的归处又在哪里？中共国的经济已经深陷泥潭，拔脚跳出这里，又会陷在那里。
+信息源：[日豪、円滑化協定に署名　対中念頭に防衛協力強化](https://news.yahoo.co.jp/articles/78a87f277488a3068c5bca91136312444ada13fd)
 
-新闻参考链接：[https://c.m.163.com/news/a/GT1065JT0519DDQ2.html?spss=newsapp](https://c.m.163.com/news/a/GT1065JT0519DDQ2.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

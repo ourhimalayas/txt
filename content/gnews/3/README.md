@@ -2,32 +2,24 @@
 ---
 
 
-## CDC外部专家小组建议向青少年接种中共病毒疫苗加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827947/)
+## 债券大王杰弗里·冈德拉克：目前不可投资中共国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828028/)
 
-#### 撰稿：彩虹 
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-10.jpg)图片来源：雅虎财经
-据《新闻极限》1月5日报道，周三，一个为CDC（美国疾病控制和预防中心）提供咨询的外部专家小组投票，建议向12至15岁的青少年提供辉瑞生物科技的中共病毒（COVID-19）疫苗的加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-3.png)图片来源：商业内幕
+据《雅虎财经》（Yahoo Finance）1月5日报道，美国投资公司双线资本（DoubleLine Capital）的创始人杰弗里·冈德拉克 (Jeffrey Gundlach)告诫投资者，在把钱投入中共国之前需要三思而后行。
 
-CDC的这个免疫接种咨询委员会（ACIP）以13票对1票，建议美国卫生机构支持为12至15岁的人在第二次接种中共病毒疫苗后至少5个月进行疫苗加强针注射。
+债券大王杰弗里·冈德拉克在其加州庄园接受《雅虎财经》采访时说：“在我看来，目前的中共国是不可投资的。我在中共国从来没有任何长线或短线投资。为什么呢？因为我不相信（中共的）这些数据，我也不再相信中美之间的关系。另外，我认为在中共国的投资可能存在被没收的风险。”
 
-同时，该小组还扩大了其最近对年龄较大的青少年的建议，明确表示16和17岁的青少年也“应该”接受中共病毒疫苗加强针。该机构以前曾向这些青少年提供过疫苗，但没有建议他们所有人都应该接受额外的中共病毒疫苗加强针注射。
+冈德拉克的上述评论是在双线资本的第三届年度圆桌会议（Roundtable Prime）投资者活动之前发表的。
 
-根据之前的报道，周一，FDA（美国食品和药物管理局）授权为12至15岁的儿童注射中共病毒疫苗加强针，但在（允许接种加强针）之前CDC需要签字。
+去年发生的一系列事件可以证实冈德拉克对中共国的担忧。2021年，滴滴等大型互联网公司遭到了中共政府的持续打压，这让许多投资者感到震惊。除此以外，中共还在不断打击加密货币的崛起。
 
-另据《国会山报》报道，一旦CDC签字，将允许进行中共病毒疫苗加强针的注射。CDC的一位官员周三告诉委员会，大约500万青少年将立即有资格获得中共病毒疫苗加强针。
+冈德拉克对新兴市场越来越乐观，但不包括中共国，因为他认为中共国不再是一个新兴市场。
 
-文章透露，唯一投反对票的小组成员海伦·凯普·塔尔博特（Helen Keipp Talbot）说，她并不反对给青少年注射中共病毒疫苗强化针，但她担心心肌炎的风险。
-
-预计CDC疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）将迅速作出决定，允许最快在本周开始进行注射中共病毒疫苗加强针。
-
-**新闻来源**
-
-[CDC Advisory Panel in Favor of Pfizer Vaccine Booster for Ages 12 to 15](https://www.newsmax.com/health/health-news/covid-cdc-booster-12-15/2022/01/05/id/1051201/)
-
-[CDC panel recommends Pfizer COVID-19 booster for adolescents](https://thehill.com/policy/healthcare/588459-cdc-advisors-recommend-pfizer-covid-19-vaccine-booster-for-adolescents)
+新闻来源：[‘China is uninvestable,’ says Bond king Jeffrey Gundlach](https://finance.yahoo.com/news/bond-king-jeffrey-gundlach-china-is-uninvestable-114404300.html)
 
  
 
