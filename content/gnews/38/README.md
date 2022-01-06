@@ -2,25 +2,31 @@
 ---
 
 
-## 美单日新增病例破百万 超去年同期高峰4倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829316/)
+## 联邦法官阻止政府对启蒙计划的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829368/)
 
-作者：香草山佛教部-文一
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
+1月2日，据当地媒体报道，一名联邦地区法官于当天阻止了美国政府要求启蒙计划早期教育项目的教师及员工接种中共病毒疫苗的强制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-5.jpeg)
 
-评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
+资料显示，启蒙计划是美国联邦政府资助的教育项目，其主要为低收入家庭的婴幼儿及学龄前儿童提供教育帮助。此前，联邦政府要求所有就职于启蒙计划的教育工作人员于2022年1月31日前接种中共病毒疫苗。
 
-参考链接： 
-1）[https://gettr.com/post/plxoc792a3](https://gettr.com/post/plxoc792a3)
-2）[Breaking: Despite Shutdowns, Lockdowns, Masks, Vaccines, Boosters, Double Maskers… New COVID Cases Top One Million for First Time Ever](Despite%20Shutdowns,%20Lockdowns,%20Masks,%20Vaccines,%20Boosters,%20Double%20Maskers…%20New%20COVID%20Cases%20Top%20One%20Million%20for%20First%20Time%20Ever)
+对此，在美国24个州起诉卫生与公众服务部长哈维尔-贝塞拉的案件中，路易斯安那州门罗地区法官特里-道蒂对此项疫苗强制政策发出了初步禁止令。
+
+道蒂法官表示，美国目前已经走到了十字路口。此时，如果民众继续允许行政部门篡夺立法部门制定法律的权利，那么美国就不再是民主国家。 道蒂强调，中共病毒疫情不是美国放弃三权分立的借口。
+
+与此同时，美国最高法院也正在考虑阻止加州一个学区针对当地学生实行的中共病毒疫苗强制接种要求。
+
+参考链接：
+1）[联邦法官阻止拜登政府针对启蒙计划（Head Start）的疫苗强制令](https://gnews.org/zh-hans/1821714/)
+2）[美联邦法官叫停“启蒙计划”强制疫苗令](https://www.aboluowang.com/2022/0104/1691293.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Jack Li文阳 
-编辑：童谣  
+总编：Ivy001 
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,6 +36,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
 
  
