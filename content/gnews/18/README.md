@@ -2,10 +2,10 @@
 ---
 
 
-## 王毅吹嘘中俄结盟、领导世界
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827980/)
+## 中共砖家大放厥词说西方政党只代表一部分人利益
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827984/)
 
-12/30/2021 中共外交部长王毅吹嘘中俄结盟、领导世界。
+中共砖家郑若麟大放厥词说西方政党只代表一部分人利益而中共代表大部分中国人利益。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
