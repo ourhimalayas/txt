@@ -2,54 +2,114 @@
 ---
 
 
-## 灭共者之新中国联邦人之真言真语
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1826393/)
+## 联盟答疑G系列相关信息文字版
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1826537/)
 
-**出品：纽约香草山设计部**
+1月4日草根小哥联盟答疑，G系列部分听写
 
+非官方整理，一切信息以联盟答疑音频为准
 
+G-听写：文希； qiutian（邱甜）； ohbigant；鲁西西
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+1、个人KYC已经过了，现在想从牆內汇钱到HDO账号，应该怎么操作？
+答:给滔滔江水战友留言。
 
+2、数字银行，对于已经填表的战友，大概什么时候农场会有通知或者义工联系KYC或者汇款？每年除了4%的基金年管理费外每年还有别的费用嘛？
+答:关于数字银行的问题都私信我的Whatsapp
 
+3、老投资战友投新GTV如果用银行汇款请问有额度限制嘛？有没有要求银行汇款（或者喜美元）最少1万美元？
+答:老投资者最低投资金额是5千美元
 
+4、美国战友能否用喜美元投新GTV?等美国新GTV投资委员会成立再汇款签协议等会不会赶不上4月30汇款到账截止时间？
+答:首先我不清楚美国战友是怎么能通过KYC开喜美元账户的，其次是美国这个战友签署的日期不受4/30限制
 
+5、我的卡项目通过HDO已经扣款3天了，还没有收到G|CLUBS给我的的卡号，请问一般情况扣款后多久能收到？
+答:联系我的Whatsapp，我去核实一下
 
+6、GTV发股是否会统一发放
+答:之前签过合同的应该在六月底前给大家签股票协议，美国战友和没签合同的都要往后排
 
+7、数字银行基金收取每年4%年费投资十年没分红的情况下也会收取吗？
+答:私信Whatsapp
 
+8、想了解有没有战友已经收到SEC的退款
+答:SEC是集中委托第三方退款的，现在还没开始
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-20220104-07.jpg)Everything you own has to be captured with your own hands, earned by your own actions. Don’t ever believe or rely on anything that you’ve not worked for, for those don’t belong to you, and may even bring harm to you. 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 25, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/2-20220104-03.jpg)一切都要靠自己的双手夺来，靠自己的行动换来，永远不要相信也不要去依靠任何你没有付出的东西，那些都不是你的，是你的伤害。 
-– 2021年12月25日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220104-06.jpg)Without faith, China as a country is the most dangerous form of China; and in the end, it is the Chinese people who will pay dearly for it! 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 29, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220104-04.jpg)没有信仰的中国是最危险的中国，而最后中国人一定要为此付出代价！ 
--2021年12月29日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/5-20220104-02.jpg)新中国联邦人要包容、要持之以恒、要真心灭共、要善待对方，还要唯真不破。这都是绝对真言真语！ 
-– 2021年12月24日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/6-20220104-05.jpg)The people of the New Federal State of China (NFSC) should be tolerant, persistent, and genuine in taking down the CCP; should be kind, and always truthful. These are our mottos! 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 24, 2021
+9、谢谢购G|CLUBS卡所得到的GTV股票、什麼時候开始可以签合约？
+答:新购的应该是第四批签
 
+10、问：参加的卡项目3月份汇的款，也对好帐了有卡号，可是11月G|CLUBS那边说在他们不知到的情况下款退回去了，但我的账户上也没见到这个退款，现在还在查，如果4月30号赶不及怎么办？
+答：把你的情况whatsapp发给我。
 
-**编辑/发稿：小鹿**
+11、问：投资数字银行能否第三方汇款？
+答：和喜币一样不能第三方汇款，只能本人名下亲自汇款，并且这笔钱要有出处，有资金证明才可以，投资方会给你做一个KYC。
 
+12、问：5月20号汇款给农场买G|CLUBS卡，能不能对上账，什么时候拿到卡号？
+答：还没拿到卡号赶紧和农场联系，让农场协助完成。
 
+13、问：投资数字银行一到十万和十万以上有什么区别吗？
+答：十万以上不通过基金的，一到十万通过基金，涉及到基金管理费年费。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
+14、数字银行是基金还是股票的形式？
+答：是股东的形式，将来一定会上市，目前还没有具体细则。
 
-**更多资讯，更多关注**
+15、G|CLUBS公司已收到我的资金，还没有对账，如果6月还没有卡号，是否会影响股票？
+答：不会影响，钱到了G|CLUBS公司就没问题，尽快联系农场去和G|CLUBS公司对账。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+16、农场去年7月已收到我的资金并且已经对账，没收到G-TV股票协议，想问一下我是第几批？
+答：应该是第四批，同时让农场帮你对账。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+17、6字头的福利卡可以参加G|CLUBS年会抽奖吗？
+答：可以的，只要是G|CLUBS的正式卡都可以，福利卡也包含在内。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+18、新G-TV大概什么时间上市？
+答：我不敢和大家瞎保证，只能说会有一个惊喜，郭先生制定了特殊的计划，会很快上市，预期应该一年内，我是瞎说的，不负任何责任。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+19、追加G-TV投资有最低限制吗？
+答：5000美元是下限。各农场现在都是通过HDO的方式，美加日可以第三方通过HDO操作。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+20、G-TV投资目前可以更改成公司名吗？
+答：和农场联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+21、新战友还可以追加G-TV投资吗？
+答：投资延期到一月底了，HPay上市前都可以操作。
 
+22、G|CLUBS卡支票已经邮寄2个多月，一直不扣款，该怎么办？
+答：和农场联系去帮你对账，支票没有入账千万别撤回，G|CLUBS公司一天可处理支票数量有限，所以导致很慢。不要着急，让农场随时和G|CLUBS公司联系帮你对账。
 
+23、已有G|CLUBS卡，后通过卡项目追加的资金能否不拆分？
+答：可以，但未来如何划分处置还需讨论。
 
+24、购买G|CLUBS卡的支票划款两天后又被退，该怎么办？
+答：联系G|CLUBS客服或农场专员。
+25、HDO买G|CLUBS卡已付款，目前还没有得到卡号怎么办？
+答：让农场专员协助快速对账。
 
+26、买G|CLUBS的支票已确认收到，还未入帐怎么办？
+答：耐心等待一下，千万别撤回。
+
+28、FMV的KYC邮件告知我是“被暂停状态”，农场也不知道原因。怎么办？
+答：私信我WhatsApp。
+
+29、买G|CLUBS卡的HDO已被划走，但客服邮件告知我余额不足，怎么办？
+答：找客服和大文柱战友。
+
+30、5月份现金汇票买卡，邮递显示已收到。可目前仍未入帐，现能否撤回改用HDO支付？
+答：咨询一下大文柱战友。
+
+31、喜账号改完邮箱后到现在也登录不上怎么办？也多次联系客服了。
+答：还是得找在线客服，如还无法解决可以私信我。
+
+32、HDO成功扣款一个月了，喜交所客服告知我款项已转给G|CLUBS了。为何G|CLUBS还是显示待支付？
+答：可能是没有入帐核对，需要再次确认。
+
+G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
+
+语音链接：https://mega.nz/file/sXJFDAYa#3h\_bGj641FZFCmQ-4V5YIK-08werIL5pDMogmhggisg
+
+*审核：哲道行者，夏目山竹*
+
+*发布：哲道行者*
 
  
 

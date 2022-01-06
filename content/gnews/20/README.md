@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|香港《众新闻》将于4日被关停
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826170/)
+## 有声|中共借疫情施暴政，苟延残喘
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826183/)
 
 配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+据了解，近日，郑州发生的所谓疫情，出现了市民断粮断菜，被禁止出小区，能够买到的菜既贵又少。更有消息说任何人都不能购买指定供应之外的蔬菜等物品，一经发现黄码处理。甚至病人都不能去医院看病，需要化疗、透析等急重病人只能在家受尽煎熬，足月的孕妇要准备“自力更生”。还有网友发出照片，某小区的一千多市民被大巴拉去强制隔离，隔离房只有简单的铁架床，没有取暖设备。市民质疑：为何不能在自己家里隔离，非要全家老小去别的地方隔离。还要坐挤满人的巴士，不怕交叉感染吗？
 
-刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
+在中共国，郑州不是第一个封城的城市，武汉、南京、广州、通化、瑞丽等地在前，为何仍然使用看似简单粗暴恶劣的处理方式呢？
 
-分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
-
-原文链接:[香港《众新闻》将于4日被关停](https://gnews.org/zh-hans/1819803/)
+原文链接:[中共借疫情施暴政，苟延残喘](https://gnews.org/zh-hans/1821828/)
 
 音频处理：喜山必胜Maverick
 
@@ -28,6 +26,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
 
  

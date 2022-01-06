@@ -2,26 +2,33 @@
 ---
 
 
-## 中共国网络监管部门审查影响舆论的APP
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826146/)
+## 有声|香港《众新闻》将于4日被关停
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826170/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CHINA-PROPERTY-DEBT-0_1640331803787_16403320714013.jpg)图片来源：sputniknews.cn
-据俄罗斯卫星通讯社1月5日报道，中共国国家互联网信息办公室5日发布的《移动互联网应用程序信息服务管理规定（征求意见稿）》中指出，应当对影响舆论的应用程序APP进行安全评估。4日，网信办发布新的《网络安全审查办法》，自2022年2月15日起施行，其中针对算法服务特别要求，建立完善人工干预和用户自主选择机制。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月2日晚间，香港泛民派新闻媒体《众新闻》宣布，将于4日迫于中共压力停运。中共罗列出种种欲加之罪，即以歪曲、偏颇手法解读官员回答记者提问等，特别是对2021年10月前，黑警头目邓炳强解说《基本法》二十三条的报道，引发了中共不满。
 
-点石成金，梦想成真。现在的中共国，习近平的手指点到哪个行业，哪个行业一片哀嚎，顷刻间跌倒。房地产点倒了，科技公司点倒了，教育行业点倒了，现在点到了应用程序APP。给APP一条建议，赶紧先买好骨灰盒再想对策，否则只怕来不及。中共现在不是割韭菜，是斩草除根，挖地三尺，因为中共没钱了，不抢老百姓的钱怎么活？在中共死还是老百姓死之间，选择永远是老百姓死。不想死的就站起来反抗，在2022年推翻中共。
+刚刚关停《立场新闻》，并动用黑警抓捕爱港艺人何韵诗之后，中共又迫不及待地逼迫一家泛民派媒体关闭。
 
-新闻参考链接：[https://sputniknews.cn/20220105/app-1036955773.html](https://sputniknews.cn/20220105/app-1036955773.html)
+分析人士指出，在12月31日，港奸郑若骅大肆宣扬港府尊重新闻自由，仅两天后就逼迫这家媒体停运，除了害怕其报道真相，危急中共政权外，也暴露出中共所谓尊重新闻自由，只是一块遮羞布而已。
 
-* * *
+原文链接:[香港《众新闻》将于4日被关停](https://gnews.org/zh-hans/1819803/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：喜山必胜Maverick
 
+发稿：Daxia
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
