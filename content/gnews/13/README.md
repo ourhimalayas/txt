@@ -2,43 +2,34 @@
 ---
 
 
-## 联邦法官阻止政府对启蒙计划的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829368/)
+## 交易额超600美元第三方支付平台就须上报美国国税局
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829389/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月2日，据当地媒体报道，一名联邦地区法官于当天阻止了美国政府要求启蒙计划早期教育项目的教师及员工接种中共病毒疫苗的强制令。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E5D19F44-0936-43FA-A455-AFD8953D5EBE.jpeg)图为PayPal加州总公司资料图（图片来自Getty Images）
 
-资料显示，启蒙计划是美国联邦政府资助的教育项目，其主要为低收入家庭的婴幼儿及学龄前儿童提供教育帮助。此前，联邦政府要求所有就职于启蒙计划的教育工作人员于2022年1月31日前接种中共病毒疫苗。
+据《大纪元》1月6日报道，根据美国国税局（Internal Revenue Service，简称IRS）的最新规定，自2022年1月1日起，只要用户收到600美元或以上的商品和服务付款，第三方支付应用平台就必须向美国国税局报告。
 
-对此，在美国24个州起诉卫生与公众服务部长哈维尔-贝塞拉的案件中，路易斯安那州门罗地区法官特里-道蒂对此项疫苗强制政策发出了初步禁止令。
+据报道，这项新规定将涉及所有支付应用平台，包括PayPal，Venmo，Cash App，Zelle，Google Pay等等。
 
-道蒂法官表示，美国目前已经走到了十字路口。此时，如果民众继续允许行政部门篡夺立法部门制定法律的权利，那么美国就不再是民主国家。 道蒂强调，中共病毒疫情不是美国放弃三权分立的借口。
+在此次修订之前，只有当用户在商品和服务交易中的总收入超过20000美元，或者用户在一年中进行了200笔以上的此类付款时，第三方支付平台才须向美国国税局报告。
 
-与此同时，美国最高法院也正在考虑阻止加州一个学区针对当地学生实行的中共病毒疫苗强制接种要求。
+据了解，降低上报金额门槛是拜登提出的“美国救助计划”（American Rescue Plan） （pdf）中的一部分。该计划是美国有史以来最大的“纾困法案”，这一法案是在民主党人的支持下于2021年3月获得通过。虽然没有任何一名共和党众议员投下赞成票，但该法案最终还是以220比211票获得通过，而法案中包含的此次修订的目的据称是为了打击逃税行为。
 
-参考链接：
-1）[联邦法官阻止拜登政府针对启蒙计划（Head Start）的疫苗强制令](https://gnews.org/zh-hans/1821714/)
-2）[美联邦法官叫停“启蒙计划”强制疫苗令](https://www.aboluowang.com/2022/0104/1691293.html)
+此外，根据美国国税局的最新规定，在上报金额门槛被降低的同时，第三方支付应用平台的用户可能还需要提供额外的信息。如：用户可能被要求提供他们的雇主识别号（EIN）、个人税务识别号（ITIN）或社会保障号码（SSN）等等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+据悉，目前家庭成员或朋友之间的付款尚不受此项规定的限制。
 
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+参考链接： [https://www.epochtimes.com/b5/22/1/6/n13485021.htm](https://www.epochtimes.com/b5/22/1/6/n13485021.htm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
 
+素材采编：幽蘭自得
 
+编辑：青衣青青
 
+发布：miumiu
 
  
 

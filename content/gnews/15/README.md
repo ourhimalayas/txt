@@ -2,72 +2,36 @@
 ---
 
 
-## 【Michael.Tonny專欄】注射中共病毒疫苗，發生嚴重心臟問題的風險飆升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1829317/)
+## 香港人的房屋悲歌：从「纳米楼」到「渐进式按揭」
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1829370/)
 
-作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+搜集/撰文：卡西欧
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.07.51-AM.png)
+昨天(5日)林郑月娥说正在研究在出售公营房屋时，研究引入「渐进式按揭」，务求让市民「上车易、供楼易」。 t
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+香港的住房一直是困扰港人的一大难题—–楼价高！香港房价在2010年至2019年的短短10年内狂升了187%，以平均40平方米一套的普通公寓,市价就超过千万港币（按联系汇率折合约130万美元），香港楼价在近15年间一直稳占世界第一！就是因为楼价高得令人望而生畏，地产商才为港人量身定造了一个特有名词「纳米楼」——缩减面积来迁就价格，为了让你能买得起房而特别为你度身定制！说白了就是微型房，就是豪华版的笼屋！
 
-在中共病毒溯源、徹底消滅CCP前，所有的所謂COVID-19疫苗（中共病毒疫苗）既不能預防感染，也不能減少死亡，疫苗有毒，千萬不要打毒疫苗！
+港府(应该叫港共政府)一直与大地产商深度勾结，彼此利益输送绑架，任由房价节节上升，只是在每年政府财政预算时做做秀，说预拔多少预算给扶贫、多少给教育……用一些蝇头小利堵一下悠悠众口而已。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.08.06-AM.png)
+（图／达志影像／美联社）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+虽然港共政府和地产商、金融家任由房价飙升，但他们一刻都没有放松从市民想买楼自住的愿望上榨取利益，他们有一大堆的经济分析师、精算师，为能最大化地利用每个人的经济价值：一个普通打工族从大学毕业进入社会的起薪点，到他（她）恋爱、结婚、生子、升职加薪、退休这三十年左右的黄金段，如何把他（她）困在私贷、房贷、车贷和各式保险的财务圈中，不但把他们三十年的黄金期最大化地利用，还要尽可能令这些人成为自己的工具，把以上程序绵延下去，这样才可以绵延他们政党和家族间的人口红利和人口红利产生的经济效益。香港庞大的中产阶层大部份是属这类：有学识、有房、有车、有保险、有投资……经历了几次金融风暴的洗礼，更经历了49年以来数次的社会动荡，有人醒来，在悲恸不舍中踏上了移民之路；有人依然岁月静好，做着他们结婚生子加薪升职的美梦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.08.19-AM.png)
+（图／经济日报）
 
-根據牛津大學、萊斯特大學、愛丁堡大學、倫敦國王學院、諾丁漢大學、英國心臟基金會卓越研究中心的14位專家學者去年12月23日聯合發表的研究論文《[Risk of myocarditis following sequential COVID-19 vaccinations by age and sex](https://www.medrxiv.org/content/10.1101/2021.12.23.21268276v1)》的結論，每注射一劑Covid mRNA疫苗，40歲以下男性患嚴重心臟問題（稱為心肌炎）的風險就會飆升，並且遠遠高於COVID-19病毒感染本身帶來的心肌炎風險提高。
+中产阶层中还有着这么一个特殊的群体「公屋住户房」。公营房屋是港英时代英国人推出的廉价出租房，是惠及普通百姓的德政，让底层百姓有遮风挡雨的一席之地。公屋住户的租金不受市场房屋租金变化影响，可以说是房地产市场的一片世外桃园；出售的对象也仅是对公屋租户，而且售价也远比私宅便宜。公屋住户因为租金低廉而生活成本相对市场来说不算高，他们手上有存款有投资（政府允许范围），他们一直是金融家们和地产商眼中的一块肥肉：那些让人眼花撩乱的理财产品和「纳米楼」的目标中相当一部份就来缘于此。现在港共也急不及待地对这块肥肉垂涎三尺，想用「渐进式按揭」招式收割这些他们眼中还算肥美的韭菜了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Risk-of-myocarditis-following-sequential-COVID-19-vaccinations-by-age-and-sex.jpg)
+所谓「渐进式按揭」所说的「上车易」无非是首期门槛不高，务必令普通打工仔都能承受得起；「供楼易」就是每月供款不会太高，务必令普通打工仔每月准时进供。但他没说利息是多少和供款时间多长喔，还有一个陷阱就是他没说万一断供要承担的违约利息、罚款和滞纳金的幅度可以涵盖的范围有多大哟！大家别忘了港共可是有立法权、释法权、背后还有个有刀把子枪杆子的中共亲爹的！
 
-這項大規模研究是基於英國NHS的免疫管理服務(NHS Immunisation Management Service，NIMS)資料庫的42,200,614名13歲或以上至少接種過一劑Covid-19疫苗的英國人的資料，在這4200萬人中，大約有2200萬人接種了mRNA疫苗，10,978,507人接種了第三劑疫苗（加強針，或加速死亡針）。
+共产党从不生产任何经济利益，却一直依靠谎言和暴力，压榨人民百姓的血汗，以维持其统治，手段之恶劣到无所不用其极，他们一天不灭大家都只会沦为被宰割的牛羊和韭菜，我们只有反抗，只有灭共，这是我们得以自由的唯一之路！
 
-對於所有疫苗類型（無論接種哪種疫苗），在40歲以下男性中發生心肌炎的相關性最強，在接種第三劑BNT162b2後1-28天內，40歲以下男性患心肌炎風險增加。
+校对 / 封面合成：文粤  / 发布：流光飞舞
 
-在接種了總共三劑疫苗的人中：接種第一劑疫苗後的1-28天內，每百萬接種BNT162b2疫苗的人發生3例，每百萬接種mRNA-1273的人中發生12例；接種第二劑ChAdOx1、BNT162b2和mRNA-1273後，每百萬人發生心肌炎的數量分別為14例、12例和101例；接種第三劑BNT162b2後有13例。
+[林郑月娥接受报章专访　称研究引入「渐进式按揭」](https://news.rthk.hk/rthk/ch/component/k2/1627481-20220105.htm)
 
-而儘管感染COVID-19後在，所有年齡段的男女中都觀察到COVID-19感染與心肌炎之間的關聯，尤其在40歲以上的人群中發生的機率都有明顯更高，但每百萬人中只有7例心肌炎案例。
+[香港房价10年狂飙187%！建商狂建「微型、奈米公寓」](https://www.gvm.com.tw/article/85112)
 
-這篇研究論文的結論證明，注射COVID-19毒疫苗，得心肌炎的風險明顯高於COVID-19感染後得心肌炎的風險。
-
-然而，無論善良的人們怎麼警告，總有那麼一些人，對善意的警告無動於衷，甚至把拒絕接種疫苗的人，劃分成另類群體！
-
-前天前還在推特上炫耀他注射了Covid-19（中共病毒，CCP病毒）疫苗加強針的巴西《7號日報》（Jornal das 7）電視節目主持人Rafael Silva在直播現場突然因心臟驟停（cardiac arrests）而昏倒就是很好的證明。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Rafael-Silva.jpeg)
-
-來自巴西Alterosa Alerta Sulde Minas的36歲《7號日報》電視節目主持人Rafael Silva，在本週一電視直播新聞節目期間突然暈倒在地、心臟驟停，在迅速得到流動緊急護理服務(Mobile Emergency Care Service，Samu)救治後被送往最近的瓦爾吉尼亞人道主義醫院（Humanitas Hospital in Varginha）重症監護室，在去醫院的路上，RafaelSilva又經歷了五次心臟驟停。
-
-所幸的是，據當地新聞網站報導，目前RafaelSilva康復得非常好，已經不需要插管，意識清醒，可以和家人通話，甚至可以自己去洗手間。
-
-去年12月28日，Rafael Silva在推特上炫耀他注射了Covid-19（中共病毒，CCP病毒）疫苗加強針，告誡人們疫苗可以挽救生命，並說他為沒有接種疫苗的人感到抱歉。
-
-就在前天，密西根州州長辦公室發佈聲明，州長Gretchen Whitmer在全家都接種了Covid-19疫苗，並接種了加強針的情況下，州長丈夫檢測出COVID-19呈陽性，目前Gretchen Whitmer的PCR檢測結果呈陰性，將隔離在房屋的一個單獨區域。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Gretchen-Whitmer.jpg)
-
-就在前天，法國總統埃馬紐埃爾·馬克龍 (Emmanuel Macron)表示，拒絕接種Covid-19疫苗的人“不是公民”，發誓要讓他們的生活變得悲慘。儘管他不會把未接種疫苗的人送進監獄，不會強制他們接種疫苗，但從1月15日起，不打疫苗的人將不能再去餐廳吃飯，不能去咖啡廳，不能去劇院，電影院……從1月15日開始，法國人進入餐廳、酒吧、劇院和其他室內場所將需要Covid-19疫苗護照（Covid passport），前往法國的遊客必須通過數字護照（digital passport）出示疫苗接種證明或Covid-19陰性測試。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Emmanuel-Macron.jpg)
-
-難怪反對者Marine Le Pen（勒龐）指責Macron將拒絕接種毒疫苗的人劃分成二等公民，不配擔任他的職務。
-
-參考資料：
-
-[Risk of myocarditis following sequential COVID-19 vaccinations by age and sex](https://www.medrxiv.org/content/10.1101/2021.12.23.21268276v1)
-
-[More bad news on Covid vaccines and myocarditis in men under 40 – even as more colleges require booster shots for students](https://alexberenson.substack.com/p/more-bad-news-on-covid-vaccines-and/comments)
-
-[Macron Vows to ‘Piss Off’ Unvaxxed, Says Someone Who Refuses Covid Vaccine is ‘Not a Citizen’](https://www.thegatewaypundit.com/2022/01/macron-vows-piss-off-unvaxxed-says-someone-refuses-covid-vaccine-not-citizen/)
-
-[Marine Le Pen](https://twitter.com/MLP_officiel/status/1478465290295984140?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1478465290295984140%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2Fmacron-vows-piss-off-unvaxxed-says-someone-refuses-covid-vaccine-not-citizen%2F)
-
-[MI Governor Gretchen Whitmer in Isolation After Fully Vaccinated Husband Tests Positive for COVID-19](https://www.thegatewaypundit.com/2022/01/mi-governor-gretchen-whitmer-isolation-fully-vaccinated-husband-tests-positive-covid-19/)
-
-[36-Year-Old Brazilian Reporter Collapses and Suffers Cardiac Arrest During Live TV Broadcast (VIDEO)](https://www.thegatewaypundit.com/2022/01/36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video/)
-
-[BoxerRebellion777](https://twitter.com/BRebellion777/status/1478554763826540547?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1478554763826540547%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2F36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video%2F)
-
-[Rafael Silva](https://twitter.com/RafaJornalista/status/1475933394580217859?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1475933394580217859%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2F36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video%2F)
-
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[香港房价：2021最新香港房价](https://new.qq.com/rain/a/20210311A06WVF00)
 
  
 

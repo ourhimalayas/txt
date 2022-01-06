@@ -2,20 +2,32 @@
 ---
 
 
-## 【中日财经爆】江苏泰州房协喊话开发商：不得降价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828815/)
+## 香港针对中共病毒疫情实施严厉手段
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828990/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-340.png)[图片来源](https://udn.com/news/story/7333/5672782)
-1月6日新浪财经报道，江苏省泰州市房地产业协会第五届第二次理事会于2021年12月30日召开。会议上发出了《泰州市房地产业协会关于自觉维护房地产市场平稳健康发展的倡议书》，泰州市房地产业协会向各房地产开发企业发出倡议，各房地产开发企业要牢牢树立维护房地产市场稳定健康发展的大局意识，主动维护市场稳定，合法合理确定销售价格，科学理性制定促销方案，不恶意降价，不采取非正当手段恶性竞争。
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，据媒体消息显示，港共政府林郑月娥宣布，自1月9日起，香港将开启针对中共病毒疫情的航空禁令，其中，来自澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国的航班将被禁止入境香港。据悉，此禁令将持续至1月21日，历时两周。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-10.jpg)
+另外，自即日起的两周内，香港本土的餐厅、游戏厅、酒吧和美容院等室内场所必须在下午6点之后关闭。
 
-自2021年8月以来，已有超过20个城市对房企大幅降价采取了相应措施，其中包括岳阳、桂林、昆明、沈阳、江阴、株洲、唐山等。这些城市或直接出台“限跌令”，或通过召开座谈会方式防止房企“恶意降价”行为，或对相关降价房企进行约谈。中共统计局发布的70个大中城市商品住宅销售价格指数，2021年11月新建商品住宅环比下跌城市达59个，较上月增加7城；上涨城市降至个位数，创近两年来的最低水平。在中共独裁者眼里涨价就是市场善意的，降价就是人为恶意的行为，这也是中共计划经济体制下的变相串通垄断。
+有报道提及，本月4日，港共政府封锁了中共病毒阳性确诊病例所居住的单元楼，同时进行了囊括数千人的大规模中共病毒核酸检测。 此外，港共政府还于5日扣押了一艘游轮上的所有游客，共计两千五百人。港共卫生局表示，该游轮上有9名游客密切接触过中共病毒奥米克戎变种传染源。目前，虽然此9名乘客的中共病毒核酸检测结果皆为阴性，但所有人均已被隔离。
 
-信息来源：[江苏泰州房协向房企发倡议：合理确定销售价格 不恶意降价不恶性竞争](https://my.mbd.baidu.com/r/ze0iVZNvws?f=cp&amp;rs=1896641526&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=4c8ed095471a6da3)
+参考链接：[群體免疫？印尼近九成民眾有新冠抗體 其中70%沒打疫苗](https://udn.com/news/story/121707/6011087?from=udn_ch2cate7225sub121707_pulldownmenu_v2)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编：童谣
+编辑：飞虹
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

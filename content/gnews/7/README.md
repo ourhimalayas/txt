@@ -2,18 +2,28 @@
 ---
 
 
-## 马克龙：“我要让拒绝疫苗的人愤怒，这是战略”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1829462/)
+## GTV新闻访谈简报|2022年1月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1829502/)
 
-#### 翻译                意大利达芬奇农场              小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-06-alle-16.08.14.png)图片来源：adnkronos 
-我要让那些拒绝新冠病毒的人感到愤怒。所以我们继续这样，一直到最后，这是战略。这是法国总统马克龙在接受“Le Parisien”采访时所说的话，他在警告那些不打新冠疫苗者。“ 在民主生活中，最糟糕的敌人是谎言和愚蠢。我们向不打疫苗者施压，尽可能地限制他们参与社会活动；而另一方面差不多有超过90%以上的人参与了疫苗接种活动。”
+![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
 
-“ 拒绝疫苗的只是一小撮人。我们不把他们送进监狱，我们不强迫他们打疫苗，所以要对他们说： 从1月15日不能去餐厅、剧院、电影院和酒吧。”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-原文链接：[https://www.imolaoggi.it/2022/01/05/macron-far-arrabbiare-i-no-vax/](https://www.imolaoggi.it/2022/01/05/macron-far-arrabbiare-i-no-vax/)
+视频参看：[2022.01.06早GTV新闻访谈](https://gtv.org/video/id=61d6ee6431a71619b575d95f)
 
-编辑、上传               Xiao  baige
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
