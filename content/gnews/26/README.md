@@ -2,45 +2,26 @@
 ---
 
 
-## 九号楼全体住户请做好准备等待专车前往指定地点隔离
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1827229/)
+## 家长和补习班团体:&#8221;防疫通行证侵害了青少年的基本权利&#8221; 提起行政诉讼/ YTN
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1827246/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获2_副本.png)
-据[**张洲**](https://weibo.com/lbtgs) [2022年1月5日 14:05](https://weibo.com/1867099473/L9lBq5AcV?from=page_1003061867099473_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+韩国首尔天池农场
+翻译：势在必行
+校对：鱼子酱
+上传：无明逆流
 
-“9号楼全体住户请注意……”这个大喇叭里传出的声音，令人闻之色变 [L张洲的微博视频](http://t.cn/A6JAb0Wr) ​​​​
+新型冠状病毒， 关于确认疫苗接种等的防疫通行证扩大到青少年的问题,争议不断。家长团体和补习班团体等甚至向法院提出了行政诉讼,要求取消青少年防疫通行证的引进。金庆洙记者报道。”立即撤回！撤回！撤回！”今年入冬以来最寒冷的一天,家长们聚集在法院前。
 
-九号楼全体住户请注意，接上级通知，请你们做好准备，带上生活必需品、防寒衣物，在小区门口等待专车前往指定地点做集中隔离。
+“我是来递交取消&lt;青少年防疫通行证&gt;的行政诉讼状的”[金秀珍/’全国家长团体联合’代表:我的孩子是声乐专业，如果不接种疫苗，就不能去其他学校唱歌。 学习的权利，接受教育的权利至少应该得到保障吧？]
 
-反复播放的高音喇叭透露出来的是不容质疑的权威和令人胆寒的高压，如果每个听到广播的人把这当成是别人家的故事，那么下一个你就可能是这种无差别隔离的被通知者。
+此前,政府表示,为了加强新型冠状病毒的防疫,从明年2月开始对青少年也将适用防疫通行证。青少年如果想进入补习班、读书室、图书馆等，也要提交疫苗接种证明书或阴性确认书。但是,事实上无异于强制注射疫苗,并强烈反对的声音非常强烈。如果孩子们出现疫苗副作用,谁、如何负责也不明确,也有人批评说,政府盲目鼓励接种。
 
-当年纳粹驱赶犹太人去集中营的时候是什么样的场景？当年占领南京的几个日本军人押送数百国军俘虏并集体枪杀的时候是什么样的场景？虽然所有这些惨剧离我们不到百年，但是恐怕没有人会把纳粹驱赶犹太人去集中营与九号楼全体住户被驱离联系起来，恐怕也没有人会把几个日本军人押送数百国军俘虏集体枪杀与九号楼全体住户的被驱离联系起来。
+[李尚武/”一起进行的医生教育联合”代表:将引入出现很多死亡病例、事实上强制进行未经验证的疫苗的所谓”防疫通行”制度,侵犯宪法第12条保障的人类最基本权利–人身自由。]参与诉讼的家长团体和私人教育团体还申请了停止执行,因为有可能发生难以恢复的损失,所以在法院判决出来之前,停止防疫通行正。另外提出了宪法诉愿,一周前高三学生已经和450多名市民一起提出了宪法诉愿。
 
-也许每个人在回看历史的时候，会说如果他是那个被驱赶的犹太人，他会如何反抗，如果他是那个被押送的国军俘虏，他会如何反抗，可是在当下，95%的西安成年人都被打了高剂量的中共病毒疫苗，就在当下西安为了实现所谓社会清零用这种方式把整个住宅楼的住户送往集中营。
+因为没有接种疫苗,就不能使用补习班和读书室,其宗旨是侵害学生的学习权等,违反宪法。梁大林 / 高中3年级:比起接种完成者，政府更严格地限制未接种者的日常生活，此次的方针是没有合理理由或根据的随意差别….]由于现场的反对呼声高涨,政府表示将重新调整防疫通行证适用对象和时间,估计法庭攻防战是不可避免。
+YTN金庆洙.
 
-今天我们进步了吗？应该说，这个社会还是有进步的，至少，至少，在他们用高音喇叭驱离九号楼全体住户的时候，我们看到了这样的实时影像，至少我们会在惨剧实时发生的时候，每个人都应该扪心自问，如果你就是那个九号楼住户，你是乖乖送死呢？还是以死相搏呢？
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+뉴스 출처：[학부모·학원 단체 “방역패스는 청소년 기본권 침해”…행정소송 제기 / YTN](https://www.youtube.com/watch?v=qmZIg_PbZOQ)
 
  
 

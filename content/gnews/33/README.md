@@ -2,42 +2,42 @@
 ---
 
 
-## 朝鲜声称再次进行高超音速导弹试验，金正恩没有参加
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827188/)
+## 儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1827193/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：香草山教育部-九妹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/North-Korea-claims-another-hypersonic-missile-test.jpg)
-
-
- 
-图片来源：www.dailyadvent.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo.jpeg)
 
 
-#### 编译：小红帽
 
-根据《RT新闻》1月5日报道， **朝鲜表示，其在最近的一次试验中成功发射了一枚高超音速导弹，并声称在华盛顿谴责此举 “破坏稳定”之后，该导弹击中了数百英里之外的目标。**
+恒大在海南建设的人工岛——恒大海花岛，总建筑面积8平方公里，到目前为止已投入资金810亿元，共计三个人工岛屿。
 
-《朝鲜中央通讯社》星期四表示，在试射期间，导弹“精确地击中了朝鲜东海岸约700公里（435英里）的既定目标”，并补充说，领导人金正恩没有参加发射。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/im-461394.jpeg)
 
-韩国军方在周三首次报道了这次发射，这是自去年10月以来的第一次。此后，首尔敦促朝鲜 “真诚地回应我们通过对话实现和平与合作的努力”。
+2021年12月30日，海南省儋州市政府向海花岛项目责任方恒大集团发出行政处罚通知，2号岛三(六)期项目39栋楼被儋州市综合行政执法局取消规划许可证，责令通知发出之日起十日内拆除，逾期不拆，政府将强行拆除。
 
-就在试验后几个小时，韩国总统文在寅出席了一条穿过边境城镇高城的铁路线的奠基仪式。这是重新连接两个邻国之间交通的努力之一。
+本次设计拆除的39栋楼都在二号人工岛上，不涉及已经交付使用的6万户业主和待交付的600多户业主。
 
-美国国务院谴责这次导弹试验 “违反了联合国安理会的多项决议”和“对朝鲜邻国和国际社会的威胁”。然而，华盛顿的印太司令部早些时候承认，“这一事件没有对美国人员或领土或我们的盟友构成直接威胁”，但仍抨击这次发射在该地区产生了 “破坏稳定的影响”。
+儋州市政府此次决定突如其来，恒大屋漏偏遭连夜雨，措手不及。消息传出，震惊了房地产界。
 
-平壤在去年9月的另一次试验后，首次声称拥有高超音速武器–华星-8导弹，但首尔的军事官员表示，当时该弹药似乎处于早期开发阶段。
+根据《中国海域使用管理法》第23条明确规定，填海项目竣工后的土地仍归国有，儋州市政府的这一决定意味深长。
 
-新闻来源：[North Korea claims another hypersonic missile test — RT World News](https://www.rt.com/news/545265-north-korea-unveils-missile/)
+校对/发稿：飞虹
 
-***发布：小红帽***
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

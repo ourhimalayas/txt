@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 7:23 AM (UTC)`
+
+1/05/2022 Miles Guo: The CCP’s real estate has ripped off almost all the Chinese people’s wealth for the next 58 years! The CCP’s control over the real estate is to use Shang Yang’s five strategies to control the future of the Chinese Lao Baixing - rendering them the mortgage slaves, and keeping them barely survive and unable to think so that they can only work desperately to repay the mortgage<br/><br/>1/05/2022 文贵直播：中共房地产把中国人未来58年的韭菜全割完了！中共对房地产的控制就是用商鞅五术来控制老百姓的未来 - 让人们沦为房奴、勉强活着、无法思考，只能拼命打工还房贷<br/>
+![img](https://media.gettr.com/group8/getter/2022/01/06/07/fd76844c-4281-426e-06be-81be2bbb9e44/out.jpg)
+
+---
+
+`@miles 1/6/2022 7:17 AM (UTC)`
+
+1/05/2022 Miles Guo: Same with all the dictators in history, Xi Jinping believes that the deaths of the people are inevitable and are necessary for him to make the regime stronger. The Winter Olympics is a gift from God. Because of the Whistleblowers’ Movement, the CCP’s dreams of pushing the digital RMB and invading Taiwan will never come true!<br/><br/>1/05/2022 文贵直播：习太阳和史上所有独裁者一样，它们相信死人是其强大的必须和必然；冬奥会是上天的礼物，有爆料革命在，中共想借奥运强推数字人民币和打台湾的梦想一定不会得逞！<br/>
+![img](https://media.gettr.com/group11/getter/2022/01/06/07/3f9e0d8f-9a6a-881f-fdea-307ad046697b/out.jpg)
+
+---
+
+`@miles 1/6/2022 7:12 AM (UTC)`
+
+1/05/2022 Miles Guo: The Communist China’s real estate price will not drop sharply before the downfall of the CCP because real estate is the cornerstone of its rule. Nor will the food price be allowed to rise significantly just in case the Lao Baixing would rebel; the CCP has come up with a 24-month time frame, during which they will issue digital RMB and will plunder the wealth of the Chinese people and the rest of the world<br/><br/>1/05/2022 文贵直播：中共灭亡前房价不会暴跌，因为房地产是其统治的基石，也不会让粮价暴涨以防老百姓造反；中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富<br/>
+![img](https://media.gettr.com/group4/getter/2022/01/06/07/209b8284-d48a-33e6-30bb-d4866faea0b6/out.jpg)
+
+---
+
 `@miles 1/6/2022 5:09 AM (UTC)`
 
 1/5/2022 Miles Guo: The CCP is thinking of expanding its territories; the nightmare-like bitter days for the Chinese people will start between May and December this year, more cities will be under lockdown, and more people will be quarantined and disappear; the CCP is using digital RMB to stabilize its estate market and seeks to have a say in terms of digital currency<br/><br/>1/5/2022 文贵直播：中共妄图开疆拓土；中国人噩梦般的苦日子将从今年5月到12月间开始，更多城市会被封，更多人会被隔离和消失；中共用数字货币稳定楼市并想主导数字货币话语权<br/>
@@ -139,29 +160,6 @@ Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me we
 
 1月4号：【郭先生的情报准确无误，悲剧正在一幕一幕上演🙏🙏🙏】
 ![img](https://media.gettr.com/group3/getter/2022/01/05/01/a48cde92-030e-11c7-ddac-9e9e10843388/62762ea58140d10125acdd323a72fec9.jpg)
-
----
-
-`@miles 1/5/2022 1:19 AM (UTC)`
-
-1月4号：中国人当中我最尊敬的人之一……就是李小龙大师【Seven brothers interacted with an American friend on Gate, and he (or she) sent out a self-made tabloid card.  I feel like Brother Seven is Bruce Lee 😂.  Seven brothers are more legendary and more powerful than Bruce Lee!七哥 在盖特上与一位美国朋友互动，他（或她）发来自制的小报卡片。感觉把七哥当作李小龙啦😂。七哥比李小龙更传奇，更厉害多啦！】
-![img](https://media.gettr.com/group42/getter/2022/01/05/01/3f2cc38c-d9bc-a32c-1dd4-510ea5d789ca/32f6246749f099193ab3d144f16b65ef.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mtg4america 1/4/2022 4:56 PM (UTC)`
-
-I’m calling on every Republican to LEAVE Twitter! <br/><br/>The truth is under attack and so are our Republican Conservative values.<br/><br/>Twitter has censored millions of Conservative Americans for too long now without any restraint.<br/><br/>Real Congressional action is not possible anytime soon.<br/><br/>Twitter needs to learn a lesson.<br/><br/>Do NOT violate Free Speech rights guaranteed to Americans and do NOT act as an aggressor toward elected officials.<br/><br/>Twitter is a danger to us all by deeming itself the judge of speech on its platform.<br/><br/>It’s time to end their abuse of power they were never given.<br/><br/>Leave Twitter NOW!!!<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/04/16/d14637fe-307c-ccef-e78d-be9b72a10d76/18f464b3a80024580442e3d7f61385e6.jpg)
-
----
-
-`@miles 1/4/2022 3:26 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group44/getter/2021/12/14/09/6bf02752-1fa8-0221-fdda-69706d5eceaf/ce0fc8d4aa1226b2f69c405e18955801.jpg)
 
 ---
 

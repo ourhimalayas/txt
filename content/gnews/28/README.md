@@ -2,26 +2,46 @@
 ---
 
 
-## 【中日财经爆】2021年日本企业破产数惊人 较去年增加一倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827207/)
+## 九号楼全体住户请做好准备等待专车前往指定地点隔离
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1827229/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-290.png)[图片来源](https://plus.chunichi.co.jp/blog/ooyabu/article/247/9981/)
-中共病毒（新冠病毒Covid-19）在世界各地蔓延已两年有余。新的变异毒株一波未平一波又起。日本多数企业面临重创，破产数量令人担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获2_副本.png)
+据[**张洲**](https://weibo.com/lbtgs) [2022年1月5日 14:05](https://weibo.com/1867099473/L9lBq5AcV?from=page_1003061867099473_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-根据帝国数据库的统计显示，截至2021年12月29日，全国范围内，受中共病毒影响的企业破产数量为2612家（2426家合法清算，186家企业停业）。其中，1770个发生在2021年，是2020年（842个）的2.1倍。
+“9号楼全体住户请注意……”这个大喇叭里传出的声音，令人闻之色变 [L张洲的微博视频](http://t.cn/A6JAb0Wr) ​​​​
 
-企业破产从发生月份来看，2020年12月以来，连续13个月每个月都有100多家。尤其是2021年夏季第5波病毒蔓延时影响较大，9月创下179家的历史新高。
+九号楼全体住户请注意，接上级通知，请你们做好准备，带上生活必需品、防寒衣物，在小区门口等待专车前往指定地点做集中隔离。
 
-按行业划分，饮食业最多，有438家，其次是建筑业279家，食品批发133家，酒店住宿业120家。东京大阪地区占到总数的30.8%。
+反复播放的高音喇叭透露出来的是不容质疑的权威和令人胆寒的高压，如果每个听到广播的人把这当成是别人家的故事，那么下一个你就可能是这种无差别隔离的被通知者。
 
-2020年，受到长期停业、客流锐减影响的酒店、饮食店、服饰店等，往往被迫破产，但在2021年，影响波及到建筑工程业。帝国数据分析人士认为，因为变异株的层出不穷，预计在2022年，以餐厅和建筑业为主，企业将继续以每月100家的速度发生破产。
+当年纳粹驱赶犹太人去集中营的时候是什么样的场景？当年占领南京的几个日本军人押送数百国军俘虏并集体枪杀的时候是什么样的场景？虽然所有这些惨剧离我们不到百年，但是恐怕没有人会把纳粹驱赶犹太人去集中营与九号楼全体住户被驱离联系起来，恐怕也没有人会把几个日本军人押送数百国军俘虏集体枪杀与九号楼全体住户的被驱离联系起来。
 
-信息源：[【Japan Data】2021年のコロナ関連倒産は1770件―帝国データ : 20年から倍増](https://news.yahoo.co.jp/articles/5ddd81e2640124dd6ff230d8293517766e5d3124)
+也许每个人在回看历史的时候，会说如果他是那个被驱赶的犹太人，他会如何反抗，如果他是那个被押送的国军俘虏，他会如何反抗，可是在当下，95%的西安成年人都被打了高剂量的中共病毒疫苗，就在当下西安为了实现所谓社会清零用这种方式把整个住宅楼的住户送往集中营。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+今天我们进步了吗？应该说，这个社会还是有进步的，至少，至少，在他们用高音喇叭驱离九号楼全体住户的时候，我们看到了这样的实时影像，至少我们会在惨剧实时发生的时候，每个人都应该扪心自问，如果你就是那个九号楼住户，你是乖乖送死呢？还是以死相搏呢？
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

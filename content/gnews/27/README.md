@@ -2,42 +2,30 @@
 ---
 
 
-## 国会共和党众议员呼吁举报人提供有关新冠病毒起源证据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827208/)
+## 澳门监管部门预期在博彩业引入数字人民币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1827245/)
 
-#### 撰稿：彩虹
+据《路透社》记者：Katrina Hamlin，2022年1月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-291.png)2020年2月20日，中共国澳门葡京赌场午夜夜景。路透社/Aleksander Solum
+香港，1月3日（路透社Breakingviews）——中共国将赌上数字人民币。随着澳门赌场业主准备竞标新牌照，监管机构将利用这个机会迫使这些运营商成为数字人民币的试验田。
+随着这个价值370亿美元市场的优惠政策即将到期，金沙中国（1928.HK）和永利澳门（1128.HK）等公司将急于证明自己是合格的团队成员。监管机构已经在施展他们的力量。一份关于重新招标的政府咨询文件提出了一些想法，包括任命政府人员监督日常运营。
+伯恩斯坦公司分析师估计，普通赌客每次到澳门赌桌前的损失超过27,000美元。澳门赌场也一直是腐败官员和商人的聚集地。12月，博彩公司Suncity（太阳城）老板Alvin Chan被卷入了非法博彩调查。太阳城为富有的贵宾提供服务，在Covid-19发生的前一年，其博彩收入约为80亿美元。一个月前，中共国央行行长易纲建议使用新开发的加密货币来打击犯罪和解决复杂的跨境支付问题，包括洗钱。澳门可能已经在他的思考范围。
+在博彩中心应用数字支付将有助于中共国政府对现金流和客户进行更多监督。澳门位于中共国资本管制之外，也是在大陆推广数字支付前测试该技术的理想场所。有关方提出使用可追踪资金进行无现金博彩的概念。例如，澳大利亚星际娱乐(SGR.AX)表示，它正在探索数字支付，以安抚其监督者。
+银河娱乐(0027.HK)和澳门永利(Wynn Macau)等曾经担心，大额客户对审查望而却步。然而，他们不再是收入的主要来源。根据官方数据和Breakingviews的估计，大众客户贡献博彩营业收入的三分之二和收益的九成。
+技术已经就绪。在试点中，中共国消费者花费了大约100亿美元的数字人民币。监督者有很多胜算，运营商也不会有损失，2022年将是数字货币进入赌场的第一年。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-9.jpg)图片来源：福布斯
-1月5日，《新闻极限》发布文章，指国会针对新冠病毒（COVID-19）起源的调查可能真正开始了。
+* * *
 
-报道指，美国众议院能源和商业委员会共和党领袖凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）、健康问题小组委员会共和党领袖布雷特·格思里（Brett Guthrie）以及监督和调查小组委员会共和党领袖摩根·格里菲斯（Morgan Griffith）宣布推出一个网页，供举报人联系他们，提供与调查新冠病毒（COVID-19）起源有关的信息。
+原文连接：[https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/breakingviews/macau-watchdogs-will-double-down-digital-yuan-2022-01-03/?taid=61d259d4a4e5640001ce6c5d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-（编者注：举报链接为：[https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/](https://republicans-energycommerce.house.gov/the-covid-19-origins-investigation/)）
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-在一份声明中，他们说，“我们需要知道这种大流行病是如何开始的，以便阻止它再次发生。为了每一个因COVID-19（中共病毒）而失去亲人的美国人、每一个夜以继日工作的前线工作人员以及每一个面临心理健康紧急情况的儿童，我们有义务找到答案。无论事实（证据）指向哪里，我们都希望得到真相。我们鼓励能够为完整、科学和客观地调查COVID-19的起源提供信息的举报人与委员会联系。”
-
-报道说，调查人员正在寻求与以下事项有关的信息：
-
-- 与SARS-CoV-2的起源有关的科学实验；
-- 与SARS-CoV-2的起源有关的美国研究政策/程序性问题；
-- 武汉病毒研究所的实验室安全问题；
-- 与SARS-CoV-2的起源有关的基因组序列数据/数据库；
-- 生态健康联盟的研究，包括研究提案（资助或未资助）；
-- 与早期武汉COVID-19患者病例有关的信息；
-- 中国人民解放军在武汉病毒研究所实验室的研究（BSL2、3或4）；
-- 与SARS-CoV-2起源调查的有关文件：电子邮件、合同、照片、研究报告。
-
-
-文章特别指出，2021年8月份，乔·拜登总统发表声明，指责中共国隐瞒了与新型冠状病毒的起源有关的关键信息。
-
-2021年11月份，共和党参议员兰德·保罗（Rand Paul）告诉《新闻极限》说，几个月来，他一直呼吁两党对COVID-19（中共病毒）的起源进行调查，并指安东尼·福奇（Anthony Facui）博士领导的美国国立卫生研究院支持武汉实验室对蝙蝠病毒进行功能性增强研究。
-
-在新闻极限电视台的“Spicer & Co”节目中，保罗说：“几个月来，我一直呼吁（对此）进行调查。我们应该对新冠病毒的起源进行两党联合调查，以努力确保不再发生这种情况。”
-
-**新闻来源**
-
-[House Committees Launch COVID Origins Inquiry for Whistleblowers](https://www.newsmax.com/politics/house-covid-web-page-whistleblower/2022/01/05/id/1051167/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
