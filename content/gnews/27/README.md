@@ -2,54 +2,35 @@
 ---
 
 
-## 灭共者之新中国联邦人之真言真语
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1826393/)
+## 陕西疫情封城，野蛮混乱管理，次生灾难严重
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1826553/)
 
-**出品：纽约香草山设计部**
+**【国内新闻短评】**
 
+**新浪微博，网易号2022年1月5日报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/90g-2.jpg)**新浪微博，网易号2022年1月5日报道**![](https://assets.gnews.org/wp-content/uploads/2022/01/11-amq6p-x6e25-3.jpg)
+**评论正文**：
+**战争时期都可以抢救伤员，优先救治妇女儿童，然而和平年代的中国陕西省，孕妇在医院门口等待就医长达2个小时，导致流产。管理能力低下导致的次生灾难，没有人被追责，宣传媒体把丧事当成喜事报道，被免职官员休息一段时间，异地再执政。**
 
+**善良的中国人，请快醒来吧！**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+**CCP（中国共产党）视民众生命如蝼蚁，自己的乌纱帽比临产的孕妇更重要，本该救死扶伤的医院却创造灾难与悲剧。这次由于疫情封城，陕西省的次生灾难才刚刚开始。只有take down the ccp（推翻中共共产党）才能解决。**
 
+**参考资料：**
+**图片来源：**[https://m.weibo.cn/detail/4722211887777831](https://m.weibo.cn/detail/4722211887777831)
 
+**新闻视频**：[https://video.h5.weibo.cn/1034:4722069099970670/4722069470971581](https://video.h5.weibo.cn/1034:4722069099970670/4722069470971581)
 
+**【声明：文章观点仅代表作者个人，与gnews平台无关】**
 
+素材：洛杉矶盘古农场 —期待明天
+评论：洛杉矶盘古农场 —期待明天
+审核：洛杉矶盘古农场 —柯镇恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-20220104-07.jpg)Everything you own has to be captured with your own hands, earned by your own actions. Don’t ever believe or rely on anything that you’ve not worked for, for those don’t belong to you, and may even bring harm to you. 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 25, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/2-20220104-03.jpg)一切都要靠自己的双手夺来，靠自己的行动换来，永远不要相信也不要去依靠任何你没有付出的东西，那些都不是你的，是你的伤害。 
-– 2021年12月25日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220104-06.jpg)Without faith, China as a country is the most dangerous form of China; and in the end, it is the Chinese people who will pay dearly for it! 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 29, 2021![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220104-04.jpg)没有信仰的中国是最危险的中国，而最后中国人一定要为此付出代价！ 
--2021年12月29日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/5-20220104-02.jpg)新中国联邦人要包容、要持之以恒、要真心灭共、要善待对方，还要唯真不破。这都是绝对真言真语！ 
-– 2021年12月24日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/6-20220104-05.jpg)The people of the New Federal State of China (NFSC) should be tolerant, persistent, and genuine in taking down the CCP; should be kind, and always truthful. These are our mottos! 
-– Mr. Miles Guo, GTV/GETTR livecast on Dec. 24, 2021
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
