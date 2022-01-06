@@ -15,149 +15,149 @@
 
 ---
 
-### [即将到来的人类最黑暗的2022年里钱血组不要输掉本质](/content/gnews/1/README.md)
+### [日本农场绝不可错过作为美国之外的第二喜币市场的日本](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日美外交大臣就驻日美军基地奥密克戎蔓延一事电话协商](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [宋祖英彭丽媛那英是必须参加群啪和被人拉屎尿尿的盆景](/content/gnews/3/README.md)
+### [2022年对韩国和日本农场是巨大考验,必须联合作战灭共](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [国际奥委会摊上“新疆棉” 撇不清扯不明罔顾左右而言他](/content/gnews/4/README.md)
+### [12/22文贵直播：国家安全委员会卑鄙手段处理彭帅事件（粤语配音）](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [即将到来的人类最黑暗的2022年里钱血组不要输掉本质](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日美外交大臣就驻日美军基地奥密克戎蔓延一事电话协商](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [对抗中共 日澳正式签署《互惠准入协定》](/content/gnews/5/README.md)
+### [宋祖英彭丽媛那英是必须参加群啪和被人拉屎尿尿的盆景](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [国际奥委会摊上“新疆棉” 撇不清扯不明罔顾左右而言他](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [用病毒及疫苗减少人口的原因或动机是什么？](/content/gnews/6/README.md)
+### [对抗中共 日澳正式签署《互惠准入协定》](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [用病毒及疫苗减少人口的原因或动机是什么？](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [恶魔的国里 那些苦难的女人](/content/gnews/7/README.md)
+### [恶魔的国里 那些苦难的女人](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [布林肯：将共同反抗中共对立陶宛的胁迫](/content/gnews/8/README.md)
+### [布林肯：将共同反抗中共对立陶宛的胁迫](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [习拍案叫绝的报告连标点符号都是抄自德国二战后的审判](/content/gnews/9/README.md)
+### [习拍案叫绝的报告连标点符号都是抄自德国二战后的审判](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [已接种加强针的波兰总统再度确诊](/content/gnews/10/README.md)
+### [已接种加强针的波兰总统再度确诊](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [魁北克省政府称“应该出台针对未接种疫苗者的措施”](/content/gnews/11/README.md)
+### [魁北克省政府称“应该出台针对未接种疫苗者的措施”](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [音乐是影响人一生最长远的超过核武器力量的精神核武器](/content/gnews/12/README.md)
+### [音乐是影响人一生最长远的超过核武器力量的精神核武器](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共产党没有个体只有以集体为单位泯灭人性的洗脑红歌](/content/gnews/13/README.md)
+### [共产党没有个体只有以集体为单位泯灭人性的洗脑红歌](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [忘掉新中国联邦宣言的任何战友就一定是被淘汰的那个人](/content/gnews/14/README.md)
+### [忘掉新中国联邦宣言的任何战友就一定是被淘汰的那个人](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共华融复牌首日股价暴跌逾五成](/content/gnews/15/README.md)
+### [中共华融复牌首日股价暴跌逾五成](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [北京冬奥连累国际奥委被批](/content/gnews/16/README.md)
+### [北京冬奥连累国际奥委被批](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [郭文贵直播摘要和音频 2022.01.05](/content/gnews/17/README.md)
+### [郭文贵直播摘要和音频 2022.01.05](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [河南疫情已蔓延6地](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
-
-### [去年十一中共五大銀行定下如7而至,紅宮廂廊中俄贊七哥](/content/gnews/19/README.md)
+### [去年十一中共五大銀行定下如7而至,紅宮廂廊中俄贊七哥](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [千亿房企阳光城董事长亏损3000万割肉辞任](/content/gnews/20/README.md)
+### [千亿房企阳光城董事长亏损3000万割肉辞任](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [从我自己的事说起，看看共产党的邪恶。](/content/gnews/21/README.md)
- ` 首尔天池农场`
-
-### [G时评219期(1.5)直播摘要：5G与疫苗究竟有关系吗？](/content/gnews/22/README.md)
+### [G时评219期(1.5)直播摘要：5G与疫苗究竟有关系吗？](/content/gnews/24/README.md)
  ` GISELLE`
 
-### [印度担心默克新冠药片副作用，将不纳入国家治疗方案](/content/gnews/23/README.md)
+### [印度担心默克新冠药片副作用，将不纳入国家治疗方案](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月5日：共匪想统治世界的“黄粱美梦”](/content/gnews/24/README.md)
+### [【粤语配音】2022年1月5日：共匪想统治世界的“黄粱美梦”](/content/gnews/26/README.md)
  ` MOS香港部`
 
-### [最新科学更新：病毒，疫苗伤害，新冠后遗症，预防和早期治疗](/content/gnews/25/README.md)
- ` PureLotusHeart`
-
-### [谁给了西安所谓志愿者勒令翻墙取食品者公开道歉的权力](/content/gnews/26/README.md)
+### [谁给了西安所谓志愿者勒令翻墙取食品者公开道歉的权力](/content/gnews/27/README.md)
  ` NewFOC`
 
-### [各方呼吁公众停用Twitter、FB等社交媒体](/content/gnews/27/README.md)
+### [各方呼吁公众停用Twitter、FB等社交媒体](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [法国检测到中共病毒新毒株IHU](/content/gnews/28/README.md)
+### [法国检测到中共病毒新毒株IHU](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [“中国人的饭碗要装中国粮”，这个饭碗端得牢吗？](/content/gnews/29/README.md)
+### [“中国人的饭碗要装中国粮”，这个饭碗端得牢吗？](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/30/README.md)
+### [中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/31/README.md)
+### [牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [西安被讥讽，郑州落笑柄，千万检测只为几个病例？](/content/gnews/32/README.md)
+### [西安被讥讽，郑州落笑柄，千万检测只为几个病例？](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国政府数据：完全接种中共疫苗者或将患上艾滋病](/content/gnews/33/README.md)
+### [德国政府数据：完全接种中共疫苗者或将患上艾滋病](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：美最高法院将权衡拜登疫苗强制令](/content/gnews/34/README.md)
+### [每日快报：美最高法院将权衡拜登疫苗强制令](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在37.243 HDO](/content/gnews/35/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在37.243 HDO](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [九号楼全体住户请做好准备等待专车前往指定地点隔离](/content/gnews/36/README.md)
+### [九号楼全体住户请做好准备等待专车前往指定地点隔离](/content/gnews/37/README.md)
  ` NewFOC`
 
-### [HBO VICE采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-13](/content/gnews/37/README.md)
+### [HBO VICE采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-13](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/38/README.md)
+### [儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/39/README.md)
  ` 纽约香草山MOS02`
 
-### [【中日财经爆】立陶宛终止国营铁路公司与中资公司签约](/content/gnews/39/README.md)
+### [【中日财经爆】立陶宛终止国营铁路公司与中资公司签约](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】受疫情影响英国面临严重员工短缺](/content/gnews/40/README.md)
+### [【G时新闻】受疫情影响英国面临严重员工短缺](/content/gnews/41/README.md)
  ` G-时新闻`
 
-### [【中日财经爆】“债券天王”冈拉克：中共国不可投资 会被没收](/content/gnews/41/README.md)
+### [【中日财经爆】“债券天王”冈拉克：中共国不可投资 会被没收](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比](/content/gnews/42/README.md)
+### [【中日财经爆】小米科技在印度逃税 被追缴65.3亿卢比](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/43/README.md)
+### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/44/README.md)
  ` 秘密翻译组-北美组`
 
-### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/44/README.md)
+### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/45/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/45/README.md)
+### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/46/README.md)
+### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/47/README.md)
  ` YALUN 亚伦`
 
-### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/47/README.md)
+### [1/5/2022 文贵直播：哈总统拒绝返还中共盗国贼的黄金，后果很严重](/content/gnews/48/README.md)
  ` 秘密翻译组-北美组`
-
-### [有声|中共借疫情施暴政，苟延残喘](/content/gnews/48/README.md)
- ` MOSREC`
 
 ### [1/5/2022 国际财经快讯：日本央行可能调高下一财年的通胀预测；中国恒大寻求推迟在岸债券的支付时间](/content/gnews/49/README.md)
  ` 秘密翻译组金融团队`
