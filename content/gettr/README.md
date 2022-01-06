@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 12:50 PM (UTC)`
+
+1月6号：连这种乌龟王八的都来解读这个楼来了，只要传说就是好事儿，连这样的真相都没人敢面对……这个民族，这个国家还有救吗？
+![img](https://media.gettr.com/group13/getter/2022/01/06/12/7da3b675-7c1d-ec67-beb2-1851b53ad7d5/out.jpg)
+
+---
+
 `@miles 1/6/2022 7:44 AM (UTC)`
 
 1/05/2022 Miles Guo: GETTR is a massively disruptive game changer for the entire social media industry. It has broken the monopoly and enslavement of the small interest groups over the people. It is the platform for authentic communications and opinion-sharing between individuals. While other social media are dying, GETTR is thriving, reflecting the influence of the New Federal State of China in the world stage.<br/><br/>1/05/2022 文贵直播：盖特是改变社交媒体游戏规则的game changer（改变者），它打破了集体对个人的垄断和奴役，是人与人交流的真实平台，盖特在其他社交媒体堕落的时候上升，体现了新中国联邦在世界的话语权<br/>
@@ -153,13 +160,6 @@ Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me we
 
 1月5号：尊敬的战友们好！一会儿．8:30大直播中见！
 ![img](https://media.gettr.com/group32/getter/2022/01/05/12/89ae8ef9-e931-48ef-bc9c-b8e47b92343d/439fa23904b39666878134f0f9b25381.jpg)
-
----
-
-`@miles 1/5/2022 1:43 AM (UTC)`
-
-1月4号： 【川普总统呼吁大家停止使用“退它”和“非死不可”称其为国家耻辱，应该被禁止在美国做生意，知名媒体人Dinesh DSouza发贴表示它和它一伙的长期将无法生存。👏👏👏👏👏让我们送它们一程✊✊<br/>恭祝它俩发展无望👹破产有期】
-![img](https://media.gettr.com/group12/getter/2022/01/05/01/99fe1bad-a12b-0d93-8dc7-e40aead86cb3/807c4bacc22e5db55313af2c16dc5361.jpg)
 
 ---
 
