@@ -2,10 +2,10 @@
 ---
 
 
-## 冲绳新增中共病毒感染暴增 疑为从美军基地扩散
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1826811/)
+## 中共病毒疫苗接种率最高的几个国家 新增感染频创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1826812/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._6-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

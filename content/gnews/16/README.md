@@ -2,28 +2,24 @@
 ---
 
 
-## 蓬佩奥强调保卫美国 应对中共等势力带来的威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826745/)
+## 朝鲜发射疑似弹道导弹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826746/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国前国务卿蓬佩奥在1月3日斩首苏莱曼尼纪念日的访谈节目中，表示美国需要践行里根总统“实力带来和平”的说法。当人们看到俄罗斯在乌克兰边界的激进，伊朗试图用重回伊核协议的方式来拥有核武器，以及中共的种种挑衅时，美国政府应该做好各种准备，保卫美国。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-3.png)
-
-在节目中，蓬佩奥再次表示同意主持人关于北京冬奥会后，中共很可能对台湾实施侵犯的推测。同时强调美国还该注意委内瑞拉和古巴，这两个国家的政权跟中共、伊朗、俄国牵扯极深，且离美国海岸线仅有90英里的国家。
-
-而在去年8月15日的大直播中，郭文贵先生就已经提醒美国，需要注意中共会利用委内瑞拉和古巴来打击美国。
+1月5日，韩国和日本军方表示，朝鲜向其东部水域发射了一枚弹道导弹，这是朝鲜在核计划国际外交长期休眠期间大约两个月来的首次发射。韩国和美国情报局，以及日本正在分析更多关于发射的信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-3.jpg)
+据悉，朝鲜周三的发射使美国在该地区的主要盟友韩国和日本都处于可攻击范围。一些专家表示，朝鲜正在对其竞争对手施加更大压力，要求它们接受朝鲜为核大国并放松对它的国际制裁。
 
 参考链接：
 
-- [20220103蓬佩奧國務卿接受Hannity採訪](https://www.gettr.com/post/plz8hu1433)
+- [North Korea Fires Suspected Ballistic Missile Into Sea](https://www.newsmax.com/world/globaltalk/koreas-tensions/2022/01/04/id/1051056/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Irene木木
-编辑：飞虹
+总编：童谣
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
@@ -33,6 +29,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

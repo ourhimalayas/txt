@@ -2,37 +2,49 @@
 ---
 
 
-## 韩国法院暂停私立教育机构疫苗通行证要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1826663/)
+## 如果共和党议员在 2022 年中期选举中赢得多数席位，他们可能会弹劾乔·拜登
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1826666/)
 
-**据《路透社》作者：Katrina Hamlin，2022年1月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a0z5a-9nz18.jpg)2020年3月15日，韩国大邱，中共病毒（COVID-19）确诊病例上升后，韩国士兵在一所公务员考试补习班用消毒剂清洁。路透社/Kim Kyung-Hoon
-首尔，1月4日（路透社）——韩国卫生部周二表示，一家法院颁发禁令，将补习班在内的私人教育机构暂时排除在政府COVID-19疫苗强制规定之外。
+作者：Ian Miles Cheong
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-57.png)
+众议院共和党会议主席埃莉斯·斯特凡尼克 (Elise Stefanik) 表示，如果共和党在即将到来的 2022 年中期接管众议院，乔·拜登总统可能面临弹劾。当被问及是否会采取措施将民主党赶下台时，她说，任何事情都“摆在桌面上”。
 
-该禁令是韩国疫苗强制规定遇到的首次法律挑战。根据疫苗强制规定，凡是进入餐馆、咖啡馆、健身房、酒吧以及私立学校在内的设施必须持有疫苗通行证或完成测试。
+“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克在接受Just The News的简短采访时说。斯特凡尼克的言论与德克萨斯州共和党参议员特德克鲁兹的言论相呼应，后者表示共和党领导的众议院很有可能就拜登未能处理南部边境危机而采取行动。
 
-卫生部官员表示，首尔一家行政法院裁定，暂停在私立教育机构，包含补习中心、图书馆和学习咖啡馆等，执行疫苗强制规定。该裁定源自私立教育联合会和家长团体发起的对卫生部指令的法律挑战。
+克鲁兹在他的播客“与泰德克鲁兹的判决”一集中说：“如果我们拿下众议院，我说这很有可能，那么我认为我们将看到对拜登政府的认真调查。”
 
-韩联社说，法院认为该授权实际上限制了“（未接种疫苗的人）使用补习班和学习设施的权利”。
+“我们像激光一样专注于美国的危机，以及我从选民那里听到的，即使我在纽约北部的选区，因为我代表一次又一次被转移到南部边境的边境巡逻人员。这是一场又一场的危机，这是一场灾难，”这位纽约议员周一表示。
 
-卫生部表示，疫苗强制规定应该扩大执行范围，以保护未接种疫苗的人，并减少危重病人的数量。很快卫生部将决定是否与司法部合作对法院禁令提出上诉。
-规定要求17岁以上的人出示通行证，并计划执行范围扩大到12岁以上的儿童，但规定并不适用于公立学校。
+“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克说。“但我认为我们应该关注的是进行监督并确保我们通过立法以一劳永逸地保护边界。特朗普总统领导下的前任政府的政策正在发挥作用。”
 
-面对抗议，政府推迟规定开始执行时间从2月到3月，并增加了一个月的宽限期。
-韩国总理上个月在与学生和家长的座谈上表示，疫苗通行证的目的不是为了强制接种疫苗或歧视任何未接种疫苗的人，而是为了将群体聚集场所的感染风险降到最低。
+美国有线电视新闻网报道称，2020 年 11 月非法越境人数增加了 5%，同比增加了 140%。拜登政府尚未公布 12 月非法越境的统计数据。
 
-卫生当局介绍，超过4260万人，即5200万人口的83.1%，已经完全接种了疫苗。特别的，约1900万人接受了强化注射。
+“我的重点是进行监督并确保通过我们引入的立法，”斯特凡尼克补充道。“我们提出了许多法案来确保边境安全，并确保边境资金充足。”
 
-**原文连接：**[https://www.reuters.com/world/asia-pacific/skorea-court-bars-plan-private-education-covid-19-vaccine-pass-yonhap-2022-01-04/](https://www.reuters.com/world/asia-pacific/skorea-court-bars-plan-private-education-covid-19-vaccine-pass-yonhap-2022-01-04/)
+有可能弹劾拜登的举动是因为民主党在任期间两次大规模弹劾特朗普。特朗普第一次面临弹劾是因为指控这位前总统请求俄罗斯干预 2016 年美国总统大选。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+第二次弹劾发生在 2021 年 1 月 13 日，也就是他的总统任期届满前一周。指控他煽动了 1 月 6 日在美国国会大厦发生的骚乱。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+尽管两项弹劾条款均在众议院获得通过，但由于民主党未能获得参议院三分之二的支持，两项努力均未成功。
+
+来源：https://www.rebelnews.com/\_anything\_is\_on\_the\_table\_republican\_lawmakers\_likely\_to\_impeach\_joe\_biden\_if\_they\_win\_majority\_in\_2022\_midterm\_elections
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
