@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 1:23 AM (UTC)`
+
+946,000 people have suffered serious #SideEffects or even died after getting injected with the #COVID #Vaccine. What's worse, not only does the vaccine appear to be useless against the virus, but people who do get injected seem to be much, much worse than those who remain unvaccinated. We are witnessing the serious consequences of this untested, unproven, rushed vaccine firsthand, and it's far worse than anyone feared. This is just the beginning. <br/><br/>94万6千人在注射新冠疫苗后遭受严重副作用，甚至死亡。更糟糕的是，疫苗不仅看起来对病毒无效，而且注射疫苗的人比不注射的人境况更糟。我们正在见证这种未经测试、未经证实、匆忙上市的疫苗的严重后果，它比任何人担心的都更加糟糕。这仅仅是刚刚开始。
+![img](https://media.gettr.com/group11/origin/2022/01/06/01/cc6b2f5e-4c3f-e3c2-1efa-36f74de4fa80/out.jpg)
+
+---
+
 `@miles 1/6/2022 12:31 AM (UTC)`
 
 1/5/2022 Miles Guo: The President of Lithuania admitted that he was wrong about the Taiwan issue due to Xi blackmailing him with the secrets of his private life; I have been talking about Kazakhstan and Nazarbayev since 2017. That the CCP never exports revolutions is a lie, and the riot is the price paid for Kazakhstan’s collusion with the CCP<br/><br/>1/5/2022 文贵直播：立陶宛总统就台湾问题认错因其把柄被习近平抓住；文贵从2017年就开始谈哈萨克斯坦和纳扎尔巴耶夫，“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价
@@ -153,13 +160,6 @@ I’m calling on every Republican to LEAVE Twitter! <br/><br/>The truth is under
 `@miles 1/4/2022 1:56 PM (UTC)`
 
 1月4号：我的乖乖哟……估计过几天共产党也得给拆了？<br/><br/>https://gnews.org/zh-hans/1820344/<br/>在谷歌地图上，沿着盘古七星酒店从东往西拉一条横线，可以看到这条横线穿过山西省大同市。在大同市的和阳街，有一面九龙壁，建于明洪武年间，是中国现存九龙壁中建筑年代最早、最大的一座。
-
----
-
-`@miles 1/4/2022 1:52 PM (UTC)`
-
-1月4号：我的那乖乖来……这个世界变化太大了<br/><br/>Incredible tweet from Turley who is NO trump fan<br/><br/><br/>You should reach out Jason <br/><br/><br/>Jonathan Turley (@JonathanTurley) Tweeted:<br/>Twitter is continuing to crackdown on conservatives and those who espouse dissenting views. The latest bans, however, led to Joe Rogan to move over to Gettr. https://t.co/LjZLwV0WdV Much like the MSM, Twitter seems to be ditching half of the country. https://t.co/bQDr3tJcXq<br/>https://twitter.com/JonathanTurley/status/1477992218506018817?s=20
-![img](https://media.gettr.com/group35/getter/2022/01/04/13/c9b8beaa-9da4-314d-b0c1-682dd5503e64/7f02ae0fb1eae4c8ece7b8e99e242602.jpg)
 
 ---
 
