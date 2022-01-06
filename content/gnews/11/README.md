@@ -2,24 +2,25 @@
 ---
 
 
-## 冬奥会前夕 中共数字人民币试点版本App上架
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826729/)
+## 英国实施新版国家安全投资法 以防中共恶意收购
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826735/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月4日，中共数字人民币试点版上架IOS与Android各大应用商店平台。据悉，数字人民币为中共法定发行的数字货币，采取传统法币中心化管理模式运营。目前上架的版本仍然为测试版，在试点地区的白名单用户可注册使用。
+当地时间1月4日，英国政府宣布开始实施新版「国家安全投资法」。该法案授与各部会首长权力，来审察、限制、否决外国投资者收购有可能造成国家安全疑虑的产业。新法案限制17项战略产业的收购，包括AI、核电、机器人和太空产业等。并将回溯到2020年11月12日以来所做的任何收购案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-7.png)
+
+英国政府还呼吁美国、法国、澳洲、意大利等国采取相同政策，意在防堵中共恶意收购主要国家的国防安全相关产业。
 
 参考链接：
 
-- [Ccp数字人民币app发布！看来快要每个人像打疫苗和反诈软件全部都得安装！](https://gettr.com/post/pm1eeu4581)
-- [数字人民币（试点版）APP正式开放上线 由运营机构共同建设](https://m.nbd.com.cn/articles/2022-01-04/2072780.html)
+- [英國外商投資新法上路 加強國安限制](https://www.cna.com.tw/news/aopl/202201040402.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
+总编：Jack Li文阳
 编辑：Kathy文艺
 校正/发稿：海阔天空1
 
