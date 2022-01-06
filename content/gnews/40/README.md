@@ -2,25 +2,22 @@
 ---
 
 
-## 债券大王杰弗里·冈德拉克：目前不可投资中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828028/)
+## 日美将加强核能等清洁能源领域的合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828054/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-309.png)[图片来源](https://www.arabnews.jp/article/japan/article_51634/)
+6日，据日本媒体报道，日本经济产业大臣萩生田光一与美国能源部部长格兰霍姆进行视频会谈，传达了日本政府与国际合作开展新型核电站示范项目的意向，项目包括“小型模块化反应堆”和“快速反应堆”。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-3.png)图片来源：商业内幕
-据《雅虎财经》（Yahoo Finance）1月5日报道，美国投资公司双线资本（DoubleLine Capital）的创始人杰弗里·冈德拉克 (Jeffrey Gundlach)告诫投资者，在把钱投入中共国之前需要三思而后行。
+日本政府去年10月修订的基本能源计划包括一项政策，即积极支持日本公司参与与美国、英国、法国、加拿大和其他国家合作开展的“小型模块化反应堆”和“快速反应堆”等示范项目。
 
-债券大王杰弗里·冈德拉克在其加州庄园接受《雅虎财经》采访时说：“在我看来，目前的中共国是不可投资的。我在中共国从来没有任何长线或短线投资。为什么呢？因为我不相信（中共的）这些数据，我也不再相信中美之间的关系。另外，我认为在中共国的投资可能存在被没收的风险。”
+在今天的会议上，双方谈到日本在脱碳方面的努力，并确认将在氢、氨、核电等广泛的“清洁能源领域”加强合作以促进社会化应用。
 
-冈德拉克的上述评论是在双线资本的第三届年度圆桌会议（Roundtable Prime）投资者活动之前发表的。
+信息源：[日米・原子力などクリーンエネ分野で連携強化を確認](https://news.yahoo.co.jp/articles/197d62830daa30fc5e22766465ea771bcdc81fe1)
 
-去年发生的一系列事件可以证实冈德拉克对中共国的担忧。2021年，滴滴等大型互联网公司遭到了中共政府的持续打压，这让许多投资者感到震惊。除此以外，中共还在不断打击加密货币的崛起。
-
-冈德拉克对新兴市场越来越乐观，但不包括中共国，因为他认为中共国不再是一个新兴市场。
-
-新闻来源：[‘China is uninvestable,’ says Bond king Jeffrey Gundlach](https://finance.yahoo.com/news/bond-king-jeffrey-gundlach-china-is-uninvestable-114404300.html)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

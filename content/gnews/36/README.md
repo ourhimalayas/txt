@@ -2,138 +2,43 @@
 ---
 
 
-## 文贵先生告诉墙内同胞远离城市呆在农村
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
+## 7·24系列——九龙壁的历史起源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1828307/)
 
-[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1920px-Neun-Drachen-Mauer-1.jpg)图片来源：留园网
 
-兄弟姊妹们记住啊
-Recuerden, hermanos y hermanas
 
-你们都是银河农场, 台湾农场
-Todos ustedes son de la finca Galaxy y finca Taiwán
+**整理/编辑：**翼族
 
-还有我们刚才说的, 天池农场, 方舟(农场)
-Y lo que acabamos de decir, la finca Tianchi y Fangzhou
+盘古的风水，充满了各种难以解释的神奇之处，在上一篇7·24系列文章[《盘古龙头的东西中轴线上有什么？》](https://gnews.org/zh-hans/1820344/)中，大同九龙壁得到了郭文贵先生的印证。2022年1月6日的文贵大直播中，郭先生又再次提到了“九龙壁”（概要）：
 
-都是最特别的
-Son las más especiales
+##### 我本来要讲盘古，三票先生也查出来了，盘古和昆仑山的秘密，我说你找到了核心，还有几个，大家看到了九龙壁，唯一的九龙壁，大家你们谁去过？你们自己研究研究，九龙壁是什么历史上开始？为什么叫九龙壁？然后又为什么和盘古在一条线上？还有几个核心没有出来……
 
-樱花农场
-La finca Flor de cerezo
+根据维基百科的介绍，大同九龙壁建于明洪武二十五年（公元1392年）至洪武二十九年（公元1396年）间，其主人是明太祖朱元璋的第十三子——代王朱桂，但是朱桂并非最早建造九龙壁的，而是抄袭了朱元璋的第四子——燕王朱棣，即后来的明成祖，也称永乐大帝。
 
-阿信, 小熊
-Axin, Xiaoxiong
+朱元璋建立明朝以后，并没有把皇位传给儿子，而是传给了太子朱标之子，即孙子朱允炆，也就是建文帝。洪武三十二年（1399年）建文帝朱允炆开始削藩，被朱元璋封在北京的燕王朱棣发动了靖难之役，起兵夺位，经过三年的战争最终获胜，篡位称帝。由于朱棣于1402年才成为皇帝，因此可以推断朱棣还在燕王位上时就已经建造了九龙壁。
 
-告诉战友们
-Díganle a los compañeros luchadores
+在历史上，龙是中华民族的标志和象征。自汉代以后，龙成为皇帝和皇权的象征，远古图腾崇拜和封建帝王崇拜汇为一流，成为政治权威产生的重要信仰基础。而在中国文化中，九和五都是特殊的数字，九为阳数的极数，即单数最大的数，于是与帝王有关的事物多与九有关；而五则居中，“九五”之制为天子之尊的重要体现，帝王之位称“九五”，帝王称“九五之尊”，皇帝穿九龙袍，住处太和殿、中和殿、保和殿的高度都是九丈九尺。
 
-一切答案在这
-Todas las respuestas están aquí
+中国现存的龙壁有一龙壁、三龙壁、五龙壁、七龙壁、九龙壁等多种形式，而这几种形式以九龙壁最为尊贵，燕王朱棣就是最早建造九龙壁的人，因为**九龙壁就代表了皇权**，后面才陆续有皇帝建造了一系列的九龙壁。大同九龙壁是保存下来最早，也是最大的一面九龙壁。
 
-明年会很黑暗
-El año que viene será muy oscuro
+大同九龙壁的壁面由426块特别烧制的五彩琉璃构件拼砌而成，九条大龙飞舞奔腾于波涛云气之间，中间隔以山石水草。正中一条龙是照壁的中心，龙头向前，龙身向上卷曲，龙尾向后摆动，看上去似在端坐。这条龙为主龙，无论从左数还是从右数都是第五条龙，颜色也是主色，即正黄色。
 
-你唯一的希望
-Tu única esperanza
+主龙两侧的第一对龙为淡黄色行龙，龙头均向东，而尾则向着中心坐龙，构成对称的图案。主龙两侧的第二对龙为中黄色行龙，头均向西，两龙构图基本相同而局部有别。主龙两侧的第三对龙为紫色飞龙，姿态飘逸，且不对称：西边的飞龙似由天空奔驰而下，龙头已入海中而龙尾还在天空中长曳翻动；东边的飞龙则是龙尾高悬，龙身蜷伏，龙头凝视前方，有如刚自天空降下而又从水中奋起之姿。最外侧两龙为黄绿相间的坐龙，形象各异，不相对称。
 
-你唯一的机会
-Tu única oportunidad
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/7601b304bdc24f0ea98436ef9ba94e83.jpeg)图片来源：搜狐
 
-就是跟农场和联盟保持联系
-Es mantenerte en contacto con la finca y la alianza
 
-还有远离城市
-También alejarse de la ciudad
-中国的现代城市化
-La urbanización moderna de China
+朱棣最早建造的九龙壁已经消失在历史的长河中，和盘古大观同处于北纬40度的大同九龙壁却幸运地保存了下来，这九条栩栩如生的龙与昆仑山脉的龙脉起点、龙盘古、奥林匹克公园的水龙遥相呼应，贯穿东西。天意不可违，中国共产党将盘古的龙头改成“包头”，更加会给自己带来灭亡的命运！
 
-和迅速地城市化
-Y el proceso de urbanización rápida
+*发布：翼族*
 
-乡村城市化
-La urbanización rural
-
-绝对是中国的灾难
-Es absolutamente el desastre de China
-
-任何有脑子的人记住
-Cualquier persona que tenga cerebro recuerde
-
-现在被伤害的人是你买房的
-Persona que está siendo lastimada es porque tu has comprado la casa
-
-被伤害的人
-Personas que son lastimadas
-
-郑州被淹死的, 是有车的(人)
-Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
-
-现在在西安城市里饿死的
-El que se murió de hambre en la ciudad de Xi’an en este momento
-
-是在城市里边
-Es el que estaba dentro de la ciudad
-
-当房奴, 当街奴, 当打工奴的
-Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
-
-你待在老家绝对比在西安安全
-Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
-
-绝对比在郑州安全
-Será más seguro que estar en Zhengzhou
-绝对比待在任何二级城市安全
-Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
-
-更不要说在北京
-Menos mencionemos estar en Beijing
-
-每年要赶一次什么二级下流人士
-Corran a los indecentes de segundo nivel una vez al año
-
-低级人士被驱赶的城市
-La ciudad donde las personas de bajo rango son expulsadas
-
-永远记住中国人最安全的地方
-Recuerden siempre el lugar más seguro para los chinos
-
-在你老家
-Es tu ciudad natal
-
-在农村, 绝不在城市
-En el campo, nunca en la ciudad
-
-七哥今天第一次这么告诉你们
-Les digo esto por primera vez
-
-听七哥的
-Escúchenme
-
-看这个, 联系农场
-Vean esto, contacten a la finca
-
-远离城市
-Aléjanse de la ciudad
-
-* * *
-
-日期：01/04/2022
-原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
-Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
-原视频日期：01/02/2022
-原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
-任务编号：3392
-视频时间段：00:00-01:23
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

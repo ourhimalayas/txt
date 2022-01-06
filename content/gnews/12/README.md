@@ -2,10 +2,10 @@
 ---
 
 
-## 2021年全球盖特人物：中共最大恶梦奖获奖者——郭文贵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828605/)
+## 西安在建造方舱医院
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828607/)
 
-01/01/2021 2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵
+12/30/2021 拍摄视频的男子说：西安在建造这个方舱医院。然后病人两三天之后要住进来。目前有2万多人，跟小汤山一样差不多。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
