@@ -2,10 +2,48 @@
 ---
 
 
-## 1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1826993/)
+## 灭共漫画——CCP&#8217;s Biggest Nightmare
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1827054/)
 
-秘密翻译组-北美组
+**出品：纽约香草山设计部**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-IMG_3623.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-IMG_3339.jpg)
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-54.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

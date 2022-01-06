@@ -2,37 +2,38 @@
 ---
 
 
-## 牛津疫苗研发专家称定期注射疫苗“不理智”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827309/)
+## 日本单日新增感染近两千例，东京七成感染者曾接种疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827334/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-294.png)
-波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D44B429D-8E2F-4F34-839C-B1983CD6D521.jpeg)（图片来自网络）
+
+1月5日，日本疫情严重爆发，单日新增感染者近两千例，东京新增感染者近七成曾接种过疫苗，美军驻地冲绳县也创下新高。
+
+据中央社5日报道，日本全境当天新增确诊病例是继2021年9月26日的2136例以来，单日再逾2000例。
+
+其中东京截至本月4日止共55人感染Omicron变异株，5日当天新增92例确诊病例，是继2021年9月29日以来单日新增再逾50例。值得注意的是，近日感染者中约7成患者已接种两剂疫苗，东京政府对此表示，很明显即使接种疫苗仍会感染病毒，希望大家做好防疫工作。
+
+此外，有美军基地的冲绳县近日新增确诊病例快速增加，仅是今年开春前4天累计就多达458例，再加上今天的623例，本月前5天已逾千例、合计1081例。
+
+美军的岩国基地今天也创该基地单日新高纪录，新增182例确诊病例，至今累计病例数671例。
+
+有评论表示，近日台海局势持续紧张，冲绳县美军基地的感染数突然暴增，冲绳县的感染人数竟仅次于人口居首的东京，其认为本次感染的暴增属中共对在日美军的精准‘投送’，并称肆虐全球的COVID-19病毒是中共的生物武器。
+
+*参考链接：*
+
+1. [*東京Omicron患者7成完整接種 當局籲防疫勿大意*](https://www.cna.com.tw/news/aopl/202201050187.aspx)
+2. [*日本疫情多點爆發單日增逾2000例 沖繩5天累計確診破千*](https://www.cna.com.tw/news/firstnews/202201050234.aspx)
 
 
+* * *
 
-新闻链接：[January 4 coronavirus pandemic and Omicron variant news](https://www.cnn.com/webview/world/live-news/omicron-variant-coronavirus-news-01-04-22/h_b563a607338c0ca3ff13520fa4d5f96e)
+*素材采编：Kevin wang*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+*编辑：文顺*
 
-总编: 文特
-
-编辑: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-
+*发布：miumiu*
 
  
 
