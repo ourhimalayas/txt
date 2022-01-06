@@ -2,20 +2,49 @@
 ---
 
 
-## 中大获拨巨款 成中共病毒研究基地
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828504/)
+## 报告称Omicron感染有个其他变体未出现过的“非常奇怪的症状”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1828593/)
 
-作者：喜马拉雅东京樱花团  阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5ee9c42f60b2042db2b374451.jpg)
-香港中文大学公布「2021/22年度协作研究金」拨款结果，11个项目共获得8200万港元拨款。这次获拨款的研究项目包括细胞成像、自闭症、神经肌肉退化、阿尔兹海默症、降低流产风险、睡眠障碍，以及纳米材料和器械等。研资局亦公布了第二轮协作研究金与2019冠状病毒病及新型传染病相关的一次性研究计划的资助项目。
+编译： Jenny Ball
 
-中共的蓝金黄渗透了全球各个领域，香港大学也轮为中共的制毒工场，为中共研究各种生物武器提供了先进的技术设备和科研人员。香港各大院校的管理权早就被中共的人窃取，不甘与中共为伍的学者们纷纷辞职离开香港。中共管制下，大学的学术界充斥了功利，所以受资助的科研项目，全部是为中共政权服务，大学再也没有学术自由的氛围。更可怕的是，中共在病毒生物武器上尝到了甜头，病毒不仅可以用来要挟发达国家，还能裹挟一般穷兄弟和它一起为虎作伥。中共此次对香港中文大学的资助项目还包括了新型传染病的研究，由此可见，如果中共政权仍然苟延残喘，它将继续祸害全球，各国政府忙于抗议，民生和经济终将毁于一旦，中共将成为全球霸主蹂躏世界人民。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-8-1.jpg)Shutterstock（epochtimes.com）
 
-[资料来源](https://www.wenweipo.com/a/202201/06/AP61d69b18e4b03103e0c2358a.html)
+随着 COVID-19 的 Omicron 变体在美国各地传播，医生警告会出现一种通常与早期病毒株不同的新症状。
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据报道，盗汗在 Omicron 变体患者中变得更加普遍。
+
+NBC 新闻高级医学记者约翰·托雷斯（John Torres）博士告诉《今日》，虽然其他 Omicron 症状通常与普通感冒或流感（如咳嗽、疲劳、充血和流鼻涕）相同，但盗汗是一种新症状 。
+
+“但人们报告盗汗，这是他们所说的一种非常奇怪的症状，”托雷斯说。
+
+味觉或嗅觉的丧失仍然是 COVID-19 的一个指标，但 omicron 变体似乎不像第一个菌株那样经常引起这种情况。
+
+据《财富》杂志报道，通常情况下，盗汗是由流感、焦虑，甚至癌症等其他问题引起的。
+
+随着 Omicron 菌株的传播，它导致美国和全世界的 COVID 病例总体激增。
+
+据《纽约时报》报道，在全球范围内，随着 Omicron 推动整体病例数字上升，平均每天有 180 万例病例。
+
+但是，尽管病例激增，但 Omicron 似乎并不像其他菌株那样严重。尽管科学家们仍在研究该变体的影响，但南非的数据表明， Omicron 并不像英国卫报报道的那样危险。
+
+“在南非，这就是流行病：Omicron 的行为不那么严重，”该国国家传染病研究所的谢丽尔·科恩（Cheryl Cohen）教授说。
+
+人们遇到的一个问题是，这也是流感和普通感冒的流行季节。由于这三种病毒的症状非常相似，因此很难区分它们。
+
+“你会注意到这些症状有很多重叠，这就是为什么很难区分所有这些症状，”托雷斯说。
+
+目前，Omicron 唯一明显区分的症状似乎是盗汗。
+
+**参考资料：**[westernjournal][Feeling Sick? Report Says Omicron Infections Have a ‘Very Strange Symptom’ Not Seen in Other Variants](https://www.westernjournal.com/feeling-sick-report-says-omicron-infections-strange-symptom-not-seen-variants/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

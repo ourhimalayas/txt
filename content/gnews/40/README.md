@@ -2,20 +2,33 @@
 ---
 
 
-## 对抗中共 日澳正式签署《互惠准入协定》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827836/)
+## CDC外部专家小组建议向青少年接种中共病毒疫苗加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1827947/)
 
-撰搞：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.png)[图片来源](https://www.voachinese.com/a/Japan-PM-Suga-says-broad-agreement-reached-military-pact-Australia-20201117/5666033.html)
-6日下午，岸田文雄首相与澳大利亚总理莫里森签署了《互惠准入协定》，其中规定了自卫队和澳大利亚军队在访问对方国时所处的法律地位，随后双方进行了视频电话会谈。
+#### 撰稿：彩虹 
 
-此协定的签署目的是加强防务合作，对抗中共国在印太地区的霸权行径。《互惠准入协定》相当于基于《日美安保条约》签署的《日美地位协定》。澳大利亚被日本定位为“准同盟国”，继美国之后，日本与澳方缔造此协定尚属首例。日方愿以此为先例，加快与各同盟国的合作。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-10.jpg)图片来源：雅虎财经
+据《新闻极限》1月5日报道，周三，一个为CDC（美国疾病控制和预防中心）提供咨询的外部专家小组投票，建议向12至15岁的青少年提供辉瑞生物科技的中共病毒（COVID-19）疫苗的加强针。
 
-信息源：[日豪、円滑化協定に署名　対中念頭に防衛協力強化](https://news.yahoo.co.jp/articles/78a87f277488a3068c5bca91136312444ada13fd)
+CDC的这个免疫接种咨询委员会（ACIP）以13票对1票，建议美国卫生机构支持为12至15岁的人在第二次接种中共病毒疫苗后至少5个月进行疫苗加强针注射。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+同时，该小组还扩大了其最近对年龄较大的青少年的建议，明确表示16和17岁的青少年也“应该”接受中共病毒疫苗加强针。该机构以前曾向这些青少年提供过疫苗，但没有建议他们所有人都应该接受额外的中共病毒疫苗加强针注射。
+
+根据之前的报道，周一，FDA（美国食品和药物管理局）授权为12至15岁的儿童注射中共病毒疫苗加强针，但在（允许接种加强针）之前CDC需要签字。
+
+另据《国会山报》报道，一旦CDC签字，将允许进行中共病毒疫苗加强针的注射。CDC的一位官员周三告诉委员会，大约500万青少年将立即有资格获得中共病毒疫苗加强针。
+
+文章透露，唯一投反对票的小组成员海伦·凯普·塔尔博特（Helen Keipp Talbot）说，她并不反对给青少年注射中共病毒疫苗强化针，但她担心心肌炎的风险。
+
+预计CDC疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）将迅速作出决定，允许最快在本周开始进行注射中共病毒疫苗加强针。
+
+**新闻来源**
+
+[CDC Advisory Panel in Favor of Pfizer Vaccine Booster for Ages 12 to 15](https://www.newsmax.com/health/health-news/covid-cdc-booster-12-15/2022/01/05/id/1051201/)
+
+[CDC panel recommends Pfizer COVID-19 booster for adolescents](https://thehill.com/policy/healthcare/588459-cdc-advisors-recommend-pfizer-covid-19-vaccine-booster-for-adolescents)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,138 +2,48 @@
 ---
 
 
-## 文贵先生告诉墙内同胞远离城市呆在农村
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
+## 美国众议院委员会启动中共病毒溯源调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1828482/)
 
-[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-13261405671.jpg)图片来源：www.newsmax.com
+美国国会针对中共病毒起源的调查可能正在开始。美国众议院能源和商业委员会共和党领袖，华盛顿州共和党议员凯西·麦克莫里斯·罗杰斯(Cathy McMorris Rodgers）、健康小组委员会共和党领袖，肯塔基州共和党议员布雷特·格思里(Brett Guthrie）与监督和调查小组委员会共和党领袖，弗吉尼亚州共和党议员摩根·格里菲斯(Morgan Griffith）宣布启动一个网页，供举报人联系他们，提供与中共病毒大流行起源调查有关的信息。
 
-兄弟姊妹们记住啊
-Recuerden, hermanos y hermanas
+“我们需要知道这场大流行是如何开始的，以便阻止它再次发生。”议员们在一份声明中表示：“我们应该为每一位因新冠而失去亲人的美国人，每一位夜以继日工作的前线工作人员，以及每一位面临心理健康紧急情况的儿童找到答案。”
 
-你们都是银河农场, 台湾农场
-Todos ustedes son de la finca Galaxy y finca Taiwán
+“无论事实指向那里，我们都希望真相大白。我们鼓励那些能够为一个完整、科学和客观的中共病毒起源调查提供信息的举报人与委员会联系。”
 
-还有我们刚才说的, 天池农场, 方舟(农场)
-Y lo que acabamos de decir, la finca Tianchi y Fangzhou
+调查人员正在寻求与以下事项有关的信息：
 
-都是最特别的
-Son las más especiales
+- 与中共病毒起源相关的科学实验
+- 与中共病毒起源相关的美国研究政策/程序性问题
+- 武汉病毒研究所的实验室安全问题
+- 与中共病毒起源相关的基因组序列数据/数据库
+- 生态健康联盟的研究，包括研究提案（获资助或未获资助的）
+- 与早期武汉中共病毒患者病例相关的信息
+- 中国人民解放军在武汉病毒研究所实验室的研究（生物安全二级、三级或四级）。
+- 与中共病毒起源调查相关的文件：电子邮件、合同、照片、研究
 
-樱花农场
-La finca Flor de cerezo
 
-阿信, 小熊
-Axin, Xiaoxiong
+根据美国外交关系委员会的说法，“许多科学家认为，新冠病毒，即引起新冠大流行的冠状病毒，在2019年底从动物传播到人类——称为人畜共患传播”。
 
-告诉战友们
-Díganle a los compañeros luchadores
+一些研究人员表示该病毒起源于蝙蝠，就像类似的冠状病毒一样。但有几种可能性：一种是自然出现的病毒，在实验室外感染了人；一种是自然出现的病毒，在实验室内研究时泄露出去了；或者是一种作为在实验室内的实验结果而被制造的病毒。这些假说中的任何一个都还没有确切的证据。乔·拜登总统去年8月发表声明，指责中共隐瞒了与中共病毒起源有关的关键信息。
 
-一切答案在这
-Todas las respuestas están aquí
+肯塔基州共和党参议员兰德·保罗(Rand Paul)11月告诉大全新闻(Newsmax)，几个月来，他一直呼吁对中共病毒起源进行两党调查。这位参议员说，安东尼·福奇博士领导的美国国立卫生研究院支持武汉实验室对蝙蝠病毒的功能增强研究。福奇否认了这一点。保罗表示：“我们应该对病毒的起源进行两党调查，以确保这种情况永远不再发生”。
 
-明年会很黑暗
-El año que viene será muy oscuro
+**简评：**中共病毒疫情已经肆虐全球两年，人们遭遇了前所未有的生存挑战。与此同时，最紧迫的问题——病毒溯源，却迟迟没有答案。世界卫生组织一次次派所谓专家打着去中共国实验室调查的幌子，实为进行深度勾兑以欺骗民众。 我们不禁问道，在全球上亿人次感染，数千万人失去生命的情况下，为何无人敢向中共国要求开放实验室进行病毒溯源？这让我们深刻体会到蓝金黄和邪恶势力的威力和各国政府的胆小懦弱。可悲的是，除了爆料革命和新中国联邦领导的正义力量，没有其他组织敢于提出质疑——病毒到底是哪里来的，如何制作的，把中共病毒作为生物武器杀害全人类的计划又是谁亲自指挥和亲自部署的？病毒溯源不成功，不仅没有办法从根本上解决中共病毒大流行的问题，更无法还因病毒或疫苗失去生命或造成伤残的全球民众一个公道。可喜的是，我们看到美国两党这次溯源活动中已经明确了几个重点，即中国人民解放军在武汉病毒研究所实验室做了什么调查研究？福奇为什么要资助武汉病毒研究所进行蝙蝠病毒功能增强研究？生态健康联盟在武汉病毒研究所的病毒研究实验中扮演了什么角色？我们迫切希望此次美国国会发起的中共病毒溯源调查能够还给世界一个真相。
 
-你唯一的希望
-Tu única esperanza
-
-你唯一的机会
-Tu única oportunidad
-
-就是跟农场和联盟保持联系
-Es mantenerte en contacto con la finca y la alianza
-
-还有远离城市
-También alejarse de la ciudad
-中国的现代城市化
-La urbanización moderna de China
-
-和迅速地城市化
-Y el proceso de urbanización rápida
-
-乡村城市化
-La urbanización rural
-
-绝对是中国的灾难
-Es absolutamente el desastre de China
-
-任何有脑子的人记住
-Cualquier persona que tenga cerebro recuerde
-
-现在被伤害的人是你买房的
-Persona que está siendo lastimada es porque tu has comprado la casa
-
-被伤害的人
-Personas que son lastimadas
-
-郑州被淹死的, 是有车的(人)
-Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
-
-现在在西安城市里饿死的
-El que se murió de hambre en la ciudad de Xi’an en este momento
-
-是在城市里边
-Es el que estaba dentro de la ciudad
-
-当房奴, 当街奴, 当打工奴的
-Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
-
-你待在老家绝对比在西安安全
-Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
-
-绝对比在郑州安全
-Será más seguro que estar en Zhengzhou
-绝对比待在任何二级城市安全
-Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
-
-更不要说在北京
-Menos mencionemos estar en Beijing
-
-每年要赶一次什么二级下流人士
-Corran a los indecentes de segundo nivel una vez al año
-
-低级人士被驱赶的城市
-La ciudad donde las personas de bajo rango son expulsadas
-
-永远记住中国人最安全的地方
-Recuerden siempre el lugar más seguro para los chinos
-
-在你老家
-Es tu ciudad natal
-
-在农村, 绝不在城市
-En el campo, nunca en la ciudad
-
-七哥今天第一次这么告诉你们
-Les digo esto por primera vez
-
-听七哥的
-Escúchenme
-
-看这个, 联系农场
-Vean esto, contacten a la finca
-
-远离城市
-Aléjanse de la ciudad
+原文链接：[https://www.newsmax.com/politics/house-covid-web-page-whistleblower/2022/01/05/id/1051167/](https://www.newsmax.com/politics/house-covid-web-page-whistleblower/2022/01/05/id/1051167/)
 
 * * *
 
-日期：01/04/2022
-原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
-Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
-原视频日期：01/02/2022
-原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
-任务编号：3392
-视频时间段：00:00-01:23
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

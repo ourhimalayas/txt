@@ -2,33 +2,32 @@
 ---
 
 
-## 法国检测到中共病毒新毒株IHU
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827333/)
+## 布林肯：将共同反抗中共对立陶宛的胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827819/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月4日，科学家在法国南部发现一个中共病毒的新毒株，命名为IHU，目前已知12位感染病例。据悉，IHU首例感染来自去年11月中旬实验室采集到的成年人鼻咽样本。有科学家表示，这个新毒株比奥米克戎繁殖性更快，突变数量很大，传染性更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-298.png)
-新闻来源:
+#### **撰稿：**日本东京方舟农场 子辰
 
-[France detects new Covid variant IHU, 12 infected](http://timesofindia.indiatimes.com/articleshow/88684678.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/978FB4DD-3CBD-4B47-9D95-2DA957DA3FEE.jpeg)（图片来自《美国之音》）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+1月5日，美国国务卿安东尼·布林肯在华盛顿与来访的德国新外长安娜莱娜·贝尔伯克会晤。在谈及中共因台湾问题而胁迫立陶宛时布林肯表示，美国将与盟国一道挺身反抗来自中共的恐吓。
 
-总编：文特
+据VOA报道，布林肯与德国外长会晤后，在美国国务院举行了联合记者会。布林肯说，德国和美国一致同意就中共进行跨大西洋协调，并充分理解其重要性，因为它对我们共同价值观，对法律、规则以及促进全世界稳定、繁荣和自由的协议构成了重大挑战。并表示将一道努力为未来打造一个正面的美好愿景。
 
-编辑: Kathy文艺
+布林肯接着说，我们对中共政府试图霸凌人口不到三百万的立陶宛的做法有着深度关切。中共正在促使欧洲和美国公司停止用立陶宛制造的部件制造产品，否则将失去中共国的市场准入，所有这一切都是因为立陶宛决定扩大他们与台湾的合作。
 
-校正/发稿：浪迹天涯
+布林肯补充说，这不仅仅事关立陶宛，而是事关世界上的每一个国家都能够决定自身的外交政策，而不会受到这种胁迫。美国将与我们的盟友和伙伴（包括德国）共事，挺身反对这种来自中共的恐吓。其方式就是加强我们经济的韧性、将我们的供应链多样化并反抗所有形式的经济勒索。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+布林肯最后表示，将继续一道挺身反对中共政府对人权的公然侵犯并为全世界的普世人权而呼吁。
 
+*参考链接：[布林肯会晤德国外长 誓言与盟友一道反抗中国对立陶宛的霸凌和胁迫](https://www.voachinese.com/a/blinken-on-china-bullying-lithuania-20220105/6384398.html)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
