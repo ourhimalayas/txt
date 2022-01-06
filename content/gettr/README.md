@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 1:22 PM (UTC)`
+
+11月6号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group24/getter/2022/01/06/13/61799319-4f93-f6b3-0526-eacaacd898bb/out.jpg)
+
+---
+
 `@miles 1/6/2022 12:50 PM (UTC)`
 
 1月6号：连这种乌龟王八的都来解读这个楼来了，只要传说就是好事儿，连这样的真相都没人敢面对……这个民族，这个国家还有救吗？
@@ -153,13 +160,6 @@ Aloha - opened my account on GETTR. Any past posts on GETTR claiming to be me we
 
 2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果
 ![img](https://media.gettr.com/group47/origin/2022/01/05/12/340c53ef-68c3-8d27-548f-790cfee6196c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/5/2022 12:48 PM (UTC)`
-
-1月5号：尊敬的战友们好！一会儿．8:30大直播中见！
-![img](https://media.gettr.com/group32/getter/2022/01/05/12/89ae8ef9-e931-48ef-bc9c-b8e47b92343d/439fa23904b39666878134f0f9b25381.jpg)
 
 ---
 

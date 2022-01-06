@@ -2,111 +2,74 @@
 ---
 
 
-## 北韩怎么变成家天下的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828341/)
+## 【樱花深度报道】专家分析：中共将“三战”战略延伸至太空（三）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828493/)
 
-[https://gtv.org/video/id=61d6b473dffab035958b6679](https://gtv.org/video/id=61d6b473dffab035958b6679)
+编译：东京樱花团/Hopkins
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/专家分析：中共将三战战略延伸至太空（三）.png)2015 年 9 月 3 日，在北京天安门广场举行的阅兵式上，可以看到中国人民解放军 HQ-9 地对空导弹发射器。中国在一次试验中使用这种导弹的改进型击落了一颗卫星2007 年。
 
-这三本书改变了他的一生，他也改变了整个北朝鲜和南韩
-These three books changed his life, he also changed the entire North Korea and South Korea
+这种灰色地带冲突正在外层空间全面展开，在这种冲突中，各国之间进行敌对行动，并可能在某个地方擦枪走火。
 
-其中一本书就是弗洛伊德，弗洛伊德的书就是《梦(的解析)》
-One of the books is Freud’s “The Interpretation of Dreams”
+克雷斯波说：“中国和/或俄罗斯在月球上的任何载人基地都会在军事、法律和经济上为他们提供重要的战略优势。”
 
-然后就是人与人的关系，就是他是从弗洛伊德的书学的
-Then there is the relationship between people, that is he learned from Freud’s book
+12 月初，美国太空部队第一太空作战副司令大卫·汤普森（David Thompson）将军表示，中共“每天”都在对美国太空基础设施发动攻击。其中包括美国卫星架构或网络系统被暂时破坏，在很大程度上被理解为演习。
 
-第二个就读了托尔斯泰，那么第三个看了什么
-The second one he read Tolstoy’s, so what did the third one he read
+也就是说，他们正在为真正的战争做准备。
 
-他就把希特勒的事情全看了，他全看完了，就希特勒，什么戈培尔、斯佩尔
-He read all about Hitler’s, and after he read them all, Hitler, Goebbels and Speer
+汤普森在评论中说，中国政权正在以两倍于美国的速度发展太空能力。此外，其设计用于太空战的平台数量不断增加。
 
-什么这些人啊，曼斯坦因，这些所有的他都看完了
-these people, Manstein, he has read all of their lives and deeds
+汤普森说：“[中共]在太空中拥有进行攻击的机器人。”
 
-那么看完之后，他最后给他爹干什么，他爹给了他一个任务
-So after read it, what did he do for his father in the end? his dad gave him a task
+“他们可以进行干扰攻击和激光眩目攻击。他们拥有一整套网络能力。”
 
-就是叫做当时的北朝鲜，叫文艺宣传组的副组长，就现在宣传部的副部长
-It’s called North Korea at that time, it’s called the deputy leader of the literature and art propaganda group, that is deputy head of the propaganda department now
+“如果我们不开始加速我们的开发和交付能力，他们将超过我们。 2030 年可能是个合理的估计，”他说。
 
-这哥们厉害在哪里，他把整个好莱坞所有的电影全看了个遍
-What’s so good about this buddy? He watched all the Hollywood’s movies
+这些进步表明现有法律存在漏洞，例如《外层空间条约》，许多人错误地认为该条约禁止发展太空武器。
 
-当初拍出那些荒唐的电影，今天看这荒唐的电影
-he made those ridiculous movies at the beginning, and watch this ridiculous movie today
+“《外层空间条约》并未禁止太空中的常规武器，几周前俄罗斯联邦的 ASAT [反卫星武器]演示可以看出，”利斯特纳说。
 
-金日成、金正日父子俩干出那些电影，那就是他干出来的
-Kim Il-Sung and Kim Jong-il, father and son made those movies, that’s what he did
+“但是，《外层空间条约》禁止在某些情况下使用核武器。”
 
-而且拍了整个的什么梦工厂，完全学好莱坞的，然后那个宣传
-And he filmed the whole DreamWorks, he copied Hollywood completely, and then the publicity
+利斯特纳的言论是指俄罗斯最近展示的一种反卫星导弹，它用来在轨道上引爆一颗卫星。批评者指责俄罗斯将宇航员的生命置于危险之中，因为数千块碎片可能会摧毁航天器。该事件与中国在2007年发生的事件类似。
 
-然后首先把这个白头山，他的家族化，然后把他爹更神秘化
-Then first make this Changbai Mountain and his familization, and then make his father more mysterious
+事实上，中共正在迅速扩大其军事能力，这是全面推动从美国夺取军事和商业主导地位的一部分。这一努力旨在为中共提供一场堪比科幻小说的军事技术新闪电战。
 
-抗日当时是他爹是在哪出生，白头山出生，怎么这些故事，爱情故事
-At the time of the Anti-Japanese War, it was where his father was born, at Changbai Mountain, the stories, love stories
+这项努力包括开发高超音速武器、电磁脉冲装置、能够向太空发射火箭的新型海军舰艇，以及为太空旅行提供动力的核反应堆，据报道，其威力是美国计划的 100 倍。
 
-什么啪一枪上去了，飞机掉下来了，是吧，如何如何
-Like a snap shot up, the plane fell down, right? Blabla
+中共计划在 2030 年之前发射 10,000 颗卫星，以推翻美国的太空主导地位。
 
-然后整个的白头山上，开满了整个的什么山花了，这故事
-Then the whole Changbai Mountain（Heaven Lake）was full of all kinds of flowers, this story
+中共可以通过多种方式利用月球或更普遍的太空资产来打击其对手的弱点或推进其武器化努力。增加存在将使中国能够更好地通信和控制其太空资产，最显着的是卫星架构，这是美国和盟国军队依赖的 GPS 系统的关键。长期以来，专家们一直认为，先发制人地打击美国 GPS 系统将是中国在战争中的第一步，包括对台湾的战争。
 
-在瑞士有人研究过他的，就这个人学的是心理学
-Someone in Switzerland studied him, and this man(Kim Jong-il) studied psychology
+其他潜力则更具假设性，例如长期以来理论上使用的动能轰击系统可以利用地球的引力来对抗它。由于它们撞击地球的速度，这样的系统可以有效地将像钨棒这样简单的物体变成大规模杀伤性武器。
 
-他把人的心里给研究透了，你不懂心理学，你怎么懂人际关系，是不是
-He has thoroughly studied the human mind, if you don’t understand psychology, how do you understand interpersonal relationships? right?
+这将有效地允许基于卫星或月球的系统以流星的破坏力向地球投掷重物，这一壮举长期以来被提议的武器称为“来自上帝的棒”。
 
-共产主义，就是把人与人的关系给搞明白了
-Communism is to understand the relationship between people
+虽然比其他系统成本更高，但这种系统的想法自冷战以来就已经存在，据报道，五角大楼在 2006 年考虑开发它，然后才进行高超音速滑翔飞行器研究。
 
-绝大多数的人是自私的，是懦弱的，特别是怎么让他自私和懦弱呢
-The vast majority of people are selfish and weak, especially how to make them selfish and weak?
+利斯特纳说，中共不断征服太空，部分原因是美国和盟国领导人未能认识到西方和欧亚概念化世界和政治方式的根本差异。
 
-让他少教育，知道的越少越好，让他非常辛苦地拼命去工作
-Let him be less educated, the less he knows the better, and let him work very hard
+“从根本上说，我们必须明白，中国和俄罗斯联邦不像美国和西方国家那样思考问题，”利斯特纳说。
 
-没有时间闲暇考虑别的，真的很忙，让你忙无所事
-No spare time to think about other things, keeping you busy and doing nothing
+他的评论反映了越来越多的共识，即中共正在推进一场全球运动，以支持马克思主义作为美国资本主义的替代品，并取代美国成为全球霸主，这一点得到了美国国会新报告的认可​​。
 
-然后让你这个人完全不懂这个世界，共产主义的创伤，就让人变得无知
-Then make you not understand the world at all, the trauma of communism is to make people ignorant
+为此，国际社会可能喜欢玩弄立法，比如《阿尔忒弥斯协议》，但中共一再表现出不愿意遵守这样的规范。
 
-然后自私，然后懦弱，最后就变成了动物，这就达到了共产主义
-Then selfishness, then weakness, and finally becoming an animal which reaches communism
+“非政府组织、和平团体和裁军团体认为，中国和俄罗斯人的想法与我们不同，”利斯特纳说。
 
-最后是什么统一的行动，统一的思想，统一的服装，统一的音乐
-In the end, it is unified action, unified thought, unified clothing, unified music
+“这叫做‘镜像思维’，这是一个非常非常危险的陷阱。”
 
-最后听一个人说话，达到了家天下
-Finally, listening to one person, the country became a family country
+（未完待续）
 
-* * *
+作者： 安德鲁·索恩布鲁克 (Andrew Thornebrooke) /Zerohedge
 
-Date: 01/05/2022
-原视频标题: 北韩怎么变成家天下的
-How North Korea became family country
-原视频日期：2022/01/01
-原视频链接 [**https://gettr.com/post/plqhwu2e35**](https://gettr.com/post/plqhwu2e35)
-任务编号：KC398（3408）
-视频时间段 : 0:00-2:13
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+信息来源：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**CCP Extending “3 Warfares” Strategy Into Space: Expert**](https://www.zerohedge.com/geopolitical/ccp-extending-3-warfares-strategy-space-expert)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

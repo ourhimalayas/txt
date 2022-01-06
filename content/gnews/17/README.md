@@ -2,20 +2,42 @@
 ---
 
 
-## 中共要真心实意在香港搞“特色民主”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828535/)
+## 网球名将Novak Djokovic已获得疫苗豁免，将准时参加澳网公开赛
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1828591/)
 
-作者：喜马拉雅东京樱花团/阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-68.jpeg)
-约二十名立法会议员到深圳与全国政协副主席、港澳办主任夏宝龙会面，夏告知议员们：中共政府真心实意要在香港搞符合自身实际情况的「民主」，香港不能成为向内地「实施颜色革命的桥头堡」，须建立符合「一国两制」、具有香港特色的民主制度和制度自信。
+作者：银河勇气星—骄子
 
-民主是人内心的美好向往，上帝造人就将这些良善安放于人心，以便所有人都可以享受上帝为人类预备的资源无忧生活，但人的私欲激起不择手段的掠夺，人类的历史也充斥了私欲对民主的镇压。现代社会大部分的财富仍然聚集在少部分人手中，但信仰终将人带回正道，追求民主的人日益增多，许多西方国家的管制也回转到民主，虽然远不能达到上帝预设的美好，但仍然与独裁的政权形成鲜明的对比。正如与内地一步之遥的香港，多少年来都是内地同胞们向往的民主自由法治之城，许多人感叹早年的香港有如此自由的社会状况，会令人不由自主地爱惜这个城市，学习香港人的生活方式，连乱扔垃圾、随地吐痰、冲红灯的毛病在这地也自觉地被克制。可惜中共暴力夺取了香港的管制权，篡改了法律，将“私欲”混淆成“民主”，将“残暴”美化成“爱”。如今中共正在香港掀起愚民的、去民主的文化革命，用国安恶法“依法”抓捕、审判、囚禁民主人士，“依法”删除教科书中的民主历史，“依法”取缔民生媒体，恫吓网络媒体解散…… 中共将“规整”过的香港呈现在港人眼前，用镰刀和锤子正儿八经地指点着“特色香港民主”的迷津。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-[资料来源](https://www.hk01.com/%E6%94%BF%E6%83%85/720639/%E5%A4%8F%E5%AF%B6%E9%BE%8D%E6%B7%B1%E5%9C%B3%E6%99%A420%E8%AD%B0%E5%93%A1-%E6%8F%90%E4%BA%94%E5%A4%A7%E5%B8%8C%E6%9C%9B-%E4%B8%AD%E5%A4%AE%E7%9C%9F%E5%BF%83%E5%AF%A6%E6%84%8F%E5%9C%A8%E9%A6%99%E6%B8%AF%E6%90%9E%E6%B0%91%E4%B8%BB)
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+
+![Tennis | Wimbledon 2021 | Novak Djokovic](https://static.dw.com/image/58095492_303.jpg)
+
+日前，世界排名第一的网球名将Novak Djokovic宣布他已获得疫苗豁免，将如期参加此次澳网开幕大满贯赛事。
+
+澳网公开赛举办日期为1.17-1.30日，此前Novak曾表示由于担心澳大利亚的检疫规则而不确定自己是否能够参赛。赛事方严格要求所有参与者都必须接种新冠疫苗或获得独立专家小组的医疗豁免。Novak的父亲曾在接受采访中说道，他的儿子可能会退出此次澳网赛事，因为澳洲网球协会对于强制接种新冠疫苗的立场简直就是敲诈。据悉Novak已退出悉尼的ATP杯赛事。 1月4日即本周二，澳网赛事方宣布允许Novak参加比赛，因他成功申请了医疗豁免，无须接种新冠疫苗，并将获得和完全接种疫苗者相同的待遇。
+
+
+
+参考链接：
+
+[https://www.espn.com/tennis/story/\_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp](https://www.espn.com/tennis/story/_/id/32990613/novak-djokovic-defend-australian-open-title-exemption-vaccination?platform=amp)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

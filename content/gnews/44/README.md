@@ -2,35 +2,32 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 日澳将签署“历史性”防务安全条约
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827935/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+#### **撰稿：**日本东京方舟农场 子辰
 
-新闻来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3B99F77B-A7EA-4FFC-BD3D-E27097FD0B71.jpeg)（图片来自《美国之音》）
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+1月6日，澳大利亚和日本将签署一项加强防务和安全合作的条约。条约被视为具有“历史性”的举动，是促进美国的盟友加强合作关系，以抗击来自中共不断增长威胁的最新示例。
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
+据美联社报道，澳大利亚总理莫里森和日本首相岸田文雄将在当天举行的视频峰会上签署这一协议。莫里森说，协议将支撑澳大利亚武装力量和日本自卫队之间更广泛和更复杂的实际接触。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+莫里森在1月5日的一份声明中说，条约将表明，我们两国致力于共同应对我们面临的共同战略之安全挑战，并为建立一个安全和稳定的印太地区做出贡献。并称新防务条约是历史性的，将首次为两国防卫力量之间强化互相合作提供一个清晰的框架。
 
-总编:文特
+日本首相岸田文雄也在1月4日表示，基于维护自由和开放的印太地区的原则，日本希望提升与美国、澳大利亚和印度的合作，通过密切协商同这些国家的领导人建立紧密关系。
 
-校正/发稿：浪迹天涯
+此外，美国华尔街日报报道说，澳日防务条约使澳大利亚成为继美国之后的第2个与日本签订正式防务协定的国家。这个条约包含允许澳大利亚军人进入日本。意味着双方的部队将自由进入对方国家从事训练和演习，不用每次都要就条件进行谈判。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+*参考链接：[日澳将签署防务安全条约 取得一项“历史性”突破](https://www.voachinese.com/a/Australia-Japan-to-sign-security-pact-20220105/6383636.html)*
 
+* * *
+
+*素材采编：子辰*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
