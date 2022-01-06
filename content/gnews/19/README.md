@@ -2,36 +2,22 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第28天位列美国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1829703/)
+## 疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1829802/)
 
-1/6/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第28天位列美国iTunes热门MV榜榜首。
+那么柯克，你可能是我遇到的最有资格谈论与病毒和疫苗有关的小儿心脏损伤的医生科学家，在你看来，如果我们在加州部署了纽森州长签署的强制疫苗规定，我们是否会看到加州有大量的心脏受损者因疫苗而死亡？
 
-* * *
+我认为这取决于有多少人接种疫苗。是的我认为这只是一个数字游戏，当你环顾世界时，我们正在下降到一个介于1到3000，1到6000之间的数字。如果我们允许这些孩子继续保持活跃和运动，我认为有很多心肌炎是在预料之中的。
 
-[【PDF 下载】Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
+最近一项关于十大联赛中的精英运动员的研究显示，当观察精英运动员的心脏核磁共振时，大约50%的人有心肌炎，这些心肌炎从症状上看不出来，但在心脏核磁共振上可以看到，这使他们面临猝死的风险。
 
-* * *
+因此我认为，随着强制疫苗进一步推进，试图让每个人都像加州那样，为了上学而接种疫苗，那么我认为根据我们在世界各地看到的情况，心肌炎病例的数量将上升。我们可能会遭遇心肌炎相关的心脏猝死案例的攀升，（可能）就在孩子在操场上玩耍时发生。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_117.jpg)
+素材：文倩
+翻译：Kent
+字幕：文所未闻
 
-
-[【PDF 下载】Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-6-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑/发文：Kent
 
  
 
