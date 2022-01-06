@@ -2,138 +2,54 @@
 ---
 
 
-## 文贵先生告诉墙内同胞远离城市呆在农村
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
+## 沃尔玛因移除新疆产品遭中共国警告
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1828480/)
 
-[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
+作者： Opal
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210106-1.jpg)[图片来源](https://www.bloomberg.com)
+据CNBC报道， 12月31日周五，中纪委指责美国零售巨头沃尔玛（Walmart）及其山姆会员店连锁店（Sam’s Club） “愚蠢和目光短浅”，因为中共国新闻媒体报道山姆会员店已将新疆产的产品从商店中撤出。
 
-兄弟姊妹们记住啊
-Recuerden, hermanos y hermanas
+上周，一些新闻机构在微博社交媒体平台上分享了视频和截图，称来自中国最西部的新疆地区的产品已从山姆会员店的在线应用软件中删除，该店因此在中共国受到了抨击。
 
-你们都是银河农场, 台湾农场
-Todos ustedes son de la finca Galaxy y finca Taiwán
+在美国总统拜登于12月23日将禁止从新疆进口的立法签署为法律之后，社交媒体上的争论爆发了，人们对新疆的强迫劳动感到担忧。沃尔玛是最新一家被西方压力绊倒的外国公司，因为中共国政府对待新疆的维吾尔族和其他少数民族穆斯林，以及中国作为市场和供应基地的重要性。
 
-还有我们刚才说的, 天池农场, 方舟(农场)
-Y lo que acabamos de decir, la finca Tianchi y Fangzhou
+中共中纪委（CCDI）指责山姆会员店抵制新疆产品，并试图通过保持沉默来 “蒙混过关 “这一争议。
+它在其网站上说：”在没有正当理由的情况下拿下一个地区的所有产品，隐藏着别有用心的动机，暴露了愚蠢和短视，而且肯定会产生自己的不良后果。”
 
-都是最特别的
-Son las más especiales
+根据路透社周三的评论，在山姆会员店中国店的应用程序上搜索流行的新疆商品，如葡萄干，并没有得到任何相关的结果，但搜索其他地方的产品，如福建茶叶，也没有得到任何结果。中共国媒体援引山姆会员店客服代表的话解释说，这些产品并没有被删除，而是缺货了。中纪委周五称这是一个 “自欺欺人的借口”，并表示如果该连锁店想 “在中国市场站稳脚跟”，就应该尊重中国对新疆的立场。中纪委指责H&M、英特尔和山姆俱乐部与 “西方反华势力 “合作，通过压制和抵制来自该地区的产品来破坏新疆的稳定。
 
-樱花农场
-La finca Flor de cerezo
+美国零售巨头沃尔玛于1996年开始进军中国市场，在深圳开设第一家零售店。中国是沃尔玛的一个巨大市场，在截至1月31日的财政年度，沃尔玛在中国的收入为114.3亿美元。根据其网站，在沃尔玛在中国经营的423家零售单位中，有36家是山姆会员店。
 
-阿信, 小熊
-Axin, Xiaoxiong
+在美国总统拜登于12月23日将禁止从新疆进口的立法签署为法律之后，沃尔玛将来自中国新疆地区的产品从商店中撤出，沃尔玛这一举措遭到中国网民的指责。
 
-告诉战友们
-Díganle a los compañeros luchadores
+外国品牌外国公司被中国社交媒体用户或官方机构盯上已经不是第一次了，而且其影响可能是破坏性的，比如面临定期抵制：
 
-一切答案在这
-Todas las respuestas están aquí
+2008年，法国连锁超市家乐福在北京夏季奥运会前面临抵制，因为抗议者旨在强调中国对西藏的镇压，他们在奥运火炬手经过巴黎时对其进行了骚扰。
 
-明年会很黑暗
-El año que viene será muy oscuro
+2012年，在东京将日本控制的尖阁诸岛（中国称其为钓鱼岛）国有化后，日本汽车制造商遭到抵制。粉红们在街上砸日本汽车。
 
-你唯一的希望
-Tu única esperanza
+2018年，韩国超市乐天玛特，因韩国同意接纳美国导弹防御系统而遭到消费者抵制，在中国经营了十多年后被迫退出。
 
-你唯一的机会
-Tu única oportunidad
+2021年去年3月份，瑞典时装零售商H&M公开表示不从新疆采购产品，面临来自网民的压力–还有来自共青团等官方机构的额外推动。遭到了消费者的抵制，其3-5月份在中国的本地货币销售额下降了23%。
 
-就是跟农场和联盟保持联系
-Es mantenerte en contacto con la finca y la alianza
+去年12月，美国芯片制造商英特尔在告诉其供应商不要从新疆采购产品或劳动力后也面临类似的呼声，迫使其为 “给我们尊敬的中国客户、合作伙伴和公众带来的麻烦 “道歉。
 
-还有远离城市
-También alejarse de la ciudad
-中国的现代城市化
-La urbanización moderna de China
+沃尔玛和山姆会员店还没有就它们在中国受到的反击发表公开声明，沃尔玛也没有回应周五的评论请求。这一次，我们倒要看一看沃尔玛是否真的遵守美国的禁止从新疆进口的法律，真正捍卫新疆少数民族的人权？还是会为了商业利润、为了金钱而屈服于中共的高压和淫威？
 
-和迅速地城市化
-Y el proceso de urbanización rápida
+其实我们深究一下，这些带有政治色彩的消费者抵制活动由来已久，反映了中国政治和经济环境的恶劣，几乎没有实质性改善的前景，让许多西方品牌/西方企业在中共国越来越难以生存。
 
-乡村城市化
-La urbanización rural
+沃尔玛的麻烦是一个更大问题的症状。如果关系没有改善，再加上中国的经济不景气、消费增长不能很快恢复，那么更多的外国企业可能会决定将他们的企业外迁，把他们的增长计划集中到政治色彩没有这么鲜明的国家和地区。到那时墙国的经济全面瘫痪，那些有着强烈民族主义情绪的粉红、公众和官员们，没饭吃了，是不是还会继续坚持“宁要社会主义的草，不要资本主义的苗”呢？很可悲啊。
 
-绝对是中国的灾难
-Es absolutamente el desastre de China
+最后一点我还想说的是，这次为什么会是中纪委出来指责沃尔玛呢？中纪委不是管领导同志、管党员违法乱纪的吗？再怎么样，也不应该中纪委来指责沃尔玛，真的是党高于一切、党领导一切。而且中纪委的言辞这么激烈，它用的词是 “愚蠢”（Stupid/stupidity），这种叫骂的词汇，出自于中共官方机构之口，实在不太合适。
 
-任何有脑子的人记住
-Cualquier persona que tenga cerebro recuerde
+（本文仅代表作者个人观点）
 
-现在被伤害的人是你买房的
-Persona que está siendo lastimada es porque tu has comprado la casa
+直播链接：
+[https://gtv.org/video/id=61d1b7cf31a71619b57337a9](https://gtv.org/video/id=61d1b7cf31a71619b57337a9)
 
-被伤害的人
-Personas que son lastimadas
-
-郑州被淹死的, 是有车的(人)
-Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
-
-现在在西安城市里饿死的
-El que se murió de hambre en la ciudad de Xi’an en este momento
-
-是在城市里边
-Es el que estaba dentro de la ciudad
-
-当房奴, 当街奴, 当打工奴的
-Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
-
-你待在老家绝对比在西安安全
-Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
-
-绝对比在郑州安全
-Será más seguro que estar en Zhengzhou
-绝对比待在任何二级城市安全
-Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
-
-更不要说在北京
-Menos mencionemos estar en Beijing
-
-每年要赶一次什么二级下流人士
-Corran a los indecentes de segundo nivel una vez al año
-
-低级人士被驱赶的城市
-La ciudad donde las personas de bajo rango son expulsadas
-
-永远记住中国人最安全的地方
-Recuerden siempre el lugar más seguro para los chinos
-
-在你老家
-Es tu ciudad natal
-
-在农村, 绝不在城市
-En el campo, nunca en la ciudad
-
-七哥今天第一次这么告诉你们
-Les digo esto por primera vez
-
-听七哥的
-Escúchenme
-
-看这个, 联系农场
-Vean esto, contacten a la finca
-
-远离城市
-Aléjanse de la ciudad
-
-* * *
-
-日期：01/04/2022
-原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
-Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
-原视频日期：01/02/2022
-原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
-任务编号：3392
-视频时间段：00:00-01:23
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考：
+[https://www.cnbc.com/2021/12/31/china-warns-walmart-and-sams-club-over-xinjiang-sourced-products.html](https://www.cnbc.com/2021/12/31/china-warns-walmart-and-sams-club-over-xinjiang-sourced-products.html)
+[https://www.wsj.com/articles/walmarts-china-dilemma-is-every-western-companys-too-11640697597?mod=Searchresults\_pos3&page=1](https://www.wsj.com/articles/walmarts-china-dilemma-is-every-western-companys-too-11640697597?mod=Searchresults_pos3&amp;page=1)
 
  
 

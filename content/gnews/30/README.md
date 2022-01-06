@@ -2,10 +2,10 @@
 ---
 
 
-## 西安封城惨景：很多农民工无家可归
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827976/)
+## 中共砖家大放厥词说西方政党只代表一部分人利益
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827984/)
 
-12/31/2021 西安封城惨景：很多农民工无家可归，甚至没人去看看路上躺着的人。
+中共砖家郑若麟大放厥词说西方政党只代表一部分人利益而中共代表大部分中国人利益。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

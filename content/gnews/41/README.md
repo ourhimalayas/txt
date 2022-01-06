@@ -2,35 +2,32 @@
 ---
 
 
-## 各方呼吁公众停用Twitter、FB等社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827350/)
+## 布林肯：将共同反抗中共对立陶宛的胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827819/)
 
-撰稿: 银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
-由于Twitter、Facebook等社交媒体大量言论审查、封禁账号等。2022年后，被Twitter封禁账号的共和党人Majorie Taylor Geene女士、前总统川普、知名媒体人Dinesh D’Souza等，纷纷呼吁大众离开Twitter、Facebook等社交媒体平台，因为这些平台打压自由言论，屏蔽真相，尤其是关于中共病毒和疫苗的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-299.png)
-另外，盖特logo中的火苗调整为向上，新中国联邦记者评论，盖特将吸引更多不分种族、不分派别，内心拥有上天、渴望真相、渴望言论自由的人加入。郭先生称，盖特将改变社交媒体规则，打破当前媒体对人们的枷锁和奴役，保护海外华人自由安全，是解放货币、人权、信息的具有无限价值的平台。
+#### **撰稿：**日本东京方舟农场 子辰
 
-新闻来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/978FB4DD-3CBD-4B47-9D95-2DA957DA3FEE.jpeg)（图片来自《美国之音》）
 
-[郭文贵先生2022年1月4日盖特文字](https://gettr.com/post/pm6c03a064)
+1月5日，美国国务卿安东尼·布林肯在华盛顿与来访的德国新外长安娜莱娜·贝尔伯克会晤。在谈及中共因台湾问题而胁迫立陶宛时布林肯表示，美国将与盟国一道挺身反抗来自中共的恐吓。
 
-[Marjorie Taylor Greene’s post on Gettr](https://gettr.com/post/pm3ffm487d)
+据VOA报道，布林肯与德国外长会晤后，在美国国务院举行了联合记者会。布林肯说，德国和美国一致同意就中共进行跨大西洋协调，并充分理解其重要性，因为它对我们共同价值观，对法律、规则以及促进全世界稳定、繁荣和自由的协议构成了重大挑战。并表示将一道努力为未来打造一个正面的美好愿景。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+布林肯接着说，我们对中共政府试图霸凌人口不到三百万的立陶宛的做法有着深度关切。中共正在促使欧洲和美国公司停止用立陶宛制造的部件制造产品，否则将失去中共国的市场准入，所有这一切都是因为立陶宛决定扩大他们与台湾的合作。
 
-总编:文特
+布林肯补充说，这不仅仅事关立陶宛，而是事关世界上的每一个国家都能够决定自身的外交政策，而不会受到这种胁迫。美国将与我们的盟友和伙伴（包括德国）共事，挺身反对这种来自中共的恐吓。其方式就是加强我们经济的韧性、将我们的供应链多样化并反抗所有形式的经济勒索。
 
-校正/发稿：浪迹天涯
+布林肯最后表示，将继续一道挺身反对中共政府对人权的公然侵犯并为全世界的普世人权而呼吁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+*参考链接：[布林肯会晤德国外长 誓言与盟友一道反抗中国对立陶宛的霸凌和胁迫](https://www.voachinese.com/a/blinken-on-china-bullying-lithuania-20220105/6384398.html)*
 
+* * *
+
+*素材采编：子辰*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

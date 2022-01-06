@@ -2,26 +2,37 @@
 ---
 
 
-## 【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828039/)
+## 佐治亚州官员对2020年非法选票展开调查
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1828121/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://lh6.googleusercontent.com/_dR6mjou77H-ysxyhdVaU4e2S_FTzVVl2PZSjQoZKHUqTMwdTNeOZPPA83rMTAJ81YyjDUVu67nMPTvOptSa9s7bBzleZp8jGRTuNxdgJ7iviKgXf3j6M85IIFj8ut8h1_DqRHpg)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/Own8GQ26Z4nQGzqgCgK8mg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/L03kLisPoS2xiGtActtsOQ--~B/aD0xMDAwO3c9MTUwMDthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/zh-tw/newtalk.tw/d00cdb2baa9680dfefbec89dd7cbc28a)
-加拿大国会禁用中共国制口罩！加拿大国会议员日前投票通过决议，明令在国会禁止使用中共国制造的口罩，甚至在加拿大所有的联邦政府建筑物内，也不得使用中共国口罩。众议院议长罗塔（Anthony Rota）表示，最快从1月31日开始，禁令生效。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-加拿大媒体「True North」新闻网报导，国会议员意识到他们使用的口罩，竟然是从共产主义政权进口，而不是来自当地制造商后，做出此一决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-313.png)图片来源：thenationalpulse.com
 
-原来，此次国会口罩招标，得标的加拿大公司向国会提供2种非医用口罩，1种在安大略省生产，另1种在中共国生产。罗塔表示，根据众议院的投票决定，已把禁止中共国口罩的要求通知该供应商。
+据《Just The News》报道，佐治亚州官员已经对2020年总统选举和随后的美国参议院决选期间的民主党人收票行为，展开调查。
 
-原本还有部分国会议员担心此举恐怕得罪中共，影响与中共国贸易协定，还有人声称“没有证据”可以证明中共国口罩进到国会里。不过，魁人政团议员维格诺拉（Julie Vignola）指出，盒子上明明印着“Made in China”（中共国制造），还要睁眼说瞎话吗？
+佐治亚州务卿办公室还在考虑发出传票以确保证据，这些证据在选民诚信组织”真实投票”(True the Vote)于11月30日提交的申诉中，作了详细说明。
 
-据了解，去年加拿大国会分发给国会议员的就包括中共国制口罩，当时就有保守党提出动议，要求联邦政府只能使用加拿大自己制造的个人防护装备。
+True the Vote”收集到的证据表明，数十名活动家与非营利团体合作，在大流行期间，经常在凌晨时分收集并运送数以千计的缺席选票到分布在全州的临时投票箱。” 这一努力与佐治亚州禁止第三方活动家代表选民领取和递送选票的法律相抵触。
 
-消息来源：[**中共国口罩out！加拿大国会与联邦大楼月底前禁用**](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%A3%E7%BD%A9out-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%9C%8B%E6%9C%83%E8%88%87%E8%81%AF%E9%82%A6%E5%A4%A7%E6%A8%93%E6%9C%88%E5%BA%95%E5%89%8D%E7%A6%81%E7%94%A8-023311497.html)
+《Just The News》总结了选民诚信组织的调查结果，包括活动分子放下成批选票的监控录像，以及一个人承认他在亚特兰大收获选票的报酬：
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+根据《Just the News》审查的文件，True the Vote告知秘书，其证据包括各县在投递箱外放置的监控摄像头的录像，以及200多名活动人士的手机的地理位置数据，据称这些录像显示了投递选票的日期和时间。
+
+True the Vote还表示，它采访了一名佐治亚州的男子，该男子承认在11月选举和2021年1月5日佐治亚州两个美国参议院席位决选前，他得到了数千美元的报酬，在亚特兰大市区收获选票，这两个席位都被民主党人夺得，结束了美国国会的控制。True the Vote尚未向州当局确认合作证人（报酬收获者）的身份，在投诉中只称他为无名氏。
+
+True the Vote并没有指称快递员交付的选票是欺诈性的。然而，由第三方运送到投递箱的合法选票会触犯佐治亚州的法律。
+
+“佐治亚州州务卿布拉德·拉芬斯佩尔格（Brad Raffensperger）在周二播出的播客（John Solomon Reports）的采访中证实，他的办公室已经认为这些指控足够可信，可以展开调查，并可能向州选举委员会寻求传票，以确保证据，”报告补充说。
+
+“这将是我们正在考虑的程序之一，如果我们有一些人出于某种考虑不想站出来，因为我们真的需要弄清事情的真相，”拉芬斯佩尔格在采访中说。”我们不能让真相坐在那里，躺在那里。因此，如果事情发展到这一步，那么这可能是我们要考虑的下一步。”
+
+新闻来源：[thenationalpulse.com] [Georgia Officials Launch Investigation Into Illegal BallotHarvesting.](https://thenationalpulse.com/2022/01/05/ga-investigating-ballot-harvesting/) | 发布时间：2022年01月05日
+
+* * *
+
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

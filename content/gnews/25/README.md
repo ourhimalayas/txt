@@ -2,23 +2,21 @@
 ---
 
 
-## 【中日财经爆】比特币和以太币下跌至数月低点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828022/)
+## 日美将加强核能等清洁能源领域的合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828054/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://lh3.googleusercontent.com/sTAdv_zarYaG6HnGCuT0to1C2ZJusRHbMtlFcNFE5wolwr_RWMRn8Gws2zdF_ILqRIiRa__3wno_-WawSkSZ0WEmmfiKMU4COjb_LGDFA2c0GcgNDi3PDiHdHc9O2wc6QVTbp4vy)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20210108/424023018293956608802965.jpeg/DPGKGy8pfCNtVkU-uIUIqPur_icIGLrCoPa5JKD2uSQ)
-比特币周四(1月6日）跌破43,000美元，创数月低点，此前美国联邦储备委员会(美联储/FED)最近一次政策会议的记录显示，其倾向于采取更积极的政策行动，这削弱了投资者对高风险资产的胃口。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-309.png)[图片来源](https://www.arabnews.jp/article/japan/article_51634/)
+6日，据日本媒体报道，日本经济产业大臣萩生田光一与美国能源部部长格兰霍姆进行视频会谈，传达了日本政府与国际合作开展新型核电站示范项目的意向，项目包括“小型模块化反应堆”和“快速反应堆”。
 
-比特币最新报42,700美元，下跌1.7%，周三下跌5.2%。若跌破上月低点42,000美元，将创下9月以来最低水准。比特币在11月创下了69,000美元的历史新高。
+日本政府去年10月修订的基本能源计划包括一项政策，即积极支持日本公司参与与美国、英国、法国、加拿大和其他国家合作开展的“小型模块化反应堆”和“快速反应堆”等示范项目。
 
-比特币下跌“与大多数传统资产类别的‘风险偏好降温’走势相关”，新加坡加密货币基金分销商Stack Funds的首席运营官Matt Dibb表示，他特别提到纳斯达克指数[.IXIC](https://cn.reuters.com/quote/.IXIC)的下跌。
+在今天的会议上，双方谈到日本在脱碳方面的努力，并确认将在氢、氨、核电等广泛的“清洁能源领域”加强合作以促进社会化应用。
 
-以太币下跌了5.2%，并触及10月以来的最低水平，之后小幅反弹至3,460美元。
+信息源：[日米・原子力などクリーンエネ分野で連携強化を確認](https://news.yahoo.co.jp/articles/197d62830daa30fc5e22766465ea771bcdc81fe1)
 
-消息来源：[**比特币和以太币接近数月低点 美联储的鹰派立场打击高风险资产**](https://cn.reuters.com/article/cryptocurrencies-0106-thur-idCNKBS2JG0B7?il=0)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 

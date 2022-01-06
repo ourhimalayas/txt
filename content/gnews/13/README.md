@@ -2,59 +2,40 @@
 ---
 
 
-## CDC承认PCR测试是骗局那么过去两年……？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1828163/)
+## 2021年1月6日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1828334/)
 
-编译： Jenny Ball
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-2.jpg)
+1. 澳大利亚维洲1月6日确诊数2万1997人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-319.png)图片来源: naturalnews.com
-
-自然新闻 – 美国CDC 终于承认，PCR 测试无法检测人体内是否存在武汉冠状病毒 Covid-19。
-
-假联邦机构的头号人物罗谢尔·瓦伦斯基 (Rochelle Walensky) 在最近的一次采访中告诉 ABC 新闻，“新科学”表明 PCR 测试不起作用，政府不再使用它们。
-
-瓦伦斯基解释说：“结合所有这些科学，我们提出了隔离五天，然后戴口罩五天的隔离建议”（观看下面的采访）。
-
-“现在我们为什么不包括测试的问题，仅仅是因为我们知道 PCR 可以保持阳性长达 12 周。因此，如果我们依赖 PCR，就会让人们隔离很长时间。”
-
-（**点评：难道两年来，美国人民在头号假机构的谎言里受苦受难死亡，她轻言单语一句“政府不再使用它们”就完事了？法律呢**？**都不是撒谎罪了，是有意灭绝生命罪！）**
-
-罗谢尔·瓦伦斯基说过实话吗？
-
-此前美国FDA的文件中已经透露，PCR 测试是在没有任何分离的福奇流感样本的情况下开发的，因为不存在任何分离的福奇流感样本。
-
-**（点评：到现在都没有病毒溯源，怎么出来试剂和“疫苗”？）**
-
-相反，FDA 使用普通流感来“校准”测试，我们现在知道这会产生异常数量的假阳性。
-
-不过，CDC 花了很长时间才赶上最新的科学。几个月来，瓦伦斯基本人一直在散布谎言－关于“数据”（基于错误的 PCR 测试结果）表明人们如何需要“接种”和“加强剂”以阻止大流行。
-
-**早在 9 月，瓦伦斯基就承认，她对提升的指导是基于“希望”，而不是数据。**
-
-“所以，实际上有希望——我们还没有数据，”瓦伦斯基告诉“今日”主持人萨凡纳·格思里。
-
-“我们确实知道 Alpha 变体中更高级别的保护肯定会导致更少的传播，**我们还没有看到数据，**但我们希望加强剂不仅可以保护你，给你更高级别的保护，而不是仅针对 Delta 变体，但针对范围广泛的变体。它还可能会降低您携带的病毒水平，并降低其传播性。”
-
-现在，**在世界其他地方发现 ****PCR ****测试是欺诈性的整整一年半之后，瓦伦斯基终于也承认了这一点**。问题是：Covid恐惧症人会听吗，还是会继续在永远的恐慌中接受“测试”，同时戴着口罩，并在每次瓦伦斯基告诉他们时强化？
-
-“然而，公司和政府机构仍然坚持说疫苗或每周测试，不是吗？”问一位心烦意乱的评论者，无论**瓦伦斯基**最近承认如何，**PCR ****测试可能会如何继续**。
-
-“叛国罪审判什么时候开始？”另一个问道。
-
-另一位写道：“难怪新冠病毒呈上升趋势，”并暗示我们仍然有“病例”的唯一原因是 PCR 检测结果造假。“**政府计划向所有人发送测试？**我们肯定会再次封锁，遵循科学？对对对。”
-
-另一位写道，所有这一切的一线希望是，通过所有这一切，最终可能会广为人知的是，“血栓注射”不起作用，只会助长大流行，阻止它结束。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-321.png)图片来源: naturalnews.com
-
-新闻来源: [naturalnews.com][CDC admits PCR tests are a fraud… so what about the last two years, then?](https://www.naturalnews.com/2022-01-04-cdc-admits-pcr-tests-fraud.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22.jpg)
+2. 澳大利亚新洲1月6日确诊数1万332人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-223.jpg)
+3. 七哥爆料哈萨克斯坦暴乱真实原因
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-224-1.jpg)
+4. 哈萨克斯坦向俄罗斯求助，目前死亡人数达8人。哈萨克斯坦人口1900万，国土面积为法国5倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-2245.jpg)
+5. 印尼限制动力煤出口，上百艘货船停靠港口等待解令。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22456.jpg)
+6.加密货币基金2021年流入资金93亿美元，同比2020年增长36%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-224567.jpg)
+7.福特汽车2021年美国汽车销量下降6.8%
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-2238-1.jpg)
+8. 奔驰设想推出最高效续航达一千公里电动车
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-2239-1.jpg)
+9.墙国计生
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-2210.jpg)
+10. 苹果成为有史以来第一个市值3万亿美元的公司
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22-11-1.jpg)
+11. 备份系统故障，京都大学丢失77t数据
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22-12-1.jpg)
+12. 2022年趋势之一是在家里挖矿（虚拟货币）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22133-1.jpg)
+13.比特币现价
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220106-22-14.jpg)fafa’gfa’gafa’gao发稿
+发稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

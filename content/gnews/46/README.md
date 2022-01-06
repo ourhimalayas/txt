@@ -2,27 +2,24 @@
 ---
 
 
-## 【中日财经爆】“债券天王”冈拉克：中共国不可投资 会被没收
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827089/)
+## 【中日财经爆】立陶宛终止国营铁路公司与中资公司签约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1827192/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-20.jpg)[图片来源](http://ifinance.ifeng.com/16195979/news.shtml?&amp;back)
-“中共国不可投资”！在美国有新“债券天王”称号的DoubleLine公司执行长冈拉克（JeffreyGundlach）在接受美国雅虎新闻采访时，直指中共国目前是不可投资的，他表示不相信中共国的数据，也不相信美国和中共国的关系，在中共国的投资可能会被没收，这是有风险的。因此无论是长线或短线，他认为中共国不是很好的投资标的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-289.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fsinakd20210823s%2F186%2Fw603h383%2F20210823%2Fa668-f0bd3fc71c601812aa62e8bee22a455b.png&amp;imgrefurl=https%3A%2F%2Fnews.sina.cn%2Fgn%2F2021-08-23%2Fdetail-ikqcfncc4414233.d.html&amp;tbnid=iD41WTCubATgzM&amp;vet=12ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ..i&amp;docid=sYFJXETgjk8zcM&amp;w=603&amp;h=383&amp;itg=1&amp;q=%E7%AB%8B%E9%99%B6%E5%AE%9B%E7%BB%88%E6%AD%A2&amp;ved=2ahUKEwito7XBm5z1AhVCbJQKHb09AMgQMygMegUIARCxAQ)
+立陶宛去年允许台湾于维尔纽斯设立“驻立陶宛台湾代表处”后，中共持续对立陶宛施压并恶意采取政治与经济报复手段。立陶宛总理发言人告诉“波罗的海通讯社”（BNS），立陶宛政府今天（1月5日）下令，基于国家安全利益考量，立陶宛国营的铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
 
-这位美国的债券大王在他的加州庄园受访时自爆，他自己从来没有在中共国做多或做空过。为什么？“因为我不相信数据”，他从来没有在中共国投资过，无论是长线或是短线。冈拉克奉劝投资者将资金投入中共国市场前，千万要三思而后行。
+根据路透社报导，在西班牙登记的公司Puentes yCalzadas Infraestructuras以最低出价6250万欧元，赢得了一项在立陶宛的桥梁建设招标。该在公司网站上将中国路桥集团国际建设股份有限公司列为母公司。
 
-冈拉克表示，他已经不再相信美中关系，而且认为在中共国的投资可能会被没收，“我认为有这种风险”。
+国营立陶宛铁路公司去年曾表示，已要求政府审查这项合约，并认为这家公司与“中共国的关系”为合约风险之一。立陶宛政府今天下令，基于“国安利益”考量，立陶宛铁路公司不与中共国拥有的西班牙桥梁建造商签署合约。
 
-报导指出，冈拉克的担忧已经被证实，因为中共国对包括滴滴在内的大型社交网络公司的营运持续打压，造成滴滴不得已计画从纽约证券交易所退市；而中共国政府也打击教育集团，包括课外辅导公司，造成补教公司的股价在2021年暴跌95%。
+驻立陶宛台湾代表处去年11月18日正式挂牌，立陶宛也规划在台设处，引发中共强烈不满，祭出多项报复，包括砍订单、抱怨立陶宛农作物病虫害，海关系统移除立陶宛导致无法清关；中共国国有企业“中铁集装箱”中断直达立陶宛的铁路货运；北京锁定跨国公司施压，要求断绝与立陶宛往来；欧盟成员国产品若使用立陶宛首产的零组件也会受刁难。
 
-对于未来投资，冈拉克对新兴市场越来越乐观，但强调“中共国除外”，他认为中共国不再是新兴市场。
+消息来源：[中國又搬石頭砸自己腳！ 立陶宛下令國營鐵路公司不與中資建商簽約](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%88%E6%90%AC%E7%9F%B3%E9%A0%AD%E7%A0%B8%E8%87%AA%E5%B7%B1%E8%85%B3-%E7%AB%8B%E9%99%B6%E5%AE%9B%E4%B8%8B%E4%BB%A4%E5%9C%8B%E7%87%9F%E9%90%B5%E8%B7%AF%E5%85%AC%E5%8F%B8%E4%B8%8D%E8%88%87%E4%B8%AD%E8%B3%87%E5%BB%BA%E5%95%86%E7%B0%BD%E7%B4%84-232037817.html)
 
-消息来源:
-
-[「我不相信美中關係」美債券天王：中國不可投資](https://tw.news.yahoo.com/%E6%88%91%E4%B8%8D%E7%9B%B8%E4%BF%A1%E7%BE%8E%E4%B8%AD%E9%97%9C%E4%BF%82-%E7%BE%8E%E5%82%B5%E5%88%B8%E5%A4%A9%E7%8E%8B-%E4%B8%AD%E5%9C%8B%E4%B8%8D%E5%8F%AF%E6%8A%95%E8%B3%87-012152204.html)
 *校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
