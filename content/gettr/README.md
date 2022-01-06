@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 8:27 PM (UTC)`
+
+1月6号：<br/><br/><br/>The Whistleblower Movement and the NFSC seem to have ways to accurately predict the moves of the CCP. Four weeks ago, Miles projected again that Chen Quanguo would be getting a promotion rather than a demotion-a popular view held by many. This's the 3rd time that Mr. Miles Guo scored on his prediction of Chen’s career moves. The other two times happened three and one year ago respectively.  Here are the appointments for the 20th National Congress: Xi Jinping, President – the Sun; Hu Chunhua, Prime Minister; Chen Miner, First Deputy Prime Minister; Chen Quanguo, Secretary of the Central Commission for Discipline & Inspection; Li Xi, Chairman of the Chinese People’s Political Consultative Conference; Ding Xuexiang, Chairman of the National People’s Congress...
+![img](https://media.gettr.com/group43/getter/2022/01/06/20/83985096-f55b-6bdd-ce77-d7aaa8767669/62835b168cd5387e1daf057e1403da7f.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@michaelgwaltz 12/13/2021 2:05 PM (UTC)`
@@ -156,13 +163,6 @@ Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is 
 
 1/5/2022 Miles Guo: The President of Lithuania admitted that he was wrong about the Taiwan issue due to Xi blackmailing him with the secrets of his private life; I have been talking about Kazakhstan and Nazarbayev since 2017. That the CCP never exports revolutions is a lie, and the riot is the price paid for Kazakhstan’s collusion with the CCP<br/><br/>1/5/2022 文贵直播：立陶宛总统就台湾问题认错因其把柄被习近平抓住；文贵从2017年就开始谈哈萨克斯坦和纳扎尔巴耶夫，“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价
 ![img](https://media.gettr.com/group10/getter/2022/01/06/00/9da749d5-472b-0929-7980-6cdc74155a4e/out.jpg)
-
----
-
-`@miles 1/6/2022 12:25 AM (UTC)`
-
-1/05/2021 Miles Guo: Was the riot happening in Kazakhstan provoked by the CIA or part of the CCP’s insidious plan? The President of Kazakhstan will face serious consequences if he refuses to hand over the CCP kleptocrats’ gold to Xi. It’s said that the President has backed down, but as always, the CCP will blame the US for the riot<br/><br/>1/05/2021 文贵直播：哈萨克斯坦暴乱到底是美国CIA挑唆，还是中共使坏？哈总统拒绝返还中共盗国贼的黄金，后果很严重；据说哈总统已服软，但中共这一次照样会甩锅给美国<br/>
-![img](https://media.gettr.com/group16/getter/2022/01/06/00/9de03529-b39e-ca4a-c374-51d0e109685a/out.jpg)
 
 ---
 
