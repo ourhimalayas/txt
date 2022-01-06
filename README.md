@@ -15,85 +15,85 @@
 
 ---
 
-### [龙头变龟头透露共产党的恐惧和绝望,而我们有无尽的希望](/content/gnews/1/README.md)
+### [中俄狼狈：台湾比乌克兰更加危险](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [龙头变龟头透露共产党的恐惧和绝望,而我们有无尽的希望](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [CDC外部专家小组建议向青少年接种中共病毒疫苗加强针](/content/gnews/2/README.md)
+### [CDC外部专家小组建议向青少年接种中共病毒疫苗加强针](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产主义创伤就是让人变得无知自私最后就变成了动物](/content/gnews/3/README.md)
+### [共产主义创伤就是让人变得无知自私最后就变成了动物](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日澳将签署“历史性”防务安全条约](/content/gnews/4/README.md)
+### [日澳将签署“历史性”防务安全条约](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [日本农场绝不可错过作为美国之外的第二喜币市场的日本](/content/gnews/5/README.md)
+### [日本农场绝不可错过作为美国之外的第二喜币市场的日本](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共在冬奥会前加大言论监控](/content/gnews/6/README.md)
+### [中共在冬奥会前加大言论监控](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2022年对韩国和日本农场是巨大考验,必须联合作战灭共](/content/gnews/7/README.md)
+### [2022年对韩国和日本农场是巨大考验,必须联合作战灭共](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12/29文贵直播：刘亚洲被抓前见了曾庆红和王岐山（粤语配音）](/content/gnews/8/README.md)
+### [12/29文贵直播：刘亚洲被抓前见了曾庆红和王岐山（粤语配音）](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：拜登军事法案重点在于针对中共秘密军事力量（粤语配音）](/content/gnews/9/README.md)
+### [12/29文贵直播：拜登军事法案重点在于针对中共秘密军事力量（粤语配音）](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系（粤语配音）](/content/gnews/10/README.md)
+### [12/29/2021 文贵直播：秦刚污蔑班农和文贵这帮人造成中美紧张关系（粤语配音）](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：拜登最近签署的法案意义重大（粤语配音）](/content/gnews/11/README.md)
+### [12/29文贵直播：拜登最近签署的法案意义重大（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/29文贵直播：杨洁篪和王毅说现在是打台湾的最佳时期（粤语配音）](/content/gnews/12/README.md)
+### [12/29文贵直播：杨洁篪和王毅说现在是打台湾的最佳时期（粤语配音）](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/22文贵直播：国家安全委员会卑鄙手段处理彭帅事件（粤语配音）](/content/gnews/13/README.md)
+### [12/22文贵直播：国家安全委员会卑鄙手段处理彭帅事件（粤语配音）](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](/content/gnews/14/README.md)
+### [纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [即将到来的人类最黑暗的2022年里钱血组不要输掉本质](/content/gnews/15/README.md)
+### [即将到来的人类最黑暗的2022年里钱血组不要输掉本质](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日美外交大臣就驻日美军基地奥密克戎蔓延一事电话协商](/content/gnews/16/README.md)
+### [日美外交大臣就驻日美军基地奥密克戎蔓延一事电话协商](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宋祖英彭丽媛那英是必须参加群啪和被人拉屎尿尿的盆景](/content/gnews/17/README.md)
+### [宋祖英彭丽媛那英是必须参加群啪和被人拉屎尿尿的盆景](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [国际奥委会摊上“新疆棉” 撇不清扯不明罔顾左右而言他](/content/gnews/18/README.md)
+### [国际奥委会摊上“新疆棉” 撇不清扯不明罔顾左右而言他](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [对抗中共 日澳正式签署《互惠准入协定》](/content/gnews/19/README.md)
+### [对抗中共 日澳正式签署《互惠准入协定》](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [用病毒及疫苗减少人口的原因或动机是什么？](/content/gnews/20/README.md)
+### [用病毒及疫苗减少人口的原因或动机是什么？](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [恶魔的国里 那些苦难的女人](/content/gnews/21/README.md)
+### [恶魔的国里 那些苦难的女人](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [布林肯：将共同反抗中共对立陶宛的胁迫](/content/gnews/22/README.md)
+### [布林肯：将共同反抗中共对立陶宛的胁迫](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [习拍案叫绝的报告连标点符号都是抄自德国二战后的审判](/content/gnews/23/README.md)
+### [习拍案叫绝的报告连标点符号都是抄自德国二战后的审判](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [已接种加强针的波兰总统再度确诊](/content/gnews/24/README.md)
+### [已接种加强针的波兰总统再度确诊](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [魁北克省政府称“应该出台针对未接种疫苗者的措施”](/content/gnews/25/README.md)
+### [魁北克省政府称“应该出台针对未接种疫苗者的措施”](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [音乐是影响人一生最长远的超过核武器力量的精神核武器](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [共产党没有个体只有以集体为单位泯灭人性的洗脑红歌](/content/gnews/27/README.md)
+### [音乐是影响人一生最长远的超过核武器力量的精神核武器](/content/gnews/27/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [郭文贵直播摘要和音频 2022.01.05](/content/gnews/28/README.md)

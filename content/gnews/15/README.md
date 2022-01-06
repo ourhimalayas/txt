@@ -2,44 +2,36 @@
 ---
 
 
-## 即将到来的人类最黑暗的2022年里钱血组不要输掉本质
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1827857/)
+## 纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1827868/)
 
-**郭文贵先生**：我们在今天我们想特别重要的，我就有两个希望：我希望2022年，在我们将迎来人类上最黑暗的时间里面，铁血组不要输掉了、也不要丢掉了我们铁血组的本质，“铁”和“铁血”。铁血本身就不能有自己，一定要给战友们看，应该爱战友，一切以灭共为核心！
+#### 撰稿：日本东京方舟农场 北极
 
-这不是共产党要求的奉献，也不是共产党要求的爹亲娘亲不如党亲，我们要一切服务的不是七哥、不是任何人，就是灭共，这时候必须要无我，因为只有灭了共我们才能拥有一切。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/65657A18-E0BB-4452-B8F7-83ED0978B1D6.jpeg)纽约新市长亚当斯（Eric Adams）（图片来自德国之声中文网）
 
-第二个我希望的事情，我们铁血组今年更多的而不是说开会，更多的而不是说仅仅是协调，我们今年一定要以身作则，把整个新中国联邦像昨天看到《我是音雄》一样，叫大家认识到铁血组真正的是能包容战友、爱战友、替战友解决问题，而且能把我们的联盟委员会提高到一个最高的层次，高效率、高质量、高道德，让共产党听到“铁血组”就让它发抖！就让它男的女的全流水，全让它流水，叫它水流成河，这就是我们今年铁血组要干的事儿。
+1月4日，美国纽约新任市长亚当斯（Eric Adams）在记者会上发表演讲，他呼吁白宫应该就前总统川普（Donald Trump）将新冠病毒称为“中国病毒（China Virus）”等言论向美国华人公开道歉。
 
-所以说今天特别感谢老班长、长岛哥、东弟颖妹妹、如水、大卫、草根兄弟、木兰妹妹，今天在这个关键时刻，我们铁血组2022年是由我们先开始的，就让今年这个未来的365天走向一个新的阶段吧。谢谢兄弟姐妹们！谢谢！
+新年第一天刚刚宣誓就任的纽约市长亚当斯表示，现任美国总统应该站出来，以美国人民的名义向华人社区道歉。我希望他对这个国家的华人居民说，我们为说过的话，做过的事道歉。在疫情期间，我们造成了人们与华人社区的对立。
 
-字幕来源：[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](https://gnews.org/zh-hans/1816030/)
+在记者会上，亚当斯表示将在当日向拜登发出正式信函。他说到，“我们永远不会允许椭圆形办公室（美总统办公室）被用来攻击我们国家的人民。”
 
-编辑整理：Jacques；
+白宫目前尚未对此做出置评。
 
-字幕文件制作：小满；
+此前，民主党人士一直谴责川普关于新冠病毒是“中国病毒”的言论，并指责他在一次集会上戏称新冠是“功夫流感”。该党人士指这些表态鼓励了反亚裔言论。
 
-视频制作及上传：Cindy；
+今年5月，拜登总统签署了一项立法，以打击反亚裔仇恨犯罪上升。之前在三月中旬，佐治亚州发生大规模枪击事件中，造成8人死亡，其中6人是亚裔女性。
 
-G-News发布：小满；
+根据加州州立大学圣贝纳迪诺分校（San Bernardino）仇恨与极端主义研究中心的数据，去年第一季度，在美国最大城市中向警方报告的反亚洲仇恨犯罪同比增长189％。同期纽约此类犯罪增长262％。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+*参考链接：[纽约市长呼吁白宫为“中国病毒”说法向美国华人道歉](https://www.dw.com/zh/%E7%BA%BD%E7%BA%A6%E5%B8%82%E9%95%BF%E5%91%BC%E5%90%81%E7%99%BD%E5%AE%AB%E4%B8%BA%E4%B8%AD%E5%9B%BD%E7%97%85%E6%AF%92%E8%AF%B4%E6%B3%95%E5%90%91%E7%BE%8E%E5%9B%BD%E5%8D%8E%E4%BA%BA%E9%81%93%E6%AD%89/a-60335789)*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*素材采编：北极*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*编辑： 文顺*
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 
