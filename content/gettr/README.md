@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 12:20 AM (UTC)`
+
+1/5/2022 Miles Guo: The President of Lithuania admitted that he was wrong about the Taiwan issue due to Xi blackmailing him with the secrets of his private life; I have been talking about Kazakhstan and Nazarbayev since 2017. That the CCP never exports revolutions is a lie, and the riot is the price paid for Kazakhstan’s collusion with the CCP<br/><br/>1/5/2022 文贵直播：立陶宛总统就台湾问题认错因其把柄被习近平抓住；文贵从2017年就开始谈哈萨克斯坦和纳扎尔巴耶夫，“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价<br/>
+![img](https://media.gettr.com/group9/getter/2022/01/06/00/82658862-b1bd-bdbc-2c52-296ef98c3152/out.jpg)
+
+---
+
+`@miles 1/6/2022 12:15 AM (UTC)`
+
+1/5/2022 Miles Guo: Nursultan Nazarbayev, Wang Qishan’s best buddy, helped Wang and Jiang Zemin hide 100 tons of gold in Kazakhstan; Xi Jinping had sent Wang Yi to ask Nazarbayev for the gold, and a social unrest occurred right after Wang Yi left Kazakhstan; Nazarbayev threatened Xi that he would establish a diplomatic relationship with Taiwan if Xi demanded gold from him again<br/><br/>1/5/2022 文贵直播：扎尔巴耶夫是王岐山最好的哥们儿，帮王和江藏了100吨黄金在哈萨克斯坦；习近平派王毅找扎尔巴耶夫要黄金，王毅刚走哈萨克斯坦就发生了动乱；纳扎尔巴耶夫竟威胁习，称若习再来要黄金就和台湾建交<br/>
+![img](https://media.gettr.com/group46/getter/2022/01/06/00/70d582e5-3085-c554-3693-d3ee20479c7d/out.jpg)
+
+---
+
 `@miles 1/5/2022 11:33 PM (UTC)`
 
 1月5号：战友做的这个视频实在是太棒了，文贵在此向您鞠九躬……衷心的感谢……如果有英文字幕……那就更好了……
@@ -146,21 +160,6 @@ I’m calling on every Republican to LEAVE Twitter! <br/><br/>The truth is under
 
 2021 Year In Review<br/><br/>2021年大事回顾
 ![img](https://media.gettr.com/group12/getter/2022/01/04/06/9b90a8cc-c87c-e7f8-59bd-5be3f250cbe2/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@realmattcouch 1/4/2022 1:57 AM (UTC)`
-
-Bacteria is a life on Mars, but a heartbeat isn't life on earth... Weird..
-
----
-
-`@miles 1/4/2022 1:21 AM (UTC)`
-
-1月3号：【七哥好，上边的截图是昨天小Sarah接到一个工程师的电话，说他刚从国内逃出来，现在在多伦多，一家三口人生活上钱不够用，想把之前要存去HDO的4万美金拿回来做生活费，请小Sarah帮忙沟通一下找木兰；<br/>在通话过程中了解到他生活上基本生活的家具都没有呢，很多商店都缺货买不到；<br/>然后，我让小Sarah马上联系卢比肯的太太（她是给卖房经济做家居摆设的，疫情之下就不做了，有很多家居正在出卖）约了一下今天去她的库房看看；<br/>这位战友还没有车子，今天卢比肯和他太太亲自驾车去接战友到库房，<br/>来回跑了两趟送家具，一分没要；<br/><br/>在七哥的带领下，真的都是爱战友！把战友都当家人！感动！🙏🙏🙏一群有爱的人在一起，这就是灭共的力量和灭共的信心！💪💪💪】
-![img](https://media.gettr.com/group10/getter/2022/01/04/01/4e4a7d6a-0bdf-3734-b440-2eb4e102983a/5c241417a921cad3e18fad26903c2e8c.jpg)
 
 ---
 
