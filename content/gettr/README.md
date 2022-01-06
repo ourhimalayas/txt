@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 1/6/2022 12:20 AM (UTC)`
+`@miles 1/6/2022 12:31 AM (UTC)`
 
-1/5/2022 Miles Guo: The President of Lithuania admitted that he was wrong about the Taiwan issue due to Xi blackmailing him with the secrets of his private life; I have been talking about Kazakhstan and Nazarbayev since 2017. That the CCP never exports revolutions is a lie, and the riot is the price paid for Kazakhstan’s collusion with the CCP<br/><br/>1/5/2022 文贵直播：立陶宛总统就台湾问题认错因其把柄被习近平抓住；文贵从2017年就开始谈哈萨克斯坦和纳扎尔巴耶夫，“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价<br/>
-![img](https://media.gettr.com/group9/getter/2022/01/06/00/82658862-b1bd-bdbc-2c52-296ef98c3152/out.jpg)
+1/5/2022 Miles Guo: The President of Lithuania admitted that he was wrong about the Taiwan issue due to Xi blackmailing him with the secrets of his private life; I have been talking about Kazakhstan and Nazarbayev since 2017. That the CCP never exports revolutions is a lie, and the riot is the price paid for Kazakhstan’s collusion with the CCP<br/><br/>1/5/2022 文贵直播：立陶宛总统就台湾问题认错因其把柄被习近平抓住；文贵从2017年就开始谈哈萨克斯坦和纳扎尔巴耶夫，“中共不输出革命”是谎言，哈萨克斯坦的动乱是跟中共为伍的代价
+![img](https://media.gettr.com/group10/getter/2022/01/06/00/9da749d5-472b-0929-7980-6cdc74155a4e/out.jpg)
+
+---
+
+`@miles 1/6/2022 12:25 AM (UTC)`
+
+1/05/2021 Miles Guo: Was the riot happening in Kazakhstan provoked by the CIA or part of the CCP’s insidious plan? The President of Kazakhstan will face serious consequences if he refuses to hand over the CCP kleptocrats’ gold to Xi. It’s said that the President has backed down, but as always, the CCP will blame the US for the riot<br/><br/>1/05/2021 文贵直播：哈萨克斯坦暴乱到底是美国CIA挑唆，还是中共使坏？哈总统拒绝返还中共盗国贼的黄金，后果很严重；据说哈总统已服软，但中共这一次照样会甩锅给美国<br/>
+![img](https://media.gettr.com/group16/getter/2022/01/06/00/9de03529-b39e-ca4a-c374-51d0e109685a/out.jpg)
 
 ---
 
@@ -153,13 +160,6 @@ I’m calling on every Republican to LEAVE Twitter! <br/><br/>The truth is under
 
 1月4号：我的那乖乖来……这个世界变化太大了<br/><br/>Incredible tweet from Turley who is NO trump fan<br/><br/><br/>You should reach out Jason <br/><br/><br/>Jonathan Turley (@JonathanTurley) Tweeted:<br/>Twitter is continuing to crackdown on conservatives and those who espouse dissenting views. The latest bans, however, led to Joe Rogan to move over to Gettr. https://t.co/LjZLwV0WdV Much like the MSM, Twitter seems to be ditching half of the country. https://t.co/bQDr3tJcXq<br/>https://twitter.com/JonathanTurley/status/1477992218506018817?s=20
 ![img](https://media.gettr.com/group35/getter/2022/01/04/13/c9b8beaa-9da4-314d-b0c1-682dd5503e64/7f02ae0fb1eae4c8ece7b8e99e242602.jpg)
-
----
-
-`@miles 1/4/2022 6:00 AM (UTC)`
-
-2021 Year In Review<br/><br/>2021年大事回顾
-![img](https://media.gettr.com/group12/getter/2022/01/04/06/9b90a8cc-c87c-e7f8-59bd-5be3f250cbe2/out.jpg)
 
 ---
 
