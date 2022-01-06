@@ -2,30 +2,42 @@
 ---
 
 
-## 人权组织批国际奥委会不愿就新疆问题进行对话
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1827163/)
+## 朝鲜声称再次进行高超音速导弹试验，金正恩没有参加
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1827188/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-5.jpg)人权组织批国际奥委会不愿就新疆问题进行对话 网络图片
-据美国之音1月6日报道，一个名为“结束维吾尔地区强迫劳动联盟”的人权组织4日发表声明，呼吁IOC国际奥委会解释，采取了什么措施确保北京冬奥会相关的奥运品牌服装等物品的生产没有使用强迫劳动。该“联盟”表示，随着美国禁止新疆强迫劳动产品的法律生效，国际奥委会拒绝与该组织对话，而是依赖中共国自己调查自己。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-这个由来自40个国家超过400个组织组成的联盟批评国际奥委会没有提供可信的证据，证明与北京冬奥会有关的数以千计的带有奥运标志的商品的生产，不涉及新疆的强迫劳动。如果国际奥委会不愿意披露采取了哪些具体步骤，就必须解释原因。
-
-天赋人权，生命是上天的眷顾，任何人没有权利剥夺他人的生命。中共公然践踏人权，强制关押上百万新疆维吾尔人。作为自由、和平、公平的体育精神的象征，国际奥委会屈服于中共的淫威，不敢为新疆发声，也不敢抵制北京冬奥会，实在有违奥运精神。中共对世界和平和体育精神的霸凌，不是西方世界的谴责和制裁就可以解决的，需要采取行动。
-
-新闻参考链接：[https://www.voachinese.com/a/IOC-criticized-by-rights-group-for-ignoring-Xinjiang-20220105/6383995.html](https://www.voachinese.com/a/IOC-criticized-by-rights-group-for-ignoring-Xinjiang-20220105/6383995.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/North-Korea-claims-another-hypersonic-missile-test.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+ 
+图片来源：www.dailyadvent.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+#### 编译：小红帽
 
+根据《RT新闻》1月5日报道， **朝鲜表示，其在最近的一次试验中成功发射了一枚高超音速导弹，并声称在华盛顿谴责此举 “破坏稳定”之后，该导弹击中了数百英里之外的目标。**
+
+《朝鲜中央通讯社》星期四表示，在试射期间，导弹“精确地击中了朝鲜东海岸约700公里（435英里）的既定目标”，并补充说，领导人金正恩没有参加发射。
+
+韩国军方在周三首次报道了这次发射，这是自去年10月以来的第一次。此后，首尔敦促朝鲜 “真诚地回应我们通过对话实现和平与合作的努力”。
+
+就在试验后几个小时，韩国总统文在寅出席了一条穿过边境城镇高城的铁路线的奠基仪式。这是重新连接两个邻国之间交通的努力之一。
+
+美国国务院谴责这次导弹试验 “违反了联合国安理会的多项决议”和“对朝鲜邻国和国际社会的威胁”。然而，华盛顿的印太司令部早些时候承认，“这一事件没有对美国人员或领土或我们的盟友构成直接威胁”，但仍抨击这次发射在该地区产生了 “破坏稳定的影响”。
+
+平壤在去年9月的另一次试验后，首次声称拥有高超音速武器–华星-8导弹，但首尔的军事官员表示，当时该弹药似乎处于早期开发阶段。
+
+新闻来源：[North Korea claims another hypersonic missile test — RT World News](https://www.rt.com/news/545265-north-korea-unveils-missile/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

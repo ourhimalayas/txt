@@ -2,55 +2,58 @@
 ---
 
 
-## 参议院2022中期选举之华盛顿州
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1824775/)
+## 1/5/2022 国际财经快讯：日本央行可能调高下一财年的通胀预测；中国恒大寻求推迟在岸债券的支付时间
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1825243/)
 
-整理报道：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22.jpg)图片来源：墨尔本雅典娜农场彩虹
-根据华盛顿的选举法规，采用的规则是初选中得票最高的两位（Top-two Primary Election）进入大选（General Election），无论前两位属于那一个政党。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210105-2.jpg)[图片来源](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2022/01/2022-01-05T093145Z_2_LYNXMPEI040BG_RTROPTP_0_JAPAN-ECONOMY-BOJ_1.jpg)
+**1.日本央行可能调高下一财年的通胀预测**
 
-华盛顿州的初选将于2022年8月2日举行，大选将于2022年11月8日举行。
+[东京（路透社）–消息人士称，由于能源成本上升，日本央行预计将略微上调其对4月份开始的财政年度的通胀预测，尽管新的预测仍将使价格增长低于其2%的目标。熟悉日本央行想法的五位消息人士说，随着燃料和原材料成本上升导致价格上涨的范围扩大，董事会可能会预测下一财年的通胀率超过1%。这高于10月份作出的最新预测，即在3月底结束的本财年出现平缓增长后，2022财年的核心消费者通胀率将加速至0.9%。](https://www.oann.com/boj-may-revise-up-next-fiscal-years-inflation-forecast-sources/)
 
-2022年，华盛顿州现联邦参议员帕蒂·莫瑞（Patty Murray）六年任期到期。出生于1950年，现年72岁的莫瑞还想继续参选连任联邦参议员。
+[“虽然能源成本是通胀率上升的主要驱动因素，但有迹象表明更多公司开始提价，”其中一位消息人士说。由于未获授权公开发言，这些消息人士在匿名的情况下发言。日本央行将在1月17-18日的下一次政策会议上提出新的季度预测。](https://www.oann.com/boj-may-revise-up-next-fiscal-years-inflation-forecast-sources/)
 
-莫瑞在1992年首次当选为华盛顿州联邦参议院议员，成为该州第一名女性联邦参议员，她也在1998年、2004年、2010年、2016的选举中获得连任。莫瑞于2007年开始成为多数党会议秘书，令她成为在参议院第四排名最高的民主党人和最高排名的女性。
+**2.法国12月服务业增长略低于初值**
 
-在2021年参议院通过的《防止强迫维吾尔人劳动法》法案中，帕蒂·莫瑞是联合提案人。
+[巴黎（路透社）–据一项月度调查显示，由于COVID-19大流行病的影响，法国服务业12月份的增长略低于最初的估计。数据编制机构IHS Markit周三表示，其12月份服务业采购经理人指数（PMI）降至57.0点，低于11月份的57.4点，略低于57.1点的初值。然而，该指数仍然高于划分活动扩张和收缩的50点阈值，包括服务业和制造业在内的综合PMI指数从11月的56.1点下降到12月的55.8点，略好于其最初估计的55.6点。商业活动的增长速度是6月以来的第二快，仅比11月的增长速度略高。IHS Markit高级经济学家Joe Hayes说：”传闻表明，对服务的需求仍然强劲，导致积压的工作和招聘的继续。”](https://www.oann.com/french-services-growth-in-december-slightly-below-initial-reading-pmi/)
 
-本次选举，参与竞选的共和党人为蒂芙尼·史麦利（Tiffany Smiley）。出生于1983年，现为三个孩子的母亲。她的故事很有说服力。16年前，她接到一个改变生活的电话，她的丈夫斯科特·史麦利（Scotty Smiley）是美国西点军校的毕业生，在伊拉克服役，他的眼睛永久性失明，可能无法生存。史麦利立即辞去了她的分诊护士工作，飞往沃尔特·里德陆军医疗中心（Walter Reed Army Medical Center），陪伴在他身边。她说，在那里，她发现一个官僚和无能的系统正试图将她丈夫赶出军队，不能或不愿为他提供完全康复所需的护理。
+**3.澳大利亚12月招聘广告下降5.5%**
 
-史麦利与五角大楼和退伍军人事务局进行了斗争并取得了胜利，她的丈夫得到了他所需要的护理，并成为军队中第一位盲人现役军官。她继续以作家、演讲者和顾问的身份帮助其他妇女面对和迎接挑战。现在，她说她要为华盛顿州被遗忘的家庭而战。
+[悉尼（路透社）–由于一些职位被填补，澳大利亚的招聘广告在两个月的大幅增长之后，在12月有所下滑，而中共病毒病例的回升可能对雇主产生了一些影响。周三澳大利亚和新西兰银行集团有限公司的数据显示，12月的招聘广告总数比11月下降了5.5%，11月的招聘广告向上修正为9.9%。广告仍然比去年同期增长了32.7%，达到212,098条，比2021年6月Delta变体首次出现时增长了4.2%。](https://www.oann.com/australia-job-advertisements-fall-5-5-in-dec-anz/)
 
-史麦利以前从未竞选过公职，而首次参选的候选人很少能击败强大的现任者。但这也是业内人士当时对民主党候选人莫瑞的看法，当时她作为一名活动家开始为教育改革工作。莫瑞击败了人们的成见，成为了华盛顿州参议员，然后在多人竞争中胜出，进入华盛顿特区。
+[澳新银行高级经济学家凯瑟琳-伯奇（Catherine Birch）指出，11月份报告的就业人数大幅增加366,100人，表明一些尚未填补的职位已被填补，是广告下降的部分原因。”她补充说：”但也有可能是由于Omicron的蔓延以及随之而来的围绕消费者行为和工人可用性的不确定性，企业在招聘方面变得更加犹豫不决。](https://www.oann.com/australia-job-advertisements-fall-5-5-in-dec-anz/)
 
-史麦利首先拥有强大的媒体和演讲经验。她经常在电视上做客，包括福克斯新闻，对聚光灯并不陌生。无论是她自己的广告还是当地新闻节目的采访，她都会在电视上给人留下深刻的印象。
+**4.德国卡特尔办公室加大对谷歌产品的审查力度**
 
-她的背后还有共和党的重磅支持。她的民意调查员是塔兰斯集团(Tarrance Group)的埃德·高斯(Ed Goaes)，他是美国共和党的主要民意调查员之一，而著名的顾问公司布拉本德·考克斯(BrabenderCox)则负责她的竞选。
+[柏林，1月5日（路透社）–德国卡特尔办公室表示，它正在根据其监管互联网公司的新权力审查谷歌对个人数据的使用及其谷歌新闻展示产品，同时也在考虑涉及亚马逊、苹果和Facebook所有者Meta的案件。](https://www.reuters.com/technology/german-cartel-office-examining-google-considering-cases-involving-amazon-apple-2022-01-05/)
 
-史麦利也与最近许多共和党首次参选的候选人不同，她不是作为一个MAGA运动的人士参选。她的竞选网站没有突出政党、意识形态或前总统川普。她使用舒缓的蓝色和绿色，而不是川普拥护者通常采用的MAGA红色，她把自己表达为一个邻居，而不是一个政客，她对寻找解决就业和教育等挑战的方法感兴趣。同样值得注意的是，她的议题部分强调了公平贸易政策的必要性，如前总统川普为取代《北美自由贸易协定》而谈判达成的《美墨西加协定》以及工人培训。
+[该监管机构周三表示，它已经确定谷歌的所有者Alphabet(GOOGL.O)达到了公司所需的规模门槛，可以接受其去年收购的大型互联网公司的新扩展监管权力。”联邦卡特尔办公室现在可以处理损害竞争的具体行为形式，”办公室主席Andreas Mundt说。”我们已经开始更深入地研究谷歌对个人数据的处理和谷歌新闻展示的话题。”他补充说，该办公室还在考虑涉及亚马逊、苹果（AAPL.O）和Facebook所有者Meta（FB.O）的进一步案件。](https://www.reuters.com/technology/german-cartel-office-examining-google-considering-cases-involving-amazon-apple-2022-01-05/)
 
-史麦利本人对她如何应对未来的挑战有很好的认识。她说她之所以参选是因为“我们需要一个值得信赖的斗士为我们的未来站出来”。当被问及她将如何回应有关堕胎的问题时，她强调了她作为妇产科分诊护士与害怕的孕妇打交道的经验，她说：“保留你的孩子不应该是一张通往贫穷或无法获得教育的门票”。 她反复提到需要团结起来寻求“常识性的解决方案”，她相信这一点会引起“传统的共和党选民”和可能不喜欢川普的妈妈们的共鸣。
+**5.印度法院搁置了亚马逊和Future之间的仲裁**
 
-分析文章认为，史麦利将需要很多这样的选民，因为华盛顿不是共和党人的友好地盘。自1994年以来，没有共和党人在该州的美国参议院竞选中获胜。共和党总统候选人早在1984年就没有在该州获胜，而共和党州长候选人自1980年以来就没有获胜。
+[新德里，1月5日（路透社）–鉴于印度反垄断机构暂停双方2019年的交易，印度法院周三停止了Future集团与疏远的合作伙伴亚马逊公司的仲裁程序。这一决定对美国电商巨头来说是一个挫折，它曾成功利用2019年对Future部门的投资条款来阻止印度零售商向竞争对手出售资产的企图。](https://www.reuters.com/world/india/indian-court-puts-hold-arbitration-between-amazon-future-2022-01-05/)
 
-但是，这并不能阻止史麦利。她知道，莫瑞不再是那个与建制派对抗的勇敢妈妈，莫瑞就是建制派。正如莫瑞自己知道的那样，看低一个有伟大故事的坚强女性永远不是一个好主意。 根据公开资料，截止到2021年9月，莫瑞和史麦利各自筹集的资金位于所有参选人的前两位，如下图所示。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/midterm_2.png)图片来源：Ballotpedia
-**参考资料**
+[但在印度竞争委员会（CCI）上个月以亚马逊在寻求许可时压制信息为由暂停了2019年的交易后，Future向印度法院辩称，双方的仲裁没有法律依据，无法继续进行。德里高等法院首席法官D.N. Patel领导的一个由两名法官组成的法庭同意Future的论点，将新加坡的仲裁程序搁置。](https://www.reuters.com/world/india/indian-court-puts-hold-arbitration-between-amazon-future-2022-01-05/)
 
-[Rubio, Merkley Applaud Senate Passage of Uyghur Forced Labor Prevention Act](https://www.rubio.senate.gov/public/index.cfm/2021/7/rubio-merkley-applaud-senate-passage-of-uyghur-forced-labor-prevention-act)
+**6.美联储会议纪要前美元上涨暂停；日元处于5年低点**
 
-[United States Senate election in Washington, 2022](https://ballotpedia.org/United_States_Senate_election_in_Washington,_2022)
+[伦敦，1月5日（路透社）–美元周三持于两周高点之下，交易员们在等待美联储12月会议纪要的发布，对最早于3月加息的预期不断增强，使日元被钉在五年低点附近。虽然在过去两个月里，美国国债收益率上升导致绿币近3%的涨幅在本周消退，但交易员对在会议纪要发布前增加更多看涨美元的押注持谨慎态度。](https://www.reuters.com/markets/currencies/dollars-rise-pauses-before-fed-minutes-yen-5-year-lows-2022-01-05/)
 
-[Opinion: Patty Murray has a Republican challenger. She shouldn’t be too quick to dismiss her](https://www.washingtonpost.com/opinions/2021/04/16/patty-murray-tiffany-smiley-washington-senate-2022/)
+[总部位于伦敦的外汇咨询公司forexxtra的首席执行官John Marley说：”美联储会议纪要将给出一些很好的思维色彩，现在有许多问题笼罩着美联储，这些问题可以说是最重要的，比如加息多少次，缩减资产负债表的速度如何”。将于格林威治时间19点公布的会议纪要可能会强调美国决策者对通胀的新发现的敏感性，以及他们准备采取行动的意愿。市场已经加大了对3月份加息四分之一个百分点的押注，并在5月份之前完全定价。](https://www.reuters.com/markets/currencies/dollars-rise-pauses-before-fed-minutes-yen-5-year-lows-2022-01-05/)
 
-**发布：彩虹**
+**7.随着压力的增加，中国恒大寻求推迟在岸债券的支付时间**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[北京/香港，1月5日（路透社）–中国恒大集团（3333.HK）将在本周末与债券持有人的会议上寻求将45亿元人民币（1.57亿美元）债券的赎回和票息支付推迟六个月，这凸显了这家负债累累的房地产开发商所面临的压力。恒大正在努力偿还超过3,000亿美元的负债，其中包括近200亿美元的离岸债券，因为它错过了付款，被评级机构视为交叉违约。](https://www.reuters.com/business/china-evergrande-hold-meeting-with-bondholders-jan-7-10-2022-01-05/)
+
+[恒大的旗舰地产部门恒大在周三的一份声明中说，由于发行人的 “当前运营状况”，正在寻求推迟。它没有提供关于为什么寻求延迟的任何进一步细节。人民币债券持有人的在线会议将于1月7日至10日对一些提案进行投票。](https://www.reuters.com/business/china-evergrande-hold-meeting-with-bondholders-jan-7-10-2022-01-05/)
+
+**8.丰田汽车在近一个世纪的巅峰之后取代通用汽车成为美国销售的领导者**
+
+[路透社华盛顿1月4日电–日本汽车制造商丰田汽车公司(Toyota Motor Corp, 7203.T)2021年在美国的销量超过了通用汽车公司(General Motors Co, GM.N)，这是底特律汽车制造商自1931年以来首次没有在美国汽车销量中占据全年的领先地位。这两家汽车制造商周二表示，2021年丰田汽车在美国的销量为233.2万辆，而通用汽车为221.8万辆。](https://www.reuters.com/business/autos-transportation/toyota-poised-dethrone-gm-2021-us-sales-leader-2022-01-04/)
+
+[2021年，通用汽车的美国销量下降了13%–第四季度下降了43%–而丰田汽车全年增长了10%。通用汽车上一次销量下降是在2010年，为220.2万辆。2020年全年，通用汽车在美国的销售总量为255万辆，而丰田汽车为211万辆，福特汽车公司(F.N)为204万辆。](https://www.reuters.com/business/autos-transportation/toyota-poised-dethrone-gm-2021-us-sales-leader-2022-01-04/)
+
+By 【秘密翻译组-金融法律组】
+作者：千年等一回
 
  
 

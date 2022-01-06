@@ -2,30 +2,40 @@
 ---
 
 
-## &#8220;儿子死了，我做好了死的准备&#8221;…新型冠状病毒疫苗受害者遗属访问青瓦台
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1827247/)
+## 德国政府数据：完全接种中共疫苗者或将患上艾滋病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1827297/)
 
-韩国首尔天池农场
-翻译：势在必行
-校对：鱼子酱
-上传：无明逆流
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月2日外媒报道，德国政府数据显示，完全接种中共病毒疫苗者的免疫系统抵抗力下降了87%，即完全接种过疫苗的人免疫系统抵抗力只剩下最后的12.3%。到2022年1月底，大多数完全接种者或将全面爆发获得性免疫缺陷综合症，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-293.png)图片来自：https://notaakhirzaman.com/9014/
+据悉，德国政府的数据来源于Robert Koch研究所。德国人完全接种中共病毒疫苗的比例为70.53%，部分接种的比例为2.97%，其余是未接种者。对奥米克戎感染者的抽样调查显示，完全接种者比未接种者感染风险提高了8.12倍。同时，真正杀死免疫系统的是第三针疫苗。接种次数越多，免疫系统退化就越快。而未接种者相对要安全得多，同时正在形成对中共病毒的群体免疫。
 
-**12月30日首尔钟路区青瓦台喷水池**
+总编：童谣
 
-**新型冠状病毒 疫苗受害者家属协议会举行记者招待会**
+编辑：飞虹
 
-由于接种疫苗,孩子们的未来和家人的幸福都被粉碎了。这分明是可以阻止的事情。（虽然大胆地召开了记者招待会，但最终还是流下了眼泪）因为儿子死了，所以我是抱着不要命的心理出来的。今天也是请假出来的。就算我粉身碎骨，我的孩子都死了，什么是最重要的呢？改善受害者应对及反对进行疫苗通行证等向总统传达包含要求事项的书信代表团进入青瓦台后，遗属们仍然愤慨不已我家人死了，为什么什么都不让做呢？国民死于疫苗了。
+新闻来源：
 
-为什么装作不知道呢总统不是跟我们约好了吗？注射疫苗后产生副作用总统不是说要亲自负责吗？究竟为什么装作不知道呢？ 究竟为什么花样年华的高中生，什么都没做过，就死了20多岁的大学生们，你们怎么负责？我们的遗属们一天也不能过清醒的生活。{金斗京|新型冠状病毒疫苗受害者家属协议会会长}直到昨天还好好的父母、丈夫、妻子、兄弟姐妹、儿女们打完疫苗后死亡了。
 
-对追究因果性而愤怒的死者家属说是丧命钱，说要报销7400元和20900元。冠疫会(冠状，疫苗，受害家属协会)谴责疾病管理厅的态度打完疫苗一夜之间住进重症监护室的重病患者超过1万5千人。他们中死亡的人超过380人为了护理重症患者而辞去了工作因为医疗费、生活费、双重痛苦，国民正陷入绝境。
 
-卖房贷款这种痛苦由国民负责并承受着。从异常反应申报到因果性审议最快也要经过四五个月的审议这段时间要交的医疗费从数百万元到数千万元不等。怎么可以把所有双重、三重的痛苦全部推给只打疫苗的国民身上？真心为国民着想，就应该站出来应该抚慰国民的痛苦。
+> [Official German Government data suggests the Fully Vaccinated will develop Acquired Immunodeficiency Syndrome by the end of January 2022](https://dailyexpose.uk/2022/01/02/german-gov-data-suggests-fully-vaccinated-developing-ade/)
 
-참고링크: [“아들 죽었기에 나는 죽을 각오”…청와대 찾은 코로나19 백신 피해자 유족들 (현장영상) / SBS](https://www.youtube.com/watch?v=NyK7G5uaMpU)
 
-뉴스 출처: [\[영상\] “아들 죽었기에 나는 죽을 각오”…청와대 찾은 코로나19 백신 피해자 유족들](https://news.sbs.co.kr/y/?id=N1006587641)
 
+[Official German data suggests Vaccinated will develop AIDS by the end of Jan 2022](https://gettr.com/post/pmbp135dc6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

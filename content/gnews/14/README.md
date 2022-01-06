@@ -2,45 +2,29 @@
 ---
 
 
-## 九号楼全体住户请做好准备等待专车前往指定地点隔离
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1827229/)
+## &#8220;儿子死了，我做好了死的准备&#8221;…新型冠状病毒疫苗受害者遗属访问青瓦台
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1827247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获2_副本.png)
-据[**张洲**](https://weibo.com/lbtgs) [2022年1月5日 14:05](https://weibo.com/1867099473/L9lBq5AcV?from=page_1003061867099473_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+韩国首尔天池农场
+翻译：势在必行
+校对：鱼子酱
+上传：无明逆流
 
-“9号楼全体住户请注意……”这个大喇叭里传出的声音，令人闻之色变 [L张洲的微博视频](http://t.cn/A6JAb0Wr) ​​​​
+**12月30日首尔钟路区青瓦台喷水池**
 
-九号楼全体住户请注意，接上级通知，请你们做好准备，带上生活必需品、防寒衣物，在小区门口等待专车前往指定地点做集中隔离。
+**新型冠状病毒 疫苗受害者家属协议会举行记者招待会**
 
-反复播放的高音喇叭透露出来的是不容质疑的权威和令人胆寒的高压，如果每个听到广播的人把这当成是别人家的故事，那么下一个你就可能是这种无差别隔离的被通知者。
+由于接种疫苗,孩子们的未来和家人的幸福都被粉碎了。这分明是可以阻止的事情。（虽然大胆地召开了记者招待会，但最终还是流下了眼泪）因为儿子死了，所以我是抱着不要命的心理出来的。今天也是请假出来的。就算我粉身碎骨，我的孩子都死了，什么是最重要的呢？改善受害者应对及反对进行疫苗通行证等向总统传达包含要求事项的书信代表团进入青瓦台后，遗属们仍然愤慨不已我家人死了，为什么什么都不让做呢？国民死于疫苗了。
 
-当年纳粹驱赶犹太人去集中营的时候是什么样的场景？当年占领南京的几个日本军人押送数百国军俘虏并集体枪杀的时候是什么样的场景？虽然所有这些惨剧离我们不到百年，但是恐怕没有人会把纳粹驱赶犹太人去集中营与九号楼全体住户被驱离联系起来，恐怕也没有人会把几个日本军人押送数百国军俘虏集体枪杀与九号楼全体住户的被驱离联系起来。
+为什么装作不知道呢总统不是跟我们约好了吗？注射疫苗后产生副作用总统不是说要亲自负责吗？究竟为什么装作不知道呢？ 究竟为什么花样年华的高中生，什么都没做过，就死了20多岁的大学生们，你们怎么负责？我们的遗属们一天也不能过清醒的生活。{金斗京|新型冠状病毒疫苗受害者家属协议会会长}直到昨天还好好的父母、丈夫、妻子、兄弟姐妹、儿女们打完疫苗后死亡了。
 
-也许每个人在回看历史的时候，会说如果他是那个被驱赶的犹太人，他会如何反抗，如果他是那个被押送的国军俘虏，他会如何反抗，可是在当下，95%的西安成年人都被打了高剂量的中共病毒疫苗，就在当下西安为了实现所谓社会清零用这种方式把整个住宅楼的住户送往集中营。
+对追究因果性而愤怒的死者家属说是丧命钱，说要报销7400元和20900元。冠疫会(冠状，疫苗，受害家属协会)谴责疾病管理厅的态度打完疫苗一夜之间住进重症监护室的重病患者超过1万5千人。他们中死亡的人超过380人为了护理重症患者而辞去了工作因为医疗费、生活费、双重痛苦，国民正陷入绝境。
 
-今天我们进步了吗？应该说，这个社会还是有进步的，至少，至少，在他们用高音喇叭驱离九号楼全体住户的时候，我们看到了这样的实时影像，至少我们会在惨剧实时发生的时候，每个人都应该扪心自问，如果你就是那个九号楼住户，你是乖乖送死呢？还是以死相搏呢？
+卖房贷款这种痛苦由国民负责并承受着。从异常反应申报到因果性审议最快也要经过四五个月的审议这段时间要交的医疗费从数百万元到数千万元不等。怎么可以把所有双重、三重的痛苦全部推给只打疫苗的国民身上？真心为国民着想，就应该站出来应该抚慰国民的痛苦。
 
-撰稿：喜马拉雅的肉夹馍；
+참고링크: [“아들 죽었기에 나는 죽을 각오”…청와대 찾은 코로나19 백신 피해자 유족들 (현장영상) / SBS](https://www.youtube.com/watch?v=NyK7G5uaMpU)
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+뉴스 출처: [\[영상\] “아들 죽었기에 나는 죽을 각오”…청와대 찾은 코로나19 백신 피해자 유족들](https://news.sbs.co.kr/y/?id=N1006587641)
 
  
 
