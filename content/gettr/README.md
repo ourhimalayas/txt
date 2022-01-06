@@ -17,6 +17,31 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@rsbnetwork 1/6/2022 6:35 PM (UTC)`
+
+@mtg4america calls for ANSWERS regarding the FBI's possible involvement in the Jan. 6 Capitol riots
+![img](https://media.gettr.com/group30/origin/2022/01/06/18/8d2678bf-925e-7911-d368-c526ac203ece/out.jpg)
+
+---
+
+`@miles 1/6/2022 6:43 PM (UTC)`
+
+1月6号【France’s most famous pro-wrestler has joined GETTR, and he’s willing to wrestle Kaelan in a steel cage match that we can stream live on GETTR. <br/><br/>Game on!!!<br/><br/><br/>Incroyable!!! #GETTR Wrestling is now a thing! Champ - we’ll start looking for a venue for the match and a hospital to send Kaelan to after you’re done with him, and we’ll reach out next week to check your schedule! 💪💪💪 https://gettr.com/post/pmov87866d 】
+![img](https://media.gettr.com/group14/getter/2022/01/06/18/f2b84261-5ea5-0772-2f08-b8e0daccac33/a46ba001af8e10d78fcdfc13d9a2a6b6.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@papacito1er 1/5/2022 2:41 PM (UTC)`
+
+
+![img](https://media.gettr.com/group14/getter/2022/01/05/14/bed770af-c8ec-2448-700b-b53f9556e345/out.jpg)
+
+---
+
 `@miles 1/6/2022 6:29 PM (UTC)`
 
 1月6号：这是真的还是假的呀？🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥【奇迹就这样发生了，正道得天道💐💐💐💐💐💐💐🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈】
@@ -136,31 +161,6 @@ Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is 
 
 1/5/2022 Miles Guo: Nursultan Nazarbayev, Wang Qishan’s best buddy, helped Wang and Jiang Zemin hide 100 tons of gold in Kazakhstan; Xi Jinping had sent Wang Yi to ask Nazarbayev for the gold, and a social unrest occurred right after Wang Yi left Kazakhstan; Nazarbayev threatened Xi that he would establish a diplomatic relationship with Taiwan if Xi demanded gold from him again<br/><br/>1/5/2022 文贵直播：扎尔巴耶夫是王岐山最好的哥们儿，帮王和江藏了100吨黄金在哈萨克斯坦；习近平派王毅找扎尔巴耶夫要黄金，王毅刚走哈萨克斯坦就发生了动乱；纳扎尔巴耶夫竟威胁习，称若习再来要黄金就和台湾建交<br/>
 ![img](https://media.gettr.com/group46/getter/2022/01/06/00/70d582e5-3085-c554-3693-d3ee20479c7d/out.jpg)
-
----
-
-`@miles 1/5/2022 11:33 PM (UTC)`
-
-1月5号：战友做的这个视频实在是太棒了，文贵在此向您鞠九躬……衷心的感谢……如果有英文字幕……那就更好了……
-![img](https://media.gettr.com/group28/getter/2022/01/05/23/c3477f24-5673-ac54-a3af-f86f5dd2fd19/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@belannf 1/5/2022 9:20 PM (UTC)`
-
-💓💓MORE THAN HALF A MILLION NOW - This was published on January 4, 2021 - - - Huge: Half million follow Joe Rogan to GETTR💓💓<br/><br/>"GETTR, an upstart Twitter challenger aimed at free speech advocates and conservatives who have been squelched on liberal-leaning social media sites, is nearing four million users exactly six months after its Independence Day launch.<br/><br/> The site reported that Rogan’s announcement prompted more than 171,000 people to open GETTR accounts Sunday. On Monday, another 341,000 joined, and as of today, new sign-ups have totaled 545,000 since Rogan said, “Just in case s*** over at Twitter gets even dumber, I’m here now as well. Rejoice!”"<br/>https://tinyurl.com/3t87jdbc
-![img](https://media.gettr.com/group44/getter/2022/01/05/18/7262295d-6eb1-55e5-bf9d-b7582dbe16e9/0c1a723880ab2e24374dc47aac3df742.gif)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@adam22 12/28/2021 6:11 PM (UTC)`
-
-The new episode of @plugtalkshow is now live featuring the ridiculously hot @emilywillisxoxo 😳 this is actually the first episode we ever shot. We interviewed her and then we ate her ass together. It was beautiful. Link in my bio  
-![img](https://media.gettr.com/group18/tw/2022/01/02/23/40f264d2-0276-2880-4d2c-a9c7c6f70e21/04bd80f1f88c6132846fcaf485219e6f.jpg)
 
 ---
 
