@@ -2,40 +2,40 @@
 ---
 
 
-## 哈萨克骚乱持续背后或有中共的黑手 俄罗斯派兵进驻维和
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829591/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1829801/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+翻译：土饭团
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DA11F806-38A2-406F-9707-14562FAA5BE4.jpeg)（图片来自美联社）
+您若想了解全文报导内容，请点击标题链接
 
-近日，哈萨克斯坦国内持续骚乱。1月6日，哈萨克政府宣布全国进入“紧急状态”。随后，俄罗斯派兵进驻哈萨克斯坦进行维和。
+**[1.美国、俄罗斯、中共国等5国誓言防止核战争](https://english.kyodonews.net/news/2022/01/bdf95aaec999-5-nations-including-us-russia-china-vow-to-prevent-nuclear-war.html)**
 
-1月2日，哈萨克政府宣布取消瓦斯价格上限，导致瓦斯价格上涨，随后国内骚乱迅速爆发。在意识到事情的严重性后，哈萨克政府于5日恢复了瓦斯价格的管控，并宣布全国进入“紧急状态”，但骚乱并未就此停止，并造成了数十人死亡。
+共同社1月4日电，美国、俄罗斯、中共国和其他两个拥有核武器的国家周一发表联合声明，申明必须避免核战争，这种军备的作用应限于防御目的和威慑侵略。虽然联合国和日本反核倡导者对此举表示欢迎，但目前尚不清楚在美国和俄罗斯之间的紧张局势以及华盛顿和北京之间的竞争日益激烈的情况下，减核是否会取得任何具体进展。
 
-据《中央社》报道，截至6日，哈萨克因动乱已导致至少12名安全部队官兵丧生，数十名示威民众被击毙，另有353人受伤。总统办公室和市政府也相继遭到纵火。
+**2.[前葛兰素史克公司科学家承认为中共国公司窃取商业机密](https://www.reuters.com/legal/government/ex-glaxosmithkline-scientist-admits-stealing-trade-secrets-chinese-company-2022-01-03/)**
 
-报道称，哈萨克总统已吁请俄罗斯领导的集体安全公约组织（Collective Security Treaty Organisation，CSTO）协助打击这些“在国外受过大量训练”的“恐怖组织”。俄罗斯已于6日派兵进驻哈萨克斯坦进行维和。
+路透社1月4日电，一名前葛兰素史克公司的科学家周一认罪，承认密谋窃取这家英国制药商的商业机密，以使一家中共国制药公司受益。该案于2016年通告，是司法部近年来在对中共国窃取美国商业机密的高度关注下所追查的多个案件之一。
 
-集体安全公约组织是由俄罗斯、亚美尼亚、白俄罗斯、哈萨克斯坦、吉尔吉斯和塔吉克6国组成的军事联盟，成员国均是前独联体国家。
+**3.[美国对特斯拉在中共国新疆开设展厅表示不满](https://english.kyodonews.net/news/2022/01/ec0f2b1056a7-us-signals-displeasure-as-tesla-opens-showroom-in-chinas-xinjiang.html)**
 
-哈萨克斯坦本次骚乱的升级以及死亡人数的上升，迅速引起了全球媒体的关注。有学者表示，就目前的情况以及哈萨克总统的表态来看，此次骚乱有哈萨克周边区域大国参与的迹象，因为普通示威者很难在短期内对哈萨克安全部队官兵造成如此大的伤亡。
+共同社1月5日电，在电动汽车制造商特斯拉公司被发现在中共国新疆地区开设展厅后，白宫周二呼吁各公司与美国政府一起打击北京在新疆的侵犯人权行为。“我不能谈论一家公司的具体情况，但作为一个普遍问题，我们认为私营部门应该反对中共国在新疆的人权侵犯和种族灭绝行为”，新闻秘书Jen Psaki在新闻发布会上说。
 
-新中国联邦创始人郭文贵先生1月5日在GTV的直播中爆料称，哈萨克此次的骚乱完全是中共一手策划，在中共外交部长王毅威胁哈萨克斯坦总统未果，离开该国后不久，本次骚乱计划便开始实施。
+**4.[美国和日本将举行安全协商委员会“2+2”会议，中共国态度强硬](https://www.aninews.in/news/world/us/us-japan-to-hold-security-consultative-committee-22-meeting-amid-chinese-assertiveness20220105095445/)**
 
-参考链接：
+ANI 1月5日电，美国国务卿Antony Blinken和国防部长Lloyd Austin与美国驻日本大使Rahm Emanuel一起，将于1月6日与日本外务大臣林芳正和防卫大臣岸信夫举行2022年美日安全协商委员会（“2+2”）虚拟会议。在会议期间，代表团将讨论美国和日本如何加强我们的联盟，并在中共国在该地区的强硬态度下应对全球挑战。
 
-1. [https://www.cna.com.tw/news/firstnews/202201060386.aspx](https://www.cna.com.tw/news/firstnews/202201060386.aspx)
-2. [https://www.cna.com.tw/news/aopl/202201063002.aspx](https://www.cna.com.tw/news/aopl/202201063002.aspx)
+**5.[Blinken和布加勒斯特九国集团强调声援立陶宛反对中共国的侵略行为](https://www.aninews.in/news/world/us/blinken-bucharest-9-group-highlight-solidarity-with-lithuania-against-chinese-aggression20220104042347/)**
 
+ANI 1月4日电，美国国务卿Antony Blinken和布加勒斯特九国集团的代表周一（当地时间）强调了他们在中共国不断升级的政治压力和经济胁迫下对立陶宛的声援。据一份报告称，立陶宛需要西方和其他外国势力的支持来对抗中共国的侵略，因为它几乎在独自与世界上的一个经济和政治超级大国作斗争。
 
 * * *
 
-素材采编：Kevin wang
+*审核：Aries的星*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-编辑：青衣青青
-
-发布：miumiu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
 
  
 

@@ -2,20 +2,34 @@
 ---
 
 
-## 中国多家食品企业宣布产品涨价
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1829228/)
+## 印尼近七成未接种疫苗者产生中共病毒抗体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829261/)
 
-撰稿—水滴石穿
-校对/上传—无明逆流
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，据相关媒体报道，最新的调查数据显示，在印度尼西亚，每十名当地民众中就有近九人拥有中共病毒的抗体，然而，印尼的中共病毒疫苗接种率却明显低于其他亚洲国家。
 
-墙内中华网财经1月5日讯，新年伊始“涨”字当头。今日，茶颜悦色在其官方微信公众号中发布涨价通知，宣布将从1月7日起，大部分奶茶产品涨1元，其中栀晓涨价2元。新价格的启用时间是2022年1月7日。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsAp33-at-11.03.26-PM.jpeg)图片来源：网络
-1月4日，香飘飘食品股份有限公司（下称“香飘飘”）发布公告称，主要产品提价幅度为2%-8%不等，新价格自2022年2月1日起按各产品调价通知执行。娃哈哈AD钙奶自2022年1月1日起正式涨价。瑞幸咖啡的外卖价格每杯上涨3元。自2022年1月28日零时起，雅诗兰黛、海蓝之谜、祖玛珑、倩碧、芭比波朗、魅可、TF等部分商品及相关套装的建议零售价将进行上调，并即时生效。还有上海海融食品的奶油、熊猫乳品、贵州茅台等价格都全线上涨！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-5.jpeg)
 
-对于这波涨价，我的分析是：墙内的越来越多的年轻人的生活成本的不断提高。而他们的工资却永远不涨而选择躺平、企业的人力成本大幅提高，疫情导致物流异常，企业成本进一步被拉高，企业举步维艰，这些最终的根源是CCP的邪恶专制吸血的体制。当土壤坏了，不论什么好种子都不可能长出庄稼来了，而就在此危机时，当局还一边对外大撒币，一边宣传领导的伟大、体制的优越，好嘛！这优越得以后大家连草都没得吃罗！
+对此，印尼中共病毒专案小组发言人表示，2021年11月至12月间，印尼政府在该国100座城市中开启了针对中共病毒抗体的调查，而在接受调查的群体中，约有86.6%的民众对中共病毒抗体呈阳性反应，其中，73.2%的被调查者从未接种过中共病毒疫苗，也没有过中共病毒确诊感染记录。
 
-新闻来源：[扛不住了、为了生存？新年伊始多家企业宣布涨价](https://finance.china.com/consume/11173302/20220105/37266907.html)
+据悉，与东南亚其他国家紧闭国门、试图降低中共病毒传播的做法刚好相反，印尼政府已于2022年1月宣布，该国将缩短入境旅客的隔离检疫时间。
 
+参考链接：[群體免疫？印尼近九成民眾有新冠抗體 其中70%沒打疫苗](https://udn.com/news/story/121707/6011087?from=udn_ch2cate7225sub121707_pulldownmenu_v2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
