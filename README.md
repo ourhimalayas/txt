@@ -15,98 +15,98 @@
 
 ---
 
-### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [他们说他们会减缓病毒传播（1/2）](/content/gnews/2/README.md)
+### [他们说他们会减缓病毒传播（2/2）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿科医院联发警告：婴儿住院率上升](/content/gnews/3/README.md)
+### [杜鲁多：“加拿大人对还没打疫苗的人感到愤怒”](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“数字人民币”（二）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [报告称对100万元以上的房屋征税可能是使住房更负担得起的关键](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [COVID-19疫苗发明者：我们不能每6个月为地球人接种一次](/content/gnews/9/README.md)
+### [他们说他们会减缓病毒传播（1/2）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈音乐政治（2021-01-05摘录）](/content/gnews/10/README.md)
+### [儿科医院联发警告：婴儿住院率上升](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [一线医生强调了他首选的COVID-19治疗法](/content/gnews/11/README.md)
+### [七哥讲，女儿郭美 （2022-01-05摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [七哥讲：全世界，股市，货币超发，GDP （2022-01-05摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [COVID-19疫苗发明者：我们不能每6个月为地球人接种一次](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/12/README.md)
+### [七哥谈音乐政治（2021-01-05摘录）](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [一线医生强调了他首选的COVID-19治疗法](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [海豹突击队成员拒绝接种 法官禁止国防部惩罚](/content/gnews/13/README.md)
+### [海豹突击队成员拒绝接种 法官禁止国防部惩罚](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/14/README.md)
+### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/15/README.md)
+### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年美国必须对中共国做什么](/content/gnews/16/README.md)
+### [2022年美国必须对中共国做什么](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/17/README.md)
+### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/18/README.md)
+### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/19/README.md)
+### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/20/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿子危在旦夕，父亲因没有打疫苗不允许进入医院探望](/content/gnews/21/README.md)
+### [儿子危在旦夕，父亲因没有打疫苗不允许进入医院探望](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [MV版Hcoin To the Moon上线第28天位列美国iTunes摇滚MV榜首](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/23/README.md)
+### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [芝加哥教师工会无视政府复课命令开始远程教学](/content/gnews/24/README.md)
- ` GTV News Talk`
-
-### [小米10T手机内置APP审查敏感词 上传用户数据](/content/gnews/25/README.md)
+### [小米10T手机内置APP审查敏感词 上传用户数据](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/27/README.md)
+### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒](/content/gnews/28/README.md)
+### [01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒](/content/gnews/29/README.md)
  ` 英喜-粵語組`
 
-### [香港人的房屋悲歌：从「纳米楼」到「渐进式按揭」](/content/gnews/29/README.md)
+### [香港人的房屋悲歌：从「纳米楼」到「渐进式按揭」](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/30/README.md)
+### [联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/31/README.md)
  ` GTV新闻访谈`
-
-### [日本年后确诊数激增，岸田首相取消访问美澳行程](/content/gnews/31/README.md)
- ` GTV News Talk`
 
 ### [美单日新增病例破百万 超去年同期高峰4倍](/content/gnews/32/README.md)
  ` GTV新闻访谈`
