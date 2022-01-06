@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 5:09 AM (UTC)`
+
+1/5/2022 Miles Guo: The CCP is thinking of expanding its territories; the nightmare-like bitter days for the Chinese people will start between May and December this year, more cities will be under lockdown, and more people will be quarantined and disappear; the CCP is using digital RMB to stabilize its estate market and seeks to have a say in terms of digital currency<br/><br/>1/5/2022 文贵直播：中共妄图开疆拓土；中国人噩梦般的苦日子将从今年5月到12月间开始，更多城市会被封，更多人会被隔离和消失；中共用数字货币稳定楼市并想主导数字货币话语权<br/>
+![img](https://media.gettr.com/group42/getter/2022/01/06/05/e71f09cf-b7e1-58dc-ea7c-b4bbe9f5b9fc/out.jpg)
+
+---
+
+`@miles 1/6/2022 4:59 AM (UTC)`
+
+Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is unfolding. Only by taking down the CCP can save all the innocent people around the world<br/><br/>西安：一个感冒就要挨饿的地方，疫苗灾难正在发生。只有推翻共产党，才能救这些打了疫苗的全球无辜的人
+![img](https://media.gettr.com/group35/getter/2022/01/06/04/343b4b48-7465-9732-ef47-12f7eaa9892d/out.jpg)
+
+---
+
 `@miles 1/6/2022 1:23 AM (UTC)`
 
 946,000 people have suffered serious #SideEffects or even died after getting injected with the #COVID #Vaccine. What's worse, not only does the vaccine appear to be useless against the virus, but people who do get injected seem to be much, much worse than those who remain unvaccinated. We are witnessing the serious consequences of this untested, unproven, rushed vaccine firsthand, and it's far worse than anyone feared. This is just the beginning. <br/><br/>94万6千人在注射新冠疫苗后遭受严重副作用，甚至死亡。更糟糕的是，疫苗不仅看起来对病毒无效，而且注射疫苗的人比不注射的人境况更糟。我们正在见证这种未经测试、未经证实、匆忙上市的疫苗的严重后果，它比任何人担心的都更加糟糕。这仅仅是刚刚开始。
@@ -148,18 +162,6 @@ I’m calling on every Republican to LEAVE Twitter! <br/><br/>The truth is under
 
 ...
 ![img](https://media.gettr.com/group44/getter/2021/12/14/09/6bf02752-1fa8-0221-fdda-69706d5eceaf/ce0fc8d4aa1226b2f69c405e18955801.jpg)
-
----
-
-`@miles 1/4/2022 3:16 PM (UTC)`
-
-1月4号，Hcoin To the Moon MV上线第26天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列香港🇭🇰，新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，香港，新西兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1821943/<br/><br/>Jan 4th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 26th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on Hong Kong 🇭🇰, New Zealand 🇳🇿 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, Hong Kong, and New Zealand!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1821944/
-
----
-
-`@miles 1/4/2022 1:56 PM (UTC)`
-
-1月4号：我的乖乖哟……估计过几天共产党也得给拆了？<br/><br/>https://gnews.org/zh-hans/1820344/<br/>在谷歌地图上，沿着盘古七星酒店从东往西拉一条横线，可以看到这条横线穿过山西省大同市。在大同市的和阳街，有一面九龙壁，建于明洪武年间，是中国现存九龙壁中建筑年代最早、最大的一座。
 
 ---
 
