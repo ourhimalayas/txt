@@ -2,30 +2,139 @@
 ---
 
 
-## 共产不平等规则化
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1828248/)
+## 文贵先生告诉墙内同胞远离城市呆在农村
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
 
-文：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/i.jpeg)Novak Djokovic / 图源：网路
-世界第一的网球名将Novak被关押在了机场。因为本届澳网公开赛主办方要求所有人必须接种新冠疫苗，不接种的要提供严格的医疗豁免。在澳网赛事开始宣传的时候，这位网球名将就曾表示，这个强制接种疫苗作为比赛的硬性规定，极其不合理，他父亲说这是敲诈。就在大家都在猜测的时候，Novak获得了医疗豁免，可以不接种疫苗而继续参赛。然而，因为有赛前隔离要求，在他到达墨尔本机场的当天，就是昨天，他就被扣在那儿了。自己一个人呆在一个房间里长达八个小时，外面还守了俩警察。他父亲说你们这是非法关押，再不放人，我就要上街和你们战斗。然后Novak的母国塞尔维亚总统都介入了此事。不久以后澳网宣布Novak的医疗豁免无效，比赛泡汤了，网球名将被遣送出境。
+[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
 
-这不是故事。这事儿就发生在这两天，一个网球名将，世界第一，被这样对待。如果不说名字，隐去地点，这事儿如果发生在中共国的话，看着也不违和。毕竟中共国内总是有这样的事情发生，事先办好的医疗豁免到了当地就不管用了，虽然规定里说的是可以申请医疗豁免，但这个豁免都是人说了算，他说行就行，他说不行就不行，没有什么平等，没有什么人权，他是爷，你得拜他。在中共国的公务员办事都基本是这个臭德行，总是不把话全都说完，一次说一样，等你跑一次说一句，就是不让你一次把事儿办完，浪费你的时间。并且你的态度还得好，他们不是你的公仆，他们个个都是你的爷，你得万分谦卑地求着这些大爷。然而那些所谓的资料其实，多一样并不会怎么样，少一样也并不会怎么样，主要作用就是来使唤人的，国内公务员无论官职大小，是个红袖章都能把自己当皇帝，只要让他做点事情他就千方百计作威作福，好似要把自己受到的委屈全都报复给他人。
+兄弟姊妹们记住啊
+Recuerden, hermanos y hermanas
 
-这不是故事。这事儿就发生在这两天，一个网球名将，世界第一，被这样对待。如果不说名字，隐去地点，这事儿如果发生在中共国的话，看着也不违和。毕竟中共国内总是有这样的事情发生，事先办好的医疗豁免到了当地就不管用了，虽然规定里说的是可以申请医疗豁免，但这个豁免都是人说了算，他说行就行，他说不行就不行，没有什么平等，没有什么人权，他是爷，你得拜他。在中共国的公务员办事都基本是这个臭德行，总是不把话全都说完，一次说一样，等你跑一次说一句，就是不让你一次把事儿办完，浪费你的时间。并且你的态度还得好，他们不是你的公仆，他们个个都是你的爷，你得万分谦卑地求着这些大爷。然而那些所谓的资料其实，多一样并不会怎么样，少一样也并不会怎么样，主要作用就是来使唤人的，国内公务员无论官职大小，是个红袖章都能把自己当皇帝，只要让他做点事情他就千方百计作威作福，好似要把自己受到的委屈全都报复给他人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/j.jpeg)Novak Djokovic / 图源：网路
-澳网赛方在对待新冠疫苗问题上就是非常共产党公务员的做法，医疗豁免一旦到了当地就不管用了。明明比赛上面清清楚楚地写着，要么全部接种疫苗，要么提供医疗豁免不接种疫苗，这个规定非常人性化？字里行间都读不出任何对疫苗的强制行为来是不是？但是实际上他们是怎么操作的？这位世界冠军在到达的那天，他持有的是医疗豁免，由于没有接种疫苗，周围人把他当成真正的病毒一样看管起来，他不再是一个人，一个拥有肉体，生理，和心理情绪的个人。Novak的父亲都开始大骂了，甚至都要上街战斗了。可想而知这位世界冠军所经历的一切。那么我们回过头来看这个规定：要么接种疫苗，要么医疗豁免，有谁还会觉得这不是在强制疫苗？这个澳网公开赛学共产党学得有模有样，字面上从来不会说什么必须，强制，但是他们的做法比强制接种疫苗还恶劣。为什么？因为这位世界冠军Novak，他反对强制疫苗。曾经在2020年4月份他就表达过对疫苗的看法。民主国家，这些运动员，名人，自身拥有巨大成就的个人，是非常受到社会的尊重的，毕竟这是非常不容易的，一个运动员付出的汗水和热爱，直至今日取得的成就，那包含了多少辛苦多少智慧。就算不在民主国家，在中共国的郝海东先生、叶钊颖女士，凭借非常优秀的比赛表现，拿了世界冠军的啊，也让整个世界都喜欢。然而彼时的郝海东先生叶钊颖女士遭受着什么样的待遇？叶钊颖女士的家人一直都被共产党威胁着，郝海东的儿子差点被共产党遣送回去，七哥拿私人飞机给救回来的，为什么，就因为郝海东先生宣读了《新中国联邦宣言》。同样的，这位网球世界冠军Novak先生，也就是因为反对强制疫苗，被非法扣押，并且被非法取消参赛资格。如果你觉得他技术不好，或者他作弊，再或者像孙杨那样，吃了点药，于比赛的公正角度，那肯定要取消，但是由于这个打疫苗的事情被取消了比赛，并且是在他已经按照要求拿到医疗豁免的情况下被取消的，呵呵，能有比这还憋屈和耻辱的吗？
+你们都是银河农场, 台湾农场
+Todos ustedes son de la finca Galaxy y finca Taiwán
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郝海东.jpeg)郝海东、叶钊颖 / 图源：网路
+还有我们刚才说的, 天池农场, 方舟(农场)
+Y lo que acabamos de decir, la finca Tianchi y Fangzhou
 
-反过来说，这件事也是一个很好的例子，如果世界运动圈各路网球爱好者，世界冠军Novak被这样对待你感觉到不公平的话，请回去看看中共国的运动员郝海东、叶钊颖，他们受到的不公平比这个要多万亿倍都不止。另外，这位世界网球冠军先生在运动和健康方面有比常人更专业的参考，他很早就反对强制疫苗，另外世界上最近有多少因为打了疫苗而忽然倒地的优秀运动员，很多都是天才运动员，年纪轻轻就倒地不起了。在网上看了太多关于这位世界冠军Novak不打疫苗的各界猜测，怎么说呢，掉进了互联网垃圾的海洋，各种各样的人风言风语，都开始讨论规则了，说大赛的规则不能被个人打破，这个世界有多荒唐，杀人变成了规则。你想活下去吗？杀人吧，杀了他你就能活下去，那试问，如何确定下一个被杀的不会是自己？恐惧、无知、贪婪的人太多了，看这些互联网讨论，让人深深觉得，我们绝对不是一个世界的人。一个对比，gettr看那么几条，全都是有用信息，而另外的，Twitter、FB，或者BBC这种大外宣，看完全篇，一个字都没用，而且篇幅出奇地，又臭又长。但话说回来，有对比才有快乐。今天世界上所有的黑暗，不过都是光明的背面。太阳一定会升起，但外面阳光再好，还是有人在屋里睡觉。
+都是最特别的
+Son las más especiales
+
+樱花农场
+La finca Flor de cerezo
+
+阿信, 小熊
+Axin, Xiaoxiong
+
+告诉战友们
+Díganle a los compañeros luchadores
+
+一切答案在这
+Todas las respuestas están aquí
+
+明年会很黑暗
+El año que viene será muy oscuro
+
+你唯一的希望
+Tu única esperanza
+
+你唯一的机会
+Tu única oportunidad
+
+就是跟农场和联盟保持联系
+Es mantenerte en contacto con la finca y la alianza
+
+还有远离城市
+También alejarse de la ciudad
+中国的现代城市化
+La urbanización moderna de China
+
+和迅速地城市化
+Y el proceso de urbanización rápida
+
+乡村城市化
+La urbanización rural
+
+绝对是中国的灾难
+Es absolutamente el desastre de China
+
+任何有脑子的人记住
+Cualquier persona que tenga cerebro recuerde
+
+现在被伤害的人是你买房的
+Persona que está siendo lastimada es porque tu has comprado la casa
+
+被伤害的人
+Personas que son lastimadas
+
+郑州被淹死的, 是有车的(人)
+Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
+
+现在在西安城市里饿死的
+El que se murió de hambre en la ciudad de Xi’an en este momento
+
+是在城市里边
+Es el que estaba dentro de la ciudad
+
+当房奴, 当街奴, 当打工奴的
+Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
+
+你待在老家绝对比在西安安全
+Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
+
+绝对比在郑州安全
+Será más seguro que estar en Zhengzhou
+绝对比待在任何二级城市安全
+Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
+
+更不要说在北京
+Menos mencionemos estar en Beijing
+
+每年要赶一次什么二级下流人士
+Corran a los indecentes de segundo nivel una vez al año
+
+低级人士被驱赶的城市
+La ciudad donde las personas de bajo rango son expulsadas
+
+永远记住中国人最安全的地方
+Recuerden siempre el lugar más seguro para los chinos
+
+在你老家
+Es tu ciudad natal
+
+在农村, 绝不在城市
+En el campo, nunca en la ciudad
+
+七哥今天第一次这么告诉你们
+Les digo esto por primera vez
+
+听七哥的
+Escúchenme
+
+看这个, 联系农场
+Vean esto, contacten a la finca
+
+远离城市
+Aléjanse de la ciudad
 
 * * *
 
-作者：骄子
-发布：骄子
+日期：01/04/2022
+原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
+Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
+原视频日期：01/02/2022
+原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
+任务编号：3392
+视频时间段：00:00-01:23
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

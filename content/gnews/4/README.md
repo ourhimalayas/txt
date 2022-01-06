@@ -2,139 +2,30 @@
 ---
 
 
-## 文贵先生告诉墙内同胞远离城市呆在农村
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828256/)
+## 垃圾海洋时时静好
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1828274/)
 
-[https://gtv.org/video/id=61d6b3f9dffab035958b6665](https://gtv.org/video/id=61d6b3f9dffab035958b6665)
+文：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/lgpo0bxi.jpeg)海洋污染 / 图源：网路
+人类自从有了互联网，每天要产生的垃圾讯息数不胜数。社交媒体上更是。Twitter、Facebook表面上吹得好，有大部分的活跃用户，但是，这些活跃用户天天就是发垃圾讯息的，那些小黄图、诱导犯罪、歪曲事实、重复内容，提供这些垃圾的有一大部分都是在共产党的监狱里的键盘手。TikTok作为短视频翘楚，风头正劲着，那些垃圾没用的讯息，还有暴力讯息那更是无法计数。前段时间曾经有一个集体诉讼关于TikTok的，起诉人是TikTok的内容审核员，她被强制要求观看一些暴力不适视频，中间不让休息，工作时间还安排得非常不合理。正常人来说，看个恐怖片都要害怕好几天，而这些审核员是在被不停地审核这些内容，25S钟就必须要审一个。本来互联网审核这些内容的一些协会是制定了休息标准的，但是TikTok才不管那个，结果员工就开始产生了强烈的心理不适，晚上做噩梦，应激障碍。谈论这个例子，首先要说明的是互联网讯息的垃圾已经到了不收拾不能下脚的地步，其次就是审核员都能给得上心理障碍病，那还能相信平台推出的这些内容都是无害的吗？抛开那些虐待、食人的视频，剩下的无害视频，有哪些是有用的？要找找得上冠状病毒了怎么吃药，这类型的讯息能找得到吗？不能。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/118124811_tt-girl.jpg)TikTok 无面人 / 图源：网路
+岁月静好怎么来的，都是垃圾讯息给惯出来的。那些个假大V天天唧唧吧吧个嘴，废话说起来没完没了。说实在的，你说这些个废话真得没啥，你一天像川普一样发个二百条推文都没关系，烦就烦在误导讯息。很多大V怎么来的，就是对中共中央发出的某文件，某政策进行解读，顺便买点假粉丝，这么一互动，好了，小粉红群体都觉得你跪舔共产党舔得姿势如此不一般，高，实在是高，就follow上了。一旦粉丝达到一些数目，好嘛，这个人崇拜马上就上来了。粉丝动不动就这个大大好，那个爸爸行，能不飘吗？再加上一旦被上头收编了，那以后的推文、博文，只能更舔，整个又红又专。共产党让宣传岁月静好，能发到处死人，到处隔离，半夜被封楼的讯息吗？不发讯息那这个号上几百万几千万关注量，现在发文都是可以获得收益的，这钱不赚白不赚。那些到处死人的情况就赖他们活该，到处乱跑，隔离是应该的，他们该被关起来，他们该被饿着。就算这个号背后的真人都被隔离了，他还是会从网上找些党统治得真好，顺便抄点鸡汤，你若安好便是晴天，岁月静好，西安加油。（脏话）。中国地域范围这么大，连咸甜豆花儿都能吵翻整个互联网，凭什么这些片面的、歪曲的垃圾讯息能够被其他网民认为是正确的？难道那些在微信群里发布自助信息的老百姓就都发的是假的吗？凭什么共产党要把社交媒体都官方垄断，造谣都要以官方谣言为主，“请不要相信其他的谣言，以官方谣言为主”？有多荒唐！并且最近这股子邪风恶气都吹到西方所谓的言论自由的社交媒体上面来了都，Twitter建立了自己的言论审查体制，俨然就是一个小型的共产党“真理部”机构，一切言论请依据党中央的指示。
 
-兄弟姊妹们记住啊
-Recuerden, hermanos y hermanas
+![](https://assets.gnews.org/wp-content/uploads/2022/01/768557c8b7e411a69f0f66e90a143e69.jpg)鸡汤 / 图源：网路
 
-你们都是银河农场, 台湾农场
-Todos ustedes son de la finca Galaxy y finca Taiwán
+自从共产党释放了冠状病毒，全世界的媒体都来配合掩盖，不让去中共国武汉溯源，说成啥也是不让。然后开始让所有人接种新冠疫苗，宣传打疫苗更是用上了具有共产党特色的虚假宣传。不报道疫苗死亡人数，适时地再放一场病毒，希腊字母都用上，一会儿一个新变种，一有新变种出来就开始引发群众性恐慌，快去打疫苗吧，快去吧，必须得打呀，第三针快去吧。
 
-还有我们刚才说的, 天池农场, 方舟(农场)
-Y lo que acabamos de decir, la finca Tianchi y Fangzhou
+一边垃圾讯息漫天飞，岁月静好一把抓，另一边是各种暴力不适视频到处推送，人们常常怀念手机还不能上网的年代，那个时代感觉人心都没有那么复杂，也没有网路恶意，中伤旁人。只是时间永远不能倒着走，今天这些岁月静好，怀念过去的人，有哪个没有打疫苗？这两个圈重合的几率非常大。他们盲目自负，怀旧，自大，当然，怕死，打上疫苗到处玩，传染得还快些。就算周围已经发生了新冠疫苗死亡事件，他们依然不以为意，甚至还在上传静心P好的自拍图片，配文：你的离开是岁月的一次惊叹。甚至还有在葬礼上直播要礼物要打赏的。社交媒体的中毒者都在说着旧日岁月的美好，但一分钟也离不开当代垃圾互联网。这样的人，就算你劝他不要打疫苗，他只会反过来仇视你，还会把你劝他不要接种疫苗的聊天记录晒到社交媒体上让网友对你进行人肉，进而就是人身攻击。冤大头。
 
-都是最特别的
-Son las más especiales
-
-樱花农场
-La finca Flor de cerezo
-
-阿信, 小熊
-Axin, Xiaoxiong
-
-告诉战友们
-Díganle a los compañeros luchadores
-
-一切答案在这
-Todas las respuestas están aquí
-
-明年会很黑暗
-El año que viene será muy oscuro
-
-你唯一的希望
-Tu única esperanza
-
-你唯一的机会
-Tu única oportunidad
-
-就是跟农场和联盟保持联系
-Es mantenerte en contacto con la finca y la alianza
-
-还有远离城市
-También alejarse de la ciudad
-中国的现代城市化
-La urbanización moderna de China
-
-和迅速地城市化
-Y el proceso de urbanización rápida
-
-乡村城市化
-La urbanización rural
-
-绝对是中国的灾难
-Es absolutamente el desastre de China
-
-任何有脑子的人记住
-Cualquier persona que tenga cerebro recuerde
-
-现在被伤害的人是你买房的
-Persona que está siendo lastimada es porque tu has comprado la casa
-
-被伤害的人
-Personas que son lastimadas
-
-郑州被淹死的, 是有车的(人)
-Las personas que se ahogaron en Zhengzhou fueron los que tenían carros
-
-现在在西安城市里饿死的
-El que se murió de hambre en la ciudad de Xi’an en este momento
-
-是在城市里边
-Es el que estaba dentro de la ciudad
-
-当房奴, 当街奴, 当打工奴的
-Siendo esclavo doméstico, esclavo callejero y esclavo trabajador
-
-你待在老家绝对比在西安安全
-Quedarte en tu ciudad natal es definitivamente más segura que en Xi’an
-
-绝对比在郑州安全
-Será más seguro que estar en Zhengzhou
-绝对比待在任何二级城市安全
-Definitivamente es más seguro que quedarse en cualquier ciudad secundaria
-
-更不要说在北京
-Menos mencionemos estar en Beijing
-
-每年要赶一次什么二级下流人士
-Corran a los indecentes de segundo nivel una vez al año
-
-低级人士被驱赶的城市
-La ciudad donde las personas de bajo rango son expulsadas
-
-永远记住中国人最安全的地方
-Recuerden siempre el lugar más seguro para los chinos
-
-在你老家
-Es tu ciudad natal
-
-在农村, 绝不在城市
-En el campo, nunca en la ciudad
-
-七哥今天第一次这么告诉你们
-Les digo esto por primera vez
-
-听七哥的
-Escúchenme
-
-看这个, 联系农场
-Vean esto, contacten a la finca
-
-远离城市
-Aléjanse de la ciudad
+有个有趣的比喻，说互联网上这么多的垃圾讯息，其实都是对着垃圾去的，撒旦的归撒旦，上帝的归上帝，垃圾的归垃圾，暴力的归暴力，懦弱的归懦弱。有的人终究要离开，拦不住。人生这场梦，谁做下一场？只愿大梦一场，一觉醒来，真空。
 
 * * *
 
-日期：01/04/2022
-原视频标题：文贵先生告诉墙内同胞远离城市呆在农村
-Sr. Wengui les dijo a los compatriotas chinos que se mantuvieran alejados de la ciudad y se quedaran en el campo.
-原视频日期：01/02/2022
-原视频网址：[**https://gettr.com/post/pleaas6c68**](https://gettr.com/post/pleaas6c68)
-任务编号：3392
-视频时间段：00:00-01:23
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

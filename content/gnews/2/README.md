@@ -2,30 +2,111 @@
 ---
 
 
-## 垃圾海洋时时静好
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1828274/)
+## 北韩怎么变成家天下的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1828341/)
 
-文：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/lgpo0bxi.jpeg)海洋污染 / 图源：网路
-人类自从有了互联网，每天要产生的垃圾讯息数不胜数。社交媒体上更是。Twitter、Facebook表面上吹得好，有大部分的活跃用户，但是，这些活跃用户天天就是发垃圾讯息的，那些小黄图、诱导犯罪、歪曲事实、重复内容，提供这些垃圾的有一大部分都是在共产党的监狱里的键盘手。TikTok作为短视频翘楚，风头正劲着，那些垃圾没用的讯息，还有暴力讯息那更是无法计数。前段时间曾经有一个集体诉讼关于TikTok的，起诉人是TikTok的内容审核员，她被强制要求观看一些暴力不适视频，中间不让休息，工作时间还安排得非常不合理。正常人来说，看个恐怖片都要害怕好几天，而这些审核员是在被不停地审核这些内容，25S钟就必须要审一个。本来互联网审核这些内容的一些协会是制定了休息标准的，但是TikTok才不管那个，结果员工就开始产生了强烈的心理不适，晚上做噩梦，应激障碍。谈论这个例子，首先要说明的是互联网讯息的垃圾已经到了不收拾不能下脚的地步，其次就是审核员都能给得上心理障碍病，那还能相信平台推出的这些内容都是无害的吗？抛开那些虐待、食人的视频，剩下的无害视频，有哪些是有用的？要找找得上冠状病毒了怎么吃药，这类型的讯息能找得到吗？不能。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/118124811_tt-girl.jpg)TikTok 无面人 / 图源：网路
-岁月静好怎么来的，都是垃圾讯息给惯出来的。那些个假大V天天唧唧吧吧个嘴，废话说起来没完没了。说实在的，你说这些个废话真得没啥，你一天像川普一样发个二百条推文都没关系，烦就烦在误导讯息。很多大V怎么来的，就是对中共中央发出的某文件，某政策进行解读，顺便买点假粉丝，这么一互动，好了，小粉红群体都觉得你跪舔共产党舔得姿势如此不一般，高，实在是高，就follow上了。一旦粉丝达到一些数目，好嘛，这个人崇拜马上就上来了。粉丝动不动就这个大大好，那个爸爸行，能不飘吗？再加上一旦被上头收编了，那以后的推文、博文，只能更舔，整个又红又专。共产党让宣传岁月静好，能发到处死人，到处隔离，半夜被封楼的讯息吗？不发讯息那这个号上几百万几千万关注量，现在发文都是可以获得收益的，这钱不赚白不赚。那些到处死人的情况就赖他们活该，到处乱跑，隔离是应该的，他们该被关起来，他们该被饿着。就算这个号背后的真人都被隔离了，他还是会从网上找些党统治得真好，顺便抄点鸡汤，你若安好便是晴天，岁月静好，西安加油。（脏话）。中国地域范围这么大，连咸甜豆花儿都能吵翻整个互联网，凭什么这些片面的、歪曲的垃圾讯息能够被其他网民认为是正确的？难道那些在微信群里发布自助信息的老百姓就都发的是假的吗？凭什么共产党要把社交媒体都官方垄断，造谣都要以官方谣言为主，“请不要相信其他的谣言，以官方谣言为主”？有多荒唐！并且最近这股子邪风恶气都吹到西方所谓的言论自由的社交媒体上面来了都，Twitter建立了自己的言论审查体制，俨然就是一个小型的共产党“真理部”机构，一切言论请依据党中央的指示。
+[https://gtv.org/video/id=61d6b473dffab035958b6679](https://gtv.org/video/id=61d6b473dffab035958b6679)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/768557c8b7e411a69f0f66e90a143e69.jpg)鸡汤 / 图源：网路
+**郭文贵
+Miles Guo**
 
-自从共产党释放了冠状病毒，全世界的媒体都来配合掩盖，不让去中共国武汉溯源，说成啥也是不让。然后开始让所有人接种新冠疫苗，宣传打疫苗更是用上了具有共产党特色的虚假宣传。不报道疫苗死亡人数，适时地再放一场病毒，希腊字母都用上，一会儿一个新变种，一有新变种出来就开始引发群众性恐慌，快去打疫苗吧，快去吧，必须得打呀，第三针快去吧。
+这三本书改变了他的一生，他也改变了整个北朝鲜和南韩
+These three books changed his life, he also changed the entire North Korea and South Korea
 
-一边垃圾讯息漫天飞，岁月静好一把抓，另一边是各种暴力不适视频到处推送，人们常常怀念手机还不能上网的年代，那个时代感觉人心都没有那么复杂，也没有网路恶意，中伤旁人。只是时间永远不能倒着走，今天这些岁月静好，怀念过去的人，有哪个没有打疫苗？这两个圈重合的几率非常大。他们盲目自负，怀旧，自大，当然，怕死，打上疫苗到处玩，传染得还快些。就算周围已经发生了新冠疫苗死亡事件，他们依然不以为意，甚至还在上传静心P好的自拍图片，配文：你的离开是岁月的一次惊叹。甚至还有在葬礼上直播要礼物要打赏的。社交媒体的中毒者都在说着旧日岁月的美好，但一分钟也离不开当代垃圾互联网。这样的人，就算你劝他不要打疫苗，他只会反过来仇视你，还会把你劝他不要接种疫苗的聊天记录晒到社交媒体上让网友对你进行人肉，进而就是人身攻击。冤大头。
+其中一本书就是弗洛伊德，弗洛伊德的书就是《梦(的解析)》
+One of the books is Freud’s “The Interpretation of Dreams”
 
-有个有趣的比喻，说互联网上这么多的垃圾讯息，其实都是对着垃圾去的，撒旦的归撒旦，上帝的归上帝，垃圾的归垃圾，暴力的归暴力，懦弱的归懦弱。有的人终究要离开，拦不住。人生这场梦，谁做下一场？只愿大梦一场，一觉醒来，真空。
+然后就是人与人的关系，就是他是从弗洛伊德的书学的
+Then there is the relationship between people, that is he learned from Freud’s book
+
+第二个就读了托尔斯泰，那么第三个看了什么
+The second one he read Tolstoy’s, so what did the third one he read
+
+他就把希特勒的事情全看了，他全看完了，就希特勒，什么戈培尔、斯佩尔
+He read all about Hitler’s, and after he read them all, Hitler, Goebbels and Speer
+
+什么这些人啊，曼斯坦因，这些所有的他都看完了
+these people, Manstein, he has read all of their lives and deeds
+
+那么看完之后，他最后给他爹干什么，他爹给了他一个任务
+So after read it, what did he do for his father in the end? his dad gave him a task
+
+就是叫做当时的北朝鲜，叫文艺宣传组的副组长，就现在宣传部的副部长
+It’s called North Korea at that time, it’s called the deputy leader of the literature and art propaganda group, that is deputy head of the propaganda department now
+
+这哥们厉害在哪里，他把整个好莱坞所有的电影全看了个遍
+What’s so good about this buddy? He watched all the Hollywood’s movies
+
+当初拍出那些荒唐的电影，今天看这荒唐的电影
+he made those ridiculous movies at the beginning, and watch this ridiculous movie today
+
+金日成、金正日父子俩干出那些电影，那就是他干出来的
+Kim Il-Sung and Kim Jong-il, father and son made those movies, that’s what he did
+
+而且拍了整个的什么梦工厂，完全学好莱坞的，然后那个宣传
+And he filmed the whole DreamWorks, he copied Hollywood completely, and then the publicity
+
+然后首先把这个白头山，他的家族化，然后把他爹更神秘化
+Then first make this Changbai Mountain and his familization, and then make his father more mysterious
+
+抗日当时是他爹是在哪出生，白头山出生，怎么这些故事，爱情故事
+At the time of the Anti-Japanese War, it was where his father was born, at Changbai Mountain, the stories, love stories
+
+什么啪一枪上去了，飞机掉下来了，是吧，如何如何
+Like a snap shot up, the plane fell down, right? Blabla
+
+然后整个的白头山上，开满了整个的什么山花了，这故事
+Then the whole Changbai Mountain（Heaven Lake）was full of all kinds of flowers, this story
+
+在瑞士有人研究过他的，就这个人学的是心理学
+Someone in Switzerland studied him, and this man(Kim Jong-il) studied psychology
+
+他把人的心里给研究透了，你不懂心理学，你怎么懂人际关系，是不是
+He has thoroughly studied the human mind, if you don’t understand psychology, how do you understand interpersonal relationships? right?
+
+共产主义，就是把人与人的关系给搞明白了
+Communism is to understand the relationship between people
+
+绝大多数的人是自私的，是懦弱的，特别是怎么让他自私和懦弱呢
+The vast majority of people are selfish and weak, especially how to make them selfish and weak?
+
+让他少教育，知道的越少越好，让他非常辛苦地拼命去工作
+Let him be less educated, the less he knows the better, and let him work very hard
+
+没有时间闲暇考虑别的，真的很忙，让你忙无所事
+No spare time to think about other things, keeping you busy and doing nothing
+
+然后让你这个人完全不懂这个世界，共产主义的创伤，就让人变得无知
+Then make you not understand the world at all, the trauma of communism is to make people ignorant
+
+然后自私，然后懦弱，最后就变成了动物，这就达到了共产主义
+Then selfishness, then weakness, and finally becoming an animal which reaches communism
+
+最后是什么统一的行动，统一的思想，统一的服装，统一的音乐
+In the end, it is unified action, unified thought, unified clothing, unified music
+
+最后听一个人说话，达到了家天下
+Finally, listening to one person, the country became a family country
 
 * * *
 
-作者：骄子
-发布：骄子
+Date: 01/05/2022
+原视频标题: 北韩怎么变成家天下的
+How North Korea became family country
+原视频日期：2022/01/01
+原视频链接 [**https://gettr.com/post/plqhwu2e35**](https://gettr.com/post/plqhwu2e35)
+任务编号：KC398（3408）
+视频时间段 : 0:00-2:13
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

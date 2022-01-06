@@ -2,37 +2,41 @@
 ---
 
 
-## 佐治亚州官员对2020年非法选票展开调查
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1828121/)
+## 马龙博士宣布将在DC举行反新冠疫苗授权大集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1828139/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-313.png)图片来源：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-316.png) 图片来源 : lifesitenews.com
 
-据《Just The News》报道，佐治亚州官员已经对2020年总统选举和随后的美国参议院决选期间的民主党人收票行为，展开调查。
+“我们相信自然免疫的力量； 我们相信并坚持知情同意，”罗伯特·马龙博士说。
 
-佐治亚州务卿办公室还在考虑发出传票以确保证据，这些证据在选民诚信组织”真实投票”(True the Vote)于11月30日提交的申诉中，作了详细说明。
+生活新闻- 1 月 23 日，厌倦了 COVID-19 强制措施的美国人，将前往华盛顿特区，抗议强制性 COVID 疫苗接种，以及拒绝接受新一波对有争议的反对疫苗的人的污名。
 
-True the Vote”收集到的证据表明，数十名活动家与非营利团体合作，在大流行期间，经常在凌晨时分收集并运送数以千计的缺席选票到分布在全州的临时投票箱。” 这一努力与佐治亚州禁止第三方活动家代表选民领取和递送选票的法律相抵触。
+直言不讳的 COVID-19 反应异见者和 mRNA 技术先驱罗伯特·马龙博士，最近因批评辉瑞 COVID 疫苗而被推特禁止，他在接受播客主持人乔·罗根采访时，宣布了反授权集会。
 
-《Just The News》总结了选民诚信组织的调查结果，包括活动分子放下成批选票的监控录像，以及一个人承认他在亚特兰大收获选票的报酬：
+“这不是反对疫苗；这是关于反授权，我们希望将人们聚集在一起，”马龙解释说。 “来自各行各业、所有政党、所有宗教、所有种族背景的人……我们可以达成一致的是：个人自由和人们做出自己选择的权利。”
 
-根据《Just the News》审查的文件，True the Vote告知秘书，其证据包括各县在投递箱外放置的监控摄像头的录像，以及200多名活动人士的手机的地理位置数据，据称这些录像显示了投递选票的日期和时间。
+他补充说：“因此，这将成为全球同一天的自由集会的一部分，**这场集会将席卷全世界。**”它将代表“没有疫苗护照；健康儿童不接种疫苗；对审查说“不”……我们相信自然免疫的力量；我们相信并坚持知情同意。”
 
-True the Vote还表示，它采访了一名佐治亚州的男子，该男子承认在11月选举和2021年1月5日佐治亚州两个美国参议院席位决选前，他得到了数千美元的报酬，在亚特兰大市区收获选票，这两个席位都被民主党人夺得，结束了美国国会的控制。True the Vote尚未向州当局确认合作证人（报酬收获者）的身份，在投诉中只称他为无名氏。
+该活动的网站称，该活动由“团结项目”（Unity Project）、儿童健康保卫战（Children’s Health Defense）和全球冠状病毒峰会（Global Covid Summit） 团体赞助，将于**2022****年****1****月****23****日**上午 11:30 在华盛顿纪念碑开始，参与者将从那里步行约 1 英里到达林肯纪念堂，然后他们将听到尚未公开的“录音艺术家、著名医生、记者、职业运动员、演员和主要思想领袖”阵容。
 
-True the Vote并没有指称快递员交付的选票是欺诈性的。然而，由第三方运送到投递箱的合法选票会触犯佐治亚州的法律。
+“不接受疫苗授权，”该网站宣称。“反对疫苗护照。拒绝给健康儿童接种疫苗。不接受审查。不限制合理辩论。”
 
-“佐治亚州州务卿布拉德·拉芬斯佩尔格（Brad Raffensperger）在周二播出的播客（John Solomon Reports）的采访中证实，他的办公室已经认为这些指控足够可信，可以展开调查，并可能向州选举委员会寻求传票，以确保证据，”报告补充说。
+“是的，我们相信自然免疫的力量，”它补充道。“是的，我们坚持知情同意。同意医生和患者在不受干扰的情况下做出决定。”
 
-“这将是我们正在考虑的程序之一，如果我们有一些人出于某种考虑不想站出来，因为我们真的需要弄清事情的真相，”拉芬斯佩尔格在采访中说。”我们不能让真相坐在那里，躺在那里。因此，如果事情发展到这一步，那么这可能是我们要考虑的下一步。”
+更多详细信息，包括出席登记、酒店住宿以及如何注册更新，请访问
 
-新闻来源：[thenationalpulse.com] [Georgia Officials Launch Investigation Into Illegal BallotHarvesting.](https://thenationalpulse.com/2022/01/05/ga-investigating-ballot-harvesting/) | 发布时间：2022年01月05日
+[DefeatTheMandatesDC.com](https://defeatthemandatesdc.com/).
+
+新闻来源:[ lifesitenews.com] [mRNA pioneer Dr. Robert Malone announces major DC protest against COVID vaccine mandates](https://www.lifesitenews.com/news/mrna-pioneer-announces-major-dc-protest-against-covid-vaccine-mandates/)
 
 * * *
 
-*发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
