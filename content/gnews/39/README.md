@@ -2,86 +2,65 @@
 ---
 
 
-## 全球疫情更新（澳网名将法庭挑战澳洲政府疫苗要求）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1828555/)
+## 粮价涨幅加大，令人担忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1828601/)
 
-#### **整理/编辑：枳实**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/GTHVGHKEJ4H5Y824UD-2.png)图片：雅典娜农场设计组 精灵蓝
+作者：香草山金融部-Opal
 
 
-雅典娜疫情更新（2022年 1月６日）
 
-**一，全球疫情基本数据**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
 
-感染总数：297,527,766（日新增1,854,021，14天增幅+159%）
 
-死亡总数：5,462,748（日新增6,037人，14天增幅–11%）
 
-每万人感染人数：458.9538 人（除中国外）
+据路透社报道，芝加哥大豆和玉米期货12月28日周二走高，两个市场均在多个月高点附近交易，因南美的干燥天气引发对供应的担忧。小麦价格在周一收低后上涨。芝加哥期货交易所 (CBOT)最活跃的大豆合约上涨0.3%，至每蒲式耳13.75美元，走向连续第十个交易日上涨。玉米上涨0.2%，至每蒲式耳6.15-3/4美元，迈向连续第五个交易日上涨；小麦上涨0.4%，至每蒲式耳8.07-1/4美元。
 
-**二，全球“疫苗”毒针统计数据**
 
-“疫苗”毒针注射总数：92.1亿
 
-完全“接种”：38.8亿人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-1.jpg)
 
-完全“接种”百分比：49.8%
 
-**三，澳洲疫情和“疫苗”数据**
 
-感染总数：684,614（今日新增 72,401人）
+周一公布的监管数据显示，截至12月21日的一周内，大型投机商提高了芝加哥期货交易所CBOT玉米期货的净多头头寸。包括对冲基金在内的非商业交易员增加了芝加哥期货交易所CBOT小麦的净空头头寸，并提高了大豆的净多头头寸。
 
-死亡总数： 2,302人（今日新增 13人）
+美国农业部周一表示，上周有1,577,417吨美国大豆接受了出口检验，这在贸易预估范围内，该机构还将前一周的大豆检验总量上调了21万多吨。
 
-每万人感染人数：236.0780人
+12月31日芝加哥商业交易所（CME）活牛和瘦肉型生猪期货周五因获利回吐而下跌，但两个市场均录得年度涨幅，其中2021年生猪上涨近16%，活牛上涨23%，为2014年以来最大涨幅。3月饲用牛期货周五结算价上涨0.950美分，报每磅169.950美分。2021年，前月饲料牛上涨20.1%。2月生猪期货收跌1.225美分，报每磅81.475美分。今年以来，前月生猪价格上涨15.9%，是2019年攀升17.1%以来的最高值。
 
-“疫苗”毒针注射总数：43,306,383 （日新增262,353针）
+上述的期货价格反映出，未来的一段时间内，粮食价格会越来越高，而粮食的价高推高了饲料的价格，因为饲料也是粮食做的，进而导致养殖的家畜价格上涨，肉类价格也会越来越高，这个链中，是一环紧扣一环的。
 
-完全“接种”：18,917,536人
+中共国虽然地大物博，但人口众多，可耕地面积越来越少，农作物是不能自给自足的，粮食以及用作家畜的饲料，都要依赖进口。中共国墙内的粮食价格，对于国际市场上的粮价起伏变化，不是绝缘的，是受影响的。
 
-第二针“接种”百分比：77.1%
+中共国每年要向美国，这个世界上最大的转基因大豆生产国，进口10亿蒲式耳的大豆，占美国出口总量的60%左右，以及美国大豆产品生产总量的30%以上。中共国在川普在任时，为了打掉他的“票仓”而大打“大豆牌”，不买或少买美国的大豆，转向从巴西进口价格比美国的要贵得多的大豆。现在根据天气预报，咨询公司表示，本季巴西南部的大豆和玉米作物收成预计将减少，因为田地受到干燥的影响。这就使得国际市场上大豆价格冲高。
 
-16岁以上人口接种至少一剂疫苗的比例：94.6%
+进口大豆的价格上涨，带动豆粕的价格上涨，以及养殖的家畜价格上涨，导致猪肉价格上涨。中共国的猪肉类价格不是和国际市场的生猪类价格完全成正比，因为中共国有自己的养猪业。根据中国农业部12月29日周四晚些时候发布的信息，截至11月底，中国的母猪群比前一年增加了4.7%，达到4296万头。在2018年首次在中国发现致命的非洲猪瘟疾病后，中国一直在重建其猪群，并削减了猪的产量。
 
-16岁以上人口接种至少两剂疫苗的比例：91.7%
+通胀也是粮食价格不断上涨的原因之一，但是粮食的价格被推高的同时，工资如果没有同步增长，民众的日子就会越来越难过，特别是墙内老百姓。如果中共病毒疫情问题不解决，再加上明年世界各产粮国或地区如果发生水灾或者其他灾害，也包括墙内如果天灾人祸不断的话，那到时真的会发生粮食危机和各种次生灾难，这绝不是危言耸听。虽然我们不希望它发生，但我们要做好最坏的准备。
 
-**四，疫情要闻和评论**
+（本文仅代表作者个人观点）
 
-澳大利亚病例新增数字继续暴增，超过七万人，感染总数逼近七十万。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2S0U_CHTW4C4F193615RG.png)
-如上图所示，澳洲各州的病例数都迅速上升。更令人担忧的是，住院的 中共病毒肺炎 患者数量继续增加，目前的住院病例共有 3,279人。
+图片来源：
 
-[九次获得澳网冠军的网球选手德约科维奇](https://www.smh.com.au/national/australia-news-live-changes-to-testing-requirements-as-covid-19-cases-nsw-victoria-and-queensland-cases-continue-to-rise-20220106-p59m84.html)继续占据今日澳洲媒体头条，他的签证被澳大利亚入境处取消。看来他将成为大药厂用来示众的绝佳牺牲品。作为一位成绩最好，人气极高的网球选手，胆敢公开声明拒绝披露是否接种过疫苗毒针，无异于动了大药厂的奶酪。德约科维奇聘请律师在澳洲法庭发起了对澳洲政府的法律挑战。有支持者在关押他的卡尔顿公园酒店外集结抗议澳洲政府的不公待遇。其中也包括他的父亲，他的父亲表示他的儿子是新时代的 “斯巴达克斯”——一个反抗不公正、殖民主义和谎言的人。的确，在澳大利亚12岁以上接种率早已超过90%，而疫情反而如火箭般上窜之际，一位世界著名的拒绝强制疫苗的运动员向实施强制疫苗的澳洲政府发起了法律挑战，这的确是反抗不公正和谎言的勇敢行为。
+[https://www.istockphoto.com/](https://www.istockphoto.com/)
 
-在澳大利亚，在疫苗普及率到达极限的同时，疫情曲线也垂直向上，恰在此时，人气网球选手德约科维奇挑战澳洲政府，这个巧合实际上也正是唤醒民众的契机。越来越多的人会注意到强制疫苗牺牲了所有人的公民自由和人权。原本这些侵犯人权的政策实施的借口就是为了抑制病毒传播，控制疫情，但它实际上非但没有起到缓解病毒传播的作用，相反正是疫苗护照持有者们通过国际航班把奥米克戎毒株迅速传播到全世界，并在澳洲这个疫苗接种率名列前茅的国家引发史无前例的大爆发。然而，这个事实非但没有促使政府终止侵犯人权的疫苗护照政策，反而要将世界上成绩最好的选手因为疫苗护照而吊销其签证。媒体上仍然振振有词声称支持“科学”，反对给运动员特权，这难道不就正是《1984》中描绘的黑白颠倒的“自由即奴役，无知即力量”活生生发生于现实中了吗？
+直播链接：
 
-数据来源：
+[https://gtv.org/video/id=61d1b7cf31a71619b57337a9](https://gtv.org/video/id=61d1b7cf31a71619b57337a9)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+参考：
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+[https://www.reuters.com/markets/commodities/soybeans-corn-gain-more-ground-south-american-weather-raises-supply-worries-2021-12-28/](https://www.reuters.com/markets/commodities/soybeans-corn-gain-more-ground-south-american-weather-raises-supply-worries-2021-12-28/)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+编辑/校对/发稿：遵从内心
 
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

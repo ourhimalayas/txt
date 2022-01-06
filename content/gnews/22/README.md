@@ -2,63 +2,36 @@
 ---
 
 
-## Airbnb拟在2022年增加加密货币支付功能
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1828726/)
+## 郭先生阐释人生就如黄粱一梦
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828773/)
 
-#### 【雅典娜观察】与您一起洞察世界
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月5日的直播中，郭文贵先生重提与五台山大师在悬崖绝壁上关于“灵魂无界”的对话。同时，郭先生也传达了大师最重要的感悟，即，人生犹如一场黄粱美梦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-06-下午9.30.08.png)
+大师证言，人站在悬崖边上，挣脱肉身的羁绊、渡过自己，让灵魂如风、可以直达彼岸，此乃修行的正道。而无论何种宗教，其最终对人生的答案都是一切皆空相，犹如“黄粱一梦”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/airbnb-cryptocurrency-payments.jpg)
+郭先生表示，人在做梦时会面对着自己的灵魂，是最真实的自己。此时，人在挣扎中的唯一解脱就是从梦中醒来，经历新的一天。
 
+郭先生还解释道，一个人或是做了美梦、喜梦，或是在梦中遭受厄运和折磨，但倘若他在醒来时都能为活着感到庆幸和愉悦，这个人就得到了自己的修行。
 
- 
-图片来源：totalkrypto.com
+郭先生也提到，从宇宙的角度来看，人类生活在一个更高层次的梦境中，而每个人都有属于自己的人生之梦，不必过多为他人担心，尽力尽责即可。至于独裁者，他们皆是从一开始的偶然性，经过吹捧包装伪装成神迹，妄想将自己变成上帝，但他们到最后只会被彻底消灭，一生也不过是黄粱一梦。可悲的是，他们在临死之前还会给全世界带来噩梦。
 
+参考链接：[2022年1月5日 文贵大直播](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-**Airbnb****的客户可能很快就能使用加密货币预订住宿，因为用户向该公司的首席执行官建议使用加密支付方式。**
+总编：Kathy文艺
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-美国房屋租赁公司Airbnb Inc.可能很快就会加入越来越多的公司名单。这些公司接受加密货币作为服务的支付方式。
-
-#### **Airbnb****将接受加密货币支付？**
-
-Airbnb支持加密货币支付的可能性是在该公司联合创始人兼首席执行官赖恩·切斯基 (Brian Chesky)在推特（Twitter）上，要求用户推荐他们希望这家房屋租赁公司在2022年做的什么事情之后出现的。
-
-在切斯基提出这个问题的三天后，他整理了近4000条评论，并列出了前六条建议。
-
-#### **加密货币支付位居榜首**
-
-显然，许多人希望能够用数字资产预订Airbnb公寓，因为“加密货币支付”在建议列表中名列前茅。
-
-排名前六位的其他建议包括提供清晰的价格显示，客人忠诚度计划，更新清洁费，更多长期住宿和折扣，以及更好的客户服务。
-
-有趣的是，这位首席执行官补充说，其中一些建议已经在2022年的筹备中，公司将考虑其他建议。
-
-虽然切斯基没有明确说明他的公司对增加加密货币支付的立场，但他的评论可能意味着两件事中的一件。**要么Airbnb在首席执行官征求建议之前就已经计划将数字资产支付纳入其服务中，要么它将在年底前考虑这样做。**
-
-不管是什么，**切斯基指出，“加密货币支付”的建议包括各种代币想法，包括比特币。**
-
-这家房屋租赁公司的联合创始人还补充说，Airbnb自2013年以来处理的，现有的支付量为3360亿美元。
-
-随着该行业继续获得主流采用，支持加密货币可以增加这一数字。这将使该公司与Dtravel竞争。Dtravel是一家去中心化的房屋租赁公司，由Airbnb和Expedia的前高管在领先的加密货币交易所（币安）Binance的支持下成立。
-
-#### **更多公司支持加密货币支付**
-
-同时，去年有许多公司整合了加密货币支付选项。正如2021年8月报道的那样，受欢迎的德国时装公司Philipp Plein International AG表示将允许客户用15种不同的加密货币购买产品，包括比特币和以太币。
-
-同样，美国金融科技公司Verifone在9月与比特币支付服务提供商BitPay合作，向其在美国的客户提供加密货币支付选项。
-
-新闻来源：[Airbnb CEO Dabbles With Adding Crypto Payments in 2022 (cryptopotato.com)](https://cryptopotato.com/airbnb-ceo-dabbles-with-adding-crypto-payments-in-2022/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

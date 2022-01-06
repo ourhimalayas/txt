@@ -2,8 +2,8 @@
 ---
 
 
-## 人生就是黄粱一梦
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1829081/)
+## 对天地对人的敬意和爱意叫新中国联邦
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1829214/)
 
 台灣寶島農場
 
