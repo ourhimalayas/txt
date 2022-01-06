@@ -2,31 +2,37 @@
 ---
 
 
-## 日澳签署《相互准入协定》防阻中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828785/)
+## 盖特：未来传媒界唯一的新生力量
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1828862/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，据澳大利亚媒体报道，日本驻澳大利亚大使山上信吾表示，日本与澳大利亚将于本月7日共同签署《相互准入协定》，以便两国允许双方的军队互相进入对方的领土，从而加强两国的军事训练。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-5.jpg)
-报道提及，这是自二战结束后日本与美国签订防卫协议以来，该国第二次与外国签署军事协定。对此，山上信吾强调，这将是一项历史性的重大协议，其目的在于增强两国军队联合演练的强度、规模及频率，用以共同对抗来自中共的军事威胁。
+撰稿：纽约香草山教育部 – Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+1月5日，郭文贵先生在大直播节目中爆料称，盖特和GTV在未来的价值绝对是无法用金钱来衡量的，它们将彻底颠覆信息时代里媒体的游戏规则，并成为未来传媒界中唯一的一股新生力量。
 
-山上信吾也指出，通过结合美、日、澳三国的军事协防力量，印太地区将大幅增加对中共的威慑力。此外，日、澳两国也将致力于推动实现一个自由和开放的印太地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.08.49.011.jpg)
 
-参考链接：[澳日將簽訂相互准入協定 澳媒：劍指中國](https://www.cna.com.tw/news/aopl/202201050024.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+郭先生强调，盖特平台在取代旧的社交媒体上有两点至关重要。其一，盖特是世界上唯一敢于揭露疫苗灾难的救命媒体；其二，它彻底颠覆了依靠出卖用户数据来获得收益的旧的盈利模式。盖特最重要的功能既不是直播，也不是盖特Pay，而是在FB，推特，youtube等旧平台都必须死的情况下，作为传媒界未来唯一的太阳。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+盖特的可贵之处在于，它既打破了法币和数字货币之间的边界，又将被社交媒体奴役的人民从其手中解放出来，同时开创了媒体成为个体间沟通桥梁的崭新模式。盖特是能够实现信息、货币、人权自由的媒体平台，具有着解放全人类的重大意义。
 
-总编/编辑：飞虹
-校正/发稿：Fei797
+盖特和GTV也是唯一可以拯救中国人的平台。当中共利用记者杨贝贝和世界级媒体HBO来抹黑中国人是种族主义，是西方民主的大威胁的时候，只有盖特和GTV能够完整地将真相公布出来，保护好海外华人的安全，让印尼排华的事件不再发生。
 
+目前，盖特上的活跃用户超过了96%，每天的申请超过了500万。此前，纳瓦罗曾评价盖特是推特的杀手。相比其他媒体，达到100万用户，推特用了两年，FB用了10个月，而盖特只用了3天。郭先生曾指出，推特如今只有3000万的活跃用户，而盖特的潜在用户是十几亿。班农先生也曾预估，盖特将有7.5亿到10亿的潜在市场。
+
+郭先生最后说，在盖特平台上，自己被评为中共的噩梦，也赢得了无数西方人的尊重，这都是爆料革命一直坚持为真不破的善果。媒体的力量是巨大的，我们爆料革命的战友一定要好好地利用盖特平台来向世界传播真相。
+
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
