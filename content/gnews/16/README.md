@@ -2,10 +2,10 @@
 ---
 
 
-## 赵立坚：对于中共的疫情滥诉和指责都是闹剧
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827978/)
+## 王毅吹嘘中俄结盟、领导世界
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827980/)
 
-12/30/2021 中共外交部发言人赵立坚：对于中共的疫情滥诉和指责都是闹剧。
+12/30/2021 中共外交部长王毅吹嘘中俄结盟、领导世界。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

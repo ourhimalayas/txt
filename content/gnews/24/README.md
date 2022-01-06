@@ -2,23 +2,49 @@
 ---
 
 
-## 中共在冬奥会前加大言论监控
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1827881/)
+## 日本农场绝不可错过作为美国之外的第二喜币市场的日本
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1827923/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/603.jpg)图片作者：澳喜森森
-据《华盛顿邮报》（The Washington Post）报道，中共将研发十年的舆情分析软件用于大规模监控墙内网民和政治敏感讯息，并已用于推特、脸书等国际主流社交网络平台，中共的主要目的为搜集批评中共的中外人士的讯息。从经由中共政府公开招标平台，审查三百多份当局从2020年开始对外招标的文件、契约和公司档案发现，包括中共官媒、宣传机关、军警、网络监管机构在内，都在运用更新式的软件系统以搜集情报。
+**郭文贵先生**：我一再地说日本的H-Pay市场，还有日本未来的数字货币整个儿的未来，还有在日本整个儿的喜币和喜美元的流行，还有和未来整个的实施，可以说它是战略性的，应该说是排在第二位置。它除了美国之外，它就是最重要的。
 
-澳媒《澳洲人报》（The Australian）近期报导，澳洲高阶官员警告：出席北京冬季奥运会的澳洲运动员将会受到中共网络间谍全天候监控，中共会追踪运动员的通讯与行动，并且搜集运动员个人信息。
+而且日本这个国家一定会在数字货币市场上，这次会抓住这个机会，它不会再输掉了。过去的日本二战之后，在金融市场上简直这个，日本这个国家把所有国家的财富全输光了。就日本的金融烂到什么程度？就共产党的科技发明有多烂，日本的金融就有多烂，就这么简单。
 
-最近，尤其是北京冬奥会临近，墙内的战友感觉墙越来越高了、梯子也越来越不稳了；而墙外的战友也发现中共走狗社交平台——推特和脸书对言论审查又“严”了，大量战友的推特号被封，这个元旦期间，这些无良媒体的罪行又加了一笔。中共越是加强言论审查和管制，说明他们越恐惧真相和真话被听到，正如郭先生近期在直播中强调我们要坚持传播揭露HBO-VICE精心编织的谎言一样，我们更要坚持在不同社交平台、用不同语言、不间断的传播真相！
+所以说日本的整个儿的交易一定会有一个……不管中间会有多大的曲折，日本最后一定会成为喜币流行的重要市场，不管有多少挫折。然后在日本这个喜支付是绝对的重要。你这个我再不具体说了，你千万不要错过这个时机。
 
-最后，分享郭先生一句话与战友们共勉：社交媒体的力量比核武器、比总统的战争权还要厉害。
+日本这几个农场，因为今天没有说太具体，如果你们错过这个机会，那草根明年再大直播，你绝对看不到草根小哥了。你不会再看到 Cosmos你不会再看到马拉多纳，你不会再看到勇气、魔女，不会再看到的。
 
-参考链接：[联合新闻网](https://opinion.udn.com/opinion/story/120611/6008706)
+温暖姐姐你别在那块儿很自信，你别老是，今天你和文嘉在一块儿一唱一和的，我们有蓄积着力量。明年如果在这个事上搞不明白，你明年都成笑话了，你自己都不好意思看电视了。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+所以说抓住这机会，说的得别好，一定会重要的对喜币发生的市场、就是第二市场日本。谢谢。
+
+字幕来源：[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（一）](https://gnews.org/zh-hans/1816030/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

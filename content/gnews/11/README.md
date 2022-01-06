@@ -2,24 +2,25 @@
 ---
 
 
-## 美国新任驻日大使批评中共国不是好邻居
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828023/)
+## 债券大王杰弗里·冈德拉克：目前不可投资中共国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828028/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://lh5.googleusercontent.com/30twM3G50W1Dx11enBYqFwhVP0upAhoc49YwDuxk2j6OJqSvWbA0UBlhHAVbiGHuvQgSfGgyRm2zoLF8RuzWYVjBAgliJerBA0nwDv7JkLFEngOFV2aZkTMJ9zH8NX3pm7gb8lGU)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211021/527784405251395584075916.jpeg/mttbk6woi1ZfugknbjRHBLk4fTBeBSksV2XNBFdlzQQ?v=w1920r16_9)
-即将走马上任的美国新任驻日大使拉姆·伊曼纽尔1月5日在华盛顿接受了日本NHK电视台的专访。伊曼纽尔直指中共国不是好邻居，不利于地区发展。
+#### 翻译/撰稿：zzballack
 
-伊曼纽尔透露，早在拜登就任总统之前的2020年12月，就接到了拜登关于是否有意担任驻日大使的问询。他接着表示：“对于美国来说，日本是一个重要的国家，历任驻日大使都是杰出人物，我深感责任重大。”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-3.png)图片来源：商业内幕
+据《雅虎财经》（Yahoo Finance）1月5日报道，美国投资公司双线资本（DoubleLine Capital）的创始人杰弗里·冈德拉克 (Jeffrey Gundlach)告诫投资者，在把钱投入中共国之前需要三思而后行。
 
-关于拜登政府视为美国最大竞争对手的中共国，伊曼纽尔谈及了香港及南海局势相关问题，指出：“中共国不是日本的好邻居，也不是有利于地区发展的积极因素。”他强调，美日两国正因为拥有民主这一共同价值观，所以才能为地区发展做出贡献。
+债券大王杰弗里·冈德拉克在其加州庄园接受《雅虎财经》采访时说：“在我看来，目前的中共国是不可投资的。我在中共国从来没有任何长线或短线投资。为什么呢？因为我不相信（中共的）这些数据，我也不再相信中美之间的关系。另外，我认为在中共国的投资可能存在被没收的风险。”
 
-伊曼纽尔表示，自己将为促进美日双边关系竭尽全力。他指出，美日这两个民主国家正在就发展共同的价值观迎来一个重要时期。
+冈德拉克的上述评论是在双线资本的第三届年度圆桌会议（Roundtable Prime）投资者活动之前发表的。
 
-消息来源：[**美新任驻日大使：将为发展双边关系竭尽全力**](https://www3.nhk.or.jp/nhkworld/zh/news/342121/)
+去年发生的一系列事件可以证实冈德拉克对中共国的担忧。2021年，滴滴等大型互联网公司遭到了中共政府的持续打压，这让许多投资者感到震惊。除此以外，中共还在不断打击加密货币的崛起。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+冈德拉克对新兴市场越来越乐观，但不包括中共国，因为他认为中共国不再是一个新兴市场。
+
+新闻来源：[‘China is uninvestable,’ says Bond king Jeffrey Gundlach](https://finance.yahoo.com/news/bond-king-jeffrey-gundlach-china-is-uninvestable-114404300.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

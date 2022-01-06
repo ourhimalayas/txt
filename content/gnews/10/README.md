@@ -2,25 +2,26 @@
 ---
 
 
-## 债券大王杰弗里·冈德拉克：目前不可投资中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1828028/)
+## 【中日财经爆】加拿大国会与联邦大楼月底前禁用中共国口罩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828039/)
 
-#### 翻译/撰稿：zzballack
+整理编辑：东京樱花团丨peterwong
+![](https://lh6.googleusercontent.com/_dR6mjou77H-ysxyhdVaU4e2S_FTzVVl2PZSjQoZKHUqTMwdTNeOZPPA83rMTAJ81YyjDUVu67nMPTvOptSa9s7bBzleZp8jGRTuNxdgJ7iviKgXf3j6M85IIFj8ut8h1_DqRHpg)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/Own8GQ26Z4nQGzqgCgK8mg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/L03kLisPoS2xiGtActtsOQ--~B/aD0xMDAwO3c9MTUwMDthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/zh-tw/newtalk.tw/d00cdb2baa9680dfefbec89dd7cbc28a)
+加拿大国会禁用中共国制口罩！加拿大国会议员日前投票通过决议，明令在国会禁止使用中共国制造的口罩，甚至在加拿大所有的联邦政府建筑物内，也不得使用中共国口罩。众议院议长罗塔（Anthony Rota）表示，最快从1月31日开始，禁令生效。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-3.png)图片来源：商业内幕
-据《雅虎财经》（Yahoo Finance）1月5日报道，美国投资公司双线资本（DoubleLine Capital）的创始人杰弗里·冈德拉克 (Jeffrey Gundlach)告诫投资者，在把钱投入中共国之前需要三思而后行。
+加拿大媒体「True North」新闻网报导，国会议员意识到他们使用的口罩，竟然是从共产主义政权进口，而不是来自当地制造商后，做出此一决定。
 
-债券大王杰弗里·冈德拉克在其加州庄园接受《雅虎财经》采访时说：“在我看来，目前的中共国是不可投资的。我在中共国从来没有任何长线或短线投资。为什么呢？因为我不相信（中共的）这些数据，我也不再相信中美之间的关系。另外，我认为在中共国的投资可能存在被没收的风险。”
+原来，此次国会口罩招标，得标的加拿大公司向国会提供2种非医用口罩，1种在安大略省生产，另1种在中共国生产。罗塔表示，根据众议院的投票决定，已把禁止中共国口罩的要求通知该供应商。
 
-冈德拉克的上述评论是在双线资本的第三届年度圆桌会议（Roundtable Prime）投资者活动之前发表的。
+原本还有部分国会议员担心此举恐怕得罪中共，影响与中共国贸易协定，还有人声称“没有证据”可以证明中共国口罩进到国会里。不过，魁人政团议员维格诺拉（Julie Vignola）指出，盒子上明明印着“Made in China”（中共国制造），还要睁眼说瞎话吗？
 
-去年发生的一系列事件可以证实冈德拉克对中共国的担忧。2021年，滴滴等大型互联网公司遭到了中共政府的持续打压，这让许多投资者感到震惊。除此以外，中共还在不断打击加密货币的崛起。
+据了解，去年加拿大国会分发给国会议员的就包括中共国制口罩，当时就有保守党提出动议，要求联邦政府只能使用加拿大自己制造的个人防护装备。
 
-冈德拉克对新兴市场越来越乐观，但不包括中共国，因为他认为中共国不再是一个新兴市场。
+消息来源：[**中共国口罩out！加拿大国会与联邦大楼月底前禁用**](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%8F%A3%E7%BD%A9out-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%9C%8B%E6%9C%83%E8%88%87%E8%81%AF%E9%82%A6%E5%A4%A7%E6%A8%93%E6%9C%88%E5%BA%95%E5%89%8D%E7%A6%81%E7%94%A8-023311497.html)
 
-新闻来源：[‘China is uninvestable,’ says Bond king Jeffrey Gundlach](https://finance.yahoo.com/news/bond-king-jeffrey-gundlach-china-is-uninvestable-114404300.html)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 金灿荣说中共国国防开支小荷才露尖尖角
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827982/)
+## 中共砖家大放厥词说西方政党只代表一部分人利益
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827984/)
 
-金灿荣说中共国国防开支小荷才露尖尖角，而中共国制造成本比美国低，花同样的钱可以买更先进的武器。
+中共砖家郑若麟大放厥词说西方政党只代表一部分人利益而中共代表大部分中国人利益。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

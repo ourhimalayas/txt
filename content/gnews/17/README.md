@@ -2,10 +2,10 @@
 ---
 
 
-## 西安封城惨景：很多农民工无家可归
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827976/)
+## 赵立坚：对于中共的疫情滥诉和指责都是闹剧
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1827978/)
 
-12/31/2021 西安封城惨景：很多农民工无家可归，甚至没人去看看路上躺着的人。
+12/30/2021 中共外交部发言人赵立坚：对于中共的疫情滥诉和指责都是闹剧。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
