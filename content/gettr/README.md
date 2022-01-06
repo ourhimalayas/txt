@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/6/2022 6:29 PM (UTC)`
+
+1月6号：这是真的还是假的呀？🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥【奇迹就这样发生了，正道得天道💐💐💐💐💐💐💐🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈】
+![img](https://media.gettr.com/group45/getter/2022/01/06/18/287d13e8-6e4c-dddf-b846-743f6ffe1d9d/649b13ec56f818f6f7df114bd3c004b0.jpg)
+
+---
+
 `@miles 1/6/2022 5:58 PM (UTC)`
 
 1月6号：乖乖哟……梦游开始！@tbeansprout 【20大 习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长  ……】
@@ -154,14 +161,6 @@ Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is 
 
 The new episode of @plugtalkshow is now live featuring the ridiculously hot @emilywillisxoxo 😳 this is actually the first episode we ever shot. We interviewed her and then we ate her ass together. It was beautiful. Link in my bio  
 ![img](https://media.gettr.com/group18/tw/2022/01/02/23/40f264d2-0276-2880-4d2c-a9c7c6f70e21/04bd80f1f88c6132846fcaf485219e6f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@reploudermilk 1/4/2022 7:12 PM (UTC)`
-
-I love freedom and the First Amendment - that's why I'm on GETTR.
 
 ---
 
