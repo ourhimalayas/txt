@@ -2,72 +2,94 @@
 ---
 
 
-## 【Michael.Tonny專欄】注射中共病毒疫苗，發生嚴重心臟問題的風險飆升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1829317/)
+## 01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1829433/)
 
-作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+蒐集/整理：卡西歐
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0106fenmian.jpg)
+封面素材：獨立媒體
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.22.34-AM.png)
+**1. ****六名離港前區議員發聲明****   ****拒絕承認今屆立法會選舉**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[據【大紀元時報】01月06日訊，第7屆立法會議員已經於今年1月3日宣誓就職，是「完善」選舉制度後的首屆議會。 6名已經離開香港的前區議員於1月2日發表聯合聲明，拒絕承認今屆立法會選舉和當選人作為香港民意代表。聯署議員包括正在流亡被通緝的許智峯與丘文俊，以及李文浩、尤漢邦、郭子健和賴文輝。](https://hk.epochtimes.com/news/2022-01-06/52637235)
 
-在中共病毒溯源、徹底消滅CCP前，所有的所謂COVID-19疫苗（中共病毒疫苗）既不能預防感染，也不能減少死亡，疫苗有毒，千萬不要打毒疫苗！
+[聯署聲明表示，香港政府漠視民意強推國安法，先有47名民主陣營立法會初選人士被捕，後再使用行政手段，迫使大量民主派區議員失去議席，推翻民主選舉結果。他們拒絕承認2021年12月19日立法會選舉，以及當中任何候選人或當選人為香港的民意代表。所有候選人均需要通過政府的資格審查，是服膺於不公平選舉制度下所產生的，沒有任何資格代表香港人。](https://hk.epochtimes.com/news/2022-01-06/52637235)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+[已離港的郭子健在接受《自由亞洲電台》訪問時表示，仍在香港的現任或前任議員都不太方便聯署，希望身處海外的前議員繼續發揮影響力，聯署名單仍陸續更新。](https://hk.epochtimes.com/news/2022-01-06/52637235)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.22.44-AM.png)
+**2. ****多名立法會議員曾與初確者接觸　立法會須消毒**
 
-根據牛津大學、萊斯特大學、愛丁堡大學、倫敦國王學院、諾丁漢大學、英國心臟基金會卓越研究中心的14位專家學者去年12月23日聯合發表的研究論文《[Risk of myocarditis following sequential COVID-19 vaccinations by age and sex](https://www.medrxiv.org/content/10.1101/2021.12.23.21268276v1)》的結論，每注射一劑Covid mRNA疫苗，40歲以下男性患嚴重心臟問題（稱為心肌炎）的風險就會飆升，並且遠遠高於COVID-19病毒感染本身帶來的心肌炎風險提高。
+[據【Now新聞台】01月06日訊，立法會議員陸瀚民、陳仲尼及邱達根曾與一名初步確診者出席同一聚會，立法會要進行消毒。](https://news.now.com/home/local/player?newsId=462387)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Risk-of-myocarditis-following-sequential-COVID-19-vaccinations-by-age-and-sex.jpg)
+[據了解，同場出席這活動的，還有身兼全國政協委員的立法會議員陳仲尼以及邱達根。立法會秘書處指，相關議員及助理已進行檢測，在取得陰性檢測結果前不會返回立法會大樓及中信大廈的議員樓層，並改為在家工作，秘書處已安排清潔公司稍後消毒。](https://news.now.com/home/local/player?newsId=462387)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.22.53-AM.png)
+**3. ****十名官員出席有初確者聚會　林鄭：感十分失望**
 
-這項大規模研究是基於英國NHS的免疫管理服務(NHS Immunisation Management Service，NIMS)資料庫的42,200,614名13歲或以上至少接種過一劑Covid-19疫苗的英國人的資料，在這4200萬人中，大約有2200萬人接種了mRNA疫苗，10,978,507人接種了第三劑疫苗（加強針，或加速死亡針）。
+[據【Now新聞台】01月06日訊，行政長官林鄭月娥證實，有十名政府官員曾出席有初確者出席的洪為民生日會，包括民政事務局局長徐英偉、財經事務及庫務局局長許正宇、警務處處長蕭澤頤、入境處處長區嘉宏等。其中徐英偉被界定為密切接觸者，需要送往檢疫，林鄭月娥說感到失望，尤其是對徐英偉。](https://news.now.com/home/local/player?newsId=462403)
 
-對於所有疫苗類型（無論接種哪種疫苗），在40歲以下男性中發生心肌炎的相關性最強，在接種第三劑BNT162b2後1-28天內，40歲以下男性患心肌炎風險增加。
+[林鄭月娥說，十位出席的官員當中徐英偉被界定為密切接觸者，另外八位官員因早於初確者到場，即當晚九時半前離開並非密切接觸者。而入境處處長區嘉宏，雖然在九時半後到場，但因未有進入餐廳主要地方，未能確定是否密切接觸者。](https://news.now.com/home/local/player?newsId=462403)
 
-在接種了總共三劑疫苗的人中：接種第一劑疫苗後的1-28天內，每百萬接種BNT162b2疫苗的人發生3例，每百萬接種mRNA-1273的人中發生12例；接種第二劑ChAdOx1、BNT162b2和mRNA-1273後，每百萬人發生心肌炎的數量分別為14例、12例和101例；接種第三劑BNT162b2後有13例。
+[被問到自己的責任，林鄭月娥說作為特首，並非要為每位官員的個人行為負責。](https://news.now.com/home/local/player?newsId=462403)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.23.02-AM.png)
+**4. ****政府檔案處歷史檔案館明日起暫停開放**
 
-而儘管感染COVID-19後在，所有年齡段的男女中都觀察到COVID-19感染與心肌炎之間的關聯，尤其在40歲以上的人群中發生的機率都有明顯更高，但每百萬人中只有7例心肌炎案例。
+[據【香港電台】01月06日訊，因應新型肺炎的最新情況，政府檔案處宣布，有需要採取進一步限制措施，減少社交接觸。歷史檔案館閱覽室由明日起暫停開放，借閱館藏服務亦會暫停。香港歷史檔案大樓展覽廳亦將暫停開放，團體參觀及公眾教育活動則繼續以網上形式進行。](https://news.rthk.hk/rthk/ch/component/k2/1627661-20220106.htm)
 
-這篇研究論文的結論證明，注射COVID-19毒疫苗，得心肌炎的風險明顯高於COVID-19感染後得心肌炎的風險。
+[有關安排將實施至另行通知。](https://news.rthk.hk/rthk/ch/component/k2/1627661-20220106.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.23.13-AM.png)
+**5. ****陳肇始稱社區仍有傳播鏈　****聶德權稱延長疫苗中心預約**
 
-然而，無論善良的人們怎麼警告，總有那麼一些人，對善意的警告無動於衷，甚至把拒絕接種疫苗的人，劃分成另類群體！
+[據【香港電台】01月06日訊，食物及衞生局局長陳肇始表示，有兩名確診者曾在天后同一時段用餐，相信因此傳播病毒，雖然目前感染源頭較為清晰，但社區仍有潛在傳播鏈，政府會繼續追蹤，亦呼籲相關人士，盡快進行檢測。](https://news.rthk.hk/rthk/ch/component/k2/1627595-20220106.htm)
 
-前天前還在推特上炫耀他注射了Covid-19（中共病毒，CCP病毒）疫苗加強針的巴西《7號日報》（Jornal das 7）電視節目主持人Rafael Silva在直播現場突然因心臟驟停（cardiac arrests）而昏倒就是很好的證明。
+[公務員事務局局長聶德權表示，社區疫苗接種中心的預約時間，將延長至四星期，並按需求重開一至兩間社區疫苗接種中心，希望在兩星期內重開。](https://news.rthk.hk/rthk/ch/component/k2/1627595-20220106.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.23.22-AM.png)
+**6. Omicron****變種疫情升溫****   ****香港多間銀行減少辦公室辦公人數**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Rafael-Silva.jpeg)
+[據【大紀元時報】01月06日訊，因應Omicron變種病毒的高傳染性，香港多間銀行採取居家辦公、辦公室限聚等措施。匯豐明日起只允許一半員工進入辦公室；花旗則鼓勵非分行員工居家辦公；瑞銀、渣打則採取分組上班。](https://hk.epochtimes.com/news/2022-01-06/84746353)
 
-來自巴西Alterosa Alerta Sulde Minas的36歲《7號日報》電視節目主持人Rafael Silva，在本週一電視直播新聞節目期間突然暈倒在地、心臟驟停，在迅速得到流動緊急護理服務(Mobile Emergency Care Service，Samu)救治後被送往最近的瓦爾吉尼亞人道主義醫院（Humanitas Hospital in Varginha）重症監護室，在去醫院的路上，RafaelSilva又經歷了五次心臟驟停。
+[彭博社今日（6日）消息指，匯控（0005）向員工發出備忘錄，通知從本周五（7日）起，各部門只允許五成員工進入香港辦公室工作，且辦公室內，座位之間須保持至少1.5米的距離。如員工離開辦公桌，須戴口罩。之後，匯控發言人證實該消息。](https://hk.epochtimes.com/news/2022-01-06/84746353)
 
-所幸的是，據當地新聞網站報導，目前RafaelSilva康復得非常好，已經不需要插管，意識清醒，可以和家人通話，甚至可以自己去洗手間。
+[同時，花旗發布最新防疫措施安排，鼓勵非分行員工自明日（7日）起居家辦公，為期兩週，但分行服務及營運將維持正常。](https://hk.epochtimes.com/news/2022-01-06/84746353)
 
-去年12月28日，Rafael Silva在推特上炫耀他注射了Covid-19（中共病毒，CCP病毒）疫苗加強針，告誡人們疫苗可以挽救生命，並說他為沒有接種疫苗的人感到抱歉。
+[瑞銀要求香港所有業務部門分為兩組，輪流回辦公室工作，並要求員工不要在辦公室外與另外一組同事社交互動，即日生效。](https://hk.epochtimes.com/news/2022-01-06/84746353)
 
-就在前天，密西根州州長辦公室發佈聲明，州長Gretchen Whitmer在全家都接種了Covid-19疫苗，並接種了加強針的情況下，州長丈夫檢測出COVID-19呈陽性，目前Gretchen Whitmer的PCR檢測結果呈陰性，將隔離在房屋的一個單獨區域。
+[此外，渣打銀行亦採取分組上班措施，並呼籲員工避免大型活動及非必要的社交聚會。](https://hk.epochtimes.com/news/2022-01-06/84746353)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.23.31-AM.png)
+**7. ****港股反覆高收****165****點　多隻小價股遭洗倉**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Gretchen-Whitmer.jpg)
+[據【香港電台】01月06日訊，港股反覆高收，恆生指數早段曾跌198點，尾市倒升最多175點，收市報23072點，升165點，全日主板成交額1345億元。](https://news.rthk.hk/rthk/ch/component/k2/1627633-20220106.htm)
 
-就在前天，法國總統埃馬紐埃爾·馬克龍 (Emmanuel Macron)表示，拒絕接種Covid-19疫苗的人“不是公民”，發誓要讓他們的生活變得悲慘。儘管他不會把未接種疫苗的人送進監獄，不會強制他們接種疫苗，但從1月15日起，不打疫苗的人將不能再去餐廳吃飯，不能去咖啡廳，不能去劇院，電影院……從1月15日開始，法國人進入餐廳、酒吧、劇院和其他室內場所將需要Covid-19疫苗護照（Covid passport），前往法國的遊客必須通過數字護照（digital passport）出示疫苗接種證明或Covid-19陰性測試。
+[科技指數早段低見5230點，再創新低，收市倒升逾1%。小米和騰訊升逾1%。不過，嗶哩嗶哩跌逾4%，比亞迪電子跌近9%。](https://news.rthk.hk/rthk/ch/component/k2/1627633-20220106.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Emmanuel-Macron.jpg)
+[新奧能源跌逾6%，是全日表現最差的恆指成份股。](https://news.rthk.hk/rthk/ch/component/k2/1627633-20220106.htm)
 
-難怪反對者Marine Le Pen（勒龐）指責Macron將拒絕接種毒疫苗的人劃分成二等公民，不配擔任他的職務。
+[本港防疫措施再度收緊，多隻細價股遭洗倉，首都金融控股、Beng Soon Machinery及華盛國際控股，股價單日跌9成或以上，是全日跌幅最大的3隻股份。](https://news.rthk.hk/rthk/ch/component/k2/1627633-20220106.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.35.00-AM.png)
+**8. ****機管局發行****40****億美元票據　錄得最多****2.3****倍超額認購**
 
-參考資料：
+[據【香港電台】01月06日訊，機管局公佈，已成功為40億美元多期高級票據發行定價，當中首次發行的綠色票據，5年期發行規模達10億美元。至於10年期及30年期票據各佔12億美元，40年期佔6億美元。](https://news.rthk.hk/rthk/ch/component/k2/1627614-20220106.htm)
 
-[Risk of myocarditis following sequential COVID-19 vaccinations by age and sex](https://www.medrxiv.org/content/10.1101/2021.12.23.21268276v1)
+[由於有關票據錄得介乎1.3至2.3倍的超額認購，機管局可將票據定價為遠低於初始價格指引的水平，全部定價均高於同年期美國國債基準。](https://news.rthk.hk/rthk/ch/component/k2/1627614-20220106.htm)
 
-[More bad news on Covid vaccines and myocarditis in men under 40 – even as more colleges require booster shots for students](https://alexberenson.substack.com/p/more-bad-news-on-covid-vaccines-and/comments)
+[票據發行吸引超過200名亞洲及歐美各地專業及機構投資者參與，涵蓋主權財富基金、資產管理人、企業、銀行及保險公司。機管局主席蘇澤光錶示， 10年期、30年期及40年期票據所得款項，將用作機管局資本開支，包括用於三跑道系統項目的資本開支及一般企業用途。至於5年期綠色票據所得款項，將用於為機管局可持續金融框架項下的合資格綠色項目進行融資或再融資。](https://news.rthk.hk/rthk/ch/component/k2/1627614-20220106.htm)
 
-[Macron Vows to ‘Piss Off’ Unvaxxed, Says Someone Who Refuses Covid Vaccine is ‘Not a Citizen’](https://www.thegatewaypundit.com/2022/01/macron-vows-piss-off-unvaxxed-says-someone-refuses-covid-vaccine-not-citizen/)
+[有關票據預計下周三發行，預期將於港交所上市，相關票據預料將獲標準普爾評為「AA+」評級。](https://news.rthk.hk/rthk/ch/component/k2/1627614-20220106.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-06-at-10.24.04-AM.png)
+**9. ****卓悅始創人葉俊亨夫婦遭入稟追討逾****4****億元欠款**
 
-[Marine Le Pen](https://twitter.com/MLP_officiel/status/1478465290295984140?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1478465290295984140%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2Fmacron-vows-piss-off-unvaxxed-says-someone-refuses-covid-vaccine-not-citizen%2F)
+[據【大紀元時報】01月06日訊，兩星期前，卓悅集團創辦人葉俊亨與其妻子鍾佩雲及關連公司，被財務公司入稟高等法院，指兩人的關連公司欠款1.2億港元，要求作為擔保人的葉氏夫婦償還。昨日（1月4日）兩人又被同一間財務公司入稟高等法院，追討另一筆2.7億港元的欠款。另外，他們又被現時持有卓悅化粧品的公司入稟追討超過4千萬港元，指他們於2014年違反董事責任，使卓悅化粧品造成損失。](https://hk.epochtimes.com/news/2022-01-06/20530787)
 
-[MI Governor Gretchen Whitmer in Isolation After Fully Vaccinated Husband Tests Positive for COVID-19](https://www.thegatewaypundit.com/2022/01/mi-governor-gretchen-whitmer-isolation-fully-vaccinated-husband-tests-positive-covid-19/)
+[原告Haifu International Finance Limited於2017年4月與真一有限公司簽下借貸協議，向真一有限公司借款2億元，真一有限公司的股東和董事葉俊亨及鍾佩雲擔任貸款的擔保人。這筆借貸至今只償還了8千萬港元，所以原告入稟要求高等法院頒令該公司及作為擔保人的葉氏夫婦歸還1.2億港元欠款和相關利息作為賠償。](https://hk.epochtimes.com/news/2022-01-06/20530787)
 
-[36-Year-Old Brazilian Reporter Collapses and Suffers Cardiac Arrest During Live TV Broadcast (VIDEO)](https://www.thegatewaypundit.com/2022/01/36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video/)
+[另一筆於2015年12月31日與真一有限公司簽下借貸協議，向真一有限公司借款2.8億元，真一有限公司的股東和董事葉俊亨及鍾佩雲擔任貸款的擔保人。這筆借貸至今只償還了1千萬港元。](https://hk.epochtimes.com/news/2022-01-06/20530787)
 
-[BoxerRebellion777](https://twitter.com/BRebellion777/status/1478554763826540547?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1478554763826540547%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2F36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video%2F)
+[另外，現持有卓悅化粧品批發中心有限公司的Bonjour Group Limited在去年12月29日入稟高等法院，向葉俊亨、鍾佩雲、葉俊亨的胞弟葉國利、雅明有限公司和名峰發展集團有限公司追討約4,124萬港元。入稟狀指，3人在2014年為卓悅化粧品批發的董事，同時間控制雅明和名峰。當年卓悅和雅明達成協議，雅明批准卓悅使用深圳沙頭角中英街廣場的舖位，每月費用介乎83萬至92萬人民幣。名峰於2017年，和卓悅簽訂補充協議，卓悅可繼續使用該舖位至2021年，每月費用介乎75萬至92萬人民幣。](https://hk.epochtimes.com/news/2022-01-06/20530787)
 
-[Rafael Silva](https://twitter.com/RafaJornalista/status/1475933394580217859?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1475933394580217859%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F01%2F36-year-old-brazilian-reporter-collapses-suffers-cardiac-arrest-live-tv-broadcast-video%2F)
+[不過，卓悅於2021年8、9月發現，3人一直以每月20萬至30萬人民幣，向業主租用該舖位。原告指3人未有披露他們與雅明和名峰之間的關係，促使卓悅以一個較高的價錢使用該舖位，從而賺取中間差價，使卓悅損失約4,124萬港元。](https://hk.epochtimes.com/news/2022-01-06/20530787)
 
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[1991年，葉俊亨與太太鍾佩雲開設首家面積只有200呎、營業額每月只有數千港元的卓悅化粧品店。 2003年，卓悅在香港聯合交易所主板上市。](https://hk.epochtimes.com/news/2022-01-06/20530787)
+
+校對 / 封面合成：文粵 / 發佈：流光飛舞
 
  
 

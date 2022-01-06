@@ -2,22 +2,32 @@
 ---
 
 
-## 【中日财经爆】富力地产再暴雷，违约7.25亿美元债
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828788/)
+## 香港针对中共病毒疫情实施严厉手段
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828990/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-339.png)[图片来源](https://www.sohu.com/a/477655478_100001551)
-1月6日每日经济报报道，富力地产以八三折兑付7.25亿美元债的方案获得了债权人71.69%的投票率支持。富力地产此前的公告显示，富力地产境外全资子公司EASY TACTIC LIMITED拟对“GZRFPR 5.75% 1/13/22”美元优先票据进行要约回购和征求同意。该笔美元债在2017年1月13日发行，存续金额为7.25亿美元，发行利率5.75%，到期日2022年1月13日。
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，据媒体消息显示，港共政府林郑月娥宣布，自1月9日起，香港将开启针对中共病毒疫情的航空禁令，其中，来自澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国的航班将被禁止入境香港。据悉，此禁令将持续至1月21日，历时两周。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-10.jpg)
+另外，自即日起的两周内，香港本土的餐厅、游戏厅、酒吧和美容院等室内场所必须在下午6点之后关闭。
 
-富力地产建立于1994年，是中共国市场当中一家老牌的房地产企业。从业务角度来看，富力集团的业务覆盖到了房地产设计，开发销售、物业管理以及工程监理方面等方面，综合发展实力最为强劲的房地产企业。富力也是能够排在500强企业的前列，下半年即将到期需要支付利息的美元债务以及10只境内债券，总体的债务规模也是接近200亿元。
+有报道提及，本月4日，港共政府封锁了中共病毒阳性确诊病例所居住的单元楼，同时进行了囊括数千人的大规模中共病毒核酸检测。 此外，港共政府还于5日扣押了一艘游轮上的所有游客，共计两千五百人。港共卫生局表示，该游轮上有9名游客密切接触过中共病毒奥米克戎变种传染源。目前，虽然此9名乘客的中共病毒核酸检测结果皆为阴性，但所有人均已被隔离。
 
-除了1月份到期的7.25亿美元债券外，富力地产明年还面临不少的到期债券。包括全年95亿元人民币的在岸债券到期及可回售，以及2022年下半年需偿还的6.48亿美元的离岸到期债券。
+参考链接：[群體免疫？印尼近九成民眾有新冠抗體 其中70%沒打疫苗](https://udn.com/news/story/121707/6011087?from=udn_ch2cate7225sub121707_pulldownmenu_v2)
 
-信息来源：[富力地产发布重要公告，涉7.25亿美元债务兑付](https://mr.baidu.com/r/zdWcncaMb6?f=cp&amp;rs=3406126492&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=9892ee8369287907)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：童谣
+编辑：飞虹
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
