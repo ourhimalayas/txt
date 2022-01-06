@@ -2,52 +2,58 @@
 ---
 
 
-## 关于奥美克戎病毒Dr.Eglise给大家的忠告
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1824652/)
+## 1/5/2022 国际财经快讯：日本央行可能调高下一财年的通胀预测；中国恒大寻求推迟在岸债券的支付时间
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1825243/)
 
-**Dr.Eglise**：奥美克戎是蛮特殊的一个病毒，它最大的特性就是穿隐性强，然后到现在为止只有三周时间嘛，从11月9号开始报导，就是开始发现第一例，九号发现的，到现在那么短时间。就是最奇怪的是西方国家那么快做出反应，以前从来没有过吧？那么快做反应，各种各样，就是连疫苗都已经快要摆上桌了，就是特别神奇的，不知道从哪棵树上长出来那么多疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210105-2.jpg)[图片来源](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2022/01/2022-01-05T093145Z_2_LYNXMPEI040BG_RTROPTP_0_JAPAN-ECONOMY-BOJ_1.jpg)
+**1.日本央行可能调高下一财年的通胀预测**
 
-针对那么新的一个病毒株，居然那么快出疫苗，是很神奇的现象，肯定是背后有很多很多猫腻，大家用自己的想象力去想。那么这个病毒株的确它的特点就是什么呢？它到目前为止，因为疫情时间太短，三周，你还不能够完全得到一个完整的流行病学的一个结论，也就是我们到目前为止，南非发现这些大多数的患者都是偏年轻的，而且症状普遍就是全身症状重，而植物症状轻。
+[东京（路透社）–消息人士称，由于能源成本上升，日本央行预计将略微上调其对4月份开始的财政年度的通胀预测，尽管新的预测仍将使价格增长低于其2%的目标。熟悉日本央行想法的五位消息人士说，随着燃料和原材料成本上升导致价格上涨的范围扩大，董事会可能会预测下一财年的通胀率超过1%。这高于10月份作出的最新预测，即在3月底结束的本财年出现平缓增长后，2022财年的核心消费者通胀率将加速至0.9%。](https://www.oann.com/boj-may-revise-up-next-fiscal-years-inflation-forecast-sources/)
 
-这些年轻人往往就是、因为抵抗力本身就好，所以恢复很快，所以最后给大家的一个印象就是各国政府特别紧，首先不能再进我们的国境，先要禁飞，先要关闭国境，这个就很奇怪了。但是从我们普通民众的角度出发，这个病毒肯定是给人工修改过的，肯定是被故意基因改造，就是为了一个目的增强传染性，对我们来说初衷就是你自己预防。
+[“虽然能源成本是通胀率上升的主要驱动因素，但有迹象表明更多公司开始提价，”其中一位消息人士说。由于未获授权公开发言，这些消息人士在匿名的情况下发言。日本央行将在1月17-18日的下一次政策会议上提出新的季度预测。](https://www.oann.com/boj-may-revise-up-next-fiscal-years-inflation-forecast-sources/)
 
-因为你被病毒感染毕竟不是一件好事，但是，我一直在强调人体天然免疫力，即便就是被这样的病毒感染了，如果你建立起一个很好的自然、天然保护力，就是你天然的抗体，还有长久的免疫记忆细胞的建立的话，也不是一件很坏的事。要说是有人掉以轻心而被感染的话，我觉得这些人就看他们自己怎么认为了，因为就跟说这个病毒是刺突蛋白从疫苗接种者身上脱落是一样的，你防不胜防。
+**2.法国12月服务业增长略低于初值**
 
-即便你戴着N95口罩，其实那些气溶胶的这病毒还是会传染的，因为这个已经被太多实例证实这个口罩的无效性。你被感染，我不能说你就是听天由命了，但是你即便被感染真的是不用恐慌，因为我们现在特别是有这个预防性和治疗性的药物，两种药物都有，你的生命肯定不会受到威胁。
+[巴黎（路透社）–据一项月度调查显示，由于COVID-19大流行病的影响，法国服务业12月份的增长略低于最初的估计。数据编制机构IHS Markit周三表示，其12月份服务业采购经理人指数（PMI）降至57.0点，低于11月份的57.4点，略低于57.1点的初值。然而，该指数仍然高于划分活动扩张和收缩的50点阈值，包括服务业和制造业在内的综合PMI指数从11月的56.1点下降到12月的55.8点，略好于其最初估计的55.6点。商业活动的增长速度是6月以来的第二快，仅比11月的增长速度略高。IHS Markit高级经济学家Joe Hayes说：”传闻表明，对服务的需求仍然强劲，导致积压的工作和招聘的继续。”](https://www.oann.com/french-services-growth-in-december-slightly-below-initial-reading-pmi/)
 
-首先是第一点，其实你最要担心的是什么？是及时治疗不要留下后遗症，这是最重要的。因为很多后遗症会让你的生活质量真的下降很多很多，我们有很多战友到现在就是感染了4个月了，嗅觉还没有完全恢复，还有很多患者战友有这种疲乏啊，有些就是注意力很难集中，这些很恼人的副反应，就觉得你很难挥之而去，跟你在一起很长时间。
+**3.澳大利亚12月招聘广告下降5.5%**
 
-我觉得这些战友就是刚开始治疗的时候，要么药物治疗不及时，要么就是药物用的不对，就是给这个病毒机会大量复制，让这些病毒在后来大量碎片残留，所以你排出就少了嘛，然后你具体那些残留就变成一个定时炸弹，等你抵抗力什么时候低的时候它们又出来繁殖、复制。
+[悉尼（路透社）–由于一些职位被填补，澳大利亚的招聘广告在两个月的大幅增长之后，在12月有所下滑，而中共病毒病例的回升可能对雇主产生了一些影响。周三澳大利亚和新西兰银行集团有限公司的数据显示，12月的招聘广告总数比11月下降了5.5%，11月的招聘广告向上修正为9.9%。广告仍然比去年同期增长了32.7%，达到212,098条，比2021年6月Delta变体首次出现时增长了4.2%。](https://www.oann.com/australia-job-advertisements-fall-5-5-in-dec-anz/)
 
-所以我觉得你不用太害怕，但是你要有准备，我一直说上帝只帮有准备的人，你自己有准备，你会享受到上帝关爱。
+[澳新银行高级经济学家凯瑟琳-伯奇（Catherine Birch）指出，11月份报告的就业人数大幅增加366,100人，表明一些尚未填补的职位已被填补，是广告下降的部分原因。”她补充说：”但也有可能是由于Omicron的蔓延以及随之而来的围绕消费者行为和工人可用性的不确定性，企业在招聘方面变得更加犹豫不决。](https://www.oann.com/australia-job-advertisements-fall-5-5-in-dec-anz/)
 
-视频文字版整理：青桐；
+**4.德国卡特尔办公室加大对谷歌产品的审查力度**
 
-编辑整理：海贼王M.D.LUFFY；
+[柏林，1月5日（路透社）–德国卡特尔办公室表示，它正在根据其监管互联网公司的新权力审查谷歌对个人数据的使用及其谷歌新闻展示产品，同时也在考虑涉及亚马逊、苹果和Facebook所有者Meta的案件。](https://www.reuters.com/technology/german-cartel-office-examining-google-considering-cases-involving-amazon-apple-2022-01-05/)
 
-字幕文件制作：小满；
+[该监管机构周三表示，它已经确定谷歌的所有者Alphabet(GOOGL.O)达到了公司所需的规模门槛，可以接受其去年收购的大型互联网公司的新扩展监管权力。”联邦卡特尔办公室现在可以处理损害竞争的具体行为形式，”办公室主席Andreas Mundt说。”我们已经开始更深入地研究谷歌对个人数据的处理和谷歌新闻展示的话题。”他补充说，该办公室还在考虑涉及亚马逊、苹果（AAPL.O）和Facebook所有者Meta（FB.O）的进一步案件。](https://www.reuters.com/technology/german-cartel-office-examining-google-considering-cases-involving-amazon-apple-2022-01-05/)
 
-视频制作及上传：Cindy；
+**5.印度法院搁置了亚马逊和Future之间的仲裁**
 
-G-News发布：小满；
+[新德里，1月5日（路透社）–鉴于印度反垄断机构暂停双方2019年的交易，印度法院周三停止了Future集团与疏远的合作伙伴亚马逊公司的仲裁程序。这一决定对美国电商巨头来说是一个挫折，它曾成功利用2019年对Future部门的投资条款来阻止印度零售商向竞争对手出售资产的企图。](https://www.reuters.com/world/india/indian-court-puts-hold-arbitration-between-amazon-future-2022-01-05/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+[但在印度竞争委员会（CCI）上个月以亚马逊在寻求许可时压制信息为由暂停了2019年的交易后，Future向印度法院辩称，双方的仲裁没有法律依据，无法继续进行。德里高等法院首席法官D.N. Patel领导的一个由两名法官组成的法庭同意Future的论点，将新加坡的仲裁程序搁置。](https://www.reuters.com/world/india/indian-court-puts-hold-arbitration-between-amazon-future-2022-01-05/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**6.美联储会议纪要前美元上涨暂停；日元处于5年低点**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[伦敦，1月5日（路透社）–美元周三持于两周高点之下，交易员们在等待美联储12月会议纪要的发布，对最早于3月加息的预期不断增强，使日元被钉在五年低点附近。虽然在过去两个月里，美国国债收益率上升导致绿币近3%的涨幅在本周消退，但交易员对在会议纪要发布前增加更多看涨美元的押注持谨慎态度。](https://www.reuters.com/markets/currencies/dollars-rise-pauses-before-fed-minutes-yen-5-year-lows-2022-01-05/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[总部位于伦敦的外汇咨询公司forexxtra的首席执行官John Marley说：”美联储会议纪要将给出一些很好的思维色彩，现在有许多问题笼罩着美联储，这些问题可以说是最重要的，比如加息多少次，缩减资产负债表的速度如何”。将于格林威治时间19点公布的会议纪要可能会强调美国决策者对通胀的新发现的敏感性，以及他们准备采取行动的意愿。市场已经加大了对3月份加息四分之一个百分点的押注，并在5月份之前完全定价。](https://www.reuters.com/markets/currencies/dollars-rise-pauses-before-fed-minutes-yen-5-year-lows-2022-01-05/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**7.随着压力的增加，中国恒大寻求推迟在岸债券的支付时间**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[北京/香港，1月5日（路透社）–中国恒大集团（3333.HK）将在本周末与债券持有人的会议上寻求将45亿元人民币（1.57亿美元）债券的赎回和票息支付推迟六个月，这凸显了这家负债累累的房地产开发商所面临的压力。恒大正在努力偿还超过3,000亿美元的负债，其中包括近200亿美元的离岸债券，因为它错过了付款，被评级机构视为交叉违约。](https://www.reuters.com/business/china-evergrande-hold-meeting-with-bondholders-jan-7-10-2022-01-05/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[恒大的旗舰地产部门恒大在周三的一份声明中说，由于发行人的 “当前运营状况”，正在寻求推迟。它没有提供关于为什么寻求延迟的任何进一步细节。人民币债券持有人的在线会议将于1月7日至10日对一些提案进行投票。](https://www.reuters.com/business/china-evergrande-hold-meeting-with-bondholders-jan-7-10-2022-01-05/)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**8.丰田汽车在近一个世纪的巅峰之后取代通用汽车成为美国销售的领导者**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[路透社华盛顿1月4日电–日本汽车制造商丰田汽车公司(Toyota Motor Corp, 7203.T)2021年在美国的销量超过了通用汽车公司(General Motors Co, GM.N)，这是底特律汽车制造商自1931年以来首次没有在美国汽车销量中占据全年的领先地位。这两家汽车制造商周二表示，2021年丰田汽车在美国的销量为233.2万辆，而通用汽车为221.8万辆。](https://www.reuters.com/business/autos-transportation/toyota-poised-dethrone-gm-2021-us-sales-leader-2022-01-04/)
+
+[2021年，通用汽车的美国销量下降了13%–第四季度下降了43%–而丰田汽车全年增长了10%。通用汽车上一次销量下降是在2010年，为220.2万辆。2020年全年，通用汽车在美国的销售总量为255万辆，而丰田汽车为211万辆，福特汽车公司(F.N)为204万辆。](https://www.reuters.com/business/autos-transportation/toyota-poised-dethrone-gm-2021-us-sales-leader-2022-01-04/)
+
+By 【秘密翻译组-金融法律组】
+作者：千年等一回
 
  
 

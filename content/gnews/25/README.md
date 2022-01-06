@@ -2,37 +2,29 @@
 ---
 
 
-## 蓬佩奥强调保卫美国 应对中共等势力带来的威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826745/)
+## 台湾设立2亿美元投资基金，帮助立陶宛抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826841/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国前国务卿蓬佩奥在1月3日斩首苏莱曼尼纪念日的访谈节目中，表示美国需要践行里根总统“实力带来和平”的说法。当人们看到俄罗斯在乌克兰边界的激进，伊朗试图用重回伊核协议的方式来拥有核武器，以及中共的种种挑衅时，美国政府应该做好各种准备，保卫美国。
+![资料照片：台北驻立陶宛台湾代表处的牌子。（2021年11月18日）](https://gdb.voanews.com/0680931E-9C61-45AA-8EE5-0ECC07766BF4_w1023_r1_s.jpg)资料照片：台北驻立陶宛台湾代表处的牌子。（2021年11月18日）
+据美国之音1月6日报道，台湾驻立陶宛的代表黄钧耀5日表示，台湾正在设立一个2亿美元的基金来投资立陶宛的产业，主要用于半导体、激光技术、生物技术和其他关键行业。去年11月，立陶宛因允许以台湾的名义在其首都维尔纽斯开设代表处而面临来自中共国巨大的政治压力和经济报复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-3.png)
+中共把台湾视为其领土不可分割的一部分，与中共国建交的国家不能与台湾互设官方性质的机构。台湾作为一个独立的主权国家，一直被中共霸凌。迫于中共的威胁，联合国、世卫等国际组织不敢接纳台湾加入。立陶宛支持台湾，这本是两个主权国家之间的事物，中共暴跳如雷，先是把两国外交关系降级，然后对立陶宛采取经济报复措施。台湾、立陶宛两国抱团全暖，互相支持。
 
-在节目中，蓬佩奥再次表示同意主持人关于北京冬奥会后，中共很可能对台湾实施侵犯的推测。同时强调美国还该注意委内瑞拉和古巴，这两个国家的政权跟中共、伊朗、俄国牵扯极深，且离美国海岸线仅有90英里的国家。
+新闻参考链接：[https://www.voachinese.com/a/taiwan-lithuania-20220104/6384155.html](https://www.voachinese.com/a/taiwan-lithuania-20220104/6384155.html)
 
-而在去年8月15日的大直播中，郭文贵先生就已经提醒美国，需要注意中共会利用委内瑞拉和古巴来打击美国。
+编辑：胖丁
 
-参考链接：
+* * *
 
-- [20220103蓬佩奧國務卿接受Hannity採訪](https://www.gettr.com/post/plz8hu1433)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
