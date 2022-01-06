@@ -2,22 +2,37 @@
 ---
 
 
-## 英国军情六处“感谢”新华社“反讽”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828749/)
+## 海外少数民族团体控告中共并抗议冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828873/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.jpg)（图片来源于本文链接）
-英国军情六处主任摩尔1月6日对中共新华社表示“感谢”，认为这家中共国官媒两天前发布的一则针对军情六处的反讽短片相当于“免费宣传”。在一个多月前，摩尔就中共国的债务陷阱、数据监控、政治胁迫提出了警告。
+作者：东京樱花团—在远方 & 纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月4日，据海外多家媒体报道，时逢中共北京冬奥会在即，流亡海外的西藏和新疆群体向当地司法机构提起诉讼，控告中共政府侵害人权。 同时，他们也在当地发起抗议示威活动，以此反对即将到来的北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-6.jpg)
+据了解，中共曾在1950年以所谓“和平解放”的名义向西藏派兵。此后，中共政府一直以残酷手段统治着该地区。此外，中共高层及警察部门还在新疆地区大肆建立集中营，并对当地维吾尔人及其他少数民族施以残暴的种族灭绝行为。
 
-英国军情六处主任摩尔(Richard Moore)1月6日在推特上做出了回应：“谢谢关注 (以及意外的免费宣传)”，同时还附上了他11月30日的演讲链接。摩尔当时在演讲中警告，中共国正试图“利用英国社会的开放性”，并“扭曲全球的公共舆论以及政治决策”。他认为，一方面，英国需要在许多领域和中共国合作，但另一方面，中共国是一个有着迥异价值观的专制国家，而且正在将打压维吾尔人、香港民主派的手段和技术出口给其他国家的政府。摩尔强调，英国情报人员需要能够在“中共国制造”之监控技术遍布全球的环境中开展行动；而“适应一个受‘中共国崛起’影响之世界将是军情六处的唯一最高优先级要务”。他还希望其他国家也能对中共国的债务陷阱、数据监控、政治胁迫有清醒的认知。
+对此，一群流亡印度的西藏人当天在印度北部的达兰萨拉举行了反对中共北京冬奥会的抗议示威活动。抗议者表示，如果国际社会和运动员不抵制北京冬奥会，他们就会成为中共 “种族灭绝 “的同谋。
 
-信息来源：
+与此同时，针对中共在新疆地区实施的种族灭绝和反人类罪，生活在土耳其的流亡维吾尔人也在当天对112名中共官员提起了刑事诉讼。此外，还有超过150名维吾尔人聚集在土耳其首都伊斯坦布尔法院前举行示威游行，抗议中共政府的残忍做法。
 
-[英国军情六处“感谢”新华社“反讽”](https://www.dw.com/zh/%E8%8B%B1%E5%9B%BD%E5%86%9B%E6%83%85%E5%85%AD%E5%A4%84%E6%84%9F%E8%B0%A2%E6%96%B0%E5%8D%8E%E7%A4%BE%E5%8F%8D%E8%AE%BD/a-60347766)
+据悉，目前大约 5万名维吾尔人生活在土耳其，他们中的绝大多数都对中共举办冬奥会表示反对。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+1) .[**19名维吾尔人举报习近平等参与“种族灭绝”**](https://www3.nhk.or.jp/nhkworld/zh/news/341888/)
+2) . [秘翻在线：北京奥运在即，世界各地出现针对中共人权问题的抗议](https://gnews.org/zh-hans/1824243/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编/编辑：Ivy001
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
