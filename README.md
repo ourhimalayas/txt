@@ -15,104 +15,104 @@
 
 ---
 
-### [尖阁群岛日中局势紧张，日本海岸警卫队增加巡逻船只](/content/gnews/1/README.md)
+### [澳大利亚新州超市出现短缺](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [尖阁群岛日中局势紧张，日本海岸警卫队增加巡逻船只](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西安封城带来的思考, 为什么2个土豆就能让人说出爱党爱国呢？](/content/gnews/2/README.md)
+### [西安封城带来的思考, 为什么2个土豆就能让人说出爱党爱国呢？](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [德国：双重疫苗接种者将不再允许不经测试进入餐馆](/content/gnews/3/README.md)
+### [德国：双重疫苗接种者将不再允许不经测试进入餐馆](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [GTV新闻访谈简报|2022年1月5日晚](/content/gnews/4/README.md)
+### [芬兰的Covid-19护照使用被暂停](/content/gnews/5/README.md)
+ ` 秘密翻译组-原创组`
+
+### [GTV新闻访谈简报|2022年1月5日晚](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [法国发现新变种病毒IHU，比奥米克戎（Omicron）有更多突变](/content/gnews/5/README.md)
+### [法国发现新变种病毒IHU，比奥米克戎（Omicron）有更多突变](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/6/README.md)
+### [1/5/2022 文贵直播：中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [马克龙“我会让未接种疫苗的人厌倦监管”被批评粗俗的表达](/content/gnews/7/README.md)
+### [马克龙“我会让未接种疫苗的人厌倦监管”被批评粗俗的表达](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [流亡土耳其维吾尔人刑事控告习近平等人](/content/gnews/8/README.md)
+### [流亡土耳其维吾尔人刑事控告习近平等人](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠516:现在还不能杀习近平，美国人也不会杀他](/content/gnews/9/README.md)
+### [串珠516:现在还不能杀习近平，美国人也不会杀他](/content/gnews/11/README.md)
  ` 郭爆料串珠`
 
-### [习近平正式向江曾王孟势力集团宣战](/content/gnews/10/README.md)
+### [习近平正式向江曾王孟势力集团宣战](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [串珠515:中共把流氓之歌改编成红歌给中国人洗脑](/content/gnews/11/README.md)
+### [串珠515:中共把流氓之歌改编成红歌给中国人洗脑](/content/gnews/13/README.md)
  ` 郭爆料串珠`
 
-### [串珠514:张学良拯救了中共，是中华民族的千古罪魁](/content/gnews/12/README.md)
+### [串珠514:张学良拯救了中共，是中华民族的千古罪魁](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [台湾空军举行一年一度应对中共的军事演习](/content/gnews/13/README.md)
+### [台湾空军举行一年一度应对中共的军事演习](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [第三个窃取葛兰素史克公司机密的前科学家被起诉](/content/gnews/14/README.md)
+### [第三个窃取葛兰素史克公司机密的前科学家被起诉](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾设立2亿美元投资基金，帮助立陶宛抗衡中共](/content/gnews/15/README.md)
+### [台湾设立2亿美元投资基金，帮助立陶宛抗衡中共](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/16/README.md)
+### [金融与税务-如何委托到好的律师和会计师？该建立信托、基金还是离岸公司？](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [郑州全市全员核酸检测，不参加者健康码为黄码](/content/gnews/17/README.md)
+### [郑州全市全员核酸检测，不参加者健康码为黄码](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/18/README.md)
+### [中共病毒疫苗接种率最高的几个国家 新增感染频创新高](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冲绳新增中共病毒感染暴增 疑为从美军基地扩散](/content/gnews/19/README.md)
+### [冲绳新增中共病毒感染暴增 疑为从美军基地扩散](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国疾病预防控制中心表示，加强针仍然不属 “完全接种疫苗” 的要求](/content/gnews/20/README.md)
+### [美国疾病预防控制中心表示，加强针仍然不属 “完全接种疫苗” 的要求](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022年1月5日文贵先生直播摘要及音频—银河系农场](/content/gnews/21/README.md)
+### [2022年1月5日文贵先生直播摘要及音频—银河系农场](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [朝鲜发射疑似弹道导弹](/content/gnews/22/README.md)
+### [朝鲜发射疑似弹道导弹](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [蓬佩奥强调保卫美国 应对中共等势力带来的威胁](/content/gnews/23/README.md)
+### [蓬佩奥强调保卫美国 应对中共等势力带来的威胁](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [英国实施新版国家安全投资法 以防中共恶意收购](/content/gnews/24/README.md)
+### [英国实施新版国家安全投资法 以防中共恶意收购](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [西安社会面“清零”：隧道、车库、看守所竟成隔离点](/content/gnews/25/README.md)
+### [西安社会面“清零”：隧道、车库、看守所竟成隔离点](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [西安饥饿居民用苹果手机交换大米](/content/gnews/26/README.md)
+### [西安饥饿居民用苹果手机交换大米](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [冬奥会前夕 中共数字人民币试点版本App上架](/content/gnews/27/README.md)
+### [冬奥会前夕 中共数字人民币试点版本App上架](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [法官阻止拜登对启蒙计划教师的疫苗强制要求](/content/gnews/28/README.md)
+### [法官阻止拜登对启蒙计划教师的疫苗强制要求](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳网赛会给与医疗豁免,小德签证却被边检取消](/content/gnews/29/README.md)
+### [澳网赛会给与医疗豁免,小德签证却被边检取消](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美参议员兰德·保罗: 科学和数据都不支持关闭学校](/content/gnews/30/README.md)
+### [美参议员兰德·保罗: 科学和数据都不支持关闭学校](/content/gnews/32/README.md)
  ` 首尔天池农场`
 
-### [雅典娜时报-第165期](/content/gnews/31/README.md)
+### [雅典娜时报-第165期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
-
-### [如果共和党议员在 2022 年中期选举中赢得多数席位，他们可能会弹劾乔·拜登](/content/gnews/32/README.md)
- ` MG FARM`
-
-### [韩国法院暂停私立教育机构疫苗通行证要求](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [在联合打压下奋勇向前，Gettr开启社交媒体新时代](/content/gnews/34/README.md)
  ` YALUN 亚伦`
