@@ -2,50 +2,41 @@
 ---
 
 
-## 如果共和党议员在 2022 年中期选举中赢得多数席位，他们可能会弹劾乔·拜登
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1826666/)
+## 西安社会面“清零”：隧道、车库、看守所竟成隔离点
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826734/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-57.png)
-众议院共和党会议主席埃莉斯·斯特凡尼克 (Elise Stefanik) 表示，如果共和党在即将到来的 2022 年中期接管众议院，乔·拜登总统可能面临弹劾。当被问及是否会采取措施将民主党赶下台时，她说，任何事情都“摆在桌面上”。
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月5日下午，西安市政府在疫情防控发布会中公布，西安市社会面基本实现疫情清零，且市区内疫情已得到有效遏制。
 
-“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克在接受Just The News的简短采访时说。斯特凡尼克的言论与德克萨斯州共和党参议员特德克鲁兹的言论相呼应，后者表示共和党领导的众议院很有可能就拜登未能处理南部边境危机而采取行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-2.png)
 
-克鲁兹在他的播客“与泰德克鲁兹的判决”一集中说：“如果我们拿下众议院，我说这很有可能，那么我认为我们将看到对拜登政府的认真调查。”
+然而，大量墙内老百姓却在此新闻下评论，所谓的“清零”就是将一切存在社区传播风险的市民强制用大巴车拉离市区，全然不顾老百姓异地隔离后的死活。且看守所、地下车库，甚至是高速公路的隧道都被征用为异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间距离极为紧密，这大大增加了隔离人员间的交叉感染风险。据隔离市民透露，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只能吃到了一桶泡面。
 
-“我们像激光一样专注于美国的危机，以及我从选民那里听到的，即使我在纽约北部的选区，因为我代表一次又一次被转移到南部边境的边境巡逻人员。这是一场又一场的危机，这是一场灾难，”这位纽约议员周一表示。
+郭先生早前就在直播中预警，目前西安城中老百姓的真实状况非常凄惨，这样的惨剧未来还将在中共国的其他城市发生。
 
-“当我们占多数时，任何事情都摆在桌面上，”斯特凡尼克说。“但我认为我们应该关注的是进行监督并确保我们通过立法以一劳永逸地保护边界。特朗普总统领导下的前任政府的政策正在发挥作用。”
+参考链接：
 
-美国有线电视新闻网报道称，2020 年 11 月非法越境人数增加了 5%，同比增加了 140%。拜登政府尚未公布 12 月非法越境的统计数据。
+- [好高档的隔离酒店，这属几星？](https://www.gettr.com/post/pm3q2xda91)
+- [西安，为了清零，把人转移进高架桥下的隧道！](https://www.gettr.com/post/pm149m7a71)
+- [隔离送进看守所](https://www.gettr.com/post/pm0rxo83b5)
+- [陕西西安：病例总量呈现下降趋势，社会面基本实现清零](https://m.jiemian.com/article/6982300.html)
+- [西安疫情，在高架隧道摆上床，作为隔离点，为了清0！](https://www.gettr.com/post/pm9ii6a914)
 
-“我的重点是进行监督并确保通过我们引入的立法，”斯特凡尼克补充道。“我们提出了许多法案来确保边境安全，并确保边境资金充足。”
 
-有可能弹劾拜登的举动是因为民主党在任期间两次大规模弹劾特朗普。特朗普第一次面临弹劾是因为指控这位前总统请求俄罗斯干预 2016 年美国总统大选。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-第二次弹劾发生在 2021 年 1 月 13 日，也就是他的总统任期届满前一周。指控他煽动了 1 月 6 日在美国国会大厦发生的骚乱。
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
 
-尽管两项弹劾条款均在众议院获得通过，但由于民主党未能获得参议院三分之二的支持，两项努力均未成功。
-
-来源：https://www.rebelnews.com/\_anything\_is\_on\_the\_table\_republican\_lawmakers\_likely\_to\_impeach\_joe\_biden\_if\_they\_win\_majority\_in\_2022\_midterm\_elections
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

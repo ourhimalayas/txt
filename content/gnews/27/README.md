@@ -2,33 +2,36 @@
 ---
 
 
-## 有声|中共借疫情施暴政，苟延残喘
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1826183/)
+## 中共病毒加重并发症患者的肾脏问题
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1826233/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-据了解，近日，郑州发生的所谓疫情，出现了市民断粮断菜，被禁止出小区，能够买到的菜既贵又少。更有消息说任何人都不能购买指定供应之外的蔬菜等物品，一经发现黄码处理。甚至病人都不能去医院看病，需要化疗、透析等急重病人只能在家受尽煎熬，足月的孕妇要准备“自力更生”。还有网友发出照片，某小区的一千多市民被大巴拉去强制隔离，隔离房只有简单的铁架床，没有取暖设备。市民质疑：为何不能在自己家里隔离，非要全家老小去别的地方隔离。还要坐挤满人的巴士，不怕交叉感染吗？
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-10.png)
+去年，约翰霍普金斯大学医学副教授斯佩拉蒂（C.John Sperati）警告说，目前还不知道遭受肾脏损害的中共病毒患者能否完全康复。
 
-在中共国，郑州不是第一个封城的城市，武汉、南京、广州、通化、瑞丽等地在前，为何仍然使用看似简单粗暴恶劣的处理方式呢？
+斯佩拉蒂认为，这类病人的肾脏普遍存在问题，可能是由于许多因该病毒而住院的病人曾患有糖尿病和高血压等疾病，这两种疾病都会增加肾脏疾病的风险。
 
-原文链接:[中共借疫情施暴政，苟延残喘](https://gnews.org/zh-hans/1821828/)
+上周五，一组研究人员发表在科学杂志《细胞干细胞》上的一篇论文中讲，中共病毒（Covid-19）直接感染细胞，并对肾脏造成严重损害。
 
-音频处理：喜山必胜Maverick
+通过解剖发现，SARS-CoV-2直接感染肾脏细胞，并与患者尸检样本中肾小管-间质肾脏纤维化的增加有关。
 
-发稿：Daxia
+肾脏纤维化的特点是在器官中形成疤痕组织，并最终可能导致末期肾衰竭。在中共病毒感染肾脏样本后，研究人员报告说，结果证明中共病毒可 “直接感染肾脏细胞并诱发细胞损伤，随后出现纤维化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+研究人员总结说，这一结果可能解释了中共病毒患者在患病期间及之后，肾脏损伤的频率以及患者慢性肾脏疾病的发展。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+备注：
 
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
+[新闻来源连结](https://www.sott.net/article/462623-Covid-19-exacerbates-kidney-problems-for-those-with-multiple-comorbidities)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 
