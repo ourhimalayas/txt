@@ -2,10 +2,10 @@
 ---
 
 
-## 2021年全球盖特人物：中共最大恶梦奖获奖者——郭文贵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828605/)
+## 盖特：拥有最佳整体用户体验的多合一的言论自由平台
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1828695/)
 
-01/01/2021 2021年度全球盖特人物颁奖礼：中共最大恶梦奖项获奖者 —— 郭文贵
+01/02/2022 杰森·米勒：盖特将是一个拥有最佳整体用户体验的多合一的言论自由平台。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

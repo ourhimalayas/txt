@@ -2,10 +2,12 @@
 ---
 
 
-## 对天地对人的敬意和爱意叫新中国联邦
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1829214/)
+## 新冠疫苗是一次全球性的人體試驗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1829345/)
 
 台灣寶島農場
+
+新冠疫苗是一次全球性的人體試驗，而且疫苗有分不同層次的毒性。
 
  
 

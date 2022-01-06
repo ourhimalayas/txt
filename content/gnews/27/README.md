@@ -2,22 +2,34 @@
 ---
 
 
-## 买酒加投资 台湾力挺立陶宛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1828732/)
+## 严重雾霾打脸中共“绿色冬奥”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1828775/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-57.jpg)（图片来源于本文链接）
-据台湾中央社报道，立陶宛外交部长发言人本周三（1月5日）告诉中央社，立陶宛政府欢迎台湾设立“台湾代表处”，此一决定“坚定不移”。立陶宛外长兰茨贝尔吉斯（Gabrielius Landsbergis）的发言人库列绪叶内（Vytautė Šmaižytė-Kuliešienė）表示，立陶宛政府期待与台湾发展商务、科学、技术与文化关系，期待双边人民有更多接触；立陶宛与台湾人民因共享价值观及奠基于创新的开放有活力社会而亲近。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，据相关媒体报道，在距离中共北京冬奥会开幕仅剩不到一个月的时间里，中共当局虽然妄图打造所谓的“绿色冬奥”，但墙内严重的空气污染问题却难以被掩盖，北京市内的空气品质仍远低于世界卫生组织可以接受的标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-06-下午9.30.21.png)
+据悉，中共政府试图通过此次北京冬奥会想世界展示其在环境方面的成绩，为此，中共不惜花费巨资建立了数十座风力和太阳能发电厂为冬奥会供电，但最终收效甚微。
 
-去年11月18日，台湾当局以“台湾”名义在立陶宛设的代表处正式挂牌，这是台湾政府首次在欧洲土地上以台湾名义设立的外交办事处。此举招致北京抗议，中共将与立的关系降至“代办”级，并一度将立陶宛从海关体系除名，暂停从立陶宛进口的贸易许可，施压跨国企业不得使用立陶宛生产的部件，据报道，立陶宛MV Group Production（简称MV公司）出口中共国的20400瓶深色朗姆酒在抵达中共国港口后无法清关。《南华早报》1月4日报道，台湾烟酒公司在得知这一消息后随即决定收购了这批朗姆酒，以示对这个波罗的海国家的支持。台烟酒公司呼吁民众为“立（国）挺我，我挺立（国）”而干杯。
+资料显示，PM2.5悬浮颗粒是造成肺癌、心脏疾病和婴儿早产案例增加的头号杀手。对此，世界卫生组织官方建议的最低空气品质标准为每立方米含有5微克PM2.5悬浮颗粒。而据中共北京市环境局的调查文件显示，2021年北京市PM2.5悬浮颗粒的浓度为每立方米33微克，是世卫组织最低标准的6倍有余。
 
-信息来源：
+上周，中共环境部被迫承认，北京的雾霾风险仍然严重。
 
-[买酒加投资 台湾力挺立陶宛](https://www.dw.com/zh/%E4%B9%B0%E9%85%92%E5%8A%A0%E6%8A%95%E8%B5%84-%E5%8F%B0%E6%B9%BE%E5%8A%9B%E6%8C%BA%E7%AB%8B%E9%99%B6%E5%AE%9B/a-60341277)
+参考链接：[北京力推綠色冬奧 霧霾問題仍籠罩](https://cn.rti.org.tw/news/view/id/2121341)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
