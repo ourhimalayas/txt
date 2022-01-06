@@ -2,19 +2,35 @@
 ---
 
 
-## 中国多家食品企业宣布产品涨价
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1829228/)
+## 美单日新增病例破百万 超去年同期高峰4倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829316/)
 
-撰稿—水滴石穿
-校对/上传—无明逆流
+作者：香草山佛教部-文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
 
-墙内中华网财经1月5日讯，新年伊始“涨”字当头。今日，茶颜悦色在其官方微信公众号中发布涨价通知，宣布将从1月7日起，大部分奶茶产品涨1元，其中栀晓涨价2元。新价格的启用时间是2022年1月7日。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsAp33-at-11.03.26-PM.jpeg)图片来源：网络
-1月4日，香飘飘食品股份有限公司（下称“香飘飘”）发布公告称，主要产品提价幅度为2%-8%不等，新价格自2022年2月1日起按各产品调价通知执行。娃哈哈AD钙奶自2022年1月1日起正式涨价。瑞幸咖啡的外卖价格每杯上涨3元。自2022年1月28日零时起，雅诗兰黛、海蓝之谜、祖玛珑、倩碧、芭比波朗、魅可、TF等部分商品及相关套装的建议零售价将进行上调，并即时生效。还有上海海融食品的奶油、熊猫乳品、贵州茅台等价格都全线上涨！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.jpeg)
 
-对于这波涨价，我的分析是：墙内的越来越多的年轻人的生活成本的不断提高。而他们的工资却永远不涨而选择躺平、企业的人力成本大幅提高，疫情导致物流异常，企业成本进一步被拉高，企业举步维艰，这些最终的根源是CCP的邪恶专制吸血的体制。当土壤坏了，不论什么好种子都不可能长出庄稼来了，而就在此危机时，当局还一边对外大撒币，一边宣传领导的伟大、体制的优越，好嘛！这优越得以后大家连草都没得吃罗！
+评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
 
-新闻来源：[扛不住了、为了生存？新年伊始多家企业宣布涨价](https://finance.china.com/consume/11173302/20220105/37266907.html)
+参考链接： 
+1）[https://gettr.com/post/plxoc792a3](https://gettr.com/post/plxoc792a3)
+2）[Breaking: Despite Shutdowns, Lockdowns, Masks, Vaccines, Boosters, Double Maskers… New COVID Cases Top One Million for First Time Ever](Despite%20Shutdowns,%20Lockdowns,%20Masks,%20Vaccines,%20Boosters,%20Double%20Maskers…%20New%20COVID%20Cases%20Top%20One%20Million%20for%20First%20Time%20Ever)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Jack Li文阳 
+编辑：童谣  
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
