@@ -15,86 +15,86 @@
 
 ---
 
-### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/1/README.md)
+### [七哥说：莫斯科的事情，感谢“我是音雄” （2022-01-05摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [COVID-19疫苗发明者：我们不能每6个月为地球人接种一次](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈音乐政治（2021-01-05摘录）](/content/gnews/3/README.md)
+### [七哥谈“我是音雄”核心点（2022-01-05摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [一线医生强调了他首选的COVID-19治疗法](/content/gnews/4/README.md)
+### [七哥谈以乐灭共（2021-01-05摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [COVID-19疫苗发明者：我们不能每6个月为地球人接种一次](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/5/README.md)
+### [七哥谈音乐政治（2021-01-05摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [一线医生强调了他首选的COVID-19治疗法](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC大中华时事：民调显示近六成港人不喜欢生活在本港](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [海豹突击队成员拒绝接种 法官禁止国防部惩罚](/content/gnews/6/README.md)
+### [海豹突击队成员拒绝接种 法官禁止国防部惩罚](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/7/README.md)
+### [打了三剂疫苗COVID检测仍呈阳性的护士谈论暴政的荒谬](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/8/README.md)
+### [英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年美国必须对中共国做什么](/content/gnews/9/README.md)
+### [2022年美国必须对中共国做什么](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/10/README.md)
+### [护士们揭露接种疫苗的病人中出现大量心脏病和中风](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/11/README.md)
+### [战斗室：精英合并意味着什么，它将这个世界看作什么？](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/12/README.md)
+### [疫苗后精英运动员的心脏核磁共振约50%的人有心肌炎，这使他们面临猝死的风险](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [儿子危在旦夕，父亲因没有打疫苗不允许进入医院探望](/content/gnews/14/README.md)
+### [儿子危在旦夕，父亲因没有打疫苗不允许进入医院探望](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [MV版Hcoin To the Moon上线第28天位列美国iTunes摇滚MV榜首](/content/gnews/15/README.md)
+### [MV版Hcoin To the Moon上线第28天位列美国iTunes摇滚MV榜首](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/16/README.md)
+### [哈萨克斯坦境内所有金融机构暂停运营](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [芝加哥教师工会无视政府复课命令开始远程教学](/content/gnews/17/README.md)
+### [芝加哥教师工会无视政府复课命令开始远程教学](/content/gnews/19/README.md)
  ` GTV News Talk`
 
-### [小米10T手机内置APP审查敏感词 上传用户数据](/content/gnews/18/README.md)
+### [小米10T手机内置APP审查敏感词 上传用户数据](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [哈萨克骚乱持续背后或有中共的黑手 俄罗斯派兵进驻维和](/content/gnews/19/README.md)
+### [哈萨克骚乱持续背后或有中共的黑手 俄罗斯派兵进驻维和](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [串珠519:中共封杀网红、家/外教、富豪、网络科技等](/content/gnews/20/README.md)
+### [串珠519:中共封杀网红、家/外教、富豪、网络科技等](/content/gnews/22/README.md)
  ` 郭爆料串珠`
 
-### [美国司法部：又一名华裔药物研究员对窃取商业机密指控认罪](/content/gnews/21/README.md)
+### [美国司法部：又一名华裔药物研究员对窃取商业机密指控认罪](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [比特币大幅下跌 接近数月以来最低点](/content/gnews/22/README.md)
+### [比特币大幅下跌 接近数月以来最低点](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [串珠518:习大撒币1.5万亿美金玩个冬奥还要1万亿](/content/gnews/23/README.md)
+### [串珠518:习大撒币1.5万亿美金玩个冬奥还要1万亿](/content/gnews/25/README.md)
  ` 郭爆料串珠`
 
-### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2022年1月6日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/25/README.md)
+### [美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
-
-### [串珠517:习会消灭所有官/富二代把党天下变习天下](/content/gnews/26/README.md)
- ` 郭爆料串珠`
-
-### [马克龙：“我要让拒绝疫苗的人愤怒，这是战略”](/content/gnews/27/README.md)
- ` xiaobaige`
 
 ### [01/06/22 香港快訊 多名立法會議員曾與初確者接觸　立法會須消毒](/content/gnews/28/README.md)
  ` 英喜-粵語組`
