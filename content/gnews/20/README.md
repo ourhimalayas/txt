@@ -2,35 +2,23 @@
 ---
 
 
-## 西安饥饿居民用苹果手机交换大米
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826730/)
+## 美国疾病预防控制中心表示，加强针仍然不属 “完全接种疫苗” 的要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1826771/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台媒1月4日报道，自中共国西安疫情爆发后，当局出动3万警力封城，1300万居民连日来被限制外出，甚至出现饥饿居民用苹果手机和一个平板电脑，交换一小袋大米果腹的惨剧。
+作者：艾莉森·杜尔基
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-2.png)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0x0.jpg)图片来源：网络
+卫生官员周三表示，联邦政府不打算改变其“完全接种疫苗”的定义，以包括助推器注射。这将对疫苗任务产生重大影响，尽管它们针对Omicron 变种提供了大量额外保护，尽管一些学校和企业无论如何都要求注射额外的疫苗。
 
-据悉，西安从12月23日封城，已经接近两周时间，食物、生活用品、医疗资源短缺日趋严重。目前城内居民已经开始以物易物来解燃眉之急，人们纷纷用香烟和电子产品等物品，交换最紧缺的大米。一位饥饿的老人外出找食物时被警察阻止，可怜的老人哭诉说，政府所说的给居民送食物都是谎话，他到现在一点食物也没有收到。
+来源链接：[https://www.forbes.com/sites/alisondurkee/2022/01/05/booster-still-not-required-to-be-fully-vaccinated-cdc-says/amp/](https://www.forbes.com/sites/alisondurkee/2022/01/05/booster-still-not-required-to-be-fully-vaccinated-cdc-says/amp/)
 
-参考链接：
+编辑/发布：LILY
 
-- [蘋果手機換白米！ 西安封城供應不足 居民以物易物](https://cn.rti.org.tw/news/view/id/2121190)
+20220105
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

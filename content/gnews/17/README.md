@@ -2,37 +2,29 @@
 ---
 
 
-## 蓬佩奥强调保卫美国 应对中共等势力带来的威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1826745/)
+## 郑州全市全员核酸检测，不参加者健康码为黄码
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1826831/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国前国务卿蓬佩奥在1月3日斩首苏莱曼尼纪念日的访谈节目中，表示美国需要践行里根总统“实力带来和平”的说法。当人们看到俄罗斯在乌克兰边界的激进，伊朗试图用重回伊核协议的方式来拥有核武器，以及中共的种种挑衅时，美国政府应该做好各种准备，保卫美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-4.jpg)郑州全市全员核酸检测，不参加者健康码为黄码 网络图片
+据澎湃新闻1月5日报道，中共国河南郑州市开展全市全员核酸检测。郑州市区域内所有居民（包括本地常住人口、暂住人口、临时流动人口、外籍人口等），分时段、分区域在固定采样点或者流动采样点错峰检测。对不参加核酸检测的居民，健康码一律标记为黄码，同时本人将承担法律责任。接种新冠疫苗不超过48小时的人员，不参加本次全员核酸检测。因外出不在郑州的居民，可自行进行核酸检测，并提供48小时内核酸阴性证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-3.png)
+去年郑州洪水震惊了世界，中共欺上瞒下、转移视线避开了郑州的洪灾。不到一年，郑州又陷入病毒的包围。不只在郑州，全世界此时都处在跟郑州和西安一样的环境：不能随意出门，必须接种疫苗，必须有核酸检测阴性证明。这个世界就是这样疯狂：明明检测不准确，必须检测；明明疫苗不管用，必须接种疫苗；明明病毒是杀人武器，就不能谈病毒。谁谈病毒，上至总统，下至平民，封号、攻击、诋毁，能抓得抓，能弄死的弄死，弄不死的想方设法败坏名誉，恨不得赶出地球去。中国人民的逆来顺受和西方世界的集体沉默助长了魔鬼的疯狂。人民不清醒，杀戮不会停止。
 
-在节目中，蓬佩奥再次表示同意主持人关于北京冬奥会后，中共很可能对台湾实施侵犯的推测。同时强调美国还该注意委内瑞拉和古巴，这两个国家的政权跟中共、伊朗、俄国牵扯极深，且离美国海岸线仅有90英里的国家。
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16149097](https://www.thepaper.cn/newsDetail_forward_16149097)
 
-而在去年8月15日的大直播中，郭文贵先生就已经提醒美国，需要注意中共会利用委内瑞拉和古巴来打击美国。
+* * *
 
-参考链接：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [20220103蓬佩奧國務卿接受Hannity採訪](https://www.gettr.com/post/plz8hu1433)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
