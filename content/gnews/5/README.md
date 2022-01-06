@@ -2,30 +2,45 @@
 ---
 
 
-## 比特币大幅下跌 接近数月以来最低点
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829544/)
+## 芝加哥教师工会无视政府复课命令开始远程教学
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1829660/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山教育部 – Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3712198E-8ADF-42C1-811D-F7F9E296C77A.jpeg)（图片来自网络）
 
-据《路透社》1月6日报道，目前比特币已跌破43000美元，接近数月以来的最低点。
 
-报道称，比特币这一全球最大的加密货币1月6日最新收报42700美元，下跌1.7%；1月5日则下跌了5.2%。若跌破上月低点42000美元，则将创下自去年9月以来的最低价。而在去年11月，比特币曾在创下69000美元的历史新高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-新加坡加密货币基金分销商Stack Funds的首席运营官马特·迪布（Matt Dibb）对此表示，比特币的下跌与大多数传统资产类别的“风险偏好降温”走势有关。 他还特别提到了纳斯达克指数.IXIC的下跌。
 
-除比特币大幅下跌之外，全球第二大加密货币以太币也下跌了5.2%，并触及10月以来的最低水平，之后小幅反弹至3460美元。
 
-参考链接： [https://cn.reuters.com/article/cryptocurrencies-0106-thur-idCNKBS2JG0B7?il=0](https://cn.reuters.com/article/cryptocurrencies-0106-thur-idCNKBS2JG0B7?il=0)
 
-* * *
 
-素材采编：幽蘭自得
+在冠状病毒病例激增的情况下，教师工会以压倒性多数投票决定恢复远程学习，无视该市恢复课堂的命令，芝加哥公立学校于周三取消了课程。 芝加哥教师工会周二在一份声明中表示，近 90% 的芝加哥教师工会代表投票赞成转向远程学习。 芝加哥市工会称这座城市的教育工作者希望和学生一起在教室学习，但市长对病毒的疏于防范危及教师和学生的安全。芝加哥市长表示，远程学习损害了学生的学习机会，也给无法下班在家照顾孩子的父母带来了负担。 由于冬季欧米克隆病例的激增，全国各地的许多学校系统都面临着人们从假期回来后是现场教学还是远程教学的争论。
 
-编辑：青衣青青
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06-3-scaled.jpg)图片来源：The Washington Post
 
-发布：miumiu
+
+
+参考链接：
+
+[https://www.washingtonpost.com/nation/2022/01/05/covid-omicron-variant-live-updates/](https://www.washingtonpost.com/nation/2022/01/05/covid-omicron-variant-live-updates/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+
+
+总编 : Irene木木
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
  
 
