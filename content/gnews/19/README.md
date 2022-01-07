@@ -2,31 +2,28 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-14
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831920/)
+## 美海军开始开除拒绝接种中共病毒疫苗的现役军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831965/)
 
-编辑: 雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-HBO-VICE记者Isobel杨在采访中询问郭文贵先生正在进行的官司数量，企图污蔑郭先生利用金钱和权力建立权威。在HBO播出的采访中断章取义，只留下郭先生说没准下一个官司就是针对记者Isobel杨的片段。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-76.png)图片来源：https://images.app.goo.gl/yRRN6xEouYkLEQ8e6
-在采访中，关于爆料革命向世界揭露的关于中共的真相，郭先生斥责HBO-VICE这些主流媒体，非但从未向世界传递真相，反而助纣为虐。媒体只关心郭先生的官司数量，却从不询问这些官司的由来，不关注郭先生同事和家人被抓捕的真相。
+#### 撰稿：彩虹
 
-接下来我们还原事实真相的第14部分：再次揭露HBO如何欺骗性地剪辑、扭曲采访视频，妄图以此诋毁郭先生。（视频时长：5’16”）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6971293-2-scaled.jpg)图片来源：usni
+根据《国会山报》1月6日的报道，海军已经开除了20名拒绝接种中共病毒（COVID-19）疫苗的军人，这是在2021年11月28日海军接种中共病毒疫苗最后期限后第一批被开除的军人。
 
-视频来源：[https://www.gettr.com/post/pkg5ixee14](https://www.gettr.com/post/pkg5ixee14)
+根据周三发布的一份海军声明，所有被开除的20人都是最近入伍的，他们被作为“新入伍级别离职”的一部分而被开除，这种开除发生在“服役的头180天内的初始训练期间。到目前为止，没有其他现役军人被开除”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-4.jpg)
+根据海军上个月的宣布，大多数这样的服役军人将在2022年6月1日前被开除。
 
-校正/发稿：浪迹天涯
+文章报道，目前有5,268名海军军人仍未接种中共病毒疫苗，其中3,009人提出了宗教豁免申请。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-3.png)
+值得注意的是，由于还没有任何一个军种批准注射中共病毒疫苗的宗教豁免请求，那些寻求这种豁免的军人不可能找到免于被开除的机会。但是，海军已经给予现役海军军人8个永久医疗豁免、242个临时医疗豁免和74个行政豁免。
 
+与此同时，自12月以来，海军陆战队已经遣散了251名海军陆战队员。
+
+**新闻报道**
+
+[Navy removes first group of sailors to refuse COVID-19 vaccine](https://thehill.com/policy/defense/588671-navy-removes-first-group-of-sailors-to-refuse-covid-19-vaccine?rl=1)
 
  
 

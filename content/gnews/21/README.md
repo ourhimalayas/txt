@@ -2,30 +2,38 @@
 ---
 
 
-## 大直播后记：历史可以告诉我们很好的答案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831904/)
+## 恒大2021年营业额同比下降近39%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831948/)
 
-整理：雅典娜农场速记组
+新闻采集/撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
+1月4日，恒大公布了其2021年全年营收的整体情况。公告显示，恒大总营收金额仅四千四百三十亿元人民币。这一数据不仅远没有达到恒大在2021年年初预设的目标，而且较2020年的总营收额暴跌了近39%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-8.png)
+根据恒大集团于2021年8月公布的上半年营业额，比2020年同一时期下降了16%。另据已知数据分析，恒大集团2021年下半年的营销额，较2020年同期下降了超过60%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-75.png)图片来源：墨尔本雅典娜农场设计组（614）
+新闻链接：
 
+1. https://www.sohu.com/a/514292174\_260616 （文章中7232.5亿元是2020年的，材料3）
 
-谈到冬奥会的时候我也很简单地告诉大家一个答案，大家从希特勒还有这个前苏联都是两届冬奥会3年11年，7年11年就全灭了是吧！到了这个中共的冬奥会，包括享受当年2008年的奥运会啊。 2000年，中共获得了WTO的入场券，还有一个就是当年的下届奥运会，然后中国共产党就在世界上一下子躲过了8964的这个命运，经济萎靡，是在那种情况下他起来的。 那现在又搞了个冬奥会，现在又开始到了一个病毒疫苗灾难，经济大崩溃，要打台湾等这种形势，这绝对不是那么简单的。历史可以告诉我们很好的答案。 但是人类上有几个去学历史的呢？ 人类都知道上天之间有轮回，但有几个真正的相信上天的呢？ 很少很少！
+2. https://www.sohu.com/a/486868335\_100001551
 
-那么现在我们看到这个时候，这绝对不是一个简单的历史的重复，没那么简单的。大家要看到希特勒斯大林列宁，萨达姆卡扎菲乌干达的安宁包括苏哈托，包括日本的天皇我们就去看，他们都有一个共同的特点，从开始自己是一个完全的偶然，经过一定程度的一些人把他吹捧，把偶然变成了神迹，把神迹变成了个人崇拜，然后从过去的给所有人一个未来变成了自己要控制一切未来，然后要干掉一切。过去的，相信的上帝，然后他变成了上帝。
+3. https://www.sohu.com/a/442621530\_114986
 
-造神嘛，然后许给全世界人最美好的故事，变成了自己唯一的好故事。 最后他被消灭，因为他的肉体之身，也是黄粱一梦，他没有什么了不得的。他只是死之前给全世界带来了个噩梦，最后噩梦醒来大家很多人给他陪葬。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
-资料来源：郭先生GTV和盖特直播视频。
+总编：文特
 
-发布人：tianzhihuan
+编辑：Irene木木
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
