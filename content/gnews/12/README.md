@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|因言被封：推特永久封禁美众议员的个人账户
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833380/)
+## 有声|牛津疫苗研发专家称定期注射疫苗“不理智”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833491/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
 
+波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
+波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
 
-格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
-
-据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
-
-耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
-
-文字版原文：[因言被封：推特永久封禁美众议员的个人账户](https://gnews.org/zh-hans/1822292/)
+文字版原文：[牛津疫苗研发专家称定期注射疫苗“不理智”](https://gnews.org/zh-hans/1827309/)
 
 音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

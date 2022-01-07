@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|德国：双重疫苗接种者将不再允许不经测试进入餐馆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833263/)
+## 朝鲜也宣布不出席北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833430/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[网关专家](https://www.thegatewaypundit.com/2022/01/germany-double-vaccinated-no-longer-allowed-restaurants-without-taking-tests-triple-vaxxed-allowed-inside/)1月5日报道，德国宣布了新的限制措施——从下周一开始将不再允许双重疫苗接种者进入餐馆，只有接种过第三剂疫苗的人才能进入。
+**撰稿：日本东京方舟农场  子辰**
 
-这一措施将影响到双重疫苗接种者和已经从Covid中康复的人。他们现在需要提供每日阴性测试结果，才能进入德国汉堡的许多机构。
+据《大纪元》1月7日报道，朝鲜当局1月6日明确表示，将不出席2022年2月举行的北京冬奥会和残奥会。
 
-与此同时，只有那些已经注射了疫苗加强针的人，才能在该城市的室内参加餐馆、文化和体育活动，而无需进行检测。这意味着双重接种者不再被视为完全接种，未接种者不再有机会参加这些活动。
+《朝鲜中央通讯社》周五称，朝鲜国家奥林匹克委员会和体育局已在致中方的一封信中传达了这一决定。
 
-文字版原文：[德国：双重疫苗接种者将不再允许不经测试进入餐馆](https://gnews.org/zh-hans/1827034/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-80.jpg)图片来自《大纪元》
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+据报道，朝鲜当局在信中一再强调，是由于COVID-19（中共病毒）的全球传播，才促使他们决定不出席北京冬奥运会。信中还提到，在COVID-19（中共病毒）大流行的情况下，朝鲜也没有派队参加2021年的东京夏季奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+朝鲜被认为特别容易受到传染病影响。在2003年严重急性呼吸系统综合症（SARS）流行期间，以及2014年西非爆发埃博拉疫情时，朝鲜均禁止外国人入境。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+
+[朝鲜表示不参加北京冬奥会](https://www.epochtimes.com/gb/22/1/6/n13487045.htm)
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

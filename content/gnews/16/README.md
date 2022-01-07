@@ -2,18 +2,37 @@
 ---
 
 
-## 文贵大直播 1/7 中共房地产的唯一价值就是骨灰变成文明的肥料
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1833327/)
+## 密歇根高接种率卫生系统爆发大规模染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833446/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2.jpg)图片来源： GTV
-1月7日，新中国联邦的创始人郭文贵先生在GTV和GETTR同步推出的文贵大直播中，直言中共房地产的唯一价值就是其骨灰可以变成文明的肥料。
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，据美国媒体报道，在过去的一周内，密歇根州最大的卫生系统——亨利·福特卫生系统共有686名员工被检测出中共病毒感染呈阳性结果。
 
-对中共房地产的认知，必须放在时代发展的大背景下去评估，今天的世界在面临经济大崩溃的同时，也存在前所未有的机遇和空间。中共房地产崩塌时，就是政治、经济、金融等的大洗牌，一切都有可能。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.jpeg)
 
-影响全球数字货币的顶级人物亲口告诉郭先生，当看到中共的数据造假从大约8%到今天35%的时候，明确地知道中共已经不是新中国联邦的对手。
+资料显示，亨利·福特卫生系统是密歇根州第一个强制要求其员工接种中共病毒毒疫苗的卫生系统。目前，该系统内员工的疫苗接种率高达99%。
 
-世界的转折处，不是数字货币牛，而是郭先生的喜联储和盖特Pay改写了数字货币的规则。 【来源链接】https://gtv.org/broadcast/watch/61d83b3ef2fe0449ea199bd6
+数据表明，该系统员工的中共病毒感染情况比2021年12月之前增长了3倍。此外，由于生病人员需要进行隔离，该系统不得不暂时关闭了三家医院的97张床位。
+
+参考链接：
+1）[Health System in Michigan with over 99% Vaccination Compliance Rate has Nearly 700 Employees Test Positive with COVID-19](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
+2）[https://gettr.com/post/pmjn9p16a0](https://gettr.com/post/pmjn9p16a0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
