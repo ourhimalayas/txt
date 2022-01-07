@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|西安社会面“清零”：隧道、车库、看守所竟成隔离点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833619/)
+## 这就是他们释放Omicron的原因吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833717/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
+翻译： Jenny Ball
 
-然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-433.png)图片来源: [creativedestructionmedia.com
 
-郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。
+在 Delta这波病毒稀释之后，最新的 Omicron热炒之前，自动数据处理(ADP )显示出就业增长出现大幅飙升。
 
-文字版原文：[西安社会面“清零”：隧道、车库、看守所竟成隔离点](https://gnews.org/zh-hans/1825109/)
+在“Delta浪潮”减弱之后，以及在恐惧媒体和专横的蓝色州应时地掀起 Omicron 的浪潮之前，ADP 就业增长在 12 月出现了大幅飙升。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+**这表明美国人希望重返工作岗位，恢复正常。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+这就是为什么要推出 Omicron 吗？ 连（奥巴马）拜登都不能放慢美国经济？ 好奇的人们想知道答案。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源 : [creativedestructionmedia.com][Is This Why They Released Omicron? ADP Job Growth Shows Massive Spike After Delta Wave Dilution, Prior To Latest Omicron Head Cold Hype](https://creativedestructionmedia.com/news/markets/2022/01/05/is-this-why-they-released-omicron-adp-job-growth-shows-massive-spike-after-delta-wave-dilution-prior-to-latest-omicron-head-cold-hype/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
