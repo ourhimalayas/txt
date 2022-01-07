@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 6:39 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+![img](https://media.gettr.com/group32/getter/2022/01/07/18/5a64a40a-0f81-47f2-5d44-70d174a3c6c6/c8ca92bc4a7bfbec8720394b210244d9.jpg)
+
+---
+
 `@miles 1/7/2022 1:08 PM (UTC)`
 
 2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产
@@ -153,13 +160,6 @@ This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick!
 
 1/05/2022 Miles Guo: GETTR is a massively disruptive game changer for the entire social media industry. It has broken the monopoly and enslavement of the small interest groups over the people. It is the platform for authentic communications and opinion-sharing between individuals. While other social media are dying, GETTR is thriving, reflecting the influence of the New Federal State of China in the world stage.<br/><br/>1/05/2022 文贵直播：盖特是改变社交媒体游戏规则的game changer（改变者），它打破了集体对个人的垄断和奴役，是人与人交流的真实平台，盖特在其他社交媒体堕落的时候上升，体现了新中国联邦在世界的话语权<br/>
 ![img](https://media.gettr.com/group17/getter/2022/01/06/07/b34b4731-8d1f-ee61-7b64-f84c185df27c/out.jpg)
-
----
-
-`@miles 1/6/2022 7:28 AM (UTC)`
-
-1/05/2022 Miles Guo: Both Nazi Germany and Soviet Union fell after holding Olympics, and all the dictators would make themselves “God” and bring nightmare to the world - the fundamental purpose for Xi to hold the Winter Olympics and to use music to fool the Lao Baixing is to turn himself into “God” so that he can impose a dictatorial rule<br/><br/>1/05/2022 文贵直播：纳粹和苏联都在举办奥运会后灭亡，而独裁者都把自己塑造成神并给世界带来噩梦 - 习办冬奥会和用音乐愚弄老百姓的根本目的都是要把自己当成神从而进行集权统治<br/>
-![img](https://media.gettr.com/group36/getter/2022/01/06/07/7e869b20-c0d5-5414-8f3d-539c41c1ff32/out.jpg)
 
 ---
 
