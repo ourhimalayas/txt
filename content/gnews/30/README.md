@@ -2,48 +2,10 @@
 ---
 
 
-## 安妮日记2022-逃离新冠疫苗
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1830885/)
+## 1/05/2022 文贵直播： 媒体的力量太大了！HBO/VICE这样的魔鬼媒体和中共勾兑，构陷新中国联邦是邪教、暴乱分子
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1831063/)
 
-**出品：纽约香草山设计部**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+秘密翻译组-北美组
 
  
 

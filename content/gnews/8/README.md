@@ -2,46 +2,56 @@
 ---
 
 
-## 中共严格审查关于西安封城中的负面报道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831141/)
+## 玛乔丽•泰勒•格林在GETTR 和 Telegram上对 Twitter的封禁做出回应
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1831283/)
 
-**整理报道：文泓**
+据《门户专家网》2022年1月2日卡桑德拉·费尔班克斯（Cassandra Fairbanks）报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002.jpg)众议员玛乔丽·泰勒·格林（Marjorie Taylor Greene）（共和党-佐治亚）于 2021 年 6 月 26 日在俄亥俄州惠灵顿举行的“川普总统拯救美国”集会上发表讲话，照片由克里斯汀·泰勒 （Kristinn Taylor） 拍摄。
+众议员在社交媒体平台 GETTR 和 Telegram 上对Twitter 对她的禁令做出了回应。
 
-**【雅典娜观察】，和你一起探究世界**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/QJ0B5UTQ5@U7V3X3ECO4.png)图片来源：The Quint
+格林的个人账户，于周日因发布来自疾控中心的疫苗不良事件报告系统 (VAERS) 数据，而被永久封禁。
 
 
-当地时间1月5[日](https://www.theepochtimes.com/t-covid-19)，据《大纪元时报》报道，中共政权严格禁止西安居民在社交媒体平台上分享有关因严酷的中共病毒限制规则或封锁所造成的人员伤亡的负面信息，违反者将被注销账户。
 
-与此同时，所谓弘扬“正能量”的、“积极”的视频和文字正在中共国社交媒体平台上广泛传播，宣传病毒限制规则并赞扬政府严格的管控。中共政府打出的口号是“西安加油”，其中的图片、文字和视频是由中共审查机构宣传推广的。
+> MTG was suspended for using a CDC VAERS chart.
+> 
+> So is Twitter now telling us the CDC isn’t credible? 
+> 
+> Or that the truth is not allowed to be told? [pic.twitter.com/flfLkurLxI](https://t.co/flfLkurLxI)
+> — John – Naturally Immune – Cardillo (@johncardillo) [January 2, 2022](https://twitter.com/johncardillo/status/1477663920349499400?ref_src=twsrc%5Etfw)
 
-中共政权要求所有用户在社交媒体上使用与其身份证相关联的手机号码进行注册。一旦被禁止使用社交媒体帐户，用户就无法在网上与朋友分享感受，并且社交信用评分会降低。该制度不允许任何社会信用评分低的人购买航空公司或高铁的机票，甚至他们的孩子也不被允许上公立学校。
 
-“中共政权的首要任务是维护其政治形象，而不是公民的生命。该政权绝对不允许任何事情损害其政治形象，”经济学家程晓农在1月5日告诉自由亚洲电台（RFA）。
 
-在过去的几十年里，维持其在中国的统治或树立良好的政治形象是中共政权的首要任务。该政权使用包括广播、报纸、电视和社交媒体平台在内的宣传系统来操纵舆论；利用审查制度禁止所有批评和它不想让人们知道的事实曝光；并利用长城防火墙阻止中国公民浏览西方网站。
+*约翰 — 自然免疫 — Cardillo (@johncardillo)*
 
-据自由亚洲电台周三报道，1月5日凌晨，西安市民在手机上收到了市政府发来的“重要通知”，要求人们对他们在网上分享的信息进行自我[审查](https://www.theepochtimes.com/t-censor)。
+*MTG（ 玛乔丽·泰勒·格林 ）（的Twitter账户）因使用 CDC VAERS 图表而被暂停。*
 
-“**您不得在微信（中国最受欢迎的社交媒体平台）上发布非官方新闻，例如传闻、网站链接和与流行病有关的视频，尤其是负面信息**，”该通知中写道。
+*那么**Twitter**现在是在告诉我们**CDC**不可信吗？*
 
-**中共政府表示，社交媒体平台正在监控其平台上的所有帖子，系统会自动筛选帖子，检查员团队每天****24****小时检查帖子。**
+*还是这一事实不许讲？*
 
-西安市政府2021年12月23日宣布封城，并于12月26日收紧了不允许人们离开家园的控制措施。同时，该市将邻居被诊断为中共病毒阳性的居民强制搬迁到检疫中心（隔离）。
+*2022**年**1**月**2**日*
 
-1月5日中午12点，全市副市长徐明非宣布，全市42000多名居民被隔离在不同的隔离中心。
+该平台声称这是格林第五次因传播“中共病毒错误信息”而违反了规定。
 
-新闻链接：[Ties that bind Kazakhstan to China are starting to unravel – Nikkei Asia](https://asia.nikkei.com/Opinion/Ties-that-bind-Kazakhstan-to-China-are-starting-to-unravel)
 
-发布：tianzhihuan
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> MTG responds on Telegram, since she can't tweet. "Twitter is an enemy to America and can’t handle the truth." [pic.twitter.com/M8IgCU4KFa](https://t.co/M8IgCU4KFa)
+> — Davey Alba (@daveyalba) [January 2, 2022](https://twitter.com/daveyalba/status/1477665225889488899?ref_src=twsrc%5Etfw)
+
+
+
+*戴维**·**阿尔巴（**Davey Alba**）**(@daveyalba) 2022**年**1**月**2**日*
+
+*MTG**在**Telegram**上回复，因为她不能发推文。**“**推特是美国的敌人，无法处理真相。**”*
+
+*作为回应，格林关于推特写道：“我将向美国表明我们不需要他们，现在是打败我们的敌人的时候了。”*
+
+格林的[声明](https://gettr.com/post/plf6qx50e8)说：“当马克辛·沃特斯（Maxine Waters）可以走上街头并在 Twitter 上威胁使用暴力时、卡马拉（ Kamala ） 和伊尔汗（ Ilhan ） 可以在 Twitter 上助威暴乱者、恐怖组织 IRGC 的首席发言人可以在 Twitter 上哀悼苏莱曼尼（ Soleimani ）时，而我却因发布 VAERS 统计数据而被封禁，Twitter 是美国的敌人，无法处理真相。没关系，我会告诉美国我们不需要他们，是时候打败我们的敌人了。”
+
+原文链接：[https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/](https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 

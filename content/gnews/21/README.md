@@ -2,12 +2,31 @@
 ---
 
 
-## 最新NIH研究：中共病毒扩散到各个器官，并持续感染
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1831006/)
+## GTV新闻访谈简报|2022年1月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1831143/)
 
-12/29/2021 美国国立卫生研究院最近一项研究发现中共病毒可以在感染之后的几天时间内，就从呼吸道传播到心脏、大脑，以及身体的几乎每个器官，并在这些地方持续感染数月之久
+作者：香草山翻译部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d7972cf2fe0449ea19126f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

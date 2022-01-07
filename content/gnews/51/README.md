@@ -2,31 +2,36 @@
 ---
 
 
-## 01/06每日播报｜日澳联合签署国防协议 中共外交部紧急发声
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1828727/)
+## 美单日新增病例破百万 超去年同期高峰4倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829316/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61d6b1dd31a71619b575bed1)**
+作者：香草山佛教部-文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
 
-**2022-01-06**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.jpeg)
 
-彭博社1月5日报道，澳大利亚与日本将在本周四的领导人视频峰会上签署一份“历史性”条约，并以此进一步加强两国的国防和安全合作。该协议将是日本第二次与外国签订的重大防卫协议，日本此前仅与美国签订过类似的防卫协议。这份协议也标志着日、澳两个“准联盟”国家的关系再进一步。
+评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
 
-据了解，澳大利亚总理莫里森在电邮声明中称，签署“对等进入协定”将支持澳大利亚国防军与日本自卫队之间更大规模、更复杂的实际接触。该条约将表明两国承诺共同努力应对共同面临的战略安全挑战，并为印度-太平洋的安全和稳定作出贡献。
+参考链接： 
+1）[https://gettr.com/post/plxoc792a3](https://gettr.com/post/plxoc792a3)
+2）[Breaking: Despite Shutdowns, Lockdowns, Masks, Vaccines, Boosters, Double Maskers… New COVID Cases Top One Million for First Time Ever](Despite%20Shutdowns,%20Lockdowns,%20Masks,%20Vaccines,%20Boosters,%20Double%20Maskers…%20New%20COVID%20Cases%20Top%20One%20Million%20for%20First%20Time%20Ever)
 
-据相关日媒报道，这份国防协议的主要内容是，当部队因共同训练或救灾等原因在对方国家暂时停留之际，可免除入境审查以及随行物品的关税，并简化关于携带武器和弹药的手续。澳洲媒体也评论称，该协定一旦签署，也将为日本、美国和澳大利亚在日本举行联合军演铺平道路。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-此前，澳大利亚政府还曾因呼吁调查中共病毒在武汉的起源而与其最大贸易伙伴中共国的关系急剧恶化。中共政府对此实施了一系列贸易报复政策，其中就包括对澳大利亚大麦和葡萄酒征收高额关税，以及阻止澳洲煤炭出口。
+总编：Jack Li文阳 
+编辑：童谣  
+校正/发稿：谐趣园
 
-而此次日澳两国即将签署下的这一份国防合作协议，将再度制约中共国在亚太地区的军事力量。据路透社消息，中共外交部发言人汪文斌已于今日就此条约紧急发声表示，防务与安全合作条约“不应针对第三方或损害第三方的利益。” 足见这份协议的签订对中共政府在亚太地区的军事部署起到了绝对的制肘作用。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-秘翻主编  Noemi编译报道
 
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

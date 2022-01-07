@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 4:00 AM (UTC)`
+
+1/05/2022 Miles Guo: The power of the media is so huge! Devilish media outlets like HBO/VICE are colluding with the CCP, framing the New Federal State of China (NFSC) as a cult and a bunch of rioters. Since we believe that “only truth prevails”, what these devilish media have done is in vain, and they are going to face charges under the RICO Act of 1970<br/><br/>1/05/2022 文贵直播：媒体的力量太大了！HBO/VICE这样的魔鬼媒体和中共勾兑，构陷新中国联邦是邪教、暴乱分子；正因为我们的唯真不破，魔鬼媒体并没有得逞，等待它们的是RICO法案<br/>
+![img](https://media.gettr.com/group38/getter/2022/01/07/04/a79eab36-7a53-c746-0e19-1fafefe4bd17/out.jpg)
+
+---
+
 `@miles 1/7/2022 2:22 AM (UTC)`
 
 Who's Miles Guo Episode 2 Artemisinin and Ivermectin<br/>谁是郭文贵 2 青蒿素和伊维菌素
@@ -112,15 +119,6 @@ Just concluded a bipartisan congressional delegation visit to Ukraine where we m
 `@jasonmillerindc 1/6/2022 3:32 AM (UTC)`
 
 This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick! #GETTR
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rickyberwick 8/30/2021 5:34 PM (UTC)`
-
-LOL I'M ON A BILLBOARD @metapcs  
-![img](https://media.gettr.com/group8/tw/2022/01/06/02/996c164b-4117-b933-757c-ca301744d6a2/out.jpg)
 
 ---
 
