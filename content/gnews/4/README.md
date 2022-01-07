@@ -2,32 +2,36 @@
 ---
 
 
-## 美海军首次在西太海外基地部署最新型侦察无人直升机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832820/)
+## 世界乱象是长期和平滋生的无信仰恶果
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1832935/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-78.png)
-[图片来源](https://www.mvrsimulation.com/casestudies/uav/us-navy-mq-8bc-fire-scout-ship-based-simulator.html)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月5日的直播中，郭文贵先生一针见血地指出，当今世界的种种乱象都是因长时间的和平而滋生出自私、懦弱、无知、无信仰的恶果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-79.jpg)
+郭先生表示，我们现在面临着一个前所未有的乱局，这是共产主义和西方资本主义以及各种主义之间的大对决，也是各个种族之间的文化、地域、经济等矛盾集中爆发的大对决。但归根结底，这是有信仰和无信仰群体间的大对决。
 
-据seapowermagazine网站1月4日报道，美国海军已为第7舰队列装最新型 MQ-8C “火力侦察兵”无人直升机。
+郭先生解析，过去的几十年是人类历史上相对安稳与和平的时期。而人们也已经习惯了这种生活，甚至认为生活本该如此，从而变得真假不辨、善恶不分。然而，这种岁月静好所导致的恶果则是，很多人失去了自我思考的能力，他们无知、自私、懦弱、贪生怕死，且不惧因果轮回。
 
-据报道，此次列装的主要作战使命是，“在美国第 7 舰队的作战区域进行轮换部署，以增强与合作伙伴的互操作性，并作为随时响应的力量，支持自由开放的印太地区。”
+郭先生补充道，对国人来说，中共多年“无神论”的洗脑教育已经培养出了一个异化的群体；而对曾经有广泛且深厚的宗教文明的西方人来讲，他们中相当一部分人已经远离了神、远离了上帝。
 
-报道称，MQ-8C于2019年6月具备初步形成作战能力，隶属于位于美国加利福尼亚州北岛海军航空站的第23直升机海上作战中队的一个分队，装备在“独立级”濒海战斗舰“杰克逊”号（LCS 6）上，用于执行超视距目标侦察任务，提升濒海战斗舰的态势感知和杀伤能力。
+郭先生还感触道，这是他在现实生活中第一次感受到带领以色列人走出旷野的摩西之伟大。为此，郭先生强调，我们新中国联邦人也要跳出现实世界面临的这个怪圈，坚持正道主义，活得有信仰、有尊严、有希望，并带领世人开创一个新时代。
 
-据报道，MQ-8C是MQ-8B是升级版，由诺斯罗普·格鲁曼公司研制。其机身结构基于Bell 407直升机，比MQ-8B的机身更大；配备了更强大的发动机，飞行速度更快；可携带更多的有效载荷，如ZPY-8搜索雷达或光电/红外传感器；具有更长的续航时间，达到了12小时；并可使用与MQ-8B相同的地面控制站。美海军还计划为MQ-8C配备link-16数据链，被动目标定位和反水雷等有效载荷，使其具备更多的能力。诺斯罗普·格鲁曼公司将向美国海军交付38架MQ-8C，目前已交付了33架。
+参考链接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-据专家分析，此次美国海军首次在西太平洋海外基地部署最新型侦察无人直升机，针对中共的意味明显。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-信息来源：
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-[Navy’s Newest Fire Scout UAV Version Prepares for Westpac Deployment – Seapower](https://seapowermagazine.org/navys-newest-fire-scout-uav-version-deployed-to-westpac-without-fanfare/)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,34 @@
 ---
 
 
-## 大直播后记：风水和迷信（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1832930/)
+## 世界网球名将因疫苗豁免被澳洲拒绝入境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833003/)
 
-整理：雅典娜速记组
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Airbnb2022_2.png)图片来源：墨尔本雅典娜农场设计组（614）
-**2022年1月5日文贵大直播**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，曾公开批评强制疫苗政策的世界男子网球名将诺瓦克·德约科维奇在墨尔本机场被澳大利亚边境官员拒绝入境。当地官员声称，德约科维奇的中共病毒疫苗豁免不被澳洲政府认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.14.49.png)
+德约科维奇随后表示，他本人已经获得了由免疫学、传染病学和全科医生组成的医疗小组开具的中共病毒疫苗医疗豁免证明，该证明也符合澳大利亚免疫技术咨询小组所规定的条件。然而，当德约抵达墨尔本机场时，他却被当地武装警察长时间看守在一个隔离室中等待入境许可，但是，维州政府最终拒绝为德约的签证担保。
 
-毛知道共产党所谓的不能进故宫。算命的说，你要先进香山，然后最好1949年几月几号几时几点，而且绝不进故宫。他（毛）就不进故宫，就在中南坑。然后说毛主席是龙嘛，毛主席要在水池边，要有水嘛。（所以）他天天在游泳，他天天泡着水，里边就是水，对他好啊。是不是找女的水多了，现在游泳。
+经边境官员证实，德约的签证目前已经被取消，此外，他将于本6日被遣返。
 
-现在习近平直接搬进去了，我就住在毛泽东旁边，我也是龙啊。所以中南坑就两泳池，一个公众的、一个是他的。游进去了吗？这都是迷信嘛！还有一个，为啥北京定都峰还要控制啊？我们海东兄弟去过，昭颖妹妹也去过，就是后来被海延，杨得志的儿子控制的定都峰。东西长安街，南北长整个长城上面是不是南北中轴线啊？中轴线上的北部的北都峰都是共产党军队控制的。
+据悉，塞尔维亚总统也紧急召见了该国的驻澳大使。而在未能扭转当前局面后，塞尔维亚总统表示，整个塞尔维亚都与球员德约科维奇在一起。
 
-他相信啊，金木水火土五行啊，宇宙地球银河系是吧？他也知道阴阳，他知道属相甲子是吧，他知道整个人类存在着，有阴阳有黑白天。
+参考链接：[Djokovic in limbo as lawyers fight Australia ban; mother says he is ‘prisoner’ in hotel](https://www.reuters.com/lifestyle/sports/exclusive-novak-djokovic-denied-entry-australia-seeking-injunction-stop-2022-01-05/)
 
-知道这个秘密的叫什么？叫风水。误解这个秘密的叫迷信，他让你所有人都误解真正的人类大自然的密码，还是让你永远找不到，不让你知道关在你旁边监狱那道门。所以说大家别忘了风水和迷信是两回事儿，迷信是你被迷信者，你就成了牺牲品。你打开自然密码的、知道真相的那叫风水。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-你要不相信风水，就很简单，我再说一遍，你拿任何一个刀子就对你自己的这个额头中，拎一个锐点的铅笔都行，你对10秒试试。你看着你什么感觉。第二个，如果你觉得还不信，你让家人在你不知道的情况下，拿个刀子对着你自己的后脑勺，你看有没有感觉，你一定会有感觉。
+总编：Irene木木
+编辑：DM
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-什么叫形影不离呀？什么叫背后长眼呢？如果你再不相信，你就到坟墓里睡上两晚上试试。看是在你家床上睡舒服，还是坟墓的舒服。甚至你找人把你放到一个完全不知道的坟墓，把坟墓变成花园，你去睡试试。
-
-你一定要记住我们人类是有灵魂的，我们就在一个梦境中。你在床上挣扎的时候，在做梦中。在当人走的时候，实际没有死，你回到了梦之前的另外一个身体。
-
-**往期回顾：**
-[大直播后记：风水和迷信（一）](https://gnews.org/zh-hans/1832888/)
-
-发布：Mttfly
-
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

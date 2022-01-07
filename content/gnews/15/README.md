@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|芝加哥教师工会无视政府复课命令开始远程教学
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1832726/)
+## 【中日财经爆】红杉资本与红杉中国切割！美国投资全面撤离中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832739/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在冠状病毒病例激增的情况下，教师工会以压倒性多数投票决定恢复远程学习，无视该市恢复课堂的命令，芝加哥公立学校于周三取消了课程。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-413.png)[图片来源](http://tech.sina.com.cn/csj/2019-10-28/doc-iicezzrr5394091.shtml)
+近日，多家国外媒体传出，红杉中国将和红杉资本分离。
 
-芝加哥教师工会周二在一份声明中表示，近 90% 的芝加哥教师工会代表投票赞成转向远程学习。 芝加哥市工会称这座城市的教育工作者希望和学生一起在教室学习，但市长对病毒的疏于防范危及教师和学生的安全。
+据“硅发布”1月4日发布的文章称，红杉资本可能会在2022年结束与红杉中国长达16年的合作关系，美国投资者正在撤离中国市场。
 
-芝加哥市长表示，远程学习损害了学生的学习机会，也给无法下班在家照顾孩子的父母带来了负担。 由于冬季欧米克隆病例的激增，全国各地的许多学校系统都面临着人们从假期回来后是现场教学还是远程教学的争论。
+文章给出的理由是2021年投向中国市场的美元基金，从美国LP募集到的总体金额同比下降了65%。这是个惊人的数字，而中国独角兽企业的数量下滑同样明显，这已经说明美国投资者不管是出于商业目的还是其他，撤离中国市场的比例正在加大。
 
-文字版原文：[芝加哥教师工会无视政府复课命令开始远程教学](https://gnews.org/zh-hans/1829660/)
+红杉中国于2005年在北京成立，在近20年的时间里，助推了中共国科技发展并从中获取了巨额利润，根据PitchBook的数据：红杉中国的十几个基金筹集了超过100亿美元，红杉中国管理着约400亿美元的资产。投资了国内一半的互联网公司，包括拼多多、美团、新浪、京东、高德、360、诺亚、唯品会、阿里巴巴、豆瓣、大众点评、美团、驴妈妈、途牛、快手等公司。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+红杉中国是中共权贵与美国华尔街大佬的利益结合体，红杉资本与红杉中国分道扬镳，表明美国与中共的经济全面脱钩正在加剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+信息来源：[红杉资本将和红杉中国分道扬镳？沈南鹏或将面临艰难选择\_中国经济网](http://finance.ce.cn/stock/gsgdbd/202201/06/t20220106_37234537.shtml)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

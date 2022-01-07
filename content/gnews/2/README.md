@@ -2,34 +2,35 @@
 ---
 
 
-## 大直播后记：风水和迷信（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1832888/)
+## 东京连续两日中共病毒确诊病例激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833002/)
 
-整理：雅典娜速记组
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Airbnb2022_2.png)图片来源：墨尔本雅典娜农场设计组（614）
-**2022****年1月5日文贵大直播**
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月6日，据日本媒体消息显示，2022年新年伊始，日本的中共病毒感染病例数再次激增。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.14.42.png)
+数据显示，在人口集中的东京都，周四当天的新增感染者人数达到641人，是上周四的10倍，也是自2021年9月18日以来当地单日确诊病例数首次超过600人。 其中，接种过两剂中共病毒疫苗的感染者超过总数的一半，而仅有四分之一的感染者未接种疫苗。此前一天，东京地区接种过中共病毒疫苗后仍旧感染的患者超过两百人，也占据了当日总感染数的二分之一。
 
-本来Eric要讲，就是盘古（东西中轴线）啊，但我们三票先生也查出来了，这个（盘古东西中轴线）和昆仑山的秘密，我说你找到了核心啊。还有几个，大家看到了九龙壁，唯一的九龙壁啊，大家你们谁去过啊？你们自己研究研究，九龙壁在历史上是什么时候开始的，为什么叫九龙壁啊？然后，又为什么和盘古是一条线上？还有几个核心没有出来啊。就像我们这个大师，他远在武当山啊，百岁的老人。这个徒弟就跟他说，你看看啊，文贵这个什么盖特呀，怎么样。他们说可以给我整个祈福呀、洒水啊、山上还立了什么什么的啊，我都是笑一笑啊。这个时候（按照）共产党说就是迷信。
+分析人士对此指出，东京都这两天公布的数据可以有力地证明，接种中共病毒疫苗，特别是接种多剂疫苗后感染中共病毒的风险远大于没有接种过疫苗的人群。
 
-但是共产党说迷信，你一定要搞清楚啊！无知的人所理解的，你生理之外，和超出我们生活自然现象的东西，你那真的叫迷信。严格讲叫做弱信。就是因为你弱智，也看到个老鼠交配，你觉得老鼠怎么会交配？老鼠在上面，应该是跟我一样是吧？一个在上面，脸朝上啊，那是因为你没见过，是吧？你觉得老鼠应该那样啊，那是你见得少。你没有资格解释，什么叫迷信和不迷信。
+参考链接：
+1）[東京都、新たに641人感染　7日平均で前週の4.5倍](https://www.nikkei.com/article/DGXZQOCC060E90W2A100C2000000/)
+2）[＜新型コロナ・6日＞東京都で新たに641人の感染確認　小池都知事が岸田首相と会談へ](https://www.tokyo-np.co.jp/article/152706)
+3）[東京都、新たに390人感染　7日平均で前週の3倍](https://www.nikkei.com/article/DGXZQOCC050CO0V00C22A1000000/)
 
-共产党是一个国家的政党，杀过上亿的人，还有征服全世界（的计划）。他对这个迷信的理解，那是经过无数次试水之后。什么脸朝上、脸朝下都弄明白了，是前后姿势都懂的，是吧？他知道人类之外的有各种神秘的力量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-这种力量，它是不需要你获得的，它不需要你们知道，我奴役你，我怎么能让你知道呢？在监狱里关着的人，你怎么知道还有门的存在呢？时间长了，你不能知道门的存在，你知道门的存在就叫迷信。他告诉你，根本没有门，这就是你的一切。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-实际上共产党早就知道在我们人间有门，就像张高丽说，“宇宙无限大，地球是一粒沙”。他知道门之外还有大门，还有无限的大门，是吧？那么共产党在过去经历过无数次的传奇，包括习仲勋造新四方面军救毛泽东；包括到延安，延安塔下的秘密；包括毛泽东啊，相信江青的水多，对他有利的，张玉凤的水更多啊。所谓的一摸就来，就差了那个水枪是吧，“擦擦擦”的小孩儿水枪喷了。毛主席喜欢这一套，是吧？他觉得男女之欢就是水嘛。他知道男女之间有所谓的属相和运气。
-
-发布：Mttfly
-
-**
-****更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
