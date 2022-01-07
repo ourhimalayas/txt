@@ -2,36 +2,29 @@
 ---
 
 
-## 郭文贵先生揭露中共灭亡前苦民、弱民真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831942/)
+## 美海军开始开除拒绝接种中共病毒疫苗的现役军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831965/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月5日，郭文贵先生在大直播中揭露中共苦民、弱民的政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-14.png)
-郭先生表示，中共国的房地产捆绑着中国人未来58年的人生。中共深知，控制房地产，就是控制中国人的未来。根据郭先生的情报 ，习近平已在党内做出指示，确保35%的社会就业红线；中共已做好1-1.5亿国民死亡的准备；中共已经储备一年半的粮食，随着人口的减少，和供应数量的逐步减少，粮食供应预计将维持2年。为掌握数字货币未来的话语权，中共打着共享财富的幌子，发行数字人民币，还将推广到台湾、菲律宾、哈萨克斯坦等国家和地区，掠夺财富。
+#### 撰稿：彩虹
 
-在全球经济即将崩塌之际，中共口中的“共克时艰”，实际上是以牺牲人民的利益为代价，换来中共须臾的苟延残喘。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6971293-2-scaled.jpg)图片来源：usni
+根据《国会山报》1月6日的报道，海军已经开除了20名拒绝接种中共病毒（COVID-19）疫苗的军人，这是在2021年11月28日海军接种中共病毒疫苗最后期限后第一批被开除的军人。
 
+根据周三发布的一份海军声明，所有被开除的20人都是最近入伍的，他们被作为“新入伍级别离职”的一部分而被开除，这种开除发生在“服役的头180天内的初始训练期间。到目前为止，没有其他现役军人被开除”。
 
+根据海军上个月的宣布，大多数这样的服役军人将在2022年6月1日前被开除。
 
-新闻来源：https://gtv.org/video/id=61d59a1931a71619b57520a4
+文章报道，目前有5,268名海军军人仍未接种中共病毒疫苗，其中3,009人提出了宗教豁免申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+值得注意的是，由于还没有任何一个军种批准注射中共病毒疫苗的宗教豁免请求，那些寻求这种豁免的军人不可能找到免于被开除的机会。但是，海军已经给予现役海军军人8个永久医疗豁免、242个临时医疗豁免和74个行政豁免。
 
-总编：文特
+与此同时，自12月以来，海军陆战队已经遣散了251名海军陆战队员。
 
-编辑：Kathy文艺/雪梨
+**新闻报道**
 
-校正/发稿：浪迹天涯
+[Navy removes first group of sailors to refuse COVID-19 vaccine](https://thehill.com/policy/defense/588671-navy-removes-first-group-of-sailors-to-refuse-covid-19-vaccine?rl=1)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

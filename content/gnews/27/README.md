@@ -2,23 +2,23 @@
 ---
 
 
-## 美国寿险公司疫情期间死亡索赔率大升
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831696/)
+## 安省中小企业因疫情限制措施而陷入困境
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831724/)
 
-采编/编译撰稿：自由法兰西        校对编辑，发稿：硫酸羟氯喹64
+采编/编译撰稿：文莱      校对编辑，发稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-8.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-9-edited-1.jpg)图片来源：TNH
 
 
-据英国媒体《每日内幕》1月4日报道, 美国人寿保险公司最新报告显示，与疫情爆发之前相比，该公司目前所处理的死亡索赔率上升了40%，而且死亡主要发生在18至64岁的就业人群中。
+据加拿大媒体【真北方】1月3日报道，[加拿大独立企业联合会]日前对安大略省政府即将推出的疫情封锁措施发出警告，并认为当局极端的防疫政策正在摧毁该省的中小型企业。
 
-该报告指出, 近期发生在保险业界最高死亡索赔率的情况，几乎存在于美国所有保险公司里。 疫苗mRNA技术发明者马龙博士对此表示：即使200年一遇的大灾难也只会让人类死亡率比疫情爆发前提高10%而已，而40%程度的增长实属骇人听闻。
+报道称，由于多伦多的疫情封锁限制，餐馆的室内用餐已被禁止了408天，而健身房也已关闭了395天之久。据该商业集团的数据显示，安省仅35%的小企业恢复了营业，而该省小企业在疫情期间的平均债务为19万加元，并且已有约20%的商家正在计划宣布破产。
 
-据悉，目前保险公司所提交的大多数疫情死亡索赔案件并未被当局归因为“新冠病毒”感染，因此官方公布的相关数据则大大低于该病毒在就业人口中所造成的实际死亡人数。
+不仅如此，雪上加霜的情况是：由于近期“奥密克戎”病毒的肆虐，安省又因此再次恢复执行了更加严厉的封锁规定。据悉，将于1月5日生效的防疫措施包括：将零售店的顾客容量缩减50%，关闭学校和所有室内会议和活动场所，以及关闭酒吧，餐馆和影剧院等公共娱乐场馆。
 
 * * *
 
-原文链接： [https://dailyexpose.uk/2022/01/04/us-life-insurance-company-reports-40-increase-in-death-claims-since-start-of-covid-19-vaccine-rollout/](https://dailyexpose.uk/2022/01/04/us-life-insurance-company-reports-40-increase-in-death-claims-since-start-of-covid-19-vaccine-rollout/)
+原文链接：[CFIB condemns Ontario government for reintroducing restrictions | True North (tnc.news)](https://tnc.news/2022/01/03/cfib-condemns-ontario-government-for-reintroducing-restrictions/)
 
  
 
