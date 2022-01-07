@@ -2,189 +2,83 @@
 ---
 
 
-## 2021年、2022年是人类命运的分水岭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
+## GETTR、GTV是唯一能拯救中国人的平台
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
 
-[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
+[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
 
-我觉得爆料革命和新中国联邦
-Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
+**郭文贵
+Miles Guo**
 
-包括人类的命运
-Incluyendo el destino de la humanidad
+Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
+For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
 
-我觉得2021年、2022年是人类的分水岭
-Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
+她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
+She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
 
-今天我说了你们就不觉得惊讶了
-Hoy no se sienten asombrados si les digo esto
+媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
+The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
 
-如果一年前我说你们(会)觉得我神经病
-Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
+来黑我们新中国联邦，而且处心积虑，你们竟然不传播
+come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
 
-是不是, 夸张、吹牛
-Cierto, exagerado, presumido
+一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
+It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
 
-我从来没想试图说服过任何人
-Yo nunca he pensado de persuadir a nadie
+你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
+What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
 
-包括你七嫂
-Incluyendo a mi esposa
+烧你家房子，烧你100次，不是烧你一次
+Burn your house 100 times, not burn you once
 
-包括我家人, 我从来没有过
-Incluyendo a mi familia, nunca lo he pensado
+你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
+Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
 
-因为人的缘分不是你能说服得了的
-Porque la afinidad entre personas no puede ser persuadida
+千羽你在加拿大, 你走到大街上是人人喊打的人
+Qianyu, you are in Canada, you are the one who was shouts and beats on the street
 
-人和人之间的关系
-La relación entre las personas
+娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
+Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
 
-真的不是你用嘴(说)能达到的
-Realmente no se logra con la boca (diciendo)
+我不跟你开玩笑正义小Sarah
+I’m not kidding you justice little Sarah
 
-真正的人与人的信任和感情
-La verdadera confianza y sentimiento entre las personas
-绝对不是嘴能说到的
-No se dice con la boca
+Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
+Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
 
-很多过去的欺民贼, 伪民运
-Muchos matones del pasado, movimiento de la pseudodemocracia
+这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
+Isobel Yeung this guy is very evil, you see William still laughing, William
 
-他(们)不懂这个道理
-(Ellos) no entienden esta verdad
+就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
+just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
 
-就是人类这个灵性动物
-Es decir, los seres espirituales como los seres humanos
+一定想到盖特是拯救中国人的平台
+You must think about that Gettr is a platform to save the Chinese people
 
-他最终是一定要看行动的
-Él al final lo que ve es la acción
+一定想到G-TV是唯一能拯救中国人的平台
+Must think that G-TV is the only platform that can save the Chinese people
 
-最终就是以结果论
-Finalmente toma el consecuencialismo
+他比任何经济价值都重要
+It is beyond any economic value
 
-这就是动物和植物界的根本不同
-Esta es la diferencia del origen entre los animales y el mundo de las plantas
-
-那么我们在这个地球上
-Entonces, nosotros estamos en este planeta tierra
-
-我们大家面对着一个物质的世界
-Enfrentamos a un mundo material
-
-和一个我们完全无法想像的未知的星空
-Y un cielo estrellado desconocido que ni siquiera podemos imaginar
-
-银河系, 太阳系
-Vía Láctea, Sistema Solar
-
-无限大的宇宙和地球之间一粒沙的关系
-La relación entre un grano de arena del universo infinito y la tierra
-
-我们跟人之间相处的时候实际是最复杂的
-En realidad, lidiar con las personas es lo más complicado
-当今天我们看这个同心同框, 这么多战友的时候
-Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
-
-大家能看到有人说话多一点, 有人说话少一点
-Todos pueden ver que algunas personas hablan más, otros hablan menos
-
-有人激动一点, 有人水多一点(或)水少一点儿
-Algunos son más emocionados, otros con más agua o menos
-
-是不是
-Cierto o no
-
-分男女, 分老少, 分长短
-Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
-
-但是大家记住
-Pero todos recuerden
-
-我们心中最大的魔就是分高低
-El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
-
-而且这个高低是谁定的, 是你自己定的
-Además, quién decide esto, tú mismo
-
-都是我们每个人自己的标准去量所有的人去
-Utilizamos nuestros propios estándares para medir a los demás
-
-这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
-En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
-
-我们今天讲了那么多
-Hoy hablamos tantas cosas
-
-我们没讲金, 没讲土
-Pero no mencionamos el oro y la tierra
-
-但是我们的新中国联邦的旗是什么旗
-Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
-
-我们的蓝色就是蓝色海洋和星空
-Nuestro color azul significa el mar y el cielo estrellado
-
-你知道在中(共)国是不用蓝的
-Sabías que en República Popular de China no se utiliza el azul
-
-中国人什么时候用蓝你知道吗
-¿Sabes cuándo los chinos usan el azul?
-
-头两天你七嫂憋了一年都没说
-En los primeros dos días, mi esposa aguantó durante un año sin decirlo
-
-你七嫂给我留面子
-Era para que no pasara pena
-
-我知道你七嫂要说什么
-Yo sé lo que ella quería decir
-
-就是说那个蓝色的时候
-Hablando lo del color azul
-
-你七嫂说, 哎呀
-Ella dijo, ay
-
-她说在咱老家咱娘说, 这叫什么
-En nuestra ciudad natal, nuestra madre dijo que esto se llama
-
-就是在我们山东老家, 人死了用那个蓝色
-En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
-
-就是那个蓝色是死亡蓝的意思
-Quiere decir que el color azul representa la muerte
-
-我特能懂, 我啥也没说
-Puedo entender totalmente esto, no dije nada
-因为你七嫂子她是山东人
-Porque mi esposa es de Shandong
-
-她是我的爱人, 跟我一起长大的
-Es mi amor y creció conmigo
-
-但是我就没法跟她解释
-Pero no puedo explicarle
-
-她未来会懂得
-Ella entenderá en el futuro
+你看明白了吗？兄弟姐妹们
+Do you see it? Brothers and sisters
 
 * * *
 
-日期：01/06/2022
-原视频标题：2021年、2022年是人类命运的分水岭
-El año 2021 y 2022 son la línea divisoria de agua del destino humano
-
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
-任务编号：KC399（3406）
-视频时间段：00:00-02:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+Date: 01/06/2022
+原视频标题: GETTR、GTV是唯一能拯救中国人的平台
+GETTR and GTV are the only platform that can save the Chinese people
+原视频日期：2022/01/05
+原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
+任务编号：3429
+视频时间段 : 0:00-1:34
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
 审片：洛杉矶盘古农场 – 银龙
-发布: 洛杉矶盘古农场- 恩典
+发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
