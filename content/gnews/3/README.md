@@ -2,24 +2,31 @@
 ---
 
 
-## 秘翻在线：你看你看！WHO的话悄悄地在改变～～
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831130/)
+## GTV新闻访谈简报|2022年1月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1831143/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-15.jpg)（图片源自[https://www.dw.com/zh/who-%E8%B0%AD%E5%BE%B7%E8%B5%9B%E6%98%AF%E4%B8%8B%E4%BB%BB%E6%80%BB%E5%B9%B2%E4%BA%8B%E7%9A%84%E5%94%AF%E4%B8%80%E6%8F%90%E5%90%8D%E4%BA%BA/a-59666062）](https://www.dw.com/zh/who-%E8%B0%AD%E5%BE%B7%E8%B5%9B%E6%98%AF%E4%B8%8B%E4%BB%BB%E6%80%BB%E5%B9%B2%E4%BA%8B%E7%9A%84%E5%94%AF%E4%B8%80%E6%8F%90%E5%90%8D%E4%BA%BA/a-59666062%EF%BC%89)
-１月７日路透社消息：世界卫生组织（WHO）官员６日表示，中共病毒（新冠病毒）新变种奥密克戎似乎不会像德尔塔那样容易重症化，但不应该被归类为 “轻症”感染菌株。
+作者：香草山翻译部
 
-世卫组织临床护理负责人珍妮特-迪亚斯（Janet Dias）称：早期研究显示，感染奥密克戎菌株的住院风险低于德尔塔菌株。并且，特别是在年轻人中重症化风险可能更低。然而，目前尚缺有关对老年人影响如何的足够数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-世卫组织总干事谭德赛警告说：在感染人数迅速增加的情况下，不应该将奥密克戎菌株归类为 “轻症”感染菌株。根据目前的疫苗接种覆盖率，预计有109个国家无法实现世卫组织规定的在7月前实现世界70%的人口接种疫苗的目标。
 
-据世卫组织顾问布鲁斯-艾尔沃德（Bruce Aylward）说，目前尚有36个国家的疫苗接种率甚至不到10%，世界上80%的严重感染者没有接种疫苗。根据世卫组织的每周数据，截至1月2日的一周内，全世界的感染者人数增加了71%。(950万)。相比之下，死亡人数下降了10%（4.1万人）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
+校对：Stay文苑
 
-以上用于分析并得出结论的，所谓世界卫生组织的数字，不知源于哪里。但众所周知，在世界卫生组织的规定和指令下的世界深陷史无前例的病毒大流行长达两年之久，变成了今天这个样子。刚刚过去的12月15日，世卫组织总干事谭德赛说：“不要以为奥密克戎不太可能导致重症，如果被感染的人数增加，将再次给卫生系统带来压力”。这话谁听了不会理解成奥密克戎不太可能导致重症？这次却又说“目前尚缺有关对老年人影响如何的足够数据” 。这不明摆着是跟病毒感染初期说“不会人传人”，之后又改口说 “会人传人”如出一辙吗？
+编辑：Stay文苑
 
-只要是世卫组织的喊话，只有一个主题没有改变过。那便是推广疫苗！
+发稿：Stay文苑
 
-信息源：[オミクロン、重症化リスク低いが「軽度」とみなさず＝ＷＨＯ（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b2a4851e6b3974bb96f7c3750f6bd4082efb4c7e)
+视频参看：[1.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d7972cf2fe0449ea19126f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
