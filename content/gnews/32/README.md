@@ -2,33 +2,40 @@
 ---
 
 
-## 有声|中共极端清零 河南禹州封城
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831495/)
+## 菲律宾总统威胁未接种新冠疫苗的人要坐牢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831671/)
 
-配音：香草山教育部 – Rose
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/菲律宾总统.png)
 
-台媒1月4日消息报道称，人口数超过100万的禹州市(位于中共国河南省中部)，虽然只出现了3例无症状中共病毒感染者，但该市居民均被下令被迫留在家中。这是近期中共实施大规模封城的最新案例。
 
-自中共病毒疫情爆发以来，北京当局追求极端“清零”政策，实施严格边境管制，以及目标性的封城措施。如果未能遏制疫情，中共地方官员通常会面临开除或者惩处的命运。在近期接连爆发本土案例，以及冬奥会即将开始的情况下，中共的该项政策正面临越来越大的压力。
+ 
+图片来源：www.rappler.com
 
-原文链接:[中共极端清零 河南禹州封城](https://gnews.org/zh-hans/1824749/)
 
-音频处理：喜山必胜Maverick
+#### 编译：小红帽
 
-发稿：Daxia
+根据《RT新闻》1月6日报道，随着菲律宾的新冠病毒感染率创下三个月的新高，总统罗德里戈·杜特尔特(Rodrigo Duterte)对未接种新冠疫苗者采取了坚定的态度，威胁说如果他们违反禁闭令，将逮捕这些 “顽固分子”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+在周四向全国发表的电视讲话中，杜特尔特宣称，由于他 “对每个菲律宾人的安全和福祉负责”，他不得不对那些仍然没有接种新冠疫苗的人采取坚定的态度。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+杜特尔特的强硬立场反映了菲律宾对新冠病例数量上升的担忧，医学专家担心这可能会使该国的医疗系统不堪重负，有可能导致死亡人数上升。
 
+杜特尔特此前曾直言不讳地表示他对反新冠疫苗接种者的愤怒，并在去年警告说，如果人们拒绝接受新冠疫苗接种，他们可能面临监禁或被迫注射伊维菌素。
+
+2021年底，政府数据显示，菲律宾有4980万人完全接种新冠疫苗。这个数字还不到该国1.1亿人口的一半。
+
+新闻来源：[President threatens unvaccinated with prison time — RT World News](https://www.rt.com/news/545319-philippines-threaten-arrest-unvaccinated/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
