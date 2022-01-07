@@ -2,43 +2,22 @@
 ---
 
 
-## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1832234/)
+## 【赶绝选举】民政署突终止互委会计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832314/)
 
-**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
+作者：东京樱花团丨阿恩
+![](https://lh6.googleusercontent.com/4k_7n9IkImBzQ1uigppv3EbWnhBE_rIXi15btlF1wrFGyONGFXrIR_P-a-4rJGykOc9OK1hv77yqP27HwKApVm64DDzJIh6fSvhQlb1PcoE5bfAUrTA3sRsSgTm71ApoBVOKu9Yz)
+港英政府在七十年代提出成立互委会，旨在促进邻里关系和改善居住环境。民政事务总署昨日（6日）以“社会发展和转变，互委会在的角色日渐式微”为由，决定终止互委会计划。民建联表示不理解，认为互委会是民政事务处与居民沟通的桥梁，有必要存在。
 
-就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
+港英政府应对日益增长的人口压力，在各居民楼成立互助委员会，所有居民都可以成为互助会主席的候选人，并由该栋楼的居民投票产生，负责政府部门与居民之间的联络，协调邻里之间的关系，筹备佳节活动等。由于互助会有主导居民意识的功能，尽管这些贴近民生的活动需要耗费不少的资金，还是吸引了政党的投入，建制派是其中的赢家，该党派的区议员常年向区内的互助会提供资金援助，以互助会的名义向居民派发物资，以及提供免费游玩项目，借机宣传建制派的政绩。建制派的这些工作是非常有成效的，2019年前的区议员位席八成都由建制成员担任。建制派是中共的亲密走狗，幸得中共篡改了香港的选举制度，并用国安法清除了香港的泛民派系，建制派才能在今年的立法会选举中大获全胜。港府突然终止互助委员会的计划，有过河拆桥之嫌，建制派本想再次通过互助会重拾社会认受性，难怪媒体上的反对声音都是来自于建制阵营。
 
-然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
+民主派得悉此举是中共决定，旨在全面消除地方选举。众所周知，泛民派系被扼后，建制派成为香港第一大派系，中共如何会将民意交托在地方政党手上，所有的民意都只能由中共一手掌控。建制派失去了笼络民意的桥梁，只能彻底攀附于中共，再也无法借民意向中共发起任何挑战。
 
-中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
+资料来源：[**专栏｜互委会完成历史任务可撤销**](https://hd.stheadline.com/news/realtime/hk/2296345/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E5%B0%88%E6%AC%84-%E4%BA%92%E5%A7%94%E6%9C%83%E5%AE%8C%E6%88%90%E6%AD%B7%E5%8F%B2%E4%BB%BB%E5%8B%99%E5%8F%AF%E6%92%A4%E9%8A%B7)
 
-编辑整理：海贼王M.D.LUFFY；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

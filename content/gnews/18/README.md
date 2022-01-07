@@ -2,41 +2,43 @@
 ---
 
 
-## 01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1832149/)
+## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1832234/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61d80039f2fe0449ea197c87)**
+**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
 
-**2022-01-07**
+就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
 
-据路透社(Reuters) 1月6日报道，印度大城市德里、孟买和加尔卡塔正经历着中共病毒COVID-19病例的激增。官员们表示，大部分受感染的人没有表现出症状或只有轻微的症状，并在家中迅速恢复。
+然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
 
-印度周四报告了每天90,928个新的COVID-19病例，自今年年初以来增加了近四倍，主要来自城市。卫生官员说奥米炕变体已经超过Delta。
+中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
 
-印度的联邦卫生部周三确定德里（Delhi）、孟买（Mumbai）、加尔各答（Kolkata）、钦奈（Chennai）和班加罗尔（Bengaluru）为一些主要关注地区，然而，州政府官员担心这种疾病将很快蔓延到卫生设施比较薄弱的农村。
+编辑整理：海贼王M.D.LUFFY；
 
-加尔各答是一个拥有约1,500万人口的城市，目前该州报告的感染率在印度是最高的之一。
+字幕文件制作：小满；
 
-西孟加拉邦卫生局局长说，尽管政府经营的传染病和别利亚加塔综合医院(Infectious Diseases and Beliaghata General Hospital)有超过9000个新病例，但周二只有75个入院记录。
+视频制作及上传：Cindy；
 
-在西部，孟买在周三录得新的日感染高峰，达到15,166人，远远高于去年创下的略高于11,000人的最高纪录。市政府官员在一份每日卫生公报中说，近90%的新患者没有表现出任何症状，只有8%的患者住院治疗。
+G-News发布：小满；
 
-周三，德里的COVID-19病例在一天内几乎翻了一番，达到10,665例，但该州说只有7%的COVID病床被占用。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-据报道，印度已经证实至少有2,135个奥米炕病例和一个与该变体有关的死亡病例，患者是一位患有糖尿病的老人。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-星期四，印度的COVID-19的每日死亡人数增加了325人，总数达到482,876人。感染总数为3511万，仅次于美国的统计数字。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-报道称，许多印度城市已经实施了夜间宵禁和周末封锁，以及关闭学校。然而，在未来几周和几个月内将举行选举的几个州，政治集会仍在继续。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-(秘翻新闻主编Grace编译报道）
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-发布:星星
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
