@@ -15,113 +15,113 @@
 
 ---
 
-### [金山股份年亏20亿，香港多只低价股集体闪崩](/content/gnews/1/README.md)
+### [【秘翻在线】郭先生直言盖特的过去，现在和将来](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [币圈新闻动态：喜币（HCN）价格目前在36.970 HDO](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：关于刘亚洲学司马懿](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共用病毒+疫苗绑架了世界，全球华人面临生存危机](/content/gnews/4/README.md)
+ ` 正道人`
+
+### [金山股份年亏20亿，香港多只低价股集体闪崩](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [冲绳县220名医护人员因被感染等原因离岗](/content/gnews/2/README.md)
+### [冲绳县220名医护人员因被感染等原因离岗](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共者之郭氏情报站（九）2022.01.01/2022.01.05](/content/gnews/3/README.md)
+### [灭共者之郭氏情报站（九）2022.01.01/2022.01.05](/content/gnews/7/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共红卫兵-杨贝贝](/content/gnews/4/README.md)
+### [中共红卫兵-杨贝贝](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共以商围政失效 经济迅速衰退](/content/gnews/5/README.md)
+### [中共以商围政失效 经济迅速衰退](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [有声|中共极端清零 河南禹州封城](/content/gnews/6/README.md)
+### [有声|中共极端清零 河南禹州封城](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [NFSC为真不破的如水的生命源泉与人生命的活力](/content/gnews/7/README.md)
+### [NFSC为真不破的如水的生命源泉与人生命的活力](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/8/README.md)
+### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [彭佩奥告诉纽约邮报他如何在6个月内减了90磅](/content/gnews/9/README.md)
+### [彭佩奥告诉纽约邮报他如何在6个月内减了90磅](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德约科维奇在与澳大利亚驱逐出境的斗争中陷入困境](/content/gnews/10/README.md)
+### [德约科维奇在与澳大利亚驱逐出境的斗争中陷入困境](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/11/README.md)
+### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/12/README.md)
+### [有声|墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [【中日财经爆】日本将迎来全面数字化转型](/content/gnews/13/README.md)
+### [【中日财经爆】日本将迎来全面数字化转型](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](/content/gnews/14/README.md)
+### [有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [【中日财经爆】7-11将台湾标示为独立国家 被中共罚款15万](/content/gnews/15/README.md)
+### [【中日财经爆】7-11将台湾标示为独立国家 被中共罚款15万](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共国房地产危机加速地方财政困境](/content/gnews/16/README.md)
+### [【中日财经爆】中共国房地产危机加速地方财政困境](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|捷克新政府将与台湾全面合作](/content/gnews/17/README.md)
+### [有声|捷克新政府将与台湾全面合作](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [文•贵天成——文贵先生谈“瑞银UBS”（六）](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：朝鲜政府宣布不参加北京奥运](/content/gnews/19/README.md)
+### [秘翻在线：朝鲜政府宣布不参加北京奥运](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 哈国动乱，中共栽赃美国](/content/gnews/20/README.md)
+### [视频| 哈国动乱，中共栽赃美国](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [视频| 共匪想统治世界的“黄粱美梦”](/content/gnews/21/README.md)
+### [视频| 共匪想统治世界的“黄粱美梦”](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|德国超过95%的奥密克戎感染病例是疫苗接种者](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [聚焦：中共疯狂护盘也枉然](/content/gnews/23/README.md)
+### [聚焦：中共疯狂护盘也枉然](/content/gnews/25/README.md)
  ` 丁过`
 
-### [2022.01.05文贵大直播：天人合力助拯救人类的新媒体盖特爆发性成长](/content/gnews/24/README.md)
+### [2022.01.05文贵大直播：天人合力助拯救人类的新媒体盖特爆发性成长](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [世卫给中共站台:北京冬奥会疫情零风险](/content/gnews/25/README.md)
+### [世卫给中共站台:北京冬奥会疫情零风险](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/26/README.md)
+### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [哈萨克斯坦因民众抗议关闭互联网，比特币暴跌](/content/gnews/27/README.md)
+### [哈萨克斯坦因民众抗议关闭互联网，比特币暴跌](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [朝鲜：因全球疫情原因将不参加2022北京冬奥会](/content/gnews/28/README.md)
+### [朝鲜：因全球疫情原因将不参加2022北京冬奥会](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [【中日财经爆】2021年全球粮食价格创10年高位 中共是危机元凶](/content/gnews/29/README.md)
+### [【中日财经爆】2021年全球粮食价格创10年高位 中共是危机元凶](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中国移动回归A股前途未卜](/content/gnews/30/README.md)
+### [【中日财经爆】中国移动回归A股前途未卜](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特拿下苹果应用商店排名第一](/content/gnews/31/README.md)
+### [盖特拿下苹果应用商店排名第一](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [德国反垄断机构出招 将可加强对谷歌监管](/content/gnews/32/README.md)
+### [德国反垄断机构出招 将可加强对谷歌监管](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [奥密克戎正在日本急速蔓延](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [自然的水与性与非文明的专治独裁社会泯灭人性](/content/gnews/34/README.md)
+### [自然的水与性与非文明的专治独裁社会泯灭人性](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [GTV新闻访谈简报|2022年1月6日晚](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2022年1月6日晚](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
-
-### [雅典娜时报-第165期](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [深圳报告两例中共病毒感染者](/content/gnews/37/README.md)
  ` 首尔天池农场`

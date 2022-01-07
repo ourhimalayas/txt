@@ -2,31 +2,18 @@
 ---
 
 
-## 有声|德国超过95%的奥密克戎感染病例是疫苗接种者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831405/)
+## 秘翻在线：朝鲜政府宣布不参加北京奥运
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831421/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
-据国家脉动12月31日报道，根据美国联邦政府的一份新报告，德国95%以上的奥密克戎中共病毒感染报告病例发生在完全接种疫苗的人身上。这份来自德国的新数据证明了疫苗的危害性。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-17.png)（图片源自本文链接）
+１月７日FNN要闻在线消息：朝鲜已经宣布不会参加北京冬奥会和残奥会。提出的理由是中共病毒（冠状病毒）在全球蔓延和 “敌对势力的阴谋”。
 
-这篇论文由德国机构罗伯特·科赫研究所于12月30日发表，其中包括4,206名感染该病毒最新变体的人的疫苗接种状况信息。研究中报告感染奥密克戎的4020人，相当于总病例的95.6%，已经接受了至少两剂中共病毒疫苗。在奥米炕阳性群体中，28%的人还接受了第三针或加强针。 在整个样本中，只有186名感染奥米炕的人没有接种疫苗，这表明接种疫苗的人感染中共病毒变体的可能性是21倍以上。《国家脉动》曾在12月14日宣布在世界范围内的中共病毒的状况实际就是“接种疫苗（产生）的大流行病”。 罗伯特·科赫研究所的报告还记录了近7000名奥米炕病毒检测呈阳性的人的症状，大多数人几乎没有经历任何不良反应。对于提供了有关症状的信息的6788个病例，大部分没有报告症状或症状轻微。124名患者住院治疗，4人死亡。
+信中顾及到到美国和其它国家的外交抵制，在谴责 “针对中共国的限恶阴谋”的基础上，表示将全力支持中共冬奥会的成功召开。
 
-原文链接:[德国超过95%的奥密克戎感染病例是疫苗接种者](https://gnews.org/zh-hans/1824159/)
+虽然国际奥林匹克委员会（IOC）已经暂停了没有参加东京奥运会的朝鲜的资格，但曾表示会考虑允许朝鲜以个人形式参加北京冬奥会和残奥会。
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+信息来源：[北朝鮮 北京五輪・パラ不参加 「敵対勢力の策動」とコロナが原因（フジテレビ系（FNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/bf1fcdfc4e12097b0e21c5ad95ff3d8e916f5108)
 
  
 

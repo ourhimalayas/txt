@@ -2,43 +2,24 @@
 ---
 
 
-## 哈萨克斯坦因民众抗议关闭互联网，比特币暴跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831294/)
+## 世卫给中共站台:北京冬奥会疫情零风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831322/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=Qf1wLhxPjzqjpM&amp;imgdii=HpjGcGf58WxPfM)
+北京冬奥将在2月4日开幕，但此时正值全球中共病毒Omicron变异株大流行，中共国河南和陕西两省的本土疫情也未见停歇。尽管如此，世界卫生组织还是替中共国挂保证，认为中共国针对北京冬奥的防疫计画看起来很强大。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/卡萨科斯坦.jpg)
+世卫紧急事件专案执行主任莱恩（Michael Ryan）表示，联合国卫生机构已与国际奥委会合作，针对北京冬奥赛事安全举办提出技术建议。
 
+莱恩说，中共当局的措施非常严格，并指出中共国提出了面对疫情的不同的脚本，世卫将与国际奥委会持续检视中共国所提出的各式防疫方案。
 
- 
-图片来源：www.reddit.com
+莱恩声称，北京为确保活动安全进行所准备的计划，看起来“相当强大”，因此世卫认为，举办冬奥并不会增加任何传播风险，强调世卫将持续监控疫情状况。
 
+消息来源：[完全没有风险？WHO又替中国吹捧：北京冬奥防疫计划看起来很强大](https://tw.news.yahoo.com/%E5%AE%8C%E5%85%A8%E6%B2%92%E6%9C%89%E9%A2%A8%E9%9A%AA-who%E5%8F%88%E6%9B%BF%E4%B8%AD%E5%9C%8B%E5%90%B9%E6%8D%A7-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E9%98%B2%E7%96%AB%E8%A8%88%E5%8A%83%E7%9C%8B%E8%B5%B7%E4%BE%86%E5%BE%88%E5%BC%B7%E5%A4%A7-013549378.html)
 
-#### 编译：小红帽
-
-根据《RT新闻》1月6日报道，**随着世界第二大挖矿中心哈萨克斯坦的抗议活动继续，比特币出现了大幅下跌，那里的互联网被关闭，迫使当地矿工关闭他们的设备。**
-
-全球领先的加密货币（比特币）已跌至42,786美元，这标志着日跌幅接近8.5%，延续了前一天交易的跌幅。
-
-网络数据提供商NetBlocks报告称：“从2022年1月4日星期二晚上开始，哈萨克斯坦的互联网服务出现重大中断，并在星期三下午发展为全国范围的通信中断”。据报道，哈萨克斯坦的标准化网络连接率下降到2%。
-
-周日，在政府取消能源价格上限的决定生效后一天，哈萨克斯坦西部爆发了骚乱，液化石油气的成本增加了一倍。
-
-总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）解散了政府，承诺将恢复较低的燃料价格。然而，这一宣布没有什么效果，集会在这个前苏联国家的最大城市蔓延开来。据报道，**为了减少对汹涌的骚乱的报道，哈萨克斯坦当局切断了互联网。**
-
-比特币目前面临的其他不利因素包括美国美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并扩大了比特币的跌幅。
-
-新闻来源：[Bitcoin dives after Kazakhstan kills internet — RT Business News](https://www.rt.com/business/545291-bitcoin-dives-kazakhstan-mining-internet/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

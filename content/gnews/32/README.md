@@ -2,31 +2,24 @@
 ---
 
 
-## 德国反垄断机构出招 将可加强对谷歌监管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1831205/)
+## 【中日财经爆】中国移动回归A股前途未卜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831247/)
 
-![Google Must Face Suit Over Snooping on &#039;Incognito&#039; Browsing - Bloomberg](https://assets.bwbx.io/images/users/iqjWHBFdfxIU/iX2yeNQcUfAc/v0/1200x802.jpg)资料图
-据台湾中央广播电台1月5日报道，德国反垄断机关联邦卡特尔局5日将谷歌归类为“对各市场具有重要意义”的公司。该决定是德国竞争法修正案于2021年1月生效后的第一个决定，此举允许当局更早进行干预，打击任何潜在的反竞争活动，特别是针对大型科技公司。
+撰稿：东京樱花团｜华夏伊人
+![](https://lh3.googleusercontent.com/Z_ukE7pbw6G5ZjDJdnxEu4G7gES_UhQepWw6uWexm1ES3VTzB10byPoLRkYk5HpT6W87fyMVFkrKvMLkNhCSm7yPL3nyweFnQ-qVfEP8CXYvFgfa6StQmOcT4mNMxEva0w)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/183e07e1076c4a03683fa57415eb19a1.jpg/9yNYV7FlSOR_9KbpIKlI84yRglUsF6QkL-ll5C_pZeQ?v=w1920r16_9)
+2022年1月5日，中国移动有限公司正式登陆A股，发行价57.58元，开盘价63元，收盘价57.88元，比发行价微涨0.52%，如果没有近100万收大买单在57.58元点位强力护盘，上市首日破发是必然的结果。
 
-根据这项新法，德国当局在去年开始对亚马逊和脸书等美国科技巨头进行调查。该局也正在审查谷歌的新闻平台。不仅在德国，大型科技公司在全球许多国家都面临对其主导地位和税收作法的审查。
+中国移动本次募集资金预计接近560亿元，是A股近10年来最大规模的IPO项目。2021年12月22日，中国移动开始申购，根据公司披露的发行结果，网上投资者和网下投资者合计弃购金额达7.56亿元，刷新了A股最高弃购记录。
 
-大型科技公司控制了媒体，就控制了话语权，甚至比政府的权力还要大。没有监管的这些科技巨头可以轻而易举地控制舆论导向，权力大到可以超越某些法律权限。需要监管。
+大规模弃购和上市首日逼近破发表明了投资者对中国移动的态度。虽然为了保护上市后30个自然日内的股价，中国移动引入“绿鞋机制”，即如果股票出现破发，动用超额配售股票募集资金买入股票，如果股价出现大幅上涨，可以增发15%股份给此前申购的投资者。
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2121362](https://cn.rti.org.tw/news/view/id/2121362)
+此举属权宜之计，此前中国电信“绿鞋机制”到期后两日便破发了。所以，中国移动的破发也是早晚的事。
 
-编辑：胖丁
+新闻来源：[**中国移动上市次日逼近破发 “绿鞋机制”或已启动**](http://finance.eastmoney.com/a/202201062238474481.html)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
