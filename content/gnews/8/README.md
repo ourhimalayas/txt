@@ -2,20 +2,30 @@
 ---
 
 
-## 郭文贵先生揭露中共灭亡前苦民、弱民真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831942/)
+## 音乐让我们夺回尊严和自信
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831943/)
 
-撰稿：银河勇气星—骄子
+撰稿人：纽约香草山教育部 Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月5日，郭文贵先生在大直播中揭露中共苦民、弱民的政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-14.png)
-郭先生表示，中共国的房地产捆绑着中国人未来58年的人生。中共深知，控制房地产，就是控制中国人的未来。根据郭先生的情报 ，习近平已在党内做出指示，确保35%的社会就业红线；中共已做好1-1.5亿国民死亡的准备；中共已经储备一年半的粮食，随着人口的减少，和供应数量的逐步减少，粮食供应预计将维持2年。为掌握数字货币未来的话语权，中共打着共享财富的幌子，发行数字人民币，还将推广到台湾、菲律宾、哈萨克斯坦等国家和地区，掠夺财富。
+针对“我是音雄”大型音乐灭共节目，郭文贵先生在1月5日大直播中提醒战友们关注以下核心问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-9.png)
+第一，如今GTV呈现出来的音乐效果，离不开无数战友的付出与贡献。
 
-在全球经济即将崩塌之际，中共口中的“共克时艰”，实际上是以牺牲人民的利益为代价，换来中共须臾的苟延残喘。
+第二，郭先生虽然不是专业歌手，但是依然可以成为世界摇滚歌星，这充分体现了，音乐的本质是歌唱个人，而不是集体。
+
+第三，“我是音雄”节目的制作与播出过程，是对人的耐心与爱的挑战，影响着每个人的人生。
+
+第四，音乐灭共，让中国人自信地面对自己。被共产党夺走的尊严和歌唱的本能，我们有信心夺回。
+
+第五，因为害怕人民反抗地声音，共产党垄断唱歌和发行的权力。而我们的歌声，就是消灭邪魔恶党的力量。
+
+第六， “我是音雄”节目虽然结束了，但我们要记住，在“我是音雄”和大直播中，一起走过的伟大征程。
+
+郭先生还强调，音乐是没有国界、语言之分，爆料革命的歌曲，每时每刻都在影响着中国人在世界上的安全。
 
 
 
-新闻来源：https://gtv.org/video/id=61d59a1931a71619b57520a4
+链接：https://gtv.org/video/id=61d59a1931a71619b57520a4
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
@@ -26,11 +36,11 @@
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
