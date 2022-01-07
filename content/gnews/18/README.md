@@ -2,22 +2,34 @@
 ---
 
 
-## 【中日财经爆】日本将迎来全面数字化转型
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831446/)
+## 有声|中共极端清零 河南禹州封城
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831495/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh3.googleusercontent.com/pfzo75TeRitm-FQRLiq877HJAlkZznLvK4Tm75-YSJLklyW602YmooBh18JVm-PF6oArGx6JJexOu8rSh8H3Fp_vnkfOKOotMiDaHIlaPFTb426aMas20hSCIIy-QN7WK5KgJT8R)[*图片来源*](https://toyokeizai.net/articles/-/378961?display=b)
-2022年1月6日，日本政府宣布制定“全面数字化蓝图”政策，推动日本的整体数字化转型。以期在2030年左右，实现数字化基础设施与能源、交通、物流基础设施的融合发展。
+配音：香草山教育部 – Rose
 
-经济产业省在同日举行的产业结构审议会上宣布了制定数字化发展蓝图的政策，旨在用数字技术振兴地方经济，并希望以此为跳板，促进政府及企业对数字化领域的投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-根据蓝图规划，从2025年开始，预计除了在各地区扩展DC和云服务外，还将包括实现“后5G”的全面应用。 2030年左右将推动“量子计算”的实施。这是一项专门解决复杂计算问题的技术。同时还将考虑在各地区扩大可再生能源的使用。
+台媒1月4日消息报道称，人口数超过100万的禹州市(位于中共国河南省中部)，虽然只出现了3例无症状中共病毒感染者，但该市居民均被下令被迫留在家中。这是近期中共实施大规模封城的最新案例。
 
-信息来源：[**デジタルで日本改造 政府がロードマップ策定を表明**](https://news.yahoo.co.jp/articles/e4f60ac7e01a157301fae64d448a91d32fbeeea8)
+自中共病毒疫情爆发以来，北京当局追求极端“清零”政策，实施严格边境管制，以及目标性的封城措施。如果未能遏制疫情，中共地方官员通常会面临开除或者惩处的命运。在近期接连爆发本土案例，以及冬奥会即将开始的情况下，中共的该项政策正面临越来越大的压力。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+原文链接:[中共极端清零 河南禹州封城](https://gnews.org/zh-hans/1824749/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

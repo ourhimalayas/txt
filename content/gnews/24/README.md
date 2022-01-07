@@ -2,80 +2,31 @@
 ---
 
 
-## 视频| 哈国动乱，中共栽赃美国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831409/)
+## 有声|墙内网络管控进一步收紧 微信再出审核新规
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831454/)
 
-## 摘自2022.1.5郭先生大直播
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
 
-制作：香草山视频部
+据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
 
+原文链接:[墙内网络管控进一步收紧 微信再出审核新规](https://gnews.org/zh-hans/1825376/)
 
+音频处理：喜山必胜Maverick
 
-据说是在几个小时前，
+发稿：Daxia
 
-总统家人答应要分三到四次把黄金还回去，要还回。
-
-软了，已经软了，服软了。
-
-要求中国和俄罗斯支持，
-
-听说这次俄罗斯站在了习的这一边。
-
-这小国家不经打，一煽动。
-
-现在给出的建议是，
-
-把这次内乱归为美国人的CIA的挑拨离间，
-
-很快，这是美国人挑拨离间，
-
-又推给美国人了，又甩锅了。
-
-中国人最奇怪的事情，
-
-美国人从来没有侵略过我们中国，
-
-结果是美国人一直被共产党宣称为亡我之心不死，
-
-而且我们的中国人是被苏联和今天的俄罗斯侵占，
-
-杀那么多人，
-
-结果是比亲爹还好。
-
-你去想想这是个多变态的国家，
-
-现在又甩给美国去了，
-
-这是美帝国主义，
-
-一切推给美帝国主义。
-
-就是刚才我在中间出去一次，
-
-咱已经得到这个答案了。
-
-七哥就这么牛，啊，就这么牛，
-
-咱知道它一切。
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

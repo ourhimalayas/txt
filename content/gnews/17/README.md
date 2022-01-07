@@ -2,30 +2,52 @@
 ---
 
 
-## 有声|墙内网络管控进一步收紧 微信再出审核新规
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831454/)
+## 中共以商围政失效 经济迅速衰退
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1831503/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
+作者：东京樱花团—在远方
 
-据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
+![](https://cdn.discordapp.com/attachments/918667117514063893/920753954617450526/s2.jpg)
 
-原文链接:[墙内网络管控进一步收紧 微信再出审核新规](https://gnews.org/zh-hans/1825376/)
 
-音频处理：喜山必胜Maverick
 
-发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+当地时间1月4日，据台湾媒体报道，摩根-斯坦利全球策略师鲁奇尔-夏尔马表示，2022年全球值得关注的经济趋势将包括中共国由于生育率持续降低、债务增加，以及政府突袭式监管政策所导致的经济严重衰退和市场光环褪色等问题。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/phpBMJGmX.jpg)图片来源：美联社
+
+夏尔马表示，中共闭关锁国的贸易战略形同与世界其他经济体脱钩。此外，全球债务目前已经持续四年走高，尤其在中共病毒疫情流行期间，这些债务增长得更为迅速。对于中共国而言，其国家债务总额更是已经超过了本国GDP的300%。
+
+夏尔马表还提到，包括中共在内的各国政府而今加大法币印刷量，这将使金融市场继续膨胀并加深债务陷阱。 而中共国在政府监管下的市场早已达到崩塌边缘，其劳动力降低、高通胀和资产泡沫破裂的问题也值得投资人留意。
+
+**新闻链接：**
+
+[**大摩：中國已非世界經濟引擎 以商圍政沒用了 – 自由財經 (ltn.com.tw)**](https://ec.ltn.com.tw/article/breakingnews/3788680)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+
+**编辑：Kathy文艺
+校对/发稿：小鹿**
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://cdn.discordapp.com/attachments/918667117514063893/920753954617450526/s2.jpg)
+
+
+
 
 
  

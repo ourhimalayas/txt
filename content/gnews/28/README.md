@@ -2,23 +2,25 @@
 ---
 
 
-## 世卫给中共站台:北京冬奥会疫情零风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831322/)
+## 【中日财经爆】中共国房地产危机加速地方财政困境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831437/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=Qf1wLhxPjzqjpM&amp;imgdii=HpjGcGf58WxPfM)
-北京冬奥将在2月4日开幕，但此时正值全球中共病毒Omicron变异株大流行，中共国河南和陕西两省的本土疫情也未见停歇。尽管如此，世界卫生组织还是替中共国挂保证，认为中共国针对北京冬奥的防疫计画看起来很强大。
+整理编辑：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/fUP9k4ljA7HivHQPZJd_3u7HwF6demdXUtLZPtVOJ2_LHI4zi9aOKdjdLz8iqeNys2cPic1-FFklqIt2WzKoIpH7WDYcv_E4J0KPqFNc8jvhpo2swVmZ7nhHpmlpwGO4YQ)[*图片来源*](https://i.ntdtv.com/assets/uploads/2021/10/GettyImages-1343647440-3.jpg)
+中共国房地产巨头恒大因债务危机状况不断，已冲击到高度倚赖土地财政的中共国地方政府。英国《快报》（Express）报导，土地销售收入约占地方政府收入的40%左右，中共国地方政府面对此一主要收入来源枯竭，拿不出什么好办法。
 
-世卫紧急事件专案执行主任莱恩（Michael Ryan）表示，联合国卫生机构已与国际奥委会合作，针对北京冬奥赛事安全举办提出技术建议。
+报导指出，房地产行业的困境直接冲击到地方政府的财政。湖南省邵阳市的地方官员一直在拍卖恒大项目以筹集资金，当地一名官员指出：“政府和恒大都没有钱……需要其他人来填补这个真空。”问题是房地产公司也没有现金可以竞标，所以很多拍卖都失败收场。
 
-莱恩说，中共当局的措施非常严格，并指出中共国提出了面对疫情的不同的脚本，世卫将与国际奥委会持续检视中共国所提出的各式防疫方案。
+房地产占中共国GDP的比重高达30%，房地产业资金枯竭，对中共国而言后果非常严重。目前除了恒大之外，许多其他地产公司也面临极大的压力。
 
-莱恩声称，北京为确保活动安全进行所准备的计划，看起来“相当强大”，因此世卫认为，举办冬奥并不会增加任何传播风险，强调世卫将持续监控疫情状况。
+恒大面对财务危机，打出高达20%的折扣来推动销售，这也迫使其他开发商降价求售，以保持竞争力。
 
-消息来源：[完全没有风险？WHO又替中国吹捧：北京冬奥防疫计划看起来很强大](https://tw.news.yahoo.com/%E5%AE%8C%E5%85%A8%E6%B2%92%E6%9C%89%E9%A2%A8%E9%9A%AA-who%E5%8F%88%E6%9B%BF%E4%B8%AD%E5%9C%8B%E5%90%B9%E6%8D%A7-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E9%98%B2%E7%96%AB%E8%A8%88%E5%8A%83%E7%9C%8B%E8%B5%B7%E4%BE%86%E5%BE%88%E5%BC%B7%E5%A4%A7-013549378.html)
+房价崩跌，已经使得中共国某些原本债台高筑的城市财政摇摇欲坠。中国东北城市黑龙江鹤岗市已经在2019年、2020年连续2年，无力偿付到期的政府债务本金与利息，接下来的问题会更加严重。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
+信息来源：[**没钱了！房地产危机加剧中国地方政府财政困窘**](https://tw.news.yahoo.com/%E6%B2%92%E9%8C%A2%E4%BA%86-%E6%88%BF%E5%9C%B0%E7%94%A2%E5%8D%B1%E6%A9%9F%E5%8A%A0%E5%8A%87-%E4%B8%AD%E5%9C%8B%E5%9C%B0%E6%96%B9%E6%94%BF%E5%BA%9C%E8%B2%A1%E6%94%BF%E5%9B%B0%E7%AA%98-233349274.html)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

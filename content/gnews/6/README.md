@@ -2,32 +2,25 @@
 ---
 
 
-## 金山股份年亏20亿，香港多只低价股集体闪崩
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1831563/)
+## 美联邦法院阻止对海豹突击队员的惩罚
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831674/)
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0106%2F348c4705j00r59yih001zc000ex00cqg.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)图片来自网易
-据第一财经资讯1月6日报道，市值50亿元的金山股份5日发布公告，因煤价大涨导致成本倒挂，预计2021年亏损最高超过20亿元。
+采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
 
-据风口财经1月6日报道，港股6日多只低价股集体闪崩。这些股涉及不同行业，只有一个共同特点：都是低价股。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-2-edited.png)图片来源：TNH
 
-新加坡拆迁服务供应商BENG SOON MACH盘中闪崩，一度下跌超96%。截至发稿，BENG SOON MACH跌93.05%。建材公司华盛国际控股，早盘跌超95%后停牌。汉思能源现跌78.76%。首沣控股最大跌幅一度超75%，截至发稿，首沣控股跌54.37%。另外，创业板的两只低价股分别为首都金融控股跌92.17%，兴铭控股跌幅达37.27%。
 
-新闻参考链接：1:[https://c.m.163.com/news/a/GT1OVRN00519DDQ2.html?spss=newsapp](https://c.m.163.com/news/a/GT1OVRN00519DDQ2.html?spss=newsapp)
+据美国自媒体[TS]1月4日报道，德克萨斯州地区联邦法院日前颁发临时禁令，阻止国防部惩罚那些试图寻求“宗教豁免接种疫苗”的特种军人。
 
-链接2: [https://c.m.163.com/news/a/GT1MSFH30552R654.html?spss=newsapp](https://c.m.163.com/news/a/GT1MSFH30552R654.html?spss=newsapp)
+据悉，由于拒绝接种“新冠病毒”疫苗和避免因此面临的军事法庭审判以及被强制退伍的威胁，美国海军数十名海豹突击队员及其他特种作战兵，于去年11月份向国防部申请“疫苗接种宗教豁免”的要求被拒绝后，向德州地区联邦法院提起对拜登政府和国防部的诉讼。
 
-编辑：胖丁
+联邦法官针对此案认为：海军军人是在捍卫他们所保护的，并为此付出巨大牺牲的自由，而疫情并非政府剥夺这些军人基本权利的借口。同时，军人的基本人权同样受美国宪法保护，况且其第一修正案并无因疫苗接种状况而可例外的条款。
+
+报道称，这些特种兵的代理律师对此表示，当局强迫为国服务的军人在“坚持自己的信仰和服从上级命令”之间做选择的举动是非法而且可耻的。而该联邦法院令则保护了这些勇敢的战士，并避免了国家安全受到更多的侵害。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+原文链接：[https://www.toddstarnes.com/politics/federal-court-stops-biden-punishing-navy-seals/](https://www.toddstarnes.com/politics/federal-court-stops-biden-punishing-navy-seals/)
 
  
 
