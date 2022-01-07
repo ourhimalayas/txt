@@ -2,42 +2,31 @@
 ---
 
 
-## 哈萨克斯坦因民众抗议关闭互联网，比特币暴跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831294/)
+## 有声|德国超过95%的奥密克戎感染病例是疫苗接种者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831405/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-2.png)
+据国家脉动12月31日报道，根据美国联邦政府的一份新报告，德国95%以上的奥密克戎中共病毒感染报告病例发生在完全接种疫苗的人身上。这份来自德国的新数据证明了疫苗的危害性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/卡萨科斯坦.jpg)
+这篇论文由德国机构罗伯特·科赫研究所于12月30日发表，其中包括4,206名感染该病毒最新变体的人的疫苗接种状况信息。研究中报告感染奥密克戎的4020人，相当于总病例的95.6%，已经接受了至少两剂中共病毒疫苗。在奥米炕阳性群体中，28%的人还接受了第三针或加强针。 在整个样本中，只有186名感染奥米炕的人没有接种疫苗，这表明接种疫苗的人感染中共病毒变体的可能性是21倍以上。《国家脉动》曾在12月14日宣布在世界范围内的中共病毒的状况实际就是“接种疫苗（产生）的大流行病”。 罗伯特·科赫研究所的报告还记录了近7000名奥米炕病毒检测呈阳性的人的症状，大多数人几乎没有经历任何不良反应。对于提供了有关症状的信息的6788个病例，大部分没有报告症状或症状轻微。124名患者住院治疗，4人死亡。
 
+原文链接:[德国超过95%的奥密克戎感染病例是疫苗接种者](https://gnews.org/zh-hans/1824159/)
 
- 
-图片来源：www.reddit.com
+音频处理：喜山必胜Maverick
 
+发稿：Daxia
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-根据《RT新闻》1月6日报道，**随着世界第二大挖矿中心哈萨克斯坦的抗议活动继续，比特币出现了大幅下跌，那里的互联网被关闭，迫使当地矿工关闭他们的设备。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-全球领先的加密货币（比特币）已跌至42,786美元，这标志着日跌幅接近8.5%，延续了前一天交易的跌幅。
-
-网络数据提供商NetBlocks报告称：“从2022年1月4日星期二晚上开始，哈萨克斯坦的互联网服务出现重大中断，并在星期三下午发展为全国范围的通信中断”。据报道，哈萨克斯坦的标准化网络连接率下降到2%。
-
-周日，在政府取消能源价格上限的决定生效后一天，哈萨克斯坦西部爆发了骚乱，液化石油气的成本增加了一倍。
-
-总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）解散了政府，承诺将恢复较低的燃料价格。然而，这一宣布没有什么效果，集会在这个前苏联国家的最大城市蔓延开来。据报道，**为了减少对汹涌的骚乱的报道，哈萨克斯坦当局切断了互联网。**
-
-比特币目前面临的其他不利因素包括美国美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并扩大了比特币的跌幅。
-
-新闻来源：[Bitcoin dives after Kazakhstan kills internet — RT Business News](https://www.rt.com/business/545291-bitcoin-dives-kazakhstan-mining-internet/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

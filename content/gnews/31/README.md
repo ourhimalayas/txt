@@ -2,10 +2,22 @@
 ---
 
 
-## 1/06/2022 文贵第三次准确地说出陈全国的仕途升迁
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1831051/)
+## 雅典娜时报-第165期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831138/)
 
-秘密翻译组-北美组
+#### **《雅典娜时报》汇聚全球新闻时事**
+
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/927715910427492382/928837730971029504/155_1.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/927715910427492382/928837731277234206/155_2.png?width=910&amp;height=1355)
+***发布：****陶子*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
