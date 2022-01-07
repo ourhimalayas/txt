@@ -2,62 +2,87 @@
 ---
 
 
-## 商业飞行员说同事在接种后“像苍蝇一样倒下，胸口剧痛”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834071/)
+## GETTR、GTV是唯一能拯救中国人的平台
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jet-Airplane-Cockpit-Pilots.jpg)图片来源：naturalnews.com（Posted by Ethan Huff）
+**郭文贵
+Miles Guo**
 
-自然新闻 – 美国飞行员格雷格·皮尔森（Greg Pearson）正在谈论Covid疫苗注射后的疾病浪潮，他说这种疾病正在整个航空业迅速蔓延。
+Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
+For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
 
-在最近接受“真正的美国之声”采访时，皮尔森透露，他的许多飞行员同事都“像苍蝇一样倒下”，都称严重的胸痛。
+她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
+She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
 
-皮尔逊本人实际上在Covid-19“接种疫苗”后不久，就不得不被送往医院，因为注射导致他出现了严重的心脏问题。
+媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
+The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
 
-“我去了急诊室，在那里他们迅速将我连接到心电图静脉输液器，迅速进行了血液检查，**并确定我患有心房颤动**，”皮尔森在节目中说道。 “**这是中风的主要原因**。”
+来黑我们新中国联邦，而且处心积虑，你们竟然不传播
+come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
 
-“当我试图降落飞机时，我本可以在 100 英尺的地方划过。我本可以在我旁边的人做任何事情之前按下那根棍子，而对很多人来说，一切都结束了。”
+一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
+It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
 
-皮尔森说，许多其他飞行员和他一样正在经历和观察了同样的事情，**但不敢说出来**。**他们不想冒被解雇的风险**，**甚至不想因为说真话而遭到报复，而毁掉他们的整个职业生涯**。
+你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
+What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
 
-“有很多飞行员害怕站出来说话……他们害怕报复。有些人会忍着胸部和头部的剧痛而工作，因为他们害怕会失去职业生涯。”
+烧你家房子，烧你100次，不是烧你一次
+Burn your house 100 times, not burn you once
 
-拜登正在用他的疫苗命令摧毁航空业
+你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
+Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
 
-**假“总统”乔·拜登对所有这些屠杀负有主要责任**，**航空公司首席执行官和高管对飞行员和其他飞机工作人员实施种族灭绝。**
+千羽你在加拿大, 你走到大街上是人人喊打的人
+Qianyu, you are in Canada, you are the one who was shouts and beats on the street
 
-如果不是为了保住工作而被迫注射，这些现在受苦的飞行员中的许多人，一开始就不会接受注射。现在他们中的许多人都病得很重，他们不确定该怎么做，甚或他们是否可以尝试寻求任何追索或补救措施。
+娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
+Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
 
-顺便说一下，皮尔森对“真实美国之声”的完整采访可以在 Gab 上找到。
+我不跟你开玩笑正义小Sarah
+I’m not kidding you justice little Sarah
 
-如果皮尔森所说的是真的，那么飞行似乎不再安全。根本不知道那些完全接种疫苗的飞行员随机会开始发病发作，这可能会给飞机上的每个人带来灾难。
+Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
+Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
 
-《新闻冲击》（Newspunch）的一位评论者写道：“所有这些都只是为了一种新版本的普通感冒而大惊小怪。”“**我们的领导人一如既往地做坏事**。”
+这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
+Isobel Yeung this guy is very evil, you see William still laughing, William
 
-另一位网友写道：“很多年前，我母亲去世了，我失业了，过得很悲惨。”“那时百忧解刚出来，我认为从医生那里得到一些是个好主意。是时候更新我的商业 FAA 医疗（1）了，但是他们拒绝了我的体检，于是我放下了服用百忧解的决定。”
+就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
+just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
 
-(注释1，FAA医疗：行使航空运输飞行员 (ATP) 特权的飞行员需要一流的医疗； 也就是说，那些飞行定期班机和其他飞行员的雇主需要这种级别的认证。 对于40岁以下的飞行员，头等医疗对于 ATP 特权的有效期为12个月。)
+一定想到盖特是拯救中国人的平台
+You must think about that Gettr is a platform to save the Chinese people
 
-“现在他们却强制要求飞行员注射一种实验性药物，而不必担心，真是难以置信。”
+一定想到G-TV是唯一能拯救中国人的平台
+Must think that G-TV is the only platform that can save the Chinese people
 
-另一个建议飞行员的心房颤动，那可能是电信号的结果。
+他比任何经济价值都重要
+It is beyond any economic value
 
-“有些事情导致‘电压’失控，”这位人士补充道。“**我相信他们可以远程完成**。从长远看，尤其是现在有了 5G。”
-
-另一个人写道，**这只是恐怖的开始**，灾难很快就会降临到其他被注射了疫苗的人身上。
-
-“他们不仅不希望你快乐，”另一位写道。“他们还要你死。”
-
-参考资料：[naturalnews][Commercial pilot says his colleagues are “dropping like flies with crushing chest pains” following covid vaccinations](https://www.naturalnews.com/2022-01-06-pilot-dropping-flies-crushing-chest-pains-vaccines.html)
+你看明白了吗？兄弟姐妹们
+Do you see it? Brothers and sisters
 
 * * *
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+Date: 01/06/2022
+原视频标题: GETTR、GTV是唯一能拯救中国人的平台
+GETTR and GTV are the only platform that can save the Chinese people
+原视频日期：2022/01/05
+原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
+任务编号：3429
+视频时间段 : 0:00-1:34
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

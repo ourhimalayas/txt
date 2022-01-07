@@ -2,28 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1833854/)
+## 加拿大博彩业的未来展望—在线博彩业
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1833887/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+今年8月27日C218刑法修正案，它对体育博彩有一个比较大的松绑。体育博彩有一个合法化，就像我们赌球或者体育相关的赌博，比如说下注猛龙队对湖人队的比分，或买谁赢。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-5.png)
-文章仅代表作者本人观点，与Gnews无关
+在合法化之后就会有一个松绑，例如印第安部落在线的牌照就可以有很多种新的玩法，同时也能增加省政府的一个税收，这个跟区块链货币、在线赌博业是息息相关的。
 
-视频参看：[2022.01.07早GTV新闻访谈](https://gtv.org/video/id=61d83fc4f2fe0449ea19a537)
+我们都知道因为新冠病毒之后，大部分赌场的很多业务被疫情限制，很多人不去实体赌场赌博，那么就会进入一个在线赌博业增长的黄金时期，在线赌博业同时会产生一个跟它匹配的区块链货币的东西。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这也正说明了法律法规是与时俱进的，有相关的法律法规来维护，能避免经济上的纠纷，政府也会把一些税收放到台面上，税收范围更大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+因此赌博行业将会被新的时代影响，像人们的生活方式一样迎来大的改变，改变就意味着机会。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+直播/节目链接：
+
+[第三十七期 法律你我她 – 博彩行业及相关法律](https://gtv.org/video/id=61be79697882000d51040aea)
+
+编辑/发文：蓝枫法律栏目
 
  
 

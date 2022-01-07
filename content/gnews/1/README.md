@@ -2,193 +2,54 @@
 ---
 
 
-## 2021年、2022年是人类命运的分水岭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
+## 哈萨克斯坦关闭网络，比特币暴跌
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1834122/)
 
-[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/61d6af062030277daf1db609-1.jpg)
+前苏联共和国哈萨克斯坦是世界第二大挖矿中心，因全国范围内的反政府抗议活动，正面临重大的网络中断问题。
 
-我觉得爆料革命和新中国联邦
-Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
+由于世界第二大挖矿中心哈萨克斯坦的抗议活动仍在继续，比特币出现了大幅下跌，因为那里的网络被关闭，迫使当地虚拟币矿工关闭他们的设备。
 
-包括人类的命运
-Incluyendo el destino de la humanidad
+全球领先的加密货币已跌至42786美元，这标志着日下跌近8.5%，延续上一交易日录得的损失。
 
-我觉得2021年、2022年是人类的分水岭
-Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
+跌幅发生在网络数据提供商NetBlocks的报告，“从2022年1月4日星期二晚上开始，哈萨克斯坦的网络出现重大中断，并在星期三下午发展到全国范围的通信中断”。据报道，哈萨克斯坦的正常化网络连接率下降到2%。
 
-今天我说了你们就不觉得惊讶了
-Hoy no se sienten asombrados si les digo esto
+周日，在政府取消能源价格上限的决定生效后一天，导致液化石油气的成本增加了一倍，随后哈萨克斯坦西部爆发了动乱。
 
-如果一年前我说你们(会)觉得我神经病
-Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
+卡西姆·约玛特·托卡耶夫（Kassym-Jomart Tokayev）总统解散了政府，并承诺将恢复低的燃料价格。然而，这一宣布没有什么效果，反而抗议游行在这个前苏联国家的最大城市蔓延开来。据报道，为了减少对汹涌的动乱的报道，哈萨克斯坦当局切断了网络。
 
-是不是, 夸张、吹牛
-Cierto, exagerado, presumido
+比特币目前面临的其他不利因素包括美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并延续了比特币的损失。
 
-我从来没想试图说服过任何人
-Yo nunca he pensado de persuadir a nadie
+**简评：**
 
-包括你七嫂
-Incluyendo a mi esposa
+据新中国联邦郭文贵先生的大直播中说到，哈萨克斯坦动乱，是王毅到哈萨克斯坦要回100吨黄金，被哈国总统骂走，王毅刚走，哈国就动乱了。可以看出，哈政府取消能源价格上限的决定，只是动乱的一个引子。
 
-包括我家人, 我从来没有过
-Incluyendo a mi familia, nunca lo he pensado
+中共策划的动乱，表面上都是开始于民众的和平抗议，期间从中做梗而使动乱升级。独裁政府的其中一个明显标志是，为了掩盖动乱的实况和真相流出而采取断网。断网后，网络连接率连基本的电话通讯都不能维持。由于比特币依赖大量网络计算能力，还有其不受政府和中央银行的监管，在任何大事件和变化，比如断网的情况都会引起其价值巨大波动。
 
-因为人的缘分不是你能说服得了的
-Porque la afinidad entre personas no puede ser persuadida
+中共不仅祸国殃民，其蓝金黄和革命输出，亦导致其他国家政局动荡，置无辜百姓于危机中。
 
-人和人之间的关系
-La relación entre las personas
+新闻链接：[Bitcoin dives after Kazakhstan kills internet](https://thepressunited.com/updates/bitcoin-dives-after-kazakhstan-kills-internet/)
 
-真的不是你用嘴(说)能达到的
-Realmente no se logra con la boca (diciendo)
+*翻译/简评: JS*
 
-真正的人与人的信任和感情
-La verdadera confianza y sentimiento entre las personas
-绝对不是嘴能说到的
-No se dice con la boca
-
-很多过去的欺民贼, 伪民运
-Muchos matones del pasado, movimiento de la pseudodemocracia
-
-他(们)不懂这个道理
-(Ellos) no entienden esta verdad
-
-就是人类这个灵性动物
-Es decir, los seres espirituales como los seres humanos
-
-他最终是一定要看行动的
-Él al final lo que ve es la acción
-
-最终就是以结果论
-Finalmente toma el consecuencialismo
-
-这就是动物和植物界的根本不同
-Esta es la diferencia del origen entre los animales y el mundo de las plantas
-
-那么我们在这个地球上
-Entonces, nosotros estamos en este planeta tierra
-
-我们大家面对着一个物质的世界
-Enfrentamos a un mundo material
-
-和一个我们完全无法想像的未知的星空
-Y un cielo estrellado desconocido que ni siquiera podemos imaginar
-
-银河系, 太阳系
-Vía Láctea, Sistema Solar
-
-无限大的宇宙和地球之间一粒沙的关系
-La relación entre un grano de arena del universo infinito y la tierra
-
-我们跟人之间相处的时候实际是最复杂的
-En realidad, lidiar con las personas es lo más complicado
-当今天我们看这个同心同框, 这么多战友的时候
-Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
-
-大家能看到有人说话多一点, 有人说话少一点
-Todos pueden ver que algunas personas hablan más, otros hablan menos
-
-有人激动一点, 有人水多一点(或)水少一点儿
-Algunos son más emocionados, otros con más agua o menos
-
-是不是
-Cierto o no
-
-分男女, 分老少, 分长短
-Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
-
-但是大家记住
-Pero todos recuerden
-
-我们心中最大的魔就是分高低
-El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
-
-而且这个高低是谁定的, 是你自己定的
-Además, quién decide esto, tú mismo
-
-都是我们每个人自己的标准去量所有的人去
-Utilizamos nuestros propios estándares para medir a los demás
-
-这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
-En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
-
-我们今天讲了那么多
-Hoy hablamos tantas cosas
-
-我们没讲金, 没讲土
-Pero no mencionamos el oro y la tierra
-
-但是我们的新中国联邦的旗是什么旗
-Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
-
-我们的蓝色就是蓝色海洋和星空
-Nuestro color azul significa el mar y el cielo estrellado
-
-你知道在中(共)国是不用蓝的
-Sabías que en República Popular de China no se utiliza el azul
-
-中国人什么时候用蓝你知道吗
-¿Sabes cuándo los chinos usan el azul?
-
-头两天你七嫂憋了一年都没说
-En los primeros dos días, mi esposa aguantó durante un año sin decirlo
-
-你七嫂给我留面子
-Era para que no pasara pena
-
-我知道你七嫂要说什么
-Yo sé lo que ella quería decir
-
-就是说那个蓝色的时候
-Hablando lo del color azul
-
-你七嫂说, 哎呀
-Ella dijo, ay
-
-她说在咱老家咱娘说, 这叫什么
-En nuestra ciudad natal, nuestra madre dijo que esto se llama
-
-就是在我们山东老家, 人死了用那个蓝色
-En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
-
-就是那个蓝色是死亡蓝的意思
-Quiere decir que el color azul representa la muerte
-
-我特能懂, 我啥也没说
-Puedo entender totalmente esto, no dije nada
-因为你七嫂子她是山东人
-Porque mi esposa es de Shandong
-
-她是我的爱人, 跟我一起长大的
-Es mi amor y creció conmigo
-
-但是我就没法跟她解释
-Pero no puedo explicarle
-
-她未来会懂得
-Ella entenderá en el futuro
+*PR：感恩*
 
 * * *
 
-日期：01/06/2022
-原视频标题：2021年、2022年是人类命运的分水岭
-El año 2021 y 2022 son la línea divisoria de agua del destino humano
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
-任务编号：KC399（3406）
-视频时间段：00:00-02:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布: 洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
 
  
 

@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|盖特是最重要的社交媒体平台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833923/)
+## 开玩笑？ 德约科维奇拒绝透露疫苗接种状态被澳网禁赛
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833950/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月5日大直播，文贵先生再次向战友们剖析盖特的重要之处。
+编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/769d-f62683934e35eb6b39d32d600d72d87d.jpg)图片来源：sports.sina.cn
+又一位全明星运动员因疫苗（或没有接种疫苗）而受到打击。
 
-第一，盖特是传播疫苗灾难的救命媒体。第二，盖特不出卖用户数据，改变了社交媒体平台出卖用户数据收益的现状。最重要的是：它打破了法币和数字货币屏障，开创了媒体成为个体间沟通的桥梁。盖特和GTV，未来的价值，绝对是金钱无法衡量的，他们是改变游戏规则的社交媒体平台。
+据《纽约邮报》报道，诺瓦克·德约科维奇（Novak Djokovic）可能在抵达澳大利亚参加澳大利亚公开赛仅一天后，就必须离开澳大利亚。
 
-今天盖特的数据，活跃用户占96%，与之相比，FB,推特上是垃圾信息泛滥。可想而知，盖特的传播力量有多大。在盖特上，我被评为共产党的噩梦，你看多少欧美人在下面表达感激。这就是盖特的力量，媒体传播的力量。
+“周三，边境官员在墨尔本机场拘留了这位顶级男子球员八小时。这位一再拒绝透露其疫苗状况的网球明星，获得了参加比赛的医疗豁免。尽管他计划挑战该国的裁决，但他的地位现在令人怀疑，”邮报报道。
 
-文字版原文：[盖特是最重要的社交媒体平台](https://gnews.org/zh-hans/1831178/)
+“德约科维奇先生的签证已被取消，”澳大利亚总理斯科特·莫里森周三在推特上写道。 “规则就是规则，尤其是涉及到我们的边界时。没有人可以超越这些规则。我们强有力的边境政策，对于澳大利亚是世界上 COVID 死亡率最低的国家之一至关重要，我们将继续保持警惕。” 德约科维奇已经 9 次赢得澳网冠军——包括过去 3 年。但据德约科维奇的父亲 Srdjan说，他目前被警察看守，并被关押在机场的“一个没有人可以进入的房间里”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-11-1.png)图片来自原文
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+(评论：澳大利亚已经成了仅次于中共的“疫苗”独裁政权，莫里森冠冕堂皇谈什么“规则就是规则”，却不谈规则的法律依据在哪里？规则的科学依据是什么？就是“疫苗”吧，莫里森连病毒起源都不知道，那么针对病毒的疫苗怎么出来的？莫里森不仅对澳洲人民实施极权，还向世界证明他的极权淫威！)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考资料：[hannity][YOU’RE DJOKING, RIGHT? Djokovic Banned from Australian Open, Refuses to Disclose Vax Status](https://hannity.com/media-room/youre-djoking-right-djokovic-banned-from-australian-open-refuses-to-disclose-vax-status/)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
