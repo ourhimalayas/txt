@@ -2,87 +2,72 @@
 ---
 
 
-## GETTR、GTV是唯一能拯救中国人的平台
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
+## Covid疫苗接种后可能失去人寿保险
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834179/)
 
-[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
+翻译：Jenny Ball
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-13-1.png)图片来源：3g.163.com
 
-Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
-For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
+自然新闻 – Covid-19疫苗“接种”可能意味着失去人寿保险。
 
-她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
-She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
+据报道，许多在川普的“神速行动”（Operation Warp Speed）计划中接受实验性基因治疗的人，现在意识到，他们的死亡抚恤金已经作废。
 
-媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
-The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
+显然，人寿保险业认为紧急使用授权注射是一种“实验性医疗干预”——这正是它们的本质。因此，他们没有资格获得支付。
 
-来黑我们新中国联邦，而且处心积虑，你们竟然不传播
-come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
+（**点评：˙政府为了保护大药企，竟然与大药企签订了“霸王”合同，使大药企免责！政府通过福奇用纳税人的钱供大药企开发“疫苗”，政府还强制全面为大药企当白老鼠，政府还免去大药企造成的责任，包括造成的死亡。如果写成小说一定没人信会有这样的政府，然而这却是现实！）**
 
-一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
-It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
+在许多情况下，只涵盖经过正常测试和审查过程的疫苗。相反，川普急于上市的注资不包括在内。
 
-你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
-What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
+报告指出：“如果您目前的冠状病毒检测呈阳性，并需要提供医学证据，一些保险公司会推迟申请，但这并不意味着您将来不能再次申请。”
 
-烧你家房子，烧你100次，不是烧你一次
-Burn your house 100 times, not burn you once
+一些保险公司仍在为被疫苗伤害的现有客户提供保险，而另一些保险公司则在“延迟”新客户的申请。
 
-你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
-Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
+人寿保险公司现在向潜在客户提出的问题包括：
 
-千羽你在加拿大, 你走到大街上是人人喊打的人
-Qianyu, you are in Canada, you are the one who was shouts and beats on the street
+• 您的冠状病毒检测呈阳性吗？
 
-娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
-Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
+• 您目前是否处于自我隔离状态？
 
-我不跟你开玩笑正义小Sarah
-I’m not kidding you justice little Sarah
+• 您有任何冠状病毒症状吗？
 
-Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
-Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
+• 您是否与任何确诊或疑似感染冠状病毒的人有直接接触？
 
-这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
-Isobel Yeung this guy is very evil, you see William still laughing, William
+“请注意，在最后一个问题中，它询问的是冠状病毒，而不仅仅是‘新型’冠状病毒，”《科学原理》（Principia Scientific）报告说。
 
-就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
-just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
+“这意味着，对任何冠状病毒检测呈‘阳性’的人，包括与普通感冒相关的病毒，都可能无法获得人寿保险。”
 
-一定想到盖特是拯救中国人的平台
-You must think about that Gettr is a platform to save the Chinese people
+对上述任何问题回答“是”，都可能导致申请人的决定被“推迟”，直到他或她“康复”。
 
-一定想到G-TV是唯一能拯救中国人的平台
-Must think that G-TV is the only platform that can save the Chinese people
+“不同保险公司的决定可能有所不同，”报告解释说。
 
-他比任何经济价值都重要
-It is beyond any economic value
+**Covid****“阳性”患者，可能会被拒绝承保，直到他们康复。**
 
-你看明白了吗？兄弟姐妹们
-Do you see it? Brothers and sisters
+那些只是简单地检测出病毒“阳性”，但不一定表现出症状的人，也可能被拒绝承保，至少在他们完全“康复”（即“阴性”检测）之前是这样。
+
+报告进一步解释说：“如果您目前的冠状病毒检测呈阳性，并需要提供医学证据，一些保险公司会推迟申请，但这并不意味着您将来不能再次申请。”
+
+即使对普通感冒（一种冠状病毒）的检测呈阳性，也可能使一个人失去承保资格，直到他或她能够获得表明健康状况良好的阴性检测为止。
+
+对上述任何问题回答“是”的“高风险”人，如果还患有其他健康问题，例如糖尿病、哮喘、自身免疫性疾病或心脏病，则可能永远被拒绝承保。
+
+“这就是为什么对于那些仍然希望自己的生命得到保险，以确保在他们死于疫苗或其他原因的情况下，对家人的安全和保护来说，接受测试和玩大流行游戏是不可行的，” 《科学原理》报告。
+
+由于他们所称的 SARS-CoV-2 从未真正被隔离过，因此，没有任何准确的测试可以对其进行准确的核查。不仅如此，疫苗本身已被证明，可能会阻止一个人获得真正和持久的免疫力。
+
+“他们创造了一个幻象，并利用公众信任来假装人们突然死于病毒，当人们，特别是老年人的死亡人数没有比正常人多时，再用蹩脚的错误百出的 PCR 测试证实虚构的幻象，”一位评论者写道。
+
+“由于滥用和忽视医疗保健，例如，过度使用呼吸机，以及通过让病人在场以确保老年人生病，**对病毒的恐惧确实杀死了一些人**。总的来说，流感季节，也就是 Covid-19，一点不错。”
+
+**参考资料：**[naturalnews][Life insurance policies can refuse payouts for the jabbed because covid vaccines are “medical experiments”](https://www.naturalnews.com/2022-01-06-life-insurance-refuse-payouts-covid-vaccines-experiments.html)
 
 * * *
 
-Date: 01/06/2022
-原视频标题: GETTR、GTV是唯一能拯救中国人的平台
-GETTR and GTV are the only platform that can save the Chinese people
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
-任务编号：3429
-视频时间段 : 0:00-1:34
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
 
  
 

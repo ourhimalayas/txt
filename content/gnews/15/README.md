@@ -2,72 +2,193 @@
 ---
 
 
-## 左派现在也意识到了封锁、口罩、感染的真相
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833939/)
+## 2021年、2022年是人类命运的分水岭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
 
-编译：Jenny Ball
+[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/megynkelly-810x500-1.jpg)截图/YouTube/梅根·凯利（Megyn Kelly）
+我觉得爆料革命和新中国联邦
+Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
 
-生活新闻 – 天狼星XM（Sirius XM） 脱口秀节目主持人梅根·凯利，周一在激烈的独白中指责左翼分子，指出左翼媒体人士和民主党政客，终于承认了保守派早就知道的，但一直受到审查和嘲笑的 COVID-19 大流行的关键现实 。
+包括人类的命运
+Incluyendo el destino de la humanidad
 
-“看到许多歇斯底里的人开始接受 COVID 的现实，这很有趣，”凯利在对主流叙事突然转变的十分钟解析中打趣道。
+我觉得2021年、2022年是人类的分水岭
+Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
 
-保守派长期以来承认，现在左派也承认的这些“COVID 现实”包括，
+今天我说了你们就不觉得惊讶了
+Hoy no se sienten asombrados si les digo esto
 
-- “即使您接种了疫苗，您也可以感染和传播 [冠状病毒]”
-- 疫苗有助于预防严重和致命的后果，是没有意义的
-- 与红色州相比，病毒“对蓝色州”的攻击更严重
-- 并且“[大多数]口罩都是零作用防止COVID病毒。”
+如果一年前我说你们(会)觉得我神经病
+Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
 
+是不是, 夸张、吹牛
+Cierto, exagerado, presumido
 
-“是的，所有这些现在都变得清晰起来，即使对左派来说也是如此，”凯利说。“封锁是一场不必要的灾难。学校停课？同样是一场不必要的灾难。儿童住院人数被严重夸大了：他们包括因 COVID 住院的儿童，但不是全部是 COVID 住院的儿童。最后，依靠 COVID“病例”的数量作为 COVID 严重性的证据，是没有意义的。**相关指标是住院和死亡人数。**COVID将继续存在，我们需要忍受它，而不是小心地等待它消失。”
+我从来没想试图说服过任何人
+Yo nunca he pensado de persuadir a nadie
 
-这位前福克斯新闻主持人和作者指出，“一直在享受独立或更保守的媒体”的美国人“已经知道这一切”，而左翼媒体的消费者可能是第一次听到这些 COVID“现实”。
+包括你七嫂
+Incluyendo a mi esposa
 
-虽然左翼媒体和公共卫生官员坚持认为 ，COVID-19 的 Omicron 新变体是导致消息传递转变的因素，但凯利强调，左翼现在承认的关于 COVID 的事实，早在 Omicron 之前就已经出现。
+包括我家人, 我从来没有过
+Incluyendo a mi familia, nunca lo he pensado
 
-凯利说：“这个真相在 Omicron 之前就存在了，尽管有疫苗和口罩，但你仍然可以感染 COVID，”她补充说，“肮脏的小口罩开始被人们丢弃…… 几个月来，对我们其他人来说，显而易见的某些真理”终于“曙光乍现”，即使是最顽固的 COVID 追随者。
+因为人的缘分不是你能说服得了的
+Porque la afinidad entre personas no puede ser persuadida
 
-凯利还点名猛烈抨击 COVID 沙皇和媒体宠儿安东尼·福奇，他最终承认使用“病例数”来衡量流行病的严重程度无关紧要。凯利还猛烈抨击了总统乔·拜登，拜登曾指责前总统川普在他任职期间发生的与 COVID 相关的死亡事件，拜登臭名昭著地承诺他将“关闭病毒”。
+人和人之间的关系
+La relación entre las personas
 
-现在拜登在他的任期内主持的 COVID 死亡人数比他的前任多，他最近承认对 COVID-19“没有联邦解决方案”，并强调美国人需要过上自己的生活，而不是只专注于减轻病毒。
+真的不是你用嘴(说)能达到的
+Realmente no se logra con la boca (diciendo)
 
-与此同时，根据联邦机构对公众“容忍度”的分析，CDC 将无症状者的 COVID 隔离期从 10 天缩短到 5 天，成为头条新闻。
+真正的人与人的信任和感情
+La verdadera confianza y sentimiento entre las personas
+绝对不是嘴能说到的
+No se dice con la boca
 
-“关键是，我们被骗了，”凯利说。“我们一直被极力误导，我们被像福奇这样的政府官僚像骡子一样牵着鼻子走，他们想在他自己年收入超过 40 万美元，但关闭你的工作。”
+很多过去的欺民贼, 伪民运
+Muchos matones del pasado, movimiento de la pseudodemocracia
 
-“**这些人……想吓唬父母**，一遍又一遍地把实验性疫苗塞给孩子，”她继续说。“不是一针，而是两针，然后是强制性的第三针。”
+他(们)不懂这个道理
+(Ellos) no entienden esta verdad
 
-然而，凯利指出，围绕缓解策略的不断变化的叙述表明，COVID“纸牌屋”开始崩溃。
+就是人类这个灵性动物
+Es decir, los seres espirituales como los seres humanos
 
-“COVID的现实变得不可否认。**当即使是左派也开始意识到**** COVID ****是针对所有人的**，即使是纽约市的民主党人，甚至是媒体成员，政治也会缓和。选民将确保这一点，”她说。“因此，**我们应该希望这种疯狂很快就会结束**。”
+他最终是一定要看行动的
+Él al final lo que ve es la acción
 
-凯利并不是唯一注意到左翼对 COVID 叙述的重新调整的保守派评论员。
+最终就是以结果论
+Finalmente toma el consecuencialismo
 
-《每日电讯》（Daily Wire）联合创始人本·夏皮罗（Ben Shapiro）还在新年前夜的推特推文中点燃了左翼人字拖，指出 CNN 和 MSNBC 的撰稿人，以及福奇、拜登、CDC和美国国家橄榄球联盟 (NFL) ，最近都转发了有关被保守派持有的病毒的观点，这长期被自由派所嘲笑。
+这就是动物和植物界的根本不同
+Esta es la diferencia del origen entre los animales y el mundo de las plantas
 
-夏皮罗写道：“因此，一旦发现新冠病毒实际上并不是一个异教之神，单独对未洗礼的川普选民进行报复，媒体和民主党人现在愿意承认以下事实，”夏皮罗写道，猛烈抨击左翼专家和公共卫生官员承认：
+那么我们在这个地球上
+Entonces, nosotros estamos en este planeta tierra
 
-- 口罩不起作用
-- 自然免疫实际上确实可以预防严重疾病
-- 在遏制病毒的同时，需要考虑社会成本
-- 并且 COVID 感染不会平等地影响所有年龄组或不同健康状况。
+我们大家面对着一个物质的世界
+Enfrentamos a un mundo material
 
+和一个我们完全无法想像的未知的星空
+Y un cielo estrellado desconocido que ni siquiera podemos imaginar
 
-这位受欢迎的播客和作者补充说：“实际上，**我们这些人已经说了好几个月了，其中大部分都是自**** 2020 ****年**** 5 ****月以来**开始的。”“但你的政治先验比数据更重要。你必须妖魔化叙事。”
+银河系, 太阳系
+Vía Láctea, Sistema Solar
 
-**点评：这篇文章是新年的好开端，终于左派人士也醒悟了。“COVID“纸牌屋”开始崩溃。 ”**
+无限大的宇宙和地球之间一粒沙的关系
+La relación entre un grano de arena del universo infinito y la tierra
 
-参考资料：[lifesitenews][Megyn Kelly says even ‘leftists’ now realize the truth about COVID lockdowns, masks, infections](https://www.lifesitenews.com/news/megyn-kelly-says-even-leftists-now-realize-the-truth-about-covid-lockdowns-masks-infections/)
+我们跟人之间相处的时候实际是最复杂的
+En realidad, lidiar con las personas es lo más complicado
+当今天我们看这个同心同框, 这么多战友的时候
+Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
+
+大家能看到有人说话多一点, 有人说话少一点
+Todos pueden ver que algunas personas hablan más, otros hablan menos
+
+有人激动一点, 有人水多一点(或)水少一点儿
+Algunos son más emocionados, otros con más agua o menos
+
+是不是
+Cierto o no
+
+分男女, 分老少, 分长短
+Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
+
+但是大家记住
+Pero todos recuerden
+
+我们心中最大的魔就是分高低
+El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
+
+而且这个高低是谁定的, 是你自己定的
+Además, quién decide esto, tú mismo
+
+都是我们每个人自己的标准去量所有的人去
+Utilizamos nuestros propios estándares para medir a los demás
+
+这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
+En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
+
+我们今天讲了那么多
+Hoy hablamos tantas cosas
+
+我们没讲金, 没讲土
+Pero no mencionamos el oro y la tierra
+
+但是我们的新中国联邦的旗是什么旗
+Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
+
+我们的蓝色就是蓝色海洋和星空
+Nuestro color azul significa el mar y el cielo estrellado
+
+你知道在中(共)国是不用蓝的
+Sabías que en República Popular de China no se utiliza el azul
+
+中国人什么时候用蓝你知道吗
+¿Sabes cuándo los chinos usan el azul?
+
+头两天你七嫂憋了一年都没说
+En los primeros dos días, mi esposa aguantó durante un año sin decirlo
+
+你七嫂给我留面子
+Era para que no pasara pena
+
+我知道你七嫂要说什么
+Yo sé lo que ella quería decir
+
+就是说那个蓝色的时候
+Hablando lo del color azul
+
+你七嫂说, 哎呀
+Ella dijo, ay
+
+她说在咱老家咱娘说, 这叫什么
+En nuestra ciudad natal, nuestra madre dijo que esto se llama
+
+就是在我们山东老家, 人死了用那个蓝色
+En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
+
+就是那个蓝色是死亡蓝的意思
+Quiere decir que el color azul representa la muerte
+
+我特能懂, 我啥也没说
+Puedo entender totalmente esto, no dije nada
+因为你七嫂子她是山东人
+Porque mi esposa es de Shandong
+
+她是我的爱人, 跟我一起长大的
+Es mi amor y creció conmigo
+
+但是我就没法跟她解释
+Pero no puedo explicarle
+
+她未来会懂得
+Ella entenderá en el futuro
 
 * * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+日期：01/06/2022
+原视频标题：2021年、2022年是人类命运的分水岭
+El año 2021 y 2022 son la línea divisoria de agua del destino humano
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
+任务编号：KC399（3406）
+视频时间段：00:00-02:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

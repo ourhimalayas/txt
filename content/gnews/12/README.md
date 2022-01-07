@@ -2,43 +2,87 @@
 ---
 
 
-## 乔-罗根五日内已为Gettr带来了一百万新用户
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1833996/)
+## GETTR、GTV是唯一能拯救中国人的平台
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Rogan.jpg)图片来源：Bulldog Report
-根据《纽约邮报》1月7日报道，前特朗普顾问杰森-米勒的社交媒体应用Gettr在播客巨星乔-罗根加入后的几天里，已经有超过100万的新用户注册。
+[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
 
-该公司与《邮报》独家分享了数据，Gettr是一个一直吸引保守派社交媒体用户的Twitter替代品，在罗根周日在该网站上发表第一篇文章后不到一周的时间里，Gettr在周五上午达到了100万大关。发言人埃博尼-鲍登说，这使该网站的用户总数超过了400万。
+**郭文贵
+Miles Guo**
 
-罗根仍然保留着一个Twitter账户，但他说，在Twitter周日禁止佐治亚州众议员马乔里-泰勒-格林(Marjorie Taylor-Greene)，称她多次分享疫苗的错误信息后，他加入Gettr是出于对审查制度的担忧。在禁言之前，泰勒-格林在推特上说，”极高数量的冠状病毒疫苗死亡被忽视”，并呼吁食品和药物管理局不要批准冠状病毒疫苗。
+Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
+For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
 
-罗根的第一个Gettr帖子写道：“为了防止狗屎推特变得更蠢，我现在来到这里。欢呼吧！”
+她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
+She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
 
-这波注册潮中，仅1月3日一天就有34.3万人，这是Gettr网站自7月推出以来最大的单日注册人数。鲍登说，Gettr没有支付罗根加入该网站的费用。
+媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
+The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
 
-罗根的加入标志着Gettr在米勒未能争取到特朗普之后取得的胜利，特朗普在10月表示，他计划推出自己的网站，名为TRUTH Social。
+来黑我们新中国联邦，而且处心积虑，你们竟然不传播
+come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
 
-然而，迄今为止，TRUTH 的开端并不顺利。据《Daily Dot》报道，特朗普的团队表示，测试版本将在 11 月上线，然后在 2022 年第一季度更广泛地发布，但该网站的多个基本测试版本已在网上泄露，使黑客和记者能够挖出特朗普自己的用户名。
+一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
+It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
 
-TRUTH的陷入困境使得Gettr能够与可能成为TRUTH用户的人打成一片。包括作家乔丹-彼得森、政治评论家戴夫-鲁宾和《纽约邮报》专栏作家卡罗尔-马科维茨和萨莱娜-齐托在内的其他保守派也在最近几周加入了该网站。
+你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
+What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
 
-对于保守派来说，该网站的主要卖点是其较宽松的内容审核政策。Gettr允许所有关于政治和疫苗的观点，包括那些其他网站的事实核查人员会标记为错误的观点。然而，该网站不允许公开的白人至上主义，最近禁止了白人民族主义 “团结右翼 “组织者尼克-富恩特斯(Nick Fuentes)。
+烧你家房子，烧你100次，不是烧你一次
+Burn your house 100 times, not burn you once
 
-Gettr也在向海外扩张。截至周五，该公司称其在美国有220万用户，其次是巴西的50万用户，以及英国、德国和法国的大量用户。相比之下，Twitter在美国有大约7800万日活跃用户，在全球有2.06亿。
+你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
+Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
 
-米勒对《纽约邮报》说：”这些数字证明，社交媒体用户开始意识到硅谷高管日益严厉的审查制度，并渴望获得替代方案。我们欢迎来自各种意识形态和背景的人在我们的平台上自由表达自己。”
+千羽你在加拿大, 你走到大街上是人人喊打的人
+Qianyu, you are in Canada, you are the one who was shouts and beats on the street
 
-Gettr得到了郭文贵的资助，他是一名商人，2014年逃离中国，与前特朗普顾问史蒂夫-班农关系密切。据米勒称，该公司还有其他未透露姓名的支持者，截至9月，已经筹集了约7500万美元的资金。
+娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
+Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
 
-郭文贵先生在1月5 日的大直播中说道，中共，谷歌，苹果等在全力打压Gettr,实际上盖特的用户下载数量是在3500万人以上。
+我不跟你开玩笑正义小Sarah
+I’m not kidding you justice little Sarah
 
+Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
+Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
 
+这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
+Isobel Yeung this guy is very evil, you see William still laughing, William
 
-原文链接：
-[https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
+就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
+just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
 
-编辑，发稿 Spirit
+一定想到盖特是拯救中国人的平台
+You must think about that Gettr is a platform to save the Chinese people
+
+一定想到G-TV是唯一能拯救中国人的平台
+Must think that G-TV is the only platform that can save the Chinese people
+
+他比任何经济价值都重要
+It is beyond any economic value
+
+你看明白了吗？兄弟姐妹们
+Do you see it? Brothers and sisters
+
+* * *
+
+Date: 01/06/2022
+原视频标题: GETTR、GTV是唯一能拯救中国人的平台
+GETTR and GTV are the only platform that can save the Chinese people
+原视频日期：2022/01/05
+原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
+任务编号：3429
+视频时间段 : 0:00-1:34
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

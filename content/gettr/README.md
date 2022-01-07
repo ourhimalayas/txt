@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 8:22 PM (UTC)`
+
+1月7日: 雪中G翻身……G Fashion视频🔥🔥🔥🔥🔥🔥🔥🥰🥰🎊🎊❄️❄️🎉🎉
+![img](https://media.gettr.com/group15/getter/2022/01/07/20/1dd3e0fd-cba8-5ef3-1568-aab92284836f/out.jpg)
+
+---
+
 `@miles 1/7/2022 7:06 PM (UTC)`
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥11
@@ -146,13 +153,6 @@ Congrats @gettr !!!!
 
 1/05/2022 Miles Guo: Google, AppStore, and Facebook have jointly suppressed GETTR, tampering with the downloads of the GETTR App and preventing users from receiving email confirmation when signing up for an account. As a result, GETTR had more than 10 million downloads taken out in the West, with a total of more than 50 million downloads being removed<br/><br/>1/05/2022 文贵直播：谷歌、苹果商店和脸书联手打压GETTR，篡改下载量并阻止用户在注册账号时收取验证邮件，GETTR在西方就有1000多万下载量被干掉，共有5000多万的下载量被拿掉<br/>
 ![img](https://media.gettr.com/group35/getter/2022/01/06/22/789f602f-7ab8-274c-d1e9-f1ba117c5d74/out.jpg)
-
----
-
-`@miles 1/6/2022 8:27 PM (UTC)`
-
-1月6号：<br/><br/><br/>The Whistleblower Movement and the NFSC seem to have ways to accurately predict the moves of the CCP. Four weeks ago, Miles projected again that Chen Quanguo would be getting a promotion rather than a demotion-a popular view held by many. This's the 3rd time that Mr. Miles Guo scored on his prediction of Chen’s career moves. The other two times happened three and one year ago respectively.  Here are the appointments for the 20th National Congress: Xi Jinping, President – the Sun; Hu Chunhua, Prime Minister; Chen Miner, First Deputy Prime Minister; Chen Quanguo, Secretary of the Central Commission for Discipline & Inspection; Li Xi, Chairman of the Chinese People’s Political Consultative Conference; Ding Xuexiang, Chairman of the National People’s Congress...
-![img](https://media.gettr.com/group43/getter/2022/01/06/20/83985096-f55b-6bdd-ce77-d7aaa8767669/62835b168cd5387e1daf057e1403da7f.jpg)
 
 ---
 

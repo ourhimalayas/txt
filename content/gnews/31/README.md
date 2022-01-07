@@ -2,29 +2,68 @@
 ---
 
 
-## 这就是他们释放Omicron的原因吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833717/)
+## 【樱花深度报道】专家分析：中共将“三战”战略延伸至太空（四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1833868/)
 
-翻译： Jenny Ball
+编译：东京樱花团/Hopkins
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-433.png)图片来源: [creativedestructionmedia.com
+【摘要】中共正在将其“三战”战略扩展到太空。这一广阔的新边疆将成为该政权媒体扩张运动的核心、心理战的主题，并且至关重要的是，随着中国寻求取代美国成为新的全球霸权地位，这将是重塑国际秩序的新法律斗争的核心。人们可以将太空的战略价值视为中共野心的重点。它是一个不断壮大的大国可能超越全球霸权主宰地球事务未来的门户。“谁控制了空间，谁就可以控制世界。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-12.jpg)
+（图片说明）这张由中国国家航天局 (CNSA) 于 2019 年 1 月 11 日通过 CNS 发布的图片显示了由嫦娥四号月球探测器在月球背面拍摄的玉兔二号月球车。*(China National Space Administrat/AFP via Getty Images)*
 
-在 Delta这波病毒稀释之后，最新的 Omicron热炒之前，自动数据处理(ADP )显示出就业增长出现大幅飙升。
+**民用基地？军用基地？**
 
-在“Delta浪潮”减弱之后，以及在恐惧媒体和专横的蓝色州应时地掀起 Omicron 的浪潮之前，ADP 就业增长在 12 月出现了大幅飙升。
+或许这个陷阱在中共所谓的军民两用政策中最为明显。
 
-**这表明美国人希望重返工作岗位，恢复正常。**
+中共公开否认其太空系统和项目，包括其月球计划和卫星，被用于军事目的。例如，它将其捕获卫星描述为清理太空垃圾的手段，并将其高超音速导弹测试描述为可重复使用的航天器。
 
-这就是为什么要推出 Omicron 吗？ 连（奥巴马）拜登都不能放慢美国经济？ 好奇的人们想知道答案。
+批评中共的人士指出，这种技术最终是民用还是军用的模棱两可具有双重用途的特征。
 
-新闻来源 : [creativedestructionmedia.com][Is This Why They Released Omicron? ADP Job Growth Shows Massive Spike After Delta Wave Dilution, Prior To Latest Omicron Head Cold Hype](https://creativedestructionmedia.com/news/markets/2022/01/05/is-this-why-they-released-omicron-adp-job-growth-shows-massive-spike-after-delta-wave-dilution-prior-to-latest-omicron-head-cold-hype/)
+军民两用是中共“军民融合”政策的实际实现，旨在消除私人和公共生活之间的所有障碍，确保所有民用技术也能提升中国的军事优势。
 
-* * *
+用于向 月球发射玉兔-2 的火箭就是这样一个例子。同样类型的火箭被用来发射中共的新型高超音速武器系统，美国领导人担心这是一种核先发制人武器。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+中共领导人表示，这次试验是为了其太空计划的利益。
+
+“几乎所有使一个国家能够将物体发射到太空的东西都与洲际弹道导弹或高超音速武器没有区别，”克雷斯波说。
+
+“对中国来说，这种区分是没有实际意义的。”
+
+克雷斯波说，这种模棱两可是该计划的一部分，旨在掩盖任何项目的军事或民用功能是否打算占主导地位。
+
+这种模棱两可的情况在月球上产生了影响，在月球上，所有中国宇航员都受雇于中国军队。
+
+克雷斯波说：“任何月球基地都有科学用途，同时也明确为中国提供了一个需要防御的战略月球存在，可用于监视、侦察或对卫星和其他太空资产进行各种类型的军事攻击。”
+
+“任何月球基地对中共来说都不会是纯民用的。”
+
+**一个值得拥有的世界**
+
+太空被研究员保罗·希曼斯基（Paul Szymanski）描述为“最不起眼的战场”。然而，它的默默无闻并没有削弱它对国家未来的中心地位。相反，太空的经济、军事和政治影响，尤其是对月球的控制，几乎不可能夸大其词。
+
+“太空是美国最大的资产，也是它最大的弱点，”克雷斯波说。
+
+“中国人和俄罗斯人认为这是我们的致命弱点。”
+
+为此，人们可以将太空的战略价值视为中共野心的首要点。它是一个不断壮大的大国可能超越全球霸权主宰地球事务未来的门户。
+
+的确，说月球对于中共来说就像阿尔卑斯山（Alps）之于汉尼拔（Hannibal），一点也不为过。如果它被采取，其余的可能会像多米诺骨牌一样倒下。
+
+“赌注那么高，”克雷斯波说。 “谁控制了空间，谁就可以控制世界。”
+
+（全文完）
+
+作者： 安德鲁·索恩布鲁克 (Andrew Thornebrooke) /Zerohedge
+
+信息来源：
+
+[**CCP Extending “3 Warfares” Strategy Into Space: Expert**](https://www.zerohedge.com/geopolitical/ccp-extending-3-warfares-strategy-space-expert)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

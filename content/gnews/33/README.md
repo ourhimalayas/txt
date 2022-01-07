@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|西安社会面“清零”：隧道、车库、看守所竟成隔离点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833619/)
+## GTV新闻访谈简报|2022年1月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1833854/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。
+视频参看：[2022.01.07早GTV新闻访谈](https://gtv.org/video/id=61d83fc4f2fe0449ea19a537)
 
-文字版原文：[西安社会面“清零”：隧道、车库、看守所竟成隔离点](https://gnews.org/zh-hans/1825109/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

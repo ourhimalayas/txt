@@ -2,32 +2,25 @@
 ---
 
 
-## 开玩笑？ 德约科维奇拒绝透露疫苗接种状态被澳网禁赛
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833950/)
+## 日美对中共“试图破坏基于规则的秩序”表示担忧
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1834091/)
 
-编译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/01/769d-f62683934e35eb6b39d32d600d72d87d.jpg)图片来源：sports.sina.cn
-又一位全明星运动员因疫苗（或没有接种疫苗）而受到打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/U.jpg)reuters.com
+日本共同社报道，日本和美国的外交和国防部长1月7日对中共试图“破坏基于规则的秩序”以及对地区和世界构成的挑战表示担忧，誓言要合作遏制和应对中共“破坏稳定的活动”。
 
-据《纽约邮报》报道，诺瓦克·德约科维奇（Novak Djokovic）可能在抵达澳大利亚参加澳大利亚公开赛仅一天后，就必须离开澳大利亚。
+在此前的日美“2 + 2”会谈结束后的一份联合声明中，两国外长强调了“台湾海峡和平与稳定的重要性”，同时反对任何威胁日本对东海尖阁诸岛（Senkaku Islands，中共称“钓鱼岛及其附属岛屿”）管辖的单方面行动。日本外相林芳正（Yoshimasa Hayashi）、防卫大臣岸信雄（Nobuo Kishi）以及美国国务卿布林肯（Antony Blinken）和国防部长奥斯汀（Lloyd Austin）也对中共国西部新疆自治区和香港的人权问题表示“严重和持续的关切”。
 
-“周三，边境官员在墨尔本机场拘留了这位顶级男子球员八小时。这位一再拒绝透露其疫苗状况的网球明星，获得了参加比赛的医疗豁免。尽管他计划挑战该国的裁决，但他的地位现在令人怀疑，”邮报报道。
+会谈结束后，岸信雄在另一场新闻发布会上说，日本需要“提高针对各种空中威胁的探测、跟踪和拦截能力”，并“加强其综合导弹防御能力”。
 
-“德约科维奇先生的签证已被取消，”澳大利亚总理斯科特·莫里森周三在推特上写道。 “规则就是规则，尤其是涉及到我们的边界时。没有人可以超越这些规则。我们强有力的边境政策，对于澳大利亚是世界上 COVID 死亡率最低的国家之一至关重要，我们将继续保持警惕。” 德约科维奇已经 9 次赢得澳网冠军——包括过去 3 年。但据德约科维奇的父亲 Srdjan说，他目前被警察看守，并被关押在机场的“一个没有人可以进入的房间里”。
+随着美国和英国等主要民主国家宣布从外交上抵制下个月举行的北京冬奥会，中共国的人权问题最近引起了人们的注意。美国称中共对新疆维吾尔族穆斯林实行了“种族灭绝”。与此同时，日本首相岸田文雄（Fumio Kishida）1月6日与澳大利亚总理斯科特·莫里森（Scott Morrison）举行了虚拟会晤，两国在1月4日签署了促进联合演习、加强安全合作的《互惠准入协定》，日澳在联合声明中表达了对中共在印度洋-太平洋地区日益增长的影响力的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-11-1.png)图片来自原文
+参考链接：
 
-(评论：澳大利亚已经成了仅次于中共的“疫苗”独裁政权，莫里森冠冕堂皇谈什么“规则就是规则”，却不谈规则的法律依据在哪里？规则的科学依据是什么？就是“疫苗”吧，莫里森连病毒起源都不知道，那么针对病毒的疫苗怎么出来的？莫里森不仅对澳洲人民实施极权，还向世界证明他的极权淫威！)
+[https://english.kyodonews.net/news/2022/01/8d3f2cadd382-japan-us-begin-security-talks-with-china-in-sight.html](https://english.kyodonews.net/news/2022/01/8d3f2cadd382-japan-us-begin-security-talks-with-china-in-sight.html)
 
-参考资料：[hannity][YOU’RE DJOKING, RIGHT? Djokovic Banned from Australian Open, Refuses to Disclose Vax Status](https://hannity.com/media-room/youre-djoking-right-djokovic-banned-from-australian-open-refuses-to-disclose-vax-status/)
+**华盛顿DC 银河**
 
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+**编辑发布 水星**
 
  
 
