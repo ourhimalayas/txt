@@ -2,107 +2,41 @@
 ---
 
 
-## 八张图表告诉我们中共国的现状
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1832018/)
+## 01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1832149/)
 
-编译：文羽
+**By:[秘翻新闻](https://gtv.org/video/id=61d80039f2fe0449ea197c87)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-383.png)图片来源: estrategiasdeinversion.com
+**2022-01-07**
 
-中共国的增长前景继续受到最严重的打击。市场在 11 月份持续下调欧元区的增长前景，而近几个月中共国的增长前景下降幅度超过其他地区。
+据路透社(Reuters) 1月6日报道，印度大城市德里、孟买和加尔卡塔正经历着中共病毒COVID-19病例的激增。官员们表示，大部分受感染的人没有表现出症状或只有轻微的症状，并在家中迅速恢复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-385.png)图片来源: estrategiasdeinversion.com
+印度周四报告了每天90,928个新的COVID-19病例，自今年年初以来增加了近四倍，主要来自城市。卫生官员说奥米炕变体已经超过Delta。
 
-水蓝色：美国增长指数
+印度的联邦卫生部周三确定德里（Delhi）、孟买（Mumbai）、加尔各答（Kolkata）、钦奈（Chennai）和班加罗尔（Bengaluru）为一些主要关注地区，然而，州政府官员担心这种疾病将很快蔓延到卫生设施比较薄弱的农村。
 
-深蓝色：中共国增长指数
+加尔各答是一个拥有约1,500万人口的城市，目前该州报告的感染率在印度是最高的之一。
 
-灰色：欧盟区增长指数
+西孟加拉邦卫生局局长说，尽管政府经营的传染病和别利亚加塔综合医院(Infectious Diseases and Beliaghata General Hospital)有超过9000个新病例，但周二只有75个入院记录。
 
-在过去三个月中，中共国的钢铁产量比去年同期减少了 20%。 2021 年 11 月是自 2016 年以来中共国钢铁产量最弱的 11 月。
+在西部，孟买在周三录得新的日感染高峰，达到15,166人，远远高于去年创下的略高于11,000人的最高纪录。市政府官员在一份每日卫生公报中说，近90%的新患者没有表现出任何症状，只有8%的患者住院治疗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-387.png)图片来源: estrategiasdeinversion.com
+周三，德里的COVID-19病例在一天内几乎翻了一番，达到10,665例，但该州说只有7%的COVID病床被占用。
 
-红色：中共国钢铁产量
+据报道，印度已经证实至少有2,135个奥米炕病例和一个与该变体有关的死亡病例，患者是一位患有糖尿病的老人。
 
-由于三个主要因素，增长仍然缓慢：严格的 Covid-19 限制、疲软的家庭信心和疲软的房地产。
+星期四，印度的COVID-19的每日死亡人数增加了325人，总数达到482,876人。感染总数为3511万，仅次于美国的统计数字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-389.png)图片来源: estrategiasdeinversion.com
+报道称，许多印度城市已经实施了夜间宵禁和周末封锁，以及关闭学校。然而，在未来几周和几个月内将举行选举的几个州，政治集会仍在继续。
 
-红色：零售业
+(秘翻新闻主编Grace编译报道）
 
-紫色：工业增加值
-
-蓝色: 国内生产总值
-
-住房将不再是中共国经济增长的主要拖累因素。该图显示了住房对中共国年度 GDP 增长的贡献。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-391.png)图片来源: estrategiasdeinversion.com
-
-水蓝色：建筑
-
-深蓝色：消费
-
-灰色：财政
-
-蓝色：房地产服务
-
-绿色：上游效应
-
-红色：合计
-
-而事实是，中共国房价的下跌只会增加人们对存在巨大房地产泡沫的担忧，而恒大只是其中的冰山一角。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-393.png)图片来源: estrategiasdeinversion.com
-
-水蓝色：70 城市平均值
-
-水蓝色虚线：一线城市
-
-灰色：二线城市
-
-蓝色：三线城市
-
-灰色虚线：四线城市
-
-但这并没有受到拖累因为中共国控制了信贷提升，如果有必要降低利率——正如它所做的那样——，利率将被降低，以便其公民可以再次消费。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-395.png)图片来源: estrategiasdeinversion.com
-
-黄色：o/w:银行贷款、公司债券
-
-灰色：o/w：政府债券 (rhs)
-
-红包：o/w：TSF 影子信用（rhs）
-
-据摩根大通称，中共国市场可能会在未来几个月内起飞。下跌导致形成大的市场底部。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-397.png)图片来源: estrategiasdeinversion.com
-
-水蓝色：截至2021年12月15日的中国-深沪300指数
-
-灰色：累计净交易活动占中国总贸易额的百分比
-
-而中共国一直是金融市场表现最差的国家，是近30年来最差的数据。跌幅超过20%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-399.png)图片来源: estrategiasdeinversion.com
-
-水蓝色：年初至今回报率 (%)
-
-问题是。是时候去中共国购物了？嗯，一如既往，赌注在亚洲国家和整个大陆，中共国政府似乎不想停止改革，这样中共国就不会那么依赖美国资本市场，而中国人民银行的加息可能会证实其经济继续放缓，目前尚不清楚这会走多远。
-
-投资者应该在中共国，问题是现在投资还是等待……这取决于您的风险状况。
-
-新闻来源: [estrategiasdeinversion.com] [Ocho gráficos que nos enseñan cómo está China](https://www.estrategiasdeinversion.com/actualidad/noticias/bolsa-eeuu/ocho-graficos-que-nos-ensenan-como-esta-china-n-493023)
+发布:星星
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
-
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

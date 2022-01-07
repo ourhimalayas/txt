@@ -15,86 +15,86 @@
 
 ---
 
-### [澳洲新南威尔士日增确诊近4万，部分场所限制将重启](/content/gnews/1/README.md)
+### [【赶绝选举】民政署突终止互委会计划](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】世茂没钱了！11.65亿元ABS将违约 拟分期偿还先付10%](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全球疫情更新（全球感染超过3亿大关）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳洲新南威尔士日增确诊近4万，部分场所限制将重启](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [元曲新作：朝天子·皇凉一梦](/content/gnews/2/README.md)
+### [元曲新作：朝天子·皇凉一梦](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/3/README.md)
+### [输出革命输掉命](/content/gnews/6/README.md)
+ ` 骄子`
+
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [黄金迷案](/content/gnews/4/README.md)
+### [黄金迷案](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [中共国家邮政局拟规定不得擅自将快递投递到快递箱](/content/gnews/5/README.md)
+### [中共国家邮政局拟规定不得擅自将快递投递到快递箱](/content/gnews/9/README.md)
  ` 德国纽伦堡正义农场`
 
-### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/6/README.md)
+### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [法国发现新型新冠病毒变异毒株“IHU”](/content/gnews/7/README.md)
+### [法国发现新型新冠病毒变异毒株“IHU”](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [去年十一中共五大银行定下如7而至,红宫厢廊中俄赞七哥](/content/gnews/8/README.md)
+### [去年十一中共五大银行定下如7而至,红宫厢廊中俄赞七哥](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大直播后记：关于盖特（一）](/content/gnews/9/README.md)
+### [大直播后记：关于盖特（一）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共第三夜 疫苗灾难下的西安](/content/gnews/10/README.md)
+### [灭共第三夜 疫苗灾难下的西安](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低](/content/gnews/11/README.md)
+### [01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/12/README.md)
+### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/13/README.md)
+### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/14/README.md)
+### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [八张图表告诉我们中共国的现状](/content/gnews/15/README.md)
+### [八张图表告诉我们中共国的现状](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [家庭反洗脑序列：第43篇 如此防疫](/content/gnews/16/README.md)
+### [家庭反洗脑序列：第43篇 如此防疫](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳大利亚塔斯马尼亚州新冠病毒感染病例激增](/content/gnews/17/README.md)
- ` 喜国公民`
-
-### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/18/README.md)
+### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/19/README.md)
+### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共强迫藏族僧侣民众观看拆除佛像](/content/gnews/20/README.md)
+### [中共强迫藏族僧侣民众观看拆除佛像](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [恒大2021年营业额同比下降近39%](/content/gnews/21/README.md)
+### [恒大2021年营业额同比下降近39%](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [音乐让我们夺回尊严和自信](/content/gnews/22/README.md)
+### [音乐让我们夺回尊严和自信](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/23/README.md)
+### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/24/README.md)
+### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-14](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [被推特领英禁言，罗伯特•马龙博士选择坚持](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记：历史可以告诉我们很好的答案](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [克鲁兹拟推出法案，推翻政府强制儿童接种中共病毒疫苗](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
