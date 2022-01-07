@@ -15,133 +15,133 @@
 
 ---
 
-### [西媒头条 — 第148期](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [CCP病毒加强针施打范围或在美进一步扩张](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [领导的喜好还是实际的需要，“朝令夕改”为哪般？ 北京地铁“变脸”惹议](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [01/07 每日播报｜观点：如果中共入侵 台湾应该直接摧毁自己的芯片厂](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [视频| 中共对女性和中国人民缺乏最基本的尊重](/content/gnews/3/README.md)
- ` MOSREC`
+### [十九个欧元使用国通货膨胀率达到5%](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [港记泪别《立场新闻》《众新闻》 记者精神不死](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜交所被报道称为“自给自足的加密货币生态系统”](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [警惕澳洲医学“砖家”建议采用封锁来推进新冠疫苗强制接种](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [【中日财经爆】董事长的愤怒](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大的年轻人出现神秘的神经系统疾病](/content/gnews/8/README.md)
+### [台湾买下中共阻止立陶宛出口的2万瓶朗姆酒](/content/gnews/4/README.md)
  ` wenwu`
 
-### [机场拦截网球明星德约科维奇,联邦政府难以自圆其说](/content/gnews/9/README.md)
- ` 走进澳洲`
+### [中共国在冬奥会前一个月固守清零政策](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [保监官僚害200的士停运](/content/gnews/10/README.md)
+### [中朝鲜血凝成的友谊的小船说翻就翻](/content/gnews/6/README.md)
+ ` 银河勇气之星`
+
+### [西安“就医流程”和“动态清零”暴露中共当局反人性真相](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【政坛地震】议员政要齐为隔离高官护短](/content/gnews/11/README.md)
+### [【中日财经爆】中共病毒肆虐，檀香山咖啡关闭日本所有分店](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【赶绝选举】民政署突终止互委会计划](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】世茂没钱了！11.65亿元ABS将违约 拟分期偿还先付10%](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全球疫情更新（全球感染超过3亿大关）](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [情歌万万首，情书一句没有](/content/gnews/15/README.md)
- ` 骄子`
-
-### [CCP新华社推特上发丑化美国CIA和英国军情六处视频](/content/gnews/16/README.md)
+### [再谈HBO的杨贝贝“骗访”事件个人感受](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [输出革命输掉命](/content/gnews/17/README.md)
- ` 骄子`
+### [西媒头条 — 第148期](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
+### [Omicron变异毒株造成澳大利亚大型超市供给短缺20%](/content/gnews/11/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低](/content/gnews/20/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/22/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共强迫藏族僧侣民众观看拆除佛像](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [恒大2021年营业额同比下降近39%](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [音乐让我们夺回尊严和自信](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [克鲁兹拟推出法案，推翻政府强制儿童接种中共病毒疫苗](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/32/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [川普竞选活动前最高顾问杰森-米勒谈他的“未来战略”](/content/gnews/33/README.md)
+### [领导的喜好还是实际的需要，“朝令夕改”为哪般？ 北京地铁“变脸”惹议](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/34/README.md)
- ` 喜马拉雅日本银河系农场`
+### [视频| 中共对女性和中国人民缺乏最基本的尊重](/content/gnews/13/README.md)
+ ` MOSREC`
 
-### [孟山都前中国雇员承认窃取商业机密](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国名人乔-罗根加入盖特引发跟随浪潮](/content/gnews/36/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [世界经济论坛”是全球疫情独裁者的温床](/content/gnews/37/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [安省中小企业因疫情限制措施而陷入困境](/content/gnews/38/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/39/README.md)
+### [港记泪别《立场新闻》《众新闻》 记者精神不死](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共极端清零 河南禹州封城](/content/gnews/40/README.md)
+### [喜交所被报道称为“自给自足的加密货币生态系统”](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [警惕澳洲医学“砖家”建议采用封锁来推进新冠疫苗强制接种](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [【中日财经爆】董事长的愤怒](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大的年轻人出现神秘的神经系统疾病](/content/gnews/18/README.md)
+ ` wenwu`
+
+### [机场拦截网球明星德约科维奇,联邦政府难以自圆其说](/content/gnews/19/README.md)
+ ` 走进澳洲`
+
+### [CCP新华社推特上发丑化美国CIA和英国军情六处视频](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [音乐的主题诠释着时代背景它能成为政治洗脑民众的工具](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [01/07每日播报｜奥米炕在印度的大城市蔓延 但住院率仍然很低](/content/gnews/23/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/24/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/27/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共强迫藏族僧侣民众观看拆除佛像](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [恒大2021年营业额同比下降近39%](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [音乐让我们夺回尊严和自信](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [克鲁兹拟推出法案，推翻政府强制儿童接种中共病毒疫苗](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/35/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [川普竞选活动前最高顾问杰森-米勒谈他的“未来战略”](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/37/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [孟山都前中国雇员承认窃取商业机密](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国名人乔-罗根加入盖特引发跟随浪潮](/content/gnews/39/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共极端清零 河南禹州封城](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/41/README.md)
+### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [有声|墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/43/README.md)
+### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/43/README.md)
  ` MOSREC`
 
 ### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/44/README.md)

@@ -2,24 +2,25 @@
 ---
 
 
-## 【政坛地震】议员政要齐为隔离高官护短
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832324/)
+## Omicron变异毒株造成澳大利亚大型超市供给短缺20%
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1832446/)
 
-作者：东京樱花团丨阿恩
-![](https://lh5.googleusercontent.com/Zc3odKpB_X72ZOMPci6J4lLqhgDcNWlHZeS4ZQ4mnDICBI75kwF7qKHHZU8U6gqJ3yNY3I7fFjtJsLREym-nMxJ7dqjdmQNuFRTH-XNW3oOyWxRNaHVXeYcNXIXRZT062zwF1rgU)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211221/549951200431181824470381.jpeg/c-A0eava3WuDhD1MiBZLZNevwbYPdD2ITLd7Vky3e1Y?v=w1920)
-高官议员出席的逾百人生日派对出现确诊者，民政事务局局长徐英伟昨被林郑月娥点名表示“十分失望”。网民声讨高官应与庶民同罪，齐声赶徐下台。立法会议员狄志远为其辩护称，要求徐英伟问责下台是情绪化要求；行政会议成员叶国谦称官员于其他私人场合同样可能受感染，并形容徐英伟发布的道歉帖文恰如其分。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/701.jpg)图片来自网络
+继澳大利亚大型超商Coles宣布对部分商品采取限购措施之后，另一家连锁超市品牌Woolworths今日也公开发表声明，该企业的集散中心供给出现了20%以上的短缺情况。
 
-立法会选举刚结束，建制阵营和亲中成员安全入围。尽管Omicron变种病毒已杀入香港，港府和医疗系统大为紧张，但一众高官和政要却不食人间烟火高调参加大型生日宴，被媒体曝光涉嫌违反限聚法令，更不断爆出有参与者Omicron确诊，令港府的防疫措施陷入泥潭，高官政要知法犯法的闹剧再度重演。
+Woolworths 首席执行官布拉德·班杜奇（Brad Banducci）在今天早上给客户的一封信中表示，这次的短缺是由各种不同的因素共同造成的。
 
-特首为息事宁人将涉事高官送入竹篙湾强制隔离检疫21日，但网民不吃这一套，介于港府对港人一贯的有错必罚、有法必究的冷血德行，网民们强烈要求高官们与庶民同罪，追责的声浪连党媒也不加以掩盖，近日的报章通篇都在报道相关评论，政要分成两派，有的主张冷处理，有的认为要追究。主张冷处理的议员更混淆概念，完全忽略高官们违反港府防疫法令的事实，将他们的行为向无辜者靠拢，并将道歉与处罚等同。
-![](https://lh6.googleusercontent.com/BlsOdnByOtqzKVzgRTvnFha7N5nTdcBh8qagts4M2hNG_2GqHNRfLZ6YlH7DgzUA9wUqriKx-sekvDwo4Z5Sgv2jOzEPe3ga791OjBVCXGTssj9fr1y8JlYrEr5P7F5Cp0m5uRzr)
-如果一句道歉就能化解，港府执法部门对港人相关的惩罚就是违法！怎么不见警察带队杀入酒楼查处这些违法聚集的高官政要，而是隔三岔五地冲进酒吧处罚休闲的港人。这些特权阶级犯了法想用一句道歉免责，真是痴人说梦。中共眼里也是容不下沙子的，在香港社会对中共的管制民怨沸腾之际，杀一儆百不仅可以重振党风，更能彰显中共的“法制”精神。香港的高官政要们应该人人自危，谨记自己不过是中共随时可以丢弃的棋子而已。
+“与 2020 年初激增的购买（谁可能忘记卫生纸）不同，（此次短缺）是因为我们供应链中收到隔离要求的人数众多——从供应商到卡车司机和配送中心团队成员——这反过来导致了材料延误存储交货……为了让您了解挑战的严重性，我们的配送中心和终端超市的缺货率分别为 20% 以上和 10% 以上。”
 
-资料来源：[**为徐英伟护短？狄志远：促下台情绪化  叶国谦：倘获邀自己或出席**](https://www.hk01.com/%E6%94%BF%E6%83%85/721187/%E7%82%BA%E5%BE%90%E8%8B%B1%E5%81%89%E8%AD%B7%E7%9F%AD-%E7%8B%84%E5%BF%97%E9%81%A0-%E4%BF%83%E4%B8%8B%E5%8F%B0%E6%83%85%E7%B7%92%E5%8C%96-%E8%91%89%E5%9C%8B%E8%AC%99-%E5%80%98%E7%8D%B2%E9%82%80%E8%87%AA%E5%B7%B1%E6%88%96%E5%87%BA%E5%B8%AD)
+新南威尔士州目前是受影响最严重的州，但班杜奇先生表示，整个国家都受到了影响——目前尚不清楚该系统将在多长时间内恢复。班杜奇敦促人们在购物时要“灵活变通”，例如用同一类别的另一种产品替换缺席的首选品牌。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+不过目前Woolworths还没有采取限购措施的打算。在澳大利亚三大超市连锁企业中，只有Coles一家目前针对部分商品设置了购买上限，例如鸡胸肉一次只能购买两包，而快速抗原测试套装则一次只能购买一件。
+
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-supermarket-shortages-woolworths-coles-aldi-grappling-with-impact-of-omicron/ac3d6a2a-30f6-4905-a9f4-5067d8627053)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
