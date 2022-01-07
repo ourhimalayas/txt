@@ -2,19 +2,22 @@
 ---
 
 
-## 深圳报告两例中共病毒感染者
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831126/)
+## 雅典娜时报-第165期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831138/)
 
-撰稿：追着曙光跑
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-据深圳卫健委1月7日的发布消息，深圳市对重点从业人员定期核酸检测时，发现两例中共病毒（新冠病毒）阳性感染者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-11.43.49.jpeg)图片来源：网络
-两例患者是一对夫妻，居住在深圳市龙岗区布吉街道布吉社区。1月6日在例行核酸检测“10混1”采样中，中共病毒核算初筛选为阳性，1月7日经深圳市疾控中心复核为阳性。目前已经转移至深圳市第三人民医院应急院区隔离治疗，相关密切接触者正在排查中。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/927715910427492382/928837730971029504/155_1.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/927715910427492382/928837731277234206/155_2.png?width=910&amp;height=1355)
+***发布：****陶子*
 
-信息来源：[深圳报告2例新冠病毒阳性感染者](https://mp.weixin.qq.com/s/ZjTuhpZeC6T0e66FiyyBkA)
- [深圳新增2例阳性感染者：系夫妻](https://cj.sina.com.cn/articles/view/6127950989/16d411c8d001013b5q?autocallup=no&amp;isfromsina=no)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
