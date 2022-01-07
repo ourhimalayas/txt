@@ -2,24 +2,31 @@
 ---
 
 
-## 讨共檄文
-` STHK` [轉載自GNews](https://gnews.org/zh-hans/1832761/)
+## 美海军首次在西太海外基地部署最新型侦察无人直升机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832820/)
 
-STHK001
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-414.png)
-自1949年邪教组织-中国共产党，利用卑鄙、下流的手段盗取国家政权70年以来，原本山川壮丽、物产丰隆的华夏大地被统治者治理的一片狼籍。仁爱、孝悌、诚信、克己奉公等优良美德荡然无存。见利忘义、贪污腐败、骄奢淫欲、恶斗乱伦，假骗抢偷的卑劣文化充斥着整个社会。它们大开宣传机器，一方面用共产邪教的毒害思想灌输进入我们的大脑，使人丧失了独立的思想和明白是非的能力，从而使人们变成任其宰割愚弄的羔羊。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-415.png)
-中共窃取国家政权以后，另一方面掀起一次次惨绝人寰的整风运动，其目的就是为了通过内斗的手段将权力集中于个人手中，消灭异己更是祸害了千万无辜百姓的生命。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-418.png)
-据国内外史料记载，在各项运动中被残害致死的总人数最保守估计达到8000万。这8000万同胞中不包括新疆种族灭绝以及遭受残害的西藏同胞，及香港同胞。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-416.png)
-特别是2019年，丧心病狂的中共邪教为了达到称霸世界的目的，党魁之首-习近平向全世界释放了“新冠肺炎病毒”， 悍然发动了生化武器战争。在这场没有硝烟的战争中截止2021年12月24日，全球感染人数约2.9亿，死亡约539万人。其中，中共与黑暗势力所控制的制药公司推出的对疫情传播没有任何防治作用的疫苗，正在加重疫情的传播，威胁着全球人的生命安全。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-417.png)
-是可忍孰不可忍”。新中国联邦在郭文贵先生的领导下，带领我们用事实真相向全世界揭露共产党的邪恶本质与欺骗行径。掀开中共邪魔身上的层层外衣，让世界看清共产邪教的狰狞面目和犯罪事实。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-78.png)
+[图片来源](https://www.mvrsimulation.com/casestudies/uav/us-navy-mq-8bc-fire-scout-ship-based-simulator.html)
 
+据seapowermagazine网站1月4日报道，美国海军已为第7舰队列装最新型 MQ-8C “火力侦察兵”无人直升机。
 
+据报道，此次列装的主要作战使命是，“在美国第 7 舰队的作战区域进行轮换部署，以增强与合作伙伴的互操作性，并作为随时响应的力量，支持自由开放的印太地区。”
 
-作者：荷花
+报道称，MQ-8C于2019年6月具备初步形成作战能力，隶属于位于美国加利福尼亚州北岛海军航空站的第23直升机海上作战中队的一个分队，装备在“独立级”濒海战斗舰“杰克逊”号（LCS 6）上，用于执行超视距目标侦察任务，提升濒海战斗舰的态势感知和杀伤能力。
+
+据报道，MQ-8C是MQ-8B是升级版，由诺斯罗普·格鲁曼公司研制。其机身结构基于Bell 407直升机，比MQ-8B的机身更大；配备了更强大的发动机，飞行速度更快；可携带更多的有效载荷，如ZPY-8搜索雷达或光电/红外传感器；具有更长的续航时间，达到了12小时；并可使用与MQ-8B相同的地面控制站。美海军还计划为MQ-8C配备link-16数据链，被动目标定位和反水雷等有效载荷，使其具备更多的能力。诺斯罗普·格鲁曼公司将向美国海军交付38架MQ-8C，目前已交付了33架。
+
+据专家分析，此次美国海军首次在西太平洋海外基地部署最新型侦察无人直升机，针对中共的意味明显。
+
+信息来源：
+
+[Navy’s Newest Fire Scout UAV Version Prepares for Westpac Deployment – Seapower](https://seapowermagazine.org/navys-newest-fire-scout-uav-version-deployed-to-westpac-without-fanfare/)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

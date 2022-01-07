@@ -2,26 +2,28 @@
 ---
 
 
-## 世界网球名将因疫苗豁免被澳洲拒绝入境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833003/)
+## 中共赴哈萨克斯坦索金不成 制造暴动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833098/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，曾公开批评强制疫苗政策的世界男子网球名将诺瓦克·德约科维奇在墨尔本机场被澳大利亚边境官员拒绝入境。当地官员声称，德约科维奇的中共病毒疫苗豁免不被澳洲政府认可。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.14.49.png)
-德约科维奇随后表示，他本人已经获得了由免疫学、传染病学和全科医生组成的医疗小组开具的中共病毒疫苗医疗豁免证明，该证明也符合澳大利亚免疫技术咨询小组所规定的条件。然而，当德约抵达墨尔本机场时，他却被当地武装警察长时间看守在一个隔离室中等待入境许可，但是，维州政府最终拒绝为德约的签证担保。
+当地时间1月5日，据相关媒体报道，近日，哈萨克斯坦多个城市发生暴动。当地群众的诉求从最开始对燃料价格飙涨的抗议，演变成后来因对政府不满引发的激烈冲突。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-9.jpg)
+目前，该国已有人员伤亡，相关政府官员也因此下台，总统正在请求俄罗斯领导的集体安全公约组织CSTO协助解决这起动乱。
 
-经边境官员证实，德约的签证目前已经被取消，此外，他将于本6日被遣返。
+而据郭文贵先生在1月5日的直播中爆料，哈萨克斯坦当下的群众抗议行动是由中共主导并发动的反政府行动。 郭先生解释，哈萨克斯坦此前帮王歧山及江泽民保管了100吨黄金，而今习近平派王毅前去索要这批黄金却遭该国总统当面拒绝。为此，王毅威胁该国总统，倘若其不交出黄金，哈萨克斯坦三日内必有暴动。随后，哈萨克斯坦确如王毅所声称的陷入群众暴动之中。
 
-据悉，塞尔维亚总统也紧急召见了该国的驻澳大使。而在未能扭转当前局面后，塞尔维亚总统表示，整个塞尔维亚都与球员德约科维奇在一起。
+郭先生透露，哈萨克斯坦总统已经向俄国求援，同时也向中共服软，允诺将分数次交回黄金。另外，该国甚至还答应将动乱原因推责给美国。
 
-参考链接：[Djokovic in limbo as lawyers fight Australia ban; mother says he is ‘prisoner’ in hotel](https://www.reuters.com/lifestyle/sports/exclusive-novak-djokovic-denied-entry-australia-seeking-injunction-stop-2022-01-05/)
+参考链接：
+1) . [2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
+2) .[哈薩克動亂釀數百死傷 獨裁政權求助俄羅斯等國\[影\]](https://www.cna.com.tw/news/firstnews/202201060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编：Irene木木
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
