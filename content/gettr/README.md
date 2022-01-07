@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 11:39 PM (UTC)`
+
+1/07/2022 Miles Guo: Countries that implement vaccine mandate are controlled by a political party that controls the government and legislature and uses the same trick to push COVID vaccines that all the vaccine manufacturers are not responsible for; taking preventative measures is more important than the antidote; the vaccine mandate is bound to fail given the public opinions in the United States!<br/><br/>1/07/2022 文贵直播：推行强制疫苗政策的国家都是由一个政党控制了政府和立法机构，用同一套路推疫苗，所有疫苗厂商都不负责；防范比解药更重要；民意决定了强制疫苗在美国行不通！<br/>
+![img](https://media.gettr.com/group32/getter/2022/01/07/23/8d0c88c0-6902-fcb3-d564-52ceff545e77/out.jpg)
+
+---
+
+`@miles 1/7/2022 11:29 PM (UTC)`
+
+1/07/2022 Miles Guo: The Omicron is extremely infectious, so you can’t be too careful about it! The COVID vaccines are more horrible than the CCP virus! The mRNA in the COVID vaccine is technically the spike protein, which can make it easier for people to catch the virus<br/><br/>1/07/2022 文贵直播：奥米炕病毒传染性极强，请大家千万不能掉以轻心！疫苗比病毒还可怕！疫苗中的mRNA就相当于刺突蛋白，它能让人更容易染毒<br/>
+![img](https://media.gettr.com/group46/getter/2022/01/07/23/55461b65-b221-25ed-0aae-099c03d9ca2b/out.jpg)
+
+---
+
 `@miles 1/7/2022 8:31 PM (UTC)`
 
 1月7号：又来浪啦了……
@@ -139,20 +153,6 @@ Who's Miles Guo Episode 2 Artemisinin and Ivermectin<br/>谁是郭文贵 2 青�
 
 1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！
 ![img](https://media.gettr.com/group28/getter/2022/01/07/02/cd3eb79d-becc-6efd-d7d3-d778a1f6dc05/out.jpg)
-
----
-
-`@lara8 1/7/2022 1:21 AM (UTC)`
-
-Congrats @gettr !!!!
-![img](https://media0.giphy.com/media/l0Iyn7lXkxJvgyurK/giphy.gif?cid=673afae0zlnrsp1rghq9ulrnqf4bqkuo4p49ucl6lomd3s54&rid=giphy.gif&ct=g)
-
----
-
-`@miles 1/6/2022 10:08 PM (UTC)`
-
-1/05/2022 Miles Guo: GETTR is not only the life-saving media platform that exposes the COVID vaccine disasters, but also the very first revolutionary social media platform that does not profit from advertising or selling personal data<br/><br/>1/05/2022 文贵直播：GETTR是揭露中共疫苗灾难的救命媒体，也是首个不靠广告费和出卖个人信息盈利的革命性的社交媒体平台！
-![img](https://media.gettr.com/group16/getter/2022/01/06/22/e49e59f6-89b2-b0b7-86c2-d58b4783c598/out.jpg)
 
 ---
 
