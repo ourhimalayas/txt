@@ -2,39 +2,31 @@
 ---
 
 
-## 乔·罗根和罗伯特·马龙博士访谈的十二大要点
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831321/)
+## 有声|捷克新政府将与台湾全面合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831429/)
 
-翻译：zzballack
-上传：追着曙光跑
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月3日，据台湾媒体报导，2021年12月中旬上任的捷克总理费亚拉率领新政府公开表示，捷克将展开与包括台湾在内的全球民主国家合作，同时将修正前任政府过度偏向中共与俄罗斯的路线。
 
-据《The Covid World》1月5日报道，mRNA技术的发明人罗伯特·马龙（Robert Malone）博士曾与安东尼·福奇和疾控中心的科学家有过直接合作。但他拒绝遵从他们邪恶的疫苗议程，该议程已经严重破坏了医学伦理、医疗隐私和知情同意原则。因为揭露新冠疫苗真相，马龙博士被推特禁言，但他发誓要继续 “说出真相”。他和知名主播乔·罗根 (Joe Rogan)的访谈无疑是2021年最有见地的对话之一，以下列出了该访谈的十二大要点。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-12.55.34.jpeg)
-1.功能增强研究最终为开发类似但不同的刺突蛋白生物武器铺平了道路，刺突蛋白目前正被用作新冠疫苗的mRNA指令。马龙说，制药公司有道德义务证明其疫苗中的刺突蛋白没有毒性。
+报道提及，由五大党派组成的捷克新政府在最新的联合执政协议中明确指出，捷克会重拾以人权为价值导向的外交政策，包括推动捷克版“马格尼茨基法案”，并允许捷克政府对侵犯人权的个人和企业实施制裁。此外，本届政府将扭转总统齐曼和前任总统巴比斯此前采取的亲中共路线。
 
-2.对于许多人没有受到疫苗的急性伤害，有些人甚至根本没有表现出不良反应这个问题，马龙解释说，反应曲线是由个体免疫系统的差异造成的，包括表型（phenotypic）或者遗传差异。
+原文链接:[捷克新政府将与台湾全面合作](https://gnews.org/zh-hans/1825352/)
 
-3.马龙说“反疫苗者（anti-vaxxer）”这个词被用来错误地羞辱那些不听从公共卫生官员命令的人，它也同样被用来排斥社会上任何对制药公司的宣传持异议观点的人。
+音频处理：喜山必胜Maverick
 
-4.马龙强调说，强迫儿童戴口罩和隔离会给他们造成心理创伤，这些措施是非人性化，非社会化的，是对儿童的虐待。
+发稿：Daxia
 
-5.罗根问道为什么硫酸羟氯喹和伊维菌素被媒体抹黑并被监管机构阻止。马龙回答说，有两个人在这个决定中起了关键作用。其中一个是疫苗推广者瑞克·布莱特 (Rick Bright)，他在洛克菲勒基金会（The Rockefeller Foundation）运营流行病预防研究所（Pandemic Prevention Institute）。布莱特利用他生物医学高级研究与发展署主任的职务，诋毁氯喹和羟氯喹。历史证明，这两种药物均对SARS病毒有效，而且安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-6.另一个阻挠新冠治疗的人是珍妮特·伍德科克 (Janet Woodcock)。在2021年1月20日执掌美国食品药品监督管理局（FDA）后，她利用该机构嘲弄伊维菌素。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-7.羟氯喹和伊维菌素都在世卫组织提供的基本药物清单上。这两种药物已被安全地使用了数十亿剂量。这些药物可以缓解新冠症状，缩短病程，防止重症和死亡，印度北方邦的低死亡率与伊维菌素的广泛使用有关。
-
-8.马龙说，医院拒绝新冠的治疗方案是因为他们每诊断出一个新冠患者就可以得到大约3000美元的报销费，而且给新冠患者使用瑞德西韦（remdesivir）和呼吸机还会获得进一步的经济激励。这些与肾衰竭、肺部损伤和致命的鼻腔感染有关。
-
-9.关于新冠疫苗的疗效减弱的问题，马龙说疫苗正在导致负疗效。随着疫苗剂量的增加，接种者更容易被感染，而且疾病加重。他们的B细胞和记忆T细胞被训练来攻击早已变异的刺突蛋白，使其抗体依赖性增强，并出现自身免疫问题和癌症。
-
-10.罗根和马龙讨论了自然免疫，以及证明先天免疫优于实验性疫苗的免疫反应的研究。
-
-11.马龙指出，年轻男孩在接种新冠疫苗后患上心肌炎的趋势令人不安，脂质纳米颗粒对女性卵巢的影响会导致她们有不孕的风险。马龙还对刺突蛋白及其导致的血栓发出警告。
-
-12.马龙警告说：“我们的政府失去了控制。他们无法无天，完全无视生物伦理学。强制人们接种实验性疫苗显然是非法的，而且不符合纽伦堡守则 (Nuremberg Code)。”
-
-信息來源：[Top 12 Takeaways From The Joe Rogan And Dr. Robert Malone Interview](https://thecovidworld.com/top-12-takeaways-from-the-joe-rogan-and-dr-robert-malone-interview/)
 
  
 

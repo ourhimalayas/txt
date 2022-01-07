@@ -2,30 +2,23 @@
 ---
 
 
-## 盖特拿下苹果应用商店排名第一
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1831228/)
+## 朝鲜：因全球疫情原因将不参加2022北京冬奥会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831277/)
 
-作者：纽约香草山健身部–Jack Li文阳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月6日，盖特官方账号发盖文称：盖特在苹果应用商店中排名第一，在谷歌Play商店排名第二。特此感谢所有的用户，让我们取得这样的成绩！
+撰稿—八木
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.22.25.046.jpg)
+朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京20022年冬季奥运会及冬季残奥组、中共国家体育总局致函。
 
-文贵先生在当天下午也就此事发了两个盖特，和大家分享这一好消息，并说：奇迹就这样发生了，正道得天道！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha143.47-AM.jpeg)图片资料：金正恩
 
-[https://gettr.com/post/pmu4j39141 \[22:42\] https://gettr.com/post/pmotxe83c3 \[22:42\] https://gettr.com/post/pmopokbeb1](https://gettr.com/post/pmu4j39141%20[22:42]%20https://gettr.com/post/pmotxe83c3%20[22:42]%20https://gettr.com/post/pmopokbeb1)
+致函中朝鲜表达了对中共的赞赏，称中共集国家、全民之力即使在全球公共卫生危机大灾殃中也能让冬奥会筹办工作在高水平上圆满进行。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**更多资讯，更多关注**
+关于全球各国对中共冬奥会的抵制，朝鲜在致函中表示那是美国及其追随势力的反华阴谋，是污蔑抹黑的卑鄙行径。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+对于北京即将举办的冬奥会，朝鲜官方致函称，因为敌对势力的阴谋活动和全球传染病大流行，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持中共举办北京冬奥会。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+相关新闻：[朝鲜：因全球疫情等原因无法参加北京冬奥会，但将全方位支持和声援中国](https://news.sina.cn/gn/2022-01-07/detail-ikyakumx8799639.d.html?isJump=0&amp;universallink=1&amp;from=wap)
 
  
 
