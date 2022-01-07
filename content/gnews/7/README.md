@@ -2,41 +2,26 @@
 ---
 
 
-## 菲律宾总统威胁未接种新冠疫苗的人要坐牢
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831671/)
+## 日美成功举行“2+2”会谈 强化合作对抗中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831712/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-374.png)[图片来源](https://search.yahoo.co.jp/amp/s/www.sankei.com/article/20220107-4UBTJFS3HJO63GOOZBPGPGE3UU/%3FoutputType%3Damp%26usqp%3Dmq331AQIKAGwASCAAgM%253D)
+7日上午，日美两国政府举行了外交和国防部长(2+2）线上会议。会后联合声明中，双方表示“决心继续使同盟合作现代化并进一步加强共同協作能力”。日本强调将考虑采用所有必要方式加强国防，并表示在拥有攻击敌方基地的能力方面，愿与美方进一步商讨。美日双方承诺，在紧急情况下，将积极推进联合作业。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/菲律宾总统.png)
+出席会议的有日本外相林芳正、国防部长岸信夫，以及美国国务卿布林肯和国防部长奥斯汀。这是自岸田政府上台以来的第一次正式会谈。
 
+在联合声明中，双方批评了中共国在东海和南海的霸权行径。在会上，布林肯点名批评中共国和俄罗斯在陆海、太空和网络方面的行为违反国际规范；中共国的挑衅行为继续加剧了台湾海峡、东中国海和南中国海的紧张局势。另，俄罗斯增加在乌克兰边境的兵力，不仅威胁到乌克兰的主权和领土，而且还威胁到欧洲的和平与稳定；朝鲜的非法核·导弹开发构成了持续的威胁。
 
- 
-图片来源：www.rappler.com
+林外长表示双方必须以持续而有效的方式应对当前及未来的挑战。并表明将不断加强美日同盟合作，以实现自由开放的印太地区。
 
+布林肯表示，双方就拦截高超音速武器和发展太空能力方面，将签署一项新的研究开发协议。
 
-#### 编译：小红帽
+信息源：[日米2プラス2「同盟を絶えず現代化」　新たな共同研究の意向も](https://news.yahoo.co.jp/articles/3dd68c4c8f8bcd66c574891b6ca8e27ae12b6cb2)
 
-根据《RT新闻》1月6日报道，随着菲律宾的新冠病毒感染率创下三个月的新高，总统罗德里戈·杜特尔特(Rodrigo Duterte)对未接种新冠疫苗者采取了坚定的态度，威胁说如果他们违反禁闭令，将逮捕这些 “顽固分子”。
-
-在周四向全国发表的电视讲话中，杜特尔特宣称，由于他 “对每个菲律宾人的安全和福祉负责”，他不得不对那些仍然没有接种新冠疫苗的人采取坚定的态度。
-
-杜特尔特的强硬立场反映了菲律宾对新冠病例数量上升的担忧，医学专家担心这可能会使该国的医疗系统不堪重负，有可能导致死亡人数上升。
-
-杜特尔特此前曾直言不讳地表示他对反新冠疫苗接种者的愤怒，并在去年警告说，如果人们拒绝接受新冠疫苗接种，他们可能面临监禁或被迫注射伊维菌素。
-
-2021年底，政府数据显示，菲律宾有4980万人完全接种新冠疫苗。这个数字还不到该国1.1亿人口的一半。
-
-新闻来源：[President threatens unvaccinated with prison time — RT World News](https://www.rt.com/news/545319-philippines-threaten-arrest-unvaccinated/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
