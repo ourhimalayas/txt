@@ -2,23 +2,23 @@
 ---
 
 
-## 纽约计划强制其市政雇员接种疫苗加强剂
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831708/)
+## 安省中小企业因疫情限制措施而陷入困境
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831724/)
 
-采编/编译撰稿：Spirit       校对编辑，发稿：硫酸羟氯喹64
+采编/编译撰稿：文莱      校对编辑，发稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-3-edited.png)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-9-edited-1.jpg)图片来源：TNH
 
 
-据《纽约时报》1月2 日报道，纽约市长亚当斯当天表示，当局目前正计划对其所有市政雇员强制接种“新冠病毒”疫苗加强剂。
+据加拿大媒体【真北方】1月3日报道，[加拿大独立企业联合会]日前对安大略省政府即将推出的疫情封锁措施发出警告，并认为当局极端的防疫政策正在摧毁该省的中小型企业。
 
-报道称，目前纽约市政府的在职雇员都已完全接种了“新冠病毒”疫苗，但随着“奥密克戎”疫情的失控爆发，当局已考虑是否需要对教师，警察以及其他市政工作人员强制注射第三剂疫苗。并认为应该同时在学校内推行强制性病毒检测计划。
+报道称，由于多伦多的疫情封锁限制，餐馆的室内用餐已被禁止了408天，而健身房也已关闭了395天之久。据该商业集团的数据显示，安省仅35%的小企业恢复了营业，而该省小企业在疫情期间的平均债务为19万加元，并且已有约20%的商家正在计划宣布破产。
 
-此外，纽约州长近期也宣布，该州近60万名公立大学的学生将很快被州政府要求接种该疫苗的加强剂。
+不仅如此，雪上加霜的情况是：由于近期“奥密克戎”病毒的肆虐，安省又因此再次恢复执行了更加严厉的封锁规定。据悉，将于1月5日生效的防疫措施包括：将零售店的顾客容量缩减50%，关闭学校和所有室内会议和活动场所，以及关闭酒吧，餐馆和影剧院等公共娱乐场馆。
 
 * * *
 
-原文链接：[https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests](https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests)
+原文链接：[CFIB condemns Ontario government for reintroducing restrictions | True North (tnc.news)](https://tnc.news/2022/01/03/cfib-condemns-ontario-government-for-reintroducing-restrictions/)
 
  
 
