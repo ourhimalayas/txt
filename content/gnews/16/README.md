@@ -2,31 +2,27 @@
 ---
 
 
-## 台湾买下中共阻止立陶宛出口的2万瓶朗姆酒
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1832534/)
+## CCP病毒加强针施打范围或在美进一步扩张
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1832560/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/121C.jpg)图片制作：澳喜农场©森森
+面对 omicron 激增，美国正在扩大 CCP病毒加强针的注射范围——美国食品和药物管理局允许为年仅 12 岁的儿童提供额外的辉瑞疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-410.png)图片来源 ：businessinsider.com
+截至目前，所有 16 岁及以上的美国人已被建议使用CCP病毒疫苗加强针，联邦监管机构本周决定，一旦第二剂疫苗接种完成并且经过足够的等待时间，12 至 15 岁的孩子也可以使用CCP病毒加强针。
 
-据《南华早报》报道，台湾出面购买了2万多瓶被北京阻止进入中共国的立陶宛朗姆酒。
+但是，随着假期后课程重新开始，这一举措或许并不是最后一步。预计疾病控制和预防中心的一个评估小组将在本周晚些时候决定是否要为更加年轻的少年提供CCP病毒加强针。
 
-在维尔纽斯（Vilnius）决定允许台湾在11月开设事实上的大使馆之后，中共国已经连续数月阻止了与立陶宛（Lithuania）的贸易。中共国声称台湾是中共国的一部分，而台湾则坚持其独立性。
+美国食品和药物管理局同时还表示，每个 12 岁及以上有资格接种辉瑞加强剂的成人或者青少年最早可以在接种第二剂CCP病毒疫苗五个月后进行加强针注射，而不用像过去那样等待六个月的时间。
 
-中共国经常对各国施加压力，要求它们承认台湾是中共国的一部分，并在12月说，除非立陶宛改变主意，否则它将落入”历史的垃圾桶”。值得一提的是，在得知中共国即将阻止立陶宛 MV 集团生产的2万0400瓶黑朗姆酒的进口后，台湾烟酒公司（由该国财政部拥有）于12月18日购买这批货物（如下是来自脸书的截图）。
+然而事实上，青少年接种CCP病毒疫苗最主要的安全问题之一就是我们最近常常听到的心肌炎——这是一种心脏炎症，主要见于接种辉瑞或 Moderna 疫苗的年轻男性和青少年男孩。美国食品和药物管理局在做出相关决定时其实并没有咨询任何独立的科学顾问团体。
 
-在这场北京和台湾的外交纷争中，中共国将其驻立陶宛大使馆降级为代办处，一些立陶宛外交官离开了中共国。
+截至目前，据美国疾病控制与预防中心的报告显示，大约已经有 1350 万 12 至 17 岁的儿童接种了两次辉瑞疫苗，即该年龄组接近一半的人已经完成了两剂疫苗接种。早在12月份，16岁及以上的未成年人就已经被允许进行CCP病毒加强针的注射。
 
-据彭博社报道，立陶宛政府已经为那些因与中共国的争执而业务受到影响的公司，推出了1.48亿美元的援助计划。
+新闻参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-412.png)图片来源 ：businessinsider.com
-
-新闻来源：[businessinsider.com] [When China blocked Lithuania from exporting 20,000 bottlesof rum in a diplomatic feud, Taiwan bought the whole shipment instead, report says](https://www.businessinsider.com/taiwan-buys-20k-rum-bottles-blocked-from-china-2022-1) | 发布时间：2022年01月05日
-
-* * *
-
-*发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+[AP News](https://apnews.com/article/coronavirus-pandemic-vaccine-booster-teens-pfizer-42489d8e45ade4efe74aba5350393549)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
