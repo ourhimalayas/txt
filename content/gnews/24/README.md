@@ -2,193 +2,31 @@
 ---
 
 
-## 2021年、2022年是人类命运的分水岭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
+## 七哥谈冬奥会和个人政治（2022-01-05摘录）
+` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1834127/)
 
-[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-我觉得爆料革命和新中国联邦
-Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
+来源：郭先生2022-01-05直播10：10：40摘录
 
-包括人类的命运
-Incluyendo el destino de la humanidad
+冬奥会的时候，我也很简单的告诉大家一个答案。大家从希特勒还有前苏联都是两届冬奥会，三年、十一年、七年、十一年就全灭了，是吧！就死亡。到了中共的冬奥会，包括一定想到当年2008的奥运会。2008的奥运会是同一年，也就2000年中共获得了WTO的入场券，还有一个就是当年的夏季奥运会。然后中国共产党就在世界上一下子躲过了八九六四必灭的命运，经济萎靡，是在那种情况下，他起来的。那现在又搞了个冬奥会，他现在也开始到了一个病毒、疫苗灾难，经济大崩溃，要打台湾等这种情况，这绝对不是那么简单的。这就历史可以告诉我们很好的答案，但是人类上有几个去学历史的呢？人类上都知道上天之间有轮回，相信上天，有几个真正的相信上天的？很少很少。那么现在我们看到这个时候，这绝对不是一个简单的历史的重复，没那么简单的。大家要看到希特勒、斯大林、列宁、萨达姆、卡扎菲、乌干达的阿明，包括苏哈托，包括日本的天皇，我们就去看，他们都有一个共同的特点，从开始自己是一个完全的偶然，经过一定程度的一些人对他的吹捧。把偶然变成了神迹，把神迹变成了个人崇拜。然后从过去的给所有人一个未来，变成了自己要控制一切未来。然后要干掉一切过去的相信的上帝，然后他变成了上帝。造神嘛！然后让所有许给全世界人所有最美好的故事，变成了他自己唯一的好故事。最后他被消灭，因为他是肉体之身，他也是黄粱一梦，他没有什么了不得的。他只是他死之前，他给全世界带来了个噩梦。最后噩梦醒来，大家很多人陪葬的。那么现在共产党习近平，大家看冬奥会的一点都不用， 就是个简单答案，这是个独裁者必然走向的路。为什么？一切都为了个人政治。冬奥会就是要在国内政治上、经济上说，我习想干到的事情，国际上认可我，国内老百姓认可我。国内老百姓像打了真的是伟哥的精神针一样，你看看我都能搞冬奥会。全世界万朝来拜我，是不是！那么这就是牛嘛！然后我就可以打台湾，所有的一切就是为了他理所当然的统治人民，然后把自己当成神。还有一个更可怕的事情，就是99%被愚弄人的一种精神麻醉办法，没有任何扯淡的事情。什么音乐呀？你看瓦格纳的音乐，苏联的四大歌手，中国的跟着党走，是不是！中国国歌呀！所有的文化大革命、大跃进、毛泽东他都是一样，就是个人权利的集中，就是一个个人的政治野心。是吧！然后今天的所谓的共享财富，什么现在让全国人民共同的富裕，这都是为了一个个人的政治。悲哀是在哪里？很不幸，所有相信他的人，最后都会成陪葬品。很可悲、很可恨，但是最终必然是结果。就像日本天皇当年打东南亚战争一样，我们不打这战争，日本三个月就活不了。我们没有能源，没有资源，没有油，没有气。结果是如何呀？日本最后打败以后，日本诞生了，就像日本的新生以后成为国际的成员。就像共产党一样，我们现在不灭美国，美国就灭咱呀。跟当年的日本天皇是一样的。我们今天不去灭美国，不灭白人，白人就要灭咱啊。这就是现在共产党所说的在亚洲，我们不冲出亚洲，人家就灭了咱了。冲出亚洲要怎么灭呢，是吧？干掉日本、压住日本。印度，让他永远不能比咱富裕，不能比他强。然后团结周围国家，搞一带一路。输出革命，输出产业，过度产能。然后控制能源，控制中东；然后建立全天候的战略伙伴关系；然后布置中远程导弹，在全世界布置军事基地；然后在太空中布置战略性武器，让美国不敢动，欧洲不敢想，我们就要征服了全世界。然后把亚洲战略扩展到北欧、哈萨克斯坦、吉尔吉斯斯坦。是吧！阿塞拜疆全部拿下，过去都属于外蒙，拿下，台湾拿下，然后南海增加了四百八十万平方公里的油、气、水；然后我们就称霸亚洲和北欧；然后俄罗斯你弄你的，欧洲不要东扩，拿回乌克兰甚至拿回立陶宛，过去的苏联国家；你把我的地盘给我。
 
-我觉得2021年、2022年是人类的分水岭
-Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-今天我说了你们就不觉得惊讶了
-Hoy no se sienten asombrados si les digo esto
+**关注我们**
 
-如果一年前我说你们(会)觉得我神经病
-Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
+Discord 账号
 
-是不是, 夸张、吹牛
-Cierto, exagerado, presumido
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-我从来没想试图说服过任何人
-Yo nunca he pensado de persuadir a nadie
+Gettr 账号
 
-包括你七嫂
-Incluyendo a mi esposa
-
-包括我家人, 我从来没有过
-Incluyendo a mi familia, nunca lo he pensado
-
-因为人的缘分不是你能说服得了的
-Porque la afinidad entre personas no puede ser persuadida
-
-人和人之间的关系
-La relación entre las personas
-
-真的不是你用嘴(说)能达到的
-Realmente no se logra con la boca (diciendo)
-
-真正的人与人的信任和感情
-La verdadera confianza y sentimiento entre las personas
-绝对不是嘴能说到的
-No se dice con la boca
-
-很多过去的欺民贼, 伪民运
-Muchos matones del pasado, movimiento de la pseudodemocracia
-
-他(们)不懂这个道理
-(Ellos) no entienden esta verdad
-
-就是人类这个灵性动物
-Es decir, los seres espirituales como los seres humanos
-
-他最终是一定要看行动的
-Él al final lo que ve es la acción
-
-最终就是以结果论
-Finalmente toma el consecuencialismo
-
-这就是动物和植物界的根本不同
-Esta es la diferencia del origen entre los animales y el mundo de las plantas
-
-那么我们在这个地球上
-Entonces, nosotros estamos en este planeta tierra
-
-我们大家面对着一个物质的世界
-Enfrentamos a un mundo material
-
-和一个我们完全无法想像的未知的星空
-Y un cielo estrellado desconocido que ni siquiera podemos imaginar
-
-银河系, 太阳系
-Vía Láctea, Sistema Solar
-
-无限大的宇宙和地球之间一粒沙的关系
-La relación entre un grano de arena del universo infinito y la tierra
-
-我们跟人之间相处的时候实际是最复杂的
-En realidad, lidiar con las personas es lo más complicado
-当今天我们看这个同心同框, 这么多战友的时候
-Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
-
-大家能看到有人说话多一点, 有人说话少一点
-Todos pueden ver que algunas personas hablan más, otros hablan menos
-
-有人激动一点, 有人水多一点(或)水少一点儿
-Algunos son más emocionados, otros con más agua o menos
-
-是不是
-Cierto o no
-
-分男女, 分老少, 分长短
-Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
-
-但是大家记住
-Pero todos recuerden
-
-我们心中最大的魔就是分高低
-El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
-
-而且这个高低是谁定的, 是你自己定的
-Además, quién decide esto, tú mismo
-
-都是我们每个人自己的标准去量所有的人去
-Utilizamos nuestros propios estándares para medir a los demás
-
-这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
-En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
-
-我们今天讲了那么多
-Hoy hablamos tantas cosas
-
-我们没讲金, 没讲土
-Pero no mencionamos el oro y la tierra
-
-但是我们的新中国联邦的旗是什么旗
-Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
-
-我们的蓝色就是蓝色海洋和星空
-Nuestro color azul significa el mar y el cielo estrellado
-
-你知道在中(共)国是不用蓝的
-Sabías que en República Popular de China no se utiliza el azul
-
-中国人什么时候用蓝你知道吗
-¿Sabes cuándo los chinos usan el azul?
-
-头两天你七嫂憋了一年都没说
-En los primeros dos días, mi esposa aguantó durante un año sin decirlo
-
-你七嫂给我留面子
-Era para que no pasara pena
-
-我知道你七嫂要说什么
-Yo sé lo que ella quería decir
-
-就是说那个蓝色的时候
-Hablando lo del color azul
-
-你七嫂说, 哎呀
-Ella dijo, ay
-
-她说在咱老家咱娘说, 这叫什么
-En nuestra ciudad natal, nuestra madre dijo que esto se llama
-
-就是在我们山东老家, 人死了用那个蓝色
-En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
-
-就是那个蓝色是死亡蓝的意思
-Quiere decir que el color azul representa la muerte
-
-我特能懂, 我啥也没说
-Puedo entender totalmente esto, no dije nada
-因为你七嫂子她是山东人
-Porque mi esposa es de Shandong
-
-她是我的爱人, 跟我一起长大的
-Es mi amor y creció conmigo
-
-但是我就没法跟她解释
-Pero no puedo explicarle
-
-她未来会懂得
-Ella entenderá en el futuro
-
-* * *
-
-日期：01/06/2022
-原视频标题：2021年、2022年是人类命运的分水岭
-El año 2021 y 2022 son la línea divisoria de agua del destino humano
-
-原视频日期：01/03/2022
-原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
-任务编号：KC399（3406）
-视频时间段：00:00-02:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布: 洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
