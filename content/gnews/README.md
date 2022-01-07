@@ -15,80 +15,80 @@
 
 ---
 
-### [有声|中共极端清零 河南禹州封城](/content/gnews/1/README.md)
+### [中共以商围政失效 经济迅速衰退](/content/gnews/1/README.md)
+ ` GTV News Talk`
+
+### [有声|中共极端清零 河南禹州封城](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [NFSC为真不破的如水的生命源泉与人生命的活力](/content/gnews/2/README.md)
+### [NFSC为真不破的如水的生命源泉与人生命的活力](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/3/README.md)
+### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [彭佩奥告诉纽约邮报他如何在6个月内减了90磅](/content/gnews/4/README.md)
+### [彭佩奥告诉纽约邮报他如何在6个月内减了90磅](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德约科维奇在与澳大利亚驱逐出境的斗争中陷入困境](/content/gnews/5/README.md)
+### [德约科维奇在与澳大利亚驱逐出境的斗争中陷入困境](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/6/README.md)
+### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/7/README.md)
+### [有声|墙内网络管控进一步收紧 微信再出审核新规](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [【中日财经爆】日本将迎来全面数字化转型](/content/gnews/8/README.md)
+### [【中日财经爆】日本将迎来全面数字化转型](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](/content/gnews/9/README.md)
+### [有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【中日财经爆】7-11将台湾标示为独立国家 被中共罚款15万](/content/gnews/10/README.md)
+### [【中日财经爆】7-11将台湾标示为独立国家 被中共罚款15万](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共国房地产危机加速地方财政困境](/content/gnews/11/README.md)
+### [【中日财经爆】中共国房地产危机加速地方财政困境](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|捷克新政府将与台湾全面合作](/content/gnews/12/README.md)
+### [有声|捷克新政府将与台湾全面合作](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [文•贵天成——文贵先生谈“瑞银UBS”（六）](/content/gnews/13/README.md)
+### [文•贵天成——文贵先生谈“瑞银UBS”（六）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：朝鲜政府宣布不参加北京奥运](/content/gnews/14/README.md)
+### [秘翻在线：朝鲜政府宣布不参加北京奥运](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 哈国动乱，中共栽赃美国](/content/gnews/15/README.md)
+### [视频| 哈国动乱，中共栽赃美国](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [视频| 共匪想统治世界的“黄粱美梦”](/content/gnews/16/README.md)
+### [视频| 共匪想统治世界的“黄粱美梦”](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|德国超过95%的奥密克戎感染病例是疫苗接种者](/content/gnews/17/README.md)
+### [有声|德国超过95%的奥密克戎感染病例是疫苗接种者](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [聚焦：中共疯狂护盘也枉然](/content/gnews/18/README.md)
+### [聚焦：中共疯狂护盘也枉然](/content/gnews/19/README.md)
  ` 丁过`
 
-### [朝鲜宣布不参加北京冬奥会](/content/gnews/19/README.md)
+### [朝鲜宣布不参加北京冬奥会](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|我的亲身经历（二）——严管期与管理犯](/content/gnews/20/README.md)
+### [有声|我的亲身经历（二）——严管期与管理犯](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2022.01.05文贵大直播：天人合力助拯救人类的新媒体盖特爆发性成长](/content/gnews/21/README.md)
+### [2022.01.05文贵大直播：天人合力助拯救人类的新媒体盖特爆发性成长](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [世卫给中共站台:北京冬奥会疫情零风险](/content/gnews/22/README.md)
+### [世卫给中共站台:北京冬奥会疫情零风险](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/23/README.md)
+### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/24/README.md)
  ` 首尔天池农场`
 
-### [哈萨克斯坦因民众抗议关闭互联网，比特币暴跌](/content/gnews/24/README.md)
+### [哈萨克斯坦因民众抗议关闭互联网，比特币暴跌](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
-
-### [玛乔丽•泰勒•格林在GETTR 和 Telegram上对 Twitter的封禁做出回应](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [朝鲜：因全球疫情原因将不参加2022北京冬奥会](/content/gnews/26/README.md)
  ` 首尔天池农场`
@@ -108,20 +108,20 @@
 ### [奥密克戎正在日本急速蔓延](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2022年1月6日晚](/content/gnews/32/README.md)
+### [自然的水与性与非文明的专治独裁社会泯灭人性](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [GTV新闻访谈简报|2022年1月6日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [雅典娜时报-第165期](/content/gnews/33/README.md)
+### [雅典娜时报-第165期](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：你看你看！WHO的话悄悄地在改变～～](/content/gnews/34/README.md)
+### [秘翻在线：你看你看！WHO的话悄悄地在改变～～](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [深圳报告两例中共病毒感染者](/content/gnews/35/README.md)
+### [深圳报告两例中共病毒感染者](/content/gnews/36/README.md)
  ` 首尔天池农场`
-
-### [福布斯：中共国疫情死亡数据极不靠谱，不可信](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [谷歌和脸书因监视用户而被罚款](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`

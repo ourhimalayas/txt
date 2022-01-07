@@ -2,56 +2,42 @@
 ---
 
 
-## 玛乔丽•泰勒•格林在GETTR 和 Telegram上对 Twitter的封禁做出回应
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1831283/)
+## 哈萨克斯坦因民众抗议关闭互联网，比特币暴跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831294/)
 
-据《门户专家网》2022年1月2日卡桑德拉·费尔班克斯（Cassandra Fairbanks）报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image002.jpg)众议员玛乔丽·泰勒·格林（Marjorie Taylor Greene）（共和党-佐治亚）于 2021 年 6 月 26 日在俄亥俄州惠灵顿举行的“川普总统拯救美国”集会上发表讲话，照片由克里斯汀·泰勒 （Kristinn Taylor） 拍摄。
-众议员在社交媒体平台 GETTR 和 Telegram 上对Twitter 对她的禁令做出了回应。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-格林的个人账户，于周日因发布来自疾控中心的疫苗不良事件报告系统 (VAERS) 数据，而被永久封禁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/卡萨科斯坦.jpg)
 
 
-
-> MTG was suspended for using a CDC VAERS chart.
-> 
-> So is Twitter now telling us the CDC isn’t credible? 
-> 
-> Or that the truth is not allowed to be told? [pic.twitter.com/flfLkurLxI](https://t.co/flfLkurLxI)
-> — John – Naturally Immune – Cardillo (@johncardillo) [January 2, 2022](https://twitter.com/johncardillo/status/1477663920349499400?ref_src=twsrc%5Etfw)
+ 
+图片来源：www.reddit.com
 
 
+#### 编译：小红帽
 
-*约翰 — 自然免疫 — Cardillo (@johncardillo)*
+根据《RT新闻》1月6日报道，**随着世界第二大挖矿中心哈萨克斯坦的抗议活动继续，比特币出现了大幅下跌，那里的互联网被关闭，迫使当地矿工关闭他们的设备。**
 
-*MTG（ 玛乔丽·泰勒·格林 ）（的Twitter账户）因使用 CDC VAERS 图表而被暂停。*
+全球领先的加密货币（比特币）已跌至42,786美元，这标志着日跌幅接近8.5%，延续了前一天交易的跌幅。
 
-*那么**Twitter**现在是在告诉我们**CDC**不可信吗？*
+网络数据提供商NetBlocks报告称：“从2022年1月4日星期二晚上开始，哈萨克斯坦的互联网服务出现重大中断，并在星期三下午发展为全国范围的通信中断”。据报道，哈萨克斯坦的标准化网络连接率下降到2%。
 
-*还是这一事实不许讲？*
+周日，在政府取消能源价格上限的决定生效后一天，哈萨克斯坦西部爆发了骚乱，液化石油气的成本增加了一倍。
 
-*2022**年**1**月**2**日*
+总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）解散了政府，承诺将恢复较低的燃料价格。然而，这一宣布没有什么效果，集会在这个前苏联国家的最大城市蔓延开来。据报道，**为了减少对汹涌的骚乱的报道，哈萨克斯坦当局切断了互联网。**
 
-该平台声称这是格林第五次因传播“中共病毒错误信息”而违反了规定。
+比特币目前面临的其他不利因素包括美国美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并扩大了比特币的跌幅。
 
+新闻来源：[Bitcoin dives after Kazakhstan kills internet — RT Business News](https://www.rt.com/business/545291-bitcoin-dives-kazakhstan-mining-internet/)
 
+***发布：小红帽***
 
-> MTG responds on Telegram, since she can't tweet. "Twitter is an enemy to America and can’t handle the truth." [pic.twitter.com/M8IgCU4KFa](https://t.co/M8IgCU4KFa)
-> — Davey Alba (@daveyalba) [January 2, 2022](https://twitter.com/daveyalba/status/1477665225889488899?ref_src=twsrc%5Etfw)
-
-
-
-*戴维**·**阿尔巴（**Davey Alba**）**(@daveyalba) 2022**年**1**月**2**日*
-
-*MTG**在**Telegram**上回复，因为她不能发推文。**“**推特是美国的敌人，无法处理真相。**”*
-
-*作为回应，格林关于推特写道：“我将向美国表明我们不需要他们，现在是打败我们的敌人的时候了。”*
-
-格林的[声明](https://gettr.com/post/plf6qx50e8)说：“当马克辛·沃特斯（Maxine Waters）可以走上街头并在 Twitter 上威胁使用暴力时、卡马拉（ Kamala ） 和伊尔汗（ Ilhan ） 可以在 Twitter 上助威暴乱者、恐怖组织 IRGC 的首席发言人可以在 Twitter 上哀悼苏莱曼尼（ Soleimani ）时，而我却因发布 VAERS 统计数据而被封禁，Twitter 是美国的敌人，无法处理真相。没关系，我会告诉美国我们不需要他们，是时候打败我们的敌人了。”
-
-原文链接：[https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/](https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
