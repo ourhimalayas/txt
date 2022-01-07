@@ -2,35 +2,37 @@
 ---
 
 
-## 郭文贵先生揭露中共灭亡前苦民、弱民真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831942/)
+## 恒大2021年营业额同比下降近39%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831948/)
 
-撰稿：银河勇气星—骄子
+新闻采集/撰稿：日本方舟农场 Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月5日，郭文贵先生在大直播中揭露中共苦民、弱民的政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-14.png)
-郭先生表示，中共国的房地产捆绑着中国人未来58年的人生。中共深知，控制房地产，就是控制中国人的未来。根据郭先生的情报 ，习近平已在党内做出指示，确保35%的社会就业红线；中共已做好1-1.5亿国民死亡的准备；中共已经储备一年半的粮食，随着人口的减少，和供应数量的逐步减少，粮食供应预计将维持2年。为掌握数字货币未来的话语权，中共打着共享财富的幌子，发行数字人民币，还将推广到台湾、菲律宾、哈萨克斯坦等国家和地区，掠夺财富。
+1月4日，恒大公布了其2021年全年营收的整体情况。公告显示，恒大总营收金额仅四千四百三十亿元人民币。这一数据不仅远没有达到恒大在2021年年初预设的目标，而且较2020年的总营收额暴跌了近39%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-8.png)
+根据恒大集团于2021年8月公布的上半年营业额，比2020年同一时期下降了16%。另据已知数据分析，恒大集团2021年下半年的营销额，较2020年同期下降了超过60%。
 
-在全球经济即将崩塌之际，中共口中的“共克时艰”，实际上是以牺牲人民的利益为代价，换来中共须臾的苟延残喘。
+新闻链接：
 
+1. https://www.sohu.com/a/514292174\_260616 （文章中7232.5亿元是2020年的，材料3）
 
+2. https://www.sohu.com/a/486868335\_100001551
 
-新闻来源：https://gtv.org/video/id=61d59a1931a71619b57520a4
+3. https://www.sohu.com/a/442621530\_114986
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
 总编：文特
 
-编辑：Kathy文艺/雪梨
+编辑：Irene木木
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 

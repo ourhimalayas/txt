@@ -2,38 +2,29 @@
 ---
 
 
-## 恒大2021年营业额同比下降近39%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831948/)
+## 美海军开始开除拒绝接种中共病毒疫苗的现役军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831965/)
 
-新闻采集/撰稿：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-1月4日，恒大公布了其2021年全年营收的整体情况。公告显示，恒大总营收金额仅四千四百三十亿元人民币。这一数据不仅远没有达到恒大在2021年年初预设的目标，而且较2020年的总营收额暴跌了近39%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-8.png)
-根据恒大集团于2021年8月公布的上半年营业额，比2020年同一时期下降了16%。另据已知数据分析，恒大集团2021年下半年的营销额，较2020年同期下降了超过60%。
+#### 撰稿：彩虹
 
-新闻链接：
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6971293-2-scaled.jpg)图片来源：usni
+根据《国会山报》1月6日的报道，海军已经开除了20名拒绝接种中共病毒（COVID-19）疫苗的军人，这是在2021年11月28日海军接种中共病毒疫苗最后期限后第一批被开除的军人。
 
-1. https://www.sohu.com/a/514292174\_260616 （文章中7232.5亿元是2020年的，材料3）
+根据周三发布的一份海军声明，所有被开除的20人都是最近入伍的，他们被作为“新入伍级别离职”的一部分而被开除，这种开除发生在“服役的头180天内的初始训练期间。到目前为止，没有其他现役军人被开除”。
 
-2. https://www.sohu.com/a/486868335\_100001551
+根据海军上个月的宣布，大多数这样的服役军人将在2022年6月1日前被开除。
 
-3. https://www.sohu.com/a/442621530\_114986
+文章报道，目前有5,268名海军军人仍未接种中共病毒疫苗，其中3,009人提出了宗教豁免申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
+值得注意的是，由于还没有任何一个军种批准注射中共病毒疫苗的宗教豁免请求，那些寻求这种豁免的军人不可能找到免于被开除的机会。但是，海军已经给予现役海军军人8个永久医疗豁免、242个临时医疗豁免和74个行政豁免。
 
-总编：文特
+与此同时，自12月以来，海军陆战队已经遣散了251名海军陆战队员。
 
-编辑：Irene木木
+**新闻报道**
 
-校正/发稿：浪迹天涯
+[Navy removes first group of sailors to refuse COVID-19 vaccine](https://thehill.com/policy/defense/588671-navy-removes-first-group-of-sailors-to-refuse-covid-19-vaccine?rl=1)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

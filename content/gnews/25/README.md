@@ -2,44 +2,30 @@
 ---
 
 
-## 音乐让我们夺回尊严和自信
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831943/)
+## 中共强迫藏族僧侣民众观看拆除佛像
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1831961/)
 
-撰稿人：纽约香草山教育部 Naughty(文行)
+撰稿：东京樱花团—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
-针对“我是音雄”大型音乐灭共节目，郭文贵先生在1月5日大直播中提醒战友们关注以下核心问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-9.png)
-第一，如今GTV呈现出来的音乐效果，离不开无数战友的付出与贡献。
+台湾媒体1月6日报道，中共四川省政府强迫西藏僧侣和当地居民，观看一座大型佛像被拆除的过程。而拆除理由仅仅是该佛像建得太高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-5.png)
+据悉，被拆除的佛像是藏人集资4000万元人民币兴建的，2015年兴建时曾获当局批准。拆除佛像行动进行了9天。当局在现场部署了大量警察，确保观众不能拍照、录像或者进行反抗。与这座99英尺高、可以抵御地震的佛像一起被毁的，还有附近竖立的45个供西藏朝圣者和其他信徒使用的传统转经轮。
 
-第二，郭先生虽然不是专业歌手，但是依然可以成为世界摇滚歌星，这充分体现了，音乐的本质是歌唱个人，而不是集体。
+消息人士表示，与文革期间一样，共产党采取这种野蛮的做法，就是妄图通过根除西藏宗教和文化，彻底摧毁西藏人的身份认同。
 
-第三，“我是音雄”节目的制作与播出过程，是对人的耐心与爱的挑战，影响着每个人的人生。
-
-第四，音乐灭共，让中国人自信地面对自己。被共产党夺走的尊严和歌唱的本能，我们有信心夺回。
-
-第五，因为害怕人民反抗地声音，共产党垄断唱歌和发行的权力。而我们的歌声，就是消灭邪魔恶党的力量。
-
-第六， “我是音雄”节目虽然结束了，但我们要记住，在“我是音雄”和大直播中，一起走过的伟大征程。
-
-郭先生还强调，音乐是没有国界、语言之分，爆料革命的歌曲，每时每刻都在影响着中国人在世界上的安全。
-
-
-
-链接：https://gtv.org/video/id=61d59a1931a71619b57520a4
+新闻链接：[文革再現！四川藏族僧侶和居民被迫觀看曾獲准建的大型佛像被拆毀](https://cn.rti.org.tw/news/view/id/2121407)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-61.png)
 
-总编：文特
-
-编辑：Kathy文艺/雪梨
+总编/编辑：飞虹
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/新-1.png)
  
