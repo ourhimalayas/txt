@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|造假习近平受万民拥戴，中共官员下达政治任务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831479/)
+## 安省中小企业因疫情限制措施而陷入困境
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831724/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-台媒1月4日报道，中共党魁习近平发表元旦讲话之后，为了配合制造，习近平受万民拥戴的假象，中共各级官员层层施压，要求党内所有人必须转发、点赞，并发表吹捧言论，在规定时间内上报总结各自的转发及评论次数。
+采编/编译撰稿：文莱      校对编辑，发稿：硫酸羟氯喹64
 
-这项“政治任务”被网络曝光后，受到不少网友的嘲讽，有网友笑指“难怪评论一个样，原来是粉红欢乐颂。”还有网友愤怒表示，“西安上千万人饥肠辘辘，政府忙着歌功颂德，对民众惨况只字不提。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-9-edited-1.jpg)图片来源：TNH
 
-原文链接:[造假习近平受万民拥戴，中共官员下达政治任务](https://gnews.org/zh-hans/1824089/)
 
-音频处理：喜山必胜Maverick
+据加拿大媒体【真北方】1月3日报道，[加拿大独立企业联合会]日前对安大略省政府即将推出的疫情封锁措施发出警告，并认为当局极端的防疫政策正在摧毁该省的中小型企业。
 
-发稿：Daxia
+报道称，由于多伦多的疫情封锁限制，餐馆的室内用餐已被禁止了408天，而健身房也已关闭了395天之久。据该商业集团的数据显示，安省仅35%的小企业恢复了营业，而该省小企业在疫情期间的平均债务为19万加元，并且已有约20%的商家正在计划宣布破产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+不仅如此，雪上加霜的情况是：由于近期“奥密克戎”病毒的肆虐，安省又因此再次恢复执行了更加严厉的封锁规定。据悉，将于1月5日生效的防疫措施包括：将零售店的顾客容量缩减50%，关闭学校和所有室内会议和活动场所，以及关闭酒吧，餐馆和影剧院等公共娱乐场馆。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
 
+原文链接：[CFIB condemns Ontario government for reintroducing restrictions | True North (tnc.news)](https://tnc.news/2022/01/03/cfib-condemns-ontario-government-for-reintroducing-restrictions/)
 
  
 

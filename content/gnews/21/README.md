@@ -2,40 +2,29 @@
 ---
 
 
-## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1831864/)
+## 大直播后记：历史可以告诉我们很好的答案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831904/)
 
-**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
+整理：雅典娜农场速记组
 
-就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
-
-然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
-
-中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
-
-编辑整理：海贼王M.D.LUFFY；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-75.png)图片来源：墨尔本雅典娜农场设计组（614）
 
 
+谈到冬奥会的时候我也很简单地告诉大家一个答案，大家从希特勒还有这个前苏联都是两届冬奥会3年11年，7年11年就全灭了是吧！到了这个中共的冬奥会，包括享受当年2008年的奥运会啊。 2000年，中共获得了WTO的入场券，还有一个就是当年的下届奥运会，然后中国共产党就在世界上一下子躲过了8964的这个命运，经济萎靡，是在那种情况下他起来的。 那现在又搞了个冬奥会，现在又开始到了一个病毒疫苗灾难，经济大崩溃，要打台湾等这种形势，这绝对不是那么简单的。历史可以告诉我们很好的答案。 但是人类上有几个去学历史的呢？ 人类都知道上天之间有轮回，但有几个真正的相信上天的呢？ 很少很少！
+
+那么现在我们看到这个时候，这绝对不是一个简单的历史的重复，没那么简单的。大家要看到希特勒斯大林列宁，萨达姆卡扎菲乌干达的安宁包括苏哈托，包括日本的天皇我们就去看，他们都有一个共同的特点，从开始自己是一个完全的偶然，经过一定程度的一些人把他吹捧，把偶然变成了神迹，把神迹变成了个人崇拜，然后从过去的给所有人一个未来变成了自己要控制一切未来，然后要干掉一切。过去的，相信的上帝，然后他变成了上帝。
+
+造神嘛，然后许给全世界人最美好的故事，变成了自己唯一的好故事。 最后他被消灭，因为他的肉体之身，也是黄粱一梦，他没有什么了不得的。他只是死之前给全世界带来了个噩梦，最后噩梦醒来大家很多人给他陪葬。
+
+资料来源：郭先生GTV和盖特直播视频。
+
+发布人：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

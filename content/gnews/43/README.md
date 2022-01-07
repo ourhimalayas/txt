@@ -2,30 +2,33 @@
 ---
 
 
-## 盖特拿下苹果应用商店排名第一
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1831228/)
+## 有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831445/)
 
-作者：纽约香草山健身部–Jack Li文阳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月6日，盖特官方账号发盖文称：盖特在苹果应用商店中排名第一，在谷歌Play商店排名第二。特此感谢所有的用户，让我们取得这样的成绩！
+配音：香草山教育部 – Rose
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.22.25.046.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文贵先生在当天下午也就此事发了两个盖特，和大家分享这一好消息，并说：奇迹就这样发生了，正道得天道！
+台媒报道，美国当地时间1月3日，针对35名特种部队成员的申诉，联邦地方法院法官欧康纳颁发一项临时禁制令，禁止五角大楼对因宗教理由而拒绝接种中共病毒疫苗的特种部队成员执行惩罚。
 
-[https://gettr.com/post/pmu4j39141 \[22:42\] https://gettr.com/post/pmotxe83c3 \[22:42\] https://gettr.com/post/pmopokbeb1](https://gettr.com/post/pmu4j39141%20[22:42]%20https://gettr.com/post/pmotxe83c3%20[22:42]%20https://gettr.com/post/pmopokbeb1)
+欧康纳法官给出的判词是：本案的海军服役人员，用他们的牺牲，来维护和捍卫美国的自由，中共病毒并没有提供给政府可以废除这些自由的许可。 代表35名原告的法律团队，自由至上协会(First Liberty Institute)，对法官的这项判决非常满意，该协会的法务长贝瑞表示，强迫一名军人在自己的信仰、以及为国家服务之间抉择，违反了宪法和美国的价值观。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+原文链接:[联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](https://gnews.org/zh-hans/1824073/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

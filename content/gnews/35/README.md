@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|中共极端清零 河南禹州封城
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831495/)
+## 世界经济论坛”是全球疫情独裁者的温床
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831746/)
 
-配音：香草山教育部 – Rose
+采编/编译撰稿：薇文          校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-4.png)图片来源：EXPOSE
 
-台媒1月4日消息报道称，人口数超过100万的禹州市(位于中共国河南省中部)，虽然只出现了3例无症状中共病毒感染者，但该市居民均被下令被迫留在家中。这是近期中共实施大规模封城的最新案例。
 
-自中共病毒疫情爆发以来，北京当局追求极端“清零”政策，实施严格边境管制，以及目标性的封城措施。如果未能遏制疫情，中共地方官员通常会面临开除或者惩处的命运。在近期接连爆发本土案例，以及冬奥会即将开始的情况下，中共的该项政策正面临越来越大的压力。
+据英国媒体[每日内幕]1月5日报道，由德国人施瓦布创办、数千家跨国公司资助的“世界经济论坛”，不仅是全球青年政治领袖和权力野心家的摇篮，同时也为邪恶的“大重启”计划培养了众多全球主义精英。
 
-原文链接:[中共极端清零 河南禹州封城](https://gnews.org/zh-hans/1824749/)
+文章指出，由于该论坛的鼓动和支持，各国政府在过去两年疫情中，采取了几乎相同的极端防疫手段，例如：封城锁户、配戴口罩，强制接种和疫苗护照等严厉措施，其目的就是为了增强各自政府的管控权力和独裁统治。
 
-音频处理：喜山必胜Maverick
+该论坛培养出的“精英”包括：世界极左政棍如德国的默克尔、英国的布莱尔、法国的马克龙和加拿大的辛格之流；业界奸商如脸书的扎克伯格，推特的杰克和阿里巴巴的马云之辈。其共同目标就是勾结当权政府，通过疫情来摧毁各国中小型企业，以便那些和中共政权有利益苟且的跨国公司能顺利垄断全球经济。
 
-发稿：Daxia
+显而易见，原本已脆弱不堪的西方国家民主正在消亡，世界在疫情泛滥中被金融大鳄和超级富豪的贪婪所吞噬，而对此反击的有效方法就是人们在【新中国联邦】的呐喊中觉醒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+原文链接： [https://dailyexpose.uk/2022/01/05/ernst-wolff-world-economic-forum/](https://dailyexpose.uk/2022/01/05/ernst-wolff-world-economic-forum/)
 
  
 

@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|墙内网络管控进一步收紧 微信再出审核新规
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831454/)
+## 纽约计划强制其市政雇员接种疫苗加强剂
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831708/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
+采编/编译撰稿：Spirit       校对编辑，发稿：硫酸羟氯喹64
 
-据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-3-edited.png)图片来源：TNH
 
-原文链接:[墙内网络管控进一步收紧 微信再出审核新规](https://gnews.org/zh-hans/1825376/)
 
-音频处理：喜山必胜Maverick
+据《纽约时报》1月2 日报道，纽约市长亚当斯当天表示，当局目前正计划对其所有市政雇员强制接种“新冠病毒”疫苗加强剂。
 
-发稿：Daxia
+报道称，目前纽约市政府的在职雇员都已完全接种了“新冠病毒”疫苗，但随着“奥密克戎”疫情的失控爆发，当局已考虑是否需要对教师，警察以及其他市政工作人员强制注射第三剂疫苗。并认为应该同时在学校内推行强制性病毒检测计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+此外，纽约州长近期也宣布，该州近60万名公立大学的学生将很快被州政府要求接种该疫苗的加强剂。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
 
+原文链接：[https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests](https://www.nytimes.com/live/2022/01/02/world/omicron-covid-vaccine-tests)
 
  
 

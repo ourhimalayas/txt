@@ -2,13 +2,13 @@
 ---
 
 
-## 到底要死多少个孩子，政府才能叫停疫苗？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1830935/)
+## 意大利每日新增感染中共病毒首次超过20万例
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831029/)
 
-01/03/2022 史蒂夫·基尔施：到底要死多少个孩子，政府才能叫停疫苗？不幸的是，他们不想承认疫苗正在杀人，他们不想面对真相。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220107-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
