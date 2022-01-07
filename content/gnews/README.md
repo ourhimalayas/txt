@@ -15,122 +15,122 @@
 
 ---
 
-### [为什么世界选择黄金为标准而不是白银？（3/3）](/content/gnews/1/README.md)
+### [哈萨克斯坦动乱再次验证：跟着共产党 走进火葬场](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [为什么世界选择黄金为标准而不是白银？（2/3）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [为什么世界选择黄金为标准而不是白银？（1/3）](/content/gnews/2/README.md)
+### [为什么世界选择黄金为标准而不是白银？（3/3）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/01/07 英喜时事速递](/content/gnews/3/README.md)
+### [为什么世界选择黄金为标准而不是白银？（1/3）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022/01/07 英喜时事速递](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [护士作证：死于疫苗的孩子比死于COVID的孩子还多](/content/gnews/4/README.md)
+### [护士作证：死于疫苗的孩子比死于COVID的孩子还多](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播全文精萃](/content/gnews/5/README.md)
+### [大直播全文精萃](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“中共国不可投资”债券投资大王冈拉克如是说](/content/gnews/6/README.md)
+### [711公司地图罚款背后是中共对政权崩塌的恐惧](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [“中共国不可投资”债券投资大王冈拉克如是说](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [丹麦疫苗损害无处不在 住院者主要是完全接种者](/content/gnews/7/README.md)
+### [丹麦疫苗损害无处不在 住院者主要是完全接种者](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/01/07 大卫作战室直播精要](/content/gnews/8/README.md)
+### [2022/01/07 大卫作战室直播精要](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CDC未调查13岁男孩注射辉瑞疫苗后的心肌炎死亡](/content/gnews/9/README.md)
+### [CDC未调查13岁男孩注射辉瑞疫苗后的心肌炎死亡](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [随着Twitter审查制度愈演愈烈，乔-罗根加入GETTR](/content/gnews/10/README.md)
+### [随着Twitter审查制度愈演愈烈，乔-罗根加入GETTR](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [摆脱对中共国依赖 佛州州长投资1000万用于半导体生产](/content/gnews/11/README.md)
+### [摆脱对中共国依赖 佛州州长投资1000万用于半导体生产](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国和俄罗斯的合作对美国带来新挑战](/content/gnews/12/README.md)
+### [中共国和俄罗斯的合作对美国带来新挑战](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乔·罗根帮助Gettr获得了一百万新用户](/content/gnews/13/README.md)
+### [乔·罗根帮助Gettr获得了一百万新用户](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [首次市级政府的财政重组显中共经济放缓明显](/content/gnews/14/README.md)
+### [首次市级政府的财政重组显中共经济放缓明显](/content/gnews/17/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈黄金（2022-01-05摘录）](/content/gnews/15/README.md)
+### [七哥谈黄金（2022-01-05摘录）](/content/gnews/18/README.md)
  ` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM`
 
-### [佛牙舍利](/content/gnews/16/README.md)
+### [佛牙舍利](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [三分之一打过疫苗的人将在未来十年内死亡](/content/gnews/17/README.md)
+### [三分之一打过疫苗的人将在未来十年内死亡](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [Covid疫苗接种后可能失去人寿保险](/content/gnews/18/README.md)
+### [Covid疫苗接种后可能失去人寿保险](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说有爆料革命在，中共对台湾绝对不会得逞 （2022-01-05摘录）](/content/gnews/19/README.md)
+### [七哥说有爆料革命在，中共对台湾绝对不会得逞 （2022-01-05摘录）](/content/gnews/22/README.md)
  ` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM`
 
-### [DC大中华时事：记者直击哈萨克斯坦骚乱](/content/gnews/20/README.md)
+### [DC大中华时事：记者直击哈萨克斯坦骚乱](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈独裁（2022-0-05摘录）](/content/gnews/21/README.md)
+### [七哥谈独裁（2022-0-05摘录）](/content/gnews/24/README.md)
  ` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM`
 
-### [文贵爆料1.7.2022 欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/22/README.md)
+### [文贵爆料1.7.2022 欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共“常委”再开会，习神疯狂放厥词](/content/gnews/23/README.md)
+### [中共“常委”再开会，习神疯狂放厥词](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [七哥谈冬奥会和个人政治（2022-01-05摘录）](/content/gnews/24/README.md)
+### [七哥谈冬奥会和个人政治（2022-01-05摘录）](/content/gnews/27/README.md)
  ` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM`
 
-### [哈萨克斯坦关闭网络，比特币暴跌](/content/gnews/25/README.md)
+### [哈萨克斯坦关闭网络，比特币暴跌](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GETTR、GTV是唯一能拯救中国人的平台](/content/gnews/26/README.md)
+### [GETTR、GTV是唯一能拯救中国人的平台](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [蓬佩奥谈他是如何在六个月内减掉90磅](/content/gnews/27/README.md)
+### [蓬佩奥谈他是如何在六个月内减掉90磅](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日美对中共“试图破坏基于规则的秩序”表示担忧](/content/gnews/28/README.md)
+### [日美对中共“试图破坏基于规则的秩序”表示担忧](/content/gnews/31/README.md)
  ` 华盛顿DC-Russian`
 
-### [2021年、2022年是人类命运的分水岭](/content/gnews/29/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [商业飞行员说同事在接种后“像苍蝇一样倒下，胸口剧痛”](/content/gnews/30/README.md)
+### [商业飞行员说同事在接种后“像苍蝇一样倒下，胸口剧痛”](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共勒索式处罚，在华外资企业度日如年](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵爆料1.7: 大校证实Omicron就是生化武器，疫苗比病毒还可怕](/content/gnews/32/README.md)
+### [文贵爆料1.7: 大校证实Omicron就是生化武器，疫苗比病毒还可怕](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料 1.7：人生就是“黄粱一梦”](/content/gnews/33/README.md)
+### [文贵爆料 1.7：人生就是“黄粱一梦”](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|盖特是最重要的社交媒体平台](/content/gnews/34/README.md)
+### [有声|盖特是最重要的社交媒体平台](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [有声|日本年后确诊数激增，岸田首相取消访问美澳行程](/content/gnews/35/README.md)
+### [有声|日本年后确诊数激增，岸田首相取消访问美澳行程](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/36/README.md)
+### [有声|联邦法官阻止政府对启蒙计划的疫苗强制令](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [加拿大博彩业的未来展望—在线博彩业](/content/gnews/37/README.md)
+### [加拿大博彩业的未来展望—在线博彩业](/content/gnews/38/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [GTV新闻访谈简报|2022年1月7日早](/content/gnews/38/README.md)
+### [GTV新闻访谈简报|2022年1月7日早](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
-
-### [1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
 
 ### [为什么](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,87 +2,34 @@
 ---
 
 
-## GETTR、GTV是唯一能拯救中国人的平台
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
+## 中共“常委”再开会，习神疯狂放厥词
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1834147/)
 
-[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
+作者：波士顿五月花 跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2022/01/picture.jpg)
+2022年1月6日，中共伪常委会全天召开会议。党魁习近平亲自主持会议并发表了“重要”讲话。中共伪常委会名义上是中共的最高领导机构，实际已形同虚设，成为习近平的傀儡。表面是常委会听取汇报，实则为习近平召见群臣。我们详看习近平又放了哪些厥词：
 
-**郭文贵
-Miles Guo**
+——“治理好我们这个拥有9500万党员的大党、这个拥有14亿多人口的大国，必须坚持党的全面领导特别是党中央集中统一领导。”
 
-Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
-For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
+中共和习近平继续绑架9500万党员和14亿中国人民。习的心里非常清楚，14亿中国人民是他手里最好的武器，最大的肉票。只有把党和人民绑架在一起，他才安全。披着人民的外衣，实施党的控制，这是中共统治的根本。由此可见，让世界认清“中共不等于中国、中共不等于中国人”有多么的迫切和重要。文贵先生点中了共产党的命门，破掉了习近平的护体神功。
 
-她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
-She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
+会议还连篇累牍地表扬了各衙门口的各种“贡献”。最核心的“贡献”便是“坚持党中央集中统一领导”、“认真贯彻落实党中央决策部署”。这里的“党中央”实指习近平。以下说法可证明这点：
 
-媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
-The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
+——“要以习近平新时代中国特色社会主义思想为指导，全面贯彻党的十九大和十九届历次全会精神”。
 
-来黑我们新中国联邦，而且处心积虑，你们竟然不传播
-come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
+至此，掩饰全无，习思想“光芒万丈”。为何单独提出“十九大”？正是在“十九大”的会议上，习近平的终身制被确立，而所谓的“十九大”精神即为习近平立志终身做皇帝的写照。
 
-一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
-It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
+——“深入学习领会`两个确立´的决定性意义”。
 
-你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
-What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
+中共党员耳熟能详的是“四个意识”、“四个自信”、“两个维护”，现在又出现了“两个确立”。查过后才得知“两个确立”为：“确立习近平同志党中央的核心、全党的核心地位，确立习近平新时代中国特色社会主义思想的指导地位。” 换汤不换药，还是独裁统治的那一套。
 
-烧你家房子，烧你100次，不是烧你一次
-Burn your house 100 times, not burn you once
+结合最近奇怪的现象，无论是大会还是小会、公开还是私下、国内还是国际、报纸还是电视，中共媒体都大肆宣扬习近平的“伟大”、“丰功伟绩”和“核心地位”。这证明了习近平誓死将独裁统治进行到底的意图，以及背后隐藏的他的极度不自信，同时又印证了习近平的地位不稳，中共内斗相当激烈。
 
-你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
-Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
-
-千羽你在加拿大, 你走到大街上是人人喊打的人
-Qianyu, you are in Canada, you are the one who was shouts and beats on the street
-
-娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
-Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
-
-我不跟你开玩笑正义小Sarah
-I’m not kidding you justice little Sarah
-
-Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
-Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
-
-这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
-Isobel Yeung this guy is very evil, you see William still laughing, William
-
-就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
-just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
-
-一定想到盖特是拯救中国人的平台
-You must think about that Gettr is a platform to save the Chinese people
-
-一定想到G-TV是唯一能拯救中国人的平台
-Must think that G-TV is the only platform that can save the Chinese people
-
-他比任何经济价值都重要
-It is beyond any economic value
-
-你看明白了吗？兄弟姐妹们
-Do you see it? Brothers and sisters
+上帝要其灭亡，必先使其疯狂。习近平的自大和疯狂打开了以共灭共的大门，让我们拭目以待。
 
 * * *
 
-Date: 01/06/2022
-原视频标题: GETTR、GTV是唯一能拯救中国人的平台
-GETTR and GTV are the only platform that can save the Chinese people
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
-任务编号：3429
-视频时间段 : 0:00-1:34
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑**& 发布：jamie(文胤)*
 
  
 
