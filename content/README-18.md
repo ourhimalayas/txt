@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/content/2019/12/20191212-297605354411190045.md)
+
 [文字版：2019年12月9日上午郭文贵报平安直播](/content/2019/12/20191211-5104769377059048027.md)
 
 [文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月14日郭文贵先生路上直播](/content/2019/11/20191116-589334000754628973.md)
 
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/content/2019/11/20191115-1929062712375432404.md)
-
-[文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/2019/11/20191113-7768308991130879569.md)
 
 
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
