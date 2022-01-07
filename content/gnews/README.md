@@ -15,116 +15,116 @@
 
 ---
 
-### [有声|儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/1/README.md)
- ` MOSREC`
+### [密歇根高接种率卫生系统爆发大规模染疫](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
 
-### [1/7银河快讯：日本三个半月来新增确诊首次破4000；进入“第六波疫情”](/content/gnews/2/README.md)
+### [朝鲜也宣布不出席北京冬奥会](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [朝鲜以疫情为由宣布不参加北京冬奥会](/content/gnews/3/README.md)
+ ` GTV News Talk`
+
+### [洛杉矶首例中共病毒与流感共同感染病例](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [银河快讯:消费者信心指数四个月来首次恶化；日美“2+2”会谈将于7日在线举行](/content/gnews/5/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发](/content/gnews/3/README.md)
- ` 秘密翻译组金融团队`
+### [有声|因言被封：推特永久封禁美众议员的个人账户](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [美国最高法院大法官 有可能 终止拜登疫苗强制令吗？](/content/gnews/4/README.md)
+### [印度向小米追缴超八千万美元逃税款项](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [有声|狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [意大利强迫50岁以上公民必须注射疫苗](/content/gnews/9/README.md)
+ ` GTV News Talk`
+
+### [文贵大直播 1/7 中共房地产的唯一价值就是骨灰变成文明的肥料](/content/gnews/10/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|德国：双重疫苗接种者将不再允许不经测试进入餐馆](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [有声|儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [1/7银河快讯：日本三个半月来新增确诊首次破4000；进入“第六波疫情”](/content/gnews/13/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [香港股市与中共恒大集团及房地产危机](/content/gnews/14/README.md)
  ` MilesGuoLivePPT`
 
-### [中共赴哈萨克斯坦索金不成 制造暴动](/content/gnews/5/README.md)
+### [法律你我她-赌博的定义；赌博的悠久历史；赌博如何推动人类数学的进步？](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [数字货币最新信息](/content/gnews/16/README.md)
+ ` MilesGuoLivePPT`
+
+### [1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发](/content/gnews/17/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美国最高法院大法官 有可能 终止拜登疫苗强制令吗？](/content/gnews/18/README.md)
+ ` MilesGuoLivePPT`
+
+### [中共赴哈萨克斯坦索金不成 制造暴动](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/6/README.md)
+### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/20/README.md)
  ` 英喜-粵語組`
 
-### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/7/README.md)
+### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [东京连续两日中共病毒确诊病例激增](/content/gnews/8/README.md)
+### [东京连续两日中共病毒确诊病例激增](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [纽约市长考虑对城市雇员强制施打加强针](/content/gnews/9/README.md)
+### [纽约市长考虑对城市雇员强制施打加强针](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [mRNA疫苗即病毒 新中国联邦用盖特照明世界](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [世界乱象是长期和平滋生的无信仰恶果](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [生活中的易经](/content/gnews/12/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [大直播后记：风水和迷信（二）](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保](/content/gnews/14/README.md)
+### [瑞典银行前CEO由于洗钱丑闻受到刑事指控](/content/gnews/24/README.md)
  ` GTV News Talk`
 
-### [大直播后记：风水和迷信（一）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
+### [mRNA疫苗即病毒 新中国联邦用盖特照明世界](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
 
-### [“农民”的遐想](/content/gnews/16/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [世界乱象是长期和平滋生的无信仰恶果](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
 
-### [美海军首次在西太海外基地部署最新型侦察无人直升机](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保](/content/gnews/27/README.md)
+ ` GTV News Talk`
 
-### [秘翻在线：中共国的航天工业是被吹上天的](/content/gnews/18/README.md)
+### [秘翻在线：中共国的航天工业是被吹上天的](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [讨共檄文](/content/gnews/19/README.md)
+### [讨共檄文](/content/gnews/29/README.md)
  ` STHK`
 
-### [阴谋论？阿根廷生物学家：接种新冠疫苗出生的婴儿是一种新的人类类型](/content/gnews/20/README.md)
+### [阴谋论？阿根廷生物学家：接种新冠疫苗出生的婴儿是一种新的人类类型](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [有声|印尼近七成未接种疫苗者产生中共病毒抗体](/content/gnews/21/README.md)
+### [有声|印尼近七成未接种疫苗者产生中共病毒抗体](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|阿富汗人道灾难 媒体再次失声](/content/gnews/22/README.md)
+### [有声|阿富汗人道灾难 媒体再次失声](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|2022年将是国内民众最穷困的一年](/content/gnews/23/README.md)
+### [有声|2022年将是国内民众最穷困的一年](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|美国三大汽车制造商放弃疫苗强制要求](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|洛杉矶联合学区被迫取消对学童疫苗强制](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|盖特西班牙语注册量 2022 年初激增 571%](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|别了，我们可爱的小鹦鹉-猕猴桃（Kiwi)！](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [有声|芝加哥教师工会无视政府复课命令开始远程教学](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|西安中共病毒感染者1月4日被强制清零](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声|郭文贵先生爆料：普京将缺席北京冬奥会](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|德国政府数据：完全接种中共疫苗者或将患上艾滋病](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [亚马逊泄露郭文贵IP地址，换取在中共国开展业务](/content/gnews/32/README.md)
+### [亚马逊泄露郭文贵IP地址，换取在中共国开展业务](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [回家吃饺子 出门吃棉签](/content/gnews/33/README.md)
+### [回家吃饺子 出门吃棉签](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
 
-### [94万6千人遭受疫苗副作用的伤害，甚至死亡](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共央行推出数字人民币钱包APP](/content/gnews/35/README.md)
+### [中共央行推出数字人民币钱包APP](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共国的年度照片主角只剩下习太阳](/content/gnews/36/README.md)
+### [秘翻在线：中共国的年度照片主角只剩下习太阳](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [德约科维奇能否参加澳网仍未定](/content/gnews/37/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [台湾买下中共阻止立陶宛出口的2万瓶朗姆酒](/content/gnews/38/README.md)
  ` wenwu`
@@ -150,17 +150,17 @@
 ### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/45/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/47/README.md)
+### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/48/README.md)
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/47/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/49/README.md)
+### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共加强言论控制 对境外异议人士家人下手](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
 
 ### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/50/README.md)
  ` 首尔天池农场`

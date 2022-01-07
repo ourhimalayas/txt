@@ -2,23 +2,26 @@
 ---
 
 
-## 有声|洛杉矶联合学区被迫取消对学童疫苗强制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1832729/)
+## mRNA疫苗即病毒 新中国联邦用盖特照明世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1832996/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据外媒1月 2日报道，洛杉矶联合学区过去计划对学生实施极端的疫苗强制措施，由于3万名学童未遵守而不得不取消。
+作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，郭文贵先生在直播中解答了为很多战友所疑惑的问题，即，很多人接种过两针以上的中共病毒疫苗且他们尽力做好了防疫工作，但他们为何仍会感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-23.jpg)
+对此郭先生明确地指出，mRNA中共病毒疫苗本身就是病毒，其不需要传染过程即可使接种者感染，只是发作时间不定。郭先生表示，这也解释了欧洲某个领导人夫妇在接种过三针中共病毒疫苗且不出门的前提下，仍然感染中共病毒的缘由。
 
-去年9月，这个美国第二大学区的校董会投票决定，要求12岁以上的学生在1月10日前接种疫苗。现在，该区已将这项任务推迟到秋季，因为许多人没有遵守。
+郭先生强调，新中国联邦人除了没有接种过毒疫苗之外，我们不仅握有喜币，还拥有可以为真相发声的平台——盖特。
 
-据POLITICO报道，”美国其他民主党州的学区，也在减退以前的学生强制疫苗计划的强度。俄勒冈州波特兰市的校领导们在强烈的反对声中，于秋天暂停了讨论，而纽约和芝加哥则采取了观望态度。他们不仅对强制疫苗批评者小心翼翼，而且还提出疑问：他们是否应该在FDA完全批准为他们的学生接种疫苗之前，实施这种强制” 。
+郭先生感叹，黄皮肤的中国人从未像今天一样，通过盖特在世界上发挥着不可估量的影响力；中国人也从未像今天一样，在这场不流血的战争中，用光明照亮世界，用真相消灭邪恶的力量。
 
-文字版原文：[洛杉矶联合学区被迫取消对学童疫苗强制](https://gnews.org/zh-hans/1822425/)
+参考链接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,28 @@
 ---
 
 
-## 有声|儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833240/)
+## 密歇根高接种率卫生系统爆发大规模染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833446/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-恒大在海南建设的人工岛——恒大海花岛，总建筑面积8平方公里，到目前为止已投入资金810亿元，共计三个人工岛屿。
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，据美国媒体报道，在过去的一周内，密歇根州最大的卫生系统——亨利·福特卫生系统共有686名员工被检测出中共病毒感染呈阳性结果。
 
-2021年12月30日，海南省儋州市政府向海花岛项目责任方恒大集团发出行政处罚通知，2号岛三(六)期项目39栋楼被儋州市综合行政执法局取消规划许可证，责令通知发出之日起十日内拆除，逾期不拆，政府将强行拆除。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.jpeg)
 
-本次设计拆除的39栋楼都在二号人工岛上，不涉及已经交付使用的6万户业主和待交付的600多户业主。
+资料显示，亨利·福特卫生系统是密歇根州第一个强制要求其员工接种中共病毒毒疫苗的卫生系统。目前，该系统内员工的疫苗接种率高达99%。
 
-儋州市政府此次决定突如其来，恒大屋漏偏遭连夜雨，措手不及。消息传出，震惊了房地产界。
+数据表明，该系统员工的中共病毒感染情况比2021年12月之前增长了3倍。此外，由于生病人员需要进行隔离，该系统不得不暂时关闭了三家医院的97张床位。
 
-根据《中国海域使用管理法》第23条明确规定，填海项目竣工后的土地仍归国有，儋州市政府的这一决定意味深长。
+参考链接：
+1）[Health System in Michigan with over 99% Vaccination Compliance Rate has Nearly 700 Employees Test Positive with COVID-19](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
+2）[https://gettr.com/post/pmjn9p16a0](https://gettr.com/post/pmjn9p16a0)
 
-文字版原文：[儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](https://gnews.org/zh-hans/1827193/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
