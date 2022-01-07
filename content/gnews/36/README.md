@@ -2,25 +2,36 @@
 ---
 
 
-## 秘翻在线：中共国的航天工业是被吹上天的
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1832789/)
+## 中共赴哈萨克斯坦索金不成 制造暴动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833098/)
 
-**撰稿：葛大饼**
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，据相关媒体报道，近日，哈萨克斯坦多个城市发生暴动。当地群众的诉求从最开始对燃料价格飙涨的抗议，演变成后来因对政府不满引发的激烈冲突。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-9.jpg)
+目前，该国已有人员伤亡，相关政府官员也因此下台，总统正在请求俄罗斯领导的集体安全公约组织CSTO协助解决这起动乱。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-07-212154.jpg)**2021年双曲星1号火箭发射失败**
-根据2022年1月6日新浪报道称，中共国在过去的一年航天发射次数达55次，超过美国的45次和俄罗斯的25次，居世界第一。
+而据郭文贵先生在1月5日的直播中爆料，哈萨克斯坦当下的群众抗议行动是由中共主导并发动的反政府行动。 郭先生解释，哈萨克斯坦此前帮王歧山及江泽民保管了100吨黄金，而今习近平派王毅前去索要这批黄金却遭该国总统当面拒绝。为此，王毅威胁该国总统，倘若其不交出黄金，哈萨克斯坦三日内必有暴动。随后，哈萨克斯坦确如王毅所声称的陷入群众暴动之中。
 
-文章称新世纪头10年，中共举国之力主导的航天工业急剧崛起，中国航天科技集团有限公司去年完成48次发射，成功率100%，将上百颗（含搭载）航天器送入太空，酒泉卫星发射中心也是世界上最繁忙的火箭发射基地，全年发射22次。2021年，中共祝融号首次在火星上留下自己的足迹， 中国载人航天工程总设计师周建平表示2022年将完成中国空间站的建造以及中共国空间站首个实验舱等.
+郭先生透露，哈萨克斯坦总统已经向俄国求援，同时也向中共服软，允诺将分数次交回黄金。另外，该国甚至还答应将动乱原因推责给美国。
 
-新闻称虽然马斯克的SpaceX公司也在2021年突破纪录，但是美国“星链”卫星却两次接近中国空间站，对空间站上的航天员生命健康构成威胁，美方不尊重以国际法为基础的外空国际秩序。
+参考链接：
+1) . [2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
+2) .[哈薩克動亂釀數百死傷 獨裁政權求助俄羅斯等國\[影\]](https://www.cna.com.tw/news/firstnews/202201060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-中共国航天发射次数达55次，有多少次是失败的？有多少次是P图盗别国的视频的？中共唯一进步的是把当年亩产万斤量，母猪会上树的宣传语变成航天事业超美俄！中共的不自信只能靠口炮来打气，同时也给防火墙内不明真相的老百姓洗脑！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**[新闻来源](https://k.sina.cn/article_1887344341_707e96d50200170k2.html?from=mil&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

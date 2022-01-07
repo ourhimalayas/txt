@@ -2,62 +2,68 @@
 ---
 
 
-## 2022年1月7日郭先生大直播 文字同步精要
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1833559/)
+## 【Michael.Tonny专栏】疫苗在欧洲已造成324.5万例副作用，超过3.6万人死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1833659/)
 
-战友们好，郭先生和战友们继续大直播。主要内容包括：
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+在中共病毒溯源以前，所谓的COVID-19 Vaccine（中共病毒疫苗）既不能预防感染，也不能减少死亡。注射这种试验性的疫苗，无异于把自己置身于小白鼠，成为毒疫苗的试验品。目前的中共病毒疫苗有毒，千万不要打疫苗！
 
-1、疫苗灾难！奥米克戎的传播力极强，感染及其容易。MRNA就是刺突蛋白，是病毒。感染人数中80%-90%都是打了疫苗的人，还在推广第4针，一直打下去，太荒唐。哪里有病毒，哪里就是西安！墙内战友务必清醒，警惕！希望别人不好，不相信灾难到自己头上，小心现世报。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34c2bbff-cc70-4759-a865-6cf254c0d0bf.jpg)
-2、不相信爆料革命，不注意防范，这么久不备药，还让战友异地送药，把爆料革命当医药公司的人，本质是精神疾病。
+根据[欧洲疾病预防和控制中心](/www.ecdc.europa.eu/en)(European Centre for Disease Prevention and Control) 发布的包含欧洲经济区（EEA）和非欧洲经济区国家（non-EEA countries）的欧洲疑似药物副作用报告（European database of suspected adverse drug reation reports）数据库EudraVigilance系统的统计，截至2022年1月1日，在欧洲注射的COVID-19病毒疫苗已造成36,257人死亡和3,244,052例副作用报告，其中，1,540,852例属于严重副作用报告，占副作用报告的47.5%。
 
-3、美国高法没有决定性作用，拜登法案很大可能性会被否决，但是否不否决不重要，美国最重要的是民心。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1-ADRs-EU-Jan-01.jpg)
 
-4、中共的房地产对世界打击后如何收场？不希望欠债的死，是共产党绑架世界的流氓手段。全球的经济危机爆发，美国的资产会跌到你无法想象，可能会缩水60%-70%。共产党很快会被剔除出人类文明。之后会看到人类最快的经济反弹，人类文明和资产财富会大爆发，全球的经济、政治大洗牌之后，很多战友会成为人类新文明的创造者。
+这里的严重副作用是按照有关可疑不良影响的程度划分。包括导致死亡（death）、危及生命（life-threatening）、需要住院治疗（requires inpatient hospitalisation）、导致另一种医学上的重要状况（results in another medically important condition）或现有住院时间延长（prolongation of existing hospitalisation）、导致持续或严重残疾（persistent or significant disability）或丧失能力（incapacity）的医疗事故，或者是先天性异常/出生缺陷（congenital anomaly/birth defect）。
 
-5、香港的金融造假从7-11%达到现在的35%。所有数字货币大洗牌后，喜币重新书写了数字货币，会异军突起，还有GETTR。共产党的骨灰会变成肥料，成就人类最大的金融形势。
+目前，欧洲注射的疫苗包括：BioNTech/ Pfizer的Tozinameran疫苗，代码是BNT162b2；Moderna的mRNA-1273疫苗，代码是CX-024414；Oxford/AstraZeneca的AZD1222/VAXZEVRIA疫苗，代码是CHADOX1 NCOV-19；Johnson & Johnson的JANSSEN疫苗，代码是AD26.COV2.S。
 
-6、国内买喜币的人翻了N倍，但是在国内和香港付款的战友都迅速被警察敲门，一定要在安全的情况下付款。墙内战友务必使用安全的汇款方法，海外的朋友尽量提供帮助。没有一个虚拟货币上市有这么多毫不犹豫的支持者，这种精神动力是任何伟大文明的前提。不是喜币赢了，是战友赢了。
+其中，BioNTech/ Pfizer的BNT162b2杀人最多，达16,471人，Moderna的CX-024414死亡率最高，为5.41%。
 
-7、喜币如果没有锁币，目前的价格会低于3-5块钱。战友们毫不犹豫的“币加锁”，太伟大了。
+下表为四种疫苗导致的副作用报告统计：
 
-8、郭先生进清风看守所，所有的老照片都被专案组收走了。如今还给郭先生，照片的意义太大了，共产党要掩盖七哥的人生，新中国联邦可溯源七哥8-18岁当年的样子。照片春节前公开给大家！现在公开征集，郭先生当年在黑龙江、锦州、北京骑着摩托车、吉普车追求民主的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/injuries-following-injections-of-four-experimental.jpg)
 
-9、GFashion已经赔了3000多万美元，郭先生赔钱“直播带货”，是为了让战友拥有世界最好的时尚，回归自由的表达。
+超过1/4的副作用报告被归为一般性疾病和给药部位疾病，神经系统疾病（Nervous system disorders）、肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders）以及胃肠道疾病（Gastrointestinal disorders）也有相当高的比例。
 
-10、达赖喇嘛离开喜马拉雅山，他什么都不是。喜马拉雅山是耶稣复活的故事。人类迎来喜马拉雅之魂！喜马拉雅山会看到满山的蓝莲花和灵芝草！没有共产党，妖魔鬼怪尽失！黑暗中的喜马拉雅不会暗淡无光，有着不一样的光芒，未来一定会润泽万物。
+下表为四种疫苗导致的死亡报告统计：
 
-11、杨洁篪和王毅要求某国领导人参加冬奥会，如果支持新中国联邦护照就是中共国的敌人。共产党打压爆料革命，结果反而是吓死共产党，共产党正在帮助爆料革命成就新中国联邦护照。几个国家开始认真研究和新中国联邦合作。护照晚一天，结果更美好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/fatalities-following-injections-of-four-experimental.jpg)
 
-12、达赖喇嘛可以谈，台湾可以谈。但是新中国联邦、爆料革命、郭文贵，成为共产党绝对不能谈的词。共产党的恐惧，就是我们的武器。
+在死亡案例中，有28.7%属于一般性疾病和给药部位疾病，其次 ，心脏疾病（Cardiac disorders）、感染和侵染（Infections and infestations）、神经系统疾病（Nervous system disorders）、呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders）等也占据相当大的比例。
 
-13、伊朗、波斯、土耳其、哈萨克斯坦是一个文化的主脉络。共产党输出革命，扰乱这些地区，利用蓝金黄控制了东欧国家，岐山派是主要力量。集权就是把国家变成家天下。哈萨克斯坦是纳扎尔巴耶夫的家天下，石油、矿产、夜总会都是他们家的，最后就是齐奥塞斯库的下场。
+这些数据和美国的VAERS系统的报告相吻合。
 
-14、全世界万亿的情报系统，在全世界媒体却是假话连篇。爆料革命无数的情报救了多少人，背后全是无名的爆料革命英雄战友。郭先生早告诉世界，陈全国不降反升；全中国都认为共青团完了，胡春华回来了；栗战书已经结束了。陈全国和胡春华是杀器，陈全国会让党内血流成河，开启最大的杀掠。胡海峰是胡锦涛和习近平交易的结果，未来的接班人。这种绞杀是家天下，没有江家人。贾庆林、栗战书会善罢甘休吗？这次定的名单不是最终版本，这几个人成了党内斗争的靶子。共产党内部绞杀，外部树敌。爆料革命没有流血，以敌制敌，以共灭共，想不赢都不行。
+试验性的疫苗有毒，千万不要打毒疫苗！
 
-15、盘古五湖四海取土，特别是在南普陀取土时候，坐船上去，山顶取土，出现了很多奇怪的现象，南普陀之地很多定乾坤的地方会被颠覆。到现在曾也不承认有南普陀会议。江家要控制河南嵩山，在施道法的时候不顺利，很多仙鹤掉下来，南普陀计划不会顺利。郭先生那时候就知道南普陀干不掉习近平，爆料革命需要习近平坚持到20大，干掉共产党。
+尽管如此，1月6日，澳大利亚北领地首席部长Michael Gunder在新闻发布会上正式宣布，未来几天未“完全接种”Covid-19 疫苗的公民实施新的专制封锁，任何年满16岁且未完全接种疫苗的人要到下周中旬才能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，但才能离开不得超过30公里远。这是世界上迄今为止最严厉的封锁之一。
 
-16、北朝鲜不可能参加冬奥会。北朝鲜是被踢出奥林匹克的。金正恩对共产党狮子大开口，100亿美元现金进入联合国，是中共无法完成的任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Australias-Northern-Territory-has-officially-imposed-a-new-authoritarian.jpg)
 
-17、强制疫苗，在日本已经结束，绝大多数几个月前制定的疫苗政策都没有执行下去。强制已经完全失败。现在是最后的疯狂，5月份之前疫苗政策一定会结束。
+澳大利亚当局这是在抄CCP作业吗？千万不要忘了中南坑老杂毛马上就要被中国人民干掉了。
 
-18、西安问题，没有新病毒，就是疫苗的灾难。病毒不可控，西安和郑州人民，不要当牺牲品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shi-li-shan-lu-bu-huan-jian.jpg)
 
+参考数据：
 
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
 
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
 
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
 
-19、中美必有一战，现在就在战争中。冬奥会后和共产党打台湾，很可能会引起火战。
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
 
+[36,257 Deaths and 3,244,052 Injuries Following COVID Shots in European Database – Double Vaxxed 13-Year-Old Dies from Heart Attack](https://healthimpactnews.com/2022/36257-deaths-and-3244052-injuries-following-covid-shots-in-european-database-double-vaxxed-13-year-old-dies-from-heart-attack/)
 
+[Online access to suspected side-effect reports](https://www.adrreports.eu/en/index.html)
 
+[European Centre for Disease Prevention and Control](https://www.ecdc.europa.eu/en)
 
+[Dystopia Down Under: Amid Omicron Hysteria, Australia’s Northern Territory Announces New China-Esque Lockdown of All Unvaccinated Citizens – Going to Work and Outdoor Exercise Are No Longer Considered Essential For the Unvaxxed – (VIDEO)](https://www.thegatewaypundit.com/2022/01/dystopia-amid-omicron-hysteria-australia-announces-new-china-esque-lockdown-unvaccinated-citizens-going-work-outdoor-exercise-no-longer-considered-essential-un/)
 
-20、现在新加坡在各方利益压力下，会很危险，但是新加坡会走出危机。病毒过后新加坡不会再有李家。
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
-
-文案提供：梦田
+#  
 
  
 

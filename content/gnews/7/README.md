@@ -2,32 +2,44 @@
 ---
 
 
-## 有声|西安社会面“清零”：隧道、车库、看守所竟成隔离点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833619/)
+## 印第安纳州已有上千完全接种疫苗的居民死于COVID
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833752/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
+翻译： Jenny Ball
 
-然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-435.png)图片来源 : childrenshealthdefense.org
 
-郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。
+《国际商业时报》报道：
 
-文字版原文：[西安社会面“清零”：隧道、车库、看守所竟成隔离点](https://gnews.org/zh-hans/1825109/)
+已有1,090 名完全接种疫苗的印第安纳州居民死于 COVID； 记录了 112,000 个突破性案例。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+随着具有高度传染性的 Omicron 变种的传播，突破性感染的数量不断增加，印第安纳州 1,000 多名完全接种疫苗的居民死于 COVID-19。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+截至 12 月 30 日，至少有 1,090 名印第安纳州居民死于突破性 COVID-19，占该州完全接种疫苗人口的 0.031%。根据该州最新的 COVID-19 疫苗接种突破报告，至少 88% 的突破性冠状病毒死亡，发生在 65 岁或 65 岁以上的人群中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
- 
+报告显示，突破性 COVID-19 病例数也增加到 112,773 例，占印第安纳州所有接种疫苗者的 3.173%。
+
+《波士顿先驱报》报道：
+
+假日，马萨诸塞州冠状病毒突破病例在 Omicron浪潮中激增 45,029。
+
+上周圣诞节和新年之间，该州有超过 45,000 名**完全接种疫苗**的人的冠状病毒检测呈阳性，在 Omicron 变异浪潮激增期间，平均每天有 6,000 多例**突破性病例**。
+
+上周突破性感染病例的数量为 45,029 例，是前一周的 20,247 例突破性感染病例的两倍多——周比增加了 122%。
+
+根据州公共卫生部周二的新数据，总体而言，**有 179,594 名完全接种疫苗的人**对该病毒进行了检查呈阳性。
+
+该州报告了 942 例突破性死亡，占完全接种的 0.02%。一周死亡人数增加了 88 人，高于之前每周增加的 70 人。前一周有 85 人死亡。
+
+新闻来源 : [childrenshealthdefense.org] [1,090 Fully Vaccinated Indiana Residents Died of COVID, 112,000 Breakthrough Cases Recorded + More](https://childrenshealthdefense.org/defender/covid-nw-fully-vaccinated-indiana-residents-died-breakthrough-cases/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=940b867a-1d8e-4c5e-87d4-1a063a99ae30)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

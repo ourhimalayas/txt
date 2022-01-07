@@ -2,37 +2,34 @@
 ---
 
 
-## 密歇根高接种率卫生系统爆发大规模染疫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833446/)
+## 中共国房价下跌城市数量增加二手房价格跌幅扩大
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833527/)
 
-作者：纽约香草山翻译部 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月5日，据美国媒体报道，在过去的一周内，密歇根州最大的卫生系统——亨利·福特卫生系统共有686名员工被检测出中共病毒感染呈阳性结果。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.jpeg)
+据《中央社》1月7日报道，根据北京中指信息技术研究院的数据显示，2021年12月，中共国100个城市新房和二手房平均价格都较前1个月下跌，不仅房价下跌城市数量增加，且二手房价格跌幅扩大。
 
-资料显示，亨利·福特卫生系统是密歇根州第一个强制要求其员工接种中共病毒毒疫苗的卫生系统。目前，该系统内员工的疫苗接种率高达99%。
+据报道，数据显示，2021年12月，中共国100个城市新房均价为人民币1.62万元／平方米，较同年11月下跌0.02%；二手房均价为人民币1.6万元／平方米，跌幅为0.09%，较前一期数据（11月与10月相比），跌势扩大了0.01个百分点。
 
-数据表明，该系统员工的中共病毒感染情况比2021年12月之前增长了3倍。此外，由于生病人员需要进行隔离，该系统不得不暂时关闭了三家医院的97张床位。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.jpg)图片来自Getty Images
+
+从涨跌城市个数来看，2021年12月房价下跌城市数量增加。新房方面，有39个城市上涨、58个城市下跌，3个城市持平，下跌城市数量较11月增加了5个；在二手房方面，27个城市上涨、71个城市下跌、2个城市与上月持平，下跌城市数量较11月的数据增加了3个。
+
+此外，中指研究院的数据还显示，2021年12月，十大城市新房均价为人民币2.93万元／平方米，较同年11月下跌0.04%。新房价格下跌的城市有上海、成都、杭州、北京等。
+
+在二手房价格跌幅方面，深圳的二手房跌幅最大，下跌了0.38%。
 
 参考链接：
-1）[Health System in Michigan with over 99% Vaccination Compliance Rate has Nearly 700 Employees Test Positive with COVID-19](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
-2）[https://gettr.com/post/pmjn9p16a0](https://gettr.com/post/pmjn9p16a0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[中國房價下跌城市增 深圳中古屋價格跌幅最大](https://www.cna.com.tw/news/acn/202201070204.aspx)
 
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*素材采编：幽蘭自得*
 
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 

@@ -2,44 +2,27 @@
 ---
 
 
-## 印第安纳州已有上千完全接种疫苗的居民死于COVID
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833752/)
+## 【中日财经爆】日本大型人才派遣公司进军“元宇宙”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1833856/)
 
-翻译： Jenny Ball
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-7.jpg)
+[图片源](https://note.com/hashtag/%E5%85%83%E5%AE%87%E5%AE%99)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-435.png)图片来源 : childrenshealthdefense.org
+7日，日本大型人才派遣公司Pasona Group代表南部靖之在接受每日新闻采访时表示，将涉足在线虚拟现实空间“元宇宙”的相关业务。今年春天，将从公司内外聚集具有专业技能的人才成立团队。目的是创造一种利用虚拟空间的新就业模式。
 
-《国际商业时报》报道：
+南部先生强调，在虚拟平等的空间中，男女老少没有区别。无论年龄或是否残疾，都可以轻松工作并创造新的就业方式。该公司正在实施一项计划，将一部分业务从东京搬迁到兵库县淡路岛，以应对工作方式改革和自然灾害的发生。与此同时，人们可以在“元宇宙”上做生意，搞副业，虚拟体验淡路岛的生活，也许将会吸引用户移居至淡路岛。而风险投资公司和艺术家也可能加入，以支持当地的就业和文化推广。南部先生表示，期待与这些企业产生协同效应。
 
-已有1,090 名完全接种疫苗的印第安纳州居民死于 COVID； 记录了 112,000 个突破性案例。
+关于“元宇宙”，本月早些时候，松下宣布了VR眼镜等相关产品，索尼集团也宣布计划启动一项服务的示范实验，此项服务让球迷可以在“元宇宙”再现的体育场内享受观看足球比赛并同时互动的乐趣。目前世界各国正陆续进入该市场。
 
-随着具有高度传染性的 Omicron 变种的传播，突破性感染的数量不断增加，印第安纳州 1,000 多名完全接种疫苗的居民死于 COVID-19。
+[信息源](https://news.yahoo.co.jp/articles/37e6a2831d69b8beaaaeca17df631b1313e72c41)：
 
-截至 12 月 30 日，至少有 1,090 名印第安纳州居民死于突破性 COVID-19，占该州完全接种疫苗人口的 0.031%。根据该州最新的 COVID-19 疫苗接种突破报告，至少 88% 的突破性冠状病毒死亡，发生在 65 岁或 65 岁以上的人群中。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-报告显示，突破性 COVID-19 病例数也增加到 112,773 例，占印第安纳州所有接种疫苗者的 3.173%。
 
-《波士顿先驱报》报道：
-
-假日，马萨诸塞州冠状病毒突破病例在 Omicron浪潮中激增 45,029。
-
-上周圣诞节和新年之间，该州有超过 45,000 名**完全接种疫苗**的人的冠状病毒检测呈阳性，在 Omicron 变异浪潮激增期间，平均每天有 6,000 多例**突破性病例**。
-
-上周突破性感染病例的数量为 45,029 例，是前一周的 20,247 例突破性感染病例的两倍多——周比增加了 122%。
-
-根据州公共卫生部周二的新数据，总体而言，**有 179,594 名完全接种疫苗的人**对该病毒进行了检查呈阳性。
-
-该州报告了 942 例突破性死亡，占完全接种的 0.02%。一周死亡人数增加了 88 人，高于之前每周增加的 70 人。前一周有 85 人死亡。
-
-新闻来源 : [childrenshealthdefense.org] [1,090 Fully Vaccinated Indiana Residents Died of COVID, 112,000 Breakthrough Cases Recorded + More](https://childrenshealthdefense.org/defender/covid-nw-fully-vaccinated-indiana-residents-died-breakthrough-cases/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=940b867a-1d8e-4c5e-87d4-1a063a99ae30)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
-
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

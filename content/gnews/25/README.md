@@ -2,35 +2,51 @@
 ---
 
 
-## 有声|狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833347/)
+## 朝鲜以疫情为由宣布不参加北京冬奥会
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833403/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-香港，1月4日（路透社）—香港法院周二判处一名36岁的大律师15个月监禁，罪名是煽动未经授权的集会。该集会是纪念在1989年6月4日中共政府残暴镇压民主抗议者中死去的人们。
+作者：纽约香草山教育部 —Naughty(文行)
 
-邹幸彤是去年6月4日镇压周年纪念日的前一天被捕的。
 
-香港一直都有纪念6.4的守夜活动。但是过去两年，港警以冠状病毒限制为由，禁止了守夜活动。尽管有禁令，2020年仍有数千人在全市范围内点燃蜡烛。由于港警大肆抓捕导致2021年守夜人数骤减。
 
-法官认为邹煽动他人参加未经批准的集会，造成了公共健康风险。而邹自己则认为她只是想提醒人们不要忘记6.4，并补充说”暴政是贪婪的，红线会不断扩大。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-中共狰狞的嘴脸终于暴露出来。50年不变的政治制度已经荡然无存。谁不听话就抓起来，安个理由，投到监狱。
 
-文字版原文：[狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](https://gnews.org/zh-hans/1822211/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+据路透社报道，朝鲜官方媒体星期五宣称由于敌对势力的阻碍和新冠病毒的全球流行，将无法参加即将在北京举行的冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/抵制.png)
+朝鲜被国际奥委会（IOC）禁赛至 2022 年底，这意味着在去年未能派队参加东京奥运会后，朝鲜将无缘北京冬奥会。 据朝中社报道，朝鲜奥委会和体育部致函包括北京奥组委表示尽管不能参加本届冬奥会，但仍会全力支持中共国奥运会所做的一切工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+2021年 12 月，白宫宣布由于中共在中国的人权暴行，美国政府官员将抵制 2022 年冬季奥运会，但允许美国运动员个人可以自由前往北京参加比赛。
+
+此后，包括英国、澳大利亚和加拿大在内的其他几个国家也宣布了外交抵制。
+
+参考来源：[https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics](https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,45 @@
 ---
 
 
-## mRNA疫苗即病毒 新中国联邦用盖特照明世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1832996/)
+## 1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1833100/)
 
-作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月5日，郭文贵先生在直播中解答了为很多战友所疑惑的问题，即，很多人接种过两针以上的中共病毒疫苗且他们尽力做好了防疫工作，但他们为何仍会感染中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-23.jpg)
-对此郭先生明确地指出，mRNA中共病毒疫苗本身就是病毒，其不需要传染过程即可使接种者感染，只是发作时间不定。郭先生表示，这也解释了欧洲某个领导人夫妇在接种过三针中共病毒疫苗且不出门的前提下，仍然感染中共病毒的缘由。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-40.png)[图片来源](https://www.reuters.com/)
+**1.东芝第二大股东敦促临时股东大会对分拆计划进行投票**
 
-郭先生强调，新中国联邦人除了没有接种过毒疫苗之外，我们不仅握有喜币，还拥有可以为真相发声的平台——盖特。
+[日本东芝公司(6502.T)的第二大投资者周四呼吁召开一次特别股东大会，试图迫使该公司赢得三分之二的支持，以支持一项三向拆分计划，此举激怒了一些海外大股东。总部位于新加坡的对冲基金3D Investment Partners的提议标志着这家曾经强大的科技集团与其许多外国股东（其中许多是激进基金）之间长期而激烈的斗争中的最新进展。东芝现在由外国对冲基金持有约30%的股份，其中许多人怀疑管理层将公司分成三项业务的计划——能源/基础设施、电子设备和闪存芯片各一项——能否最大限度地提高股东价值。](https://www.reuters.com/business/toshiba-shareholder-calls-extraordinary-meeting-vote-break-up-plan-2022-01-06/)
 
-郭先生感叹，黄皮肤的中国人从未像今天一样，通过盖特在世界上发挥着不可估量的影响力；中国人也从未像今天一样，在这场不流血的战争中，用光明照亮世界，用真相消灭邪恶的力量。
+**2.美国国债收益率风险爆发**
 
-参考链接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
+[美国国债正面临一场完美风暴，可能将基准收益率推至近两年来的最高水平，因投资者对美联储更加鹰派、通胀飙升和供应泛滥感到担忧。基准10年期国债收益率周四从年底的低点1.491%和12月20日的1.353%跃升至1.753%。收益率目前保持在略低于2021年3月达到的1.776%水平，这是自2020年2月以来的最高收益率。分析师表示，最终突破至1.79%左右的技术阻力位可能预示着进一步上涨至2%区域。2021年下半年，由于市场受到对COVID-19、经济增长的担忧以及投资者因收益率相对较高而寻求美国债券的打击，基准收益率出现了几次反弹，这与债券价格成反比，但未能在当前水平附近徘徊。](https://www.reuters.com/markets/us/us-treasury-yields-risk-breakout-hawkish-fed-corporate-issuance-deluge-2022-01-06/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**3.壳牌在尼日利亚石油资产吸引当地公司的兴趣**
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+[至少五家尼日利亚石油和天然气公司正准备在本月为荷兰皇家壳牌公司(RDSa.L)的陆上油田提交标书，这笔交易的成交价可能高达30亿美元，三位消息人士参​​与了此次收购。壳牌去年开始与尼日利亚政府就出售其在这个西非国家陆上油田的股份进行谈判，作为全球减少碳排放努力的一部分，壳牌自1930年代以来一直活跃在那里。这家英荷公司持有尼日利亚陆上油气合资企业(SPDC)的19个石油开采租约的股份，业内和银行业消息人士称，这些租约价值20亿至30亿美元。](https://www.reuters.com/markets/europe/exclusive-shells-nigerian-oil-assets-attract-interest-local-firms-sources-say-2022-01-06/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**4.美国预计2021年创造的就业机会创纪录**
+
+[美国的就业增长可能在12月回升，最终在2021年创造了创纪录的就业机会，但劳动力市场可能会暂时失去光彩，因为肆虐的COVID-19感染会导致企业和学校中断。预计劳工部周五密切关注的就业报告也将显示就业市场迅速收紧，失业率预计将从11月的4.2%降至4.1%的22个月低点。宾夕法尼亚州西切斯特穆迪分析公司的高级经济学家瑞恩斯威特说：“不幸的是，经济的路径仍然与大流行有关，而Omicron将在第一季度对经济造成重大打击。” 路透社对经济学家的一项调查显示，继11月增加21万个之后，上个月非农就业人数可能增加了40万个工作岗位。如果就业人数达到预期，2021 年将创造高达650万个工作岗位。](https://www.oann.com/u-s-job-growth-seen-accelerating-in-december-record-job-creation-anticipated-for-2021/)
+
+**5.三星电子第四季度利润因服务器芯片需求和代工利润率而跃升**
+
+[三星电子周五表示，其第四季度营业利润可能同比增长52%至四年来的最高季度，这得益于对服务器内存芯片的强劲需求和芯片合同制造的利润率提高。这家全球最大的内存芯片和智能手机制造商估计10月至12月的利润为13.8万亿韩元（115亿美元），这将是科技巨头自2017年第四季度以来的最高第四季度营业利润。结果不符合 Refinitiv SmartEstimate的15.2万亿韩元预测，分析师将其归因于员工奖金、其移动业务的营销成本以及本季度包含的新显示面板的提升成本等项目。](https://www.oann.com/samsung-electronics-q4-profit-jumps-on-server-chip-demand-foundry-margins/)
+
+**6.Cineplex暂时解雇6,000名员工**
+
+[加拿大电影院运营商周四表示，由于Omicron变体导致COVID-19病例激增，Cineplex Inc暂时解雇6,000名兼职员工，原因是其场馆强制关闭。在全球范围内，由于高度传播的变异，冠状病毒病例一直在迅速上升。 根据路透社的统计，在加拿大，平均每天报告36,110例新感染病例。Cineplex发言人Sarah Van Lange说，由于Cineplex在安大略省和魁北克省的剧院和娱乐场所被强制关闭，该公司再次决定暂时解雇其兼职员工。 她补充说，自大流行开始以来，Cineplex对所有省政府规定的关闭都采取了类似的行动。](https://www.oann.com/cineplex-temporarily-lays-off-6000-workers-as-surging-omicron-cases-shut-theatres/)
+
+**7.阿姆斯特丹仍保持对伦敦的股票交易霸主地位**
+
+[阿姆斯特丹在2021年结束时成为欧洲最大的股票交易场所，尽管英国金融中心在英国退欧后努力使其股票市场更具吸引力，但仍领先于伦敦。当英国于2020年12月31日离开欧盟时，欧盟投资者的欧元计价股票交易不得不在英国停止。大部分交易转向阿姆斯特丹，泛欧交易所的基地。Cboe Global Markets周四的数据显示，上个月阿姆斯特丹的日均交易总额为89.7亿欧元（101.5亿美元），高于伦敦的83.2亿欧元。泛欧交易所在欧洲的交易所包括阿姆斯特丹，上周表示，它也创下了创纪录的一年，有212家新上市公司筹集了294.2亿美元。](https://www.reuters.com/markets/europe/amsterdam-retains-share-trading-supremacy-over-london-year-after-brexit-2022-01-06/)
+
+**8.美国混合动力电动汽车销量创历史新高**
+
+[行业数据显示，纯电动汽车成为所有头条新闻，但它们的汽油-电动混合动力汽车竞争对手去年在美国悄悄地创下了创纪录的销量。虽然特斯拉公司和福特汽车公司等公司推动电动汽车销售，但亚洲汽车制造商增加了混合动力汽车的阵容，因为许多客户仍因价格上涨、行驶里程有限或缺乏充电站而避开电动汽车。根据分析公司Wards Intelligence的数据，去年美国混合动力汽车销量增长76%至801,550辆，占美国轻型汽车销量的5%。电动汽车的销量也增长了83%至434,879辆，但仅占市场的3%。](https://www.oann.com/u-s-hybrid-electric-car-sales-hit-record-highs/)
+
+By【秘密翻译组-金融组】
+作者：小海星
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
