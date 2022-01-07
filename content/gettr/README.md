@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 1/7/2022 1:34 AM (UTC)`
+`@miles 1/7/2022 2:03 AM (UTC)`
 
-1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/07/01/741286d0-0765-7efb-5a75-34601fb4328a/out.jpg)
+1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！
+![img](https://media.gettr.com/group28/getter/2022/01/07/02/cd3eb79d-becc-6efd-d7d3-d778a1f6dc05/out.jpg)
 
 ---
 

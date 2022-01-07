@@ -2,13 +2,11 @@
 ---
 
 
-## 日本中共病毒感染者确认是否为Omicron至少需要5天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831027/)
+## 1/06/2022 文贵第三次准确地说出陈全国的仕途升迁
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1831051/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._7-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
