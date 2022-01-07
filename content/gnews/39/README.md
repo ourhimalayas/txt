@@ -2,28 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1829502/)
+## 英国被中共收买的技术官僚认为奥米炕是疫情从大流行转为流行的根源
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1829828/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+12/30/2021 本·汉威尔：以约翰·贝尔和克里斯·惠蒂为代表的英国技术官僚主义精英正在加倍努力，并对于奥米炕可能是疫情从大流行转为流行的根源信心大增。我们需要检验并调查中共伸入西方生活触手的本性和深度，就像麦卡锡在1950年所做的那样。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.06早GTV新闻访谈](https://gtv.org/video/id=61d6ee6431a71619b575d95f)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
