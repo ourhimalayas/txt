@@ -2,39 +2,40 @@
 ---
 
 
-## 大直播后记：关于盖特（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831833/)
+## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1831864/)
 
-整理：雅典娜农场速记组
+**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-74.png)图片来源：墨尔本雅典娜农场设计组（614）
+就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
+
+然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
+
+中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
+
+编辑整理：海贼王M.D.LUFFY；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
 
-我们证明了什么问题？ 我们盖特是共产党黑我们那个最铁的证据。 这件事我们会整下去的事，就是人家知道我们知道了我们被踹的数据是这个天才的brain来的。
-
-啊，发现了这时候人家给他释放了，第2天意在帮我们风水。 第三是我们现在所有的，看到老天在帮我们，就刚才看到五大银行都用七这个字儿来推一个共产党的人民币啊，数字化人民币一样，这是无穷无尽的上天的力量在帮我们，还有我们背后的无数个战友的付出，刚才我说这话既有天意，但哪一个没有战友的帮助呢？哪一个没有呢？ 是吧，哪一个都是人，大家别老寄望于天，那你就是该死 了。 你首先寄望你自己的行动，然后你再寄望于天，你一定是人天，得天助，得人道，你就会是赢家。 光靠一样，你一定完蛋。
-
-今天的盖特不是七哥说的那么简单，你们刚才讲的有2条，你没讲到最核心的第一条，是疫苗灾难救命媒体，而且改变社交媒体，靠广告费和出售个人数据的一场革命的第一个媒体平台！
-
-改变社交媒体收入和个人是使用社交数据规则的平台这是第一条，第2条，它是未来，它的所有的厉害是金融在一起的，它是打破了所谓的法币和数字货币和现在的对整个社交媒体成为奴役人们手段的（工具）。是一个开创先河的人与人之间关系的，就像音乐流行乐是什么？是个体和社会之间沟通的桥梁！
-
-啥叫红歌，红歌是集体垄断人之间的方法，过去的社交媒体也是集体垄断个人控制个人的平台，现在是个人与整个个人之间沟通的真实平台，它的本质是有不同的，它是解放全人类货币自由、人权和信息的平台。 盖特的价值现在看看啊，一个Facebook 1万亿美元，YouTube 2000亿美元，zoom4000亿美元，TIKTOK4、5000亿美元。我告诉你，盖特，它最大的不仅是直播，不是发信息呀，不光是盖特PAY，盖特最重要是在这些平台都得死的情况下只有它能生，
-
-它代表着生，它代表着太阳，那些人都是魔鬼！
-
-所以盖特证明了新联邦人，你还记得路大脑袋、九指妖说的吗？ 王艳萍弄几包河北产的衣服叫GFASHION，他就这么无知的认认知。盖特能吹出来吗？ 这数据能吹出来吗？ 你告诉我中国人什么时候在世界上有进去的话语权了？共产党一年几千亿美元的花，它能打造半个盖特吗？
-
-战友们要想想，我们的力量有多大，不说GTV就是说英文媒体今天有多大？
-
-资料来源：郭先生GTV和盖特直播视频。
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
