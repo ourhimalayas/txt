@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 1:34 AM (UTC)`
+
+1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！<br/>
+![img](https://media.gettr.com/group25/getter/2022/01/07/01/741286d0-0765-7efb-5a75-34601fb4328a/out.jpg)
+
+---
+
+`@lara8 1/7/2022 1:21 AM (UTC)`
+
+Congrats @gettr !!!!
+![img](https://media0.giphy.com/media/l0Iyn7lXkxJvgyurK/giphy.gif?cid=673afae0zlnrsp1rghq9ulrnqf4bqkuo4p49ucl6lomd3s54&rid=giphy.gif&ct=g)
+
+---
+
 `@miles 1/6/2022 10:08 PM (UTC)`
 
 1/05/2022 Miles Guo: GETTR is not only the life-saving media platform that exposes the COVID vaccine disasters, but also the very first revolutionary social media platform that does not profit from advertising or selling personal data<br/><br/>1/05/2022 文贵直播：GETTR是揭露中共疫苗灾难的救命媒体，也是首个不靠广告费和出卖个人信息盈利的革命性的社交媒体平台！
@@ -149,20 +163,6 @@ LOL I'M ON A BILLBOARD @metapcs
 
 1/05/2022 Miles Guo: The Communist China’s real estate price will not drop sharply before the downfall of the CCP because real estate is the cornerstone of its rule. Nor will the food price be allowed to rise significantly just in case the Lao Baixing would rebel; the CCP has come up with a 24-month time frame, during which they will issue digital RMB and will plunder the wealth of the Chinese people and the rest of the world<br/><br/>1/05/2022 文贵直播：中共灭亡前房价不会暴跌，因为房地产是其统治的基石，也不会让粮价暴涨以防老百姓造反；中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富<br/>
 ![img](https://media.gettr.com/group4/getter/2022/01/06/07/209b8284-d48a-33e6-30bb-d4866faea0b6/out.jpg)
-
----
-
-`@miles 1/6/2022 5:09 AM (UTC)`
-
-1/5/2022 Miles Guo: The CCP is thinking of expanding its territories; the nightmare-like bitter days for the Chinese people will start between May and December this year, more cities will be under lockdown, and more people will be quarantined and disappear; the CCP is using digital RMB to stabilize its estate market and seeks to have a say in terms of digital currency<br/><br/>1/5/2022 文贵直播：中共妄图开疆拓土；中国人噩梦般的苦日子将从今年5月到12月间开始，更多城市会被封，更多人会被隔离和消失；中共用数字货币稳定楼市并想主导数字货币话语权<br/>
-![img](https://media.gettr.com/group42/getter/2022/01/06/05/e71f09cf-b7e1-58dc-ea7c-b4bbe9f5b9fc/out.jpg)
-
----
-
-`@miles 1/6/2022 4:59 AM (UTC)`
-
-Xi’an: a cold-like disease can lead to starvation and the vaccine disaster is unfolding. Only by taking down the CCP can save all the innocent people around the world<br/><br/>西安：一个感冒就要挨饿的地方，疫苗灾难正在发生。只有推翻共产党，才能救这些打了疫苗的全球无辜的人
-![img](https://media.gettr.com/group35/getter/2022/01/06/04/343b4b48-7465-9732-ef47-12f7eaa9892d/out.jpg)
 
 ---
 
