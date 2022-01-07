@@ -2,35 +2,32 @@
 ---
 
 
-## 印度向小米追缴超八千万美元逃税款项
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833370/)
+## 朝鲜也宣布不出席北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833430/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，印度政府发布声明表示，经调查，中共国智能手机厂商小米在当地的子公司涉嫌逃税，当地政府已对此追缴了约八千七百万美元的税款。
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-6.jpeg)
+据《大纪元》1月7日报道，朝鲜当局1月6日明确表示，将不出席2022年2月举行的北京冬奥会和残奥会。
 
-印度政府称，小米在印度的子公司向美国高通公司、北京小米移动软件公司支付了特许权使用费和许可费，但这些费用未被计入在该公司与合约制造商的进口商品交易价值中。
+《朝鲜中央通讯社》周五称，朝鲜国家奥林匹克委员会和体育局已在致中方的一封信中传达了这一决定。
 
-根据印度的相关规定，作为进口手机和零组件的受益人，该子公司的行为已经涉嫌逃避关税。为此，印度政府向小米追缴了2017年4月至2020年6月间的相关税金。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-80.jpg)图片来自《大纪元》
 
-参考链接：[印度當局控小米涉逃稅 追繳逾24億稅款](https://ec.ltn.com.tw/article/breakingnews/3791735)
+据报道，朝鲜当局在信中一再强调，是由于COVID-19（中共病毒）的全球传播，才促使他们决定不出席北京冬奥运会。信中还提到，在COVID-19（中共病毒）大流行的情况下，朝鲜也没有派队参加2021年的东京夏季奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+朝鲜被认为特别容易受到传染病影响。在2003年严重急性呼吸系统综合症（SARS）流行期间，以及2014年西非爆发埃博拉疫情时，朝鲜均禁止外国人入境。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[朝鲜表示不参加北京冬奥会](https://www.epochtimes.com/gb/22/1/6/n13487045.htm)
 
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 

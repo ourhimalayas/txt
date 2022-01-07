@@ -2,39 +2,37 @@
 ---
 
 
-## 有声|因言被封：推特永久封禁美众议员的个人账户
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833380/)
+## 密歇根高接种率卫生系统爆发大规模染疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833446/)
 
-配音：香草山健身部 – 玫瑰园
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，据美国媒体报道，在过去的一周内，密歇根州最大的卫生系统——亨利·福特卫生系统共有686名员工被检测出中共病毒感染呈阳性结果。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
+资料显示，亨利·福特卫生系统是密歇根州第一个强制要求其员工接种中共病毒毒疫苗的卫生系统。目前，该系统内员工的疫苗接种率高达99%。
 
-格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
+数据表明，该系统员工的中共病毒感染情况比2021年12月之前增长了3倍。此外，由于生病人员需要进行隔离，该系统不得不暂时关闭了三家医院的97张床位。
 
-据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
+参考链接：
+1）[Health System in Michigan with over 99% Vaccination Compliance Rate has Nearly 700 Employees Test Positive with COVID-19](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
+2）[https://gettr.com/post/pmjn9p16a0](https://gettr.com/post/pmjn9p16a0)
 
-耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-文字版原文：[因言被封：推特永久封禁美众议员的个人账户](https://gnews.org/zh-hans/1822292/)
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

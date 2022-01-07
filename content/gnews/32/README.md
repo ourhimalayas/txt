@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|阿富汗人道灾难 媒体再次失声
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1832732/)
+## 秘翻在线：中共国的航天工业是被吹上天的
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1832789/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据郭文贵先生11月28日大直播的爆料，人道灾难正在阿富汗发生。2300-2500万人口正在面临粮食危机，民间甚至已经出现，使用处女兑换粮食的现象。每天都有阿富汗人因为人道主义灾难而死去，官方承认已经有十几万人死亡。
+**撰稿：葛大饼**
 
-所有这些灾难都是源自于中共扶植的塔利班政权。 文贵先生在11月17日的直播中还预计，这个冬天，将有一百到三百万阿富汗人因为人道主义灾难而死亡。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-07-212154.jpg)**2021年双曲星1号火箭发射失败**
+根据2022年1月6日新浪报道称，中共国在过去的一年航天发射次数达55次，超过美国的45次和俄罗斯的25次，居世界第一。
 
-正在阿富汗发生的人道主义危机，被主流媒体选择性遗忘。
+文章称新世纪头10年，中共举国之力主导的航天工业急剧崛起，中国航天科技集团有限公司去年完成48次发射，成功率100%，将上百颗（含搭载）航天器送入太空，酒泉卫星发射中心也是世界上最繁忙的火箭发射基地，全年发射22次。2021年，中共祝融号首次在火星上留下自己的足迹， 中国载人航天工程总设计师周建平表示2022年将完成中国空间站的建造以及中共国空间站首个实验舱等.
 
-文字版原文：[阿富汗人道灾难 媒体再次失声](https://gnews.org/zh-hans/1705624/)
+新闻称虽然马斯克的SpaceX公司也在2021年突破纪录，但是美国“星链”卫星却两次接近中国空间站，对空间站上的航天员生命健康构成威胁，美方不尊重以国际法为基础的外空国际秩序。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+中共国航天发射次数达55次，有多少次是失败的？有多少次是P图盗别国的视频的？中共唯一进步的是把当年亩产万斤量，母猪会上树的宣传语变成航天事业超美俄！中共的不自信只能靠口炮来打气，同时也给防火墙内不明真相的老百姓洗脑！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+**[新闻来源](https://k.sina.cn/article_1887344341_707e96d50200170k2.html?from=mil&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
