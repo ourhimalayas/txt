@@ -15,104 +15,104 @@
 
 ---
 
-### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-14](/content/gnews/2/README.md)
+### [音乐让我们夺回尊严和自信](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [被推特领英禁言，罗伯特•马龙博士选择坚持](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
+### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [大直播后记：历史可以告诉我们很好的答案](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [克鲁兹拟推出法案，推翻政府强制儿童接种中共病毒疫苗](/content/gnews/5/README.md)
+### [无耻！国际奥委会否认北京冬奥会官方服装涉及新疆强迫劳动](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [川普竞选活动前最高顾问杰森-米勒谈他的“未来战略”](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-14](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
 
-### [大直播后记：冬奥会是上天送给我们的礼物](/content/gnews/7/README.md)
+### [被推特领英禁言，罗伯特•马龙博士选择坚持](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美日召开“二加二”会谈应对中朝压力](/content/gnews/8/README.md)
+### [大直播后记：历史可以告诉我们很好的答案](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [克鲁兹拟推出法案，推翻政府强制儿童接种中共病毒疫苗](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [川普竞选活动前最高顾问杰森-米勒谈他的“未来战略”](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/9/README.md)
+### [大直播后记：冬奥会是上天送给我们的礼物](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美日召开“二加二”会谈应对中朝压力](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [孟山都前中国雇员承认窃取商业机密](/content/gnews/10/README.md)
+### [孟山都前中国雇员承认窃取商业机密](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：关于盖特（一）](/content/gnews/11/README.md)
+### [大直播后记：关于盖特（一）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记：关于盖特（二）](/content/gnews/12/README.md)
+### [大直播后记：关于盖特（二）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GETTR实际下载量早已达到3500万 GETTR价值无限 它是新中国联邦的力量](/content/gnews/13/README.md)
+### [GETTR实际下载量早已达到3500万 GETTR价值无限 它是新中国联邦的力量](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [瑞士UBS银行几十年来帮助中共藏匿大笔盗国财](/content/gnews/14/README.md)
+### [瑞士UBS银行几十年来帮助中共藏匿大笔盗国财](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [大直播后记：关于盖特（三）](/content/gnews/15/README.md)
+### [大直播后记：关于盖特（三）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [救人还是杀人，这般防疫为哪般？](/content/gnews/16/README.md)
+### [救人还是杀人，这般防疫为哪般？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国名人乔-罗根加入盖特引发跟随浪潮](/content/gnews/17/README.md)
+### [美国名人乔-罗根加入盖特引发跟随浪潮](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [哈萨克斯坦爆发动乱起因拒绝归还江 王两家藏匿的黄金 现已服软中共 将分批归还](/content/gnews/18/README.md)
+### [哈萨克斯坦爆发动乱起因拒绝归还江 王两家藏匿的黄金 现已服软中共 将分批归还](/content/gnews/20/README.md)
  ` 焦點20分`
 
-### [世界经济论坛”是全球疫情独裁者的温床](/content/gnews/19/README.md)
+### [世界经济论坛”是全球疫情独裁者的温床](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本政府強推致畸新冠药物，无知民众受伤害](/content/gnews/20/README.md)
+### [日本政府強推致畸新冠药物，无知民众受伤害](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [安省中小企业因疫情限制措施而陷入困境](/content/gnews/21/README.md)
+### [安省中小企业因疫情限制措施而陷入困境](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【中日财经爆】松下公司计划推出每周休3天工作制](/content/gnews/22/README.md)
+### [【中日财经爆】松下公司计划推出每周休3天工作制](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/23/README.md)
+### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约计划强制其市政雇员接种疫苗加强剂](/content/gnews/24/README.md)
+### [纽约计划强制其市政雇员接种疫苗加强剂](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国寿险公司疫情期间死亡索赔率大升](/content/gnews/25/README.md)
+### [美国寿险公司疫情期间死亡索赔率大升](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美联邦法院阻止对海豹突击队员的惩罚](/content/gnews/26/README.md)
+### [美联邦法院阻止对海豹突击队员的惩罚](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [菲律宾总统威胁未接种新冠疫苗的人要坐牢](/content/gnews/27/README.md)
+### [菲律宾总统威胁未接种新冠疫苗的人要坐牢](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [每日快报：法官驳回FDA对疫苗数据的拖延，削减至8个月](/content/gnews/28/README.md)
+### [每日快报：法官驳回FDA对疫苗数据的拖延，削减至8个月](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】郭先生直言盖特的过去，现在和将来](/content/gnews/29/README.md)
+### [【秘翻在线】郭先生直言盖特的过去，现在和将来](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共极端清零 河南禹州封城](/content/gnews/30/README.md)
+### [有声|中共极端清零 河南禹州封城](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/31/README.md)
+### [有声|造假习近平受万民拥戴，中共官员下达政治任务](/content/gnews/33/README.md)
  ` MOSREC`
-
-### [彭佩奥告诉纽约邮报他如何在6个月内减了90磅](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [德约科维奇在与澳大利亚驱逐出境的斗争中陷入困境](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [有声|日本约70家企业将联合测试数字货币的运行](/content/gnews/34/README.md)
  ` MOSREC`
