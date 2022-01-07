@@ -2,59 +2,34 @@
 ---
 
 
-## 日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1832909/)
+## mRNA疫苗即病毒 新中国联邦用盖特照明世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1832996/)
 
-作者：日本方舟农场— Andy5
+作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，郭文贵先生在直播中解答了为很多战友所疑惑的问题，即，很多人接种过两针以上的中共病毒疫苗且他们尽力做好了防疫工作，但他们为何仍会感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-23.jpg)
+对此郭先生明确地指出，mRNA中共病毒疫苗本身就是病毒，其不需要传染过程即可使接种者感染，只是发作时间不定。郭先生表示，这也解释了欧洲某个领导人夫妇在接种过三针中共病毒疫苗且不出门的前提下，仍然感染中共病毒的缘由。
 
+郭先生强调，新中国联邦人除了没有接种过毒疫苗之外，我们不仅握有喜币，还拥有可以为真相发声的平台——盖特。
 
+郭先生感叹，黄皮肤的中国人从未像今天一样，通过盖特在世界上发挥着不可估量的影响力；中国人也从未像今天一样，在这场不流血的战争中，用光明照亮世界，用真相消灭邪恶的力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
+参考链接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-
-
-
-据日本媒体1月6日报道，日本首相岸田文雄与澳大利亚首相莫里森已经共同签署了《访问部队地位协定》也就是RAA协定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/付出行动-1.jpg)
-该协定涉及：增加两国实施共同训练的频率、简化携带武器到对方国家的申请手续、保证两国之间军队进入对方国家后的地位等内容。此协定将加深日澳两国在安全保障和国家防卫上的合作。
-
-据悉受日本国内疫情扩大的影响，岸田首相取消了访问澳洲的计划，将跟澳大利亚的会晤改在了线上举办。目前两国首脑正在讨论针对中共在海洋上的扩张以及北朝鲜核问题、涉及日澳共同关心的地区安全问题，并讨论解决这些问题所需要的措施。
-
-参考来源：
-
-1.[https://www.excite.co.jp/news/article/TBSNews\_4442146/](https://www.excite.co.jp/news/article/TBSNews_4442146/)
-
-2.[https://www.jiji.com/jc/article?k=2022010600811&g=int](https://www.jiji.com/jc/article?k=2022010600811&amp;g=int)
-
-3.[https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K](https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K)
-
-4.[https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/](https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1.png)
-
-编辑/校对/发稿：兰兰
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

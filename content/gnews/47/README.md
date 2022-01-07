@@ -2,39 +2,40 @@
 ---
 
 
-## 乔·罗根和罗伯特·马龙博士访谈的十二大要点
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831321/)
+## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1831864/)
 
-翻译：zzballack
-上传：追着曙光跑
+**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
 
-据《The Covid World》1月5日报道，mRNA技术的发明人罗伯特·马龙（Robert Malone）博士曾与安东尼·福奇和疾控中心的科学家有过直接合作。但他拒绝遵从他们邪恶的疫苗议程，该议程已经严重破坏了医学伦理、医疗隐私和知情同意原则。因为揭露新冠疫苗真相，马龙博士被推特禁言，但他发誓要继续 “说出真相”。他和知名主播乔·罗根 (Joe Rogan)的访谈无疑是2021年最有见地的对话之一，以下列出了该访谈的十二大要点。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-12.55.34.jpeg)
-1.功能增强研究最终为开发类似但不同的刺突蛋白生物武器铺平了道路，刺突蛋白目前正被用作新冠疫苗的mRNA指令。马龙说，制药公司有道德义务证明其疫苗中的刺突蛋白没有毒性。
+就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
 
-2.对于许多人没有受到疫苗的急性伤害，有些人甚至根本没有表现出不良反应这个问题，马龙解释说，反应曲线是由个体免疫系统的差异造成的，包括表型（phenotypic）或者遗传差异。
+然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
 
-3.马龙说“反疫苗者（anti-vaxxer）”这个词被用来错误地羞辱那些不听从公共卫生官员命令的人，它也同样被用来排斥社会上任何对制药公司的宣传持异议观点的人。
+中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
 
-4.马龙强调说，强迫儿童戴口罩和隔离会给他们造成心理创伤，这些措施是非人性化，非社会化的，是对儿童的虐待。
+编辑整理：海贼王M.D.LUFFY；
 
-5.罗根问道为什么硫酸羟氯喹和伊维菌素被媒体抹黑并被监管机构阻止。马龙回答说，有两个人在这个决定中起了关键作用。其中一个是疫苗推广者瑞克·布莱特 (Rick Bright)，他在洛克菲勒基金会（The Rockefeller Foundation）运营流行病预防研究所（Pandemic Prevention Institute）。布莱特利用他生物医学高级研究与发展署主任的职务，诋毁氯喹和羟氯喹。历史证明，这两种药物均对SARS病毒有效，而且安全。
+G-News发布：海贼王M.D.LUFFY；
 
-6.另一个阻挠新冠治疗的人是珍妮特·伍德科克 (Janet Woodcock)。在2021年1月20日执掌美国食品药品监督管理局（FDA）后，她利用该机构嘲弄伊维菌素。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-7.羟氯喹和伊维菌素都在世卫组织提供的基本药物清单上。这两种药物已被安全地使用了数十亿剂量。这些药物可以缓解新冠症状，缩短病程，防止重症和死亡，印度北方邦的低死亡率与伊维菌素的广泛使用有关。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-8.马龙说，医院拒绝新冠的治疗方案是因为他们每诊断出一个新冠患者就可以得到大约3000美元的报销费，而且给新冠患者使用瑞德西韦（remdesivir）和呼吸机还会获得进一步的经济激励。这些与肾衰竭、肺部损伤和致命的鼻腔感染有关。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-9.关于新冠疫苗的疗效减弱的问题，马龙说疫苗正在导致负疗效。随着疫苗剂量的增加，接种者更容易被感染，而且疾病加重。他们的B细胞和记忆T细胞被训练来攻击早已变异的刺突蛋白，使其抗体依赖性增强，并出现自身免疫问题和癌症。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-10.罗根和马龙讨论了自然免疫，以及证明先天免疫优于实验性疫苗的免疫反应的研究。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-11.马龙指出，年轻男孩在接种新冠疫苗后患上心肌炎的趋势令人不安，脂质纳米颗粒对女性卵巢的影响会导致她们有不孕的风险。马龙还对刺突蛋白及其导致的血栓发出警告。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-12.马龙警告说：“我们的政府失去了控制。他们无法无天，完全无视生物伦理学。强制人们接种实验性疫苗显然是非法的，而且不符合纽伦堡守则 (Nuremberg Code)。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-信息來源：[Top 12 Takeaways From The Joe Rogan And Dr. Robert Malone Interview](https://thecovidworld.com/top-12-takeaways-from-the-joe-rogan-and-dr-robert-malone-interview/)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
+
 
  
 

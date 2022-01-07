@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|2022年将是国内民众最穷困的一年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1832731/)
+## 【中日财经爆】红杉资本与红杉中国切割！美国投资全面撤离中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832739/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据墙内媒体1月2日报道，由于债务压力加上无收入来源，2022年墙内民众将是穷困的一年。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-413.png)[图片来源](http://tech.sina.com.cn/csj/2019-10-28/doc-iicezzrr5394091.shtml)
+近日，多家国外媒体传出，红杉中国将和红杉资本分离。
 
-报道提示，中共国内很多人都处于负债状态，多数人承担着巨额贷款，网贷、信用卡、房贷、车贷之类债务很常见。综合各种债务，保守估计国内债务人数现在超过6亿，这意味着有42%的居民有债务需要偿还，而实际债务人数还可能高于这一数字。负债人数的增加，导致了老百姓近几年整体消费能力急剧下降，各种消费行为受到巨大影响。
+据“硅发布”1月4日发布的文章称，红杉资本可能会在2022年结束与红杉中国长达16年的合作关系，美国投资者正在撤离中国市场。
 
-在中共病毒肆虐以及西方国家对中共的制裁之下，中共经济处于崩溃边缘，墙内许多企业纷纷倒闭、破产。相关数据显示，中共国总体失业人数已高达1.2亿，接下来，会有更多人没有工作和收入来源。
+文章给出的理由是2021年投向中国市场的美元基金，从美国LP募集到的总体金额同比下降了65%。这是个惊人的数字，而中国独角兽企业的数量下滑同样明显，这已经说明美国投资者不管是出于商业目的还是其他，撤离中国市场的比例正在加大。
 
-文字版原文：[2022年将是国内民众最穷困的一年](https://gnews.org/zh-hans/1820396/)
+红杉中国于2005年在北京成立，在近20年的时间里，助推了中共国科技发展并从中获取了巨额利润，根据PitchBook的数据：红杉中国的十几个基金筹集了超过100亿美元，红杉中国管理着约400亿美元的资产。投资了国内一半的互联网公司，包括拼多多、美团、新浪、京东、高德、360、诺亚、唯品会、阿里巴巴、豆瓣、大众点评、美团、驴妈妈、途牛、快手等公司。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+红杉中国是中共权贵与美国华尔街大佬的利益结合体，红杉资本与红杉中国分道扬镳，表明美国与中共的经济全面脱钩正在加剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+信息来源：[红杉资本将和红杉中国分道扬镳？沈南鹏或将面临艰难选择\_中国经济网](http://finance.ce.cn/stock/gsgdbd/202201/06/t20220106_37234537.shtml)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

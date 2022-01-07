@@ -2,22 +2,56 @@
 ---
 
 
-## 秘翻在线：中共国的航天工业是被吹上天的
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1832789/)
+## 日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1832909/)
 
-**撰稿：葛大饼**
+作者：日本方舟农场— Andy5
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-07-212154.jpg)**2021年双曲星1号火箭发射失败**
-根据2022年1月6日新浪报道称，中共国在过去的一年航天发射次数达55次，超过美国的45次和俄罗斯的25次，居世界第一。
 
-文章称新世纪头10年，中共举国之力主导的航天工业急剧崛起，中国航天科技集团有限公司去年完成48次发射，成功率100%，将上百颗（含搭载）航天器送入太空，酒泉卫星发射中心也是世界上最繁忙的火箭发射基地，全年发射22次。2021年，中共祝融号首次在火星上留下自己的足迹， 中国载人航天工程总设计师周建平表示2022年将完成中国空间站的建造以及中共国空间站首个实验舱等.
 
-新闻称虽然马斯克的SpaceX公司也在2021年突破纪录，但是美国“星链”卫星却两次接近中国空间站，对空间站上的航天员生命健康构成威胁，美方不尊重以国际法为基础的外空国际秩序。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
 
-中共国航天发射次数达55次，有多少次是失败的？有多少次是P图盗别国的视频的？中共唯一进步的是把当年亩产万斤量，母猪会上树的宣传语变成航天事业超美俄！中共的不自信只能靠口炮来打气，同时也给防火墙内不明真相的老百姓洗脑！
 
-**[新闻来源](https://k.sina.cn/article_1887344341_707e96d50200170k2.html?from=mil&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
+
+
+
+据日本媒体1月6日报道，日本首相岸田文雄与澳大利亚首相莫里森已经共同签署了《访问部队地位协定》也就是RAA协定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/付出行动-1.jpg)
+该协定涉及：增加两国实施共同训练的频率、简化携带武器到对方国家的申请手续、保证两国之间军队进入对方国家后的地位等内容。此协定将加深日澳两国在安全保障和国家防卫上的合作。
+
+据悉受日本国内疫情扩大的影响，岸田首相取消了访问澳洲的计划，将跟澳大利亚的会晤改在了线上举办。目前两国首脑正在讨论针对中共在海洋上的扩张以及北朝鲜核问题、涉及日澳共同关心的地区安全问题，并讨论解决这些问题所需要的措施。
+
+参考来源：
+
+1.[https://www.excite.co.jp/news/article/TBSNews\_4442146/](https://www.excite.co.jp/news/article/TBSNews_4442146/)
+
+2.[https://www.jiji.com/jc/article?k=2022010600811&g=int](https://www.jiji.com/jc/article?k=2022010600811&amp;g=int)
+
+3.[https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K](https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K)
+
+4.[https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/](https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
+
+
 
 
 
