@@ -2,64 +2,47 @@
 ---
 
 
-## 2022/01/07 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1834299/)
+## 丹麦疫苗损害无处不在 住院者主要是完全接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834308/)
 
-**主持**：微蓝｜**嘉宾**：无双柳薇薇、神奇四侠
+**翻译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07.png)图片来源：newstarget.com
+强制性口罩、隔离和 Covid-19 疫苗正在丹麦成为贱民，因为“完全接种疫苗”占当前Omicron Covid-19 病例数的 90% 以上。随着疫苗损害在人群中无处不在，丹麦的Omicron住院率开始超过Delta住院率。由于“完全接种疫苗”占这些新Omicron病例的绝大多数，人们越来越担心，他们正在经历抗体依赖性增强和免疫耗竭，所以，他们会迅速传播新变种。
 
+“**完全接种”和“加强剂”，构成了现在绝大多数的新冠病毒病例**
 
+丹麦政府已成为医疗警察国家，对“未接种疫苗”的人实施限制，强迫尽可能多的人参与正在进行的医学实验。因此，现在几乎每个 50 岁以上的公民都被标记为“完全接种疫苗”。年轻人也被迫放弃他们的身体进行这项基因实验。尽管潜在感染的风险可以忽略不计，**但 15-60 岁人群的疫苗接种率约为 80%。这种疫苗接种水平是前所未有的**，其比例具有历史意义。然而，人群的疫苗接种率，并不等同于真正的免疫。**如果实验性疫苗计划奏效，那么现在就可以完全实现群体免疫，传染病率将迅速下降。**然而，相反的情况正在发生，因为新的冠状病毒浪潮继续困扰着“完全接种疫苗”的人。事实上，超过 90% 的 Omicron 病例都在接种疫苗的人中！
 
-**板块1–国际政治**
+在丹麦的全部人口中，只有 17% 的人没有受到这项基因实验的影响，这主要是因为，政府尚未强迫父母将年幼的孩子交给疫苗计划。值得注意的是，“**未接种疫苗”仅占新的Omicron病例的 8.5%。**尽管完全接种疫苗的人正在将这种变种传播到丹麦和世界其他地方，但未接种疫苗的人似乎是受保护的群体。根据国家血清研究所 12 月 18 日发布的《关于 Omicron 变异的报告》中的官方感染统计数据，**疫苗正在对感染率产生负面影响**，未接种疫苗的人群，现在是受到更多保护的人群。通过不接种疫苗，人们可以免受 50% 的最新冠状病毒感染。**自然免疫**显然是有效的，而疫苗正在干扰免疫反应，破坏群体免疫，并引发新的公共卫生问题。
 
-1. 朝鲜官方表示因敌对势力和病毒理由不派运动员参加冬奥会。
+这些 Omicron 病例中，有 79% (13,946) 发生在“完全接种疫苗”的人群中。即使是那些接种了加强疫苗的人，也比“未接种疫苗”的人更多。接受加强注射的患者占新病例的 10.8% (1,851)，而单独接种疫苗组占新病例的 1.8% (304)，“未接种疫苗”组占新病例的 8.5% (1,454) 案件。
 
-结合文贵先生爆料中共可能在冬奥会继续放毒，美国已宣布外交抵制、普京可能不出席，朝鲜再“补刀”缺席，冬奥会已经“凉凉”。
+Delta 和 Omicron 正在困扰丹麦的“完全接种疫苗”，疫苗的免疫耗竭变得更加明显。
 
-**板块2–中共病毒**
+Omicron也不是唯一一种在完全接种疫苗的情况下被测序的菌株。在丹麦大量接种疫苗的人群中，自 11 月 22 日以来，每天新增 4,000 例 Delta 病例。12 月，这一数字已上升至每天 6,000 多起。2021 年 12 月 10-17 日当周，丹麦的 Delta 住院率平均为 1.55%，Omicron 住院率平均为 3.71%。
 
-1. 世界卫生组织提醒：新一波新冠病毒打破记录，日感染超200万例。
+Covid 疫苗根本没有用，**但更糟糕的是，它们似乎使 Covid 感染在人群中更加普遍**，无论是 Delta 还是 Omicron。如果“完全接种疫苗”的人继续感染这些新毒株，并将它们传播到人群中，那么事实证明，**疫苗计划会削弱免疫系统**，将人们变成新冠病毒的超级传播者——**这是一年半前每个人都担心的现实。**
 
-在疫苗大面积推广的背景下，上周日均感染100万例，一周翻倍显示病毒传染力增强，各国医疗资源严重吃紧。再证明–疫苗毫无效果。请大家积极储备药物（青蒿素、伊维菌素等）不能心存侥幸。
+疫苗计划甚至不提供中性结果，如生理盐水安慰剂。“完全接种疫苗”人群中，有更多人感染了这些新的 Covid，**证明疫苗会导致某种形式的免疫耗竭或抗体依赖性增强 (ADE)**。最新的变种已经找到了逃避先天免疫反应的方法，科学家们一年多来一直警告这个问题。疫苗产生的抗体是非中和性的，使得最新的毒株绕过粘膜的第一道防线，随着时间的推移，导致更大的病毒载量和更严重的免疫挑战。必须停止这种医疗试验。
 
-2. 在澳大利亚推行的18种快速检测病毒抗原体试剂盒，其中只有六种准确率超95%，剩余12种均来自中共国制造。
+文章信息来源：
+[IGorchudov.substack.com](https://igorchudov.substack.com/p/denmark-no-vax-is-protective-vax)
+[SSI.dk](https://www.ssi.dk/-/media/cdn/files/covid19/omikron/statusrapport/rapport-omikronvarianten-18122021-wj25.pdf?la=da) [PDF]
+[IsraelNationalNews.com](https://www.israelnationalnews.com/news/309762)
+[Scribd.com](https://www.scribd.com/document/519637770/Document)
 
-因试剂盒准确率问题，各国关于病毒数据并非完全准确，中共国的数据更不可信，全球真实情况只会比数据显示更严重。中共国向国际积极出口试剂盒，作为要挟抵制冬奥会国家的重要砝码。
+**文章来源**：[newstarget.com][Vaccine DAMAGE now ubiquitous in Denmark as “Omicron” hospitalizations occur primarily in “fully vaccinated”](https://www.newstarget.com/2022-01-05-vaccine-damage-ubiquitous-in-denmark-Omicron-hospitalizations-fully-vaccinated.html)
 
-3. 内哈默政府宣布多达380万人曾双重接种疫苗的人为未接种疫苗者。
+* * *
 
-全球夸张的疫苗强制还在继续，曾经宣告打了疫苗就可以免疫，再到接种加强针，强推疫苗护照。加拿大政府“耍流氓”发放新的救助金只针对接种疫苗者，疫苗接种和未接种极端两极化分人口；计划推行全国电子化统一，未接种疫苗人群可能会信用减分。德国疫苗政策“紧跟”奥地利严格的疫苗护照政策。西班牙每周会举行反疫苗示威，示威队伍领导者与爆料革命积极分享疫苗信息，利用GTV 做宣传。老百姓只有两个选择（站出来反抗或无限打疫苗）。
+***审核：文乐
+校对：信心满满
+发布：信心满满***
 
-**板块3–军事**
-
-1.瑞士军队限制通信软件（Whatsapp、Signal、Telegram等）的使用。
-
-瑞士运用本国的通信系统（有独立的数据存储）感知到外国通信软件的不安全性，中共长期利用各通信软件出卖用户信息盈利进行窃取数据信息，加深欧洲和五眼联盟国家的不安全感。
-
-中共国微信用户每天都在“裸奔”。
-
-**板块4–国内政治**
-
-1.一天之内多家房地产公司爆雷，中共国债务危机加剧。
-
-当代置业公司被评级降级，阳光城执行董事长辞职，世茂集团违约到期。各种“雷”接种而至，危机将延伸至各行各业，国内的至暗时刻即将到来。
-
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-[![](https://express.adobe.com/page/T1SR8ZcXhlkV2/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/T1SR8ZcXhlkV2/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/T1SR8ZcXhlkV2/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/T1SR8ZcXhlkV2/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
