@@ -2,56 +2,46 @@
 ---
 
 
-## 法国的马克龙发表震惊声明，未接种疫苗的人“不是公民”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1830850/)
+## 安妮日记2022-逃离新冠疫苗
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1830885/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010604-1.jpg)图片：来自网络
-《国家脉动》1月4日报道：
-
-法国总统埃马纽埃尔·马克龙（Emmanuel Macron）做出了疯狂的专制举动，宣布全国未接种疫苗的公众是法国的“非公民”，并声称他只是故意想“激怒他们”。
-
-这一离奇而非法的声明发生在法国议会辩论新的立法时，该立法将把未接种疫苗的人完全排除在公共生活之外，即使他们的新冠病毒（COVID-19）检测呈阴性。这些举动颠覆了他们经常重复的新冠病毒疫苗纯粹是一种健康措施的说法，特别是面对来自周边国家的新数据，证明接种疫苗的人现在更有可能感染并因此传播这种病毒。
-
-在接受《巴黎人报》（Le Parisien）采访时，马克龙愤怒地大声说道：“我不是要激怒法国人民……但对于未接种疫苗者，我真的想激怒他们。而且我们将继续这样做，直到最后。这就是我们的策略。
-
-他继续说道：“在一个民主国家，最可怕的敌人是谎言和愚蠢……我们正在对未接种疫苗的人施加压力，尽可能地限制他们参与社会活动。”
-
-法国声称已经为几乎90%的符合条件的人接种了疫苗。尽管卫生专业人员声称这应该足以控制新冠病毒的传播，但该病毒仍在感染和传播，包括在整个欧洲和美国的接种者中。
-
-不管科学事实如何，马克龙指责“只有极少数人在抵抗。我们如何减少这个少数群体？我们减少它——对不起，这个说法——就是更多地激怒他们。” 他接着说，他没有计划“监禁未接种疫苗的人，或强行为他们接种疫苗”。
-
-因此，他提出, “我们必须告诉他们：从1月15日起，你将再不能去餐厅。你将再不能去喝咖啡，你将再不能去看戏。你将再不能去电影院。” 马克龙最后说：“当我的自由威胁到其他人的自由时，我就成了不负责任的人。不负责任的人就不是一个公民。”
-
-反对派领导人玛丽娜·勒庞（Marine Le Pen）进行了反击，她声称一位总统“不应该说这样的话”，并坚持认为马克龙“不配担任这个职务”，他正在“把未接种疫苗的人变成二等公民”。
-
-2022年法国总统选举的最新民意调查显示，马克龙（23%）领先于他的主要对手玛丽娜·勒庞（14.5%）、埃里克·泽穆尔（Eric Zemmour）（15%）、让·吕克·梅朗雄（Jean-Luc Mélenchon）（13%）和瓦莱丽·佩克雷斯（Valérie Pécresse）（15%）。
-
-法国总统选举分两轮进行，最新的实地调查显示，马克龙在第二轮选举中轻松击败勒庞或泽穆尔，只有中间派的佩克雷斯能够在第二轮选投票中紧随其后。
-
-尽管马克龙自己的民望数值在2018年下滑到近乎负60%，但他自己的政治命运在最近几个月似乎有所改善。一项新的《哈里斯互动》（Harris Interactive）调查显示，他的支持率为+2，是多年来的最高值。
-
-**简评：**
-马克龙声明“未接种中共病毒疫苗的就不是法国公民，而且要限制未接种人群的社交活动”。从他的言辞看，政府并不是要对未接种者强行拘留或强制疫苗，而只是要限制他们的活动自由。他只是想以此激怒“未接种疫苗”的人，给他们点颜色看看。
-
-马克龙是在民主国家外衣的掩护下，其在实行独裁专制。尽显一副“你不服管，我就治你，整你”的中共流氓作风。民众每天都生活在这种政府的“吓人策略“高压下，自然而然产生恐惧感，当恐惧感爆棚，就会物极必反，民众会起来反抗和推翻独裁政府。
-
-最新的总统选举民意调查, 表面上看马克龙处于领先，但一个试图分裂民众和限制民众自由的总统，失去了民意后，他也只是在展示他最后的疯狂，因为一切违背民意，反自然的独裁终会被正义战胜及取代。
-
-新闻链接: [France’s Macron Stuns As He Declares Un-Vaxxed ‘Not Citizens’.](https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/)
-
-*翻译/简评: JS*
-*校对：clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**出品：纽约香草山设计部**
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 
