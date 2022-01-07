@@ -2,19 +2,31 @@
 ---
 
 
-## 深圳报告两例中共病毒感染者
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831126/)
+## GTV新闻访谈简报|2022年1月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1831143/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-据深圳卫健委1月7日的发布消息，深圳市对重点从业人员定期核酸检测时，发现两例中共病毒（新冠病毒）阳性感染者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-11.43.49.jpeg)图片来源：网络
-两例患者是一对夫妻，居住在深圳市龙岗区布吉街道布吉社区。1月6日在例行核酸检测“10混1”采样中，中共病毒核算初筛选为阳性，1月7日经深圳市疾控中心复核为阳性。目前已经转移至深圳市第三人民医院应急院区隔离治疗，相关密切接触者正在排查中。
-
-信息来源：[深圳报告2例新冠病毒阳性感染者](https://mp.weixin.qq.com/s/ZjTuhpZeC6T0e66FiyyBkA)
- [深圳新增2例阳性感染者：系夫妻](https://cj.sina.com.cn/articles/view/6127950989/16d411c8d001013b5q?autocallup=no&amp;isfromsina=no)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d7972cf2fe0449ea19126f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
