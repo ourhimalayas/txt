@@ -2,46 +2,55 @@
 ---
 
 
-## Covid疫苗中的纳米技术是技术寄生——用于通信
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833547/)
+## VAERS数据：目前有超过1百万例疫苗不良反应，包括2.1万死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1833587/)
 
-翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-13261405674.jpg)图片来源：《网关专家》
+美国保守派媒体《网关专家》1月6日报道，来自疫苗不良事件报告系统(VAERS)的报告显示(包括非美国境内)，截至2021年12月24日，有超过100万例中共病毒疫苗不良反应病例，其中有超过2.1万人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-426.png)图片来源 :dailyexpose.uk
+根据最新的数据，VAERS网站目前总共报告了**1,000,227**起中共病毒疫苗不良反应事件。
 
-昨天，我们发布了《第五纵队》（La Quinta Columna） 的一段视频，展示了在 Covid 疫苗注射液中发现的“纳米章鱼”和其他似乎是自行组装的微粒。作为后续，本文指向科学研究，该研究解释了为什么 Covid 注射包含这些“东西”。
+其中包括：
 
-2021 年 1 月发表在《通信杂志》上的一篇论文，对“无线纳米传感器网络” (WNSN) 进行了深入审查。
+- 21,002例中共病毒疫苗致死案例
+- 110,609例住院治疗案例
+- 3,435例流产案例
+- 10,640例心脏病发作案例
+- 22,117例患有心肌炎/心包炎案例
+- 35,650例终身残废案例
+- 23,892例危及生命的案例
 
-WNSN 是互连微器件和纳米节点或纳米传感器的网络。纳米节点是具有纳米尺寸的设备，由纳米处理器、纳米存储器、纳米电池、纳米收发器、纳米天线和纳米传感器组成，它们在纳米级别上运行。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-429.png)图片来源 :dailyexpose.uk
-“换句话说，我们谈论的是纳米技术，它重新创造了我们已知的通信技术。 但在这种情况下，是在体内。 我们正在谈论纳米通信。” 《第五纵队》的里卡多·德尔加多（Ricardo Delgado）说，它在辉瑞、莫德纳、阿斯利康和强生的疫苗注射液中。 “它们都是用于纳米通信的纳米技术。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-12.png)
+该图表显示，2021年报告有21,504人死亡，而且大多数死亡发生在他们接种中共病毒疫苗的当天。见下图：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-13.png)
+据报道，年轻如12岁的孩童就有报告在接种后会患上心肌炎/心包炎，并且受影响最严重的是年龄在15至25岁之间的青年人。见下图：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-14.png)
+17485名患有心肌炎/心包炎的人接种了辉瑞(Pfizer)疫苗，4273名接种了莫德纳(Moderna)疫苗，只有317名接种了美国强生(J&J)疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-15.png)
+根据美国疾病控制与预防中心(CDC)的数据，今年与CDC推广的疫苗有关的死亡人数绝对飙升了。
 
-米克·安德生（Mik Andersen）写道，以人体为中心的纳米阵列，需要使用在太赫兹波段工作的纳米天线，这些天线与 Covid 疫苗注射样本中发现的天线类型相同。
+VAERS的数据库包含了使用美国许可的疫苗进行免疫接种后发生的未经核实的不良反应事件报告信息(疾病、健康问题和/或症状)。CDC政府网站链接到VAERS平台。
 
-安德的文章，是对华威大学研究人员的一篇文章（2017 年）与坎普拉（Campra）博士从 Covid“疫苗”样本中获得的图像进行比较后，所做的深入且引用良好的研究。
+VAERS说什么：“VAERS偶尔会收到来自美国疫苗制造商的病例报告，这些病例报告被报告给他们国外的子公司。根据美国食品药品监督管理局(FDA)的规定，如果制造商被告知有一份国外的病例报告，描述了一个既严重又意外的事件(换句话说，它没有出现在产品标签中)，他们必须将其提交至VAERS。”
 
-“研究明确提及天线类型和体内纳米网络技术，将证实：疫苗是在人体中安装纳米技术或纳米设备的载体。然而，除了纯巧合之外，作者明确指出使用石墨烯和碳纳米管作为该网络模型的必要元素。”
+简评：
 
-《第五纵队》介绍了米克·安德生是谁以及他的研究，“我们将简要概述什么是**体内网络**。现在我们要谈谈纳米技术。具体来说，**就是精英们试图想做什么， 这是这次行动的未来或目的**，一龙·马斯克（Elon Musk）是其中的重要组成部分，”他说。
+截至到2022年1月5日，由邪恶的中共政权发起的这场利用新冠病毒和新冠病毒疫苗对全球发起的生物战争已经导致全球超过2.9亿人感染，547万人死亡(Our World in Data网站数据)。随着中共新一轮病毒的释放以及传播，各个国家在疫苗接种率极高的情况下，纷纷达到了单日感染人数的新高。此时此刻，主流媒体仍旧拿着2年前研发的疫苗告诉人们疫苗可以防重症但不防感染，并一而再再而三地封锁疫苗不良反应的新闻与报道。
 
-《第五纵队》（奥威尔城）视频[Video: Intra-body nano-network](https://www.orwell.city/2021/12/nano-network.html)
+早在2021年12月28日，美国保守派媒体《网关专家》已经报道了南加州护士对于中共病毒疫苗不良反应的揭露，其中提到许多医生不愿意承认病患的病症来自于疫苗，更不愿意将不良反应信息报告到这个系统。尽管如此，该系统仍报告了过百万的疫苗不良反应案例和过2万的疫苗致死案例。没人知道这背后还有多少数字被隐藏，没有人知道这每一个数字背后又有多少个家庭因此支离破碎。这一切都让我们坚信，中共不灭，世界不宁。正如新中国联邦宣言中提到的那样，消灭中共是正义的需要。因为只有这样，才可以早日阻止中共继续利用病毒和疫苗屠杀人类。
 
-视频中讨论的图像是 24 张幻灯片演示的第8张。在《奥威尔之城》（Orwell City）的网站上，您可以找到 24 张幻灯片的 pdf 文档，“体内纳米网络——米克·安德生的简要总结”，其中包含易于理解的图表和要点。该文档可以在线查看或下载。
-
-最后两张幻灯片展示了身体内的组件如何与外界交流的插图。首先是微观层面（23页），然后是宏观层面（24页）以及人体如何成为物联网的一部分。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-431.png)图片来源 :dailyexpose.uk
-
-新闻来源 :[ dailyexpose.uk] [Nano-Technology in Covid Injections – It’s for Communications, It’s Technological Parasitism](https://dailyexpose.uk/2021/12/24/nano-technology-in-covid-injections-its-for-communications-its-technological-parasitism/)
+新闻链接：[https://www.thegatewaypundit.com/2022/01/according-vaers-website-now-million-adverse-reaction-cases-covid-vaccine-21000-vaccine-deaths-year-2021/](https://www.thegatewaypundit.com/2022/01/according-vaers-website-now-million-adverse-reaction-cases-covid-vaccine-21000-vaccine-deaths-year-2021/)
 
 * * *
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

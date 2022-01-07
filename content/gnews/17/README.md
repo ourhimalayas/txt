@@ -2,55 +2,68 @@
 ---
 
 
-## VAERS数据：目前有超过1百万例疫苗不良反应，包括2.1万死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1833587/)
+## 【Michael.Tonny专栏】疫苗在欧洲已造成324.5万例副作用，超过3.6万人死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1833659/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-13261405674.jpg)图片来源：《网关专家》
-美国保守派媒体《网关专家》1月6日报道，来自疫苗不良事件报告系统(VAERS)的报告显示(包括非美国境内)，截至2021年12月24日，有超过100万例中共病毒疫苗不良反应病例，其中有超过2.1万人死亡。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+在中共病毒溯源以前，所谓的COVID-19 Vaccine（中共病毒疫苗）既不能预防感染，也不能减少死亡。注射这种试验性的疫苗，无异于把自己置身于小白鼠，成为毒疫苗的试验品。目前的中共病毒疫苗有毒，千万不要打疫苗！
 
-根据最新的数据，VAERS网站目前总共报告了**1,000,227**起中共病毒疫苗不良反应事件。
+根据[欧洲疾病预防和控制中心](/www.ecdc.europa.eu/en)(European Centre for Disease Prevention and Control) 发布的包含欧洲经济区（EEA）和非欧洲经济区国家（non-EEA countries）的欧洲疑似药物副作用报告（European database of suspected adverse drug reation reports）数据库EudraVigilance系统的统计，截至2022年1月1日，在欧洲注射的COVID-19病毒疫苗已造成36,257人死亡和3,244,052例副作用报告，其中，1,540,852例属于严重副作用报告，占副作用报告的47.5%。
 
-其中包括：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1-ADRs-EU-Jan-01.jpg)
 
-- 21,002例中共病毒疫苗致死案例
-- 110,609例住院治疗案例
-- 3,435例流产案例
-- 10,640例心脏病发作案例
-- 22,117例患有心肌炎/心包炎案例
-- 35,650例终身残废案例
-- 23,892例危及生命的案例
+这里的严重副作用是按照有关可疑不良影响的程度划分。包括导致死亡（death）、危及生命（life-threatening）、需要住院治疗（requires inpatient hospitalisation）、导致另一种医学上的重要状况（results in another medically important condition）或现有住院时间延长（prolongation of existing hospitalisation）、导致持续或严重残疾（persistent or significant disability）或丧失能力（incapacity）的医疗事故，或者是先天性异常/出生缺陷（congenital anomaly/birth defect）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-12.png)
-该图表显示，2021年报告有21,504人死亡，而且大多数死亡发生在他们接种中共病毒疫苗的当天。见下图：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-13.png)
-据报道，年轻如12岁的孩童就有报告在接种后会患上心肌炎/心包炎，并且受影响最严重的是年龄在15至25岁之间的青年人。见下图：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-14.png)
-17485名患有心肌炎/心包炎的人接种了辉瑞(Pfizer)疫苗，4273名接种了莫德纳(Moderna)疫苗，只有317名接种了美国强生(J&J)疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/grafik-15.png)
-根据美国疾病控制与预防中心(CDC)的数据，今年与CDC推广的疫苗有关的死亡人数绝对飙升了。
+目前，欧洲注射的疫苗包括：BioNTech/ Pfizer的Tozinameran疫苗，代码是BNT162b2；Moderna的mRNA-1273疫苗，代码是CX-024414；Oxford/AstraZeneca的AZD1222/VAXZEVRIA疫苗，代码是CHADOX1 NCOV-19；Johnson & Johnson的JANSSEN疫苗，代码是AD26.COV2.S。
 
-VAERS的数据库包含了使用美国许可的疫苗进行免疫接种后发生的未经核实的不良反应事件报告信息(疾病、健康问题和/或症状)。CDC政府网站链接到VAERS平台。
+其中，BioNTech/ Pfizer的BNT162b2杀人最多，达16,471人，Moderna的CX-024414死亡率最高，为5.41%。
 
-VAERS说什么：“VAERS偶尔会收到来自美国疫苗制造商的病例报告，这些病例报告被报告给他们国外的子公司。根据美国食品药品监督管理局(FDA)的规定，如果制造商被告知有一份国外的病例报告，描述了一个既严重又意外的事件(换句话说，它没有出现在产品标签中)，他们必须将其提交至VAERS。”
+下表为四种疫苗导致的副作用报告统计：
 
-简评：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/injuries-following-injections-of-four-experimental.jpg)
 
-截至到2022年1月5日，由邪恶的中共政权发起的这场利用新冠病毒和新冠病毒疫苗对全球发起的生物战争已经导致全球超过2.9亿人感染，547万人死亡(Our World in Data网站数据)。随着中共新一轮病毒的释放以及传播，各个国家在疫苗接种率极高的情况下，纷纷达到了单日感染人数的新高。此时此刻，主流媒体仍旧拿着2年前研发的疫苗告诉人们疫苗可以防重症但不防感染，并一而再再而三地封锁疫苗不良反应的新闻与报道。
+超过1/4的副作用报告被归为一般性疾病和给药部位疾病，神经系统疾病（Nervous system disorders）、肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders）以及胃肠道疾病（Gastrointestinal disorders）也有相当高的比例。
 
-早在2021年12月28日，美国保守派媒体《网关专家》已经报道了南加州护士对于中共病毒疫苗不良反应的揭露，其中提到许多医生不愿意承认病患的病症来自于疫苗，更不愿意将不良反应信息报告到这个系统。尽管如此，该系统仍报告了过百万的疫苗不良反应案例和过2万的疫苗致死案例。没人知道这背后还有多少数字被隐藏，没有人知道这每一个数字背后又有多少个家庭因此支离破碎。这一切都让我们坚信，中共不灭，世界不宁。正如新中国联邦宣言中提到的那样，消灭中共是正义的需要。因为只有这样，才可以早日阻止中共继续利用病毒和疫苗屠杀人类。
+下表为四种疫苗导致的死亡报告统计：
 
-新闻链接：[https://www.thegatewaypundit.com/2022/01/according-vaers-website-now-million-adverse-reaction-cases-covid-vaccine-21000-vaccine-deaths-year-2021/](https://www.thegatewaypundit.com/2022/01/according-vaers-website-now-million-adverse-reaction-cases-covid-vaccine-21000-vaccine-deaths-year-2021/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/fatalities-following-injections-of-four-experimental.jpg)
 
-* * *
+在死亡案例中，有28.7%属于一般性疾病和给药部位疾病，其次 ，心脏疾病（Cardiac disorders）、感染和侵染（Infections and infestations）、神经系统疾病（Nervous system disorders）、呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders）等也占据相当大的比例。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+这些数据和美国的VAERS系统的报告相吻合。
 
+试验性的疫苗有毒，千万不要打毒疫苗！
 
-编辑：【英国伦敦喜庄园编辑部】
+尽管如此，1月6日，澳大利亚北领地首席部长Michael Gunder在新闻发布会上正式宣布，未来几天未“完全接种”Covid-19 疫苗的公民实施新的专制封锁，任何年满16岁且未完全接种疫苗的人要到下周中旬才能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，但才能离开不得超过30公里远。这是世界上迄今为止最严厉的封锁之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Australias-Northern-Territory-has-officially-imposed-a-new-authoritarian.jpg)
+
+澳大利亚当局这是在抄CCP作业吗？千万不要忘了中南坑老杂毛马上就要被中国人民干掉了。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shi-li-shan-lu-bu-huan-jian.jpg)
+
+参考数据：
+
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
+
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+[36,257 Deaths and 3,244,052 Injuries Following COVID Shots in European Database – Double Vaxxed 13-Year-Old Dies from Heart Attack](https://healthimpactnews.com/2022/36257-deaths-and-3244052-injuries-following-covid-shots-in-european-database-double-vaxxed-13-year-old-dies-from-heart-attack/)
+
+[Online access to suspected side-effect reports](https://www.adrreports.eu/en/index.html)
+
+[European Centre for Disease Prevention and Control](https://www.ecdc.europa.eu/en)
+
+[Dystopia Down Under: Amid Omicron Hysteria, Australia’s Northern Territory Announces New China-Esque Lockdown of All Unvaccinated Citizens – Going to Work and Outdoor Exercise Are No Longer Considered Essential For the Unvaxxed – (VIDEO)](https://www.thegatewaypundit.com/2022/01/dystopia-amid-omicron-hysteria-australia-announces-new-china-esque-lockdown-unvaccinated-citizens-going-work-outdoor-exercise-no-longer-considered-essential-un/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
+#  
 
  
 

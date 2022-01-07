@@ -2,50 +2,34 @@
 ---
 
 
-## 朝鲜以疫情为由宣布不参加北京冬奥会
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833403/)
+## 立陶宛政府坚定不移地欢迎台湾在该国设立代表处
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833468/)
 
-作者：纽约香草山教育部 —Naughty(文行)
+**撰稿：日本东京方舟农场  子辰**
 
+据《大纪元》1月7日报道，立陶宛外交部发言人1月5日在接受采访时表示，立陶宛政府欢迎台湾设立“台湾代表处”的决定一直都是坚定不移的。
 
+在此前的1月4日，立陶宛总统瑙塞达（Gitanas Nauseda）在接受广播电台Ziniu Radijas采访时曾称，他赞同台湾设立代表处，但不赞同以“台湾”为名设立代表处。他同时还称，有关此事他未被咨询过。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.jpg)图片来自《大纪元》
 
+针对瑙塞达的这一说法，立陶宛外交部发言人库列绪叶内（Vytautė Šmaižytė-Kuliešienė）在回复《中央社》询问时表示，立陶宛政府期待与台湾发展商务、科学、技术与文化关系。立陶宛与台湾人民因共享价值观及共同拥有创新、开放、有活力的社会而走在一起，立陶宛政府期待双边人民有更多接触。
 
+库列绪叶内还指出，支持民主与人权等普世价值是现任执政联盟拟定协议的一部分，也是政府施政规划的重要内涵。
 
-据路透社报道，朝鲜官方媒体星期五宣称由于敌对势力的阻碍和新冠病毒的全球流行，将无法参加即将在北京举行的冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/抵制.png)
-朝鲜被国际奥委会（IOC）禁赛至 2022 年底，这意味着在去年未能派队参加东京奥运会后，朝鲜将无缘北京冬奥会。 据朝中社报道，朝鲜奥委会和体育部致函包括北京奥组委表示尽管不能参加本届冬奥会，但仍会全力支持中共国奥运会所做的一切工作。
+近日，中共以立陶宛同意台湾设立“台湾代表处”为由，不断加大对立陶宛的外交与经贸胁迫。但立陶宛不仅得到了其重要盟友美国具体而有力的支持，并且还协调欧洲盟国对中共采取反击行动。
 
-2021年 12 月，白宫宣布由于中共在中国的人权暴行，美国政府官员将抵制 2022 年冬季奥运会，但允许美国运动员个人可以自由前往北京参加比赛。
+参考链接：
 
-此后，包括英国、澳大利亚和加拿大在内的其他几个国家也宣布了外交抵制。
+[立陶宛外交部：坚定不移欢迎设立台湾代表处](https://www.epochtimes.com/gb/22/1/5/n13483792.htm)
 
-参考来源：[https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics](https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+*素材采编：子辰*
 
-编辑/校对/发稿：兰兰
+*编辑：青衣青青*
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
+*发布：Ranting*
 
  
 
