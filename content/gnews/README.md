@@ -15,91 +15,91 @@
 
 ---
 
-### [中共国房价下跌城市数量增加二手房价格跌幅扩大](/content/gnews/1/README.md)
+### [有声|台湾空军举行一年一度应对中共的军事演习](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [中共国房价下跌城市数量增加二手房价格跌幅扩大](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [有声|牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/2/README.md)
+### [有声|牛津疫苗研发专家称定期注射疫苗“不理智”](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月4日晚](/content/gnews/3/README.md)
+### [有声|GTV新闻访谈简报|2022年1月4日晚](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [立陶宛政府坚定不移地欢迎台湾在该国设立代表处](/content/gnews/4/README.md)
+### [立陶宛政府坚定不移地欢迎台湾在该国设立代表处](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [有声|美单日新增病例破百万 超去年同期高峰4倍](/content/gnews/5/README.md)
+### [有声|美单日新增病例破百万 超去年同期高峰4倍](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [密歇根高接种率卫生系统爆发大规模染疫](/content/gnews/6/README.md)
+### [密歇根高接种率卫生系统爆发大规模染疫](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [朝鲜也宣布不出席北京冬奥会](/content/gnews/7/README.md)
+### [朝鲜也宣布不出席北京冬奥会](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [朝鲜以疫情为由宣布不参加北京冬奥会](/content/gnews/8/README.md)
+### [朝鲜以疫情为由宣布不参加北京冬奥会](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [洛杉矶首例中共病毒与流感共同感染病例](/content/gnews/9/README.md)
+### [洛杉矶首例中共病毒与流感共同感染病例](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯:消费者信心指数四个月来首次恶化；日美“2+2”会谈将于7日在线举行](/content/gnews/10/README.md)
+### [银河快讯:消费者信心指数四个月来首次恶化；日美“2+2”会谈将于7日在线举行](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|因言被封：推特永久封禁美众议员的个人账户](/content/gnews/11/README.md)
+### [有声|因言被封：推特永久封禁美众议员的个人账户](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [印度向小米追缴超八千万美元逃税款项](/content/gnews/12/README.md)
+### [印度向小米追缴超八千万美元逃税款项](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [有声|狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](/content/gnews/13/README.md)
+### [有声|狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [意大利强迫50岁以上公民必须注射疫苗](/content/gnews/14/README.md)
+### [意大利强迫50岁以上公民必须注射疫苗](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [文贵大直播 1/7 中共房地产的唯一价值就是骨灰变成文明的肥料](/content/gnews/15/README.md)
+### [文贵大直播 1/7 中共房地产的唯一价值就是骨灰变成文明的肥料](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|德国：双重疫苗接种者将不再允许不经测试进入餐馆](/content/gnews/16/README.md)
+### [有声|德国：双重疫苗接种者将不再允许不经测试进入餐馆](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [从哈萨克斯坦事件看独裁政权的本质和结局](/content/gnews/17/README.md)
+### [从哈萨克斯坦事件看独裁政权的本质和结局](/content/gnews/18/README.md)
  ` MilesGuoLivePPT`
 
-### [有声|儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/18/README.md)
+### [有声|儋州市政府落井下石亮剑恒大 海花岛三十九栋楼新年变礼花](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [1/7银河快讯：日本三个半月来新增确诊首次破4000；进入“第六波疫情”](/content/gnews/19/README.md)
+### [1/7银河快讯：日本三个半月来新增确诊首次破4000；进入“第六波疫情”](/content/gnews/20/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共20大人事被曝血雨腥风即将到来](/content/gnews/20/README.md)
+### [中共20大人事被曝血雨腥风即将到来](/content/gnews/21/README.md)
  ` MilesGuoLivePPT`
 
-### [香港股市与中共恒大集团及房地产危机](/content/gnews/21/README.md)
+### [香港股市与中共恒大集团及房地产危机](/content/gnews/22/README.md)
  ` MilesGuoLivePPT`
 
-### [法律你我她-赌博的定义；赌博的悠久历史；赌博如何推动人类数学的进步？](/content/gnews/22/README.md)
+### [法律你我她-赌博的定义；赌博的悠久历史；赌博如何推动人类数学的进步？](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [数字货币最新信息](/content/gnews/23/README.md)
+### [数字货币最新信息](/content/gnews/24/README.md)
  ` MilesGuoLivePPT`
 
-### [1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发](/content/gnews/24/README.md)
+### [1/7/2022国际财经快讯：东芝第二大股东敦促对分拆计划投票；美国国债收益率风险爆发](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国最高法院大法官 有可能 终止拜登疫苗强制令吗？](/content/gnews/25/README.md)
+### [美国最高法院大法官 有可能 终止拜登疫苗强制令吗？](/content/gnews/26/README.md)
  ` MilesGuoLivePPT`
 
-### [中共赴哈萨克斯坦索金不成 制造暴动](/content/gnews/26/README.md)
+### [中共赴哈萨克斯坦索金不成 制造暴动](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/27/README.md)
+### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/28/README.md)
  ` 英喜-粵語組`
 
-### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [纽约市长考虑对城市雇员强制施打加强针](/content/gnews/29/README.md)
+### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
 ### [瑞典银行前CEO由于洗钱丑闻受到刑事指控](/content/gnews/30/README.md)

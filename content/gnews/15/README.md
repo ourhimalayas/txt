@@ -2,18 +2,46 @@
 ---
 
 
-## 文贵大直播 1/7 中共房地产的唯一价值就是骨灰变成文明的肥料
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1833327/)
+## 意大利强迫50岁以上公民必须注射疫苗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833336/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2.jpg)图片来源： GTV
-1月7日，新中国联邦的创始人郭文贵先生在GTV和GETTR同步推出的文贵大直播中，直言中共房地产的唯一价值就是其骨灰可以变成文明的肥料。
+作者：东京樱花团—在远方
 
-对中共房地产的认知，必须放在时代发展的大背景下去评估，今天的世界在面临经济大崩溃的同时，也存在前所未有的机遇和空间。中共房地产崩塌时，就是政治、经济、金融等的大洗牌，一切都有可能。
 
-影响全球数字货币的顶级人物亲口告诉郭先生，当看到中共的数据造假从大约8%到今天35%的时候，明确地知道中共已经不是新中国联邦的对手。
 
-世界的转折处，不是数字货币牛，而是郭先生的喜联储和盖特Pay改写了数字货币的规则。 【来源链接】https://gtv.org/broadcast/watch/61d83b3ef2fe0449ea199bd6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+台媒报道，当地时间5日，意大利政府宣布强制令，要求50以上民众必须接种中共病毒疫苗。意大利此举成为非常少数实施疫苗强制令的欧洲国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗灾难.jpg)
+这项强制令要求50岁以上，没有工作的人必须接种疫苗，而有工作者必须取得所谓的“疫苗通行证”，才能进入工作场所。而根据最新统计，在意大利5900多万人口中，有大约2800万人年龄超过50岁。
+
+评论指出，意大利政府不顾中共病毒疫苗给民众带来的巨大伤害，而在老年人中执行疫苗强制令，其险恶目的已经暴露无遗。
+
+参考来源：[https://cn.rti.org.tw/news/view/id/2121426](https://cn.rti.org.tw/news/view/id/2121426)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-3.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+
+
 
  
 

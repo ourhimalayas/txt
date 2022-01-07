@@ -2,29 +2,35 @@
 ---
 
 
-## 有声|美单日新增病例破百万 超去年同期高峰4倍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833466/)
+## 立陶宛政府坚定不移地欢迎台湾在该国设立代表处
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833468/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
+**撰稿：日本东京方舟农场  子辰**
 
-评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
+据《大纪元》1月7日报道，立陶宛外交部发言人1月5日在接受采访时表示，立陶宛政府欢迎台湾设立“台湾代表处”的决定一直都是坚定不移的。
 
-文字版原文：[美单日新增病例破百万 超去年同期高峰4倍](https://gnews.org/zh-hans/1829316/)
+在此前的1月4日，立陶宛总统瑙塞达（Gitanas Nauseda）在接受广播电台Ziniu Radijas采访时曾称，他赞同台湾设立代表处，但不赞同以“台湾”为名设立代表处。他同时还称，有关此事他未被咨询过。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.jpg)图片来自《大纪元》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+针对瑙塞达的这一说法，立陶宛外交部发言人库列绪叶内（Vytautė Šmaižytė-Kuliešienė）在回复《中央社》询问时表示，立陶宛政府期待与台湾发展商务、科学、技术与文化关系。立陶宛与台湾人民因共享价值观及共同拥有创新、开放、有活力的社会而走在一起，立陶宛政府期待双边人民有更多接触。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+库列绪叶内还指出，支持民主与人权等普世价值是现任执政联盟拟定协议的一部分，也是政府施政规划的重要内涵。
+
+近日，中共以立陶宛同意台湾设立“台湾代表处”为由，不断加大对立陶宛的外交与经贸胁迫。但立陶宛不仅得到了其重要盟友美国具体而有力的支持，并且还协调欧洲盟国对中共采取反击行动。
+
+参考链接：
+
+[立陶宛外交部：坚定不移欢迎设立台湾代表处](https://www.epochtimes.com/gb/22/1/5/n13483792.htm)
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

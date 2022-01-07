@@ -2,50 +2,32 @@
 ---
 
 
-## 朝鲜以疫情为由宣布不参加北京冬奥会
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833403/)
+## 朝鲜也宣布不出席北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833430/)
 
-作者：纽约香草山教育部 —Naughty(文行)
+**撰稿：日本东京方舟农场  子辰**
 
+据《大纪元》1月7日报道，朝鲜当局1月6日明确表示，将不出席2022年2月举行的北京冬奥会和残奥会。
 
+《朝鲜中央通讯社》周五称，朝鲜国家奥林匹克委员会和体育局已在致中方的一封信中传达了这一决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-80.jpg)图片来自《大纪元》
 
+据报道，朝鲜当局在信中一再强调，是由于COVID-19（中共病毒）的全球传播，才促使他们决定不出席北京冬奥运会。信中还提到，在COVID-19（中共病毒）大流行的情况下，朝鲜也没有派队参加2021年的东京夏季奥运会。
 
+朝鲜被认为特别容易受到传染病影响。在2003年严重急性呼吸系统综合症（SARS）流行期间，以及2014年西非爆发埃博拉疫情时，朝鲜均禁止外国人入境。
 
-据路透社报道，朝鲜官方媒体星期五宣称由于敌对势力的阻碍和新冠病毒的全球流行，将无法参加即将在北京举行的冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/抵制.png)
-朝鲜被国际奥委会（IOC）禁赛至 2022 年底，这意味着在去年未能派队参加东京奥运会后，朝鲜将无缘北京冬奥会。 据朝中社报道，朝鲜奥委会和体育部致函包括北京奥组委表示尽管不能参加本届冬奥会，但仍会全力支持中共国奥运会所做的一切工作。
+参考链接：
 
-2021年 12 月，白宫宣布由于中共在中国的人权暴行，美国政府官员将抵制 2022 年冬季奥运会，但允许美国运动员个人可以自由前往北京参加比赛。
+[朝鲜表示不参加北京冬奥会](https://www.epochtimes.com/gb/22/1/6/n13487045.htm)
 
-此后，包括英国、澳大利亚和加拿大在内的其他几个国家也宣布了外交抵制。
+* * *
 
-参考来源：[https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics](https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics)
+*素材采编：子辰*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+*编辑：青衣青青*
 
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
+*发布：Ranting*
 
  
 
