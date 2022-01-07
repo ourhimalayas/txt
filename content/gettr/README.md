@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 7:06 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥11
+![img](https://media.gettr.com/group31/getter/2022/01/07/19/c754dfc0-d927-8316-d3a2-f10775ae9609/9f348bff4636424e105759fb0ef18c73.jpg)
+
+---
+
+`@miles 1/7/2022 7:05 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥10
+![img](https://media.gettr.com/group31/getter/2022/01/07/19/3dc05d2e-4958-c098-2bc8-ee5a02b8a637/102412b9ecba292babd4fc416d3ab088.jpg)
+
+---
+
+`@miles 1/7/2022 6:55 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥9
+![img](https://media.gettr.com/group7/getter/2022/01/07/18/afa09433-d2bb-18fe-23d8-64da28c8f47a/e499ee2b29ab7fe0a16108b1c99d064c.jpg)
+
+---
+
 `@miles 1/7/2022 6:51 PM (UTC)`
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥8
@@ -132,31 +153,6 @@ Congrats @gettr !!!!
 
 1月6号：<br/><br/><br/>The Whistleblower Movement and the NFSC seem to have ways to accurately predict the moves of the CCP. Four weeks ago, Miles projected again that Chen Quanguo would be getting a promotion rather than a demotion-a popular view held by many. This's the 3rd time that Mr. Miles Guo scored on his prediction of Chen’s career moves. The other two times happened three and one year ago respectively.  Here are the appointments for the 20th National Congress: Xi Jinping, President – the Sun; Hu Chunhua, Prime Minister; Chen Miner, First Deputy Prime Minister; Chen Quanguo, Secretary of the Central Commission for Discipline & Inspection; Li Xi, Chairman of the Chinese People’s Political Consultative Conference; Ding Xuexiang, Chairman of the National People’s Congress...
 ![img](https://media.gettr.com/group43/getter/2022/01/06/20/83985096-f55b-6bdd-ce77-d7aaa8767669/62835b168cd5387e1daf057e1403da7f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@michaelgwaltz 12/13/2021 2:05 PM (UTC)`
-
-Just concluded a bipartisan congressional delegation visit to Ukraine where we met with military officials and observed training exercises.  
-![img](https://media.gettr.com/group47/tw/2022/01/05/01/97d7b454-e448-aff2-a914-225e6f5d9019/36f0f9c729a7a3d5f5b0c251f7cfc0d1.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rsbnetwork 1/6/2022 6:35 PM (UTC)`
-
-@mtg4america calls for ANSWERS regarding the FBI's possible involvement in the Jan. 6 Capitol riots
-![img](https://media.gettr.com/group30/origin/2022/01/06/18/8d2678bf-925e-7911-d368-c526ac203ece/out.jpg)
-
----
-
-`@miles 1/6/2022 6:43 PM (UTC)`
-
-1月6号【France’s most famous pro-wrestler has joined GETTR, and he’s willing to wrestle Kaelan in a steel cage match that we can stream live on GETTR. <br/><br/>Game on!!!<br/><br/><br/>Incroyable!!! #GETTR Wrestling is now a thing! Champ - we’ll start looking for a venue for the match and a hospital to send Kaelan to after you’re done with him, and we’ll reach out next week to check your schedule! 💪💪💪 https://gettr.com/post/pmov87866d 】
-![img](https://media.gettr.com/group14/getter/2022/01/06/18/f2b84261-5ea5-0772-2f08-b8e0daccac33/a46ba001af8e10d78fcdfc13d9a2a6b6.jpg)
 
 ---
 
