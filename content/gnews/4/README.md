@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|墙内网络管控进一步收紧 微信再出审核新规
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831454/)
+## 彭佩奥告诉纽约邮报他如何在6个月内减了90磅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831478/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月3日，据中共媒体报道，腾讯公司近日再次提升了对微信用户的监管力度，为此，其公布了6项封锁新规，当中包括发送“非法链接”、添加第三方插件，以及利用微信传播涉密信息或内部敏感信息、新闻等，违者将被微信平台永久封号。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-16.png)
+图片来源： news.creaders.net
 
-据悉，自2011年推出使用以来，微信迅速成为海内外华人最频繁使用的社交软件之一。官方统计的数据显示，截止去年9月份，微信共有12亿用户。但随着中共对墙内互联网的监管力度不断提高，微信逐渐成了中共高效控制墙内舆论的重要渠道。
+美国纽约邮报1月6日报道，自从川普政府人员离开白宫后，美国人不常见到彭佩奥，我们现在看到前国务卿彭佩奥，是因为他确实变瘦了，整整瘦了90磅。
 
-原文链接:[墙内网络管控进一步收紧 微信再出审核新规](https://gnews.org/zh-hans/1825376/)
+这位前国家情报局局长在他的职业生涯中经历了很多挑战，但他不太愿意讲他变瘦的事情，因为他担心失去的体重再长回来，但在与纽约邮报的面谈中，他透露了他如何做到的，以及为什么要这样做。
 
-音频处理：喜山必胜Maverick
+在2021年6月14日，当他站在秤上第一次发现他离300磅不远了，只差几磅。第二天早上，他醒来后对他太太说：“今天是一个日子。”
 
-发稿：Daxia
+他说：“我开始运动，不是每天，而且注意饮食，从那天起，体重开始下降了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+58岁的彭佩奥开始在家里地下室购置健身器材，他说：“我每周争取下去5-6次，每次30分钟左右，也没什么科学方法，没有教练，也没有营养师，只有我自己。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭佩奥说，他的体重自从2010年第一次被选上堪萨斯州的国会议员后就开始增加，“虽然真实情况是对抗体重增加是我一生要去努力的。是为了健康。”
 
+他现在尽量不吃奶酪汉堡，含大量碳水化合物的东西，电脑旁不放甜点。旅行时也是如此。在最爱的餐厅点餐也不点放糖浆的南瓜蛋糕，只选些健康食物。他说：“我们还是全家去那家餐厅，我们不能放弃传统，我们现在点蛋白和火鸡熏肉。”
+
+美国2022年1月调查显示，有41%的人在过去5年认为自己体重超重，而根据健康统计，有3/4的人或超重或肥胖，但是人们常常不愿承认自己超重了，尽管客观指标已经显示了超重。
+
+彭佩奥说：“社交媒体炒作我的体重问题，很多发帖说什么我的颈部有健康问题，或者说我患癌者了。但没有直接来问我‘嘿，发生什么事了？’ ”
+
+当然他的西点军校的朋友们问他了。彭佩奥说：“我的家人都很支持我这样做。”
+
+也有社交媒体散布谣言说彭佩奥减肥是为了2024年参选总统，他觉得很好笑，他说：“真相是在2044年或者是2054年我准备好了。我现在的衣服更合身了，我想与家庭更多团聚，并希望有很多第三代的孩子。”
+
+##### **新闻来源： **[Mike Pompeo tells The Post how he lost 90 pounds in six months](https://nypost.com/2022/01/06/mike-pompeos-weight-loss-story-down-90-pounds-in-6-months/)
+
+# ** **
 
  
 

@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 5:07 AM (UTC)`
+
+1月6号，Hcoin To the Moon MV上线第28天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿， 芬兰🇫🇮iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，新西兰，芬兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1829703/<br/><br/>Jan 6th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 28th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on New Zealand 🇳🇿 , Finland 🇫🇮 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, New Zealand, and Finland.🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1829704/
+
+---
+
 `@miles 1/7/2022 4:00 AM (UTC)`
 
 1/05/2022 Miles Guo: The power of the media is so huge! Devilish media outlets like HBO/VICE are colluding with the CCP, framing the New Federal State of China (NFSC) as a cult and a bunch of rioters. Since we believe that “only truth prevails”, what these devilish media have done is in vain, and they are going to face charges under the RICO Act of 1970<br/><br/>1/05/2022 文贵直播：媒体的力量太大了！HBO/VICE这样的魔鬼媒体和中共勾兑，构陷新中国联邦是邪教、暴乱分子；正因为我们的唯真不破，魔鬼媒体并没有得逞，等待它们的是RICO法案<br/>
@@ -154,13 +160,6 @@ This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick!
 
 1/05/2022 Miles Guo: The CCP’s real estate has ripped off almost all the Chinese people’s wealth for the next 58 years! The CCP’s control over the real estate is to use Shang Yang’s five strategies to control the future of the Chinese Lao Baixing - rendering them the mortgage slaves, and keeping them barely survive and unable to think so that they can only work desperately to repay the mortgage<br/><br/>1/05/2022 文贵直播：中共房地产把中国人未来58年的韭菜全割完了！中共对房地产的控制就是用商鞅五术来控制老百姓的未来 - 让人们沦为房奴、勉强活着、无法思考，只能拼命打工还房贷<br/>
 ![img](https://media.gettr.com/group8/getter/2022/01/06/07/fd76844c-4281-426e-06be-81be2bbb9e44/out.jpg)
-
----
-
-`@miles 1/6/2022 7:17 AM (UTC)`
-
-1/05/2022 Miles Guo: Same with all the dictators in history, Xi Jinping believes that the deaths of the people are inevitable and are necessary for him to make the regime stronger. The Winter Olympics is a gift from God. Because of the Whistleblowers’ Movement, the CCP’s dreams of pushing the digital RMB and invading Taiwan will never come true!<br/><br/>1/05/2022 文贵直播：习太阳和史上所有独裁者一样，它们相信死人是其强大的必须和必然；冬奥会是上天的礼物，有爆料革命在，中共想借奥运强推数字人民币和打台湾的梦想一定不会得逞！<br/>
-![img](https://media.gettr.com/group11/getter/2022/01/06/07/3f9e0d8f-9a6a-881f-fdea-307ad046697b/out.jpg)
 
 ---
 

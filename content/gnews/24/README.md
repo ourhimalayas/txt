@@ -2,31 +2,42 @@
 ---
 
 
-## 有声|恶魔的国里 那些苦难的女人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831282/)
+## 哈萨克斯坦因民众抗议关闭互联网，比特币暴跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831294/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-提笔顿足真的不知从哪里开始写起，做为一个女人，一个六〇年代出生的，就像我的妈妈所说的：“娃儿，真的不应该在那个悲惨年代把你带到这世上来受罪！”
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-挨饿受苦刚步入朦胧记忆中，又经历了文革万劫不复的十年浩荡，可是我親爱的妈妈！我们这些被共产党恶棍统治下的百姓们，不论何时只要有共产党执政，百姓大众谁也逃脱不了恶魔的践踏蹂躏涂炭，看看今天的共产党习习屁恶魔的国！悲哀的世界！比起文革的毛年代有过之而无不及，就像文贵先生大直播爆料的：这群中南坑里的老杂毛们，双修玩处女，吃阴枣，掏女孩子的子宫，鸡奸轮奸无恶不作。牠们执撑着权势，把人不当人看，把人玩弄于鼓掌之中。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/卡萨科斯坦.jpg)
 
-原文链接:[恶魔的国里 那些苦难的女人](https://gnews.org/zh-hans/1827821/)
 
-音频处理：喜山必胜Maverick
+ 
+图片来源：www.reddit.com
 
-发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+#### 编译：小红帽
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据《RT新闻》1月6日报道，**随着世界第二大挖矿中心哈萨克斯坦的抗议活动继续，比特币出现了大幅下跌，那里的互联网被关闭，迫使当地矿工关闭他们的设备。**
 
+全球领先的加密货币（比特币）已跌至42,786美元，这标志着日跌幅接近8.5%，延续了前一天交易的跌幅。
+
+网络数据提供商NetBlocks报告称：“从2022年1月4日星期二晚上开始，哈萨克斯坦的互联网服务出现重大中断，并在星期三下午发展为全国范围的通信中断”。据报道，哈萨克斯坦的标准化网络连接率下降到2%。
+
+周日，在政府取消能源价格上限的决定生效后一天，哈萨克斯坦西部爆发了骚乱，液化石油气的成本增加了一倍。
+
+总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）解散了政府，承诺将恢复较低的燃料价格。然而，这一宣布没有什么效果，集会在这个前苏联国家的最大城市蔓延开来。据报道，**为了减少对汹涌的骚乱的报道，哈萨克斯坦当局切断了互联网。**
+
+比特币目前面临的其他不利因素包括美国美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并扩大了比特币的跌幅。
+
+新闻来源：[Bitcoin dives after Kazakhstan kills internet — RT Business News](https://www.rt.com/business/545291-bitcoin-dives-kazakhstan-mining-internet/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
