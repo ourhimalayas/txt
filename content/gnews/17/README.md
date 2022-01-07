@@ -2,62 +2,193 @@
 ---
 
 
-## 商业飞行员说同事在接种后“像苍蝇一样倒下，胸口剧痛”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834071/)
+## 2021年、2022年是人类命运的分水岭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jet-Airplane-Cockpit-Pilots.jpg)图片来源：naturalnews.com（Posted by Ethan Huff）
+我觉得爆料革命和新中国联邦
+Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
 
-自然新闻 – 美国飞行员格雷格·皮尔森（Greg Pearson）正在谈论Covid疫苗注射后的疾病浪潮，他说这种疾病正在整个航空业迅速蔓延。
+包括人类的命运
+Incluyendo el destino de la humanidad
 
-在最近接受“真正的美国之声”采访时，皮尔森透露，他的许多飞行员同事都“像苍蝇一样倒下”，都称严重的胸痛。
+我觉得2021年、2022年是人类的分水岭
+Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
 
-皮尔逊本人实际上在Covid-19“接种疫苗”后不久，就不得不被送往医院，因为注射导致他出现了严重的心脏问题。
+今天我说了你们就不觉得惊讶了
+Hoy no se sienten asombrados si les digo esto
 
-“我去了急诊室，在那里他们迅速将我连接到心电图静脉输液器，迅速进行了血液检查，**并确定我患有心房颤动**，”皮尔森在节目中说道。 “**这是中风的主要原因**。”
+如果一年前我说你们(会)觉得我神经病
+Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
 
-“当我试图降落飞机时，我本可以在 100 英尺的地方划过。我本可以在我旁边的人做任何事情之前按下那根棍子，而对很多人来说，一切都结束了。”
+是不是, 夸张、吹牛
+Cierto, exagerado, presumido
 
-皮尔森说，许多其他飞行员和他一样正在经历和观察了同样的事情，**但不敢说出来**。**他们不想冒被解雇的风险**，**甚至不想因为说真话而遭到报复，而毁掉他们的整个职业生涯**。
+我从来没想试图说服过任何人
+Yo nunca he pensado de persuadir a nadie
 
-“有很多飞行员害怕站出来说话……他们害怕报复。有些人会忍着胸部和头部的剧痛而工作，因为他们害怕会失去职业生涯。”
+包括你七嫂
+Incluyendo a mi esposa
 
-拜登正在用他的疫苗命令摧毁航空业
+包括我家人, 我从来没有过
+Incluyendo a mi familia, nunca lo he pensado
 
-**假“总统”乔·拜登对所有这些屠杀负有主要责任**，**航空公司首席执行官和高管对飞行员和其他飞机工作人员实施种族灭绝。**
+因为人的缘分不是你能说服得了的
+Porque la afinidad entre personas no puede ser persuadida
 
-如果不是为了保住工作而被迫注射，这些现在受苦的飞行员中的许多人，一开始就不会接受注射。现在他们中的许多人都病得很重，他们不确定该怎么做，甚或他们是否可以尝试寻求任何追索或补救措施。
+人和人之间的关系
+La relación entre las personas
 
-顺便说一下，皮尔森对“真实美国之声”的完整采访可以在 Gab 上找到。
+真的不是你用嘴(说)能达到的
+Realmente no se logra con la boca (diciendo)
 
-如果皮尔森所说的是真的，那么飞行似乎不再安全。根本不知道那些完全接种疫苗的飞行员随机会开始发病发作，这可能会给飞机上的每个人带来灾难。
+真正的人与人的信任和感情
+La verdadera confianza y sentimiento entre las personas
+绝对不是嘴能说到的
+No se dice con la boca
 
-《新闻冲击》（Newspunch）的一位评论者写道：“所有这些都只是为了一种新版本的普通感冒而大惊小怪。”“**我们的领导人一如既往地做坏事**。”
+很多过去的欺民贼, 伪民运
+Muchos matones del pasado, movimiento de la pseudodemocracia
 
-另一位网友写道：“很多年前，我母亲去世了，我失业了，过得很悲惨。”“那时百忧解刚出来，我认为从医生那里得到一些是个好主意。是时候更新我的商业 FAA 医疗（1）了，但是他们拒绝了我的体检，于是我放下了服用百忧解的决定。”
+他(们)不懂这个道理
+(Ellos) no entienden esta verdad
 
-(注释1，FAA医疗：行使航空运输飞行员 (ATP) 特权的飞行员需要一流的医疗； 也就是说，那些飞行定期班机和其他飞行员的雇主需要这种级别的认证。 对于40岁以下的飞行员，头等医疗对于 ATP 特权的有效期为12个月。)
+就是人类这个灵性动物
+Es decir, los seres espirituales como los seres humanos
 
-“现在他们却强制要求飞行员注射一种实验性药物，而不必担心，真是难以置信。”
+他最终是一定要看行动的
+Él al final lo que ve es la acción
 
-另一个建议飞行员的心房颤动，那可能是电信号的结果。
+最终就是以结果论
+Finalmente toma el consecuencialismo
 
-“有些事情导致‘电压’失控，”这位人士补充道。“**我相信他们可以远程完成**。从长远看，尤其是现在有了 5G。”
+这就是动物和植物界的根本不同
+Esta es la diferencia del origen entre los animales y el mundo de las plantas
 
-另一个人写道，**这只是恐怖的开始**，灾难很快就会降临到其他被注射了疫苗的人身上。
+那么我们在这个地球上
+Entonces, nosotros estamos en este planeta tierra
 
-“他们不仅不希望你快乐，”另一位写道。“他们还要你死。”
+我们大家面对着一个物质的世界
+Enfrentamos a un mundo material
 
-参考资料：[naturalnews][Commercial pilot says his colleagues are “dropping like flies with crushing chest pains” following covid vaccinations](https://www.naturalnews.com/2022-01-06-pilot-dropping-flies-crushing-chest-pains-vaccines.html)
+和一个我们完全无法想像的未知的星空
+Y un cielo estrellado desconocido que ni siquiera podemos imaginar
+
+银河系, 太阳系
+Vía Láctea, Sistema Solar
+
+无限大的宇宙和地球之间一粒沙的关系
+La relación entre un grano de arena del universo infinito y la tierra
+
+我们跟人之间相处的时候实际是最复杂的
+En realidad, lidiar con las personas es lo más complicado
+当今天我们看这个同心同框, 这么多战友的时候
+Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
+
+大家能看到有人说话多一点, 有人说话少一点
+Todos pueden ver que algunas personas hablan más, otros hablan menos
+
+有人激动一点, 有人水多一点(或)水少一点儿
+Algunos son más emocionados, otros con más agua o menos
+
+是不是
+Cierto o no
+
+分男女, 分老少, 分长短
+Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
+
+但是大家记住
+Pero todos recuerden
+
+我们心中最大的魔就是分高低
+El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
+
+而且这个高低是谁定的, 是你自己定的
+Además, quién decide esto, tú mismo
+
+都是我们每个人自己的标准去量所有的人去
+Utilizamos nuestros propios estándares para medir a los demás
+
+这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
+En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
+
+我们今天讲了那么多
+Hoy hablamos tantas cosas
+
+我们没讲金, 没讲土
+Pero no mencionamos el oro y la tierra
+
+但是我们的新中国联邦的旗是什么旗
+Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
+
+我们的蓝色就是蓝色海洋和星空
+Nuestro color azul significa el mar y el cielo estrellado
+
+你知道在中(共)国是不用蓝的
+Sabías que en República Popular de China no se utiliza el azul
+
+中国人什么时候用蓝你知道吗
+¿Sabes cuándo los chinos usan el azul?
+
+头两天你七嫂憋了一年都没说
+En los primeros dos días, mi esposa aguantó durante un año sin decirlo
+
+你七嫂给我留面子
+Era para que no pasara pena
+
+我知道你七嫂要说什么
+Yo sé lo que ella quería decir
+
+就是说那个蓝色的时候
+Hablando lo del color azul
+
+你七嫂说, 哎呀
+Ella dijo, ay
+
+她说在咱老家咱娘说, 这叫什么
+En nuestra ciudad natal, nuestra madre dijo que esto se llama
+
+就是在我们山东老家, 人死了用那个蓝色
+En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
+
+就是那个蓝色是死亡蓝的意思
+Quiere decir que el color azul representa la muerte
+
+我特能懂, 我啥也没说
+Puedo entender totalmente esto, no dije nada
+因为你七嫂子她是山东人
+Porque mi esposa es de Shandong
+
+她是我的爱人, 跟我一起长大的
+Es mi amor y creció conmigo
+
+但是我就没法跟她解释
+Pero no puedo explicarle
+
+她未来会懂得
+Ella entenderá en el futuro
 
 * * *
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+日期：01/06/2022
+原视频标题：2021年、2022年是人类命运的分水岭
+El año 2021 y 2022 son la línea divisoria de agua del destino humano
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
+任务编号：KC399（3406）
+视频时间段：00:00-02:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

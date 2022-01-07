@@ -2,87 +2,54 @@
 ---
 
 
-## GETTR、GTV是唯一能拯救中国人的平台
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
+## 哈萨克斯坦关闭网络，比特币暴跌
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1834122/)
 
-[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/61d6af062030277daf1db609-1.jpg)
+前苏联共和国哈萨克斯坦是世界第二大挖矿中心，因全国范围内的反政府抗议活动，正面临重大的网络中断问题。
 
-**郭文贵
-Miles Guo**
+由于世界第二大挖矿中心哈萨克斯坦的抗议活动仍在继续，比特币出现了大幅下跌，因为那里的网络被关闭，迫使当地虚拟币矿工关闭他们的设备。
 
-Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
-For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
+全球领先的加密货币已跌至42786美元，这标志着日下跌近8.5%，延续上一交易日录得的损失。
 
-她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
-She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
+跌幅发生在网络数据提供商NetBlocks的报告，“从2022年1月4日星期二晚上开始，哈萨克斯坦的网络出现重大中断，并在星期三下午发展到全国范围的通信中断”。据报道，哈萨克斯坦的正常化网络连接率下降到2%。
 
-媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
-The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
+周日，在政府取消能源价格上限的决定生效后一天，导致液化石油气的成本增加了一倍，随后哈萨克斯坦西部爆发了动乱。
 
-来黑我们新中国联邦，而且处心积虑，你们竟然不传播
-come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
+卡西姆·约玛特·托卡耶夫（Kassym-Jomart Tokayev）总统解散了政府，并承诺将恢复低的燃料价格。然而，这一宣布没有什么效果，反而抗议游行在这个前苏联国家的最大城市蔓延开来。据报道，为了减少对汹涌的动乱的报道，哈萨克斯坦当局切断了网络。
 
-一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
-It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
+比特币目前面临的其他不利因素包括美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并延续了比特币的损失。
 
-你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
-What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
+**简评：**
 
-烧你家房子，烧你100次，不是烧你一次
-Burn your house 100 times, not burn you once
+据新中国联邦郭文贵先生的大直播中说到，哈萨克斯坦动乱，是王毅到哈萨克斯坦要回100吨黄金，被哈国总统骂走，王毅刚走，哈国就动乱了。可以看出，哈政府取消能源价格上限的决定，只是动乱的一个引子。
 
-你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
-Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
+中共策划的动乱，表面上都是开始于民众的和平抗议，期间从中做梗而使动乱升级。独裁政府的其中一个明显标志是，为了掩盖动乱的实况和真相流出而采取断网。断网后，网络连接率连基本的电话通讯都不能维持。由于比特币依赖大量网络计算能力，还有其不受政府和中央银行的监管，在任何大事件和变化，比如断网的情况都会引起其价值巨大波动。
 
-千羽你在加拿大, 你走到大街上是人人喊打的人
-Qianyu, you are in Canada, you are the one who was shouts and beats on the street
+中共不仅祸国殃民，其蓝金黄和革命输出，亦导致其他国家政局动荡，置无辜百姓于危机中。
 
-娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
-Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
+新闻链接：[Bitcoin dives after Kazakhstan kills internet](https://thepressunited.com/updates/bitcoin-dives-after-kazakhstan-kills-internet/)
 
-我不跟你开玩笑正义小Sarah
-I’m not kidding you justice little Sarah
+*翻译/简评: JS*
 
-Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
-Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
-
-这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
-Isobel Yeung this guy is very evil, you see William still laughing, William
-
-就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
-just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
-
-一定想到盖特是拯救中国人的平台
-You must think about that Gettr is a platform to save the Chinese people
-
-一定想到G-TV是唯一能拯救中国人的平台
-Must think that G-TV is the only platform that can save the Chinese people
-
-他比任何经济价值都重要
-It is beyond any economic value
-
-你看明白了吗？兄弟姐妹们
-Do you see it? Brothers and sisters
+*PR：感恩*
 
 * * *
 
-Date: 01/06/2022
-原视频标题: GETTR、GTV是唯一能拯救中国人的平台
-GETTR and GTV are the only platform that can save the Chinese people
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
-任务编号：3429
-视频时间段 : 0:00-1:34
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
 
  
 
