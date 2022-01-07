@@ -2,32 +2,31 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月4日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833480/)
+## 有声|牛津疫苗研发专家称定期注射疫苗“不理智”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833491/)
 
-配音：香草山教育部 – Rita七号小青蛙
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
 
+波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0104text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月4日晚](https://gnews.org/zh-hans/1823509/)
+波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
+
+文字版原文：[牛津疫苗研发专家称定期注射疫苗“不理智”](https://gnews.org/zh-hans/1827309/)
 
 音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1833854/)
+## 【中日财经爆】日本大型人才派遣公司进军“元宇宙”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1833856/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-7.jpg)
+[图片源](https://note.com/hashtag/%E5%85%83%E5%AE%87%E5%AE%99)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-5.png)
-文章仅代表作者本人观点，与Gnews无关
+7日，日本大型人才派遣公司Pasona Group代表南部靖之在接受每日新闻采访时表示，将涉足在线虚拟现实空间“元宇宙”的相关业务。今年春天，将从公司内外聚集具有专业技能的人才成立团队。目的是创造一种利用虚拟空间的新就业模式。
 
-视频参看：[2022.01.07早GTV新闻访谈](https://gtv.org/video/id=61d83fc4f2fe0449ea19a537)
+南部先生强调，在虚拟平等的空间中，男女老少没有区别。无论年龄或是否残疾，都可以轻松工作并创造新的就业方式。该公司正在实施一项计划，将一部分业务从东京搬迁到兵库县淡路岛，以应对工作方式改革和自然灾害的发生。与此同时，人们可以在“元宇宙”上做生意，搞副业，虚拟体验淡路岛的生活，也许将会吸引用户移居至淡路岛。而风险投资公司和艺术家也可能加入，以支持当地的就业和文化推广。南部先生表示，期待与这些企业产生协同效应。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+关于“元宇宙”，本月早些时候，松下宣布了VR眼镜等相关产品，索尼集团也宣布计划启动一项服务的示范实验，此项服务让球迷可以在“元宇宙”再现的体育场内享受观看足球比赛并同时互动的乐趣。目前世界各国正陆续进入该市场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+[信息源](https://news.yahoo.co.jp/articles/37e6a2831d69b8beaaaeca17df631b1313e72c41)：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

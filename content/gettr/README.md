@@ -17,6 +17,55 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 6:51 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥8
+![img](https://media.gettr.com/group2/getter/2022/01/07/18/0b004519-0cec-c8cb-903b-5f6dd5b971b7/f520b3af805afd2d0261fd0e9dbbf6b5.jpg)
+
+---
+
+`@miles 1/7/2022 6:50 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥7
+![img](https://media.gettr.com/group20/getter/2022/01/07/18/f6eb218c-fd9d-9864-8d4e-8226d486b5f3/5ba97afdcb2bb1ebd6288af69966046e.jpg)
+
+---
+
+`@miles 1/7/2022 6:48 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥6
+![img](https://media.gettr.com/group43/getter/2022/01/07/18/298fa1f7-c4c9-5146-9642-6047564937b9/f1332e817e19670043b843ebaea7c9b4.jpg)
+
+---
+
+`@miles 1/7/2022 6:46 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥5
+![img](https://media.gettr.com/group38/getter/2022/01/07/18/87386d0e-e8f5-2313-b582-2cd5019b2eae/c289c2aa29d3a8b0938cc32ed4d2b5a3.jpg)
+
+---
+
+`@miles 1/7/2022 6:43 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥4
+![img](https://media.gettr.com/group22/getter/2022/01/07/18/5385c7d3-2124-7873-a105-b6e91e9f178e/253224e55bef7c2f5a1262880a58754b.jpg)
+
+---
+
+`@miles 1/7/2022 6:42 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥3
+![img](https://media.gettr.com/group28/getter/2022/01/07/18/bd87e791-d729-5e61-fa0f-5a509dc155e8/d525dd1e8e3ba8c2d155a7612e934a00.jpg)
+
+---
+
+`@miles 1/7/2022 6:41 PM (UTC)`
+
+1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥2
+![img](https://media.gettr.com/group21/getter/2022/01/07/18/763d328a-2811-8da1-c461-fc56d25160d6/2901360fde760e012eda696da0ad7ff5.jpg)
+
+---
+
 `@miles 1/7/2022 6:39 PM (UTC)`
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
@@ -108,58 +157,6 @@ Just concluded a bipartisan congressional delegation visit to Ukraine where we m
 
 1月6号【France’s most famous pro-wrestler has joined GETTR, and he’s willing to wrestle Kaelan in a steel cage match that we can stream live on GETTR. <br/><br/>Game on!!!<br/><br/><br/>Incroyable!!! #GETTR Wrestling is now a thing! Champ - we’ll start looking for a venue for the match and a hospital to send Kaelan to after you’re done with him, and we’ll reach out next week to check your schedule! 💪💪💪 https://gettr.com/post/pmov87866d 】
 ![img](https://media.gettr.com/group14/getter/2022/01/06/18/f2b84261-5ea5-0772-2f08-b8e0daccac33/a46ba001af8e10d78fcdfc13d9a2a6b6.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@papacito1er 1/5/2022 2:41 PM (UTC)`
-
-
-![img](https://media.gettr.com/group14/getter/2022/01/05/14/bed770af-c8ec-2448-700b-b53f9556e345/out.jpg)
-
----
-
-`@miles 1/6/2022 6:29 PM (UTC)`
-
-1月6号：这是真的还是假的呀？🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥【奇迹就这样发生了，正道得天道💐💐💐💐💐💐💐🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈🎈】
-![img](https://media.gettr.com/group45/getter/2022/01/06/18/287d13e8-6e4c-dddf-b846-743f6ffe1d9d/649b13ec56f818f6f7df114bd3c004b0.jpg)
-
----
-
-`@miles 1/6/2022 5:58 PM (UTC)`
-
-1月6号：乖乖哟……梦游开始！@tbeansprout 【20大 习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长  ……】
-![img](https://media.gettr.com/group7/getter/2022/01/03/21/9918d665-fb95-c155-47ca-e7e122a9660b/ac179b42c0c7e584c8c35c64efe03aea.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 1/6/2022 3:32 AM (UTC)`
-
-This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick! #GETTR
-
----
-
-`@miles 1/6/2022 1:22 PM (UTC)`
-
-11月6号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group24/getter/2022/01/06/13/61799319-4f93-f6b3-0526-eacaacd898bb/out.jpg)
-
----
-
-`@miles 1/6/2022 12:50 PM (UTC)`
-
-1月6号：连这种乌龟王八的都来解读这个楼来了，只要传说就是好事儿，连这样的真相都没人敢面对……这个民族，这个国家还有救吗？
-![img](https://media.gettr.com/group13/getter/2022/01/06/12/7da3b675-7c1d-ec67-beb2-1851b53ad7d5/out.jpg)
-
----
-
-`@miles 1/6/2022 7:44 AM (UTC)`
-
-1/05/2022 Miles Guo: GETTR is a massively disruptive game changer for the entire social media industry. It has broken the monopoly and enslavement of the small interest groups over the people. It is the platform for authentic communications and opinion-sharing between individuals. While other social media are dying, GETTR is thriving, reflecting the influence of the New Federal State of China in the world stage.<br/><br/>1/05/2022 文贵直播：盖特是改变社交媒体游戏规则的game changer（改变者），它打破了集体对个人的垄断和奴役，是人与人交流的真实平台，盖特在其他社交媒体堕落的时候上升，体现了新中国联邦在世界的话语权<br/>
-![img](https://media.gettr.com/group17/getter/2022/01/06/07/b34b4731-8d1f-ee61-7b64-f84c185df27c/out.jpg)
 
 ---
 
