@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 1:08 PM (UTC)`
+
+2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产
+![img](https://media.gettr.com/group23/origin/2022/01/07/12/c14edef4-6eb0-b108-4fd9-6a8fc59d7d11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/7/2022 5:07 AM (UTC)`
 
 1月6号，Hcoin To the Moon MV上线第28天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿， 芬兰🇫🇮iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，新西兰，芬兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1829703/<br/><br/>Jan 6th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 28th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on New Zealand 🇳🇿 , Finland 🇫🇮 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, New Zealand, and Finland.🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1829704/
@@ -153,13 +160,6 @@ This guy is awesome. Love the biting humor - keep throwing bombs, @rickyberwick!
 
 1/05/2022 Miles Guo: Both Nazi Germany and Soviet Union fell after holding Olympics, and all the dictators would make themselves “God” and bring nightmare to the world - the fundamental purpose for Xi to hold the Winter Olympics and to use music to fool the Lao Baixing is to turn himself into “God” so that he can impose a dictatorial rule<br/><br/>1/05/2022 文贵直播：纳粹和苏联都在举办奥运会后灭亡，而独裁者都把自己塑造成神并给世界带来噩梦 - 习办冬奥会和用音乐愚弄老百姓的根本目的都是要把自己当成神从而进行集权统治<br/>
 ![img](https://media.gettr.com/group36/getter/2022/01/06/07/7e869b20-c0d5-5414-8f3d-539c41c1ff32/out.jpg)
-
----
-
-`@miles 1/6/2022 7:23 AM (UTC)`
-
-1/05/2022 Miles Guo: The CCP’s real estate has ripped off almost all the Chinese people’s wealth for the next 58 years! The CCP’s control over the real estate is to use Shang Yang’s five strategies to control the future of the Chinese Lao Baixing - rendering them the mortgage slaves, and keeping them barely survive and unable to think so that they can only work desperately to repay the mortgage<br/><br/>1/05/2022 文贵直播：中共房地产把中国人未来58年的韭菜全割完了！中共对房地产的控制就是用商鞅五术来控制老百姓的未来 - 让人们沦为房奴、勉强活着、无法思考，只能拼命打工还房贷<br/>
-![img](https://media.gettr.com/group8/getter/2022/01/06/07/fd76844c-4281-426e-06be-81be2bbb9e44/out.jpg)
 
 ---
 

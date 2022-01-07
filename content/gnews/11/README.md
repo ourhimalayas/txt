@@ -2,25 +2,31 @@
 ---
 
 
-## Omicron变异毒株造成澳大利亚大型超市供给短缺20%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1832446/)
+## 台湾买下中共阻止立陶宛出口的2万瓶朗姆酒
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1832534/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/701.jpg)图片来自网络
-继澳大利亚大型超商Coles宣布对部分商品采取限购措施之后，另一家连锁超市品牌Woolworths今日也公开发表声明，该企业的集散中心供给出现了20%以上的短缺情况。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-Woolworths 首席执行官布拉德·班杜奇（Brad Banducci）在今天早上给客户的一封信中表示，这次的短缺是由各种不同的因素共同造成的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-410.png)图片来源 ：businessinsider.com
 
-“与 2020 年初激增的购买（谁可能忘记卫生纸）不同，（此次短缺）是因为我们供应链中收到隔离要求的人数众多——从供应商到卡车司机和配送中心团队成员——这反过来导致了材料延误存储交货……为了让您了解挑战的严重性，我们的配送中心和终端超市的缺货率分别为 20% 以上和 10% 以上。”
+据《南华早报》报道，台湾出面购买了2万多瓶被北京阻止进入中共国的立陶宛朗姆酒。
 
-新南威尔士州目前是受影响最严重的州，但班杜奇先生表示，整个国家都受到了影响——目前尚不清楚该系统将在多长时间内恢复。班杜奇敦促人们在购物时要“灵活变通”，例如用同一类别的另一种产品替换缺席的首选品牌。
+在维尔纽斯（Vilnius）决定允许台湾在11月开设事实上的大使馆之后，中共国已经连续数月阻止了与立陶宛（Lithuania）的贸易。中共国声称台湾是中共国的一部分，而台湾则坚持其独立性。
 
-不过目前Woolworths还没有采取限购措施的打算。在澳大利亚三大超市连锁企业中，只有Coles一家目前针对部分商品设置了购买上限，例如鸡胸肉一次只能购买两包，而快速抗原测试套装则一次只能购买一件。
+中共国经常对各国施加压力，要求它们承认台湾是中共国的一部分，并在12月说，除非立陶宛改变主意，否则它将落入”历史的垃圾桶”。值得一提的是，在得知中共国即将阻止立陶宛 MV 集团生产的2万0400瓶黑朗姆酒的进口后，台湾烟酒公司（由该国财政部拥有）于12月18日购买这批货物（如下是来自脸书的截图）。
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-supermarket-shortages-woolworths-coles-aldi-grappling-with-impact-of-omicron/ac3d6a2a-30f6-4905-a9f4-5067d8627053)
+在这场北京和台湾的外交纷争中，中共国将其驻立陶宛大使馆降级为代办处，一些立陶宛外交官离开了中共国。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+据彭博社报道，立陶宛政府已经为那些因与中共国的争执而业务受到影响的公司，推出了1.48亿美元的援助计划。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-412.png)图片来源 ：businessinsider.com
+
+新闻来源：[businessinsider.com] [When China blocked Lithuania from exporting 20,000 bottlesof rum in a diplomatic feud, Taiwan bought the whole shipment instead, report says](https://www.businessinsider.com/taiwan-buys-20k-rum-bottles-blocked-from-china-2022-1) | 发布时间：2022年01月05日
+
+* * *
+
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

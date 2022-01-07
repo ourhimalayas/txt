@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|日本约70家企业将联合测试数字货币的运行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831465/)
+## 美国名人乔-罗根加入盖特引发跟随浪潮
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1831757/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月24日，日本加密货币交易所德科瑞特的首席执行官在一次新闻发布会上表示，一个由其牵头的大约70家日本企业组成的联盟，计划在未来数月内开始测试一种基于日元的数字货币，并预计在2022财年推出。这种数字货币暂时被命名为“DCJPY”，将由银行存款支持，并使用一个共同平台来加快企业之间的大规模资金转移和结算。
+采编：文莱      翻译编辑：文所未闻
 
-该联盟的成员包括日本三大金融集团三菱日联金融集团、瑞穗金融集团、三井住友金融集团，日本邮政银行、经纪公司和保险公司等其他贷款机构，以及日本电信电话 、日本关西电力等非金融公司。 一些公司将参与试验，以衡量这种货币在从能源到零售的各行业使用情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-10-edited.jpg)图片来源：后千禧年
 
-该联盟自2020年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。当前，日本央行也正在进行有关央行数字货币的测试，这个企业联盟的举动可能对央行的进度有所影响。
 
-原文链接:[日本约70家企业将联合测试数字货币的运行](https://gnews.org/zh-hans/1704086/)
+据加拿大媒体《后千禧年》1月4日报道，美国著名媒体人乔-罗根近日严厉抨击了[推特]的言论审查制度，并在号召其支持者转而加入[盖特]之后，随即就有超过50万人对此云集响应而注册了该社交媒体平台的账号。
 
-音频处理：喜山必胜Maverick
+[盖特]首席执行官杰森-米勒对此表示，罗根通过其一条推文就摧毁了科技寡头[推特]，解开了政治歧视的枷锁，社交媒体独裁因此而走向了自戕之路。报道称，在罗根最近采访了反对当局疫苗政策的罗伯特-马龙博士后，[推特]随即关闭了该博士的账户以示惩罚。
 
-发稿：Daxia
+据悉，[盖特]在去年7月被隆重推出，该平台没有任何政治偏向，对所有观点都保持开放。加之其独有的各项全新信息传播功能，目前越来越多来自世界各地的政要名人和普通用户都纷纷抛弃使用其他社交媒体寡头平台，并选择加入[盖特]来自由表达心声。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
 
+原文链接： https://thepostmillennial.com/half-a-million-new-users-added-to-gettr-after-joe-rogan-joins
 
  
 

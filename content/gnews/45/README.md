@@ -2,23 +2,33 @@
 ---
 
 
-## 朝鲜：因全球疫情原因将不参加2022北京冬奥会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831277/)
+## 有声|中共极端清零 河南禹州封城
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831495/)
 
-撰稿—八木
-校对/上传—无明逆流
+配音：香草山教育部 – Rose
 
-朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京20022年冬季奥运会及冬季残奥组、中共国家体育总局致函。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha143.47-AM.jpeg)图片资料：金正恩
+台媒1月4日消息报道称，人口数超过100万的禹州市(位于中共国河南省中部)，虽然只出现了3例无症状中共病毒感染者，但该市居民均被下令被迫留在家中。这是近期中共实施大规模封城的最新案例。
 
-致函中朝鲜表达了对中共的赞赏，称中共集国家、全民之力即使在全球公共卫生危机大灾殃中也能让冬奥会筹办工作在高水平上圆满进行。
+自中共病毒疫情爆发以来，北京当局追求极端“清零”政策，实施严格边境管制，以及目标性的封城措施。如果未能遏制疫情，中共地方官员通常会面临开除或者惩处的命运。在近期接连爆发本土案例，以及冬奥会即将开始的情况下，中共的该项政策正面临越来越大的压力。
 
-关于全球各国对中共冬奥会的抵制，朝鲜在致函中表示那是美国及其追随势力的反华阴谋，是污蔑抹黑的卑鄙行径。
+原文链接:[中共极端清零 河南禹州封城](https://gnews.org/zh-hans/1824749/)
 
-对于北京即将举办的冬奥会，朝鲜官方致函称，因为敌对势力的阴谋活动和全球传染病大流行，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持中共举办北京冬奥会。
+音频处理：喜山必胜Maverick
 
-相关新闻：[朝鲜：因全球疫情等原因无法参加北京冬奥会，但将全方位支持和声援中国](https://news.sina.cn/gn/2022-01-07/detail-ikyakumx8799639.d.html?isJump=0&amp;universallink=1&amp;from=wap)
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

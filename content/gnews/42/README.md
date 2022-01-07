@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|造假习近平受万民拥戴，中共官员下达政治任务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831479/)
+## 孟山都前中国雇员承认窃取商业机密
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1831853/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-台媒1月4日报道，中共党魁习近平发表元旦讲话之后，为了配合制造，习近平受万民拥戴的假象，中共各级官员层层施压，要求党内所有人必须转发、点赞，并发表吹捧言论，在规定时间内上报总结各自的转发及评论次数。
+#### 翻译/撰稿：zzballack
 
-这项“政治任务”被网络曝光后，受到不少网友的嘲讽，有网友笑指“难怪评论一个样，原来是粉红欢乐颂。”还有网友愤怒表示，“西安上千万人饥肠辘辘，政府忙着歌功颂德，对民众惨况只字不提。”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-5.jpg)图片来源：半岛电视台
+据《美联社》（Associated Press）1月7日报道，联邦检察官说，一名中国公民1月6日在美国联邦法院承认，他在为孟山都（Monsanto）公司及其在密苏里州的一家子公司工作时窃取了商业秘密。
 
-原文链接:[造假习近平受万民拥戴，中共官员下达政治任务](https://gnews.org/zh-hans/1824089/)
+曾居住在密苏里州切斯特菲尔德（Chesterfield）的44岁中国公民向海涛，承认共谋从事经济间谍活动。2019年，一个大陪审团对他提出了八项指控。
 
-音频处理：喜山必胜Maverick
+检察官在一份新闻稿中说，向海涛将窃取的商业机密转移到一张存储卡上，然后试图将其带到中国，为中共政府谋取利益。
 
-发稿：Daxia
+根据法庭文件，2008年至2017年间，向海涛受雇于孟山都及其子公司气候公司（Climate Corporation），担任成像科学家。孟山都和气候公司开发了一个数字在线农业软件平台，农民使用该平台收集、存储和可视化关键的农田数据，并提高和改善农业生产力。检察官说，该平台的一个关键组成部分是一个被称为营养素优化器（Nutrient Optimizer）的专有预测算法。孟山都和气候公司认为营养素优化器是他们所拥有的商业机密和知识产权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+2017年6月，也就是从孟山都和气候公司离职的第二天，向海涛试图飞往中共国。在他等待登机时，联邦官员搜查了他及其行李。调查人员后来确定，向海涛的一个电子设备包含营养素优化器的副本。向海涛前往中共国后，在中国科学院土壤科学研究所工作。他在返回美国时被逮捕。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+向海涛将于4月7日被判刑。
 
+新闻来源：[Chinese man pleads guilty to stealing Monsanto trade secret](https://apnews.com/article/science-business-china-missouri-espionage-98886cc2fb3c43d06b292eb30a0f7ac2)
 
  
 

@@ -2,22 +2,42 @@
 ---
 
 
-## 意大利学生：意大利任何形式的自由和人权都不复存在
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1832022/)
+## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1832234/)
 
-#### 翻译/撰稿：zzballack
+**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-4.jpg)图片来源：纽约时报
-据《网关专家》（Gatewany Pundit）1月6日报道，上个月，意大利官方对未接种新冠疫苗的人实施了新的限制：没有“超级绿色通行证（Super Green Pass）”的人，将被禁止参加大部分公共活动，比如无法进入剧院、餐馆、酒吧和现场观看体育赛事等等，违规者将被罚款400至1000欧元。
+就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
 
-一个名为“意大利学生反对绿色通行证（The Studenti Control Il Green Pass）”的团体正在就意大利的现状寻求帮助。他们认为，这种绿色通行证不是一种健康措施，而是一种歧视未接种者并重组社会的政治手段。该团体在写给《网关专家》的一封电子邮件中说：“意大利不再是媒体和政客虚假描述中的快乐和民主之地，而是一个任何形式的自由和人权都不复存在的国家。意大利正逐渐变成一个专制的和基于种族隔离的卫生政权（sanitary regime）。领导该政权的总理马里奥·德拉吉 (Mario Draghi)强势、自大，其行为不受到任何真正的审查、限制或追责。德拉吉破坏了三权分立中的制衡制度，通过推翻议会这个国家立法实体的既定角色，使议会的首要地位无效。更可怕的是，意大利的整个机构、司法当局和政党，包括所谓的‘反对派’默许甚至共谋参与了这场针对民主的政变。我们向大家发出呼吁，请各位站出来支持民主和选择自由，反对基于个人健康决定的疫苗胁迫和歧视行为。我们不是世界上唯一在身体和精神上都受到限制的人，我们愿意与所有其他试图改变现状的国家并肩作战，以创造一个更好的世界。”
+然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
 
-这些学生说：“过去两年，政客在公开演讲中一直在污名化未接种疫苗的人。我们无法平静地学习、工作和生活，但是，尽管困难重重，我们将继续为我们的宪法权利、选择自由和学习权利而抗争。”拒绝接种实验性疫苗的医学生约瑟夫（Joseph）说：“这个政府假装关心我的健康,但实际上却阻止我参加各种活动。这可能导致我患上抑郁症，身心受到伤害。”
+中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
 
-另一位牙科学生维多利亚（Victoria）说：“真正的科学不会强迫你去相信，它只是向你展示。意大利政府的疫苗通行证创造了不健康的场所，因为接种者仍会感染和传播新冠病毒。其次，它在通过勒索和使用武力制造歧视和社会排斥，阻止我们学习和受教育的权利。真正的科学所需要做的不就是要听取意见吗？但现在被我们称为科学的新宗教，将会牺牲多少生命、梦想和希望？”
+编辑整理：海贼王M.D.LUFFY；
 
-新闻来源：[“Italy is a Country Where Any Kind of Freedom and Human Rights Are Ceasing to Exist” – Italian University Students Call Out for Help Against Vaccine Coercion and the Authoritarian Regime (VIDEO)](https://www.thegatewaypundit.com/2022/01/real-science-doesnt-force-believe-just-shows-italian-university-students-call-help-vaccine-coercion-authoritarian-regime-video/)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
