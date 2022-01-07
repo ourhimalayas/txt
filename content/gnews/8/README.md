@@ -2,26 +2,31 @@
 ---
 
 
-## 文贵爆料1.7.2022 欧米炕高传染慢性杀人 疫苗危机下防范意识最重要
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1834156/)
+## 七哥谈独裁（2022-0-05摘录）
+` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1834169/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-8.33.05-AM.jpeg)图片来源：GTV & GETTR
-郭文贵先生在2022年1月7日大直播中向战友们披露，最近有多位战友感染了中共病毒，包括木兰传奇的丈夫。这次被传染的战友都是平时很注意防护很小心谨慎的，仍然被感染，说明现在传播的病毒欧米炕是极具传染性的。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-郭先生提到科学家嘱咐他这次直播一定要告诉大家，不要以为感染了欧米炕的人都能缓过来，没症状，这个新变种对人身体的作用一点都不比之前的变种病毒少。
+来源：郭先生2022-01-05直播10：15：30摘录
 
-科学家指出这个欧米炕是慢性杀人，对机体的损害同样是很可怕的。科学家强调新变种同样是生化武器，任何生化武器元素进入身体里边，都会让人随时死掉，慢死、早死或者得癌症死。它的概率是极高的。
+现在所有的独裁都认为，死人是独裁和国家强大的必然基础。所以说你看那西安死人的时候，唐平又来水多了。是吧！是你水太多了，是不是！你还需要多点双修。他们认为你这种笑容和你对我的听从，你的死亡就是我的祭品。希特勒当时明确地说，德国人死掉一半，我们才能胜利。当时的墨索里尼在意大利狂妄到那个程度，竟然是被抓到监狱，是德国希特勒把他救回去。他又回来，你看到那种脸那种流氓样，你看跟王岐山有异曲同工之妙，得意地忘形，但是那时候得意，他孙女现在还从政呢。他说过，意大利人死掉一半能让意大利能成为强大。当时的日本天皇是什么情况？整个日本人全死了也可以让日本强大，都没问题的，愿意做。可悲的事情，冬奥会又是一个现代版的重复，他将牺牲掉很多人，他认为死人是必然的，谁不愿意死你就别相信他，而且冬奥会大家记住，他没有任何希望。据我所知啊，最后去了几个人又去不了了，各种原因我就别说，一说又爆料了太大啊。所以冬奥会是上天送给我们的礼物。
 
-郭先生提醒战友们务必定要小心现在的病毒，现在的病毒情况真的是很可怕。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-另外，郭先生还强调现在的mRNA疫苗就是病毒，刺突蛋白会脱落会传染，让人没有出门就被感染。我们大家要意识到，被感染的人绝大多数都是打了疫苗的人，战友们就是生活在打了疫苗的人群中。
+**关注我们**
 
-郭先生提醒战友们一定要提高防范意识，一定要准备好药，疫苗灾难下防范意识比解药还重要。
+Discord 账号
 
-参考链接：[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发布：Shifter
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

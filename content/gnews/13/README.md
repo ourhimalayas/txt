@@ -2,115 +2,87 @@
 ---
 
 
-## 蓬佩奥谈他是如何在六个月内减掉90磅
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834095/)
+## GETTR、GTV是唯一能拯救中国人的平台
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-19.jpg)蓬佩奥说靠自己的营养和锻炼，他在六个月内减掉了 90 磅。
-(盖蒂图片社； 纽约邮报的塞缪尔·昆仑)
+**郭文贵
+Miles Guo**
 
-美国会因为川普政府不再在白宫而看不到迈克·蓬佩奥。我们看到的前国务卿“少”了，因为他确实少了——准确地说是少了 90 磅。
+Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
+For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
 
-这位前中央情报局局长，在其漫长的职业生涯中，面临过许多具有挑战性的情况，但他不愿谈论自己的体重减轻，因为担心他会把所有减掉的体重都重新加回来。但是，在接受《华盛顿邮报》独家采访时，他透露了他是如何做到的，以及为什么这样做。
+她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
+She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
 
-这一切都始于 2021 年 6 月 14 日，当时蓬佩奥踏上体重秤，看到他有生以来第一次距离 300 磅仅差几磅了。
+媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
+The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
 
-第二天早上，他醒来告诉他的妻子苏珊：“今天是开始的日子。”
+来黑我们新中国联邦，而且处心积虑，你们竟然不传播
+come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
 
-“我开始锻炼，虽然不是每天，但几乎是每天，吃正确了，体重才开始下降，”他说。
+一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
+It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
 
-58 岁的蓬佩奥说，他在自己的地下室投资了一个家庭健身房，里面有一些哑铃和一台太空漫步机（椭圆机），《华盛顿邮报》本周在那里拍到了他的照片。“我试图每周去那里五六次，并在那里呆半个小时左右。那没有科学。没有教练，没有营养师。只有我自己。”
+你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
+What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mike-pompeo-04-1.jpg)蓬佩奥现在尝试“几乎每天”使用椭圆机和举重锻炼。《纽约邮报》
+烧你家房子，烧你100次，不是烧你一次
+Burn your house 100 times, not burn you once
 
-蓬佩奥说，当他第一次被选为国会作为堪萨斯州代表时，重量就开始攀升。
+你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
+Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
 
-“虽然减肥对我来说是一生的奋斗。”
+千羽你在加拿大, 你走到大街上是人人喊打的人
+Qianyu, you are in Canada, you are the one who was shouts and beats on the street
 
-蓬佩奥说，要想最终恢复健康，他必须保持正确的心态。 他说：“对我来说，这是正确的做法和足够的纪律约束性，”他说，这个过程适用于他在政府中担任的所有高压职位，但直到今年才适用于他自己的健康。
+娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
+Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mike-pompeo.jpg)蓬佩奥现在是福克斯新闻的撰稿人，最近他以减去了 90 磅的体重震惊了观众。《福克斯新闻》
+我不跟你开玩笑正义小Sarah
+I’m not kidding you justice little Sarah
 
-当他工作到深夜，或与他一起乘坐长途航班穿越世界时，他电脑旁边的芝士汉堡、碳水化合物和含糖零食已经一去不复返了。
+Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
+Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
 
-但饮食的改变并没有改变家庭餐馆的传统——国际煎饼屋（IHOP） 仍然是蓬佩奥的最爱，但这位前任国务卿现在选择了更健康的食物，而不是点一堆裹着糖浆的南瓜煎饼。
+这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
+Isobel Yeung this guy is very evil, you see William still laughing, William
 
-“我们仍然作为一个家庭去那里——重要的是不要带走这些传统。现在我们用蛋清和火鸡培根，”他说。
+就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
+just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mike-pompeo-donald-trump-06.jpg)迈克·蓬佩奥——与妻子苏珊和儿子尼克合影——从 2018 年到 2021 年担任川普的国务卿，大部分时间在他的办公桌上吃芝士汉堡。(法新社通过盖蒂图片社)
+一定想到盖特是拯救中国人的平台
+You must think about that Gettr is a platform to save the Chinese people
 
-“对于我们的家人来说，食物是我们聚会的地方。我们是意大利人，我们喜欢聚在一起吃意大利面、面包、奶酪和甜点。我们仍然会与家人和朋友一起享受这些大餐，除非我会说，‘是的，我要一份沙拉，’”他笑着说。
+一定想到G-TV是唯一能拯救中国人的平台
+Must think that G-TV is the only platform that can save the Chinese people
 
-“这是一个良性循环，而不是我一直处于的恶性循环，而且，我在六个月内成功减掉了 90 磅的体重。”
+他比任何经济价值都重要
+It is beyond any economic value
 
-这位加州本地人——他在西点军校的班级中排名第一——说他过去曾以脚部老病为借口，无法减肥。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pancakes.jpg)在 IHOP，彭佩奥不再吃裹着糖浆的成堆南瓜煎饼，而是点了蛋清和火鸡培根。(斯蒂法诺·乔瓦尼尼)
-
-“在 10到11 年的时间里，我体重增加了近 100 磅——这正是我脚受伤的时间——所以我告诉自己，这就是我体重增加这么多的原因，”他并补充说，他的身体没有发生任何具体的变化。脚 “关节刚刚磨损了。”
-
-许多美国人都认同他的战斗：2022 年 1 月的盖洛普调查显示，过去五年中，41% 的美国成年人称，自己超重高于前五年的 36%。盖洛普指出，其调查结果与联邦健康统计数据形成对比，后者显示近四分之三的美国人超重或肥胖。
-
-蓬佩奥说他明白了。“没有人愿意承认他们体重增加或超重，即使所有证据都表明确实超重了。”
-
-他的体重减轻，伴随着社交媒体的大量猜测——蓬佩奥表示，没有任何评论是特别恭维的。“这些帖子非常令人讨厌或不准确，推测我的脖子有健康问题，或者我患有癌症，”他说。
-
-“从来没有人给我打电话问问，‘嘿，发生了什么事？’”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mike-pompeop-committee.jpg)2013年蓬佩奥表示，他于2010年开始在堪萨斯代表后开始增重。(彭博社通过盖蒂图片社)
-
-但是像西点军校同学大卫·厄本（David Urban）这样的朋友肯定做到了。两人于 11 月在达拉斯——以及 1986 年与他们一起毕业的其他所有人——在他们第 35 次同学聚会的陆军——空军比赛中相遇。
-
-川普竞选校友厄本说，他告诉蓬佩奥的第一件事就是，他看起来太棒了。然后他告诉他，对他做到这一点并不感到惊讶。
-
-“不然你不会从西点军校毕业，更不用说成为西点军校班上的第一名，而且不能非常专注。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mike-pompeo-david-urban-01-1.jpg)朋友兼西点军校毕业生大卫·厄本说，蓬佩奥在他们最近的第 35 届同学聚会上的体重减轻，给他留下了深刻的印象。(照片由大卫·厄本 (David Urban) 提供)
-
-厄本在蓬佩奥国务卿期间不时与蓬佩奥一起旅行，他说，他看到了这份工作对他身体的影响。
-
-“他不是第一个从政的人，由于工作需要，体重增加了。他在世界各地旅行，在不同的地方、13 到 14 个小时不同的时区飞行。保持任何类型的常规都非常困难，更不用说锻炼方案了。你不让自己落后于工作，”他说。
-
-“当他去欧洲参加停战 100 周年纪念时，我和他一起旅行，他在整个飞行过程中都在工作，”他补充道。
-
-蓬佩奥说，在他旅行时，如果他们在 7:30 或 8 点钟结束会议，以前的秘书会出去在一家高档餐厅享用美味的晚餐。但他不是。“你可以问我团队中的任何人，他们完全知道我要做什么：客房服务提供的芝士汉堡。我回到房间继续工作，然后吃我的芝士汉堡。那是我的生活模式。
-
-“当你工作和吃饭时，你就继续工作，继续吃饭。”
-
-在短暂担任中央情报局局长并在国会任职三届后，蓬佩奥于 2018 年至 2021 年担任川普政府的第 70 任国务卿。这位曾就读于哈佛法学院的前陆军军官曾是一名商人，他于 1998 年将他母亲的家乡堪萨斯州变成了自己的州。
-
-自离开政府以来，彭佩奥已签约成为《福克斯新闻》撰稿人，担任美国法律与司法中心全球事务高级顾问，并担任各各他的PAC（Calvary PAC）主席，该组织致力于选举美国众议院和众议院的保守派参议院候选人。他和苏珊现在把弗吉尼亚州的尚蒂伊称为他们的家。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pompeo-family.jpeg)蓬佩奥将他的体重减轻归功于他的妻子苏珊、儿子尼克和即将成为儿媳的瑞秋，他们都“支持我努力保持健康”。@mikepompeo
-
-与此同时，蓬佩奥表示，他希望他的旅程能激励其他因肥胖而苦苦挣扎的人减肥。 “这很难，而且不是永久性的。 不能保证我现在的体重仍然会保持不变，但如果你意识到，只要坚持下去就会有好事发生，你也可以做到。”
-
-有他的妻子、儿子尼克和未来的儿媳瑞秋的支持，当然有帮助。
-
-“我在这段旅程中最大的收获是，有一个非常支持我的妻子和家人，”他说。“每个人都支持我努力保持健康，这才是真正的重点。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/nick-pompeo-rachel-1.jpeg)蓬佩奥说，他希望儿子尼克和他的未婚妻瑞秋给他孙子孙女。
-
-另一个社交媒体谣言是，蓬佩奥为了 2024 年的总统竞选而减肥。他对这个建议嗤之以鼻。
-
-“事实是，我真的为 2044 年做好了准备，并希望我能在 2054 年左右。”
-
-为什么是那些特定的年份？ 孙子们，他满怀希望地说。
-
-“我儿子七月份就要结婚了，我想变得更健康，我希望主能在不久的将来保佑我们孙子孙女。我不应该谈论那个，我被告知，”他笑着说，知道他会因为让自己的真实感情溜出而感到有点善意的悲伤。
-
-“我的衣服更合身，我更有活力，”他说。但最终，“我想和我的家人在一起，希望有很多孙子孙女。”
-
-**参考资料：**[nypost][Mike Pompeo tells The Post how he lost 90 pounds in six months](https://nypost.com/2022/01/06/mike-pompeos-weight-loss-story-down-90-pounds-in-6-months/)
+你看明白了吗？兄弟姐妹们
+Do you see it? Brothers and sisters
 
 * * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+Date: 01/06/2022
+原视频标题: GETTR、GTV是唯一能拯救中国人的平台
+GETTR and GTV are the only platform that can save the Chinese people
+原视频日期：2022/01/05
+原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
+任务编号：3429
+视频时间段 : 0:00-1:34
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

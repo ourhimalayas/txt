@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 8:31 PM (UTC)`
+
+1月7号：又来浪啦了……
+![img](https://media.gettr.com/group22/getter/2022/01/07/20/8301394a-9318-016c-81af-5cd1800882e7/8763d0f4461aa61702c6b687f4313266.jpg)
+
+---
+
 `@miles 1/7/2022 8:22 PM (UTC)`
 
 1月7日: 雪中G翻身……G Fashion视频🔥🔥🔥🔥🔥🔥🔥🥰🥰🎊🎊❄️❄️🎉🎉
@@ -146,13 +153,6 @@ Congrats @gettr !!!!
 
 1/05/2022 Miles Guo: GETTR is not only the life-saving media platform that exposes the COVID vaccine disasters, but also the very first revolutionary social media platform that does not profit from advertising or selling personal data<br/><br/>1/05/2022 文贵直播：GETTR是揭露中共疫苗灾难的救命媒体，也是首个不靠广告费和出卖个人信息盈利的革命性的社交媒体平台！
 ![img](https://media.gettr.com/group16/getter/2022/01/06/22/e49e59f6-89b2-b0b7-86c2-d58b4783c598/out.jpg)
-
----
-
-`@miles 1/6/2022 10:00 PM (UTC)`
-
-1/05/2022 Miles Guo: Google, AppStore, and Facebook have jointly suppressed GETTR, tampering with the downloads of the GETTR App and preventing users from receiving email confirmation when signing up for an account. As a result, GETTR had more than 10 million downloads taken out in the West, with a total of more than 50 million downloads being removed<br/><br/>1/05/2022 文贵直播：谷歌、苹果商店和脸书联手打压GETTR，篡改下载量并阻止用户在注册账号时收取验证邮件，GETTR在西方就有1000多万下载量被干掉，共有5000多万的下载量被拿掉<br/>
-![img](https://media.gettr.com/group35/getter/2022/01/06/22/789f602f-7ab8-274c-d1e9-f1ba117c5d74/out.jpg)
 
 ---
 
