@@ -2,25 +2,34 @@
 ---
 
 
-## 秘翻在线：中共国的航天工业是被吹上天的
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1832789/)
+## mRNA疫苗即病毒 新中国联邦用盖特照明世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1832996/)
 
-**撰稿：葛大饼**
+作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，郭文贵先生在直播中解答了为很多战友所疑惑的问题，即，很多人接种过两针以上的中共病毒疫苗且他们尽力做好了防疫工作，但他们为何仍会感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-23.jpg)
+对此郭先生明确地指出，mRNA中共病毒疫苗本身就是病毒，其不需要传染过程即可使接种者感染，只是发作时间不定。郭先生表示，这也解释了欧洲某个领导人夫妇在接种过三针中共病毒疫苗且不出门的前提下，仍然感染中共病毒的缘由。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-07-212154.jpg)**2021年双曲星1号火箭发射失败**
-根据2022年1月6日新浪报道称，中共国在过去的一年航天发射次数达55次，超过美国的45次和俄罗斯的25次，居世界第一。
+郭先生强调，新中国联邦人除了没有接种过毒疫苗之外，我们不仅握有喜币，还拥有可以为真相发声的平台——盖特。
 
-文章称新世纪头10年，中共举国之力主导的航天工业急剧崛起，中国航天科技集团有限公司去年完成48次发射，成功率100%，将上百颗（含搭载）航天器送入太空，酒泉卫星发射中心也是世界上最繁忙的火箭发射基地，全年发射22次。2021年，中共祝融号首次在火星上留下自己的足迹， 中国载人航天工程总设计师周建平表示2022年将完成中国空间站的建造以及中共国空间站首个实验舱等.
+郭先生感叹，黄皮肤的中国人从未像今天一样，通过盖特在世界上发挥着不可估量的影响力；中国人也从未像今天一样，在这场不流血的战争中，用光明照亮世界，用真相消灭邪恶的力量。
 
-新闻称虽然马斯克的SpaceX公司也在2021年突破纪录，但是美国“星链”卫星却两次接近中国空间站，对空间站上的航天员生命健康构成威胁，美方不尊重以国际法为基础的外空国际秩序。
+参考链接：[2022年1月5日 文贵大直播：最新变种病毒Omicron和疫苗动态，及西安封城真相；冬奥会中共准备如何；元旦新年之后国内的地产、香港股市、美国股市的变化；“我是音雄”节目和大直播与一年前的对比和带来的效果](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
-中共国航天发射次数达55次，有多少次是失败的？有多少次是P图盗别国的视频的？中共唯一进步的是把当年亩产万斤量，母猪会上树的宣传语变成航天事业超美俄！中共的不自信只能靠口炮来打气，同时也给防火墙内不明真相的老百姓洗脑！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**[新闻来源](https://k.sina.cn/article_1887344341_707e96d50200170k2.html?from=mil&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月4日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833480/)
+## 中共国房价下跌城市数量增加二手房价格跌幅扩大
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1833527/)
 
-配音：香草山教育部 – Rita七号小青蛙
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+据《中央社》1月7日报道，根据北京中指信息技术研究院的数据显示，2021年12月，中共国100个城市新房和二手房平均价格都较前1个月下跌，不仅房价下跌城市数量增加，且二手房价格跌幅扩大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0104text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月4日晚](https://gnews.org/zh-hans/1823509/)
+据报道，数据显示，2021年12月，中共国100个城市新房均价为人民币1.62万元／平方米，较同年11月下跌0.02%；二手房均价为人民币1.6万元／平方米，跌幅为0.09%，较前一期数据（11月与10月相比），跌势扩大了0.01个百分点。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.jpg)图片来自Getty Images
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+从涨跌城市个数来看，2021年12月房价下跌城市数量增加。新房方面，有39个城市上涨、58个城市下跌，3个城市持平，下跌城市数量较11月增加了5个；在二手房方面，27个城市上涨、71个城市下跌、2个城市与上月持平，下跌城市数量较11月的数据增加了3个。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+此外，中指研究院的数据还显示，2021年12月，十大城市新房均价为人民币2.93万元／平方米，较同年11月下跌0.04%。新房价格下跌的城市有上海、成都、杭州、北京等。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在二手房价格跌幅方面，深圳的二手房跌幅最大，下跌了0.38%。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+参考链接：
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[中國房價下跌城市增 深圳中古屋價格跌幅最大](https://www.cna.com.tw/news/acn/202201070204.aspx)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 

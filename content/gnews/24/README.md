@@ -2,45 +2,34 @@
 ---
 
 
-## 意大利强迫50岁以上公民必须注射疫苗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833336/)
+## 印度向小米追缴超八千万美元逃税款项
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833370/)
 
 作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月5日，印度政府发布声明表示，经调查，中共国智能手机厂商小米在当地的子公司涉嫌逃税，当地政府已对此追缴了约八千七百万美元的税款。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-6.jpeg)
 
+印度政府称，小米在印度的子公司向美国高通公司、北京小米移动软件公司支付了特许权使用费和许可费，但这些费用未被计入在该公司与合约制造商的进口商品交易价值中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+根据印度的相关规定，作为进口手机和零组件的受益人，该子公司的行为已经涉嫌逃避关税。为此，印度政府向小米追缴了2017年4月至2020年6月间的相关税金。
 
+参考链接：[印度當局控小米涉逃稅 追繳逾24億稅款](https://ec.ltn.com.tw/article/breakingnews/3791735)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-台媒报道，当地时间5日，意大利政府宣布强制令，要求50以上民众必须接种中共病毒疫苗。意大利此举成为非常少数实施疫苗强制令的欧洲国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗灾难.jpg)
-这项强制令要求50岁以上，没有工作的人必须接种疫苗，而有工作者必须取得所谓的“疫苗通行证”，才能进入工作场所。而根据最新统计，在意大利5900多万人口中，有大约2800万人年龄超过50岁。
-
-评论指出，意大利政府不顾中共病毒疫苗给民众带来的巨大伤害，而在老年人中执行疫苗强制令，其险恶目的已经暴露无遗。
-
-参考来源：[https://cn.rti.org.tw/news/view/id/2121426](https://cn.rti.org.tw/news/view/id/2121426)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-3.png)
-
-编辑/校对/发稿：兰兰
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

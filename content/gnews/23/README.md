@@ -2,35 +2,40 @@
 ---
 
 
-## 有声|狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833347/)
+## 有声|因言被封：推特永久封禁美众议员的个人账户
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833380/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-香港，1月4日（路透社）—香港法院周二判处一名36岁的大律师15个月监禁，罪名是煽动未经授权的集会。该集会是纪念在1989年6月4日中共政府残暴镇压民主抗议者中死去的人们。
+配音：香草山健身部 – 玫瑰园
 
-邹幸彤是去年6月4日镇压周年纪念日的前一天被捕的。
 
-香港一直都有纪念6.4的守夜活动。但是过去两年，港警以冠状病毒限制为由，禁止了守夜活动。尽管有禁令，2020年仍有数千人在全市范围内点燃蜡烛。由于港警大肆抓捕导致2021年守夜人数骤减。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月2日消息，美国众议院议员，佐治亚州共和党成员玛乔丽·泰勒·格林的个人推特账户被永久封禁。理由是，她违背推特公司有关 “发布中共病毒不实消息” 的言论审查政策。
 
-法官认为邹煽动他人参加未经批准的集会，造成了公共健康风险。而邹自己则认为她只是想提醒人们不要忘记6.4，并补充说”暴政是贪婪的，红线会不断扩大。”
+格林议员此前曾发布过一条推文，内容涉及与“中共病毒”疫苗相关的死亡人数，其中包含一张图表，内容为患者自述的“中共病毒”疫苗接种后导致的各类健康问题。
 
-中共狰狞的嘴脸终于暴露出来。50年不变的政治制度已经荡然无存。谁不听话就抓起来，安个理由，投到监狱。
+据悉，格林议员在另外的社交媒体上进行了回击，包括其Telegram和盖特账户。她在盖特发文表示，“推特宁可允许暴力和恐怖分子的存在，也要封杀“中共病毒”疫苗导致死极高的真实数据。“
 
-文字版原文：[狼狈为奸，港府法院判律师邹幸彤（Chow Hang-tung)入监15个月](https://gnews.org/zh-hans/1822211/)
+耐人玩味的是，在民众逐渐意识到疫苗的无效性和广泛接种后所暴露的大量风险之际，美国疾控中心CDC近期坚称“中共病毒“疫苗和极高死亡无关，食品药品管理局FDA更是在1月3日批准了为12到15岁青少年接种辉瑞BioNTech疫苗加强针的使用授权。公众在真相面前的觉醒和监管机构的负隅顽抗，这一鲜明对比值得深思。
+
+文字版原文：[因言被封：推特永久封禁美众议员的个人账户](https://gnews.org/zh-hans/1822292/)
 
 音频处理：喜山必胜Maverick
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

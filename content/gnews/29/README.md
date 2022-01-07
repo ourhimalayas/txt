@@ -2,15 +2,15 @@
 ---
 
 
-## 香港股市与中共恒大集团及房地产危机
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1833179/)
+## 中共20大人事被曝血雨腥风即将到来
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1833234/)
 
 ————文贵大直播20220107
 
-撰稿：萌萌的朋克（秘翻） Nine lee（DC） 指导：巍峨泰山（伊甸） 哈雷（扬帆）
+撰稿：Poplar（盘古）
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/P1-1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P4-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P5-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P7-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P8-3.png)
+美工：Sotres（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/P1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P2-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P5-4.png)
 *发布：Theodosia*
 
  

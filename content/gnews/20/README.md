@@ -2,37 +2,50 @@
 ---
 
 
-## 银河快讯:消费者信心指数四个月来首次恶化；日美“2+2”会谈将于7日在线举行
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1833381/)
+## 朝鲜以疫情为由宣布不参加北京冬奥会
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1833403/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-42.png)[图片来源](https://mainichi.jp/)
-**1.****日本新增中共病毒（新冠病毒covid-19）感染者****2000****人**
+作者：纽约香草山教育部 —Naughty(文行)
 
-[据TBS新闻 1月5日报道，日本全国各地确认2000多新病例。 这是自去年9月26日三个多月来，首次超过2000人被确认。其中，冲绳县623人，东京390人，大阪244人，广岛县138人，山口县104人。](https://news.yahoo.co.jp/articles/554ad0fdb3fce230107c63bf50089b724e4b43c7)
 
-**2.****消费者信心指数四个月来首次恶化**
 
-[据共同社1月5日报道，据内阁办公室发布的2021年12月消费者信心调查，代表未来6个月消费者情绪的消费者态度指数比上月下降0.1点，至39.1，这是四个月来的首次恶化。该调查在2021年12月7日至20日期间进行，有4,678个成员在2人或以上的家庭作出有效回答。](https://news.yahoo.co.jp/articles/498822f5fa8b612a839798c51770915c1a7df6d2)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-**3.****证券账户在22年内将超过3000万**
 
-[据共同社1月5日报道，2022年，日本的个人证券账户数量预计将超过3000万。 互联网的崛起及其低成本的服务，投资股票和其他证券的人群基础被扩大，并正在逐渐改变证券行业的势力范围。与重视对面服务的传统证券公司之间，竞争可能会变得更加激烈。21年9月底的个人账户数量约为2876万个，比前一年增加了约273万个。](https://news.yahoo.co.jp/articles/429e1021f26a2a0a6aeacaafabb8d617e415c22e)
 
-**4.****年底和新年的国内航班乘客比去年增长92%**
+据路透社报道，朝鲜官方媒体星期五宣称由于敌对势力的阻碍和新冠病毒的全球流行，将无法参加即将在北京举行的冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/抵制.png)
+朝鲜被国际奥委会（IOC）禁赛至 2022 年底，这意味着在去年未能派队参加东京奥运会后，朝鲜将无缘北京冬奥会。 据朝中社报道，朝鲜奥委会和体育部致函包括北京奥组委表示尽管不能参加本届冬奥会，但仍会全力支持中共国奥运会所做的一切工作。
 
-[据NHK 1月5日报道，年底和新年假期期间，国内航班的乘客数量大幅反弹，与前一年同期相比增加了90%以上。根据国内11家主要航空公司的报告，在新年假期12月25日至1月4日的11天期间，约有314万人使用国内航班，与上年同期相比大幅恢复约92%。此外，与在 中共病毒（新冠病毒covid-19）传播之前的前年同期相比，乘客的数量已经恢复到76%。](https://www3.nhk.or.jp/news/html/20220105/k10013416231000.html?utm_int=news-business_contents_news-main_004)
+2021年 12 月，白宫宣布由于中共在中国的人权暴行，美国政府官员将抵制 2022 年冬季奥运会，但允许美国运动员个人可以自由前往北京参加比赛。
 
-**5.****日美外长防长”2+2 “会谈将于7日以在线方式举行**
+此后，包括英国、澳大利亚和加拿大在内的其他几个国家也宣布了外交抵制。
 
-[据NHK 1月5日报道，日本政府宣布，日本和美国的外交国防部之间的 “二加二 “部长级会谈将于7日（日本时间）通过视频会议举行。 日本方面由外务大臣和国防大臣岸参加，而美国方面则由国务卿布林肯和国防部长奥斯汀出席。除了就日美之间的安全和防务合作方向以及为实现 “自由和开放的印度洋-太平洋 “的合作交换意见外，预计部长们还将确认早间已达成共识的增加日本对驻日美军费用的分担。](https://www3.nhk.or.jp/news/html/20220105/k10013415631000.html?utm_int=news-politics_contents_list-items_010)
+参考来源：[https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics](https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/North-Korea-to-skip-Beijing-Winter-Olympics)
 
-**6.****日本外务省设立2023年G7峰会准备室**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
 
-[据共同社1月5日报道，日本外务省4日宣布，1日设立了面向2023年在日本召开的七国集团（G7）峰会的准备室。准备室将视察举办候选地，围绕住宿设施、交通方式、警备态势等收集信息。准备室目前有10个工作人员，经济局政策课长有吉孝史兼任室长。准备室还负责对峰会期间在日本召开的外长等相关阁僚会议候选地进行视察等。](https://tchina.kyodonews.net/news/2022/01/5d40e8a9df08-2023g7.html)
+编辑/校对/发稿：兰兰
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Tagomi
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
 
  
 
