@@ -2,43 +2,193 @@
 ---
 
 
-## 乔-罗根五日内已为Gettr带来了一百万新用户
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1833996/)
+## 2021年、2022年是人类命运的分水岭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Rogan.jpg)图片来源：Bulldog Report
-根据《纽约邮报》1月7日报道，前特朗普顾问杰森-米勒的社交媒体应用Gettr在播客巨星乔-罗根加入后的几天里，已经有超过100万的新用户注册。
+[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
 
-该公司与《邮报》独家分享了数据，Gettr是一个一直吸引保守派社交媒体用户的Twitter替代品，在罗根周日在该网站上发表第一篇文章后不到一周的时间里，Gettr在周五上午达到了100万大关。发言人埃博尼-鲍登说，这使该网站的用户总数超过了400万。
+我觉得爆料革命和新中国联邦
+Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
 
-罗根仍然保留着一个Twitter账户，但他说，在Twitter周日禁止佐治亚州众议员马乔里-泰勒-格林(Marjorie Taylor-Greene)，称她多次分享疫苗的错误信息后，他加入Gettr是出于对审查制度的担忧。在禁言之前，泰勒-格林在推特上说，”极高数量的冠状病毒疫苗死亡被忽视”，并呼吁食品和药物管理局不要批准冠状病毒疫苗。
+包括人类的命运
+Incluyendo el destino de la humanidad
 
-罗根的第一个Gettr帖子写道：“为了防止狗屎推特变得更蠢，我现在来到这里。欢呼吧！”
+我觉得2021年、2022年是人类的分水岭
+Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
 
-这波注册潮中，仅1月3日一天就有34.3万人，这是Gettr网站自7月推出以来最大的单日注册人数。鲍登说，Gettr没有支付罗根加入该网站的费用。
+今天我说了你们就不觉得惊讶了
+Hoy no se sienten asombrados si les digo esto
 
-罗根的加入标志着Gettr在米勒未能争取到特朗普之后取得的胜利，特朗普在10月表示，他计划推出自己的网站，名为TRUTH Social。
+如果一年前我说你们(会)觉得我神经病
+Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
 
-然而，迄今为止，TRUTH 的开端并不顺利。据《Daily Dot》报道，特朗普的团队表示，测试版本将在 11 月上线，然后在 2022 年第一季度更广泛地发布，但该网站的多个基本测试版本已在网上泄露，使黑客和记者能够挖出特朗普自己的用户名。
+是不是, 夸张、吹牛
+Cierto, exagerado, presumido
 
-TRUTH的陷入困境使得Gettr能够与可能成为TRUTH用户的人打成一片。包括作家乔丹-彼得森、政治评论家戴夫-鲁宾和《纽约邮报》专栏作家卡罗尔-马科维茨和萨莱娜-齐托在内的其他保守派也在最近几周加入了该网站。
+我从来没想试图说服过任何人
+Yo nunca he pensado de persuadir a nadie
 
-对于保守派来说，该网站的主要卖点是其较宽松的内容审核政策。Gettr允许所有关于政治和疫苗的观点，包括那些其他网站的事实核查人员会标记为错误的观点。然而，该网站不允许公开的白人至上主义，最近禁止了白人民族主义 “团结右翼 “组织者尼克-富恩特斯(Nick Fuentes)。
+包括你七嫂
+Incluyendo a mi esposa
 
-Gettr也在向海外扩张。截至周五，该公司称其在美国有220万用户，其次是巴西的50万用户，以及英国、德国和法国的大量用户。相比之下，Twitter在美国有大约7800万日活跃用户，在全球有2.06亿。
+包括我家人, 我从来没有过
+Incluyendo a mi familia, nunca lo he pensado
 
-米勒对《纽约邮报》说：”这些数字证明，社交媒体用户开始意识到硅谷高管日益严厉的审查制度，并渴望获得替代方案。我们欢迎来自各种意识形态和背景的人在我们的平台上自由表达自己。”
+因为人的缘分不是你能说服得了的
+Porque la afinidad entre personas no puede ser persuadida
 
-Gettr得到了郭文贵的资助，他是一名商人，2014年逃离中国，与前特朗普顾问史蒂夫-班农关系密切。据米勒称，该公司还有其他未透露姓名的支持者，截至9月，已经筹集了约7500万美元的资金。
+人和人之间的关系
+La relación entre las personas
 
-郭文贵先生在1月5 日的大直播中说道，中共，谷歌，苹果等在全力打压Gettr,实际上盖特的用户下载数量是在3500万人以上。
+真的不是你用嘴(说)能达到的
+Realmente no se logra con la boca (diciendo)
 
+真正的人与人的信任和感情
+La verdadera confianza y sentimiento entre las personas
+绝对不是嘴能说到的
+No se dice con la boca
 
+很多过去的欺民贼, 伪民运
+Muchos matones del pasado, movimiento de la pseudodemocracia
 
-原文链接：
-[https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
+他(们)不懂这个道理
+(Ellos) no entienden esta verdad
 
-编辑，发稿 Spirit
+就是人类这个灵性动物
+Es decir, los seres espirituales como los seres humanos
+
+他最终是一定要看行动的
+Él al final lo que ve es la acción
+
+最终就是以结果论
+Finalmente toma el consecuencialismo
+
+这就是动物和植物界的根本不同
+Esta es la diferencia del origen entre los animales y el mundo de las plantas
+
+那么我们在这个地球上
+Entonces, nosotros estamos en este planeta tierra
+
+我们大家面对着一个物质的世界
+Enfrentamos a un mundo material
+
+和一个我们完全无法想像的未知的星空
+Y un cielo estrellado desconocido que ni siquiera podemos imaginar
+
+银河系, 太阳系
+Vía Láctea, Sistema Solar
+
+无限大的宇宙和地球之间一粒沙的关系
+La relación entre un grano de arena del universo infinito y la tierra
+
+我们跟人之间相处的时候实际是最复杂的
+En realidad, lidiar con las personas es lo más complicado
+当今天我们看这个同心同框, 这么多战友的时候
+Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
+
+大家能看到有人说话多一点, 有人说话少一点
+Todos pueden ver que algunas personas hablan más, otros hablan menos
+
+有人激动一点, 有人水多一点(或)水少一点儿
+Algunos son más emocionados, otros con más agua o menos
+
+是不是
+Cierto o no
+
+分男女, 分老少, 分长短
+Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
+
+但是大家记住
+Pero todos recuerden
+
+我们心中最大的魔就是分高低
+El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
+
+而且这个高低是谁定的, 是你自己定的
+Además, quién decide esto, tú mismo
+
+都是我们每个人自己的标准去量所有的人去
+Utilizamos nuestros propios estándares para medir a los demás
+
+这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
+En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
+
+我们今天讲了那么多
+Hoy hablamos tantas cosas
+
+我们没讲金, 没讲土
+Pero no mencionamos el oro y la tierra
+
+但是我们的新中国联邦的旗是什么旗
+Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
+
+我们的蓝色就是蓝色海洋和星空
+Nuestro color azul significa el mar y el cielo estrellado
+
+你知道在中(共)国是不用蓝的
+Sabías que en República Popular de China no se utiliza el azul
+
+中国人什么时候用蓝你知道吗
+¿Sabes cuándo los chinos usan el azul?
+
+头两天你七嫂憋了一年都没说
+En los primeros dos días, mi esposa aguantó durante un año sin decirlo
+
+你七嫂给我留面子
+Era para que no pasara pena
+
+我知道你七嫂要说什么
+Yo sé lo que ella quería decir
+
+就是说那个蓝色的时候
+Hablando lo del color azul
+
+你七嫂说, 哎呀
+Ella dijo, ay
+
+她说在咱老家咱娘说, 这叫什么
+En nuestra ciudad natal, nuestra madre dijo que esto se llama
+
+就是在我们山东老家, 人死了用那个蓝色
+En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
+
+就是那个蓝色是死亡蓝的意思
+Quiere decir que el color azul representa la muerte
+
+我特能懂, 我啥也没说
+Puedo entender totalmente esto, no dije nada
+因为你七嫂子她是山东人
+Porque mi esposa es de Shandong
+
+她是我的爱人, 跟我一起长大的
+Es mi amor y creció conmigo
+
+但是我就没法跟她解释
+Pero no puedo explicarle
+
+她未来会懂得
+Ella entenderá en el futuro
+
+* * *
+
+日期：01/06/2022
+原视频标题：2021年、2022年是人类命运的分水岭
+El año 2021 y 2022 son la línea divisoria de agua del destino humano
+
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
+任务编号：KC399（3406）
+视频时间段：00:00-02:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,26 +2,31 @@
 ---
 
 
-## 【中日财经爆】日本大型人才派遣公司进军“元宇宙”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1833856/)
+## 有声|盖特是最重要的社交媒体平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833923/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-7.jpg)
-[图片源](https://note.com/hashtag/%E5%85%83%E5%AE%87%E5%AE%99)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月5日大直播，文贵先生再次向战友们剖析盖特的重要之处。
 
-7日，日本大型人才派遣公司Pasona Group代表南部靖之在接受每日新闻采访时表示，将涉足在线虚拟现实空间“元宇宙”的相关业务。今年春天，将从公司内外聚集具有专业技能的人才成立团队。目的是创造一种利用虚拟空间的新就业模式。
+第一，盖特是传播疫苗灾难的救命媒体。第二，盖特不出卖用户数据，改变了社交媒体平台出卖用户数据收益的现状。最重要的是：它打破了法币和数字货币屏障，开创了媒体成为个体间沟通的桥梁。盖特和GTV，未来的价值，绝对是金钱无法衡量的，他们是改变游戏规则的社交媒体平台。
 
-南部先生强调，在虚拟平等的空间中，男女老少没有区别。无论年龄或是否残疾，都可以轻松工作并创造新的就业方式。该公司正在实施一项计划，将一部分业务从东京搬迁到兵库县淡路岛，以应对工作方式改革和自然灾害的发生。与此同时，人们可以在“元宇宙”上做生意，搞副业，虚拟体验淡路岛的生活，也许将会吸引用户移居至淡路岛。而风险投资公司和艺术家也可能加入，以支持当地的就业和文化推广。南部先生表示，期待与这些企业产生协同效应。
+今天盖特的数据，活跃用户占96%，与之相比，FB,推特上是垃圾信息泛滥。可想而知，盖特的传播力量有多大。在盖特上，我被评为共产党的噩梦，你看多少欧美人在下面表达感激。这就是盖特的力量，媒体传播的力量。
 
-关于“元宇宙”，本月早些时候，松下宣布了VR眼镜等相关产品，索尼集团也宣布计划启动一项服务的示范实验，此项服务让球迷可以在“元宇宙”再现的体育场内享受观看足球比赛并同时互动的乐趣。目前世界各国正陆续进入该市场。
+文字版原文：[盖特是最重要的社交媒体平台](https://gnews.org/zh-hans/1831178/)
 
-[信息源](https://news.yahoo.co.jp/articles/37e6a2831d69b8beaaaeca17df631b1313e72c41)：
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

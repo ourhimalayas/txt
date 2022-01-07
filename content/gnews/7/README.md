@@ -2,35 +2,33 @@
 ---
 
 
-## 有声|联邦法官阻止政府对启蒙计划的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833896/)
+## 开玩笑？ 德约科维奇拒绝透露疫苗接种状态被澳网禁赛
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833950/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月2日，据当地媒体报道，一名联邦地区法官于当天阻止了美国政府要求启蒙计划早期教育项目的教师及员工接种中共病毒疫苗的强制令。
+编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/769d-f62683934e35eb6b39d32d600d72d87d.jpg)图片来源：sports.sina.cn
+又一位全明星运动员因疫苗（或没有接种疫苗）而受到打击。
 
-资料显示，启蒙计划是美国联邦政府资助的教育项目，其主要为低收入家庭的婴幼儿及学龄前儿童提供教育帮助。此前，联邦政府要求所有就职于启蒙计划的教育工作人员于2022年1月31日前接种中共病毒疫苗。
+据《纽约邮报》报道，诺瓦克·德约科维奇（Novak Djokovic）可能在抵达澳大利亚参加澳大利亚公开赛仅一天后，就必须离开澳大利亚。
 
-对此，在美国24个州起诉卫生与公众服务部长哈维尔-贝塞拉的案件中，路易斯安那州门罗地区法官特里-道蒂对此项疫苗强制政策发出了初步禁止令。
+“周三，边境官员在墨尔本机场拘留了这位顶级男子球员八小时。这位一再拒绝透露其疫苗状况的网球明星，获得了参加比赛的医疗豁免。尽管他计划挑战该国的裁决，但他的地位现在令人怀疑，”邮报报道。
 
-道蒂法官表示，美国目前已经走到了十字路口。此时，如果民众继续允许行政部门篡夺立法部门制定法律的权利，那么美国就不再是民主国家。 道蒂强调，中共病毒疫情不是美国放弃三权分立的借口。
+“德约科维奇先生的签证已被取消，”澳大利亚总理斯科特·莫里森周三在推特上写道。 “规则就是规则，尤其是涉及到我们的边界时。没有人可以超越这些规则。我们强有力的边境政策，对于澳大利亚是世界上 COVID 死亡率最低的国家之一至关重要，我们将继续保持警惕。” 德约科维奇已经 9 次赢得澳网冠军——包括过去 3 年。但据德约科维奇的父亲 Srdjan说，他目前被警察看守，并被关押在机场的“一个没有人可以进入的房间里”。
 
-与此同时，美国最高法院也正在考虑阻止加州一个学区针对当地学生实行的中共病毒疫苗强制接种要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-11-1.png)图片来自原文
 
-文字版原文：[联邦法官阻止政府对启蒙计划的疫苗强制令](https://gnews.org/zh-hans/1829368/)
+(评论：澳大利亚已经成了仅次于中共的“疫苗”独裁政权，莫里森冠冕堂皇谈什么“规则就是规则”，却不谈规则的法律依据在哪里？规则的科学依据是什么？就是“疫苗”吧，莫里森连病毒起源都不知道，那么针对病毒的疫苗怎么出来的？莫里森不仅对澳洲人民实施极权，还向世界证明他的极权淫威！)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+参考资料：[hannity][YOU’RE DJOKING, RIGHT? Djokovic Banned from Australian Open, Refuses to Disclose Vax Status](https://hannity.com/media-room/youre-djoking-right-djokovic-banned-from-australian-open-refuses-to-disclose-vax-status/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

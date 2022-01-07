@@ -2,35 +2,27 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第29天位列美国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1833638/)
+## 又一欧盟成员国拒绝出席北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1833839/)
 
-1/7/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第29天位列美国iTunes热门MV榜榜首。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-10.jpg)
+图片来源于本文链接
 
-* * *
+1月7日新浪网报道，斯洛文尼亚总统日前致信中共国，表示因全球中共病毒（新冠病毒Covid-19）疫情及斯洛文尼亚国内的疫情形势，将不会出席北京冬奥会。斯洛文尼亚总统会见了中共国驻斯大使，并请大使代为转交信函。
 
-[【PDF 下载】Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+随着2022年北京冬奥会举办时间的临近，已有多国宣布不参加冬奥会，自12月6日美国宣布拒派官员出席北京冬奥会后，分别是美国、澳大利亚、新西兰、加拿大、英国，立陶宛，斯洛文尼亚官方宣布不再参与。而就在今天，朝鲜奥委会和体育省向中共奥委会、北京2022年冬季奥运会及冬季残疾人奥运会组委会、中共国家体育总局致信函：朝鲜不能参加本届奥运会。至此，和中共同穿一条裤子的铁哥们朝鲜也不来参与这场运动秀。北京冬奥会这场闹剧将如何上演？
 
-* * *
+信息来源:
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_106.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_117.jpg)
+[【斯洛文尼亚总统致信中国，表示将不出席冬奥会，并向中方解释原因\_腾讯网】](https://xw.qq.com/partner/vivoscreen/20220107A02JRS/20220107A02JRS00)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
-[【PDF 下载】Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-7-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

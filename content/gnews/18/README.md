@@ -2,29 +2,29 @@
 ---
 
 
-## 这就是他们释放Omicron的原因吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833717/)
+## GTV新闻访谈简报|2022年1月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1833854/)
 
-翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-433.png)图片来源: [creativedestructionmedia.com
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在 Delta这波病毒稀释之后，最新的 Omicron热炒之前，自动数据处理(ADP )显示出就业增长出现大幅飙升。
+视频参看：[2022.01.07早GTV新闻访谈](https://gtv.org/video/id=61d83fc4f2fe0449ea19a537)
 
-在“Delta浪潮”减弱之后，以及在恐惧媒体和专横的蓝色州应时地掀起 Omicron 的浪潮之前，ADP 就业增长在 12 月出现了大幅飙升。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**这表明美国人希望重返工作岗位，恢复正常。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
 
-这就是为什么要推出 Omicron 吗？ 连（奥巴马）拜登都不能放慢美国经济？ 好奇的人们想知道答案。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-新闻来源 : [creativedestructionmedia.com][Is This Why They Released Omicron? ADP Job Growth Shows Massive Spike After Delta Wave Dilution, Prior To Latest Omicron Head Cold Hype](https://creativedestructionmedia.com/news/markets/2022/01/05/is-this-why-they-released-omicron-adp-job-growth-shows-massive-spike-after-delta-wave-dilution-prior-to-latest-omicron-head-cold-hype/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
