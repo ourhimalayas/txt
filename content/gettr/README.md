@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/7/2022 2:22 AM (UTC)`
+
+Who's Miles Guo Episode 2 Artemisinin and Ivermectin<br/>谁是郭文贵 2 青蒿素和伊维菌素
+![img](https://media.gettr.com/group28/origin/2022/01/07/02/350577a6-c177-02b1-639e-6b18e8163a0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/7/2022 2:03 AM (UTC)`
 
 1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！
@@ -156,13 +163,6 @@ LOL I'M ON A BILLBOARD @metapcs
 
 1/05/2022 Miles Guo: Same with all the dictators in history, Xi Jinping believes that the deaths of the people are inevitable and are necessary for him to make the regime stronger. The Winter Olympics is a gift from God. Because of the Whistleblowers’ Movement, the CCP’s dreams of pushing the digital RMB and invading Taiwan will never come true!<br/><br/>1/05/2022 文贵直播：习太阳和史上所有独裁者一样，它们相信死人是其强大的必须和必然；冬奥会是上天的礼物，有爆料革命在，中共想借奥运强推数字人民币和打台湾的梦想一定不会得逞！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/01/06/07/3f9e0d8f-9a6a-881f-fdea-307ad046697b/out.jpg)
-
----
-
-`@miles 1/6/2022 7:12 AM (UTC)`
-
-1/05/2022 Miles Guo: The Communist China’s real estate price will not drop sharply before the downfall of the CCP because real estate is the cornerstone of its rule. Nor will the food price be allowed to rise significantly just in case the Lao Baixing would rebel; the CCP has come up with a 24-month time frame, during which they will issue digital RMB and will plunder the wealth of the Chinese people and the rest of the world<br/><br/>1/05/2022 文贵直播：中共灭亡前房价不会暴跌，因为房地产是其统治的基石，也不会让粮价暴涨以防老百姓造反；中共内定24个月时间表，其间会发行数字人民币，掠夺中国人乃至世界的财富<br/>
-![img](https://media.gettr.com/group4/getter/2022/01/06/07/209b8284-d48a-33e6-30bb-d4866faea0b6/out.jpg)
 
 ---
 

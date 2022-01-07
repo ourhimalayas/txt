@@ -2,25 +2,31 @@
 ---
 
 
-## 印尼近七成未接种疫苗者产生中共病毒抗体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829261/)
+## 联邦法官阻止政府对启蒙计划的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829368/)
 
 作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，据相关媒体报道，最新的调查数据显示，在印度尼西亚，每十名当地民众中就有近九人拥有中共病毒的抗体，然而，印尼的中共病毒疫苗接种率却明显低于其他亚洲国家。
+1月2日，据当地媒体报道，一名联邦地区法官于当天阻止了美国政府要求启蒙计划早期教育项目的教师及员工接种中共病毒疫苗的强制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-5.jpeg)
 
-对此，印尼中共病毒专案小组发言人表示，2021年11月至12月间，印尼政府在该国100座城市中开启了针对中共病毒抗体的调查，而在接受调查的群体中，约有86.6%的民众对中共病毒抗体呈阳性反应，其中，73.2%的被调查者从未接种过中共病毒疫苗，也没有过中共病毒确诊感染记录。
+资料显示，启蒙计划是美国联邦政府资助的教育项目，其主要为低收入家庭的婴幼儿及学龄前儿童提供教育帮助。此前，联邦政府要求所有就职于启蒙计划的教育工作人员于2022年1月31日前接种中共病毒疫苗。
 
-据悉，与东南亚其他国家紧闭国门、试图降低中共病毒传播的做法刚好相反，印尼政府已于2022年1月宣布，该国将缩短入境旅客的隔离检疫时间。
+对此，在美国24个州起诉卫生与公众服务部长哈维尔-贝塞拉的案件中，路易斯安那州门罗地区法官特里-道蒂对此项疫苗强制政策发出了初步禁止令。
 
-参考链接：[群體免疫？印尼近九成民眾有新冠抗體 其中70%沒打疫苗](https://udn.com/news/story/121707/6011087?from=udn_ch2cate7225sub121707_pulldownmenu_v2)
+道蒂法官表示，美国目前已经走到了十字路口。此时，如果民众继续允许行政部门篡夺立法部门制定法律的权利，那么美国就不再是民主国家。 道蒂强调，中共病毒疫情不是美国放弃三权分立的借口。
+
+与此同时，美国最高法院也正在考虑阻止加州一个学区针对当地学生实行的中共病毒疫苗强制接种要求。
+
+参考链接：
+1）[联邦法官阻止拜登政府针对启蒙计划（Head Start）的疫苗强制令](https://gnews.org/zh-hans/1821714/)
+2）[美联邦法官叫停“启蒙计划”强制疫苗令](https://www.aboluowang.com/2022/0104/1691293.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
-编辑：飞虹
+总编：Ivy001 
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,6 +36,10 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

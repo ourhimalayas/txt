@@ -2,35 +2,45 @@
 ---
 
 
-## 美单日新增病例破百万 超去年同期高峰4倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829316/)
+## 美国和北约将与俄罗斯就俄乌紧张局势举行系列外交谈判
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1829484/)
 
-作者：香草山佛教部-文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
+#### 撰稿：日本东京方舟农场 北极
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9B910FAD-F970-4DB4-BF11-CE36E64ED4D3.jpeg)资料照片：一名俄罗斯士兵在俄罗斯南部地区参加演习（图片来自《美国之音》）
 
-评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
+据《美国之音》中文网1月6日报道，为缓和俄罗斯与乌克兰之间日益增加的紧张局势，美国、北约和俄罗斯将在下周举行一系列外交谈判。
 
-参考链接： 
-1）[https://gettr.com/post/plxoc792a3](https://gettr.com/post/plxoc792a3)
-2）[Breaking: Despite Shutdowns, Lockdowns, Masks, Vaccines, Boosters, Double Maskers… New COVID Cases Top One Million for First Time Ever](Despite%20Shutdowns,%20Lockdowns,%20Masks,%20Vaccines,%20Boosters,%20Double%20Maskers…%20New%20COVID%20Cases%20Top%20One%20Million%20for%20First%20Time%20Ever)
+近日来，俄乌两国边境地区的民族矛盾日益尖锐。乌克兰一心想加入北约谋求发展，导致俄乌两国局势呈现剑拔弩张的态势。俄罗斯目前在乌克兰东部边境集结了10万军队，以美国为首的西方盟国强烈担心俄罗斯入侵乌克兰这个前苏联共和国。俄罗斯则要求北约拒绝接受乌克兰加入，同时督促西方盟国撤出在欧洲中部和东部地区的军事部署。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Jack Li文阳 
-编辑：童谣  
-校正/发稿：谐趣园
+```
+为缓解当前这一地区战争一触即发的紧张局势，美国、北约和俄罗斯计划在下周举行一系列外交谈判：
+1月10日（星期一），美俄两国官员将在日内瓦举行公开双边安全会谈；
+1月12日（星期三），北约—俄罗斯理事会会议计划在布鲁塞尔举行；
+1月13日，举行扩大会议，会谈将继续以欧洲安全合作组织的形式举行。该组织成员包括美国、北约盟友以及俄罗斯、乌克兰和其他前苏联共和国。
+```
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+而在上述会议举行之前，本周五（1月7日），北约30个成员国的外交部长将提前举行视频会议，为下星期与莫斯科的会谈做准备。
+
+本周二，美国国务院发言人普赖斯在谈及下星期与莫斯科的会谈时表示，美国希望美俄双方 “确定寻求外交道路解决中心议题”。美方表示，外交道路可以降低双方的紧张关系，进一步建立信心，通过不同层面的接触来讨论议题。
+
+俄罗斯外交部女发言人扎哈罗娃（Maria Zakharova）证实，俄罗斯官员将参加在布鲁塞尔举行的北约-俄罗斯理事会的会议。据了解，俄罗斯副外长利亚布科夫（Sergei Ryabkov）和其他俄罗斯高级官员预计将出席这次会谈。而在此之前，他们还将在日内瓦与美国副国务卿谢尔曼（Wendy Sherman）会晤。
+
+美国总统拜登此前曾多次警告俄罗斯总统普京，如果俄罗斯对乌克兰发动攻击，美国和盟国将对其施加巨大的经济制裁，其规模将远远超过对俄罗斯在2014年吞并乌克兰的克里米亚半岛时所施加的制裁。
+
+虽然拜登总统多次发表声明表示，拒绝任何情况下的军事回应，但在俄乌关系紧张期间，美国一直在向乌克兰调遣小型武器和弹药以及“标枪”型导弹，而美国称，这种导弹只是用来防御。
+
+参考链接：[https://www.voachinese.com/a/nato-russia-talks-on-ukraine-20220104/6383247.html](https://www.voachinese.com/a/nato-russia-talks-on-ukraine-20220104/6383247.html)
+
+* * *
+
+素材采编：北极
+
+编辑： 青衣青青
+
+发布：miumiu
 
  
 
