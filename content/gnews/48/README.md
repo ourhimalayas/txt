@@ -2,26 +2,41 @@
 ---
 
 
-## 日美成功举行“2+2”会谈 强化合作对抗中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831712/)
+## 全球货币超发股市虚涨，中共国的房地产是以圈钱为目的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1831864/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-374.png)[图片来源](https://search.yahoo.co.jp/amp/s/www.sankei.com/article/20220107-4UBTJFS3HJO63GOOZBPGPGE3UU/%3FoutputType%3Damp%26usqp%3Dmq331AQIKAGwASCAAgM%253D)
-7日上午，日美两国政府举行了外交和国防部长(2+2）线上会议。会后联合声明中，双方表示“决心继续使同盟合作现代化并进一步加强共同協作能力”。日本强调将考虑采用所有必要方式加强国防，并表示在拥有攻击敌方基地的能力方面，愿与美方进一步商讨。美日双方承诺，在紧急情况下，将积极推进联合作业。
+**郭文贵先生：**全世界的总市值，股市大家一定要有一个概念，就是107万亿到115万亿美元，现在全球的官方，全球的官方已经明确的说，这个共产党，共产党已经在全世界印发的货币，和美国政府，还有欧元总印发的总货币，已经226万亿，事实上是大概260万亿，就是全球的一年GDP，就印刷出来了，你在看股市的时候他就不值钱了。全球的GDP才多少钱是不是，才100多万亿。全球的总股市市值才多少钱呐，所以说在这个股市，在这个印发货币面前，基本什么概念呢？
 
-出席会议的有日本外相林芳正、国防部长岸信夫，以及美国国务卿布林肯和国防部长奥斯汀。这是自岸田政府上台以来的第一次正式会谈。
+就是爱米粒兜里边儿有10块钱，突然间她可以能花，就说不是多花了20块钱， 由于超印发的货币和流通性，她可能是可以多花十倍。你在看那个股市的时候，已经说实在话他就太小了，真的像就像一个大河当中的一个小方舟一样，所以全世界的股市都是虚涨的。
 
-在联合声明中，双方批评了中共国在东海和南海的霸权行径。在会上，布林肯点名批评中共国和俄罗斯在陆海、太空和网络方面的行为违反国际规范；中共国的挑衅行为继续加剧了台湾海峡、东中国海和南中国海的紧张局势。另，俄罗斯增加在乌克兰边境的兵力，不仅威胁到乌克兰的主权和领土，而且还威胁到欧洲的和平与稳定；朝鲜的非法核·导弹开发构成了持续的威胁。
+然后再看中国房地产的时候才知道，中国房地产官方承认60万亿，事实上将近100万亿美元的房地产，炸掉一个海南的一个岛是什么呢？几乎连零头都不是，他为什么要炸岛呢？这完全是政治。
 
-林外长表示双方必须以持续而有效的方式应对当前及未来的挑战。并表明将不断加强美日同盟合作，以实现自由开放的印太地区。
+中国的房地产是什么房地产？大家永远记住中国房地产是圈老百姓钱的房地产，跟西方房地产完全不一样。为什么我们老说房地产，外国的房地产真是拿来住的，中国的房地产真是拿来是骗老百姓钱的。
 
-布林肯表示，双方就拦截高超音速武器和发展太空能力方面，将签署一项新的研究开发协议。
+编辑整理：海贼王M.D.LUFFY；
 
-信息源：[日米2プラス2「同盟を絶えず現代化」　新たな共同研究の意向も](https://news.yahoo.co.jp/articles/3dd68c4c8f8bcd66c574891b6ca8e27ae12b6cb2)
+G-News发布：海贼王M.D.LUFFY；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

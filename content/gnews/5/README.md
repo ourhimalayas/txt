@@ -2,26 +2,25 @@
 ---
 
 
-## 东京连续两日中共病毒确诊病例激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833002/)
+## 世界网球名将因疫苗豁免被澳洲拒绝入境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833003/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月6日，据日本媒体消息显示，2022年新年伊始，日本的中共病毒感染病例数再次激增。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.14.42.png)
-数据显示，在人口集中的东京都，周四当天的新增感染者人数达到641人，是上周四的10倍，也是自2021年9月18日以来当地单日确诊病例数首次超过600人。 其中，接种过两剂中共病毒疫苗的感染者超过总数的一半，而仅有四分之一的感染者未接种疫苗。此前一天，东京地区接种过中共病毒疫苗后仍旧感染的患者超过两百人，也占据了当日总感染数的二分之一。
+当地时间1月5日，曾公开批评强制疫苗政策的世界男子网球名将诺瓦克·德约科维奇在墨尔本机场被澳大利亚边境官员拒绝入境。当地官员声称，德约科维奇的中共病毒疫苗豁免不被澳洲政府认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.14.49.png)
+德约科维奇随后表示，他本人已经获得了由免疫学、传染病学和全科医生组成的医疗小组开具的中共病毒疫苗医疗豁免证明，该证明也符合澳大利亚免疫技术咨询小组所规定的条件。然而，当德约抵达墨尔本机场时，他却被当地武装警察长时间看守在一个隔离室中等待入境许可，但是，维州政府最终拒绝为德约的签证担保。
 
-分析人士对此指出，东京都这两天公布的数据可以有力地证明，接种中共病毒疫苗，特别是接种多剂疫苗后感染中共病毒的风险远大于没有接种过疫苗的人群。
+经边境官员证实，德约的签证目前已经被取消，此外，他将于本6日被遣返。
 
-参考链接：
-1）[東京都、新たに641人感染　7日平均で前週の4.5倍](https://www.nikkei.com/article/DGXZQOCC060E90W2A100C2000000/)
-2）[＜新型コロナ・6日＞東京都で新たに641人の感染確認　小池都知事が岸田首相と会談へ](https://www.tokyo-np.co.jp/article/152706)
-3）[東京都、新たに390人感染　7日平均で前週の3倍](https://www.nikkei.com/article/DGXZQOCC050CO0V00C22A1000000/)
+据悉，塞尔维亚总统也紧急召见了该国的驻澳大使。而在未能扭转当前局面后，塞尔维亚总统表示，整个塞尔维亚都与球员德约科维奇在一起。
+
+参考链接：[Djokovic in limbo as lawyers fight Australia ban; mother says he is ‘prisoner’ in hotel](https://www.reuters.com/lifestyle/sports/exclusive-novak-djokovic-denied-entry-australia-seeking-injunction-stop-2022-01-05/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：文特
-编辑：Kathy文艺
+总编：Irene木木
+编辑：DM
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

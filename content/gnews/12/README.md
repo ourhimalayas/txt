@@ -2,33 +2,58 @@
 ---
 
 
-## 大直播后记：风水和迷信（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1832888/)
+## 日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1832909/)
 
-整理：雅典娜速记组
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Airbnb2022_2.png)图片来源：墨尔本雅典娜农场设计组（614）
-**2022****年1月5日文贵大直播**
+作者：日本方舟农场— Andy5
 
-本来Eric要讲，就是盘古（东西中轴线）啊，但我们三票先生也查出来了，这个（盘古东西中轴线）和昆仑山的秘密，我说你找到了核心啊。还有几个，大家看到了九龙壁，唯一的九龙壁啊，大家你们谁去过啊？你们自己研究研究，九龙壁在历史上是什么时候开始的，为什么叫九龙壁啊？然后，又为什么和盘古是一条线上？还有几个核心没有出来啊。就像我们这个大师，他远在武当山啊，百岁的老人。这个徒弟就跟他说，你看看啊，文贵这个什么盖特呀，怎么样。他们说可以给我整个祈福呀、洒水啊、山上还立了什么什么的啊，我都是笑一笑啊。这个时候（按照）共产党说就是迷信。
 
-但是共产党说迷信，你一定要搞清楚啊！无知的人所理解的，你生理之外，和超出我们生活自然现象的东西，你那真的叫迷信。严格讲叫做弱信。就是因为你弱智，也看到个老鼠交配，你觉得老鼠怎么会交配？老鼠在上面，应该是跟我一样是吧？一个在上面，脸朝上啊，那是因为你没见过，是吧？你觉得老鼠应该那样啊，那是你见得少。你没有资格解释，什么叫迷信和不迷信。
 
-共产党是一个国家的政党，杀过上亿的人，还有征服全世界（的计划）。他对这个迷信的理解，那是经过无数次试水之后。什么脸朝上、脸朝下都弄明白了，是前后姿势都懂的，是吧？他知道人类之外的有各种神秘的力量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
 
-这种力量，它是不需要你获得的，它不需要你们知道，我奴役你，我怎么能让你知道呢？在监狱里关着的人，你怎么知道还有门的存在呢？时间长了，你不能知道门的存在，你知道门的存在就叫迷信。他告诉你，根本没有门，这就是你的一切。
 
-实际上共产党早就知道在我们人间有门，就像张高丽说，“宇宙无限大，地球是一粒沙”。他知道门之外还有大门，还有无限的大门，是吧？那么共产党在过去经历过无数次的传奇，包括习仲勋造新四方面军救毛泽东；包括到延安，延安塔下的秘密；包括毛泽东啊，相信江青的水多，对他有利的，张玉凤的水更多啊。所谓的一摸就来，就差了那个水枪是吧，“擦擦擦”的小孩儿水枪喷了。毛主席喜欢这一套，是吧？他觉得男女之欢就是水嘛。他知道男女之间有所谓的属相和运气。
 
-发布：Mttfly
 
-**
-****更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据日本媒体1月6日报道，日本首相岸田文雄与澳大利亚首相莫里森已经共同签署了《访问部队地位协定》也就是RAA协定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/付出行动-1.jpg)
+该协定涉及：增加两国实施共同训练的频率、简化携带武器到对方国家的申请手续、保证两国之间军队进入对方国家后的地位等内容。此协定将加深日澳两国在安全保障和国家防卫上的合作。
+
+据悉受日本国内疫情扩大的影响，岸田首相取消了访问澳洲的计划，将跟澳大利亚的会晤改在了线上举办。目前两国首脑正在讨论针对中共在海洋上的扩张以及北朝鲜核问题、涉及日澳共同关心的地区安全问题，并讨论解决这些问题所需要的措施。
+
+参考来源：
+
+1.[https://www.excite.co.jp/news/article/TBSNews\_4442146/](https://www.excite.co.jp/news/article/TBSNews_4442146/)
+
+2.[https://www.jiji.com/jc/article?k=2022010600811&g=int](https://www.jiji.com/jc/article?k=2022010600811&amp;g=int)
+
+3.[https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K](https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K)
+
+4.[https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/](https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
+
+
+
+
 
  
 

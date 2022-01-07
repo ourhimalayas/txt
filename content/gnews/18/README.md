@@ -2,36 +2,66 @@
 ---
 
 
-## 大直播后记：关于盖特（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1832741/)
+## 阴谋论？阿根廷生物学家：接种新冠疫苗出生的婴儿是一种新的人类类型
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1832752/)
 
-#### 整理：雅典娜速记组
-编辑：文泓
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/1-74.png)圖片來源：墨爾本雅典娜農場設計組（614）
+作者：银河勇气星—骄子
 
 
-我再告诉你们大家，盖特的价值和盖特的整个的（前景）绝不是你今天讲那么（样）。你们今天只是就事论事啊，严格讲，是用眼睛看到你手掌之内的东西。盖特和GTV未来和所有的价值绝对是一个金钱不能衡量的，它是一个叫做,昨天很多美国人说的话，**是改变游戏规则的一个社交平台**，**而且不仅是一个社交媒体，还与金融、自由、民权，甚至是信仰紧密相关的！**你看看，盖特到今天的数据，（用户）使用活跃度96%。推特上是80%都是垃圾信息；脸书上简直都成了商品垃圾信息，而且它的原罪是无法跳跃的。而你看看盖特，发一个是一个、发一个是一个。除了七哥偶尔发一点黄色片子之外是吧，其他都是有意思的、都是有价值的，是不是啊？行了，我别说了，说多了你们该水多了啊。现在你接着说吧，盖特价值无限体现了新中国联邦的力量。
 
-再补充说一点，这个媒体有多大的力量啊，大家感受到吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-你七嫂子从来不看我直播，就是上次大直播她在那看，结果我就说出了蓝色代表着死亡和咱们新中国联邦旗的事情。到第2天你嫂子坐那儿一本正经严肃地说，你看，你这个直播当中你说了，让我一天不舒服。
 
-真把我吓一大跳哟。我说，这咋了？她这是很严肃认真的，她说，你的说法不对呀，我是去年6月4号回来以后，在船上我帮你挂上这个旗，在这挂上这个旗，我如果不喜欢，我肯定会跟你说的。最近，我大概20天前选一个家具的料子颜色，就那个蓝色。你现在说是咱们老家是那个所谓的死亡颜色，可我从来没听说过你的。这是打猎去了
 
-你七嫂看了一次直播就发现了（媒体）对她的伤害，让她一天不舒服。啊，弄得我也真是脸红脖子粗的。结果我跟咱们联盟委员会开会，我说了刚跟你七嫂的事情，弄得我晚上真的一晚上在床上滚了好几次，我就觉得不舒服了。因为你嫂子这第一次看直播就受到了伤害，而且让她一天不舒服。
 
-现在你知道（盖特）这个媒体，咱们爆料革命的力量有多大吗？你嫂子仅仅（接触）一次，我们36年的夫妻感情就感受到一次重大伤害。所以大家（看）这个媒体的力量有多大？所以，我们绝对不能胡说八道。
 
-资料来源：郭先生GTV和盖特直播视频。
+阿根廷分子生物学家博士David Nonis在加州从事基因编辑技术研究，2021年10月他在阿根廷私人电视台Canal TLV1上接受了令人震惊的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/反对假疫苗.png)
+采访中他报道了那些在受孕前接种新冠疫苗的父母生育的婴儿，这些婴儿表现出了令人担忧的特征：
 
-发布： tianzhihuan
+类似的面部结构
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+-非常不寻常的眼睛颜色，眼睛呈杏仁状
+
+-类似的头骨结构
+
+-视力显著改善（他们似乎几乎在出生后就能清楚地看到）
+
+-加速发育，3个月后能够行走，这是严重的过早行走
+
+-奇怪、专注的目光，但伴随着某种情感分离
+
+David Nonis博士说人类幼崽的基因突变是随机的，而注射新冠疫苗后出生的婴儿出现如此多的同质化的特点，可能和新冠疫苗mRNA导致的父母基因变异有关。此种变异是指：这是一种DNA结构改变的新的人类类型。虽然这些婴儿还在幼年期，未来长大后会如何，还尚待观察。担忧因此而生，过快发育是否会导致这些婴儿过早地衰老？寿命的缩短？他们的这种基因会否遗传给再下一代？
+
+参考来源：
+
+1.[https://tagesformat.wordpress.com/2022/01/05/mutationen-bei-post-vakzinaren-covid-neugeborenen-die-ersten-genmutierten-babys/](https://tagesformat.wordpress.com/2022/01/05/mutationen-bei-post-vakzinaren-covid-neugeborenen-die-ersten-genmutierten-babys/)
+
+2.[https://youtu.be/W3Zj9bfa0wY](https://youtu.be/W3Zj9bfa0wY)
+
+3.[https://odysee.com/@canaltlv1:2/Contracara-Nonis.mp4:0](https://odysee.com/@canaltlv1:2/Contracara-Nonis.mp4:0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+
+
 
  
 

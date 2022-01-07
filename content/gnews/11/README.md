@@ -2,58 +2,40 @@
 ---
 
 
-## 日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1832909/)
+## 大直播后记：风水和迷信（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1832930/)
 
-作者：日本方舟农场— Andy5
+整理：雅典娜速记组
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Airbnb2022_2.png)图片来源：墨尔本雅典娜农场设计组（614）
+**2022年1月5日文贵大直播**
 
+毛知道共产党所谓的不能进故宫。算命的说，你要先进香山，然后最好1949年几月几号几时几点，而且绝不进故宫。他（毛）就不进故宫，就在中南坑。然后说毛主席是龙嘛，毛主席要在水池边，要有水嘛。（所以）他天天在游泳，他天天泡着水，里边就是水，对他好啊。是不是找女的水多了，现在游泳。
 
+现在习近平直接搬进去了，我就住在毛泽东旁边，我也是龙啊。所以中南坑就两泳池，一个公众的、一个是他的。游进去了吗？这都是迷信嘛！还有一个，为啥北京定都峰还要控制啊？我们海东兄弟去过，昭颖妹妹也去过，就是后来被海延，杨得志的儿子控制的定都峰。东西长安街，南北长整个长城上面是不是南北中轴线啊？中轴线上的北部的北都峰都是共产党军队控制的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
+他相信啊，金木水火土五行啊，宇宙地球银河系是吧？他也知道阴阳，他知道属相甲子是吧，他知道整个人类存在着，有阴阳有黑白天。
 
+知道这个秘密的叫什么？叫风水。误解这个秘密的叫迷信，他让你所有人都误解真正的人类大自然的密码，还是让你永远找不到，不让你知道关在你旁边监狱那道门。所以说大家别忘了风水和迷信是两回事儿，迷信是你被迷信者，你就成了牺牲品。你打开自然密码的、知道真相的那叫风水。
 
+你要不相信风水，就很简单，我再说一遍，你拿任何一个刀子就对你自己的这个额头中，拎一个锐点的铅笔都行，你对10秒试试。你看着你什么感觉。第二个，如果你觉得还不信，你让家人在你不知道的情况下，拿个刀子对着你自己的后脑勺，你看有没有感觉，你一定会有感觉。
 
+什么叫形影不离呀？什么叫背后长眼呢？如果你再不相信，你就到坟墓里睡上两晚上试试。看是在你家床上睡舒服，还是坟墓的舒服。甚至你找人把你放到一个完全不知道的坟墓，把坟墓变成花园，你去睡试试。
 
+你一定要记住我们人类是有灵魂的，我们就在一个梦境中。你在床上挣扎的时候，在做梦中。在当人走的时候，实际没有死，你回到了梦之前的另外一个身体。
 
-据日本媒体1月6日报道，日本首相岸田文雄与澳大利亚首相莫里森已经共同签署了《访问部队地位协定》也就是RAA协定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/付出行动-1.jpg)
-该协定涉及：增加两国实施共同训练的频率、简化携带武器到对方国家的申请手续、保证两国之间军队进入对方国家后的地位等内容。此协定将加深日澳两国在安全保障和国家防卫上的合作。
+**往期回顾：**
+[大直播后记：风水和迷信（一）](https://gnews.org/zh-hans/1832888/)
 
-据悉受日本国内疫情扩大的影响，岸田首相取消了访问澳洲的计划，将跟澳大利亚的会晤改在了线上举办。目前两国首脑正在讨论针对中共在海洋上的扩张以及北朝鲜核问题、涉及日澳共同关心的地区安全问题，并讨论解决这些问题所需要的措施。
+发布：Mttfly
 
-参考来源：
-
-1.[https://www.excite.co.jp/news/article/TBSNews\_4442146/](https://www.excite.co.jp/news/article/TBSNews_4442146/)
-
-2.[https://www.jiji.com/jc/article?k=2022010600811&g=int](https://www.jiji.com/jc/article?k=2022010600811&amp;g=int)
-
-3.[https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K](https://jp.reuters.com/article/日豪首脳がテレビ形式で会談-安保共同宣言の早期更新で一致-idJPT9N2T102K)
-
-4.[https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/](https://www.yomiuri.co.jp/politics/20211226-OYT1T50144/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-1.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
-
-
-
-
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

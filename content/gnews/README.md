@@ -21,53 +21,53 @@
 ### [美国最高法院大法官 有可能 终止拜登疫苗强制令吗？](/content/gnews/2/README.md)
  ` MilesGuoLivePPT`
 
-### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/3/README.md)
+### [中共赴哈萨克斯坦索金不成 制造暴动](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [01/07/22 香港快讯 《光明顶》主持鲍伟聪离港：香港面目全非，传媒首当其冲](/content/gnews/4/README.md)
  ` 英喜-粵語組`
 
-### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/4/README.md)
+### [世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [东京连续两日中共病毒确诊病例激增](/content/gnews/5/README.md)
+### [东京连续两日中共病毒确诊病例激增](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [纽约市长考虑对城市雇员强制施打加强针](/content/gnews/6/README.md)
+### [纽约市长考虑对城市雇员强制施打加强针](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [mRNA疫苗即病毒 新中国联邦用盖特照明世界](/content/gnews/7/README.md)
+### [mRNA疫苗即病毒 新中国联邦用盖特照明世界](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [世界乱象是长期和平滋生的无信仰恶果](/content/gnews/8/README.md)
+### [世界乱象是长期和平滋生的无信仰恶果](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [生活中的易经](/content/gnews/9/README.md)
+### [生活中的易经](/content/gnews/10/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [大直播后记：风水和迷信（二）](/content/gnews/10/README.md)
+### [大直播后记：风水和迷信（二）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保](/content/gnews/11/README.md)
+### [日本和澳大利亚正式签署《访问部队地位协定》，并提议共同加强安保](/content/gnews/12/README.md)
  ` GTV News Talk`
 
-### [大直播后记：风水和迷信（一）](/content/gnews/12/README.md)
+### [大直播后记：风水和迷信（一）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“农民”的遐想](/content/gnews/13/README.md)
+### [“农民”的遐想](/content/gnews/14/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美海军首次在西太海外基地部署最新型侦察无人直升机](/content/gnews/14/README.md)
+### [美海军首次在西太海外基地部署最新型侦察无人直升机](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共国的航天工业是被吹上天的](/content/gnews/15/README.md)
+### [秘翻在线：中共国的航天工业是被吹上天的](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [讨共檄文](/content/gnews/16/README.md)
+### [讨共檄文](/content/gnews/17/README.md)
  ` STHK`
 
-### [阴谋论？阿根廷生物学家：接种新冠疫苗出生的婴儿是一种新的人类类型](/content/gnews/17/README.md)
+### [阴谋论？阿根廷生物学家：接种新冠疫苗出生的婴儿是一种新的人类类型](/content/gnews/18/README.md)
  ` GTV News Talk`
-
-### [大直播后记：关于盖特（三）](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [【中日财经爆】红杉资本与红杉中国切割！美国投资全面撤离中共国](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -129,44 +129,44 @@
 ### [西媒头条 — 第148期](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗大灾难](/content/gnews/39/README.md)
+### [喜交所被报道称为“自给自足的加密货币生态系统”](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗大灾难](/content/gnews/40/README.md)
  ` MilesGuoLivePPT`
 
-### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/40/README.md)
+### [COVID-19疫苗设计的重大缺陷：自身免疫攻击引致的自我毁灭](/content/gnews/41/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/41/README.md)
+### [01/07每日播报|社媒消息：蓬佩奥 杰森米勒](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/42/README.md)
+### [意大利学生：意大利任何形式的自由和人权都不复存在](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/43/README.md)
+### [关于辉瑞新冠病毒药物你应该知道的一些事情](/content/gnews/44/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/44/README.md)
+### [美海军开始开除拒绝接种中共病毒疫苗的现役军人](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/45/README.md)
+### [郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/46/README.md)
+### [01/07每日播报｜新闻简讯:朝鲜不参加北京奥运会 西安封城物资奇缺 辉瑞的噩梦](/content/gnews/47/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/47/README.md)
+### [全球货币超发股市虚涨，中共国的房地产是以圈钱为目的](/content/gnews/48/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/48/README.md)
+### [日美成功举行“2+2”会谈 强化合作对抗中共](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/49/README.md)
+### [乔·罗根和罗伯特·马龙博士访谈的十二大要点](/content/gnews/50/README.md)
  ` 首尔天池农场`
 
-### [朝鲜：因全球疫情原因将不参加2022北京冬奥会](/content/gnews/50/README.md)
+### [朝鲜：因全球疫情原因将不参加2022北京冬奥会](/content/gnews/51/README.md)
  ` 首尔天池农场`
-
-### [盖特拿下苹果应用商店排名第一](/content/gnews/51/README.md)
- ` 纽约香草山MOS02`
 
 ### [意大利每日新增感染中共病毒首次超过20万例](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
