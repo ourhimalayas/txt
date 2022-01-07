@@ -2,87 +2,26 @@
 ---
 
 
-## GETTR、GTV是唯一能拯救中国人的平台
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834106/)
+## 文贵爆料1.7.2022 欧米炕高传染慢性杀人 疫苗危机下防范意识最重要
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1834156/)
 
-[https://gtv.org/video/id=61d8530edffab035958be3ab](https://gtv.org/video/id=61d8530edffab035958be3ab)
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-8.33.05-AM.jpeg)图片来源：GTV & GETTR
+郭文贵先生在2022年1月7日大直播中向战友们披露，最近有多位战友感染了中共病毒，包括木兰传奇的丈夫。这次被传染的战友都是平时很注意防护很小心谨慎的，仍然被感染，说明现在传播的病毒欧米炕是极具传染性的。
 
-**郭文贵
-Miles Guo**
+郭先生提到科学家嘱咐他这次直播一定要告诉大家，不要以为感染了欧米炕的人都能缓过来，没症状，这个新变种对人身体的作用一点都不比之前的变种病毒少。
 
-Isobel Yeung （的采访）他说这绝对是当年希特勒、戈培尔的宣传水平
-For Isobel Yeung’s interview, he said that this was definitely the level of propaganda of Hitler and Goebbels back then
+科学家指出这个欧米炕是慢性杀人，对机体的损害同样是很可怕的。科学家强调新变种同样是生化武器，任何生化武器元素进入身体里边，都会让人随时死掉，慢死、早死或者得癌症死。它的概率是极高的。
 
-她不可能自己一个人做到，绝对是RICO法案，说明了什么，兄弟姐妹们
-She can’t do it alone, it’s definitely RICO Act gang collaboration, what does it say? brothers and sisters
+郭先生提醒战友们务必定要小心现在的病毒，现在的病毒情况真的是很可怕。
 
-媒体太厉害了，共产党能花一年的时间让HBO、VICE这样的魔鬼的媒体
-The media is too powerful, the Communist Party can spend a year to make the devil’s media like HBO and VICE
+另外，郭先生还强调现在的mRNA疫苗就是病毒，刺突蛋白会脱落会传染，让人没有出门就被感染。我们大家要意识到，被感染的人绝大多数都是打了疫苗的人，战友们就是生活在打了疫苗的人群中。
 
-来黑我们新中国联邦，而且处心积虑，你们竟然不传播
-come to slander our New Federal State of China, and it’s deliberately that you don’t spread it
+郭先生提醒战友们一定要提高防范意识，一定要准备好药，疫苗灾难下防范意识比解药还重要。
 
-一星期就阳痿了，如果你们没有GTV，没有盖特，你就真的闭嘴了
-It’s already over in a week, if you don’t have GTV, you don’t have Gettr, you really shut up
+参考链接：[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
 
-你闭嘴的代价是什么呀，你以为唐平，在你那王子岛上你就安全了
-What is the price you pay for shutting up, you think Tang Ping that you will be safe on your Prince Edward Island
-
-烧你家房子，烧你100次，不是烧你一次
-Burn your house 100 times, not burn you once
-
-你以为你这爱米粒在台湾就安全了，台湾人出都出不来, 出来就是被认为是世界民主的威胁
-Do you think that you Emily is safe in Taiwan? Taiwanese can’t come out, coming out is considered a threat to world democracy
-
-千羽你在加拿大, 你走到大街上是人人喊打的人
-Qianyu, you are in Canada, you are the one who was shouts and beats on the street
-
-娜娜酱你在土耳其我告诉你, 真的是随时都想杀你，奸杀你
-Nana Jiang, you are in Turkey, I tell you, it’s really want to kill you at any time, rape and kill you
-
-我不跟你开玩笑正义小Sarah
-I’m not kidding you justice little Sarah
-
-Eric你个湿男, 你别湿别人，别人湿你去吧，在日本国那家伙不把你给轮奸了吗
-Eric, you are an indecent person, they can do anything to you, they could rape you in Japan?
-
-这个家伙是很邪恶的Isobel Yeung，你看威廉还笑, 威廉
-Isobel Yeung this guy is very evil, you see William still laughing, William
-
-就你那小样被鸡奸你1万回，我跟你说这个事儿会发生种族歧视，种族灾难，种族大屠杀
-just like you that you could get sodomized 10,000 times, I told you that there will be racism, racial disaster, genocide
-
-一定想到盖特是拯救中国人的平台
-You must think about that Gettr is a platform to save the Chinese people
-
-一定想到G-TV是唯一能拯救中国人的平台
-Must think that G-TV is the only platform that can save the Chinese people
-
-他比任何经济价值都重要
-It is beyond any economic value
-
-你看明白了吗？兄弟姐妹们
-Do you see it? Brothers and sisters
-
-* * *
-
-Date: 01/06/2022
-原视频标题: GETTR、GTV是唯一能拯救中国人的平台
-GETTR and GTV are the only platform that can save the Chinese people
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pmn0jye100**](https://gettr.com/post/pmn0jye100)
-任务编号：3429
-视频时间段 : 0:00-1:34
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：Shifter
 
  
 

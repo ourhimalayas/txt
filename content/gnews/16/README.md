@@ -2,54 +2,31 @@
 ---
 
 
-## 哈萨克斯坦关闭网络，比特币暴跌
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1834122/)
+## 七哥谈独裁（2022-0-05摘录）
+` 温哥华英里农场 HIMALAYA VANCOUVER MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1834169/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61d6af062030277daf1db609-1.jpg)
-前苏联共和国哈萨克斯坦是世界第二大挖矿中心，因全国范围内的反政府抗议活动，正面临重大的网络中断问题。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-由于世界第二大挖矿中心哈萨克斯坦的抗议活动仍在继续，比特币出现了大幅下跌，因为那里的网络被关闭，迫使当地虚拟币矿工关闭他们的设备。
+来源：郭先生2022-01-05直播10：15：30摘录
 
-全球领先的加密货币已跌至42786美元，这标志着日下跌近8.5%，延续上一交易日录得的损失。
+现在所有的独裁都认为，死人是独裁和国家强大的必然基础。所以说你看那西安死人的时候，唐平又来水多了。是吧！是你水太多了，是不是！你还需要多点双修。他们认为你这种笑容和你对我的听从，你的死亡就是我的祭品。希特勒当时明确地说，德国人死掉一半，我们才能胜利。当时的墨索里尼在意大利狂妄到那个程度，竟然是被抓到监狱，是德国希特勒把他救回去。他又回来，你看到那种脸那种流氓样，你看跟王岐山有异曲同工之妙，得意地忘形，但是那时候得意，他孙女现在还从政呢。他说过，意大利人死掉一半能让意大利能成为强大。当时的日本天皇是什么情况？整个日本人全死了也可以让日本强大，都没问题的，愿意做。可悲的事情，冬奥会又是一个现代版的重复，他将牺牲掉很多人，他认为死人是必然的，谁不愿意死你就别相信他，而且冬奥会大家记住，他没有任何希望。据我所知啊，最后去了几个人又去不了了，各种原因我就别说，一说又爆料了太大啊。所以冬奥会是上天送给我们的礼物。
 
-跌幅发生在网络数据提供商NetBlocks的报告，“从2022年1月4日星期二晚上开始，哈萨克斯坦的网络出现重大中断，并在星期三下午发展到全国范围的通信中断”。据报道，哈萨克斯坦的正常化网络连接率下降到2%。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-周日，在政府取消能源价格上限的决定生效后一天，导致液化石油气的成本增加了一倍，随后哈萨克斯坦西部爆发了动乱。
+**关注我们**
 
-卡西姆·约玛特·托卡耶夫（Kassym-Jomart Tokayev）总统解散了政府，并承诺将恢复低的燃料价格。然而，这一宣布没有什么效果，反而抗议游行在这个前苏联国家的最大城市蔓延开来。据报道，为了减少对汹涌的动乱的报道，哈萨克斯坦当局切断了网络。
+Discord 账号
 
-比特币目前面临的其他不利因素包括美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并延续了比特币的损失。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**简评：**
+Gettr 账号
 
-据新中国联邦郭文贵先生的大直播中说到，哈萨克斯坦动乱，是王毅到哈萨克斯坦要回100吨黄金，被哈国总统骂走，王毅刚走，哈国就动乱了。可以看出，哈政府取消能源价格上限的决定，只是动乱的一个引子。
-
-中共策划的动乱，表面上都是开始于民众的和平抗议，期间从中做梗而使动乱升级。独裁政府的其中一个明显标志是，为了掩盖动乱的实况和真相流出而采取断网。断网后，网络连接率连基本的电话通讯都不能维持。由于比特币依赖大量网络计算能力，还有其不受政府和中央银行的监管，在任何大事件和变化，比如断网的情况都会引起其价值巨大波动。
-
-中共不仅祸国殃民，其蓝金黄和革命输出，亦导致其他国家政局动荡，置无辜百姓于危机中。
-
-新闻链接：[Bitcoin dives after Kazakhstan kills internet](https://thepressunited.com/updates/bitcoin-dives-after-kazakhstan-kills-internet/)
-
-*翻译/简评: JS*
-
-*PR：感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

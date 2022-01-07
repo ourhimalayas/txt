@@ -2,56 +2,193 @@
 ---
 
 
-## 彼得·麦卡洛博士与安·范德斯蒂尔讨论Omicron变体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834020/)
+## 2021年、2022年是人类命运的分水岭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834084/)
 
-翻译：Jenny Ball
+[https://gtv.org/video/id=61d8064adffab035958bcec3](https://gtv.org/video/id=61d8064adffab035958bcec3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-12-1.png)原文视频截图
+我觉得爆料革命和新中国联邦
+Yo siento que el Movimiento de Denunciantes y el Nuevo Estado Federal de China
 
-心脏病专家彼得·麦卡洛（Peter McCullough）博士在 1 月 3 日在布莱顿电视台（[*Brighteon.TV*](https://brighteon.tv/)）与安·范德斯蒂尔（Ann Vandersteel）在“钢铁真相”一集中，分享了有关武汉冠状病毒 (COVID-19) 的 B11529 Omicron 变体的多项发现。
+包括人类的命运
+Incluyendo el destino de la humanidad
 
-麦卡洛指出，在南非首次发现的 Omicron 菌株是 SARS-CoV-2 的“变异最高的形式”。
+我觉得2021年、2022年是人类的分水岭
+Pienso que el año 2021 y 2022 son la línea divisoria de aguas de la humanidad
 
-“它无疑是所有各种 [菌株] 中变异程度最高的。受体结合域 (RBD) 周围的突变意味着，病毒在其与人类细胞上 H2 受体的附着点发生了突变。**这基本上使**** Omicron ****不太可能侵入人体**，”他说。
+今天我说了你们就不觉得惊讶了
+Hoy no se sienten asombrados si les digo esto
 
-“病毒像往常一样进入鼻子，它会引起感染，但与其他变体不同，它不会侵入肺部或造成严重后果。你可以看到其他变种在 [他们的] RBD 中什么都没有，这与最初的武汉野生型病毒基本没有变化。”
+如果一年前我说你们(会)觉得我神经病
+Pero si hace un año atrás les hubiese dicho, ustedes pensarán que estoy loco
 
-根据麦卡洛的说法，由于B16172 Delta变体的侵袭性和在高病毒载量下复制的能力，他在使用 B16172 Delta 变体时遇到了更多困难。他指出，[Omicron 的复制速度比 Delta 快 70 倍](https://realscience.news/)，使其能够迅速超越之前在印度首次发现的令人担忧的变体。
+是不是, 夸张、吹牛
+Cierto, exagerado, presumido
 
-心脏病专家警告说，**Omicron现在可以绕过自然免疫**，此前已在完全接种疫苗的个体中发现。他补充说，感染 Omicron 的人会出现非常轻微的发烧。
+我从来没想试图说服过任何人
+Yo nunca he pensado de persuadir a nadie
 
-“它出现在完全接种疫苗的人群中，但它显然也会影响未接种疫苗的人和有了自然免疫的人。这是一种机会均等的比赛，”他说。
+包括你七嫂
+Incluyendo a mi esposa
 
-“顺便说一下，我的患者告诉我，Omicron的感觉就像患者在注射COVID-19疫苗加强剂时的感觉。这不是很有趣吗？ 有些人已经说这是大自然的加强剂，因为感觉就像接种了加强疫苗。” （相关：[专家说 Omicron 是一种“天然疫苗”——不需要更多的注射加强剂](https://www.naturalnews.com/2022-01-03-experts-say-omicron-is-a-natural-vaccine.html)）
+包括我家人, 我从来没有过
+Incluyendo a mi familia, nunca lo he pensado
 
-**为了推广疫苗，避免早期干预治疗**
+因为人的缘分不是你能说服得了的
+Porque la afinidad entre personas no puede ser persuadida
 
-范德斯蒂尔播放了麦卡洛 2021 年 12 月对播客主持人乔·罗根的采访片段。据德克萨斯州的心脏病专家称，他在两个不同的案例中作证说，在美国，**很大比例的 COVID-19死亡是可以避免的。他补充说，使用由众多研究支持的多种药物治疗，将使住院和死亡人数减少 85%。**
+人和人之间的关系
+La relación entre las personas
 
-“在我看来，有意地对早期治疗进行了非常全面的压制，以促进恐惧、痛苦、孤立、住院和死亡。它似乎是完全有组织和有意的，以便为大规模疫苗接种创造接受度，然后促进大规模疫苗接种，”麦卡洛告诉罗根。
+真的不是你用嘴(说)能达到的
+Realmente no se logra con la boca (diciendo)
 
-麦卡洛声称，在美国人中灌输了对COVID-19的恐惧——这促使他们注射mRNA疫苗，并遭受严重反应和死亡。他告诉范德斯蒂尔：“可悲的是，死去的人是我们的长辈。他们可能是整个社会中最沉默、最不被人注意的人。死的不是年轻人，而是老年人。”
+真正的人与人的信任和感情
+La verdadera confianza y sentimiento entre las personas
+绝对不是嘴能说到的
+No se dice con la boca
 
-“**疫苗会导致刺突蛋白的产生不受控制**。这是中国武汉实验室设计的一种蛋白质，采用**功能获得研究技术**，可以变得更具传染性和致命性。有些人产生的太多，这是致命的。” （相关：[史蒂文·霍兹（Steven Hotze ）博士和麦卡洛博士讨论了刺突蛋白的危险和公共卫生反应](https://www.naturalnews.com/2021-10-15-hotze-mccullough-spike-protein-public-health-responses.html)）
+很多过去的欺民贼, 伪民运
+Muchos matones del pasado, movimiento de la pseudodemocracia
 
-麦卡洛告诉布莱顿电视台的主持人，“**科学觉醒”已经发生**。他说，美国政府和主流媒体对实际 COVID-19 事实的压制促成了这一点。
+他(们)不懂这个道理
+(Ellos) no entienden esta verdad
 
-“美国人想知道世界其他地方是如何处理COVID-19的。我们的美国政府机构没有让我们看到外面的世界。他们希望在没有所谓的“可信新闻推动”（TNI）过滤器的情况下更新 [新闻]。”
+就是人类这个灵性动物
+Es decir, los seres espirituales como los seres humanos
 
-据 BBC 报道，“可信新闻推动”是一个涉及多家主流媒体和大型科技公司的合作伙伴关系，旨在“实时处理虚假信息”。然而，麦卡洛称该计划是“发生在主流媒体的最糟糕的事情”。
+他最终是一定要看行动的
+Él al final lo que ve es la acción
 
-“**他们一致同意压制有关早期治疗和疫苗安全的信息，只是为了盲目宣传疫苗是对 COVID-19的唯一反应**。 美国人看穿了这一点，”麦卡洛评论道。
+最终就是以结果论
+Finalmente toma el consecuencialismo
 
-参考资料：[newstarget][Dr. Peter McCullough discusses omicron variant with Ann Vandersteel – Brighteon.TV](https://www.newstarget.com/2022-01-05-peter-mccullough-ann-vandersteel-discuss-omicron-variant.html)
+这就是动物和植物界的根本不同
+Esta es la diferencia del origen entre los animales y el mundo de las plantas
+
+那么我们在这个地球上
+Entonces, nosotros estamos en este planeta tierra
+
+我们大家面对着一个物质的世界
+Enfrentamos a un mundo material
+
+和一个我们完全无法想像的未知的星空
+Y un cielo estrellado desconocido que ni siquiera podemos imaginar
+
+银河系, 太阳系
+Vía Láctea, Sistema Solar
+
+无限大的宇宙和地球之间一粒沙的关系
+La relación entre un grano de arena del universo infinito y la tierra
+
+我们跟人之间相处的时候实际是最复杂的
+En realidad, lidiar con las personas es lo más complicado
+当今天我们看这个同心同框, 这么多战友的时候
+Hoy en día al ver que estamos en el mismo corazón, marco y con tantos compañeros luchadores
+
+大家能看到有人说话多一点, 有人说话少一点
+Todos pueden ver que algunas personas hablan más, otros hablan menos
+
+有人激动一点, 有人水多一点(或)水少一点儿
+Algunos son más emocionados, otros con más agua o menos
+
+是不是
+Cierto o no
+
+分男女, 分老少, 分长短
+Divididos en hombres y mujeres, jóvenes y viejos, largo y corto
+
+但是大家记住
+Pero todos recuerden
+
+我们心中最大的魔就是分高低
+El demonio más grande en nuestro corazón es dividir lo alto y lo bajo
+
+而且这个高低是谁定的, 是你自己定的
+Además, quién decide esto, tú mismo
+
+都是我们每个人自己的标准去量所有的人去
+Utilizamos nuestros propios estándares para medir a los demás
+
+这个佛教里边, 贪、嗔、痴、慢、疑, 金、木、水、火、土
+En el budismo, la codicia, odio, ignorancia, arrogancia, sospecha, oro, madera, agua, fuego y tierra
+
+我们今天讲了那么多
+Hoy hablamos tantas cosas
+
+我们没讲金, 没讲土
+Pero no mencionamos el oro y la tierra
+
+但是我们的新中国联邦的旗是什么旗
+Sin embargo, cuál es la bandera de nuestro Nuevo Estado Federal de China
+
+我们的蓝色就是蓝色海洋和星空
+Nuestro color azul significa el mar y el cielo estrellado
+
+你知道在中(共)国是不用蓝的
+Sabías que en República Popular de China no se utiliza el azul
+
+中国人什么时候用蓝你知道吗
+¿Sabes cuándo los chinos usan el azul?
+
+头两天你七嫂憋了一年都没说
+En los primeros dos días, mi esposa aguantó durante un año sin decirlo
+
+你七嫂给我留面子
+Era para que no pasara pena
+
+我知道你七嫂要说什么
+Yo sé lo que ella quería decir
+
+就是说那个蓝色的时候
+Hablando lo del color azul
+
+你七嫂说, 哎呀
+Ella dijo, ay
+
+她说在咱老家咱娘说, 这叫什么
+En nuestra ciudad natal, nuestra madre dijo que esto se llama
+
+就是在我们山东老家, 人死了用那个蓝色
+En nuestra ciudad natal Shandong, la gente usa el color azul cuando muere
+
+就是那个蓝色是死亡蓝的意思
+Quiere decir que el color azul representa la muerte
+
+我特能懂, 我啥也没说
+Puedo entender totalmente esto, no dije nada
+因为你七嫂子她是山东人
+Porque mi esposa es de Shandong
+
+她是我的爱人, 跟我一起长大的
+Es mi amor y creció conmigo
+
+但是我就没法跟她解释
+Pero no puedo explicarle
+
+她未来会懂得
+Ella entenderá en el futuro
 
 * * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+日期：01/06/2022
+原视频标题：2021年、2022年是人类命运的分水岭
+El año 2021 y 2022 son la línea divisoria de agua del destino humano
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
+原视频日期：01/03/2022
+原视频网址：[**https://gettr.com/post/plpn8g7caf**](https://gettr.com/post/plpn8g7caf)
+任务编号：KC399（3406）
+视频时间段：00:00-02:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
