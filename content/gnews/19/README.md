@@ -2,24 +2,34 @@
 ---
 
 
-## 【中日财经爆】7-11将台湾标示为独立国家 被中共罚款15万
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831438/)
+## 有声|联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831445/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-368.png)[图片来源](http://news.winshang.com/html/067/4393.html)
-7-11便利店进军中共国市场已经超过10年，但近日7-11北京公司因为其官网地图未绘南海诸岛、钓鱼台等点，且将台湾标示为独立国家，上月遭北京市有关当局责令改正、予以警告，并罚款人民币15万元。
+配音：香草山教育部 – Rose
 
-信用中国网站揭露的行政处罚决定书显示，柒一拾壹（北京）有限公司（7-11北京）遭指其官网展示不完整地图，包括“漏绘”南海诸岛岛点、钓鱼台及赤尾屿；以及阿克赛钦地区、藏南地区国界线标示错误，且“错将台湾省标示为独立国家”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-根据中共当局行政处罚决定书，7-11北京公司入口处也有展示不完整大陆地图的违法状况，包括“漏绘”钓鱼岛、赤尾屿；南海诸岛岛点标示有错误；藏南地区国界线标示有错误、阿克赛钦地区国界线标示有错误。
+台媒报道，美国当地时间1月3日，针对35名特种部队成员的申诉，联邦地方法院法官欧康纳颁发一项临时禁制令，禁止五角大楼对因宗教理由而拒绝接种中共病毒疫苗的特种部队成员执行惩罚。
 
-北京市规划和自然资源委员会东城分局表示，柒一拾壹（北京）有限公司上述行为已违反“地图管理条例”第37条、第15条。根据该条例第49条及第55条，对该公司责令改正、给予警告，共罚款人民币15万元。
+欧康纳法官给出的判词是：本案的海军服役人员，用他们的牺牲，来维护和捍卫美国的自由，中共病毒并没有提供给政府可以废除这些自由的许可。 代表35名原告的法律团队，自由至上协会(First Liberty Institute)，对法官的这项判决非常满意，该协会的法务长贝瑞表示，强迫一名军人在自己的信仰、以及为国家服务之间抉择，违反了宪法和美国的价值观。
 
-消息来源：[7-11北京官网将台湾标示为「独立国家」 大陆当局怒罚65万](https://tw.news.yahoo.com/7-11%E5%8C%97%E4%BA%AC%E5%AE%98%E7%B6%B2%E5%B0%87%E5%8F%B0%E7%81%A3%E6%A8%99%E7%A4%BA%E7%82%BA-%E7%8D%A8%E7%AB%8B%E5%9C%8B%E5%AE%B6-%E5%A4%A7%E9%99%B8%E7%95%B6%E5%B1%80%E6%80%92%E7%BD%B065%E8%90%AC-131505704.html)
+原文链接:[联邦法官颁禁制令 阻止五角大楼惩罚拒绝接种疫苗的特种部队成员](https://gnews.org/zh-hans/1824073/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

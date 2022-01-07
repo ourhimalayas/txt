@@ -2,55 +2,20 @@
 ---
 
 
-## 灭共者之郭氏情报站（九）2022.01.01/2022.01.05
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1831546/)
+## 冲绳县220名医护人员因被感染等原因离岗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831561/)
 
-**出品：纽约香草山设计部**
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-373.png)[图片来源](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
+1月7日冲绳时代报道：冲绳县医疗岗位工作的220名医生和护士因被确定为中共病毒(新冠病毒)感染者或密切接触者，已从医疗岗位撤离。
 
+那霸市和日本中部地区的四家医疗机构由于人员短缺，接连不断发生一些通常病例以及急诊病例的接诊受限，该县规定的保证中共病毒感染者病床的计划受阻。有医疗官员在喊：我们如何才能填补这一空白？这是一场危机。
 
+信息来源：[「どう穴を埋めれば」「危機的」　新型コロナで医療関係者の休職続発　現場から悲鳴（沖縄タイムス） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-
-
-## **郭氏情报站 – 2022.01.01/2022.01.05 文贵大直播总结提炼**：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-B6D437E8-7C6B-4210-A5B5-90CFEC96BB20.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-D096134B-18C6-469A-818B-7047B32435C9.jpg)
-**上一期：**
-
-**[灭共者之郭氏情报站（八）12月29日版 – GNEWS](https://gnews.org/zh-hans/1803971/)**
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

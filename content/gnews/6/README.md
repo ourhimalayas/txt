@@ -2,20 +2,33 @@
 ---
 
 
-## 冲绳县220名医护人员因被感染等原因离岗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831561/)
+## 金山股份年亏20亿，香港多只低价股集体闪崩
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1831563/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-373.png)[图片来源](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
-1月7日冲绳时代报道：冲绳县医疗岗位工作的220名医生和护士因被确定为中共病毒(新冠病毒)感染者或密切接触者，已从医疗岗位撤离。
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0106%2F348c4705j00r59yih001zc000ex00cqg.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)图片来自网易
+据第一财经资讯1月6日报道，市值50亿元的金山股份5日发布公告，因煤价大涨导致成本倒挂，预计2021年亏损最高超过20亿元。
 
-那霸市和日本中部地区的四家医疗机构由于人员短缺，接连不断发生一些通常病例以及急诊病例的接诊受限，该县规定的保证中共病毒感染者病床的计划受阻。有医疗官员在喊：我们如何才能填补这一空白？这是一场危机。
+据风口财经1月6日报道，港股6日多只低价股集体闪崩。这些股涉及不同行业，只有一个共同特点：都是低价股。
 
-信息来源：[「どう穴を埋めれば」「危機的」　新型コロナで医療関係者の休職続発　現場から悲鳴（沖縄タイムス） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
+新加坡拆迁服务供应商BENG SOON MACH盘中闪崩，一度下跌超96%。截至发稿，BENG SOON MACH跌93.05%。建材公司华盛国际控股，早盘跌超95%后停牌。汉思能源现跌78.76%。首沣控股最大跌幅一度超75%，截至发稿，首沣控股跌54.37%。另外，创业板的两只低价股分别为首都金融控股跌92.17%，兴铭控股跌幅达37.27%。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+新闻参考链接：1:[https://c.m.163.com/news/a/GT1OVRN00519DDQ2.html?spss=newsapp](https://c.m.163.com/news/a/GT1OVRN00519DDQ2.html?spss=newsapp)
+
+链接2: [https://c.m.163.com/news/a/GT1MSFH30552R654.html?spss=newsapp](https://c.m.163.com/news/a/GT1MSFH30552R654.html?spss=newsapp)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

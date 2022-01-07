@@ -2,23 +2,42 @@
 ---
 
 
-## 朝鲜：因全球疫情原因将不参加2022北京冬奥会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831277/)
+## 哈萨克斯坦因民众抗议关闭互联网，比特币暴跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831294/)
 
-撰稿—八木
-校对/上传—无明逆流
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京20022年冬季奥运会及冬季残奥组、中共国家体育总局致函。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/卡萨科斯坦.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha143.47-AM.jpeg)图片资料：金正恩
 
-致函中朝鲜表达了对中共的赞赏，称中共集国家、全民之力即使在全球公共卫生危机大灾殃中也能让冬奥会筹办工作在高水平上圆满进行。
+ 
+图片来源：www.reddit.com
 
-关于全球各国对中共冬奥会的抵制，朝鲜在致函中表示那是美国及其追随势力的反华阴谋，是污蔑抹黑的卑鄙行径。
 
-对于北京即将举办的冬奥会，朝鲜官方致函称，因为敌对势力的阴谋活动和全球传染病大流行，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持中共举办北京冬奥会。
+#### 编译：小红帽
 
-相关新闻：[朝鲜：因全球疫情等原因无法参加北京冬奥会，但将全方位支持和声援中国](https://news.sina.cn/gn/2022-01-07/detail-ikyakumx8799639.d.html?isJump=0&amp;universallink=1&amp;from=wap)
+根据《RT新闻》1月6日报道，**随着世界第二大挖矿中心哈萨克斯坦的抗议活动继续，比特币出现了大幅下跌，那里的互联网被关闭，迫使当地矿工关闭他们的设备。**
+
+全球领先的加密货币（比特币）已跌至42,786美元，这标志着日跌幅接近8.5%，延续了前一天交易的跌幅。
+
+网络数据提供商NetBlocks报告称：“从2022年1月4日星期二晚上开始，哈萨克斯坦的互联网服务出现重大中断，并在星期三下午发展为全国范围的通信中断”。据报道，哈萨克斯坦的标准化网络连接率下降到2%。
+
+周日，在政府取消能源价格上限的决定生效后一天，哈萨克斯坦西部爆发了骚乱，液化石油气的成本增加了一倍。
+
+总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）解散了政府，承诺将恢复较低的燃料价格。然而，这一宣布没有什么效果，集会在这个前苏联国家的最大城市蔓延开来。据报道，**为了减少对汹涌的骚乱的报道，哈萨克斯坦当局切断了互联网。**
+
+比特币目前面临的其他不利因素包括美国美联储的加息信号，这可能最快在今年3月发生。周三发布的这一消息立即引发了市场动荡，使美国股市大幅下跌，并扩大了比特币的跌幅。
+
+新闻来源：[Bitcoin dives after Kazakhstan kills internet — RT Business News](https://www.rt.com/business/545291-bitcoin-dives-kazakhstan-mining-internet/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

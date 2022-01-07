@@ -2,8 +2,8 @@
 ---
 
 
-## 中共红卫兵-杨贝贝
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1831545/)
+## 灭共者之郭氏情报站（九）2022.01.01/2022.01.05
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1831546/)
 
 **出品：纽约香草山设计部**
 
@@ -18,7 +18,13 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-中共红卫兵-杨贝贝_CCP‘s-Red-Guard-Isabel-Yeong.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-中共红卫兵-杨贝贝_CCP‘s-Red-Guard-Isabel-Yeong.jpg)
+
+## **郭氏情报站 – 2022.01.01/2022.01.05 文贵大直播总结提炼**：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-B6D437E8-7C6B-4210-A5B5-90CFEC96BB20.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-D096134B-18C6-469A-818B-7047B32435C9.jpg)
+**上一期：**
+
+**[灭共者之郭氏情报站（八）12月29日版 – GNEWS](https://gnews.org/zh-hans/1803971/)**
+
 
 
 **编辑/发稿：小鹿**
