@@ -2,37 +2,33 @@
 ---
 
 
-## 中共央行推出数字人民币钱包APP
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1832627/)
+## 有声|盖特西班牙语注册量 2022 年初激增 571%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1832728/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip04.png)图片来源：reuters.com
-上海，1 月 4 日（路透社）——随着中共央行加紧开发自己的数字货币，中共国已经在手机应用商店发布了数字人民币钱包应用程序的试点版本。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月4日，盖特总裁杰森-米勒先生表示，鉴于越来越多的民众反对脸书、推特和谷歌等大科技公司滥用的审查制度，盖特的西班牙语注册量自2022年1月1日以来提升了571%。
 
-周二，由中国人民银行（PBOC）数字货币研究所开发的“e-CNY（试点版）”应用程序，在上海中国安卓和苹果应用程序商店开放下载。
+数据显示，盖特于2日当天吸引了超过17万名新用户，其中还包括包括知名记者安迪-吴、政治评论员戴夫-鲁宾、喜剧演员拉里电缆人，以及著名的心理学家和作家乔丹-彼得森教授。
 
-该应用程序中的一条通知称，它处于研发试点阶段，仅向选定用户通过提供电子人民币服务的支持机构（包括国内主要银行）。
+值得注意的是，在盖特的注册人数大幅增加之前，推特刚刚决定永久暂停共和党众议员泰勒-格林的个人账号，还声称该账号属于涉嫌违反推特中共病毒政策的账户。同时，YouTube也审查了播客超级明星乔-罗根的视频内容。 目前，泰勒已经入住盖特并迅速累积了超过59万的关注者。
 
-中国人民银行行长易纲在 11 月表示，中国将继续推进央行数字货币的发展，并改进其设计和使用，包括提高其与现有支付工具的互操作性。
+对此，米勒先生则表示，大型科技公司正在打压民众的言论自由，他们会审查任何不符合他们世界观的人。而盖特的注册用户数量难以置信的增长签好证明了人们正在意识到这个危险的现实，他们渴望有一个保护言论自由的社交媒体平台。
 
-在年终会议上，中国人民银行表示，将继续推进数字人民币的研发。
+文字版原文：[盖特西班牙语注册量 2022 年初激增 571%](https://gnews.org/zh-hans/1825306/)
 
-评论：文贵先生在元月5日的大直播中，一针见血揭露了中共数字货币的邪恶目的：文贵先生说，去中心化的数字货币必将是人类的未来，但是中共的数字货币，不仅不是去中心化，而且是由中共控制，是绝对的中心化！而且，中共想借2022年的冬奥会推数字人民币，并用数字人民币开疆阔天，打台湾，收复周边国家，如哈萨克斯坦、吉尔吉斯斯坦、菲律宾，压住日本、印度，让印度永远不能比中共富裕，搞一带一路，输出革命，输出产业，解决过度产能，然后控制能源，这一切的实现，都是基于中共极权的数字人民币！
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-数字人民币更是中共想继续奴役中国人民58年的手段，因为中共的房地产已经让中国人民背负了58年未来的债务，子子孙孙都要为这个债务打工当奴隶。未来控制百姓用房地产生意过上富裕生活，中共就不再使用印刷人民币，用数字货币就意味着任何人只能有中共按一下手指头允许你有的数量，你帐面上无论有多少数额，用数字人民币控制后，你的金额就是一张画的大饼，连充饥的作用都没有了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**新闻来源**：[reuters.com][China central bank launches digital yuan wallet apps for Android, iOS](https://www.reuters.com/markets/currencies/china-cbank-launches-digital-yuan-wallet-apps-android-ios-2022-01-04/) **素材： 文戈**
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
