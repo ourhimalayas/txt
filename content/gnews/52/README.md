@@ -2,35 +2,47 @@
 ---
 
 
-## 美单日新增病例破百万 超去年同期高峰4倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1829316/)
+## 2022年1月粮食专题：警惕中共国“菜篮子工程”温水煮青蛙，让老百姓不知不觉中进入“吃草模式”
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1829222/)
 
-作者：香草山佛教部-文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月3日，据相关媒体在盖特平台上发表的文章显示，在过去两年内，美国政府针对疫情层出不穷地推出闭关封锁的措施、强制佩戴口罩的规定，以及一针接一针的中共病毒疫苗强制接种政策，然而，仅在1月3日这一天内，美国新增中共病毒阳性确诊病例超过一百多万，比去年同期的峰值还要高出4倍多。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210106-5.jpg)图片来源：密翻金融组图片库
+根据中共国海关总署公布的数据，2021年1-11月，中共国累计进口粮食15,094万吨，累计同比增加达50%。 根据中共国统计局12月6日公布的粮食产量数据，中共国粮食总产量68,285亿吨（13657亿斤），比2020年增加1,336万吨（267亿斤），增长2.0%。其中谷物产量63,276万吨（12,655亿斤），比2020年增加1,602万吨（320亿斤），增长2.6%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.jpeg)
+在中共鼓吹粮食自给自足率高和粮食产量持续增收的情况下，粮食进口却在大量激增，这不得不让人怀疑中共真实的意图？！
 
-评论人士指出，这一历史新高完全颠覆了现任政府和各路所谓的专家在执行和推动这些防疫措施时对民众所作出的承诺，即，所谓的“消除中共病毒”和“中共病毒疫苗具有95%病毒免疫力”。评论表示，医学界、公共卫生行业、学术界和政府的公信力已然在此次中共病毒疫情中全部丧失。
+2022年1月5日文贵大直播爆料（视频时间节段：1:03:00-1:10:00）给出了最符合真实情况的最佳答案：中共国所谓的“菜篮子工程“，用一年半时间进口了全世界62%的粮食，以防老百姓缺粮造成的社会不稳定因素。
 
-参考链接： 
-1）[https://gettr.com/post/plxoc792a3](https://gettr.com/post/plxoc792a3)
-2）[Breaking: Despite Shutdowns, Lockdowns, Masks, Vaccines, Boosters, Double Maskers… New COVID Cases Top One Million for First Time Ever](Despite%20Shutdowns,%20Lockdowns,%20Masks,%20Vaccines,%20Boosters,%20Double%20Maskers…%20New%20COVID%20Cases%20Top%20One%20Million%20for%20First%20Time%20Ever)
+根据中共国海关总署公布的数据，自2020年5月份起，中共国的粮食进口数量一直持续在高位，最高的单月粮食进口（2021年6月）达到1,769万吨。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/粮食进口数量：2015年1月-2021年11月当月.jpg)
+2022年1月5日文贵大直播爆料提到，中共真正的意图是温水煮青蛙，逐渐改变老百姓的消费习惯，让老百姓有饭吃，但少吃点肉，逐渐进入“吃草模式”。从公开数据来看，四个数据印证郭先生的爆料。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**数据一：猪肉进口数量大量减少。**
 
-总编：Jack Li文阳 
-编辑：童谣  
-校正/发稿：谐趣园
+根据海关总署公布的进出口数据， 猪肉进口数量已经从2021年5月达到历史新高的4.5亿吨回落到2021年11月份的1.99亿吨。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210106-6.jpg)
+**数据二：猪肉价格持续下降并非源于产量上升，猪肉产量持续下降。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+猪肉是中共国老百姓主要消费的肉类。 猪肉进口的减少，也许有人会认为是由于中共国猪肉产量的提升和价格降低造成的。但从公开数据来看，猪肉价格的下降，更多伴随的是猪肉产量的逐步降低。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2015年-2021年11月中共国猪肉产量按年累计数量（万吨）.jpg)
+**数据三：中共国老百姓猪肉人均消费量跌至历史新低18.2千克。**
 
+根据中共国统计局数据，由于猪肉价格在2019年-2020年间价格高涨，猪肉的人均消费量已经由2018年的每人平均22.83千克降至2020年的18.20千克。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2015-2020-Per-Capita-Consumption-of-Pork-in-Communist-ChinaKG.jpg)
+**数据四：“高级”日常消费品冷鲜牛肉进口数量不降反升。**
+
+作为中共国老百姓“高级”日常消费肉类，也就是一般普通老百姓日常很难消费得起的冷鲜进口牛肉，进口数量却在2021年11月出现激增，达到6,779吨, 这与逐渐下降的猪肉进口数量形成了鲜明的对比。此前，由于猪肉价格暴涨，普通老百姓已经消费不起猪肉，难道现在就消费得起“进口冷鲜牛肉”，这些冷鲜牛肉消费市场在哪里？！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2015年-2021年11月中共国冷鲜牛肉每月进口数量（千克）.jpg)
+最后，用文贵先生大直播的话总结一下：目前不用谈菜的价格和肉类的价格，在共匪倒台之前基本价格不会暴涨。但是，这对老百姓来说，并非一个好消息，一定要保持清醒的头脑和独立思考能力，警惕中共国“菜篮子工程”温水煮青蛙，误入中共圈套，让老百姓在不知不觉中进入“吃草模式”。
+
+作者：Apple
+
+（本文仅代表作者观点）
+
+数据参考链接：
+
+[https://gtv.org/video/id=61d59a1931a71619b57520a4](https://gtv.org/video/id=61d59a1931a71619b57520a4)
+
+[http://www.stats.gov.cn/tjsj/zxfb/202112/t20211206\_1825058.html#:~:text=%E4%B8%89%E3%80%81%E5%85%A8%E5%9B%BD%E7%B2%AE%E9%A3%9F%E6%80%BB%E4%BA%A7%E9%87%8F,%E6%96%A4%EF%BC%89%EF%BC%8C%E5%A2%9E%E9%95%BF2.6%25%E3%80%82](http://www.stats.gov.cn/tjsj/zxfb/202112/t20211206_1825058.html#:~:text=%E4%B8%89%E3%80%81%E5%85%A8%E5%9B%BD%E7%B2%AE%E9%A3%9F%E6%80%BB%E4%BA%A7%E9%87%8F,%E6%96%A4%EF%BC%89%EF%BC%8C%E5%A2%9E%E9%95%BF2.6%25%E3%80%82)
 
  
 

@@ -2,22 +2,24 @@
 ---
 
 
-## 北朝鲜称因“敌对势力阴谋和中共病毒” 不参加北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831217/)
+## 朝鲜：因全球疫情原因将不参加2022北京冬奥会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1831277/)
 
-撰稿：东京樱花团｜百花李香
-![](https://lh6.googleusercontent.com/31DTAr4YiYoh68EsuvlGqhC1zjFUIdHd_Jf5OlkaMSBGFYh1EOfEwtygtD2uz8FkCY1YcFN8kol1z9Qz2qDs7ixsarerCLn4QLpXb9HVNId5Qlo8Tp1BWtxsXPsQB-HMCw)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/0909/20210909095512654.jpg)
-《共同通信》1月7日消息，北朝鲜奥委会和体育部12月5日致函中共国奥委会，告知他们将不参加北京冬季奥运会和残奥会。理由是由于“敌对势力的阴谋和新冠病毒感染”，他们无法参加。
+撰稿—八木
+校对/上传—无明逆流
 
-报道称，北朝鲜在信中指责美国和其它国家试图破坏北京冬奥会的成功，他们对此表示反对，并表示完全支持中共国。
+朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京20022年冬季奥运会及冬季残奥组、中共国家体育总局致函。
 
-去年9月，国际奥委会因北朝鲜单方面决定不参加东京奥运会而将其停赛至今年年底。北朝鲜表示，它将为那些获得北京冬奥运会出场资格的选手打开个人参与的大门。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha143.47-AM.jpeg)图片资料：金正恩
 
-信息源： [**北朝鮮、北京五輪・パラに不参加　「敵対勢力とコロナ原因」**](https://news.yahoo.co.jp/articles/fac85ae942fc98a33eec8d804cb752e4c809bcae#:~:text=%E3%83%)
+致函中朝鲜表达了对中共的赞赏，称中共集国家、全民之力即使在全球公共卫生危机大灾殃中也能让冬奥会筹办工作在高水平上圆满进行。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+关于全球各国对中共冬奥会的抵制，朝鲜在致函中表示那是美国及其追随势力的反华阴谋，是污蔑抹黑的卑鄙行径。
+
+对于北京即将举办的冬奥会，朝鲜官方致函称，因为敌对势力的阴谋活动和全球传染病大流行，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持中共举办北京冬奥会。
+
+相关新闻：[朝鲜：因全球疫情等原因无法参加北京冬奥会，但将全方位支持和声援中国](https://news.sina.cn/gn/2022-01-07/detail-ikyakumx8799639.d.html?isJump=0&amp;universallink=1&amp;from=wap)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

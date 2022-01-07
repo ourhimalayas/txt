@@ -2,81 +2,22 @@
 ---
 
 
-## 视频| 哈国动乱，中共栽赃美国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831409/)
+## 【中日财经爆】日本将迎来全面数字化转型
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831446/)
 
-## 摘自2022.1.5郭先生大直播
+撰稿：东京樱花团｜麗子
+![](https://lh3.googleusercontent.com/pfzo75TeRitm-FQRLiq877HJAlkZznLvK4Tm75-YSJLklyW602YmooBh18JVm-PF6oArGx6JJexOu8rSh8H3Fp_vnkfOKOotMiDaHIlaPFTb426aMas20hSCIIy-QN7WK5KgJT8R)[*图片来源*](https://toyokeizai.net/articles/-/378961?display=b)
+2022年1月6日，日本政府宣布制定“全面数字化蓝图”政策，推动日本的整体数字化转型。以期在2030年左右，实现数字化基础设施与能源、交通、物流基础设施的融合发展。
 
-制作：香草山视频部
+经济产业省在同日举行的产业结构审议会上宣布了制定数字化发展蓝图的政策，旨在用数字技术振兴地方经济，并希望以此为跳板，促进政府及企业对数字化领域的投资。
 
+根据蓝图规划，从2025年开始，预计除了在各地区扩展DC和云服务外，还将包括实现“后5G”的全面应用。 2030年左右将推动“量子计算”的实施。这是一项专门解决复杂计算问题的技术。同时还将考虑在各地区扩大可再生能源的使用。
 
+信息来源：[**デジタルで日本改造 政府がロードマップ策定を表明**](https://news.yahoo.co.jp/articles/e4f60ac7e01a157301fae64d448a91d32fbeeea8)
 
-据说是在几个小时前，
-
-总统家人答应要分三到四次把黄金还回去，要还回。
-
-软了，已经软了，服软了。
-
-要求中国和俄罗斯支持，
-
-听说这次俄罗斯站在了习的这一边。
-
-这小国家不经打，一煽动。
-
-现在给出的建议是，
-
-把这次内乱归为美国人的CIA的挑拨离间，
-
-很快，这是美国人挑拨离间，
-
-又推给美国人了，又甩锅了。
-
-中国人最奇怪的事情，
-
-美国人从来没有侵略过我们中国，
-
-结果是美国人一直被共产党宣称为亡我之心不死，
-
-而且我们的中国人是被苏联和今天的俄罗斯侵占，
-
-杀那么多人，
-
-结果是比亲爹还好。
-
-你去想想这是个多变态的国家，
-
-现在又甩给美国去了，
-
-这是美帝国主义，
-
-一切推给美帝国主义。
-
-就是刚才我在中间出去一次，
-
-咱已经得到这个答案了。
-
-七哥就这么牛，啊，就这么牛，
-
-咱知道它一切。
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

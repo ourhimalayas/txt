@@ -2,31 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1831143/)
+## 德国反垄断机构出招 将可加强对谷歌监管
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1831205/)
 
-作者：香草山翻译部
+![Google Must Face Suit Over Snooping on &#039;Incognito&#039; Browsing - Bloomberg](https://assets.bwbx.io/images/users/iqjWHBFdfxIU/iX2yeNQcUfAc/v0/1200x802.jpg)资料图
+据台湾中央广播电台1月5日报道，德国反垄断机关联邦卡特尔局5日将谷歌归类为“对各市场具有重要意义”的公司。该决定是德国竞争法修正案于2021年1月生效后的第一个决定，此举允许当局更早进行干预，打击任何潜在的反竞争活动，特别是针对大型科技公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+根据这项新法，德国当局在去年开始对亚马逊和脸书等美国科技巨头进行调查。该局也正在审查谷歌的新闻平台。不仅在德国，大型科技公司在全球许多国家都面临对其主导地位和税收作法的审查。
+
+大型科技公司控制了媒体，就控制了话语权，甚至比政府的权力还要大。没有监管的这些科技巨头可以轻而易举地控制舆论导向，权力大到可以超越某些法律权限。需要监管。
+
+新闻参考链接：[https://cn.rti.org.tw/news/view/id/2121362](https://cn.rti.org.tw/news/view/id/2121362)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d7972cf2fe0449ea19126f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

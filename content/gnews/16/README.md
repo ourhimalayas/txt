@@ -2,56 +2,35 @@
 ---
 
 
-## 玛乔丽•泰勒•格林在GETTR 和 Telegram上对 Twitter的封禁做出回应
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1831283/)
+## 朝鲜宣布不参加北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1831350/)
 
-据《门户专家网》2022年1月2日卡桑德拉·费尔班克斯（Cassandra Fairbanks）报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image002.jpg)众议员玛乔丽·泰勒·格林（Marjorie Taylor Greene）（共和党-佐治亚）于 2021 年 6 月 26 日在俄亥俄州惠灵顿举行的“川普总统拯救美国”集会上发表讲话，照片由克里斯汀·泰勒 （Kristinn Taylor） 拍摄。
-众议员在社交媒体平台 GETTR 和 Telegram 上对Twitter 对她的禁令做出了回应。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未标题-1.png)图片来源：BBC
+整理报道：美哥
+编辑：Mttfly
 
-格林的个人账户，于周日因发布来自疾控中心的疫苗不良事件报告系统 (VAERS) 数据，而被永久封禁。
+北京时间1月7日，据日本共同通讯社报道，朝鲜为回击美国阻止冬奥会成功举办的企图，决定不参加2022年的北京冬奥会和残奥会。朝鲜国际奥林匹克委员会和体育部门已将该声明信件转交中国。上次由于新冠疫情，朝鲜同样没有派团队参加夏季的东京奥运会。
 
+据朝中社报道，开幕于2月4号的北京冬奥运的准备，在习主席的领导下，正令人满意的进行，感谢中方积极的努力。但是美国及其追随势力，试图阻碍冬奥会顺利举办的反华阴谋活动，变本加厉，朝鲜坚决反对美方的活动，称这是对国际奥林匹克宪章精神的亵渎、是污蔑抹黑中国的国际形象的卑鄙行径。尽管不参加冬奥运，但平壤承诺与中国携手努力，支持一个成功的北京奥运会。
 
+2018年的南韩同样举办过平昌冬奥运，金正恩曾在新年讲话中，对南韩伸出了橄榄枝，说他的国家2月份会参加南韩的冬奥运。随后他的妹妹兼亲密助理金与正作为朝方最高代表，率朝鲜代表团参加了平昌奥运会，是金家踏上南韩领土的第一个现任家族人员。因为对中国的人权指责呼声日高，时下正值美国和其他国家，英国澳大利亚纷纷宣布外交抵制北京奥运会。
 
-> MTG was suspended for using a CDC VAERS chart.
-> 
-> So is Twitter now telling us the CDC isn’t credible? 
-> 
-> Or that the truth is not allowed to be told? [pic.twitter.com/flfLkurLxI](https://t.co/flfLkurLxI)
-> — John – Naturally Immune – Cardillo (@johncardillo) [January 2, 2022](https://twitter.com/johncardillo/status/1477663920349499400?ref_src=twsrc%5Etfw)
+朝鲜宣称新冠病毒大流行也促使他们“跳过”北京奥运会。因为大面积的长期的食物和医药的缺乏，目前朝鲜人被认为对于新冠病毒防御十分脆弱。国际的经济制裁一直试图“融化”朝鲜发展核武器和洲际弹道导弹的雄心。
 
+2003年的SARS，2014年的西非埃博拉病毒大流行，朝鲜都曾禁止外国人进入国门。
 
+新闻链接：[North Korea will not participate in Beijing Winter Olympics, blames U.S.](https://english.kyodonews.net/news/2022/01/767355f07da3-urgent-n-korea-vows-not-to-participate-in-beijing-winter-olympics.html)
 
-*约翰 — 自然免疫 — Cardillo (@johncardillo)*
+发布：Mttfly
 
-*MTG（ 玛乔丽·泰勒·格林 ）（的Twitter账户）因使用 CDC VAERS 图表而被暂停。*
-
-*那么**Twitter**现在是在告诉我们**CDC**不可信吗？*
-
-*还是这一事实不许讲？*
-
-*2022**年**1**月**2**日*
-
-该平台声称这是格林第五次因传播“中共病毒错误信息”而违反了规定。
-
-
-
-> MTG responds on Telegram, since she can't tweet. "Twitter is an enemy to America and can’t handle the truth." [pic.twitter.com/M8IgCU4KFa](https://t.co/M8IgCU4KFa)
-> — Davey Alba (@daveyalba) [January 2, 2022](https://twitter.com/daveyalba/status/1477665225889488899?ref_src=twsrc%5Etfw)
-
-
-
-*戴维**·**阿尔巴（**Davey Alba**）**(@daveyalba) 2022**年**1**月**2**日*
-
-*MTG**在**Telegram**上回复，因为她不能发推文。**“**推特是美国的敌人，无法处理真相。**”*
-
-*作为回应，格林关于推特写道：“我将向美国表明我们不需要他们，现在是打败我们的敌人的时候了。”*
-
-格林的[声明](https://gettr.com/post/plf6qx50e8)说：“当马克辛·沃特斯（Maxine Waters）可以走上街头并在 Twitter 上威胁使用暴力时、卡马拉（ Kamala ） 和伊尔汗（ Ilhan ） 可以在 Twitter 上助威暴乱者、恐怖组织 IRGC 的首席发言人可以在 Twitter 上哀悼苏莱曼尼（ Soleimani ）时，而我却因发布 VAERS 统计数据而被封禁，Twitter 是美国的敌人，无法处理真相。没关系，我会告诉美国我们不需要他们，是时候打败我们的敌人了。”
-
-原文链接：[https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/](https://www.thegatewaypundit.com/2022/01/marjorie-taylor-greene-responds-twitter-ban-gettr-telegram/)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+**
+****更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
