@@ -2,48 +2,12 @@
 ---
 
 
-## 安妮日记2022-逃离新冠疫苗
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1830885/)
+## 史蒂夫·基尔施：数据证明疾控中心撒谎，疫苗极其危险
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1830937/)
 
-**出品：纽约香草山设计部**
+01/03/2022 史蒂夫·基尔施：作为麻省理工学院严格训练的工程师，我只看数据，而数据一直告诉我：疾控中心在撒谎，疫苗极其危险。没有任何疾控中心或食品药物管理局的科学家敢与我交谈，即使我出资100万美元。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

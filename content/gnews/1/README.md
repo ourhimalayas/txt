@@ -2,21 +2,25 @@
 ---
 
 
-## 奥密克戎正在日本急速蔓延
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831200/)
+## 三名中国人在尼日利亚被绑架
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831243/)
 
-撰稿：东京樱花团｜百花李香
-![](https://lh6.googleusercontent.com/0w2lV7YCuSt1xBVL-Q9HA0p4soS89t4aockykczIWyKzOTodHsRq-7MHYNyC_yU0S0YFAxVLooRiWQ50E-v7_IXH5LV2Sy5ao9Aq-3EbTpNu4KpMY9s_L5M7ujrughEzGg)[*图片来源*](https://news.yahoo.co.jp/articles/de5dd3a48ed64d7e44d93641956fa71092350502/images/000)
-据《每日新闻》报道，为应对中共病毒（Covid-19）由政府部门组建的专家咨询委员会1月6日举行会议，分析总结了奥密克戎传播的现状。根据去年12月27日至1月2日期间全国各地对变异病毒进行的PCR测试估计，怀疑感染了奥密克戎的病例占了阳性病例的46%。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-365.png)[图片来源](https://www.bannedbook.org/bnews/baitai/20210826/1613583.html)
+尼日利亚耶纳戈阿警方周四（1月6日）表示，武装人员在尼日利亚中部尼日尔州绑架了在一个电力项目工作的三名中国公民，并杀害了两名当地工作人员。
 
-同时，东京都政府表示，去年12月28日至1月3日的一周内，东京感染了中共病毒（新冠病毒、Covid-19）患者中的44.6％疑似奥密克戎。从首列确认到现在三周达到了40%，比Delta和Alpha传播的速度都快。
+警方并称，这些枪手于周二发动袭击，袭击了正在一个村庄安装输电线路塔的中国水电的工作人员。枪手疑为制造混乱并实施大规模绑架的帮派成员。
 
-报道称，东京都公共卫生和安全研究中心自12月以来一直在进行奥密克戎的PCR测试。截至1月3日的最近一周里，在296个被检测和确认的病例中，有132个被怀疑是奥密克戎。相关人士告诉媒体，1月或进入2月几乎全是奥密克戎。
+尼日尔警方发言人Wasiu Abiodun说，在枪手与警察发生枪战后，三名中国人被绑架，另外四名中国人被救出。
 
-信息源：[**オミクロン疑い例、全国で46％に　「過去にない感染者数急増」**](https://news.yahoo.co.jp/articles/de5dd3a48ed64d7e44d93641956fa71092350502#:~:text=%E3%82%)
+Abiodun补充说，一名中国工人和两名当地工作人员被子弹击中，受伤的尼日利亚人后来在医院死亡。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+他并称警方和军方联手开始寻找失踪的工人。
+
+消息来源：[三名中国工人在尼日利亚被绑架](https://cn.reuters.com/article/chinese-workers-kidnapped-nigeria-0106-t-idCNKBS2JH039?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
