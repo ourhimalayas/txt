@@ -2,25 +2,27 @@
 ---
 
 
-## 印度向小米追缴超八千万美元逃税款项
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833370/)
+## 洛杉矶首例中共病毒与流感共同感染病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833402/)
 
-作者：东京樱花团—在远方
+作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月5日，印度政府发布声明表示，经调查，中共国智能手机厂商小米在当地的子公司涉嫌逃税，当地政府已对此追缴了约八千七百万美元的税款。
+1月5日，据当地媒体消息显示，一洛杉矶中共病毒测试点宣布检测到第一例“florona”病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-7.jpeg)
 
-印度政府称，小米在印度的子公司向美国高通公司、北京小米移动软件公司支付了特许权使用费和许可费，但这些费用未被计入在该公司与合约制造商的进口商品交易价值中。
+据了解，flurona病毒是中共病毒和流感的共同感染体，此前已在美国、巴西、以色列等地被发现。
 
-根据印度的相关规定，作为进口手机和零组件的受益人，该子公司的行为已经涉嫌逃避关税。为此，印度政府向小米追缴了2017年4月至2020年6月间的相关税金。
+当地卫生局某发言人表示，洛杉矶在最近的检测中发现，有多例患者的中共病毒和流感测试皆呈阳性。而该发言人称，奥米克戎的大流行加剧了民众同时感染两种病毒的风险。
 
-参考链接：[印度當局控小米涉逃稅 追繳逾24億稅款](https://ec.ltn.com.tw/article/breakingnews/3791735)
+健康专家则对此表示担忧道，中共病毒和流感“双流行病”的激增将对现有医疗系统带来难以负荷的巨大压力。
+
+参考链接：[Testing site reports finding case of ‘flurona’ in Los Angeles County](https://ktla.com/news/local-news/l-a-county-detects-1st-flurona-case/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：飞虹
-编辑：飞虹
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

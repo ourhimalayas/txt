@@ -2,47 +2,31 @@
 ---
 
 
-## Covid疫苗中的纳米技术是技术寄生——用于通信
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1833547/)
+## 有声|西安社会面“清零”：隧道、车库、看守所竟成隔离点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833619/)
 
-翻译： Jenny Ball
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间1月5日下午，西安市政府在最新的疫情防控发布会中称，西安市社会面基本实现疫情清零，市区内疫情已得到有效遏制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-426.png)图片来源 :dailyexpose.uk
+然而，有大量墙内网友却在此新闻下评论称，官方所谓的“清零”消息就是将一切存在社区传播风险的市民都强制用大巴车拉离市区，全然不顾居家民众被迫异地隔离后的死活。据部分盖特网友爆料，看守所、地下车库，甚至是高速公路的隧道都被征用为西安市民们异地隔离的临时住所，隔离条件极其艰苦。同时，这些场所也并不具备疫情隔离的基本要求，床位与床位之间连接的极为紧密，这大大增加了隔离人员间的交叉感染风险。有被隔离市民表示，目前全家人都已被转移至一家看守所改造的隔离点中，这里的生活物资极其短缺，自己全天只吃到了一桶泡面。
 
-昨天，我们发布了《第五纵队》（La Quinta Columna） 的一段视频，展示了在 Covid 疫苗注射液中发现的“纳米章鱼”和其他似乎是自行组装的微粒。作为后续，本文指向科学研究，该研究解释了为什么 Covid 注射包含这些“东西”。
+郭文贵先生此前也曾在直播中指出，目前西安城中民众的真实情况非常惨烈，这样的惨剧未来还将在中共国的其他城市发生。
 
-2021 年 1 月发表在《通信杂志》上的一篇论文，对“无线纳米传感器网络” (WNSN) 进行了深入审查。
+文字版原文：[西安社会面“清零”：隧道、车库、看守所竟成隔离点](https://gnews.org/zh-hans/1825109/)
 
-WNSN 是互连微器件和纳米节点或纳米传感器的网络。纳米节点是具有纳米尺寸的设备，由纳米处理器、纳米存储器、纳米电池、纳米收发器、纳米天线和纳米传感器组成，它们在纳米级别上运行。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-429.png)图片来源 :dailyexpose.uk
-“换句话说，我们谈论的是纳米技术，它重新创造了我们已知的通信技术。 但在这种情况下，是在体内。 我们正在谈论纳米通信。” 《第五纵队》的里卡多·德尔加多（Ricardo Delgado）说，它在辉瑞、莫德纳、阿斯利康和强生的疫苗注射液中。 “它们都是用于纳米通信的纳米技术。”
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-米克·安德生（Mik Andersen）写道，以人体为中心的纳米阵列，需要使用在太赫兹波段工作的纳米天线，这些天线与 Covid 疫苗注射样本中发现的天线类型相同。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-安德的文章，是对华威大学研究人员的一篇文章（2017 年）与坎普拉（Campra）博士从 Covid“疫苗”样本中获得的图像进行比较后，所做的深入且引用良好的研究。
-
-“研究明确提及天线类型和体内纳米网络技术，将证实：疫苗是在人体中安装纳米技术或纳米设备的载体。然而，除了纯巧合之外，作者明确指出使用石墨烯和碳纳米管作为该网络模型的必要元素。”
-
-《第五纵队》介绍了米克·安德生是谁以及他的研究，“我们将简要概述什么是**体内网络**。现在我们要谈谈纳米技术。具体来说，**就是精英们试图想做什么， 这是这次行动的未来或目的**，一龙·马斯克（Elon Musk）是其中的重要组成部分，”他说。
-
-《第五纵队》（奥威尔城）视频[Video: Intra-body nano-network](https://www.orwell.city/2021/12/nano-network.html)
-
-视频中讨论的图像是 24 张幻灯片演示的第8张。在《奥威尔之城》（Orwell City）的网站上，您可以找到 24 张幻灯片的 pdf 文档，“体内纳米网络——米克·安德生的简要总结”，其中包含易于理解的图表和要点。该文档可以在线查看或下载。
-
-最后两张幻灯片展示了身体内的组件如何与外界交流的插图。首先是微观层面（23页），然后是宏观层面（24页）以及人体如何成为物联网的一部分。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-431.png)图片来源 :dailyexpose.uk
-
-新闻来源 :[ dailyexpose.uk] [Nano-Technology in Covid Injections – It’s for Communications, It’s Technological Parasitism](https://dailyexpose.uk/2021/12/24/nano-technology-in-covid-injections-its-for-communications-its-technological-parasitism/)
-
-* * *
-
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

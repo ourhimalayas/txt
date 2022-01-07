@@ -2,28 +2,23 @@
 ---
 
 
-## 密歇根高接种率卫生系统爆发大规模染疫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1833446/)
+## 有声|牛津疫苗研发专家称定期注射疫苗“不理智”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833491/)
 
-作者：纽约香草山翻译部 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月5日，据美国媒体报道，在过去的一周内，密歇根州最大的卫生系统——亨利·福特卫生系统共有686名员工被检测出中共病毒感染呈阳性结果。
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月4日，曾经参与研制牛津-阿斯利康冠状病毒疫苗的牛津大学疫苗小组主任、英国疫苗接种和免疫委员会主任安德鲁·波拉德教授，在媒体采访中表示，不可能每隔四到六个月就接种疫苗，这是相当“不理智”的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.jpeg)
+波拉德强调，疫苗的主要目标应该是弱势群体，而不是所有人。但即使对弱势群体也需要更多的数据来确定他们是否需要、何时需要、以及需要多大的剂量。他对目前有关疫苗的错误信息可能造成的危险后果也发出了严厉的警告，强调即便是政治家的 “无心 “言论也会产生肆意破坏。
 
-资料显示，亨利·福特卫生系统是密歇根州第一个强制要求其员工接种中共病毒毒疫苗的卫生系统。目前，该系统内员工的疫苗接种率高达99%。
+波拉德的这番言论是在英国正在向16岁及以上的高危人群推广第三针、以色列已开始推广第四针、德国也在力荐第四针的背景下发出的。对此，班农先生评论道，他们的“叙事开始瓦解”。
 
-数据表明，该系统员工的中共病毒感染情况比2021年12月之前增长了3倍。此外，由于生病人员需要进行隔离，该系统不得不暂时关闭了三家医院的97张床位。
+文字版原文：[牛津疫苗研发专家称定期注射疫苗“不理智”](https://gnews.org/zh-hans/1827309/)
 
-参考链接：
-1）[Health System in Michigan with over 99% Vaccination Compliance Rate has Nearly 700 Employees Test Positive with COVID-19](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
-2）[https://gettr.com/post/pmjn9p16a0](https://gettr.com/post/pmjn9p16a0)
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,8 +27,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
