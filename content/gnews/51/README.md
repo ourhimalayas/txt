@@ -2,28 +2,14 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1829502/)
+## 战斗室：精英合并意味着什么，它将这个世界看作什么？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1829807/)
 
-![logo](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-e1641324509879.jpg)
+12/30/2021 杰克·波索别克：我们生活在一个集权政治的时代，而这个集权是无定形的。它是连续的，无边界的，是无形的。它是一个高我层次，高于我们看到的所有事物，高于我们每天做的所有决定。它把国家看成一个仓库，一个储存设施，它只看重资源，它把土地看成一种资源，它把人看成可以移动的货品。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-视频参看：[2022.01.06早GTV新闻访谈](https://gtv.org/video/id=61d6ee6431a71619b575d95f)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E46157AB-FA5C-460C-B284-9199E57F7BE6.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

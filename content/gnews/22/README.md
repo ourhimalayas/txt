@@ -2,34 +2,20 @@
 ---
 
 
-## 有声|中共极端清零 河南禹州封城
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1831495/)
+## 冲绳县220名医护人员因被感染等原因离岗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1831561/)
 
-配音：香草山教育部 – Rose
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-373.png)[图片来源](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
+1月7日冲绳时代报道：冲绳县医疗岗位工作的220名医生和护士因被确定为中共病毒(新冠病毒)感染者或密切接触者，已从医疗岗位撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1-1.jpg)
+那霸市和日本中部地区的四家医疗机构由于人员短缺，接连不断发生一些通常病例以及急诊病例的接诊受限，该县规定的保证中共病毒感染者病床的计划受阻。有医疗官员在喊：我们如何才能填补这一空白？这是一场危机。
 
-台媒1月4日消息报道称，人口数超过100万的禹州市(位于中共国河南省中部)，虽然只出现了3例无症状中共病毒感染者，但该市居民均被下令被迫留在家中。这是近期中共实施大规模封城的最新案例。
+信息来源：[「どう穴を埋めれば」「危機的」　新型コロナで医療関係者の休職続発　現場から悲鳴（沖縄タイムス） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/2ea27184f5ff592af4704be0f6366fe1846f7dca)
 
-自中共病毒疫情爆发以来，北京当局追求极端“清零”政策，实施严格边境管制，以及目标性的封城措施。如果未能遏制疫情，中共地方官员通常会面临开除或者惩处的命运。在近期接连爆发本土案例，以及冬奥会即将开始的情况下，中共的该项政策正面临越来越大的压力。
-
-原文链接:[中共极端清零 河南禹州封城](https://gnews.org/zh-hans/1824749/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
