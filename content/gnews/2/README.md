@@ -2,38 +2,68 @@
 ---
 
 
-## 北京冬奥会将向世界展示中共与黑暗势力“团结”的力量
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1830859/)
+## 参议员玛莎·布莱克本： 由于我们对中共国的依赖而导致的全球供应链危机
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1830985/)
 
-**【国内新闻短评】**
-
-**中国日报网2022年1月5日刊载：北京冬奥会将向世界展示团结的力量**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mji.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/01/ff-amq6p-x6e25.jpg)
+参议员玛莎·布莱克本： 由于我们对中共国的依赖而导致的全球供应链危机凸显了加强美国制造业的重要性。我与参议员加里·彼得斯的立法将简化由商业部运行的程序，以消除政府浪费并提高效率。
 
 
-**短评：**
 
-**2022年1月5日，中共国内著名的日中国报网刊载了这样一篇文章，自信满满地向世界预告中共病毒与毒疫苗的罪魁祸首黑暗势力将在北京冬奥会展示他们“团结”的力量。**
+> The global supply chain crisis resulting from our dependence on China underscored the importance of strengthening U.S. manufacturing. My legislation with [@SenGaryPeters](https://twitter.com/SenGaryPeters?ref_src=twsrc%5Etfw) will streamline programs run by [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) to eliminate government waste & improve efficiency.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 6, 2022](https://twitter.com/MarshaBlackburn/status/1479200326624366595?ref_src=twsrc%5Etfw)
 
-**开篇第一段便是：“全世界正翘首以盼，期待享受一场纯粹的体育盛会，更期望以此为契机弥合分歧、凝聚力量，为疫情之下的人类带来团结与希望。”
-确实厉害呀，全世界的黑暗势力，全世界人民就这样被你们代表了？谁翘首以盼？是冠状病毒和毒疫苗的黑暗势力翘首以盼吧？还弥合分歧？这个世界哪有那么多分歧？不都是中共为首的黑暗势力制造出的分歧吗？现在全世界除了想活下去和想死的分歧外，好像其他的分歧都得靠边站吧？想活下去和想死也没什么分歧呀，大家只想活着，只想自由健康安全平安地活着；只有中共为首的黑暗势力想死，不然也不会如此低智商地在全世界面前用冠状病毒和毒疫苗谋财害命。魔鬼们是想回地狱想疯了吧，那么我们不介意送你们一程，但是你们别拉善良正义的人们陪葬，善良正义的人们是无辜的。**
 
-**还“凝聚力量，为疫情之下的人类带来团结与希望”，是凝聚你们黑暗势力魔鬼的力量吧？一手释放中共病毒制造疫情，一手口口声声提供团结与希望，厉害呀，黑暗势力！和在新疆在香港在美国一手安排暴徒打砸抢，一手顺理成章地以此为借口进行所谓的维稳统治与奴役如出一辙。厉害呀，黑暗势力！在光天化日之下，在众目睽睽之中，用病毒和毒疫苗强奸我们的母亲——地球，强奸地球上的每一个儿女，又在光天化日众目睽睽之下强奸冬奥会，还强奸表演给全世界看。**
 
-**请问这次冬奥会还有几个国家参加呀？你不邀请他们他们就不必来是吗？冬奥会是你家的是吗？和希特勒那时的奥运会又有什么区别呢？**
+众议员吉姆·班克斯： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 因它不经控制的核建设变得日益危险。 与此同时，我们仍然有美国投资者通过向缺乏透明度和问责制的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军民融合项目投入大量资金来推动中共国的军事崛起。 而乔拜登只是……由它发生。
 
-**文章观点仅代表作者，与GNews 平台无关**
 
-**新闻链接：**[https://baijiahao.baidu.com/s?id=1721095466694560040&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1721095466694560040&amp;wfr=spider&amp;for=pc)
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) becomes more dangerous every day its nuclear build up goes unchecked.
+> 
+> Meanwhile, we still have US investors fueling China’s military rise by pouring dollars into China’s Military-Civil Fusion w/o transparency and accountability.
+> 
+> And Joe Biden is just… letting it happen.
+> — Jim Banks (@RepJimBanks) [January 6, 2022](https://twitter.com/RepJimBanks/status/1479211182087102466?ref_src=twsrc%5Etfw)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+前国务卿蓬佩奥： 我热爱奥运会。1984年，我母亲带我去看洛杉矶奥运会，我看到卡尔·刘易斯从洛杉矶体育馆很高的座位上跑起来。我喜欢这个活动，但我们不能支持习近平。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click)奥运会不仅将支持历史上最严重的人权侵犯者之一，而且我们的运动员将置于一个非常艰难的处境。我们的运动员应该知道，北京是世界上最受监视的城市之一。几乎可以肯定，中国共产党将能够跟踪他们做的每一件事，他们去的每一个地方，他们说的每一句话
+
+
+
+> I love the Olympics. My mother took me to the L.A. Olympics in 1984, where I saw Carl Lewis run from some really high-up seats at the L.A. Coliseum. I love this event, but we cannot prop up Xi Jinping. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mike Pompeo (@mikepompeo) [January 6, 2022](https://twitter.com/mikepompeo/status/1479160502106402819?ref_src=twsrc%5Etfw)
+
+
+
+众议员派特·法隆： “解放军正在建造一种改进型的YJ-18远程巡航导弹，可以从一个伪装成40英尺长的集装箱的移动发射装置发射。” 这就是为什么我们必须反击中国在世界各地武器化港口的努力。
+
+
+
+> "The PLA is building a variant of the YJ-18 long-range cruise missile that can be fired from a mobile launcher disguised as a 40 ft. long shipping container."
+> 
+> This is why we must counter China's efforts to weaponize ports around the world.[https://t.co/m34SoALG27](https://t.co/m34SoALG27)
+> — Rep. Pat Fallon (@RepPatFallon) [January 6, 2022](https://twitter.com/RepPatFallon/status/1479130197538615299?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “托马斯·杰斐逊在1800年的选举中击败了联邦党人，因为他拒绝向他们的恐惧气氛低头。他指出他们努力镇压，是因为他们是:公然的非美国的。拜登对竞选对恐惧也是如此，”参议员霍利写道。 （转福克斯新闻：民主党人在2021年带来了恐惧。2022年，让我们不再害怕，重拾美国精神）
+
+
+
+> “Thomas Jefferson beat the Federalists in the election of 1800 by refusing to bow to their climate of fear. He called out their efforts at repression for what they were: blatantly un-American..same is true of Biden’s campaign of fear," wrote Sen. Hawley. [https://t.co/HVXGaYLcIX](https://t.co/HVXGaYLcIX)
+> — Senator Hawley Press Office (@SenHawleyPress) [January 6, 2022](https://twitter.com/SenHawleyPress/status/1479128418176356357?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 跟进我给新闻周刊 [@Newsweek](https://twitter.com/Newsweek) 的公开信，该媒体已经删除了注册为 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 政府外国代理人的撰稿人的信息。 【斯科特在1月4日发公开信，质疑新闻周刊的撰稿人帮中共的种族屠杀洗地，敦促他们重新考虑这种令人不安的关系】
+
+
+
+> Following my letter to [@Newsweek](https://twitter.com/Newsweek?ref_src=twsrc%5Etfw), the outlet has removed the profile for its contributor that registered as a foreign agent of the Communist Chinese government. [https://t.co/TboH6fNBEo](https://t.co/TboH6fNBEo) [pic.twitter.com/L9tJpvgEBx](https://t.co/L9tJpvgEBx)
+> — Rick Scott (@SenRickScott) [January 6, 2022](https://twitter.com/SenRickScott/status/1479104356083396610?ref_src=twsrc%5Etfw)
+
+
 
  
 
