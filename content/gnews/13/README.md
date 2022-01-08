@@ -2,12 +2,10 @@
 ---
 
 
-## 强制接种疫苗国家的共通点
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1836392/)
+## 你一定会看到你一生当中前所未有的全球的经济危机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1836418/)
 
 台灣寶島農場
-
-
 
  
 

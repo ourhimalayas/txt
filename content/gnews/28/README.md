@@ -2,51 +2,43 @@
 ---
 
 
-## 澳23岁双重接种的举重冠军死于COVID-19
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1836117/)
+## 探讨新加坡本地良心医生推荐的疫苗解毒方案
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1836279/)
 
-翻译： Jenny Ball
+**撰稿：Eva**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-494.png)图片来源 :thegatewaypundit.com
+下图把已有的和本地医生建议的解疫苗方案用黄色标识汇总在一起方便对比：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-08-191330.jpg)
+上图内容来自FLCCC的 I-RECOVER-长期症候群管理试验计划书版本1- 2021年6月16日
 
-根据一份报告，一名 23 岁的科学家、举重冠军和健康运动员在检测出 Covid-19 呈阳性后，在悉尼一家医院死亡。
+**English Version英文原版：**
 
-詹姆斯·康迪利奥斯（James Kondilios）是堪培拉的居民，在因病毒并发症于 1 月 4 日在圣文森特医院去世之前，已知他没有任何潜在的健康问题。
 
-在新南威尔士州卫生当局透露他的身份后，他的家人和朋友都在哀悼并表示敬意。
 
-他的一位朋友在 Facebook 上发布了一条情感信息作为致敬：
+> [I-RECOVER Protocol](https://covid19criticalcare.com/covid-19-protocols/i-recover-protocol/)
 
-（更新 – 致敬后来被删除）
 
-“非死不可”说发文已不可访问
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-496.png)图片来源 :thegatewaypundit.com
+**疫苗解毒方案A+B**
 
-他最近的死亡提出了一个问题，如果他因为接种了双重疫苗，并且没有潜在的健康状况，但受到保护免受 COVID-19 病毒的疫苗的侵害，那么会发生什么？这打破了疫苗将保护您免受病毒侵害的整个说法。
+上图中的A+B解疫苗方案是由香草山农场医疗卫生部推荐的解毒配套，有具体疑问可以登录他们的Discord请教，地址是：
 
-福奇博士、药企，企业媒体和公共卫生机构，从一开始就一直在对 Covid 撒谎。
+[https://discord.com/channels/702115364770807868/716611739021475912](https://discord.com/channels/702115364770807868/716611739021475912)
 
-**他们说疫苗会阻止病毒传播**。
+**新加坡本地良心医生推荐的疫苗解毒方案A+C**
 
-**他们说接种疫苗的人可以不戴口罩。**
+针对对象：在新加坡万一坚持不住，不得不去打疫苗的战友们
 
-**他们说接种疫苗的人不会重病。**
+良心医生推荐的具体解毒方案如下：
 
-**他们说接种疫苗的人不会死亡。**
+打第一针疫苗的前2天：
 
-任何还在信任专家的人都应该得到他们的帮助。我们从一开始就试图用理智、逻辑，和实际统计数据，与他们进行这场对话，**我们应该为我们失去的自由、时间和财富而得到补偿。**
+早上吃A伊维菌素 12mg 2粒；晚上吃C氟伏沙明，医生给的剂量还未问明
 
-医疗行业、公共卫生行业、学术界和政府的合法性已被 Covid 抹去。在“卡内科亚大帝” (KanekoaTheGreat)的这段视频汇编中观看他们的谎言。
+连续吃2天，第3天去打第一针疫苗（有关疫苗良心医生建议打科兴，他说在来治疗疫苗后遗症中，科兴是相对问题较少！刺突蛋白会比较少！）同时继续吃药，合计全程连续吃5天。
 
-新闻来源 :[thegatewaypundit.com] [Double Vaccinated 23-Year-Old Powerlifter Champion with No Underlying Health Condition Dies from COVID-19 in Australia](https://www.thegatewaypundit.com/2022/01/double-vaccinated-23-year-old-powerlifter-champion-no-underlying-health-condition-dies-covid-19-australia/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+以上解疫苗方案属于极其不成熟的一种分享，请读者和自己本地的良心医生联系，作者不承担任何医药和法律的责任。
 
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

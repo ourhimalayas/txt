@@ -2,24 +2,36 @@
 ---
 
 
-## 2022年中共国将有100万辆汽车芯片缺口
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835074/)
+## 世界范围内粮食价格上涨, 中共国百姓面临饥饿
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1835383/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-86.jpg)[图片来源](https://auto.economictimes.indiatimes.com/news/auto-components/chip-shortage-to-cost-automakers-110-billion-in-revenues-in-2021-alixpartners/82625724)
-新浪财经1月7日报道，据香港《南华早报》网站报道，根据世界最大汽车市场的行业联合会预测，随着全球芯片短缺迫使规模较小的汽车制造厂暂停生产，中国蓬勃发展的电动汽车行业可能会在一定程度上陷入冻结。据中国乘用车市场信息联席会（CPCA）说，全球芯片代工厂能够生产足够中国400万辆新能源汽车使用的半导体、单片机和带有人工智能处理器的高端芯片。因此，根据CPCA对2022年中国新能源汽车需求的预测，将出现100万辆汽车的芯片缺口。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+在刚刚过去的2021年世界粮食价格跃升28%，达到十年来的最高水平。而有关专家对今年市场恢复到比较稳定的状态感到希望渺茫。
 
-随着CCP病毒和疫苗灾难在世界肆意横行，扰乱了几家芯片代工厂的生产，从而加剧了对2021年第3季度已经吃紧的半导体供应链的压力。中共国开始受到供应链中断的冲击。而与此同时，中共政府正鼓励车主放弃汽油动力汽车，改用纯电动汽车、插电式混合动力汽车和燃料电池汽车，以帮助中共政府在2060年实现碳中和目标。预计今年新能源汽车销量将翻倍，从2020年的117万辆增至240万辆。
+粮食及农业组织(FAO)的食品价格指数追踪全球交易量最大的食品商品，2021年的平均价格为125.7点，是2011年131.9点以来的最高值。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture2-5.jpg)
+多种数据表明通货膨胀袭卷全球。在所有上涨的商品中食品价格最是涉及民生问题。老百姓能不能填饱肚子直接反应一个国家的基本状态是否稳定。
 
-缺乏现代科学知识的人，被中共独裁者洗脑的国人眼里只有悠久的传统文化，认为自家源远流长的传统文化是世界上最先进的，盛产“小粉红”的地方是不会有芯片的。
+中共国有着世界最多的人口，很多粮食依赖进口。在粮食价格持续飙升的情况下，中共国底层的百姓是最先不能承受重负的。他们面临饥饿。
 
-信息来源：
+郭文贵先生多次在他的直播里提及远离大城市，到小地方甚至农村。在这次由中共放毒导致的疫情中保护好自己，保护好家人。
 
-[芯片短缺有多严重？港媒：中国电动汽车行业可能“陷入冻结”](https://my.mbd.baidu.com/r/zhd7j7xHNK?f=cp&amp;rs=1851166628&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f6e1346face3c6b5)
+参考来源：[世界范围内粮食价格上涨, 中共国百姓面临饥饿](https://www.reuters.com/markets/europe/world-food-prices-hit-10-year-peak-2021-2022-01-06/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=6-1-22&amp;utm_campaign=6-1-22)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

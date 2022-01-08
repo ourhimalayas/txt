@@ -2,19 +2,11 @@
 ---
 
 
-## 樱花灭共诗——观海（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1836419/)
+## 以敌制敌 以共灭共
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1836483/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-普陀观海意，绝顶辨江行。
+台灣寶島農場
 
-西日转东向，乾坤俱倒倾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_8404.jpg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
