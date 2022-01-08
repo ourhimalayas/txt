@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/8/2022 12:17 AM (UTC)`
+
+1/07/2022 Miles Guo: The vaccine mandate will certainly be terminated by this May; only I have said that what is going on in Xi’an is a COVID vaccine disaster; the CCP may use the Winter Olympics to brag about itself, but it will be slapped in the face after the Olympics; the viruses will inevitably get out of control after they were released, so please take care of yourself<br/><br/>1/07/2022 文贵直播：疫苗强制令在今年5月前必被灭；只有文贵说西安是疫苗灾难；中共会用冬奥会吹牛，但冬奥会结束后就会被疫苗灾难和国内乱局打脸；病毒被释放后必定失控，请多保重<br/>
+![img](https://media.gettr.com/group10/getter/2022/01/08/00/9f84b7a1-2f00-0726-c533-34bdbecd7297/out.jpg)
+
+---
+
 `@miles 1/7/2022 11:39 PM (UTC)`
 
 1/07/2022 Miles Guo: Countries that implement vaccine mandate are controlled by a political party that controls the government and legislature and uses the same trick to push COVID vaccines that all the vaccine manufacturers are not responsible for; taking preventative measures is more important than the antidote; the vaccine mandate is bound to fail given the public opinions in the United States!<br/><br/>1/07/2022 文贵直播：推行强制疫苗政策的国家都是由一个政党控制了政府和立法机构，用同一套路推疫苗，所有疫苗厂商都不负责；防范比解药更重要；民意决定了强制疫苗在美国行不通！<br/>
@@ -146,13 +153,6 @@
 
 Who's Miles Guo Episode 2 Artemisinin and Ivermectin<br/>谁是郭文贵 2 青蒿素和伊维菌素
 ![img](https://media.gettr.com/group28/origin/2022/01/07/02/350577a6-c177-02b1-639e-6b18e8163a0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/7/2022 2:03 AM (UTC)`
-
-1/06/2022 Miles Guo has accurately predicted the promotion of Chen Quanguo for the third time， which verifies his source again! Chen Quanguo has been bribing senior CCP cadres and their families every year, and this time he has been promoted instead of being demoted. As a result, he will successfully enter the core of CCP’s leadership and will become the Secretary of the Central Commission for Discipline and Inspection in the 20th National People’s Congress. There will be a huge change in the senior leadership of the CCP!<br/><br/>1/06/2022 文贵第三次准确地说出陈全国的仕途升迁，再次验证了文贵的情报！陈全国每年贿赂中共高官及其家族，这次他不降反升而顺利进入中共权力核心，他将在20届人大当上中纪委书记，中共高层会有大变！
-![img](https://media.gettr.com/group28/getter/2022/01/07/02/cd3eb79d-becc-6efd-d7d3-d778a1f6dc05/out.jpg)
 
 ---
 
