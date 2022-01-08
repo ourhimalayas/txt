@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/8/2022 5:28 AM (UTC)`
+
+1/07/2022 Miles Guo: The riots in Kazakhstan is an inevitable result of communism harming the world; behind the corruption of the Nazarbayev’s family is the CCP evil deeds of controlling Central Asia and Eastern Europe via the BGY scheme; What happened with Nazarbayev is a milestone for the New Federal State of China to participate in the affairs of Eastern Europe<br/><br/>1/07/2022 文贵直播：哈萨克斯坦的事件是共产主义祸害世界的必然；纳扎尔巴耶夫家族腐败的背后是中共用蓝金黄控制中亚和东欧；纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑<br/>
+![img](https://media.gettr.com/group7/getter/2022/01/08/05/e79c2d01-918c-1b0e-8f35-8e506a1b16c2/out.jpg)
+
+---
+
 `@miles 1/8/2022 5:18 AM (UTC)`
 
 1/07/2022 Miles Guo: The CCP has never anticipated that its use of debts to hold hostage the global economy and creating a financial crisis via the collapse of its real estate would propel humanity to an unprecedented massive economic rebound and advancement of civilization; the GETTR Pay's digital currency mogul praised the Himalaya Coin and the Himalaya Exchange<br/><br/>1/07/2022 文贵直播：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步；GETTR Pay的数字货币大佬对喜币和喜联储大加赞赏
@@ -147,12 +154,6 @@
 
 2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产
 ![img](https://media.gettr.com/group23/origin/2022/01/07/12/c14edef4-6eb0-b108-4fd9-6a8fc59d7d11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/7/2022 5:07 AM (UTC)`
-
-1月6号，Hcoin To the Moon MV上线第28天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿， 芬兰🇫🇮iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，新西兰，芬兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1829703/<br/><br/>Jan 6th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 28th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on New Zealand 🇳🇿 , Finland 🇫🇮 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, New Zealand, and Finland.🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1829704/
 
 ---
 
