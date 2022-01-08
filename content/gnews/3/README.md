@@ -2,25 +2,27 @@
 ---
 
 
-## 没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837901/)
+## 巴西总统反对儿童接种中共病毒疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837945/)
 
-作者：David Henry 、Noor Zainab Hussain，Anirban Sen
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AP20281805134503-edited.jpg)图片来源：网络
+巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）抨击了为儿童接种疫苗的举动。 周四，他批评了巴西卫生部长为 5 至 11 岁儿童接种疫苗的计划。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-08-174935.png)图片来源：网络
-1 月 7 日路透社：在 1 月 14 日之前未接种 COVID-19 疫苗的美国花旗集团 (CN) 员工将休无薪假并在月底被解雇，除非他们获得豁免，根据路透社周五看到的一份公司备忘录。
+总统本人对不接种疫苗持开明态度，他在接受采访时说，由于疫苗副作用不明，他 11 岁的女儿不会接种疫苗。
 
-**评：**人类的历史告诉我们，当无知和恐惧占据上风，人们往往会做出错误的选择甚至是疯狂的行为。这次中共病毒大流行再次给世人展示了这样活生生的现实！权威的伪科学和贪婪的资本更使疫苗灾难荼毒全球。许多人们丧失了基本的常识与心智，盲从跟风和崇拜科学导致自身灾难的发生却全然不知，可悲可叹！
+博尔索纳罗还表示，如果政府真的关心人们的健康，他们就会担心其他疾病。 他强调不会强制接种疫苗。
 
-来源链接：[https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/](https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/)
+“疫苗不能保证你不会感染病毒，疫苗不能保证你会感染病毒，”博尔索纳罗说。 “就像它没有说明你是否可以免于死亡一样。 去年，我们有一位巴西著名歌手在接种第二剂 冠状病毒疫苗后死亡。”
+
+该国卫生部宣布，将在本月底分发 2000 万支辉瑞儿科疫苗。
+
+原文链接: [https://www.oann.com/brazilian-president-bolsonaro-says-kids-should-not-be-vaccinated/](https://www.oann.com/brazilian-president-bolsonaro-says-kids-should-not-be-vaccinated/)
 
 编辑/发布：LILY
 
 20220108
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
 
 
  

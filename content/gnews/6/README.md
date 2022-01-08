@@ -2,26 +2,31 @@
 ---
 
 
-## 德克萨斯州的国民警卫队成员拒绝接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1837816/)
+## 罗恩·德桑蒂斯：疫苗护照创造了一个两个阶层的社会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1837905/)
 
-**据《美联社》 2022年1月4日报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a89gx-mx5dx-5.jpg)图片来源：网络
-德克萨斯州奥斯汀——德克萨斯州官员周二表示，在反对拜登政府命令的最新挑战中，数千名国民警卫队成员拒绝接种 COVID-19 疫苗，该命令要求所有军队成员都必须接种疫苗。
+**据《布雷巴特新闻》作者：HANNAH BLEAU，2022年1月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a89gx-mx5dx-7.jpg)
+佛罗里达州州长罗恩-德桑蒂斯周三批评了疫苗强制规定，警告说它们创造了一个“基于个人健康决定的两个阶层社会”。
 
-德克萨斯州总检察长肯·帕克斯顿（Ken Paxton）提起诉讼是在联邦法官驳回俄克拉荷马州州长提出的类似挑战一周后提出的，当时共和党越来越反对为国民警卫队成员接种疫苗。
+疫苗护照是对人的歧视，并在个人健康决定的基础上创造了一个两个阶层社会。德桑蒂斯周三在社交媒体上发布了他在本周的新闻发布会上的讲话视频，他说：“疫苗护照不告而败，并在这个过程中损害了社会。”
 
-德克萨斯州拥有超过20,000名国民警卫队成员，是所有州中人数最多的一支。根据在东德克萨斯州联邦法院提起的诉讼，目前约有40%的陆军国民警卫队拒绝接受 COVID-19疫苗接种，“无论是出于宗教豁免需求还是其他原因”。
+疫苗护照至今是多大的失败？他说：“如果疫苗护照成功了，你就不会看到在很多实施疫苗护照的州看到的这些东西了。值得注意的是，包括纽约州在内的纽约市——是美国最具强制性的强制规定的所在地之一——在人均冠状病毒病例的日均值方面领先于美国其他地方。”
 
-它补充说，德州警卫队的200多名飞行员也拒绝接种疫苗。
+“疫苗护照所起到的作用是基于个人选择而歧视人们，创造一个两个阶层社会，是的，他们正在行动……更新的消息说，在某些地方，他们会说你需要第三针才行。这些政策没有发挥作用。”州长继续说，从2020年7月到2021年7月，佛罗里达州“是全美国人民最想来的地方”。
 
-国防部长劳埃德·奥斯汀（ Lloyd Austin）决定强制所有军队成员接种疫苗的其他挑战正在其他地方上演。周一，德克萨斯州的另一位联邦法官批准了一项初步禁令，阻止海军对35名因宗教原因拒绝遵守该命令的水手采取行动。
+他补充说，“我认为这是保护人们的自由和确保我们有一个值得居住州的结果。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1unknown.png)
+11月，德桑蒂斯签署了保护弗洛里达人的工作不受疫苗任务影响的立法，并将其描述为“全国各地在这方面颁布的最强有力的立法”。
 
-**文章来源：**[https://www.havasunews.com/nation/live-updates-national-guard-members-in-texas-refuse-vaccine/article\_60fbeb88-02f2-565c-91e5-76ef59e0ce93.html](https://www.havasunews.com/nation/live-updates-national-guard-members-in-texas-refuse-vaccine/article_60fbeb88-02f2-565c-91e5-76ef59e0ce93.html)
+他当时说：“我们认识到，与你所看到的一些联邦政府和其它州强制规定不同是，我们实际上在做一个基于科学的方法，例如，我们承认那些有自然免疫力的人。”
+他还指出，“在这一点上非常清楚，COVID疫苗并不能预防感染。”
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 –柯镇恶
+**原文连接：**[https://www.breitbart.com/politics/2022/01/05/ron-desantis-vaccine-passports-create-a-two-tiered-society/](https://www.breitbart.com/politics/2022/01/05/ron-desantis-vaccine-passports-create-a-two-tiered-society/)
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场- 好人好报
+编辑：洛杉矶盘古农场-柯镇恶
 发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

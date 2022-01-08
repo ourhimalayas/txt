@@ -2,45 +2,40 @@
 ---
 
 
-## 美国月度贸易逆差飙升至接近历史新高
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1836791/)
+## 郭文贵先生谈自信的三大要素
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836966/)
 
-编译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-20.jpg)2021 年 4 月 9 日，在迈阿密港口的起重机附近看到货物集装箱堆放。（Wilfredo Lee / AP）
-美国 11 月贸易逆差飙升至接近历史新高的 802 亿美元，原因是出口放缓，同时进口大幅跃升。
+作者：纽约香草山农场福音部-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，当在直播中被战友问及如何建立自信心时，郭文贵先生以其丰富的阅历总结出三点要素：
 
-美国商务部周四报告称，11 月赤字比 10 月赤字 672 亿美元高出 19.3%，略低于 9 月创下的 814 亿美元月度纪录。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.jpeg)
 
-11 月，美国人从其他国家购买的商品进口增长 4%，至 3044 亿美元，而美国出口到海外的出口仅增长 0.2% 至 2242 亿美元。
+第一，不求虚荣。一个人想要唯真不破，就不能在乎别人的反应，更不能依赖他人。战友们要做到离开谁都能活得精彩，要勇于活出真实的自己。
 
-到 2021 年前 11 个月，美国的贸易逆差比去年同期高出 28.6%。
+第二，拥有智慧。智者皆是有知识、有能力的人，所以每个人都要努力学习。此外，战友们还要在心中敬畏神。当一个人的知识和能力与日俱增并有信仰支撑时，他的内心会不断强大，这个人就会越来越自信。
 
-2020 年全年，美国贸易逆差为 6767 亿美元，比 2019 年略高 0.1%。
+第三，满有爱心。战友们不要在乎别人对自己的攻击，当然更不要攻击他人。相反的，大家内心要充满对人与万物的爱，且不求自己的利益，只是利他。而一个利他的人必是信心满满的，这个人也注定能成功。
 
-11 月份对中共国具有政治敏感性的商品逆差增长 2.9% 至 323 亿美元，今年前 11 个月与 2020 年同期相比增长 12.8%
+郭先生还补充道，反观中共，其为了虚名不择手段，又为了保住自己的权利控制网络媒体，把人民变成瞎子、聋子，让他们看不到真相、听不见真理。对此，郭先生表示，中共是最不自信的，他们以谎言愚民、以黑帮手段让人民惧怕，更建立防火墙不让人民了解世界。然而，中共奴役人民、辖制人民、残害人民，这让中共成为人民的公敌，因此中共必亡。
 
-世界上最大的两个经济体美国和中共国，在前总统川普的领导下进行了一场有争议的贸易战，川普指责中共的不公平贸易行为已经导致数百万美国人失去工作。两个国家都对其经济竞争对手针锋相对地征收惩罚性关税。
+郭先生也寄语新中国联邦人，做到上述三点，我们将越来越自信、越来越得人心。而今，盖特的成长与强大就是最好的证明。
 
-迄今为止，拜登政府在与中共国的经济往来中采取了更为谨慎的态度。
+参考链接：[https://gettr.com/post/pmcnn12304](https://gettr.com/post/pmcnn12304)
 
-凯投宏观美国高级经济学家迈克尔·皮尔斯（Michael Pierce）表示，11 月贸易逆差的大幅增长意味着，贸易将在 10-12 月季度对美国整体经济构成小幅拖累。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-皮尔斯预测，以国内生产总值衡量的第四季度经济增长将在 4.5% 左右，比第三季度温和的 2.3% 有所改善，但低于对强劲增长的预期。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-其他经济学家更为乐观，预计 10 月至 12 月期间的增长率将在 6% 至 7% 之间。政府将于 1 月 27 日发布其对第四季度 GDP 的首次预测。
-
-**评论：现在才明白文贵先生在美中贸易战之前的警告：滑稽结束。多么滑稽讽刺，美国用两年打与中共打贸易战，征收的惩罚性关税不抵一个苹果公司在中共国投资的一单买卖的零头！不灭中共，世界经济问题无解！何来“乐观”？**
-
-**参考资料：**[westernjournal][US Monthly Trade Deficit Surges to Near-Record High](https://www.westernjournal.com/ap-november-trade-deficit-hits-near-record-high-80-2-billion/?utm_source=Email&amp;utm_medium=newsletter-WJ&amp;utm_campaign=dailyam&amp;utm_content=western-journal&amp;ats_es=%5B-MD5-%5D)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
