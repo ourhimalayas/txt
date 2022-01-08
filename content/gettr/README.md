@@ -19,6 +19,51 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@s7gril 1/5/2022 5:37 PM (UTC)`
+
+EP1: Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles
+![img](https://media.gettr.com/group1/origin/2022/01/05/17/a7d72764-f9bf-8806-6f74-c6bbd01deaa9/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/6/2022 11:14 AM (UTC)`
+
+EP3-Part 1:Who is Isobel Yeung? #whoisisabelyeung Let's tear down the monstrous lies of this despicable  #HBO #VICE production with TRUTH!  第三集第一节：谁是伊莎贝尔 杨？让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #whoisisabelyeung
+![img](https://media.gettr.com/group39/origin/2022/01/06/11/09b67a81-00a3-9aab-f3c4-17981d1a5564/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/7/2022 3:50 AM (UTC)`
+
+EP3-Part 2: Undercover or Not? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第二节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #undercoverornot
+![img](https://media.gettr.com/group46/origin/2022/01/07/03/35722c67-5e16-321a-916c-0cad56dc5892/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/8/2022 6:12 PM (UTC)`
+
+EP3-Part 3: How does Isobel see Uyghurs? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第三节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #uyghurgenocide
+![img](https://media.gettr.com/group13/origin/2022/01/08/18/d14843f2-2fd9-d56c-4f68-d3539f44ad5d/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/5/2022 5:42 PM (UTC)`
+
+EP2: Who is Miles Guo? What has the CCP done to Miles? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #whoismilesguo
+![img](https://media.gettr.com/group41/origin/2022/01/05/17/313b91d7-15e4-02fd-6839-76b319d0d39b/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@jockowillink 1/5/2022 4:43 AM (UTC)`
 
 Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>  https://gettr.com/user/Jockowillink
@@ -120,41 +165,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥8
 ![img](https://media.gettr.com/group2/getter/2022/01/07/18/0b004519-0cec-c8cb-903b-5f6dd5b971b7/f520b3af805afd2d0261fd0e9dbbf6b5.jpg)
-
----
-
-`@miles 1/7/2022 6:50 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥7
-![img](https://media.gettr.com/group20/getter/2022/01/07/18/f6eb218c-fd9d-9864-8d4e-8226d486b5f3/5ba97afdcb2bb1ebd6288af69966046e.jpg)
-
----
-
-`@miles 1/7/2022 6:48 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥6
-![img](https://media.gettr.com/group43/getter/2022/01/07/18/298fa1f7-c4c9-5146-9642-6047564937b9/f1332e817e19670043b843ebaea7c9b4.jpg)
-
----
-
-`@miles 1/7/2022 6:46 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥5
-![img](https://media.gettr.com/group38/getter/2022/01/07/18/87386d0e-e8f5-2313-b582-2cd5019b2eae/c289c2aa29d3a8b0938cc32ed4d2b5a3.jpg)
-
----
-
-`@miles 1/7/2022 6:43 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥4
-![img](https://media.gettr.com/group22/getter/2022/01/07/18/5385c7d3-2124-7873-a105-b6e91e9f178e/253224e55bef7c2f5a1262880a58754b.jpg)
-
----
-
-`@miles 1/7/2022 6:42 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥3
-![img](https://media.gettr.com/group28/getter/2022/01/07/18/bd87e791-d729-5e61-fa0f-5a509dc155e8/d525dd1e8e3ba8c2d155a7612e934a00.jpg)
 
 ---
 
