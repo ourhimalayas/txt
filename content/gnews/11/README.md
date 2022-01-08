@@ -2,36 +2,25 @@
 ---
 
 
-## 哈萨克斯坦动乱的真正原因是什么？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1835025/)
+## 朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835075/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-24.jpg)[图片来源](https://ucpnz.co.nz/2022/01/07/%E6%9C%9D%E9%B2%9C%E6%AD%A3%E5%BC%8F%E5%91%8A%E7%9F%A5%E7%BC%BA%E5%B8%AD2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E3%80%80%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E8%A1%A8%E6%80%81/)
+据朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京2022年冬季奥运会及冬季残疾人奥运会组委会、中国国家体育总局致信函。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/哈萨克斯坦动乱.jpeg)新闻来源：直新闻
+信函称，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持和声援中国要举办一届隆重精彩的奥运盛会的一切事宜。信函表示，朝鲜坚信兄弟的中国人民和运动员将战胜一切妨碍活动和困难，成功举办北京冬奥会。
 
+对于朝鲜这个小弟不参加冬奥会，中共内心恼怒，面上还得应付，因为一开骂就更加暴露自己的众叛亲离，只能表示感谢和理解！
 
-编译：小红帽
+信息来源：
 
-根据《国家利益》1月7日报道， 本周初，哈萨克斯坦西部的扎瑙岑镇爆发了大规模抗议活动，表面上看是由燃料价格的大幅上涨引发的。
+[朝鲜：因全球疫情等原因无法参加北京冬奥会](https://news.sina.com.cn/c/2022-01-07/doc-ikyakumx8799639.shtml)
 
-哈萨克斯坦总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）最初以安抚的方式做出回应，对燃料和其他商品实施临时价格管制，但抗议活动迅速升级为全国紧急状态。哈萨克斯坦各地的政府大楼和警察局遭到袭击和纵火，该国最大的机场被短暂接管。
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-据报道，至少有18名哈萨克斯坦安全人员被政府描述为外国训练的“恐怖团伙”杀害。抗议者的全部目的仍不确定。最近，扎瑙岑的几千名抗议者提出了被《华盛顿邮报》称为 “迄今为止最具体的要求清单”，包括将托卡耶夫赶下台，扩大对公民权利的保护，以及恢复被认为更加民主的1993年版哈萨克斯坦宪法。但是，目前还不清楚这些特定人群的要求是否可以被解读为整个抗议运动目标的准确代表。
-
-据称，**哈萨克斯坦官员与中国相关人员合作，有效地封锁了所有互联网接入，以阻止抗议者组织起来。**北京当局是哈萨克斯坦能源行业的主要投资者，在整个抗议活动期间，北京发表声明，对托卡耶夫给予强烈的支持。
-
-中国领导人习近平表示：“中国愿意向哈萨克斯坦提供必要的支持，帮助哈萨克斯坦渡过难关。无论遇到什么风险和挑战，中国都是哈萨克斯坦值得信赖的朋友和可靠的伙伴。”
-
-新闻来源：[What’s Really Behind the Unrest in Kazakhstan? | The National Interest](https://nationalinterest.org/feature/what%E2%80%99s-really-behind-unrest-kazakhstan-199243)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
