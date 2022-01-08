@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/8/2022 8:04 AM (UTC)`
+
+1/07/2022 Miles Guo: The photo of my younger brother and I that was taken over 40 years ago touched me deeply, and I burst into tears; the proportion of falsified data of the Hong Kong stock market and the real estate in Hong Kong and mainland China has jumped to 35%; I have rewritten the rules of the game for digital currencies; the demise of the CCP will lead to the boom of digital currencies<br/><br/>1/07/2022 文贵直播：40多年前和八弟的照片让文贵感触颇深、潸然泪下；香港和大陆房地产以及港股数据造假比例跃升至35%；文贵改写了数字货币的游戏规则；中共的灭亡将成就数字货币<br/>
+![img](https://media.gettr.com/group18/getter/2022/01/08/08/1a770c3d-d986-0d34-b565-8dc4ffd8a7ed/out.jpg)
+
+---
+
+`@miles 1/8/2022 8:01 AM (UTC)`
+
+1/07/2022 Miles Guo: Taiwan may trigger the kinetic war between the US and Communist China; Singapore will no longer be ruled by the Lee family; the CCP’s 5-step plan - taking Hong Kong, Afghanistan, the South China Sea, Taiwan, and Kazakhstan; the fact that the intelligence regarding the CCP is absolutely within our reach is a testament of the strength of the Whistleblowers’ Movements<br/><br/>1/07/2022 文贵直播：台湾或引发中美火战；新加坡将不再有李家的家族统治；中共的5步计划 - 拿下香港、阿富汗、南海、台湾和哈萨克斯坦；爆料革命的实力体现在对中共情报的绝对掌握<br/>
+![img](https://media.gettr.com/group1/getter/2022/01/08/08/717d85e9-ab3e-e7cb-1a9f-90934ad7cf63/out.jpg)
+
+---
+
 `@miles 1/8/2022 5:28 AM (UTC)`
 
 1/07/2022 Miles Guo: The riots in Kazakhstan is an inevitable result of communism harming the world; behind the corruption of the Nazarbayev’s family is the CCP evil deeds of controlling Central Asia and Eastern Europe via the BGY scheme; What happened with Nazarbayev is a milestone for the New Federal State of China to participate in the affairs of Eastern Europe<br/><br/>1/07/2022 文贵直播：哈萨克斯坦的事件是共产主义祸害世界的必然；纳扎尔巴耶夫家族腐败的背后是中共用蓝金黄控制中亚和东欧；纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑<br/>
@@ -140,20 +154,6 @@
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥2
 ![img](https://media.gettr.com/group21/getter/2022/01/07/18/763d328a-2811-8da1-c461-fc56d25160d6/2901360fde760e012eda696da0ad7ff5.jpg)
-
----
-
-`@miles 1/7/2022 6:39 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
-![img](https://media.gettr.com/group32/getter/2022/01/07/18/5a64a40a-0f81-47f2-5d44-70d174a3c6c6/c8ca92bc4a7bfbec8720394b210244d9.jpg)
-
----
-
-`@miles 1/7/2022 1:08 PM (UTC)`
-
-2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产
-![img](https://media.gettr.com/group23/origin/2022/01/07/12/c14edef4-6eb0-b108-4fd9-6a8fc59d7d11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
