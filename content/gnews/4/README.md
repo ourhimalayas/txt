@@ -2,120 +2,311 @@
 ---
 
 
-## G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1834994/)
+## 郭文贵先生接受 HBO Vice 采访的真相
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1835120/)
 
-摘要：霖霖霖
+[https://gtv.org/video/id=61d8f991dffab035958c13d8](https://gtv.org/video/id=61d8f991dffab035958c13d8)
 
-校对：面包树
+**郭文贵
+Miles Guo**
 
-编辑：Giselle
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.7.png)
-【话题】
+问题是没有很多证据支持你的观点
+El problema es que no hay muchas evidencias que apoye tu punto
 
-- 朝鲜拒绝参加北京冬奥会
-- 瑞士移交银行客户资料
-- 网传新雅尔塔2.0协定
-- 哈国抗议演变成流血冲突
+例如 新冠病毒是中共实验室制造的
+Por ejemplo, que el COVID-19 es elaborado en el laboratorio del PCCh
 
+目的是消灭大量人口
+El objetivo es acabar con un gran número de personas
 
-【新闻1】
+但这也是为了宣传你所说的…
+Pero esto es también por hacer promover lo que dijiste
 
-网坛名将德约科维奇，因为没有疫苗接种证明，被澳洲当局取消签证并关进隔离酒店。
+伊莎贝拉 你是（新冠病毒）专家吗？
+Isabella ¿tú eres experta (del coronavirus)?
 
-【解读】
+你知道新冠病毒吗？
+¿Tu sabes del coronavirus?
 
-1、澳网公开赛是网球四大满贯赛事之一，德约科维奇曾九次夺得[澳网公开赛](https://www.epochtimes.com/gb/tag/%E6%BE%B3%E7%BD%91%E5%85%AC%E5%BC%80%E8%B5%9B.html)冠军。此次被间接剥夺参赛资格，反响巨大。
+知道什么是新冠病毒吗？
+¿Sabes qué es el coronavirus?
 
-2、德约科维奇前往墨尔本之前曾表示，他已获得维州当局免于接种疫苗的“医疗豁免”，也拿到了合法签证，却被澳洲边防执法局拒绝入境。
+你什么都不知道 对吧？
+No sabes nada ¿cierto?
 
-3、事实证明，澳洲联邦与各州政策自相矛盾，墨尔本是整个澳洲封锁、疫苗强制最黑暗的城市。
+这就是为什么你们媒体可以批判…
+Esto es por qué ustedes los medios pueden criticar
 
-4、澳网1.17日开幕，目前徳约已向联邦巡回法庭提出申诉。如果德约胜诉，对于疫苗团伙将是一次有力的回击；如果德约败诉，势必在网球界，甚至全世界引起巨大反响，对于扩大反疫苗群体的影响力，都是利好。
+这就是为什么你们能在美国大选问题上代表美国人民
+Esto es por qué ustedes pueden representar al pueblo estadounidense en el problema de las elecciones
 
-【新闻2】
+你们可以随便给输赢下定论
+Ustedes pueden sacar conclusiones a su voluntad sobre la victoria o la derrota
 
-澳洲23岁举重运动员詹姆斯·康迪里奥斯在接种两针疫苗后，仍不幸感染病毒在悉尼死亡。
+但你们不能代表（冠状病毒）专家
+Pero ustedes no pueden representar al experto (del coronavirus)
 
-【解读】
+你不是专家
+Tu no eres especialista
 
-疫苗和病毒成了互为二元武器的关系。接种疫苗后更容易感染病毒，更容易变重症、死亡。打了疫苗后要非常警惕，避免感染病毒，积极预防，吃伊维菌素、青蒿素等。
+你的媒体也不是专家
+Tu medio de comunicación tampoco es especialista
 
-【新闻3】
+你连冠状病毒起码的常识都没有
+Tu no tienes ni el mínimo conocimiento básico sobre el coronavirus
 
-美国、法国、加拿大等国家，正在积极推动疫苗护照的普及。
+即使你想在这个问题上做专访
+Así tu quieras hacer una entrevista en este problema
 
-【解读】
+你也得先花10年时间去学习冠状病毒
+También debes gastar 10 años aprendiendo del coronavirus
 
-1、法国和加拿大等国政府，多次对未接种疫苗的民众施压，为未接种者设置更多限制，将他们排除在“生活的基本方面”之外，让未接种者更加举步维艰。
+这就是为什么你们这样的记者是如此可笑
+Esto es por qué reporteros como ustedes tan ridículos
 
-2、疫苗护照可利用生物芯片等科技手段，进一步控制人类的生命和财产安全，如果我们现在不极力反抗，当疫苗护照被大面积成功推行之后，后果将不堪设想。
+你从来不知道什么是冠状病毒
+Tu nunca sabes qué es el coronavirus
 
-【新闻4】
+从来不知道P3实验室在做什么
+Nunca sabes qué hace el laboratorio P3
 
-瑞士联邦税务管理局已经向上百个国家和地区移交了相关银行客户资料，全球最大离岸中心瑞士，放弃了它延续了300多年的银行客户信息保密制度。
+P4实验室在做什么
+Qué hace el laboratorio P4
 
-【解读】
+你知道他们在哪吗？
+¿Sabes dónde están ubicados?
 
-1、由于美欧的持续施压，瑞士不得不放弃银行客户信息保密制度，这对恐怖分子、顶级富豪、犯罪团伙，尤其是中共盗国贼都是个天大的噩耗。
+看到过（P4实验室）墙上写着的潘多拉盒子吗？
+¿Has visto en la pared (laboratorio P4) tenga escrito caja de Pandora?
 
-2、瑞士严格的保密制度和中立立场，让它成为全球最大的私人财富管理中心，也是全球最安全的洗钱、藏钱天堂，为不义之财保驾护航长达300多年。
+你看见全世界有百万专家相信病毒不是源于自然吗？
+¿Has visto que los millones de científicos en el mundo creen en que el virus no viene de la naturaleza?
 
-3、瑞银妥协，意味着犯罪分子的藏宝洞已经不安全了，这些人会想办法把钱转移出来。
+我不想讲太多细节
+No quiero hablar de tantos detalles
 
-这个消息，本应带来数字货币的利好，但当天的比特币不涨反跌，显示资本在乱局当中，都想找一个安全的地方避险。当下唯一干净的、安全的资金池，只有喜联储。（Giselle补充：资本只是工具，本身并无属性，如果掌握在邪恶的一方，就能干坏事；如果掌握在正义的一方，就能干好事。）
+如果我要讲能讲10个小时
+Si hablo puedo durar más de 10 horas hablando
 
-【新闻5】
+(2020年) 一月分中共说病毒不是人造
+En enero (2020) el PCCh dijo que el virus no es creado por el hombre
 
-1月5日，朝鲜宣布不参加北京冬奥会，不允许个人运动员参赛，无情打脸中共。
+是源于自然
+Proviene de la naturaleza
 
-【解读】
+他们说没有人传人
+Ellos dicen que no se contagia persona a persona
 
-1、中共官媒称，朝鲜是因为没有参加2020年东京奥运会，而失去了参加冬奥会的资格。
+可防可控
+Es prevenible y controlable
 
-2、金正恩封锁边境，不让运动员出境参赛，表明了金正恩对中共严防死守、与中共划清界限的决心。
+仅仅一周之后我们就在直播里说病毒没有得到控制
+Apenas una semana después dijimos en la transmisión en vivo que el virus no estaba bajo control
 
-3、朝鲜拒绝了中共提供的疫苗，也婉拒了欧美提供的疫苗，显示金正恩不愿对本国民众实施疫苗大屠杀。
+一定有人传人
+Seguro se transmite de persona a persona
 
-4、金正恩也是受害者，常年被媒体抹黑丑化，即使他想当一个正常人，也没有机会。从他不参合疫苗杀人就能看出，他尚未泯灭起码的良知。
+一定会全球大爆发
+Seguro habrá una explosión global
 
-5、我们不要被主流媒体欺骗了，他处决的那些人，跟中共走得太近，是要密谋颠覆他的。当然，手段太残忍。金正恩对中共既恐惧又厌恶，才会做出如此极端的行为。
+随后仅仅一周习近平就改口说存在人传人
+En la semana siguiente, Xi Jinping cambió sus palabras y dijo que había transmisión de persona a persona
 
-6、独裁体制和假的民主体制，都是不好的。北韩周围群狼环伺，中共压在头顶，俄罗斯不肯援手，川普也失势了，金正恩没有太多选择。除非中共灭亡，欧美假的民主体制被推翻，北韩才有机会拥抱民主、自由、开放。
+疫情已失控
+La pandemia ha salido del control
 
-【新闻6】
+这是常识
+Esto es conocimiento básico
 
-网传新雅尔塔2.0协议将被签订。
+如果中共没有制造冠状病毒
+Si el PCCh no creó el virus
 
-【解读】
+他们就对世卫组织和美国人说 请（来调查）吧
+Entonces ellos deben decirle a la OMS y a los estadounidenses, por favor (investigue)
 
-1，此雅尔塔2.0版本基本纯属胡扯，首先美国从阿富汗撤军不是为了对付中共和俄罗斯，尽管这个丢盔卸甲的撤离并不光彩，而且还给塔利班留下了很多精良的武器装备，但这是结束美国长期被战争这个无底洞吞噬国力的不得已的选择。
+他们就会邀请你们HBO去武汉调查
+Ellos los invitará a ustedes HBO a Wuhan para investigar
 
-2、对于黑暗的疫苗团伙来讲，中共就是妥妥的背锅侠，美、俄、中三方坐下来瓜分全球，基本上是不可能的。
+但为什么他们不允许你们去呢？
+¿Pero por qué ellos no les permite ir?
 
-3、这篇文章的作者大卫.派恩，很可能是中共放出来打媒体战的，目的是干扰你的判断力，混淆视听。
+我要跟你讲的事情你根本不懂得什么叫冠状病毒
+Lo que te voy a hablar no entiendes en lo absoluto qué es el coronavirus
 
-4、即使美国想这么干，俄罗斯也不见得会配合。当年的雅尔达会议诞生于“二战”末期，形势已经非常明朗。而目前，第三次世界大战还远远没有结束，“三战”非常特别，不是传统的国与国之间的战争，而是平民与精英、正义与邪恶、独裁与民主之间的战争，涉及面积非常广泛，几乎全球参与，还远远不到坐地分赃的时候。
+跟你讲冠状病毒跟你讲月亮一样 你根本不懂的
+Hablarte del coronavirus es como hablarte de la luna, no lo vas a entender
 
-【新闻7】
+武汉实验室为什么不邀请你去采访呢？
+¿Por qué el laboratorio de Wuhan no te invita a que entrevistes?
 
-哈萨克斯坦和平抗议已经演变成流血冲突，伤亡人数正在上升，哈方已经向俄罗斯集安组织请求协助。
+你怎么不去采访武汉实验室呢？
+¿Por qué no vas y entrevista al laboratorio de Wuhan?
 
-【解读】
+既然不是共产党做的
+Ya que no es hecho por el Partido Comunista
 
-1、哈方与俄罗斯的声明中，均使用了“外来势力煽动的结果、动用了训练有素的部队和借用武力，破坏国家和领土的完整”。这是剑指美国，还是剑指中共？
+他为什么不让你们去采访呢？
+¿Por qué él no les deja ir a entrevistar?
 
-2、在抗议发生后，哈萨克斯坦出现了全国性的互联网通信中断，这种手法没有中共配合，外部恐怖势力是无法做到的。
+他不让任何媒体采访呢？
+¿Por qué él no deja que ningún medio haga entrevista?
 
-3、打砸抢，将和平抗议演变成暴力革命的目的何在？
+既然不是共产党造的
+Ya que no es creado por el Partido Comunista
 
-4、究竟谁是恐怖分子？王毅前脚刚刚离开，哈国就爆发了暴乱。谁在哈国的利益最大？谁最害怕被清算？
+共产党为什么不接受西方的采访了？
+¿Por qué no acepta la entrevista del occidente?
+因为你们死了人
+Porque se les murieron gente
 
-5、中共是哈国暴力冲突最大黑手，目的是制造分裂，推翻现任政府，扶持一个新的傀儡，维护纳扎尔巴耶夫和中共盗国贼的利益。
+你们有资格去采访
+Ustedes tienen el derecho a entrevistar
 
-（文章内容仅代表G时评个人观点）
+为什么不让你们采访
+Por qué no los deja entrevistar
 
-本期链接：https://www.gtv.org/video/id=61d81f0af2fe0449ea1987ab
+为什么不让你们调查
+Por qué no los deja investigar
+
+你为什么不采访共产党？
+¿Por qué tu no entrevista al PCCh?
+
+你不觉得很荒唐吗？
+¿No te parece absurdo?
+
+伊莎贝拉 亲爱的
+Isabella, querida
+
+太荒谬了！
+¡Esto es ridículo!
+
+这些人死了 你不在乎
+Esta gente se muere, no te interesa
+
+你只在乎有多少人看你的节目
+Solo te interesa cuántas personas ve tu programa
+
+我们只是试图找出事实罢了
+Nosotros sólo intentamos buscar la realidad
+
+你创造和推广的很多故事都非常令人印象深刻
+Los cuentos que creas y difundes dejas fuerte impresión
+
+而且这些故事可能会传播很多远
+Además, estos cuentos pueden difundirse muy lejos
+你对此感到高兴吗？
+¿Te da felicidad por esto?
+
+你完全错了
+Te equivocas por completo
+
+我不会像你们一样这么low
+Yo no soy como ustedes tan chabacano
+
+你们一生都在为金钱而工作
+Ustedes trabajan por el dinero toda la vida
+
+你们忘了你们是媒体 你们忘了你们是记者
+Ustedes olvidaron que son medios de comunicación, son reporteros
+
+GTV、GNEWS 没有任何广告
+GTV, GNEWS no tienen ninguna publicidad
+
+我根本不在乎谁来看 谁不看
+A mi no me importa quien viene a ver y quien no
+
+我们做的事情是你不懂的
+Lo que nosotros hacemos no lo entiendes
+
+因为你们被金钱埋没了你们的良知和信仰
+Porque sus conciencias y creencias han sido enterrados por el dinero
+
+我们在拯救这个世界
+Nosotros estamos salvando a este mundo
+
+我只想把真相告诉世界
+Yo sólo quiero hacer saber el mundo la verdad
+
+让有良知的人真正的用心来了解
+Dejar que las personas con conciencia realmente comprendan
+
+和想知道冠状病毒是哪来的人
+Y gente que quiera saber de dónde viene el coronavirus
+和知道共产党是怎么在威胁世界
+Saber cómo está amenazando el PCCh al mundo
+
+和像新疆这种大屠杀在进行着
+Así como la masacre de Xinjiang que está en plena marcha
+
+和香港孩子死亡的原因
+Y la razón de la muerte de los niños en Hong Kong
+
+我只希望他们知道这些
+Yo sólo espero que ellos sepan esto
+
+我们做到了
+Nosotros lo logramos
+
+最起码有很多有良知的人还有这些科学家
+Al menos hay mucha gente con conciencia y estos científicos
+
+还有良知的政府
+Hay gobierno con conciencia
+
+像福克斯的这几个主持人玛莉亚、塔克
+Así como estos animadores de Fox: María, Tucker
+
+他们在采访、他们在了解
+Ellos están entrevistando, están investigando
+
+还有一些良知的媒体和记者再去了解这个事情
+Aún hay algunos medios y reporteros concienzudos para entender este asunto
+
+我们不需要你们相信我们
+Nosotros no necesitamos que ustedes crean en nosotros
+
+我们从来不奢求你们这些流氓级的媒体来相信我们
+Nunca les pedimos a los medios sinvergüenzas como ustedes que nos crean
+
+因为你们这帮人就是骗子 就是垃圾
+Porque ustedes son unos mentirosos, son basura
+就是犯罪集团的一部分
+Son parte de una compañía criminal
+
+我们只希望让有良知的人知道就可以了
+Sólo espero que las personas con conciencia sepan
+
+希望你们去调查我们 希望你们不要相信我们
+Espero que ustedes vayan y nos investiguen, espero que ustedes no crean en nosotros
+
+你们根据我们说的话去找到真相就可以了
+Ustedes sólo necesitan buscar la verdad de acuerdo a lo que dijimos y listo
+
+* * *
+
+日期：12/30/2021
+原视频标题：郭文贵先生接受 HBO Vice 采访的真相
+La verdad sobre la entrevista del Sr. Guo Wengui con HBO Vice
+
+VICE采访原片 (1:08:04-1:12:24)
+
+原视频日期：12/23/2021
+原视频网址：[https://gettr.com/streaming/pkexq84603](https://gettr.com/streaming/pkexq84603)
+任务编号：KC401(3352)
+视频时间段：1:08:04-1:12:24
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+
+01：23 一月分 改为一月份
+02：53 传播很多远 改为 传播得很远
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

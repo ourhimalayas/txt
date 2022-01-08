@@ -2,13 +2,13 @@
 ---
 
 
-## 刺突蛋白疫苗违反了美国法律，那是国内恐怖主义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1834727/)
+## 日本新增确诊中共病毒感染比一周前暴增12倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1834777/)
 
-12/27/2021 大卫·马丁博士：刺突蛋白疫苗是勾结的产物，这是敲诈勒索，根据爱国者法案第 802 节，那是国内恐怖主义。这违反了美国法律，利用美国法律明目张胆地注射生物武器。然而美国司法部却坐视不管。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220108-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

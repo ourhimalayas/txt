@@ -2,28 +2,34 @@
 ---
 
 
-## 重庆武隆疑似食堂燃气燃爆事故，16人遇难
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1835061/)
+## 美国法院下令FDA每月公开55000页辉瑞疫苗数据
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1835129/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-10.jpg)重庆武隆疑似食堂燃气燃爆事故，16人遇难 网络图片
-据澎湃新闻1月8日报道，重庆市武隆区凤山街道办事处机关食堂7日发生垮塌，疑似食堂燃气泄漏燃爆。事故发生时，办事处部分职工正在食堂用餐。事故造成26人失联，事后搜救出26人，死亡16人。
+#### 撰稿：日本东京方舟农场  海星
 
-中共国现在到处都是事故，疫苗灾难星火燎原，四处爆发。人员接种疫苗后的副作用，随时也会引发事故。也许这个食堂的工作人员当时突发心梗或者脑梗，无法控制自己触动了紧急阀门，造成燃气泄漏。在中共国全员90%以上接种疫苗的情况下，一切皆有可能。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FA151F87-10BF-47DB-82CF-392A3E380ECF.jpeg)（图片来源：零对冲）
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16196263](https://www.thepaper.cn/newsDetail_forward_16196263)
+据《零对冲》1月7日报道，美国律师亚伦·西里（Aaron Siri）在其博客上披露，法院已下令要求食品和药品监督管理局（FDA）每月公开55000页辉瑞公司申请批准疫苗的文件数据。
+
+亚伦律师之前代表其客户要求FDA对外公开辉瑞公司申请批准新冠（中共病毒）疫苗时提交的所有数据。然而，FDA却向法院提出每月只公布500页数据的要求。若按照此要求，辉瑞疫苗的申请许可资料将需要超过75年的时间才能全部公开。
+
+亚伦律师兴奋地表示，联邦法官拒绝了FDA的要求，并下令其提高效率，每月对外公开55000页辉瑞疫苗的数据。这意味着只需要8个月的时间，民众就能查阅到辉瑞疫苗的所有数据。
+
+《零对冲》的报道指出，此案件的判决将为科学家解决当前疫苗产生的严重问题提供必要的数据，同时消除联邦政府卫生部对科学家研究疫苗问题的禁锢。
+
+据报道，法官在下令FDA及时公布这些文件时表示，对外公开这些数据对公众至关重要，它应该是FDA的最高优先事项之一。 这位法官引用詹姆斯·麦迪逊的话指出：“如果公民没有得到信息，或者没有获取信息的手段，人民的政府就只不过是一场闹剧或悲剧的序幕。”
+
+法官同时还引用了约翰·肯尼迪的名言强调：“一个不敢公开信息让人民判断真假的国家，是一个害怕人民的国家。”
+
+*参考链接：[Judge Rejects FDA’s 75 Year Delay On Vax Data, Cuts To Just 8 Months](https://www.zerohedge.com/covid-19/judge-rejects-fdas-75-year-delay-vax-data-cuts-8-months)*
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*素材采编：海星*
 
+*编辑：青衣青青*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*发布：miumiu*
 
  
 

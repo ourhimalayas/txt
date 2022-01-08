@@ -2,24 +2,37 @@
 ---
 
 
-## 法国总统称未接种疫苗者为 “非公民&#8221;
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834802/)
+## 有声|航空公司支付员工高薪维持假期运营
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834888/)
 
-采编/编译撰稿：自由法兰西        校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-12-edited.jpg)左：总加速师 右：马克红龙 
- 图片来源：DWXW
+配音：香草山教育部 – 百香果
 
 
-据美国媒体《国家脉动》1月4日报道，法国总统马克龙当天表示，应将该国未接种疫苗的民众按照“非公民”人士对待，并通过限制其人身自由和社交活动，来逼迫他们去接种“新冠病毒”疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
 
-据悉，法国议会目前正在讨论通过一项新的防疫法案，即从1月15日起，所有未接种疫苗的人，即使其病毒检测呈阴性也将被禁止进入餐厅、咖啡馆和影剧院等公共商业场所。同时，总统的以上歧视性声明立刻招致反对党领袖勒庞的强烈反对，并谴责马克龙将法国未接种人士视为二等公民的言论违宪。
+据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
 
-报道称，尽管法国目前的疫苗接种率高达90%，但仍然无法阻止“新冠病毒”及其变种疫情在法国的失控蔓延。而各种官方数据则表明，相对未接种者，已接种疫苗的人反而更有可能感染和传播该病毒。
+报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
 
-* * *
+文字版原文：[航空公司支付员工高薪维持假期运营](https://gnews.org/zh-hans/1825387/)
 
-原文链接： [https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/](https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
