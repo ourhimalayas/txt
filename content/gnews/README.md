@@ -15,97 +15,97 @@
 
 ---
 
-### [7.24系列——瑞银集团UBS的斑斑劣迹](/content/gnews/1/README.md)
+### [每时每刻的认知 （六）](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [7.24系列——瑞银集团UBS的斑斑劣迹](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年1月7日郭先生大直播小飞象大雨围城速记：](/content/gnews/2/README.md)
+### [2022年1月7日郭先生大直播小飞象大雨围城速记：](/content/gnews/3/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美最高法院大法官索尼娅否认新冠法规是疫苗强制令](/content/gnews/3/README.md)
+### [美最高法院大法官索尼娅否认新冠法规是疫苗强制令](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [踏雪留痕](/content/gnews/4/README.md)
+### [踏雪留痕](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [美国法院下令FDA每月公开55000页辉瑞疫苗数据](/content/gnews/5/README.md)
+### [美国法院下令FDA每月公开55000页辉瑞疫苗数据](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [巴西出现首个因奥密克戎死亡病例 生前已接种](/content/gnews/6/README.md)
+### [巴西出现首个因奥密克戎死亡病例 生前已接种](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [播客巨星乔·罗根助力,盖特新增一百万新用户](/content/gnews/7/README.md)
+### [播客巨星乔·罗根助力,盖特新增一百万新用户](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/8/README.md)
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国的污染对中国男性健康的摧残](/content/gnews/9/README.md)
+### [中共国的污染对中国男性健康的摧残](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [白宫亚洲事务高官批评习近平对外胁迫扩张对内集权专政](/content/gnews/10/README.md)
+### [白宫亚洲事务高官批评习近平对外胁迫扩张对内集权专政](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”](/content/gnews/11/README.md)
+### [朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年中共国将有100万辆汽车芯片缺口](/content/gnews/12/README.md)
+### [2022年中共国将有100万辆汽车芯片缺口](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重庆武隆疑似食堂燃气燃爆事故，16人遇难](/content/gnews/13/README.md)
+### [重庆武隆疑似食堂燃气燃爆事故，16人遇难](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [哈萨克斯坦动乱的真正原因是什么？](/content/gnews/14/README.md)
+### [哈萨克斯坦动乱的真正原因是什么？](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵直播大事记——朝鲜冬奥不出席，法国密德朗哭泣](/content/gnews/15/README.md)
+### [文贵直播大事记——朝鲜冬奥不出席，法国密德朗哭泣](/content/gnews/16/README.md)
  ` 文贵直播大事记`
 
-### [有声|海外少数民族团体控告中共并抗议冬奥会](/content/gnews/16/README.md)
+### [有声|海外少数民族团体控告中共并抗议冬奥会](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手](/content/gnews/17/README.md)
+### [G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手](/content/gnews/18/README.md)
  ` GISELLE`
 
-### [加拿大人均债务创历史新高](/content/gnews/18/README.md)
+### [加拿大人均债务创历史新高](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [从筷子谈中西方文化差异](/content/gnews/19/README.md)
+### [从筷子谈中西方文化差异](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大BC省医疗系统因奥密克戎而不堪重负](/content/gnews/20/README.md)
+### [加拿大BC省医疗系统因奥密克戎而不堪重负](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [保房价，中共倒台更快](/content/gnews/21/README.md)
+### [保房价，中共倒台更快](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法官驳回FDA对疫苗数据75年的拖延，削减至仅8个月](/content/gnews/22/README.md)
+### [法官驳回FDA对疫苗数据75年的拖延，削减至仅8个月](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大群体免疫力因疫苗而逐渐丧失](/content/gnews/23/README.md)
+### [加拿大群体免疫力因疫苗而逐渐丧失](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|古以色列亡国启示录](/content/gnews/24/README.md)
+### [有声|古以色列亡国启示录](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [1/07/2022 文贵直播： 中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战](/content/gnews/25/README.md)
+### [1/07/2022 文贵直播： 中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/26/README.md)
+### [有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [美国疫苗灾难愈演愈烈](/content/gnews/27/README.md)
+### [美国疫苗灾难愈演愈烈](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [视频| 疫苗灾难&#8211;神，上天，轮回，报应，各有各的福报](/content/gnews/28/README.md)
+### [视频| 疫苗灾难&#8211;神，上天，轮回，报应，各有各的福报](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [‘泄露出的’中共国间谍恶作剧嘲笑美国，引来军情六处处长的罕见回应：‘免费宣传’](/content/gnews/29/README.md)
+### [‘泄露出的’中共国间谍恶作剧嘲笑美国，引来军情六处处长的罕见回应：‘免费宣传’](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|航空公司支付员工高薪维持假期运营](/content/gnews/31/README.md)
+### [有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/31/README.md)
  ` MOSREC`
 
 ### [王力宏为党点赞仍被诛杀，何韵诗一生傲骨获赞无数](/content/gnews/32/README.md)

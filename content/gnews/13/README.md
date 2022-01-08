@@ -2,29 +2,24 @@
 ---
 
 
-## 重庆武隆疑似食堂燃气燃爆事故，16人遇难
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1835061/)
+## 2022年中共国将有100万辆汽车芯片缺口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835074/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-10.jpg)重庆武隆疑似食堂燃气燃爆事故，16人遇难 网络图片
-据澎湃新闻1月8日报道，重庆市武隆区凤山街道办事处机关食堂7日发生垮塌，疑似食堂燃气泄漏燃爆。事故发生时，办事处部分职工正在食堂用餐。事故造成26人失联，事后搜救出26人，死亡16人。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-86.jpg)[图片来源](https://auto.economictimes.indiatimes.com/news/auto-components/chip-shortage-to-cost-automakers-110-billion-in-revenues-in-2021-alixpartners/82625724)
+新浪财经1月7日报道，据香港《南华早报》网站报道，根据世界最大汽车市场的行业联合会预测，随着全球芯片短缺迫使规模较小的汽车制造厂暂停生产，中国蓬勃发展的电动汽车行业可能会在一定程度上陷入冻结。据中国乘用车市场信息联席会（CPCA）说，全球芯片代工厂能够生产足够中国400万辆新能源汽车使用的半导体、单片机和带有人工智能处理器的高端芯片。因此，根据CPCA对2022年中国新能源汽车需求的预测，将出现100万辆汽车的芯片缺口。
 
-中共国现在到处都是事故，疫苗灾难星火燎原，四处爆发。人员接种疫苗后的副作用，随时也会引发事故。也许这个食堂的工作人员当时突发心梗或者脑梗，无法控制自己触动了紧急阀门，造成燃气泄漏。在中共国全员90%以上接种疫苗的情况下，一切皆有可能。
+随着CCP病毒和疫苗灾难在世界肆意横行，扰乱了几家芯片代工厂的生产，从而加剧了对2021年第3季度已经吃紧的半导体供应链的压力。中共国开始受到供应链中断的冲击。而与此同时，中共政府正鼓励车主放弃汽油动力汽车，改用纯电动汽车、插电式混合动力汽车和燃料电池汽车，以帮助中共政府在2060年实现碳中和目标。预计今年新能源汽车销量将翻倍，从2020年的117万辆增至240万辆。
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16196263](https://www.thepaper.cn/newsDetail_forward_16196263)
+缺乏现代科学知识的人，被中共独裁者洗脑的国人眼里只有悠久的传统文化，认为自家源远流长的传统文化是世界上最先进的，盛产“小粉红”的地方是不会有芯片的。
 
-* * *
+信息来源：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[芯片短缺有多严重？港媒：中国电动汽车行业可能“陷入冻结”](https://my.mbd.baidu.com/r/zhd7j7xHNK?f=cp&amp;rs=1851166628&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f6e1346face3c6b5)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

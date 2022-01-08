@@ -2,311 +2,50 @@
 ---
 
 
-## 郭文贵先生接受 HBO Vice 采访的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1835120/)
+## 播客巨星乔·罗根助力,盖特新增一百万新用户
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1835121/)
 
-[https://gtv.org/video/id=61d8f991dffab035958c13d8](https://gtv.org/video/id=61d8f991dffab035958c13d8)
+#### 【雅典娜观察】和你一起探究世界
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/gm-2.jpg)图片来源：墨尔本雅典娜农场设计组
 
-问题是没有很多证据支持你的观点
-El problema es que no hay muchas evidencias que apoye tu punto
 
-例如 新冠病毒是中共实验室制造的
-Por ejemplo, que el COVID-19 es elaborado en el laboratorio del PCCh
+#### 整理报道：文扬
+编辑：文泓
 
-目的是消灭大量人口
-El objetivo es acabar con un gran número de personas
+当地时间1月7日，据《华盛顿邮报》报道，前总统川普顾问杰森·米勒的社交媒体应用盖特（Gettr），在播客巨星乔·罗根加入后的几天内，已有超过100万新用户完成注册。
 
-但这也是为了宣传你所说的…
-Pero esto es también por hacer promover lo que dijiste
+根据盖特公司与《邮报》独家分享的数据，作为一个吸引保守派用户替代推特的社交媒体，盖特在周五上午（近一周下载量）达到了100万次大关，这距离罗根周日在该网站上发表第一篇文章还不到一个星期。据盖特发言人埃博尼·鲍登说，这使得该网站的用户总数超过了400万。
 
-伊莎贝拉 你是（新冠病毒）专家吗？
-Isabella ¿tú eres experta (del coronavirus)?
+目前，播客巨星罗根仍然保留着一个推特账户，他加入盖特是因为担心推特审查制度，因为推特周日禁止了佐治亚州众议员马乔里·泰勒·格林账户，称她多次分享关于新冠疫苗的错误信息。在被禁之前，泰勒·格林在推特上说，“大量的冠状病毒疫苗死亡事件被（政府）忽视”，并呼吁食品和药物管理局不要批准冠状病毒疫苗。
 
-你知道新冠病毒吗？
-¿Tu sabes del coronavirus?
+“为了预防万一——在推特变得更蠢以前，我现在也在这里了。让我们欢呼吧！”罗根在他的第一个盖特帖子中写道。
 
-知道什么是新冠病毒吗？
-¿Sabes qué es el coronavirus?
+仅在1月3日，盖特注册用户就达到了343,000，这是该网站自7月推出以来的最大单日注册量。鲍登说，罗根加入该网站，盖特没有支付费用。
 
-你什么都不知道 对吧？
-No sabes nada ¿cierto?
+在米勒没能争取到唐纳德·川普（加盟）之后，罗根的加入是盖特及时的胜利。而川普在去年10月表示，他计划推出自己的网站，名为真相（TRUTH Social）。
 
-这就是为什么你们媒体可以批判…
-Esto es por qué ustedes los medios pueden criticar
+然而，迄今为止，“真相”开局并不顺利。川普团队说，测试版将在11月上线，然后在2022年第一季度更广泛地发布。但据媒体报道，该网站的多个光秃秃的测试版已在网上泄露，让黑客和记者能够挖出川普自己的用户名。
 
-这就是为什么你们能在美国大选问题上代表美国人民
-Esto es por qué ustedes pueden representar al pueblo estadounidense en el problema de las elecciones
+**“真相”**的挣扎使得盖特足以吸引其潜在的用户。最近几周，包括作家乔丹·彼得森、政治评论员戴夫·鲁宾和《纽约邮报》专栏作家卡罗尔·马科维奇和萨莱娜·齐托在内的其他保守派人士也加入了该网站。
 
-你们可以随便给输赢下定论
-Ustedes pueden sacar conclusiones a su voluntad sobre la victoria o la derrota
+对于保守派来说，该网站的主要卖点是其较宽松的内容审核政策。盖特说，它允许所有关于政治和疫苗的观点，包括那些其他网站的事实核查员会标记为错误的观点。然而，该网站不允许公开的白人至上主义，最近还禁止了白人民族主义“团结右翼”组织者尼克·富恩特斯（加入）。
 
-但你们不能代表（冠状病毒）专家
-Pero ustedes no pueden representar al experto (del coronavirus)
+同时，盖特也在向海外扩张。截至周五，该公司称其在美国有220万用户，其次是巴西的50万用户，以及在英国、德国和法国的重要用户群。相比之下，推特在美国拥有约7800万日活跃用户，在全球拥有2.06亿。
 
-你不是专家
-Tu no eres especialista
+米勒对《邮报》说：“**这些数字证明，社交媒体用户开始对硅谷高管日益严厉的审查制度有所觉醒，并渴望获得替代方案。我们欢迎来自各种意识形态和背景的人在我们的平台上自由表达自己。**”
 
-你的媒体也不是专家
-Tu medio de comunicación tampoco es especialista
+**盖特从郭文贵家族控制的投资基金处获得了资金。郭文贵是一名成功的商人，自****2014****年逃离中国，与前总统川普顾问史蒂夫·班农关系密切。**据米勒称，该公司还有其他未透露姓名的支持者，截至9月，已经筹集了约7500万美元的资金。
 
-你连冠状病毒起码的常识都没有
-Tu no tienes ni el mínimo conocimiento básico sobre el coronavirus
+原文链接： [Joe Rogan helps Gettr amass a million new users (nypost.com)](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
 
-即使你想在这个问题上做专访
-Así tu quieras hacer una entrevista en este problema
-
-你也得先花10年时间去学习冠状病毒
-También debes gastar 10 años aprendiendo del coronavirus
-
-这就是为什么你们这样的记者是如此可笑
-Esto es por qué reporteros como ustedes tan ridículos
-
-你从来不知道什么是冠状病毒
-Tu nunca sabes qué es el coronavirus
-
-从来不知道P3实验室在做什么
-Nunca sabes qué hace el laboratorio P3
-
-P4实验室在做什么
-Qué hace el laboratorio P4
-
-你知道他们在哪吗？
-¿Sabes dónde están ubicados?
-
-看到过（P4实验室）墙上写着的潘多拉盒子吗？
-¿Has visto en la pared (laboratorio P4) tenga escrito caja de Pandora?
-
-你看见全世界有百万专家相信病毒不是源于自然吗？
-¿Has visto que los millones de científicos en el mundo creen en que el virus no viene de la naturaleza?
-
-我不想讲太多细节
-No quiero hablar de tantos detalles
-
-如果我要讲能讲10个小时
-Si hablo puedo durar más de 10 horas hablando
-
-(2020年) 一月分中共说病毒不是人造
-En enero (2020) el PCCh dijo que el virus no es creado por el hombre
-
-是源于自然
-Proviene de la naturaleza
-
-他们说没有人传人
-Ellos dicen que no se contagia persona a persona
-
-可防可控
-Es prevenible y controlable
-
-仅仅一周之后我们就在直播里说病毒没有得到控制
-Apenas una semana después dijimos en la transmisión en vivo que el virus no estaba bajo control
-
-一定有人传人
-Seguro se transmite de persona a persona
-
-一定会全球大爆发
-Seguro habrá una explosión global
-
-随后仅仅一周习近平就改口说存在人传人
-En la semana siguiente, Xi Jinping cambió sus palabras y dijo que había transmisión de persona a persona
-
-疫情已失控
-La pandemia ha salido del control
-
-这是常识
-Esto es conocimiento básico
-
-如果中共没有制造冠状病毒
-Si el PCCh no creó el virus
-
-他们就对世卫组织和美国人说 请（来调查）吧
-Entonces ellos deben decirle a la OMS y a los estadounidenses, por favor (investigue)
-
-他们就会邀请你们HBO去武汉调查
-Ellos los invitará a ustedes HBO a Wuhan para investigar
-
-但为什么他们不允许你们去呢？
-¿Pero por qué ellos no les permite ir?
-
-我要跟你讲的事情你根本不懂得什么叫冠状病毒
-Lo que te voy a hablar no entiendes en lo absoluto qué es el coronavirus
-
-跟你讲冠状病毒跟你讲月亮一样 你根本不懂的
-Hablarte del coronavirus es como hablarte de la luna, no lo vas a entender
-
-武汉实验室为什么不邀请你去采访呢？
-¿Por qué el laboratorio de Wuhan no te invita a que entrevistes?
-
-你怎么不去采访武汉实验室呢？
-¿Por qué no vas y entrevista al laboratorio de Wuhan?
-
-既然不是共产党做的
-Ya que no es hecho por el Partido Comunista
-
-他为什么不让你们去采访呢？
-¿Por qué él no les deja ir a entrevistar?
-
-他不让任何媒体采访呢？
-¿Por qué él no deja que ningún medio haga entrevista?
-
-既然不是共产党造的
-Ya que no es creado por el Partido Comunista
-
-共产党为什么不接受西方的采访了？
-¿Por qué no acepta la entrevista del occidente?
-因为你们死了人
-Porque se les murieron gente
-
-你们有资格去采访
-Ustedes tienen el derecho a entrevistar
-
-为什么不让你们采访
-Por qué no los deja entrevistar
-
-为什么不让你们调查
-Por qué no los deja investigar
-
-你为什么不采访共产党？
-¿Por qué tu no entrevista al PCCh?
-
-你不觉得很荒唐吗？
-¿No te parece absurdo?
-
-伊莎贝拉 亲爱的
-Isabella, querida
-
-太荒谬了！
-¡Esto es ridículo!
-
-这些人死了 你不在乎
-Esta gente se muere, no te interesa
-
-你只在乎有多少人看你的节目
-Solo te interesa cuántas personas ve tu programa
-
-我们只是试图找出事实罢了
-Nosotros sólo intentamos buscar la realidad
-
-你创造和推广的很多故事都非常令人印象深刻
-Los cuentos que creas y difundes dejas fuerte impresión
-
-而且这些故事可能会传播很多远
-Además, estos cuentos pueden difundirse muy lejos
-你对此感到高兴吗？
-¿Te da felicidad por esto?
-
-你完全错了
-Te equivocas por completo
-
-我不会像你们一样这么low
-Yo no soy como ustedes tan chabacano
-
-你们一生都在为金钱而工作
-Ustedes trabajan por el dinero toda la vida
-
-你们忘了你们是媒体 你们忘了你们是记者
-Ustedes olvidaron que son medios de comunicación, son reporteros
-
-GTV、GNEWS 没有任何广告
-GTV, GNEWS no tienen ninguna publicidad
-
-我根本不在乎谁来看 谁不看
-A mi no me importa quien viene a ver y quien no
-
-我们做的事情是你不懂的
-Lo que nosotros hacemos no lo entiendes
-
-因为你们被金钱埋没了你们的良知和信仰
-Porque sus conciencias y creencias han sido enterrados por el dinero
-
-我们在拯救这个世界
-Nosotros estamos salvando a este mundo
-
-我只想把真相告诉世界
-Yo sólo quiero hacer saber el mundo la verdad
-
-让有良知的人真正的用心来了解
-Dejar que las personas con conciencia realmente comprendan
-
-和想知道冠状病毒是哪来的人
-Y gente que quiera saber de dónde viene el coronavirus
-和知道共产党是怎么在威胁世界
-Saber cómo está amenazando el PCCh al mundo
-
-和像新疆这种大屠杀在进行着
-Así como la masacre de Xinjiang que está en plena marcha
-
-和香港孩子死亡的原因
-Y la razón de la muerte de los niños en Hong Kong
-
-我只希望他们知道这些
-Yo sólo espero que ellos sepan esto
-
-我们做到了
-Nosotros lo logramos
-
-最起码有很多有良知的人还有这些科学家
-Al menos hay mucha gente con conciencia y estos científicos
-
-还有良知的政府
-Hay gobierno con conciencia
-
-像福克斯的这几个主持人玛莉亚、塔克
-Así como estos animadores de Fox: María, Tucker
-
-他们在采访、他们在了解
-Ellos están entrevistando, están investigando
-
-还有一些良知的媒体和记者再去了解这个事情
-Aún hay algunos medios y reporteros concienzudos para entender este asunto
-
-我们不需要你们相信我们
-Nosotros no necesitamos que ustedes crean en nosotros
-
-我们从来不奢求你们这些流氓级的媒体来相信我们
-Nunca les pedimos a los medios sinvergüenzas como ustedes que nos crean
-
-因为你们这帮人就是骗子 就是垃圾
-Porque ustedes son unos mentirosos, son basura
-就是犯罪集团的一部分
-Son parte de una compañía criminal
-
-我们只希望让有良知的人知道就可以了
-Sólo espero que las personas con conciencia sepan
-
-希望你们去调查我们 希望你们不要相信我们
-Espero que ustedes vayan y nos investiguen, espero que ustedes no crean en nosotros
-
-你们根据我们说的话去找到真相就可以了
-Ustedes sólo necesitan buscar la verdad de acuerdo a lo que dijimos y listo
-
-* * *
-
-日期：12/30/2021
-原视频标题：郭文贵先生接受 HBO Vice 采访的真相
-La verdad sobre la entrevista del Sr. Guo Wengui con HBO Vice
-
-VICE采访原片 (1:08:04-1:12:24)
-
-原视频日期：12/23/2021
-原视频网址：[https://gettr.com/streaming/pkexq84603](https://gettr.com/streaming/pkexq84603)
-任务编号：KC401(3352)
-视频时间段：1:08:04-1:12:24
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-
-01：23 一月分 改为一月份
-02：53 传播很多远 改为 传播得很远
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
