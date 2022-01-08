@@ -2,46 +2,34 @@
 ---
 
 
-## 法官判決FDA在8个月内公布辉瑞疫苗数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836322/)
+## 大直播后记：共产党让你永远活在一个噩梦中
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1836377/)
 
-作者：银河勇气星 骄子
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-据美国媒体1月6日报道，一位联邦法官拒绝了FDA此前关于辉瑞公司中共病毒疫苗数据的公布时间线。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.44.08-PM-1.png)
-
-据悉，2021年9月，耶鲁大学、哈佛大学、加州大学洛杉矶分校和布朗大学的30多位教授和科学家对辉瑞公司提起了集体诉讼，当中，原告要求FDA及辉瑞公司公开所有关于中共病毒疫苗的研究数据。
-
-资料显示，FDA原计划每月公布500页辉瑞中共病毒疫苗的相关数据，预计总体数据将需要75年的时间才能被披露完毕。对此，该联邦法官要求FDA改为每月公布五万五千页数据，从而能够在8个月内将全部数据公布完毕。
-
-该法官强调，任何人都不应该被强迫接受不必要的医疗，况且中共病毒疫苗的强制接种已经给民众带来了巨大的健康损害问题，包括免疫力下降、强烈的副作用，甚至死亡等。法官也认为，联邦政府强制民众接种中共病毒疫苗，并忽视大众对信息透明的要求，这已经侵害了美国民众基本的人权。
-
-參考鏈結：
-
-1. [法官駁回FDA對公布輝瑞疫苗數據拖延75年的請求…](https://gettr.com/post/pmsb628311)
-2. [INSTEAD OF FDA’S REQUESTED 500 PAGES PER MONTH, COURT ORDERS FDA TO PRODUCE PFIZER COVID-19 DATA AT RATE OF 55,000 PAGES PER MONTH!](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages)
-3. [Wait what? FDA wants 55 years to process FOIA request over vaccine data](https://www.reuters.com/legal/government/wait-what-fda-wants-55-years-process-foia-request-over-vaccine-data-2021-11-18/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/噩梦-1.png)图片来源：Getty Images
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+整理：雅典娜速记组
+编辑：Mttfly
 
-编辑：飞虹
-总编：Irene木木 
-校正/发稿：我不在这里
+**2022年1月5日文贵大直播**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+共产党就让你永远活在一个噩梦中，永远不说你会醒来，你就一直做下去，直到你做恶梦，死在噩梦里为止。就像今天，你看到了西安人笑嘻嘻地被（关）集中营一样，就像那个猪、鸭子被赶上架一模一样。但是你要看到台湾人不信邪，台湾人认为骚扰我做噩梦是吧？我知道你这玩意是假的，有风水都迷信。香港人不信邪啊，新疆人现在也反抗，西藏人反抗了，还有世界上很多人反抗，我们新中国联邦就是告诉所有的人真相的地方。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们要做美丽的梦、春梦、有水的梦，不要做噩梦，而且我们知道梦醒来就是更好的人生。还有一个更重要的事情，我们不是迷信，我们相信有风水。风就是阳，水就是阴，这是为什么奥林匹克村出来了水龙，盘古的阳龙，他为什么把龙头变成了包头？如果他也不信，他就不这么干了，就像把佛手要拿走一样，在冬奥会以前，现在是发生了什么？
 
+大家记住，在全人类都没有的情况下，现在发生了一个你们刚才看到一开始的盖特。黄皮肤人，中国人从来没有在宇宙中占过今天的位置，全宇宙当中从来没有发生过。咱们这些人不流血，能让全世界开始消灭邪恶的力量，就是阳光。太阳将出来，黑暗将消去，那就是我们更重要的事情。只有我们没打疫苗，你没想过这个问题有多大了吗？现在所有的人都在问一个问题，为什么我打2针、3针疫苗，从来没出去过我却染上病了？疫苗就是病毒，mRNA就是病毒。你不用被传染，你就是病毒。就在刚才我直播的时候，欧洲的某个领导人说他老婆染上了。他说：“Miles我打了三针，我太太从没出去过却染上了。”我说我告诉你，mRNA就是你身体的毒，它只是什么时候发作而已。
 
+你们没被打疫苗是多伟大！为什么七哥在2017年就说精子卵子值钱，现在涨了几万倍是吧？还想想你们还有这币那币、还有现在、还有盖特，毫不夸张的说，（这是）人类的奇迹！风水都在我们这一方啊！就像后面蝴蝶般的玫瑰花、七哥的领带、七哥站在这给你们直播几个小时（这件事），这都不是常人所能解释的。我们的生命无限精彩，**一定要记住，爱、诚实和灭共是我们在一起的根本基础，只有这三样东西会让我们走的更远，否则一切都会失去啊！**
+
+*发布：Mttfly*
+
+**
+****更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

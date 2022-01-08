@@ -2,30 +2,34 @@
 ---
 
 
-## 中共官宣外贸版武直10性能超阿帕奇，或将出口巴基斯坦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1836821/)
+## 数字人民币软件升级兼容微信支付
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836975/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-17.png)
-[图片来源](https://www.sohu.com/a/303478277_100145046)
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月6日，据中共媒体报道，随着数字人民币软件近期的升级，腾讯公司开始为其用户提供数字人民币服务，该公司旗下微信支付同步推出数字人民币钱包业务。
 
-近日，中航工业发布消息称，巴基斯坦公共关系部负责人表示，正在考虑引进中国制造的武直10ME型武装直升机。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-1.jpeg)
 
-中航工业表示，这是继25架歼-10CP现身2022年3月23日巴基斯坦国庆日和首批8架“枭龙”Block3量产型（2019年末首飞，“枭龙”三代半改进型号）近日在巴基斯坦下线并列装以来，中航工业连续三款先进装备出口，取得突破性进展。
+据了解，经过前期多阶段的可控试点测试后，数字人民币将在中共北京冬奥会相关场景再次开展试点。此外，自 2018 年 2 月起，腾讯公司也深度参与了中共数字人民币的有关项目，当中包括设计、研发、运营等多个环节，为中共数字人民币项目落地提供全方位的支持。
 
-受制于航空发动机功率不足，武直10一直研发不顺，先后搭载了国产涡轴-9（功率1000千瓦）、加拿大进口PT6C-67C型发动机（功率1250千瓦），再到当前的国产涡轴-9改进型（官方功率数据为1200千瓦）。
+而分析人士则对此表示，中共数字人民币在推广前期将继续与腾讯和支付宝合作，用以培养民众使用数字人民币的习惯。其后，中共会在过渡期逐步限制，甚至禁止微信与支付宝支付，从而达到让墙内民众全部使用数字货币的目的，以便为其迅速收割，乃至监控全民财富的目标铺平道路。
 
-同时，中航工业也对进排气管道进行优化，还对机身重量、任务载荷等进行减重以保证武直10的性能，但这仍旧未能让武直10具备竞争力。如，武直10其空重超过5吨，实际上与美制“阿帕奇”重型武装直升机基本相当，但由于发动机功率不足，因此达不到“阿帕奇”超过10吨的最大起飞重量。
+参考链接： [腾讯接入数字人民币 微信支持数字人民币支付](https://finance.sina.com.cn/tech/2022-01-06/doc-ikyakumx8607664.shtml)
 
-中共媒体分析，巴基斯坦要采购武直10，或将放弃土耳其的T-129武装直升机，这意味着中航工业或将在武直10上运用“直20”的1500千瓦级涡轴-10，与目前“阿帕奇”发动机功率（1500千瓦）看齐，其最大起飞重量将达到10吨以上。加之能挂载16枚红箭-10反坦克导弹，以及挂载天燕-90直升机专用空空导弹，武直10 ME将有力提升巴基斯坦陆军低空支援火力。同时还将对印度装备的“阿帕奇”武装直升机形成一定的威慑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-信息来源：
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-[挂载16枚导弹！中国外贸版武直-10全面升级，性能超越“阿帕奇”](https://www.163.com/dy/article/GT4LH2UM05158C06.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

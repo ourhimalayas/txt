@@ -2,31 +2,27 @@
 ---
 
 
-## 蓬佩奥再次呼吁抵制中共冬奥会并对其追责
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836319/)
+## 美国马里兰州宣布进入紧急状态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836321/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山教育部 Naughty(文行)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月6日，美国前国务卿蓬佩奥在接受采访时再次呼吁美国抵制中共北京冬奥会。对此，蓬佩奥也详细解析了三点原因。
+1月6日，美国马里兰州州长拉里·霍根当天宣布，该州将进入为期30天的紧急状态，同时，当地政府将采取紧急短期行动抗击当前的中共病毒疫情。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.39.03-PM.png)
+数据显示，马里兰州当天因中共病毒感染住院的人数创下了历史新高，而该州的中共病毒感染患者在过去七周内增加了500%以上。预计，当地的住院人数可能会在未来几天内超过五千人，这将比之前的峰值高出两倍以上。
 
-首先，中共在新疆所犯下的每一件恶行都符合种族灭绝的定义，因此，中共北京冬奥会将被冠以“种族灭绝冬奥会”的名头。
+霍根州长表示，未来的四到六周将是整个中共病毒疫情中最具挑战性的时刻。为此，当地动员了一千名马里兰州国民警卫队成员，用以协助州和地方卫生官员持续应对疫情。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-8.36.59-PM-1.png)
+霍根州长还指出，当地所有的紧急行动都是为了让马里兰州能继续正常运转。而在未来几周非常困难的日子里，州政府将继续采取一切必要行动来防止中共疫情进一步爆发。
 
-其次，中共政府会监控每一个参会运动员的一言一行，他们当中只要有人谈论天安门事件或者武汉病毒研究所，这些运动员大概率会被中共扣留。此外，中共还会利用这些运动员的言行为其宣传所谓的“中共国的伟大民主”。
-
-最后，中共武汉病毒研究所释放了新冠病毒，即中共病毒，而这一病毒目前造成了全球数百万人的死亡。与此同时，在中共国内，当习近平坐在恢弘的体育馆里大谈其成功控制疫情时，这背后是无数的中国老百姓被焊死的大门囚禁在家中。
-
-蓬佩奥最后强调，习近平根本不会在乎美国的外交抵制，因为世界媒体将在全球范围内推送这次冬奥会及其举办者。此时，美国应该做的就是在香港、新疆以及中共病毒的每一个问题上都对中共追责。
-
-參考鏈結：[20220106蓬佩奧國務卿接受Ingraham採訪](https://www.gettr.com/post/pmsvqq25ca)
+參考鏈結：[Governor Hogan Declares 30-Day State of Emergency, Mobilizes 1,000 Members of Maryland National Guard to Respond to COVID-19 Surge](https://governor.maryland.gov/2022/01/04/governor-hogan-declares-30-day-state-of-emergency-mobilizes-1000-members-of-maryland-national-guard-to-respond-to-covid-19-surge/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：飞虹
-总编：Irene木木 
+编辑：Kathy文艺
+总编：文特
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
