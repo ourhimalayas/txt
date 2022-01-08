@@ -15,116 +15,116 @@
 
 ---
 
-### [数字人民币App上架 中共长期规划之一 干倒美元 统治世界](/content/gnews/1/README.md)
+### [疫苗护照升级版，植入式微芯片即将投入应用](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [一研究显示印度因中共病毒死亡近300万人](/content/gnews/2/README.md)
+ ` 华盛顿DC-Russian`
+
+### [未来博彩业展望：区块链，加密货币与在线博彩业的结合模式](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [数字人民币App上架 中共长期规划之一 干倒美元 统治世界](/content/gnews/4/README.md)
  ` 焦點20分`
 
-### [1/07/2022 文贵直播： 新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出](/content/gnews/2/README.md)
+### [1/07/2022 文贵直播： 新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022/01/08 英喜时事速递](/content/gnews/3/README.md)
+### [2022/01/08 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大安者今天确认30人死于新冠病毒感染](/content/gnews/4/README.md)
+### [加拿大安者今天确认30人死于新冠病毒感染](/content/gnews/7/README.md)
  ` 向真`
 
-### [乔·罗根助Gettr从Twitter引来100万新用户](/content/gnews/5/README.md)
+### [乔·罗根助Gettr从Twitter引来100万新用户](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [华为在被美国制裁一年半后芯片出货量暴跌96%](/content/gnews/6/README.md)
+### [华为在被美国制裁一年半后芯片出货量暴跌96%](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [澳大利亚议员凯利称官员故意阻挠新冠救命药物](/content/gnews/7/README.md)
+### [澳大利亚议员凯利称官员故意阻挠新冠救命药物](/content/gnews/10/README.md)
  ` 向真`
 
-### [健康游侠：2022年是“觉醒年”2023 年是“问责年”](/content/gnews/8/README.md)
+### [健康游侠：2022年是“觉醒年”2023 年是“问责年”](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [配送物资时强求居民说“感谢政府” 西安的做法引发众怒](/content/gnews/9/README.md)
+### [配送物资时强求居民说“感谢政府” 西安的做法引发众怒](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/10/README.md)
+### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [疫苗灾难即将开始 各种梗陆续到来!](/content/gnews/11/README.md)
+### [疫苗灾难即将开始 各种梗陆续到来!](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [哈萨克斯坦盗国贼：绝不与暴徒谈判 必须彻底消灭他们](/content/gnews/12/README.md)
+### [哈萨克斯坦盗国贼：绝不与暴徒谈判 必须彻底消灭他们](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [混乱的政局，制约了邪恶的疫苗在非洲推广](/content/gnews/13/README.md)
+### [混乱的政局，制约了邪恶的疫苗在非洲推广](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [独裁者以人类为祭品](/content/gnews/14/README.md)
+### [独裁者以人类为祭品](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/15/README.md)
+### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [美驻日大使称中共不是好邻居](/content/gnews/16/README.md)
+### [美驻日大使称中共不是好邻居](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚和日本签署历史性防务条约](/content/gnews/17/README.md)
+### [澳大利亚和日本签署历史性防务条约](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [数字人民币软件升级兼容微信支付](/content/gnews/18/README.md)
+### [数字人民币软件升级兼容微信支付](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生谈自信的三大要素](/content/gnews/19/README.md)
+### [郭文贵先生谈自信的三大要素](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞疫苗残液培养3天后的显微镜观察](/content/gnews/20/README.md)
+### [辉瑞疫苗残液培养3天后的显微镜观察](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [郭文贵先生曝光中共20大常委名单 习近平欲连任国家主席](/content/gnews/21/README.md)
+### [郭文贵先生曝光中共20大常委名单 习近平欲连任国家主席](/content/gnews/24/README.md)
  ` GTV News Talk`
 
-### [中俄将哈萨克斯坦的暴动甩锅给美国](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [【Michael.Tonny专栏】研究证明COVID mRNA疫苗导致女性月经周期紊乱！](/content/gnews/23/README.md)
+### [【Michael.Tonny专栏】研究证明COVID mRNA疫苗导致女性月经周期紊乱！](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
 
-### [第203期玫瑰看新闻-新中国联邦新闻](/content/gnews/24/README.md)
+### [第203期玫瑰看新闻-新中国联邦新闻](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共官宣外贸版武直10性能超阿帕奇，或将出口巴基斯坦](/content/gnews/25/README.md)
+### [中共官宣外贸版武直10性能超阿帕奇，或将出口巴基斯坦](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们的希望被劈成两半](/content/gnews/26/README.md)
+### [我们的希望被劈成两半](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [墙国防疫悲剧](/content/gnews/27/README.md)
+### [墙国防疫悲剧](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
 
-### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/28/README.md)
+### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/07/2022 文贵直播： 文贵改写了数字货币的游戏规则，中共的灭亡将成就数字货币](/content/gnews/29/README.md)
+### [1/07/2022 文贵直播： 文贵改写了数字货币的游戏规则，中共的灭亡将成就数字货币](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [深圳又新增1例确诊病例](/content/gnews/30/README.md)
+### [深圳又新增1例确诊病例](/content/gnews/32/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：重庆爆炸惊动北京，三天前的武警演练成真](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](/content/gnews/32/README.md)
+### [1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/07/2022 文贵直播： 纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑](/content/gnews/33/README.md)
+### [1/07/2022 文贵直播： 纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/07/2022 文贵直播： 中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](/content/gnews/34/README.md)
+### [1/07/2022 文贵直播： 中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/8银河快讯:冲绳医疗工作者被感染；日美担心中共试图破坏秩序](/content/gnews/35/README.md)
+### [1/8银河快讯:冲绳医疗工作者被感染；日美担心中共试图破坏秩序](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/36/README.md)
+### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
-
-### [01/08每日播报|因未接种疫苗 捷克女子网球运动员遭澳洲驱逐](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [中共二十大人事布局被曝 习总加速师已踏上不归路](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
