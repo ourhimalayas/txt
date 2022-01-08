@@ -15,130 +15,130 @@
 
 ---
 
-### [独裁者以人类为祭品](/content/gnews/1/README.md)
+### [配送物资时强求居民说“感谢政府” 西安的做法引发众怒](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [疫苗灾难即将开始 各种梗陆续到来!](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [混乱的政局，制约了邪恶的疫苗在非洲推广](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [独裁者以人类为祭品](/content/gnews/4/README.md)
  ` GTV News Talk`
 
-### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/2/README.md)
+### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [美驻日大使称中共不是好邻居](/content/gnews/3/README.md)
+### [美驻日大使称中共不是好邻居](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚和日本签署历史性防务条约](/content/gnews/4/README.md)
+### [澳大利亚和日本签署历史性防务条约](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [数字人民币软件升级兼容微信支付](/content/gnews/5/README.md)
+### [数字人民币软件升级兼容微信支付](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生谈自信的三大要素](/content/gnews/6/README.md)
+### [郭文贵先生谈自信的三大要素](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞疫苗残液培养3天后的显微镜观察](/content/gnews/7/README.md)
+### [辉瑞疫苗残液培养3天后的显微镜观察](/content/gnews/10/README.md)
  ` 首尔天池农场`
 
-### [郭文贵先生曝光中共20大常委名单 习近平欲连任国家主席](/content/gnews/8/README.md)
+### [郭文贵先生曝光中共20大常委名单 习近平欲连任国家主席](/content/gnews/11/README.md)
  ` GTV News Talk`
 
-### [中俄将哈萨克斯坦的暴动甩锅给美国](/content/gnews/9/README.md)
+### [中俄将哈萨克斯坦的暴动甩锅给美国](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [辉瑞疫苗残液培养2天后的显微镜观察](/content/gnews/10/README.md)
+### [辉瑞疫苗残液培养2天后的显微镜观察](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [【Michael.Tonny专栏】研究证明COVID mRNA疫苗导致女性月经周期紊乱！](/content/gnews/11/README.md)
+### [【Michael.Tonny专栏】研究证明COVID mRNA疫苗导致女性月经周期紊乱！](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [第203期玫瑰看新闻-新中国联邦新闻](/content/gnews/12/README.md)
+### [第203期玫瑰看新闻-新中国联邦新闻](/content/gnews/15/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [东南亚一周新闻回顾（2022年1月1日-7日）](/content/gnews/13/README.md)
+### [东南亚一周新闻回顾（2022年1月1日-7日）](/content/gnews/16/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [辉瑞疫苗原液和培养第一天后的显微镜观察](/content/gnews/14/README.md)
+### [辉瑞疫苗原液和培养第一天后的显微镜观察](/content/gnews/17/README.md)
  ` 首尔天池农场`
 
-### [中共官宣外贸版武直10性能超阿帕奇，或将出口巴基斯坦](/content/gnews/15/README.md)
+### [中共官宣外贸版武直10性能超阿帕奇，或将出口巴基斯坦](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [尸检报告显示：93%接种中共病毒疫苗后的死亡案例是疫苗所致](/content/gnews/16/README.md)
+### [尸检报告显示：93%接种中共病毒疫苗后的死亡案例是疫苗所致](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [不要被愚弄：生效的新规则将转基因食品标为“生物工程”](/content/gnews/17/README.md)
+### [不要被愚弄：生效的新规则将转基因食品标为“生物工程”](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [印度首都恐因奥米克戎来袭而封城](/content/gnews/18/README.md)
+### [印度首都恐因奥米克戎来袭而封城](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [我们的希望被劈成两半](/content/gnews/19/README.md)
+### [我们的希望被劈成两半](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [墙国防疫悲剧](/content/gnews/20/README.md)
+### [墙国防疫悲剧](/content/gnews/23/README.md)
  ` 纽约香草山MOS03`
 
-### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/21/README.md)
+### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/07/2022 文贵直播： 文贵改写了数字货币的游戏规则，中共的灭亡将成就数字货币](/content/gnews/22/README.md)
+### [1/07/2022 文贵直播： 文贵改写了数字货币的游戏规则，中共的灭亡将成就数字货币](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [深圳又新增1例确诊病例](/content/gnews/23/README.md)
+### [深圳又新增1例确诊病例](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：重庆爆炸惊动北京，三天前的武警演练成真](/content/gnews/24/README.md)
+### [秘翻在线：重庆爆炸惊动北京，三天前的武警演练成真](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](/content/gnews/25/README.md)
+### [1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [【中日财经爆】何为岸田“新资本主义”](/content/gnews/26/README.md)
+### [【中日财经爆】何为岸田“新资本主义”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/07/2022 文贵直播： 纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑](/content/gnews/27/README.md)
+### [1/07/2022 文贵直播： 纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [01/08/22 香港快讯 网媒《白夜》告别 《立场》案后累计七家停运](/content/gnews/28/README.md)
+### [01/08/22 香港快讯 网媒《白夜》告别 《立场》案后累计七家停运](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [樱花灭共诗——万里桥](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/07/2022 文贵直播： 中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](/content/gnews/30/README.md)
+### [1/07/2022 文贵直播： 中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/31/README.md)
+### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [01/08每日播报|因未接种疫苗 捷克女子网球运动员遭澳洲驱逐](/content/gnews/32/README.md)
+### [01/08每日播报|因未接种疫苗 捷克女子网球运动员遭澳洲驱逐](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共二十大人事布局被曝 习总加速师已踏上不归路](/content/gnews/33/README.md)
+### [中共二十大人事布局被曝 习总加速师已踏上不归路](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共以资本控制&amp;水军&amp;流量机器人&amp;恶意采访操控媒体舆论](/content/gnews/34/README.md)
+### [中共以资本控制&amp;水军&amp;流量机器人&amp;恶意采访操控媒体舆论](/content/gnews/36/README.md)
  ` mary202064`
 
-### [以敌制敌 以共灭共](/content/gnews/35/README.md)
+### [以敌制敌 以共灭共](/content/gnews/37/README.md)
  ` G-NEWS TAIWAN`
 
-### [好想看七哥当年的照片](/content/gnews/36/README.md)
+### [好想看七哥当年的照片](/content/gnews/38/README.md)
  ` 骄子`
 
-### [喜币的价值就在于我们战友](/content/gnews/37/README.md)
+### [喜币的价值就在于我们战友](/content/gnews/39/README.md)
  ` G-NEWS TAIWAN`
 
-### [在华日本公司频频受罚 对抗中共，日本需坚定立场](/content/gnews/38/README.md)
+### [在华日本公司频频受罚 对抗中共，日本需坚定立场](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国人果然被诅咒了](/content/gnews/39/README.md)
+### [中国人果然被诅咒了](/content/gnews/41/README.md)
  ` 骄子`
 
-### [法官判決FDA在8个月内公布辉瑞疫苗数据](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [美国马里兰州宣布进入紧急状态](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [法媒称中共借立陶宛干预欧盟经济](/content/gnews/42/README.md)
+### [法官判決FDA在8个月内公布辉瑞疫苗数据](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
 ### [01/08每日播报｜哈萨克斯坦总统对抗议者发出枪杀令 驳回要求谈判的呼吁](/content/gnews/43/README.md)

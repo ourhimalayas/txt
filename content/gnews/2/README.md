@@ -2,28 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1836997/)
+## 疫苗灾难即将开始 各种梗陆续到来!
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1837038/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+2022年元旦过后世界并不太平。美国航空公司出现机师短缺，英国出现了教师短缺，澳洲出现了超市货品短缺，所有这些短缺，都可以用一个形象的词来概括，就是各行各业都开始“梗”了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/下载-7.jpg)
+全球科学界、宗教界已经逐渐意识到，这场疫苗、病毒危机是中共和国际黑暗势力勾结下的，对全人类进行的一场大屠杀。疫苗灾难随着打进身体的毒针发作而日益显现出来。社会上陆陆续续出现很多人工、物资的短缺，都是灾难开始的体现。2022年，在反共的同时，健康活下去是我们最重要的目标。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-6.png)
-文章仅代表作者本人观点，与Gnews无关
+郭先生通过直播告诉大家，尽量远离严重依赖电力的大都市，都市化越高的地方也是灾难爆发最集中的地方，避免居住在高楼大厦里，适度储备食品和物资，以应对即将到来的病毒、疫苗灾难。
 
-视频参看：[2022.01.08早GTV新闻访谈](https://gtv.org/video/id=61d9a6c62507c21c385d448f)
+条件允许的，还可以提前做好极端情况下的预案。我们对电的依赖性实在太大了，没有电，连做饭都做不了。可以预备烧燃气、烧木柴，适当储备一些木材。在新的一年，健康活下去是最重要的目标。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这是一场共产党有预谋的对人类的大屠杀，请一定追求真相，坚决不打疫苗，远离病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+文案：文勇
+校对：面包树、文峰
 
  
 
