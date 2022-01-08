@@ -2,36 +2,28 @@
 ---
 
 
-## 哈萨克斯坦动乱的真正原因是什么？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1835025/)
+## 重庆武隆疑似食堂燃气燃爆事故，16人遇难
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1835061/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-10.jpg)重庆武隆疑似食堂燃气燃爆事故，16人遇难 网络图片
+据澎湃新闻1月8日报道，重庆市武隆区凤山街道办事处机关食堂7日发生垮塌，疑似食堂燃气泄漏燃爆。事故发生时，办事处部分职工正在食堂用餐。事故造成26人失联，事后搜救出26人，死亡16人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/哈萨克斯坦动乱.jpeg)新闻来源：直新闻
+中共国现在到处都是事故，疫苗灾难星火燎原，四处爆发。人员接种疫苗后的副作用，随时也会引发事故。也许这个食堂的工作人员当时突发心梗或者脑梗，无法控制自己触动了紧急阀门，造成燃气泄漏。在中共国全员90%以上接种疫苗的情况下，一切皆有可能。
+
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16196263](https://www.thepaper.cn/newsDetail_forward_16196263)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编译：小红帽
+编辑：【英国伦敦喜庄园编辑部】
 
-根据《国家利益》1月7日报道， 本周初，哈萨克斯坦西部的扎瑙岑镇爆发了大规模抗议活动，表面上看是由燃料价格的大幅上涨引发的。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-哈萨克斯坦总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）最初以安抚的方式做出回应，对燃料和其他商品实施临时价格管制，但抗议活动迅速升级为全国紧急状态。哈萨克斯坦各地的政府大楼和警察局遭到袭击和纵火，该国最大的机场被短暂接管。
 
-据报道，至少有18名哈萨克斯坦安全人员被政府描述为外国训练的“恐怖团伙”杀害。抗议者的全部目的仍不确定。最近，扎瑙岑的几千名抗议者提出了被《华盛顿邮报》称为 “迄今为止最具体的要求清单”，包括将托卡耶夫赶下台，扩大对公民权利的保护，以及恢复被认为更加民主的1993年版哈萨克斯坦宪法。但是，目前还不清楚这些特定人群的要求是否可以被解读为整个抗议运动目标的准确代表。
-
-据称，**哈萨克斯坦官员与中国相关人员合作，有效地封锁了所有互联网接入，以阻止抗议者组织起来。**北京当局是哈萨克斯坦能源行业的主要投资者，在整个抗议活动期间，北京发表声明，对托卡耶夫给予强烈的支持。
-
-中国领导人习近平表示：“中国愿意向哈萨克斯坦提供必要的支持，帮助哈萨克斯坦渡过难关。无论遇到什么风险和挑战，中国都是哈萨克斯坦值得信赖的朋友和可靠的伙伴。”
-
-新闻来源：[What’s Really Behind the Unrest in Kazakhstan? | The National Interest](https://nationalinterest.org/feature/what%E2%80%99s-really-behind-unrest-kazakhstan-199243)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
