@@ -2,77 +2,47 @@
 ---
 
 
-## Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834647/)
+## 为什么世界选择黄金为标准而不是白银？（2/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834368/)
 
-[https://gtv.org/video/id=61d8f891dffab035958c1380](https://gtv.org/video/id=61d8f891dffab035958c1380)
+**翻译: Jenny Ball**
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-453.png)图片来源：creativedestructionmedia.com
 
-那么我们接下来怎么抓住这个机会呢，Hpay、Hcoin
-So how do we catch this opportunity next？like Hpay, Hcoin
+在早期努力创建定义黄金和白银数量为国家货币时，迈出了重要的第一步。穆雷·罗斯巴德（Murray N. Rothbard） 解释了为什么会发生这种情况：
 
-还有更重要的接下来我们一系列的产品出来，1月份Hpay就要上线了
-And more importantly, we will have a series of products coming out, and Hpay will be online in January
+自由市场[过去]建立了黄金和白银的“平行标准”，每个标准都根据市场供需自由波动。但政府决定通过介入，“简化”问题来帮助市场。他们觉得，如果黄金和白银固定在一个确定的比例，比如二十盎司银对一盎司黄金，事情会变得非常清楚！然后，两种货币都可以始终以固定比率流通——而且，更重要的是，政府最终可以摆脱按发生的故事来处理货币的负担，而改为按重量。
 
-大卫兄这回的欧洲，文戈七雄今天没来，意大利，不管是任何一个人
-Brother David is in Europe this time, Wenge Qixiong is in Italy, he did not come today, no matter
+让我们想象一个单位，即“rur”，鲁里塔尼亚人将其定义为一盎司黄金的 1/20。我们已经看到，政府引导公众将“rur”**视为其自身权利的一个抽象单位，**与黄金松散地联系在一起，这是多么重要。有什么比固定黄金/白银比率更好的方法呢？“rur”不仅变成了 1/20 盎司的黄金，还变成了 1 盎司的白银。“rur”这个词的确切含义——黄金重量的名字——现在已经不复存在了，人们开始认为“rur”本身就是一种有形的东西，由政府以某种方式设定，用于良好和有效的目的，等于一定重量的黄金和白银。
 
-小鸟这你们千万记住，你们只能做到最好，你不能做到前几，一定要做到最好
-Little bird, you and everyone must remember that you can only do the best, you can’t be the top few, you must do the best
+正是在这种黄金和白银之间固定汇率的环境中，向金本位制迈出了重要的第二步，那就是 18 世纪英国偶然实行的金本位制。正如大卫·格拉斯纳（David Glasner）所解释的那样，英国政府实行的。
 
-因为欧洲对我们太重要，而且接下来共产党在欧洲对我们的攻击就像对待日本一样
-Because Europe is too important to us, and the Communist Party will attack us in Europe just like it did in Japan
+将黄金畿尼（guinea，英国的旧金币，值一镑一先令）的法定价值固定为 21.5 [银] 先令。按照这个速度，黄金被高估了[由于固定的金银比]，因此黄金开始从国外流入英国。即使在铸币局大师艾萨克·牛顿（Isaac Newton）爵士于 1717 年实施了新的货币改革，将金币的价值降低到 21 银先令之后，15.21 比 1 的铸币厂，银对黄金的隐含比率仍然略微高估了黄金。尽管并没打算这样做，但牛顿改革证实了英国事实上的金本位制。
 
-这基本上是美国、欧洲、日本这三地方，就是猛烈攻击的地方
-There are three places of the United States, Europe, and Japan, where they are going to attack fiercely
+与此同时，在非洲发现的新黄金，进一步使这个重商主义的英国国家能够囤积黄金。而且，由于世界上大部分地区都采用银本位制，英国在北欧的贸易伙伴更乐意将他们的黄金换成白银，从欧洲大陆继续流向英国。最终，英国政府于 1798 年停止免费使用银币，并在 1816 年的《铸币法》中采用了专属的法理金本位制。此外，经过近一个世纪的事实上的金本位制，尽管市场现实发生了变化，但英国的现状开始有利于继续使用金本位制。
 
-要做好充足的心理准备，所以说兄弟姐妹，2022年会非常的精彩
-You must be fully psychologically prepared, so brothers and sisters, 2022 will be very exciting
+还有其他实际因素进一步鼓励该政权保持单金属金本位制。金本位制的采用，使英国政府更容易解决国家硬币短缺的问题。**硬币短缺**长期以来一直是欧洲大部分地区的问题，尤其是在工业化后，导致更多以现金支付工资的情况。 随着国家现在实行金本位制，英国政府可以更容易地将白银用于代币。也就是说，**银可以用于金属价值低于面值的硬币**。在英格兰，这些“贬值”的银币也不会将黄金赶出流通领域（根据格雷欣法则），因为白银已被废止。
 
-会有巨大的挑战，当然，就凭今年年末共产党给送来的大礼，老天给我们送来的大
-There will be huge challenges, of course, based on the great gifts the Communist Party gave us at the end of this year, the great gifts heaven gave us
+这被证明很受欢迎。尽管 19 世纪有人努力转向双金属主义或银本位制，但这些声音在政治上越来越无能为力。即使由于黄金供应增加，加利福尼亚（1849 年）和澳大利亚（1851 年）的新黄金发现所带来的市场，黄金贬值的恐惧也不足以改变英国政权内部对黄金的看法。
 
-2022年我们绝对又是一个巨大的收获年
-We will definitely be another great harvest year in 2022
+加利福尼亚的淘金热，在欧洲大部分地区产生相反的效果，这一事实可以看出，英国对黄金的意识形态拥护的重要性。英国政府决心保住黄金——即使黄金的市场价格看起来可能会输给白银。但许多其他政权反而采取措施保护他们的白银领地。例如，比利时和瑞士引入了银法郎，黄金在那不勒斯、荷兰、西班牙和印度被废钞。” 这样做是为了防止白银流出，这也可能是由于那时更丰富的黄金的自由铸造造成的。
 
-不仅是充满了希望， 我相信更多的是收获
-Not only is it full of hope, I believe more is the harvest
+在文章的最后部分，我们来看**为什么欧洲大陆开始采用黄金标准？**
 
-但是我们一定要心理准备着，收获之前你是要付出汗水的
-But we must be fully psychologically prepared, you have to sweat before the harvest
+**文章来源**：[creativedestructionmedia.com][Why Did The World Choose A Gold Standard Instead Of A Silver Standard?](https://creativedestructionmedia.com/news/markets/2022/01/06/why-did-the-world-choose-a-gold-standard-instead-of-a-silver-standard/)
 
-更重要的事情我们要坚持唯真不破，什么事情都别忘了
-For more important things, we must insist on being true, and don’t forget about everything
-
-只要能灭共和不灭共什么都不存在，这条你千万别忘了
-As long as it can take down the CCP and if don’t take down the CCP, nothing exists, don’t forget this one
+相关文章阅读：[为什么世界选择黄金为标准而不是白银？（1/3）](https://gnews.org/zh-hans/1834347/)
+ [为什么世界选择黄金为标准而不是白银？（3/3）](https://gnews.org/zh-hans/1834359/)
 
 * * *
 
-Date: 01/04/2022
-原视频标题: Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
-Hpay and other series, European countries must do the best, and be fully psychologically prepared
-原视频日期：2022/01/01
-原视频链接:[https://gettr.com/post/plptk895f8](https://gettr.com/post/plptk895f8)
-任务编号：KC396(3407)
-视频时间段 : 0:00-1:30
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
+***审核：文乐
+校对：信心满满
+发布：信心满满***
 
-1.标题：做的最好 改为 做得最好
-2.另外标题外文和中文，可以分开轮流显示，因为时间足够，这样字幕看起来比较清爽，可以参考天涯行的视频。当然这个不强求，要看标题页面布置是否整洁美观。特别是标题的布局和分句分行，不要看起来乱就好。
-3.中文字体大小要一样，有些行比较长，可以分2段显示。英文字幕显示英文的，中文的显示中文的，文字内容时间上不一定要同步，可以交叉
-4.非常的精彩 改为 非常地精彩
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 
  
 

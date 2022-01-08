@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834910/)
+## 美国疫苗灾难愈演愈烈
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834943/)
 
-配音：香草山教育部 – 百香果
+采编/编译撰稿：Quitman     校对编辑，发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-13-edited.jpg)图片来源：GJXW
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+据盖特1月5日援引美国媒体消息称：美国目前已有近100万人正在遭受接种“新冠病毒”疫苗后所产生的各种严重伤害甚至死亡。此外，该疫苗不仅不能有效防御病毒感染，而且还将直接威胁被接种者的生命健康。
 
-报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
+英国最新官方数据显示：去年8月16日至12月15日期间，在死于“新冠病毒”感染的患者中，已接种疫苗的人数比未接种者多出近3倍。该数据意味着“接种者比未接种者更容易死于该病毒感染”。
 
-另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
+此外，美国最新官方数据也同样显示出，目前该国已有超过10万人在接种疫苗后出现了各种严重疾病而需要住院治疗甚至大量死亡的案例。同时，以上类似情况在世界各地均已大量涌现。不难想象，全球“新冠病毒”疫苗灾难才刚刚开始。
 
-文字版原文：[瑞典国王伉俪接种三剂疫苗后双双确诊染疫](https://gnews.org/zh-hans/1825403/)
+* * *
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： https://gettr.com/post/pmk6dpce06
 
  
 

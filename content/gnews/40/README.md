@@ -2,40 +2,77 @@
 ---
 
 
-## 国内战友要用智慧的渠道买喜币，喜币的价值在于战友们
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834660/)
+## Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834647/)
 
-**郭文贵先生：**我再说一下很多战友国内买喜币的人，你们一定要小心！大概过去一星期，国内买喜币的人、要进来的人数，就新增人数，大概翻了N倍。但很多人就付款就特别傻！到中信、到这个招商、到民生就付钱，结果马上报警，警察来敲门来了。
+[https://gtv.org/video/id=61d8f891dffab035958c1380](https://gtv.org/video/id=61d8f891dffab035958c1380)
 
-我希望咱今天所有的在看直播的战友们，一定要在全国内，特别是国内的战友，一定说你买喜币的方式非常简单，先准备好KYC，先准备好。我今天凌晨的时候，我们的这个在喜联储的战友Casey给我发信息，战友跟他联系，第一个讨论是什么？怎么能把款汇出去，是吧！就Casey很感慨！说我们中国人怎么活到这样了，是吧！
+**郭文贵
+Miles Guo**
 
-你们一定记住，不要因为买币给自己惹麻烦，是吧！一定想办法在其他安全的方式下汇款再来买喜币。这是我今天特别要警告大家的！不要给自己惹麻烦，大过年的特别不好，宁可不买喜币，你也不要因为汇款惹麻烦。
+那么我们接下来怎么抓住这个机会呢，Hpay、Hcoin
+So how do we catch this opportunity next？like Hpay, Hcoin
 
-第二个，就是全球的农场战友们，如果家旁边儿有人买喜币，尽可能帮他，安全的付款，千万别让它出问题。
+还有更重要的接下来我们一系列的产品出来，1月份Hpay就要上线了
+And more importantly, we will have a series of products coming out, and Hpay will be online in January
 
-第三个，我要告诉大家的，喜币我接着刚才说，喜币的价值就在于我们战友，我告诉昨天那个这个大师，我说你知道为什么你说喜联储是我们的智慧和设计，不是的！没有一个币、包括比特币，它从第一天开始有这么多的、基础的、绝对的支持者，是无私的奉献者。严格讲他不是这个币赢了，是新中国联邦的理念和这个人群赢。他感慨太深，他说你们这回锁币的事情三年，是人类上没有一个人能相信我们能做到的。
+大卫兄这回的欧洲，文戈七雄今天没来，意大利，不管是任何一个人
+Brother David is in Europe this time, Wenge Qixiong is in Italy, he did not come today, no matter
 
-编辑整理：海贼王M.D.LUFFY；
+小鸟这你们千万记住，你们只能做到最好，你不能做到前几，一定要做到最好
+Little bird, you and everyone must remember that you can only do the best, you can’t be the top few, you must do the best
 
-G-News发布：海贼王M.D.LUFFY；
+因为欧洲对我们太重要，而且接下来共产党在欧洲对我们的攻击就像对待日本一样
+Because Europe is too important to us, and the Communist Party will attack us in Europe just like it did in Japan
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+这基本上是美国、欧洲、日本这三地方，就是猛烈攻击的地方
+There are three places of the United States, Europe, and Japan, where they are going to attack fiercely
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+要做好充足的心理准备，所以说兄弟姐妹，2022年会非常的精彩
+You must be fully psychologically prepared, so brothers and sisters, 2022 will be very exciting
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+会有巨大的挑战，当然，就凭今年年末共产党给送来的大礼，老天给我们送来的大
+There will be huge challenges, of course, based on the great gifts the Communist Party gave us at the end of this year, the great gifts heaven gave us
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+2022年我们绝对又是一个巨大的收获年
+We will definitely be another great harvest year in 2022
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+不仅是充满了希望， 我相信更多的是收获
+Not only is it full of hope, I believe more is the harvest
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+但是我们一定要心理准备着，收获之前你是要付出汗水的
+But we must be fully psychologically prepared, you have to sweat before the harvest
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+更重要的事情我们要坚持唯真不破，什么事情都别忘了
+For more important things, we must insist on being true, and don’t forget about everything
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+只要能灭共和不灭共什么都不存在，这条你千万别忘了
+As long as it can take down the CCP and if don’t take down the CCP, nothing exists, don’t forget this one
 
-G-TV：日本银河系农场。
+* * *
+
+Date: 01/04/2022
+原视频标题: Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
+Hpay and other series, European countries must do the best, and be fully psychologically prepared
+原视频日期：2022/01/01
+原视频链接:[https://gettr.com/post/plptk895f8](https://gettr.com/post/plptk895f8)
+任务编号：KC396(3407)
+视频时间段 : 0:00-1:30
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+1.标题：做的最好 改为 做得最好
+2.另外标题外文和中文，可以分开轮流显示，因为时间足够，这样字幕看起来比较清爽，可以参考天涯行的视频。当然这个不强求，要看标题页面布置是否整洁美观。特别是标题的布局和分句分行，不要看起来乱就好。
+3.中文字体大小要一样，有些行比较长，可以分2段显示。英文字幕显示英文的，中文的显示中文的，文字内容时间上不一定要同步，可以交叉
+4.非常的精彩 改为 非常地精彩
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

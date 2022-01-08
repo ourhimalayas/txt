@@ -2,31 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1834820/)
+## 中共“清零”政策及其荒谬和残酷
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1834826/)
 
-作者：香草山翻译部
+01/04/2022 一位西安市民：所谓的“清零”，就是一个小区里的一栋楼中如果有确诊的，这一栋楼所有的人，即使有几千人，全部会被拉走隔离。然后防疫人员就可以向上级汇报，这个小区已经清零。至于以后再有疫情再爆发，那都是酒店里隔离人群中疫情爆发，而不是小区里爆发疫情。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0107text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d8e8aa2591020829845077)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
