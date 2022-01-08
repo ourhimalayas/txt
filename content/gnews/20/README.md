@@ -2,34 +2,71 @@
 ---
 
 
-## 23岁天才运动员感染新冠去世，生前接种两剂疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1834515/)
+## 2022年1月7日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834587/)
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2_副本.jpg)
+视频连接：[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5) 或 [https://gettr.com/streaming/pmw0gj4b89](https://gettr.com/streaming/pmw0gj4b89)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5955-4.jpg)图片来源：ABCNEWS
+1、木兰丈夫检测出阳性；
 
+2、奧米抗（OMICRON）一点都不逊色于冠狀病毒（COVID）病毒，OMICRON是慢性杀人，都是生化武器；
 
-#### 整理报道：小鱼儿
-编辑：文泓
+3、疫苗mRNA（刺突蛋白），就是病毒；
 
-当地时间1月7日，据《9News》报道，23岁的詹姆斯·康迪里奥斯因感染新冠病毒，在澳洲悉尼圣文森特医院去世，他的家人和朋友对他的死亡感到震惊。他接种了两剂疫苗，且没有潜在的健康问题。
+4、拜登疫苗强制令很大的可能性会被否决；
 
-康迪里奥斯先生拥有高级科学学位同时也是一名举重冠军。曾代表澳大利亚参加2015年在芬兰举行的经典举重世界锦标赛，赢得了铜牌。他在悉尼长大，在该市东部的韦弗利学院读高中。高中毕业后，康迪里奥斯先生在堪培拉的澳大利亚国立大学完成了高级科学学位，并在2019年获得了国家科学奖。
+5、中共用金融危机流氓手段绑架全世界；
 
-康迪里奥斯先生的一位朋友在脸书（Facebook）上写道：“找不到更好的朋友了”，社交媒体上的悼念活动也随之展开。“我很后悔，我们最后一次见面的时候，我没有更用力地拥抱你，”斯蒂芬·马写道。
+6、中共灭亡制造的金融危机，美国的资产可能会缩水50%-70%；
 
-康迪里奥斯先生是新南威尔士州上一次报告中死亡的六人之一，其他人是60多岁、80多岁和90多岁。新南威尔士州在过去两天里报告了超过7万个新病例。目前全州有超过1600名病毒感染者住院治疗。新的限制措施将在今天宣布，因为政府希望阻止冠状病毒的传播，并减轻医院和医疗系统的负担。
+7、中共灭亡前所未有的全球经济危机，喜联储喜币重新书写了数字货币的游戏规则；
 
-参考新闻：[Talented sportsman, just 23, dies after catching coronavirus](https://www.9news.com.au/national/james-kondilios-23-dies-after-catching-coronavirus-double-vaccinated-no-underlying-health-conditions-nsw/e00a1bcb-99b5-4644-a86d-8fba06008bb9)
+8、国内买喜币的战友，一定先KYC，不要因为买币付款影响安全，有人要买喜币，大家尽量帮助，因为有战友在银行付款被警察威胁；
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+9、喜币如果没有锁币，目前的价格会低于3-5块钱。战友们毫不犹豫的“币加锁”，太伟大了；
+
+10、共产党越打压新中国联邦护照，新中国联邦护照越升值；
+
+11、 新中国联邦，爆料革命，郭文贵 成为共产党绝对不能谈的词；
+
+12、胡海峰是胡锦涛和习近平交易的结果，未来的接班人；
+
+13、20大常委名单：习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长；
+
+14、二十大常委的名单公布会加剧内斗，没有江家人，贾庆林，栗战书会善罢甘休吗？
+
+15、北朝鲜不可能参加冬奥会，金正恩对共产党狮子大开口，100亿美元现金，进入联合国，都是中共无法完成的的任务。而且他很怕死（怕斩首）；
+
+16、中美必有一战，火战热战应该是在冬奥会之后，共产党打台湾，很可能会引起 火战。
+
+17、病毒过后新加波不会有李家；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/8/2022 2:40 AM (UTC)`
+
+1/07/2022 Miles Guo: There is no CCP senior cadre who dares to mention Miles Guo, the New Federal State of China, and the Whistleblowers’ Movement, and our fight against the CCP is a war between justice and evils; reflect on the hooligan nature of the CCP’s political infightings by  looking at the photos of me when I was 7 years old; I already suspected that the CCP had falsified its GDP when I was a child<br/><br/>1/07/2022 文贵直播：中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战；从文贵7岁时的照片看中共内斗的流氓逻辑；文贵还是孩子的时候就怀疑中共GDP造假<br/>
+![img](https://media.gettr.com/group1/getter/2022/01/08/02/c8b9c716-9bc4-1be8-987a-93ab7906f4ff/out.jpg)
+
+---
+
 `@miles 1/8/2022 12:17 AM (UTC)`
 
 1/07/2022 Miles Guo: The vaccine mandate will certainly be terminated by this May; only I have said that what is going on in Xi’an is a COVID vaccine disaster; the CCP may use the Winter Olympics to brag about itself, but it will be slapped in the face after the Olympics; the viruses will inevitably get out of control after they were released, so please take care of yourself<br/><br/>1/07/2022 文贵直播：疫苗强制令在今年5月前必被灭；只有文贵说西安是疫苗灾难；中共会用冬奥会吹牛，但冬奥会结束后就会被疫苗灾难和国内乱局打脸；病毒被释放后必定失控，请多保重<br/>
@@ -146,13 +153,6 @@
 
 1/05/2022 Miles Guo: The power of the media is so huge! Devilish media outlets like HBO/VICE are colluding with the CCP, framing the New Federal State of China (NFSC) as a cult and a bunch of rioters. Since we believe that “only truth prevails”, what these devilish media have done is in vain, and they are going to face charges under the RICO Act of 1970<br/><br/>1/05/2022 文贵直播：媒体的力量太大了！HBO/VICE这样的魔鬼媒体和中共勾兑，构陷新中国联邦是邪教、暴乱分子；正因为我们的唯真不破，魔鬼媒体并没有得逞，等待它们的是RICO法案<br/>
 ![img](https://media.gettr.com/group38/getter/2022/01/07/04/a79eab36-7a53-c746-0e19-1fafefe4bd17/out.jpg)
-
----
-
-`@miles 1/7/2022 2:22 AM (UTC)`
-
-Who's Miles Guo Episode 2 Artemisinin and Ivermectin<br/>谁是郭文贵 2 青蒿素和伊维菌素
-![img](https://media.gettr.com/group28/origin/2022/01/07/02/350577a6-c177-02b1-639e-6b18e8163a0d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

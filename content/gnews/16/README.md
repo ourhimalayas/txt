@@ -2,71 +2,44 @@
 ---
 
 
-## 2022年1月7日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834587/)
+## “币加锁”是战友们坚定追求共同信仰的决心更让喜币值万亿
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834677/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2_副本.jpg)
-视频连接：[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5) 或 [https://gettr.com/streaming/pmw0gj4b89](https://gettr.com/streaming/pmw0gj4b89)
+**郭文贵先生：**战友们你们有没有想过，就包括现在就在现场Rachel在现场，毫不犹豫的，是吧！他是把币就锁了的，这是一个上海江浙小女人；我们的钟仁，就是这么个孩子十七、八岁的孩子，毫不犹豫的锁了的；雷蒙、猫本来就别提了，在那个群里边儿，恨不得把家门都给锁上。
 
-1、木兰丈夫检测出阳性；
+这种动力精神，它是任何一个文明伟大之前，它必须的条件，就你创造一个奇迹，你需要去创造奇迹的人，和创造奇迹的钱，更重要的事情，天时、地利、人和。
 
-2、奧米抗（OMICRON）一点都不逊色于冠狀病毒（COVID）病毒，OMICRON是慢性杀人，都是生化武器；
+这是为什么王艳萍和我，跟那个喜联储为战友们争取利益的时候，我们是，我们是凭着良心良知的，这不是开玩笑的。昨天他们去看到这个到喜联储开会，他们看到那个Williams，还所有人的眼睛通红，说这个整个人都快累垮了。
 
-3、疫苗mRNA（刺突蛋白），就是病毒；
+为什么？就是他要面对着我们战友的利益必须排在前面，我们战友是投资者，这个投资者这句话谁都会说，许家印也说谁都说，但是我们对待这个投资者三个话(字)的时候，像信仰一样的、像神一样的存在，只有共同的、一个集体的行动，捍卫我们每个人的利益，你的今天就是我的明天，你的钱就比我的钱重要，你没有这样你不可能创造今天奇迹般的喜联储。
 
-4、拜登疫苗强制令很大的可能性会被否决；
+你等到今年经济崩塌的时候你会发现，哇塞！我当初的一个干干净净的决定，竟然影响了这么大。真的是，兄弟姐妹们！太伟大啦！你们太伟大啦！接下来，我们让更多的伟大的人加进来，还有更多的伟大的时刻，我现在，我没有在宣布之前，让战友们有更多的币存在。
 
-5、中共用金融危机流氓手段绑架全世界；
+你看这两天币，想办法打压，哎呦！37，我以为35呢，37了已经是吧！是37吧37块钱，我没看错！ 37我可以告诉大家，如果现在场外交易，你去想想的值多少钱，但是纠结…但是如果我们战友的币，随便买的话、随便卖的话，我告诉你今天喜币值多少钱？三到五块钱，不会超过十块钱，大家不锁的币话，就是十块钱三到五块钱,甚至比这还低。
 
-6、中共灭亡制造的金融危机，美国的资产可能会缩水50%-70%；
+我可以告诉大家，就是大家把币锁住了，他这个钱就上去了。现在投资机构给多少钱？他一定给超过这个钱，我们要让整个KFC的水进来以后，我们要有个千亿的盘子在这搁着的时候，他就是万亿的市场。你们每个人都是那个金手指，每个人呐！七哥有多爱你们啊！
 
-7、中共灭亡前所未有的全球经济危机，喜联储喜币重新书写了数字货币的游戏规则；
+编辑整理：海贼王M.D.LUFFY；
 
-8、国内买喜币的战友，一定先KYC，不要因为买币付款影响安全，有人要买喜币，大家尽量帮助，因为有战友在银行付款被警察威胁；
+G-News发布：海贼王M.D.LUFFY；
 
-9、喜币如果没有锁币，目前的价格会低于3-5块钱。战友们毫不犹豫的“币加锁”，太伟大了；
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-10、共产党越打压新中国联邦护照，新中国联邦护照越升值；
-
-11、 新中国联邦，爆料革命，郭文贵 成为共产党绝对不能谈的词；
-
-12、胡海峰是胡锦涛和习近平交易的结果，未来的接班人；
-
-13、20大常委名单：习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长；
-
-14、二十大常委的名单公布会加剧内斗，没有江家人，贾庆林，栗战书会善罢甘休吗？
-
-15、北朝鲜不可能参加冬奥会，金正恩对共产党狮子大开口，100亿美元现金，进入联合国，都是中共无法完成的的任务。而且他很怕死（怕斩首）；
-
-16、中美必有一战，火战热战应该是在冬奥会之后，共产党打台湾，很可能会引起 火战。
-
-17、病毒过后新加波不会有李家；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
 欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：日本银河系农场。
 
  
 
