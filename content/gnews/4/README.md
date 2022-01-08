@@ -2,52 +2,24 @@
 ---
 
 
-## 独裁者以人类为祭品
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1837008/)
+## 澳大利亚议员凯利称官员故意阻挠新冠救命药物
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1837066/)
 
-作者：纽约香草山 -文特
+#### 加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0283.jpeg)Thewest
+据鸿声传媒1月7日报道，澳大利亚议员克雷格·凯利近日公开指责卫生官员和政治家合谋在新冠病毒预防和治疗方面故意阻挠救命药物。
 
+凯利在谈到澳大利政府处理新冠病毒的做法时很愤怒，他说，政府对任何试图使用疫苗之外的药物治疗新冠病毒感染病人的医生进行政治迫害。
 
+凯利认为，以公共卫生名义进行侵权的卫生官员必须对此负责，但那些身居要职的自满政治家是在犯罪，因为他们允许并支持这样的侵权越权行为发生。
 
-![This image has an empty alt attribute; its file name is %E6%96%B0-9.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
+如果凯利的指责最终被证实，被指责的人将因为故意致无辜的人于死地而最终被送上审判台，面临极为严重的危害人类罪指控。
 
+凯利是联合澳大利亚党的领导人，该党是澳大利亚的大党派，是一个以“造福全体国民”为己任的右翼政党。
 
+参考：[Australian Health Officials & Complicit Politicians Put On Notice Over Crimes Against Humanity, HCQ \[VIDEOS\]](https://www.redvoicemedia.com/2022/01/australian-health-officials-complicit-politicians-put-on-notice-over-crimes-against-humanity-hcq-videos/)
 
-1月5日，郭先生在文贵大直播中谈到所有独裁者都认为，死人，是国家强大的必然结果。他们认为，人类的死亡就是独裁者的祭品。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-2.jpg)
-
-希特勒当年说，德国人死一半，我们才能胜利。墨索里尼说，意大利死掉一半，意大利才能强大。日本天皇认为，日本人都死了，日本也能强大。西安的事情不是简单的历史的重复。希特勒，斯大林，苏哈托，阿明，天皇，他们共同的特点，从开始自己完全的偶然，经过吹捧，把偶然变成神迹。然后要干掉一切，包括上帝，自己变成上帝。
-
-习总加速师自信认为自己想干的事，国内老百姓支持，国外各国认可，然后就是打台湾。理所当然统治人民，自己当神。所有相信他的人都会成为陪葬品。可悲，可恨，但是必然结果。
-
-郭先生自信满满地说，有爆料革命在，必然会让中共独裁者的想法成为泡影。
-
-参考链接：[https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502](https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
-
-总编：Irene木木
-编辑：Ivy001
-校对/发稿：Daxia
-
-更多资讯，更多关注
-
-纽约香草山农场 GTV–香草山之声
-
-纽约香草山农场 GTV-MOS TALK 香草山访谈
-
-纽约香草山农场 Gettr
-
-纽约香草山农场 YouTube
-
-欢迎加入纽约香草山农场 Discord
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
-
-
-习总加速师自信认为自己想干的事，国内老百姓支持，国外各国认可，然后就是打台湾。理所当然统治人民，自己当神。所有相信他的人都会成为陪葬品。可悲，可恨，但是必然结果。
-
- 郭先生自信满满地说，有爆料革命在，必然会让中共独裁者的想法成为泡影。
+编辑/发文：Kent
 
  
 

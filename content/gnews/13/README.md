@@ -2,46 +2,34 @@
 ---
 
 
-## 辉瑞疫苗残液培养2天后的显微镜观察
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1836896/)
+## 美驻日大使称中共不是好邻居
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836984/)
 
-韩国首尔天池农场
-翻译：势在必行
-校对：鱼子酱
-上传：QCFM
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月6日，据相关媒体报道，即将上任的美国驻日本大使易曼纽在接受日本媒体采访时直截了当地表示，中共不是日本的好邻居。
 
-P公司(辉瑞公司)疫苗残留液培养第二天,继续播放视频。
-能看到这样的吧？
-因为和旁边的浮游物有点不一样
-这里也有点蠢蠢欲动
-看得见吧？
-我不知道这是什么漂浮物
-不是看着这个说的
-在旁边看的话 ，能看到像纤毛一样的东西吧？
-一直在漂浮
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpeg)
 
-我觉得，刚才做了独立的运动，而且很大
-而且纤毛发达，这些东西
-几乎是生命体
-看到这个也在蠕动吧？ 是吧?
-他现在也想要醒过来
-近距离看的话 这里有点…
-能看到毛在动吧？
-这是什么样的艺术冲击呢
-不知道是不是真的有问题
-但是总之能看到这种形态…
-是大号的。
+易曼纽解释道，美日两国拥有民主这一共同价值观，因此才能共同为亚太地区的发展做出贡献。同时，美日双方正在就发展共同的价值观迎来一个重要时期。
 
-比刚才的磁盘还要大
-然后这里面有这样的内容物
-这可能是艺术冲击
-总之我觉得，能成为争论对象的
-这次视频里几乎都排除了
-就放了这个这个
-我想看看是什么…
+相反的，对于日益威胁地区安全的中共国，易曼纽也谈到了香港和南海局势的相关问题。易曼纽认为，中共既不是日本的好邻居，也不是有利于亚太地区发展的积极因素。
 
-相关链接：[第1天](https://gnews.org/zh-hans/1836837/) [第2天](https://gnews.org/zh-hans/1836896/) [第3天](https://gnews.org/zh-hans/1836960/)
+参考链接：[美新任駐日大使批 中國不是好鄰居](https://cn.rti.org.tw/news/view/id/2121438)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

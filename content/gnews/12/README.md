@@ -2,36 +2,28 @@
 ---
 
 
-## 中俄将哈萨克斯坦的暴动甩锅给美国
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1836915/)
+## GTV新闻访谈简报|2022年1月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1836997/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/AZ-2.jpg)
-图片:网路
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-**美国否认是哈萨克斯坦暴动的幕后黑手**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《零对冲》的报导，1月5日白宫新闻秘书珍·普萨基Jen Psaki谴责俄罗斯媒体的「疯狂」报导，称美国及其盟国可能正在哈萨克斯坦煽动起义，骚乱和破坏。最近，中共也不约而同地表示，美国有可能秘密介入。
+视频参看：[2022.01.08早GTV新闻访谈](https://gtv.org/video/id=61d9a6c62507c21c385d448f)
 
-在新闻发布会上，普萨基在谈到哈萨克局势时说，”美国正在监测哈萨克抗议活动的报导，我们呼吁各方冷静自持克制。”并否认俄罗斯指控美国为幕后黑手。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**中俄强力插手哈萨克斯坦的暴动**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
 
-中共国表面支持总统卡西姆-若玛律特·托卡耶夫（Kassym-Jomart Tokayev）镇压抗议和骚乱，而俄罗斯也在哈萨克布署至少3，000名士兵。
-
-“中共国支持哈萨克当局尽快结束混乱的努力，坚决反对外部势力蓄意制造社会动乱和煽动暴力的行为，”中共外交部发言人汪文斌在1月7日的新闻发布会上假惺惺地说。据彭博社报导，习近平坚定地站在托卡耶夫和莫斯科一边，并称有可能采取「强而有力的措施」。
-
-**哈萨克的100吨黄金才是真正的导火索**
-
-据郭文贵先生在大直播中爆料，习近平派王毅到哈萨克斯坦要回王岐山及江派在当地隐藏的100吨黄金，哈萨克斯坦总统托卡耶夫虚与伪蛇，不愿交出黄金。中共威胁要颠复哈萨克斯坦政权，王毅前脚离开哈萨克斯坦，哈萨克斯坦动乱随即发生。
-
-除了表面上支持哈萨克斯坦，暗地里策划此次动乱，中共还将责任甩锅给美国，制造民族仇恨。
-
-**新中国联邦是清扫战场的最后获益人**
-
-“新中国联邦随时盯着这批黄金，最后还是会回到喜联储。”文贵先生笑着说。对于哈萨克斯坦的动乱，文贵先生在发生之前就提醒哈萨克斯坦的政治友人，”关于此次事件, 酷爱立碑纪念的哈萨克斯坦一定会为新中国联邦立碑。”文贵先生胸有成竹地说。
-
-消息来源: [White House Blasts “Crazy” Russia-China Statements Accusing US Of ‘Color Revolution’ In Kazakhstan](http://White%20House%20Blasts%20&quot;Crazy&quot;%20Russia-China%20Statements%20Accusing%20US%20Of%20'Color%20Revolution'%20In%20Kazakhstan)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

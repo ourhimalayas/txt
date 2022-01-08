@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币的价值就在于我们战友
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1836445/)
+## 以敌制敌 以共灭共
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1836483/)
 
 台灣寶島農場
 
