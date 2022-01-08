@@ -2,37 +2,37 @@
 ---
 
 
-## 朝鲜致函称因疫情无法参加北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835807/)
+## 中国科学家因窃取孟山都公司的机密而认罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1836157/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月7日，朝鲜奥委会致函中共国奥委会及冬奥组委会，称朝鲜将不参加北京冬奥会。
+**编译：美哥**
+**编辑:   MSGZ  **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/树叶.png)图片来源  theguardian.com
 
-朝鲜在信函中，一方面指责了美国及其盟国，试图阻碍冬奥会顺利举办。另一方面却借全球新一轮疫情非常严重为由，同样拒绝参加本届冬奥会。
+前孟山都雇员向海涛，在美期间被指控窃取了美国农业技术，目的是让中共政府受益。
 
-时评人士指出，早在2021年9月初，国际奥委会IOC就因为朝鲜拒绝参加东京夏季奥运会，而决定暂停朝鲜奥委会的成员资格至2022年底，使朝鲜无法以国家队选手的资格参加北京冬奥会，但IOC并未否决朝鲜选手以个人身份参加北京冬奥会的可能性。此时这封信函不仅显得多余，更有“伤口上撒盐”之嫌。
+周四，美国司法部门的起诉书里写道了44岁的向海涛密谋为中华人民共和国窃取商业机密。目前他已承认了罪行。
 
-参考链接：
+向海涛在密苏里州的孟山都总部曾以科学家的身份工作过，在他离开后，就买了一张飞回北京的单程票，而执法人员在他的电子设备里发现一份“营养素优化”算法的系统副本，而该演算法属于孟山都的机密。本案将于4月7号宣判，如果指控全部成立，其将面临15年有期徒刑和500万的罚金处罚。
 
-- [朝鲜：因全球疫情等原因无法参加北京冬奥会，但将全方位支持和声援中国](https://m.sohu.com/a/514860835_313745?scm=1104.0.0.0&amp;spm=smwp.home.fd-important.9.1641512406698kIPHEre)
+美国密苏里州东区的检察官弗莱明 (Sayler Fleming) 表示：“我们不能允许美国公民或者外国人，将敏感商业信息交给别国的竞争对手，这些罪行对美国经济和国家安全十分危险。”
 
+美国联邦调查局反间谍助理小艾伦.科勒也称：“当像中国这样的政府盗取我们的技术来实现经济发展的同时，美国人成为了最大受害者。美国不仅仅是机密实验室里的军事技术，提高棉花产量的农业技术也同样会被对手觊觎。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+向海涛的认罪是美国司法界对反对中国干涉的又一次新胜利。上个月，前哈佛大学的化学部门负责人，因为非法参武汉工程大学的项目而认罪。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：海阔天空1
+原文链接：[https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/](https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：盘古相聚*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

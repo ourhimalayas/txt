@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jockowillink 1/5/2022 4:43 AM (UTC)`
+
+Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>  https://gettr.com/user/Jockowillink
+
+---
+
 `@miles 1/8/2022 8:04 AM (UTC)`
 
 1/07/2022 Miles Guo: The photo of my younger brother and I that was taken over 40 years ago touched me deeply, and I burst into tears; the proportion of falsified data of the Hong Kong stock market and the real estate in Hong Kong and mainland China has jumped to 35%; I have rewritten the rules of the game for digital currencies; the demise of the CCP will lead to the boom of digital currencies<br/><br/>1/07/2022 文贵直播：40多年前和八弟的照片让文贵感触颇深、潸然泪下；香港和大陆房地产以及港股数据造假比例跃升至35%；文贵改写了数字货币的游戏规则；中共的灭亡将成就数字货币<br/>
@@ -147,13 +155,6 @@
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥3
 ![img](https://media.gettr.com/group28/getter/2022/01/07/18/bd87e791-d729-5e61-fa0f-5a509dc155e8/d525dd1e8e3ba8c2d155a7612e934a00.jpg)
-
----
-
-`@miles 1/7/2022 6:41 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥2
-![img](https://media.gettr.com/group21/getter/2022/01/07/18/763d328a-2811-8da1-c461-fc56d25160d6/2901360fde760e012eda696da0ad7ff5.jpg)
 
 ---
 

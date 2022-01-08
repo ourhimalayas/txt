@@ -2,24 +2,38 @@
 ---
 
 
-## 【中日财经爆】日本一定会成为第二大数字货币市场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835905/)
+## 美国马里兰州宣布进入紧急状态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836321/)
 
-撰稿：东京樱花团/ 盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-85.png)图片来源于本文链接
-我一再说到日本的HPAY市场，还有日本的未来的数字货币整个的未来，还有在日本的整个的喜币和喜美元的流行，还有未来整个的实施。可以说它是战略性的，应该说是排第二位，除了美国之外它是最重要的。
+作者：纽约香草山教育部 Naughty(文行)
 
-而且日本这个国家，一定会在数字货币市场上这次会抓住这个机会，它不会再输掉了。过去的日本二战之后，在金融市场市场上，简直这个日本这个国家，把所有的国家的财富全输光了。日本的金融烂到什么程度，共产党的科技发明有多烂，日本的金融就有多烂，就这么简单。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-所以说日本的整个的交易一定会有，不管中间有多大的曲折，日本最后一定会成为喜币流行的重要市场。不管有多少挫折，然后在日本这个喜支付是绝对的重要，千万不要错过了时机。
+1月6日，美国马里兰州州长拉里·霍根当天宣布，该州将进入为期30天的紧急状态，同时，当地政府将采取紧急短期行动抗击当前的中共病毒疫情。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.39.03-PM.png)
+数据显示，马里兰州当天因中共病毒感染住院的人数创下了历史新高，而该州的中共病毒感染患者在过去七周内增加了500%以上。预计，当地的住院人数可能会在未来几天内超过五千人，这将比之前的峰值高出两倍以上。
 
-日本的这几个农场，因为今天没有说太（细），如果你们错过这个机会，那草根小哥明年这个，再在大直播，你绝对看不到草根小哥了，你不会再看到Cosmos，你不会再看到马拉多纳，你不会再看到勇气、魔女，不会看到的。温暖姐姐，你别在那儿很自信，你别老是今天你和文嘉你俩一唱一和地，我们有蓄积的力量，明年如果在这个事上没搞明白，明年你就成个笑话了。你自己都不好意思看电视了。所以说抓住这机会，一定会是最重要的。对喜币发展的市场就是第二市场。
+霍根州长表示，未来的四到六周将是整个中共病毒疫情中最具挑战性的时刻。为此，当地动员了一千名马里兰州国民警卫队成员，用以协助州和地方卫生官员持续应对疫情。
 
-[消息来源](https://gettr.com/post/ple42ae1c8)
+霍根州长还指出，当地所有的紧急行动都是为了让马里兰州能继续正常运转。而在未来几周非常困难的日子里，州政府将继续采取一切必要行动来防止中共疫情进一步爆发。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+參考鏈結：[Governor Hogan Declares 30-Day State of Emergency, Mobilizes 1,000 Members of Maryland National Guard to Respond to COVID-19 Surge](https://governor.maryland.gov/2022/01/04/governor-hogan-declares-30-day-state-of-emergency-mobilizes-1000-members-of-maryland-national-guard-to-respond-to-covid-19-surge/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+
+编辑：Kathy文艺
+总编：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
