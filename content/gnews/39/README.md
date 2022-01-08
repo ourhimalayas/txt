@@ -2,10 +2,8 @@
 ---
 
 
-## 罗伯特·马龙博士说福奇毫无诚信，他一直在撒谎
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835578/)
-
-01/04/2022 罗伯特·马龙博士：托尼·福奇毫无诚信，他一直在撒谎。我们都会被感染，在美国，可能唯一不会出现某种程度症状的人将是那些具有天然免疫力的人，其中仍有一小部分会被感染。
+## 这个国家的发展方向就是乔·罗根所做的：从推特到盖特
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835580/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
