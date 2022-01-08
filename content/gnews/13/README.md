@@ -2,45 +2,32 @@
 ---
 
 
-## 中共国想要禁声的科学家 （三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1837648/)
+## 加拿大联邦公共服务部长新冠病毒检测呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837659/)
 
-翻译：文羽
+2022-01-08
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-08-205156.jpg)图片来源: elcomercio.es
+译评：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/death-abroad-20190726.jpg)加拿大公共服务和采购部长Filomena Tassi (图源CBC)
+根据CBC记者Dan Taekema于2022年1月6日的新闻报道：
 
-全球科学合作
+加拿大公共服务和采购部长塔西（Filomena Tassi）表示，她的新冠病毒检测呈阳性。
 
-文章发表后，陈博士说，“我收到了无数人用中文发来的信息，他们指责我背叛了我们的种族，并告诉我我活该死。我宁愿不谈论它以免让我的家人更担心，但是我们只能调查西方国家的实验室泄漏而不是亚洲人的实验室泄漏的想法，因为这将是种族主义的标志，对我来说是不科学的。光是听就想笑。”
+她在周三晚上分享的一条推文，证实她感染了病毒。她写道：“我正在遵循公共卫生指南，隔离并继续在家工作。”
 
-她补充说，如果实验室泄漏的假设是真的，那么西方国家也将承担责任。 “总会有人说错在中国人，但这更进一步。武汉科学家与来自非洲、美洲和欧洲的同事合作完成了这项工作。陈博士说，我们谈论的是全球范围内的科学合作。我们必须进行可信的调查，建立一个中立性毋庸置疑的委员会，彻底要求每个人了解他们所知道的，并揭露所有可能有用的通讯和文件”。
 
-在世界各地的媒体对她最初的时事通讯做出回应后，陈博士成为关注的焦点。 “在那五六天里，我几乎没睡几个小时。他告诉我说，我和我的同事都自毁前程了。但陈博士继续调查。在接受麻省理工科技评论采访时，她形容自己是“天生的杂种苍蝇”。
 
-2018 年，与武汉研究所有关联的北美组织生态健康（EcoHealth）要求提供资金来制造经过基因改造的病毒，以成倍地增加它们在人与人之间的传染能力。
+> This morning I tested positive for COVID-19. I am following public health guidelines, isolating and continuing to work from home. A big thank you to all the health workers who are doing so much to support Canadians through this difficult time.
+> — Filomena Tassi (@FilomenaTassi) [January 5, 2022](https://twitter.com/FilomenaTassi/status/1478866610299547650?ref_src=twsrc%5Etfw)
 
-“我有考虑长期后果的习惯；我对短期主义不感兴趣，”她现在说，“是的，当然，我正在为谈论可能的实验室泄漏付出代价，但如果没有人对一种已经杀死数百万人的病毒发出警报，而且它可能起源于实验室事故，我们将再次见面。同样。我们正在为鲁莽行为和持续的流行病事故创造先例。”
 
-陈博士分享了一个她觉得很有启发性的事实。 9 月，门户网站 The Intercept 发表了一篇关于申请某项科学资助的故事，这导致他选择了对实验室泄漏的解释。该申请明确表明，早在 2018 年 3 月，生态健康联盟及其合作者——包括武汉研究所——就计划创建新的类似 SARS 的病毒基因组。目标是引入一位专家称之为“新弗林蛋白酶裂解位点”的遗传物质片段，能够以指数方式增加病毒感染人类细胞的能力。换句话说：他们要钱来制造类似于未来 SARS-CoV-2 的病毒。
 
-鲁莽的病原体狩猎
+据悉，塔西已接种三针疫苗。无数的事实证明疫苗是无效的，接种疫苗照样感染病毒，而且潜伏巨大的危机。温馨提示，保护自己和家人的健康，请远离病毒拒绝疫苗。
 
-向美国武装部队调查机构提出的请求被拒绝。但陈博士仍然认为这很重要。 “这表明，在大流行前两年，武汉的科学家有能力制造这种病毒。”这也不是一个确定的测试。 “不。但这是他们能够做到的证明。该病毒很可能是从武汉所做的工作中产生的。”
+来源链接：[CBC: Federal Public Services Minister Filomena Tassi tests positive for COVID-19](https://www.cbc.ca/amp/1.6305850)
 
-如果确认病毒是从那里出来的，地缘政治后果将是巨大的，但陈博士也有兴趣采取有效措施。首先，有必要结束她认为鲁莽的做法。
-
-例如，在实验室中对病毒进行改造，使其更加危险，并结束武汉科学家对病原体的追捕，这项任务需要从蝙蝠或其他动物身上收集血液或粪便样本，然后将它们带到大城市中心的实验室。
-
-“我不明白，”陈说，“将这些中心转移到人口稀少的地区，并在每次科学家要求返回大都市区时采用良好的隔离协议，难道就这么难吗？或者，为了以更透明和更安全的方式进行这些调查，是否需要第二次大流行？”
-
-新闻来源 : [elcomercio.es][LA CIENTÍFICA QUE CHINA QUIERE SILENCIAR](https://www.elcomercio.es/xlsemanal/ciencia/coronavirus-origen-china-laboratorio-wuhan-investigacion-alina-chan-cientifica.html?ref=https://www.google.com/)
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
