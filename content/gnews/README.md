@@ -135,11 +135,11 @@
 ### [文贵爆料 1.7：人生就是“黄粱一梦”](/content/gnews/40/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|盖特是最重要的社交媒体平台](/content/gnews/41/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2022年1月7日早](/content/gnews/42/README.md)
+### [GTV新闻访谈简报|2022年1月7日早](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
+
+### [有声|GTV新闻访谈简报|2022年1月4日早](/content/gnews/42/README.md)
+ ` MOSREC`
 
 ### [为什么](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
