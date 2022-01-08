@@ -2,71 +2,28 @@
 ---
 
 
-## 2022年1月7日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834587/)
+## 中共二十大第一版新常委名单出炉，将掀起新一轮腥风血雨
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1834655/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2_副本.jpg)
-视频连接：[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5) 或 [https://gettr.com/streaming/pmw0gj4b89](https://gettr.com/streaming/pmw0gj4b89)
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-1、木兰丈夫检测出阳性；
+1月6日，郭文贵先生在Gettr发出中共二十大新常委名单后，一石激起千层浪，紧接着在随后7日的GTV、Gettr大直播中对这份名单进行了深入解读。
 
-2、奧米抗（OMICRON）一点都不逊色于冠狀病毒（COVID）病毒，OMICRON是慢性杀人，都是生化武器；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ezgif.com-gif-maker-1.jpg)图片来源Yahoo台湾
 
-3、疫苗mRNA（刺突蛋白），就是病毒；
 
-4、拜登疫苗强制令很大的可能性会被否决；
 
-5、中共用金融危机流氓手段绑架全世界；
+从昨日放出的这份名单中我们看到，国家主席是习近平，国务院总理是胡春华，第一副总理是陈敏儿，纪委书记是陈全国，全国政协主席是李希，人大委员长是丁薛祥。
 
-6、中共灭亡制造的金融危机，美国的资产可能会缩水50%-70%；
+陈全国没“下台”，是高升；胡春华和共青团强势回归，不见栗战书；丁薛祥从最高领导的接班人往边缘靠，李希的位置应该更好；陈全国成为“大杀器”。接下来的党内斗争只会更为暴力，这个名单并不意味着最后的结局。
 
-7、中共灭亡前所未有的全球经济危机，喜联储喜币重新书写了数字货币的游戏规则；
+当江泽民家、曾庆红家、王岐山家、孟建柱家得知这个名单后谁也不会坐以待毙，就连习的心腹栗战书也不会甘心退役。江家的韩正，曾家的郭声琨、赵克志、赵乐际，王家的郭树清，外加陈全国的神兵天降定杀得血流成河。中共把国家变成家国，这种家天下为基调的绞杀不可停息，以共灭共渐入佳境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/qqqqqq.jpg)图片来源Miles Guo Gettr截图
 
-8、国内买喜币的战友，一定先KYC，不要因为买币付款影响安全，有人要买喜币，大家尽量帮助，因为有战友在银行付款被警察威胁；
 
-9、喜币如果没有锁币，目前的价格会低于3-5块钱。战友们毫不犹豫的“币加锁”，太伟大了；
+习近平恰恰是灭共道路上的砥柱，歪着脆弱的脖子顽强坚持到二十大，以此颠覆当年的南普陀会议计划。习曾之间将有大决战，而不是习江。曾是南普陀会议的发起者，也是秘密会议的组织者。中国只有一个人物能达到司马懿的境界，就是曾。只有亲自和曾打过交道，才能体会曾的境界之高。郭先生也在之前的直播中透露，在中共倒台灭亡之后，曾会是一个很好的过渡人选（有需要的前提下）。近日王力宏、 吴亦凡等曾家控制的明星丑闻迭出，目的就是为了打击背后的曾庆红和曾庆淮。
 
-10、共产党越打压新中国联邦护照，新中国联邦护照越升值；
-
-11、 新中国联邦，爆料革命，郭文贵 成为共产党绝对不能谈的词；
-
-12、胡海峰是胡锦涛和习近平交易的结果，未来的接班人；
-
-13、20大常委名单：习太阳 国家主席，胡春华总理 ，陈敏尔第一副总理 ，陈全国 纪委书记 ，李晞 政协主席 ，丁薛祥 人大委员长；
-
-14、二十大常委的名单公布会加剧内斗，没有江家人，贾庆林，栗战书会善罢甘休吗？
-
-15、北朝鲜不可能参加冬奥会，金正恩对共产党狮子大开口，100亿美元现金，进入联合国，都是中共无法完成的的任务。而且他很怕死（怕斩首）；
-
-16、中美必有一战，火战热战应该是在冬奥会之后，共产党打台湾，很可能会引起 火战。
-
-17、病毒过后新加波不会有李家；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+伴随着所未有的全球经济危机慢慢临近，当房地产和金融崩塌之时，也是全世界金融结构、政治、经济、资源大洗牌的时刻。所有危机之后，人类文明、财富会迎来大爆发。新中国联邦施巧力以敌制敌，定会像日月照耀八方。
 
  
 
