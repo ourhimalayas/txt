@@ -2,37 +2,46 @@
 ---
 
 
-## 有声|专家呼吁关注奥密克戎变种出现的独特症状
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834864/)
+## 波兰终于承认购买以色列飞马间谍软件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1834863/)
 
-配音：香草山巡管部 – 格格
+#### 【雅典娜快讯】，紧贴时事脉搏
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Pegasus.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
 
-此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
+图片来源：*Image source: https://rb.gy/5a2czc*
 
-不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
 
-文字版原文：[专家呼吁关注奥密克戎变种出现的独特症状](https://gnews.org/zh-hans/1825357/)
+编译：小红帽
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+根据《RT新闻》1月7日报道，波兰最有权力的立法者承认，波兰从备受争议的以色列NSO集团购买了飞马（Pegasus）间谍软件。然而，他否认该软件被用来针对政客，声称是给特工部门使用的。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+波兰执政的法律与正义党（PiS）领导人雅罗斯瓦夫·卡钦斯基（Jaroslaw Kaczynski）在接受《右翼周报》的采访时说，**波兰安全部门正在使用强大的窥探软件，这是一件好事。**
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+卡钦斯基在提到以色列的NSO软件时说：**“如果波兰的安全部门没有这种类型的工具，那就糟糕了。飞马软件代表了现有监控系统的巨大技术进步，并指出安全部门以前无法读取加密信息。”**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+此前，**波兰政府曾被指控使用飞马软件对政治对手进行监视。**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+在被当地媒体称为“波兰水门事件”的丑闻中，据称总理马特乌斯·莫拉维茨基的政府对协调2019年选举活动的公民平台党成员克日什托夫·布雷扎（Krzysztof Brejza），以及参与反对社会党案件的律师罗曼·吉尔蒂奇（Roman Giertych）进行了监视。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+另据称，检察官和反对派人士伊娃·沃佐塞克（Ewa Wrzosek）也被监视。这些指控是由多伦多大学的网络监督组织公民实验室提出的。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**卡钦斯基的盟友此前一直否认与以色列间谍软件制造商有任何交易。**
+
+NSO软件赋予用户访问其目标智能手机的能力，阅读信息，查看照片，跟踪位置，甚至打开摄像头，所有这些都是在设备用户不知情的情况下进行的。
+
+新闻来源：[Poland admits buying Israeli Pegasus spyware — RT World News](https://www.rt.com/news/545378-poland-pegasus-spyware-secret/)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

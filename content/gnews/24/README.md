@@ -2,39 +2,31 @@
 ---
 
 
-## 有声|芝加哥警察工会主席猛烈抨击中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834825/)
+## GTV新闻访谈简报|2022年1月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1834820/)
 
-配音：香草山巡管部 – 格格
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0107text-SC.png)
+校对：Stay文苑
 
-对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
+编辑：Stay文苑
 
-此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
+发稿：Stay文苑
 
-据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
+视频参看：[1.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61d8e8aa2591020829845077)
 
-文字版原文：[芝加哥警察工会主席猛烈抨击中共病毒疫苗](https://gnews.org/zh-hans/1825404/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834944/)
+## 美国疫苗灾难愈演愈烈
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834943/)
 
-配音：香草山巡管部 – 格格
+采编/编译撰稿：Quitman     校对编辑，发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-13-edited.jpg)图片来源：GJXW
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据国家脉动4日报道，受雇于葛兰素史克公司GSK的前科学家Lucy Xi，承认窃取中共病毒疗法相关的商业秘密，目的是帮助一个国资药企。
+据盖特1月5日援引美国媒体消息称：美国目前已有近100万人正在遭受接种“新冠病毒”疫苗后所产生的各种严重伤害甚至死亡。此外，该疫苗不仅不能有效防御病毒感染，而且还将直接威胁被接种者的生命健康。
 
-Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美国司法部消息，2015年1月，她向同伙梅岩发送了一份包含“保密商业机密数据与信息”的GSK内部文件。该文件提供了GSK当时对单克隆抗体的研究概况。Lucy Xi在邮件正文中写道：“你需要充分弄懂这个，将有助于任诺的未来发展。”
+英国最新官方数据显示：去年8月16日至12月15日期间，在死于“新冠病毒”感染的患者中，已接种疫苗的人数比未接种者多出近3倍。该数据意味着“接种者比未接种者更容易死于该病毒感染”。
 
-检察官威廉姆斯指出：“这名被告非法窃取商业秘密，使由中共政府出资的公司受益，这种犯罪行为必须在法律的最大范围内受到起诉。”
+此外，美国最新官方数据也同样显示出，目前该国已有超过10万人在接种疫苗后出现了各种严重疾病而需要住院治疗甚至大量死亡的案例。同时，以上类似情况在世界各地均已大量涌现。不难想象，全球“新冠病毒”疫苗灾难才刚刚开始。
 
-文字版原文：[中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](https://gnews.org/zh-hans/1827313/)
+* * *
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： https://gettr.com/post/pmk6dpce06
 
  
 

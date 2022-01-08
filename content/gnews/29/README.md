@@ -2,10 +2,10 @@
 ---
 
 
-## 日本新增确诊中共病毒感染比一周前暴增12倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1834777/)
+## 日美防长“2+2会议”聚焦应对中共海上军事扩张威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1834776/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220108-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._8-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
