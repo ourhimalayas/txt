@@ -15,119 +15,119 @@
 
 ---
 
-### [1/07/2022 文贵直播： 中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手](/content/gnews/1/README.md)
+ ` GISELLE`
 
-### [视频| 疫苗灾难&#8211;神，上天，轮回，报应，各有各的福报](/content/gnews/2/README.md)
- ` MOSREC`
+### [加拿大人均债务创历史新高](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [‘泄露出的’中共国间谍恶作剧嘲笑美国，引来军情六处处长的罕见回应：‘免费宣传’](/content/gnews/3/README.md)
+### [从筷子谈中西方文化差异](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大BC省医疗系统因奥密克戎而不堪重负](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [保房价，中共倒台更快](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [法官驳回FDA对疫苗数据75年的拖延，削减至仅8个月](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/4/README.md)
+### [加拿大群体免疫力因疫苗而逐渐丧失](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|古以色列亡国启示录](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|航空公司支付员工高薪维持假期运营](/content/gnews/5/README.md)
+### [1/07/2022 文贵直播： 中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [王力宏为党点赞仍被诛杀，何韵诗一生傲骨获赞无数](/content/gnews/6/README.md)
+### [美国疫苗灾难愈演愈烈](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频| 疫苗灾难&#8211;神，上天，轮回，报应，各有各的福报](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [‘泄露出的’中共国间谍恶作剧嘲笑美国，引来军情六处处长的罕见回应：‘免费宣传’](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|航空公司支付员工高薪维持假期运营](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [王力宏为党点赞仍被诛杀，何韵诗一生傲骨获赞无数](/content/gnews/16/README.md)
  ` mary202064`
 
-### [【粤语配音】2022年1月7日：共产党房地产的倒塌，将成就人类数字货币的诞生](/content/gnews/7/README.md)
+### [【粤语配音】2022年1月7日：共产党房地产的倒塌，将成就人类数字货币的诞生](/content/gnews/17/README.md)
  ` MOS香港部`
 
-### [有声|专家呼吁关注奥密克戎变种出现的独特症状](/content/gnews/8/README.md)
+### [有声|专家呼吁关注奥密克戎变种出现的独特症状](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [波兰终于承认购买以色列飞马间谍软件](/content/gnews/9/README.md)
+### [波兰终于承认购买以色列飞马间谍软件](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共“清零”政策及其荒谬和残酷](/content/gnews/10/README.md)
+### [中共“清零”政策及其荒谬和残酷](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|芝加哥警察工会主席猛烈抨击中共病毒疫苗](/content/gnews/11/README.md)
+### [有声|芝加哥警察工会主席猛烈抨击中共病毒疫苗](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2022年1月7日晚](/content/gnews/12/README.md)
+### [GTV新闻访谈简报|2022年1月7日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [灭共者之郭氏情报站（十）2022年1月7日版](/content/gnews/13/README.md)
+### [灭共者之郭氏情报站（十）2022年1月7日版](/content/gnews/23/README.md)
  ` MOS Designer香草山设计部`
 
-### [法国总统称未接种疫苗者为 “非公民&#8221;](/content/gnews/14/README.md)
+### [法国总统称未接种疫苗者为 “非公民&#8221;](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美最高法院将重新裁决拜登的疫苗政策](/content/gnews/15/README.md)
+### [美最高法院将重新裁决拜登的疫苗政策](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本新增确诊中共病毒感染比一周前暴增12倍](/content/gnews/16/README.md)
+### [日本新增确诊中共病毒感染比一周前暴增12倍](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美防长“2+2会议”聚焦应对中共海上军事扩张威胁](/content/gnews/17/README.md)
+### [日美防长“2+2会议”聚焦应对中共海上军事扩张威胁](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：比特币跌势不止 喜币蓄势待发](/content/gnews/18/README.md)
+### [聚焦：比特币跌势不止 喜币蓄势待发](/content/gnews/28/README.md)
  ` 丁过`
 
-### [有声|万物有灵 敬畏生命](/content/gnews/19/README.md)
+### [有声|万物有灵 敬畏生命](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [Joe Rogan 帮助 Twitter 替代品 Gettr 积累了 100 万新用户](/content/gnews/20/README.md)
+### [Joe Rogan 帮助 Twitter 替代品 Gettr 积累了 100 万新用户](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共用“一带一路”控制拉美和非洲、取代美国](/content/gnews/21/README.md)
+### [中共用“一带一路”控制拉美和非洲、取代美国](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗并不是用来对抗病毒的，而是利用病毒来引入疫苗](/content/gnews/22/README.md)
+### [疫苗并不是用来对抗病毒的，而是利用病毒来引入疫苗](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [刺突蛋白疫苗违反了美国法律，那是国内恐怖主义](/content/gnews/23/README.md)
+### [刺突蛋白疫苗违反了美国法律，那是国内恐怖主义](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗是蓄谋已久的种族灭绝](/content/gnews/24/README.md)
+### [疫苗是蓄谋已久的种族灭绝](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [雅典娜时报-第167期](/content/gnews/25/README.md)
+### [雅典娜时报-第167期](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞杰出教授奖获得者曾在武毒所举行讲座](/content/gnews/26/README.md)
+### [辉瑞杰出教授奖获得者曾在武毒所举行讲座](/content/gnews/36/README.md)
  ` 首尔天池农场`
 
-### [杀鸡立威？——德约科维奇在澳大利亚被关押](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [“币加锁”是战友们坚定追求共同信仰的决心更让喜币值万亿](/content/gnews/28/README.md)
+### [“币加锁”是战友们坚定追求共同信仰的决心更让喜币值万亿](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [国内战友要用智慧的渠道买喜币，喜币的价值在于战友们](/content/gnews/29/README.md)
+### [国内战友要用智慧的渠道买喜币，喜币的价值在于战友们](/content/gnews/38/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [中共二十大第一版新常委名单出炉，将掀起新一轮腥风血雨](/content/gnews/30/README.md)
- ` YALUN 亚伦`
-
-### [1/07/2022 文贵直播： 中共会用冬奥会吹牛，但冬奥会结束后就会被疫苗灾难和国内乱局打脸；病毒被释放后必定失控，请多保重](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022年1月7日文贵先生直播摘要及音频—银河系农场](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [天壤之别——新加披疫苗受害者将获得22.5万美元赔偿金](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [1/07/2022 文贵直播： 防范比解药更重要；民意决定了强制疫苗在美国行不通](/content/gnews/34/README.md)
- ` 秘密翻译组-北美组`
-
-### [从郭文贵先生直播看新闻媒体及其背后的力量（1）《纽约时报》与《华盛顿邮报》](/content/gnews/35/README.md)
- ` 加拿大温哥华扬帆农场 文永`
-
-### [23岁天才运动员感染新冠去世，生前接种两剂疫苗](/content/gnews/36/README.md)
- ` 走进澳洲`
-
-### [1/07/2022 文贵直播： 奥米炕病毒传染性极强，请大家千万不能掉以轻心](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [居住土耳其的新疆维吾尔人对中共官员提起刑事诉讼](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [为什么世界选择黄金为标准而不是白银？（2/3）](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`

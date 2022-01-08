@@ -2,66 +2,40 @@
 ---
 
 
-## 居住土耳其的新疆维吾尔人对中共官员提起刑事诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1834482/)
+## 国内战友要用智慧的渠道买喜币，喜币的价值在于战友们
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834660/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-04T125334Z_1329078007_RC2BSR9AAA9F_RTRMADP_3_CHINA-XINJIANG-TURKEY-UYGHURS-1.jpg)
-自《半岛电视台》2022年1月4日报道
+**郭文贵先生：**我再说一下很多战友国内买喜币的人，你们一定要小心！大概过去一星期，国内买喜币的人、要进来的人数，就新增人数，大概翻了N倍。但很多人就付款就特别傻！到中信、到这个招商、到民生就付钱，结果马上报警，警察来敲门来了。
 
-摘要翻译：
+我希望咱今天所有的在看直播的战友们，一定要在全国内，特别是国内的战友，一定说你买喜币的方式非常简单，先准备好KYC，先准备好。我今天凌晨的时候，我们的这个在喜联储的战友Casey给我发信息，战友跟他联系，第一个讨论是什么？怎么能把款汇出去，是吧！就Casey很感慨！说我们中国人怎么活到这样了，是吧！
 
-伊斯坦布尔的维吾尔族穆斯林指责中共国官员犯下种族灭绝、酷刑、强奸和危害人类罪。来自中共国维吾尔族穆斯林的19人已向土耳其检察官对中共官员提起刑事诉讼，指控他们犯有种族灭绝、酷刑、强奸和危害人类罪。
+你们一定记住，不要因为买币给自己惹麻烦，是吧！一定想办法在其他安全的方式下汇款再来买喜币。这是我今天特别要警告大家的！不要给自己惹麻烦，大过年的特别不好，宁可不买喜币，你也不要因为汇款惹麻烦。
 
-律师古尔登·索梅兹（Gulden Sonmez）周二表示，这是必要的，因为国际机构没有对中共当局采取行动，中共当局自2016年以来一直被指控为强迫劳动提供便利，将大约100万维吾尔人和其他主要是穆斯林的少数民族拘留在集中营。
+第二个，就是全球的农场战友们，如果家旁边儿有人买喜币，尽可能帮他，安全的付款，千万别让它出问题。
 
-中共国最初否认这些集中营的存在，但后来表示它们是职业中心，旨在打击极端主义，它否认所有虐待指控。
+第三个，我要告诉大家的，喜币我接着刚才说，喜币的价值就在于我们战友，我告诉昨天那个这个大师，我说你知道为什么你说喜联储是我们的智慧和设计，不是的！没有一个币、包括比特币，它从第一天开始有这么多的、基础的、绝对的支持者，是无私的奉献者。严格讲他不是这个币赢了，是新中国联邦的理念和这个人群赢。他感慨太深，他说你们这回锁币的事情三年，是人类上没有一个人能相信我们能做到的。
 
-据信，约有5万名与土耳其人有种族、宗教和语言联系的维吾尔人居住在土耳其，土耳其是中亚以外最大的维吾尔族散居地。
+编辑整理：海贼王M.D.LUFFY；
 
-该投诉于周二提交给伊斯坦布尔首席检察官办公室。中共国驻土耳其大使馆和检察官办公室没有立即回应置评请求。
+G-News发布：海贼王M.D.LUFFY；
 
-“国际刑事法院应该已经开始审判，但中共国是[联合国]安理会的成员，在这种动态下似乎不可能，”索梅兹在该市主法院外说。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-律师周围有50多人拿着失踪家庭成员的照片和要求起诉中共官员的标语。一些人挥舞着东突厥斯坦独立运动的蓝白相间的旗帜，北京称该组织威胁到其西部地区新疆的稳定。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-申诉涉及116人，申诉人称这些人仍被拘留在中共国，针对112人提出申诉，其中包括中共党员、劳教所所长和干部。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“土耳其立法承认普遍管辖权。 酷刑、种族灭绝、强奸和危害人类罪可以在土耳其法院起诉，罪犯可以受到审判，”桑梅兹说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-提起刑事诉讼的人之一梅迪娜·纳齐米（Medine Nazimi）说，她的姐姐于2017年被带走，此后一直没有音讯。“我姐姐和我都是土耳其公民，所以我希望我的政府能救出我的姐姐，”纳兹米说。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-在两国就引渡条约达成一致后，一些居住在土耳其的维吾尔人批评安卡拉对中共国的态度。土耳其外交部长在3月份表示，该协议类似于安卡拉与其他国家的协议，并否认会导致维吾尔人被遣返中共国。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-一些土耳其反对派领导人指责政府为了与中共国的利益而忽视维吾尔人的权利，政府否认了这一点。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-土耳其总统雷杰普·塔伊普·埃尔多安(Recep Tayyip Erdogan)7月告诉中共国家主席习近平，维吾尔族穆斯林作为“平等的中国公民”和平生活对土耳其很重要，但表示土耳其尊重中国的国家主权。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-联合国专家和人权组织估计，近年来有超过100万人被关押在新疆集中营地，主要来自维吾尔族和其他穆斯林少数民族。
-
-**简评：**
-
-中共在1950年以所谓“和平解放”的名义向西藏派兵。此后，中共政府一直以残酷手段统治着该地区。此外，中共高层及警察部门还在新疆地区大肆建立集中营，并对当地维吾尔人及其他少数民族施以残暴的种族灭绝行为。
-
-已经有足够的事实和证据证明中共对新疆人民长期实施包括拘禁、性暴力、奴役性酷刑、强行转移和全面绝育等罪行。这只是中共对中国人民犯下的滔天罪行之一。世界上越来越多的国际组织和政府已经认清中共的邪恶本质。强弩之末的中共已经时日不多了。
-
-新闻链接：[Uighurs in Turkey file criminal case against Chinese officials](https://www.aljazeera.com/news/2022/1/4/turkey-uighurs-file-criminal-complaint-against-chinese-officials)
-
-*翻译/简评: 希望*
-
-*校对: 感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+G-TV：日本银河系农场。
 
  
 

@@ -2,40 +2,47 @@
 ---
 
 
-## 国内战友要用智慧的渠道买喜币，喜币的价值在于战友们
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1834660/)
+## 有声|万物有灵 敬畏生命
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834770/)
 
-**郭文贵先生：**我再说一下很多战友国内买喜币的人，你们一定要小心！大概过去一星期，国内买喜币的人、要进来的人数，就新增人数，大概翻了N倍。但很多人就付款就特别傻！到中信、到这个招商、到民生就付钱，结果马上报警，警察来敲门来了。
+配音：香草山巡管部 – 格格
 
-我希望咱今天所有的在看直播的战友们，一定要在全国内，特别是国内的战友，一定说你买喜币的方式非常简单，先准备好KYC，先准备好。我今天凌晨的时候，我们的这个在喜联储的战友Casey给我发信息，战友跟他联系，第一个讨论是什么？怎么能把款汇出去，是吧！就Casey很感慨！说我们中国人怎么活到这样了，是吧！
 
-你们一定记住，不要因为买币给自己惹麻烦，是吧！一定想办法在其他安全的方式下汇款再来买喜币。这是我今天特别要警告大家的！不要给自己惹麻烦，大过年的特别不好，宁可不买喜币，你也不要因为汇款惹麻烦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+人世间万物皆有灵，尊重生命敬畏生灵，请相信那说不清的神秘力量及人的第六感应。
 
-第二个，就是全球的农场战友们，如果家旁边儿有人买喜币，尽可能帮他，安全的付款，千万别让它出问题。
+也不知怎么了，连续几天心里闹得慌，眼前梦里总是挥之不去我家小花可爱逗趣的一幕幕，而且总是莫名得心想可别把我的小花丢了，担心之余抓起电话左交右待了一番，可没过多久，传来了电话那端的哭泣声，小花丢了。
 
-第三个，我要告诉大家的，喜币我接着刚才说，喜币的价值就在于我们战友，我告诉昨天那个这个大师，我说你知道为什么你说喜联储是我们的智慧和设计，不是的！没有一个币、包括比特币，它从第一天开始有这么多的、基础的、绝对的支持者，是无私的奉献者。严格讲他不是这个币赢了，是新中国联邦的理念和这个人群赢。他感慨太深，他说你们这回锁币的事情三年，是人类上没有一个人能相信我们能做到的。
+这个调皮的孩子，喜欢痴情两个狗娃到无极限，天天不回窝，守在狗娃们的窝边寸步不离。给狗娃们留的小门掉了，它跟着狗娃跑出去就在也没有回来。
 
-编辑整理：海贼王M.D.LUFFY；
+听到此消息，当时是二耳发鸣头蒙仿佛时间静止了，泪不停的流，我聪明可爱调皮的鸟娃，给我们生活带来了多少个欢乐，我的心随着鸟娃被掏走了。话说回来，家里没有断过小动物，猫狗鸟娃们，基于上个鸟娃小芒果夭折了，小花是给予我的小天使、开心果。
 
-G-News发布：海贼王M.D.LUFFY；
+记得小花刚来家时的情景，不论谁讲话，它总是伸个头，瞪着那双绿豆般的小眼睛，盯着你认真地听你讲话，表现出不一般的智商，那就给它起个名字叫装小花吧！随着时间的推移也没有刻意的教它说话，只是平常主人随口叫它的名字，可是惊喜的一幕发生了，突然隐隐约约的声音有叫小花，小花，装小花，从此，一发不可收拾天天自己叫自己，有时撒娇还拖长了音叫自己小花花。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+它真的是太通灵性了，早上起来必须先给它打招呼，如果先招呼狗娃出去撒尿尿，鸟娃会生气的，怎么哄它也不理人，非得气上一阵子，这鸟娃很有眼力架，当手忙脚乱在干家务活做饭的时候，它就站在吊扇上从高处察言观色。时间把握的非常到位，一旦手停下来，它立马飞到主人的头上肩上甩都甩不掉。平常表现的非常霸道，与主人并肩齐坐在餐桌上一起用餐，哪盘菜都少不了它的光顾。平时把二狗娃欺负的哇哇叫，把狗娃追的满屋子乱躲也不舍的咬它，这些美好欢乐的时光是永远也写不完忘不了的。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+可是在共产党统治下的墙国，正如文贵先生大直播爆料的，这些恶魔们活吃猴子，听到此时心在颤抖在流血，共产党这孽仗产物，涂炭生灵践踏生命岂止是吃猴子吃狗肉，吃猫肉，吃老鼠，吃蛇，吃人（胎盘）没有牠们不吃的，因为牠们是魔鬼。共产党习习屁中南坑这群僵尸病毒的传播者，把病毒、毒疫苗投向人类的罪犯，正在干着摧毁地球，毁灭全球全世界全人类的罪恶。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+人们已逐渐清醒，看清了共产党利用病毒、毒疫苗，把人类玩弄于鼓掌之中，全世界全人类都会站在正义的、拯救世界、拯救人类的爆料革命、新中国联邦这边。共同奋起团结一致，人人点燃一把熊熊燃烧的烈火，投向共产党、习习屁、中南坑这群病毒僵尸，让恶魔在地球上消失殆尽👊
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+文字版原文：[万物有灵 敬畏生命](https://gnews.org/zh-hans/1821871/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-G-TV：日本银河系农场。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

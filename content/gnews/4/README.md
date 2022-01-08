@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|瑞典国王伉俪接种三剂疫苗后双双确诊染疫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834910/)
+## 加拿大BC省医疗系统因奥密克戎而不堪重负
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834982/)
 
-配音：香草山教育部 – 百香果
+采编：文莱       翻译编辑：文所未闻
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-15-edited.jpg)图片来源：vancouversun
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月4日，据相关媒体报道，瑞典王室于当天发布声明表示，75岁的瑞典国王卡尔十六世古斯塔夫和78岁的王后西尔维亚已经确诊感染了中共病毒。
+据加拿大《温哥华太阳报》1月6日报道，由于“奥密克戎”疫情的迅速蔓延所导致的住院治疗人数激增，以及大量医务人员因感染病毒而无法继续工作等原因，BC省的卫生保健系统目前已接近崩溃的边缘。
 
-报道指出，国王伉俪皆已完整接种过三剂中共病毒疫苗，但其后仍出现轻微的染疫症状，而二者的病毒检测均呈阳性反应。目前，国王夫妇暂时自我隔离中，当局正在追踪相关的密切接触者。
+据悉，自今年新年伊始，BC省的疫情住院人数增加了44%，重症感染病例增加了14%。由于医务人员严重短缺，该省大部分的医生和护士都被要求放弃休假，并不得不连续加班工作。在如此不堪重负的情况下，该省的大量非紧急手术都因此被迫推迟进行。
 
-另据瑞典官方当天通报的数据显示，瑞典在2021年末单日新增了超过一万一千例中共病毒感染病例，再次创下了疫情爆发以来的单日新高，使得当地医疗体系备受压力。
+该省卫生部门对此表示，由于疫情仍然会因“奥密克戎”病毒的全面传播而进一步恶化，因此广大民众应该尽量呆在家中，并继续配戴口罩，以此缓解医疗系统目前所面临崩溃的巨大压力。
 
-文字版原文：[瑞典国王伉俪接种三剂疫苗后双双确诊染疫](https://gnews.org/zh-hans/1825403/)
+* * *
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： https://vancouversun.com/news/local-news/covid-19-staff-shortages-loom-in-hospitals-as-patient-numbers-rise-workers-fall-ill
 
  
 

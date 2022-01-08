@@ -2,23 +2,37 @@
 ---
 
 
-## 美最高法院将重新裁决拜登的疫苗政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834787/)
+## 有声|航空公司支付员工高薪维持假期运营
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834888/)
 
-采编/编译撰稿：Spirit   校对编辑,发稿 ：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-11-edited.jpg)图片来源：REUTERS
+配音：香草山教育部 – 百香果
 
 
-据《路透社》1月5日报道，美国联邦最高法院正准备决定是否阻止拜登总统对大型企业雇员和医护人员的疫苗强制接种规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月1日，据相关媒体报道，随着奥密克戎变种病毒的爆发，目前，全球各大航空公司由于员工短缺正在大幅取消航班。因此，为了继续维持航空公司在新年假期间的运营，相关公司纷纷给机组员工增加了工资。
 
-报道称，最高法院将于1月7日就包括商业团体、宗教实体和共和党各州在内的反对者所提出的，暂停目前疫苗强制接种规定的紧急请求进行当庭辩论，并立即对此作出裁决。反对者们一致认为拜登此举超越了其政府权限。
+据美国媒体的消息显示，对于那些承担了额外旅行的飞行员，联合航空公司将大幅提高他们的补贴。据了解，在2021年12月30日至2022年1月3日期间，飞行员可获得3.5倍的飞行开放旅行费用；而在2022年1月4日至1月29日期间接送旅行的飞行员将获得三倍工资。此外，截至2022年1月4日，美国精神航空的空乘人员也将获得双倍工资。
 
-据悉，美国第六巡回上诉法院此前重新认可了总统拜登“要求所有大型企业雇员接种疫苗或每周接受病毒测试”的强制规定。这项由[职业安全与健康管理局]发布的命令直接影响到全国约8000万工人。
+报道还提到，除了取消航班外，航空公司也在寻找规避联邦政府关于强制接种中共病毒疫苗和戴口罩规定的方法，一些航空公司甚至已经取消了对员工强制接种疫苗的要求。
 
-* * *
+文字版原文：[航空公司支付员工高薪维持假期运营](https://gnews.org/zh-hans/1825387/)
 
-原文链接： [https://www.reuters.com/world/us/pandemic-wary-us-supreme-court-weigh-biden-vaccine-mandates-2022-01-05/](https://www.reuters.com/world/us/pandemic-wary-us-supreme-court-weigh-biden-vaccine-mandates-2022-01-05/)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
