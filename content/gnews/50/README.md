@@ -2,31 +2,35 @@
 ---
 
 
-## 白宫亚洲事务高官批评习近平对外胁迫扩张对内集权专政
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1835077/)
+## 世界范围内粮食价格上涨, 中共国百姓面临饥饿
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1835383/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+在刚刚过去的2021年世界粮食价格跃升28%，达到十年来的最高水平。而有关专家对今年市场恢复到比较稳定的状态感到希望渺茫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2B475ABA-7144-4D1A-879B-0912BD71E323.jpeg)美国白宫国家安全委员会印太事务协调员库尔特•坎贝尔(Kurt Campbell)
-（图片来自美联社）
+粮食及农业组织(FAO)的食品价格指数追踪全球交易量最大的食品商品，2021年的平均价格为125.7点，是2011年131.9点以来的最高值。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture2-5.jpg)
+多种数据表明通货膨胀袭卷全球。在所有上涨的商品中食品价格最是涉及民生问题。老百姓能不能填饱肚子直接反应一个国家的基本状态是否稳定。
 
-白宫负责亚洲事务的最高官员坎贝尔近日批评中共国国家主席习近平对外在印太地区推行胁迫性扩张政策；对内破坏中共“后毛泽东时代”建立的集体领导体系要素，不断集权，独断专行。
+中共国有着世界最多的人口，很多粮食依赖进口。在粮食价格持续飙升的情况下，中共国底层的百姓是最先不能承受重负的。他们面临饥饿。
 
-据《美国之音》1月7日报道，白宫国家安全委员会印太事务协调员库尔特·坎贝尔（Kurt Campbell）1月6日表示，今天的中共国在全球舞台上地位的上升得益于勤劳的中国人民，而美国的帮助也发挥了关键作用。但在过去的几年中，在习近平的领导下，中共国针对澳大利亚采取了胁迫性经济措施；在南中国海、东中国海、台湾海峡以及沿印度边界，中共都采取了更大胆和危险的军事行动；此外，中共国还在欧洲进行更为激进的战狼外交。
+郭文贵先生多次在他的直播里提及远离大城市，到小地方甚至农村。在这次由中共放毒导致的疫情中保护好自己，保护好家人。
 
-坎贝尔指出，习近平上台后在印太地区的所作所为表明，其正在日益破坏二战后国际社会在亚洲建立起来的正常秩序。中共国在许多情况下俨然已成为一个修正主义大国，正以与印太地区其他国家利益背道而驰的方式，寻求改变体系以有利于中共国。
+参考来源：[世界范围内粮食价格上涨, 中共国百姓面临饥饿](https://www.reuters.com/markets/europe/world-food-prices-hit-10-year-peak-2021-2022-01-06/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=6-1-22&amp;utm_campaign=6-1-22)
 
-此外，坎贝尔还指出，在过去的十年里，习近平还分解了中共集体领导体系的大部分要素，将越来越多的权力掌握在他手中。在高度集权之下，习近平获得不同意见和建议的能力使中共国的制度变得更加不可预测和复杂。中共国目前的制度使之本质上已成为一个由习近平个人眼界和观点来管理及指导的极其复杂的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-*参考链接： [坎贝尔：习近平对外胁迫扩张 对内集权专断](https://www.voachinese.com/a/white-house-campbell-us-china-relations-xi-jinping-taiwan-20220106/6385949.html)*
+编辑/校对/发稿：Hetangyuese
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

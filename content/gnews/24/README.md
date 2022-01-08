@@ -2,36 +2,42 @@
 ---
 
 
-## 中国科学家因窃取孟山都公司的机密而认罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1836157/)
+## 探讨新加坡本地良心医生推荐的疫苗解毒方案
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1836279/)
 
-**编译：美哥**
-**编辑:   MSGZ  **
+**撰稿：Eva**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/树叶.png)图片来源  theguardian.com
+下图把已有的和本地医生建议的解疫苗方案用黄色标识汇总在一起方便对比：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-08-191330.jpg)
+上图内容来自FLCCC的 I-RECOVER-长期症候群管理试验计划书版本1- 2021年6月16日
 
-前孟山都雇员向海涛，在美期间被指控窃取了美国农业技术，目的是让中共政府受益。
+**English Version英文原版：**
 
-周四，美国司法部门的起诉书里写道了44岁的向海涛密谋为中华人民共和国窃取商业机密。目前他已承认了罪行。
 
-向海涛在密苏里州的孟山都总部曾以科学家的身份工作过，在他离开后，就买了一张飞回北京的单程票，而执法人员在他的电子设备里发现一份“营养素优化”算法的系统副本，而该演算法属于孟山都的机密。本案将于4月7号宣判，如果指控全部成立，其将面临15年有期徒刑和500万的罚金处罚。
 
-美国密苏里州东区的检察官弗莱明 (Sayler Fleming) 表示：“我们不能允许美国公民或者外国人，将敏感商业信息交给别国的竞争对手，这些罪行对美国经济和国家安全十分危险。”
+> [I-RECOVER Protocol](https://covid19criticalcare.com/covid-19-protocols/i-recover-protocol/)
 
-美国联邦调查局反间谍助理小艾伦.科勒也称：“当像中国这样的政府盗取我们的技术来实现经济发展的同时，美国人成为了最大受害者。美国不仅仅是机密实验室里的军事技术，提高棉花产量的农业技术也同样会被对手觊觎。”
 
-向海涛的认罪是美国司法界对反对中国干涉的又一次新胜利。上个月，前哈佛大学的化学部门负责人，因为非法参武汉工程大学的项目而认罪。
 
-原文链接：[https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/](https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/)
+**疫苗解毒方案A+B**
 
-*发布：盘古相聚*
+上图中的A+B解疫苗方案是由香草山农场医疗卫生部推荐的解毒配套，有具体疑问可以登录他们的Discord请教，地址是：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.com/channels/702115364770807868/716611739021475912](https://discord.com/channels/702115364770807868/716611739021475912)
+
+**新加坡本地良心医生推荐的疫苗解毒方案A+C**
+
+针对对象：在新加坡万一坚持不住，不得不去打疫苗的战友们
+
+良心医生推荐的具体解毒方案如下：
+
+打第一针疫苗的前2天：
+
+早上吃A伊维菌素 12mg 2粒；晚上吃C氟伏沙明，医生给的剂量还未问明
+
+连续吃2天，第3天去打第一针疫苗（有关疫苗良心医生建议打科兴，他说在来治疗疫苗后遗症中，科兴是相对问题较少！刺突蛋白会比较少！）同时继续吃药，合计全程连续吃5天。
+
+以上解疫苗方案属于极其不成熟的一种分享，请读者和自己本地的良心医生联系，作者不承担任何医药和法律的责任。
 
  
 

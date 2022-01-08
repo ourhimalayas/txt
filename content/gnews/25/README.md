@@ -2,51 +2,37 @@
 ---
 
 
-## 澳23岁双重接种的举重冠军死于COVID-19
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1836117/)
+## 01/08每日播报|播客巨星乔·罗根加入盖特后引起注册浪潮
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1836215/)
 
-翻译： Jenny Ball
+**By:[秘翻新闻](https://gtv.org/video/id=61d954ea2591020829849260)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-494.png)图片来源 :thegatewaypundit.com
+**2022-01-0**8
 
-根据一份报告，一名 23 岁的科学家、举重冠军和健康运动员在检测出 Covid-19 呈阳性后，在悉尼一家医院死亡。
+据《华盛顿邮报》1月7日报道，在播客巨星乔·罗根(Joe Rogan)加入后的几天内，盖特已经有超过 100 万新用户注册。
 
-詹姆斯·康迪利奥斯（James Kondilios）是堪培拉的居民，在因病毒并发症于 1 月 4 日在圣文森特医院去世之前，已知他没有任何潜在的健康问题。
+报道称，盖特是一个吸引保守社交媒体用户的社交平台。罗根周日在该网站上发表了第一篇帖子的5天后，该平台的新用户已经达到了 100 万大关，。盖特发言人埃博尼·鲍登 (Ebony Bowden) 称，这使盖特网站的用户总数已经超过 了400 万。
 
-在新南威尔士州卫生当局透露他的身份后，他的家人和朋友都在哀悼并表示敬意。
+虽然罗根先生目前仍然拥有一个推特帐户，但是在乔治亚州众议员玛乔丽·泰勒-格林（Marjorie Taylor-Greene）的账号在周日被推特封号后，他考虑到了推特的审查制度，于是他加入了盖特。
 
-他的一位朋友在 Facebook 上发布了一条情感信息作为致敬：
+罗根先生在他的第一个盖特帖子中写道：“为了防止推特上的东西变得更蠢，我现在也在这里。欢呼吧！”
 
-（更新 – 致敬后来被删除）
+据报道，在罗根先生加入盖特的第二天，也就是 1 月 3 日，盖特到注册人数就达到了 343,000，这是该网站自 7 月推出以来的最大单日注册量。 鲍登还补充说，盖特并没有支付罗根加入该网站的费用。
 
-“非死不可”说发文已不可访问
+对于保守派来说，盖特网站的主要卖点是其较宽松的内容审核政策。盖特说，它允许所有关于政治和疫苗的观点，包括那些其他网站的事实核查员会标记为错误的观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-496.png)图片来源 :thegatewaypundit.com
+同时盖特是一个国际平台。截至周五，盖特表示其在美国有220万用户，其次是巴西的50万用户，以及英国、德国和法国的大量用户。
 
-他最近的死亡提出了一个问题，如果他因为接种了双重疫苗，并且没有潜在的健康状况，但受到保护免受 COVID-19 病毒的疫苗的侵害，那么会发生什么？这打破了疫苗将保护您免受病毒侵害的整个说法。
+盖特的CEO杰森·米勒(Jason Miller)先生对《邮报》说：“这些数字证明，社交媒体用户开始意识到硅谷高管日益严厉的审查制度，并渴望获得替代方案。我们欢迎来自各种意识形态和背景的人在我们的平台上自由表达自己。”
 
-福奇博士、药企，企业媒体和公共卫生机构，从一开始就一直在对 Covid 撒谎。
+（秘翻新闻主编Grace编译报道）
 
-**他们说疫苗会阻止病毒传播**。
-
-**他们说接种疫苗的人可以不戴口罩。**
-
-**他们说接种疫苗的人不会重病。**
-
-**他们说接种疫苗的人不会死亡。**
-
-任何还在信任专家的人都应该得到他们的帮助。我们从一开始就试图用理智、逻辑，和实际统计数据，与他们进行这场对话，**我们应该为我们失去的自由、时间和财富而得到补偿。**
-
-医疗行业、公共卫生行业、学术界和政府的合法性已被 Covid 抹去。在“卡内科亚大帝” (KanekoaTheGreat)的这段视频汇编中观看他们的谎言。
-
-新闻来源 :[thegatewaypundit.com] [Double Vaccinated 23-Year-Old Powerlifter Champion with No Underlying Health Condition Dies from COVID-19 in Australia](https://www.thegatewaypundit.com/2022/01/double-vaccinated-23-year-old-powerlifter-champion-no-underlying-health-condition-dies-covid-19-australia/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+发布:星星
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
