@@ -2,46 +2,58 @@
 ---
 
 
-## 法官判決FDA在8个月内公布辉瑞疫苗数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836322/)
+## 【信仰之声】我们可以不互相伤害吗？— 谈圣经中的该隐与亚伯
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1836334/)
 
-作者：银河勇气星 骄子
+作者：纽约香草山福音部 — Joy
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-据美国媒体1月6日报道，一位联邦法官拒绝了FDA此前关于辉瑞公司中共病毒疫苗数据的公布时间线。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.44.08-PM-1.png)
-
-据悉，2021年9月，耶鲁大学、哈佛大学、加州大学洛杉矶分校和布朗大学的30多位教授和科学家对辉瑞公司提起了集体诉讼，当中，原告要求FDA及辉瑞公司公开所有关于中共病毒疫苗的研究数据。
-
-资料显示，FDA原计划每月公布500页辉瑞中共病毒疫苗的相关数据，预计总体数据将需要75年的时间才能被披露完毕。对此，该联邦法官要求FDA改为每月公布五万五千页数据，从而能够在8个月内将全部数据公布完毕。
-
-该法官强调，任何人都不应该被强迫接受不必要的医疗，况且中共病毒疫苗的强制接种已经给民众带来了巨大的健康损害问题，包括免疫力下降、强烈的副作用，甚至死亡等。法官也认为，联邦政府强制民众接种中共病毒疫苗，并忽视大众对信息透明的要求，这已经侵害了美国民众基本的人权。
-
-參考鏈結：
-
-1. [法官駁回FDA對公布輝瑞疫苗數據拖延75年的請求…](https://gettr.com/post/pmsb628311)
-2. [INSTEAD OF FDA’S REQUESTED 500 PAGES PER MONTH, COURT ORDERS FDA TO PRODUCE PFIZER COVID-19 DATA AT RATE OF 55,000 PAGES PER MONTH!](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages)
-3. [Wait what? FDA wants 55 years to process FOIA request over vaccine data](https://www.reuters.com/legal/government/wait-what-fda-wants-55-years-process-foia-request-over-vaccine-data-2021-11-18/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：飞虹
-总编：Irene木木 
-校正/发稿：我不在这里
+
+
+
+
+熟悉圣经的人都知道，亚当夏娃犯罪堕落不久就发生了人类历史上的第一起谋杀案：亚当的长子该隐因为嫉妒他弟弟献的祭被神喜爱就在田间杀死了亚伯，人类之间互相伤害和仇杀的历史也就从此开始了。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0757.jpg)
+
+神放逐了该隐，并为了避免该隐被其他人逐杀，就在他身上留下记号：“凡杀该隐的必遭报七倍”。
+
+可是到了该隐的第六代子孙拉麦却说：“若杀该隐遭报七倍，杀拉麦，必遭报七十七 倍”。人类在远离神后，变得越来越凶残，为了保护自己的生命，不惜残酷的报复。那如果遇到比拉麦更残暴的人，说：“若杀拉麦遭报七十七倍，杀我必遭报七百七十七倍”，又会如何哪？人类在这种残酷的互相伤害模式下还会有幸存者吗？这就是人犯罪远离神后，越久越恶，在罪中打滚，在恐惧中生存，无法摆脱罪的捆绑和辖制，生命处于无望和黑暗的境况。
+
+人怎样才能脱离罪的辖制哪？怎样才能脱离这样“互害”的咒诅呢？是律法吗？如果神赐下一个标准，人照着这个标准做事，是不是就可以了？就是在这样的背景下，神赐下律法。律法中一条规定：以眼还眼，以牙还牙（出埃及记21:24）。这是一条以命抵命的法则，这条规定表明了神对人类生命的爱惜，同时也约束了人过度报复的罪行，不许人因为报复杀害过多的人，但是律法却不能停止杀戮。我们来做个假想：律法颁布以前，因着神的怜悯该隐杀亚伯，亚当和夏娃在这一事件中失去了一个儿子，可是在律法之下如果该隐杀亚伯后，就会按照以命抵命的原则也被处死，亚当和夏娃就会在一起凶杀案中丧失两个儿子。这是一幅多么令人悲伤的光景。律法只能在人犯罪之后惩罚罪人，并不能阻止人犯罪，阻止悲剧的发生。神是我们天上的父，失去他的子民绝不是神的心意。 那又怎么办哪？这就是律法的另一功用，律法虽然无法阻止人犯罪，但可以使人知罪，使人知道靠行为靠自己不能做到不犯罪的，也达不到神“义”的要求。因此律法的终极目的就是把人带向我们的救赎主耶稣——只有靠他才能把人类从罪中解救出来。
+
+耶稣是我们的救赎主，我们从前活在肉体里，活在私欲中，靠自己无法摆脱败坏、摆脱罪。可是如今我们被救赎，靠着那大能大力的神，靠着那加添给我们力量的，在我们上面、之间和里面同时做工的圣父圣子圣灵三位一体的真神，我们就可以战胜我们的软弱，战胜我们的肉体，战胜我们的罪性，向魔鬼宣战，向着罪夸胜。“他救了我们脱离黑暗的权势，把我们迁到他爱子的国里”（歌罗西书1:13），从此我们有能力靠着神对罪说不，因为圣灵的光照和心灵的割礼，可以帮助我们除去里边的罪性，把罪消灭在萌芽状态的心思意念里。
+
+“神的命令就是叫我们信他儿子耶稣基督的名，且照他所赐给我们的命令彼此相爱”，不仅如此，还要“爱仇敌”，“以善胜恶”。在福音的光照下，该隐就可以除去里面的嫉妒，放下杀戮的心，悔改向主，这一起杀人案就可以被神的救赎大能化解，该隐和亚当就会彼此和好，彼此相爱。这也是神救赎的目的，与神和好之后才能与人和好，与自己的仇恨（或仇敌）和好，我们在耶稣基督里才可以“归于一”。发生这样变化的秘诀就是承认自己不能，相信神能，依靠神活出完全不同的生命。
+
+求神怜悯我们每一个罪人，让我们看见你，认识你，转向你。在这疫情泛滥，人欲横流的时代，主啊，求你拯救我们，因为你不愿一人沉沦，乃愿人人悔改。让我们可以放下互相伤害的生活模式，靠着你，活出一个“彼此相爱”的美好生命！阿们！
+
+2022年1月08日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-83.png)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

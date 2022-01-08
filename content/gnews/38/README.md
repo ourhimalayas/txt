@@ -2,27 +2,34 @@
 ---
 
 
-## 美国马里兰州宣布进入紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836321/)
+## 法官判決FDA在8个月内公布辉瑞疫苗数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836322/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：银河勇气星 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月6日，美国马里兰州州长拉里·霍根当天宣布，该州将进入为期30天的紧急状态，同时，当地政府将采取紧急短期行动抗击当前的中共病毒疫情。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.39.03-PM.png)
-数据显示，马里兰州当天因中共病毒感染住院的人数创下了历史新高，而该州的中共病毒感染患者在过去七周内增加了500%以上。预计，当地的住院人数可能会在未来几天内超过五千人，这将比之前的峰值高出两倍以上。
+据美国媒体1月6日报道，一位联邦法官拒绝了FDA此前关于辉瑞公司中共病毒疫苗数据的公布时间线。
 
-霍根州长表示，未来的四到六周将是整个中共病毒疫情中最具挑战性的时刻。为此，当地动员了一千名马里兰州国民警卫队成员，用以协助州和地方卫生官员持续应对疫情。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.44.08-PM-1.png)
 
-霍根州长还指出，当地所有的紧急行动都是为了让马里兰州能继续正常运转。而在未来几周非常困难的日子里，州政府将继续采取一切必要行动来防止中共疫情进一步爆发。
+据悉，2021年9月，耶鲁大学、哈佛大学、加州大学洛杉矶分校和布朗大学的30多位教授和科学家对辉瑞公司提起了集体诉讼，当中，原告要求FDA及辉瑞公司公开所有关于中共病毒疫苗的研究数据。
 
-參考鏈結：[Governor Hogan Declares 30-Day State of Emergency, Mobilizes 1,000 Members of Maryland National Guard to Respond to COVID-19 Surge](https://governor.maryland.gov/2022/01/04/governor-hogan-declares-30-day-state-of-emergency-mobilizes-1000-members-of-maryland-national-guard-to-respond-to-covid-19-surge/)
+资料显示，FDA原计划每月公布500页辉瑞中共病毒疫苗的相关数据，预计总体数据将需要75年的时间才能被披露完毕。对此，该联邦法官要求FDA改为每月公布五万五千页数据，从而能够在8个月内将全部数据公布完毕。
+
+该法官强调，任何人都不应该被强迫接受不必要的医疗，况且中共病毒疫苗的强制接种已经给民众带来了巨大的健康损害问题，包括免疫力下降、强烈的副作用，甚至死亡等。法官也认为，联邦政府强制民众接种中共病毒疫苗，并忽视大众对信息透明的要求，这已经侵害了美国民众基本的人权。
+
+參考鏈結：
+
+1. [法官駁回FDA對公布輝瑞疫苗數據拖延75年的請求…](https://gettr.com/post/pmsb628311)
+2. [INSTEAD OF FDA’S REQUESTED 500 PAGES PER MONTH, COURT ORDERS FDA TO PRODUCE PFIZER COVID-19 DATA AT RATE OF 55,000 PAGES PER MONTH!](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages)
+3. [Wait what? FDA wants 55 years to process FOIA request over vaccine data](https://www.reuters.com/legal/government/wait-what-fda-wants-55-years-process-foia-request-over-vaccine-data-2021-11-18/)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：Kathy文艺
-总编：文特
+编辑：飞虹
+总编：Irene木木 
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -33,6 +40,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

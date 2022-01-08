@@ -2,10 +2,31 @@
 ---
 
 
-## 1/07/2022 文贵直播： 中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1836697/)
+## 樱花灭共诗——万里桥
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1836698/)
 
-秘密翻译组-北美组
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-6.jpg)
+古桥南郭外，
+
+曾送大将军。
+
+万里清江水，
+
+终年玉垒云。
+
+使吴名不传，
+
+当蜀政鲜闻。
+
+海内今边事，
+
+凭桥感气氛。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

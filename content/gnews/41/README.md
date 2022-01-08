@@ -2,36 +2,41 @@
 ---
 
 
-## 中国科学家因窃取孟山都公司的机密而认罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1836157/)
+## 蓬佩奥再次呼吁抵制中共冬奥会并对其追责
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836319/)
 
-**编译：美哥**
-**编辑:   MSGZ  **
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/树叶.png)图片来源  theguardian.com
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-前孟山都雇员向海涛，在美期间被指控窃取了美国农业技术，目的是让中共政府受益。
+1月6日，美国前国务卿蓬佩奥在接受采访时再次呼吁美国抵制中共北京冬奥会。对此，蓬佩奥也详细解析了三点原因。
 
-周四，美国司法部门的起诉书里写道了44岁的向海涛密谋为中华人民共和国窃取商业机密。目前他已承认了罪行。
+首先，中共在新疆所犯下的每一件恶行都符合种族灭绝的定义，因此，中共北京冬奥会将被冠以“种族灭绝冬奥会”的名头。
 
-向海涛在密苏里州的孟山都总部曾以科学家的身份工作过，在他离开后，就买了一张飞回北京的单程票，而执法人员在他的电子设备里发现一份“营养素优化”算法的系统副本，而该演算法属于孟山都的机密。本案将于4月7号宣判，如果指控全部成立，其将面临15年有期徒刑和500万的罚金处罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-8.36.59-PM-1.png)
 
-美国密苏里州东区的检察官弗莱明 (Sayler Fleming) 表示：“我们不能允许美国公民或者外国人，将敏感商业信息交给别国的竞争对手，这些罪行对美国经济和国家安全十分危险。”
+其次，中共政府会监控每一个参会运动员的一言一行，他们当中只要有人谈论天安门事件或者武汉病毒研究所，这些运动员大概率会被中共扣留。此外，中共还会利用这些运动员的言行为其宣传所谓的“中共国的伟大民主”。
 
-美国联邦调查局反间谍助理小艾伦.科勒也称：“当像中国这样的政府盗取我们的技术来实现经济发展的同时，美国人成为了最大受害者。美国不仅仅是机密实验室里的军事技术，提高棉花产量的农业技术也同样会被对手觊觎。”
+最后，中共武汉病毒研究所释放了新冠病毒，即中共病毒，而这一病毒目前造成了全球数百万人的死亡。与此同时，在中共国内，当习近平坐在恢弘的体育馆里大谈其成功控制疫情时，这背后是无数的中国老百姓被焊死的大门囚禁在家中。
 
-向海涛的认罪是美国司法界对反对中国干涉的又一次新胜利。上个月，前哈佛大学的化学部门负责人，因为非法参武汉工程大学的项目而认罪。
+蓬佩奥最后强调，习近平根本不会在乎美国的外交抵制，因为世界媒体将在全球范围内推送这次冬奥会及其举办者。此时，美国应该做的就是在香港、新疆以及中共病毒的每一个问题上都对中共追责。
 
-原文链接：[https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/](https://www.rt.com/news/545351-chinese-scientist-pleads-guilty/)
+參考鏈結：[20220106蓬佩奧國務卿接受Ingraham採訪](https://www.gettr.com/post/pmsvqq25ca)
 
-*发布：盘古相聚*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：飞虹
+总编：Irene木木 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

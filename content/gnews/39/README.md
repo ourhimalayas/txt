@@ -2,22 +2,26 @@
 ---
 
 
-## 法媒称中共借立陶宛干预欧盟经济
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836320/)
+## 美国马里兰州宣布进入紧急状态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836321/)
 
-作者：纽约香草山医疗部 云豹
+作者：纽约香草山教育部 Naughty(文行)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月6日，法国媒体以立陶宛事件作为专题发文表示，中共正在借由对立陶宛的经济封锁来测试欧盟的反应，并企图趁机寻找出以经济超限战方式控制欧洲的策略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-8.47.54-PM.png)
+1月6日，美国马里兰州州长拉里·霍根当天宣布，该州将进入为期30天的紧急状态，同时，当地政府将采取紧急短期行动抗击当前的中共病毒疫情。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.39.03-PM.png)
+数据显示，马里兰州当天因中共病毒感染住院的人数创下了历史新高，而该州的中共病毒感染患者在过去七周内增加了500%以上。预计，当地的住院人数可能会在未来几天内超过五千人，这将比之前的峰值高出两倍以上。
 
-一位法国策略研究基金会的研究员指出，欧盟的成员国应该一致行动，支持立陶宛对抗来自中共的无理霸凌行为。该研究员表示，虽然美国和欧盟已相继发出书面声明支持立陶宛，但在与中共抗衡的过程中，立陶宛需要更实质性的支援。因此，欧盟需要采取积极一致的行动，才能彻底击溃中共企图在欧洲发动的经济超限战。
+霍根州长表示，未来的四到六周将是整个中共病毒疫情中最具挑战性的时刻。为此，当地动员了一千名马里兰州国民警卫队成员，用以协助州和地方卫生官员持续应对疫情。
 
-參考鏈結：[法媒：中國利用立陶宛 向歐盟揮動經濟脅迫之劍](https://www.cna.com.tw/news/firstnews/202201070016.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+霍根州长还指出，当地所有的紧急行动都是为了让马里兰州能继续正常运转。而在未来几周非常困难的日子里，州政府将继续采取一切必要行动来防止中共疫情进一步爆发。
+
+參考鏈結：[Governor Hogan Declares 30-Day State of Emergency, Mobilizes 1,000 Members of Maryland National Guard to Respond to COVID-19 Surge](https://governor.maryland.gov/2022/01/04/governor-hogan-declares-30-day-state-of-emergency-mobilizes-1000-members-of-maryland-national-guard-to-respond-to-covid-19-surge/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：飞虹
+编辑：Kathy文艺
 总编：文特
 校正/发稿：我不在这里
 
@@ -27,7 +31,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
