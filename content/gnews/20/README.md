@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|海外少数民族团体控告中共并抗议冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834995/)
+## 朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835075/)
 
-配音：香草山福音部 – Daxia
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-24.jpg)[图片来源](https://ucpnz.co.nz/2022/01/07/%E6%9C%9D%E9%B2%9C%E6%AD%A3%E5%BC%8F%E5%91%8A%E7%9F%A5%E7%BC%BA%E5%B8%AD2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E3%80%80%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E8%A1%A8%E6%80%81/)
+据朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京2022年冬季奥运会及冬季残疾人奥运会组委会、中国国家体育总局致信函。
 
+信函称，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持和声援中国要举办一届隆重精彩的奥运盛会的一切事宜。信函表示，朝鲜坚信兄弟的中国人民和运动员将战胜一切妨碍活动和困难，成功举办北京冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月4日，据海外多家媒体报道，时逢中共北京冬奥会在即，流亡海外的西藏和新疆群体向当地司法机构提起诉讼，控告中共政府侵害人权。 同时，他们也在当地发起抗议示威活动，以此反对即将到来的北京冬奥会。
+对于朝鲜这个小弟不参加冬奥会，中共内心恼怒，面上还得应付，因为一开骂就更加暴露自己的众叛亲离，只能表示感谢和理解！
 
-据了解，中共曾在1950年以所谓“和平解放”的名义向西藏派兵。此后，中共政府一直以残酷手段统治着该地区。此外，中共高层及警察部门还在新疆地区大肆建立集中营，并对当地维吾尔人及其他少数民族施以残暴的种族灭绝行为。
+信息来源：
 
-对此，一群流亡印度的西藏人当天在印度北部的达兰萨拉举行了反对中共北京冬奥会的抗议示威活动。抗议者表示，如果国际社会和运动员不抵制北京冬奥会，他们就会成为中共 “种族灭绝 “的同谋。
+[朝鲜：因全球疫情等原因无法参加北京冬奥会](https://news.sina.com.cn/c/2022-01-07/doc-ikyakumx8799639.shtml)
 
-与此同时，针对中共在新疆地区实施的种族灭绝和反人类罪，生活在土耳其的流亡维吾尔人也在当天对112名中共官员提起了刑事诉讼。此外，还有超过150名维吾尔人聚集在土耳其首都伊斯坦布尔法院前举行示威游行，抗议中共政府的残忍做法。
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-据悉，目前大约 5万名维吾尔人生活在土耳其，他们中的绝大多数都对中共举办冬奥会表示反对。
-
-文字版原文：[海外少数民族团体控告中共并抗议冬奥会](https://gnews.org/zh-hans/1828873/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

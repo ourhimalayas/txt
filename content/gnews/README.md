@@ -15,128 +15,128 @@
 
 ---
 
-### [2018年7月10日 郭文贵先生《郭媒体》直播](/content/gnews/1/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [中共的一胎三胎的计划生育是对人性的扭曲](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共病毒奥米炕患者出现了非常奇怪的症状](/content/gnews/3/README.md)
- ` 首尔天池农场`
-
-### [每时每刻的认知 （六）](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [7.24系列——瑞银集团UBS的斑斑劣迹](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022年1月7日郭先生大直播小飞象大雨围城速记：](/content/gnews/6/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [美最高法院大法官索尼娅否认新冠法规是疫苗强制令](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [踏雪留痕](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [美国法院下令FDA每月公开55000页辉瑞疫苗数据](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [巴西出现首个因奥密克戎死亡病例 生前已接种](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [播客巨星乔·罗根助力,盖特新增一百万新用户](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国的污染对中国男性健康的摧残](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [白宫亚洲事务高官批评习近平对外胁迫扩张对内集权专政](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年中共国将有100万辆汽车芯片缺口](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [重庆武隆疑似食堂燃气燃爆事故，16人遇难](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [哈萨克斯坦动乱的真正原因是什么？](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文贵直播大事记——朝鲜冬奥不出席，法国密德朗哭泣](/content/gnews/19/README.md)
- ` 文贵直播大事记`
-
-### [有声|海外少数民族团体控告中共并抗议冬奥会](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手](/content/gnews/21/README.md)
- ` GISELLE`
-
-### [加拿大人均债务创历史新高](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [从筷子谈中西方文化差异](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大BC省医疗系统因奥密克戎而不堪重负](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [保房价，中共倒台更快](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法官驳回FDA对疫苗数据75年的拖延，削减至仅8个月](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大群体免疫力因疫苗而逐渐丧失](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [有声|古以色列亡国启示录](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [1/07/2022 文贵直播： 中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [美国疫苗灾难愈演愈烈](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [王力宏为党点赞仍被诛杀，何韵诗一生傲骨获赞无数](/content/gnews/32/README.md)
+### [精致利己与大义为公——明星跪舔中共会为中共陪葬](/content/gnews/1/README.md)
  ` mary202064`
 
-### [居家隔离的西安居民大声呼喊：“我要吃饭！”](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共“清零”政策及其荒谬和残酷](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [GTV新闻访谈简报|2022年1月7日晚](/content/gnews/35/README.md)
+### [世界范围内粮食价格上涨, 中共国百姓面临饥饿](/content/gnews/2/README.md)
  ` 纽约香草山MOS01`
 
-### [日本新增确诊中共病毒感染比一周前暴增12倍](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [聚焦：比特币跌势不止 喜币蓄势待发](/content/gnews/37/README.md)
- ` 丁过`
-
-### [中共用“一带一路”控制拉美和非洲、取代美国](/content/gnews/38/README.md)
+### [北京继续追求“零感染”目标，第二座城市禹州封城](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [“币加锁”是战友们坚定追求共同信仰的决心更让喜币值万亿](/content/gnews/39/README.md)
- ` 喜马拉雅日本银河系农场`
+### [日本和美国称中共国的行动是“对地区和世界的挑衅”](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备](/content/gnews/40/README.md)
+### [2018年7月10日 郭文贵先生《郭媒体》直播](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [中共的一胎三胎的计划生育是对人性的扭曲](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共病毒奥米炕患者出现了非常奇怪的症状](/content/gnews/7/README.md)
+ ` 首尔天池农场`
+
+### [魁北克省媒体造势——应该查出谁未接种疫苗](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [每时每刻的认知 （六）](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [7.24系列——瑞银集团UBS的斑斑劣迹](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年1月7日郭先生大直播小飞象大雨围城速记：](/content/gnews/11/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [美最高法院大法官索尼娅否认新冠法规是疫苗强制令](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [踏雪留痕](/content/gnews/13/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国法院下令FDA每月公开55000页辉瑞疫苗数据](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [巴西出现首个因奥密克戎死亡病例 生前已接种](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [播客巨星乔·罗根助力,盖特新增一百万新用户](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵先生接受 HBO Vice 采访的真相](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [为什么世界选择黄金为标准而不是白银？（2/3）](/content/gnews/41/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共国的污染对中国男性健康的摧残](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [白宫亚洲事务高官批评习近平对外胁迫扩张对内集权专政](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年中共国将有100万辆汽车芯片缺口](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [重庆武隆疑似食堂燃气燃爆事故，16人遇难](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [哈萨克斯坦动乱的真正原因是什么？](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵直播大事记——朝鲜冬奥不出席，法国密德朗哭泣](/content/gnews/24/README.md)
+ ` 文贵直播大事记`
+
+### [有声|海外少数民族团体控告中共并抗议冬奥会](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [G时评第220期（1.7）直播摘要：北韩拒绝冬奥会/哈国暴乱幕后黑手](/content/gnews/26/README.md)
+ ` GISELLE`
+
+### [加拿大人均债务创历史新高](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [从筷子谈中西方文化差异](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大BC省医疗系统因奥密克戎而不堪重负](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [保房价，中共倒台更快](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [法官驳回FDA对疫苗数据75年的拖延，削减至仅8个月](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|古以色列亡国启示录](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [王力宏为党点赞仍被诛杀，何韵诗一生傲骨获赞无数](/content/gnews/33/README.md)
+ ` mary202064`
+
+### [诺瓦克·乔科维奇因疫苗接种豁免被拒在澳洲被拘留](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [居家隔离的西安居民大声呼喊：“我要吃饭！”](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共“清零”政策及其荒谬和残酷](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [GTV新闻访谈简报|2022年1月7日晚](/content/gnews/37/README.md)
+ ` 纽约香草山MOS01`
+
+### [日本新增确诊中共病毒感染比一周前暴增12倍](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [聚焦：比特币跌势不止 喜币蓄势待发](/content/gnews/39/README.md)
+ ` 丁过`
+
+### [中共用“一带一路”控制拉美和非洲、取代美国](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备](/content/gnews/41/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [乔·罗根帮助Gettr获得了一百万新用户](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`

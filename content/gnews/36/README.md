@@ -2,13 +2,13 @@
 ---
 
 
-## 日本新增确诊中共病毒感染比一周前暴增12倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1834777/)
+## 中共“清零”政策及其荒谬和残酷
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1834826/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220108-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+01/04/2022 一位西安市民：所谓的“清零”，就是一个小区里的一栋楼中如果有确诊的，这一栋楼所有的人，即使有几千人，全部会被拉走隔离。然后防疫人员就可以向上级汇报，这个小区已经清零。至于以后再有疫情再爆发，那都是酒店里隔离人群中疫情爆发，而不是小区里爆发疫情。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,27 @@
 ---
 
 
-## 朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835075/)
+## 巴西出现首个因奥密克戎死亡病例 生前已接种
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1835122/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-24.jpg)[图片来源](https://ucpnz.co.nz/2022/01/07/%E6%9C%9D%E9%B2%9C%E6%AD%A3%E5%BC%8F%E5%91%8A%E7%9F%A5%E7%BC%BA%E5%B8%AD2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E3%80%80%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E8%A1%A8%E6%80%81/)
-据朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京2022年冬季奥运会及冬季残疾人奥运会组委会、中国国家体育总局致信函。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-下午1.40.24.jpg)巴西出现首个因奥密克戎死亡病例 生前已接种 网络图片
+据俄罗斯卫星通讯社1月7日暨巴西新闻网站G1报道，巴西出现首个因感染奥密克戎毒株后死亡的病例。死者68岁，生前患有高血压和慢性肺病，接种过3剂疫苗。
 
-信函称，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持和声援中国要举办一届隆重精彩的奥运盛会的一切事宜。信函表示，朝鲜坚信兄弟的中国人民和运动员将战胜一切妨碍活动和困难，成功举办北京冬奥会。
+打脸了吧？撒谎成性的左媒和疯狂的疫苗推进者、杀人凶手们，不是说疫苗有效吗？不是说打了疫苗，就算感染也不会得重症吗？这位患者打了三针疫苗，不仅感染了，还死了。全球防不胜防的奥密克戎，哪种疫苗能防住？人民不觉醒、不起来反抗，杀戮不会停止。
 
-对于朝鲜这个小弟不参加冬奥会，中共内心恼怒，面上还得应付，因为一开骂就更加暴露自己的众叛亲离，只能表示感谢和理解！
+新闻参考链接：[https://sputniknews.cn/20220107/–1036983826.html](https://sputniknews.cn/20220107/--1036983826.html)
 
-信息来源：
+* * *
 
-[朝鲜：因全球疫情等原因无法参加北京冬奥会](https://news.sina.com.cn/c/2022-01-07/doc-ikyakumx8799639.shtml)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  
