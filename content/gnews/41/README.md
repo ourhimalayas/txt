@@ -2,10 +2,8 @@
 ---
 
 
-## 史蒂夫•基尔什：中共病毒疫苗已致40万健康美国人死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835572/)
-
-01/03/2022 史蒂夫•基尔什：VAERS数据库中美国国内疫苗死亡人数有近1万人。以此为起点，用CDC的计算方法解决VAERS中的低报问题。我们可以看到，这种中共病毒疫苗已经杀死了40万名原本健康的美国人。
+## 这个国家的发展方向就是乔·罗根所做的：从推特到盖特
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835580/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
