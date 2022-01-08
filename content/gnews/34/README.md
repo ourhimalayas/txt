@@ -2,8 +2,10 @@
 ---
 
 
-## 这个国家的发展方向就是乔·罗根所做的：从推特到盖特
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835580/)
+## 佛罗里达州州长：中共是半导体供应链的威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835653/)
+
+01/06/2022 佛罗里达州州长：中共是半导体供应链的威胁，佛州正在投资半导体行业，防止中共以此进行要挟
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

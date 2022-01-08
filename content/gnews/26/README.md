@@ -2,40 +2,41 @@
 ---
 
 
-## 辉瑞实验数据显示，疫苗致1/5儿童严重发烧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835679/)
+## 性革命对家庭的破坏性影响将付出惨痛的代价
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1835790/)
 
-作者：纽约香草山翻译部 – defiance
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据infowars 1月4日报道，辉瑞公司的试验数据显示，该公司mRNA疫苗导致五分之一的2-5岁儿童，出现严重发烧症状。
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-480.png)图片来源:lifesitenews.com
 
-其研究人员亚历克斯·贝伦森在他的Substack上发表的，《关于新冠疫情未被报道的真相》一书中指出，辉瑞公司上个月，向投资者发布的令人担忧的数据表明，该公司正在弄清楚年轻人群的疫苗接种剂量。
+在英国，将近 10% 的母亲不知道孩子的父亲是谁。
 
-辉瑞发现，无论接种了一针还是两针疫苗，接受10微克剂量的2-5岁儿童发烧症状，比其他受试儿童更普遍、更严重。
+LifeSiteNews – 1934 年，牛津人类学家昂温（ J.D. Unwin）发表了他的巨著《性与文化》（Sexual Revolution），该著作对 80 个原始部落和 6 个文明进行了五千年的研究。根据昂温的说法，这些案例研究证明，当文化变得富裕时，它们会相应地放宽对性道德的标准。结果，社会失去了凝聚力以及目标和动力。简而言之，根据昂温的说法，一个社会的成功与他们实行的性约束直接相关。 昂温写道，一旦失去了这一点，就死定了——衰退是不可逆转的。
 
-值得注意的是，辉瑞没有在任何同行评议的期刊上发表过，任何有关对5岁以下儿童使用疫苗的安全性或有效性数据的文章。
+请记住，昂温是在震撼西方的性革命之前进行的这项研究，因此，没有评论我们当前的文化环境。现在考虑最近由“托普早间赌场”（Topp Morning Casino）委托进行的一项调查的结果，该调查于上个月发布，对 1,000 名英国母亲进行了调查，调查发现，“7.8% 的人承认谎报了孩子的血统”。简而言之，英国近 10% 的母亲不知道孩子的父亲是谁。
 
-参考链接：
+“我们很震惊，”该公司发言人在其网站上表示。“这意味着，英国可能有 210 万对夫妇的父亲不是亲生父母。”据《纽约邮报》报道，2014 年澳大利亚系列纪录片《谁是你爸爸？》指出，“多达 30% 的亲子关系是错误的”，而 2005 年美国的一项研究，“估计有 4% 的美国父亲正在抚养一个他们不知道在生物学上不是自己的孩子。”
 
-- [辉瑞的实验数据显示疫苗导致五分之一的儿童严重发烧](https://gnews.org/zh-hans/1824839/)
-- [Pfizer Trial Data Shows Jab Caused Severe Fever in 1 Out of 5 Children](https://www.infowars.com/posts/pfizer-trial-data-shows-jab-caused-severe-fever-in-1-out-of-5-children/)
+在致力于创造无父或无母孩子的整个生殖产业的背景下，考虑这些惊人的统计数据。 2011 年，一部名为《匿名父亲节》的开创性电影上映，详细描述了数以千计的人寻求发现其基因起源的挣扎。这部纪录片是通过用来自精子库的捐赠者的精液进行人工授精而构思出来的，讲述了男人和女人试图确定其生父的故事。它主要基于一项名为“我爸爸的名字是捐赠者”的主题的研究。
+
+简而言之，性革命以极其原始的方式，改变了家庭的构成。孩子们出生在一个根基在变化的世界中。
+
+不得不说，它永远不会停止让我感到荒谬，但它确实如此：性产生孩子。婴儿最好在父母为首的家庭中长大。性革命真的是一场革命，其前提是一个疯狂的想法，即我们可以随心所欲地乱搞，但仍然生活在一个和平、正常运转的社会中。**家庭是我们文明的基石，半个世纪以来，我们一直在从四面八方拆散他们。正如我们刚刚开始看到的那样，为此付出惨痛的代价。**
+
+在他的大量研究中，昂温从本质上解释说，一旦文明的结构被撕碎，就无法重新组装起来。 一旦我们从责任和彼此中解放出来，文明就会崩溃，因为将我们联系在一起的纽带被切断， 我们真的“由性连在一起”——当我们没有意识到这一点时，影响是在文明层面上的。 因为切斯特顿曾明智地指出：“**世界上最不平凡的事情，是一个普通的男人和一个普通的女人和他们普通的孩子。”**
+
+**评论：这就是为什么共产党要破坏基本的家庭关系，灌输“爹亲娘亲不如党亲”的谬论，因为对社会基础家庭的破坏，就意味着终结人类文明，撕裂社会。悲哀的是，美国也在用批评种族主义，性革命，性变异改变着家庭的结构。**
+
+新闻来源 :[lifesitenews.com][There’ll be hell to pay for the Sexual Revolution’s destructive effects on the family](https://www.lifesitenews.com/blogs/we-will-have-hell-to-pay-for-the-sexual-revolutions-impact-on-the-family/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

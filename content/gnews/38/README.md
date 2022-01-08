@@ -2,10 +2,8 @@
 ---
 
 
-## 西安：封城下有人无家可归，只有老百姓在帮助他们
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835500/)
-
-12/31/2021 西安：封城下有人无家可归，只有老百姓在帮助他们。
+## 这个国家的发展方向就是乔·罗根所做的：从推特到盖特
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1835580/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

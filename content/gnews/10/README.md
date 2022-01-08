@@ -2,34 +2,28 @@
 ---
 
 
-## 中共国医生和病患之间是敌我关系,是流氓体制最大牺牲者
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1835809/)
+## 高僧大德者都是自食其力而达赖喇嘛却没看清自己的问题
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1835937/)
 
-G-TV视频链接：[https://gtv.org/video/id=61d9513cdffab035958c2d66](https://gtv.org/video/id=61d9513cdffab035958c2d66)
+**郭文贵先生：**大师这人不懂电脑、不懂科技，还给我们讲这话，你知道有多神奇吗！还有一个他更重要的事情，他说我见过真正的高僧大德，从来不要一分所谓的奉献，他说我从小到大，我靠我徒弟我都没让他给我弄过一粒粮食，他说我修行的最大的修行，就是我到现在自食其力。
 
-**郭文贵先生：**我告诉你，我有很多医疗界的朋友，高、中、低界都有。我生活中遇到了很多医生，真的是救人的，他真坚持原则，永远不收红包，就这样的人过得很寒苦，每周工作50小时到55个小时。这在西方是不可能，甚至有更多，但是他们是一贫如洗啊。
+他在武当山，他说文贵你知道什么叫昆仑山脉？什么叫巽山？什么叫垦山？大家知道吗？垦山是什么？巽山是什么，巽山就是风，风就是巽山，大家我都不愿跟你们讲这个，啥叫金木水火土风水呀？为什么有武当山？为什么有南普陀山？为什么有武夷山？为什么有今天的嵩山？中岳嵩山。为什么有我们的所谓的昆仑山？峨眉山？你说山脉咋来的呢？
 
-他们有的人到北京看病，他们就是看不了的，要找北京最牛的医生看病要找七哥，他在北京看不了病的。就中国医生和客户之间的比例，它不是矛盾，它是敌我关系。不可能是一个，大家是一个恩爱的关系和相生相扶的关系，不是的。
+所有的山，就是中国一个人文的历史，就是有些把隔断了…有些人在噩梦中，你就待着恶梦里，永远不要回来，就是人自杀的人和杀人，你就呆在恶梦里，被放在了整个的山脉之下。有些人为什么从南普陀升起来了？因为它要有任务，他要完成任务。你会醒来发现你舒服的在你家床上。
 
-还有一个就是你看到了妇科这些事情上，掐死了一个孩子这种事情，经历过这样的医生没有任何医生心理能健康，特别在没有信仰的医生，那就更惨了，她就只变成虐待了。这就是我今天告诉大家的，医生这个行业是这种流氓体制最大的受害者，这是一个我们今天真的很深刻的话题。
+就现在钟仁去拥抱母亲父亲的时候，你拥抱一次，你相信我，你身体好一次，你谁拥抱你的家人、父母、兄弟姐妹，一定七哥..绝对没有任何…我没有任何，像那些欺民贼似的都为了捐钱啥的，包括我在这穿衣裳，我就是要告诉你，什么叫正道，你拥抱你家人、你朋友时，你会好一次，绝对比你不拥抱好得多，你想健康，你想风水，你想顺…要爱别人，别爱自己超过了爱别人，爱别人时候就会爱自己。
 
-你看今天Eglise，她最早出来直播的时候，你看她穿的衣裳是啥？你看她今天穿了一个红，她像个小女孩一样脸发红，我不知道她先生现在在哪儿呢，现在她有谈恋爱的（感觉），我相信她过去这二三十年都没有水过，她现在绝对有。不是她学坏了，也不是她变坏了，是她的身体和她的精神，刚才说精神指导了水多水少，不是说你家的拿着桶浇上一盆水去，她的精神面貌改变了。
+这是我看到的高僧大德当中、一生当中，绝对没要任何伸手的，我为啥我信呐？
 
-就像她经历过的事情，她以为那些人杀了人，她经经手去解剖去，她认为她就杀人了，这不是自虐吗？你看到这些，让你知道这些，让你救人，你的使命就是传播这些，才能让更多人不被伤害，不被换肾脏换肝脏，是吧？
+达赖喇嘛，他说达赖喇嘛一生当中不能自食其力，达赖喇嘛最回去去武当山去他那儿。他说一生当中，他说达赖喇嘛没看清自己的问题，西藏人没有把自己的生活解决下，他说你永远会被别人解决。哇~塞！这话说的太好了！西藏人所有的佛教，如果还靠大家来捐赠、黄金、死人不在乎，那时候你永远不会被解救。
 
-当医生有信仰的时候，像今天你们信了新中国联邦，你相信正义和真相，你相信万佛万神，你相信大自然的力量，你看到了我们在救人，我们中间任何没有任何“水”的交易，没有任何钱的交易，没有任何名的交易，你就会像文紫，像玛丽雅，像Ruth，拥抱太阳，你会出来的。Eglise你看到你们每个人的变化，这就是精神指导了一切。
+所以我服他、我信他、我更相信他，人生就是黄粱一梦。我们要在黄粱一梦里边儿，变成我们的仙梦，人生是仙梦一场，否则，你就变成了黄粱一梦。
 
-字幕来源：[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（三）](https://gnews.org/zh-hans/1817244/)
+编辑整理：海贼王M.D.LUFFY；
 
-编辑整理：Jacques；
+G-News发布：海贼王M.D.LUFFY；
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
 声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
@@ -37,15 +31,17 @@ G-News发布：小满；
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：日本银河系农场。
+
+
 
  
 
