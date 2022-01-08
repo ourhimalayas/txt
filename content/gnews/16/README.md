@@ -2,13 +2,13 @@
 ---
 
 
-## 疫苗并不是用来对抗病毒的，而是利用病毒来引入疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1834729/)
+## 日本新增确诊中共病毒感染比一周前暴增12倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1834777/)
 
-12/27/2021 大卫·马丁博士：安东尼·福奇想把冠状病毒作为艾滋病毒疫苗的载体。他想用一种病毒作为疫苗。疫苗并不是为了对抗病毒而带来的，而是为了引进疫苗而引进的病毒。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220108-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,37 @@
 ---
 
 
-## 法国总统称未接种疫苗者为 “非公民&#8221;
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834802/)
+## 有声|专家呼吁关注奥密克戎变种出现的独特症状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834864/)
 
-采编/编译撰稿：自由法兰西        校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-12-edited.jpg)左：总加速师 右：马克红龙 
- 图片来源：DWXW
+配音：香草山巡管部 – 格格
 
 
-据美国媒体《国家脉动》1月4日报道，法国总统马克龙当天表示，应将该国未接种疫苗的民众按照“非公民”人士对待，并通过限制其人身自由和社交活动，来逼迫他们去接种“新冠病毒”疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
 
-据悉，法国议会目前正在讨论通过一项新的防疫法案，即从1月15日起，所有未接种疫苗的人，即使其病毒检测呈阴性也将被禁止进入餐厅、咖啡馆和影剧院等公共商业场所。同时，总统的以上歧视性声明立刻招致反对党领袖勒庞的强烈反对，并谴责马克龙将法国未接种人士视为二等公民的言论违宪。
+此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
 
-报道称，尽管法国目前的疫苗接种率高达90%，但仍然无法阻止“新冠病毒”及其变种疫情在法国的失控蔓延。而各种官方数据则表明，相对未接种者，已接种疫苗的人反而更有可能感染和传播该病毒。
+不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
 
-* * *
+文字版原文：[专家呼吁关注奥密克戎变种出现的独特症状](https://gnews.org/zh-hans/1825357/)
 
-原文链接： [https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/](https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

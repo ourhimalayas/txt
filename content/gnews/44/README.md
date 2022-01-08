@@ -2,35 +2,26 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月4日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833536/)
+## 文贵爆料 1.7：人生就是“黄粱一梦”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1833938/)
 
-配音：香草山教育部 – Rita七号小青蛙
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-07-下午10.04.06.png)
+人的一生都有很多难忘的梦，或喜、或悲、或得、或失。希特勒曾以梦游者的自信走向了他的命运，也走完了他那疯狂、扭曲和罪恶的一生。那么人生和梦有什么关系呢？郭文贵先生在1月7日的大直播中说，人生就是“黄粱一梦”，而我们正在实现华夏民族的“千秋家国梦”。
 
+我深信人有今生来世，我相信我们的人生就是“黄粱一梦”。为什么呢？因为在现在的高科技时代，可以做到雁过留声，人过留名。我们有互联网、录音、录像、电影和照片，我们做的一切都可以被记录下来，可以被反复观看。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+一位高人说，看透了“黄粱一梦”，就能放下生死、立地解脱，就不被任何牵挂，不被任何左右，就是从悬崖峭壁到达彼岸。人的灵魂，先灵后魂，灵魂出窍就是离开了你的肉体了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月4日早](https://gnews.org/zh-hans/1822250/)
+不要被这场梦给祭拜了，人生的梦注定了你未来会不会醒来。作恶、自杀、杀人和制造灾难人，会永远在噩梦中，永远不会醒来。为什么有昆仑山、峨眉山和武当山？这些山就是中国人的历史，它们隔断了作恶者的梦，让他们永远停留在痛苦的噩梦中。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+梦的过程就是寻找答案的过程，就是修行的过程，就是用各种事情训练你的过程。就像修行中有万事万法。万事都有因果轮回，因起则果落。这就是为什么不同的人做不同的梦，一个人当下的行为和梦中的行为一定是一致的。这就是为什么有周公解梦，有奇门遁甲。中国的五行风水就是大自然对自然行为的解梦。梦就是人生的考卷。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在这个梦里，我们有我们的理想。我们带着使命，去参与到爆料革命，去改变整个人类的进程，我们在一起做着同一个梦——灭共。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
+[2022年1月7日 文贵大直播](https://gettr.com/streaming/pmw0gj4b89)
 
  
 
