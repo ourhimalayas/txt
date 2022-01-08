@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|中共研究人员在2015年就窃取了美国单克隆抗体商业秘密
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834944/)
+## 加拿大群体免疫力因疫苗而逐渐丧失
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834972/)
 
-配音：香草山巡管部 – 格格
+采编/编译撰稿：文莱      校对编辑，发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-14.jpg)图片来源：DYCJ
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据国家脉动4日报道，受雇于葛兰素史克公司GSK的前科学家Lucy Xi，承认窃取中共病毒疗法相关的商业秘密，目的是帮助一个国资药企。
+据加拿大【CTV新闻】1月6日报道，近期在对该国捐献血液者的研究测试中发现，已接种过“新冠病毒”疫苗和已感染过该病毒的群体免疫力正在持续下降。
 
-Xi与三名共同被告人在中共资助下成立了南京任诺药业。据美国司法部消息，2015年1月，她向同伙梅岩发送了一份包含“保密商业机密数据与信息”的GSK内部文件。该文件提供了GSK当时对单克隆抗体的研究概况。Lucy Xi在邮件正文中写道：“你需要充分弄懂这个，将有助于任诺的未来发展。”
+据悉，此次测试数据来源于加拿大各地约9000份捐献血液样本，结果发现其中“新冠病毒”抗体从去年10月份就开始显著下降，并且该状况在所有年龄组中均有所体现。加拿大卫生部门对此表示，以上“个体免疫力急剧下降”的调查结果将影响政府对易感染人群的疫苗加强剂接种计划。
 
-检察官威廉姆斯指出：“这名被告非法窃取商业秘密，使由中共政府出资的公司受益，这种犯罪行为必须在法律的最大范围内受到起诉。”
+报道称，尽管“奥密克戎”变异病毒的强传播性使得目前的测试系统无法完全保障其数据的准确性，但由于加拿大的极高疫苗接种率非，势必将导致该国已接种疫苗群体免疫力的逐渐下降，并最终造成其体内病毒抗体的系统性衰减。
 
-文字版原文：[中共研究人员在2015年就窃取了美国单克隆抗体商业秘密](https://gnews.org/zh-hans/1827313/)
+* * *
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [Omicron could boost waning immunity, blood tests show | CTV News](https://www.ctvnews.ca/health/coronavirus/omicron-could-boost-waning-immunity-blood-tests-show-1.5729803)
 
  
 

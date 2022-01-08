@@ -2,24 +2,39 @@
 ---
 
 
-## 法国总统称未接种疫苗者为 “非公民&#8221;
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834802/)
+## 有声|芝加哥警察工会主席猛烈抨击中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834825/)
 
-采编/编译撰稿：自由法兰西        校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-12-edited.jpg)左：总加速师 右：马克红龙 
- 图片来源：DWXW
+配音：香草山巡管部 – 格格
 
 
-据美国媒体《国家脉动》1月4日报道，法国总统马克龙当天表示，应将该国未接种疫苗的民众按照“非公民”人士对待，并通过限制其人身自由和社交活动，来逼迫他们去接种“新冠病毒”疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月3日，据当地媒体消息显示，美国芝加哥警察工会主席卡坦扎拉通过一段视频向民众宣布，在完全接种过中共病毒疫苗后，他上周的中共病毒核酸检测仍然呈现阳性结果。
 
-据悉，法国议会目前正在讨论通过一项新的防疫法案，即从1月15日起，所有未接种疫苗的人，即使其病毒检测呈阴性也将被禁止进入餐厅、咖啡馆和影剧院等公共商业场所。同时，总统的以上歧视性声明立刻招致反对党领袖勒庞的强烈反对，并谴责马克龙将法国未接种人士视为二等公民的言论违宪。
+对此，卡坦扎拉在视频中指出，中共病毒疫苗并不是真正的疫苗，其不具备政府和制药公司所宣传的防护功效，相反的，大量接种过疫苗的民众依然感染了中共病毒，因此，联邦政府推行的疫苗强制令应该被停止。
 
-报道称，尽管法国目前的疫苗接种率高达90%，但仍然无法阻止“新冠病毒”及其变种疫情在法国的失控蔓延。而各种官方数据则表明，相对未接种者，已接种疫苗的人反而更有可能感染和传播该病毒。
+此外，卡坦扎拉也表示，目前，最好的防疫措施还是继续保持社交距离、多洗手，同时在人际交往上更加灵活。
 
-* * *
+据了解，就中共病毒疫苗强制接种政策，卡坦扎拉正在带领芝加哥最大的警察工会与当地市政府进行抗争，卡坦扎拉希望尽可能地推迟该市对当地警察的强制疫苗要求。
 
-原文链接： [https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/](https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/)
+文字版原文：[芝加哥警察工会主席猛烈抨击中共病毒疫苗](https://gnews.org/zh-hans/1825404/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

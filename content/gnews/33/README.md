@@ -2,12 +2,30 @@
 ---
 
 
-## 刺突蛋白疫苗违反了美国法律，那是国内恐怖主义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1834727/)
+## Joe Rogan 帮助 Twitter 替代品 Gettr 积累了 100 万新用户
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1834760/)
 
-12/27/2021 大卫·马丁博士：刺突蛋白疫苗是勾结的产物，这是敲诈勒索，根据爱国者法案第 802 节，那是国内恐怖主义。这违反了美国法律，利用美国法律明目张胆地注射生物武器。然而美国司法部却坐视不管。
+作者：西奥·韦特
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-8.54.27-PM-edited.jpeg)图片来源：网络
+在乔·罗根加入该网站后不到一周，Gettr 就注册了 100 万新用户。
+
+据《华盛顿邮报》获悉，前特朗普顾问杰森·米勒的社交媒体应用 Gettr 在播客巨星乔·罗根加入后的几天内，已有超过 100 万新用户注册。
+
+根据与《华盛顿邮报》独家分享的公司数据，Gettr 是一个一直吸引保守社交媒体用户的 Twitter 替代品，周五早上突破了 100 万大关，距离 Rogan 周日在该网站上发布他的第一个帖子不到一周。 据发言人 Ebony Bowden 称，这使该网站的用户总数超过 400 万。
+
+**评：**根据Gettr创始人郭文贵先生大直播谈到，Gettr用户数量已经超过三千万，并非该文作者所说的400万，也并非仅仅吸引保守社交媒体的用户。Gettr的用户群体是全球性的用户，是保护自由、保护真相、支持正义的社交媒体平台。本文章内容仅供参考，重点在于提醒大家关注Joe.Rogan。
+
+来源链接：[https://t.co/RydOCg3s3a](https://t.co/RydOCg3s3a)
+
+编辑/发布：LILY
+
+20220107
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+
+
 
  
 
