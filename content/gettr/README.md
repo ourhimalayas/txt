@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/8/2022 5:18 AM (UTC)`
+
+1/07/2022 Miles Guo: The CCP has never anticipated that its use of debts to hold hostage the global economy and creating a financial crisis via the collapse of its real estate would propel humanity to an unprecedented massive economic rebound and advancement of civilization; the GETTR Pay's digital currency mogul praised the Himalaya Coin and the Himalaya Exchange<br/><br/>1/07/2022 文贵直播：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步；GETTR Pay的数字货币大佬对喜币和喜联储大加赞赏
+![img](https://media.gettr.com/group17/getter/2022/01/08/05/01a8483d-ca38-be55-eba5-7a110a298d79/out.jpg)
+
+---
+
 `@miles 1/8/2022 2:40 AM (UTC)`
 
 1/07/2022 Miles Guo: There is no CCP senior cadre who dares to mention Miles Guo, the New Federal State of China, and the Whistleblowers’ Movement, and our fight against the CCP is a war between justice and evils; reflect on the hooligan nature of the CCP’s political infightings by  looking at the photos of me when I was 7 years old; I already suspected that the CCP had falsified its GDP when I was a child<br/><br/>1/07/2022 文贵直播：中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战；从文贵7岁时的照片看中共内斗的流氓逻辑；文贵还是孩子的时候就怀疑中共GDP造假<br/>
@@ -146,13 +153,6 @@
 `@miles 1/7/2022 5:07 AM (UTC)`
 
 1月6号，Hcoin To the Moon MV上线第28天继续位列美国🇺🇸，匈牙利🇭🇺iTunes摇滚MV榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿， 芬兰🇫🇮iTunes摇滚歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes嘻哈歌曲榜榜首🥇🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，匈牙利，新西兰，芬兰的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1829703/<br/><br/>Jan 6th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on USA 🇺🇸, Hungary 🇭🇺 iTunes Rock Music Video Chart on 28th Day of Launch🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇on New Zealand 🇳🇿 , Finland 🇫🇮 iTunes Rock Song Chart🎉🎉🎉🎉🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Hip-Hop/Rap Song Chart 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in USA,  Hungary, New Zealand, and Finland.🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1829704/
-
----
-
-`@miles 1/7/2022 4:00 AM (UTC)`
-
-1/05/2022 Miles Guo: The power of the media is so huge! Devilish media outlets like HBO/VICE are colluding with the CCP, framing the New Federal State of China (NFSC) as a cult and a bunch of rioters. Since we believe that “only truth prevails”, what these devilish media have done is in vain, and they are going to face charges under the RICO Act of 1970<br/><br/>1/05/2022 文贵直播：媒体的力量太大了！HBO/VICE这样的魔鬼媒体和中共勾兑，构陷新中国联邦是邪教、暴乱分子；正因为我们的唯真不破，魔鬼媒体并没有得逞，等待它们的是RICO法案<br/>
-![img](https://media.gettr.com/group38/getter/2022/01/07/04/a79eab36-7a53-c746-0e19-1fafefe4bd17/out.jpg)
 
 ---
 
