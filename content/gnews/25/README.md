@@ -2,32 +2,51 @@
 ---
 
 
-## 随着Twitter审查制度愈演愈烈，乔-罗根加入GETTR
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834273/)
+## “中共国不可投资”债券投资大王冈拉克如是说
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1834309/)
 
-**据《thepostmillennial》作者：Hannah Nightingle，2022年1月2日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a89gx-mx5dx-2.jpg)图片源自：thepostmillennial.com
-随着Twitter继续在其平台封锁用户账号，超级播客乔-罗根(Joe Rogan)周日宣布，他已经注册了一个GETTR账号。
+编译： Jenny Ball
 
-最近，Twitter公司以其多次违反COVID-19政策为由，禁止马乔里-泰勒-格林议员(Rep. Marjorie Taylor Greene)使用推特。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-448.png)图片来源: finance.yahoo.com
 
-GETTR于今年早些时候推出，作为Twitter的竞争对手。特朗普政府前高级顾问、GETTR首席执行官杰森-米勒(Jason Miller)在7月表示，该平台将对来自政治领域任何一端的意见保持开放态度。
+DoubleLine 创始人杰弗里·冈拉克 (Jeffrey Gundlach) 表示，将资金投入中共国，投资者可能要三思而后行。
 
-GETTR允许用户“将他们现有的推文导入这个新平台”，此外还提供更长字符数的发帖功能，以及可以发布更清晰的照片。
+“在我看来，中共国在这一点上是不可投资的，”这位债券大王在他位于加州的庄园接受采访时告诉雅虎财经。“我从未在中国做多或做空投资，为什么？ 因为我不相信数据。我不再相信美国和中国的关系了。我认为在中国的投资可能会被没收。我认为这是有风险的。”
 
-GETTR是思想的市场。米勒在声明中说：“我们不会因为人们的政治观点而取消他们，而且GETTR提供的功能和技术远远超过其他任何平台。”
+冈拉克的评论是在周二DoubleLine 的第三届投资者年度圆桌会议之前发表的。
 
-**文章来源:**[https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies](https://thepostmillennial.com/breaking-joe-rogan-joins-gettr-as-twitter-censorship-intensifies)
+冈拉克对中共国的一些担忧，在去年以极大的方式表现出来。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+政府对滴滴等中国大型互联网公司的运营持续打压，震惊了该领域的投资者。对中国最大科技公司的打击现在导致中国政府收紧了上市要求。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+为此，滴滴在灾难性的首次公开募股后不久（很大程度上是因为中国当局）， 计划在今年晚些时候从纽约证券交易所退市。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-450.png)图片来源: finance.yahoo.com
+
+DoubleLine 创始人杰弗里·冈拉克（右）告诉雅虎财经：中共国不可投资。
+
+与此同时，中共政府的长期影响也打击了好未来教育集团等课外辅导公司——该公司的股价在 2021 年暴跌约 95%。
+
+所有这一切都是中共持续打击加密货币崛起的补充。
+
+该国的投资逆风体现在该国主要指数在 2021 年的表现上。
+
+例如，**追踪中大盘中国股票表现的金龙指数在 ****2021 ****年暴跌约 ****49%****。**《华尔街日报》指出，2021 年中国在岸股票总价值上涨 20%，表现落后于标准普尔 500 指数的涨幅。
+
+冈拉克对新兴市场越来越乐观，中共国除外（他认为中共国不再是新兴市场）。
+
+“我认为下一步的重大举措是进入新兴市场。我们一直以来的新兴市场股票都为零。而且，直到最近，我们一直在减持新兴市场债务，”冈拉克补充道。
+
+**点评：投资大王冈拉克指的新兴市场，必将是喜币和G系列打造的人类未来美好平台。**
+
+新闻来源 : [finance.yahoo.com] [‘China is uninvestable,’ says Bond king Jeffrey Gundlach](https://finance.yahoo.com/news/bond-king-jeffrey-gundlach-china-is-uninvestable-114404300.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
