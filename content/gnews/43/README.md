@@ -2,35 +2,28 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月4日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833536/)
+## GTV新闻访谈简报|2022年1月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1833854/)
 
-配音：香草山教育部 – Rita七号小青蛙
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+视频参看：[2022.01.07早GTV新闻访谈](https://gtv.org/video/id=61d83fc4f2fe0449ea19a537)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月4日早](https://gnews.org/zh-hans/1822250/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

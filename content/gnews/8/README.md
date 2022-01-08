@@ -2,30 +2,24 @@
 ---
 
 
-## Joe Rogan 帮助 Twitter 替代品 Gettr 积累了 100 万新用户
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1834760/)
+## 法国总统称未接种疫苗者为 “非公民&#8221;
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834802/)
 
-作者：西奥·韦特
+采编/编译撰稿：自由法兰西        校对编辑，发稿：硫酸羟氯喹64
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-8.54.27-PM-edited.jpeg)图片来源：网络
-在乔·罗根加入该网站后不到一周，Gettr 就注册了 100 万新用户。
-
-据《华盛顿邮报》获悉，前特朗普顾问杰森·米勒的社交媒体应用 Gettr 在播客巨星乔·罗根加入后的几天内，已有超过 100 万新用户注册。
-
-根据与《华盛顿邮报》独家分享的公司数据，Gettr 是一个一直吸引保守社交媒体用户的 Twitter 替代品，周五早上突破了 100 万大关，距离 Rogan 周日在该网站上发布他的第一个帖子不到一周。 据发言人 Ebony Bowden 称，这使该网站的用户总数超过 400 万。
-
-**评：**根据Gettr创始人郭文贵先生大直播谈到，Gettr用户数量已经超过三千万，并非该文作者所说的400万，也并非仅仅吸引保守社交媒体的用户。Gettr的用户群体是全球性的用户，是保护自由、保护真相、支持正义的社交媒体平台。本文章内容仅供参考，重点在于提醒大家关注Joe.Rogan。
-
-来源链接：[https://t.co/RydOCg3s3a](https://t.co/RydOCg3s3a)
-
-编辑/发布：LILY
-
-20220107
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-12-edited.jpg)左：总加速师 右：马克红龙 
+ 图片来源：DWXW
 
 
+据美国媒体《国家脉动》1月4日报道，法国总统马克龙当天表示，应将该国未接种疫苗的民众按照“非公民”人士对待，并通过限制其人身自由和社交活动，来逼迫他们去接种“新冠病毒”疫苗。
 
+据悉，法国议会目前正在讨论通过一项新的防疫法案，即从1月15日起，所有未接种疫苗的人，即使其病毒检测呈阴性也将被禁止进入餐厅、咖啡馆和影剧院等公共商业场所。同时，总统的以上歧视性声明立刻招致反对党领袖勒庞的强烈反对，并谴责马克龙将法国未接种人士视为二等公民的言论违宪。
+
+报道称，尽管法国目前的疫苗接种率高达90%，但仍然无法阻止“新冠病毒”及其变种疫情在法国的失控蔓延。而各种官方数据则表明，相对未接种者，已接种疫苗的人反而更有可能感染和传播该病毒。
+
+* * *
+
+原文链接： [https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/](https://thenationalpulse.com/2022/01/04/frances-macron-stuns-as-he-declares-un-vaxxed-not-citizens/)
 
  
 

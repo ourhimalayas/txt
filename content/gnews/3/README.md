@@ -2,23 +2,37 @@
 ---
 
 
-## 美最高法院将重新裁决拜登的疫苗政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834787/)
+## 有声|专家呼吁关注奥密克戎变种出现的独特症状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1834864/)
 
-采编/编译撰稿：Spirit   校对编辑,发稿 ：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-11-edited.jpg)图片来源：REUTERS
+配音：香草山巡管部 – 格格
 
 
-据《路透社》1月5日报道，美国联邦最高法院正准备决定是否阻止拜登总统对大型企业雇员和医护人员的疫苗强制接种规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月2日，据媒体消息显示，与其他中共病毒变种相比，奥密克戎变种出现了一种“非常独特”的症状，即严重的夜间盗汗。
 
-报道称，最高法院将于1月7日就包括商业团体、宗教实体和共和党各州在内的反对者所提出的，暂停目前疫苗强制接种规定的紧急请求进行当庭辩论，并立即对此作出裁决。反对者们一致认为拜登此举超越了其政府权限。
+此外，美国纽约大学助理教授玛雅·库塔亚也发现，完全接种过中共病毒疫苗的患者在感染奥密克戎毒株后会出现严重的头痛、背痛及盗汗的症状；相反的，未接种疫苗者感染后则只会出现喉咙发痒、干咳等类似流感的症状。
 
-据悉，美国第六巡回上诉法院此前重新认可了总统拜登“要求所有大型企业雇员接种疫苗或每周接受病毒测试”的强制规定。这项由[职业安全与健康管理局]发布的命令直接影响到全国约8000万工人。
+不过，纽约西奈山伊坎医学院传染病学副教授瓦利德·贾韦德博士依然警告指，尽管奥密克戎的表征相对温和，但人们仍然可能因感染奥密克戎变种导致严重的疾病，这必须引起所有人的高度重视。
 
-* * *
+文字版原文：[专家呼吁关注奥密克戎变种出现的独特症状](https://gnews.org/zh-hans/1825357/)
 
-原文链接： [https://www.reuters.com/world/us/pandemic-wary-us-supreme-court-weigh-biden-vaccine-mandates-2022-01-05/](https://www.reuters.com/world/us/pandemic-wary-us-supreme-court-weigh-biden-vaccine-mandates-2022-01-05/)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
