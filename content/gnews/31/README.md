@@ -2,37 +2,35 @@
 ---
 
 
-## 美国医学协会谴责CDC新隔离指南
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835804/)
+## 强制疫苗国家的典型案例
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1836064/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月5日，美国医学协会AMA指责美国疾病控制和预防中心，发布了“混乱的”和“适得其反的”新冠病毒检疫和隔离新指南。
+撰稿：挺郭建筑师
+![](https://assets.gnews.org/wp-content/uploads/2022/01/803.jpg)图片制作：澳喜农场©森森
+2021 年2月8日起，强制疫苗在古老的欧洲大陆拉开了序幕。未接种疫苗者受到了诸如 “SIM卡被封”、“驾照被吊销”等一系列疯狂的制裁。一位名为文森特. 惹尼 (Vincent Geny)的作者于2022年1月6日在Marianne周刊发表了一篇报道，他总结了目前发生在疫苗独裁国家的一些典型案例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-4.png)
+梵蒂冈是世界上第一个实施强制疫苗的国家。首先是对神职人员，然后在 10 月将其扩大到所有人。对拒绝接种的人惩罚从罚款到解雇不等。这一强制措施于 10 月初扩大到瑞士卫队成员。其中三个成员宁愿返回瑞士也不打疫苗，而另外三人无限期搁置接种计划。
 
-该委员会主席杰拉尔德·哈蒙博士在一份声明中说，美国人民应该得到及时、准确和明确的指导。相反，CDC的新建议不仅令人困惑，而且加大了传播病毒的风险。隔离和检疫期从原先的10天缩短到5天，将增加数十万人在工作场所和学校受到感染的风险。
+奥地利政府自去年11月19日起宣布：从2021年 2 月 1 日起，任何 14 岁以上的人都必须接种疫苗。奥地利人必须在 3 月 15 日之前完成接种。拒绝接种者将每三个月缴纳 600 欧元的罚款，拒付者罚金将高到 3,600 欧元。希腊很快步奥地利后尘。希腊总理于 11 月底宣布自 1 月 16 日起，还没有接受第一针的人将面临 100 欧元的罚款，每月累加。
 
-医生们认为目前需要进行更多的研究，以确定奥密克戎的严重程度和逃避免疫反应，以及疫苗的保护力，但这些建议可能进一步令卫生保健系统不堪重负。哈蒙博士同时敦促政府，尽一切能力加强检测盒的可用性。但测试盒的匮乏并不能成为缩短隔离期的理由。 虽然CDC强调更改指南的原因是研究表明，病毒传播一般在发病前1-2天和发病后2-3天。但评论人士指出，隔离期缩短为5天跟多个领域出现的人员短缺有关，社会运转的基本功能正面临着严重问题。
+印度尼西亚是第一个实施强制疫苗措施的亚洲国家。在 2021 年 2 月开始对所有成年人实施强制接种措施，其惩罚方式多种多样，取决于地方当局。在一些地区，居民因未接种疫苗而被拒绝发放驾照。或者中断社保金或者停止收发工作之必要信件。在首都雅加达，未接种疫苗的人最高可被罚款 290 欧元。这些强制措施导致的极端情况时有发生。2021 年 10 月 17 日，一名 19 岁女子报警遭到强奸，警方因为她没有疫苗接种证明而拒绝接警。
 
-参考链接：
+新加坡地方当局则将某些责任推卸给未接种者个人。所有入住重症监护病房的未接种病人都必须自己支付住院费用，约为 16,200 欧元。
 
-- [CDC’s new COVID-19 isolation guidance called out by American Medical Association](https://www.foxnews.com/health/cdc-covid-isolation-guidance-called-out-american-medical-association)
+在巴基斯坦的旁遮普省，当局对未接种疫苗的人实施了断网。自 6 月 10 日起，未接种疫苗的人发现他们的 SIM 卡被封，而手机是该国最常用的上网方式。
 
+在北美洲，加拿大联邦当局自 1 月 2 日起暂停了未接种者的失业救济金。联邦就业部长 Carla Qualtrough以保护就业和经济为名，要求民众接受其强制疫苗的“主导政策 ”。作为联邦政体的加拿大，每个省都有权颁布额外的政策措施。魁北克走得更远。蒙特利尔当局宣布，疫苗护照将扩展到烟酒售卖领域，而烟酒行业都由当局控制。这一措施将在未来几天内公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+法国政府也步步紧逼，1月6日早晨5点，通过议会偷偷摸摸将健康护照变成强制性疫苗护照。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：海阔天空1
+世界各主流国家通过强制疫苗政策加速戕害国民，追杀觉醒的民众。这也恰恰显示了政府首脑、政客和中共勾结者们的心虚。他们欲盖弥彰，穷凶极恶，必将激起更多良知媒体和民众的觉醒，奋起反抗，终为其送葬。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻参考链接：
+
+[https://www.marianne.net/societe/sante/cartes-sim-bloquees-permis-retires-ces-sanctions-folles-qui-visent-les-non-vaccines-dans-le-monde](https://www.marianne.net/societe/sante/cartes-sim-bloquees-permis-retires-ces-sanctions-folles-qui-visent-les-non-vaccines-dans-le-monde)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,47 @@
 ---
 
 
-## 立陶宛下令国营铁路公司不与中资企业签约
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835808/)
+## 保护制药公司疫苗免责是COVID疫苗犹豫的最大困惑之一
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1836095/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台媒1月6日报道，立陶宛总理发言人告诉媒体，立陶宛政府已于5日下令，基于国家安全利益考量，国营立陶宛铁路公司，将不与中共国拥有的西班牙桥梁制造商签署合约。
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-491.png)图片来源:lifesitenews.com
 
-据悉，在西班牙登记的中共桥梁和道路基础设施公司，以最低出价6250万欧元，赢得了一项在立陶宛的桥梁建设招标。该公司网站上，将中共国路桥集团国际建设股份有限公司，列为母公司。
+华盛顿特区生活新闻（LifeSiteNews） – 在圣诞节后的两条推文中，美国肯塔基州众议员托马斯·马西（Thomas Massie）强调了对新型 COVID-19 疫苗持续不信任的一个关键原因：联邦规则保护制药公司，为他们的产品在某些条件下的缺点后果免责。
 
-而国营立陶宛铁路公司去年曾表示，已要求政府审查这项合约，西班牙子公司与中共国之间的关系，为合约风险之一。
+根据国会研究服务 (CRS) 的规定，2005 年联邦公共准备和应急准备 (PREP) 法案，“授权卫生与公众服务部 (HHS) 限制与医疗对策管理相关的损失的法律责任，例如， 诊断、治疗和疫苗。” 在 2020 年 COVID-19 爆发之初，**HHS ****援引该法案宣布，该病毒为****“****突发公共卫生事件**”。
 
-参考链接：
+国会研究服务解释说，在这种“全面”豁免下，联邦政府、州政府、“所涵盖的对策的制造商和分销商”，以及分发这些对策的有执照，或以其他方式授权的卫生专业人员，免受这些对策引起的“所有损失索赔”，除因“故意不当行为”而导致的“死亡或严重身体伤害”外，该标准除其他障碍外，要求犯罪者“故意采取行动以达到一个错误的目的”。
 
-- [立陶宛下令國營鐵路公司 不與中資橋梁建造商簽約](https://cn.rti.org.tw/news/view/id/2121379)
+马西在 12 月 26 日表示：“**即使他们的口罩不起作用，援引PREP 法案，也可以保护销售口罩的公司。即使它们伤害了消费者，联邦政府也在强制要求使用其产品，并保护制造商**。”
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-492.png)图片来源:lifesitenews.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+虽然有证据表明，最常见的口罩几乎没有提供针对 COVID 的保护（过去两年中的大部分时间都是有争议的，**但企业数据直到最近才开始承认**），但对 PREP 法案的影响的大部分获益，都属于根据川普政府的“神速行动”计划开发 COVID-19 疫苗的辉瑞、莫德纳和强生公司。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：海阔天空1
+这些疫苗的开发和发布时间，是疫苗开发通常所需时间的十分之一，是之前的记录保持者**腮腺炎疫苗所需时间的四分之一**，这导致人们担心：它们是否经过充分的安全测试。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+疫苗捍卫者指出，这个为期一年的开发期，并不是从头开始，而是依赖于对 mRNA 技术的多年研究； 并且 “神速行动”的创新之一，是同时而不是顺序进行开发过程的各个方面，从而消除了与安全无关的延迟。然而，这些因素并没有完全解释临床试验阶段的压缩——**每个阶段都可能需要****1-3 ****年的时间**——而（Covid疫苗）每个阶段只需要三个月。
+
+虽然在注射 COVID 疫苗后，向联邦疫苗不良事件报告系统 (VAERS) 报告的严重伤害病例还不到美国施用的总剂量的 1%，但 2010 年提交给美国卫生与公共服务部的报告（HHS）医疗保健研究和质量局（AHRQ）警告说，VAERS仅收集了“不到 1% 的疫苗不良事件”。去年 5 月，NBC 新闻援引几位主流专家的话说，他们承认：联邦疫苗监测存在“差距”。
+
+此外，数据表明： COVID 疫苗的广泛使用未能结束大流行。联邦政府认为，超过 2.06 亿美国人（符合条件的 62%）“完全接种”（鉴于疫苗的临时性质，这成了一个移动目标），但约翰斯霍普金斯大学 10 月份报告的数据显示，更多美国人死于 COVID -19疫苗， 到 2021 年 (353,000) ， 2020 年全年 (352,000)。莫德纳(Moderna)疫苗已于 2021 年全年上市；辉瑞（Pfizer）和强生（Johnson & Johnson）的注射剂已于 2 月底上市。
+
+11 月，《火焰》(The Blaze)高级编辑丹尼尔·霍洛维茨（Daniel Horowitz）呼吁各州，建立自己的医疗责任规则和 VAERS 类型的系统，并呼吁全国共和党候选人和现任者，抵制辉瑞的竞选捐款，让疫苗制造商的责任，“承诺支持立法，当政府授权的任何医疗产品，同时支持、资助或积极推广该产品时，这些医疗产品需要满足两个重要条件”：
+
+“**1****）消费者必须有直接的诉讼理由，来起诉政府支付的责任（没有上限），****”****他继续说道。**
+
+“2) 授权必须由与制造商或政府机构没有任何联系的第三方实体批准。这是恢复纽伦堡知情同意原则的唯一途径。”
+
+新闻来源 :[lifesitenews.com][Laws protecting drug companies from mask, vaccine liability a real problem, Rep. Massie says](https://www.lifesitenews.com/news/massie-calls-out-federal-law-shielding-drug-companies-from-mask-vaccine-liability/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
