@@ -2,22 +2,26 @@
 ---
 
 
-## 澳大利亚议员凯利称官员故意阻挠新冠救命药物
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1837066/)
+## 加拿大安者今天确认30人死于新冠病毒感染
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1837084/)
 
 #### 加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0283.jpeg)Thewest
-据鸿声传媒1月7日报道，澳大利亚议员克雷格·凯利近日公开指责卫生官员和政治家合谋在新冠病毒预防和治疗方面故意阻挠救命药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0284.jpeg)CanadaNews
+据加拿大媒体CP24报道，安大略省卫生官员今天上午发布报告称，昨天又有30人死于中共（新冠）病毒感染。这是安省自5月以来确诊的最高每日死亡人数。
 
-凯利在谈到澳大利政府处理新冠病毒的做法时很愤怒，他说，政府对任何试图使用疫苗之外的药物治疗新冠病毒感染病人的医生进行政治迫害。
+报告显示目前该省有2594名中共（新冠）病毒患者住院，进入重症监护病房的患者人数从周五的338人跃升至今天的365人，其中有219名患者需要呼吸机帮助呼吸。
 
-凯利认为，以公共卫生名义进行侵权的卫生官员必须对此负责，但那些身居要职的自满政治家是在犯罪，因为他们允许并支持这样的侵权越权行为发生。
+安省卫生部长克里斯汀·艾略特 Christine Elliott表示，进入重症监护病房的人中，248人没有完全接种疫苗或疫苗接种状态不明，137人完全接种了疫苗。
 
-如果凯利的指责最终被证实，被指责的人将因为故意致无辜的人于死地而最终被送上审判台，面临极为严重的危害人类罪指控。
+但艾略特没有说明死亡的30人感染了哪种病毒，他们当中有多少人完全接种了疫苗。
 
-凯利是联合澳大利亚党的领导人，该党是澳大利亚的大党派，是一个以“造福全体国民”为己任的右翼政党。
+安省省级实验室在过去24小时内处理了55,700次病毒测试，确认13,362例，阳性率高达30.6%，但由于检测能力有限，大多数公众无法获得检测，因此，实际病例数应大大高于报告的数字。
 
-参考：[Australian Health Officials & Complicit Politicians Put On Notice Over Crimes Against Humanity, HCQ \[VIDEOS\]](https://www.redvoicemedia.com/2022/01/australian-health-officials-complicit-politicians-put-on-notice-over-crimes-against-humanity-hcq-videos/)
+令人不解的是，在中共（新冠）病毒疫情肆虐的两年时间里，加拿大政府、医疗机构、学界及无耻的媒体对病毒来源几乎只字不提，却异常卖力地打压伊菌霉素等有效防治病毒的药物。
+
+笔者的多位家庭成员分别向自己的家庭医生要求开伊菌霉素和羟氯喹处方均告失败，变换地址从印度三次邮购也全部被海关没收，相比于日本、印度在这方面的开明形成了巨大的反差，这样罔顾事实和视民众生命如草芥的国家，还是我们的家吗？
+
+参考：[Ont. says 385 COVID-19 patients now in ICU; 31 more virus-related deaths confirmed today](https://www.cp24.com/news/ont-says-385-covid-19-patients-now-in-icu-31-more-virus-related-deaths-confirmed-today-1.5732704)
 
 编辑/发文：Kent
 
