@@ -2,34 +2,43 @@
 ---
 
 
-## 数字人民币软件升级兼容微信支付
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836975/)
+## 澳大利亚和日本签署历史性防务条约
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1836976/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月6日，据中共媒体报道，随着数字人民币软件近期的升级，腾讯公司开始为其用户提供数字人民币服务，该公司旗下微信支付同步推出数字人民币钱包业务。
+撰稿：银河勇气星-骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-1.jpeg)
 
-据了解，经过前期多阶段的可控试点测试后，数字人民币将在中共北京冬奥会相关场景再次开展试点。此外，自 2018 年 2 月起，腾讯公司也深度参与了中共数字人民币的有关项目，当中包括设计、研发、运营等多个环节，为中共数字人民币项目落地提供全方位的支持。
 
-而分析人士则对此表示，中共数字人民币在推广前期将继续与腾讯和支付宝合作，用以培养民众使用数字人民币的习惯。其后，中共会在过渡期逐步限制，甚至禁止微信与支付宝支付，从而达到让墙内民众全部使用数字货币的目的，以便为其迅速收割，乃至监控全民财富的目标铺平道路。
+![This image has an empty alt attribute; its file name is %E6%96%B0-9.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
 
-参考链接： [腾讯接入数字人民币 微信支持数字人民币支付](https://finance.sina.com.cn/tech/2022-01-06/doc-ikyakumx8607664.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
+1月6日，澳大利亚与日本签署了一项历史性的国防防务条约，以应对中共在太平洋地区日益扩大的军事与经济威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image2.jpg)
+此条约旨在促进印度洋与太平洋之间的安全与稳定，并支持与增强澳大利亚国防军和日本自卫队之间更大，亦更复杂的可操作性，以建立牢固的国防伙伴关系，共同对抗中共可能对台湾进行的军事侵略。
+
+ 据悉，该条约也被称为互惠准入协议（RAA），是日本第二次签署此类协议。上一次类似协议签署是与美国，可追溯至1960年。日本还将寻求与英法两国签署类似条约，以应对日益膨胀的中共带来的危机，保障台海以致印太地区的安全。
+
+参考链接：[https://www.aljazeera.com/news/2022/1/6/australia-japan-sign-historic-defence-treaty-amid-chinas-rise](https://www.aljazeera.com/news/2022/1/6/australia-japan-sign-historic-defence-treaty-amid-chinas-rise)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
+
+总编：Ivy001
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校对/发稿：Daxia
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯，更多关注
+
+纽约香草山农场 GTV–香草山之声
+
+纽约香草山农场 GTV-MOS TALK 香草山访谈
+
+纽约香草山农场 Gettr
+
+纽约香草山农场 YouTube
+
+欢迎加入纽约香草山农场 Discord
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
 
 
  
