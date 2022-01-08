@@ -2,65 +2,32 @@
 ---
 
 
-## 我们的希望被劈成两半
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1836795/)
+## 美驻日大使称中共不是好邻居
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836984/)
 
-作者：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-**推荐语：铁拳下依然有正义的灵魂，不屈不挠与此搏斗，中共的重压断不了中国有良知人的脊梁骨。**
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月6日，据相关媒体报道，即将上任的美国驻日本大使易曼纽在接受日本媒体采访时直截了当地表示，中共不是日本的好邻居。
 
-**墙内一个正义作者的文章，来自朋友圈**：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpeg)
 
-我们的灵魂孤苦无依，
-我们的脚步虚浮，
-浪荡在这个寂寥又落寞的冬日。
-我们的世界黑暗又浑浊，
-牵坠着千丝万缕的神经。
-我们的希望被劈成两半：
-一半是果实绝收，一半是种子深埋。
+易曼纽解释道，美日两国拥有民主这一共同价值观，因此才能共同为亚太地区的发展做出贡献。同时，美日双方正在就发展共同的价值观迎来一个重要时期。
 
-我挥舞着鹤嘴锄，
-没日没夜地深挖大地。
-我一个人的能力实在有限，
-一整个冬天所挖掘出来的：
-不是高端人口所佩戴的黄金，
-而是低端人口所渴慕的煤炭。
-凛冬将至，我愈发焦灼……
+相反的，对于日益威胁地区安全的中共国，易曼纽也谈到了香港和南海局势的相关问题。易曼纽认为，中共既不是日本的好邻居，也不是有利于亚太地区发展的积极因素。
 
-大海啊，你为何哭泣？
-你拥有同天空一样广博的胸怀，
-却为何成了藏污纳垢的场所？
-你爱护每一条小鱼、每一棵水藻，
-却为何连自己的健康都保护不了？
-大海啊，你的每一处水域，
-都浮沉着上千年的垃圾……
-叮咚的山泉，魔域的尊享，
-下水道塞满了死尸，不再冒泡。
+参考链接：[美新任駐日大使批 中國不是好鄰居](https://cn.rti.org.tw/news/view/id/2121438)
 
-我坐在岩石之上，
-我与岩石融为一体，
-岩石是我的雕塑，我是岩石的雕像。
-像岩石一样裸露的灵魂，
-坚实，却不唐突，
-那上面有岁月侵蚀的痕迹，
-饱经风霜却让他更显年轻！
-颓废只是假象，
-永恒才是主题……
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
-
-**校对/发稿：童谣**
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

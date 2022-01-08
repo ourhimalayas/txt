@@ -2,34 +2,36 @@
 ---
 
 
-## 美驻日大使称中共不是好邻居
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836984/)
+## 哈萨克斯坦盗国贼：绝不与暴徒谈判 必须彻底消灭他们
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1837037/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月6日，据相关媒体报道，即将上任的美国驻日本大使易曼纽在接受日本媒体采访时直截了当地表示，中共不是日本的好邻居。
+撰稿—八木
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpeg)
+冰冻三尺非一日之寒，在盗国政党专政统治近30多年的哈萨克斯坦，经济形势恶化，极端的贫富差距加上严重的通货膨胀最终成了哈萨克斯坦民众走上街头的导火索。
+在短短不到8天的抗议行动中，已有近4000名哈萨克斯坦人被当局逮捕。
 
-易曼纽解释道，美日两国拥有民主这一共同价值观，因此才能共同为亚太地区的发展做出贡献。同时，美日双方正在就发展共同的价值观迎来一个重要时期。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/What12t-12.43.22-AM.jpeg)图源：法新社
 
-相反的，对于日益威胁地区安全的中共国，易曼纽也谈到了香港和南海局势的相关问题。易曼纽认为，中共既不是日本的好邻居，也不是有利于亚太地区发展的积极因素。
+**哈萨克斯坦总统将上街抗争的民众称为“暴徒”，并宣称绝不与暴徒谈判，必须彻底消灭他们。**
 
-参考链接：[美新任駐日大使批 中國不是好鄰居](https://cn.rti.org.tw/news/view/id/2121438)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/What22t-12.43.06-AM.jpeg)图片资料：托卡耶夫电视讲话
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+在7日电视直播讲话上，哈斯克斯坦总统托卡耶夫下令军警可以在不给予警告的情况下对上街抗议的民众开枪。对于民众的反政府抗议，哈萨克斯坦盗国集团使用跟中共同样的手段，先对全国进行“断网行动”，然后把民众定性为受“境外势力”蛊惑的“恐怖分子暴徒”，再动用军事力量对民众进行镇压。
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：谐趣园
+**当地时间8日凌晨，哈萨克斯坦总统托卡耶夫在Twitter上再次发文强调，“绝不会与恐怖分子谈判，暴徒必须被消灭”。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsAp119-at-12.43.13-AM.jpeg)图片资料：哈总统Twitter
+
+**看到哈萨克斯坦人民上街反抗盗国贼，中共与俄罗斯坐不住了。哪里有民众抗争暴政，哪里就有以中共和俄罗斯为首的黑手在幕后操弄，哪里就有被镇压屠杀的人民。**
+
+**中共上海合作组织理事会地区反恐机构（上合组织），向哈萨克斯坦盗国贼集团表示，愿意向哈萨克斯坦提供必要协助。**
+
+对于哈萨克斯坦民众上街反抗暴政的行动，中国共产党对其定性为“匪徒骚乱”。在中共“上合组织”发布的通告中，中共态度明确的支持哈萨克斯坦盗国集团对民众采取军事镇压的措施，对于民众所谓的“动乱”，中共表示相信哈国领导能在最短时间消除“恐怖分子”和“匪徒”的非法行为。同时，如果哈国领导发出请求，中共还将向哈国领导提供“协助”。
+
+俄罗斯军事部门也在7日发消息称，俄空军将运送亚美尼亚人员前往哈萨克斯坦进行所谓的“维和行动”。
+目前，俄已动用9架伊尔-76运输机搭载“集安组织”维稳部队抵达了哈萨克斯坦阿拉木图国际机场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
