@@ -2,26 +2,40 @@
 ---
 
 
-## 朝鲜拒绝参加北京冬奥会 中共不得不表示“理解”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1835075/)
+## 辉瑞实验数据显示，疫苗致1/5儿童严重发烧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835679/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-24.jpg)[图片来源](https://ucpnz.co.nz/2022/01/07/%E6%9C%9D%E9%B2%9C%E6%AD%A3%E5%BC%8F%E5%91%8A%E7%9F%A5%E7%BC%BA%E5%B8%AD2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E3%80%80%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E8%A1%A8%E6%80%81/)
-据朝中社1月7日报道，朝鲜奥委会和体育省向中共奥委会、北京2022年冬季奥运会及冬季残疾人奥运会组委会、中国国家体育总局致信函。
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据infowars 1月4日报道，辉瑞公司的试验数据显示，该公司mRNA疫苗导致五分之一的2-5岁儿童，出现严重发烧症状。
 
-信函称，朝鲜虽不能参加本届奥运会，但朝鲜将全方位支持和声援中国要举办一届隆重精彩的奥运盛会的一切事宜。信函表示，朝鲜坚信兄弟的中国人民和运动员将战胜一切妨碍活动和困难，成功举办北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-4.jpg)
 
-对于朝鲜这个小弟不参加冬奥会，中共内心恼怒，面上还得应付，因为一开骂就更加暴露自己的众叛亲离，只能表示感谢和理解！
+其研究人员亚历克斯·贝伦森在他的Substack上发表的，《关于新冠疫情未被报道的真相》一书中指出，辉瑞公司上个月，向投资者发布的令人担忧的数据表明，该公司正在弄清楚年轻人群的疫苗接种剂量。
 
-信息来源：
+辉瑞发现，无论接种了一针还是两针疫苗，接受10微克剂量的2-5岁儿童发烧症状，比其他受试儿童更普遍、更严重。
 
-[朝鲜：因全球疫情等原因无法参加北京冬奥会](https://news.sina.com.cn/c/2022-01-07/doc-ikyakumx8799639.shtml)
+值得注意的是，辉瑞没有在任何同行评议的期刊上发表过，任何有关对5岁以下儿童使用疫苗的安全性或有效性数据的文章。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+- [辉瑞的实验数据显示疫苗导致五分之一的儿童严重发烧](https://gnews.org/zh-hans/1824839/)
+- [Pfizer Trial Data Shows Jab Caused Severe Fever in 1 Out of 5 Children](https://www.infowars.com/posts/pfizer-trial-data-shows-jab-caused-severe-fever-in-1-out-of-5-children/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

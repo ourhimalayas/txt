@@ -2,29 +2,37 @@
 ---
 
 
-## 中共病毒奥米炕患者出现了非常奇怪的症状
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1835277/)
+## 美国医学协会谴责CDC新隔离指南
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1835804/)
 
-翻译/撰稿：GoergeC（乔治）
-校对：zzballack
-上传：无明逆流
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月5日，美国医学协会AMA指责美国疾病控制和预防中心，发布了“混乱的”和“适得其反的”新冠病毒检疫和隔离新指南。
 
-据《每日连线》 (The Daily Wire)1月5日报道，**夜间盗汗（night sweats）**是中共病毒奥米炕（Omicron）变种的“新的奇怪症状”。梅奥诊所(Mayo Clinic)对**夜间盗汗**的定义是“反复发作的极度出汗，可以浸湿你的衣服和床单。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/s112.jpg)IAN HOOTON/SCIENCE PHOTO LIBRARY/Getty Images
-**据《财富》（Fortune）杂志报道，夜间盗汗**通常与流感、焦虑甚至癌症等其他疾病有关。在奥米炕开始迅速蔓延到全球之前，出现夜间盗汗症状的新冠患者很少。**夜间盗汗**和喉咙痛看起来似乎是少数可以将奥米炕与其他新冠变种区别开来的明显症状。与德尔塔（Delta）变种和袭击美国的原始新冠病毒株不同的是，奥米炕似乎不会导致嗅觉和味觉的丧失。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-4.png)
 
-美国国家广播公司（NBC）新闻的高级医学记者约翰·托雷斯 (John Torres)博士在NBC的《今天秀》（Today Show）节目中表示，**夜间盗汗**是一种“非常奇怪的症状”。此外，英国国民医疗服务体系（NHS）的阿米尔·汗 (Amir Khan)博士也表示，**夜间盗汗**可以作为进行新冠检测的理由。
+该委员会主席杰拉尔德·哈蒙博士在一份声明中说，美国人民应该得到及时、准确和明确的指导。相反，CDC的新建议不仅令人困惑，而且加大了传播病毒的风险。隔离和检疫期从原先的10天缩短到5天，将增加数十万人在工作场所和学校受到感染的风险。
 
-最近的另一份报告称，奥米炕患者有一种新的症状。英国《镜报》（The Mirror）上周报道说：“（新冠不同变种）的一些症状相同或非常相似，例如干咳，但人们需要警惕一些可能看起来很不寻常的症状。例如：食欲不振。如果有些人没有症状，但有食欲不振的情况，这可能有助于确定是否感染了新冠病毒。”
+医生们认为目前需要进行更多的研究，以确定奥密克戎的严重程度和逃避免疫反应，以及疫苗的保护力，但这些建议可能进一步令卫生保健系统不堪重负。哈蒙博士同时敦促政府，尽一切能力加强检测盒的可用性。但测试盒的匮乏并不能成为缩短隔离期的理由。 虽然CDC强调更改指南的原因是研究表明，病毒传播一般在发病前1-2天和发病后2-3天。但评论人士指出，隔离期缩短为5天跟多个领域出现的人员短缺有关，社会运转的基本功能正面临着严重问题。
 
-《镜报》的文章中写道：“参与ZOE 新冠症状研究的科学家查看了研究数据中阳性病例记录的症状数据，并将其与去年10月初德尔塔流行时的症状纪录进行了比较。结论是，食欲不振是新冠患者经历的一个症状，这些患者要么已经确诊、要么可能感染了奥米炕病毒，这表明当人们感染奥米炕而不是德尔塔时，更有可能会出现食欲不振的情况。”
+参考链接：
 
-ZOE研究一直在使用智能手机APP跟踪参与者报告的新冠症状。根据在去年12月3日至12月10日期间在伦敦收集的数据，他们报告说，奥米炕变种的五大症状是流鼻涕、头痛、疲劳（轻度或严重）、打喷嚏和喉咙痛。
+- [CDC’s new COVID-19 isolation guidance called out by American Medical Association](https://www.foxnews.com/health/cdc-covid-isolation-guidance-called-out-american-medical-association)
 
-**评论：**爆料革命一再传播，中共所放的病毒是由中共实验室所造；中共病毒疫苗和中共病毒是毁灭人类的子母弹。另一方面，夜间盗汗预示着人体自身免疫系统出了严重的问题，通常与癌症联系在一起。中共病毒奥米炕变种会导致夜间盗汗，其隐蔽性和所造成的毒性可以印证文贵先生的判断，也就是病毒出自中共实验室。更重要的是，病毒和疫苗并将对人类的健康和人类所创造的文明造成双重灾难。对于有信仰的新中国联邦人来和全世界的灭共战友们来说，渡过大劫难的唯一方法就是，登上爆料革命和新中国联邦这一诺亚方舟！
 
-新闻来源：[Omicron Infections Are Showing ‘Very Strange Symptom’ According to New Report](https://www.dailywire.com/news/omicron-infections-are-showing-very-strange-symptom-report)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：文特
+编辑：Kathy文艺
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
