@@ -2,15 +2,33 @@
 ---
 
 
-## 为什么
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1832788/)
+## 有声|GTV新闻访谈简报|2022年1月4日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1833536/)
 
-东京樱花团/待命（文晓）
+配音：香草山教育部 – Rita七号小青蛙
 
-编辑：东京樱花团/待命（文晓）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-1-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月4日早](https://gnews.org/zh-hans/1822250/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
