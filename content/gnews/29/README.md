@@ -2,25 +2,36 @@
 ---
 
 
-## 加拿大BC省医疗系统因奥密克戎而不堪重负
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1834982/)
+## 哈萨克斯坦动乱的真正原因是什么？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1835025/)
 
-采编：文莱       翻译编辑：文所未闻
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-15-edited.jpg)图片来源：vancouversun
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/哈萨克斯坦动乱.jpeg)新闻来源：直新闻
 
 
-据加拿大《温哥华太阳报》1月6日报道，由于“奥密克戎”疫情的迅速蔓延所导致的住院治疗人数激增，以及大量医务人员因感染病毒而无法继续工作等原因，BC省的卫生保健系统目前已接近崩溃的边缘。
+编译：小红帽
 
-据悉，自今年新年伊始，BC省的疫情住院人数增加了44%，重症感染病例增加了14%。由于医务人员严重短缺，该省大部分的医生和护士都被要求放弃休假，并不得不连续加班工作。在如此不堪重负的情况下，该省的大量非紧急手术都因此被迫推迟进行。
+根据《国家利益》1月7日报道， 本周初，哈萨克斯坦西部的扎瑙岑镇爆发了大规模抗议活动，表面上看是由燃料价格的大幅上涨引发的。
 
-该省卫生部门对此表示，由于疫情仍然会因“奥密克戎”病毒的全面传播而进一步恶化，因此广大民众应该尽量呆在家中，并继续配戴口罩，以此缓解医疗系统目前所面临崩溃的巨大压力。
+哈萨克斯坦总统卡西姆·乔马尔特·托卡耶夫（Kassym-Jomart Tokayev）最初以安抚的方式做出回应，对燃料和其他商品实施临时价格管制，但抗议活动迅速升级为全国紧急状态。哈萨克斯坦各地的政府大楼和警察局遭到袭击和纵火，该国最大的机场被短暂接管。
 
-* * *
+据报道，至少有18名哈萨克斯坦安全人员被政府描述为外国训练的“恐怖团伙”杀害。抗议者的全部目的仍不确定。最近，扎瑙岑的几千名抗议者提出了被《华盛顿邮报》称为 “迄今为止最具体的要求清单”，包括将托卡耶夫赶下台，扩大对公民权利的保护，以及恢复被认为更加民主的1993年版哈萨克斯坦宪法。但是，目前还不清楚这些特定人群的要求是否可以被解读为整个抗议运动目标的准确代表。
 
-校对编辑，发稿：硫酸羟氯喹64
+据称，**哈萨克斯坦官员与中国相关人员合作，有效地封锁了所有互联网接入，以阻止抗议者组织起来。**北京当局是哈萨克斯坦能源行业的主要投资者，在整个抗议活动期间，北京发表声明，对托卡耶夫给予强烈的支持。
 
-原文链接： https://vancouversun.com/news/local-news/covid-19-staff-shortages-loom-in-hospitals-as-patient-numbers-rise-workers-fall-ill
+中国领导人习近平表示：“中国愿意向哈萨克斯坦提供必要的支持，帮助哈萨克斯坦渡过难关。无论遇到什么风险和挑战，中国都是哈萨克斯坦值得信赖的朋友和可靠的伙伴。”
+
+新闻来源：[What’s Really Behind the Unrest in Kazakhstan? | The National Interest](https://nationalinterest.org/feature/what%E2%80%99s-really-behind-unrest-kazakhstan-199243)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

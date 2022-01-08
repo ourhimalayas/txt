@@ -2,38 +2,77 @@
 ---
 
 
-## 乔·罗根帮助Gettr获得了一百万新用户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1834260/)
+## Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1834647/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=61d8f891dffab035958c1380](https://gtv.org/video/id=61d8f891dffab035958c1380)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/112375953_gettyimages-147972165.jpg)图片来源：www.bbc.com
-据《纽约邮报》一月七日报道，前川普顾问杰森·米勒的社交媒体Gettr在播客巨星乔·罗根加入的数天后，已有超过100万的新用户注册。
+**郭文贵
+Miles Guo**
 
-根据该公司与《邮报》独家分享的数据，Gettr是一个一直吸引保守派社交媒体用户的Twitter替代方案，罗根周日在该网站上发表第一个帖子后不到一周的时间里，Gettr的用户数在周五就突破了100万大关。发言人埃博尼·鲍登说，这使该网站的用户总数超过了400万。
+那么我们接下来怎么抓住这个机会呢，Hpay、Hcoin
+So how do we catch this opportunity next？like Hpay, Hcoin
 
-罗根仍然保留着一个Twitter账户，但他表示他加入Gettr是出于对审查制度的担忧，特别是Twitter在周日禁止了乔治亚州众议员马乔里·泰勒-格林(Marjorie Taylor-Greene)的账号，称她多次分享疫苗的错误信息。在禁言之前，格林在推特上说，”极高数量的冠状病毒疫苗死亡人数被忽视”，并呼吁食品和药物管理局不要批准冠状病毒疫苗。
+还有更重要的接下来我们一系列的产品出来，1月份Hpay就要上线了
+And more importantly, we will have a series of products coming out, and Hpay will be online in January
 
-“为了防止推特上的人变得更加愚蠢，我现在也在这里。欢呼吧！” 罗根在他的第一个Gettr帖子中写道。
+大卫兄这回的欧洲，文戈七雄今天没来，意大利，不管是任何一个人
+Brother David is in Europe this time, Wenge Qixiong is in Italy, he did not come today, no matter
 
-仅1月3日，这波注册潮中就达34.3万人，这是该网站自7月推出以来最大的单日注册人数。鲍登说，Gettr没有支付罗根加入该网站的费用。
+小鸟这你们千万记住，你们只能做到最好，你不能做到前几，一定要做到最好
+Little bird, you and everyone must remember that you can only do the best, you can’t be the top few, you must do the best
 
-在米勒未能吸引到唐纳德·川普之后，罗根的加入标志着Gettr急需的胜利，而川普在10月份表示，他计划推出自己的网站，名为TRUTH Social。 然而，到目前为止，TRUTH的开端并
+因为欧洲对我们太重要，而且接下来共产党在欧洲对我们的攻击就像对待日本一样
+Because Europe is too important to us, and the Communist Party will attack us in Europe just like it did in Japan
 
-不顺利。川普团队曾说，测试版将在11月上线，然后在2022年第一季度更广泛地发布。但正如Daily Dot报道的那样，该网站的多个基本测试版已经在网上泄露，黑客和记者能够获取川普自己的用户名。
+这基本上是美国、欧洲、日本这三地方，就是猛烈攻击的地方
+There are three places of the United States, Europe, and Japan, where they are going to attack fiercely
 
-TRUTH陷入困境使得Gettr吸引了众多可能成为TRUTH的用户。包括作家乔丹·彼得森、政治评论家戴夫·鲁宾和《纽约邮报》专栏作家卡罗尔·马科维茨和萨莱娜·齐托在内的其他保守派也在最近几周加入了该网站。
+要做好充足的心理准备，所以说兄弟姐妹，2022年会非常的精彩
+You must be fully psychologically prepared, so brothers and sisters, 2022 will be very exciting
 
-对于保守派来说，该网站的主要卖点是其较宽松的内容审核政策。Gettr说它允许所有关于政治和疫苗的观点，包括那些其他网站的事实核查员会标记为虚假的观点。然而，该网站不允许公开的白人至上主义，最近还禁止了白人民族主义 “联合右翼 “组织者尼克·富恩特斯(Nick Fuentes)。
+会有巨大的挑战，当然，就凭今年年末共产党给送来的大礼，老天给我们送来的大
+There will be huge challenges, of course, based on the great gifts the Communist Party gave us at the end of this year, the great gifts heaven gave us
 
-Gettr也在向海外扩张。截至周五，该公司表示，其在美国有220万用户，其次是巴西的50万用户，以及英国、德国和法国的大量用户。相比之下，Twitter在美国有大约7800万日活跃用户，在全球有2.06亿。
+2022年我们绝对又是一个巨大的收获年
+We will definitely be another great harvest year in 2022
 
-“米勒对《纽约邮报》说：“这些数字证明，社交媒体用户开始意识到硅谷高管日益严厉的审查制度，并渴望获得替代方案。我们欢迎来自各种意识形态和背景的人在我们的平台上自由表达自己。”
+不仅是充满了希望， 我相信更多的是收获
+Not only is it full of hope, I believe more is the harvest
 
-Gettr获得了郭文贵家族控制的投资基金的资金支持，郭文贵是2014年逃离中国的一名商人，与前川普顾问班农关系密切。据米勒称，该公司还有其他未透露姓名的支持者，截至9月，已经筹集了约7500万美元的资金。
+但是我们一定要心理准备着，收获之前你是要付出汗水的
+But we must be fully psychologically prepared, you have to sweat before the harvest
 
-**新闻来源：** [Joe Rogan helps Gettr amass a million new users (nypost.com)](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
+更重要的事情我们要坚持唯真不破，什么事情都别忘了
+For more important things, we must insist on being true, and don’t forget about everything
+
+只要能灭共和不灭共什么都不存在，这条你千万别忘了
+As long as it can take down the CCP and if don’t take down the CCP, nothing exists, don’t forget this one
+
+* * *
+
+Date: 01/04/2022
+原视频标题: Hpay等系列 欧洲国家一定要做的最好 并做好充足的心理准备
+Hpay and other series, European countries must do the best, and be fully psychologically prepared
+原视频日期：2022/01/01
+原视频链接:[https://gettr.com/post/plptk895f8](https://gettr.com/post/plptk895f8)
+任务编号：KC396(3407)
+视频时间段 : 0:00-1:30
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+1.标题：做的最好 改为 做得最好
+2.另外标题外文和中文，可以分开轮流显示，因为时间足够，这样字幕看起来比较清爽，可以参考天涯行的视频。当然这个不强求，要看标题页面布置是否整洁美观。特别是标题的布局和分句分行，不要看起来乱就好。
+3.中文字体大小要一样，有些行比较长，可以分2段显示。英文字幕显示英文的，中文的显示中文的，文字内容时间上不一定要同步，可以交叉
+4.非常的精彩 改为 非常地精彩
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
