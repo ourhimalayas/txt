@@ -2,29 +2,32 @@
 ---
 
 
-## CCP特色防疫西安病例社会面清零
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1837588/)
+## 加拿大联邦公共服务部长新冠病毒检测呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837659/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2022/01/010802.jpg)网络图片
-2021年12月中旬开始，陕西省西安市染疫人数突破1000人大关。为此，当地严格实行封城，全城1300万人口无法出门。截至1月8日，全市封城已进入第17天。居民的粮食物资都已见底，当地政府物资配送混乱。
+2022-01-08
 
-根据外媒报道，西安不仅全面封城，更采取“一人感染全栋带走”的“社会面清零”隔离政策。
+译评：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/death-abroad-20190726.jpg)加拿大公共服务和采购部长Filomena Tassi (图源CBC)
+根据CBC记者Dan Taekema于2022年1月6日的新闻报道：
 
-“社会面清零”到底是什么意思？1月4日下午16：43，中央电视台和《新华网》以相关报道详解了“社会面清零”。当地政府要求只要社区中有一人感染，社区所有居民都要被带到郊区隔离，这样该社区肯定不会再筛出确诊病例，这就达到了“社会面清零”。
+加拿大公共服务和采购部长塔西（Filomena Tassi）表示，她的新冠病毒检测呈阳性。
 
-这和我们正常人理解的病例清零完全不同。西安的病例清零不是把所有的病患治愈了，而是把确诊的人和可能被感染的人员全部转移离开本社区，这就叫病例清零了。至于那些被转移的人聚在一起是否可能再次交叉感染出现新的病例，那就不管了。
+她在周三晚上分享的一条推文，证实她感染了病毒。她写道：“我正在遵循公共卫生指南，隔离并继续在家工作。”
 
-报道同时也指出，西安的全面封城、“社会面清零”等防疫政策都引发了当民众对当地政府的愤怒和沮丧。
 
-有居民不顾封城禁令，在零下的气温游泳、走水路和骑自行车等方式逃离西安，只因为他们“付不起留下的代价”。
 
-这种惨无人道的防控手法，并不是第一次，最早在两年前的武汉已经上演过。CCP不把老百姓当人，人命不如草芥，这在中共国早已屡见不鲜，CCP所要的是自己的太平盛世，死几千万老百姓或更多能换来CCP的江山宝座稳固，那是绝不会犹豫就那样做的。
+> This morning I tested positive for COVID-19. I am following public health guidelines, isolating and continuing to work from home. A big thank you to all the health workers who are doing so much to support Canadians through this difficult time.
+> — Filomena Tassi (@FilomenaTassi) [January 5, 2022](https://twitter.com/FilomenaTassi/status/1478866610299547650?ref_src=twsrc%5Etfw)
 
-西安1300万人正在遭受的灾难不是病毒本身，而是邪恶的CCP人为制造的二次灾难，当然所谓新冠病毒也是CCP军方在武汉实验室制作并故意释放的。对于中共国的老百姓来讲，和所有这些灾难比较，更大的灾难是永远没有真相，即便死都不知道是因为什么死的。无论西安人还是西安以外的人，都不知道正在发生什么。唯一的区别是，正在挨饿的西安人知道自己快死了，而在西安之外的人还在疯狂刷抖音享受着新闻联播里的太平日子，根本不知道自己就将是下一个“西安人”。这才是最悲哀的！
 
-新闻参考链接：[一人感染全棟帶走！中國西安疫情嚴峻，「社會面清零」是什麼？](https://udn.com/news/story/7331/6016782?from=udn-catebreaknews_ch2)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
+据悉，塔西已接种三针疫苗。无数的事实证明疫苗是无效的，接种疫苗照样感染病毒，而且潜伏巨大的危机。温馨提示，保护自己和家人的健康，请远离病毒拒绝疫苗。
+
+来源链接：[CBC: Federal Public Services Minister Filomena Tassi tests positive for COVID-19](https://www.cbc.ca/amp/1.6305850)
+
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
