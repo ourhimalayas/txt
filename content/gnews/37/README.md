@@ -2,37 +2,37 @@
 ---
 
 
-## 1/9银河快讯:东京22政年初步预算约为7.8万亿日元；世博会投标延迟和材料成本上升
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1840120/)
+## 泰国将对加密货币交易征收15%资本获利税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-55.png)[图片来源](https://www3.nhk.or.jp/)
-**1.****东京22政年初步预算约为7.8万亿日元**
+作者：银河勇气星 骄子
 
-[据NHK 1月8日报道，东京都政府新财年（2022年）的初步预算预计将是有史以来最大的，比2021年，多出4000亿日元，约为7.8万亿日元，以支付确保医疗服务系统的费用，对抗中共病毒（新冠病毒covid-19）的重新出现。另一方面，税收收入预计将大幅增加至约5.63万亿日元，比2021年多出约5900亿日元。](https://www3.nhk.or.jp/news/html/20220108/k10013421831000.html?utm_int=news-politics_contents_list-items_001)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**2.****冲绳437名医护人员因感染扩散而无法工作**
+当地时间1月6日，据有关媒体消息显示，泰国财政部一位工作人员近日透露，泰国将对加密货币交易征收15%的资本税，同时，当地政府还要求交易员为政府加强对加密货币的监控做好准备。
 
-[据NHK 1月8日报道，冲绳县有437名卫生保健人员因感染了中共病毒（新冠病毒covid-19）或与感染者有密切接触而无法工作。8日新增112人，包括7名医生、70名护士和35名文员。该县的14家医疗机构已经报告说，他们正在限制一些服务，包括急诊和普通护理。](https://www3.nhk.or.jp/news/html/20220108/k10013421781000.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.06.08-PM.png)
 
-**3.****世博会的两个挑战：投标延迟和材料成本上升**
+数据显示，自2021年以来，加密货币交易市场的规模和价值持续大幅增长。对此，根据修订的《税收法》，泰国税务局计划加强对加密货币交易的监督，当中，政府要求投资者应在今年报税时确定其加密货币的收入，从而避免因漏税被处罚。
 
-[据产经新闻1月8日报道，在定于2025年4月举行的大阪-关西博览会开幕之前，出现了两个令人担忧的问题。 疫情阻碍了国外展馆的加入，而材料价格的飙升可能导致建造设施的成本大幅增加。 因此，如果世博会的开幕被推迟或规模缩小，高达2万亿日元的经济影响可能无法实现。日本政府设定的目标是来自150个国家的25个国际组织，但到目前为止，只有72个国家和6个组织宣布他们的参展意向。 另一方面，建造场馆所需的木材、钢材和其他材料的价格飙升也是一个问题。 最初，政府估计建造该场馆的成本约为1250亿日元，但随着场馆设计的改变，这一数字被提高到1850亿日元。](https://news.yahoo.co.jp/articles/3a9ae39c55484632efd02a65e3c3c793c64b59cb)
+据悉，泰国现阶段征税的对象面向各大加密货币交易所，散户投资者或采矿运营商尚且不在征税之列。
 
-**4.日美在“2+2”文件中增加基地的联合使用**
+參考鏈結：[Thailand’s Crypto Traders to Be Subject to 15% Capital Gains Tax: Report](https://www.coindesk.com/policy/2022/01/06/thailands-crypto-traders-to-be-subject-to-15-capital-gains-tax-report/)
 
-[琉球新报1月8日报道，日本和美国政府举行了外交和国防部长（2加2）的电话会议。 在一份联合声明中，他们同意“加强自卫队在西南群岛的态势，增加对日美设施的联合使用。”自卫队将在今年年底前部署到石垣岛，联合使用该县的基地可能意味着美军和自卫队的联合行动，包括制定联合行动以预期台湾的突发事件。](https://news.yahoo.co.jp/articles/5a727ac25a1ca491f085e1616a13b22eed82fe0d)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-**5.****中共国海警船2021年在钓鱼岛附近积极靠近日本渔船**
+编辑：Kathy文艺
+总编：文特 
+校正/发稿：我不在这里
 
-[据共同社1月8日报道，驶入钓鱼岛附近的中共国海警局舰船2021年共有29天靠近日本渔船，增至上年的约2倍；中共国渔船累计超过40艘，增至近3倍。中共国2021年2月起施行允许海警使用武器的《海警法》。日本政府对海警活动趋于活跃提高了警惕。中方在上月20日的“日中海洋事务高级别磋商”中，要求日方管控日本渔船，威胁说不然中方也会派出渔船。在磋商当天和翌日，海警船也驶入了日本领海，试图接近捕捞马鲛鱼等的冲绳县宫古岛的渔船。](https://tchina.kyodonews.net/news/2022/01/b65852d44725-2021.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**6.****商业空气净化器 的生产因办公室聚会的增加而得到推动**
-
-[据NHK 1月8日报道，松下公司从上个月开始销售一种摊位式通风系统，它可以安装在办公室和商店的商务会议空间。该系统产生一股从天花板到地面的向下气流，以防止人们的空气颗粒漂浮，而连接在该系统一侧的净化器则将空气吸入并进行循环。根据该行业协会的数据，家用空气净化器的出货量在上一财年达到了历史新高，但随着越来越多的人聚集在办公室周围，商业用途的需求也可能会增加。](https://www3.nhk.or.jp/news/html/20220108/k10013421371000.html?utm_int=news-business_contents_news-main_002)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

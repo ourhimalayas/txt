@@ -2,37 +2,36 @@
 ---
 
 
-## WHO呼吁公众加紧预防奥密克戎变种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840145/)
+## DC每日热点0109
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1840192/)
 
-作者：纽约香草山教育部 Naughty(文行)
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FD0B3AF3-1286-4376-A58C-819E74E2E5A1-scaled.jpeg)
+道琼斯指数 36231.66 ▼0.01%
+纳斯达克指数 14935.90 ▼0.96%
+WTI纽约原油CFD 78.916 ▼0.68%
+布伦特原油CFD 81.879 ▼0.14%
+标普50指数 2,905.59 ▼45.05%
+美元兑人民币 1USD=6.378 RMB
+美元兑港币 1USD=7.800 HKD
+国际黄金 1796.55美元/盎司
+全球CCP病毒感染人数 306,248,675例
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-1月6日，据媒体新闻报道，世界卫生组织WHO当天发表声明表示，随着中共病毒奥密克戎变种席卷全球，上周世界新增的中共病毒确诊病例创下了历史新高，达到950万例。但WHO明确指出，由于新年假期前后的病毒核酸测试结果被积压，全球的实际感染人数很可能更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.11.22-PM.png)
-对此，WHO的负责人警告称，虽然奥密克戎的感染症状似乎不如德尔塔严重，且每周记录的感染死亡人数有所下降，但这并不意味着奥密克戎对人体健康安全的影响较轻。该负责人强调，奥密克戎正在使越来越多的感染者住院，甚至导致部分患者的死亡。
-
-此外，该负责人在定期新闻发布会上预警道，随着中共病毒新增病例的迅速增长，各国的医疗系统将不堪重负，而全球的医务人员也将面临短缺的困境。
-
-为此，该组织官员呼吁，公众应加紧采取措施抗击奥密克戎疫情，民众需尽可能保持室内通风、维持社交距离以及配戴口罩。
-
-參考鏈結：[Record weekly increase in COVID-19 cases but fewer deaths, WHO reports](https://www.foxnews.com/health/record-weekly-increase-in-covid-19-cases-fewer-deaths-who?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-编辑：Kathy文艺
-总编：飞虹
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、天津报告两例本土奥密克戎病例后启动1400万人的全员核酸检测
+2、美国准备同俄罗斯讨论限制乌克兰军演和导弹部署的可能性
+3、摩洛哥部署首套中共国防空装置
+4、 遭中共国拒收的两万瓶立陶宛兰姆酒12日后抵达台湾
+5、加拿大总理特鲁多任命对华鹰派人物-原国防部副部长茱蒂·托马斯 担任国家最高安全顾问
+6、美国会议员就爱彼迎新疆业务和赞助北京冬奥会提出质疑
+7、塞浦路斯发现结合Delta和Omicron变体新毒株
+8、纽约州长霍楚1月7日宣布，将强制要求纽约州 的医疗保健人员接种COVID-19 疫苗加强针
+9、中共国主管海峡两岸事务的一位高官：中共二十大将提出对台工作新决策部署、新主张
+10、美国太空望远镜成功打开“金眼”，望远镜顺利全部张开，计划今年夏天开始太空探测
+11、台湾投票无党籍立委罢昶未及门槛报失败，台中市第2选区立委补选：民进党人胜选
+12、马克龙在接受巴黎人报读者互动栏目采访时说真想“折腾”法国不打疫苗的人。全国10多万人上街示威以牙还牙，抗议马克龙“折腾”他们
+13、鉴于哈萨克斯坦持续处于紧急状态，美国国务院1月7日发表声明说，已批准驻哈萨克阿拉木图市总领事馆的非紧急事务美国政府雇员自愿离境
+14、英国新增313人染疫病故 累计不治突破15万
+15、中共逼藏民僧侣观看拆佛像 被指比塔利班更恶
 
  
 

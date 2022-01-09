@@ -2,37 +2,37 @@
 ---
 
 
-## 泰国将对加密货币交易征收15%资本获利税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840135/)
+## 有声|朝鲜致函称因疫情无法参加北京冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1840190/)
 
-作者：银河勇气星 骄子
+配音：香草山佛教部 – 李傻
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当地时间1月6日，据有关媒体消息显示，泰国财政部一位工作人员近日透露，泰国将对加密货币交易征收15%的资本税，同时，当地政府还要求交易员为政府加强对加密货币的监控做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月7日，朝鲜奥委会致函中共国奥委会及冬奥组委会，称朝鲜将不参加北京冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.06.08-PM.png)
+朝鲜在信函中，一方面指责了美国及其盟国，试图阻碍冬奥会顺利举办。另一方面却借全球新一轮疫情非常严重为由，同样拒绝参加本届冬奥会。
 
-数据显示，自2021年以来，加密货币交易市场的规模和价值持续大幅增长。对此，根据修订的《税收法》，泰国税务局计划加强对加密货币交易的监督，当中，政府要求投资者应在今年报税时确定其加密货币的收入，从而避免因漏税被处罚。
+时评人士指出，早在2021年9月初，国际奥委会IOC就因为朝鲜拒绝参加东京夏季奥运会，而决定暂停朝鲜奥委会的成员资格至2022年底，使朝鲜无法以国家队选手的资格参加北京冬奥会，但IOC并未否决朝鲜选手以个人身份参加北京冬奥会的可能性。此时这封信函不仅显得多余，更有“伤口上撒盐”之嫌。
 
-据悉，泰国现阶段征税的对象面向各大加密货币交易所，散户投资者或采矿运营商尚且不在征税之列。
+文字版原文：[朝鲜致函称因疫情无法参加北京冬奥会](https://gnews.org/zh-hans/1835807/)
 
-參考鏈結：[Thailand’s Crypto Traders to Be Subject to 15% Capital Gains Tax: Report](https://www.coindesk.com/policy/2022/01/06/thailands-crypto-traders-to-be-subject-to-15-capital-gains-tax-report/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-编辑：Kathy文艺
-总编：文特 
-校正/发稿：我不在这里
-
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

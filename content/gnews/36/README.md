@@ -2,35 +2,27 @@
 ---
 
 
-## 中共房地产的崩塌会推进人类文明再次飞跃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840130/)
+## WHO呼吁公众加紧预防奥密克戎变种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840145/)
 
-作者：银河勇气星 骄子
+作者：纽约香草山教育部 Naughty(文行)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月7日，郭文贵先生在直播中指出，中共即将崩塌的房地产金融将会重塑人类文明。
+1月6日，据媒体新闻报道，世界卫生组织WHO当天发表声明表示，随着中共病毒奥密克戎变种席卷全球，上周世界新增的中共病毒确诊病例创下了历史新高，达到950万例。但WHO明确指出，由于新年假期前后的病毒核酸测试结果被积压，全球的实际感染人数很可能更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.11.22-PM.png)
+对此，WHO的负责人警告称，虽然奥密克戎的感染症状似乎不如德尔塔严重，且每周记录的感染死亡人数有所下降，但这并不意味着奥密克戎对人体健康安全的影响较轻。该负责人强调，奥密克戎正在使越来越多的感染者住院，甚至导致部分患者的死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-10.37.40-PM.png)
+此外，该负责人在定期新闻发布会上预警道，随着中共病毒新增病例的迅速增长，各国的医疗系统将不堪重负，而全球的医务人员也将面临短缺的困境。
 
-郭先生解释，目前，中共利用房地产金融的债务问题做绑架，导致全球金融市场进退两难。长此以往，其势必会给西方国家，乃至全世界的经济带来巨大的打击。
+为此，该组织官员呼吁，公众应加紧采取措施抗击奥密克戎疫情，民众需尽可能保持室内通风、维持社交距离以及配戴口罩。
 
-郭先生补充道，人类即将经历有史以来最严重的全球经济危机，而中共也会随着这次大劫难而走向灭亡。但郭先生认为，经历了疫苗灾难和金融危机后，全球经济会进入一个前所未有的加速反弹期。届时，人类社会，包括政治、经济，金融、资源等各个方面都会进行史无前例的重新大洗牌。同一时间，太空、新技术、5G、AI、数字货币也将会给人类带来财富的大爆发。
-
-郭先生表示，出乎中共意料的是，它用债务绑架全球经济并用房地产制造的金融危机竟然能够推动人类产生空前绝后的经济大反弹和文明大进步。
-
-郭先生戏称，中共之死的最大贡献，就是其骨灰变成了人类文明的肥料。
-
-參考鏈結：
-
-1. [2022年1月7日 文贵大直播：（3）香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
-2. [语音版：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](https://gnews.org/zh-hans/1836697/)
-
+參考鏈結：[Record weekly increase in COVID-19 cases but fewer deaths, WHO reports](https://www.foxnews.com/health/record-weekly-increase-in-covid-19-cases-fewer-deaths-who?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：文真 
-总编：飞虹 
+编辑：Kathy文艺
+总编：飞虹
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
