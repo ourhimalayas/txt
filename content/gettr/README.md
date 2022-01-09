@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 1:02 AM (UTC)`
+
+一位心脏病学家说50%的顶尖运动员接种中共病毒疫苗后罹患无症状心肌炎, 可能导致因为无症状心肌炎诱发的心脏骤停猝死案例。<br/><br/>A pediatrician says 50% elite athletes have asymptomatic myocarditis after CCP virus vaccination, and it might cause sudden death due to cardiac arrest caused by asymptomatic myocarditis.<br/>
+![img](https://media.gettr.com/group4/getter/2022/01/09/01/b2c1466f-cbaa-5fa3-19ec-f49f0124f19b/out.jpg)
+
+---
+
 `@miles 1/9/2022 12:52 AM (UTC)`
 
 1/07/2022 Miles Guo: The intelligence and truths delivered by the New Federal State of China have gone far beyond than what the intelligence networks of various countries and the mainstream media have done thanks to the efforts made by the hero fellow fighters in Communist China; I was the first to say that Chen Quanguo didn’t get demoted but was instead going to be promoted; the Communist Youth League faction has come back, and Chen Quanguo and Hu Chunhua are the “killer weapons” of Xi Jinping<br/><br/>1/07/2022 文贵直播：新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出；文贵最早说出陈全国不降反升；共青团派已回归，陈全国和胡春华是杀器<br/>
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1月7日: 雪中G翻身……G Fashion视频🔥🔥🔥🔥🔥🔥🔥🥰🥰🎊🎊❄️❄️🎉🎉
 ![img](https://media.gettr.com/group15/getter/2022/01/07/20/1dd3e0fd-cba8-5ef3-1568-aab92284836f/out.jpg)
-
----
-
-`@miles 1/7/2022 7:06 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥11
-![img](https://media.gettr.com/group31/getter/2022/01/07/19/c754dfc0-d927-8316-d3a2-f10775ae9609/9f348bff4636424e105759fb0ef18c73.jpg)
 
 ---
 

@@ -15,83 +15,83 @@
 
 ---
 
-### [麦克-诺尔斯得了中共病毒后的感想（一）](/content/gnews/1/README.md)
+### [麦克-诺尔斯得了中共病毒后的感想（二）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国12月招聘人数减少，经济上仅增加199,000个新工作岗位](/content/gnews/2/README.md)
+### [麦克-诺尔斯得了中共病毒后的感想（一）](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国12月招聘人数减少，经济上仅增加199,000个新工作岗位](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西安宣布抗疫胜利后警方开始对疫情真相发布者大抓捕](/content/gnews/3/README.md)
+### [中共的 “文化自信”实为“党文化自信”](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [西安宣布抗疫胜利后警方开始对疫情真相发布者大抓捕](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议院委员会为举报人启动 COVID-19起源调查](/content/gnews/4/README.md)
+### [众议院委员会为举报人启动 COVID-19起源调查](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】纳扎尔巴耶夫在哪?](/content/gnews/5/README.md)
+### [【秘翻在线】纳扎尔巴耶夫在哪?](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国想要禁声的科学家 （二）](/content/gnews/6/README.md)
+### [中共国想要禁声的科学家 （二）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [追求喜马拉雅，走向正道主义](/content/gnews/7/README.md)
+### [追求喜马拉雅，走向正道主义](/content/gnews/9/README.md)
  ` YALUN 亚伦`
 
-### [巴西总统反对儿童接种中共病毒疫苗](/content/gnews/8/README.md)
+### [巴西总统反对儿童接种中共病毒疫苗](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [雅典娜时报-第168期](/content/gnews/9/README.md)
+### [雅典娜时报-第168期](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [冲浪世界冠军谈“洗脑”，质疑中共病毒疫苗的有效性](/content/gnews/10/README.md)
+### [冲浪世界冠军谈“洗脑”，质疑中共病毒疫苗的有效性](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [罗恩·德桑蒂斯：疫苗护照创造了一个两个阶层的社会](/content/gnews/11/README.md)
+### [罗恩·德桑蒂斯：疫苗护照创造了一个两个阶层的社会](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工](/content/gnews/12/README.md)
+### [没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [第203期玫瑰看新闻-国际热点新闻](/content/gnews/13/README.md)
+### [第203期玫瑰看新闻-国际热点新闻](/content/gnews/15/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [强制疫苗违背医生的教育和信仰](/content/gnews/14/README.md)
+### [强制疫苗违背医生的教育和信仰](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [德克萨斯州的国民警卫队成员拒绝接种疫苗](/content/gnews/15/README.md)
+### [德克萨斯州的国民警卫队成员拒绝接种疫苗](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳大利亚男子因抗议COVID新冠-疫苗护照而自焚](/content/gnews/16/README.md)
+### [澳大利亚男子因抗议COVID新冠-疫苗护照而自焚](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G时新闻】以色列出现首例新型混合病毒Flurona](/content/gnews/17/README.md)
+### [【G时新闻】以色列出现首例新型混合病毒Flurona](/content/gnews/19/README.md)
  ` G-时新闻`
 
-### [【G时新闻】美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员](/content/gnews/18/README.md)
+### [【G时新闻】美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员](/content/gnews/20/README.md)
  ` G-时新闻`
 
-### [中共按计划释放了新冠病毒新毒株奥密克戎](/content/gnews/19/README.md)
+### [中共按计划释放了新冠病毒新毒株奥密克戎](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《华盛顿邮报》阻止拜登的疫苗强制将是最高法院给特朗普的礼物](/content/gnews/20/README.md)
+### [《华盛顿邮报》阻止拜登的疫苗强制将是最高法院给特朗普的礼物](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [病毒不可怕，防范意识很重要](/content/gnews/21/README.md)
- ` 澳喜农场`
-
-### [2022-1-4 班农：北京冬奥是种族灭绝游戏，是一种耻辱，我们什么时候报道西安人民的生活？](/content/gnews/22/README.md)
+### [2022-1-4 班农：北京冬奥是种族灭绝游戏，是一种耻辱，我们什么时候报道西安人民的生活？](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共公布了“接管”拉丁美洲的计划](/content/gnews/23/README.md)
+### [中共公布了“接管”拉丁美洲的计划](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [德桑蒂斯（DeSantis）：我将投资微芯片和半导体制造，因此中共“无法控制我们的供应链”](/content/gnews/24/README.md)
+### [德桑蒂斯（DeSantis）：我将投资微芯片和半导体制造，因此中共“无法控制我们的供应链”](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021-12-23 Stew Peters Show 在成年人接种疫苗后的18周以内，他们的0-14周岁的孩子的死亡风险也增加了](/content/gnews/25/README.md)
+### [2021-12-23 Stew Peters Show 在成年人接种疫苗后的18周以内，他们的0-14周岁的孩子的死亡风险也增加了](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [加拿大联邦公共服务部长新冠病毒检测呈阳性](/content/gnews/26/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [乌克兰和台湾的双头之争](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
