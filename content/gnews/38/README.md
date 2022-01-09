@@ -2,27 +2,24 @@
 ---
 
 
-## 到底啥情况？近1387万人口的天津市开始大规模核酸检测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1838980/)
+## 北卡罗来纳州众多校车司机感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839007/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-12.png)（图片源自本文链接）
-日本雅虎网站1月9日消息：据彭博社报道，１月9日中共国首次报告了在天津市发生社区感染中共病毒（新冠病毒Covid-19）变异菌奥密克戎的病例，该市已开始大规模测试。
+#### 撰稿：彩虹
 
-中共中央电视台（CCTV）在同一天报道说，在完成当地的基因组分析后，中国疾病预防控制中心（CDC）确认天津的两个病例为奥密克戎毒株感染。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-14.jpg)图片来源：雅虎
+1月8日，《国会山报》报道，由于几十名校车巴士司机感染了中共病毒（COVID-19），两所高中的学生将至少两周无法乘坐校车上学。
 
-两名感染者之一是一名儿童，两人在过去两周都没有离开过天津。该市已于１月8日晚发布这一消息。
+据北卡罗来纳州格林斯博罗的《新闻与记录》报道，吉尔福德县（Guilford County）学校说，76名校车司机在中共病毒检测呈阳性后暂时失去了工作，导致该学区人员严重短缺。学区总监莎朗·康特雷拉斯（Sharon Contreras）告诉新闻媒体，如果学生出示学生证，他们可以免费乘坐城市巴士。
 
-据中共新华社报道，天津市已宣布将于9日上午7点（格林尼治时间上午8点）开始大规模核查，以有效避免奥密克戎菌株的进一步扩散。
+周五，吉尔福德县的学区首次推迟了公交车的乘坐时间，当天中学上学时间推迟一小时，高中和早期大学（Early College）上学时间推迟一个半小时。
 
-众所周知，想知道中共国的真实数字有多难！天津是直辖市，是各大都市，2020年的第七次人口普查中，天津市的人口为13866009人。既然有必要全市做核酸检测，实际感染状况只能靠大家自己去想象了。
+报道说，为了在最新一波中共病毒肆虐中吸引和留住巴士司机，吉尔福德县已将司机的基本底薪提高到每小时15美元，并为全勤的司机提供每月1000美元的奖励。
 
-信息来源：[中国で初のオミクロン株市中感染報告、天津市で大規模検査開始－報道（Bloomberg） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/936d4d4bd85bb00554aff37e336b7ff3b22247fc)
+**新闻来源**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+[North Carolina high schools suspend bus service after too many drivers test positive for COVID-19](https://thehill.com/policy/transportation/588879-north-carolina-high-schools-suspend-bus-service-after-too-many-drivers)
 
  
 

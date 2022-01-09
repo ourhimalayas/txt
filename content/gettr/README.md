@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 12:00 PM (UTC)`
+
+A vaccine developer is not fully confident about what's happened over the last 18 months. Some very new technologies such as mRNA vaccines are in their infancy. These are the COVID-19 vaccines that you are forced to vaccinate in order to remain in employment. His personal perspective is first no harm and second the principles of informed consent.<br/><br/>一位疫苗开发者对过去18个月发生的事情没有充分的信心。一些诸如mRNA疫苗的新技术还在萌芽阶段。这就是你们为了保住自己的工作被强制接种的新冠疫苗。他的个人观点是：首先疫苗接种无害，其次遵守知情同意的原则。
+![img](https://media.gettr.com/group1/origin/2022/01/09/12/7dc76986-eb43-42c5-58e0-f2a6c99dc1f9/out.jpg)
+
+---
+
 `@miles 1/9/2022 1:42 AM (UTC)`
 
 mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、大政府、大媒体是如何通过压制信息，使人们无法对疫苗的真实情况进行了解，进而无法做出准确判断的<br/><br/>Dr. Malone, co-inventor of the mRNA vaccines, talks about how big tech, big pharma, big government, and big media are suppressing information so that people cannot get a true picture of the vaccine and thus cannot make accurate judgments
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: Countries that implement vaccine mandate are controlled by a political party that controls the government and legislature and uses the same trick to push COVID vaccines that all the vaccine manufacturers are not responsible for; taking preventative measures is more important than the antidote; the vaccine mandate is bound to fail given the public opinions in the United States!<br/><br/>1/07/2022 文贵直播：推行强制疫苗政策的国家都是由一个政党控制了政府和立法机构，用同一套路推疫苗，所有疫苗厂商都不负责；防范比解药更重要；民意决定了强制疫苗在美国行不通！<br/>
 ![img](https://media.gettr.com/group32/getter/2022/01/07/23/8d0c88c0-6902-fcb3-d564-52ceff545e77/out.jpg)
-
----
-
-`@miles 1/7/2022 11:29 PM (UTC)`
-
-1/07/2022 Miles Guo: The Omicron is extremely infectious, so you can’t be too careful about it! The COVID vaccines are more horrible than the CCP virus! The mRNA in the COVID vaccine is technically the spike protein, which can make it easier for people to catch the virus<br/><br/>1/07/2022 文贵直播：奥米炕病毒传染性极强，请大家千万不能掉以轻心！疫苗比病毒还可怕！疫苗中的mRNA就相当于刺突蛋白，它能让人更容易染毒<br/>
-![img](https://media.gettr.com/group46/getter/2022/01/07/23/55461b65-b221-25ed-0aae-099c03d9ca2b/out.jpg)
 
 ---
 
