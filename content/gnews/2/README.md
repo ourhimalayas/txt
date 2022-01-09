@@ -2,29 +2,30 @@
 ---
 
 
-## “一刀切”的西安封城
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1838528/)
+## 科兴疫苗半年海捞百亿美元 同比暴增162倍
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838586/)
 
-撰稿：菜园子112～尕虎
-![](https://assets.gnews.org/wp-content/uploads/2022/01/902.jpg)图片来自网络
-西安封城，引起全国民众关注，城内的大小事件也不断地上热搜，几乎成为众矢之的。因为开启“极限生存模式”，无论何事都是“非常事”。但这既非因为政府不作为，也不是因为民众太刁钻，而是这种社会危机处理方式，本身就蕴含着巨大的潜在风险。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾媒体1月8日报道，中共科兴生物公司近期披露的财务报表显示，2021年上半年该公司收入高达110亿美元，比2020年同期暴增162倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/29c56895229f879b5d6cdd908eeb3aa3_1200x1200@1200x1200.jpeg)
+据悉，科兴生物已经向全球供应了25亿剂中共病毒疫苗，在毒害全球人民的同时，又赚得了天文数字的不义之财。
 
-西安城内最突出的事情还是吃饭问题。热搜上出现的偷菜游戏、击鼓传菜、以及英雄之菜。其实都是“民以食为天”的曲折反映。人需要为觅食而苦恼，这种日子仿佛已经距离人类很远，但谁能想到，瞬间就可以在一个现代化大都市重演。
+不过，墙内网友发现，科兴的第一大股东竟然隶属日本软银，持股达15.07%。这一发现令不少网民感到崩溃。
 
-但这并非西安的食粮匮乏，而是由于最严厉的封城令下，城市市场供应体系被暂时冻结所致。市民的日常供给回归到计划经济时代的配给制，由街道社区分发食物，这种配给制的缺点马上就暴露出来。
+参考链接：[中國全網崩潰！科興靠疫苗半年海撈千億 最大股東卻是軟銀](https://ec.ltn.com.tw/article/breakingnews/3793958)
 
-缺乏市场的自主调控，导致供给与需求之间无法有效匹配，效率低、速度慢，菜品供给虽然丰富，但是每家每户分到手的不是自己最需要的，很多家庭只好用原始的以物易物方式解决。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-西安封城三四天后就出现了食物的绝对性短缺和结构性短缺，这绝对不是偶然，而是计划经济的天然缺陷。现在很多人认为市场经济是万恶之源，至少有五成的老百姓有这种观念。西安封城这一堂课再次告诉我们，如果消灭市场，只会导致生产力急剧滑坡，物资供应匮乏，即便是精确的大数据运算也不能解决这个问题。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-以往的历史也告诉我们，一个社会突然取消商品交易，而计划配给制度尚没有完善起来的时候，几乎无一例外会发生大面积饥荒，苏俄“战时共产主义时期”和1970年代的柬埔寨都发生过这种惨剧。
-
-中共国60年代的计划经济饿死了将近上亿人，血淋淋的教训才过去多长时间，人们就忘记吗？
-
-参考链接：[联合新闻网](https://udn.com/news/story/7331/6016782?from=udn-catebreaknews_ch2)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
