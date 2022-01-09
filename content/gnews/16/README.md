@@ -2,23 +2,46 @@
 ---
 
 
-## 雅典娜时报-第168期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1837943/)
+## 中共国想要禁声的科学家 （二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1837973/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+翻译：文羽
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![img](https://media.gettr.com/group39/origin/2022/01/08/22/4898c76a-d62f-f1ff-7311-55ffde53af80/17050adf921edbe65168b71242351fdf.png)![img](https://media.gettr.com/group39/origin/2022/01/08/22/339b61bf-9731-ad42-8ce9-323377532ff0/c0c8fe4d9cd93f9811f13d8bc943b606.png)
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-08-205156.jpg)图片来源: elcomercio.es
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+铜矿中的病原体
 
+为什么花了这么长时间才认出来？一种解释是，他们不想透露这些病毒的起源：距离武汉 1,500 公里的一个铜矿。 2012 年，被派往那里采集蝙蝠鸟粪样本的 6 名员工因咳嗽、发烧、头痛和胸痛、呼吸急促等症状入院，其中 3 人死于神秘的肺部疾病。
+
+另一方面，实验室发生事故、泄漏的情况并不少见。事实上，SARS-1 已经至少六次逃离实验室。那么中共国实验室是大流行的源头吗？
+
+陈博士不知道，也没人知道。美国情报部门认为，很可能永远无法确定 SARS-CoV-2 的确切来源。从动物到人类的传播是一个合理的假设，但从实验室逃脱也是如此。世界卫生组织也持同样观点。其总干事谭德塞（Tedros Adhanom） 保证“必须适当研究关于实验室的假设”。相当的改变。
+
+武汉实验室花了几个月的时间才意识到它收集了蝙蝠病毒。与SARS-COV-2最相似的那个也发生了奇怪而莫名其妙的更名。
+
+世卫组织 1 月份在中共国进行的初步研究因无法进入武汉实验室以及包括彼得·达扎克（Peter Daszak）而受到广泛批评- 个人与武汉研究所有很强的雇佣关系。
+
+这里有必要谈谈生态健康联盟的负责人达扎克。他的工作使他为他的组织筹集了数百万美元的奖学金。
+
+- 由美国政府等机构授予 – 专注于从自然界收集动物病毒，用于实验室研究（和修改）。他们相信这样的工作可以让人类做好应对流行病的准备。 达扎克不会有兴趣让他的工作被证明已经引起了大流行。
+
+
+难以理解的疏忽
+
+陈博士和雷德利在他们的书中详细介绍了更多奇怪的情节。 2020 年 2 月，当武汉研究所发表对该病毒的描述时，它省略了其最显着的特征之一：弗林蛋白酶裂解点；一个小的基因序列，使它更容易在人与人之间传播，而在其他冠状病毒中不存在。不可能知道是否有人把它放在那里，因为它也可以自然产生。但陈博士发现令人不安的是，科学家们没有提到这个基本且极其不寻常的特征。 “这就像描述一只独角兽而不提及它的角。”
+
+这不是唯一不清楚的方面，还有其他的。例如，最早注意到病原体的中共国医生被迫保持沉默；武汉研究所病毒库中与 SARS-CoV-2 最相似的蝙蝠病毒经历了奇怪的名称更改；禁止记者靠近铜矿；就连武汉的一位顶尖研究人员也认识到，一旦发现冠状病毒，第一个想法就是：它会不会是从我的实验室里出来的？
+
+陈博士的调查在中共国并没有被忽视。 “一种不雅的行为，再加上完全缺乏科学道德，”中共官方报纸《环球时报》指责道。
+
+新闻来源: [elcomercio.es] [LA CIENTÍFICA QUE CHINA QUIERE SILENCIAR](https://www.elcomercio.es/xlsemanal/ciencia/coronavirus-origen-china-laboratorio-wuhan-investigacion-alina-chan-cientifica.html?ref=https://www.google.com/)
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
