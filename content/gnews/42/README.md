@@ -2,28 +2,42 @@
 ---
 
 
-## 震惊！从未有过的强制措施半年内或在日本开始
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1839011/)
+## 美飞行员接种疫苗后严重胸痛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839226/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-6.png)（图片源自本文链接）
-1月9日时事通信社报道消息：9日，日本首相岸田文雄出现在富士电视台的直播节目中，宣布他不会向17日召开的普通国会会议提交用于防控共病毒(新冠病毒Covid-19)的《传染病法》的修正案。
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+据当地媒体1月6日报道，美国飞行员格雷格.皮尔森日前接受采访时透露，他在接种中共病毒疫苗后出现严重胸痛，并且这种疾病正在整个航空业迅速蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-594.png)
+皮尔森说，由于政府对企业的疫苗强制计划，他和许多同事因害怕失去工作被迫接种；但接下来发生了可怕的后遗症——胸部和头部剧痛。一些飞行员在飞行时也存在严重胸痛，平时熟练的操作变得异常艰难。
 
-岸田首相说：我们将在6月前彻底确认中期和长期问题后，再考虑对法律进行修正。
+他在节目中谈到，自己接种疫苗不久就被送入急诊室，确诊患有心房颤动，而这是中风的主要原因。
 
-该修正案旨在实现可采取强制措施以确保医务人员和医院床位。因为该法案伴有限制权力的内容，所以，本次推迟法案修正，其目的是避免该法案成为夏季上议院选举前议会辩论中的主要话题。
+提及许多飞行员也有同样的经历但害怕说出来。皮尔森认为，原因是他们不想冒着被解雇的风险；甚至不想因为说实话遭到报复，而毁掉整个职业生涯；另外，他们也不确定能否得到相应的医疗补偿。
 
-岸田首相强调：他希望集中精力确保现有的医院病床处于良好的工作状态。而且会考虑是否有必要设立指挥所，使其与地方政府合作，以应对感染蔓延之危机。
+对此，有评论者认为，未来，机上乘客以及航空飞行将变得越来越危险。
 
-当天晚些时候，首相又出现在NHK的直播节目中，在讨论如何应对驻日美军基地的病毒传播时，他说：我们已经和美国已经达成了一个大概的协议，禁止驻日美军不必要的外出活动。
 
-从上述关于本次推迟法案修正的目的以及被推迟的时限上看，笔者感觉未来半年内，日本很有可能在某种程度上实行迄今为止没有过的强制性措施。如果猜对了，对日本这样的国家来说，绝对是个大事儿。
 
-信息来源：[感染症法改正案、提出見送り　在日米軍「不要な外出認めず」　岸田首相（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/3b1b07ef05b2afcfc18d22b324ae587ceef08e5b)
+新闻来源：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[Commercial pilot says his colleagues are “dropping like flies with crushing chest pains” following covid vaccinations](https://www.naturalnews.com/2022-01-06-pilot-dropping-flies-crushing-chest-pains-vaccines.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
+
+总编：童谣
+
+编辑：DM
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

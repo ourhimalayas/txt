@@ -2,40 +2,44 @@
 ---
 
 
-## 俄罗斯害怕哈萨克斯坦发生“颜色革命”急忙派兵平乱
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1840025/)
+## 战友们之间要珍惜不要互掐，把自己救了就等于救所有人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840155/)
 
-#### 撰稿：日本东京方舟农场 北极
+G-TV视频链接：[https://gtv.org/video/id=61da37ab87664c47acd24e0a](https://gtv.org/video/id=61da37ab87664c47acd24e0a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FA4116EF-B4F3-49E5-B697-AB83F1D13FAC.jpeg)哈萨克斯坦的抗议民众在阿拉木图手挽手站在防暴警察前。（图片来自美国之音中文网）
+**郭文贵先生：**那么我们兄弟姐妹要想到，就这你们之间还互相掐呢，是吧？村长是特务，老班长是特务，Q May、唐平、青藤你们现在拉出来已经成立了磐石农场，恭喜你们。还有现在我们文耀成立叫纽伦堡农场，恭喜你们，这是非常好的。恭喜纽伦堡农场，德国的文耀同志成立的，恭喜唐平、青藤、威廉王、Q May等成立的磐石农场，非常好。
 
-自1月2日以来，哈萨克斯坦境内的骚乱愈演愈烈。哈现任总统托卡耶夫以“外国势力干涉”为由，于1月5日正式向集安组织提出求助申请。该组织成员俄罗斯唯恐邻国政局动荡波及自身，立刻于1月6日派出精锐空降兵赴哈萨克斯坦平息骚乱。
+战友们，多成立农场没有问题，但是咱们之间要珍惜呀，说老实话，现在你们就别担心太阳和月亮的事儿了，你只是宇宙无限大，地球是一粒沙，你是一粒沙中的沙中的沙，你就别担心太阳的事儿了，你担心不了，尽力而为就算了。
 
-自新年以来，哈萨克斯坦国内不断出现民众抗议浪潮，并最终演变成骚乱。据称，燃料价格上涨以及生活开支方面的民怨，是触发此次骚乱的导火索。最早的抗议始于盛产石油的西部地区，但到本星期，这个中亚国家的抗议行动迅速升级，爆发了自该国独立30年以来最为严重的骚乱。
+像台湾的很多战友问我，很多朋友说：你看我买那么多喜币，七哥，接下来我怎么办？我说你现在怎么办知道吗？我告诉你最简单的一句话，如果打仗的时候，你赶快跑，能跑出去就行。第二个现在我说，你什么别老想着帮别人了，你把自己救了，就等于救了所有人。我们今天在这个屏幕面前的战友们，活着是你现在赢下去唯一的最后的结果，你死了就一切完球蛋。
 
-示威者要求改变政权，并呼吁哈萨克斯坦总统卡西姆·若马尔特·托卡耶夫（Kassym-Jomart Tokayev）和81岁的前领导人努尔苏丹·纳扎尔巴耶夫（Nursultan Nazarbayev）下台。纳扎尔巴耶夫在执掌大权近30年后于三年前卸任，但却仍保留着“国家领导人”的正式头衔。
+字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
 
-目前，哈萨克斯坦现任总统托卡耶夫已下令部队“无需警告便可开枪击毙”抗议民众。他同时还指责称，有外部势力进行了前所未有的煽动。他在星期四对全国的广播讲话中声称，阿拉木图受到了“两万土匪”的攻击，这些人有着“明确的攻击计划，行动有协调性，并具有高度的战备能力”。
+编辑整理：Jacques；
 
-1月5日，托卡耶夫正式向集体安全条约组织（CSTO）提出平乱请求。这个由莫斯科主导的安全协定的成员国包括亚美尼亚、白俄罗斯、哈萨克斯坦、吉尔吉斯斯坦、俄罗斯和塔吉克斯坦。托卡耶夫启动了集体安全条约的第四条款，这项条款承诺成员国彼此帮助抵抗“外国干涉”。这是1994年成立的集安组织成员国首次引用这项军事联盟的第四条款。
+字幕文件制作：小满；
 
-俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）在谈到哈国骚乱时也宣称，“动乱”得到了外部支持，目的是“动用有训练、有组织、有武装的队伍，通过武力来破坏国家安全与完整。”
+视频制作及上传：Cindy；
 
-此外，俄罗斯官员和亲克里姆林宫的媒体也都声称，西方在幕后挑动并试图酝酿另一场颜色革命，目的是在下星期美国和北约与俄罗斯的安全会谈之前扰乱俄罗斯的方寸。西方近期十分担心克里姆林宫有可能考虑入侵乌克兰，而美国和北约已计划于下周与俄罗斯展开一系列外交谈判。
+G-News发布：小满；
 
-对于目前在前苏联境内的两个邻国之间的事态发展，美国研究机构“大西洋理事会”欧亚中心副主任梅琳达·哈林（Melinda Haring）表示：“前苏联地区此刻面临着紧张局势，俄罗斯部队和坦克正在从三面边境包围着乌克兰。莫斯科最不希望在被它视为势力范围内的一个国家里发生合法抗议。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-不少西方外交官和分析人士认为，俄罗斯向邻国哈萨克斯坦派兵帮助平息暴力示威的速度之快，表明克里姆林宫害怕发生“颜色革命”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*参考链接：[克里姆林宫害怕哈萨克斯坦发生“颜色革命”](https://www.voachinese.com/a/kremlin-fears-color-revolution-in-kazakhstan-20220107/6388020.html)*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*素材采编：北极*
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*编辑： 青衣青青*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*发布：miumiu*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
