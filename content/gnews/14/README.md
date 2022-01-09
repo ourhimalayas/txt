@@ -2,42 +2,37 @@
 ---
 
 
-## 习近平要保就业红线储备一年半粮准备死人一亿到一亿五
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840101/)
+## WHO呼吁公众加紧预防奥密克戎变种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840145/)
 
-G-TV视频链接：[https://gtv.org/video/id=61d9989edffab035958c438d](https://gtv.org/video/id=61d9989edffab035958c438d)
+作者：纽约香草山教育部 Naughty(文行)
 
-**郭文贵先生：**就头一段时间，听说“习太阳”明确的说，只要让老百姓有饭吃，哪怕少吃点肉，别让老百姓现在因为房子跟我们造反，要让他们继续劳动，保持35%的就业红线。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-啥叫35%就业红线？算过，中国大概2亿多的打工的高级奴隶，只要别少于7000万人还能打工，就能养活大概2亿多人的活着。然后这个青菜、粮食、面，最起码要坚持二年，要达到他这让中国人口多少呢？中国做好1亿到1亿5000万人死亡的这个准备。1亿到1亿5000万死亡，会死什么人知道吗战友们？粮食可能过去需要100斤，可能就需要50斤就够了，所以共产党备粮备了一年半的粮。所以说你就想一想共产党有多邪恶，就在这儿。
+1月6日，据媒体新闻报道，世界卫生组织WHO当天发表声明表示，随着中共病毒奥密克戎变种席卷全球，上周世界新增的中共病毒确诊病例创下了历史新高，达到950万例。但WHO明确指出，由于新年假期前后的病毒核酸测试结果被积压，全球的实际感染人数很可能更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.11.22-PM.png)
+对此，WHO的负责人警告称，虽然奥密克戎的感染症状似乎不如德尔塔严重，且每周记录的感染死亡人数有所下降，但这并不意味着奥密克戎对人体健康安全的影响较轻。该负责人强调，奥密克戎正在使越来越多的感染者住院，甚至导致部分患者的死亡。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+此外，该负责人在定期新闻发布会上预警道，随着中共病毒新增病例的迅速增长，各国的医疗系统将不堪重负，而全球的医务人员也将面临短缺的困境。
 
-编辑整理：Jacques；
+为此，该组织官员呼吁，公众应加紧采取措施抗击奥密克戎疫情，民众需尽可能保持室内通风、维持社交距离以及配戴口罩。
 
-字幕文件制作：Cindy；
+參考鏈結：[Record weekly increase in COVID-19 cases but fewer deaths, WHO reports](https://www.foxnews.com/health/record-weekly-increase-in-covid-19-cases-fewer-deaths-who?utm_source=ground.news&amp;utm_medium=referral)
 
-视频制作及上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-G-News发布：小满；
+编辑：Kathy文艺
+总编：飞虹
+校正/发稿：我不在这里
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

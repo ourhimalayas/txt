@@ -2,15 +2,15 @@
 ---
 
 
-## 神奇的昆仑山
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839794/)
+## 疫苗大灾难
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839884/)
 
 ——文贵大直播20220109
 
-撰稿：天天打包包（伊甸）
+撰稿：MyWay/莲心不染/坐看云起时（扬帆） 火来（香草山）
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-5.jpg)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.png)
 *发布：Theodosia*
 
  
