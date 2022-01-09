@@ -2,13 +2,15 @@
 ---
 
 
-## 从西安封城重庆大爆炸看中共权斗
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839796/)
+## 疫苗大灾难
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839884/)
 
 ——文贵大直播20220109
 
-撰稿：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/P1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P5-5.png)
+撰稿：MyWay/莲心不染/坐看云起时（扬帆） 火来（香草山）
+
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.png)
 *发布：Theodosia*
 
  

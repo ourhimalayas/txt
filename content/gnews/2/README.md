@@ -2,38 +2,37 @@
 ---
 
 
-## 第203期玫瑰看新闻-新西兰新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1840402/)
+## 有声|美国医学协会谴责CDC新隔离指南
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1840639/)
 
-新西兰新闻
-
-1.最新通报：社区新增178例，再增1例死亡！
-
-2.朱迪思·柯林斯离任国家党领袖位置
-
-3.新西兰最新边境开放措施
+配音：香草山教育部 – Rose
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月5日，美国医学协会AMA指责美国疾病控制和预防中心，发布了“混乱的”和“适得其反的”新冠病毒检疫和隔离新指南。
 
-**推出问题，敲出真相，爆料在路上！**
+该委员会主席杰拉尔德·哈蒙博士在一份声明中说，美国人民应该得到及时、准确和明确的指导。相反，CDC的新建议不仅令人困惑，而且加大了传播病毒的风险。隔离和检疫期从原先的10天缩短到5天，将增加数十万人在工作场所和学校受到感染的风险。
 
-**请关注和订阅我们的以下账号：**
+医生们认为目前需要进行更多的研究，以确定奥密克戎的严重程度和逃避免疫反应，以及疫苗的保护力，但这些建议可能进一步令卫生保健系统不堪重负。哈蒙博士同时敦促政府，尽一切能力加强检测盒的可用性。但测试盒的匮乏并不能成为缩短隔离期的理由。 虽然CDC强调更改指南的原因是研究表明，病毒传播一般在发病前1-2天和发病后2-3天。但评论人士指出，隔离期缩短为5天跟多个领域出现的人员短缺有关，社会运转的基本功能正面临着严重问题。
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+文字版原文：[美国医学协会谴责CDC新隔离指南](https://gnews.org/zh-hans/1835804/)
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-**玫瑰看新闻YouTube账号**：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**玫瑰看新闻**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**黑森林的故事**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**Rose news**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**【玫瑰看新闻】推特账号**：
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**Rose News (@RoseNews4)**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

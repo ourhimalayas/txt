@@ -2,37 +2,52 @@
 ---
 
 
-## 泰国将对加密货币交易征收15%资本获利税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840135/)
+## 中共所有方法都失败后利用抖音来对付莫里森
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1840250/)
 
-作者：银河勇气星 骄子
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-19.png)
+中共对澳大利亚的斯科特•莫里森（Scott Morrison）想尽了办法，澳大利亚总理是中共的一个噩梦。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+因为莫里森首先开始谈论中共对中共病毒（Covid-19）大流行的管理不善。其次，莫里森站出来反对中共侵犯人权和对台湾的侵略。
 
-当地时间1月6日，据有关媒体消息显示，泰国财政部一位工作人员近日透露，泰国将对加密货币交易征收15%的资本税，同时，当地政府还要求交易员为政府加强对加密货币的监控做好准备。
+中共试图通过对澳大利亚大麦、葡萄酒和肉类征收严厉的关税来惩罚澳大利亚。中共甚至对澳大利亚的煤炭实施了非官方禁令，但这并没有伤害到澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.06.08-PM.png)
+事实上，由于与堪培拉的贸易战，受影响的是中共国。而现在，中共已经走投无路了。甚至利用抖音（TikTok）作为武器来伤害莫里森的政治利益。
 
-数据显示，自2021年以来，加密货币交易市场的规模和价值持续大幅增长。对此，根据修订的《税收法》，泰国税务局计划加强对加密货币交易的监督，当中，政府要求投资者应在今年报税时确定其加密货币的收入，从而避免因漏税被处罚。
+**针对澳大利亚莫里森的抖音活动**
 
-据悉，泰国现阶段征税的对象面向各大加密货币交易所，散户投资者或采矿运营商尚且不在征税之列。
+据报道，一家自称为工党工作的营销公司提供300美元来制作反莫里森的内容。
 
-參考鏈結：[Thailand’s Crypto Traders to Be Subject to 15% Capital Gains Tax: Report](https://www.coindesk.com/policy/2022/01/06/thailands-crypto-traders-to-be-subject-to-15-capital-gains-tax-report/)
+Crikey声称获得了Vocal Media的电子邮件和活动简报，Vocal Media是一家位于美国的营销公司，有与左倾政治和非营利组织合作的经验。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+这封邮件是发给一个抖音用户的，其主题栏写着：”有偿抖音机会，澳大利亚工党”。该邮件提供300美元，用于制造一个”基于’斯科特•莫里森‘太慢了、总是迟到’这个主题的抖音视频。
 
-编辑：Kathy文艺
-总编：文特 
-校正/发稿：我不在这里
+一份题为 “澳大利亚工党x VOCAL创意简介 “的链接文件为创作者提供了指示。它指出，”这项活动旨在帮助改变抖音上的政治话语[……]，这与他的基本性格有关，即不急于关心，而是等到事情变得非常糟糕时才去处理他的工作。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**抖音一直是个有争议的应用程序软件。**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特别是在那些试图对抗中共扩张主义的国家。2020年，在中印紧张局势加剧，以及中共国应用程序带来的安全风险下，印度禁止了抖音应用程序和其他几个中共国的应用程序。
+
+在中国，抖音占据大部分市场。但也因一些事件而招致很多批评。包括一名24岁男子因在抖音上穿女装而被嘲弄后自杀。
+
+该应用程序还面临着含有色情内容和使儿童接触敏感内容的指控。
+
+印度尼西亚也曾因抖音含有 “色情、不适当的内容和亵渎神明 “而被暂时禁止。
+
+美国前总统唐纳德•特朗普也曾特意就抖音问题向中共提出质询。唐纳德•特朗普甚至发布了禁止抖音的行政命令，但他的继任者乔•拜登于去年6月撤销了特朗普对中共国应用程序抖音和微信在美国的禁令。
+
+拜登一直对中共心存芥蒂，他放弃了特朗普对中共的所有强硬行动。抖音禁令的撤销并不令人惊讶。
+
+澳大利亚不能让中共干涉其政治制度。现在是澳大利亚禁止抖音的时候了。
+
+
+
+[新闻来源链接](https://tfiglobalnews.com/2022/01/04/china-deploys-tik-tok-against-morrison-after-all-else-fails/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 

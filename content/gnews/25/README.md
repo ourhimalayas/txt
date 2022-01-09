@@ -2,37 +2,44 @@
 ---
 
 
-## 1/9银河快讯:东京22政年初步预算约为7.8万亿日元；世博会投标延迟和材料成本上升
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1840120/)
+## 战友们之间要珍惜不要互掐，把自己救了就等于救所有人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840155/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-55.png)[图片来源](https://www3.nhk.or.jp/)
-**1.****东京22政年初步预算约为7.8万亿日元**
+G-TV视频链接：[https://gtv.org/video/id=61da37ab87664c47acd24e0a](https://gtv.org/video/id=61da37ab87664c47acd24e0a)
 
-[据NHK 1月8日报道，东京都政府新财年（2022年）的初步预算预计将是有史以来最大的，比2021年，多出4000亿日元，约为7.8万亿日元，以支付确保医疗服务系统的费用，对抗中共病毒（新冠病毒covid-19）的重新出现。另一方面，税收收入预计将大幅增加至约5.63万亿日元，比2021年多出约5900亿日元。](https://www3.nhk.or.jp/news/html/20220108/k10013421831000.html?utm_int=news-politics_contents_list-items_001)
+**郭文贵先生：**那么我们兄弟姐妹要想到，就这你们之间还互相掐呢，是吧？村长是特务，老班长是特务，Q May、唐平、青藤你们现在拉出来已经成立了磐石农场，恭喜你们。还有现在我们文耀成立叫纽伦堡农场，恭喜你们，这是非常好的。恭喜纽伦堡农场，德国的文耀同志成立的，恭喜唐平、青藤、威廉王、Q May等成立的磐石农场，非常好。
 
-**2.****冲绳437名医护人员因感染扩散而无法工作**
+战友们，多成立农场没有问题，但是咱们之间要珍惜呀，说老实话，现在你们就别担心太阳和月亮的事儿了，你只是宇宙无限大，地球是一粒沙，你是一粒沙中的沙中的沙，你就别担心太阳的事儿了，你担心不了，尽力而为就算了。
 
-[据NHK 1月8日报道，冲绳县有437名卫生保健人员因感染了中共病毒（新冠病毒covid-19）或与感染者有密切接触而无法工作。8日新增112人，包括7名医生、70名护士和35名文员。该县的14家医疗机构已经报告说，他们正在限制一些服务，包括急诊和普通护理。](https://www3.nhk.or.jp/news/html/20220108/k10013421781000.html)
+像台湾的很多战友问我，很多朋友说：你看我买那么多喜币，七哥，接下来我怎么办？我说你现在怎么办知道吗？我告诉你最简单的一句话，如果打仗的时候，你赶快跑，能跑出去就行。第二个现在我说，你什么别老想着帮别人了，你把自己救了，就等于救了所有人。我们今天在这个屏幕面前的战友们，活着是你现在赢下去唯一的最后的结果，你死了就一切完球蛋。
 
-**3.****世博会的两个挑战：投标延迟和材料成本上升**
+字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
 
-[据产经新闻1月8日报道，在定于2025年4月举行的大阪-关西博览会开幕之前，出现了两个令人担忧的问题。 疫情阻碍了国外展馆的加入，而材料价格的飙升可能导致建造设施的成本大幅增加。 因此，如果世博会的开幕被推迟或规模缩小，高达2万亿日元的经济影响可能无法实现。日本政府设定的目标是来自150个国家的25个国际组织，但到目前为止，只有72个国家和6个组织宣布他们的参展意向。 另一方面，建造场馆所需的木材、钢材和其他材料的价格飙升也是一个问题。 最初，政府估计建造该场馆的成本约为1250亿日元，但随着场馆设计的改变，这一数字被提高到1850亿日元。](https://news.yahoo.co.jp/articles/3a9ae39c55484632efd02a65e3c3c793c64b59cb)
+编辑整理：Jacques；
 
-**4.日美在“2+2”文件中增加基地的联合使用**
+字幕文件制作：小满；
 
-[琉球新报1月8日报道，日本和美国政府举行了外交和国防部长（2加2）的电话会议。 在一份联合声明中，他们同意“加强自卫队在西南群岛的态势，增加对日美设施的联合使用。”自卫队将在今年年底前部署到石垣岛，联合使用该县的基地可能意味着美军和自卫队的联合行动，包括制定联合行动以预期台湾的突发事件。](https://news.yahoo.co.jp/articles/5a727ac25a1ca491f085e1616a13b22eed82fe0d)
+视频制作及上传：Cindy；
 
-**5.****中共国海警船2021年在钓鱼岛附近积极靠近日本渔船**
+G-News发布：小满；
 
-[据共同社1月8日报道，驶入钓鱼岛附近的中共国海警局舰船2021年共有29天靠近日本渔船，增至上年的约2倍；中共国渔船累计超过40艘，增至近3倍。中共国2021年2月起施行允许海警使用武器的《海警法》。日本政府对海警活动趋于活跃提高了警惕。中方在上月20日的“日中海洋事务高级别磋商”中，要求日方管控日本渔船，威胁说不然中方也会派出渔船。在磋商当天和翌日，海警船也驶入了日本领海，试图接近捕捞马鲛鱼等的冲绳县宫古岛的渔船。](https://tchina.kyodonews.net/news/2022/01/b65852d44725-2021.html)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**6.****商业空气净化器 的生产因办公室聚会的增加而得到推动**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[据NHK 1月8日报道，松下公司从上个月开始销售一种摊位式通风系统，它可以安装在办公室和商店的商务会议空间。该系统产生一股从天花板到地面的向下气流，以防止人们的空气颗粒漂浮，而连接在该系统一侧的净化器则将空气吸入并进行循环。根据该行业协会的数据，家用空气净化器的出货量在上一财年达到了历史新高，但随着越来越多的人聚集在办公室周围，商业用途的需求也可能会增加。](https://www3.nhk.or.jp/news/html/20220108/k10013421371000.html?utm_int=news-business_contents_news-main_002)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

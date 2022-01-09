@@ -2,41 +2,37 @@
 ---
 
 
-## 中共挑动哈国动乱将引爆世界革命的火药桶
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1840069/)
+## WHO呼吁公众加紧预防奥密克戎变种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840145/)
 
-**【雅典娜观察】与您一起洞察世界**
+作者：纽约香草山教育部 Naughty(文行)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/xxxxx.png)图片来源：twitter
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+1月6日，据媒体新闻报道，世界卫生组织WHO当天发表声明表示，随着中共病毒奥密克戎变种席卷全球，上周世界新增的中共病毒确诊病例创下了历史新高，达到950万例。但WHO明确指出，由于新年假期前后的病毒核酸测试结果被积压，全球的实际感染人数很可能更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.11.22-PM.png)
+对此，WHO的负责人警告称，虽然奥密克戎的感染症状似乎不如德尔塔严重，且每周记录的感染死亡人数有所下降，但这并不意味着奥密克戎对人体健康安全的影响较轻。该负责人强调，奥密克戎正在使越来越多的感染者住院，甚至导致部分患者的死亡。
 
-据郭文贵先生的重磅爆料，目前发生在哈萨克斯坦的动荡，中共是幕后黑手。原因是习近平与王岐山两派的政治斗争所引起。
+此外，该负责人在定期新闻发布会上预警道，随着中共病毒新增病例的迅速增长，各国的医疗系统将不堪重负，而全球的医务人员也将面临短缺的困境。
 
-一带一路的战略的推动是中共勾连了内亚政治实体，他们的关系本质不是国家政府之间的关系，而是一种当权者之间的人身关系。基于中共的帮派本质，为抢夺王岐山存放在哈萨克斯坦的500顿黄金成为了与关系国家政治门阀反目的示范效应。这足以震撼与中共有着类似关系的它国当权者。
+为此，该组织官员呼吁，公众应加紧采取措施抗击奥密克戎疫情，民众需尽可能保持室内通风、维持社交距离以及配戴口罩。
 
-中共有一个不能說出口的秘密，其希望用经济投资与利益交换中亞國家不要支持东突厥斯坦独立运动，並协助那些他们所谓的新疆分裂分子。当前哈萨克斯坦所辖领土的很大一部分曾经是清帝国的版图，后来被沙俄肢解侵吞其边境与中共国的伊犁一带接壤。这一地带人口共同为自突厥人。
+參考鏈結：[Record weekly increase in COVID-19 cases but fewer deaths, WHO reports](https://www.foxnews.com/health/record-weekly-increase-in-covid-19-cases-fewer-deaths-who?utm_source=ground.news&amp;utm_medium=referral)
 
-当前阿富汗与哈萨克斯坦境内的动荡所产生的革命风暴因子，有可能逐渐扩大延烧面积，使内亚包括俄罗斯在内均有可能波及。据郭文贵先生称，俄罗斯这次站在中共一边让纳扎尔巴耶夫交出黄金给习近平，估计普京也是嗅到了邻国可能掀起的颜色革命对于俄罗斯民众的示范效应将意味着什么样的风险。目前俄罗斯、白俄罗斯等四国已经派出了维和部队进行维稳，这已经说明了这些类独裁国家对于颜色革命的恐惧程度，以及当前内亚当前的地缘局势和权力结构。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/wangyi.jpg)图片来源：网易
+编辑：Kathy文艺
+总编：飞虹
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-对于当前周边泛突厥语系的穆斯林国家的当权者绝对不想看到这样的动荡发生自己境内。随着中共帝国行将倒塌的形势面前，原先因为利益与中共勾连在一起的地区势力，必将与中共逐渐脱离。
-
-随着习近平的内外交困，特别是经济的即将崩溃，军队的分离主义必将浮上台面，这势必将削弱习近平对于边疆地带的控制力。在新疆原本被压迫蛰伏的“突厥主义独立运动因子”必将重新复燃。与中共从亲密到交恶的周边国家必将施加他们的影响力，将更加激发新疆的分离主义势力的崛起。更重要的是基于这一地区地缘的重要价值，这次美国也必将投射其影响力。
-
-纳扎尔巴耶夫既然能说出“习近平敢动我我就弄死他”，必定不是信口开河。其可能主要是基于与新疆接壤继而能投射边境社会的影响力。这将成为中共的软肋。在清帝国统治时，伊犁就曾爆发过穆斯林反抗清殖民统治的起义活动，并波及了整个新疆和陕西甘肃地区。只是目前的时机还没有成熟而已。
-
-哈萨克斯坦的动荡，随着中共的最终倒台必将发全世界范围内的制度性与秩序性的革命。
-
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

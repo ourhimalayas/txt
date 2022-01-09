@@ -2,43 +2,47 @@
 ---
 
 
-## 习近平要保就业红线储备一年半粮准备死人一亿到一亿五
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840101/)
+## 山下传来女人的哭救声
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1840147/)
 
-G-TV视频链接：[https://gtv.org/video/id=61d9989edffab035958c438d](https://gtv.org/video/id=61d9989edffab035958c438d)
+作者：纽约香草山健身部 – 杉杉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+在共产党恶魔的统治下，共产党中南坑里，有哪位高官显贵们，把墙民百姓当人看，视人连猪狗都不如。灌输教育培养着底层打手，以愚制弱欺弱，使人产生变态的恶魔兽性，报复比他还弱的弱者，造成社会的恶性循环。重男轻女，女人更惨，生下的女孩命运好的被送人，命运坏的就是被扼杀掉。
 
-**郭文贵先生：**就头一段时间，听说“习太阳”明确的说，只要让老百姓有饭吃，哪怕少吃点肉，别让老百姓现在因为房子跟我们造反，要让他们继续劳动，保持35%的就业红线。
+共产党中南坑的宇宙无限大，地球只是一粒沙，我想干啥就干啥，烧杀奸淫抢掠无恶不作。这样的党，这样的“人民公仆”，把这个国家民族已经带入了万劫不复的无底深渊。
 
-啥叫35%就业红线？算过，中国大概2亿多的打工的高级奴隶，只要别少于7000万人还能打工，就能养活大概2亿多人的活着。然后这个青菜、粮食、面，最起码要坚持二年，要达到他这让中国人口多少呢？中国做好1亿到1亿5000万人死亡的这个准备。1亿到1亿5000万死亡，会死什么人知道吗战友们？粮食可能过去需要100斤，可能就需要50斤就够了，所以共产党备粮备了一年半的粮。所以说你就想一想共产党有多邪恶，就在这儿。
+文贵先生的大直播提到的，关于水的故事，使我鼓起勇气，写下了关于女人的故事之三：山下传来女人的哭救声。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+那是一个秋高气爽不错的天气，背起背篓，拿起铲子釆石去。出发，往半山腰爬去，年长一些的孩子往深处爬，深处石头大又多，好往山下滚，像我这人小力薄的就在半山腰上釆石，然后一篓篓的往山下运，再用锤子把石头砸成像鸡蛋般大小的石子，等石子儿攒够了，用架子车与家人把石子拉到收购站卖钱贴补家用。
 
-编辑整理：Jacques；
+刚爬到半山腰，就听到惨叫的哭喊声，救命救命，听到此声赶紧往下秃噜，刚滑到路坡边差点与这位披头散发衣不遮体的女子撞上。这位女子看上去顶多有十七八岁的年龄，是一个非常漂亮清秀的姑娘，只见血从她的鼻子嘴角流出，腿上也在流血，此刻一群彪悍追了过来，嘴里还骂着吼着浓郁的土话，这个姑娘操着一口川贵方言，哀求放过她让她回家。
 
-字幕文件制作：Cindy；
+对于这偏远地山区，男多女少，取不上老婆、性饥渴的穷汉子们，面对这样一个也许是骗、抢、花钱买来的漂亮女人怎么可能放过她，待姑娘此话一出，即可招来了一顿拳打脚踢与谩骂声。此时的我看到了，也是我这个十一二岁的小女孩不该看到的，那羞耻、耻辱、恶心的一幕。这个姑娘可能已经挨过狠重得爆打了，快被折磨死了，可是这群彪悍畜牲，把那一双双肮脏猥琐的脏手，抓向姑娘的乳房，又抠向姑娘的下体，只听一声惨叫，血从下体顺着大腿流了出来。这是畜性的宣泄，突然山坡下传来了卡车的鸣笛声，只见这群彪悍抬起姑娘快速地奔进那山丛中。
 
-视频制作及上传：Cindy；
+卡车从我身边呼啸而过。此刻的我被这短短几分钟所发生的一幕吓傻了，吓蒙了，吓得呆在那身体发沉，腿脚不听使唤挪也挪不动，脑袋一片空白。妈妈！我冷我⋯好冷，孩儿的心好痛在滴血，妈妈也许您说的对！不该把孩儿带到这个世上来受苦、受罪又挨饿。
 
-G-News发布：小满；
+在共产党恶魔的统治下，所谓的三年灾害，人吃人饿死人尸横遍野，死亡无数，那几千万的饿死鬼，向谁索命。三年灾害刚过，百姓还没缓过神来，这个恶魔毛贼东为了一己私仇，又发起了史无前例的文化大革命。经毛贼东等多次的挑拨离间，此时全国又卷入了，更加腥风血雨互相撕烈残杀，尸横遍野的惨状，这又是几千万个死去的孤魂野鬼上哪讨公道！
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+逃吧！走吧！离开这片伤心之地，我们逃亡到了向往的，民主、法治、三权分立的世界强国。可是这个全世界唯一的一块圣地，也被共产党红魔浸蚀到不堪入目的危险地步。狂妄至极的恶魔共产党习习屁，疯狂的向全世界、全人类发起了灭绝人寰的杀戳，干着投放病毒，又制作毒疫苗的罪恶勾当，把魔爪伸向全球，妄想统治、践踏、摧残、蹂躏全人类。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+我们坚决对红魔共产党习习屁说不，因为我们是跟随文贵先生爆料革命清醒过来的人，是身负使命、拯救世界、拯救人类的新中国联邦人，消灭共产党是人类生存下去的必须，也是拯救救赎我们自己的千秋万代，不再被共产党统治，不再回到那万劫不复的深渊。放过恶魔共产党，是对人类的犯罪，共匪存世界亡，共匪灭人类生！
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**校对/发稿：童谣**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**更多资讯，更多关注**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
