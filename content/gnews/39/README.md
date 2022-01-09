@@ -2,37 +2,25 @@
 ---
 
 
-## 人生就是一场大梦
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838880/)
+## 布林肯对俄罗斯军事介入哈萨克斯坦局势感到不满
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1838914/)
 
-作者：纽约香草山 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月5日，郭先生在大直播中提到，五台山有位大师，给郭先生发信息告知，应该把gettr图标由歪扳正，将会有奇迹发生。正如其所料，现在奇迹发生了。
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-13.jpg)图片来源：半岛电视台
+据《国会山报》（The Hill）1月8日报道，美国国务卿安东尼·布林肯（Antony Blinken）1月7日在谈到哈萨克斯坦最近的动乱时说：“哈萨克斯坦目前正发生的事情有非常特殊的驱动因素。一旦（他们）进入你的房子，有时很难让‘俄罗斯人离开’。”克里姆林宫一天之后就此对布林肯进行了强烈的斥责，美俄两国之间的紧张局势上升。
 
-并且郭先生还说，他保留最重要的一句话一直未说出口，即这位五台山大师，当时站在山顶悬崖，便知道了对岸，并坚信一定能达到彼岸。修行正道，人生早有答案，不管什么宗教，皆信最终人生一切皆空相，人生最终就是黄粱一梦。
+布林肯1月7日在面对记者时说道：“哈萨克斯坦发生的事情与乌克兰边境上发生的事情不同。尽管如此，我认为最近历史上的一个教训是，一旦俄罗斯人进入了你的房子，有时很难让他们离开。”
 
-当你做梦的时候，完全是真实的，只是你挣扎不开。等你醒的时候，发现你又活了一天。你上一个正在睡觉时的身体，就是现在的灵魂所在。当你做喜梦，黄粱梦，醒来发现自己又活过来了。我们把自己的梦做好，醒来非常愉悦，你就修行成功了。灵离开你的时候，就是你醒来的时候。
+布林肯的评论显然是在嘲讽俄罗斯。此前在哈萨克斯坦仍陷于政治动荡时，由五个前苏联盟国和俄罗斯组成的集体安全条约组织（Collective Security Treaty Organization）派兵进入该国。
 
-参考链接：
+路透社（Reuters）报道说，俄罗斯外交部在Telegram上说布林肯的评论带有“典型的攻击性”：“如果布林肯如此热爱历史课，那么他应该考虑到以下情况：当美国人在你的房子里时，可能很难保住性命而且不被抢劫或强奸。”俄罗斯外交部在其尖锐的信息中说，它不是从美国最近的过去、而是从“美国所有300年的国家历史中学到了这些“。
 
-- [2022/01/05 郭先生大直播速記](https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502)
+美国国务院1月7日更新了对哈萨克斯坦的旅行建议。公告说：“由于示威、抗议和罢工这些事件在没有事先通知的情况下迅速发展，而且可能演变成暴力事件，导致交通、运输、通信和其他服务随时会中断，这将严重影响美国大使馆提供领事服务的能力，包括协助美国公民离开哈萨克斯坦。因此如果愿意的话，允许非紧急情况下的美国政府雇员和美国驻阿拉木图 (Almaty) 总领事馆的所有美国工作人员的家属离开该国。”
 
+新闻来源：[Tensions between US, Russia rise over military involvement in Kazakhstan](https://thehill.com/policy/international/588860-tensions-between-us-russia-rise-over-military-involvement-in-kazakhstan)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

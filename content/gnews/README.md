@@ -15,122 +15,122 @@
 
 ---
 
-### [盖特的现况是共产党迫害我们的铁据](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
+### [我们要的是尊重个人追求自由民主法治信仰而不是家天下](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [加拿大军官呼吁调查2019武汉军运会期间爆发的“新冠”疫情](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [一位医师接受辉瑞疫苗之后的警示](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
-
-### [每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/5/README.md)
- ` GTV News Talk`
-
-### [美飞行员接种疫苗后严重胸痛](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [香港和大陆的房地产，还有香港股票市场的现况，说明共产党真完了](/content/gnews/7/README.md)
- ` G-NEWS TAIWAN`
-
-### [菲律宾下令抓捕违反居家令的未接种新冠疫苗者](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [盖特一周内新增一百万用户](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [实行强制疫苗的国家多数为一党专权](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [喜马拉雅之神必将回到喜马拉雅的山巅](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
-
-### [完全接种疫苗的格鲁吉亚网球明星因呼吸困难而退出悉尼杯比赛](/content/gnews/12/README.md)
- ` Itana`
-
-### [哈萨克斯坦斯坦人对自己的文化、民族、兄弟很忠诚](/content/gnews/13/README.md)
- ` G-NEWS TAIWAN`
-
-### [高科技助力“黄粱一梦”梦过留痕](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [文·贵天成——文贵先生谈“陈全国”（三）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [科索沃以电力短缺为由，禁止加密货币挖矿](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如何吃得更健康以提高免疫力？食用油最关键！](/content/gnews/17/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [英国卫生部长当场被科学“打脸”](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新加坡战友爆料革命新年晚会的发言](/content/gnews/19/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [驻日美军新禁令，10日开始限制外出](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美联邦法官驳回 FDA 对 Vax 数据的 75 年延迟，将其缩短至仅 8 个月](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [黑龙江鹤岗宣布破产](/content/gnews/22/README.md)
- ` himalayabostonfinance`
-
-### [秘翻在线：天津防疫封锁，北京还远吗？](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本政府应对冲绳大规模感染的措施仍是中共病毒疫苗](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [震惊！从未有过的强制措施半年内或在日本开始](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [北卡罗来纳州众多校车司机感染中共病毒](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [冲绳危也 感染暴增](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [到底啥情况？近1387万人口的天津市开始大规模核酸检测](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [何为读书人](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [华为拿下沙特会发生什么](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [法国十数万人抗议强制疫苗法案](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022/01/07 文贵先生直播精要](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [法律专家呼吁国会对强制接种中共病毒疫苗采取立法行动](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [哈萨克斯坦动乱背后的世界核武之争](/content/gnews/34/README.md)
- ` 秘密翻译组-原创组`
-
-### [0107文贵大直播，致那些永远的无名战友](/content/gnews/35/README.md)
+### [为什么自以为是的人叫不醒&#8212;七哥话里的玄机和哲理系列1](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [最高法院受理拜登政府备受争议的疫苗强制令](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中共内蒙古一美食店违规销售进口水果被停业](/content/gnews/3/README.md)
+ ` 德国纽伦堡正义农场`
 
-### [布林肯对俄罗斯军事介入哈萨克斯坦局势感到不满](/content/gnews/37/README.md)
+### [博裕资本面临习近平监管挑战](/content/gnews/4/README.md)
+ ` GTV News Talk`
+
+### [大直播&#8212;爆料革命穷追猛打下中共的金融乱象与迷局](/content/gnews/5/README.md)
+ ` GTV News Talk`
+
+### [盖特的现况是共产党迫害我们的铁据](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [文·贵天成——文贵先生谈“陈全国”（四）](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大军官呼吁调查2019武汉军运会期间爆发的“新冠”疫情](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：关于福奇爆炸性的爆料文件将在下周放出](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [人生就是一场大梦](/content/gnews/39/README.md)
+### [因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/9/README.md)
  ` GTV News Talk`
+
+### [一位医师接受辉瑞疫苗之后的警示](/content/gnews/10/README.md)
+ ` G-NEWS TAIWAN`
+
+### [每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/12/README.md)
+ ` GTV News Talk`
+
+### [美飞行员接种疫苗后严重胸痛](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [香港和大陆的房地产，还有香港股票市场的现况，说明共产党真完了](/content/gnews/14/README.md)
+ ` G-NEWS TAIWAN`
+
+### [菲律宾下令抓捕违反居家令的未接种新冠疫苗者](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
+
+### [盖特一周内新增一百万用户](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [实行强制疫苗的国家多数为一党专权](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [喜马拉雅之神必将回到喜马拉雅的山巅](/content/gnews/18/README.md)
+ ` G-NEWS TAIWAN`
+
+### [完全接种疫苗的格鲁吉亚网球明星因呼吸困难而退出悉尼杯比赛](/content/gnews/19/README.md)
+ ` Itana`
+
+### [哈萨克斯坦斯坦人对自己的文化、民族、兄弟很忠诚](/content/gnews/20/README.md)
+ ` G-NEWS TAIWAN`
+
+### [高科技助力“黄粱一梦”梦过留痕](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [文·贵天成——文贵先生谈“陈全国”（三）](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [科索沃以电力短缺为由，禁止加密货币挖矿](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如何吃得更健康以提高免疫力？食用油最关键！](/content/gnews/24/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [英国卫生部长当场被科学“打脸”](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新加坡战友爆料革命新年晚会的发言](/content/gnews/26/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [驻日美军新禁令，10日开始限制外出](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美联邦法官驳回 FDA 对 Vax 数据的 75 年延迟，将其缩短至仅 8 个月](/content/gnews/28/README.md)
+ ` G-NEWS TAIWAN`
+
+### [黑龙江鹤岗宣布破产](/content/gnews/29/README.md)
+ ` himalayabostonfinance`
+
+### [秘翻在线：天津防疫封锁，北京还远吗？](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本政府应对冲绳大规模感染的措施仍是中共病毒疫苗](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [震惊！从未有过的强制措施半年内或在日本开始](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北卡罗来纳州众多校车司机感染中共病毒](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [到底啥情况？近1387万人口的天津市开始大规模核酸检测](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [华为拿下沙特会发生什么](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法律专家呼吁国会对强制接种中共病毒疫苗采取立法行动](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [哈萨克斯坦动乱背后的世界核武之争](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [最高法院受理拜登政府备受争议的疫苗强制令](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [布林肯对俄罗斯军事介入哈萨克斯坦局势感到不满](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔](/content/gnews/40/README.md)
  ` MOSREC`

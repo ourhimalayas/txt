@@ -2,24 +2,24 @@
 ---
 
 
-## 法律专家呼吁国会对强制接种中共病毒疫苗采取立法行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1838938/)
+## 北卡罗来纳州众多校车司机感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839007/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-4.png)图片来源：新闻极限
-1月8日，《新闻极限》报道，法律专家艾伦·德肖维茨（Alan Dershowitz）在新闻极限（Newsmax）节目中表示，拜登政府在强制接种中共病毒（COVID-19）疫苗方面大放厥词，试图规避国会和宪法规定的立法权。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-14.jpg)图片来源：雅虎
+1月8日，《国会山报》报道，由于几十名校车巴士司机感染了中共病毒（COVID-19），两所高中的学生将至少两周无法乘坐校车上学。
 
-周六，在“目前美国（America Right Now）”节目中，德肖维茨说：“只有国会拥有可以制定强制接种（中共病毒）疫苗的权力，而不是总统。毕竟，宪法说，‘所有立法权归于国会’，也就是说，国会可以制定所有需要制定的法律。宪法没有赋予总统制定法律的权利，而强制接种（中共病毒）疫苗要么需要通过制定法律，要么需要对安全与卫生署（OSHA）的规定进行非常非常宽泛的解释”。
+据北卡罗来纳州格林斯博罗的《新闻与记录》报道，吉尔福德县（Guilford County）学校说，76名校车司机在中共病毒检测呈阳性后暂时失去了工作，导致该学区人员严重短缺。学区总监莎朗·康特雷拉斯（Sharon Contreras）告诉新闻媒体，如果学生出示学生证，他们可以免费乘坐城市巴士。
 
-德肖维茨认为，“如果国会适当地颁布这项（强制接种中共病毒疫苗）任务，并包含有例外情况，它将得到支持，但如果它只是由总统发布，它很可能不会得到支持。行政当局，即总统，有权执行法律，而不是制定法律”。
+周五，吉尔福德县的学区首次推迟了公交车的乘坐时间，当天中学上学时间推迟一小时，高中和早期大学（Early College）上学时间推迟一个半小时。
 
-对于行政行动（Executive actions）在紧急命令下是合理的说法，德肖维茨反驳说，中共病毒的紧迫性已经不再适用了。“就紧急情况而言，我们历史上一些最糟糕的决定是基于紧急状态的说法而做出的。总之，无论国会有机会采取行动还是没有机会采取行动，客观现实是我们面对COVID（中共病毒）现在已经两年了。因此，紧急状况的说法（现在）强调的太离谱了，而且这经常被用来为本应由国会采取的行政行动辩护”。
+报道说，为了在最新一波中共病毒肆虐中吸引和留住巴士司机，吉尔福德县已将司机的基本底薪提高到每小时15美元，并为全勤的司机提供每月1000美元的奖励。
 
 **新闻来源**
 
-[Alan Dershowitz to Newsmax: Congress, Not Biden, Has Authority on Vaccine Mandates](https://www.newsmax.com/newsmax-tv/executive-authority-congress-vaccine-mandates/2022/01/08/id/1051561/)
+[North Carolina high schools suspend bus service after too many drivers test positive for COVID-19](https://thehill.com/policy/transportation/588879-north-carolina-high-schools-suspend-bus-service-after-too-many-drivers)
 
  
 

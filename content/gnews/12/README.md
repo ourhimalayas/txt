@@ -2,27 +2,36 @@
 ---
 
 
-## 完全接种疫苗的格鲁吉亚网球明星因呼吸困难而退出悉尼杯比赛
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1839191/)
+## 球王乔科维奇坚持不打疫苗崇尚自然疗法
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1839230/)
 
-作者：意大利罗马达芬奇农场 – 阿娜
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台媒1月6日报道，世界网球名将、球王乔科维奇，预定参加澳洲网球公开赛，在抵达澳洲机场时，因无法出示疫苗豁免的证明文件，面临被澳洲当局遣返的处境。但是乔科维奇表示，宁可被驱逐出境，也坚决不打疫苗，原因在于他崇尚自然疗法。
 
-格鲁吉亚网球明星尼古洛兹-巴西拉什维利（Nikoloz Basilashvili）现年29岁，在世界网球运动员排名第22位。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/phpEpSVNm.jpg)
 
-1月8日，巴西拉什维利与希腊选手斯特凡诺斯-齐西帕斯（Stefanos Tsitsipas）的单打比赛中，由于呼吸困难，需要医生的治疗而被迫退出悉尼杯。
+乔科维奇在前年中共病毒疫情初期，就坚持在自己的国家塞尔维亚举办网球赛。虽然在赛中确诊感染患病，不但最后成功克服，而且至今依然保持世界第一的王座。
 
-澳大利亚的Nine.com报道，科林-弗莱明在斯坦体育的评论中说：“这是令人担忧的，我想说的是非常担忧。如果你觉得你在这种水平和这种强度下无法进行任何形式的深呼吸，这就是一个问题。”
+乔科维奇表示他认识一些人，可以通过能量转化和祈祷的力量，把最毒的食物和最污染的水，变成可以治疗疾病的良药。因此他坚信替代医学，崇尚精神治疗。
 
-有人听到巴西拉什维利告诉他的支持团队，“每一次挥拍我都喘不过气来”，然后告诉医务人员，他在 “挣扎着呼吸”。
+参考链接：
 
-
-
-关于巴西拉什维利的健康状况，目前仍无最新进展。据了解，巴西拉什维利已经接种了两次疫苗。去年，澳洲维多利亚州州长规定，所有来澳大利亚参加网球公开赛的球员必须全面接种疫苗。
-
-参考新闻🔗 [https://www.thegatewaypundit.com/2022/01/every-shot-cant-breathe-fully-vaccinated-tennis-star-nikoloz-basilashivili-drops-sydney-cup-due-breathing-difficulties-must-see-video/](https://www.thegatewaypundit.com/2022/01/every-shot-cant-breathe-fully-vaccinated-tennis-star-nikoloz-basilashivili-drops-sydney-cup-due-breathing-difficulties-must-see-video/)
+- [澳網》為何喬科維奇堅持不打疫苗？ 外媒揭：他崇尚金字塔](https://sports.ltn.com.tw/news/breakingnews/3791910)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Irene木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

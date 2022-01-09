@@ -2,34 +2,35 @@
 ---
 
 
-## 菲律宾下令抓捕违反居家令的未接种新冠疫苗者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839214/)
+## 加拿大军官呼吁调查2019武汉军运会期间爆发的“新冠”疫情
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839259/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
-外媒1月7日消息，随着奥米克戎使菲律宾感染人数增多，菲律宾总统近日命令，首都马尼拉的1300万未接种疫苗者必须呆在家里，除去必要的物资采购和锻炼，其余时间不得出门。若有违反，可以随意逮捕。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-593.png)
-新闻来源：
+#### 翻译/撰稿：zzballack
 
-[Philippines’ Duterte orders arrest of unvaccinated people who violate stay-at-home orders](https://www.theguardian.com/world/2022/jan/07/philippines-duterte-orders-arrest-of-unvaccinated-people-who-violate-stay-at-home-orders)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-8.jpg)图片来源：美联社
+据英国《每日邮报》（Daily Mail）1月8日报道，一位加拿大军官担心，在他于2019年10月参加武汉军运会时，也就是中共政府公开承认发现首个新冠病例的两个月之前，新冠病毒的起源地武汉就已经爆发了可疑疾病，并要求对此进行调查。
 
+这名军官因为仍在部队服役所以不能透露姓名，他与其他数十名运动员在参加了武汉军运会后病倒了。他说：“外国运动员当时发现这座拥有1100万人口的城市’像一座鬼城’。加拿大队的许多人受到了神秘病毒的困扰，以至于在他们回国的军用飞机上设立了一个隔离区。”
 
+这位军官现在仍受疾病的影响，一位军方指定的医生后来说他几乎肯定感染了新冠病毒。他的披露加剧了人们对中共政府掩盖新冠疫情的担忧，这次掩盖造成了毁灭性的后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
+参加了2019武汉军运会的法国、意大利、卢森堡和瑞典等国的一些运动员也有和这位加拿大军官的类似遭遇。德国排球运动员杰奎琳·博克（Jacqueline Bock）说，她和一些队友在武汉时生病了。“我从未感到如此的不适。要么是患上了非常严重的感冒，要么是新冠病毒。我认为是新冠。”意大利击剑运动员马泰奥·塔利亚里奥尔 (Matteo Tagliariol)：“在武汉时，我所在的公寓每个人都生了病，我之后也出现了高烧、严重咳嗽和呼吸困难，这些症状与新冠相同。”一位匿名运动员在武汉军运会结束后不久告诉记者，281名法国参赛者中“有许多人”生病了。报告还显示，伊朗参赛者在回国后不久就死亡。但官方对此的说法是，这些报告是高度推测性的，没有确凿的证据支持。
 
-总编：文特
+这位加拿大官员继续说：“我百分之百相信，当我们在武汉时，病毒就已经在那了。证明此事的责任在科学界和情报专家身上，而不是运动员。我承认我不是科学家，而且病毒也可能不是新冠病毒，但为什么每个人似乎都不愿意对此认真调查。大流行对每个人的生活产生了如此巨大的影响，数百万人死亡，经济停滞。为什么不进行尽职调查。难道是事情太大以致无法处理？”
 
-编辑：飞虹
+尽管加拿大军队的顶级医生否认病毒在军运会期间就已存在的说法，然而一位关系良好的加拿大消息人士告诉我，他们的情报专家怀疑这场大流行病可能要追溯到武汉的一个实验室，武汉有几个研究蝙蝠冠状病毒的研究中心。
 
-校正/发稿：浪迹天涯
+军官说：“168人的加拿大代表团于2021年10月15日抵达武汉，他们当时发现这个城市空无一人。所有的学校都关闭了，起重机没有开动，人和车辆也很少，这在我以前的军运会经历中从未发生过。8天后，加拿大运动员开始感到不适，出现类似流感的症状，如发烧、恶心和疲惫。我在军运会结束前开始出现症状，感觉非常糟糕，从机场开车回家时，不得不停下来，入驻一家酒店并睡了三天，疲惫症状持续了六周。“将近两年之后，他仍受此困扰，他认为这是新冠的长期症状。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+2020年初，大流行病的消息一出，许多运动员就讨论他们是否已经成为新病毒的早期受害者。尽管有人向军医提出担心，但并没有进行抗体的血清测试。1月22日，加拿大武装部队的总外科医生安德鲁·唐斯 (Andrew Downes)在一封备忘录中告诉运动员说，他们在武汉感染新冠的风险“可以忽略不计”，因为他们在“新冠病毒开始传播之前就已经离开了武汉”。然而加拿大直到2020年1月才开始检测新冠疾病，因此参赛者在回国时没有进行此项检查。
+
+这位军官说，在安德鲁·唐斯的备忘录发布之后，公共事务部门发来电子邮件，命令他们不要公开谈论他们的担忧，但他认为他现在有公开发声的义务。
+
+世卫组织的顾问孟天行(Jamie Metzl)说：“虽然不能确认武汉军运会是否是早期的超级传播事件，但跟踪调查这些线索是十分必要的。在我们明白这场可怕危机是如何开始的之前，不调查每一个线索是不明智和不可接受的，也是自取灭亡，因为它将整个世界和人类的子孙后代置于危险之中。”
+
+新闻来源：[REVEALED: Canadian military officer calls for a probe into a ground zero ‘Covid’ outbreak at Wuhan forces games TWO MONTHS before world was alerted to the ‘mysterious new illness’](https://www.dailymail.co.uk/news/article-10382127/Canadian-military-officer-calls-probe-ground-zero-Covid-outbreak-Wuhan-games.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

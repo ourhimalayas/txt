@@ -2,27 +2,33 @@
 ---
 
 
-## 到底啥情况？近1387万人口的天津市开始大规模核酸检测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1838980/)
+## 美联邦法官驳回 FDA 对 Vax 数据的 75 年延迟，将其缩短至仅 8 个月
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839035/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-12.png)（图片源自本文链接）
-日本雅虎网站1月9日消息：据彭博社报道，１月9日中共国首次报告了在天津市发生社区感染中共病毒（新冠病毒Covid-19）变异菌奥密克戎的病例，该市已开始大规模测试。
+撰文 : 新中国联邦静
 
-中共中央电视台（CCTV）在同一天报道说，在完成当地的基因组分析后，中国疾病预防控制中心（CDC）确认天津的两个病例为奥密克戎毒株感染。
+1月6日原告的律师 Aaron Siri 通过他的博客“注入自由”提供了这一惊人的更新，内文提到重点是要求 FDA 提供辉瑞提交的所有数据，而一位联邦法官坚决拒绝了 FDA 的要求，并命令 FDA 以每月55,000页的速度制作所有数据！
 
-两名感染者之一是一名儿童，两人在过去两周都没有离开过天津。该市已于１月8日晚发布这一消息。
+律师 Aaron Siri在赢得联邦法官的胜诉后声明 : 这是透明度的一大胜利，并消除了联邦“卫生”当局对独立科学家提供解决方案和解决当前疫苗计划的严重问题所需数据的束缚之一，这些问题包括免疫力减弱 、变种逃避疫苗免疫力的问题。 ，而且，正如 CDC 所证实的那样，疫苗并不能阻止传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-586.png)律师 Aaron Siri
+资料来源
 
-据中共新华社报道，天津市已宣布将于9日上午7点（格林尼治时间上午8点）开始大规模核查，以有效避免奥密克戎菌株的进一步扩散。
+[https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true)
 
-众所周知，想知道中共国的真实数字有多难！天津是直辖市，是各大都市，2020年的第七次人口普查中，天津市的人口为13866009人。既然有必要全市做核酸检测，实际感染状况只能靠大家自己去想象了。
 
-信息来源：[中国で初のオミクロン株市中感染報告、天津市で大規模検査開始－報道（Bloomberg） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/936d4d4bd85bb00554aff37e336b7ff3b22247fc)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+> I am pleased to report a federal judge rejected the FDA's request to produce the Pfizer Covid vaccine data at 500 pages per month and instead ordered a rate of 55,000 pages per month! Everyone should read the Judge's excellent 3-page decision available at [https://t.co/ziqCs9fA9J](https://t.co/ziqCs9fA9J)
+> — Aaron Siri (@AaronSiriSG) [January 6, 2022](https://twitter.com/AaronSiriSG/status/1479230040630251520?ref_src=twsrc%5Etfw)
 
+
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
