@@ -2,34 +2,48 @@
 ---
 
 
-## 新疆的暴行：维吾尔人在土耳其谴责112名中共国官员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1839708/)
+## 我們心中最大的魔就是用自己的標準去量所有人、比高低
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1839790/)
 
-编译：七龙珠
+G-TV視頻鏈接：[https://gtv.org/video/id=61da309a87664c47acd246fe](https://gtv.org/video/id=61da309a87664c47acd246fe)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ZH_TURK_Uygh.jpg)图片来源：asianews.it
+**郭文貴先生**:我真不知道已經十幾個小時了，從早上到現在，我是早晨5點20大家看到我聊一直到現在都沒有停，但是確實一直在興奮當中，一直控制這個上水下水，今天確實是水比較多。
 
-居住在土耳其的19名维吾尔人对中共国官员提起诉讼，他们认为中共官员犯有种族灭绝、酷刑、强奸和反人类罪。中共政府多次被指控对生活在新疆和中共国其他省份的穆斯林和讲突厥语的少数民族实施暴行。
+但是我今天和所有戰友們度過一個我覺得從2021年到2022年這個最關鍵的時間，我覺得爆料革命和新中國聯邦，包括人類的命運，我覺得2022年是人類的分水嶺。今天我這樣說你們都不覺得驚訝了，如果我一年前說，你們都覺得我神經病，是不是我誇張了、吹牛什麼的。
 
-该投诉已提交给土耳其总检察长办公室。据申诉者称，有116名维吾尔人，包括一些土耳其国民被关押在中共国的监狱里。他们要求起诉112名北京官员，包括几名中国共产党官员、监狱营长和监狱营官员。
+我從來沒想試圖說服過任何人，包括你七嫂，包括家人，我從來沒有過，因為人的緣分不是你能說服的了的，人和人之間的關係真的不是能靠嘴達到的。真正的人與人之間的信任和感情，絕對不是嘴能說到的。
 
-据联合国、一些人道主义组织和国际媒体报道，自2017年以来，中共国当局在集中营中关押了约180万来自新疆的维吾尔人、哈萨克人和吉尔吉斯人。这些指控是基于对北京官方文件的分析以及前被拘留者和狱警的直接证词。其中包括一系列侵犯人权的行为，如酷刑和其他非人道待遇、强迫绝育、强奸和强迫未成年人分离。
+很多過去的欺民賊偽民運他不懂這個道理，就人類這個靈性動物，他最終一定要看你行動的，最終就是以結果論，這就是動物和植物界的根本不同。那麼我們在一個地球上，我們大家面對著一個物質的世界和一個我們完全無法想象未知的星空，銀河系、太陽系，無限大的宇宙和地球之間一粒沙的關係，我們跟人之間相處的時候實際上是最複雜的。
 
-中共方面否认了所有指控，声称在新疆有职业培训中心的项目，用于减贫和打击恐怖主义及分裂主义。
+當今天我們看到同心同框的這麼多戰友的時候，有人說話多一點，有人說話少一點，有人激動一點，有人「水」多一點，有人「水」少一點，是不是？分男女，分老少，分長短，但是大家記住我們心中最大的魔就是比高低，而且這個高低誰定的？你自己定的，都是我們每個人用自己的標準去量所有人去。
 
-虽然土耳其法律规定的管辖权内，维吾尔流亡团体提起的诉讼不会有实际效果，因为中共国会拒绝合作。然而，这可能会对土耳其总统雷杰普-塔伊普-埃尔多安产生政治影响。大约有5万名维吾尔人生活在土耳其，土耳其政府被指控将维吾尔难民驱逐到中共国，以换取北京的财政援助，埃尔多安否认了这一指控。
+字幕來源:[2022年1月1日 文貴大直播 元旦特別節目「正道至善，除惡建邦」全文字版（四）](https://gnews.org/zh-hans/1816880/)
 
-由于他对中共国境内维吾尔人待遇的政策模棱两可，埃尔多安经常受到反对派的抨击。然而，在10月，安卡拉与其他42个国家签署了一份声明，谴责中共国的新疆政策，该声明后来被提交给联合国。这是土耳其行政部门首次认可这份文件。
+編輯整理:Jacques；
 
-**参考在资料：**[asianews.it][Atrocidades en Xinjiang: los uigures denuncian en Turquía a 112 funcionarios chinos](https://www.asianews.it/noticias-es/Atrocidades-en-Xinjiang:-los-uigures-denuncian-en-Turqu%C3%ADa-a-112-funcionarios-chinos-54849.html)
+字幕文件製作:小滿；
 
-* * *
+視頻製作及上傳:Cindy；
 
-*审核：Aries的星*
-*校对 : 信心满满*
-*发布：信心的选择*
+G-News發佈:小滿；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+**廣而告之****:****尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道****:**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+聲明:文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
+
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
+
+Discord:[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube:[日本銀河系農場](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News:[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+
+蓋特:[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特:[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV:[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
