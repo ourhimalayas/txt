@@ -2,44 +2,26 @@
 ---
 
 
-## 第203期玫瑰看新闻-国际热点新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1837850/)
+## 没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837901/)
 
-国际热点新闻
+作者：David Henry 、Noor Zainab Hussain，Anirban Sen
 
-1.美国国家安全指12家中企构成”隐患”列入黑名单
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-08-174935.png)图片来源：网络
+1 月 7 日路透社：在 1 月 14 日之前未接种 COVID-19 疫苗的美国花旗集团 (CN) 员工将休无薪假并在月底被解雇，除非他们获得豁免，根据路透社周五看到的一份公司备忘录。
 
-2.立陶宛力挺台湾：向世界展示抵抗中共国之道
+**评：**人类的历史告诉我们，当无知和恐惧占据上风，人们往往会做出错误的选择甚至是疯狂的行为。这次中共病毒大流行再次给世人展示了这样活生生的现实！权威的伪科学和贪婪的资本更使疫苗灾难荼毒全球。许多人们丧失了基本的常识与心智，盲从跟风和崇拜科学导致自身灾难的发生却全然不知，可悲可叹！
 
-3.美国务院公布台湾受邀白宫民主峰会中俄未在名单
+来源链接：[https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/](https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/)
 
-4.英吉利海峡移民船沉没至少27人丧生
+编辑/发布：LILY
 
-5.日本首相确认释放石油储备以回应美国的要求
-
-6.中共国迄今未对华盛顿的石油释放作出承诺，欧佩克+无动于衷
-
+20220108
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
-**推出问题，敲出真相，爆料在路上！**
 
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
 
  
 
