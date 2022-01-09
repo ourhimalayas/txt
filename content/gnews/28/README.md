@@ -2,12 +2,10 @@
 ---
 
 
-## 喜马拉雅之神必将回到喜马拉雅的山巅
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839195/)
+## 一位医师接受辉瑞疫苗之后的警示
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839242/)
 
 台灣寶島農場
-
-郭先生：人类将迎来真正的喜玛拉雅之魂，喜马拉雅之神必将回到喜马拉雅的山巅。
 
  
 

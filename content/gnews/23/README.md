@@ -2,10 +2,11 @@
 ---
 
 
-## 盖特的现况是共产党迫害我们的铁据
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839303/)
+## 谭德塞：奥密克戎传播和感染已接种疫苗的人
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1839412/)
 
-台灣寶島農場
+From（2021/12/21)
+[https://www.youtube.com/watch?v=UE6pTrTH4JM](https://www.youtube.com/watch?v=UE6pTrTH4JM)
 
  
 
