@@ -2,31 +2,40 @@
 ---
 
 
-## 2022/01/06 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1840674/)
+## 澳法官驳回联邦政府关于推迟与网球明星诉讼的申请
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1840703/)
 
-1. 1月6日，山西永济。中共随意捏造封城借口！永济高铁北站出站口闸机环境采样检测结果被通报为阳性，即将全城所有居民全部隔离在家，禁止外出流动。
-2. 1月5日晚7点，河南郑州新天地市场突然紧急封闭管控，商场所有人员不出不进！
-3. 1月5日，陕西咸阳兴平马巍街道，封锁房屋，禁止被隔离人员出入！
-4. 1月2日，陕西西安。因疫情缘由没有医院收治，女孩父亲突发心脏病被耽误治疗而去世。
-5. 1月3日，陕西西安。一位妈妈隔离点哭诉，“孩子饿到现在还没有吃饭”，自己生理期到处打电话求助无果。
-6. 1月3日，陕西西安。一小区业主因食物短缺多次翻墙外出购买食物，被防疫志愿者抓住后逼着在镜头前道歉检讨。
-7. 1月3日，上海新华医院儿童门诊排队挂号的场景，排队八九百号，医院前台也称罕见。
-8. 1月4日，广东深圳。疑似因在外卖群中抱怨该店出餐太慢，外卖骑手被店家掌掴。
-9. 1月2日，同样疑似订单超时问题发生冲突，一奶茶店员怒砸外卖员。
-10. 1月3日，山东济南。一骑手妈妈带孩子送餐快超时，孩子四处乱跑妈妈焦急怒吼。
-11. 1月3日，贵州毕节一在建工地发生山体滑坡，导致14人不幸遇难。
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Srpska-stvarnost-.png)图片来源：Srpska stvarnost
 
 
-* * *
+整理报道：小鱼儿
+编辑：Mttfly
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+根据澳洲新闻网1月9日报道，澳大利亚联邦政府正在争分夺秒地准备与诺瓦克·德约科维奇的诉讼。但是，联邦政府希望推迟诉讼的申请被法官驳回了。
 
+此前，内政部长卡伦·安德鲁斯向联邦巡回法院提出申请，将案件延期至周三审理。但安东尼·凯利法官驳回申请，该案仍按原计划在周一审理。
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+联邦政府要求推迟此案的原因，据信是由德约科维奇周六提交的法律文件引起的。在长达35页的呈件中，他的法律团队认为，澳大利亚旅行申报评估表明，德约科维奇符合进入澳大利亚的无检疫要求。但是他却没有得到程序上应有的公平对待。
+
+文件还显示，这位世界排名第一的网球运动员在12月16日的新冠病毒（Covid-19）检测呈阳性。他用PCR检测呈阳性的结果获得了进入澳大利亚的疫苗豁免。
+
+在周五举行的初步听证会上，澳大利亚网球协会的律师说，由于日程安排的原因，他需要知道德约科维奇是否能在周二之前参加澳大利亚网球公开赛（开始日期：1月17日）。
+
+贾斯汀·奎尔（Justin Quill）告诉先驱太阳报联邦政府可能的意图，他是来自大型律师事务所Thomson Geer的头号律师。申请延迟表明，联邦政府想通过启动延期程序来达到使德约科维奇错过比赛的效果。他说：“现在看来，这件事比联邦政府之前所预想的要棘手的多。”
+
+参考新闻：[Federal government’s bid to delay Novak Djokovic court case rejected](https://www.news.com.au/sport/tennis/federal-governments-bid-to-delay-novak-djokovic-court-case-rejected/news-story/abc6825e66663ddb8b5e9d2f48dccc59)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,27 @@
 ---
 
 
-## 中共房地产的崩塌会推进人类文明再次飞跃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840130/)
+## 泰国将对加密货币交易征收15%资本获利税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840135/)
 
 作者：银河勇气星 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月7日，郭文贵先生在直播中指出，中共即将崩塌的房地产金融将会重塑人类文明。
+当地时间1月6日，据有关媒体消息显示，泰国财政部一位工作人员近日透露，泰国将对加密货币交易征收15%的资本税，同时，当地政府还要求交易员为政府加强对加密货币的监控做好准备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-10.37.40-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.06.08-PM.png)
 
-郭先生解释，目前，中共利用房地产金融的债务问题做绑架，导致全球金融市场进退两难。长此以往，其势必会给西方国家，乃至全世界的经济带来巨大的打击。
+数据显示，自2021年以来，加密货币交易市场的规模和价值持续大幅增长。对此，根据修订的《税收法》，泰国税务局计划加强对加密货币交易的监督，当中，政府要求投资者应在今年报税时确定其加密货币的收入，从而避免因漏税被处罚。
 
-郭先生补充道，人类即将经历有史以来最严重的全球经济危机，而中共也会随着这次大劫难而走向灭亡。但郭先生认为，经历了疫苗灾难和金融危机后，全球经济会进入一个前所未有的加速反弹期。届时，人类社会，包括政治、经济，金融、资源等各个方面都会进行史无前例的重新大洗牌。同一时间，太空、新技术、5G、AI、数字货币也将会给人类带来财富的大爆发。
+据悉，泰国现阶段征税的对象面向各大加密货币交易所，散户投资者或采矿运营商尚且不在征税之列。
 
-郭先生表示，出乎中共意料的是，它用债务绑架全球经济并用房地产制造的金融危机竟然能够推动人类产生空前绝后的经济大反弹和文明大进步。
-
-郭先生戏称，中共之死的最大贡献，就是其骨灰变成了人类文明的肥料。
-
-參考鏈結：
-
-1. [2022年1月7日 文贵大直播：（3）香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
-2. [语音版：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](https://gnews.org/zh-hans/1836697/)
-
+參考鏈結：[Thailand’s Crypto Traders to Be Subject to 15% Capital Gains Tax: Report](https://www.coindesk.com/policy/2022/01/06/thailands-crypto-traders-to-be-subject-to-15-capital-gains-tax-report/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：文真 
-总编：飞虹 
+编辑：Kathy文艺
+总编：文特 
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
