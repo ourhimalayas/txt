@@ -19,6 +19,14 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@ianmcmath_china 1/9/2022 8:05 PM (UTC)`
+
+你好世界！
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@reliakar 1/8/2022 9:58 PM (UTC)`
 
 Even the stars were jealous of the sparkle in her eyes 💘
@@ -164,13 +172,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: The riots in Kazakhstan is an inevitable result of communism harming the world; behind the corruption of the Nazarbayev’s family is the CCP evil deeds of controlling Central Asia and Eastern Europe via the BGY scheme; What happened with Nazarbayev is a milestone for the New Federal State of China to participate in the affairs of Eastern Europe<br/><br/>1/07/2022 文贵直播：哈萨克斯坦的事件是共产主义祸害世界的必然；纳扎尔巴耶夫家族腐败的背后是中共用蓝金黄控制中亚和东欧；纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑<br/>
 ![img](https://media.gettr.com/group7/getter/2022/01/08/05/e79c2d01-918c-1b0e-8f35-8e506a1b16c2/out.jpg)
-
----
-
-`@miles 1/8/2022 5:18 AM (UTC)`
-
-1/07/2022 Miles Guo: The CCP has never anticipated that its use of debts to hold hostage the global economy and creating a financial crisis via the collapse of its real estate would propel humanity to an unprecedented massive economic rebound and advancement of civilization; the GETTR Pay's digital currency mogul praised the Himalaya Coin and the Himalaya Exchange<br/><br/>1/07/2022 文贵直播：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步；GETTR Pay的数字货币大佬对喜币和喜联储大加赞赏
-![img](https://media.gettr.com/group17/getter/2022/01/08/05/01a8483d-ca38-be55-eba5-7a110a298d79/out.jpg)
 
 ---
 
