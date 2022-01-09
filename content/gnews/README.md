@@ -15,92 +15,92 @@
 
 ---
 
-### [第203期玫瑰看新闻-新西兰新闻](/content/gnews/1/README.md)
+### [无耻之极的西安作协主席吴克敬](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [第203期玫瑰看新闻-新西兰新闻](/content/gnews/2/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [马化腾向美国顶尖大学捐赠数百万美元](/content/gnews/2/README.md)
+### [马化腾向美国顶尖大学捐赠数百万美元](/content/gnews/3/README.md)
  ` 首尔天池农场`
 
-### [【G时新闻】辉瑞公司在疫苗临床实验中犯有欺诈行为！](/content/gnews/3/README.md)
+### [有声|世界网球名将因疫苗豁免被澳洲拒绝入境](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [【G时新闻】辉瑞公司在疫苗临床实验中犯有欺诈行为！](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [难以想象：德国，成群的绵羊被组成巨大的注射器，以 &#8220;更好地传达信息&#8221;](/content/gnews/4/README.md)
+### [难以想象：德国，成群的绵羊被组成巨大的注射器，以 &#8220;更好地传达信息&#8221;](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|世界乱象是长期和平滋生的无信仰恶果](/content/gnews/5/README.md)
+### [有声|世界乱象是长期和平滋生的无信仰恶果](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|瑞典银行前CEO由于洗钱丑闻受到刑事指控](/content/gnews/6/README.md)
+### [有声|瑞典银行前CEO由于洗钱丑闻受到刑事指控](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [奥密克戎席卷英国 公共服务体系预警](/content/gnews/7/README.md)
+### [奥密克戎席卷英国 公共服务体系预警](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [习近平和冬奥会是权力集中大跃进和政治野心的独裁翻版](/content/gnews/8/README.md)
+### [习近平和冬奥会是权力集中大跃进和政治野心的独裁翻版](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|密歇根高接种率卫生系统爆发大规模染疫](/content/gnews/9/README.md)
+### [有声|密歇根高接种率卫生系统爆发大规模染疫](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [中共所有方法都失败后利用抖音来对付莫里森](/content/gnews/10/README.md)
+### [中共所有方法都失败后利用抖音来对付莫里森](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [人生一切皆空相是某种条件下的一个幻象,人生是黄粱一梦](/content/gnews/11/README.md)
+### [人生一切皆空相是某种条件下的一个幻象,人生是黄粱一梦](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [01/09/22 香港快讯 管浩鸣：陈同佳现身处偏远地方 研究以域外法权处理台湾杀人案](/content/gnews/12/README.md)
+### [01/09/22 香港快讯 管浩鸣：陈同佳现身处偏远地方 研究以域外法权处理台湾杀人案](/content/gnews/14/README.md)
  ` 英喜-粵語組`
 
-### [DC每日热点0109](/content/gnews/13/README.md)
+### [DC每日热点0109](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|朝鲜致函称因疫情无法参加北京冬奥会](/content/gnews/14/README.md)
+### [有声|朝鲜致函称因疫情无法参加北京冬奥会](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [战友们之间要珍惜不要互掐，把自己救了就等于救所有人](/content/gnews/15/README.md)
+### [战友们之间要珍惜不要互掐，把自己救了就等于救所有人](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [山下传来女人的哭救声](/content/gnews/16/README.md)
+### [山下传来女人的哭救声](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [WHO呼吁公众加紧预防奥密克戎变种](/content/gnews/17/README.md)
+### [WHO呼吁公众加紧预防奥密克戎变种](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [泰国将对加密货币交易征收15%资本获利税](/content/gnews/18/README.md)
+### [泰国将对加密货币交易征收15%资本获利税](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [新锐社交媒体盖特荣登媒体游戏规则改写者](/content/gnews/19/README.md)
+### [新锐社交媒体盖特荣登媒体游戏规则改写者](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [中共房地产的崩塌会推进人类文明再次飞跃](/content/gnews/20/README.md)
+### [中共房地产的崩塌会推进人类文明再次飞跃](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [人类处在有无信仰的PK和人类各种主义PK以及轮回时刻](/content/gnews/21/README.md)
+### [人类处在有无信仰的PK和人类各种主义PK以及轮回时刻](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|朝鲜以疫情为由宣布不参加北京冬奥会](/content/gnews/22/README.md)
+### [有声|朝鲜以疫情为由宣布不参加北京冬奥会](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [1/9银河快讯:东京22政年初步预算约为7.8万亿日元；世博会投标延迟和材料成本上升](/content/gnews/23/README.md)
+### [1/9银河快讯:东京22政年初步预算约为7.8万亿日元；世博会投标延迟和材料成本上升](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [习近平要保就业红线储备一年半粮准备死人一亿到一亿五](/content/gnews/24/README.md)
+### [习近平要保就业红线储备一年半粮准备死人一亿到一亿五](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共挑动哈国动乱将引爆世界革命的火药桶](/content/gnews/25/README.md)
+### [中共挑动哈国动乱将引爆世界革命的火药桶](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党护房地产盘和菜蓝子盘子是护它自己的安全和未来](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【中日财经爆】国内餐饮纷纷涉足元宇宙，引流还是圈钱？](/content/gnews/27/README.md)
+### [【中日财经爆】国内餐饮纷纷涉足元宇宙，引流还是圈钱？](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美加澳印日韩六国在关岛举行反潜联合军演 剑指中共](/content/gnews/28/README.md)
+### [美加澳印日韩六国在关岛举行反潜联合军演 剑指中共](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
-
-### [开年热门新盘仅成交一套，深圳炒房之都前景不妙](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [俄罗斯害怕哈萨克斯坦发生“颜色革命”急忙派兵平乱](/content/gnews/30/README.md)
  ` 日本东京方舟农场`

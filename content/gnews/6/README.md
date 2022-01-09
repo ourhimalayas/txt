@@ -2,41 +2,39 @@
 ---
 
 
-## 有声|瑞典银行前CEO由于洗钱丑闻受到刑事指控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1840284/)
+## 难以想象：德国，成群的绵羊被组成巨大的注射器，以 &#8220;更好地传达信息&#8221;
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1840324/)
 
-配音：香草山佛教部 – 李傻
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-20.png)
+据美联社报道，为了民众对接种危险的实验性基因疗法的配合度，德国政府用 “零碎的面包 “来训练700多只绵羊和山羊排队集合，形成一个330英尺长的注射器的形状。
+
+据德新社报道，牧羊人Wiebke Schmidt-Kochan花了几天时间与她的动物们进行练习。但她说，事情并不难解决–她把面包片铺成注射器的形状，当羊和山羊被放出来时，它们狼吞虎咽地吃了起来。
+
+组织者Hanspeter Etzold说，这次行动是针对那些仍在犹豫是否接种疫苗的人。羊是如此可爱的动物–也许它们能更好地传递信息。
+
+尽管越来越多的证据验证了实验性中共病毒（Covid）疫苗的危险性和无效性，“但那些尚未接种疫苗的人看到组成被注射器图案的羊群后，也许会改变主意”Etzold猜测。
+
+12月2日，德国宣布在全国范围内对未接种疫苗的人实行封锁。
+
+未接种疫苗的德国公民被禁止进入除超市和药店外的所有室内场所。
+
+周一，估计有35000人走上街头，抗议对健康和医疗自主权的法西斯式攻击。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-瑞典银行前首席执行官（CEO）Birgitte Bonnesen因试图掩盖该银行在爱沙尼亚的问题而被检控，罪名包括欺诈和市场操纵。 郭先生曾披露，此次洗钱调查所涉及的财富，大多数是中共盗国贼的非法资产。
+[新闻来源链接](https://www.thegatewaypundit.com/2022/01/cant-make-flocks-sheep-assembled-form-giant-syringe-germany-get-message-across-better/)
 
-Bonnesen从2016年起领导这家瑞典最古老的银行，直到19年被其董事会解雇。瑞典经济犯罪局首席检查官Thomas Langrot称，Birgitte Bonnesen在任时多次发表误导性言论，暗示瑞典银行在爱沙尼亚运营中不存在洗钱行为。
+审核校对：sherryok (水云间)
 
-美国司法部和联邦调查局正在对瑞典银行和丹麦最大的银行丹斯克银行进行民事和刑事调查。数千亿欧元的高风险付款，流经上述银行波罗的分支机构而导致洗钱丑闻。瑞典银行委托Clifford Chance律师事务所进行调查。调查报告显示2014至2019年，该行至少处理了370亿欧元的高风险付款。另一份银行内部报告显示2008-2013年，银行经手了800亿欧元可疑交易，大部分源头来自俄国和前苏联国家的非居民企业账号。
-
-在丹斯克银行因2000亿欧元洗钱丑闻受到调查后，Bonnesen于2018年告诉记者，瑞典银行调查了和丹斯克银行的业务往来，并产生了一份内部保密报告，这份保密报告的内容并未揭示任何警示信号。
-
-银行董事会在2020年3月取消了Bonnesen的解聘补偿金，但决定不对Bonnesen和她的前任Michael Wolf采取法律行动（Wolf于2009-2016年任CEO）。
-
-文字版原文：[瑞典银行前CEO由于洗钱丑闻受到刑事指控](https://gnews.org/zh-hans/1833000/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：漂流瓶
 
  
 
