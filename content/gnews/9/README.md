@@ -2,41 +2,44 @@
 ---
 
 
-## 中共挑动哈国动乱将引爆世界革命的火药桶
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1840069/)
+## 战友们之间要珍惜不要互掐，把自己救了就等于救所有人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840155/)
 
-**【雅典娜观察】与您一起洞察世界**
+G-TV视频链接：[https://gtv.org/video/id=61da37ab87664c47acd24e0a](https://gtv.org/video/id=61da37ab87664c47acd24e0a)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/xxxxx.png)图片来源：twitter
+**郭文贵先生：**那么我们兄弟姐妹要想到，就这你们之间还互相掐呢，是吧？村长是特务，老班长是特务，Q May、唐平、青藤你们现在拉出来已经成立了磐石农场，恭喜你们。还有现在我们文耀成立叫纽伦堡农场，恭喜你们，这是非常好的。恭喜纽伦堡农场，德国的文耀同志成立的，恭喜唐平、青藤、威廉王、Q May等成立的磐石农场，非常好。
 
+战友们，多成立农场没有问题，但是咱们之间要珍惜呀，说老实话，现在你们就别担心太阳和月亮的事儿了，你只是宇宙无限大，地球是一粒沙，你是一粒沙中的沙中的沙，你就别担心太阳的事儿了，你担心不了，尽力而为就算了。
 
-据郭文贵先生的重磅爆料，目前发生在哈萨克斯坦的动荡，中共是幕后黑手。原因是习近平与王岐山两派的政治斗争所引起。
+像台湾的很多战友问我，很多朋友说：你看我买那么多喜币，七哥，接下来我怎么办？我说你现在怎么办知道吗？我告诉你最简单的一句话，如果打仗的时候，你赶快跑，能跑出去就行。第二个现在我说，你什么别老想着帮别人了，你把自己救了，就等于救了所有人。我们今天在这个屏幕面前的战友们，活着是你现在赢下去唯一的最后的结果，你死了就一切完球蛋。
 
-一带一路的战略的推动是中共勾连了内亚政治实体，他们的关系本质不是国家政府之间的关系，而是一种当权者之间的人身关系。基于中共的帮派本质，为抢夺王岐山存放在哈萨克斯坦的500顿黄金成为了与关系国家政治门阀反目的示范效应。这足以震撼与中共有着类似关系的它国当权者。
+字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
 
-中共有一个不能說出口的秘密，其希望用经济投资与利益交换中亞國家不要支持东突厥斯坦独立运动，並协助那些他们所谓的新疆分裂分子。当前哈萨克斯坦所辖领土的很大一部分曾经是清帝国的版图，后来被沙俄肢解侵吞其边境与中共国的伊犁一带接壤。这一地带人口共同为自突厥人。
+编辑整理：Jacques；
 
-当前阿富汗与哈萨克斯坦境内的动荡所产生的革命风暴因子，有可能逐渐扩大延烧面积，使内亚包括俄罗斯在内均有可能波及。据郭文贵先生称，俄罗斯这次站在中共一边让纳扎尔巴耶夫交出黄金给习近平，估计普京也是嗅到了邻国可能掀起的颜色革命对于俄罗斯民众的示范效应将意味着什么样的风险。目前俄罗斯、白俄罗斯等四国已经派出了维和部队进行维稳，这已经说明了这些类独裁国家对于颜色革命的恐惧程度，以及当前内亚当前的地缘局势和权力结构。
+字幕文件制作：小满；
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/wangyi.jpg)图片来源：网易
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-对于当前周边泛突厥语系的穆斯林国家的当权者绝对不想看到这样的动荡发生自己境内。随着中共帝国行将倒塌的形势面前，原先因为利益与中共勾连在一起的地区势力，必将与中共逐渐脱离。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-随着习近平的内外交困，特别是经济的即将崩溃，军队的分离主义必将浮上台面，这势必将削弱习近平对于边疆地带的控制力。在新疆原本被压迫蛰伏的“突厥主义独立运动因子”必将重新复燃。与中共从亲密到交恶的周边国家必将施加他们的影响力，将更加激发新疆的分离主义势力的崛起。更重要的是基于这一地区地缘的重要价值，这次美国也必将投射其影响力。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-纳扎尔巴耶夫既然能说出“习近平敢动我我就弄死他”，必定不是信口开河。其可能主要是基于与新疆接壤继而能投射边境社会的影响力。这将成为中共的软肋。在清帝国统治时，伊犁就曾爆发过穆斯林反抗清殖民统治的起义活动，并波及了整个新疆和陕西甘肃地区。只是目前的时机还没有成熟而已。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-哈萨克斯坦的动荡，随着中共的最终倒台必将发全世界范围内的制度性与秩序性的革命。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*发布：Mttfly*
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

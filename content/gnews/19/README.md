@@ -2,15 +2,15 @@
 ---
 
 
-## 疫苗大灾难
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839884/)
+## 美丽圣洁的蓝莲花
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1840036/)
 
 ——文贵大直播20220109
 
-撰稿：MyWay/莲心不染/坐看云起时（扬帆） 火来（香草山）
+撰稿：Poplar（盘古）
 
 美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-2.png)
 *发布：Theodosia*
 
  

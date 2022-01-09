@@ -2,44 +2,52 @@
 ---
 
 
-## 战友们之间要珍惜不要互掐，把自己救了就等于救所有人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840155/)
+## 中共所有方法都失败后利用抖音来对付莫里森
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1840250/)
 
-G-TV视频链接：[https://gtv.org/video/id=61da37ab87664c47acd24e0a](https://gtv.org/video/id=61da37ab87664c47acd24e0a)
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-19.png)
+中共对澳大利亚的斯科特•莫里森（Scott Morrison）想尽了办法，澳大利亚总理是中共的一个噩梦。
 
-**郭文贵先生：**那么我们兄弟姐妹要想到，就这你们之间还互相掐呢，是吧？村长是特务，老班长是特务，Q May、唐平、青藤你们现在拉出来已经成立了磐石农场，恭喜你们。还有现在我们文耀成立叫纽伦堡农场，恭喜你们，这是非常好的。恭喜纽伦堡农场，德国的文耀同志成立的，恭喜唐平、青藤、威廉王、Q May等成立的磐石农场，非常好。
+因为莫里森首先开始谈论中共对中共病毒（Covid-19）大流行的管理不善。其次，莫里森站出来反对中共侵犯人权和对台湾的侵略。
 
-战友们，多成立农场没有问题，但是咱们之间要珍惜呀，说老实话，现在你们就别担心太阳和月亮的事儿了，你只是宇宙无限大，地球是一粒沙，你是一粒沙中的沙中的沙，你就别担心太阳的事儿了，你担心不了，尽力而为就算了。
+中共试图通过对澳大利亚大麦、葡萄酒和肉类征收严厉的关税来惩罚澳大利亚。中共甚至对澳大利亚的煤炭实施了非官方禁令，但这并没有伤害到澳大利亚。
 
-像台湾的很多战友问我，很多朋友说：你看我买那么多喜币，七哥，接下来我怎么办？我说你现在怎么办知道吗？我告诉你最简单的一句话，如果打仗的时候，你赶快跑，能跑出去就行。第二个现在我说，你什么别老想着帮别人了，你把自己救了，就等于救了所有人。我们今天在这个屏幕面前的战友们，活着是你现在赢下去唯一的最后的结果，你死了就一切完球蛋。
+事实上，由于与堪培拉的贸易战，受影响的是中共国。而现在，中共已经走投无路了。甚至利用抖音（TikTok）作为武器来伤害莫里森的政治利益。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+**针对澳大利亚莫里森的抖音活动**
 
-编辑整理：Jacques；
+据报道，一家自称为工党工作的营销公司提供300美元来制作反莫里森的内容。
 
-字幕文件制作：小满；
+Crikey声称获得了Vocal Media的电子邮件和活动简报，Vocal Media是一家位于美国的营销公司，有与左倾政治和非营利组织合作的经验。
 
-视频制作及上传：Cindy；
+这封邮件是发给一个抖音用户的，其主题栏写着：”有偿抖音机会，澳大利亚工党”。该邮件提供300美元，用于制造一个”基于’斯科特•莫里森‘太慢了、总是迟到’这个主题的抖音视频。
 
-G-News发布：小满；
+一份题为 “澳大利亚工党x VOCAL创意简介 “的链接文件为创作者提供了指示。它指出，”这项活动旨在帮助改变抖音上的政治话语[……]，这与他的基本性格有关，即不急于关心，而是等到事情变得非常糟糕时才去处理他的工作。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**抖音一直是个有争议的应用程序软件。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+特别是在那些试图对抗中共扩张主义的国家。2020年，在中印紧张局势加剧，以及中共国应用程序带来的安全风险下，印度禁止了抖音应用程序和其他几个中共国的应用程序。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+在中国，抖音占据大部分市场。但也因一些事件而招致很多批评。包括一名24岁男子因在抖音上穿女装而被嘲弄后自杀。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+该应用程序还面临着含有色情内容和使儿童接触敏感内容的指控。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+印度尼西亚也曾因抖音含有 “色情、不适当的内容和亵渎神明 “而被暂时禁止。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+美国前总统唐纳德•特朗普也曾特意就抖音问题向中共提出质询。唐纳德•特朗普甚至发布了禁止抖音的行政命令，但他的继任者乔•拜登于去年6月撤销了特朗普对中共国应用程序抖音和微信在美国的禁令。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+拜登一直对中共心存芥蒂，他放弃了特朗普对中共的所有强硬行动。抖音禁令的撤销并不令人惊讶。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+澳大利亚不能让中共干涉其政治制度。现在是澳大利亚禁止抖音的时候了。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+
+[新闻来源链接](https://tfiglobalnews.com/2022/01/04/china-deploys-tik-tok-against-morrison-after-all-else-fails/)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 
