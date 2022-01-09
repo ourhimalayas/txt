@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 12:52 AM (UTC)`
+
+1/07/2022 Miles Guo: The intelligence and truths delivered by the New Federal State of China have gone far beyond than what the intelligence networks of various countries and the mainstream media have done thanks to the efforts made by the hero fellow fighters in Communist China; I was the first to say that Chen Quanguo didn’t get demoted but was instead going to be promoted; the Communist Youth League faction has come back, and Chen Quanguo and Hu Chunhua are the “killer weapons” of Xi Jinping<br/><br/>1/07/2022 文贵直播：新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出；文贵最早说出陈全国不降反升；共青团派已回归，陈全国和胡春华是杀器<br/>
+![img](https://media.gettr.com/group32/getter/2022/01/09/00/fa108e55-5416-f82c-1c88-e4fd818b0837/out.jpg)
+
+---
+
 `@miles 1/8/2022 9:25 PM (UTC)`
 
 1月8号：衷心地感谢文星战友制作的精美⋯接地气的视频！【七哥🙏之东北二人转摇滚之武侠滚地刀篇😃🙏🌽】🌽🌽🌽🌽🌽🌽🌽🌽
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥11
 ![img](https://media.gettr.com/group31/getter/2022/01/07/19/c754dfc0-d927-8316-d3a2-f10775ae9609/9f348bff4636424e105759fb0ef18c73.jpg)
-
----
-
-`@miles 1/7/2022 7:05 PM (UTC)`
-
-1月7号：雪中的G翻身……G FASHION……🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥10
-![img](https://media.gettr.com/group31/getter/2022/01/07/19/3dc05d2e-4958-c098-2bc8-ee5a02b8a637/102412b9ecba292babd4fc416d3ab088.jpg)
 
 ---
 
