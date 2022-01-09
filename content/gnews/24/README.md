@@ -2,23 +2,25 @@
 ---
 
 
-## 西安：人祸灾难大于病毒威胁！
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1838598/)
+## 有声|GTV新闻访谈简报|2022年1月6日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838616/)
 
-撰稿：菜园子112～尕虎
-![](https://assets.gnews.org/wp-content/uploads/2022/01/903.jpg)图片来自网络
-如今西安在抗疫的大形势下，表现却无任何可圈可点之处，成了名副其实的《废都》。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
+文字版原文：[GTV新闻访谈简报|2022年1月6日晚](https://gnews.org/zh-hans/1831143/)
 
-老百姓买菜出问题，大院却供应充足，品种齐全。不比不知道，一比吓一跳，难怪考公务员火上天，关键时候，能救命啊。一码通说崩就崩，连个招呼都不打，不像文化名城的风格啊。谁说志愿者不是官？想管就管，想打就打，穿上防护服，带上小袖章，威风八面，不请自来。这都不是事，现在连救死扶伤的医院，都见死不救了。倘若你直接关停也好，老百姓还有自救，毕竟，过去没有医院，还是可以生孩子的啊！
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-这次西安抗疫，因为不作为、一刀切政策已经造成两人死亡、两名妇女流产，甚至一名孕妇在警察用派出所名义担保后医院才同意手术，但因为耽误的太久，还是流产了。这只是被动暴露出来的案例，实际造成了多大问题现在还是个未知数。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-人们常把天灾人祸连在一起，但我觉得天灾和人祸是截然不同的两件事，天灾不可怕，毕竟相对大自然来说，我们是渺小的，尽力而为，听天由命。但很多时候，很多人却以人民的名义，以大多数人的利益，制造了一起又一起人祸。
-
-注：文章内容部分内容引用自墙内网友
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
