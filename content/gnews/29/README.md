@@ -2,47 +2,47 @@
 ---
 
 
-## 魁北克省发生大规模抗议示威——抗议者聚集在蒙特利尔
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1840550/)
+## 王滨落马，是习王斗的升级
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1840551/)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片11-2.png)图片来源：TVA新闻
-**数百名示威者参加了周六下午在蒙特利尔老城举行的反对卫生措施的集会**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片12-2.png)
-TVA新闻（TVA NOUVELLES，Agence QMI， 2022 年 1 月 6 日）发表题为《反对卫生措施的抗议者聚集在蒙特利尔》的文章。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片13-2.png)
-示威者打着 “我们的自由是必不可少的”，“自由必胜”的标语。示威者中有加拿大人民党领袖马克西姆·伯尼尔 (Maxime Bernier)，自大流行开始以来，他就积极参加这种类型的集会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片14-3.png)
-“这里有很多人，他们为自由而战，他们敢于对勒戈Legault （魁北克省长弗朗索瓦·勒戈（François Legault））和任何侵犯我们权利和自由的暴君说不，我们将战斗到胜利的那一刻，自由最终总会胜利，”伯尼尔先生在他的推特账户上发布的一段视频中说道。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片15-2.png)
-反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）也参加了集会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片16-2.png)
-魁北克 Pro Choix 团体也是 1 月 1 日在魁北克省长弗朗索瓦·勒戈（François Legault）驻蒙特利尔的办公室前举行的抗议宵禁的示威集会的组织者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片17-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片18-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片19.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片20.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片21.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片22.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片23.png)
-日前，TVA新闻（TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique， 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。魁北克省战略传播顾问，让·拜尔拉贡Jean Baillargeon，在文章提议，筛查出未接种疫苗的人应该是我们现在要做的首要事项。只有这样才能平息那些已经接种了两剂（针）或三剂（针）疫苗的，处于长达两年封锁状态的，人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。让·拜尔拉贡还提到，魁北克省政府很快会针对未接种疫苗的人群采取进一步措施。一些政客提议针对医疗费用征收“疫苗税”。另一些人则希望采取措施限制某些公共服务的使用，例如魁北克省酒业协会 (SAQ) 或魁北克省大麻协会(SQDC) 要求在入口处出示疫苗接种护照。让•拜尔拉贡最后提议，我们应该参照一些国家的方法，比如新加坡和奥地利，要想结束对90%人口的大范围限制，我们先限制（10%）未接种疫苗的人。例如在所有公共服务中都要求出示疫苗接种护照，如果他们不遵守这个规则就对他们处以罚款；未接种疫苗的人如果被感染并住院，应当向他们收取住院医疗费用。
+撰稿：Henry Pang
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010902.jpg)图片来自网络
+刚过元旦，中国人寿集团董事长王滨被抓，可谓一石激起千层浪 。
 
-另外，蒙特利尔日报（吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44）还报道，从 1 月 18 日起，未接种疫苗的人将无法再进入魁北克省酒业协会 SAQ （一家政府垄断的公司，其职责是在魁北克省全境经销酒精饮料）和魁北克省大麻协会 SQDC （SAQ 的子公司，其职责是管理魁北克省全境的大麻销售）的所有的分支机构。魁北克省很快还将对美发沙龙等其他非必要业务实施疫苗护照。
+王滨最近的一次公开亮相是在2021年12月29日。当日，中国人寿集团旗下广发银行理财子公司揭牌，王滨参加活动。
 
-文章编译及评论人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
+盘点王滨的履历，他最初任职于政府部门，1983年7月至1985年7月先后在黑龙江省商业厅和体改委工作。1985年7月至1990年9月他历任黑龙江省政府办公厅副科长、正科级秘书、副处级秘书。
 
-## **图片来源：**
+1990年9月，他调任中国人民银行黑龙江省分行办公室副主任（正处级）。1991年6月，他出任中国人民银行办公厅秘书处正处级秘书、处长。
 
-1. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，[Des manifestants contre les mesures sanitaires réunis à Montréal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)，[https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-2. [Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU) https://www.youtube.com/watch?v=-frZut0SbaU
+1993年王岐山出任人民银行副行长，王滨和王岐山有了第一次交集。王滨得到了王岐山的赏识，被派去参与中国农业发展银行的筹备和成立。农业发展银行是王岐山的后花园，王滨从1993年12月开始，历任筹备组办公室负责人，筹备组办公室主任。94年农发行挂牌后，王滨被任命为江西省分行副行长，紧接着就任行长。王滨从此就摆脱了秘书的行业，进入了金融实权体系。
+
+2000年，王岐山把王滨调入北京，任交通银行北京分行副行长，短期出任天津分行行长，回来后就任北京分行行长。2005年5月进入总行，出任交通银行副行长，2010年6月，王滨同时担任交通银行执行董事、副行长。
+
+2012年3月，王滨出任中国太平保险集团党委书记、董事长。那个时候他已经是王岐山的金融左右臂，也是金融界的风云人物之一。
+
+王滨的落马线索可以追溯到2018年王健之死及孟宏伟被抓。
+
+孟宏伟作为王岐山在公安部的一个比较亲近的人，私下一直与王岐山保持密切联系。作为王岐山喽啰的王滨对此心知肚明。因此主动把孟宏伟的妻子高歌拉入太平洋保险，给她安排了董事会办公室总经理的职位，兼任金融控股公司副总经理，可谓贴心照顾。
+
+孟宏伟被抓其实不是因为遣返郭先生不力，而是因为他牵涉到王健被杀案。王健的被杀，整个组织、安排，孟宏伟虽然没有直接参与，但他心知肚明，而且提供了帮助。
+
+由于王岐山狗贸然动用安全部的力量海外杀人，而把习蒙在鼓里，让习觉得很不舒服，而且也感到了危险性，于是调动力量进行了调查，孟宏伟在被调查的名单上。这也是孟宏伟后来被调回北京抓捕的原因。
+
+王健事情发生后，王滨听到一点风声，但他还不能肯定是王岐山直接下令杀人，因此没放在心上。
+
+但很快，9月份，王滨就被转任国寿集团董事长、党委书记，他感觉很不对劲，接下来孟宏伟被抓，王滨非常紧张，因为他知道他和孟之间的关系脱不了干系。他去找王岐山探口风，王岐山叫他放心，有我老王在就有你王滨在。
+
+据接近王滨的人说，自从王滨调任国寿后，整个人好像都变了，平时看不到他人，所有工作都交给副总裁杨丽平去负责。
+
+从2018到现在三年多了，他其实一直忐忑不安。
+
+现在习近平终于动他，因为知道王滨是王岐山的金融左右臂。不管如何，只要他还不想和王岐山撕破脸，那么也不会动王滨，因为王滨没多长时间将要退休。而这次动他，也意味着习与王之间已经进入白刃战。
+
+注：本文根据有人内幕消息原创
 
 
-**参考资料**：
-
-1. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，[Des manifestants contre les mesures sanitaires réunis à Montréal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)，[https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-2. [Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU) [https://www.youtube.com/watch?v=-frZut0SbaU](https://www.youtube.com/watch?v=-frZut0SbaU)
-3. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， [«Dépistons et confinons les non-vaccinés»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
-4. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， [Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)，[https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
-
-
-编辑/发布：LILY
-
-20220109
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
