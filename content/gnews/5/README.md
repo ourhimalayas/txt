@@ -2,41 +2,43 @@
 ---
 
 
-## 有声|安妮日记2022-逃离新冠疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841096/)
+## 特德-克鲁兹为何加入“沼泽地”攻击1月6日爱国抗议者（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1841122/)
 
-配音：香草山设计部 – 喜马拉雅大喵儿
+翻译：The word
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-09-231626.jpg)图片来源：banned.video
 
+但我们知道，联邦调查局的人在那里，并负责该行动。人们都说：“嘿，我们都知道。我们都知道，亚历克斯，你为什么一直在谈论它？你看，全国的每个频道都在谈论这个问题。你看到每个节目和每个广播都在说新的威胁和新的恐怖分子是中西部人、德克萨斯人、牧场主、退伍军人、农民和枪支所有者。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+而他们是在宣传进行军事戒严，新冠病毒的封锁只是一次训练，那么它的目的就是要让那些不想被关起来的人，进行反击，然后把他们称为恐怖分子。而这正是在去年6月的国家恐怖主义计划中，成为了我们国家的官方政策。想象一下，如果俄罗斯宣布他们的头号威胁是自己的人民。人们会说那是一个专制国家。或者如果中共宣布头号威胁是人民，而他们实际上就是这么做的。
 
+这就是独裁者的所作所为。这就是专制制度的做法。这就是你生活在一个独裁制度下的典型。听听卡玛拉-哈里斯是怎么说的，这个在竞选初选时得到的民主党选民不到半个百分点支持的女人告诉你，他们正在与那些试图压制他们的声音的人作斗争。而且，他们骗来的几百人与警察打架，以及随后被招进首都的有500人左右，他们的所作所为是在试图让人们闭嘴。是左派烧毁了城市。是左派封锁了所有人的言论。这是大科技公司和企业夺走了数百万人的银行账户和PayPal，就因为他们是枪支所有者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
-原文链接：[安妮日记2022-逃离新冠疫苗](https://gnews.org/zh-hans/1830885/)
+现在是纳斯卡在说，好吧，我们可能不会让有人在他们的车上标注 “let’s go Brandon”。哦，我们可能不会让世界网球冠军进入澳大利亚，因为他没有打疫苗。这就是压迫。这都是经典的暴政，加上科幻小说的调料。但是，卡马拉-哈里斯在这里是向世界发出信号，告诉你告诉所有人，我们才是那些把人们的嘴闭上的人，因为我们想让参议院进行为期10天的调查，这是法律规定允许的。
 
-音频处理：喜山必胜Maverick
+而特德-克鲁兹的功劳,他确实投票支持了这一做法。他是做这件事的参议员之一,现在他在退缩。
 
-**编辑/发稿：**Daxia
+没有法院进行过调查,没有人调查过。他们只是说，好吧，民主党人从这七个州得到了同意令，所以他们将接受没有签名或确认的选票。因此，这就是它的方式。我们就让它随便通过，并对它进行认证。而乔治亚州重新在定点地区进行了选举调查，并重新运行了完全相同的计算机程序。并说哦，看，已经调查完了。但是，当你在亚利桑那州做了一个真正的审计，一个抽样审计。它显示，仅仅在一个县的抽样审计中，川普就在此大获全胜，我们都知道这就是现实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+卡玛拉-哈里斯是这样说的：“当时和现在的利害关系是，让我们的未来以宪法规定的方式，由我们—人民—所有人民决定。我们不能让我们的未来由那些一心想要压制我们的声音、推翻我们的投票、兜售谎言和错误信息的人决定，这些人可能是刚刚重新出现的，但其根基却很深。”
 
-**更多资讯，更多关注**
+而她的家庭，包括她的父亲，完完全全的，在牙买加使用奴隶劳工。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我需要把一件事情说清楚，我们不能随便的去攻击别人，比如今天我们可以批判特德-克鲁斯的这个行为，但不能把他称作敌人。因为我们知道的信息太少了。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+现在要去分辨谁是坏人有一个简单的法则那就是——中共是坏人，希望强制打疫苗的人是坏人，当然这个法则不是百分之百的准确，但我这里有一条百分之百准确的话可以告诉你，那就是：你不知道的事情永远比你知道的事情更重要。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻来源：[banned.video] [Exclusive: Learn the Secret of why Ted Cruz Joined the Deep State Ahead of Massive False Flag](Learn%20the%20Secret%20of%20why%20Ted%20Cruz%20Joined%20the%20Deep%20State%20Ahead%20of%20Massive%20False%20Flag)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+接上篇：【特德-克鲁兹为何加入“沼泽地”攻击1月6日爱国抗议者（一）】
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*审核：Aries的星
+校对：信心满满
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
