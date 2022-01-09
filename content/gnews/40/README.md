@@ -2,45 +2,34 @@
 ---
 
 
-## 美国月度贸易逆差飙升至接近历史新高
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1836791/)
+## 美驻日大使称中共不是好邻居
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1836984/)
 
-编译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-20.jpg)2021 年 4 月 9 日，在迈阿密港口的起重机附近看到货物集装箱堆放。（Wilfredo Lee / AP）
-美国 11 月贸易逆差飙升至接近历史新高的 802 亿美元，原因是出口放缓，同时进口大幅跃升。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月6日，据相关媒体报道，即将上任的美国驻日本大使易曼纽在接受日本媒体采访时直截了当地表示，中共不是日本的好邻居。
 
-美国商务部周四报告称，11 月赤字比 10 月赤字 672 亿美元高出 19.3%，略低于 9 月创下的 814 亿美元月度纪录。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpeg)
 
-11 月，美国人从其他国家购买的商品进口增长 4%，至 3044 亿美元，而美国出口到海外的出口仅增长 0.2% 至 2242 亿美元。
+易曼纽解释道，美日两国拥有民主这一共同价值观，因此才能共同为亚太地区的发展做出贡献。同时，美日双方正在就发展共同的价值观迎来一个重要时期。
 
-到 2021 年前 11 个月，美国的贸易逆差比去年同期高出 28.6%。
+相反的，对于日益威胁地区安全的中共国，易曼纽也谈到了香港和南海局势的相关问题。易曼纽认为，中共既不是日本的好邻居，也不是有利于亚太地区发展的积极因素。
 
-2020 年全年，美国贸易逆差为 6767 亿美元，比 2019 年略高 0.1%。
+参考链接：[美新任駐日大使批 中國不是好鄰居](https://cn.rti.org.tw/news/view/id/2121438)
 
-11 月份对中共国具有政治敏感性的商品逆差增长 2.9% 至 323 亿美元，今年前 11 个月与 2020 年同期相比增长 12.8%
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-世界上最大的两个经济体美国和中共国，在前总统川普的领导下进行了一场有争议的贸易战，川普指责中共的不公平贸易行为已经导致数百万美国人失去工作。两个国家都对其经济竞争对手针锋相对地征收惩罚性关税。
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
 
-迄今为止，拜登政府在与中共国的经济往来中采取了更为谨慎的态度。
-
-凯投宏观美国高级经济学家迈克尔·皮尔斯（Michael Pierce）表示，11 月贸易逆差的大幅增长意味着，贸易将在 10-12 月季度对美国整体经济构成小幅拖累。
-
-皮尔斯预测，以国内生产总值衡量的第四季度经济增长将在 4.5% 左右，比第三季度温和的 2.3% 有所改善，但低于对强劲增长的预期。
-
-其他经济学家更为乐观，预计 10 月至 12 月期间的增长率将在 6% 至 7% 之间。政府将于 1 月 27 日发布其对第四季度 GDP 的首次预测。
-
-**评论：现在才明白文贵先生在美中贸易战之前的警告：滑稽结束。多么滑稽讽刺，美国用两年打与中共打贸易战，征收的惩罚性关税不抵一个苹果公司在中共国投资的一单买卖的零头！不灭中共，世界经济问题无解！何来“乐观”？**
-
-**参考资料：**[westernjournal][US Monthly Trade Deficit Surges to Near-Record High](https://www.westernjournal.com/ap-november-trade-deficit-hits-near-record-high-80-2-billion/?utm_source=Email&amp;utm_medium=newsletter-WJ&amp;utm_campaign=dailyam&amp;utm_content=western-journal&amp;ats_es=%5B-MD5-%5D)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

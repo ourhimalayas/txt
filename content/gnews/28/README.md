@@ -2,20 +2,22 @@
 ---
 
 
-## 强制疫苗违背医生的教育和信仰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1837817/)
+## 雅典娜时报-第168期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1837943/)
 
-**作者：日本东京方舟农场 JIHO**
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-矫形外科医生 Ahmad Malik：“强制接种疫苗开创了一个非常危险的先例……潘多拉的盒子已经打开。接下来会适用于谁？如果今天是新冠疫苗，明天我们将被强制接受什么？”
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![img](https://media.gettr.com/group39/origin/2022/01/08/22/4898c76a-d62f-f1ff-7311-55ffde53af80/17050adf921edbe65168b71242351fdf.png)![img](https://media.gettr.com/group39/origin/2022/01/08/22/339b61bf-9731-ad42-8ce9-323377532ff0/c0c8fe4d9cd93f9811f13d8bc943b606.png)
+*发布：陶子*
 
-* * *
-
-*素材采编：JIHO*
-
-*发布：Ranting*
-
-*封面制作：S*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,57 +2,33 @@
 ---
 
 
-## 加拿大政府强推全民新冠疫苗惹众怒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1838220/)
+## 拜登政府启动5亿中共病毒快速检测试剂盒分发工作
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1838234/)
 
-作者：纽约香草山教育部 – 文百合
+据《justthenews.com》记者2022年 1月 7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-557.png)图片源自：Anadolu Agency
+据报道，拜登政府接近与美国邮政局达成协议，将在全国范围内邮寄5亿份居家迅速检测中共新冠病毒的试剂盒。
 
+这项交易在拜登总统宣布政府将购买5亿套家庭检测试剂盒后完成。因为高传染性的中共奥密克戎变种病毒（Omicron）正在美国各地蔓延，人们对检测试剂盒需求很大。
 
+《华盛顿邮报》周四首先报道了政府与邮政部门之间的交易。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+希望获得免费检测试剂盒的美国人可以通过网站（建设中）进行申请。
 
+《华盛顿邮报》报道指出，家庭检测试剂盒分发计划的潜在制造商和经销商需要向政府提交申请提案。周四，拜登政府颁发了第一份采购合同，并表示关于该计划的更多细节最早将于周五公布。
 
+* * *
 
-据加拿大卫生部于1月7日发布的最新消息显示，由于全国医院医疗资源紧缺，加拿大医疗部长呼吁该国各省和辖区执行全民强制新冠疫苗接种政策。
+文章来源: [https://justthenews.com/politics-policy/coronavirus/biden-admin-us-postal-service-near-deal-deliver-promised-500-million](https://justthenews.com/politics-policy/coronavirus/biden-admin-us-postal-service-near-deal-deliver-promised-500-million)
 
-该医疗部长声称，只有加拿大全民的新冠疫苗接种率达到100%，才能停止新冠病毒变种的传播。 对此，加拿大萨斯喀彻温省和阿尔伯塔省的政府都表示，当地不会在执行强制新冠疫苗政策。相反的，魁北克省近期先是推行了宵禁政策，随后又在当地全面实行了疫苗护照政策——这些都正向着强制疫苗的方向发展。
+翻译：洛杉矶盘古农场 – KY
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![Demonstration against Quebec health measures](https://montreal.ctvnews.ca/polopoly_fs/1.5732847!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：CTV News
-
-于加拿大国民而言，消息一经报道，民众舆论一篇哗然。有网友表示，如果政府相关人员强制推行全民疫苗接种政策，自己一定会拼死抵抗。与此同时，加拿大魁北克蒙特利尔于8日爆发了大规模的游行示威：加拿大人民党党魁Max带领着数万名加拿大民众游行集会，以此来表达对100%强制疫苗政策的强烈不满。 据了解，加拿大人民党是目前唯一一个反对强制疫苗和反对疫苗护照的党派。
-
-当前，有加拿大居民已经在一年内接种过四针新冠疫苗，但他们仍然受封锁政策的限制被隔离在家中。为此，他们对现任的特鲁多执政党已经是厌恶至极。此外，更有英国政客将特鲁多政府比做纳粹希特勒。
-
-参考阅读：
-
-1. [Provinces should consider mandating COVID-19 vaccines, federal health minister says](https://www.ctvnews.ca/health/coronavirus/provinces-should-consider-mandating-covid-19-vaccines-federal-health-minister-says-1.5731666)
-2. [Alberta premier outright refuses federal suggestion of mandatory COVID-19 vaccines](https://edmonton.ctvnews.ca/alberta-premier-outright-refuses-federal-suggestion-to-consider-mandatory-covid-19-vaccines-1.5731722)
-3. [Lincolnshire councillor compares Canadian PM to Hitler](https://www.bbc.com/news/uk-england-lincolnshire-59881400)
-4. [Maxime Bernier leads protest against COVID-19 health measures and vaccination mandates](https://montreal.ctvnews.ca/maxime-bernier-leads-protest-against-covid-19-health-measures-and-vaccination-mandates-1.5732809)
-5. [Lincoln Jay’s Tweet](https://twitter.com/lincolnmjay/status/1479880606930583555?s=21)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

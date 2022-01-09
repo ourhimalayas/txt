@@ -2,47 +2,55 @@
 ---
 
 
-## 旧金山教师不满疫情应对乏力而发起软性罢工
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1838205/)
+## 加拿大政府强推全民新冠疫苗惹众怒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1838220/)
 
-据《Breitbart News》作者：[JOEL B. POLLAK](https://www.breitbart.com/author/joel-b-pollak/)，2022年1月6日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-554.png)图片源自：Breitbart News
-旧金山联合学区（SFUSD）教师正计划周四“请病假”，以抗议学区未能保护他们不受中共病毒奥密克戎（Omicron）的影响，这种病毒目前正在该州肆虐。
+作者：纽约香草山教育部 – 文百合
 
-数百名教师计划请病假，这将影响教学秩序。行动将与芝加哥教师工会（CTU）本周拒绝工作的投票相呼应，而后者导致周四连续第二天的课程被取消。
 
-《旧金山纪事报》指出，旧金山联合教育工作者协会（UESF）成员的非正式罢工行动发生在该工会与旧金山市教育局就应对中共冠状病毒进行集体谈判的时间。
 
-该州目前正经历着中共冠状病毒感染激增，数百名湾区学生在返校前被检测为阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
 
-截至周四上午，有581人在网上签署支持旧金山“请病假”的请愿书，其中部分内容如下：
 
-“截至今天，12/29，旧金山每天超过1000个病例。我们面临着回到学校场地的困境，而这些场地违反《市教育局和UESF之间关于&lt;健康和安全的谅解备忘录&gt;》。我们仍然缺乏个人防护设备（KN95口罩）、全面快速的检测服务和改善通风的承诺——自从我们复课以来，已经过去了六个月。根据《谅解备忘录》，我们有权在工作地点获得高质量的KN95口罩。许多教育工作者报告说，在他们的工作地点从来没有这样的情况。市教育局的网站正在吹嘘其与”SaferTogether”的合作关系，声称为学校提供快速检测车，但这些车只限于几所小学，而不是我们在每个学校都需要的广泛的快速检测。
 
-让我们向他们展示我们的力量! 我们将在我们的同事、家长和学生中传播这个消息，并向媒体和社区成员发表讲话。我们必须向这个地区、这个城市、这个州和这个国家表明，我们重视人的生命而不是利益；我们将保护我们社区中最脆弱的成员；我们已经厌倦了用我们的血汗和眼泪来弥补我们所谓的领导人的无能、贪婪和自满；我们“要求更多（DEMAND MORE）”。通过不付出我们的劳动，通过收回我们的时间和健康，我们发出这样的信息：如果市教育局、市政府、州政府和联邦政府不付出解决大流行病（特别是不处理大流行病对公立学校持续性的挑战），我们可以关闭整个系统。而且我们会这样做的。
+据加拿大卫生部于1月7日发布的最新消息显示，由于全国医院医疗资源紧缺，加拿大医疗部长呼吁该国各省和辖区执行全民强制新冠疫苗接种政策。
 
-在理想情况下，我们希望在开学前暂停工作两周，以便有时间进行测试，并将足够的口罩和快速测试用品送到所有地点和地区办公室。这仍然是最安全的行动方案。”
+该医疗部长声称，只有加拿大全民的新冠疫苗接种率达到100%，才能停止新冠病毒变种的传播。 对此，加拿大萨斯喀彻温省和阿尔伯塔省的政府都表示，当地不会在执行强制新冠疫苗政策。相反的，魁北克省近期先是推行了宵禁政策，随后又在当地全面实行了疫苗护照政策——这些都正向着强制疫苗的方向发展。
 
-加利福尼亚州去年从总统乔-拜登的《美国救援计划法》中获得了153亿美元，用于改善学校安全。然而，民主党控制的州议会将这笔费用的使用时间推迟至2024年9月30日。
+![Demonstration against Quebec health measures](https://montreal.ctvnews.ca/polopoly_fs/1.5732847!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：CTV News
 
-在大流行期间，加州已经根据唐纳德-川普总统签署的救济措施获得了130亿美元的学校安全经费。
+于加拿大国民而言，消息一经报道，民众舆论一篇哗然。有网友表示，如果政府相关人员强制推行全民疫苗接种政策，自己一定会拼死抵抗。与此同时，加拿大魁北克蒙特利尔于8日爆发了大规模的游行示威：加拿大人民党党魁Max带领着数万名加拿大民众游行集会，以此来表达对100%强制疫苗政策的强烈不满。 据了解，加拿大人民党是目前唯一一个反对强制疫苗和反对疫苗护照的党派。
 
-据报道，市教育局本身收到了近1亿美元，用于“维持核心区和学校的运作，延续对学生服务和必要资源，并保障学校设施和工作人员”；以及用于“加强对学生和家庭的支持；增加特殊教育服务；为重点学生群体提供有针对性的支持；增加和改善交通服务；保证学生与辅导员、学校心理医生和学校护士等工作人员的最低比例；以及保证教育工作者的持续专业发展。”
+当前，有加拿大居民已经在一年内接种过四针新冠疫苗，但他们仍然受封锁政策的限制被隔离在家中。为此，他们对现任的特鲁多执政党已经是厌恶至极。此外，更有英国政客将特鲁多政府比做纳粹希特勒。
 
-拜登总统本周指责各州和学区没有在奥密克戎（Omicron）浪潮之前获得足够的冠状病毒测试。他在2020年总统竞选中向选民承诺将阻止病毒，现在他正试图回避责任。
+参考阅读：
 
-* * *
+1. [Provinces should consider mandating COVID-19 vaccines, federal health minister says](https://www.ctvnews.ca/health/coronavirus/provinces-should-consider-mandating-covid-19-vaccines-federal-health-minister-says-1.5731666)
+2. [Alberta premier outright refuses federal suggestion of mandatory COVID-19 vaccines](https://edmonton.ctvnews.ca/alberta-premier-outright-refuses-federal-suggestion-to-consider-mandatory-covid-19-vaccines-1.5731722)
+3. [Lincolnshire councillor compares Canadian PM to Hitler](https://www.bbc.com/news/uk-england-lincolnshire-59881400)
+4. [Maxime Bernier leads protest against COVID-19 health measures and vaccination mandates](https://montreal.ctvnews.ca/maxime-bernier-leads-protest-against-covid-19-health-measures-and-vaccination-mandates-1.5732809)
+5. [Lincoln Jay’s Tweet](https://twitter.com/lincolnmjay/status/1479880606930583555?s=21)
 
-原文连接：[https://www.breitbart.com/education/2022/01/06/san-francisco-teachers-to-shut-the-whole-system-down-in-omicron-sickout/](https://www.breitbart.com/education/2022/01/06/san-francisco-teachers-to-shut-the-whole-system-down-in-omicron-sickout/)
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – 好人好报
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
 
 
 

@@ -2,31 +2,36 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月8日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1838246/)
+## 中共科学家对从孟山都偷窃的行为认罪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1838293/)
 
-作者：香草山翻译部
+![The U.S. Department of Justice is seen in Washington, on June 11, 2021. (Kevin Dietsch/Getty Images)](https://img.theepochtimes.com/assets/uploads/2021/07/14/DOJ-1-700x420.jpg)美国司法部（资料图）
+来自《大纪元时报》2022年01月07日的报道，一名中共国公民于1月6日承认自己密谋从事经济间谍罪，此前他试图从他的美国雇主那里窃取一个商业秘密，以推动自己在一个中共国营研究机构的事业。
+据美国司法部(DOJ)称，44岁的向海涛是曾居住在密苏里州的一名美国合法永久居民。在2008年至2017年期间，他曾为总部位于圣路易斯的农药和农业生物技术公司孟山都(Monsanto)及其子公司气候公司(Climate Corporation)工作。美国司法部官员表示，他试图窃取一种算法，该算法是孟山都公司开发的一个在线农业软件平台的一个关键组件。该平台允许农民收集、存储和可视化关键的农田数据，并提高和改善农业生产力。
+据司法部称，这种名为“营养素优化器”的算法是向海涛担任成像科学家在孟山都任职期间所从事的研究，它被孟山都公司和气候公司认为是一个有价值的商业机密和他们的知识产权。
+根据美国司法部的一份声明，密苏里州东区的美国联邦检察官赛勒·弗莱明(Sayler Fleming)说：“向某利用他在一家大型国际公司的内部人员身份，窃取宝贵的商业机密，供他在中国本土使用。” 弗莱明补充说：“这些罪行对美国经济构成威胁，并危及我们国家在创新方面的领导地位和国家安全。”
+根据一份法庭文件，从2015年6月左右开始，向海涛开始与中共的人接触，讨论在中共政府管理的中国科学院(CAS)土壤科学研究所(ISS)工作的可能性。他还询问了关于在被称为“千人计划”的中共国家级人才引进计划中入职的情况。该计划只是中共政权提供的许多类似的人才引进计划之一，目的是吸引海外华人和外国专家到中共的科技领域工作。通过这些计划，中共政府希望将中共国迅速变成一个工业和创新强国，最终超过西方国家。
+2020年7月，联邦调查局局长克里斯托弗·雷(Christopher Wray)曾在总部位于华盛顿的智囊团哈德逊研究所就这些中共国人才计划提出过警告。雷说：“通过其人才引进计划，如所谓的千人计划，中共政府试图诱导科学家偷偷地将我们的知识和创新带回中共国——即使这意味着窃取专利信息或违反我们的出口管制和利益冲突规定”。
+美国检察官说，2016年8月，向海涛被聘为中科院土壤科学研究所“百人计划”的一员。根据法庭文件，不到一年后，即2017年5月，向海涛通知他的雇主，他打算离职。一个月后，在离职后，向海涛购买了一张单程机票，试图飞往中共国。在他登上飞机之前，他被联邦官员拦下并搜查，他们发现他的电子设备里有营养素优化器的副本。根据美国司法部的说法，向海涛被允许继续飞往中共国，但在返回美国时被逮捕。
+根据该声明，联邦调查局反间谍部门的助理主任小艾伦·科勒（Alan E. Kohler Jr.）说：“当像中共政府这样的对手窃取技术以发展其经济时，美国工人就会遭受痛苦。”美国司法部宣布，向海涛将于4月7日被宣判，届时他将面临最高15年的监禁和可能500万美元的罚款。
+简评：通过跟中共的合作得来的钱迟早都是要还回去的，甚至还会赔上个人的人身自由。中共体制下，没有创新的土壤，从海外偷窃技术是必然的结果。可惜的是很多高层次人才在海外有体面的工作，收入和生活，却并没意识到这些都是在文明的社会制度下才可能拥有的，反而选择助纣为虐，窃取这些先进技术为邪恶的中共所用，结果几乎无一例外地都在案发那一刻，成为了中共的弃子。孟晚舟被中共倾举国之力送回国，是因为她的利用价值威胁到了中共政权的安全，试问那些参与千人计划的人员，你们是否想过，中共政权是否也会倾举国之力维护你们的安全？如果答案是否定的，请悬崖勒马，不要继续赔中共作恶。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+新闻链接:[https://www.theepochtimes.com/chinese-scientist-pleads-guilty-to-stealing-from-us-agricultural-biotech-firm\_4198866.html](https://www.theepochtimes.com/chinese-scientist-pleads-guilty-to-stealing-from-us-agricultural-biotech-firm_4198866.html)
+
+翻译/简评：kkoto(芬兰大灰狼)
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0108text-SC.png)
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.8  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61da3a3eaf3a68700027036f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
