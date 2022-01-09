@@ -2,94 +2,40 @@
 ---
 
 
-## 全球疫情更新（网球巨星挑战澳政府反衬的种种荒诞）
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1837194/)
+## 德桑蒂斯（DeSantis）：我将投资微芯片和半导体制造，因此中共“无法控制我们的供应链”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1837696/)
 
-整理/编辑：枳实
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-20.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月8日）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-11-copy-7.jpg)图片来源：www.dailywire.com
+自《每日电讯报》2022年1月7日报道，“做为佛罗里达人和美国人，我们必须挺身而出，”德桑蒂斯在一个新闻发布会上说。“我们不能被俘虏。我们经济的关键部门不应该受制于其中一些外国，尤其是像中国共产党这样的机构。然后，即使你有像台湾这样的盟友，如果那里发生中断，这会产生怎样的影响，可能会比我们在过去一年半中看到的更多。因此，我们在自己的国家，尤其是在我们自己的佛罗里达州拥有越多的这种能力，人们就会拥有越多的机会，我们的经济供应链和我们的国家安全就会更有保障。”
 
-**一，全球疫情基本数据**
+12月20日，德桑蒂斯宣布了他对抗共产主义中国的计划，并在一份新闻稿中表示，他将“对佛罗里达退休系统的所有投资进行调查，以确定该州在中共国的公司拥有多少资产”。
 
-感染总数：302,793,296（日新增2,089,349，14天增幅+174%）
+“如果你看看这些大公司在面对中共国的反对时的表现，他们会审查中共让他们审查的内容，我们看到的是卑躬屈膝的道歉，”德桑蒂斯进一步强调。“回到上一代人，美国精英的想法是，‘我们允许中国加入世贸组织并给予他们最惠国待遇，那将使中国更像我们(拥有民主与自由)。’这个实验失败了，它危及到我们国家的国家安全和经济安全。”
 
-死亡总数：5,477,487（日新增6,072人，14天增幅–12%）
+“我希望小型企业管理局（SBA）调查目前正在进行的投资，”他继续说道。 “当立法机关回来时，他们可以做出法律上的改变，说中国共产党不是我们想要纠缠的工具。我认为这将是非常非常谨慎的事情。 我还认为，我们国家作为一个整体，但肯定是佛罗里达州希望看到更多的生产和制造业得到重新支持，我们将是一个很好的地方。”
 
-每万人感染人数：466.7994 人（除中国外）
+新闻稿指出，“今天采取的行动将进一步加强佛罗里达州的财政基础，并向那些支持种族灭绝、专制、帝国主义政权的美国企业发出信号，他们不会用佛罗里达人的钱这样做。”
 
-**二，全球“疫苗”毒针统计数据**
+“长期以来，中国共产党政权一直试图渗透我们的金融和教育机构，”副州长珍妮特·努涅斯 (Jeanette Nuñez) 说。“我赞赏德桑蒂斯州长的努力，这些努力将遏制中共国对我们国家安全至关重要的行业的投资，并保护佛罗里达人免受中国共产党带来的危险。”
 
-“疫苗”毒针注射总数：93.7亿
+首席财务官吉米·帕特罗尼斯(Jimmy Patronis)表示：“我很欣赏德桑蒂斯州长在小型企业管理局及其基金经理如何决定投资方面坚持我们在谈判桌上的席位。”“一个可悲的现实是，在让中共国承担责任方面，太多的联邦领导人长期以来一直没有采取行动。当美国人得到我们的廉价商品时，中共政府在知识产权或贸易方面没有遵守规则。与此同时，他们一直忙于在好莱坞和华盛顿购买影响力。不幸的是，在新冠病毒和供应链问题之间，我们看到了我们的国家对中共国的依赖程度。”
 
-完全“接种”：39.2亿人
+简评：州长德桑蒂斯（Ron DeSantis) 宣布为佛罗里达州的半导体生产投资近1000万美元，以摆脱美国对中共国和其他国家的重要供应、零件和材料的依赖。对中共国领导人习近平来说，大数据除了是中共国发展经济的重要因素之外，也是他维持政治控制的关键。中共将人工智能用于社会和政治工程，奖励服从和惩罚异议，妄想永远统治奴役中国人民，并将其社会信用体系输出到其他威权国家。
 
-完全“接种”百分比：50.3%
+新闻链接：
 
-**三，澳洲疫情和“疫苗”数据**** **
+[https://www.dailywire.com/news/desantis-ill-invest-in-microchip-semiconductor-manufacturing-so-chinese-cannot-hold-our-supply-chain-hostage?%3Futm\_source=twitter&utm\_medium=social&utm\_campaign=dwtwitter](https://www.dailywire.com/news/desantis-ill-invest-in-microchip-semiconductor-manufacturing-so-chinese-cannot-hold-our-supply-chain-hostage?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
 
-感染总数：877,841（今日新增 116,032人）
+* * *
 
-死亡总数： 2,346人（今日新增 27人）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-每万人感染人数：295.6614人
 
-“疫苗”毒针注射总数：43,848,961  （日新增269,306针）
+编辑：【英国伦敦喜庄园编辑部】
 
-完全“接种”：18,962,396人
-
-第二针“接种”百分比：77.1%
-
-16岁以上人口接种至少一剂疫苗的比例：94.7%
-
-16岁以上人口接种至少两剂疫苗的比例：92.0%
-
-**四，疫情要闻和评论**
-
-今日澳洲感染总数继续创纪录突破十一万。这是因为维多利亚州刚刚将快速检测纳入在线报告系统，而下周新州的类似系统也将上线，因此可以预计到时病例数字将会继续暴增，因为目前实际病例增加的速度已经远大于PCR测试能力了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-11.png)图片来源：Our World in Data
-澳大利亚每日新增病例数曲线，黄色箭头标识处为之前的3波疫情。
-
-如上图所示，澳洲目前的史无前例的每日新增病例数字的暴增已经让之前的3波疫情相形见绌，在曲线图中已经很难辨识了。而当下澳洲人口的疫苗接种率已经达到77.1%，16岁以上人口的接种率已经高达92%。这说明，疫苗根本无法抑制疫情传播。而这正是推广疫苗之初，媒体和科学家大肆宣扬的，也是强制疫苗政策得以实施的“合理性”和“科学性“的来源。
-
-而今天媒体继续热炒的新闻，恰巧与强制疫苗有关。全球战绩最佳的网球选手诺瓦克·德约科维奇的疫苗豁免被澳洲政府取消，签证被吊销，他的律师向法庭挑战此项决定。该案件的更多细节今天被披露。
-
-他于 11 月 18 日获得了进入澳大利亚的签证，12 月 30 日，澳大利亚网球协会授予他“COVID 疫苗接种的医疗豁免”，理由是他最近已经康复。 “豁免证明”称，德约科维奇 COVID-19 PCR 检测呈阳性的日期是 2021 年 12 月 16 日，但他在过去 72 小时内没有发烧或呼吸道症状。它还记录了豁免的条件“符合澳大利亚免疫技术咨询小组（ATAGI）的建议”。德约科维奇随后于 1 月 1 日收到了内政部的一份文件，称“（他的）澳大利亚旅行声明已经被评估”，并且“回复表明 ，在抵达的司法管辖区允许的情况下，他已满足了免除隔离进入澳大利亚的要求”。
-
-然而，这位澳大利亚网球公开赛卫冕冠军在从迪拜乘坐飞机抵达后被边境部队官员拘留，并被带到移民拘留所。
-
-对于这一连串乌龙，联邦政府，维州政府，澳大利亚网球协会纷纷推卸责任，试图从中捞取政治好处，但他们谁也不敢触及两个基本问题：
-
-一是疫苗护照强制疫苗政策的基础已经坍塌了。强制疫苗政策侵夺的是公民的医疗选择权力，本来的目的是控制疫情，可是目前的疫情曲线已经证明这些毒针根本无法抑制疫情传播。奥米克戎毒株能够如此迅速扩散全球，就是由拥有疫苗护照的人通过航空旅行传播的。同样，澳洲超高的接种率，也丝毫未能抑制本土疫情传播。
-
-二是新冠感染半年内后豁免疫苗注射是澳洲早已实施的政策，在应用到边境检疫的时候就忽然取消了豁免。这完全就是拍脑袋决定而非科学决策。它的依据仍然是相信疫苗注射能够抑制病毒传播，而这种假说已经被眼前的疫情现实打脸。自然感染的免疫的效果通常强于，或者至少不弱于疫苗所诱发的免疫，这本是基本的免疫学常识，可是伟大光荣正确的中共病毒疫苗一出，这些基本的科学规律都为之绕道而行，连基本的抗体测试都不做，就毫无依据地认定疫苗接种者比感染痊愈者更安全，这是迷信还是科学呢？
-
-更关键的问题是，德约科维奇不注射毒针，有天然的合理性。因为他作为巅峰状态的运动员，属于低风险人群，注射这些所谓的疫苗，对他本人的健康并无益处，因为他这个人群因中共病毒入院的风险已经很低了，疫苗并不能让它更低多少，如果能够降低的话。正如对他表达同情，已经注射“疫苗”的澳洲网球选手 Nick Kyrgios所说，他注射疫苗是为了保护别人，保护母亲。然而现在的疫情暴增却有力的证明了这些疫苗不能抑制病毒传播，这难道不是让健康运动员们注射这些“疫苗”的唯一理由都丧失了吗？
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
