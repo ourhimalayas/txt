@@ -2,40 +2,26 @@
 ---
 
 
-## 有声|安妮日记2022-逃离新冠疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841096/)
+## 重磅！新中国联邦第一次关于教育和养老政策的宣告
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1841138/)
 
-配音：香草山设计部 – 喜马拉雅大喵儿
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
-原文链接：[安妮日记2022-逃离新冠疫苗](https://gnews.org/zh-hans/1830885/)
-
-音频处理：喜山必胜Maverick
-
-**编辑/发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+1月9日，郭文贵先生于GTV、Gettr的大直播中第一次郑重发出新中国联邦关于教育和养老政策的宣告，并表示，老人不被尊重，孩子就不会有教育，这是一个轮回。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/hut-1681485_1280-scaled-1.jpg)图片来源欧洲希望之星
 
 
+等新中国联邦灭共后，一定要保证的：
+
+第一、恢复中国社会最重要的基石，恢复社会的DNA（家庭），使得家庭伦理关系正常化。父母生养照顾孩子，并且是孩子的第一任老师；孩子长大后赡养父母，回报父母的养育之恩，这是新中国社会必然要走的最核心的路；
+
+第二、新中国联邦的教育是重中之重，没有教育就没有良善，也不可能有好政策的执行。教育是建立法治、信仰社会的途径，是让人有常识和良知的必经之路；
+
+第三、50岁以后的新中国联邦人，国家必须负责养老、医疗、送终，而且**费用全免**。新中国联邦一定会很快实现这些，实现这些远比恢复中国山川、江河的污染要容易的多。
+
+建立数字货币Hcoin（喜币）和喜联储的平台，自然而然第一个受惠的将是孩子和老人。新中国必须实行绝对的土地私有制，把国有土地归还给人民。让所有人、尤其老人拥有土地所有权，而且必须自动发放老人创造的财富。老人可以有自己的选择，可以陪伴孩子一起长大，也可以到自己喜欢的场所修行，还可以继续工作发挥余热。首先，若老人参加工作必须有优先权，一小时的工资必须是同等工作量年轻人的三倍、或者更多倍，最重要的是**免税**。这些老人被发放更多的剩余价值变得越来越有钱，继而就更愿意工作，随之而来的便是更为坚实的安全感。因为老人有了更好的物质条件，就会得到更多人的帮助，就会得到更多人的尊重。孝敬会成为良性循环的伦理，社会正常运转的规矩。更重要的是，当老人病了、老了、走了，是有尊严的离开人世。这样的老人会更有信仰，这样才是新中国联邦建立的完整生态系统。
+
+这是通过遍访全球，取长补短、集大成的人类社会新体系，必将在新中国联邦G系列系统的强力支持下达成。
 
  
 

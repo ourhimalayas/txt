@@ -15,83 +15,83 @@
 
 ---
 
-### [得到天道与人助的新中国联邦人](/content/gnews/1/README.md)
+### [第203期玫瑰看新闻-币圈新闻](/content/gnews/1/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [重磅！新中国联邦第一次关于教育和养老政策的宣告](/content/gnews/2/README.md)
+ ` YALUN 亚伦`
+
+### [特德-克鲁兹为何加入“沼泽地”攻击1月6日爱国抗议者（二）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [得到天道与人助的新中国联邦人](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|安妮日记2022-逃离新冠疫苗](/content/gnews/2/README.md)
+### [有声|安妮日记2022-逃离新冠疫苗](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [美国地质调查局：中共国青海省发生6.6级强震](/content/gnews/3/README.md)
+### [美国地质调查局：中共国青海省发生6.6级强震](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：美多名花滑顶尖选手染疫退出冬奥选拔赛](/content/gnews/4/README.md)
+### [DC大中华时事：美多名花滑顶尖选手染疫退出冬奥选拔赛](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [全球疫情更新（澳洲和南非疫情的比较）](/content/gnews/5/README.md)
+### [全球疫情更新（澳洲和南非疫情的比较）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么价格会在2022年继续飙升](/content/gnews/6/README.md)
+### [为什么价格会在2022年继续飙升](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [独家披露：辉瑞与武汉病毒研究所的联系](/content/gnews/7/README.md)
+### [独家披露：辉瑞与武汉病毒研究所的联系](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [招标文件显示中共国持续扩张国内外互联网监控](/content/gnews/8/README.md)
+### [招标文件显示中共国持续扩张国内外互联网监控](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|人类要有信仰，相信轮回](/content/gnews/9/README.md)
+### [有声|人类要有信仰，相信轮回](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|美驻日大使称中共不是好邻居](/content/gnews/10/README.md)
+### [有声|美驻日大使称中共不是好邻居](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [文贵先生直播大纲 2022/01/09](/content/gnews/11/README.md)
+### [文贵先生直播大纲 2022/01/09](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|独裁者以人类为祭品](/content/gnews/12/README.md)
+### [有声|独裁者以人类为祭品](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|法媒称中共借立陶宛干预欧盟经济](/content/gnews/13/README.md)
+### [有声|法媒称中共借立陶宛干预欧盟经济](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [中共开启灭亡前血腥内斗2.0](/content/gnews/14/README.md)
+### [中共开启灭亡前血腥内斗2.0](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [有声|澳大利亚和日本签署历史性防务条约](/content/gnews/15/README.md)
+### [有声|澳大利亚和日本签署历史性防务条约](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [得克萨斯州州长将起诉拜登政府的疫苗强制令](/content/gnews/16/README.md)
+### [得克萨斯州州长将起诉拜登政府的疫苗强制令](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党原本意图打压爆料革命 却成为推进新中国联邦护照的一大助力](/content/gnews/17/README.md)
+### [共产党原本意图打压爆料革命 却成为推进新中国联邦护照的一大助力](/content/gnews/20/README.md)
  ` 焦點20分`
 
-### [盖特和GTV最具潜力](/content/gnews/18/README.md)
+### [盖特和GTV最具潜力](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [喜币将重新书写数字货币的规则 共产党的房地产将成就人类历史上第二次最大的金融形势](/content/gnews/19/README.md)
+### [喜币将重新书写数字货币的规则 共产党的房地产将成就人类历史上第二次最大的金融形势](/content/gnews/22/README.md)
  ` 焦點20分`
 
-### [新冠疫苗加剧奥米抗和其他新冠变种的传播 世界黑暗力量利用病毒疫苗大开杀戒](/content/gnews/20/README.md)
+### [新冠疫苗加剧奥米抗和其他新冠变种的传播 世界黑暗力量利用病毒疫苗大开杀戒](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [联邦航空管理局违反自己的安全准则推动实验性疫苗](/content/gnews/21/README.md)
+### [联邦航空管理局违反自己的安全准则推动实验性疫苗](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料 1.9：疫苗是肆虐你的那颗彩蛋](/content/gnews/22/README.md)
+### [文贵爆料 1.9：疫苗是肆虐你的那颗彩蛋](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|世界范围内粮食价格上涨, 中共国百姓面临饥饿](/content/gnews/23/README.md)
+### [有声|世界范围内粮食价格上涨, 中共国百姓面临饥饿](/content/gnews/26/README.md)
  ` MOSREC`
-
-### [魁省蒙特利尔出动大量警力驱逐逮捕和抗议宵禁的人](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [有声|蓬佩奥再次呼吁抵制中共冬奥会并对其追责](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [加拿大总理特鲁多在电视访谈中把拒绝接种疫苗的人描绘成极端分子](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [香草山翻译部周刊|2022年1月9日第30期](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
