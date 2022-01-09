@@ -2,44 +2,42 @@
 ---
 
 
-## 在全人类媒体被邪恶控制的时候,我们的媒体发出真相之声
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1839518/)
+## 青海地震光？还是中共核武爆!
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1839544/)
 
-G-TV视频链接：[https://gtv.org/video/id=61da2d8887664c47acd243e4](https://gtv.org/video/id=61da2c4087664c47acd2428d)
+作者：纽约香草山健身部– 文鹰
 
-**郭文贵先生**:更重要的事情我们能看到自己行动的结果，而且这是任何用语言无法形容的。今天我们看到在自己的平台，在全人类媒体到了邪恶的发展的程度的时候，我们在自己媒体上直播，而且我们有这么多媒体，而且影响着人类。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
 
-昨天下午我跟华盛顿的开会，一上来他就说两句话，他说:“你知道现在GETTR是什么概念吗？你知道你的G-News是什么概念吗？你知道G-TV是什么概念吗？”他问我，我说:“我不知道啊，请您多指教”。人家很认真地写着笔记，人家讲的这些力量。
 
-就在几年前你说这些事情是不可能的，但是你能想象就在一年前，七哥坐在同样的这个桌子、同样位置讲G-TV开始的时候，我们是零，从零到今天是大家看得着摸得见，此时此刻一天在直播的。我们在否定中成长，我们在自我、在自恋中飞速地成长和成熟。
 
-字幕来源:[2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）](https://gnews.org/zh-hans/1816880/)
+美东时间1月9日，盖特媒体发布“20220109文贵大直播”预告。主要话题中，有（中共国）青海省海北州门源（回族自治）县，8日凌晨发生6.9级地震，期间有网民拍摄到“地震光”。
 
-编辑整理:Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/164162837242838_P15161303.jpeg)
 
-字幕文件制作:小满；
+东京樱花团战友Love水星，跟帖了一段13秒自媒体视频，视频显示：8日凌晨01:45:34秒发生第一次球状白色闪光，01:45:36秒第二次闪光，01:45:40秒地面升起两条白色烟迹。
 
-视频制作及上传:Cindy；
+对比截图图片，不像地震光发生。第一次闪光面积大，呈球形爆闪；第二次闪光面积小，呈扇形向空中辐射。地面5秒以后白烟迹，疑是地空导弹发射尾迹。一条轨迹垂直上升，一条拐弯轨迹明显，消失正好是白光闪过的正上方。
 
-G-News发布:小满；
+经查中共火箭军资料，在青海大通（回族自治县）地区有洲际导弹部署，紧挨地震发生地。08年“512”汶川大地震，有报道中共地下核武库被摧毁。
 
-**广而告之****:****尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道****:**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+这一次是自然现象还是神秘力量，请静听0109文贵大直播解密吧。
 
-声明:文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+校对/发稿：飞虹
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 
-Discord:[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**更多资讯，更多关注**
 
-YouTube:[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-G-News:[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-盖特:[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-推特:[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-G-TV:[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
