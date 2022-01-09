@@ -2,26 +2,26 @@
 ---
 
 
-## 西安集中隔离逾四万六千人，超越武汉封城时期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1838556/)
+## 香港华人置业集团投资恒大惨赔十亿美元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1838557/)
 
 作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月7日，西安官方公布信息显示，因中共病毒疫情被集中隔离的人数，迄今已增至4万5760人，超越2020年武汉封城时期2万4639人的规模，而且西安还在积极补充隔离病房。
+当地时间1月7日，香港华人置业集团在香港交易所公告，该集团至去年底，在中国恒大集团的投资已兑现损失约十亿美元，帐面上尚未变现的损失接近四亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-4.png)
+华人置业集团由刘銮雄先生创立，主要从事物业投资及发展、物业管理、经纪服务、证券投资等业务。 刘銮雄与中共的政商关系良好，此次在恒大的投资也成为被中共收割韭菜的对象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-3.jpg)
-
-截至目前，西安封城已有17天，1月5日，西安发布消息称“社会面基本实现清零”。但是，正在积极增建隔离房的情况显示，政治表态恰如“皇帝的新衣”般荒唐至极。
+华人置业只是一个缩影，印证了爆料革命的警告，与中共同流合污，最终必将血本无归。
 
 参考链接：
 
-- [西安集中隔離逾4.5萬人 規模超越武漢封城](https://www.cna.com.tw/news/firstnews/202201070361.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [港華人置業投資中國恆大股票 慘賠279億元](https://www.cna.com.tw/news/acn/202201070342.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：文特
-编辑：DM
+编辑：Kathy文艺
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

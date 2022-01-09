@@ -2,23 +2,31 @@
 ---
 
 
-## 西安：人祸灾难大于病毒威胁！
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1838598/)
+## 有声|香港针对中共病毒疫情实施严厉手段
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838621/)
 
-撰稿：菜园子112～尕虎
-![](https://assets.gnews.org/wp-content/uploads/2022/01/903.jpg)图片来自网络
-如今西安在抗疫的大形势下，表现却无任何可圈可点之处，成了名副其实的《废都》。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月5日，据媒体消息显示，港共政府林郑月娥宣布，自1月9日起，香港将开启针对中共病毒疫情的航空禁令，其中，来自澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国的航班将被禁止入境香港。据悉，此禁令将持续至1月21日，历时两周。
 
-老百姓买菜出问题，大院却供应充足，品种齐全。不比不知道，一比吓一跳，难怪考公务员火上天，关键时候，能救命啊。一码通说崩就崩，连个招呼都不打，不像文化名城的风格啊。谁说志愿者不是官？想管就管，想打就打，穿上防护服，带上小袖章，威风八面，不请自来。这都不是事，现在连救死扶伤的医院，都见死不救了。倘若你直接关停也好，老百姓还有自救，毕竟，过去没有医院，还是可以生孩子的啊！
+另外，自即日起的两周内，香港本土的餐厅、游戏厅、酒吧和美容院等室内场所必须在下午6点之后关闭。
 
-这次西安抗疫，因为不作为、一刀切政策已经造成两人死亡、两名妇女流产，甚至一名孕妇在警察用派出所名义担保后医院才同意手术，但因为耽误的太久，还是流产了。这只是被动暴露出来的案例，实际造成了多大问题现在还是个未知数。
+有报道提及，本月4日，港共政府封锁了中共病毒阳性确诊病例所居住的单元楼，同时进行了囊括数千人的大规模中共病毒核酸检测。 此外，港共政府还于5日扣押了一艘游轮上的所有游客，共计两千五百人。港共卫生局表示，该游轮上有9名游客密切接触过中共病毒奥米克戎变种传染源。目前，虽然此9名乘客的中共病毒核酸检测结果皆为阴性，但所有人均已被隔离。
 
-人们常把天灾人祸连在一起，但我觉得天灾和人祸是截然不同的两件事，天灾不可怕，毕竟相对大自然来说，我们是渺小的，尽力而为，听天由命。但很多时候，很多人却以人民的名义，以大多数人的利益，制造了一起又一起人祸。
+文字版原文：[香港针对中共病毒疫情实施严厉手段](https://gnews.org/zh-hans/1828990/)
 
-注：文章内容部分内容引用自墙内网友
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

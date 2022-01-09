@@ -2,13 +2,28 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月6日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838616/)
+## 有声|音乐让我们夺回尊严和自信
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838622/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0106text-SC.png)
-文字版原文：[GTV新闻访谈简报|2022年1月6日晚](https://gnews.org/zh-hans/1831143/)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+针对“我是音雄”大型音乐灭共节目，郭文贵先生在1月5日大直播中提醒战友们关注以下核心问题。
 
+第一，如今GTV呈现出来的音乐效果，离不开无数战友的付出与贡献。
+
+第二，郭先生虽然不是专业歌手，但是依然可以成为世界摇滚歌星，这充分体现了，音乐的本质是歌唱个人，而不是集体。
+
+第三，“我是音雄”节目的制作与播出过程，是对人的耐心与爱的挑战，影响着每个人的人生。
+
+第四，音乐灭共，让中国人自信地面对自己。被共产党夺走的尊严和歌唱的本能，我们有信心夺回。
+
+第五，因为害怕人民反抗地声音，共产党垄断唱歌和发行的权力。而我们的歌声，就是消灭邪魔恶党的力量。
+
+第六， “我是音雄”节目虽然结束了，但我们要记住，在“我是音雄”和大直播中，一起走过的伟大征程。
+
+郭先生还强调，音乐是没有国界、语言之分，爆料革命的歌曲，每时每刻都在影响着中国人在世界上的安全。
+
+文字版原文：[音乐让我们夺回尊严和自信](https://gnews.org/zh-hans/1831943/)
 音频处理：喜山必胜Maverick
 发稿：呼吸的雾霾（文小呼吸）
 

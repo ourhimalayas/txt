@@ -15,115 +15,115 @@
 
 ---
 
-### [每日快报：关于福奇爆炸性的爆料文件将在下周放出](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2022/01/07 文贵先生直播精要](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜币（HCN）价格目前在36.499 HDO](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [哈萨克斯坦动乱背后的世界核武之争](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
 
-### [秘翻在线：日媒报道说张艺谋将担任北京冬奥会总导演](/content/gnews/3/README.md)
+### [0107文贵大直播，致那些永远的无名战友](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [最高法院受理拜登政府备受争议的疫苗强制令](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [布林肯对俄罗斯军事介入哈萨克斯坦局势感到不满](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [人生就是一场大梦](/content/gnews/4/README.md)
- ` GTV News Talk`
-
-### [为打压伊维菌素， FDA 、 CDC 和媒体编造 了伊维菌素的一系列谎言](/content/gnews/5/README.md)
+### [中共文旅部发布修订后的演出经济人员管理办法](/content/gnews/6/README.md)
  ` G-NEWS TAIWAN`
 
-### [串珠523:贸易战就没开始过，习近平根本看不起川普](/content/gnews/6/README.md)
- ` 郭爆料串珠`
-
-### [串珠522:中共释放奥米克戎嫁祸非洲挑起种族矛盾](/content/gnews/7/README.md)
- ` 郭爆料串珠`
-
-### [串珠521：奥米克戎将横扫欧美死最多的是白人](/content/gnews/8/README.md)
- ` 郭爆料串珠`
-
-### [红毒是如何悄悄进入你身体里的?](/content/gnews/9/README.md)
- ` 纽约香草山MOS03`
-
-### [串珠520:奥米克戎太可怕氯喹菌素青蒿素效果不明显](/content/gnews/10/README.md)
- ` 郭爆料串珠`
-
-### [俄罗斯不是美国最大对手 中共国才是](/content/gnews/11/README.md)
+### [每日快报：关于福奇爆炸性的爆料文件将在下周放出](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [奥地利总理接种三针疫苗后仍感染COVID-19病毒](/content/gnews/12/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在36.499 HDO](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：日媒报道说张艺谋将担任北京冬奥会总导演](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [人生就是一场大梦](/content/gnews/10/README.md)
+ ` GTV News Talk`
+
+### [为打压伊维菌素， FDA 、 CDC 和媒体编造 了伊维菌素的一系列谎言](/content/gnews/11/README.md)
+ ` G-NEWS TAIWAN`
+
+### [串珠523:贸易战就没开始过，习近平根本看不起川普](/content/gnews/12/README.md)
+ ` 郭爆料串珠`
+
+### [串珠522:中共释放奥米克戎嫁祸非洲挑起种族矛盾](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [串珠521：奥米克戎将横扫欧美死最多的是白人](/content/gnews/14/README.md)
+ ` 郭爆料串珠`
+
+### [红毒是如何悄悄进入你身体里的?](/content/gnews/15/README.md)
+ ` 纽约香草山MOS03`
+
+### [奥地利总理接种三针疫苗后仍感染COVID-19病毒](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔](/content/gnews/13/README.md)
+### [有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|喜联储、喜交所、数字银行、喜币（HCN／HDO）将成为全球主流金融机构中的独角兽联合体](/content/gnews/14/README.md)
+### [有声|喜联储、喜交所、数字银行、喜币（HCN／HDO）将成为全球主流金融机构中的独角兽联合体](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|印度向小米追缴超八千万美元逃税款项](/content/gnews/15/README.md)
+### [有声|印度向小米追缴超八千万美元逃税款项](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|意大利强迫50岁以上公民必须注射疫苗](/content/gnews/16/README.md)
+### [有声|意大利强迫50岁以上公民必须注射疫苗](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|东京连续两日中共病毒确诊病例激增](/content/gnews/17/README.md)
+### [有声|东京连续两日中共病毒确诊病例激增](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|中共以商围政失效 经济迅速衰退](/content/gnews/18/README.md)
+### [有声|中共以商围政失效 经济迅速衰退](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|中共2022年新年中央一号文件将“杀富济共”运动推向高潮](/content/gnews/19/README.md)
+### [有声|中共2022年新年中央一号文件将“杀富济共”运动推向高潮](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|音乐让我们夺回尊严和自信](/content/gnews/20/README.md)
+### [有声|音乐让我们夺回尊严和自信](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|香港针对中共病毒疫情实施严厉手段](/content/gnews/21/README.md)
+### [有声|香港针对中共病毒疫情实施严厉手段](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|日澳签署《相互准入协定》防阻中共威胁](/content/gnews/22/README.md)
+### [有声|日澳签署《相互准入协定》防阻中共威胁](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/23/README.md)
+### [有声|郭文贵先生揭露中共灭亡前苦民、弱民真相](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月6日晚](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [西安：人祸灾难大于病毒威胁！](/content/gnews/25/README.md)
+### [西安：人祸灾难大于病毒威胁！](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [英国三分之一的学校员工缺勤率超过10%](/content/gnews/26/README.md)
+### [美日2+2视频会晤聚焦中共、北朝鲜](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [英国军情六处罕见回应中共官媒嘲讽短片](/content/gnews/27/README.md)
+### [共军对台心战用方言喊话遭耻笑](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [美日2+2视频会晤聚焦中共、北朝鲜](/content/gnews/28/README.md)
+### [青海6.9级地震 10小时后官媒竟称暂未有人员伤亡报告](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [共军对台心战用方言喊话遭耻笑](/content/gnews/29/README.md)
+### [香港华人置业集团投资恒大惨赔十亿美元](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [青海6.9级地震 10小时后官媒竟称暂未有人员伤亡报告](/content/gnews/30/README.md)
+### [西安集中隔离逾四万六千人，超越武汉封城时期](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [香港华人置业集团投资恒大惨赔十亿美元](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [西安集中隔离逾四万六千人，超越武汉封城时期](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [哈萨克斯坦总统公然下令军队开枪镇压抗议者](/content/gnews/33/README.md)
+### [哈萨克斯坦总统公然下令军队开枪镇压抗议者](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登政府疫苗强制违宪，立法者敦促最高法院将其推翻](/content/gnews/34/README.md)
+### [拜登政府疫苗强制违宪，立法者敦促最高法院将其推翻](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乔·罗根们正在主流媒体的领域攻城略地](/content/gnews/35/README.md)
+### [乔·罗根们正在主流媒体的领域攻城略地](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国科技巨头为数字人民币开绿灯](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [“言论自由”平台Gettr被抹黑，称其审查批评者](/content/gnews/37/README.md)
+### [中国科技巨头为数字人民币开绿灯](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [秘翻在线: 数字人民币选择京东，放弃阿里](/content/gnews/38/README.md)
