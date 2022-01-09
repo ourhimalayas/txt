@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 1:10 PM (UTC)`
+
+2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析
+![img](https://media.gettr.com/group44/origin/2022/01/09/12/fab1d5be-aa31-0f08-aff8-c8307d3837be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/9/2022 12:00 PM (UTC)`
 
 A vaccine developer is not fully confident about what's happened over the last 18 months. Some very new technologies such as mRNA vaccines are in their infancy. These are the COVID-19 vaccines that you are forced to vaccinate in order to remain in employment. His personal perspective is first no harm and second the principles of informed consent.<br/><br/>一位疫苗开发者对过去18个月发生的事情没有充分的信心。一些诸如mRNA疫苗的新技术还在萌芽阶段。这就是你们为了保住自己的工作被强制接种的新冠疫苗。他的个人观点是：首先疫苗接种无害，其次遵守知情同意的原则。
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: The vaccine mandate will certainly be terminated by this May; only I have said that what is going on in Xi’an is a COVID vaccine disaster; the CCP may use the Winter Olympics to brag about itself, but it will be slapped in the face after the Olympics; the viruses will inevitably get out of control after they were released, so please take care of yourself<br/><br/>1/07/2022 文贵直播：疫苗强制令在今年5月前必被灭；只有文贵说西安是疫苗灾难；中共会用冬奥会吹牛，但冬奥会结束后就会被疫苗灾难和国内乱局打脸；病毒被释放后必定失控，请多保重<br/>
 ![img](https://media.gettr.com/group10/getter/2022/01/08/00/9f84b7a1-2f00-0726-c533-34bdbecd7297/out.jpg)
-
----
-
-`@miles 1/7/2022 11:39 PM (UTC)`
-
-1/07/2022 Miles Guo: Countries that implement vaccine mandate are controlled by a political party that controls the government and legislature and uses the same trick to push COVID vaccines that all the vaccine manufacturers are not responsible for; taking preventative measures is more important than the antidote; the vaccine mandate is bound to fail given the public opinions in the United States!<br/><br/>1/07/2022 文贵直播：推行强制疫苗政策的国家都是由一个政党控制了政府和立法机构，用同一套路推疫苗，所有疫苗厂商都不负责；防范比解药更重要；民意决定了强制疫苗在美国行不通！<br/>
-![img](https://media.gettr.com/group32/getter/2022/01/07/23/8d0c88c0-6902-fcb3-d564-52ceff545e77/out.jpg)
 
 ---
 

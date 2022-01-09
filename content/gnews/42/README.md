@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838629/)
+## 到底啥情况？近1387万人口的天津市开始大规模核酸检测
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1838980/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2021年1月5日文贵大直播中，郭先生称，中共花一年时间通过世界级媒体HBO VICE以及记者杨贝贝，处心积虑利用假视频抹黑爆料革命，将全球华人定义为西方民主最大的敌人，将给海外华人带来“印尼排华”惨案般种族歧视、种族屠杀等灾难。杨贝贝事件是中共为华人乃至黄皮肤亚裔，精心罗织的极其阴险歹毒的天罗地网加强版。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-12.png)（图片源自本文链接）
+日本雅虎网站1月9日消息：据彭博社报道，１月9日中共国首次报告了在天津市发生社区感染中共病毒（新冠病毒Covid-19）变异菌奥密克戎的病例，该市已开始大规模测试。
 
-1月4日，被她蓄意恶剪的视频所陷害的战友跟律师们进行了沟通，新中国联邦人优秀的英文、清晰的思路与准确的表达让律师们感到惊讶。
+中共中央电视台（CCTV）在同一天报道说，在完成当地的基因组分析后，中国疾病预防控制中心（CDC）确认天津的两个病例为奥密克戎毒株感染。
 
-最后律师们对杨贝贝事件达成3点共识：一，确认2020年1月6日国会山动乱现场并没有新中国联邦国旗，这是极其危险的栽赃；二，把华人定义为西方民主的威胁，完全是希特勒当年戈培尔式宣传口径，这绝对适用RICO法案；三，这个毫无法律依据的视频，推出的时机和内容，说明杨贝贝不仅在挑战新中国联邦，也在挑战美国。美国两党很多议员看了视频后都认为她绝对跟中共有关系。
+两名感染者之一是一名儿童，两人在过去两周都没有离开过天津。该市已于１月8日晚发布这一消息。
 
-对于杨贝贝是中共最重要的大外宣，是对华人最危险的人，新中国联邦人和所有华人都有权力起诉HBO VICE和Isobel Yeung。
+据中共新华社报道，天津市已宣布将于9日上午7点（格林尼治时间上午8点）开始大规模核查，以有效避免奥密克戎菌株的进一步扩散。
 
-文字版原文：[杨贝贝的歹毒用心堪比希特勒时代的戈培尔](https://gnews.org/zh-hans/1836360/)
+众所周知，想知道中共国的真实数字有多难！天津是直辖市，是各大都市，2020年的第七次人口普查中，天津市的人口为13866009人。既然有必要全市做核酸检测，实际感染状况只能靠大家自己去想象了。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+信息来源：[中国で初のオミクロン株市中感染報告、天津市で大規模検査開始－報道（Bloomberg） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/936d4d4bd85bb00554aff37e336b7ff3b22247fc)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

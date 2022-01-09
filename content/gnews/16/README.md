@@ -2,42 +2,42 @@
 ---
 
 
-## 不管喜不喜欢信不信任，灭共是我们聚在一起的唯一理由
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1839562/)
+## 谁统治了数字领域，谁就能控制世界
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1839630/)
 
-G-TV视频链接：[https://gtv.org/video/id=61da2db987664c47acd24411](https://gtv.org/video/id=61da2c4087664c47acd2428d)
+**编译：七龙珠**
 
-**郭文贵先生**:更重要的事情，刚才我跟小斯基说那话，你只要想不遇见鬼，半夜不怕走墓地，你就要有爱！包括爱你不喜欢的人，包括爱你不信任的人，只有一个理由，因为我们是共同的灭共者。只要是共同灭共的，你们水都很多，我看你们每个人脸上都是很多水。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09.png)马克扎克伯格在美国国会的一份声明中。 （EFE /迈克尔雷诺兹）
 
-只要你是帮共产党的，你们的水肯定是枯竭的，你们就是沙漠。这就是七哥今天想说的，感谢你们所有做的一切，没有你们，我们爆料革命走不到今天，你们在做着一生当中可能你自己到现在都无法想象的多么伟大的事业！相信你自己所做的！谢谢兄弟姐妹们！
+随着大型科技公司的影响力越来越大，各国政府正日益努力在数字空间和“技术极地”世界中行使主权。
 
-字幕来源:[2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）](https://gnews.org/zh-hans/1816880/)
+苹果公司本周成为第一家市值超过3万亿美元的公司，这是大科技影响力不断增强的最新里程碑。这种情况在大流行之前就发生了，但冠状病毒加速了这种趋势。与病毒颠覆“真实”和数字世界之前相比，现在有更多人在网上买东西，在社交媒体上保持联系，并使用应用程序来满足他们的日常需求。
 
-编辑整理:Jacques；
+随着大型科技公司的影响力越来越大，各国政府正更加努力的在数字空间行使其主权。少数科技公司现在和民族国家一样强大：地缘政治行为者通过他们的算法对我们能够获得的，以及不能获得的信息具有前所未有的影响力。
 
-字幕文件制作:小满；
+但政府并不喜欢在“技术极地”中扮演大科技公司的第二把交椅，在这个新的全球秩序中，科技公司主导着网络世界，但还并不能统治它。欧亚集团认为，政府和科技公司都无法有效控制的快速扩张的数字空间是2022年的第二大地缘政治风险。
 
-视频制作及上传:Cindy；
+在整个2021年，各国政府都试图通过各种手段来维护自己的地位。当习近平打击电子商务巨头阿里巴巴、移动交通应用滴滴出行、加密货币甚至在线游戏时，中共国成为世界科技头条。习近平这样做是因为这些公司以牺牲北京所谓的“社会和谐”为代价来充实自己，或者说是因为它们威胁要变得比中国共产党更有影响力。从那时起，中共国的科技巨头们已经收敛了他们的野心，并表现出合作的意愿，这让习近平很高兴，也让他们自己感到很懊恼。
 
-G-News发布:小满；
+与此同时，在美国，脸书Facebook及其姊妹程序Instagram和WhatsApp在全球范围内发生了长达数小时的故障，以及内部人士对该公司如何将利润置于人之上的披露，促使国会举行了一波听证会，调查Facebook的算法如何伤害儿童和促进网上愤怒。
 
-**广而告之****:****尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道****:**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+但是，推动Facebook拥有其“大烟草时刻”的努力很快就被华盛顿的党派僵局所打断，这种情况今年肯定会继续下去。在监管大科技方面，欧盟可以说比美国人或中国人取得了更多进展。布鲁塞尔最近同意在2022年通过一项新的法律，以惩罚价值至少800亿美元的公司在数字领域的反竞争行为。
 
-声明:文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+欧盟还在制定立法，禁止针对未成年人的广告，并迫使谷歌和Facebook开放其算法，打击虚假信息，并对用户更加透明。然而，这一切都不足以让政府严重削弱大型科技公司的财富和影响力。这也不足以削弱他们在人工智能、机器学习或量子计算等方面的投资能力，在不久的将来，这将继续使虚拟力量的天平倾向于科技公司。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+此外，政府不想做出让步，因为他们的公民沉迷于技术，在大流行病时期更是如此。近两年来，数十亿人在covid-19的限制下，依靠技术解决方案来满足几乎所有的日常需求。大多数中国人在网上交流、购物和做任何事情都只用一个应用程序：微信，其使用如此广泛，以至于封锁它以惩罚其所有者腾讯，即使对全能的习近平来说也不是一个选项。科技公司方面，也有自己的职责。大科技公司需要保持数字空间不成为一场争夺战，因为它正在提供基本的在线基础设施和其他传统上由政府负责的公共产品，如国防。苹果、谷歌和微软已经投入数十亿美元帮助美国政府和企业加强其网络安全。政府或大型科技公司对数字空间的无效管理将损害双方的利益。而其后果又会以更广泛的错误信息、扼杀创新和增加潜在危险技术落入坏人手中的风险的形式损害企业和社会。
 
-Discord:[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**新闻来源**：[elconfidencial.com][¿EEUU, China, la UE o las ‘Big Tech’? Quien gobierne la esfera digital controlará el mundo](https://www.elconfidencial.com/mundo/2022-01-07/big-tech-gobernanza-digital-eeuu-china-ue_3354256/)
 
-YouTube:[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+* * *
 
-G-News:[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
 
-盖特:[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
-推特:[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV:[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
