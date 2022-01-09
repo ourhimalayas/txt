@@ -2,23 +2,29 @@
 ---
 
 
-## 有声|意大利强迫50岁以上公民必须注射疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838626/)
+## 人生就是一场大梦
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838880/)
 
-配音：香草山教育部 – 百香果
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台媒报道，当地时间5日，意大利政府宣布强制令，要求50以上民众必须接种中共病毒疫苗。意大利此举成为非常少数实施疫苗强制令的欧洲国家。
+作者：纽约香草山 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月5日，郭先生在大直播中提到，五台山有位大师，给郭先生发信息告知，应该把gettr图标由歪扳正，将会有奇迹发生。正如其所料，现在奇迹发生了。
 
-这项强制令要求50岁以上，没有工作的人必须接种疫苗，而有工作者必须取得所谓的“疫苗通行证”，才能进入工作场所。而根据最新统计，在意大利5900多万人口中，有大约2800万人年龄超过50岁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获.png)
 
-评论指出，意大利政府不顾中共病毒疫苗给民众带来的巨大伤害，而在老年人中执行疫苗强制令，其险恶目的已经暴露无遗。
+并且郭先生还说，他保留最重要的一句话一直未说出口，即这位五台山大师，当时站在山顶悬崖，便知道了对岸，并坚信一定能达到彼岸。修行正道，人生早有答案，不管什么宗教，皆信最终人生一切皆空相，人生最终就是黄粱一梦。
 
-文字版原文：[意大利强迫50岁以上公民必须注射疫苗](https://gnews.org/zh-hans/1833336/)
+当你做梦的时候，完全是真实的，只是你挣扎不开。等你醒的时候，发现你又活了一天。你上一个正在睡觉时的身体，就是现在的灵魂所在。当你做喜梦，黄粱梦，醒来发现自己又活过来了。我们把自己的梦做好，醒来非常愉悦，你就修行成功了。灵离开你的时候，就是你醒来的时候。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+- [2022/01/05 郭先生大直播速記](https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

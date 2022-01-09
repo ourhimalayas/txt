@@ -2,24 +2,30 @@
 ---
 
 
-## 北卡罗来纳州众多校车司机感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839007/)
+## 英国卫生部长当场被科学“打脸”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839100/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-14.jpg)图片来源：雅虎
-1月8日，《国会山报》报道，由于几十名校车巴士司机感染了中共病毒（COVID-19），两所高中的学生将至少两周无法乘坐校车上学。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-5.png)图片来源：视频截图
+1月7日，《国家脉动》发布了一个《天空新闻》的短视频，报道英国卫生部长萨吉德·贾维德（Sajid Javid）被一位国民医疗服务体系（NHS）的医生打了个措手不及，这位医生在镜头前告诉他，强制接种中共病毒（COVID-19）疫苗背后的科学依据“不充分”。
 
-据北卡罗来纳州格林斯博罗的《新闻与记录》报道，吉尔福德县（Guilford County）学校说，76名校车司机在中共病毒检测呈阳性后暂时失去了工作，导致该学区人员严重短缺。学区总监莎朗·康特雷拉斯（Sharon Contreras）告诉新闻媒体，如果学生出示学生证，他们可以免费乘坐城市巴士。
+目前未接种中共病毒疫苗的史蒂夫·詹姆斯（Steve James）医生在伦敦国王学院医院担任麻醉师顾问，他告诉贾维德，他曾经感染过中共病毒，拥有中共病毒抗体，并且自中共病毒大流行以来一直在安全地与病人一起工作。
 
-周五，吉尔福德县的学区首次推迟了公交车的乘坐时间，当天中学上学时间推迟一小时，高中和早期大学（Early College）上学时间推迟一个半小时。
+詹姆斯医生在重症监护室工作时，贾维德问他对英国要求NHS工作人员接种中共病毒疫苗新规定的看法。
 
-报道说，为了在最新一波中共病毒肆虐中吸引和留住巴士司机，吉尔福德县已将司机的基本底薪提高到每小时15美元，并为全勤的司机提供每月1000美元的奖励。
+詹姆斯回答说：“我对此很不满意。我在某个时候感染过中共病毒，我有抗体，我从一开始就在中共病毒重症监护室工作。我没有接种过疫苗，我不想要接种（中共病毒）疫苗。疫苗对（中共病毒变体）德尔塔（Delta）来说，只减少了大约八周的传播。对于奥米炕（Omicron），可能更少。因此，如果我不接种疫苗，就会被解雇？科学依据还不够充分”。
+
+对此，贾伟德回复说：“我尊重这一点，但也有许多不同的观点”。
+
+视频中，詹姆斯建议这位也反对英国脱欧的前银行家贾维德，应该对规则进行细微的调整，允许那些拥有自然产生的抗体的人不被要求接种疫苗，他说：“我从中共病毒传播中得到的（抗体）保护可能与接种疫苗的人相当。”
+
+在视频末尾，詹姆斯指出，他的许多同事也有类似的认同观点。
 
 **新闻来源**
 
-[North Carolina high schools suspend bus service after too many drivers test positive for COVID-19](https://thehill.com/policy/transportation/588879-north-carolina-high-schools-suspend-bus-service-after-too-many-drivers)
+[WATCH: Doctor Tells Health Minister ‘Science Isn’t Strong Enough’ to Enforce Mandatory Vaccination](https://thenationalpulse.com/2022/01/07/watch-doctor-tells-health-minister-science-isnt-strong-enough-to-enforce-mandatory-vaccination/)
 
  
 

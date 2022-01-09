@@ -2,42 +2,34 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“陈全国”（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1839154/)
+## 菲律宾下令抓捕违反居家令的未接种新冠疫苗者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839214/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-13.png)
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+外媒1月7日消息，随着奥米克戎使菲律宾感染人数增多，菲律宾总统近日命令，首都马尼拉的1300万未接种疫苗者必须呆在家里，除去必要的物资采购和锻炼，其余时间不得出门。若有违反，可以随意逮捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-593.png)
+新闻来源：
+
+[Philippines’ Duterte orders arrest of unvaccinated people who violate stay-at-home orders](https://www.theguardian.com/world/2022/jan/07/philippines-duterte-orders-arrest-of-unvaccinated-people-who-violate-stay-at-home-orders)
 
 
- 
-**图片来源：雅典娜农场技术组（614）**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
 
-**郭文贵****2021****年****12****月****29****日直播**
+总编：文特
 
-文耀刚才问到陈全国在新疆的事情，陈全国跟我关系是特别的好，我们俩在河南太熟了。陈全国一来就说：“哎呀！老弟，你整这么多菜干什么？太贵了，我这是村长出身，你看这真是忒贵忒贵了，整得太豪华了！”。我就说：“全国老哥，都知道你简朴，知道你为人正直，知道你廉洁，平常不吃这些。七弟我不是搞餐厅的吗？所以弄来给你尝尝嘛！” 。他就会说：“是吗？是吗？这个不错！这个不错！”。实际上他净拣好吃的吃，不好的一样都不碰。
+编辑：飞虹
 
-陈全国到北京去送虫草，那是一麻袋一麻袋地送。到我那儿去的时候就会说：“老弟，我给你的可比给家宝的还多，给锦涛的跟你的一样多。但是，我这还有一包，不给他了，都给你吧！”。陈全国就给我这一大包虫草，跟温家宝同样的级别，足有25公斤，每根虫草上都有编号。你们没见过这种虫草，每根儿都带编号的。现在即便你买的是最好的虫草，有的虫草断了，也会拿个牙签儿或是细棍儿在里面串上，你吃的时候会吃到。但是给高层特供的虫草不会有这种折断过的。每一根都编号，为什么？因为产自那曲山，那里每个山坡的特供虫草都有编号。
+校正/发稿：浪迹天涯
 
-你们谁吃过有编号的虫草？下面战友谁举手说说。一根儿当时多少钱呢？我告诉大家，在真正买到手，一根儿150美金。给我送一袋子，20几公斤都带编号的。说是给的是和温家宝和常委同样级别的，然后再拿出一袋给我，是整袋统一编号的那种。那曲山顶的虫草听说男人吃了十根以后，大概一星期都会“金枪不倒”。但是我吃了以后真没发现有这效果，反而变成今天的“3秒”了。
-
-今天的内容是很特别的，说起当年的陈全国，有谁曾提到过他的过去？陈全国在河南是管组织的，当时已经要退休了。他在河南时，每年几次把下面当年一起搞纸箱厂的厂长请来，在他的常委院儿里喝酒，让常委们都来作陪。大年初二搞完慰问活动的当天，他一定回到他老家那个村里边去，和当年儿时的人还有活着的老师一起喝酒。
-
-你看这个陈全国的为人，他对人心之掠夺到了啥程度？对我这号人都这样，你说河南得有多少个“郭文贵”这样分量的人？当年的河南有个叫政协副主席，后来当了政协主席，叫什么平的……, 啊，叫支书平，组织部长。就是他接的陈全国的班。支书平每次跟在陈全国的后边，帮他拎着东西，让陈在前面走。一看到那些老领导，陈全国的腰就弓下去，把东西一递：“老首长，你怎么出来了？我这是来看你的，你怎么能出来呀？赶快进屋，别冻着了！ 支书平这儿您要有啥事，老领导就给他写一写！支书平，你这就安排人，马上办，马上办！”。
-
-往期回顾：
-[文·贵天成——文贵先生谈“陈全国”（一）](https://gnews.org/zh-hans/1815049/)
-
-[文·贵天成——文贵先生谈“陈全国”（二）](https://gnews.org/zh-hans/1815049/)
-
-发布：小红帽
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

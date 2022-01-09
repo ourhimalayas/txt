@@ -2,33 +2,34 @@
 ---
 
 
-## 如何吃得更健康以提高免疫力？食用油最关键！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1839104/)
+## 实行强制疫苗的国家多数为一党专权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839196/)
 
-**—— 物理精制的椰子油货源寻找和性价比初探**
+撰稿: 银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+1月7日大直播中，郭先生谈到强制施打新冠疫苗问题时指出：从全世界范围来看，但凡非常激进地实行强制新冠疫苗政策的国家，目前执政的政党几乎都来自一个党派。从国会、总统到法院，即从立法、颁布行政规定到执法，权力过分集中。他们联合大医药商，意见统一地要给全人类接种新冠杀人疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-591.png)
+从历史上看，这样的党派在此之前几乎没有参与过任何行政管理工作，却在病毒爆发时期的选举中成功篡夺政权。在他们的支持下，大医疗商根本不提供新冠疫苗成分以及接种后导致健康状况恶化的数据。尤其是对于造成的大量死亡，一个数据也未曾公布。
 
-**撰稿：Eva**
+越来越多有逻辑常识的人都看到，接种过新冠疫苗的人更容易染上病毒，人类迫切需要停止新冠疫苗。然而在这种状态下，一党专权的政府居然还在强制接种疫苗，从过去的两针，到现在的加强针，更有甚者要把强制新冠疫苗接种规划到月月接种，年年加强，陪伴一生。
 
-提升免疫力，最关键的一环其实是在我们的食用油上，希望引起战友们足够的重视。不要一天天只知道抗氧化营养补剂，却不管一日三餐的食用油，可能引发心血管发炎。个人认为身体的炎症，最重要的是解决食用油的问题。食用油不优先解决，其他都是浪费钱。
+郭先生再次提醒战友，一定要小心新冠病毒和疫苗，提前备药。
 
-食用油的知识学习是个不小的系统工程，今天本文并不打算探讨适合高温油炸的物理精制椰子油，如何具有氧化慢，抗酸败，加热过程可以避免脱酸脱色脱臭氧化分解等等的优点。我只是直接寻找到了购买物理精制的椰子油货源，分享给大家，并且做简单性价比。
+新闻来源：[1/07/2022 文贵直播（盖特）](https://gettr.com/post/pmz8m96bc4)
 
-废话不多说，直接干货上图：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-164828.jpg)
-希望战友们可以一图看懂物理精制的椰子油的性价比。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
 
-我把新加坡三家超市物理精制的椰子油产品都检查了几遍，现货只有Cold Storage有，而且只有一个品种。
+总编/编辑：飞虹
 
-于是抱着试试看的心态，查找了Iherb，没想到货源很多，我才犹豫了2天，却发现这些椰子油也是紧俏商品，时常断货。终于瞄到2次有货，2次都是下单以后秒被IHerb撤掉其中的椰子油！这次果断下单成功！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-165105.jpg)
-于是决定赶紧发文，给战友们参考：
+校正/发稿：浪迹天涯
 
-[https://iherb.co/pFHER58](https://iherb.co/pFHER58)
-
-Iherb其它各种物理精制的椰子油：
-
-[https://iherb.co/JMrbra6](https://iherb.co/JMrbra6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
