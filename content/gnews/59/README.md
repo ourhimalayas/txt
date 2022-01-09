@@ -2,32 +2,28 @@
 ---
 
 
-## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
+## 共匪正向着跟死神见面的地点狂奔
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1817507/)
 
-By GTV 新闻访谈 作者：纽约香草山农场 文真
+By：银河勇气星｜天雷滚滚
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-03-19.32.36.png)图源：网路
+2021年12月29日，日本朝日TV报导CCP强改盘古大观龙头，不料，触犯了远在中共国的习太阳，习太阳龙颜大怒，责令外交部通过日本国政府，强令下架该节目。
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
-图片来源：网络截图
-December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
+中共国的皇帝就是威武，在国内欺压老百姓还觉得不够过瘾，竟然把黑手伸向了别国的民营媒体，不知道远在大洋彼岸的美帝会不会为自己老被中共指责干涉别国内政喊冤。那么，这个朝日TV播放了什么节目，让CCP如此大动干戈呢？
 
-A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
+因为这个节目深入分析了为什么要把本来能带来好运的龙头给改造了的深层原因。他们认为，一是，盘古龙头建筑跟边上的龙形河流构成二龙相争；二是，盘古的居高临下的龙头建筑正对着中南坑，冒犯了他们的权威；三是龙是天子的象征，并且还说郭先生因揭露中共内幕而触了中共逆鳞，因此要改造龙头建筑。节目中还说到，在中华街上，到处都有龙的标志，盘古在建设前是经过中共国有关部门审批的，现在却把它强改了，明显是对老百姓的故意找茬，是非法治国家的独裁政权让人感到恐怖的地方，同时节目还谈到郭先生的红通背景。
 
-A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
+就这么一个在媒体司空见惯的无害节目，共匪竟然动用国家的力量强令日本国把这个节目下架，不得不佩服共匪的豪横。把一个酒店的龙形建筑强行改造，不让国内的老百姓说也算了，还不许人家国家的老百姓说，说了还要求强行下架？那就是说，它们强行改造盘古龙头的背后原因被日本媒体说中了，才让共匪恼羞成怒，不顾国际形象，而对日本进行霸凌？这不是不打自招，承认郭先生揭露的内幕是事实吗？同时，从另一方面说明了共匪只许它放火，不许世界上所有人点灯的傲慢。回顾它这么多年来，对西方的民主人权说三道四，并且还恶意把班农打成极右分子，在CCAV上公然羞辱一个国家的国务卿为“三姓家奴”，把一个国家的总统说成是老年痴呆，人家连让你媒体道歉的一句话都没有，更不用说动用国家力量责令节目下架了。这种强烈的反差，绅士和流氓高下立见。据我们战友说，这个媒体还是亲共的媒体呢，并且里边还有对郭先生的一些抹黑之词，被共匪这么一耍横，还真为咱爆料革命新中国联邦做了一次免费的广告。加速师不是浪得虚名。
 
-Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+看到这么一个故事：一名有钱的波斯人在花园散步时，遇到了自己的仆人。仆人惊恐地说自己刚刚碰到了死神，死神还威胁他。于是，仆人央求这个波斯人给他一匹快马，好让他在当晚逃往德黑兰以避开死神。波斯人答应了仆人，仆人飞身上马，疾驰而去。波斯人走回客厅，迎面正碰到死神，他就很生气地问死神：“你为什么要吓唬我的仆人？”死神回答：“我没有吓唬他，我看见他还在这里待着觉得奇怪，因为我本想今晚在德黑兰找他的。”这个故事里的仆人像不像共匪，穷途未路了，死神在召唤着它，可是，他就是心有不甘，依然想让自己千秋万代地活下去，继续残暴地奴役我14亿同胞甚至全世界人类，但是，无论怎样挣扎，也只骑上快马，向死神要跟它见面的地方狂奔。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+* * *
 
-参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+作者：天雷滚滚
+发布：骄子
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
-
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎各位战友加入。欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-3.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
