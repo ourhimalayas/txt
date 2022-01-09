@@ -2,30 +2,37 @@
 ---
 
 
-## 英国卫生部长当场被科学“打脸”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839100/)
+## 高科技助力“黄粱一梦”梦过留痕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839155/)
 
-#### 撰稿：彩虹
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+在1月7日大直播中，郭先生抛出一个话题，引人遐想：雁过留声，人过留名，如果说人生是黄粱一梦，那么应该怎样完整地记载这个梦境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-590.png)
+接着郭先生解释道，大师所说的人生如黄粱一梦，其实是指点我们的灵魂，不要被当下的皮囊羁绊住。要学会看透本质，放下生死，立地解脱。人的大脑往往记不住做过的梦，面对如此重大的时代变革，如何防止历史被篡改呢？正如郭先生保留了一张照片，定格在1977年时小兄弟的样貌一样，现在的互联网、录音、视频，我们的大直播等高科技手段，同样完整而真实地记录了爆料革命战友说过的话，做过的事，随时可以被重复观看，没有任何人能够改写。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-5.png)图片来源：视频截图
-1月7日，《国家脉动》发布了一个《天空新闻》的短视频，报道英国卫生部长萨吉德·贾维德（Sajid Javid）被一位国民医疗服务体系（NHS）的医生打了个措手不及，这位医生在镜头前告诉他，强制接种中共病毒（COVID-19）疫苗背后的科学依据“不充分”。
+郭先生特别强调，大师点破了人生如黄粱一梦，是因为那些杀人恶魔会被自己的噩梦困住，无法醒来，将永远被镇在巍峨的山脉之下。
 
-目前未接种中共病毒疫苗的史蒂夫·詹姆斯（Steve James）医生在伦敦国王学院医院担任麻醉师顾问，他告诉贾维德，他曾经感染过中共病毒，拥有中共病毒抗体，并且自中共病毒大流行以来一直在安全地与病人一起工作。
+战友们要健身健心，让自己足够自信强大，一定会有机会看到我们新中国联邦的梦被永载史册。
 
-詹姆斯医生在重症监护室工作时，贾维德问他对英国要求NHS工作人员接种中共病毒疫苗新规定的看法。
 
-詹姆斯回答说：“我对此很不满意。我在某个时候感染过中共病毒，我有抗体，我从一开始就在中共病毒重症监护室工作。我没有接种过疫苗，我不想要接种（中共病毒）疫苗。疫苗对（中共病毒变体）德尔塔（Delta）来说，只减少了大约八周的传播。对于奥米炕（Omicron），可能更少。因此，如果我不接种疫苗，就会被解雇？科学依据还不够充分”。
 
-对此，贾伟德回复说：“我尊重这一点，但也有许多不同的观点”。
+新闻链接: [2022年1月7日 文贵大直播](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
 
-视频中，詹姆斯建议这位也反对英国脱欧的前银行家贾维德，应该对规则进行细微的调整，允许那些拥有自然产生的抗体的人不被要求接种疫苗，他说：“我从中共病毒传播中得到的（抗体）保护可能与接种疫苗的人相当。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
 
-在视频末尾，詹姆斯指出，他的许多同事也有类似的认同观点。
+编辑:Kathy文艺
 
-**新闻来源**
+校正/发稿：浪迹天涯
 
-[WATCH: Doctor Tells Health Minister ‘Science Isn’t Strong Enough’ to Enforce Mandatory Vaccination](https://thenationalpulse.com/2022/01/07/watch-doctor-tells-health-minister-science-isnt-strong-enough-to-enforce-mandatory-vaccination/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+
 
  
 

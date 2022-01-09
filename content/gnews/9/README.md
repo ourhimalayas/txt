@@ -2,27 +2,34 @@
 ---
 
 
-## 完全接种疫苗的格鲁吉亚网球明星因呼吸困难而退出悉尼杯比赛
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1839191/)
+## 菲律宾下令抓捕违反居家令的未接种新冠疫苗者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839214/)
 
-作者：意大利罗马达芬奇农场 – 阿娜
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+外媒1月7日消息，随着奥米克戎使菲律宾感染人数增多，菲律宾总统近日命令，首都马尼拉的1300万未接种疫苗者必须呆在家里，除去必要的物资采购和锻炼，其余时间不得出门。若有违反，可以随意逮捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-593.png)
+新闻来源：
 
-格鲁吉亚网球明星尼古洛兹-巴西拉什维利（Nikoloz Basilashvili）现年29岁，在世界网球运动员排名第22位。
-
-1月8日，巴西拉什维利与希腊选手斯特凡诺斯-齐西帕斯（Stefanos Tsitsipas）的单打比赛中，由于呼吸困难，需要医生的治疗而被迫退出悉尼杯。
-
-澳大利亚的Nine.com报道，科林-弗莱明在斯坦体育的评论中说：“这是令人担忧的，我想说的是非常担忧。如果你觉得你在这种水平和这种强度下无法进行任何形式的深呼吸，这就是一个问题。”
-
-有人听到巴西拉什维利告诉他的支持团队，“每一次挥拍我都喘不过气来”，然后告诉医务人员，他在 “挣扎着呼吸”。
+[Philippines’ Duterte orders arrest of unvaccinated people who violate stay-at-home orders](https://www.theguardian.com/world/2022/jan/07/philippines-duterte-orders-arrest-of-unvaccinated-people-who-violate-stay-at-home-orders)
 
 
 
-关于巴西拉什维利的健康状况，目前仍无最新进展。据了解，巴西拉什维利已经接种了两次疫苗。去年，澳洲维多利亚州州长规定，所有来澳大利亚参加网球公开赛的球员必须全面接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
 
-参考新闻🔗 [https://www.thegatewaypundit.com/2022/01/every-shot-cant-breathe-fully-vaccinated-tennis-star-nikoloz-basilashivili-drops-sydney-cup-due-breathing-difficulties-must-see-video/](https://www.thegatewaypundit.com/2022/01/every-shot-cant-breathe-fully-vaccinated-tennis-star-nikoloz-basilashivili-drops-sydney-cup-due-breathing-difficulties-must-see-video/)
+总编：文特
 
+编辑：飞虹
 
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

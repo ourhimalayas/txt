@@ -2,8 +2,8 @@
 ---
 
 
-## 一位医师接受辉瑞疫苗之后的警示
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839242/)
+## 盖特的现况是共产党迫害我们的铁据
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839303/)
 
 台灣寶島農場
 
