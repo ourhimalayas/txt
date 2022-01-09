@@ -2,35 +2,48 @@
 ---
 
 
-## 西藏公路里程过12万公里背后的阴谋
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1839642/)
+## 我們心中最大的魔就是用自己的標準去量所有人、比高低
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1839790/)
 
-人民网2022年01月05日报道：西藏自治区发布数据指出：西藏公路通车里程突破12万公里，促进西藏自治区社会经济发展，雪域天堑正在变成通途。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/53.png)图片来源：Tibet.org![](https://assets.gnews.org/wp-content/uploads/2022/01/image-605.png)
-**短评：**
+G-TV視頻鏈接：[https://gtv.org/video/id=61da309a87664c47acd246fe](https://gtv.org/video/id=61da309a87664c47acd246fe)
 
-西藏自治区公路快速发展利国利民，党国应该大力宣传。西藏因平均海拔超4000米、地形条件复杂，修建公路极为困难，这一公路长度已远超美国高速公路总数。这种奇迹工程代价极为昂贵。以青藏公路为例，平均每米造价约25.2万元，新建拉林公路每米约10万元。对比修建公路所到之处，从西藏高原的地理和战略意义出发，才能明白中共真正野心。
+**郭文貴先生**:我真不知道已經十幾個小時了，從早上到現在，我是早晨5點20大家看到我聊一直到現在都沒有停，但是確實一直在興奮當中，一直控制這個上水下水，今天確實是水比較多。
 
-首先，交通便利有助于掠夺西藏资源。西藏高原拥有126种以上的矿产资源。林芝地区是中共国第三大林区，拥有最大原始森林资源。同时，西藏有丰富的冰川矿泉水资源。所有这些资源的开采和掠夺首要条件就是交通设施便利。
+但是我今天和所有戰友們度過一個我覺得從2021年到2022年這個最關鍵的時間，我覺得爆料革命和新中國聯邦，包括人類的命運，我覺得2022年是人類的分水嶺。今天我這樣說你們都不覺得驚訝了，如果我一年前說，你們都覺得我神經病，是不是我誇張了、吹牛什麼的。
 
-其次，藏民由于政治、宗教信仰和文化等原因，对于中共暴政和掠夺资源带来的生态劫难一直有抗议活动，高速公路发达有助于军警快速镇压抗议活动，迫使西藏人民抗争陷入一片静默。
+我從來沒想試圖說服過任何人，包括你七嫂，包括家人，我從來沒有過，因為人的緣分不是你能說服的了的，人和人之間的關係真的不是能靠嘴達到的。真正的人與人之間的信任和感情，絕對不是嘴能說到的。
 
-再次，公路修建利于一带一路项目实施，尤其是与尼泊尔合作。一带一路项目本质是掠夺他国资源、劳务输出、倾销中共产品和服务等，让合作国陷入债务陷阱。西藏修建吉隆和樟木口岸，也让尼泊尔进入了中共的圈套。此外，修建公路还便于运输兵力，用于武力解决中印边境争端。
+很多過去的欺民賊偽民運他不懂這個道理，就人類這個靈性動物，他最終一定要看你行動的，最終就是以結果論，這就是動物和植物界的根本不同。那麼我們在一個地球上，我們大家面對著一個物質的世界和一個我們完全無法想象未知的星空，銀河系、太陽系，無限大的宇宙和地球之間一粒沙的關係，我們跟人之間相處的時候實際上是最複雜的。
 
-至于改善藏民生活和环境，那只是中共修建公路目的中最少考虑甚至根本不在考虑的部分。而中共宣传时，这部分却被无限放大，体现“伟光正”的共党政策，让屁民相信“党一切都为了人民”，而真相却无法被人得知。
+當今天我們看到同心同框的這麼多戰友的時候，有人說話多一點，有人說話少一點，有人激動一點，有人「水」多一點，有人「水」少一點，是不是？分男女，分老少，分長短，但是大家記住我們心中最大的魔就是比高低，而且這個高低誰定的？你自己定的，都是我們每個人用自己的標準去量所有人去。
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+字幕來源:[2022年1月1日 文貴大直播 元旦特別節目「正道至善，除惡建邦」全文字版（四）](https://gnews.org/zh-hans/1816880/)
 
-链接：[**http://xz.people.com.cn/n2/2022/0105/c138901-35082716.html**](http://xz.people.com.cn/n2/2022/0105/c138901-35082716.html)
+編輯整理:Jacques；
 
-素材：洛杉矶盘古农场 — Poplar
-评论：洛杉矶盘古农场 — Poplar
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+字幕文件製作:小滿；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+視頻製作及上傳:Cindy；
+
+G-News發佈:小滿；
+
+**廣而告之****:****尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道****:**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+聲明:文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
+
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
+
+Discord:[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube:[日本銀河系農場](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News:[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+
+蓋特:[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特:[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV:[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
