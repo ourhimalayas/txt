@@ -2,47 +2,45 @@
 ---
 
 
-## 拜登政府疫苗强制违宪，立法者敦促最高法院将其推翻
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1838473/)
+## 法院命令FDA每月公开数以万计的辉瑞文件
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1838542/)
 
-#### 【雅典娜观察】和您一起探究世界 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-51.png)图片来自网络
+据《网关专家》作者：朱利安·康拉德森（Julian Conradson）2022 年 1 月 7 日报道
 
-#### 整理报道：小鱼儿
-编辑：文泓
+周四，在 FDA 上个月被命令遵守信息自由法案 (FOIA) 之后，一名联邦法官“彻底”拒绝了 FDA 的慌张请求，该请求允许其以每月 500 页的速度公布与辉瑞和疫苗相关的数十万份文件。FDA 令人难以置信的请求会让他们花费难以置信的 55 年时间来公布所有文件。但由于得克萨斯州北部地区法官马克·皮特曼（Mark Pittman）的裁决，该机构将在未来几个月内以每 30 天 55,000 页的速度公布这些可能令人讨厌的记录。第一个截止日期是 1 月 31 日，要求 FDA 上交 12,000 页，其余的在此之后每月提交。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-577.png)
+根据皮特曼的决定：“因此，法院得出结论认为，这项 FOIA 要求具有至高无上的公共重要性。“陈旧的信息没有什么价值” 。法院同意这一事实，因此得出结论认为，迅速完成原告的请求不仅可行，而且是必要的。为此，法院进一步得出结论，如下文详述的速度适当地平衡了处理这一请求的前所未有的紧迫性与 FDA 对制作负担的担忧。据其在自己的提案中所阐明的，FDA 应该在 2022 年 1 月 31 日或之前制作完成“超过 12,000 页”，参见 ECF No. 29 at 24。FDA 应每 30 天以 55,000 页的速度制作剩余文件，第一份应在 2022 年 3 月 1 日或之前完成，直到全部完成。”哇。考虑到我们从第一批只有 500 页的文件中得到的信息 – 你可以打赌很快就会有一些令人震惊的数据出来。
 
-图片来源：Daily News
+亚伦·西里（Aaron Siri ）是负责处理 FOIA 请求的律师之一，他在他的 Substack 频道上宣布了这一重大消息，称其为“透明度的巨大胜利”，并且朝着追究腐败的公共卫生官僚机构对公众隐藏实验性中共病毒疫苗的危险性数据的责任迈出了一大步。“这是透明度的一大胜利，消除了联邦“卫生”当局对独立科学家，提供解决方案，和解决当前疫苗计划的严重问题所需数据的束缚之一 ，包括免疫力减弱、逃避疫苗免疫力的变种等问题。而且，正如 CDC 所证实的那样，疫苗并不能阻止传播。任何人都不应该被强迫进行不受欢的医疗。政府通过强制使用中共病毒疫苗，侵犯了这一基本自由权，已经够糟糕了，但政府还想隐藏数据。直到今天几乎所有活着的美国人都死了才完全公布这些它所依赖的，发放疫苗产品许可的数据。这种治理形式破坏了自由，与民主社会所需的开放性背道而驰。”
 
-
-当地时间1月8日，众多的立法者签署了一份非当事人意见书，敦促美国最高法院推翻乔·拜登总统对联邦工作人员、承包商和许多私营企业的新冠病毒强制疫苗的违宪行为。
-
-据生活网站（LifeSite）新闻报道，183名立法者签署了“法庭之友”简报，敦促最高法大法官推翻11月通过职业安全与健康管理局（OSHA）发布的强制规定（疫苗强制）。据该媒体报道，“职业健‘康和安全管理局从来就不是卫生健康警察”，立法者写道。
-
-“此外，强制接种疫苗并不能阻止个人感染和传播新冠病毒。接种疫苗的员工仍然可以感染和传播新冠病毒，包括新的奥密克戎变种病毒。鉴于这一事实，仅对未接种疫苗的员工实施戴口罩和测试的限制是毫无意义的”。立法者补充说。
-
-这封信是在本周高等法院口头辩论之前提交的，该案件由俄亥俄州和全国小企业联合会提起，有两家公司都在起诉OSHA对拥有100名或更多员工的公司规定，要求工人强制接种疫苗或接受每周检测。
-
-“国会成员希望他们授予机构的权力不被滥用”，立法者们在简报中指出：“赋予联邦政府的立法权属于国会，而不是行政部门。在这种情况下，职业健康和安全管理局颁布了一项针对企业的全面的、全国性的（强制）疫苗任务，侵入了一个由立法关注的领域，远远超出了该机构的权限”。
-
-此外，立法者表示，对各种疫苗的功效存在严重而合理的担忧，但[即使它们更可靠和有效](https://pandemic.news/2022-01-05-vaccines-dont-stop-covid-outbreaks-cause-them.html)，是否强制接种的权力在历史上也由各州自己决定，而不是联邦政府，当然更不是行政部门。
-
-他们写道：“在监管计划中，如果没有明确的国会授权，将行政机构权力扩展到州警察管辖领域，不能假定有这种权利存在”。
-
-埃琳娜·卡根法官提出，接种疫苗可以减少新冠病毒传播的这种说法值得怀疑。因为全世界的突破性病例数量迅速上升。卡根的观点是，“现在立法者的举措是最有利于阻止这一切的政策”。
-
-新闻链接：[Lawmakers line up to urge Supreme Court to toss out Biden’s unconstitutional COVID-19 vaccine mandate](https://www.naturalnews.com/2022-01-08-lawmakers-urge-supreme-court-to-toss-bidens-unconstitutional-covid-19-vaccine-mandate.html)
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+做出这个决定后，福奇和其他腐败的公共卫生暴君应该感到非常担心。问责正在到来。
 
 
+
+> NEW – Federal judge has reportedly rejected FDA's request to produce only 500 pages per month on the [#Pfizer](https://twitter.com/hashtag/Pfizer?src=hash&amp;ref_src=twsrc%5Etfw) Covid vaccine data, instead ordering a rate of 55,000 pages per month.[https://t.co/BmKMFEjwg8](https://t.co/BmKMFEjwg8)
+> — Disclose.tv (@disclosetv) [January 7, 2022](https://twitter.com/disclosetv/status/1479254271828844545?ref_src=twsrc%5Etfw)
+
+
+
+[*披露**.tv**@disclosetv*](/cdn-cgi/l/email-protection#7c9af6d795e0ce52080a3c18150f1f10130f19080a)
+
+*最新报道，联邦法官拒绝了 FDA 要求每月仅制作 500 页关于#辉瑞疫苗数据的请求，而是以每月 制作55,000 页的速度。*[*https://t.co/BmKMFEjwg8*](https://t.co/BmKMFEjwg8)
+*2022 年 1 月 7 日*
+
+原文链接：
+
+
+
+> [JUST IN: Court REJECTS FDA Request to Release Vaccine FOIA Documents Over the Next 55 Years – Orders Agency to Turn Over Tens of Thousands of Pfizer Docs Monthly](https://www.thegatewaypundit.com/2022/01/just-court-rejects-fda-request-release-vaccine-foia-documents-next-55-years-orders-agency-turn-tens-thousands-pfizer-docs-monthly/)
+
+
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 

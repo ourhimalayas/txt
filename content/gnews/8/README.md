@@ -2,18 +2,18 @@
 ---
 
 
-## 杭州机场一俄货机起飞时失火
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838485/)
+## 科兴疫苗半年海捞百亿美元 同比暴增162倍
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838586/)
 
-作者：首尔天池农场 追着曙光跑
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中共国新华社杭州1月8日电，当日早晨4点左右，由杭州飞往俄罗斯新西伯利亚马切沃机场的俄罗斯航星航空4B6534货机，在准备起飞前退出机位时突发舱内明火情况。经紧急处置，机上8名机组人员全部被救出后转移。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/BBAA92EF03871927E2172D873119EBE29BA24221_size79_w1200_h733.jpeg)
-据舱单信息，该货机装载有普通货物约20吨，配载航油约26吨。目前，相关险情已成功排除，起火具体原因相关部门正在进一步调查中。
+台湾媒体1月8日报道，中共科兴生物公司近期披露的财务报表显示，2021年上半年该公司收入高达110亿美元，比2020年同期暴增162倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/29c56895229f879b5d6cdd908eeb3aa3_1200x1200@1200x1200.jpeg)
+据悉，科兴生物已经向全球供应了25亿剂中共病毒疫苗，在毒害全球人民的同时，又赚得了天文数字的不义之财。
 
-参考链接：
-1）[关于杭州机场一起不安全事件的情况通报](http://hd.caac.gov.cn/HD_DQYW/202201/t20220108_210816.html)
-2）[杭州机场快速处置一起外航货机起火事件](http://www.news.cn/local/2022-01/08/c_1128244742.htm)
+不过，墙内网友发现，科兴的第一大股东竟然隶属日本软银，持股达15.07%。这一发现令不少网民感到崩溃。
+
+参考链接：[中國全網崩潰！科興靠疫苗半年海撈千億 最大股東卻是軟銀](https://ec.ltn.com.tw/article/breakingnews/3793958)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
