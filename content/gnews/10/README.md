@@ -2,37 +2,25 @@
 ---
 
 
-## 人生就是一场大梦
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838880/)
+## 法律专家呼吁国会对强制接种中共病毒疫苗采取立法行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1838938/)
 
-作者：纽约香草山 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月5日，郭先生在大直播中提到，五台山有位大师，给郭先生发信息告知，应该把gettr图标由歪扳正，将会有奇迹发生。正如其所料，现在奇迹发生了。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-4.png)图片来源：新闻极限
+1月8日，《新闻极限》报道，法律专家艾伦·德肖维茨（Alan Dershowitz）在新闻极限（Newsmax）节目中表示，拜登政府在强制接种中共病毒（COVID-19）疫苗方面大放厥词，试图规避国会和宪法规定的立法权。
 
-并且郭先生还说，他保留最重要的一句话一直未说出口，即这位五台山大师，当时站在山顶悬崖，便知道了对岸，并坚信一定能达到彼岸。修行正道，人生早有答案，不管什么宗教，皆信最终人生一切皆空相，人生最终就是黄粱一梦。
+周六，在“目前美国（America Right Now）”节目中，德肖维茨说：“只有国会拥有可以制定强制接种（中共病毒）疫苗的权力，而不是总统。毕竟，宪法说，‘所有立法权归于国会’，也就是说，国会可以制定所有需要制定的法律。宪法没有赋予总统制定法律的权利，而强制接种（中共病毒）疫苗要么需要通过制定法律，要么需要对安全与卫生署（OSHA）的规定进行非常非常宽泛的解释”。
 
-当你做梦的时候，完全是真实的，只是你挣扎不开。等你醒的时候，发现你又活了一天。你上一个正在睡觉时的身体，就是现在的灵魂所在。当你做喜梦，黄粱梦，醒来发现自己又活过来了。我们把自己的梦做好，醒来非常愉悦，你就修行成功了。灵离开你的时候，就是你醒来的时候。
+德肖维茨认为，“如果国会适当地颁布这项（强制接种中共病毒疫苗）任务，并包含有例外情况，它将得到支持，但如果它只是由总统发布，它很可能不会得到支持。行政当局，即总统，有权执行法律，而不是制定法律”。
 
-参考链接：
+对于行政行动（Executive actions）在紧急命令下是合理的说法，德肖维茨反驳说，中共病毒的紧迫性已经不再适用了。“就紧急情况而言，我们历史上一些最糟糕的决定是基于紧急状态的说法而做出的。总之，无论国会有机会采取行动还是没有机会采取行动，客观现实是我们面对COVID（中共病毒）现在已经两年了。因此，紧急状况的说法（现在）强调的太离谱了，而且这经常被用来为本应由国会采取的行政行动辩护”。
 
-- [2022/01/05 郭先生大直播速記](https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502)
+**新闻来源**
 
+[Alan Dershowitz to Newsmax: Congress, Not Biden, Has Authority on Vaccine Mandates](https://www.newsmax.com/newsmax-tv/executive-authority-congress-vaccine-mandates/2022/01/08/id/1051561/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
