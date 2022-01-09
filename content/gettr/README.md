@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 1:28 AM (UTC)`
+
+英国NHS医生对卫生大臣表示：他没有接种疫苗，也不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。<br/><br/>NHS doctor tells the Health Secretary he didn’t vaccinate and would not be vaccinated as the scientific basis for the protection offered by the vaccines are not strong enough.<br/>
+![img](https://media.gettr.com/group49/getter/2022/01/09/01/14a8f8fa-3b85-d8da-e12d-02d12947039f/out.jpg)
+
+---
+
 `@miles 1/9/2022 1:02 AM (UTC)`
 
 一位心脏病学家说50%的顶尖运动员接种中共病毒疫苗后罹患无症状心肌炎, 可能导致因为无症状心肌炎诱发的心脏骤停猝死案例。<br/><br/>A pediatrician says 50% elite athletes have asymptomatic myocarditis after CCP virus vaccination, and it might cause sudden death due to cardiac arrest caused by asymptomatic myocarditis.<br/>
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1月7号：又来浪啦了……
 ![img](https://media.gettr.com/group22/getter/2022/01/07/20/8301394a-9318-016c-81af-5cd1800882e7/8763d0f4461aa61702c6b687f4313266.jpg)
-
----
-
-`@miles 1/7/2022 8:22 PM (UTC)`
-
-1月7日: 雪中G翻身……G Fashion视频🔥🔥🔥🔥🔥🔥🔥🥰🥰🎊🎊❄️❄️🎉🎉
-![img](https://media.gettr.com/group15/getter/2022/01/07/20/1dd3e0fd-cba8-5ef3-1568-aab92284836f/out.jpg)
 
 ---
 

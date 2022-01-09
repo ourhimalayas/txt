@@ -2,20 +2,26 @@
 ---
 
 
-## 强制疫苗违背医生的教育和信仰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1837817/)
+## 没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1837901/)
 
-**作者：日本东京方舟农场 JIHO**
+作者：David Henry 、Noor Zainab Hussain，Anirban Sen
 
-矫形外科医生 Ahmad Malik：“强制接种疫苗开创了一个非常危险的先例……潘多拉的盒子已经打开。接下来会适用于谁？如果今天是新冠疫苗，明天我们将被强制接受什么？”
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-08-174935.png)图片来源：网络
+1 月 7 日路透社：在 1 月 14 日之前未接种 COVID-19 疫苗的美国花旗集团 (CN) 员工将休无薪假并在月底被解雇，除非他们获得豁免，根据路透社周五看到的一份公司备忘录。
 
-* * *
+**评：**人类的历史告诉我们，当无知和恐惧占据上风，人们往往会做出错误的选择甚至是疯狂的行为。这次中共病毒大流行再次给世人展示了这样活生生的现实！权威的伪科学和贪婪的资本更使疫苗灾难荼毒全球。许多人们丧失了基本的常识与心智，盲从跟风和崇拜科学导致自身灾难的发生却全然不知，可悲可叹！
 
-*素材采编：JIHO*
+来源链接：[https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/](https://www.reuters.com/business/finance/citi-terminate-employees-unvaccinated-jan-14-source-2022-01-07/)
 
-*发布：Ranting*
+编辑/发布：LILY
 
-*封面制作：S*
+20220108
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+
+
 
  
 
