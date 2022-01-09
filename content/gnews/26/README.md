@@ -2,43 +2,28 @@
 ---
 
 
-## 莫德纳疫苗残液的显微镜观察
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1840684/)
+## GTV新闻访谈简报|2022年1月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1840728/)
 
-韩国首尔天池农场
-翻译：势在必行
-校对：鱼子酱
-上传：QCFM
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-M公司剩余疫苗。
-M公司的内容物比P公司多得多。
-这个浓度好像更多。
-能看到漂浮的很多吗？ 漂浮物…
-还有这种长长的棍子模样。
-还有这种线圈团…
-在后台经常动吧？
-比刚才多得多。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这样的也看到了。
-这个我们现在还不知道…
-怀疑或许是不是Tripanosoma的可能性
-怕受到攻击，就那么过去了。
-看这个的话 M公司的… 很独特啊…
-链条状的像链条…是M公司。
-后台有很多浮游物
-是独特的形态。
+视频参看：[2022.01.09早GTV新闻访谈](https://gtv.org/video/id=61dae3b54658a73785d262ea)
 
-很难表达出来。
-磁盘状…
-我以为只有P公司有这个呢
-M公司也有，非常多。
-看得见吧？
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-漂浮物更多…这种特殊的
-M公司也有很多这样的
-还有这样的 这个铺在了地上。
-没有动静
-是奇怪的物体。 长长的… 这里也有
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

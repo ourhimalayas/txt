@@ -15,119 +15,119 @@
 
 ---
 
-### [独家披露：辉瑞与武汉病毒研究所的联系](/content/gnews/1/README.md)
+### [DC大中华时事：美多名花滑顶尖选手染疫退出冬奥选拔赛](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [全球疫情更新（澳洲和南非疫情的比较）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [为什么价格会在2022年继续飙升](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [独家披露：辉瑞与武汉病毒研究所的联系](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [招标文件显示中共国持续扩张国内外互联网监控](/content/gnews/2/README.md)
+### [招标文件显示中共国持续扩张国内外互联网监控](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|人类要有信仰，相信轮回](/content/gnews/3/README.md)
+### [有声|人类要有信仰，相信轮回](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|美驻日大使称中共不是好邻居](/content/gnews/4/README.md)
+### [有声|美驻日大使称中共不是好邻居](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [文贵先生直播大纲 2022/01/09](/content/gnews/5/README.md)
+### [文贵先生直播大纲 2022/01/09](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|独裁者以人类为祭品](/content/gnews/6/README.md)
+### [有声|独裁者以人类为祭品](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|法媒称中共借立陶宛干预欧盟经济](/content/gnews/7/README.md)
+### [有声|法媒称中共借立陶宛干预欧盟经济](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [中共开启灭亡前血腥内斗2.0](/content/gnews/8/README.md)
+### [中共开启灭亡前血腥内斗2.0](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [有声|澳大利亚和日本签署历史性防务条约](/content/gnews/9/README.md)
+### [有声|澳大利亚和日本签署历史性防务条约](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [得克萨斯州州长将起诉拜登政府的疫苗强制令](/content/gnews/10/README.md)
+### [得克萨斯州州长将起诉拜登政府的疫苗强制令](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党原本意图打压爆料革命 却成为推进新中国联邦护照的一大助力](/content/gnews/11/README.md)
+### [共产党原本意图打压爆料革命 却成为推进新中国联邦护照的一大助力](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [盖特和GTV最具潜力](/content/gnews/12/README.md)
+### [盖特和GTV最具潜力](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [喜币将重新书写数字货币的规则 共产党的房地产将成就人类历史上第二次最大的金融形势](/content/gnews/13/README.md)
+### [喜币将重新书写数字货币的规则 共产党的房地产将成就人类历史上第二次最大的金融形势](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [新冠疫苗加剧奥米抗和其他新冠变种的传播 世界黑暗力量利用病毒疫苗大开杀戒](/content/gnews/14/README.md)
+### [新冠疫苗加剧奥米抗和其他新冠变种的传播 世界黑暗力量利用病毒疫苗大开杀戒](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [联邦航空管理局违反自己的安全准则推动实验性疫苗](/content/gnews/15/README.md)
+### [联邦航空管理局违反自己的安全准则推动实验性疫苗](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料 1.9：疫苗是肆虐你的那颗彩蛋](/content/gnews/16/README.md)
+### [文贵爆料 1.9：疫苗是肆虐你的那颗彩蛋](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|世界范围内粮食价格上涨, 中共国百姓面临饥饿](/content/gnews/17/README.md)
+### [有声|世界范围内粮食价格上涨, 中共国百姓面临饥饿](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [魁省蒙特利尔出动大量警力驱逐逮捕和抗议宵禁的人](/content/gnews/18/README.md)
+### [魁省蒙特利尔出动大量警力驱逐逮捕和抗议宵禁的人](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|蓬佩奥再次呼吁抵制中共冬奥会并对其追责](/content/gnews/19/README.md)
+### [有声|蓬佩奥再次呼吁抵制中共冬奥会并对其追责](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [加拿大总理特鲁多在电视访谈中把拒绝接种疫苗的人描绘成极端分子](/content/gnews/20/README.md)
+### [加拿大总理特鲁多在电视访谈中把拒绝接种疫苗的人描绘成极端分子](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [香草山翻译部周刊|2022年1月9日第30期](/content/gnews/21/README.md)
+### [香草山翻译部周刊|2022年1月9日第30期](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|美国最高法院权衡拜登政府的疫苗强制令](/content/gnews/22/README.md)
+### [有声|美国最高法院权衡拜登政府的疫苗强制令](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [七哥说—第42期](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [GTV新闻访谈简报|2022年1月9日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2022年1月9日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [俄媒分析哈萨克斯坦抗议活动](/content/gnews/25/README.md)
+### [俄媒分析哈萨克斯坦抗议活动](/content/gnews/27/README.md)
  ` 华盛顿DC-Russian`
 
-### [莫德纳疫苗残液的显微镜观察](/content/gnews/26/README.md)
+### [莫德纳疫苗残液的显微镜观察](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [莫德纳疫苗的显微镜观察](/content/gnews/27/README.md)
- ` 首尔天池农场`
-
-### [2022/01/06 墙内世界](/content/gnews/28/README.md)
+### [2022/01/06 墙内世界](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [难毁国，实干兴邦](/content/gnews/29/README.md)
+### [难毁国，实干兴邦](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [哈萨克斯坦成为中俄和欧美的必争之地，世界局势即将大变](/content/gnews/30/README.md)
+### [哈萨克斯坦成为中俄和欧美的必争之地，世界局势即将大变](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [没有你，对我很重要](/content/gnews/31/README.md)
+### [没有你，对我很重要](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [2022/01/05 墙内世界](/content/gnews/32/README.md)
+### [2022/01/05 墙内世界](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西安盒马烘培店因鸡蛋没洗被查](/content/gnews/33/README.md)
+### [西安盒马烘培店因鸡蛋没洗被查](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
 
-### [第203期玫瑰看新闻-新西兰新闻](/content/gnews/34/README.md)
+### [第203期玫瑰看新闻-新西兰新闻](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [难以想象：德国，成群的绵羊被组成巨大的注射器，以 &#8220;更好地传达信息&#8221;](/content/gnews/35/README.md)
+### [难以想象：德国，成群的绵羊被组成巨大的注射器，以 &#8220;更好地传达信息&#8221;](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共所有方法都失败后利用抖音来对付莫里森](/content/gnews/36/README.md)
+### [中共所有方法都失败后利用抖音来对付莫里森](/content/gnews/37/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [01/09/22 香港快讯 管浩鸣：陈同佳现身处偏远地方 研究以域外法权处理台湾杀人案](/content/gnews/37/README.md)
+### [01/09/22 香港快讯 管浩鸣：陈同佳现身处偏远地方 研究以域外法权处理台湾杀人案](/content/gnews/38/README.md)
  ` 英喜-粵語組`
-
-### [DC每日热点0109](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [山下传来女人的哭救声](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`
