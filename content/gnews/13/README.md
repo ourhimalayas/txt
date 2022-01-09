@@ -2,44 +2,36 @@
 ---
 
 
-## 战友们之间要珍惜不要互掐，把自己救了就等于救所有人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1840155/)
+## DC每日热点0109
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1840192/)
 
-G-TV视频链接：[https://gtv.org/video/id=61da37ab87664c47acd24e0a](https://gtv.org/video/id=61da37ab87664c47acd24e0a)
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FD0B3AF3-1286-4376-A58C-819E74E2E5A1-scaled.jpeg)
+道琼斯指数 36231.66 ▼0.01%
+纳斯达克指数 14935.90 ▼0.96%
+WTI纽约原油CFD 78.916 ▼0.68%
+布伦特原油CFD 81.879 ▼0.14%
+标普50指数 2,905.59 ▼45.05%
+美元兑人民币 1USD=6.378 RMB
+美元兑港币 1USD=7.800 HKD
+国际黄金 1796.55美元/盎司
+全球CCP病毒感染人数 306,248,675例
 
-**郭文贵先生：**那么我们兄弟姐妹要想到，就这你们之间还互相掐呢，是吧？村长是特务，老班长是特务，Q May、唐平、青藤你们现在拉出来已经成立了磐石农场，恭喜你们。还有现在我们文耀成立叫纽伦堡农场，恭喜你们，这是非常好的。恭喜纽伦堡农场，德国的文耀同志成立的，恭喜唐平、青藤、威廉王、Q May等成立的磐石农场，非常好。
-
-战友们，多成立农场没有问题，但是咱们之间要珍惜呀，说老实话，现在你们就别担心太阳和月亮的事儿了，你只是宇宙无限大，地球是一粒沙，你是一粒沙中的沙中的沙，你就别担心太阳的事儿了，你担心不了，尽力而为就算了。
-
-像台湾的很多战友问我，很多朋友说：你看我买那么多喜币，七哥，接下来我怎么办？我说你现在怎么办知道吗？我告诉你最简单的一句话，如果打仗的时候，你赶快跑，能跑出去就行。第二个现在我说，你什么别老想着帮别人了，你把自己救了，就等于救了所有人。我们今天在这个屏幕面前的战友们，活着是你现在赢下去唯一的最后的结果，你死了就一切完球蛋。
-
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+1、天津报告两例本土奥密克戎病例后启动1400万人的全员核酸检测
+2、美国准备同俄罗斯讨论限制乌克兰军演和导弹部署的可能性
+3、摩洛哥部署首套中共国防空装置
+4、 遭中共国拒收的两万瓶立陶宛兰姆酒12日后抵达台湾
+5、加拿大总理特鲁多任命对华鹰派人物-原国防部副部长茱蒂·托马斯 担任国家最高安全顾问
+6、美国会议员就爱彼迎新疆业务和赞助北京冬奥会提出质疑
+7、塞浦路斯发现结合Delta和Omicron变体新毒株
+8、纽约州长霍楚1月7日宣布，将强制要求纽约州 的医疗保健人员接种COVID-19 疫苗加强针
+9、中共国主管海峡两岸事务的一位高官：中共二十大将提出对台工作新决策部署、新主张
+10、美国太空望远镜成功打开“金眼”，望远镜顺利全部张开，计划今年夏天开始太空探测
+11、台湾投票无党籍立委罢昶未及门槛报失败，台中市第2选区立委补选：民进党人胜选
+12、马克龙在接受巴黎人报读者互动栏目采访时说真想“折腾”法国不打疫苗的人。全国10多万人上街示威以牙还牙，抗议马克龙“折腾”他们
+13、鉴于哈萨克斯坦持续处于紧急状态，美国国务院1月7日发表声明说，已批准驻哈萨克阿拉木图市总领事馆的非紧急事务美国政府雇员自愿离境
+14、英国新增313人染疫病故 累计不治突破15万
+15、中共逼藏民僧侣观看拆佛像 被指比塔利班更恶
 
  
 

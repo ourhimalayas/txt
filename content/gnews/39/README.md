@@ -2,15 +2,13 @@
 ---
 
 
-## 神奇的昆仑山
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839794/)
+## 从西安封城重庆大爆炸看中共权斗
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1839796/)
 
 ——文贵大直播20220109
 
-撰稿：天天打包包（伊甸）
-
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-5.jpg)
+撰稿：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/P1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/P5-5.png)
 *发布：Theodosia*
 
  
