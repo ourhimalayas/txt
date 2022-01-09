@@ -2,29 +2,31 @@
 ---
 
 
-## 澳总理就网球名将德约科维奇“疫苗豁免”相关证明发出警告
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1838189/)
+## GTV新闻访谈简报|2022年1月8日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1838246/)
 
-据《skynews.com》网站2022年1月6日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-552.png)图片源自:BBC
-网球名将诺瓦克-德约科维奇在获准参加澳大利亚网球公开赛之前，必须提供其医疗豁免证明。
+作者：香草山翻译部
 
-澳总理斯科特-莫里森警告，如果德约科维奇无法提供可接受的COVID-19疫苗豁免证明，他可能会乘坐下一班飞机回家。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-内政部长卡伦-安德鲁斯说，德约科维奇仍然需要满足国家边境的准入要求。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0108text-SC.png)
+校对：Stay文苑
 
-文章来源: [https://www.skynews.com.au/australia-news/sport/pm-warns-djokovic-will-be-on-the-next-plane-home-if-unable-to-provide-proof-of-exemption/video/d5232e2a1248e2e2c4e9e658e0353b2e](https://www.skynews.com.au/australia-news/sport/pm-warns-djokovic-will-be-on-the-next-plane-home-if-unable-to-provide-proof-of-exemption/video/d5232e2a1248e2e2c4e9e658e0353b2e)
+编辑：Stay文苑
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发稿：Stay文苑
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频参看：[1.8  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61da3a3eaf3a68700027036f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

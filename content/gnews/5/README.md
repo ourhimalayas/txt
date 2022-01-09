@@ -2,41 +2,28 @@
 ---
 
 
-## 中国科技巨头为数字人民币开绿灯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1838426/)
+## 研究表明：注射新冠疫苗将使月经周期延长19小时
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838486/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日一项针对4000名女性的研究表明，新冠疫苗的接种扰乱了女性月经周期，主要表现为出血量的增多。接种第一针新冠疫苗后，月经延长了约15.36小时；接种第二针新冠疫苗后，月经延长了约18.96小时；在同一周期内连续接种两针新冠疫苗的女性，月经周期普遍增加了2天，增幅最大。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/79957_00.jpeg)
+据悉此研究项目是从2021年9月开始，为期一整年。有女性称自己平常的月经末期一般在使用超薄护垫，接种新冠疫苗后，不得不在同期使用加长超大的卫生巾来吸附多余血量。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/数字人民币.jpg)图片来源：路透
+参考链接：[COVID vaccines prolong menstrual cycles by 19 hours, study reveals](https://www.dailymail.co.uk/sciencetech/article-10380181/COVID-vaccines-prolong-menstrual-cycles-19-hours-study-reveals.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-翻译：文扬
-编辑：李易通
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-据报道，中国科技集团腾讯公司在其微信支付钱包中增加了对数字人民币的支持，允许用户选择使用中国央行数字货币（CBDC）进行支付。
-
-据《中国日报》周四报道，要在交易中使用CBDC，微信用户需要已经通过e-CNY应用程序（中国人民银行开发的数字人民币钱包应用程序）验证了他们的身份。一旦激活，该选项将允许用户在微信中支付和接收该货币。
-
-本周初，随着北京继续推广其CBDC，电子人民币应用程序的试点版本已经推出。
-
-由腾讯开发的微信是中国大陆占主导地位的即时通讯应用程序，拥有超过10亿用户。与支付宝一起，微信通常被称为“超级应用”，因为它集成了广泛的服务。
-
-自2014年以来，中国一直在发展主权数字货币的概念。数字人民币的试验期已经持续了一年多，截至2021年10月底，已经结算了价值97亿美元的交易。
-
-电子人民币潜在使用范围的扩大是在今年北京冬奥会召开之前。中国人民银行的目标是为定于2月4日在中国首都开幕的冬奥赛事准备好数字人民币。
-
-腾讯还表示，将在北京冬奥村探索新颖的数字人民币支付体验，冬奥村将于 1月27日开放。
-
-原文链接： [Digital yuan given green light by Chinese tech giant — RT Business News](https://www.rt.com/business/545395-digital-yuan-tencent-wechat-china/)
-
-发布：小红帽
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

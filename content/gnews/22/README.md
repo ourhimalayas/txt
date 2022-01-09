@@ -2,29 +2,34 @@
 ---
 
 
-## 超高疫苗接种率卫生系统注册员工近700人检测呈阳性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1838173/)
+## 秘翻在线: 数字人民币选择京东，放弃阿里
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1838244/)
 
-据《thegatewaypundit.com》作者：Jim Hoft，2022年1月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-550.png)图片源自：thegatewaypundit.com
-据密歇根州最大的卫生系统报告：在过去七天里，尽管该州疫苗接种率达到99%，但仍有686名员工COVID-19检测呈阳性。
+撰稿：西枫westca
 
-一周内，亨利-福特卫生系统内近700名员工检测出阳性，这大约是总员工人数的2%。生病的员工在出现症状后需要隔离七天。如果他们的症状持续时间更长，则隔离时间会被延长。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed.png)图片来源：网络照片
+据多家中共国网上媒体突然在1月8日报道，数字人民币选择京东作为首批试点科技公司。而没有选择实力更强的拥有支付宝的阿里巴巴。
 
-亨利-福特卫生系统于密歇根州第一个强制要求其员工接种COVID-19疫苗。强制接种疫苗截止日期为2021年9月10日。尽管有抗议和诉讼纠纷，该系统的33,000名注册员工中有99%完全或部分接种了疫苗。
+事实上，央行已在2021年12月6日宣布了第二轮的数字人民币的试点并决定让京东参与线上数字人民币的测试。让数字人民币在京东商城上购物，成为首个支持线上交易的电商平台。阿里巴巴支付宝的全球用户数超过10亿人，是重要的支付手段之一。数字人民币的推广竟然选择了京东而不是阿里做为首批试点公司，缘由何在？从表面现象看：
 
-* * *
+其一，两家企业 的定位不同。 京东偏向实业，有大量的物流和仓储建设。从2020年营收看京东虽有7458亿，但利润仅为为423.05亿元。 阿里则是以大卖场形式出现，更偏向于虚拟经济，是网络上的流量贩卖商。2020年的营收为6442亿，但利润则高达1492.63亿元。
 
-文章来源: [https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/](https://www.thegatewaypundit.com/2022/01/health-system-michigan-99-vaccination-compliance-rate-nearly-700-employees-test-positive-covid-19/)
+其二，京东资产是纯正的民营企业，而阿里的股份有四分之一以上为海外资本。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Miloja
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+其三，京东在各类灾情爆发时，积极筹款募捐，对社会有积极贡献。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+其四，阿里支付宝的背后的蚂蚁集团仍未完成整改，支付宝本身只是阿里互联网金融平台下的一个软件，并没有储存资金的功能，且近日不断出现的负面消息，也使得阿里败下阵来。
+
+其五，数字人民币是央行推出的，具有法定效应。不需要借助支付宝的用户数量。 随着数字人民币的推广，包括支付宝、微信等支付手段也必须选择支持。
+
+在中共国，企业家要爱国、听党话、跟党走、回报社会才是根本。如何选择是党的决定，和企业本身属性本无太大关系。 他们只是一茬茬待割的韭菜。
+
+**新闻来源：**
+
+[网易新闻 (163.com)](https://c.m.163.com/news/a/GT2KKPAM0511SAO7.html?spss=newsapp),
+
+[央行正式做出决定！京东“喜从天降”，腾讯、阿里、拼多多很无奈|移动支付|支付宝\_网易订阅 (163.com)](https://www.163.com/dy/article/FTVKHN6C0531MPQL.html)
 
  
 
