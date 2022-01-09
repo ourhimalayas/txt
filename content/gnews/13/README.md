@@ -2,20 +2,29 @@
 ---
 
 
-## 研究表明：注射新冠疫苗将使月经周期延长19小时
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838486/)
+## 英国军情六处罕见回应中共官媒嘲讽短片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1838561/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日一项针对4000名女性的研究表明，新冠疫苗的接种扰乱了女性月经周期，主要表现为出血量的增多。接种第一针新冠疫苗后，月经延长了约15.36小时；接种第二针新冠疫苗后，月经延长了约18.96小时；在同一周期内连续接种两针新冠疫苗的女性，月经周期普遍增加了2天，增幅最大。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/79957_00.jpeg)
-据悉此研究项目是从2021年9月开始，为期一整年。有女性称自己平常的月经末期一般在使用超薄护垫，接种新冠疫苗后，不得不在同期使用加长超大的卫生巾来吸附多余血量。
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台媒1月7日报道，中共官媒新华社日前在推特发布一则嘲讽短片，恶搞以英国军情六处为背景的007谍战片。英国军情六处主任摩尔对此罕见回应称，感谢中共的免费宣传，但附上了一段警告中共的演讲链接。
 
-参考链接：[COVID vaccines prolong menstrual cycles by 19 hours, study reveals](https://www.dailymail.co.uk/sciencetech/article-10380181/COVID-vaccines-prolong-menstrual-cycles-19-hours-study-reveals.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-6.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+摩尔前一段时期曾经表示，由于中共的崛起不断威胁世界，因此军情六处唯一的最先要务就是针对中共。他还就中共可能带来的债务陷阱、数据监控和政治胁迫等问题提出了警告。中共官媒发布此嘲讽短片，意在打脸摩尔。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+摩尔在演讲中表示，中共试图扭曲全球的公共话语和政治决策，中共国是一个有着迥异价值观的独裁专制国家，而且正在将打压维吾尔人、香港民主派的手段和技术转让他国。摩尔强调，英国情报人员要在中共国制造的监控技术遍布全球的环境中开展行动，并希望其他国家对他提出的警告能有清醒认知。
+
+参考链接：
+
+- [中國官媒推0.07嘲諷西方情報界 英國正牌007回：謝謝免費宣傳](https://cn.rti.org.tw/news/view/id/2121496)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

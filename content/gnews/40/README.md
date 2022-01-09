@@ -2,28 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1836997/)
+## 【G时新闻】以色列出现首例新型混合病毒Flurona
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1837798/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
+加拿大温哥华扬帆农场 播报：文广 视频制作： Gracelshan
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-6.png)
-文章仅代表作者本人观点，与Gnews无关
+以色列贝林森医院出现了新的突变病毒，是中共新冠病毒和流感病毒的混合病毒，被称为Flurona。
 
-视频参看：[2022.01.08早GTV新闻访谈](https://gtv.org/video/id=61d9a6c62507c21c385d448f)
+据当地媒体报道，本周早些时候，以色列城市贝坦克瓦的拉丁医疗中心首次在一名年轻孕妇身上发现了这种混合感染，据医院称这位年轻的孕妇没有接种过中共新冠病毒疫苗，也没有接种过流感疫苗，她只出现了轻微的症状，生产也很顺利并准备周四出院。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+拉丁医疗中心贝林森医院妇科主任斯龙维兹尼德博士在接受当地媒体采访时谈到，这位孕妇一到医院就出现了症状，并被诊断出患有流感和中共病毒，三次检测结果都是阳性，这两种病毒都是攻击患者上呼吸道导致呼吸困难。维兹尼德博士还指出，这位孕妇是世界上首例Flurona混合病毒病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+以色列专家推测，国内可能会出现更多的Flurona混合病毒感染者，尤其是在流感神秘地休息了一年之后又猛然出现。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+虽然以色列是世界上中共新冠病毒疫苗接种率最高的国家之一，并且政府官员们也承认，没有任何证据表明接种中共新冠病毒疫苗对奥米克戎新变体有效，但以色列还是为第四季实验型中共新冠病毒疫苗接种开了绿灯。
+
+盖特：[https://gettr.com/post/pmim3if160](https://gettr.com/post/pmim3if160)
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：七觉花
+
+
 
  
 

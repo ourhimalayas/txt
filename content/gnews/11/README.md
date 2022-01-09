@@ -2,33 +2,30 @@
 ---
 
 
-## 美最高法院开始听取疫苗强制令诉讼案的口头辩论
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1838524/)
+## 科兴疫苗半年海捞百亿美元 同比暴增162倍
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838586/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾媒体1月8日报道，中共科兴生物公司近期披露的财务报表显示，2021年上半年该公司收入高达110亿美元，比2020年同期暴增162倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/29c56895229f879b5d6cdd908eeb3aa3_1200x1200@1200x1200.jpeg)
+据悉，科兴生物已经向全球供应了25亿剂中共病毒疫苗，在毒害全球人民的同时，又赚得了天文数字的不义之财。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/EACCAC73-D4F2-4E5C-B603-E012E08DEDDC.jpeg)（图片来源：美国之音）
+不过，墙内网友发现，科兴的第一大股东竟然隶属日本软银，持股达15.07%。这一发现令不少网民感到崩溃。
 
-1月7日，美国最高法院开始听取起诉拜登政府疫苗强制令案件的口头辩论。
+参考链接：[中國全網崩潰！科興靠疫苗半年海撈千億 最大股東卻是軟銀](https://ec.ltn.com.tw/article/breakingnews/3793958)
 
-据《美国之音》报导，针对起诉拜登政府推行两项疫苗强制令的案件，美国最高法院于1月7日开始听取口头辩论。据悉，大法官们当天听取了超过100名以上员工的企业就执行联邦疫苗和测试规则的口头辩论，以及对医护人员强制接种疫苗的辩论。最高法院可能在短期内就是否暂停强制令发出一份简短的行政令。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-报导指出，这两项疫苗政策是由美国职业安全与健康管理局(OSHA)和医疗保险和医疗补助服务中心(CMS)发布的，可能影响近1亿美国人的工作和生活。对此，美国几个州、商业联盟、宗教团体结成联盟针对这些政策覆盖的范围以及强制令对公司和员工的影响提出了诉讼。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-*参考链接：*
-
-1. [*美最高法院开始听取拜登政府新冠疫苗强制令诉讼案口头辩论*](https://www.voachinese.com/a/supreme-court-hears-argument-against-biden-covid-19-mandates-20220107/6387468.html)
-2. [*最高法院听取拜登疫苗强制令案 今天或出结果*](https://www.epochtimes.com/gb/22/1/7/n13489268.htm)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

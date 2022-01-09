@@ -2,40 +2,47 @@
 ---
 
 
-## 中国科技巨头为数字人民币开绿灯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1838426/)
+## 拜登政府疫苗强制违宪，立法者敦促最高法院将其推翻
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1838473/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 【雅典娜观察】和您一起探究世界 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/数字人民币.jpg)图片来源：路透
+#### 整理报道：小鱼儿
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-577.png)
+
+图片来源：Daily News
 
 
-翻译：文扬
-编辑：李易通
+当地时间1月8日，众多的立法者签署了一份非当事人意见书，敦促美国最高法院推翻乔·拜登总统对联邦工作人员、承包商和许多私营企业的新冠病毒强制疫苗的违宪行为。
 
-据报道，中国科技集团腾讯公司在其微信支付钱包中增加了对数字人民币的支持，允许用户选择使用中国央行数字货币（CBDC）进行支付。
+据生活网站（LifeSite）新闻报道，183名立法者签署了“法庭之友”简报，敦促最高法大法官推翻11月通过职业安全与健康管理局（OSHA）发布的强制规定（疫苗强制）。据该媒体报道，“职业健‘康和安全管理局从来就不是卫生健康警察”，立法者写道。
 
-据《中国日报》周四报道，要在交易中使用CBDC，微信用户需要已经通过e-CNY应用程序（中国人民银行开发的数字人民币钱包应用程序）验证了他们的身份。一旦激活，该选项将允许用户在微信中支付和接收该货币。
+“此外，强制接种疫苗并不能阻止个人感染和传播新冠病毒。接种疫苗的员工仍然可以感染和传播新冠病毒，包括新的奥密克戎变种病毒。鉴于这一事实，仅对未接种疫苗的员工实施戴口罩和测试的限制是毫无意义的”。立法者补充说。
 
-本周初，随着北京继续推广其CBDC，电子人民币应用程序的试点版本已经推出。
+这封信是在本周高等法院口头辩论之前提交的，该案件由俄亥俄州和全国小企业联合会提起，有两家公司都在起诉OSHA对拥有100名或更多员工的公司规定，要求工人强制接种疫苗或接受每周检测。
 
-由腾讯开发的微信是中国大陆占主导地位的即时通讯应用程序，拥有超过10亿用户。与支付宝一起，微信通常被称为“超级应用”，因为它集成了广泛的服务。
+“国会成员希望他们授予机构的权力不被滥用”，立法者们在简报中指出：“赋予联邦政府的立法权属于国会，而不是行政部门。在这种情况下，职业健康和安全管理局颁布了一项针对企业的全面的、全国性的（强制）疫苗任务，侵入了一个由立法关注的领域，远远超出了该机构的权限”。
 
-自2014年以来，中国一直在发展主权数字货币的概念。数字人民币的试验期已经持续了一年多，截至2021年10月底，已经结算了价值97亿美元的交易。
+此外，立法者表示，对各种疫苗的功效存在严重而合理的担忧，但[即使它们更可靠和有效](https://pandemic.news/2022-01-05-vaccines-dont-stop-covid-outbreaks-cause-them.html)，是否强制接种的权力在历史上也由各州自己决定，而不是联邦政府，当然更不是行政部门。
 
-电子人民币潜在使用范围的扩大是在今年北京冬奥会召开之前。中国人民银行的目标是为定于2月4日在中国首都开幕的冬奥赛事准备好数字人民币。
+他们写道：“在监管计划中，如果没有明确的国会授权，将行政机构权力扩展到州警察管辖领域，不能假定有这种权利存在”。
 
-腾讯还表示，将在北京冬奥村探索新颖的数字人民币支付体验，冬奥村将于 1月27日开放。
+埃琳娜·卡根法官提出，接种疫苗可以减少新冠病毒传播的这种说法值得怀疑。因为全世界的突破性病例数量迅速上升。卡根的观点是，“现在立法者的举措是最有利于阻止这一切的政策”。
 
-原文链接： [Digital yuan given green light by Chinese tech giant — RT Business News](https://www.rt.com/business/545395-digital-yuan-tencent-wechat-china/)
+新闻链接：[Lawmakers line up to urge Supreme Court to toss out Biden’s unconstitutional COVID-19 vaccine mandate](https://www.naturalnews.com/2022-01-08-lawmakers-urge-supreme-court-to-toss-bidens-unconstitutional-covid-19-vaccine-mandate.html)
 
-发布：小红帽
+*发布：陶子*
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
