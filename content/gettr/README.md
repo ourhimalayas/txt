@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 1:42 AM (UTC)`
+
+mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、大政府、大媒体是如何通过压制信息，使人们无法对疫苗的真实情况进行了解，进而无法做出准确判断的<br/><br/>Dr. Malone, co-inventor of the mRNA vaccines, talks about how big tech, big pharma, big government, and big media are suppressing information so that people cannot get a true picture of the vaccine and thus cannot make accurate judgments
+![img](https://media.gettr.com/group23/getter/2022/01/09/01/859efe05-4e82-1be3-da54-d32a3351b83e/out.jpg)
+
+---
+
 `@miles 1/9/2022 1:28 AM (UTC)`
 
 英国NHS医生对卫生大臣表示：他没有接种疫苗，也不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。<br/><br/>NHS doctor tells the Health Secretary he didn’t vaccinate and would not be vaccinated as the scientific basis for the protection offered by the vaccines are not strong enough.<br/>
@@ -160,13 +167,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: The Omicron is extremely infectious, so you can’t be too careful about it! The COVID vaccines are more horrible than the CCP virus! The mRNA in the COVID vaccine is technically the spike protein, which can make it easier for people to catch the virus<br/><br/>1/07/2022 文贵直播：奥米炕病毒传染性极强，请大家千万不能掉以轻心！疫苗比病毒还可怕！疫苗中的mRNA就相当于刺突蛋白，它能让人更容易染毒<br/>
 ![img](https://media.gettr.com/group46/getter/2022/01/07/23/55461b65-b221-25ed-0aae-099c03d9ca2b/out.jpg)
-
----
-
-`@miles 1/7/2022 8:31 PM (UTC)`
-
-1月7号：又来浪啦了……
-![img](https://media.gettr.com/group22/getter/2022/01/07/20/8301394a-9318-016c-81af-5cd1800882e7/8763d0f4461aa61702c6b687f4313266.jpg)
 
 ---
 
