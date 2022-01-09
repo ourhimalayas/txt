@@ -2,44 +2,22 @@
 ---
 
 
-## 第203期玫瑰看新闻-国际热点新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1837850/)
+## 雅典娜时报-第168期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1837943/)
 
-国际热点新闻
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-1.美国国家安全指12家中企构成”隐患”列入黑名单
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![img](https://media.gettr.com/group39/origin/2022/01/08/22/4898c76a-d62f-f1ff-7311-55ffde53af80/17050adf921edbe65168b71242351fdf.png)![img](https://media.gettr.com/group39/origin/2022/01/08/22/339b61bf-9731-ad42-8ce9-323377532ff0/c0c8fe4d9cd93f9811f13d8bc943b606.png)
+*发布：陶子*
 
-2.立陶宛力挺台湾：向世界展示抵抗中共国之道
-
-3.美国务院公布台湾受邀白宫民主峰会中俄未在名单
-
-4.英吉利海峡移民船沉没至少27人丧生
-
-5.日本首相确认释放石油储备以回应美国的要求
-
-6.中共国迄今未对华盛顿的石油释放作出承诺，欧佩克+无动于衷
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
