@@ -15,98 +15,98 @@
 
 ---
 
-### [谭德塞：奥密克戎传播和感染已接种疫苗的人](/content/gnews/1/README.md)
+### [秘翻在线：俄罗斯货机在中共国起火，机体受损人员无恙](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [农民工“清退令”：中共维稳，卸磨杀驴](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [在全人类媒体被邪恶控制的时候,我们的媒体发出真相之声](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [德国：德国政府的报告证实超过95%的Omicron病例是接种过疫苗的](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [一线护士揭露德国疫苗灾难（一）](/content/gnews/5/README.md)
  ` MG 澳喜农场多语组`
 
-### [2022收割年要用行动建立基础、强大G系列做大金融版块](/content/gnews/2/README.md)
+### [中共官员对西安孕妇流产事件罕见致歉只不过是政治需要](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国报告新冠疫情已致15万人死亡](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [五年来是每个战友与七哥一起煽动蝴蝶的翅膀改变了世界](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [灭共第四夜 杨改兰](/content/gnews/3/README.md)
+### [一位被强制退休的医生给州卫生部长的信](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [&#8220;天然疫苗&#8221;Omicron为终结COVID-19大流行带来了希望？](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [我们要的是尊重个人追求自由民主法治信仰而不是家天下](/content/gnews/4/README.md)
+### [五年来我们用唯真不破和真善狠战术让共产党陷入塔西佗](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [迷信至死，实则是恐惧](/content/gnews/5/README.md)
+### [在美国最高法院辩论反对拜登疫苗强制令的顶级律师感染中共病毒](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [灭共第五夜 刘玉琨](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [清华七成毕业生进入体制表明中共经济崩溃已成定局](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [谭德塞：奥密克戎传播和感染已接种疫苗的人](/content/gnews/15/README.md)
+ ` MG 澳喜农场多语组`
+
+### [2022收割年要用行动建立基础、强大G系列做大金融版块](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [灭共第四夜 杨改兰](/content/gnews/17/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [我们要的是尊重个人追求自由民主法治信仰而不是家天下](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [迷信至死，实则是恐惧](/content/gnews/19/README.md)
  ` 骄子`
 
-### [为什么自以为是的人叫不醒&#8212;七哥话里的玄机和哲理系列1](/content/gnews/6/README.md)
+### [为什么自以为是的人叫不醒&#8212;七哥话里的玄机和哲理系列1](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共内蒙古一美食店违规销售进口水果被停业](/content/gnews/7/README.md)
- ` 德国纽伦堡正义农场`
-
-### [博裕资本面临习近平监管挑战](/content/gnews/8/README.md)
+### [博裕资本面临习近平监管挑战](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [大直播&#8212;爆料革命穷追猛打下中共的金融乱象与迷局](/content/gnews/9/README.md)
+### [大直播&#8212;爆料革命穷追猛打下中共的金融乱象与迷局](/content/gnews/22/README.md)
  ` GTV News Talk`
 
-### [盖特的现况是共产党迫害我们的铁据](/content/gnews/10/README.md)
+### [盖特的现况是共产党迫害我们的铁据](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [文·贵天成——文贵先生谈“陈全国”（四）](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大军官呼吁调查2019武汉军运会期间爆发的“新冠”疫情](/content/gnews/12/README.md)
+### [加拿大军官呼吁调查2019武汉军运会期间爆发的“新冠”疫情](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [一位医师接受辉瑞疫苗之后的警示](/content/gnews/14/README.md)
+### [一位医师接受辉瑞疫苗之后的警示](/content/gnews/25/README.md)
  ` G-NEWS TAIWAN`
 
-### [每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/15/README.md)
+### [每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/16/README.md)
- ` GTV News Talk`
-
-### [美飞行员接种疫苗后严重胸痛](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [香港和大陆的房地产，还有香港股票市场的现况，说明共产党真完了](/content/gnews/18/README.md)
+### [香港和大陆的房地产，还有香港股票市场的现况，说明共产党真完了](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`
 
-### [菲律宾下令抓捕违反居家令的未接种新冠疫苗者](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [盖特一周内新增一百万用户](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [实行强制疫苗的国家多数为一党专权](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [喜马拉雅之神必将回到喜马拉雅的山巅](/content/gnews/22/README.md)
+### [喜马拉雅之神必将回到喜马拉雅的山巅](/content/gnews/28/README.md)
  ` G-NEWS TAIWAN`
 
-### [完全接种疫苗的格鲁吉亚网球明星因呼吸困难而退出悉尼杯比赛](/content/gnews/23/README.md)
- ` Itana`
-
-### [哈萨克斯坦斯坦人对自己的文化、民族、兄弟很忠诚](/content/gnews/24/README.md)
+### [哈萨克斯坦斯坦人对自己的文化、民族、兄弟很忠诚](/content/gnews/29/README.md)
  ` G-NEWS TAIWAN`
 
-### [高科技助力“黄粱一梦”梦过留痕](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [文·贵天成——文贵先生谈“陈全国”（三）](/content/gnews/26/README.md)
+### [科索沃以电力短缺为由，禁止加密货币挖矿](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [科索沃以电力短缺为由，禁止加密货币挖矿](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如何吃得更健康以提高免疫力？食用油最关键！](/content/gnews/28/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [英国卫生部长当场被科学“打脸”](/content/gnews/29/README.md)
+### [英国卫生部长当场被科学“打脸”](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [新加坡战友爆料革命新年晚会的发言](/content/gnews/30/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [黑龙江鹤岗宣布破产](/content/gnews/31/README.md)
- ` himalayabostonfinance`
 
 ### [秘翻在线：天津防疫封锁，北京还远吗？](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
@@ -132,26 +132,26 @@
 ### [最高法院受理拜登政府备受争议的疫苗强制令](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布林肯对俄罗斯军事介入哈萨克斯坦局势感到不满](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔](/content/gnews/41/README.md)
+### [有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [重庆街道办食堂爆炸一事为何惊动中共国务院下令督察](/content/gnews/42/README.md)
+### [重庆街道办食堂爆炸一事为何惊动中共国务院下令督察](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线: 数字人民币选择京东，放弃阿里](/content/gnews/43/README.md)
+### [秘翻在线: 数字人民币选择京东，放弃阿里](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西安宣布抗疫胜利后警方开始对疫情真相发布者大抓捕](/content/gnews/44/README.md)
+### [西安宣布抗疫胜利后警方开始对疫情真相发布者大抓捕](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [追求喜马拉雅，走向正道主义](/content/gnews/45/README.md)
+### [追求喜马拉雅，走向正道主义](/content/gnews/44/README.md)
  ` YALUN 亚伦`
 
-### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/46/README.md)
+### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/45/README.md)
  ` 秘密翻译组-原创组`
+
+### [加强型疫苗接种导致的高死亡率超2020年春季的新冠波](/content/gnews/46/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/47/README.md)
  ` 西班牙巴塞罗那喜悦农场`

@@ -2,58 +2,49 @@
 ---
 
 
-## 博裕资本面临习近平监管挑战
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1839323/)
+## 五年来是每个战友与七哥一起煽动蝴蝶的翅膀改变了世界
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1839475/)
 
-作者：MOS – 柳是多水土透
+G-TV视频链接：[https://gtv.org/video/id=61da2d5287664c47acd243ad](https://gtv.org/video/id=61da2c4087664c47acd2428d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅-1.png)
+**郭文贵先生**:我们更重要的是要看到战友，今天这一百多位战友代表了背后的亿万个战友，如果一年前、五年前说你觉得我们神经病，现在你们是深信不疑的。而且你们能看到你们每个人都是一个蝴蝶，你们每个人都能煽起蝴蝶的力量，不是我，千万不要说我，我没有你们我什么都不是，我没有任何超神秘的力量。
 
+满勺做过很多直播，跟我们老白是吧，北京人我们老白这儿，就是做过那么多直播，她讲过很多，我跟她那儿学了很多东西。刚才天赐良机又讲扬帆农场。我们双鱼侠澳喜的。
 
+宁南、一拳超人第一天跟七哥同心同框。约瑟是做了很多直播，他的英文七哥羡慕得不得了。小羊你做了很多直播，你每次你讲的都是比七哥的都站位高，你有些方面肯定不如我，但是有些方面一定是比我强的。
 
-位于香港的私募基金博裕资本于2011年成立，对创始人Sean Tong来说，江泽民之孙江志诚的加盟为企业带来美好前景和“红二代”标志。Tong之前管理美国私募General Atlantic的中国投资组合，Alvin Jiang江志诚在加入博裕时年仅24岁，从哈佛大学毕业并刚刚在高盛开启职业生涯。
+我跟你们在一起的时候就像蝴蝶煽动翅膀一样，我不是一生下来就长翅膀，我也不是一生下来就会忽煽这个翅膀了，是因为和你们大家共同的进步和成长才能有我的今天，没有你们我什么都不是。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pm_images_de64_74fdd7f3dfb58fa74074b851a1a6de64.png)
+所以说我今天坐在这儿每时每刻直播的时候，我都觉得是我们所有的人生命共同的成长，共同呼吸、共同奋斗的结果，我们谁也不用感恩谁，但是我们要珍惜，我们要爱所有的战友们。我们今天这么长时间，大家觉得时间不够用，我们已经过去五年了，从来没有觉得时间够用过，从来没有觉得我们浪费过生命，从来没有觉得生命这么有价值、这么精彩过。每天醒来的时候充满了无限的希望和无限的憧憬。
 
-10年过后，由于大陆科技企业发展的红利，博裕已是中国最成功的投资者之一，去年该基金募集了将近70亿美元。
+字幕来源:[2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）](https://gnews.org/zh-hans/1816880/)
 
-但是最近，技术领域开始受到政府监管压力，北京强调“共同富裕”而不再是市场成功，博裕现在需要调整战略以应对。
+编辑整理:Jacques；
 
-博裕资本关注领域含新兴消费，金融，健康等，最为人知的成功的投资有阿里巴巴公司。2020年，在博裕即将复制阿里巴巴纽交所上市的成功时，马云的线上金融企业蚂蚁金融IPO突然被大陆监管机构叫停。
+字幕文件制作:小满；
 
-此外博裕因政府对教育领域的整肃受到打击，该基金是线上教辅公司猿辅导的早期投资者。
+视频制作及上传:Cindy；
 
-滴滴出行折戟，博裕则逃过一劫。据了解投资情况的消息人士称，在滴滴在美上市前，博裕已出手大部分股票。之后股价由于政府对其数据安全的调查大幅下跌，滴滴应用程序也被下架。
+G-News发布:小满；
 
-消息源表示除滴滴外，去年博裕投资的公司有7-8家进行了IPO，包含网易云音乐，腾盛博药和康诺亚生物医药科技。
+**广而告之****:****尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道****:**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-博裕在阿里巴巴的早期成功来源于一次偶然相遇，在90年代早期，马云是一位大学英语教师。他在担任一次杭州英语比赛评委时Tong作为高中生参赛，两人由此相识并展开了30年的友谊。Tong与Alvin Jiang的相识则源于Jiang在General Atlantic香港办公室的实习。
+声明:文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-红二代、三代由于父辈提供的便利，可以接触到中国决策者和外国企业家，所以经常充当交易掮客。Liu Tianran，习近平亲信副总理刘鹤的儿子，在2016年创建了Skycus Capital，他的投资包括京东和腾讯，都是阿里巴巴主要的对手。温云松于2005年温家宝在任时成立了新天域資本公司。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-博裕的红色联接对其成功有关键作用，除Alvin Jiang外，加入的行业元老还有前平安集团总裁Louis Cheung，和前TPG資本合伙人马雪征。自2011至19年博裕共募集了4个美元和3个人民币基金，计入去年新增的第5个68亿美元基金，博裕是中国境内最大的独立经营美元基金投资者。
+Discord:[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-从19年开设新加坡办公室后，Tong已由香港搬至新加坡工作。2021年郭先生披露，江志成在新加坡被中共人员绑架并送至大陆。
+YouTube:[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-参考链接：
+G-News:[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-- [Star China investor Boyu seeks to navigate Xi Jinping’s tech crackdown](https://www.ft.com/content/9955bd1d-777b-4b10-a6f1-207793df53c9)
-- [Firm founded by son of China finance tsar invests heavily in tech](https://www.ft.com/content/62554721-3b52-4cb9-8d1d-ccdf40b4e463)
-- [博裕资本面临习近平监管挑战](https://docs.google.com/document/d/10-F-X3j-D698R0HxrSmeB75mYGqG0bidD4Dg76wibH4/edit)
+盖特:[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特:[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+G-TV:[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-总编：Irene木木
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
