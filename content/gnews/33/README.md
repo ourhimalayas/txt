@@ -2,10 +2,12 @@
 ---
 
 
-## 哈萨克斯坦斯坦人对自己的文化、民族、兄弟很忠诚
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839157/)
+## 喜马拉雅之神必将回到喜马拉雅的山巅
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839195/)
 
 台灣寶島農場
+
+郭先生：人类将迎来真正的喜玛拉雅之魂，喜马拉雅之神必将回到喜马拉雅的山巅。
 
  
 
