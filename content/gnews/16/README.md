@@ -2,33 +2,31 @@
 ---
 
 
-## 美最高法院开始听取疫苗强制令诉讼案的口头辩论
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1838524/)
+## 有声|东京连续两日中共病毒确诊病例激增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838625/)
 
-#### 撰稿：日本东京方舟农场  海星
+配音：香草山教育部 – 百香果
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月6日，据日本媒体消息显示，2022年新年伊始，日本的中共病毒感染病例数再次激增。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/EACCAC73-D4F2-4E5C-B603-E012E08DEDDC.jpeg)（图片来源：美国之音）
+数据显示，在人口集中的东京都，周四当天的新增感染者人数达到641人，是上周四的10倍，也是自2021年9月18日以来当地单日确诊病例数首次超过600人。 其中，接种过两剂中共病毒疫苗的感染者超过总数的一半，而仅有四分之一的感染者未接种疫苗。此前一天，东京地区接种过中共病毒疫苗后仍旧感染的患者超过两百人，也占据了当日总感染数的二分之一。
 
-1月7日，美国最高法院开始听取起诉拜登政府疫苗强制令案件的口头辩论。
+分析人士对此指出，东京都这两天公布的数据可以有力地证明，接种中共病毒疫苗，特别是接种多剂疫苗后感染中共病毒的风险远大于没有接种过疫苗的人群。
 
-据《美国之音》报导，针对起诉拜登政府推行两项疫苗强制令的案件，美国最高法院于1月7日开始听取口头辩论。据悉，大法官们当天听取了超过100名以上员工的企业就执行联邦疫苗和测试规则的口头辩论，以及对医护人员强制接种疫苗的辩论。最高法院可能在短期内就是否暂停强制令发出一份简短的行政令。
+文字版原文：[东京连续两日中共病毒确诊病例激增](https://gnews.org/zh-hans/1833002/)
 
-报导指出，这两项疫苗政策是由美国职业安全与健康管理局(OSHA)和医疗保险和医疗补助服务中心(CMS)发布的，可能影响近1亿美国人的工作和生活。对此，美国几个州、商业联盟、宗教团体结成联盟针对这些政策覆盖的范围以及强制令对公司和员工的影响提出了诉讼。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*参考链接：*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-1. [*美最高法院开始听取拜登政府新冠疫苗强制令诉讼案口头辩论*](https://www.voachinese.com/a/supreme-court-hears-argument-against-biden-covid-19-mandates-20220107/6387468.html)
-2. [*最高法院听取拜登疫苗强制令案 今天或出结果*](https://www.epochtimes.com/gb/22/1/7/n13489268.htm)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

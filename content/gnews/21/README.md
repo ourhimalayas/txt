@@ -2,27 +2,31 @@
 ---
 
 
-## 浅谈中共国进入“依法带娃”时代
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1838467/)
+## 有声|日澳签署《相互准入协定》防阻中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838620/)
 
-撰稿：美好时光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/901.jpg)图片来自网络
-中共国家庭教育促进法正式实施以来，意味着依法带娃时代的到来。就很不解，什么时候带孩子还要遵守出台的法律？什么时候带孩子都这么限制了？
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月5日，据澳大利亚媒体报道，日本驻澳大利亚大使山上信吾表示，日本与澳大利亚将于本月7日共同签署《相互准入协定》，以便两国允许双方的军队互相进入对方的领土，从而加强两国的军事训练。
 
-美国凯尔森在《法律和国家概论》里提到，法律是一种强制性秩序。法律作为一个国家最具有威严的条文，他的发行颁布与实施首先必须经过全民的意见表述，才能让全民更好的遵守。如果只是为了看似正义的实行实则道德绑架，那么就会导致全民自由的丧失与人心的丧乱。
+报道提及，这是自二战结束后日本与美国签订防卫协议以来，该国第二次与外国签署军事协定。对此，山上信吾强调，这将是一项历史性的重大协议，其目的在于增强两国军队联合演练的强度、规模及频率，用以共同对抗来自中共的军事威胁。
 
-那么家庭教育促进法毋庸置疑的是通过给家长施加压力让他们提高对孩子的教育，这种法律式强制性施压看似利于提高国民素质，实则会导致许多青年人面对社会压力，没有经济基础的情况下减少结婚甚至生育的想法。如果孩子是以促进国家社会的发展而先要击垮一个自由的家庭，那么不要也罢。
+山上信吾也指出，通过结合美、日、澳三国的军事协防力量，印太地区将大幅增加对中共的威慑力。此外，日、澳两国也将致力于推动实现一个自由和开放的印太地区。
 
-就像前些日子的双减政策，过度主导家庭的同一性发展，不仅仅丧失的是个性，更重要的会引起全民心中的不满。相比于引领个体家庭的发展，最后捞得盆满钵满的只能是迎合政策法律的钻空者和打法律擦边球的政治工作者罢了。
+文字版原文：[日澳签署《相互准入协定》防阻中共威胁](https://gnews.org/zh-hans/1828785/)
 
-当自由与义务相冲突时，道义上的道德绑架带着所谓应尽的职责只会破灭无数青年人向上的心，寒的是无数年轻人创造性拼搏的心。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-所以，一个国家的法律制定从来都不能由少数人专制出台，更何况在人口众多的大陆，法律少而精，合众意而不是迎合少数人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-参考链接：[联合新闻网](https://udn.com/news/story/7332/6007902?from=udn-catebreaknews_ch2)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
