@@ -2,20 +2,37 @@
 ---
 
 
-## 文贵大直播 1/9 中共国安委让世界不安全
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1840573/)
+## 有声|美国医学协会谴责CDC新隔离指南
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1840639/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-94.jpg)图片来源 GTV
-1月9日，爆料革命发起人郭文贵先生在文贵大直播纽约现场，针对哈萨克斯坦动荡乱局，一阵见血地告诉世界：中共国的国安委是个让世界不安全的委员会。
+配音：香草山教育部 – Rose
 
-郭先生列举曾经发生的（中共国外交部部长）王毅去越南、去阿富汗，直到前不久去哈萨克斯坦，前脚走，后脚乱成一团，世界上只有爆料革命揭开幕后真相，无一不被验证。
 
-习近平罕见在哈萨克斯坦动荡发生10个小时内明确发声，同时在边境军队提供一切情报信息，3000架无人机处在待命状态。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月5日，美国医学协会AMA指责美国疾病控制和预防中心，发布了“混乱的”和“适得其反的”新冠病毒检疫和隔离新指南。
 
-中亚大门后面的乱局，才刚刚开始。中共国的国家安全委员会正在让世界变得不安全。
+该委员会主席杰拉尔德·哈蒙博士在一份声明中说，美国人民应该得到及时、准确和明确的指导。相反，CDC的新建议不仅令人困惑，而且加大了传播病毒的风险。隔离和检疫期从原先的10天缩短到5天，将增加数十万人在工作场所和学校受到感染的风险。
 
-【来源链接】https://gtv.org/broadcast/watch/61dade8c4658a73785d25466
+医生们认为目前需要进行更多的研究，以确定奥密克戎的严重程度和逃避免疫反应，以及疫苗的保护力，但这些建议可能进一步令卫生保健系统不堪重负。哈蒙博士同时敦促政府，尽一切能力加强检测盒的可用性。但测试盒的匮乏并不能成为缩短隔离期的理由。 虽然CDC强调更改指南的原因是研究表明，病毒传播一般在发病前1-2天和发病后2-3天。但评论人士指出，隔离期缩短为5天跟多个领域出现的人员短缺有关，社会运转的基本功能正面临着严重问题。
+
+文字版原文：[美国医学协会谴责CDC新隔离指南](https://gnews.org/zh-hans/1835804/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

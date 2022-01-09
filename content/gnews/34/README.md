@@ -2,33 +2,45 @@
 ---
 
 
-## 【中日财经爆】国内餐饮纷纷涉足元宇宙，引流还是圈钱？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1840061/)
+## 中共房地产的崩塌会推进人类文明再次飞跃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840130/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-90.png)
-[图片来源](https://newskks.com/science/384050.html)
+作者：银河勇气星 骄子
 
-2021年，元宇宙概念被引爆，热度持续走高，受到众多行业和企业的追捧。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-日前，在餐饮行业，奈雪的茶在六周年生日季官宣了其元宇宙品牌大使“奈雪女孩NAYUKI”，并发售了限量NFT盲盒，72小时斩获GMV 近2个亿，相当于全国门店近一周的销售成绩，再次刷新行业纪录，成功引起热议。
+1月7日，郭文贵先生在直播中指出，中共即将崩塌的房地产金融将会重塑人类文明。
 
-而在此之前，同为茶饮品牌的蜜雪冰城早已加入“元宇宙”大军，提前申请注册了一系列与元宇宙相关的商标内容，包括“蜜雪元宇宙”“雪王元宇宙”“MIXUEMEAT”等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-10.37.40-PM.png)
 
-国内餐饮行业“元宇宙”的风口开始了吗？实则不然。元宇宙，虽然是下一代数字科技和数字经济发展的重要领域，但目前仍旧处于早期阶段，有关基础协议和标准尚未确定，这对于专业的科技企业而言尚存在较大风险，更何况跨界的餐饮企业。
+郭先生解释，目前，中共利用房地产金融的债务问题做绑架，导致全球金融市场进退两难。长此以往，其势必会给西方国家，乃至全世界的经济带来巨大的打击。
 
-近年来，受中共国内经济持续恶化，以及中共病毒打击的影响，加之居高不下的门店和人力成本，餐饮企业普遍遭受重创，大量餐饮企业倒闭。为求生，部分餐饮企业被迫进行跨界拓展或者转型。
+郭先生补充道，人类即将经历有史以来最严重的全球经济危机，而中共也会随着这次大劫难而走向灭亡。但郭先生认为，经历了疫苗灾难和金融危机后，全球经济会进入一个前所未有的加速反弹期。届时，人类社会，包括政治、经济，金融、资源等各个方面都会进行史无前例的重新大洗牌。同一时间，太空、新技术、5G、AI、数字货币也将会给人类带来财富的大爆发。
 
-奈雪的茶、蜜雪冰城，作为完成过多轮大型投资机构融资的连锁餐饮企业，面对营收不振、成本高企的残酷现实，积极涉足元宇宙，更多的是资本市场的操作手法，即概念圈钱。
+郭先生表示，出乎中共意料的是，它用债务绑架全球经济并用房地产制造的金融危机竟然能够推动人类产生空前绝后的经济大反弹和文明大进步。
 
-信息来源：
+郭先生戏称，中共之死的最大贡献，就是其骨灰变成了人类文明的肥料。
 
-[奈雪、蜜雪纷纷入局，元宇宙概念场景如何给餐厅引流？](https://www.163.com/dy/article/GT7685770514R9NP.html)
+參考鏈結：
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+1. [2022年1月7日 文贵大直播：（3）香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+2. [语音版：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](https://gnews.org/zh-hans/1836697/)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+
+编辑：文真 
+总编：飞虹 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

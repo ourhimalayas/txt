@@ -2,47 +2,67 @@
 ---
 
 
-## 魁北克省发生大规模抗议示威——抗议者聚集在蒙特利尔
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1840550/)
+## 没有你，对我很重要
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1840620/)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片11-2.png)图片来源：TVA新闻
-**数百名示威者参加了周六下午在蒙特利尔老城举行的反对卫生措施的集会**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片12-2.png)
-TVA新闻（TVA NOUVELLES，Agence QMI， 2022 年 1 月 6 日）发表题为《反对卫生措施的抗议者聚集在蒙特利尔》的文章。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片13-2.png)
-示威者打着 “我们的自由是必不可少的”，“自由必胜”的标语。示威者中有加拿大人民党领袖马克西姆·伯尼尔 (Maxime Bernier)，自大流行开始以来，他就积极参加这种类型的集会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片14-3.png)
-“这里有很多人，他们为自由而战，他们敢于对勒戈Legault （魁北克省长弗朗索瓦·勒戈（François Legault））和任何侵犯我们权利和自由的暴君说不，我们将战斗到胜利的那一刻，自由最终总会胜利，”伯尼尔先生在他的推特账户上发布的一段视频中说道。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片15-2.png)
-反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）也参加了集会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片16-2.png)
-魁北克 Pro Choix 团体也是 1 月 1 日在魁北克省长弗朗索瓦·勒戈（François Legault）驻蒙特利尔的办公室前举行的抗议宵禁的示威集会的组织者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片17-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片18-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片19.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片20.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片21.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片22.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片23.png)
-日前，TVA新闻（TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique， 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。魁北克省战略传播顾问，让·拜尔拉贡Jean Baillargeon，在文章提议，筛查出未接种疫苗的人应该是我们现在要做的首要事项。只有这样才能平息那些已经接种了两剂（针）或三剂（针）疫苗的，处于长达两年封锁状态的，人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。让·拜尔拉贡还提到，魁北克省政府很快会针对未接种疫苗的人群采取进一步措施。一些政客提议针对医疗费用征收“疫苗税”。另一些人则希望采取措施限制某些公共服务的使用，例如魁北克省酒业协会 (SAQ) 或魁北克省大麻协会(SQDC) 要求在入口处出示疫苗接种护照。让•拜尔拉贡最后提议，我们应该参照一些国家的方法，比如新加坡和奥地利，要想结束对90%人口的大范围限制，我们先限制（10%）未接种疫苗的人。例如在所有公共服务中都要求出示疫苗接种护照，如果他们不遵守这个规则就对他们处以罚款；未接种疫苗的人如果被感染并住院，应当向他们收取住院医疗费用。
+推荐者：纽约磐石农场-晨jun
 
-另外，蒙特利尔日报（吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44）还报道，从 1 月 18 日起，未接种疫苗的人将无法再进入魁北克省酒业协会 SAQ （一家政府垄断的公司，其职责是在魁北克省全境经销酒精饮料）和魁北克省大麻协会 SQDC （SAQ 的子公司，其职责是管理魁北克省全境的大麻销售）的所有的分支机构。魁北克省很快还将对美发沙龙等其他非必要业务实施疫苗护照。
-
-文章编译及评论人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
-
-## **图片来源：**
-
-1. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，[Des manifestants contre les mesures sanitaires réunis à Montréal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)，[https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-2. [Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU) https://www.youtube.com/watch?v=-frZut0SbaU
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-s2.png)
 
 
-**参考资料**：
 
-1. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，[Des manifestants contre les mesures sanitaires réunis à Montréal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)，[https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-2. [Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU) [https://www.youtube.com/watch?v=-frZut0SbaU](https://www.youtube.com/watch?v=-frZut0SbaU)
-3. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， [«Dépistons et confinons les non-vaccinés»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
-4. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， [Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)，[https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
+推荐者语：正如江雪女士所说：“‘西安只能胜利’，这是正确的大话，套话，也是空话。与之类似的，还有‘我们要不惜一切代价’，这句话是不错，但具体到每一个普通人，我们可能要想一想，在这里，我们是‘我们’，还是要必须被付出的‘代价’?”
 
+* * *
 
-编辑/发布：LILY
+* * *
 
-20220109
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-3.jpeg)
+
+12月31日晚，西安糜家桥小区、明德8英里小区，共计一千多人，连夜被转送至灞桥区向阳沟公租房，名头是集中隔离。防疫工作人员，把一千多人当做消防兵对待，临时上楼敲门，要求他们15分钟后下楼，集体转移。
+
+随即抖音传出视频，文案写着“悲壮的明德8英里”，画面中一辆辆53座绿色旅游大巴，在狭小巷子里排成一行。画面灰暗，音效震撼，悲壮是悲壮了点，但当局愿意花钱，人民乐意配合，可谓官民携手，共同抗疫之典范了。
+
+不料，新年第一天，微信群再一次炸锅。8英里小区被隔离市民，发出一封求救信，《谁能救救我们，元旦前夕被集中隔离》，读完才发现，和以往一样，本次集中隔离，依然摧枯拉朽，连滚带爬。
+
+求救信说出7条困难，提出5条诉求，大致总结如下。困难：1、隔离前没通知，15分钟集结，啥都带不上；2、转送过程没防护，大巴车拥挤不堪，老人小孩尤其受罪；3、隔离信息不透明，去哪里、隔离多久无人告知，也无书面函件；4、集中隔离点无防护用品，无核酸检测安排；5、隔离环境恶劣，高低铺无暖气，餐食也无法按时按需提供；6、隔离管理一问三不知，且可以相互串门；7、没有沟通渠道，没有求助渠道，孕妇、老人、孩子状况堪忧。
+
+诉求：1、信息透明。告知隔离、核检安排，隔离的时间；2、防疫保障。提供酒精，口罩等防护物品，隔离期间可自我保护。3、基本生活保障。包括食品，基础生活物资，药品等等；另外，有人原本居家办公，需要网络保障工作；4、反馈沟通渠道畅通。如有需求可联系到相关人员及时解决；5、隔离地点有效管理。包括楼栋物业管理和人员管理。
+
+可以发现，被集中隔离的市民，很清楚自己在经历什么，知道自己想要什么。在言语间细细揣摩，甚至能分析出，他们知道当局想要什么。信中有这么个故事，老爷爷老奶奶途中想要解手，司机完全不搭理，后来二人当众解决。
+
+可以猜测，司机接到过指示，途中要防止冲逃事件，所以他听到也当没听到，掩耳盗铃了一把。
+
+求救信疯传之际，集中隔离仍在推进中，长丰园10号、枫叶高层、利君未来城、紫郡长安、巨型城中村沙井村……，居家隔离十多天，核酸检测做了无数轮，从下楼排队，到上楼敲门，为什么还要大规模转移，去集中隔离？
+
+今天微信群传来一项任免消息，和一个4天内清零的战时指令。任免消息在晚间发布新闻，已经证实，后一个可能是谣言，也可能是新闻，还处于量子态。任免没关系，咱们领导班子人才济济，谁顶上都能带领人民走向胜利。
+
+战时命令可把人吓得不轻，看口吻是元月1号的消息。今天零时起进入战时状态，48小时内所有B类接触者，和当天检测产生的B类密接者，要全部集中管控。元月4日实现社会面清零目标。
+
+社会面清零，自然不含隔离人员。确诊楼栋转移隔离，在隔离点确诊，自然也不算社会面。这方法聪明绝顶，不仅加大隔离力度，争取全市早日解封，还能在不久的两天后，让西安的抗疫工作，取得第一阶段全面胜利，双赢啊。
+
+类似双赢事件，在这片土地上，时有发生。1995年到2006年，三峡大坝两岸，先后113万人放弃家园，住上了敞亮的大房子。2020年长江洪灾，多地用农田蓄洪，抗洪灌溉两不误。这次也不例外，秦始皇模电门，已经赢麻了。
+
+如此看来，那些求救信，仿佛在跟领导对话，乌纱和我哪个重要？ 没有你，对我很重要。
+
+（出于安全考虑，暂时隐去墙内作者信息）
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
