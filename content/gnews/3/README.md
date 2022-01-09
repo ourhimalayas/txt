@@ -2,26 +2,33 @@
 ---
 
 
-## 秘翻在线：天津防疫封锁，北京还远吗？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1839030/)
+## 美联邦法官驳回 FDA 对 Vax 数据的 75 年延迟，将其缩短至仅 8 个月
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839035/)
 
-**撰稿：Ping**
+撰文 : 新中国联邦静
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/phpWu3U2A.jpg)
-1月9日中共官媒报道，天津市疫情防控指挥部发出通告：严格管控措施，非必要不离津。目前已有报道全市开始全员核酸检测。自西安封城以来，中共国各地封城声音此起彼伏。如今天津防疫封锁，疫情直逼北京。北京冬奥会期间，如果疫情爆发，北京也要封锁么？如果首都北京封锁，中南坑的政治局势又将怎样发展呢？
+1月6日原告的律师 Aaron Siri 通过他的博客“注入自由”提供了这一惊人的更新，内文提到重点是要求 FDA 提供辉瑞提交的所有数据，而一位联邦法官坚决拒绝了 FDA 的要求，并命令 FDA 以每月55,000页的速度制作所有数据！
 
-天津与北京紧邻，众多上班族选择在天津买房北京上班。如果天津封锁，无疑会有众多住在天津的上班族，无法来京上班。若员工长时间不工作，当年假，病假全部休完之后，等待他们的则是失业。冬奥会期间，北京也不可能冒险开放天津，而造成北京的疫情防控受到威胁。天津民众的明天可能会经历今天西安的人道灾难。可以说，共党不灭，谁都有可能死在严控防疫的隔离中！
+律师 Aaron Siri在赢得联邦法官的胜诉后声明 : 这是透明度的一大胜利，并消除了联邦“卫生”当局对独立科学家提供解决方案和解决当前疫苗计划的严重问题所需数据的束缚之一，这些问题包括免疫力减弱 、变种逃避疫苗免疫力的问题。 ，而且，正如 CDC 所证实的那样，疫苗并不能阻止传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-586.png)律师 Aaron Siri
+资料来源
 
-事实上，北京已有坊间消息，北京三里屯已经封锁。原因注明是四个西班牙运动员进京，在机场核算是阳性，并且拒绝在昆仑饭店隔离，执意三里屯游玩，造成三里屯封锁。中共官方没有报道。但是三里屯的封锁到底是进京运动员引起的，还是中共病毒疫苗的副作用，从中共国很难得到真实的消息，而封锁确实实实在在的！
+[https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true)
 
-西安人为的防疫人道灾难，还在继续。尽管西安政府严控微信等社交媒体。但仍有个别消息传出。例如小区直接火化的照片，这是火葬场烧不完了么？还有多位需要急救的老人，孩子，青年死于等待核算检测的结果中。这一条条人命牵动着背后多少个家庭，这难道不是人为制造的人道灾难么？每一个被封的城，都会有社会面清零的要求。而清零的背后就会有无数生命的消失。
 
-天津防疫封城，证明天津的疫情失控，据说感染奥米炕病毒超过四分之三是孩子！于是必须通过严苛的管控措施，才有可能将疫情控制在天津市内。但是目前疫情的蔓延并不是封一城就可以控制得了的。并且北京的疫情目前也在蔓延中，由于冬奥会务必管控消息，待冬奥会结束，疫情掩盖不住的时候，中共定会直接甩锅给国外运动员和工作人员就万事大吉，习一神依然是伟大的中共国的太阳！
 
-从中南坑的政治斗争的局势来看。如果北京进入封锁状态，维稳部队进京，中南坑的斗争很可能进入军事政变。习太阳会封锁北京，给军队进京一个借口么？如果习一神想通过封锁将政治对手一窝端，也可能会利用封锁这一险棋。总之，北京若进入防疫封锁状态，都将会使中共党内的政治斗争加剧，而这对新中国联邦绝对是一个好消息。
+> I am pleased to report a federal judge rejected the FDA's request to produce the Pfizer Covid vaccine data at 500 pages per month and instead ordered a rate of 55,000 pages per month! Everyone should read the Judge's excellent 3-page decision available at [https://t.co/ziqCs9fA9J](https://t.co/ziqCs9fA9J)
+> — Aaron Siri (@AaronSiriSG) [January 6, 2022](https://twitter.com/AaronSiriSG/status/1479230040630251520?ref_src=twsrc%5Etfw)
 
-**[新闻来源](https://www.bjnews.com.cn/detail/164169850514841.html)**
+
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
