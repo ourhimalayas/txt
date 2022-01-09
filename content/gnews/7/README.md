@@ -2,33 +2,32 @@
 ---
 
 
-## 美联邦法官驳回 FDA 对 Vax 数据的 75 年延迟，将其缩短至仅 8 个月
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1839035/)
+## 如何吃得更健康以提高免疫力？食用油最关键！
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1839104/)
 
-撰文 : 新中国联邦静
+**—— 物理精制的椰子油货源寻找和性价比初探**
 
-1月6日原告的律师 Aaron Siri 通过他的博客“注入自由”提供了这一惊人的更新，内文提到重点是要求 FDA 提供辉瑞提交的所有数据，而一位联邦法官坚决拒绝了 FDA 的要求，并命令 FDA 以每月55,000页的速度制作所有数据！
+**撰稿：Eva**
 
-律师 Aaron Siri在赢得联邦法官的胜诉后声明 : 这是透明度的一大胜利，并消除了联邦“卫生”当局对独立科学家提供解决方案和解决当前疫苗计划的严重问题所需数据的束缚之一，这些问题包括免疫力减弱 、变种逃避疫苗免疫力的问题。 ，而且，正如 CDC 所证实的那样，疫苗并不能阻止传播。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-586.png)律师 Aaron Siri
-资料来源
+提升免疫力，最关键的一环其实是在我们的食用油上，希望引起战友们足够的重视。不要一天天只知道抗氧化营养补剂，却不管一日三餐的食用油，可能引发心血管发炎。个人认为身体的炎症，最重要的是解决食用油的问题。食用油不优先解决，其他都是浪费钱。
 
-[https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true](https://aaronsiri.substack.com/p/instead-of-fdas-requested-500-pages?justPublished=true)
+食用油的知识学习是个不小的系统工程，今天本文并不打算探讨适合高温油炸的物理精制椰子油，如何具有氧化慢，抗酸败，加热过程可以避免脱酸脱色脱臭氧化分解等等的优点。我只是直接寻找到了购买物理精制的椰子油货源，分享给大家，并且做简单性价比。
 
+废话不多说，直接干货上图：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-164828.jpg)
+希望战友们可以一图看懂物理精制的椰子油的性价比。
 
+我把新加坡三家超市物理精制的椰子油产品都检查了几遍，现货只有Cold Storage有，而且只有一个品种。
 
-> I am pleased to report a federal judge rejected the FDA's request to produce the Pfizer Covid vaccine data at 500 pages per month and instead ordered a rate of 55,000 pages per month! Everyone should read the Judge's excellent 3-page decision available at [https://t.co/ziqCs9fA9J](https://t.co/ziqCs9fA9J)
-> — Aaron Siri (@AaronSiriSG) [January 6, 2022](https://twitter.com/AaronSiriSG/status/1479230040630251520?ref_src=twsrc%5Etfw)
+于是抱着试试看的心态，查找了Iherb，没想到货源很多，我才犹豫了2天，却发现这些椰子油也是紧俏商品，时常断货。终于瞄到2次有货，2次都是下单以后秒被IHerb撤掉其中的椰子油！这次果断下单成功！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-165105.jpg)
+于是决定赶紧发文，给战友们参考：
 
+[https://iherb.co/pFHER58](https://iherb.co/pFHER58)
 
+Iherb其它各种物理精制的椰子油：
 
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[https://iherb.co/JMrbra6](https://iherb.co/JMrbra6)
 
  
 

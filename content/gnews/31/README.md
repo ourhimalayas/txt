@@ -2,25 +2,29 @@
 ---
 
 
-## 有声|杨贝贝的歹毒用心堪比希特勒时代的戈培尔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1838629/)
+## 人生就是一场大梦
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1838880/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2021年1月5日文贵大直播中，郭先生称，中共花一年时间通过世界级媒体HBO VICE以及记者杨贝贝，处心积虑利用假视频抹黑爆料革命，将全球华人定义为西方民主最大的敌人，将给海外华人带来“印尼排华”惨案般种族歧视、种族屠杀等灾难。杨贝贝事件是中共为华人乃至黄皮肤亚裔，精心罗织的极其阴险歹毒的天罗地网加强版。
+作者：纽约香草山 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月5日，郭先生在大直播中提到，五台山有位大师，给郭先生发信息告知，应该把gettr图标由歪扳正，将会有奇迹发生。正如其所料，现在奇迹发生了。
 
-1月4日，被她蓄意恶剪的视频所陷害的战友跟律师们进行了沟通，新中国联邦人优秀的英文、清晰的思路与准确的表达让律师们感到惊讶。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获.png)
 
-最后律师们对杨贝贝事件达成3点共识：一，确认2020年1月6日国会山动乱现场并没有新中国联邦国旗，这是极其危险的栽赃；二，把华人定义为西方民主的威胁，完全是希特勒当年戈培尔式宣传口径，这绝对适用RICO法案；三，这个毫无法律依据的视频，推出的时机和内容，说明杨贝贝不仅在挑战新中国联邦，也在挑战美国。美国两党很多议员看了视频后都认为她绝对跟中共有关系。
+并且郭先生还说，他保留最重要的一句话一直未说出口，即这位五台山大师，当时站在山顶悬崖，便知道了对岸，并坚信一定能达到彼岸。修行正道，人生早有答案，不管什么宗教，皆信最终人生一切皆空相，人生最终就是黄粱一梦。
 
-对于杨贝贝是中共最重要的大外宣，是对华人最危险的人，新中国联邦人和所有华人都有权力起诉HBO VICE和Isobel Yeung。
+当你做梦的时候，完全是真实的，只是你挣扎不开。等你醒的时候，发现你又活了一天。你上一个正在睡觉时的身体，就是现在的灵魂所在。当你做喜梦，黄粱梦，醒来发现自己又活过来了。我们把自己的梦做好，醒来非常愉悦，你就修行成功了。灵离开你的时候，就是你醒来的时候。
 
-文字版原文：[杨贝贝的歹毒用心堪比希特勒时代的戈培尔](https://gnews.org/zh-hans/1836360/)
+参考链接：
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+- [2022/01/05 郭先生大直播速記](https://discord.com/channels/702115364770807868/790757471484379156/928331419334377502)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
