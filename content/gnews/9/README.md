@@ -2,24 +2,26 @@
 ---
 
 
-## 菲律宾下令抓捕违反居家令的未接种新冠疫苗者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839214/)
+## 盖特一周内新增一百万用户
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839205/)
 
-撰稿：银河勇气星—骄子
+撰稿：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
-外媒1月7日消息，随着奥米克戎使菲律宾感染人数增多，菲律宾总统近日命令，首都马尼拉的1300万未接种疫苗者必须呆在家里，除去必要的物资采购和锻炼，其余时间不得出门。若有违反，可以随意逮捕。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-593.png)
-新闻来源：
+1月7日，美国媒体报道，在播客巨星乔·罗根加入盖特之后的几天内，已经有超过一百万新用户加入盖特。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-592.png)图片来自nypost
+在罗根发表第一条盖文后，不到一周的时间里，盖特的新增用户数就突破了一百万大关。据发言人埃博尼-鲍登说，目前，盖特的用户总数超过了四百万。这波注册浪潮包括，仅在1月3日就有34.3万人注册，这是该平台自7月初推出以来最大的单日新增用户数量。罗根的加入，标志着盖特一个历史性的胜利。
 
-[Philippines’ Duterte orders arrest of unvaccinated people who violate stay-at-home orders](https://www.theguardian.com/world/2022/jan/07/philippines-duterte-orders-arrest-of-unvaccinated-people-who-violate-stay-at-home-orders)
+截至7日，盖特在美国已有220万用户，其次，是巴西的50万用户，以及英国、德国和法国的重要用户群。盖特CEO杰森·米勒说，欢迎来自各种意识形态和背景的人在盖特的平台上自由表达自己。
 
 
+
+新闻链接：[Joe Rogan helps Twitter alternative Gettr amass a million new users](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
 
-总编：文特
+总编：Irene木木
 
-编辑：飞虹
+编辑: 文真
 
 校正/发稿：浪迹天涯
 

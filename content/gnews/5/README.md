@@ -2,34 +2,36 @@
 ---
 
 
-## 每个死于新冠病毒的人都应该视为被谋杀
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1839241/)
+## 球王乔科维奇坚持不打疫苗崇尚自然疗法
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1839230/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
-据外媒1月6日报道，在美国北卡罗来纳州新汉诺威的一个学校董事会上，前重症护士摩根·华莱士发表讲话时表示，新冠疫苗未能保护人们免受新冠病毒的感染，每一个死于新冠病毒的人都可以视为被谋杀。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-595.png)
-摩根·华莱士是北卡的一位注册护士，在当地医院工作了10年，2020年11月被评为优秀员工，并且得到了医院主任的职位，但她因未接种疫苗而辞职。她说，接种新冠疫苗，给人体带来了数以百万计的刺突蛋白，并且会有癌症、血凝块的风险，人体内会埋下可能出现任何疾病的定时炸弹。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台媒1月6日报道，世界网球名将、球王乔科维奇，预定参加澳洲网球公开赛，在抵达澳洲机场时，因无法出示疫苗豁免的证明文件，面临被澳洲当局遣返的处境。但是乔科维奇表示，宁可被驱逐出境，也坚决不打疫苗，原因在于他崇尚自然疗法。
 
-新闻来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/phpEpSVNm.jpg)
 
-[“Everyone Who Died With Covid Should Be Considered Murdered”: Nurse Promoting Early Treatment Exposes Scamdemic in Epic School Board Rant](https://www.infowars.com/posts/everyone-who-died-with-covid-should-be-considered-murdered-nurse-promoting-early-treatment-exposes-scamdemic-in-epic-school-board-rant/)
+乔科维奇在前年中共病毒疫情初期，就坚持在自己的国家塞尔维亚举办网球赛。虽然在赛中确诊感染患病，不但最后成功克服，而且至今依然保持世界第一的王座。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar.jpg)
+乔科维奇表示他认识一些人，可以通过能量转化和祈祷的力量，把最毒的食物和最污染的水，变成可以治疗疾病的良药。因此他坚信替代医学，崇尚精神治疗。
+
+参考链接：
+
+- [澳網》為何喬科維奇堅持不打疫苗？ 外媒揭：他崇尚金字塔](https://sports.ltn.com.tw/news/breakingnews/3791910)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：Irene木木
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-5.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,32 @@
 ---
 
 
-## 科索沃以电力短缺为由，禁止加密货币挖矿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1839109/)
+## 如何吃得更健康以提高免疫力？食用油最关键！
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1839104/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**—— 物理精制的椰子油货源寻找和性价比初探**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Kosovo-crypto-mining-Mitrovica.jpg)
+**撰稿：Eva**
 
+提升免疫力，最关键的一环其实是在我们的食用油上，希望引起战友们足够的重视。不要一天天只知道抗氧化营养补剂，却不管一日三餐的食用油，可能引发心血管发炎。个人认为身体的炎症，最重要的是解决食用油的问题。食用油不优先解决，其他都是浪费钱。
 
- 
-图片来源：balkaninsight.com
+食用油的知识学习是个不小的系统工程，今天本文并不打算探讨适合高温油炸的物理精制椰子油，如何具有氧化慢，抗酸败，加热过程可以避免脱酸脱色脱臭氧化分解等等的优点。我只是直接寻找到了购买物理精制的椰子油货源，分享给大家，并且做简单性价比。
 
+废话不多说，直接干货上图：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-164828.jpg)
+希望战友们可以一图看懂物理精制的椰子油的性价比。
 
-编译：小红帽
+我把新加坡三家超市物理精制的椰子油产品都检查了几遍，现货只有Cold Storage有，而且只有一个品种。
 
-根据《自然新闻》1月7日报道**，欧洲东南部国家科索沃禁止加密货币挖矿，以减少其能源消耗。**1月4日颁布的禁令是在前南斯拉夫领土面临几十年来最严重的电力短缺的情况下发布的。
+于是抱着试试看的心态，查找了Iherb，没想到货源很多，我才犹豫了2天，却发现这些椰子油也是紧俏商品，时常断货。终于瞄到2次有货，2次都是下单以后秒被IHerb撤掉其中的椰子油！这次果断下单成功！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-09-165105.jpg)
+于是决定赶紧发文，给战友们参考：
 
-科索沃经济和能源部长阿塔内·里兹瓦诺利（Artane Rizvanolli）在一份声明中表示：“所有执法机构将与其他相关机构合作，停止加密货币挖矿活动。这些机构被确定为加密货币挖矿的地点。” 她补充说，禁止加密货币开采的决定，是根据科索沃能源供应紧急措施技术委员会的建议所做出的。
+[https://iherb.co/pFHER58](https://iherb.co/pFHER58)
 
-由于科索沃的能源价格相对实惠，近年来已成为年轻加密货币矿工最喜欢的地方，其中有一位矿工拥有40台图形处理机。他在匿名的情况下对路透社说，他每个月支付170欧元（192美元）的电费。反过来，他每月赚取2400欧元（2713美元）的利润。利润超过他每月电费的14倍。
+Iherb其它各种物理精制的椰子油：
 
-在科索沃北部，加密货币开采也在不断增加。该地区居民多为塞尔维亚人，他们不承认科索沃的独立，并拒绝为他们使用的电力付费。塞尔维亚本身对该国的合法性提出异议，称其为科索沃和梅托希亚自治省。
-
-科索沃有180万人口，目前它所消耗的电力有40%以上是进口的。由于人们主要用电取暖，冬季往往导致能源需求激增。然而，在燃煤电厂停电和能源进口价格高企的情况下，科索沃当局在2021年12月实行了断电。
-
-同样在2021年12月，该国宣布了为期60天的紧急状态。该声明试图让科索沃政府拨出更多资金用于进口能源，实行额外的断电，并采取其他严厉措施，帮助该国渡过能源短缺的难关。
-
-新闻来源：[Kosovo BANS crypto mining in order to save energy during power shortage – NaturalNews.com](https://www.naturalnews.com/2022-01-07-kosovo-bans-crypto-mining-to-save-energy.html)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://iherb.co/JMrbra6](https://iherb.co/JMrbra6)
 
  
 
