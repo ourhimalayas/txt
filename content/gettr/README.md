@@ -17,6 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@reliakar 1/8/2022 9:58 PM (UTC)`
+
+Even the stars were jealous of the sparkle in her eyes 💘
+![img](https://media.gettr.com/group30/origin/2022/01/08/21/8c2dc0fa-749b-7e10-3bf6-58e1eddaba31/79522196523fd6f9a7f933c705f5b2f1.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@simonegao 1/9/2022 6:01 AM (UTC)`
+
+My first post. Just want to test how many Chinese people are there.
+![img](https://media.gettr.com/group42/origin/2022/01/09/06/82584d33-05ed-5f66-9f82-954e42aa5dab/out.jpg)
+
+---
+
 `@miles 1/9/2022 1:10 PM (UTC)`
 
 2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析
@@ -153,20 +171,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: The CCP has never anticipated that its use of debts to hold hostage the global economy and creating a financial crisis via the collapse of its real estate would propel humanity to an unprecedented massive economic rebound and advancement of civilization; the GETTR Pay's digital currency mogul praised the Himalaya Coin and the Himalaya Exchange<br/><br/>1/07/2022 文贵直播：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步；GETTR Pay的数字货币大佬对喜币和喜联储大加赞赏
 ![img](https://media.gettr.com/group17/getter/2022/01/08/05/01a8483d-ca38-be55-eba5-7a110a298d79/out.jpg)
-
----
-
-`@miles 1/8/2022 2:40 AM (UTC)`
-
-1/07/2022 Miles Guo: There is no CCP senior cadre who dares to mention Miles Guo, the New Federal State of China, and the Whistleblowers’ Movement, and our fight against the CCP is a war between justice and evils; reflect on the hooligan nature of the CCP’s political infightings by  looking at the photos of me when I was 7 years old; I already suspected that the CCP had falsified its GDP when I was a child<br/><br/>1/07/2022 文贵直播：中共高官无人敢谈文贵、新中国联邦和爆料革命，我们和中共的较量是正邪之战；从文贵7岁时的照片看中共内斗的流氓逻辑；文贵还是孩子的时候就怀疑中共GDP造假<br/>
-![img](https://media.gettr.com/group1/getter/2022/01/08/02/c8b9c716-9bc4-1be8-987a-93ab7906f4ff/out.jpg)
-
----
-
-`@miles 1/8/2022 12:17 AM (UTC)`
-
-1/07/2022 Miles Guo: The vaccine mandate will certainly be terminated by this May; only I have said that what is going on in Xi’an is a COVID vaccine disaster; the CCP may use the Winter Olympics to brag about itself, but it will be slapped in the face after the Olympics; the viruses will inevitably get out of control after they were released, so please take care of yourself<br/><br/>1/07/2022 文贵直播：疫苗强制令在今年5月前必被灭；只有文贵说西安是疫苗灾难；中共会用冬奥会吹牛，但冬奥会结束后就会被疫苗灾难和国内乱局打脸；病毒被释放后必定失控，请多保重<br/>
-![img](https://media.gettr.com/group10/getter/2022/01/08/00/9f84b7a1-2f00-0726-c533-34bdbecd7297/out.jpg)
 
 ---
 
