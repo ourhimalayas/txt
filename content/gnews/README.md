@@ -15,143 +15,143 @@
 
 ---
 
-### [【秘翻在线】纳扎尔巴耶夫在哪?](/content/gnews/1/README.md)
+### [西安宣布抗疫胜利后警方开始对疫情真相发布者大抓捕](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [众议院委员会为举报人启动 COVID-19起源调查](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【秘翻在线】纳扎尔巴耶夫在哪?](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国想要禁声的科学家 （二）](/content/gnews/2/README.md)
+### [中共国想要禁声的科学家 （二）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [追求喜马拉雅，走向正道主义](/content/gnews/3/README.md)
+### [追求喜马拉雅，走向正道主义](/content/gnews/5/README.md)
  ` YALUN 亚伦`
 
-### [巴西总统反对儿童接种中共病毒疫苗](/content/gnews/4/README.md)
+### [巴西总统反对儿童接种中共病毒疫苗](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [雅典娜时报-第168期](/content/gnews/5/README.md)
+### [雅典娜时报-第168期](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [冲浪世界冠军谈“洗脑”，质疑中共病毒疫苗的有效性](/content/gnews/6/README.md)
+### [冲浪世界冠军谈“洗脑”，质疑中共病毒疫苗的有效性](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [罗恩·德桑蒂斯：疫苗护照创造了一个两个阶层的社会](/content/gnews/7/README.md)
+### [罗恩·德桑蒂斯：疫苗护照创造了一个两个阶层的社会](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工](/content/gnews/8/README.md)
+### [没有接种疫苗，就没有工作：花旗集团本月底将解雇未接种疫苗的员工](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [第203期玫瑰看新闻-国际热点新闻](/content/gnews/9/README.md)
+### [第203期玫瑰看新闻-国际热点新闻](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [强制疫苗违背医生的教育和信仰](/content/gnews/10/README.md)
+### [强制疫苗违背医生的教育和信仰](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [德克萨斯州的国民警卫队成员拒绝接种疫苗](/content/gnews/11/README.md)
+### [德克萨斯州的国民警卫队成员拒绝接种疫苗](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳大利亚男子因抗议COVID新冠-疫苗护照而自焚](/content/gnews/12/README.md)
+### [澳大利亚男子因抗议COVID新冠-疫苗护照而自焚](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G时新闻】以色列出现首例新型混合病毒Flurona](/content/gnews/13/README.md)
+### [【G时新闻】以色列出现首例新型混合病毒Flurona](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [【G时新闻】美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员](/content/gnews/14/README.md)
+### [【G时新闻】美法官支持以宗教理由拒绝接种疫苗的海豹突击队成员](/content/gnews/16/README.md)
  ` G-时新闻`
 
-### [中共按计划释放了新冠病毒新毒株奥密克戎](/content/gnews/15/README.md)
+### [中共按计划释放了新冠病毒新毒株奥密克戎](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《华盛顿邮报》阻止拜登的疫苗强制将是最高法院给特朗普的礼物](/content/gnews/16/README.md)
+### [《华盛顿邮报》阻止拜登的疫苗强制将是最高法院给特朗普的礼物](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [病毒不可怕，防范意识很重要](/content/gnews/17/README.md)
+### [病毒不可怕，防范意识很重要](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [2022-1-4 班农：北京冬奥是种族灭绝游戏，是一种耻辱，我们什么时候报道西安人民的生活？](/content/gnews/18/README.md)
+### [2022-1-4 班农：北京冬奥是种族灭绝游戏，是一种耻辱，我们什么时候报道西安人民的生活？](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共公布了“接管”拉丁美洲的计划](/content/gnews/19/README.md)
+### [中共公布了“接管”拉丁美洲的计划](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [德桑蒂斯（DeSantis）：我将投资微芯片和半导体制造，因此中共“无法控制我们的供应链”](/content/gnews/20/README.md)
+### [德桑蒂斯（DeSantis）：我将投资微芯片和半导体制造，因此中共“无法控制我们的供应链”](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021-12-23 Stew Peters Show 在成年人接种疫苗后的18周以内，他们的0-14周岁的孩子的死亡风险也增加了](/content/gnews/21/README.md)
+### [2021-12-23 Stew Peters Show 在成年人接种疫苗后的18周以内，他们的0-14周岁的孩子的死亡风险也增加了](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加拿大联邦公共服务部长新冠病毒检测呈阳性](/content/gnews/22/README.md)
+### [加拿大联邦公共服务部长新冠病毒检测呈阳性](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [电视台拒绝接受真相，拒绝让知道真相的人上节目发声](/content/gnews/23/README.md)
+### [电视台拒绝接受真相，拒绝让知道真相的人上节目发声](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国想要禁声的科学家 （三）](/content/gnews/24/README.md)
+### [中共国想要禁声的科学家 （三）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰和台湾的双头之争](/content/gnews/25/README.md)
+### [乌克兰和台湾的双头之争](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP特色防疫西安病例社会面清零](/content/gnews/26/README.md)
- ` 澳喜特战旅Gnews`
-
-### [天文学家在银河系内发现一条可能诞生新星球的巨型云带](/content/gnews/27/README.md)
+### [天文学家在银河系内发现一条可能诞生新星球的巨型云带](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [全球疫情更新（网球巨星挑战澳政府反衬的种种荒诞）](/content/gnews/28/README.md)
+### [全球疫情更新（网球巨星挑战澳政府反衬的种种荒诞）](/content/gnews/29/README.md)
  ` 走进澳洲`
 
-### [疫苗护照升级版，植入式微芯片即将投入应用](/content/gnews/29/README.md)
+### [疫苗护照升级版，植入式微芯片即将投入应用](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/07/2022 文贵直播： 新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出](/content/gnews/30/README.md)
+### [1/07/2022 文贵直播： 新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/31/README.md)
+### [哈萨克斯坦前安全负责人被捕，和中美俄在哈的博弈](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022年1月7日郭文贵先生直播全文字版](/content/gnews/32/README.md)
+### [2022年1月7日郭文贵先生直播全文字版](/content/gnews/33/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [独裁者以人类为祭品](/content/gnews/33/README.md)
+### [独裁者以人类为祭品](/content/gnews/34/README.md)
  ` GTV News Talk`
 
-### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2022年1月8日早](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [美驻日大使称中共不是好邻居](/content/gnews/35/README.md)
+### [美驻日大使称中共不是好邻居](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [数字人民币软件升级兼容微信支付](/content/gnews/36/README.md)
+### [数字人民币软件升级兼容微信支付](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生谈自信的三大要素](/content/gnews/37/README.md)
+### [郭文贵先生谈自信的三大要素](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/38/README.md)
+### [美国月度贸易逆差飙升至接近历史新高](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/39/README.md)
+### [1/8/2022国际财经快讯：欧央行行长称今年通胀率将下降；哈萨克斯坦的镇压打击加密货币矿工](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共以资本控制&amp;水军&amp;流量机器人&amp;恶意采访操控媒体舆论](/content/gnews/40/README.md)
+### [中共以资本控制&amp;水军&amp;流量机器人&amp;恶意采访操控媒体舆论](/content/gnews/41/README.md)
  ` mary202064`
 
-### [好想看七哥当年的照片](/content/gnews/41/README.md)
+### [好想看七哥当年的照片](/content/gnews/42/README.md)
  ` 骄子`
 
-### [在华日本公司频频受罚 对抗中共，日本需坚定立场](/content/gnews/42/README.md)
+### [在华日本公司频频受罚 对抗中共，日本需坚定立场](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国人果然被诅咒了](/content/gnews/43/README.md)
+### [中国人果然被诅咒了](/content/gnews/44/README.md)
  ` 骄子`
 
-### [01/08每日播报｜哈萨克斯坦总统对抗议者发出枪杀令 驳回要求谈判的呼吁](/content/gnews/44/README.md)
+### [01/08每日播报｜哈萨克斯坦总统对抗议者发出枪杀令 驳回要求谈判的呼吁](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [哈萨克斯坦总统：我下令可以无预警开枪](/content/gnews/45/README.md)
+### [哈萨克斯坦总统：我下令可以无预警开枪](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [01/08每日播报|社媒消息：蓬佩奥 罗伯特马龙博士](/content/gnews/46/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [【中日财经爆】日本一定会成为第二大数字货币市场](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
