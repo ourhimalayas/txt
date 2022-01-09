@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/9/2022 8:47 PM (UTC)`
+
+1月9号：喜马拉雅七座山峰就是我们的👉👉👉Noah‘s Ark。    诺亚方舟！🔥🔥🔥🔥🔥💦💦💦💥💥💥💥💥❤️❤️❤️❤️❤️❤️🦅🦅🦅🦅🦅🦅🦅🦅🌽🌽🌽🌽🌽🌽💥💥💥💥💥💥
+![img](https://media.gettr.com/group38/getter/2022/01/09/20/4c48ce75-9083-e485-629f-147cb7fc5dbe/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ianmcmath_china 1/9/2022 8:05 PM (UTC)`
@@ -165,13 +172,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: Taiwan may trigger the kinetic war between the US and Communist China; Singapore will no longer be ruled by the Lee family; the CCP’s 5-step plan - taking Hong Kong, Afghanistan, the South China Sea, Taiwan, and Kazakhstan; the fact that the intelligence regarding the CCP is absolutely within our reach is a testament of the strength of the Whistleblowers’ Movements<br/><br/>1/07/2022 文贵直播：台湾或引发中美火战；新加坡将不再有李家的家族统治；中共的5步计划 - 拿下香港、阿富汗、南海、台湾和哈萨克斯坦；爆料革命的实力体现在对中共情报的绝对掌握<br/>
 ![img](https://media.gettr.com/group1/getter/2022/01/08/08/717d85e9-ab3e-e7cb-1a9f-90934ad7cf63/out.jpg)
-
----
-
-`@miles 1/8/2022 5:28 AM (UTC)`
-
-1/07/2022 Miles Guo: The riots in Kazakhstan is an inevitable result of communism harming the world; behind the corruption of the Nazarbayev’s family is the CCP evil deeds of controlling Central Asia and Eastern Europe via the BGY scheme; What happened with Nazarbayev is a milestone for the New Federal State of China to participate in the affairs of Eastern Europe<br/><br/>1/07/2022 文贵直播：哈萨克斯坦的事件是共产主义祸害世界的必然；纳扎尔巴耶夫家族腐败的背后是中共用蓝金黄控制中亚和东欧；纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑<br/>
-![img](https://media.gettr.com/group7/getter/2022/01/08/05/e79c2d01-918c-1b0e-8f35-8e506a1b16c2/out.jpg)
 
 ---
 
