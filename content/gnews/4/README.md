@@ -2,31 +2,26 @@
 ---
 
 
-## 七哥谈流氓国家的强制疫苗政策（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844610/)
+## 英国因中共病毒死亡的病例中近75%注射过疫苗
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/1844678/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译/整理：意大利罗马达芬奇农场 – 阿娜意大利
 
-来源：郭先生2022-01-07直播08：51：22摘录
+根据英国卫生安全局的数据，英国因中共病毒死亡病例中近75%是已接种疫苗的人。
 
-打了疫苗的人感染了。就像日本这个朋友他跟我说，你看我家人几个感染，我说我可以负责任告诉你，我知道你家那个什么状况，你给我发视频，发音频，你这个就是周围的人摘下口罩的时候，周围刺突蛋白就把你感染了，我很大程度怀疑这个。所以说刚才看到这个疫苗当中，现在重点我们要说这PPT啊，有些流氓国家的强制政策，你去看有一个国家是正常的吗，这个领导人。所有这些国家通过强制疫苗，把它定为什么？没打疫苗的人是怎么着怎么着。我告诉你你看它的背景，你看它的政府的体制，基本上国会和医疗机构和这个总统，基本上都是一个党派的。而且非常大的偶然，这些党派从来过去没有控制过什么上院下院，什么上众议院，唉，就这次它就控制了，而且这时候它就说了算，又立法、颁布行政规定都它说了算。让我们真的看到这个世界真的比我们想象还要吓人，还恐怖啊。为什么都是这一帮政党，前所未有的统治一个国家的立法权，行政权、执行权之后，他们有这样的流氓的决定，而且是所有的制药公司都不负责任，都不敢说里边儿成分的时候，而且让你强制打疫苗。最重要的是打完疫苗，现在确实是打疫苗死人，关键是打疫苗的人感染，已经一针管用，二针绝对管用，三针一定管你一辈子，现在要每年打，每月打，改成打终生。这种逻辑这不是胡扯的嘛，更可怕的事情，我们大家要意识到，我们感染人当中绝大多数80%几，90%几都是打了疫苗的人，这还用说吗，是吧。逻辑，常识，专业都在这摆着呢，我们战友们如果再听不进不是疯了吗？
+根据数据，在2021年12月6日至2022年1月2日报告的3700多起死亡事件中，有2600多起是完全接种过疫苗，超过70%； 另外130起死亡事件归因于 “部分接种疫苗”，使总数达到近75%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-29-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-32-1.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+到目前为止，完全接种疫苗的人占上述的时期内感染中共病毒病例的绝大部分。
 
-**关注我们**
+英国卫生局声称，“预计很大一部分病例、住院和死亡将发生在接种过疫苗的人身上，这仅仅是因为接种疫苗的人口比例大于未接种疫苗的人口比例，而且没有疫苗是100%有效的，” 不过，鉴于报告还指出63.1%的人口接种了两剂疫苗，45.6%的人口至少接种了三剂，这些数字似乎相当不平衡。
 
-Discord 账号
+揭露日报（Daily Expose）质疑道，“是否真的有任何正当的理由将国家医疗服务系统变成国家加强针服务，并引入疫苗护照。其中未接种疫苗的人必须经过测试才能获准入境，而接种过疫苗的人则不需要？而（所谓的）疫苗并不能预防感染，也不能阻止病毒传播。”
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+参考新闻链接：[https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/](https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

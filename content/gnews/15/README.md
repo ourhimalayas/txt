@@ -2,180 +2,74 @@
 ---
 
 
-## 七哥谈面对风言风语，谈婚姻关系与全球战友们共勉
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1844456/)
+## 2022/01/10 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1844569/)
 
-[https://gtv.org/video/id=61dc41aa87664c47acd2fff8](https://gtv.org/video/id=61dc41aa87664c47acd2fff8)
+**主持**：舒平风｜**嘉宾**：防木、神奇四侠
 
-未来你可以更多感受到，一念之差
-En un futuro podrás sentir mucho más la diferencia por un solo pensamiento
 
-天地完全不一样
-El cielo y la tierra es totalmente diferente
 
-这就是咱们爆料革命当中这种独特的魅力
-Este es el encanto único de nuestro Movimiento de Denunciantes
+**板块1–中共病毒**
 
-长岛哥头两天还被打成伪类呢
-El hermano Changdao fue etiquetado como “falso” los primeros dos días
+1. 天津市在群体感染后对一千四百万人进行检测。
 
-很多人说他, 特务是吧
-Mucha gente dice que él es un “agente”, cierto
+几例感染惊动全程核酸检测、严控进出人口，检测试剂对新变异病毒检测准确率低，预测天津市内部实际感染情况相当严重，对冬奥会顺利举办存疑。
 
-对风来讲的风言风语他很有感觉
-Es muy sensible a los chismes para el viento
+2. 超过95%感染Omicron病例是接种过疫苗的人。
 
-去年是被封官
-El año pasado lo sellaron como funcionario
+新变异病毒大爆发超过2020年最初爆发。出门做好防护措施，Eglise医生最新预防配药已出（羟氯喹已无大作用，伊维菌素、黑籽然油、地塞米松有用）。
 
-封名
-le designaron un nombre
+3. 美国布鲁克斯议员表示：新冠病毒是中共国武汉实验室制造的“生物武器”。
 
-一时无两
-Por eso no hay un segundo para comparar
+中共欲“弯道超车”美国提前计划并深度研究“生物武器”。中共国于2005年左右利用军民融合项目与法国合作生物实验室机会，窃取技术研究生物病毒。美国不会完全放弃“病毒溯源”这张牌，近期彭培奥先生接受采访表示习近平欠世界一个解释（病毒）。
 
-是不是 你看他出尽了风头
-¿No es así?, mira que ha sido el centro de atención
+加强利用西班牙语系对外宣传病毒真相、中共的恶、区分中国人不等于中共，将推出“完美拼图”节目。
 
-风头之后就是风言风语
-Después de ser el centro de atención vienen los chismes
+**板块2–国际政治**
 
-面对着各种考验
-Se enfrenta a todo tipo de pruebas
+1. 王毅表示：将欢迎哈萨克斯坦总统参加冬奥会，并确保安全顺利。
 
-而且他现在的更加明白
-Además, ahora entiende más
+王毅走到哪里，哪里就爆发动乱（阿富汗、哈萨克斯坦）。俄罗斯插手哈萨克斯坦事务，防止中共国全面“侵蚀”哈萨克斯坦，保证俄方利益。
 
-今天他跟一星期以前都不一样
-Hoy él es diferente a diferencia de una semana atrás
+哈萨克斯坦属于全内陆国家，领土面积世界第九，稀土资源丰富，地理位置重要。
 
-风言风语, 最受伤害不是你
-Dentro de los rumores no eres el más lastimado
+2. 连续三十二年新年首访到非洲，中共国外长释放三个重要信号。
 
-有人在风雨中长大
-Hay gente que crece dentro del viento y la lluvia
+中共国利用资金和发放疫苗“拉拢”非洲目的–为其在联合国投票占领票数优势、借助非洲靠近欧洲的地理优势行其邪恶计划（一带一路扩张、修建军事基地、制造难民问题骚扰欧洲、降低欧美影响力）。
 
-有人在风雨中倒下
-Hay gente que se cae dentro del viento y la lluvia
+**板块3–财经**
 
-可是你别忘了, 你的家人你的老婆你的女儿
-Pero no olvides tu familia, tu esposa y tu hija
+1.人寿保险王滨落马，万达信息股价开盘大跌。
 
-不是在风雨中都站得住的
-No se quedaron firmes dentro del viento y la lluvia
+王岐山又损失一名“马仔”。根据文贵先生爆料–王已经处于被控制状态；中共国的保险业均是“骗术”。
 
-这就是人的本能
-Este es el instinto humano
+中共国推行“计划生育”政策–宣传政府养老，现阶段遭遇新生人口断崖–宣传养老靠自己。
 
-知道吗 就是你把这个搞明白以后你看
-¿Lo sabes?, si lo comprendes después podrás ver
+**板块4–社会文化**
 
-文耀, 你们这国际婚姻, 央金拉姆国际婚姻的是吧
-Wenyao y Yang Jin La Mu ustedes tienen un matrimonio internacional cierto
+1.经济学家任泽平表示：找到了解决低生育的办法。
 
-还有你们国际婚姻更有感觉到外国人文化之间
-Ustedes sienten más la cultura extranjera estando en un matrimonio internacional
+建议建立鼓励生育基金、央行多印2万亿。政府“刺激”
 
-这个文化之间就是什么, 就是平衡的关系
-¿Qué hay dentro de la cultura?, una relación equilibrada
+人口增长，专家建议毫无经济学常识，习惯性“剥夺”人的生育权力。中共国面临人口老龄化和人口少子化。
 
-他一定有
-Él seguro tiene
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-中国人没有的优点
-Las cualidades que el chino no tiene
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
 
-他也一定有 没有中国人没有的缺点
-También seguro tiene defecto que no tiene el chino
+[![](https://express.adobe.com/page/MwCj9Xozm2GbE/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/MwCj9Xozm2GbE/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
-这两种之间的平衡
-El equilibro dentro de estos dos tipos
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-就是你对人生的态度
-Es tu actitud ante la vida
 
-就是风和水的关系
-Es la relación entre el viento y el agua
-
-你风少了
-Si te hace falta el viento
-
-光火在那给你烤死了
-Con solo el fuego ahí te puede asar
-
-你风太大了, 没火了, 你整个人完了你疯掉了, 完全没有平衡
-Si tu viento es muy grande el fuego se apaga, tu terminas enloquecido, no hay ningún equilibrio
-
-他是相助 相生 相平衡 相生的关系
-Es una relación de coexistencia, de ayudarse mutuamente y equilibradamente
-
-你如何平衡
-Cómo lo equilibras
-
-这需要你们很高的德性道德的标准和认知的标准
-Esto requiere que tengan altos estándares morales y estándares cognitivos
-
-刚才小斯基的问题
-Hace rato la pregunta de Xiao Siji
-
-你是所以不解是因为你这个理解的标准太低
-La razón por la que estás tan desconcertado es porque tu estándar de comprensión es demasiado bajo
-
-当你站到就是宇宙无限大, 地球一粒沙来讲, 这都太小事了
-Cuando llegas al punto en que el universo es infinito y la tierra es un grano de arena, todo esto son casos pequeños
-
-就是这个婚姻关系同样需要你这样的
-Igualmente, en la relación de este matrimonio necesita que seas así
-
-高度和更高的道德标准和认知标准来看
-Ver con los estándares éticos y cognitivos cada vez más altos
-
-七哥过去流过无数次血, 受过无数次伤
-Yo en el pasado sangré y me lastimé incontables veces
-
-经历过无数次失败
-Pasé por incontables fracasos
-
-我才能自信敢讲这话 因为我经历过
-Para poder decir estas palabras con fe, porque yo lo viví
-
-我这些我都有亲身的经历
-Todo esto lo he vivido personalmente
-
-所以说希望你们这些国际婚姻的人要记住平衡, 包容
-Por eso espero que ustedes recuerden el equilibrio y la tolerancia, teniendo un matrimonio internacional
-
-这是你们最重要的
-Esto es lo más importante para ustedes
-
-永远幸福的 和平的 健康的
-Sean felices por siempre, en paz y con salud
-
-不二的唯一能赢的法门
-Es la única manera de ganar
-
-**原视频网址：**[https://gettr.com/post/pmlldg03cf](https://gettr.com/post/pmlldg03cf)
-
-日期：01/08/2022
-原视频标题：七哥谈面对风言风语，谈婚姻关系。 与全球战友们共勉
-El Sr. Miles conversa sobre los rumores y la relación de un matrimonio para compartir con todos los compañeros luchadores del mundo
-
-原视频日期：01/06/2022
-原视频网址：https://gettr.com/post/pmlldg03cf
-任务编号：KC406(3427)
-视频时间段：00:00-02:08
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/MwCj9Xozm2GbE/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/MwCj9Xozm2GbE/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
