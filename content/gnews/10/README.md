@@ -2,14 +2,28 @@
 ---
 
 
-## 2022年01月09日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1843774/)
+## GTV新闻访谈简报|2022年1月10日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1843803/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播01.09.png)
-【参考链接】[https://gettr.com/streaming/pn8v876876](https://gettr.com/streaming/pn8v876876)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-文案提供：回响 / Ermat / 大浪小水花
-制作：艾伦
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.10早GTV新闻访谈](https://gtv.org/video/id=61dc3484a6dfdd6031520d0e)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
