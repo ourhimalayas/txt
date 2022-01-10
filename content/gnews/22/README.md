@@ -2,36 +2,87 @@
 ---
 
 
-## 中共对外扩张的五步计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843851/)
+## 【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843920/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
+接：[【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（上）](https://gnews.org/zh-hans/1843885/)
 
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
+如果把它们转化成图形可能更为直观。
 
-参考链接：
-1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
-2）[1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](https://gnews.org/zh-hans/1836777/)
+下图为18~29岁人群接种疫苗的有效性变化情况
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-18-29-Covid-19-Vaccine-effectiveness.jpg)
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+随着时间推移，疫苗的有效性直线下降，甚至很快变成负数，即注射疫苗不是减少感染，而是增加感染。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+下图为30~39岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-30-39-Covid-19-Vaccine-effectiveness.jpg)
+下图为40~49岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-40-49-Covid-19-Vaccine-effectiveness.jpg)
+下图为50~59岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-50-59-Covid-19-Vaccine-effectiveness.jpg)
+下图为60~69岁人群接种疫苗的有效性变化情况
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-60-69-Covid-19-Vaccine-effectiveness.jpg)
+
+下图为70~79岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-70-79-Covid-19-Vaccine-effectiveness.jpg)
+下图为80+岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-80-Covid-19-Vaccine-effectiveness.jpg)
+对于40岁以上人群，从有统计记录起，注射疫苗就表现出明显的副作用，年龄越大，副作用表现得越明显。
+
+事实上，医药公司和政客们谈论COVID-19病毒疫苗对预防COVID-19病毒感染的有效性完全是偷换概念。
+
+疫苗失效或效率下降，只会导致0%的疫苗效力，如果疫苗只是无法发挥作用，那么它们的功效将接近未打疫苗的免疫系统的功效。无论如何也不会普遍出现完全接种疫苗的人反而比从未接种疫苗的人更容易感染。
+
+但数据统计结果却显示，所有年龄段的人都在打了COVID-19病毒疫苗后，感染COVID-19病毒的机率明显增加。
+
+因此，这些数字显示了COVID-19病毒疫苗对免疫系统破坏的惊人速度，而不仅仅是COVID-19病毒疫苗对预防中共病毒感染是否有效。
+
+所以目前的COVID-19病毒疫苗不能称之为疫苗，而应当是破坏人体自然免疫力的毒药！
+
+对接种COVID-19病毒疫苗的人来说，-100%的疫苗效力意味着疫苗完全破坏了您对Covid-19的免疫反应。意味着打了COVID-19病毒疫苗的人，与从未打过COVID-19病毒疫苗的人相比，对COVID-19病毒毫无防备。
+
+接种中共病毒疫苗后的感染不是简单的“突破性”感染，而是本身就中毒！
+
+根据大量的科学研究结论，疫苗感染的每个细胞不断产生致病性刺突蛋白（pathogenic spike proteins），免疫系统会识别这一点并发送杀伤性T细胞来杀死这些细胞。COVID-19病毒疫苗打得越多，制造的刺突蛋白就越多，人体失去的细胞就越多，有限的免疫系统反应的大部分被引导到一场针对接种疫苗的细胞的自我内战（self inflicted civil war），直至彻底摧毁人体内每一个接种过疫苗的细胞。
+
+免疫系统被破坏，但免疫系统时刻需要对抗癌症（cancer）、细菌性败血症（bacterial sepsis）、真菌性败血症（fungal sepsis）、其他病毒和自身免疫性疾病等，又有多少来对Covid-19的免疫反应？
+
+英国公共卫生部门（[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)）每周发布的COVID-19疫苗监测报告（[COVID-19 vaccine surveillance report](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)）的统计结果表明，Vaxxed病例比unvaxxed病例数要糟糕很多倍！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/all-cause-deaths-except-for-Covid-19.jpg)
+
+COVID-19病毒疫苗就是毒药，就是杀害人类的凶手！千万不要打COVID-19病毒疫苗！
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
+[Pfizer and BioNTech Conclude Phase 3 Study of COVID-19 Vaccine Candidate, Meeting All Primary Efficacy Endpoints](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-conclude-phase-3-study-covid-19-vaccine)
+
+[Official UK Government data suggests Fully Vaccinated Brits will develop Acquired Immunodeficiency Syndrome by the end of February 2022](https://dailyexpose.uk/2022/01/09/uk-gov-data-suggests-fully-vaccinated-developing-ade/)
+
+[Pfizer and BioNTech Confirm High Efficacy and No Serious Safety Concerns Through Up to Six Months Following Second Dose in Updated Topline Analysis of Landmark COVID-19 Vaccine Study](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-confirm-high-efficacy-and-no-serious)
+
+[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)
+
+[COVID-19 vaccine weekly surveillance reports (weeks 39 to 1, 2021 to 2022)](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
+
+[UK Government reports suggest the Fully Vaccinated are rapidly developing Acquired Immunodeficiency Syndrome, and the Immune System decline has now begun in Children](https://dailyexpose.uk/2021/10/30/gov-reports-show-fully-vaccinated-and-children-developing-ade/)
+
+[News Feature: Avoiding pitfalls in the pursuit of a COVID-19 vaccine](https://www.pnas.org/content/117/15/8218)
+
+[Study: COVID-19 Vaccine Can Destroy Your Immune System](https://principia-scientific.com/study-covid-19-vaccine-can-destroy-your-immune-system/)
+
+[Reports of shingles outbreaks not directly linked to COVID-19 vaccine](https://www.nbc12.com/2021/10/15/reports-shingles-outbreaks-not-directly-linked-covid-19-vaccine/)
+
+[Fauci: Amount of Virus in COVID-19 Breakthrough Delta Cases ‘Almost Identical’ to Unvaccinated](https://www.theepochtimes.com/fauci-amount-of-covid-19-in-breakthrough-delta-cases-almost-identical-to-unvaccinated_3929532.html)
+
+[Comparing age adjusted all-cause mortality rates in England between vaccinated and unvaccinated](https://www.normanfenton.com/post/comparing-age-adjusted-all-cause-mortality-rates-in-england-between-vaccinated-and-unvaccinated)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

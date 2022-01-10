@@ -2,49 +2,30 @@
 ---
 
 
-## 中共人寿董事长王滨被查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
+## 【中日财经爆】“减肥茶第一股”碧生源崩跌96%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843724/)
 
-作者：纽约香草山 侠肝义胆
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-13.png)
+[图片来源](http://www.meichubang.com/web/201707/214066.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+曾经风光无限，并于2010年成功登陆港交所的“减肥茶第一股”碧生源如今市值仅剩不足3亿，与巅峰时期的52亿港元相去甚远，市值蒸发超50亿，[股价](https://www.163.com/keywords/8/a/80a14ef7/1.html)已崩跌近96%。截至今日收盘，碧生源报0.172港元/股，收跌3.91%，总市值约2.80亿港元。
 
+1月5日，碧生源发布盈利预警公告，公告称，预计集团2021年净亏损将达到1.2亿至1.3亿元人民币，归属于股东的净亏损预计5000万至7000万元人民币，收入将较2020年的12.9亿元减少约15%。
 
+而这早已不是碧生源首次亏损。事实上，自从上市后第二年，碧生源就陷入了亏损漩涡。根据碧生源历年公布的财报，上市后的10年中，有5年都是亏损的，其中2018年的亏损额达到9529.9万元。
 
+碧生源为避免成为仙股，于2018年至21年内，多次出售资产以扭转主业经营亏损，平衡财务报表，并补充公司主业发展和营运资金需要。另外，碧生源还多次爆出产品安全和虚假广告问题，因“生命权、健康权、身体权纠纷”、“合同纠纷”等原因被起诉达125次。
 
+就这样一个靠假、骗、蒙发展起来的企业，通过中共内幕运作，在香港上市圈钱，靠概念炒作股价，随即业绩大变脸，狠狠地割了全世界的韭菜。这是绝大部份中共上市企业的套路，只为圈钱而生，业绩全靠改数字，炒作中共股市和中概股几乎等同于送钱。
 
-据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
+[“减肥茶大王”凉了？股价大跌96%](https://www.163.com/money/article/GTCGME9K00259DLP.html)
 
-这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
-
-有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
-
-新闻来源：
-
-[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
-
-编辑：Kathy文艺 校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
+编辑：东京樱花团/ 喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

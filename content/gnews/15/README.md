@@ -2,86 +2,31 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843920/)
+## 七哥谈Gettr Logo (2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844055/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+来源：郭先生2022-01-05直播10：35：35摘录
 
-接：[【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（上）](https://gnews.org/zh-hans/1843885/)
+几个唯心的事情，大家相不相信是你们的问题，我如实地告诉你们。就是我们这个有三个阶段，就是头一段时间我们就一直停留在300万，300万到40万之间，大概用了90%的时间，然后所有人都很沮丧，后来我告诉他们，我说：这个所有的社交媒体平台从300万的时候增长都很快，但300万到千万的时候和到3000万的时候，这个非常艰难，几乎都死在300万以内了。然后呢从3000万到一个亿的时候你要能过去你就是神了，你就是世界级的。还有一个我说：我不认为这是正常的，我认为这是不正常的，我们的每天的就是发出、就是Request，就是来申请来使用这信息的数据几乎都在20万，我说这是绝对不正常的，所以我怀疑这个数据有问题。第三个我告诉他们，我说：GETTR一定会爆发，就像川普总统几次表达是吧？不管你说啥我觉得我们不能靠川普总统进来能活着，你说啥也不行。包括任何人啊，好多要加进来，什么给钱吧，所谓的Superuser，你要给钱，我说不可以的，GETTR不靠这个，我们要靠我们自己，我们深信我们会做为最强最大的，我们有几个原则。但是当时投资者还有管理者几乎没有人百分之百地相信或者有这个自信吧，特别我们的工程队伍，我们的约翰和我们的工程师们，几乎没有多少人相信的。然后我说还有大师说了，大师说：“你要把你那个歪的火炬要改过来，你就会一日冲天。” 这是三个月以前说的事儿啊，我们这个CC嗝儿屁的设计队伍用了将近一个月才改出来，CC嗝儿屁交给了工程队伍，工程队伍用了将近一个月才上传。结果我们的上传的队伍当中我们伟大的皮特先生竟然能把Ipad版歪着没改，手机版的页面显示没改，还有其它Website，你点击进去还是歪的，进去以后是直的，就没改，这是什么时间呢？是2021年12月30号发生的事情。
 
-如果把它们转化成图形可能更为直观。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-下图为18~29岁人群接种疫苗的有效性变化情况
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-18-29-Covid-19-Vaccine-effectiveness.jpg)
+Discord 账号
 
-随着时间推移，疫苗的有效性直线下降，甚至很快变成负数，即注射疫苗不是减少感染，而是增加感染。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-下图为30~39岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-30-39-Covid-19-Vaccine-effectiveness.jpg)
-下图为40~49岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-40-49-Covid-19-Vaccine-effectiveness.jpg)
-下图为50~59岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-50-59-Covid-19-Vaccine-effectiveness.jpg)
-下图为60~69岁人群接种疫苗的有效性变化情况
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-60-69-Covid-19-Vaccine-effectiveness.jpg)
-
-下图为70~79岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-70-79-Covid-19-Vaccine-effectiveness.jpg)
-下图为80+岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-80-Covid-19-Vaccine-effectiveness.jpg)
-对于40岁以上人群，从有统计记录起，注射疫苗就表现出明显的副作用，年龄越大，副作用表现得越明显。
-
-事实上，医药公司和政客们谈论COVID-19病毒疫苗对预防COVID-19病毒感染的有效性完全是偷换概念。
-
-疫苗失效或效率下降，只会导致0%的疫苗效力，如果疫苗只是无法发挥作用，那么它们的功效将接近未打疫苗的免疫系统的功效。无论如何也不会普遍出现完全接种疫苗的人反而比从未接种疫苗的人更容易感染。
-
-但数据统计结果却显示，所有年龄段的人都在打了COVID-19病毒疫苗后，感染COVID-19病毒的机率明显增加。
-
-因此，这些数字显示了COVID-19病毒疫苗对免疫系统破坏的惊人速度，而不仅仅是COVID-19病毒疫苗对预防中共病毒感染是否有效。
-
-所以目前的COVID-19病毒疫苗不能称之为疫苗，而应当是破坏人体自然免疫力的毒药！
-
-对接种COVID-19病毒疫苗的人来说，-100%的疫苗效力意味着疫苗完全破坏了您对Covid-19的免疫反应。意味着打了COVID-19病毒疫苗的人，与从未打过COVID-19病毒疫苗的人相比，对COVID-19病毒毫无防备。
-
-接种中共病毒疫苗后的感染不是简单的“突破性”感染，而是本身就中毒！
-
-根据大量的科学研究结论，疫苗感染的每个细胞不断产生致病性刺突蛋白（pathogenic spike proteins），免疫系统会识别这一点并发送杀伤性T细胞来杀死这些细胞。COVID-19病毒疫苗打得越多，制造的刺突蛋白就越多，人体失去的细胞就越多，有限的免疫系统反应的大部分被引导到一场针对接种疫苗的细胞的自我内战（self inflicted civil war），直至彻底摧毁人体内每一个接种过疫苗的细胞。
-
-免疫系统被破坏，但免疫系统时刻需要对抗癌症（cancer）、细菌性败血症（bacterial sepsis）、真菌性败血症（fungal sepsis）、其他病毒和自身免疫性疾病等，又有多少来对Covid-19的免疫反应？
-
-英国公共卫生部门（[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)）每周发布的COVID-19疫苗监测报告（[COVID-19 vaccine surveillance report](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)）的统计结果表明，Vaxxed病例比unvaxxed病例数要糟糕很多倍！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/all-cause-deaths-except-for-Covid-19.jpg)
-
-COVID-19病毒疫苗就是毒药，就是杀害人类的凶手！千万不要打COVID-19病毒疫苗！
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
-[Pfizer and BioNTech Conclude Phase 3 Study of COVID-19 Vaccine Candidate, Meeting All Primary Efficacy Endpoints](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-conclude-phase-3-study-covid-19-vaccine)
-
-[Official UK Government data suggests Fully Vaccinated Brits will develop Acquired Immunodeficiency Syndrome by the end of February 2022](https://dailyexpose.uk/2022/01/09/uk-gov-data-suggests-fully-vaccinated-developing-ade/)
-
-[Pfizer and BioNTech Confirm High Efficacy and No Serious Safety Concerns Through Up to Six Months Following Second Dose in Updated Topline Analysis of Landmark COVID-19 Vaccine Study](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-confirm-high-efficacy-and-no-serious)
-
-[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)
-
-[COVID-19 vaccine weekly surveillance reports (weeks 39 to 1, 2021 to 2022)](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
-
-[UK Government reports suggest the Fully Vaccinated are rapidly developing Acquired Immunodeficiency Syndrome, and the Immune System decline has now begun in Children](https://dailyexpose.uk/2021/10/30/gov-reports-show-fully-vaccinated-and-children-developing-ade/)
-
-[News Feature: Avoiding pitfalls in the pursuit of a COVID-19 vaccine](https://www.pnas.org/content/117/15/8218)
-
-[Study: COVID-19 Vaccine Can Destroy Your Immune System](https://principia-scientific.com/study-covid-19-vaccine-can-destroy-your-immune-system/)
-
-[Reports of shingles outbreaks not directly linked to COVID-19 vaccine](https://www.nbc12.com/2021/10/15/reports-shingles-outbreaks-not-directly-linked-covid-19-vaccine/)
-
-[Fauci: Amount of Virus in COVID-19 Breakthrough Delta Cases ‘Almost Identical’ to Unvaccinated](https://www.theepochtimes.com/fauci-amount-of-covid-19-in-breakthrough-delta-cases-almost-identical-to-unvaccinated_3929532.html)
-
-[Comparing age adjusted all-cause mortality rates in England between vaccinated and unvaccinated](https://www.normanfenton.com/post/comparing-age-adjusted-all-cause-mortality-rates-in-england-between-vaccinated-and-unvaccinated)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

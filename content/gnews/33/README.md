@@ -2,69 +2,48 @@
 ---
 
 
-## 中国国内的股市、房地产动态
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1843659/)
+## 深圳又新增1例确诊病例
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843662/)
 
-[https://gtv.org/video/id=61dc12e087664c47acd2edf6](https://gtv.org/video/id=61dc12e087664c47acd2edf6)
+作者：首尔天池农场 追着曙光跑
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-已经在全世界印发的货币，和美国政府，还有欧元印发的总货币已经226万亿
-The whole world has been totally issued 226 trillion dollars, including the US government and the Euro
 
-事实上是大概260万亿，就是全球的一年GDP已经印刷出来了
-In fact, it is about 260 trillion dollars, which means that the global annual GDP has already been printed
 
-你再看股市的时候它就不值钱了，全球的GDP才多少钱，是不是，才100多万亿
-When you look at the stock market again, it is worthless, how mach is the global GDP, right? It’s only about 100 trillion dollars
 
-全球的总股市市值才多少钱呢，所以说股市在印发货币面前基本什么概念呢
-How much is the total market value of the global stock market, so what happened to the stock market with the printing of the currency?
 
-就是爱米粒兜里边有10块钱
-It’s like there is 10 dollars in the Emily’s pocket
+据深圳卫健委1月8日的通报，8日下午，深圳市在对1月7日报告的2例中共病毒（新冠肺炎）确诊病例的密切接触者进行核酸检测排查中，发现1例中共病毒确诊病例。目前，深圳市累计报告3例确诊病例。
 
-突然间她可以花就是说不是多花20块钱
-Suddenly she can spend not just more than 20 dollars
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9508197.jpg)图片来源：网络 
 
-因为由于超印发的货币和流通性，她可能多花十倍
-Because of the over-issued currency and liquidity, she may spend ten times more
+确诊患者是位女士，家住在龙岗区吉华街道西环路2号，是龙岗区坂田街道贝尔路神舟电脑大厦某公司员工。1月8日，核酸初筛呈阳性，后经深圳市疾控中心复核为阳性，现已转送至深圳市第三人民医院应急院区隔离治疗。
 
-你在看这个股市的时候，已经说实在话那就太小了
-When you look at this stock market, to be honest with you it’s too small
+同时，布吉街道布吉社区壹村东心岭八巷55号楼栋、吉华街道西环路2号长龙富辰公寓两区域，自2022年1月8日21时起，被调整为中风险地区。
 
-真的就像一个大河当中一个小方舟一样，所以全世界的股市都是虚涨的
-It’s really like a small ark in a big river, so stock markets all over the world are inflated
+新闻来源：[https://mp.weixin.qq.com/s/p34r5aeP\_bnjqe8Rmm2fzg](https://mp.weixin.qq.com/s/p34r5aeP_bnjqe8Rmm2fzg) [https://mp.weixin.qq.com/s/KTVBIrU-hOUrb4P4Re0Zmg](https://mp.weixin.qq.com/s/KTVBIrU-hOUrb4P4Re0Zmg)
 
-然后再看中国房地产的时候知道，中国房地产官方承认60万亿
-Then when you look at China’s real estate, the Chinese Officials admit that Chinese real estate is about 60 trillion dollars
+编辑/校对/发稿:小小安
 
-事实上将近100万元美元的房地产，炸掉一个海南的一个岛是什么呢
-In fact, it’s nearly 100 trillion US dollars of real estate, what is bombed an island in Hainan?
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
-几乎连零头都不是，它为什么要炸岛呢，它完全是政治
-It’s not even a fraction, why does it bomb the island? it’s all about politics
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Date: 01/09/2022
-原视频标题: 中国国内的股市、房地产动态
-China’s domestic stock market and real estate dynamics
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pn0qjk2b52**](https://gettr.com/post/pn0qjk2b52)
-任务编号：KC405(3440)
-视频时间段 : 0:00-1:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
 
  
 

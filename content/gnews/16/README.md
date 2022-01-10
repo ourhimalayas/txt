@@ -2,33 +2,37 @@
 ---
 
 
-## 接种三针疫苗的瑞士运动员被诊断出心肌炎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843894/)
+## CDC在9月份偷偷修改了疫苗的定义，疫苗不再被定义为能够提供保护的产品
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1844028/)
 
-编译： Jenny Ball
+2021-12-29， OAN新闻台发现美国视频药品监督管理局（CDC）在2021年9月修改了其在官网对【疫苗产品】的明确定义：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-704.png)图片来源**：**thegatewaypundit.com
+疫苗不起作用，但这并不意外，因为在技术上它甚至不是一种疫苗，我并不是在讽刺。
 
-这位 31 岁的瑞士跑步健将法比安·施伦普夫（Fabienne Schlumpf），周四在她的 Instagram 账户上宣布她患上了心肌炎。目前，她不得参加任何运动和参加训练。
+这是事实，他们想让我们排队注射的，他们一直称之为疫苗的注射液根本不是疫苗，它只是一种治疗方法，但不是一种很好的治疗方法。
 
-“坏消息！不幸的是现在心肌炎在困扰着我。这对我来说绝对不是一段轻松的日子，但我不会放弃。我希望很快回来，追逐我的梦想……和对手竞争。”
+事实上这种疫苗是如此的无效，CDC不得不修改疫苗的定义，以便让他们能够继续称其为疫苗。我是认真的，CDC早在9月就修改了定义，希望没人注意到，但我们注意到了。
 
-“据 《COVID 世界》报道，这位 31 岁的女士在日常生活中感到‘疲劳’，在上个月的一次轻松耐力跑中，她的心率飙升后，她找到了一位医生，诊断她患有心肌炎，”。
+疫苗的定义曾经是：刺激一个人的免疫系统产生对某种特定疾病的免疫力，保护这个人免受该疾病的伤害的一种产品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-706.png)图片来源**：**thegatewaypundit.com
+我不是在编故事，CDC删除了疫苗应该保护你免受疾病的部分，这是CDC网站上的内容，显然，当你接种疫苗时，你不应该再期望得到保护，并免受该疾病的伤害。
 
-翻译：大多数情况下，病毒感染会导致心肌炎，施伦普夫认为与 Corona 没有联系。 她已经接种了疫苗，并打了加强针，到目前为止还没有被感染。其实年初的时候，她就想去葡萄牙参加集训，但是没有结果。“没有人能告诉我需要休息多久，”她说。
+这不是疫苗的作用，你这个小阴谋论者。因此现在我们有一种疫苗，不能防止你生病，不能阻止你让其他人生病，不能阻止你死亡，且不能保护你免受疾病侵害。
 
-**评论：这就是悲哀之处，现在发生的灾难，已经不是Covid病毒，而是mRNA试验药物在人体中反应后造成的更大的灾害**！而邪恶势力制造Covid病毒的目的，就是用恐惧威吓，用政策胁迫人们去当试验老鼠！
+我们可以看到今天的行动，因为福奇刚刚公开说到，尽管全国有超过80%的人受到保护，但在完全接种疫苗的人中，住院率在明显上升。
 
-新闻来源 **：**[thegatewaypundit.com] [Triple Vaccinated Swiss Olympic Athlete Fabienne Schlumpf Diagnosed with Myocarditis – May Never be Able to Compete Again](https://www.thegatewaypundit.com/2022/01/triple-vaccinated-swiss-olympic-athlete-fabienne-schlumpf-diagnose-myocarditis-may-never-able-compete/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+你现在明白了吗？我们被大规模地欺骗了。想象一下，一个如此致命的大流行，你可以解雇数以百万计的医疗工作者，因为他们拒绝接种如此‘有效’的疫苗。
 
-* * *
+你甚至必须改变对疫苗的定义，这样它才有资格被通过，他们称这是一场未接种疫苗者的大流行，但事实并非如此，这是一场被洗脑者的大流行，我们都在为此付出代价。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+来源：文倩
+
+翻译：Kent
+
+字幕：米小乐
+
+编辑/发文：Kent
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
