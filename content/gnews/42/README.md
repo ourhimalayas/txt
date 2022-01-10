@@ -2,46 +2,24 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月3日-1月9日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
+## 对145个国家研究表明，新冠疫苗导致感染和死亡人数急剧增加
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842635/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-2.jpg)图片来源：路透社
+据《网关专家》(Gateway Pundit) 1月9日报道，一份最近公布的预印本报告在研究了全球145个新冠疫苗接种最多的国家的数据后发现，实验性疫苗的广泛推广并没有像预先承诺的那样结束这场大流行病，实际上反而造成了全世界的新冠感染和死亡人数急剧增加。
 
+这篇研究报告长达99页，标题为《疫苗接种对新冠相关死亡和病例的全球贝叶斯因果影响：145 个国家的大数据分析》（Worldwide Bayesian Causal Impact Analysis of Vaccine Administration on Deaths and Cases Associated with COVID-19）。研究发现在美国，新冠疫苗导致每百万人中的新冠病例增加了38%，而每百万人中的死亡人数甚至增加了31%，非常令人吃惊。在总计145个国家中，总共有近90%（89.84%）的国家在推广疫苗后，疫情不仅没有得到遏制，反而进一步恶化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+研究人员通过比较推广疫苗接种前后这两个时期公开的新冠数据，并进行了因果分析，得出疫苗接种以来病例和死亡的差异，以确定其广泛推广的效果。在排除了所有来自低接种率或数据不完整的国家的结果后，报告说：“强有力的统计学倾向性表明，疫苗导致变量y1（代表每百万人的死亡人数）或y2变量（代表每百万人的新冠病例数）的数值增加，超过了没有接种疫苗时的预期值。y1的增加/减少比率为(+115/-13)，在统计学上这意味着有89.84%的国家，每百万人中与新冠病毒相关的总死亡人数增加与疫苗有直接的因果影响。y2的增减比为（+105/-16），统计学上意味着有86.78%的国家，由于疫苗的因果影响，每百万人中的新冠总病例有所增加。”
 
+这项研究结果中也许最具说服力的部分是，在2020年，泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等国家的新冠病例和死亡人数很少甚至没有，但在推广疫苗后，这些国家与新冠有关的病例和死亡人数大幅增加，有些国家的增幅甚至高达1000%以上。
 
+研究人员警告说，这个结论应该让世界各地的政策制定者感到“十分担忧”，因为他们一直在宣传实验性疫苗是“夺回我们自由的关键”，但是这些仓促推出的实验性疫苗除了使事情变得更糟，还助长了新变种的传播，政策制定者应开始寻找除大规模疫苗接种之外的其他途径来摆脱大流行病。
 
-过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
-本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
-
-参考链接：
-[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[Massive 145-Country Study Shows Sharp INCREASE of Transmission and DEATH After Introduction of COVID Vaccines](https://www.thegatewaypundit.com/2022/01/massive-145-country-study-shows-sharp-increase-transmission-death-introduction-covid-vaccines/)
 
  
 

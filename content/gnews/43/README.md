@@ -2,32 +2,46 @@
 ---
 
 
-## 英国疫苗前负责人：应该停止大规模接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842614/)
+## 喜马拉雅币一周分析与总结（1月3日-1月9日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
 
-#### 撰稿：彩虹
+作者：纽约香草山金融部 – ILOVE战神
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-16.jpg)图片来源：mint
-1月9日，《国家脉动》记者凯·斯迈思（Kay Smythe）发布文章，报道英国疫苗工作组前负责人克莱夫·迪克斯（Clive Dix）博士表示，国家的大规模中共病毒（COVID-19）疫苗接种活动应该结束，同时也应该结束对“病例数”的无休止追踪。迪克斯博士告诉《天空新闻台》，最初的疫苗是为了阻止感染和传播，但却不成功。
 
-过去，中共病毒疫苗同样是为了防止严重疾病，但目前这波新的中共病毒变体意味着这些中共病毒疫苗无法阻止感染中共病毒。迪克斯博士解释说，（因为）新的中共病毒变体“温和的多”，因此“给那些不会得严重疾病的人注射越来越多的（中共病毒）疫苗是毫无意义的”。
 
-去年六月，当迪克斯博士被任命为英国政府疫苗工作组主席时，他呼吁在部署接种中共病毒疫苗时要采取更加有针对性的措施方法。该立场也是大多数反对强制接种中共病毒疫苗支持者所持的立场，而这些反对者被媒体（诬蔑）称为“反疫苗者”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这位老资历的药学家解释说，疫苗的部署应该专注于为社会中最脆弱的群体提供保护，例如肥胖症儿童。
 
-迪克斯与其他医生有类似的观点，认为中共病毒疫苗背后的科学依据并不充分，他说：“人们应该去工作，去做他们的事情。如果他们生病了，就回家去，呆在家里”。
 
-而迪克斯博士表达的最重要的信息是，我们应该“停止测量病例数，并固定在停止这些数字上……我们现在需要管理疾病，而不是病毒传播”。他强调要阻止中共病毒在脆弱群体中发展成为一种严重的疾病，而阻止中共病毒的发展将意味着医院必须在门诊环境中进行早期干预和护理。
+过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
+本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
 
-然而，英国的NHS和美国主要医疗机构仍然有意解雇未接种中共病毒疫苗的医护人员，导致已经不堪重负的医疗系统可能出现重大的人员短缺。据报道，2021年10月份，英国卫生部长萨吉德·贾维德（Sajid Javid）就正在计划解雇多达10万名不愿接受中共病毒疫苗接种的NHS工作人员。
+参考链接：
+[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
 
-文章作者认为，从迪克斯博士的评论中可以得出结论，他认为中共病毒是人类“新常态”的一部分。迪克斯说：“英国必须停止对民众的大规模（中共病毒）疫苗接种”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-**新闻来源**
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-[WATCH: Vax Taskforce Chief Says Mass Vaccination ‘Pointless’, Time to Stop Counting Case Numbers.](https://thenationalpulse.com/2022/01/09/watch-vax-taskforce-chief-says-mass-vaccination-pointless-time-to-stop-counting-case-numbers/)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

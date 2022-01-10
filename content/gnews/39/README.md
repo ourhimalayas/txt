@@ -2,38 +2,51 @@
 ---
 
 
-## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-#### 撰稿：彩虹
+#### 翻译：奋斗
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
-1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
+#### 校对：精靈藍
 
-报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
+#### 剪辑/字幕：向上James
 
-在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
 
-根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
 
-值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
+It’s not a battle about land, this is actually a battle for the minds.
 
-如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
 
-对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
 
-**新闻来源**
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
 
-[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
+What people are seeing is now the battle between good and evil between Satan and the devil.
 
-[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
+
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
