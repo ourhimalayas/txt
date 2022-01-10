@@ -2,16 +2,20 @@
 ---
 
 
-## 有声|盖特拿下苹果应用商店排名第一
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841326/)
+## 有声|郭先生阐释人生就如黄粱一梦
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841346/)
 
 配音：香草山佛教部 – 李傻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月6日，盖特官方账号发盖文称：盖特在苹果应用商店中排名第一，在谷歌Play商店排名第二。特此感谢所有的用户，让我们取得这样的成绩！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.22.25.046.jpg)
-文贵先生在当天下午也就此事发了两个盖特，和大家分享这一好消息，并说：奇迹就这样发生了，正道得天道！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月5日的直播中，郭文贵先生重提与五台山大师在悬崖绝壁上关于“灵魂无界”的对话。同时，郭先生也传达了大师最重要的感悟，即，人生犹如一场黄粱美梦。
 
-原文链接：[盖特拿下苹果应用商店排名第一](https://gnews.org/zh-hans/1831228/)
+大师证言，人站在悬崖边上，挣脱肉身的羁绊、渡过自己，让灵魂如风、可以直达彼岸，此乃修行的正道。而无论何种宗教，其最终对人生的答案都是一切皆空相，犹如“黄粱一梦”。
+
+郭先生表示，人在做梦时会面对着自己的灵魂，是最真实的自己。此时，人在挣扎中的唯一解脱就是从梦中醒来，经历新的一天。
+
+郭先生还解释道，一个人或是做了美梦、喜梦，或是在梦中遭受厄运和折磨，但倘若他在醒来时都能为活着感到庆幸和愉悦，这个人就得到了自己的修行。
+
+原文链接：[郭先生阐释人生就如黄粱一梦](https://gnews.org/zh-hans/1828773/)
 
 音频处理：喜山必胜Maverick
 
@@ -32,6 +36,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

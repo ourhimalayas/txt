@@ -2,83 +2,42 @@
 ---
 
 
-## 全球疫情更新（澳洲和南非疫情的比较）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841042/)
+## DC大中华时事：美多名花滑顶尖选手染疫退出冬奥选拔赛
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1841052/)
 
-**整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-637.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
+*编辑：西北风 / 作图：*JAY(杰伊)
 
-感染总数：304,925,621（日新增2,226,791，14天增幅+195%）
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-死亡总数：5,482,463（日新增6,196人，14天增幅–6%）
+#   墙国妄语每日驳
 
-每万人感染人数：471.2762 人（除中国外）
+### **0**1.09.2022
 
-**二，全球“疫苗”毒针统计数据**
+[俄媒文章：美国在全球扩军，中国帮世界发展\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20220109/2465463.shtml)
 
-“疫苗”毒针注射总数：93.7亿
+***简评：***可能也只有中共控制国内媒体，每年几千亿美元在全世界进行大外宣新闻媒体控制才能说出如此颠倒黑白的话。美国在全球驻军，那是二次世界大战后形成的战后国际秩序。要说二战后中国也是战胜国，那你中共怎么不到日本去驻军，不驻军驻个马也算数啊。你中共有这样的软实力和硬实力吗？现今中共在西方尤其美国资金技术几十年支持下才得以苟延残喘，没有西方国家尤其美国的帮助怕是中共早就去见马克思他老人家了吧。中共用掏子宫的经济仅仅换来了几十苟延残喘，现在又要把自己塑造成全世界的救世主，省省吧中共，中共现在自己救自己怕是都力不从心了吧。
 
-完全“接种”：39.2亿人
+### 01.09.2022
 
-完全“接种”百分比：50.3%
+[外媒：哈总统托卡耶夫宣布1月10日为全国哀悼日\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/ckkx/kuaixun20220109/2465458.shtml)
 
-**三，澳洲疫情和“疫苗”数据**
+***简评：***哈萨克斯坦共和国是未来中国中共倒台后重建民主法制社会最坏模式最应该借鉴的对象。同样披着民主的外衣，实质比独裁更独裁。如果中国中共倒台后中国走到那一步，那中华民族将万劫不复.哈国同样有着专制历史传统，又承袭苏俄制度和模式，夹杂在大国地缘政治格局博弈之中，如果我们连起吗中共现有既得利益者在国内国外势力和影响力不能连根拔起的话，哈国的现在有很大机率预示未来的中国。关注哈国局长势演进同样是在关心我们自己的未来。
 
-感染总数：972,457（今日新增 94,664人）
+### 01.09.2022
 
-死亡总数： 2,366人（今日新增 21人）
+[美媒：美多名花滑顶尖选手染疫退出冬奥选拔赛\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/world/20220109/2465475.shtml)
 
-每万人感染人数：295.6614人
+***简评：***我们新中国联邦人是多么幸运，没有打致命疫苗，在omicron 全球肆虐当下，我们还有解药，想想如果没有解药，这次病毒一人感染，全家无人幸免的情况下那无疑对每个家庭都是一场灾难。想想那些绝大部份没有解药的病毒患者对他们身体健康是毁灭无可挽回的。一个个优秀的人就这样过早的凋谢这多么惋惜。单单从死亡人数中共病毒就已经超越二次世界大战战场死亡人数总和，如果你还认为我们不是处在战争当中的话。是战争最终终会以战争的方式结束，中共有主动权开启战争，但结束战争的权力不会是中共说了算的。
 
-“疫苗”毒针注射总数：44,013,098 （日新增+164,137针）
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/929628145223622676/D.C_Cre8GreatChina.001.jpeg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/929628145630449684/D.C_Cre8GreatChina.002.jpeg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/929628146075054120/D.C_Cre8GreatChina.003.jpeg?width=1043&amp;height=586)
 
-完全“接种”：18,975,245人
 
-第二针“接种”百分比：77.5%
 
-16岁以上人口接种至少一剂疫苗的比例：94.7%
 
-16岁以上人口接种至少两剂疫苗的比例：92.0%
-
-**四，疫情要闻和评论**
-
-澳洲的中共病毒感染总数已逼近百万。今天首都领地也将快速检测纳入在线报告系统，而下周新州的类似系统也将上线，因此可以预计到时病例数字将会继续暴增。让我们回顾一下澳洲疫情的历史与疫苗接种的情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-638.png)澳大利亚每日新增病例数曲线，蓝色箭头标识处为之前的3波疫情（图片来源：Our World in Data）
-上图中蓝色箭头和文字标出了之前的3波疫情，澳洲目前每日新增病例数字的暴增已经让之前的3波疫情相形见绌，在曲线图中已经很难辨识了。在[Our World in Data](https://ourworldindata.org/coronavirus-data)网站中可以看到每日图表的动图展示，就可以清楚看到之前3波疫情的曲线。图中红色箭头和文字标出了澳大利亚达到70%的“完全疫苗接种“的时间：2021年11月16日。从图中可以看出，澳大利亚的疫苗接种达到70%之后，疫情完全失控，其中当然也因为政府相信疫苗能够有效减少入院人数，放开了封城措施的因素，最主要的原因仍然是全民疫苗接种对抑制病毒传播根本毫无作用。而当下澳洲人口的疫苗接种率已经达到77.5%，16岁以上人口的接种率已经高达92%。本波疫情从12月13日开始，已经超过四周，仍然毫无缓解的迹象。
-
-作为对照，我们可以看下图南非的四波疫情的情况。南非的疫苗接种率仅有27.1%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-639.png)南非每日新增病例数曲线（图片来源：Our World in Data）
-南非的疫情已经越过了高峰，仔细查看[Our World in Data](https://ourworldindata.org/coronavirus-data)可以看到南非的本次疫情开始于2021年11月24日，到12月12日到达顶峰，其间不足4周，相比之下，澳洲的本波“奥米克戎“疫情从开始迄今已经超过4周，疫情曲线仍然在直线上升中。而且南非的四次疫情相当均衡。比较两国的四次疫情，其中固然有封城等限制措施的因素，但疫苗普及率在其中发挥了决定性的作用。人口远大于澳洲的南非，之所以从未出现澳洲这样恐怖的超过十万 的每日新增病例数字，正是因为疫苗接种率低，大部分人口的自然免疫力没有被所谓的疫苗削弱和破坏。
-
-讽刺的是，如今的疫苗政策在澳洲和各国已经成为政治正确，如此显而易见的事实面前，强制疫苗政策仍然继续推进，甚至加强针的强制政策也在南澳和新州相继开始实施。周一，被澳洲政府取消签证的网球选手德约科维奇的上诉案件即将判决。在美国法院，挑战拜登政府强制疫苗的案件也在进行中。让我们拭目以待，这些利用疫情，无视科学规律和事实，剥夺民众自由选择权利的荒唐行为能持续多久。
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：*西北风
+*作图：JAY(杰伊)
+发布：文顾*
 
  
 
