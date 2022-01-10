@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥说共产党不等于中国人（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844222/)
+## 中共国正在加速推进数字人民币
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1844302/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部-风雨同舟
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中共国媒体鼓吹自1月4日以来数字人民币app下载掀起了热潮，同时数字人民币用户数、交易订单数及交易金额都有显著的增长。
 
-来源：郭先生2022-01-05直播10：59：58摘录
+![图片来源：视觉中国](https://n.sinaimg.cn/spider20201127/192/w1024h768/20201127/9458-kentcvx8282536.jpg)
 
-台湾某个所谓音乐界的大咖说，他说：“真的郭先生，我认识你那么多年，他说我真的要特别感激你，华人在全世界想说华人的话，说华人的故事，特别台湾的故事和华人这种没有任何地方，只有盖特。” 然后另外一个台湾的一个金融家告诉我，他说：“七哥我每次看完盖特我都流泪，他说你知道为什么？台湾这样一个受威胁之中的一个小岛，我们没有任何，他说我们在line，我在Facebook，在什么，我们是不敢讲共产党的坏话的，讲一句都给我们删掉。”然后美国的咱们几个朋友说：郭先生，我们真不知道关于中国的事，我们从来不懂中国人不能跟共产党划在一起。他说：“我作为一个美国这样的人我真的意识到，我是刚刚的一个月以前我在盖特上知道。“ 他是一个民主党的人啊，他几个月以前就跟我签了，是民主党的前三号人物，都签了合同，到现在我们不公布。我们不公布的原因不是为了别的，我们是发生各种不想参和各种政治。他跟我说：“我真的在一个月以前才真的觉得川普啊，还有蓬佩奥啊这些人说的是对的，皮特纳瓦罗和班农，中国人不等于共产党，共产党不等于中国人，” 他说 ：“我真的觉得越来越有道理。”你知道这是很恐怖的事情威廉王，我们中国人在十四亿人全世界上没有一个说话的地方。这对我们中国人，亚洲人多危险，现在已经不是中国人的事了，叫亚裔啊，亚裔啊。你看Isabel Yeung 是把亚裔，日本人，所有人都列为了亚裔是西方民主的威胁，完全对立呀！黄皮肤和白皮肤人和黑皮肤的人。这是意义多么重大啊，唯一的平台呀。所以说兄弟姐妹们要珍惜呀。这是天意给我们的。
+为了在全国尽快的推进数字人民币，中共在各个领域不遗余力的展开推广，在十个试点城市及冬奥会场景上，简化注册使用门槛，新用户注册仅通过输入手机号、设置用户名及支付密码，就可自行选择运营机构快速开通钱包。同时在工商银行、农业银行、中国银行、建设银行、[交通银行](http://stock.finance.sina.com.cn/usstock/quotes/BCMXY.html)、邮储银行、[招商银行](http://stock.finance.sina.com.cn/usstock/quotes/CIHKY.html)、网商银行（支付宝）、微众银行（微信支付）等9个运营机构的钱包上直接升级实名钱包。在数字人民币的入口上纷纷接入多家平台，在应用场景上大力推进“衣食住行“的拓展，美团、京东、小米、腾讯都已经完成了相应的支持和部署。[https://finance.sina.com.cn/tech/2022-01-10/doc-](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[ikyamrmz4183856.shtml?cre=sinapc&mod=g](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
 
-**关注我们**
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

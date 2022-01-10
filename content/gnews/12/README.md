@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈思路（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844205/)
+## 美对中共强迫西藏僧侣观看拆毁佛像事件表关切
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844288/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/T-1.jpg)tibet.net
+来自《自由亚洲电台》报道，上个月中共四川当局在甘孜藏族自治州拆除了一座高99英尺的大佛像，并强迫西藏僧侣和附近的藏人前去观看整个拆除过程。意图通过根除西藏的宗教和文化来彻底摧毁西藏的身份认同。1月8日美国国务院就此发表声明称，“我们对佛像被毁的报道深感关切，并继续敦促中共当局尊重藏人的人权，保护西藏的环境以及藏族传统独特的文化、语言和宗教特征。我们将与我们的合作伙伴和盟友合作，敦促北京停止对西藏人的持续虐待，并恢复与达赖喇嘛或其西藏代表的直接对话，在没有先决条件下解决分歧。”
 
-来源：郭先生2022-01-05直播10：56：29摘录
+消息人士称，在甘孜藏族自治州的德拉戈(中文，Luhuo)县，与这座99英尺高的佛像一起被摧毁的，是45个传统的供西藏朝圣者和其他朝拜者使用的祈祷轮。
 
-一个苹果它三万亿，它是生产产品的。但是你千万不要忘了，Elon Mask是用什么产的汽车？不是他的厂家，是他的思路；苹果是乔布斯的思路；七哥别的没有，七哥和你们所有人不同的，就有一样东西和你们不同，敢自信的和你们说，七哥脸皮厚还有脑子的思路。有一天你七嫂子能明白你七哥思路跟世界人不同的时候，你七嫂子就真的懂得爱你七哥了。是吧？她就会发现每天照我腚上脸上亲一千遍是吧，原来跟我睡了36年的男人这么与众不同。这是思路！思路啊。不是乔布斯厉害，不是苹果厉害，也不是Elon Mask厉害，是Elon Mask 他俩的思路改变了一切。盖特就是一种智慧的结果，拯救中国人不被再次种族大屠杀。你看看王岐山、习近平、共产党对中国人，在全世界制造的环境，你几乎无处可逃，无处可挡。现在台湾天天战战发抖，是不是？天天尿裤子好几次。现在美国、加拿大已成为西方民主的威胁，现在日本已是国家的威胁，现在欧洲你是一帮老鼠，你是西方民主法治的威胁，信仰的威胁，这有多可怕呀！Isabel Yeung 绝对在中国历史上会成为一个大外宣最最具有威胁代表的人物了HBO。如果你们在这起诉，青藤昨天你没参加这个是个错误，什么事情，你双修也得放下，你也不能搞断背，全力以赴新中国联邦人要起诉她，集体起诉！昨天我告诉律师，我说我们海外但凡华人，就包括路大脑袋、蛇妖闫、九指妖他都应当参与这个起诉。因为外国杀人的时候不会因为你恨郭文贵，你爱郭文贵杀你不杀你，这是我们成了人家民主法治信仰的威胁，这何等的恐惧呀！谢谢！
+该建筑此前获得中共地方当局全部批准，这座出于藏民信仰用于抵御地震的佛像是由当地藏民出资约400万元（约合629,445美元）于2015年10月5日建成的。中共当局抱怨这座佛像“建得太高了”而收回批准并强迫Thoesam Gatsel庙的僧侣和居住在附近城镇的藏人见证拆除工作。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，拆除行动从12月12日至21日持续了9天。一名住在印度的藏人透露现场“还部署了很多警察，以确保观众不会拍照或录像或制造骚乱”。为了保护仍住在德拉戈的家人，他要求匿名。
 
-**关注我们**
+援引自《大纪元》报道，近日藏人行政中央驻台湾代表格桑坚参对此行径批评说，中共不仅要毁掉实物，还要消灭人的精神，这种赤裸裸的行径比塔利班毁坏佛像还恶劣。这种强迫僧侣和藏民观看信仰佛像的毁灭过程，实施精神压迫的做法，是中共当局所谓新的治藏策略的突出体现。其邪恶程度甚至超出文化大革命。
 
-Discord 账号
+与此同时，中共更对西藏学校进行强制改革，取消藏文文化传播，进行民族同化。这是从根本上毁掉西藏的宗教、语言、文化、民族特性的民族灭绝。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+原文链接：
 
-Gettr 账号
+[https://americanmilitarynews.com/2022/01/china-forces-tibetan-monks-to-watch-destruction-of-sacred-statue/](https://americanmilitarynews.com/2022/01/china-forces-tibetan-monks-to-watch-destruction-of-sacred-statue/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://www.timednews.com/article/2022/01/07/13223.html](https://www.timednews.com/article/2022/01/07/13223.html)
+
+[https://www.epochtimes.com/gb/22/1/8/n13490309.htm](https://www.epochtimes.com/gb/22/1/8/n13490309.htm)
+
+
+
+**华盛顿DC 银河**
+
+**编辑发布 水星**
 
  
 

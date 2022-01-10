@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈社交媒体（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844110/)
+## 又一疫苗全接种民主党政要中共病毒检测呈阳性
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844195/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/A.jpg)jwettt.com
+民主党极左的“四人帮”之一，纽约州众议员亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio Cortez）周日（1月9日）晚在其办公室发表声明称，她的中共病毒检测呈阳性，声明还称，奥卡西奥·科尔特斯在秋天接种了加强剂。
 
-来源：郭先生2022-01-05直播10：44：17摘录
+《福克斯新闻》第一时间进行了报道，（有人）在迈阿密一家酒吧看到了这位女议员没有戴口罩后不久，她的中共（冠状）病毒检测呈阳性。【1】
 
-今天的盖特不是七哥说的那么简单，你们刚才讲的有两条你没讲到，最核心的第一条，是疫苗灾难，救命媒体。而且改变社交媒体靠广告费、出售个人数据的一场革命的第一个媒体平台。改变社交媒体收入和个人使用社交数据规则的平台，这是第一条。第二条，它是未来它的所有的厉害是金融在一起的，它是打破了所谓的法币和数字货币和现代的对整个社交媒体成为奴隶人们手段的，是一个开创先河的人与人之间关系的，就像音乐，音乐流行乐是什么？流行乐是个体和社会之间沟通的桥梁。啥叫红歌？红歌是集体垄断人之间的方法。过去的社交媒体是集体垄断个人，控制个人的平台。现在是个人与整个个人之间沟通的真实平台。它的本质是不同的，它是解放全人类货币、自由、人权和信息的平台。盖特的价值，现在看看，一个Facebook：一万亿美元；Youtube：2000亿美元；Zoom： 4000亿美元；TikTok： 四五千亿美元。我告诉你，盖特它最大的不仅是直播，不是发信息，也不光是盖特Pay，盖特最重要的是在这些平台都得死的情况下只有它能生着，它代表着生，它代表着太阳，那些人都是魔鬼。所以盖特证明了新中国联邦人，你还记得路大脑袋、蛇妖闫、九指妖说的吗？王燕平弄几包河北产的衣服放那叫Gfashion，他就这么无知的认知。盖特能吹出来吗？这数据能吹出来吗？你告诉我中国人什么时候在世界上有今天这话语权了？共产党一年几千亿美元的花，它能打造半个盖特吗？这战友们要想想我们的力量有多大？不说GTV， 就说英文媒体今天有多大？我再告诉你们大家，盖特的价值和盖特的整个的绝不是你今天讲的那么多。你们今天是就事论事，严格讲是用眼睛看到你手掌之内的东西。盖特和GTV未来和所有的价值绝对是一个金钱不能衡量的，昨天很多美国人说的一句话“Game Change”，是改变游戏规则的一个社交平台。而且是不仅社交媒体，甚至和金融、自由、民权，甚至是信仰紧密相关的。
+笔者暂时没有看到这位众议院议员像其他民主党要员，在中招后诸如“幸亏我接种了疫苗，否则情况会更糟”之类的表态。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+笔者作了一下浏览，简单梳理了一下美国感染上中共病毒的政要及行政人员，除了报道过的伊丽莎白·沃伦（Elizabeth Warren）外【2】，还有以下人员：
 
-**关注我们**
+参议员科里·布克（Sen. Cory Booker）、众议员杰森·克劳（Jason Crow）、众议员吉姆·库珀（Jim Cooper）、马里兰州州长拉里·霍根（Larry Hogan）、明尼苏达州州长蒂姆沃尔兹（Tim Walz）。左派媒体的CNBC 的吉姆·克莱默（Jim Cramer）、ESPN 的斯蒂芬·史密斯（Stephen A. Smith）。【3】
 
-Discord 账号
+记忆中笔者之前也报道过白宫新闻秘书简·普萨基（Jen Psaki）、国土安全部部长亚历康德罗·马约卡斯（Alejandro Mayorkas）、国防部长劳埃德·奥斯汀（Lloyd James Austin）等都先后感染了中共病毒的情况。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+上述人员皆为民主党成员，美国疫苗强制政策的强力推手，虽然笔者也进行了努力的查找，但至今没有发现有共和党保守人士要员感染中共病毒的报道。这是巧合吗？在笔者印象中，这些保守人士更容易接受爆料革命揭示的病毒及疫苗真相，更能相信文贵先生、班农先生等提出的建议，比如用硫酸羟氯喹、伊维菌素、青蒿素这类药物来预防和治疗。若果真如此，也又向公众证明了爆料革命和文贵先生冒着生命危险向世界发出的警告真地在救众生。
 
-Gettr 账号
+有关链接：
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+【1】[https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless](https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless)
+
+【2】[https://gnews.org/zh-hans/1772445/](https://gnews.org/zh-hans/1772445/)
+
+【3】[https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19](https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 
