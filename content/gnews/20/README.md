@@ -2,10 +2,10 @@
 ---
 
 
-## 英政府官方数据显示接种疫苗者死亡率比未接种者高286%
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842155/)
+## 英国NHS医生对卫生大臣表示：他不会接种疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842229/)
 
-01/06/2022 英国政府官方数据显示接种中共病毒疫苗者比未接种疫苗者的死亡率高286%
+01/07/2022 英国NHS医生对卫生大臣表示：他不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
