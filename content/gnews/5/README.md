@@ -2,25 +2,51 @@
 ---
 
 
-## 以色列新冠人数攀升
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1843670/)
+## 中共人寿董事长王滨被查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
 
-作者: Luckycky
+作者：纽约香草山 侠肝义胆
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
 
 
-2022年1月9日根据世卫组织官方数据，以色列登记了17,491例中共病毒感染病例。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Corona-Israel.png)
-在以色列，中共冠状病毒感染人数正在攀升至每日新高：卫生部周一报告了前一天的22,398个新病例。秋天，在中共病毒第四波中，高峰期每天超过11,000例。然而，实际的感染数量可能要高得多。
 
-一部分人认为这是因为以色列上周放宽了检测要求：现在只有高危人群和60岁以上的人在与中共冠状病毒感染者接触后必须进行核酸检测。而对于其他所有人来说，快速抗原检测就足够了。
 
-众所周知，以色列是走在新冠疫苗和加强针接种最前列的国家之一。据官方数据，截止到1月9日，有6,630,746人，71.9%的民众接种了一针，5,971,181人，64.8%的民众接种了超过一针，4,334,583人， 47.0%的民众已接种了加强针。现在已开始对60岁以上免疫力弱的群体进行第4剂加强针接种。这样高的新冠接种率也不能阻止一次又一次的高病毒波出现。
+据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
 
-令人不解的是，为什么还有那么多所谓的医学专家学者和政客依然意识不到， 或不敢面对除了中共病毒本身，新冠疫苗接种也同样在加速病毒的传播?
+![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
 
-配图: Connor54/ 发布: Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
+
+有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
+
+新闻来源：
+
+[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
+
+编辑：Kathy文艺 校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

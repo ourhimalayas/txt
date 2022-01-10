@@ -2,44 +2,29 @@
 ---
 
 
-## 简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843468/)
+## 德国强制疫苗授权或需数月时间才能通过
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1843544/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011005.jpg)网络图片
+德国执政党正在为强制接种冠状病毒疫苗的计划踩下刹车，称立法者可能需要几个月的时间才能在议会中适当讨论这一有争议的措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-17.jpg)
+柏林日报《每日镜报》周日援引社会民主党议会党团副领导人德克·威斯的话说，联邦议院的目标应该是在 2022 年第一季度完成对疫苗授权的审议。
+
+绿党核心小组领导人布丽塔哈塞尔曼告诉芬克媒体集团，第一场辩论可能会在 1 月下旬举行。
+
+由于 2 月份的议会会议很少，这可能意味着下议院不会在 3 月底之前通过法案。然后，德国上议院联邦参议院将在 4 月份处理此事，这意味着它最早可能生效的时间是一个月后的5月份。
+
+另有报告认为，如果确实要实施强制疫苗，该政令可能会推迟到 6 月，以确保技术条件到位，例如全国疫苗登记。
+
+2022 年 1 月 8 日，在德国法兰克福，一名参与者举着横幅抗议 COVID-19 措施和强制接种疫苗，上面写着“反对强制接种疫苗”。反对疫苗授权的人中有一些自由民主党成员，他们是执政联盟的一部分，而德国前卫生部长去年夏天承诺不引入普遍的疫苗授权。政治领导人已同意让立法者根据他们自己的良心，而不是依据党派路线思考这个问题。
+
+卫生部长卡尔·劳特巴赫（Karl Lauterbach）表示，他不想猜测疫苗授权何时生效，但他告诉劳特巴赫告诉公共广播公司 ：“即便通过强制接种疫苗，我们也无法真正积极地阻止我们现在正在经历的 Omicron病毒大爆发。”
+
+新闻参考链接：[German vaccine mandate may take months to pass, parties say](https://apnews.com/article/coronavirus-pandemic-health-europe-germany-berlin-dbbc751badac470ebcff937ede42fdd1)
 
 
- 
-图片来源：Global Possibilities
-
-
-整理报道：小鱼儿
-编辑：小鱼儿/小红帽
-
-据自然新闻(Natural News)1月9日报道，简·鲁比（Jane Ruby）博士告诉公众，大药厂如辉瑞公司（ Pfizer）、摩德纳公司（Moderna）和强生公司（Johnson & Johnson）正在部署有毒批次的新冠病毒(COVID-19)疫苗。
-
-鲁比在1月3日的斯图·彼得斯秀节目(The Stew Peters Show)中说，“有证据表明，这些公司故意部署有毒批次的（新冠病毒疫苗）。”她说，分析家们通过批号确定了有毒的批次，现在是向全世界人民传递信息的紧急时刻。
-
-“他们所做的是，确定测试一半人口的致死量。这是进入人体研究之前，评估急性毒性的手段之一，”鲁比说。“这是在人们不知情和没有同意的情况下进行的。这违反了所有道德和监管规则。这些公司只是在肆无忌惮地进行，因为没有任何东西可以阻止他们。”
-
-鲁比分析，对于摩德纳来说，它是批次代码011 l 20。数字011是时间上的批次顺序，代表已经被开发了一段时间，并由公司部署。“ l ”是浓度，决定了它的毒性和不良反应的数量。数字20是定性的，这种成分在其批次中被认为是高毒性的。
-
-设法进入辉瑞和摩德纳系统的专业黑客能够验证这些批次，并有足够的证据列出迄今为止部署的所有摩德纳批次。
-
-黑客发现，这些公司在部署疫苗的地点和发放的剂量方面都非常具体。摩德纳来公司一直在美国分发致命的剂量，并在欧盟出口 “残疾”剂量。因此，与欧盟相比，美国的死亡率高出10倍。但与美国相比，欧盟的不良反应和残疾病例要高出10倍。
-
-参考新闻：[Dr. Jane Ruby: Big Pharma companies intentionally deploying toxic batches of COVID-19 vaccine – Brighteon.TV](https://www.naturalnews.com/2022-01-09-big-pharma-deploys-toxic-batches-covid-vaccine.html)
-
-发布：小红帽
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,124 +15,124 @@
 
 ---
 
-### [中共人寿董事长王滨被查](/content/gnews/1/README.md)
- ` GTV News Talk`
+### [2022年01月09日文贵大直播简报](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
 
-### [香港官员聚餐确诊阳性被隔离，民众哗然](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [西非国家经济共同体对马里实施全面经济制裁](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
 
-### [英国医生公开反对卫生部长的疫苗强制令](/content/gnews/3/README.md)
- ` GTV新闻访谈`
+### [01/10/22 香港快讯 周三首次立法会大会 多名议员隔离或检测](/content/gnews/3/README.md)
+ ` 英喜-粵語組`
 
-### [奥地利总理接种三剂疫苗仍旧感染中共病毒](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [以色列新冠人数攀升](/content/gnews/5/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [深圳又新增1例确诊病例](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [陈全国会成为习近平的大杀器吗？](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
-
-### [1/09/2022 文贵直播： 为什么美欧就哈萨克斯坦问题跟中俄对着干？](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [串珠525:预防奥米克戎病毒洗鼻子非常管用](/content/gnews/9/README.md)
- ` 郭爆料串珠`
-
-### [对新中国联邦教育制度之想法](/content/gnews/10/README.md)
- ` 纽约香草山MOS03`
-
-### [串珠524:强制疫苗一定会停止，快两月慢不过5个月](/content/gnews/11/README.md)
- ` 郭爆料串珠`
-
-### [1/09/2022 文贵直播： 中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共病毒让美国教育系统陷入混乱](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记——七哥谈“命运，冥冥之中早已注定”](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记：什么是修行](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [G系列每周重要信息整理速递](/content/gnews/16/README.md)
- ` 全球G系列咨服群`
-
-### [共产党将香港和大陆的房地产，香港的股票市场的数据已经造假到35%，共产党真的完了](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [亚利桑那医疗机构允许阳性确诊医护人员继续工作](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [1/09/2022 文贵直播： 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [浅谈S蛋白的诱癌毒性](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [美国邮局应FDA的要求扣留包含有伊维菌素的货物](/content/gnews/21/README.md)
+### [墙内永辉超市疫情期间涉嫌售卖过期食品](/content/gnews/4/README.md)
  ` 首尔天池农场`
 
-### [德国强制疫苗授权或需数月时间才能通过](/content/gnews/22/README.md)
- ` 澳喜特战旅Gnews`
+### [中共人寿董事长王滨被查](/content/gnews/5/README.md)
+ ` GTV News Talk`
 
-### [1/09/2022 文贵直播： 中共让中国人丧失信仰，而中共的一切却都是靠它所深信的天地和万佛万神来行事的，每年有700处女在昆仑山被中共献祭](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
+### [香港官员聚餐确诊阳性被隔离，民众哗然](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点0110](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [1/09/2022 文贵直播： 疫苗的mRNA就是毒！请遵照Eglise医生的药方](/content/gnews/25/README.md)
- ` 秘密翻译组-北美组`
-
-### [简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒和疫苗的疯狂一定会被停止](/content/gnews/27/README.md)
+### [英国医生公开反对卫生部长的疫苗强制令](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [【中日财经爆】日本与印尼签署能源转型合作备忘录](/content/gnews/28/README.md)
+### [奥地利总理接种三剂疫苗仍旧感染中共病毒](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [以色列新冠人数攀升](/content/gnews/9/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [深圳又新增1例确诊病例](/content/gnews/10/README.md)
+ ` GTV News Talk`
+
+### [陈全国会成为习近平的大杀器吗？](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [1/09/2022 文贵直播： 为什么美欧就哈萨克斯坦问题跟中俄对着干？](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [串珠525:预防奥米克戎病毒洗鼻子非常管用](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [对新中国联邦教育制度之想法](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [串珠524:强制疫苗一定会停止，快两月慢不过5个月](/content/gnews/15/README.md)
+ ` 郭爆料串珠`
+
+### [1/09/2022 文贵直播： 中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共病毒让美国教育系统陷入混乱](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共的 “文化自信”实为“党文化自信”](/content/gnews/29/README.md)
+### [大直播后记——七哥谈“命运，冥冥之中早已注定”](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大直播后记：什么是修行](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [G系列每周重要信息整理速递](/content/gnews/20/README.md)
+ ` 全球G系列咨服群`
+
+### [共产党将香港和大陆的房地产，香港的股票市场的数据已经造假到35%，共产党真的完了](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [亚利桑那医疗机构允许阳性确诊医护人员继续工作](/content/gnews/22/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [1/09/2022 文贵直播： 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [浅谈S蛋白的诱癌毒性](/content/gnews/24/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国邮局应FDA的要求扣留包含有伊维菌素的货物](/content/gnews/25/README.md)
+ ` 首尔天池农场`
+
+### [德国强制疫苗授权或需数月时间才能通过](/content/gnews/26/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [1/09/2022 文贵直播： 中共让中国人丧失信仰，而中共的一切却都是靠它所深信的天地和万佛万神来行事的，每年有700处女在昆仑山被中共献祭](/content/gnews/27/README.md)
+ ` 秘密翻译组-北美组`
+
+### [DC每日热点0110](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共病毒和疫苗的疯狂一定会被停止](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [【中日财经爆】日本与印尼签署能源转型合作备忘录](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共的 “文化自信”实为“党文化自信”](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [1/10 银河快讯：日本不会在夏季选举前修改移民法；日本物价长期持续上涨](/content/gnews/30/README.md)
+### [1/10 银河快讯：日本不会在夏季选举前修改移民法；日本物价长期持续上涨](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共独裁体制下的疫情防控](/content/gnews/31/README.md)
+### [中共独裁体制下的疫情防控](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——琴台](/content/gnews/32/README.md)
+### [樱花灭共诗——琴台](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“砖家”谎称奥密克戎传播力不及初代病毒](/content/gnews/33/README.md)
- ` 纽约香草山MOS02`
-
-### [受COVID疫苗伤害的人被蒙在鼓里：农业试点](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [1/10/2022国际财经快讯：投资者避美债囤现金；2021年全球食品价格大幅上涨](/content/gnews/35/README.md)
+### [1/10/2022国际财经快讯：投资者避美债囤现金；2021年全球食品价格大幅上涨](/content/gnews/36/README.md)
  ` 秘密翻译组金融团队`
 
-### [国际社会抵制北京冬奥 绥靖主义路线土崩瓦解](/content/gnews/36/README.md)
+### [国际社会抵制北京冬奥 绥靖主义路线土崩瓦解](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`
 
-### [01/10每日播报|社媒消息：班农先生 罗伯特马龙博士](/content/gnews/37/README.md)
+### [01/10每日播报|社媒消息：班农先生 罗伯特马龙博士](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [疯狂与荒唐的中共病毒——疫苗灾难下的人类能否逃过此劫！](/content/gnews/38/README.md)
+### [疯狂与荒唐的中共病毒——疫苗灾难下的人类能否逃过此劫！](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`
 
-### [CDC主任悄悄地承认了大法官关于新冠儿童住院的不实信息](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [憎恨德约科维奇已成为澳大利亚的一项全民运动](/content/gnews/40/README.md)
+### [CDC主任悄悄地承认了大法官关于新冠儿童住院的不实信息](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [我们的神山住满了妖孽](/content/gnews/41/README.md)
