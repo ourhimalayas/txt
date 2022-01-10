@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 6:54 AM (UTC)`
+
+1/09/2022 Miles Guo: The CCP has deprived the Chinese people of their faith, while everything the CCP has done is based on the rules of heaven, earth, all Buddhas, and all gods that it deeply believes. 700 virgins are sacrificed by the CCP in the Kunlun Mountains every year, and there exists a higher power watching over us humans. Only by knowing these can we destroy the CCP.<br/><br/>1/09/2022 文贵直播：中共让中国人丧失信仰，而中共的一切却都是靠它所深信的天地和万佛万神来行事的，每年有700处女在昆仑山被中共献祭；人类是有主人的，只有知道了这些才能灭共<br/>
+![img](https://media.gettr.com/group22/getter/2022/01/10/06/8a0e91f3-82ab-4e17-6d98-8cfc4940656e/out.jpg)
+
+---
+
 `@miles 1/10/2022 4:16 AM (UTC)`
 
 1/09/2022 Miles Guo: The mRNA in the COVID vaccines is toxic! Please refer to Dr. Eglise’s protocols for prevention and treatment of the CCP virus; many professors in Communist China are ignorant when it comes to the COVID vaccines and the CCP virus; the CCP’s virus testing is not accurate at all, and gathering the people to do testing together simply harms the Lao Baixing. Why is the CCP not dare to tell the public how many people have died in Xi’an?<br/><br/>1/09/2022 文贵直播：疫苗的mRNA就是毒！请遵照Eglise医生的药方；国内很多教授对疫苗和病毒充满了无知；中共的病毒检测不准，集中检测就是坑害百姓，为何不敢公布西安的死亡人数？<br/>
@@ -161,15 +168,6 @@ EP3-Part 2: Undercover or Not? Let's tear down the monstrous lies of this despic
 
 EP3-Part 3: How does Isobel see Uyghurs? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第三节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #uyghurgenocide
 ![img](https://media.gettr.com/group13/origin/2022/01/08/18/d14843f2-2fd9-d56c-4f68-d3539f44ad5d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/5/2022 5:42 PM (UTC)`
-
-EP2: Who is Miles Guo? What has the CCP done to Miles? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #whoismilesguo
-![img](https://media.gettr.com/group41/origin/2022/01/05/17/313b91d7-15e4-02fd-6839-76b319d0d39b/out.jpg)
 
 ---
 

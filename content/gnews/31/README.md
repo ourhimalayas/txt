@@ -2,49 +2,67 @@
 ---
 
 
-## 视频| 清零不要命 可怜西安人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841770/)
+## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
 
-制作：香草山视频部
-
-
-
-在一千多万人的武汉市封城即将两周年纪念日之际，在习近平宣布中国取得抗疫重大成果一年多以后，同样的一幕在近1300万人口的中国古都西安上演，西安已被严密封锁了十天。在全世界，把一座大城封锁得“鬼哭狼嚎”，为找几颗土豆磕头求告的，为出门买一个馒头充饥挨打的，一人感染了，整栋楼的人都被拉到郊区隔离的，恐怕只有中国领导人习近平治下才有这样的“盛世景象”了。
-许多观察人士不理解为何至今如此严苛？根据官方数字，至元月1日，西安确诊增至1573例，固然不可对此掉以轻心，但真用得着把一座千万人大城封死吗？一如时评人长平的描述：”整个城市瞬间变成大小牢笼“。而且，根据中国官方的报告，确诊者其中大多为轻症，哪又为什么要采取如此严苛的管治？
-西安市政府从23日午夜12时起启动封城已进入第11天，物资配送严重混乱，不少当地人爆料”当地菜价飆涨买不到菜，几乎断粮”。一些从外地到西安工作的人、租屋者，没有管道采购食物，在网络上怨声载道，”租客都快饿死了政府也不管”、”不给送食物也不提供购买渠道”、”饥荒已经7天买不到一根菜了”。
-一个视频显示，一名身穿白衣的少年要经过某个出入口，被几名防疫人员拦截到一边痛打。自由亚洲援引当地媒体报道，原来这名少年饿着肚子，出去卖馒头，但却遭到防疫人员拳打脚踢。引发社会不满。
-网上还纷传，西安开始强制扑杀遭隔离居民家的宠物。一位网友说：“我朋友所在的那个宠物群已经哭倒一片，但是无能无力。”“长丰园，明德八英里那边，今天已经上门开始给宠物做安乐死。”
-网友吴文行发出一段强制隔离视频：”西安两个城中村的人全部集中隔离，卖不出去的房子成为安置点! 所谓集中安置，就是变相拘留，没自由了，有病都不一定管“。
-萌柴家的大豆豆证实了同样的情景：我闺蜜在位于市中心的雁塔区，亲身体验政府不作为。1，政策朝令夕改。2，不顾民生，发菜分配不均。3，为达到三天内社会面清零的目标，执行一家感染全楼拉到郊区和县城隔离的没人性措施。4，检测只顾快速完成完全不管社交距离。
-维权网报道指出：“这是中国式抗疫。大陆西安抗疫混乱不堪，已演化成人为的人道主义危机。西安人民最害怕的是这样的生死隔离，而不是新冠病毒。”
-2019年新冠疫情从中国武汉爆发，世界至今是一个大疫区。但为了抗疫让百姓水深火热的国家屈指可数。法国疫情相比西安严重多少倍，连续四日，确诊病例都超过二十万；欧美各国，奥米克戎新冠变种高速蔓延，每天感染的数字相当惊人，但都采取尽可能动员民众去打疫苗，去打加强针，遵守卫生规则，与疫苗长期共存的对策，市面上，行人不惊，跨年夜，香榭丽舍大道并没有封锁，让那些本国的、各国来的年轻人戴着口罩、抱着香槟守夜……
-有人假设，难道中国的确诊数字不确，在武汉疫情最严重时期，外界对武汉的确诊和死亡数字曾提出过严重质疑；难道中国的国产疫苗效果不佳，连政府都失去了自信？打疫苗的人数极其庞大，但恐惧情绪丝毫未减？
-中国的过度防疫政策已让全世界吃惊，这一切都与习近平的清零政策相关。清零手段，去年在云南瑞丽就走到了极限，曾担任过瑞丽副市长的戴荣里先生最后挺身而出为民请命，直言关死了城，管死了人。”请救救这个英雄的城市吧!“ 如今西安需要封锁到如此地步吗？
-网上广泛流传着一段话：“有网友给西安的朋友打电话，问西安的疫情控制住了没有。西安的朋友答，疫情控没控制住我不知道，但我知道人是真被控制住了 !”
-华尔街日报日前报道，北京中央政府的一些官员参考国外经验，建议抛弃“动态清零”，与病毒共存。该报引述知情人士称，“习近平当时很生气”，甚至质问官员们的思想是否正变得松懈麻痹？要求继续贯彻清零政策。
-清零，不惜一切清零，官员们明知无法清零，还要高呼清零，因为习近平要求清零，清零成了他们保住乌纱帽的必要手段。西安人为此倍遭煎熬，但是，前中央党校教授蔡霞怒斥中国国家主席习近平在发表新年贺词时，只字未提西安。
-西安的做法为何如此残酷？从陕西省委书记刘国中的表态可窥一斑：元月一日晚，这位书记称，我们正经历一场大战大考，要做到“我在阵地在”，“元月4日必须实现社会全面清零的目标”，“B类人员管控转运工作要做到快速、坚决、全到位，必须实现当日清零!”
-科普作家方舟子就此评论：“陕西省委要求4日西安必须实现社会清零的目标，还剩三天，病毒不会那么听话的，把西安人都转移到外地隔离，有病例不算西安的，就实现清零目标了。也可能和上海一样，拿到了尚方宝剑，有病例隐瞒不报，那也可以瞬间清零。”
-陕西省委的“军令状”让一些网友害怕，一位网友说，”他们清零清到让人生不如死，就是为了一顶乌纱帽。“
-作家慕容雪村引用一段对话可谓一针见血：”这么下去，那些重病在家的，那些孤独无依的，那些有身体障碍的……是会活活饿死的。“”是啊，也应该知道，他们并非死于病毒，也不是死于匮乏，而是死于统治。“
+前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
 
 
 
-发稿：雪梨
+> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+>  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
+> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
+> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
+
+
+
+> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
+> 
+> Georgia restored election integrity.
+> 
+> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
+> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
+
+
+
+> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
+> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
+
+
+
+> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
+> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
+
+
 
  
 
