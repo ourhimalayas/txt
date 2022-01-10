@@ -2,54 +2,38 @@
 ---
 
 
-## 美国海军陆战队称拜登的疫苗强制令是“政治清洗”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842766/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-#### 【雅典娜观察】和您一起探究世界
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/marines-participate-in-an-amphibious-assault-exercise-as-news-photo-1617303504_-1.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
- 
-图片来源：SOPA IMAGESGETTY IMAGES
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
-编译：小红帽
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-根据《自然新闻》1月9日报道，**在拜登政府的领导下，美国国家安全继续恶化，而且速度很快，这在很大程度上是由于一项不合理和不必要的新冠病毒（COVID-19）疫苗强制令。**
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
 
-针对国防部长劳埃德·奥斯汀于8月发布的拜登新冠疫苗强制令，美国海军陆战队受到的影响最大。许多人认为新冠疫苗强制令是一种“政治清洗”，将一些最爱国的成员的力量耗尽。
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
 
-据《福克斯新闻数字频道》上周报道，有169名海军陆战队员因拒绝接种这种实验性疫苗而被开除军籍。但是，在五角大楼对所有现役军人的新冠疫苗强制令于11月28日对美国海军陆战队生效后，还有成千上万的人面临着被开除的情况。
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
 
-虽然海军陆战队员（和其他军人）被告知他们可以申请新冠疫苗的宗教豁免，但现在看来，拜登的政权显然永远不会批准他们，因为新冠疫苗强制令远比军事准备和国家安全更重要。没有一个豁免会被批准，而且根据《福克斯新闻数字频道》看到的拒绝信，几乎所有的豁免要求都是相同的。
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
 
-几位接受该媒体采访的海军陆战队员确信这一切都带有政治目的，因为该部队正被该疫苗强制令“压垮”。
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
 
-“在这一点上，我们国家的领导层有一些根本性的错误，”一位服役超过17年的少校表示。“我们正面临着一项违宪的法令，我认为这是非常有针对性的政治清洗，把一些最优秀的和最聪明的士兵、水手、空军、海军陆战队和太空部队的守护者找出来。”
+**新闻来源**
 
-与此同时，一位现役超过19年的中校表示，军方正在努力遣散成员，特别是海军陆战队员，“以最快的速度和最残酷的方式，在被开除时尽可能地伤害每个海军陆战队员”。
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
 
-“我从上面的上校那里得到一个信息：‘要非常小心，这是政治，你会像蚂蚁一样被碾碎’。而他告诉我这些是因为他关心我，”这位中校称。“我是否想继续在一个因提出合理观点捍卫信仰而被压垮的机构里服务？”
-
-一位军士长说，似乎“我说得越大声，对我的螺丝就拧得越紧。当你被要求以某种方式行事，遵守某些规则，遵循某些程序，然后在另一端看到这不是一条双向的街道，这是对我道德的侵犯，我不能袖手旁观，不把问题说出来。”
-
-据悉，所有拒绝信表达了同样的意愿：海军陆战队员被拒绝是由于“军事准备”方面的考虑。这是很讽刺和虚伪的，因为遣散海军陆战队员会产生空缺，招募人员需要时间去填补。
-
-“我看到一个中士寄来的包裹，他附上了大约30页的材料，以证明他的信仰是真诚的，而他没有任何法律义务这样做，”这位中士长说。“然后把这个作为回应，不进行个人调查，只是笼统地断言政府的利益，这是对我的侮辱。”
-
-“在宗教方面，这绝对是一个悲剧，”一位首席准尉指出。“人们被统统拒绝，他们没有解决提交宗教便利的海军陆战队员的个人关切或信仰。我认为这是个可怕的错误。我真的认为，他们并没有真正阅读这些包裹。”
-
-新闻来源：[National security alert: Marines say Biden vaccine mandate is akin to “political purge” as military readiness being “crushed” with forced discharges – NaturalNews.com](https://www.naturalnews.com/2022-01-09-marines-biden-vax-mandate-is-a-political-purge.html)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
 
  
 
