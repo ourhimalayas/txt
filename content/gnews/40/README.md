@@ -2,46 +2,54 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月3日-1月9日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
+## 美国海军陆战队称拜登的疫苗强制令是“政治清洗”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842766/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 【雅典娜观察】和您一起探究世界
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/marines-participate-in-an-amphibious-assault-exercise-as-news-photo-1617303504_-1.jpg)
 
 
-
-过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
-本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
-
-参考链接：
-[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+ 
+图片来源：SOPA IMAGESGETTY IMAGES
 
 
+编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+根据《自然新闻》1月9日报道，**在拜登政府的领导下，美国国家安全继续恶化，而且速度很快，这在很大程度上是由于一项不合理和不必要的新冠病毒（COVID-19）疫苗强制令。**
 
+针对国防部长劳埃德·奥斯汀于8月发布的拜登新冠疫苗强制令，美国海军陆战队受到的影响最大。许多人认为新冠疫苗强制令是一种“政治清洗”，将一些最爱国的成员的力量耗尽。
 
+据《福克斯新闻数字频道》上周报道，有169名海军陆战队员因拒绝接种这种实验性疫苗而被开除军籍。但是，在五角大楼对所有现役军人的新冠疫苗强制令于11月28日对美国海军陆战队生效后，还有成千上万的人面临着被开除的情况。
+
+虽然海军陆战队员（和其他军人）被告知他们可以申请新冠疫苗的宗教豁免，但现在看来，拜登的政权显然永远不会批准他们，因为新冠疫苗强制令远比军事准备和国家安全更重要。没有一个豁免会被批准，而且根据《福克斯新闻数字频道》看到的拒绝信，几乎所有的豁免要求都是相同的。
+
+几位接受该媒体采访的海军陆战队员确信这一切都带有政治目的，因为该部队正被该疫苗强制令“压垮”。
+
+“在这一点上，我们国家的领导层有一些根本性的错误，”一位服役超过17年的少校表示。“我们正面临着一项违宪的法令，我认为这是非常有针对性的政治清洗，把一些最优秀的和最聪明的士兵、水手、空军、海军陆战队和太空部队的守护者找出来。”
+
+与此同时，一位现役超过19年的中校表示，军方正在努力遣散成员，特别是海军陆战队员，“以最快的速度和最残酷的方式，在被开除时尽可能地伤害每个海军陆战队员”。
+
+“我从上面的上校那里得到一个信息：‘要非常小心，这是政治，你会像蚂蚁一样被碾碎’。而他告诉我这些是因为他关心我，”这位中校称。“我是否想继续在一个因提出合理观点捍卫信仰而被压垮的机构里服务？”
+
+一位军士长说，似乎“我说得越大声，对我的螺丝就拧得越紧。当你被要求以某种方式行事，遵守某些规则，遵循某些程序，然后在另一端看到这不是一条双向的街道，这是对我道德的侵犯，我不能袖手旁观，不把问题说出来。”
+
+据悉，所有拒绝信表达了同样的意愿：海军陆战队员被拒绝是由于“军事准备”方面的考虑。这是很讽刺和虚伪的，因为遣散海军陆战队员会产生空缺，招募人员需要时间去填补。
+
+“我看到一个中士寄来的包裹，他附上了大约30页的材料，以证明他的信仰是真诚的，而他没有任何法律义务这样做，”这位中士长说。“然后把这个作为回应，不进行个人调查，只是笼统地断言政府的利益，这是对我的侮辱。”
+
+“在宗教方面，这绝对是一个悲剧，”一位首席准尉指出。“人们被统统拒绝，他们没有解决提交宗教便利的海军陆战队员的个人关切或信仰。我认为这是个可怕的错误。我真的认为，他们并没有真正阅读这些包裹。”
+
+新闻来源：[National security alert: Marines say Biden vaccine mandate is akin to “political purge” as military readiness being “crushed” with forced discharges – NaturalNews.com](https://www.naturalnews.com/2022-01-09-marines-biden-vax-mandate-is-a-political-purge.html)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,47 +2,44 @@
 ---
 
 
-## 美国海军陆战队称拜登的疫苗强制令是“政治清洗”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842766/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-#### 【雅典娜观察】和您一起探究世界
+#### 翻译：奋斗
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/marines-participate-in-an-amphibious-assault-exercise-as-news-photo-1617303504_-1.jpg)
+#### 校对：精靈藍
 
+#### 剪辑/字幕：向上James
 
- 
-图片来源：SOPA IMAGESGETTY IMAGES
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-编译：小红帽
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-根据《自然新闻》1月9日报道，**在拜登政府的领导下，美国国家安全继续恶化，而且速度很快，这在很大程度上是由于一项不合理和不必要的新冠病毒（COVID-19）疫苗强制令。**
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
 
-针对国防部长劳埃德·奥斯汀于8月发布的拜登新冠疫苗强制令，美国海军陆战队受到的影响最大。许多人认为新冠疫苗强制令是一种“政治清洗”，将一些最爱国的成员的力量耗尽。
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
 
-据《福克斯新闻数字频道》上周报道，有169名海军陆战队员因拒绝接种这种实验性疫苗而被开除军籍。但是，在五角大楼对所有现役军人的新冠疫苗强制令于11月28日对美国海军陆战队生效后，还有成千上万的人面临着被开除的情况。
+It’s not a battle about land, this is actually a battle for the minds.
 
-虽然海军陆战队员（和其他军人）被告知他们可以申请新冠疫苗的宗教豁免，但现在看来，拜登的政权显然永远不会批准他们，因为新冠疫苗强制令远比军事准备和国家安全更重要。没有一个豁免会被批准，而且根据《福克斯新闻数字频道》看到的拒绝信，几乎所有的豁免要求都是相同的。
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
 
-几位接受该媒体采访的海军陆战队员确信这一切都带有政治目的，因为该部队正被该疫苗强制令“压垮”。
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
 
-“在这一点上，我们国家的领导层有一些根本性的错误，”一位服役超过17年的少校表示。“我们正面临着一项违宪的法令，我认为这是非常有针对性的政治清洗，把一些最优秀的和最聪明的士兵、水手、空军、海军陆战队和太空部队的守护者找出来。”
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
 
-与此同时，一位现役超过19年的中校表示，军方正在努力遣散成员，特别是海军陆战队员，“以最快的速度和最残酷的方式，在被开除时尽可能地伤害每个海军陆战队员”。
+What people are seeing is now the battle between good and evil between Satan and the devil.
 
-“我从上面的上校那里得到一个信息：‘要非常小心，这是政治，你会像蚂蚁一样被碾碎’。而他告诉我这些是因为他关心我，”这位中校称。“我是否想继续在一个因提出合理观点捍卫信仰而被压垮的机构里服务？”
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
 
-一位军士长说，似乎“我说得越大声，对我的螺丝就拧得越紧。当你被要求以某种方式行事，遵守某些规则，遵循某些程序，然后在另一端看到这不是一条双向的街道，这是对我道德的侵犯，我不能袖手旁观，不把问题说出来。”
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
 
-据悉，所有拒绝信表达了同样的意愿：海军陆战队员被拒绝是由于“军事准备”方面的考虑。这是很讽刺和虚伪的，因为遣散海军陆战队员会产生空缺，招募人员需要时间去填补。
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
 
-“我看到一个中士寄来的包裹，他附上了大约30页的材料，以证明他的信仰是真诚的，而他没有任何法律义务这样做，”这位中士长说。“然后把这个作为回应，不进行个人调查，只是笼统地断言政府的利益，这是对我的侮辱。”
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
 
-“在宗教方面，这绝对是一个悲剧，”一位首席准尉指出。“人们被统统拒绝，他们没有解决提交宗教便利的海军陆战队员的个人关切或信仰。我认为这是个可怕的错误。我真的认为，他们并没有真正阅读这些包裹。”
-
-新闻来源：[National security alert: Marines say Biden vaccine mandate is akin to “political purge” as military readiness being “crushed” with forced discharges – NaturalNews.com](https://www.naturalnews.com/2022-01-09-marines-biden-vax-mandate-is-a-political-purge.html)
-
-*发布：小红帽*
+发布：枳实
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

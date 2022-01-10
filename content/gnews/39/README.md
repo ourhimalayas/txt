@@ -2,24 +2,38 @@
 ---
 
 
-## 对145个国家研究表明，新冠疫苗导致感染和死亡人数急剧增加
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842635/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-#### 翻译/撰稿：zzballack
+#### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-2.jpg)图片来源：路透社
-据《网关专家》(Gateway Pundit) 1月9日报道，一份最近公布的预印本报告在研究了全球145个新冠疫苗接种最多的国家的数据后发现，实验性疫苗的广泛推广并没有像预先承诺的那样结束这场大流行病，实际上反而造成了全世界的新冠感染和死亡人数急剧增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
-这篇研究报告长达99页，标题为《疫苗接种对新冠相关死亡和病例的全球贝叶斯因果影响：145 个国家的大数据分析》（Worldwide Bayesian Causal Impact Analysis of Vaccine Administration on Deaths and Cases Associated with COVID-19）。研究发现在美国，新冠疫苗导致每百万人中的新冠病例增加了38%，而每百万人中的死亡人数甚至增加了31%，非常令人吃惊。在总计145个国家中，总共有近90%（89.84%）的国家在推广疫苗后，疫情不仅没有得到遏制，反而进一步恶化。
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
-研究人员通过比较推广疫苗接种前后这两个时期公开的新冠数据，并进行了因果分析，得出疫苗接种以来病例和死亡的差异，以确定其广泛推广的效果。在排除了所有来自低接种率或数据不完整的国家的结果后，报告说：“强有力的统计学倾向性表明，疫苗导致变量y1（代表每百万人的死亡人数）或y2变量（代表每百万人的新冠病例数）的数值增加，超过了没有接种疫苗时的预期值。y1的增加/减少比率为(+115/-13)，在统计学上这意味着有89.84%的国家，每百万人中与新冠病毒相关的总死亡人数增加与疫苗有直接的因果影响。y2的增减比为（+105/-16），统计学上意味着有86.78%的国家，由于疫苗的因果影响，每百万人中的新冠总病例有所增加。”
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
-这项研究结果中也许最具说服力的部分是，在2020年，泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等国家的新冠病例和死亡人数很少甚至没有，但在推广疫苗后，这些国家与新冠有关的病例和死亡人数大幅增加，有些国家的增幅甚至高达1000%以上。
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
-研究人员警告说，这个结论应该让世界各地的政策制定者感到“十分担忧”，因为他们一直在宣传实验性疫苗是“夺回我们自由的关键”，但是这些仓促推出的实验性疫苗除了使事情变得更糟，还助长了新变种的传播，政策制定者应开始寻找除大规模疫苗接种之外的其他途径来摆脱大流行病。
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-新闻来源：[Massive 145-Country Study Shows Sharp INCREASE of Transmission and DEATH After Introduction of COVID Vaccines](https://www.thegatewaypundit.com/2022/01/massive-145-country-study-shows-sharp-increase-transmission-death-introduction-covid-vaccines/)
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
+
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
+
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
+
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
+
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
+
+**新闻来源**
+
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
+
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
 
  
 
