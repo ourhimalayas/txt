@@ -2,50 +2,19 @@
 ---
 
 
-## 中共人寿董事长王滨被查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
+## 墙内永辉超市疫情期间涉嫌售卖过期食品
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843726/)
 
-作者：纽约香草山 侠肝义胆
+撰稿—水滴石穿
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+墙内中华网财经讯，1月7日，中共国西安市市场监管局公布疫情期间一批违法案件。其中，西安市碑林区建设西路自强永辉超市涉嫌经营超过保质期食品案位列其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/What2t-1122-PM.jpeg)永辉超市
+事件摘要：2021年12月26日，西安市相关执法人员在对碑林区建设西路自强永辉超市进行检查时，发现其店中货架上售卖的京荟堂牌虾片（生产日期2019年12月20日，保质期2年，200克/包，共1包）和塬声优品牌枇杷秋梨膏（生产日期2021年11月12日，保质期1个月，300克/瓶，共两瓶），均已超过保质期，目前，综合执法支队已对该店涉嫌经营超过保质期食品违法行为进行立案查处。
 
+对于这一事件，我的分析是：永辉超市的营业收入最近时期，不断地在下降。共匪当政，墙内的经济还在不断恶化中，联动各家超市，经营情况也不会有起色。而作假、售假层出不穷，发生此类事件，也是意料之中。只是身处墙内，未来能吃到过期食品，想必也是一种奢望了！
 
-
-
-
-据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
-
-这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
-
-有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
-
-新闻来源：
-
-[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
-
-编辑：Kathy文艺 校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
+新闻来源：[疫情期间永辉超市涉嫌售卖过期食品，被立案查处](https://cj.sina.com.cn/articles/view/1704103183/65928d0f02002moq6)
 
  
 

@@ -2,64 +2,62 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析(上)
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843885/)
+## 【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843920/)
 
 作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-揭穿谎言最好的方法，无异于以谎言本身的思维逻辑去分析同样的问题。
 
-制药公司和政客们宣称注射COVID疫苗疫苗可以预防感染，减少死亡。它们都是基于同样的算法：（未接种疫苗的中共病毒感染确诊率-接种疫苗的中共病毒感染确诊率）/未接种疫苗的中共病毒感染确诊率。
+接：[【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（上）](https://gnews.org/zh-hans/1843885/)
 
-Pfizer/BioNTech对公众宣称Covid-19疫苗的有效率为95%、AstraZeneca宣称Covid-19疫苗（新冠病毒疫苗或中共病毒疫苗）的有效率为70%，Moderna宣称Covid-19疫苗的有效率为98%， 它们也都是基于同样的算法：（未接种疫苗的中共病毒感染确诊率-接种疫苗的中共病毒感染确诊率）/未接种疫苗的中共病毒感染确诊率。
+如果把它们转化成图形可能更为直观。
 
-例如，Pfizer官网2021年4月1日发表的一篇文章《[Pfizer and BioNTech Confirm High Efficacy and No Serious Safety Concerns Through Up to Six Months Following Second Dose in Updated Topline Analysis of Landmark COVID-19 Vaccine Study](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-confirm-high-efficacy-and-no-serious)》，称对超过46,307名16岁及以上的参与者进行了Covid-19疫苗安全性评估，超过12,000名接种疫苗的参与者在第二剂接种后至少接受了六个月的随访，得出结论，对截至2021年3月13日在其关键的第3期研究中观察到的927例COVID-19确诊的病例分析表明，BNT162b2对预防COVID-19病毒感染非常有效，在第二剂疫苗后7天至最长6个月内观察到COVID-19疫苗有效率为91.3%，疫苗在预防美国疾病控制和预防中心（CDC）定义的COVID-19严重疾病方面100%有效，在预防美国食品和药物管理局（FDA）定义的的COVID-19严重疾病方面有效率为95.3%。
+下图为18~29岁人群接种疫苗的有效性变化情况
 
-文章称，对同等数量的安慰剂组和疫苗组临床试验后，总共927例COVID-19确诊感染的病例中，安慰剂组850例，BNT162b2组77例，对应的疫苗效力为91.3%，其计算依据是：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-18-29-Covid-19-Vaccine-effectiveness.jpg)
 
-Pfizer/BioNTech BNT162b2 COVID-19疫苗有效率=（安慰剂组COVID-19感染确诊率-疫苗组COVID-19感染确诊率）/安慰剂组COVID-19感染确诊率=（850-77）/850=90.94%，根据临床病历修正后，确定Pfizer/BioNTech BNT162b2 COVID-19疫苗有效率为91.3%。
+随着时间推移，疫苗的有效性直线下降，甚至很快变成负数，即注射疫苗不是减少感染，而是增加感染。
 
-在安慰剂组中观察到32例CDC定义的严重疾病，而在BNT162b2疫苗接种组中没有观察到，表明该疫苗在针对CDC定义的严重疾病是100%有效的。其计算依据是：
+下图为30~39岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-30-39-Covid-19-Vaccine-effectiveness.jpg)
+下图为40~49岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-40-49-Covid-19-Vaccine-effectiveness.jpg)
+下图为50~59岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-50-59-Covid-19-Vaccine-effectiveness.jpg)
+下图为60~69岁人群接种疫苗的有效性变化情况
 
-Pfizer/BioNTech BNT162b2 COVID-19疫苗对CDC定义的严重疾病有效率=（安慰剂组COVID-19感染严重疾病率-疫苗组COVID-19感染严重疾病率）/安慰剂组COVID-19感染严重疾病率=（32-0）/32=100%，确定Pfizer/BioNTech BNT162b2 COVID-19疫苗对CDC定义的严重疾病有效率为100%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-60-69-Covid-19-Vaccine-effectiveness.jpg)
 
-根据FDA的定义，安慰剂组观察到21例COVID-19感染严重病例，而BNT162b2接种组观察到1例COVID-19感染严重病例，表明FDA定义的预防COVID-19感染严重病例的疗效为95.3%。
+下图为70~79岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-70-79-Covid-19-Vaccine-effectiveness.jpg)
+下图为80+岁人群接种疫苗的有效性变化情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-80-Covid-19-Vaccine-effectiveness.jpg)
+对于40岁以上人群，从有统计记录起，注射疫苗就表现出明显的副作用，年龄越大，副作用表现得越明显。
 
-其计算依据是：
+事实上，医药公司和政客们谈论COVID-19病毒疫苗对预防COVID-19病毒感染的有效性完全是偷换概念。
 
-Pfizer/BioNTech BNT162b2 COVID-19疫苗对FDA定义的严重疾病有效率=（安慰剂组COVID-19感染严重疾病率-疫苗组COVID-19感染严重疾病率）/安慰剂组COVID-19感染严重疾病率=（21-1）/21=95.3%，确定Pfizer/BioNTech BNT162b2 COVID-19疫苗对FDA定义的严重疾病有效率为95.3%。
+疫苗失效或效率下降，只会导致0%的疫苗效力，如果疫苗只是无法发挥作用，那么它们的功效将接近未打疫苗的免疫系统的功效。无论如何也不会普遍出现完全接种疫苗的人反而比从未接种疫苗的人更容易感染。
 
-在Pfizer官网的2020年11月8日发表的另一篇文章《[Pfizer and BioNTech Conclude Phase 3 Study of COVID-19 Vaccine Candidate, Meeting All Primary Efficacy Endpoints](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-conclude-phase-3-study-covid-19-vaccine)》，称BNT162b2的3期临床试验于7月27日开始，从美国、德国、土耳其、南非、巴西和阿根廷大约150个临床试验地点招募43,661名参与者，安慰剂组和疫苗组平​​均分配了43,661名受试者（每组约21,830名受试者）。评估了总共170例感染COVID-19确诊病例，其中安慰剂组观察到162例，而疫苗组观察到8例，据此得出Pfizer/BioNTech BNT162b2 mRNA COVID-19疫苗在首次给药后28天开始对预防感染COVID-19病毒的有效率为95%的结论。
+但数据统计结果却显示，所有年龄段的人都在打了COVID-19病毒疫苗后，感染COVID-19病毒的机率明显增加。
 
-在没有接种Pfizer/BioNTech BNT162b2 mRNA COVID-19疫苗的安慰剂组中，162人感染了COVID-19病毒并出现症状。而接种真正疫苗的那组中，这个数字只有8个。
+因此，这些数字显示了COVID-19病毒疫苗对免疫系统破坏的惊人速度，而不仅仅是COVID-19病毒疫苗对预防中共病毒感染是否有效。
 
-因此，安慰剂组感染COVID-19病毒的百分比=162/21830=0.74%。接种Pfizer/BioNTech BNT162b2 mRNA COVID-19疫苗组感染COVID-19病毒的百分比=8/21830=0.04%。
+所以目前的COVID-19病毒疫苗不能称之为疫苗，而应当是破坏人体自然免疫力的毒药！
 
-辉瑞公司能够声称注射他们的Pfizer/BioNTech BNT162b2 mRNA COVID-19疫苗对预防感染COVID-19病毒的有效率=（0.74%-0.04%）/0.74%=95%。
+对接种COVID-19病毒疫苗的人来说，-100%的疫苗效力意味着疫苗完全破坏了您对Covid-19的免疫反应。意味着打了COVID-19病毒疫苗的人，与从未打过COVID-19病毒疫苗的人相比，对COVID-19病毒毫无防备。
 
-英国公共卫生部门（[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)）自2021年9月9日发布的第36期COVID-19疫苗监测报告（[COVID-19 vaccine surveillance report: 9 September 2021 (week 36](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016465/Vaccine_surveillance_report_-_week_36.pdf))）开始，每周发布的报告中，都有前面4周每100,000未接种疫苗的人中，被COVID-19病毒感染的人数和前面4周每100,000已接种疫苗的人中，被COVID-19病毒感染的人数。
+接种中共病毒疫苗后的感染不是简单的“突破性”感染，而是本身就中毒！
 
-这为分析完全接种疫苗对预防中共病毒感染的有效率提供了最好的依据。
+根据大量的科学研究结论，疫苗感染的每个细胞不断产生致病性刺突蛋白（pathogenic spike proteins），免疫系统会识别这一点并发送杀伤性T细胞来杀死这些细胞。COVID-19病毒疫苗打得越多，制造的刺突蛋白就越多，人体失去的细胞就越多，有限的免疫系统反应的大部分被引导到一场针对接种疫苗的细胞的自我内战（self inflicted civil war），直至彻底摧毁人体内每一个接种过疫苗的细胞。
 
-下表为《[COVID-19 vaccine surveillance report: 9 September 2021 (week 36)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016465/Vaccine_surveillance_report_-_week_36.pdf)》第14页Table 4. COVID-19 cases by vaccination status between week 32 and week 35 2021
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccine-surveillance-report-9-September-2021-week-36.jpg)
-根据上表数据，可计算第36期报告的第32-35周完全接种COVID-19病毒疫苗对预防COVID-19感染的有效率，结果如下：
+免疫系统被破坏，但免疫系统时刻需要对抗癌症（cancer）、细菌性败血症（bacterial sepsis）、真菌性败血症（fungal sepsis）、其他病毒和自身免疫性疾病等，又有多少来对Covid-19的免疫反应？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccine-surveillance-report-9-September-2021-week-361.jpg)
+英国公共卫生部门（[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)）每周发布的COVID-19疫苗监测报告（[COVID-19 vaccine surveillance report](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)）的统计结果表明，Vaxxed病例比unvaxxed病例数要糟糕很多倍！
 
-上表倒数第3栏为每10万完全接种疫苗的人在前四周被中共病毒感染的确诊率，倒数第2栏为每10万从未接种疫苗的人在前四周被中共病毒感染的确诊率。计算结果数字为黑色表示接种疫苗比未接种疫苗中共病毒感染率减少，红色表示表示接种疫苗比未接种疫苗被中共病毒感染率增加，此时疫苗不能预防感染，而是增加感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/all-cause-deaths-except-for-Covid-19.jpg)
 
-根据这一思路，计算2021年第37~51期和今年第一期，每四个周完全接种COVID-19病毒疫苗对预防COVID-19感染的有效率。统计结果如下：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36-52-Covid-19-Vaccine-effectiveness-scaled.jpg)
-
-如果疫苗有效率为正数，说明疫苗确实可以减少感染。如果疫苗有效率为0，说明疫苗不起作用。如果疫苗有效率为负，说明疫苗对人体自身免疫系统伤害的程度或者增加感染的程度。
-
-根据上表数据，对18岁以上的人来说，接种疫苗后，多数人在最初被中共病毒感染的可能性降低，但对40岁以上的人来说，接种疫苗，立即体现出严重副作用。
-
-随着时间推移，疫苗的有效性越来越低，直至表现出明显的副作用（红色部分），完全接种疫苗比未接种疫苗的人群更容易感染。
-
-接：[【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（下）](https://gnews.org/zh-hans/1843920/)
+COVID-19病毒疫苗就是毒药，就是杀害人类的凶手！千万不要打COVID-19病毒疫苗！
 
 编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 

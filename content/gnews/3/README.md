@@ -2,33 +2,51 @@
 ---
 
 
-## 接种三针疫苗的瑞士运动员被诊断出心肌炎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843894/)
+## 塞浦路斯发现最新中共病毒变异株
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843930/)
 
-编译： Jenny Ball
+**作者**：纽约磐石农场-在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-704.png)图片来源**：**thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
 
-这位 31 岁的瑞士跑步健将法比安·施伦普夫（Fabienne Schlumpf），周四在她的 Instagram 账户上宣布她患上了心肌炎。目前，她不得参加任何运动和参加训练。
 
-“坏消息！不幸的是现在心肌炎在困扰着我。这对我来说绝对不是一段轻松的日子，但我不会放弃。我希望很快回来，追逐我的梦想……和对手竞争。”
 
-“据 《COVID 世界》报道，这位 31 岁的女士在日常生活中感到‘疲劳’，在上个月的一次轻松耐力跑中，她的心率飙升后，她找到了一位医生，诊断她患有心肌炎，”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-706.png)图片来源**：**thegatewaypundit.com
 
-翻译：大多数情况下，病毒感染会导致心肌炎，施伦普夫认为与 Corona 没有联系。 她已经接种了疫苗，并打了加强针，到目前为止还没有被感染。其实年初的时候，她就想去葡萄牙参加集训，但是没有结果。“没有人能告诉我需要休息多久，”她说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3b64f6e0150caf88f70fd31c2ec36822.jpg)
 
-**评论：这就是悲哀之处，现在发生的灾难，已经不是Covid病毒，而是mRNA试验药物在人体中反应后造成的更大的灾害**！而邪恶势力制造Covid病毒的目的，就是用恐惧威吓，用政策胁迫人们去当试验老鼠！
+台媒1月9日报道，塞浦路斯科学家柯斯崔斯基及其团队，发现该国社区存在一种中共病毒最新变异株，该病毒具有德尔塔遗传背景，以及部分奥密克戎的突变，被命名为德尔塔克戎，目前在该国已有25例。
 
-新闻来源 **：**[thegatewaypundit.com] [Triple Vaccinated Swiss Olympic Athlete Fabienne Schlumpf Diagnosed with Myocarditis – May Never be Able to Compete Again](https://www.thegatewaypundit.com/2022/01/triple-vaccinated-swiss-olympic-athlete-fabienne-schlumpf-diagnose-myocarditis-may-never-able-compete/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+柯斯崔斯基告诉媒体，他们团队发现了大量以前仅在奥密克戎病例中发现的突变，这与其他变异株不同，它有30个突变。他补充说，在该国搜集的25个样本中发现了这种变异株。其中11个来自因中共病毒住院的人，其余来自一般人群。住院患者的突变频率更高，这可能意味着德尔塔克戎与住院治疗之间存有关联。
 
-* * *
+他表示，已经将这25个塞浦路斯样本序列交给了“全球共享流感数据倡议组织”数据库，这将使它们可共全球科学界人士使用。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+新闻来源：
+
+[https://cn.rti.org.tw/news/view/id/2121676](https://cn.rti.org.tw/news/view/id/2121676)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-2.png)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

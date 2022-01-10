@@ -2,36 +2,23 @@
 ---
 
 
-## 中共对外扩张的五步计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843851/)
+## 中共军方用印度境内的喜马拉雅山石头作为抽奖礼物
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843861/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
+翻译：brandnew
+校对：zzballack
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-4.jpeg)
+据《布雷特巴特新闻网》（Breitbart News）1月7日报道，中共官媒《环球时报》(Global Times)报道说，中共解放军(PLA)西部战区1月7日通过其官方新浪微博(Sina Weibo)账号公布了抽奖通知，将抽取“10位幸运网友”，每位中奖者将各获得一块取自印度北部拉达克州(Ladakh state)的加勒万河谷(Galwan Valley)的石头。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-11-at-01.00.55.jpeg)图片来源：原新闻
+抽奖通知附带了一张解放军士兵在喜马拉雅山西部岩壁附近“巡逻加勒万河谷”的照片。发布者在照片上添加了汉字：“大好河山，寸土不让”。
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
+《环球时报》援引了一些据说是由匿名中国“网友”，也就是微博用户对此抽奖活动的回复评论。其中一个回帖“赞美”了这个赠品，称之为“非常有意义的礼物，因为这样的一块石头显示了中国人民不放弃国家每一寸领土的态度”。
 
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
+2020年6月15日，印度和中共的边境驻军在加勒万河谷发生了血腥混战，此后，中共解放军与印度军队在两国未划定的喜马拉雅边界上一直处于对峙状态。这场小规模冲突造成20名印度士兵死亡，据报道有40名中国士兵丧生，但北京官方只承认有两名解放军死于这场事件，并谎称获胜。据报道，交战是因中共军队在夜间行动中入侵印度领土后引起的。
 
-参考链接：
-1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
-2）[1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](https://gnews.org/zh-hans/1836777/)
+信息来源：[Chinese Military Raffling Himalayan Rock from Crushing 2020 Battle Loss to India](https://www.breitbart.com/asia/2022/01/07/chinese-military-raffling-himalayan-rock-crushing-2020-battle-loss-india/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
