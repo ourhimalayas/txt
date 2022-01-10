@@ -2,74 +2,32 @@
 ---
 
 
-## 2022/01/10 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1844569/)
+## 七哥谈Omicron感染（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844595/)
 
-**主持**：舒平风｜**嘉宾**：防木、神奇四侠
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-07直播08：48：59摘录
 
+大家要注意到，这次感染之容易啊，是前所未有。但是我们在一开始在2021年的时候我就说过，我记得特别我们大校先生啊，就是跟我说过一句特别经典的话，他说：“七哥，这个真是未来如果这个世界在，这是病毒之前还没醒过来的话，你就不需要这个世界醒过来。”昨天下午的时候我们这个大校先生说，我真的睡不着觉了。因为他最近离开了日本到了另外一个国家，而且是日本政府是允许的，到了另外一个国家去。他说我到这个国家以后，他说我是最让我感觉到的就是大街上没多少人在乎这个Omicron。他说这个Omicron染到身上，它不是开玩笑的。他说有病是让你长期有病和让你短期死亡。他说这都是生化武器的，它可以做得到的。他说为什么没人小心呢？我说我也没办法，爆料革命现在已经做到这一步。他说你知道我跟这个政府国家谈，他说让我去给他秘密作证。我给他说了不到5分钟，他所有屋子人说：“哎，你别你别说，你停，你停”。然后他说让我们休息几分钟，就到隔壁去休息去了。他休息了20分钟回来，他说每个人脸色都铁青。他说他们真的是知道这个疫苗是比这个病毒还可怕的。什么叫mRNA，大家一定要搞清楚。mRNA就是刺突蛋白，就是病毒啊，我再重申一遍，是吧？辉瑞制药，任何制药，现在已经没有一家制药公司敢说我承担这个责任，承担后果，他没有一家。为啥你研究的这个解药、疫苗你不承担责任呢？哪个解药的成分都叫mRNA，就叫刺突蛋白。这就为什么现在咱爆料革命，现在在全世界受到这么大的关注。特别是科学家和专业人士，他说为什么他们能知道这些真相呢？我们在一年前没想到的事，他们都已经知道了呢？例如刺突蛋白会脱落，会感染，你没有出门就感染了。我不相信木兰的先生，就出去感染的，我相当不相信。
 
-**板块1–中共病毒**
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-1. 天津市在群体感染后对一千四百万人进行检测。
+**关注我们**
 
-几例感染惊动全程核酸检测、严控进出人口，检测试剂对新变异病毒检测准确率低，预测天津市内部实际感染情况相当严重，对冬奥会顺利举办存疑。
+Discord 账号
 
-2. 超过95%感染Omicron病例是接种过疫苗的人。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-新变异病毒大爆发超过2020年最初爆发。出门做好防护措施，Eglise医生最新预防配药已出（羟氯喹已无大作用，伊维菌素、黑籽然油、地塞米松有用）。
+Gettr 账号
 
-3. 美国布鲁克斯议员表示：新冠病毒是中共国武汉实验室制造的“生物武器”。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-中共欲“弯道超车”美国提前计划并深度研究“生物武器”。中共国于2005年左右利用军民融合项目与法国合作生物实验室机会，窃取技术研究生物病毒。美国不会完全放弃“病毒溯源”这张牌，近期彭培奥先生接受采访表示习近平欠世界一个解释（病毒）。
-
-加强利用西班牙语系对外宣传病毒真相、中共的恶、区分中国人不等于中共，将推出“完美拼图”节目。
-
-**板块2–国际政治**
-
-1. 王毅表示：将欢迎哈萨克斯坦总统参加冬奥会，并确保安全顺利。
-
-王毅走到哪里，哪里就爆发动乱（阿富汗、哈萨克斯坦）。俄罗斯插手哈萨克斯坦事务，防止中共国全面“侵蚀”哈萨克斯坦，保证俄方利益。
-
-哈萨克斯坦属于全内陆国家，领土面积世界第九，稀土资源丰富，地理位置重要。
-
-2. 连续三十二年新年首访到非洲，中共国外长释放三个重要信号。
-
-中共国利用资金和发放疫苗“拉拢”非洲目的–为其在联合国投票占领票数优势、借助非洲靠近欧洲的地理优势行其邪恶计划（一带一路扩张、修建军事基地、制造难民问题骚扰欧洲、降低欧美影响力）。
-
-**板块3–财经**
-
-1.人寿保险王滨落马，万达信息股价开盘大跌。
-
-王岐山又损失一名“马仔”。根据文贵先生爆料–王已经处于被控制状态；中共国的保险业均是“骗术”。
-
-中共国推行“计划生育”政策–宣传政府养老，现阶段遭遇新生人口断崖–宣传养老靠自己。
-
-**板块4–社会文化**
-
-1.经济学家任泽平表示：找到了解决低生育的办法。
-
-建议建立鼓励生育基金、央行多印2万亿。政府“刺激”
-
-人口增长，专家建议毫无经济学常识，习惯性“剥夺”人的生育权力。中共国面临人口老龄化和人口少子化。
-
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-[![](https://express.adobe.com/page/MwCj9Xozm2GbE/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/MwCj9Xozm2GbE/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/MwCj9Xozm2GbE/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/MwCj9Xozm2GbE/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
