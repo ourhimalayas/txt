@@ -15,68 +15,68 @@
 
 ---
 
-### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/1/README.md)
- ` 华盛顿DC-Russian`
-
-### [七哥谈爱和真诚（2022-01-05摘录）](/content/gnews/2/README.md)
+### [七哥谈自信（2022-01-05摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [中(共)国正耗尽水资源，对亚洲而言很可怕](/content/gnews/3/README.md)
+### [文贵先生盖特精要 2022/01/10](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/3/README.md)
+ ` 华盛顿DC-Russian`
+
+### [七哥谈爱和真诚（2022-01-05摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [中(共)国正耗尽水资源，对亚洲而言很可怕](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/4/README.md)
+### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [雄安新区是一局死棋](/content/gnews/5/README.md)
+### [雄安新区是一局死棋](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [别问春天到来我会做什么](/content/gnews/6/README.md)
+### [别问春天到来我会做什么](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [七哥说战友们要团结（2022-01-05摘录）](/content/gnews/7/README.md)
+### [七哥说战友们要团结（2022-01-05摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [南非学生联盟反击高校强制接种疫苗政策](/content/gnews/8/README.md)
+### [南非学生联盟反击高校强制接种疫苗政策](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/9/README.md)
+### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/11/README.md)
  ` 华盛顿DC-Russian`
 
-### [中共国正在加速推进数字人民币](/content/gnews/10/README.md)
+### [中共国正在加速推进数字人民币](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [健康儿童不需要接种COVID-19疫苗](/content/gnews/11/README.md)
+### [健康儿童不需要接种COVID-19疫苗](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/12/README.md)
+### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/14/README.md)
  ` 华盛顿DC-Russian`
 
-### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/13/README.md)
+### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥谈重要的事情要看本质（2022-01-05摘录）](/content/gnews/14/README.md)
+### [七哥谈重要的事情要看本质（2022-01-05摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/15/README.md)
+### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说共产党不等于中国人（2022-01-05摘录）](/content/gnews/16/README.md)
+### [七哥说共产党不等于中国人（2022-01-05摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利](/content/gnews/17/README.md)
+### [参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈思路（2022-01-05摘录）](/content/gnews/18/README.md)
+### [七哥谈思路（2022-01-05摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/19/README.md)
+### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/21/README.md)
  ` 华盛顿DC-Russian`
-
-### [专制主义是新常态2022 年对自由的威胁迫在眉睫](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥谈保护海外华人的安全（2022-01-05摘录）](/content/gnews/21/README.md)
- ` MG FARM`
 
 ### [澳大利亚政府本月绑架了第二名职业网球运动员](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`

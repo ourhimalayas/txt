@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈重要的事情要看本质（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844273/)
+## 美对中共强迫西藏僧侣观看拆毁佛像事件表关切
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844288/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/T-1.jpg)tibet.net
+来自《自由亚洲电台》报道，上个月中共四川当局在甘孜藏族自治州拆除了一座高99英尺的大佛像，并强迫西藏僧侣和附近的藏人前去观看整个拆除过程。意图通过根除西藏的宗教和文化来彻底摧毁西藏的身份认同。1月8日美国国务院就此发表声明称，“我们对佛像被毁的报道深感关切，并继续敦促中共当局尊重藏人的人权，保护西藏的环境以及藏族传统独特的文化、语言和宗教特征。我们将与我们的合作伙伴和盟友合作，敦促北京停止对西藏人的持续虐待，并恢复与达赖喇嘛或其西藏代表的直接对话，在没有先决条件下解决分歧。”
 
-来源：郭先生2022-01-05直播11：11：24摘录
+消息人士称，在甘孜藏族自治州的德拉戈(中文，Luhuo)县，与这座99英尺高的佛像一起被摧毁的，是45个传统的供西藏朝圣者和其他朝拜者使用的祈祷轮。
 
-刚才我回答你们刚才的问题，就是Isable Yeung 的问题，她不仅是一个极为危险的排华，还有更重要的事情大家还要看的一个本质，Isable Yeung 是一个国际婚姻，她是英国的娘中国的爹，生产出这么一个东西出来，恨外国人，恨中国人，而且你可以看到所有过去黑咱们爆料革命、还有黑七哥的，几乎所有的《塔斯社》、马蕊强奸案、吴征案都是出来的华人，到这儿当的记者。而且我们昨天早稻田大学的我们几位日本战友说，他说：七哥你知道那个出来不到一天，在我们的系里面就有人跟我说，你看到那个报导了吗？你们在日本就是我们的威胁。而且有台湾的两个孩子是在日本早稻田大学的，说：我收到了同样一个人发给我的信息，说我们在日本是他们的威胁。这个威胁有多大？你能给抹去吗？你告诉我你靠什么抹去？很多中国人你现在兴高采烈，你让他兴高采烈去，凡是那些高兴以爹亲娘亲不如党亲的人，你让他和党亲去，咱绝不拦着他。但是我们台湾这些同胞、香港的同胞、西藏、新疆的，还有我们海外的这些开了光的华人，我们不想把共产党当成爹妈。那么我们怎么拯救他们呢？我们怎么让他们知道呢？盖特就是最重要的一个平台、表达方式。
+该建筑此前获得中共地方当局全部批准，这座出于藏民信仰用于抵御地震的佛像是由当地藏民出资约400万元（约合629,445美元）于2015年10月5日建成的。中共当局抱怨这座佛像“建得太高了”而收回批准并强迫Thoesam Gatsel庙的僧侣和居住在附近城镇的藏人见证拆除工作。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，拆除行动从12月12日至21日持续了9天。一名住在印度的藏人透露现场“还部署了很多警察，以确保观众不会拍照或录像或制造骚乱”。为了保护仍住在德拉戈的家人，他要求匿名。
 
-**关注我们**
+援引自《大纪元》报道，近日藏人行政中央驻台湾代表格桑坚参对此行径批评说，中共不仅要毁掉实物，还要消灭人的精神，这种赤裸裸的行径比塔利班毁坏佛像还恶劣。这种强迫僧侣和藏民观看信仰佛像的毁灭过程，实施精神压迫的做法，是中共当局所谓新的治藏策略的突出体现。其邪恶程度甚至超出文化大革命。
 
-Discord 账号
+与此同时，中共更对西藏学校进行强制改革，取消藏文文化传播，进行民族同化。这是从根本上毁掉西藏的宗教、语言、文化、民族特性的民族灭绝。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+原文链接：
 
-Gettr 账号
+[https://americanmilitarynews.com/2022/01/china-forces-tibetan-monks-to-watch-destruction-of-sacred-statue/](https://americanmilitarynews.com/2022/01/china-forces-tibetan-monks-to-watch-destruction-of-sacred-statue/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://www.timednews.com/article/2022/01/07/13223.html](https://www.timednews.com/article/2022/01/07/13223.html)
+
+[https://www.epochtimes.com/gb/22/1/8/n13490309.htm](https://www.epochtimes.com/gb/22/1/8/n13490309.htm)
+
+
+
+**华盛顿DC 银河**
+
+**编辑发布 水星**
 
  
 

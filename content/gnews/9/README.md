@@ -2,33 +2,31 @@
 ---
 
 
-## 美警告俄在乌克兰问题上必须作出选择
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844318/)
+## 七哥说战友们要团结（2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844359/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/U-1.jpg)cbc.ca
-法兰西24新闻报道，本周就乌克兰危机举行关键会谈之前，俄罗斯方面排除了在乌克兰问题上做出任何让步的可能性。美国国务卿安东尼·布林肯（Antony Blinken）1月9日表示，俄罗斯必须在对话和对抗之间作出选择。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-布林肯在美国有线电视新闻网（CNN）的《国情》（State of the Union）节目中表示:“我们可以通过对话和外交途径来解决一些分歧，避免冲突。另一条路是对抗，如果俄罗斯继续侵略乌克兰，将会有巨大的后果。”
+来源：郭先生2022-01-05直播11：12：56摘录
 
-在布林肯发出警告的几个小时前，俄罗斯副外长谢尔盖·里亚布科夫（Sergei Ryabkov）表示，克里姆林宫对美国和北约欧洲成员国发出的信号感到“失望”，莫斯科寻求与西方达成新的安全安排，以换取俄罗斯从乌克兰边境撤军。
+还有一个我们大家要认识到很核心的问题，我们战友之间要团结，不要把自己那些个人的恩恩怨怨、狗屁唠叨的事儿搬到盖特上去，你真的很丢人！你任何人在盖特上作为战友你发诋毁战友、诋毁新中国联邦或诋毁华人的东西，你都务必小心，因为你一个人的事情会无限扩大。恰恰是Isable Yeung 让你干的事，就是中国人是西方的威胁，中国人内斗，中国人不值得信赖，中国人是东亚病夫，没有勇气，很懦弱，不要把这个唯一的中国人展示给外国人的平台，丢了自己黄皮肤的脸。就像我一开始直播，我最感谢的也到现在我认为爹娘告诉我的，出了国谁是你爹？是吧！出了国谁是你娘？中国是你爹，中国人黄皮肤是你娘。你不管怎么样，你不要给亚洲人、黄皮肤人造祸，背负着这么多的灾难，你不要成为传播共产党这种邪恶思想的这么一个工具。我们要珍惜啊兄弟姐妹们，是吧？今天每个人的话都是真的是发自内心的，都是感动人的，而且很有好处。
 
-自去年年底以来，俄罗斯在乌克兰边境集结了数万名士兵，并要求北约保证不再进一步向东扩张。克里姆林宫坚持北约绝不允许前苏联的乌克兰成为北约成员国，而乌克兰正在推动加入这个军事联盟。在为期一周的外交活动中，俄罗斯将与北约和欧洲安全与合作组织（OSCE）举行高层会谈，而欧盟未被邀参与。美国试图向欧洲盟友保证，他们不会被边缘化。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在许多欧洲国家越来越担心俄罗斯试图在其边境危机问题上让欧盟边缘化之际，法国欧洲事务部长克莱门特·伯恩（Clement Beaune）1月9日表示，欧盟不应被排除在乌克兰问题谈判之外。法国外交部长警告称，莫斯科试图绕过欧盟，直接与美国就乌克兰问题举行会谈。
+**关注我们**
 
-去年6月，普京在日内瓦会见了美国总统拜登，并同意两国代表团进行定期“稳定”会谈。拜登在与普京的两次通话中警告称，如果俄罗斯入侵乌克兰，将面临严重后果。正在考虑的措施包括制裁普京的核心集团，取消俄罗斯备受争议的通往德国的北溪2号（Nord Stream 2）管道，或者，在最极端的情况下，切断俄罗斯与世界银行体系的联系。普京的外交政策顾问尤里·乌沙科夫（Yury Ushakov）在与拜登通话后警告称，如果继续实施制裁，美国将犯下“巨大的错误”。
+Discord 账号
 
-自2014年以来，俄罗斯一直对邻国乌克兰施加巨大压力。与此同时，俄罗斯也在干预白俄罗斯和哈萨克斯坦这些面临民众起义的盟友，莫斯科坚称希望与华盛顿的谈判取得实质性进展。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-华盛顿伍德罗·威尔逊国际学者中心（Woodrow Wilson International Center for Scholars）凯南研究所（Kennan Institute）主任马修·罗扬斯基（Matthew Rojansky）表示，日内瓦谈判更多的是为了防止乌克兰危机加速，而不是达成一项重大协议。
+Gettr 账号
 
-参考链接：
-
-[https://www.france24.com/en/europe/20220109-us-russia-launch-high-stakes-talks-to-avoid-conflict-in-ukraine](https://www.france24.com/en/europe/20220109-us-russia-launch-high-stakes-talks-to-avoid-conflict-in-ukraine)
-
-**作者：华盛顿DC 银河**
-
-**编辑发布： 水星**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
