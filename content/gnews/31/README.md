@@ -2,25 +2,52 @@
 ---
 
 
-## 澳洲开始为5至11岁儿童接种中共病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1842722/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/101-1.jpg)图片来源于网络
-据澳大利亚9号新闻网报道，澳大利亚从1月10日开始，5至11岁的儿童有资格接种中共病毒疫苗。
+#### 翻译：奋斗
 
-澳卫生部长格雷格·亨特（Greg Hunt ）保证，这个年龄组的儿童有大量的疫苗可以使用，有大约230万5至11岁年龄组的儿童，1月份有300万剂疫苗，在未来两周内有200万剂。
+#### 校对：精靈藍
 
-但是，家长们担心疫苗不够用，如果他们不能在返校日期到来之前为该年龄段的孩子接种疫苗，他们可能被迫回到家中学习。
+#### 剪辑/字幕：向上James
 
-悉尼大学的传染病专家罗伯特·布依（Robert Booy）教授说，在返校前为孩子们接种疫苗不仅可以保护他们，而且如果孩子们在学校感染了这种疾病，还可以保护其他家庭成员不被感染。孩子们的适应力很强，他们能够比我们成年人更好地抵抗奥密克戎（Omicron）。接种疫苗是有意义的，它将保护儿童，防止他们感染病毒后的严重后果，接种疫苗也将阻止家庭中的传播，保护家庭中的脆弱成员不被儿童感染。
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-所有流氓政府的套路如出一辙：政府站台，“砖家”背书。对于生活在澳洲的战友，政府的手已经伸向5-11岁的孩子，大家看好自己的孩子，大不了让孩子待在家里不去上学，我们有自己的G-Education，可以先让孩子在那里继续接受教育，培养我们的爆二代、爆三代。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-新闻来源：[9news.com.au](https://www.9news.com.au/national/coronavirus-vaccination-update-australia-children-aged-five-to-11-eligible-for-covid-19-vaccine-from-january-10/ca1f4b62-3830-4100-b4b1-cfbf9e4a5a08)
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
+
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
+
+It’s not a battle about land, this is actually a battle for the minds.
+
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
+
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
+
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
+
+What people are seeing is now the battle between good and evil between Satan and the devil.
+
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
+
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
