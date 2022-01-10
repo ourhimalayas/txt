@@ -2,28 +2,22 @@
 ---
 
 
-## 樱花灭共诗——琴台
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843410/)
+## 中共外长邀请哈总统托卡耶夫出席北京冬奥会开幕式
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843498/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-6.jpg)
-几觅当年事，
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-22.png)
+图片来源网站
 
-如今已不闻。
+《产经新闻》1月10日报道，中共外交部长王毅10日与哈萨克斯坦外长特列乌别尔季进行了电话交谈。
 
-古溪流瑟瑟，
+他对哈萨克斯坦的暴力维稳表示坚定不移的支持，同时表明中共打算向哈萨克提供必要的支持和援助。他还专门表示，欢迎托卡耶夫出席2月4日北京冬奥会开幕式。
 
-花蕊落纷纷。
+信息源：
 
-老肆尘埃漫，
+[中国外相、カザフに「支持」表明　トカエフ大統領の北京冬季五輪開会式出席「歓迎」](https://news.yahoo.co.jp/articles/ab434967be88cbded7e5bdc4f539f57d0968c86a)
 
-荒台夕日熏。
-
-茂陵风雨后，
-
-尤爱卓文君。
-
-校对：东京樱花团/知了知了
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
