@@ -2,24 +2,34 @@
 ---
 
 
-## 加拿大联邦卫生部长考虑在各省推进强制疫苗接种
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1844082/)
+## 澳大利亚政府本月绑架了第二名职业网球运动员
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
 
-2022年1月7日， 加拿大联邦卫生部长Jean-Yves Duclos在新闻发布会上表示，他认为各省和地区需要考虑并朝着所有人强制接种疫苗的方向迈进：
+翻译：Jenny Ball
 
-首先这是基于我对目前国内外情况的个人理解以及过去几周我同我的同事和各省卫生部长的交流中（形成的）观点。其次，这将由各省及特区在某个时间段做出决定，由他们来决定是否推行（强制疫苗令）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
 
-但是我们看到的是加拿大的医疗保健系统是脆弱的。人们疲惫不堪。结束疫情，克服现在和未来可能的变异病毒的唯一办法是疫苗。个人防护用具，社交距离，快速检测，PCR检测等是重要的手段，但真正使我们度过和结束这场危机的是疫苗接种。
+周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
 
-我看到在我自己的省份，魁北克省50%的住院病人是由于没有接种疫苗。这对医护人员和社会来说都是一个很难承受的负担，也让很多人不解。这也是我今天在此提醒大家在接下来的数周数月内，联邦政府支持各省和特区就（疫苗强制令的）话题展开讨论。
+尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
 
-素材：文倩
+本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
 
-翻译：文倩
+德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
 
-字幕：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
 
-编辑/发文：Kent
+捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
+
+**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 

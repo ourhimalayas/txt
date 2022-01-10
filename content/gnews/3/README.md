@@ -2,31 +2,29 @@
 ---
 
 
-## 七哥说共产党不等于中国人（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844222/)
+## 特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1844274/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/UPKK4CDNREI6ZMPCAU45VD2EKE-1-scaled.jpg)图片来源：The Washington Post
+根据《华盛顿邮报》1月10日报道，特朗普仍计划推出自己的社交媒体平台，但该网站可能要到中期选举后才能上线。
 
-来源：郭先生2022-01-05直播10：59：58摘录
+主流社交媒体在1月6日国会大厦骚乱后暂停或禁止了特朗普的账户，指责这位前总统传播错误信息和煽动暴力。此后，特朗普通过电子邮件声明进行交流，而不是在Parler和Gettr等替代性右翼平台上创建账户。
 
-台湾某个所谓音乐界的大咖说，他说：“真的郭先生，我认识你那么多年，他说我真的要特别感激你，华人在全世界想说华人的话，说华人的故事，特别台湾的故事和华人这种没有任何地方，只有盖特。” 然后另外一个台湾的一个金融家告诉我，他说：“七哥我每次看完盖特我都流泪，他说你知道为什么？台湾这样一个受威胁之中的一个小岛，我们没有任何，他说我们在line，我在Facebook，在什么，我们是不敢讲共产党的坏话的，讲一句都给我们删掉。”然后美国的咱们几个朋友说：郭先生，我们真不知道关于中国的事，我们从来不懂中国人不能跟共产党划在一起。他说：“我作为一个美国这样的人我真的意识到，我是刚刚的一个月以前我在盖特上知道。“ 他是一个民主党的人啊，他几个月以前就跟我签了，是民主党的前三号人物，都签了合同，到现在我们不公布。我们不公布的原因不是为了别的，我们是发生各种不想参和各种政治。他跟我说：“我真的在一个月以前才真的觉得川普啊，还有蓬佩奥啊这些人说的是对的，皮特纳瓦罗和班农，中国人不等于共产党，共产党不等于中国人，” 他说 ：“我真的觉得越来越有道理。”你知道这是很恐怖的事情威廉王，我们中国人在十四亿人全世界上没有一个说话的地方。这对我们中国人，亚洲人多危险，现在已经不是中国人的事了，叫亚裔啊，亚裔啊。你看Isabel Yeung 是把亚裔，日本人，所有人都列为了亚裔是西方民主的威胁，完全对立呀！黄皮肤和白皮肤人和黑皮肤的人。这是意义多么重大啊，唯一的平台呀。所以说兄弟姐妹们要珍惜呀。这是天意给我们的。
+特朗普的社交网络将称为 “Truth Social”，由特朗普媒体和技术集团开发，该集团将被一家名为“数字世界”（Digital World Acquisition Corporation）的特殊目的收购公司（SPAC）收购。根据双方的协议，这项合并必须在2022年9月前完成，目前正在等待美国证券交易委员会的调查。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+《华盛顿邮报》称，特朗普媒体公司计划 “通过在多个不同行业–社交媒体、流媒体、播客的竞争来创造数十亿美元的收入”，正在硅谷进行招聘，并宣布与视频托管网站Rumble合作，该网站自称是YouTube的一个审查较少的替代品。
 
-**关注我们**
+据《华尔街日报》报道，特朗普实际上在某些方面受益于被主流社交媒体禁言。他可能无法像以前那样轻松地对大量观众讲话，但对许多仍对其禁言感到愤怒的特朗普支持者来说，这位前总统的缺席与他的存在一样响亮。他们对大科技公司大发雷霆，特朗普的一些粉丝同时也很高兴他离开了这些社交媒体。在2017年美国有线电视新闻网(CNN)的民意调查中，大多数共和党人对当时的总统使用推特持批评态度。
 
-Discord 账号
+《华尔街日报》报道说，根据特朗普的助手，这位前总统 “一直渴望宣布2024年的竞选，”但已被说服推迟他的决定，或至少是他的宣布要等到到11月的中期选举之后”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+原文链接：
+[https://theweek.com/donald-trump/1008807/trump-app-held-up-by-sec-investigation-into-merger](https://theweek.com/donald-trump/1008807/trump-app-held-up-by-sec-investigation-into-merger)
 
-Gettr 账号
+编辑，发稿 Spirit
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
 
  
 
