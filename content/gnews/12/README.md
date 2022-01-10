@@ -2,48 +2,31 @@
 ---
 
 
-## 别问春天到来我会做什么
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1844382/)
+## 七哥谈爱和真诚（2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844426/)
 
-作者：香草山健身部-新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-别问春天到来我会做什么？
-我在冬天里积淀的养分，
-会在春天里抽枝发芽，
-在夏季里悄然绽放—
-或许不是最美，
-却馨香四溢的花朵。
-然后，随着秋的到来，
-结成累累硕果。
-你会看到我谦卑地弯下腰，
-直到孩子们攀上我直刺虚空的枝头，
-采摘掉我所有的浆果。
-不管他们把玩、还是吃掉，还是随手抛弃，
-这些都无关紧要，
-我都会在萧瑟的秋风中，
-来一次仓促而铿锵的谢幕……
-或许我再也挺不过下一个冬天，
-如果那个冬天更加残苛，
-我会在风霜的摧折中死去，
-不过，我想我会死得很安详！
-那些长眠地底的种子，
-那些被孩子们嚼烂果肉随手抛散的种子，
-会冲破广袤的沃土，
-或者最贫瘠的石缝岩隙，
-在下一个春天生根发芽，
-长成郁郁葱葱的新株……
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
-**更多资讯，更多关注**
+来源：郭先生2022-01-05直播11：16：11摘录
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+爱米粒这个话题说上去很简单，其实每个人做到很难。你看看唐平和威廉王在一起，他俩就知道，唐平很强势，威廉王很包容，很男人的。这个时候你一定要记住男人和女人之间和朋友之间，一定要记住，唯一让对方接受你开玩笑，或者说你过分的表达或者什么样，一定要有爱、有真诚，对方都会原谅你。如果你带着恶意，你带着虚伪，这个人很难原谅你，真的是。我跟你七嫂子相处一个最大的问题，说白了我就认清在家里边，我这一辈子没人能征服我，就你七嫂子把我征服了，还有我闺女，是吧？你跟你闺女之间，你说你搞个对错有啥意义呢？你跟你七嫂子有对错有啥意义呢？咱在家里边咱永远记住，你七嫂子排第一，郭美排第二，郭强排第三，我排第四，现在我排第五，我家狗排第四啦，是吧，Snow排第四。你甘认，在家里边别争抢第一，别争对错，用爱把你自己排得往后一点儿，用诚实、接受和包容，没有什么过不去的，否则你没法相处。一个屋檐下，像我这种强势的人，像唐平这种，永远不服输，谁受得了啊，是不是？她都离一回婚了，我可不希望她再离一回了，是不是？她离婚一定不是她先生一个人的错，一定有她的错的。谁能跟她过，我觉得威廉王能跟她过50年，我一定把威廉王的照片挂到我墙上去，我告诉你。所以说千万记住，不要在爱之间，不要在家庭之间，还有兄弟姐妹之间争强好胜。那是你非常熟的范围，说完了，谢谢！
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**关注我们**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

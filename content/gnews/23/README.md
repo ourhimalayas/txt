@@ -2,34 +2,42 @@
 ---
 
 
-## 澳大利亚政府本月绑架了第二名职业网球运动员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
+## Omicron 让拜登的强制疫苗授权过时
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1844259/)
 
-翻译：Jenny Ball
+据《华尔街日报》作者 Luc Montagnier（卢克·蒙塔尼耶）和 Jed Rubenfeld（杰德·鲁本菲尔德） 2022 年 1 月 9 日 报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
+到目前为止，没有证据表明疫苗正在减少快速传播的**Omicron**变种病毒的感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-3.png)图片来自网络
+考虑拜登政府的强制疫苗接种授权的联邦法院，包括最高法院在周五的口头辩论中，一直关注行政法问题。这些法令也提出了宪法的问题。但是有一个更简单的原因让大法官们应该保留这些命令就是Omicron 变种的兴起。
 
-周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
+在没有任何证据表明疫苗能有效阻止其所针对的病原体传播的情况下，政府强制要求接种疫苗是不合理的、在法律上站不住脚的，也违背了公共利益。然而，这正是正在发生的事情。
 
-尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
+11 月 5 日，卫生与公共服务部（HHS）针对医疗工作者和职业安全与健康管理局（OSHA）针对许多其他行业的大型雇主发布了两项授权。当时，Delta 变种代表了几乎所有美国 COVID-19 病例。两个机构都对 Delta 进行了详细而详尽的考虑，发现疫苗对它仍然有效。
 
-本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
+**这些发现现在已经过时了**。根据疾病控制和预防中心的估计，截至 1 月 1 日，Omicron 占美国 COVID病例的 95% 以上。由于已知 Omicron 的 50 种突变中的一些可以逃避抗体的保护，因为其中 30 多种突变与现有疫苗用作[免疫原](https://www.wsj.com/market-data/quotes/IMGN)的刺突蛋白有关 ，而且由于在大量接种疫苗的人群中出现了大规模的 Omicron 爆发，科学家们高度不确定现有的疫苗能否阻止其传播。正如 CDC在 12 月 20 日[所说](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，“我们还不知道, 现有的疫苗和药物对它的效果如何。”
 
-德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
+最高法院在雅各布森(Jacobson)诉马萨诸塞州(1905)案中裁定，当社会需要遏制传染性流行病的传播时，可以胜过拒绝医疗的权利。在周五的口头辩论中，所有大法官都承认联邦授权基于这一理由。但是，强制使用疫苗来阻止疾病的传播，需要有证据证明疫苗可以预防感染或传播（而不是对住院或死亡等严重后果的有效性）。正如世界卫生组织所说，“如果认为有必要强制接种疫苗以中断传播链，并防止对他人造成伤害，则应有足够的证据表明该疫苗可有效预防严重感染和/或传播。” 对于 Omicron，目前还没有这样的证据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
+我们掌握的少量数据表明情况恰恰相反。一项[预印本研究](https://www.medrxiv.org/content/10.1101/2021.12.20.21267966v3.full)发现，Moderna 和Pfizer 疫苗在 30 天后不再对 Omicron 感染产生任何统计学上显著的影响，而在 90 天后，它们的效果变成负面——**即接种疫苗的人*更*容易感染**** Omicron**。来自丹麦和加拿大安大略省的数据证实了这一负面效应的发现，表明接种疫苗的人比未接种疫苗的人有更高的Omicron感染率。
 
-捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
+与此同时，人们早就知道接种疫苗的人一旦有突破性感染，具有高度传染性，来自世界各地的初步数据表明，Omicron 的情况也是如此。正如 CDC 主任 罗谢尔·瓦伦斯基（Rochelle Walensky ）去年夏天所说，接种了 Delta 疫苗的人的鼻子和喉咙中的病毒载量与未接种疫苗的人“没有区别”，而且“[疫苗] 不能再做的是防止传播。 ”
 
-**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+有一些早期证据表明，加强针可能会减少 Omicron 感染，但效果似乎会迅速减弱。我们不知道重复加强针是否能有效应对付Omicron 的激增。这取决于 Omicron 引起的疾病的严重程度，这是另一个很大的未知数。根据疾病预防控制中心的说法，绝大多数有症状的美国 Omicron 病例都是轻症。最好的政策可能是在保护最脆弱人群的同时，让Omicron发挥其作用，通过感染一个相对良性的菌株，自然地使绝大多数人对COVID产生免疫。正如英国疫苗接种和免疫委员会主席安德鲁·波拉德爵士在最近的一次采访中所说，“我们不能每四到六个月为全地球人接种一次疫苗。这是不可持续，也是负担不起的。”
 
-* * *
+无论在任何情况下，提交给法院的强制疫苗授权都不要求加强针。他们将“完全接种疫苗”定义为两针 Moderna 或 Pfizer-BioNTech 或一针强生公司疫苗。 即使加强针会有所帮助，这些授权也会让数万或数十万未得打加强针的员工继续工作，他们对 Omicron 感染的保护为零或负的影响。如果他们被感染，他们将具有高度传染性。换句话说，没有科学依据可以相信这些强制疫苗措施会遏制疾病的传播。
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+Omicron 在周五的口头辩论中很少被提及，但大法官们——尤其是那些最支持强制疫苗的大法官——似乎在极度错误的假设下工作。他说，斯蒂芬·布雷耶（Stephen Breyer）法官建议，如果强制接种疫苗，将防止所有新的 COVID 感染——每天 750,000 例新病例。这是非常错误的。大法官索尼娅·索托马约尔（Sonia Sotomayor）的断言也是如此，“我们有超过 100,000 名儿童，情况严重，许多人需要呼吸机。” [根据卫生与公众服务部的数据](https://healthdata.gov/dataset/COVID-19-Reported-Patient-Impact-and-Hospital-Capa/6xf2-c3ie)，目前确诊的儿科 COVID 住院人数不到 3,500 人，其中包括检测呈阳性和因其他原因住院的患者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+在美国法律中，当机构完全没有考虑对问题至关重要的事实时，法院不会支持机构的指令，这是不言而喻的。在许多情况下，鉴于情况发生了巨大变化，法院会将法规发回该机构进行重新考虑。正如美国哥伦比亚特区巡回上诉法院所说，如果该机构的行动“在记录上不可持续，那么适当的司法方法是撤销该行动，并将此事发回该机构进一步考虑”。
+
+HHS 和OSHA 都没有考虑过 Omicron，也没有说过一句疫苗对它有功效，原因很简单，它还没有被发现。在这种情况下，长期存在的法律原则要求大法官暂缓这些授权，并将其送回各机构重新审视。
+
+*蒙塔尼耶博士因发现人类免疫缺陷病毒而获得**2008**年诺贝尔生理学或医学奖。鲁本菲尔德先生是一位宪法学者。*
+
+原文链接：[https://www.wsj.com/articles/omicron-makes-bidens-vaccine-mandates-obsolete-covid-healthcare-osha-evidence-supreme-court-11641760009](https://www.wsj.com/articles/omicron-makes-bidens-vaccine-mandates-obsolete-covid-healthcare-osha-evidence-supreme-court-11641760009?st=oarrejygomh1ou6&amp;reflink=desktopwebshare_twitter)
+
+翻译：烟波浩淼 | 校对：断播| 编辑&发布：断播
 
  
 

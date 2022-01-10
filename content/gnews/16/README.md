@@ -2,21 +2,39 @@
 ---
 
 
-## 中共国正在加速推进数字人民币
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1844302/)
+## 别问春天到来我会做什么
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1844382/)
 
-作者：香草山健身部-风雨同舟
+作者：香草山健身部-新世界的一员
 ![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-中共国媒体鼓吹自1月4日以来数字人民币app下载掀起了热潮，同时数字人民币用户数、交易订单数及交易金额都有显著的增长。
+别问春天到来我会做什么？
+我在冬天里积淀的养分，
+会在春天里抽枝发芽，
+在夏季里悄然绽放—
+或许不是最美，
+却馨香四溢的花朵。
+然后，随着秋的到来，
+结成累累硕果。
+你会看到我谦卑地弯下腰，
+直到孩子们攀上我直刺虚空的枝头，
+采摘掉我所有的浆果。
+不管他们把玩、还是吃掉，还是随手抛弃，
+这些都无关紧要，
+我都会在萧瑟的秋风中，
+来一次仓促而铿锵的谢幕……
+或许我再也挺不过下一个冬天，
+如果那个冬天更加残苛，
+我会在风霜的摧折中死去，
+不过，我想我会死得很安详！
+那些长眠地底的种子，
+那些被孩子们嚼烂果肉随手抛散的种子，
+会冲破广袤的沃土，
+或者最贫瘠的石缝岩隙，
+在下一个春天生根发芽，
+长成郁郁葱葱的新株……
 
-![图片来源：视觉中国](https://n.sinaimg.cn/spider20201127/192/w1024h768/20201127/9458-kentcvx8282536.jpg)
-
-为了在全国尽快的推进数字人民币，中共在各个领域不遗余力的展开推广，在十个试点城市及冬奥会场景上，简化注册使用门槛，新用户注册仅通过输入手机号、设置用户名及支付密码，就可自行选择运营机构快速开通钱包。同时在工商银行、农业银行、中国银行、建设银行、[交通银行](http://stock.finance.sina.com.cn/usstock/quotes/BCMXY.html)、邮储银行、[招商银行](http://stock.finance.sina.com.cn/usstock/quotes/CIHKY.html)、网商银行（支付宝）、微众银行（微信支付）等9个运营机构的钱包上直接升级实名钱包。在数字人民币的入口上纷纷接入多家平台，在应用场景上大力推进“衣食住行“的拓展，美团、京东、小米、腾讯都已经完成了相应的支持和部署。[https://finance.sina.com.cn/tech/2022-01-10/doc-](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
-
-[ikyamrmz4183856.shtml?cre=sinapc&mod=g](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
