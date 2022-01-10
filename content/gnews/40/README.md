@@ -2,83 +2,40 @@
 ---
 
 
-## 全球疫情更新（澳洲和南非疫情的比较）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841042/)
+## 曾经想夺走罗纳尔多，如今中共国足球破产了 （二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1841173/)
 
-**整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-637.png)图片：雅典娜农场设计组 精灵蓝
-**一，全球疫情基本数据**
+编译：七龙珠
 
-感染总数：304,925,621（日新增2,226,791，14天增幅+195%）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-09-232921.jpg)图片来源：elconfidencial.com
 
-死亡总数：5,482,463（日新增6,196人，14天增幅–6%）
+接上篇：【[曾经想夺走罗纳尔多，如今中共国足球破产了 （一）](https://gnews.org/zh-hans/1841150/)】
 
-每万人感染人数：471.2762 人（除中国外）
+**毁灭纪事**
 
-**二，全球“疫苗”毒针统计数据**
+前西班牙巴塞罗那人和萨尔茨堡红牛的前锋乔纳森-索里亚诺（Jonathan Soriano），在2017年至2018年期间为北京国安效力，赢得了杯赛。这位前西班牙人球员还记得“看台上的激情”。“我们一过半场线，体育场就会轰雷似的欢腾。我经历过许多有6万名观众的比赛，气氛令人难以置信”。
 
-“疫苗”毒针注射总数：93.7亿
+索里亚诺认为，中共国足球的问题在于选择的模式。“他们有成为世界强国的想法，但选择的方式很复杂，因为他们联赛的增长是由于外国球员的到来。现在他们截然改变了方式，对转会设置障碍，并以税收限制外国人的工资，这导致了明星球员的外流”。
 
-完全“接种”：39.2亿人
+Gregorio Manzano于2014年2月11日入驻中共国，执教北京国安，2015年12月转而执教上海申花，并在贵州恒丰智诚结束了自己的执教生涯，在那里度过了两个赛季。“我已经有五年的时间没有做事情了。当我来到这里时，我是第三位在联赛、杯赛和亚冠联赛之间拥有最多比赛的外国教练，超过150场比赛。诚然，足球在全球范围内是相同的，但球员的特异性决定了每个地方的要求。而在那里，他们仍然缺乏技术和战术的发展。这就是为什么他们雇佣我，以及其他欧洲和南美的教练”，Manzano在与西班牙机密报的谈话中指出。
 
-完全“接种”百分比：50.3%
+Goyo支持乔纳森对中国足球理解方式的设想：“从中场开始，所有的球队都派出了外国球星，所以当我们参加欧洲冠军联赛时，这些球员给了我们竞争力。但是当中共国国家队比赛时，这种天赋就消失了。此外，他们超级联赛还有一个不成文的条件，联赛中的所有门将都必须是中国人。有一段时间，球队不得不派出两名中国U-21球员。所以他们会把他们放在首发的11人中，在两分钟内就有教练为了遵守了规则而改变了他们。这很疯狂。”
 
-**三，澳洲疫情和“疫苗”数据**
+对于教练来说，根本问题更多的是与俱乐部和经理的心态有关。他透露了他在获得中共国教练职位时谈判的经历：“有一天，足协给我打电话，向我提供中共国教练的职位。我打电话给我的经纪人，并与联合会的副主席和他的律师会面。当时他们在世界杯预选赛小组中排名垫底，只有1分。我们开了五个小时的会，我告诉他们，如果他们期望我确保他们的联赛资格，他们找错人了。我告诉他们，首先我们必须设定一个目标，然后讨论他们为实现这一目标所要投入的资源。他们给我剩余的六场比赛机会，但我告诉他们我需要两年的时间来改变全局。这六场比赛和第二年的亚洲杯，使我们能够制定中期计划。他们告诉我，如果球队打得好，他们会延长合同。我跟他们电话道谢后，起身离开，我怎么会跟一个在办公室的经理讨论是否喜欢球队的比赛方式呢？他们有一个完全不同的心态。他们没有耐心，不从中期考虑问题。”
 
-感染总数：972,457（今日新增 94,664人）
+索里亚诺也有同样的看法：“他们试图在五年内完成在任何地方都需要30或50年才能完成的事。如果你想吃土豆，你必须种植它们，给它们浇水并等待它们生长，没有其他捷径，无论你付多少钱，他们的水平都不会一下子提高。在西班牙和欧洲，有一项草根足球的工作，就是从小就开始学习和培养孩子们的足球技术和战术。而他们不想打地基，而是直接从房顶开始、从国家队开始踢足球。”
 
-死亡总数： 2,366人（今日新增 21人）
+（接下篇：【曾经想夺走罗纳尔多，如今中共国足球破产了 （三）】）
 
-每万人感染人数：295.6614人
+**新闻来源：**[elconfidencial.com] [Te querían quitar a Cristiano Ronaldo y ahora están en la ruina: el fútbol chino quiebra](https://www.elconfidencial.com/deportes/futbol/internacional/2022-01-09/quitar-cristiano-ronaldo-ruina-futbol-chino-quiebra_3353557/)
 
-“疫苗”毒针注射总数：44,013,098 （日新增+164,137针）
+* * *
 
-完全“接种”：18,975,245人
+*审核：Aries的星*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-第二针“接种”百分比：77.5%
-
-16岁以上人口接种至少一剂疫苗的比例：94.7%
-
-16岁以上人口接种至少两剂疫苗的比例：92.0%
-
-**四，疫情要闻和评论**
-
-澳洲的中共病毒感染总数已逼近百万。今天首都领地也将快速检测纳入在线报告系统，而下周新州的类似系统也将上线，因此可以预计到时病例数字将会继续暴增。让我们回顾一下澳洲疫情的历史与疫苗接种的情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-638.png)澳大利亚每日新增病例数曲线，蓝色箭头标识处为之前的3波疫情（图片来源：Our World in Data）
-上图中蓝色箭头和文字标出了之前的3波疫情，澳洲目前每日新增病例数字的暴增已经让之前的3波疫情相形见绌，在曲线图中已经很难辨识了。在[Our World in Data](https://ourworldindata.org/coronavirus-data)网站中可以看到每日图表的动图展示，就可以清楚看到之前3波疫情的曲线。图中红色箭头和文字标出了澳大利亚达到70%的“完全疫苗接种“的时间：2021年11月16日。从图中可以看出，澳大利亚的疫苗接种达到70%之后，疫情完全失控，其中当然也因为政府相信疫苗能够有效减少入院人数，放开了封城措施的因素，最主要的原因仍然是全民疫苗接种对抑制病毒传播根本毫无作用。而当下澳洲人口的疫苗接种率已经达到77.5%，16岁以上人口的接种率已经高达92%。本波疫情从12月13日开始，已经超过四周，仍然毫无缓解的迹象。
-
-作为对照，我们可以看下图南非的四波疫情的情况。南非的疫苗接种率仅有27.1%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-639.png)南非每日新增病例数曲线（图片来源：Our World in Data）
-南非的疫情已经越过了高峰，仔细查看[Our World in Data](https://ourworldindata.org/coronavirus-data)可以看到南非的本次疫情开始于2021年11月24日，到12月12日到达顶峰，其间不足4周，相比之下，澳洲的本波“奥米克戎“疫情从开始迄今已经超过4周，疫情曲线仍然在直线上升中。而且南非的四次疫情相当均衡。比较两国的四次疫情，其中固然有封城等限制措施的因素，但疫苗普及率在其中发挥了决定性的作用。人口远大于澳洲的南非，之所以从未出现澳洲这样恐怖的超过十万 的每日新增病例数字，正是因为疫苗接种率低，大部分人口的自然免疫力没有被所谓的疫苗削弱和破坏。
-
-讽刺的是，如今的疫苗政策在澳洲和各国已经成为政治正确，如此显而易见的事实面前，强制疫苗政策仍然继续推进，甚至加强针的强制政策也在南澳和新州相继开始实施。周一，被澳洲政府取消签证的网球选手德约科维奇的上诉案件即将判决。在美国法院，挑战拜登政府强制疫苗的案件也在进行中。让我们拭目以待，这些利用疫情，无视科学规律和事实，剥夺民众自由选择权利的荒唐行为能持续多久。
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 

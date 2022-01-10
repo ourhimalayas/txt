@@ -2,39 +2,46 @@
 ---
 
 
-## 5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841599/)
+## 有声|青海地震光？还是中共核武爆!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841795/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](https://assets.gnews.org/wp-content/uploads/2022/01/arillive.jpg)**图片来源：AirLive**
-**翻译：Georeg Warshing**
+配音：香草山教育部 – Rose
 
-**编辑：文泓**
 
-近日，美国手机运营商已同意对在50个机场部署的C波段发射机断网六个月。
 
-当地时间1月8日，据RT电视台报道，出于对网络扩展可能干扰飞机安全系统的担心，美国联邦航空管理局(FAA)发布了一份美国机场名单，将在这些机场周围设置5G缓冲区。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
 
-美国最大的两家电信公司AT&T和Verizon在与政府官员谈判时，正努力推出其*“*改变游戏规则”的C波段5G网络，联网日期由最早的原定12月推迟到1月5日，之后再延后了两个星期。**现在，美国联邦航空局表示，电信运营商已同意将数十个机场周围的5G发射塔断网至少六个月。**
 
-洛杉矶、拉斯维加斯、纽约、迈阿密和达拉斯等主要城市的机场被划定在所谓缓冲区，而像佐治亚州的亚特兰大机场和科罗拉多州的丹佛机场因为已设有自然缓冲区，其他没有计划在机场附近部署5G网络的则未设定缓冲区。
 
-**监管机构担心的是C波段5G可能扰乱飞机仪器**，**比如提供飞机离地高度信息的无线电高度计，**这是一种在低能见度情况下着陆很重要的安全系统。
+美东时间1月9日，盖特媒体发布“20220109文贵大直播”预告。主要话题中，有（中共国）青海省海北州门源（回族自治）县，8日凌晨发生6.9级地震，期间有网民拍摄到“地震光”。
 
-航空业领袖警告说，5G计划未来可能会对航班造成数千次干扰。美国航空的一家游说公司此前曾预测说，5G的推出可能造成数百万人的航班会被延误或取消。
+东京樱花团战友Love水星，跟帖了一段13秒自媒体视频，视频显示：8日凌晨01:45:34秒发生第一次球状白色闪光，01:45:36秒第二次闪光，01:45:40秒地面升起两条白色烟迹。
 
-美国联邦航空局表示，他们根据*“*交通量、低能见度天数和地理位置*”*编制了（5G缓冲区）机场名单。该机构还在为航空公司和制造商制定适航指令（强制性），以*“*提供消减不安全情况的替代方法*”，*并确保飞机配备*“*在高强度5G环境中证实为可靠和准确*”*的高度计*。*
+对比截图图片，不像地震光发生。第一次闪光面积大，呈球形爆闪；第二次闪光面积小，呈扇形向空中辐射。地面5秒以后白烟迹，疑是地空导弹发射尾迹。一条轨迹垂直上升，一条拐弯轨迹明显，消失正好是白光闪过的正上方。
 
-新闻链接: [FAA identifies dozens of airports affected by 5G rollout — RT World News](https://www.rt.com/news/545476-airports-buffers-faa-5g/)
+原文链接：[青海地震光？还是中共核武爆!](https://gnews.org/zh-hans/1839544/)
 
-发布： Frank2021
+音频处理：喜山必胜Maverick
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

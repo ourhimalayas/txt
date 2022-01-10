@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 4:16 AM (UTC)`
+
+1/09/2022 Miles Guo: The mRNA in the COVID vaccines is toxic! Please refer to Dr. Eglise’s protocols for prevention and treatment of the CCP virus; many professors in Communist China are ignorant when it comes to the COVID vaccines and the CCP virus; the CCP’s virus testing is not accurate at all, and gathering the people to do testing together simply harms the Lao Baixing. Why is the CCP not dare to tell the public how many people have died in Xi’an?<br/><br/>1/09/2022 文贵直播：疫苗的mRNA就是毒！请遵照Eglise医生的药方；国内很多教授对疫苗和病毒充满了无知；中共的病毒检测不准，集中检测就是坑害百姓，为何不敢公布西安的死亡人数？<br/>
+![img](https://media.gettr.com/group44/getter/2022/01/10/04/e2eb59c0-d052-111b-d295-7912120dc379/out.jpg)
+
+---
+
 `@miles 1/10/2022 3:12 AM (UTC)`
 
 1/09/2022 Miles Guo: How are China’s Kunlun Mountains related to Kazakhstan? The US, Europe, Russia, and CCP have recently shown their cards regarding the riots in Kazakhstan. The event in Kazakhstan indicates that the world’s landscape in terms of geopolitics and Feng Shui has completely changed. The US and Europe will no longer tolerate the expansion of the CCP and Russia to gain hegemony<br/><br/>1/09/2022 文贵直播：昆仑山跟哈萨克斯坦有什么联系？美欧俄中最近已就哈萨克斯坦的暴乱摊牌；哈萨克斯坦的事件说明全球地缘政治和风水格局已彻底改变，美欧将不再容忍中俄扩张称霸<br/>
@@ -163,14 +170,6 @@ EP3-Part 3: How does Isobel see Uyghurs? Let's tear down the monstrous lies of t
 
 EP2: Who is Miles Guo? What has the CCP done to Miles? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #whoismilesguo
 ![img](https://media.gettr.com/group41/origin/2022/01/05/17/313b91d7-15e4-02fd-6839-76b319d0d39b/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jockowillink 1/5/2022 4:43 AM (UTC)`
-
-Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>  https://gettr.com/user/Jockowillink
 
 ---
 

@@ -2,40 +2,25 @@
 ---
 
 
-## 有声|mRNA疫苗即病毒 新中国联邦用盖特照明世界
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841365/)
+## 安省尼亚加拉卫生部暂停强制接种
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841455/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月5日，郭文贵先生在直播中解答了为很多战友所疑惑的问题，即，很多人接种过两针以上的中共病毒疫苗且他们尽力做好了防疫工作，但他们为何仍会感染中共病毒。
+采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
 
-对此郭先生明确地指出，mRNA中共病毒疫苗本身就是病毒，其不需要传染过程即可使接种者感染，只是发作时间不定。郭先生表示，这也解释了欧洲某个领导人夫妇在接种过三针中共病毒疫苗且不出门的前提下，仍然感染中共病毒的缘由。
-
-郭先生强调，新中国联邦人除了没有接种过毒疫苗之外，我们不仅握有喜币，还拥有可以为真相发声的平台——盖特。
-
-原文链接：[mRNA疫苗即病毒 新中国联邦用盖特照明世界](https://gnews.org/zh-hans/1832996/)
-
-音频处理：喜山必胜Maverick
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-6-edited.jpg)图片来源：TNH
 
 
+据加拿大[环球新闻]1月6日报道，安省尼亚加拉卫生部表示，由于完全未预料到“奥密克戎”病毒的破坏程度所造成社区医疗护理需求的激增，因此卫生部被迫暂停对其医护人员实施疫苗强制接种规定，转而要求未接种的雇员进行定期的病毒抗原测试和筛查。
+
+此外，因目前医务工作者短缺和感染 “奥密克戎”的患者激增，尼亚加拉卫生部将关闭位于伊利堡的紧急医疗中心，并将其中的护士和医生部署到该地区的其他急诊部门。
+
+报道称，尽管如此，当局仍将致力于全员疫苗接种计划，并在以后不确定的时间继续进行。据官方资料显示，目前安省医护人员的疫苗接种率已达93%，因此这次暂停执行的是第三剂疫苗接种。
+
+* * *
+
+原文链接： [Niagara Health pauses mandatory COVID-19 vaccination program due to ‘intensity’ of Omicron](https://globalnews.ca/news/8492887/niagara-health-pauses-mandatory-vaccination-program/)
+
+[Mandatory Vaccination for all Staff and Physicians](https://www.niagarahealth.on.ca/site/news/2021/10/26/mandatory-vaccination-for-all-staff-and-physicians)
 
  
 
