@@ -2,16 +2,33 @@
 ---
 
 
-## 共产党原本意图打压爆料革命 却成为推进新中国联邦护照的一大助力
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1840895/)
+## 有声|独裁者以人类为祭品
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1840959/)
 
-不久前，杨洁篪和王毅要求某国领导人：1.必须亲自出席冬奥会； 2.必须停止讨论新中国联邦护照，并且拒接和爆料革命合作。共产党原本意图打压爆料革命，可结果是中共反而害怕新中国联邦到了极点，并且正在促成新中国联邦护照的出炉。冬奥会结束后，中共会报复这些“不听话”的国家。这些国家的手里的牌只有支持台湾，和达赖喇嘛见面，但是这些加在一起都不如和新中国联邦合作。护照晚一天，结果更美好！
+配音：香草山巡管部 – 格格
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月5日，郭先生在文贵大直播中谈到所有独裁者都认为，死人，是国家强大的必然结果。他们认为，人类的死亡就是独裁者的祭品。
 
-视频来源: 2022年1月7日郭先生大直播视频
-视频制作: 文星光
-文案:文星光、梦田
-上传: 零点
+希特勒当年说，德国人死一半，我们才能胜利。墨索里尼说，意大利死掉一半，意大利才能强大。日本天皇认为，日本人都死了，日本也能强大。西安的事情不是简单的历史的重复。希特勒，斯大林，苏哈托，阿明，天皇，他们共同的特点，从开始自己完全的偶然，经过吹捧，把偶然变成神迹。然后要干掉一切，包括上帝，自己变成上帝。
 
+习总加速师自信认为自己想干的事，国内老百姓支持，国外各国认可，然后就是打台湾。理所当然统治人民，自己当神。所有相信他的人都会成为陪葬品。可悲，可恨，但是必然结果。
+
+郭先生自信满满地说，有爆料革命在，必然会让中共独裁者的想法成为泡影。
+
+文字版原文：[独裁者以人类为祭品](https://gnews.org/zh-hans/1837008/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
