@@ -2,41 +2,39 @@
 ---
 
 
-## 关注：下周将发布举报福奇前所未有的爆炸性文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842764/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-翻译： Jenny Ball
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-681.png)图片来源 : thegatewaypundit.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
-“真相工程”(Project Veritas) 创始人詹姆斯·奥基夫（James O’Keefe）周六表示，他将在下周发布有关举报福奇博士的文件。
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
-“下周初将发布有关福奇博士的严重举报文件，敬请期待。”奥基夫在他的 Instagram 账户上宣布。
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
-当一切都说了都做了，当 COVID 大流行病平息后，**安东尼****·****福奇博士可能会被人们世代铭记为：**我们这个时代最大的大规模杀手之一。
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
-**安东尼****·****福奇在关于中共病毒的严重性，以及他资助中共病毒学实验室的背景，和病毒的起源方面，向美国公众撒谎了一年多**。
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-福奇还就安全药物羟氯喹 (HCQ) 在治疗病毒方面取得的成功，**向美国公众撒谎**。
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
 
-当 HCQ 可用时，就不会有数十万美国人死亡，**但被福奇和 ****CDC ****禁止给 ****COVID ****患者使用。**
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
 
-8 月，网关专家（Gateway Pundit）记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）专门报道了福奇在突尼斯对**比格犬进行的可怕实验**。
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
 
-该组织发现的文件可见，由福奇领导的美国国立卫生研究院(NIH)部门向突尼斯的实验室运送了 375,800 美元赠款的一部分，**以用寄生虫感染比格犬**。
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
 
-福奇是一个危险的疯子。
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
 
-**大多数美国人都明白这一点吗**？
+**新闻来源**
 
-新闻来源: [thegatewaypundit.com] [James O’Keefe: Explosive Never Before Seen Whistleblower Documents Coming Next Week on Dr. Fauci – STAY TUNED](https://www.thegatewaypundit.com/2022/01/james-okeefe-explosive-never-seen-whistleblower-documents-coming-next-week-dr-fauci-stay-tuned/)
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
 
-* * *
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

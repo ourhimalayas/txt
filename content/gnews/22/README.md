@@ -2,25 +2,41 @@
 ---
 
 
-## 澳洲开始为5至11岁儿童接种中共病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1842722/)
+## 关注：下周将发布举报福奇前所未有的爆炸性文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842764/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/101-1.jpg)图片来源于网络
-据澳大利亚9号新闻网报道，澳大利亚从1月10日开始，5至11岁的儿童有资格接种中共病毒疫苗。
+翻译： Jenny Ball
 
-澳卫生部长格雷格·亨特（Greg Hunt ）保证，这个年龄组的儿童有大量的疫苗可以使用，有大约230万5至11岁年龄组的儿童，1月份有300万剂疫苗，在未来两周内有200万剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-681.png)图片来源 : thegatewaypundit.com
 
-但是，家长们担心疫苗不够用，如果他们不能在返校日期到来之前为该年龄段的孩子接种疫苗，他们可能被迫回到家中学习。
+“真相工程”(Project Veritas) 创始人詹姆斯·奥基夫（James O’Keefe）周六表示，他将在下周发布有关举报福奇博士的文件。
 
-悉尼大学的传染病专家罗伯特·布依（Robert Booy）教授说，在返校前为孩子们接种疫苗不仅可以保护他们，而且如果孩子们在学校感染了这种疾病，还可以保护其他家庭成员不被感染。孩子们的适应力很强，他们能够比我们成年人更好地抵抗奥密克戎（Omicron）。接种疫苗是有意义的，它将保护儿童，防止他们感染病毒后的严重后果，接种疫苗也将阻止家庭中的传播，保护家庭中的脆弱成员不被儿童感染。
+“下周初将发布有关福奇博士的严重举报文件，敬请期待。”奥基夫在他的 Instagram 账户上宣布。
 
-所有流氓政府的套路如出一辙：政府站台，“砖家”背书。对于生活在澳洲的战友，政府的手已经伸向5-11岁的孩子，大家看好自己的孩子，大不了让孩子待在家里不去上学，我们有自己的G-Education，可以先让孩子在那里继续接受教育，培养我们的爆二代、爆三代。
+当一切都说了都做了，当 COVID 大流行病平息后，**安东尼****·****福奇博士可能会被人们世代铭记为：**我们这个时代最大的大规模杀手之一。
 
-新闻来源：[9news.com.au](https://www.9news.com.au/national/coronavirus-vaccination-update-australia-children-aged-five-to-11-eligible-for-covid-19-vaccine-from-january-10/ca1f4b62-3830-4100-b4b1-cfbf9e4a5a08)
+**安东尼****·****福奇在关于中共病毒的严重性，以及他资助中共病毒学实验室的背景，和病毒的起源方面，向美国公众撒谎了一年多**。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+福奇还就安全药物羟氯喹 (HCQ) 在治疗病毒方面取得的成功，**向美国公众撒谎**。
+
+当 HCQ 可用时，就不会有数十万美国人死亡，**但被福奇和 ****CDC ****禁止给 ****COVID ****患者使用。**
+
+8 月，网关专家（Gateway Pundit）记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）专门报道了福奇在突尼斯对**比格犬进行的可怕实验**。
+
+该组织发现的文件可见，由福奇领导的美国国立卫生研究院(NIH)部门向突尼斯的实验室运送了 375,800 美元赠款的一部分，**以用寄生虫感染比格犬**。
+
+福奇是一个危险的疯子。
+
+**大多数美国人都明白这一点吗**？
+
+新闻来源: [thegatewaypundit.com] [James O’Keefe: Explosive Never Before Seen Whistleblower Documents Coming Next Week on Dr. Fauci – STAY TUNED](https://www.thegatewaypundit.com/2022/01/james-okeefe-explosive-never-seen-whistleblower-documents-coming-next-week-dr-fauci-stay-tuned/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,30 @@
 ---
 
 
-## 我们不要成为造祸、背负灾难传播共产党邪恶思想的工具
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842785/)
+## 喜交所——引领下一代加密货币支付系统的“全球旗舰领军者”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1842802/)
 
-G-TV视频链接：[https://gtv.org/video/id=61dbec5187664c47acd2e291](https://gtv.org/video/id=61dbec5187664c47acd2e291)
+作者：sherryok（水云间）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-11.png)
+科技时代网站（Tech Times），是美国纽约一家关注硅谷公司，技术创新，以及领先科技与商业融合后所带来的文化转型内容的网站，看看它的文章标题，就知道他们的内容有多酷：“迪斯尼的专利表明它也正在进入元宇宙”、 “史克威尔艾尼克斯进军区块链游戏市场！新的 NFT 游戏即将到来”、“具有 Metaverse 的平台加强了艺术、品牌和流行文化之间的联系”。是不是非常吸引人? 近日，该媒体把目光聚焦到了一个新兴的加密货币交易平台-喜马拉雅交易所 （[Himalaya Exchange](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://himalaya.exchange/himalaya-pay)），标题是“为什么自给自足的加密生态系统代表了下一代支付系统”。不用说，该网站已经给喜马拉雅交易所戴上了引领下一代加密货币支付系统“全球旗舰领军者”头衔。
 
-**郭文贵先生：**刚才我回答你们刚才的问题，就是Isoble Yeung的问题，她不仅是一个极为危险的排华，还有更重要的事情大家还要看的一个本质，Isoble Yeung是一个国际婚姻，她是英国的娘中国的爹，生产出这么一个东西出来，恨外国人，恨中国人，而且你可以看到所有过去黑咱们爆料革命、还有黑七哥的，几乎所有的《塔斯社》、“马蕊强奸案”、“吴征案”都是出来的华人，到这儿当的记者。而且我们昨天早稻田大学的我们几位日本战友说，他说：七哥你知道那个出来不到一天，在我们的系里面就有人跟我说，你看到那个报导了吗？你们在日本就是我们的威胁。
+记者大卫.汤普森(David Thompson) 认为，支付系统的未来将属于那些以金融包容性为核心的平台。在实践中，这意味着进入门槛低、风险降低、交易成本降低以及速度和效率提高。而喜马拉雅交易所（简称喜交所）在这些方面独占鳌头，因为他拥有一个“自给自足的生态系统”。
 
-而且有台湾的两个孩子是在日本早稻田大学的，说：我收到了同样一个人发给我的信息，说我们在日本是他们的威胁。这个威胁有多大？你能给抹去吗？你告诉我你靠什么抹去？很多中国人你现在兴高采烈，你让他兴高采烈去，凡是那些高兴以爹亲娘亲不如党亲的人，你让他和党亲去，咱绝不拦着他。但是我们台湾这些同胞，香港的同胞，西藏、新疆的，还有我们海外的这些开了光的华人，我们不想把共产党当成爹妈。
+“这是市场上最新的方法”大卫说，喜交所通过创建自给自足的生态系统来，结合了“加密货币与传统货币相结合”及“商家在线钱包存储加密货币”两种目前最受欢迎的支付应用方式。它在一个平台上集成了其原生交易币-喜币（Himalaya Coin ‘HCN’）、稳定币-喜美元（Himalaya Dollar ‘HDO’）和支付应用程序-喜支付（Himalaya Pay）。
 
-那么我们怎么拯救他们呢？我们怎么让他们知道呢？GETTR就是最重要的一个平台、表达方式。还有一个我们大家要认识到很核心的问题，我们战友之间要团结，不要把自己那些个人的恩恩怨怨、狗屁唠叨的事儿搬到GETTR上去，你真的很丢人！你任何人在GETTR上作为战友你发诋毁战友、诋毁新中国联邦或诋毁华人的东西，你都务必小心，因为你一个人的事情会无限扩大。
+喜美元（HDO）固定为美元（USD），并有由美元和现金等价资产组成的储备作为后盾。因此，虽然喜币的市场价格可能会波动，但喜美元的固定价值为交易者和投资者提供了避风港，大大减少交易时因加密市场的波动产生的风险。
 
-恰恰是Isobel Yeung让你干的事，就是中国人是西方的威胁，中国人内斗，中国人不值得信赖，中国人是东亚病夫没有勇气，很懦弱，不要把唯一的中国人展示给外国人的平台，丢了自己黄皮肤的脸！就像我一开始直播，我最感谢的也到现在我认为爹娘告诉我的，出了国谁是你爹？是吧！出了国谁是你娘？中国是你爹，中国人黄皮肤是你娘。
+更加无与伦比的是喜交所交易的便利性，即将推出的喜支付（ Himalaya Pay ）应用程序以及相关交易市场，使得喜美元、喜币都能在同一生态系统中自由兑换，其便利与目前加密市场上各自为政，春秋战国的混乱局面不可同日而语。在同一生态系统中流通，“这很可能会流行起来”，记者大卫一语中的。同时由于大多数现有的全球加密资产由少数投资者（或加密“鲸鱼”）拥有并只在成熟的交易所买卖，因此新兴的喜马拉雅交易所可能会创建一个更易于访问、低成本和为加密货币新手入门的数字资产网络。
 
-你不管怎么样，你不要给亚洲人、黄皮肤人造祸，背负着这么多的灾难，你不要成为传播共产党这种邪恶思想的这么一个工具。我们要珍惜啊兄弟姐妹们，是吧？今天每个人的话都是真的是发自内心的，都是感动人的，而且很有好处。
+据[报道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/ilkerkoksal/2019/08/23/the-rise-of-crypto-as-payment-currency/?sh%3D1d459bc626e9)，到明年，全球电子商务预计将增至 5.69 万亿美元，其中 72% 的销售额来自移动设备。消费者希望能够在上下班途中甚至在当地邮局排队等候时进行商品和服务交易。事实证明，中共病毒大流行期间，在线购物趋势势头迅猛，消费者要求每周 7 天、每天 24 小时高效购物。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+高效，安全，便捷，零售业以惊人的速度走向数字化。用 Bigcommerce 首席执行官 Brent Bellm 的话来说，“到 2022 年，实体零售空间将只不过是陈列室而已”。2022已经到了，“自给自足的生态系统看起来有一个良好的开端，但比赛才刚刚开始”。大卫记者文章结尾的这句话与新中国联邦爆料革命的口号，“一切都是刚刚开始”何其相似。
 
-编辑整理：Jacques；
+这是一个多么神奇的开始！文贵先生在最近的直播中说，喜交所从2021年11月1日上线以来，短短两三个月的时间，创造的神奇，世界上的数字货币，几乎都在一个月内暴跌，能撑过两个月的几乎没有。喜联储的投资者们谁也没想到喜币能涨到40.今后，全世界你能想到的最牛的企业都会想和喜交所合作，为什么? 因为喜联储让他们看到，没有一个机构能让币值从0到400倍这样稳定的增长，而且绝对不会被挤兑，挤垮的，一个也没有。喜交所全球首创的加密货币生态系统，必将带领人类进入到一个全新的金融世界。
 
-字幕文件制作：小满；
+新闻链接：https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

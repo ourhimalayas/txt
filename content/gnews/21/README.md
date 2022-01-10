@@ -2,46 +2,54 @@
 ---
 
 
-## 若没有盖特全中国十四亿人在世界上没有一个说话的地方
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842724/)
+## 美国海军陆战队称拜登的疫苗强制令是“政治清洗”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842766/)
 
-G-TV视频链接：[https://gtv.org/video/id=61dbec0e87664c47acd2e27f](https://gtv.org/video/id=61dbec0e87664c47acd2e27f)
+#### 【雅典娜观察】和您一起探究世界
 
-**郭文贵先生：**你看特别重要，台湾某个所谓音乐界的“大咖”说，他说：“真的郭先生，我认识你那么多年，他说我真的要特别感激你，华人在全世界想说华人的话，说华人的故事，特别台湾的故事和华人这种没有任何地方，只有盖特”；然后另外一个台湾的一个金融家告诉我，他说：“七哥我每次看完盖特我都流泪，他说你知道为什么？台湾这样一个受威胁之中的一个小岛，我们没有任何，他说我们在line，我在Facebook，在什么，我们是不敢讲共产党的坏话的，讲一句都给我们删掉”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/marines-participate-in-an-amphibious-assault-exercise-as-news-photo-1617303504_-1.jpg)
 
-然后美国的咱们几个朋友说：郭先生，我们真不知道关于中国的事，我们从来不懂中国人不能跟共产党划在一起。他说：“我作为一个美国这样的人我真的意识到，我是刚刚的一个月以前我在盖特上知道”。他是一个民主党的人，他几个月以前就跟我签了，是民主党的前三号人物，都签了合同，到现在我们不公布。我们不公布的原因不是为了别的，我们是发生各种不想参和各种政治。他跟我说：“我真的在一个月以前才真的觉得川普，还有蓬佩奥啊这些人说的是对的，皮特纳瓦罗和班农，中国人不等于共产党，共产党不等于中国人”他说“我真的觉得越来越有道理”。
 
-你知道这是很恐怖的事情威廉王，我们中国人在十四亿人全世界上没有一个说话的地方。这对我们中国人，亚洲人多危险，现在已经不是中国人的事了，叫亚裔，亚裔啊。你看Isabel Yang 是把亚裔、日本人、所有人都列为了亚裔是西方民主的威胁，完全对立呀，黄皮肤和白皮肤人和黑皮肤的人。
+ 
+图片来源：SOPA IMAGESGETTY IMAGES
 
-这是意义多么重大，唯一的平台呀。所以说兄弟姐妹们要珍惜呀。这是天意给我们的。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+编译：小红帽
 
-编辑整理：Jacques；
+根据《自然新闻》1月9日报道，**在拜登政府的领导下，美国国家安全继续恶化，而且速度很快，这在很大程度上是由于一项不合理和不必要的新冠病毒（COVID-19）疫苗强制令。**
 
-字幕文件制作：小满；
+针对国防部长劳埃德·奥斯汀于8月发布的拜登新冠疫苗强制令，美国海军陆战队受到的影响最大。许多人认为新冠疫苗强制令是一种“政治清洗”，将一些最爱国的成员的力量耗尽。
 
-视频制作及上传：Cindy；
+据《福克斯新闻数字频道》上周报道，有169名海军陆战队员因拒绝接种这种实验性疫苗而被开除军籍。但是，在五角大楼对所有现役军人的新冠疫苗强制令于11月28日对美国海军陆战队生效后，还有成千上万的人面临着被开除的情况。
 
-G-News发布：小满；
+虽然海军陆战队员（和其他军人）被告知他们可以申请新冠疫苗的宗教豁免，但现在看来，拜登的政权显然永远不会批准他们，因为新冠疫苗强制令远比军事准备和国家安全更重要。没有一个豁免会被批准，而且根据《福克斯新闻数字频道》看到的拒绝信，几乎所有的豁免要求都是相同的。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+几位接受该媒体采访的海军陆战队员确信这一切都带有政治目的，因为该部队正被该疫苗强制令“压垮”。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“在这一点上，我们国家的领导层有一些根本性的错误，”一位服役超过17年的少校表示。“我们正面临着一项违宪的法令，我认为这是非常有针对性的政治清洗，把一些最优秀的和最聪明的士兵、水手、空军、海军陆战队和太空部队的守护者找出来。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+与此同时，一位现役超过19年的中校表示，军方正在努力遣散成员，特别是海军陆战队员，“以最快的速度和最残酷的方式，在被开除时尽可能地伤害每个海军陆战队员”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“我从上面的上校那里得到一个信息：‘要非常小心，这是政治，你会像蚂蚁一样被碾碎’。而他告诉我这些是因为他关心我，”这位中校称。“我是否想继续在一个因提出合理观点捍卫信仰而被压垮的机构里服务？”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+一位军士长说，似乎“我说得越大声，对我的螺丝就拧得越紧。当你被要求以某种方式行事，遵守某些规则，遵循某些程序，然后在另一端看到这不是一条双向的街道，这是对我道德的侵犯，我不能袖手旁观，不把问题说出来。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+据悉，所有拒绝信表达了同样的意愿：海军陆战队员被拒绝是由于“军事准备”方面的考虑。这是很讽刺和虚伪的，因为遣散海军陆战队员会产生空缺，招募人员需要时间去填补。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“我看到一个中士寄来的包裹，他附上了大约30页的材料，以证明他的信仰是真诚的，而他没有任何法律义务这样做，”这位中士长说。“然后把这个作为回应，不进行个人调查，只是笼统地断言政府的利益，这是对我的侮辱。”
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+“在宗教方面，这绝对是一个悲剧，”一位首席准尉指出。“人们被统统拒绝，他们没有解决提交宗教便利的海军陆战队员的个人关切或信仰。我认为这是个可怕的错误。我真的认为，他们并没有真正阅读这些包裹。”
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[National security alert: Marines say Biden vaccine mandate is akin to “political purge” as military readiness being “crushed” with forced discharges – NaturalNews.com](https://www.naturalnews.com/2022-01-09-marines-biden-vax-mandate-is-a-political-purge.html)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

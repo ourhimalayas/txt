@@ -2,48 +2,32 @@
 ---
 
 
-## 疫情期间，西安市民被像牲口一样对待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842612/)
+## 英国疫苗前负责人：应该停止大规模接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842614/)
 
-作者：银河勇气星—骄子
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-16.jpg)图片来源：mint
+1月9日，《国家脉动》记者凯·斯迈思（Kay Smythe）发布文章，报道英国疫苗工作组前负责人克莱夫·迪克斯（Clive Dix）博士表示，国家的大规模中共病毒（COVID-19）疫苗接种活动应该结束，同时也应该结束对“病例数”的无休止追踪。迪克斯博士告诉《天空新闻台》，最初的疫苗是为了阻止感染和传播，但却不成功。
 
+过去，中共病毒疫苗同样是为了防止严重疾病，但目前这波新的中共病毒变体意味着这些中共病毒疫苗无法阻止感染中共病毒。迪克斯博士解释说，（因为）新的中共病毒变体“温和的多”，因此“给那些不会得严重疾病的人注射越来越多的（中共病毒）疫苗是毫无意义的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+去年六月，当迪克斯博士被任命为英国政府疫苗工作组主席时，他呼吁在部署接种中共病毒疫苗时要采取更加有针对性的措施方法。该立场也是大多数反对强制接种中共病毒疫苗支持者所持的立场，而这些反对者被媒体（诬蔑）称为“反疫苗者”。
 
+这位老资历的药学家解释说，疫苗的部署应该专注于为社会中最脆弱的群体提供保护，例如肥胖症儿童。
 
+迪克斯与其他医生有类似的观点，认为中共病毒疫苗背后的科学依据并不充分，他说：“人们应该去工作，去做他们的事情。如果他们生病了，就回家去，呆在家里”。
 
-1月9日，西安一位居住在大寨路恒大城，名叫杨海的老百姓在社交媒体愤怒发声。称住在同小区的上万名居民都已经按照中共疫情防控要求在家隔离了十七天之久，但都面临生活物资极度短缺的问题。并且中共防疫就是将小区大门强行用铁丝锁起，住在里面的老百姓进不去出不来，政府所谓的绿色物资通道就是一句空话，老百姓像被牲口一样对待。被封锁的老百姓只能时刻在家等死。
+而迪克斯博士表达的最重要的信息是，我们应该“停止测量病例数，并固定在停止这些数字上……我们现在需要管理疾病，而不是病毒传播”。他强调要阻止中共病毒在脆弱群体中发展成为一种严重的疾病，而阻止中共病毒的发展将意味着医院必须在门诊环境中进行早期干预和护理。
 
-据悉，该视频一经发布已被微信删除，并且杨海之女发在twitter的视频链接也已同样被删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-1.jpg)
-参考链接：
-1. [西安大寨路恒大城业主很愤怒啊……](https://m.weibo.cn/status/4723658155888031?)
-2. [CCP把人民当成畜生来对待！西安市民愤怒！不知道还有多少个小区是这样对待却不能发声！](https://gettr.com/post/pn7gio3ffd)
-3. [这是我爸爸，微信已经把这个视频在他的微信视频号上封 。政府防疫就是把人民用铁丝网锁起来，不管生死。在你们眼里人民的生命就是蝼蚁一般。](https://twitter.com/qyemmay/status/1479934290792046594?s=21)
+然而，英国的NHS和美国主要医疗机构仍然有意解雇未接种中共病毒疫苗的医护人员，导致已经不堪重负的医疗系统可能出现重大的人员短缺。据报道，2021年10月份，英国卫生部长萨吉德·贾维德（Sajid Javid）就正在计划解雇多达10万名不愿接受中共病毒疫苗接种的NHS工作人员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+文章作者认为，从迪克斯博士的评论中可以得出结论，他认为中共病毒是人类“新常态”的一部分。迪克斯说：“英国必须停止对民众的大规模（中共病毒）疫苗接种”。
 
-总编/编辑：文特
-校对/发稿：为真不破20
+**新闻来源**
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[WATCH: Vax Taskforce Chief Says Mass Vaccination ‘Pointless’, Time to Stop Counting Case Numbers.](https://thenationalpulse.com/2022/01/09/watch-vax-taskforce-chief-says-mass-vaccination-pointless-time-to-stop-counting-case-numbers/)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 重庆武隆区一食堂疑似发生爆炸，造成多人被困
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842263/)
+## 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842265/)
 
-1月7日重庆武隆区一食堂疑似发生爆炸，造成多人被困。官方通报，最终26获救，16人死亡。
+01/08/2022 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

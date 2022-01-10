@@ -2,10 +2,10 @@
 ---
 
 
-## 英国NHS医生对卫生大臣表示：他不会接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842229/)
+## 盖特CEO杰森·米勒：我要推翻中共政权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842261/)
 
-01/07/2022 英国NHS医生对卫生大臣表示：他不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。
+01/07/2022 盖特CEO杰森·米勒：我要推翻中共政权。我想要将民主和自由带到缺失它们的地方。这就是为什么我仍然认为从根本上社交媒体能成为一股善的力量。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

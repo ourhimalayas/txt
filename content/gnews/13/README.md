@@ -2,29 +2,46 @@
 ---
 
 
-## 大直播后记——七哥谈“养老”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842810/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-整理：雅典娜速记组
-编辑：Kelly
+#### 翻译：奋斗
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/ONHIHEUBX18Z25ZIK31.png)图片来源：雅典娜设计组
+#### 校对：精靈藍
 
+#### 剪辑/字幕：向上James
 
-两千五六百年前春秋战国的时候，最要解决的是什么？就老有所养，少有所依。我没记错的话，春秋战国距今两千五六百年了吧？中国的夏时代，这是什么年代了？讲的是什么？老年人就是我们的活神仙，孩子就是我们的未来，叫传宗接代，是每个人要有的权利。
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-共产党到今天，爹亲娘亲不如党亲，全中国的地都成了它的。中国老年人靠养老金，啥叫养老金？养老金是统治阶级统治人类最愚蠢最低级的方式，中国几千年前都已经有，过去的养老是靠什么，就是家里边孩子养老。古代税赋这么重的时候，春秋战国起，过了45岁的男子不参加兵役，不再交各种税费，打的粮食给皇帝是四六开，你留六，给皇帝四，年景不好的时候是五五开，到45岁就不用交了。老年人走到哪儿就像今天公交车票免费一样，皇帝是各种形式不收钱的，甚至餐馆都要求给老人打折，这是中国几千年的文明。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-共产党现在让你（70岁）去公园免费，竟然老人家高兴的不得了。啥叫养老金，养老金本身就是你的钱，你是活到这个年龄的时候，你给社会的贡献已经足够，必须给你养老，否则他不敢有统治阶级。
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-美国、欧洲，所有西方国家老年人是必须有人管的，你买养老保险，老年是不可能流落街头，绝不可能，这叫资本主义社会。就连古巴这种社会主义社会，老年人也不会饿死，只有中国老年人活不起、死不起、埋不起， 而且关键还把整个老人赖以生存的，最根本的基石——孩子养老和自己应该得到社会尊敬的体系给毁坏了。把中国老人变成了什么？碰瓷儿（这事）是一个罪魁祸首，失去了人心和人存在的基本逻辑和关系。
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
 
-新中国联邦灭掉共产党以后，大家一定记住，七哥第一次告诉你们的，今天是2022年1月9号，我们一定要保证，第一个要恢复的就是中国人最重要的基石——社会的DNA，家庭的关系、伦理的正常化。孩子养父母、父母照顾孩子，父母是孩子的第一任老师，这是整个中国社会一开始必然要走的、最核心的一条路。第二个，中国人要走向社会教育，中国的教育应该是最最重要的，一个国家没有教育就不可能有信仰，有善良。教育是建立法治、信仰社会（的基础），有良知是人和畜牲的分水岭，这样才能有法治，有道德。第三个，对于老年人，五十岁以后，国家必须负责养老治病，从送终到埋葬都是免费的。新中国联邦一定会很快实现这个，不用太长时间，它远比恢复河山容易。
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
 
-发布：tianzhihuan
+It’s not a battle about land, this is actually a battle for the minds.
 
-**
-**更多资讯，请关注：**
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
+
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
+
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
+
+What people are seeing is now the battle between good and evil between Satan and the devil.
+
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
+
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
