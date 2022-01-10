@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 11:07 PM (UTC)`
+
+1/09/2022 Miles Guo: Why did Zeng Qinghong choose South Putuo to hold the South Putuo Meeting? Does that have to do with the Feng Shui of the entire China? Chongqing is inextricably linked to many major events in the history of China. Why is it the case that the people of Chongqing have been enduring the most hardships among all Chinese?<br/><br/>1/09/2022 文贵直播：曾庆红为何选在南普陀开南普陀会议？这和整个中华大地的风水有何关联？重庆和中国的诸多历史大事有着千丝万缕的关系，为什么说重庆人是中国中最辛苦的？<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/10/23/40257fbb-03d9-e34f-78db-6734227f36ad/out.jpg)
+
+---
+
 `@miles 1/10/2022 8:37 PM (UTC)`
 
 1月10号：干细胞的时代将是人类面临的一个生命长短的巨大本质的转变时代，很快即将到来，关键是谁能拥有获得使用干细胞的财富，谁又能在这场财富与生命的较量中成为赢家呢？
@@ -156,13 +163,6 @@ My first post. Just want to test how many Chinese people are there.
 
 A vaccine developer is not fully confident about what's happened over the last 18 months. Some very new technologies such as mRNA vaccines are in their infancy. These are the COVID-19 vaccines that you are forced to vaccinate in order to remain in employment. His personal perspective is first no harm and second the principles of informed consent.<br/><br/>一位疫苗开发者对过去18个月发生的事情没有充分的信心。一些诸如mRNA疫苗的新技术还在萌芽阶段。这就是你们为了保住自己的工作被强制接种的新冠疫苗。他的个人观点是：首先疫苗接种无害，其次遵守知情同意的原则。
 ![img](https://media.gettr.com/group1/origin/2022/01/09/12/7dc76986-eb43-42c5-58e0-f2a6c99dc1f9/out.jpg)
-
----
-
-`@miles 1/9/2022 1:42 AM (UTC)`
-
-mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、大政府、大媒体是如何通过压制信息，使人们无法对疫苗的真实情况进行了解，进而无法做出准确判断的<br/><br/>Dr. Malone, co-inventor of the mRNA vaccines, talks about how big tech, big pharma, big government, and big media are suppressing information so that people cannot get a true picture of the vaccine and thus cannot make accurate judgments
-![img](https://media.gettr.com/group23/getter/2022/01/09/01/859efe05-4e82-1be3-da54-d32a3351b83e/out.jpg)
 
 ---
 

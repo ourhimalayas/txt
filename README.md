@@ -15,86 +15,86 @@
 
 ---
 
-### [1/09/2022 文贵直播：中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立](/content/gnews/1/README.md)
+### [演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [1/09/2022 文贵直播：中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2022年1月9日：世界板块将大变](/content/gnews/2/README.md)
+### [【粤语配音】2022年1月9日：世界板块将大变](/content/gnews/3/README.md)
  ` MOS香港部`
 
-### [讣告声讨指责拜登政权强制疫苗令](/content/gnews/3/README.md)
+### [讣告声讨指责拜登政权强制疫苗令](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [大直播后记：文贵先生谈“人生如梦”](/content/gnews/4/README.md)
+### [大直播后记：文贵先生谈“人生如梦”](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈大洗牌（2022-01-07摘录）](/content/gnews/5/README.md)
+### [七哥谈大洗牌（2022-01-07摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [大直播后记：文贵先生谈“喜马拉雅力量之源”](/content/gnews/6/README.md)
+### [大直播后记：文贵先生谈“喜马拉雅力量之源”](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒疫苗的主要成分清单](/content/gnews/7/README.md)
+### [中共病毒疫苗的主要成分清单](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国因中共病毒死亡的病例中近75%注射过疫苗](/content/gnews/8/README.md)
+### [英国因中共病毒死亡的病例中近75%注射过疫苗](/content/gnews/9/README.md)
  ` Itana`
 
-### [七哥说心态最重要（2022-01-07摘录）](/content/gnews/9/README.md)
+### [七哥说心态最重要（2022-01-07摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [中国保险业银行业的腐败，再说王滨（三）](/content/gnews/10/README.md)
+### [中国保险业银行业的腐败，再说王滨（三）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈精神疾病（2022-01-07摘录）](/content/gnews/11/README.md)
+### [七哥谈精神疾病（2022-01-07摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥谈备药（2022-01-07摘录）](/content/gnews/12/README.md)
+### [七哥谈备药（2022-01-07摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈流氓国家的强制疫苗政策（2022-01-07摘录）](/content/gnews/13/README.md)
+### [七哥谈流氓国家的强制疫苗政策（2022-01-07摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [中国保险业银行业的腐败，再说王滨（二）](/content/gnews/14/README.md)
+### [中国保险业银行业的腐败，再说王滨（二）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生：王滨被抓意味着王岐山的下场已成定局](/content/gnews/15/README.md)
+### [郭文贵先生：王滨被抓意味着王岐山的下场已成定局](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈Omicron感染（2022-01-07摘录）](/content/gnews/16/README.md)
+### [七哥谈Omicron感染（2022-01-07摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [七哥谈大直播(2022-01-05摘录）](/content/gnews/17/README.md)
+### [七哥谈大直播(2022-01-05摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥说: “爱、诚实和灭共是我们在一起的根本基础”](/content/gnews/18/README.md)
+### [七哥说: “爱、诚实和灭共是我们在一起的根本基础”](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [2022/01/10 大卫作战室直播精要](/content/gnews/19/README.md)
+### [2022/01/10 大卫作战室直播精要](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [赌博心理学](/content/gnews/20/README.md)
+### [赌博心理学](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/21/README.md)
+### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/22/README.md)
  ` 华盛顿DC-Russian`
 
-### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/22/README.md)
+### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/23/README.md)
+### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/24/README.md)
  ` 华盛顿DC-Russian`
 
-### [健康儿童不需要接种COVID-19疫苗](/content/gnews/24/README.md)
+### [健康儿童不需要接种COVID-19疫苗](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/25/README.md)
+### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/26/README.md)
  ` 华盛顿DC-Russian`
 
-### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/26/README.md)
+### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
-
-### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/28/README.md)
  ` 华盛顿DC-Russian`
@@ -150,35 +150,35 @@
 ### [新中国联邦护照是灭共战略 令中共恐惧至极](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [01/10每日播报｜新闻简讯:哈萨克斯坦骚乱 西安民生环境恶化 李云迪被抓后消失近3个月](/content/gnews/46/README.md)
+### [斯坦福大学教授游说司法部停止打击中共的渗透活动](/content/gnews/46/README.md)
+ ` 纽约香草山MOS01`
+
+### [01/10每日播报｜新闻简讯:哈萨克斯坦骚乱 西安民生环境恶化 李云迪被抓后消失近3个月](/content/gnews/47/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022年1月9日 文贵大直播 全文字版](/content/gnews/47/README.md)
+### [2022年1月9日 文贵大直播 全文字版](/content/gnews/48/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新西兰财经G乐部2022年1月10日:财经新闻整理](/content/gnews/48/README.md)
+### [新西兰财经G乐部2022年1月10日:财经新闻整理](/content/gnews/49/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [荷兰因为“预期的风险”而处于极端封锁状态](/content/gnews/49/README.md)
+### [荷兰因为“预期的风险”而处于极端封锁状态](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [Eglise医生一起欢度圣诞及再谈如何吃药全文字版](/content/gnews/50/README.md)
+### [Eglise医生一起欢度圣诞及再谈如何吃药全文字版](/content/gnews/51/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [班农战斗室：中共不遗余力地说西安没有奥米炕病例](/content/gnews/51/README.md)
+### [班农战斗室：中共不遗余力地说西安没有奥米炕病例](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农战斗室：中共在蓄谋发动世界大战](/content/gnews/52/README.md)
+### [班农战斗室：中共在蓄谋发动世界大战](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [重磅！新中国联邦第一次关于教育和养老政策的宣告](/content/gnews/53/README.md)
+### [重磅！新中国联邦第一次关于教育和养老政策的宣告](/content/gnews/54/README.md)
  ` YALUN 亚伦`
 
-### [中共房地产的崩塌会推进人类文明再次飞跃](/content/gnews/54/README.md)
+### [中共房地产的崩塌会推进人类文明再次飞跃](/content/gnews/55/README.md)
  ` GTV新闻访谈`
-
-### [1/9银河快讯:东京22政年初步预算约为7.8万亿日元；世博会投标延迟和材料成本上升](/content/gnews/55/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [俄罗斯害怕哈萨克斯坦发生“颜色革命”急忙派兵平乱](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
