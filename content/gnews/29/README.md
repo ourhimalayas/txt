@@ -2,45 +2,46 @@
 ---
 
 
-## 重拾自信心
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1842319/)
+## 加拿大军官要求调查武汉军运会 疑该处是病毒发源地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842425/)
 
-作者：香草山农场教育部 – 雨过天晴Rainbow
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+作者：银河勇气星—骄子
 
 
 
-“很多人问过我，为何这么自信？唯一让你自信的，是你内心充满了和别人不同的知识和经历，你没去过七女峰，加拿大大瀑布，玛雅文化遗址，缅甸过去最早佛教文化的地方，没看过这些，你不可能有自信。我最痛苦的，每天从厕所出来，我得跟家里人装傻。不这样我的自信都漾出来了。我跟很多人说话，时刻告诉自己，要回到当下来。只有我敢说水往上流，你们都是往下流的。共产党就是把中国人的自信拿走了。”
-今天的大直播里文贵先生对战友们推心置腹吐露着心声，用其特有的人生经历和阅历丰富的知识向我们展示他那鲜为人知的懊恼。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16x9-feature-photos-MOS-logos-3.png)
-何尝不是啊！多少有理想和抱负，有学识和智慧，有正义和信仰人们的自信心，在中共国几十年的极权统治下早都被剥夺至一丝不挂⋯⋯ 
-被历次名目繁多的政治运动无辜牵连的人们失去自信；敢于表达正义声音遭受打压的人们失去自信；惨遭各种伤害求助无门的人们失去自信；被愚昧无知、论调耻笑的求真求实的人们失去自信；辛勤却拘紧贫穷的人们在人模狗样的爆发户前失去自信。感叹啊，太多太多失去的自信啦！
-久违的个人自信心，生活在自由民主的国家让我拾回一点点自信；学习工作、平等机会让我拾回自信；不同种族、同事之间融洽关系拾回自；努力工作，得到晋级报酬拾回自信⋯⋯
-如今我参与爆料革命，用那蹩脚英语和需回炉的中文写着过去、现在、还有将来。推文、盖文和GNews 的发表的每字每句都将展现生命中我曾有过的自信心！
-新中国联邦人灭共自信心满满！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑/校对/发稿：为真不破20
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
+
+国外媒体1月9日报道，一位曾参加过中共武汉军运会的加拿大军官，要求调查当时武汉的中共病毒情况。这位军官说，2019年10月各国运动员到达武汉后，整个城市空无一人，“像一座鬼城”。他们被告知，这是中共特意为了运动员而准备的优厚待遇。八天后，加拿大的运动员绝大多数都出现了类似中共病毒感染后的症状，以至于运动会结束后，飞机不得不采取隔离措施。直到现在，他的身体仍非常虚弱，健康素质大不如前。后来医生非常肯定地告诉他，那时他一定感染了中共病毒。
+
+据悉，参加军运会的很多欧洲运动员也出现了类似症状，有位伊朗运动员甚至在回国后就去世了。
+
+但是中共非常坚定地否认，坚称中共病毒零号感染出现在2020年12月8日。 后来，他甚至被强制不允许谈论军运会上运动员感染病毒的事实。官方刻意推诿，帮助中共掩盖，他强烈呼吁对此事进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-3.jpg)
+参考链接：
+[REVEALED: Canadian military officer calls for a probe into a ground zero ‘Covid’ outbreak at Wuhan forces games TWO MONTHS before world was alerted to the ‘mysterious new illness’](https://www.dailymail.co.uk/news/article-10382127/Canadian-military-officer-calls-probe-ground-zero-Covid-outbreak-Wuhan-games.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,49 +2,28 @@
 ---
 
 
-## 加拿大军官要求调查武汉军运会 疑该处是病毒发源地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842425/)
+## 习近平普京为侵略而歪曲历史洗脑百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1842508/)
 
-作者：银河勇气星—骄子
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-664.png)[图片来源](https://www.bbc.com/zhongwen/simp/world-44425433)
+美国《华盛顿邮报》近日刊载一篇由作家布特（Max Boot）撰写的专栏文章，将俄罗斯总统普京与中共国主席习近平并列，分析2人在乌克兰和台湾事务上，都对历史采取偏颇的解读，借此正当化自己的侵略行为。
 
+在这篇题为《普京和习近平扭曲历史，为侵略乌克兰和台湾的战争辩护》的文章中，布特提到，普京曾在2008年提出，乌克兰不是一个国家的表述，还在去年7月发表长篇文章，论证俄罗斯人和乌克兰人属于同个民族及个体，并指控外国邪恶势力试图将乌克兰人诱离正确的位置。同样在去年7月，习近平也于中共百年党庆上，宣称解决台湾问题、实现中共国的完全统一，是一项历史使命及不可动摇的承诺。
 
+不间断的政治宣传，导致2国民众普遍认同领导人所提出的这些论证，但布特认为，这一切都是基于“有偏见地解读历史”，不管是中共国还是俄罗斯，都未对台湾和乌克兰有过持续性的统治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+报导并引述历史理论，指俄罗斯和乌克兰虽同样起源于“基辅罗斯”（Kievan Rus），不过13世纪蒙古人入侵后，俄罗斯和乌克兰就完全走向不同的发展，乌克兰也发展出一套完全独立的语言与宗教。18世纪末，帝俄吞并乌克兰大部分土地，试图压制乌克兰语言和民族认同，但以失败告终；1917年俄国革命爆发时，乌克兰进一步宣布独立，虽然在1922年被强迫加入前苏联，但陆续都有乌克兰的游击队力抗苏联统治，直到前苏联在1991年解体，当时有超过92%的乌克兰人都投票支持独立。
 
+台湾部分，虽然早在7世纪就有一些华人在台湾定居，但到1683年才开启中国为期2个世纪的统治，一直到甲午战争战败而将台湾割让给日本；虽然二战结束后台湾回归政权，但共产党于1949年夺取北京政权后，中华民国政府便已迁台，局势持续至今日，尽管过去70多年，台湾并未正式宣布独立，但实质上确实已是主权国家。
 
+布特也声称，乌克兰和台湾，虽然在军事实力上，明显弱于俄罗斯和中共国，但如果政府的正当性是来自被统治者的同意，那乌克兰和台湾实际上是比中俄的独裁政权更合法的国家，因此若普京扩大对乌克兰的攻击，或者习近平对台湾发动攻击，都不是所谓的国家统一战争，而将是“对主权国家的侵略”，呼吁所有遵守法治的国家，都应尽其所能地予以抵制。
 
-国外媒体1月9日报道，一位曾参加过中共武汉军运会的加拿大军官，要求调查当时武汉的中共病毒情况。这位军官说，2019年10月各国运动员到达武汉后，整个城市空无一人，“像一座鬼城”。他们被告知，这是中共特意为了运动员而准备的优厚待遇。八天后，加拿大的运动员绝大多数都出现了类似中共病毒感染后的症状，以至于运动会结束后，飞机不得不采取隔离措施。直到现在，他的身体仍非常虚弱，健康素质大不如前。后来医生非常肯定地告诉他，那时他一定感染了中共病毒。
+消息来源：[华邮：蒲亭习近平为侵略而扭曲历史](https://tw.news.yahoo.com/%E8%8F%AF%E9%83%B5-%E8%92%B2%E4%BA%AD%E7%BF%92%E8%BF%91%E5%B9%B3%E7%82%BA%E4%BE%B5%E7%95%A5%E8%80%8C%E6%89%AD%E6%9B%B2%E6%AD%B7%E5%8F%B2-041739545.html)
 
-据悉，参加军运会的很多欧洲运动员也出现了类似症状，有位伊朗运动员甚至在回国后就去世了。
-
-但是中共非常坚定地否认，坚称中共病毒零号感染出现在2020年12月8日。 后来，他甚至被强制不允许谈论军运会上运动员感染病毒的事实。官方刻意推诿，帮助中共掩盖，他强烈呼吁对此事进行调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-3.jpg)
-参考链接：
-[REVEALED: Canadian military officer calls for a probe into a ground zero ‘Covid’ outbreak at Wuhan forces games TWO MONTHS before world was alerted to the ‘mysterious new illness’](https://www.dailymail.co.uk/news/article-10382127/Canadian-military-officer-calls-probe-ground-zero-Covid-outbreak-Wuhan-games.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

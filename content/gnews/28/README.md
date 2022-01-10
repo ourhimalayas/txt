@@ -2,30 +2,46 @@
 ---
 
 
-## 英国港人支持新闻自由 期盼香港外媒填补资讯空白
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1842321/)
+## “真相工程”组织将公布有关福奇的严重举报文件
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842426/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3FCE83CC-12F2-40E2-8D26-30851F7DFFED_w1023_r1_s.jpg)英国伦敦京士顿2022年1月9日出现港人组人链支持香港新闻自由（美国之音特约记者郑乐捷）
-据美国之音1月10日报道，香港《立场新闻》和《众新闻》关门停业后，海内外香港人感到失去最重要的消息来源，很难得知香港的真实讯息。有港人团体在英国10个城市发起示威，支持香港记者和新闻自由。其中最大型的集会是9日在伦敦京士顿的人链活动，有约1,000人参与，人链长达1,200米。
-
-海外香港学者表示，批评港府的媒体被逼关门前有几种迹象。“亲北京的媒体头版大篇幅，或是用挑衅的字眼攻击，试图做一个寒蝉效应，让那些媒体考虑，他们的员工继续进行新闻采访是否安全。”而且事前会有一些“中间人”，或来自国安，或来自同一行业亲政府的从业员来传讯息，警告相关媒体。
-
-从事媒体工作的香港人要在海外开创新闻机构，例如《端传媒》总部已经搬去新加坡。《如水》 是第一本实体海外香港人杂志，亦可在网上阅读。另一个报道香港新闻的海外媒体《同文》在台湾营运 。但是海外媒体的困难在于不会有本地记者，不能做即时新闻或描绘本地实况，例如法庭新闻。
-
-自国安法实施后，香港失去了新闻自由，一切言论加以管控。曾经的东方之珠失去了自由和文明的光芒，大批港人离开香港，移居他国。但是香港总有一天会再现荣光，就在中共灭亡之后。中共不灭，香港不会重生。
-
-新闻参考链接：[https://www.voachinese.com/a/hong-kongers-in-uk-rally-for-press-freedom-in-hk-20220110/6389720.html](https://www.voachinese.com/a/hong-kongers-in-uk-rally-for-press-freedom-in-hk-20220110/6389720.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约磐石农场—在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+台湾媒体报道，1月8日，美国非营利调查组织“真相工程”创办人奥基夫发布预告称，将在下周公布关于白宫首席医疗顾问福奇的严重举报文件，进一步揭发他的真面目。 据悉，美国国家过敏与传染病研究院院长福奇，曾再三否认捐款给中共武汉病毒研究所。不过后来，该研究院的上级部门——美国国立卫生研究院——间接承认了此事，因而福奇涉嫌向国会做伪证。另外针对民众是否应该带口罩防疫、以及群体免疫门槛等问题，福奇说法前后不一，多次反复。去年6月，他又改口承认捐款给武毒所，并称不相信中共病毒来自自然。
+
+奥基夫表示，福奇对于中共病毒的严重性、他资助中共病毒学实验室的背景，以及中共病毒的起源等问题，对美国公众撒谎了一年多。并强调说，当一切尘埃落定，中共病毒疫情大流行平息时，福奇会被人们记住，他是我们这个时代最著名的大屠杀者之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-3.jpg)
+参考链接：
+[美防疫專家佛奇跌落神壇 調查組織預告將再爆猛料](https://news.ltn.com.tw/news/world/breakingnews/3795272)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
