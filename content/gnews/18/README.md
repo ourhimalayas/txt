@@ -2,36 +2,22 @@
 ---
 
 
-## 有声|西安盒马烘培店因鸡蛋没洗被查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841865/)
+## 罗根及其百万粉众因盖特重获言论自由新生
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841877/)
 
-配音：香草山健身部 – 格格
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月7号，西安盒马烘培店被立案查处，官方查它的理由竟然是鸡蛋没有清洗，混合放置，属于不规范操作。一经公布，网络上炸开了锅，公众号群连续发出几个贴，中共精致的画皮被愤怒的人们彻底扯破。人们虽然还不知中共是炮制灾难的源头的真相，可是这次中国共产党的假和流氓行为，会唤醒很多的人。
+采编/编译撰稿：Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-1.jpg)
+据《纽约邮报》1月7日报道，在美国著名播客名人乔-罗根加入盖特后的几天内，目前已有超过100万的新用户注册了该新星社交媒体平台。
 
-原文链接：[西安盒马烘培店因鸡蛋没洗被查](https://gnews.org/zh-hans/1840526/)
+报道称，佐治亚州众议员格林近日在[推特]上表示：当局掩盖了因接种“新冠病毒”疫苗所导致的极高数量死亡病例，并呼吁[食品和药物管理局]停止批准该疫苗的推广使用。随后，推特以“多次分享疫苗错误信息”为由，封锁了该议员的帐户。罗根对此指出，出于对[推特]独裁审查制度的强烈反抗以及对自由言论表达的热血追求，他毅然决定加入最新崛起的盖特平台。
 
-音频处理：喜山必胜Maverick
+该社交媒体首席执行官米勒当天宣布，盖特的美国用户已接近300万，全球总的注册人数已超过3500万。而此次罗根及其百万跟随者的加入，无疑让所有人都重获言论自由表达的新生。
 
-**发稿：**Daxia
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+发稿： 苦尽甜来 (文來）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[原文链接](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
 
  
 
