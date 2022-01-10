@@ -2,39 +2,67 @@
 ---
 
 
-## 5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841599/)
+## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](https://assets.gnews.org/wp-content/uploads/2022/01/arillive.jpg)**图片来源：AirLive**
-**翻译：Georeg Warshing**
+前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
 
-**编辑：文泓**
 
-近日，美国手机运营商已同意对在50个机场部署的C波段发射机断网六个月。
 
-当地时间1月8日，据RT电视台报道，出于对网络扩展可能干扰飞机安全系统的担心，美国联邦航空管理局(FAA)发布了一份美国机场名单，将在这些机场周围设置5G缓冲区。
+> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+>  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
+> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
 
-美国最大的两家电信公司AT&T和Verizon在与政府官员谈判时，正努力推出其*“*改变游戏规则”的C波段5G网络，联网日期由最早的原定12月推迟到1月5日，之后再延后了两个星期。**现在，美国联邦航空局表示，电信运营商已同意将数十个机场周围的5G发射塔断网至少六个月。**
 
-洛杉矶、拉斯维加斯、纽约、迈阿密和达拉斯等主要城市的机场被划定在所谓缓冲区，而像佐治亚州的亚特兰大机场和科罗拉多州的丹佛机场因为已设有自然缓冲区，其他没有计划在机场附近部署5G网络的则未设定缓冲区。
 
-**监管机构担心的是C波段5G可能扰乱飞机仪器**，**比如提供飞机离地高度信息的无线电高度计，**这是一种在低能见度情况下着陆很重要的安全系统。
+众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
 
-航空业领袖警告说，5G计划未来可能会对航班造成数千次干扰。美国航空的一家游说公司此前曾预测说，5G的推出可能造成数百万人的航班会被延误或取消。
 
-美国联邦航空局表示，他们根据*“*交通量、低能见度天数和地理位置*”*编制了（5G缓冲区）机场名单。该机构还在为航空公司和制造商制定适航指令（强制性），以*“*提供消减不安全情况的替代方法*”，*并确保飞机配备*“*在高强度5G环境中证实为可靠和准确*”*的高度计*。*
 
-新闻链接: [FAA identifies dozens of airports affected by 5G rollout — RT World News](https://www.rt.com/news/545476-airports-buffers-faa-5g/)
+> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
+> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
 
-发布： Frank2021
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
+
+
+
+> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
+> 
+> Georgia restored election integrity.
+> 
+> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
+> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
+
+
+
+> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
+> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
+
+
+
+> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
+> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
+
+
 
  
 

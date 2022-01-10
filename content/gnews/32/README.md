@@ -2,66 +2,29 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
+## 【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1841785/)
 
-前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
+编译：东京樱花团/Hopkins
+编者按：《经济学家》杂志2022年第一期发表文章，文章分析道由中共主导的网络民族主义正愈演愈烈，他们动辄看到敌对的外国势力亡我之心不死，攻击与外国联系的中国民间社会活动人士、非政府组织 (NGO) 和私营企业为“二鬼子”，他们想要告诉中国人每个外国人都是潜在的间谍，而这种网络思潮与习近平主席所宣称的中国在“生态文明”领域引领世界的雄心不谋而合。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-96.jpg)
+外部世界长期以来一直焦虑地担心，中共主导的民族主义思潮抬头可能有一天会导致普通中国人——尤其是年轻人——爆发出无法控制的愤怒。按照最近几个月的趋势来看，外国人可能错过了一个更加阴险的威胁：反外国的偏执狂将成为一场令人讨厌但有利可图的游戏。
 
+对于中国民间社会活动人士、非政府组织 (NGO) 和私营企业来说，这是一个可怕的时刻，他们将自己的角色定位在在中国与其他国家之间架起桥梁。有时受到共产党和人民解放军控制的媒体机构支持的民族主义博客大V花了几个月的时间谴责这些团体和个人活动家接受外国资助，或仅仅为了发表一些外国对中国给世界日益增长带来负面影响的担忧，即使是在一些相对安全的领域，比如环境污染等。
 
+去年，科普视频制作商 Paperclip 遭到网络民族主义者的攻击并被迫停业，被指控通过一部电影散布反华仇恨，影片指出中国是与亚马逊森林砍伐有关的巴西大豆的大买家，以及说了少吃肉对地球有好处的理念。一些网红因制作有关过度捕捞的视频而被称为民族败类，其中一些人为总部位于英国的慈善机构制作了视频，他们在视频中敦促中国人更负责任地消费海鲜。民族主义者认为这是一个“邪恶”的阴谋，即美国和欧洲敌对势力为了保护自己的优势而竭力否定中国的一切。
 
-> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
->  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
-> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
+中国之家（China House,）是一家总部位于上海的社会企业，旨在促进非洲的可持续发展，并为中国年轻人提供志愿帮助边缘化人群的机会，但它面临着持续的攻击。它引起了人们对中国南方非洲移民所面临歧视的关注，以及对非法象牙的中国买家的调查。最近一个最为火爆的民族主义背景的博主赛雷（Sai Lei）称中国之家的创始人是一个“二鬼子”，这是对 1930 年代和 1940 年代与日本占领者合作的汉奸的蔑称。他的视频被共青团官方微博转发，至今已被观看500万次。
 
+一位非政府组织的资深人士称，这是自 1989 年以来中国公民社会最糟糕的时期。然而，这种恐惧气氛并不是直接由政府新的政策或一波政府的打压行动而引发的。相反，令人不安的是，一些最具破坏性的攻击来自以前鲜为人知的社交媒体企业家。更令人震惊的是，这些博主的秘密武器是让排外主义变得有趣。他们的核心受众是 18-25 岁的年轻男性。如果追随者最初被一些谴责“汉奸”的视频所吸引，那么他们的注意力就会被民族主义的迷因（memes）、阴谋论和黑色幽默所吸引。将目标称为“二鬼子” 只是一个开始。由于国家安全部门为举报外国势力的特工提供高达 50 万元人民币（78,700 美元）的奖励，那些被认为不爱国的中国人在网上被嘲笑为“走向 500,000 人”，期待他们被谴责为间谍，或简称为“500,000 人”。民族主义已经成为一种娱乐产业。用一位去年成为目标企业的中国自由派人士的话说，民族主义者发现有关打击“反华”的视频会产生点击量。 “如果你有很多点击，你就会变得有影响力，影响力会推动收入。”
 
+（未完待续）
 
-众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
+[China’s online nationalists turn paranoia into clickbait](https://www.economist.com/china/2022/01/08/chinas-online-nationalists-turn-paranoia-into-clickbait)
 
-
-
-> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
-> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
-
-
-
-众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
-
-
-
-> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
-> 
-> Georgia restored election integrity.
-> 
-> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
-> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
-
-
-
-> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
-> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
-
-
-
-> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
-> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
