@@ -2,30 +2,31 @@
 ---
 
 
-## 中共国正在加速推进数字人民币
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1844302/)
+## 七哥说战友们要团结（2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844359/)
 
-作者：香草山健身部-风雨同舟
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-中共国媒体鼓吹自1月4日以来数字人民币app下载掀起了热潮，同时数字人民币用户数、交易订单数及交易金额都有显著的增长。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![图片来源：视觉中国](https://n.sinaimg.cn/spider20201127/192/w1024h768/20201127/9458-kentcvx8282536.jpg)
+来源：郭先生2022-01-05直播11：12：56摘录
 
-为了在全国尽快的推进数字人民币，中共在各个领域不遗余力的展开推广，在十个试点城市及冬奥会场景上，简化注册使用门槛，新用户注册仅通过输入手机号、设置用户名及支付密码，就可自行选择运营机构快速开通钱包。同时在工商银行、农业银行、中国银行、建设银行、[交通银行](http://stock.finance.sina.com.cn/usstock/quotes/BCMXY.html)、邮储银行、[招商银行](http://stock.finance.sina.com.cn/usstock/quotes/CIHKY.html)、网商银行（支付宝）、微众银行（微信支付）等9个运营机构的钱包上直接升级实名钱包。在数字人民币的入口上纷纷接入多家平台，在应用场景上大力推进“衣食住行“的拓展，美团、京东、小米、腾讯都已经完成了相应的支持和部署。[https://finance.sina.com.cn/tech/2022-01-10/doc-](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
+还有一个我们大家要认识到很核心的问题，我们战友之间要团结，不要把自己那些个人的恩恩怨怨、狗屁唠叨的事儿搬到盖特上去，你真的很丢人！你任何人在盖特上作为战友你发诋毁战友、诋毁新中国联邦或诋毁华人的东西，你都务必小心，因为你一个人的事情会无限扩大。恰恰是Isable Yeung 让你干的事，就是中国人是西方的威胁，中国人内斗，中国人不值得信赖，中国人是东亚病夫，没有勇气，很懦弱，不要把这个唯一的中国人展示给外国人的平台，丢了自己黄皮肤的脸。就像我一开始直播，我最感谢的也到现在我认为爹娘告诉我的，出了国谁是你爹？是吧！出了国谁是你娘？中国是你爹，中国人黄皮肤是你娘。你不管怎么样，你不要给亚洲人、黄皮肤人造祸，背负着这么多的灾难，你不要成为传播共产党这种邪恶思想的这么一个工具。我们要珍惜啊兄弟姐妹们，是吧？今天每个人的话都是真的是发自内心的，都是感动人的，而且很有好处。
 
-[ikyamrmz4183856.shtml?cre=sinapc&mod=g](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
-**更多资讯，更多关注**
+**关注我们**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Discord 账号
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+Gettr 账号
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

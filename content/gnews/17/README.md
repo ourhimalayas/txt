@@ -2,24 +2,31 @@
 ---
 
 
-## 加拿大联邦卫生部长考虑在各省推进强制疫苗接种
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1844082/)
+## 七哥说Gettr价值无限（2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844156/)
 
-2022年1月7日， 加拿大联邦卫生部长Jean-Yves Duclos在新闻发布会上表示，他认为各省和地区需要考虑并朝着所有人强制接种疫苗的方向迈进：
+文编：Hima
+听写：叮叮
+视频：七哥
 
-首先这是基于我对目前国内外情况的个人理解以及过去几周我同我的同事和各省卫生部长的交流中（形成的）观点。其次，这将由各省及特区在某个时间段做出决定，由他们来决定是否推行（强制疫苗令）。
+来源：郭先生2022-01-05直播10：47：16摘录
 
-但是我们看到的是加拿大的医疗保健系统是脆弱的。人们疲惫不堪。结束疫情，克服现在和未来可能的变异病毒的唯一办法是疫苗。个人防护用具，社交距离，快速检测，PCR检测等是重要的手段，但真正使我们度过和结束这场危机的是疫苗接种。
+你看看盖特到今天的数据使用活跃度96%，推特上是80%都是垃圾信息，Facebook上简直都成了商品，垃圾信息，而且它的原罪是无法跳跃的。而你看看盖特发一个是一个，发一个是一个，除了七哥偶尔发一点黄色片子之外是吧，其他都是有意思的，都是有价值的，是不是啊！行啦我别说了，说了你们又水多了。现在你们接着说吧。盖特价值无限，体现了新中国联邦的力量。
 
-我看到在我自己的省份，魁北克省50%的住院病人是由于没有接种疫苗。这对医护人员和社会来说都是一个很难承受的负担，也让很多人不解。这也是我今天在此提醒大家在接下来的数周数月内，联邦政府支持各省和特区就（疫苗强制令的）话题展开讨论。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-素材：文倩
+**关注我们**
 
-翻译：文倩
+Discord 账号
 
-字幕：文所未闻
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-编辑/发文：Kent
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,34 +2,31 @@
 ---
 
 
-## 澳大利亚政府本月绑架了第二名职业网球运动员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
+## 七哥谈媒体的力量（2022-01-05摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844170/)
 
-翻译：Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
+来源：郭先生2022-01-05直播10：47：59摘录
 
-周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
+这个媒体有多大的力量？你七嫂子从来不看我的直播，就在上次大直播在那看我直播，结果我就说出了蓝色代表着死亡和咱们新中国联邦旗的事情。到第二天你嫂子坐在那一本正经严肃地说：“你看你那个直播当中说了我一天不舒服，” 把我吓一大跳，“哎哟哟”，我说：“这是咋了这是？” 很严肃认真的，她说：“你那说的不对呀，我是去年六月四号回来以后在船上，我帮你挂上这个旗在这挂着呢，挂上这个旗。如果我不喜欢我肯定跟你说我不喜欢,”我是最近就是大概在20天前选一个颜色，是选一个家具的料的颜色，她说那个蓝色，她说我说是咱们老家说那个所谓的死亡颜色。她说：“我从来没说过你这，弄得我一天都不舒服，你战友怎么看我？” 哎, 你看看这事儿大了，这事儿大了啊。你七嫂就看了一次直播，她就发现了对她的伤害，让她一天不舒服。弄得我也真是脸红脖子粗的，结果我跟咱们联盟委员会开会我说“刚跟你七嫂子说完”，弄得我晚上真的一晚上滚了好几次在床上，我就觉得不舒服了。因为你嫂子在第一次看直播就受到了伤害，而且让她一天不舒服，你知道这个媒体爆料革命的力量有多大吗？你嫂子仅仅一次就对我们36年的夫妻就感到了重大的伤害。所以大家这媒体的力量有多大？所以我们绝对不能胡说八道在这个社交媒体上，我再重申一遍，你七嫂完全是我说错了啊。事实上是你嫂子在跟我说这的时候我想当然的以为你嫂子不喜欢蓝色，因为我这个脑子印象是我们老家，咱去年六四的时候跟CC嗝屁群里边，唐平那时候也知道，就设计的时候我说“蓝色，中国怎么，蓝色是星空，蓝色是未来，蓝色是海洋，蓝色是水。然后是黄和金，太阳和海洋是人类的基本，然后七七四十九星代表我们的信仰，加上一个中间的星是我们的信仰之星”。是我没重复完，你七嫂喜欢这个国旗，你七嫂喜欢这个颜色，她认为很好。但是我就那么表达的错误叫你七嫂感到严重伤害，我再次向你七嫂表示衷心的道歉。所以说我希望兄弟姐妹们咱们说话可真得注意，一旦错话，一旦对一个人的伤害是致命的，她一生无法释怀。所以说我这两天就想到了，三天没直播，我说我一定要讲这，一定要把这事儿给说出来。这真是完全的误解，你嫂子她释怀不了。她认为“你看我爱你的国旗，把我说成了这样”。你嫂子也认为这是希望，这是水，这是海洋。所以兄弟姐妹们千万别搞错了，恰恰是新中国联邦我们有了这种唯真不破，面对实在，特别是要说实话。所以我们在直播当中大家一定要掌握住我们这个平台的力量。
 
-尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
+**关注我们**
 
-德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
+Gettr 账号
 
-**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

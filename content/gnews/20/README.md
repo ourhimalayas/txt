@@ -2,31 +2,34 @@
 ---
 
 
-## 七哥谈Gettr Logo (2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844055/)
+## 澳大利亚政府本月绑架了第二名职业网球运动员
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：Jenny Ball
 
-来源：郭先生2022-01-05直播10：35：35摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
 
-几个唯心的事情，大家相不相信是你们的问题，我如实地告诉你们。就是我们这个有三个阶段，就是头一段时间我们就一直停留在300万，300万到40万之间，大概用了90%的时间，然后所有人都很沮丧，后来我告诉他们，我说：这个所有的社交媒体平台从300万的时候增长都很快，但300万到千万的时候和到3000万的时候，这个非常艰难，几乎都死在300万以内了。然后呢从3000万到一个亿的时候你要能过去你就是神了，你就是世界级的。还有一个我说：我不认为这是正常的，我认为这是不正常的，我们的每天的就是发出、就是Request，就是来申请来使用这信息的数据几乎都在20万，我说这是绝对不正常的，所以我怀疑这个数据有问题。第三个我告诉他们，我说：GETTR一定会爆发，就像川普总统几次表达是吧？不管你说啥我觉得我们不能靠川普总统进来能活着，你说啥也不行。包括任何人啊，好多要加进来，什么给钱吧，所谓的Superuser，你要给钱，我说不可以的，GETTR不靠这个，我们要靠我们自己，我们深信我们会做为最强最大的，我们有几个原则。但是当时投资者还有管理者几乎没有人百分之百地相信或者有这个自信吧，特别我们的工程队伍，我们的约翰和我们的工程师们，几乎没有多少人相信的。然后我说还有大师说了，大师说：“你要把你那个歪的火炬要改过来，你就会一日冲天。” 这是三个月以前说的事儿啊，我们这个CC嗝儿屁的设计队伍用了将近一个月才改出来，CC嗝儿屁交给了工程队伍，工程队伍用了将近一个月才上传。结果我们的上传的队伍当中我们伟大的皮特先生竟然能把Ipad版歪着没改，手机版的页面显示没改，还有其它Website，你点击进去还是歪的，进去以后是直的，就没改，这是什么时间呢？是2021年12月30号发生的事情。
+周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
 
-**关注我们**
+本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
 
-Discord 账号
+德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
 
-Gettr 账号
+捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 

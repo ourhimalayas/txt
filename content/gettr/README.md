@@ -17,6 +17,30 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 7:54 PM (UTC)`
+
+1月10号：GETTR正在改变社交媒体游戏规则，充分的证明了．只有正义才能得到关注，只有真实和真相，才能得到大众的尊重，这是社交媒体永远的真理……<br/>@joerogan And look who’s posting!! https://gettr.com/post/pnhvgo16d6
+![img](https://media.gettr.com/group25/getter/2022/01/10/19/5061b8a7-7f4f-4ee2-13ba-21d778f3fb1b/9be8c8af09b0ed8c10fedad188d9bc6b.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 1/10/2022 7:34 PM (UTC)`
+
+🚨🚨🚨Welcome to #GETTR, @tuckercarlson!!!🚨🚨🚨
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@tuckercarlson 6/18/2021 1:00 AM (UTC)`
+
+Louise Burke was forced out of Simon &amp; Schuster for her political views. She’s not the first. Read more in this new book, published by Simon &amp; Schuster.  http://bit.ly/CarlsonTLS  
+![img](https://media.gettr.com/group21/tw/2021/06/28/21/08f378ea-f0ad-4249-8401-313fcea54c6a/a1e272a5-74d0-bbfe-d0b9-530c8f95d5a5/out.jpg)
+
+---
+
 `@miles 1/10/2022 3:21 PM (UTC)`
 
 1月10号：尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的病毒的高峰时刻……照顾好家人和自己的身体，尊重科学．在快乐，健康．愉悦……的情况下消灭共产党…………迎接新中国联邦的伟大时刻到来！
@@ -139,27 +163,6 @@ mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、�
 
 英国NHS医生对卫生大臣表示：他没有接种疫苗，也不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。<br/><br/>NHS doctor tells the Health Secretary he didn’t vaccinate and would not be vaccinated as the scientific basis for the protection offered by the vaccines are not strong enough.<br/>
 ![img](https://media.gettr.com/group49/getter/2022/01/09/01/14a8f8fa-3b85-d8da-e12d-02d12947039f/out.jpg)
-
----
-
-`@miles 1/9/2022 1:02 AM (UTC)`
-
-一位心脏病学家说50%的顶尖运动员接种中共病毒疫苗后罹患无症状心肌炎, 可能导致因为无症状心肌炎诱发的心脏骤停猝死案例。<br/><br/>A pediatrician says 50% elite athletes have asymptomatic myocarditis after CCP virus vaccination, and it might cause sudden death due to cardiac arrest caused by asymptomatic myocarditis.<br/>
-![img](https://media.gettr.com/group4/getter/2022/01/09/01/b2c1466f-cbaa-5fa3-19ec-f49f0124f19b/out.jpg)
-
----
-
-`@miles 1/9/2022 12:52 AM (UTC)`
-
-1/07/2022 Miles Guo: The intelligence and truths delivered by the New Federal State of China have gone far beyond than what the intelligence networks of various countries and the mainstream media have done thanks to the efforts made by the hero fellow fighters in Communist China; I was the first to say that Chen Quanguo didn’t get demoted but was instead going to be promoted; the Communist Youth League faction has come back, and Chen Quanguo and Hu Chunhua are the “killer weapons” of Xi Jinping<br/><br/>1/07/2022 文贵直播：新中国联邦传递的真相和情报远超各国情报系统和主流媒体，这都离不开国内英雄战友的付出；文贵最早说出陈全国不降反升；共青团派已回归，陈全国和胡春华是杀器<br/>
-![img](https://media.gettr.com/group32/getter/2022/01/09/00/fa108e55-5416-f82c-1c88-e4fd818b0837/out.jpg)
-
----
-
-`@miles 1/8/2022 9:25 PM (UTC)`
-
-1月8号：衷心地感谢文星战友制作的精美⋯接地气的视频！【七哥🙏之东北二人转摇滚之武侠滚地刀篇😃🙏🌽】🌽🌽🌽🌽🌽🌽🌽🌽
-![img](https://media.gettr.com/group49/getter/2022/01/08/21/4d97b47a-de80-5ac6-edf9-c3d306661dda/out.jpg)
 
 ---
 
