@@ -2,33 +2,41 @@
 ---
 
 
-## 曾经想夺走罗纳尔多 如今中共国足球破产了（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1841150/)
+## 蓝莲花在西藏叫绿绒蒿，中共常委每年在昆仑山割血拜祭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841190/)
 
-翻译：七龙珠
+视频链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-09-232921.jpg)图片来源：elconfidencial.com 
+**郭文贵先生：**首先给大家说，说一下蓝莲花是真有的，在我们生活中是经常有的，这个这个问题是很单纯的问题，严格讲很无知。蓝莲花在到处都在，只是你没有注意而已。
 
-财政问题已经导致中国超级联赛崩溃。明星在逃离，标准在下降，习近平的模式正在大面积失败。
+第二个，我要告诉大家的事情，在西藏的蓝莲花，它叫做绿绒蒿，他也称为蓝莲花，就山顶绿绒蒿，绿绒蒿到处都是，我到那儿去的时候，这个很多西藏人家里边儿，对绿绒蒿的珍惜真的像神一样，可是我们汉人去了就顺手就给人家蒿（拔）了，就非常过分，绿绒蒿在西藏是一种神话，也称为蓝莲花。
 
-去年11月，位于河北省廊坊市的河北足球俱乐部报告说，由于财政问题，他们正在考虑退出中国超级联赛（CSL）。河北由房地产巨头华夏幸福地产开发公司和巴塞罗那俱乐部的哈维尔-马斯切拉诺（Javier Mascherano）所拥有的俱乐部，甚至在支付电费方面都很困难。中共主席习近平最喜爱的团队此前宣布了一项重组计划，以解决超过4200万美元的债务。
+第三个，我要告诉昆仑山脉，昆仑山脉，跟咱们啥关系呢？非常非常大，喜马拉雅山给咱非常非常大。我告诉大家，昆仑山6500万年前形成的，跟你个鸟共产党才不到100年，更你这个共产党毛关系都没有。在共产党的故事当中，竟然说自己曾经是昆仑山神的后裔啊！
 
-河北的情况并不是一个孤立的案例，卫冕的超级联赛冠军江苏-苏宁在二月份因财务崩溃而退出。而在9月，即使是叱咤风云的广州恒大也陷入了严重的财务问题，此前有消息称恒大每年在俱乐部的赔本在1.55亿至3.1亿美元之间。在过去十年中占据主导地位，在中共国赢得了八个冠军，并成为第一个赢得欧洲冠军联赛的中国俱乐部，在阿里巴巴集团购买了该俱乐部37.81%的股份后，所谓的南方虎现在才能够生存下来。
+你们都不知道这个故事吧？昆仑山上唯一的昆仑山脉，是在帕米尔高原，在那块儿架着共产党的祭坛呐！24小时一年365天呐！供着常委常委的那块儿供着他们呢呐！每年常委都是要割血、割脉，见献血的地方，用中国特种兵部队，你们都不知道吧？！如果你不知道你就太天真了，亲爱的中国同胞们！昆仑山是万山之母、万山之祖，因昆仑山生了所有的霾。
 
-中共国足球与习近平主席的梦想相距甚远，习近平主席在中共国参加2002年世界杯后，希望发展亚洲最强大的联赛，以看到亚洲国家争夺世界杯冠军。为此，他让大型房地产公司也参与进来，这些公司通过购买俱乐部进行投资，目的是获得收购土地的机会，然后发展他们的商业活动。因此，中国超级联赛成为对足球运动员和教练员有吸引力的锦标赛，他们可以在没有竞争要求的比赛中迅速填满自己的腰包。
+编辑整理：海贼王M.D.LUFFY；
 
-第一批落户中共国俱乐部的有来自英超联赛的巴西人奥斯卡和保利尼奥以及比利时人费莱尼，甚至包括2016年从尤文图斯来到上海表现平庸的阿根廷人卡洛斯-特维斯，他与中共国俱乐部签署了一份合同，允许他每秒钟赚取一英镑，每周65万。即使是在那些黄金时代也不可持续的东西，也就是在后十年，几乎也没有卖出过超过半个体育场的门票。
+G-News发布：海贼王M.D.LUFFY；
 
-新闻来源：[elconfidencial.com] [Te querían quitar a Cristiano Ronaldo y ahora están en la ruina: el fútbol chino quiebra](https://www.elconfidencial.com/deportes/futbol/internacional/2022-01-09/quitar-cristiano-ronaldo-ruina-futbol-chino-quiebra_3353557/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-接下篇：【曾经想夺走罗纳尔多 如今中共国足球破产了（二）】
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

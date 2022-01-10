@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 3:03 AM (UTC)`
+
+1/09/2022 Miles Guo: What’s happening in Kazakhstan is a counterattack of the US and West against the CCP and Russia in response to the BLM riots instigated by them, and something big will happen in the neighboring countries of Communist China such as Vietnam, Cambodia, and Singapore. It’s already begun in Bangladesh!<br/><br/>1/09/2022 文贵直播：哈萨克斯坦的事件是美国和西方针对中共和俄罗斯煽动的BLM暴乱的反击，越南、柬埔寨、新加坡等中共邻国将有大动静，这在孟加拉国已经开始！<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/10/03/81e3063d-d8c3-68e0-b22c-2740527dbaab/out.jpg)
+
+---
+
+`@miles 1/10/2022 3:00 AM (UTC)`
+
+1/09/2022 Miles Guo: The intelligence regarding the CCP’s National Security Commission is within the reach of the New Federal State of China. That’s why only we can give the world advance warning of the CCP’s evil plans to be implemented in places like Kazakhstan and Afghanistan. However, these warnings were often not taken seriously due to people’s fear of death<br/><br/>1/09/2022 文贵直播：新中国联邦掌握了中共国安委的情报，因此只有我们能向全世界提前预警中共针对哈萨克斯坦、阿富汗等地的邪恶计划，但人们往往因为贪生怕死而不把它当回事<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/10/03/97742fee-4fba-da8a-d8a4-0e1e5eefbc27/out.jpg)
+
+---
+
 `@miles 1/9/2022 8:47 PM (UTC)`
 
 1月9号：喜马拉雅七座山峰就是我们的👉👉👉Noah‘s Ark。    诺亚方舟！🔥🔥🔥🔥🔥💦💦💦💥💥💥💥💥❤️❤️❤️❤️❤️❤️🦅🦅🦅🦅🦅🦅🦅🦅🌽🌽🌽🌽🌽🌽💥💥💥💥💥💥
@@ -157,20 +171,6 @@ Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>
 
 1/07/2022 Miles Guo: The photo of my younger brother and I that was taken over 40 years ago touched me deeply, and I burst into tears; the proportion of falsified data of the Hong Kong stock market and the real estate in Hong Kong and mainland China has jumped to 35%; I have rewritten the rules of the game for digital currencies; the demise of the CCP will lead to the boom of digital currencies<br/><br/>1/07/2022 文贵直播：40多年前和八弟的照片让文贵感触颇深、潸然泪下；香港和大陆房地产以及港股数据造假比例跃升至35%；文贵改写了数字货币的游戏规则；中共的灭亡将成就数字货币<br/>
 ![img](https://media.gettr.com/group18/getter/2022/01/08/08/1a770c3d-d986-0d34-b565-8dc4ffd8a7ed/out.jpg)
-
----
-
-`@miles 1/8/2022 8:01 AM (UTC)`
-
-1/07/2022 Miles Guo: Taiwan may trigger the kinetic war between the US and Communist China; Singapore will no longer be ruled by the Lee family; the CCP’s 5-step plan - taking Hong Kong, Afghanistan, the South China Sea, Taiwan, and Kazakhstan; the fact that the intelligence regarding the CCP is absolutely within our reach is a testament of the strength of the Whistleblowers’ Movements<br/><br/>1/07/2022 文贵直播：台湾或引发中美火战；新加坡将不再有李家的家族统治；中共的5步计划 - 拿下香港、阿富汗、南海、台湾和哈萨克斯坦；爆料革命的实力体现在对中共情报的绝对掌握<br/>
-![img](https://media.gettr.com/group1/getter/2022/01/08/08/717d85e9-ab3e-e7cb-1a9f-90934ad7cf63/out.jpg)
-
----
-
-`@miles 1/8/2022 5:28 AM (UTC)`
-
-1/07/2022 Miles Guo: The riots in Kazakhstan is an inevitable result of communism harming the world; behind the corruption of the Nazarbayev’s family is the CCP evil deeds of controlling Central Asia and Eastern Europe via the BGY scheme; What happened with Nazarbayev is a milestone for the New Federal State of China to participate in the affairs of Eastern Europe<br/><br/>1/07/2022 文贵直播：哈萨克斯坦的事件是共产主义祸害世界的必然；纳扎尔巴耶夫家族腐败的背后是中共用蓝金黄控制中亚和东欧；纳扎尔巴耶夫事件将成为新中国联邦走向东欧的里程碑<br/>
-![img](https://media.gettr.com/group7/getter/2022/01/08/05/e79c2d01-918c-1b0e-8f35-8e506a1b16c2/out.jpg)
 
 ---
 

@@ -2,40 +2,34 @@
 ---
 
 
-## 蓝莲花在西藏叫绿绒蒿，中共常委每年在昆仑山割血拜祭
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841190/)
+## 曾经想夺走罗纳尔多，如今中共国足球破产了 （三）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1841206/)
 
-视频链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+编译：七龙珠
 
-**郭文贵先生：**首先给大家说，说一下蓝莲花是真有的，在我们生活中是经常有的，这个这个问题是很单纯的问题，严格讲很无知。蓝莲花在到处都在，只是你没有注意而已。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-09-232921.jpg)图片来源：elconfidencial.com
 
-第二个，我要告诉大家的事情，在西藏的蓝莲花，它叫做绿绒蒿，他也称为蓝莲花，就山顶绿绒蒿，绿绒蒿到处都是，我到那儿去的时候，这个很多西藏人家里边儿，对绿绒蒿的珍惜真的像神一样，可是我们汉人去了就顺手就给人家蒿（拔）了，就非常过分，绿绒蒿在西藏是一种神话，也称为蓝莲花。
+接上篇：【[曾经想夺走罗纳尔多，如今中共国足球破产了 （二）](https://gnews.org/zh-hans/1841173/)】
 
-第三个，我要告诉昆仑山脉，昆仑山脉，跟咱们啥关系呢？非常非常大，喜马拉雅山给咱非常非常大。我告诉大家，昆仑山6500万年前形成的，跟你个鸟共产党才不到100年，更你这个共产党毛关系都没有。在共产党的故事当中，竟然说自己曾经是昆仑山神的后裔啊！
+这位前锋指出了最终吓跑了那些去中共国挣钱的明星的另一个缺点：“我在萨尔茨堡上了飞机，当时的规定是允许11人中有3名外国人，还有2人候补。而当我14个小时后降落在中国时，他们改变了规则，候补的两人不得不被排除在球队之外。想象一下佩莱格里尼，他的球队里有拉维奇、马斯切拉诺、姆比亚、热尔维尼奥……”
 
-你们都不知道这个故事吧？昆仑山上唯一的昆仑山脉，是在帕米尔高原，在那块儿架着共产党的祭坛呐！24小时一年365天呐！供着常委常委的那块儿供着他们呢呐！每年常委都是要割血、割脉，见献血的地方，用中国特种兵部队，你们都不知道吧？！如果你不知道你就太天真了，亲爱的中国同胞们！昆仑山是万山之母、万山之祖，因昆仑山生了所有的霾。
+在曼萨诺看来，“中共国希望在足球方面与日本和韩国相媲美。他们参加了2002年的世界杯，这让他们大开眼界。但那届世界杯是在日本和韩国举行的，这两个国家作为组织者已经在亚洲腾出了两个名额。2014年，中共国家主席习近平希望在那届世界杯后将中共国变成一个强国，并批准了一份宣言，其中将足球作为学校的必修课。那是中共国足球和超级联赛的繁荣时期”。
 
-编辑整理：海贼王M.D.LUFFY；
+这位教练看到了竞争，并肯定地说：“这比超级联赛开始时更糟糕，因为除了浪费钱之外，现在还有控制措施，对外国人的工资进行限制，转会的价格和拥有俱乐部的公司名称的撤销。这些措施使联赛对外国明星没有吸引力。”
 
-G-News发布：海贼王M.D.LUFFY；
+两人都非常感谢在中共国的经历。索里亚诺坦言，“就个人而言，这是一次独特的经历。无论我走到哪里，我都不会经历类似的事情。像北京或上海这样的城市是惊人的，几乎是科幻小说。两年来，都是令人难忘的经历，但我不瞒你说，我现在更放松了”。而戈友在谈话的最后指出，“在我上次来之前，他们给了我很多钱让我续约。但最后，当你看到他们不听你的建议，他们是如此不耐烦，根本不考虑中期工作计划时，你就会感到厌倦。这也是我回来的原因。这是一个令人难以置信的经历，他们的工作方式完全不同”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+今天，超级联赛正处于破产的边缘，受到威胁到所有球队的财政危机的打击。外国球星已经都离开了，他们中有人抱怨不给钱，他们的球队派出青年队参加欧洲冠军联赛，因为担心大流行病的传染。除了经济危机和大流行病的破坏性影响之外，政府的规定也让那些把俱乐部当作商机购买的投资公司完蛋了，而这些公司如今已经变成了废墟。习近平的梦想变成了一场噩梦，足球不再是学校的必修课，而威胁要将克里斯蒂亚诺-罗纳尔多这样的球星从大联盟中抢走的超级联赛，也将是一个没有魅力和兴趣的联赛。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**新闻来源：**[elconfidencial.com] [Te querían quitar a Cristiano Ronaldo y ahora están en la ruina: el fútbol chino quiebra](https://www.elconfidencial.com/deportes/futbol/internacional/2022-01-09/quitar-cristiano-ronaldo-ruina-futbol-chino-quiebra_3353557/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*审核：Aries的星*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 

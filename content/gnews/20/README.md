@@ -2,16 +2,16 @@
 ---
 
 
-## 有声|盖特拿下苹果应用商店排名第一
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841326/)
+## 有声|密苏里州法官裁定终止强制医护人员接种疫苗的行政命令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841360/)
 
 配音：香草山佛教部 – 李傻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月6日，盖特官方账号发盖文称：盖特在苹果应用商店中排名第一，在谷歌Play商店排名第二。特此感谢所有的用户，让我们取得这样的成绩！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.22.25.046.jpg)
-文贵先生在当天下午也就此事发了两个盖特，和大家分享这一好消息，并说：奇迹就这样发生了，正道得天道！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，密苏里州东区法院的法官马修·斯库尔普颁布了一项裁决，阻止了拜登政府要求医护人员接种COVID-19疫苗的行政令。
 
-原文链接：[盖特拿下苹果应用商店排名第一](https://gnews.org/zh-hans/1831228/)
+此前，密苏里州检察长埃瑞克-施密特，与内布拉斯加、阿肯色、堪萨斯、爱荷华等九个州的检察长联合发起了这项反对强制医护工作者接种疫苗的诉讼。
+
+原文链接：[密苏里州法官裁定终止强制医护人员接种疫苗的行政命令](https://gnews.org/zh-hans/1708823/)
 
 音频处理：喜山必胜Maverick
 
