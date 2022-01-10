@@ -2,31 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月9日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1841545/)
+## 加拿大试图立法以强制接种中共病毒疫苗
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841598/)
 
-作者：香草山翻译部
+采编：文莱    编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image02.jpg)
+[图片来源](https://www.nationalobserver.com/2022/01/07/news/federal-health-minister-believes-mandatory-vaccination-measures-could-be-coming)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+据【CBC新闻】1月7日报道，加拿大卫生部长杜克洛斯当天表示：由于当前各省都面临着病毒感染人数创记录的增长以及医护人员极度短缺等困境。因此，除了做好现行各项防疫措施之外，唯有继续推行“疫苗接种”计划才能度过疫情失控的难关。
 
+该部长引用魁北克官方数据指出，目前有约50%的住院病人因未接种“新冠病毒”疫苗而给该省医疗系统带来了沉重负担。此外，全国仍有700万符合条件的加拿大人尚未接种疫苗。因此，当局应该计划制定“强制接种法案”，而不再依靠限制人们进入特定公共活动场所的疫苗护照来遏制疫情的蔓延。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0109text-SC.png)
-校对：Stay文苑
+但事实表明，当前全球“中共病毒”疫情重灾区几乎都有较高的疫苗接种率。但各国政府官僚们不但在病毒溯源、救治药物推广和应用上无所作为，还将疫情全面失控的责任归咎于少数幸存的未接种疫苗者，并试图以此掩盖当局的独裁贪婪和懦弱无能的卑劣本质。
 
-编辑：Stay文苑
+校对编辑：硫酸羟氯喹64
 
-发稿：Stay文苑
+发稿： 苦尽甜来 (文來）
 
-视频参看：[1.9  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61db8ba6a6dfdd603151a048)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[原文链接](https://www.cbc.ca/news/politics/duclos-mandatory-vaccination-policies-on-way-1.6307398)
 
  
 

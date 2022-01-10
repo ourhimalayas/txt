@@ -2,40 +2,57 @@
 ---
 
 
-## 有声|博裕资本面临习近平监管挑战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841764/)
+## 视频| 因宗教原因请求豁免疫苗注射，海豹突击队员胜诉
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841769/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%9D%A1%E5%B9%85-1.png)
-位于香港的私募基金博裕资本于2011年成立，对创始人Sean Tong来说，江泽民之孙江志诚的加盟为企业带来美好前景和“红二代”标志。Tong之前管理美国私募General Atlantic的中国投资组合，Alvin Jiang江志诚在加入博裕时年仅24岁，从哈佛大学毕业并刚刚在高盛开启职业生涯。
+制作：香草山视频部
 
-10年过后，由于大陆科技企业发展的红利，博裕已是中国最成功的投资者之一，去年该基金募集了将近70亿美元。
 
-但是最近，技术领域开始受到政府监管压力，北京强调“共同富裕”而不再是市场成功，博裕现在需要调整战略以应对。
 
-原文链接：[博裕资本面临习近平监管挑战](https://gnews.org/zh-hans/1839323/)
+法官裁定支持海豹突击队员寻求宗教豁免，不接种新冠疫苗
 
-音频处理：喜山必胜Maverick
+德州一位联邦法官周一裁定35名美国海豹突击队队员胜诉，他们就军方的强制疫苗令起诉拜登政府，这标志着对国防部疫苗政策首战告捷
 
-**发稿：**Daxia
+地区法官Reed O’Connor裁定，美国海军不能以原告出于宗教原由拒绝接种新冠疫苗为由开除他们，或规定他们永不能被调遣。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+该裁决引用了第一修正案和1993年的《宗教自由恢复法》，该法禁止政府机构 “对个人的宗教行为造成实质性负担，即使这种负担是由普遍适用的规定造成的。
+
+第一修正案里没有新冠的特例…我们的宪法不排除军队，裁决里指出
+O’Conner法官称海军对宗教豁免的考量程序是 “走过场”，并指出其七年来没有对任何疫苗要求给予宗教豁免
+
+该裁决只面向35名原告而非全美军队
+
+美国海军没有马上回应福布斯的评论请求
+
+八月，国防部强制要求所有军人接种新冠疫苗，这是针对联邦工作人员、承包商、医保人员和大公司雇员的一系列疫苗要求的一部分。
+
+海军在10月宣布，所有现役水兵必须在11月28日之前完全接种，并在上个月表示将把未接种疫苗的服役人员除名
+
+据美联社报道，截至12月19日，超过12000名现役人员正寻求新冠疫苗的宗教豁免
+
+裁决里提到，截至11月，99.4%的海军现役军人接种了新冠疫苗
+
+海军认为强制疫苗是为了保护军人的安全
+
+海军在十月如此说: 水手们必须时刻准备在全世界任何时间、任何地点执行任务，包括在疫苗接种率低和疾病传播率高的地方
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
 
  
 

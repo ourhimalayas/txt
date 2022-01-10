@@ -2,22 +2,36 @@
 ---
 
 
-## 罗根及其百万粉众因盖特重获言论自由新生
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841877/)
+## 有声|山下传来女人的哭救声
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841909/)
 
-采编/编译撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-1.jpg)
-据《纽约邮报》1月7日报道，在美国著名播客名人乔-罗根加入盖特后的几天内，目前已有超过100万的新用户注册了该新星社交媒体平台。
+配音：香草山健身部 – 格格
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+在共产党恶魔的统治下，共产党中南坑里，有哪位高官显贵们，把墙民百姓当人看，视人连猪狗都不如。灌输教育培养着底层打手，以愚制弱欺弱，使人产生变态的恶魔兽性，报复比他还弱的弱者，造成社会的恶性循环。重男轻女，女人更惨，生下的女孩命运好的被送人，命运坏的就是被扼杀掉。
 
-报道称，佐治亚州众议员格林近日在[推特]上表示：当局掩盖了因接种“新冠病毒”疫苗所导致的极高数量死亡病例，并呼吁[食品和药物管理局]停止批准该疫苗的推广使用。随后，推特以“多次分享疫苗错误信息”为由，封锁了该议员的帐户。罗根对此指出，出于对[推特]独裁审查制度的强烈反抗以及对自由言论表达的热血追求，他毅然决定加入最新崛起的盖特平台。
+原文链接：[山下传来女人的哭救声](https://gnews.org/zh-hans/1840147/)
 
-该社交媒体首席执行官米勒当天宣布，盖特的美国用户已接近300万，全球总的注册人数已超过3500万。而此次罗根及其百万跟随者的加入，无疑让所有人都重获言论自由表达的新生。
+音频处理：喜山必胜Maverick
 
-校对编辑：硫酸羟氯喹64
+**发稿：**Daxia
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-[原文链接](https://nypost.com/2022/01/07/joe-rogan-helps-gettr-amass-a-million-new-users/)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

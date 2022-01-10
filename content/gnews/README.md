@@ -15,116 +15,116 @@
 
 ---
 
-### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/1/README.md)
+### [有声|山下传来女人的哭救声](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [在新一年看新中国联邦的文化成长](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国会议员质疑爱彼迎非法持续提供新疆房源](/content/gnews/2/README.md)
+### [美国会议员质疑爱彼迎非法持续提供新疆房源](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [有声|西安盒马烘培店因鸡蛋没洗被查](/content/gnews/3/README.md)
+### [有声|西安盒马烘培店因鸡蛋没洗被查](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/4/README.md)
+### [有声|因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/5/README.md)
+### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [瑞典王储维多利亚二次感染中共病毒 已接种过三剂疫苗](/content/gnews/6/README.md)
+### [瑞典王储维多利亚二次感染中共病毒 已接种过三剂疫苗](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [有声|球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/7/README.md)
+### [有声|球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [2022年1月9日郭先生盖特 — 健身视频「1分28秒」](/content/gnews/8/README.md)
+### [2022年1月9日郭先生盖特 — 健身视频「1分28秒」](/content/gnews/10/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [有声|每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/9/README.md)
+### [有声|每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [法国逾十万民众上街抗议马克龙政府的疫苗强制政策](/content/gnews/10/README.md)
+### [法国逾十万民众上街抗议马克龙政府的疫苗强制政策](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [对抗中共 美日主导的“现代版巴统”即将出炉](/content/gnews/11/README.md)
+### [对抗中共 美日主导的“现代版巴统”即将出炉](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|青海地震光？还是中共核武爆!](/content/gnews/12/README.md)
+### [有声|青海地震光？还是中共核武爆!](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（上）](/content/gnews/13/README.md)
+### [【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（上）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（下）](/content/gnews/14/README.md)
+### [【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（下）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会](/content/gnews/15/README.md)
+### [前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会](/content/gnews/17/README.md)
  ` 美国政要直译推`
 
-### [加拿大强制接种计划遭部分省份拒绝](/content/gnews/16/README.md)
+### [加拿大强制接种计划遭部分省份拒绝](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|大直播—爆料革命穷追猛打下中共的金融乱象与迷局](/content/gnews/17/README.md)
+### [有声|大直播—爆料革命穷追猛打下中共的金融乱象与迷局](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [视频| 郭先生第一次说：一切都是刚刚开始](/content/gnews/18/README.md)
+### [视频| 郭先生第一次说：一切都是刚刚开始](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [视频| 昔日纳粹 今日共产党](/content/gnews/19/README.md)
+### [视频| 昔日纳粹 今日共产党](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [视频| 清零不要命 可怜西安人](/content/gnews/20/README.md)
+### [视频| 清零不要命 可怜西安人](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频| 因宗教原因请求豁免疫苗注射，海豹突击队员胜诉](/content/gnews/21/README.md)
+### [视频| 因宗教原因请求豁免疫苗注射，海豹突击队员胜诉](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [自给自足的加密生态系统代表了下一代支付系统](/content/gnews/22/README.md)
+### [自给自足的加密生态系统代表了下一代支付系统](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|博裕资本面临习近平监管挑战](/content/gnews/23/README.md)
+### [有声|博裕资本面临习近平监管挑战](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [辉瑞与武汉病毒研究所共推疫苗接种阴谋](/content/gnews/24/README.md)
+### [辉瑞与武汉病毒研究所共推疫苗接种阴谋](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [赌博与数学、统计学发展存在哪些关系？](/content/gnews/25/README.md)
+### [赌博与数学、统计学发展存在哪些关系？](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](/content/gnews/26/README.md)
+### [5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大试图立法以强制接种中共病毒疫苗](/content/gnews/27/README.md)
+### [加拿大试图立法以强制接种中共病毒疫苗](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [若哈萨克斯坦失控俄罗斯比解体还惨革命会传到新疆西藏](/content/gnews/28/README.md)
+### [若哈萨克斯坦失控俄罗斯比解体还惨革命会传到新疆西藏](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [GTV新闻访谈简报|2022年1月9日晚](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2022年1月9日晚](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [安省尼亚加拉卫生部暂停强制接种](/content/gnews/30/README.md)
+### [安省尼亚加拉卫生部暂停强制接种](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [安省尼亚加拉卫生部暂停强制接种政策](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [美国农业部新法规，将转基因食品命名为“生物工程”食品](/content/gnews/32/README.md)
+### [美国农业部新法规，将转基因食品命名为“生物工程”食品](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国对强制中共病毒疫苗政策“踩刹车”](/content/gnews/33/README.md)
+### [德国对强制中共病毒疫苗政策“踩刹车”](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东京周六新增中共病毒数比上周同期高出15倍](/content/gnews/34/README.md)
+### [东京周六新增中共病毒数比上周同期高出15倍](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/09/2022 文贵直播： 新中国联邦掌握了中共国安委的情报](/content/gnews/35/README.md)
+### [1/09/2022 文贵直播： 新中国联邦掌握了中共国安委的情报](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [哈萨克斯坦的侥幸心理重演了阿富汗事件让中共阴谋得逞](/content/gnews/36/README.md)
+### [哈萨克斯坦的侥幸心理重演了阿富汗事件让中共阴谋得逞](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [美国和北约拒绝俄罗斯停止东扩呼吁](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [欧元区12月通胀率创历史新高](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
