@@ -2,25 +2,39 @@
 ---
 
 
-## 澳洲开始为5至11岁儿童接种中共病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1842722/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/101-1.jpg)图片来源于网络
-据澳大利亚9号新闻网报道，澳大利亚从1月10日开始，5至11岁的儿童有资格接种中共病毒疫苗。
+#### 撰稿：彩虹
 
-澳卫生部长格雷格·亨特（Greg Hunt ）保证，这个年龄组的儿童有大量的疫苗可以使用，有大约230万5至11岁年龄组的儿童，1月份有300万剂疫苗，在未来两周内有200万剂。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
-但是，家长们担心疫苗不够用，如果他们不能在返校日期到来之前为该年龄段的孩子接种疫苗，他们可能被迫回到家中学习。
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
-悉尼大学的传染病专家罗伯特·布依（Robert Booy）教授说，在返校前为孩子们接种疫苗不仅可以保护他们，而且如果孩子们在学校感染了这种疾病，还可以保护其他家庭成员不被感染。孩子们的适应力很强，他们能够比我们成年人更好地抵抗奥密克戎（Omicron）。接种疫苗是有意义的，它将保护儿童，防止他们感染病毒后的严重后果，接种疫苗也将阻止家庭中的传播，保护家庭中的脆弱成员不被儿童感染。
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
-所有流氓政府的套路如出一辙：政府站台，“砖家”背书。对于生活在澳洲的战友，政府的手已经伸向5-11岁的孩子，大家看好自己的孩子，大不了让孩子待在家里不去上学，我们有自己的G-Education，可以先让孩子在那里继续接受教育，培养我们的爆二代、爆三代。
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
-新闻来源：[9news.com.au](https://www.9news.com.au/national/coronavirus-vaccination-update-australia-children-aged-five-to-11-eligible-for-covid-19-vaccine-from-january-10/ca1f4b62-3830-4100-b4b1-cfbf9e4a5a08)
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
+
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
+
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
+
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
+
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
+
+**新闻来源**
+
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
+
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

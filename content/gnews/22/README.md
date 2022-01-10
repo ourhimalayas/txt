@@ -2,52 +2,22 @@
 ---
 
 
-## 这是一场思想的战争，我们处于战争状态
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
+## 德约科维奇签证案胜诉 能否打澳网仍是未知数
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1842906/)
 
-#### 翻译：奋斗
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-684.png)（图片来源于本文链接）
+澳洲联邦法院周一（10日）裁定释放遭拘留的世界球王德约科维奇（Novak Djokovic），法官认为，海关人员作出取消签证的决定是不合理的，不过澳洲仍保留撤销德约科维奇签证的权利，因此世界球王能否参加澳网，仍是未知数。
 
-#### 校对：精靈藍
+德约科维奇是上周三（5日）赴澳大利亚准备参加澳网公开赛，却在墨尔本机场被拒绝入境。德约科维奇在出发前往澳大利亚前，经过两个独立医疗小组的审查后，取得了维多利亚州政府以及澳网的医疗豁免权，但澳洲边防部队的官员认为，其所持签证不允许未接种疫苗者获豁免权。德约科维奇被安排下榻在一家隔离饭店中。澳洲联邦法院于10日聆讯后，法官凯利（Anthony Kelly）裁决允许释放德约科维奇。凯利指出，德约科维奇在抵达墨尔本参加澳网公开赛前，就已取得中共疫苗接种的医疗豁免，并在5日傍晚降落时提出证据。凯利在听取许多关于此案的法律争辩后，接纳了德约科维奇的论点。凯利称自己“有些激动”，他说，德约科维奇已出示了“一位教授和一位知名医生”所提供的医疗豁免相关证据，并指出 “这个人又还能做什么呢？”德约科维奇的律师尼克·伍德（Nick Wood）同意法官的观点，认为德约科维奇无法再为签证做出更多努力。德约科维奇与海关官员的谈话记录和他自己的宣誓书也显示，德约科维奇已为签证一事做足准备。德约科维奇的律师针对他的签证被取消一事提交了11条上诉论点。法庭文件报显示，德约科维奇没有接种疫苗，但他辩称自己不需要接种疫苗的证明，因为他有证据表明他已感染过中共病毒（新冠病毒Covid-19），所以不需要疫苗接种证明。
 
-#### 剪辑/字幕：向上James
+德约科维奇在上个月曾感染过中共病毒。澳大利亚医疗机构裁定，在六个月内感染中共肺炎的人可获得疫苗接种的临时豁免权。因此，律师认为，他的签证被取消并不符合规定。然而该裁决不代表德约科维奇一定能参加出赛，澳内政部长卡伦·安德烈（Karen Andres）的律师称，若法官作出有利于德约科维奇的裁决，官员有可能会第二次取消他的签证。他们说，疫苗接种豁免权只给罹患过中共病毒，而且是重症的入境旅客。
 
-我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
+信息来源： [德约科维奇签证案胜诉 能否打澳网仍是未知数](https://www.dw.com/zh/%E5%BE%B7%E7%BA%A6%E7%A7%91%E7%BB%B4%E5%A5%87%E7%AD%BE%E8%AF%81%E6%A1%88%E8%83%9C%E8%AF%89-%E8%83%BD%E5%90%A6%E6%89%93%E6%BE%B3%E7%BD%91%E4%BB%8D%E6%98%AF%E6%9C%AA%E7%9F%A5%E6%95%B0/a-60376765)
 
-So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
-
-我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
-
-And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
-
-这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
-
-It’s not a battle about land, this is actually a battle for the minds.
-
-这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
-
-This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
-
-这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
-
-What people are seeing is now the battle between good and evil between Satan and the devil.
-
-人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
-
-And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
-
-实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
-
-视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

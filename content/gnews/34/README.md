@@ -2,51 +2,32 @@
 ---
 
 
-## 天津市开展全员核酸检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842611/)
+## 英国疫苗前负责人：应该停止大规模接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842614/)
 
-新闻采集：janey17
-作者：纽约香草山教育部 – 飞虹
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-16.jpg)图片来源：mint
+1月9日，《国家脉动》记者凯·斯迈思（Kay Smythe）发布文章，报道英国疫苗工作组前负责人克莱夫·迪克斯（Clive Dix）博士表示，国家的大规模中共病毒（COVID-19）疫苗接种活动应该结束，同时也应该结束对“病例数”的无休止追踪。迪克斯博士告诉《天空新闻台》，最初的疫苗是为了阻止感染和传播，但却不成功。
 
+过去，中共病毒疫苗同样是为了防止严重疾病，但目前这波新的中共病毒变体意味着这些中共病毒疫苗无法阻止感染中共病毒。迪克斯博士解释说，（因为）新的中共病毒变体“温和的多”，因此“给那些不会得严重疾病的人注射越来越多的（中共病毒）疫苗是毫无意义的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+去年六月，当迪克斯博士被任命为英国政府疫苗工作组主席时，他呼吁在部署接种中共病毒疫苗时要采取更加有针对性的措施方法。该立场也是大多数反对强制接种中共病毒疫苗支持者所持的立场，而这些反对者被媒体（诬蔑）称为“反疫苗者”。
 
+这位老资历的药学家解释说，疫苗的部署应该专注于为社会中最脆弱的群体提供保护，例如肥胖症儿童。
 
+迪克斯与其他医生有类似的观点，认为中共病毒疫苗背后的科学依据并不充分，他说：“人们应该去工作，去做他们的事情。如果他们生病了，就回家去，呆在家里”。
 
-1月9日，天津市委市政府和市疫情防控领导小组、市疫情防控指挥部决定在全市范围开展全员核酸检测。
+而迪克斯博士表达的最重要的信息是，我们应该“停止测量病例数，并固定在停止这些数字上……我们现在需要管理疾病，而不是病毒传播”。他强调要阻止中共病毒在脆弱群体中发展成为一种严重的疾病，而阻止中共病毒的发展将意味着医院必须在门诊环境中进行早期干预和护理。
 
-据悉，天津市16个区的全体居民，分两批，分别从1月9日7时和1月10日7时起，在当时居住地保持原地相对静止，根据各区防控指挥部的统筹部署和街道社区的组织安排，到指定地点，及时配合进行核酸检测。24小时内完成区域内人员核酸检测工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-3.jpg)
-相关区居民未在规定时间内参加核酸检测的，“健康码”调整为“橙码”，完成核酸检测且结果呈阴性后转为“绿码”。
+然而，英国的NHS和美国主要医疗机构仍然有意解雇未接种中共病毒疫苗的医护人员，导致已经不堪重负的医疗系统可能出现重大的人员短缺。据报道，2021年10月份，英国卫生部长萨吉德·贾维德（Sajid Javid）就正在计划解雇多达10万名不愿接受中共病毒疫苗接种的NHS工作人员。
 
-据了解，1月7日18时至8日21时，天津市津南区新增20名人员新冠病毒核酸结果呈阳性。
+文章作者认为，从迪克斯博士的评论中可以得出结论，他认为中共病毒是人类“新常态”的一部分。迪克斯说：“英国必须停止对民众的大规模（中共病毒）疫苗接种”。
 
-参考链接：
-[天津市开展全员核酸检测](https://news.cnstock.com/news,bwkx-202201-4809391.htm)
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[WATCH: Vax Taskforce Chief Says Mass Vaccination ‘Pointless’, Time to Stop Counting Case Numbers.](https://thenationalpulse.com/2022/01/09/watch-vax-taskforce-chief-says-mass-vaccination-pointless-time-to-stop-counting-case-numbers/)
 
  
 

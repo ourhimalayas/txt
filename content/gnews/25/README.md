@@ -2,30 +2,51 @@
 ---
 
 
-## 喜交所——引领下一代加密货币支付系统的“全球旗舰领军者”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1842802/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-作者：sherryok（水云间）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-11.png)
-科技时代网站（Tech Times），是美国纽约一家关注硅谷公司，技术创新，以及领先科技与商业融合后所带来的文化转型内容的网站，看看它的文章标题，就知道他们的内容有多酷：“迪斯尼的专利表明它也正在进入元宇宙”、 “史克威尔艾尼克斯进军区块链游戏市场！新的 NFT 游戏即将到来”、“具有 Metaverse 的平台加强了艺术、品牌和流行文化之间的联系”。是不是非常吸引人? 近日，该媒体把目光聚焦到了一个新兴的加密货币交易平台-喜马拉雅交易所 （[Himalaya Exchange](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://himalaya.exchange/himalaya-pay)），标题是“为什么自给自足的加密生态系统代表了下一代支付系统”。不用说，该网站已经给喜马拉雅交易所戴上了引领下一代加密货币支付系统“全球旗舰领军者”头衔。
+#### 翻译：奋斗
 
-记者大卫.汤普森(David Thompson) 认为，支付系统的未来将属于那些以金融包容性为核心的平台。在实践中，这意味着进入门槛低、风险降低、交易成本降低以及速度和效率提高。而喜马拉雅交易所（简称喜交所）在这些方面独占鳌头，因为他拥有一个“自给自足的生态系统”。
+#### 校对：精靈藍
 
-“这是市场上最新的方法”大卫说，喜交所通过创建自给自足的生态系统来，结合了“加密货币与传统货币相结合”及“商家在线钱包存储加密货币”两种目前最受欢迎的支付应用方式。它在一个平台上集成了其原生交易币-喜币（Himalaya Coin ‘HCN’）、稳定币-喜美元（Himalaya Dollar ‘HDO’）和支付应用程序-喜支付（Himalaya Pay）。
+#### 剪辑/字幕：向上James
 
-喜美元（HDO）固定为美元（USD），并有由美元和现金等价资产组成的储备作为后盾。因此，虽然喜币的市场价格可能会波动，但喜美元的固定价值为交易者和投资者提供了避风港，大大减少交易时因加密市场的波动产生的风险。
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-更加无与伦比的是喜交所交易的便利性，即将推出的喜支付（ Himalaya Pay ）应用程序以及相关交易市场，使得喜美元、喜币都能在同一生态系统中自由兑换，其便利与目前加密市场上各自为政，春秋战国的混乱局面不可同日而语。在同一生态系统中流通，“这很可能会流行起来”，记者大卫一语中的。同时由于大多数现有的全球加密资产由少数投资者（或加密“鲸鱼”）拥有并只在成熟的交易所买卖，因此新兴的喜马拉雅交易所可能会创建一个更易于访问、低成本和为加密货币新手入门的数字资产网络。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-据[报道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/ilkerkoksal/2019/08/23/the-rise-of-crypto-as-payment-currency/?sh%3D1d459bc626e9)，到明年，全球电子商务预计将增至 5.69 万亿美元，其中 72% 的销售额来自移动设备。消费者希望能够在上下班途中甚至在当地邮局排队等候时进行商品和服务交易。事实证明，中共病毒大流行期间，在线购物趋势势头迅猛，消费者要求每周 7 天、每天 24 小时高效购物。
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-高效，安全，便捷，零售业以惊人的速度走向数字化。用 Bigcommerce 首席执行官 Brent Bellm 的话来说，“到 2022 年，实体零售空间将只不过是陈列室而已”。2022已经到了，“自给自足的生态系统看起来有一个良好的开端，但比赛才刚刚开始”。大卫记者文章结尾的这句话与新中国联邦爆料革命的口号，“一切都是刚刚开始”何其相似。
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
 
-这是一个多么神奇的开始！文贵先生在最近的直播中说，喜交所从2021年11月1日上线以来，短短两三个月的时间，创造的神奇，世界上的数字货币，几乎都在一个月内暴跌，能撑过两个月的几乎没有。喜联储的投资者们谁也没想到喜币能涨到40.今后，全世界你能想到的最牛的企业都会想和喜交所合作，为什么? 因为喜联储让他们看到，没有一个机构能让币值从0到400倍这样稳定的增长，而且绝对不会被挤兑，挤垮的，一个也没有。喜交所全球首创的加密货币生态系统，必将带领人类进入到一个全新的金融世界。
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
 
-新闻链接：https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm
+It’s not a battle about land, this is actually a battle for the minds.
 
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
 
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
+
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
+
+What people are seeing is now the battle between good and evil between Satan and the devil.
+
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
+
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
