@@ -2,67 +2,55 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
+## 美国农业部新法规，将转基因食品命名为“生物工程”食品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841439/)
 
-前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
+**【雅典娜观察】和您一起探究世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/npr.jpg)**图片来源：NPR**
+**翻译：George Warshing**
 
+**编辑：文泓**
 
+在今年元旦生效的美国《新食品披露规则》管理下，以往的转基因食品现在将贴上“生物工程”标签。所以，当各国政府搞文字游戏隐藏真相时，人们需要留意这个新术语。
 
-> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
->  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
-> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
+据《大纪元时报》报道，食品生产企业要在1月1日按照新法律行事，这项法律这实际上是在川普执政期间制定和颁布的。
 
+曾在川普手下任职的农业部长桑尼·帕杜说，“不统一的各州标准体系让消费者感到困惑”，这项国家标准颁布解决了这个问题。
 
+如今“国家标准”，也意味着个别州或某地继续使用“转基因生物”人们熟知的标签的行为将被禁止。尽管“生物工程”似乎是一个准确的术语，但“转基因生物”无疑会被“遗忘”，因为美国人习惯于被另一个新术语迷惑。
 
-众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
+幸运的是，包括食品安全中心在内的社会团体不仅反对这一改变，而且还向法院提起诉讼予以阻止。该中心表示，新标签只能让消费者感到困惑。
 
+该中心的行政官安德鲁·金布雷尔在一份声明中说：“**这些规定并不是把秘密向公众告知，而是允许公司向客户隐瞒转基因工程成分使用的情况。**这是一个监管骗局，我们正努力寻求在联邦法院层面将其撤销。”
 
+此外，有机贸易协会、农业与贸易政策研究所和非转基因项目也都对新规则正式提出了反对意见。
 
-> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
-> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
+该项目在新规则实施后的一份声明中表示：“总体而言，许多含有转基因生物的产品不会贴上标签，这意味着（该产品）没有披露生物工程（BE），但并不意味着产品是非转基因产品。”
 
+对此，《大纪元时报》指出，**国会在《国家生物工程食品披露法》中要求食品制造商在产品含有生物工程成分的情况下，在标签上添加文字说明、符号或二维码之类的数字链接。**立法者仅使用了生物工程一词，但允许农业部使用类似的术语。然而，农业部坚持选择“生物工程”这一名称。
 
+然而，实际上新法规也不乏支持者，这包括食品营销协会和杂货制造商协会等食品行业组织。
 
-美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+食品营销协会在2018年指出，“这项法律提供了一个有关我们所售食品透明度的长效途径，并能让全国各地的客户对含生物工程成分的日杂产品有更多的了解”。
 
+但一些支持者还要求拜登政权推迟落实这项法规的最后期限，因为供应链危机仍在恶化，而本届政府的作为也加剧了这场危机。
 
+消费者品牌协会在最近的一份声明中表示，现政府“目前必须采取‘不会造成伤害’的立场，使各公司能够专注于向消费者提供食品运输。”
 
-> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
+无论为**“**转基因食品**”**取什么样的名字，对消费者来说仍然是个问题。
 
+例如，在2019年，一位前孟山都生物工程师的举报人承认，他帮助创造的转基因马铃薯会吸引各种毒素，包括改良前粮食作物中未发现的毒素。
+凯厄斯·罗门斯博士在孟山都公司的疾病控制计划中工作了六年，并开发了数千种转基因马铃薯品种，**他发现其中大多数品种证明会（基因）突变、不育、缺乏叶绿素或生长停滞。这会对消费者的健康产生什么样的影响呢？**
 
+新闻链接：[Don’t be fooled: GMO foods will now be labeled “bioengineered” under new rule taking effect – NaturalNews.com](https://www.naturalnews.com/2022-01-07-gmo-foods-will-now-be-bioengineered.html)
 
-众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
+发布： Frank2021
 
-
-
-> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
-> 
-> Georgia restored election integrity.
-> 
-> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
-> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
-
-
-
-> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
-> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
-
-
-
-> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
-> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

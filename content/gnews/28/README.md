@@ -2,39 +2,45 @@
 ---
 
 
-## 5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841599/)
+## 中共房地产的崩塌会推进人类文明再次飞跃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840130/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](https://assets.gnews.org/wp-content/uploads/2022/01/arillive.jpg)**图片来源：AirLive**
-**翻译：Georeg Warshing**
+作者：银河勇气星 骄子
 
-**编辑：文泓**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-近日，美国手机运营商已同意对在50个机场部署的C波段发射机断网六个月。
+1月7日，郭文贵先生在直播中指出，中共即将崩塌的房地产金融将会重塑人类文明。
 
-当地时间1月8日，据RT电视台报道，出于对网络扩展可能干扰飞机安全系统的担心，美国联邦航空管理局(FAA)发布了一份美国机场名单，将在这些机场周围设置5G缓冲区。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-10.37.40-PM.png)
 
-美国最大的两家电信公司AT&T和Verizon在与政府官员谈判时，正努力推出其*“*改变游戏规则”的C波段5G网络，联网日期由最早的原定12月推迟到1月5日，之后再延后了两个星期。**现在，美国联邦航空局表示，电信运营商已同意将数十个机场周围的5G发射塔断网至少六个月。**
+郭先生解释，目前，中共利用房地产金融的债务问题做绑架，导致全球金融市场进退两难。长此以往，其势必会给西方国家，乃至全世界的经济带来巨大的打击。
 
-洛杉矶、拉斯维加斯、纽约、迈阿密和达拉斯等主要城市的机场被划定在所谓缓冲区，而像佐治亚州的亚特兰大机场和科罗拉多州的丹佛机场因为已设有自然缓冲区，其他没有计划在机场附近部署5G网络的则未设定缓冲区。
+郭先生补充道，人类即将经历有史以来最严重的全球经济危机，而中共也会随着这次大劫难而走向灭亡。但郭先生认为，经历了疫苗灾难和金融危机后，全球经济会进入一个前所未有的加速反弹期。届时，人类社会，包括政治、经济，金融、资源等各个方面都会进行史无前例的重新大洗牌。同一时间，太空、新技术、5G、AI、数字货币也将会给人类带来财富的大爆发。
 
-**监管机构担心的是C波段5G可能扰乱飞机仪器**，**比如提供飞机离地高度信息的无线电高度计，**这是一种在低能见度情况下着陆很重要的安全系统。
+郭先生表示，出乎中共意料的是，它用债务绑架全球经济并用房地产制造的金融危机竟然能够推动人类产生空前绝后的经济大反弹和文明大进步。
 
-航空业领袖警告说，5G计划未来可能会对航班造成数千次干扰。美国航空的一家游说公司此前曾预测说，5G的推出可能造成数百万人的航班会被延误或取消。
+郭先生戏称，中共之死的最大贡献，就是其骨灰变成了人类文明的肥料。
 
-美国联邦航空局表示，他们根据*“*交通量、低能见度天数和地理位置*”*编制了（5G缓冲区）机场名单。该机构还在为航空公司和制造商制定适航指令（强制性），以*“*提供消减不安全情况的替代方法*”，*并确保飞机配备*“*在高强度5G环境中证实为可靠和准确*”*的高度计*。*
+參考鏈結：
 
-新闻链接: [FAA identifies dozens of airports affected by 5G rollout — RT World News](https://www.rt.com/news/545476-airports-buffers-faa-5g/)
+1. [2022年1月7日 文贵大直播：（3）香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+2. [语音版：中共没料到它用债务绑架全球经济并用房地产制造金融危机竟能推动人类产生史无前例的经济大反弹和文明大进步](https://gnews.org/zh-hans/1836697/)
 
-发布： Frank2021
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+
+编辑：文真 
+总编：飞虹 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
