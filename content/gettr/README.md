@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 11:50 PM (UTC)`
+
+1/10/2022 Miles Guo’s GETTR: The CCP has been treating the Lao Baixing as animals, and it is so pathetic that the Chinese people have never questioned whether or not what the CCP is doing is reasonable and legitimate. Don’t equate your everyday life with mystics. Instead, we should follow the rules of nature. We shall live a better life after the CCP is taken down!<br/><br/>1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法；不要把生活和玄学划等号，要尊重大自然的规律，灭共后我们要过上更美好的生活！<br/>
+![img](https://media.gettr.com/group31/getter/2022/01/10/23/5b65d6c4-0445-f421-aee9-0f984aba484b/out.jpg)
+
+---
+
 `@miles 1/10/2022 11:11 PM (UTC)`
 
 1/09/2022 Miles Guo: Both Jiang Zemin’s faction and Zeng Qinghong’s faction deeply believe in the “Dragon” theory; the CCP is so superstitious about the idea that the Human Realm locates at South Putuo in Zhoushan and that the gods of heaven and earth live in the Kunlun Mountains and the Himalayas. Therefore, as long as the CCP exists, it will never allow Tibet or Xinjiang to become independent!<br/><br/>1/09/2022 文贵直播：“海派”江家、曾家相信“龙”，中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立！<br/>
@@ -156,13 +163,6 @@ Even the stars were jealous of the sparkle in her eyes 💘
 
 My first post. Just want to test how many Chinese people are there.
 ![img](https://media.gettr.com/group42/origin/2022/01/09/06/82584d33-05ed-5f66-9f82-954e42aa5dab/out.jpg)
-
----
-
-`@miles 1/9/2022 1:10 PM (UTC)`
-
-2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析
-![img](https://media.gettr.com/group44/origin/2022/01/09/12/fab1d5be-aa31-0f08-aff8-c8307d3837be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

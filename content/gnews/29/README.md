@@ -2,36 +2,34 @@
 ---
 
 
-## 白宫的一条推特可使拜登的疫苗强制落空
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843971/)
+## 澳大利亚政府本月绑架了第二名职业网球运动员
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
 
-加拿大温哥华扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/50473671-0-image-a-25_1636910766963.jpg)图片来源：Daily Mail
-根据《福布斯》1月8日报道，拜登总统的要求拥有100名以上雇员的企业疫苗强制令本应在本周一生效，最高法院昨天听取了一项紧急动议，以阻止其生效。
+翻译：Jenny Ball
 
-国会从未通过过强制接种疫苗的法律，而这个分裂严重的国会也不打算通过这样的法律，那么拜登总统声称这项授权的权力从何而来？司法部说，国会已经授权职业健康与安全局（OSHA）有广泛的权力来保护工人的安全，包括要求工人接种疫苗的权力。根据法律规定，OSHA负责确保工人的安全和健康，”通过开发创新的方法、技术和途径来处理职业安全和健康问题”。为此，国会授权劳工部长”制定适用于影响州际商业的企业的强制性职业安全和健康标准”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
 
-总统没有监管工作场所的独立权力，因此拜登总统认为，他只是在执行国会通过这些措辞宽泛的法规授予他的权力。这些都是法院一直在处理的问题。
+周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
 
-拜登政府会知道，最好不要在推特上发布削弱其支持其行动的法律论据的信息。在这种情况下，拜登辩称他只是在执行国会的意愿.
+尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
 
-不幸的是，在拜登发表宣布疫苗任务的重要讲话后不久，他的幕僚长罗恩-克莱恩(Ron Klain)在推特上转发了一位新闻主播的言论，称”OSHA将这项疫苗任务作为一项紧急工作场所安全规则来做，是联邦政府要求接种疫苗的最终变通办法。”
+本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
 
-对于拜登政府而言这是个巨大的错误。在口头辩论中，首席大法官约翰-罗伯茨特别提到了这条推文的负面作用。他质问政府的律师，说。”在我看来，这是政府在试图跨越水面工作，它只是在逐个机构进行。我的意思是，这已经被称为，办法，是一种变通，我想知道你想变通的是什么”。
+德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
 
-罗伯茨明确暗示的是，拜登正试图绕过国会的意愿，而不是实施它。这是一把直接刺穿拜登论点核心的匕首。在法院的保守派大法官中，他被普遍认为是最温和的，而且他作为首席大法官可以说具有特殊的分量。如果克莱恩幸灾乐祸的推特让拜登政府失去了罗伯特大法官的信任，那是一个代价非常高的错误。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
 
-除了法院的三位自由派大法官之外，该疫苗强制令几乎没有可能的捍卫者。在口头辩论中，法院最新的大法官艾米-科尼-巴雷特(Amy Coney Barrett)提出了怀疑的问题，即为什么该授权适用于低风险的户外职业，如地面管理，以及风险较高的室内工作。尼尔-戈尔苏赫大法官谈了很多关于”重大问题原则”的问题，即当政府机构的决定可能对经济产生广泛影响时，法院应给予其较少的回旋余地。
+捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
 
-本案的关键在于，拜登政府是在执行国会通过的联邦法律，还是在违宪地自行行事。拜登政府称其政策为”变通”，是自断后路。
+**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-原文链接：
+* * *
 
-[https://www.forbes.com/sites/evangerstmann/2022/01/08/how-a-white-house-tweet-may-doom-bidens-workplace-vaccine-mandate/?sh=1cc10c5e5d2f](https://www.forbes.com/sites/evangerstmann/2022/01/08/how-a-white-house-tweet-may-doom-bidens-workplace-vaccine-mandate/?sh=1cc10c5e5d2f)
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-
-
-编辑，发稿Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 
