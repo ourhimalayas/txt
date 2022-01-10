@@ -2,27 +2,43 @@
 ---
 
 
-## 中共独裁体制下的疫情防控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843423/)
+## 简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843468/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg3.chinadaily.com.cn%2Fimages%2F202201%2F10%2F61db718da3107be47f29de83.jpeg&amp;imgrefurl=https%3A%2F%2Fcn.chinadaily.com.cn%2Fa%2F202201%2F10%2FWS61db718da3107be497a015da.html&amp;tbnid=4HAgrcmMijuCaM&amp;vet=12ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ..i&amp;docid=Hzojou9SFKDGaM&amp;w=1024&amp;h=690&amp;itg=1&amp;q=%E5%A4%A9%E6%B4%A5%E6%8E%92%E9%98%9F%E6%A3%80%E6%B5%8B&amp;ved=2ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-1月10日每经经济报报道，10日举行的天津市中共病毒（新冠病毒Covid-19）疫情防控工作新闻发布会上了解到，截至1月10日15时，天津市核酸采样9624938人，完成检测3427807人，除报告的阳性感染者外，其他均为阴性，检测工作正在进行中。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-17.jpg)
 
-从1月8日发现两例阳性患者，截至1月10日15时确诊31例，无症状感染者10例，累计判定追踪密切接触者1152人，次级密切接触者685人，均予以隔离管控。本次疫情累计隔离管理约7.5万人，如此大面积无效的核酸检测结果，只有中共独裁统治者才可以做到如此短时间内做到强制的非法管控。
 
-发布会给出的除阳性外均为阴性这样的信息，2021年天津人口普查，常住总人口数是1386.6万人，核酸采样962万人，完成检测342万人，还有600多万等待结果，在这未知结果人群中，还有更多未知数据。
+ 
+图片来源：Global Possibilities
 
-信息来源:
 
-[【天津已完成全市核酸采样超900万人】](https://mo.mbd.baidu.com/r/zrcRocIMaQ?f=cp&amp;rs=431117269&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ba789292d4ea3bc3)
+整理报道：小鱼儿
+编辑：小鱼儿/小红帽
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+据自然新闻(Natural News)1月9日报道，简·鲁比（Jane Ruby）博士告诉公众，大药厂如辉瑞公司（ Pfizer）、摩德纳公司（Moderna）和强生公司（Johnson & Johnson）正在部署有毒批次的新冠病毒(COVID-19)疫苗。
 
+鲁比在1月3日的斯图·彼得斯秀节目(The Stew Peters Show)中说，“有证据表明，这些公司故意部署有毒批次的（新冠病毒疫苗）。”她说，分析家们通过批号确定了有毒的批次，现在是向全世界人民传递信息的紧急时刻。
+
+“他们所做的是，确定测试一半人口的致死量。这是进入人体研究之前，评估急性毒性的手段之一，”鲁比说。“这是在人们不知情和没有同意的情况下进行的。这违反了所有道德和监管规则。这些公司只是在肆无忌惮地进行，因为没有任何东西可以阻止他们。”
+
+鲁比分析，对于摩德纳来说，它是批次代码011 l 20。数字011是时间上的批次顺序，代表已经被开发了一段时间，并由公司部署。“ l ”是浓度，决定了它的毒性和不良反应的数量。数字20是定性的，这种成分在其批次中被认为是高毒性的。
+
+设法进入辉瑞和摩德纳系统的专业黑客能够验证这些批次，并有足够的证据列出迄今为止部署的所有摩德纳批次。
+
+黑客发现，这些公司在部署疫苗的地点和发放的剂量方面都非常具体。摩德纳来公司一直在美国分发致命的剂量，并在欧盟出口 “残疾”剂量。因此，与欧盟相比，美国的死亡率高出10倍。但与美国相比，欧盟的不良反应和残疾病例要高出10倍。
+
+参考新闻：[Dr. Jane Ruby: Big Pharma companies intentionally deploying toxic batches of COVID-19 vaccine – Brighteon.TV](https://www.naturalnews.com/2022-01-09-big-pharma-deploys-toxic-batches-covid-vaccine.html)
+
+发布：小红帽
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
