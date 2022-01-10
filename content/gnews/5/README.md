@@ -2,33 +2,37 @@
 ---
 
 
-## 接种三针疫苗的瑞士运动员被诊断出心肌炎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843894/)
+## 白宫的一条推特可使拜登的疫苗强制落空
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843971/)
 
-编译： Jenny Ball
+加拿大温哥华扬帆农场Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/50473671-0-image-a-25_1636910766963.jpg)图片来源：Daily Mail
+根据《福布斯》1月8日报道，拜登总统的要求拥有100名以上雇员的企业疫苗强制令本应在本周一生效，最高法院昨天听取了一项紧急动议，以阻止其生效。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-704.png)图片来源**：**thegatewaypundit.com
+国会从未通过过强制接种疫苗的法律，而这个分裂严重的国会也不打算通过这样的法律，那么拜登总统声称这项授权的权力从何而来？司法部说，国会已经授权职业健康与安全局（OSHA）有广泛的权力来保护工人的安全，包括要求工人接种疫苗的权力。根据法律规定，OSHA负责确保工人的安全和健康，”通过开发创新的方法、技术和途径来处理职业安全和健康问题”。为此，国会授权劳工部长”制定适用于影响州际商业的企业的强制性职业安全和健康标准”。
 
-这位 31 岁的瑞士跑步健将法比安·施伦普夫（Fabienne Schlumpf），周四在她的 Instagram 账户上宣布她患上了心肌炎。目前，她不得参加任何运动和参加训练。
+总统没有监管工作场所的独立权力，因此拜登总统认为，他只是在执行国会通过这些措辞宽泛的法规授予他的权力。这些都是法院一直在处理的问题。
 
-“坏消息！不幸的是现在心肌炎在困扰着我。这对我来说绝对不是一段轻松的日子，但我不会放弃。我希望很快回来，追逐我的梦想……和对手竞争。”
+拜登政府会知道，最好不要在推特上发布削弱其支持其行动的法律论据的信息。在这种情况下，拜登辩称他只是在执行国会的意愿.
 
-“据 《COVID 世界》报道，这位 31 岁的女士在日常生活中感到‘疲劳’，在上个月的一次轻松耐力跑中，她的心率飙升后，她找到了一位医生，诊断她患有心肌炎，”。
+不幸的是，在拜登发表宣布疫苗任务的重要讲话后不久，他的幕僚长罗恩-克莱恩(Ron Klain)在推特上转发了一位新闻主播的言论，称”OSHA将这项疫苗任务作为一项紧急工作场所安全规则来做，是联邦政府要求接种疫苗的最终变通办法。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-706.png)图片来源**：**thegatewaypundit.com
+对于拜登政府而言这是个巨大的错误。在口头辩论中，首席大法官约翰-罗伯茨特别提到了这条推文的负面作用。他质问政府的律师，说。”在我看来，这是政府在试图跨越水面工作，它只是在逐个机构进行。我的意思是，这已经被称为，办法，是一种变通，我想知道你想变通的是什么”。
 
-翻译：大多数情况下，病毒感染会导致心肌炎，施伦普夫认为与 Corona 没有联系。 她已经接种了疫苗，并打了加强针，到目前为止还没有被感染。其实年初的时候，她就想去葡萄牙参加集训，但是没有结果。“没有人能告诉我需要休息多久，”她说。
+罗伯茨明确暗示的是，拜登正试图绕过国会的意愿，而不是实施它。这是一把直接刺穿拜登论点核心的匕首。在法院的保守派大法官中，他被普遍认为是最温和的，而且他作为首席大法官可以说具有特殊的分量。如果克莱恩幸灾乐祸的推特让拜登政府失去了罗伯特大法官的信任，那是一个代价非常高的错误。
 
-**评论：这就是悲哀之处，现在发生的灾难，已经不是Covid病毒，而是mRNA试验药物在人体中反应后造成的更大的灾害**！而邪恶势力制造Covid病毒的目的，就是用恐惧威吓，用政策胁迫人们去当试验老鼠！
+除了法院的三位自由派大法官之外，该疫苗强制令几乎没有可能的捍卫者。在口头辩论中，法院最新的大法官艾米-科尼-巴雷特(Amy Coney Barrett)提出了怀疑的问题，即为什么该授权适用于低风险的户外职业，如地面管理，以及风险较高的室内工作。尼尔-戈尔苏赫大法官谈了很多关于”重大问题原则”的问题，即当政府机构的决定可能对经济产生广泛影响时，法院应给予其较少的回旋余地。
 
-新闻来源 **：**[thegatewaypundit.com] [Triple Vaccinated Swiss Olympic Athlete Fabienne Schlumpf Diagnosed with Myocarditis – May Never be Able to Compete Again](https://www.thegatewaypundit.com/2022/01/triple-vaccinated-swiss-olympic-athlete-fabienne-schlumpf-diagnose-myocarditis-may-never-able-compete/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+本案的关键在于，拜登政府是在执行国会通过的联邦法律，还是在违宪地自行行事。拜登政府称其政策为”变通”，是自断后路。
 
-* * *
+原文链接：
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+[https://www.forbes.com/sites/evangerstmann/2022/01/08/how-a-white-house-tweet-may-doom-bidens-workplace-vaccine-mandate/?sh=1cc10c5e5d2f](https://www.forbes.com/sites/evangerstmann/2022/01/08/how-a-white-house-tweet-may-doom-bidens-workplace-vaccine-mandate/?sh=1cc10c5e5d2f)
+
+
+
+编辑，发稿Spirit
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
