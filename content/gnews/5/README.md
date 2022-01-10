@@ -2,10 +2,10 @@
 ---
 
 
-## 研究表明50%运动员接种中共病毒疫苗后罹患无症状心肌炎
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842223/)
+## 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842265/)
 
-01/06/2022 一个心脏病学家说50%的顶尖运动员接种中共病毒疫苗后罹患无症状心肌炎，可能导致因为无症状心肌炎诱发的心脏骤停猝死案例。
+01/08/2022 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

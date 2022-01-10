@@ -2,44 +2,44 @@
 ---
 
 
-## 德国推迟执行新冠疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842008/)
+## UBS和德意志银行为共产党江泽民王岐山哈萨克总统洗钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842096/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+G-TV视频链接：[https://gtv.org/video/id=61dba37787664c47acd2c663](https://gtv.org/video/id=61dba37787664c47acd2c663)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Germany.jpg)
+**郭文贵先生：**瑞士某银行，就某银行1.2万亿美元，就不敢说出来，到现在不敢跟美国解释。我可以告诉大家，百分之百都是中国人的钱，就是UBS银行。UBS银行是中国最大的犯罪银行，如果有一天，我们不把UBS这个底儿摸清楚，中国我们就白活了，他是比杀中国人还可怕，它帮助共产党70年来是洗钱藏钱的。
 
+UBS的几任老板到中国去，到江家吃饭，那时候江志成还抱着呢，一直到江志成代表江家。你知道UBS帮共产党干什么吗？所有准备在台湾干的坏事，包括跟台湾之间勾结的钱的结算银行几乎都在UBS银行。我们台湾人一定有一天会跟UBS算账的，就是给所有的国民党家族的钱和利益几乎是，就通过两个，德意志银行和UBS银行，他是一个战争罪的银行。
 
- 
-图片来源：The Associated Press
+那么UBS的副主席告诉我说，这两天王岐山的人刚刚从银行提走了300亿美元，同时，他说，哈尔巴耶夫中国共产党也提走了100多亿美元，这意味什么，兄弟姐妹们？就共产党无处不在的对人类制造的灾难，最终一定把自己毁掉。这些对我们来讲都是好事儿，都在我们掌握之中，最终这些人的很多钱会到我们的喜联储，是吧，我们的敌人无处可逃的时候，我们就是他最好的朋友，走着看，走着看！
 
+字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
 
-编译：小红帽
+编辑整理：Jacques；
 
-根据《RT新闻》1月9日报道， **德国在全国范围内强制接种新冠（Covid-19）疫苗的计划可能不会很快实现，**这不是因为缺乏意愿，而是因为官僚主义的障碍。
+字幕文件制作：小满；
 
-11月，总理奥拉夫·肖尔茨（ Olaf Scholz）告诉德国ZDF广播公司，预计全国范围内的新冠疫苗接种任务将在2月或3月出台。然而，现在，该条例可能要到5月甚至6月才会生效，《每日镜报》报道。
+视频制作及上传：Cindy；
 
-该报称，这一延迟并不表明肖尔茨政府对德国人接种新冠疫苗的决心有所降低，而只是由于一系列的官僚主义障碍。
+G-News发布：小满；
 
-预计联邦议院最早将在1月下旬就这一问题进行辩论。由于2月大部分时间都有假期，投票可能要到3月下旬才会通过。德国媒体称，该法案随后将提交给上议院–联邦参议院，可能要到4月才会批准。这意味着除非召开特别议会会议，否则该法案可能在5月初之前不会生效。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-负责该项目的国会议员、肖尔茨所在的社会民主党（SPD）成员德克·维泽 (Dirk Wiese)认为无需着急。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-这项任务还可能面临来自自由民主党（FDP）的反对，该党是执政联盟中的初级成员，似乎对这项举措的批评越来越多。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-FDP卫生专家安德鲁·乌尔曼（Andrew Ullmann）告诉德新社，**一旦新冠病毒适应人群并达到只引起轻微症状的程度，任何“关于强制接种新冠疫苗的辩论将变得多余”。**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻来源：[Germany to delay Covid vaccine mandate – media — RT World News](https://www.rt.com/news/545512-germany-mandatory-vaccination-delay/)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*发布：小红帽*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
