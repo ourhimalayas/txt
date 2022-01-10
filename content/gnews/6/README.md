@@ -2,25 +2,33 @@
 ---
 
 
-## 一名中共间谍在美国法庭对偷取商业机密认罪
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1842331/)
+## 虽然接种了加强针，本周四名众议员先后感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842373/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.png)图片来自网络
-路透社近日报道，美国司法部表示，在本周四，一名中国公民在密苏里州联邦法院认罪，罪名是密谋窃取孟山都农业公司的商业机密以使中共国政府受益。
+#### 撰稿：彩虹 
 
-司法部在一份声明中表示，向海涛在 2008年至2017年期间受雇于孟山都及其子公司，他对一项共谋实施经济间谍活动的罪名表示认罪，定于4月7日宣判，他面临最高15年的监禁。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-15.jpg)图片来源：底特律新闻
+1月9日，《国会山报》报道四名众议员虽然之前已经完全接种了中共病毒（COVID-19）疫苗以及加强针，但本周仍然成为了中共病毒感染者。
 
-声明称，联邦官员在 2017 年 6 月等待登上飞往中国的航班时，发现向海涛持有孟山都公司开发的专有预测算法的副本。
+在周日的一份声明中，民主党众议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）的办公室说，这位女议员中共病毒检测结果呈阳性，出现了症状，正在家中康复。
 
-声明中说,他被允许回中共国，他在该国的中国科学院土壤研究所上班。他在返回美国时被捕。
+声明中值得注意的是，说：“（科尔特斯）女议员在今年秋天接种了（中共病毒疫苗）加强针。”
 
-现在美国正在逐步的追查这些千人计划上的专家。千人计划有四类，第一类是中共要的国防工业技术，第二是可赚钱的技术，第三则是拉拢国外科学家并从中渗透（预算一千，给科学家一半），其余涉及专利的就是现在慢慢查的。其实大部分科学家心知肚明帮中共干活偷窃技术是违法的，但因为被中共洗脑没有认清其本质，本身也是很优秀的人。这真是世界对优秀中华儿女的一次大清洗，中共真是罪恶之极！
+本周末，来自田纳西州的民主党众议员吉姆·库珀（Jim Cooper）也宣布他的中共病毒检测结果呈阳性。
 
-参考链接：
+报道说，上周六，民主党众议员肖恩·克斯特（Sean Casten）和共和党众议员金映玉（Young Kim）也宣布他们的中共病毒检测结果呈阳性。与库珀和科尔特斯一样，这两位立法者都接种了全面的中共病毒疫苗和加强针的注射。
 
-[https://www.reuters.com/world/us/chinese-national-pleads-guilty-us-court-stealing-trade-secrets-2022-01-06/](https://www.reuters.com/world/us/chinese-national-pleads-guilty-us-court-stealing-trade-secrets-2022-01-06/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+文章指出，自去年夏天以来，大约有40名美国国会立法者在至少完全接种了中共病毒疫苗后仍然感染了中共病毒。
+
+国会医生布莱恩·莫纳汉（Brian Monahan）建议国会办公室尽可能采用远程工作，并使用高质量的口罩，如N95和KN95。
+
+莫纳汉上周发布的一份报告显示，国会大厦的中共病毒测试的七天平均阳性率已经从1%左右飙升到了13%。
+
+**新闻来源**
+
+[Ocasio-Cortez tests positive for breakthrough COVID-19 case](https://thehill.com/homenews/house/588941-ocasio-cortez-tests-positive-for-breakthrough-covid-19-case)[Rep. Jim Cooper becomes latest lawmaker to test COVID-19 positive](https://thehill.com/homenews/house/588936-rep-jim-cooper-becomes-latest-lawmaker-to-test-covid-19-positive)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

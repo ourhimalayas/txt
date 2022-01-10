@@ -2,37 +2,44 @@
 ---
 
 
-## 美国会议员质疑爱彼迎非法持续提供新疆房源
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841875/)
+## 德国推迟执行新冠疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842008/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FC6D0583-5C56-4E53-8E1C-3D8E2BFC9E90.jpeg)（图片来源：美联社）
-
-1月7日，美国两位议员致函全球知名民宿出租平台爱彼迎（Airbnb），质疑其非法持续提供新疆房源。
-
-据《自由时报》报道，美国国会及行政部门中共问题委员会（CECC）主席、参议员默克利（Jeff Merkley），以及该委员会共同主席、众议员麦高文（James McGovern）于1月7日致函爱彼迎，对其非法持续提供新疆房源提出质疑。
-
-据了解，去年有一篇调查报告发现，爱彼迎公司提供的14个新疆房源位于直属中共中央副省级单位——“新疆生产建设兵团”所持有的土地上。然而该兵团早在2020年就因侵犯新疆人权，违反《全球马格尼茨基法案》而被美国财政部制裁。因此，爱彼迎持续在新疆提供房源的行为或已违反了美国政府的制裁令。
-
-两位议员还在信中指责爱彼迎从不曾公开谴责在新疆持续发生的种族灭绝，以及其它针对中共国少数民族令人震惊的系统性人权侵犯行为。
-
-爱彼迎公司总部位于美国旧金山，是下月开幕的北京冬奧会的15个主要赞助商之一。此前，由于中共在新疆持续进行种族灭绝行为，美国白宫已宣布将不派官方代表团参加北京冬奧会。
-
-*参考链接：*
-
-1. [*https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html*](https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html)
-2. [*https://news.ltn.com.tw/news/world/paper/1494838*](https://news.ltn.com.tw/news/world/paper/1494838)
-3. [*https://gnews.org/zh-hans/283146/*](https://gnews.org/zh-hans/283146/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Germany.jpg)
 
 
-* * *
+ 
+图片来源：The Associated Press
 
-*素材采编：海星*
 
-*编辑：青衣青青*
+编译：小红帽
 
-*发布：miumiu*
+根据《RT新闻》1月9日报道， **德国在全国范围内强制接种新冠（Covid-19）疫苗的计划可能不会很快实现，**这不是因为缺乏意愿，而是因为官僚主义的障碍。
+
+11月，总理奥拉夫·肖尔茨（ Olaf Scholz）告诉德国ZDF广播公司，预计全国范围内的新冠疫苗接种任务将在2月或3月出台。然而，现在，该条例可能要到5月甚至6月才会生效，《每日镜报》报道。
+
+该报称，这一延迟并不表明肖尔茨政府对德国人接种新冠疫苗的决心有所降低，而只是由于一系列的官僚主义障碍。
+
+预计联邦议院最早将在1月下旬就这一问题进行辩论。由于2月大部分时间都有假期，投票可能要到3月下旬才会通过。德国媒体称，该法案随后将提交给上议院–联邦参议院，可能要到4月才会批准。这意味着除非召开特别议会会议，否则该法案可能在5月初之前不会生效。
+
+负责该项目的国会议员、肖尔茨所在的社会民主党（SPD）成员德克·维泽 (Dirk Wiese)认为无需着急。
+
+这项任务还可能面临来自自由民主党（FDP）的反对，该党是执政联盟中的初级成员，似乎对这项举措的批评越来越多。
+
+FDP卫生专家安德鲁·乌尔曼（Andrew Ullmann）告诉德新社，**一旦新冠病毒适应人群并达到只引起轻微症状的程度，任何“关于强制接种新冠疫苗的辩论将变得多余”。**
+
+新闻来源：[Germany to delay Covid vaccine mandate – media — RT World News](https://www.rt.com/news/545512-germany-mandatory-vaccination-delay/)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

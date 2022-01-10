@@ -2,10 +2,10 @@
 ---
 
 
-## 英国NHS医生对卫生大臣表示：他不会接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842229/)
+## 重庆武隆区一食堂疑似发生爆炸，造成多人被困
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842263/)
 
-01/07/2022 英国NHS医生对卫生大臣表示：他不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。
+1月7日重庆武隆区一食堂疑似发生爆炸，造成多人被困。官方通报，最终26获救，16人死亡。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
