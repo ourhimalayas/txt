@@ -2,46 +2,38 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月3日-1月9日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
-本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
 
-参考链接：
-[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
 
-**更多资讯，更多关注**
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
 
  
 

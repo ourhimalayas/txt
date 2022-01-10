@@ -2,24 +2,51 @@
 ---
 
 
-## 对145个国家研究表明，新冠疫苗导致感染和死亡人数急剧增加
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842635/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译：奋斗
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-2.jpg)图片来源：路透社
-据《网关专家》(Gateway Pundit) 1月9日报道，一份最近公布的预印本报告在研究了全球145个新冠疫苗接种最多的国家的数据后发现，实验性疫苗的广泛推广并没有像预先承诺的那样结束这场大流行病，实际上反而造成了全世界的新冠感染和死亡人数急剧增加。
+#### 校对：精靈藍
 
-这篇研究报告长达99页，标题为《疫苗接种对新冠相关死亡和病例的全球贝叶斯因果影响：145 个国家的大数据分析》（Worldwide Bayesian Causal Impact Analysis of Vaccine Administration on Deaths and Cases Associated with COVID-19）。研究发现在美国，新冠疫苗导致每百万人中的新冠病例增加了38%，而每百万人中的死亡人数甚至增加了31%，非常令人吃惊。在总计145个国家中，总共有近90%（89.84%）的国家在推广疫苗后，疫情不仅没有得到遏制，反而进一步恶化。
+#### 剪辑/字幕：向上James
 
-研究人员通过比较推广疫苗接种前后这两个时期公开的新冠数据，并进行了因果分析，得出疫苗接种以来病例和死亡的差异，以确定其广泛推广的效果。在排除了所有来自低接种率或数据不完整的国家的结果后，报告说：“强有力的统计学倾向性表明，疫苗导致变量y1（代表每百万人的死亡人数）或y2变量（代表每百万人的新冠病例数）的数值增加，超过了没有接种疫苗时的预期值。y1的增加/减少比率为(+115/-13)，在统计学上这意味着有89.84%的国家，每百万人中与新冠病毒相关的总死亡人数增加与疫苗有直接的因果影响。y2的增减比为（+105/-16），统计学上意味着有86.78%的国家，由于疫苗的因果影响，每百万人中的新冠总病例有所增加。”
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-这项研究结果中也许最具说服力的部分是，在2020年，泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等国家的新冠病例和死亡人数很少甚至没有，但在推广疫苗后，这些国家与新冠有关的病例和死亡人数大幅增加，有些国家的增幅甚至高达1000%以上。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-研究人员警告说，这个结论应该让世界各地的政策制定者感到“十分担忧”，因为他们一直在宣传实验性疫苗是“夺回我们自由的关键”，但是这些仓促推出的实验性疫苗除了使事情变得更糟，还助长了新变种的传播，政策制定者应开始寻找除大规模疫苗接种之外的其他途径来摆脱大流行病。
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-新闻来源：[Massive 145-Country Study Shows Sharp INCREASE of Transmission and DEATH After Introduction of COVID Vaccines](https://www.thegatewaypundit.com/2022/01/massive-145-country-study-shows-sharp-increase-transmission-death-introduction-covid-vaccines/)
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
+
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
+
+It’s not a battle about land, this is actually a battle for the minds.
+
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
+
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
+
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
+
+What people are seeing is now the battle between good and evil between Satan and the devil.
+
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
+
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

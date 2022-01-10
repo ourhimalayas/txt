@@ -2,49 +2,31 @@
 ---
 
 
-## 爱、诚实和灭共是我们在一起的根本基础否则一切会失去
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842948/)
+## 新增确诊飙升，澳洲维多利亚地区多工种强制加强针
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1843023/)
 
-G-TV视频链接：[https://gtv.org/video/id=61dbedf387664c47acd2e346](https://gtv.org/video/id=61dbedf387664c47acd2e346)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/102.jpg)图片来自网络
+新一周伊始，澳大利亚维多利亚州又迎来了CCP病毒感染高发的日子——今天汇报的新增感染人数为 34,808 例，同时住院人数也出现增加（从752到818），而政府则出台了新的公共卫生命令。
 
-**郭文贵先生：**现在是发生了什么，大家记住，在全人类都没有的情况下，现在发生了你们刚才看到一开始的，Gettr——黄皮肤人，中国人从来没有在宇宙中占过今天的位置。全宇宙当中从来没发生过一少数，咱们这些人不流血能让全世界开始消灭邪恶的力量，就是阳光太阳将出来，黑暗将消去，那就是我们。
+维州卫生部长弗利表示，他于今天签署了一则关于CCP病毒疫苗加强针剂的行政命令。该命令将要求在部分岗位进行工作的受雇人员必须接种CCP病毒疫苗加强针剂。
 
-更重要的事情，只有我们没打疫苗，你们想过这个问题有多大了嘛。现在所有的人都在问一个问题，为什么我打了两针三针疫苗，从来没出去过，竟然染上病了。疫苗就是病毒，mRNA，mRNA就是病毒。你不用被传染，你就是病毒。
+目前这些工种及岗位包括：医疗护理人员、老年人护理人员、残疾人服务工作人员、紧急服务人员、惩教设施工作人员、酒店检疫工作人员和配送工作人员（包括食品与制造业）。不过超市和零售人员暂时没有纳入此列。
 
-就在刚才我直播前，欧洲的某个领导人他老婆染上了，说，哎呀，Miles，我太太打了三针，从没出去过，被染上。我说我告诉你，mRNA就是你身体的毒，它只是什么时候发作而已。你们没被打疫苗是多伟大，为什么精子卵子，七哥在2017年的时候就说精子卵子值钱，现在长了几万倍，是吧。
+由于在工作中接触CCP病毒的风险逐渐增加，弗利先生还建议为工人们接种疫苗加强针。弗利先生表示，他还正在考虑对其他职业进行加强针授权，并且会在“不久的将来”宣布。
 
-还想想你们有这币那币，现在还有Gettr，毫不夸张地说，人类的奇迹，风水独在我们这一方，就像后边儿的玫瑰花，就像蝴蝶一样，就像七哥的领带，就像七哥站在这跟你们直播几个小时，这都不是用一个常人所能解释的。
+他表示：“对于其他团体，我想很快我就有更多想说的了。”
 
-我们的生命无限精彩，一定要记住，爱、诚实和灭共是我们在一起的根本基础。只有这三样东西能让我们走的更远，否则一切都会失去。
+对于上述被列出的岗位，佛利表示，只要符合加强针剂的接种条件，那么这些岗位雇员中的许多人将在1月12日以前进行加强针的注射，而到2月12日要争取完成这些工种的加强针注射。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+笔者认为， CCP病毒加强针出现强制注射的情况虽然属于意料之中，但其推进速度似乎快到令人惊异。今天已经是1月10日，而维州卫生部长则非常确定在两天之后多数员工就将完成加强针的接种。
 
-编辑整理：Jacques；
+如果这不是虚张声势的宣传，那么或许表明许多职员在此之前就已经主动接受了CCP病毒疫苗的加强针剂，而对于疫苗本身的有效性仍未产生任何怀疑。因此，对于CCP病毒疫苗真相的宣传依旧是急迫且有必要的。
 
-字幕文件制作：小满；
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-victoria-update-latest-covid19-case-numbers-january-10-pandemic-declaration-extended/1e770def-98c1-4b21-bc77-5a74f21feb6f)
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

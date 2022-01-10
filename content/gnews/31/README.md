@@ -2,52 +2,31 @@
 ---
 
 
-## 这是一场思想的战争，我们处于战争状态
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
+## 01/10每日播报｜美阿肯色州长表示大型企业不要遵守疫苗强制令
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1842942/)
 
-#### 翻译：奋斗
+**By:[秘翻新闻](https://gtv.org/video/id=61dbf4aea6dfdd603151f451)**
 
-#### 校对：精靈藍
+**2022-01-10**
 
-#### 剪辑/字幕：向上James
+《美国有线电视新闻网》华盛顿1月9日报道，美国阿肯色州共和党州长、阿萨·哈钦森，在疫苗强制令生效前的几个小时，要求州内的大型企业不要遵守拜登政府的这一命令，他形容这项命令是暴虐和不近人情的。
 
-我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
+周日，州长哈钦森在《美国有线电视新闻网》的“国情咨文” (State of the Union)上接受采访时，被问及关于大型企业的疫苗强制令时表示，人们应该等待最高法院就这项命令的裁决。他还表示，接种疫苗与否是单个企业的决定，联邦政府的职业安全与健康管理局（OSHA）的这项命令需要被取消，这就是我们反对它的原因，希望最高法院能做出否定疫苗强制令的裁决。
 
-So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
+据报道，在上周五，最高法院听取了此案的辩论，多数保守派法院似乎准备否决这项疫苗强制令。
 
-我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
+去年由职业安全与健康管理局OSHA发布的规则，要求拥有100名及以上的企业雇主确保其员工完全接种疫苗，或提供宗教豁免，未接种疫苗的员工需要定期进行阳性测试，并在工作时戴上口罩。该规则将在本周一部分生效。
 
-And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
+据报道，在去年州长哈钦森就表示，拜登政府疫苗强制令的决定具有分裂性，是史无前例的越权行为。
 
-这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
+秘翻主编  清风先生编译报导
 
-It’s not a battle about land, this is actually a battle for the minds.
+发布 :星星
 
-这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
+* * *
 
-This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
-
-这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
-
-What people are seeing is now the battle between good and evil between Satan and the devil.
-
-人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
-
-And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
-
-实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
-
-视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
