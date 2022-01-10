@@ -2,10 +2,10 @@
 ---
 
 
-## 哈萨克斯坦总统下令无需预警就开枪杀人以镇压抗议
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842143/)
+## 英政府官方数据显示接种疫苗者死亡率比未接种者高286%
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842155/)
 
-01/08/2022 哈萨克斯坦总统下令执法机关和军队无需预警就可以开枪杀人以镇压抗议
+01/06/2022 英国政府官方数据显示接种中共病毒疫苗者比未接种疫苗者的死亡率高286%
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

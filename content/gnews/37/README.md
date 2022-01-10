@@ -2,48 +2,67 @@
 ---
 
 
-## 自给自足的加密生态系统代表了下一代支付系统
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841768/)
+## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
 
-**【雅典娜观察】和您一起探究世界**
+前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
 
-#### 整理报道：文扬
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-643.png)图片来源：Gnews
-随着消费者开始关注新年折扣，让我们预测一下2022年的在线商务中有多大比例是以加密货币方式支付的？
 
-零售业继续以惊人的速度走向数字化。用电商平台大商务（Bigcommerce）首席执行官布伦特·贝姆的话来说：“到2022年，实体零售空间将只不过是一个展示厅而已”。
 
-据报道，一年以后全球电子商务预计将增至5.69万亿美元，其中72%的销售额来自移动设备，消费者希望能够在上下班途中甚至在当地邮局排队等候时进行商品和服务交易。事实证明，新冠病毒只会增加在线购物趋势，消费者要求每周7天、每天24小时高效购物。
+> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+>  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
+> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
 
-在过去的几年里，支付系统已经发生了巨大的变化，特别是在区块链、金融科技、人工智能和加密货币的影响下，零售商和客户都把加密货币支付系统作为一种更便宜、更安全、更快速的交易解决方案。这包括通过与销售点系统、电子商务平台、会计和账单的整合。
 
-简而言之，**加密货币支付平台允许客户使用他们的加密货币（比特币、以太币、泰达币、Solana等）作为一种支付方式，以换取商品和服务。**这些平台不仅直观，而且量身定制，有助于跟踪支付历史，而且往往提供比传统信用卡系统更低的费用。
 
-**第一种方法将加密货币与传统货币相结合，已被大多数支付应用所采用**。对这些平台持怀疑态度的人认为，加密货币市场的波动性，在进行交易时易造成风险。然而，当销售被处理时，它要经过一个支付网关，该网关通常会以固定的汇率将加密货币转换成传统的法定货币。某些供应商认为这是一个可取的解决方案，因为它避免了加密货币市场的不稳定性，同时为客户提供了不同的支付选择。
+众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
 
-**Coinbase和Bitpay是两个专注于加密货币到法定货币交易的最大支付网关。**这两个平台在交易中都具有高度的安全性，**特别是由于快速、对称的支付转换技术，它们可以抵御通货膨胀压力。**另一个特点是他们与多家零售运营商的整合。最值得注意的是，Coinbase上个月因其最近与阿迪达斯的合作而成为新闻，这在社交媒体上引起了广泛关注。
 
-**第二种方法是让交易保持在数字币中，让商家在在线钱包中拥有该加密货币。这有时是客户和商家的首选，因为这是最有效的交易过程，而且它还有未来升值的额外好处。**随着越来越多的人了解加密货币，我们将看到更多的客户和商户希望用非主流货币进行交易。一个例子是现在付款（NOWPayments），这是一个非托管的支付网关，提供75种以上的加密货币，并可自动换币。无论客户用什么加密货币付款，商家都可以选择接受他们喜欢的币种。
 
-**加密数字货币市场上最新的方法，包括通过创建自给自足的生态系统来结合这两种方法的加密货币交易所，该生态系统具有端到端的支付系统**。其中，独一无二的是最近推出的Himalaya Exchange，它在一个平台上集成了其原生交易币（Himalaya Coin-‘HCN’）、稳定币（Himalaya Dollar-‘HDO’）和支付应用程序（Himalaya Pay）。
+> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
+> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
 
-其稳定币固定为美元（USD），并有由美元和现金等价资产组成的储备作为后盾。因此，虽然喜马拉雅币的市场价格可能会波动，但喜马拉雅美元的美元固定价值为交易者和投资者提供了避风港。HCN和HDO都可以通过平台即将推出的Himalaya Pay应用程序以及Himalaya Exchange的相关交易市场进行兑换。这些服务在同一生态系统中提供的便利目前是无与伦比的，未来很可能流行起来。
 
-“生态系统”方法也体现了金融包容性的优点。由于大多数现有的全球加密资产由少数投资者（或加密“鲸鱼”）拥有并在成熟的交易所买卖，**喜马拉雅交易所等新兴集成平台可能会创建一个更易于访问、低成本和为加密货币新手连接的数字资产网络。**
 
-支付系统的未来将属于那些以普惠金融为核心的平台。在实践中，这意味着进入门槛低、风险降低、交易成本降低以及速度和效率提高。在这些方面，自给自足的生态系统看起来有一个良好的开端，但这场竞赛才刚刚开始。
+美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
 
-原文链接：[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems | Tech Times](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
 
-发布：玉米地守望者
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
+
+
+
+> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
+> 
+> Georgia restored election integrity.
+> 
+> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
+> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
+
+
+
+> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
+> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
+
+
+
+> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
+> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
+
+
 
  
 

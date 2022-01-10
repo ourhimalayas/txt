@@ -2,68 +2,29 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
+## 【樱花深度报道】中共主导的网络民族主义者正在将偏执发泄到每个键盘上（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1841784/)
 
-前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
+编译：东京樱花团/Hopkins
+（编者按）《经济学家》杂志2022年第一期发表文章，文章分析道由中共主导的网络民族主义正愈演愈烈，他们动辄看到敌对的外国势力亡我之心不死，攻击与外国联系的中国民间社会活动人士、非政府组织 (NGO) 和私营企业为“二鬼子”，他们想要告诉中国人每个外国人都是潜在的间谍，而这种网络思潮与习近平主席所宣称的中国在“生态文明”领域引领世界的雄心不谋而合。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-31.jpg)
+《经济学家》杂志记者采访博主赛雷，为什么在制作了多年关于科学和汽车的解说片之后，他开始制作民族主义视频。 30岁的真名为李思睿（Li Sirui）的博主赛雷在接受电话采访前，以不信任外媒为由多次拒绝采访。他描述了他从 2020 年开始的怀疑，即在似乎越来越多的对中国的批评背后隐藏着一个阴谋。在讲述他的故事时，李先生将许多令他震惊的事情混合在一起：唐纳德·特朗普（Donald Trump）总统关于 covid-19 的评论；英国广播公司新闻报道新疆棉花行业涉嫌强迫劳动；以及他“在某处读过”的无来源花絮消息，例如声称中国捐赠的流行病口罩“里面装有华为芯片”。他称此类说法“非常明显是假新闻”，并补充说：“我们需要警惕这一切背后的意图。”他坚称，他的民族主义运动没有事先与官员协调。 “我们是一家私人公司，我们与政府没有联系。”
 
+在这个严峻的时刻，那些受到抨击的人正在努力辨别网络键盘民族主义与中共议程的紧密联系程度。在1980年代和1990年代，海外非政府组织和基金会受到国内的欢迎，因为它们将外国经济学家和法律学者带到中国，并为中国人提供赴西方学习的奖学金。那个时代结束了。今天的中国领导人认为西方作为知识来源的用处不大，而且更有可能怀有敌意。
 
+**告诉中国人每个外国人都是潜在的间谍**
 
-> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
->  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
-> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
+由于与中国国内改革者合作的机会越来越少，一些国际非政府组织转而游说中国成为一个更负责任的全球参与者，从气候变化到远洋渔业的非法捕鱼等问题。对于局外人来说，这是一个更具对抗性的角色。回击批评者会在寻求点击率的网络民族主义者和国家安全鹰派之间产生协同作用，他们从不相信外国人会帮助中国而不期望得到回报。
 
+去年 11 月，执法官员指控调查中国海岸线周围海洋污染的非营利组织仁都海洋（Rendu Ocean）收集了可供间谍使用的海洋数据。当月晚些时候，经常被国家安全机构引用独家报道的鹰派报纸《环球时报》警告为环境非政府组织工作的中国人，他们可能在不知不觉中协助外国“间谍活动”，例如当他们举办学术论坛探讨中国在气候谈判中的意图时。这种反对境外敌对势力的运动与习近平主席所宣称的中国在“生态文明”领域引领世界的雄心不谋而合。目前，这种批判国内民众与国外联系为卖国的运动正愈演愈烈，这种局面是否可以扭转我们将拭目以待。
 
+（全文完）
 
-众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
+文章来源： [China’s online nationalists turn paranoia into clickbait](https://www.economist.com/china/2022/01/08/chinas-online-nationalists-turn-paranoia-into-clickbait)
 
-
-
-> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
-> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
-
-
-
-众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
-
-
-
-> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
-> 
-> Georgia restored election integrity.
-> 
-> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
-> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
-
-
-
-> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
-> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
-
-
-
-> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
-> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
