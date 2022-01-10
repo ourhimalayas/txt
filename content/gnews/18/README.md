@@ -2,53 +2,39 @@
 ---
 
 
-## 56名德国医生引用7个极好论据反对强制接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842645/)
+## 诺瓦克·德约科维奇赢得诉讼，但最终驱逐与否结果未定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842780/)
 
-翻译： Jenny Ball
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-679.png)图片来源 ：stevekirsch.substack.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-5.jpg)图片来源：卫报
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对诺瓦克·德约科维奇（Novak Djokovic）取消签证的决定，初步意味着他将自由地离开移民拘留所并参加澳大利亚公开赛，但是否被驱逐，却结果未定。
 
-在美国，这不可能发生，因为任何反对虚假叙述的医生都会受到严厉批评和去平台化和惩罚。
+报道说，周一下午，安东尼·凯利（Judge Anthony Kelly）法官宣读了双方律师团队同意的内容，确认德约科维奇法庭胜诉。同时，凯利法官命令德约科维奇立即从移民局被释放，并由政府支付他的法律费用。
 
-这是 56 位德国医生写给德国议会的信。这些医生非常聪明，他们的论点极其好。他们所有的论点都基于科学，而且完全有道理。它们与奥地利、瑞士、意大利、法国、斯堪的纳维亚、英国和美国的数千名科学家的立场是一致的。
+在宣读判决结果时，德约科维奇承认他正在与他的法律团队一起观看法庭诉讼。报道说，德约科维奇现在可能会前往一个私人住宅，在那里他将开始为1月17日开始的澳大利亚公开赛做准备。
 
-但遗憾的是，这封信会被忽略。
+根据法官的说法，依据“移民法”第116条取消德约科维奇签证的决定是“不合理的”，因为他在抵达的当天（即1月6日）早上5点20分被告知，他可以在早上8点30分之前答复边防部官员。
 
-在美国，我们无法准备这样的文件，这是不允许的。
+实际发生的情况是，34岁的德约科维奇的签证在当天早上7点42分被取消，也就是说，在最后期限之前，德约科维奇被剥夺了“咨询他人”和向官员提供进一步信息的时间。如果德约科维奇被允许到上午8:30，他可以与其他人协商，并向边境部队官员提供进一步的意见，说明为什么他的签证不应该被取消。
 
-来自罗伯特·马龙（Robert Malone）博士的辩护：
+在德约科维奇与边防部官员面谈时，他在被告知打算取消其签证的通知后，交出了他认为给予他医疗豁免的文件。
 
-**在美国，人们绝不能质疑口罩的功效、儿童接种疫苗、封锁的逻辑（或缺乏逻辑）或疫苗强制执行的违宪性质，疫苗突破性死亡是件小事吗？不能问任何问题**。
+根据凯利法官公布的采访记录，德约科维奇说：“我来到这里是因为这些文件，否则我就不会被允许进来。我的意思是，你把我放在一个非常尴尬的位置，在早上四点，我不能给澳大利亚网球协会的主任打电话，我不能通过澳大利亚网球协会与维多利亚州政府的任何人接触。我只是（想说），你让我处于一个非常不舒服的境地”。
 
-但是等等，如果科学不能被质疑，这不就是宣传吗？安静，你不爱美国吗？难道你不希望人们活着，而是让人死吗？所以闭嘴，并去接种疫苗，然后是加强注射，然后是另一剂加强注射。**我们是真理的仲裁者**，知道什么对你最好。讽刺的是，这些自封的真理仲裁者充斥着谎言。
+值得注意的是，在法庭撤销了对诺瓦克·德约科维奇取消签证的决定后，内政部的律师克里斯托弗·谭（Christopher Tran）告知法院，移民部长亚历克斯·霍克（Alex Hawke）正在考虑使用他的自由裁量权（personal power of cancellation）再次取消德约科维奇的签证。
 
-那么，越来越多的美国人继续对主流媒体和政府失去信心，这令人惊讶吗？
+如果霍克部长真的行使自由裁量权将德约科维奇驱逐出境，那么他将被禁止在三年内进入澳大利亚，当然，这一决定可以被上诉。
 
-**这与科学所说的无关。从来没有。**
+对此，凯利法官承认，霍克部长可能决定行使其驱逐德约科维奇的自由裁量权。
 
-**这完全是关于对 ****CDC****、****FDA ****和 ****NIH ****的盲目信仰和信任。**
+**新闻来源**
 
-国会、主流媒体和医疗机构，都关注 CDC 发出的所有废话。如果 CDC 说它是安全的，那就是安全的。不能质疑。这就是结论。如果你不同意，那你就错了，他们就会拿走你的行医执照。
+[Live: Novak Djokovic’s visa cancellation quashed, tennis star to be released from detention](https://www.news.com.au/sport/tennis/live-novak-djokovic-court-hearing-over-visa-cancellation/news-story/ec608e63f4a8cff508230539e493e3d5)
 
-数以千计的科学家可以指出疫苗不安全，强制指令是荒谬的，有大量证据，没用，它们都会被忽略。
+[Djokovic’s visa cancellation overturned by Federal Circuit Court with government forced to pay costs](https://www.skynews.com.au/australia-news/sport/djokovics-visa-cancellation-overturned-by-federal-circuit-court-with-government-forced-to-pay-costs/news-story/4a7252c5b5df538a6719421fd6c2427d)
 
-而且，由于没有人被允许挑战三个字母机构（因为他们回避了棘手的问题），因此，永远（疫情）不会发生变化。
-
-国会中没有人向 CDC 提出棘手的问题。**因为每个人（除了参议员约翰逊****Johnson ****和保罗****Paul****，以及国会议员布鲁克斯****Brooks ****和马西****Massie****）都信任这些机构**。
-
-无论科学怎么说或有多少医生反对这些政策，对这些机构的信任都不会被打破。
-
-我会继续努力，也许我终有一天会走运。
-
-新闻来源：[stevekirsch.substack.com] [56 German doctors cite 7 excellent arguments against mandatory vaccination](https://stevekirsch.substack.com/p/56-german-doctors-cite-7-excellent?r=o7iqo&amp;utm_campaign=post&amp;utm_medium=web)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

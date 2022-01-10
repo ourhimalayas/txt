@@ -2,41 +2,47 @@
 ---
 
 
-## 关注：下周将发布举报福奇前所未有的爆炸性文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842764/)
+## 只要有爱有真诚对方都会原谅，不要在家庭之间争强好胜
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842809/)
 
-翻译： Jenny Ball
+G-TV视频链接：[https://gtv.org/video/id=61dbec9187664c47acd2e2a4](https://gtv.org/video/id=61dbec9187664c47acd2e2a4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-681.png)图片来源 : thegatewaypundit.com
+**郭文贵先生：**你看看唐平和威廉王在一起，他俩就知道，唐平很强势，威廉王很包容，很男人的。这个时候你一定要记住男人和女人之间和朋友之间，一定要记住，唯一让对方接受你开玩笑，或者说你过分的表达或者什么样，一定要有爱、有真诚，对方都会原谅你。
 
-“真相工程”(Project Veritas) 创始人詹姆斯·奥基夫（James O’Keefe）周六表示，他将在下周发布有关举报福奇博士的文件。
+如果你带着恶意，你带着虚伪，这个人很难原谅你，真的是。我跟你七嫂子相处一个最大的问题，说白了我就认清在家里边，我这一辈子没人能征服我，就你七嫂子把我征服了，还有我闺女，是吧？你在你跟闺女之间，你说你搞个对错有啥意义呢？你跟你七嫂子有对错有啥意义呢？咱在家里边咱永远记住，你七嫂子排第一，郭美排第二，郭强排第三，我排第四，现在我排第五，我家狗排第四啦，是吧Snow排第四。
 
-“下周初将发布有关福奇博士的严重举报文件，敬请期待。”奥基夫在他的 Instagram 账户上宣布。
+你甘认，在家里边别争抢第一，别争对错，用爱把你自己排得往后一点儿，用诚实、接受和包容，没有什么过不去的，否则你没法相处。一个屋檐下，像我这种强势的人，像唐平这种，永远不服输，谁受得了，是不是？她都离一回婚了，我可不希望她再离一回了，是不是？她离婚一定不是她先生一个人的错，一定有她的错的。谁能跟她过，我觉得威廉王能跟她过50年，我一定把威廉王的照片挂到我墙上去，我告诉你。
 
-当一切都说了都做了，当 COVID 大流行病平息后，**安东尼****·****福奇博士可能会被人们世代铭记为：**我们这个时代最大的大规模杀手之一。
+所以说千万记住，不要在爱之间，不要在家庭之间，还有兄弟姐妹之间争强好胜。那是你非常熟的范围，说完了，谢谢。
 
-**安东尼****·****福奇在关于中共病毒的严重性，以及他资助中共病毒学实验室的背景，和病毒的起源方面，向美国公众撒谎了一年多**。
+字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
 
-福奇还就安全药物羟氯喹 (HCQ) 在治疗病毒方面取得的成功，**向美国公众撒谎**。
+编辑整理：Jacques；
 
-当 HCQ 可用时，就不会有数十万美国人死亡，**但被福奇和 ****CDC ****禁止给 ****COVID ****患者使用。**
+字幕文件制作：小满；
 
-8 月，网关专家（Gateway Pundit）记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）专门报道了福奇在突尼斯对**比格犬进行的可怕实验**。
+视频制作及上传：Cindy；
 
-该组织发现的文件可见，由福奇领导的美国国立卫生研究院(NIH)部门向突尼斯的实验室运送了 375,800 美元赠款的一部分，**以用寄生虫感染比格犬**。
+G-News发布：小满；
 
-福奇是一个危险的疯子。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**大多数美国人都明白这一点吗**？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-新闻来源: [thegatewaypundit.com] [James O’Keefe: Explosive Never Before Seen Whistleblower Documents Coming Next Week on Dr. Fauci – STAY TUNED](https://www.thegatewaypundit.com/2022/01/james-okeefe-explosive-never-seen-whistleblower-documents-coming-next-week-dr-fauci-stay-tuned/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

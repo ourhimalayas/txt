@@ -2,46 +2,30 @@
 ---
 
 
-## 若没有盖特全中国十四亿人在世界上没有一个说话的地方
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842724/)
+## 喜交所——引领下一代加密货币支付系统的“全球旗舰领军者”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1842802/)
 
-G-TV视频链接：[https://gtv.org/video/id=61dbec0e87664c47acd2e27f](https://gtv.org/video/id=61dbec0e87664c47acd2e27f)
+作者：sherryok（水云间）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-11.png)
+科技时代网站（Tech Times），是美国纽约一家关注硅谷公司，技术创新，以及领先科技与商业融合后所带来的文化转型内容的网站，看看它的文章标题，就知道他们的内容有多酷：“迪斯尼的专利表明它也正在进入元宇宙”、 “史克威尔艾尼克斯进军区块链游戏市场！新的 NFT 游戏即将到来”、“具有 Metaverse 的平台加强了艺术、品牌和流行文化之间的联系”。是不是非常吸引人? 近日，该媒体把目光聚焦到了一个新兴的加密货币交易平台-喜马拉雅交易所 （[Himalaya Exchange](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://himalaya.exchange/himalaya-pay)），标题是“为什么自给自足的加密生态系统代表了下一代支付系统”。不用说，该网站已经给喜马拉雅交易所戴上了引领下一代加密货币支付系统“全球旗舰领军者”头衔。
 
-**郭文贵先生：**你看特别重要，台湾某个所谓音乐界的“大咖”说，他说：“真的郭先生，我认识你那么多年，他说我真的要特别感激你，华人在全世界想说华人的话，说华人的故事，特别台湾的故事和华人这种没有任何地方，只有盖特”；然后另外一个台湾的一个金融家告诉我，他说：“七哥我每次看完盖特我都流泪，他说你知道为什么？台湾这样一个受威胁之中的一个小岛，我们没有任何，他说我们在line，我在Facebook，在什么，我们是不敢讲共产党的坏话的，讲一句都给我们删掉”。
+记者大卫.汤普森(David Thompson) 认为，支付系统的未来将属于那些以金融包容性为核心的平台。在实践中，这意味着进入门槛低、风险降低、交易成本降低以及速度和效率提高。而喜马拉雅交易所（简称喜交所）在这些方面独占鳌头，因为他拥有一个“自给自足的生态系统”。
 
-然后美国的咱们几个朋友说：郭先生，我们真不知道关于中国的事，我们从来不懂中国人不能跟共产党划在一起。他说：“我作为一个美国这样的人我真的意识到，我是刚刚的一个月以前我在盖特上知道”。他是一个民主党的人，他几个月以前就跟我签了，是民主党的前三号人物，都签了合同，到现在我们不公布。我们不公布的原因不是为了别的，我们是发生各种不想参和各种政治。他跟我说：“我真的在一个月以前才真的觉得川普，还有蓬佩奥啊这些人说的是对的，皮特纳瓦罗和班农，中国人不等于共产党，共产党不等于中国人”他说“我真的觉得越来越有道理”。
+“这是市场上最新的方法”大卫说，喜交所通过创建自给自足的生态系统来，结合了“加密货币与传统货币相结合”及“商家在线钱包存储加密货币”两种目前最受欢迎的支付应用方式。它在一个平台上集成了其原生交易币-喜币（Himalaya Coin ‘HCN’）、稳定币-喜美元（Himalaya Dollar ‘HDO’）和支付应用程序-喜支付（Himalaya Pay）。
 
-你知道这是很恐怖的事情威廉王，我们中国人在十四亿人全世界上没有一个说话的地方。这对我们中国人，亚洲人多危险，现在已经不是中国人的事了，叫亚裔，亚裔啊。你看Isabel Yang 是把亚裔、日本人、所有人都列为了亚裔是西方民主的威胁，完全对立呀，黄皮肤和白皮肤人和黑皮肤的人。
+喜美元（HDO）固定为美元（USD），并有由美元和现金等价资产组成的储备作为后盾。因此，虽然喜币的市场价格可能会波动，但喜美元的固定价值为交易者和投资者提供了避风港，大大减少交易时因加密市场的波动产生的风险。
 
-这是意义多么重大，唯一的平台呀。所以说兄弟姐妹们要珍惜呀。这是天意给我们的。
+更加无与伦比的是喜交所交易的便利性，即将推出的喜支付（ Himalaya Pay ）应用程序以及相关交易市场，使得喜美元、喜币都能在同一生态系统中自由兑换，其便利与目前加密市场上各自为政，春秋战国的混乱局面不可同日而语。在同一生态系统中流通，“这很可能会流行起来”，记者大卫一语中的。同时由于大多数现有的全球加密资产由少数投资者（或加密“鲸鱼”）拥有并只在成熟的交易所买卖，因此新兴的喜马拉雅交易所可能会创建一个更易于访问、低成本和为加密货币新手入门的数字资产网络。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+据[报道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/ilkerkoksal/2019/08/23/the-rise-of-crypto-as-payment-currency/?sh%3D1d459bc626e9)，到明年，全球电子商务预计将增至 5.69 万亿美元，其中 72% 的销售额来自移动设备。消费者希望能够在上下班途中甚至在当地邮局排队等候时进行商品和服务交易。事实证明，中共病毒大流行期间，在线购物趋势势头迅猛，消费者要求每周 7 天、每天 24 小时高效购物。
 
-编辑整理：Jacques；
+高效，安全，便捷，零售业以惊人的速度走向数字化。用 Bigcommerce 首席执行官 Brent Bellm 的话来说，“到 2022 年，实体零售空间将只不过是陈列室而已”。2022已经到了，“自给自足的生态系统看起来有一个良好的开端，但比赛才刚刚开始”。大卫记者文章结尾的这句话与新中国联邦爆料革命的口号，“一切都是刚刚开始”何其相似。
 
-字幕文件制作：小满；
+这是一个多么神奇的开始！文贵先生在最近的直播中说，喜交所从2021年11月1日上线以来，短短两三个月的时间，创造的神奇，世界上的数字货币，几乎都在一个月内暴跌，能撑过两个月的几乎没有。喜联储的投资者们谁也没想到喜币能涨到40.今后，全世界你能想到的最牛的企业都会想和喜交所合作，为什么? 因为喜联储让他们看到，没有一个机构能让币值从0到400倍这样稳定的增长，而且绝对不会被挤兑，挤垮的，一个也没有。喜交所全球首创的加密货币生态系统，必将带领人类进入到一个全新的金融世界。
 
-视频制作及上传：Cindy；
+新闻链接：https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

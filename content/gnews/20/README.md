@@ -2,47 +2,41 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月3日-1月9日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
+## 关注：下周将发布举报福奇前所未有的爆炸性文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842764/)
 
-作者：纽约香草山金融部 – ILOVE战神
+翻译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-681.png)图片来源 : thegatewaypundit.com
 
+“真相工程”(Project Veritas) 创始人詹姆斯·奥基夫（James O’Keefe）周六表示，他将在下周发布有关举报福奇博士的文件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“下周初将发布有关福奇博士的严重举报文件，敬请期待。”奥基夫在他的 Instagram 账户上宣布。
 
+当一切都说了都做了，当 COVID 大流行病平息后，**安东尼****·****福奇博士可能会被人们世代铭记为：**我们这个时代最大的大规模杀手之一。
 
+**安东尼****·****福奇在关于中共病毒的严重性，以及他资助中共病毒学实验室的背景，和病毒的起源方面，向美国公众撒谎了一年多**。
 
-过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
-本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
+福奇还就安全药物羟氯喹 (HCQ) 在治疗病毒方面取得的成功，**向美国公众撒谎**。
 
-参考链接：
-[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
+当 HCQ 可用时，就不会有数十万美国人死亡，**但被福奇和 ****CDC ****禁止给 ****COVID ****患者使用。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+8 月，网关专家（Gateway Pundit）记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）专门报道了福奇在突尼斯对**比格犬进行的可怕实验**。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+该组织发现的文件可见，由福奇领导的美国国立卫生研究院(NIH)部门向突尼斯的实验室运送了 375,800 美元赠款的一部分，**以用寄生虫感染比格犬**。
 
-**更多资讯，更多关注**
+福奇是一个危险的疯子。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**大多数美国人都明白这一点吗**？
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻来源: [thegatewaypundit.com] [James O’Keefe: Explosive Never Before Seen Whistleblower Documents Coming Next Week on Dr. Fauci – STAY TUNED](https://www.thegatewaypundit.com/2022/01/james-okeefe-explosive-never-seen-whistleblower-documents-coming-next-week-dr-fauci-stay-tuned/)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

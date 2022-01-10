@@ -2,49 +2,25 @@
 ---
 
 
-## 疫情期间，西安市民被像牲口一样对待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842612/)
+## 澳洲开始为5至11岁儿童接种中共病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1842722/)
 
-作者：银河勇气星—骄子
+撰稿：文西Eric
+![](https://assets.gnews.org/wp-content/uploads/2022/01/101-1.jpg)图片来源于网络
+据澳大利亚9号新闻网报道，澳大利亚从1月10日开始，5至11岁的儿童有资格接种中共病毒疫苗。
 
+澳卫生部长格雷格·亨特（Greg Hunt ）保证，这个年龄组的儿童有大量的疫苗可以使用，有大约230万5至11岁年龄组的儿童，1月份有300万剂疫苗，在未来两周内有200万剂。
 
+但是，家长们担心疫苗不够用，如果他们不能在返校日期到来之前为该年龄段的孩子接种疫苗，他们可能被迫回到家中学习。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+悉尼大学的传染病专家罗伯特·布依（Robert Booy）教授说，在返校前为孩子们接种疫苗不仅可以保护他们，而且如果孩子们在学校感染了这种疾病，还可以保护其他家庭成员不被感染。孩子们的适应力很强，他们能够比我们成年人更好地抵抗奥密克戎（Omicron）。接种疫苗是有意义的，它将保护儿童，防止他们感染病毒后的严重后果，接种疫苗也将阻止家庭中的传播，保护家庭中的脆弱成员不被儿童感染。
 
+所有流氓政府的套路如出一辙：政府站台，“砖家”背书。对于生活在澳洲的战友，政府的手已经伸向5-11岁的孩子，大家看好自己的孩子，大不了让孩子待在家里不去上学，我们有自己的G-Education，可以先让孩子在那里继续接受教育，培养我们的爆二代、爆三代。
 
+新闻来源：[9news.com.au](https://www.9news.com.au/national/coronavirus-vaccination-update-australia-children-aged-five-to-11-eligible-for-covid-19-vaccine-from-january-10/ca1f4b62-3830-4100-b4b1-cfbf9e4a5a08)
 
-1月9日，西安一位居住在大寨路恒大城，名叫杨海的老百姓在社交媒体愤怒发声。称住在同小区的上万名居民都已经按照中共疫情防控要求在家隔离了十七天之久，但都面临生活物资极度短缺的问题。并且中共防疫就是将小区大门强行用铁丝锁起，住在里面的老百姓进不去出不来，政府所谓的绿色物资通道就是一句空话，老百姓像被牲口一样对待。被封锁的老百姓只能时刻在家等死。
-
-据悉，该视频一经发布已被微信删除，并且杨海之女发在twitter的视频链接也已同样被删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-1.jpg)
-参考链接：
-1. [西安大寨路恒大城业主很愤怒啊……](https://m.weibo.cn/status/4723658155888031?)
-2. [CCP把人民当成畜生来对待！西安市民愤怒！不知道还有多少个小区是这样对待却不能发声！](https://gettr.com/post/pn7gio3ffd)
-3. [这是我爸爸，微信已经把这个视频在他的微信视频号上封 。政府防疫就是把人民用铁丝网锁起来，不管生死。在你们眼里人民的生命就是蝼蚁一般。](https://twitter.com/qyemmay/status/1479934290792046594?s=21)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
