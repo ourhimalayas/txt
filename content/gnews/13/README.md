@@ -2,35 +2,20 @@
 ---
 
 
-## 奥地利总理接种三剂疫苗仍旧感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843688/)
+## 墙内永辉超市疫情期间涉嫌售卖过期食品
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843726/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月8日，奥地利总理府发布消息，总理内哈默中共病毒检测报告阳性，目前正在自我隔离中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-10-上午9.55.16.png)
-奥地利总理府声称，内哈默最早于1月5日晚间感染中共病毒。证据是，当天他与维安特勤团队的一名成员接触后，该保镖于6日确诊。随后内哈德测试，结果显示中共病毒阳性。
+撰稿—水滴石穿
+校对/上传—无明逆流
 
-内哈默已经完成接种疫苗第三针，但仍然被中共病毒感染。
+墙内中华网财经讯，1月7日，中共国西安市市场监管局公布疫情期间一批违法案件。其中，西安市碑林区建设西路自强永辉超市涉嫌经营超过保质期食品案位列其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/What2t-1122-PM.jpeg)永辉超市
+事件摘要：2021年12月26日，西安市相关执法人员在对碑林区建设西路自强永辉超市进行检查时，发现其店中货架上售卖的京荟堂牌虾片（生产日期2019年12月20日，保质期2年，200克/包，共1包）和塬声优品牌枇杷秋梨膏（生产日期2021年11月12日，保质期1个月，300克/瓶，共两瓶），均已超过保质期，目前，综合执法支队已对该店涉嫌经营超过保质期食品违法行为进行立案查处。
 
-参考链接：
-1）[Austrian Chancellor Nehammer Tests Positive for Coronavirus](https://www.usnews.com/news/world/articles/2022-01-07/austrias-chancellor-nehammer-tests-positive-for-coronavirus)
-2）[Austrian Chancellor Karl Nehammer tests positive for COVID-19](https://www.politico.eu/article/austrian-chancellor-karl-nehammer-tests-positive-for-covid-19/)
-3）[打3劑疫苗仍突破性感染 奧地利總理確診自我隔離中](https://udn.com/news/story/121707/6019320?from=ddd-umaylikenews_ch2_story)
+对于这一事件，我的分析是：永辉超市的营业收入最近时期，不断地在下降。共匪当政，墙内的经济还在不断恶化中，联动各家超市，经营情况也不会有起色。而作假、售假层出不穷，发生此类事件，也是意料之中。只是身处墙内，未来能吃到过期食品，想必也是一种奢望了！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+新闻来源：[疫情期间永辉超市涉嫌售卖过期食品，被立案查处](https://cj.sina.com.cn/articles/view/1704103183/65928d0f02002moq6)
 
-总编：文真
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

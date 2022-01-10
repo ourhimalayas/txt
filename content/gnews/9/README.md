@@ -2,20 +2,36 @@
 ---
 
 
-## 墙内永辉超市疫情期间涉嫌售卖过期食品
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843726/)
+## 新中国联邦传递真相和情报
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843789/)
 
-撰稿—水滴石穿
-校对/上传—无明逆流
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月7日，郭文贵先生在大直播中指出，新中国联邦传递的真相和情报，远超各国情报系统和主流媒体，这都离不开中共国内英雄战友的默默付出。
 
-墙内中华网财经讯，1月7日，中共国西安市市场监管局公布疫情期间一批违法案件。其中，西安市碑林区建设西路自强永辉超市涉嫌经营超过保质期食品案位列其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/What2t-1122-PM.jpeg)永辉超市
-事件摘要：2021年12月26日，西安市相关执法人员在对碑林区建设西路自强永辉超市进行检查时，发现其店中货架上售卖的京荟堂牌虾片（生产日期2019年12月20日，保质期2年，200克/包，共1包）和塬声优品牌枇杷秋梨膏（生产日期2021年11月12日，保质期1个月，300克/瓶，共两瓶），均已超过保质期，目前，综合执法支队已对该店涉嫌经营超过保质期食品违法行为进行立案查处。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-5.jpeg)
 
-对于这一事件，我的分析是：永辉超市的营业收入最近时期，不断地在下降。共匪当政，墙内的经济还在不断恶化中，联动各家超市，经营情况也不会有起色。而作假、售假层出不穷，发生此类事件，也是意料之中。只是身处墙内，未来能吃到过期食品，想必也是一种奢望了！
+世界各国在情报上花费千亿万亿，但在过去五年里，都远不及爆料革命给予世界的预警和真相。各国主流媒体被中共收买，不但公然撒谎，而且，无数次抹黑和诋毁爆料革命。
 
-新闻来源：[疫情期间永辉超市涉嫌售卖过期食品，被立案查处](https://cj.sina.com.cn/articles/view/1704103183/65928d0f02002moq6)
+郭先生说，无论是对哈萨克斯坦局势的分析，还是中共二十大的人士安排，爆料革命之所以每次都能正确地公布事态发展，不是猜测，是情报。这正是因为中共国内有无数英雄战友传递信息。这些战友冒着生命危险，为新中国联邦默默奉献，可能永远都是无名英雄，但是新中国联邦人会永远感激和牢记这些战友的付出。
 
+参考链接：
+1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
+2）[https://gettr.com/post/pn6i9y76e5](https://gettr.com/post/pn6i9y76e5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
