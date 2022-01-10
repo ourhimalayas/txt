@@ -15,121 +15,121 @@
 
 ---
 
-### [自信要不要脸有信仰有知识有见识还要忘记任何人的攻击](/content/gnews/1/README.md)
+### [爱、诚实和灭共是我们在一起的根本基础否则一切会失去](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大直播后记——七哥谈“养老”](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [只要有爱有真诚对方都会原谅，不要在家庭之间争强好胜](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [我们不要成为造祸、背负灾难传播共产党邪恶思想的工具](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [关注：下周将发布举报福奇前所未有的爆炸性文件](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [若没有盖特全中国十四亿人在世界上没有一个说话的地方](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [澳洲开始为5至11岁儿童接种中共病毒疫苗](/content/gnews/7/README.md)
- ` 澳喜特战旅Gnews`
-
-### [要全力以赴发起对大外宣最危险人物Isobel Yeung的诉讼](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [56名德国医生引用7个极好论据反对强制接种疫苗](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [对145个国家研究表明，新冠疫苗导致感染和死亡人数急剧增加](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [喜马拉雅币一周分析与总结（1月3日-1月9日）](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [英国疫苗前负责人：应该停止大规模接种中共病毒疫苗](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫情期间，西安市民被像牲口一样对待](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [天津市开展全员核酸检测](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [【中日财经爆】斯里兰卡要求中共国重新调整其债务](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新研究表明，中共病毒疫苗扰乱女性月经周期](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【中日财经爆】东亚银行被中共罚款1674万 第二次领千万级罚单](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中共国专家建议央行多印2万亿 解决人口危机](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习近平普京为侵略而歪曲历史洗脑百姓](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为什么自给自足的加密生态系统代表下一代支付系统](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【中日财经爆】中共阻挠快筛试剂出口 导致澳洲疫情加剧爆发](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵直播大事记——GETTR Pay背后牛人与8岁就是神童的七哥](/content/gnews/22/README.md)
- ` 文贵直播大事记`
-
-### [日本电视台播音员滝菜月感染中共病毒](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共对孕妇流产事件道歉，态度敷衍愚弄百姓](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [【中日财经爆】斯里兰卡陷“一带一路”债务陷阱 要求延期偿还中共债务](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [01/10每日播报｜新闻简讯:哈萨克斯坦骚乱 西安民生环境恶化 李云迪被抓后消失近3个月](/content/gnews/26/README.md)
+### [01/10每日播报｜美阿肯色州长表示大型企业不要遵守疫苗强制令](/content/gnews/2/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [DC大中华时事：天津市全面加强离津管理](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [共产党知道属相阴阳和风水的秘密却让所有人找不到秘密](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [“真相工程”组织将公布有关福奇的严重举报文件](/content/gnews/28/README.md)
- ` GTV新闻访谈`
+### [与中共病毒共存？英国专家置疑疫苗有效性](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大军官要求调查武汉军运会 疑该处是病毒发源地](/content/gnews/29/README.md)
- ` GTV新闻访谈`
+### [德约科维奇签证案胜诉 能否打澳网仍是未知数](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国商家谴责政府强制疫苗是灾难性行为](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [中国当代司马懿唯曾庆红王岐山刘亚洲三人,曾为三人首选](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在37.200 HDO](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [奥密克戎病例已涉天津、安阳 “动态清零”必须坚持骗人](/content/gnews/7/README.md)
+ ` 儒为`
 
-### [捷克首都发生游行示威，抗议强制接种中共病毒疫苗](/content/gnews/32/README.md)
+### [自信要不要脸有信仰有知识有见识还要忘记任何人的攻击](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [大直播后记——七哥谈“养老”](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [只要有爱有真诚对方都会原谅，不要在家庭之间争强好胜](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [喜交所——引领下一代加密货币支付系统的“全球旗舰领军者”](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [Covid让许多人失去嗅觉 尤其是老年人](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [我们不要成为造祸、背负灾难传播共产党邪恶思想的工具](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [关注：下周将发布举报福奇前所未有的爆炸性文件](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [若没有盖特全中国十四亿人在世界上没有一个说话的地方](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [澳洲开始为5至11岁儿童接种中共病毒疫苗](/content/gnews/16/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [要全力以赴发起对大外宣最危险人物Isobel Yeung的诉讼](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [56名德国医生引用7个极好论据反对强制接种疫苗](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [对145个国家研究表明，新冠疫苗导致感染和死亡人数急剧增加](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年1月10日:财经新闻整理](/content/gnews/33/README.md)
+### [喜马拉雅币一周分析与总结（1月3日-1月9日）](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [英国疫苗前负责人：应该停止大规模接种中共病毒疫苗](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫情期间，西安市民被像牲口一样对待](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [天津市开展全员核酸检测](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [新研究表明，中共病毒疫苗扰乱女性月经周期](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【中日财经爆】东亚银行被中共罚款1674万 第二次领千万级罚单](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】中共国专家建议央行多印2万亿 解决人口危机](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为什么自给自足的加密生态系统代表下一代支付系统](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【中日财经爆】中共阻挠快筛试剂出口 导致澳洲疫情加剧爆发](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】斯里兰卡陷“一带一路”债务陷阱 要求延期偿还中共债务](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [01/10每日播报｜新闻简讯:哈萨克斯坦骚乱 西安民生环境恶化 李云迪被抓后消失近3个月](/content/gnews/30/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [DC大中华时事：天津市全面加强离津管理](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [“真相工程”组织将公布有关福奇的严重举报文件](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [捷克首都发生游行示威，抗议强制接种中共病毒疫苗](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新西兰财经G乐部2022年1月10日:财经新闻整理](/content/gnews/34/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [哈萨克斯坦抗议游行持续，总统对抗议者下射杀令](/content/gnews/34/README.md)
+### [哈萨克斯坦抗议游行持续，总统对抗议者下射杀令](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [重庆武隆区一食堂疑似发生爆炸，造成多人被困](/content/gnews/35/README.md)
+### [重庆武隆区一食堂疑似发生爆炸，造成多人被困](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特CEO杰森·米勒：我要推翻中共政权](/content/gnews/36/README.md)
+### [盖特CEO杰森·米勒：我要推翻中共政权](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国NHS医生对卫生大臣表示：他不会接种疫苗](/content/gnews/37/README.md)
+### [英国NHS医生对卫生大臣表示：他不会接种疫苗](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [荷兰因为“预期的风险”而处于极端封锁状态](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国产芯片不足导致汽车库存短缺、价格上涨](/content/gnews/39/README.md)
+### [荷兰因为“预期的风险”而处于极端封锁状态](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [Eglise医生一起欢度圣诞及再谈如何吃药全文字版](/content/gnews/40/README.md)

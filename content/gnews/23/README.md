@@ -2,24 +2,52 @@
 ---
 
 
-## 日本电视台播音员滝菜月感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1842471/)
+## 天津市开展全员核酸检测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842611/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-662.png)（图片源自本文链接）
-日本雅虎网站1月10日消息：日本电视台播音员滝菜月（28岁）感染中共病毒（新冠病毒Covid-19）。这一消息是该台的“赫尔南德斯！”节目(周一至周五，上午11点55分）发表的这一消息。
+新闻采集：janey17
+作者：纽约香草山教育部 – 飞虹
 
-播音员篠原光说：滝菜月已被确诊感染中共病毒，将从节目中休息一段时间。发病时她发烧到38摄氏度，但现在已经退烧，病情稳定。
 
-南原清隆也对她喊话：请好好休息，养好身体，我们都在等你。
 
-报道中没有提到滝菜月是否已经接种疫苗，但就日本的疫苗接种状况来看，她很可能已经接种过中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-信息来源：[日本テレビ・滝菜月アナ、新型コロナウイルス感染　発症時は発熱も現在は体調安定（オリコン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/103b20e23b6f044fdd47b6087732da3edee230ea)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+
+1月9日，天津市委市政府和市疫情防控领导小组、市疫情防控指挥部决定在全市范围开展全员核酸检测。
+
+据悉，天津市16个区的全体居民，分两批，分别从1月9日7时和1月10日7时起，在当时居住地保持原地相对静止，根据各区防控指挥部的统筹部署和街道社区的组织安排，到指定地点，及时配合进行核酸检测。24小时内完成区域内人员核酸检测工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-3.jpg)
+相关区居民未在规定时间内参加核酸检测的，“健康码”调整为“橙码”，完成核酸检测且结果呈阴性后转为“绿码”。
+
+据了解，1月7日18时至8日21时，天津市津南区新增20名人员新冠病毒核酸结果呈阳性。
+
+参考链接：
+[天津市开展全员核酸检测](https://news.cnstock.com/news,bwkx-202201-4809391.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

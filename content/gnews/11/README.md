@@ -2,44 +2,28 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月3日-1月9日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842618/)
+## 喜交所——引领下一代加密货币支付系统的“全球旗舰领军者”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1842802/)
 
-作者：纽约香草山金融部 – ILOVE战神
+作者：sherryok（水云间）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-11.png)
+科技时代网站（Tech Times），是美国纽约一家关注硅谷公司，技术创新，以及领先科技与商业融合后所带来的文化转型内容的网站，看看它的文章标题，就知道他们的内容有多酷：“迪斯尼的专利表明它也正在进入元宇宙”、 “史克威尔艾尼克斯进军区块链游戏市场！新的 NFT 游戏即将到来”、“具有 Metaverse 的平台加强了艺术、品牌和流行文化之间的联系”。是不是非常吸引人? 近日，该媒体把目光聚焦到了一个新兴的加密货币交易平台-喜马拉雅交易所 （[Himalaya Exchange](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://himalaya.exchange/himalaya-pay)），标题是“为什么自给自足的加密生态系统代表了下一代支付系统”。不用说，该网站已经给喜马拉雅交易所戴上了引领下一代加密货币支付系统“全球旗舰领军者”头衔。
 
+记者大卫.汤普森(David Thompson) 认为，支付系统的未来将属于那些以金融包容性为核心的平台。在实践中，这意味着进入门槛低、风险降低、交易成本降低以及速度和效率提高。而喜马拉雅交易所（简称喜交所）在这些方面独占鳌头，因为他拥有一个“自给自足的生态系统”。
 
+“这是市场上最新的方法”大卫说，喜交所通过创建自给自足的生态系统来，结合了“加密货币与传统货币相结合”及“商家在线钱包存储加密货币”两种目前最受欢迎的支付应用方式。它在一个平台上集成了其原生交易币-喜币（Himalaya Coin ‘HCN’）、稳定币-喜美元（Himalaya Dollar ‘HDO’）和支付应用程序-喜支付（Himalaya Pay）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+喜美元（HDO）固定为美元（USD），并有由美元和现金等价资产组成的储备作为后盾。因此，虽然喜币的市场价格可能会波动，但喜美元的固定价值为交易者和投资者提供了避风港，大大减少交易时因加密市场的波动产生的风险。
 
+更加无与伦比的是喜交所交易的便利性，即将推出的喜支付（ Himalaya Pay ）应用程序以及相关交易市场，使得喜美元、喜币都能在同一生态系统中自由兑换，其便利与目前加密市场上各自为政，春秋战国的混乱局面不可同日而语。在同一生态系统中流通，“这很可能会流行起来”，记者大卫一语中的。同时由于大多数现有的全球加密资产由少数投资者（或加密“鲸鱼”）拥有并只在成熟的交易所买卖，因此新兴的喜马拉雅交易所可能会创建一个更易于访问、低成本和为加密货币新手入门的数字资产网络。
 
+据[报道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/ilkerkoksal/2019/08/23/the-rise-of-crypto-as-payment-currency/?sh%3D1d459bc626e9)，到明年，全球电子商务预计将增至 5.69 万亿美元，其中 72% 的销售额来自移动设备。消费者希望能够在上下班途中甚至在当地邮局排队等候时进行商品和服务交易。事实证明，中共病毒大流行期间，在线购物趋势势头迅猛，消费者要求每周 7 天、每天 24 小时高效购物。
 
-过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-1.jpg)
-本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。喜马拉雅货币体系将稳定币HDO、浮动币HCN以及支付系统H-Pay融合在统一的平台上，打造了自给自足的生态系统，其方便性是加密货币领域无可比拟的。喜马拉雅货币的“生态系统”模式具备更强的金融开放性，准入门槛低，交易成本低，风险小，速度快、效率高，对于加密货币新手更容易上手。这种模式代表了支付系统的未来，将在加密货币平台的竞争中取胜。
+高效，安全，便捷，零售业以惊人的速度走向数字化。用 Bigcommerce 首席执行官 Brent Bellm 的话来说，“到 2022 年，实体零售空间将只不过是陈列室而已”。2022已经到了，“自给自足的生态系统看起来有一个良好的开端，但比赛才刚刚开始”。大卫记者文章结尾的这句话与新中国联邦爆料革命的口号，“一切都是刚刚开始”何其相似。
 
-参考链接：
-[Why Self-Sufficient Crypto Ecosystems Represent the Next Generation of Payment Systems](https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm)
+这是一个多么神奇的开始！文贵先生在最近的直播中说，喜交所从2021年11月1日上线以来，短短两三个月的时间，创造的神奇，世界上的数字货币，几乎都在一个月内暴跌，能撑过两个月的几乎没有。喜联储的投资者们谁也没想到喜币能涨到40.今后，全世界你能想到的最牛的企业都会想和喜交所合作，为什么? 因为喜联储让他们看到，没有一个机构能让币值从0到400倍这样稳定的增长，而且绝对不会被挤兑，挤垮的，一个也没有。喜交所全球首创的加密货币生态系统，必将带领人类进入到一个全新的金融世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻链接：https://www.techtimes.com/articles/270060/20220104/why-self-sufficient-crypto-ecosystems-represent-the-next-generation-of-payment-systems.htm
 
 
 
