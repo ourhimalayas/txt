@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国产芯片不足导致汽车库存短缺、价格上涨
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842225/)
+## 英国NHS医生对卫生大臣表示：他不会接种疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842229/)
 
-01/05/2022 美国汽车经销商表示中共国的芯片短缺造成新车供应不足，使得汽车价格上涨。新车恢复生产可能需要一到两年时间。
+01/07/2022 英国NHS医生对卫生大臣表示：他不会接种疫苗，因为中共病毒疫苗能提供保护的科学依据并不充分。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,32 +2,46 @@
 ---
 
 
-## 虽然接种了加强针，本周四名众议员先后感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842373/)
+## “真相工程”组织将公布有关福奇的严重举报文件
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842426/)
 
-#### 撰稿：彩虹 
+作者：纽约磐石农场—在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-15.jpg)图片来源：底特律新闻
-1月9日，《国会山报》报道四名众议员虽然之前已经完全接种了中共病毒（COVID-19）疫苗以及加强针，但本周仍然成为了中共病毒感染者。
 
-在周日的一份声明中，民主党众议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）的办公室说，这位女议员中共病毒检测结果呈阳性，出现了症状，正在家中康复。
 
-声明中值得注意的是，说：“（科尔特斯）女议员在今年秋天接种了（中共病毒疫苗）加强针。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-本周末，来自田纳西州的民主党众议员吉姆·库珀（Jim Cooper）也宣布他的中共病毒检测结果呈阳性。
 
-报道说，上周六，民主党众议员肖恩·克斯特（Sean Casten）和共和党众议员金映玉（Young Kim）也宣布他们的中共病毒检测结果呈阳性。与库珀和科尔特斯一样，这两位立法者都接种了全面的中共病毒疫苗和加强针的注射。
 
-文章指出，自去年夏天以来，大约有40名美国国会立法者在至少完全接种了中共病毒疫苗后仍然感染了中共病毒。
+台湾媒体报道，1月8日，美国非营利调查组织“真相工程”创办人奥基夫发布预告称，将在下周公布关于白宫首席医疗顾问福奇的严重举报文件，进一步揭发他的真面目。 据悉，美国国家过敏与传染病研究院院长福奇，曾再三否认捐款给中共武汉病毒研究所。不过后来，该研究院的上级部门——美国国立卫生研究院——间接承认了此事，因而福奇涉嫌向国会做伪证。另外针对民众是否应该带口罩防疫、以及群体免疫门槛等问题，福奇说法前后不一，多次反复。去年6月，他又改口承认捐款给武毒所，并称不相信中共病毒来自自然。
 
-国会医生布莱恩·莫纳汉（Brian Monahan）建议国会办公室尽可能采用远程工作，并使用高质量的口罩，如N95和KN95。
+奥基夫表示，福奇对于中共病毒的严重性、他资助中共病毒学实验室的背景，以及中共病毒的起源等问题，对美国公众撒谎了一年多。并强调说，当一切尘埃落定，中共病毒疫情大流行平息时，福奇会被人们记住，他是我们这个时代最著名的大屠杀者之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-3.jpg)
+参考链接：
+[美防疫專家佛奇跌落神壇 調查組織預告將再爆猛料](https://news.ltn.com.tw/news/world/breakingnews/3795272)
 
-莫纳汉上周发布的一份报告显示，国会大厦的中共病毒测试的七天平均阳性率已经从1%左右飙升到了13%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-**新闻来源**
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-[Ocasio-Cortez tests positive for breakthrough COVID-19 case](https://thehill.com/homenews/house/588941-ocasio-cortez-tests-positive-for-breakthrough-covid-19-case)[Rep. Jim Cooper becomes latest lawmaker to test COVID-19 positive](https://thehill.com/homenews/house/588936-rep-jim-cooper-becomes-latest-lawmaker-to-test-covid-19-positive)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
