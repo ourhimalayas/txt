@@ -2,41 +2,52 @@
 ---
 
 
-## 关注：下周将发布举报福奇前所未有的爆炸性文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1842764/)
+## 这是一场思想的战争，我们处于战争状态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842869/)
 
-翻译： Jenny Ball
+#### 翻译：奋斗
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-681.png)图片来源 : thegatewaypundit.com
+#### 校对：精靈藍
 
-“真相工程”(Project Veritas) 创始人詹姆斯·奥基夫（James O’Keefe）周六表示，他将在下周发布有关举报福奇博士的文件。
+#### 剪辑/字幕：向上James
 
-“下周初将发布有关福奇博士的严重举报文件，敬请期待。”奥基夫在他的 Instagram 账户上宣布。
+我参加了伦敦的所有游行，我的丈夫实际上是英国教会的牧师。
 
-当一切都说了都做了，当 COVID 大流行病平息后，**安东尼****·****福奇博士可能会被人们世代铭记为：**我们这个时代最大的大规模杀手之一。
+So I’m a Christian. And I believe that we’re in a battle, a massive, massive battle.
 
-**安东尼****·****福奇在关于中共病毒的严重性，以及他资助中共病毒学实验室的背景，和病毒的起源方面，向美国公众撒谎了一年多**。
+我是一个基督徒。我相信，我们正处于一场战斗中，一场巨大的、大规模的战斗。
 
-福奇还就安全药物羟氯喹 (HCQ) 在治疗病毒方面取得的成功，**向美国公众撒谎**。
+And this isn’t a battle about the north and the south, or about whether you’re left or right politically,
 
-当 HCQ 可用时，就不会有数十万美国人死亡，**但被福奇和 ****CDC ****禁止给 ****COVID ****患者使用。**
+这不是一场关于北方和南方的战斗，也不是关于你在政治上是左还是右。
 
-8 月，网关专家（Gateway Pundit）记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）专门报道了福奇在突尼斯对**比格犬进行的可怕实验**。
+It’s not a battle about land, this is actually a battle for the minds.
 
-该组织发现的文件可见，由福奇领导的美国国立卫生研究院(NIH)部门向突尼斯的实验室运送了 375,800 美元赠款的一部分，**以用寄生虫感染比格犬**。
+这不是一场关于土地的战斗，这实际上是一场争夺思想的战斗。
 
-福奇是一个危险的疯子。
+This is the greatest battle that we that you’re ever going to be in. And this has been going on since time began,
 
-**大多数美国人都明白这一点吗**？
+这是你将会遇到的最伟大的战斗。自古以来，这一直在进行着。
 
-新闻来源: [thegatewaypundit.com] [James O’Keefe: Explosive Never Before Seen Whistleblower Documents Coming Next Week on Dr. Fauci – STAY TUNED](https://www.thegatewaypundit.com/2022/01/james-okeefe-explosive-never-seen-whistleblower-documents-coming-next-week-dr-fauci-stay-tuned/)
+What people are seeing is now the battle between good and evil between Satan and the devil.
 
-* * *
+人们现在看到的是善与恶之间的斗争，是撒旦与魔鬼之间的斗争。
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+And it’s actually written about in the Bible, all of what’s happening now is prophesied in the Bible.
+
+实际上，这在《圣经》中也有记载，现在所发生的一切都在《圣经》中预言过。
+
+视频链接：[ITS A PSYOP – WE ARE AT WAR – LOAD FOR BATTLE](https://www.bitchute.com/video/897LjYYJ8WD7/)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

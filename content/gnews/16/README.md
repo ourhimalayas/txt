@@ -2,47 +2,31 @@
 ---
 
 
-## 只要有爱有真诚对方都会原谅，不要在家庭之间争强好胜
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1842809/)
+## 01/10每日播报｜美阿肯色州长表示大型企业不要遵守疫苗强制令
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1842942/)
 
-G-TV视频链接：[https://gtv.org/video/id=61dbec9187664c47acd2e2a4](https://gtv.org/video/id=61dbec9187664c47acd2e2a4)
+**By:[秘翻新闻](https://gtv.org/video/id=61dbf4aea6dfdd603151f451)**
 
-**郭文贵先生：**你看看唐平和威廉王在一起，他俩就知道，唐平很强势，威廉王很包容，很男人的。这个时候你一定要记住男人和女人之间和朋友之间，一定要记住，唯一让对方接受你开玩笑，或者说你过分的表达或者什么样，一定要有爱、有真诚，对方都会原谅你。
+**2022-01-10**
 
-如果你带着恶意，你带着虚伪，这个人很难原谅你，真的是。我跟你七嫂子相处一个最大的问题，说白了我就认清在家里边，我这一辈子没人能征服我，就你七嫂子把我征服了，还有我闺女，是吧？你在你跟闺女之间，你说你搞个对错有啥意义呢？你跟你七嫂子有对错有啥意义呢？咱在家里边咱永远记住，你七嫂子排第一，郭美排第二，郭强排第三，我排第四，现在我排第五，我家狗排第四啦，是吧Snow排第四。
+《美国有线电视新闻网》华盛顿1月9日报道，美国阿肯色州共和党州长、阿萨·哈钦森，在疫苗强制令生效前的几个小时，要求州内的大型企业不要遵守拜登政府的这一命令，他形容这项命令是暴虐和不近人情的。
 
-你甘认，在家里边别争抢第一，别争对错，用爱把你自己排得往后一点儿，用诚实、接受和包容，没有什么过不去的，否则你没法相处。一个屋檐下，像我这种强势的人，像唐平这种，永远不服输，谁受得了，是不是？她都离一回婚了，我可不希望她再离一回了，是不是？她离婚一定不是她先生一个人的错，一定有她的错的。谁能跟她过，我觉得威廉王能跟她过50年，我一定把威廉王的照片挂到我墙上去，我告诉你。
+周日，州长哈钦森在《美国有线电视新闻网》的“国情咨文” (State of the Union)上接受采访时，被问及关于大型企业的疫苗强制令时表示，人们应该等待最高法院就这项命令的裁决。他还表示，接种疫苗与否是单个企业的决定，联邦政府的职业安全与健康管理局（OSHA）的这项命令需要被取消，这就是我们反对它的原因，希望最高法院能做出否定疫苗强制令的裁决。
 
-所以说千万记住，不要在爱之间，不要在家庭之间，还有兄弟姐妹之间争强好胜。那是你非常熟的范围，说完了，谢谢。
+据报道，在上周五，最高法院听取了此案的辩论，多数保守派法院似乎准备否决这项疫苗强制令。
 
-字幕来源：[2022年1月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1830280/)
+去年由职业安全与健康管理局OSHA发布的规则，要求拥有100名及以上的企业雇主确保其员工完全接种疫苗，或提供宗教豁免，未接种疫苗的员工需要定期进行阳性测试，并在工作时戴上口罩。该规则将在本周一部分生效。
 
-编辑整理：Jacques；
+据报道，在去年州长哈钦森就表示，拜登政府疫苗强制令的决定具有分裂性，是史无前例的越权行为。
 
-字幕文件制作：小满；
+秘翻主编  清风先生编译报导
 
-视频制作及上传：Cindy；
+发布 :星星
 
-G-News发布：小满；
+* * *
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

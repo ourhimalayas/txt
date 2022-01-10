@@ -2,52 +2,25 @@
 ---
 
 
-## 天津市开展全员核酸检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842611/)
+## 澳洲开始为5至11岁儿童接种中共病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1842722/)
 
-新闻采集：janey17
-作者：纽约香草山教育部 – 飞虹
+撰稿：文西Eric
+![](https://assets.gnews.org/wp-content/uploads/2022/01/101-1.jpg)图片来源于网络
+据澳大利亚9号新闻网报道，澳大利亚从1月10日开始，5至11岁的儿童有资格接种中共病毒疫苗。
 
+澳卫生部长格雷格·亨特（Greg Hunt ）保证，这个年龄组的儿童有大量的疫苗可以使用，有大约230万5至11岁年龄组的儿童，1月份有300万剂疫苗，在未来两周内有200万剂。
 
+但是，家长们担心疫苗不够用，如果他们不能在返校日期到来之前为该年龄段的孩子接种疫苗，他们可能被迫回到家中学习。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+悉尼大学的传染病专家罗伯特·布依（Robert Booy）教授说，在返校前为孩子们接种疫苗不仅可以保护他们，而且如果孩子们在学校感染了这种疾病，还可以保护其他家庭成员不被感染。孩子们的适应力很强，他们能够比我们成年人更好地抵抗奥密克戎（Omicron）。接种疫苗是有意义的，它将保护儿童，防止他们感染病毒后的严重后果，接种疫苗也将阻止家庭中的传播，保护家庭中的脆弱成员不被儿童感染。
 
+所有流氓政府的套路如出一辙：政府站台，“砖家”背书。对于生活在澳洲的战友，政府的手已经伸向5-11岁的孩子，大家看好自己的孩子，大不了让孩子待在家里不去上学，我们有自己的G-Education，可以先让孩子在那里继续接受教育，培养我们的爆二代、爆三代。
 
+新闻来源：[9news.com.au](https://www.9news.com.au/national/coronavirus-vaccination-update-australia-children-aged-five-to-11-eligible-for-covid-19-vaccine-from-january-10/ca1f4b62-3830-4100-b4b1-cfbf9e4a5a08)
 
-1月9日，天津市委市政府和市疫情防控领导小组、市疫情防控指挥部决定在全市范围开展全员核酸检测。
-
-据悉，天津市16个区的全体居民，分两批，分别从1月9日7时和1月10日7时起，在当时居住地保持原地相对静止，根据各区防控指挥部的统筹部署和街道社区的组织安排，到指定地点，及时配合进行核酸检测。24小时内完成区域内人员核酸检测工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-3.jpg)
-相关区居民未在规定时间内参加核酸检测的，“健康码”调整为“橙码”，完成核酸检测且结果呈阴性后转为“绿码”。
-
-据了解，1月7日18时至8日21时，天津市津南区新增20名人员新冠病毒核酸结果呈阳性。
-
-参考链接：
-[天津市开展全员核酸检测](https://news.cnstock.com/news,bwkx-202201-4809391.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

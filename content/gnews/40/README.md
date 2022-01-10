@@ -2,10 +2,10 @@
 ---
 
 
-## 盖特CEO杰森·米勒：我要推翻中共政权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842261/)
+## 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1842265/)
 
-01/07/2022 盖特CEO杰森·米勒：我要推翻中共政权。我想要将民主和自由带到缺失它们的地方。这就是为什么我仍然认为从根本上社交媒体能成为一股善的力量。
+01/08/2022 哈萨克斯坦抗议游行持续，总统对抗议者下射杀令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
