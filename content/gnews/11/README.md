@@ -2,18 +2,31 @@
 ---
 
 
-## 西媒头条 — 第149期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843219/)
+## 樱花灭共诗——琴台
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843410/)
 
-**制作：蚂蚁兄弟**
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-6.jpg)
+几觅当年事，
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+如今已不闻。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220110.001-1.jpeg)
+古溪流瑟瑟，
 
-发稿：信心的选择
+花蕊落纷纷。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+老肆尘埃漫，
+
+荒台夕日熏。
+
+茂陵风雨后，
+
+尤爱卓文君。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

@@ -2,51 +2,26 @@
 ---
 
 
-## 欧米炕高传染慢性杀人 疫苗危机下防范意识最重要
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843247/)
+## 中共独裁体制下的疫情防控
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843423/)
 
-作者：纽约香草山教育部 Naughty(文行)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg3.chinadaily.com.cn%2Fimages%2F202201%2F10%2F61db718da3107be47f29de83.jpeg&amp;imgrefurl=https%3A%2F%2Fcn.chinadaily.com.cn%2Fa%2F202201%2F10%2FWS61db718da3107be497a015da.html&amp;tbnid=4HAgrcmMijuCaM&amp;vet=12ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ..i&amp;docid=Hzojou9SFKDGaM&amp;w=1024&amp;h=690&amp;itg=1&amp;q=%E5%A4%A9%E6%B4%A5%E6%8E%92%E9%98%9F%E6%A3%80%E6%B5%8B&amp;ved=2ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+1月10日每经经济报报道，10日举行的天津市中共病毒（新冠病毒Covid-19）疫情防控工作新闻发布会上了解到，截至1月10日15时，天津市核酸采样9624938人，完成检测3427807人，除报告的阳性感染者外，其他均为阴性，检测工作正在进行中。
 
+从1月8日发现两例阳性患者，截至1月10日15时确诊31例，无症状感染者10例，累计判定追踪密切接触者1152人，次级密切接触者685人，均予以隔离管控。本次疫情累计隔离管理约7.5万人，如此大面积无效的核酸检测结果，只有中共独裁统治者才可以做到如此短时间内做到强制的非法管控。
 
+发布会给出的除阳性外均为阴性这样的信息，2021年天津人口普查，常住总人口数是1386.6万人，核酸采样962万人，完成检测342万人，还有600多万等待结果，在这未知结果人群中，还有更多未知数据。
 
+信息来源:
 
+[【天津已完成全市核酸采样超900万人】](https://mo.mbd.baidu.com/r/zrcRocIMaQ?f=cp&amp;rs=431117269&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ba789292d4ea3bc3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-07-at-8.33.05-AM-1.jpeg)图片来源：GTV&GETTR 
-
-郭文贵先生在2022年1月7日大直播中向战友们披露，最近又有多位战友感染了中共病毒，包括木兰传奇的丈夫。这次被传染的战友都是平时很注意防护很小心谨慎的，仍然被感染，说明现在传播的病毒欧米炕是极具传染性的。
-
-我们的科学家战友指出新变种欧米炕是慢性杀人，它对机体的损害也是很可怕的。他强调新变种同样是生化武器，任何生化武器元素进入身体里边，都会让人随时死掉，慢死、早死或者得癌症死。
-
-另外，郭先生还强调mRNA疫苗本身就是病毒，刺突蛋白会脱落会传染，让人没有出门就被感染。现在被感染的绝大多数都是打了疫苗的人，战友们就生活在打了疫苗的人群中。
-
-郭先生提醒战友们一定要提高防范意识，一定要准备好药，疫苗灾难下防范意识比解药还重要。
-
-新闻链接：[https://gnews.org/zh-hans/1834156/](https://gnews.org/zh-hans/1834156/)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

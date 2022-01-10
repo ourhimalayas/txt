@@ -2,82 +2,80 @@
 ---
 
 
-## 全球疫情更新（澳洲感染总数破百万）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843194/)
+## 受COVID疫苗伤害的人被蒙在鼓里：农业试点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843263/)
 
-**整理/编辑：枳实**
+编译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-640.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-23.jpg)Cody Flint 在接受 NTD 于 2022 年 1 月 1 日播出的“The Nation Speaks”节目采访时。（大纪元截图）
 
+一位因接种 COVID-19 疫苗而受重伤的农业飞行员表示，因 COVID-19 疫苗受伤的人，没有可行的方式获得赔偿，并且被联邦政府忽视。
 
+“在这一点上，政府已经完全抛弃了我们，”疫苗受伤的飞行员科迪·弗林特（Cody Flint）在 1 月 1 日播出的采访中，告诉 NTD 的“国家讲话”节目。
 
-图片：雅典娜农场设计组 精灵蓝
+“《公共准备和应急准备法》（PREP）规定，疫苗伤害获得了以反措施伤害赔偿计划（CICP）的名义，寻求赔偿和经济帮助的途径，**这绝对是一个笑话，”弗林特说。 “我们完全被蒙在鼓里**。”
 
+PREP法案授权卫生与公共服务部 (HHS) 的秘书发布声明，**对因制造或使用包括药物在内的医疗对策，疫苗和医疗用品，造成的任何损失，以治疗疾病索赔，提供责任豁免 。**
 
-雅典娜疫情更新（2022年 1月10日）
+2020 年 3 月 10 日，前 HHS 部长亚历克斯·阿扎 (Alex Azar) 发布了一项针对 COVID-19 的医疗对策的 PREP 法案声明。该声明已多次延长或修改。责任保护延长至 2024 年 10 月 1 日。
 
-**一，全球疫情基本数据**
+根据该声明，**疫苗受伤者不能起诉辉瑞、莫德纳和强生等**** COVID-19 ****疫苗制造商，或批准或授权这些疫苗的美国****FDA****等联邦卫生机构。**
 
-感染总数：306,806,756（日新增2,366,021，14天增幅+213%）
+（点评：难怪他们强制mRNA试验药物，不仅因为他们有大钱赚，他们都在这些制药公司有股份，更是因为他们可以杀人不偿命！还有王法吗？还有天理吗？）
 
-死亡总数：5,486,682（日新增6,368人，14天增幅–2%     ）
+弗林特指出，CICP的接受率极低。自 2010 年推出该计划以来，在大流行之前提出的 499 件索赔中，CICP 仅赔偿了 29 件索赔。
 
-每万人感染人数：471.2762 人（除中国外）
+根据 CICP 的数据，截至 2021 年 11 月 1 日，CICP 共收到 5,242 件索赔，其中 4,751 件与 COVID-19 相关。只有一项与 COVID-19 相关的索赔被确定有资格获得赔偿，并且正在等待对合格费用的审查，三项与 COVID-19 相关的索赔被拒绝赔偿，因为“因果关系的证明标准不符合，或承保的伤害没有持续。”
 
-**二，全球“疫苗”毒针统计数据**
+2021 年 2 月 1 日，弗林特自愿接种疫苗。“只是一个激动人心的一天——我们以为我们会把病毒抛在脑后，”弗林特回忆道。
 
-“疫苗”毒针注射总数：93.7亿
+但在 30 分钟内，他在接种疫苗后出现了奇怪的头痛。两天后，他驾驶了当年的第一次飞机，起飞后不久，他就有了隧道视野。弗林特试图继续以履行他对客户的承诺。 但他觉得他的脑袋里就像一颗炸弹。他不记得他是如何将飞机降落在跑道上的。
 
-完全“接种”：39.2亿人
+“真的靠着上帝的恩典，没有发生意外。我立即去看了我的家庭医生，”弗林特说。
 
-完全“接种”百分比：50.3%
+后来，他被告知，他的内耳破裂了，里面的液体向内泄漏到他的头骨内部。医生解释说，只有因车祸、严重的头部外伤，或类似的事情引起的颅内压高度升高，才能使他的双耳在同一天同时发生这种情况。
 
-**三，澳洲疫情和“疫苗”数据**
+“显然，我没有这些事故。我生活中唯一改变的是我接种了疫苗，并立即出现了严重的头痛，直到那时变得更糟，”弗林特说。
 
-感染总数：1,048,968（今日新增71,273人）
+弗林特之后经历了两次手术和数十次就诊。他的情况有所好转，但他仍然无法驾驶飞机。
 
-死亡总数： 2,387人（今日新增 20人）
+“我不知道我人生的下一步是什么。我不知道，”弗林特说，并指出，他的飞行员执照被拿走了。“我不知道此时该怎么办。 **自从事件发生以来，我把我一生存下的每一分钱都花在了手术上，只是为了生存和养家糊口**。”
 
-每万人感染人数：295.6614人
+作为一名 15 年的农业飞行员，弗林特说，他不是一个反疫苗者。“我注册，并在我可能得到疫苗的第一天就接种，因为我相信疫苗，”弗林特上个月诉《大纪元时报》。现在弗林特对疫苗授权持批评态度。
 
-“疫苗”毒针注射总数：44,113,001（日新增99,903针）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1236696128_20-600x401-1.jpg)抗议者于2021年11月20日在纽约市集会反对疫苗规定。（Stephanie Keith/Getty Images）
 
-完全“接种”：18,983,334人
+“这是疫苗强制的致命弱点，它并不适合所有人。这不是一刀切的解决方案，”弗林特告诉 NTD。“全国有成千上万的人， 我接触过很多人，他们因这些疫苗生活受到了彻底改变，遭受终结职业生涯的伤害。他们中的很多人都是飞行员。令人恐惧的是，有多少飞行员因此受伤。”
 
-第二针“接种”百分比：77.5%
+美国CDC一再表示，接种 COVID-19 疫苗后可能会发生严重的不良事件，但这种情况很少见。
 
-16岁以上人口接种至少一剂疫苗的比例：94.7%
+弗林特还批评联邦卫生机构对疫苗的安全数据不透明。
 
-16岁以上人口接种至少两剂疫苗的比例：92.1%
+上个月初，FDA 要求法官给它 75 年的时间来提供有关辉瑞-生物科技疫苗的数据。 周四，一名联邦法官命令该机构，在大约八个月内提供所有数据。
 
-**四，疫情要闻和评论**
+“FDA 发布了他们的第一批 91 页的安全数据。这 91 页涵盖了 2020 年 12 月至 2021 年 2 月 28 日，”弗林特说，指的是发布的第一份报告。“**在那两个半月中，辉瑞公司确认了**** 1,223 ****人因辉瑞疫苗直接导致死亡。****”**
 
-澳洲的中共病毒感染总数超过百万大关。今天新增病例七万余人，较昨日有所下降。
+相比之下，弗林特说 ，**2009 ****年的猪流感疫苗，在****47****人死亡后被撤出市场，因为它太危险了**。“你得问问自己，这里发生了什么？”
 
-今天澳洲媒体的头条新闻恰巧与疫苗有关。全球最具实力的网球选手，澳网公开赛的“九冠王”德约科维奇，他曾经公开反对强制疫苗注射，并拒绝公布其接种状态。几天前，他在入境澳洲参加澳网公开赛时被边检当场吊销签证，取消其免于注射中共病毒疫苗毒针的医疗豁免，他随即委托律师发起法律挑战。今天法官宣判他胜诉，立即获得释放，可以继续参加澳网，向他的第十个澳网公开赛冠军发起挑战。
+辉瑞回应称，这是对数据的不准确解释。
 
-昨天在法院宣判之前，主流媒体纷纷把德约科维奇描绘成一个利用明星地位获取特权的人。总算法官看到了问题的实质，德约科维奇已经按照政府的要求准备了所有的证据，也获得了正式的医疗豁免，他到底要怎样做才能满足条件呢？这些主流媒体之前的表现，就如同威权国家的恭顺媒体一样，嘲讽攻击维护自己基本人权的明星运动员，对政府公权力朝令夕改，胡乱迫害没打疫苗则一笔带过。
+辉瑞发言人德维拉·基恩 (Dervila Keane) 上个月告诉《法新社》，在 **158,893 ****种不良反应**中，有 1,223 人死亡的数字反映了来自包括多个国家卫生官员在内的消息来源的“自发”报告，在没有任何原因的情况下，在此期间，**全球数百万人接种了疫苗**** **。
 
-今天的[澳洲媒体对这则疫苗相关新闻的评论](https://www.news.com.au/sport/tennis/australian-government-warned-against-petty-and-vindictive-decision-in-novak-djokovic-saga/news-story/e3ca246a01069a3fe17163274de306dc)，总算开始说些人话了。新闻中引用了一些推特评论，比如“在澳大利亚，未接种疫苗的人已经被妖魔化了几个月（因为‘不支持公共利益’）”之类。而且进一步指出，虽然政府律师威胁将考虑再次取消其签证，但将会引发巨大的公关危机，为德约科维奇争取更多的同情。
+弗林特告诉 NTD ，**他会战斗**，**他希望人们不必经历他家人正在经历的事情。**
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+（点评：一个正常有良知的公民，在自己受到伤害后，会告知他人疫苗的不良反应。而作为国家保护全民健康的机构，什么FDA，CDC，NIH，政府，却对试验性药物不做必要的3期试验，强制人们接种。如果猪流感疫苗造成47人死亡，就能够负责任地从市场撤下，为什么mRNA死亡上百人仍全面强制？多少人问过这个问题？）
 
-发布：tianzhihuan
+“我们在社交媒体上设有支持小组——这些支持小组中有数以万计的疫苗受伤者。 Facebook 每天都会撤下支持小组。甚至我的故事每天都被 Facebook 撤下，”弗林特继续说道。“所以这是一场战斗。这是我们正在进行的一场艰苦战斗，人们每天都在为此醒来。我希望它继续下去。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**参考资料：**[theepochtimes][People Injured by COVID-19 Vaccine Are Left in the Dark: Agricultural Pilot](https://www.theepochtimes.com/people-injured-by-covid-19-vaccine-are-left-in-the-dark-agricultural-pilot_4199812.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-09)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 
