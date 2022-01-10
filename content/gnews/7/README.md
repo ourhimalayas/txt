@@ -2,28 +2,40 @@
 ---
 
 
-## 塞浦路斯科学家发现中共病毒新变异株“德尔塔克戎”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841912/)
+## 瑞士军队禁用WhatsApp、Signal和Telegram
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841940/)
 
-#### **撰稿：**日本东京方舟农场  老孙
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/82BFF87F-320C-4F70-B76A-B2C4A53128F9.jpeg)（图取自Pixabay图库）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Swiss-army.jpeg)图片来源： Fabrice Coffrini/AFP
 
-据《塞浦路斯邮报》（Cyprus Mail）1月8日报道，塞浦路斯科学家莱昂迪奥斯·科斯特里基斯（Leondios Kostrikis）团队近日发现了一种COVID-19（中共病毒）新变异株，该变异株具有德尔塔的遗传背景以及部分奥密克戎的突变，被称作“德尔塔克戎”（ Deltacron）。
 
-据报道，科斯特里基斯领导的研究团队一直在追踪COVID-19（中共病毒）在塞浦路斯的变异情况。该团队在对1377个样本进行测序后，发现了25例这种新毒株。该毒株的基因序列虽与德尔塔毒株接近，但却有10个奥密克戎毒株特有的变异。研究团队将这一新变异毒株命名为“德尔塔克戎”。
+编译：小红帽
 
-科斯特里基斯教授表示，新变异毒株样本的序列目前已提交到全球共享流感数据倡议组织（GISAID）数据库，供全球科学界人士研究使用。
+根据《RT新闻》1月7日报道，**瑞士媒体本周报道，瑞士士兵被要求停止使用WhatsApp、Signal和Telegram，转而使用瑞士国内的信使，理由是保护数据。**
 
-*参考链接：[Delta加上Omicron 賽普勒斯科學家發現新變異株](https://www.cna.com.tw/news/firstnews/202201090196.aspx)*
+据瑞士媒体报道，指挥官和参谋长在12月底收到一份指示，告知他们新的规则。该指示称，军队人员现在应使用瑞士开发的Threema Messenger，无论是官方还是私人通信，其中包括士兵和他们的亲属之间的聊天。
 
-* * *
+目前还不清楚对那些不停止使用WhatsApp或其他外国信使的人是否会有任何制裁。
 
-*素材采编：老孙*
+据报道，军队还将支付下载该应用程序的费用–4瑞士法郎（4.35美元）。据报道，该公司收取的年费也将由军队支付。
 
-*编辑：青衣青青*
+军方发言人丹尼尔·雷斯特（Daniel Reist）告诉法新社，这些建议适用于军队中的每个人，包括新入伍的士兵和返回接受训练的士兵。瑞士对所有19岁并被认为适合服役的男性公民实行义务兵役制。
 
-*发布：miumiu*
+军队发言人告诉当地媒体，此举是出于对数据安全的担忧。与外国应用程序不同，Threema受瑞士法律管辖，并符合欧盟的《通用数据保护条例》。
+
+WhatsApp和Signal等美国应用程序受美国云法案管辖。该法案允许美国当局访问美国应用程序运营商持有的数据，即使这些数据存储在美国境外。美国也可以通过法律请求要求公司交出用户信息。在这种情况下，Telegram只要为美国客户提供服务，也可能会受到该法案的约束。
+
+新闻来源：[WhatsApp, Signal & Telegram banned by Swiss Army — RT World News](https://www.rt.com/news/545502-switzerland-army-ban-whatsapp-privacy/)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

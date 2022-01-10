@@ -2,30 +2,40 @@
 ---
 
 
-## 法国逾十万民众上街抗议马克龙政府的疫苗强制政策
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841808/)
+## 有声|球王乔科维奇坚持不打疫苗崇尚自然疗法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841826/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%9D%A1%E5%B9%85-1.png)
+台媒1月6日报道，世界网球名将、球王乔科维奇，预定参加澳洲网球公开赛，在抵达澳洲机场时，因无法出示疫苗豁免的证明文件，面临被澳洲当局遣返的处境。但是乔科维奇表示，宁可被驱逐出境，也坚决不打疫苗，原因在于他崇尚自然疗法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C0885032-0D1F-455B-B49B-1707083E20B2.jpeg)（图片来自中央社）
+乔科维奇在前年中共病毒疫情初期，就坚持在自己的国家塞尔维亚举办网球赛。虽然在赛中确诊感染患病，不但最后成功克服，而且至今依然保持世界第一的王座。
 
-1月8日，法国逾十万民众上街游行，抗议马克龙政府即将推出的疫苗强制政策。
+乔科维奇表示他认识一些人，可以通过能量转化和祈祷的力量，把最毒的食物和最污染的水，变成可以治疗疾病的良药。因此他坚信替代医学，崇尚精神治疗。
 
-据《中央社》报道，法国此次反对强制疫苗政策的示威游行活动声势浩大，抗议行动遍及法国全境，参与人数超过十万人。在南特（Nantes）、康城（Caen）、土鲁斯（Toulouse）、马赛（Marseille）、波尔多（Bordeaux）等城市，均有大规模的示威游行。
+原文链接：[球王乔科维奇坚持不打疫苗崇尚自然疗法](https://gnews.org/zh-hans/1839230/)
 
-此次抗议行动是法国2022年的首场反抗疫措施游行，且正值抗疫新法立法之际。据报道，新抗疫法案的主要措施是要将“健康通行证”（passe sanitaire）改为“疫苗通行证”（passe vaccinal），即只有完整接种疫苗才能作为证明，而近期的COVID-19（中共病毒）阴性检测结果将不再有效，无法转为有效通行证。这一新措施事实上是变相强制民众接种疫苗。
+音频处理：喜山必胜Maverick
 
-马克龙政府推动的此项新强制疫苗政策草案，在国民议会经过3天的讨论后，已于6日获得通过，并将于10日开始在参议院进行审查。
+**发稿：**Daxia
 
-*参考链接：[法國強推新法抗疫 全國各地逾10萬人上街抗議\[影\]](https://www.cna.com.tw/news/firstnews/202201090005.aspx)*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-*素材采编：Kevin wang*
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑： 青衣青青*
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*发布：miumiu*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

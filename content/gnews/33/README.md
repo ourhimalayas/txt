@@ -2,44 +2,39 @@
 ---
 
 
-## 若哈萨克斯坦失控俄罗斯比解体还惨革命会传到新疆西藏
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841591/)
+## 5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841599/)
 
-视频来源:[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+**【雅典娜快讯】，紧贴时代脉搏**
+![5G信号干扰飞行安全，FAA确定多个机场建5G缓冲区](https://assets.gnews.org/wp-content/uploads/2022/01/arillive.jpg)**图片来源：AirLive**
+**翻译：Georeg Warshing**
 
-**郭文贵先生：**那么哈儿巴扎耶夫在那块儿的地方，他这个占据位置，这个整个中南亚，整个2000万人口、500吨黄金、70多种金属，一个刚刚成立几十年的国家，对俄罗斯、对乌克兰、对亚美尼亚、对整个中共的一带一路、特别是中共跟他之间的关系，整个改变就把俄罗斯的整个的，从屁股往下斜着给切来了，把中共什么，把中共刚刚要伸出来的手，直接半拉膀子给切了，就这么简单。
+**编辑：文泓**
 
-这谁愿意干的事啊？这美国当然愿意干这事,还用说吗，欧洲当然愿意干这事啊。在这个问题上，美欧绝对跟你俄罗斯、中国是绝对着干的。美国CIA在国内不干事，在外国从来不会闲着。但是呢首先一点，你能被干是啥原因呢？
+近日，美国手机运营商已同意对在50个机场部署的C波段发射机断网六个月。
 
-王毅在这时候时，王毅绝对是，你看王毅是掌握了绝对的美国行动的情报，你要看到这一点，他掌握到了美国情报，美国要行动，马上就跑去告诉阿富汗，快！快！快！他们要怎么炸你们了，你们赶快怎么弄。到越南，他要把你几个头给斩首，你赶快行动——杀人。然后就这个时候去了，哎呀！赶快啊！他们要发动农村包围城市的起义，要进入你的大城市，真的要把你的整个首都要改…叫什么？阿拉木图。
+当地时间1月8日，据RT电视台报道，出于对网络扩展可能干扰飞机安全系统的担心，美国联邦航空管理局(FAA)发布了一份美国机场名单，将在这些机场周围设置5G缓冲区。
 
-阿拉木图的这个东南侧，有一个镇子叫凡齐尔（音译），就这个镇子上就是军人最多的地方，说凡齐尔的军人、退伍军人开始来搞你们呐，凡齐尔出了很多那个潜水艇的大家伙，你们知道吗？那是很厉害的地方，那地方是产军人的地方，说要从凡齐尔到阿拉木图来，快把黄金给我，我把黄金拿走，这哥们别！别！黄金你就别拿了，是吧！
+美国最大的两家电信公司AT&T和Verizon在与政府官员谈判时，正努力推出其*“*改变游戏规则”的C波段5G网络，联网日期由最早的原定12月推迟到1月5日，之后再延后了两个星期。**现在，美国联邦航空局表示，电信运营商已同意将数十个机场周围的5G发射塔断网至少六个月。**
 
-就像我放一些、我放在那个小王子家的1000个币，我要拿走一会有人要就炸你，七哥你就别拿了，你就搁这一两天吧，是吧！不行！不行！你快拿着吧！就是在这较量吗，是吧！我就在这儿直播告诉你们，最后我愿意把黄金给他。最后俄罗斯就来了，俄罗斯来是什么问题？大家有没有想过，这个是太大啦！
+洛杉矶、拉斯维加斯、纽约、迈阿密和达拉斯等主要城市的机场被划定在所谓缓冲区，而像佐治亚州的亚特兰大机场和科罗拉多州的丹佛机场因为已设有自然缓冲区，其他没有计划在机场附近部署5G网络的则未设定缓冲区。
 
-如果到了普京面对乌克兰的时候，这个时候他要是失去了这个地方，哈儿巴扎耶夫这个团队——哈萨克斯坦，俄罗斯又一次比苏联解体还惨；对中共绝对不是一带一路的问题，对中共真的就会把这个革命，就会传到中国去，传到哪去知道吗？——新疆，一定会传到新疆，一定会传到西藏。
+**监管机构担心的是C波段5G可能扰乱飞机仪器**，**比如提供飞机离地高度信息的无线电高度计，**这是一种在低能见度情况下着陆很重要的安全系统。
 
-编辑整理：海贼王M.D.LUFFY；
+航空业领袖警告说，5G计划未来可能会对航班造成数千次干扰。美国航空的一家游说公司此前曾预测说，5G的推出可能造成数百万人的航班会被延误或取消。
 
-G-News发布：海贼王M.D.LUFFY；
+美国联邦航空局表示，他们根据*“*交通量、低能见度天数和地理位置*”*编制了（5G缓冲区）机场名单。该机构还在为航空公司和制造商制定适航指令（强制性），以*“*提供消减不安全情况的替代方法*”，*并确保飞机配备*“*在高强度5G环境中证实为可靠和准确*”*的高度计*。*
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+新闻链接: [FAA identifies dozens of airports affected by 5G rollout — RT World News](https://www.rt.com/news/545476-airports-buffers-faa-5g/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布： Frank2021
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

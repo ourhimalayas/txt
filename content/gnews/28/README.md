@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 昔日纳粹 今日共产党
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841771/)
+## 视频| 郭先生第一次说：一切都是刚刚开始
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841772/)
 
 制作：香草山视频部
 
