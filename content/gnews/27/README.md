@@ -2,28 +2,28 @@
 ---
 
 
-## 英国医生公开反对卫生部长的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843693/)
+## 新中国联邦传递真相和情报
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843789/)
 
-作者：银河勇气星—骄子
+作者：纽约香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月8日，英国媒体播放的一则视频显示，英国卫生部长萨吉德·贾维德近日访问伦敦南部的国王大学医院，询问重症监护病房的医护，对于国家卫生系统工作人员强制接种中共病毒疫苗的意见。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-10-上午9.55.08.png)
-据悉，英国已经通过的有关法律，自2022年4月1日起，除非获得豁免，所有NHS工作人员都必须接种中共病毒疫苗，否则会被开除。
+1月7日，郭文贵先生在大直播中指出，新中国联邦传递的真相和情报，远超各国情报系统和主流媒体，这都离不开中共国内英雄战友的默默付出。
 
-一位自疫情爆发以来，就在治疗中共病毒的麻醉医生斯蒂夫·詹姆斯表达了强烈不满。他强调，自己感染过中共病毒，已经产生了抗体，并在工作中得知，接种疫苗根本无法产生抗体，也无法阻止病毒的传播。他的一些同事也和他持有同样的观点。他还强烈质疑了未接种疫苗的医生被开除的合理性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-5.jpeg)
 
-虽然，卫生部长并未明确表态放弃疫苗，但是同意将请专家对疫苗的需求情况进行评估。
+世界各国在情报上花费千亿万亿，但在过去五年里，都远不及爆料革命给予世界的预警和真相。各国主流媒体被中共收买，不但公然撒谎，而且，无数次抹黑和诋毁爆料革命。
+
+郭先生说，无论是对哈萨克斯坦局势的分析，还是中共二十大的人士安排，爆料革命之所以每次都能正确地公布事态发展，不是猜测，是情报。这正是因为中共国内有无数英雄战友传递信息。这些战友冒着生命危险，为新中国联邦默默奉献，可能永远都是无名英雄，但是新中国联邦人会永远感激和牢记这些战友的付出。
 
 参考链接：
-1）[https://gettr.com/post/pn6sdl732e](https://gettr.com/post/pn6sdl732e)
-2）[COVID-19: Sajid Javid directly challenged on mandatory coronavirus jabs by unvaccinated NHS doctor](https://news.sky.com/story/covid-19-sajid-javid-directly-challenged-on-mandatory-coronavirus-jabs-by-unvaccinated-nhs-doctor-12511224)
+1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
+2）[https://gettr.com/post/pn6i9y76e5](https://gettr.com/post/pn6i9y76e5)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

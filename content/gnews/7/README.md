@@ -2,86 +2,70 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1843920/)
+## 研究发现戴口罩的人更刻薄，自私，不道德和暴力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844059/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+编译: Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6-3.jpg)图片来源：thegatewaypundit.com
 
-接：[【Michael.Tonny专栏】中共病毒疫苗对人体免疫系统破坏的定性分析（上）](https://gnews.org/zh-hans/1843885/)
+在公共场合戴口罩会改变人们的行为方式，对社会造成的后果可能是毁灭性的。
 
-如果把它们转化成图形可能更为直观。
+白宫公布了再次开放美国的计划， 这是一个合理的 3 阶段计划，以 14 天为增量放宽冠状病毒限制。当一个州根据 CDC 监测数据达到某些指标时，它就会进入下一阶段。
 
-下图为18~29岁人群接种疫苗的有效性变化情况
+第一和第二阶段允许增加活动，但在工作等封闭的公共场所时，**需要戴口罩。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-18-29-Covid-19-Vaccine-effectiveness.jpg)
+人们戴口罩时的表现如何？ 这是一个重要的问题。
 
-随着时间推移，疫苗的有效性直线下降，甚至很快变成负数，即注射疫苗不是减少感染，而是增加感染。
+幸运的是，心理学家和社会学家已经研究了戴口罩的行为影响， 调查结果应引起所有人的警觉，尤其是雇主，还有警察。
 
-下图为30~39岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-30-39-Covid-19-Vaccine-effectiveness.jpg)
-下图为40~49岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-40-49-Covid-19-Vaccine-effectiveness.jpg)
-下图为50~59岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-50-59-Covid-19-Vaccine-effectiveness.jpg)
-下图为60~69岁人群接种疫苗的有效性变化情况
+戴面具的人更刻薄、更自私、更不道德、更暴力。我不是在谈戴口罩是为了干坏事，**我说的是，体面的人戴上口罩就会改变。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-60-69-Covid-19-Vaccine-effectiveness.jpg)
+戴口罩的儿童违反规定的可能性，几乎是不戴口罩的儿童的两倍。在一项研究中，孩子们被告知他们每人可以拿两块糖果，一半的孩子戴着口罩作为万圣节服装的一部分；另一半则不戴口罩。62% 的戴口罩的儿童拿了两块以上，没戴口罩的只有 37% 的儿童作弊。
 
-下图为70~79岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-70-79-Covid-19-Vaccine-effectiveness.jpg)
-下图为80+岁人群接种疫苗的有效性变化情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-80-Covid-19-Vaccine-effectiveness.jpg)
-对于40岁以上人群，从有统计记录起，注射疫苗就表现出明显的副作用，年龄越大，副作用表现得越明显。
+在 1976 年的一项研究中，研究人员招募大学生，给他们钱让他们表演特技。有一组还要求在表演时佩戴面具。获得面具的学生要价 29 美元，而无面具的学生要价 48 美元。
 
-事实上，医药公司和政客们谈论COVID-19病毒疫苗对预防COVID-19病毒感染的有效性完全是偷换概念。
+在一项测试戴太阳镜的人的亲社会行为的研究中，研究人员发现，太阳镜让人更自私。当被问及他们愿意与陌生人分享 6 美元中的多少时，戴透明眼镜的人的出价几乎是戴太阳镜的人的两倍。
 
-疫苗失效或效率下降，只会导致0%的疫苗效力，如果疫苗只是无法发挥作用，那么它们的功效将接近未打疫苗的免疫系统的功效。无论如何也不会普遍出现完全接种疫苗的人反而比从未接种疫苗的人更容易感染。
+正如《新共和国》在 2014 年的一篇文章中指出的那样：
 
-但数据统计结果却显示，所有年龄段的人都在打了COVID-19病毒疫苗后，感染COVID-19病毒的机率明显增加。
+太阳镜的隐匿性不如面具，但有更多的证据表明面具对道德行为的不利影响。纵观历史，为了维护公共秩序，政府对口罩／面具进行了监管。在 12 世纪，教皇英诺森三世禁止戴面具，作为打击神职人员不道德行为的一部分。1845 年，在哈德逊河谷的农民，他们装扮成美洲原住民袭击并杀害了他们的地主之后，纽约州将三人或三人以上在公共场合戴面具定为非法。在世界各地，人们在仪式和典礼上戴上面具，要求他们放松——从墨西哥亚基·帕斯科拉（Yaqui Pascola）的暴力蒙面小丑，到欧洲各地狂欢节庆祝活动的狂欢者。
 
-因此，这些数字显示了COVID-19病毒疫苗对免疫系统破坏的惊人速度，而不仅仅是COVID-19病毒疫苗对预防中共病毒感染是否有效。
+从本质上讲，面具是一种诱导解除抑制的工具，使用物理面具来抵消心理的面具。
 
-所以目前的COVID-19病毒疫苗不能称之为疫苗，而应当是破坏人体自然免疫力的毒药！
+面具可能不会真正隐藏您的身份，但它有一些强大的效果：
 
-对接种COVID-19病毒疫苗的人来说，-100%的疫苗效力意味着疫苗完全破坏了您对Covid-19的免疫反应。意味着打了COVID-19病毒疫苗的人，与从未打过COVID-19病毒疫苗的人相比，对COVID-19病毒毫无防备。
+让你更难被识别；
 
-接种中共病毒疫苗后的感染不是简单的“突破性”感染，而是本身就中毒！
+隐藏你的情绪，并减少你的眼神接触；
 
-根据大量的科学研究结论，疫苗感染的每个细胞不断产生致病性刺突蛋白（pathogenic spike proteins），免疫系统会识别这一点并发送杀伤性T细胞来杀死这些细胞。COVID-19病毒疫苗打得越多，制造的刺突蛋白就越多，人体失去的细胞就越多，有限的免疫系统反应的大部分被引导到一场针对接种疫苗的细胞的自我内战（self inflicted civil war），直至彻底摧毁人体内每一个接种过疫苗的细胞。
+让你像一个不同的人那样感觉/思考 ；
 
-免疫系统被破坏，但免疫系统时刻需要对抗癌症（cancer）、细菌性败血症（bacterial sepsis）、真菌性败血症（fungal sepsis）、其他病毒和自身免疫性疾病等，又有多少来对Covid-19的免疫反应？
+帮助您避免内疚、羞耻和尴尬；
 
-英国公共卫生部门（[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)）每周发布的COVID-19疫苗监测报告（[COVID-19 vaccine surveillance report](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)）的统计结果表明，Vaxxed病例比unvaxxed病例数要糟糕很多倍！
+将你可能想隐藏的个性的部分表露出来；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/all-cause-deaths-except-for-Covid-19.jpg)
+在群体中，戴面具可能会失去个性，导致群体思维和极端行为。
 
-COVID-19病毒疫苗就是毒药，就是杀害人类的凶手！千万不要打COVID-19病毒疫苗！
+**那么，当每个人一直都戴着口罩时，社会将如何改变**？
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+期望值会下降：很少有人会停下来帮助陌生人，人们将更有可能口头攻击惹他们生气的人。声音会更容易提高。笑话会变得更残酷。信任会崩溃，因为其他人戴着面具时，人们会感激他们在隐藏某些东西。
 
-[Pfizer and BioNTech Conclude Phase 3 Study of COVID-19 Vaccine Candidate, Meeting All Primary Efficacy Endpoints](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-conclude-phase-3-study-covid-19-vaccine)
+对于一个试图恢复正常的国家来说，心理影响可能是毁灭性的。陌生人会比以往任何时候都显得陌生。考虑到夏天快到了，人们还会戴墨镜，完全遮住脸的匿名，**可能会导致极度的颓废和堕落**。
 
-[Official UK Government data suggests Fully Vaccinated Brits will develop Acquired Immunodeficiency Syndrome by the end of February 2022](https://dailyexpose.uk/2022/01/09/uk-gov-data-suggests-fully-vaccinated-developing-ade/)
+人们在蒙面社会中的行为会有所不同，这几乎是常识。问题是，**不戴口罩后要多久才能恢复正常？**
 
-[Pfizer and BioNTech Confirm High Efficacy and No Serious Safety Concerns Through Up to Six Months Following Second Dose in Updated Topline Analysis of Landmark COVID-19 Vaccine Study](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-confirm-high-efficacy-and-no-serious)
+**评论: **病毒和疫苗将给人类健康带来难以想象的灾难，不仅是肉体上，更是心理和精神的摧残。这样的邪恶阴谋，上天都看不下去了！
 
-[Public Heath England](https://www.gov.uk/government/publications/covid-19-vaccine-surveillance-report)
+**参考资料：**[thegatewaypundit][Study Finds People Wearing Masks are Meaner, More Selfish, Less Moral, and More Violent](https://www.thegatewaypundit.com/2022/01/study-finds-people-wearing-masks-meaner-selfish-less-moral-violent/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-[COVID-19 vaccine weekly surveillance reports (weeks 39 to 1, 2021 to 2022)](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
+* * *
 
-[UK Government reports suggest the Fully Vaccinated are rapidly developing Acquired Immunodeficiency Syndrome, and the Immune System decline has now begun in Children](https://dailyexpose.uk/2021/10/30/gov-reports-show-fully-vaccinated-and-children-developing-ade/)
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-[News Feature: Avoiding pitfalls in the pursuit of a COVID-19 vaccine](https://www.pnas.org/content/117/15/8218)
-
-[Study: COVID-19 Vaccine Can Destroy Your Immune System](https://principia-scientific.com/study-covid-19-vaccine-can-destroy-your-immune-system/)
-
-[Reports of shingles outbreaks not directly linked to COVID-19 vaccine](https://www.nbc12.com/2021/10/15/reports-shingles-outbreaks-not-directly-linked-covid-19-vaccine/)
-
-[Fauci: Amount of Virus in COVID-19 Breakthrough Delta Cases ‘Almost Identical’ to Unvaccinated](https://www.theepochtimes.com/fauci-amount-of-covid-19-in-breakthrough-delta-cases-almost-identical-to-unvaccinated_3929532.html)
-
-[Comparing age adjusted all-cause mortality rates in England between vaccinated and unvaccinated](https://www.normanfenton.com/post/comparing-age-adjusted-all-cause-mortality-rates-in-england-between-vaccinated-and-unvaccinated)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
 
  
 

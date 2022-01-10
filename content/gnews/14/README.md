@@ -2,36 +2,51 @@
 ---
 
 
-## 中共对外扩张的五步计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843851/)
+## 塞浦路斯发现最新中共病毒变异株
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843930/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
+**作者**：纽约磐石农场-在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
 
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
 
-参考链接：
-1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
-2）[1/07/2022 文贵直播： 中共的5步计划 拿下香港、阿富汗、南海、台湾和哈萨克斯坦](https://gnews.org/zh-hans/1836777/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3b64f6e0150caf88f70fd31c2ec36822.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+台媒1月9日报道，塞浦路斯科学家柯斯崔斯基及其团队，发现该国社区存在一种中共病毒最新变异株，该病毒具有德尔塔遗传背景，以及部分奥密克戎的突变，被命名为德尔塔克戎，目前在该国已有25例。
+
+柯斯崔斯基告诉媒体，他们团队发现了大量以前仅在奥密克戎病例中发现的突变，这与其他变异株不同，它有30个突变。他补充说，在该国搜集的25个样本中发现了这种变异株。其中11个来自因中共病毒住院的人，其余来自一般人群。住院患者的突变频率更高，这可能意味着德尔塔克戎与住院治疗之间存有关联。
+
+他表示，已经将这25个塞浦路斯样本序列交给了“全球共享流感数据倡议组织”数据库，这将使它们可共全球科学界人士使用。
+
+新闻来源：
+
+[https://cn.rti.org.tw/news/view/id/2121676](https://cn.rti.org.tw/news/view/id/2121676)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-2.png)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

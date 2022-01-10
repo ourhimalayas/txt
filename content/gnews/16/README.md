@@ -2,36 +2,33 @@
 ---
 
 
-## “子有所教 老有所养” 是新中国联邦的基本愿景
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843832/)
+## 接种三针疫苗的瑞士运动员被诊断出心肌炎
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843894/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月9日的大直播中，郭文贵先生讲述了灭共以后，中国社会一定要恢复 “少有所依，老有所养“的社会。
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-704.png)图片来源**：**thegatewaypundit.com
 
-郭先生说，中共国的养老金问题是一个伪命题。传宗接代，是人类的基本权利。即使在春秋战国时期，税赋很重，最首要解决的，也是“少有所依，老有所养”，这是中华民族几千年的文明传承。但在中共国，老年人既死不起，也活不起。养老金本就属于民众，却被共产党利用，成为统治的工具。
+这位 31 岁的瑞士跑步健将法比安·施伦普夫（Fabienne Schlumpf），周四在她的 Instagram 账户上宣布她患上了心肌炎。目前，她不得参加任何运动和参加训练。
 
-郭先生明确表示，新中国联邦灭共后，第一，要恢复正常的家庭伦理、社会道德；第二，教育是最紧迫最重要的事，也是法治、信仰、良知的基石；第三，公民到50岁以后，由国家负责养老，衣食住行、治病送终，全免费。建立喜币喜联储，就是在未来，优先让孩子和老人受惠。老年人可以自己选择养老的方式，并且鼓励老年人工作和发挥余热。
+“坏消息！不幸的是现在心肌炎在困扰着我。这对我来说绝对不是一段轻松的日子，但我不会放弃。我希望很快回来，追逐我的梦想……和对手竞争。”
 
-社会形成敬老爱老的风气，让老人更有安全感，活得更有尊严。这是新中国联邦的基本愿景。
+“据 《COVID 世界》报道，这位 31 岁的女士在日常生活中感到‘疲劳’，在上个月的一次轻松耐力跑中，她的心率飙升后，她找到了一位医生，诊断她患有心肌炎，”。
 
-参考链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-706.png)图片来源**：**thegatewaypundit.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+翻译：大多数情况下，病毒感染会导致心肌炎，施伦普夫认为与 Corona 没有联系。 她已经接种了疫苗，并打了加强针，到目前为止还没有被感染。其实年初的时候，她就想去葡萄牙参加集训，但是没有结果。“没有人能告诉我需要休息多久，”她说。
 
-总编：文真
-编辑：文特
-校正/发稿：谐趣园
+**评论：这就是悲哀之处，现在发生的灾难，已经不是Covid病毒，而是mRNA试验药物在人体中反应后造成的更大的灾害**！而邪恶势力制造Covid病毒的目的，就是用恐惧威吓，用政策胁迫人们去当试验老鼠！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源 **：**[thegatewaypundit.com] [Triple Vaccinated Swiss Olympic Athlete Fabienne Schlumpf Diagnosed with Myocarditis – May Never be Able to Compete Again](https://www.thegatewaypundit.com/2022/01/triple-vaccinated-swiss-olympic-athlete-fabienne-schlumpf-diagnose-myocarditis-may-never-able-compete/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

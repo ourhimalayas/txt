@@ -2,36 +2,168 @@
 ---
 
 
-## 澳防长敦促演艺界和体育界明星为彭帅事件积极发声
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1843790/)
+## 俄罗斯会后聊七哥 中共5大银行以7为主题都是天意
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1843871/)
 
-#### 撰稿：日本东京方舟农场 北极
+[https://gtv.org/video/id=61dc125e87664c47acd2edd3](https://gtv.org/video/id=61dc125e87664c47acd2edd3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61E87B23-61C5-4602-A9E2-99C33BE6E3DB.jpeg)澳洲国防部长达顿（Peter Dutton）资料照。（图片来自大纪元）
+郭文贵
+Miles Guo
 
-1月10日，澳洲国防部长达顿（Peter Dutton）敦促演艺明星和体坛知名运动员利用他们的人气为彭帅事件积极发声，让全世界关注彭帅的处境。
+如果你们真知道爆料革命的十亿分之一的力量
+If you really know one-billionth of the power of the whistleblower movement
 
-彭帅曾是世界排名第14位的单打选手，也是温布尔顿网球锦标赛女子双打冠军成员。自去年她在社交媒体上公布自己遭中共国前副总理张高丽性侵后，其处境至今一直受到国际社会关注。
+你觉得你曾经过去几年来说的话、做的事儿
+for everything you have said and done in the past few year
 
-澳洲国防部长达顿表示，澳洲网球公开赛将于1月17日开赛，他呼吁澳洲的演艺和体育明星借此机会积极为彭帅事件发声，利用人气效应唤起各界对彭帅处境的关注。
+你都觉得是个傻子
+you would feel you are a fool
 
-达顿在接受《悉尼晨锋报》采访时说：“我不明白，在2021年，在MeToo时代，一个国际网球女明星公布自己被强奸和性侵后，却实际上正处于被软禁状态，甚至连她的社交媒体账户也被封了。我们怎么可以容忍这样的事情发生？我们不能这么做。最好的方法是公开讨论这些事情，否则这种情况不会改变。”
+我今年2022年, 我在大直播中第一句话
+My first sentence in the big live broadcast this year 2022
 
-MeToo是美国一些女明星在2017年10月针对制作人哈维·韦恩斯坦（Harvey Weinstein）性侵多名女星的丑闻所发起的一项揭露真相运动。该运动鼓励遭受性侵犯的女性站出来说出受害经历，借此唤起社会的关注。
+我深思熟虑地告诉大家
+I will tell everyone thoughtfully
 
-虽然许多名人对彭帅事件默不作声，但也有一些体坛明星冒着在中共国的商业利益受损的风险对此发出了自己的声音。例如，排名世界第一的塞尔维亚选手德约科维奇就公开表示对彭帅的遭遇表示震惊；日本网球女星大板直美也在推特上发文追问彭帅的下落，并对彭帅的安危表示担忧。
+如果你们真地觉得你们在爆料革命当中，你都懂了
+if you really think that you understand all in the midst of the whistleblower movement
 
-“人权观察”（HRW）中国部研究员王亚秋在对大板直美的敢言表达赞扬的同时指出，中共多年来一直利用自身的市场准入机会来压制国际上的批评声音。如好莱坞就迫于利益保持了 “集体沉默”，不敢对中共的人权问题发声。然而中国的女权活动家和性虐待受害者正面临着中共政府的审查、骚扰、监视，甚至因言获罪。因此，国际社会关注并支持中国女性的权利十分重要。
+我可以告诉你，你连懂十亿分之一你都是个傻子
+I can tell you that you would be a fool even you think you understand one billionth of it
 
-*参考链接：[澳防长批评明星对彭帅事件默不作声](https://www.epochtimes.com/gb/22/1/10/n13493636.htm)*
+明年你再看去年发生的事
+You can look back next year to see what had happened last year
+
+你觉得你就是个（傻子）, 真的觉得自己不好意思
+You will feel that you are a fool, and it’s really embarrassed
+
+我给你举个最简单的例子
+Let me give you a simple example
+
+盖特，我要在三个月以前跟你说盖特发生这样的事，
+Gettr, if I told you three months ago that something like this happened to Gettr
+
+你一定觉得我放狗屁
+you would definitely think I’m bullshiting
+
+我告诉你某银行行长跟我说句话
+I’ll tell you that the director of an individual bank had a word with me
+
+七哥，你信不信
+(The bank director said), Brother Seven (Miles Guo), do you believe that?
+
+我们就刚刚在俄罗斯回来
+We just came back from Russia
+
+我在俄罗斯的会上
+I was in the meeting in Russia
+
+所有人都严肃认真地开会
+where everyone took the meeting seriously
+
+歌颂习太阳
+and they were praising Xi Jinping
+
+习太阳和普京总统的个人关系改变了世界
+and saying that the personal relationship of Xi and Putin has changed the world
+
+大家都是鼓完掌以后，一下来，他说，走到这个走廊里
+Everyone came down after applauding and walking into this corridor
+
+你知道你们没去过红场
+You know you haven’t been to Red Square
+
+红宫的外交的这个神秘走廊，是绝对安全的啊
+This mysterious corridor of diplomacy in the Red Palace is absolutely safe
+
+他说，你知道那个厢廊里边，所有人谈的是什么？
+He said, you know what everyone is talking about in that corridor?
+
+郭文贵、爆料革命、新中国联邦、喜联储，喜币
+It’s about Guo Wengui, whistleblower movement, New Federal State of China, Himalaya Federal Reserve, and HCoin
+
+还有这个家伙会唱歌
+There was a guy who can sing
+
+竟然这个俄罗斯人竟然当场点出来歌来放
+This Russian guy actually picked out a song (Miles Guo’s song) on the spot to play
+
+所有人都吓得，把中方人都吓懵了
+Everyone was scared, and frightened those Chinese officials
+
+这个时候，他说，出现了一个滑稽般的笑话
+At that time, there was a ridiculous joke
+
+他说普京突然转过来了
+He said that Putin suddenly turned around
+
+哎哎哎，你们能不能别在这儿放这个歌？
+hey hey, can you guys stop playing this song here?
+
+别在这放这个歌，然后哈哈大笑，他走了
+Don’t play this song here, then laugh out loud and left
+
+我说这个你们觉得，我要我在三年前说
+I’m telling this, but if I told you these three years ago
+
+你们觉得唐平、郭文贵就是个骗子，是吧？
+you would have thought that Tang Ping and Guo Wengui are liars, right?
+
+那就是神经病
+That would be crazy
+
+但是你看，在这种世界的最关键的场合里边
+But you see, in the most critical occasions of this world
+
+有人在谈论而且把它当成不是笑话，当成一个大家可期待的
+there are people talking about it and not treating it as a joke, instead, as something that everyone can look forward to
+
+然后你看到几个银行, 我要说这几个
+And then you see a few banks which I’m going to say
+
+五大银行会以这个以“7”为主题
+The five major banks will take the “7” as the theme
+
+你会说我胡说八道
+You would say I’m nonsense
+
+什么时候定的？
+When was this set?
+
+我告诉大家10月1号定的方案
+I’ll tell you that it was the plan set on October 1st
+
+我向全中国人说
+I’ll say it to all the Chinese people
+
+你问问所有人是不是10月1号定的方案
+You can go ask everyone if it is the plan made on October 1st
+
+而且10月1号跟咱音乐啥关系? 大家去想想去吧
+And what does October 1st relate with our music? Go think about it.
+
+这叫天意。
+This is called providence
 
 * * *
 
-*素材采编：北极*
+Date: 01/06/2022
+原视频标题: 俄罗斯会后聊七哥 中共5大银行以7为主题都是天意
+Both of the CCP’s five major banks using the theme of 7 and Mile Guo (Brother 7) become a topic after a meeting in Russia are providence
+原视频日期：2022/01/05
+原视频链接: [**https://gettr.com/post/pmm2222b0c**](https://gettr.com/post/pmm2222b0c)
+任务编号：KC404(3428)
+视频时间段 : 0:00-02:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：青衣青青*
-
-*发布：miumiu*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

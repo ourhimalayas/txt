@@ -2,69 +2,50 @@
 ---
 
 
-## 中国国内的股市、房地产动态
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1843659/)
+## 中共人寿董事长王滨被查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
 
-[https://gtv.org/video/id=61dc12e087664c47acd2edf6](https://gtv.org/video/id=61dc12e087664c47acd2edf6)
+作者：纽约香草山 侠肝义胆
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-已经在全世界印发的货币，和美国政府，还有欧元印发的总货币已经226万亿
-The whole world has been totally issued 226 trillion dollars, including the US government and the Euro
 
-事实上是大概260万亿，就是全球的一年GDP已经印刷出来了
-In fact, it is about 260 trillion dollars, which means that the global annual GDP has already been printed
 
-你再看股市的时候它就不值钱了，全球的GDP才多少钱，是不是，才100多万亿
-When you look at the stock market again, it is worthless, how mach is the global GDP, right? It’s only about 100 trillion dollars
 
-全球的总股市市值才多少钱呢，所以说股市在印发货币面前基本什么概念呢
-How much is the total market value of the global stock market, so what happened to the stock market with the printing of the currency?
 
-就是爱米粒兜里边有10块钱
-It’s like there is 10 dollars in the Emily’s pocket
+据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
 
-突然间她可以花就是说不是多花20块钱
-Suddenly she can spend not just more than 20 dollars
+![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
 
-因为由于超印发的货币和流通性，她可能多花十倍
-Because of the over-issued currency and liquidity, she may spend ten times more
+这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
 
-你在看这个股市的时候，已经说实在话那就太小了
-When you look at this stock market, to be honest with you it’s too small
+有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
 
-真的就像一个大河当中一个小方舟一样，所以全世界的股市都是虚涨的
-It’s really like a small ark in a big river, so stock markets all over the world are inflated
+新闻来源：
 
-然后再看中国房地产的时候知道，中国房地产官方承认60万亿
-Then when you look at China’s real estate, the Chinese Officials admit that Chinese real estate is about 60 trillion dollars
+[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
 
-事实上将近100万元美元的房地产，炸掉一个海南的一个岛是什么呢
-In fact, it’s nearly 100 trillion US dollars of real estate, what is bombed an island in Hainan?
+编辑：Kathy文艺 校对/发稿：小小安
 
-几乎连零头都不是，它为什么要炸岛呢，它完全是政治
-It’s not even a fraction, why does it bomb the island? it’s all about politics
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
 
-* * *
+**更多资讯，更多关注**
 
-Date: 01/09/2022
-原视频标题: 中国国内的股市、房地产动态
-China’s domestic stock market and real estate dynamics
-原视频日期：2022/01/05
-原视频链接 [**https://gettr.com/post/pn0qjk2b52**](https://gettr.com/post/pn0qjk2b52)
-任务编号：KC405(3440)
-视频时间段 : 0:00-1:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
 
  
 
