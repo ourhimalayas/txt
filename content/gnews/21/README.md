@@ -2,112 +2,230 @@
 ---
 
 
-## 共产党将香港和大陆的房地产，香港的股票市场的数据已经造假到35%，共产党真的完了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1843582/)
+## 串珠524:强制疫苗一定会停止，快两月慢不过5个月
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1843621/)
 
-[https://gtv.org/video/id=61dc11e987664c47acd2edb0](https://gtv.org/video/id=61dc11e987664c47acd2edb0)
+简述：欧洲美国加拿大这些国家，包括日本可能稍晚一点儿会说，强制打疫苗基本会结束，然后我觉得在两到三个月内打疫苗的真相（浮出水面），（强制疫苗）基本被制止，基本上会被制止。——郭文贵2021年9月26日
 
-**郭文贵
-Miles Guo**
+抵抗强制疫苗战，绝对赢了，兄弟，咱已经赢了。最起码现在美国49%到50%的人，他是没打疫苗的。 还有一个，打过疫苗的人现在也将近70%是不想打第3针的。只有百分之十几要打第3针，那就打去吧，你就使劲儿打吧！——郭文贵2021年12月19日
 
-七哥就有背后的高人，我才一次次敢自信说你们不了解爆料革命的力量
-Because Miles has masters behind me, and I dare to say again and again with confidence that you do not understand the power of the whistleblower movement
+这一次疫情比2020年的还要严重。所有的强制疫苗都会在两个月以内基本结束，不会超过明年五月份。疫苗灾难和全球经济危机会在明年五月份后开始，靠我们自己的力量是无法停止疫苗的，我们起到杠杆儿作用，告诉大家，当初支持疫苗儿和打疫苗的，到现在已经完全逆转。这次病毒和疫苗灾难，最邪恶的就是共产党和全世界的媒体。——郭文贵2021年12月22日
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5C6A3B2F-2CE2-4B65-9DB7-34D285707CCD.jpeg)
+封面：快，两个月，但是不会超过五个月的。不会超过5个月的，很简单，100多天，对你生命来讲是活着还是说灾难，100多天太短暂了。一定要度过这100多天。你相信你没有任何问题。郭文贵2021年12月25日
 
-昨天是把我也给惊住了啊，我几天心情说实在话
-Yesterday, I was shocked too, be honest with you that I was in a real melancholy for a few days
+**2021年8月21日  **第二个我要告诉大家，疫苗一定会停的，而且不会太长时间。疫苗这个事情给人强制打和打完有一个最大的问题，它打完以后的生理反应不是咱说了算，它也不是那些媒体说了算。
 
-你们不知道我把我过去一年来没流的水全都流出来了
-You don’t know that I cried a lot, I cried more than all the tears in the past year
+它越疯这就是它过去的成功在于它能控制百分之八、九十，百分之百的媒体。相反的死也会死在这里。就是你控制这些媒体，助长了更多的打疫苗，激起了更多人的愤慨。
 
-我大概从1991年之后，我从来没见过我八弟弟照片
-I have never seen a photo of my eighth younger brother since 1991
+当这件事情爆发的时候，它是作用力与反作用力的关系，推动力与反推动力的关系，大气层和推动力的关系，一定是逆反。
 
-这个照片当中当时就是我八九岁的时候啊，七哥还是处男之前啊
-In this photo, I was about eight or nine years old and I was still a virgin
+这个时候战友们，真的是减减肥、健健身在家活着。不打疫苗是你人生最大的赢家，别投G系列别想着……我就给你的一个建议～活着！
 
-这是唯一的照片，还有另外一张是我和我一个发小照的照片
-This is the only photo, and there is another photo of me with a my childhood friend
+别穿那么好看了你们几个。你看我们的Rachel一天换那么多衣裳、换好多眼镜、打着蓝眼影。小福利、小Seven从来不变颜色，你学学人家神奇女侠多朴实啊，横杠儿是吧，全是横杠体桖是吧。政清老换西装，你看看现在一弄就Fashion了。小王子、我们罗伊，你看大牛穿着多么台湾绅士啊，小马甲是吧，还英式马甲。
 
-当时我还踩着那个东北的划着脚划子，当年的东北我记得十一月十二月的时候
-At that time, I was still stepping on the foot sliders（on ice） in the Northeast of China, I remember it was around November or December that year
+你别想这事了，穿个背心裤衩子活着！别打疫苗你就是赢家。 为什么？刚才我告诉你，它这种生理反应不要等三年，你们别以为就三年，大胡子医生说三年死三分之一。
 
-零下三十五到四十度的时候，我站在那穿照片，我穿着穿着那个夹克衣衫啊
-At minus thirty-five to forty degrees celsius, I was standing there wearing that jacket
+不用等三年，到今年年底、明年年初，你记住我的话：全人类在面临疫苗的所有的问题，第一个，死人的问题。必须有人说话，他老死人你怎么办呢？最铁的证据就是死人。医院不够用，火葬场也不够用。
 
-就是擤大鼻涕那种的，呃，锃亮的那种的，我也几十年四十来年没看过我那时候的照片了
-It’s the kind of running nose and wiped with my two sleeves, I haven’t seen my photos since then for forty some years
+所以王岐山家我觉得就唯一到外国他没投火葬场，没找到证据呀，人家投火葬场、骨灰盒生意也是对的，墓地这是最好的生意。
 
-呃，这两张照片对我感触太深了，就控制不住的流水啊，眼泪啊
-Uh, these two photos touched me too deeply, and I couldn’t control the running of tears
+另外一个兄弟姐妹们，当疫苗今年年底大量的死人，不可抗拒的负面现象出来的时候，有两件事发生了——追责，追责呀！老百姓追责、追疫苗，最后一定是被追责者推给共产党，一定推给背后的黑暗势力。
 
-哎呀，我是这几天就想人生啊，真是四十几年前
-Oops, I’ve been thinking about life these few days, it was more than forty years ago
+这个反作用，真的欧洲、美国绝大多数者都是牺牲品，最后他发现共产党最后也是牺牲品，它是执行者，但是他是最大的魔，但是原创不是他，都得找共产党算账。
 
-当时我的八弟还有我还有我当时的样子和当时的赵家沟啊
-At that time, my eighth younger brother, me, and my appearance in Zhaojiagou at that time
+你会发现那些最后的运作者、战略制定这次病毒和疫苗的制定者、利益共同体一定会被消失，共产党一定会被消失。
 
-我在同时和这世界上数字货币的大佬创始人通话
-at the same time I was on the phone with the founder of the world’s biggest digital currency
+**2021年9月26日**
 
-然后讨论灭掉共产党，拯救现在人类
-Then we discussed to take down the Chinese Communist Party and saving the current human beings
+新中国联邦的力量让全世界的毒疫苗杀人事件减缓下来
 
-你说这人格得多分裂，你还能受得了啊，是吧
-You see how split the personality is, can you understand?
+（郭文贵先生当日直播片段：）欧洲美国加拿大这些国家，包括日本可能稍晚一点儿会说，强制打疫苗基本会结束，然后我觉得在两到三个月内打疫苗的真相（浮出水面），（强制疫苗）基本被制止，基本上会被制止。
 
-满大鼻涕大郭七儿，当年八九岁踩着脚划子，照了两张相
-Miles with full of snot, I was eight or nine years old and was stepping on my foot sliders（on ice）, and took two pictures
+**2021年12月17日**
+![](https://lh3.googleusercontent.com/uc70Uhf3pi1YTF2nP9noqxjaNX6oP5QPUNf7zwUZ4TEoTQZ_z4hBUD51AENErqQJp1GgTGywM3PpjMtEVfEhpwL8lE-F43LDOk71nTXG6GiECtwdy6al5BK21BfyTlZqM0_Uiihm)
+那么疫苗政策的疯狂在这个里面举出几个国家的目前的推行的疫苗的疯狂的政策，第一个就是德国开始给这个5~11岁的儿童提供COVID-19的疫苗，那么与此同时也是来自欧洲的奥地利将对未接种疫苗的公民进行罚款，每年最高罚款12,000英镑。
 
-然后旁边的弟弟已经没了啊，这位大师给我说，他为啥我要跟你点赞
-Then the younger brother next to me was gone, and this master told me, why should I give you the thumbs up?
+那么另外在北美的加拿大的阿尔伯塔省，一线工人因没有接种疫苗而被赶出医院。好下一页。
+![](https://lh6.googleusercontent.com/VGTOUAJlT2IYsWTFSixUUR9J7KywSpD4N5XvDak4QsypFcy4jRfWuzVPKQymNILJVE1Jge65Jt4Mf0EqPCci99u2PvFHBOVgiBzmfWBNFqiPijNzV6vbvr_y9bQji8bQzBSCJcQu)
+继续是来自疫苗政策的疯狂的推行，主要是来自美国这边，那么12月15日美国第五巡回上诉法院判决，逆转之前，路易斯安纳州联邦法院针对全美医护强制疫苗接种的禁止令，在26个州继续执行针对医护人员的疫苗强制令。
 
-他说可以告诉你，香港的和大陆的房地产还有香港的股票市场
-He said that I can tell you that the real estate in Hong Kong and the mainland China and the stock market in Hong Kong
+与此同时纽约市多人因没有疫苗接种证明进入餐馆点餐而被捕，纽约市很快会将餐馆等公共场所的疫苗证明要求扩大至5岁以上的儿童，甚至包括5岁儿童。
 
-他说我他们所有的数据我都知道，它从过去的百分之七到百分之十一的造假
-He said I knew all their data, they have falsified from 7% to 11% in the past
+与此同时呢，英国的议会通过一系列的法案，要求成年人必须使用疫苗接种证明，来才可以进出大型的公共场所。好，下一页。
+![](https://lh5.googleusercontent.com/ZXpkwREUuXT3tufYlIUZWMYzpgk73jnlI13RVIdJpYp333AGppPM-7orPYWaFyYqSYh83oHYb2y0sAncjXU0OuxpKujNvoM4_X7MmR6blRTSP7jVAnTQQX6v9LlGHhfSV8kK2cD1)
+下一页依然是来自这个，疫苗的这个政策的疯狂，那么主要是来自新西兰，新西兰的首都威灵顿市，市中心的周四，也就是16号，有2000多人示威，反对政府的强制接种新冠疫苗和封城措施。
 
-现在已经达到三十五了，它说明他们真完了
-It’s reached 35% now, and that means they’re done
+示威者大部分没有戴口罩，游行至国会蜂窝大厦，这个蜂窝大厦外集会，那么示威者聚集在威灵顿市民广场，手持写有“自由战胜恐惧”、“新西兰人并非白老鼠”等字样的这个标语牌，还有人高举支持美国前总统川普的“让美国再次强大”的标语。
 
-他在最后，所有数字货币啊，包括比特币成零的时候
-In the end, all digital currencies, including Bitcoin when it becomes zero
+与此同时，新西兰政府强制多个行业，尤其包括老师、公共服务行业等员工强制接种疫苗，现时有90%人口完成接种疫苗。好，下一页。
+![](https://lh3.googleusercontent.com/6ZYxbWsrNQG5eLUtKhUj8BxqnhkqqaK9snM6L8sUiMILOHZoglMWWhgClgxVhrAI8_gUG6izeARMGrHrUnCig-as0iKyNAkCDQl4Z4jU2AWuHZDWxJy80KULWR7vs8ZJAgdMYQzP)
+那么那么接下来是给家长们分享一下关于反强制疫苗的动态。那么12月16日德国夏克，下萨克森州高等行政法院裁定只允许已接种中共疫苗，病毒的接种中共病毒疫苗和中共病毒感染、感染的康复者进入零售店是违法的。
 
-只有喜联储, 他说，成为世界上最牛的，包括你的Gettr Pay
-he said that only Himalaya Exchange will be the best in the world, including your Gettr Pay
+那么与此同时来自德国呃，来自12月16日德克萨斯州的州长通知国防部长五角大楼的疫苗强制任务不会强加于德克萨斯州的国民警卫队。
 
-他说不是这个数字货币牛，是你重新书写了数字货币的游戏规则
-He said it wasn’t this digital currency outstanding, it was you who rewrote the rules of the digital currency game
+与此同时，本周二5位共和党州的，5位共和党州长联名致信国防部长指出，对国民警卫队的疫苗强制任务惩罚措施超出了他的宪法和法定的权利。
 
-共产党的房地产将成就人类上第二次最大的金融形式的存在
-The real estate of the Chinese Communist Party will achieve of the second largest form of financial existence on mankind
+那么与此同时依然是来自美国这边。加州洛杉矶校董事会决定撤回要求学生在1月10日之前接入中共病毒疫苗的规定。好，非常感谢依然是撰稿和美工的这些战友，感谢战友们的观看，谢谢。
 
-他死之前给人类留下了最后一点贡献，把他的骨灰变成了人类文明的肥料
-Before it death, it will leave its last contribution to mankind, turning its ashes into the fertilizer of human civilization
+02:41:46七哥感谢制作ppt 的战友;据科学家说当前中共国内一周内中国死一定是超过几十万人，主要是污染严重的地方发病致死率很高，打了疫苗本身就是毒；其它各国强制疫苗情况严峻，越是这样最坏的时候可能就是快到转机了
 
-那就是成就了数字货币
-That is the achievement of digital currency
+郭文贵先生：我现在给大家再重申一下，特别是现在有个倾向认为现在Omicron甚至可能是解药，甚至更差致死率，在过去的48小时就上次直播到现在，就是我们的科学家和我联系的非常的频繁，现在出现了几个极端的问题，它对不同的种族和不同的地区完全不同的感觉，因为咱们的科学家是国内的数据掌握是非常新的，特别是国内大面积污染的地方，就是你的肺部被污染，下面那有很多堵塞的地方， Omicron致死率在过去48小时非常之严重，就是整个人就是呼吸急促，因为它在肺里边整个的这个病毒的重复率和繁殖率加速了这个整个肺部还有血管、毛细血管的堵塞，瞬间就死掉了。
+
+他认为在过去的这个一周内中国死一定是超过几十万人的，一定是这个数，而且一是十万起步的，但是没有公布。就对污染区严重的人是很夸张这是一个；第2个有病史的、肺病历史的、还有一个就血管病的、脑梗的、心梗的，有过这历史的绝对是这是非常危险的。因为它的繁殖率极高，你完了这是身体他就“啪”过去。
+
+这是最近几天全世界很多人说，所有的发现都是二针、三针被感染了，他认为一个最核心的元素是什么？由于你打了mRNA这个东西在身体一直有抗体，它本身就是毒，它本身就在你身体造成了堵塞，而这个堵塞这时候你得到Omicorn它加速了阻塞，而且使你身体极力的再加对抗，他生活不了了。一个是本身的心肌炎、心包炎，再一个加速堵塞“啪”就过去了。
+
+很危险啊！致死率、致命率跟过去比可能会低，但对某些人群可能是集结更加相反，大家要千万千万要记住是第一个我要重申的问题；第2个现在要看到这个就是疯狂的疫苗——这些国家包括美国第5巡回法庭停止了这个上次的这个联邦法庭，不允许在26个州继续强制打疫苗，它要推翻的这个情况下，包括这些一切的有好的，也还有国民警卫队得克萨斯州可以不打。
+
+大家要记住，包括德国的疯狂，要罚款；英国的疯狂，要罚款；然后要用强制打疫苗、对孩子打疫苗，在这个时候，当你看到最坏的消息的时候就是最好的消息，它很残忍但是你一点办法没有。就是从过去的两三天来在各国之间反抗力最强的是孩子的父母，不是成年人。大家保护孩子的本能远远超过保护自己。这是人类的本身决定的——本能，就是因为这强制这些孩子很多父母接受不了，这是一；
+
+第二个，更大的问题是失去工作没有办法了，没有饭碗了，这些人没饭吃他是本能，他真不是多正义，就受不了。第三个，大家要记住的就最近反疫苗已经逐渐的向七哥说的：人家反的是没经过研究和科学的不承担责任的疫苗，不是反所有的疫苗。大家越来越清晰！
+
+关键是疫苗第一针、第二针、第三针都是承诺帮助你反病毒，现在是加速了病毒，现在已经毫不怀疑、无容置疑的告诉大家打了一针、两针、三针的得病毒的机会更多。为什么？就刚才我说那个——它本身身体就有病毒，它本身就繁殖病毒，它本身会加剧你的病毒反应，这是灾难的结果。
+
+**2021年12月19日**
+![](https://lh6.googleusercontent.com/P-Qsj7l4jbKCXTaO43eChm4emTUsGTA-uWkh8Gdcj7x46-jzW8GE0ZBAbwCOvDqDW0NjDFYIceNyqpFqtk8fNelEZj01c6hu2PIVBlJaf6dmhSjQzrQJSPk72xL68t8BxPjPo66i)
+疯狂的疫苗政策。意大利和法国都强推5-11岁的疫苗，然后美国的疾病控制中心说：儿童打疫苗没问题，但短时间内已经有八例儿童的心脏病副作用报告。
+
+辉瑞现在在推六个月至五岁孩子的第三针加强针的实验，根据欧洲的药物管理局的数据显示，67个儿童已经死于中共病毒疫苗。辉瑞他们还表示将会大流行中共病毒将会持续三年到2024年。好，下一页，谢谢。
+![](https://lh4.googleusercontent.com/lNsRAEf5NmjnGiYNL21joLOESL7r414_37gWGd5k4mFnBLyPXD41bSQuHA51361ALU5YQrgAgpLaZWbxjOpPq0e-Me5Nwid1PJXrTiEN8ImRRyvhDRn_z7nqVkh3IYiVibmO7g16)
+拜登给最高法院施压，要给医疗人员强制接种疫苗。瑞士将在全民当中进行公投，他们新上任的联邦主席也会考虑强推疫苗。
+
+12月17号美国的最高法院也批准了拜登给大企业员工强制疫苗这个规定的生效，此后谷歌就宣布了它的新的政策：在1月18号和之后的30天，还有在这之后的六个月给他们不同的宽限期，如果最后没打疫苗就要解雇。谢谢，下一页。
+![](https://lh6.googleusercontent.com/DMBf3O4KblLfM_WnAiq0Ws2hqgBUaBFNPqQyMzBku1A9U99SMu5jgVpGMwHevJFqkUEc7lY4wyauKX8v7d69wHUGDwsRxzmRBBausdX4378sMEfBY-xPP7kLf7YtAKIuaXC4kXv6)
+拜登不断地在线电视的讲话中，向未打疫苗的人发出严厉的警告。那么纽约州的议会将在1月5号进行中共病毒集中营法案进行投票，这是一个州的法案。
+
+12月18号德国和澳大利亚的人在汉堡和墨尔本街头抗议强推疫苗。下一页，谢谢。
+
+**2021年12月22日**
+![](https://lh5.googleusercontent.com/Qbo89grAHn3GEW6A44wpYMIOIA6ACF0WRPCn3vkIzunwJ6XDdgzuoFPQziJVf1djzh767osvvD3rlbOgTzx1cJY856f-4SJkhypBcOYcRhkk5LYR50FQ3puXkC2K7Za4-Agbx4fU)
+这里讲到一些疯狂的疫苗政策，欧盟委员会12月20批准了新疫苗：Novavax。然后纽约市长更可怕，他说他要挨家挨户的去给人打疫苗，每打、每个家庭成员都会在打完疫苗后发100美金。然后拜登也昨天，介绍了他的新的Omicron计划，反正各种让你吧。
+![](https://lh4.googleusercontent.com/x2xfKZH7So6uTvYSdqyMzK7BhkCsMl3IhUbfJ894JY3-rO0RPrnjnC93NqxG_ucxUkPBrcSN5-Xv6-s4xTmO4srvx0Vss38QB9DF78HbbLGzBKC5cHCSum20KZiVpkwTj5HRIk3e)
+然后辉瑞的 CEO说：第三剂不足以应对新的变种，然后又说目前的接种剂量离期望的95%的有效率仍然有很大的距离。就是打了半天等于白打，继续打就是这个意思。下一页。
+![](https://lh6.googleusercontent.com/92AM4GtBbmDfEH70QYUcyCNBsENx-JZCxXHe9l_r42-19i9E9c__sKGRYX1Wl7VKtCyb2dCSIZfgLxQprOHqChhlzzub2g2Xkez5NdufXLGsvZmY9mnv32mtA1Nlt5iHVucCOYXB)
+然后强制疫苗的攻防信息，就是这个反对的声音啊：是20日美国的商业团体、宗教团体和27个州组成的抗议者，敦促最高法院，阻止拜登政府在全球范围，对大型企业进行COVID-19疫苗的强制令。
+
+那么之后是近50名共和党人支持海豹突击队，就疫苗授权提起诉讼，以支持两打以上的海豹突击队提起联邦诉讼。下一页。
+
+我看一下,再下一页，
+
+……
+
+这一次疫情比2020年的还要严重。所有的强制疫苗都会在两个月以内基本结束，不会超过明年五月份。疫苗灾难和全球经济危机会在明年五月份后开始，靠我们自己的力量是无法停止疫苗的，我们起到杠杆儿作用，告诉大家，当初支持疫苗儿和打疫苗的，到现在已经完全逆转。这次病毒和疫苗灾难，最邪恶的就是共产党和全世界的媒体。
+
+**2021年12月24日   **\* 00:00视频一：关于强制接种新冠疫苗，拜登政府都说谎了！
+
+福奇：中央联邦政府要求强制接种疫苗非常不可能。我的意思是，这不在联邦政府考虑范围内。
+
+拜登：不，我不认为应该强制接种疫苗，我不会要求进行强制接种
+
+白宫发言人：联邦政府没有要求大家提供疫苗接种证明疾控中心主任：我们完全没有指望强制接种疫苗。
+
+美国医务总监：联邦政府不会做出这些决定
+
+福奇：联邦政府不会要求强制接种疫苗
+
+白宫发言人：这不是联邦政府的职责
+
+美国教育部长：从联邦层面，我们没有要求强制戴口罩或者强制接种疫苗的权利。这不是联邦政府应该做的。
+
+福奇：没有人希望强制要求或者强迫别人去打疫苗。我们从未那样做过。
+
+美国医务总监：历史上联邦政府从未做过强制接种疫苗的决定。
+
+福奇：据我所知，从国家层面，从未做过这种决定。
+
+白宫发言人：联邦政府不会要求个人提供疫苗接种证明
+
+白宫新冠协调员：联邦政府不会要求个人提供疫苗接种证明
+
+福奇：我不认为在国家层面（会强制疫苗），无论何种情况，都不应该侵犯个人选择的自由
+
+疾控中心主任:各地企业和辖区会从地方层面进行疫苗强制接种，而不是联邦政府。
+
+问：全国会强制接种疫苗吗？
+
+白宫发言人：不会的，我不认为联邦政府应该、甚至有权利这样要求
+
+福奇：这没有秘密，我认为联邦政府不应该要求强制疫苗接种
+
+美国医务总监：但是我认为大家不会看到联邦政府强制要求大家接种疫苗
+
+白宫发言人：我不认为我们会要求私营公司强制接种疫苗。
+
+福奇：我不认为会强制接种疫苗、特别是针对普通大众。
+
+疾控中心主任：不会有全国性的疫苗强制.
+
+白宫发言人：联邦政府的利益非常简单，那就是美国人的隐私和权利应该得到保护
+
+福奇：我不认为会强制接种疫苗、特别是针对普通大众
+
+……
+
+神奇四侠：FDA美国药监局无意中证实了中共病毒疫苗含有HIV艾滋病毒。FDA和辉瑞通信中谈到新药帕克斯洛维德必须和治疗HIV艾滋病的药利托纳韦Ritonavir合用，无意中证实了多位科学家早已揭露的中共病毒和疫苗中的刺突蛋白被插入HIV艾滋病毒。
+
+最新研究表明，接种疫苗三个月后，辉瑞和Moderna对Omicron的疫苗有效性实际上是负面的。辉瑞客户被感染的可能性比未接种疫苗的人高76.5%，Moderna客户被感染的可能性高于39.3%，谢谢。
+![](https://lh4.googleusercontent.com/Im1FOkilSznqmgF_5w-EZ-DBanT3FToapkS8dwaizP4SjCIgBtDRdjNQ3garWuT5hWiMVgjw7DnzykqaBipEJbcjfiO0Aq4fAMMsn-hqKwqGExh1ubi83zO79XUc4nfcUJDtn0WR)
+FDA为了推出治疗中共病毒新药，透露辉瑞在疫苗试验阶段几个月内就记录了16万个不良反应案例。英国的数据表明，打了第三针疫苗，感染Omicron的概率是未接种的4倍，这就证明了许多科学家之前提出的疫苗有抗体依赖增强的副作用，使接种者更容易感染新毒株，感染后果可能会更为严重，谢谢。
+![](https://lh4.googleusercontent.com/mn9cMNpoGyTgb3atGX9iLAEs-SbUcTz_VS-25r7fCtm5FVIlvwU3ALVHKimXWlRDz_Mh42hLRrjfdZ5scNot3wfD1TWfw5AlKZy23mOpXG-FSuIsOJUZq_pFqJF3B_9DRWEkvL1l)
+Omicron恐慌之下的新一轮疫苗疯狂，继德国和以色列之后，英国也计划推出第四针中共病毒疫苗，试图阻止Omicron的激增。93.4%人口已完全接种疫苗的澳大利亚新南威尔士州政府正在考虑让未接种疫苗的病人支付与中共病毒有关的住院费用。
+
+12月23日5岁以上人口中77.2%至少已经接种两剂的厄瓜多尔宣布加入全民强制接种疫苗国家行列。目前全民强制接种中共病毒疫苗的国家有奥地利，从2022年2月起，所有14岁以上居民不接种的每3个月可被罚款3600欧元；德国计划从2月起强制所有成年人接种疫苗；印度尼西亚所有成年人强制接种，对未接种的人进行罚款或拒绝提供社会援助及政府服务；密克罗尼西亚、塔吉克斯坦、土库曼斯坦等，所有成年人要求强制接种，谢谢。
+
+……
+
+●17:43疫苗灾难一定会停止；我们没打疫苗的人已经是疫苗战的赢家
+
+郭文贵先生：刚才文斌，刚才问这话题，我可以告诉你，疫苗灾难一定会停止，100%会停止，越是它今天的疯狂。而且我告诉你，我们已经赢了，我们没打疫苗就是赢家。我不相信任何人会被摁在地上给强打疫苗，不可能的，是吧。而且越是那些坏消息看上去，你真的别操那么多心。人类已经打了80万亿支了，咱不是神，真难把人类都能救得了。
+
+兄弟姐妹们，你吃着一荤一素的时候，担心华尔街的人怎么活，你担心人家干啥呀！疫苗战，绝对赢了，兄弟，咱已经赢了。最起码现在美国49%到50%的人，他是没打疫苗的。 还有一个，打过疫苗的人现在也将近70%是不想打第3针 的。只有百分之十几要打第3针，那就打去吧，你就使劲儿打吧！对吧。
+
+解直锟竟然打了三针，而且全进口的。这种压力再加上这种抢钱，再加上你说这个年龄了，再加上是不是啊，做过的事，再加上王岐山、周亮的谈心，再加上三针疫苗，谁能活下去？你活不下去！
+
+**2021年12月25日   **5:15:43 强制疫苗一定会停，让你打疫苗的人一定是犯罪分子，无论如何你都不能打疫苗，把疫苗真相传递给别人，坚持100天，这对生命来说很短暂
+
+郭文贵先生：我觉得关于这个整个强制疫苗的事情，还有美国和新西兰你很担心，包括在学校里面被强制疫苗，还有美国会……这个包括你对美国的看法，包括也像下一步怎么解决的问题，什么时候停，我觉得最重要的现在一定要相信新西兰，美国要停全世界一定会停的。而且一定不管任何情况下可以不上学也不能去打疫苗，绝对不能打疫苗，让你打疫苗的人一定是犯罪分子，而且你无论如何你都不能打疫苗，这是最最关键的。
+
+而且一定要有耐心，要相信新中国联邦一定会改变，一定！所有的孩子们，你不但不要打，要尽可能把那些科学家、医学家说的那些视频、证据，包括打疫苗的后严重后果的视频要发给他们。一定要you must be trust The New Federal State  can stop the Coronavirus disaster in the globally ,any reason don’t get vaccine that the totally is the murder.Don’t trust anybody talk to you that you know need vaccine, that is a killer(译：一定要相信新中国联邦一定会停止全球的新冠病毒灾难，任何情况不要打疫苗，那是完全的谋杀，不要相信任何对你说你需要打疫苗人，他是杀人犯)
+
+Twins:  understand ! 我们肯定不会打的。
+
+郭文贵先生: 千万不能打,千万任何原因不能打，而且一定会被停止的，这是犯罪，这是谋杀，这是Genocide种族大屠杀，千万不要。
+
+Twins:：还要多久我们Life可以回到Normal
+
+郭文贵先生:  快，两个月，但是不会超过五个月的。不会超过5个月的，很简单，100多天，对你生命来讲是活着还是说灾难，100多天太短暂了。一定要度过这100多天。你相信你没有任何问题。
+
+……
+
+就像刚才Twins问的居然有人竟然用强制打你身上疫苗，在你不情愿的情况来威胁你，让不让你上学。这个是人类上任何国家的宪法都是不合法的。就是任何往你身体里注入的东西都必须经过你本人同意，任何人、任何国家往你身体里注入任何东西都必须经过你本人同意，否则任何行为都是犯罪、犯法的。
+
+我不反对疫苗我再告诉你们，我打过20几针疫苗，我反的是完全这种假疫苗和强制的疫苗，而且现在很多疫苗都死人了。不是我说的大家可以看得出来，那么多科学家， 而且这个疫苗最根本的问题它是防共产党的病毒就coronavirus，你根本不知道病毒哪来的，你怎么可能有疫苗？
+
+人类上艾滋病、癌症、糖尿病各种病存在了500年、50年、100年从来没有疫苗，为什么短短的Covid-19共产党病毒就短短的两个月就出来了，有的甚至比这个病毒来的还早。为什么要你打疫苗让你负责任，他们不负责任？为什么不告诉你疫苗里有什么成分对吧？这是根本的问题。
+
+**1/07/2022 文贵直播： **
+
+防范比解药更重要；民意决定了强制疫苗在美国行不通
+
+[视频剪辑：](https://gnews.org/zh-hans/1834550/)
+
+资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
+
+### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
+
+郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
 
 * * *
 
-Date: 01/08/2022
-原视频标题: 共产党将香港和大陆的房地产，香港的股票市场的数据已经造假到35%，共产党真的完了
-The Communist Party has falsified the data of Hong Kong and mainland real estate and Hong Kong’s stock market to 35%, the Communist Party is really over
-原视频日期：2022/01/07
-原视频链接 [**https://gettr.com/post/pmx3kpde47**](https://gettr.com/post/pmx3kpde47)
-任务编号：KC403(3439)
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

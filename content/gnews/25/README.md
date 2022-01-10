@@ -2,27 +2,36 @@
 ---
 
 
-## 美国邮局应FDA的要求扣留包含有伊维菌素的货物
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843546/)
+## 大直播后记：什么是修行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843587/)
 
-翻译：zzballack
-上传：无明逆流
+整理：雅典娜速记组
+编辑：Mttfly
 
-据《网关专家》1月9日报道，在新冠大流行之前，硫酸羟氯喹和伊维菌素这两种药物通常不会引起人们的注意。但自从民主党人和媒体将这些完全安全、廉价和有效的药物政治化后，海关人员就开始注意这些药物。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12246A02D4-scaled-1.jpeg)图片来源：原新闻
-《网关专家》的一位读者收到了美国食品药品监督管理局（FDA）的一份信，信中说她从外国购买的一批含有伊维菌素的货物被邮局扣留。这批货物包含1个Ziverdo套装：醋酸锌片（Zinc Acetate）、多西环素（Doxycycline）胶囊、伊维菌素分散片（Dispersible Tablets）和2盒规格为单片12mg的伊维菌素药物Covimectin。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/大直播后记：什么是修行.png)图片来源：THE IRISH TIMES
 
-FDA在信中写道，根据第801(a)(3)条，醋酸锌片、多西环素胶囊、伊维菌素分散片被拒绝进入美国。因为根据第201(p)条款，它们是未经批准的新药（Unapproved New Drug）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-697.png)图片来源：原新闻
-Covimectin已被确定为缺乏足够的使用说明。该药物在美国有售，因此不允许个人进口。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-698.png)图片来源：原新闻
-信中说，伊维菌素是一种未经批准的药物，不符合放行的条件，因为“此类产品必须符合《联邦食品、药品和化妆品法案》(Federal Food, Drug, and Cosmetic Act)或FDA执行的其他法律的要求。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-700.png)图片来源：原新闻
-这位读者说：“我曾读到过（海关扣留伊维菌素）的新闻，现在亲身经历了一回。我只是想让大家知道他们在做什么。我的每一个朋友和家人都没有接种新冠疫苗，他们在感染新冠病毒后，使用伊维菌素或硫酸羟氯喹以及锌、维生素C和D进行治疗，这样就不必住院。我（对药物被扣留）很生气，因为他们让我几乎无法得到所需药物。我有一个关节炎的问题，现在每天服用400毫克硫酸羟氯喹，已持续了6个多月，没有任何不良副作用。”
 
-尽管所有的故事、证词和研究表明伊维菌素对新冠病毒的早期治疗很有效，但FDA却拒绝授权这些药物用于新冠治疗，他们声称“伊维菌素还没有被证明对这些疾病是安全和有效的”。但是伊维菌素这数十年来一直在拯救生命，而且几乎没有任何副作用。而被FDA授予紧急使用授权的新冠疫苗却造成了巨大的灾难，因新冠疫苗死亡和遭受不良副作用的人比有史以来的任何其他疫苗都多。
+**2022年1月9日文贵大直播**
 
-原文来源：[“The Drug Does Not Appear to Qualify for Release” – EXCLUSIVE: Post Office Holds Woman’s Foreign Shipment of Ivermectin at the Request of the FDA](https://www.thegatewaypundit.com/2022/01/drug-not-appear-qualify-release-exclusive-post-office-holds-womans-foreign-shipment-ivermectin-request-fda/)
+首先一点我觉得就像我说的，我们离开这个地球，比如说这个宇宙、太阳系、银河系，就像我们身体一样，我们只是我们身体上一个分子。就是人体无限大，我们是一粒沙都不如。我们从一粒沙的，就是细胞的更换代替当中，我们的本身本尊并没有死啊。我们每天细胞新陈代谢上亿个，但是我们并没有死啊。是不是，没有死啊？
+
+你只是升级了，再次更新升级，我们是被升级的而已，但是你的本尊并没有死，我觉的本尊就是灵魂啊。今天就是我们的五台山上的叫做阴阳山，你在阴山的时候，想跨到阳山的时候，实际上就是你自己从你身上的一份子，逐渐变成你身体更重要的一份子，就是升级。然后呢，你自己可能长大。比如说我从阴山，现在我是个男的，然后我和女的那边阳山结合以后就会生出来了一个新的我自己出来。
+
+就像你和佳佳你两个是吧？两个卵子精子一结合，“啪”就出来了，生出你自己。你老的身体就淘汰了，新的就出来了，这就是人类的延续啊。如果你再高境界的话，你生出来可能不是佳佳。你俩王子生出来的可能就长得像佳佳像王子，你生出来的可能更像一个神类。（或者说）更高境界的人类了。然而当这个境界修行更高的时候，就像今天我们人类看到的啊，有人打坐，有人修行，修出完全不同的一个果。
+
+这就是我修行不同的果，再升华，那我们就从地球……人家马斯克肯定很早到月球去了，到火星去了，是吧？然后人家美国人已经到了太阳系去了，到黑洞去了。
+
+北朝鲜人还在干嘛呢？还想着喝一碗肉汤呢？对不对呀？它这就是极大的差距呀。所以说我觉的在物理上，人类是会有更陈代谢的。而最终人类会有不同的人，会有不同的升华，这就是修行。
+
+*发布：Mttfly*
+
+**
+****更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

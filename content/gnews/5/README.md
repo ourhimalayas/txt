@@ -2,51 +2,36 @@
 ---
 
 
-## 中共人寿董事长王滨被查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
+## 新中国联邦传递真相和情报
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843789/)
 
-作者：纽约香草山 侠肝义胆
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月7日，郭文贵先生在大直播中指出，新中国联邦传递的真相和情报，远超各国情报系统和主流媒体，这都离不开中共国内英雄战友的默默付出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-5.jpeg)
 
+世界各国在情报上花费千亿万亿，但在过去五年里，都远不及爆料革命给予世界的预警和真相。各国主流媒体被中共收买，不但公然撒谎，而且，无数次抹黑和诋毁爆料革命。
 
+郭先生说，无论是对哈萨克斯坦局势的分析，还是中共二十大的人士安排，爆料革命之所以每次都能正确地公布事态发展，不是猜测，是情报。这正是因为中共国内有无数英雄战友传递信息。这些战友冒着生命危险，为新中国联邦默默奉献，可能永远都是无名英雄，但是新中国联邦人会永远感激和牢记这些战友的付出。
 
+参考链接：
+1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
+2）[https://gettr.com/post/pn6i9y76e5](https://gettr.com/post/pn6i9y76e5)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
-
-这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
-
-有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
-
-新闻来源：
-
-[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
-
-编辑：Kathy文艺 校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
