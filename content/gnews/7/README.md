@@ -2,26 +2,31 @@
 ---
 
 
-## 英国因中共病毒死亡的病例中近75%注射过疫苗
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1844678/)
+## 中共病毒疫苗的主要成分清单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844698/)
 
-翻译/整理：意大利罗马达芬奇农场 – 阿娜意大利
+#### 翻译：Lish
 
-根据英国卫生安全局的数据，英国因中共病毒死亡病例中近75%是已接种疫苗的人。
+#### 校对：精靈藍
 
-根据数据，在2021年12月6日至2022年1月2日报告的3700多起死亡事件中，有2600多起是完全接种过疫苗，超过70%； 另外130起死亡事件归因于 “部分接种疫苗”，使总数达到近75%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-29-2.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-32-1.png)
+#### 剪辑/字幕：蛮急
 
-到目前为止，完全接种疫苗的人占上述的时期内感染中共病毒病例的绝大部分。
+这是来自newblog.com网站上的信息。我想只给你读一下这篇文章的第一部分，这些人花了很长时间来分解（疫苗）实际的成分，你知道吗，这些信息被压制了。
 
-英国卫生局声称，“预计很大一部分病例、住院和死亡将发生在接种过疫苗的人身上，这仅仅是因为接种疫苗的人口比例大于未接种疫苗的人口比例，而且没有疫苗是100%有效的，” 不过，鉴于报告还指出63.1%的人口接种了两剂疫苗，45.6%的人口至少接种了三剂，这些数字似乎相当不平衡。
+2021年8月28日，他们说Robert Young博士发表了他的团队的发现。用相差显微镜，透射和扫描电子显微镜和能量色散X射线光谱分析了四个主要（疫苗）
 
-揭露日报（Daily Expose）质疑道，“是否真的有任何正当的理由将国家医疗服务系统变成国家加强针服务，并引入疫苗护照。其中未接种疫苗的人必须经过测试才能获准入境，而接种过疫苗的人则不需要？而（所谓的）疫苗并不能预防感染，也不能阻止病毒传播。”
+此研究由Pablo campra博士（西班牙阿尔梅里亚大学）和其它人（Dr. Juan）执行。他们的发现既证实了之前的调查，也扩大了之前的调查。
 
-参考新闻链接：[https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/](https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/)
+视频链接：[THE LIST OF MAIN INGREDIENTS OF ALL ”COVID” VACCINES WAS FINALLY EXPOSED](https://www.bitchute.com/video/JcN1Prf7BVGx/)
 
+发布：枳实
 
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
