@@ -2,25 +2,24 @@
 ---
 
 
-## 安省尼亚加拉卫生部暂停强制接种
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841455/)
+## 加拿大试图立法以强制接种中共病毒疫苗
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841598/)
 
-采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
+采编：文莱    编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image02.jpg)
+[图片来源](https://www.nationalobserver.com/2022/01/07/news/federal-health-minister-believes-mandatory-vaccination-measures-could-be-coming)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-6-edited.jpg)图片来源：TNH
+据【CBC新闻】1月7日报道，加拿大卫生部长杜克洛斯当天表示：由于当前各省都面临着病毒感染人数创记录的增长以及医护人员极度短缺等困境。因此，除了做好现行各项防疫措施之外，唯有继续推行“疫苗接种”计划才能度过疫情失控的难关。
 
+该部长引用魁北克官方数据指出，目前有约50%的住院病人因未接种“新冠病毒”疫苗而给该省医疗系统带来了沉重负担。此外，全国仍有700万符合条件的加拿大人尚未接种疫苗。因此，当局应该计划制定“强制接种法案”，而不再依靠限制人们进入特定公共活动场所的疫苗护照来遏制疫情的蔓延。
 
-据加拿大[环球新闻]1月6日报道，安省尼亚加拉卫生部表示，由于完全未预料到“奥密克戎”病毒的破坏程度所造成社区医疗护理需求的激增，因此卫生部被迫暂停对其医护人员实施疫苗强制接种规定，转而要求未接种的雇员进行定期的病毒抗原测试和筛查。
+但事实表明，当前全球“中共病毒”疫情重灾区几乎都有较高的疫苗接种率。但各国政府官僚们不但在病毒溯源、救治药物推广和应用上无所作为，还将疫情全面失控的责任归咎于少数幸存的未接种疫苗者，并试图以此掩盖当局的独裁贪婪和懦弱无能的卑劣本质。
 
-此外，因目前医务工作者短缺和感染 “奥密克戎”的患者激增，尼亚加拉卫生部将关闭位于伊利堡的紧急医疗中心，并将其中的护士和医生部署到该地区的其他急诊部门。
+校对编辑：硫酸羟氯喹64
 
-报道称，尽管如此，当局仍将致力于全员疫苗接种计划，并在以后不确定的时间继续进行。据官方资料显示，目前安省医护人员的疫苗接种率已达93%，因此这次暂停执行的是第三剂疫苗接种。
+发稿： 苦尽甜来 (文來）
 
-* * *
-
-原文链接： [Niagara Health pauses mandatory COVID-19 vaccination program due to ‘intensity’ of Omicron](https://globalnews.ca/news/8492887/niagara-health-pauses-mandatory-vaccination-program/)
-
-[Mandatory Vaccination for all Staff and Physicians](https://www.niagarahealth.on.ca/site/news/2021/10/26/mandatory-vaccination-for-all-staff-and-physicians)
+[原文链接](https://www.cbc.ca/news/politics/duclos-mandatory-vaccination-policies-on-way-1.6307398)
 
  
 
