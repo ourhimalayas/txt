@@ -2,27 +2,37 @@
 ---
 
 
-## 中共独裁体制下的疫情防控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843423/)
+## 有声|中共的 “文化自信”实为“党文化自信”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1843437/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg3.chinadaily.com.cn%2Fimages%2F202201%2F10%2F61db718da3107be47f29de83.jpeg&amp;imgrefurl=https%3A%2F%2Fcn.chinadaily.com.cn%2Fa%2F202201%2F10%2FWS61db718da3107be497a015da.html&amp;tbnid=4HAgrcmMijuCaM&amp;vet=12ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ..i&amp;docid=Hzojou9SFKDGaM&amp;w=1024&amp;h=690&amp;itg=1&amp;q=%E5%A4%A9%E6%B4%A5%E6%8E%92%E9%98%9F%E6%A3%80%E6%B5%8B&amp;ved=2ahUKEwjVhPW9p6f1AhV4jNgFHRB-AKMQMygaegUIARDhAQ)
+配音：香草山佛教部 – 李傻
 
-1月10日每经经济报报道，10日举行的天津市中共病毒（新冠病毒Covid-19）疫情防控工作新闻发布会上了解到，截至1月10日15时，天津市核酸采样9624938人，完成检测3427807人，除报告的阳性感染者外，其他均为阴性，检测工作正在进行中。
 
-从1月8日发现两例阳性患者，截至1月10日15时确诊31例，无症状感染者10例，累计判定追踪密切接触者1152人，次级密切接触者685人，均予以隔离管控。本次疫情累计隔离管理约7.5万人，如此大面积无效的核酸检测结果，只有中共独裁统治者才可以做到如此短时间内做到强制的非法管控。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+倘若仔细研究中共的宣传手段，对外，基本都是借着“中华民族五千年来源远流长的文化”为幌子了；对内，则是明火执仗地标榜所谓的“红色基因”。然而归根结底，这二者都明确的显示出中共的本质，即用虚假的“文化自信”来掩盖其宣传的“党文化自信”。
 
-发布会给出的除阳性外均为阴性这样的信息，2021年天津人口普查，常住总人口数是1386.6万人，核酸采样962万人，完成检测342万人，还有600多万等待结果，在这未知结果人群中，还有更多未知数据。
+可笑的是，一个总是踩着人民的政党，一个不是通过投票选举出来的政党，一个不被人民喜爱、不被世界接受的政党，通过洗脑的方式让人民接受它、让世界肯定他，这是何等荒谬？试问，如果中共有底气，它怎会一遍又一遍的不顾时空、不分年龄地对同胞们洗脑？事实上，中共自己也很清楚，一个抛弃或者背叛了自己历史文化的民族，不仅不可能发展，而且很可能会上演历史悲剧。那么如此贬低、抛弃中华民族灿烂文化根基的中共，其也是不可能发展，而且肯定会灭亡的。
 
-信息来源:
+《陋室铭》言：山不在高，有仙则名；水不在深，有龙则灵。真正的自信者，从来不需要这种自我宣传，或是洗脑他人。可见，中共一再提出的“文化自信”只不过是借着中华文化的幌子无处不在地宣传自己的“党文化”。同胞们，看清楚了，擦亮眼睛，不要被中共的如假包换欺骗了！
 
-[【天津已完成全市核酸采样超900万人】](https://mo.mbd.baidu.com/r/zrcRocIMaQ?f=cp&amp;rs=431117269&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ba789292d4ea3bc3)
+文字版原文：[中共的 “文化自信”实为“党文化自信”](https://gnews.org/zh-hans/1838050/)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

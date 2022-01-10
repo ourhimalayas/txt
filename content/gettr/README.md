@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 3:21 PM (UTC)`
+
+1月10号：尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的病毒的高峰时刻……照顾好家人和自己的身体，尊重科学．在快乐，健康．愉悦……的情况下消灭共产党…………迎接新中国联邦的伟大时刻到来！
+![img](https://media.gettr.com/group47/getter/2022/01/10/15/7b4b8006-df63-2f9f-2ff0-a496f84ec9b5/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@thepotomacview 1/10/2022 4:42 AM (UTC)`
@@ -153,15 +160,6 @@ mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、�
 
 1月8号：衷心地感谢文星战友制作的精美⋯接地气的视频！【七哥🙏之东北二人转摇滚之武侠滚地刀篇😃🙏🌽】🌽🌽🌽🌽🌽🌽🌽🌽
 ![img](https://media.gettr.com/group49/getter/2022/01/08/21/4d97b47a-de80-5ac6-edf9-c3d306661dda/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@milesguolive 1/7/2022 5:22 PM (UTC)`
-
-目前，Joe Rogan 正在擊敗黃金時段的新聞節目。推特上有人用來自Nielsen和Spotify的數據將傳統媒體收視率與Rogan播客的收視率做了比較，Rogan每期節目平均有1100萬的收視率。相比，Tucker Carlson有324萬的收視率，Rachel Maddow有220萬的收視率。社交媒體蓋特聲稱自從Rogan的節目被推特和油管下架，他加入蓋特以後，蓋特的用戶激增。蓋特還聲稱共和黨議員Marjorie Taylor Green被推特封號也是導致蓋特會員激增的原因。#盖特gettr <br/>#20220107文贵大直播  小视频 
-![img](https://media.gettr.com/group9/getter/2022/01/07/17/cc941a05-6015-1a35-2000-7a1d6c746d33/out.jpg)
 
 ---
 

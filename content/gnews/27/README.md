@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|中共的 “文化自信”实为“党文化自信”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1843437/)
+## 中共病毒和疫苗的疯狂一定会被停止
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843462/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月7日大直播中，郭文贵先生再次揭露中共病毒和疫苗的谎言，并强调，疫苗强制进入最后的疯狂阶段，但在今年一定会被停止。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共.jpg)
+郭先生说，在病毒起源无迹可寻的情况下，各种疫苗却在短时间内被推出，而且疫苗成分拒绝公开。各国科学家和公共卫生机构泯灭良知，将本应以“预防感染”为目的的疫苗，篡改成了“预防重症”；对疫苗接种的定义，从一针、两针管用，到三针、四针才管用，再到每月打、每年打疫苗。
 
+各国政府纷纷推出疫苗强制令，软硬兼施强制民众接种疫苗。而且，政府机构及其同谋疫苗生产商不用担负任何法律责任，却让被迫接种者负全责。目前，八九成中共病毒的感染者都是接种过疫苗的人，但是，各国政府视而不见，继续推行疫苗强制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-倘若仔细研究中共的宣传手段，对外，基本都是借着“中华民族五千年来源远流长的文化”为幌子了；对内，则是明火执仗地标榜所谓的“红色基因”。然而归根结底，这二者都明确的显示出中共的本质，即用虚假的“文化自信”来掩盖其宣传的“党文化自信”。
+这些谎言和疯狂的举动难以掩盖中共病毒疫苗导致的灾难，更多民众已经意识到病毒的真相，并且用良知和勇气反抗疫苗强制令。因此，疫苗强制令并没有在哪个西方国家真正成功的实行，而且最终一定会被停止。
 
-可笑的是，一个总是踩着人民的政党，一个不是通过投票选举出来的政党，一个不被人民喜爱、不被世界接受的政党，通过洗脑的方式让人民接受它、让世界肯定他，这是何等荒谬？试问，如果中共有底气，它怎会一遍又一遍的不顾时空、不分年龄地对同胞们洗脑？事实上，中共自己也很清楚，一个抛弃或者背叛了自己历史文化的民族，不仅不可能发展，而且很可能会上演历史悲剧。那么如此贬低、抛弃中华民族灿烂文化根基的中共，其也是不可能发展，而且肯定会灭亡的。
+参考链接：[2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
 
-《陋室铭》言：山不在高，有仙则名；水不在深，有龙则灵。真正的自信者，从来不需要这种自我宣传，或是洗脑他人。可见，中共一再提出的“文化自信”只不过是借着中华文化的幌子无处不在地宣传自己的“党文化”。同胞们，看清楚了，擦亮眼睛，不要被中共的如假包换欺骗了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-文字版原文：[中共的 “文化自信”实为“党文化自信”](https://gnews.org/zh-hans/1838050/)
+总编/编辑：文真
+校正/发稿：Fei797
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
