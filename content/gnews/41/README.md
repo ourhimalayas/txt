@@ -2,37 +2,48 @@
 ---
 
 
-## 美国会议员质疑爱彼迎非法持续提供新疆房源
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841875/)
+## 昆仑山脉七山一峰寓意神秘俄中亮核武底牌美欧不屑搭理
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841981/)
 
-#### 撰稿：日本东京方舟农场  海星
+视频链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FC6D0583-5C56-4E53-8E1C-3D8E2BFC9E90.jpeg)（图片来源：美联社）
+**郭文贵先生：**然后你在看到，就是我们这块儿讲的昆仑山脉，昆仑山脉有七大山，一大峰，号称八兄弟。记得2017年我刚爆料说的吗,人家给我家哥八个…人家算命的说，你这个八个都能活成人的话，就我们家老家我上中学的、三中有一个1吨多重的，当年发黄河大水漂来的这个钟，是当年汉朝的大钟，说我们哥八个把手往那儿一放，就能给举起来。但是你说你哥八个成不了，在历史上是成不了。
 
-1月7日，美国两位议员致函全球知名民宿出租平台爱彼迎（Airbnb），质疑其非法持续提供新疆房源。
+因为昆仑山脉七山一峰。哎！墨镜我刚才查了一下距离，一会儿给我们放一下。七山一峰，只要这时候有动静，你这个不可能让你成了八个的，所以我八弟整好还差一星期就到十八岁，就过世了！被他们打死了！你信不信都在这儿呢。
 
-据《自由时报》报道，美国国会及行政部门中共问题委员会（CECC）主席、参议员默克利（Jeff Merkley），以及该委员会共同主席、众议员麦高文（James McGovern）于1月7日致函爱彼迎，对其非法持续提供新疆房源提出质疑。
+因此本人亲自去过昆仑山，我探讨昆仑山到底有没有这八兄弟之峰之存在，七成八不成，七上八下，老七上，八就得下。今天给你们讲昆仑山，七哥不乱讲的。
 
-据了解，去年有一篇调查报告发现，爱彼迎公司提供的14个新疆房源位于直属中共中央副省级单位——“新疆生产建设兵团”所持有的土地上。然而该兵团早在2020年就因侵犯新疆人权，违反《全球马格尼茨基法案》而被美国财政部制裁。因此，爱彼迎持续在新疆提供房源的行为或已违反了美国政府的制裁令。
+记住！这跟哈萨克斯坦是有极大的关系的，哈萨克斯坦有一座山脉，有一座湖这座湖，这座湖称做姐妹湖，有一座山脉是叫做俄罗斯的精神之山。你们自己查查，俄罗斯人和哈萨克斯坦人是深信不疑的。这就七哥走万里路的好处，你说啥我都能告诉你，我亲自去过。不像那些伪类什么的，从来没去过，是吧！就开始告诉我打扑克了，他没见过扑克牌，是吧！他就告诉我怎么打牌了。
 
-两位议员还在信中指责爱彼迎从不曾公开谴责在新疆持续发生的种族灭绝，以及其它针对中共国少数民族令人震惊的系统性人权侵犯行为。
+所以昆仑山有大动静，俄罗斯山脉有大动静，帕米尔高原有大动静，这个世界要大变呐！接着你知道这两天发生什么事吗？听说美、欧、俄、中私下里的明确叫底牌了，如果你美国、你欧洲再往前走，我们就该怎么着怎么着，就是打核战吗。
 
-爱彼迎公司总部位于美国旧金山，是下月开幕的北京冬奧会的15个主要赞助商之一。此前，由于中共在新疆持续进行种族灭绝行为，美国白宫已宣布将不派官方代表团参加北京冬奧会。
+但是好消息是，据我所了解美欧表态，几乎上这就是都不搭理你，就像当年叶利钦在北京对着全世界说，不要忘了！我们俄罗斯是拥有世界上最多的核武器，结果人肯克林顿打蝴蝶结，一帮人笑着喝着香槟，是吗！我早就听说了，然后就哈哈大笑。人家就笑他，你忘了你的核武器里面加一堆儿，不如我一个大呢，是吧！克林顿就那么笑着，把叶利钦气得都发抖，听说回到钓鱼台喝了一晚上酒，根本看不起你，是吧！
 
-*参考链接：*
+美国和欧洲现在对中共和对世界这个事儿，你可以从哈萨克斯坦看出来，世界的政治板块和世界的地域政治，能源政治。最后没有说到的，世界上的风水一切都在改变。我绝不相信再能回到，哈萨克斯坦的之前的前夜世界。
 
-1. [*https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html*](https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html)
-2. [*https://news.ltn.com.tw/news/world/paper/1494838*](https://news.ltn.com.tw/news/world/paper/1494838)
-3. [*https://gnews.org/zh-hans/283146/*](https://gnews.org/zh-hans/283146/)
+越南阿富汗让美国人看到了，俄罗斯和中国这样下去，而不是阻止北欧东扩，而是能不能阻止的了中俄西扩、中俄整治全球，从昆仑山脉、帕米尔高原、到印度洋、到大西洋、北极已经现在是俄罗斯、是灼灼逼人了，所以说今天这个哈萨克斯坦的事大了，是吧！
 
+编辑整理：海贼王M.D.LUFFY；
 
-* * *
+G-News发布：海贼王M.D.LUFFY；
 
-*素材采编：海星*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-*编辑：青衣青青*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*发布：miumiu*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

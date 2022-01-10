@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 9:53 AM (UTC)`
+
+1/09/2022 Miles Guo: Why are the US and Europe going against the CCP and Russia regarding the issue of Kazakhstan? After the CCP loses the control of Kazakhstan, the revolution will spread to Xinjiang and Tibet. How does the “seven major mountains and one peak” of the Kunlun Mountains have anything to do with the fate of the eight brothers of my family?<br/><br/>1/09/2022 文贵直播：为什么美欧就哈萨克斯坦问题跟中俄对着干？中共失去哈萨克斯坦后，革命将传到新疆和西藏；昆仑山脉的“七大山一大峰”和文贵家的八个兄弟的命运有何微妙的联系？<br/>
+![img](https://media.gettr.com/group9/getter/2022/01/10/09/47e6ab96-53b3-eeed-e617-ff959cc8063f/out.jpg)
+
+---
+
+`@miles 1/10/2022 9:45 AM (UTC)`
+
+1/09/2022 Miles Guo: The CCP built a massive altar in the Kunlun Mountains, a state secret with special forces stationed there, but those whose zodiac signs are Tiger and Pig are not allowed to go there; I have been there and saw the ineffable secret of heaven! The Kunlun Mountains is the spine of the earth and is the source of the CCP’s power!<br/><br/>1/09/2022 文贵直播：中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵，但属虎和属猪的不让去；文贵过去那里并看到了天机！昆仑山是地球的脊椎，是共产党权力的来源！<br/>
+![img](https://media.gettr.com/group5/getter/2022/01/10/09/fb8567d3-86e4-8fcb-d2e8-5a4501d8f06d/out.jpg)
+
+---
+
 `@miles 1/10/2022 9:39 AM (UTC)`
 
 1/09/2022 Miles Guo: The battle between Xi Jinping and Zeng Qinghong have been initiated by the explosion that happened in the Wulong District of Chongqing and the surfacing of the list of the CCP’s top officials who are going to take office after the 20th Party Congress! The gods of the Kunlun Mountains and the Himalayas are helping us the New Federal State of China! The CCP is more superstitious than anyone else!<br/><br/>1/09/2022 文贵直播: 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战！昆仑山神和喜马拉雅山神都在帮助我们新中国联邦！中共比谁都迷信！<br/>
@@ -148,24 +162,6 @@ mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、�
 
 EP1: Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles
 ![img](https://media.gettr.com/group1/origin/2022/01/05/17/a7d72764-f9bf-8806-6f74-c6bbd01deaa9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/6/2022 11:14 AM (UTC)`
-
-EP3-Part 1:Who is Isobel Yeung? #whoisisabelyeung Let's tear down the monstrous lies of this despicable  #HBO #VICE production with TRUTH!  第三集第一节：谁是伊莎贝尔 杨？让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #whoisisabelyeung
-![img](https://media.gettr.com/group39/origin/2022/01/06/11/09b67a81-00a3-9aab-f3c4-17981d1a5564/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/7/2022 3:50 AM (UTC)`
-
-EP3-Part 2: Undercover or Not? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第二节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #undercoverornot
-![img](https://media.gettr.com/group46/origin/2022/01/07/03/35722c67-5e16-321a-916c-0cad56dc5892/out.jpg)
 
 ---
 

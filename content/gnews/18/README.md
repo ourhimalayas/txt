@@ -2,47 +2,32 @@
 ---
 
 
-## 重拾自信心
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1842319/)
+## 虽然接种了加强针，本周四名众议员先后感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842373/)
 
-作者：香草山农场教育部 – 雨过天晴Rainbow
+#### 撰稿：彩虹 
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-15.jpg)图片来源：底特律新闻
+1月9日，《国会山报》报道四名众议员虽然之前已经完全接种了中共病毒（COVID-19）疫苗以及加强针，但本周仍然成为了中共病毒感染者。
 
+在周日的一份声明中，民主党众议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）的办公室说，这位女议员中共病毒检测结果呈阳性，出现了症状，正在家中康复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+声明中值得注意的是，说：“（科尔特斯）女议员在今年秋天接种了（中共病毒疫苗）加强针。”
 
+本周末，来自田纳西州的民主党众议员吉姆·库珀（Jim Cooper）也宣布他的中共病毒检测结果呈阳性。
 
+报道说，上周六，民主党众议员肖恩·克斯特（Sean Casten）和共和党众议员金映玉（Young Kim）也宣布他们的中共病毒检测结果呈阳性。与库珀和科尔特斯一样，这两位立法者都接种了全面的中共病毒疫苗和加强针的注射。
 
-“很多人问过我，为何这么自信？唯一让你自信的，是你内心充满了和别人不同的知识和经历，你没去过七女峰，加拿大大瀑布，玛雅文化遗址，缅甸过去最早佛教文化的地方，没看过这些，你不可能有自信。我最痛苦的，每天从厕所出来，我得跟家里人装傻。不这样我的自信都漾出来了。我跟很多人说话，时刻告诉自己，要回到当下来。只有我敢说水往上流，你们都是往下流的。共产党就是把中国人的自信拿走了。”
-今天的大直播里文贵先生对战友们推心置腹吐露着心声，用其特有的人生经历和阅历丰富的知识向我们展示他那鲜为人知的懊恼。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16x9-feature-photos-MOS-logos-3.png)
-何尝不是啊！多少有理想和抱负，有学识和智慧，有正义和信仰人们的自信心，在中共国几十年的极权统治下早都被剥夺至一丝不挂⋯⋯ 
-被历次名目繁多的政治运动无辜牵连的人们失去自信；敢于表达正义声音遭受打压的人们失去自信；惨遭各种伤害求助无门的人们失去自信；被愚昧无知、论调耻笑的求真求实的人们失去自信；辛勤却拘紧贫穷的人们在人模狗样的爆发户前失去自信。感叹啊，太多太多失去的自信啦！
-久违的个人自信心，生活在自由民主的国家让我拾回一点点自信；学习工作、平等机会让我拾回自信；不同种族、同事之间融洽关系拾回自；努力工作，得到晋级报酬拾回自信⋯⋯
-如今我参与爆料革命，用那蹩脚英语和需回炉的中文写着过去、现在、还有将来。推文、盖文和GNews 的发表的每字每句都将展现生命中我曾有过的自信心！
-新中国联邦人灭共自信心满满！
+文章指出，自去年夏天以来，大约有40名美国国会立法者在至少完全接种了中共病毒疫苗后仍然感染了中共病毒。
 
-编辑/校对/发稿：为真不破20
+国会医生布莱恩·莫纳汉（Brian Monahan）建议国会办公室尽可能采用远程工作，并使用高质量的口罩，如N95和KN95。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
+莫纳汉上周发布的一份报告显示，国会大厦的中共病毒测试的七天平均阳性率已经从1%左右飙升到了13%。
 
-**更多资讯，更多关注**
+**新闻来源**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-
+[Ocasio-Cortez tests positive for breakthrough COVID-19 case](https://thehill.com/homenews/house/588941-ocasio-cortez-tests-positive-for-breakthrough-covid-19-case)[Rep. Jim Cooper becomes latest lawmaker to test COVID-19 positive](https://thehill.com/homenews/house/588936-rep-jim-cooper-becomes-latest-lawmaker-to-test-covid-19-positive)
 
  
 
