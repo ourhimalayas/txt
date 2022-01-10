@@ -2,21 +2,22 @@
 ---
 
 
-## 国内的病毒疫苗灾难
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1842020/)
+## 雅典娜时报-第169期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1842084/)
 
-撰稿—宗介
-校对/上传—无明逆流
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-2022年1月9日0－24时，天津市新增21例本土新冠肺炎确诊病例（均在津南区）。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![img](https://media.gettr.com/group14/origin/2022/01/10/03/b7568a69-e719-d852-fc70-e81f50af682e/72e15a8667ad9099a20204828d7f2532.jpg)![img](https://media.gettr.com/group14/origin/2022/01/10/03/f3ef6b85-0388-212d-23e3-66d7812228bf/b019515f1a3e65110d628883bcc4a592.jpg)
+*发布：陶子*
 
-河南省新增本土确诊病例60例（郑州市24例，安阳市15例，许昌市21例）陕西15例，均在西安市，广东1例，在深圳市。按照共产党所说，境外输入病例60例（上海26例，广东8例，云南6例，福建5例，天津4例，浙江3例，广西3例，辽宁2例，河南1例，湖南1例，四川1例）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61261.jpg)图片取材：文汇网 （记者冯雷摄）
-不仅是放毒，疫苗过量灾难也逐渐显现。全世界只有爆料革命新中国联邦提出病毒由中国共产党释放，疫苗无效且会带来更大的灾难，难以想象到了今年五月这场灾难会是什么样。现在的西安、河南快递也无法发出，超市被抢购一空、还有被锁在家里的市民，有些小区还提供了食物购买，有些小区只能吃草，甚至还有饿死的、跳楼的，这样的情形只会发生在中共国吧。共产党绝对不在乎老百姓的死活，生活在其他省份的人们最不该的就是侥幸，灾难一样会发生在自己身上。青蒿素、伊维菌素一定是解决全世界病毒、疫苗的神药，希望全人类能尽快的醒来。
-
-参考链接：
-1. [天津新增本土确诊21例](https://m.gmw.cn/baijia/2022-01/10/1302756284.html?sdkver=2c9d920d)
-2.[河南本輪疫情本土確診達258例　鄭州禹州病毒同源](https://www.wenweipo.com/a/202201/09/AP61dabda1e4b03103e0c2f3c5.html)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

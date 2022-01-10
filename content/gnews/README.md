@@ -18,89 +18,89 @@
 ### [为什么说“盖特时刻”还将持续？](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国产芯片不足导致汽车库存短缺、价格上涨](/content/gnews/2/README.md)
+### [英国NHS医生对卫生大臣表示：他不会接种疫苗](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [研究表明50%运动员接种中共病毒疫苗后罹患无症状心肌炎](/content/gnews/3/README.md)
+### [荷兰因为“预期的风险”而处于极端封锁状态](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：哈萨克斯坦的局势和重要性](/content/gnews/4/README.md)
+### [中共国产芯片不足导致汽车库存短缺、价格上涨](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [研究表明50%运动员接种中共病毒疫苗后罹患无症状心肌炎](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [大直播后记：哈萨克斯坦的局势和重要性](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Eglise医生一起欢度圣诞及再谈如何吃药全文字版](/content/gnews/5/README.md)
+### [Eglise医生一起欢度圣诞及再谈如何吃药全文字版](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [班农战斗室：中共不遗余力地说西安没有奥米炕病例](/content/gnews/6/README.md)
+### [班农战斗室：中共不遗余力地说西安没有奥米炕病例](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国最高法院将对拜登总统的疫苗强制接种令进行审理](/content/gnews/7/README.md)
+### [美国最高法院将对拜登总统的疫苗强制接种令进行审理](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英政府官方数据显示接种疫苗者死亡率比未接种者高286%](/content/gnews/8/README.md)
+### [英政府官方数据显示接种疫苗者死亡率比未接种者高286%](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大军官要求调查武汉军运会期间爆发的新冠疫情](/content/gnews/9/README.md)
+### [加拿大军官要求调查武汉军运会期间爆发的新冠疫情](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七嫂钟爱新中国联邦蓝被七哥口误难开怀凸显媒体传播力](/content/gnews/10/README.md)
+### [七嫂钟爱新中国联邦蓝被七哥口误难开怀凸显媒体传播力](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [哈萨克斯坦总统下令无需预警就开枪杀人以镇压抗议](/content/gnews/11/README.md)
+### [哈萨克斯坦总统下令无需预警就开枪杀人以镇压抗议](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特改变了游戏规则,与金融、自由、民权和信仰紧密相关](/content/gnews/12/README.md)
+### [盖特改变了游戏规则,与金融、自由、民权和信仰紧密相关](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [班农战斗室：中共在蓄谋发动世界大战](/content/gnews/13/README.md)
+### [班农战斗室：中共在蓄谋发动世界大战](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党黑盖特但天意和风水以及老天的无尽力量在帮我们](/content/gnews/14/README.md)
+### [共产党黑盖特但天意和风水以及老天的无尽力量在帮我们](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [每时每刻的认知 （七）](/content/gnews/15/README.md)
+### [每时每刻的认知 （七）](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [UBS和德意志银行为共产党江泽民王岐山哈萨克总统洗钱](/content/gnews/16/README.md)
+### [UBS和德意志银行为共产党江泽民王岐山哈萨克总统洗钱](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共以动乱逼哈萨克归还江泽民王岐山寄存黄金嫁祸美国](/content/gnews/17/README.md)
+### [中共以动乱逼哈萨克归还江泽民王岐山寄存黄金嫁祸美国](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [猛虎成病猫，CCP你完了！](/content/gnews/18/README.md)
+### [猛虎成病猫，CCP你完了！](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [雅典娜时报-第169期](/content/gnews/19/README.md)
+### [雅典娜时报-第169期](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国光伏屋顶大骗局](/content/gnews/20/README.md)
+### [中共国光伏屋顶大骗局](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [国内的病毒疫苗灾难](/content/gnews/21/README.md)
+### [国内的病毒疫苗灾难](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [中共在争议地区建桥设地标或引发新一轮中印冲突](/content/gnews/22/README.md)
+### [中共在争议地区建桥设地标或引发新一轮中印冲突](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国推迟执行新冠疫苗强制令](/content/gnews/23/README.md)
+### [德国推迟执行新冠疫苗强制令](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [脱贫人口务工人数，中共继续上演强制脱贫谎言](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [昆仑山脉七山一峰寓意神秘俄中亮核武底牌美欧不屑搭理](/content/gnews/25/README.md)
+### [昆仑山脉七山一峰寓意神秘俄中亮核武底牌美欧不屑搭理](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [又一新变种“Deltacron”菌株出现](/content/gnews/26/README.md)
+### [又一新变种“Deltacron”菌株出现](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵直播大事记——中共骨灰成肥料，喜币成就金手指](/content/gnews/27/README.md)
+### [文贵直播大事记——中共骨灰成肥料，喜币成就金手指](/content/gnews/28/README.md)
  ` 文贵直播大事记`
 
-### [瑞士军队禁用WhatsApp、Signal和Telegram](/content/gnews/28/README.md)
+### [瑞士军队禁用WhatsApp、Signal和Telegram](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
-
-### [记录西安封城真相 “长安十日”震惊世界（1）](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美国会议员质疑爱彼迎非法持续提供新疆房源](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
