@@ -2,47 +2,33 @@
 ---
 
 
-## 重拾自信心
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1842319/)
+## 大直播&#8212;爆料革命穷追猛打下中共的金融乱象与迷局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1842389/)
 
-作者：香草山农场教育部 – 雨过天晴Rainbow
+作者：香草山信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-4.png)
+郭先生在1月5日的大直播里透露，在爆料革命到处点火、穷追猛打下，中共金融乱象频生：
 
+无神论者中共的五大银行纷纷以7为主题开启2022年金融之旅，如中行的“美好生活，如7而至”，建行的“不负7待”，工行、农行等推出手机银行7.0版本等，这是去年十月一日国庆就拟定的方案。中共迷信此举可以沾沾中共国70周年的“喜气”、碰碰逃过70大限的“运气”；同时，更想碰瓷我们爆料革命的七哥，沾沾新中国联邦七芒星的财气和福气。这是中共金融系统迷局中“民心向郭（七）”的一种潜意识行为，更是七哥和爆料革命如磐石般坚毅的吸引力，这是天意！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-28.jpg)
+中共国近年疯狂囤积黄金并储备已达2000多吨，是世界上储备黄金最多的国家之一，企图稳定其濒临奔溃的金融系统。最近习一尊通过黑材料和策划暴乱绑架哈萨克斯坦总统哈尔扎耶夫，索要江家与王家存在那里的100吨黄金。存有中共高官1.2万亿美元的瑞银UBS，王岐山刚提走了300亿美元，是世全球最大的犯罪银行。
 
+中共还试图在即将举行的冬奥会上推出筹谋已久的数字货币，以取代即将崩溃的人民币金融系统，开启重新收割老百姓的新金融机器。爆料革命和新中国联邦的雷达早已锁定亡命狂奔的中共，盗国贼手中这些黄金和外汇完全属于中国人，无路可逃时只有回到我们的喜联储，回到中国人自己手中！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+参考来源：[大直播—爆料革命穷追猛打下中共的金融乱象与迷局](https://gtv.org/video/id=61d59a1931a71619b57520a4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-
-“很多人问过我，为何这么自信？唯一让你自信的，是你内心充满了和别人不同的知识和经历，你没去过七女峰，加拿大大瀑布，玛雅文化遗址，缅甸过去最早佛教文化的地方，没看过这些，你不可能有自信。我最痛苦的，每天从厕所出来，我得跟家里人装傻。不这样我的自信都漾出来了。我跟很多人说话，时刻告诉自己，要回到当下来。只有我敢说水往上流，你们都是往下流的。共产党就是把中国人的自信拿走了。”
-今天的大直播里文贵先生对战友们推心置腹吐露着心声，用其特有的人生经历和阅历丰富的知识向我们展示他那鲜为人知的懊恼。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16x9-feature-photos-MOS-logos-3.png)
-何尝不是啊！多少有理想和抱负，有学识和智慧，有正义和信仰人们的自信心，在中共国几十年的极权统治下早都被剥夺至一丝不挂⋯⋯ 
-被历次名目繁多的政治运动无辜牵连的人们失去自信；敢于表达正义声音遭受打压的人们失去自信；惨遭各种伤害求助无门的人们失去自信；被愚昧无知、论调耻笑的求真求实的人们失去自信；辛勤却拘紧贫穷的人们在人模狗样的爆发户前失去自信。感叹啊，太多太多失去的自信啦！
-久违的个人自信心，生活在自由民主的国家让我拾回一点点自信；学习工作、平等机会让我拾回自信；不同种族、同事之间融洽关系拾回自；努力工作，得到晋级报酬拾回自信⋯⋯
-如今我参与爆料革命，用那蹩脚英语和需回炉的中文写着过去、现在、还有将来。推文、盖文和GNews 的发表的每字每句都将展现生命中我曾有过的自信心！
-新中国联邦人灭共自信心满满！
-
-编辑/校对/发稿：为真不破20
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

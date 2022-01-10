@@ -2,26 +2,33 @@
 ---
 
 
-## 中共国在与印度有争议的领土上建桥，有可能再次出现紧张局势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1842312/)
+## 虽然接种了加强针，本周四名众议员先后感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1842373/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-655.png)[图片来源](https://news.yahoo.co.jp/articles/d2d87ecf96046239a1d9a50afef8b1beb5081bed#:~:text=%E4%B8%AD)
-《时事通信》1月10日消息，中共国在与印度有边界争议的领土上正在加紧活动。
+#### 撰稿：彩虹 
 
-报道称中共国已经开始在班公湖上建造桥梁，并单方面用了中国式的地名。该湖横跨印度北部拉达克地区和中国西藏自治区的有效控制线。印度私营广播公司NDTV12月3日根据卫星图像报道了该桥的建设情况，称它的目的是为部队和大型武器的移动提供便利。2021年2月，双方军队在协商后撤出了班公湖地区。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-15.jpg)图片来源：底特律新闻
+1月9日，《国会山报》报道四名众议员虽然之前已经完全接种了中共病毒（COVID-19）疫苗以及加强针，但本周仍然成为了中共病毒感染者。
 
-去年12月29日，中共国在印度实际控制的东北部阿鲁纳恰尔邦单方面宣布了“古里”和“马加”等汉字的官方名称。声称这个名字是根据中国自古以来的领土的条例命名的，并在一次关于该桥的新闻发布会上强调，他们正在其领土上建造基础设施。
+在周日的一份声明中，民主党众议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）的办公室说，这位女议员中共病毒检测结果呈阳性，出现了症状，正在家中康复。
 
-作为回应，印度外交部发言人12月6日驳斥中共国的命名是一个站不住脚的主张领土要求的荒谬举动，强烈批评了这座桥，并表示将采取必要的措施。
+声明中值得注意的是，说：“（科尔特斯）女议员在今年秋天接种了（中共病毒疫苗）加强针。”
 
-印度虽然奉行“不结盟”的外交政策，但它把中共国作为最大的贸易伙伴，2020年发生冲突之后，与美国、日本和澳大利亚的四国间加强了伙伴关系。
+本周末，来自田纳西州的民主党众议员吉姆·库珀（Jim Cooper）也宣布他的中共病毒检测结果呈阳性。
 
-信息源：[中国、対インド係争地で橋建設　一方的命名も、緊張再燃の恐れ](https://news.yahoo.co.jp/articles/d2d87ecf96046239a1d9a50afef8b1beb5081bed#:~:text=%E4%B8%AD)
+报道说，上周六，民主党众议员肖恩·克斯特（Sean Casten）和共和党众议员金映玉（Young Kim）也宣布他们的中共病毒检测结果呈阳性。与库珀和科尔特斯一样，这两位立法者都接种了全面的中共病毒疫苗和加强针的注射。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+文章指出，自去年夏天以来，大约有40名美国国会立法者在至少完全接种了中共病毒疫苗后仍然感染了中共病毒。
+
+国会医生布莱恩·莫纳汉（Brian Monahan）建议国会办公室尽可能采用远程工作，并使用高质量的口罩，如N95和KN95。
+
+莫纳汉上周发布的一份报告显示，国会大厦的中共病毒测试的七天平均阳性率已经从1%左右飙升到了13%。
+
+**新闻来源**
+
+[Ocasio-Cortez tests positive for breakthrough COVID-19 case](https://thehill.com/homenews/house/588941-ocasio-cortez-tests-positive-for-breakthrough-covid-19-case)[Rep. Jim Cooper becomes latest lawmaker to test COVID-19 positive](https://thehill.com/homenews/house/588936-rep-jim-cooper-becomes-latest-lawmaker-to-test-covid-19-positive)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
