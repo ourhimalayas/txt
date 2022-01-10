@@ -2,40 +2,32 @@
 ---
 
 
-## 有声|美国马里兰州宣布进入紧急状态
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841386/)
+## 美国和北约拒绝俄罗斯停止东扩呼吁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1841393/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月6日，美国马里兰州州长拉里·霍根当天宣布，该州将进入为期30天的紧急状态，同时，当地政府将采取紧急短期行动抗击当前的中共病毒疫情。
+据《反战网》戴夫·德坎普（Dave DeCamp）2022年1月7日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-2.png)图片来自网络
+俄罗斯正在寻求乌克兰不加入北约的保证。
 
-数据显示，马里兰州当天因中共病毒感染住院的人数创下了历史新高，而该州的中共病毒感染患者在过去七周内增加了500%以上。预计，当地的住院人数可能会在未来几天内超过五千人，这将比之前的峰值高出两倍以上。
+上周五，美国和北约拒绝了俄罗斯要求军事联盟停止东扩的呼吁。
 
-霍根州长表示，未来的四到六周将是整个中共病毒疫情中最具挑战性的时刻。为此，当地动员了一千名马里兰州国民警卫队成员，用以协助州和地方卫生官员持续应对疫情。
+在围绕乌克兰的紧张局势之时，俄罗斯向美国提交了一系列安全建议，俄罗斯的主要要求是保证乌克兰不会加入北约。
 
-原文链接：[美国马里兰州宣布进入紧急状态](https://gnews.org/zh-hans/1836321/)
+国务卿安东尼·布林肯在北约外长的视频会议后说：“北约从未承诺不接纳新成员；它不能也不会。“
 
-音频处理：喜山必胜Maverick
+北约秘书长在当天早些时候也发表了类似的评论。他说：“我们不会在核心原则上妥协，包括每个国家都有权决定自己的道路，包括它想成为什么样的安全安排的一部分。”
 
-**发稿：**Daxia
+美国和俄罗斯官员将于1月10日在日内瓦会晤，讨论乌克兰和其他问题，北约将于1月12日与莫斯科举行会谈。布林肯指责俄罗斯提出不合理的要求，企图破坏外交。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+布林肯说：“毫无疑问，[普京]剧本的一部分是提出一个绝对不可行的要求清单，然后声称对方不参与，然后以某种方式作为侵略行动的理由。”
 
-**更多资讯，更多关注**
+乌克兰自2008年以来一直是北约的潜在成员，并在军事演习上与北约合作。当维克多·亚努科维奇(Viktor Yanukovych)在2010年至2014年担任总统时，乌克兰加入北约从未成为一个问题。但他在美国支持的政变中被赶下台后，美国和北约与乌克兰的合作显著增加。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+自2014年政变以来，美国已经向乌克兰提供了超过20亿美元的军事援助。美国和北约现定期在黑海巡逻，西方战机也不断在该地区飞行。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文链接：[https://news.antiwar.com/2022/01/07/us-nato-reject-russias-call-for-halt-of-eastward-expansion/](https://news.antiwar.com/2022/01/07/us-nato-reject-russias-call-for-halt-of-eastward-expansion/)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+翻译：烟波浩淼 | 校对：雨山溪桥客 | 编辑&发布：断播
 
  
 

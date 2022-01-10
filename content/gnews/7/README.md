@@ -2,38 +2,83 @@
 ---
 
 
-## 有声|中共强迫藏族僧侣民众观看拆除佛像
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841374/)
+## 2022年1月9日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841377/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%96%B0-1.png)
-台湾媒体1月6日报道，中共四川省政府强迫西藏僧侣和当地居民，观看一座大型佛像被拆除的过程。而拆除理由仅仅是该佛像建得太高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot_副本-1.jpg)
+视频连接：[2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析-Gettr](https://gettr.com/streaming/pn8v876876) 或[2022年1月9日 文贵大直播：哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王滨被调查-GTV](https://gtv.org/video/id=61dade8c4658a73785d25465)
 
-据悉，被拆除的佛像是藏人集资4000万元人民币兴建的，2015年兴建时曾获当局批准。拆除佛像行动进行了9天。当局在现场部署了大量警察，确保观众不能拍照、录像或者进行反抗。与这座99英尺高、可以抵御地震的佛像一起被毁的，还有附近竖立的45个供西藏朝圣者和其他信徒使用的传统转经轮。
+1、王毅去哈萨克斯坦递情报，美欧要颠覆哈萨克斯坦；
 
-原文链接：[中共强迫藏族僧侣民众观看拆除佛像](https://gnews.org/zh-hans/1831961/)
+2、俄中威胁美欧，颠覆哈萨克斯坦要打核战，美欧不搭理俄中
 
-音频处理：喜山必胜Maverick
+3、孟加拉国也会有大动静；
 
-**发稿：**Daxia
+4、马建、张越在江家和胡锦涛两边摇摆，被干掉；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+5、共产党迷信，认为昆仑山是共产党权力的来源；
 
-**更多资讯，更多关注**
+6、共产党屏蔽了互联网昆仑山的一切信息；
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+7、曾庆红自认为是海派和江家一样相信龙，相信舟山南普陀；
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+8、重庆大爆炸，不是偶然是天意；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+9、西安，天津不是病毒传染，就是疫苗打太多；
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+10、对国内战友3个保证：
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1）任何人不会拿走你的个人信息；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+2）共产党拿不走你的一个币；
 
+3）只赚不赔；
 
+11、共产党以非洲制美、以非洲制欧；
+
+12、黑龙江疫情期间很多镇子都是一个村一个村的埋，根本进不了火葬场；
+
+13、共产党改变风水的3大工程：三峡大坝，南水北调，毛泽东的水晶棺；
+
+14、网络上习近平私人生活不是最高机密，昆仑山是最高机密；
+
+15、七哥出生于吉林省磐石县红旗岭镇山河村；
+
+16、新中国联邦老年人50岁以后：国家必须负责养老，工作优先，工作高工资，工作免税；
+
+17、机构投资者目前被限制入场，如果放开，喜币分分钟涨到1000-2000之间；
+
+18、周永康石油帮，瑞士存了上万亿，王岐山拿走了；
+
+19、中国人寿王滨被抓，王岐山基本上结束了；
+
+20、中国保险就是要你命的保险，中国的银行就是抢你钱的银行；
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
