@@ -2,18 +2,37 @@
 ---
 
 
-## 【粤语配音】2022年1月9日：世界板块将大变
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1844776/)
+## 演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1844815/)
 
-紐約香草山-香港部
+翻譯：香草山翻譯部 – Eleutheria
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+据佛罗里达州警方报道，演员/喜剧演员鲍勃•萨吉特于今天被发现死于酒店，享年65岁。
 
-昆仑山脉跟咱们有什么关系呢？实际上是非常非常大的关系，喜马拉雅山跟咱们的关系非常非常大，昆仑山6500万年前形成的，但共产党的故事当中，竟然说自己曾经是昆仑山神的后裔啊，昆仑山上唯一的昆仑山脉，是在帕米尔高原架着共产党的祭坛，24小时，一年365天常委在那里供着它们的，每年常委都是要割血割脉、献血的地方，用中国特种兵部队，你们都不知道吧？昆仑山是万山之母、万山之主，因昆仑山生了所有的脉。
+警方接到酒店报案,称“酒店房中有一名男子不省人事”。现场探查后，橘县警长发推文说“他已经死亡在现场”。而探员也并未在现场发现任何违规或吸毒行为。 鲍勃•萨吉特因出演家庭喜剧Full House而出名。从其推特可看出他对2022年有一整年的演出安排
 
-昆仑山脉是由七大山，一大峰，号称“八兄弟”，这跟哈萨克斯坦由极大的关系，哈萨克斯坦有一座山脉，有一座湖，这座湖称为“姐妹湖”，有一座山脉是叫做“俄罗斯的精神之山”，俄罗斯人和哈萨克斯坦人是深信不疑的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-739.png)
 
-所以昆仑山有大动静，俄罗斯山脉有大动静，帕米尔高原有大动静，这个世界要大变哪，这两天你知道发生什么事吗？听说美、欧、俄、中，私下里明确交底牌了，如果你美国、欧洲敢再往前走，我们就该怎么着怎么着了，就是打核战么但是好消息是，据我所了解美、欧表态，几乎是搭都不搭理你，美国和欧洲现在对中共和对世界这个事儿，你可以从哈萨克斯坦的事儿看出来，世界的政治版块和世界的地域政治、能源政治..最后我们要说到世界上的风水一切都在改变。
+对昨晚的演出感到满意并感谢观众，可排除自杀可能。
 
-我绝不相信世界再能回到哈萨克斯坦事件的前夜，越南、阿富汗让美国人看到了，俄罗斯和中国再这样下去的话，不是阻止北欧东扩，而是（美欧）能不能阻止得了中俄西扩，中俄(统治)全球，从昆仑山脉、帕米尔高原到印度洋、到大西洋..北极现在已经是俄罗斯咄咄逼人了，所以说今天你看这个事儿大了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-741.png)
+
+但从更早推文中发现他已于去年11月底接种了中共病毒疫苗的加强针，所以推测死因多半为疫苗副作用导致的突发心脏病或脑血栓引起的猝死。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-743.png)
+
+视屏链接：[https://gtv.org/video/id=61dbb82787664c47acd2d047](https://gtv.org/video/id=61dbb82787664c47acd2d047)
+![This image has an empty alt attribute; its file name is 2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

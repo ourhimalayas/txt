@@ -2,27 +2,43 @@
 ---
 
 
-## 美国邮局应FDA的要求扣留包含有伊维菌素的货物
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843546/)
+## 简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843468/)
 
-翻译：zzballack
-上传：无明逆流
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据《网关专家》1月9日报道，在新冠大流行之前，硫酸羟氯喹和伊维菌素这两种药物通常不会引起人们的注意。但自从民主党人和媒体将这些完全安全、廉价和有效的药物政治化后，海关人员就开始注意这些药物。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12246A02D4-scaled-1.jpeg)图片来源：原新闻
-《网关专家》的一位读者收到了美国食品药品监督管理局（FDA）的一份信，信中说她从外国购买的一批含有伊维菌素的货物被邮局扣留。这批货物包含1个Ziverdo套装：醋酸锌片（Zinc Acetate）、多西环素（Doxycycline）胶囊、伊维菌素分散片（Dispersible Tablets）和2盒规格为单片12mg的伊维菌素药物Covimectin。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-17.jpg)
 
-FDA在信中写道，根据第801(a)(3)条，醋酸锌片、多西环素胶囊、伊维菌素分散片被拒绝进入美国。因为根据第201(p)条款，它们是未经批准的新药（Unapproved New Drug）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-697.png)图片来源：原新闻
-Covimectin已被确定为缺乏足够的使用说明。该药物在美国有售，因此不允许个人进口。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-698.png)图片来源：原新闻
-信中说，伊维菌素是一种未经批准的药物，不符合放行的条件，因为“此类产品必须符合《联邦食品、药品和化妆品法案》(Federal Food, Drug, and Cosmetic Act)或FDA执行的其他法律的要求。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-700.png)图片来源：原新闻
-这位读者说：“我曾读到过（海关扣留伊维菌素）的新闻，现在亲身经历了一回。我只是想让大家知道他们在做什么。我的每一个朋友和家人都没有接种新冠疫苗，他们在感染新冠病毒后，使用伊维菌素或硫酸羟氯喹以及锌、维生素C和D进行治疗，这样就不必住院。我（对药物被扣留）很生气，因为他们让我几乎无法得到所需药物。我有一个关节炎的问题，现在每天服用400毫克硫酸羟氯喹，已持续了6个多月，没有任何不良副作用。”
 
-尽管所有的故事、证词和研究表明伊维菌素对新冠病毒的早期治疗很有效，但FDA却拒绝授权这些药物用于新冠治疗，他们声称“伊维菌素还没有被证明对这些疾病是安全和有效的”。但是伊维菌素这数十年来一直在拯救生命，而且几乎没有任何副作用。而被FDA授予紧急使用授权的新冠疫苗却造成了巨大的灾难，因新冠疫苗死亡和遭受不良副作用的人比有史以来的任何其他疫苗都多。
+ 
+图片来源：Global Possibilities
 
-原文来源：[“The Drug Does Not Appear to Qualify for Release” – EXCLUSIVE: Post Office Holds Woman’s Foreign Shipment of Ivermectin at the Request of the FDA](https://www.thegatewaypundit.com/2022/01/drug-not-appear-qualify-release-exclusive-post-office-holds-womans-foreign-shipment-ivermectin-request-fda/)
+
+整理报道：小鱼儿
+编辑：小鱼儿/小红帽
+
+据自然新闻(Natural News)1月9日报道，简·鲁比（Jane Ruby）博士告诉公众，大药厂如辉瑞公司（ Pfizer）、摩德纳公司（Moderna）和强生公司（Johnson & Johnson）正在部署有毒批次的新冠病毒(COVID-19)疫苗。
+
+鲁比在1月3日的斯图·彼得斯秀节目(The Stew Peters Show)中说，“有证据表明，这些公司故意部署有毒批次的（新冠病毒疫苗）。”她说，分析家们通过批号确定了有毒的批次，现在是向全世界人民传递信息的紧急时刻。
+
+“他们所做的是，确定测试一半人口的致死量。这是进入人体研究之前，评估急性毒性的手段之一，”鲁比说。“这是在人们不知情和没有同意的情况下进行的。这违反了所有道德和监管规则。这些公司只是在肆无忌惮地进行，因为没有任何东西可以阻止他们。”
+
+鲁比分析，对于摩德纳来说，它是批次代码011 l 20。数字011是时间上的批次顺序，代表已经被开发了一段时间，并由公司部署。“ l ”是浓度，决定了它的毒性和不良反应的数量。数字20是定性的，这种成分在其批次中被认为是高毒性的。
+
+设法进入辉瑞和摩德纳系统的专业黑客能够验证这些批次，并有足够的证据列出迄今为止部署的所有摩德纳批次。
+
+黑客发现，这些公司在部署疫苗的地点和发放的剂量方面都非常具体。摩德纳来公司一直在美国分发致命的剂量，并在欧盟出口 “残疾”剂量。因此，与欧盟相比，美国的死亡率高出10倍。但与美国相比，欧盟的不良反应和残疾病例要高出10倍。
+
+参考新闻：[Dr. Jane Ruby: Big Pharma companies intentionally deploying toxic batches of COVID-19 vaccine – Brighteon.TV](https://www.naturalnews.com/2022-01-09-big-pharma-deploys-toxic-batches-covid-vaccine.html)
+
+发布：小红帽
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

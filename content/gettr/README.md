@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 11:11 PM (UTC)`
+
+1/09/2022 Miles Guo: Both Jiang Zemin’s faction and Zeng Qinghong’s faction deeply believe in the “Dragon” theory; the CCP is so superstitious about the idea that the Human Realm locates at South Putuo in Zhoushan and that the gods of heaven and earth live in the Kunlun Mountains and the Himalayas. Therefore, as long as the CCP exists, it will never allow Tibet or Xinjiang to become independent!<br/><br/>1/09/2022 文贵直播：“海派”江家、曾家相信“龙”，中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立！<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/10/23/468ad62c-da0b-7ca8-41fe-96293c86d8cb/out.jpg)
+
+---
+
 `@miles 1/10/2022 11:07 PM (UTC)`
 
 1/09/2022 Miles Guo: Why did Zeng Qinghong choose South Putuo to hold the South Putuo Meeting? Does that have to do with the Feng Shui of the entire China? Chongqing is inextricably linked to many major events in the history of China. Why is it the case that the people of Chongqing have been enduring the most hardships among all Chinese?<br/><br/>1/09/2022 文贵直播：曾庆红为何选在南普陀开南普陀会议？这和整个中华大地的风水有何关联？重庆和中国的诸多历史大事有着千丝万缕的关系，为什么说重庆人是中国中最辛苦的？<br/>
@@ -156,13 +163,6 @@ My first post. Just want to test how many Chinese people are there.
 
 2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析
 ![img](https://media.gettr.com/group44/origin/2022/01/09/12/fab1d5be-aa31-0f08-aff8-c8307d3837be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/9/2022 12:00 PM (UTC)`
-
-A vaccine developer is not fully confident about what's happened over the last 18 months. Some very new technologies such as mRNA vaccines are in their infancy. These are the COVID-19 vaccines that you are forced to vaccinate in order to remain in employment. His personal perspective is first no harm and second the principles of informed consent.<br/><br/>一位疫苗开发者对过去18个月发生的事情没有充分的信心。一些诸如mRNA疫苗的新技术还在萌芽阶段。这就是你们为了保住自己的工作被强制接种的新冠疫苗。他的个人观点是：首先疫苗接种无害，其次遵守知情同意的原则。
-![img](https://media.gettr.com/group1/origin/2022/01/09/12/7dc76986-eb43-42c5-58e0-f2a6c99dc1f9/out.jpg)
 
 ---
 

@@ -2,24 +2,22 @@
 ---
 
 
-## 法国数万人冒雨反疫苗限制令游行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842563/)
+## 日本放弃疫苗强制 明确接种必须“知情同意”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1842559/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月8日，在法国首都巴黎，数万法国人不顾倾盆大雨，愤怒地走上街头，反对马克龙政府为应对未接种疫苗而实施的最新限制令。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture27-4.jpg)
-抗议者们在整个巴黎喊出“自由”的口号以及对自由的诉求：人民有选择是否接种疫苗的自由。强烈要求未接种中共病毒疫苗者不应受到惩罚和歧视。
+1月7日，日本卫生部放弃了强制疫苗接种的规定，并将心肌炎警告贴在疫苗标签上，明确接种必须“知情同意”，同时禁止歧视拒绝接种疫苗的人士。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture27-3.jpg)
+首先，日本卫生部将两种mRNA疫苗对年轻男性造成心肌和心包炎症列为可能产生的严重副作用，并要求医院详细报告接种疫苗后28天内出现的不良事件；其次，强调知情同意和身体自主权。必须在提供必要信息之后，得到许可才能接种；最后，禁止歧视那些拒绝接种实验性mRNA疫苗的人士，并设立“人权”网页，处理相关投诉。
 
-随后巴黎的抗议场景被复制到法国各地的城镇。法国人民反对政府关于中共病毒疫苗疫苗的立法限制措施的情绪越来越强烈。
+与有些国家正实行欺骗、胁迫的强制疫苗政策不同，日本卫生部门正采取一种明智的、合乎道德的做法，它将决定的权利交给接受者个人，或者由父母履行对未成年人的监护责任。
 
-有关人士评论，此次游行抗议表明法国人民逐渐从中共病毒和疫苗灾难中觉醒过来。
-
-参考链接：[法国数万人冒雨反疫苗限制令游行](https://news.sky.com/story/covid-19-tens-of-thousands-protest-in-france-over-emmanuel-macrons-planned-coronavirus-restrictions-12512072)
+参考链接：[日本放弃疫苗强制 明确接种必须“知情同意”](https://brisbanenationalreview.com/health/japan-drops-all-vaxxine-mandates-places-myocarditis-warning-on-label/?fbclid=IwAR1QGEx0AFSE8W8EKdSr4M6GUWCusXBnLhhz5xt3BHfjM24Xlq6kaQq0zo4)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
+总编：文特
 编辑：文特
 校对/发稿：Hetangyuese
 
