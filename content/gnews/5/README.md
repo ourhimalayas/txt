@@ -2,72 +2,168 @@
 ---
 
 
-## 梅根·凯利撕毁“先知”福奇：我们被你骗了
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1843864/)
+## 俄罗斯会后聊七哥 中共5大银行以7为主题都是天意
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1843871/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=61dc125e87664c47acd2edd3](https://gtv.org/video/id=61dc125e87664c47acd2edd3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-702.png)图片来源: conservativebrief.com
+郭文贵
+Miles Guo
 
-前福克斯新闻主持人和收视率最高的播客梅根·凯利（Megyn Kelly）抨击拜登政府的顶级医疗顾问，“先知”安东尼·福奇博士，指责他在关于 COVID-19 和大流行的所有协议、任务和建议方面，向美国人“撒谎”。
+如果你们真知道爆料革命的十亿分之一的力量
+If you really know one-billionth of the power of the whistleblower movement
 
-在她本周节目的一个片段中，她引用了福奇几个颠三倒四的说辞，包括隔离时间框架、疫苗保护作用和戴布口罩。
+你觉得你曾经过去几年来说的话、做的事儿
+for everything you have said and done in the past few year
 
-“事实上，‘10 天’（隔离）从一开始就是一个虚构的标准，”凯利说，他指的是美国CDC最近几天实施的一项改变，减少了之前的隔离时间，只要人没有症状，10 天的隔离就会是5 天。
+你都觉得是个傻子
+you would feel you are a fool
 
-“六英尺的社交距离规则、布面口罩规则，以及群体免疫规则的 70% ，都是如此。我可以继续罗列，”她继续说道，并提到了长期担任国家过敏和传染病研究所（NIAID）所长的福奇。
+我今年2022年, 我在大直播中第一句话
+My first sentence in the big live broadcast this year 2022
 
-“关键是：我们被欺骗了，我们被极力地误导了，我们被像福奇这样的政府官僚像拴在绳子上的骡子牵着走，福奇想在他年收入超过 40 万美元的同时，关闭你的工作——我们得知他本周将退休，每年的退休金超过 350,000 美元，”凯利继续说道。
+我深思熟虑地告诉大家
+I will tell everyone thoughtfully
 
-“这些人想在学校整天让你的孩子戴着口罩，而他们却不用戴口罩享受晚餐和大都会晚宴，”凯利继续说道，这可能是指自称为民主党社会主义者的纽约众议员亚历山德拉·奥卡西奥·科尔特斯（AOC）和其政党的其他成员的派对。AOC在去年秋天穿着一件写着“向富人征税”的连衣裙，出现在活动中。
+如果你们真地觉得你们在爆料革命当中，你都懂了
+if you really think that you understand all in the midst of the whistleblower movement
 
-“他们想吓唬父母好一次又一次地把实验性疫苗注射进孩子们——不是一次，而是两次，然后是强制性的第三次，”她继续说道。“或不让孩子运动、不让孩子上学，或有任何形式的室内娱乐，尽管数据表明：未接种疫苗的年轻人面临的风险远低于完全接种疫苗的成年人。”
+我可以告诉你，你连懂十亿分之一你都是个傻子
+I can tell you that you would be a fool even you think you understand one billionth of it
 
-在她的节目早些时候，这位前福克斯新闻明星抨击了其他媒体人物，**这些人物似乎对“先知”福奇等政府官僚有一种谄媚的痴迷。**
+明年你再看去年发生的事
+You can look back next year to see what had happened last year
 
-“那是个好女孩，”凯利嘲笑极左翼、前共和党MSNBC 主持人尼科尔·华莱士（Nicolle Wallace），她最近吹嘘自己接种了多种 COVID 疫苗，并确保在离开家之前戴上口罩。
+你觉得你就是个（傻子）, 真的觉得自己不好意思
+You will feel that you are a fool, and it’s really embarrassed
 
-上个月，《每日电讯报》的名誉主编本·夏皮罗（Ben Shapiro）列出了左翼媒体已经转向的几件典型的事，“当人们清楚地看到，新冠病毒实际上并不是一个异教之神，只对未受洗礼的川普选民进行报复：”
+我给你举个最简单的例子
+Let me give you a simple example
 
-1. 布口罩对Omicron无效（CNN的温丽娜）；
+盖特，我要在三个月以前跟你说盖特发生这样的事，
+Gettr, if I told you three months ago that something like this happened to Gettr
 
-2. 接种疫苗的人可以传播并感染新冠病毒；
+你一定觉得我放狗屁
+you would definitely think I’m bullshiting
 
-3. 死亡率堪比流感（克里斯·海斯Chris Hayes）；
+我告诉你某银行行长跟我说句话
+I’ll tell you that the director of an individual bank had a word with me
 
-4. 许多人住院是带有新冠病毒的，而不是因为新冠病毒而住院（福奇）；
+七哥，你信不信
+(The bank director said), Brother Seven (Miles Guo), do you believe that?
 
-5. 自然免疫是 Omicron 没有那么毒害的原因 (福奇)；
+我们就刚刚在俄罗斯回来
+We just came back from Russia
 
-6. 我们必须考虑社会需求，而不仅仅是传播预防 (CDC)；
+我在俄罗斯的会上
+I was in the meeting in Russia
 
-7. 无症状者不应进行检测（NFL）；
+所有人都严肃认真地开会
+where everyone took the meeting seriously
 
-8. 我们应该关注住院和死亡人数，而不是病例率（拜登）；
+歌颂习太阳
+and they were praising Xi Jinping
 
-9. 儿童没有危险，学校应该保持开放；
+习太阳和普京总统的个人关系改变了世界
+and saying that the personal relationship of Xi and Putin has changed the world
 
-10. Covid 主要是一种影响免疫功能低下者和老年人的疾病，我们不应该关闭社会。
+大家都是鼓完掌以后，一下来，他说，走到这个走廊里
+Everyone came down after applauding and walking into this corridor
 
-根据 CQ/Roll Call 的说法，福奇上周表示，在公共卫生官员“反对”之后，CDC 正在重新审视其关于五天隔离建议的检测要求：
+你知道你们没去过红场
+You know you haven’t been to Red Square
 
-81 岁的美国顶级传染病专家，本周在周日的 ABC 节目中与乔治·斯蒂芬诺普洛斯 (George Stephanopoulos) 交谈时透露，美国CDC现在正在考虑将检测作为其针对无症状个人，或密切接触者，修订的 COVID-19 指南的一部分。如果近一周有人 COVID 呈阳性——CDC建议的隔离时间将从10 天缩短到 5 天。
+红宫的外交的这个神秘走廊，是绝对安全的啊
+This mysterious corridor of diplomacy in the Red Palace is absolutely safe
 
-福奇承认，“有人担心”为什么无症状但被感染的人在不到一周的时间内，被批准重新进入公共领域，而没有先进行病毒检测呈阴性？
+他说，你知道那个厢廊里边，所有人谈的是什么？
+He said, you know what everyone is talking about in that corridor?
 
-“CDC非常清楚这方面存在一些阻力，再看一遍，可能有一个选项，测试可能是其中的一个，”以及戴口罩的建议，他说。
+郭文贵、爆料革命、新中国联邦、喜联储，喜币
+It’s about Guo Wengui, whistleblower movement, New Federal State of China, Himalaya Federal Reserve, and HCoin
 
-**点评：梅根凯利所做，才是一个媒体人的职责：基于事实，说出真话！**
+还有这个家伙会唱歌
+There was a guy who can sing
 
-新闻来源 : [conservativebrief.com][Megyn Kelly Rips ‘Prophet’ Anthony Fauci: ‘We Have Been Lied To’](https://conservativebrief.com/megyn-kelly-57553/?utm_source=CB&amp;utm_medium=69)
+竟然这个俄罗斯人竟然当场点出来歌来放
+This Russian guy actually picked out a song (Miles Guo’s song) on the spot to play
+
+所有人都吓得，把中方人都吓懵了
+Everyone was scared, and frightened those Chinese officials
+
+这个时候，他说，出现了一个滑稽般的笑话
+At that time, there was a ridiculous joke
+
+他说普京突然转过来了
+He said that Putin suddenly turned around
+
+哎哎哎，你们能不能别在这儿放这个歌？
+hey hey, can you guys stop playing this song here?
+
+别在这放这个歌，然后哈哈大笑，他走了
+Don’t play this song here, then laugh out loud and left
+
+我说这个你们觉得，我要我在三年前说
+I’m telling this, but if I told you these three years ago
+
+你们觉得唐平、郭文贵就是个骗子，是吧？
+you would have thought that Tang Ping and Guo Wengui are liars, right?
+
+那就是神经病
+That would be crazy
+
+但是你看，在这种世界的最关键的场合里边
+But you see, in the most critical occasions of this world
+
+有人在谈论而且把它当成不是笑话，当成一个大家可期待的
+there are people talking about it and not treating it as a joke, instead, as something that everyone can look forward to
+
+然后你看到几个银行, 我要说这几个
+And then you see a few banks which I’m going to say
+
+五大银行会以这个以“7”为主题
+The five major banks will take the “7” as the theme
+
+你会说我胡说八道
+You would say I’m nonsense
+
+什么时候定的？
+When was this set?
+
+我告诉大家10月1号定的方案
+I’ll tell you that it was the plan set on October 1st
+
+我向全中国人说
+I’ll say it to all the Chinese people
+
+你问问所有人是不是10月1号定的方案
+You can go ask everyone if it is the plan made on October 1st
+
+而且10月1号跟咱音乐啥关系? 大家去想想去吧
+And what does October 1st relate with our music? Go think about it.
+
+这叫天意。
+This is called providence
 
 * * *
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+Date: 01/06/2022
+原视频标题: 俄罗斯会后聊七哥 中共5大银行以7为主题都是天意
+Both of the CCP’s five major banks using the theme of 7 and Mile Guo (Brother 7) become a topic after a meeting in Russia are providence
+原视频日期：2022/01/05
+原视频链接: [**https://gettr.com/post/pmm2222b0c**](https://gettr.com/post/pmm2222b0c)
+任务编号：KC404(3428)
+视频时间段 : 0:00-02:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,35 +2,28 @@
 ---
 
 
-## 奥地利总理接种三剂疫苗仍旧感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843688/)
+## 香港官员聚餐确诊阳性被隔离，民众哗然
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1843695/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月8日，奥地利总理府发布消息，总理内哈默中共病毒检测报告阳性，目前正在自我隔离中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-10-上午9.55.16.png)
-奥地利总理府声称，内哈默最早于1月5日晚间感染中共病毒。证据是，当天他与维安特勤团队的一名成员接触后，该保镖于6日确诊。随后内哈德测试，结果显示中共病毒阳性。
+**撰稿：东京樱花团/盖特第一批注册**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-15.png)
+[图片来源](https://www.sohu.com/a/515228121_189130)
 
-内哈默已经完成接种疫苗第三针，但仍然被中共病毒感染。
+病毒在港肆虐，当局要求民众采取严格的管控措施，此时曝出33名政要聚餐时被感染并已隔离，这一丑闻引得民怨沸腾。
 
-参考链接：
-1）[Austrian Chancellor Nehammer Tests Positive for Coronavirus](https://www.usnews.com/news/world/articles/2022-01-07/austrias-chancellor-nehammer-tests-positive-for-coronavirus)
-2）[Austrian Chancellor Karl Nehammer tests positive for COVID-19](https://www.politico.eu/article/austrian-chancellor-karl-nehammer-tests-positive-for-covid-19/)
-3）[打3劑疫苗仍突破性感染 奧地利總理確診自我隔離中](https://udn.com/news/story/121707/6019320?from=ddd-umaylikenews_ch2_story)
+1月3日香港各界180人参加了某政界大佬的寿宴，因有奥密克戎病毒感染者同席，事后33人确认感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+5日港府宣布了严格的检疫措施，包括禁止下午6点以后外出就餐，健身房和卡拉OK酒吧等暂停营业。该地区的居民对这些措施表示强烈反对，因为许多人的生意受到限制，收入减少，此时曝出这种丑闻令他们非常气愤。
 
-总编：文真
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[香港高官ら宴会でどんちゃん騒ぎ、陽性者判明で隔離…世論反発「困っている人も多い中で許せない」](https://www.yomiuri.co.jp/pluralphoto/20220110-OYT1I50069/)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

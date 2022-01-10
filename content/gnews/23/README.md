@@ -2,49 +2,35 @@
 ---
 
 
-## 深圳又新增1例确诊病例
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843662/)
+## 奥地利总理接种三剂疫苗仍旧感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843688/)
 
-作者：首尔天池农场 追着曙光跑
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月8日，奥地利总理府发布消息，总理内哈默中共病毒检测报告阳性，目前正在自我隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-10-上午9.55.16.png)
+奥地利总理府声称，内哈默最早于1月5日晚间感染中共病毒。证据是，当天他与维安特勤团队的一名成员接触后，该保镖于6日确诊。随后内哈德测试，结果显示中共病毒阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+内哈默已经完成接种疫苗第三针，但仍然被中共病毒感染。
 
+参考链接：
+1）[Austrian Chancellor Nehammer Tests Positive for Coronavirus](https://www.usnews.com/news/world/articles/2022-01-07/austrias-chancellor-nehammer-tests-positive-for-coronavirus)
+2）[Austrian Chancellor Karl Nehammer tests positive for COVID-19](https://www.politico.eu/article/austrian-chancellor-karl-nehammer-tests-positive-for-covid-19/)
+3）[打3劑疫苗仍突破性感染 奧地利總理確診自我隔離中](https://udn.com/news/story/121707/6019320?from=ddd-umaylikenews_ch2_story)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-
-
-据深圳卫健委1月8日的通报，8日下午，深圳市在对1月7日报告的2例中共病毒（新冠肺炎）确诊病例的密切接触者进行核酸检测排查中，发现1例中共病毒确诊病例。目前，深圳市累计报告3例确诊病例。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9508197.jpg)图片来源：网络 
-
-确诊患者是位女士，家住在龙岗区吉华街道西环路2号，是龙岗区坂田街道贝尔路神舟电脑大厦某公司员工。1月8日，核酸初筛呈阳性，后经深圳市疾控中心复核为阳性，现已转送至深圳市第三人民医院应急院区隔离治疗。
-
-同时，布吉街道布吉社区壹村东心岭八巷55号楼栋、吉华街道西环路2号长龙富辰公寓两区域，自2022年1月8日21时起，被调整为中风险地区。
-
-新闻来源：[https://mp.weixin.qq.com/s/p34r5aeP\_bnjqe8Rmm2fzg](https://mp.weixin.qq.com/s/p34r5aeP_bnjqe8Rmm2fzg) [https://mp.weixin.qq.com/s/KTVBIrU-hOUrb4P4Re0Zmg](https://mp.weixin.qq.com/s/KTVBIrU-hOUrb4P4Re0Zmg)
-
-编辑/校对/发稿:小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+总编：文真
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

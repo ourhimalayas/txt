@@ -2,36 +2,51 @@
 ---
 
 
-## 英国医生公开反对卫生部长的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843693/)
+## 中共人寿董事长王滨被查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843722/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月8日，英国媒体播放的一则视频显示，英国卫生部长萨吉德·贾维德近日访问伦敦南部的国王大学医院，询问重症监护病房的医护，对于国家卫生系统工作人员强制接种中共病毒疫苗的意见。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-10-上午9.55.08.png)
-据悉，英国已经通过的有关法律，自2022年4月1日起，除非获得豁免，所有NHS工作人员都必须接种中共病毒疫苗，否则会被开除。
+作者：纽约香草山 侠肝义胆
 
-一位自疫情爆发以来，就在治疗中共病毒的麻醉医生斯蒂夫·詹姆斯表达了强烈不满。他强调，自己感染过中共病毒，已经产生了抗体，并在工作中得知，接种疫苗根本无法产生抗体，也无法阻止病毒的传播。他的一些同事也和他持有同样的观点。他还强烈质疑了未接种疫苗的医生被开除的合理性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-虽然，卫生部长并未明确表态放弃疫苗，但是同意将请专家对疫苗的需求情况进行评估。
 
-参考链接：
-1）[https://gettr.com/post/pn6sdl732e](https://gettr.com/post/pn6sdl732e)
-2）[COVID-19: Sajid Javid directly challenged on mandatory coronavirus jabs by unvaccinated NHS doctor](https://news.sky.com/story/covid-19-sajid-javid-directly-challenged-on-mandatory-coronavirus-jabs-by-unvaccinated-nhs-doctor-12511224)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+据中共媒体1月8日报道，中共中央纪委国家监察委网站通报称，中共人寿保险公司党委书记兼董事长王滨，涉嫌严重违纪违法，正接受中纪委中共监察委员会纪律审查和监察调查。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/bb58-4bb12be71e7874b9e8b18c55ac609911.png)图片来源：网络 
+
+这也是当日落马的第二个中共高官。稍早前，中共西藏自治区政府副主席张永泽，已被通报涉嫌严重违纪违法，被中纪委国监委审查。 此番被查的中共人寿董事长王滨，有多年保险及银行等金融机构工作覆历，长期担任中共国有金融企业重要职务。
+
+有关人士分析，随着中共纪委监察委，继续在国有金融企业重点巡查，将有更多中共金融机构高官被查。
+
+新闻来源：
+
+[https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap](https://news.sina.cn/gn/2022-01-08/detail-ikyamrmz3904571.d.html?from=wap)
+
+编辑：Kathy文艺 校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

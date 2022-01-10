@@ -2,31 +2,36 @@
 ---
 
 
-## 西非国家经济共同体对马里实施全面经济制裁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1843773/)
+## 新中国联邦传递真相和情报
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1843789/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月7日，郭文贵先生在大直播中指出，新中国联邦传递的真相和情报，远超各国情报系统和主流媒体，这都离不开中共国内英雄战友的默默付出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/66283BEF-1739-47A0-AF97-CD6D48EA2548.jpeg)（图片来自《美国之音》）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-5.jpeg)
 
-据《美国之音》1月10号日报道，西非国家经济共同体（简称西非经共体）同意即日起关闭与马里的边境，并对其实施全面经济制裁，以此作为对马里过渡政府拖延原本承诺于下月举行选举的惩罚。
+世界各国在情报上花费千亿万亿，但在过去五年里，都远不及爆料革命给予世界的预警和真相。各国主流媒体被中共收买，不但公然撒谎，而且，无数次抹黑和诋毁爆料革命。
 
-马里过渡政府此前承诺将于2022年2月27日举行选举，然而近日又提出要将选举拖延至2025年12月再进行。
+郭先生说，无论是对哈萨克斯坦局势的分析，还是中共二十大的人士安排，爆料革命之所以每次都能正确地公布事态发展，不是猜测，是情报。这正是因为中共国内有无数英雄战友传递信息。这些战友冒着生命危险，为新中国联邦默默奉献，可能永远都是无名英雄，但是新中国联邦人会永远感激和牢记这些战友的付出。
 
-西非经共体在一份公报中表示，对马里过渡政府拟议的过渡时间表完全不可接受，因为它意味着一个非法的军事过渡政府将把马里人民作为人质。
+参考链接：
+1）[2022年1月7日郭先生大直播小飞象大雨围城速记：](https://gnews.org/zh-hans/1835201/)
+2）[https://gettr.com/post/pn6i9y76e5](https://gettr.com/post/pn6i9y76e5)
 
-此外，由15个成员国组成的西非经共体组织一致同意实施立即生效的额外制裁，包括关闭成员国与马里的陆地和空中边界；暂停非必要的金融交易；并冻结西非经共体中央银行和商业银行的马里国有资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-*参考链接：[西非经共体对马里实施经济制裁](https://www.voachinese.com/a/west-african-bloc-hits-mali-with-economic-sanctions/6389263.html)*
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
