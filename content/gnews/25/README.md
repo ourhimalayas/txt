@@ -2,76 +2,67 @@
 ---
 
 
-## 联邦航空管理局违反自己的安全准则推动实验性疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1840809/)
+## 前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1841783/)
 
-据《网关专家》作者：朱利安·康拉德森([Julian Conradson](https://www.thegatewaypundit.com/author/julianc/)) 2021年12月29日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image001-1.jpg)图片来自网络
-美国联邦航空管理局 (FAA) 因公然违反自己的安全准则以推动实验性 COVID -19疫苗而被曝光。
+前国务卿迈克·蓬佩奥： 北京的这些冬奥会将被称为种族灭绝奥运会。中国西部正在发生的事情简直就是种族灭绝。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【附彭佩奥接受福克斯采访视频，谈到中共是史上有记载的最大人权侵犯者、犯下种族灭绝罪、新冠病毒始于武毒所、运动员可能面临的安全风险，因此必须全面抵制北京冬奥会】
 
-根据FAA[自己的政策](https://www.faa.gov/about/office_org/headquarters_offices/avs/offices/aam/ame/guide/pharm/dni_dnf/)，飞行员在服用批准不到一年的药物后不应飞行，但该机构系统地忽略了这些规则，没有全面了解这些疫苗的长期影响，允许飞行员在接种疫苗之日起仅等待两天后就恢复飞行。
 
-根据FAA[规则](https://www.faa.gov/about/office_org/headquarters_offices/avs/offices/aam/ame/guide/pharm/dni_dnf/)：
 
-*对于任何药物，**AME**（航空体格检查员）应确定药物的使用条件、使用时间、频率以及药物的任何副作用。* *还应考虑潜在的安全影响。*
+> These winter games in Beijing will become known as the Genocide Olympics. What’s taking place in Western China is nothing short of genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+>  [pic.twitter.com/43gNfWsbsL](https://t.co/43gNfWsbsL)
+> — Mike Pompeo (@mikepompeo) [January 8, 2022](https://twitter.com/mikepompeo/status/1479859701135335424?ref_src=twsrc%5Etfw)
 
-*AME**不应向正在使用此类药物或药物治疗的申请人，颁发飞行员医疗证明。*
 
-• *FDA**（食品和药物管理局）在不到**12**个月前批准。**FAA**通常需要至少一年的新药上市后的经验，才能考虑进行航空医学认证。*
 
-***这一观察期让不常见的，但在航空医学上显著的不良反应会表现出来。***
+众议员吉姆·乔丹： 一年前的今天，大型科技公司封禁了川普总统。 太多人对他们的滥用权力保持沉默——从那以后，他们对保守派(包括我自己) 的审查更加肆无忌惮。 我们需要在为时太晚之前追究他们的责任。
 
-最重要的是，有问题的 COVID 疫苗并未得到 FDA 的完全批准。 相反，它们仍是根据该机构的EUA(紧急使用授权)发放的，因为截至目前，获得完全批准的疫苗复必泰(Comirnaty) 尚未在美国使用。
 
-换句话说，这些接种紧急使用授权疫苗的飞行员，传统上会失去飞行许可，但无论如何，仅仅两天后，FAA让他们飞行。
 
-根据FAA[网站](https://www.faa.gov/coronavirus/guidance_resources/vaccine_faq/)：
+> Big Tech banned President Trump a year ago today. Far too many people have been silent about their abuse of power—and it’s emboldened their censorship of conservatives (including myself) ever since. We need to hold them accountable before it’s too late.
+> — Jim Banks (@RepJimBanks) [January 8, 2022](https://twitter.com/RepJimBanks/status/1479877378251833352?ref_src=twsrc%5Etfw)
 
-***“联邦航空外科医生******(Federal Air Surgeon)******确定******FAA******医疗证书持有者在每剂辉瑞******(BioNTech)******、摩德纳***** *****(Moderna)******和强生******(Johnson & Johnson)******疫苗接种后***** *****48******小时内不得担任机长，或以任何其他身份担任所需的飞行机组成员。******”***
 
-*联邦航空外科医生在评估了有关这些**COVID -19**疫苗的，可用医疗信息和潜在副作用后做出了这一决定。”*
 
-本周早些时候，一群独立律师、医生和其他专家向FAA、交通部、司法部和几家大型航空公司的领导人提交了一封信，要求对该机构的违规行为敲响警钟。 要求官员立即标记所有接种疫苗的飞行员，并让他们重新检查疫苗已知的潜在副作用，例如凝血和其他心脏问题。
+美国国会及行政当局中国委员会： 中共国政府违背了对国际奥委会的承诺，因为环保人士、民主倡导者和中共政策批评者继续被拘留，这严重破坏了公民参与权。[#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
 
-他们在信中写道：”FAA强行要求接种疫苗，使飞行员和普通公众都处于危险之中！”。
 
-***“通知******FAA******，飞行员操作商用飞机违反了《禁止飞行条例》，《联邦法规》第******14******章第******61.53******条，也称为联邦航空法规和相关指南，即：禁止注射未经******FDA******批准的医疗产品，如接种******COVID-19******疫苗的飞行员获得体检通过。***** **
 
-*飞行员在飞行中，出现异常肌钙蛋白值和**/**或新的**ECG(**心电图**)**变化**/**心脏**MRI(**磁共振成像**)**变化**,**表明活动性心脏损伤和可能的急性心肌炎，**会增加心律失常、心脏骤停和死亡的风险；*
+> The Chinese government breaks the promises it made to the [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) as environmental activists, democracy advocates, and critics of Party policies continue to be detained, seriously undermining citizens’ right of civic participation. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [January 8, 2022](https://twitter.com/CECCgov/status/1479875642636316676?ref_src=twsrc%5Etfw)
 
-*通知**FAA**、所有商业航空公司和所有向商业航空公司提供保险的承运人，如未能立即调查此问题，应正确运用联邦禁飞规定，并禁止所有因不能显示健康的**D-**二聚体、肌钙蛋白、心电图和心脏**MRI**检查，**而可能导致大规模死亡的灾难性事件，造成过失方承担可能高达数亿美元的金钱责任的接种飞行员飞行。”*
 
-根据通过电子邮件与《大纪元时报》交谈的邓达斯(Dundas)说，如果其中一名飞行员在飞行中出现与疫苗相关的不良反应，FAA的疏忽可能会导致灾难。
 
-*“联邦航空局负责确保飞行公众的安全。* *相反，正如我们所说，**FAA**以及商业航空公司的行为，违反了他们自己的联邦航空法规和相关指南，这些指南告诉体检医师，不要向使用非**FDA**批准产品的飞行员颁发体检合格证明。”*
+众议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 把新冠病毒释放到全世界，让180万维吾尔人进了拘役营，并可能会入侵我们都盟友台湾。佐治亚恢复了选举的完整性。然而，“觉醒”的大公司们撤出了亚特兰大（在佐治亚的）职业棒球大联盟全明星赛，却对赞助北京冬奥会一点问题都没有。
 
-*“我正在谈论的部分的标题字面意思是‘不签发，勿飞行’，然后指示体检医师‘不签发’体检证明给使用**FDA**‘批准少于**12**个月’产品的飞行员。”*
 
-*飞行员在飞行时体内携带的产品甚至最近都没获得批准，这违反了上述措辞，他们在飞行时体内携带着**根本没有**得到**FDA**的批准注射剂（因为美国没有商业上可用的**COVID**疫苗已获得**FDA**批准）。”*
 
-这封信的另一位签名者是科迪·弗林特 (Cody Flint)，在空中驾驶飞机时经历了疫苗的不良反应后，他的飞行员职业生涯最近结束了。
+> China unleashed Covid into the world, put 1.8 million Uyghurs in internment camps, and may invade our ally Taiwan.
+> 
+> Georgia restored election integrity.
+> 
+> Yet, 'woke' corporations pulled out of Atlanta's MLB All Star Game but have no problem sponsoring the Beijing Olympics.
+> — Lance Gooden (@Lancegooden) [January 8, 2022](https://twitter.com/Lancegooden/status/1479832337894494211?ref_src=twsrc%5Etfw)
 
-这位34岁的农业飞行员甚至不记得他在飞行途中几乎昏厥后是如何着陆的，但幸运的是他最终安全着陆了。
 
-来自大纪元：
 
-*“当管状视野开始出现时，他**[**弗林特**]**正在驾驶他的飞机，而且他在接种疫苗后出现的头痛症加剧了。*
+比尔.格茨： 中共国科学家因窃取孟山都公司的商业机密 即一种先进的农具 而被定罪。它是北京百人计划的一部分，也被称为千人技术盗窃计划 （转华盛顿时报报道：被定罪的中共国科学家被北京的“人才”计划招募）
 
-*起飞约两小时后，他决定拉起飞机返回，感觉到耳朵里有一股“极度的压力”，然后立即“几乎昏厥，**[**感觉**]**头晕，迷失方向，恶心，并且**[**是**]**无法控制地颤抖。”*
 
-*作为一名商业飞行员，弗林特接种**COVID-19**疫苗后，第一次看**FAA**的**48**小时禁飞规则时，感到担忧。*
 
-*“我发现很难理解**FAA**是如何将安全目标从一整年的安全审查变成仅两天。至少可以说，飞行员在驾驶飞机时，经历**mRNA**型**COVID**疫苗严重不良反应，其危险性至少可以说是可怕的，致命的。”*
+> Chinese scientist convicted of stealing Monsanto trade secrets, an advanced farming tool, was part of Beijing’s Hundred Talents Progam, also known as Thousand Talents tech theft program [https://t.co/LfozJh859E](https://t.co/LfozJh859E)
+> — Bill Gertz (@BillGertz) [January 8, 2022](https://twitter.com/BillGertz/status/1479644303970295811?ref_src=twsrc%5Etfw)
 
-他补充说：“作为一名，在忙碌驾驶飞机时，经历了由于辉瑞COVID疫苗不良反应，导致悲惨的职业生涯结束的飞行员，我觉得我可以诚实可信地说出，飞行员在 接种COVID mRNA类型疫苗后，过早恢复飞行所带来的危险。”
 
-除了弗林特和邓达斯，其他几位著名专家也签署了这封信，包括航空航天职业医学专家特蕾莎·朗(Theresa Long)上校、小罗伯特·F·肯尼迪(Robert F. Kennedy Jr.)、彼得·麦卡洛(Peter McCullough)博士、瑞安·科尔(Ryan Cole)博士和儿童健康保护组织的玛丽·霍兰德(Mary Holland)。
 
-希望他们的警告在本可以避免的悲剧发生之前得到重视。至少FAA应该在这些飞行员接种一针疫苗后的较长时间内，定期对其健康状况进行筛查。任何不作为的都是犯罪，尤其是考虑到与这些 mRNA疫苗相关的已知不良事件的严重性。
+众议员肯·巴克： 自由世界正受到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的攻击。每个热爱自由的国家都有责任保护作为我们繁荣基础的权利和自由。 【附路透社报道：日美将签订新合同，加强防务合作以应对中共国威胁】
 
-原文链接：[https://www.thegatewaypundit.com/2021/12/faa-dangerously-ignores-guidelines-clears-vaccinated-pilots-fly-despite-not-issue-not-fly-policy/](https://www.thegatewaypundit.com/2021/12/faa-dangerously-ignores-guidelines-clears-vaccinated-pilots-fly-despite-not-issue-not-fly-policy/)
 
-翻译：飞利普 |校对：烟波浩淼 | 编辑& 发布：断播
+
+> The free world is under attack by China. Every freedom-loving country has a responsibility to protect the rights and liberties at the foundation to our prosperity.[https://t.co/dXPXcKK1I7](https://t.co/dXPXcKK1I7)
+> — Rep. Ken Buck (@RepKenBuck) [January 8, 2022](https://twitter.com/RepKenBuck/status/1479609042620194816?ref_src=twsrc%5Etfw)
+
+
 
  
 

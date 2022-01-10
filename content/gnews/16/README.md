@@ -2,25 +2,34 @@
 ---
 
 
-## 安省尼亚加拉卫生部暂停强制接种
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841455/)
+## 瑞典王储维多利亚二次感染中共病毒 已接种过三剂疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841841/)
 
-采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
+#### **撰稿：**日本东京方舟农场  老孙
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-6-edited.jpg)图片来源：TNH
+![](https://assets.gnews.org/wp-content/uploads/2022/01/850EBA09-D5AE-4C94-BE98-73307C8FB67D.jpeg)（图片来自界面新闻网）
 
+据《中央社》报道，瑞典王室8日宣布，王储维多利亚公主（Princess Victoria）确认感染新冠病毒（中共病毒），目前症状轻微，而她此前已完整接种过三剂疫苗。
 
-据加拿大[环球新闻]1月6日报道，安省尼亚加拉卫生部表示，由于完全未预料到“奥密克戎”病毒的破坏程度所造成社区医疗护理需求的激增，因此卫生部被迫暂停对其医护人员实施疫苗强制接种规定，转而要求未接种的雇员进行定期的病毒抗原测试和筛查。
+这是维多利亚公主第二次感染中共病毒。去年3月，维多利亚夫妇就曾感染病毒，但未出现重症。
 
-此外，因目前医务工作者短缺和感染 “奥密克戎”的患者激增，尼亚加拉卫生部将关闭位于伊利堡的紧急医疗中心，并将其中的护士和医生部署到该地区的其他急诊部门。
+另据媒体报道，本月4日，瑞典国王卡尔十六世古斯塔夫和王后西尔维娅也被确诊感染中共病毒，目前正在家中隔离。
 
-报道称，尽管如此，当局仍将致力于全员疫苗接种计划，并在以后不确定的时间继续进行。据官方资料显示，目前安省医护人员的疫苗接种率已达93%，因此这次暂停执行的是第三剂疫苗接种。
+根据瑞典公共卫生局公布的数据显示，截至本月5日，在瑞典12岁及以上人群中，接种至少一剂疫苗的比例为85.9%；接种两剂疫苗的比例为82%。
+
+然而，瑞典的官方数据却同时显示，目前瑞典各地中共病毒检测阳性率的平均数为20%。其中，首都斯德哥尔摩地区的阳性率最高，为26%，比前一周增加了38%。
+
+目前，奥密克戎是瑞典最主要的流行毒株。
+
+*参考链接：[完整接種疫苗 瑞典王儲維多利亞公主2度確診](https://www.cna.com.tw/news/aopl/202201090007.aspx)*
 
 * * *
 
-原文链接： [Niagara Health pauses mandatory COVID-19 vaccination program due to ‘intensity’ of Omicron](https://globalnews.ca/news/8492887/niagara-health-pauses-mandatory-vaccination-program/)
+*素材采编：老孙*
 
-[Mandatory Vaccination for all Staff and Physicians](https://www.niagarahealth.on.ca/site/news/2021/10/26/mandatory-vaccination-for-all-staff-and-physicians)
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

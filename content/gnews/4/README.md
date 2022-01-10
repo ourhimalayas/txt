@@ -2,37 +2,40 @@
 ---
 
 
-## 美国会议员质疑爱彼迎非法持续提供新疆房源
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1841875/)
+## 瑞士军队禁用WhatsApp、Signal和Telegram
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841940/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FC6D0583-5C56-4E53-8E1C-3D8E2BFC9E90.jpeg)（图片来源：美联社）
-
-1月7日，美国两位议员致函全球知名民宿出租平台爱彼迎（Airbnb），质疑其非法持续提供新疆房源。
-
-据《自由时报》报道，美国国会及行政部门中共问题委员会（CECC）主席、参议员默克利（Jeff Merkley），以及该委员会共同主席、众议员麦高文（James McGovern）于1月7日致函爱彼迎，对其非法持续提供新疆房源提出质疑。
-
-据了解，去年有一篇调查报告发现，爱彼迎公司提供的14个新疆房源位于直属中共中央副省级单位——“新疆生产建设兵团”所持有的土地上。然而该兵团早在2020年就因侵犯新疆人权，违反《全球马格尼茨基法案》而被美国财政部制裁。因此，爱彼迎持续在新疆提供房源的行为或已违反了美国政府的制裁令。
-
-两位议员还在信中指责爱彼迎从不曾公开谴责在新疆持续发生的种族灭绝，以及其它针对中共国少数民族令人震惊的系统性人权侵犯行为。
-
-爱彼迎公司总部位于美国旧金山，是下月开幕的北京冬奧会的15个主要赞助商之一。此前，由于中共在新疆持续进行种族灭绝行为，美国白宫已宣布将不派官方代表团参加北京冬奧会。
-
-*参考链接：*
-
-1. [*https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html*](https://www.voachinese.com/a/CECC-airbnb-xinjiang-20220107/6387598.html)
-2. [*https://news.ltn.com.tw/news/world/paper/1494838*](https://news.ltn.com.tw/news/world/paper/1494838)
-3. [*https://gnews.org/zh-hans/283146/*](https://gnews.org/zh-hans/283146/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Swiss-army.jpeg)图片来源： Fabrice Coffrini/AFP
 
 
-* * *
+编译：小红帽
 
-*素材采编：海星*
+根据《RT新闻》1月7日报道，**瑞士媒体本周报道，瑞士士兵被要求停止使用WhatsApp、Signal和Telegram，转而使用瑞士国内的信使，理由是保护数据。**
 
-*编辑：青衣青青*
+据瑞士媒体报道，指挥官和参谋长在12月底收到一份指示，告知他们新的规则。该指示称，军队人员现在应使用瑞士开发的Threema Messenger，无论是官方还是私人通信，其中包括士兵和他们的亲属之间的聊天。
 
-*发布：miumiu*
+目前还不清楚对那些不停止使用WhatsApp或其他外国信使的人是否会有任何制裁。
+
+据报道，军队还将支付下载该应用程序的费用–4瑞士法郎（4.35美元）。据报道，该公司收取的年费也将由军队支付。
+
+军方发言人丹尼尔·雷斯特（Daniel Reist）告诉法新社，这些建议适用于军队中的每个人，包括新入伍的士兵和返回接受训练的士兵。瑞士对所有19岁并被认为适合服役的男性公民实行义务兵役制。
+
+军队发言人告诉当地媒体，此举是出于对数据安全的担忧。与外国应用程序不同，Threema受瑞士法律管辖，并符合欧盟的《通用数据保护条例》。
+
+WhatsApp和Signal等美国应用程序受美国云法案管辖。该法案允许美国当局访问美国应用程序运营商持有的数据，即使这些数据存储在美国境外。美国也可以通过法律请求要求公司交出用户信息。在这种情况下，Telegram只要为美国客户提供服务，也可能会受到该法案的约束。
+
+新闻来源：[WhatsApp, Signal & Telegram banned by Swiss Army — RT World News](https://www.rt.com/news/545502-switzerland-army-ban-whatsapp-privacy/)
+
+*发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
