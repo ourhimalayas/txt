@@ -2,38 +2,83 @@
 ---
 
 
-## 有声|盖特拿下苹果应用商店排名第一
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841326/)
+## 2022年1月9日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841377/)
 
-配音：香草山佛教部 – 李傻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月6日，盖特官方账号发盖文称：盖特在苹果应用商店中排名第一，在谷歌Play商店排名第二。特此感谢所有的用户，让我们取得这样的成绩！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-06.22.25.046.jpg)
-文贵先生在当天下午也就此事发了两个盖特，和大家分享这一好消息，并说：奇迹就这样发生了，正道得天道！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot_副本-1.jpg)
+视频连接：[2022年1月9日 文贵大直播：青海地震几大山脉蓝莲花；西安疫苗变化重庆大爆炸；中共二十大人事安排党分；哈薩克斯坦局势进展分析-Gettr](https://gettr.com/streaming/pn8v876876) 或[2022年1月9日 文贵大直播：哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王滨被调查-GTV](https://gtv.org/video/id=61dade8c4658a73785d25465)
 
-原文链接：[盖特拿下苹果应用商店排名第一](https://gnews.org/zh-hans/1831228/)
+1、王毅去哈萨克斯坦递情报，美欧要颠覆哈萨克斯坦；
 
-音频处理：喜山必胜Maverick
+2、俄中威胁美欧，颠覆哈萨克斯坦要打核战，美欧不搭理俄中
 
-**发稿：**Daxia
+3、孟加拉国也会有大动静；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+4、马建、张越在江家和胡锦涛两边摇摆，被干掉；
 
-**更多资讯，更多关注**
+5、共产党迷信，认为昆仑山是共产党权力的来源；
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+6、共产党屏蔽了互联网昆仑山的一切信息；
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+7、曾庆红自认为是海派和江家一样相信龙，相信舟山南普陀；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+8、重庆大爆炸，不是偶然是天意；
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+9、西安，天津不是病毒传染，就是疫苗打太多；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+10、对国内战友3个保证：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+1）任何人不会拿走你的个人信息；
 
+2）共产党拿不走你的一个币；
 
+3）只赚不赔；
+
+11、共产党以非洲制美、以非洲制欧；
+
+12、黑龙江疫情期间很多镇子都是一个村一个村的埋，根本进不了火葬场；
+
+13、共产党改变风水的3大工程：三峡大坝，南水北调，毛泽东的水晶棺；
+
+14、网络上习近平私人生活不是最高机密，昆仑山是最高机密；
+
+15、七哥出生于吉林省磐石县红旗岭镇山河村；
+
+16、新中国联邦老年人50岁以后：国家必须负责养老，工作优先，工作高工资，工作免税；
+
+17、机构投资者目前被限制入场，如果放开，喜币分分钟涨到1000-2000之间；
+
+18、周永康石油帮，瑞士存了上万亿，王岐山拿走了；
+
+19、中国人寿王滨被抓，王岐山基本上结束了；
+
+20、中国保险就是要你命的保险，中国的银行就是抢你钱的银行；
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

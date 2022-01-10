@@ -2,34 +2,40 @@
 ---
 
 
-## 曾经想夺走罗纳尔多，如今中共国足球破产了 （三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1841206/)
+## 有声|洛杉矶首例中共病毒与流感共同感染病例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841369/)
 
-编译：七龙珠
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月5日，据当地媒体消息显示，一洛杉矶中共病毒测试点宣布检测到第一例“florona”病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-09-232921.jpg)图片来源：elconfidencial.com
+据了解，flurona病毒是中共病毒和流感的共同感染体，此前已在美国、巴西、以色列等地被发现。
 
-接上篇：【[曾经想夺走罗纳尔多，如今中共国足球破产了 （二）](https://gnews.org/zh-hans/1841173/)】
+当地卫生局某发言人表示，洛杉矶在最近的检测中发现，有多例患者的中共病毒和流感测试皆呈阳性。而该发言人称，奥米克戎的大流行加剧了民众同时感染两种病毒的风险。
 
-这位前锋指出了最终吓跑了那些去中共国挣钱的明星的另一个缺点：“我在萨尔茨堡上了飞机，当时的规定是允许11人中有3名外国人，还有2人候补。而当我14个小时后降落在中国时，他们改变了规则，候补的两人不得不被排除在球队之外。想象一下佩莱格里尼，他的球队里有拉维奇、马斯切拉诺、姆比亚、热尔维尼奥……”
+原文链接：[洛杉矶首例中共病毒与流感共同感染病例](//gnews.org/zh-hans/1833402/)
 
-在曼萨诺看来，“中共国希望在足球方面与日本和韩国相媲美。他们参加了2002年的世界杯，这让他们大开眼界。但那届世界杯是在日本和韩国举行的，这两个国家作为组织者已经在亚洲腾出了两个名额。2014年，中共国家主席习近平希望在那届世界杯后将中共国变成一个强国，并批准了一份宣言，其中将足球作为学校的必修课。那是中共国足球和超级联赛的繁荣时期”。
+音频处理：喜山必胜Maverick
 
-这位教练看到了竞争，并肯定地说：“这比超级联赛开始时更糟糕，因为除了浪费钱之外，现在还有控制措施，对外国人的工资进行限制，转会的价格和拥有俱乐部的公司名称的撤销。这些措施使联赛对外国明星没有吸引力。”
+**发稿：**Daxia
 
-两人都非常感谢在中共国的经历。索里亚诺坦言，“就个人而言，这是一次独特的经历。无论我走到哪里，我都不会经历类似的事情。像北京或上海这样的城市是惊人的，几乎是科幻小说。两年来，都是令人难忘的经历，但我不瞒你说，我现在更放松了”。而戈友在谈话的最后指出，“在我上次来之前，他们给了我很多钱让我续约。但最后，当你看到他们不听你的建议，他们是如此不耐烦，根本不考虑中期工作计划时，你就会感到厌倦。这也是我回来的原因。这是一个令人难以置信的经历，他们的工作方式完全不同”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-今天，超级联赛正处于破产的边缘，受到威胁到所有球队的财政危机的打击。外国球星已经都离开了，他们中有人抱怨不给钱，他们的球队派出青年队参加欧洲冠军联赛，因为担心大流行病的传染。除了经济危机和大流行病的破坏性影响之外，政府的规定也让那些把俱乐部当作商机购买的投资公司完蛋了，而这些公司如今已经变成了废墟。习近平的梦想变成了一场噩梦，足球不再是学校的必修课，而威胁要将克里斯蒂亚诺-罗纳尔多这样的球星从大联盟中抢走的超级联赛，也将是一个没有魅力和兴趣的联赛。
+**更多资讯，更多关注**
 
-**新闻来源：**[elconfidencial.com] [Te querían quitar a Cristiano Ronaldo y ahora están en la ruina: el fútbol chino quiebra](https://www.elconfidencial.com/deportes/futbol/internacional/2022-01-09/quitar-cristiano-ronaldo-ruina-futbol-chino-quiebra_3353557/)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*审核：Aries的星*
-*校对 : 信心满满*
-*发布：信心的选择*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

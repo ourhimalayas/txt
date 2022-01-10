@@ -2,25 +2,40 @@
 ---
 
 
-## 安省尼亚加拉卫生部暂停强制接种
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841455/)
+## 有声|博裕资本面临习近平监管挑战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841764/)
 
-采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%9D%A1%E5%B9%85-1.png)
+位于香港的私募基金博裕资本于2011年成立，对创始人Sean Tong来说，江泽民之孙江志诚的加盟为企业带来美好前景和“红二代”标志。Tong之前管理美国私募General Atlantic的中国投资组合，Alvin Jiang江志诚在加入博裕时年仅24岁，从哈佛大学毕业并刚刚在高盛开启职业生涯。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-6-edited.jpg)图片来源：TNH
+10年过后，由于大陆科技企业发展的红利，博裕已是中国最成功的投资者之一，去年该基金募集了将近70亿美元。
+
+但是最近，技术领域开始受到政府监管压力，北京强调“共同富裕”而不再是市场成功，博裕现在需要调整战略以应对。
+
+原文链接：[博裕资本面临习近平监管挑战](https://gnews.org/zh-hans/1839323/)
+
+音频处理：喜山必胜Maverick
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-据加拿大[环球新闻]1月6日报道，安省尼亚加拉卫生部表示，由于完全未预料到“奥密克戎”病毒的破坏程度所造成社区医疗护理需求的激增，因此卫生部被迫暂停对其医护人员实施疫苗强制接种规定，转而要求未接种的雇员进行定期的病毒抗原测试和筛查。
-
-此外，因目前医务工作者短缺和感染 “奥密克戎”的患者激增，尼亚加拉卫生部将关闭位于伊利堡的紧急医疗中心，并将其中的护士和医生部署到该地区的其他急诊部门。
-
-报道称，尽管如此，当局仍将致力于全员疫苗接种计划，并在以后不确定的时间继续进行。据官方资料显示，目前安省医护人员的疫苗接种率已达93%，因此这次暂停执行的是第三剂疫苗接种。
-
-* * *
-
-原文链接： [Niagara Health pauses mandatory COVID-19 vaccination program due to ‘intensity’ of Omicron](https://globalnews.ca/news/8492887/niagara-health-pauses-mandatory-vaccination-program/)
-
-[Mandatory Vaccination for all Staff and Physicians](https://www.niagarahealth.on.ca/site/news/2021/10/26/mandatory-vaccination-for-all-staff-and-physicians)
 
  
 

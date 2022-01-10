@@ -2,26 +2,26 @@
 ---
 
 
-## 哈萨克斯坦成为中俄和欧美的必争之地，世界局势即将大变
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1840641/)
+## 香草山翻译部周刊|2022年1月9日第30期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1840748/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-94.jpg)
-郭文贵先生在2022年1月9日大直播中深入分析了哈萨克斯坦当前的形势。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-1.jpg)
 
-哈萨克斯坦地处中南亚，拥有两千万人口，五百吨黄金，七十多种金属，这个国家对俄罗斯、对乌克兰、对亚美尼亚、对整个中共的一带一路都意义巨大，郭先生指出哈萨克斯坦现在成了美欧和中共、俄罗斯之间最重要的争之地。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/no30-CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
-对俄罗斯来说，如果普京面对乌克兰的时候，这时候他要失去了哈萨克斯坦这个地方和纳扎尔巴耶夫这个团队，俄罗斯会比前苏联解体还惨。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-对中共来说，绝对不仅仅是一带一路的问题，而是真的会把这个革命传到中国，一定会传到新疆，一定会传到西藏。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.jpg)
 
-郭先生爆料，中共和俄罗斯最近叫嚣将不惜与欧美打核战来维护哈萨克斯坦政权。这让美国和欧洲从这次哈萨克斯坦事件看出世界的政治板块、能源和风水等等一切都在改变。现在最要紧的是阻止中俄西扩，阻止中俄统治全球，阻止中俄从昆仑山脉、帕米尔高原扩展到印度洋、到大西洋。
-
-郭先生告诉战友，昆仑山将有大动静，俄罗斯山脉有大动静，帕米尔高将有大动静，这个世界即将要大变。
-
-参考链接：https://gtv.org/broadcast/watch/61dade8c4658a73785d25466
-
-校对：大浪小水花
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
