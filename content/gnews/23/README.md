@@ -2,44 +2,40 @@
 ---
 
 
-## 有声|被奴役的人心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841911/)
+## 瑞士军队禁用WhatsApp、Signal和Telegram
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1841940/)
 
-配音：香草山佛教部 – 李傻
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Swiss-army.jpeg)图片来源： Fabrice Coffrini/AFP
 
 
+编译：小红帽
 
-2022年1月5日，笔者收到了青蒿素快递，真的很开心！作为爆料革命新中国联邦人，笔者知道这是救人的良药，是应顾客所托帮其购买的。之前这个顾客无意间述说其症状时，笔者才注意到他的头部已经起了一个硬硬的疙瘩，不知是他睡眠不好引起的呢？还是打完疫苗带来的副作用？于是笔者建议他试试青蒿素。他欣然答应。总算把救人的良药又推出一个，这是继2020年9月份以来的第二个人。可怜不？
+根据《RT新闻》1月7日报道，**瑞士媒体本周报道，瑞士士兵被要求停止使用WhatsApp、Signal和Telegram，转而使用瑞士国内的信使，理由是保护数据。**
 
-2021年8月30日，爆料革命新中国联邦创始人郭文贵先生在GTV平台直播，向世界爆料青蒿素是中共病毒疫苗的解药，是救人的良药！新中国联邦所有的战友为了救世人，用各种途径广泛传播，不分昼夜、不分国度，火力全开。可惜在中共国的推广却异常艰难。只因为人们习惯性的相信共产党，相信CCTV，相信权威性专家发言，完全辜负了伟大女士屠呦呦发明的救人良药。要知道，这救人的情报是墙内战友冒着生命风险递送出来的，这是郭文贵先生顶住巨大压力震撼发声的，这么做只为了拯救被中共病毒折磨、受中共疫苗屠杀的全人类！
+据瑞士媒体报道，指挥官和参谋长在12月底收到一份指示，告知他们新的规则。该指示称，军队人员现在应使用瑞士开发的Threema Messenger，无论是官方还是私人通信，其中包括士兵和他们的亲属之间的聊天。
 
-原文链接：[被奴役的人心](https://gnews.org/zh-hans/1825411/)
+目前还不清楚对那些不停止使用WhatsApp或其他外国信使的人是否会有任何制裁。
 
-音频处理：喜山必胜Maverick
+据报道，军队还将支付下载该应用程序的费用–4瑞士法郎（4.35美元）。据报道，该公司收取的年费也将由军队支付。
 
-**发稿：**Daxia
+军方发言人丹尼尔·雷斯特（Daniel Reist）告诉法新社，这些建议适用于军队中的每个人，包括新入伍的士兵和返回接受训练的士兵。瑞士对所有19岁并被认为适合服役的男性公民实行义务兵役制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+军队发言人告诉当地媒体，此举是出于对数据安全的担忧。与外国应用程序不同，Threema受瑞士法律管辖，并符合欧盟的《通用数据保护条例》。
 
-**更多资讯，更多关注**
+WhatsApp和Signal等美国应用程序受美国云法案管辖。该法案允许美国当局访问美国应用程序运营商持有的数据，即使这些数据存储在美国境外。美国也可以通过法律请求要求公司交出用户信息。在这种情况下，Telegram只要为美国客户提供服务，也可能会受到该法案的约束。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源：[WhatsApp, Signal & Telegram banned by Swiss Army — RT World News](https://www.rt.com/news/545502-switzerland-army-ban-whatsapp-privacy/)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*发布：小红帽*
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

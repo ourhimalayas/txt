@@ -2,10 +2,10 @@
 ---
 
 
-## 东京周六新增中共病毒数比上周同期高出15倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1841420/)
+## 德国对强制中共病毒疫苗政策“踩刹车”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1841421/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._10-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220110-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
