@@ -2,40 +2,58 @@
 ---
 
 
-## 蓝莲花在西藏叫绿绒蒿，中共常委每年在昆仑山割血拜祭
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1841190/)
+## 欧元区12月通胀率创历史新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1841258/)
 
-视频链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010904-1.jpg)图片: 法新社/Paul ELLIS摄
+自《欧洲数据新闻中心》2022年1月8日报道
 
-**郭文贵先生：**首先给大家说，说一下蓝莲花是真有的，在我们生活中是经常有的，这个这个问题是很单纯的问题，严格讲很无知。蓝莲花在到处都在，只是你没有注意而已。
+摘要翻译：
 
-第二个，我要告诉大家的事情，在西藏的蓝莲花，它叫做绿绒蒿，他也称为蓝莲花，就山顶绿绒蒿，绿绒蒿到处都是，我到那儿去的时候，这个很多西藏人家里边儿，对绿绒蒿的珍惜真的像神一样，可是我们汉人去了就顺手就给人家蒿（拔）了，就非常过分，绿绒蒿在西藏是一种神话，也称为蓝莲花。
+布鲁塞尔——据欧盟统计局称，能源价格飙升迫使欧元区上个月的年通胀率达到历史最高水平。官员和经济学家预计利率将在未来一年下降，但创纪录的水平将增加欧洲央行重新考虑其历史低利率政策的压力。
 
-第三个，我要告诉昆仑山脉，昆仑山脉，跟咱们啥关系呢？非常非常大，喜马拉雅山给咱非常非常大。我告诉大家，昆仑山6500万年前形成的，跟你个鸟共产党才不到100年，更你这个共产党毛关系都没有。在共产党的故事当中，竟然说自己曾经是昆仑山神的后裔啊！
+12月5%的数字是初步估计，但证实了将利率推高至25年高位的趋势，这是自1997年1月有记录以来的峰值。这些数字远高于欧洲央行设定的欧元区通胀率2.0%的目标，但欧洲央行认为通胀率应在2022年达到峰值后于2023年下降。
 
-你们都不知道这个故事吧？昆仑山上唯一的昆仑山脉，是在帕米尔高原，在那块儿架着共产党的祭坛呐！24小时一年365天呐！供着常委常委的那块儿供着他们呢呐！每年常委都是要割血、割脉，见献血的地方，用中国特种兵部队，你们都不知道吧？！如果你不知道你就太天真了，亲爱的中国同胞们！昆仑山是万山之母、万山之祖，因昆仑山生了所有的霾。
+近几个月价格飙升主要是由于天然气和电力价格的异常上涨。12月，能源价格的年度涨幅达到26%，远远领先于欧盟统计局调查的其他产品。尽管如此，食品、酒精和烟草价格上涨了3.2%，领先于工业品上涨2.9%和服务上涨2.4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/010909.jpg)网络图片
+在大国中，西班牙和德国的增幅最高，分别为6.7%和5.7%。德国消费者和政策制定者对通胀有着历史性的恐惧，随着德国总理奥拉夫·舒尔茨的新联合政府站稳脚跟，价格上涨的激增引发了悲观的媒体头条新闻。
 
-编辑整理：海贼王M.D.LUFFY；
+相反，根据欧盟统计局计算的欧洲统一数据，意大利和法国的价格上涨仍然较为温和。波罗的海国家的通货膨胀率特别高，爱沙尼亚和立陶宛的欧元区最高水平分别为12%和10.7%。
 
-G-News发布：海贼王M.D.LUFFY；
+圣诞节前，欧洲央行上调了通胀预期，理由是能源价格和工业供应链困难，部分原因是冠状病毒的流行。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+随着单一货币区摆脱封锁措施，消费者需求也特别强劲。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+欧洲央行现在预计2022年物价将上涨3.2%，高于此前预测的1.7%。它只预计价格将在2023年跌破其2%的中期目标，而且近几个月来，前景变得越来越遥远。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+该机构总裁克里斯蒂娜·拉加德(Christine Lagarde)认为，其目前处于历史最低点的关键利率“极不可能”在2022年上调。欧洲央行行长预测欧元区通胀将“在2022年放缓”(2021年10月)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+凯投宏观高级欧洲经济学家杰克·艾伦雷诺兹(Jack-Allen Reynolds)表示:“在12月达到5.0%之后，随着能源成分的暴跌，今年欧元区总体通胀率应该会下降。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+ING银行的伯特·科林(Bert Colijn)说: “另一个历史数字，但预计随着能源通胀放缓，通胀率将从这里开始下降。” “不过，2022年上半年核心通胀率仍将保持在2%以上，因为高昂的生产成本已通过消费者定价。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**简评：**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+郭文贵先生2022年1月7日的大直播中谈到整个欧洲处在如苍鹰现在脱甲更新换代的时候，但是这个过程很危险很痛苦。欧元区总体通胀率创历史新高，欧洲央行政策制定者试图使经济从CCP病毒大流行中复苏，因此他们一直将利率维持在超低水平以刺激经济，结果这反而加剧了价格上涨的问题。尽管CCP病毒的奥米克戎变体激增对全球经济造成了不确定影响，但其他地方的中央银行一直试图提高利率以对抗飙升的通胀率或正在顺着这个思路采取措施。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+新闻链接：[Eurozone inflation hit record high in December](https://ednh.news/eurozone-inflation-hit-record-high-in-december/)
 
-G-TV：日本银河系农场。
+*翻译/简评: 希望*
+
+*校对: 感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

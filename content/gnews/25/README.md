@@ -2,59 +2,40 @@
 ---
 
 
-## 为什么价格会在2022年继续飙升
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1841034/)
+## 有声|安妮日记2022-逃离新冠疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1841096/)
 
-**据《CNN Business》记者：Anneken Tappe, 2022年1月1日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/aydg5-o3j9q.jpg)**图片源自：toppr.com**
-美国以数十年来的高通胀结束了2021年。这对2022年来说不是好兆头。
+配音：香草山设计部 – 喜马拉雅大喵儿
 
-价格已经攀升到如此之高，他们需要一些时间才能回到现实。换句话说，2021年令人不安的通胀数据很可能会伴随我们进入下一年。
 
-我们拥有的最新价格数据来自11月份，当时两个最受关注的通胀指标——消费者价格指数和个人消费支出指数——均攀升至39年高位。
 
-后一个指数是美联储在评估国家通胀时最关注的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-负责保持价格稳定的央行正在缩减其刺激措施，预计明年将加息以抑制通胀并阻止经济过热。
 
-上个月的数据显示，CPI和PCE指数11月的价格涨幅均低于10月。这是个好消息，尽管放缓幅度很小，仅为 0.1 个百分点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-mh1.1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-mh1.2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-mh1.3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-mh1.4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-mh1.5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-mh1.6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-mh1.7.jpg)
+原文链接：[安妮日记2022-逃离新冠疫苗](https://gnews.org/zh-hans/1830885/)
 
-但经济学家更喜欢观察一段时间内的价格走势，通常是12个月。因此，像11月这样的小幅放缓还微不足道。
+音频处理：喜山必胜Maverick
 
-事实上，价格增量放缓可能需要几个月的时间才能出现在数据中。即使通胀突然跌落悬崖，领先指数也需要时间来反映这一点。这就是美联储主席杰罗姆-鲍威尔在提到“基数效应”时所谈论的内容。
+**编辑/发稿：**Daxia
 
-为什么通胀会居高不下？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-**有几个因素导致价格上涨。**
+**更多资讯，更多关注**
 
-一个是去年夏天出现的供应链混乱。尽管一些问题有所缓解，但问题并未完全解决。只要在世界范围内运输货物的成本更高，更高的运输成本很可能会转嫁给消费者。
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-另一个重要原因是商品价格的高成本，导致能源和食品成本飙升。今年这两个行业的价格都飙升，为通胀增加了很大一部分。就食品而言，高价迫使一些消费者少买或更换零售商。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-经济学家预计明年情况不会好转。除了高需求和运输成本外，化肥价格上涨和持续恶劣的天气可能会使食品价格保持高位，即使流行病引发的通胀压力有所缓解。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-租金上涨也仍然是一个问题。这很重要，因为住房占人们花费的很大一部分。如果租金吃掉了更大的一块蛋糕，消费者最终可能会减少支出，这对复苏来说将是个坏消息。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-根据美国银行经济学家的数据，11月租金连续第三个月上涨 0.4%，这表明未来通胀会更高、更持久。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-摩根大通经济学家Peter B. McCrory 表示，“最近通胀压力的扩大与租金价格的显着回升相吻合。””
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-而再有就是奥米克戎。
 
-最近几周，包括美国在内的几个国家的Covid-19感染率都创下了历史新高，因为这种变种迅速传播。如果这导致新一轮的封锁，它可能会再次改变消费者的消费方式并刺激对居家用品的需求。
-
-更重要的是，奥米克戎可能会影响能源价格：如果重新开始限制人们出行，能源需求下降将意味着价格下降，这将有助于降低通胀。
-
-**文章来源：**[https://www.cnn.com/2022/01/01/economy/inflation-prices-2022-preview/index.html](https://www.cnn.com/2022/01/01/economy/inflation-prices-2022-preview/index.html)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
