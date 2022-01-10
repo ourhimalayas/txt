@@ -15,77 +15,77 @@
 
 ---
 
-### [健康儿童不需要接种COVID-19疫苗](/content/gnews/1/README.md)
+### [中共国正在加速推进数字人民币](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [健康儿童不需要接种COVID-19疫苗](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/2/README.md)
+### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/3/README.md)
  ` 华盛顿DC-Russian`
 
-### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/3/README.md)
+### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/4/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥说共产党不等于中国人（2022-01-05摘录）](/content/gnews/4/README.md)
+### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥说共产党不等于中国人（2022-01-05摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利](/content/gnews/5/README.md)
+### [参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈思路（2022-01-05摘录）](/content/gnews/6/README.md)
+### [七哥谈思路（2022-01-05摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/7/README.md)
+### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/9/README.md)
  ` 华盛顿DC-Russian`
 
-### [专制主义是新常态2022 年对自由的威胁迫在眉睫](/content/gnews/8/README.md)
+### [专制主义是新常态2022 年对自由的威胁迫在眉睫](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈保护海外华人的安全（2022-01-05摘录）](/content/gnews/9/README.md)
+### [七哥谈保护海外华人的安全（2022-01-05摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥谈媒体的力量（2022-01-05摘录）](/content/gnews/10/README.md)
+### [七哥谈媒体的力量（2022-01-05摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥说Gettr价值无限（2022-01-05摘录）](/content/gnews/11/README.md)
+### [七哥说Gettr价值无限（2022-01-05摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [菲律宾总统杜特尔特威胁将逮捕未接种疫苗的人](/content/gnews/12/README.md)
+### [菲律宾总统杜特尔特威胁将逮捕未接种疫苗的人](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈社交媒体（2022-01-05摘录）](/content/gnews/13/README.md)
+### [七哥谈社交媒体（2022-01-05摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [澳大利亚政府本月绑架了第二名职业网球运动员](/content/gnews/14/README.md)
+### [澳大利亚政府本月绑架了第二名职业网球运动员](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大联邦卫生部长考虑在各省推进强制疫苗接种](/content/gnews/15/README.md)
+### [加拿大联邦卫生部长考虑在各省推进强制疫苗接种](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈Gettr下载量（2022-01-05摘录）](/content/gnews/16/README.md)
+### [七哥谈Gettr下载量（2022-01-05摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [研究发现戴口罩的人更刻薄，自私，不道德和暴力](/content/gnews/17/README.md)
+### [研究发现戴口罩的人更刻薄，自私，不道德和暴力](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈Gettr Logo (2022-01-05摘录）](/content/gnews/18/README.md)
+### [七哥谈Gettr Logo (2022-01-05摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [CDC在9月份偷偷修改了疫苗的定义，疫苗不再被定义为能够提供保护的产品](/content/gnews/19/README.md)
+### [CDC在9月份偷偷修改了疫苗的定义，疫苗不再被定义为能够提供保护的产品](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/09/2022 文贵直播： 曾庆红为何选在南普陀开南普陀会议？](/content/gnews/20/README.md)
+### [1/09/2022 文贵直播： 曾庆红为何选在南普陀开南普陀会议？](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈电脑奇才Bryan (2022-01-05摘录）](/content/gnews/21/README.md)
+### [七哥谈电脑奇才Bryan (2022-01-05摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [哈萨克斯坦发生骚乱后数千人被拘留](/content/gnews/22/README.md)
- ` GTV News Talk`
-
-### [白宫的一条推特可使拜登的疫苗强制落空](/content/gnews/23/README.md)
+### [白宫的一条推特可使拜登的疫苗强制落空](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
-
-### [塞浦路斯发现最新中共病毒变异株](/content/gnews/24/README.md)
- ` GTV News Talk`
 
 ### [中共军方用印度境内的喜马拉雅山石头作为抽奖礼物](/content/gnews/25/README.md)
  ` 首尔天池农场`

@@ -2,34 +2,32 @@
 ---
 
 
-## 澳大利亚政府本月绑架了第二名职业网球运动员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844108/)
+## 菲律宾总统杜特尔特威胁将逮捕未接种疫苗的人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1844111/)
 
-翻译：Jenny Ball
+据《新闻大全》作者卢卡·卡恰托雷（Luca Cacciatore）2022年1月7日 转述几家媒体报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002.gif)2021 年 2 月 28 日，菲律宾总统罗德里戈·杜特尔特举着一瓶科兴生物技术公司的疫苗，亲自目睹一批疫苗于当日抵达该国首都马尼拉的尼诺·阿基诺国际机场。 （以斯拉阿卡扬/盖蒂图片社）
+据路透社报道，菲律宾总统罗德里戈·杜特尔特周四在电视讲话中宣布，未接种COVID-19疫苗的菲律宾人如果不遵守全国范围内的居家令，将被逮捕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-3.jpg)图片来源：thegatewaypundit.com
+据《卫报》报道，杜特尔特表示，他正在委托社区领导人执行居家令，允许未接种疫苗的人仅在必要的出行或锻炼时离开家。
 
-周五，澳大利亚政府绑架了第二名职业网球运动员，该政权撤销了捷克网球运动员雷娜塔·沃拉科娃（Renata Voracova）的签证，并将她和来自塞尔维亚的诺瓦克·德约科维奇（Novak Djokovic）扔进了同一个拘留营。
+杜特尔特在录制的信息中说：“因为这是国家紧​​急状态，我的立场是我们可以约束”没有接受注射疫苗的人。
 
-尽管在签证被取消之前已经被允许进入该国并参加比赛，但捷克球员雷娜塔·沃拉科娃周四在移民拘留所与诺瓦克·德约科维奇汇合。
+杜特尔特说：“我现在命令[村长]寻找那些没有接种疫苗的人，并要求他们或命令他们留在原地。如果他拒绝并走出家门，在社区或任何地方四处走动，他将受到限制。如果拒绝，那么[官员]有权逮捕这种顽固人士。”
 
-本周早些时候，澳大利亚将诺瓦克·德约科维奇引诱到他们的国家，然后将他扔进了他们的 COVID 拘留所。
+总统补充说，餐馆、公园、教堂和美容院将在 1 月中旬之前以较低的流量运营。在此期间，需要面对面的教学和接触性运动也被暂停。
 
-德约科维奇声称，他上个月感染了 COVID，应该从拘留营中释放出来。
+在这个东南亚国家的感染率达到三个月以来的最高水平之际，严厉的封锁执行发生了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-19.png)图片来自原文
+美国卫生部报告称，周四，每日中共病毒病例达到 17,220 例，为 9 月 26 日以来的最高值。这一数字使病例总数超过 288 万例。
 
-捷克球星决定离开法西斯国家，并返回自己的家园，而不是面对澳洲的公开羞辱和虐待。
+据《卫报》报道，卫生专家表示，新病例大多是高度传播的 omicron 变体。
 
-**参考资料：**[thegatewaypundit][Australian Regime Kidnaps Second Professional Tennis Player This Month](https://www.thegatewaypundit.com/2022/01/australian-regime-kidnaps-second-professional-tennis-player-month/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+根据菲律宾卫生部的数据，只有 46.5% 的菲律宾人口完全接种了疫苗，大约 1.11 亿人中有 5170 万人接种了疫苗。
 
-* * *
+原文链接：[https://www.newsmax.com/newsfront/covid-19-lockdowns-mandates-philippines/2022/01/07/id/1051518/](https://www.newsmax.com/newsfront/covid-19-lockdowns-mandates-philippines/2022/01/07/id/1051518/)
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
+翻译：Stephanie |校对：烟波浩淼 | 编辑&发布：断播
 
  
 
