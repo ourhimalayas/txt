@@ -15,59 +15,59 @@
 
 ---
 
-### [七哥谈大直播(2022-01-05摘录）](/content/gnews/1/README.md)
+### [中国保险业银行业的腐败，再说王滨（三）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥谈精神疾病（2022-01-07摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥说: “爱、诚实和灭共是我们在一起的根本基础”](/content/gnews/2/README.md)
+### [七哥谈备药（2022-01-07摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [2022/01/10 大卫作战室直播精要](/content/gnews/3/README.md)
+### [七哥谈流氓国家的强制疫苗政策（2022-01-07摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [中国保险业银行业的腐败，再说王滨（二）](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵先生：王滨被抓意味着王岐山的下场已成定局](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈Omicron感染（2022-01-07摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [七哥谈大直播(2022-01-05摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥说: “爱、诚实和灭共是我们在一起的根本基础”](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [2022/01/10 大卫作战室直播精要](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈风水和迷信（2022-01-05摘录）](/content/gnews/4/README.md)
+### [七哥谈风水和迷信（2022-01-05摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥谈大自然的密码（2022-01-05摘录）](/content/gnews/5/README.md)
+### [七哥谈大自然的密码（2022-01-05摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [赌博心理学](/content/gnews/6/README.md)
+### [赌博心理学](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [七哥谈司马懿（2022-01-05摘录）](/content/gnews/7/README.md)
+### [七哥谈司马懿（2022-01-05摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥谈面对风言风语，谈婚姻关系与全球战友们共勉](/content/gnews/8/README.md)
+### [七哥谈面对风言风语，谈婚姻关系与全球战友们共勉](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈自信（2022-01-05摘录）](/content/gnews/9/README.md)
+### [七哥谈自信（2022-01-05摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [文贵先生盖特精要 2022/01/10](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/11/README.md)
+### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/17/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈爱和真诚（2022-01-05摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [中(共)国正耗尽水资源，对亚洲而言很可怕](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/14/README.md)
+### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [雄安新区是一局死棋](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [别问春天到来我会做什么](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [七哥说战友们要团结（2022-01-05摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [南非学生联盟反击高校强制接种疫苗政策](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
 
 ### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
