@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@thepotomacview 1/10/2022 4:42 AM (UTC)`
+
+🔥Who is the sugar daddy of the mainstream media? <br/>🔥Who is willing to sell out their bodies for lavish gifts at the expense of others' lives? <br/><br/>Watch the 1️⃣ part of our latest episode about the whistleblower’s story that the mainstream media does NOT want you to know. <br/>#ThePotomacView #CCP #MSM #MilesGuo 
+![img](https://media.gettr.com/group39/getter/2022/01/10/04/b2805e99-c9a4-e38d-625e-602cd1a33dc8/out.jpg)
+
+---
+
 `@miles 1/10/2022 9:53 AM (UTC)`
 
 1/09/2022 Miles Guo: Why are the US and Europe going against the CCP and Russia regarding the issue of Kazakhstan? After the CCP loses the control of Kazakhstan, the revolution will spread to Xinjiang and Tibet. How does the “seven major mountains and one peak” of the Kunlun Mountains have anything to do with the fate of the eight brothers of my family?<br/><br/>1/09/2022 文贵直播：为什么美欧就哈萨克斯坦问题跟中俄对着干？中共失去哈萨克斯坦后，革命将传到新疆和西藏；昆仑山脉的“七大山一大峰”和文贵家的八个兄弟的命运有何微妙的联系？<br/>
@@ -153,15 +162,6 @@ mRNA疫苗的联合发明人马龙博士谈大科技公司、大制药公司、�
 
 目前，Joe Rogan 正在擊敗黃金時段的新聞節目。推特上有人用來自Nielsen和Spotify的數據將傳統媒體收視率與Rogan播客的收視率做了比較，Rogan每期節目平均有1100萬的收視率。相比，Tucker Carlson有324萬的收視率，Rachel Maddow有220萬的收視率。社交媒體蓋特聲稱自從Rogan的節目被推特和油管下架，他加入蓋特以後，蓋特的用戶激增。蓋特還聲稱共和黨議員Marjorie Taylor Green被推特封號也是導致蓋特會員激增的原因。#盖特gettr <br/>#20220107文贵大直播  小视频 
 ![img](https://media.gettr.com/group9/getter/2022/01/07/17/cc941a05-6015-1a35-2000-7a1d6c746d33/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/5/2022 5:37 PM (UTC)`
-
-EP1: Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第一集：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles
-![img](https://media.gettr.com/group1/origin/2022/01/05/17/a7d72764-f9bf-8806-6f74-c6bbd01deaa9/out.jpg)
 
 ---
 
