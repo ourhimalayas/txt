@@ -2,24 +2,31 @@
 ---
 
 
-## 安省尼亚加拉卫生部暂停强制接种政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1841443/)
+## GTV新闻访谈简报|2022年1月9日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1841545/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-2.jpg)
-[图片来源](https://kitchener.ctvnews.ca/niagara-health-pauses-mandatory-covid-19-vaccination-program-1.5731130)
+作者：香草山翻译部
 
-据加拿大[环球新闻]1月6日报道，安省尼亚加拉卫生部表示，由于完全未预料到“奥密克戎”病毒的破坏程度所造成社区医疗护理需求的激增，因此卫生部被迫暂停对其医护人员实施疫苗强制接种规定，转而要求未接种的雇员进行定期的病毒抗原测试和筛查。
-此外，因目前医务工作者短缺和感染 “奥密克戎”的患者激增，尼亚加拉卫生部将关闭位于伊利堡的紧急医疗中心，并将其中的护士和医生部署到该地区的其他急诊部门。
-报道称，尽管如此，当局仍将致力于全员疫苗接种计划，并在以后不确定的时间继续进行。据官方资料显示，目前安省医护人员的疫苗接种率已达93%，因此这次暂停执行的是第三剂疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-校对编辑：硫酸羟氯喹64
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0109text-SC.png)
+校对：Stay文苑
 
-[原文链接](https://globalnews.ca/news/8492887/niagara-health-pauses-mandatory-vaccination-program/)
+编辑：Stay文苑
 
-[參考链接](https://www.niagarahealth.on.ca/site/news/2021/10/26/mandatory-vaccination-for-all-staff-and-physicians)
+发稿：Stay文苑
+
+视频参看：[1.9  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61db8ba6a6dfdd603151a048)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

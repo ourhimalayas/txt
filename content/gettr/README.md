@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 3:12 AM (UTC)`
+
+1/09/2022 Miles Guo: How are China’s Kunlun Mountains related to Kazakhstan? The US, Europe, Russia, and CCP have recently shown their cards regarding the riots in Kazakhstan. The event in Kazakhstan indicates that the world’s landscape in terms of geopolitics and Feng Shui has completely changed. The US and Europe will no longer tolerate the expansion of the CCP and Russia to gain hegemony<br/><br/>1/09/2022 文贵直播：昆仑山跟哈萨克斯坦有什么联系？美欧俄中最近已就哈萨克斯坦的暴乱摊牌；哈萨克斯坦的事件说明全球地缘政治和风水格局已彻底改变，美欧将不再容忍中俄扩张称霸<br/>
+![img](https://media.gettr.com/group7/getter/2022/01/10/03/b04575e6-8eee-7385-4bdf-d74406c7f04e/out.jpg)
+
+---
+
 `@miles 1/10/2022 3:03 AM (UTC)`
 
 1/09/2022 Miles Guo: What’s happening in Kazakhstan is a counterattack of the US and West against the CCP and Russia in response to the BLM riots instigated by them, and something big will happen in the neighboring countries of Communist China such as Vietnam, Cambodia, and Singapore. It’s already begun in Bangladesh!<br/><br/>1/09/2022 文贵直播：哈萨克斯坦的事件是美国和西方针对中共和俄罗斯煽动的BLM暴乱的反击，越南、柬埔寨、新加坡等中共邻国将有大动静，这在孟加拉国已经开始！<br/>
@@ -164,13 +171,6 @@ EP2: Who is Miles Guo? What has the CCP done to Miles? Let's tear down the monst
 `@jockowillink 1/5/2022 4:43 AM (UTC)`
 
 Trying this again…<br/>#GETTR Setting up my account at  Mi27bGVSPEIdjru5 <br/>  https://gettr.com/user/Jockowillink
-
----
-
-`@miles 1/8/2022 8:04 AM (UTC)`
-
-1/07/2022 Miles Guo: The photo of my younger brother and I that was taken over 40 years ago touched me deeply, and I burst into tears; the proportion of falsified data of the Hong Kong stock market and the real estate in Hong Kong and mainland China has jumped to 35%; I have rewritten the rules of the game for digital currencies; the demise of the CCP will lead to the boom of digital currencies<br/><br/>1/07/2022 文贵直播：40多年前和八弟的照片让文贵感触颇深、潸然泪下；香港和大陆房地产以及港股数据造假比例跃升至35%；文贵改写了数字货币的游戏规则；中共的灭亡将成就数字货币<br/>
-![img](https://media.gettr.com/group18/getter/2022/01/08/08/1a770c3d-d986-0d34-b565-8dc4ffd8a7ed/out.jpg)
 
 ---
 

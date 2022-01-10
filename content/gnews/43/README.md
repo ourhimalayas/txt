@@ -2,37 +2,26 @@
 ---
 
 
-## WHO呼吁公众加紧预防奥密克戎变种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1840145/)
+## 哈萨克斯坦成为中俄和欧美的必争之地，世界局势即将大变
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1840641/)
 
-作者：纽约香草山教育部 Naughty(文行)
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-94.jpg)
+郭文贵先生在2022年1月9日大直播中深入分析了哈萨克斯坦当前的形势。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+哈萨克斯坦地处中南亚，拥有两千万人口，五百吨黄金，七十多种金属，这个国家对俄罗斯、对乌克兰、对亚美尼亚、对整个中共的一带一路都意义巨大，郭先生指出哈萨克斯坦现在成了美欧和中共、俄罗斯之间最重要的争之地。
 
-1月6日，据媒体新闻报道，世界卫生组织WHO当天发表声明表示，随着中共病毒奥密克戎变种席卷全球，上周世界新增的中共病毒确诊病例创下了历史新高，达到950万例。但WHO明确指出，由于新年假期前后的病毒核酸测试结果被积压，全球的实际感染人数很可能更高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-09-at-11.11.22-PM.png)
-对此，WHO的负责人警告称，虽然奥密克戎的感染症状似乎不如德尔塔严重，且每周记录的感染死亡人数有所下降，但这并不意味着奥密克戎对人体健康安全的影响较轻。该负责人强调，奥密克戎正在使越来越多的感染者住院，甚至导致部分患者的死亡。
+对俄罗斯来说，如果普京面对乌克兰的时候，这时候他要失去了哈萨克斯坦这个地方和纳扎尔巴耶夫这个团队，俄罗斯会比前苏联解体还惨。
 
-此外，该负责人在定期新闻发布会上预警道，随着中共病毒新增病例的迅速增长，各国的医疗系统将不堪重负，而全球的医务人员也将面临短缺的困境。
+对中共来说，绝对不仅仅是一带一路的问题，而是真的会把这个革命传到中国，一定会传到新疆，一定会传到西藏。
 
-为此，该组织官员呼吁，公众应加紧采取措施抗击奥密克戎疫情，民众需尽可能保持室内通风、维持社交距离以及配戴口罩。
+郭先生爆料，中共和俄罗斯最近叫嚣将不惜与欧美打核战来维护哈萨克斯坦政权。这让美国和欧洲从这次哈萨克斯坦事件看出世界的政治板块、能源和风水等等一切都在改变。现在最要紧的是阻止中俄西扩，阻止中俄统治全球，阻止中俄从昆仑山脉、帕米尔高原扩展到印度洋、到大西洋。
 
-參考鏈結：[Record weekly increase in COVID-19 cases but fewer deaths, WHO reports](https://www.foxnews.com/health/record-weekly-increase-in-covid-19-cases-fewer-deaths-who?utm_source=ground.news&amp;utm_medium=referral)
+郭先生告诉战友，昆仑山将有大动静，俄罗斯山脉有大动静，帕米尔高将有大动静，这个世界即将要大变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+参考链接：https://gtv.org/broadcast/watch/61dade8c4658a73785d25466
 
-编辑：Kathy文艺
-总编：飞虹
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：大浪小水花
 
  
 
