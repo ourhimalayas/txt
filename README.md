@@ -15,101 +15,101 @@
 
 ---
 
-### [七哥谈自信（2022-01-05摘录）](/content/gnews/1/README.md)
+### [七哥谈大自然的密码（2022-01-05摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [文贵先生盖特精要 2022/01/10](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [赌博心理学](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/3/README.md)
- ` 华盛顿DC-Russian`
-
-### [七哥谈爱和真诚（2022-01-05摘录）](/content/gnews/4/README.md)
+### [七哥谈司马懿（2022-01-05摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [中(共)国正耗尽水资源，对亚洲而言很可怕](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [雄安新区是一局死棋](/content/gnews/7/README.md)
+### [七哥谈面对风言风语，谈婚姻关系与全球战友们共勉](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [别问春天到来我会做什么](/content/gnews/8/README.md)
+### [七哥谈自信（2022-01-05摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [文贵先生盖特精要 2022/01/10](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/7/README.md)
+ ` 华盛顿DC-Russian`
+
+### [七哥谈爱和真诚（2022-01-05摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [中(共)国正耗尽水资源，对亚洲而言很可怕](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [第四剂 COVID-19 疫苗来了，你敢打吗？](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [雄安新区是一局死棋](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [别问春天到来我会做什么](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [七哥说战友们要团结（2022-01-05摘录）](/content/gnews/9/README.md)
+### [七哥说战友们要团结（2022-01-05摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [南非学生联盟反击高校强制接种疫苗政策](/content/gnews/10/README.md)
+### [南非学生联盟反击高校强制接种疫苗政策](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/11/README.md)
+### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/15/README.md)
  ` 华盛顿DC-Russian`
 
-### [中共国正在加速推进数字人民币](/content/gnews/12/README.md)
+### [中共国正在加速推进数字人民币](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [健康儿童不需要接种COVID-19疫苗](/content/gnews/13/README.md)
+### [健康儿童不需要接种COVID-19疫苗](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/14/README.md)
+### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/18/README.md)
  ` 华盛顿DC-Russian`
 
-### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/15/README.md)
+### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥谈重要的事情要看本质（2022-01-05摘录）](/content/gnews/16/README.md)
+### [七哥谈重要的事情要看本质（2022-01-05摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/17/README.md)
+### [Omicron 让拜登的强制疫苗授权过时](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说共产党不等于中国人（2022-01-05摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈思路（2022-01-05摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/21/README.md)
+### [又一疫苗全接种民主党政要中共病毒检测呈阳性](/content/gnews/22/README.md)
  ` 华盛顿DC-Russian`
 
-### [澳大利亚政府本月绑架了第二名职业网球运动员](/content/gnews/22/README.md)
+### [澳大利亚政府本月绑架了第二名职业网球运动员](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大联邦卫生部长考虑在各省推进强制疫苗接种](/content/gnews/23/README.md)
+### [加拿大联邦卫生部长考虑在各省推进强制疫苗接种](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [CDC在9月份偷偷修改了疫苗的定义，疫苗不再被定义为能够提供保护的产品](/content/gnews/24/README.md)
+### [CDC在9月份偷偷修改了疫苗的定义，疫苗不再被定义为能够提供保护的产品](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/09/2022 文贵直播： 曾庆红为何选在南普陀开南普陀会议？](/content/gnews/25/README.md)
+### [1/09/2022 文贵直播： 曾庆红为何选在南普陀开南普陀会议？](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [白宫的一条推特可使拜登的疫苗强制落空](/content/gnews/26/README.md)
+### [白宫的一条推特可使拜登的疫苗强制落空](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [中共军方用印度境内的喜马拉雅山石头作为抽奖礼物](/content/gnews/27/README.md)
+### [中共军方用印度境内的喜马拉雅山石头作为抽奖礼物](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [【中日财经爆】“减肥茶第一股”碧生源崩跌96%](/content/gnews/28/README.md)
+### [【中日财经爆】“减肥茶第一股”碧生源崩跌96%](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/09/2022 文贵直播： 为什么美欧就哈萨克斯坦问题跟中俄对着干？](/content/gnews/29/README.md)
+### [1/09/2022 文贵直播： 为什么美欧就哈萨克斯坦问题跟中俄对着干？](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/09/2022 文贵直播： 中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵](/content/gnews/30/README.md)
+### [1/09/2022 文贵直播： 中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国“外长”王毅旋访五国，恐将输出新的赤色革命](/content/gnews/31/README.md)
+### [中共国“外长”王毅旋访五国，恐将输出新的赤色革命](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
-
-### [1/09/2022 文贵直播： 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战](/content/gnews/32/README.md)
- ` 秘密翻译组-北美组`
 
 ### [美国邮局应FDA的要求扣留包含有伊维菌素的货物](/content/gnews/33/README.md)
  ` 首尔天池农场`

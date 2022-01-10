@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈重要的事情要看本质（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844273/)
+## 中共国正在加速推进数字人民币
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1844302/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部-风雨同舟
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中共国媒体鼓吹自1月4日以来数字人民币app下载掀起了热潮，同时数字人民币用户数、交易订单数及交易金额都有显著的增长。
 
-来源：郭先生2022-01-05直播11：11：24摘录
+![图片来源：视觉中国](https://n.sinaimg.cn/spider20201127/192/w1024h768/20201127/9458-kentcvx8282536.jpg)
 
-刚才我回答你们刚才的问题，就是Isable Yeung 的问题，她不仅是一个极为危险的排华，还有更重要的事情大家还要看的一个本质，Isable Yeung 是一个国际婚姻，她是英国的娘中国的爹，生产出这么一个东西出来，恨外国人，恨中国人，而且你可以看到所有过去黑咱们爆料革命、还有黑七哥的，几乎所有的《塔斯社》、马蕊强奸案、吴征案都是出来的华人，到这儿当的记者。而且我们昨天早稻田大学的我们几位日本战友说，他说：七哥你知道那个出来不到一天，在我们的系里面就有人跟我说，你看到那个报导了吗？你们在日本就是我们的威胁。而且有台湾的两个孩子是在日本早稻田大学的，说：我收到了同样一个人发给我的信息，说我们在日本是他们的威胁。这个威胁有多大？你能给抹去吗？你告诉我你靠什么抹去？很多中国人你现在兴高采烈，你让他兴高采烈去，凡是那些高兴以爹亲娘亲不如党亲的人，你让他和党亲去，咱绝不拦着他。但是我们台湾这些同胞、香港的同胞、西藏、新疆的，还有我们海外的这些开了光的华人，我们不想把共产党当成爹妈。那么我们怎么拯救他们呢？我们怎么让他们知道呢？盖特就是最重要的一个平台、表达方式。
+为了在全国尽快的推进数字人民币，中共在各个领域不遗余力的展开推广，在十个试点城市及冬奥会场景上，简化注册使用门槛，新用户注册仅通过输入手机号、设置用户名及支付密码，就可自行选择运营机构快速开通钱包。同时在工商银行、农业银行、中国银行、建设银行、[交通银行](http://stock.finance.sina.com.cn/usstock/quotes/BCMXY.html)、邮储银行、[招商银行](http://stock.finance.sina.com.cn/usstock/quotes/CIHKY.html)、网商银行（支付宝）、微众银行（微信支付）等9个运营机构的钱包上直接升级实名钱包。在数字人民币的入口上纷纷接入多家平台，在应用场景上大力推进“衣食住行“的拓展，美团、京东、小米、腾讯都已经完成了相应的支持和部署。[https://finance.sina.com.cn/tech/2022-01-10/doc-](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[ikyamrmz4183856.shtml?cre=sinapc&mod=g](https://finance.sina.com.cn/tech/2022-01-10/doc-ikyamrmz4183856.shtml?cre=sinapc&amp;mod=g)
 
-**关注我们**
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
