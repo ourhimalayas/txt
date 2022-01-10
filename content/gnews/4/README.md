@@ -2,36 +2,47 @@
 ---
 
 
-## 又一疫苗全接种民主党政要中共病毒检测呈阳性
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844195/)
+## 参议员罗恩·约翰逊宣布竞选连任 中期选举对共和党有利
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1844206/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/A.jpg)jwettt.com
-民主党极左的“四人帮”之一，纽约州众议员亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio Cortez）周日（1月9日）晚在其办公室发表声明称，她的中共病毒检测呈阳性，声明还称，奥卡西奥·科尔特斯在秋天接种了加强剂。
+翻译：Jenny Ball
 
-《福克斯新闻》第一时间进行了报道，（有人）在迈阿密一家酒吧看到了这位女议员没有戴口罩后不久，她的中共（冠状）病毒检测呈阳性。【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-707.png)图片来源 : newsweek.com
 
-笔者暂时没有看到这位众议院议员像其他民主党要员，在中招后诸如“幸亏我接种了疫苗，否则情况会更糟”之类的表态。
+共和党参议员罗恩·约翰逊周日宣布了他在威斯康星州竞选连任的计划。
 
-笔者作了一下浏览，简单梳理了一下美国感染上中共病毒的政要及行政人员，除了报道过的伊丽莎白·沃伦（Elizabeth Warren）外【2】，还有以下人员：
+威斯康星州选民在 2010 年共和党浪潮期间首次选举约翰逊，当时共和党人在前总统奥巴马的第一次中期选举中占据主导地位。
 
-参议员科里·布克（Sen. Cory Booker）、众议员杰森·克劳（Jason Crow）、众议员吉姆·库珀（Jim Cooper）、马里兰州州长拉里·霍根（Larry Hogan）、明尼苏达州州长蒂姆沃尔兹（Tim Walz）。左派媒体的CNBC 的吉姆·克莱默（Jim Cramer）、ESPN 的斯蒂芬·史密斯（Stephen A. Smith）。【3】
+他此前曾承诺，只在美国参议院任职两届，但在周日为《华尔街日报》发表的一篇评论文章中解释了他为何选择再次参选。
 
-记忆中笔者之前也报道过白宫新闻秘书简·普萨基（Jen Psaki）、国土安全部部长亚历康德罗·马约卡斯（Alejandro Mayorkas）、国防部长劳埃德·奥斯汀（Lloyd James Austin）等都先后感染了中共病毒的情况。
+他写道，当他在 2016 年竞选连任时，他没有预料到“**民主党完全接管政府，以及他们已经对美国和世界造成的灾难性政策，更不用说他们威胁未来要制定的那些政策了**。”
 
-上述人员皆为民主党成员，美国疫苗强制政策的强力推手，虽然笔者也进行了努力的查找，但至今没有发现有共和党保守人士要员感染中共病毒的报道。这是巧合吗？在笔者印象中，这些保守人士更容易接受爆料革命揭示的病毒及疫苗真相，更能相信文贵先生、班农先生等提出的建议，比如用硫酸羟氯喹、伊维菌素、青蒿素这类药物来预防和治疗。若果真如此，也又向公众证明了爆料革命和文贵先生冒着生命危险向世界发出的警告真地在救众生。
+“虽然我很想平静地退休，但我觉得我不应该，”他写道。“无数人鼓励我参选，说他们依靠我为他们发声，**说出其他民选领导人不愿表达的简单明了的真相**——**政府、主流媒体，和科技巨头的精英不想让你听到这些真相。”**
 
-有关链接：
+约翰逊一直是前总统川普的忠实盟友，民主党人希望在 2020 年乔·拜登以微弱优势控制的州，利用约翰逊坚定的保守主义来对付他。
 
-【1】[https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless](https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless)
+但由于拜登的支持率较低，中期环境可能越来越有利于共和党。
 
-【2】[https://gnews.org/zh-hans/1772445/](https://gnews.org/zh-hans/1772445/)
+无论如何，**威斯康星州的参议院竞选，很可能是全国最接近和最昂贵的竞选之一**。包括中尉曼德拉·巴恩斯(Mandela Barnes)在内的几位民主党人,也已经宣布了他们的竞选活动。
 
-【3】[https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19](https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19)
+博彩公司在 12 月预测，如果约翰逊竞胜出是1-5 赔率。他此前曾在2021 年 4 月得到川普的支持，并鼓励他参选。
 
-**华盛顿DC 望七星**
+川普在一份声明中写道：“尽管他尚未宣布参选，我当然希望他这样做，但我向威斯康星州参议员罗恩·约翰逊表示完全和坚决的支持。”“他很勇敢，非常勇敢，他爱我们的国家、我们的军队和我们的退伍军人。他将保护我们的第二修正案，以及我们所代表的一切。这是我们在美国参议院需要的那种勇气。他不知道他有多么地受欢迎。加油，罗恩，加油！”
 
-**编辑发布  水星**
+约翰逊在其任职期间还因就疫苗、COVID-19 大流行和 2020 年大选等话题，发表有争议的言论而受到抨击。
 
+去年 12 月，约翰逊批评对未接种冠状病毒疫苗的人的待遇。他在威斯康星州简斯维尔的电台节目Your Talk Show上接受采访时说：“**我们正在妖魔化 ****[****未接种疫苗的****] ****人**，**在世界各地，基本上把他们关进了拘留营。**”
+
+他还支持对威斯康星州 2020 年的选举结果进行审计。
+
+新闻来源: [newsweek.com][GOP Sen. Ron Johnson Announces Re-Election Bid With Midterms Looking Favorable for Republicans](https://www.newsweek.com/gop-sen-ron-johnson-announces-re-election-bid-midterms-looking-favorable-republicans-1667246?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1641770242198&amp;subscriberId=6180566715c6fcdd524c7c95)
+
+* * *
+
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

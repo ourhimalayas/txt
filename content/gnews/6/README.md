@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈保护海外华人的安全（2022-01-05摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844183/)
+## 又一疫苗全接种民主党政要中共病毒检测呈阳性
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1844195/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/A.jpg)jwettt.com
+民主党极左的“四人帮”之一，纽约州众议员亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio Cortez）周日（1月9日）晚在其办公室发表声明称，她的中共病毒检测呈阳性，声明还称，奥卡西奥·科尔特斯在秋天接种了加强剂。
 
-来源：郭先生2022-01-05直播10：55：01摘录
+《福克斯新闻》第一时间进行了报道，（有人）在迈阿密一家酒吧看到了这位女议员没有戴口罩后不久，她的中共（冠状）病毒检测呈阳性。【1】
 
-一定想到盖特是拯救中国人的平台，一定想到GTV是唯一能够拯救人的平台，它比任何经济价值都重要，你看明白了吗兄弟姐妹们？你七嫂子就这一个错误她就受到伤害，你想人家伤害我们是全世界说我们是种族主义呀，是西方民主的一个大威胁呀。你想过吗？这是让我真的两天不舒服对你七嫂。你说几年没看七哥直播，看了一天让她那么不舒服，而且我表达完全错误。你七嫂子说我要不喜欢这个旗，我就不会给你挂这旗，我一定告诉你的。你看就表达错了。但是你想想人家是用一个世界级的媒体黑我们，说我们是西方民主自由的威胁的时候，你们想过这有多可怕吗？你们竟然无动于衷。刚才盖特PPT竟然没提出来，最重要的价值是保护华人海外的安全。让中国人不再发生印尼大屠杀，三百万人被抓，五十万人被奸、被杀、砍头、轮奸、鸡奸。这才是我们的价值啊！今天的影响力大到什么程度了看到了吗？我们是排在全世界前五啊，而且被人家篡改数据的情况下啊。它的价值金钱你用万亿来衡量它你就看不起盖特了。
+笔者暂时没有看到这位众议院议员像其他民主党要员，在中招后诸如“幸亏我接种了疫苗，否则情况会更糟”之类的表态。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+笔者作了一下浏览，简单梳理了一下美国感染上中共病毒的政要及行政人员，除了报道过的伊丽莎白·沃伦（Elizabeth Warren）外【2】，还有以下人员：
 
-**关注我们**
+参议员科里·布克（Sen. Cory Booker）、众议员杰森·克劳（Jason Crow）、众议员吉姆·库珀（Jim Cooper）、马里兰州州长拉里·霍根（Larry Hogan）、明尼苏达州州长蒂姆沃尔兹（Tim Walz）。左派媒体的CNBC 的吉姆·克莱默（Jim Cramer）、ESPN 的斯蒂芬·史密斯（Stephen A. Smith）。【3】
 
-Discord 账号
+记忆中笔者之前也报道过白宫新闻秘书简·普萨基（Jen Psaki）、国土安全部部长亚历康德罗·马约卡斯（Alejandro Mayorkas）、国防部长劳埃德·奥斯汀（Lloyd James Austin）等都先后感染了中共病毒的情况。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+上述人员皆为民主党成员，美国疫苗强制政策的强力推手，虽然笔者也进行了努力的查找，但至今没有发现有共和党保守人士要员感染中共病毒的报道。这是巧合吗？在笔者印象中，这些保守人士更容易接受爆料革命揭示的病毒及疫苗真相，更能相信文贵先生、班农先生等提出的建议，比如用硫酸羟氯喹、伊维菌素、青蒿素这类药物来预防和治疗。若果真如此，也又向公众证明了爆料革命和文贵先生冒着生命危险向世界发出的警告真地在救众生。
 
-Gettr 账号
+有关链接：
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+【1】[https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless](https://www.foxnews.com/politics/aoc-tests-positive-for-covid-19-after-partying-in-miami-maskless)
+
+【2】[https://gnews.org/zh-hans/1772445/](https://gnews.org/zh-hans/1772445/)
+
+【3】[https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19](https://thehill.com/blogs/in-the-know/in-the-know/586591-politicians-and-celebrities-whove-tested-positive-for-covid-19)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 

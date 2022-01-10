@@ -2,22 +2,50 @@
 ---
 
 
-## 中共军方用印度境内的喜马拉雅山石头作为抽奖礼物
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843861/)
+## 塞浦路斯发现最新中共病毒变异株
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1843930/)
 
-翻译：brandnew
-校对：zzballack
-上传：追着曙光跑
+**作者**：纽约磐石农场-在远方
 
-据《布雷特巴特新闻网》（Breitbart News）1月7日报道，中共官媒《环球时报》(Global Times)报道说，中共解放军(PLA)西部战区1月7日通过其官方新浪微博(Sina Weibo)账号公布了抽奖通知，将抽取“10位幸运网友”，每位中奖者将各获得一块取自印度北部拉达克州(Ladakh state)的加勒万河谷(Galwan Valley)的石头。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-11-at-01.00.55.jpeg)图片来源：原新闻
-抽奖通知附带了一张解放军士兵在喜马拉雅山西部岩壁附近“巡逻加勒万河谷”的照片。发布者在照片上添加了汉字：“大好河山，寸土不让”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
 
-《环球时报》援引了一些据说是由匿名中国“网友”，也就是微博用户对此抽奖活动的回复评论。其中一个回帖“赞美”了这个赠品，称之为“非常有意义的礼物，因为这样的一块石头显示了中国人民不放弃国家每一寸领土的态度”。
 
-2020年6月15日，印度和中共的边境驻军在加勒万河谷发生了血腥混战，此后，中共解放军与印度军队在两国未划定的喜马拉雅边界上一直处于对峙状态。这场小规模冲突造成20名印度士兵死亡，据报道有40名中国士兵丧生，但北京官方只承认有两名解放军死于这场事件，并谎称获胜。据报道，交战是因中共军队在夜间行动中入侵印度领土后引起的。
 
-信息来源：[Chinese Military Raffling Himalayan Rock from Crushing 2020 Battle Loss to India](https://www.breitbart.com/asia/2022/01/07/chinese-military-raffling-himalayan-rock-crushing-2020-battle-loss-india/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3b64f6e0150caf88f70fd31c2ec36822.jpg)
+
+台媒1月9日报道，塞浦路斯科学家柯斯崔斯基及其团队，发现该国社区存在一种中共病毒最新变异株，该病毒具有德尔塔遗传背景，以及部分奥密克戎的突变，被命名为德尔塔克戎，目前在该国已有25例。
+
+柯斯崔斯基告诉媒体，他们团队发现了大量以前仅在奥密克戎病例中发现的突变，这与其他变异株不同，它有30个突变。他补充说，在该国搜集的25个样本中发现了这种变异株。其中11个来自因中共病毒住院的人，其余来自一般人群。住院患者的突变频率更高，这可能意味着德尔塔克戎与住院治疗之间存有关联。
+
+他表示，已经将这25个塞浦路斯样本序列交给了“全球共享流感数据倡议组织”数据库，这将使它们可共全球科学界人士使用。
+
+新闻来源：
+
+[https://cn.rti.org.tw/news/view/id/2121676](https://cn.rti.org.tw/news/view/id/2121676)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-2.png)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+
 
  
 
