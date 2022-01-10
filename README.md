@@ -15,70 +15,70 @@
 
 ---
 
-### [中共在争议地区建桥设地标或引发新一轮中印冲突](/content/gnews/1/README.md)
+### [国内的病毒疫苗灾难](/content/gnews/1/README.md)
+ ` 首尔天池农场`
+
+### [中共在争议地区建桥设地标或引发新一轮中印冲突](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国推迟执行新冠疫苗强制令](/content/gnews/2/README.md)
+### [德国推迟执行新冠疫苗强制令](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [脱贫人口务工人数，中共继续上演强制脱贫谎言](/content/gnews/3/README.md)
+### [脱贫人口务工人数，中共继续上演强制脱贫谎言](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [昆仑山脉七山一峰寓意神秘俄中亮核武底牌美欧不屑搭理](/content/gnews/4/README.md)
+### [昆仑山脉七山一峰寓意神秘俄中亮核武底牌美欧不屑搭理](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [又一新变种“Deltacron”菌株出现](/content/gnews/5/README.md)
+### [又一新变种“Deltacron”菌株出现](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：昆仑山脉的风水](/content/gnews/6/README.md)
+### [文贵直播大事记——中共骨灰成肥料，喜币成就金手指](/content/gnews/7/README.md)
+ ` 文贵直播大事记`
+
+### [大直播后记：昆仑山脉的风水](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞士军队禁用WhatsApp、Signal和Telegram](/content/gnews/7/README.md)
+### [瑞士军队禁用WhatsApp、Signal和Telegram](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [记录西安封城真相 “长安十日”震惊世界（1）](/content/gnews/8/README.md)
+### [记录西安封城真相 “长安十日”震惊世界（1）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安版“第二本武汉日记”引起国际关注](/content/gnews/9/README.md)
+### [西安版“第二本武汉日记”引起国际关注](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [塞浦路斯科学家发现中共病毒新变异株“德尔塔克戎”](/content/gnews/10/README.md)
+### [塞浦路斯科学家发现中共病毒新变异株“德尔塔克戎”](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [有声|被奴役的人心](/content/gnews/11/README.md)
+### [有声|被奴役的人心](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|山下传来女人的哭救声](/content/gnews/12/README.md)
+### [有声|山下传来女人的哭救声](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [在新一年看新中国联邦的文化成长](/content/gnews/13/README.md)
+### [在新一年看新中国联邦的文化成长](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/14/README.md)
+### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国会议员质疑爱彼迎非法持续提供新疆房源](/content/gnews/15/README.md)
+### [美国会议员质疑爱彼迎非法持续提供新疆房源](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [有声|西安盒马烘培店因鸡蛋没洗被查](/content/gnews/16/README.md)
+### [有声|西安盒马烘培店因鸡蛋没洗被查](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/17/README.md)
+### [有声|因奥米克戎影响，好莱坞颁奖季被延后](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/18/README.md)
+### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [瑞典王储维多利亚二次感染中共病毒 已接种过三剂疫苗](/content/gnews/19/README.md)
+### [瑞典王储维多利亚二次感染中共病毒 已接种过三剂疫苗](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [有声|球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [2022年1月9日郭先生盖特 — 健身视频「1分28秒」](/content/gnews/21/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [有声|每个死于新冠病毒的人都应该视为被谋杀](/content/gnews/22/README.md)
+### [有声|球王乔科维奇坚持不打疫苗崇尚自然疗法](/content/gnews/22/README.md)
  ` MOSREC`
 
 ### [法国逾十万民众上街抗议马克龙政府的疫苗强制政策](/content/gnews/23/README.md)
