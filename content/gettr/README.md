@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/11/2022 3:19 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group46/getter/2022/01/08/08/f961a558-0a5b-e8b5-8f5a-4b86a9a70495/88ab75c65fbc64dc0ca2e2f6e09fdd88.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 1/11/2022 2:46 AM (UTC)`
@@ -154,13 +161,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: How are China’s Kunlun Mountains related to Kazakhstan? The US, Europe, Russia, and CCP have recently shown their cards regarding the riots in Kazakhstan. The event in Kazakhstan indicates that the world’s landscape in terms of geopolitics and Feng Shui has completely changed. The US and Europe will no longer tolerate the expansion of the CCP and Russia to gain hegemony<br/><br/>1/09/2022 文贵直播：昆仑山跟哈萨克斯坦有什么联系？美欧俄中最近已就哈萨克斯坦的暴乱摊牌；哈萨克斯坦的事件说明全球地缘政治和风水格局已彻底改变，美欧将不再容忍中俄扩张称霸<br/>
 ![img](https://media.gettr.com/group7/getter/2022/01/10/03/b04575e6-8eee-7385-4bdf-d74406c7f04e/out.jpg)
-
----
-
-`@miles 1/10/2022 3:03 AM (UTC)`
-
-1/09/2022 Miles Guo: What’s happening in Kazakhstan is a counterattack of the US and West against the CCP and Russia in response to the BLM riots instigated by them, and something big will happen in the neighboring countries of Communist China such as Vietnam, Cambodia, and Singapore. It’s already begun in Bangladesh!<br/><br/>1/09/2022 文贵直播：哈萨克斯坦的事件是美国和西方针对中共和俄罗斯煽动的BLM暴乱的反击，越南、柬埔寨、新加坡等中共邻国将有大动静，这在孟加拉国已经开始！<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/10/03/81e3063d-d8c3-68e0-b22c-2740527dbaab/out.jpg)
 
 ---
 
