@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/11/2022 12:33 AM (UTC)`
+
+1/10/2022 Miles Guo’s GETTR: The CCP’s rogue rule is never intended for the benefits of the Chinese Lao Baixing. The past 1000 days have turned the CCP from clamoring for world domination to a poor situation where eating grass is just fine. Soon, there will be a major breakthrough in stopping the COVID vaccination in the US and Europe. Fellow fighters, please take care of yourself and your family!<br/><br/>1/10/2022 文贵盖特：中共的流氓统治从来不是为了百姓；过去一千天让中共从叫嚣称霸世界变为能吃草就不错的境地；美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体！<br/>
+![img](https://media.gettr.com/group2/getter/2022/01/11/00/5c87e78a-b895-b01e-a1f1-ca9e7832e86c/out.jpg)
+
+---
+
 `@miles 1/10/2022 11:57 PM (UTC)`
 
 1/09/2022 Miles Guo: The Chinese Lao Baixing have no access to the truth about the Kunlun Mountains and the Himalayas due to the CCP’s tight grip on the Internet; there are two factions in the CCP - those who are superstitious (e.g., Zeng Qinghong, Chen Quanguo, and Hu Chunhua) and those who are not (e.g., Ma Jian and Zhang Yue), and all of these CCP members are my enemies<br/><br/>1/09/2022 文贵直播：中共严控网络让老百姓看不到昆仑山和喜马拉雅山的真相；中共分信迷信(如曾庆红、陈全国和胡春华)和不信迷信(如马建、张越)的两派，而这些共产党都是文贵的敌人<br/>
@@ -152,15 +159,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1月9号：喜马拉雅七座山峰就是我们的👉👉👉Noah‘s Ark。    诺亚方舟！🔥🔥🔥🔥🔥💦💦💦💥💥💥💥💥❤️❤️❤️❤️❤️❤️🦅🦅🦅🦅🦅🦅🦅🦅🌽🌽🌽🌽🌽🌽💥💥💥💥💥💥
 ![img](https://media.gettr.com/group38/getter/2022/01/09/20/4c48ce75-9083-e485-629f-147cb7fc5dbe/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@reliakar 1/8/2022 9:58 PM (UTC)`
-
-Even the stars were jealous of the sparkle in her eyes 💘
-![img](https://media.gettr.com/group30/origin/2022/01/08/21/8c2dc0fa-749b-7e10-3bf6-58e1eddaba31/79522196523fd6f9a7f933c705f5b2f1.jpg)
 
 ---
 

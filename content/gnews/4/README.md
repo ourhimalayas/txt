@@ -2,31 +2,38 @@
 ---
 
 
-## 七哥谈奇迹般的喜联储（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844924/)
+## 德约科维奇赢得法庭上诉有望参加澳网
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844957/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-来源：郭先生2022-01-07直播09：28：14摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/观察.jpeg)图片来源：FirstSportz
 
-天时、地利、人和，这是为什么王雁平和我跟那个喜联储为战友们争取利益的时候，我们是凭着良心、良知的。这不是开玩笑的，昨天他们去到喜联储去开会，他们看到那个威廉姆还说人眼睛通红，说这个整个人都快累垮了。为什么，就是他面对着我们战友们利益必须排在前边儿。我们战友是投资者，这个投资者这句话谁都会说，许家印也说，谁都会说，但是我们对待投资者这三个字的时候，像信仰一样的像神一样的存在。只有共同的一个集体的行动，捍卫我们每个人的利益，你的今天就是我的明天，你的钱就比我的钱重要，你没这样你不可能创造今天奇迹般的喜联储，你等到今年经济崩塌的时候你会发现，哇塞，我当初的一个干干净净的决定竟然影响了这么大。真的是兄弟姐妹们太伟大了，你们太伟大了。接下来我们让更多的伟大的人加进来，还有更多的伟大的时刻，我现在我们在宣布之前让战友们有更多的币存在。你看这两天想办法打压，哇塞，$37，我以为$35呢，$37了已经，是$37吧，37块钱，我没看错。$37，我可以告诉大家，如果现在场外交易，你去想想能值多少钱。但是如果我们战友的币随便儿买的话，随便卖的话，我告诉你今天喜币值多少钱，3到5块钱，不会超过10块钱，大家不锁币的话，就是10块钱，3到5块钱，甚至比它还低，我可以告诉大家。但就是大家把币锁住了，它这个钱就上去了。现在投资机构给多少钱，它一定给超过这个钱。我们要让整个KYC的水进来以后，我们要有个千亿的盘在那搁着的时候，它就是个万亿的个市场，你们每个人都是那个金手指，每个人呐，七哥要多爱你们呀！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+#### 整理报道：小鱼儿
+编辑：文泓
 
-**关注我们**
+据反抗新闻1月10日报道，联邦巡回法院法官安东尼·凯利推翻了联邦政府取消签证的决定，下令立即释放被拘留的网球明星诺瓦克·德约科维奇。
 
-Discord 账号
+法官在听证会上说，取消临时签证的决定是“不合理的”，将被撤销。被告方内政部长将支付诉讼费用，并归还其护照和其他所有个人物品，并敦促德约科维奇的签证申请程序尽快通过，希望他能够参加澳大利亚公开赛并卫冕。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+听证会开始的进程很慢，听证会网上直播多次出现中断。由于德约科维奇案受到国际关注，特别是来自塞尔维亚的关注，因此“公开审理”的要求就更为重要。“如果‘法庭听证会直播’失败，澳洲就是非公开的司法，”汤姆森·盖尔律所的律师贾斯廷·奎尔说。
 
-Gettr 账号
+在诉讼过程中，凯利法官一度显然和德约科维奇团队一样沮丧，他曾宣称：“这个人(德约科维奇)还能做什么？”
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+已经曝光的是，负责组织签证的澳大利亚网球协会，曾多次要求内政部在他们的球员登上前往澳大利亚的飞机之前，检查他们的一切是否符合规定。该部门官员拒绝了这一要求，为维多利亚州的外交混乱埋下了伏笔。
+
+从法庭上详细的信件来看，就德约科维奇和澳大利亚网球协会而言，文件似乎没有问题。而当德约科维奇的到来被公开后，一场愤怒的舆论风暴占据了维多利亚州的话题，指责州长丹尼尔·安德鲁斯以及体育明星和普通民众之间的健康命令(疫苗接种)不一致。
+
+新闻新闻：[BREAKING: Novak Djokovic WINS court appeal](https://www.rebelnews.com/judge_orders_novak_djokovic_out_of_detention)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

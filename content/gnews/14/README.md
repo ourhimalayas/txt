@@ -2,29 +2,11 @@
 ---
 
 
-## 讣告声讨指责拜登政权强制疫苗令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1844741/)
+## 1/09/2022 文贵直播：中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1844804/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1E827CC6-42F7-4E03-B0B7-B453F2B52E71.jpeg)图片来源：网络
-来自GATEWAY PUNDIT星期一1月10日的新闻报道:
+秘密翻译组-北美组
 
-美国明尼苏达州的 41 岁的德里克·安德鲁·麦金托什（Derek Andrew McIntosh）于 2022 年 1 月 4 日意外去世，原因是被迫接种疫苗后的血栓并发症导致心脏骤停。
-
-在他的讣告中，麦金托什强烈反对接种疫苗，但他别无选择，只能遵守违宪的疫苗规定。
-
-“在他生命的最后几周，世界因严厉的疫苗要求而变得黑暗，各级政府丧心病狂，下决心剥夺他的遵从内心智慧和享受自由的权利。他一直强烈反对接种疫苗，所以感谢乔·拜登（Joe Biden）让一个没有完全活过的生命过早死亡”。
-
-“德里克·安德鲁·麦金托什（Derek Andrew McIntosh）于 2022 年 1 月 4 日凌晨意外去世，原因是他在接种 Covid 19 疫苗后出现血栓并发症，导致他心脏骤停”。
-
-最近，来自疫苗不良事件报告系统 (VAERS) 的报告（包括非国内报告）显示，截至 2021 年 12 月 24 日，已有超过 100 万例 COVID-19 疫苗不良反应病例，包括 21,000 多例死亡和 10,640 例心脏病发作。
-
-原文链接: [https://www.thegatewaypundit.com/2022/01/thank-joe-biden-bringing-premature-death-life-not-fully-lived-covid-vaccine-death-obituary-mn-blames-joe-biden/](https://www.thegatewaypundit.com/2022/01/thank-joe-biden-bringing-premature-death-life-not-fully-lived-covid-vaccine-death-obituary-mn-blames-joe-biden/)
-
-编辑/发布：LILY
-
-20220110
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

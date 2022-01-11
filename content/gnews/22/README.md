@@ -2,31 +2,26 @@
 ---
 
 
-## 七哥谈精神疾病（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844657/)
+## 英国因中共病毒死亡的病例中近75%注射过疫苗
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/1844678/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译/整理：意大利罗马达芬奇农场 – 阿娜意大利
 
-来源：郭先生2022-01-07直播08：55：36摘录
+根据英国卫生安全局的数据，英国因中共病毒死亡病例中近75%是已接种疫苗的人。
 
-青蒿素现在，还有伊维菌素，青蒿素哪都可以买，你干嘛要爆料革命给你送呢？另外一个就是防范意识。今天我再重申，疫苗灾难现在，防范意识比什么解药都管用。如果你要相信爆料革命了，没有解药你也能活，我相信。如果你相信爆料革命你一定会买到药，第三个你不能等到你有病了再想药。我说这个Rachel，钟仁，两位美女妹妹，你们有感觉吧？雷蒙兄弟你有感觉吧？你不能到这时候，这几关，跟爆料革命不相信说的，然后呢也不按照爆料革命要求防范，然后得了病了再想到药，你说这四步已经是晚了，很晚了。对吧，猫本小哥？这才是刚才就是那个疫苗灾难，我们每天我们要说的事情，它是一个精神上的疾病。我跟那位战友我说的真是，我说你现在需要的是精神病药，而不是需要伊维菌素。你得病了你怨人家香草山啥呀？你怨你爷爷奶奶啥呀？还跟你爷爷奶奶啥关系呀？你这样的人你怎么可能，，你染上病是很危险的，你不染上病也很危险，你这脑子是有问题的。
+根据数据，在2021年12月6日至2022年1月2日报告的3700多起死亡事件中，有2600多起是完全接种过疫苗，超过70%； 另外130起死亡事件归因于 “部分接种疫苗”，使总数达到近75%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-29-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-32-1.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+到目前为止，完全接种疫苗的人占上述的时期内感染中共病毒病例的绝大部分。
 
-**关注我们**
+英国卫生局声称，“预计很大一部分病例、住院和死亡将发生在接种过疫苗的人身上，这仅仅是因为接种疫苗的人口比例大于未接种疫苗的人口比例，而且没有疫苗是100%有效的，” 不过，鉴于报告还指出63.1%的人口接种了两剂疫苗，45.6%的人口至少接种了三剂，这些数字似乎相当不平衡。
 
-Discord 账号
+揭露日报（Daily Expose）质疑道，“是否真的有任何正当的理由将国家医疗服务系统变成国家加强针服务，并引入疫苗护照。其中未接种疫苗的人必须经过测试才能获准入境，而接种过疫苗的人则不需要？而（所谓的）疫苗并不能预防感染，也不能阻止病毒传播。”
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+参考新闻链接：[https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/](https://www.infowars.com/posts/bombshell-nearly-75-of-uk-covid-deaths-were-vaxxed-govt-data-shows/)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
