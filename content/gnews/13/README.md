@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对中国人的邪恶，死多少人他根本不在乎
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848431/)
+## 你不灭共，我们什么族都没有
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848459/)
 
 台灣寶島農場
 
