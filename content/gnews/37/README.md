@@ -2,26 +2,37 @@
 ---
 
 
-## 2020的民主党总统候选人加入盖特
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1846047/)
+## 中国“出血热”超级病毒是由大规模疫苗接种引起的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846302/)
 
-#### 撰稿：彩虹       
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 发布：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-769.png)图片来源：CNN
-盖特是一个真正自由言论的平台，当然也是一个不允许违法行为存在的地方。正是由于盖特的包容性，许许多多追求真相、爱好民主、法制、自由的全世界人士逐渐认识到此点，不断加入盖特大家庭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/出血热.jpg)图片来源：WAR ROOM截图
 
-人们对事物有不同的观察角度，囿于各自的地位、立场而有着不同的观点，这是非常正常的。但世界绝大多数人都是向善的，是知善恶，辨是非的。面对世界性的生化战争，向善的人们自然会集聚在盖特平台，凝聚成伟大的力量，与世界恶势力做斗争。
 
-于是，我们看到了近期乔·罗根（Joe Rogan）的加入，看到了塔克·卡尔森（Tucker Carlson）的加入，但更为令人欣喜的是看到了2020年民主党总统候选人图尔西·加巴德 (Tulsi Gabbard)的加入。
+整理报道：美哥
+编辑：小红帽
 
-加巴德曾是夏威夷陆军国民警卫队少校。2012年，她当选为代表夏威夷第二选区的美国众议院议员。她是第一个信仰印度教的美国国会议员，也是第一个萨摩亚裔美国国会议员。
+根据《INFOWAR》1月10日报道，mRNA疫苗的发明人罗伯特·马龙博士（Robert Malone），在史蒂夫·班农（Steve Bannon）的战斗室（war room)露面警告**“埃博拉样出血热”超级病毒，起因于中共国大规模的新冠疫苗接种引起的变异。**
 
-在 2016 年总统大选期间，加巴德辞去了民主党全国委员会副主席的职务，以便支持伯尼·桑德斯，这使她成为少数在初选中支持佛蒙特州参议员而不是希拉里·克林顿的众议院民主党人之一。她也是2020年美国总统选举民主党初选候选人之一，是第一个尝试竞选美国总统的女性退伍军人。
+马龙博士解释说，接种新冠疫苗将推动对抗疫苗的“逃脱变种”的产生。中共大规模的新冠疫苗运动为超级病毒的诞生备好了温床，西方当以此为鉴。
 
-加巴德的加入，标志着盖特不但是世界保守派人士的自由言论的平台，也是进步派人士自由言论的平台，预示着盖特平台已经迎来了大发展的开端，迎来了世界向善力量的大团结开端。
+“新冠病毒导致真正出血热的情况十分罕见。出血热这个术语通常是用来指代马尔堡病毒或埃博拉家族中的病毒。令人不安的是，这种类似埃博拉，高度传染的“出血热”病毒传播的程度，不知是否已经到达了美国。”
 
-**[新闻来源](https://gettr.com/post/pmfwpx30df)**
+马龙博士强调，**送运动员去中国参加冬奥运是“疯狂”的。**毫无疑问，在武汉，新冠病毒刚肆虐的时候，中共没有停止国际航班。一直到春节末期才禁航，那时候处于疫区的中国民众已经分布在世界各地了。
+
+罗伯特·马龙博士称：“**我们是在和一个流氓政权打交道，这个政权残害自己的人民，毫无道德规范。**黑石集团这样的投行与之狼狈为奸，用投资人的钱在世界作恶。这一切都必须停止。”
+
+原文链接：[Dr. Robert Malone Warns Of ‘Ebola-Like Hemorrhagic Fever’ Super Virus In China Caused By Mutations Due To Mass Vaccination (infowars.com)](https://www.infowars.com/posts/dr-robert-malone-warns-of-ebola-like-hemorrhagic-fever-super-virus-in-china-caused-by-mutations-due-to-mass-vaccination/)
+
+*发布：* 小红帽
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

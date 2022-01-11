@@ -2,34 +2,44 @@
 ---
 
 
-## 疫苗灾情｜巴西 36 岁新闻主播接种疫苗一周后在直播间倒下
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1845655/)
+## 法拉奇支持德约科维奇反对实行高压统治的澳洲政府
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1846296/)
 
-**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/126b7d460fe0aa45fb401fa0fc276c0c1.jpg)图片来源：www.breitbart.com
+《布赖特巴特新闻网》2022年1月8日报道，英国脱欧支持者（脱欧党党魁）奈杰尔·法拉奇(Nigel Farage)支持网球名将诺瓦克·德约科维奇(Novak Djokovic)反对澳大利亚“高压、跋扈、肮脏的政府”，这位塞尔维亚运动员目前被拘留在澳大利亚一家酒店里。
 
-巴西电视台“Jornal das 7”的节目主持人，今年 36 岁的拉斐尔·席尔瓦（Rafael Silva ）在1月3日当天的新闻播报期间突然倒下，距离他接种 COVID-19 加强针仅一周。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/巴西36-歲新聞主播接種疫苗一週後在直播期間倒下.jpg)
-席尔瓦 12月28日在个人社交平台上传照片，庆幸自己顺利接种完第三剂 COVID-19 疫苗。他写道：
+这位世界排名第一的网球选手（在公开表达对新冠病毒疫苗的质疑态度之后，被戏称为“诺瓦克·德约科维奇”）应澳大利亚网球协会的邀请带着一份（他展示的）医疗豁免前往这个前英国殖民地参加澳大利亚网球公开赛。
 
+法拉奇在他个人的YouTube页面上评论了这个局面，坚称该运动员根据相应的当地法规确实拥有豁免权，并声称“大政府，高压、跋扈、肮脏的政府已经介入，联邦政府已经凌驾于维多利亚州之上，澳洲总理斯科特·莫里森(Scott Morrison)声称任何人都不能有豁免”。
 
-> 第三剂疫苗万岁！ 
-> 对于没有这个机会的人，我感到很遗憾。
->  疫苗拯救生命!
+“所有这一切最令人惊讶的是，很少有人愿意明确表态，那些散布言论的人如何证明从某种程度上说德约科维奇是对公共健康的威胁？好了，他绝对不是。”法拉奇断言，声称纵然你“接种了一剂、两剂、三剂疫苗或在以色列的四剂疫苗”，你仍然有感染和传播新冠病毒的风险。
 
+英国广播公司援引发表在《柳叶刀》(The Lancet)上的研究，确实在10月份报道称，“接种过两剂疫苗的人可能与没有接种过疫苗的人一样具有传染性”，尽管《哈佛公报》(Harvard Gazette)在12月报道称，根据“哈佛陈曾熙公共卫生学院”(Harvard T.H. Chan School of Public Health)的研究，“接种了新冠病毒疫苗但出现突破性感染的人可能不太可能传播病毒，因为与未接种疫苗的人相比，他们传播病毒的时间更短”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xRafael-silva.jpg.pagespeed.ic_.CmJ4lvDO8G.jpeg)图片来源：当事人推特
+“我确实认识德约科维奇的家人，并且我已经和他们谈过……相当详尽地谈过，事情是这样的：他实际上是被捕了。”法拉奇说。
 
-不料，一周后，他就倒在了新闻直播间的现场，据该电视台的制片人表示，事发后，席尔瓦被紧急送往医院救治。另据[当地媒体 1月10日报道](https://blogdomadeira.com.br/geral/2022/01/10/jornalista-rafael-silva-da-tv-alterosa-se-recupera-apos-mal-subito-ao-vivo/)，席尔瓦已经离开重症监护室，目前健康状况稳定。
+“这一点毫无疑问：他被捕了，他的钱包被拿走了，他的手机被拿走了，他被关进一个更像是监狱的破旧旅馆——不过我认为食物可能更差一些，对于一个非常健康的运动员来说，这一定是一个非常不愉快的事态。”法拉奇声称，挑战澳大利亚政府的说法，即塞尔维亚人可以随时离开和回家。
 
-以下是席尔瓦播报新闻时倒下的影片，当时，电视台迅速切换画面，各媒体亦随之撰文辟谣，避免公众会将事件与疫苗联系到一起。
+这位脱欧者暗示，如果德约科维奇不留下并上诉成功的话，他将被禁止返回澳大利亚多年，这将严重损害他未来赢得大满贯的前景。
 
-来源｜[metropoles](https://www.metropoles.com/entretenimento/televisao/video-reporter-do-sbt-tem-mal-subito-e-desmaia-ao-vivo-durante-jornal)
+他质问道：“澳大利亚发生了什么，我们这里（英国）发生了什么？为什么大多数人都准备允许“大政府”以抗击这种病毒的名义剥夺我们的政治自由和人权自由？”
+
+简评：全球战绩最佳的网球名将诺瓦克·德约科维奇的疫苗豁免被澳洲政府取消，签证被吊销，遭拘留，让世界看到澳洲政府对公权力的滥用和它们的嚣张跋扈。
+
+疫苗无效、疫苗有毒这一事实已经从世界各国一线医护人员和专业科学家们那里爆出来的疫苗危害信息中得到验证。澳洲政府对本国人民实现疯狂的疫苗接种政策，这背后势必有极深的利益牵连，如今他们把黑手伸向了到澳洲参赛的外国运动员身上，其疯狂程度可想而知。可喜的是，德约科维奇已经上诉成功，墨尔本巡回法院法官裁决允许他可以不接种新冠疫苗参加澳网公开赛。但愿德约科维奇事件可以让澳大利亚联邦政府疯狂的疫苗强制接种政策有所收敛。
+
+新闻链接：[https://www.breitbart.com/europe/2022/01/08/farage-backs-djokovic-against-big-bullying-nasty-government/](https://www.breitbart.com/europe/2022/01/08/farage-backs-djokovic-against-big-bullying-nasty-government/)
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//｜//[法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](https://gnews.org/zh-hans/1647934/)//｜//美[国 51 岁研究护士听证会上为所有疫苗受害者发声“我们希望寻找真相，结果一无所获”](https://gettr.com/post/pg7s9f2179)//｜//[好莱坞 23 岁女模特公开哭诉饱受疫苗副作用折磨](https://gnews.org/zh-hant/1638611/)//｜//[美国 13 岁女孩接种疫苗后瘫痪（附影片）](https://gnews.org/zh-hans/1620514/)//｜//[美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）](https://gnews.org/zh-hant/1627802/)//｜//[新西兰 36 岁男子接种疫苗三周后心脏病发作 冀助其他受害者一起活下去](https://gnews.org/zh-hans/1677208/)//｜//[48小时内又多两名足球运动员接种疫苗后发生呼吸困难](https://gnews.org/zh-hans/1749708/)//｜// [阿根廷国脚阿奎罗接种疫苗后致严重心脏病 今宣布退役](https://gnews.org/zh-hans/1756635/) //｜// [24 岁BYU篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结](https://gnews.org/zh-hans/1764032/) //
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
