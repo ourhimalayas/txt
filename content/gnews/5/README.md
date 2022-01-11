@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|奥地利总理接种三剂疫苗仍旧感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848730/)
+## 七哥谈西安疫苗灾难（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848846/)
 
-配音：香草山健身部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-07直播11：25：09摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月8日，奥地利总理府发布消息，总理内哈默中共病毒检测报告阳性，目前正在自我隔离中。
+我觉得这个西安的事情就证明了就是这种刺突蛋白就是病毒，不存在什么新病毒。现在你觉得还有人谈新病毒吗？只有七哥说了那根本不是什么新病毒，就是疫苗灾难。现在还有人说新病毒吗？没有了，是吧？接下来共产党一定会有一个超级符合我们利益的需求的操作，在冬奥会2月14号突然间中国的什么事都好了，都解决了，共产党解决世界问题的能力、解决大事情的能力和集中力量办大事的能力就会表现出来。这个骚操作它会再一次地让中共的所有疫苗灾难，就是说自我传染，自我从疫苗变成病毒还有Omicron传染，都会发生更加激烈的变化。就奥运会后，冬奥会后，会发生地方和中央的激烈的矛盾，而且会更多的事件失控。然后会让共产党自己演了一个冬奥会的能解决世界所有困难的共产党一党独大的优越性全部打脸，这都符合咱的利益，但是西安人民和郑州人民也好，你们不要当牺牲品。这个人类上没有任何一个党、一个组织能把所谓被释放的病毒，想让它去哪就去哪、想停就停是不可能的。就像经过冬天的变化它就会下雪一样，它一定会死人的，一定会失控，还是保重自己为好。
 
-奥地利总理府声称，内哈默最早于1月5日晚间感染中共病毒。证据是，当天他与维安特勤团队的一名成员接触后，该保镖于6日确诊。随后内哈德测试，结果显示中共病毒阳性。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-内哈默已经完成接种疫苗第三针，但仍然被中共病毒感染。
+**关注我们**
 
-文字版原文：[奥地利总理接种三剂疫苗仍旧感染中共病毒](https://gnews.org/zh-hans/1843688/)
+Discord 账号
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

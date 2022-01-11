@@ -2,33 +2,60 @@
 ---
 
 
-## 七哥谈中美战争（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848722/)
+## 有声|如果你有一个高尚的灵魂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848806/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
 
-来源：郭先生2022-01-07直播11：23：37摘录
 
-钟仁：郭先生，您曾经说过中美必有一战，是什么时候？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+推荐语：一个靠出卖自己灵魂才能获得财富和权力的社会，是没有任何光明可言！然而，黑暗中有一些勇士，哪怕撞得头破血流，也依然坚守自己最后的底线！
 
-郭文贵先生：我觉得现在就在战争中，我觉得中美已经在战争中了。刚才说那三条，是吧？首先一点就是有神、无神论，对吧？然后是民主和家天下这种独裁社会，包括这种自由资本，它现在已经在完全是，甚至共产党在，美国就得完；美国在，共产党必须完，它已经在战争中了。最后我觉得咱所说的“必有一战”就是火战这一块，我觉得就会在冬奥会后和台湾问题、一系列问题爆发后瞬间有可能发生。现在就在战争中，火战我相信很有可能因为台湾会引起。谢谢！
+如果你有一个高尚的灵魂
+你将注定贫穷一生
+因为财富只与权力联姻
+而你却不屑于匍伏在权力脚下
+去乞求一碗冷饭残羹……
+ 
+如果你有一个神圣的灵魂
+你将遭受排挤一生
+污浊的酱缸容不下一汪清泉
+你如星星般的闪耀会刺痛许多
+习惯了黑暗就为黑暗辩护的眼睛……
+ 
+然而
+你并不沮丧
+也不懊悔
+不管遭受多少冷嘲与打压
+你都会静静地承受
+并且义无反顾地勇往直前
+你坚定的目光吞吐日月
+你博大的胸襟海纳百川……
+ 
+你就像一匹坚韧的骆驼
+巨大的足行径在戈壁荒漠
+身后
+遗留两行或深或浅的
+滴血的足印……
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文字版原文：[如果你有一个高尚的灵魂](https://gnews.org/zh-hans/1843854/)
 
-**关注我们**
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-Gettr 账号
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

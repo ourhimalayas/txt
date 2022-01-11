@@ -2,28 +2,33 @@
 ---
 
 
-## 【国际时评】台湾与加拿大宣布启动FIPA讨论
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1848657/)
+## 七哥谈中美战争（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848722/)
 
-加拿大温哥华扬帆农场 – 我是1，小一
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1月10日，台湾与加拿大同意开始就投资保护协议展开探索性讨论。台湾行政院政务委员邓振中与加拿大国际贸易部长武凤仪（Mary Ng）周一举行双边视讯会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220111-小一-FIPA.png)
-这个事件很有标准性：
+来源：郭先生2022-01-07直播11：23：37摘录
 
-1. 加拿大本来就有自己的“印太战略”。在冬奥会事件，全球供应链崩溃，病毒大流行，经济即将大崩盘的背景下，寻求中共以外的合作对象，避免“一棵树上吊死”的局面。
-2. 加拿大开始试探性地转向。不敢明目张胆地挑战中共，但是知道必须留后路，未来要用到的伙伴要开始接触起来了。
-3. 台湾是WTO正式成员，而中共被踢出WTO已经是指日可待。台湾是为数不多的未来将承接全产业链的地方。与台湾合作，是必选项。
-4. 台湾与中共去年九月都提出加入CPTPP的申请。加拿大是重要CPTPP成员国。若加拿大支持台湾加入CPTPP，而反对中共加入，天平将反转。
-5. 加台有动作以后，想必双方也都考虑到中共会如何施压，这也是互相的博弈和试探。中共要在冬奥会前制造“万国来朝“的幻想，这时候对台加的打压也会知轻重。
-6. 双方的这次接触象征意义大于实际商业价值。加拿大与台湾开始接触，向西方民主世界发出明确的信号，世界到了转向的时候了。
+钟仁：郭先生，您曾经说过中美必有一战，是什么时候？
 
+郭文贵先生：我觉得现在就在战争中，我觉得中美已经在战争中了。刚才说那三条，是吧？首先一点就是有神、无神论，对吧？然后是民主和家天下这种独裁社会，包括这种自由资本，它现在已经在完全是，甚至共产党在，美国就得完；美国在，共产党必须完，它已经在战争中了。最后我觉得咱所说的“必有一战”就是火战这一块，我觉得就会在冬奥会后和台湾问题、一系列问题爆发后瞬间有可能发生。现在就在战争中，火战我相信很有可能因为台湾会引起。谢谢！
 
-以上仅代表作者个人观点！
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-(本文仅代表作者观点，与GNEWS平台无关)
+**关注我们**
 
-*编审/发布：shuang*
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
