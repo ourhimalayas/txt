@@ -2,56 +2,57 @@
 ---
 
 
-## 7·24系列——王岐山最牛马仔之一“王滨”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845086/)
+## 参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉,恶心
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1845309/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/e95c-5e0d4e29009548640ab2ef194252cff6.png)图片来源：新浪
-**整理：**雅典娜情报组
-**编辑：**翼族
+参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉。恶心。 英特尔如何解释在赞助 2022 年北京奥运会的同时在国内支持“社会正义”？他们显然不介意双重职责来帮助共产主义中国粉饰种族灭绝。 【转推：指英特尔在一封给供应商的公开信中提到新疆的部分】
 
-两天前，中国人寿集团董事长王滨涉嫌严重违纪违法，接受中央纪委国家监委纪律审查和监察调查的消息传出。虽然中共高官落马的消息已经见怪不怪，但是王滨落马却折射出不同寻常的信息，对此郭文贵先生在2022年1月9日的大直播中予以了揭示（概要）：
 
-##### 王滨是王岐山最牛的马仔之一，康典排老大，然后是田国宁、田惠宇，再就是王滨，马明哲得往后排。王滨是个什么概念？中国人寿几乎是这小子给共产党的高干子女输送钱、贷款、融资、票据最关键的平台。他很少搞零售业务，这哥们搞大的，就搞王岐山想栽培的共产党的官员女婿，他来几把。没动王滨，是说明王岐山还有他的势力在。没动马明哲，说明马明哲跟王岐山的势力还在。中共不动王滨、马明哲、董文标，不动洪崎、范一飞——中国上海行行长，不动上海兴业银行行长……只要不动这11个人，王岐山不会出事。
 
-##### 王滨喜欢古董、翠玉、古木家具。我跟他去同一个地方买了一块小的鸡翅木板，我付了大概一亿多人民币。这个哥们后来跟我说，他说郭先生你那个板，你再给我吧，我再给你多拿5000万，为啥呀？ 王滨的人要买。后来和这个人就熟了，我说这样，我多少钱买的你还给我多少，你拿走，我也不是卖板的，你拿回去完了，就把钱还给我，就给了他。结果这个人成我朋友了，他说光王滨一个人在他那买板，就花了20亿，这是2006年以前。
+> Look at [@intel](https://twitter.com/intel?ref_src=twsrc%5Etfw), a U.S. company, jumping to apologize to Communist China. Gross.
+> 
+> How does Intel explain supporting "social justice" at home while sponsoring the 2022 Beijing Olympics? They clearly have no issues with pulling double duty to help Communist China whitewash genocide. [https://t.co/k7UQ0WC12S](https://t.co/k7UQ0WC12S)
+> — Rick Scott (@SenRickScott) [January 10, 2022](https://twitter.com/SenRickScott/status/1480604202611220486?ref_src=twsrc%5Etfw)
 
-##### 第2个，当时农行的贷款给我50个亿，我只要了他32亿还是33亿我忘了，后来给了他们25%回报，回了十几个点利息。你知道当时王滨的人找到我贷款给我多少吗？100个亿。当时农行是收百分之十二还是十三的利息，王滨只给我3.5%的利息，但王斌说我贷给你100个亿，贷给你20年，但你只能提50个亿，其中15亿作为一个所谓的预付息，那50亿拿走花去，然后再过个两三年你开始付息，息口不超过央行的基准利率，只收一点手续费，这简直是送钱的。许家印100个亿拿到手，也就是30亿到40个亿。所以说都把贷款当成挣钱。
 
-##### 七哥当时见王滨此人，我真的傻眼了。在香港半岛酒店，香港这些老板包括那李嘉诚的二儿子，就是叫做Richard李泽楷，当时跟香港的梁洛诗生孩子的事正热闹的时候，王滨在半岛酒店的派头，旁边PalmCliff那个表是我的partner代理的。就这么看一眼，给旁边第一口，说两句我懂了。我说这哥们神秘的，到总统套房，开完会25分钟，24点5分钟下楼走人。他离开半岛酒店你知道那PalmCliff，他就说了几句话，里边最好的4块表全拿走，每块表都是200多万美元，他送人的，只是送人的，旁边就买单，买单的是谁你知道吗？头两天说过，海南的一家子——我哥们，白马广告。你去想想，这个王滨有多少钱？
 
-##### 王滨此人现在才抓说明了什么？王歧山死活已成定局。共产党为了20大，还有20大之前，有的人是该杀时候不能杀，要留作关键时候杀。这就是周永康什么时候抓对他有利，一切都是一个人的政治，一个中南坑的几个老杂毛玩弄14亿中国人，中国人愚蠢可怜到什么程度，用什么话形容都不为过，这个人类上我不相信有任何动物比中国人再可怜的了。
+众议员迈克·沃尔兹： 当我们的国家面临来自阿富汗、伊朗、中共、俄罗斯、朝鲜和其他国家的威胁时，我们要时刻准备着，这至关重要。 很荣幸能成为共和党三军委员会下辖的武装准备委员会成员，来监督我们军队的训练，后勤等。
 
-王滨，出生于1958年11月，黑龙江哈尔滨人。王滨1985年进入中国人民银行黑龙江分行后，跨入银行金融系统，1991-1993年在中国人民银行办公厅秘书处任职，1993年6月王岐山开始在中国人民银行担任副行长一职，王滨从此成为王岐山的重要马仔，也慢慢成为中共金融界和保险业的大佬，其升官履历如下：
 
-1975年起，先后在黑龙江南岔水解厂知青农场、石油部管道局三公司等处工作；
-1983年07月—1985年07月，先后在黑龙江省人民政府商业厅、体改委员会工作；
-1985年07月—1990年09月，历任黑龙江省人民政府办公厅副科长、正科级秘书、副处级秘书；
-1990年09月—1991年06月，任中国人民银行黑龙江分行办公室副主任；
-1991年06月—1993年12月，任中国人民银行办公厅秘书处正处级秘书、处长；
-1993年12月—2000年01月，历任中国农业发展银行筹备组办公室负责人、办公室副主任、办公室主任、江西分行副行长、江西分行行长；
-2000年01月—2002年12月，历任交通银行北京分行副行长，天津分行行长、党委书记；
-2002年12月—2005年05月，任交通银行北京分行行长、党委书记；
-2005年05月—2010年06月，任交通银行股份有限公司副行长、北京管理部总裁；
-2010年06月—2012年03月，任交通银行股份有限公司执行董事、副行长、北京管理部总裁；
-2012年03月—2018年09月，任中国太平保险集团董事长、党委书记；
-2018年09月，任中国人寿保险（集团）公司董事长、党委书记。
 
-根据网络公开信息，中国人寿与王岐山另一马仔**单伟建**也有交集的痕迹。2014年8月6日《财新》报道，中国人寿完成对美国私募股权投资机构德太投资（TPG Capital）的股权投资，当时单伟建就是TPG投资公司的高级合伙人。
+> As our country faces threats from Afghanistan, Iran, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, North Korea, & others, it’s critical we're always ready.
+> 
+> Honored to serve as Ranking Member of the [@HASCRepublicans](https://twitter.com/HASCRepublicans?ref_src=twsrc%5Etfw) Readiness Subcommittee with oversight of our military's training, logistics & more. [https://t.co/FYFyL1L4DO](https://t.co/FYFyL1L4DO)
+> — Rep. Mike Waltz (@michaelgwaltz) [January 10, 2022](https://twitter.com/michaelgwaltz/status/1480598431634710536?ref_src=twsrc%5Etfw)
 
-这一交易由中国人寿集团的两家全资子公司中国人寿保险（海外）股份有限公司（“国寿海外”）和国寿投资控股有限公司（“国寿投资”）共同完成，其中国寿海外作为出资人，国寿投资作为投资管理人。有消息称，中国人寿将以2.5亿美元入股德太投资（TPG Capital）2%至5%股权，交易完成后，中国人寿将成为TPG最大战略投资者之一。中国人寿和TPG完成勾兑后，2018年王滨从太平洋保险调至中国人寿出任董事长和党委书记。
 
-无论中国人寿入股TPG多少，背后都是中共盗国贼们互相输送利益的交易。郭先生在直播中谈到林强、康典与王滨时，揭示了中国保险业的本质（概要）：
 
-##### 康典认识我的时候是2003年，康典跟林强关系特别好，都是发小，跟王岐山都是发小。那时候林强来（盘古）当总裁，答应我三个条件——学会讲英文，每天上班穿西装，第三个负责融资，当时他是公安部一局的局长……林强和康典，最早跟王岐山、高艳艳都是跟我们融资的人，当时的王滨跟他们俩见面的时候，王滨说：你想要多少钱？我找人给你评估，多加个零不就完了嘛？中国人寿多少资产？多少万亿资产？你想想多少钱没了？中国人还买人寿！中国没有一个保险可以兑现的，没有一个保险给你代保，任何保险都是要你命的保险，为什么？它为了让你死，为了让你打疫苗，为了不付保险费，一定要让你早死。中国的保险业就是要你命的产业！中国的银行也就是抢钱的产业！
+参议员兰德·保罗： 因此，如果您感染了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)，您仍然可以在医院工作，但没有感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 且未接种疫苗的医生和护士会被解雇。我是唯一一个意识到这种荒唐情况的人吗？ 【附abcnews的文章:卫生官员让感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的员工继续在医院工作】
 
-*素材搜集：BENJ1、翼族
-发布：翼族*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> So you can still work in a hospital if you have active COVID but doctors and nurses who don’t have COVID and are unvaccinated are fired. Am I the only one who perceives the absurdity of this scenario?[https://t.co/8vHumvcYoo](https://t.co/8vHumvcYoo)
+> — Senator Rand Paul (@RandPaul) [January 11, 2022](https://twitter.com/RandPaul/status/1480711614240337923?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： 卢比奥:英特尔在向北京屈服后，不应该得到美国政府的芯片支持资金。 （转卢比奥官网声明）
+
+
+
+> RUBIO: Intel should not get CHIPS funding from U.S. government after caving to [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/0mN77T5KR1](https://t.co/0mN77T5KR1)
+> — Senator Rubio Press (@SenRubioPress) [January 10, 2022](https://twitter.com/SenRubioPress/status/1480680900694319115?ref_src=twsrc%5Etfw)
+
+
+
+国务卿布林肯： 中华人民共和国对美国国际宗教自由委员会四名成员的制裁，是中国对普世权利的又一次冒犯。对美国国际宗教自由委员会成员的制裁，不会隐藏或转移世界对中国在新疆侵犯人权和暴行的关注，包括正在进行的种族灭绝。
+
+
+
+> The PRC’s sanctions on four members of the U.S. Commission for International Religious Freedom constitute another PRC affront against universal rights.
+> — Secretary Antony Blinken (@SecBlinken) [January 10, 2022](https://twitter.com/SecBlinken/status/1480620087547678728?ref_src=twsrc%5Etfw)
+
+
 
 
 
