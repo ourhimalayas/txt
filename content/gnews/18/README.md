@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|奥地利总理接种三剂疫苗仍旧感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848730/)
+## 美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1848802/)
 
-配音：香草山健身部 – 玫瑰园
+翻译：波士顿五月花  冲天一怒
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊.jpg)https://www.naturalnews.com/ 
+Video Screenshot from twitter: The View
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月8日，奥地利总理府发布消息，总理内哈默中共病毒检测报告阳性，目前正在自我隔离中。
+美国《观点》节目主持人乌比·戈德堡在接种三针疫苗后仍感染了中共病毒(Covid-19)，她对此感到震惊。在圣诞节期间感染病毒后，这位女演员兼电视节目主持人错过了该节目的第一集，她不得不在家通过远程连线出镜。
 
-奥地利总理府声称，内哈默最早于1月5日晚间感染中共病毒。证据是，当天他与维安特勤团队的一名成员接触后，该保镖于6日确诊。随后内哈德测试，结果显示中共病毒阳性。
+根据戈德堡的说法:”我在休假前几周就离开公司了，因为身边的某个人的中共病毒(Covid-19)检测呈阳性。所以，我感觉自己已经离开了很长时间，我很开心将重返工作岗位。但他们派人来做病毒测试的结果竟然是’不，你不要回来。我们不会派任何人去你家。你染上中共病毒了’。感觉就像’等等，什么？’ 这很令人震惊，因为你知道我已经打了三针疫苗，没有去过任何地方，什么也没有做。”
 
-内哈默已经完成接种疫苗第三针，但仍然被中共病毒感染。
+在听她讲述接种三针疫苗后仍旧染病的经历后，主持人依然鼓励人们接种疫苗。戈德堡说：“除非每个人都接种疫苗，否则我们将在接下来的一段时间内面临这种情况。”
 
-文字版原文：[奥地利总理接种三剂疫苗仍旧感染中共病毒](https://gnews.org/zh-hans/1843688/)
+当然，尽管接种了两针疫苗和加强针，戈德堡仍被感染这个事实却一点儿也不令人震惊，因为病毒仍在接种疫苗的人群中传播。丹麦最新的一项研究发现，Omicron变体在接种疫苗的社区中传播得更快。该研究的总结道：“在完全接种疫苗的人群中，Omicron 的传播速度比Delta 快，甚至在接受加强注射的人群中传播速度更快。”
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+新闻来源: [Whoopi Goldberg ‘shocked’ at catching COVID despite being triple vaxxed](https://www.naturalnews.com/2022-01-08-whoopi-goldberg-shocked-at-catching-covid.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*素材来源：冲天一怒*
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑* *&**发布：**jamie(**文胤**)*
 
  
 

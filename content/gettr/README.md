@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@seanhannity 1/11/2022 11:17 PM (UTC)`
+
+MANCHIN: “We need some good rule changes to make the place work better. But getting rid of the filibuster doesn’t make it work better.” https://hannity.com/media-room/still-the-manchin-joe-not-sold-getting-rid-of-the-filibuster-doesnt-make-the-place-work-better/
+
+---
+
 `@miles 1/11/2022 10:30 PM (UTC)`
 
 1/11/2022 Miles Guo: Communist China will go through another round of quarantines due to the surging CCP virus disasters; Why were the 2008 Summer Olympics medals made from jade of the Kunlun Mountains? The Whistleblowers’ Movement is exposing each lie of the CCP with truth and fact; our fellow fighters have to take extra cautions upon the imminent disasters.<br/><br/>1/11/2022 文贵盖特：中共国会因疫情恶化开始新一轮封区封城；2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言；灾难来临之际，战友们务必小心，度过难关<br/>
@@ -155,13 +163,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: Why are the US and Europe going against the CCP and Russia regarding the issue of Kazakhstan? After the CCP loses the control of Kazakhstan, the revolution will spread to Xinjiang and Tibet. How does the “seven major mountains and one peak” of the Kunlun Mountains have anything to do with the fate of the eight brothers of my family?<br/><br/>1/09/2022 文贵直播：为什么美欧就哈萨克斯坦问题跟中俄对着干？中共失去哈萨克斯坦后，革命将传到新疆和西藏；昆仑山脉的“七大山一大峰”和文贵家的八个兄弟的命运有何微妙的联系？<br/>
 ![img](https://media.gettr.com/group9/getter/2022/01/10/09/47e6ab96-53b3-eeed-e617-ff959cc8063f/out.jpg)
-
----
-
-`@miles 1/10/2022 9:45 AM (UTC)`
-
-1/09/2022 Miles Guo: The CCP built a massive altar in the Kunlun Mountains, a state secret with special forces stationed there, but those whose zodiac signs are Tiger and Pig are not allowed to go there; I have been there and saw the ineffable secret of heaven! The Kunlun Mountains is the spine of the earth and is the source of the CCP’s power!<br/><br/>1/09/2022 文贵直播：中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵，但属虎和属猪的不让去；文贵过去那里并看到了天机！昆仑山是地球的脊椎，是共产党权力的来源！<br/>
-![img](https://media.gettr.com/group5/getter/2022/01/10/09/fb8567d3-86e4-8fcb-d2e8-5a4501d8f06d/out.jpg)
 
 ---
 
