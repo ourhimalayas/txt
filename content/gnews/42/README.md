@@ -2,27 +2,37 @@
 ---
 
 
-## 美国邮局应FDA的要求扣留包含有伊维菌素的货物
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1843546/)
+## 重庆大爆炸开启了习曾之战
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1844306/)
 
-翻译：zzballack
-上传：无明逆流
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月9日郭先生大直播中与战友分享重庆大爆炸可能并非是人为操作，不要政治化。有以下原因：
 
-据《网关专家》1月9日报道，在新冠大流行之前，硫酸羟氯喹和伊维菌素这两种药物通常不会引起人们的注意。但自从民主党人和媒体将这些完全安全、廉价和有效的药物政治化后，海关人员就开始注意这些药物。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12246A02D4-scaled-1.jpeg)图片来源：原新闻
-《网关专家》的一位读者收到了美国食品药品监督管理局（FDA）的一份信，信中说她从外国购买的一批含有伊维菌素的货物被邮局扣留。这批货物包含1个Ziverdo套装：醋酸锌片（Zinc Acetate）、多西环素（Doxycycline）胶囊、伊维菌素分散片（Dispersible Tablets）和2盒规格为单片12mg的伊维菌素药物Covimectin。
+首先，重庆、四川等地，既处在昆仑山向中共国东南方延伸的脉络上，也在喜马拉雅山的腹地地区，两座神山之抵，自古以来造就了当地资源富饶，民风淳朴，是兵家必争之地，在历史上被多次屠城。共产党统治的时代，但凡有官员上任重庆，一定会发生不测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture100.jpg)
+第二，习的亲信陈敏尔在中共20大常委名单上，而陈又在重庆上任，此次爆炸事故看似是对习的刁难，矛头指向了曾庆红。郭先生爆料说，曾庆红深谙风水之阵，中共自毛泽东时期以来，除了周恩来，就只有他能够亲自参与中共邪政昆仑山脉祭祀大典。这些雕虫小技他大可不必。
 
-FDA在信中写道，根据第801(a)(3)条，醋酸锌片、多西环素胶囊、伊维菌素分散片被拒绝进入美国。因为根据第201(p)条款，它们是未经批准的新药（Unapproved New Drug）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-697.png)图片来源：原新闻
-Covimectin已被确定为缺乏足够的使用说明。该药物在美国有售，因此不允许个人进口。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-698.png)图片来源：原新闻
-信中说，伊维菌素是一种未经批准的药物，不符合放行的条件，因为“此类产品必须符合《联邦食品、药品和化妆品法案》(Federal Food, Drug, and Cosmetic Act)或FDA执行的其他法律的要求。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-700.png)图片来源：原新闻
-这位读者说：“我曾读到过（海关扣留伊维菌素）的新闻，现在亲身经历了一回。我只是想让大家知道他们在做什么。我的每一个朋友和家人都没有接种新冠疫苗，他们在感染新冠病毒后，使用伊维菌素或硫酸羟氯喹以及锌、维生素C和D进行治疗，这样就不必住院。我（对药物被扣留）很生气，因为他们让我几乎无法得到所需药物。我有一个关节炎的问题，现在每天服用400毫克硫酸羟氯喹，已持续了6个多月，没有任何不良副作用。”
+第三，重庆没有山，水很多。根据郭先生前几次的爆料，水是克中共的，如今在水地重庆出现爆炸，并非偶然的事故，是天时昭示。
 
-尽管所有的故事、证词和研究表明伊维菌素对新冠病毒的早期治疗很有效，但FDA却拒绝授权这些药物用于新冠治疗，他们声称“伊维菌素还没有被证明对这些疾病是安全和有效的”。但是伊维菌素这数十年来一直在拯救生命，而且几乎没有任何副作用。而被FDA授予紧急使用授权的新冠疫苗却造成了巨大的灾难，因新冠疫苗死亡和遭受不良副作用的人比有史以来的任何其他疫苗都多。
+郭先生指出，重庆大爆炸、二十大的名单，开启了习、曾之战，中共内部终极厮杀已经开始。
 
-原文来源：[“The Drug Does Not Appear to Qualify for Release” – EXCLUSIVE: Post Office Holds Woman’s Foreign Shipment of Ivermectin at the Request of the FDA](https://www.thegatewaypundit.com/2022/01/drug-not-appear-qualify-release-exclusive-post-office-holds-womans-foreign-shipment-ivermectin-request-fda/)
+参考链接：[重庆大爆炸开启了习曾之战](https://gtv.org/video/id=61dade8c4658a73785d25465)
+
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,30 +2,44 @@
 ---
 
 
-## 布林肯就中共制裁美国际宗教自由委员会成员发表声明
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1845715/)
+## 有声|喜马拉雅币一周分析与总结（1月3日-1月9日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845779/)
 
-![2022年1月7日，美国国务卿布林肯在国务院简报室发表讲话。](https://gdb.voanews.com/812F07D4-F7D7-4AD7-9AC0-6E82459E45E2_w1023_r1_s.jpg)2022年1月7日，美国国务卿布林肯在国务院简报室发表讲话。
-据美国之音1月10日报道，美国国务卿布林肯10日发表声明，中共国对美国国际宗教自由委员会包括主席、副主席在内的四位委员进行的制裁，是侵犯普世人权的又一个例子。中共国此前还制裁了其他三名美国国际宗教自由委员会的委员，还有几十个美国官员和在世界各地推动民主和尊重人权的组织。
-
-美国不会被这些行动所阻止，而是会继续使用一切外交和经济工具来推动问责，并与那些为人权和基本自由发声的人站在一起。北京持续对那些为人权而发声的人进行恐吓和噤声，这只能让国际社会加大对新疆持续发生的种族灭绝和反人类罪的审视。布林肯再次呼吁中共国停止其跨国压制行为，包括监禁美籍维吾尔人的家属以及剥夺其行动的自由。
-
-中共没有人权，天下人都知道。但是中共敢做不敢当，更受不了别人指责。于是各种恐吓、威胁、禁声、制裁。但正义的声音是压不住的，全世界人民的眼睛是雪亮的，早晚中共欠下的债务要自己来偿还。
-
-新闻参考链接：[https://www.voachinese.com/a/Blinken-china-sanctions-uscirf-20220110/6390937.html](https://www.voachinese.com/a/Blinken-china-sanctions-uscirf-20220110/6390937.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山教育部 – Rose
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+过去一周，喜马拉雅币的价格从35美元左右小幅上涨至37美元左右，最高价格约38.6美元，平均日交易量约7万喜币。喜币上市以来总交易量约2490万枚 ，占今年总发行量的仅约2.49%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+
+本周二，美国科技资讯网站Tech Times大篇幅报道了喜马拉雅货币体系的优越性。文章指出，目前加密货币在电子商务中的应用主要有三种模式：加密货币与法币相结合、加密货币内循环以及结合了两者优点的最新的喜马拉雅货币模式。
+
+原文链接：[喜马拉雅币一周分析与总结（1月3日-1月9日）](https://gnews.org/zh-hans/1842618/)
+
+音频处理：喜山必胜Maverick
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
