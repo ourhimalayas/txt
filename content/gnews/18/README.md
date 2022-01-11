@@ -2,28 +2,44 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1847985/)
+## 美俄就乌克兰紧张局势举行会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847997/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+#### **撰稿：**日本东京方舟农场 子辰
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-9.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F35B898C-D23F-473D-8E62-CB4929B5F20A.jpeg)（图片来自《美国之音》）
 
-视频参看：[2022.01.11早GTV新闻访谈](https://gtv.org/video/id=61dd85f2a6dfdd603152758a)
+据《美国之音》1月11号日报道，美国和俄罗斯启动了新一轮的会谈，内容主要围绕俄罗斯陈兵乌克兰边境事件展开。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+白宫新闻秘书沙琪说，本周将会举行三轮会谈，首轮会谈在日内瓦举行，俄罗斯和美国会讨论乌克兰局势，希望俄罗斯可以走外交这条道路。其它两轮会谈分别是布鲁塞尔与北约及第三轮的维也纳与欧洲的会谈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
+五角大楼发言人科比说，我们还没有看到俄罗斯采取任何行动，乌克兰边境的大兵尚没有任何变化。希望看到俄罗斯拿出诚意，可以撤走一些兵力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+随后，参加了周一第一轮双边会谈的美国首席代表及常务副国务卿谢尔曼说，双方讨论了符合各自安全利益和可以改善战略稳定的行动。
+
+谢尔曼提到，由于燃料价格上涨导致有更大规模的反对亲俄威权统治的抗议。双方并没有讨论哈萨克斯坦的动荡。
+
+她强调，美国在一些事务上保持坚定立场，包括反对俄罗斯提出的北约不得接受乌克兰入盟的要求。
+
+谢尔曼说，我们不会允许任何人关上北约的门户开放政策。此政策一直都是北约联盟的核心。所以我们不会放弃那些愿意与美国共事的主权国家的双边合作。我们不会在没有哪个国家的情况下做出有关任何这个国家的决定。
+
+谢尔曼进一步表示，如果俄罗斯进一步入侵乌克兰，将会承受重大代价和后果，其后果将远超出2014年的情况。我们已做好了充分的准备，并与我们的伙伴和盟友保持一致。
+
+她说，这些代价有可能包括对金融机构实施制裁，还有对出口控制及加大北约在盟国领土的存在并增加对乌克兰的安全援助等措施。
+
+俄罗斯副外长里亚布科夫在会谈结束后说，俄罗斯没有任何“进攻”乌克兰的计划或意图。但是美俄双方在原则性的处理方式上有很大的分歧。还有在需要采取什么行动的问题上，美国和俄罗斯也有着截然相反的观点。
+
+此外，在美俄会谈之前，两国最高外交官就对一周后经过讨论就会缓和关系的前景不表乐观。
+
+*参考链接：[https://www.voachinese.com/a/us-russia-hold-frank-and-forthright-first-day-of-talks-amid-ukraine-tensions-20220110/6391527.html](https://www.voachinese.com/a/us-russia-hold-frank-and-forthright-first-day-of-talks-amid-ukraine-tensions-20220110/6391527.html)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

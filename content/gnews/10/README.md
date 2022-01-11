@@ -2,30 +2,35 @@
 ---
 
 
-## 澳大利亚同意向美国购买坦克装备
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1848081/)
+## 加油的痛苦：专家预测准备迎接4美元一加仑的油价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1848092/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+据《joepags.com》作者：Joe Pags，2022年1月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-810.png)图片源自：joepags.com
+美国一些地区的油价已经超过4.5美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/A0D691AC-62C9-44D6-A7D8-6087A3236EA1.jpeg)（图片来自《美国之音》）
+2022年中期选举的攻击广告几乎是自己写的。但是，如果你难以想象，这里是众议员吉姆-乔丹（R-OH）在Twitter上分享的预览。
 
-据《美国之音》1月11号日报道，澳大利亚同意耗资35亿美元向美国购买120多辆坦克和其它装甲车辆。这是澳大利亚对其陆军进行的一次重大升级改造，也是澳美军事联盟对抗日益咄咄逼人的中共的最新迹象。
+“2021：油价上涨。汽油价格上涨。天然气价格上涨。丙烷价格上涨。取暖费上涨。你银行账户里的钱呢？减少了。谢谢，民主党人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-811.png)图片源自：推特
+尽管拜登总统上个月进行了干预，动用了战略石油储备，但汽油价格继续越攀越高。
 
-报道援引《悉尼先驱晨报》的信息说，澳大利亚承诺购买75辆新的M1A2艾布拉姆斯主战坦克、29辆清除爆炸物突击破障车、17辆突击架桥车以及6辆额外的装甲救济车，并在去年获得了美国的批准。
+CNN报道：“GasBuddy预测……预计5月份全国油价将达到月平均3.79美元的峰值，然后到2022年底退到目前的水平以下。”追踪燃料价格的应用程序GasBuddy的分析主管帕特里克-德哈恩（Patrick De Haan）认为，我们将看到全国平均油价接近，或者在最坏的情况下超过每加仑4美元。
 
-澳国防部长达顿表示，新的M1A2主战坦克与其他战车等装备，将给澳大利亚士兵提供最大范围地保护及免受伤害措施。而且M1A2艾布拉姆斯将提升澳大利亚主权防御能力，包括指挥、控制、通信、计算机和情报系统等。
+当前，汽油在每加仑3.29美元左右徘徊，比11月初3.42美元峰值下降13美分。同时，圣诞节期间的汽油价格创下有史以来的最高纪录，全国范围内平均每加仑3.26美元，在加州的一些地区甚至却达到4.5美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-812.png)图片源自：推特
+原文连接：[**https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/**](https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/)
 
-据报道，这是去年9月签署的澳英美三边安全合作协议(AUKUS)帮助澳获得核动力潜艇后，美澳再次强化军事联盟以对抗中共在印太地区不断扩大的实力的最新迹象。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*参考链接：[https://www.voachinese.com/a/australia-us-tanks-20220110/6391052.html](https://www.voachinese.com/a/australia-us-tanks-20220110/6391052.html)*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-* * *
 
-*素材采编：子辰*
-
-*编辑：文顺*
-
-*发布：miumiu*
 
  
 

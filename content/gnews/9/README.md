@@ -2,35 +2,30 @@
 ---
 
 
-## 加油的痛苦：专家预测准备迎接4美元一加仑的油价
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1848092/)
+## 欧洲多国民众上街 抗议疫苗强制令
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1848110/)
 
-据《joepags.com》作者：Joe Pags，2022年1月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-810.png)图片源自：joepags.com
-美国一些地区的油价已经超过4.5美元。
+#### 撰稿：日本东京方舟农场  海星
 
-2022年中期选举的攻击广告几乎是自己写的。但是，如果你难以想象，这里是众议员吉姆-乔丹（R-OH）在Twitter上分享的预览。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6D0B3850-6015-410E-8322-4E3499820361.jpeg)（图片来源：NEWSMAX）
 
-“2021：油价上涨。汽油价格上涨。天然气价格上涨。丙烷价格上涨。取暖费上涨。你银行账户里的钱呢？减少了。谢谢，民主党人。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-811.png)图片源自：推特
-尽管拜登总统上个月进行了干预，动用了战略石油储备，但汽油价格继续越攀越高。
+据《wowkorea》1月10日报导，欧洲多国民众因政府强行实施疫苗接种令，于上周末举行了一系列大型示威活动，抗议不合理的防疫政策。
 
-CNN报道：“GasBuddy预测……预计5月份全国油价将达到月平均3.79美元的峰值，然后到2022年底退到目前的水平以下。”追踪燃料价格的应用程序GasBuddy的分析主管帕特里克-德哈恩（Patrick De Haan）认为，我们将看到全国平均油价接近，或者在最坏的情况下超过每加仑4美元。
+据报道，比利时布鲁塞尔警方表示，周日当地有5000多名示威者在城市中游行，手举谴责疫苗独裁的标语牌，高呼“自由”的口号。同日，捷克布拉格城市也举行了示威活动，数千名抗议者聚集在城市广场持续高喊“自由”，并批评政府强制接种疫苗的政策。
 
-当前，汽油在每加仑3.29美元左右徘徊，比11月初3.42美元峰值下降13美分。同时，圣诞节期间的汽油价格创下有史以来的最高纪录，全国范围内平均每加仑3.26美元，在加州的一些地区甚至却达到4.5美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-812.png)图片源自：推特
-原文连接：[**https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/**](https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/)
+报导进一步指出，1月8日，法国多个城市逾10万民众参加了抗议游行活动。抗议者批评政府使用疫苗通行证践踏公民自由、平等的权力。与此同时，德国以柏林为首的几大主要城市也展开了示威活动，数以万计的民众上街抗议政府的疫苗强制令，并强烈要求不准逼迫孩子接种疫苗。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+除上述欧洲主要国家的民众抗议疫苗强制令之外，奥地利维也纳、瑞士苏黎世等国家也举行了游行示威活动，抗议政府日趋严苛的防疫措施以及疫苗通行证。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*参考链接：[https://news.yahoo.co.jp/articles/d558d35bbe7c76310b014ead06434e0ad78cbc9b](https://news.yahoo.co.jp/articles/d558d35bbe7c76310b014ead06434e0ad78cbc9b)*
 
+* * *
 
+*素材采编：飞越雀巢*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
