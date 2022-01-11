@@ -15,107 +15,107 @@
 
 ---
 
-### [喜支付推广得愈多，大投资机构估价愈高](/content/gnews/1/README.md)
+### [共产党对中国人的邪恶，死多少人他根本不在乎](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世](/content/gnews/2/README.md)
+### [七哥谈跟共产党的较量（2022-01-07）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [七哥说喜马拉雅山没那么简单（2022-01-07摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [喜支付推广得愈多，大投资机构估价愈高](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说万事都是因起轮回（2022-01-07摘录）](/content/gnews/3/README.md)
+### [七哥说凡是不能兑现的承诺都是欺骗（2022-01-07摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [没有人会想到喜币涨400倍](/content/gnews/4/README.md)
+### [七哥说万事都是因起轮回（2022-01-07摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [没有人会想到喜币涨400倍](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥说人类将迎来真正的喜马拉雅之魂，喜马拉雅之神必将回到喜马拉雅的山巅！（2022-01-07摘录）](/content/gnews/5/README.md)
+### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [七哥说人类将迎来真正的喜马拉雅之魂，喜马拉雅之神必将回到喜马拉雅的山巅！（2022-01-07摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/6/README.md)
+### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说不要被这场梦给羁绊住（2022-01-07摘录）](/content/gnews/7/README.md)
+### [七哥说不要被这场梦给羁绊住（2022-01-07摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [灭共后，有三个核心、重要的必走之路](/content/gnews/8/README.md)
+### [灭共后，有三个核心、重要的必走之路](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥说人生就是黄粱一梦（2022-01-07摘录）](/content/gnews/9/README.md)
+### [七哥说人生就是黄粱一梦（2022-01-07摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥谈本能（2022-01-07摘录）](/content/gnews/10/README.md)
+### [七哥谈本能（2022-01-07摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [20大的名单出来，开启「习曾」之战](/content/gnews/11/README.md)
+### [20大的名单出来，开启「习曾」之战](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥谈当年的照片（2022-01-07摘录）](/content/gnews/12/README.md)
+### [七哥谈当年的照片（2022-01-07摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [【辱包】深海维尼](/content/gnews/13/README.md)
+### [【辱包】深海维尼](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国内封城前需要准备的物资](/content/gnews/14/README.md)
+### [国内封城前需要准备的物资](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [国内知识分子的良知和勇气已丧失](/content/gnews/15/README.md)
+### [国内知识分子的良知和勇气已丧失](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国解职官员讲述西安封城真相](/content/gnews/16/README.md)
+### [中共国解职官员讲述西安封城真相](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【辱包】维尼合成器-第三版](/content/gnews/17/README.md)
+### [【辱包】维尼合成器-第三版](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [杀人是疫苗接种的真正目的](/content/gnews/18/README.md)
+### [杀人是疫苗接种的真正目的](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [3名安大略省护士发起价值100万元的诽谤诉讼](/content/gnews/19/README.md)
+### [3名安大略省护士发起价值100万元的诽谤诉讼](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [欧洲多国民众上街 抗议疫苗强制令](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [加油的痛苦：专家预测准备迎接4美元一加仑的油价](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳大利亚同意向美国购买坦克装备](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/23/README.md)
+### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
 
-### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/24/README.md)
+### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共在策划哈萨克斯坦骚乱的同时威胁将在美国制造骚乱](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国单日新增113万人 创全球新高](/content/gnews/26/README.md)
+### [美国单日新增113万人 创全球新高](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [最高法院准备决定就拜登对企业和医护人员的疫苗令进行限制](/content/gnews/27/README.md)
+### [最高法院准备决定就拜登对企业和医护人员的疫苗令进行限制](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [王毅新年窜访五国 必有所图](/content/gnews/29/README.md)
+### [王毅新年窜访五国 必有所图](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/30/README.md)
+### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/31/README.md)
+### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——望昆仑（新韵）](/content/gnews/32/README.md)
+### [樱花灭共诗——望昆仑（新韵）](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022.1.10全球反疫苗抗议游行](/content/gnews/33/README.md)
+### [2022.1.10全球反疫苗抗议游行](/content/gnews/34/README.md)
  ` 【🌹玫瑰新闻】`
-
-### [文贵先生谈喜币价值 寄语墙内战友](/content/gnews/34/README.md)
- ` GTV新闻访谈`
 
 ### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/35/README.md)
  ` GTV新闻访谈`

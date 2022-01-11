@@ -2,8 +2,8 @@
 ---
 
 
-## 灭共后，有三个核心、重要的必走之路
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848301/)
+## 没有人会想到喜币涨400倍
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848349/)
 
 台灣寶島農場
 

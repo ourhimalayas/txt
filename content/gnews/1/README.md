@@ -2,12 +2,10 @@
 ---
 
 
-## 喜支付推广得愈多，大投资机构估价愈高
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848387/)
+## 共产党对中国人的邪恶，死多少人他根本不在乎
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848431/)
 
 台灣寶島農場
-
-喜支付上线的时候大家就去推广它，推广得越多大投资机构就会给我们估价的越高。
 
  
 

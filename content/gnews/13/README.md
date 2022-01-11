@@ -2,18 +2,10 @@
 ---
 
 
-## 【辱包】深海维尼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1848233/)
+## 灭共后，有三个核心、重要的必走之路
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848301/)
 
-作者：陌冰仙
-
-许可：CC BY 4.0；原曲：深海少女（初音未来）
-
-* * *
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+台灣寶島農場
 
  
 

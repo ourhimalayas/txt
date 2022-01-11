@@ -2,40 +2,37 @@
 ---
 
 
-## 2022.1.10全球反疫苗抗议游行
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1847817/)
+## 樱花灭共诗——望昆仑（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847819/)
 
-🔥🔥全球抗议者行动-2022/01/10
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-39.jpg)
+昆仑高万仞，
 
-⚠️我们不反疫苗，只针对假疫苗
+兽锁九天门。
 
-⚠️我们不反科学，只针对反人类
+海内延龙脉，
 
-⚠️covid-19=新冠病毒=中共病毒
+河源哺夏民。
+
+巍峨峰自在，
+
+渺远域精神。
+
+凝眺喜山处，
+
+虚极忘垢尘。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-802.png)
+插图：东京樱花团/闪闪
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
 
 
 
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
 
  
 
