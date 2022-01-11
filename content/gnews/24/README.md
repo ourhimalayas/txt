@@ -2,59 +2,40 @@
 ---
 
 
-## 参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉,恶心
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1845309/)
+## 澳大利亚法官恢复德约科维奇的签证
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1845392/)
 
-参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉。恶心。 英特尔如何解释在赞助 2022 年北京奥运会的同时在国内支持“社会正义”？他们显然不介意双重职责来帮助共产主义中国粉饰种族灭绝。 【转推：指英特尔在一封给供应商的公开信中提到新疆的部分】
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-60.png)
+图片来源：网络截图
 
+据零对冲报道，在澳洲1月10日当给时间17时16分一名澳大利亚法官安东尼·凯利做出决定拒绝政府突然取消网球运动员签证的决定（在他已经抵达该国后），并命令立即释放这位网球明星，澳大利亚内政部必须支付德约科维奇被拘留期间的费用。他的所有财物，特别是包括他的护照必须“在合理可行的情况下尽快 ”归还他。法官解释说，他的裁决是因为德约科维奇没有得到关于他的签证被取消的足够通知，使他没有时间准备适当的材料。
 
+网球职业选手诺瓦克·德约科维奇在被澳大利亚法官从移民拘留所释放几个小时后，打破了他的沉默。在一条推文中，这位网球职业选手表示，他希望留在墨尔本，并尝试参加澳大利亚公开赛。鉴于他的胜利将是创纪录的第21个大满贯冠军，他有充分的理由想要参赛。
 
-> Look at [@intel](https://twitter.com/intel?ref_src=twsrc%5Etfw), a U.S. company, jumping to apologize to Communist China. Gross.
-> 
-> How does Intel explain supporting "social justice" at home while sponsoring the 2022 Beijing Olympics? They clearly have no issues with pulling double duty to help Communist China whitewash genocide. [https://t.co/k7UQ0WC12S](https://t.co/k7UQ0WC12S)
-> — Rick Scott (@SenRickScott) [January 10, 2022](https://twitter.com/SenRickScott/status/1480604202611220486?ref_src=twsrc%5Etfw)
+他的亲人日在法官的裁决后也向媒体发表了讲话。德约科维奇的母亲称赞法庭上的胜利是 “他职业生涯中最大的胜利，比他所赢得的任何一个大满贯都要大”，并感谢世界上所有站出来支持他的人，这给他在那家酒店内战斗的能量。他的父亲指责澳大利亚边境官员试图欺骗他的儿子，让他签字放弃进入该国的权利。
 
+日益专制的澳大利亚政府与世界第一网球冠军诺瓦克·德约科维奇之间的外交对峙刚刚出现了一个荒谬的新局面。
 
+在回应法官的裁决时，政府的大律师Christopher Tran说，政府将遵守法官的决定，但移民部长霍克将考虑是否行使“个人取消权”。根据他发布的一份声明，移民部长仍可根据《移民法》第133C(3)条规定的个人权力取消德约科维奇先生的签证，这个过程仍在进行中。
 
-众议员迈克·沃尔兹： 当我们的国家面临来自阿富汗、伊朗、中共、俄罗斯、朝鲜和其他国家的威胁时，我们要时刻准备着，这至关重要。 很荣幸能成为共和党三军委员会下辖的武装准备委员会成员，来监督我们军队的训练，后勤等。
+对此，安东尼·凯利法官坚持认为，如果这种反应可能即将发生，他必须被告知。他补充说，如果澳大利亚部长决定正式“驱逐 ”德约科维奇，这是政府现在唯一的选择，因为这位网球运动员很可能会在政府有时间上诉之前离开该国，这将意味着德约科维奇将被正式禁止进入澳大利亚三年。
 
+这让澳大利亚政府陷入了困境：留给它的唯一选择是一个相当极端的选择，可能会加剧因其对待德约科维奇而爆发的外交风暴。澳大利亚前总理陆克文已经抓住了这个机会，抨击莫里森政府的“无能”。
 
+澳大利亚政府决定在这位网球运动员抵达该国参加澳大利亚网球公开赛（定于1月17日开始）后突然取消其签证的主要原因是德约科维奇在推特上说他在2021年12月再次感染了中共病毒，这是他的医疗豁免允许他在没有接种疫苗的情况下进入该国的原因。
 
-> As our country faces threats from Afghanistan, Iran, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, North Korea, & others, it’s critical we're always ready.
-> 
-> Honored to serve as Ranking Member of the [@HASCRepublicans](https://twitter.com/HASCRepublicans?ref_src=twsrc%5Etfw) Readiness Subcommittee with oversight of our military's training, logistics & more. [https://t.co/FYFyL1L4DO](https://t.co/FYFyL1L4DO)
-> — Rep. Mike Waltz (@michaelgwaltz) [January 10, 2022](https://twitter.com/michaelgwaltz/status/1480598431634710536?ref_src=twsrc%5Etfw)
+政府显然对此事的公开感到不舒服。虽然以前曾允许这些豁免，但澳大利亚政府正仓促的稳住公众对其专制的旅行和商业镇压的信心，即使该国打击中共病毒的极端措施对防止感染率飙升几乎毫无作用。
 
+通过公布他因其“自然”免疫力而获得豁免，这位网球运动员也许无意中推动了关于自然免疫力与人工免疫力的辩论。不只是澳大利亚人，很多政府都不愿意进行这种对话。
 
+现在，全世界都在等着看澳大利亚人如何反应，他们是否会将世界上最好的网球运动员驱逐出境，有效地禁止他参加接下来的三个澳大利亚网球公开赛？由于他们已经通过指责德约科维奇是一个“有特权的 ”运动员，肆意将公众的健康置于危险之中（好像他在该国的存在会对更大的中共病毒情况产生任何影响），使数百万人陷入困境。如果他们现在回头，可能会导致大量的信心丧失。
 
-参议员兰德·保罗： 因此，如果您感染了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)，您仍然可以在医院工作，但没有感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 且未接种疫苗的医生和护士会被解雇。我是唯一一个意识到这种荒唐情况的人吗？ 【附abcnews的文章:卫生官员让感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的员工继续在医院工作】
+德约科维奇并不是唯一一个被取消签证的运动员。澳大利亚政府一直在悄悄地取消其他获得类似疫苗豁免的运动员的签证。
 
+与此同时，该案的法官刚刚公布了一些与该案有关的文件，包括德约科的宣誓书。这份41页的文件包括德约科对他在澳大利亚人手中面临的敌对待遇的描述。
 
-
-> So you can still work in a hospital if you have active COVID but doctors and nurses who don’t have COVID and are unvaccinated are fired. Am I the only one who perceives the absurdity of this scenario?[https://t.co/8vHumvcYoo](https://t.co/8vHumvcYoo)
-> — Senator Rand Paul (@RandPaul) [January 11, 2022](https://twitter.com/RandPaul/status/1480711614240337923?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： 卢比奥:英特尔在向北京屈服后，不应该得到美国政府的芯片支持资金。 （转卢比奥官网声明）
-
-
-
-> RUBIO: Intel should not get CHIPS funding from U.S. government after caving to [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/0mN77T5KR1](https://t.co/0mN77T5KR1)
-> — Senator Rubio Press (@SenRubioPress) [January 10, 2022](https://twitter.com/SenRubioPress/status/1480680900694319115?ref_src=twsrc%5Etfw)
-
-
-
-国务卿布林肯： 中华人民共和国对美国国际宗教自由委员会四名成员的制裁，是中国对普世权利的又一次冒犯。对美国国际宗教自由委员会成员的制裁，不会隐藏或转移世界对中国在新疆侵犯人权和暴行的关注，包括正在进行的种族灭绝。
-
-
-
-> The PRC’s sanctions on four members of the U.S. Commission for International Religious Freedom constitute another PRC affront against universal rights.
-> — Secretary Antony Blinken (@SecBlinken) [January 10, 2022](https://twitter.com/SecBlinken/status/1480620087547678728?ref_src=twsrc%5Etfw)
-
-
-
-
+新闻来源：[“I Want To Stay And Try To Compete” – Djokovic Breaks Silence After Being Freed By Australian Judge](https://www.zerohedge.com/geopolitical/australian-govt-weighs-whether-bar-djokovic-3-years-after-judge-orders-immediate)
 
  
 

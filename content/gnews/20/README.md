@@ -2,26 +2,17 @@
 ---
 
 
-## 负债400亿，山东如意不如意
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1845344/)
+## 天津确认奥密克戎本土病例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845464/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-11.jpg)负债400亿，山东如意不如意 网络图片
-据网易新闻1月10日报道，曾经中共国知名的奢侈品巨头山东如意，如今深陷泥潭。2022年1月2日，山东如意另一子公司—香港利邦控股有限公司进入清算程序，这是山东如意破产的又一家子公司。到2020年，山东如意背负400亿元的债务，而且还亏损严重，2021年前三季度便亏掉了4330万元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/merlin_200102766_fb044a64-1c2e-4719-8676-15dbcf7985d1-superJumbo.jpg)
+**整理报道/编辑：**翼族
 
-新年伊始，中共国企业继续跌倒模式。山东如意不再如意，没能逃脱厄运。
+据中共媒体报道，截止2022年1月10日18时，本轮疫情天津报告了本土确诊病例31例，无症状感染者10例。中国工程院院士张伯礼10日分析称，此次天津疫情是奥密克戎变异毒株首次在我国本土社区传播，该病毒确实传染性很强，隐匿性也强，虽然症状不明显，但更容易多点散发或集中暴发。
 
-新闻参考链接：[https://c.m.163.com/news/a/GTBQLTO90552PLJJ.html?spss=newsapp](https://c.m.163.com/news/a/GTBQLTO90552PLJJ.html?spss=newsapp)
+同时，此次天津疫情还表现为中小学生等低龄感染群体比例较高，这是奥密克戎变异毒株表现出的新特点，值得高度警惕和应对。
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：翼族*
 
 
 

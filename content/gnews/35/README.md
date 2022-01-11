@@ -2,45 +2,45 @@
 ---
 
 
-## 俄罗斯弗拉基米尔地区的代理州长感染了中共冠状病毒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1845115/)
+## 阿拉巴马州参议员称:新冠病毒是在中共武汉实验室制造的生物武器
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1845205/)
 
-作者：香草山健身部 – 正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-***译者评论：**
-接种了中共冠状病毒疫苗后，一样被感染，不管你是官员还是富豪，冠状病毒疫苗是无效的，并且会带来疫苗灾难，导致心梗、心肌炎、心包炎和脑梗等。抵制疫苗，消灭中共这个罪魁祸首才是人类需要做的！*
+![Firebrand Congressman Mo Brooks, a Trump Ally, Launches U.S. Senate Run |  Top News | US News](https://www.usnews.com/dims4/USNEWS/9b3e41b/2147483647/thumbnail/640x420/quality/85/?url=http%3A%2F%2Fmedia.beam.usnews.com%2F94%2Fcacc4c71ccce88db88a252dbc58ff7%2Ftag%3Areuters.com%2C2021%3Anewsml_LYNXMPEH2M00X%3A12021-03-23T005538Z_1_LYNXMPEH2M00X_RTROPTP_3_USA-CONGRESS-ALABAMA-BROOKS.JPG)资料图：阿拉巴马州代表莫·布鲁克斯（Mo Brooks）参议员
+《布萊巴特新闻网》1月8日报道：阿拉巴马州代表莫·布鲁克斯（Mo Brooks）参议员周六在福克斯新闻频道（FNC：Fox News Channel）的节目中声称，新冠病毒（COVID-19）大流行病是由中共制造的“生物武器”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-747.png)
+阿拉巴马州的美国参议院候选人布鲁克斯告诉FNC的“福克斯新闻直播”(Fox News Live），尽管民主党领导人不愿意讨论这种大流行病，但这将是我们必须要“学会处理”的事情。
 
-**译文：**
-1月10日，据《国际文传电讯社》报道，弗拉基米尔州代理州长亚历山大·阿夫杰耶夫说，他被诊断出患有中共冠状病毒。
+“他说: “底线是这样的——人们需要了解这一点: 这是一种生物武器，是在中共武汉生物武器实验室与人民解放军一起制造的。它将会存在很长一段时间，我们必须学会应对。我们不能闭门造车，这是在民主党州长、市长的协助下制定的不幸的政策之一，它对我们的经济造成了很大的损害，在某种程度上说，乔·拜登（Joe Biden）总统也是如此。这样的协助是不管用的。”
 
-“在新年周末结束时，我感到不舒服，发烧了。我做了PCR，中共冠状病毒检测呈阳性。”亚历山大周一在他的Instagram上写道。
+FNC的杰奎·海因里希(Jacqui Heinrich)对布鲁克斯的说法提出质疑，并补充说“没有任何证据”证明这是一种“生物武器”。
 
-据他说，该病正在进行中，没有并发症。
+布鲁克斯坚持认为他看到了证据，并加倍强调了这一说法。
 
-在本周，该地区的代理负责人正计划通过视频会议进行远程工作。
+“我已经看到了足够的信息——有些是机密信息，有些不是，有些是与在中共国参与了生物武器的制造项目的人的私人会议后得到的信息，那个人告诉我们正在发生什么。这是一种生物武器。它是人造的，而且是在武汉生物武器实验室制造的。现在，我可以百分之百肯定地说吗？不，但我可以高度、高度、高度自信地说，这就是我的信念。”
 
-早些时候，亚历山大报告说，他已经接种了中共冠状病毒疫苗。
+简评：
 
-参考链接：[https://www.interfax.ru/russia/814500](https://www.interfax.ru/russia/814500)
+阿拉巴马州参议员候选人莫·布鲁克斯是川普支持的候选人之一。美国中期选举将在今年举行，其对中共病毒的评论“新冠病毒是在中共武汉生物武器实验室制造的生物武器”，既强硬又一语中的，这也代表着民心所向。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+查找出中共病毒的的源头和真相是势在必行的，中共是世界的的破坏者，更是美国的威胁，美国民主党和共和党灭共决心是一致的，他们也会联合世界正义的力量一起消灭中共，恢复世界正常秩序。
 
-**校对/发稿：童谣**
+翻译/简评: JS
 
-**更多资讯，更多关注**
+PR：clau
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻链接：[https://www.breitbart.com/clips/2022/01/08/mo-brooks-covid-a-bioweapon-created-in-the-wuhan-bioweapons-lab-of-the-communist-chinese-party/](https://www.breitbart.com/clips/2022/01/08/mo-brooks-covid-a-bioweapon-created-in-the-wuhan-bioweapons-lab-of-the-communist-chinese-party/)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

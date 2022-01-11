@@ -2,52 +2,34 @@
 ---
 
 
-## 特斯拉为何在汽车制造界独放异彩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845551/)
+## 疫苗灾情｜巴西 36 岁新闻主播接种疫苗一周后在直播间倒下
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1845655/)
 
-**【雅典娜观察】与您一起洞察世界**
+**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/特斯拉为何在汽车制造界独放异彩.png)图片来源：the hill
+巴西电视台“Jornal das 7”的节目主持人，今年 36 岁的拉斐尔·席尔瓦（Rafael Silva ）在1月3日当天的新闻播报期间突然倒下，距离他接种 COVID-19 加强针仅一周。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/巴西36-歲新聞主播接種疫苗一週後在直播期間倒下.jpg)
+席尔瓦 12月28日在个人社交平台上传照片，庆幸自己顺利接种完第三剂 COVID-19 疫苗。他写道：
 
 
-整理报道：美哥
-编辑：Mttfly
+> 第三剂疫苗万岁！ 
+> 对于没有这个机会的人，我感到很遗憾。
+>  疫苗拯救生命!
 
-电脑芯片的短缺迫使美国通用和福特接二连三的关闭工厂，卖车行的停车场空空如也，汽车价格飙升。但是特斯拉的销售却一再打破记录，2021年的销售额是上一年的2倍，丝毫不受产能危机的波及。
 
-特斯拉犹如魔法般的召唤出关键零件，显示以它领衔新兴电动汽车产业的能力。特斯拉迟早会威胁到大众和通用汽车所拥有的的巨头主导地位，其对汽车行业的影响会远比政策制定者和行业高管意识到的要深远的多。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xRafael-silva.jpg.pagespeed.ic_.CmJ4lvDO8G.jpeg)图片来源：当事人推特
 
-神秘莫测的特斯拉CEO伊隆·马斯克，对于特斯拉为何能在电动汽车领域一枝独秀始终守口如瓶，但其超一流的科技和供应链环节恐怕就是答案。
+不料，一周后，他就倒在了新闻直播间的现场，据该电视台的制片人表示，事发后，席尔瓦被紧急送往医院救治。另据[当地媒体 1月10日报道](https://blogdomadeira.com.br/geral/2022/01/10/jornalista-rafael-silva-da-tv-alterosa-se-recupera-apos-mal-subito-ao-vivo/)，席尔瓦已经离开重症监护室，目前健康状况稳定。
 
-特斯拉显然可以更好的预计产量需求，而从不超负荷过量生产。令其他汽车生产商惊讶的是，在没有足够的芯片零件的供应情况下，为何特斯拉的产能可以从病毒大流行初期的直线下滑，到现在恢复的如此之快。这是因为特斯拉可以改写自家的软件来满足当下的需求，但是其他大的公司都依赖外部供应商，当芯片危机来袭的时候，汽车制造商根本没有还价的余地。
+以下是席尔瓦播报新闻时倒下的影片，当时，电视台迅速切换画面，各媒体亦随之撰文辟谣，避免公众会将事件与疫苗联系到一起。
 
-莫里斯·科恩（Morris Cohen）是宾夕法尼亚大学沃顿商学院的荣誉教授，也是制造业和物流专家。他说：“特斯拉，生于硅谷，从来不外包他们的软件。他们自己写自己的代码，他们改写代码所以芯片短缺随时可以被逆转。其他的汽车商不可能做到。特斯拉掌握了自己的命运。”
+来源｜[metropoles](https://www.metropoles.com/entretenimento/televisao/video-reporter-do-sbt-tem-mal-subito-e-desmaia-ao-vivo-durante-jornal)
 
-2021年特斯拉在全球卖出了93.6万量车。销量增长了87%，无论是福特、通用汽车还是斯特兰蒂斯（Stellantis）却都业绩平平。
+* * *
 
-去年全球汽车交付量，特斯拉已经超过沃尔沃和斯巴鲁。有些分析人士预测今年估计达到200万辆。随着柏林和德州的工厂上线，上海工厂的产能扩张，特斯拉几乎可以和宝马、奔驰比肩，这在几年前还是不可想象的。
-
-转折就是在2018年，当时特斯拉的供产链还是个行业笑话。但日后马斯克的坚持自我供应的想法颠覆了整个汽车制造业。现在其他的汽车制造商也意识到自主开发汽车系统软件是非常必要的。美国内华达工厂的前特斯拉总裁称：“这是巨大的冒险，但因为我们早点实现了‘闭门造车’，供应链自给，所以真的掌握了自己的命运。”
-
-特斯拉的汽车系列也非常的精简。2021年 Model 3轿车和Model Y SUV（运动型多用途汽车）车款占了几乎所有的销量。
-
-汽车行业芯片专家菲尔·阿姆斯鲁德（Phil Amsrud）评论到：“他们没有想要兼容所有的不同结构的系统，这是个很高的优化效率的策略。”当然，特斯拉想要保持2021年的增长恐怕也不会一帆风顺，其后几年的年平均增长目标是50%，但特斯拉应对芯片短缺的创新手段，恐怕不能满足未来巨大的产能需求。
-
-电动汽车的市场也受到传统造车商的激烈竞争，它们更愿意制造消费者喜欢的车型，而不是像有些新兴电动汽车迎合政府的环保口味。福特公司称过去一周，福特的F-150电动汽车皮卡“lightning”车型销量增加了一倍，需求旺盛。而特斯拉的皮卡至少还要缓一年才能面世。
-
-随着半导体短缺和零件紧张趋势的放缓，传统车的前景正在好转。特斯拉仍然保持汽车制造商的最根本的优势，可以摆脱芯片危机的影响。特斯拉什么都不造，不受传统习惯的束缚专注电动汽车，新科技淘汰了旧秩序。阿姆斯鲁德称赞：“特斯拉真的翻开了新篇章。”
-
-参考新闻：[Why Tesla soared as others struggled to make cars](https://www.afr.com/technology/why-tesla-soared-as-others-struggled-to-make-cars-20220109-p59mwg)
-
-*发布：Mttfly*
-
-**
-****更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//｜//[法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](https://gnews.org/zh-hans/1647934/)//｜//美[国 51 岁研究护士听证会上为所有疫苗受害者发声“我们希望寻找真相，结果一无所获”](https://gettr.com/post/pg7s9f2179)//｜//[好莱坞 23 岁女模特公开哭诉饱受疫苗副作用折磨](https://gnews.org/zh-hant/1638611/)//｜//[美国 13 岁女孩接种疫苗后瘫痪（附影片）](https://gnews.org/zh-hans/1620514/)//｜//[美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）](https://gnews.org/zh-hant/1627802/)//｜//[新西兰 36 岁男子接种疫苗三周后心脏病发作 冀助其他受害者一起活下去](https://gnews.org/zh-hans/1677208/)//｜//[48小时内又多两名足球运动员接种疫苗后发生呼吸困难](https://gnews.org/zh-hans/1749708/)//｜// [阿根廷国脚阿奎罗接种疫苗后致严重心脏病 今宣布退役](https://gnews.org/zh-hans/1756635/) //｜// [24 岁BYU篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结](https://gnews.org/zh-hans/1764032/) //
 
  
 

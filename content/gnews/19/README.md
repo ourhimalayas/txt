@@ -2,41 +2,28 @@
 ---
 
 
-## 中共病毒疫苗设计的目的就是为了造成渐进伤害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845372/)
+## 2020民主党总统候选人加入盖特
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1845524/)
 
-#### 翻译：Lish
-校对：枳实
-剪辑/字幕：蛮急
+撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-14.png)
+图片来源：CNN
 
-**字幕文本节选（英汉对照）**
+盖特是一个真正自由言论的平台，当然也是一个不允许违法行为存在的地方。正是由于盖特的包容性，许许多多追求真相、爱好民主、法制、自由的全世界人士逐渐认识到此点，不断加入盖特大家庭。
 
-And I’m just gonna tell you right now, the vaccines are designed, they are designed to do harm over time. So you will see the majority of the autoimmune diseases, the deaths, heart attacks, the majority of them, I believe will be in three years from the time you started the shots.
+人们对事物有不同的观察角度，囿于各自的地位、立场而有着不同的观点，这是非常正常的。但世界绝大多数人都是向善的，是知善恶，辨是非的。面对世界性的生化战争，向善的人们自然会集聚在盖特平台，凝聚成伟大的力量，与世界恶势力做斗争。
 
-我现在就告诉你，疫苗是被设计好的，会随着时间的推移而造成伤害。因此，你会看到大多数人会患自身免疫性疾病，死亡，心脏病发作，大部分的人（不良反应），我相信会在他们开始注射的三年内发生。
+于是，我们看到了近期乔·罗根（Joe Rogan）的加入，看到了塔克·卡尔森（Tucker Carlson）的加入，但更为令人欣喜的是看到了2020年民主党总统候选人图尔西·加巴德 (Tulsi Gabbard)的加入。
 
-But they are designed to do that. They don’t want you to see the liability between their shots and your diseases. So they’ve designed them to create auto immune processes where your own body will start attacking itself and destroying one cell after another.
+加巴德曾是夏威夷陆军国民警卫队少校。2012年，她当选为代表夏威夷第二选区的美国众议院议员。她是第一个信仰印度教的美国国会议员，也是第一个萨摩亚裔美国国会议员。
 
-但他们的设计就是要做到这一点。他们不希望你看到他们的疫苗和你的疾病之间的关系。所以他们设计了这些针剂来创造自身免疫攻击过程，即你自己的身体将开始攻击自己，破坏一个又一个细胞。
+在 2016 年总统大选期间，加巴德辞去了民主党全国委员会副主席的职务，以便支持伯尼·桑德斯，这使她成为少数在初选中支持佛蒙特州参议员而不是希拉里·克林顿的众议院民主党人之一。她也是2020年美国总统选举民主党初选候选人之一，是第一个尝试竞选美国总统的女性退伍军人。
 
-And over time, as more and more cells are damaged, you will develop symptoms. And then those symptoms will be diagnosed as some disease state.
+加巴德的加入，标志着盖特不但是世界保守派人士的自由言论的平台，也是进步派人士自由言论的平台，预示着盖特平台已经迎来了大发展的开端，迎来了世界向善力量的大团结开端。
 
-而随着时间的推移，随着越来越多的细胞被损坏，你会出现症状。然后这些症状将被诊断为某种疾病。
+**新闻来源**：[https://gettr.com/post/pmfwpx30df](https://gettr.com/post/pmfwpx30df)
 
-And then you’re going to go like this. Well, Doc now you say I have heart disease. Do you think it might have been linked to the shots I got five years ago?
 
-然后你会问。好吧，医生现在你说我有心脏病。你认为这可能与我五年前打的那些疫苗有关吗？
-
-视频链接：[Vaccines are designed to do harm over time so that they can  get away with responsibility and liability](https://rumble.com/vqi1ad-breaking-news-with-dr-ardis-documents-you-must-have-asap.html)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
