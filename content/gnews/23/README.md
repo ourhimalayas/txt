@@ -2,61 +2,34 @@
 ---
 
 
-## 新疫情使关键劳动力缩减 欧洲放松COVID政策
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1846811/)
+## 美国CDC无法给出死于新冠病毒的具体数字
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
 
-翻译:里奇
+撰稿: 纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
+电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-11-103647.jpg)图片来源 : reuters.com
+Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
 
-马德里/布拉格，1 月 10 日（路透社）- 捷克共和国周一表示，将允许医生和教师等关键劳动力在 COVID-19 检测呈阳性后上班，这是由于病例激增欧洲最新放宽限制政策以保持服务运行的国家。
+链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
 
-随着更具传染性的 Omicron 变种成为主导并迫使数十万人被隔离，卫生工作者、警察和消防员的压力越来越大，而圣诞节假期后学校恢复教学，教师们将紧随其后。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
-但与此同时，数据显示 Omicron 不太可能导致病患满床，尤其是在许多或大多数人都接种了疫苗的情况下，政府因此缩减隔离措施，并专注于拯救遭受重创的经济。
+编辑：DM
 
-根据国际劳工组织 (ILO) 的数据，2020 年全球因疫情而损失的工作时间相当于 2.58 亿个全职工作岗位消失，而去年这一数字累计为约 1.25 亿个工作岗位。
+校正/发稿：浪迹天涯
 
-英国、法国、瑞士、西班牙和比利时在过去三周都缩短了隔离期，并放宽了受感染员工重返工作岗位的一些条件。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
-捷克部长们正在制定一份关键工人名单，尽管他们的检测呈阳性，但仍被允许继续工作，并表示卫生、社会和教育工作者以及司机和其他基本服务部门（如服务医院的洗衣店）的工作人员可能会被列入名单。
 
-国际劳工组织经济学家斯特凡·库恩 (Stefan Kuhn) 表示：“各国政府在应对 Omicron 高峰时不再有强烈意愿实施重大封锁，甚至也不再采取小措施。”
-
-自圣诞节以来，法国和瑞士都将检测呈阳性的人的隔离期从 10 天缩短至 7 天。
-
-“现在只有小波峰。”
-
-在英格兰，如果感染者连续两天的抗原检测呈阴性，那么隔离时间也一样缩减——英国卫生安全局表示，这几乎与隔离 10 天一样有效。
-
-在西班牙——周五的 14 天平均感染率创下每 10 万人 2,723 例的新纪录，比 12 月初高出 10 倍以上——几乎所有行业都感受到了人手紧缺。
-
-国家警察工会表示，许多警官正在两班倒工作，以弥补隔离的同事所造成的人员短缺。
-
-全国火车运营商 Renfe 表示，与 12 月初相比，因感染COVID-19 离职的司机人数是 12 月初的两倍，周五不得不取消约 40 车次服务。
-
-但 12 月 22 日通过的规则现在允许员工在不接受冠状病毒检测的情况下重返工作岗位。
-
-卫生部还设定了病毒载量阈值，低于该阈值的接受 PCR 检测的感染者可以被认为是非传染性的，因此适合工作——使医务人员、社会工作者和一些警察即使检测呈阳性也可以报到就职。
-
-毕尔巴鄂卫生与战略研究所的联合创始人拉斐尔·本戈亚（Rafael Bengoa）表示，当局应该更多地关注控制感染而不是预防感染。
-
-这位前世界卫生组织（WHO）高级官员说：“大流行不会以巨大的增长而是以小波峰结束，因为很多人已经被感染或接种了疫苗。”
-
-“在 Omicron 之后，我们不应该关注小波峰以外的任何事情。”
-
-有迹象表明政府正在倾听这样的建议。
-
-西班牙首相佩德罗·桑切斯（Pedro Sanchez）告诉广播电台 Cadena SER：“我们有条件……开始使用与目前不同的参数来评估这种疾病的演变。”
-
-新闻来源:[ reuters.com][Europe loosens COVID policies as Omicron takes out key workers](https://www.reuters.com/world/europe/europe-loosens-covid-policies-omicron-takes-out-key-workers-2022-01-10/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,19 @@
 ---
 
 
-## 美国CDC无法给出死于新冠病毒的具体数字
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
+## 音乐是超过核弹的精神核武器 影响力巨大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847111/)
 
-撰稿: 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
-电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
+1月1日，郭文贵先生在GTV大直播指出：
 
-链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
+音乐是用声音来表达内心世界、信仰、文化风俗等的方式，是人与人沟通的重要桥梁。潜移默化的音乐力量可以超越核武器。音乐的节奏和乐感会形成一种文化，流行音乐对整个社会有着巨大影响。所以新中国联邦，包括我是音雄的音乐和歌曲，都会给爆料革命增添灭共的勇气和力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
-
-编辑：DM
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+*编辑：东京樱花团/墨然
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
