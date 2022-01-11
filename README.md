@@ -15,100 +15,100 @@
 
 ---
 
-### [1/11/2021国际财经快讯：奥米克戎影响上周英国购物者人数；纳斯达克指数在尾盘回升中勉强实现上涨](/content/gnews/1/README.md)
+### [中共累计接种29.056亿剂次毒疫苗](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西安疫乱秦陵：中共病毒传播路径诡异](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共国正在加速推进数字人民币](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [樱花灭共诗——雪送孔凡海](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1/11/2021国际财经快讯：奥米克戎影响上周英国购物者人数；纳斯达克指数在尾盘回升中勉强实现上涨](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [01/11/22 香港快讯 15名议员去信林郑 促安心出行实名制、加定位功能](/content/gnews/2/README.md)
+### [01/11/22 香港快讯 15名议员去信林郑 促安心出行实名制、加定位功能](/content/gnews/6/README.md)
  ` 英喜-粵語組`
 
-### [钱都去了哪里？ 并非临时起意，中共国经济学家吁印钱2万亿生娃](/content/gnews/3/README.md)
+### [钱都去了哪里？ 并非临时起意，中共国经济学家吁印钱2万亿生娃](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美众议院又新增两名感染新冠病毒的立法议员](/content/gnews/4/README.md)
+### [美众议院又新增两名感染新冠病毒的立法议员](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/11英喜时事速递](/content/gnews/5/README.md)
+### [2022/01/11英喜时事速递](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共盜國賊貪腐程度駭人聽聞](/content/gnews/6/README.md)
+### [中共盜國賊貪腐程度駭人聽聞](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本一定会成为第二大数字货币市场](/content/gnews/7/README.md)
+### [日本一定会成为第二大数字货币市场](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共同的信仰像火一样 让我们同心灭共](/content/gnews/8/README.md)
+### [共同的信仰像火一样 让我们同心灭共](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生告诉墙内同胞 远离城市呆在农村](/content/gnews/9/README.md)
+### [文贵先生告诉墙内同胞 远离城市呆在农村](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一线护士揭露德国疫苗灾难（二）](/content/gnews/10/README.md)
+### [一线护士揭露德国疫苗灾难（二）](/content/gnews/14/README.md)
  ` MG 澳喜农场多语组`
 
-### [中共国养猪巨头发布鼓励员工生育的奖励方案](/content/gnews/11/README.md)
+### [中共国养猪巨头发布鼓励员工生育的奖励方案](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墓园推绿色殡葬 助港人挫骨扬灰](/content/gnews/12/README.md)
+### [墓园推绿色殡葬 助港人挫骨扬灰](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [内地学者阐明“香港民主由中共主导”](/content/gnews/13/README.md)
+### [内地学者阐明“香港民主由中共主导”](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [清风徐来](/content/gnews/14/README.md)
+### [清风徐来](/content/gnews/18/README.md)
  ` 骄子`
 
-### [“芯片欺诈门”和收购计划延期，长城汽车内忧外患](/content/gnews/15/README.md)
+### [“芯片欺诈门”和收购计划延期，长城汽车内忧外患](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记：新中国联邦救战友](/content/gnews/16/README.md)
+### [大直播后记：新中国联邦救战友](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [哈萨克斯坦之冢](/content/gnews/17/README.md)
+### [哈萨克斯坦之冢](/content/gnews/21/README.md)
  ` 骄子`
 
-### [大直播后记：新中国联邦人的信仰不是迷信](/content/gnews/18/README.md)
+### [大直播后记：新中国联邦人的信仰不是迷信](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [承建商看好前景忧人力资源 释放引入内地廉价劳工信号](/content/gnews/19/README.md)
+### [承建商看好前景忧人力资源 释放引入内地廉价劳工信号](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Peter McCullough医生：已经有上万人死于新冠疫苗](/content/gnews/20/README.md)
+### [Peter McCullough医生：已经有上万人死于新冠疫苗](/content/gnews/24/README.md)
  ` MG 澳喜农场多语组`
 
-### [天津人民囤菜忙](/content/gnews/21/README.md)
+### [天津人民囤菜忙](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [哈萨克斯坦是世界大变化的导火索](/content/gnews/22/README.md)
+### [哈萨克斯坦是世界大变化的导火索](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [自信源于自然](/content/gnews/23/README.md)
+### [自信源于自然](/content/gnews/27/README.md)
  ` 银河勇气之星`
 
-### [芯片大牛股6连跌，34个交易日跌去260亿](/content/gnews/24/README.md)
+### [芯片大牛股6连跌，34个交易日跌去260亿](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [推崇疫苗护照的欧盟议长，患免疫系统功能障碍去世](/content/gnews/25/README.md)
+### [推崇疫苗护照的欧盟议长，患免疫系统功能障碍去世](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北韩怎么变成家天下的](/content/gnews/26/README.md)
+### [北韩怎么变成家天下的](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命5年证明共产党的邪恶与拯救人类的力量](/content/gnews/27/README.md)
+### [爆料革命5年证明共产党的邪恶与拯救人类的力量](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党统治下中国人在国际上最没有尊严](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Gettr GNEWS GTV影响着全世界](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：共产党是绝对的魔帮](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党人如张高丽和演艺明星的荒淫 原因在于精神压抑和心理变态](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产主义社会不可谈性 泯灭人性](/content/gnews/32/README.md)
+### [共产党统治下中国人在国际上最没有尊严](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [01/11每日播报|社媒消息：罗伯特马龙博士 弗兰克·加夫尼 (Frank Gaffney)](/content/gnews/33/README.md)
