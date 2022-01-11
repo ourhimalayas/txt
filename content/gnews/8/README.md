@@ -2,45 +2,32 @@
 ---
 
 
-## 文贵先生谈喜币价值 寄语墙内战友
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847804/)
+## 天津累计确诊病例97例
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847893/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022年1月9日大直播中，郭先生主动聊起喜币，尤其对墙内战友衷心叮嘱，保证其投资信息与回报的安全。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/45C175A4-CFB5-42D2-A092-39236A63A866.jpeg)（图片来自网络）
 
-首先，自身的安全。不要因急于买喜币，不考虑风险去银行汇钱，结果可能被举报抓捕询问。
+1月11日，中（共）国天津市卫健委在疫情防控新闻发布会上表示，自8日出现COVID-19（中共病毒）疫情，截至11日共报告阳性新冠肺炎病毒感染者97例，其中本土新冠肺炎确诊病例49例，本土新冠病毒无症状感染者15例。
 
-其次，先与所在农场联系，做好KYC，将帐户准备好。
+据了解，天津这一轮疫情感染的是Omicron病毒变异株，因其传播速度快、隐匿性强的特点，天津当局决定9日展开全员核酸筛查。天津共有约1400万人口，截至10日下午3时，全市采样962万4938人，完成检测342万7807人。累计判定追踪密切接触者1152人、次级密切接触者685人，累计隔离管理约7.5万人。
 
-最后，寻问农场有何安全方式能将钱汇到喜帐户内，然后才能买喜币。
+由于天津紧邻北京，距离冬奥会主赛场张家口也不远，为阻断奥密克戎变异毒株的扩散蔓延和疫情外溢风险，天津已于1月9日晚发布通告，重点加强进京通道管控，组织铁路、客运站及高速路口设立卡口或专用通道，对于离津进京人员要核验48小时内核酸检测阴性证明和健康码绿码。同时严格密切接触者及次级密切接触者等重点涉疫人员排查、重点区域管控及离校师生管控。
 
-每一步都要小心谨慎，才不会被中共伤害。
+*参考链接：*
 
-文贵先生郑重向墙内战友提供三项保证：第一. 任何人拿不走你的个人信息；第二. 无论中共怎样做，拿不走你的喜币；第三. 买币以后，如果你在喜币赔钱，郭先生负责。
+1. [*http://tj.sina.com.cn/news/2022-01-11/detail-ikyamrmz4537188.shtml*](http://tj.sina.com.cn/news/2022-01-11/detail-ikyamrmz4537188.shtml)
+2. [*http://webcache.googleusercontent.com/search?q=cache:O9OXd9YA6Y4J:wsjk.tj.gov.cn/ZTZL1/ZTZL750/YQFKZL9424/FKDT1207/202201/t20220110\_5775661.html+&cd=7&hl=zh-TW&ct=clnk&gl=no*](https://webcache.googleusercontent.com/search?q=cache:O9OXd9YA6Y4J:wsjk.tj.gov.cn/ZTZL1/ZTZL750/YQFKZL9424/FKDT1207/202201/t20220110_5775661.html+&amp;cd=7&amp;hl=zh-TW&amp;ct=clnk&amp;gl=no)
 
-喜支付即将上线，意味着喜币将成为可以自由流通购物的工具，这是喜币开始要发挥其价值的起点，也是投资机构会积极进场的时刻。
 
-喜币的独特优势，加上战友们齐心锁币的行动，将使其在竞争激烈的加密货币市场独领风骚，涨势不可限量。
+* * *
 
-参考链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+*素材采编：幽蘭自得*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+*编辑：文顺*
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*发布：miumiu*
 
  
 

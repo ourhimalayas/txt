@@ -2,30 +2,40 @@
 ---
 
 
-## 《天池活水》｜上善若水 好女人旺三代
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1847713/)
+## 2022.1.10全球反疫苗抗议游行
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1847817/)
 
-**—土生萬物天池寬   正道乾坤活水源 —**
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1-1.jpeg)](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)[点击图片可看完整视频](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
-🌈**主題： 上善若水 好女人旺三代   **
+🔥🔥全球抗议者行动-2022/01/10
 
-📝**副題： 自重 珍惜 勇氣 從金融風暴中爆料革命中看國之好女性  於家於國之重器  **
+⚠️我们不反疫苗，只针对假疫苗
 
-1998年 金融風暴來襲 變買手飾金銀 捐款捐物 大韓民國女性 當仁不讓 與國運共呼吸
+⚠️我们不反科学，只针对反人类
 
-2021年 病毒疫苗災難 媒體掩蓋事實 控制輿情 新中國聯邦女性 直播揭露 還世界之真相
+⚠️covid-19=新冠病毒=中共病毒
 
-創建GTV GNEWS  蓋特自媒 自由發聲 多元包容  開啓Hcoin Hpay  喜聯儲 幣統天下 藏富於民
 
-家有好女子 豈止是旺三代  好母親福祉 不只是惠億族  ＂弄死這幫鱉孫兒！＂
 
-女子本弱 為母則強  ＂我家我說了算！＂ 女性戰友 全家滅共  水流實處 河居人家
 
-隨風隨季 氣行空中  冰川南北 溫定乾坤  上善若水 至善母性  同框同心  娓娓道來
 
-珍惜  同鄉同音 了卻宿願 勇氣 ·····
+**推出问题，敲出真相，爆料在路上！**
 
-**GTV链接:**[https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
 
  
 

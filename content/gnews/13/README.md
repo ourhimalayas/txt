@@ -2,36 +2,32 @@
 ---
 
 
-## 中共国：互联网活跃用户首次出现负增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1847738/)
+## 福克斯当家主持塔克·卡尔森加入盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847834/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.jpg)
+塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/未标题-1-2.png)
+继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
 
+参考链接：[Welcome to #GETTR, @tuckercarlson!](https://gettr.com/post/pnico6dcd0)
 
-整理报道：BENJ1
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-据东方财富网1月11日报道，易观分析重磅发布《数字经济全景白皮书》数字经济盘点预测篇显示，中国移动互联网活跃用户规模在2021年Q1首次出现环比负增长。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-移动互联网人均单日使用时长也在2021年上半年较2020年同期大幅下滑，下半年经历反弹后维持在日均六小时以上，但还未恢复到2020年顶峰水平，进一步提升使用时长困难加剧，中国移动互联网已行至周期末端，进入存量博弈时代。
-
-证卷时报网去年报道，2021年1季度，三、四、五线城市用户比重进一步提升。一、二线城市用户比重下降，这可能预示着大城市人口也进入了另一个拐点。
-
-参考新闻：
-[易观分析《数字经济全景白皮书》：互联网活跃用户首次出现负增长](https://caifuhao.eastmoney.com/news/20220111113824398213430)
-[机构报告显示：移动互联网用户增长首现拐点](https://company.stcn.com/gsxw/202105/t20210505_3196214.html)
-
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

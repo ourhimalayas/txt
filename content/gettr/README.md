@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@seanhannity 1/11/2022 3:08 PM (UTC)`
+
+Bombshell...https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@sandyrios 1/11/2022 3:18 PM (UTC)`
+
+Click on the image below to listen to the podcast:<br/><br/>Jan. 11, 2022<br/>Please email: Sandy@afr.net any comments<br/><br/>https://afr.net/podcasts/sandy-rios-in-the-morning/2022/january/j6-prayer-vigils-interrupted-by-antifa-matt-braynard-talks-about-look-ahead-america-s-j6-vigils-and-left-trying-to-use-insurrection-to-prevent-trump-and-others-from-holding-office/
+
+---
+
 `@miles 1/11/2022 3:19 PM (UTC)`
 
 ...
@@ -147,20 +163,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: The CCP has deprived the Chinese people of their faith, while everything the CCP has done is based on the rules of heaven, earth, all Buddhas, and all gods that it deeply believes. 700 virgins are sacrificed by the CCP in the Kunlun Mountains every year, and there exists a higher power watching over us humans. Only by knowing these can we destroy the CCP.<br/><br/>1/09/2022 文贵直播：中共让中国人丧失信仰，而中共的一切却都是靠它所深信的天地和万佛万神来行事的，每年有700处女在昆仑山被中共献祭；人类是有主人的，只有知道了这些才能灭共<br/>
 ![img](https://media.gettr.com/group22/getter/2022/01/10/06/8a0e91f3-82ab-4e17-6d98-8cfc4940656e/out.jpg)
-
----
-
-`@miles 1/10/2022 4:16 AM (UTC)`
-
-1/09/2022 Miles Guo: The mRNA in the COVID vaccines is toxic! Please refer to Dr. Eglise’s protocols for prevention and treatment of the CCP virus; many professors in Communist China are ignorant when it comes to the COVID vaccines and the CCP virus; the CCP’s virus testing is not accurate at all, and gathering the people to do testing together simply harms the Lao Baixing. Why is the CCP not dare to tell the public how many people have died in Xi’an?<br/><br/>1/09/2022 文贵直播：疫苗的mRNA就是毒！请遵照Eglise医生的药方；国内很多教授对疫苗和病毒充满了无知；中共的病毒检测不准，集中检测就是坑害百姓，为何不敢公布西安的死亡人数？<br/>
-![img](https://media.gettr.com/group44/getter/2022/01/10/04/e2eb59c0-d052-111b-d295-7912120dc379/out.jpg)
-
----
-
-`@miles 1/10/2022 3:12 AM (UTC)`
-
-1/09/2022 Miles Guo: How are China’s Kunlun Mountains related to Kazakhstan? The US, Europe, Russia, and CCP have recently shown their cards regarding the riots in Kazakhstan. The event in Kazakhstan indicates that the world’s landscape in terms of geopolitics and Feng Shui has completely changed. The US and Europe will no longer tolerate the expansion of the CCP and Russia to gain hegemony<br/><br/>1/09/2022 文贵直播：昆仑山跟哈萨克斯坦有什么联系？美欧俄中最近已就哈萨克斯坦的暴乱摊牌；哈萨克斯坦的事件说明全球地缘政治和风水格局已彻底改变，美欧将不再容忍中俄扩张称霸<br/>
-![img](https://media.gettr.com/group7/getter/2022/01/10/03/b04575e6-8eee-7385-4bdf-d74406c7f04e/out.jpg)
 
 ---
 

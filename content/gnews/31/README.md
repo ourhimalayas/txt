@@ -2,19 +2,29 @@
 ---
 
 
-## 日本一定会成为第二大数字货币市场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847494/)
+## 有声|中共国正在加速推进数字人民币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1847662/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共国媒体鼓吹自1月4日以来数字人民币app下载掀起了热潮，同时数字人民币用户数、交易订单数及交易金额都有显著的增长。
 
-1月1日，郭文贵先生在GTV大直播指出：
+为了在全国尽快的推进数字人民币，中共在各个领域不遗余力的展开推广，在十个试点城市及冬奥会场景上，简化注册使用门槛，新用户注册仅通过输入手机号、设置用户名及支付密码，就可自行选择运营机构快速开通钱包。同时在工商银行、农业银行、中国银行、建设银行、[交通银行](http://stock.finance.sina.com.cn/usstock/quotes/BCMXY.html)、邮储银行、[招商银行](http://stock.finance.sina.com.cn/usstock/quotes/CIHKY.html)、网商银行（支付宝）、微众银行（微信支付）等9个运营机构的钱包上直接升级实名钱包。在数字人民币的入口上纷纷接入多家平台，在应用场景上大力推进“衣食住行“的拓展，美团、京东、小米、腾讯都已经完成了相应的支持和部署。
 
-未来的日本数字货币市场，Hpay，Hcoin和HDO流通的战略重要性，仅次于美国。第二次世界大战让日本失去了所有财富，目前的日本金融市场也处于萎靡不振的状态，所以日本不会错过打入数字货币市场的良机，日本最终会成为Hcoin的重要市场。争取Hpay代理权，日本的战友们加油吧。
+文字版原文：[中共国正在加速推进数字人民币](https://gnews.org/zh-hans/1844302/)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

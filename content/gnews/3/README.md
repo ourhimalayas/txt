@@ -2,32 +2,33 @@
 ---
 
 
-## 福克斯当家主持塔克·卡尔森加入盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847834/)
+## 英特尔向中共低头后又删涉疆文字
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847962/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.jpg)
-塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/EE66B8A3-9FEB-4134-A7B8-17021ECFF0DF.jpeg)（图片来自ALY SONG/REUTERS）
 
-参考链接：[Welcome to #GETTR, @tuckercarlson!](https://gettr.com/post/pnico6dcd0)
+据《中央社》1月11日报道，美国芯片制造商英特尔（Intel）在写给供货商的年度信函中要求他们勿使用来自新疆的劳工、产品或服务，但因受到中共网军围攻低头致歉，现如今又删除所有涉及新疆的文字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据报道，英特尔去年12月23日在官网公布写给供货商的信函，内容提到，在多国政府对新疆实施限制措施后，英特尔“被要求确保供应链不使用任何来自新疆的劳力、货源或服务”。之后，中共在社交媒体掀起对英特尔的围攻。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+英特尔上月已为引发“困扰”致歉，称公司承诺避免供应链使用新疆产品或服务，只是想表达遵守美国法律，并非就新疆议题声明立场。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+如今，英特尔官网公布的信函也不见上述段落或任何提到新疆及中共国的文字。信函中只提到，英特尔禁止所有供应链出现“任何人口走私或非自愿劳动，例如强迫劳动、抵债劳动、监狱劳役、契约奴工或苦役”。
+
+针对英特尔在信函中删除所有提及新疆字词的这一事件，美国共和党籍联邦参议员卢比欧（Marco Rubio）提出严厉批评。他在声明中表示，英特尔的怯懦是另一个在经济上依赖中共国的可预见结果。他还表示，与其屈辱地道歉和自我审查，企业更应该把供应链移到不采用奴隶劳动或不实施种族灭绝的国家。
+
+*参考链接： [https://www.cna.com.tw/news/aopl/202201110092.aspx](https://www.cna.com.tw/news/aopl/202201110092.aspx)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

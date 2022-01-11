@@ -15,140 +15,140 @@
 
 ---
 
-### [王毅新年窜访五国 必有所图](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
-### [澳洲肯德基或因疫情出现供给短缺](/content/gnews/2/README.md)
+### [基因编辑正在改变人类](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [英特尔向中共低头后又删涉疆文字](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [从小王子对话郭文贵先生何为龙气与龙脉说开来](/content/gnews/4/README.md)
+ ` 新西兰伊甸农场听写编辑组`
+
+### [【Michael.Tonny专栏】疫苗10个月导致的死亡是其它疫苗51年总和的11.71倍](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场`
+
+### [澳洲维多利亚地区数千医护人员无法进行工作](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/3/README.md)
+### [中共“双减”政策致使新东方辞退6万员工](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [天津累计确诊病例97例](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [澳洲大型连锁超商再度出台新的限购政策](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [是时候站起来夺回我们的医疗自由了](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [王毅新年窜访五国 必有所图](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/4/README.md)
+### [澳洲肯德基或因疫情出现供给短缺](/content/gnews/12/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——望昆仑（新韵）](/content/gnews/5/README.md)
+### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [樱花灭共诗——望昆仑（新韵）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022.1.10全球反疫苗抗议游行](/content/gnews/6/README.md)
+### [2022.1.10全球反疫苗抗议游行](/content/gnews/16/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国人权活动家呼吁在北京奥运会期间开展“小熊维尼”观赏活动](/content/gnews/7/README.md)
+### [美国人权活动家呼吁在北京奥运会期间开展“小熊维尼”观赏活动](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生谈喜币价值 寄语墙内战友](/content/gnews/8/README.md)
+### [文贵先生谈喜币价值 寄语墙内战友](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [墙内老百姓为何如此之愚昧，如此之悲惨](/content/gnews/9/README.md)
+### [墙内老百姓为何如此之愚昧，如此之悲惨](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/10/README.md)
+### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [波湾四国外长访中共计与石油议题有关](/content/gnews/11/README.md)
+### [波湾四国外长访中共计与石油议题有关](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [2021年1月10日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/12/README.md)
+### [2021年1月10日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/22/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共国：互联网活跃用户首次出现负增长](/content/gnews/13/README.md)
+### [中共国：互联网活跃用户首次出现负增长](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜巴西 18 岁名模接种疫苗后死亡](/content/gnews/14/README.md)
+### [针下亡魂｜巴西 18 岁名模接种疫苗后死亡](/content/gnews/24/README.md)
  ` 關注組`
 
-### [中共的昆仑山祭坛能保命吗？](/content/gnews/15/README.md)
+### [中共的昆仑山祭坛能保命吗？](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [《天池活水》｜上善若水 好女人旺三代](/content/gnews/16/README.md)
+### [《天池活水》｜上善若水 好女人旺三代](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共累计接种29.056亿剂次毒疫苗](/content/gnews/17/README.md)
+### [中共累计接种29.056亿剂次毒疫苗](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安疫乱秦陵：中共病毒传播路径诡异](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵视角:共产党隐藏昆仑山的宇宙密码](/content/gnews/19/README.md)
+### [文贵视角:共产党隐藏昆仑山的宇宙密码](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|“子有所教 老有所养” 是新中国联邦的基本愿景](/content/gnews/20/README.md)
+### [有声|“子有所教 老有所养” 是新中国联邦的基本愿景](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|重拾自信心](/content/gnews/21/README.md)
+### [有声|重拾自信心](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|中共国正在加速推进数字人民币](/content/gnews/22/README.md)
+### [有声|中共国正在加速推进数字人民币](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [樱花灭共诗——雪送孔凡海](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/11/2021国际财经快讯：奥米克戎影响上周英国购物者人数；纳斯达克指数在尾盘回升中勉强实现上涨](/content/gnews/24/README.md)
+### [1/11/2021国际财经快讯：奥米克戎影响上周英国购物者人数；纳斯达克指数在尾盘回升中勉强实现上涨](/content/gnews/32/README.md)
  ` 秘密翻译组金融团队`
 
-### [01/11/22 香港快讯 15名议员去信林郑 促安心出行实名制、加定位功能](/content/gnews/25/README.md)
+### [01/11/22 香港快讯 15名议员去信林郑 促安心出行实名制、加定位功能](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [中共國天津市爆發疫苗災難](/content/gnews/26/README.md)
+### [中共國天津市爆發疫苗災難](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [钱都去了哪里？ 并非临时起意，中共国经济学家吁印钱2万亿生娃](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美众议院又新增两名感染新冠病毒的立法议员](/content/gnews/28/README.md)
+### [美众议院又新增两名感染新冠病毒的立法议员](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/11英喜时事速递](/content/gnews/29/README.md)
+### [2022/01/11英喜时事速递](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共盜國賊貪腐程度駭人聽聞](/content/gnews/30/README.md)
+### [中共盜國賊貪腐程度駭人聽聞](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本一定会成为第二大数字货币市场](/content/gnews/31/README.md)
+### [日本一定会成为第二大数字货币市场](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共同的信仰像火一样 让我们同心灭共](/content/gnews/32/README.md)
+### [共同的信仰像火一样 让我们同心灭共](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生告诉墙内同胞 远离城市呆在农村](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一线护士揭露德国疫苗灾难（二）](/content/gnews/34/README.md)
- ` MG 澳喜农场多语组`
-
-### [中共国养猪巨头发布鼓励员工生育的奖励方案](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墓园推绿色殡葬 助港人挫骨扬灰](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [清风徐来](/content/gnews/37/README.md)
+### [清风徐来](/content/gnews/40/README.md)
  ` 骄子`
 
-### [“芯片欺诈门”和收购计划延期，长城汽车内忧外患](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记：新中国联邦救战友](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [哈萨克斯坦之冢](/content/gnews/40/README.md)
+### [哈萨克斯坦之冢](/content/gnews/41/README.md)
  ` 骄子`
 
-### [芯片大牛股6连跌，34个交易日跌去260亿](/content/gnews/41/README.md)
+### [芯片大牛股6连跌，34个交易日跌去260亿](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [推崇疫苗护照的欧盟议长，患免疫系统功能障碍去世](/content/gnews/42/README.md)
+### [推崇疫苗护照的欧盟议长，患免疫系统功能障碍去世](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [01/11每日播报|社媒消息：罗伯特马龙博士 弗兰克·加夫尼 (Frank Gaffney)](/content/gnews/43/README.md)
+### [01/11每日播报|社媒消息：罗伯特马龙博士 弗兰克·加夫尼 (Frank Gaffney)](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：欧洲议会主席突然离世 是否新冠病毒及疫苗所致？](/content/gnews/44/README.md)
+### [秘翻在线：欧洲议会主席突然离世 是否新冠病毒及疫苗所致？](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [足协重罚大连人俱乐部](/content/gnews/45/README.md)
- ` 澳喜农场`
 
 ### [2022/01/07 墙内世界](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

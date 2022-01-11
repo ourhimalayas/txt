@@ -2,25 +2,24 @@
 ---
 
 
-## 有声|“子有所教 老有所养” 是新中国联邦的基本愿景
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1847664/)
+## CDC主任公然将死亡病例归因为终末期患者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847765/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在1月9日的大直播中，郭文贵先生讲述了灭共以后，中国社会一定要恢复 “少有所依，老有所养“的社会。
+作者：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月10日，美国疾病与预防控制中心主任罗谢尔·瓦伦斯基在接受采访时表示，超过 75% 的“中共病毒”死亡案例，集中发生在至少有四种合并症的群体中，并进一步强调这些患者已处在终末期，言下之意，接种疫苗与他们的死亡毫无关联。这一带有优生学色彩、并企图掩盖疫苗伤害的言论，即刻引发公众一片哗然。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.15.png)
+此前，瓦伦斯基在一档电视节目中承诺，CDC 将开始提供修订后的数据，详细地说明美国与“中共病毒“相关的 83.6万例死亡病例的详细分布，并声称这需要一段时间。时隔仅两天，瓦伦斯基就草率地声称，全美四成三的死亡病例仅限终末期多种并发症的患者，CDC网站也及时更新了数据，让公众为之震惊。
 
-郭先生说，中共国的养老金问题是一个伪命题。传宗接代，是人类的基本权利。即使在春秋战国时期，税赋很重，最首要解决的，也是“少有所依，老有所养”，这是中华民族几千年的文明传承。但在中共国，老年人既死不起，也活不起。养老金本就属于民众，却被共产党利用，成为统治的工具。
+时评人士指出，自疫情大流行爆发以来，美国的”中共病毒“疫苗的有效性和安全性一直备受质疑，自德尔塔变种病毒，到当下的奥米克戎毒株，居高不下的感染率和政府近乎变态的疫苗政策，更使民众逐渐丧失了对医药监管机构的信任。美国疾控中心一再罔顾事实，掩盖疫苗无效以及潜在的风险，甚至不惜修改接种疫苗以及免疫医学的相关概念，将这一全世界重大公共卫生事件引入了歧途。
 
-郭先生明确表示，新中国联邦灭共后，第一，要恢复正常的家庭伦理、社会道德；第二，教育是最紧迫最重要的事，也是法治、信仰、良知的基石；第三，公民到50岁以后，由国家负责养老，衣食住行、治病送终，全免费。建立喜币喜联储，就是在未来，优先让孩子和老人受惠。老年人可以自己选择养老的方式，并且鼓励老年人工作和发挥余热。
+参考链接：
 
-社会形成敬老爱老的风气，让老人更有安全感，活得更有尊严。这是新中国联邦的基本愿景。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-文字版原文：[“子有所教 老有所养” 是新中国联邦的基本愿景](https://gnews.org/zh-hans/1843832/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
