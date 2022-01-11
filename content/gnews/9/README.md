@@ -2,50 +2,52 @@
 ---
 
 
-## 澳网行程继续，德约科维奇低调回应球迷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845885/)
+## 魁北克省1月8日星期六发生大规模抗议示威活动——主流媒体却停止了系统地报道
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1845921/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+编译及评论：16626
+魁北克省发生大规模抗议示威——抗议者聚集在蒙特利尔，第一集（圆成农场16626制作）![](https://assets.gnews.org/wp-content/uploads/2022/01/image-764-edited.png)图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日
+**抗议示威活动的标语牌侮辱和冒犯了我们**
 
-#### 整理报道：文扬
-编辑：文泓
+蒙特利尔日报（丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日）针对魁北克省1月8日（星期六）发生大规模抗议示威活动发表题为《未接种疫苗者为10%》的评论文章指出，主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/khaleejtimes.jpg)图片来源：Khaleej Times
+**愤怒**
+
+报道中写道：显然，他们（抗议示威活动的人）恐惧比他们的愤怒要少。他们的自由比我们的大。当我们看到他们示威时，我们很想相信，除非我们对他们使用身体暴力，否则没有什么能阻止他们。然而，这是我们这个社会所拒绝的。
+
+我们能逮捕他们（抗议示威活动的人），把他们关在临时建造的卫生监狱里吗？我们是否要给他们下药以便成功地给他们注射吗？我们是否应该在独裁统治极权主义国家中找到答案吗，就像在中共国或北朝鲜？
+
+当然不是。我们将冒着超越民主界限的风险。我们需要想象力和智慧。我们知道，在西方的医学界，一些医生正在严重质疑为未接种疫苗的COVID患者提供护理的必要性？
+
+但我们是讲文明的人。（我们建议）主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-765-edited.png)**图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日**
+**其他相关报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-766-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
+日前，TVA新闻（TVA NOUVELLES，Agence QMI， 2022 年 1 月 6 日）发表题为《反对卫生措施的抗议者聚集在蒙特利尔》的文章报道，数百名示威者参加了周六下午（1月8日）在蒙特利尔老城举行的反对卫生措施的集会。示威者打着“我们的自由是必不可少的”，“自由必胜”等标语。
+
+示威者中有加拿大人民党领袖马克西姆·伯尼尔 （Maxime Bernier）自大流行开始以来就积极参加此类集会。伯尼尔先生在他的推特账户上发布的一段视频中说道：“这里有很多人，他们为自由而战，他们敢于对勒戈（魁北克省长François Legault）和任何侵犯我们权利和自由的暴君说不，我们将战斗到胜利的那一刻，自由最终总会胜利。”反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）也参加了集会。魁北克 Pro Choix 团体也是 1 月 1 日在魁北克省长驻蒙特利尔的办公室前举行的抗议宵禁的示威集会的组织者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-767-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
+另外，魁北克省战略传播顾问（Expert-conseil en communication stratégique）让·拜尔拉贡（Jean Baillargeon）在TVA新闻（TVA NOUVELLES, 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。拜尔拉贡在文章中提议将筛查未接种疫苗的人作为首要工作。只有这样才能平息那些已经完全接种但处于长达两年封锁状态的人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。拜尔拉贡还提到，魁北克省政府很快会针对未接种疫苗的人群采取进一步措施。一些政客提议针对医疗费用征收“疫苗税”。他最后提议，我们应该参照一些国家的方法，比如新加坡和奥地利，要想结束对90%人口的大范围限制，我们先限制（10%）未接种疫苗的人。例如在所有公共服务中都要求出示疫苗接种护照，如果他们不遵守这个规则就对他们处以罚款；未接种疫苗的人如果被感染并住院，应当向他们收取住院医疗费用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-768-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
+**视频资料**
+
+最后，文章编译及评论人提醒读者，有关魁北克省1月8日星期六发生大规模抗议示威活动的视频资料可以在视频[Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU)中找到（本段下方视频）。相应的中文注释的视频资料，也将在这篇文章的后续文章中陆续发布。
 
 
-本周一，德约科维奇在墨尔本一家法院胜诉后，这位备受争议的网坛一哥首次公开发表讲话。诺瓦克·德约科维奇发布了一条关于他的忠实粉丝的信息，并首次分享了一张自己的照片。
+Québec Pro Choix Montréal 08 janvier 2022, 作者 [Bob 333](https://www.youtube.com/channel/UCj4c1QIQR4y56hTcOTQbz8A)
+另外，文章编译及评论人还提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
 
-周一，德约科维奇在澳大利亚举行的高调听证会结束后，德约科维奇行踪没有被透露，最终一名法官下令世界第一赢得诉讼。尽管有司法裁决，但官员似乎威胁要将他驱逐出境。
+**参考资料及图片来源**：
 
-在德约科维奇在隔离酒店被拘留几天后，他的身心健康受到关注，这位塞尔维亚英雄首次公开宣布，他在等待重大决定期间感谢广大球迷的支持。
+1. 蒙特利尔日报，Le Journal De Montreal，丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日星期一上午 5:00，1-0 pour les non-vaccinés. [https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines](https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines)
+2. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，Des manifestants contre les mesures sanitaires réunis à Montréal. [https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
+3. Québec Pro Choix Montréal 08 janvier 2022. [https://www.youtube.com/watch?v=-frZut0SbaU](https://www.youtube.com/watch?v=-frZut0SbaU)
+4. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， «Dépistons et confinons les non-vaccinés». [https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
+5. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier. [https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
 
-“我很高兴也很感激法官推翻了对我的签证取消决定”，德约科维奇告诉他的数百万社交媒体粉丝：“尽管发生了这么多事，我还是想留下来并尝试竞赛，我仍然专注于此。我飞到此地，在我们最重要的活动之一，在了不起的球迷面前打球。”
 
-如果对大满贯赛场上观众的冷淡反应的预测被证明是正确的，那么卫冕冠军可能需要他所有的韧性。
-
-许多澳大利亚人对此感到愤怒，德约科维奇在一个经历了世界上最严格的强制疫苗接种和封锁规定的国家享受这种特殊待遇。
-
-德约科维奇案件的核心是他12月16日在返回祖国时，他的新冠测试结果呈阳性。
-
-作为听证会证据的一部分，记录显示，德约科维奇收到的建议是，从他检测结果呈阳性之日起，他将获得六个月的医疗豁免。
-
-“现在，我不能说更多，”德约科维奇告诉他的支持者，他们松了一口气，其中一些人聚集他在的墨尔本隔离酒店和球场外。“但感谢大家在这一切中与我站在一起，并鼓励我保持坚强。”
-
-在这位20次大满贯冠军说这番话的同时，他的家人，包括哥哥迪乔德、母亲迪亚娜和父亲斯德安，在塞尔维亚召开了新闻发布会。
-
-迪亚娜预测，最受欢迎的德约科维奇现在将更有动力在2022年1月17日至30日举行的比赛中打破大满贯奖杯的纪录。
-
-新闻链接： [Djokovic reacts to ruling by making vow — RT Sport News](https://www.rt.com/sport/545591-novak-djokovic-twitter-photo-reaction-australia/)
-
-发布：Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,25 @@
 ---
 
 
-## 加拿大疫情恶化各省抗疫前景渺茫
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845853/)
+## 强制接种是对加拿大宪章和自由的践踏
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845879/)
 
-采编/编译撰稿： 文莱    校对编辑，发稿：硫酸羟氯喹64
+采编：青青   翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-21-edited.jpg)图片来源：TSUN
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-22-edited.jpg)图片来源：TSUN
 
 
-据【多伦多太阳报】1月10日报道，加拿大各省份疫情由于“奥密克戎”病毒的迅速传播而导致确诊病例数近期均大幅上升，并因此已开始造成该国大部分地区的医院不堪重负。
+《多伦多太阳报》1月8日刊登评论文章称，尽管加拿大卫生部长日前宣称“各省及地区政府需要考虑并向所有人强制接种疫苗”，但此举不仅违反和践踏了该国《权利和自由宪章》，同时也难以被最终推广和实施。
 
-据悉，魁省当天报告了约11000例新增病毒感染，近2600名住院患者以及26人死亡的严重疫情。而安省当天的疫情也与魁省的相当。但安省卫生部门表示，由于政府的极端防疫政策限制了获得准确数据的机会，因此，实际疫情要比官方所报告的要严重许多。
+文章指出，特鲁多的自由党正致力推行全民疫苗强制接种政策，但实际上，由于联邦政府难以强迫各省执行该任务，因此总理特鲁多寄希望于各地区政府来为其代劳。然而，目前已有部分省份包括艾伯塔省和萨斯喀彻温省已经对此明确表示拒绝。
 
-虽然魁省和安省都因疫情的再度爆发而推迟了中小学的开学时间，但加拿大西部的阿尔伯塔省和B.C省却坚持认为重返校园有助于孩童的身心健康。对此，相关部门声称：将儿童暴露在失控的疫情之中，将无疑加剧“奥密克戎”病毒无节制的泛滥。
+针对特鲁多此前曾公开宣称：“未接种疫苗的人是憎恶女性和种族主义者”的狂言，该文章对此抨击道：总理试图通过羞辱和霸凌未接种者来推行其强制疫苗接种政策的愚蠢言论不仅是极其危险的，还将因此挑起社会对未接种者的愤怒和仇恨，甚至将引起致命的族群冲突。
 
 * * *
 
-原文链接：[COVID hospitalizations hit critical levels as kids in B.C., Alberta return to class | Toronto Sun](https://torontosun.com/news/national/covid-hospitalizations-nearing-or-reaching-record-highs-in-several-provinces)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://torontosun.com/opinion/columnists/lilley-mandatory-vaccinations-an-affront-to-charter-and-canadian-ideals](https://torontosun.com/opinion/columnists/lilley-mandatory-vaccinations-an-affront-to-charter-and-canadian-ideals)
 
  
 
