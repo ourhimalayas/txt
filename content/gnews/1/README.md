@@ -2,34 +2,31 @@
 ---
 
 
-## 美国CDC无法给出死于新冠病毒的具体数字
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
+## 01/11每日播报｜奥米炕病例激增致美近25%的医院遭遇严重短缺医护人员
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1846995/)
 
-撰稿: 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
-电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61dd4dfea6dfdd6031526192)**
 
-Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
+**[2022-01-11](https://gtv.org/broadcast/watch/61dd4dfea6dfdd6031526192)**
 
-链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
+CNN1月9日报道，美国布朗大学公共卫生学院院长表示，因疫情感染人数太多，该医院现在正处于濒临崩溃的边缘。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+在上周六报告此数据的大约 5,000 家医院中，近 1,200 家医院表示，他们目前正面临严重的医护人员短缺，另有其他 100 多家医院表示，他们预计下周开始会出现医护人员短缺的情况。奥米炕病例的激增可能会妨碍医院治疗非染疫患者的能力。
 
-编辑：DM
+随着对治疗的需求猛增，以及一线医护人员因接触中共病毒而被感染或被迫隔离的情况发生，医护人员短缺正在加剧。为了保障医院的接待及治疗能力，一些医院被迫选择减少或者延迟手术。例如，纽约州卫生部门周六表示，由于病床容量不足，已告知其中的40 家医院至少在两周内要停止非必要的手术。
 
-校正/发稿：浪迹天涯
+堪萨斯大学卫生系统首席医疗官 Steven博士上周六告诉 CNN说，“在一些时候，我们不堪重负，无法进行任何正常的日常工作。 “
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+根据洛杉矶县公共卫生部的新闻稿，周六，该县在过去 7 天报告了超过 20万例确诊病例，这是自大流行开始以来一周内的最高病例数。该部门表示，住院人数在一周内翻了一番，达到 3,200 人，其中有 135 人因中共病毒死亡。在洛杉矶儿童医院，接受中共病毒检测的儿童的阳性率已从 12 月的 17.5% 上升到 1 月的 45%。
 
+（秘翻新闻主编 清风先生编译报道）
 
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
