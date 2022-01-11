@@ -2,36 +2,32 @@
 ---
 
 
-## 中共国：互联网活跃用户首次出现负增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1847738/)
+## CDC主任公然将死亡病例归因为终末期患者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847765/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月10日，美国疾病与预防控制中心主任罗谢尔·瓦伦斯基在接受采访时表示，超过 75% 的“中共病毒”死亡案例，集中发生在至少有四种合并症的群体中，并进一步强调这些患者已处在终末期，言下之意，接种疫苗与他们的死亡毫无关联。这一带有优生学色彩、并企图掩盖疫苗伤害的言论，即刻引发公众一片哗然。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.15.png)
+此前，瓦伦斯基在一档电视节目中承诺，CDC 将开始提供修订后的数据，详细地说明美国与“中共病毒“相关的 83.6万例死亡病例的详细分布，并声称这需要一段时间。时隔仅两天，瓦伦斯基就草率地声称，全美四成三的死亡病例仅限终末期多种并发症的患者，CDC网站也及时更新了数据，让公众为之震惊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/未标题-1-2.png)
+时评人士指出，自疫情大流行爆发以来，美国的”中共病毒“疫苗的有效性和安全性一直备受质疑，自德尔塔变种病毒，到当下的奥米克戎毒株，居高不下的感染率和政府近乎变态的疫苗政策，更使民众逐渐丧失了对医药监管机构的信任。美国疾控中心一再罔顾事实，掩盖疫苗无效以及潜在的风险，甚至不惜修改接种疫苗以及免疫医学的相关概念，将这一全世界重大公共卫生事件引入了歧途。
 
+参考链接：
 
-整理报道：BENJ1
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-据东方财富网1月11日报道，易观分析重磅发布《数字经济全景白皮书》数字经济盘点预测篇显示，中国移动互联网活跃用户规模在2021年Q1首次出现环比负增长。
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-移动互联网人均单日使用时长也在2021年上半年较2020年同期大幅下滑，下半年经历反弹后维持在日均六小时以上，但还未恢复到2020年顶峰水平，进一步提升使用时长困难加剧，中国移动互联网已行至周期末端，进入存量博弈时代。
-
-证卷时报网去年报道，2021年1季度，三、四、五线城市用户比重进一步提升。一、二线城市用户比重下降，这可能预示着大城市人口也进入了另一个拐点。
-
-参考新闻：
-[易观分析《数字经济全景白皮书》：互联网活跃用户首次出现负增长](https://caifuhao.eastmoney.com/news/20220111113824398213430)
-[机构报告显示：移动互联网用户增长首现拐点](https://company.stcn.com/gsxw/202105/t20210505_3196214.html)
-
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,35 @@
 ---
 
 
-## 《天池活水》｜上善若水 好女人旺三代
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1847713/)
+## 中共国：互联网活跃用户首次出现负增长
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1847738/)
 
-**—土生萬物天池寬   正道乾坤活水源 —**
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1-1.jpeg)](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)[点击图片可看完整视频](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
-🌈**主題： 上善若水 好女人旺三代   **
+**【雅典娜快讯】，紧贴时代脉搏**
 
-📝**副題： 自重 珍惜 勇氣 從金融風暴中爆料革命中看國之好女性  於家於國之重器  **
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/未标题-1-2.png)
 
-1998年 金融風暴來襲 變買手飾金銀 捐款捐物 大韓民國女性 當仁不讓 與國運共呼吸
 
-2021年 病毒疫苗災難 媒體掩蓋事實 控制輿情 新中國聯邦女性 直播揭露 還世界之真相
+整理报道：BENJ1
+编辑：Mttfly
 
-創建GTV GNEWS  蓋特自媒 自由發聲 多元包容  開啓Hcoin Hpay  喜聯儲 幣統天下 藏富於民
+据东方财富网1月11日报道，易观分析重磅发布《数字经济全景白皮书》数字经济盘点预测篇显示，中国移动互联网活跃用户规模在2021年Q1首次出现环比负增长。
 
-家有好女子 豈止是旺三代  好母親福祉 不只是惠億族  ＂弄死這幫鱉孫兒！＂
+移动互联网人均单日使用时长也在2021年上半年较2020年同期大幅下滑，下半年经历反弹后维持在日均六小时以上，但还未恢复到2020年顶峰水平，进一步提升使用时长困难加剧，中国移动互联网已行至周期末端，进入存量博弈时代。
 
-女子本弱 為母則強  ＂我家我說了算！＂ 女性戰友 全家滅共  水流實處 河居人家
+证卷时报网去年报道，2021年1季度，三、四、五线城市用户比重进一步提升。一、二线城市用户比重下降，这可能预示着大城市人口也进入了另一个拐点。
 
-隨風隨季 氣行空中  冰川南北 溫定乾坤  上善若水 至善母性  同框同心  娓娓道來
+参考新闻：
+[易观分析《数字经济全景白皮书》：互联网活跃用户首次出现负增长](https://caifuhao.eastmoney.com/news/20220111113824398213430)
+[机构报告显示：移动互联网用户增长首现拐点](https://company.stcn.com/gsxw/202105/t20210505_3196214.html)
 
-珍惜  同鄉同音 了卻宿願 勇氣 ·····
-
-**GTV链接:**[https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
