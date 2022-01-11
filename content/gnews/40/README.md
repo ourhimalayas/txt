@@ -2,70 +2,47 @@
 ---
 
 
-## Eglise医生总结的预防性口鼻咽清洁法
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1845352/)
+## 恒大深圳大楼拆除招牌，慌忙撤离深圳
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1845552/)
 
-撰稿：Eglise
-![](https://assets.gnews.org/wp-content/uploads/2022/01/PHOTO-2022-01-11-13-26-25-5.jpg)图片设计：女农
-**首选：Betadine， povidone-iodine（PVP）聚维酮碘产品。**
-
-- 成人版1%PVP浓度的Betadine 漱口水和1%PVP浓度的鼻腔喷剂 （孕妇慎用）
-- 儿童版0.45%PVP 浓度的Betadine 漱口水（建议9岁及以上儿童）和0.45%PVP浓度的喷鼻剂（建议6岁及以上儿童）
+作者：日本方舟农场 – Andy5
 
 
-**次选: 防蛀牙漱口液**
 
-Colgate Peroxyl mouth sore rins；Listerine Antiseptic mouth wash；Orajel Antiseptic mouth wash；Scope，Act，Crest
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.jpg)图片设计：女农
-**洗鼻器鼻咽冲洗法**
-
-每天预防性冲洗2-3次口咽鼻，降低病毒载量，大幅降低被感染几率。【**用鼻腔喷雾器或者滴管，喷入或吸入鼻腔后部直到鼻咽腔，然后从嘴里吐出】**
-
-**自制冲洗液**
-
-- 方法一： 2茶匙10%PVP（聚维酮碘）+ 6 oz 水 = 0.5%PVP 清洗液
-- 方法二： 1）以1:10 稀释35%食品级别双氧水于生理盐水 = 3- 3.5%双氧水                2）3ml 3%双氧水+ 250 ml 生理盐水 = 0.04% 双氧水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-**【用来洗鼻的自制生理盐水没有无菌要求，可用9~10克食盐（海盐，至少是无碘盐）加1000毫升纯净水（凉开水也可以）全溶解即可用】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.jpg)图片设计：女农
-**气雾疗法：适用于各年龄组，包括儿童预防及治疗，每次3ml，其余冷藏。**
 
-**自制雾化治疗液**：
+1月10日，恒大已经从深圳总部大楼撤离，楼上“恒大集团”的招牌也已被拆除。据知情者透露，恒大集团于去年12月从该大楼退租，将总部搬回了广州。更早，有人在社交媒体上爆料，恒大在爆雷2个月后的11月，其深圳总部就已经出现人去楼空，一片狼藉的景象。
 
-- 方法一：3ml 3%双氧水（食品级别）+ 250 ml 生理盐水 + 1ml 氯化镁液 = 0.04% 氯化镁双氧水
-- 方法二：5ml 3%双氧水 + 100ml 生理盐水 = 0.15% 双氧水
-- 方法三：10%NAC(乙酰半光氨酸)雾化液：10g NAC药片磨成粉 + 100ml 蒸馏水 = 10% 雾化药液**【任何年龄组均可酌情使用，化痰，镇咳】**
-- 方法四：2003年非典期间经验疗法，烧一盆开水，毛巾围住水盆，头伸进去，六分钟以上，热蒸汽先用嘴吸,不太热了用鼻子吸。因为病毒在鼻腔和上呼吸道有近24 小时繁殖期，高温可杀死或灭活病毒。
+据悉，恒大于2017年正式将总部从广州搬迁至深圳，而之后到2020年为止，恒大的销售额从5000亿攀升至7200亿。分析人士指出，恒大撤离深圳正是在债务爆雷，尤其是2021营销额几乎腰斩至低于2017年水平的大背景下，而如此惊慌的撤离将进一步加剧市场对恒大未来的恐慌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.jpg)
+参考链接：
+1. [刚刚，“恒大集团”深圳总部招牌，正在被拆除！](https://finance.sina.com.cn/stock/estate/integration/2022-01-10/doc-ikyamrmz4254320.shtml)
+2. [独家｜恒大集团退租深圳总部大楼，部分人员搬至自有物业办公](http://m.thepaper.cn/rss_newsDetail_16219349?from=sohu)
+3. [恒大的进退之间：逆市热销7233亿 负债减少1578亿](http://www.jwview.com/jingwei/html/01-06/372932.shtml)
+4. [中国恒大2021年全年销售额4430亿元，同比下降38%](https://www.sohu.com/a/514292174_260616)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.jpg)图片设计：女农
-战友经验分享
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-Betadine产品可以只买1%PVP漱口水，用蒸馏水稀释1倍至0.5%，装入避光喷剂瓶后，即可做口腔喷剂或鼻腔喷剂使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/44-1.jpg)图片设计：女农
-【免责声明】**因为医学是一门复杂而多变的科学，每个个体都是与众不同的独立存在；这个预防及治疗建议只适合大多数情况。Eglise医生不承担任何法律责任和后果。为了您的健康安全，在出现任何异常身体情况下，请您去看医生**。
+总编/编辑：DM
+校对/发稿：为真不破20
 
-鸣谢来自全球各农场多位战友的资料，应用反馈和经验分享。
+**更多资讯，更多关注**
 
-[参考文献一](https://www.bioresearchcommunications.com/index.php/brc/article/view/176)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[参考文献二](https://stevenyager.org/wp-content/uploads/2020/08/Steven-Yager-Dr-Brownstein-A-Novel-Approach-to-Treating-COVID-19-Using-Nutritional-and-Oxidative-Therapies.pdf)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[参考文献三](https://www.secondopinionnewsletter.com/Health-Alert-Archive/View-Archive/14089/This-AtHome-Treatment-Can-Knock-Out-Any-Virus--Including-the-Coronavirus.htm)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-审核编辑：Jenny
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美工图片设计：女农
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**欢迎点击磐石农场二维码咨询并加入我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)磐石农场Gettr 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)磐石农场Gtv
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/PHOTO-2022-01-11-00-30-33.jpg)设计：7 Ants
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,12 +2,19 @@
 ---
 
 
-## 1/3日郭文贵GETTR：在冬奥会场馆发现可疑的COVID病例（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1846320/)
+## Gfashion让Hcoin, HDO能正式实体流通
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846363/)
 
-2022/1/3日郭文贵GETTR：郑州将被封锁，在冬奥会场馆发现可疑的COVID病例后，50人被拉去体格检查，在体检期间受到羞辱，参加冬奥会的外国运动员也可能会受到领导亲自的体格检查。救死扶伤的医生被像畜生一样对待。在中共眼里，人类没有尊严！
+整理：雅典娜速记组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Gfashion让H-coin-HDO能正式实体流通.png)
+*发布：* 小红帽
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
