@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对中国人的邪恶，死多少人他根本不在乎
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848431/)
+## 让最牛的大企业看到喜联储绝对不会被挤兑挤垮
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848487/)
 
 台灣寶島農場
 

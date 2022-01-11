@@ -2,8 +2,8 @@
 ---
 
 
-## G系列，成为大富豪之路
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848511/)
+## 护士出来发声，认为现有治疗新冠患者方案，是在杀害患者
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848588/)
 
 台灣寶島農場
 

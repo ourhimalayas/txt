@@ -15,119 +15,119 @@
 
 ---
 
-### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/2/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/4/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [G系列，成为大富豪之路](/content/gnews/8/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共国的威权主义](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/10/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [你不灭共，我们什么族都没有](/content/gnews/13/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [共产党对中国人的邪恶，死多少人他根本不在乎](/content/gnews/16/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说相信信仰（2022-01-07摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [七哥谈跟共产党的较量（2022-01-07）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [七哥说喜马拉雅山没那么简单（2022-01-07摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥说凡是不能兑现的承诺都是欺骗（2022-01-07摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [国内封城前需要准备的物资](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共国解职官员讲述西安封城真相](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
-
-### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/27/README.md)
+### [2022/01/11大卫作战室直播精要](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国单日新增113万人 创全球新高](/content/gnews/28/README.md)
+### [伊维菌素、以乙酰半胱胺酸（NAC）、槲皮素和维生素D3](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/3/README.md)
+ ` 华盛顿DC-Russian`
+
+### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [爆料革命日记（十）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/8/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/10/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [G系列，成为大富豪之路](/content/gnews/14/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共国的威权主义](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/16/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [你不灭共，我们什么族都没有](/content/gnews/19/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [七哥说相信信仰（2022-01-07摘录）](/content/gnews/22/README.md)
+ ` MG FARM`
+
+### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/23/README.md)
+ ` 秘密翻译组-原创组`
+
+### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [国内封城前需要准备的物资](/content/gnews/25/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共国解职官员讲述西安封城真相](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/27/README.md)
+ ` 温哥华扬帆农场`
+
+### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国单日新增113万人 创全球新高](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [最高法院准备决定就拜登对企业和医护人员的疫苗令进行限制](/content/gnews/29/README.md)
+### [最高法院准备决定就拜登对企业和医护人员的疫苗令进行限制](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [王毅新年窜访五国 必有所图](/content/gnews/31/README.md)
+### [王毅新年窜访五国 必有所图](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/32/README.md)
+### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/33/README.md)
+### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——望昆仑（新韵）](/content/gnews/34/README.md)
+### [樱花灭共诗——望昆仑（新韵）](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022.1.10全球反疫苗抗议游行](/content/gnews/35/README.md)
+### [2022.1.10全球反疫苗抗议游行](/content/gnews/36/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/36/README.md)
+### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [波湾四国外长访中共计与石油议题有关](/content/gnews/37/README.md)
+### [波湾四国外长访中共计与石油议题有关](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [2021年1月10日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/38/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [针下亡魂｜巴西 18 岁名模接种疫苗后死亡](/content/gnews/39/README.md)
  ` 關注組`
