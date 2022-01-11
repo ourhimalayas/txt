@@ -2,11 +2,13 @@
 ---
 
 
-## 1/10/2022 文贵盖特：美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1845121/)
+## 中共病毒疫情冲击之下 多国医疗系统或将崩溃
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845148/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220111-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
