@@ -2,31 +2,40 @@
 ---
 
 
-## Mr. Bannon erősen bírálja az HBO Vice hazugságait és félrevezetését
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1820276/)
+## 俄罗斯害怕哈萨克斯坦发生“颜色革命”急忙派兵平乱
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1840025/)
 
-By GTV 新闻访谈 作者：纽约香草山农场 文真
+#### 撰稿：日本东京方舟农场 北极
 
-匈牙利语翻译：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-3.jpg)
-图片来源：网络截图
-December 26-án Mr. Bannon közzétett egy Gettr-cikket, amelyben erősen bírálta az HBO Vice hazugságait és elferdített jelentéseit Guo Wengui úrról és a forradalomról.
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FA4116EF-B4F3-49E5-B697-AB83F1D13FAC.jpeg)哈萨克斯坦的抗议民众在阿拉木图手挽手站在防暴警察前。（图片来自美国之音中文网）
 
-A Gettr cikkében Mr. Bannon, mint mindig, dicsérte Guo urat bölcsességéért és bátorságáért, hogy felfedje az HBO Vice hazugságait. És a videófelvétel egész folyamata, a teljes interjúfolyamat filmezése, és a megfelelő időben történő nyilvánosságra hozatala.
+自1月2日以来，哈萨克斯坦境内的骚乱愈演愈烈。哈现任总统托卡耶夫以“外国势力干涉”为由，于1月5日正式向集安组织提出求助申请。该组织成员俄罗斯唯恐邻国政局动荡波及自身，立刻于1月6日派出精锐空降兵赴哈萨克斯坦平息骚乱。
 
-A friss hírek forradalmának elindítása óta Guo úr könyörtelenül felfedi az igazságot a vuhani biológiai fegyverek laboratóriumáról. Fedezd fel a bűnöző Fauci hazugságait. Felfedte, hogy a CCP magas rangú tisztviselői végezték el az „emberi szervek” élő emberektől való kigyűjtését. És az a tény, hogy a náci típusú népirtást Xin Jiang-ban hajtották végre.
+自新年以来，哈萨克斯坦国内不断出现民众抗议浪潮，并最终演变成骚乱。据称，燃料价格上涨以及生活开支方面的民怨，是触发此次骚乱的导火索。最早的抗议始于盛产石油的西部地区，但到本星期，这个中亚国家的抗议行动迅速升级，爆发了自该国独立30年以来最为严重的骚乱。
 
-Bannon úr kiemelten rámutatott, hogy az HBO Vice Guo úrról szóló félrevezetése azt bizonyítja, hogy az amerikai médiavállalat hízelgő és megalkuvó a CCP bűnözői csoportjával. Az HBO Vice már régóta a CCP futókutyája. A kínai nép, az amerikai nép és az egész emberiség érdekeinek védelme érdekében fel kell Pusztítsd el a CCP bűnözői csoportját.
+示威者要求改变政权，并呼吁哈萨克斯坦总统卡西姆·若马尔特·托卡耶夫（Kassym-Jomart Tokayev）和81岁的前领导人努尔苏丹·纳扎尔巴耶夫（Nursultan Nazarbayev）下台。纳扎尔巴耶夫在执掌大权近30年后于三年前卸任，但却仍保留着“国家领导人”的正式头衔。
 
-A cikk tartalma csak a szerző személyes nézeteit képviseli, és a Gnews platform semmilyen jogi kockázatot nem vállal.
+目前，哈萨克斯坦现任总统托卡耶夫已下令部队“无需警告便可开枪击毙”抗议民众。他同时还指责称，有外部势力进行了前所未有的煽动。他在星期四对全国的广播讲话中声称，阿拉木图受到了“两万土匪”的攻击，这些人有着“明确的攻击计划，行动有协调性，并具有高度的战备能力”。
 
-参考链接：[https://gettr.com/post/pkonj1d4f8](https://gettr.com/post/pkonj1d4f8)
+1月5日，托卡耶夫正式向集体安全条约组织（CSTO）提出平乱请求。这个由莫斯科主导的安全协定的成员国包括亚美尼亚、白俄罗斯、哈萨克斯坦、吉尔吉斯斯坦、俄罗斯和塔吉克斯坦。托卡耶夫启动了集体安全条约的第四条款，这项条款承诺成员国彼此帮助抵抗“外国干涉”。这是1994年成立的集安组织成员国首次引用这项军事联盟的第四条款。
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1795132/](https://gnews.org/zh-hans/1795132/))
+俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）在谈到哈国骚乱时也宣称，“动乱”得到了外部支持，目的是“动用有训练、有组织、有武装的队伍，通过武力来破坏国家安全与完整。”
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+此外，俄罗斯官员和亲克里姆林宫的媒体也都声称，西方在幕后挑动并试图酝酿另一场颜色革命，目的是在下星期美国和北约与俄罗斯的安全会谈之前扰乱俄罗斯的方寸。西方近期十分担心克里姆林宫有可能考虑入侵乌克兰，而美国和北约已计划于下周与俄罗斯展开一系列外交谈判。
 
+对于目前在前苏联境内的两个邻国之间的事态发展，美国研究机构“大西洋理事会”欧亚中心副主任梅琳达·哈林（Melinda Haring）表示：“前苏联地区此刻面临着紧张局势，俄罗斯部队和坦克正在从三面边境包围着乌克兰。莫斯科最不希望在被它视为势力范围内的一个国家里发生合法抗议。”
+
+不少西方外交官和分析人士认为，俄罗斯向邻国哈萨克斯坦派兵帮助平息暴力示威的速度之快，表明克里姆林宫害怕发生“颜色革命”。
+
+*参考链接：[克里姆林宫害怕哈萨克斯坦发生“颜色革命”](https://www.voachinese.com/a/kremlin-fears-color-revolution-in-kazakhstan-20220107/6388020.html)*
+
+* * *
+
+*素材采编：北极*
+
+*编辑： 青衣青青*
+
+*发布：miumiu*
 
  
 

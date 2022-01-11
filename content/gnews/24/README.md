@@ -2,45 +2,18 @@
 ---
 
 
-## 有声|金本位数字币未来将取代无锚法币和无锚数字币。喜币（HCN）将前途无量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845735/)
+## 日本政府针对奥密克戎蔓延的政策新动态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845769/)
 
-配音：香草山教育部 – Rose
+撰稿：东京樱花团丨麗子
+![](https://lh4.googleusercontent.com/-rKD9lrhiYAHAgQHsG2Ed_au4rlZLZaqq3nr6NJroE1mSLR0yOSox5FLAfpopyd_cydyl161SU6webCe1J-DJbFSsP7jFR_pGRG7s0JDW2VPZquxE2tE2gv0pJ_bbGV0-UDizUxz)[*图片来源*](https://uc.udn.com.tw/photo/2022/01/09/98/15181181.jpg)
+1月11日，日本首相岸田文雄宣布，将尽早开始为12岁以下的儿童接种疫苗，前提是自愿接种。为了防止奥密克戎进一步蔓延，原则上继续禁止外国人入境，此项政策将延续至2月底。同时，将提前为包括老年人在内的普通民众进行第三针疫苗接种，并表示将重新开放由自卫队管理的大规模疫苗接种中心。
 
+信息来源：[**12歳未満にもワクチン接種　2月末まで入国禁止継続**](https://news.yahoo.co.jp/articles/347b3c16ed904578df5ebb2f3b40f55fed2dc9cc)
 
-
-![This image has an empty alt attribute; its file name is logo-s2.png](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-金银是全人类有史以来的全球通用货币。随著社会的发展，金银作为货币的弊端越来越严重：真假难辨，运输储存成本高难度大，支付不及时等。取而代之的是法币的金本位制。 
-
-历史上美元的金本位制，随著布雷顿森林体系的解体而放弃。主要原因就是美元超发而不受控制，美元的印钞与黄金的储备不成比例。导致无法兑现金本位的承诺。
-
-原文链接：[金本位数字币未来将取代无锚法币和无锚数字币。喜币（HCN）将前途无量](https://gnews.org/zh-hans/1842445/)
-
-音频处理：喜山必胜Maverick
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,25 @@
 ---
 
 
-## 疫苗灾难正在席卷美国航空业
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845794/)
+## 魁省将使用疫苗护照购买大麻和酒类饮品
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845833/)
 
-采编/编译撰稿： 自由法兰西         校对编辑，发稿：硫酸羟氯喹64
+采编：文莱     编译撰稿：文明(添草灭共)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-19-edited.jpg)图片来源：EXPOSE
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-20-edited.jpg)图片来源：后千禧年
 
 
-据英国《每日内幕》1月7日报道, 美国商业航空飞行员皮尔森近期在接受媒体采访时透露，“新冠病毒”疫苗接种引发的后遗症和人身伤害正在迅速席卷该国整个航空业。
+据加拿大媒体【后千禧年】1月9日报道，在魁北克省政府近日宣布将在酒精类和大麻类商品专卖店强行使用疫苗护照后，该省预约接种“新冠病毒”疫苗的人数翻了两番。
 
-报道称，大部分飞行员在接种该疫苗后都经历了严重的胸痛症状。皮尔森也不例外，他曾在接种后因为出现心脏房颤，而被紧急送院接受治疗。对此，该飞行员表示：疫苗也会是脑梗的主要原因，并将可能在飞行任务中因此引发航空灾难。
+报道称，自当局1月6日发布“进入国营酒类商店或大麻药房必须出示接种证明”的规定以来，魁省“新冠病毒”疫苗首次接种预约人数由此前的日均1500名飙升至目前的6000名。
 
-据悉，许多航空公司的飞行员都因害怕被当局解雇，甚至职业报复而不敢公开披露当前所出现的疫苗灾难。他们被迫忍着胸部和头部的病痛在继续着飞行工作。此外，由于拜登政府对航空业的疫苗强制接种规定，即使发生了以上疫苗伤害问题，大部分受害者也将毫无寻求补偿的途经。
+据悉，目前该省近85%的人口至少接种了一剂疫苗，接种两剂及以上人口超过78%，并在全球各地疫苗接种率中位居前列。尽管如此，魁省近期平均每天仍新增1.5万例病毒感染患者，也因此位居加拿大疫情重灾区的前列。
 
 * * *
 
-原文链接：[https://dailyexpose.uk/2022/01/07/us-pilot-says-his-colleagues-are-dropping-like-flies-with-crushing-chest-pain-post-covid-19-vaccination/](https://dailyexpose.uk/2022/01/07/us-pilot-says-his-colleagues-are-dropping-like-flies-with-crushing-chest-pain-post-covid-19-vaccination/)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：https://thepostmillennial.com/vaccine-appointments-quebec-vax-passport-liquor-cannabis-stores
 
  
 

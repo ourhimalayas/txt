@@ -2,20 +2,16 @@
 ---
 
 
-## 日本首相表示将加速一般民众的第三针疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845886/)
+## 美国首例：猪心脏成功植入人体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845961/)
 
-撰稿：东京樱花团丨待命（文晓）
-![](https://lh3.googleusercontent.com/HyBSeQiUumSeeuhcBFrmZXuXQ0o8JM6BAbEQbPmvEF_8-Pp4MQHW4U7ggLIJr3vVkKXopNcfma1-Q-qp2g9I0Xr202Ia896HIa1KOtwFymivZiXcK-1Wrdblyo-dN6eUQWkz_q7m)（图片源自本文链接）
-1月11日据日本电视新闻网报道：为应对中共病毒（新冠病毒）快速传播，岸田首相11日上午宣布，从3月起提前对普通民众进行第三针疫苗接种。
+撰稿：东京樱花团丨立正道
+![](https://lh4.googleusercontent.com/pTBa8AbtuudAuVpbrVmQfehhZ_bf-UTqCkyXLh-_z-MCXNVm14O4cAetUjTAMIBiV1wwGWTDWnq2v11Ul2VtFEwmogERbxdvhgugFgSx-fgujTdEEWQEueq45M7B9T47lwPLqdvY)[*图片来源*](https://img.ltn.com.tw/Upload/health/page/400S/2021/10/20/3710160_1_1.jpg)
+【华盛顿法新社时事】马里兰大学医学院10日宣布，已成功将转基因猪心脏移植到人类体内。外科医生巴特利·格里菲斯博士强调，“我们已经采取措施克服移植器官短缺的危机。”
 
-岸田首相说：3月份开始，我们将利用最近获得的额外的1800万支莫德纳疫苗，对普通民众提前实施第三针疫苗接种。老年人的疫苗接种工作更要提前进行，以前没有资格接种疫苗的12岁以下儿童，如果他们愿意也将尽快给予接种。自卫队将重新建立一个大规模的疫苗接种中心。
+移植于7日完成。患者是 57 岁的 David Bennett，他住在马里兰州，手术前卧床不起。手术前一天晚上，他说：“我可以选择死亡或接受移植。我想活下去。我不知道会发生什么，但这是我最后的希望。” 手术结束后，监测状态持续24小时。
 
-另外他还表示：打算直到下个月底之前继续实施隔离措施，原则上禁止新的外籍人员进入日本，但同时也会从人道主义和国家利益的角度出发采取相关必要措施。
-
-随着爆料革命在全世界各地的推进,，疫苗的危害已被更多人所知晓。所以，笔者觉得放弃第三针的人应该比放弃第二针的人会更多。
-
-信息来源：[３回目接種“３月以降は一般接種前倒しへ”](https://news.yahoo.co.jp/articles/9dfde2f63b9f36b9d0820515dc50bff9197b6a58)
+新闻来源：[**豚の心臓、人間に移植 成功と発表―米メリーランド大**](https://gunosy.com/articles/exoqL?s=s)
 
 *校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 平安卿卿*
