@@ -2,18 +2,20 @@
 ---
 
 
-## 西媒头条 — 第150期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1847103/)
+## 坟地是肮脏的地方 提高自我德行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847161/)
 
-**制作：蚂蚁兄弟**
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+1月1日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220111.001.jpeg)
+坟地是有些没升上天的灵魂和没有投胎的灵魂聚集地，里面有很多不同的层次。你对社会和人性的认知，还不足以解释现在人生里发生的不如意。郭先生要求战友们提高层次、知识、标准，德行。
 
-***发稿：信心满满***
+*编辑：东京樱花团/墨然
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 

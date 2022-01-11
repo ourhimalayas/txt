@@ -2,26 +2,33 @@
 ---
 
 
-## 韩国总统候选人尹锡悦赞成粉碎共产党
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1846788/)
+## 美国CDC无法给出死于新冠病毒的具体数字
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
 
-#### 撰稿：彩虹
+撰稿: 纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
+电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-22.jpg)图片来源：经济学家
-1月10日，《新闻极限》引述《独立报》的文章，指韩国总统候选人在对待中共的态度上有截然不同的观点和态度。
+Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
 
-文章指，韩国总统候选人尹锡悦（Yoon Seok-youl）分享了一个含有“myulgon”的帖子后，一个冷战时期的反共口号再次进入人们的视野，该口号的意思是“粉碎共产党”或“消灭共产主义”，这引发了一场关于该国是否应该保持战略模糊政策的辩论，该战略模糊政策使政府能够同时保持与中共国和美国的关系。
+链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
 
-韩国主要反对派国民力量（People Power Party）的尹锡悦说，如果在2022年3月9日当选（总统），他将结束韩国在中共国和美国之间的谨小慎微，使其外交政策与美国保持一致。而执政的民主党（DP）总统候选人李在明（Lee Jae-myung）则说，中共国仍然是韩国的重要贸易伙伴，并强调其在朝鲜无核化中的作用“不能被否定”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
-根据《半岛电视台》报道，韩国社会舆论研究所（Korea Society Opinion Institute）在12月10日至11日进行了一项全国性民意调查，调查结果显示，尹锡悦的支持率为42%，李在明的支持率为40.6%。
+编辑：DM
 
-文章报道，零售业巨头韩国新世界集团负责人郑溶镇（Chung Yong-jin）在Instagram上发布了一系列帖文，使用了“myulgong”（即“粉碎共产党”或“消灭共产党”）的字眼。Instagram首先删除了这些帖文，说其包含了煽动暴力的词汇，但随后Instagram方面又恢复了这些帖文。
+校正/发稿：浪迹天涯
 
-**新闻来源**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
-[Candidates in South Korean Election Torn Between China and US](https://www.newsmax.com/newsfront/south-korea-slogan-communism/2022/01/10/id/1051780/)
 
  
 

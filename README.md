@@ -15,134 +15,134 @@
 
 ---
 
-### [欧洲人从来没看起过中国人](/content/gnews/1/README.md)
+### [北韩怎么变成家天下的](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国内谎言大流行 中国人却深信不疑 我们到底该恨谁](/content/gnews/2/README.md)
+### [爆料革命5年证明共产党的邪恶与拯救人类的力量](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为什么十大媒体要采访 被文贵先生拒绝了](/content/gnews/3/README.md)
+### [共产党统治下中国人在国际上最没有尊严](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [足协重罚大连人俱乐部](/content/gnews/4/README.md)
+### [Gettr GNEWS GTV影响着全世界](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大直播后记：共产党是绝对的魔帮](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [共产党人如张高丽和演艺明星的荒淫 原因在于精神压抑和心理变态](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产主义社会不可谈性 泯灭人性](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [我们要接受别人说反话 能听进去不同的话](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧洲人从来没看起过中国人](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：欧洲议会主席突然离世 是否新冠病毒及疫苗所致？](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国内谎言大流行 中国人却深信不疑 我们到底该恨谁](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为什么十大媒体要采访 被文贵先生拒绝了](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [足协重罚大连人俱乐部](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [疫情爆发 各地接力 灭美反灭自己](/content/gnews/5/README.md)
+### [疫情爆发 各地接力 灭美反灭自己](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [当年美国怎么对待前苏联 今天怎么对待共产党](/content/gnews/6/README.md)
+### [当年美国怎么对待前苏联 今天怎么对待共产党](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [正风邪风 红旗怕水（下）](/content/gnews/7/README.md)
+### [正风邪风 红旗怕水（下）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [正风邪风 红旗怕水（上）](/content/gnews/8/README.md)
+### [正风邪风 红旗怕水（上）](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党不灭世界没有任何未来 老天在帮我们灭掉共产党](/content/gnews/9/README.md)
+### [共产党不灭世界没有任何未来 老天在帮我们灭掉共产党](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党查基督教徒后代 为了根除宗教影响](/content/gnews/10/README.md)
+### [共产党查基督教徒后代 为了根除宗教影响](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线： 赵赫突然离世 央视主持人有几个有善终？](/content/gnews/11/README.md)
+### [秘翻在线： 赵赫突然离世 央视主持人有几个有善终？](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记——喜币创造富豪](/content/gnews/12/README.md)
+### [大直播后记——喜币创造富豪](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本视频戳穿共产党谎言 传遍华盛顿 20多名战友被释放](/content/gnews/13/README.md)
+### [日本视频戳穿共产党谎言 传遍华盛顿 20多名战友被释放](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [音乐的原始基地是英国 我们要相信欧洲文明会绽放在新中国联邦](/content/gnews/14/README.md)
+### [音乐的原始基地是英国 我们要相信欧洲文明会绽放在新中国联邦](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [坟地是肮脏的地方 提高自我德行](/content/gnews/15/README.md)
+### [坟地是肮脏的地方 提高自我德行](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年是新中国联邦收割之年 做强做大金融 媒体核心板块](/content/gnews/16/README.md)
+### [2022年是新中国联邦收割之年 做强做大金融 媒体核心板块](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022是共产党大灾之年](/content/gnews/17/README.md)
+### [2022是共产党大灾之年](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥介绍新中国联邦宣言（下）](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥介绍新中国联邦宣言（上）](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [湖南社保基金案涉数百张死亡人员社保卡](/content/gnews/20/README.md)
+### [湖南社保基金案涉数百张死亡人员社保卡](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [对推特 谷歌等垄断结构一系列法案正在进行中](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [音乐是超过核弹的精神核武器 影响力巨大](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [99%纯度的盖特在过去3周内下载量达3500万](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西媒头条 — 第150期](/content/gnews/24/README.md)
+### [西媒头条 — 第150期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [当血液在体内变成半固体凝胶状时是这个样子](/content/gnews/25/README.md)
+### [当血液在体内变成半固体凝胶状时是这个样子](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/01/07 墙内世界](/content/gnews/26/README.md)
+### [2022/01/07 墙内世界](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“脸书”将强制员工接种加强针](/content/gnews/27/README.md)
+### [“脸书”将强制员工接种加强针](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国CDC无法给出死于新冠病毒的具体数字](/content/gnews/28/README.md)
+### [美国CDC无法给出死于新冠病毒的具体数字](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [01/11每日播报｜荒唐！辉瑞将推出奥米炕疫苗](/content/gnews/29/README.md)
+### [01/11每日播报｜荒唐！辉瑞将推出奥米炕疫苗](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [达萨克被曝向公众隐瞒新冠病毒的早期测序数据](/content/gnews/30/README.md)
+### [达萨克被曝向公众隐瞒新冠病毒的早期测序数据](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国10万人上街抗议新提议的COVID疫苗通行证](/content/gnews/31/README.md)
+### [法国10万人上街抗议新提议的COVID疫苗通行证](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韩国总统候选人尹锡悦赞成粉碎共产党](/content/gnews/32/README.md)
+### [韩国总统候选人尹锡悦赞成粉碎共产党](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [01/11每日播报｜新闻简讯:奥米炕现踪天津 德国推迟中共病毒疫苗强制令](/content/gnews/33/README.md)
+### [01/11每日播报｜新闻简讯:奥米炕现踪天津 德国推迟中共病毒疫苗强制令](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [英国的法案就是开始对中共实施和前苏联一样的秘密计划](/content/gnews/34/README.md)
+### [英国的法案就是开始对中共实施和前苏联一样的秘密计划](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [天津疫情加剧全员核酸检测，居民恐慌抢购生活物资](/content/gnews/35/README.md)
+### [天津疫情加剧全员核酸检测，居民恐慌抢购生活物资](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [让数据说话 接种中共病毒疫苗后更容易被传染](/content/gnews/36/README.md)
+### [让数据说话 接种中共病毒疫苗后更容易被传染](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰逮捕正计划在敖德萨发动恐怖袭击的俄罗斯特工](/content/gnews/37/README.md)
+### [乌克兰逮捕正计划在敖德萨发动恐怖袭击的俄罗斯特工](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国肉制品含禁药，反禁药组织提醒冬奥运动员别吃](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中共国今年发行特别国债或超1万亿](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】迫于中共压力 英特尔删除相关涉疆内容](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [数字疫苗也许会在不久的将来迅速推出](/content/gnews/41/README.md)
+### [数字疫苗也许会在不久的将来迅速推出](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新西兰财经G乐部2022年1月11日:财经新闻整理](/content/gnews/42/README.md)
+### [新西兰财经G乐部2022年1月11日:财经新闻整理](/content/gnews/43/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [扬帆速递2022年1月10日版](/content/gnews/43/README.md)
- ` 温哥华扬帆农场`
 
 ### [2020的民主党总统候选人加入盖特](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
