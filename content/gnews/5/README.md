@@ -2,35 +2,45 @@
 ---
 
 
-## 中共国：互联网活跃用户首次出现负增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1847738/)
+## 文贵先生谈喜币价值 寄语墙内战友
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847804/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2022年1月9日大直播中，郭先生主动聊起喜币，尤其对墙内战友衷心叮嘱，保证其投资信息与回报的安全。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/未标题-1-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-7.jpeg)
 
+首先，自身的安全。不要因急于买喜币，不考虑风险去银行汇钱，结果可能被举报抓捕询问。
 
-整理报道：BENJ1
-编辑：Mttfly
+其次，先与所在农场联系，做好KYC，将帐户准备好。
 
-据东方财富网1月11日报道，易观分析重磅发布《数字经济全景白皮书》数字经济盘点预测篇显示，中国移动互联网活跃用户规模在2021年Q1首次出现环比负增长。
+最后，寻问农场有何安全方式能将钱汇到喜帐户内，然后才能买喜币。
 
-移动互联网人均单日使用时长也在2021年上半年较2020年同期大幅下滑，下半年经历反弹后维持在日均六小时以上，但还未恢复到2020年顶峰水平，进一步提升使用时长困难加剧，中国移动互联网已行至周期末端，进入存量博弈时代。
+每一步都要小心谨慎，才不会被中共伤害。
 
-证卷时报网去年报道，2021年1季度，三、四、五线城市用户比重进一步提升。一、二线城市用户比重下降，这可能预示着大城市人口也进入了另一个拐点。
+文贵先生郑重向墙内战友提供三项保证：第一. 任何人拿不走你的个人信息；第二. 无论中共怎样做，拿不走你的喜币；第三. 买币以后，如果你在喜币赔钱，郭先生负责。
 
-参考新闻：
-[易观分析《数字经济全景白皮书》：互联网活跃用户首次出现负增长](https://caifuhao.eastmoney.com/news/20220111113824398213430)
-[机构报告显示：移动互联网用户增长首现拐点](https://company.stcn.com/gsxw/202105/t20210505_3196214.html)
+喜支付即将上线，意味着喜币将成为可以自由流通购物的工具，这是喜币开始要发挥其价值的起点，也是投资机构会积极进场的时刻。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+喜币的独特优势，加上战友们齐心锁币的行动，将使其在竞争激烈的加密货币市场独领风骚，涨势不可限量。
+
+参考链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

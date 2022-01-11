@@ -2,31 +2,34 @@
 ---
 
 
-## 《天池活水》｜上善若水 好女人旺三代
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1847713/)
+## 波湾四国外长访中共计与石油议题有关
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847764/)
 
-**—土生萬物天池寬   正道乾坤活水源 —**
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1-1.jpeg)](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)[点击图片可看完整视频](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
-🌈**主題： 上善若水 好女人旺三代   **
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.07.png)
+中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
 
-📝**副題： 自重 珍惜 勇氣 從金融風暴中爆料革命中看國之好女性  於家於國之重器  **
+习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
 
-1998年 金融風暴來襲 變買手飾金銀 捐款捐物 大韓民國女性 當仁不讓 與國運共呼吸
+中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
 
-2021年 病毒疫苗災難 媒體掩蓋事實 控制輿情 新中國聯邦女性 直播揭露 還世界之真相
+参考链接：[波灣四國外長集體訪中 討論強化能源關係](https://www.cna.com.tw/news/acn/202201100368.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-創建GTV GNEWS  蓋特自媒 自由發聲 多元包容  開啓Hcoin Hpay  喜聯儲 幣統天下 藏富於民
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-家有好女子 豈止是旺三代  好母親福祉 不只是惠億族  ＂弄死這幫鱉孫兒！＂
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-女子本弱 為母則強  ＂我家我說了算！＂ 女性戰友 全家滅共  水流實處 河居人家
-
-隨風隨季 氣行空中  冰川南北 溫定乾坤  上善若水 至善母性  同框同心  娓娓道來
-
-珍惜  同鄉同音 了卻宿願 勇氣 ·····
-
-**GTV链接:**[https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

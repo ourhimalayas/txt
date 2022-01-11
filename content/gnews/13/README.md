@@ -2,38 +2,31 @@
 ---
 
 
-## 有声|重拾自信心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1847663/)
+## 《天池活水》｜上善若水 好女人旺三代
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1847713/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-“很多人问过我，为何这么自信？唯一让你自信的，是你内心充满了和别人不同的知识和经历，你没去过七女峰，加拿大大瀑布，玛雅文化遗址，缅甸过去最早佛教文化的地方，没看过这些，你不可能有自信。我最痛苦的，每天从厕所出来，我得跟家里人装傻。不这样我的自信都漾出来了。我跟很多人说话，时刻告诉自己，要回到当下来。只有我敢说水往上流，你们都是往下流的。共产党就是把中国人的自信拿走了。”
+**—土生萬物天池寬   正道乾坤活水源 —**
+[![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1-1.jpeg)](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)[点击图片可看完整视频](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
+🌈**主題： 上善若水 好女人旺三代   **
 
-今天的大直播里文贵先生对战友们推心置腹吐露着心声，用其特有的人生经历和阅历丰富的知识向我们展示他那鲜为人知的懊恼。
+📝**副題： 自重 珍惜 勇氣 從金融風暴中爆料革命中看國之好女性  於家於國之重器  **
 
-何尝不是啊！多少有理想和抱负，有学识和智慧，有正义和信仰人们的自信心，在中共国几十年的极权统治下早都被剥夺至一丝不挂⋯⋯
+1998年 金融風暴來襲 變買手飾金銀 捐款捐物 大韓民國女性 當仁不讓 與國運共呼吸
 
-被历次名目繁多的政治运动无辜牵连的人们失去自信；敢于表达正义声音遭受打压的人们失去自信；惨遭各种伤害求助无门的人们失去自信；被愚昧无知、论调耻笑的求真求实的人们失去自信；辛勤却拘紧贫穷的人们在人模狗样的爆发户前失去自信。感叹啊，太多太多失去的自信啦！
+2021年 病毒疫苗災難 媒體掩蓋事實 控制輿情 新中國聯邦女性 直播揭露 還世界之真相
 
-久违的个人自信心，生活在自由民主的国家让我拾回一点点自信；学习工作、平等机会让我拾回自信；不同种族、同事之间融洽关系拾回自信；努力工作，得到晋级报酬拾回自信⋯⋯
+創建GTV GNEWS  蓋特自媒 自由發聲 多元包容  開啓Hcoin Hpay  喜聯儲 幣統天下 藏富於民
 
-如今我参与爆料革命，用那蹩脚英语和需回炉的中文写着过去、现在、还有将来。推文、盖文和GNews 的发表的每字每句都将展现生命中我曾有过的自信心！
-新中国联邦人灭共自信心满满！
+家有好女子 豈止是旺三代  好母親福祉 不只是惠億族  ＂弄死這幫鱉孫兒！＂
 
-文字版原文：[重拾自信心](https://gnews.org/zh-hans/1842319/)
+女子本弱 為母則強  ＂我家我說了算！＂ 女性戰友 全家滅共  水流實處 河居人家
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+隨風隨季 氣行空中  冰川南北 溫定乾坤  上善若水 至善母性  同框同心  娓娓道來
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+珍惜  同鄉同音 了卻宿願 勇氣 ·····
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**GTV链接:**[https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2](https://gtv.org/broadcast/watch/61dd6ba0a6dfdd6031526aa2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
