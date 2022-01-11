@@ -15,107 +15,107 @@
 
 ---
 
-### [每日快报：美国新增135万例COVID-19病例](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [1月10日长岛哥联盟答疑G系列相关信息文字版](/content/gnews/1/README.md)
+ ` 全球G系列咨服群`
 
-### [文·贵天成——文贵先生谈“王毅”（二）](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
+### [有声|如果你有一个高尚的灵魂](/content/gnews/2/README.md)
+ ` MOSREC`
 
-### [加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [特大喜讯：GETTR成为历史上发展最快的社交平台](/content/gnews/4/README.md)
+### [七哥说当你强大到足可以淹没就所有攻击你的人时，他们在你面前就像那雪花一样（2022-01-07摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“王毅”（一）](/content/gnews/5/README.md)
+### [1/11/2022 文贵盖特：2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|奥地利总理接种三剂疫苗仍旧感染中共病毒](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [辉瑞前首席科学家及副总裁： 疫情爆发后，政府官员明显撒谎了](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [七哥谈中美战争（2022-01-07摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [每日快报：美国新增135万例COVID-19病例](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文·贵天成——文贵先生谈“王毅”（二）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/6/README.md)
- ` wenwu`
-
-### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/7/README.md)
+### [加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/8/README.md)
+### [特大喜讯：GETTR成为历史上发展最快的社交平台](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [文·贵天成——文贵先生谈“王毅”（一）](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/13/README.md)
  ` wenwu`
 
-### [2022/01/11大卫作战室直播精要](/content/gnews/9/README.md)
+### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/14/README.md)
+ ` 温哥华扬帆农场`
+
+### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/15/README.md)
+ ` wenwu`
+
+### [七哥说我们都是建国之人（2022-01-07摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [2022/01/11大卫作战室直播精要](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊维菌素、以乙酰半胱胺酸（NAC）、槲皮素和维生素D3](/content/gnews/10/README.md)
+### [伊维菌素、以乙酰半胱胺酸（NAC）、槲皮素和维生素D3](/content/gnews/18/README.md)
  ` G-NEWS TAIWAN`
 
-### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/11/README.md)
+### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/12/README.md)
+### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/13/README.md)
+### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [爆料革命日记（十）](/content/gnews/14/README.md)
+### [爆料革命日记（十）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/15/README.md)
+### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/16/README.md)
+### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/17/README.md)
+### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/18/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/20/README.md)
+### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [G系列，成为大富豪之路](/content/gnews/22/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共国的威权主义](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/24/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/28/README.md)
+### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/29/README.md)
+### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国内封城前需要准备的物资](/content/gnews/30/README.md)
+### [国内封城前需要准备的物资](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共国解职官员讲述西安封城真相](/content/gnews/31/README.md)
+### [中共国解职官员讲述西安封城真相](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/32/README.md)
+### [特鲁多已经为加拿大人准备好了第四剂疫苗](/content/gnews/31/README.md)
  ` 温哥华扬帆农场`
 
-### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/33/README.md)
+### [英国官方数据证实完全接种疫苗的国人将罹患艾滋病](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
+
+### [2022.1.09全球反疫苗抗议游行](/content/gnews/34/README.md)
+ ` 【🌹玫瑰新闻】`
 
 ### [王毅新年窜访五国 必有所图](/content/gnews/35/README.md)
  ` GTV新闻访谈`
