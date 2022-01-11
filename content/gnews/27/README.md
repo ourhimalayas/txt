@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈爆料革命的力量（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844750/)
+## 梦见白马王子——郭文贵先生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1844943/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山媒体部 – Ting婷
 
-来源：郭先生2022-01-07直播09：16：56摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
-为什么？我再说一遍，共产党这次它不知道，过去的流氓手段在今天的互联网世界不管用了。他没有想到，他想绑架全世界的做法，他成就了人类上再一次，在互联网文明之后，太空文明、新科技、5G、AI、新金融，特别是数字货币。我昨天下午跟咱们的Gettr Pay的某个超级背后的牛人开会，从来上来就没说过好话过，跟我聊没说过好话。这个人一直跟我一个人联系，从来不和任何人联系。这个人绝对是人类上的未来数字货币大佬中的大佬，我就不说那么多。有一天他站出来，绝对震惊世界。他昨天就说句话，他说：“Miles，我必须要给你夸个奖、点十个赞，喜联储、喜币到今天这个价格，他说是你没想到，我也没想到，涨400倍，” 他说：“我也没有想到你们的战友这么牛叉，说锁币就锁币了，说交就交。昨天是6万多个交易额，就是交易额下来了，但是我看到了你这个喜币完全不一样。”他说：“我现在我看到香港的时候、看到大陆的时候，共产党根本不是你的对手。” 他从来不认为我能消灭共产党，从来不会！他说：“Miles，你干啥我都相信。你说你灭掉共产党，我绝对不相信，” 他说：“不是你的能力问题，是根本不可能！这个世界太贪婪，没人敢灭掉共产党。” 这是个人类上巨大的英雄，就像看电影当中，像我这样带着个帽子，最后1分钟儿，一咳嗽，江湖就停止那种大佬。七哥就有这背后的高人，我才一次次敢自信说，你们不了解爆料革命的力量。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+认识郭先生从2017年4月19日美国之音（VOA）断播事件开始,还记得当时VOA在给文贵先生打广告达半个月之久后才采访了他,而原本计划三个小时的直播更是仅仅进行一半就被强制停播。这起断播事件让无数海外华人记住了这个名字，我就是其中的一员。从那以后，我就一直关注郭先生直到现在，我想一直关注着他直到海枯石烂。
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-19.jpg)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+第一次投稿GNews , 我想把自己在梦里和七哥近距离接触的这一美好时刻记录下来。梦中，七哥身着白色西服又帅又酷、像白马王子一样出现在眼前，一点儿架子都没有，那么的亲切和平易近人。梦里的郭先生正如我们曾在屏幕前看到的、和战友们热情拥抱的他一样，真诚温暖地对待每一位战友。梦中的郭先生和我共乘一车，我带他观光我的老家。郭先生坐在后排，一边说我听你的安排，一边忙着处理手机信息。我本想带郭先生前往老家最高的地方俯瞰整个山村，然而车子开出没多久便发现前面没有了已成形的道路，于是倒回来想绕道改走另一条路，就在这时我醒了，梦到这里戛然而止。这个梦虽然很短，但非常温馨，所以虽至今已几个月过去，我对梦里的情节仍记忆犹新。
+
+郭先生是爆料革命的发起人，能坚定地跟随他是一种缘分，是一种良知的发现。希望我们现在的跟随者都能成为郭先生说的那最后的5%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-83.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
+
+
+
+
 
  
 

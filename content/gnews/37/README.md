@@ -2,58 +2,43 @@
 ---
 
 
-## 疯狂与荒唐的中共病毒——疫苗灾难下的人类能否逃过此劫！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1843196/)
+## 简·鲁比博士：大药厂故意部署有毒批次的新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1843468/)
 
-作者：香草山信息部-6zero4
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
-
-
-
-在2022年1月7日的大直播中，郭先生再次谈到中共病毒及其疫苗的全球性疯狂与荒唐。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-25.png)
-疯狂在于：
-
-1. 美国当局要求父母让孩子远离未接种疫苗的人；
-2. 加拿大当局将疫情封锁归咎于未接种疫苗的人，接种3剂疫苗才能拿到疫苗护照；
-3. 法国当局称其数百万未接种疫苗的同胞不是本国公民，法国议会批准了疫苗通行证，将未接种者排除在基本生活之外；
-4. 意大利当局将强制对所有50岁以上的居民接种疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-17.jpg)
 
 
-荒唐在于：
-
-1. 医疗科技如此发达的当今医疗界，历经2年多依然找不到中共病毒的真实起源；
-2. 各国政府及其公共卫生机构对中共阻挠疫情起源地武汉的调查毫无办法；
-3. 全世界在病毒起源毫无真相可言的情况下，却在短时间内生产出了“品种齐全”的疫苗，且不公开疫苗成分；
-4. 流氓科学家将恒古不变的疫苗定义“预防感染”，公然篡改成了“预防致病、住院和重症”；
-5. 各国政府纷纷推出疫苗强制令，采取各种软胁迫手段强制人们接种疫苗，却仍坚称是自愿接种；
-6. 强制接种疫苗的政府机构及其同谋疫苗公司对疫苗接种不负任何责任，却让被迫接种的市民负全责；
-7. 当下明明百分之八九十感染中共病毒的都是打了疫苗的人，各国政府及其公共卫生机构却视而不见，继续推行疫苗强制令；
-8. 各国公共卫生机构对疫苗起效剂量的定义一改再改，从一针、两针管用到三针、四针才管用，再到每月打、每年打、终生打疫苗。
+ 
+图片来源：Global Possibilities
 
 
-在如此疯狂和荒唐的中共病毒及其疫苗灾难事实面前，逻辑、常识和专业荡然无存。也许将如秘密战友大校先生早在2021年就对郭先生所说的经典之言：人类在被中共病毒及其疫苗彻底摧毁之前再不醒来，就不需醒来，也没有机会醒来了！
+整理报道：小鱼儿
+编辑：小鱼儿/小红帽
 
-图片和新闻源于:
+据自然新闻(Natural News)1月9日报道，简·鲁比（Jane Ruby）博士告诉公众，大药厂如辉瑞公司（ Pfizer）、摩德纳公司（Moderna）和强生公司（Johnson & Johnson）正在部署有毒批次的新冠病毒(COVID-19)疫苗。
 
-[https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+鲁比在1月3日的斯图·彼得斯秀节目(The Stew Peters Show)中说，“有证据表明，这些公司故意部署有毒批次的（新冠病毒疫苗）。”她说，分析家们通过批号确定了有毒的批次，现在是向全世界人民传递信息的紧急时刻。
 
-校对/发稿：飞虹
+“他们所做的是，确定测试一半人口的致死量。这是进入人体研究之前，评估急性毒性的手段之一，”鲁比说。“这是在人们不知情和没有同意的情况下进行的。这违反了所有道德和监管规则。这些公司只是在肆无忌惮地进行，因为没有任何东西可以阻止他们。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
+鲁比分析，对于摩德纳来说，它是批次代码011 l 20。数字011是时间上的批次顺序，代表已经被开发了一段时间，并由公司部署。“ l ”是浓度，决定了它的毒性和不良反应的数量。数字20是定性的，这种成分在其批次中被认为是高毒性的。
 
-**更多资讯，更多关注**
+设法进入辉瑞和摩德纳系统的专业黑客能够验证这些批次，并有足够的证据列出迄今为止部署的所有摩德纳批次。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+黑客发现，这些公司在部署疫苗的地点和发放的剂量方面都非常具体。摩德纳来公司一直在美国分发致命的剂量，并在欧盟出口 “残疾”剂量。因此，与欧盟相比，美国的死亡率高出10倍。但与美国相比，欧盟的不良反应和残疾病例要高出10倍。
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+参考新闻：[Dr. Jane Ruby: Big Pharma companies intentionally deploying toxic batches of COVID-19 vaccine – Brighteon.TV](https://www.naturalnews.com/2022-01-09-big-pharma-deploys-toxic-batches-covid-vaccine.html)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：小红帽
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,16 @@
 ---
 
 
-## 中共病毒疫苗的主要成分清单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844698/)
+## 所谓“相信科学”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844937/)
 
-#### 翻译：Lish
+#### 翻译: Frank
+校对：枳实
+剪辑/字幕：蛮急
 
-#### 校对：精靈藍
+传说中的相信“科学”，实际上意味着相信那些不断欺骗我们并不断改变故事的人。
 
-#### 剪辑/字幕：蛮急
-
-这是来自newblog.com网站上的信息。我想只给你读一下这篇文章的第一部分，这些人花了很长时间来分解（疫苗）实际的成分，你知道吗，这些信息被压制了。
-
-2021年8月28日，他们说Robert Young博士发表了他的团队的发现。用相差显微镜，透射和扫描电子显微镜和能量色散X射线光谱分析了四个主要（疫苗）
-
-此研究由Pablo campra博士（西班牙阿尔梅里亚大学）和其它人（Dr. Juan）执行。他们的发现既证实了之前的调查，也扩大了之前的调查。
-
-视频链接：[THE LIST OF MAIN INGREDIENTS OF ALL ”COVID” VACCINES WAS FINALLY EXPOSED](https://www.bitchute.com/video/JcN1Prf7BVGx/)
-
-发布：枳实
+视频来源：[Trust the -science- aka people that constantly lie to us and keep changing the story](https://www.bitchute.com/video/2ZUAs6ugLL75/)
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

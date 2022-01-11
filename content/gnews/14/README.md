@@ -2,30 +2,45 @@
 ---
 
 
-## 七哥谈珍贵的照片（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844969/)
+## 俄罗斯弗拉基米尔地区的代理州长感染了中共冠状病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1845115/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部 – 正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+***译者评论：**
+接种了中共冠状病毒疫苗后，一样被感染，不管你是官员还是富豪，冠状病毒疫苗是无效的，并且会带来疫苗灾难，导致心梗、心肌炎、心包炎和脑梗等。抵制疫苗，消灭中共这个罪魁祸首才是人类需要做的！*
 
-七哥有多爱你们啊！所以说我这两天流水的时候，想想你们，想想当时大鼻涕泡儿，擦了两袖子都亮的七哥，我看我自己，你七嫂没看过我那照片，郭美从来没看过，她都没看过。她俩看过触动很大。郭美以为他爹就是小时候什么样的人，她一看她爹那样，吓她一大跳，你七嫂子也吓一大跳。但是你知道给我珍藏我照片的人，珍藏了四十几年呀，然后就这么给我发过来了。他已经身在海外了，在海外几十年收藏了七哥的照片。当年他就相信，七哥是改变天下的人，他没看错，一个东北赵家沟山沟里边儿，在白杨树前边儿，就在我手机里，你知道这照片太珍贵了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-747.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**译文：**
+1月10日，据《国际文传电讯社》报道，弗拉基米尔州代理州长亚历山大·阿夫杰耶夫说，他被诊断出患有中共冠状病毒。
 
-**关注我们**
+“在新年周末结束时，我感到不舒服，发烧了。我做了PCR，中共冠状病毒检测呈阳性。”亚历山大周一在他的Instagram上写道。
 
-Discord 账号
+据他说，该病正在进行中，没有并发症。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+在本周，该地区的代理负责人正计划通过视频会议进行远程工作。
 
-Gettr 账号
+早些时候，亚历山大报告说，他已经接种了中共冠状病毒疫苗。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+参考链接：[https://www.interfax.ru/russia/814500](https://www.interfax.ru/russia/814500)
 
+![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

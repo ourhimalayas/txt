@@ -2,44 +2,59 @@
 ---
 
 
-## 大直播后记&#8211;七哥谈“自己如何做人”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845120/)
+## 参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉,恶心
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1845309/)
 
-- ![图片来源：雅典娜农场技术组](https://assets.gnews.org/wp-content/uploads/2022/01/上-1.png)图片来源：雅典娜农场技术组
+参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉。恶心。 英特尔如何解释在赞助 2022 年北京奥运会的同时在国内支持“社会正义”？他们显然不介意双重职责来帮助共产主义中国粉饰种族灭绝。 【转推：指英特尔在一封给供应商的公开信中提到新疆的部分】
 
 
-整理：雅典娜速记组
-编辑：小红帽
 
-我不想把你老江推向敌人那一面，但是我也不希望你用战友这个身份，把战友们全变成连你智商的亿分之一都不如的人。你觉得我能创造、建设出喜联储，我没有这个情商和智商吗？
+> Look at [@intel](https://twitter.com/intel?ref_src=twsrc%5Etfw), a U.S. company, jumping to apologize to Communist China. Gross.
+> 
+> How does Intel explain supporting "social justice" at home while sponsoring the 2022 Beijing Olympics? They clearly have no issues with pulling double duty to help Communist China whitewash genocide. [https://t.co/k7UQ0WC12S](https://t.co/k7UQ0WC12S)
+> — Rick Scott (@SenRickScott) [January 10, 2022](https://twitter.com/SenRickScott/status/1480604202611220486?ref_src=twsrc%5Etfw)
 
-就像我们每天在救人，很多战友救完人以后，说：七哥都（靠）你救了我。 告诉战友一句话，如果你觉得都是因为我的话，我就白救你了。送药的不是我，买药的不是我，买药的钱是来自战友捐的钱。
 
-没有新中国联邦，没有爆料革命。你根本不知道郭文贵是谁。
 
-我给你送药，我都不知道往哪送去。如果你真以为郭文贵救了你，你可以说，爆料革命新中国联邦战友们和郭文贵救了你。（这样）我已经觉得，我真的，够不要脸的了。没有你们，我真的 狗屁都不是。昆仑山、喜马拉雅山，你去看一看佛堂、山河。
+众议员迈克·沃尔兹： 当我们的国家面临来自阿富汗、伊朗、中共、俄罗斯、朝鲜和其他国家的威胁时，我们要时刻准备着，这至关重要。 很荣幸能成为共和党三军委员会下辖的武装准备委员会成员，来监督我们军队的训练，后勤等。
 
-你看到最核心是什么？ 每个人都很渺小的。大自然的力量是永恒的。
 
-集体的力量形成了山，山之所以广之，所以大之，所以雄伟之，所以包容万物，才成为山和河海之差距；是死的和活的、包容和不包容的差距。 河沟，就是因为太狭窄，不能包容。你没有多大价值。七哥最多是一个小河沟。你不能把我当成大海和山川，我就是那其中的一份子，因为你们，我才显出了我。就像今天老江要卖这个币一样。
 
-你不能把你自己这件事情，凌驾在所有之上。你需要钱，说我要支付律师费。谁不需要钱呢？ 我比你都需要钱，最需要钱的是郭文贵不是你们。我一毛钱都没有。如果我要偷鸡摸狗，我今天可以弄点币，找下基金、找下谁。文耀，能给七哥三万币吗？ 我向你们谁要，你们都（会）给。小飞象、小飞侠肯定给我。佳佳、王子，你要多少，他们给多少。（这是）一定的，那我去卖点币，不让你们知道。我弄个几个亿不是一分钟的事吗？
+> As our country faces threats from Afghanistan, Iran, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, North Korea, & others, it’s critical we're always ready.
+> 
+> Honored to serve as Ranking Member of the [@HASCRepublicans](https://twitter.com/HASCRepublicans?ref_src=twsrc%5Etfw) Readiness Subcommittee with oversight of our military's training, logistics & more. [https://t.co/FYFyL1L4DO](https://t.co/FYFyL1L4DO)
+> — Rep. Mike Waltz (@michaelgwaltz) [January 10, 2022](https://twitter.com/michaelgwaltz/status/1480598431634710536?ref_src=twsrc%5Etfw)
 
-我比谁都需要钱，但是我知道，我做完（这事）以后，那我不要说死了，我死一亿回，我也无法赎回（这个）罪。（这）早晚（会）被人家知道的。
 
-所以七哥能坐在这儿直播，最根本的原因，（是）我问心无愧，我没有撒任何谎；（没有）不可告人的秘密；（没有）合作过见不得人的事儿。我不用建防火墙，我不用让你们 闭嘴说话。我不能像共产党一样，因为过去做的事，我不想让你知道；我现在想干啥，也不让你知道；我未来要干的事，更不想让你知道。
 
-所以说它（共产党）就开始统一口径。网络，语言全控制。 但是，老江，我为啥在直播中回答你， 像昨天说你花的律师费，我赶快要想办法给报。
+参议员兰德·保罗： 因此，如果您感染了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)，您仍然可以在医院工作，但没有感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 且未接种疫苗的医生和护士会被解雇。我是唯一一个意识到这种荒唐情况的人吗？ 【附abcnews的文章:卫生官员让感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的员工继续在医院工作】
 
-资料来源：郭先生GTV和盖特直播视频。
 
-发布：小红帽
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> So you can still work in a hospital if you have active COVID but doctors and nurses who don’t have COVID and are unvaccinated are fired. Am I the only one who perceives the absurdity of this scenario?[https://t.co/8vHumvcYoo](https://t.co/8vHumvcYoo)
+> — Senator Rand Paul (@RandPaul) [January 11, 2022](https://twitter.com/RandPaul/status/1480711614240337923?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： 卢比奥:英特尔在向北京屈服后，不应该得到美国政府的芯片支持资金。 （转卢比奥官网声明）
+
+
+
+> RUBIO: Intel should not get CHIPS funding from U.S. government after caving to [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/0mN77T5KR1](https://t.co/0mN77T5KR1)
+> — Senator Rubio Press (@SenRubioPress) [January 10, 2022](https://twitter.com/SenRubioPress/status/1480680900694319115?ref_src=twsrc%5Etfw)
+
+
+
+国务卿布林肯： 中华人民共和国对美国国际宗教自由委员会四名成员的制裁，是中国对普世权利的又一次冒犯。对美国国际宗教自由委员会成员的制裁，不会隐藏或转移世界对中国在新疆侵犯人权和暴行的关注，包括正在进行的种族灭绝。
+
+
+
+> The PRC’s sanctions on four members of the U.S. Commission for International Religious Freedom constitute another PRC affront against universal rights.
+> — Secretary Antony Blinken (@SecBlinken) [January 10, 2022](https://twitter.com/SecBlinken/status/1480620087547678728?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

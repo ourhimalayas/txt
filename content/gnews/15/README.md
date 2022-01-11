@@ -2,38 +2,32 @@
 ---
 
 
-## 德约科维奇赢得法庭上诉有望参加澳网
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844957/)
+## 突发：塔克·卡尔森 加入盖特
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1845101/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+#### 翻译：文斗
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/观察.jpeg)图片来源：FirstSportz
+#### 发布：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-745.png)
+盖特官方账号1月10日发表盖文，[欢迎塔克 卡尔森加入盖特](https://gettr.com/post/pnico6dcd0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-746.png)
+《千禧年邮报》1月11日报道，随着推特继续禁止用户进入其大科技平台，福克斯新闻主持人[塔克·卡尔森](https://gettr.com/user/tuckercarlson)周一正式加入推特竞争对手的网站GETTR。
 
+“欢迎来到GETTR，[@Tuckercarlson](https://gettr.com/user/tuckercarlson)！” GETTR的官方账户发布消息。新闻摘要指出，“又一个大人物加入了战斗序列……”
 
-#### 整理报道：小鱼儿
-编辑：文泓
+主持超受欢迎的夜间节目《塔克·卡尔森之夜》的卡尔森是最近几周涌入该网站的数十万人之一。
 
-据反抗新闻1月10日报道，联邦巡回法院法官安东尼·凯利推翻了联邦政府取消签证的决定，下令立即释放被拘留的网球明星诺瓦克·德约科维奇。
+例如，上周，播音员和喜剧演员乔**·**罗根（Joe Rogan）加入盖特，引发了（用户）大规模的迁移，有50万人与他一起加入了这一运动。
 
-法官在听证会上说，取消临时签证的决定是“不合理的”，将被撤销。被告方内政部长将支付诉讼费用，并归还其护照和其他所有个人物品，并敦促德约科维奇的签证申请程序尽快通过，希望他能够参加澳大利亚公开赛并卫冕。
+“为了避开推特上日益愚蠢的废话，我现在也在这里。欢呼吧！” 1月2日，罗根在他的GETTR账户上发盖文。从那时起，50万新用户加入了GETTR，使整个用户数据库超过400万。
 
-听证会开始的进程很慢，听证会网上直播多次出现中断。由于德约科维奇案受到国际关注，特别是来自塞尔维亚的关注，因此“公开审理”的要求就更为重要。“如果‘法庭听证会直播’失败，澳洲就是非公开的司法，”汤姆森·盖尔律所的律师贾斯廷·奎尔说。
+GETTR首席执行官杰森**·**米勒(Jason Miller)告诉《千禧年邮报》：“通过一条简单的推特，乔**·**罗根摧毁了大科技公司，撕开了阻碍数百万爱国者的政治歧视链条。”，“再见，社交媒体寡头们——一切不复返了。”
 
-在诉讼过程中，凯利法官一度显然和德约科维奇团队一样沮丧，他曾宣称：“这个人(德约科维奇)还能做什么？”
+在推特决定封禁其最近的客户罗伯特**·**马龙博士（Dr. Robert Malone）之后，罗根跳到了新的支持自由言论的平台。
 
-已经曝光的是，负责组织签证的澳大利亚网球协会，曾多次要求内政部在他们的球员登上前往澳大利亚的飞机之前，检查他们的一切是否符合规定。该部门官员拒绝了这一要求，为维多利亚州的外交混乱埋下了伏笔。
+推特最近还禁止众议员马乔里**·**泰勒**·**格林（ Rep. Marjorie Taylor Greene）进入他们的平台，理由是多次违反了这家社交媒体巨头的COVID-19（中共病毒）政策。
 
-从法庭上详细的信件来看，就德约科维奇和澳大利亚网球协会而言，文件似乎没有问题。而当德约科维奇的到来被公开后，一场愤怒的舆论风暴占据了维多利亚州的话题，指责州长丹尼尔·安德鲁斯以及体育明星和普通民众之间的健康命令(疫苗接种)不一致。
-
-新闻新闻：[BREAKING: Novak Djokovic WINS court appeal](https://www.rebelnews.com/judge_orders_novak_djokovic_out_of_detention)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：[https://thepostmillennial.com/breaking-tucker-carlson-joins-gettr](https://thepostmillennial.com/breaking-tucker-carlson-joins-gettr)
 
  
 
