@@ -15,44 +15,44 @@
 
 ---
 
-### [王斌是王岐山大马仔之一 是中国人寿受贿共产党高官子女的关键人物](/content/gnews/1/README.md)
+### [【G时新闻】尸检报告显示93% 接种中共病毒疫苗后的死亡案例是疫苗所致！](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [王斌是王岐山大马仔之一 是中国人寿受贿共产党高官子女的关键人物](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [马龙博士警告：中共国的“类似埃博拉出血热”是大规模疫苗接种突变所致](/content/gnews/2/README.md)
+### [马龙博士警告：中共国的“类似埃博拉出血热”是大规模疫苗接种突变所致](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币创造虚拟货币传奇 币加锁是对战友的考验](/content/gnews/3/README.md)
+### [喜币创造虚拟货币传奇 币加锁是对战友的考验](/content/gnews/4/README.md)
  ` 焦點20分`
 
-### [西安 郑州 天津因病毒扩散和疫苗过量，爆发疫情 中共隐瞒真实死亡人数](/content/gnews/4/README.md)
+### [西安 郑州 天津因病毒扩散和疫苗过量，爆发疫情 中共隐瞒真实死亡人数](/content/gnews/5/README.md)
  ` 焦點20分`
 
-### [2000 名医生和护士要求最高法院停止新冠病毒疫苗授权](/content/gnews/5/README.md)
+### [2000 名医生和护士要求最高法院停止新冠病毒疫苗授权](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [曾庆红是中共国政坛第一高人 20大真正开启的是习曾之战](/content/gnews/6/README.md)
+### [曾庆红是中共国政坛第一高人 20大真正开启的是习曾之战](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [魁北克将对未接种 COVID-19 疫苗的人征税](/content/gnews/7/README.md)
+### [魁北克将对未接种 COVID-19 疫苗的人征税](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [完全接种疫苗的网球明星Nikoloz Basilashivili胸痛、呼吸困难被迫退赛](/content/gnews/8/README.md)
+### [完全接种疫苗的网球明星Nikoloz Basilashivili胸痛、呼吸困难被迫退赛](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [保罗参议员今听证会上火力全开怼福奇](/content/gnews/9/README.md)
+### [保罗参议员今听证会上火力全开怼福奇](/content/gnews/10/README.md)
  ` 华盛顿DC-Russian`
 
-### [又一“千亿”房企暴雷，中共房市危如累卵](/content/gnews/10/README.md)
+### [又一“千亿”房企暴雷，中共房市危如累卵](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [哈萨克斯坦会是美中俄之间较量最大的牺牲品](/content/gnews/11/README.md)
+### [哈萨克斯坦会是美中俄之间较量最大的牺牲品](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [名人因接种中共病毒疫苗猝死的判断方法](/content/gnews/12/README.md)
+### [名人因接种中共病毒疫苗猝死的判断方法](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [文·贵天成——文贵先生谈“王毅”（三）](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [七哥谈“敌无我有，敌有我精”（2022-01-07摘录）](/content/gnews/14/README.md)
  ` MG FARM`
@@ -87,11 +87,11 @@
 ### [立陶宛力挺台湾 中共指责美国煽动](/content/gnews/24/README.md)
  ` 华盛顿DC-Russian`
 
-### [有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/25/README.md)
- ` MOSREC`
+### [七哥说当你强大到足可以淹没就所有攻击你的人时，他们在你面前就像那雪花一样（2022-01-07摘录）](/content/gnews/25/README.md)
+ ` MG FARM`
 
-### [1/11/2022 文贵盖特：2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言](/content/gnews/26/README.md)
- ` 秘密翻译组-北美组`
+### [有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/26/README.md)
+ ` MOSREC`
 
 ### [辉瑞前首席科学家及副总裁： 疫情爆发后，政府官员明显撒谎了](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场视频组`
