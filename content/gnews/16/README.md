@@ -2,49 +2,37 @@
 ---
 
 
-## 澳网行程继续，德约科维奇低调回应球迷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845885/)
+## 针下亡魂｜美国 65 岁著名男演员接种疫苗一个月后离奇死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1845964/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf) ）**
 
-#### 整理报道：文扬
-编辑：文泓
+美国影视兼单口喜剧演员鲍勃·萨吉特（Bob Saget）1月9日下午被发现陈尸于奥兰多一间酒店的房间内，警方排除了他杀、吸毒等外在原因后，初步判定萨吉特因身体不明原因导致死亡。就在一个月前，他刚刚接种完 COVID-19 加强剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美國-65-歲著名男演員接種疫苗一個月後離奇死亡.jpg)
+今年 65 岁的萨吉特因在情景喜剧《Full House》（《满屋》）中饰演单身父亲丹尼·坦纳（Danny Tanner）而闻名。他的突然离世震惊了全世界的粉丝，因为就在一天前，他还在佛罗里达州的一个喜剧节目中贡献了精彩的表演。不料翌日下午，就被发现死在了丽思卡尔顿酒店的房间内。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/khaleejtimes.jpg)图片来源：Khaleej Times
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xSagett.jpg.pagespeed.ic_.74NhJMnWLK.jpeg)图片来源：当事人推特
+
+橙县治安办公室发公告指，警方未发现有任何他杀或吸毒等迹象，怀疑是身体原因导致的死亡。
 
 
-本周一，德约科维奇在墨尔本一家法院胜诉后，这位备受争议的网坛一哥首次公开发表讲话。诺瓦克·德约科维奇发布了一条关于他的忠实粉丝的信息，并首次分享了一张自己的照片。
 
-周一，德约科维奇在澳大利亚举行的高调听证会结束后，德约科维奇行踪没有被透露，最终一名法官下令世界第一赢得诉讼。尽管有司法裁决，但官员似乎威胁要将他驱逐出境。
+> Earlier today, deputies were called to the Ritz-Carlton Orlando, Grande Lakes for a call about an unresponsive man in a hotel room. The man was identified as Robert Saget & pronounced deceased on scene. Detectives found no signs of foul play or drug use in this case. [#BobSaget](https://twitter.com/hashtag/BobSaget?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/aB1UKiOlmi](https://t.co/aB1UKiOlmi)
+> — Orange County Sheriff's Office (@OrangeCoSheriff) [January 10, 2022](https://twitter.com/OrangeCoSheriff/status/1480340290917609473?ref_src=twsrc%5Etfw)
 
-在德约科维奇在隔离酒店被拘留几天后，他的身心健康受到关注，这位塞尔维亚英雄首次公开宣布，他在等待重大决定期间感谢广大球迷的支持。
 
-“我很高兴也很感激法官推翻了对我的签证取消决定”，德约科维奇告诉他的数百万社交媒体粉丝：“尽管发生了这么多事，我还是想留下来并尝试竞赛，我仍然专注于此。我飞到此地，在我们最重要的活动之一，在了不起的球迷面前打球。”
 
-如果对大满贯赛场上观众的冷淡反应的预测被证明是正确的，那么卫冕冠军可能需要他所有的韧性。
+萨吉特 11月28日在推特发文指自己刚刚接种了COVID-19 加强剂。
 
-许多澳大利亚人对此感到愤怒，德约科维奇在一个经历了世界上最严格的强制疫苗接种和封锁规定的国家享受这种特殊待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xSaget.jpg.pagespeed.ic_.A4dsahTyXY.jpeg)图片来源：当事人推特
 
-德约科维奇案件的核心是他12月16日在返回祖国时，他的新冠测试结果呈阳性。
+来源｜[NYtimes](https://www.nytimes.com/2022/01/09/arts/television/bob-saget-dead.html)
 
-作为听证会证据的一部分，记录显示，德约科维奇收到的建议是，从他检测结果呈阳性之日起，他将获得六个月的医疗豁免。
+* * *
 
-“现在，我不能说更多，”德约科维奇告诉他的支持者，他们松了一口气，其中一些人聚集他在的墨尔本隔离酒店和球场外。“但感谢大家在这一切中与我站在一起，并鼓励我保持坚强。”
-
-在这位20次大满贯冠军说这番话的同时，他的家人，包括哥哥迪乔德、母亲迪亚娜和父亲斯德安，在塞尔维亚召开了新闻发布会。
-
-迪亚娜预测，最受欢迎的德约科维奇现在将更有动力在2022年1月17日至30日举行的比赛中打破大满贯奖杯的纪录。
-
-新闻链接： [Djokovic reacts to ruling by making vow — RT Sport News](https://www.rt.com/sport/545591-novak-djokovic-twitter-photo-reaction-australia/)
-
-发布：Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)// | // [悲痛！又一名足球运动员在接种疫苗后死亡](https://gnews.org/zh-hans/1799912/)// | // [巴西 28 岁著名男歌手接种疫苗六周后死亡](https://gnews.org/zh-hans/1816652/)//
 
  
 

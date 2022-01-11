@@ -2,50 +2,37 @@
 ---
 
 
-## 有声|别问春天到来我会做什么
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845787/)
+## 福克斯新闻主持人塔克·卡尔森加入盖特
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845812/)
 
-配音：香草山佛教部 – 李傻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-别问春天到来我会做什么？
-我在冬天里积淀的养分，
-会在春天里抽枝发芽，
-在夏季里悄然绽放—
-或许不是最美，
-却馨香四溢的花朵。
-然后，随着秋的到来，
-结成累累硕果。
-你会看到我谦卑地弯下腰，
-直到孩子们攀上我直刺虚空的枝头，
-采摘掉我所有的浆果。
-不管他们把玩、还是吃掉，还是随手抛弃，
-这些都无关紧要，
-我都会在萧瑟的秋风中，
-来一次仓促而铿锵的谢幕……
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-26.png)
 
-原文链接：[别问春天到来我会做什么](https://gnews.org/zh-hans/1844382/)
+Photo: thepostmillennial.com
+翻译: 文杨
+编辑：Lish
 
-音频处理：喜山必胜Maverick
+随着推特继续禁止用户进入其平台，福克斯新闻主持人塔克·卡尔森（Tucker Carlson）周一正式加入竞争对手的网站-盖特。盖特的官方账户随即发文向卡尔森表示欢迎：“欢迎来到#盖特，@Tuckercarlson！”。新闻摘录指出，“另一个大名鼎鼎的人物加入了战斗的行列……”
 
-**发稿：**Daxia
+卡尔森主持的夜间节目《塔克·卡尔森之夜》超受川普支持者的喜爱。他也是最近几周涌入该网站（盖特）的数十万人中的一员。例如，播音员和喜剧演员乔·罗根(Joe Rogan)在上周加入盖特后，引发了大规模的用户迁移。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+1月2日，罗根在他的盖特账户上写道： “为了防止推特上的废话变得更蠢，我现在也在这里。欢呼吧！”。从那时起，有50万新用户加入了盖特，使整个用户数据库超过400万。
 
-**更多资讯，更多关注**
+盖特首席执行官杰森·米勒（Jason Miller）告诉 The Post Millennial(加拿大保守的在线新闻杂志），“乔·罗根（Joe Rogan）用一条简单的推文摧毁了大科技公司，并打破了阻碍数百万爱国者的政治歧视链”。“再见，社交媒体寡头，再也没有回头路了”。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+罗根跳到支持自由言论的新平台是在推特决定禁止他最近的客户罗伯特·马龙博士（Dr. Robert Malone）之后。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+推特最近还禁止众议员马乔里·泰勒·格林（Marjorie Taylor Greene）进入他们的平台，理由是多次违反了这家社交媒体巨头的新冠政策。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接： [BREAKING: Tucker Carlson joins GETTR | The Post Millennial](https://thepostmillennial.com/breaking-tucker-carlson-joins-gettr)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：Lish
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

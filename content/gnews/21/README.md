@@ -2,23 +2,25 @@
 ---
 
 
-## 加拿大疫情恶化各省抗疫前景渺茫
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845853/)
+## 中共国天津市爆发疫苗灾难
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845903/)
 
-采编/编译撰稿： 文莱    校对编辑，发稿：硫酸羟氯喹64
+采编：文莱    翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-21-edited.jpg)图片来源：TSUN
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-23-edited.jpg)图片来源：CTV
 
 
-据【多伦多太阳报】1月10日报道，加拿大各省份疫情由于“奥密克戎”病毒的迅速传播而导致确诊病例数近期均大幅上升，并因此已开始造成该国大部分地区的医院不堪重负。
+据加拿大《CTV新闻》1月9日报道，在发现数起“奥密克戎”感染病例后，中共国天津市政府强行对其1400万居民进行大规模病毒核酸检测，并正为实施封城做准备。目前官方报告共有20多名包括儿童和成人的检测呈阳性。
 
-据悉，魁省当天报告了约11000例新增病毒感染，近2600名住院患者以及26人死亡的严重疫情。而安省当天的疫情也与魁省的相当。但安省卫生部门表示，由于政府的极端防疫政策限制了获得准确数据的机会，因此，实际疫情要比官方所报告的要严重许多。
+报道称，天津市离北京仅115公里。在距北京冬奥会开幕不到四周的时间里，各级政府对此次突发的疫情高度紧张。于此同时，在西安、禹州和郑州，疫情都变得更加严重，数千万民众因此被当局封锁在家中不准外出，人道灾难正在不断大面积涌现，而导致怨声载道，民不聊生。
 
-虽然魁省和安省都因疫情的再度爆发而推迟了中小学的开学时间，但加拿大西部的阿尔伯塔省和B.C省却坚持认为重返校园有助于孩童的身心健康。对此，相关部门声称：将儿童暴露在失控的疫情之中，将无疑加剧“奥密克戎”病毒无节制的泛滥。
+据GTV[文贵大直播]当天消息指出：和此前的西安一样，目前发生在天津的疫情，实际上就是全民接种“中共病毒”疫苗所导致的次生灾难。由于该疫苗本身就是病毒，因此疫情必然会在全国各地频繁爆发，并将持续成为中共暴政长期残酷奴役和统治其人民的借口和手段。
 
 * * *
 
-原文链接：[COVID hospitalizations hit critical levels as kids in B.C., Alberta return to class | Toronto Sun](https://torontosun.com/news/national/covid-hospitalizations-nearing-or-reaching-record-highs-in-several-provinces)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接： [https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206](https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206)
 
  
 

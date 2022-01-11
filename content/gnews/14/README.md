@@ -2,26 +2,24 @@
 ---
 
 
-## 中共国天津市爆发疫苗灾难
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845903/)
+## 西藏冒险王之死惊天黑幕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846013/)
 
-采编：文莱    翻译编辑：文所未闻
+撰稿：东京樱花团丨深藏不露
+![](https://lh5.googleusercontent.com/dDTUoGLaQ1w6mzezP08b8ackaYLuRy4vQstGa5LHaxQxcOuKNYnH2vblSvFI7hkVS-m402W4ujRgHn_SnCyVST2eUdaFXiQaIXWBm4BdHANtaIbVKuU60JRrW1TMxU3ZOHZ8QNoK)[*图片来源*](https://i.ytimg.com/vi/9kd0zAiW4XI/maxresdefault.jpg)
+王相军，四川省邻水县人，中共国冰川探险者、短视频作者。王相军高中毕业后曾在工地搬砖、在富士康拖地，后来到云南等地一边在餐馆打工一边旅行。他从2012年开始到冰川探险，去过七十多座冰川。2017年，他入驻短视频平台，昵称为“西藏冒险王”，网友则称呼他“冰川哥”。他曾受邀在2019年联合国气候变化大会上发言。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-23-edited.jpg)图片来源：CTV
+王相军在西藏发现了中共不为人知的邪恶的秘密而被中共当局灭口！是什么样的惊天秘密而被中共当局灭口呢？
 
+据传王相军发现了一线天的秘密通道，西藏到尼泊尔有个秘密的冰洞！他通过这冰洞到达了尼泊尔一个神秘地方，据当地尼泊尔人介绍一年有几千人来到这，发现从来只有外国人坐直升机进出，一年到头进来的几千没有一个人能活着出来！再结合郭文贵先生关于西藏中共非法买卖器官的爆料，不得不让人怀疑王相军因知道了器官活体移植的惊天秘密被中共杀人灭口！
 
-据加拿大《CTV新闻》1月9日报道，在发现数起“奥密克戎”感染病例后，中共国天津市政府强行对其1400万居民进行大规模病毒核酸检测，并正为实施封城做准备。目前官方报告共有20多名包括儿童和成人的检测呈阳性。
+中共从来不把中国人民当人来看，为了金钱或别的不可告人目的，他们会不择手段，当然包括买卖活体器官这种反人类罪行，中共简直邪恶至极！只有加入新中国联邦才是正道，让我们一起行动起来，将中共这个邪恶组织摧毁消灭……
 
-报道称，天津市离北京仅115公里。在距北京冬奥会开幕不到四周的时间里，各级政府对此次突发的疫情高度紧张。于此同时，在西安、禹州和郑州，疫情都变得更加严重，数千万民众因此被当局封锁在家中不准外出，人道灾难正在不断大面积涌现，而导致怨声载道，民不聊生。
+信息来源：[**王相军案意外曝光中国产业黑幕**](https://www.youtube.com/watch?v=8prb2OdIgnM)
 
-据GTV[文贵大直播]当天消息指出：和此前的西安一样，目前发生在天津的疫情，实际上就是全民接种“中共病毒”疫苗所导致的次生灾难。由于该疫苗本身就是病毒，因此疫情必然会在全国各地频繁爆发，并将持续成为中共暴政长期残酷奴役和统治其人民的借口和手段。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206](https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,44 @@
 ---
 
 
-## 福克斯新闻主持人塔克·卡尔森加入盖特
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845812/)
+## 有声|梦见白马王子——郭文贵先生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845873/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-26.png)
+配音：香草山佛教部 – 李傻
 
-Photo: thepostmillennial.com
-翻译: 文杨
-编辑：Lish
 
-随着推特继续禁止用户进入其平台，福克斯新闻主持人塔克·卡尔森（Tucker Carlson）周一正式加入竞争对手的网站-盖特。盖特的官方账户随即发文向卡尔森表示欢迎：“欢迎来到#盖特，@Tuckercarlson！”。新闻摘录指出，“另一个大名鼎鼎的人物加入了战斗的行列……”
 
-卡尔森主持的夜间节目《塔克·卡尔森之夜》超受川普支持者的喜爱。他也是最近几周涌入该网站（盖特）的数十万人中的一员。例如，播音员和喜剧演员乔·罗根(Joe Rogan)在上周加入盖特后，引发了大规模的用户迁移。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
-1月2日，罗根在他的盖特账户上写道： “为了防止推特上的废话变得更蠢，我现在也在这里。欢呼吧！”。从那时起，有50万新用户加入了盖特，使整个用户数据库超过400万。
 
-盖特首席执行官杰森·米勒（Jason Miller）告诉 The Post Millennial(加拿大保守的在线新闻杂志），“乔·罗根（Joe Rogan）用一条简单的推文摧毁了大科技公司，并打破了阻碍数百万爱国者的政治歧视链”。“再见，社交媒体寡头，再也没有回头路了”。
 
-罗根跳到支持自由言论的新平台是在推特决定禁止他最近的客户罗伯特·马龙博士（Dr. Robert Malone）之后。
+认识郭先生从2017年4月19日美国之音（VOA）断播事件开始,还记得当时VOA在给文贵先生打广告达半个月之久后才采访了他,而原本计划三个小时的直播更是仅仅进行一半就被强制停播。这起断播事件让无数海外华人记住了这个名字，我就是其中的一员。从那以后，我就一直关注郭先生直到现在，我想一直关注着他直到海枯石烂。
 
-推特最近还禁止众议员马乔里·泰勒·格林（Marjorie Taylor Greene）进入他们的平台，理由是多次违反了这家社交媒体巨头的新冠政策。
+第一次投稿GNews , 我想把自己在梦里和七哥近距离接触的这一美好时刻记录下来。梦中，七哥身着白色西服又帅又酷、像白马王子一样出现在眼前，一点儿架子都没有，那么的亲切和平易近人。梦里的郭先生正如我们曾在屏幕前看到的、和战友们热情拥抱的他一样，真诚温暖地对待每一位战友。梦中的郭先生和我共乘一车，我带他观光我的老家。郭先生坐在后排，一边说我听你的安排，一边忙着处理手机信息。我本想带郭先生前往老家最高的地方俯瞰整个山村，然而车子开出没多久便发现前面没有了已成形的道路，于是倒回来想绕道改走另一条路，就在这时我醒了，梦到这里戛然而止。这个梦虽然很短，但非常温馨，所以虽至今已几个月过去，我对梦里的情节仍记忆犹新。
 
-原文链接： [BREAKING: Tucker Carlson joins GETTR | The Post Millennial](https://thepostmillennial.com/breaking-tucker-carlson-joins-gettr)
+原文链接：[梦见白马王子——郭文贵先生](https://gnews.org/zh-hans/1844943/)
 
-发布：Lish
+音频处理：喜山必胜Maverick
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
