@@ -2,34 +2,57 @@
 ---
 
 
-## 美国CDC无法给出死于新冠病毒的具体数字
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
+## 当血液在体内变成半固体凝胶状时是这个样子
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1847045/)
 
-撰稿: 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
-电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
+翻译：Jenny Ball
 
-Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-794.png)图片来源:naturalnews.com
 
-链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
+自然新闻 – 职业足球运动员在场上倒下并遭受心脏病发作的原因，是因为由于注射了刺突蛋白“疫苗”，他们的血液变成了半固体凝胶状物质。这也是为什么新冠疫苗越来越多地被称为“凝块疫苗”的原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+显然，当您的血液不再是液体发挥作用，并开始变成固体时，它就无法再流经您的循环系统。几秒钟之内，你的大脑就会失去氧气，你就会失去知觉。这就是为什么这么多接受新冠“凝块”注射的人正在死亡或昏倒的原因。
 
-编辑：DM
+这也发生在新闻播报员身上（现场直播），例如这位巴西记者，在公开吹嘘自己注射了新冠病毒疫苗时失去了知觉，并在自己的新闻广播中昏倒了：
 
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-796.png)图片来源:naturalnews.com
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+他在镜头前昏倒之前，甚至在推特上发了一条“疫苗拯救生命”，并敦促每个人都进行加强注射。据报道，他在去医院的路上心脏病发作了五次。
 
+下图取自 2018 年的一名新冠肺炎患者，显示了一个完整的大血块的样子（是的，图像是真实的）：
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-797.png)图片来源:naturalnews.com
+
+这张完整血凝块的特殊图像，是在新冠病毒感染前拍摄的，据报道该患者“咳出”了一个完整的血凝块，类似于红珊瑚或树根。 来自新英格兰医学杂志：
+
+一名 36 岁男子，因慢性心力衰竭急性加重而住进 ICU。在放置心室辅助装置并开始抗凝治疗后，出现咯血，他咳出了右支气管树的石膏状块。
+
+这意味着他真的咳出了肺部空气通道的整个内部铸件，形成了巨大的血块。
+
+据新闻报道，“在医院工作的医生说，这名男子咳出血块后立即感觉好多了……”
+
+我们只能想象。
+
+尽管这张特殊的照片并非来自新冠病毒疫苗的受害者，**但它很好地代表了接种 ****mRNA ****新冠病毒疫苗的人体内正在发生的事情**。疫苗会影响血液凝固系统，并在某些人中导致血液快速凝结，使它流经动脉。
+
+动脉血凝块很少看起来像上面显示的大“珊瑚”凝块，因为那个血凝块是从肺部的支气管气道中取出的，由于某种原因，它充满了血液，然后凝结了。
+
+在接种疫苗的人的循环系统中，实际形成的血凝块几乎总是小得多，许多患者会出现**肉眼看不到的微量血凝块**。当这些血凝块**被泵入肺部时**，通常会被诊断为**肺栓塞**。如果凝块到达**大脑**，**它们可能会导致中风**。如果它们停留在**心脏**中，**它们可能会导致心脏病发作**。如果它们停留在为**手或脚**提供氧气的较小血管中，它们会导致这**些肢体麻木并需要截肢。凝血的诊断，很大程度上取决于凝块最终停留的位置**，这解释了为什么注射刺突蛋白“疫苗”的人会经历如此广泛的伤害和死亡。（现在 VAERS 报告了超过 100 万人受伤，迄今为止仅在美国就估计有数十万人死亡……）
+
+现在有超过 1,000 项研究发表在同行评审的医学期刊上，这些研究得出的结论是：**疫苗是危险的。**
+
+Covid 疫苗是真正的“**血栓注射”**，会增加血栓的风险，从而导致严重的伤害和死亡。疫苗行业——以及由大型制药公司资助的撒谎企业媒体——正在利用这些凝块注射，试图通过以“疫苗”标签交付的武器化生物武器消灭数十亿人，从而使地球人口减少。
+
+第三次世界大战不是核战争；这是一场通过针头进行的无声战争。
+
+新闻来源:[naturalnews.com] [Clot shot warning: Here’s what a blood clot looks like when LIQUID blood turns into a semi-solid gelatinous mass inside your body](https://www.naturalnews.com/2022-01-08-clot-shot-warning-blood-clot-looks-like-turns-into-a-semi-solid-gelatinous-mass.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
