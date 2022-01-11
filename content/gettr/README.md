@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/11/2022 9:34 PM (UTC)`
+
+1月11日：亲爱的兄弟姐妹们．👉👉👉加上关注吧……https://gtv.org/video/id=61dd0cbfa6dfdd6031524fc7
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@seanhannity 1/11/2022 3:08 PM (UTC)`
@@ -156,13 +162,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: The battle between Xi Jinping and Zeng Qinghong have been initiated by the explosion that happened in the Wulong District of Chongqing and the surfacing of the list of the CCP’s top officials who are going to take office after the 20th Party Congress! The gods of the Kunlun Mountains and the Himalayas are helping us the New Federal State of China! The CCP is more superstitious than anyone else!<br/><br/>1/09/2022 文贵直播: 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战！昆仑山神和喜马拉雅山神都在帮助我们新中国联邦！中共比谁都迷信！<br/>
 ![img](https://media.gettr.com/group8/getter/2022/01/10/09/0e260a10-e11b-84f1-f795-7765fd1ede81/out.jpg)
-
----
-
-`@miles 1/10/2022 6:54 AM (UTC)`
-
-1/09/2022 Miles Guo: The CCP has deprived the Chinese people of their faith, while everything the CCP has done is based on the rules of heaven, earth, all Buddhas, and all gods that it deeply believes. 700 virgins are sacrificed by the CCP in the Kunlun Mountains every year, and there exists a higher power watching over us humans. Only by knowing these can we destroy the CCP.<br/><br/>1/09/2022 文贵直播：中共让中国人丧失信仰，而中共的一切却都是靠它所深信的天地和万佛万神来行事的，每年有700处女在昆仑山被中共献祭；人类是有主人的，只有知道了这些才能灭共<br/>
-![img](https://media.gettr.com/group22/getter/2022/01/10/06/8a0e91f3-82ab-4e17-6d98-8cfc4940656e/out.jpg)
 
 ---
 
