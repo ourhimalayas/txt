@@ -2,8 +2,8 @@
 ---
 
 
-## 让最牛的大企业看到喜联储绝对不会被挤兑挤垮
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848487/)
+## G系列，成为大富豪之路
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848511/)
 
 台灣寶島農場
 

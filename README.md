@@ -15,79 +15,79 @@
 
 ---
 
-### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/1/README.md)
+### [文·贵天成——文贵先生谈“王毅”（二）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文·贵天成——文贵先生谈“王毅”（一）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/3/README.md)
  ` wenwu`
 
-### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/2/README.md)
+### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/4/README.md)
  ` 温哥华扬帆农场`
 
-### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/3/README.md)
+### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/5/README.md)
  ` wenwu`
 
-### [2022/01/11大卫作战室直播精要](/content/gnews/4/README.md)
+### [2022/01/11大卫作战室直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊维菌素、以乙酰半胱胺酸（NAC）、槲皮素和维生素D3](/content/gnews/5/README.md)
+### [伊维菌素、以乙酰半胱胺酸（NAC）、槲皮素和维生素D3](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/6/README.md)
+### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/8/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/7/README.md)
+### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/8/README.md)
+### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [爆料革命日记（十）](/content/gnews/9/README.md)
+### [爆料革命日记（十）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/10/README.md)
+### [七哥谈强制疫苗政策在五月份以前一定会消失（2022-01-07摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/11/README.md)
+### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/12/README.md)
+### [七哥谈崇拜佛学佛陀的智慧（2022-01-07摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/13/README.md)
+### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/15/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/14/README.md)
+### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/15/README.md)
+### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/16/README.md)
+### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [G系列，成为大富豪之路](/content/gnews/17/README.md)
+### [G系列，成为大富豪之路](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国的威权主义](/content/gnews/18/README.md)
+### [中共国的威权主义](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/19/README.md)
+### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/21/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/20/README.md)
+### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/21/README.md)
+### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [你不灭共，我们什么族都没有](/content/gnews/22/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/23/README.md)
+### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [七哥说相信信仰（2022-01-07摘录）](/content/gnews/25/README.md)
+### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/25/README.md)
  ` MG FARM`
 
 ### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/26/README.md)
