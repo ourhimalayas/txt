@@ -2,32 +2,35 @@
 ---
 
 
-## 英特尔向中共低头后又删涉疆文字
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847962/)
+## 加油的痛苦：专家预测准备迎接4美元一加仑的油价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1848092/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+据《joepags.com》作者：Joe Pags，2022年1月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-810.png)图片源自：joepags.com
+美国一些地区的油价已经超过4.5美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/EE66B8A3-9FEB-4134-A7B8-17021ECFF0DF.jpeg)（图片来自ALY SONG/REUTERS）
+2022年中期选举的攻击广告几乎是自己写的。但是，如果你难以想象，这里是众议员吉姆-乔丹（R-OH）在Twitter上分享的预览。
 
-据《中央社》1月11日报道，美国芯片制造商英特尔（Intel）在写给供货商的年度信函中要求他们勿使用来自新疆的劳工、产品或服务，但因受到中共网军围攻低头致歉，现如今又删除所有涉及新疆的文字。
+“2021：油价上涨。汽油价格上涨。天然气价格上涨。丙烷价格上涨。取暖费上涨。你银行账户里的钱呢？减少了。谢谢，民主党人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-811.png)图片源自：推特
+尽管拜登总统上个月进行了干预，动用了战略石油储备，但汽油价格继续越攀越高。
 
-据报道，英特尔去年12月23日在官网公布写给供货商的信函，内容提到，在多国政府对新疆实施限制措施后，英特尔“被要求确保供应链不使用任何来自新疆的劳力、货源或服务”。之后，中共在社交媒体掀起对英特尔的围攻。
+CNN报道：“GasBuddy预测……预计5月份全国油价将达到月平均3.79美元的峰值，然后到2022年底退到目前的水平以下。”追踪燃料价格的应用程序GasBuddy的分析主管帕特里克-德哈恩（Patrick De Haan）认为，我们将看到全国平均油价接近，或者在最坏的情况下超过每加仑4美元。
 
-英特尔上月已为引发“困扰”致歉，称公司承诺避免供应链使用新疆产品或服务，只是想表达遵守美国法律，并非就新疆议题声明立场。
+当前，汽油在每加仑3.29美元左右徘徊，比11月初3.42美元峰值下降13美分。同时，圣诞节期间的汽油价格创下有史以来的最高纪录，全国范围内平均每加仑3.26美元，在加州的一些地区甚至却达到4.5美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-812.png)图片源自：推特
+原文连接：[**https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/**](https://joepags.com/news/pain-at-the-pump-experts-say-prepare-for-4-a-gallon-this-year/)
 
-如今，英特尔官网公布的信函也不见上述段落或任何提到新疆及中共国的文字。信函中只提到，英特尔禁止所有供应链出现“任何人口走私或非自愿劳动，例如强迫劳动、抵债劳动、监狱劳役、契约奴工或苦役”。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-针对英特尔在信函中删除所有提及新疆字词的这一事件，美国共和党籍联邦参议员卢比欧（Marco Rubio）提出严厉批评。他在声明中表示，英特尔的怯懦是另一个在经济上依赖中共国的可预见结果。他还表示，与其屈辱地道歉和自我审查，企业更应该把供应链移到不采用奴隶劳动或不实施种族灭绝的国家。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-*参考链接： [https://www.cna.com.tw/news/aopl/202201110092.aspx](https://www.cna.com.tw/news/aopl/202201110092.aspx)*
 
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：miumiu*
 
  
 

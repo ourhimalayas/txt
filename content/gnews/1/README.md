@@ -2,10 +2,12 @@
 ---
 
 
-## 20大的名单出来，开启「习曾」之战
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848259/)
+## 喜支付推广得愈多，大投资机构估价愈高
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1848387/)
 
 台灣寶島農場
+
+喜支付上线的时候大家就去推广它，推广得越多大投资机构就会给我们估价的越高。
 
  
 
