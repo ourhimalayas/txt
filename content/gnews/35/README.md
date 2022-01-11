@@ -2,51 +2,44 @@
 ---
 
 
-## 斯里兰卡债台高筑 要求中共重组其债务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1846281/)
+## 法拉奇支持德约科维奇反对实行高压统治的澳洲政府
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1846296/)
 
-信息采集：janey17
-作者：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/126b7d460fe0aa45fb401fa0fc276c0c1.jpg)图片来源：www.breitbart.com
+《布赖特巴特新闻网》2022年1月8日报道，英国脱欧支持者（脱欧党党魁）奈杰尔·法拉奇(Nigel Farage)支持网球名将诺瓦克·德约科维奇(Novak Djokovic)反对澳大利亚“高压、跋扈、肮脏的政府”，这位塞尔维亚运动员目前被拘留在澳大利亚一家酒店里。
 
+这位世界排名第一的网球选手（在公开表达对新冠病毒疫苗的质疑态度之后，被戏称为“诺瓦克·德约科维奇”）应澳大利亚网球协会的邀请带着一份（他展示的）医疗豁免前往这个前英国殖民地参加澳大利亚网球公开赛。
 
+法拉奇在他个人的YouTube页面上评论了这个局面，坚称该运动员根据相应的当地法规确实拥有豁免权，并声称“大政府，高压、跋扈、肮脏的政府已经介入，联邦政府已经凌驾于维多利亚州之上，澳洲总理斯科特·莫里森(Scott Morrison)声称任何人都不能有豁免”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“所有这一切最令人惊讶的是，很少有人愿意明确表态，那些散布言论的人如何证明从某种程度上说德约科维奇是对公共健康的威胁？好了，他绝对不是。”法拉奇断言，声称纵然你“接种了一剂、两剂、三剂疫苗或在以色列的四剂疫苗”，你仍然有感染和传播新冠病毒的风险。
 
+英国广播公司援引发表在《柳叶刀》(The Lancet)上的研究，确实在10月份报道称，“接种过两剂疫苗的人可能与没有接种过疫苗的人一样具有传染性”，尽管《哈佛公报》(Harvard Gazette)在12月报道称，根据“哈佛陈曾熙公共卫生学院”(Harvard T.H. Chan School of Public Health)的研究，“接种了新冠病毒疫苗但出现突破性感染的人可能不太可能传播病毒，因为与未接种疫苗的人相比，他们传播病毒的时间更短”。
 
+“我确实认识德约科维奇的家人，并且我已经和他们谈过……相当详尽地谈过，事情是这样的：他实际上是被捕了。”法拉奇说。
 
-1月9日，斯里兰卡总统向到访的中共外长王毅提出要求，希望中共能够调整他们提供的贷款结构，并为该国的基本商品进口提供一些优惠信贷，并称目前正挣扎在最严重的经济危机中，部分原因是中共以往资助的项目无法产生任何收益。
+“这一点毫无疑问：他被捕了，他的钱包被拿走了，他的手机被拿走了，他被关进一个更像是监狱的破旧旅馆——不过我认为食物可能更差一些，对于一个非常健康的运动员来说，这一定是一个非常不愉快的事态。”法拉奇声称，挑战澳大利亚政府的说法，即塞尔维亚人可以随时离开和回家。
 
-据悉，负债累累的斯里兰卡外汇储备已降至16亿美元左右，几乎不足以维持几周的进口。其中，用中共贷款建设的基础设施项目，如海港和机场，以及广泛的公路网等，根本不赚钱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-9.jpg)
-仅2022年，斯里兰卡需要偿还的中共外债就超过70亿美元，包括1月份需偿还的价值5亿美元和7月份的10亿美元。
+这位脱欧者暗示，如果德约科维奇不留下并上诉成功的话，他将被禁止返回澳大利亚多年，这将严重损害他未来赢得大满贯的前景。
 
-王毅则只是冠冕堂皇地说，目前这场持续的、不受控制的流行病加重了各国经济复苏的困难，斯里兰卡和中共必须在建交周年之际加强合作。但并没有详细说明如何加强合作，也没有宣布任何救济措施。
+他质问道：“澳大利亚发生了什么，我们这里（英国）发生了什么？为什么大多数人都准备允许“大政府”以抗击这种病毒的名义剥夺我们的政治自由和人权自由？”
 
-参考链接：
-[Sri Lanka Seeks Chinese Debt Restructuring Amid Crisis](https://www.usnews.com/news/world/articles/2022-01-09/china-foreign-minister-in-sri-lanka-to-discuss-belt-and-road)
+简评：全球战绩最佳的网球名将诺瓦克·德约科维奇的疫苗豁免被澳洲政府取消，签证被吊销，遭拘留，让世界看到澳洲政府对公权力的滥用和它们的嚣张跋扈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+疫苗无效、疫苗有毒这一事实已经从世界各国一线医护人员和专业科学家们那里爆出来的疫苗危害信息中得到验证。澳洲政府对本国人民实现疯狂的疫苗接种政策，这背后势必有极深的利益牵连，如今他们把黑手伸向了到澳洲参赛的外国运动员身上，其疯狂程度可想而知。可喜的是，德约科维奇已经上诉成功，墨尔本巡回法院法官裁决允许他可以不接种新冠疫苗参加澳网公开赛。但愿德约科维奇事件可以让澳大利亚联邦政府疯狂的疫苗强制接种政策有所收敛。
 
-总编/编辑：DM
-校对/发稿：为真不破20
+新闻链接：[https://www.breitbart.com/europe/2022/01/08/farage-backs-djokovic-against-big-bullying-nasty-government/](https://www.breitbart.com/europe/2022/01/08/farage-backs-djokovic-against-big-bullying-nasty-government/)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
