@@ -2,33 +2,39 @@
 ---
 
 
-## 七哥谈中美战争（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848722/)
+## 有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848763/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
 
-来源：郭先生2022-01-07直播11：23：37摘录
 
-钟仁：郭先生，您曾经说过中美必有一战，是什么时候？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+郭文贵先生在2022年1月7日大直播中向战友们披露，最近又有多位战友感染了中共病毒，包括木兰传奇的丈夫。这次被传染的战友都是平时很注意防护很小心谨慎的，仍然被感染，说明现在传播的病毒欧米炕是极具传染性的。
 
-郭文贵先生：我觉得现在就在战争中，我觉得中美已经在战争中了。刚才说那三条，是吧？首先一点就是有神、无神论，对吧？然后是民主和家天下这种独裁社会，包括这种自由资本，它现在已经在完全是，甚至共产党在，美国就得完；美国在，共产党必须完，它已经在战争中了。最后我觉得咱所说的“必有一战”就是火战这一块，我觉得就会在冬奥会后和台湾问题、一系列问题爆发后瞬间有可能发生。现在就在战争中，火战我相信很有可能因为台湾会引起。谢谢！
+我们的科学家战友指出新变种欧米炕是慢性杀人，它对机体的损害也是很可怕的。他强调新变种同样是生化武器，任何生化武器元素进入身体里边，都会让人随时死掉，慢死、早死或者得癌症死。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+另外，郭先生还强调mRNA疫苗本身就是病毒，刺突蛋白会脱落会传染，让人没有出门就被感染。现在被感染的绝大多数都是打了疫苗的人，战友们就生活在打了疫苗的人群中。
 
-**关注我们**
+郭先生提醒战友们一定要提高防范意识，一定要准备好药，疫苗灾难下防范意识比解药还重要。
 
-Discord 账号
+文字版原文：[欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](https://gnews.org/zh-hans/1843247/)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-Gettr 账号
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
