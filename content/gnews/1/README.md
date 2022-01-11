@@ -2,14 +2,19 @@
 ---
 
 
-## Peter McCullough医生：已经有上万人死于新冠疫苗
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1847422/)
+## 文贵先生告诉墙内同胞 远离城市呆在农村
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847492/)
 
-我们了解到死亡人数超过一万人。50%的死亡发生在接种后48小时内，80%的死亡发生在一周内。他们看上去处于基本健康状态，然后去了趟疫苗中心，之后在48小时内死亡。所以这与接种疫苗的时间有巨大关联性。
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-From（12/20/2021)
-[https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html](https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html)
+1月1日，郭文贵先生在GTV大直播指出：
 
+郭先生再次强调，2022年会很黑暗。在这种黑暗下，战友们唯一可以选择的是和农场保持联系，尽可能地远离人口居多，现代化的城市。相对而言，乡村是比较安全的。
+
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
