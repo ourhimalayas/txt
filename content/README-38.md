@@ -16,6 +16,10 @@
 ---
 ## 頁面 38/39 [**<**](/content/README-37.md) [1](/content/README.md) ... [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) **38** [39](/content/README-39.md) [**>**](/content/README-39.md) [查看全部](/content/README-all.md)
 
+[CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/2018/04/20180418-893371473063503687.md)
+
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/2018/04/20180418-8782315684152609597.md)
+
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
@@ -61,10 +65,6 @@
 [翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/content/2018/04/20180418-3813308793717217976.md)
 
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
-
-[郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
-
-[郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
 
 
 ## 頁面 38/39 [**<**](/content/README-37.md) [1](/content/README.md) ... [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) **38** [39](/content/README-39.md) [**>**](/content/README-39.md) [查看全部](/content/README-all.md)

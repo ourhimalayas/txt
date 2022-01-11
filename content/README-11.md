@@ -16,6 +16,10 @@
 ---
 ## 頁面 11/39 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [39](/content/README-39.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年8月25日郭先生GTV直播](/content/2020/08/20200831-561623715436101894.md)
+
+[文字版：2020年8月23日郭先生GTV直播](/content/2020/08/20200831-6862101542404324400.md)
+
 [文字版：2020年8月22日郭先生GTV直播连线秘密翻译组](/content/2020/08/20200831-6719006213940604734.md)
 
 [文字版:2020年8月21日郭先生GTV直播](/content/2020/08/20200831-2950510164966247295.md)
@@ -61,10 +65,6 @@
 [文字版:7月14日郭先生盖文汇总](/content/2020/07/20200719-4379804612561417938.md)
 
 [文字版:郭先生7月15日GTV直播](/content/2020/07/20200719-3882705048622934643.md)
-
-[文字版：郭先生7月12日GTV直播](/content/2020/07/20200715-541227053977601101.md)
-
-[文字版：郭先生2020年7月8号GTV直播](/content/2020/07/20200715-3384664929547072780.md)
 
 
 ## 頁面 11/39 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [39](/content/README-39.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
