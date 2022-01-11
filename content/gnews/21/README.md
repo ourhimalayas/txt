@@ -2,37 +2,50 @@
 ---
 
 
-## 演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1844815/)
+## 投资喜币有保证，耐心等待已是传奇的喜币腾飞
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1844848/)
 
-翻譯：香草山翻譯部 – Eleutheria
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-据佛罗里达州警方报道，演员/喜剧演员鲍勃•萨吉特于今天被发现死于酒店，享年65岁。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-警方接到酒店报案,称“酒店房中有一名男子不省人事”。现场探查后，橘县警长发推文说“他已经死亡在现场”。而探员也并未在现场发现任何违规或吸毒行为。 鲍勃•萨吉特因出演家庭喜剧Full House而出名。从其推特可看出他对2022年有一整年的演出安排
+1月9日，郭文贵先生于GTV、Gettr大直播中给国内的喜币（Hcoin）投资人提出了投资建议和三条保证，并透露，没有一个数字交易所可以在开市两个月跻身到世界前五大，除了喜交所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-739.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-5-1.jpeg)图片来源Gnews
 
-对昨晚的演出感到满意并感谢观众，可排除自杀可能。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-741.png)
 
-但从更早推文中发现他已于去年11月底接种了中共病毒疫苗的加强针，所以推测死因多半为疫苗副作用导致的突发心脏病或脑血栓引起的猝死。
+根据最新的统计显示，最近喜交所绝大部分的喜币都是由刚刚通过KYC账户审核的新投资人购买的。但对国内投资人郭先生再度重申，千万不要使用国内银行汇款去投资喜币，否则十有八九会被中共警察找上门。本着宁可不投资喜币，也不要给自己惹麻烦的投资原则。一定要在有汇款安全、有汇款保证的前提下去参加喜账户的KYC。关于如何通过KYC开通喜账户，国内的战友可以找日本方舟农场、银河农场、樱花农场，韩国天池农场和新加坡农场等帮忙。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-743.png)
+尤其针对国内投资喜币的战友，郭先生提出负一切责任的三条保证：
 
-视屏链接：[https://gtv.org/video/id=61dbb82787664c47acd2d047](https://gtv.org/video/id=61dbb82787664c47acd2d047)
-![This image has an empty alt attribute; its file name is 2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-编辑/校对/发稿：Hetangyuese
+第一、保证任何人的个人信息不会被泄露；
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+第二、保证在任何情况下，中共拿不走战友的一个币；
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+第三、保证投资喜币只赚不赔，若赔钱由郭先生负责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/H-2.jpg)图片来源Gettr
+
+
+喜币从上市到今天两个多月的时间，创造的神奇已经举世瞩目。所有人、包括机构投资者做梦都不曾敢想的，喜币自上市已经涨了300-400倍（最高时近500倍）。要知道，根据当时的预估，喜币价值最多可以达到1-5美元。最重要的，机构投资者做梦也没想到拿到福利币的战友们（绝大多数）能在最短的时间内集体快速行动，配合完成针对福利币的锁币（如果福利币可以随便套现，喜币的价值将很快砸至5-10美元）。但是，由于大多福利币被锁，喜币价值随时可能突破50美元、甚至100美元。以至于现在面临的烦恼是，是否该放机构投资者入场。即便目前机构投资者进入资金池的资金量还不够，但足以把目前市场中流通的喜币，分分钟推高到1000美元-2000美元一个。当一个喜币价值1000美元的时候，总市值就是1万亿美元，但最起码需要100亿美元-1000亿美元的现金在市场上流通。
+
+不但如此，喜支付（Hpay）系统马上就要上线，支付系统的上线才是喜币价值真正腾飞的开始。
+
+接下来随着当喜支付系统的上线，通过喜支付系统被广泛的推广和大规模的普及，大投资机构所提供的估值就会水涨船高，继而投入到喜交所的资金也就会越多。
+
+持有喜币就像灭共一样，是一个积累的过程，更是一个信仰，也是对能否拥有这份财富最重要的心理和智慧的考验。
+
+
+
+
+
+**相关Gnews：**
+
+万千宠爱在一身，喜币将是数字货币的规则制定者和开拓者
+
+
+
+> [万千宠爱在一身，喜币将是数字货币的规则制定者和开拓者](https://gnews.org/zh-hans/1806152/)
+
+
 
  
 

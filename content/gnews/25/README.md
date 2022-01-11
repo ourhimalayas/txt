@@ -2,31 +2,31 @@
 ---
 
 
-## 中共病毒疫苗的主要成分清单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844698/)
+## 七哥谈爆料革命的力量（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844750/)
 
-#### 翻译：Lish
+文编：Hima
+听写：叮叮
+视频：七哥
 
-#### 校对：精靈藍
+来源：郭先生2022-01-07直播09：16：56摘录
 
-#### 剪辑/字幕：蛮急
+为什么？我再说一遍，共产党这次它不知道，过去的流氓手段在今天的互联网世界不管用了。他没有想到，他想绑架全世界的做法，他成就了人类上再一次，在互联网文明之后，太空文明、新科技、5G、AI、新金融，特别是数字货币。我昨天下午跟咱们的Gettr Pay的某个超级背后的牛人开会，从来上来就没说过好话过，跟我聊没说过好话。这个人一直跟我一个人联系，从来不和任何人联系。这个人绝对是人类上的未来数字货币大佬中的大佬，我就不说那么多。有一天他站出来，绝对震惊世界。他昨天就说句话，他说：“Miles，我必须要给你夸个奖、点十个赞，喜联储、喜币到今天这个价格，他说是你没想到，我也没想到，涨400倍，” 他说：“我也没有想到你们的战友这么牛叉，说锁币就锁币了，说交就交。昨天是6万多个交易额，就是交易额下来了，但是我看到了你这个喜币完全不一样。”他说：“我现在我看到香港的时候、看到大陆的时候，共产党根本不是你的对手。” 他从来不认为我能消灭共产党，从来不会！他说：“Miles，你干啥我都相信。你说你灭掉共产党，我绝对不相信，” 他说：“不是你的能力问题，是根本不可能！这个世界太贪婪，没人敢灭掉共产党。” 这是个人类上巨大的英雄，就像看电影当中，像我这样带着个帽子，最后1分钟儿，一咳嗽，江湖就停止那种大佬。七哥就有这背后的高人，我才一次次敢自信说，你们不了解爆料革命的力量。
 
-这是来自newblog.com网站上的信息。我想只给你读一下这篇文章的第一部分，这些人花了很长时间来分解（疫苗）实际的成分，你知道吗，这些信息被压制了。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-2021年8月28日，他们说Robert Young博士发表了他的团队的发现。用相差显微镜，透射和扫描电子显微镜和能量色散X射线光谱分析了四个主要（疫苗）
+**关注我们**
 
-此研究由Pablo campra博士（西班牙阿尔梅里亚大学）和其它人（Dr. Juan）执行。他们的发现既证实了之前的调查，也扩大了之前的调查。
+Discord 账号
 
-视频链接：[THE LIST OF MAIN INGREDIENTS OF ALL ”COVID” VACCINES WAS FINALLY EXPOSED](https://www.bitchute.com/video/JcN1Prf7BVGx/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发布：枳实
+Gettr 账号
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
