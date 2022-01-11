@@ -2,32 +2,26 @@
 ---
 
 
-## 福克斯当家主持塔克·卡尔森加入盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847834/)
+## 澳洲大型连锁超商再度出台新的限购政策
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1847886/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.jpg)
-塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011103.jpg)网络图片
 
-继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
+由于 CCP 病毒造成的员工短缺和供应链问题对库存产生了持续的影响，澳大利亚大型连锁超市Coles 对某些杂货实行了新的购买限制。此前，Coles已经对一些食品做出了限购措施，例如鸡胸肉和香肠一次只能购买两包。
 
-参考链接：[Welcome to #GETTR, @tuckercarlson!](https://gettr.com/post/pnico6dcd0)
+而现在，一些日用品和非处方药物也将被纳入限购列表当中。例如卫生纸一次只能购买一包，而扑热息痛、布洛芬和阿司匹林每包限购两包。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+这家超市巨头本周二在 Facebook 上表示：“由于大流行相关的供应链中断，我们商店的产品供应受到了影响……“我们的团队在这段艰难时期努力工作——请记住向他们展示他们应得的善意和尊重。””
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+同时Coles也在社群媒体上表示，恐慌性购买是完全没有必要的，尽管部分商品的供给会出现一定的限制。在澳大利亚东部各州，尤其是悉尼市所在的新南威尔士州，空空如也的货柜已是司空见惯的常态。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然而，与大流行开始时由恐慌性购买引起的供应短缺不同，当前的问题是供应链中断的结果，因为许多物流工人因 Omicron 变体的传播和爆发而被迫处于隔离状态。当前受到影响最为严重的主要是食品产业，不论是新鲜食品还是可以长期保存的商品。
+
+澳洲另一家大型连锁超商Woolworths Group 的首席执行官上周也承认了保持货架库存的困难程度。他表示，目前尚不清楚供应链条以及供给流程何时才能恢复正常。
+
+新闻参考链接：[Coles introduces new nationwide buying limits on certain products](https://www.9news.com.au/national/coronavirus-supermarket-supply-shortage-coles-introduces-new-nationwide-buying-limits-on-groceries/6d8949ab-eb72-4999-aeb3-557404626eb3)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

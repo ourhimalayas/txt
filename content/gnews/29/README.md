@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|“子有所教 老有所养” 是新中国联邦的基本愿景
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1847664/)
+## 针下亡魂｜巴西 18 岁名模接种疫苗后死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1847737/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在1月9日的大直播中，郭文贵先生讲述了灭共以后，中国社会一定要恢复 “少有所依，老有所养“的社会。
+**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
 
-郭先生说，中共国的养老金问题是一个伪命题。传宗接代，是人类的基本权利。即使在春秋战国时期，税赋很重，最首要解决的，也是“少有所依，老有所养”，这是中华民族几千年的文明传承。但在中共国，老年人既死不起，也活不起。养老金本就属于民众，却被共产党利用，成为统治的工具。
+巴西圣保罗一名知名女模特 Valentina Boscardin 在接种完两剂辉瑞 COVID-19 疫苗后不久死亡。
 
-郭先生明确表示，新中国联邦灭共后，第一，要恢复正常的家庭伦理、社会道德；第二，教育是最紧迫最重要的事，也是法治、信仰、良知的基石；第三，公民到50岁以后，由国家负责养老，衣食住行、治病送终，全免费。建立喜币喜联储，就是在未来，优先让孩子和老人受惠。老年人可以自己选择养老的方式，并且鼓励老年人工作和发挥余热。
+据当地媒体报导，今年18岁的 Valentina 年轻、漂亮、健康，是著名节目主持人与女商人 Marcia Boscardin 的女儿，母亲 Marcia 忆述，她的女儿在接种完第二剂辉瑞 COVID-19 疫苗后不久被确诊患有血栓和肺炎，并因此急诊入院，三天后，即1月9日，不治身亡，在此之前， Valentina 没有任何病史和潜在的健康问题。
 
-社会形成敬老爱老的风气，让老人更有安全感，活得更有尊严。这是新中国联邦的基本愿景。
+令人惋惜的是，由于此前为 Christian Dior、Givenchy、Armani 等国际大牌做模特的经历大受认可，Valentina 正积极筹备走向国际舞台，可惜，两剂疫苗夺走了她璀璨的人生。
 
-文字版原文：[“子有所教 老有所养” 是新中国联邦的基本愿景](https://gnews.org/zh-hans/1843832/)
+而事实上，在巴西，对于 Valentina 这个年龄段的人群来说，因感染 COVID-19 病毒而死亡的概率只有0.3%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/巴西-18-歲名模接種疫苗後死亡.jpg)
+来源｜[G1](https://g1.globo.com/sp/sao-paulo/noticia/2022/01/10/modelo-filha-da-apresentadora-marcia-boscardin-morre-aos-18-anos-em-sp-1.ghtml)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)// | // [悲痛！又一名足球运动员在接种疫苗后死亡](https://gnews.org/zh-hans/1799912/)// | // [巴西 28 岁著名男歌手接种疫苗六周后死亡](https://gnews.org/zh-hans/1816652/)// | // [美国 65 岁著名男演员接种疫苗一个月后离奇死亡](https://gnews.org/zh-hans/1845964/)//
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

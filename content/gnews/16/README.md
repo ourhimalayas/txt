@@ -2,26 +2,32 @@
 ---
 
 
-## 澳洲肯德基或因疫情出现供给短缺
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1847851/)
+## 天津累计确诊病例97例
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847893/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011102-1.jpg)网络图片
-澳大利亚全国各地的供应链问题导致购物者不得不面对空荡荡的货架，同时运输、配送和商店的工人被迫隔离无法继续工作。继连锁超商之后，新一轮疫情爆发对澳大利亚的连锁餐饮行业的影响也逐步显现。现在，肯德基已经确认它受到了Omicron的冲击，一些餐点现在已经从该品牌的菜单上消失了。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-肯德基的一位发言人表示：“不幸的是，我们的供应链已经中断，我们的一些餐厅将提供删减版本的菜单……对于这给我们的客户造成的任何问题，我们深表歉意——我们正在尽一切努力帮助我们的供应商重回正轨。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/45C175A4-CFB5-42D2-A092-39236A63A866.jpeg)（图片来自网络）
 
-空荡荡的货架出现在全国各地，而农民们已经证实新鲜食品实际上一直都在生产和栽培当中，问题只是如何把它们送到顾客手上。
+1月11日，中（共）国天津市卫健委在疫情防控新闻发布会上表示，自8日出现COVID-19（中共病毒）疫情，截至11日共报告阳性新冠肺炎病毒感染者97例，其中本土新冠肺炎确诊病例49例，本土新冠病毒无症状感染者15例。
 
-澳大利亚新南威尔士州农民协会主席詹姆斯杰克逊说：“我们的种植者正在向悉尼市场运送大量农产品，我们正在努力确保农场企业能够继续收获这些作物……可悲的是，我们看到一些公司和个人将疫情作为哄抬价格的机会，因此我们会要求 ACCC 密切关注零​​售商，以确保他们不会让价格高于新鲜水果和蔬菜的农场门价。”
+据了解，天津这一轮疫情感染的是Omicron病毒变异株，因其传播速度快、隐匿性强的特点，天津当局决定9日展开全员核酸筛查。天津共有约1400万人口，截至10日下午3时，全市采样962万4938人，完成检测342万7807人。累计判定追踪密切接触者1152人、次级密切接触者685人，累计隔离管理约7.5万人。
 
-相比肯德基，快餐巨头麦当劳则相对较为乐观。麦当劳的发言人表示：“与许多企业一样，麦当劳澳大利亚一直在谨慎管理我们的供应链——其中大部分都位于澳大利亚……在整个大流行期间，我们将继续与我们强大的长期供应商、农民和生产商网络密切合作，以确保我们的客户能够继续享用我们美味的食物。”
+由于天津紧邻北京，距离冬奥会主赛场张家口也不远，为阻断奥密克戎变异毒株的扩散蔓延和疫情外溢风险，天津已于1月9日晚发布通告，重点加强进京通道管控，组织铁路、客运站及高速路口设立卡口或专用通道，对于离津进京人员要核验48小时内核酸检测阴性证明和健康码绿码。同时严格密切接触者及次级密切接触者等重点涉疫人员排查、重点区域管控及离校师生管控。
 
-新闻参考链接：[KFC facing in-store shortages as Omicron supply issues continue](https://www.9news.com.au/national/coronavirus-food-shortage-updates-kfc-affected-nsw-farmers-call-for-rapid-antigen-tests-supermarkets-empty-shelves/b1dac67d-ab52-4304-9dbc-21f5b9a06f93)
+*参考链接：*
+
+1. [*http://tj.sina.com.cn/news/2022-01-11/detail-ikyamrmz4537188.shtml*](http://tj.sina.com.cn/news/2022-01-11/detail-ikyamrmz4537188.shtml)
+2. [*http://webcache.googleusercontent.com/search?q=cache:O9OXd9YA6Y4J:wsjk.tj.gov.cn/ZTZL1/ZTZL750/YQFKZL9424/FKDT1207/202201/t20220110\_5775661.html+&cd=7&hl=zh-TW&ct=clnk&gl=no*](https://webcache.googleusercontent.com/search?q=cache:O9OXd9YA6Y4J:wsjk.tj.gov.cn/ZTZL1/ZTZL750/YQFKZL9424/FKDT1207/202201/t20220110_5775661.html+&amp;cd=7&amp;hl=zh-TW&amp;ct=clnk&amp;gl=no)
 
 
+* * *
 
+*素材采编：幽蘭自得*
 
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
