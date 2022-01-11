@@ -2,39 +2,22 @@
 ---
 
 
-## 托卡耶夫与普京举行电话会谈
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846509/)
+## 让数据说话 接种中共病毒疫苗后更容易被传染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846519/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/ITDyPT8giwQVovHPLO5Yr8yEzC-3YRJh6uM7j-rjO48.jpg)
-《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
+撰稿：东京樱花团丨闻雨
+![](https://lh6.googleusercontent.com/JDAYUlI_DU53Sd06JOe77l6RV9aeLopQ-RJLk3C-bJyuxFwOgCxJcE1ZP8saOa13hUULVNzIna2zESWysqwSUfVOaMSUUZWeQ6c1UrMHHL4ed62UURDpsLOO9xD4htiXEAhypNjq)[*图片来源*](https://www.keguanjp.com/kgjp_gongtong/imgs/2021/01/20210107_k1_01.jpg)
+1月11日株式会社下野新闻社报道：栃木县政府总结了截至1月10日的感染数据。从去年12月至本月（1月）4日，枥木县被传染上中共病毒的人（12岁以上）中，53.4%是 “突破性感染”，这意味着他们是在接种两剂中共病毒疫苗后被传染的。该比率从10月份的13.9%翻倍至11月份的28.1%。
 
-哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
+对该县12岁以上可接种疫苗的感染者的分析表明，10月份173人中有24人是突破性感染（13%），11月份32人中有9人（28%），12月和1月，148人中有79人，突破性感染高达53%。
 
-托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
+就目前的数据来看，突破性感染每个月都在成倍增加，照这么下去，2月份以后突破性感染再翻倍的话，会不会达到100%呢？细思极恐！疫苗灾难正在一步一步地成为现实。
 
-托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
+信息来源：[**5割超が2回接種後に感染　抗体量減少か　栃木県内 12月以降**](https://nordot.app/853363398319996928)
 
-新闻链接：
-1:[https://www.inform.kz/cn/article\_a3767662](https://www.inform.kz/cn/article_a3767662)
-2:[https://big5.sputniknews.cn/20220108/–1036998406.html](https://big5.sputniknews.cn/20220108/--1036998406.html)
-
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

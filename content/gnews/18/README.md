@@ -2,24 +2,38 @@
 ---
 
 
-## 乌克兰逮捕正计划在敖德萨发动恐怖袭击的俄罗斯特工
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1846505/)
+## 托卡耶夫与普京举行电话会谈
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846509/)
 
-#### 撰稿：彩虹
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/ITDyPT8giwQVovHPLO5Yr8yEzC-3YRJh6uM7j-rjO48.jpg)
+《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-21.jpg)图片来源：梦想时代
-1月10日，《新闻极限》引述《路透社》文章，周一，乌克兰安全局（SBU）表示，一名俄罗斯军事情报特工正在计划对该国最大的黑海港口敖德萨（Black Sea port of Odessa）进行袭击时被拘捕。
+哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
 
-安全局说：“该特工是在试图招募人员进行攻击时被拘捕的，其主要任务是通过破坏和恐怖行动来动摇敖德萨地区的政治局势”。
+托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
 
-俄罗斯外交部和国防部的官员没有立即回应对乌克兰声明的评论请求。
+托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
 
-根据报道，上个月，俄罗斯指责有人向俄罗斯驻乌克兰城市利沃夫的领事馆投掷自制燃烧弹，向乌克兰提出正式抗议，称这是“恐怖主义行径”。
+新闻链接：
+1:[https://www.inform.kz/cn/article\_a3767662](https://www.inform.kz/cn/article_a3767662)
+2:[https://big5.sputniknews.cn/20220108/–1036998406.html](https://big5.sputniknews.cn/20220108/--1036998406.html)
 
-**新闻来源**
+编辑/校对/发稿：文留
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+**更多资讯，更多关注**
 
-[Ukraine Says Arrests Russian Agent Planning Attacks in Odessa](https://www.newsmax.com/newsfront/russian-agent-arrested-odessa/2022/01/10/id/1051723/)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 美国公司将把中共大外宣强加于世界
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1846553/)
+## 西安市民对不人道的封控措施的愤怒发泄
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1846555/)
 
-01/07/2022 前国务卿迈克·蓬佩奥：美国公司将把中共大外宣强加于世界。而习近平会站在舞台上，吹嘘中共有多伟大，而不谈所有他对自己人民和全世界所做的可怕之事
+01/08/2022西安市民对不人道的封控措施的愤怒发泄。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
