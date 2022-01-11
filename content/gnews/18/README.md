@@ -2,31 +2,31 @@
 ---
 
 
-## 七哥谈精神疾病（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844657/)
+## 中共病毒疫苗的主要成分清单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844698/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译：Lish
 
-来源：郭先生2022-01-07直播08：55：36摘录
+#### 校对：精靈藍
 
-青蒿素现在，还有伊维菌素，青蒿素哪都可以买，你干嘛要爆料革命给你送呢？另外一个就是防范意识。今天我再重申，疫苗灾难现在，防范意识比什么解药都管用。如果你要相信爆料革命了，没有解药你也能活，我相信。如果你相信爆料革命你一定会买到药，第三个你不能等到你有病了再想药。我说这个Rachel，钟仁，两位美女妹妹，你们有感觉吧？雷蒙兄弟你有感觉吧？你不能到这时候，这几关，跟爆料革命不相信说的，然后呢也不按照爆料革命要求防范，然后得了病了再想到药，你说这四步已经是晚了，很晚了。对吧，猫本小哥？这才是刚才就是那个疫苗灾难，我们每天我们要说的事情，它是一个精神上的疾病。我跟那位战友我说的真是，我说你现在需要的是精神病药，而不是需要伊维菌素。你得病了你怨人家香草山啥呀？你怨你爷爷奶奶啥呀？还跟你爷爷奶奶啥关系呀？你这样的人你怎么可能，，你染上病是很危险的，你不染上病也很危险，你这脑子是有问题的。
+#### 剪辑/字幕：蛮急
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+这是来自newblog.com网站上的信息。我想只给你读一下这篇文章的第一部分，这些人花了很长时间来分解（疫苗）实际的成分，你知道吗，这些信息被压制了。
 
-**关注我们**
+2021年8月28日，他们说Robert Young博士发表了他的团队的发现。用相差显微镜，透射和扫描电子显微镜和能量色散X射线光谱分析了四个主要（疫苗）
 
-Discord 账号
+此研究由Pablo campra博士（西班牙阿尔梅里亚大学）和其它人（Dr. Juan）执行。他们的发现既证实了之前的调查，也扩大了之前的调查。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+视频链接：[THE LIST OF MAIN INGREDIENTS OF ALL ”COVID” VACCINES WAS FINALLY EXPOSED](https://www.bitchute.com/video/JcN1Prf7BVGx/)
 
-Gettr 账号
+发布：枳实
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

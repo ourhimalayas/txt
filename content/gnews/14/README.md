@@ -2,32 +2,29 @@
 ---
 
 
-## 中共病毒疫苗的主要成分清单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1844698/)
+## 讣告声讨指责拜登政权强制疫苗令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1844741/)
 
-#### 翻译：Lish
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1E827CC6-42F7-4E03-B0B7-B453F2B52E71.jpeg)图片来源：网络
+来自GATEWAY PUNDIT星期一1月10日的新闻报道:
 
-#### 校对：精靈藍
+美国明尼苏达州的 41 岁的德里克·安德鲁·麦金托什（Derek Andrew McIntosh）于 2022 年 1 月 4 日意外去世，原因是被迫接种疫苗后的血栓并发症导致心脏骤停。
 
-#### 剪辑/字幕：蛮急
+在他的讣告中，麦金托什强烈反对接种疫苗，但他别无选择，只能遵守违宪的疫苗规定。
 
-这是来自newblog.com网站上的信息。我想只给你读一下这篇文章的第一部分，这些人花了很长时间来分解（疫苗）实际的成分，你知道吗，这些信息被压制了。
+“在他生命的最后几周，世界因严厉的疫苗要求而变得黑暗，各级政府丧心病狂，下决心剥夺他的遵从内心智慧和享受自由的权利。他一直强烈反对接种疫苗，所以感谢乔·拜登（Joe Biden）让一个没有完全活过的生命过早死亡”。
 
-2021年8月28日，他们说Robert Young博士发表了他的团队的发现。用相差显微镜，透射和扫描电子显微镜和能量色散X射线光谱分析了四个主要（疫苗）
+“德里克·安德鲁·麦金托什（Derek Andrew McIntosh）于 2022 年 1 月 4 日凌晨意外去世，原因是他在接种 Covid 19 疫苗后出现血栓并发症，导致他心脏骤停”。
 
-此研究由Pablo campra博士（西班牙阿尔梅里亚大学）和其它人（Dr. Juan）执行。他们的发现既证实了之前的调查，也扩大了之前的调查。
+最近，来自疫苗不良事件报告系统 (VAERS) 的报告（包括非国内报告）显示，截至 2021 年 12 月 24 日，已有超过 100 万例 COVID-19 疫苗不良反应病例，包括 21,000 多例死亡和 10,640 例心脏病发作。
 
-视频链接：[THE LIST OF MAIN INGREDIENTS OF ALL ”COVID” VACCINES WAS FINALLY EXPOSED](https://www.bitchute.com/video/JcN1Prf7BVGx/)
+原文链接: [https://www.thegatewaypundit.com/2022/01/thank-joe-biden-bringing-premature-death-life-not-fully-lived-covid-vaccine-death-obituary-mn-blames-joe-biden/](https://www.thegatewaypundit.com/2022/01/thank-joe-biden-bringing-premature-death-life-not-fully-lived-covid-vaccine-death-obituary-mn-blames-joe-biden/)
 
-发布：枳实
+编辑/发布：LILY
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+20220110
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,31 @@
 ---
 
 
-## 演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1844815/)
+## 七哥说“它不是这个币赢了，是新中国联邦的理念和这个人群赢了” （2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844902/)
 
-翻譯：香草山翻譯部 – Eleutheria
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-据佛罗里达州警方报道，演员/喜剧演员鲍勃•萨吉特于今天被发现死于酒店，享年65岁。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-警方接到酒店报案,称“酒店房中有一名男子不省人事”。现场探查后，橘县警长发推文说“他已经死亡在现场”。而探员也并未在现场发现任何违规或吸毒行为。 鲍勃•萨吉特因出演家庭喜剧Full House而出名。从其推特可看出他对2022年有一整年的演出安排
+来源：郭先生2022-01-07直播09：25：34摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-739.png)
+你们一定要小心！大概过去这一星期啊，国内买喜币的人，要进来的人数就新增人数，大概翻了N倍。但很多人就付款特别傻，到中信、到招商、到民生就付钱。结果马上报警，警察来敲门来了。我希望咱今天所有的在看直播的战友们，一定要在国内，特别是国内的战友，一定说你买喜币的方式非常简单：先准备好KFC，先准备好。我今天凌晨的时候，我们在喜联储的战友Kathy给我发信息，战友跟她联系，第一个讨论是什么？怎么能把款汇出去？是吧？就Kathy很感慨，说我们中国人怎么活得这样？是吧？你们一定记住，不要因为买币给自己惹麻烦，是吧？一定想办法在其他安全的方式下汇款，再来买喜币。这是我今天特别要警告大家的，不要给自己惹麻烦，大过年的，特别不好，宁可不买喜币，你也不要因为汇款惹麻烦。第二个，就是全球的农场战友们，如果家旁边人有人买喜币，尽可能帮他安全地付款，千万别让他出问题。第三个我要告诉大家的，喜币，我接着刚才说，喜币的价值就在于我们战友。我告诉昨天那个大师，我说你知道为什么你说喜联储是我们的智慧和设计？不是的，没有一个币，包括比特币，它从第一天开始有这么多的基础的、绝对的支持者，是无私的奉献者。严格讲，它不是这个币赢了，是新中国联邦的理念和这个人群赢了。他感慨太深，他说你们这回锁币的事情 “3年”，是人类上没有一个人相信能做到的。战友们，你们有没有想过，包括就在现场，Rachel在现场，毫不犹豫地她是把币就锁了的，这是一个上海江浙小女人；我们的钟仁，就这么个孩子十七八岁的孩子，毫不犹豫锁了的；雷蒙，猫本就别提了，在那个群里边儿恨不得把币锁上，把家门儿都给锁上，这种动力精神它是任何一个文明伟大之前它必须的条件。就你创造一个奇迹，你需要创造奇迹的人和创造奇迹的钱，更重要的事情，天时、地利、人和。这是为什么王雁平和我跟那个喜联储为战友们争取利益的时候，我们是凭着良心、良知的。这不是开玩笑的，昨天他们到喜联储去开会。
 
-对昨晚的演出感到满意并感谢观众，可排除自杀可能。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-741.png)
+**关注我们**
 
-但从更早推文中发现他已于去年11月底接种了中共病毒疫苗的加强针，所以推测死因多半为疫苗副作用导致的突发心脏病或脑血栓引起的猝死。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-743.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-视屏链接：[https://gtv.org/video/id=61dbb82787664c47acd2d047](https://gtv.org/video/id=61dbb82787664c47acd2d047)
-![This image has an empty alt attribute; its file name is 2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-编辑/校对/发稿：Hetangyuese
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

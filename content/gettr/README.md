@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/10/2022 11:57 PM (UTC)`
+
+1/09/2022 Miles Guo: The Chinese Lao Baixing have no access to the truth about the Kunlun Mountains and the Himalayas due to the CCP’s tight grip on the Internet; there are two factions in the CCP - those who are superstitious (e.g., Zeng Qinghong, Chen Quanguo, and Hu Chunhua) and those who are not (e.g., Ma Jian and Zhang Yue), and all of these CCP members are my enemies<br/><br/>1/09/2022 文贵直播：中共严控网络让老百姓看不到昆仑山和喜马拉雅山的真相；中共分信迷信(如曾庆红、陈全国和胡春华)和不信迷信(如马建、张越)的两派，而这些共产党都是文贵的敌人<br/>
+![img](https://media.gettr.com/group10/getter/2022/01/10/23/1917140c-b906-f5e1-2e62-40fc1fbddbaa/out.jpg)
+
+---
+
 `@miles 1/10/2022 11:50 PM (UTC)`
 
 1/10/2022 Miles Guo’s GETTR: The CCP has been treating the Lao Baixing as animals, and it is so pathetic that the Chinese people have never questioned whether or not what the CCP is doing is reasonable and legitimate. Don’t equate your everyday life with mystics. Instead, we should follow the rules of nature. We shall live a better life after the CCP is taken down!<br/><br/>1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法；不要把生活和玄学划等号，要尊重大自然的规律，灭共后我们要过上更美好的生活！<br/>
@@ -154,15 +161,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 Even the stars were jealous of the sparkle in her eyes 💘
 ![img](https://media.gettr.com/group30/origin/2022/01/08/21/8c2dc0fa-749b-7e10-3bf6-58e1eddaba31/79522196523fd6f9a7f933c705f5b2f1.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@simonegao 1/9/2022 6:01 AM (UTC)`
-
-My first post. Just want to test how many Chinese people are there.
-![img](https://media.gettr.com/group42/origin/2022/01/09/06/82584d33-05ed-5f66-9f82-954e42aa5dab/out.jpg)
 
 ---
 
