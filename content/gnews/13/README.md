@@ -2,50 +2,25 @@
 ---
 
 
-## 有声|别问春天到来我会做什么
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845787/)
+## 魁省将使用疫苗护照购买大麻和酒类饮品
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845833/)
 
-配音：香草山佛教部 – 李傻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-别问春天到来我会做什么？
-我在冬天里积淀的养分，
-会在春天里抽枝发芽，
-在夏季里悄然绽放—
-或许不是最美，
-却馨香四溢的花朵。
-然后，随着秋的到来，
-结成累累硕果。
-你会看到我谦卑地弯下腰，
-直到孩子们攀上我直刺虚空的枝头，
-采摘掉我所有的浆果。
-不管他们把玩、还是吃掉，还是随手抛弃，
-这些都无关紧要，
-我都会在萧瑟的秋风中，
-来一次仓促而铿锵的谢幕……
+采编：文莱     编译撰稿：文明(添草灭共)
 
-原文链接：[别问春天到来我会做什么](https://gnews.org/zh-hans/1844382/)
-
-音频处理：喜山必胜Maverick
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-20-edited.jpg)图片来源：后千禧年
 
 
+据加拿大媒体【后千禧年】1月9日报道，在魁北克省政府近日宣布将在酒精类和大麻类商品专卖店强行使用疫苗护照后，该省预约接种“新冠病毒”疫苗的人数翻了两番。
+
+报道称，自当局1月6日发布“进入国营酒类商店或大麻药房必须出示接种证明”的规定以来，魁省“新冠病毒”疫苗首次接种预约人数由此前的日均1500名飙升至目前的6000名。
+
+据悉，目前该省近85%的人口至少接种了一剂疫苗，接种两剂及以上人口超过78%，并在全球各地疫苗接种率中位居前列。尽管如此，魁省近期平均每天仍新增1.5万例病毒感染患者，也因此位居加拿大疫情重灾区的前列。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：https://thepostmillennial.com/vaccine-appointments-quebec-vax-passport-liquor-cannabis-stores
 
  
 
