@@ -2,20 +2,18 @@
 ---
 
 
-## 【中日财经爆】迫于中共压力 英特尔删除相关涉疆内容
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846475/)
+## 让数据说话 接种中共病毒疫苗后更容易被传染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846519/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://lh4.googleusercontent.com/jecahkJhCs98bD5zcE-Ao_gNipCdBCI6wHUcXmzAt4GRzPg_lPvBc6tys1E5Lnzc4NywJF0WjmORT0-iJZZekuxXn8SmsJNYSfPZznXDstQB_ZJvx6wD94CP_AUn0BoKbWtD8jr0)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2022/01/1641882717069-71cdafc09f454a67bb0895733cb2383b-1200x800.jpeg?unShow=false)
-路透社1月11日报道，美国芯片制造商–英特尔在给供应商的年度信函中删除了涉及新疆的内容。此前该公司有关涉疆表述引发中共国抨击。
+撰稿：东京樱花团丨闻雨
+![](https://lh6.googleusercontent.com/JDAYUlI_DU53Sd06JOe77l6RV9aeLopQ-RJLk3C-bJyuxFwOgCxJcE1ZP8saOa13hUULVNzIna2zESWysqwSUfVOaMSUUZWeQ6c1UrMHHL4ed62UURDpsLOO9xD4htiXEAhypNjq)[*图片来源*](https://www.keguanjp.com/kgjp_gongtong/imgs/2021/01/20210107_k1_01.jpg)
+1月11日株式会社下野新闻社报道：栃木县政府总结了截至1月10日的感染数据。从去年12月至本月（1月）4日，枥木县被传染上中共病毒的人（12岁以上）中，53.4%是 “突破性感染”，这意味着他们是在接种两剂中共病毒疫苗后被传染的。该比率从10月份的13.9%翻倍至11月份的28.1%。
 
-上个月，英特尔因在其网站上发表的一封致供应商的信而在中共国社交媒体上遭到抨击。12月23日的信中说，在“多国政府”实施限制后，它被“要求确保其供应链不使用任何来自新疆的劳工、采购产品或服务”。
+对该县12岁以上可接种疫苗的感染者的分析表明，10月份173人中有24人是突破性感染（13%），11月份32人中有9人（28%），12月和1月，148人中有79人，突破性感染高达53%。
 
-根据路透周二（1月11日）对同一网页的检视，这封信中不再包含这段话，也没有任何提及新疆及中共国的内容。这封信现在写道，本公司禁止“在你们的扩展供应链中存在任何人口贩运或非自愿劳动，如强迫劳动、债役劳动、监狱劳动、契约劳动或奴役劳动。”
+就目前的数据来看，突破性感染每个月都在成倍增加，照这么下去，2月份以后突破性感染再翻倍的话，会不会达到100%呢？细思极恐！疫苗灾难正在一步一步地成为现实。
 
-英特尔公司上个月为其造成的“麻烦 ”被迫道歉，称其相关表述初衷是确保遵守美国法律，并非它意或表达立场。跨国公司面临着压力，因为它们既要遵守与新疆有关的贸易制裁，又要继续在其最大市场之一的中共国开展业务。
-
-消息来源：[**英特尔删除致供应商年度信函中涉及新疆的内容**](https://cn.reuters.com/article/intel-xinjiang-0111-idCNKBS2JL09F?il=0)
+信息来源：[**5割超が2回接種後に感染　抗体量減少か　栃木県内 12月以降**](https://nordot.app/853363398319996928)
 
 *校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 平安卿卿*

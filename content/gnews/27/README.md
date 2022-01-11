@@ -2,26 +2,32 @@
 ---
 
 
-## 韩国总统候选人尹锡悦赞成粉碎共产党
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1846788/)
+## “脸书”将强制员工接种加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846985/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-33.png)Source： www.businessinsider.co.za
+编译：Lish
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-22.jpg)图片来源：经济学家
-1月10日，《新闻极限》引述《独立报》的文章，指韩国总统候选人在对待中共的态度上有截然不同的观点和态度。
+拥有Facebook、Instagram、WhatsApp和虚拟现实公司Oculus的Meta公司将于3月28日全面重新开放其办公室。然而，只有接种完加强针的员工才能返回工作场所。员工将必须出示证据，证明他们接种了新冠疫苗的加强针。
 
-文章指，韩国总统候选人尹锡悦（Yoon Seok-youl）分享了一个含有“myulgon”的帖子后，一个冷战时期的反共口号再次进入人们的视野，该口号的意思是“粉碎共产党”或“消灭共产主义”，这引发了一场关于该国是否应该保持战略模糊政策的辩论，该战略模糊政策使政府能够同时保持与中共国和美国的关系。
+该公司的一位发言人说，“鉴于加强针有效性的证据，我们对疫苗接种的要求扩大到接种加强针”。Meta公司此前执行了类似的强制规定，要求所有在职员工都要接种两剂新冠疫苗。
 
-韩国主要反对派国民力量（People Power Party）的尹锡悦说，如果在2022年3月9日当选（总统），他将结束韩国在中共国和美国之间的谨小慎微，使其外交政策与美国保持一致。而执政的民主党（DP）总统候选人李在明（Lee Jae-myung）则说，中共国仍然是韩国的重要贸易伙伴，并强调其在朝鲜无核化中的作用“不能被否定”。
+Facebook跟随其他美国公司的步调，强制要求员工接种加强针。虽然美国疾病控制和预防中心还没有改变 “完全接种 “的定义，但它在上周鼓励美国人民紧跟病毒的 “最新 ”保护。五角大楼上个月也表示，仍然可能强制要求士兵接种加强针。
 
-根据《半岛电视台》报道，韩国社会舆论研究所（Korea Society Opinion Institute）在12月10日至11日进行了一项全国性民意调查，调查结果显示，尹锡悦的支持率为42%，李在明的支持率为40.6%。
+关于是否需要将新冠加强针作为所有人的必修课的争论一直存在。几位备受瞩目的美国政界人士都接种了三针疫苗，最近他们的新冠病毒检测结果呈阳性，进一步助长了这场争论，同时似乎也为强制接种疫苗的反对者提供了论据。五角大楼主任劳埃德·奥斯汀是本月最新检测出阳性的美国政客之一，他在10月份接种了加强针。然而，他辩称，如果他没有接种三针，他的病情可能会比现在糟糕。
 
-文章报道，零售业巨头韩国新世界集团负责人郑溶镇（Chung Yong-jin）在Instagram上发布了一系列帖文，使用了“myulgong”（即“粉碎共产党”或“消灭共产党”）的字眼。Instagram首先删除了这些帖文，说其包含了煽动暴力的词汇，但随后Instagram方面又恢复了这些帖文。
+纽约民主党女议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）也在秋季接种加强针， 但周日新冠检测呈阳性，据说正在家里从病毒及其症状中恢复。
 
-**新闻来源**
+参考链接：[Facebook mandates Covid boosters — RT World News](https://www.rt.com/news/545637-facebook-mandates-covid-boosters/)
 
-[Candidates in South Korean Election Torn Between China and US](https://www.newsmax.com/newsfront/south-korea-slogan-communism/2022/01/10/id/1051780/)
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
