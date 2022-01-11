@@ -2,19 +2,14 @@
 ---
 
 
-## 共产党统治下中国人在国际上最没有尊严
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847314/)
+## Peter McCullough医生：已经有上万人死于新冠疫苗
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1847422/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+我们了解到死亡人数超过一万人。50%的死亡发生在接种后48小时内，80%的死亡发生在一周内。他们看上去处于基本健康状态，然后去了趟疫苗中心，之后在48小时内死亡。所以这与接种疫苗的时间有巨大关联性。
 
-1月1日，郭文贵先生在GTV大直播指出：
+From（12/20/2021)
+[https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html](https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html)
 
-由于中共的独裁统治，中国人在国内的环境和受欺骗、打压的遭遇，让中国人看不起中国人，中国人不相信中国人，中国人在国际上失去了尊严。新中国联邦会尽全力，清洗中国人脑子里的中共残毒，找回我们自己的尊严。
-
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

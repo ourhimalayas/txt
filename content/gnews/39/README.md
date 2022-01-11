@@ -2,33 +2,17 @@
 ---
 
 
-## 美国CDC无法给出死于新冠病毒的具体数字
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
+## 湖南社保基金案涉数百张死亡人员社保卡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1847126/)
 
-撰稿: 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
-电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13-3.png)
+**整理报道/编辑：**翼族
 
-Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
+湖南省近期公布了一起涉及千万元的社保基金案，28名中共党员干部被追责，11名公职人员被移送司法机关。而令人称奇的是，这样一则大案的告破，背后竟源于当地银行的深夜警铃。
 
-链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
+这是一起典型的多人共谋、监守自盗，严重侵害大众利益的职务犯罪案件。2021年2月1日深夜，湖南省衡南县一家银行业务报警系统骤然响起，有人在该行自动取款机上使用多张银行卡，因长时间运行触发了系统报警。公安部门调查发现，取款人是衡南县人社局农保中心征缴股股长阳某，其随身携带612张社保卡，并已取出15万余元现金，随后这起社保基金案才浮出水面。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
-
-编辑：DM
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
+*发布：翼族*
 
  
 

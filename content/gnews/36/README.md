@@ -2,18 +2,21 @@
 ---
 
 
-## 西媒头条 — 第150期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1847103/)
+## 当年美国怎么对待前苏联 今天怎么对待共产党
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847227/)
 
-**制作：蚂蚁兄弟**
+文编：东京樱花团/樱花传媒
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+视频:东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220111.001.jpeg)
+12月29日，郭文贵先生在GTV大直播指出：
 
-***发稿：信心满满***
+当美国决定干掉苏联时，采用温水煮青蛙方式，不能让你吃饱，围堵和让你内乱！叶利钦曾跟中共说：你们千万记住美国不像你们想的那么傻，美国在核心利益上，这个国家是百分百的统一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

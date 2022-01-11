@@ -2,32 +2,20 @@
 ---
 
 
-## “脸书”将强制员工接种加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846985/)
+## 秘翻在线： 赵赫突然离世 央视主持人有几个有善终？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1847203/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-33.png)Source： www.businessinsider.co.za
-编译：Lish
+**撰稿：葛大饼**
 
-拥有Facebook、Instagram、WhatsApp和虚拟现实公司Oculus的Meta公司将于3月28日全面重新开放其办公室。然而，只有接种完加强针的员工才能返回工作场所。员工将必须出示证据，证明他们接种了新冠疫苗的加强针。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-11-194130.jpg)图片来源：搜狐
+根据2022年1月10日 新浪报道， 央视知名主持人——赵赫，突传离世。主持界同行纷纷发文哀悼，生前好友赵雨润在微博透露赵赫与癌症抗争了好几年，但愿天堂里他不再被病痛折磨。
 
-该公司的一位发言人说，“鉴于加强针有效性的证据，我们对疫苗接种的要求扩大到接种加强针”。Meta公司此前执行了类似的强制规定，要求所有在职员工都要接种两剂新冠疫苗。
+郭先生曾经引用 原中央电视台台长焦利的话，说踏进中央电视台这个门已经不分男女，中央电视台就是中南海的后院，想干啥干啥，也就是中南海的尿捅，任何出名的人进新闻联播、新春联欢晚会不论男女，全部检查身体，检查完身体，还要深入检查，当然包括掏肛了，掏子宫了。曾经名噪一时的央视主持人被抓的一数一大把，而暴病早逝的也不少，像罗京，赵忠祥，李咏，方静，王欢等等。赵赫作为央视知名主持人，也是共产党这个体制下的受害者，特别是在中共病毒和疫苗的屠杀下，究竟死因如何已不重要，命运早已注定，愿他安息。
 
-Facebook跟随其他美国公司的步调，强制要求员工接种加强针。虽然美国疾病控制和预防中心还没有改变 “完全接种 “的定义，但它在上周鼓励美国人民紧跟病毒的 “最新 ”保护。五角大楼上个月也表示，仍然可能强制要求士兵接种加强针。
+**[新闻来源](https://k.sina.cn/article_5737946541_156021dad00101286x.html?from=ent&amp;subch=star&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-关于是否需要将新冠加强针作为所有人的必修课的争论一直存在。几位备受瞩目的美国政界人士都接种了三针疫苗，最近他们的新冠病毒检测结果呈阳性，进一步助长了这场争论，同时似乎也为强制接种疫苗的反对者提供了论据。五角大楼主任劳埃德·奥斯汀是本月最新检测出阳性的美国政客之一，他在10月份接种了加强针。然而，他辩称，如果他没有接种三针，他的病情可能会比现在糟糕。
 
-纽约民主党女议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）也在秋季接种加强针， 但周日新冠检测呈阳性，据说正在家里从病毒及其症状中恢复。
-
-参考链接：[Facebook mandates Covid boosters — RT World News](https://www.rt.com/news/545637-facebook-mandates-covid-boosters/)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
