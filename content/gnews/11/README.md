@@ -2,16 +2,31 @@
 ---
 
 
-## 大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1848369/)
+## 七哥说新中国联邦走向东欧（2022-01-07摘录)
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848451/)
 
-我的一个好客户让他最好的朋友平安夜留在他家。他待在沙发上睡着了。这是他接种新冠加强针后的第四天。他离开我们了他死于心脏病发作。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-尸检称是心肌炎。这个人48岁。他一生中从未有过心脏问题。他是一家大型健康诊所的首席执行官。在营业的诊所。
+来源：郭先生2022-01-07直播10：38：31摘录
 
-安息吧！尼尔。
+王毅还没到我就告诉了哈萨克斯坦朋友，我说你们做好准备啊，这个事儿已经来了，而且他们会这么做，结果这些人全动起来了。我今天可以毫不夸张的说，未来哈萨克斯坦人一定会和新中国联邦树上一个最伟大的一个雕塑在那儿，他们爱搞雕像啊，因为爱搞雕像一定会作上去。纳扎尔巴耶夫的事情是我们新中国联邦走向东欧的一个里程碑，而且接下来会在乌克兰，看到乌克兰、包括阿塞拜疆、吉尔吉斯坦都会有动作，俺就不说啦。
 
-听写/翻译/视频制作+字幕：三分 | 校对： 烟波浩淼 | 编辑：FiLa文新心 | 发布：断播
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

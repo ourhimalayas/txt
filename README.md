@@ -15,71 +15,71 @@
 
 ---
 
-### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/1/README.md)
+### [护士出来发声，认为现有治疗新冠患者方案，是在杀害患者](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [你不灭共，我们什么族都没有](/content/gnews/3/README.md)
+### [一位担任多年护士，看到成年人打完新冠疫苗的不良反应](/content/gnews/2/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/4/README.md)
+### [七哥谈共产党很迷信（2022-01-07摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/5/README.md)
+### [七哥说共产党是天下最大的魔（2022-01-07摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [共产党对中国人的邪恶，死多少人他根本不在乎](/content/gnews/6/README.md)
+### [G系列，成为大富豪之路](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [七哥说相信信仰（2022-01-07摘录）](/content/gnews/7/README.md)
- ` MG FARM`
+### [中共国的威权主义](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈跟共产党的较量（2022-01-07）](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [七哥说喜马拉雅山没那么简单（2022-01-07摘录）](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [喜支付推广得愈多，大投资机构估价愈高](/content/gnews/10/README.md)
+### [让最牛的大企业看到喜联储绝对不会被挤兑挤垮](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世](/content/gnews/11/README.md)
+### [七哥说“看到了天机，所以我坚信我能灭共” （2022-01-07摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥谈共产党内部的斗争（2022-01-07摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [你不灭共，我们什么族都没有](/content/gnews/10/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥说新中国联邦走向东欧（2022-01-07摘录)](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [七哥谈十一大那时候（2022-01-07摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [共产党对中国人的邪恶，死多少人他根本不在乎](/content/gnews/13/README.md)
+ ` G-NEWS TAIWAN`
+
+### [七哥说相信信仰（2022-01-07摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [七哥谈跟共产党的较量（2022-01-07）](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [七哥说喜马拉雅山没那么简单（2022-01-07摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [喜支付推广得愈多，大投资机构估价愈高](/content/gnews/17/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大型诊所首席执行官接种COVID疫苗加强针四天后心脏病发离世](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说凡是不能兑现的承诺都是欺骗（2022-01-07摘录）](/content/gnews/12/README.md)
+### [七哥说凡是不能兑现的承诺都是欺骗（2022-01-07摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥说万事都是因起轮回（2022-01-07摘录）](/content/gnews/13/README.md)
+### [七哥说万事都是因起轮回（2022-01-07摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [没有人会想到喜币涨400倍](/content/gnews/14/README.md)
- ` G-NEWS TAIWAN`
-
-### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/15/README.md)
+### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥说人类将迎来真正的喜马拉雅之魂，喜马拉雅之神必将回到喜马拉雅的山巅！（2022-01-07摘录）](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/17/README.md)
+### [Omicron激增不堪重负，美国医院推迟手术](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥说不要被这场梦给羁绊住（2022-01-07摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [灭共后，有三个核心、重要的必走之路](/content/gnews/19/README.md)
- ` G-NEWS TAIWAN`
-
-### [七哥说人生就是黄粱一梦（2022-01-07摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [七哥谈本能（2022-01-07摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [【辱包】深海维尼](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [国内封城前需要准备的物资](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
