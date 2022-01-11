@@ -2,28 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1847985/)
+## 美国单日新增113万人 创全球新高
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1848050/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-9.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/01/938B57C6-FDB5-417D-AFDA-63594710C90D.jpeg)（图片来自中央社）
 
-视频参看：[2022.01.11早GTV新闻访谈](https://gtv.org/video/id=61dd85f2a6dfdd603152758a)
+据路透社统计，美国1月10日通报新增中共病毒（COVID-19）确诊人数至少113万，在具高度传染力的Omicron变异株蔓延不见放缓之下，单日新增确诊人数比全球任何一国都要高。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据了解，美国之前的单日确诊纪录是1月3日的103万例。每日新增病例的7天平均值在两周内暴增3倍，平均1天70万。路透社报导，由于并非所有的州都通报确诊数，最终数字可能还会更高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
+此外，美国单日病故人数平均值也从最近几天的1400人增加到1700人。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+由于确诊病例激增，美国各级学校、公共交通、企业运营等方面都受到严重影响，学校职员、老师、校车司机纷纷请假让校方苦不堪言。芝加哥因学区和教师无法就如何应对达成共识，已经暂停上课4天。
+
+纽约市政府则在社群网站推特（Twitter）发文表示，由于数量庞大的市府员工请病假导致3条地铁线暂停服务。不只公家单位，企业让员工重返办公室上班的计划也被打乱。
+
+*参考链接： [https://www.cna.com.tw/news/firstnews/202201110087.aspx](https://www.cna.com.tw/news/firstnews/202201110087.aspx)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 

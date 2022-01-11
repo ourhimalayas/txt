@@ -15,86 +15,86 @@
 
 ---
 
-### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/1/README.md)
+### [美国单日新增113万人 创全球新高](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [最高法院准备决定就拜登对企业和医护人员的疫苗令进行限制](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国媒体如何审查打压《真实的福奇》一书？](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美俄就乌克兰紧张局势举行会谈](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [基因编辑正在改变人类](/content/gnews/2/README.md)
+### [基因编辑正在改变人类](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [英特尔向中共低头后又删涉疆文字](/content/gnews/3/README.md)
+### [英特尔向中共低头后又删涉疆文字](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [从小王子对话郭文贵先生何为龙气与龙脉说开来](/content/gnews/4/README.md)
+### [从小王子对话郭文贵先生何为龙气与龙脉说开来](/content/gnews/8/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [【Michael.Tonny专栏】疫苗10个月导致的死亡是其它疫苗51年总和的11.71倍](/content/gnews/5/README.md)
+### [【Michael.Tonny专栏】疫苗10个月导致的死亡是其它疫苗51年总和的11.71倍](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [澳洲维多利亚地区数千医护人员无法进行工作](/content/gnews/6/README.md)
+### [澳洲维多利亚地区数千医护人员无法进行工作](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共“双减”政策致使新东方辞退6万员工](/content/gnews/7/README.md)
+### [中共“双减”政策致使新东方辞退6万员工](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [天津累计确诊病例97例](/content/gnews/8/README.md)
+### [天津累计确诊病例97例](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [澳洲大型连锁超商再度出台新的限购政策](/content/gnews/9/README.md)
+### [澳洲大型连锁超商再度出台新的限购政策](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [是时候站起来夺回我们的医疗自由了](/content/gnews/10/README.md)
+### [是时候站起来夺回我们的医疗自由了](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [王毅新年窜访五国 必有所图](/content/gnews/11/README.md)
+### [王毅新年窜访五国 必有所图](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [澳洲肯德基或因疫情出现供给短缺](/content/gnews/12/README.md)
+### [澳洲肯德基或因疫情出现供给短缺](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/13/README.md)
+### [福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/14/README.md)
+### [中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——望昆仑（新韵）](/content/gnews/15/README.md)
+### [樱花灭共诗——望昆仑（新韵）](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022.1.10全球反疫苗抗议游行](/content/gnews/16/README.md)
+### [2022.1.10全球反疫苗抗议游行](/content/gnews/20/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国人权活动家呼吁在北京奥运会期间开展“小熊维尼”观赏活动](/content/gnews/17/README.md)
+### [美国人权活动家呼吁在北京奥运会期间开展“小熊维尼”观赏活动](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生谈喜币价值 寄语墙内战友](/content/gnews/18/README.md)
+### [文贵先生谈喜币价值 寄语墙内战友](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [墙内老百姓为何如此之愚昧，如此之悲惨](/content/gnews/19/README.md)
+### [墙内老百姓为何如此之愚昧，如此之悲惨](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/20/README.md)
+### [CDC主任公然将死亡病例归因为终末期患者](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [波湾四国外长访中共计与石油议题有关](/content/gnews/21/README.md)
+### [波湾四国外长访中共计与石油议题有关](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [2021年1月10日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/22/README.md)
+### [2021年1月10日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共国：互联网活跃用户首次出现负增长](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [针下亡魂｜巴西 18 岁名模接种疫苗后死亡](/content/gnews/24/README.md)
+### [针下亡魂｜巴西 18 岁名模接种疫苗后死亡](/content/gnews/27/README.md)
  ` 關注組`
-
-### [中共的昆仑山祭坛能保命吗？](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [《天池活水》｜上善若水 好女人旺三代](/content/gnews/26/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共累计接种29.056亿剂次毒疫苗](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [文贵视角:共产党隐藏昆仑山的宇宙密码](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
