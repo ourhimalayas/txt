@@ -2,37 +2,31 @@
 ---
 
 
-## 演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1844815/)
+## 七哥谈奇迹般的喜联储（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1844924/)
 
-翻譯：香草山翻譯部 – Eleutheria
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-据佛罗里达州警方报道，演员/喜剧演员鲍勃•萨吉特于今天被发现死于酒店，享年65岁。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-警方接到酒店报案,称“酒店房中有一名男子不省人事”。现场探查后，橘县警长发推文说“他已经死亡在现场”。而探员也并未在现场发现任何违规或吸毒行为。 鲍勃•萨吉特因出演家庭喜剧Full House而出名。从其推特可看出他对2022年有一整年的演出安排
+来源：郭先生2022-01-07直播09：28：14摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-739.png)
+天时、地利、人和，这是为什么王雁平和我跟那个喜联储为战友们争取利益的时候，我们是凭着良心、良知的。这不是开玩笑的，昨天他们去到喜联储去开会，他们看到那个威廉姆还说人眼睛通红，说这个整个人都快累垮了。为什么，就是他面对着我们战友们利益必须排在前边儿。我们战友是投资者，这个投资者这句话谁都会说，许家印也说，谁都会说，但是我们对待投资者这三个字的时候，像信仰一样的像神一样的存在。只有共同的一个集体的行动，捍卫我们每个人的利益，你的今天就是我的明天，你的钱就比我的钱重要，你没这样你不可能创造今天奇迹般的喜联储，你等到今年经济崩塌的时候你会发现，哇塞，我当初的一个干干净净的决定竟然影响了这么大。真的是兄弟姐妹们太伟大了，你们太伟大了。接下来我们让更多的伟大的人加进来，还有更多的伟大的时刻，我现在我们在宣布之前让战友们有更多的币存在。你看这两天想办法打压，哇塞，$37，我以为$35呢，$37了已经，是$37吧，37块钱，我没看错。$37，我可以告诉大家，如果现在场外交易，你去想想能值多少钱。但是如果我们战友的币随便儿买的话，随便卖的话，我告诉你今天喜币值多少钱，3到5块钱，不会超过10块钱，大家不锁币的话，就是10块钱，3到5块钱，甚至比它还低，我可以告诉大家。但就是大家把币锁住了，它这个钱就上去了。现在投资机构给多少钱，它一定给超过这个钱。我们要让整个KYC的水进来以后，我们要有个千亿的盘在那搁着的时候，它就是个万亿的个市场，你们每个人都是那个金手指，每个人呐，七哥要多爱你们呀！
 
-对昨晚的演出感到满意并感谢观众，可排除自杀可能。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-741.png)
+**关注我们**
 
-但从更早推文中发现他已于去年11月底接种了中共病毒疫苗的加强针，所以推测死因多半为疫苗副作用导致的突发心脏病或脑血栓引起的猝死。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-743.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-视屏链接：[https://gtv.org/video/id=61dbb82787664c47acd2d047](https://gtv.org/video/id=61dbb82787664c47acd2d047)
-![This image has an empty alt attribute; its file name is 2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-编辑/校对/发稿：Hetangyuese
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

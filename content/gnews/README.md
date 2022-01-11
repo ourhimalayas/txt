@@ -15,92 +15,92 @@
 
 ---
 
-### [大直播后记：共产党恐惧新中国联邦护照](/content/gnews/1/README.md)
+### [1/10/2022 文贵盖特：美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大直播后记&#8211;七哥谈“自己如何做人”](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [每日快报：拜登推动参议院规则改变以通过投票权法](/content/gnews/2/README.md)
+### [突发：塔克·卡尔森 加入盖特](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国保险业银行业的腐败，再说王滨（一）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [殡葬服务总监经历14年以来最大因血栓栓塞导致的大量死亡](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [当致电辉瑞客服询问关于疫苗的问题，得到的答复出乎意料](/content/gnews/3/README.md)
+### [大直播后记：共产党恐惧新中国联邦护照](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [145个国家的数据显示引入疫苗后感染和死亡剧增](/content/gnews/7/README.md)
+ ` 华盛顿DC-Russian`
+
+### [每日快报：拜登推动参议院规则改变以通过投票权法](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [当致电辉瑞客服询问关于疫苗的问题，得到的答复出乎意料](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法](/content/gnews/4/README.md)
+### [1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈珍贵的照片（2022-01-07摘录）](/content/gnews/5/README.md)
+### [七哥谈珍贵的照片（2022-01-07摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [德约科维奇赢得法庭上诉有望参加澳网](/content/gnews/6/README.md)
+### [德约科维奇赢得法庭上诉有望参加澳网](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [梦见白马王子——郭文贵先生](/content/gnews/7/README.md)
+### [梦见白马王子——郭文贵先生](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [所谓“相信科学”](/content/gnews/8/README.md)
+### [所谓“相信科学”](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈奇迹般的喜联储（2022-01-07摘录）](/content/gnews/9/README.md)
+### [七哥谈奇迹般的喜联储（2022-01-07摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [1/09/2022 文贵直播：中共严控网络让老百姓看不到昆仑山和喜马拉雅山的真相](/content/gnews/10/README.md)
+### [1/09/2022 文贵直播：中共严控网络让老百姓看不到昆仑山和喜马拉雅山的真相](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥说“它不是这个币赢了，是新中国联邦的理念和这个人群赢了” （2022-01-07摘录）](/content/gnews/11/README.md)
+### [七哥说“它不是这个币赢了，是新中国联邦的理念和这个人群赢了” （2022-01-07摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [AOC的COVID -19检测呈阳性](/content/gnews/12/README.md)
+### [AOC的COVID -19检测呈阳性](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说共产党的骨灰变成了人类文明的肥料（2022-01-07摘录）](/content/gnews/13/README.md)
+### [七哥说共产党的骨灰变成了人类文明的肥料（2022-01-07摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [投资喜币有保证，耐心等待已是传奇的喜币腾飞](/content/gnews/14/README.md)
+### [投资喜币有保证，耐心等待已是传奇的喜币腾飞](/content/gnews/20/README.md)
  ` YALUN 亚伦`
 
-### [演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗](/content/gnews/15/README.md)
+### [演员/喜剧演员鲍勃•萨吉特疑似死于中共病毒疫苗](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [1/09/2022 文贵直播：中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立](/content/gnews/16/README.md)
+### [1/09/2022 文贵直播：中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2022年1月9日：世界板块将大变](/content/gnews/17/README.md)
+### [【粤语配音】2022年1月9日：世界板块将大变](/content/gnews/23/README.md)
  ` MOS香港部`
 
-### [七哥谈爆料革命的力量（2022-01-07摘录）](/content/gnews/18/README.md)
+### [七哥谈爆料革命的力量（2022-01-07摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [讣告声讨指责拜登政权强制疫苗令](/content/gnews/19/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [大直播后记：文贵先生谈“人生如梦”](/content/gnews/20/README.md)
+### [中共病毒疫苗的主要成分清单](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈大洗牌（2022-01-07摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [大直播后记：文贵先生谈“喜马拉雅力量之源”](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒疫苗的主要成分清单](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥说心态最重要（2022-01-07摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/25/README.md)
+### [中共宣传美式民主崩塌 磨刀霍霍向美国](/content/gnews/26/README.md)
  ` 华盛顿DC-Russian`
 
-### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/26/README.md)
+### [美警告俄在乌克兰问题上必须作出选择](/content/gnews/27/README.md)
  ` 华盛顿DC-Russian`
 
-### [健康儿童不需要接种COVID-19疫苗](/content/gnews/27/README.md)
+### [健康儿童不需要接种COVID-19疫苗](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/28/README.md)
+### [美对中共强迫西藏僧侣观看拆毁佛像事件表关切](/content/gnews/29/README.md)
  ` 华盛顿DC-Russian`
-
-### [特朗普的应用程序因美国证券交易委员会对其合并案的调查而搁置](/content/gnews/29/README.md)
- ` 温哥华扬帆农场`
 
 ### [中共军方用印度境内的喜马拉雅山石头作为抽奖礼物](/content/gnews/30/README.md)
  ` 首尔天池农场`
