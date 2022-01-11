@@ -2,41 +2,24 @@
 ---
 
 
-## 中国在冬奥会上推出数字货币以测试其海外吸引力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846076/)
+## 日本进一步延长入境禁令至今年二月底
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846140/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：东京樱花团丨Orange文橘
+![](https://lh6.googleusercontent.com/u8py4xuquS4PICFCbpiLi2lmCcH2-4hbJ_QUNsTUJEPBa91eJXSKPO_XxRGg-vg8MMMRzI5bYk2LH6hBnyUgwuzKk6W_85hohx1fTyAPOgHqJWRduoZF7fxzHCFR_6YmIakP8nQe)[*图片来源*](https://english.kyodonews.net/news/2022/01/974eab354bf9-japan-set-to-maintain-entry-ban-at-least-until-end-of-feb.html)
+1月11日周二日，本首相岸田文雄在东京都官邸告诉记者说，“现行边境管制的框架将维持到2月底”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/数字人民币-2.jpg)图片来源：新浪科技
+自去年11月30日该国确认首例高度传播的奥密抗(Omicron)变体后，该禁令已经开始实施。
 
+政府最初推出的措施为期约一个月，禁止非居民的外国人入境，并要求返回的日本国民和外国居民在政府指定的设施中进行检疫。岸田后来又说，这些措施将 “暂时 “延长到1月初。
 
-编译：小红帽
+目前就中国西安、天津、深圳等地都出现很多小视频，报道有关出血热、疫情爆发以及惨烈的封城情况，事态日趋加重不容乐观。这是中共国境内真实的情况，还是为中共为今后继续放毒做好的一种铺垫，还需拭目以待。
 
-根据《彭博社》1月11日报道， 中国正在北京冬奥会前向运动员和观众推出数字人民币。这是对虚拟货币在外国人眼中吸引力的首次重大考验。
+信息来源：[**日本进一步延长入境禁令至今年二月底**](https://english.kyodonews.net/news/2022/01/974eab354bf9-japan-set-to-maintain-entry-ban-at-least-until-end-of-feb.html)
 
-距离开幕还有不到一个月的时间，而且该赛事已经受到外交抵制和病毒爆发威胁的阻碍，中国正利用奥运会来展示数字人民币在全球的影响力。
-
-据官方银行和游戏官方合作伙伴中国银行称，游客可以下载应用程序或获取存储数字人民币的实体卡，或在自助机器上将外国银行纸币转换为电子人民币。
-
-运动员及其教练有资格获得充当电子钱包的腕带，并且可以刷卡以支付商品或服务费用。
-
-鉴于围绕奥运会的政治紧张局势加剧以及对数据风险的担忧，外国运动员是否采用数字人民币仍有待观察。七月，三名美国共和党参议员呼吁美国奥委会禁止美国运动员使用数字人民币，理由是间谍活动和数据安全问题。
-
-北京奥运村运营团队经理曲松明表示，付款将仅限于几种方式。值得注意的是，阿里巴巴集团的支付宝和腾讯控股有限公司的微信支付（均支持电子人民币）将无法在该村使用。
-
-在奥运会期间，所有比赛场馆和非比赛场馆唯一的支付方式是人民币现金、Visa卡和数字人民币。（ Visa是比赛的赞助商）。
-
-新闻来源：[China offers digital currency at Olympics to test overseas appeal (smh.com.au)](https://www.smh.com.au/business/markets/china-offers-digital-currency-at-olympics-to-test-overseas-appeal-20220111-p59nak.html)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
