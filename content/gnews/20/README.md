@@ -2,52 +2,39 @@
 ---
 
 
-## 魁北克省1月8日星期六发生大规模抗议示威活动——主流媒体却停止了系统地报道
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1845921/)
+## 中共飙升的债务可能会使“一带一路”项目泡汤
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1846048/)
 
-编译及评论：16626
-魁北克省发生大规模抗议示威——抗议者聚集在蒙特利尔，第一集（圆成农场16626制作）![](https://assets.gnews.org/wp-content/uploads/2022/01/image-764-edited.png)图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日
-**抗议示威活动的标语牌侮辱和冒犯了我们**
+#### 【日本东京方舟农场】 原作者：Russell Payne 翻译：A Little Tiger
 
-蒙特利尔日报（丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日）针对魁北克省1月8日（星期六）发生大规模抗议示威活动发表题为《未接种疫苗者为10%》的评论文章指出，主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6B95C0E7-2B7E-4321-B0FB-EF6E418D5A5D.jpeg)（圖片來源：cfr.org）
 
-**愤怒**
+种种迹象表明中共日益加重的债务使其吹捧的“一带一路”项目越来越难实现。经济学家警告称，中国国内的企业正背负着巨额债务，对外投资也是步履蹒跚，这可能导致其缺乏支撑全球基础设施大型项目的资金。在国内，中国开发商恒大在12月违约拖欠了3,000亿美元的债务。尽管恒大以宣布恢复工作，许多人都怀疑其生存能力。
 
-报道中写道：显然，他们（抗议示威活动的人）恐惧比他们的愤怒要少。他们的自由比我们的大。当我们看到他们示威时，我们很想相信，除非我们对他们使用身体暴力，否则没有什么能阻止他们。然而，这是我们这个社会所拒绝的。
+日经亚洲报道称，根据中国铁路的公开财务披露，其公司已经累积了 8,500 亿美元的债务。 这家国有公司因建设超过23,000 英里的高铁而备受称赞，但低客流量和高维护费使其无利可图，支付的利息已超过利润。中铁近万亿美元的债务使它迅速成为了经济负担。 恒大和中铁的负债是债务推动的过度发展大趋势的前兆。根据大西洋理事会的数据，2021 年第三季度，中共债务对 GDP 的比率为 266%，比上一季度下降 1 %。
 
-我们能逮捕他们（抗议示威活动的人），把他们关在临时建造的卫生监狱里吗？我们是否要给他们下药以便成功地给他们注射吗？我们是否应该在独裁统治极权主义国家中找到答案吗，就像在中共国或北朝鲜？
+尽管西方媒体主要关注的是“一带一路”对中共霸权的潜在延伸，但该项目不断增长的成本和不稳定的融资在很大程度上被忽视了。截至 2020 年 1 月，已有 138 个国家以不同的方式签署了“一带一路”计划，预计项目总数在800到2,500以上的范围之间。战略与国际研究中心报告称，中共给“一带一路”的投资总额在 1 万亿到8 万亿美元之间。确切的总额因项目的保密性是不得而知的，而这保密性本身也是个问题。项目资金来源于政策性银行、国有银行、国有基金和国际金融机构。“一带一路”不仅仅是一个经济项目，他也是中共增长中的财富和全球影响力的延伸。 通过开放出口和进口市场，这样的项目是北京实力的证明。
 
-当然不是。我们将冒着超越民主界限的风险。我们需要想象力和智慧。我们知道，在西方的医学界，一些医生正在严重质疑为未接种疫苗的COVID患者提供护理的必要性？
+但在 2017 年，香港科技大学的研究人员警告说，“一带一路”单靠中共独自融资可能过于昂贵：“最初认定中国能够独自提供所有融资现在变得不现实了。”麻省理工学院经济学教授黄亚生在 2019 年称，“一带一路”“可能会给中国经济带来风险和不确定性”。从那以后，美国对外关系委员会的专家记录到来自中国的投资明显下降，这标志着“规模更小、更严格的对成功率更高的项目的贷款的新阶段”。
 
-但我们是讲文明的人。（我们建议）主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-765-edited.png)**图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日**
-**其他相关报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-766-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-日前，TVA新闻（TVA NOUVELLES，Agence QMI， 2022 年 1 月 6 日）发表题为《反对卫生措施的抗议者聚集在蒙特利尔》的文章报道，数百名示威者参加了周六下午（1月8日）在蒙特利尔老城举行的反对卫生措施的集会。示威者打着“我们的自由是必不可少的”，“自由必胜”等标语。
+新冠病毒流行进一步减缓了投资和发展。据中共外交部称，疫情“严重影响”了约20%的“一带一路”项目。过去几年，重新谈判中共贷款的请求倍增，在疫情影响金融的情节下，从津巴布韦到马尔代夫的借款人都想完全取消其“一带一路”项目。根据外交关系委员会的数据，中共推迟或重新安排了从2001至2020被欠的约400亿美元的债务。另外 200 亿美元的贷款被修改或更改了条款。理事会报告称，债务谈判、回报前景下降和对“一带一路”的投资放缓是“放缓的迹象”的信号。
 
-示威者中有加拿大人民党领袖马克西姆·伯尼尔 （Maxime Bernier）自大流行开始以来就积极参加此类集会。伯尼尔先生在他的推特账户上发布的一段视频中说道：“这里有很多人，他们为自由而战，他们敢于对勒戈（魁北克省长François Legault）和任何侵犯我们权利和自由的暴君说不，我们将战斗到胜利的那一刻，自由最终总会胜利。”反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）也参加了集会。魁北克 Pro Choix 团体也是 1 月 1 日在魁北克省长驻蒙特利尔的办公室前举行的抗议宵禁的示威集会的组织者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-767-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-另外，魁北克省战略传播顾问（Expert-conseil en communication stratégique）让·拜尔拉贡（Jean Baillargeon）在TVA新闻（TVA NOUVELLES, 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。拜尔拉贡在文章中提议将筛查未接种疫苗的人作为首要工作。只有这样才能平息那些已经完全接种但处于长达两年封锁状态的人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。拜尔拉贡还提到，魁北克省政府很快会针对未接种疫苗的人群采取进一步措施。一些政客提议针对医疗费用征收“疫苗税”。他最后提议，我们应该参照一些国家的方法，比如新加坡和奥地利，要想结束对90%人口的大范围限制，我们先限制（10%）未接种疫苗的人。例如在所有公共服务中都要求出示疫苗接种护照，如果他们不遵守这个规则就对他们处以罚款；未接种疫苗的人如果被感染并住院，应当向他们收取住院医疗费用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-768-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-**视频资料**
+以吉尔吉斯斯坦3,500万美元贷款重新谈判为例的不利交易证明了借款人应远离中共的原因。中国进出口银行（Exim Bank）不仅推迟了给吉尔吉斯斯坦在2020年的付款，还增加了 2% 的利息。随着项目和付款的停滞，中共的银行无法获得他们最初希望得到的交易。根据外交关系委员会的数据，到2020年为止，价值126 亿美元的项目被取消，价值640 亿美元的项目被搁置。被取消和延迟的“一带一路”项目使中共没有可图利的投资，没有经济蓬勃，也没有得到政治利益。
 
-最后，文章编译及评论人提醒读者，有关魁北克省1月8日星期六发生大规模抗议示威活动的视频资料可以在视频[Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU)中找到（本段下方视频）。相应的中文注释的视频资料，也将在这篇文章的后续文章中陆续发布。
+“一带一路”问题并不是中共所面临的唯一经济问题。世界银行指出中国银行业的不稳定性和高风险的借贷行为是不稳定的根源。有些人还观察到，中共的资本正在以空前的趋势外逃，因为投资者想寻求更安全的避风港。与此同时，“一带一路”也一直受到新殖民主义的指责。乌干达议会的一项调查披露了该国从中国进出口银行获得的一项贷款条件，规定如果发生违约，恩德培机场可能被没收。中共官员安慰乌干达称，他们尚未在非洲占取任何项目。
 
+2017年，斯里兰卡在拖欠贷款后被迫将汉班托塔海港转让给北京。批评者指出这是中共的债务陷阱外交。进出口银行2014 年向蒙特内格罗提供的贷款也出现了相似的情况。一项对100笔中共国际贷款的研究报告 —— “中国如何放贷”的作者指出，债务国必须在手头保留大量现金以防违约。同一份报告指出了许多使中共能够“影响债务国的内外政策”以及“将债务排除在集体重组之外”的策略。
 
-Québec Pro Choix Montréal 08 janvier 2022, 作者 [Bob 333](https://www.youtube.com/channel/UCj4c1QIQR4y56hTcOTQbz8A)
-另外，文章编译及评论人还提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
+如果让恒大陷入破产边缘的不稳定融资也让“一带一路”陷入同样的境地，这对中共的全球声誉会有何影响？正如晚年的约翰梅纳德凯恩斯所说：“如果你欠你的银行经理一千英镑，你就任他摆布。如果你欠他一百万英镑，他就任你摆布。”
 
-**参考资料及图片来源**：
+*原文链接： [China’s Soaring Debt Could Sink the Belt and Road Project](https://www.nysun.com/foreign/chinas-soaring-debt-could-sink-the-belt-and-road/91862/)*
 
-1. 蒙特利尔日报，Le Journal De Montreal，丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日星期一上午 5:00，1-0 pour les non-vaccinés. [https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines](https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines)
-2. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，Des manifestants contre les mesures sanitaires réunis à Montréal. [https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-3. Québec Pro Choix Montréal 08 janvier 2022. [https://www.youtube.com/watch?v=-frZut0SbaU](https://www.youtube.com/watch?v=-frZut0SbaU)
-4. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， «Dépistons et confinons les non-vaccinés». [https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
-5. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier. [https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
+* * *
 
+*素材采编：妙喜小油鍋*
 
-编辑发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
