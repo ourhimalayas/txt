@@ -2,40 +2,20 @@
 ---
 
 
-## 墨西哥总统第二次感染新冠病毒，称症状“轻微”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1846060/)
+## 日本首相和官房长官到底谁说了算？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846108/)
 
-2022-01-10
+撰稿：东京樱花团丨待命（文晓）
+![](https://lh3.googleusercontent.com/71CkAEFe9k08jzwvq3w-kCDaYJSkQyI4GB36VIkiO38-_6sqsdPE1Abx4qgjnfA3PaU4DX5LJjtC_PXFeZsynQm7WuDtpiL0rPagsIwLeQX02VPM9EIofjHkwkgCf7Xb9mY3vBQs)[*图片来源*](https://imgcdn.cna.com.tw/www/WebPhotos/800/20210930/1728x1296_9042444894.jpg)
+内阁官房长官松野博一宣布，政府将改变拒绝从南非等国家来日本的外国人，即使持有在留资格也不能再入境的政策。松野说：截至现在，我们原则上拒绝包括南非在内的11个指定国家和地区的人再入境。但出于人道主义考虑，我们决定允许这些国家和地区的访日者再入境。松野透露，鉴于有些学生正面临毕业和升学，政府正在考虑如何处理新获签的外国学生的入境问题。
 
-翻译报道：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/85-edited.jpeg)图片来源：REUTERS/Henry Romero
-根据路透社于2022 年 1 月 10 日的新闻报道
+然而，岸田首相今天早上表示：他将继续执行对外国人入境日本的禁令，直到2月底。同一天日本首相和官房长官的表态似有冲突，到底谁说的会成为现实呢？
 
-墨西哥城（路透社）– 墨西哥总统奥夫拉多尔（Lopez Obrador）周一宣布，他已第二次感染新冠病毒，并表示他患有轻度病症，并将继续隔离工作，直到康复。
+新闻来源：
 
-去年1月，68岁的奥夫拉多尔的新冠病毒检测呈阳性，他在周一上午的新闻发布会上听起来声音嘶哑，这促使他说他将在当天晚些时候接受检测。
-
-奥夫拉多尔在一条推文中说：“尽管症状轻微，但我会保持隔离，只会做办公室工作和虚拟沟通，直到康复。”
-
-墨西哥官员表示，这位左翼领导人曾于2013年心脏病发作。他曾吸烟，也患有高血压，但他之前的新冠病毒感染率很轻。奥夫拉多尔于2021年12月7日接受了阿斯利康疫苗加强针注射。
-
-奥夫拉多尔补充说，目前内政部长洛佩兹（Adan Augusto Lopez）将在每天上午的新闻发布会和其他官方行动中接替总统。
-
-批评人士抨击这位墨西哥领导人处理冠状病毒大流行的方式，辩称他在卫生紧急情况的早期阶段淡化了其严重性。
-
-除了在飞机上，他也很少在公共场合戴口罩，墨西哥对进入该国的旅行者施加的限制相对较少。
-
-然而，他一直非常坚持公众需要接种病毒疫苗，墨西哥城几乎所有成年人口都至少注射了两针疫苗。
-
-随着欧米克隆变种的传播，墨西哥的感染率正在激增，一些最陡峭的上升发生在坎昆和洛斯卡沃斯等海滩度假胜地的州，受到美国和更远地区的游客的欢迎。
-
-与其他国家相比，墨西哥进行的检测相对较少，周六打破了每日新冠病毒感染记录，记录了30,671例新病例。
-
-来源链接：
-U.S. News: Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’. [https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp)
-
-编辑发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

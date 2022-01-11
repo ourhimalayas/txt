@@ -15,101 +15,101 @@
 
 ---
 
-### [中国“出血热”超级病毒是由大规模疫苗接种引起的](/content/gnews/1/README.md)
+### [提醒您：不要在不知不觉中“中招”](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [挪威退役士兵被告知归还内衣，因为新冠病毒导致物资短缺](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [1/07/2022 文贵直播：奥米炕病毒传染性极强，千万不能掉以轻心（粤语配音）](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/5文贵直播：纳扎尔巴耶夫是王岐山最好的哥们儿（粤语配音）](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/3日郭文贵GETTR：在冬奥会场馆发现可疑的COVID病例（粤语配音）](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中国“出血热”超级病毒是由大规模疫苗接种引起的](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法拉奇支持德约科维奇反对实行高压统治的澳洲政府](/content/gnews/2/README.md)
+### [法拉奇支持德约科维奇反对实行高压统治的澳洲政府](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为了运动员的健康应远离北京冬奥会](/content/gnews/3/README.md)
+### [为了运动员的健康应远离北京冬奥会](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯里兰卡债台高筑 要求中共重组其债务](/content/gnews/4/README.md)
+### [斯里兰卡债台高筑 要求中共重组其债务](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [冲绳中共病毒急速蔓延 日本政府派自卫队医疗支援](/content/gnews/5/README.md)
+### [冲绳中共病毒急速蔓延 日本政府派自卫队医疗支援](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共第七夜 2022年的天津](/content/gnews/6/README.md)
+### [灭共第七夜 2022年的天津](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：党的领导贯穿二十大代表选举全过程](/content/gnews/7/README.md)
+### [DC大中华时事：党的领导贯穿二十大代表选举全过程](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在37.777 HDO](/content/gnews/8/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在37.777 HDO](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭文贵盖特音频2022.01.10](/content/gnews/9/README.md)
+### [郭文贵盖特音频2022.01.10](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [反中共病毒疫苗强制令的领导者表示，她因不实指控而遭波士顿警方勒令休假](/content/gnews/10/README.md)
+### [反中共病毒疫苗强制令的领导者表示，她因不实指控而遭波士顿警方勒令休假](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本禁止外国人入境政策延至2月末](/content/gnews/11/README.md)
+### [日本禁止外国人入境政策延至2月末](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本进一步延长入境禁令至今年二月底](/content/gnews/12/README.md)
+### [日本进一步延长入境禁令至今年二月底](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相和官房长官到底谁说了算？](/content/gnews/13/README.md)
+### [日本首相和官房长官到底谁说了算？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7•24系列——昆仑山脉中的“地狱之门”](/content/gnews/14/README.md)
+### [7•24系列——昆仑山脉中的“地狱之门”](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞公司预计Omicron疫苗将于3月准备就绪](/content/gnews/15/README.md)
+### [辉瑞公司预计Omicron疫苗将于3月准备就绪](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [五行相生相克预见大趋势](/content/gnews/16/README.md)
+### [五行相生相克预见大趋势](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [中国在冬奥会上推出数字货币以测试其海外吸引力](/content/gnews/17/README.md)
+### [中国在冬奥会上推出数字货币以测试其海外吸引力](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墨西哥总统第二次感染新冠病毒，称症状“轻微”](/content/gnews/18/README.md)
+### [墨西哥总统第二次感染新冠病毒，称症状“轻微”](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [希望这判决能警醒那些私下里和中共做生意的学者们](/content/gnews/19/README.md)
+### [希望这判决能警醒那些私下里和中共做生意的学者们](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共飙升的债务可能会使“一带一路”项目泡汤](/content/gnews/20/README.md)
+### [中共飙升的债务可能会使“一带一路”项目泡汤](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [2020的民主党总统候选人加入盖特](/content/gnews/21/README.md)
+### [2020的民主党总统候选人加入盖特](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [半年未发工资，阿富汗驻华大使辞职](/content/gnews/22/README.md)
+### [半年未发工资，阿富汗驻华大使辞职](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西藏冒险王之死惊天黑幕](/content/gnews/23/README.md)
+### [西藏冒险王之死惊天黑幕](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [伊维菌素在预防和治疗新冠病毒的证据摘要](/content/gnews/24/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [美国首例：猪心脏成功植入人体](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频| 喜马拉雅之魂&#8211;蓝莲花](/content/gnews/26/README.md)
+### [视频| 喜马拉雅之魂&#8211;蓝莲花](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [魁北克省1月8日星期六发生大规模抗议示威活动——主流媒体却停止了系统地报道](/content/gnews/27/README.md)
+### [魁北克省1月8日星期六发生大规模抗议示威活动——主流媒体却停止了系统地报道](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022.01.09文贵大直播 喜马拉雅真义八解：关于生命起源/风水/龙脉/信仰/灵魂升华](/content/gnews/28/README.md)
+### [2022.01.09文贵大直播 喜马拉雅真义八解：关于生命起源/风水/龙脉/信仰/灵魂升华](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|梦见白马王子——郭文贵先生](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声|中共国“外长”王毅旋访五国，恐将输出新的赤色革命](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [2022年1月10日郭先生盖特 — 视频1「9分09秒」](/content/gnews/31/README.md)
+### [2022年1月10日郭先生盖特 — 视频1「9分09秒」](/content/gnews/32/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [有声|哈萨克斯坦发生骚乱后数千人被拘留](/content/gnews/32/README.md)
- ` MOSREC`
 
 ### [文·贵天成——文贵先生谈“南普陀计划”（三）](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`

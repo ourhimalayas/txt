@@ -2,24 +2,40 @@
 ---
 
 
-## 西藏冒险王之死惊天黑幕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846013/)
+## 墨西哥总统第二次感染新冠病毒，称症状“轻微”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1846060/)
 
-撰稿：东京樱花团丨深藏不露
-![](https://lh5.googleusercontent.com/dDTUoGLaQ1w6mzezP08b8ackaYLuRy4vQstGa5LHaxQxcOuKNYnH2vblSvFI7hkVS-m402W4ujRgHn_SnCyVST2eUdaFXiQaIXWBm4BdHANtaIbVKuU60JRrW1TMxU3ZOHZ8QNoK)[*图片来源*](https://i.ytimg.com/vi/9kd0zAiW4XI/maxresdefault.jpg)
-王相军，四川省邻水县人，中共国冰川探险者、短视频作者。王相军高中毕业后曾在工地搬砖、在富士康拖地，后来到云南等地一边在餐馆打工一边旅行。他从2012年开始到冰川探险，去过七十多座冰川。2017年，他入驻短视频平台，昵称为“西藏冒险王”，网友则称呼他“冰川哥”。他曾受邀在2019年联合国气候变化大会上发言。
+2022-01-10
 
-王相军在西藏发现了中共不为人知的邪恶的秘密而被中共当局灭口！是什么样的惊天秘密而被中共当局灭口呢？
+翻译报道：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/85-edited.jpeg)图片来源：REUTERS/Henry Romero
+根据路透社于2022 年 1 月 10 日的新闻报道
 
-据传王相军发现了一线天的秘密通道，西藏到尼泊尔有个秘密的冰洞！他通过这冰洞到达了尼泊尔一个神秘地方，据当地尼泊尔人介绍一年有几千人来到这，发现从来只有外国人坐直升机进出，一年到头进来的几千没有一个人能活着出来！再结合郭文贵先生关于西藏中共非法买卖器官的爆料，不得不让人怀疑王相军因知道了器官活体移植的惊天秘密被中共杀人灭口！
+墨西哥城（路透社）– 墨西哥总统奥夫拉多尔（Lopez Obrador）周一宣布，他已第二次感染新冠病毒，并表示他患有轻度病症，并将继续隔离工作，直到康复。
 
-中共从来不把中国人民当人来看，为了金钱或别的不可告人目的，他们会不择手段，当然包括买卖活体器官这种反人类罪行，中共简直邪恶至极！只有加入新中国联邦才是正道，让我们一起行动起来，将中共这个邪恶组织摧毁消灭……
+去年1月，68岁的奥夫拉多尔的新冠病毒检测呈阳性，他在周一上午的新闻发布会上听起来声音嘶哑，这促使他说他将在当天晚些时候接受检测。
 
-信息来源：[**王相军案意外曝光中国产业黑幕**](https://www.youtube.com/watch?v=8prb2OdIgnM)
+奥夫拉多尔在一条推文中说：“尽管症状轻微，但我会保持隔离，只会做办公室工作和虚拟沟通，直到康复。”
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+墨西哥官员表示，这位左翼领导人曾于2013年心脏病发作。他曾吸烟，也患有高血压，但他之前的新冠病毒感染率很轻。奥夫拉多尔于2021年12月7日接受了阿斯利康疫苗加强针注射。
+
+奥夫拉多尔补充说，目前内政部长洛佩兹（Adan Augusto Lopez）将在每天上午的新闻发布会和其他官方行动中接替总统。
+
+批评人士抨击这位墨西哥领导人处理冠状病毒大流行的方式，辩称他在卫生紧急情况的早期阶段淡化了其严重性。
+
+除了在飞机上，他也很少在公共场合戴口罩，墨西哥对进入该国的旅行者施加的限制相对较少。
+
+然而，他一直非常坚持公众需要接种病毒疫苗，墨西哥城几乎所有成年人口都至少注射了两针疫苗。
+
+随着欧米克隆变种的传播，墨西哥的感染率正在激增，一些最陡峭的上升发生在坎昆和洛斯卡沃斯等海滩度假胜地的州，受到美国和更远地区的游客的欢迎。
+
+与其他国家相比，墨西哥进行的检测相对较少，周六打破了每日新冠病毒感染记录，记录了30,671例新病例。
+
+来源链接：
+U.S. News: Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’. [https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp)
+
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
