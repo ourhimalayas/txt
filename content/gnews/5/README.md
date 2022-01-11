@@ -2,39 +2,58 @@
 ---
 
 
-## 托卡耶夫与普京举行电话会谈
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846509/)
+## 【樱花深度报道】独家披露：加拿大军官呼吁对武汉军运会的零号“新冠病毒”爆发进行调查（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846539/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/ITDyPT8giwQVovHPLO5Yr8yEzC-3YRJh6uM7j-rjO48.jpg)
-《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
+编译：东京樱花团/Hopkins
 
-哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
+【编者按】2019 年 10 月在武汉举办了世界军人运动会，运动会期间和运动会以后大量的参赛运动员和工作人员出现了和covid-19相类似的病例，而此时离北京当局正式确认的第一例covid-19确诊病例12 月 8 日整整提前2个月。最近一位参加军运会的加拿大军官担心自己在中国正式承认该病毒大流行两个月前处于 Covid 的“零号地”，他要求对那里可疑的疾病爆发进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-776.png)（图片说明）2020 年初，大流行的消息一传出，许多运动员就开始相互讨论他们是否是新病毒的早期受害者。图：武汉世界军人运动会开幕式
+2020 年初，大流行的消息一传出，许多运动员就开始相互讨论他们是否是新病毒的早期受害者。
 
-托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
+然而，尽管军事医生提出了担忧，但没有进行抗体血清学（血清）测试。
 
-托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
+1 月 22 日，加拿大武装部队外科医生安德鲁·唐斯少将（Major-General Andrew Downes）发了一份备忘录，告诉参加选手他们在武汉感染新冠病毒的风险“可以忽略不计”，因为他们“早在病毒开始传播之前”就离开了这座城市.
 
-新闻链接：
-1:[https://www.inform.kz/cn/article\_a3767662](https://www.inform.kz/cn/article_a3767662)
-2:[https://big5.sputniknews.cn/20220108/–1036998406.html](https://big5.sputniknews.cn/20220108/--1036998406.html)
+加拿大武装部队表示，在奥运会举行时，人们并没有意识到这种病毒，“在这群人中没有发现任何 Covid-19 病例”。
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+然而，直到 2020 年 1 月，加拿大才进行这种疾病的检测，因此参与者在返回时没有接受检查。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+举报人说，在唐斯少将的备忘录之后，公共事务部发出一封电子邮件，命令他们不要公开谈论他们的担忧。他承认不服从这些命令感到不舒服，但他认为他现在有公开发表意见的义务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-777.png)（图片说明）中国军人运动员参加2019年武汉世界军人运动会开幕式
+世界卫生组织顾问杰米·梅茨尔（Jamie Metzl）表示，虽然无法确认军运会是否是一场早期的超级传播活动，但跟进此类线索至关重要。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+他说，在我们知道这场可怕的危机是如何开始的之前，不把每一块石头都翻过来是不明智和弄巧成拙的。 “得知没有对大流行的起源进行全面的国际调查，大多数人都会感到震惊。这是不可接受的，让整个世界和子孙后代处于危险之中。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+去年 1 月，美国国务院表示，情报报告显示，武汉病毒研究所的研究人员“在 2019 年秋季生病”，其症状“与 Covid-19 和常见的季节性疾病一致”，尽管后来乔·拜登（Joe Biden）总统下令进行的审查结果是关于病毒起源尚无定论。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+正如《星期日邮报》于 2020 年 5 月首次报道的那样，这位加拿大军官的故事与来自法国、意大利、卢森堡和瑞典的一些运动员声称他们在比赛中感染了病毒的说法相吻合。英国没有参加世界军事运动会。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+德国排球运动员杰奎琳·博克（Jacqueline Bock）说，她和一些队友在武汉病倒了。她补充说。 “我从未感到如此不适。要么是重感冒，要么是 Covid-19。我认为是 Covid-19”。
 
+意大利击剑手马泰奥·塔利亚里奥尔（Matteo Tagliariol）说，他在武汉公寓里的许多人都出现了与 Covid-19 相同的症状后，他出现了高烧、剧烈咳嗽和呼吸困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-778.png)（图片说明）图：2019年第七届世界军人运动会在武汉举行的标志牌
+一位匿名运动员在军运会后不久告诉记者，281名法国参赛者中有“一些”生病了。 31 岁的五项全能运动员亿隆迪埃·克劳佛（Elodie Clouvel）后来说，她和她的搭档 瓦伦提·贝劳（Valentin Belaud）都病了。
 
+官方的说法是，这些报道是高度投机的，没有确凿的证据支持。
+
+塔利亚里奥尔的说法后来受到队友的质疑，而瑞典五项全能选手梅丽娜·韦斯特伯格（Melina Westerberg）说，虽然她的几名队员在军运会上生病了，但他们的病毒检测结果为阴性。 “这只是一个巧合。”
+
+军运会结束后，美国运动员返回全国200多个军事基地。在 2020 年 3 月结束之前，其中 63 人确诊感染。
+
+试图与军运会建立任何联系的共和党国会议员没有收到他们发给政府高级官员的信件的答复。但拜登上周签署的一项法律包括披露武汉感染人数的授权。
+
+具有讽刺意味的是，中国政府指责美国军队在军运会上将新冠病毒带到武汉，这是虚假宣传活动的一部分，目的是转移人们对其隐瞒数据的注意力。
+
+作者： IAN BIRRELL/《星期日邮报》
+
+信息来源：
+
+[**REVEALED: Canadian military officer calls for a probe into a ground zero ‘Covid’ outbreak at Wuhan forces games TWO MONTHS before world was alerted to the ‘mysterious new illness’**](https://www.dailymail.co.uk/news/article-10382127/Canadian-military-officer-calls-probe-ground-zero-Covid-outbreak-Wuhan-games.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
