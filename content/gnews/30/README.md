@@ -2,20 +2,13 @@
 ---
 
 
-## 北韩怎么变成家天下的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847335/)
+## Peter McCullough医生：已经有上万人死于新冠疫苗
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1847422/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+我们了解到死亡人数超过一万人。50%的死亡发生在接种后48小时内，80%的死亡发生在一周内。他们看上去处于基本健康状态，然后去了趟疫苗中心，之后在48小时内死亡。所以这与接种疫苗的时间有巨大关联性。
 
-1月1日，郭文贵先生在GTV大直播指出：
-
-北朝鲜借鉴希特勒，好莱坞电影和弗洛伊德的书等，把金日成、金正日及白头山传奇化，以共产主义最擅用的手段，利用绝大多数人的自私、懦弱的心理，减少国民学习和了解世界的机会，让国民拼命工作，疲于奔命，把国民变成可以任意摆弄的动物，达到行为统一、思想统一，建立了独裁的一家天下。
-
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+From（12/20/2021)
+[https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html](https://rumble.com/vr4iai-dr.-mccullough-covers-near-2-years-of-c19-with-brannon-hose.html)
 
  
 
