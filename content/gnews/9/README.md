@@ -2,52 +2,38 @@
 ---
 
 
-## 魁北克省1月8日星期六发生大规模抗议示威活动——主流媒体却停止了系统地报道
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1845921/)
+## 针下亡魂｜美国 65 岁著名男演员接种疫苗一个月后离奇死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1845964/)
 
-编译及评论：16626
-魁北克省发生大规模抗议示威——抗议者聚集在蒙特利尔，第一集（圆成农场16626制作）![](https://assets.gnews.org/wp-content/uploads/2022/01/image-764-edited.png)图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日
-**抗议示威活动的标语牌侮辱和冒犯了我们**
+**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf) ）**
 
-蒙特利尔日报（丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日）针对魁北克省1月8日（星期六）发生大规模抗议示威活动发表题为《未接种疫苗者为10%》的评论文章指出，主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
+美国影视兼单口喜剧演员鲍勃·萨吉特（Bob Saget）1月9日下午被发现陈尸于奥兰多一间酒店的房间内，警方排除了他杀、吸毒等外在原因后，初步判定萨吉特因身体不明原因导致死亡。就在一个月前，他刚刚接种完 COVID-19 加强剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美國-65-歲著名男演員接種疫苗一個月後離奇死亡.jpg)
+今年 65 岁的萨吉特因在情景喜剧《Full House》（《满屋》）中饰演单身父亲丹尼·坦纳（Danny Tanner）而闻名。他的突然离世震惊了全世界的粉丝，因为就在一天前，他还在佛罗里达州的一个喜剧节目中贡献了精彩的表演。不料翌日下午，就被发现死在了丽思卡尔顿酒店的房间内。
 
-**愤怒**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xSagett.jpg.pagespeed.ic_.74NhJMnWLK.jpeg)图片来源：当事人推特
 
-报道中写道：显然，他们（抗议示威活动的人）恐惧比他们的愤怒要少。他们的自由比我们的大。当我们看到他们示威时，我们很想相信，除非我们对他们使用身体暴力，否则没有什么能阻止他们。然而，这是我们这个社会所拒绝的。
-
-我们能逮捕他们（抗议示威活动的人），把他们关在临时建造的卫生监狱里吗？我们是否要给他们下药以便成功地给他们注射吗？我们是否应该在独裁统治极权主义国家中找到答案吗，就像在中共国或北朝鲜？
-
-当然不是。我们将冒着超越民主界限的风险。我们需要想象力和智慧。我们知道，在西方的医学界，一些医生正在严重质疑为未接种疫苗的COVID患者提供护理的必要性？
-
-但我们是讲文明的人。（我们建议）主流媒体可以停止系统地报道他们的小型公众集会，这些集会的标语牌侮辱和冒犯了我们。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-765-edited.png)**图片来源：TVA新闻，TVA NOUVELLES， 2022 年 1 月 8 日**
-**其他相关报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-766-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-日前，TVA新闻（TVA NOUVELLES，Agence QMI， 2022 年 1 月 6 日）发表题为《反对卫生措施的抗议者聚集在蒙特利尔》的文章报道，数百名示威者参加了周六下午（1月8日）在蒙特利尔老城举行的反对卫生措施的集会。示威者打着“我们的自由是必不可少的”，“自由必胜”等标语。
-
-示威者中有加拿大人民党领袖马克西姆·伯尼尔 （Maxime Bernier）自大流行开始以来就积极参加此类集会。伯尼尔先生在他的推特账户上发布的一段视频中说道：“这里有很多人，他们为自由而战，他们敢于对勒戈（魁北克省长François Legault）和任何侵犯我们权利和自由的暴君说不，我们将战斗到胜利的那一刻，自由最终总会胜利。”反疫苗活动家弗朗索瓦·阿马莱加（François Amalega）也参加了集会。魁北克 Pro Choix 团体也是 1 月 1 日在魁北克省长驻蒙特利尔的办公室前举行的抗议宵禁的示威集会的组织者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-767-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-另外，魁北克省战略传播顾问（Expert-conseil en communication stratégique）让·拜尔拉贡（Jean Baillargeon）在TVA新闻（TVA NOUVELLES, 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。拜尔拉贡在文章中提议将筛查未接种疫苗的人作为首要工作。只有这样才能平息那些已经完全接种但处于长达两年封锁状态的人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。拜尔拉贡还提到，魁北克省政府很快会针对未接种疫苗的人群采取进一步措施。一些政客提议针对医疗费用征收“疫苗税”。他最后提议，我们应该参照一些国家的方法，比如新加坡和奥地利，要想结束对90%人口的大范围限制，我们先限制（10%）未接种疫苗的人。例如在所有公共服务中都要求出示疫苗接种护照，如果他们不遵守这个规则就对他们处以罚款；未接种疫苗的人如果被感染并住院，应当向他们收取住院医疗费用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-768-edited.png)视频截图：Québec Pro Choix Montréal 08 janvier 2022/YouTube
-**视频资料**
-
-最后，文章编译及评论人提醒读者，有关魁北克省1月8日星期六发生大规模抗议示威活动的视频资料可以在视频[Québec Pro Choix Montréal 08 janvier 2022](https://www.youtube.com/watch?v=-frZut0SbaU)中找到（本段下方视频）。相应的中文注释的视频资料，也将在这篇文章的后续文章中陆续发布。
+橙县治安办公室发公告指，警方未发现有任何他杀或吸毒等迹象，怀疑是身体原因导致的死亡。
 
 
-Québec Pro Choix Montréal 08 janvier 2022, 作者 [Bob 333](https://www.youtube.com/channel/UCj4c1QIQR4y56hTcOTQbz8A)
-另外，文章编译及评论人还提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的人一定要更加小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
 
-**参考资料及图片来源**：
-
-1. 蒙特利尔日报，Le Journal De Montreal，丹尼斯·庞巴迪，DENISE BOMBARDIER，2022 年 1 月 10 日星期一上午 5:00，1-0 pour les non-vaccinés. [https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines](https://www.journaldemontreal.com/2022/01/10/1-0-pour-les-non-vaccines)
-2. TVA新闻，TVA NOUVELLES，Agence QMI，2022 年 1 月 8 日，Des manifestants contre les mesures sanitaires réunis à Montréal. [https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal](https://www.tvanouvelles.ca/2022/01/08/des-centaines-de-manifestants-contre-les-mesures-sanitaires-reunis-a-montreal)
-3. Québec Pro Choix Montréal 08 janvier 2022. [https://www.youtube.com/watch?v=-frZut0SbaU](https://www.youtube.com/watch?v=-frZut0SbaU)
-4. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， «Dépistons et confinons les non-vaccinés». [https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
-5. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier. [https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
+> Earlier today, deputies were called to the Ritz-Carlton Orlando, Grande Lakes for a call about an unresponsive man in a hotel room. The man was identified as Robert Saget & pronounced deceased on scene. Detectives found no signs of foul play or drug use in this case. [#BobSaget](https://twitter.com/hashtag/BobSaget?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/aB1UKiOlmi](https://t.co/aB1UKiOlmi)
+> — Orange County Sheriff's Office (@OrangeCoSheriff) [January 10, 2022](https://twitter.com/OrangeCoSheriff/status/1480340290917609473?ref_src=twsrc%5Etfw)
 
 
-编辑发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+萨吉特 11月28日在推特发文指自己刚刚接种了COVID-19 加强剂。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xSaget.jpg.pagespeed.ic_.A4dsahTyXY.jpeg)图片来源：当事人推特
+
+来源｜[NYtimes](https://www.nytimes.com/2022/01/09/arts/television/bob-saget-dead.html)
+
+* * *
+
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)// | // [悲痛！又一名足球运动员在接种疫苗后死亡](https://gnews.org/zh-hans/1799912/)// | // [巴西 28 岁著名男歌手接种疫苗六周后死亡](https://gnews.org/zh-hans/1816652/)//
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

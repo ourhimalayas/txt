@@ -2,26 +2,20 @@
 ---
 
 
-## 中共国天津市爆发疫苗灾难
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845903/)
+## 美国首例：猪心脏成功植入人体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845961/)
 
-采编：文莱    翻译编辑：文所未闻
+撰稿：东京樱花团丨立正道
+![](https://lh4.googleusercontent.com/pTBa8AbtuudAuVpbrVmQfehhZ_bf-UTqCkyXLh-_z-MCXNVm14O4cAetUjTAMIBiV1wwGWTDWnq2v11Ul2VtFEwmogERbxdvhgugFgSx-fgujTdEEWQEueq45M7B9T47lwPLqdvY)[*图片来源*](https://img.ltn.com.tw/Upload/health/page/400S/2021/10/20/3710160_1_1.jpg)
+【华盛顿法新社时事】马里兰大学医学院10日宣布，已成功将转基因猪心脏移植到人类体内。外科医生巴特利·格里菲斯博士强调，“我们已经采取措施克服移植器官短缺的危机。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-23-edited.jpg)图片来源：CTV
+移植于7日完成。患者是 57 岁的 David Bennett，他住在马里兰州，手术前卧床不起。手术前一天晚上，他说：“我可以选择死亡或接受移植。我想活下去。我不知道会发生什么，但这是我最后的希望。” 手术结束后，监测状态持续24小时。
 
+新闻来源：[**豚の心臓、人間に移植 成功と発表―米メリーランド大**](https://gunosy.com/articles/exoqL?s=s)
 
-据加拿大《CTV新闻》1月9日报道，在发现数起“奥密克戎”感染病例后，中共国天津市政府强行对其1400万居民进行大规模病毒核酸检测，并正为实施封城做准备。目前官方报告共有20多名包括儿童和成人的检测呈阳性。
-
-报道称，天津市离北京仅115公里。在距北京冬奥会开幕不到四周的时间里，各级政府对此次突发的疫情高度紧张。于此同时，在西安、禹州和郑州，疫情都变得更加严重，数千万民众因此被当局封锁在家中不准外出，人道灾难正在不断大面积涌现，而导致怨声载道，民不聊生。
-
-据GTV[文贵大直播]当天消息指出：和此前的西安一样，目前发生在天津的疫情，实际上就是全民接种“中共病毒”疫苗所导致的次生灾难。由于该疫苗本身就是病毒，因此疫情必然会在全国各地频繁爆发，并将持续成为中共暴政长期残酷奴役和统治其人民的借口和手段。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206](https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

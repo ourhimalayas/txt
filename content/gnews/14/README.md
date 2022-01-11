@@ -2,25 +2,25 @@
 ---
 
 
-## 强制接种是对加拿大宪章和自由的践踏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845879/)
+## 中共国天津市爆发疫苗灾难
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845903/)
 
-采编：青青   翻译编辑：文所未闻
+采编：文莱    翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-22-edited.jpg)图片来源：TSUN
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-23-edited.jpg)图片来源：CTV
 
 
-《多伦多太阳报》1月8日刊登评论文章称，尽管加拿大卫生部长日前宣称“各省及地区政府需要考虑并向所有人强制接种疫苗”，但此举不仅违反和践踏了该国《权利和自由宪章》，同时也难以被最终推广和实施。
+据加拿大《CTV新闻》1月9日报道，在发现数起“奥密克戎”感染病例后，中共国天津市政府强行对其1400万居民进行大规模病毒核酸检测，并正为实施封城做准备。目前官方报告共有20多名包括儿童和成人的检测呈阳性。
 
-文章指出，特鲁多的自由党正致力推行全民疫苗强制接种政策，但实际上，由于联邦政府难以强迫各省执行该任务，因此总理特鲁多寄希望于各地区政府来为其代劳。然而，目前已有部分省份包括艾伯塔省和萨斯喀彻温省已经对此明确表示拒绝。
+报道称，天津市离北京仅115公里。在距北京冬奥会开幕不到四周的时间里，各级政府对此次突发的疫情高度紧张。于此同时，在西安、禹州和郑州，疫情都变得更加严重，数千万民众因此被当局封锁在家中不准外出，人道灾难正在不断大面积涌现，而导致怨声载道，民不聊生。
 
-针对特鲁多此前曾公开宣称：“未接种疫苗的人是憎恶女性和种族主义者”的狂言，该文章对此抨击道：总理试图通过羞辱和霸凌未接种者来推行其强制疫苗接种政策的愚蠢言论不仅是极其危险的，还将因此挑起社会对未接种者的愤怒和仇恨，甚至将引起致命的族群冲突。
+据GTV[文贵大直播]当天消息指出：和此前的西安一样，目前发生在天津的疫情，实际上就是全民接种“中共病毒”疫苗所导致的次生灾难。由于该疫苗本身就是病毒，因此疫情必然会在全国各地频繁爆发，并将持续成为中共暴政长期残酷奴役和统治其人民的借口和手段。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接：[https://torontosun.com/opinion/columnists/lilley-mandatory-vaccinations-an-affront-to-charter-and-canadian-ideals](https://torontosun.com/opinion/columnists/lilley-mandatory-vaccinations-an-affront-to-charter-and-canadian-ideals)
+原文链接： [https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206](https://www.ctvnews.ca/health/coronavirus/china-s-tianjin-testing-all-14-million-residents-after-omicron-found-1.5733206)
 
  
 

@@ -2,42 +2,40 @@
 ---
 
 
-## 半年未发工资，阿富汗驻华大使辞职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846046/)
+## 墨西哥总统第二次感染新冠病毒，称症状“轻微”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1846060/)
 
-【雅典娜快讯】，紧贴时代脉搏
+2022-01-10
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/VJI5CZB34E6WQJ6KC.png)
+翻译报道：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/85-edited.jpeg)图片来源：REUTERS/Henry Romero
+根据路透社于2022 年 1 月 10 日的新闻报道
 
+墨西哥城（路透社）– 墨西哥总统奥夫拉多尔（Lopez Obrador）周一宣布，他已第二次感染新冠病毒，并表示他患有轻度病症，并将继续隔离工作，直到康复。
 
+去年1月，68岁的奥夫拉多尔的新冠病毒检测呈阳性，他在周一上午的新闻发布会上听起来声音嘶哑，这促使他说他将在当天晚些时候接受检测。
 
-图片来源：NDTV
+奥夫拉多尔在一条推文中说：“尽管症状轻微，但我会保持隔离，只会做办公室工作和虚拟沟通，直到康复。”
 
+墨西哥官员表示，这位左翼领导人曾于2013年心脏病发作。他曾吸烟，也患有高血压，但他之前的新冠病毒感染率很轻。奥夫拉多尔于2021年12月7日接受了阿斯利康疫苗加强针注射。
 
-整理报道：小鱼儿
-编辑：文泓
+奥夫拉多尔补充说，目前内政部长洛佩兹（Adan Augusto Lopez）将在每天上午的新闻发布会和其他官方行动中接替总统。
 
-据德国之声中文网1月10日报道，自2019年11月起担任阿富汗驻华大使的卡伊姆已宣布辞职。
+批评人士抨击这位墨西哥领导人处理冠状病毒大流行的方式，辩称他在卫生紧急情况的早期阶段淡化了其严重性。
 
-周一在推特上他表示，离职有许多原因，他不想多提，但留下了一张协助交接清单。内容披露，驻华使馆的员工已经多月未领工资，如今只剩一名接线人员负责联络事务。
+除了在飞机上，他也很少在公共场合戴口罩，墨西哥对进入该国的旅行者施加的限制相对较少。
 
-一封日期显示今年1月1日的信中还详细描述使馆财务状况称，过去六个月内没有收到喀布尔发来的薪资，因此在外交人员内部指派了一个委员会负责管理外交支出。“虽然我没有支付外交人员薪资，但发放了一笔金额协助他们支付在北京的开支。”
+然而，他一直非常坚持公众需要接种病毒疫苗，墨西哥城几乎所有成年人口都至少注射了两针疫苗。
 
-信中交代，截至1月1日还有10万美元在账户中，所有当地(中国)员工至2022年1月20日的工资都已结清。塔利班尚未指派新的驻外代表，目前这个政府也没有得到任何国家承认。
+随着欧米克隆变种的传播，墨西哥的感染率正在激增，一些最陡峭的上升发生在坎昆和洛斯卡沃斯等海滩度假胜地的州，受到美国和更远地区的游客的欢迎。
 
-在联合国，阿富汗前政府及塔利班的代表团都要求获得阿富汗的席位。去年年底，联合国安理会无限期推迟对此事的决定。
+与其他国家相比，墨西哥进行的检测相对较少，周六打破了每日新冠病毒感染记录，记录了30,671例新病例。
 
-参考新闻：[半年没工资 阿富汗驻华大使辞职](https://www.dw.com/zh/%E5%8D%8A%E5%B9%B4%E6%B2%A1%E8%96%AA%E6%B0%B4-%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E8%BE%9E%E8%81%8C/a-60380437)
+来源链接：
+U.S. News: Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’. [https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19?context=amp)
 
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
