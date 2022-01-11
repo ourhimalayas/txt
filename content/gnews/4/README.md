@@ -2,33 +2,20 @@
 ---
 
 
-## 美国CDC无法给出死于新冠病毒的具体数字
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1846910/)
+## 中共广电总局已清理38.39万个违规短视频账号
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1847061/)
 
-撰稿: 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-789.png)图片来自foxnews
-电台主持人巴克·塞克斯顿（Buck Sexton）在推特上写道：“CDC成功地获得了联邦政府中最无能、最无用、最腐败的三字母机构的称号，这是一个令人难忘的的成就。” 《拉斯穆森报告》在其评论中称CDC的答复非常糟糕。 人们想知道数据何时发布，是因为他们认为这些数据可以被用来佐证全国范围内的封锁和更严格的措施是否合理。
+作者：德国纽伦堡正义农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/01/短视频治理.jpeg)封面来源：网络图片
+新华社微博2022年1月11日，记者从广电总局获悉，中共国家广播电视总局自去年10月以来，持续督导抖音、快手等10多家用户规模大、应用软件使用频率高的短视频平台，持续清理违规账号38.39万个，违规短视频节目102.40万条。一大批“伪正能量”节目、借“网红儿童”牟利账号、“低级红、高级黑”内容得到清理，**违规传播未经引进境外视听节目**问题得到有效遏制，互联网电视开展短视频业务得到规范引导。
 
-Eglise医生在GTV的一期访谈节目中曾经提到，2021年美国关于流感的统计数字达到了历史新低，几乎为零，这一反常的现象让人怀疑美国故意将普通流感和新冠的数字混淆，企图用巨大的确诊人数来恐吓人们去打新冠疫苗。这跟CDC把因新冠致死和因潜在疾病致死数字混为一谈的伎俩如出一辙。
+中共20年前被允许入世，就是一个魔鬼被放出地狱，西方的先进和富足不能让一个魔鬼变得更好，只会让魔鬼变得更加贪婪和有破坏性。特别是让一个魔鬼掌握了现代科技，尤其是还让其掌握了互联网技术，那么“网络媒体”成为其“谎言加暴力”最有力载体就成了必然。“网络媒体超限战”被中共这个魔鬼用的出神入化，结果大家也是都有目共睹。全世界主流媒体、全中共国官媒，还在帮助中共涂脂抹粉，还在继续欺骗全人类。
 
-链接：[CDC Director Walensky fails to disclose how many deaths were ‘from’ COVID-19: ‘Data will be forthcoming’](https://www.foxnews.com/media/cdc-director-walensky-distinctions-covid-related-deaths-data-forthcoming)
+新中国联邦、爆料革命、七哥的出现，GTV、GNEWS、GETTR的出现，就是黑云压顶下的那道闪电、就是伸手不见五指的黑夜下的一点烛火，撕开中共这个魔鬼部下的天罗地网、点亮人们心中的那点希望。这是对中共最致命的一击，因为人们一旦了解了真相，中共灭亡也就是时间问题。中共害怕了，尤其是境外视听节目最让中共恐惧，境外视听节目不就是GTV、GNEWS、GETTR吗？中共清理的越狠，老百姓越想知道发生了什么，“防民如防川，防公共舆论比防川还难”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+新闻来源：🔗[广电总局开展短视频专项治理取得实效](http://www.news.cn/politics/2022-01/11/c_1128252573.htm)
 
-编辑：DM
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
+*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
 
  
 

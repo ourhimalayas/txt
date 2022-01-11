@@ -2,33 +2,19 @@
 ---
 
 
-## “脸书”将强制员工接种加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846985/)
+## 三十年前西方给中共的三大警告——不幸发生
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847075/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-33.png)Source： www.businessinsider.co.za
-编译：Lish
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-拥有Facebook、Instagram、WhatsApp和虚拟现实公司Oculus的Meta公司将于3月28日全面重新开放其办公室。然而，只有接种完加强针的员工才能返回工作场所。员工将必须出示证据，证明他们接种了新冠疫苗的加强针。
+1月1日，郭文贵先生在GTV大直播指出：
 
-该公司的一位发言人说，“鉴于加强针有效性的证据，我们对疫苗接种的要求扩大到接种加强针”。Meta公司此前执行了类似的强制规定，要求所有在职员工都要接种两剂新冠疫苗。
+西方在三十年前关于中共国,就给过三大警告:1.中共一定要小心环境污染会给中国带来灾难;2.中共国的计划生育会把人类拖进人口大劫难;3.一个没有信仰的十几亿人口的大国,他们越是强大世界就越危险。如今这三大警告一一展示在世人面前。所幸新中国联邦人是清醒的，我们逃离了这三个魔咒。
 
-Facebook跟随其他美国公司的步调，强制要求员工接种加强针。虽然美国疾病控制和预防中心还没有改变 “完全接种 “的定义，但它在上周鼓励美国人民紧跟病毒的 “最新 ”保护。五角大楼上个月也表示，仍然可能强制要求士兵接种加强针。
-
-关于是否需要将新冠加强针作为所有人的必修课的争论一直存在。几位备受瞩目的美国政界人士都接种了三针疫苗，最近他们的新冠病毒检测结果呈阳性，进一步助长了这场争论，同时似乎也为强制接种疫苗的反对者提供了论据。五角大楼主任劳埃德·奥斯汀是本月最新检测出阳性的美国政客之一，他在10月份接种了加强针。然而，他辩称，如果他没有接种三针，他的病情可能会比现在糟糕。
-
-纽约民主党女议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）也在秋季接种加强针， 但周日新冠检测呈阳性，据说正在家里从病毒及其症状中恢复。
-
-参考链接：[Facebook mandates Covid boosters — RT World News](https://www.rt.com/news/545637-facebook-mandates-covid-boosters/)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
