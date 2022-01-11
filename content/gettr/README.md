@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/11/2022 2:38 AM (UTC)`
+
+1/09/2022 Miles Guo: Zeng Qinghong is the real master of the CCP’s politics. He has a deep understanding of the anthropogeography of China and supernatural powers. His insight of political rivals is unparalleled within the CCP. Since the death of Mao Zedong, Zeng has been the sole representative to worship the Kunlun Mountains in person, on behalf of the CCP.<br/><br/>1/09/2022 文贵直播：曾庆红是中共的政治高手，他对中国的地理人文了如指掌，不但深谙风水和奇门遁甲，还对政治对手有深度了解。毛泽东死后，曾庆红是唯一代表中共去昆仑山祭拜的人<br/>
+![img](https://media.gettr.com/group20/getter/2022/01/11/02/ab3f5f0b-d5ea-8038-d3d5-f4a312246dd8/out.jpg)
+
+---
+
 `@miles 1/11/2022 12:33 AM (UTC)`
 
 1/10/2022 Miles Guo’s GETTR: The CCP’s rogue rule is never intended for the benefits of the Chinese Lao Baixing. The past 1000 days have turned the CCP from clamoring for world domination to a poor situation where eating grass is just fine. Soon, there will be a major breakthrough in stopping the COVID vaccination in the US and Europe. Fellow fighters, please take care of yourself and your family!<br/><br/>1/10/2022 文贵盖特：中共的流氓统治从来不是为了百姓；过去一千天让中共从叫嚣称霸世界变为能吃草就不错的境地；美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体！<br/>
@@ -152,13 +159,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: The intelligence regarding the CCP’s National Security Commission is within the reach of the New Federal State of China. That’s why only we can give the world advance warning of the CCP’s evil plans to be implemented in places like Kazakhstan and Afghanistan. However, these warnings were often not taken seriously due to people’s fear of death<br/><br/>1/09/2022 文贵直播：新中国联邦掌握了中共国安委的情报，因此只有我们能向全世界提前预警中共针对哈萨克斯坦、阿富汗等地的邪恶计划，但人们往往因为贪生怕死而不把它当回事<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/10/03/97742fee-4fba-da8a-d8a4-0e1e5eefbc27/out.jpg)
-
----
-
-`@miles 1/9/2022 8:47 PM (UTC)`
-
-1月9号：喜马拉雅七座山峰就是我们的👉👉👉Noah‘s Ark。    诺亚方舟！🔥🔥🔥🔥🔥💦💦💦💥💥💥💥💥❤️❤️❤️❤️❤️❤️🦅🦅🦅🦅🦅🦅🦅🦅🌽🌽🌽🌽🌽🌽💥💥💥💥💥💥
-![img](https://media.gettr.com/group38/getter/2022/01/09/20/4c48ce75-9083-e485-629f-147cb7fc5dbe/out.jpg)
 
 ---
 
