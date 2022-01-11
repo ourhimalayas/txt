@@ -2,35 +2,33 @@
 ---
 
 
-## 01/11每日播报｜荒唐！辉瑞将推出奥米炕疫苗
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1846887/)
+## “脸书”将强制员工接种加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846985/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61dd4dfea6dfdd6031526192)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-33.png)Source： www.businessinsider.co.za
+编译：Lish
 
-**[2022-01-11](https://gtv.org/broadcast/watch/61dd4dfea6dfdd6031526192)**
+拥有Facebook、Instagram、WhatsApp和虚拟现实公司Oculus的Meta公司将于3月28日全面重新开放其办公室。然而，只有接种完加强针的员工才能返回工作场所。员工将必须出示证据，证明他们接种了新冠疫苗的加强针。
 
-据《福克斯》新闻1月10 日报道，辉瑞公司打算在3月前，生产出专门针对奥米炕和其他循环变体的所谓中共病毒COVID-19疫苗。
+该公司的一位发言人说，“鉴于加强针有效性的证据，我们对疫苗接种的要求扩大到接种加强针”。Meta公司此前执行了类似的强制规定，要求所有在职员工都要接种两剂新冠疫苗。
 
-辉瑞公司的一位发言人表示，辉瑞已经开始了根据奥米炕的序列定制的DNA模板的工作，这可能是推进辉瑞疫苗变种版本过程中的关键一步。
+Facebook跟随其他美国公司的步调，强制要求员工接种加强针。虽然美国疾病控制和预防中心还没有改变 “完全接种 “的定义，但它在上周鼓励美国人民紧跟病毒的 “最新 ”保护。五角大楼上个月也表示，仍然可能强制要求士兵接种加强针。
 
-之前，这家制药巨头曾表示，如果发现其目前的BNT162b2疫苗的第三剂量不能抵御奥米炕变体或其他未来变体，它将能够在大约100天内开发和生产针对奥米炕变体的定制疫苗，但须经监管部门批准。
+关于是否需要将新冠加强针作为所有人的必修课的争论一直存在。几位备受瞩目的美国政界人士都接种了三针疫苗，最近他们的新冠病毒检测结果呈阳性，进一步助长了这场争论，同时似乎也为强制接种疫苗的反对者提供了论据。五角大楼主任劳埃德·奥斯汀是本月最新检测出阳性的美国政客之一，他在10月份接种了加强针。然而，他辩称，如果他没有接种三针，他的病情可能会比现在糟糕。
 
-辉瑞公司首席执行官阿尔伯特·布拉（Albert Bourla）周一在接受CNBC采访时首次宣布了3月份的时间表。
+纽约民主党女议员亚历山大·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez）也在秋季接种加强针， 但周日新冠检测呈阳性，据说正在家里从病毒及其症状中恢复。
 
-据报道， 本月早些时候，辉瑞和生物公司（Pfizer and BioNTech）获得了美国食品和药物管理局的批准，将其中共病毒疫苗加强剂的紧急使用授权扩大到12岁以上的个人。美国食品和药物管理局还将注射第二剂和加强剂之间的间隔时间从至少6个月减少到至少5个月。
+参考链接：[Facebook mandates Covid boosters — RT World News](https://www.rt.com/news/545637-facebook-mandates-covid-boosters/)
 
-而英国卫生安全局（United Kingdom’s Health Security Agency  ）12月31日的一项研究发现，辉瑞公司或莫得纳公司的中共病毒疫苗对无症状感染的有效性在第二针后的20周内降至10%左右。
+发布：Lish
 
-根据美国疾病控制和预防中心的数据，超过7450万完全接种的美国人已经接受了中共病毒疫苗的加强剂量。截至12月29日，辉瑞和生物公司向低收入和中等收入国家交付了10亿剂中共病毒疫苗。这两家公司预计将在2022年向这些国家再提供10亿剂疫苗。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-秘翻新闻主编 Grace 编译报道
-
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

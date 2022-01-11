@@ -2,34 +2,60 @@
 ---
 
 
-## 疫苗灾情｜巴西 36 岁新闻主播接种疫苗一周后在直播间倒下
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1845655/)
+## 新西兰财经G乐部2022年1月11日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1846396/)
 
-**撰文/ 疫情关注组｜发布日期/ 11/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+采集整理：蚂蚁的城堡
 
-巴西电视台“Jornal das 7”的节目主持人，今年 36 岁的拉斐尔·席尔瓦（Rafael Silva ）在1月3日当天的新闻播报期间突然倒下，距离他接种 COVID-19 加强针仅一周。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/巴西36-歲新聞主播接種疫苗一週後在直播期間倒下.jpg)
-席尔瓦 12月28日在个人社交平台上传照片，庆幸自己顺利接种完第三剂 COVID-19 疫苗。他写道：
+**提纲：**
 
+1、中共广东高院终审裁定：驳回康美药业原董事长马兴田上诉，维持原判
 
-> 第三剂疫苗万岁！ 
-> 对于没有这个机会的人，我感到很遗憾。
->  疫苗拯救生命!
+2、德意志银行与中邮理财联手、瑞银加大对中共国投资、法国巴黎银行申请证券牌照
 
+3、境外机构持有境内债券余额破4万亿元大关，三年翻一番
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xRafael-silva.jpg.pagespeed.ic_.CmJ4lvDO8G.jpeg)图片来源：当事人推特
+4、三届NBA总冠军安德烈·伊戈达拉成为最新一名接受加密货币工资的运动员
 
-不料，一周后，他就倒在了新闻直播间的现场，据该电视台的制片人表示，事发后，席尔瓦被紧急送往医院救治。另据[当地媒体 1月10日报道](https://blogdomadeira.com.br/geral/2022/01/10/jornalista-rafael-silva-da-tv-alterosa-se-recupera-apos-mal-subito-ao-vivo/)，席尔瓦已经离开重症监护室，目前健康状况稳定。
+**正文**
 
-以下是席尔瓦播报新闻时倒下的影片，当时，电视台迅速切换画面，各媒体亦随之撰文辟谣，避免公众会将事件与疫苗联系到一起。
+**1、中共广东高院终审裁定：驳回康美药业原董事长马兴田上诉，维持原判**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-779.png)
+证券网信息：广东高院对康美药业原董事长马兴田操纵证券市场案依法作出终审裁定，驳回上诉，维持原判。马兴田因操纵证券市场罪、违规披露、不披露重要信息罪、单位行贿罪，被判处有期徒刑十二年，并处罚金120万元；康美药业原副董事长许冬瑾等其他11名被告人分别被判处有期徒刑六年至六个月，并处罚金。
 
-来源｜[metropoles](https://www.metropoles.com/entretenimento/televisao/video-reporter-do-sbt-tem-mal-subito-e-desmaia-ao-vivo-durante-jornal)
+参考链接 [https://news.cnstock.com/news,bwkx-202201-4810024.htm](https://news.cnstock.com/news,bwkx-202201-4810024.htm)
 
-* * *
+**2、德意志银行与中邮理财联手、瑞银加大对中共国投资、法国巴黎银行申请证券牌照**
+![报道：德意志银行与邮储银行商谈在中国成立合资理财公司- 华尔街日报](https://images.wsj.net/im-448368?width=1280&amp;size=1.33333333)
+「1」合资理财公司加速落子，德意志银行与中邮理财正在洽谈设立合资理财公司。若这两大机构“联姻”成功，将诞生第五家由国有大行理财子公司和外资共同设立的合资理财公司。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//｜//[法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](https://gnews.org/zh-hans/1647934/)//｜//美[国 51 岁研究护士听证会上为所有疫苗受害者发声“我们希望寻找真相，结果一无所获”](https://gettr.com/post/pg7s9f2179)//｜//[好莱坞 23 岁女模特公开哭诉饱受疫苗副作用折磨](https://gnews.org/zh-hant/1638611/)//｜//[美国 13 岁女孩接种疫苗后瘫痪（附影片）](https://gnews.org/zh-hans/1620514/)//｜//[美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）](https://gnews.org/zh-hant/1627802/)//｜//[新西兰 36 岁男子接种疫苗三周后心脏病发作 冀助其他受害者一起活下去](https://gnews.org/zh-hans/1677208/)//｜//[48小时内又多两名足球运动员接种疫苗后发生呼吸困难](https://gnews.org/zh-hans/1749708/)//｜// [阿根廷国脚阿奎罗接种疫苗后致严重心脏病 今宣布退役](https://gnews.org/zh-hans/1756635/) //｜// [24 岁BYU篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结](https://gnews.org/zh-hans/1764032/) //
+「2」瑞银中国总裁金弘毅：将继续加大对中国市场的投入，并积极推进增持瑞银证券的股份，未来不排除100%控股的可能。
+
+「3」法国巴黎银行递交的《证券公司设立审批》材料已获得证监会受理，拟发起设立券商名称暂定为“法巴证券（中国）有限公司”。Wind数据显示，截至2021年三季度末，法国巴黎银行为南京银行第一大股东，持股比例近14%；2003年，法国巴黎银行与资产管理公司海通证券成立了海富通基金公司，目前持有海富通基金公司49%的股份。2019年9月，法巴银行成为首批获准可开展非金融企业债务融资工具A类主承销业务的外资金融机构，并在当年12月落地了第一单业务，这也是首批获得该项资格的两家外资银行之一。此前，法巴银行及汇丰等三家外资行，获批进行“境外企业熊猫债”主承销业务。
+
+财经G评：德意志银行与海航的关系、瑞银帮助盗国贼藏钱、法国巴黎银行与海通。如果没有郭先生几年的爆料，我们都不会你关注这类新闻。对外资机构仍是收买、利用、合作盗国！
+
+参考链接：[https://finance.sina.com.cn/money/bank/bank\_hydt/2022-01-11/doc-ikyamrmz4391327.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-01-11/doc-ikyamrmz4391327.shtml)
+
+[https://www.sohu.com/a/515661587\_260616](https://www.sohu.com/a/515661587_260616)
+
+[http://www.stcn.com/xw/sd/202201/t20220111\_4058996.html](http://www.stcn.com/xw/sd/202201/t20220111_4058996.html)
+
+**3、境外机构持有境内债券余额破4万亿元大关，三年翻一番**
+![外资买债大手笔！境外机构持有境内债券余额破4万亿元大关，三年翻一番！今年会有何新变化](http://u.thsi.cn/fileupload/data/Flashcms/2018/444164473_907c21a728512397dad02ee28732f730.jpg)
+1月10日，中共国人民银行上海总部发布数据显示，截至2021年12月末，境外机构持有银行间市场债券4.00万亿元，约占银行间债券市场总托管量的3.5%，环比增加近700亿元。境外机构持有境内债券突破4万亿元大关，持有规模较2018年底增长一倍以上，显示出近三年来外资流入中共国债券市场的高速增长。展望2022年的外资流入形势，不少分析认为，中共国债券市场对外资来说依然具较强吸引力，外资净流入仍会持续，但外资净流入节奏或在今年美联储收紧货币政策的大背景下面临一定的调整压力。
+
+参考链接：[https://www.stcn.com/xw/sd/202201/t20220110\_4058535.html](https://www.stcn.com/xw/sd/202201/t20220110_4058535.html)
+
+**4、三届NBA总冠军安德烈·伊戈达拉成为最新一名接受加密货币工资的运动员**
+![](https://n.sinaimg.cn/sports/crawl/59/w550h309/20200921/2266-izmihnt7137308.jpg)
+1月10日 周一下午，三届NBA总冠军、金州勇士队(Golden State Warriors)职业篮球运动员安德烈·伊戈达拉(Andre Iguodala)在推特上宣布，他将以比特币的形式领取他估计为264.7万美元年薪的一部分。此外，伊戈达拉还表示，他将向球迷发放价值100万美元的BTC，以提高比特币的采用率。据称，支付将由Block（前称Square)的Cash App促成。伊戈达拉加入了越来越多的名人、运动员、影响人士和政府官员的行列，他们也在做同样的事情。目前至少有7名NFL球员选择加密货币而不是现金工资。去年，迈阿密市长Francis Suarez和纽约市长Eric Adams表示，他们将用比特币支付工资，而Suarez则更进一步，将自己401(k)的退休储蓄投资于比特币。
+
+参考链接 ： [https://cointelegraphcn.com/news/3x-nba-champion-andre-iguodala-becomes-the-latest-athlete-to-receive-salary-in-crypto](https://cointelegraphcn.com/news/3x-nba-champion-andre-iguodala-becomes-the-latest-athlete-to-receive-salary-in-crypto)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
