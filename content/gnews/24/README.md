@@ -2,28 +2,27 @@
 ---
 
 
-## 2020民主党总统候选人加入盖特
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1845524/)
+## 马龙博士警告，中共国出血热病毒源于疫苗大规模接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845626/)
 
-撰稿：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-14.png)
-图片来源：CNN
+#### 素材整理：熊猫乱滚、文泓
+编辑：文泓
 
-盖特是一个真正自由言论的平台，当然也是一个不允许违法行为存在的地方。正是由于盖特的包容性，许许多多追求真相、爱好民主、法制、自由的全世界人士逐渐认识到此点，不断加入盖特大家庭。
-
-人们对事物有不同的观察角度，囿于各自的地位、立场而有着不同的观点，这是非常正常的。但世界绝大多数人都是向善的，是知善恶，辨是非的。面对世界性的生化战争，向善的人们自然会集聚在盖特平台，凝聚成伟大的力量，与世界恶势力做斗争。
-
-于是，我们看到了近期乔·罗根（Joe Rogan）的加入，看到了塔克·卡尔森（Tucker Carlson）的加入，但更为令人欣喜的是看到了2020年民主党总统候选人图尔西·加巴德 (Tulsi Gabbard)的加入。
-
-加巴德曾是夏威夷陆军国民警卫队少校。2012年，她当选为代表夏威夷第二选区的美国众议院议员。她是第一个信仰印度教的美国国会议员，也是第一个萨摩亚裔美国国会议员。
-
-在 2016 年总统大选期间，加巴德辞去了民主党全国委员会副主席的职务，以便支持伯尼·桑德斯，这使她成为少数在初选中支持佛蒙特州参议员而不是希拉里·克林顿的众议院民主党人之一。她也是2020年美国总统选举民主党初选候选人之一，是第一个尝试竞选美国总统的女性退伍军人。
-
-加巴德的加入，标志着盖特不但是世界保守派人士的自由言论的平台，也是进步派人士自由言论的平台，预示着盖特平台已经迎来了大发展的开端，迎来了世界向善力量的大团结开端。
-
-**新闻来源**：[https://gettr.com/post/pmfwpx30df](https://gettr.com/post/pmfwpx30df)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image012.png)图片来源：班农战斗室视频截屏
 
 
+当地时间1月10日，mRNA基因疫苗的发明者罗伯特·马龙博士(Robert Malone)现身班农战斗室节目，他警告说，一种来自共产主义中国的“类似埃博拉的出血热”超级病毒，他认为这可能是由大规模疫苗接种引起的病毒突变引起的。
+
+马龙博士强调，将运动员派往中共国参加2022年奥运会将是“疯狂的”，并补充说：“毫无疑问，当他们知道新冠病毒正在肆虐之时，在武汉，他们并没有拉上国际旅行的帷幕。”
+
+新闻链接：[‎Bannon’s War Room: Episode 1,549 – Covid Explosion In China Putting Olympics In Jeopardy (w/ Ben Harnwell, Frank Gaffney, Dr. Robert Malone, Tony Lyons) on Apple Podcasts](https://podcasts.apple.com/au/podcast/episode-1-549-covid-explosion-in-china-putting-olympics/id1485351658?i=1000547463034)
+
+发布：文泓
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

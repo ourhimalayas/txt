@@ -2,28 +2,26 @@
 ---
 
 
-## 马龙博士警告，中共国出血热病毒源于疫苗大规模接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845626/)
+## 【中日财经爆】恒大45亿元债券“延期兑付本息”再生悬念
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845665/)
 
-#### 素材整理：熊猫乱滚、文泓
-编辑：文泓
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-756.png)[图片来源](https://www.nownews.com/news/5380829)
+中国恒大旗下恒大地产周一(1月10日）晚间发布公告称，拟将该债券持有人会议投票时间延长至1月13日（周四）。恒大集团高达45亿元人民币的境内债券“20恒大01”能否顺利延期兑付回售本金和利息的悬念。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image012.png)图片来源：班农战斗室视频截屏
+上述持有人会议原定于1月7日-10日召开，主要议题是审议回售本金兑付和利息支付均延期半年的议案。恒大地产公告显示，通过深交所互联网投票系统投票的最新时间为1月7日9:15至1月13日15:00。
 
+尽管此前恒大已陆续出现美元债违约，但截至目前，其在境内债券兑付上尚未出现违约。
 
-当地时间1月10日，mRNA基因疫苗的发明者罗伯特·马龙博士(Robert Malone)现身班农战斗室节目，他警告说，一种来自共产主义中国的“类似埃博拉的出血热”超级病毒，他认为这可能是由大规模疫苗接种引起的病毒突变引起的。
+根据“20恒大01”债券本息兑付安排的议案，回售部分债券的兑付日拟从1月8日延至7月8日，回售以及未回售部分的付息日亦申请延至7月8日，上述事项的调整，不触发该期债相关违约责任。
 
-马龙博士强调，将运动员派往中共国参加2022年奥运会将是“疯狂的”，并补充说：“毫无疑问，当他们知道新冠病毒正在肆虐之时，在武汉，他们并没有拉上国际旅行的帷幕。”
+中国恒大周一晚间还曾公告称，为节约成本，已于2021年12月办理深圳卓越后海中心退租手续，搬迁至深圳自有物业办公；公司注册地未变，仍然在深圳。
 
-新闻链接：[‎Bannon’s War Room: Episode 1,549 – Covid Explosion In China Putting Olympics In Jeopardy (w/ Ben Harnwell, Frank Gaffney, Dr. Robert Malone, Tony Lyons) on Apple Podcasts](https://podcasts.apple.com/au/podcast/episode-1-549-covid-explosion-in-china-putting-olympics/id1485351658?i=1000547463034)
+消息来源：[中国恒大45亿元境内债券“延期兑付本息”再生悬念 会议投票时间延长三天](https://cn.reuters.com/article/evergrande-0110-mon-bonds-idCNKBS2JL047?il=0)
 
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

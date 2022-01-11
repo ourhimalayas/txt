@@ -2,23 +2,28 @@
 ---
 
 
-## “欢迎”哈萨克斯坦总统来华出席北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845644/)
+## 澳洲企业供应链中断只是“冰山一角”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1845703/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-753.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fq_70%2Fimages03%2F20220110%2Fa045a3853ba14ab0bf5506bed321b8e0.png&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Fzhihu%2F1469168.html&amp;tbnid=-cvEpjW6DCUF8M&amp;vet=12ahUKEwiY3PW036j1AhViGKYKHV7MApcQMygBegUIARCHAQ..i&amp;docid=Im0GSJfYjLg-RM&amp;w=500&amp;h=318&amp;itg=1&amp;q=%E2%80%9C%E6%AC%A2%E8%BF%8E%E2%80%9D%E5%93%88%E8%90%A8%E5%85%8B%E6%96%AF%E5%9D%A6%E6%80%BB%E7%BB%9F%E6%9D%A5%E5%8D%8E%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwiY3PW036j1AhViGKYKHV7MApcQMygBegUIARCHAQ)
-中共国外长王毅和哈萨克斯坦外长特鲁贝尔迪会谈时，强调他“欢迎”托卡耶夫总统出席北京冬奥会。王毅10日同哈萨克斯坦外长特鲁贝尔迪通电话，表示“欢迎托卡耶夫总统出席下月北京奥运会开幕式”。
+撰稿：云彩
+视频来自网络
+澳大利亚昆州布里斯班一家餐厅的老板大卫.弗林四处奔波，让他的餐厅保持应有的供应。
 
-根据中国外交部的公告，外长特鲁·威尔第也回应称，“北京奥运会是一项具有国际影响力的赛事”，并表示“哈萨克斯坦希望与中国一起进行筹备工作”。
+由于有多位员工感染COVID病毒，在家休息，他的黄金海岸餐厅 Rick Shores 已关闭数日。弗林先生说：“我们每天至少有一道菜没有供应，直接原因是供应问题。”他不得不经常地打电话给分销商，检查交货状态，同时自己备货以应对可能出现的供应延迟。
 
-在哈萨克斯坦，当许多受害者在镇压抗议活动中丧生时，中共国主席习近平致电托卡耶夫总统，称赞他“毅然采取了强有力的措施”。
+杰夫·戈登 (Jeff Godden) 的家族企业从事食品配送业务。主要是从大品牌食品制造商进货，然后配送到客户手里。服务范围包括餐厅，咖啡店，酒店，俱乐部和酒吧。
 
-信息来源：[中国　カザフスタン大統領の五輪出席を「歓迎」](https://news.yahoo.co.jp/articles/bc2876d622cef27c448034e4b0049bbe9ef3d5dc)
+他的家族企业拥有一个 6,000 米的仓库，运营 15 辆卡车，为大约 1,000 家酒店企业提供服务。但是他说：“从周二开始，我们有大约 45% 的司机休假，因为他们是密切接触者不得不待在家里。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
- 
+澳大利亚独立食品分销商首席执行官理查德·福布斯（Richard Forbes）表示，这种现象正在全澳洲蔓延。他的协会代表 250 家分销商企业，为大约 60,000 个澳大利亚餐饮场所以及医院、养老院、军事基地和监狱提供服务。他说，随着 COVID 病例的增加，员工短缺在各企业屡见不鲜。
+
+点评：看到一条新闻，在澳洲的一家餐厅已经开始使用机器人上菜。AI 时代正在慢慢地走进我们的日常生活。黑暗势力在策划疫苗灾难时，预见到大量人口会死亡，供应链会断裂，那么应对措施是什么？AI时代。
+
+参考资料：
+
+[澳洲企业供应链中断](https://www.abc.net.au/news/2022-01-07/covid-food-supply-chain-woes-hit-hospitality-businesses/100742134)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

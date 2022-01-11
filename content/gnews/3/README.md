@@ -2,44 +2,23 @@
 ---
 
 
-## 有声|金本位数字币未来将取代无锚法币和无锚数字币。喜币（HCN）将前途无量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1845735/)
+## 疫苗灾难正在席卷美国航空业
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1845794/)
 
-配音：香草山教育部 – Rose
+采编/编译撰稿： 自由法兰西         校对编辑，发稿：硫酸羟氯喹64
 
-
-
-![This image has an empty alt attribute; its file name is logo-s2.png](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-19-edited.jpg)图片来源：EXPOSE
 
 
+据英国《每日内幕》1月7日报道, 美国商业航空飞行员皮尔森近期在接受媒体采访时透露，“新冠病毒”疫苗接种引发的后遗症和人身伤害正在迅速席卷该国整个航空业。
 
-金银是全人类有史以来的全球通用货币。随著社会的发展，金银作为货币的弊端越来越严重：真假难辨，运输储存成本高难度大，支付不及时等。取而代之的是法币的金本位制。 
+报道称，大部分飞行员在接种该疫苗后都经历了严重的胸痛症状。皮尔森也不例外，他曾在接种后因为出现心脏房颤，而被紧急送院接受治疗。对此，该飞行员表示：疫苗也会是脑梗的主要原因，并将可能在飞行任务中因此引发航空灾难。
 
-历史上美元的金本位制，随著布雷顿森林体系的解体而放弃。主要原因就是美元超发而不受控制，美元的印钞与黄金的储备不成比例。导致无法兑现金本位的承诺。
+据悉，许多航空公司的飞行员都因害怕被当局解雇，甚至职业报复而不敢公开披露当前所出现的疫苗灾难。他们被迫忍着胸部和头部的病痛在继续着飞行工作。此外，由于拜登政府对航空业的疫苗强制接种规定，即使发生了以上疫苗伤害问题，大部分受害者也将毫无寻求补偿的途经。
 
-原文链接：[金本位数字币未来将取代无锚法币和无锚数字币。喜币（HCN）将前途无量](https://gnews.org/zh-hans/1842445/)
+* * *
 
-音频处理：喜山必胜Maverick
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+原文链接：[https://dailyexpose.uk/2022/01/07/us-pilot-says-his-colleagues-are-dropping-like-flies-with-crushing-chest-pain-post-covid-19-vaccination/](https://dailyexpose.uk/2022/01/07/us-pilot-says-his-colleagues-are-dropping-like-flies-with-crushing-chest-pain-post-covid-19-vaccination/)
 
  
 
