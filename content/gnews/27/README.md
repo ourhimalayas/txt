@@ -2,41 +2,40 @@
 ---
 
 
-## 中共病毒疫苗设计的目的就是为了造成渐进伤害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845372/)
+## 天津“软封城” 中共欲全力保北京但能保得住吗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1845421/)
 
-#### 翻译：Lish
-校对：枳实
-剪辑/字幕：蛮急
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-26.png)
+（图片来自网络）
 
-**字幕文本节选（英汉对照）**
+根据中共国官方消息，天津市1月10日新增了31例中共病毒确诊病例，另有10例无症状感染病例，并且确认有奥米炕社区传播病例。虽然当局尚未正式宣布封城，但根据目前网络信息，天津事实上已经进入“软封城”状态。
 
-And I’m just gonna tell you right now, the vaccines are designed, they are designed to do harm over time. So you will see the majority of the autoimmune diseases, the deaths, heart attacks, the majority of them, I believe will be in three years from the time you started the shots.
+据《大纪元》1月11日报道，天津市发现首例奥米炕（Omicron）社区传播病例后，当局在全市开展大规模核酸测试，同时对交通管道实施严控。分析人士认为，中共国现在正面临冬奥会和“二十大”的召开，当局“封城”一方面可能是为了维稳演练防控；另一方面也为控制人员往北京流动。
 
-我现在就告诉你，疫苗是被设计好的，会随着时间的推移而造成伤害。因此，你会看到大多数人会患自身免疫性疾病，死亡，心脏病发作，大部分的人（不良反应），我相信会在他们开始注射的三年内发生。
+据报道，天津当局1月7日通报了新增确诊病例，其中，多名阳性感染者为中小学生。受天津疫情影响，京津两地间的交通管控升级。
 
-But they are designed to do that. They don’t want you to see the liability between their shots and your diseases. So they’ve designed them to create auto immune processes where your own body will start attacking itself and destroying one cell after another.
+1月8日，天津市发出通告，严格管控措施，非必要不离津，同时严格管控进京通道。从1月9日到1月20日，天津所有陆路进京车票均已售罄或停售，天津航空也开始为涉及天津进出港的旅客办理退改服务。
 
-但他们的设计就是要做到这一点。他们不希望你看到他们的疫苗和你的疾病之间的关系。所以他们设计了这些针剂来创造自身免疫攻击过程，即你自己的身体将开始攻击自己，破坏一个又一个细胞。
+北京市于1月9日也发布通告，要求北京市人员非必要不去津，天津人员非必要不来京。
 
-And over time, as more and more cells are damaged, you will develop symptoms. And then those symptoms will be diagnosed as some disease state.
+截至1月10日，天津市已出现一个高风险区、6个中风险区。天津当局10日宣布全市已进行核酸检测，并报告检测出阳性感染者。
 
-而随着时间的推移，随着越来越多的细胞被损坏，你会出现症状。然后这些症状将被诊断为某种疾病。
+对于全市强制核酸检测，天津市民怨气颇大。有市民抱怨，检测现场人挨人地聚集在一起，如果有一个人感染，都全完蛋，这就是中共管控的结果。
 
-And then you’re going to go like this. Well, Doc now you say I have heart disease. Do you think it might have been linked to the shots I got five years ago?
+还有市民表示，现在天津市不出示核酸检测报告都不让去上班。然而大规模检测又造成系统崩溃，令市民无法及时拿到检测结果。
 
-然后你会问。好吧，医生现在你说我有心脏病。你认为这可能与我五年前打的那些疫苗有关吗？
+市民李先生说，他9日早上做的核酸，到现在还没有出检测结果。他认为可能是政府发现阳性病例直接拉走，然后研究对外可以通报多少病例，这就是政府的一种维稳手段。
 
-视频链接：[Vaccines are designed to do harm over time so that they can  get away with responsibility and liability](https://rumble.com/vqi1ad-breaking-news-with-dr-ardis-documents-you-must-have-asap.html)
+李先生分析认为，中共目前正面临冬奥会和二十大的召开，当局这么做的目的一是为了维稳演练防控；二是因为天津是北京的门户，以此控制大量人员往北京流动；三是疫苗的钱赚完了，现在开始赚核酸检测的钱了。
 
-发布：枳实
+一位要求匿名的免疫学专家近日对媒体表示，以目前的情况来看，天津疫情存在很大的不确定性。由于天津和北京之间每天都有大量的通勤者，如果控制不好可能会直接影响到北京，甚至影响到冬奥会。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共当局对于天津疫情也是如临大敌。中共卫健委副主任王贺胜率官员1月9日赴天津指导工作。被称为政坛“马屁精”的天津市委书记李鸿忠10日表态称：坚决落实习近平主席关于疫情防控的“重要指示精神”，以实际行动筑牢首都疫情防控“护城河”。
+
+然而，根据百度迁徙地图显示，1月1日-1月7日，天津迁出人口的目的地主要集中在北京、河北、山东、河南等省市。而在这7天中，除1月1日和1月2日外，迁出地占比最高的均为北京市。中共当局意欲力保北京不受疫情波及，但真的能保住吗？
+
+新闻链接：[https://www.epochtimes.com/gb/22/1/10/n13495590.htm](https://www.epochtimes.com/gb/22/1/10/n13495590.htm)
 
  
 

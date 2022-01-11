@@ -2,18 +2,22 @@
 ---
 
 
-## “欢迎”哈萨克斯坦总统来华出席北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845644/)
+## 【中日财经爆】恒大45亿元债券“延期兑付本息”再生悬念
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845665/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-753.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp3.itc.cn%2Fq_70%2Fimages03%2F20220110%2Fa045a3853ba14ab0bf5506bed321b8e0.png&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Fzhihu%2F1469168.html&amp;tbnid=-cvEpjW6DCUF8M&amp;vet=12ahUKEwiY3PW036j1AhViGKYKHV7MApcQMygBegUIARCHAQ..i&amp;docid=Im0GSJfYjLg-RM&amp;w=500&amp;h=318&amp;itg=1&amp;q=%E2%80%9C%E6%AC%A2%E8%BF%8E%E2%80%9D%E5%93%88%E8%90%A8%E5%85%8B%E6%96%AF%E5%9D%A6%E6%80%BB%E7%BB%9F%E6%9D%A5%E5%8D%8E%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwiY3PW036j1AhViGKYKHV7MApcQMygBegUIARCHAQ)
-中共国外长王毅和哈萨克斯坦外长特鲁贝尔迪会谈时，强调他“欢迎”托卡耶夫总统出席北京冬奥会。王毅10日同哈萨克斯坦外长特鲁贝尔迪通电话，表示“欢迎托卡耶夫总统出席下月北京奥运会开幕式”。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-756.png)[图片来源](https://www.nownews.com/news/5380829)
+中国恒大旗下恒大地产周一(1月10日）晚间发布公告称，拟将该债券持有人会议投票时间延长至1月13日（周四）。恒大集团高达45亿元人民币的境内债券“20恒大01”能否顺利延期兑付回售本金和利息的悬念。
 
-根据中国外交部的公告，外长特鲁·威尔第也回应称，“北京奥运会是一项具有国际影响力的赛事”，并表示“哈萨克斯坦希望与中国一起进行筹备工作”。
+上述持有人会议原定于1月7日-10日召开，主要议题是审议回售本金兑付和利息支付均延期半年的议案。恒大地产公告显示，通过深交所互联网投票系统投票的最新时间为1月7日9:15至1月13日15:00。
 
-在哈萨克斯坦，当许多受害者在镇压抗议活动中丧生时，中共国主席习近平致电托卡耶夫总统，称赞他“毅然采取了强有力的措施”。
+尽管此前恒大已陆续出现美元债违约，但截至目前，其在境内债券兑付上尚未出现违约。
 
-信息来源：[中国　カザフスタン大統領の五輪出席を「歓迎」](https://news.yahoo.co.jp/articles/bc2876d622cef27c448034e4b0049bbe9ef3d5dc)
+根据“20恒大01”债券本息兑付安排的议案，回售部分债券的兑付日拟从1月8日延至7月8日，回售以及未回售部分的付息日亦申请延至7月8日，上述事项的调整，不触发该期债相关违约责任。
+
+中国恒大周一晚间还曾公告称，为节约成本，已于2021年12月办理深圳卓越后海中心退租手续，搬迁至深圳自有物业办公；公司注册地未变，仍然在深圳。
+
+消息来源：[中国恒大45亿元境内债券“延期兑付本息”再生悬念 会议投票时间延长三天](https://cn.reuters.com/article/evergrande-0110-mon-bonds-idCNKBS2JL047?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

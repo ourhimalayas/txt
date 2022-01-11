@@ -2,40 +2,28 @@
 ---
 
 
-## 加密货币即将可用于购买美国房产
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845717/)
+## “别吃中共国肉” &#8211; 德国反兴奋剂机构警告奥运选手
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1845738/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+![一名女子在给北京冬奥会设立的颁奖台拍摄照片 (2022年1月3日)](https://gdb.voanews.com/726369FE-EA85-4095-BD19-B76D9A63FBE3_cx0_cy8_cw0_w1023_r1_s.jpg)一名女子在给北京冬奥会设立的颁奖台拍摄照片 (2022年1月3日)
+据美国之音1月11日报道，德国反兴奋剂机构警告下个月前往北京参加冬奥会的运动员不要吃中共国肉，担心运动员可能会因为食用中共国生产的肉类产品而摄入盐酸克伦特罗，也就是俗称的瘦肉精，会违反兴奋剂规定。运动员可以与营养学家讨论选择替代食品。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/bitcoin.jpg)
+中共国从来不遵守国际规则，而且中共国的食品安全存在巨大隐患。中共破坏了中国一切的美好，包括中国悠久的饮食文化。现在中共国的食品存在各种添加剂，甚至毒品。吃饭能吃死，在中共国绝对不是夸张。运动员完全可能因为吃了中共国的肉毁掉自己的运动生涯。
+
+新闻参考链接：[https://www.voachinese.com/a/germany-beijing-winter-olympics-avoid-china-meat-20220110/6390877.html](https://www.voachinese.com/a/germany-beijing-winter-olympics-avoid-china-meat-20220110/6390877.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
- 
-图片来源：Shutterstock
+编辑：【英国伦敦喜庄园编辑部】
 
-
-编译：小红帽
-
-根据《Kitsap Sun》1月10日报道， **买家和投资者将很快可以选择以多种加密货币支付位于美国华盛顿州Kitsap县的多个房地产开发项目。**
-
-总部位于Gig Harbor的房地产公司Harbor Custom Development Inc.宣布，从1月24日开始，将接受比特币和其他一些加密货币作为购买该公司在华盛顿州房地产资产的买家付款方式，其中包括其在Kitsap县的项目。
-
-该公司表示，买家可以使用加密货币付款，但不能用于支付租金。
-
-Harbor Custom Development Inc.还将在1月24日之后接受数字货币作为其在加利福尼亚州，德克萨斯州和佛罗里达州的项目的付款方式。据该公司称，有兴趣的购房者或投资者可以联系该项目的上市经纪人，经纪人将引导他们完成购买过程。
-
-除了 2009 年推出的世界上第一个也是最知名的加密货币比特币之外，开发公司还计划接受其他 12 种加密货币。声明称，在 1 月 24 日之前，该公司可能会根据市场情况在列表中增加或减少某些数字货币。
-
-新闻来源：[Developer to accept cryptocurrency as payment for real estate purchases in Kitsap (kitsapsun.com)](https://www.kitsapsun.com/story/news/2022/01/10/gig-harbor-based-real-estate-development-company-soon-accept-multiple-cryptocurrencies-payment-buyer/9084033002/)
-
-*发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

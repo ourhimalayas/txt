@@ -2,21 +2,28 @@
 ---
 
 
-## 中共鼓励三胎墙内政策持续加码
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1845542/)
+## 马龙博士警告，中共国出血热病毒源于疫苗大规模接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845626/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ds-ca-w-c.png)（图片来自网络）
-中共墙内三胎政策是2021年我国积极应对人口老龄化的重磅政策。为了达到他们下一代韭菜的快速培养，推出了一系列政策鼓励生育。
+#### 素材整理：熊猫乱滚、文泓
+编辑：文泓
 
-第一个，大部分地方还有保留着超生罚款的政策，这次多地为了鼓励生育，直接取消政策，我们知道，70-80代的人当时为了限制生育，中共对下一代的惨无人道的屠杀可以说是让人无法直视的。当时被强迫打胎的人都无法回忆那段令人痛心的过往，当时以计划生育为名杀死的小生命大约在4000万人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image012.png)图片来源：班农战斗室视频截屏
 
-第二个，多给假期，让陪产假，生育假等，假期给延长十几天。来引诱大家剩余，大家可以想一下，邪恶中共用你生命十几天的所谓假期，换来你下一代一生的奴役压迫。让你的下一代继续终身为奴。被它剥削，邪恶至极。
 
-第三个，减少开支，在住房上，税费等方面给你福利，我们可以发现墙内一家上市公司北大农，为了鼓励生育三胎，给出了奖励9万人民币的诱惑福利。但是无论怎么威逼利诱，底层百姓大部分都看清楚了，中共的这些小恩小惠，不能给你解决，养育，医疗，住房，教育等等方面的所有费用，根本无法让你承担这个生命物质费用和精神费用的付出。
+当地时间1月10日，mRNA基因疫苗的发明者罗伯特·马龙博士(Robert Malone)现身班农战斗室节目，他警告说，一种来自共产主义中国的“类似埃博拉的出血热”超级病毒，他认为这可能是由大规模疫苗接种引起的病毒突变引起的。
 
-综上，无论中共怎么激励政策发布，都是无济于事的，在中共通知的中国，是完全的独裁政治，他们对于任何法律 政策都是可以朝令夕改的。针对生育这个事情上，邪恶中共已经打破了自然的繁衍下一代的规律。为了减少支出，他们可以守着你子宫打胎；为了增加他们剥削的资源持续发展，他们可以继续守着你子宫生育。在墙内的百姓身体不是自己做主的。完全被赤裸裸的绑架服务于这个邪恶政党。我们想要回归自然的繁衍生态，就必须要把邪恶中共彻底铲除才可以。为了我们能有一个健康的下一大，大家必须行动，行动，行动，take down the CCP。
-![此图像的alt属性为空；文件名为澳喜图标2-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+马龙博士强调，将运动员派往中共国参加2022年奥运会将是“疯狂的”，并补充说：“毫无疑问，当他们知道新冠病毒正在肆虐之时，在武汉，他们并没有拉上国际旅行的帷幕。”
+
+新闻链接：[‎Bannon’s War Room: Episode 1,549 – Covid Explosion In China Putting Olympics In Jeopardy (w/ Ben Harnwell, Frank Gaffney, Dr. Robert Malone, Tony Lyons) on Apple Podcasts](https://podcasts.apple.com/au/podcast/episode-1-549-covid-explosion-in-china-putting-olympics/id1485351658?i=1000547463034)
+
+发布：文泓
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
