@@ -15,104 +15,104 @@
 
 ---
 
-### [天津河南多地沦陷，疫情会危及北京冬奥会吗？](/content/gnews/1/README.md)
+### [全球疫情更新（自然免疫被否定的乌龙）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新疫情使关键劳动力缩减 欧洲放松COVID政策](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [韩国总统候选人尹锡悦赞成粉碎共产党](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [“新东方”被逼转型裁员6万人](/content/gnews/4/README.md)
+### [天津疫情防控，居民排队抢菜](/content/gnews/2/README.md)
  ` 澳喜特战旅Gnews`
 
-### [天津疫情加剧全员核酸检测，居民恐慌抢购生活物资](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [共产党与昆仑山](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [《奥米炕病毒女皇之歌》，由卡尔·沃尔夫自编自唱](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [枕头哥说美国现在更好 因人们知道了Fox和Twitter有多糟糕](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [西安市民对不人道的封控措施的愤怒发泄](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [天津河南多地沦陷，疫情会危及北京冬奥会吗？](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国公司将把中共大外宣强加于世界](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [新疫情使关键劳动力缩减 欧洲放松COVID政策](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【樱花深度报道】独家披露：加拿大军官呼吁对武汉军运会的零号“新冠病毒”爆发进行调查（下）](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】加拿大军官呼吁对武汉军运会的零号“新冠病毒”爆发进行调查（上）](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [让数据说话 接种中共病毒疫苗后更容易被传染](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [托卡耶夫与普京举行电话会谈](/content/gnews/12/README.md)
- ` GTV News Talk`
-
-### [乌克兰逮捕正计划在敖德萨发动恐怖袭击的俄罗斯特工](/content/gnews/13/README.md)
+### [韩国总统候选人尹锡悦赞成粉碎共产党](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国肉制品含禁药，反禁药组织提醒冬奥运动员别吃](/content/gnews/14/README.md)
+### [“新东方”被逼转型裁员6万人](/content/gnews/8/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [文贵直播大事记——跟着七哥学战术](/content/gnews/9/README.md)
+ ` 文贵直播大事记`
+
+### [天津疫情加剧全员核酸检测，居民恐慌抢购生活物资](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [《奥米炕病毒女皇之歌》，由卡尔·沃尔夫自编自唱](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [西安市民对不人道的封控措施的愤怒发泄](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国公司将把中共大外宣强加于世界](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【樱花深度报道】独家披露：加拿大军官呼吁对武汉军运会的零号“新冠病毒”爆发进行调查（下）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共国今年发行特别国债或超1万亿](/content/gnews/15/README.md)
+### [【樱花深度报道】加拿大军官呼吁对武汉军运会的零号“新冠病毒”爆发进行调查（上）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共医保之殇](/content/gnews/16/README.md)
+### [让数据说话 接种中共病毒疫苗后更容易被传染](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [托卡耶夫与普京举行电话会谈](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [乌克兰逮捕正计划在敖德萨发动恐怖袭击的俄罗斯特工](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国肉制品含禁药，反禁药组织提醒冬奥运动员别吃](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】中共国今年发行特别国债或超1万亿](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共医保之殇](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [【中日财经爆】迫于中共压力 英特尔删除相关涉疆内容](/content/gnews/17/README.md)
+### [【中日财经爆】迫于中共压力 英特尔删除相关涉疆内容](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】私募创始人意外身亡，机构合规遭质疑](/content/gnews/18/README.md)
+### [【中日财经爆】私募创始人意外身亡，机构合规遭质疑](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我的写作之路](/content/gnews/19/README.md)
+### [我的写作之路](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [哈萨克斯坦总统下令射杀抗议者](/content/gnews/20/README.md)
+### [哈萨克斯坦总统下令射杀抗议者](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《每日邮报》盖特参与度超越推特，这是游戏转折点](/content/gnews/21/README.md)
+### [《每日邮报》盖特参与度超越推特，这是游戏转折点](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾与立陶宛之间展开反击中共的双边外交](/content/gnews/22/README.md)
+### [台湾与立陶宛之间展开反击中共的双边外交](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [数字疫苗也许会在不久的将来迅速推出](/content/gnews/23/README.md)
+### [数字疫苗也许会在不久的将来迅速推出](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [川普的媒体并购因SEC调查而搁浅](/content/gnews/24/README.md)
+### [川普的媒体并购因SEC调查而搁浅](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生直播精要2022/01/09](/content/gnews/25/README.md)
+### [文贵先生直播精要2022/01/09](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰财经G乐部2022年1月11日:财经新闻整理](/content/gnews/26/README.md)
+### [新西兰财经G乐部2022年1月11日:财经新闻整理](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [扬帆速递2022年1月10日版](/content/gnews/27/README.md)
+### [扬帆速递2022年1月10日版](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [大科技公司、大媒体等压制信息使人们无法了解疫苗真相](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [接种疫苗应该是个人决定的事情而不是联邦政府](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [提醒您：不要在不知不觉中“中招”](/content/gnews/30/README.md)
+### [提醒您：不要在不知不觉中“中招”](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Gfashion让Hcoin, HDO能正式实体流通](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [挪威退役士兵被告知归还内衣，因为新冠病毒导致物资短缺](/content/gnews/32/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [1/07/2022 文贵直播：奥米炕病毒传染性极强，千万不能掉以轻心（粤语配音）](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中国“出血热”超级病毒是由大规模疫苗接种引起的](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
