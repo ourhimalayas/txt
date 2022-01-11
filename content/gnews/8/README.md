@@ -2,29 +2,31 @@
 ---
 
 
-## 美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1848802/)
+## 七哥谈西安疫苗灾难（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848846/)
 
-翻译：波士顿五月花  冲天一怒
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊.jpg)https://www.naturalnews.com/ 
-Video Screenshot from twitter: The View
+来源：郭先生2022-01-07直播11：25：09摘录
 
-美国《观点》节目主持人乌比·戈德堡在接种三针疫苗后仍感染了中共病毒(Covid-19)，她对此感到震惊。在圣诞节期间感染病毒后，这位女演员兼电视节目主持人错过了该节目的第一集，她不得不在家通过远程连线出镜。
+我觉得这个西安的事情就证明了就是这种刺突蛋白就是病毒，不存在什么新病毒。现在你觉得还有人谈新病毒吗？只有七哥说了那根本不是什么新病毒，就是疫苗灾难。现在还有人说新病毒吗？没有了，是吧？接下来共产党一定会有一个超级符合我们利益的需求的操作，在冬奥会2月14号突然间中国的什么事都好了，都解决了，共产党解决世界问题的能力、解决大事情的能力和集中力量办大事的能力就会表现出来。这个骚操作它会再一次地让中共的所有疫苗灾难，就是说自我传染，自我从疫苗变成病毒还有Omicron传染，都会发生更加激烈的变化。就奥运会后，冬奥会后，会发生地方和中央的激烈的矛盾，而且会更多的事件失控。然后会让共产党自己演了一个冬奥会的能解决世界所有困难的共产党一党独大的优越性全部打脸，这都符合咱的利益，但是西安人民和郑州人民也好，你们不要当牺牲品。这个人类上没有任何一个党、一个组织能把所谓被释放的病毒，想让它去哪就去哪、想停就停是不可能的。就像经过冬天的变化它就会下雪一样，它一定会死人的，一定会失控，还是保重自己为好。
 
-根据戈德堡的说法:”我在休假前几周就离开公司了，因为身边的某个人的中共病毒(Covid-19)检测呈阳性。所以，我感觉自己已经离开了很长时间，我很开心将重返工作岗位。但他们派人来做病毒测试的结果竟然是’不，你不要回来。我们不会派任何人去你家。你染上中共病毒了’。感觉就像’等等，什么？’ 这很令人震惊，因为你知道我已经打了三针疫苗，没有去过任何地方，什么也没有做。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在听她讲述接种三针疫苗后仍旧染病的经历后，主持人依然鼓励人们接种疫苗。戈德堡说：“除非每个人都接种疫苗，否则我们将在接下来的一段时间内面临这种情况。”
+**关注我们**
 
-当然，尽管接种了两针疫苗和加强针，戈德堡仍被感染这个事实却一点儿也不令人震惊，因为病毒仍在接种疫苗的人群中传播。丹麦最新的一项研究发现，Omicron变体在接种疫苗的社区中传播得更快。该研究的总结道：“在完全接种疫苗的人群中，Omicron 的传播速度比Delta 快，甚至在接受加强注射的人群中传播速度更快。”
+Discord 账号
 
-新闻来源: [Whoopi Goldberg ‘shocked’ at catching COVID despite being triple vaxxed](https://www.naturalnews.com/2022-01-08-whoopi-goldberg-shocked-at-catching-covid.html)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-* * *
+Gettr 账号
 
-*素材来源：冲天一怒*
-
-*编辑* *&**发布：**jamie(**文胤**)*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

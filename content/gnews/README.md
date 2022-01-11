@@ -15,92 +15,92 @@
 
 ---
 
-### [七哥说“我掌握它的一切”（2022-01-07摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [七哥说李家将彻底在新加坡消失（2022-01-07摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [乔-罗根在Gettr上找到的正是Twitter所缺失的](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [更多男性认为接种过疫苗的女性会不孕不育](/content/gnews/4/README.md)
+### [名人因接种中共病毒疫苗猝死的判断方法](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [七哥谈西安疫苗灾难（2022-01-07摘录）](/content/gnews/5/README.md)
+### [文·贵天成——文贵先生谈“王毅”（三）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥谈“敌无我有，敌有我精”（2022-01-07摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [1月10日长岛哥联盟答疑G系列相关信息文字版](/content/gnews/6/README.md)
+### [七哥说“我掌握它的一切”（2022-01-07摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥说李家将彻底在新加坡消失（2022-01-07摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [乔-罗根在Gettr上找到的正是Twitter所缺失的](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [更多男性认为接种过疫苗的女性会不孕不育](/content/gnews/7/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [七哥谈西安疫苗灾难（2022-01-07摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [1月10日长岛哥联盟答疑G系列相关信息文字版](/content/gnews/9/README.md)
  ` 全球G系列咨服群`
 
-### [有声|如果你有一个高尚的灵魂](/content/gnews/7/README.md)
+### [有声|如果你有一个高尚的灵魂](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊](/content/gnews/8/README.md)
+### [美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [立陶宛力挺台湾 中共指责美国煽动](/content/gnews/9/README.md)
+### [立陶宛力挺台湾 中共指责美国煽动](/content/gnews/12/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥说当你强大到足可以淹没就所有攻击你的人时，他们在你面前就像那雪花一样（2022-01-07摘录）](/content/gnews/10/README.md)
+### [七哥说当你强大到足可以淹没就所有攻击你的人时，他们在你面前就像那雪花一样（2022-01-07摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [1/11/2022 文贵盖特：2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言](/content/gnews/11/README.md)
+### [1/11/2022 文贵盖特：2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|奥地利总理接种三剂疫苗仍旧感染中共病毒](/content/gnews/12/README.md)
+### [有声|奥地利总理接种三剂疫苗仍旧感染中共病毒](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [辉瑞前首席科学家及副总裁： 疫情爆发后，政府官员明显撒谎了](/content/gnews/13/README.md)
+### [辉瑞前首席科学家及副总裁： 疫情爆发后，政府官员明显撒谎了](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈中美战争（2022-01-07摘录）](/content/gnews/14/README.md)
+### [七哥谈中美战争（2022-01-07摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [每日快报：美国新增135万例COVID-19病例](/content/gnews/15/README.md)
+### [每日快报：美国新增135万例COVID-19病例](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文·贵天成——文贵先生谈“王毅”（二）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“王毅”（二）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/17/README.md)
+### [加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [特大喜讯：GETTR成为历史上发展最快的社交平台](/content/gnews/18/README.md)
+### [特大喜讯：GETTR成为历史上发展最快的社交平台](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“王毅”（一）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“王毅”（一）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/20/README.md)
+### [大多数国际奥委会赞助商在冬奥会前保持沉默](/content/gnews/23/README.md)
  ` wenwu`
 
-### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/21/README.md)
+### [【国际时评】台湾与加拿大宣布启动FIPA讨论](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/22/README.md)
+### [Joe Rogan：盖特有推特缺少的东西](/content/gnews/25/README.md)
  ` wenwu`
 
-### [七哥说我们都是建国之人（2022-01-07摘录）](/content/gnews/23/README.md)
+### [七哥说我们都是建国之人（2022-01-07摘录）](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [2022/01/11大卫作战室直播精要](/content/gnews/24/README.md)
+### [2022/01/11大卫作战室直播精要](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/25/README.md)
+### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/28/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/26/README.md)
+### [七哥说肯定是共产党输了（2022-01-07摘录）](/content/gnews/29/README.md)
  ` MG FARM`
-
-### [七哥谈法国的种族歧视（2022-01-07摘录）](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [爆料革命日记（十）](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [在COVID疫情正式开始前几个月，西方军队在武汉生病了](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`

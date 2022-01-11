@@ -2,28 +2,50 @@
 ---
 
 
-## 【国际时评】台湾与加拿大宣布启动FIPA讨论
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1848657/)
+## 特大喜讯：GETTR成为历史上发展最快的社交平台
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848692/)
 
-加拿大温哥华扬帆农场 – 我是1，小一
+文编：Hima
 
-1月10日，台湾与加拿大同意开始就投资保护协议展开探索性讨论。台湾行政院政务委员邓振中与加拿大国际贸易部长武凤仪（Mary Ng）周一举行双边视讯会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220111-小一-FIPA.png)
-这个事件很有标准性：
+太激动了！刚才收到了GETTR平台发来的喜讯：GETTR是历史上发展最快的社交平台，新用户突破了400万！Joe Rogan 和Tucker Carlson也加入了我们！原文及翻译如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-110.png)
+爱国者同胞，
 
-1. 加拿大本来就有自己的“印太战略”。在冬奥会事件，全球供应链崩溃，病毒大流行，经济即将大崩盘的背景下，寻求中共以外的合作对象，避免“一棵树上吊死”的局面。
-2. 加拿大开始试探性地转向。不敢明目张胆地挑战中共，但是知道必须留后路，未来要用到的伙伴要开始接触起来了。
-3. 台湾是WTO正式成员，而中共被踢出WTO已经是指日可待。台湾是为数不多的未来将承接全产业链的地方。与台湾合作，是必选项。
-4. 台湾与中共去年九月都提出加入CPTPP的申请。加拿大是重要CPTPP成员国。若加拿大支持台湾加入CPTPP，而反对中共加入，天平将反转。
-5. 加台有动作以后，想必双方也都考虑到中共会如何施压，这也是互相的博弈和试探。中共要在冬奥会前制造“万国来朝“的幻想，这时候对台加的打压也会知轻重。
-6. 双方的这次接触象征意义大于实际商业价值。加拿大与台湾开始接触，向西方民主世界发出明确的信号，世界到了转向的时候了。
+迄今为止，GETTR 是历史上发展最快的社交媒体平台，拥有来自世界各地的用户。与“其他人”相比，GETTR 成功地为大家打造了一个积极、令人振奋和自由思考的平台！
 
+就在本周，我们迎来了乔·罗根和有线电视新闻中的大腕塔克·卡尔森加入我们平台，GETTR 的新用户突破了 400 万！达到另一个惊人的里程碑！
 
-以上仅代表作者个人观点！
+虽然 Twitter 朝着成为共产主义平台又迈出了一步，但我们GETTR仍然日复一日地工作以维护您的言论自由权。
 
-(本文仅代表作者观点，与GNEWS平台无关)
+我们很乐意让您成为我们GETTR 大家庭中的一员，因为我们为维护言论自由、独立思想和反对大科技的过度扩张而斗争。
 
-*编审/发布：shuang*
+还有什么让我们成为未来社交媒体的趋势？
+
+·帖子长度最多777个字符！
+· 能够在应用程序内编辑视频和照片！
+·能够发布3分钟的视频！
+· 通知系统启动并运行
+· 每个帖子可以发布 6 张照片！
+· 移动端和桌面端直播！
+
+成为历史的一部分……加入现在 400 万美国人的行列，他们站出来对抗大型科技公司，为言论自由、独立思想和拒绝政治审查的权利而战。
+
+希望在我们的平台上见到你！在此注册！**[JOIN NOW!](https://gettr.us5.list-manage.com/track/click?u=ba369d366bf6ca0ee2e11d0b9&amp;id=a0ecb0e38e&amp;e=6499c48725)**
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

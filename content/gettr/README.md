@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/11/2022 10:30 PM (UTC)`
+
+1/11/2022 Miles Guo: Communist China will go through another round of quarantines due to the surging CCP virus disasters; Why were the 2008 Summer Olympics medals made from jade of the Kunlun Mountains? The Whistleblowers’ Movement is exposing each lie of the CCP with truth and fact; our fellow fighters have to take extra cautions upon the imminent disasters.<br/><br/>1/11/2022 文贵盖特：中共国会因疫情恶化开始新一轮封区封城；2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言；灾难来临之际，战友们务必小心，度过难关<br/>
+![img](https://media.gettr.com/group2/getter/2022/01/11/22/543da8d5-6d23-33a8-d4b4-062e84a8e309/out.jpg)
+
+---
+
 `@miles 1/11/2022 9:34 PM (UTC)`
 
 1月11日：亲爱的兄弟姐妹们．👉👉👉加上关注吧……https://gtv.org/video/id=61dd0cbfa6dfdd6031524fc7
@@ -155,13 +162,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: The CCP built a massive altar in the Kunlun Mountains, a state secret with special forces stationed there, but those whose zodiac signs are Tiger and Pig are not allowed to go there; I have been there and saw the ineffable secret of heaven! The Kunlun Mountains is the spine of the earth and is the source of the CCP’s power!<br/><br/>1/09/2022 文贵直播：中共在昆仑山建立了规模宏大的祭坛，属国家机密且驻扎了特种兵，但属虎和属猪的不让去；文贵过去那里并看到了天机！昆仑山是地球的脊椎，是共产党权力的来源！<br/>
 ![img](https://media.gettr.com/group5/getter/2022/01/10/09/fb8567d3-86e4-8fcb-d2e8-5a4501d8f06d/out.jpg)
-
----
-
-`@miles 1/10/2022 9:39 AM (UTC)`
-
-1/09/2022 Miles Guo: The battle between Xi Jinping and Zeng Qinghong have been initiated by the explosion that happened in the Wulong District of Chongqing and the surfacing of the list of the CCP’s top officials who are going to take office after the 20th Party Congress! The gods of the Kunlun Mountains and the Himalayas are helping us the New Federal State of China! The CCP is more superstitious than anyone else!<br/><br/>1/09/2022 文贵直播: 重庆武隆区发生的爆炸和中共20大任命名单的出现开启了习曾之战！昆仑山神和喜马拉雅山神都在帮助我们新中国联邦！中共比谁都迷信！<br/>
-![img](https://media.gettr.com/group8/getter/2022/01/10/09/0e260a10-e11b-84f1-f795-7765fd1ede81/out.jpg)
 
 ---
 
