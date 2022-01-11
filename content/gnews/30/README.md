@@ -2,29 +2,52 @@
 ---
 
 
-## 五行相生相克预见大趋势
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1846084/)
+## 斯里兰卡债台高筑 要求中共重组其债务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1846281/)
 
-**撰稿：荣荣**
-![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/01/8E0D8A73-E602-4BFE-B231-576F301C0F28.png)
-图片来自网络
+信息采集：janey17
+作者：银河勇气星—骄子
 
-中国古人认为，世上万物皆由金、木、水、火、土这五种基本物质构成，即所谓的五行，而五行之间还存有相生相克的关系。这种五行学说，肇始于夏商之际，完善于春秋战国，并一直影响至今。如果懂得五行及其生克关系，有助于提早洞悉事物未来的发展趋势，从而可大大增强行动与坚持的信心。
 
-中国共产党总在标榜他们是唯物主义者，是无神论者，实际上他们骨子里是深信其中的奥秘。哪个高官不在家里设佛堂供奉，不秘访各路高僧大德？而老百姓信奉神明他们却打压，说是迷信。中共的目的就是不让老百姓开智，知道真有神明、佛祖存在。这样他们就能很容易统治愚昧的民众**。**
 
-1949年毛贼就是请了当时高人择日才敢进的北京城，并听从告诫绝不能住进故宫，才选了故宫隔壁，当年光绪帝被慈禧囚禁的地方 —- 中南海。这也就说明了苍天有眼，确有神明在，早看穿他根本不是我们华夏民族的真龙天子，就是个邪魔寇首。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-毛贼本人也太知道华夏五千年阴阳五行道法的厉害，所以终生蛰伏在他的王八坑里，不敢越雷池半步。
 
-想当年，毛泽东为何最终能打败蒋介石？重要原因是共产党从北方（五行属水）渡过长江打到国民党所在的南方（五行属火）而成功的（北方水克南方火）。
 
-现如今，新中国联邦的蓝色旗帜昭示着它能TAKE DOWN CCP。同样是因为水能克火，即蓝色旗帜（五行属水）能降克红色党旗（五行属火）。
+1月9日，斯里兰卡总统向到访的中共外长王毅提出要求，希望中共能够调整他们提供的贷款结构，并为该国的基本商品进口提供一些优惠信贷，并称目前正挣扎在最严重的经济危机中，部分原因是中共以往资助的项目无法产生任何收益。
 
-这就是文贵先生总很自信的说在2025年前一定灭共的原因。这就是中华五行传统文化的预见与辩证之处。
+据悉，负债累累的斯里兰卡外汇储备已降至16亿美元左右，几乎不足以维持几周的进口。其中，用中共贷款建设的基础设施项目，如海港和机场，以及广泛的公路网等，根本不赚钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-9.jpg)
+仅2022年，斯里兰卡需要偿还的中共外债就超过70亿美元，包括1月份需偿还的价值5亿美元和7月份的10亿美元。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+王毅则只是冠冕堂皇地说，目前这场持续的、不受控制的流行病加重了各国经济复苏的困难，斯里兰卡和中共必须在建交周年之际加强合作。但并没有详细说明如何加强合作，也没有宣布任何救济措施。
+
+参考链接：
+[Sri Lanka Seeks Chinese Debt Restructuring Amid Crisis](https://www.usnews.com/news/world/articles/2022-01-09/china-foreign-minister-in-sri-lanka-to-discuss-belt-and-road)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

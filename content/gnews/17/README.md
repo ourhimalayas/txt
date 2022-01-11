@@ -2,22 +2,40 @@
 ---
 
 
-## 为了运动员的健康应远离北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1846288/)
+## 川普的媒体并购因SEC调查而搁浅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1846413/)
 
-撰稿：东京樱花团丨盖特第一批注册
-![](https://lh5.googleusercontent.com/4VUtgl7rlj7KjC3M2IRQTRfZCyGQoRkqNj7KkE8jU3PlhmEKQ_AGvRJwQYG_PWHvcbaTZLap85tSUkZg4Z6q96JEYhvgAxPCnpz8aR_j0ObyVYLqY5TtuhhgHPEP1J4Mq5thZ-L-)
-当前危机委员会主席弗兰克-加夫尼先生（Frank Gaffney）昨天参加了班农先生的战斗室节目。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-他说派运动员去北京冬奥会是一种的疯狂行为，不仅是运动员面临得病的风险，还会有将新病毒带回美国的风险。同时是让中国共产党合法化的战略愚蠢行为，就像让希特勒的第三帝国在1936年举行的柏林夏季奥运会合法化一样，美国需要尽快打倒而不是扶植中共这个跨国犯罪组织。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/truth.png)图片来源：AP
 
-他发起了签名信，请求大家在“保护奥林匹克运动员”的信上签名，该信将寄给美国奥林匹克委员会和残疾人奥林匹克委员会，敦促奥委会鼓励运动员为了健康远离日益猖獗的病毒，不要参加北京冬奥会。
 
-信息来源：[**Our Olympic Athletes Are Going To Become The Next Victims**](https://rumble.com/vsb29d-our-olympic-athletes-are-going-to-become-the-next-victims.html)
+整理报道：美哥
+编辑：Mttfly
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+据华盛顿邮报报道，美前总统川普一直计划建立自己的社交媒体平台，但平台网站似乎在国会中期选举之前无望运营上线。
+
+主流社交平台在1月6号的“国会山暴动”之后，封杀了川普。它们指控这位前总统兜售不实信息和煽动暴乱。自此川普通过邮件声明的形式与外面沟通，而不是选择进驻“右翼媒体”平台parler或者盖特。
+
+川普的社交平台被称为“真相社交”，由川普传媒科技公司集团开发，目的就是能被空白支票公司（SPAC）数字世界收购公司（DWAC）并购。根据双方协议并购需于2022年9月份前完成。但目前被美国证券交易委员会（SEC）暂停调查。
+
+华盛顿邮报称正在硅谷招聘中的川普媒体，将在社交媒体、流媒体、播客等多种行业竞争中，产生高达几十亿美元的收益。自称审查尺度比油管宽松的视频网站rumble也在与之合作中。
+
+根据华尔街日报，川普被“去平台化”在某种角度说反而是受益方，他也许本来就很难再吸引大量观众，但是川普的支持者仍会对封杀愤慨，前总统缺席的发声前所未有的振聋发聩。然而，即使川普的支持者有竭力对抗科技巨头的动力，但川普的某些粉丝还是高兴川普在社交媒体的缺席。在2017年，根据CNN的一项民调，共和党的大多数人反对当时在任的总统进驻推特。
+
+华尔街日报还透露，根据川普的助理说法，前总统本来迫不及待的要宣布2024的竞选，后被劝说推迟了这个决定，现在预计至少在11月份国会中期选举之后再宣布大选。
+
+参考新闻：[Trump app held up by SEC investigation into merger](https://theweek.com/donald-trump/1008807/trump-app-held-up-by-sec-investigation-into-merger)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
