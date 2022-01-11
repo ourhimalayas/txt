@@ -2,36 +2,24 @@
 ---
 
 
-## 文贵先生谈喜币价值 寄语墙内战友
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847804/)
+## 福克斯当家主持塔克·卡尔森加入盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847834/)
 
-作者：纽约香草山 医疗部 云豹
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022年1月9日大直播中，郭先生主动聊起喜币，尤其对墙内战友衷心叮嘱，保证其投资信息与回报的安全。
+1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.jpg)
+塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-7.jpeg)
+继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
 
-首先，自身的安全。不要因急于买喜币，不考虑风险去银行汇钱，结果可能被举报抓捕询问。
+参考链接：[Welcome to #GETTR, @tuckercarlson!](https://gettr.com/post/pnico6dcd0)
 
-其次，先与所在农场联系，做好KYC，将帐户准备好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-最后，寻问农场有何安全方式能将钱汇到喜帐户内，然后才能买喜币。
-
-每一步都要小心谨慎，才不会被中共伤害。
-
-文贵先生郑重向墙内战友提供三项保证：第一. 任何人拿不走你的个人信息；第二. 无论中共怎样做，拿不走你的喜币；第三. 买币以后，如果你在喜币赔钱，郭先生负责。
-
-喜支付即将上线，意味着喜币将成为可以自由流通购物的工具，这是喜币开始要发挥其价值的起点，也是投资机构会积极进场的时刻。
-
-喜币的独特优势，加上战友们齐心锁币的行动，将使其在竞争激烈的加密货币市场独领风骚，涨势不可限量。
-
-参考链接：[2022年1月9日 文贵大直播](https://gtv.org/video/id=61dade8c4658a73785d25465)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文特
+总编：Zion文恩
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -40,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

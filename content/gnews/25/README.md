@@ -2,37 +2,20 @@
 ---
 
 
-## 樱花灭共诗——望昆仑（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1847819/)
+## 是时候站起来夺回我们的医疗自由了
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1847880/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-39.jpg)
-昆仑高万仞，
+**作者：日本东京方舟农场 JIHO**
 
-兽锁九天门。
+善药和恶药是有区别的，好的科学和邪恶的科学是有区别的。现在困扰世界的邪恶科学带来了歧视，隔离，让公民反对公民，让我们质疑自己的动机，让我们相信我们迷失了…
 
-海内延龙脉，
+* * *
 
-河源哺夏民。
+*素材采编：JIHO*
 
-巍峨峰自在，
+*发布：Ranting*
 
-渺远域精神。
-
-凝眺喜山处，
-
-虚极忘垢尘。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-802.png)
-插图：东京樱花团/闪闪
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
-
-
-
+*封面制作：S*
 
  
 

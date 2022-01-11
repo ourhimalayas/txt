@@ -2,32 +2,25 @@
 ---
 
 
-## 福克斯当家主持塔克·卡尔森加入盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847834/)
+## 澳洲维多利亚地区数千医护人员无法进行工作
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1847913/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-14.jpg)
-塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011104.jpg)图片涟源：Pexels免费照片素材库
+当地时间周二，澳大利亚维多利亚州又记录了37,994例新增CCP病毒感染病例，同时还有13人不幸因病去世。目前维州地区总共有861人因CCP病毒住院，同时还有117人因CCP病毒而处于重症监护状态。
 
-继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
+3,392 名医院工作人员和 422 名维多利亚救护车工作人员由于感染CCP病毒或成为病例密切接触者而无法工作，这导致该州卫生系统出现了普遍的人员短缺。然而，州长丹尼尔安德鲁斯表示，预计受影响的员工人数会更多，因为这些数字仅为自我报告的病例。
 
-参考链接：[Welcome to #GETTR, @tuckercarlson!](https://gettr.com/post/pnico6dcd0)
+维多利亚州目前的双剂疫苗接种率为 93%，有17% 的居民已经完成了加强针的接种，但严重的疫情却并没有因此受到阻遏，反而呈现出愈演愈烈的态势。而在昨天，维州的疫苗预约系统正式对5 至 11 岁的儿童开放，目前已预有大约 39,000 名儿童预约CCP病毒疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+安德鲁斯先生同时还宣布了一项 400 万美元的赠款计划，用于补贴全科医生和社区药店推广学校接种CCP病毒疫苗，以增加儿童接种率。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+昨日，维多利亚州已经宣布了新的强制CCP病毒疫苗加强针政策，适用于一些重点工作岗位——其它岗位后续也可能出台相关政策。同时，新的限制管理措施也将生效，从 1 月 12 日星期三晚上 11 点 59 分起，在维多利亚州，酒店和娱乐场所的室内舞池将关闭，仅婚礼除外。另外对于医院探视也将有新的限制和要求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻参考链接：[Thousands of hospital staff unable to work as Victoria records 37,994 new cases of COVID-19](https://www.9news.com.au/national/coronavirus-victoria-updates-new-case-numbers-restrictions-return/124f6595-3287-492e-8d5a-5c48a80fabee)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
