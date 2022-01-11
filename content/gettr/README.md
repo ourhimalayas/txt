@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/11/2022 2:46 AM (UTC)`
+
+EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第四节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
+![img](https://media.gettr.com/group15/origin/2022/01/11/02/7edaf34d-0893-df1f-0cef-2c95be624d47/out.jpg)
+
+---
+
 `@miles 1/11/2022 2:38 AM (UTC)`
 
 1/09/2022 Miles Guo: Zeng Qinghong is the real master of the CCP’s politics. He has a deep understanding of the anthropogeography of China and supernatural powers. His insight of political rivals is unparalleled within the CCP. Since the death of Mao Zedong, Zeng has been the sole representative to worship the Kunlun Mountains in person, on behalf of the CCP.<br/><br/>1/09/2022 文贵直播：曾庆红是中共的政治高手，他对中国的地理人文了如指掌，不但深谙风水和奇门遁甲，还对政治对手有深度了解。毛泽东死后，曾庆红是唯一代表中共去昆仑山祭拜的人<br/>
@@ -152,13 +161,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1/09/2022 Miles Guo: What’s happening in Kazakhstan is a counterattack of the US and West against the CCP and Russia in response to the BLM riots instigated by them, and something big will happen in the neighboring countries of Communist China such as Vietnam, Cambodia, and Singapore. It’s already begun in Bangladesh!<br/><br/>1/09/2022 文贵直播：哈萨克斯坦的事件是美国和西方针对中共和俄罗斯煽动的BLM暴乱的反击，越南、柬埔寨、新加坡等中共邻国将有大动静，这在孟加拉国已经开始！<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/10/03/81e3063d-d8c3-68e0-b22c-2740527dbaab/out.jpg)
-
----
-
-`@miles 1/10/2022 3:00 AM (UTC)`
-
-1/09/2022 Miles Guo: The intelligence regarding the CCP’s National Security Commission is within the reach of the New Federal State of China. That’s why only we can give the world advance warning of the CCP’s evil plans to be implemented in places like Kazakhstan and Afghanistan. However, these warnings were often not taken seriously due to people’s fear of death<br/><br/>1/09/2022 文贵直播：新中国联邦掌握了中共国安委的情报，因此只有我们能向全世界提前预警中共针对哈萨克斯坦、阿富汗等地的邪恶计划，但人们往往因为贪生怕死而不把它当回事<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/10/03/97742fee-4fba-da8a-d8a4-0e1e5eefbc27/out.jpg)
 
 ---
 
