@@ -2,60 +2,46 @@
 ---
 
 
-## 参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉,恶心
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1845309/)
+## 郭文贵先生2022年1月10日盖特视频（9分09秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1845390/)
 
-参议员瑞克·斯科特： 看看英特尔，一家美国公司，急不可耐向共产中国道歉。恶心。 英特尔如何解释在赞助 2022 年北京奥运会的同时在国内支持“社会正义”？他们显然不介意双重职责来帮助共产主义中国粉饰种族灭绝。 【转推：指英特尔在一封给供应商的公开信中提到新疆的部分】
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-750.png)
+尊敬的战友们好啊！1月10号，七哥正在这穿着睡衣，努力的，辛勤的工作着啊。哎呦，我的妈呀，还有这个老是敏感啊，老是敏感啊。
 
+兄弟姐妹们，这个国内的这个西安、安阳、天津，哎呀，这个到处啊，传来这样那样的信息啊，灾难，就共产党把中国人当牲口来管理啊，真的是我觉得欧洲和美国的牲口都比中国人幸福。没办法，这个国家已经到了这个时候，就是老百姓已经完全不知道什么叫人啊，人和畜生怎么，怎么分别了，太多这样的事情了啊。现在是政治斗争，地方政府一切都是掩盖啊，都为了所谓的狗屁冬奥啊。中国老百姓从来不问政府这么做合法吗？这样做对吗？啊，他们为什么这么做，从来不会问的啊，这就是中国人。没一点办法。一点办法都没有，可怜至极啊，可怜至极，从来没有想过，政府从来不挣一分钱，所有的财富都是老百姓的，政府是给老百姓服务的啊，然后政府不是你的爹娘，也不是你的主人，可是政府怎么对待中国老百姓呢？哎呀，真是痛苦。
 
+这几天直播完以后，很多国内的战友说很喜欢这几次直播，但是我希望战友们千万别把生活跟这玄学啊，跟大自然的力量啊划等号。就是你先别觉得有昆仑山啊，有喜马拉雅山的各种神秘和超自然的，和我们正常人所没有的力量啊，例如磁场，是吧？地球在天上挂着，你以为你自己就在天上挂着，不是那么回事儿。我们人还得遵循大自然的规律啊，当下还得讲科学，而且要把自己的这个肉体之躯和这个自然啊，合理的科学的看待和对待，这才重要啊。新中国联邦人，我们已经是保命啊，没打疫苗。保财，很多人现在已经发财了啊。然后报仇。我们就已经收拾我们的人，绝大多数全完蛋了，共产党已经是半条命没了。
 
-> Look at [@intel](https://twitter.com/intel?ref_src=twsrc%5Etfw), a U.S. company, jumping to apologize to Communist China. Gross.
-> 
-> How does Intel explain supporting "social justice" at home while sponsoring the 2022 Beijing Olympics? They clearly have no issues with pulling double duty to help Communist China whitewash genocide. [https://t.co/k7UQ0WC12S](https://t.co/k7UQ0WC12S)
-> — Rick Scott (@SenRickScott) [January 10, 2022](https://twitter.com/SenRickScott/status/1480604202611220486?ref_src=twsrc%5Etfw)
+我们接下来还会让人们更加的啊，这样整个的新中国联邦和我们同胞们。在消灭共产党以后，让我们有更多的时间，更多的力量啊，客观的来面对大自然的力量和人类的存在的来源，和未来的去处和过上更加美好，和超越人类现在，不是现实，是现在的比较真实的生活，而不是超越现实。这就是人类科学和文明进步的一个必须发展的一个过程。
 
+那么现在共产党呢整个是代表了上帝，代表了神啊，代表了宇宙，“宇宙无限大，地球是一粒沙，你是沙中的一粒沙，我想干啥就干啥”是吧？就像在西安、在天津、在河南、在武汉、在所有地方做的，他就是一帮流氓，就是一帮土匪，一切都为了他的统治，谁也没有想过，他们在统治这种快感中啊，失去的是你的生命和你的家人。他绝对不是为了你好，他是在向别人秀肌肉，展示他的统治管理能力，然后服务于他的内部的政治斗争，这都是根本啊。
 
+所以说兄弟姐妹们永远我们要进入真相，真假和善恶是最关键的。你看我今天到现在，我就看这几个股市啊，全球的股市和经济状况，全世界啊，打印钱，喷钱出来啊，印发钞票出来，他们股市往上涨了，共产党搞了所谓的百分之八的经济增长，它的股市什么样子，香港股市什么样子，香港的民生什么样子？现在中国老百姓从过去的所谓的要称霸世界啊，富过世界啊，买遍世界的，现在有饭吃，有点青菜就不错了。怎么样？王岐山说让中国人吃草，西安人吃草，你能吃草都不错了，你能吃草，对不对啊？
 
-众议员迈克·沃尔兹： 当我们的国家面临来自阿富汗、伊朗、中共、俄罗斯、朝鲜和其他国家的威胁时，我们要时刻准备着，这至关重要。 很荣幸能成为共和党三军委员会下辖的武装准备委员会成员，来监督我们军队的训练，后勤等。
+所以说，兄弟姐妹们，我们一定要看到啊，要想到，短短的这一千多天，我们的经历，对共产党和世界的认知，对经济的认知，对自己的认知。接下来啊，我相信啊，我就这两天我相信这一周啊，或者下一周之间，美国欧洲关于疫苗这个问题的合法性，在法律上，在媒体上，在医学上会有重大的突破，一定会停的，一定会停的啊，一定会停的。这种流氓灾难上再继续下去，地球就真没了啊，地球就没了，想当啥都当不了了。
 
+所以说兄弟姐妹越是这个时候，我们的战友一定要记住啊，防病毒从昨天到今天，我们太多战友就是,由于个人的隐私问题，我不能说,太多战友染上,太多了，太多朋友了，所以说不能出去,而且越是这时候你不要太熬夜，十二点以前睡一觉，十二点以后醒来可以干点事儿，完了接着一定要睡。你看我昨天晚上我是十点半睡的觉，我到了这个一点钟醒的，然后一直工作到大概将近五点钟。五点钟我又睡了大概是七点多钟我又醒了啊，我睡得很好，然后我就坐着开始看这些信息，工作,给人家回复,就越是这时候，你要高效高质量的工作，而不是熬夜。
 
+你都共产党灭了，疫苗灾难停了，你身体没了，不就完了吗？是不是？这是个基本的常识啊？大胆的做自己，做一个健康的善良的，辨别是非真假、辨识善恶的人，千万要活在一个真实的啊，非常现实的生活当中，而不能活在不现实生活当中，这是基本常识。我们的好日子天下第一，你不把这些安排好，怎么能行呢？像疫苗的问题，马上就要停了，是吧？你挺不到最后，你就被疫苗给毁了。还有现在，你现在我们看到的病毒这么肆虐世界，你不要去跟他试去，不要找任何理由，能挡就挡，能不过就不过，兄弟姐妹们啊，太可怕了，太可怕。
 
-> As our country faces threats from Afghanistan, Iran, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, North Korea, & others, it’s critical we're always ready.
-> 
-> Honored to serve as Ranking Member of the [@HASCRepublicans](https://twitter.com/HASCRepublicans?ref_src=twsrc%5Etfw) Readiness Subcommittee with oversight of our military's training, logistics & more. [https://t.co/FYFyL1L4DO](https://t.co/FYFyL1L4DO)
-> — Rep. Mike Waltz (@michaelgwaltz) [January 10, 2022](https://twitter.com/michaelgwaltz/status/1480598431634710536?ref_src=twsrc%5Etfw)
+然后现在国内这个每时每刻啊，整个国家就像个火药桶一样随时爆发，整个国家老百姓有的像猪狗一样的，就是活着，是吧？就要活着，有吃的，有喝的就活着，然后抱着个电视机看那些泡泡、共产党洗脑的电视剧啊，那样还不如不活着呢，是吧？有啥意思呢？啊，剩下的有点想法的人，现在生不如死，是吧？生不如死。
 
+刚刚从国内，这个出来，逃出来的战友，到了国外以后，他就说“七哥，在国外，我哪怕活了一星期，活一个月我就不白活了，我也知道外面的世界文明和科学到什么样，外边世界不是完美的，但绝对它不是地狱，像中国人就是活在一个完全一个假象的，物质的，啊互相攀比的，无聊的啊，一个完全不知道，跟世界完全脱轨的啊，就是被洗脑的这么一个地狱的世界里啊”，这就是现实就是现实。
 
+那么现在呃，这个日本的朋友也跟我在说，说最近的日本的这个也有抬头啊。所以在日本的战友们一定要小心，一定要小心啊，一定要小心，在任何地方都要小心！包括在澳大利亚，简直是疯了啊，疯了，疯了，因为但是呢，这就是人类在停止疫苗灾难和邪恶势力下必须要付出的代价。我们爆料革命和新中国联邦的战友不要成为了代价的一部分，这就是七哥衷心希望的。
 
-参议员兰德·保罗： 因此，如果您感染了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)，您仍然可以在医院工作，但没有感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 且未接种疫苗的医生和护士会被解雇。我是唯一一个意识到这种荒唐情况的人吗？ 【附abcnews的文章:卫生官员让感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的员工继续在医院工作】
+哎呀，我这刚才看到了这个我们好多的过去的基金里边儿，最近呢，大量的出手自己手上的囤货啊，投资，还有很多人都在赎回自己的长期投资，很可怕，啊很可怕。我是不知道这个这个背后的动机，除了是共产党倒闭，还有这个呃，整个股市经济危机还有什么动机。但是我刚才我看了一下，太多了，这有点不正常了，我还在了解当中啊。我不知道这个最近这几天，经济会发生什么事情。
 
+但不管如何啊，他们越坏，咱们越好，那咋弄嘞，你说？没法弄。哎呀，我这真是，我觉得新中国联邦人太幸福了，啥都不说了，兄弟姐妹们啊，这个我还马上，我要去赶快去冲凉洗澡啊，还要开会啊啊。
 
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-> So you can still work in a hospital if you have active COVID but doctors and nurses who don’t have COVID and are unvaccinated are fired. Am I the only one who perceives the absurdity of this scenario?[https://t.co/8vHumvcYoo](https://t.co/8vHumvcYoo)
-> — Senator Rand Paul (@RandPaul) [January 11, 2022](https://twitter.com/RandPaul/status/1480711614240337923?ref_src=twsrc%5Etfw)
+郭文贵先生2022年1月10日盖特视频链接： [https://gettr.com/post/pnh23d6a79](https://gettr.com/post/pnh23d6a79)
 
-
-
-参议员卢比奥新闻办公室： 卢比奥:英特尔在向北京屈服后，不应该得到美国政府的芯片支持资金。 （转卢比奥官网声明）
-
-
-
-> RUBIO: Intel should not get CHIPS funding from U.S. government after caving to [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/0mN77T5KR1](https://t.co/0mN77T5KR1)
-> — Senator Rubio Press (@SenRubioPress) [January 10, 2022](https://twitter.com/SenRubioPress/status/1480680900694319115?ref_src=twsrc%5Etfw)
-
-
-
-国务卿布林肯： 中华人民共和国对美国国际宗教自由委员会四名成员的制裁，是中国对普世权利的又一次冒犯。对美国国际宗教自由委员会成员的制裁，不会隐藏或转移世界对中国在新疆侵犯人权和暴行的关注，包括正在进行的种族灭绝。
-
-
-
-> The PRC’s sanctions on four members of the U.S. Commission for International Religious Freedom constitute another PRC affront against universal rights.
-> — Secretary Antony Blinken (@SecBlinken) [January 10, 2022](https://twitter.com/SecBlinken/status/1480620087547678728?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
