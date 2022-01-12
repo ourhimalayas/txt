@@ -2,37 +2,30 @@
 ---
 
 
-## 乌比-戈德堡“震惊”于感染COVID，尽管三次接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849411/)
+## 美国商会会长：应对中共国挑战，美国必须竞争
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1849454/)
 
-据《summit.news》作者：Paul Joseph Waston，2022年1月6日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-829.png)图片来源：盖蒂图片社
-《观点》节目主持人乌比-戈德堡对感染COVID-19表示“震惊”，尽管她已经接种了三针疫苗。
+![资料图：美国商会总部楼顶的美国国旗（2021年12月6日）](https://gdb.voanews.com/2E292908-6452-4677-A895-D8E428033824_cx0_cy5_cw0_w1023_r1_s.jpg)资料图
+据美国之音1月12 日报道，美国商会会长苏珊妮·克拉克表示，美国的商业状况是竞争。竞争对美国的未来至关重要。苏珊妮从市场竞争、人才竞争、全球领导力竞争和观念竞争四个方面来阐述竞争对美国未来乃至世界的重要性，包括应对中共国的挑战。商会同时警告政府，过多的市场干预和监管将会扼杀竞争。苏珊妮还提到美国目前面临的劳工短缺问题，呼吁增加美国的合法移民人数。
 
-这位女演员和电视节目主持人在圣诞节期间感染了病毒后，错过了节目的第一集，不得不通过远程直播从家中出现。
+中共国正在继续崛起成为一个强大的商业和战略竞争者。新年伊始，由中共国牵头、覆盖整个东亚的区域全面经济伙伴关系协定(RCEP)正式生效，中共国可以更好地进入全球增长最快的市场。中共国还成为非洲和拉丁美洲很多国家的第一大贸易伙伴和投资来源国。
 
-据戈德堡说，她“几周前离开了，就在节日前，因为我身边的某人被检测出冠状病毒阳性”。
+美国有竞争，中共国也有。只不过中共国是恶意竞争，是在政府监管和控制下的恶性竞争，是有毒的生存环境。中共国的对外扩张也是输出有毒的理念。针对中共国的挑战，美国需要采取针对其他国家不同的策略。
 
-“这是一个冲击，因为你知道我已经打了三针疫苗，没有去过任何地方，没有做过任何事情”。
+新闻参考链接：[https://www.voachinese.com/a/us-chamber-of-commer-competition-is-critical-to-us-future-20210111/6392649.html](https://www.voachinese.com/a/us-chamber-of-commer-competition-is-critical-to-us-future-20210111/6392649.html)
 
-当然，戈德堡在接受了双重疫苗接种和增强针后仍被感染的事实一点也不令人震惊，因为病毒仍在接种者中传播。
-
-丹麦的一项新研究发现，Omicron变体在接种疫苗的社区中传播得更快。
-
-根据该研究的摘要，“Omicron在那些完全接种疫苗的人中的传播速度比 Delta快，在那些接受过加强针的人中传播速度甚至更快”。
+编辑：胖丁
 
 * * *
 
-文章来源: [https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/](https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
