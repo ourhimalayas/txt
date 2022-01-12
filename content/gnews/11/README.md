@@ -2,19 +2,30 @@
 ---
 
 
-## 河南一检验中心负责人实施引起传播病毒或有传播危险的行为 被警方立案侦查
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849966/)
+## 俄军队将在两天内哈萨克斯坦撤军
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850000/)
 
-撰稿：祥瑞舟
-编辑/上传：追着曙光跑
+翻译：美哥
+编辑：MSGZ
 
-据中共新浪新闻1月12日的报道 1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-14.47.17.jpeg)
-许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/26AMFOH@0SU7N@32R0C-1.png)图片来源todayhot.news
 
-另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
 
-信息来源：[河南1人违反传染病防治法被抓 公司负责郑州三分之一核酸筛查任务](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
+1月11号，根据合众国际社（UPI）报道，周二，哈萨克斯坦总统卡西姆若马尔特·托卡耶夫宣布负责帮助镇压抗议运动的俄罗斯军队将在2天内开始撤离，托卡耶夫在国会声称俄罗斯为主力的盟友军队在哈国维和不会再超过10天。鉴于政府目前控制了局面，外国军队的“和平使命”已经圆满结束。所有的地区已经恢复了稳定。
+
+上周，托卡耶夫依据独联体集体安全条约组织请求俄罗斯军事援助，该条约组织是一个跨欧亚的，由前苏联6个国家组成的军事同盟。增援的部队包括白俄罗斯、亚美尼亚、塔吉克斯坦、吉尔吉斯斯坦以及俄罗斯。
+
+托卡耶夫在暴乱当日称抗议人群为“恐怖分子”，指责他们企图颠覆政府。1月10号，托卡耶夫宣布为暴乱中丧生的平民举行国家默哀。此次抗议政府的运动因油价上升而起，至少164名平民丧命，数以千计的人被捕。托卡耶夫还称因为外国军队的介入，首都努尔苏丹的安全部队才能腾出手来，去各个地区平息暴乱，但外国军队没有直接参与镇压哈萨克斯坦公民。
+
+原文链接：[https://www.upi.com/Top\_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/](https://www.upi.com/Top_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
