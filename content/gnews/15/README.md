@@ -2,45 +2,31 @@
 ---
 
 
-## 炸裂消息：最高层协调的蓄意过失杀人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
+## 七哥谈莲花生佛和七的关系（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852270/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
+来源：郭先生2022-01-09直播09：00：19摘录
 
-周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
+它真正地是普陀山记载当中是唐朝，但是在唐朝之前，它这个真正地是，旺在明朝，毁在明末。清朝一毁，清朝再建。然后到了民国再旺，然后共产党，然后再烧，烧完再建，建于曾庆红、江家上海帮，实力起来。你看七哥。你到真正地普陀道场，你真的了解中国的佛教的时候你要了解，唐朝，唐僧，哈哈，唐僧就是我们说的唐玄奘，怎么他的徒弟把皇帝的公主给搞了，都搞几次大肚子了，最后是没想到唐僧的徒弟啊，搞了几个，把公主给搞了，这不是灭佛呀？大家你们要看到，历史上五次灭佛，这最大的几个灭佛的人，然后这几个立佛的人，最后是在西藏的佛教，是怎么，西藏佛教，谈蓝莲花要谈什么？莲花生佛，莲花生佛就是今天泥泊尔、不丹国的整个的一切。莲花生佛是什么？跟七有关系，好好查查莲花生佛跟七啥关系，跟蓝莲花有关系。七个化身、七个菩萨像。你要到这些国家你没去过你是不懂的，我跟你讲你听不懂，七哥都去过，所以七哥从昆仑山脉、新疆、吉尔吉斯坦、哈撒克斯坦，是吧，整个帕米尔高原到喜马拉雅山，喜马拉雅山整个印度，印南、印北、印西、印度洋到中东、不丹，是不是，我全都去过。你们谁去过？我去过这地方，我公司、我家人从来我回来没有一次跟他们聊这，因为他们谁也听不懂，聊聊饺子可以，聊这个是听不懂的。这是为啥共产党不让你知道，没有共产党跟你谈《山海经》，没有共产党跟你昆仑山脉，没人跟你谈帕米尔高原，但是共产党，我告诉你，全人类最牛的水，如果佳佳、小王子、小飞象、小飞侠，你们想生宝宝生得好，又没打疫苗，未来先喝点儿帕米尔高原的水，那真是万年的水呀，它是印度洋被挡下来的水，在整个石头里边儿留下来的，和大西洋的水整个未蒸发留下来的，在沉寂之后，从下面再挖出来的水，那真的是万年的水呀！七哥在盘古的时候，是天天用帕米尔高原的水煮饭吃的，所以说七哥不可能是郭3秒，怎么的也得郭3.5秒，因为帕米尔高原的水，那真的就像今天吃青蒿素的感觉似的。
 
-新公布的军事文件与福奇博士的宣誓证词相矛盾。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-真相工程发布：
+**关注我们**
 
-- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
-- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
-- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
+Gettr 账号
 
-“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
-
-周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
-
-马龙博士称它“比五角大楼的文件更重磅”。
-
-沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
-
-娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
-
-**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

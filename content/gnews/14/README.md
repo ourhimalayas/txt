@@ -2,32 +2,37 @@
 ---
 
 
-## 七哥说“共产党是绝对天下最迷信”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852180/)
+## 欧盟监管机构：COVID 加强针“可能会产生不利影响”，“最终会削弱免疫力”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1852274/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Man-Gets-COVID-Vaccine-Darwin-Mask-817x429-1.jpg)图片来源：网络
+来自NATIONAL FILE星期三1月13日的新闻报道：
 
-来源：郭先生2022-01-09直播08：45：26摘录
+《国家档案》（National File） 去年 12 月报道称，以色列专家警告称，注射 COVID-19“加强剂”会导致所谓的“免疫系统疲劳”。
 
-小飞侠，你看到这个神奇了吧？你没有去过，你看过那个祭坛你会吓死。拍电影，1万个电影都没法形容。共产党是真有钱呐，中国人饿死人的时候，就那个祭坛的修建就像一个真的天上一个飞碟一样，而且按照八卦的形式，八角的八卦阵布出来，一个大天阶“啪啪”地下来。天阶是多少阶呢？999阶。所有的驻兵什么属相都可以去，两个属相你不能去，什么属相不能去知道吧？大家知道吧？属虎的不让去，知道吗？属虎的不准去，第二个属猪的不让去。为啥不让去？大家去查查去吧。然后整个上面的当兵的，从来没有退过伍的。你看看他们都去哪儿了？所谓的国家机密，特种兵，比酒泉还夸张。你们都去过吗，你没去过。你到了那你看到了山川大河磁场牛羊。七哥几乎是…我不知道现在啊，我当时90年代末我去那地方的时候，到现在我连你嫂子都不知道我去过，没有人知道我去过，我去几次，我跟军队的人就带我去，当时说你是唯一的不是军队和最中央特批来到这里的。你不坐飞机你不可能你上去看到那么全面。你在下面看，累死你了，有一万条腿也不行啊，你三条腿五条腿也不行啊，七哥是弄了飞机“呼啦呼啦呼啦”看过多次了，然后我知道了共产党是绝对天下最迷信，原来天机啊还有这些事情。所以你问的好，昆仑山是共产党的权力的来源，神秘的山。盘古和昆仑山的关系，一会儿再看看啊，一会儿看看喜马拉雅山峰啊。
+现在，欧盟监管机构也加入进来，警告称注射加强剂可能会“削弱”免疫系统。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+12 月，《国家档案》在《纽约时报》发表的一篇文章中报道，专家们承认，过多的 COVID-19 加强注射实际上可能会导致“免疫系统疲劳”，从而“损害”人体对抗病毒的能力。
 
-**关注我们**
+现在，彭博社报道称，欧盟监管机构也正参与，一起拉响警报。
 
-Discord 账号
+欧盟警告说，“频繁的 Covid-19 加强注射可能会对免疫系统产生不利影响，并且可能行不通”，并补充说，“每四个月注射一次可能最终会削弱免疫系统并让人们疲惫不堪”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+EMA ‘生物健康威胁和疫苗战略’负责人 Marco Cavaleri 在周二的新闻发布会上表示，加强针“可以进行一次，或者可能两次，但不应该不断重复”。 “我们需要考虑如何从当前的病毒大流行环境过渡到地方病的环境。”
 
-Gettr 账号
+因此，他们现在建议人们扩大注射疫苗的时间间隔，并在决定再次注射时考虑结合本地的冬季流感开始时间。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+欧盟的警告是针对辉瑞和 Moderna 首席执行官们的主流媒体发起了的一场推动第四次 COVID-19 疫苗注射的运动。
 
+点评：事实已经证明了，福奇和大药厂的CEO们不得不承认了的， 疫苗不好用，没有效！那么为什么暗黑势力支持的各国政府还在赤裸裸的大力强制疫苗呢？不值得深思吗？
+
+原文链接: [https://nationalfile.com/eu-regulators-covid-boosters-adversely-affect-eventually-weaken-immune-system/](https://nationalfile.com/eu-regulators-covid-boosters-adversely-affect-eventually-weaken-immune-system/)
+
+编辑/发布：LILY
+
+20220112
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
