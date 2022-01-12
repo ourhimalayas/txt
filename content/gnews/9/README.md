@@ -2,19 +2,20 @@
 ---
 
 
-## 河南一检验中心负责人实施引起传播病毒或有传播危险的行为 被警方立案侦查
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849966/)
+## COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1849995/)
 
-撰稿：祥瑞舟
-编辑/上传：追着曙光跑
+**疫情關注組 / 發佈時間｜12/1/2022**
 
-据中共新浪新闻1月12日的报道 1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-14.47.17.jpeg)
-许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
 
-信息来源：[河南1人违反传染病防治法被抓 公司负责郑州三分之一核酸筛查任务](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
+外媒报道称，比利时一座位于南极的科研站（名称：Princess Elisabeth Polar Station），即便与外界隔绝仍发生25例确诊新冠病毒，确诊人数占全部人员的三分之二。 报道明确指出科研站内的工作人员已完全接种疫苗。
+
+该科研所第一例确诊是发生在12月14日，将确诊者隔离、人员已全面接种疫苗仍无法阻止病毒在科研站内扩散。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Blue-3D-Grid-Artificial-And-Intelligence-Science.png)
+來源｜[MSN](https://www.msn.com/en-us/news/world/antarctic-station-hit-by-covid-19-outbreak/ar-AASkXX4)
 
  
 
