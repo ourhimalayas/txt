@@ -2,22 +2,31 @@
 ---
 
 
-## 中俄外长电话会谈 哈局势成焦点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849161/)
+## 哈萨克斯坦总统：俄罗斯军队将在两天内开始撤离
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1849561/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-822.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220111/K10013424551_2201111531_2201111611_01_02.jpg)
-1月10日，中共外交部长王毅与俄罗斯外长拉夫罗夫举行了电话会谈，就哈萨克斯坦发生的大规模抗议活动的紧张局势交换了意见。王毅表示，“支持”俄罗斯领导的“集体安全条约组织”向哈萨克斯坦派遣维和部队。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_10.png)
+美国《国会山报》1月11日报道，周二，哈萨克斯坦总统托卡耶夫宣布，俄罗斯维和部队将在两天内开始撤离。
 
-据悉，习近平政府对哈萨克斯坦的动荡可能蔓延并波及中共国则是十分警惕。哈萨克斯坦与新疆维吾尔自治区接壤，约有160万哈萨克族人生活在中共国，主要集中在新疆自治区，因此，混乱动荡极可能蔓延开来。哈萨克斯坦是中共国“一带一路”倡议的要塞地区，有通往中共国的天然气管道，在能源安全方面的地位不可或缺。
+“集体安全条约组织维和部队的主要任务已经圆满完成，”托卡耶夫告诉哈萨克斯坦议会。 “两天后，集体安全条约组织联合维和特遣队将开始分阶段撤离。特遣队的撤离过程将不超过10天，”他补充说。
 
-看来王毅与俄外长会谈明为支持俄罗斯的维和之举，实则担心“祸及新疆”，激发起中共国内人民的反抗意识。
+目前，估计有 2000 至 3000 名俄罗斯士兵以及大约 250 件军事装备在这个与俄罗斯联邦接壤的国家执行安全任务。白俄罗斯军队和集体安全条约组织其他较小的特遣队也参与了该任务。
 
-信息来源：[**中国、ロシアのカザフ介入を「支持」　飛び火を懸念　外相電話会談**](https://news.yahoo.co.jp/articles/0fcba797eb4eeeba85c7b769e9b01f5cdba92038)
+哈萨克斯坦当局表示，已有 10000 人因抗议活动被捕，随后可能还会有更多人被捕。
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+抗议者游行反对前总统纳扎尔巴耶夫长达数十年的政治控制，上周爆发示威活动时，纳扎尔巴耶夫被移出了强力的国家安全委员会。
+
+托卡耶夫指责他的前任纳扎尔巴耶夫创造了一个“富有精英阶层”，该阶层一直在贪婪地消耗国民经济，导致诸如最初引发抗议的燃油价格上涨等危机，托卡耶夫进一步将其（动荡）归咎于企图破坏其稳定的外部势力。
+
+托卡耶夫还逮捕了国家安全委员会（NSC）负责人卡里姆·马西莫夫（Karim Masimov）。托卡耶夫表示，国家安全委员会未能利用资源平息抗议活动。
+
+新闻来源：
+
+[https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days](https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days)
+
+[https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev](https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

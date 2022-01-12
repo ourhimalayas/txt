@@ -2,22 +2,25 @@
 ---
 
 
-## 金正恩视察导弹试验现场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849694/)
+## 有声|GTV新闻访谈简报|2022年1月10日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849716/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-838.png)[图片来源](https://news.yahoo.co.jp/byline/takahashikosuke/20220112-00276891#:~:text=%E5%8C%97)
-北朝鲜的媒体《劳动日报》1月12日头版刊登了一张金正恩视察导弹试验现场的照片，这是他自2020年3月以来的首次现场视察。报道高调渲染11日发射的导弹在空中分离及目标方位确定方面都有了相应提升。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0110text-SC.png)
+文字版原文：[GTV新闻访谈简报|2022年1月10日晚](https://gnews.org/zh-hans/1845339/)
 
-朝鲜已在2021年9月28日及本月5日，11日3次短期内发射了3枚弹道导弹。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-去年，北朝鲜党代会制定了“国防科学发展和武器系统发展五年计划”。金正恩指示，“朝鲜半岛不稳定的军事环境和国际形势要求我们大力推动加强国防能力，不能有丝毫拖延”。为了加强自身的防御能力，北朝鲜正在赶时间急于完成高超音速导弹的部署。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-信息源：[北朝鮮、極超音速ミサイルの6日ぶりの再発射を発表　金正恩総書記が現場視察](https://news.yahoo.co.jp/byline/takahashikosuke/20220112-00276891#:~:text=%E5%8C%97)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
