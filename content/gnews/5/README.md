@@ -2,61 +2,45 @@
 ---
 
 
-## 【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1851762/)
+## 起来反抗！封控成中共新杀戮模式
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1851808/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：香草山健身部 – 杉杉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+有谁为三年大饥荒、文革大杀戳，那上亿无辜被活活饿死、被活活打死、折磨诬蔑冤屈死去的孤魂野鬼，讨回公道？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+没有昨天良知正义醒悟反抗与呐喊，就有今天被共产党的病毒、毒疫苗，折磨摧残得奄奄一息。面临着各种的封锁布控，重踏复辙又演绎着昨日的悲哀！
 
-在中共病毒溯源、彻底消灭CCP以前，中共不断投放病毒，实验性的COVID-19疫苗既不能预防感染，也不能减少死亡，注射中共病毒疫苗只会带来更多感染和死亡。
+当共产党伟大的剁手、人民的大救星毛贼东，站在天安门城楼子上吆喝着共产党成立了那刻起，毛魔头引领着这个恶党，开启了绞肉机般的杀戳模式，从此一刻也未停止过。
 
-冰岛这个只有36.8792万人口的国家，COVID-19病毒疫苗接种率相当高。
+牠创造了一个个大灾大难的丰功伟绩，所谓的三年“自然”灾害饿死几千万人，待老百姓还没从灾后饥荒的噩梦中醒来，共党毛贼又开启了一场更加残酷的文化大革命。这场运动触及到了各个角落，把全国男女老少都牵连了进去，影响了几代人的伤痛，这场内斗又夺走了至少近八千万的生命，这沉痛的代价，共产党习习屁不但不悔过反醒，反而更变本加厉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-doses-by-age.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled.001-4.jpeg)
 
-目前，冰岛已经向公众注射727,886剂疫苗，平均每人注射了1.974剂，291,973人至少接种一针疫苗，高达总人口的79.17%，284,827人接种了两针疫苗，达总人口的77.23%，210,230人接种了加强针，达总人口的57.01%，12岁以上人口中，91%至少打了两针疫苗。
+从共产党的毛年代，各种人造灾难中死亡上亿多的墙民百姓们。再看今天的共产党习习屁，投毒、制造毒疫苗，在这二年期间，所发生那匪夷所思恐怖的一幕幕，复制着重走毛魔的回头路。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Vaccinations-in-Iceland-statistics.jpg)
+毛贼东制造的六十年代灾荒年，让中国百姓过着共产主义的生活魔式，吃公共食堂，可悲的是供给一家人的饭菜，还不够一个人的口粮。被饿疯了的人们，偷偷地在家开灶做点吃的，有胆识的就带着家人加入了闻名的饥荒大逃亡。此时的毛贼共党一声令下，全国封锁收缴各家各户的锅碗瓢盆并砸毁炉灶，如有违抗格杀勿论严惩不待。
 
-冰岛注射的疫苗主要是Pfizer/BioNTech，另外还有Oxford/AstraZeneca、Janssen及Moderna疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-vaccinated-by-vaccine-given.jpg)
-5~15岁的年轻人和80岁以上的老年人注射的基本都是Pfizer/BioNTech疫苗。
+今天的共产党恶魔习习屁，用病毒、毒疫苗来控制着十几亿墙国愚民们，王八七三甚至叫嚣着大不了让愚民百姓吃上三年草，也只有共产党的大官员能放出这旷世绝话。依照共产党一贯的执政手法这绝对不是危言耸听，从三年大饥荒到文革的互相残杀，六亲不认的杀戳用在了对付二十一世纪墙民愚民百姓们的身上。
 
-然而，1月10日，冰岛新增确诊病例居然达到了3590起，接近全国总人口的1%，全国累计已有40,037人曾经被中共病毒感染，占全国总人口的10.85%。其中48.5%的感染发生在最近20天之内（19,147人）。
+大神习太阳，模仿着牠的贼父毛魔一声令下，用更加残忍卑鄙无耻的手段，将人封死，焊死，困死，饿死，病死，及各种死法要人们死在家里。共产党习习屁用这种方式控制全国百姓们。牠们就怕，害怕愚民们醒来，放火烧了共产党习习屁中南坑这群老僵尸。对百姓喊着欺骗谎言的口号，“爹亲娘亲不如党亲”，“人民的公仆为人民服务”，实际上牠们是恶魔是人类的罪人，不要对牠们抱有一丝丝的希望，牠们正在干着灭国灭民灭种的罪恶勾当。起来反抗，十四亿人就是吐一口吐沫也能把共产党中南坑这群老僵尸们淹死。临死前也要把牠们捎带走。
 
-注射COVID疫苗导致免疫力下降，疫苗灾难正在上演！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Iceland-Total-Covid-19-Cases.jpg)
-如果疫苗有效，每10万人中，注射两针疫苗的人被中共病毒感染的机率应当低于末打过疫苗或只打过一针疫苗的人。下表是自去年12月20日到今年1月5日，冰岛每10万人确诊率统计数据：
+![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/two-doses-vs-one-dose.jpg)
+**校对/发稿：童谣**
 
-注射两针疫苗的人，无论大人还是小孩，从12月20日起，10万人新增确诊率明显比只打一针或未打针的人高。
+**更多资讯，更多关注**
 
-如果把1月5日的数据和去年12月20日的数据做一个对比，每100,000名接种加强针疫苗的成年人的感染率比去年12月20日高出11.4倍，而打了两针的成年人感染率则高出7.1倍，未接种疫苗者的感染率仅增加了2.6倍。在儿童中，我们看到了类似的变化，完全接种疫苗的人数增加了9.5倍，而未接种疫苗的人数只比去年12月20日高出2.4倍。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/21-12-20-vs-22-1-5.png)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-根据社会学常识，这种变化很难用某个群体的行为变化来解释，群体之间如此突然而决定性的行为变化是不可能的。测试也不太可能突然在某些群体而不是其他群体中急剧增加。冰岛这种民主国家，也不太可能出现专门针对未接种疫苗的人群，有意长期性的、高达70~80的统计错误。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-只能说明，注射这种试验性的疫苗有毒，既不能预防感染，也不能减少死亡，只能降低身体免疫力。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-中共病毒疫苗就是杀手凶手，千万不要注射毒疫苗！
-
-参考资料：
-
-[Double Vaccinated Have Double the Infection Rate, Data From Iceland Shows](https://dailysceptic.org/2022/01/09/double-vaccinated-have-double-the-infection-rate-data-from-iceland-shows/)
-
-[The complete Our World in Data COVID-19 dataset](https://github.com/owid/covid-19-data/tree/master/public/data)
-
-[COVID-19 vaccinations in Iceland – statistics](https://www.covid.is/statistical-information-on-vaccination)
-
-[COVID-19 in Iceland – Statistics](https://www.covid.is/data)
-
-[does vaccination increase the probability of infection](https://thorsteinnsiglaugsson.wordpress.com/2022/01/09/does-vaccination-increase-the-probability-of-infection/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,25 @@
 ---
 
 
-## 墨西哥总统再次感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851530/)
+## 奥密克戎在南非之前就已存在于加拿大废水中
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851557/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.53.59.png)
-对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
+采编：文莱           编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-2.jpg)
+据《温哥华太阳报》1月10日报道，加拿大[达尔豪斯大学]的研究人员在南非报告“奥密克戎”变体之前，就于去年11月中旬在新斯科舍省的废水中检测到了该病毒。
 
-此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+报道称，该省第一例奥密克戎感染病例于12月13日被确诊，这距离11月24日南非的该病毒报告仅有几周时间。自去年12月以来，该团队一直在检测全省四个主要污水处理厂的样本。由于废水提供了先于病毒感染者所出现的早期预警信号，加之“奥密克戎”比Alpha和Delta变体更易传播的特点，因此该类型的测试将成为未来追踪病毒传播的关键方法。
 
-即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
+以上事实清晰表明了“奥密克戎”病毒是中共当局再次故意投放到世界各地的生物武器，也无疑验证了新中国联邦此前疫情信息来源的准确性和对中共政权邪恶手段的预见性。
 
-参考链接：[Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+发稿： 苦尽甜来 (文來）
 
-总编：
-编辑：
-校正/发稿：呼吸的雾霾（文小呼吸）
+[原文链接](https://vancouversun.com/news/canada/omicron-was-in-nova-scotia-wastewater-before-it-was-identified-in-south-africa/wcm/6471a261-54de-4b31-886d-9e0befcbef5a)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

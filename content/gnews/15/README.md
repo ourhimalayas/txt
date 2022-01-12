@@ -2,38 +2,40 @@
 ---
 
 
-## 人类将在与中共的三个层次争战中大获全胜
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851577/)
+## 有声|中共为维护邪魔统治在昆仑山设下风水祭坛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1851612/)
 
-作者：纽约香草山 信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在1月7日的直播中指出，人类正在与魔鬼中共就三个层次作生死较量。
+配音：香草山健身部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-5.jpeg)
 
-首先，在信仰层面，即有神论和无神论的较量。郭先生多次提到，宣称无神论的中共其实是世界上最迷信的邪教组织，其以巫术为由在中共国内肆意作恶，但最终的结果只能是害人不利己。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月9日，郭先生大直播中揭穿了中共以“无神论”洗脑国人，实则是彻头彻尾的巫术迷信者的本质。更有什者，为了维护统治，中共当局不惜耗费巨额百姓税收，在昆仑山设下风水祭坛，以巫术续命。
 
-其次，则是民主与独裁，即“民天下”与“家天下”的较量。郭先生解释，中共目前已然成为了习家的天下，但这将加剧中共的党内斗争，其下场只会是两败俱伤。
+喜马拉雅-昆仑山系形成于6500万年前，其庞大的规模和多样化的地质地貌，成为欧亚大陆重要的气候、生态影响因素。中国的远古地质经书《山海经》，称昆仑山为“万山之祖“。进入二十世纪，越来越多的研究，也相继表明了喜马拉雅山-昆仑山系不同寻常的地质学的特征。
 
-最后，就是共产主义与资本主义的决战。郭先生曾反复提及，中共通过流氓手段欺骗、利用资本主义国家，但在利益面前，这些国家最后必将与中共反目成仇，其终将导致中共的覆灭。
+迷信堪舆学说，是中共历代领导人的典型特征。自毛泽东时代开始，昆仑山的风水祭坛便成为中共权力的来源，据郭先生回忆，中共当局在昆仑山下所设的祭坛，其规模和豪奢程度令人咋(音“则“)舌，有九百九十九层天阶，外观似外星飞船，并且严格按照八卦阵型排布。自建坛伊始，无论任何天灾人祸，中共从未停止搜刮民脂民膏来建立这个祭坛。丧心病狂的中共当局，不惜以活人祭祀的形式，每年屠杀数百童男童女。该活祭任务往往由中共在新疆、西藏驻地的特种兵执行，官兵在任务后皆被灭口。这类大大小小的”活祭“、”屠杀“，只是中共在新疆、西藏对各民族大屠杀的一个缩影。
 
-郭先生强调，新中国联邦将重建信仰、完善民主，以致最终，正道主义会代替一切，也会帮助其他一切的建立。
+郭先生表示，这个祭坛以中华儿女鲜活的生命“供奉着“着中共常委的血脉，诅咒着中华大地56个民族。上个月，中共习近平当局将北京盘古大观的龙头以巨大外围铁幕加以掩盖，同时施展巫术，诅咒郭文贵先生，这一行径已被日本主流媒体密切跟踪报道，中共依靠神秘力量来延续邪魔统治的行径，已全球尽知。
 
-参考链接：[2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+文字版原文：[中共为维护邪魔统治在昆仑山设下风水祭坛](https://gnews.org/zh-hans/1847827/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木 
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
