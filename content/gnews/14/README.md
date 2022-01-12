@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|中共对外扩张的五步计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849180/)
+## 有声|对145个国家研究表明，疫苗造成传播和死亡人数急剧增加
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849253/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山农场- 纳米
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒1月9日报道，一份最新报告在研究了145个中共病毒疫苗接种最多的国家数据后发现，实验性疫苗非但没有结束疫情，反而造成全球中共病毒感染和死亡人数急剧增加。
 
+据悉，该研究发现在美国，疫苗导致每百万人中的感染者增加了38%，每百万人中的死亡人数增加了31%。而报告中最有说服力的，就是在2020年，泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等国家，中共病毒感染和死亡人数很少，但在推广疫苗后，上述国家病例和死亡人数大幅增加，有些增幅甚至高达1000%以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
+原文链接：[对145个国家研究表明，疫苗造成传播和死亡人数急剧增加](https://gnews.org/zh-hans/1844308/)
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
+音频处理：Daxia
 
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
+**发稿：**Daxia
 
-文字版原文：[中共对外扩张的五步计划](https://gnews.org/zh-hans/1843851/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

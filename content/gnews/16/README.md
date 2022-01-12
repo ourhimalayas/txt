@@ -2,39 +2,40 @@
 ---
 
 
-## 有声|英国医生公开反对卫生部长的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849157/)
+## 有声|重庆大爆炸开启了习曾之战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849249/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山农场- 纳米
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月9日郭先生大直播中与战友分享重庆大爆炸可能并非是人为操作，不要政治化。有以下原因：
 
+首先，重庆、四川等地，既处在昆仑山向中共国东南方延伸的脉络上，也在喜马拉雅山的腹地地区，两座神山之抵，自古以来造就了当地资源富饶，民风淳朴，是兵家必争之地，在历史上被多次屠城。共产党统治的时代，但凡有官员上任重庆，一定会发生不测。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月8日，英国媒体播放的一则视频显示，英国卫生部长萨吉德·贾维德近日访问伦敦南部的国王大学医院，询问重症监护病房的医护，对于国家卫生系统工作人员强制接种中共病毒疫苗的意见。
+第二，习的亲信陈敏尔在中共20大常委名单上，而陈又在重庆上任，此次爆炸事故看似是对习的刁难，矛头指向了曾庆红。郭先生爆料说，曾庆红深谙风水之阵，中共自毛泽东时期以来，除了周恩来，就只有他能够亲自参与中共邪政昆仑山脉祭祀大典。这些雕虫小技他大可不必。
 
-据悉，英国已经通过的有关法律，自2022年4月1日起，除非获得豁免，所有NHS工作人员都必须接种中共病毒疫苗，否则会被开除。
+原文链接：[重庆大爆炸开启了习曾之战](https://gnews.org/zh-hans/1844306/)
 
-一位自疫情爆发以来，就在治疗中共病毒的麻醉医生斯蒂夫·詹姆斯表达了强烈不满。他强调，自己感染过中共病毒，已经产生了抗体，并在工作中得知，接种疫苗根本无法产生抗体，也无法阻止病毒的传播。他的一些同事也和他持有同样的观点。他还强烈质疑了未接种疫苗的医生被开除的合理性。
+音频处理：Daxia
 
-虽然，卫生部长并未明确表态放弃疫苗，但是同意将请专家对疫苗的需求情况进行评估。
+**发稿：**Daxia
 
-文字版原文：[英国医生公开反对卫生部长的疫苗强制令](https://gnews.org/zh-hans/1843693/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
