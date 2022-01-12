@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党苦民弱民的核心战术
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1850863/)
+## 共产党把自己当神的独裁者之路
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1850947/)
 
 台灣寶島農場
 

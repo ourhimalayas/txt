@@ -2,84 +2,60 @@
 ---
 
 
-## 全球疫情更新（美国住院人数破纪录）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850611/)
+## 北京冬奥会堪忧 Omicron已扩散至天津、河南
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1850679/)
 
-**整理/编辑：枳实**
+编译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-816.png)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-878.png)2022 年 1 月 9 日，北京冬奥会开幕式前，一名工人在主媒体中心修理视频墙。 （卡托波迪斯/盖蒂图片社）
 
+1 月 10 日，另一中国中部城市报告了 Omicron 病例，这是几天来的第二个城市，这增加了人们对几周后北京冬奥会的担忧。
 
-雅典娜疫情更新（2022年 1月12日）
+**天津距北京约半小时火车车程，**自 1 月 8 日一名儿童和一名年轻妇女被证实感染了Omicron，至此，报告了 41 例新感染。卫生官员说，他们尚未确认大多数人感染了哪些菌株。
 
-**一，全球疫情基本数据**
+作为回应，这座港口城市在周末将 **75,000 ****多名居民送去集中隔离**，除非必要，**否则禁止居民离开这座城市。**
 
-感染总数：313,302,952（日新增2,580,073，14天增幅+177%）
+**但 ****Omicron ****已经抵达中国中部的河南省**，该地区位于北京西南约 400 英里处。
 
-死亡总数：5,502,167（日新增6,610人，14天增幅+3%）
+**河南安阳市目前正在对付 ****Delta ****变异疫情**，该地区于 1 月 10 日报告了两例 Omicron 病例。当地官员表示，基因组测序显示，这些感染与天津的疫情有关。
 
-每万人感染人数：482.8761 人（除中国外）
+当局表示，感染的源头是一名于 2021 年 12 月 28 日从天津返回的大学生，这表明这种高度传染性的病毒株已在社区传播近两周。安阳已经关闭了所有学校和幼儿园。
 
-**二，全球“疫苗”毒针统计数据**
+众所周知，中共政权严重低报了其病毒数量，官方数据完全无法反映真实的总数。
 
-“疫苗”毒针注射总数：93.7亿
+更具传染性的 Omicron 菌株在中国的出现，为即将于 2 月 4 日在北京开幕的冬奥会带来了极度的紧迫性，中共官员们此前曾承诺奥运会将是“安全的”。
 
-完全“接种”：39.2亿人
+在奥运会之前，中共国几个城市在北京的“零新冠病毒”政策下，实施了严厉的封锁和遏制措施。中国中部西安市的严格控制，使许多居民难以获得食物和医疗服务。元旦那天，一名晚期孕妇因无法提供有效的 COVID 检测而被拒绝护理，在医院外流产，致使8月胎儿死亡。
 
-完全“接种”百分比：50.3%
+北京CDC在 1 月 9 日的一份声明中下令，自 12 月 23 日以来，所有到过天津的人员，要到居住社区报告，并接受新冠病毒检测。
 
-**三，澳洲疫情和“疫苗”数据**
+**天津距北京约****70****英里。据官方媒体《环球时报》报道，估计有 ****10 ****万人经常来回旅行。**打算进入北京的人，必须在离开天津之前获得雇主或居民社区当局的批准。
 
-感染总数：1,245,857（今日新增103,689人）
+从天津到北京的火车和公共汽车已经停运。天津官员已在高速公路出口设置检查点，以劝阻那些打算从天津进入北京的人。
 
-死亡总数： 2,465人（今日新增 49人）
+**这座特大城市正在为其 1400 万居民推出强制检测。**1 月 10 日，地方当局在致居民的一封信中说，计划在 1 月 11 日之前完成的大规模检测计划，“坚决防止病毒传播到其他省区市，特别是北京”。
 
-每万人感染人数：441.7122人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-880.png)2022年1月9日，在天津举行的全市大规模检测期间，居民排队接受冠状病毒检测。（Chinatopix Via AP）
 
-“疫苗”毒针注射总数：44,730,133（日新增327,415针）
+天津尚未下达全面封锁令，但截至 1 月 9 日，已封锁至少 29 个住宅小区。
 
-完全“接种”：19,020,349人
+据《环球时报》报道，天津两所著名大学已下令：**学生不得离开校园**。
 
-第二针“接种”百分比：77.6%
+严格的控制措施，让原本预计要回家和家人一起度过2 月 1 日开始的农历新年的大学生感到担忧。
 
-16岁以上人口接种至少一剂疫苗的比例：94.8%
+**评论：天津发现一例Omicron, 75,000 多名居民送去集中隔离, 这合乎逻辑吗？所以，众所周知，中共政权严重低报了其病毒数量，中共的数字是按照习近平的喜好，习近平说西安感染率必须“社会清零”，明白什么意思吗？就是说，真实感染死亡多少都不重要，中共一律将怀疑感染的对象，甚至以感染为借口，将异见人士一起“清零”——送往集中营自生自灭。**
 
-16岁以上人口接种至少两剂疫苗的比例：92.2%
+**还准备去中共国体验中共“疫情管控’手段的各国运动员们，你们做好最坏的准备了吗？别忘了，去年11月在中共国甘肃省举行的越野马拉松就死了21名参赛选手！**
 
-**四，疫情要闻**
+新闻来源: [theepochtimes.com] [Omicron Spreads to Another Region in China, Raising Fears for Beijing Olympics](https://www.theepochtimes.com/omicron-spreads-to-another-region-in-china-raising-fears-for-beijing-olympics_4204146.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-11)
 
-昨天，澳洲的中共病毒感染总数突破一百二十万。今天全球14天新增死亡人数本波疫情以来首次出现正增长，澳洲今日死亡人数也出现了高峰，达49人。
+* * *
 
-今日澳洲的新南威尔士州因住院人数接近负荷，开始把中共病毒感染的住院病人从公立医院转移到私立医院。全澳住院人数已达4002人。而美国的住院人数已经超过去年，[破纪录达到132,646](https://www.theguardian.com/world/live/2022/jan/10/covid-live-news-40-of-israel-could-be-infected-in-current-wave-germany-to-study-rapid-antigen-test-reliability-for-omicron)人，美国的住院人数自12月下旬以来稳步增加，在过去3周内翻了一番。
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
-英国前卫生部长马特·汉考克（Matt Hancock）再次感染，自昨天下午检测出病毒呈阳性以来，他一直在家隔离。
-
-世卫组织称，奥米克戎毒株可能在[未来两个月内感染 50%](https://www.theguardian.com/world/2022/jan/11/omicron-europe-tidal-wave-who) 的欧洲人。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C595YGF05Y0D7ZGGYK.png)图片来源：美联社Peter Dejong
-
-
-周日，荷兰民众不顾封锁禁令，在阿姆斯特丹参加游行示威，抗议新的疫情封锁措施和强制疫苗接种。手持警棍和盾牌的防暴警察驱散了至少数千民众，并逮捕了30人以上的示威者。
-根据荷兰的限制令，禁止两人以上的公共集会。
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

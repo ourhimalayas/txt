@@ -2,20 +2,32 @@
 ---
 
 
-## COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1849995/)
+## 台湾再设10亿美元融资资金 推动与立陶宛的经贸合作
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1850182/)
 
-**疫情關注組 / 發佈時間｜12/1/2022**
+#### **撰稿：**日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/53CDCF57-1E53-4310-8BC4-F9E08D6BF4DB.jpeg)（图片来自《美国之音》）
 
+据《美国之音》1月12号日报道，立陶宛不顾中共反对，允许台北以台湾名义设立代表处后，受到中共的经济打压。台湾为了表示支持立陶宛，再设10亿美元的融资基金，用于双方企业的经贸合作。
 
-外媒报道称，比利时一座位于南极的科研站（名称：Princess Elisabeth Polar Station），即便与外界隔绝仍发生25例确诊新冠病毒，确诊人数占全部人员的三分之二。 报道明确指出科研站内的工作人员已完全接种疫苗。
+台湾国家发展委员会主任委员龚明鑫与立陶宛经济与创新部长阿尔莫奈特（Aušrinė Armonaitė）在1月11日举行的视频会议中说，国发会在设立2亿美元的“中东欧投资基金”的基础上再加码提供10亿美元的融资基金，提供给台湾或是立陶宛的企业。
 
-该科研所第一例确诊是发生在12月14日，将确诊者隔离、人员已全面接种疫苗仍无法阻止病毒在科研站内扩散。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Blue-3D-Grid-Artificial-And-Intelligence-Science.png)
-來源｜[MSN](https://www.msn.com/en-us/news/world/antarctic-station-hit-by-covid-19-outbreak/ar-AASkXX4)
+龚明鑫在随后的记者会上表示，愿意到立陶宛投资或是与立陶宛有合资企业的台湾厂商，以及与台湾有合作关系的立陶宛厂商，都可以申请这些基金。
+
+他说，设立投资基金与融资基金，目的是促进台湾与立陶宛产业的共同发展，基金不仅是要帮助受到中共打压的立陶宛，也是台湾加强与欧洲国家关系的一部分。
+
+立陶宛经济与创新部长阿尔莫奈特在记者会上说，立陶宛可以是半导体产业非常好的投资地点。预计台湾与立陶宛新的信贷计划将推动电脑芯片、激光制造和生物技术等让中共倍感压力的新兴行业持续发展。
+
+*参考链接：[台湾再设10亿美元的融资基金，推动与立陶宛的经贸合作](https://www.voachinese.com/a/lithuania-taiwan-credit-20220111/6392687.html)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 
