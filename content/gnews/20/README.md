@@ -2,50 +2,50 @@
 ---
 
 
-## 限跌令无法阻止房价下跌，房地产将是中共噩梦
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849764/)
+## 突破：美军病毒溯源最新文件揭露中共幕后合谋就是福奇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849774/)
 
-**【国内新闻短评】**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/EytKzRrq5uOXEDPeICohBy2JWvSJMYTeyOPp3nxOhTNiO-EdwGaa4dYAFKw3S_0QXW6da2XehAkQa_cSs0mOO4NaUH0QAWmgCP8GaxAXKxmmM6mG8kr6q02LzKWZ1KVUwqm8bD5r)
+**拜登将无法继续针对中共病毒（COVID-19）溯源问题进行掩盖。美军重要文件揭露中共病毒大流行背后真相，福奇就是中共病毒“功能增强”和毒疫苗的研究、以及压制治疗方法的幕后黑手。尽管爆料革命早在2020年就曝光了这一切，迟来的验证，对美国以及世界仍然不晚。一旦美国国会确认后，中共政权被摧毁将是不可逆转。**
 
-网易新闻2022年1月9日报道：限跌令也无法阻止房价下跌！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-840.png)图片来源：网易新闻![](https://assets.gnews.org/wp-content/uploads/2022/01/image-841.png)
-**短评：**
+据美国[红声传媒](https://www.redvoicemedia.com/2022/01/dr-malone-on-new-fauci-docs-premeditated-manslaughter-of-millions-highest-level-coordination-videos/)1月11日消息称，拜登政府围绕中共病毒（COVID-19）的故事正在崩溃。揭露大流行背后真相就在周一晚上，据维里塔斯（Veritas）项目发布的最新重磅炸弹文件显示，福奇医生不仅涉及中共病毒（COVID-19）的起源，还涉及其背后的药物、以及获得对其病毒的功能增强研究，并显示了政府如何试图隐瞒它的每一点。
 
-中国商品房的土地出让金和税收占房价八成以上。房地产是中共插在中国奴隶身上吸血的大管子，它不仅是压在奴隶头上的第一大山，并且由于没有土地所有权，只有70年使用权的中国房产，70年后中共可以再盘剥一次，如此循环往复。
+根据维里塔斯（Veritas）项目获得的文件主要内容如下：
 
-**为什么不能让房价下跌**
+- *军事文件指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金对蝙蝠传播的*[*冠状病毒进行功能增益研究*](https://gnews.org/zh-hans/1758792/)*。这项名为化解（Defuse）计划的提议被 DARPA 拒绝，理由是出于安全考虑以及违反功能研究暂停的概念。*
+- *关于生态健康联盟提案的主要报告几个月前在互联网上泄露，直到现在仍未得到证实。维里塔斯（Veritas）项目已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫墨菲（Joseph Murphy）撰写的提交给国防部监察长的单独报告。*
+- *“该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。*
+- *维里塔斯（Veritas）项目联系 DARPA 就隐藏文件发表评论，并与通讯主管约瑟夫墨菲（Jared Adams）进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。*
 
-中国三、四十年的所谓房地产繁荣，中共不仅耗尽了前一代和这一代多数奴隶的财富，甚至已把未来一代奴隶的汗血提前榨干。今天，面对经济下滑、失业剧增等因素，该到了房地产这个大泡沫破灭的时候了。
 
-一旦房价下跌，房地产业崩溃，必将导致银行业以及金融系统的崩溃，从而导致中国经济的崩溃，进而使得中共统治地位的倒塌。所以为维护其邪恶的专制集权统治，中共必然千方百计地维持房地产价格的稳定，“限跌令”是牠们最后的手段之一。
+这是一件突破性发现，尽管爆料革命早在2020年就曝光了这一切，但美国当局如果对福奇和生态健康联盟的皮特大扎克（Peter Daszak）所做一切得以曝光，几乎等于中共政权会瞬间被摧毁。根据这篇题为《[关于获得职能的军事文件与福奇的宣誓证词相矛盾](https://www.projectveritas.com/news/military-documents-about-gain-of-function-contradict-fauci-testimony-under/)》的文章透露，“华盛顿特区 – 2022 年 1 月 10 日根据维里塔斯（Veritas）项目获得了令人震惊的前所未见的涉及 COVID-19 的起源文件，这些文件透露病毒“功能研究的获得、疫苗、已被压制的潜在治疗方法以及政府隐瞒的努力所有这些”。
 
-**“限跌令”无法阻止房价下跌**
+- ***延展阅读：***[***武毒所杂志：美官员发表了几十份中共军方的研究报告***](https://gnews.org/zh-hans/1572369/)
+- ***延展阅读：***[***Fauci Emails:福奇资助了武汉最致命实验室的培训***](https://gnews.org/zh-hans/1571280/)
 
-继中国第一房产巨头恒大债务暴雷之后，富力、华夏幸福、泰禾集团、蓝光发展、新力控股、花样年等多家房地产开发商，接二连三翻车，均陷入不同程度债务危机。可以预测，接下来的债务暴雷将涉及绝大部分房地产企业。
 
-不仅如此，面对现在的经济状况，大批奴隶失业，并且，作为原来商品房购买中坚力量的公务员、事业单位人员纷纷降薪，购买力急剧萎缩。房价下跌是必然趋势。甚至于，即使房价下跌也少有购买者。
+上述叙事都验证了爆料革命所说的每一句话的真实性。根据报告指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金进行蝙蝠传播冠状病毒的功能增益研究。这项名为“Defuse计划”的提案被 DARPA 拒绝，理由是出于安全考虑，并且认为它违反了暂停功能研究的基础增益。
 
-**中共为自己制造了房地产噩梦**
+最核心的是，根据文件透露，“NIAID 在 Fauci 博士的指导下，在中国武汉和美国多个地点继续开展“冠状病毒的功能增益研究”。
 
-作为商品属性的商品房，理应遵循市场规律，其价格由供需双方决定。当然在中共专制集权统治下的中国，一切必须服从中共的政权和利益需求。奴隶们连最基本的生育权都被剥夺，何况房价的涨跌？
+阅读更多相关机密文件：
 
-但是，面对现状，即使中共使用再多的手段，房价下跌以及下跌之后的连锁反应已成定局。现在，中共为搜刮奴隶而一手制造的房地产泡沫已将成为牠们的噩梦，对原本岌岌可危的中共政权以致命的打击。
+[**拒绝消融项目提案**](https://assets.ctfassets.net/syq3snmxclc9/5OjsrkkXHfuHps6Lek1MO0/5e7a0d86d5d67e8d153555400d9dcd17/defuse-project-rejection-by-darpa.pdf)
 
-* * *
+[**执行摘要：DEFUSE**](https://assets.ctfassets.net/syq3snmxclc9/oVt6gT0yBx4eQXSeuNfEp/3cbbd7ef84e90c9702c1943c55d80f75/executive-slide-hr00118s0017-ecohealth-alliance-defuse.pdf)
 
-【文章观点仅代表作者，与Gnews平台无关】
+[**项目化解完整提案**](https://assets.ctfassets.net/syq3snmxclc9/4NFC6M83ewzKLf6DvAygb4/0cf477f75646e718afb332b7ac6c3cd1/defuse-proposal_watermark_Redacted.pdf)
 
-新闻链接：[https://c.m.163.com/news/a/GT2H6M4Q0515DBP5.html?spss=newsapp](https://c.m.163.com/news/a/GT2H6M4Q0515DBP5.html?spss=newsapp)
+[**广泛的机构公告 PREventing EMerging Pathogenic Threats (PREEMPT)**](https://assets.ctfassets.net/syq3snmxclc9/6K3RxB1DVf6ZhVxQLSJzxl/6be5c276bc8af7921ce6b23f0975a6c3/A_prempt-background-hr001118s0017.pdf)
 
-素材：洛杉矶盘古农场 — 鲁西西
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯镇恶
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**美国海军陆战队少校约瑟夫墨菲向国防部监察长的报告**](https://assets.ctfassets.net/syq3snmxclc9/2mVob3c1aDd8CNvVnyei6n/95af7dbfd2958d4c2b8494048b4889b5/JAG_Docs_pt1_Og_WATERMARK_OVER_Redacted.pdf)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+2022年1月12日
 
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

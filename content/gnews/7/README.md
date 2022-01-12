@@ -2,32 +2,28 @@
 ---
 
 
-## 仅仅一周，盖特新增用户100 万
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1849963/)
+## 郭文贵先生谈“独立原则”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849965/)
 
-香草山商业部-往后余生Jane
+## 整理：雅典娜速记组
+编辑：Frank2021
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-9.jpg)
+我们认为的独立，不是三票先生想象的，独立就是你死我活的那种历史性独立。 但是我觉得就接遵循2个原则就对了。
 
+所有的独立：什么样的独立，什么样的资质，指什么样的所谓的今天来决定台湾， 西藏，新疆，人命运。我认为这是要在国际社会和国内所有人都参与的情况下，特别是当地人参与的情况下找出的模式。我们没有权定义，共产党更没有权利定义！
 
+也不能让一个政府定义，必须要当地人绝对参与的绝大部分统一的方式来决定。所以说咱操那闲心干啥呢？是不是啊，现在好像三票先生已经当了总书记一样，马上就要决定这些人命运了，你压根就不好分析啊。我觉得新联盟已经说的很清楚了，是吧，一人一票选出的政府和当地政府和当地的所有的人民作出的决定，就这么简单。 哪有这个？我要给你回答了，我就是流氓，我就是骗子，我就要想参政。我不会参政，讲一讲这是跟我半毛关系没有。
 
-2022年1月11日, 盖特总裁杰森·米勒在接受采访时表示，仅仅一周，盖特就新增100万用户，成为历史上发展最快的社交媒体平台。
- 米勒先生说，与其它大媒体平台如谷歌、脸书和推特相比，盖特已成功地为来自世界各地的用户打造了一个积极、令人振奋和自由思考的平台。上周，播客巨星乔·罗根落户盖特引发一波注册狂潮。1 月10日，著名新闻主持人塔克.卡尔森正式加入盖特，塔克是美国著名政论节目的主持人，是一名保守派政治新闻记者、作家、时事评论员。
- 同时，对于仅成立六个月、新增用户突破400 万，米勒先生认为，盖特达到了另一个惊人的里程碑。
+我郭文贵反正不会参政，三票先生，回去要当总书记，你去选举去，你也不会被指定, 就这么简单。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/独立原则-.jpg)
+发布： Frank2021
 
-原文链接：https://gettr.com/post/pnpqll15fc
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
