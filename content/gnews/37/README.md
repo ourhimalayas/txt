@@ -2,14 +2,31 @@
 ---
 
 
-## 中共的本质
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849367/)
+## GTV新闻访谈简报|2022年1月11日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1849385/)
 
-撰稿：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-11.17.32.jpeg)
-文贵先生在1月11日的盖特直播中指出中共的本质，第一，中共自称“无神论”、“无神党”，其实它比谁都相信有神；第二，自称是“无产阶级”，其实它是最有钱的阶级；第三，自称“为人民服务”，其实是人民为它服务；第四，自称“共产主义”，其实就是“共产”他们几家（几个家族）的主义，就是“家天下”；第五，不是依法治国，是以“家法”治国。
+作者：香草山翻译部
 
-信息来源：[文贵先生1月11日盖特直播](https://gettr.com/post/pnog2f2016)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0111text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.11  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61de2eb0a6dfdd603152ac9d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

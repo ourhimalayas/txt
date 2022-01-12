@@ -2,42 +2,83 @@
 ---
 
 
-## 美国邮政局寻求暂时豁免拜登政府疫苗强制要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849461/)
+## 新中国联邦建立的养老系统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849497/)
 
-据《华盛顿邮报》作者：Jacob Bogage，2022年1月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-831.png) 美国邮政局周二要求职业安全与健康管理局（OSHA）暂时豁免拜登总统的疫苗或测试要求。(Matt Rourke/AP)
-美国邮政局要求联邦劳工官员暂时豁免拜登总统的冠状病毒疫苗任务，这为总统和政府最大机构之间的流行病安全措施对决拉开序幕。
+[https://gtv.org/video/id=61de35cd87664c47acd389ed](https://gtv.org/video/id=61de35cd87664c47acd389ed)
 
-在1月4日写给职业安全与健康管理局（OSHA）的信中，邮政总局副局长道格拉斯-A-图里诺写道，要求工人接种冠状病毒疫苗或每周提交阴性测试，将损害该机构投递邮件的能力，使国家的供应链变得紧张。
+**郭文贵
+Miles Guo**
 
-他写道：“要么接种疫苗，要么测试，这很可能会导致许多员工的流失——其结果是要么是员工离职，要么被处分。”
+比如说中国人，你的地，这个国家的地必须所有地都给人们呐
+For example, the Chinese people, the land of this country must give all the land to the people
 
-该任务于1月10日生效，但OSHA官员表示，该机构在2月9日之前不会对违规行为发出警告。
+还给人们呐，老人的有地权和老人创造的财富，社会上你必须无偿自动分拨给他
+Give it back to the people, the elder people have land rights and the wealth created by the elders must be automatically distributed to them free of charge in the society
 
-“我们恭敬地建议，如果邮政服务提供邮件和包裹的能力受到严重的负面影响，国家将无法承担额外的潜在的实质性伤害。”图利诺在信中写道，该信由《华盛顿邮报》获得。
+要让老年人越活越好，而且老年人有几个选择，我可以跟孩子长大
+To make the elderly live as long as possible, and the elderly should have multiple options, you can live with your children
 
-邮政服务局要求OSHA将该任务的期限延长120天，并暂停邮政服务局在该任务下的义务，直到法院对疫苗要求的合法性作出最终裁决。最高法院将于周五听取关于该问题的特别辩论。图里诺写道，与此同时，邮政服务局已经采取措施准备用人力资源软件管理工人的健康数据，也已经开始与工会讨论该任务，并开始修订其冠状病毒疫苗接种、测试和口罩使用政策。
+我可以到社会的集中的生活的地方，咱们叫养老院，我觉得养老院是最烂的一个词儿
+You can go to a place where the society is concentrated, we call it a nursing home, I think nursing home is the worst word
 
-他说，热火朝天的假日季节将使这个拥有65万名员工的机构无法及时遵守OSHA标准。
+我认为是一个不同的境界，叫修行，到修行层次了
+I think it is a different realm, called practice, It has reached the level of practice
 
-邮政服务发言人达琳-凯西（Darlene Casey）在一份电子邮件声明中说，该机构将继续执行其现有的冠状病毒缓解计划，其中包括口罩使用的要求，隔离出现 covid-19 症状或检测结果为阳性的工人的措施，以及执行严格的清洁制度。
+从体力劳动到思想劳动一个地方去, 创造更多财富
+From manual labor to ideological labor, go to one place and create more wealth
 
-凯西说：“邮政服务正在寻求临时救济，因为它想确保在目前国家供应链中断的情况下，其运送邮件和包裹的能力不会受到阻碍。此外，邮政部门希望采取符合“OSHA标准”的政策和程序，同时也履行该组织的其他法律义务。”
+另外你可以选择一个完全不一样的地方
+and elderly can choose a completely different place
 
-邮政服务已经滞后。在10月1日至12月24日期间——一年中邮件投递最繁忙的时段——邮政服务局按时交付了89.8%的一等邮件，而目标是95%的及时交付。邮政服务在该时段开始时放慢了投递服务的速度。DeJoy在11月说，他预计邮政服务在2022年底之前不会达到其投递业绩目标。
+我现在还要继续工作，我想继续做事情，发挥你老年的最好的余热
+If elderly still want to work, want to keep doing something, and use the best residual heat at their age
 
-邮政服务工会对拜登政府的政策基本上保持沉默。全国邮递员协会没有对疫苗任务采取任何立场，并在9月告诉其成员，它将“审查影响我们成员的任何裁决，并进行谈判”。
+这个热严格比年轻人力量还要大，那要给什么
+This heat is strictly stronger than the young people, what else should I give
 
-代表邮递员和分拣厂工人的美国邮政工人工会的发言人说，该工会支持“为保证我们的成员安全和健康以及保持邮件流通所需的一切”。
+老人一个小时工作时间，是你年轻人的3倍或者更多倍的工资，而且老人是免税的
+You will get three or more times salary than for younger people hourly, and elderly people are exempt from tax
+
+而且老人要参加的工作是必须有优先权的，当然这样的老人就因为更有钱
+Moreover, the work that the elderly want to participate in must have priority, of course, the elderly will be richer like this
+
+他更愿意工作，更有安全感，而且有更大的收益率, 剩余价值给他的更多
+He is more willing to work and feels more secure, and with a greater yield and the residual value gives him more
+
+这些老人当然会到老的时候，他有病了更多人愿意给他支持
+Of course these people will grow old, when he is sick, more people are willing to support him
+
+他有更多的物质条件， 他会得到更多人尊重, 孩子不孝敬
+He has more material conditions, he will be respected by more people, Children are not respectful to their parents
+小佳佳没饭吃了发现他爹家里边的肉都吃不完，她不孝敬他爹他孝敬谁去
+Jiajia has no food to eat and finds that her father can’t even finish the meat at home, who can she honor if she doesn’t honor her father?
+反过来说了，小佳佳家没粮食吃, 她爹那块儿有肉，她要抢她爹爹肉去
+On the other hand, Jiajia’s family has no food to eat and her father has meat, so she wants to take her father’s meat
+
+这是个不同的概念，孝敬会成为一个伦理， 就社会正常地运转的一个规矩
+It’s totally different, respect becomes an ethics, it’s a rule of thumb for the normal functioning of society
+
+更重要的是老人病了，老了，走了，要有尊严地离开人世
+The more important thing is when the elderly are sick, old, gone, and they will die with dignity
+
+因为他更有信仰，这样的系统是新中国联邦建立的叫生态系统
+Because he has more faith, such a system is called the ecosystem will be established by the New Federal State of China
 
 * * *
 
-文章来源: [https://www.washingtonpost.com/business/2022/01/05/ovid-19-vaccine-mandate-usps/](https://www.washingtonpost.com/business/2022/01/05/ovid-19-vaccine-mandate-usps/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – Wenxiong
+Date: 01/10/2022
+原视频标题: 新中国联邦建立的养老系统
+The pension system established by the New Federal State of China
+原视频日期：2022/01/09
+原视频链接：[https://gettr.com/post/pnf8vg4e3b](https://gettr.com/post/pnf8vg4e3b)
+任务编号：KC408(3458)
+视频时间段 : 0:00-2:08
+中听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

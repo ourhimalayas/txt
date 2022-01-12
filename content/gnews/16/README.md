@@ -2,26 +2,56 @@
 ---
 
 
-## 台增国防预算 F16战机失事坠海
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849610/)
+## 共和党监督委员会公布了从未见过的福奇邮件
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1849632/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-41.jpg)（图片来源于本文链接）
-面对中共国军事威胁，台湾通过千亿元国防预算，以加强军方的海空战力，但同一天傍晚，却传出F16战机在海上执行任务时坠海失联，机上一名飞行员下落不明。台湾立法院周二（1月11日）通过海空战力提升特别预算，经费约新台币2369.5亿元 (546亿元人民币)。相关报导称，朝野对该预算有高度共识，目的是要因应中共对台湾的威胁。
+据《内幕新闻网》米歇尔·琼斯2022年1月11日 报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-4.png)图片来自网络
+美国国会众议院监督委员会公布了安东尼·福奇(Anthony Fauci)的电子邮件，表明他可能隐瞒了关于COVID-19起源的信息。这些邮件以前从公布过。邮件表明福奇知道该[病毒起源](https://insiderpaper.com/who-experts-say-repeated-covid-boosters-not-a-viable-strategy/)于中共国武汉的一个实验室，而该病毒就是在那里首次被发现的。
 
-台湾空军周二（11日）紧急召开记者会表示，嘉义基地一架F16V单座战机下午2时55分由飞行官陈奕执行例行性训练任务时，光点于3时23分从雷达上消失，也就是起飞约半小时后就失联。这是台湾F16机队改装升级后的首次重大事故。台空军督察长柳惠千表示，战机当时正执行对地炸射科目、进行大角度导入时快速坠入海中，并称当没有人看到飞行员跳伞，不排除是机务、人为或天气等因素导致，已组成专案小组调查中。另外，台湾总统蔡英文已指示救援优先，并进一步厘清事故原因。
+**美国国会监督委员会：实验室理论在福奇这些邮件后被淡化**
 
-台湾因F16战机老旧，把141架F16战机送到美国进行改装升级，失事的飞机就是首批战机之一，去年11月18日在美国改装完成运回台湾。台湾朝野立法委员12日（周二）一致同意通过这项国防特别预算，这是在2022年创纪录的5177亿元台币 (约1192亿元人民币)年度国防预算基础上，所再增加的额外预算。早前台湾国防部表示，该预算就用在项采购台湾自产自制的武器，其中包括雄风、天弓、天剑系列等飞弹，台湾立法院三读通过一项国防特别预算，将分5年编列总额新台币2400亿的特别预算。以提高防卫能力应对来自中共国日益增长的军事威胁。
+美国国会监督委员会在推特上发布了一封由众议员詹姆斯·康默（James Comer）和吉姆·乔丹（Jim Jordan）写的信，他们希望福奇博士能就[这些邮件](https://insiderpaper.com/more-than-3-million-coinmarketcap-emails-leaked-to-dark-web/)宣誓作证。
 
-2021年中共国战机以前所未有的规模速度进入台湾的防空识别区。最密集的时间是中共“国庆日”当天起至10月4日，共计近150架中共国军机进入台湾防空识别区，数量及频率都是前所未见。
 
-信息来源：
 
-[甫增国防预算 台F16失事坠海](https://www.dw.com/zh/%E7%94%AB%E5%A2%9E%E5%9B%BD%E9%98%B2%E9%A2%84%E7%AE%97-%E5%8F%B0f16%E5%A4%B1%E4%BA%8B%E5%9D%A0%E6%B5%B7/a-60394307)
+> 🚨BREAKING🚨
+> 
+> We've released never before seen emails showing Dr. Fauci may have concealed information about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) originating from the Wuhan lab & intentionally downplayed the lab leak theory. [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) & [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) want Fauci under oath. Time for answers. 1/2👇 [pic.twitter.com/p8aIBJ3nom](https://t.co/p8aIBJ3nom)
+> — Oversight Committee Republicans (@GOPoversight) [January 11, 2022](https://twitter.com/GOPoversight/status/1480909671082901504?ref_src=twsrc%5Etfw)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+*共和党监督委员会共和党人@GOPoversight*
+*我们发布了从未见过的电子邮件显示福奇博士可能隐瞒了来自武汉实验室的 #COVID19 信息，并故意淡化实验室泄漏理论。*
+*@RepJamesComer   & @Jim\_Jordan*
+*要福奇宣誓。是时候回答了。*
+*2022年1月11日*
+在这封信中，共和党国会监督委员会要求对福奇博士进行一个记录采访，并解释说，今天公开的电子邮件摘录警告说，COVID-19有可能是从[武汉病毒学研究所](https://insiderpaper.com/wuhan-lab-leak-more-likely-origin-of-covid-uk-mps-have-heard/)泄露出来的。这些电子邮件还警告说，该病毒可能被 “有意进行了基因操作”。
+
+共和党国会监督委员会信中还指出，福奇显然知道美国国家卫生研究院，传染病研究所（NIAID）、美国国家卫生研究院（NIH）、生态健康联盟（EcoHealth Alliance）和武汉病毒研究所(WIV)之间的金钱关系，尽管他在多个场合声称不是这样。
+
+共和党监督委员会还指出，[福奇博士和至少12名其他科学家](https://insiderpaper.com/fauci-vows-more-testing-as-covids-omicron-hammers-us/)在2020年2月1日的电话会议上谈到了COVID-19，在那次电话会议中，他们了解到该病毒可能是从武汉病毒研究所泄露出来的，并且是故意进行了基因操作。
+
+共和党监督委员会信中最后提出重要问题：
+
+1. 福奇博士或柯林斯（Collins）警告过白宫的任何人，关于潜在的 COVID-19 起源于实验室，并可能被故意进行基因操纵了吗？
+
+2. 如果没有分享这些担忧，为什么要让他们做出保持沉默的决定？
+
+3. 在 2020 年 2 月 1 日至 2020 年 2 月 4 日期间，有哪些关于 COVID-19 的新证据（如果有的话）曝光，以改变人们对实验室起源的看法？
+
+4. 福奇博士或 柯林斯是否编辑了编辑了自然医学论文《SARS-CoV-2的近端起源》？
+
+5. 早期获得这些知识是否会有益于疫苗或治疗开发？
+
+6. 到 2020 年 2 月 1 日，福奇博士或柯林斯知道国务院关于武汉病毒研究所安全的警告吗？
+
+7. 这个警告是否会改变对 COVID-19大流行的早期反应？
+
+要阅读这封信的全部内容，你可以在这里[下载](https://republicans-oversight.house.gov/wp-content/uploads/2022/01/Letter-Re.-Feb-1-Emails-011122.pdf)。[https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/](https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/)
+
+翻译：烟波浩淼 | 校对：|编辑& 发布：断播
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
