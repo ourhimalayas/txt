@@ -2,28 +2,20 @@
 ---
 
 
-## 郭文贵先生谈“独立原则”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849965/)
+## COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1849995/)
 
-## 整理：雅典娜速记组
-编辑：Frank2021
+**疫情關注組 / 發佈時間｜12/1/2022**
 
-我们认为的独立，不是三票先生想象的，独立就是你死我活的那种历史性独立。 但是我觉得就接遵循2个原则就对了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-所有的独立：什么样的独立，什么样的资质，指什么样的所谓的今天来决定台湾， 西藏，新疆，人命运。我认为这是要在国际社会和国内所有人都参与的情况下，特别是当地人参与的情况下找出的模式。我们没有权定义，共产党更没有权利定义！
 
-也不能让一个政府定义，必须要当地人绝对参与的绝大部分统一的方式来决定。所以说咱操那闲心干啥呢？是不是啊，现在好像三票先生已经当了总书记一样，马上就要决定这些人命运了，你压根就不好分析啊。我觉得新联盟已经说的很清楚了，是吧，一人一票选出的政府和当地政府和当地的所有的人民作出的决定，就这么简单。 哪有这个？我要给你回答了，我就是流氓，我就是骗子，我就要想参政。我不会参政，讲一讲这是跟我半毛关系没有。
+外媒报道称，比利时一座位于南极的科研站（名称：Princess Elisabeth Polar Station），即便与外界隔绝仍发生25例确诊新冠病毒，确诊人数占全部人员的三分之二。 报道明确指出科研站内的工作人员已完全接种疫苗。
 
-我郭文贵反正不会参政，三票先生，回去要当总书记，你去选举去，你也不会被指定, 就这么简单。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/独立原则-.jpg)
-发布： Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该科研所第一例确诊是发生在12月14日，将确诊者隔离、人员已全面接种疫苗仍无法阻止病毒在科研站内扩散。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Blue-3D-Grid-Artificial-And-Intelligence-Science.png)
+來源｜[MSN](https://www.msn.com/en-us/news/world/antarctic-station-hit-by-covid-19-outbreak/ar-AASkXX4)
 
  
 

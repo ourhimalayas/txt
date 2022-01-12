@@ -2,35 +2,24 @@
 ---
 
 
-## 有声|托卡耶夫与普京举行电话会谈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849720/)
+## 强生疫苗，美国 FDA 追加罕见出血性疾病风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849724/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
+撰稿：东京樱花团/向海
 
-哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/强生疫苗，美国-FDA-追加罕见出血性疾病风险.png)[图片来源](http://news.youth.cn/jsxw/202104/t20210416_12862461.htm)
 
-托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
+美国食品药品监督管理局（FDA）11日修订了强生公司（J&J）中共病毒（新冠病毒Covid-19）疫苗的情况说明书（摘要）。追记了出血性疾病中的免疫性血小板减少症发生的风险。
 
-托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
+“使用杨森COVID-19疫苗后的不良事件报告表明，接种疫苗后42天间免疫性血小板减少症的风险增加，”FDA在给强生公司杨森生物技术公司的一封信中说。根据FDA的说法，症状包括异常出血、大量出血、瘀伤和皮肤下的小血斑。 去年10月，欧洲药品管理局（EMA）也建议在强生疫苗的产品信息中添加免疫性血小板减少症作为副作用。
 
+信息来源：
 
+[Ｊ＆Ｊ製ワクチン、まれな出血性疾患のリスク　米ＦＤＡが追記](https://news.yahoo.co.jp/articles/5affb3b0ae70791e04c89136b493bf3999f5aedd)
 
-文字版原文：[托卡耶夫与普京举行电话会谈](https://gnews.org/zh-hans/1846509/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
