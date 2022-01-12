@@ -2,88 +2,26 @@
 ---
 
 
-## 新中国联邦建立的养老系统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849497/)
+## 把共产党吓到了完全在帮我们成就新中国联邦护照
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1849575/)
 
-[https://gtv.org/video/id=61de35cd87664c47acd389ed](https://gtv.org/video/id=61de35cd87664c47acd389ed)
+新中国联邦护照别着急，你晚拿到一天，你的护照在这升级。
 
-**郭文贵
-Miles Guo**
+**【郭先生直播摘要】 2022.1.7 把共产党吓到了完全在帮我们成就新中国联邦护照**
 
-比如说中国人，你的地，这个国家的地必须所有地都给人们呐
-For example, the Chinese people, the land of this country must give all the land to the people
+**郭先生：**
 
-还给人们呐，老人的有地权和老人创造的财富，社会上你必须无偿自动分拨给他
-Give it back to the people, the elder people have land rights and the wealth created by the elders must be automatically distributed to them free of charge in the society
+咱们俩的新中国联邦护照的问题，我们从开始说到今天，你没有几个人理解我的战术。刚刚的杨洁篪、王毅，就在24小时以内跟某国外长通话，说我有两个事情。我需要跟你谈，我只能说到这儿因为不能泄露出来。为什么呢？他说我们要访问你这个国家，有两件事情。你一定要答应你说好的参加冬奥会，你不能换人，换成你们的议员来是不能接受的，我们兑现了一切给你的承诺，给你支付贷款，你现在换人了那不行。
 
-要让老年人越活越好，而且老年人有几个选择，我可以跟孩子长大
-To make the elderly live as long as possible, and the elderly should have multiple options, you can live with your children
+第二，听说你们考虑一个，我们非常在意的就是，所谓的新中国联邦护照的问题。你们讨论这个问题那都是我们的敌人，结果这个国家的这个领导人说了句话说，讨不讨论这个新中联邦的护照，真不是我能决定的。你知道我们这国家我不是，作为个人来讲你了解我的体制，我们和你不一样。至于说参加冬奥会的问题，确实我个人原因去不了。听说杨洁篪、王毅简直是崩溃了。
 
-我可以到社会的集中的生活的地方，咱们叫养老院，我觉得养老院是最烂的一个词儿
-You can go to a place where the society is concentrated, we call it a nursing home, I think nursing home is the worst word
+我告诉大家的今天一定要记住，新中国脸就在你问的过程当中，它本身就在升值。本身就在向我的目标在靠近，当所有共产党把所有，给我们新中国联邦护照的人全打压完以后，就变成了今天冬奥会的结果。就像我说冬奥会一样，我说这些国家都不去，然后这他就想让所有国家来。最后所有国家都不去，这个已经达到了，这就是七哥，我不能把敌人吓死。2017年我在推特发了一个吓死一批，把共产党吓死一批。
 
-我认为是一个不同的境界，叫修行，到修行层次了
-I think it is a different realm, called practice, It has reached the level of practice
+这个词曾经共产党的高人也说过，郭文贵就凭你说这几句话你就是高人，吓死的一批，现在我已经因为护照的问题。 把共产党吓到了，完全在帮我们在成就新中国联邦护照，他没有意识到他在所有打压这些国家说，你不能给新中国联邦护照的时候。这些国家想哇塞，你最不想做的事，就是我跟你讨价还价的地方。随着冬奥会的结束以后，共产党会疯狂的报复，这些国家就没有参加，拿着钱没去参加冬奥会，那这些国家一定会找办法。
 
-从体力劳动到思想劳动一个地方去, 创造更多财富
-From manual labor to ideological labor, go to one place and create more wealth
+它没有跟共产党没杠杆，它拿什么跟人杠杆啊。承认台湾地位，还有一个承认见达赖喇嘛。第三，他现在想想这俩人加一起，还不如跟郭文贵见个面呢。这俩加一起还不如承认新中国联邦了。他这再加十次还不如给新中国联邦护照呢，所以说新中国联邦护照别着急，你晚拿到一天，你的护照在这升级，懂得了吗？
 
-另外你可以选择一个完全不一样的地方
-and elderly can choose a completely different place
-
-我现在还要继续工作，我想继续做事情，发挥你老年的最好的余热
-If elderly still want to work, want to keep doing something, and use the best residual heat at their age
-
-这个热严格比年轻人力量还要大，那要给什么
-This heat is strictly stronger than the young people, what else should I give
-
-老人一个小时工作时间，是你年轻人的3倍或者更多倍的工资，而且老人是免税的
-You will get three or more times salary than for younger people hourly, and elderly people are exempt from tax
-
-而且老人要参加的工作是必须有优先权的，当然这样的老人就因为更有钱
-Moreover, the work that the elderly want to participate in must have priority, of course, the elderly will be richer like this
-
-他更愿意工作，更有安全感，而且有更大的收益率, 剩余价值给他的更多
-He is more willing to work and feels more secure, and with a greater yield and the residual value gives him more
-
-这些老人当然会到老的时候，他有病了更多人愿意给他支持
-Of course these people will grow old, when he is sick, more people are willing to support him
-
-他有更多的物质条件， 他会得到更多人尊重, 孩子不孝敬
-He has more material conditions, he will be respected by more people, Children are not respectful to their parents
-小佳佳没饭吃了发现他爹家里边的肉都吃不完，她不孝敬他爹他孝敬谁去
-Jiajia has no food to eat and finds that her father can’t even finish the meat at home, who can she honor if she doesn’t honor her father?
-反过来说了，小佳佳家没粮食吃, 她爹那块儿有肉，她要抢她爹爹肉去
-On the other hand, Jiajia’s family has no food to eat and her father has meat, so she wants to take her father’s meat
-
-这是个不同的概念，孝敬会成为一个伦理， 就社会正常地运转的一个规矩
-It’s totally different, respect becomes an ethics, it’s a rule of thumb for the normal functioning of society
-
-更重要的是老人病了，老了，走了，要有尊严地离开人世
-The more important thing is when the elderly are sick, old, gone, and they will die with dignity
-
-因为他更有信仰，这样的系统是新中国联邦建立的叫生态系统
-Because he has more faith, such a system is called the ecosystem will be established by the New Federal State of China
-
-* * *
-
-Date: 01/10/2022
-原视频标题: 新中国联邦建立的养老系统
-The pension system established by the New Federal State of China
-原视频日期：2022/01/09
-原视频链接：[https://gettr.com/post/pnf8vg4e3b](https://gettr.com/post/pnf8vg4e3b)
-任务编号：KC408(3458)
-视频时间段 : 0:00-2:08
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：CG. | 听写/校对：烟波浩淼 | 翻译： Arthur | 视频制作+字幕：CG.| 编辑&发布：断播
 
  
 
