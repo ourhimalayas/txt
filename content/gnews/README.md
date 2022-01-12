@@ -15,152 +15,152 @@
 
 ---
 
-### [七哥说“这个世界要大变啊”（2022-01-09摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [DC大中華時事：中共病毒殺入香港社區](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥说“我宁肯相信坏，我不相信好” （2022-01-09摘录）](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [河南安阳因奥密克戎封城](/content/gnews/4/README.md)
- ` GTV News Talk`
-
-### [DC大中华时事：中共病毒杀入香港社区](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [诺瓦克赢得在澳洲的首场胜利，然后战争仍在继续…](/content/gnews/6/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [七哥谈万山之祖——昆仑山脉（2022-01-09摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [《时代革命》将于2月25日在台湾上映](/content/gnews/8/README.md)
- ` GTV News Talk`
-
-### [美国数州动用军队帮助医院应对不断攀升的奥米克戎感染](/content/gnews/9/README.md)
- ` GTV News Talk`
-
-### [CDC建议美国人避免前往加拿大](/content/gnews/10/README.md)
- ` GTV News Talk`
-
-### [最新披露：生态健康联盟试图隐瞒他们在开发病毒中的作用](/content/gnews/11/README.md)
+### [尸检证实：男子死于辉瑞Covid疫苗直接引起的心肌炎（2/2）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈西藏神花——蓝莲花（2022-01-09摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [从中国人寿王滨看中共盗国贼的奢靡](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [“我不想接种疫苗。科学还不够强大”](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共专家竟然建议多印钞票来鼓励生育](/content/gnews/15/README.md)
- ` GTV News Talk`
-
-### [浅析中共国出生人口剧降对教师行业的影响](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大卫作战室直播精要2022/01/12](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登的荒唐议程注定流产](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧洲监管机构警告频繁接种加强剂危害免疫系统](/content/gnews/19/README.md)
- ` 华盛顿DC-Russian`
-
-### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(II)](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022/01/11 墙内世界](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(I)](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [我们NHS 工作人员不能接受来自疫苗授权的操纵和胁迫](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [COVID疫苗的最新重磅炸弹将摧毁大型药企](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [美国上千家医院出现严重人力短缺](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [2022/01/10 墙内世界](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [GTV新闻访谈简报|2022年1月12日早](/content/gnews/31/README.md)
- ` 纽约香草山MOS01`
-
-### [起来反抗！封控成中共新杀戮模式](/content/gnews/32/README.md)
- ` 纽约香草山MOS03`
-
-### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/33/README.md)
+### [文贵爆料 1.12：伴随疫情，大刀向着“地主”的头上砍去](/content/gnews/2/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|王毅新年窜访五国 必有所图](/content/gnews/34/README.md)
- ` MOSREC`
+### [七哥谈咄咄逼人的中俄西扩（2022-01-09摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
 
-### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/35/README.md)
- ` MOSREC`
+### [尸检证实：男子死于辉瑞Covid疫苗直接引起的心肌炎（1/2）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [1/11 银河快讯:日美考虑控制对中共国先进技术出口；东京新公寓价格是平均年收入13.4倍](/content/gnews/36/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [七哥说“这个世界要大变啊”（2022-01-09摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
 
-### [人类将在与中共的三个层次争战中大获全胜](/content/gnews/37/README.md)
- ` GTV新闻访谈`
+### [DC大中華時事：中共病毒殺入香港社區](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [七哥说“我宁肯相信坏，我不相信好” （2022-01-09摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
 
-### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
+### [河南安阳因奥密克戎封城](/content/gnews/8/README.md)
+ ` GTV News Talk`
 
-### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/40/README.md)
- ` 關注組`
+### [DC大中华时事：中共病毒杀入香港社区](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/41/README.md)
- ` GTV新闻访谈`
+### [诺瓦克赢得在澳洲的首场胜利，然后战争仍在继续…](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/42/README.md)
- ` 日本东京方舟农场`
+### [七哥谈万山之祖——昆仑山脉（2022-01-09摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
 
-### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/43/README.md)
+### [《时代革命》将于2月25日在台湾上映](/content/gnews/12/README.md)
+ ` GTV News Talk`
+
+### [美国数州动用军队帮助医院应对不断攀升的奥米克戎感染](/content/gnews/13/README.md)
+ ` GTV News Talk`
+
+### [CDC建议美国人避免前往加拿大](/content/gnews/14/README.md)
+ ` GTV News Talk`
+
+### [最新披露：生态健康联盟试图隐瞒他们在开发病毒中的作用](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈西藏神花——蓝莲花（2022-01-09摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [从中国人寿王滨看中共盗国贼的奢靡](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [“我不想接种疫苗。科学还不够强大”](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共专家竟然建议多印钞票来鼓励生育](/content/gnews/19/README.md)
+ ` GTV News Talk`
+
+### [浅析中共国出生人口剧降对教师行业的影响](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大卫作战室直播精要2022/01/12](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登的荒唐议程注定流产](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [欧洲监管机构警告频繁接种加强剂危害免疫系统](/content/gnews/23/README.md)
+ ` 华盛顿DC-Russian`
 
-### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/45/README.md)
+### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(II)](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/25/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022/01/11 墙内世界](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(I)](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [我们NHS 工作人员不能接受来自疫苗授权的操纵和胁迫](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/46/README.md)
+### [河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [COVID疫苗的最新重磅炸弹将摧毁大型药企](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [美国上千家医院出现严重人力短缺](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [2022/01/10 墙内世界](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GTV新闻访谈简报|2022年1月12日早](/content/gnews/35/README.md)
+ ` 纽约香草山MOS01`
+
+### [起来反抗！封控成中共新杀戮模式](/content/gnews/36/README.md)
+ ` 纽约香草山MOS03`
+
+### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|王毅新年窜访五国 必有所图](/content/gnews/38/README.md)
+ ` MOSREC`
+
+### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [1/11 银河快讯:日美考虑控制对中共国先进技术出口；东京新公寓价格是平均年收入13.4倍](/content/gnews/40/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [二十大前中共血腥权斗拉开帷幕](/content/gnews/47/README.md)
- ` MilesGuoLivePPT`
+### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/42/README.md)
+ ` 秘密翻译组金融团队`
 
-### [疫苗大灾难](/content/gnews/48/README.md)
- ` MilesGuoLivePPT`
+### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/43/README.md)
+ ` 關注組`
 
-### [据罗伯特-科赫研究所的数据，接种疫苗的人更容易受到奥米克隆的影响](/content/gnews/49/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/44/README.md)
+ ` GTV新闻访谈`
+
+### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/45/README.md)
+ ` 日本东京方舟农场`
+
+### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/46/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
+
+### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [港人回乡心切 无惧防疫限制闯关](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,28 +2,30 @@
 ---
 
 
-## 从中国人寿王滨看中共盗国贼的奢靡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852028/)
+## 美国数州动用军队帮助医院应对不断攀升的奥米克戎感染
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852045/)
 
 作者：银河勇气星—骄子
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-郭先生在1月9日大直播与战友分享曾与中国人寿王滨的一些交往片段。王滨此人，是王岐山最重要的几个马仔之一，近日王滨的被抓预示着王岐山的严重失势。中国人寿是王岐山为了拉拢内部朋党而给盗国贼家族的子女洗钱藏钱输送利益的机构，从来不会从事小笔业务，次次涉及金额数目巨大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-44.jpg)图源网络
-
-据郭先生回忆，在2006年之前，王滨已经出手阔绰，曾花20亿人民币买鸡翅木。中共买走了全世界七八成的手表，多数都是王滨买给王岐山的，从一开始的限量版到现在的定制版，从而导致在最近两三年，瑞士手表平均上涨了5-10倍，比比特币涨得还夸张。
-
-王滨曾告诉郭先生，给王岐山送一块表要百里挑一，且每块表都是价值不菲，有的甚至高达上百万、上千万美元。 郭先生感慨，中共这些奢靡生活都是搜刮自中国老百姓的血汗钱。中国人的愚昧无知与可怜，明明自己活得不如猪狗，却还在信奉共产党的洗脑。
-
-新闻来源：[https://gtv.org/video/id=61dade8c4658a73785d25465](https://gtv.org/video/id=61dade8c4658a73785d25465)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
 
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
+近期随着奥米克戎感染的极速增加，美国各州医疗系统随时面临崩溃。为了维持医疗系统的正常运转，包括奥米克戎病毒检测及满足其他流行病的要求，一些州求助于国民警卫队。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/４.jpg)图源网络
+
+据悉在过去一年里，数州州长一直都在部署警卫以应对新冠病毒大流行。俄亥俄州、明尼苏达州、罗德岛州、加州、马里兰州、夏威夷州、俄勒冈州等已经动员数名国民警卫人员支持医护人员。其中马里兰州已宣布该州进入紧急状态。
+
+总统拜登指示五角大楼动员现役军人加入此行动，目前为止，新罕布什尔等几个州已经得到帮助
+
+新闻链接：[https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp](https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 

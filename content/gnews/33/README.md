@@ -2,20 +2,37 @@
 ---
 
 
-## 2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1851791/)
+## 美国上千家医院出现严重人力短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot5.jpg)
-郭文贵先生在2022年1月12日的大直播中，揭露了伊拉贝萨杨、HDO、VICE等邪恶媒体帮助共产党抹黑、污蔑爆料革命，甚至妄图把全球华人和亚裔人群划归为传播病毒和制造动乱的邪教组织，为全球排华埋下祸根。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
+与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
 
-郭先生向战友们介绍了邪教组织的六大特点：教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会。
+有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
 
-郭先生针对邪教的这几大特点逐一列举了中共的种种卑劣行径，一阵见血的指出中共就是名副其实的邪教！伊萨贝拉杨、HDO、VICE是宣扬邪教的助纣为虐者！
+在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
 
-郭先生呼吁战友们一定要广泛传播伊萨贝拉杨、HDO、VICE主控、洗脑、编造歪理邪说、制造大规模仇恨、反社会的种种邪恶行径，一定要跟他们抗争到底！
+目光转向国内，中国疫情持续蔓延，情况不容乐观。
 
-来源链接：https://gtv.org/broadcast/watch/61ded0fea6dfdd603152f65d
+参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
+
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：天灭中共
+编辑：天灭中共
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
