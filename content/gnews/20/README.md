@@ -2,50 +2,56 @@
 ---
 
 
-## 突破：美军病毒溯源最新文件揭露中共幕后合谋就是福奇
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849774/)
+## 丹尼尔·霍洛维茨：谁是真正的中共病毒超级传播者？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1849802/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/EytKzRrq5uOXEDPeICohBy2JWvSJMYTeyOPp3nxOhTNiO-EdwGaa4dYAFKw3S_0QXW6da2XehAkQa_cSs0mOO4NaUH0QAWmgCP8GaxAXKxmmM6mG8kr6q02LzKWZ1KVUwqm8bD5r)
-**拜登将无法继续针对中共病毒（COVID-19）溯源问题进行掩盖。美军重要文件揭露中共病毒大流行背后真相，福奇就是中共病毒“功能增强”和毒疫苗的研究、以及压制治疗方法的幕后黑手。尽管爆料革命早在2020年就曝光了这一切，迟来的验证，对美国以及世界仍然不晚。一旦美国国会确认后，中共政权被摧毁将是不可逆转。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-11-copy-78.jpg)资料图
+Blaze Media网站2022年01月07日报道，“企业现在要求新冠病毒检测阳性作为疫苗接种的证明。” 这是《巴比伦蜜蜂》(Babylon Bee)网站的头条新闻，但讽刺越来越成为新的现实。
+如果一张照片值1000字，那么我朋友唐·沃尔特(Don Wolt)提供的包括几乎所有年龄组的疫苗负面疗效的数据就值100万字。
+英国为世界提供了一项服务，它是唯一一个按疫苗接种状况和年龄群组细分感染率，每周发布详细和连续数据的国家。相当长一段时间以来，英国的数据一直显示除了最年轻的年龄组之外，其他年龄组都呈现负面疗效。这意味着接种疫苗的人人均感染率更高。变异毒株Delta(德尔塔)的情况如此，而对于变异毒株 Omicron(奥米炕)，接种疫苗个体的感染率已经爆表。
+昨天，英国卫生安全局(U.K. Health Security Agency，UKHSA)发布了2022年第一份“新冠病毒疫苗监测报告”，该报告整理了2021年最后几周(第49-52周)的感染率数据。这些不是原始数字，而是按年龄组和疫苗接种状况除以每10万人的病例率。这些结果摧毁了所有疫苗接种的理由，更不用说支持强制接种疫苗了。
+这来自报告的表 13：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-842.png)
+如果你根据不同年龄组的病例率来考虑疫苗效力，你会得到以下结果：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-843.png)
+正如你所看到的，除了儿童之外，就感染新冠病毒的可能性而言，接种疫苗的人明显更容易感染。对于18至60岁的年龄组，接种疫苗的人新冠病毒检测呈阳性的可能性大约是未接种疫苗的两倍。但非常有说服力的是自变异毒株Omicron出现以来，过去几周的戏剧性转变。这就是唐·沃尔特的图表如此具有说明性的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-844.png)
+这张图表的美妙之处在于，它将每个年龄组的病例率和疫苗接种状况的每周变化叠加在一起，并跟踪了五个月内的数据进展情况。正如你所看到的，在很短的一段时间内，老龄组的人在11月期间接种疫苗后不再出现感染，因为他们打了加强针。它几乎没有出现在正值区域，但也没有变成负值。现在，变异毒株Omicron已经证明，加强针无助于逆转疫苗介导的增强作用，因此老年人又回到了负值区域。
+虽然Omicron作为一种温和但极具传播性的疾病，在所有人中引起了病例激增，但你可以看到在过去的一周里，接种疫苗的人的感染率呈指数级增长，特别是在较年轻的年龄组中，他们似乎比老年人更易受变异毒株Omicron的攻击。无论出于何种原因，未接种疫苗的儿童似乎有很多病例，但这可能是检测的一个作用。请记住，在同一份报告中，数据显示，在过去的四个星期里，没有一个18岁以下的儿童死于新冠病毒感染。
+根本无法回避的事实是，疫苗总是在几个月后出现负作用，加强针提供的部分保护程度甚至比原始剂量更短，现在因Omicron变异毒株出现，病例率和疫苗接种率之间存在明显的反比关系。这一点在唐的第二张图表中得到了例证，该图表显示了自上周英国报告以来的病例增长率：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-847.png)
+我们看到负面疗效随着一个人接种次数的增加而增加，这一事实证明了一种理论，即疫苗接种不仅对Omicron变异毒株无效，而且还会造成病毒免疫逃逸。丹麦国家血清研究所(Statens Serum Institut) 最近的一项研究，比较了变异毒株Delta与Omicron对家庭内部的二次感染率 (SAR)。“令人惊讶的是，在未接种疫苗的个体中，我们观察到变异毒株Omicron的二次感染率与Delta之间没有显著差异。”作者指出。然而，当涉及到接种疫苗的群体时，他们发现变异毒株Omicron的二次感染率是Delta的2.61倍，而在打了加强针的群体中，它是3.66倍。“这表明变异毒株Omicron的传播性增加主要可归因于免疫逃避，而不是基本传播性的内在增加。”作者总结道。
+值得庆幸的是，变异毒株Omicron的致命性比Delta低得多，但是很明显在疫苗导致变异毒株Omicron超级传播的时候，它被用作强制疫苗护照的借口。公共卫生欺诈一直在传播这样一种说法，即未接种疫苗的人正在推动病毒突变，但没有抗体的人可能会对病毒造成进化压力，这一点从未说得通。做到这一点的是次优抗体，显然，如果人们认为这些突变是一个问题，那就应该归咎于疫苗接种。
+以色列的数据与疫苗接种造成更多病毒免疫逃逸的理论非常吻合。如果说有哪个国家“做对了”，那就是辉瑞公司的私人实验室，也就是以色列。如此多的人打了第三针，甚至已经打了第四针，但病例却飙升至创纪录的水平。但在过去几周里，随着变异毒株Omicron（造成感染）的增加，根据你接种的疫苗数量又有明显的分歧(即：接种疫苗的人群感染人数又有明显的增大)。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-848.png)
+目前，未接种疫苗的人占总人口的29%，但占新病例的比例不到14%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-849.png)
+同样，就像在英国一样，虽然即使在变异毒株Delta主导期间，接种疫苗人群总是更易感染，但实际上在变异毒株Omicron存在时，接种疫苗的人群包括接种三针疫苗的人群感染速度会更快。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-850.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-851.png)
+来自丹麦的数据似乎显示了类似的情况，打了三针疫苗又感染的病例上升速度比其他任何人群都快，尤其是在年轻人和中年人中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-852.png)
+加拿大安大略省公共卫生部最近的一项研究同样对疫苗接种理由造成了破坏性影响，并且与英国的数据完全吻合。安大略省卫生官员在一份预印本研究中总结说：“在任何时间点接种2针新冠病毒疫苗都不能保护免受变异毒株Omicron感染，疫苗有效性(vaccine efficacy，缩写VE)在接种第二针后120-179天为-38%（95%CI，-61%，-18%），180-239天为-42%（95%CI，-69%，-19%）”。加强针的情况如何？一开始，它只有37%效果，但随后迅速减弱。
+在这一点上，现在我们知道疫苗会出现负作用，而且对变异毒株Omicron 传染性甚至更快，那么要如何才能禁止接种疫苗？毕竟，如果未接种疫苗的人更频繁地感染病毒的科学现实证明疫苗护照的实施是合理的，那么相反的科学现实难道不应该证明取消疫苗接种是合理的吗？
+简评：英国、丹麦、以色列等国家的新冠病毒感染人数与接种疫苗人数的增加成正向的数据再次印证了郭先生的爆料：疫苗不管用，千万不要相信疫苗。本篇报道提供的事实数据也直接打脸各国政府：靠接种疫苗就能控制疫情就是谎言。而利用疫苗护照和开展疫苗强制接种运动控制各国民众才是现在各国政府及其背后的利益集团真正在做的事。
+我们爆料革命和新中国联邦的战友们，仍需要不遗余力地传播和揭露病毒真相和疫苗真相，只有这些真相被全世界人民知晓，才可以让全世界人民有意识地联合起来推翻极权政府和邪恶利益集团的暴力统治。
 
-据美国[红声传媒](https://www.redvoicemedia.com/2022/01/dr-malone-on-new-fauci-docs-premeditated-manslaughter-of-millions-highest-level-coordination-videos/)1月11日消息称，拜登政府围绕中共病毒（COVID-19）的故事正在崩溃。揭露大流行背后真相就在周一晚上，据维里塔斯（Veritas）项目发布的最新重磅炸弹文件显示，福奇医生不仅涉及中共病毒（COVID-19）的起源，还涉及其背后的药物、以及获得对其病毒的功能增强研究，并显示了政府如何试图隐瞒它的每一点。
+https:[//www.theblaze.com/op-ed/horowitz-who-are-actually-the-super-spreaders](https://www.theblaze.com/op-ed/horowitz-who-are-actually-the-super-spreaders)
 
-根据维里塔斯（Veritas）项目获得的文件主要内容如下：
+翻译/简评：Brianchow
 
-- *军事文件指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金对蝙蝠传播的*[*冠状病毒进行功能增益研究*](https://gnews.org/zh-hans/1758792/)*。这项名为化解（Defuse）计划的提议被 DARPA 拒绝，理由是出于安全考虑以及违反功能研究暂停的概念。*
-- *关于生态健康联盟提案的主要报告几个月前在互联网上泄露，直到现在仍未得到证实。维里塔斯（Veritas）项目已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫墨菲（Joseph Murphy）撰写的提交给国防部监察长的单独报告。*
-- *“该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。*
-- *维里塔斯（Veritas）项目联系 DARPA 就隐藏文件发表评论，并与通讯主管约瑟夫墨菲（Jared Adams）进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。*
+PR：Harvey（叶知秋）
 
+* * *
 
-这是一件突破性发现，尽管爆料革命早在2020年就曝光了这一切，但美国当局如果对福奇和生态健康联盟的皮特大扎克（Peter Daszak）所做一切得以曝光，几乎等于中共政权会瞬间被摧毁。根据这篇题为《[关于获得职能的军事文件与福奇的宣誓证词相矛盾](https://www.projectveritas.com/news/military-documents-about-gain-of-function-contradict-fauci-testimony-under/)》的文章透露，“华盛顿特区 – 2022 年 1 月 10 日根据维里塔斯（Veritas）项目获得了令人震惊的前所未见的涉及 COVID-19 的起源文件，这些文件透露病毒“功能研究的获得、疫苗、已被压制的潜在治疗方法以及政府隐瞒的努力所有这些”。
-
-- ***延展阅读：***[***武毒所杂志：美官员发表了几十份中共军方的研究报告***](https://gnews.org/zh-hans/1572369/)
-- ***延展阅读：***[***Fauci Emails:福奇资助了武汉最致命实验室的培训***](https://gnews.org/zh-hans/1571280/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-上述叙事都验证了爆料革命所说的每一句话的真实性。根据报告指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金进行蝙蝠传播冠状病毒的功能增益研究。这项名为“Defuse计划”的提案被 DARPA 拒绝，理由是出于安全考虑，并且认为它违反了暂停功能研究的基础增益。
+编辑：【英国伦敦喜庄园编辑部】
 
-最核心的是，根据文件透露，“NIAID 在 Fauci 博士的指导下，在中国武汉和美国多个地点继续开展“冠状病毒的功能增益研究”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-阅读更多相关机密文件：
-
-[**拒绝消融项目提案**](https://assets.ctfassets.net/syq3snmxclc9/5OjsrkkXHfuHps6Lek1MO0/5e7a0d86d5d67e8d153555400d9dcd17/defuse-project-rejection-by-darpa.pdf)
-
-[**执行摘要：DEFUSE**](https://assets.ctfassets.net/syq3snmxclc9/oVt6gT0yBx4eQXSeuNfEp/3cbbd7ef84e90c9702c1943c55d80f75/executive-slide-hr00118s0017-ecohealth-alliance-defuse.pdf)
-
-[**项目化解完整提案**](https://assets.ctfassets.net/syq3snmxclc9/4NFC6M83ewzKLf6DvAygb4/0cf477f75646e718afb332b7ac6c3cd1/defuse-proposal_watermark_Redacted.pdf)
-
-[**广泛的机构公告 PREventing EMerging Pathogenic Threats (PREEMPT)**](https://assets.ctfassets.net/syq3snmxclc9/6K3RxB1DVf6ZhVxQLSJzxl/6be5c276bc8af7921ce6b23f0975a6c3/A_prempt-background-hr001118s0017.pdf)
-
-[**美国海军陆战队少校约瑟夫墨菲向国防部监察长的报告**](https://assets.ctfassets.net/syq3snmxclc9/2mVob3c1aDd8CNvVnyei6n/95af7dbfd2958d4c2b8494048b4889b5/JAG_Docs_pt1_Og_WATERMARK_OVER_Redacted.pdf)
-
-2022年1月12日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

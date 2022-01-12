@@ -2,12 +2,22 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月10日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849716/)
+## 有声|托卡耶夫与普京举行电话会谈
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849720/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0110text-SC.png)
-文字版原文：[GTV新闻访谈简报|2022年1月10日晚](https://gnews.org/zh-hans/1845339/)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
+
+哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
+
+托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
+
+托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
+
+
+
+文字版原文：[托卡耶夫与普京举行电话会谈](https://gnews.org/zh-hans/1846509/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

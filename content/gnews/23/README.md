@@ -2,29 +2,50 @@
 ---
 
 
-## COVID PCR测试可呈假阳性
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1849731/)
+## 突破：美军病毒溯源最新文件揭露中共幕后合谋就是福奇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849774/)
 
-麦卡洛博士从COVID PCR测试中发现PCR 循环门限值越高，越有可能是假阳性。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/EytKzRrq5uOXEDPeICohBy2JWvSJMYTeyOPp3nxOhTNiO-EdwGaa4dYAFKw3S_0QXW6da2XehAkQa_cSs0mOO4NaUH0QAWmgCP8GaxAXKxmmM6mG8kr6q02LzKWZ1KVUwqm8bD5r)
+**拜登将无法继续针对中共病毒（COVID-19）溯源问题进行掩盖。美军重要文件揭露中共病毒大流行背后真相，福奇就是中共病毒“功能增强”和毒疫苗的研究、以及压制治疗方法的幕后黑手。尽管爆料革命早在2020年就曝光了这一切，迟来的验证，对美国以及世界仍然不晚。一旦美国国会确认后，中共政权被摧毁将是不可逆转。**
 
-我女儿去年感染了 COVID-19。这是有据可查的案例。她20多岁。她不需要大量治疗。在她的鼻后端有点鼻窦炎，需要一些抗生素来治愈它。好的，她病好了。她的COVID康复了。
+据美国[红声传媒](https://www.redvoicemedia.com/2022/01/dr-malone-on-new-fauci-docs-premeditated-manslaughter-of-millions-highest-level-coordination-videos/)1月11日消息称，拜登政府围绕中共病毒（COVID-19）的故事正在崩溃。揭露大流行背后真相就在周一晚上，据维里塔斯（Veritas）项目发布的最新重磅炸弹文件显示，福奇医生不仅涉及中共病毒（COVID-19）的起源，还涉及其背后的药物、以及获得对其病毒的功能增强研究，并显示了政府如何试图隐瞒它的每一点。
 
-现在她想回家去聚会。现在她又出现感冒症状了。所以引起了极大的关注，去接受测试。接受 COVID-19 测试。但她知道她的 COVID 已经康复。她有了免疫力，免受 COVID-19 的侵害。但她屈服于家庭压力。她推迟了航班。
+根据维里塔斯（Veritas）项目获得的文件主要内容如下：
 
-然后她接受测试的第一天，是阴性。然后第二天，她还在生病, 她感冒了。她接受另一次测试。顺便说一下，每次测试需要两天才能出结果。第二天的测试她是阳性。然后是第三天的测试。她又是阴性。所以问题是，她是否再次感染了 COVID-19? 或者这是一个假阳性? 答案是，临床上这是一个假阳性。
+- *军事文件指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金对蝙蝠传播的*[*冠状病毒进行功能增益研究*](https://gnews.org/zh-hans/1758792/)*。这项名为化解（Defuse）计划的提议被 DARPA 拒绝，理由是出于安全考虑以及违反功能研究暂停的概念。*
+- *关于生态健康联盟提案的主要报告几个月前在互联网上泄露，直到现在仍未得到证实。维里塔斯（Veritas）项目已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫墨菲（Joseph Murphy）撰写的提交给国防部监察长的单独报告。*
+- *“该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。*
+- *维里塔斯（Veritas）项目联系 DARPA 就隐藏文件发表评论，并与通讯主管约瑟夫墨菲（Jared Adams）进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。*
 
-这就是我们现在看到的。我们有很多病人写信给我说麦卡洛博士，我第二次感染了 COVID-19。我知道我感染了。我说好吧， 告诉我详细情况。结果都是呈假阳性测试。
 
-我们现在知道布鲁斯帕特森的工作成果，SARS-COV2 病毒，新冠病毒的残余物会在人体内停留一年半。 所以这并不奇怪, 有些人新冠康复之后很长一段时间间歇性测试呈阳性。
+这是一件突破性发现，尽管爆料革命早在2020年就曝光了这一切，但美国当局如果对福奇和生态健康联盟的皮特大扎克（Peter Daszak）所做一切得以曝光，几乎等于中共政权会瞬间被摧毁。根据这篇题为《[关于获得职能的军事文件与福奇的宣誓证词相矛盾](https://www.projectveritas.com/news/military-documents-about-gain-of-function-contradict-fauci-testimony-under/)》的文章透露，“华盛顿特区 – 2022 年 1 月 10 日根据维里塔斯（Veritas）项目获得了令人震惊的前所未见的涉及 COVID-19 的起源文件，这些文件透露病毒“功能研究的获得、疫苗、已被压制的潜在治疗方法以及政府隐瞒的努力所有这些”。
 
-记住 PCR 测试的引子是聚合酶是刺突蛋白。是蛋白质组学的遗传密码。刺突蛋白,包膜蛋白的核衣壳。所以这样想并不牵强。 有一些残留的核酸链可能会触发 PCR 呈阳性。
+- ***延展阅读：***[***武毒所杂志：美官员发表了几十份中共军方的研究报告***](https://gnews.org/zh-hans/1572369/)
+- ***延展阅读：***[***Fauci Emails:福奇资助了武汉最致命实验室的培训***](https://gnews.org/zh-hans/1571280/)
 
-然后我女儿给我看了结果。我看了看，PCR 循环门限值是 37。请记住，循环门限值越高，越有可能是假阳性。28以下那才是真的。你更有可能真正感染 了COVID-19。所以现在我们听到了一波 NFL 球员和一波NHL球员被测试呈阳性。但在医院里的人没有人生病。
 
-我认为我们有很多人是假阳性。但NHL所做的是，他们已经加倍努力做测试，并说他们将进行更多测试。所以现在他们每天都要做。
+上述叙事都验证了爆料革命所说的每一句话的真实性。根据报告指出，生态健康联盟于 2018 年 3 月与 DARPA 接洽，寻求资金进行蝙蝠传播冠状病毒的功能增益研究。这项名为“Defuse计划”的提案被 DARPA 拒绝，理由是出于安全考虑，并且认为它违反了暂停功能研究的基础增益。
 
-听写/翻译/视频制作+字幕：三分 | 校对： 烟波浩淼|编辑: FiLa文新心  | 发布：断播
+最核心的是，根据文件透露，“NIAID 在 Fauci 博士的指导下，在中国武汉和美国多个地点继续开展“冠状病毒的功能增益研究”。
 
+阅读更多相关机密文件：
+
+[**拒绝消融项目提案**](https://assets.ctfassets.net/syq3snmxclc9/5OjsrkkXHfuHps6Lek1MO0/5e7a0d86d5d67e8d153555400d9dcd17/defuse-project-rejection-by-darpa.pdf)
+
+[**执行摘要：DEFUSE**](https://assets.ctfassets.net/syq3snmxclc9/oVt6gT0yBx4eQXSeuNfEp/3cbbd7ef84e90c9702c1943c55d80f75/executive-slide-hr00118s0017-ecohealth-alliance-defuse.pdf)
+
+[**项目化解完整提案**](https://assets.ctfassets.net/syq3snmxclc9/4NFC6M83ewzKLf6DvAygb4/0cf477f75646e718afb332b7ac6c3cd1/defuse-proposal_watermark_Redacted.pdf)
+
+[**广泛的机构公告 PREventing EMerging Pathogenic Threats (PREEMPT)**](https://assets.ctfassets.net/syq3snmxclc9/6K3RxB1DVf6ZhVxQLSJzxl/6be5c276bc8af7921ce6b23f0975a6c3/A_prempt-background-hr001118s0017.pdf)
+
+[**美国海军陆战队少校约瑟夫墨菲向国防部监察长的报告**](https://assets.ctfassets.net/syq3snmxclc9/2mVob3c1aDd8CNvVnyei6n/95af7dbfd2958d4c2b8494048b4889b5/JAG_Docs_pt1_Og_WATERMARK_OVER_Redacted.pdf)
+
+2022年1月12日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
