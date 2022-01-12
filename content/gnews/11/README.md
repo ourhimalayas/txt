@@ -2,18 +2,22 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月11日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852441/)
+## 有声|2021年国际社会对中共实施制裁，总计超过20次
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852496/)
 
-配音：香草山农场- 纳米
-
-
-
-![This image has an empty alt attribute; its file name is logo-s2.png](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+配音：香草山佛教部 – 李傻
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0111text-SC.png)
-原文链接：[GTV新闻访谈简报|2022年1月11日晚](https://gnews.org/zh-hans/1849385/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据不完全统计，截至12月底，2021年国际社会对中共的制裁达20次以上。既有美国发起的制裁，也有欧盟发起的制裁；既有国会签署的制裁法案，也有政府签发的行政命令；既有对实体企业的制裁，也有对中共官员的制裁。对中共实施制裁最多的国家是美国，制裁方式大多数是经济贸易制裁。
+
+2021年国际社会制裁中共实体企业在13次以上，被制裁的中共实体企业在150家以上，涵盖通信、军事、石油、计算机、科研所、太阳能、生物科技等行业和机构。其中，制裁实体企业数量最多的一次是：2021年6月4日美国总统拜登签署一项新的行政令，禁止美国实体购买或者出售在美国上市的59家中国企业。
+
+原文链接：[2021年国际社会对中共实施制裁，总计超过20次](https://gnews.org/zh-hans/1851109/)
 
 音频处理：Daxia
 
