@@ -2,30 +2,24 @@
 ---
 
 
-## 哈萨克斯坦总统：俄罗斯军队将在两天内开始撤离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1849561/)
+## 中共封了第三座城市影响到2000万人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1849574/)
 
-编译：文斗
+翻译：  Evalu
+
+校对：
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_10.png)
-美国《国会山报》1月11日报道，周二，哈萨克斯坦总统托卡耶夫宣布，俄罗斯维和部队将在两天内开始撤离。
+图片来源： www.voachinese.com
 
-“集体安全条约组织维和部队的主要任务已经圆满完成，”托卡耶夫告诉哈萨克斯坦议会。 “两天后，集体安全条约组织联合维和特遣队将开始分阶段撤离。特遣队的撤离过程将不超过10天，”他补充说。
+美联社1月11日报道，中共近来针对西安(1300万人口)和禹州(110万)进行了封城，周一又对笫三座城市安阳(550万)市进行封城，受影响人口达已达2000万人口。
 
-目前，估计有 2000 至 3000 名俄罗斯士兵以及大约 250 件军事装备在这个与俄罗斯联邦接壤的国家执行安全任务。白俄罗斯军队和集体安全条约组织其他较小的特遣队也参与了该任务。
+中共对西安实施了三周的封城，禹州封了一周，本次因为在安阳市发现了2例奥米克戎感染病例，政府立即规定居民不允许上街，商店被勒令关门，除非是必须品。目前安阳到底会封多少时间目前还不清楚，目前要求大量人员去做测试，这是中共尽快确定和隔离患者的标准做法。
 
-哈萨克斯坦当局表示，已有 10000 人因抗议活动被捕，随后可能还会有更多人被捕。
+中共自2020年疫情大流行初期对武汉市和大多数湖北地区进行了封城，随后中共主要采用小范围的针对出现疫情的目标区域进步行封闭。随着2月4日北京冬季奥运会的临近，奥米克戎感染和出现，又出现以整个城市为范围的封城状况，以期扑灭疫情以防向中国其他地区蔓延。
 
-抗议者游行反对前总统纳扎尔巴耶夫长达数十年的政治控制，上周爆发示威活动时，纳扎尔巴耶夫被移出了强力的国家安全委员会。
+据说安阳的两例患者与天津的两例输入型患者有关，安阳是古代商朝的都城，是最早发现刻有甲骨文的甲骨之地。天津仅仅在发现疫情的地区进行了封城的，这市1400 万人做了测试，有97例阳性，其中49例有症状，15例无症状，还有33例正在等待进一步证实。
 
-托卡耶夫指责他的前任纳扎尔巴耶夫创造了一个“富有精英阶层”，该阶层一直在贪婪地消耗国民经济，导致诸如最初引发抗议的燃油价格上涨等危机，托卡耶夫进一步将其（动荡）归咎于企图破坏其稳定的外部势力。
-
-托卡耶夫还逮捕了国家安全委员会（NSC）负责人卡里姆·马西莫夫（Karim Masimov）。托卡耶夫表示，国家安全委员会未能利用资源平息抗议活动。
-
-新闻来源：
-
-[https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days](https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days)
-
-[https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev](https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev)
+##### **新闻来源： **[China locks down 3rd city, raising affected to 20 million](https://apnews.com/article/coronavirus-pandemic-health-china-64ca91f0f2315eabea84bb4a9d0801eb)
 
  
 

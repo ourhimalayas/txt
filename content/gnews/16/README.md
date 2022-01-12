@@ -2,34 +2,37 @@
 ---
 
 
-## 随着住院人数激增，美国报告一天内记录了 130 万例新冠病毒病例
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1849399/)
+## 乌比-戈德堡“震惊”于感染COVID，尽管三次接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849411/)
 
-作者：Chantal Da Silva和Joe Murphy
+据《summit.news》作者：Paul Joseph Waston，2022年1月6日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-829.png)图片来源：盖蒂图片社
+《观点》节目主持人乌比-戈德堡对感染COVID-19表示“震惊”，尽管她已经接种了三针疫苗。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-11-203453.png)图片来源：网络
-美国新冠肺炎病例的七天平均值周一也达到了迄今为止的最高点，平均每天达到740,594例新感染病例。
+这位女演员和电视节目主持人在圣诞节期间感染了病毒后，错过了节目的第一集，不得不通过远程直播从家中出现。
 
-根据NBC新闻的统计，美国周一报告了134万例新冠病毒病例，随着全国住院人数的飙升，每日病例率打破了全球记录。
+据戈德堡说，她“几周前离开了，就在节日前，因为我身边的某人被检测出冠状病毒阳性”。
 
-根据统计，周一至少发现了1,343,167例新的新冠病毒感染病例，比1月3日创下的1,044,970例病例高出近30万例。
+“这是一个冲击，因为你知道我已经打了三针疫苗，没有去过任何地方，没有做过任何事情”。
 
-周一的每日病例数通常很高，因为许多州周末没有报告这些数字。然而，随着高度可传播的欧米克隆变种继续传播，这一数字仍然表明美国的病例急剧上升。
+当然，戈德堡在接受了双重疫苗接种和增强针后仍被感染的事实一点也不令人震惊，因为病毒仍在接种者中传播。
 
-据路透社报道，这也是所有国家每日记录的最高病例，根据NBC新闻的数据，截至周一，美国共记录了自疫情爆发以来的61,490,917例病例。
+丹麦的一项新研究发现，Omicron变体在接种疫苗的社区中传播得更快。
 
-美国七天平均病例周一也达到了迄今为止的最高点，平均每天达到740,594例，其中24个州报告了有史以来最高的七天平均病例。
+根据该研究的摘要，“Omicron在那些完全接种疫苗的人中的传播速度比 Delta快，在那些接受过加强针的人中传播速度甚至更快”。
 
-创纪录的数字是美国新冠病毒住院人数也飙升，周一七天平均住院人数达到135,574人，过去两周增长了83.1%。
+* * *
 
-来源链接：[https://t.co/4DjHGlOoqL](https://t.co/4DjHGlOoqL)
+文章来源: [https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/](https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/)
 
-编辑/发布：LILY
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-20220111
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

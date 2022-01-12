@@ -2,30 +2,48 @@
 ---
 
 
-## 台湾再设十亿美元基金，推动与立陶宛经贸合作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1849468/)
+## 前印度储备银行行长被任命为驻北京的亚投行副主席
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849470/)
 
-![资料照片：台北驻立陶宛台湾代表处的大厅摆着鲜花和旗帜。（2021年11月18日）](https://gdb.voanews.com/92486E2B-C702-4DD1-A687-D6660EA00770_w1023_r1_s.jpg)资料照片：台北驻立陶宛台湾代表处的大厅摆着鲜花和旗帜。（2021年11月18日）
-据美国之音1月12日报道，继设立2亿美元的“中东欧投资基金”后，台湾11日宣布再设立10亿美元的融资基金。愿意到立陶宛投资或是与立陶宛有合资企业的台湾厂商，以及与台湾有合作关系的立陶宛厂商，都可以申请这些基金。此举除了支持立陶宛以外，也是台湾“强化欧洲链接计划”的一部分。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-去年11月，立陶宛在首都设立驻立陶宛台湾代表处，引发北京愤怒，把两国外交关系降级，并对立陶宛采取了经济报复措施。中共把台湾视为其领土不可分割的一部分，北京不允许与中共国建交的国家与台湾互设具有官方名份的机构。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-833.png)**图片来源：PTI**
 
-中共霸凌台湾几十年，一直试图武力侵占台湾。立陶宛仅有280万人口，弹丸之地的小国，为台湾挺身而出。正义不是存在于国富民强的超级大国，在这样的小国也有。有正义就有希望，有文明才有传承。
+**翻译：George Warshing**
+**编辑：小红帽**
 
-新闻参考链接：[https://www.voachinese.com/a/lithuania-taiwan-credit-20220111/6392687.html](https://www.voachinese.com/a/lithuania-taiwan-credit-20220111/6392687.html)
+根据《Hhindustan Times》1月9日报道，印度储备银行（RBI）前行长乌尔吉特·帕特尔（Urjit Patel）被任命为总部在北京的多边开发银行——亚洲基础设施投资银行（AIIB）的副行长。
 
-编辑：胖丁
+自2016年亚投行成立以来，印度是其仅次于中国的第二大股东，而潘迪安（DJ Pandia）一直任副总裁兼首席投资官。他曾是前古吉拉特邦首席秘书。如今他在亚投行的职务将由帕特尔接替。
 
-* * *
+帕特尔目前是国家公共金融与政策研究所的主席。该研究所是隶属于财政部的一个研究中心。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+出生于内罗毕的帕特尔据传与全国民主联盟（NDA）政府在财政政策上出现分歧后，于2018年辞去了印度储备银行行长的职务。
 
+这位著名的印度经济学家将在亚投行扩大其在发展中国家尤其是印度的足迹之际接任副总裁。
 
-编辑：【英国伦敦喜庄园编辑部】
+目前亚投行由中国的金立群任行长，现在其属下有五位副行长。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+印度是亚投行成立六年来最大的借款国。
+
+即将离任的潘迪安在去年底与媒体的互动中表示：“亚投行在印度的顶级投资市场有28个项目，价值67.1亿美元。”
+
+印度尼西亚、土耳其、孟加拉国和中国是该银行接下来的四个借款国，总投资额超过了70亿美元。
+
+潘迪安表示，亚投行资助了印度各行业的项目，尤其是交通和能源领域。
+
+截至2021年10月22日，亚投行共批准了为31个国家的147个项目的贷款，总金额为289.7亿美元。
+
+原文链接：[Former RBI guv Urjit Patel appointed Beijing-based AIIB vice-president | World News – Hindustan Times](https://www.hindustantimes.com/world-news/former-rbi-guv-urjit-patel-appointed-beijing-based-aiib-vicepresident-101641717561771.html)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

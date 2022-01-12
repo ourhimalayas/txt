@@ -2,38 +2,14 @@
 ---
 
 
-## 有声|清零不要命 可怜西安人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849366/)
+## 中共的本质
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849367/)
 
-配音：香草山农场- 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-近日，中共西安市为了完成上级下达的所谓疫情“清零”任务，采取了种种非人道措施，造成了民众生活不便、食物短缺、无法就医甚至延误病情致死亡等人道灾难，引发了世界的关注。纽约香草山战友剪辑的一则综合视频深刻反映了中共治下西安市的这种“盛世乱象”。
+撰稿：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-11.17.32.jpeg)
+文贵先生在1月11日的盖特直播中指出中共的本质，第一，中共自称“无神论”、“无神党”，其实它比谁都相信有神；第二，自称是“无产阶级”，其实它是最有钱的阶级；第三，自称“为人民服务”，其实是人民为它服务；第四，自称“共产主义”，其实就是“共产”他们几家（几个家族）的主义，就是“家天下”；第五，不是依法治国，是以“家法”治国。
 
-原文链接：[清零不要命 可怜西安人](https://gnews.org/zh-hans/1845572/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+信息来源：[文贵先生1月11日盖特直播](https://gettr.com/post/pnog2f2016)
 
  
 
