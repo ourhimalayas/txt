@@ -2,33 +2,29 @@
 ---
 
 
-## 七哥谈中美战争（2022-01-07摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848722/)
+## 美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1848802/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：波士顿五月花  冲天一怒
 
-来源：郭先生2022-01-07直播11：23：37摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊.jpg)https://www.naturalnews.com/ 
+Video Screenshot from twitter: The View
 
-钟仁：郭先生，您曾经说过中美必有一战，是什么时候？
+美国《观点》节目主持人乌比·戈德堡在接种三针疫苗后仍感染了中共病毒(Covid-19)，她对此感到震惊。在圣诞节期间感染病毒后，这位女演员兼电视节目主持人错过了该节目的第一集，她不得不在家通过远程连线出镜。
 
-郭文贵先生：我觉得现在就在战争中，我觉得中美已经在战争中了。刚才说那三条，是吧？首先一点就是有神、无神论，对吧？然后是民主和家天下这种独裁社会，包括这种自由资本，它现在已经在完全是，甚至共产党在，美国就得完；美国在，共产党必须完，它已经在战争中了。最后我觉得咱所说的“必有一战”就是火战这一块，我觉得就会在冬奥会后和台湾问题、一系列问题爆发后瞬间有可能发生。现在就在战争中，火战我相信很有可能因为台湾会引起。谢谢！
+根据戈德堡的说法:”我在休假前几周就离开公司了，因为身边的某个人的中共病毒(Covid-19)检测呈阳性。所以，我感觉自己已经离开了很长时间，我很开心将重返工作岗位。但他们派人来做病毒测试的结果竟然是’不，你不要回来。我们不会派任何人去你家。你染上中共病毒了’。感觉就像’等等，什么？’ 这很令人震惊，因为你知道我已经打了三针疫苗，没有去过任何地方，什么也没有做。”
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+在听她讲述接种三针疫苗后仍旧染病的经历后，主持人依然鼓励人们接种疫苗。戈德堡说：“除非每个人都接种疫苗，否则我们将在接下来的一段时间内面临这种情况。”
 
-**关注我们**
+当然，尽管接种了两针疫苗和加强针，戈德堡仍被感染这个事实却一点儿也不令人震惊，因为病毒仍在接种疫苗的人群中传播。丹麦最新的一项研究发现，Omicron变体在接种疫苗的社区中传播得更快。该研究的总结道：“在完全接种疫苗的人群中，Omicron 的传播速度比Delta 快，甚至在接受加强注射的人群中传播速度更快。”
 
-Discord 账号
+新闻来源: [Whoopi Goldberg ‘shocked’ at catching COVID despite being triple vaxxed](https://www.naturalnews.com/2022-01-08-whoopi-goldberg-shocked-at-catching-covid.html)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+* * *
 
-Gettr 账号
+*素材来源：冲天一怒*
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*编辑* *&**发布：**jamie(**文胤**)*
 
  
 

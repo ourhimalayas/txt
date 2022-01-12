@@ -19,6 +19,16 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@milesguolive 1/12/2022 12:09 AM (UTC)`
+
+盖特CEO的每句话都令人振奋！中文字幕用的是黄色，但是只有一处用了蓝色。英喜视频组的战友太有心了！棒极了！棒极了👍👍👍
+> `@himalayahawk777 1/10/2022 1:59 AM (UTC)`<br/>Jason Miller:<br/>下个月，我们将推出我们自己的竞争者。称之为 #Vision，这是一种短视频格式，与Instagram Reels竞争，也与 #抖音 竞争，因为短视频概念真正推动社交媒体的参与度，今年年中，我们将推出 #盖特支付，这是一个类似于苹果支付或支付宝的在线支付平台<br/><br/>We're going to call it #Vision, which will be a short video format, competes with Instagram Reels, but then also with TikTok, because we know that the short video concept is that's really what drives a lot of engagement on social media.<br/>Coming up in the middle of the year, we're going to launch a #GetterPay, which, yes, will be a payment platform online payment platform similar to an Apple Pay or an AlliPay
+![img](https://media.gettr.com/group15/origin/2022/01/10/01/93298040-0a39-429c-538b-5857ac4f8fcd/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@seanhannity 1/11/2022 11:17 PM (UTC)`
 
 MANCHIN: “We need some good rule changes to make the place work better. But getting rid of the filibuster doesn’t make it work better.” https://hannity.com/media-room/still-the-manchin-joe-not-sold-getting-rid-of-the-filibuster-doesnt-make-the-place-work-better/
@@ -156,13 +166,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 🔥Who is the sugar daddy of the mainstream media? <br/>🔥Who is willing to sell out their bodies for lavish gifts at the expense of others' lives? <br/><br/>Watch the 1️⃣ part of our latest episode about the whistleblower’s story that the mainstream media does NOT want you to know. <br/>#ThePotomacView #CCP #MSM #MilesGuo 
 ![img](https://media.gettr.com/group39/getter/2022/01/10/04/b2805e99-c9a4-e38d-625e-602cd1a33dc8/out.jpg)
-
----
-
-`@miles 1/10/2022 9:53 AM (UTC)`
-
-1/09/2022 Miles Guo: Why are the US and Europe going against the CCP and Russia regarding the issue of Kazakhstan? After the CCP loses the control of Kazakhstan, the revolution will spread to Xinjiang and Tibet. How does the “seven major mountains and one peak” of the Kunlun Mountains have anything to do with the fate of the eight brothers of my family?<br/><br/>1/09/2022 文贵直播：为什么美欧就哈萨克斯坦问题跟中俄对着干？中共失去哈萨克斯坦后，革命将传到新疆和西藏；昆仑山脉的“七大山一大峰”和文贵家的八个兄弟的命运有何微妙的联系？<br/>
-![img](https://media.gettr.com/group9/getter/2022/01/10/09/47e6ab96-53b3-eeed-e617-ff959cc8063f/out.jpg)
 
 ---
 
