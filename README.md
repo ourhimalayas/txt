@@ -15,110 +15,110 @@
 
 ---
 
-### [中俄外长电话会谈 哈局势成焦点](/content/gnews/1/README.md)
+### [乔-罗根加入GETTR，新增用户超百万](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|中共对外扩张的五步计划](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [中俄外长电话会谈 哈局势成焦点](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】尸检报告显示93% 接种中共病毒疫苗后的死亡案例是疫苗所致！](/content/gnews/2/README.md)
+### [为什么医药公司一定要获得对儿童的疫苗使用推荐批准？](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [世界排名第一的网球名将德约科维奇因疫苗无缘澳网](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [为什么接种辉瑞新冠疫苗的弊大于利（三）](/content/gnews/6/README.md)
+ ` 喜国公民`
+
+### [【G时新闻】尸检报告显示93% 接种中共病毒疫苗后的死亡案例是疫苗所致！](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [有声|疫情暴露中共国大量无德无能官员](/content/gnews/3/README.md)
+### [有声|疫情暴露中共国大量无德无能官员](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [王斌是王岐山大马仔之一 是中国人寿受贿共产党高官子女的关键人物](/content/gnews/4/README.md)
+### [王斌是王岐山大马仔之一 是中国人寿受贿共产党高官子女的关键人物](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [有声|新中国联邦传递真相和情报](/content/gnews/5/README.md)
+### [有声|新中国联邦传递真相和情报](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [马龙博士警告：中共国的“类似埃博拉出血热”是大规模疫苗接种突变所致](/content/gnews/6/README.md)
+### [马龙博士警告：中共国的“类似埃博拉出血热”是大规模疫苗接种突变所致](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币创造虚拟货币传奇 币加锁是对战友的考验](/content/gnews/7/README.md)
+### [喜币创造虚拟货币传奇 币加锁是对战友的考验](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [西安 郑州 天津因病毒扩散和疫苗过量，爆发疫情 中共隐瞒真实死亡人数](/content/gnews/8/README.md)
+### [西安 郑州 天津因病毒扩散和疫苗过量，爆发疫情 中共隐瞒真实死亡人数](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [2000 名医生和护士要求最高法院停止新冠病毒疫苗授权](/content/gnews/9/README.md)
+### [2000 名医生和护士要求最高法院停止新冠病毒疫苗授权](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [曾庆红是中共国政坛第一高人 20大真正开启的是习曾之战](/content/gnews/10/README.md)
+### [曾庆红是中共国政坛第一高人 20大真正开启的是习曾之战](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [魁北克将对未接种 COVID-19 疫苗的人征税](/content/gnews/11/README.md)
+### [魁北克将对未接种 COVID-19 疫苗的人征税](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [完全接种疫苗的网球明星Nikoloz Basilashivili胸痛、呼吸困难被迫退赛](/content/gnews/12/README.md)
+### [完全接种疫苗的网球明星Nikoloz Basilashivili胸痛、呼吸困难被迫退赛](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [保罗参议员今听证会上火力全开怼福奇](/content/gnews/13/README.md)
+### [保罗参议员今听证会上火力全开怼福奇](/content/gnews/18/README.md)
  ` 华盛顿DC-Russian`
 
-### [又一“千亿”房企暴雷，中共房市危如累卵](/content/gnews/14/README.md)
+### [又一“千亿”房企暴雷，中共房市危如累卵](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [哈萨克斯坦会是美中俄之间较量最大的牺牲品](/content/gnews/15/README.md)
+### [哈萨克斯坦会是美中俄之间较量最大的牺牲品](/content/gnews/20/README.md)
  ` 焦點20分`
 
-### [乔·罗根在 Gettr 上发现的 Twitter 缺少的东西](/content/gnews/16/README.md)
+### [乔·罗根在 Gettr 上发现的 Twitter 缺少的东西](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [名人因接种中共病毒疫苗猝死的判断方法](/content/gnews/17/README.md)
+### [名人因接种中共病毒疫苗猝死的判断方法](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文·贵天成——文贵先生谈“王毅”（三）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“王毅”（三）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈“敌无我有，敌有我精”（2022-01-07摘录）](/content/gnews/19/README.md)
+### [七哥谈“敌无我有，敌有我精”（2022-01-07摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [七哥说“我掌握它的一切”（2022-01-07摘录）](/content/gnews/20/README.md)
+### [七哥说“我掌握它的一切”（2022-01-07摘录）](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [七哥说李家将彻底在新加坡消失（2022-01-07摘录）](/content/gnews/21/README.md)
+### [七哥说李家将彻底在新加坡消失（2022-01-07摘录）](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [乔-罗根在Gettr上找到的正是Twitter所缺失的](/content/gnews/22/README.md)
- ` 温哥华扬帆农场`
-
-### [更多男性认为接种过疫苗的女性会不孕不育](/content/gnews/23/README.md)
+### [更多男性认为接种过疫苗的女性会不孕不育](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [七哥谈西安疫苗灾难（2022-01-07摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [有声|我們的根在哪?](/content/gnews/25/README.md)
+### [有声|我們的根在哪?](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [1月10日长岛哥联盟答疑G系列相关信息文字版](/content/gnews/26/README.md)
- ` 全球G系列咨服群`
-
-### [有声|如果你有一个高尚的灵魂](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊](/content/gnews/28/README.md)
+### [美国娱乐圈大咖乌比·戈德堡接种三针疫苗后仍染病，倍感震惊](/content/gnews/29/README.md)
  ` 波士顿五月花农场`
 
-### [立陶宛力挺台湾 中共指责美国煽动](/content/gnews/29/README.md)
+### [立陶宛力挺台湾 中共指责美国煽动](/content/gnews/30/README.md)
  ` 华盛顿DC-Russian`
 
-### [有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/30/README.md)
+### [有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [145个国家的研究显示中共病毒疫苗加剧病毒的传播和致死率](/content/gnews/31/README.md)
+### [145个国家的研究显示中共病毒疫苗加剧病毒的传播和致死率](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/32/README.md)
+### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/33/README.md)
  ` 华盛顿DC-Russian`
 
-### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/33/README.md)
+### [2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2022年1月11日早](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
-
-### [2022.1.09全球反疫苗抗议游行](/content/gnews/35/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [王毅新年窜访五国 必有所图](/content/gnews/36/README.md)
  ` GTV新闻访谈`

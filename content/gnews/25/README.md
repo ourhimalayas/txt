@@ -2,44 +2,31 @@
 ---
 
 
-## 有声|我們的根在哪?
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848837/)
+## 七哥说“我掌握它的一切”（2022-01-07摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1848895/)
 
-配音：香草山健身部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-07直播11：29：08摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-中共一直标榜他们的政党是无神论者，并对民众宣传反封建迷信抵制宗教信仰。文贵先生在今天的大直播里（1月9日）一针见血地道出：中共的精神境界，无知，愚昧，本身就不平衡，硬准备出来的平衡，是违背自然的。唯一牺牲的是中国无知的人民。
+不是的，雷蒙兄弟，这个它是第五步了已经。第一步它体现就是香港，大家看到了，香港是第一个，是吧；第二个它行动的结果大家看到就是阿富汗，大家看得非常清楚；第三个就是南海，大家都看到了，是吧，在南海已经是圈了300多万平方公里的地了，400多万平方公里；然后第四个是在台湾，它是已经是公开了；第五个才到了哈萨克斯坦。大家都能看得很清楚这是它的第五步。那么它已经不是第一也不是第一次。它第一次有了这个计划但已经行了第五步了。大家你看到这就是说七哥早就了解它们这些尿性劲儿，哼哼，是吧。我掌握它的一切，国安委，我可以…除了把国安委全抓起来，只要它不把国安委全抓起来，国安委开啥会我都知道。中南坑除非把中南坑全给炸了，它不都全炸只要中南坑只要它行动，只要它动动我就知道它干啥。七哥是2017年的时候都觉得我神经病，你现在你觉得我神经病吗？如果哪一天你们看到咱们盖特大直播的时候，来秘密直播我要打赏。你们可以现场给我提问题，未来。“七哥现在你说说习近平在哪儿？” 我给你说出来，你们说对了，咱们一比100的赌，你给我一块钱，我要是错了我赔你100块钱，我要对了那我就是就拿你一块钱，我敢跟大家赌。而且这不是人能决定的，这是技术，这是智慧，这是实力。所以说第五步，七哥清楚地告诉你。
 
-事实上，中共的邪恶到了极点！共产党想改风水的三个工程：三峡大坝，南水北调，毛泽东的水晶棺。毛的水晶棺，是共产党相信风水的最好例证。中心点在毛的纪念堂那，定都峰的核心的核心。长安街上不准搭桥，只能中国的江河，都是他的法脉。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-我们讲的风水，就是磁场。共产党不让你信风水，就是不让你懂磁场，人生的密码。文贵先生解释其奥妙之处及不为人知的秘密。
+**关注我们**
 
-昆仑山每年七百个仙女，处女，祭拜昆仑山神。为什么执行秘密的部队从来没有回来过？都献给神了。不知道这些，你灭不了共。你去过墨脱，喀什，那曲（为什么出虫草）吗？你去过帕米尔高原的红石山吗？去过昆仑山的奇山异峰吗？对共产党的认识，要是立体的。地球到现在，人类绝对是有主人的。没有信仰，灭了共也没用。中国人没有了信仰，天津，西安，郑州的疫苗，才会发生如此悲剧。
+Discord 账号
 
-诗词歌赋常有赞美——巍巍昆仑山脉，但却有多少人能真正读懂那神秘面纱背后的故事呢！喜马拉雅的呼吸养育着每一个生命，她的心跳孕育着每一个美好希望。巍巍昆仑山为中华“龙脉之祖”啊！
-可恨中共的罪恶行径玷污那纯洁神圣的雪山！
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-中国人的根还在那儿吗！ ？ 💔
+Gettr 账号
 
-文字版原文：[我們的根在哪?](https://gnews.org/zh-hant/1841830/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

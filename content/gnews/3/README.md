@@ -2,36 +2,22 @@
 ---
 
 
-## 有声|疫情暴露中共国大量无德无能官员
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849094/)
+## 中俄外长电话会谈 哈局势成焦点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849161/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-822.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220111/K10013424551_2201111531_2201111611_01_02.jpg)
+1月10日，中共外交部长王毅与俄罗斯外长拉夫罗夫举行了电话会谈，就哈萨克斯坦发生的大规模抗议活动的紧张局势交换了意见。王毅表示，“支持”俄罗斯领导的“集体安全条约组织”向哈萨克斯坦派遣维和部队。
 
+据悉，习近平政府对哈萨克斯坦的动荡可能蔓延并波及中共国则是十分警惕。哈萨克斯坦与新疆维吾尔自治区接壤，约有160万哈萨克族人生活在中共国，主要集中在新疆自治区，因此，混乱动荡极可能蔓延开来。哈萨克斯坦是中共国“一带一路”倡议的要塞地区，有通往中共国的天然气管道，在能源安全方面的地位不可或缺。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-台湾媒体1月8日报道，中共国西安近来的疫情备受世界关注，而封城后的种种乱象，正以一种尴尬的方式，暴露中共国大量无能无德官员的存在。
+看来王毅与俄外长会谈明为支持俄罗斯的维和之举，实则担心“祸及新疆”，激发起中共国内人民的反抗意识。
 
-近期西安曾经发生两次“一码通”崩溃事件，导致社会异常混乱；疫情传播链如何形成的问题，至今也未梳理清晰；紧急应变与组织协调极为混乱，让大量民众陷入了弹尽粮绝的危险境地，更出现了孕妇等待核酸证明致8个月婴儿流产，以及医院拒接心脏病老人致其去世的极端例子。
+信息来源：[**中国、ロシアのカザフ介入を「支持」　飛び火を懸念　外相電話会談**](https://news.yahoo.co.jp/articles/0fcba797eb4eeeba85c7b769e9b01f5cdba92038)
 
-文字版原文：[疫情暴露中共国大量无德无能官员](https://gnews.org/zh-hans/1843350/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/文小白*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

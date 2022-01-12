@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@dailynews 1/11/2022 4:57 PM (UTC)`
+
+ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discuss our recent sign-up surge and Big Tech's decline.
+![img](https://media.gettr.com/group29/origin/2022/01/11/16/b0ae191b-207e-e1fa-379e-44f8f77e4d11/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@milesguolive 1/12/2022 12:09 AM (UTC)`
 
 盖特CEO的每句话都令人振奋！中文字幕用的是黄色，但是只有一处用了蓝色。英喜视频组的战友太有心了！棒极了！棒极了👍👍👍
@@ -157,15 +166,6 @@ Louise Burke was forced out of Simon &amp; Schuster for her political views. She
 
 1月10号：尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的病毒的高峰时刻……照顾好家人和自己的身体，尊重科学．在快乐，健康．愉悦……的情况下消灭共产党…………迎接新中国联邦的伟大时刻到来！
 ![img](https://media.gettr.com/group47/getter/2022/01/10/15/7b4b8006-df63-2f9f-2ff0-a496f84ec9b5/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@thepotomacview 1/10/2022 4:42 AM (UTC)`
-
-🔥Who is the sugar daddy of the mainstream media? <br/>🔥Who is willing to sell out their bodies for lavish gifts at the expense of others' lives? <br/><br/>Watch the 1️⃣ part of our latest episode about the whistleblower’s story that the mainstream media does NOT want you to know. <br/>#ThePotomacView #CCP #MSM #MilesGuo 
-![img](https://media.gettr.com/group39/getter/2022/01/10/04/b2805e99-c9a4-e38d-625e-602cd1a33dc8/out.jpg)
 
 ---
 

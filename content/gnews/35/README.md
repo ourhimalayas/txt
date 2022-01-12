@@ -2,40 +2,28 @@
 ---
 
 
-## 2022.1.09全球反疫苗抗议游行
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1847873/)
+## GTV新闻访谈简报|2022年1月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1847985/)
 
-**🔥🔥****全球抗议者行动-2022/01/09**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-**⚠️****我们不反疫苗，只针对假疫苗**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-9.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**⚠️我们不反科学，只针对反人类**
+视频参看：[2022.01.11早GTV新闻访谈](https://gtv.org/video/id=61dd85f2a6dfdd603152758a)
 
-**⚠️covid-19=新冠病毒=中共病毒**
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
 
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
