@@ -2,45 +2,38 @@
 ---
 
 
-## 炸裂消息：最高层协调的蓄意过失杀人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
+## 美国最高法院已取消全民强制打疫苗计划
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1852196/)
 
-翻译： Jenny Ball
+**编译：wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13.png)图片来源：bestnewshere.com
 
-周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
+请提醒家人、朋友和亲戚中的每一个人! 突发新闻 ! 美国最高法院已取消了在美国全民打疫苗。比尔·盖茨、美国首席传染病专家福奇和大药厂在美国最高法院的诉讼中败诉，未能证明他们过去32年中所有疫苗是对公民的健康是安全的!其次，新冠病毒（中共病毒）疫苗是一种假疫苗!
 
-新公布的军事文件与福奇博士的宣誓证词相矛盾。
+该诉讼是由参议员肯尼迪领导的一群科学家提起的。小罗伯特·F.肯尼迪·Jr:
 
-真相工程发布：
+“应该不惜一切代价避免使用新的新冠病毒（Covid-19）疫苗。我紧急提请你们注意与下一次Covid-19疫苗接种有关的重要问题。在疫苗接种的历史上，最新一代的所谓mRNA疫苗(人工病毒)第一次直接干扰了病人的遗传物质，从而改变了个人的遗传物质，这就是基因操纵，这在以前已经被禁止，并被认为是一种犯罪。”
 
-- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
-- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
-- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
+疫苗是什么？它一直是病原体本身—灭活或减弱的微生物或病毒，也就是被削弱的微生物或病毒–被引入人体，以产生抗体；中共病毒疫苗并不是如此!它是最新的一组据称是mRNA的”疫苗”的一部分。一旦进入人体细胞，mRNA会对正常的 RNA/DNA 进行重新编程，开始制造（复制）另一种（新的）蛋白质。
 
+也就是说，mRNA疫苗不是我们传统的疫苗，（明确说）它是一种遗传影响的工具——遗传生物武器! 也就是说，他们要从地球人身上消灭（DNA），而幸存者将成为转基因生物! 在史无前例的mRNA疫苗之后，打了疫苗的人就无法继续延续原先完整的人类 DNA（永远成为一个有基因缺陷的存在），这意味着：如果在打了mRNA疫苗后出现疫苗副作用的症状，任何人都无法帮助你，因为疫苗接种造成的损害将是基因上的不可逆。
 
-真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
+疫苗接种–21世纪种族灭绝的生物武器。前辉瑞公司首席科学家迈克·伊顿（Former Pfizer Chief Scientist Mike Yeedon）再次表达了他的立场：现在拯救那些被公开称为“Covid-19疫苗”的物质的人，已经太晚了；他鼓励那些尚未接受致命Covid-19疫苗的人，为他们的生命、他们周围的人和他们孩子的生命而奋斗；第一次接种疫苗后，大约有0.8%的人立即在两周内死亡；打疫苗后的幸存者的平均寿命最多为两年，但寿命也会随着每次新的“再来一针疫苗”而减少。
 
-“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
+目前大药厂仍在开发其他疫苗，以引起人体某些器官的恶化，包括心脏、肺和大脑。在辉瑞公司工作了20年后，迈克·伊顿教授熟悉制药巨头辉瑞公司的职能和研发目标，并指出目前“疫苗接种”制度的最终目标只能是一个大规模的人口事件，并引发第三次世界大战。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip14-3.png)图片来源：bestnewshere.com
+“数十亿打过疫苗的人已经被宣判为肯定的、不可避免的和痛苦的死亡。任何接受疫苗的人都会过早死亡，而能活三年是对他们能够存活多久的慷慨估计。”
 
-周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
-
-马龙博士称它“比五角大楼的文件更重磅”。
-
-沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
-
-娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
-
-**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
+**新闻来源**：[bestnewshere.com] [The Supreme Court In The US Has Ruled That The Covid Pathogen Is Not A Vaccine, Is Unsafe, And Must Be Avoided At All Costs-Supreme Court has canceled universal vax](https://bestnewshere.com/the-supreme-court-in-the-us-has-ruled-that-the-covid-pathogen-is-not-a-vaccine-is-unsafe-and-must-be-avoided-at-all-costs-supreme-court-has-canceled-universal-vax-2/)
 
 * * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH..jpeg)
+
+
 
  
 

@@ -2,43 +2,54 @@
 ---
 
 
-## 中国可能爆发类似埃博拉的出血热病毒或马尔堡病毒——死亡率50%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852145/)
+## 七哥谈盘古龙头到各神峰的神奇距离（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852165/)
 
-编译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-15-2.jpg)图片来源：thegatewaypundit.com
-正如周一报道的那样——罗伯特·马龙（Robert Malone）博士和史蒂夫·班农（Steve Bannon）一起，在作战室讨论了中国最新的病毒爆发，中共政权正在掩盖这种新疾病的性质和传播。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这让许多专家感到担忧，包括 mRNA 疫苗的发明者马龙博士。马龙博士今天告诉作战室的听众，他听说目前正在中国蔓延的疾病是一种“埃博拉样出血热病毒”。该政权正在向公众和国际社会隐瞒这种疾病的真实性质——就像上次(（隐瞒Covid-19）一样！
+来源：郭先生2022-01-09直播08：42：27摘录
 
-**今天已有**** 550 ****万人死于上一次的中共****Covid**（并且人数还在增加）。
+郭文贵先生：看看，墨镜兄弟厉害啊，刚才弄了个2122。我说你怎么弄2122？你把7都给忘了。这个是从盘古，这是我看看，这测量距离，这是哪儿到哪儿啊，这是？你念一下，念一下。慕士塔格山吗？
 
-现在我们谈论的是一种“类似埃博拉的出血热病毒”。
+墨镜：这个是公格尔山到盘古龙头的距离。
 
-马龙博士：“他们使用的语言是：这是一种**出血热病毒**。如果是这种情况，那么这将是由冠状病毒引起的，这将是非常奇怪的。**该术语通常用于马尔堡病毒和埃博拉病毒**。 因此，许多人担心会出现一种迅速传播的埃博拉样出血热病毒。但我们不知道那里是否正在发生这种情况。”
+郭文贵先生：公格尔九别山，是吗？是公格尔九别山，对吧？公格尔九别山，2178公里，下一张。
 
-周一下午，一位读者向我们发送了有关马尔堡病毒的更多信息。
+郭文贵先生：这个是哪个？我这看不清楚。这电视显示得不清楚。
 
-世界卫生组织报告：
+墨镜：这个是慕士塔格峰到盘古的距离，
 
-*马尔堡病毒病**(MVD)**，以前称为马尔堡出血热，是一种严重的人类疾病，**通常是致命的。***
+郭文贵先生：慕士塔格山，7500多米，这个海拔。下一个。
 
-*\*\***该病毒在人类中引起严重的病毒性出血热。*
+郭文贵先生：昆仑女神峰，是吧？昆仑女神峰是7177米啊，这个山。多远呢？这是多远能看到的是？
 
-*\*\***平均**MVD**病死率约为**50%**。在过去的爆发中，病死率从**24%**到**88%**不等，具体取决于病毒株和病例管理。*
+墨镜：3144公里。
 
-*1967**年，在德国马尔堡和法兰克福，以及塞尔维亚贝尔格莱德，同时发生的两次大规模暴发，导致对该病的初步认识。此次爆发与使用从乌干达进口的非洲绿猴**(Cercopithecus aethiops)**进行的实验室工作有关。随后，安哥拉、刚果民主共和国、肯尼亚、南非（有近期前往津巴布韦旅行史的人）和乌干达，均报告了疫情和散发病例。*
+郭文贵先生：好，这个是哪个？墨镜兄弟。
 
-**评论：从中共国逃离躲避在欧洲的中国正义科学家，曾通过爆料革命向世界警告，中共不仅制造了Covid－19系列的上千种病毒，也造出了类似埃博拉的出血热病毒！不灭中共，世界无宁日！**
+墨镜：这个是昆仑女神峰。
 
-**参考资料：**[thegatewaypundit][More… Dr. Malone Mentions Possible Outbreak in China of Ebola-Like Hemorrhagic Fever Virus or Marburg Virus — That Has Only 50% Survival Rate](https://www.thegatewaypundit.com/2022/01/dr-malone-mentions-possible-outbreak-china-ebola-like-hemorrhagic-fever-virus-marburg-virus-50-survival-rate/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+郭文贵先生：昆仑女神峰，下一个。
 
-* * *
+郭文贵先生：慕士塔格峰，慕士塔格峰也是7000米。这个厉害，慕士塔格峰相当厉害。布喀达板峰，这也是7000米，这也是7000米，这都是7000米。这跟七真有关系。看到了吗？看到了吗？跟七有关系吧？慕士山，慕士山啊，也是7000米。大家看一看，这都是从盘古过去的。你看这个地球，印度洋，整个大西洋，你看看整个所有的这个黄土高原、大陆板块。然后你没有去过不丹，不丹有一个莲花生佛、莲花生庙。你到了莲花生佛，你到不丹的时候，你再到尼泊尔。尼泊尔一长条儿，不丹下面是一个方的，不丹是从北往南方，尼泊尔是整个的东西长。大家你看过这个，你就知道了。然后，你再看台湾，你再看老挝、泰国、越南，你再看看中国。你看上边角有个吉尔吉斯坦、哈萨克斯坦、阿塞拜疆，当然了就是新疆嘛。所以你可以看得很清楚。孟加拉国，刚才我老说孟加拉国。孟加拉国也会有大动静，已经开始了。所以说好，回到这个画面。
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
