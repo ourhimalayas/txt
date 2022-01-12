@@ -2,35 +2,53 @@
 ---
 
 
-## 中共疾控专家放话，中国加强针接种率应提升至100%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851880/)
+## 欧洲监管机构警告频繁接种加强剂危害免疫系统
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1851976/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体1月10日报道，日前，中共疾控中心首席专家吴尊友在公开场合表示，为了早日实现群体免疫的目标，全国加强针接种率应该提升至100%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E.jpg)timcast.com
+《门道专家》1月11日晚间发表文章，题目是，“可怕：欧洲监管机构警告，频繁接种中共（新冠）病毒疫苗加强剂将对免疫系统造成危害”。【1】
 
-天津1月10日通报确诊了20例奥密克戎本土感染病例，这是中共当局官方报告的最高纪录，对此，吴尊友认为，在中国，每个人都应该接种疫苗，并且，每个人都需要打加强针。他指出，虽然中共病毒不断变异让群体免疫大打折扣，但接种中共疫苗可以达到所谓“反折扣”的效果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-6.jpg)
-至于什么是“反折扣”，吴尊友解释称，打完加强针以后抗体会上升，预防感染的保护效果回到预期的80%，把中共病毒对群体免疫造成的折扣折回来，最终实现提高人群抗击中共病毒的效果。
+全文如下：
 
-不过，网民似乎对吴尊友的这个创新概念不买帐，质疑仅西安、天津两地，疫苗完全接种率超过九成，却仍然对病毒肆虐不堪一击，表明“反折扣”理论在事实面前根本是胡编乱造。
+这令人担忧……
 
-参考链接：[中共疾控专家放话，中国加强针接种率应提升至100%](https://wap.xinmin.cn/content/32094995.html)
+上个月，欧洲药品管理局（EMA，European Medicines Agency）宣布，他们已经得到授权每三个月施打一次（疫苗）加强剂。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+但现在他们突然因为某种原因改变了态度。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+亚历克斯·贝伦森（Alex Berenson）报道：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+今天，还不到五周，也就是辉瑞首席执行官轻描淡写地说了第四针（加强剂）后24小时，他们说他们认为频繁接种加强剂可能不安全：
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+（附上了彭博社原文的链接【2】）
+
+欧洲监管机构甚至承认，中共病毒疫苗强化接种可能对免疫系统产生不利影响！
+
+曾经的阴谋很快就变成了现实，这太可怕了！
+
+（原文完）
+
+原文来自与王岐山关系密切的布隆伯格的彭博社，难道知道罪恶的阴谋掩盖不住了？不管怎样，再摘几段吧：【2】
+
+欧盟监管机构警告说，频繁的中共病毒疫苗加强剂接种可能会对免疫系统产生不利影响，并且可能不可行。
+
+根据欧洲药品管理局（EMA）的说法，每四个月重复一次加强剂最终可能会削弱免疫系统并使人们疲惫不堪……
+
+欧洲药品管理局生物健康威胁和疫苗战略负责人马可·卡瓦莱里（Marco Cavaleri）在周二（1月11日）的新闻发布会上说，加强剂“可以做一次，或者可能两次，但我们认为这不是应该不断重复的事情。”
+
+（摘译完）
+
+当然，布隆伯格不报道，大媒体掩盖，这类消息也会被正义人士发现、转载，只是早点晚点而已。表面看上去布隆伯格在作顺水人情，其实可以解读成世界范围内揭露病毒、疫苗阴谋已渐成趋势，这一切都是文贵先生、新中国联邦唤醒世界、唯真不破的结果，战友们加油！
+
+原文链接：
+
+【1】[https://www.thegatewaypundit.com/2022/01/frightening-european-regulators-warn-dangers-frequent-covid-boosters-immune-system-risks/](https://www.thegatewaypundit.com/2022/01/frightening-european-regulators-warn-dangers-frequent-covid-boosters-immune-system-risks/)
+
+【2】[https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 

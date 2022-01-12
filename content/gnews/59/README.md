@@ -2,40 +2,34 @@
 ---
 
 
-## DC每日热点0111
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1847705/)
+## 波湾四国外长访中共计与石油议题有关
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847764/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5C939794-4F0E-4E1C-99D7-0AA5FE970C0B-scaled.jpeg)
-道琼斯指数 36068.87 ▼0.45%
-纳斯达克指数 14942.82 ▲0.05%
-WTI纽约原油CFD 79.319 ▲1.39%
-布伦特原油CFD 81.836 ▲1.82%
-标普50指数 2,897.87 ▼47.91%
-美元兑人民币 1USD=6.374 RMB
-美元兑港币 1USD=7.796 HKD
-国际黄金 1806.46 美元/盎司
-全球CCP病毒感染人数 311,487,724例
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.07.png)
+中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
 
-1、朝鲜据信再射一枚弹道导弹
-2、习近平近日向哈萨克斯坦总统托卡耶夫致口信，称中方“坚决反对外部势力蓄意在哈萨克斯坦制造动荡、策动‘颜色革命’“
-3、美国疾控中心建议国民不要到加拿大旅行
-4、澳大利亚同意向美国购买价值35亿美元的坦克与其它装甲车辆
-5、台湾和加拿大政府同意就投资保护协议启动会谈
-6、日本拟扩大、重组对美军支持加深介入台海防御
-7、布林肯国务卿就中共国制裁美国际宗教自由委员会成员发表声明
-8、“德国组织：冬奥选手避免吃中共国肉以免违反禁药规定
-9、乌克兰国家安全局10日表示抓捕一名计划在港口城市敖德萨发动袭击的俄罗斯军事情报特工
-10、因力挺台湾 立陶宛有望获得第一笔芯片投资
-11、厄瓜多尔总统2月访华与北京重新谈判债务问题
-12、民调显示多数加拿大人希望减少与中共国经贸往来，将人权置于经贸之上
-13、北约秘书长：外界不必对美俄就乌克兰局势展开的会谈抱有不切实际的期望
-14、六个月没有从喀布尔得到一分钱 阿富汗驻华大使提出辞职
-15、法经济部拒绝向咖啡馆酒吧餐馆业者提供额外补助
-16、恒大搬离深圳总部大楼 面临巨额债务到期
-17、 河南安阳育才学校现疫情 4040人被集中隔离
-18、辉瑞CEO：不确定是否需要第四剂COVID疫苗
+习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
 
+中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
+
+参考链接：[波灣四國外長集體訪中 討論強化能源關係](https://www.cna.com.tw/news/acn/202201100368.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
