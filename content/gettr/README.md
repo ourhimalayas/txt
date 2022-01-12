@@ -43,13 +43,6 @@ The content of Wang Yi's call with the Kazakh foreign minister  on 10th Jan veri
 
 ---
 
-`@miles 1/12/2022 1:01 PM (UTC)`
-
-2022年1月12日 文贵大直播：美国香港世界金融市场；冬奥会防疫社会面清零；病毒疫苗灾难肆虐全球；中共二十大前内斗加剧
-![img](https://media.gettr.com/group27/origin/2022/01/12/12/47591cb9-b091-d2ff-643c-d86fee808134/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
 **:arrows_clockwise: miles 已轉發**
 
 `@ahnewsfeed 1/11/2022 7:36 AM (UTC)`
@@ -163,6 +156,13 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1/09/2022 Miles Guo: Both Jiang Zemin’s faction and Zeng Qinghong’s faction deeply believe in the “Dragon” theory; the CCP is so superstitious about the idea that the Human Realm locates at South Putuo in Zhoushan and that the gods of heaven and earth live in the Kunlun Mountains and the Himalayas. Therefore, as long as the CCP exists, it will never allow Tibet or Xinjiang to become independent!<br/><br/>1/09/2022 文贵直播：“海派”江家、曾家相信“龙”，中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立！<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/10/23/468ad62c-da0b-7ca8-41fe-96293c86d8cb/out.jpg)
+
+---
+
+`@miles 1/10/2022 11:07 PM (UTC)`
+
+1/09/2022 Miles Guo: Why did Zeng Qinghong choose South Putuo to hold the South Putuo Meeting? Does that have to do with the Feng Shui of the entire China? Chongqing is inextricably linked to many major events in the history of China. Why is it the case that the people of Chongqing have been enduring the most hardships among all Chinese?<br/><br/>1/09/2022 文贵直播：曾庆红为何选在南普陀开南普陀会议？这和整个中华大地的风水有何关联？重庆和中国的诸多历史大事有着千丝万缕的关系，为什么说重庆人是中国中最辛苦的？<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/10/23/40257fbb-03d9-e34f-78db-6734227f36ad/out.jpg)
 
 ---
 
