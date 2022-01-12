@@ -2,25 +2,20 @@
 ---
 
 
-## 加拿大与台湾合作同御共匪
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1852463/)
+## 独家重磅！意大利微生物学家说: “并不是未接种疫苗者传播病毒而是接种疫苗者在传播病毒”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1852476/)
 
-采编/翻译：文莱 校对编辑，发稿：硫酸羟氯喹64
+#### 翻译                  意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-12-alle-20.16.19.png)图片来源：www.notizie.com
+帕多瓦大学微生物学家克里桑蒂教授公开直截了当地说：“需要有勇气重新审视去餐馆的事宜，但没人敢说。” 安德烈•克里桑蒂在接受 Notizie.com 记者恩利克•卡梅利欧采访时阐述了他的想法，以及意大利面对众多病毒感染采取的无数紧急情况的处理方式——在这关键时刻该采取哪些措施来应对和控制。至于学校，他认为尽一切可能保持在教室授课，虽然学校是病毒传播的一个很好的场所；要想减少病毒的传播，得关闭病毒最易传播的地方，例如体育场和餐馆。没人敢提重新审视去餐馆的事宜，还有足球场……
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-25-edited.jpg)图片来源：TNH
-
-
-据加拿大自媒体【真北方】1月11日报道，由于来自中共霸权的威胁与日俱增，加拿大正积极加强与台湾的全方位合作关系，以期遏制中共邪魔的猖獗入侵。
-
-加拿大国际贸易部长日前透露，两国之间拥有继续共同合作的必要性。为进一步促进双边贸易和互利商业机会，双边政府已达成一项有关科技技术，创新教育和绿色经济方面的合作投资协议。
-
-据悉，台湾目前是加拿大在亚洲的第六大贸易伙伴。截至2020年，两国之间的贸易额已达到8.13亿美元。但由于中共政府近年来不断地加大对台湾入侵的威胁，并坚持认为它是台湾的统治者，因此台湾一直在寻求国际势力的支持包括加拿大的帮。
-
-* * *
+安德烈•克里桑蒂教授在谈到给孩子施打新冠疫苗时毫不留情地说: “防止病毒传播过程中，未接种疫苗者的影响非常小，而大部分是打过疫苗的， 是他们在大量地传播病毒。是政府得到的信息不对。虽然未接种疫苗者生病并占据着重症监护室，大多数病例并不是他们引起的， 而是打了疫苗的。”
 
 原文链接：
 
-[Canada and Taiwan reach foreign investment agreement as China threat grows | True North (tnc.news)](https://tnc.news/2022/01/11/canada-and-taiwan-reach-foreign-investment-agreement-as-china-threat-grows/)
+[https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/](https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/)
+
+编辑、上传： Xiao   baige
 
  
 

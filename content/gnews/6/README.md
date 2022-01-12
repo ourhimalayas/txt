@@ -2,31 +2,50 @@
 ---
 
 
-## 七哥谈曾庆红（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852716/)
+## 爱尔兰部长：有信心从2月起放松对中共病毒的限制
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852733/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 四季
 
-来源：郭先生2022-01-09直播09：14：15摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-我为什么要谈重庆呢？我们曾经都谈曾庆红，曾庆红绝对我认为这是中国活着的人当中、喘气儿的、包括老江，第一高人。十个习近平加上今天七个常委，再加上现在刚出来这五个人，他也不是曾庆红的对手。就刚才讲的昆仑山脉、整个喜马拉雅的玉女峰、整个昆仑峰、卡兹玛峰（同音），和整个的喜马拉雅7770米的神峰、到整个重庆、到整个成都、到九寨沟、到长江、到黄河、到南普陀、到福建、到台湾，河流之间能顺手一抓，能把这河流的人脉，说在昆仑山脉居住着6亿，在西藏的水流居住着6亿人，周围大概有12亿人。 然后加上中国将近二十几亿人的分布，只有曾庆红能说出来，没有人能说出来的。谈《山海经》、谈整个说《三新通论》（疑：《三命通汇》为明朝万明英著，下同），老万、万心什么方了？写整个《三新通论》为什么写出来？哪行，哪不行？然后怎么生产出来所谓中国的这些《奇门遁甲》这些书，曾庆红几十年前给你搞得明明白白。曾庆红不会让人去对重庆陈敏尔动手 ，曾庆红对陈敏尔说过一句话，陈敏尔最后一定自己把自己毁了。很早以前当时跟习在江浙时候，搞什么“习思语”的时候，不用在乎他。最早对薄熙来说过，薄熙来进了重庆不会再出来的。 孙政才多往曾家巴呀，结果曾就告诉他身边儿的人，当时陈鑫他的秘书说“此人没有未来，少见为妙”。 对王岐山说“既不要反，也不要近他”。孟建柱是江家的杀手，但是他对孟和所有家人都说“孟这个人只能用，千万不能亲近”。对韩正是怎么说法？说“韩正这个人能帮则帮，但是千万不要用他”。就是能帮就帮，你成了我就帮，千万不要用你。曾庆红之奥深，这些都不能比。我再给你们说每年一个特殊的时辰，你们知道特殊时辰，千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间是什么时间？中国只有曾庆红，几代政府从毛泽东时期由周恩来去。毛泽东时期以后只有一个曾庆红亲自去；亲自到南普陀的只有曾庆红；到西藏的只有曾庆红；到整个龙之头、到整个东南的只有曾庆红。到泰山的只有曾庆红和曾庆红送去的江泽民。我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官能说出个1、2、3出来的。排在第一个水平是曾庆红，第二个是胡锦涛。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T111316Z_1_LYNXMPEI0B0FZ_RTROPTP_0_HEALTH-CORONAVIRUS-IRELAND_1.jpg)2021年12月17日，在爱尔兰都柏林，在冠状病毒病（COVID-19）大流行的情况下，人们在外出进行圣诞购物时戴着防护口罩。（REUTERS/Clodagh Kilcoyne）
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
+
+政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
+
+副总理里奥·瓦拉德卡（Leo Varadkar）周二表示，限制措施可能会分阶段放宽。此前，政府首先取消了最近实施的限制措施，之后会每隔两到三周进一步重新开放经济。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
