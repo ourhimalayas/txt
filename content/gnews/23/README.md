@@ -2,25 +2,44 @@
 ---
 
 
-## 加拿大与台湾合作同御共匪
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1852463/)
+## 有声|2021年国际社会对中共实施制裁，总计超过20次
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852496/)
 
-采编/翻译：文莱 校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-25-edited.jpg)图片来源：TNH
+配音：香草山佛教部 – 李傻
 
 
-据加拿大自媒体【真北方】1月11日报道，由于来自中共霸权的威胁与日俱增，加拿大正积极加强与台湾的全方位合作关系，以期遏制中共邪魔的猖獗入侵。
 
-加拿大国际贸易部长日前透露，两国之间拥有继续共同合作的必要性。为进一步促进双边贸易和互利商业机会，双边政府已达成一项有关科技技术，创新教育和绿色经济方面的合作投资协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-据悉，台湾目前是加拿大在亚洲的第六大贸易伙伴。截至2020年，两国之间的贸易额已达到8.13亿美元。但由于中共政府近年来不断地加大对台湾入侵的威胁，并坚持认为它是台湾的统治者，因此台湾一直在寻求国际势力的支持包括加拿大的帮。
 
-* * *
 
-原文链接：
+据不完全统计，截至12月底，2021年国际社会对中共的制裁达20次以上。既有美国发起的制裁，也有欧盟发起的制裁；既有国会签署的制裁法案，也有政府签发的行政命令；既有对实体企业的制裁，也有对中共官员的制裁。对中共实施制裁最多的国家是美国，制裁方式大多数是经济贸易制裁。
 
-[Canada and Taiwan reach foreign investment agreement as China threat grows | True North (tnc.news)](https://tnc.news/2022/01/11/canada-and-taiwan-reach-foreign-investment-agreement-as-china-threat-grows/)
+2021年国际社会制裁中共实体企业在13次以上，被制裁的中共实体企业在150家以上，涵盖通信、军事、石油、计算机、科研所、太阳能、生物科技等行业和机构。其中，制裁实体企业数量最多的一次是：2021年6月4日美国总统拜登签署一项新的行政令，禁止美国实体购买或者出售在美国上市的59家中国企业。
+
+原文链接：[2021年国际社会对中共实施制裁，总计超过20次](https://gnews.org/zh-hans/1851109/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

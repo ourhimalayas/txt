@@ -2,8 +2,8 @@
 ---
 
 
-## Visa调查结果：九个国家的小企业计划提供加密货币支付
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852693/)
+## 爱尔兰部长：有信心从2月起放松对中共病毒的限制
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852733/)
 
 作者：纽约香草山农场 – 四季
 
@@ -13,19 +13,15 @@
 
 
 
-据[ONA网站](https://www.oann.com/a-quarter-of-small-businesses-across-nine-countries-plan-to-offer-crypto-payments-visa-survey/)援引路透社1月12日报道，Visa 公司的一项调查显示，全球九个国家近四分之一的小企业计划在2022年接受数字货币作为一种支付方式，而这些国家13%的消费者预计其所在国的零售商店将在今年及以后开始提供加密货币支付。
+据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T120240Z_1_LYNXMPEI0B0HV_RTROPTP_0_CRYPTO-CURRENCIES-PAYMENTS_1.jpg)在2021年11月28日拍摄的这幅插图中，可以看到虚拟加密货币。（REUTERS/Dado Ruvic/插图）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T111316Z_1_LYNXMPEI0B0FZ_RTROPTP_0_HEALTH-CORONAVIRUS-IRELAND_1.jpg)2021年12月17日，在爱尔兰都柏林，在冠状病毒病（COVID-19）大流行的情况下，人们在外出进行圣诞购物时戴着防护口罩。（REUTERS/Clodagh Kilcoyne）
 
-Visa公司对美国、巴西、新加坡，加拿大，德国、爱尔兰和俄罗斯等九个国家的2250名小企业主的调查表明，加密货币可能将开始成为主流的支付手段。全球近四分之三的受访企业表示，接受新的支付形式是其业务增长的“基础”。
+爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
 
-Visa 在对这些国家的成年人进行调查后认为更多的人对加密货币感到更有信心。
+政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
 
-Visa发现，在阿拉伯联合酋长国、香港、新加坡和巴西，超过30%的小企业商户计划在未来几个月为客户提供使用加密货币付款的选项。尽管这些国家的法规各不相同，但数字货币在这些司法管辖区都已经起飞。
-
-相比之下，美国19%的小企业和加拿大仅8%的小企业预计在2022年提供加密货币作为支付选项。
-
-尽管加密货币在零售和专业投资者中的受欢迎程度不断上升，但并没有被广泛用于支付商品和服务，部分原因是其价值波动频繁。
+副总理里奥·瓦拉德卡（Leo Varadkar）周二表示，限制措施可能会分阶段放宽。此前，政府首先取消了最近实施的限制措施，之后会每隔两到三周进一步重新开放经济。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 

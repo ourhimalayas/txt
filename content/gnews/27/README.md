@@ -2,45 +2,31 @@
 ---
 
 
-## 炸裂消息：最高层协调的蓄意过失杀人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
+## 七哥说“共产党对这个国家的控制是从天到地、从心到生殖器” （2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852286/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
+来源：郭先生2022-01-09直播09：03：20摘录
 
-周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
+新疆的大自然里边儿藏的物资和密码，包括昆仑山脉的北侧2577公里，从南到北，就西南到东北。共产党是不可能让出西藏的，是不可能让出新疆的，所以很多人说要搞西藏独立，新疆独立，我可以告诉你除非你把中国全灭了，是不可能让你独立的。这个没有它的水、没有它的山，它的灵都没了。而共产党深为迷信的，它是昆仑山和喜马拉雅山这是它的所谓的阴阳，是它的天地之神。然后它认为人间道就是普陀。普陀是什么？在哪里？就是今天的南普陀山——舟山。大家讲这个的时候你再想想南普陀会议为什么选在南普陀，千年的普陀寺，普陀寺里面最关键地点在哪里？普陀寺里面有几个山的洞，曾庆红每年都去的。曾庆红每年的冬天就在福建过，福建在哪里？在厦门，厦门在哪里？中国的东南方。所以说刚才讲的时候叫什么？南龙、中龙、北龙，南干、中干、北干，是吧？巽山、艮山，是吧，震山，巽、艮、震，是不是？这是南、北、中，蓿、艮、震就把中国山脉全管，你刚才说的那些山都没有用的，那都是凑合上去的，你把巽、艮、兑，是吧，你把整个巽艮震，艮兑坤八卦这些全搞出来，你就知道中国的所有的《山海经》讲的什么，《三新通论》讲了什么。共产党是全人类最迷信的，它让你不迷信。而共产党整个对这个国家的控制是从天到地、从心到生殖器。
 
-新公布的军事文件与福奇博士的宣誓证词相矛盾。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-真相工程发布：
+**关注我们**
 
-- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
-- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
-- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
+Gettr 账号
 
-“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
-
-周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
-
-马龙博士称它“比五角大楼的文件更重磅”。
-
-沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
-
-娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
-
-**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,20 +2,46 @@
 ---
 
 
-## 独家重磅！意大利微生物学家说: “并不是未接种疫苗者传播病毒而是接种疫苗者在传播病毒”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1852476/)
+## 有声|美国要求保险公司必须支付家庭中共病毒测试费用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852506/)
 
-#### 翻译                  意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-12-alle-20.16.19.png)图片来源：www.notizie.com
-帕多瓦大学微生物学家克里桑蒂教授公开直截了当地说：“需要有勇气重新审视去餐馆的事宜，但没人敢说。” 安德烈•克里桑蒂在接受 Notizie.com 记者恩利克•卡梅利欧采访时阐述了他的想法，以及意大利面对众多病毒感染采取的无数紧急情况的处理方式——在这关键时刻该采取哪些措施来应对和控制。至于学校，他认为尽一切可能保持在教室授课，虽然学校是病毒传播的一个很好的场所；要想减少病毒的传播，得关闭病毒最易传播的地方，例如体育场和餐馆。没人敢提重新审视去餐馆的事宜，还有足球场……
+配音：香草山佛教部 – 李傻
 
-安德烈•克里桑蒂教授在谈到给孩子施打新冠疫苗时毫不留情地说: “防止病毒传播过程中，未接种疫苗者的影响非常小，而大部分是打过疫苗的， 是他们在大量地传播病毒。是政府得到的信息不对。虽然未接种疫苗者生病并占据着重症监护室，大多数病例并不是他们引起的， 而是打了疫苗的。”
 
-原文链接：
 
-[https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/](https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-编辑、上传： Xiao   baige
+
+
+美国卫生与公众服务部周一宣布，从 1月15日开始，健康保险公司必须承担家庭中共病毒测试的费用。
+
+新要求意味着大多数拥有私人健康保险的消费者可以在线或在商店购买家庭测试剂，并在购买时支付费用或通过向保险公司提交索赔来获得报销。
+
+该部门表示，消费者无需去看医生或获得处方即可获得免费测试，并且测试不会受到共付额或免赔额的影响。
+
+原文链接：[美国要求保险公司必须支付家庭中共病毒测试费用](https://gnews.org/zh-hans/1851296/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

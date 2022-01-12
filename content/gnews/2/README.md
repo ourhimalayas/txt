@@ -2,31 +2,78 @@
 ---
 
 
-## 七哥谈“和重庆扯不断的关系”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852712/)
+## 共产党的以非灭美以非灭白，其实就是风水之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
 
-来源：郭先生2022-01-09直播09：08：44摘录
+**郭文贵**
+Miles Guo
 
-总是和重庆扯不断的关系？啊，大家要记住，重庆、天津、上海、武汉，就这样的地方，它发生的事情对中国的重要。那广州吧还算是一个吧。整个东北三省加一起，过去的5000年加一起都没它一年发生的事儿多，为啥呀？经济重要、军事重要、是吧，而且人才多、文化非常优秀。话又说回来了，你看昆仑山脉、喜马拉雅山脉往整个捋下来，一过来就到了九寨沟，就到了重庆。重庆没有什么山，重庆有什么？处女山、玉女山、玉女峰还有玉女湖。薄熙来、陈敏尔都去洗澡去，就是那所谓的“淫荡”之山，也可以称为叫阴山。东北有什么大山呢？你看东北那地方就出粮食，它也没有出什么了不起的人物，是不是啊。我是从东北出生，混到了南方去，还擦点儿边儿。东北你看看就一个火山叫长白山，但是在昆仑山上有多少，你知道有多少火山吗？你知道有多少火山吗？小飞侠你能告诉我？不知道吧兄弟呀，所以你老问问题。我告诉你在整个昆仑山脉，你在飞机上你看，你才知道中国这个国土是很神奇的。它有几十处火山，隐藏着上百处的火山，它一九五几年火山才刚刚停。你没想到昆仑山脉，昆仑山脉有火山大动作。昆仑山脉现在根据科学，印度洋的板块和南极板块和北边板块它一直在动、一直在撞。就是这地球里边包着的另外一个星球，从地球撞出去另外一个叫月球。月球现在跟地球之间就是差一点儿，这个地球就完了。海水过去是比这个高的，现在降下来了。它撞出了海洋 、撞出了山坡、撞出了山脉、撞出了人类。然后另外一个星球被吸到地球的里边了、芯里了。 咱今天挖的铁、矿、锌都那里边儿来的，包括火山爆发也是那个星球来的。然后地球bang又撞出来一个月球，月球又跟它形成了这种对立。如果月球一转过来，地球完蛋了。你看这个神秘的力量。这个爹亲娘亲不如党亲，共产党它有多无耻，它想代表这种神秘的力量。然后创造出四季，本来人类是没有、地球上没有四季的。在这个时候你要看到昆仑山下边儿是火山，这几个火山是什么？七个最大的火山后边儿，又是七个啊，不是我编的啊，你自己查去。七个最大的火山随时会爆发。这时候到了重庆你会发现什么吗？ 重庆里边有树，树里边有玉女峰。重庆里边的人非常辛苦，从过去的三国、春秋都是必争之地，争的是什么？争的是粮食。重庆人是中国人当中最辛苦，兵役、粮仓、必争必杀之地，几次绝。近代的张献忠竟然能把四川人杀掉了百分之八、九十。光女人的脚丫子剁成了一座山。99%的财富全拿走了，几乎是绝迹。历史上被杀到是绝迹的中国四川是最多次的。就像是欧洲马耳他，马耳他是三次人被杀光，一个不留。就这个岛就叫马耳他国家，中国就叫四川，就叫重庆。西边西藏、昆仑山脉，再往那边儿去，整个到印度那边儿去，它非常神奇。你再看那个墨脱，墨脱市就是蓝莲花，就是莲花之地呀。墨脱就是莲花之地、佛祖仙境、奇珍异草。在重庆有很多这种奇珍异草的仙境，有很多山上的池，池中峰，峰中的树，还有很多神秘的地方。但是它没有大山，它只有河流。这个地方生产太多的粮食和农业，说白了是共产党那个地方出兵役，整个是为党、为皇帝献命地方、兵役的地方，然后是粮食生产的地方。现在中国最早的打工妹当中在深圳。但是打工妹里边最辛苦、死最多的打工仔、打工妹来自四川。四川人真的很了不起，我对四川人是四川的女性我高看好几眼。在历史上 四川的女性是最可信任的。而且四川在我们人类、中国的历史上扮演了极为重要的作用。那么这次重庆大爆炸的事，它没有任何我认为是偶然性的，也没有任何是操纵性，不要把它政治化，不存在。但是大家都突然因为陈敏尔想到这么多，我为什么要谈重庆呢？
+它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+然后把非洲人送到了哪去了，把非洲人送到了欧洲去
+then where did they send the Africans? the Africans were sent to Europe
 
-**关注我们**
+非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
+The Africa’s so-called illegal immigrants, then incite African Americans in America
 
-Discord 账号
+闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
+to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+你见中共用黑白过，它认为黑为水，白为金，是吧
+You have seen the CCP use black or white, it believes that black is water and white is gold, right?
 
-Gettr 账号
+在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
+Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
+It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
+
+东边是什么？东方为绿色，为木色，南边为火，南为火
+What’s the east? east is green, wood color, south is fire
+
+它发现我得怎么干，我要把整个的能烧掉你金的五行当中
+It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
+
+南方的就是黑，黑人，非洲的火烧你的金，炼你的金
+the south is black, black people, and the fire of Africa burns your gold and refines your gold
+
+利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
+Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
+
+以土为多的国家，然后在那装擀面杖子
+earth-based country, and then pretend to be strong there
+
+就是共产党的所有精神境界和文化，都是一样的境界
+It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
+
+无知、愚昧，它本身就不平衡，它硬整出来的平衡
+ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
+
+这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
+This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
+
+**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
+
+Date: 01/11/2022
+原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
+The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
+原视频日期：2022/01/09
+原视频链接 https://gettr.co/post/pnef2s2d7a
+任务编号：KC409（3459）
+视频时间段 : 0:00-1:51
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,20 +2,40 @@
 ---
 
 
-## 加拿大强制接种计划遭部分省份拒绝
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1852500/)
+## 有声|人类将在与中共的三个层次争战中大获全胜
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852532/)
 
-加拿大温哥华扬帆农场皇家山频道    平民正道
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月7日的直播中指出，人类正在与魔鬼中共就三个层次作生死较量。
 
-据加拿大【CTV新闻】1月7日报道，阿尔伯塔省长当天果断拒绝了联邦政府目前以“保护加拿大不堪重负的医疗系统”为由，而强推的“新冠病毒”疫苗接种计划。
+首先，在信仰层面，即有神论和无神论的较量。郭先生多次提到，宣称无神论的中共其实是世界上最迷信的邪教组织，其以巫术为由在中共国内肆意作恶，但最终的结果只能是害人不利己。
 
-报道称，阿尔伯塔省长肯尼表示，尽管当局鼓励人们尽快接种疫苗，但由于涉及到个人的自由选择权，因此该省的立法机构已依据《公共卫生法》取消了政府此前对疫苗强制接种的授权，并将不会重新审视这一决定。
+其次，则是民主与独裁，即“民天下”与“家天下”的较量。郭先生解释，中共目前已然成为了习家的天下，但这将加剧中共的党内斗争，其下场只会是两败俱伤。
 
-据悉，[萨斯喀彻温省]省长日前也发表过同样的论点，并拒绝在该省实施强制接种政策。虽然加拿大联邦政府计划在全国推动疫苗强制接种，但各省政府对此将拥有最终的决定权。
+原文链接：[人类将在与中共的三个层次争战中大获全胜](https://gnews.org/zh-hans/1851577/)
 
-* * *
+音频处理：Daxia
 
-编辑： 平民正道    发布：平民正道
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
