@@ -2,20 +2,44 @@
 ---
 
 
-## 独家重磅！意大利微生物学家说: “并不是未接种疫苗者传播病毒而是接种疫苗者在传播病毒”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1852476/)
+## 有声|2021年国际社会对中共实施制裁，总计超过20次
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852496/)
 
-#### 翻译                  意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-12-alle-20.16.19.png)图片来源：www.notizie.com
-帕多瓦大学微生物学家克里桑蒂教授公开直截了当地说：“需要有勇气重新审视去餐馆的事宜，但没人敢说。” 安德烈•克里桑蒂在接受 Notizie.com 记者恩利克•卡梅利欧采访时阐述了他的想法，以及意大利面对众多病毒感染采取的无数紧急情况的处理方式——在这关键时刻该采取哪些措施来应对和控制。至于学校，他认为尽一切可能保持在教室授课，虽然学校是病毒传播的一个很好的场所；要想减少病毒的传播，得关闭病毒最易传播的地方，例如体育场和餐馆。没人敢提重新审视去餐馆的事宜，还有足球场……
+配音：香草山佛教部 – 李傻
 
-安德烈•克里桑蒂教授在谈到给孩子施打新冠疫苗时毫不留情地说: “防止病毒传播过程中，未接种疫苗者的影响非常小，而大部分是打过疫苗的， 是他们在大量地传播病毒。是政府得到的信息不对。虽然未接种疫苗者生病并占据着重症监护室，大多数病例并不是他们引起的， 而是打了疫苗的。”
 
-原文链接：
 
-[https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/](https://www.notizie.com/2022/01/11/esclusiva-crisanti-non-sono-novax-diffondere-virus-ma-vaccinati/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑、上传： Xiao   baige
+
+
+据不完全统计，截至12月底，2021年国际社会对中共的制裁达20次以上。既有美国发起的制裁，也有欧盟发起的制裁；既有国会签署的制裁法案，也有政府签发的行政命令；既有对实体企业的制裁，也有对中共官员的制裁。对中共实施制裁最多的国家是美国，制裁方式大多数是经济贸易制裁。
+
+2021年国际社会制裁中共实体企业在13次以上，被制裁的中共实体企业在150家以上，涵盖通信、军事、石油、计算机、科研所、太阳能、生物科技等行业和机构。其中，制裁实体企业数量最多的一次是：2021年6月4日美国总统拜登签署一项新的行政令，禁止美国实体购买或者出售在美国上市的59家中国企业。
+
+原文链接：[2021年国际社会对中共实施制裁，总计超过20次](https://gnews.org/zh-hans/1851109/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

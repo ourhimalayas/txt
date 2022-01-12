@@ -15,77 +15,77 @@
 
 ---
 
-### [有声|追求言论自由 不同政见人士大规模迁移加入盖特](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [有声|中疾控专家就天津疫情公开发声却惨遭墙内民众嘲讽](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [扬帆每日速递2022年1月12版](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/4/README.md)
- ` 扬帆枫叶快讯`
-
-### [麦卡洛博士 — 我的短信炸开了锅，人们说如果我不打疫苗就会失去工作， 有什么工作值得你冒生命危险去打这些疫苗？](/content/gnews/5/README.md)
+### [健康的儿童不会死于新冠，但医药公司仍然要让儿童使用疫苗](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|人类将在与中共的三个层次争战中大获全胜](/content/gnews/6/README.md)
+### [有声|追求言论自由 不同政见人士大规模迁移加入盖特](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/7/README.md)
+### [有声|中疾控专家就天津疫情公开发声却惨遭墙内民众嘲讽](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [扬帆每日速递2022年1月12版](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
+
+### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/5/README.md)
  ` 扬帆枫叶快讯`
 
-### [有声|美国要求保险公司必须支付家庭中共病毒测试费用](/content/gnews/8/README.md)
+### [麦卡洛博士 — 我的短信炸开了锅，人们说如果我不打疫苗就会失去工作， 有什么工作值得你冒生命危险去打这些疫苗？](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [有声|人类将在与中共的三个层次争战中大获全胜](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [美立法者表示美国科技公司不应协助中共作恶](/content/gnews/9/README.md)
+### [4400万失业大军，1076万应届毕业生，大学生就业危机如何度过？](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美疾控中心或成为拜登疫情政策的替罪羊](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
+
+### [有声|美国要求保险公司必须支付家庭中共病毒测试费用](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [美立法者表示美国科技公司不应协助中共作恶](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大强制接种计划遭部分省份拒绝](/content/gnews/10/README.md)
+### [加拿大强制接种计划遭部分省份拒绝](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [有声|2021年国际社会对中共实施制裁，总计超过20次](/content/gnews/11/README.md)
+### [有声|2021年国际社会对中共实施制裁，总计超过20次](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [辉瑞与武汉病毒研究所共推疫苗接种阴谋](/content/gnews/12/README.md)
+### [辉瑞与武汉病毒研究所共推疫苗接种阴谋](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [独家重磅！意大利微生物学家说: “并不是未接种疫苗者传播病毒而是接种疫苗者在传播病毒”](/content/gnews/13/README.md)
+### [独家重磅！意大利微生物学家说: “并不是未接种疫苗者传播病毒而是接种疫苗者在传播病毒”](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [有声|大卫萨索利 David Sassoli，欧洲议会主席，疫苗护照的发起人，他死了！](/content/gnews/14/README.md)
+### [有声|大卫萨索利 David Sassoli，欧洲议会主席，疫苗护照的发起人，他死了！](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [加拿大试图立法以强制接种中共病毒疫苗](/content/gnews/15/README.md)
+### [加拿大试图立法以强制接种中共病毒疫苗](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大与台湾合作同御共匪](/content/gnews/16/README.md)
+### [加拿大与台湾合作同御共匪](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [房产税的血还没吸干，居然又来了“房东税”？](/content/gnews/17/README.md)
+### [房产税的血还没吸干，居然又来了“房东税”？](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|GTV新闻访谈简报|2022年1月11日晚](/content/gnews/18/README.md)
+### [有声|GTV新闻访谈简报|2022年1月11日晚](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [共产党的风水与爆料革命的天机](/content/gnews/19/README.md)
+### [共产党的风水与爆料革命的天机](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [第三十八期-金融税务专题](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [欧盟监管机构：COVID 加强针“可能会产生不利影响”，“最终会削弱免疫力”](/content/gnews/21/README.md)
+### [欧盟监管机构：COVID 加强针“可能会产生不利影响”，“最终会削弱免疫力”](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈莲花生佛和七的关系（2022-01-09摘录）](/content/gnews/22/README.md)
+### [七哥谈莲花生佛和七的关系（2022-01-09摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [七哥谈中共派系（2022-01-09摘录）](/content/gnews/23/README.md)
+### [七哥谈中共派系（2022-01-09摘录）](/content/gnews/24/README.md)
  ` MG FARM`
-
-### [中共要求塞浦路斯引渡法治基金的支持者失败](/content/gnews/24/README.md)
- ` Itana`
 
 ### [七哥说“共产党是绝对天下最迷信”（2022-01-09摘录）](/content/gnews/25/README.md)
  ` MG FARM`
