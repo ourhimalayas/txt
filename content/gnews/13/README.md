@@ -2,43 +2,28 @@
 ---
 
 
-## 七哥是家里唯一跟家人拥抱的人,从小到大深信人生有来世
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850460/)
+## 【中日财经爆】世行警告中共国地产业硬着陆恐冲击全球经济
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1850578/)
 
-G-TV视频链接：[https://gtv.org/video/id=61de3a4987664c47acd38bbc](https://gtv.org/video/id=61de3a4987664c47acd38bbc)
+整理编辑：东京樱花团丨peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-872.png)[*图片来源*](https://gdb.voanews.com/CD66DB45-8781-46F1-8715-853B1B0FCA1C_w1597_n_r1_st.jpg)
+世界银行周二（1月11日）表示，较贫穷发展中国家可能需要20国集团（G20）加快债务纾困，越来越多这样的国家因债务上升和经济增长放缓而承压。世行指出，中共国房地产业的无序去杠杆化恐波及整体经济。
 
-**郭文贵先生：**就是钟仁刚刚说给家人情绪表达，还有什么的。我们家是我唯一一个情绪从小到大表达的，所以说我们家里边儿就觉得我是个另类，从生下来就是个另类。
+世界银行在其最新的《全球经济展望报告》中表示，2020年中共病毒（新冠）大流行引发的经济衰退导致一半的低收入国家陷入债务困境，或处于高风险之中。
 
-中国人从来不会说感谢父母，问个好，从来不会，我那个时候就会。我从清丰看守所出来以后，见谁都问好，我就会。而且我们家唯一一个跟家人拥抱的人，从来没有人会的，我是唯一一个。七哥绝对是从小到大我深信人生是有来世，我相信我们人就是“黄粱一梦”。
+报告称，新兴市场经济体和发展中经济体的债务水平以30年来最快的速度上升，尽管低收入经济体的增长预计将在2022年升至4.9%，2023年料增长5.9%，但其中一半国家的人均收入预计今年仍将低于大流行前的水平。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+报告总结称，“如果经济增长保持低迷，很可能需要进一步的债务纾困，国际社会需要随时准备以公平而有效的方式提供纾困。”2020年11月启动的G20暂停偿债倡议（DSSI），旨在主要通过延长期限和降低利率的方式为符合条件的国家提供债务纾困。不过，该倡议进展缓慢。报告称：“该框架需要提供更快的债务纾困才能有效–第一个在框架下请求纾困的国家于2021年1月提出请求，相关过程迄今尚未完成。”
 
-编辑整理：Jacques；
+世行表示，通过明确的时间表和透明的规则将执行正规化，可能有助于加快这一进程，而债务国应实施政策，以支撑财政框架并提高债务透明度。较高和不断上升的债务水平也意味着市场和机构越来越容易受到金融压力的影响，特别是在财政状况疲软和主权债务居高不下的国家，有效应对的空间要小得多。
 
-字幕文件制作：小满；
+世行特别提到了中共国，金融压力可能导致该国房地产行业的无序去杠杆化。报告称：“动荡的去杠杆化可能会导致房地产行业的长期低迷，由此引发的房价下跌，家庭财富减少以及地方政府收入锐减，将会给整体经济造成重大冲击。”
 
-视频制作及上传：Cindy；
+消息来源：[**世行敦促G20加快债务纾困 警告中国地产业无序去杠杆化恐波及整体经济**](https://cn.reuters.com/article/world-bank-chinese-property-sector-0111-idCNKBS2JM00I?il=0)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

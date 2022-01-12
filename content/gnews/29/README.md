@@ -2,34 +2,37 @@
 ---
 
 
-## 北京冬奥会赞助商无视中共政权恶劣的人权状况
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1850171/)
+## 加拿大将对未接种新冠疫苗者征收特殊税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image.jpg)图片来源：www.foxnews.com
-《福克斯新闻》2022年1月10日报道，一位人权研究人员告诉《福克斯新闻》，中共正在利用2022年冬奥会“使其侵犯人权行为合法化”，并补充说，“世界其他国家应该远离北京冬奥”。北京将于2月初开始举办奥运会。美国政府和游说团体指责中共迫害维吾尔族人和其他突厥穆斯林信徒，并利用他们在中共国新疆地区进行强迫劳动。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-一位人权观察(Human Rights Watch)组织中国部高级研究员王亚秋告诉《福克斯新闻》：“这不仅仅是一场体育赛事。中共政府正在利用这场赛事来展示这个国家，使这个国家的地位合法化，使其政策合法化，包括许多侵犯人权的行为。”
+翻译：George Warshing
+编辑：George Warshing/小红帽
 
-王说：“成为奥运会的一部分将被中国共产党用作使其侵犯人权合法化的工具，包括新疆的局势。”“这就是为什么世界其他国家应该远离这次奥运会。” 距离2022年北京冬季奥运会还有不到一个月的时间，人权观察加大了抵制奥运会的力度。它向奥运赞助商施压，要求他们利用自己作为中共政府商业伙伴的影响力，制止该国对新疆维吾尔族穆斯林和香港活动人士的迫害，并改革其有关西藏和台湾的政策。
-
-奥林匹克全球合作伙伴计划(The Olympic Partner program，TOP)下的赞助商包括13家大公司，如Visa、普利司通、欧米茄、宝洁和三星。“我们写信给他们每个人，包括爱彼迎(Airbnb)、可口可乐、安联，”王说，“我的意思是，他们正在为北京冬奥会提供资金。” 王说，只有安联对人权观察做出了回应，但它的回答并不令人满意。
-
-**简评：**通过人权观察组织提供的信息来看，这些赞助北京冬奥会并利用它作为营销工具的企业，看起来并不会利用其强大的影响力为中共国恶劣的人权状况大胆发声，也不会撤资北京冬奥会，这说明它们都在将利益置于人权之上，它们的价值观已经被中共的红色病毒所污染。
-
-但是，这些赞助商的选择无疑是错误的，中共国正在经历的房地产倒闭潮预示着中共国虚假的经济很难再继续维系下去，而恒大地产债务违约的现实说明，如果经济走向崩溃，中共为了自保，势必首先放弃这些外国投资人的利益。可以预见，这些冬奥会的赞助商将为他们的选择付出惨重的代价。
-
-新闻链接：[https://www.foxnews.com/world/china-using-olympics-legitimize-abuses-human-rights-researcher](https://www.foxnews.com/world/china-using-olympics-legitimize-abuses-human-rights-researcher)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/BJCP6IK24YYM9C8HQEQVA.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+**根据《RT新闻》1月11日报道**，随着奥密克戎病毒的迅速传播，在加拿大魁北克的中共病毒感染住院人数快速上升，未来几周需要增加1,000名医院工作人员和1,500名家庭护理人员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+鉴于病人激增的情况，魁北克省要求对未接种新冠疫苗的居民征收一项新的健康税。总理弗朗索瓦·勒戈（（Francois Legault））周二誓言要对未来几周内拒绝接种第一剂新冠疫苗的人实施经济处罚。同时，疫苗限制令的适用范围仍在扩大，原本只在进入餐厅、剧院、酒吧和赌场等场所时需要出示疫苗护照，但现在，这一做法已经扩大到了酒类和大麻商店。
+
+当被问及政府可能因前所未有的税收而面临的法律和道德挑战时，总理承认此举是“大事”。他没有透露所征收的新税的金额。他借鉴了外国的处理措施，说：“你看看其他国家或州正在发生的事情，每个人都在努力寻找解决方案。”
+
+然而，给该省的医疗保健系统带来压力的不仅仅是没有注射疫苗的魁北克人。事实上，大多数新的中共病毒患者都已完全接种了疫苗。
+
+据报道在过去一天登记接受治疗的433名新患者中，[有](https://montreal.ctvnews.ca/quebec-reports-sharp-rise-of-62-new-covid-19-deaths-total-surpasses-12-000-1.5735469)117人未接种新冠疫苗，而290人注射了两剂疫苗。在新入住重症监护病房的患者中仅12人未接种疫苗，而17人接种了两剂疫苗。
+
+**原文链接：**[Unvaccinated to face special tax in Canada — RT World News](https://www.rt.com/news/545747-quebec-to-tax-unvaccinated/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

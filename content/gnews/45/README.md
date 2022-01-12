@@ -2,30 +2,33 @@
 ---
 
 
-## 【中日财经爆】马化腾：腾讯只是一家普通公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849609/)
+## 有声|波湾四国外长访中共计与石油议题有关
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849719/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-154.jpg)[图片来源](https://www.sohu.com/a/353593672_413981)
-马化腾在2021年员工大会上的讲话日前被媒体曝光，引起热议。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-11-%E4%B8%8A%E5%8D%889.53.07.png)
+中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
 
-去年年底的员工大会上，马化腾对2021年发生的一系列变化表达了自己的想法。他说，腾讯只是国家社会发展期间的一家普通公司。是国家发展浪潮下的受益者，并不是什么基础服务，随时都可以被替换。未来腾讯在服务国家和社会的时候，要做到不缺位、做到位、不越位，做好助手、做好连接器。
+习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
 
-2021年港股经历了惨淡的一年，腾讯更是耗巨资回购，1月5日—1月10日累计回购耗资8.14亿港元。11日晚间，腾讯公告回购44万股股份，价格区间为452.2港元—461.8港元，耗资约2.02亿港元。
+中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
 
-2021年在监管风暴的背景下，中国最富有的10为科技大亨，净资产合计蒸发800亿美元，腾讯的马化腾为101亿美元。
+文字版原文：[波湾四国外长访中共计与石油议题有关](https://gnews.org/zh-hans/1847764/)
 
-2021年腾讯进行了大规模的组织调整。被要求放弃独家音乐版权；主导的斗鱼、虎牙合并案被否决；8年来第一次开放微信外部跳转链接；未成年保护日益严格，游戏的版号发放暂停；几乎清空对京东的持股，这曾是它最重要的一笔对外投资。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-腾讯是当前中国市值最高的互联网公司，当然也需要面对更多挑战。随着市值的不断下跌，腾讯已经掉出了全球十大互联网公司行列。过去，腾讯依靠政商关系、投资生态与手中掌握的海量版权在许多领域拔得头筹，但是现在“躺赢”的日子已经一去不复返了，也许真的要变成一家普通公司了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-信息来源：
-
-[刷屏！马化腾：腾讯只是一家普通公司，随时都可以被替换…](https://finance.sina.com.cn/tech/2022-01-12/doc-ikyamrmz4650751.shtml)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,24 @@
 ---
 
 
-## 有声|文贵先生谈喜币价值 寄语墙内战友
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849721/)
+## 辉瑞公司宣布削减美国国内的销售职位
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1850112/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在2022年1月9日大直播中，郭先生主动聊起喜币，尤其对墙内战友衷心叮嘱，保证其投资信息与回报的安全。
+撰稿：东京樱花团丨待命（文晓）
+![](https://lh4.googleusercontent.com/aXRkxX6trn9u9WlejqMZsgWBLVXMcuFHuaMZD5CQSQPNr9J1r_aGWmTy3MsFmv_fTjUuGm7yO2N0jm4fdOny0i0CQwqZYELDwSJt9f78_zqX4kozoOBnYaBjNfH51EQ2vkYVDQzb)（图片源自本文链接）
+日本雅虎网1月12日消息：据路透社报道，美国制药巨头辉瑞（Pfizer）公司周四表示，将削减国内的销售代表数量，因为该公司预计在中共病毒（新冠病毒）结束后，医生和其他医疗工作者会希望减少与销售代表面对面的交流。
 
-首先，自身的安全。不要因急于买喜币，不考虑风险去银行汇钱，结果可能被举报抓捕询问。
+辉瑞公司在一份声明中说：我们正朝着更加专注和创新的生物制药公司方向发展，我们也在不断发展我们与医疗保健专业人士在日益数字化世界中的接触。我们将对我们的员工队伍进行改革，以确保我们有正确的专业知识和资源来满足不断变化的需求。但是声明没有透露将被削减的销售人员的具体人数。
 
-其次，先与所在农场联系，做好KYC，将帐户准备好。
+据熟悉此事的消息人士称，辉瑞公司计划取消数百个职位，并为其中约一半人在新领域创造职位。该公司说，医生和其他医疗专业人员预计在未来会希望他们在与药物公司的互动中，有大约一半是通过远程方式完成，路透社已经证实了该公司的相关文件。
 
-最后，寻问农场有何安全方式能将钱汇到喜帐户内，然后才能买喜币。
+众所周知瑞辉公司已在这次人类大灾难中，在多国政府的配合下，赚得盆满钵满，再不需要那么多的营销人员是不言而喻的。不过，编个理由还是必要的。
 
-每一步都要小心谨慎，才不会被中共伤害。
+信息来源：[**ファイザー、米国内の営業職を削減へ　リモート推進（ロイター） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/a141c9eadf4e7b2f1b0bca845f5f2717c7177417)
 
-文贵先生郑重向墙内战友提供三项保证：第一. 任何人拿不走你的个人信息；第二. 无论中共怎样做，拿不走你的喜币；第三. 买币以后，如果你在喜币赔钱，郭先生负责。
-
-喜支付即将上线，意味着喜币将成为可以自由流通购物的工具，这是喜币开始要发挥其价值的起点，也是投资机构会积极进场的时刻。
-
-喜币的独特优势，加上战友们齐心锁币的行动，将使其在竞争激烈的加密货币市场独领风骚，涨势不可限量。
-
-文字版原文：[文贵先生谈喜币价值 寄语墙内战友](https://gnews.org/zh-hans/1847804/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,46 @@
 ---
 
 
-## 福奇早知新冠病毒可能由中共实验室故意基因编辑并泄露
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1850344/)
+## 人生就是黄粱一梦,唯一与过去不一样的是科技让梦被记载
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850493/)
 
-#### 撰稿：彩虹   
+G-TV视频链接：[https://gtv.org/video/id=61de3a8887664c47acd38bdd](https://gtv.org/video/id=61de3a8887664c47acd38bdd)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-24.jpg)图片来源：BBC
-1月11日，《新闻极限》报道，众议院共和党人指，电子邮件显示，新冠病毒（COVID-19）有可能是从中国武汉的一个实验室泄露的，并且该病毒可能是被故意基因编辑过的，安东尼·福奇（Anthony Fauci）博士曾得到过相关警告。
+**郭文贵先生：**我告诉你，现在就是人类历史上发明什么“雁过留声，人过留名”。“雁过留声”你是无法衡量，“人过留名”怎么来确认呢，历史都被篡改了。现在就是有互联网、录音、录像、电影、今天的直播。七哥刚才讲我照片的时候，就是照片记录了我当时的历史，它就是记载了我的梦。
 
-美国国会议员在给卫生与公众服务部部长泽维尔·贝塞拉（Xavier Becerra）的信中说：“当务之急，是调查这一信息是否传达给了政府其他部门，以及（当时）这一信息是否会改变美国对这一疫情的反应。我们写信要求对NIAID（美国国家过敏和传染病研究所）所长安东尼·福奇博士进行采访录音。”。
+人生就是梦嘛，我的人生嘛。现在直播录像不就是我们的记载嘛，我们的人生是“黄粱一梦”，我们的人生第一次可以被放被大家记载下来，可以被重复被观看。所以我们在人生，今天说”黄粱一梦”的时候，你在梦里的一切都被记载下来，就像我们自己脑子做的梦，根本无法重复。
 
-信中还指出，“尽管福奇博士在多个场合声称不知道，但事实上，在2020年1月27日之前，他知道NIAID、NIH（美国国家卫生研究院）、生态健康联盟公司（EcoHealth）和武汉病毒研究所之间的金钱关系”。
+但是大家记住，现在的量子电脑，生物科技会把你大脑的所有经历给你记载下来。你做过的梦展现下来，这就是科技，这就是伟大。就像数字货币一样，你发现那些怀疑数字货币的人，脑子都是狗屎都不如的人。
 
-并且，“福奇博士还知道，NIAID与EcoHealth合作，制定了一项拨款政策，以避开当时的（病毒）功能性增强（实验）暂停令。这项由EcoHealth设计并得到NIAID同意的新政策允许在几乎没有监督的情况下，EcoHealth完成对新型蝙蝠冠状病毒的危险实验，否则就会被暂停令所阻止”。
+因为科技已经让你完全不需要拿着纸币当傻人去了，就像今天看到梦都可以被记载，就像我们直播一模一样，人生就是“黄粱一梦”。这个梦是唯一不跟过去一样，被记载。当你醒来的时候，你在床上是另外一个肉体，告诉你，当我们人类有一天离开这个皮囊的时候，绝对就像你睡醒觉一样，我有另外一个肉体，另外一个身体，一定会的。
 
-该信由众议院监督和改革委员会排名第一的共和党众议员詹姆士·卡莫（James Comer）和司法委员会排名第一的共和党众议员吉姆·乔丹（Jim Jordan）签署。
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-据报道，共和党议员说，这些电子邮件是通过《信息自由法》获得的，（但发现）部分内容被删减了。
+编辑整理：海贼王M.D.LUFFY；
 
-对此，他们在信中写道：“我们呼吁你立即取消这些删减内容，向国会出示这些（原始）的电子邮件。此外，考虑到上述问题的严重性，我们要求安东尼·福奇博士立即接受笔录采访。请在2022年1月18日前回复确认。”
+字幕文件制作：小满；
 
-**新闻来源**
+视频制作及上传：Cindy；
 
-[House GOP: Emails Reveal Fauci Was Warned of Possibility COVID Leaked From China Lab](https://www.newsmax.com/newsfront/fauci-email-republicans-china/2022/01/11/id/1051912/)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,33 +2,21 @@
 ---
 
 
-## 有声|波湾四国外长访中共计与石油议题有关
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849719/)
+## COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1849995/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-11-%E4%B8%8A%E5%8D%889.53.07.png)
-中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
+**疫情關注組 / 發佈時間｜12/1/2022**
 
-习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
 
-文字版原文：[波湾四国外长访中共计与石油议题有关](https://gnews.org/zh-hans/1847764/)
+外媒报道称，比利时一座位于南极的科研站（名称：Princess Elisabeth Polar Station），即便与外界隔绝仍发生25例确诊新冠病毒，确诊人数占全部人员的三分之二。 报道明确指出科研站内的工作人员已完全接种疫苗。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+该科研所第一例确诊是发生在12月14日，将确诊者隔离、人员已全面接种疫苗仍无法阻止病毒在科研站内扩散。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Blue-3D-Grid-Artificial-And-Intelligence-Science.png)
+來源｜[MSN](https://www.msn.com/en-us/news/world/antarctic-station-hit-by-covid-19-outbreak/ar-AASkXX4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

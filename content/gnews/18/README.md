@@ -2,63 +2,83 @@
 ---
 
 
-## 赔钱送礼游戏环节中的G-Fashion让我们有来处有去处
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850432/)
+## 01/12每日播报|社媒消息：蓬佩奥 杰森米勒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1850559/)
 
-G-TV视频链接：[https://gtv.org/video/id=61de3a1887664c47acd38b98](https://gtv.org/video/id=61de3a1887664c47acd38b98)
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61de9963a6dfdd603152d8ef)
 
-**Sherry****（****Rachel****）**：对，我一直在想七哥之前有说G-Fashion，我们为什么要有G-Fashion。其实做的很多事情都是实打实的，包括七哥四年的爆料，包括我们建立Gettr等等都是可以看得到，喜币、喜联储上市等等，但是有一样东西是看不到的，就是我们说的正道主义和我们精神信仰。
+**2022-01-12**
 
-那看不到的东西它需要一个载体，就像我一直在想Superman他为什么穿他那个内裤，外穿还要带个斗篷，为什么。因为他穿上去之后，他会觉得他的小宇宙爆发了。那我们每一个新中国联邦人和爆料革命人其实就需要把那个小宇宙给点起，那G-Fashion就是那一个把无形的正义信仰融合一体，让我穿上身之后我觉得我就是个Superwomen，所以我觉得这是G-Fashion带给我们的意义。
+**1. 蓬佩奥1月12日在盖特发文：** 福奇总是不对美国人民坦诚事实，他不应该在美国政府任职。
 
-还有就是Gettr，为什么七哥刚才说到战友锁币，你们太伟大了。其实我们自己都没有意识到，甚至很多战友没有意识到自己行为是伟大的，但是我们去做了。就像我们在Gettr上宣传，我们没有把Gettr当成一个Social media(社交媒体)，我们在努力的宣传真相，因为我们做的是正义的事情，我们捍卫的是正义的事情。
+[https://gettr.com/post/pnqz2ide00](https://gettr.com/post/pnqz2ide00)
 
-所以说其他一切战友都没有想到，就是为了那一个目的，救人，为了这个世界而做，所以这就是我们新中国联邦人不断在提升的，我也惊讶到我自己，所以七哥说我们很伟大，其实我们没有很伟大，我们一直在做每天做的事情，但变化就是在无声无息当中发生了，所以谢谢七哥。
+**2. 《网关专家》1月12日在盖特发文：** 《真相工程》（Project Veritas）昨日公布了关于福奇的重磅文件，美国作家内奥米·沃尔夫 (Naomi Wolf)和罗伯特·马龙博士对文件内容回应说：“这是最高层联手对数百万人的有预谋屠杀。” 【盖文转报道，美国著名的调查媒体《真相工程》在1月10日晚间公布了人们以前从未见过的美国军方文件，内容涉及新冠病毒的起源、病毒功能增强研究、疫苗、新冠潜在治疗方法被压制，以及政府为掩盖一切所做的努力，这些都与福奇的宣誓证词相矛盾。文件来自美国国防部下属机构—国防高级研究计划局DARPA的一份报告。报告指出，生态健康联盟于2018年3月与DARPA接洽，寻求资金支持他们进行蝙蝠传播冠状病毒的功能增强研究。这个申请提案叫“拆雷项目”（Project Defuse），但被DARPA拒绝，理由是出于安全考虑，并且认为该项目违反了暂停功能增强研究的基础原则。DARPA在给生态健康联盟的拒绝信中提到：“该提案没有提及或评估功能增强研究的潜在风险。”在被美国军方拒绝后，生态健康联盟继续得到美国国立卫生研究院NIH所属的美国国家过敏症和传染病研究所NIAID的支持，在中国武汉和美国多个地点继续开展病毒功能增强性研究。这与福奇在国会听证会上一再宣誓声称的没有资助功能增强研究相矛盾。在1月11日的《班农作战室》节目中，马龙博士称这份文件比五角大楼的文件更重要，沃尔夫说：“这是最高层联手对数百万人的有预谋屠杀。福奇严重作伪证的事实是非常明显的。如果这些文件确实经过了核实，这就是最起码的罪行。根据这些文件，这是一种有预谋的对数百万人的屠杀，是在最高层的协调下进行的。本来可以拯救生命的治疗方法被故意或据说被故意压制。”】
 
-**郭文贵先生：**等等，我要说一下，猫本小哥。刚才Rachel有时候她属于说话跟七哥一样停不住的人，但是她有时候说话真的很重要，而且我很喜欢听。等新中国联邦（灭共）后，我就带她进深山，还有她先生，我要跟她经常听，直到把我听睡着为止。
+[https://gettr.com/post/pnosdj86c5](https://gettr.com/post/pnosdj86c5)
 
-就刚才讲的很重点，为什么美国塑造的英雄，他有三样东西永远不会少的。他有口号（学电影中英雄的语气）We’ll come back，大家都知道，We’ll come back，You must be die, Because you are bad guy. 每个都有个slogan(口号)。所以我们这：一切都是刚刚开始！共产党你完了！
+**3. 《网关专家》1月11日在盖特发文：** 美国神经放射学教授斯科特·阿特拉斯 (Scott Atlas)说：“三分之二的新冠死者至少有6种并发症。” 【盖文转报道，阿特拉斯博士1月10日晚上在塔克·卡尔森的节目中讨论了讨论管理美国新冠疫情政策的医疗官僚们的谎言和疏忽。他说：“在早期研究中，没有儿童因为染上新冠病毒而住院。另外，将近三分之二的新冠死者至少有六种并发症！”这与《网关专家》在2020年报道的相一致，只有6%的新冠死者没有并发症，他们是严格意义上地死于新冠病毒。】
 
-第二个他有一个服饰，就是这个服饰，包括西方的过去电影军装什么，都是服饰；第三件事情，他一定有一个浪漫的故事。浪漫的故事都是男女的故事，是吧。所以说这三样儿就是好莱坞，而我们所有存在长大的环境里边儿，你说男女你就是下流，我可以“宇宙无限大，你是地球的一粒沙”。
+[https://gettr.com/post/pnl55x12a7](https://gettr.com/post/pnl55x12a7)
 
-你只要说男女，你说流水，你说上水下水都是下流，哭也不行，你下边儿流水也不行。就是国内现在好多哥们革命的说：文贵你这个大直播中的流水，让我们所有中国人真的是感到羞愧，我们竟然觉得谈流水……Eglise现在有名儿了。
+**4. 美国资深记者亚当·克雷多1月12日在盖特发文：** 推特因允许伊朗政府的官方账号发布对前总统川普和其他川普政府官员的死亡威胁而遭到国会的抨击。推特不会删除死亡威胁，他们持续的双重标准引起了国会山的关注。 【盖文转《华盛顿自由灯塔》报道，推特拒绝删除这些正在进行的威胁，使国会再次对这个社交媒体平台进行审查。伊朗的伊斯兰革命卫队是该政权从事恐怖主义和暗杀阴谋的准军事战斗部队，它在1月10日发推说，它将为恐怖分子首脑卡西姆·苏莱曼尼 (Qasem Soleimani) 报仇，两年前，苏莱曼尼在川普下令的一次无人机袭击中被杀。伊斯兰革命卫队官方用波斯语发推说：“他们认为对责任人进行报复是所有信徒的权利。”并附上了一张川普打高尔夫球的照片。共和党议员抨击推特继续不均衡地维护其社区准则，该平台不应容忍暴力和威胁。】
 
-有人给我建议这样说，文贵你要赶快G-Fashion出个水叫Eglise水。他说Eglise医生讲那么真切，还有那天我们那么多战友讲的真切，包括那几位医生都讲的，这个水是人的本能。水就是故事呀，男女没有水就完了。
+[https://gettr.com/post/pnqo218319](https://gettr.com/post/pnqo218319)
 
-你要看到七哥小时候照片，你都得流水，你不流水你不正常，是吧。你七嫂第一句话，哇塞，太酷了！一副藐视天下（的样子），这你七嫂今天看到我都那样了，是不是，鼻子眼睛都流水，是不是。你们那想想，那是个本能呀。
+**5. 新唐人1月11日在盖特发文：** 欧洲议会主席戴维·萨索利 (David Sassoli)1月11日去世，享年65岁。 萨索利是意大利社会民主党人，曾担任记者和佛罗伦萨电视新闻的主播。 【盖文转报道，萨索利此前曾接受过白血病治疗，自去年9月以来，由于包括肺炎在内的严重健康问题，他已多次住院。他的办公室1月10日说，自12月26日以来，萨索利“因为免疫系统功能失调导致的严重并发症”一直在住院治疗。】
 
-那么这个不让你说的话，不让你做的事情就是西方文明最要做的事情。我为什么要说G-Fashion，G-Fashion赔了3000多万美元了现在已经，而且未来一两年还会赔，哪有一个拿着钱赔的，但我……
+[https://gettr.com/post/pno1v842ed](https://gettr.com/post/pno1v842ed)
 
-你看看钟仁，一个最明显的例子。钟仁是所有上直播孩子变化，你可以看得到，每时每刻。包括在群里边儿聊天，这孩子的境界她都在升华。Rachel整个人就变了个人，猫本还穿着最老的G-Fashion，但你看那种精神，这就叫延承，雷蒙带着Logo，我们有来处，我们有去处，我们有……这是人最基本的，所以Rachel讲的太好了！
+**6. 大纪元1月11日发推说：** 新泽西州的议会议长克雷格·考夫林(Craig Coughlin)1月7日宣布，无论疫苗接种情况如何，所有议会成员和工作人员都必须出示新冠病毒的阴性测试结果才能进入立法场所。 【推文转报道，1月9日，考夫林在一份声明中宣布，他的新冠检测结果呈阳性，而且“出现了非常轻微的类似感冒的症状”，现在处于自我隔离状态。】
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-编辑整理：Jacques；
 
-字幕文件制作：小满；
+> [#NewJersey](https://twitter.com/hashtag/NewJersey?src=hash&amp;ref_src=twsrc%5Etfw) state Assembly Speaker Craig Coughlin announced all assembly members and staffers will be required to present a negative [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) test result regardless of their vaccination status to enter the legislative premises. [https://t.co/XZrS0NK85J](https://t.co/XZrS0NK85J)
+> — The Epoch Times (@EpochTimes) [January 11, 2022](https://twitter.com/EpochTimes/status/1480923708168581127?ref_src=twsrc%5Etfw)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**7. 大纪元1月11日发推说：** 安格斯·里德 (Angus Reid)的一项最新民意调查显示，77%的加拿大人表示，人权和法治比与中共国的贸易机会更为重要。 【推文转报道，这项调查询问受访者，他们认为加拿大在与中共国打交道时应该优先考虑什么，以及他们是否担心与中共对抗后所面临的经济后果。77%的受访者认为人权和法治比加拿大与中国的关系更重要，而23%的受访者将贸易和投资列为更优先的事项。加拿大人对中国的印象多年来一直在下降。在2005年，近60%的人对中国持赞成态度。但在最新的民意调查中，只有16%的人持这种观点， 84%的加拿大人对中共政权持负面看法。】
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+> 77% of Canadians say [#HumanRights](https://twitter.com/hashtag/HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) and the [#RuleOfLaw](https://twitter.com/hashtag/RuleOfLaw?src=hash&amp;ref_src=twsrc%5Etfw) are more important than trade opportunities with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), a new Angus Reid poll shows. [https://t.co/AWcozCgWcf](https://t.co/AWcozCgWcf)
+> — Epoch Times Canada (@EpochTimesCan) [January 11, 2022](https://twitter.com/EpochTimesCan/status/1480906863877177344?ref_src=twsrc%5Etfw)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**8. Newsmax 1月11日在盖特发文：** 世界卫生组织的新冠团队1月1日表示，虽然疫情“有望结束”，但“在接下来的至少三个月里，情况将很困难”。 【盖文转报道，世卫组织的新冠特使大卫·纳巴罗 (David Nabarro)在接受天空新闻采访时说：“这种病毒正在继续进化，持续影响整个世界。至少在接下来的三个月里，情况会很困难。生活可以继续，我们可以让许多国家的经济重新运转起来，但我们必须真正的尊重病毒，这意味着要有真正好的计划来应对疫情恶化。”】
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[https://gettr.com/post/pnkkgje5bc](https://gettr.com/post/pnkkgje5bc)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**9. 杰森米勒1月12日在盖特发文：** 杰森米勒1月11日在接受福克斯主持人玛丽亚·巴蒂罗姆 (Maria Bartiromo)采访时说，盖特，川普社交媒体平台将从硅谷寡头手中夺取权力。 【盖文转《福克斯商业新闻》报道，米勒说：“引发新浪潮的替代社交媒体不是为了竞争，而是为了联合起来打倒大科技公司。这从来都不是盖特与Truth Social的问题，这事关将权力从硅谷寡头手中夺走，并将权力下放更多，因为不仅仅是推特和脸书拥有所有的控制权。”米勒谈到了大科技社交媒体对任何持右派观点的核心人物越来越明目张胆的“政治歧视”，以至于现在“这几乎成了惯例”。米勒补充说：“而且他们不会只对有政治身份的人下手，他们也会对任何人这样做。他们不会停止，直到他们完全以自己的观点来塑造世界。”】
 
+[https://gettr.com/post/pnr36qd776](https://gettr.com/post/pnr36qd776)
+
+**10. Disclose.tv 1月11日在盖特发文：** 共和党监督委员会公布了以前从未见过的福奇的电子邮件，内容“显示他可能隐瞒了关于新冠病毒源自武汉实验室的信息，并有意淡化了实验室泄露理论。”
+
+[Tweets by disclosetv](https://twitter.com/disclosetv?ref_src=twsrc%5Etfw)
+
+**11. 喜马拉雅战鹰团1月12日在盖特发文：** 罗伯特马龙博士1月10日在接受《班农作战室》采访时说：“在瘟疫流行期间接种的疫苗，将促使对疫苗有抵抗力的逃逸突变体的产生。中共的做法与西方世界如出一辙，为发展超级病毒创造了完美环境。中共官方说这是一种出血热病毒，如果是这样的话它是由冠状病毒导致的可能性很小。这一术语出血热病毒通常用于马尔堡和埃博拉家族中的病毒。盖特是我的主要平台，请关注我。“
+
+[https://gettr.com/post/pnt3ja6242](https://gettr.com/post/pnt3ja6242)
+
+**12 喜马拉雅战鹰团1月10日在盖特发文：** 杰森米勒1月7日在接受InfoWars采访时说：“下个月，我们将推出我们自己的竞争者，称之为Vision，这是一种短视频格式，与Instagram Reels竞争，也与抖音竞争，因为短视频概念真正推动社交媒体的参与度，今年年中，我们将推出盖特支付，这是一个类似于苹果支付或支付宝的在线支付平台。”
+
+[https://gettr.com/post/pndnng4f08](https://gettr.com/post/pndnng4f08)
+
+**13. 澳喜要闻1月11日在盖特发文：** 新冠病毒是中共病毒！ 中国人民和加拿大人民都是中共病毒的受害者！ 中共不代表中国人！ 加拿大蒙特利尔的一名女子，日前在超市辱骂一对加拿大华裔夫妇，称新冠疫情“是因为你们中国人”。她随后被警察带走。 蒙特利尔市市长此事表示“震惊且不可接受”，并谴责其涉种族歧视言论。
+
+[https://gettr.com/post/pnlgxwbb40](https://gettr.com/post/pnlgxwbb40)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布：陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

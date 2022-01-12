@@ -2,26 +2,84 @@
 ---
 
 
-## 中共习近平主讲“新年第一课”
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1850560/)
+## 全球疫情更新（美国住院人数破纪录）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850611/)
 
-作者：德国纽伦堡正义农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新年第一课.jpeg)封面来源：网络图片
-2022年1月11日，中共习近平在专题研讨班开班式上主讲“新年第一课”时称：“党中央举办这次专题研讨班，目的是深入研读和领会党的**十九届六中全会决议**，继续把党史总结、学习、教育、宣传引向深入，更好把握和运用党的百年奋斗历史经验。”习近平在“新年第一课”重点阐释了五个问题，目的就是要把“家天下”贯彻到底，再继续统治中共国一百年。
+**整理/编辑：枳实**
 
-问题一，理论创新：**用马克思主义之“矢”去射新时代中国之“的”**。去年，习近平在不同场合讲过同一个论断：“中国共产党为什么能，中国特色社会主义为什么好，归根到底是因为马克思主义行。” 习近平的这种论调连他自己都不信，之所以抱着马克思主义不放，就是要给自己找个“洋爹”，再拉一些苏共延续下来的一些小弟，给自己和这些贪婪的小弟一个理论依据。在这个理论依据当中找到自己可以利用的部分，加上本地延续下来的封建思想，加上自己的流氓思想，再披个马甲摇身一变就成了自己的“理论创新”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-816.png)图片：雅典娜农场设计组 精灵蓝
 
-问题二，怎么看怎么办：**正确把握社会主要矛盾和中心任务**。中共统治中共国的历史就是一部制造矛盾的历史：从“帝国主义和中华民族的矛盾、封建主义和人民大众的矛盾”，到“中日民族矛盾逐渐超越国内阶级矛盾上升为主要矛盾”，从“工人阶级和资产阶级的矛盾”，到“人民日益增长的物质文化需要同落后的社会生产之间的矛盾”，再到“人民日益增长的美好生活需要和不平衡不充分的发展之间的矛盾”。其实这一切矛盾的根源都是来源于中共，消灭信仰、泯灭人性，制造矛盾、输出仇恨，最后把中共国变成一个只注重“权钱色”的互害的社会。
 
-问题三，战略策略：**要善于从战略上看问题、想问题**。习近平强调，政策和策略是党的生命。他说，一百年来，中共之所以能够统一思想、统一步调、团结一致向前进，之所以能够取得革命、建设、改革的伟大胜利和辉煌成就，就在于中共坚持马克思主义指导，既解决现实问题，又解决战略问题，准确判断和把握形势，制定切合实际的目标任务、政策策略。这么多华丽的词藻其实就是一个词“独裁”，一切都要“统一”、一切都要“服从”。坚持马克思主义就是在重新造神，马克思主义可以成神，那么“习佛”、“习大神”、“习太阳”也就顺理成章了。
+雅典娜疫情更新（2022年 1月12日）
 
-问题四，勇于自我革命：**决不能滋生已经严到位的厌倦情绪**。中共的第三个历史决议总结了百年奋斗的十条历史经验，其中一条是“坚持自我革命”。决议说，勇于自我革命是中国共产党区别于其他政党的显著标志。在这次专题研讨班开班式上，习近平强调，现在，反腐败斗争取得了压倒性胜利并全面巩固，但全党同志“不论谁在党纪国法上出问题，党纪国法决不饶恕**。**习近平这是在向党内表态，“党内大清洗”才刚刚开始，今天哪个官员跳楼，明天哪个官员心脏病，后天哪个官员癌症… …
+**一，全球疫情基本数据**
 
-问题五，党史学习教育：**建立常态化长效化制度机制**。中共习近平是把整个中共国建成一个全世界最大的“再教育营”，要把帝王思想、“党天下”思想、“家天下”的思想灌输给每个老百姓，要把中共国建成“北朝鲜模式”，习近平要当中共国的“习太阳”，“习家天下”要再继续统治中共国一百年不变。现在是“互联网时代”，习近平还在用毛泽东、斯大林、希特勒这些杀人魔王的做法统治老百姓，这真是“油门踩到底”，“不作不死”的节奏啊！
+感染总数：313,302,952（日新增2,580,073，14天增幅+177%）
 
-新闻来源：🔗[时政新闻眼丨习近平主讲“新年第一课”，重点阐释了哪五个问题？](http://www.news.cn/politics/leaders/2022-01/12/c_1128255229.htm)
+死亡总数：5,502,167（日新增6,610人，14天增幅+3%）
 
-*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
+每万人感染人数：482.8761 人（除中国外）
+
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：93.7亿
+
+完全“接种”：39.2亿人
+
+完全“接种”百分比：50.3%
+
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：1,245,857（今日新增103,689人）
+
+死亡总数： 2,465人（今日新增 49人）
+
+每万人感染人数：441.7122人
+
+“疫苗”毒针注射总数：44,730,133（日新增327,415针）
+
+完全“接种”：19,020,349人
+
+第二针“接种”百分比：77.6%
+
+16岁以上人口接种至少一剂疫苗的比例：94.8%
+
+16岁以上人口接种至少两剂疫苗的比例：92.2%
+
+**四，疫情要闻**
+
+昨天，澳洲的中共病毒感染总数突破一百二十万。今天全球14天新增死亡人数本波疫情以来首次出现正增长，澳洲今日死亡人数也出现了高峰，达49人。
+
+今日澳洲的新南威尔士州因住院人数接近负荷，开始把中共病毒感染的住院病人从公立医院转移到私立医院。全澳住院人数已达4002人。而美国的住院人数已经超过去年，[破纪录达到132,646](https://www.theguardian.com/world/live/2022/jan/10/covid-live-news-40-of-israel-could-be-infected-in-current-wave-germany-to-study-rapid-antigen-test-reliability-for-omicron)人，美国的住院人数自12月下旬以来稳步增加，在过去3周内翻了一番。
+
+英国前卫生部长马特·汉考克（Matt Hancock）再次感染，自昨天下午检测出病毒呈阳性以来，他一直在家隔离。
+
+世卫组织称，奥米克戎毒株可能在[未来两个月内感染 50%](https://www.theguardian.com/world/2022/jan/11/omicron-europe-tidal-wave-who) 的欧洲人。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C595YGF05Y0D7ZGGYK.png)图片来源：美联社Peter Dejong
+
+
+周日，荷兰民众不顾封锁禁令，在阿姆斯特丹参加游行示威，抗议新的疫情封锁措施和强制疫苗接种。手持警棍和盾牌的防暴警察驱散了至少数千民众，并逮捕了30人以上的示威者。
+根据荷兰的限制令，禁止两人以上的公共集会。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
