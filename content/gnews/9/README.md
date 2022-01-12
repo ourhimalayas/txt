@@ -2,53 +2,45 @@
 ---
 
 
-## 七哥谈盘古龙头到各神峰的神奇距离（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852165/)
+## 炸裂消息：最高层协调的蓄意过失杀人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译： Jenny Ball
 
-来源：郭先生2022-01-09直播08：42：27摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
 
-郭文贵先生：看看，墨镜兄弟厉害啊，刚才弄了个2122。我说你怎么弄2122？你把7都给忘了。这个是从盘古，这是我看看，这测量距离，这是哪儿到哪儿啊，这是？你念一下，念一下。慕士塔格山吗？
+周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
 
-墨镜：这个是公格尔山到盘古龙头的距离。
+新公布的军事文件与福奇博士的宣誓证词相矛盾。
 
-郭文贵先生：公格尔九别山，是吗？是公格尔九别山，对吧？公格尔九别山，2178公里，下一张。
+真相工程发布：
 
-郭文贵先生：这个是哪个？我这看不清楚。这电视显示得不清楚。
+- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
+- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
+- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
 
-墨镜：这个是慕士塔格峰到盘古的距离，
 
-郭文贵先生：慕士塔格山，7500多米，这个海拔。下一个。
+真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
 
-郭文贵先生：昆仑女神峰，是吧？昆仑女神峰是7177米啊，这个山。多远呢？这是多远能看到的是？
+“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
 
-墨镜：3144公里。
+周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
 
-郭文贵先生：好，这个是哪个？墨镜兄弟。
+马龙博士称它“比五角大楼的文件更重磅”。
 
-墨镜：这个是昆仑女神峰。
+沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
 
-郭文贵先生：昆仑女神峰，下一个。
+娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
 
-郭文贵先生：慕士塔格峰，慕士塔格峰也是7000米。这个厉害，慕士塔格峰相当厉害。布喀达板峰，这也是7000米，这也是7000米，这都是7000米。这跟七真有关系。看到了吗？看到了吗？跟七有关系吧？慕士山，慕士山啊，也是7000米。大家看一看，这都是从盘古过去的。你看这个地球，印度洋，整个大西洋，你看看整个所有的这个黄土高原、大陆板块。然后你没有去过不丹，不丹有一个莲花生佛、莲花生庙。你到了莲花生佛，你到不丹的时候，你再到尼泊尔。尼泊尔一长条儿，不丹下面是一个方的，不丹是从北往南方，尼泊尔是整个的东西长。大家你看过这个，你就知道了。然后，你再看台湾，你再看老挝、泰国、越南，你再看看中国。你看上边角有个吉尔吉斯坦、哈萨克斯坦、阿塞拜疆，当然了就是新疆嘛。所以你可以看得很清楚。孟加拉国，刚才我老说孟加拉国。孟加拉国也会有大动静，已经开始了。所以说好，回到这个画面。
+**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+* * *
 
-**关注我们**
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 
