@@ -2,53 +2,52 @@
 ---
 
 
-## 欧洲监管机构警告频繁接种加强剂危害免疫系统
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1851976/)
+## “我不想接种疫苗。科学还不够强大”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852018/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E.jpg)timcast.com
-《门道专家》1月11日晚间发表文章，题目是，“可怕：欧洲监管机构警告，频繁接种中共（新冠）病毒疫苗加强剂将对免疫系统造成危害”。【1】
+编译：七叶之芒
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D4645A37-1F4E-430B-B4D8-5FF2C564D172.jpeg)图片来源：thegatewaypundit.com
 
-这令人担忧……
+伦敦南部国王学院医院的麻醉师顾问Steve James医生挑战并告诉英国卫生部长，他不会接种COVID疫苗，他在感染COVID后的“自然免疫力”相当于或优于接种疫苗的人。
 
-上个月，欧洲药品管理局（EMA，European Medicines Agency）宣布，他们已经得到授权每三个月施打一次（疫苗）加强剂。
+卫生部长Sajid Javid在访问医院时，就政府对NHS（国家卫生系统）员工强制接种COVID疫苗的政策与这位未接种疫苗的医生发生了冲突。
 
-但现在他们突然因为某种原因改变了态度。
+去年12月，国会议员制定了法律，强制要求包括护士在内的英格兰所有面向病人的卫生和社会护理人员接种Covid-19疫苗。
 
-亚历克斯·贝伦森（Alex Berenson）报道：
+在Javid访问期间，他向重症监护室的工作人员询问了他们对NHS工作人员强制接种疫苗的看法。护士们没有回答，但詹姆斯医生打断了他们，并说他对强制要求不满意。
 
-今天，还不到五周，也就是辉瑞首席执行官轻描淡写地说了第四针（加强剂）后24小时，他们说他们认为频繁接种加强剂可能不安全：
+这位勇敢的医生说：“我在某个时候有过COVID。是的，我有抗体。我从一开始就在COVID ICU上工作。我还没有接种过疫苗。我不希望接种疫苗。疫苗只能减少Delta的传播8周，Omicron的传播可能更少。为此，如果我不接种疫苗，我就会被解雇。科学还不够强大。”
 
-（附上了彭博社原文的链接【2】）
+James医生补充说，还有一个同事也处于同样的情况。
 
-欧洲监管机构甚至承认，中共病毒疫苗强化接种可能对免疫系统产生不利影响！
+然后，卫生部长回应说：“我理解这一点。很明显，我们不得不为健康和社会护理权衡所有这些，而且总会有关于这个问题的辩论。”
 
-曾经的阴谋很快就变成了现实，这太可怕了！
+James医生建议，也许有机会重新考虑规则，允许那些已经有了抗体而没有接种疫苗的医生不接种COVID疫苗。
 
-（原文完）
+“因为我从传播中得到的保护可能与接种过疫苗的人相当”，他补充说。
 
-原文来自与王岐山关系密切的布隆伯格的彭博社，难道知道罪恶的阴谋掩盖不住了？不管怎样，再摘几段吧：【2】
+但卫生部长认为他的自然免疫力也会减弱。
 
-欧盟监管机构警告说，频繁的中共病毒疫苗加强剂接种可能会对免疫系统产生不利影响，并且可能不可行。
+然后医生给他上了一堂关于疫苗的免费复习课。
 
-根据欧洲药品管理局（EMA）的说法，每四个月重复一次加强剂最终可能会削弱免疫系统并使人们疲惫不堪……
+“但是，如果你想用加强针提供保护，你就必须每个月给每个人注射。如果到了两个月，如果保护被磨掉了，两个月后的传播，那么一个月后，你仍然有一点保护。所以你想保持保护，你就需要每个月都给所有工作人员打针，这是不可能的”，James医生说。
 
-欧洲药品管理局生物健康威胁和疫苗战略负责人马可·卡瓦莱里（Marco Cavaleri）在周二（1月11日）的新闻发布会上说，加强剂“可以做一次，或者可能两次，但我们认为这不是应该不断重复的事情。”
+国王学院医院就其新规定发表了一份声明：
 
-（摘译完）
+“虽然目前没有强制要求员工接种COVID-19疫苗或向病人透露接种状态，但我们强烈支持并鼓励所有员工按照国家指导意见接种疫苗–我们近90%的员工已经这样做了。”
 
-当然，布隆伯格不报道，大媒体掩盖，这类消息也会被正义人士发现、转载，只是早点晚点而已。表面看上去布隆伯格在作顺水人情，其实可以解读成世界范围内揭露病毒、疫苗阴谋已渐成趋势，这一切都是文贵先生、新中国联邦唤醒世界、唯真不破的结果，战友们加油！
 
-原文链接：
 
-【1】[https://www.thegatewaypundit.com/2022/01/frightening-european-regulators-warn-dangers-frequent-covid-boosters-immune-system-risks/](https://www.thegatewaypundit.com/2022/01/frightening-european-regulators-warn-dangers-frequent-covid-boosters-immune-system-risks/)
+参考资料：[thegatewaypundit][“I Do Not Want to Have a Vaccination.. The Science Isn’t Strong Enough” – Brave Doctor Challenges UK Health Secretary and Tells He Will Not Get the Jab (VIDEO)](https://www.thegatewaypundit.com/2022/01/not-want-vaccination-science-isnt-strong-enough-brave-doctor-challenges-uk-health-secretary-tells-will-not-get-jab-video/)
 
-【2】[https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
+* * *
 
-**华盛顿DC 望七星**
+*审核：蚂蚁兄弟*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-**编辑发布  水星**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 

@@ -2,32 +2,43 @@
 ---
 
 
-## 七哥说“这个世界要大变啊”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852105/)
+## 中国可能爆发类似埃博拉的出血热病毒或马尔堡病毒——死亡率50%
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852145/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-15-2.jpg)图片来源：thegatewaypundit.com
+正如周一报道的那样——罗伯特·马龙（Robert Malone）博士和史蒂夫·班农（Steve Bannon）一起，在作战室讨论了中国最新的病毒爆发，中共政权正在掩盖这种新疾病的性质和传播。
 
-来源：郭先生2022-01-09直播08:30:03摘录
+这让许多专家感到担忧，包括 mRNA 疫苗的发明者马龙博士。马龙博士今天告诉作战室的听众，他听说目前正在中国蔓延的疾病是一种“埃博拉样出血热病毒”。该政权正在向公众和国际社会隐瞒这种疾病的真实性质——就像上次(（隐瞒Covid-19）一样！
 
-俄罗斯就来了。俄罗斯来是什么问题？大家要想到这个事太大了。如果到了，如果普京面对乌克兰的时候，这时候他要失去了这个地方，哈尔巴耶夫这个团队、哈萨克斯坦，俄罗斯又一次比苏联解体还惨。对中共，绝对不是一带一路的问题。中共就把…真的这个革命就会传到中国去。传到哪去知道吗？新疆。一定会传到新疆、一定会传到西藏。然后你再看到，就是我们一会儿讲的昆仑山脉。昆仑山脉是有七大山一大峰，号称八兄弟。记得2017年我爆料革命说的吗？我家哥八个，人家给我们家算命，说你家哥八个都能活成人的话，就我们家老家，我上中学的三中有一个1吨多重的、当年发黄河大水漂来的一个钟，是当年汉朝的大钟。说我们哥八个，我手放上一放，就能给举起来。但是说你哥八个成不了，在历史上成不了，因为昆仑山脉七山一峰。墨镜，我刚才查了一下距离，一会儿给我们放一下。七山一峰，这时候有动静，你这是不可能成了八个的。所以我八弟正好，你看差一星期就到十八岁，就过世了，被他们给打死了。你信不信都在这儿呢。因此本人亲自去过昆仑山，我探讨昆仑山到底有没有这八兄弟之峰之存在。七成八不成，七上八下，七上，八就得下。今天跟你们讲昆仑山，七哥不是乱讲的。记住，这跟哈萨克斯坦是有极大的关系。哈萨克斯坦有一座山脉、有一座湖。这座湖称为姐妹湖。有一座山脉是叫做俄罗斯的“精神之山”，你们自己查查。俄罗斯人和哈萨克斯坦人是深信不疑的。这就是七哥走万里路的好处。你说啥我都能告诉你，我亲自去过。不像那些伪类什么从来没去过，是吧？就开始告诉我打扑克了，他都没见过扑克牌，是吧？他就告诉我怎么打牌了。所以昆仑山有大动静、俄罗斯山脉有大动静、帕米尔高原有大动静，这个世界要大变呐！
+**今天已有**** 550 ****万人死于上一次的中共****Covid**（并且人数还在增加）。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+现在我们谈论的是一种“类似埃博拉的出血热病毒”。
 
-**关注我们**
+马龙博士：“他们使用的语言是：这是一种**出血热病毒**。如果是这种情况，那么这将是由冠状病毒引起的，这将是非常奇怪的。**该术语通常用于马尔堡病毒和埃博拉病毒**。 因此，许多人担心会出现一种迅速传播的埃博拉样出血热病毒。但我们不知道那里是否正在发生这种情况。”
 
-Discord 账号
+周一下午，一位读者向我们发送了有关马尔堡病毒的更多信息。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+世界卫生组织报告：
 
-Gettr 账号
+*马尔堡病毒病**(MVD)**，以前称为马尔堡出血热，是一种严重的人类疾病，**通常是致命的。***
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*\*\***该病毒在人类中引起严重的病毒性出血热。*
 
+*\*\***平均**MVD**病死率约为**50%**。在过去的爆发中，病死率从**24%**到**88%**不等，具体取决于病毒株和病例管理。*
+
+*1967**年，在德国马尔堡和法兰克福，以及塞尔维亚贝尔格莱德，同时发生的两次大规模暴发，导致对该病的初步认识。此次爆发与使用从乌干达进口的非洲绿猴**(Cercopithecus aethiops)**进行的实验室工作有关。随后，安哥拉、刚果民主共和国、肯尼亚、南非（有近期前往津巴布韦旅行史的人）和乌干达，均报告了疫情和散发病例。*
+
+**评论：从中共国逃离躲避在欧洲的中国正义科学家，曾通过爆料革命向世界警告，中共不仅制造了Covid－19系列的上千种病毒，也造出了类似埃博拉的出血热病毒！不灭中共，世界无宁日！**
+
+**参考资料：**[thegatewaypundit][More… Dr. Malone Mentions Possible Outbreak in China of Ebola-Like Hemorrhagic Fever Virus or Marburg Virus — That Has Only 50% Survival Rate](https://www.thegatewaypundit.com/2022/01/dr-malone-mentions-possible-outbreak-china-ebola-like-hemorrhagic-fever-virus-marburg-virus-50-survival-rate/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,30 @@
 ---
 
 
-## 中共专家竟然建议多印钞票来鼓励生育
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852012/)
+## 美国数州动用军队帮助医院应对不断攀升的奥米克戎感染
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852045/)
 
-作者：纽约香草山 侠肝义胆
-
-
+作者：银河勇气星—骄子
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据中共媒体01月10日报道:
 
-近日，中共东吴证券首席经济学家任泽平在微博发文称，建议建立鼓励生育基金，要中共央行多印2万亿钞票，用10年时间让社会多生5000万孩子，解决人口老龄化及劳动力减少问题。
-
-任泽平认为，中共国面临世界最严重的“低生育率陷阱”，目前的地方政策力度太小，当前最重要的是由中央和地方政府设立“鼓励生育基金”，从根本上解决生育率下降的问题。
-
-但有分析人士认为，任泽平之建议非常荒谬。这种太监式的献媚祸国殃民：既不顾货币严重超发、疯狂贬值导致民不聊生的事实；也不顾百姓生下孩子以后养育困难的沉重负担。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
 
 
 
 
-新闻来源：[https://m.sohu.com/a/515570226\_494201/?pvid=000115\_3w\_a](https://m.sohu.com/a/515570226_494201/?pvid=000115_3w_a)
+近期随着奥米克戎感染的极速增加，美国各州医疗系统随时面临崩溃。为了维持医疗系统的正常运转，包括奥米克戎病毒检测及满足其他流行病的要求，一些州求助于国民警卫队。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/４.jpg)图源网络
+
+据悉在过去一年里，数州州长一直都在部署警卫以应对新冠病毒大流行。俄亥俄州、明尼苏达州、罗德岛州、加州、马里兰州、夏威夷州、俄勒冈州等已经动员数名国民警卫人员支持医护人员。其中马里兰州已宣布该州进入紧急状态。
+
+总统拜登指示五角大楼动员现役军人加入此行动，目前为止，新罕布什尔等几个州已经得到帮助
+
+新闻链接：[https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp](https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 

@@ -2,42 +2,31 @@
 ---
 
 
-## 从中国人寿王滨看中共盗国贼的奢靡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852028/)
+## 七哥谈万山之祖——昆仑山脉（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852057/)
 
-作者：银河勇气星—骄子
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-09直播摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-郭先生在1月9日大直播与战友分享曾与中国人寿王滨的一些交往片段。王滨此人，是王岐山最重要的几个马仔之一，近日王滨的被抓预示着王岐山的严重失势。中国人寿是王岐山为了拉拢内部朋党而给盗国贼家族的子女洗钱藏钱输送利益的机构，从来不会从事小笔业务，次次涉及金额数目巨大。
+第三个我要告诉昆仑山脉，昆仑山脉跟咱们啥关系呢？非常非常大。喜马拉雅山跟咱非常非常大！我告诉大家，昆仑山6500万年前形成的，跟你个鸟共产党才不到100年的共产党你连个毛关系都没有，但共产党的故事当中竟然说自己曾经是昆仑山人的后裔呀，你们都不知道这故事吧？昆仑山上唯一的昆仑山脉是在帕米尔高原，在那块儿架着共产党的祭坛呐，24小时一年365天呐，供着常委，常委在那块儿供着他们呐！每年常委都是要割血割脉献血的地方，用中国特种兵部队，你们都不知道吧？如果你们不知道你们就太天真啦！亲爱的中国同胞们。昆仑山是万山之母、万山之祖！因昆仑山生了所有的脉，但是在今天开始我怎么说现在只剩59秒了是吧？呵，等一会儿再说吧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-44.jpg)图源网络
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-据郭先生回忆，在2006年之前，王滨已经出手阔绰，曾花20亿人民币买鸡翅木。中共买走了全世界七八成的手表，多数都是王滨买给王岐山的，从一开始的限量版到现在的定制版，从而导致在最近两三年，瑞士手表平均上涨了5-10倍，比比特币涨得还夸张。
+**关注我们**
 
-王滨曾告诉郭先生，给王岐山送一块表要百里挑一，且每块表都是价值不菲，有的甚至高达上百万、上千万美元。 郭先生感慨，中共这些奢靡生活都是搜刮自中国老百姓的血汗钱。中国人的愚昧无知与可怜，明明自己活得不如猪狗，却还在信奉共产党的洗脑。
+Discord 账号
 
-新闻来源：[https://gtv.org/video/id=61dade8c4658a73785d25465](https://gtv.org/video/id=61dade8c4658a73785d25465)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

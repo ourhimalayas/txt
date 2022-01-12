@@ -2,22 +2,28 @@
 ---
 
 
-## 2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1851791/)
+## GTV新闻访谈简报|2022年1月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1851818/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot5.jpg)
-郭文贵先生在2022年1月12日的大直播中，揭露了伊拉贝萨杨、HDO、VICE等邪恶媒体帮助共产党抹黑、污蔑爆料革命，甚至妄图把全球华人和亚裔人群划归为传播病毒和制造动乱的邪教组织，为全球排华埋下祸根。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-郭先生向战友们介绍了邪教组织的六大特点：教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-郭先生针对邪教的这几大特点逐一列举了中共的种种卑劣行径，一阵见血的指出中共就是名副其实的邪教！伊萨贝拉杨、HDO、VICE是宣扬邪教的助纣为虐者！
+视频参看：[2022.01.12早GTV新闻访谈](https://gtv.org/video/id=61ded748a6dfdd60315304d7)
 
-郭先生呼吁战友们一定要广泛传播伊萨贝拉杨、HDO、VICE主控、洗脑、编造歪理邪说、制造大规模仇恨、反社会的种种邪恶行径，一定要跟他们抗争到底！
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-来源链接：https://gtv.org/broadcast/watch/61ded0fea6dfdd603152f65d
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
 
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

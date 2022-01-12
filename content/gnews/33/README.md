@@ -2,22 +2,20 @@
 ---
 
 
-## 美国上千家医院出现严重人力短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
+## 中共疾控专家放话，中国加强针接种率应提升至100%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851880/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
-与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
+中共媒体1月10日报道，日前，中共疾控中心首席专家吴尊友在公开场合表示，为了早日实现群体免疫的目标，全国加强针接种率应该提升至100%。
 
-有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
+天津1月10日通报确诊了20例奥密克戎本土感染病例，这是中共当局官方报告的最高纪录，对此，吴尊友认为，在中国，每个人都应该接种疫苗，并且，每个人都需要打加强针。他指出，虽然中共病毒不断变异让群体免疫大打折扣，但接种中共疫苗可以达到所谓“反折扣”的效果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-6.jpg)
+至于什么是“反折扣”，吴尊友解释称，打完加强针以后抗体会上升，预防感染的保护效果回到预期的80%，把中共病毒对群体免疫造成的折扣折回来，最终实现提高人群抗击中共病毒的效果。
 
-在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
+不过，网民似乎对吴尊友的这个创新概念不买帐，质疑仅西安、天津两地，疫苗完全接种率超过九成，却仍然对病毒肆虐不堪一击，表明“反折扣”理论在事实面前根本是胡编乱造。
 
-目光转向国内，中国疫情持续蔓延，情况不容乐观。
-
-参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
+参考链接：[中共疾控专家放话，中国加强针接种率应提升至100%](https://wap.xinmin.cn/content/32094995.html)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
@@ -33,8 +31,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

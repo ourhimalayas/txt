@@ -2,28 +2,28 @@
 ---
 
 
-## CDC建议美国人避免前往加拿大
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852035/)
+## 河南安阳因奥密克戎封城
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852079/)
 
-作者：纽约香草山教育部 Naughty(文行)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-由于新冠病毒病例越来越多，美国CDC建议人们周一不要前往加拿大。
-
-CDC将加拿大的旅行建议提高到最高等级，并告诉美国人不要去那里旅行。加拿大仍然是美国人最常去的外国目的地之一，加拿大政府周一没有就此立即发表评论。
-
-CDC目前还把包括英国、意大利、法国以及欧洲和非洲的80个国家和地区列为最高等级的 4级目的地。
-
-周一，CDC还将亚美尼亚、白俄罗斯、莱索托和津巴布韦的旅行建议从4级降至3级，新加坡也被评为3级。
-
-根据路透社周一的一份声明，美国中共病毒住院人数创下132646人的新高，超过了去年1月创下的132,051人纪录
+作者：纽约磐石农场—在远方
 
 
 
-新闻链接：[https://mcutimes.com/americans-are-advised-to-avoid-traveling-to-canada-due-to-increasing-covid-19-cases/](https://mcutimes.com/americans-are-advised-to-avoid-traveling-to-canada-due-to-increasing-covid-19-cases/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
+
+
+台媒1月11日报道，由于中共病毒疫情持续扩散，中共河南省已成为疫情新热点。当地时间10日晚，拥有500万居民的河南省安阳市宣布封城。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-35.png)图源网络
+
+据悉，中共国10日新增本土病例110例，其中河南省87例。目前安阳市累计确诊84例，但是由于其中包含奥密克戎病例，当局随即于10晚紧急宣布封城，暂停人员流动，并开展全员核酸检测。
+
+安阳市防疫指挥部通告称，全市所有居民除核酸检测外足不出户，全市所有机动车不得上路行驶，所有商点超市除保障日常生活外，全部暂停营业，其他生产经营单位和所有门店及外卖全部暂停营业。
+
+新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3797182](https://news.ltn.com.tw/news/world/breakingnews/3797182)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 
