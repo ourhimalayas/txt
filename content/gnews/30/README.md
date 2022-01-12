@@ -2,56 +2,26 @@
 ---
 
 
-## 共和党监督委员会公布了从未见过的福奇邮件
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1849632/)
+## 神算还是预谋？北京公开教唆“见死不救”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849651/)
 
-据《内幕新闻网》米歇尔·琼斯2022年1月11日 报道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-4.png)图片来自网络
-美国国会众议院监督委员会公布了安东尼·福奇(Anthony Fauci)的电子邮件，表明他可能隐瞒了关于COVID-19起源的信息。这些邮件以前从公布过。邮件表明福奇知道该[病毒起源](https://insiderpaper.com/who-experts-say-repeated-covid-boosters-not-a-viable-strategy/)于中共国武汉的一个实验室，而该病毒就是在那里首次被发现的。
+撰稿：东京樱花团丨Ob
+![](https://lh6.googleusercontent.com/o8yvRPeRmD15Ve0bbAkhG7e57mhYRQB0EjeAfOBQDNGbOpJjLVLnmSWF_BlOVI8FZ12uQiYpiEX9zBKSFWJOawDJxuLq2W3Q1FFlU2GkpxjxCFbwpS8hQVq5EjNcTHcRU7rNj_IY)
+据《看中国网》2022年1月11日综合报导，北京冬季奥运会及残奥会将在2月4到20日举行，但天津与河北疫情令北京当局高度紧张，已启动“防疫泡泡”计划，防堵外来病毒侵入。北京警方甚至要求民众，勿与外籍选手接触，即使遇上车祸也不要冒然出手相救，这种如同公开教唆大众“谋杀”的行为引发社会震惊。 同样据《法新社》10日报导，北京当局于1月4日开启所谓的“防疫泡泡”计划，这意味着数以千计的冬奥工作人员、义工、清扫员、厨师以及司机等，将与外部世界隔绝数周，这是中共官方维持“清零”政策的措施之一。
 
-**美国国会监督委员会：实验室理论在福奇这些邮件后被淡化**
+不仅如此，北京市公安局公安交通管理局甚至还在微博发文要求当地民众，一旦与载有冬奥选手、教练或官员的特殊车辆发生交通意外，务必与对方保持安全距离，切勿与车辆或车内人员接触，也不要让对方离开车辆，必须等待专业人员到场。
 
-美国国会监督委员会在推特上发布了一封由众议员詹姆斯·康默（James Comer）和吉姆·乔丹（Jim Jordan）写的信，他们希望福奇博士能就[这些邮件](https://insiderpaper.com/more-than-3-million-coinmarketcap-emails-leaked-to-dark-web/)宣誓作证。
+报导还指出，全球各地媒体及约3000名运动员将在赛前几周陆续抵达北京，并从落地后到离开中国期间，都待在“泡泡”当中。所有人必须完整接种疫苗，或在落地后接受21天隔离，且每人每天均须采检，也必须时时戴着口罩。
 
+对此，不少网友在微博笑说，“感觉把他们（外籍选手）说得好像是‘瘟神’”、“外国人来北京，来了又好像没来的感觉是吗？”、“怎么这么心酸又好笑”、“能懂！”也有人表示已经收到公司紧急通知，“单位说了，都不许下车，报警处理，私自下车接触强制隔离21天！”、“21天也太夸张了吧！”还有人质疑，如果真遇到突然状况，“真的要袖手旁观、见死不救吗？”、“生死一瞬间啊”、“这也太不符合我大国的风范了！”
 
+**中共葫芦里从来都不会只装一种药，中共任何一种明里暗里的指示也罢，暗示也罢都非其表面那么简单，往往背后都有着处心积虑不可告人的目的。2019年武汉军运会中共投毒武汉，今年冬季奥运会又会是一个什么样的设计、什么样的“大国方略”呢？竭尽全国之力搞得北京冬奥会这盘菜究竟会炒出一锅什么样的“豪华盛宴”？是海鲜鲍鱼还是“鸿门宴”，我们拭目以待。**
 
-> 🚨BREAKING🚨
-> 
-> We've released never before seen emails showing Dr. Fauci may have concealed information about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) originating from the Wuhan lab & intentionally downplayed the lab leak theory. [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) & [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) want Fauci under oath. Time for answers. 1/2👇 [pic.twitter.com/p8aIBJ3nom](https://t.co/p8aIBJ3nom)
-> — Oversight Committee Republicans (@GOPoversight) [January 11, 2022](https://twitter.com/GOPoversight/status/1480909671082901504?ref_src=twsrc%5Etfw)
+新闻来源：[**公开教唆谋杀？北京启动新计划惹议**](https://m.secretchina.com/news/gb/2022/01/11/994762.html)
 
-
-*共和党监督委员会共和党人@GOPoversight*
-*我们发布了从未见过的电子邮件显示福奇博士可能隐瞒了来自武汉实验室的 #COVID19 信息，并故意淡化实验室泄漏理论。*
-*@RepJamesComer   & @Jim\_Jordan*
-*要福奇宣誓。是时候回答了。*
-*2022年1月11日*
-在这封信中，共和党国会监督委员会要求对福奇博士进行一个记录采访，并解释说，今天公开的电子邮件摘录警告说，COVID-19有可能是从[武汉病毒学研究所](https://insiderpaper.com/wuhan-lab-leak-more-likely-origin-of-covid-uk-mps-have-heard/)泄露出来的。这些电子邮件还警告说，该病毒可能被 “有意进行了基因操作”。
-
-共和党国会监督委员会信中还指出，福奇显然知道美国国家卫生研究院，传染病研究所（NIAID）、美国国家卫生研究院（NIH）、生态健康联盟（EcoHealth Alliance）和武汉病毒研究所(WIV)之间的金钱关系，尽管他在多个场合声称不是这样。
-
-共和党监督委员会还指出，[福奇博士和至少12名其他科学家](https://insiderpaper.com/fauci-vows-more-testing-as-covids-omicron-hammers-us/)在2020年2月1日的电话会议上谈到了COVID-19，在那次电话会议中，他们了解到该病毒可能是从武汉病毒研究所泄露出来的，并且是故意进行了基因操作。
-
-共和党监督委员会信中最后提出重要问题：
-
-1. 福奇博士或柯林斯（Collins）警告过白宫的任何人，关于潜在的 COVID-19 起源于实验室，并可能被故意进行基因操纵了吗？
-
-2. 如果没有分享这些担忧，为什么要让他们做出保持沉默的决定？
-
-3. 在 2020 年 2 月 1 日至 2020 年 2 月 4 日期间，有哪些关于 COVID-19 的新证据（如果有的话）曝光，以改变人们对实验室起源的看法？
-
-4. 福奇博士或 柯林斯是否编辑了编辑了自然医学论文《SARS-CoV-2的近端起源》？
-
-5. 早期获得这些知识是否会有益于疫苗或治疗开发？
-
-6. 到 2020 年 2 月 1 日，福奇博士或柯林斯知道国务院关于武汉病毒研究所安全的警告吗？
-
-7. 这个警告是否会改变对 COVID-19大流行的早期反应？
-
-要阅读这封信的全部内容，你可以在这里[下载](https://republicans-oversight.house.gov/wp-content/uploads/2022/01/Letter-Re.-Feb-1-Emails-011122.pdf)。[https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/](https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/)
-
-翻译：烟波浩淼 | 校对：|编辑& 发布：断播
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

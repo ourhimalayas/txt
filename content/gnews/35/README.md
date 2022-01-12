@@ -2,30 +2,51 @@
 ---
 
 
-## 【中日财经爆】马化腾：腾讯只是一家普通公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849609/)
+## 三次接种疫苗的奥运会马拉松运动员患上心肌炎
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849617/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-154.jpg)[图片来源](https://www.sohu.com/a/353593672_413981)
-马化腾在2021年员工大会上的讲话日前被媒体曝光，引起热议。
+**评论：** *自疫苗开始接种后，世界各地的很多运动员出现了心脏类疾病，有些甚至失去了生命。这种集中暴病不是偶然，众多的事实告诉我们，再好的身体也抵挡不住毒苗的侵害，也许这才是真相！*
 
-去年年底的员工大会上，马化腾对2021年发生的一系列变化表达了自己的想法。他说，腾讯只是国家社会发展期间的一家普通公司。是国家发展浪潮下的受益者，并不是什么基础服务，随时都可以被替换。未来腾讯在服务国家和社会的时候，要做到不缺位、做到位、不越位，做好助手、做好连接器。
+据《COVID 世界》作者：编辑人员，2022年1月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-834-e1641958926495.png)图片来源：COVID 世界网站
+**瑞士马拉松纪录保持者和奥运会运动员法比安·施伦普夫（Fabienne Schlumpf）在接种第三针COVID-19加强针后不久被诊断出患有心肌炎。**
 
-2021年港股经历了惨淡的一年，腾讯更是耗巨资回购，1月5日—1月10日累计回购耗资8.14亿港元。11日晚间，腾讯公告回购44万股股份，价格区间为452.2港元—461.8港元，耗资约2.02亿港元。
+31岁的施伦普夫（Schlumpf ）在去年的东京奥运会马拉松比赛中获得第12名，目前无法确定何时才能再次参赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-835-e1641958977512.png)图片来源：https://thecovidworld.com/wp-content/uploads/2022/01/xschlumpf-1-3.jpg.pagespeed.ic.BQPrrxFXS2.webp
+她于周四公开了这一消息，并在Instagram上发帖写道：
 
-2021年在监管风暴的背景下，中国最富有的10为科技大亨，净资产合计蒸发800亿美元，腾讯的马化腾为101亿美元。
+“坏消息
 
-2021年腾讯进行了大规模的组织调整。被要求放弃独家音乐版权；主导的斗鱼、虎牙合并案被否决；8年来第一次开放微信外部跳转链接；未成年保护日益严格，游戏的版号发放暂停；几乎清空对京东的持股，这曾是它最重要的一笔对外投资。
+不幸的是，心肌炎正在阻碍我。 这对我来说绝对不是一个轻松的时期，但我不会放弃。 我希望很快回来，追逐我的梦想……和对手”
 
-腾讯是当前中国市值最高的互联网公司，当然也需要面对更多挑战。随着市值的不断下跌，腾讯已经掉出了全球十大互联网公司行列。过去，腾讯依靠政商关系、投资生态与手中掌握的海量版权在许多领域拔得头筹，但是现在“躺赢”的日子已经一去不复返了，也许真的要变成一家普通公司了。
+据报道，这位31岁的运动健将在日常生活中感到“疲倦”，上个月在一次轻松的耐力跑中心率猛增后，她的一位医生诊断出她患有心肌炎。
 
-信息来源：
+这位经验丰富的长跑运动员原计划今年年初前往葡萄牙参加训练营，但在心肌炎确诊后取消。
 
-[刷屏！马化腾：腾讯只是一家普通公司，随时都可以被替换…](https://finance.sina.com.cn/tech/2022-01-12/doc-ikyamrmz4650751.shtml)
+“没有人知道我的职业生涯要搁置多久。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**施伦普夫（Schlumpf ）向一家瑞士报纸证实，她已经接种了三次疫苗，并且没有感染 COVID-19。**
+
+擅长3000米障碍赛的施伦普夫（Schlumpf ）在2018年欧洲锦标赛上获得银牌。
+
+她的个人最好成绩是9:37.81，是目前瑞士的全国纪录。
+
+原文连接：[https://thecovidworld.com/fabienne-schlumpf-triple-vaccinated-olympic-athlete-develops-myocarditis-possible-end-of-career/](https://thecovidworld.com/fabienne-schlumpf-triple-vaccinated-olympic-athlete-develops-myocarditis-possible-end-of-career/)
+
+翻译：洛杉矶盘古农场 – 海潮
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – Wendy
+
+编辑：洛杉矶盘古农场 – Wendy
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U0](https://discord.gg/2vuvRm7z6U0)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

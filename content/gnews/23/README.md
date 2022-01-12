@@ -2,22 +2,33 @@
 ---
 
 
-## 金正恩视察导弹试验现场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849694/)
+## 有声|波湾四国外长访中共计与石油议题有关
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849719/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-838.png)[图片来源](https://news.yahoo.co.jp/byline/takahashikosuke/20220112-00276891#:~:text=%E5%8C%97)
-北朝鲜的媒体《劳动日报》1月12日头版刊登了一张金正恩视察导弹试验现场的照片，这是他自2020年3月以来的首次现场视察。报道高调渲染11日发射的导弹在空中分离及目标方位确定方面都有了相应提升。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-11-%E4%B8%8A%E5%8D%889.53.07.png)
+中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
 
-朝鲜已在2021年9月28日及本月5日，11日3次短期内发射了3枚弹道导弹。
+习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
 
-去年，北朝鲜党代会制定了“国防科学发展和武器系统发展五年计划”。金正恩指示，“朝鲜半岛不稳定的军事环境和国际形势要求我们大力推动加强国防能力，不能有丝毫拖延”。为了加强自身的防御能力，北朝鲜正在赶时间急于完成高超音速导弹的部署。
+中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
 
-信息源：[北朝鮮、極超音速ミサイルの6日ぶりの再発射を発表　金正恩総書記が現場視察](https://news.yahoo.co.jp/byline/takahashikosuke/20220112-00276891#:~:text=%E5%8C%97)
+文字版原文：[波湾四国外长访中共计与石油议题有关](https://gnews.org/zh-hans/1847764/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

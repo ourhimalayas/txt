@@ -2,35 +2,50 @@
 ---
 
 
-## 有声|托卡耶夫与普京举行电话会谈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849720/)
+## 限跌令无法阻止房价下跌，房地产将是中共噩梦
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849764/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-《哈萨克斯坦信息报》从阿科尔达新闻处获悉，哈萨克斯坦国家元首托卡耶夫与俄罗斯总统普京通了电话。
+**【国内新闻短评】**
 
-哈萨克斯坦总统对俄罗斯领导人支持向该国派遣集体安全条约组织联合维和特遣队以恢复宪法秩序和法律表示感谢。
+网易新闻2022年1月9日报道：限跌令也无法阻止房价下跌！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-840.png)图片来源：网易新闻![](https://assets.gnews.org/wp-content/uploads/2022/01/image-841.png)
+**短评：**
 
-托卡耶夫告诉普京，该国的局势正在稳定下来。然而，恐怖袭击的温床依然存在，哈萨克斯坦将继续激烈地打击恐怖主义。
+中国商品房的土地出让金和税收占房价八成以上。房地产是中共插在中国奴隶身上吸血的大管子，它不仅是压在奴隶头上的第一大山，并且由于没有土地所有权，只有70年使用权的中国房产，70年后中共可以再盘剥一次，如此循环往复。
 
-托卡耶夫总统还建议举行集体安全条约组织集体安全委员会的视频会议。日期将通过外交渠道商定。
+**为什么不能让房价下跌**
 
+中国三、四十年的所谓房地产繁荣，中共不仅耗尽了前一代和这一代多数奴隶的财富，甚至已把未来一代奴隶的汗血提前榨干。今天，面对经济下滑、失业剧增等因素，该到了房地产这个大泡沫破灭的时候了。
 
+一旦房价下跌，房地产业崩溃，必将导致银行业以及金融系统的崩溃，从而导致中国经济的崩溃，进而使得中共统治地位的倒塌。所以为维护其邪恶的专制集权统治，中共必然千方百计地维持房地产价格的稳定，“限跌令”是牠们最后的手段之一。
 
-文字版原文：[托卡耶夫与普京举行电话会谈](https://gnews.org/zh-hans/1846509/)
+**“限跌令”无法阻止房价下跌**
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+继中国第一房产巨头恒大债务暴雷之后，富力、华夏幸福、泰禾集团、蓝光发展、新力控股、花样年等多家房地产开发商，接二连三翻车，均陷入不同程度债务危机。可以预测，接下来的债务暴雷将涉及绝大部分房地产企业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+不仅如此，面对现在的经济状况，大批奴隶失业，并且，作为原来商品房购买中坚力量的公务员、事业单位人员纷纷降薪，购买力急剧萎缩。房价下跌是必然趋势。甚至于，即使房价下跌也少有购买者。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**中共为自己制造了房地产噩梦**
+
+作为商品属性的商品房，理应遵循市场规律，其价格由供需双方决定。当然在中共专制集权统治下的中国，一切必须服从中共的政权和利益需求。奴隶们连最基本的生育权都被剥夺，何况房价的涨跌？
+
+但是，面对现状，即使中共使用再多的手段，房价下跌以及下跌之后的连锁反应已成定局。现在，中共为搜刮奴隶而一手制造的房地产泡沫已将成为牠们的噩梦，对原本岌岌可危的中共政权以致命的打击。
+
+* * *
+
+【文章观点仅代表作者，与Gnews平台无关】
+
+新闻链接：[https://c.m.163.com/news/a/GT2H6M4Q0515DBP5.html?spss=newsapp](https://c.m.163.com/news/a/GT2H6M4Q0515DBP5.html?spss=newsapp)
+
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯镇恶
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

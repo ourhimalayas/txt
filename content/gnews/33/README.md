@@ -2,28 +2,56 @@
 ---
 
 
-## 金正恩高调视察导弹试射 欧美紧急应对
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849614/)
+## 共和党监督委员会公布了从未见过的福奇邮件
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1849632/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-10.jpg)（图片来源于本文链接）
-朝鲜官媒朝中社（KCNA）周三(1月12日) 报道，朝鲜领导人金正恩亲自监督了一枚高超音速导弹的成功测试。报道说，携带“高超音速滑翔器”的导弹击中了1,000公里外水域的目标。这是自2020年3月以来，金正恩首次正式出席导弹试验。
+据《内幕新闻网》米歇尔·琼斯2022年1月11日 报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-4.png)图片来自网络
+美国国会众议院监督委员会公布了安东尼·福奇(Anthony Fauci)的电子邮件，表明他可能隐瞒了关于COVID-19起源的信息。这些邮件以前从公布过。邮件表明福奇知道该[病毒起源](https://insiderpaper.com/who-experts-say-repeated-covid-boosters-not-a-viable-strategy/)于中共国武汉的一个实验室，而该病毒就是在那里首次被发现的。
 
-美国卡内基国际和平基金会的高级研究员安潘达(Ankit Panda)在推特上写道：“他出现在这里，表明他对这一计划特别关注。”监测朝鲜的韩国风险集团CEO奥卡罗尔告诉路透社：“虽然金正恩可能进行了其他试验，但这次出现以及《劳动新闻》的头版，这意味着金正恩并不担心自己与此试验有关联。也不关心美国如何看待这个问题。”
+**美国国会监督委员会：实验室理论在福奇这些邮件后被淡化**
 
-韩国军方表示，11日的发射达到了高超音速，并显示出与上周实验有明显的“进步”迹象。导弹的最高速度达到了音速的10倍（每小时12348公里/每小时7673英里），但韩方没有对其可操作性发表评论。朝中社的报告说，高超音速滑翔飞行器“从600公里的区域进行了滑翔跳跃飞行，然后进行了240公里的开旋。”高超音速导弹以5马赫或更快的速度飞行，并能在飞行过程中进行机动变化，使其更难被追踪和拦截。
+美国国会监督委员会在推特上发布了一封由众议员詹姆斯·康默（James Comer）和吉姆·乔丹（Jim Jordan）写的信，他们希望福奇博士能就[这些邮件](https://insiderpaper.com/more-than-3-million-coinmarketcap-emails-leaked-to-dark-web/)宣誓作证。
 
-在金正恩掌权以来的10年里，朝鲜以国际制裁为代价，在军事技术方面取得了快速发展。高超音速导弹被列为其当前5年计划中战略武器的“最优先”任务之一，并在去年9月宣布了其首次试验华城8型导弹。首尔庆南大学的教授林欧哲告诉法新社：“金正恩出席导弹试验表明，高超音速导弹的完成度已经达到了令人满意的程度。”
 
-此外，根据多家媒体报道，美国联邦航空管理局（FAA）11日表示，在有报道称朝鲜发射弹道导弹的前后，暂停了西岸一些机场的起飞，并称这是“正常预防措施”。北美航空航天防御司令部的一位发言人说，朝鲜试射导弹后没有发出任何警告。美国印太司令部评估也认为，这次发射没有对美国人员、领土或美国盟友构成直接威胁。
 
-信息来源：
+> 🚨BREAKING🚨
+> 
+> We've released never before seen emails showing Dr. Fauci may have concealed information about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) originating from the Wuhan lab & intentionally downplayed the lab leak theory. [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) & [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) want Fauci under oath. Time for answers. 1/2👇 [pic.twitter.com/p8aIBJ3nom](https://t.co/p8aIBJ3nom)
+> — Oversight Committee Republicans (@GOPoversight) [January 11, 2022](https://twitter.com/GOPoversight/status/1480909671082901504?ref_src=twsrc%5Etfw)
 
-[金正恩高调视察导弹试射 欧美紧急应对](https://www.dw.com/zh/%E9%87%91%E6%AD%A3%E6%81%A9%E9%AB%98%E8%B0%83%E8%A7%86%E5%AF%9F%E5%AF%BC%E5%BC%B9%E8%AF%95%E5%B0%84-%E6%AC%A7%E7%BE%8E%E7%B4%A7%E6%80%A5%E5%BA%94%E5%AF%B9/a-60394142)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*共和党监督委员会共和党人@GOPoversight*
+*我们发布了从未见过的电子邮件显示福奇博士可能隐瞒了来自武汉实验室的 #COVID19 信息，并故意淡化实验室泄漏理论。*
+*@RepJamesComer   & @Jim\_Jordan*
+*要福奇宣誓。是时候回答了。*
+*2022年1月11日*
+在这封信中，共和党国会监督委员会要求对福奇博士进行一个记录采访，并解释说，今天公开的电子邮件摘录警告说，COVID-19有可能是从[武汉病毒学研究所](https://insiderpaper.com/wuhan-lab-leak-more-likely-origin-of-covid-uk-mps-have-heard/)泄露出来的。这些电子邮件还警告说，该病毒可能被 “有意进行了基因操作”。
+
+共和党国会监督委员会信中还指出，福奇显然知道美国国家卫生研究院，传染病研究所（NIAID）、美国国家卫生研究院（NIH）、生态健康联盟（EcoHealth Alliance）和武汉病毒研究所(WIV)之间的金钱关系，尽管他在多个场合声称不是这样。
+
+共和党监督委员会还指出，[福奇博士和至少12名其他科学家](https://insiderpaper.com/fauci-vows-more-testing-as-covids-omicron-hammers-us/)在2020年2月1日的电话会议上谈到了COVID-19，在那次电话会议中，他们了解到该病毒可能是从武汉病毒研究所泄露出来的，并且是故意进行了基因操作。
+
+共和党监督委员会信中最后提出重要问题：
+
+1. 福奇博士或柯林斯（Collins）警告过白宫的任何人，关于潜在的 COVID-19 起源于实验室，并可能被故意进行基因操纵了吗？
+
+2. 如果没有分享这些担忧，为什么要让他们做出保持沉默的决定？
+
+3. 在 2020 年 2 月 1 日至 2020 年 2 月 4 日期间，有哪些关于 COVID-19 的新证据（如果有的话）曝光，以改变人们对实验室起源的看法？
+
+4. 福奇博士或 柯林斯是否编辑了编辑了自然医学论文《SARS-CoV-2的近端起源》？
+
+5. 早期获得这些知识是否会有益于疫苗或治疗开发？
+
+6. 到 2020 年 2 月 1 日，福奇博士或柯林斯知道国务院关于武汉病毒研究所安全的警告吗？
+
+7. 这个警告是否会改变对 COVID-19大流行的早期反应？
+
+要阅读这封信的全部内容，你可以在这里[下载](https://republicans-oversight.house.gov/wp-content/uploads/2022/01/Letter-Re.-Feb-1-Emails-011122.pdf)。[https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/](https://insiderpaper.com/gop-oversight-committee-releases-damning-fauci-emails/)
+
+翻译：烟波浩淼 | 校对：|编辑& 发布：断播
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
