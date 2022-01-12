@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈中共派系（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852225/)
+## 有声|GTV新闻访谈简报|2022年1月11日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852441/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山农场- 纳米
 
-来源：郭先生2022-01-09直播08：54：09摘录
 
-胡锦涛来自西藏，胡春华来自西藏，陈全国当时从河南到河北。他在河北的是谁啊？最核心人物，当年河北就是张越是第二把手。胡春华也在河北出来的，在政法委最牛的就是张越，后来就董屳生这个王八蛋，把曲龙放出来那个孙子，就是这个人是真正的跟孟建柱跟江家，他骨子里边儿最看不起的习近平。董屳生放曲龙出来就咬我，这个董屳生是曾庆红的家里边儿就一“狗”，把马建给害了，把张越给弄起来了。张越跟胡春华，跟那个陈全国都熟得不行。你知道这些人有个最大的本质是什么吗？很不幸，所有的像跟我认识的，像张越，马建，别人列为我这一派，兄弟姐妹们，共产党会跟谁好啊？我跟你们说实话，我要在国内，把我弄起来的绝对不是孟建柱，一定是马建或者张越把我弄死了。为什么？因为七哥跟他们太近了，知道太多了。所以说这里没有什么董屳生跟咱不是一派，曾庆红跟咱是不是一派，不存在，只要是共产党，它没有跟咱是一派的。但是你又看到这里边儿他们是分两派的。这些人是绝对有相信迷信，有不相信迷信。曾庆红是绝对相信，董屳生是绝对相信的。张越和马建属于比较低的官员家庭出身，就有点“混不吝”那种，就要被清掉。当然了开始江派和曾派，和后来胡锦涛，胡锦涛派的结合，当时跟着胡锦涛的那就是江家，曾家的仇人，是吧。马健和张越就是两边儿过去你轮不着，你太年轻，后来就又往人家胡锦涛那儿搭扯，结果江派一上来他肯定曾派把你灭了，他就这么简单的道理。那和昆仑山有啥关系呢？兄弟姐妹们，大家要记住啊，陈全国绝对是相信昆仑山派的，相信西藏派的，胡春华绝对相信这喜马拉雅，昆仑山的，胡锦涛绝对知道西藏的力量，昆仑山的力量的。曾家是相信啥啊？曾家是相信南普陀。南普陀是啥地方？南普陀是在整个地球变化之后，也是几千万年前形成的花岗岩的石核，是整个最南侧的，最南侧的一个几个岛屿，众岛拥在一起的。曾庆红虽然出自于广西，曾庆红认为自己是 海派，广东和上海帮的代表人。江家相信的是什么？相信的是龙，龙要饮水。你们知道所有的帕米尔的水，还有整个从喜马拉雅山的水，大家问我，中国有一个河流是从东往西流水的吗？有吗？没有吧！文耀你要找出个从东往西流水的，你就是你就是神人了。所有的水是从西向东流。不管你们水多水少，你也阻挡不了你的水从身体上都是从上往下流一样。不管你小飞象、小飞侠、佳佳、王子你多年轻，你不能，你可以尿自己的脸上，但是你想自己的高潮之水往上流是不可能的，无论你们谁高了，都是水往下流，这就是天然之规律。中国的水都是往西流，往东南流，所以中国的乾隆八卦里边儿，永远东南角是水位，龙位，龙位，龙饮水，啊，这个都是《山海经》，刚才你们说的《山海经》，《山海经》是干啥的？《山海经》是把远古的所有的民族、自然、神话给你放在一起的。《三新通论》和真正的《三新通论》最后的总结，包括《山海经》都在告诉中国大自然和人类变化的一个基本的历史和规律，你是可以看的。海派的江家、曾家、孟家，在上海所谓建的那个龙柱子大桥，实际上人都知道，当年什么大柱子打不下去了，最后江泽民来祈祷了，建成龙了，那桥就起来，我相信你们都知道这故事，他相信龙。南普陀，所有的立菩萨像的时候，南普陀起于什么时候你们谁知道？
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![This image has an empty alt attribute; its file name is logo-s2.png](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**关注我们**
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0111text-SC.png)
+原文链接：[GTV新闻访谈简报|2022年1月11日晚](https://gnews.org/zh-hans/1849385/)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+音频处理：Daxia
 
-Gettr 账号
+**发稿：**Daxia
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

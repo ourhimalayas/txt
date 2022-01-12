@@ -2,45 +2,20 @@
 ---
 
 
-## 有声|大卫萨索利 David Sassoli，欧洲议会主席，疫苗护照的发起人，他死了！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1852475/)
+## 加拿大强制接种计划遭部分省份拒绝
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1852500/)
 
-配音：香草山农场- 纳米
+加拿大温哥华扬帆农场皇家山频道    平民正道
 
+据加拿大【CTV新闻】1月7日报道，阿尔伯塔省长当天果断拒绝了联邦政府目前以“保护加拿大不堪重负的医疗系统”为由，而强推的“新冠病毒”疫苗接种计划。
 
+报道称，阿尔伯塔省长肯尼表示，尽管当局鼓励人们尽快接种疫苗，但由于涉及到个人的自由选择权，因此该省的立法机构已依据《公共卫生法》取消了政府此前对疫苗强制接种的授权，并将不会重新审视这一决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据悉，[萨斯喀彻温省]省长日前也发表过同样的论点，并拒绝在该省实施强制接种政策。虽然加拿大联邦政府计划在全国推动疫苗强制接种，但各省政府对此将拥有最终的决定权。
 
+* * *
 
-
-已接种疫苗的欧洲议会主席大卫萨索利，因严重的异常免疫系统功能障碍重新入院（可能是接种疫苗的后果），已经死亡。他曾是欧洲疫苗护照的推动者。
-
-欧洲议会主席大卫·萨索利（David Sassoli）在三个月内第二次住院后于周二早上去世。 他的发言人罗伯托·库略今天早上在推特上宣布了这一消息：
-“欧洲议会主席大卫·萨索利于 1 月 11 日凌晨 1 点 15 分在意大利阿维亚诺的一家医院去世，他在那里住院。 ”
-
-原文链接：[大卫萨索利 David Sassoli，欧洲议会主席，疫苗护照的发起人，他死了！](https://gnews.org/zh-hans/1849663/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+编辑： 平民正道    发布：平民正道
 
  
 
