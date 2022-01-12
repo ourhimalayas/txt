@@ -15,86 +15,86 @@
 
 ---
 
-### [务必主动备药防病毒不能把爆料革命、新中国联邦当上帝](/content/gnews/1/README.md)
+### [中共房地产绑架世界经济将引发前所未有的全球经济危机](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：从保险赔付看新冠疫苗灾难的爆发](/content/gnews/2/README.md)
+### [在病毒疫苗灾难面前不分西安郑州武汉杭州无处不是西安](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [防范意识重于解药,不严加防范等到感染再想药就悔之晚矣](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [务必主动备药防病毒不能把爆料革命、新中国联邦当上帝](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：从保险赔付看新冠疫苗灾难的爆发](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强推疫苗的政府基本是由国会和医疗机构及首脑一党把持](/content/gnews/3/README.md)
+### [强推疫苗的政府基本是由国会和医疗机构及首脑一党把持](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大校秘密作证某国政府:mRNA疫苗就是病毒就是生化武器](/content/gnews/4/README.md)
+### [大校秘密作证某国政府:mRNA疫苗就是病毒就是生化武器](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [多位战友及家人防护严密依然被感染，务必小心中共病毒](/content/gnews/5/README.md)
+### [多位战友及家人防护严密依然被感染，务必小心中共病毒](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：金域医学核酸检测过程“投毒”刑事立案，钟南山被网友挖出引关注](/content/gnews/6/README.md)
+### [秘翻在线：金域医学核酸检测过程“投毒”刑事立案，钟南山被网友挖出引关注](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美参议员马尔科·鲁比奥：在中共病毒问题上向中共追责](/content/gnews/7/README.md)
+### [美参议员马尔科·鲁比奥：在中共病毒问题上向中共追责](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [父母要保护好孩子不被打疫苗，责无旁贷](/content/gnews/8/README.md)
+### [父母要保护好孩子不被打疫苗，责无旁贷](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾再设10亿美元融资资金 推动与立陶宛的经贸合作](/content/gnews/9/README.md)
+### [台湾再设10亿美元融资资金 推动与立陶宛的经贸合作](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [北京冬奥会赞助商无视中共政权恶劣的人权状况](/content/gnews/10/README.md)
+### [北京冬奥会赞助商无视中共政权恶劣的人权状况](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为什么儿童不应该接种新冠疫苗](/content/gnews/11/README.md)
+### [为什么儿童不应该接种新冠疫苗](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [摩西的启示——撂挑子，再担起来](/content/gnews/12/README.md)
+### [摩西的启示——撂挑子，再担起来](/content/gnews/15/README.md)
  ` 纽约香草山MOS03`
 
-### [德法两国正式表态与立陶宛美国站在一起应对中共威胁](/content/gnews/13/README.md)
+### [德法两国正式表态与立陶宛美国站在一起应对中共威胁](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [灭共第八夜 中共防疫](/content/gnews/14/README.md)
+### [灭共第八夜 中共防疫](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [辉瑞公司宣布削减美国国内的销售职位](/content/gnews/15/README.md)
+### [辉瑞公司宣布削减美国国内的销售职位](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：美军方报告揭秘COVID-19真正来源](/content/gnews/16/README.md)
+### [每日快报：美军方报告揭秘COVID-19真正来源](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [英特尔删除涉新疆文字 美议员要求禁止补助该公司](/content/gnews/17/README.md)
+### [英特尔删除涉新疆文字 美议员要求禁止补助该公司](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大生活美谈 2022-01-06第三十七期](/content/gnews/18/README.md)
+### [加拿大生活美谈 2022-01-06第三十七期](/content/gnews/21/README.md)
  ` canadalifetalk`
 
-### [俄军队将在两天内哈萨克斯坦撤军](/content/gnews/19/README.md)
+### [俄军队将在两天内哈萨克斯坦撤军](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒](/content/gnews/20/README.md)
+### [COVID-19 最新情报|惊！ 南极科研站爆出确诊 完全接种疫苗仍有过半数感染病毒](/content/gnews/23/README.md)
  ` 關注組`
 
-### [私募巨漳资本暴雷，负责人一死一伤](/content/gnews/21/README.md)
+### [私募巨漳资本暴雷，负责人一死一伤](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [河南一检验中心负责人实施引起传播病毒或有传播危险的行为 被警方立案侦查](/content/gnews/22/README.md)
+### [河南一检验中心负责人实施引起传播病毒或有传播危险的行为 被警方立案侦查](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [郭文贵先生谈“独立原则”](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Facebook试图取消被起诉的努力被法官拒绝](/content/gnews/24/README.md)
+### [Facebook试图取消被起诉的努力被法官拒绝](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [仅仅一周，盖特新增用户100 万](/content/gnews/25/README.md)
- ` 纽约香草山MOS03`
-
-### [华尔街资本大鳄瑞·达利奥全力为中共站台](/content/gnews/26/README.md)
+### [华尔街资本大鳄瑞·达利奥全力为中共站台](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生2022年1月11日盖特直播视频（20分14秒）全文字版](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [加拿大医护人员状告护士协会和媒体诽谤](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
