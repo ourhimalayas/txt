@@ -2,39 +2,30 @@
 ---
 
 
-## 美国上千家医院出现严重人力短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
+## 河南某检验中心负责人因涉嫌病毒传播遭刑拘
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1851900/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
-与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
+撰稿：纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间1月12日，中共国河南省许昌市警方在官方通报中称，郑州金域临床检验中心的区域负责人张某东因违反传染病防治法规定，实施引起冠病病毒传播的行为，被警方立案侦查并采取强制措施。
 
-有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
+据了解，郑州金域临床检验中心是一家大型的第三方医学检验机构，而此次被刑拘的张姓负责人则主管了郑州市三分之一的核酸检测工作。该中心的上级母公司正是金域医学——中共国的一家核酸检测龙头企业。金域成立之初，是钟南山担任院长的广州医学院的校办企业。目前，在37位知名专家组成的金域医学学术委员会中，钟南山任主席。
 
-在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
+在此次事件中，警方称该名负责人有涉嫌“引起或者传播中共病毒”的行为，这一模糊说法引发了墙内网民的大量讨论。有网友爆料称，该中心涉嫌“丢弃检测样本、伪造检测结果”的违法、违规操作行为，此次事件的曝光或将导致金域医学的股价发生暴跌。更有网友评论称，该负责人是为了谋取暴利而故意将病毒外泄，导致了当地大规模的感染病例，应以“投毒罪”对其进行起诉。
 
-目光转向国内，中国疫情持续蔓延，情况不容乐观。
+截至目前，该案件依然处于审理当中，金域医学则在当日跌超5%。[https://www.zaobao.com.sg/realtime/china/story20220112-1232157](https://www.zaobao.com.sg/realtime/china/story20220112-1232157)
 
-参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
-
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
-
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

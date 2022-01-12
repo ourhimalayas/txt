@@ -2,27 +2,39 @@
 ---
 
 
-## 马龙博士警告，中共国出血热病毒源于疫苗大规模接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845626/)
+## DC每日热点0111
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1847705/)
 
-#### 素材整理：熊猫乱滚、文泓
-编辑：文泓
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5C939794-4F0E-4E1C-99D7-0AA5FE970C0B-scaled.jpeg)
+道琼斯指数 36068.87 ▼0.45%
+纳斯达克指数 14942.82 ▲0.05%
+WTI纽约原油CFD 79.319 ▲1.39%
+布伦特原油CFD 81.836 ▲1.82%
+标普50指数 2,897.87 ▼47.91%
+美元兑人民币 1USD=6.374 RMB
+美元兑港币 1USD=7.796 HKD
+国际黄金 1806.46 美元/盎司
+全球CCP病毒感染人数 311,487,724例
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image012.png)图片来源：班农战斗室视频截屏
-
-
-当地时间1月10日，mRNA基因疫苗的发明者罗伯特·马龙博士(Robert Malone)现身班农战斗室节目，他警告说，一种来自共产主义中国的“类似埃博拉的出血热”超级病毒，他认为这可能是由大规模疫苗接种引起的病毒突变引起的。
-
-马龙博士强调，将运动员派往中共国参加2022年奥运会将是“疯狂的”，并补充说：“毫无疑问，当他们知道新冠病毒正在肆虐之时，在武汉，他们并没有拉上国际旅行的帷幕。”
-
-新闻链接：[‎Bannon’s War Room: Episode 1,549 – Covid Explosion In China Putting Olympics In Jeopardy (w/ Ben Harnwell, Frank Gaffney, Dr. Robert Malone, Tony Lyons) on Apple Podcasts](https://podcasts.apple.com/au/podcast/episode-1-549-covid-explosion-in-china-putting-olympics/id1485351658?i=1000547463034)
-
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1、朝鲜据信再射一枚弹道导弹
+2、习近平近日向哈萨克斯坦总统托卡耶夫致口信，称中方“坚决反对外部势力蓄意在哈萨克斯坦制造动荡、策动‘颜色革命’“
+3、美国疾控中心建议国民不要到加拿大旅行
+4、澳大利亚同意向美国购买价值35亿美元的坦克与其它装甲车辆
+5、台湾和加拿大政府同意就投资保护协议启动会谈
+6、日本拟扩大、重组对美军支持加深介入台海防御
+7、布林肯国务卿就中共国制裁美国际宗教自由委员会成员发表声明
+8、“德国组织：冬奥选手避免吃中共国肉以免违反禁药规定
+9、乌克兰国家安全局10日表示抓捕一名计划在港口城市敖德萨发动袭击的俄罗斯军事情报特工
+10、因力挺台湾 立陶宛有望获得第一笔芯片投资
+11、厄瓜多尔总统2月访华与北京重新谈判债务问题
+12、民调显示多数加拿大人希望减少与中共国经贸往来，将人权置于经贸之上
+13、北约秘书长：外界不必对美俄就乌克兰局势展开的会谈抱有不切实际的期望
+14、六个月没有从喀布尔得到一分钱 阿富汗驻华大使提出辞职
+15、法经济部拒绝向咖啡馆酒吧餐馆业者提供额外补助
+16、恒大搬离深圳总部大楼 面临巨额债务到期
+17、 河南安阳育才学校现疫情 4040人被集中隔离
+18、辉瑞CEO：不确定是否需要第四剂COVID疫苗
 
  
 

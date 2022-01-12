@@ -2,15 +2,15 @@
 ---
 
 
-## 疫苗大灾难
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1850993/)
+## 二十大前中共血腥权斗拉开帷幕
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1850994/)
 
 ——文贵大直播20220112
 
-撰稿：莲心不染（扬帆） 神奇四侠（英喜） 不着急（文复）（意农） 白子（澳喜）
+撰稿：Poplar（盘古）
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-1.png)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-4.png)
 *发布：Theodosia*
 
  
