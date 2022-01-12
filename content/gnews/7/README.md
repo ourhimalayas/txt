@@ -2,42 +2,30 @@
 ---
 
 
-## 中共房地产绑架世界经济将引发前所未有的全球经济危机
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850307/)
+## 福奇早知新冠病毒可能由中共实验室故意基因编辑并泄露
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1850344/)
 
-G-TV视频链接：[https://gtv.org/video/id=61de384a87664c47acd38ac5](https://gtv.org/video/id=61de384a87664c47acd38ac5)
+#### 撰稿：彩虹   
 
-**郭文贵先生：**我简单说一下刚才房地产里边。当我们大家来面对这个房地产的时候，我们现在有两个问题很多人都疏忽掉了。我们讲过但没有认真讲。就是共产党这个房地产对世界的经济打击之后，他怎么收场？他现在不让人家，让你活不了，活不好也死不了。然后“吸金大法”，把全世界的钱吸他那儿去。然后由于借债的多了，欠债的害怕借债的死。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-24.jpg)图片来源：BBC
+1月11日，《新闻极限》报道，众议院共和党人指，电子邮件显示，新冠病毒（COVID-19）有可能是从中国武汉的一个实验室泄露的，并且该病毒可能是被故意基因编辑过的，安东尼·福奇（Anthony Fauci）博士曾得到过相关警告。
 
-这就是共产党。咱们从小到大听说的，说你因为，是吧？欠那么多钱，你别死，希望你活着，共产党这一招玩得挺绝的。但最终他一定会把西方，一定记住，你一定会看到你一生当中前所未有的、全球的经济危机。美国资产会跌到你无法想象，我认为是50%到60%、70%都可能。
+美国国会议员在给卫生与公众服务部部长泽维尔·贝塞拉（Xavier Becerra）的信中说：“当务之急，是调查这一信息是否传达给了政府其他部门，以及（当时）这一信息是否会改变美国对这一疫情的反应。我们写信要求对NIAID（美国国家过敏和传染病研究所）所长安东尼·福奇博士进行采访录音。”。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+信中还指出，“尽管福奇博士在多个场合声称不知道，但事实上，在2020年1月27日之前，他知道NIAID、NIH（美国国家卫生研究院）、生态健康联盟公司（EcoHealth）和武汉病毒研究所之间的金钱关系”。
 
-编辑整理：Jacques；
+并且，“福奇博士还知道，NIAID与EcoHealth合作，制定了一项拨款政策，以避开当时的（病毒）功能性增强（实验）暂停令。这项由EcoHealth设计并得到NIAID同意的新政策允许在几乎没有监督的情况下，EcoHealth完成对新型蝙蝠冠状病毒的危险实验，否则就会被暂停令所阻止”。
 
-字幕文件制作：小满；
+该信由众议院监督和改革委员会排名第一的共和党众议员詹姆士·卡莫（James Comer）和司法委员会排名第一的共和党众议员吉姆·乔丹（Jim Jordan）签署。
 
-视频制作及上传：Cindy；
+据报道，共和党议员说，这些电子邮件是通过《信息自由法》获得的，（但发现）部分内容被删减了。
 
-G-News发布：小满；
+对此，他们在信中写道：“我们呼吁你立即取消这些删减内容，向国会出示这些（原始）的电子邮件。此外，考虑到上述问题的严重性，我们要求安东尼·福奇博士立即接受笔录采访。请在2022年1月18日前回复确认。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**新闻来源**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[House GOP: Emails Reveal Fauci Was Warned of Possibility COVID Leaked From China Lab](https://www.newsmax.com/newsfront/fauci-email-republicans-china/2022/01/11/id/1051912/)
 
  
 
