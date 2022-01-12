@@ -2,14 +2,38 @@
 ---
 
 
-## 中共的本质
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849367/)
+## 有声|美国CDC无法给出死于新冠病毒的具体数字
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849432/)
 
-撰稿：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-11.17.32.jpeg)
-文贵先生在1月11日的盖特直播中指出中共的本质，第一，中共自称“无神论”、“无神党”，其实它比谁都相信有神；第二，自称是“无产阶级”，其实它是最有钱的阶级；第三，自称“为人民服务”，其实是人民为它服务；第四，自称“共产主义”，其实就是“共产”他们几家（几个家族）的主义，就是“家天下”；第五，不是依法治国，是以“家法”治国。
+配音：香草山健身部- 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
 
-信息来源：[文贵先生1月11日盖特直播](https://gettr.com/post/pnog2f2016)
+原文链接：[美国CDC无法给出死于新冠病毒的具体数字](https://gnews.org/zh-hans/1846910/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
