@@ -2,76 +2,228 @@
 ---
 
 
-## 145个国家的研究显示中共病毒疫苗加剧病毒的传播和致死率
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1848675/)
+## 香港和大陸的房地產，還有香港的股票市場，從過去的百分之七到百分之十一的造假，現在已經達到三十五了，說明共產黨真完了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849360/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/diana-polekhina-ZBstHWt9vLc-unsplash-scaled-2.jpg)网络图片
-**摘要翻译**：
+[https://gtv.org/video/id=61dd997087664c47acd3621a](https://gtv.org/video/id=61dd997087664c47acd3621a)
 
-美国保守派媒体《网关专家》1月9日报道，
+**Miles Guo
+郭文贵**
 
-根据最近发表的一份预印版研究报告，实验性疫苗的广泛推广并没有像承诺的那样结束这场中共病毒大流行病，而实际上造成了全世界中共病毒感染人数和死亡人数的急剧增加，该报告数据来自于世界上145个接种疫苗最多的国家。
+七哥
+Yo
 
-据这项长达99页题为 “全球范围内疫苗管理对与中共病毒相关的死亡和确诊病例的贝叶斯因果影响分析：145个国家的大数据分析”的研究发现，特别是在美国，该疫苗导致每百万人中的中共病毒确诊病例增加了38%，更令人震惊的是每百万人中的死亡人数甚至增加了31%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-817.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-818.png)
-研究人员发现，在145个国家中，总共有近90%（89.84%）的国家在疫苗推广后出现了这种负面效应。
+就有背后的高人
+Tengo un experto detrás de mi
 
-摘自报告：
+我才一次次敢自信说你们不
+Por eso les he dicho una y otra vez con confianza
 
-“结果表明，治疗（疫苗接种管理）具有强烈的、统计学上显著的倾向性，给变量y1[每百万人中死亡案例]或变量y2[每百万人中确诊病例]的数值带来因果性的增加，超过了没有治疗（疫苗接种管理）时的预期。
+了解爆料革命的力量
+Ustedes no comprenden la fuerza del Movimiento de Denunciantes
 
-y1显示增加/减少比率为(+115/-13)，这意味着89.84%的统计学意义上的国家表现出与中共病毒相关的每百万人总死亡人数增加，这是直接由于治疗开始[疫苗]的因果影响。
+昨天是把我也给惊住了啊
+Ayer también me dejó sorprendido
 
-y2显示的增加/减少比率为(+105/-16)，这意味着86.78%的统计学意义上的国家表现出每百万人中中共病毒总确诊病例有所增加，这直接由于治疗开始[疫苗]的因果影响。”
+我这几天心情说实在话
+Estos días, me he sentido realmente
 
-研究人员对已公开的中共病毒数据进行了因果分析，比较了疫苗治疗前和治疗后的时期，得出了实施疫苗以来确诊病例和死亡人数的差异，以确定疫苗广泛推广的效果。在排除了所有来自疫苗接种率低或数据不完整的国家的结果后，有128个国家有足够的死亡人数数据(y1)，103个国家有足够的确诊病例总数(y2)，这些国家共包括145个独特的国家。
+你们不知道我把我过去一年来
+No saben que
 
-也许研究结果中最有说服力的部分是，2020年记录的中共病毒导致死亡人数最少的国家，一旦引入疫苗，其确诊病例和死亡人数的增幅最大，其中一些国家的增幅超过1000%。
+没流的水全都流出来了
+Me ha salido toda el agua que no salió en este último año
 
-“在2020年，因中共病毒死亡人数较少的国家似乎是所有接种疫苗后的国家中表现最差的（如泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等）。
+我大概从1991年之后
+Aproximadamente, luego del año 1991
 
-在这些国家看到的疫苗管理的因果影响结果[是]每百万人的总死亡人数和确诊病例增加数百或数千个百分比。
+我从来没见过我八弟的照片
+No he visto más a la foto de mi octavo hermano menor
 
-我们在统计学上最有信心，因为在接种疫苗后，与中共病毒相关的死亡和确诊病例直接增加，而在接种疫苗之前，这些国家的死亡和病例很少或没有。”
+这个照片当中当时就是我八九岁的时候啊
+Esta foto es de cuando tenía 8-9 años
 
-在该研究的结论中，研究人员警告到，死亡和确诊病例的大幅增加应该让世界各地的政策制定者感到“高度担忧”，而他们一直在宣传这类实验性疫苗是“夺回我们自由的关键”。
+七哥之前是处男
+Era virgen en ese entonces
 
-“疫苗部署后对因变量（总死亡人数和每百万人总病例）的因果影响具有统计学上显著性和压倒性的正向影响，这应该让政策制定者感到非常担忧。这些数据表明，与中共病毒有关的病例和死亡人数都明显增加，这直接归因于最初作为‘夺回我们自由的关键’向公众推销的疫苗部署。中共病毒疫苗对每百万人总病例数的影响及其与每百人总疫苗接种量的低正相关性表明疫苗对降低中共病毒相关病例的影响有限。
+这是唯一的照片
+Antes de eso, esta es la única foto
+还有另外一张是我和我一个发小照的照片
+Hay otra foto donde salgo con mi amigo de la infancia
 
-这些结果应该鼓励当地的政策制定者根据数据而不是叙述，根据当地的情况而不是全球或国家的任务来做出政策决定。这些结果还应该鼓励政策制定者开始寻找除大规模疫苗接种运动之外的其他途径来停止这场大流行病。”
+当时我还踩着那个东北的划着脚划子
+En ese momento, todavía estaba patinando en Dongbei
 
-简而言之，这只是最新的证据，证明我们在这场被制造出的大流行病中被欺骗了。
+当年的东北我记得在十一月十二月的时候
+Recuerdo en noviembre, diciembre de aquel año en Dongbei
 
-这些实验性的、仓促的疫苗除了使事情变得更糟之外没有任何作用，接种这样的疫苗仅是刺激了新变种病毒的传播，使世界无法将这种病毒纳入后视镜（停止中共病毒的传播并让大流行病结束）。
+零下三十五到四十度的时候
+Cuando estaba en -35° a -40°
 
-有几项研究得出了与此类似的结论，最近有两项研究证实了基本相同的事实——这些中共病毒疫苗实际上造成的疾病比它们预防的疾病更多。
+我站在那穿着夹克衣服
+La ropa que tenía en esa foto
 
-这些数据仅指中共病毒疫苗增加的病毒感染案例，更不用说其他疾病和威胁生命的状况的大幅增加，而这些疾病已经席卷全国。
+照的那个照片
+Tenía una chaqueta puesta
 
-医院目前因“比以往任何时候都病得更重”的病人们“喘不过气”，而这并不是中共病毒感染案例。
+就是擤大鼻涕那种的
+Que me dejaba mocoso
 
-**简评：**
+呃, 锃亮那种的
+Tipo muy brillante
 
-针对一个实验室制造非自然来源的病毒，用从未在人体上实验的技术制备得到的疫苗，在全世界范围内强制推行超过半年，这个事件的本身，就是一场以生命为代价的闹剧。从这份99页的大数据分析结果报告中，可以明显得到两个结论：1）中共病毒疫苗导致感染人数和死亡人数激增；2）中共病毒疫苗导致及加重各类疾病使得医疗系统不堪重负。倡导科学的政府政策制定者，却无视这些早已摆在所有人面前的事实，打着“还人民自由”的口号剥夺着人权和自由。随着真相在各大平台的传播，这样的隐瞒和疯狂一定会被人民站出来终止。爆料革命和新中国联邦的众多战友们会继续坚持传播病毒疫苗真相，坚持心中正义的必须，等待黎明到来。
+我也几十年
+Tengo más de diez años
 
-新闻链接：[Massive 145-Country Study Shows Sharp INCREASE of Transmission and DEATH After Introduction of COVID Vaccines](https://www.thegatewaypundit.com/2022/01/massive-145-country-study-shows-sharp-increase-transmission-death-introduction-covid-vaccines/)
+四十来年没看我那时候的照片了
+Más de 40 años que no veo las fotos mías de aquel momento
 
-*翻译/简评：milkcat*
+呃, 这两张照片对我感触太深了
+Estas dos fotos me han dado mucho sentimiento
 
-*校对: clau*
+就控制不住的流水啊
+No podía controlar el agua que me salía
+
+眼泪啊
+Las lágrimas
+哎呀, 我是这几天就想人生啊
+Ay, estos días estuve pensando sobre la vida
+
+真是四十几年前
+Hace más de cuarenta años atrás
+
+当时我的八弟还有我还有我当时
+En aquel momento estaba mi octavo hermano menor,
+
+的样子和当时的赵家沟啊
+Zhaojiagou y yo como era en ese entonces
+
+我在同时和这世界上数字货币
+Al mismo tiempo hablando por teléfono con el Boss, el fundador
+
+的大佬创始人通话
+De la moneda digital de este mundo
+
+然后谈论灭掉共产党
+Discutiendo cómo eliminar al Partido Comunista
+
+拯救现在人类
+Rescatar a la humanidad de ahora
+
+你说这人格得多分裂
+Dime tú, qué tan dividida puede ser esta personalidad
+
+是吧
+Cierto
+
+你还能受得了啊
+Podrás seguir resistiendo
+
+满大鼻涕的郭七儿
+El mocoso de Miles
+
+当年八九岁踩着脚划子
+Cuando tenía ocho o nueve años, me puse de pie y patiné
+照了什么
+Qué se capturó
+
+照了两张相
+Se tomaron dos fotos
+
+然后旁边的弟弟已经没了啊
+Y el hermano menor que estaba al lado ya no está
+
+这位大师给我说
+Este gran maestro me dijo
+
+他为啥我要给你点赞
+Por qué me dió “me gusta”
+
+他说可以告诉你
+Él dijo, puedo decirte
+
+香港和大陆的房地产
+“Las propiedades inmobiliarias de Hong Kong y China
+
+还有香港的股票市场
+Y el mercado de valores de Hong Kong”
+
+他说我他们所有的数据我都知道
+Los datos que él dijo, lo sé todo
+
+他从过去的百分之七
+Desde el 7% del pasado
+
+到百分之十一的造假
+Hasta el 11% fueron falsos
+
+现在已经达到三十五了
+Ahora ya alcanzó el 35%
+
+这说明他们真完了
+Él dijo, ellos realmente han terminado
+他在最后
+Al final de todo
+
+所有数字货币啊
+Todas las monedas digitales
+
+包括比特币
+Incluyendo el Bitcoin
+
+成零的时候, 只有喜联储
+cuando se convierta en cero, sólo la Reserva Federal de Himalaya
+
+他说
+Él dijo
+
+成为世界上最牛的
+Se convertirá en el más poderoso de este mundo
+
+包括你的Gettr pay
+Incluyendo tu Gettr pay
+
+他说不是这个数字货币牛, 是你重新
+Dijo, “no es que la moneda digital sea poderosa, es que tu volviste
+
+书写了数字货币的游戏规则
+A escribir las reglas de juego de la moneda digital”
+
+共产党的房地产将成就人类上第二
+Las propiedades inmobiliarias del Partido Comunista alcanzaron en la humanidad
+
+次最大的金融形式的存在
+La segunda forma de existencia más grande en financiación
+
+他死之前给人类留下了最后一点贡献
+Es su última contribución a la humanidad antes de su muerte
+
+把他的骨灰变成了人类文明的肥料
+Convierte sus cenizas en fertilizante para la civilización humana
+
+那就是成就了数字货币
+De esta forma, este será el logro de la moneda digital
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+日期：01/10/2022
+原视频标题：香港和大陸的房地產，還有香港的股票市場，從過去的百分之七到百分之十一的造假，現在已經達到三十五了，說明共產黨真完了。
+Las propiedades inmobiliarias en Hong Kong y China, así como el mercado de valores en Hong Kong, del 7% al 11% en el pasado, ahora ha alcanzado el 35%, lo que indica que el Partido Comunista realmente ha terminado
 
+原视频日期：01/08/2022
+原视频网址：[https://gettr.com/post/pmx3kpde47](https://gettr.com/post/pmx3kpde47)
+任务编号：KC407（3442）
+视频时间段：00:00-02:19
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

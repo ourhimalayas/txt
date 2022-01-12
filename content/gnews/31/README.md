@@ -2,39 +2,13 @@
 ---
 
 
-## 有声|中共国因疫情灾难，死亡人数已达2-3千万人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849251/)
+## 日本时隔2个月中共病毒重症患者再次超过100人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849389/)
 
-配音：香草山农场- 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月9日，郭先生在大直播中爆料，中共国内由于中共病毒和中国病毒疫苗已经造成了2-3千万人的死亡。同时，中共不仅放毒，且在抗疫管理上故意制造种种人道灾难，直接或间接地造成了大量死亡。
-
-郭先生说，中共一旦某地有疫情发生就进行大规模核酸检测，尽管潜伏期病毒根本无法正确测出，无症状传染也是非常危险的，但这种模式却愈演愈烈。另外，中共对武汉、天津、黑龙江的大规模死亡极力掩盖。国内战友告诉郭先生，仅黑龙江某地就有1-2万的死亡人数，很多是全村覆亡，尸体都来不及火化，就地掩埋，死亡以45-85岁的居多。甚至，染病的残疾人也不会得到任何救助，一旦染病就只能等死。 郭先生指出，中共病毒疫苗不能阻止病毒的传播，而是中共对人类的大屠杀。
-
-原文链接：[中共国因疫情灾难，死亡人数已达2-3千万人](https://gnews.org/zh-hans/1844307/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._12-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

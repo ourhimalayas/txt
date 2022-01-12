@@ -2,38 +2,25 @@
 ---
 
 
-## 有声|清零不要命 可怜西安人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849366/)
+## 中共病毒疫苗加强针没有科学数据支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849484/)
 
-配音：香草山农场- 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-近日，中共西安市为了完成上级下达的所谓疫情“清零”任务，采取了种种非人道措施，造成了民众生活不便、食物短缺、无法就医甚至延误病情致死亡等人道灾难，引发了世界的关注。纽约香草山战友剪辑的一则综合视频深刻反映了中共治下西安市的这种“盛世乱象”。
+#### 翻译：Annabelle
+校对：枳实
+剪辑/字幕：向上James
 
-原文链接：[清零不要命 可怜西安人](https://gnews.org/zh-hans/1845572/)
+我们知道疫苗带来的副作用的比例很高，每 7000个男性青年中有一例由于心脏炎症去看医生，可能有更多的病人没有去看医生。所以在没看到任何加强针的益处的证据的情况下，我们许多人都对此表示担忧。
 
-音频处理：Daxia
+视频链接：[Dr. Marty Makary- ‘No scientific data’ supporting COVID booster shots](https://video.foxnews.com/v/6288409247001#sp=show-clips)
 
-**发稿：**Daxia
+发布：枳实
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

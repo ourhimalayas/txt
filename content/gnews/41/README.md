@@ -2,34 +2,25 @@
 ---
 
 
-## 波湾四国外长访中共计与石油议题有关
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847764/)
+## 2022.1.11文贵爆料：黑龙江、辽宁、天津、河南、杭州、上海将开始大戒严
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1848321/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.07.png)
-中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/wKgBy1sffqKAA4-vAC5fj9zf3NQ815.tub_.jpg@rw9.jpeg)
+来源：中国国家地理
 
-习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
+2022年1月11号郭文贵先生在盖特直播中爆料国内北到黑龙江，东至上海将开始大戒严。由于共产党一贯的形式主义官僚主义，让民众做核酸检测排长队，这不是害人吗？充分反映出共产党管理国家上的低能。
 
-中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
+另一个方面，共产党却绝对的相信迷信。共产党声称自己是所谓“无神论”、“无神党”，而它实际比谁都相信有神。表面无神论的共产党在昆仑山修建了巨大的祭坛，那是共产党权力的来源。共产党百分百是依照天地之间它认可的规律和万佛万神来定自己的乾坤（管理国家），掌握自己的未来。昆仑山上每年要七百个仙女去祭昆仑山神。共产党从新疆西藏蒙古抓处女，从五十四个民族抓去的孩子去祭奠共产党的“神”，来保佑它可以千秋万代统治中国人民。（在这个世上最邪罪恶的魔党统治下，五十四个民族一样的可怜，没有差别！）郭先生说，这就是爆料革命，我们要用一个个事实戳穿共产党。我们讲昆仑山喜马拉雅山，五湖四海的事儿，2008年冠军奖牌为什么采自昆仑山的玉？和田玉是稀有到什么程度？为什么共产党要去采昆仑山的玉？秦岭下面有什么？
 
-参考链接：[波灣四國外長集體訪中 討論強化能源關係](https://www.cna.com.tw/news/acn/202201100368.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+共产党让中国人民相信它是“无产阶级”，实际它是最有钱的阶级；共产党到处宣传它是“为人民服务”，现实是人民为它服务了70年；共产党鼓吹带领人民实现共产主义，真实面目它就是“共产”他们几家的主义，就是“家天下”；共产党宣扬的依法治国，其实是以“家法”治国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭先生希望兄弟姐妹们好好的珍惜，**不要染上病毒。**大灾大难，大病之后要么醒来，感悟出人生的道理；要么你就走向下一个更大的病更大的灾。千万别得病，得了病要认真对待，要珍惜。把得病的经历变成一个开启人生醒悟的钥匙，更加的读懂人生，大难不死必有后福。厚福重要，但看到不一样的人生最重要。
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+来源链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gettr.com/streaming/pnog2f2016](https://gettr.com/streaming/pnog2f2016)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

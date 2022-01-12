@@ -2,14 +2,31 @@
 ---
 
 
-## 中共的本质
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1849367/)
+## 200万亿巨债压顶，中共国人均负债14.2万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849486/)
 
-撰稿：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-11.17.32.jpeg)
-文贵先生在1月11日的盖特直播中指出中共的本质，第一，中共自称“无神论”、“无神党”，其实它比谁都相信有神；第二，自称是“无产阶级”，其实它是最有钱的阶级；第三，自称“为人民服务”，其实是人民为它服务；第四，自称“共产主义”，其实就是“共产”他们几家（几个家族）的主义，就是“家天下”；第五，不是依法治国，是以“家法”治国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/印度-1.jpg)
+**整理报道：**BENJ1
+**编辑：**翼族
 
-信息来源：[文贵先生1月11日盖特直播](https://gettr.com/post/pnog2f2016)
+从2020年来看，中共国人均个人消费贷款同比增长11.8%，达到了3.51万元。如果除去住房贷款的部分，其余个人消费贷款余额则达到1.07万元，同比上升了7.9%。
+
+中共国90后群体的人均负债在12.7万左右。
+
+从亚洲范围来看，中共国的“90后”群体占据了近乎一半的借贷市场，达到了49.31%。目前，中共国有1.75亿的90后人群，选择使用与信贷有关产品的人高达86.6%。
+
+然而让人震惊的是，对欠款有偿还能力的群体仅为42.1%，对于逾期半年信用贷款的总体金额则高达892亿，这一数字相较十年前翻了十几倍。
+
+**参考新闻：**[东方财富网](https://caifuhao.eastmoney.com/news/20220111112852351121930)
+
+*发布：翼族*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

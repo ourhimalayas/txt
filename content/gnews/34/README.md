@@ -2,50 +2,36 @@
 ---
 
 
-## 马龙博士警告：中共国的“类似埃博拉出血热”是大规模疫苗接种突变所致
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1849061/)
+## 有声|清零不要命 可怜西安人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849366/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-11-copy-710.jpg)网络图片
-摘要翻译：
+配音：香草山农场- 纳米
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+近日，中共西安市为了完成上级下达的所谓疫情“清零”任务，采取了种种非人道措施，造成了民众生活不便、食物短缺、无法就医甚至延误病情致死亡等人道灾难，引发了世界的关注。纽约香草山战友剪辑的一则综合视频深刻反映了中共治下西安市的这种“盛世乱象”。
 
-*信使核糖核酸（**mRNA**）疫苗的发明者罗伯特**·**马龙（**Robert Malone**）博士在史蒂夫**·**班农（**Steve Bannon**）的《作战室》（**War Room**）节目中亮相，他警告说，一种“类似埃博拉出血热”的超级病毒从中共国传出，他认为这可能是由大规模疫苗接种产生的突变引起的。*
+原文链接：[清零不要命 可怜西安人](https://gnews.org/zh-hans/1845572/)
 
-马龙博士解释说，“大流行病的疫苗接种将导致耐疫苗性病毒突变体的逃逸”，他补充说，中共（CCP）的大规模疫苗接种运动“与西方世界的情况一样，并导致发展超级病毒的完美环境风暴”， “他们用的术语为出血热病毒。如果是这样的话，这是由新冠病毒造成的，这将是非常奇怪的事情。因为这个术语通常用于马尔堡（Marburg）和埃博拉（Marburg）家族的病毒”。
+音频处理：Daxia
 
-马龙博士继续说，“因此，许多人担心会出现这种类似埃博拉病毒的快速传播的出血热病毒。但我们并不知道这里是否正在发生这种情况。”
+**发稿：**Daxia
 
-马龙博士强调，派遣运动员到中共国参加2022年冬奥会将是“疯狂”之举，并补充说：“在我看来，毫无疑问，当他们知道严重急性呼吸综合征冠状病毒2（SARS-Cov-2）正在武汉肆虐时，他们并没有放下国际旅行的帷幕，他们对武汉一直开放到春节结束，当时中国的每个人都四处旅行，并且中共也放任民众去美国和其它西方国家旅行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-他继续说，“我们面对的是一个掠夺百姓、没有道德的流氓政权，而我们却有像黑石（Blackrock）这样的公司积极与他们来往，他们是用你的钱来做这件事。他们现在用你的钱通过投资基金来腐蚀这个世界，并积极与中共交往。这必须要停止”。
+**更多资讯，更多关注**
 
-**简评：**
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新中国联邦郭文贵先生早已发出警告，提醒世人疫苗灾难将要到来。马龙博士警告说，一种“类似埃博拉出血热”的超级病毒从中共国传出，他认为这可能是由大规模疫苗接种产生的突变引起的。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-据中共国内爆出的微信聊天视频，西安出现了大量因出血热而就诊住院的病人。而大家网上相传的患出血热的原因是因为草莓，因为草莓种植棚里有大量的黑老鼠。所以大家都不敢吃草莓了。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-从而联想起新冠病毒大爆发后，中共把该病毒嫁祸给蝙蝠，试图推卸责任。当西方多国指控中共对新疆种族灭绝，对香港民主自由和人权残暴打压，还有对墙内异议人士和少数民主打压时，中共官媒《环球时报》发文暗示，新冠病毒源自进口的冷链食物，因此在中共国内传出，美国水果和食品已被病毒感染，瑞士三文鱼检测到了新冠病毒，及多个国家包括澳大利亚、新西兰的冷冻牛肉等食品包装上检测出新冠病毒等等。以此来愚弄和控制墙内老百姓，从而实施对其他国家的惩罚性贸易限制。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-中共的愚民政策已经到了疯狂地步，使很多百姓丧失了思考能力而蒙受其害。希望以新中国联邦的力量，能带动更多人和正义的力量，揭露中共的邪恶，把更多的真相带给世人。并同时告诉世界，中共（CCP）不等于中国人。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-新闻链接：[Dr. Robert Malone Warns Of ‘Ebola-Like Hemorrhagic Fever’ Super Virus In China Caused By Mutations Due To Mass Vaccination](https://www.infowars.com/posts/dr-robert-malone-warns-of-ebola-like-hemorrhagic-fever-super-virus-in-china-caused-by-mutations-due-to-mass-vaccination/)
-
-*翻译/简评: JS*
-
-*校对：感恩*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

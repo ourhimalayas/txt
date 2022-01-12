@@ -2,24 +2,38 @@
 ---
 
 
-## 中共封了第三座城市影响到2000万人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1849574/)
+## 法官对Facebook反垄断诉讼案作出裁决
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849667/)
 
-翻译：  Evalu
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-校对：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_10.png)
-图片来源： www.voachinese.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/https___d1e00ek4ebabms.cloudfront.net_production_a3777504-ceda-4215-ae6d-dca91cca58d2.jpg)图片来源：Kirill Kudryavtsev/AFP/Getty
 
-美联社1月11日报道，中共近来针对西安(1300万人口)和禹州(110万)进行了封城，周一又对笫三座城市安阳(550万)市进行封城，受影响人口达已达2000万人口。
 
-中共对西安实施了三周的封城，禹州封了一周，本次因为在安阳市发现了2例奥米克戎感染病例，政府立即规定居民不允许上街，商店被勒令关门，除非是必须品。目前安阳到底会封多少时间目前还不清楚，目前要求大量人员去做测试，这是中共尽快确定和隔离患者的标准做法。
+编译：小红帽
 
-中共自2020年疫情大流行初期对武汉市和大多数湖北地区进行了封城，随后中共主要采用小范围的针对出现疫情的目标区域进步行封闭。随着2月4日北京冬季奥运会的临近，奥米克戎感染和出现，又出现以整个城市为范围的封城状况，以期扑灭疫情以防向中国其他地区蔓延。
+根据《RT新闻》1月11日报道， 驳回第一起针对脸书（ Facebook） 的联邦贸易委员会（FTC） 反垄断诉讼的同一位联邦法官，现在允许对 Meta 的修正投诉继续进行，称该投诉“更加有力和详细”。
 
-据说安阳的两例患者与天津的两例输入型患者有关，安阳是古代商朝的都城，是最早发现刻有甲骨文的甲骨之地。天津仅仅在发现疫情的地区进行了封城的，这市1400 万人做了测试，有97例阳性，其中49例有症状，15例无症状，还有33例正在等待进一步证实。
+“第二次幸运？联邦贸易委员会对Facebook, Inc.的第一起反垄断诉讼跌跌撞撞，因为本法院去年6月驳回了起诉，”美国地区法官詹姆斯·博斯伯格（James Boasberg）周二在一份48页的意见中写道。
 
-##### **新闻来源： **[China locks down 3rd city, raising affected to 20 million](https://apnews.com/article/coronavirus-pandemic-health-china-64ca91f0f2315eabea84bb4a9d0801eb)
+尽管“诉讼的核心理论基本上没有改变”，但新的起诉书包含“重要的补充和修订”，而“这次为巩固这些理论而指控的事实比以前要有力和详细得多”。
+
+去年，博斯伯格驳回了联邦贸易委员会最初的投诉以及48个州和哥伦比亚特区的诉讼，指控马克·扎克伯格（Mark Zuckerberg）的社交媒体巨头有垄断行为。脸书的市值因此飙升至1万亿美元。随后，该公司改名为Meta。
+
+此后，该委员会提交了一份修订后的投诉，称扎克伯格收购了Instagram和WhatsApp等竞争平台，在个人社交网络领域建立了垄断地位。
+
+博斯伯格指出，联邦贸易委员会“在证明其指控方面很可能面临一项艰巨的任务，”他说，修订后的投诉“现在已经清除了请求障碍，可以进入取证阶段。”
+
+新闻来源：[Judge rules on Facebook antitrust lawsuit — RT World News](https://www.rt.com/news/545748-facebook-meta-antitrust-lawsuit/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
