@@ -15,65 +15,65 @@
 
 ---
 
-### [七哥是家里唯一跟家人拥抱的人,从小到大深信人生有来世](/content/gnews/1/README.md)
+### [看透黄粱一梦就是放下生死立地解脱看不透的永远醒不来](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [01/12每日播报｜随着“奥米炕”激增 拜登政府为抗疫不力作辩护](/content/gnews/2/README.md)
+### [信用与信仰](/content/gnews/2/README.md)
+ ` 银河勇气之星`
+
+### [人生就是黄粱一梦,唯一与过去不一样的是科技让梦被记载](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥是家里唯一跟家人拥抱的人,从小到大深信人生有来世](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021年1月12日新闻集](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [医生法庭证词：呼吸机造成伤害导致 COVID 患者死亡](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [所有的相遇都是久别重逢](/content/gnews/7/README.md)
+ ` 新西兰伊甸农场听写编辑组`
+
+### [01/12每日播报｜随着“奥米炕”激增 拜登政府为抗疫不力作辩护](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [赔钱送礼游戏环节中的G-Fashion让我们有来处有去处](/content/gnews/3/README.md)
+### [赔钱送礼游戏环节中的G-Fashion让我们有来处有去处](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [人们敦促澳大利亚总理对德约科维奇的签证事件迅速表态](/content/gnews/4/README.md)
+### [人们敦促澳大利亚总理对德约科维奇的签证事件迅速表态](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [推特所欠缺的 乔·罗根在盖特上找到了](/content/gnews/5/README.md)
+### [推特所欠缺的 乔·罗根在盖特上找到了](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党六四抓捕七哥时拿走所有照片掩盖不了七哥的过去](/content/gnews/6/README.md)
+### [共产党六四抓捕七哥时拿走所有照片掩盖不了七哥的过去](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [农民主动上缴“枪支”三年后被判刑](/content/gnews/7/README.md)
+### [农民主动上缴“枪支”三年后被判刑](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [战友们齐心锁币的共同行动是任何文明升华前的必须条件](/content/gnews/8/README.md)
+### [战友们齐心锁币的共同行动是任何文明升华前的必须条件](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [朝鲜成功试射高超音速导弹后迫使美西岸航班停飞](/content/gnews/9/README.md)
+### [朝鲜成功试射高超音速导弹后迫使美西岸航班停飞](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大将对未接种新冠疫苗者征收特殊税](/content/gnews/10/README.md)
+### [加拿大将对未接种新冠疫苗者征收特殊税](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西媒头条 — 第151期](/content/gnews/11/README.md)
+### [西媒头条 — 第151期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国内战友先过喜币KYC再找安全的汇款方式避免惹出麻烦](/content/gnews/12/README.md)
+### [国内战友先过喜币KYC再找安全的汇款方式避免惹出麻烦](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共产党的骨灰变成人类文明的肥料成就数字货币的新世界](/content/gnews/13/README.md)
+### [共产党的骨灰变成人类文明的肥料成就数字货币的新世界](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [福奇早知新冠病毒可能由中共实验室故意基因编辑并泄露](/content/gnews/14/README.md)
+### [福奇早知新冠病毒可能由中共实验室故意基因编辑并泄露](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [有头脑者将在政治经济金融资源大洗牌中化身文明创始人](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [苏格兰推迟对未接种疫苗妇女的生育治疗](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共房地产绑架世界经济将引发前所未有的全球经济危机](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [在病毒疫苗灾难面前不分西安郑州武汉杭州无处不是西安](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [防范意识重于解药,不严加防范等到感染再想药就悔之晚矣](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [务必主动备药防病毒不能把爆料革命、新中国联邦当上帝](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [秘翻在线：从保险赔付看新冠疫苗灾难的爆发](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
