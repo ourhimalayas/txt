@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党苦民弱民的核心战术
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1850863/)
+## 人类要面临一前所未有最可怕的种族间的冲突
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1850902/)
 
 台灣寶島農場
 
