@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1851818/)
+## 我们NHS 工作人员不能接受来自疫苗授权的操纵和胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1851901/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+**作者：日本东京方舟农场 JIHO**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-10.png)
-文章仅代表作者本人观点，与Gnews无关
+如果 NHS 输掉了与授权的斗争，整个社会都将失去自由选择的权利。现在的事实是，如果我在自己的身体自主基本原则上妥协而接受操纵和胁迫作为一种可以接受的医疗行为，我也将被迫为我的病人、我的同事、甚至我的家人和和朋友们接受这一点。
 
-视频参看：[2022.01.12早GTV新闻访谈](https://gtv.org/video/id=61ded748a6dfdd60315304d7)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*素材采编：JIHO*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
+*发布：Ranting*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*封面制作：S*
 
  
 

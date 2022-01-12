@@ -2,28 +2,28 @@
 ---
 
 
-## 从中国人寿王滨看中共盗国贼的奢靡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852028/)
+## 河南安阳因奥密克戎封城
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852079/)
 
-作者：银河勇气星—骄子
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-郭先生在1月9日大直播与战友分享曾与中国人寿王滨的一些交往片段。王滨此人，是王岐山最重要的几个马仔之一，近日王滨的被抓预示着王岐山的严重失势。中国人寿是王岐山为了拉拢内部朋党而给盗国贼家族的子女洗钱藏钱输送利益的机构，从来不会从事小笔业务，次次涉及金额数目巨大。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-44.jpg)图源网络
-
-据郭先生回忆，在2006年之前，王滨已经出手阔绰，曾花20亿人民币买鸡翅木。中共买走了全世界七八成的手表，多数都是王滨买给王岐山的，从一开始的限量版到现在的定制版，从而导致在最近两三年，瑞士手表平均上涨了5-10倍，比比特币涨得还夸张。
-
-王滨曾告诉郭先生，给王岐山送一块表要百里挑一，且每块表都是价值不菲，有的甚至高达上百万、上千万美元。 郭先生感慨，中共这些奢靡生活都是搜刮自中国老百姓的血汗钱。中国人的愚昧无知与可怜，明明自己活得不如猪狗，却还在信奉共产党的洗脑。
-
-新闻来源：[https://gtv.org/video/id=61dade8c4658a73785d25465](https://gtv.org/video/id=61dade8c4658a73785d25465)
+作者：纽约磐石农场—在远方
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
+
+台媒1月11日报道，由于中共病毒疫情持续扩散，中共河南省已成为疫情新热点。当地时间10日晚，拥有500万居民的河南省安阳市宣布封城。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-35.png)图源网络
+
+据悉，中共国10日新增本土病例110例，其中河南省87例。目前安阳市累计确诊84例，但是由于其中包含奥密克戎病例，当局随即于10晚紧急宣布封城，暂停人员流动，并开展全员核酸检测。
+
+安阳市防疫指挥部通告称，全市所有居民除核酸检测外足不出户，全市所有机动车不得上路行驶，所有商点超市除保障日常生活外，全部暂停营业，其他生产经营单位和所有门店及外卖全部暂停营业。
+
+新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3797182](https://news.ltn.com.tw/news/world/breakingnews/3797182)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 

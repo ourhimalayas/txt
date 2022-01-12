@@ -2,35 +2,22 @@
 ---
 
 
-## 中共疾控专家放话，中国加强针接种率应提升至100%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851880/)
+## 拜登的荒唐议程注定流产
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1851991/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体1月10日报道，日前，中共疾控中心首席专家吴尊友在公开场合表示，为了早日实现群体免疫的目标，全国加强针接种率应该提升至100%。
+#### 编撰：白夜
 
-天津1月10日通报确诊了20例奥密克戎本土感染病例，这是中共当局官方报告的最高纪录，对此，吴尊友认为，在中国，每个人都应该接种疫苗，并且，每个人都需要打加强针。他指出，虽然中共病毒不断变异让群体免疫大打折扣，但接种中共疫苗可以达到所谓“反折扣”的效果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-6.jpg)
-至于什么是“反折扣”，吴尊友解释称，打完加强针以后抗体会上升，预防感染的保护效果回到预期的80%，把中共病毒对群体免疫造成的折扣折回来，最终实现提高人群抗击中共病毒的效果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16420101381.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16420101381.png)
 
-不过，网民似乎对吴尊友的这个创新概念不买帐，质疑仅西安、天津两地，疫苗完全接种率超过九成，却仍然对病毒肆虐不堪一击，表明“反折扣”理论在事实面前根本是胡编乱造。
+AXIOS的记者Sneak Peek1月11日报道，周二，拜登利用自己在乔治亚州的“天字第二号讲坛”，做了最后的努力，试图向公众施加压力，不是针对共和党人，而是针对他自己的政党。他敦促他的民主党同僚利用他们对国会和白宫的完全控制来通过广泛的投票权立法。
 
-参考链接：[中共疾控专家放话，中国加强针接种率应提升至100%](https://wap.xinmin.cn/content/32094995.html)
+随着中期竞选的升温，尽管拜登总统现在将投票保护视为最紧迫的国内问题，但民主党高层议员认为，民主党基层所要求的任何议案都很难获得通过。“我们正在努力寻找实现这一目标的途径。但这很难。”纽约州民主党众议员贾马尔·鲍曼(Jamaal Bowman)对Axios的安德鲁·索兰德(Andrew Solender)说。当被问及民主党的策略时，参议员马克·凯利(亚利桑那州民主党)讽刺地说。“我在这里已经14个月了。美国参议院的运作方式是我从未见过的。” “人们可以理解偶尔没有选票，但他们不能理解为什么我们没有提出70%或80%的美国人民支持的重要立法，”桑德斯说。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+拜登提出的《投票自由法案》很可能会失败，因为共和党人一致反对，而且亚利桑那州民主党参议员克里斯滕·西内马(kirsten Sinema)和西弗吉尼亚州民主党参议员乔·曼钦(Joe Manchin)也拒绝降低投票门槛，这种共识是超越党派的。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+在目前极度两极化的国会环境中，这不是一件小事。川普的支持者试图利用《选举计数法》来扭转2020年的选举结果。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+原文链接：[The Biden agenda is meeting a dead end – Axios](https://www.axios.com/biden-agenda-dead-end-763109db-1210-4a2e-9d22-caee5a63aa62.html)
 
  
 

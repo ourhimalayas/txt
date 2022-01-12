@@ -2,20 +2,38 @@
 ---
 
 
-## 世卫：半数欧洲人未来两月内或将感染奥密克戎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1851397/)
+## 人类将在与中共的三个层次争战中大获全胜
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851577/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://lh5.googleusercontent.com/NNTs7h5K9kuFtRsQrkEzypNE3DTjuVASodDPBovgbSpugPsDYe9C9tSETRRyqrpz-vWhZZZAM4Iu57zXr3860xx82LSvaLoZa8SVP-Jy-bzMn7Sbf-Q4wz4TmpfahstjMf86qtEU)[*图片来源*](https://static.dw.com/image/57705951_403.jpg)
-世界卫生组织周二表示，未来两个月内，超过半数的欧洲人口可能都会感染新冠奥密克戎变种病毒，但还不能将它视为类似流感的地方性疾病。传播力超强的新冠病毒奥密克戎变种正席卷欧洲。2022年第一周，欧洲各地通报的中共病毒（新冠肺炎）新增感染数超过700万人，在两周的时间里增加了一倍多。依照当前的速度，欧洲地区50%人口将在未来6至8周内感染奥密克戎变种病毒。欧洲和中亚53个国家中，有50个国家都检测到奥密克戎的感染病例。目前掌握的数据显示，奥密克戎对上呼吸道的影响比对肺部大，所以病症比先前的变种较轻。但世界卫生组织认为尚不能掉以轻心，还需要更多研究佐证这一结果。
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月7日的直播中指出，人类正在与魔鬼中共就三个层次作生死较量。
 
-本周一，西班牙总理桑切斯表示，或许是时候改变（中共）病毒演变的追踪方式，将其作为流感对待，因为死亡率已经下降。 这意味着西国将（中共）病毒作为地方性疾病而非大流行病对待，不再记录每一个案例，不对所有出现症状的人进行测试。但世卫欧洲区官员斯莫伍德认为，定义为流行病的前提是稳定可预测的传播，此时为时尚早。“我们仍有大量的不确定性，而且这种病毒的演变速度相当快，带来了新的挑战。还没有达到称其为地方性流行病的时间点。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-5.jpeg)
 
-新闻来源：[**世卫：半数欧洲人未来两月内或将感染奥密克戎**](https://www.dw.com/zh/%E4%B8%96%E5%8D%AB%E5%8D%8A%E6%95%B0%E6%AC%A7%E6%B4%B2%E4%BA%BA%E6%9C%AA%E6%9D%A5%E4%B8%A4%E6%9C%88%E5%86%85%E6%88%96%E5%B0%86%E6%84%9F%E6%9F%93%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E/a-60390042)
+首先，在信仰层面，即有神论和无神论的较量。郭先生多次提到，宣称无神论的中共其实是世界上最迷信的邪教组织，其以巫术为由在中共国内肆意作恶，但最终的结果只能是害人不利己。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+其次，则是民主与独裁，即“民天下”与“家天下”的较量。郭先生解释，中共目前已然成为了习家的天下，但这将加剧中共的党内斗争，其下场只会是两败俱伤。
+
+最后，就是共产主义与资本主义的决战。郭先生曾反复提及，中共通过流氓手段欺骗、利用资本主义国家，但在利益面前，这些国家最后必将与中共反目成仇，其终将导致中共的覆灭。
+
+郭先生强调，新中国联邦将重建信仰、完善民主，以致最终，正道主义会代替一切，也会帮助其他一切的建立。
+
+参考链接：[2022年1月7日 文贵大直播：疫苗灾难与数字货币；哈萨克斯坦紧急状态；二十大人事安排玄机；香港股市国内房地产](https://gtv.org/video/id=61d83b3ef2fe0449ea199bd5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木 
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

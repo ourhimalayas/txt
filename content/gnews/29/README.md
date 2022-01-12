@@ -2,37 +2,39 @@
 ---
 
 
-## 有声|福克斯当家主持塔克·卡尔森加入盖特
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1851740/)
+## 美国上千家医院出现严重人力短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
 
-配音：香草山教育部 – Rose
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
+与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
 
+有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
+在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
 
-塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
+目光转向国内，中国疫情持续蔓延，情况不容乐观。
 
-继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
+参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
 
-文字版原文：[福克斯当家主持塔克·卡尔森加入盖特](https://gnews.org/zh-hans/1847834/)
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+总编：天灭中共
+编辑：天灭中共
+校对/发稿：Hetangyuese
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
