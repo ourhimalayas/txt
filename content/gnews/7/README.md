@@ -2,45 +2,31 @@
 ---
 
 
-## 炸裂消息：最高层协调的蓄意过失杀人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
+## 七哥说“共产党是绝对天下最迷信”（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852180/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
+来源：郭先生2022-01-09直播08：45：26摘录
 
-周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
+小飞侠，你看到这个神奇了吧？你没有去过，你看过那个祭坛你会吓死。拍电影，1万个电影都没法形容。共产党是真有钱呐，中国人饿死人的时候，就那个祭坛的修建就像一个真的天上一个飞碟一样，而且按照八卦的形式，八角的八卦阵布出来，一个大天阶“啪啪”地下来。天阶是多少阶呢？999阶。所有的驻兵什么属相都可以去，两个属相你不能去，什么属相不能去知道吧？大家知道吧？属虎的不让去，知道吗？属虎的不准去，第二个属猪的不让去。为啥不让去？大家去查查去吧。然后整个上面的当兵的，从来没有退过伍的。你看看他们都去哪儿了？所谓的国家机密，特种兵，比酒泉还夸张。你们都去过吗，你没去过。你到了那你看到了山川大河磁场牛羊。七哥几乎是…我不知道现在啊，我当时90年代末我去那地方的时候，到现在我连你嫂子都不知道我去过，没有人知道我去过，我去几次，我跟军队的人就带我去，当时说你是唯一的不是军队和最中央特批来到这里的。你不坐飞机你不可能你上去看到那么全面。你在下面看，累死你了，有一万条腿也不行啊，你三条腿五条腿也不行啊，七哥是弄了飞机“呼啦呼啦呼啦”看过多次了，然后我知道了共产党是绝对天下最迷信，原来天机啊还有这些事情。所以你问的好，昆仑山是共产党的权力的来源，神秘的山。盘古和昆仑山的关系，一会儿再看看啊，一会儿看看喜马拉雅山峰啊。
 
-新公布的军事文件与福奇博士的宣誓证词相矛盾。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-真相工程发布：
+**关注我们**
 
-- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
-- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
-- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
+Gettr 账号
 
-“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
-
-周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
-
-马龙博士称它“比五角大楼的文件更重磅”。
-
-沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
-
-娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
-
-**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
