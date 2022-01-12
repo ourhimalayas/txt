@@ -2,37 +2,46 @@
 ---
 
 
-## 有声|中共对外扩张的五步计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849180/)
+## 有声|重庆大爆炸开启了习曾之战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849219/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山农场- 纳米
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
 
-文字版原文：[中共对外扩张的五步计划](https://gnews.org/zh-hans/1843851/)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+1月9日郭先生大直播中与战友分享重庆大爆炸可能并非是人为操作，不要政治化。有以下原因：
+
+首先，重庆、四川等地，既处在昆仑山向中共国东南方延伸的脉络上，也在喜马拉雅山的腹地地区，两座神山之抵，自古以来造就了当地资源富饶，民风淳朴，是兵家必争之地，在历史上被多次屠城。共产党统治的时代，但凡有官员上任重庆，一定会发生不测。
+
+原文链接：[重庆大爆炸开启了习曾之战](https://gnews.org/zh-hans/1844306/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

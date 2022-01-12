@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@ahnewsfeed 1/11/2022 7:36 AM (UTC)`
+
+中共病毒❗️CCP virus❗️<br/>中国人民和加拿大人民都是受害者❗️<br/>中共不代表中国人‼️<br/><br/>加拿大蒙特利尔一名女子，日前在超市辱骂一对加拿大华裔夫妇，称新冠疫情“是因为你们中国人”。<br/>她其后被警察带走。<br/>蒙特利尔市市长此事表示“震惊且不可接受”，并谴责其涉种族歧视言论。
+![img](https://media.gettr.com/group7/origin/2022/01/11/07/8e16259d-9951-f3b3-fd2a-69eb40dfe8c9/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@dailynews 1/11/2022 4:57 PM (UTC)`
 
 ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discuss our recent sign-up surge and Big Tech's decline.
@@ -159,13 +168,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 Louise Burke was forced out of Simon &amp; Schuster for her political views. She’s not the first. Read more in this new book, published by Simon &amp; Schuster.  http://bit.ly/CarlsonTLS  
 ![img](https://media.gettr.com/group21/tw/2021/06/28/21/08f378ea-f0ad-4249-8401-313fcea54c6a/a1e272a5-74d0-bbfe-d0b9-530c8f95d5a5/out.jpg)
-
----
-
-`@miles 1/10/2022 3:21 PM (UTC)`
-
-1月10号：尊敬的战友们好！在中国大陆高墙内的同胞们……正在遭遇了前所未有的高压管制，正在爆发洗脑后的人道灾难事件，世界疫苗灾难即将停止，我们一定要坚持到最后……小心的面对新的爆发新的病毒的高峰时刻……照顾好家人和自己的身体，尊重科学．在快乐，健康．愉悦……的情况下消灭共产党…………迎接新中国联邦的伟大时刻到来！
-![img](https://media.gettr.com/group47/getter/2022/01/10/15/7b4b8006-df63-2f9f-2ff0-a496f84ec9b5/out.jpg)
 
 ---
 
