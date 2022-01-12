@@ -2,37 +2,39 @@
 ---
 
 
-## 有声|中共国因疫情灾难，死亡人数已达2-3千万人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849251/)
+## 加拿大阿尔伯塔省卫生部门承认他们操纵了 ICU 数据
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1849354/)
 
-配音：香草山农场- 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月9日，郭先生在大直播中爆料，中共国内由于中共病毒和中国病毒疫苗已经造成了2-3千万人的死亡。同时，中共不仅放毒，且在抗疫管理上故意制造种种人道灾难，直接或间接地造成了大量死亡。
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-11-202251.png)图片来源：网络
+来自THE COUNTER SIGNAL星期二1月11日的新闻报道：
 
-郭先生说，中共一旦某地有疫情发生就进行大规模核酸检测，尽管潜伏期病毒根本无法正确测出，无症状传染也是非常危险的，但这种模式却愈演愈烈。另外，中共对武汉、天津、黑龙江的大规模死亡极力掩盖。国内战友告诉郭先生，仅黑龙江某地就有1-2万的死亡人数，很多是全村覆亡，尸体都来不及火化，就地掩埋，死亡以45-85岁的居多。甚至，染病的残疾人也不会得到任何救助，一旦染病就只能等死。 郭先生指出，中共病毒疫苗不能阻止病毒的传播，而是中共对人类的大屠杀。
+在周一的新闻发布会上，阿尔伯塔省首席卫生官 Deena Hinshaw 承认，阿尔伯塔省卫生服务部（AHS）在整个大流行期间将非 ICU 患者报告为 ICU 患者。
 
-原文链接：[中共国因疫情灾难，死亡人数已达2-3千万人](https://gnews.org/zh-hans/1844307/)
+“由于我们一直在对我们的数据进行持续的质量保证工作，随着时间的推移，我们发现一些医院的一些单元在可用作 ICU 单元或非 ICU 单元之间来回切换”，Hinshaw 说。
 
-音频处理：Daxia
+“在我们的一些历史数据中，接受 COVID 治疗的患者被归类为在 ICU 中，而他们所在的病房实际上已被改回非 ICU 病房”。
 
-**发稿：**Daxia
+换句话说，数字是错误的。 在 ICU 数字被用作证明艾伯塔省封锁、疫苗强制令和疫苗护照合理性的整个过程中，政府有意或无意地使用了失真的数据，如果不是完全操纵的数据的话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+“您今天将在历史数据中看到的调整现在正确地反映了为这些患者提供的护理类型，”Hinshaw 继续说道。
 
-**更多资讯，更多关注**
+“这意味着您将在某些时间点看到 ICU 数量减少，而非 ICU 数量相应增加。”
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+嗯，这很好。 因此，在阿尔伯塔人被迫接种疫苗后——无论是由于工作保障、社会压力，还是对导致医疗系统崩溃的挥之不去的恐惧，政府现在承诺记录已改正——问题解决了，对吗？
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+非也，损坏已经造成。 商业商店已经关闭了。 伤害已经增加。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+此外，我们怎么能相信政府不会再次使用错误的数据来证明未来的流行病措施是合理的？ 我们不能相信他们。 这就是没有解决的问题。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+点评：想要人不知，除非己莫为。阿尔伯塔省没掩盖住，爆了， 那么其它省呢，联邦政府呢？他们的伎俩就是数据造假，来推动他们的封锁，疫苗强制令和疫苗护照。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接: [https://www.thecountersignal.com/news/alberta-health-admits-they-manipulated-icu-numbers](https://www.thecountersignal.com/news/alberta-health-admits-they-manipulated-icu-numbers)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+编辑/发布：LILY
 
+20220111
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  

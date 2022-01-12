@@ -2,45 +2,37 @@
 ---
 
 
-## 完全接种疫苗的网球明星Nikoloz Basilashivili胸痛、呼吸困难被迫退赛
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1848986/)
+## 有声|新中国联邦传递真相和情报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849070/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/index-7.jpg)
-澳大利亚的疫苗接种规定要求所有参加澳大利亚悉尼世界职业网球协会杯（APT）的球员必须完全接种中共病毒（Covid-19）疫苗。
-
-这一规定导致诺瓦克-德约科维奇（Novak Djokovic）在上个月退出了比赛。
-
-而周三，世界排名第22位的网球明星尼科洛兹-巴西拉希维利（Nikoloz Basilashivili）周三也因接种疫苗后，导致呼吸困难，被迫退赛。
-
-2022年1月5日，周三，尼科洛兹-巴西拉希维利代表他的国家格鲁吉亚与斯特凡诺斯-齐西帕斯（Stefanos Tsitsipas）进行比赛，在第一盘4-1落后时，他开始呼吸困难，比赛被迫取消。
-
-当时，这位29岁的球员慢慢地走到球队替补席上，试图做一些深呼吸并喝一些水，他在等待理疗师上场时，用手势表明他感到胸闷。
-
-有人听到这位格鲁吉亚网球明星尼科洛兹-巴西拉希维利说，”每一次击球我都会喘不过气来”。
-
-前英国网球明星科林-弗莱明在评论中说，这是令人担忧的，我想说的是非常令人担忧。如果你觉得在这种水平和强度下，不能进行任何形式的深呼吸，那就是一个问题。
-
-尼科洛兹-巴西拉希维利在医务人员的陪同下离开了球场。
-
-然而，当他回来时，裁判员确认了尼科洛兹-巴西拉希维利退赛。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+配音：香草山健身部 – 玫瑰园
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月7日，郭文贵先生在大直播中指出，新中国联邦传递的真相和情报，远超各国情报系统和主流媒体，这都离不开中共国内英雄战友的默默付出。
 
+世界各国在情报上花费千亿万亿，但在过去五年里，都远不及爆料革命给予世界的预警和真相。各国主流媒体被中共收买，不但公然撒谎，而且，无数次抹黑和诋毁爆料革命。
 
-[新闻来源链接](https://thecovidworld.com/fully-vaccinated-tennis-star-nikoloz-basilashivili-forced-to-quit-game-after-chest-pains-breathing-difficulties/)
+郭先生说，无论是对哈萨克斯坦局势的分析，还是中共二十大的人士安排，爆料革命之所以每次都能正确地公布事态发展，不是猜测，是情报。这正是因为中共国内有无数英雄战友传递信息。这些战友冒着生命危险，为新中国联邦默默奉献，可能永远都是无名英雄，但是新中国联邦人会永远感激和牢记这些战友的付出。
 
-审核校对：sherryok (水云间)
+文字版原文：[新中国联邦传递真相和情报](https://gnews.org/zh-hans/1843789/)
 
-上传排版：漂流瓶
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

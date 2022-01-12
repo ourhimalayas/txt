@@ -2,39 +2,38 @@
 ---
 
 
-## 有声|英国医生公开反对卫生部长的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849157/)
+## 有声|对145个国家研究表明，疫苗造成传播和死亡人数急剧增加
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849253/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山农场- 纳米
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒1月9日报道，一份最新报告在研究了145个中共病毒疫苗接种最多的国家数据后发现，实验性疫苗非但没有结束疫情，反而造成全球中共病毒感染和死亡人数急剧增加。
 
+据悉，该研究发现在美国，疫苗导致每百万人中的感染者增加了38%，每百万人中的死亡人数增加了31%。而报告中最有说服力的，就是在2020年，泰国、越南、蒙古、台湾、塞舌尔、柬埔寨等国家，中共病毒感染和死亡人数很少，但在推广疫苗后，上述国家病例和死亡人数大幅增加，有些增幅甚至高达1000%以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月8日，英国媒体播放的一则视频显示，英国卫生部长萨吉德·贾维德近日访问伦敦南部的国王大学医院，询问重症监护病房的医护，对于国家卫生系统工作人员强制接种中共病毒疫苗的意见。
+原文链接：[对145个国家研究表明，疫苗造成传播和死亡人数急剧增加](https://gnews.org/zh-hans/1844308/)
 
-据悉，英国已经通过的有关法律，自2022年4月1日起，除非获得豁免，所有NHS工作人员都必须接种中共病毒疫苗，否则会被开除。
+音频处理：Daxia
 
-一位自疫情爆发以来，就在治疗中共病毒的麻醉医生斯蒂夫·詹姆斯表达了强烈不满。他强调，自己感染过中共病毒，已经产生了抗体，并在工作中得知，接种疫苗根本无法产生抗体，也无法阻止病毒的传播。他的一些同事也和他持有同样的观点。他还强烈质疑了未接种疫苗的医生被开除的合理性。
+**发稿：**Daxia
 
-虽然，卫生部长并未明确表态放弃疫苗，但是同意将请专家对疫苗的需求情况进行评估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-文字版原文：[英国医生公开反对卫生部长的疫苗强制令](https://gnews.org/zh-hans/1843693/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

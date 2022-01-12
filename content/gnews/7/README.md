@@ -2,37 +2,32 @@
 ---
 
 
-## 有声|中共对外扩张的五步计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849180/)
+## 芝加哥市长 Lori Lightfoot 宣布她的 COVID-19 检测呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1849289/)
 
-配音：香草山健身部 – 玫瑰园
+约书亚·罗伯茨 | 路透社
+
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210523042603843-edited.jpg)图片来源：网络
+芝加哥市长洛里·莱特富特（Lori Lightfoot）已完全接种疫苗并加强免疫，她于周二宣布，她的 COVID-19 检测呈阳性，并且出现轻微症状。
+
+“今天早些时候，我的 COVID-19 检测呈阳性”，市长在下午 2 点 40 分左右发推文说。 周二， “我正在经历类似感冒的症状，但其他方面感觉很好，我认为这归功于接种疫苗和加强针”。
+
+市长说，她计划继续在家工作，因为她遵循疾病控制和预防中心的隔离指南。
+
+她在一份声明中说：“这是对人们接种疫苗和加强针的紧急提醒，因为这是战胜这种流行病的唯一方法”。
+
+**评：**接种三针疫苗还是被感染，又强调别人去接种毒疫苗，这样的人是既蠢又坏。
+
+来源链接：[https://www.nbcchicago.com/news/coronavirus/chicago-mayor-lori-lightfoot-announces-she-has-tested-positive-for-covid-19/2726146/?amp](https://www.nbcchicago.com/news/coronavirus/chicago-mayor-lori-lightfoot-announces-she-has-tested-positive-for-covid-19/2726146/?amp)
+
+编辑/发布：LILY
+
+20220111
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月7日，郭文贵先生在大直播中爆料，拿下香港、阿富汗、南海、台湾和哈萨克斯坦，是中共对外扩张的五步计划。
 
-第一步，利用《国安法》控制香港，剥夺香港的自治；第二步，扶植塔利班组织，控制阿富汗政权；第三步，违法国际公约，在南海侵占四百多万平方公里海域；第四步，公开武力“统一”台湾的企图；第五步，在哈萨克斯坦制造混乱，颠覆哈萨克斯坦现政府。
-
-郭先生利用智慧、技术和实力，不但充分掌握中共国安委和中南海的行动计划，而且，巧妙利用中共的内部情报，步步为营，加速中共的灭亡。这是爆料革命制胜的关键。
-
-文字版原文：[中共对外扩张的五步计划](https://gnews.org/zh-hans/1843851/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
