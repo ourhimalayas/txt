@@ -2,40 +2,88 @@
 ---
 
 
-## 有声|我的写作之路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849446/)
+## 新中国联邦建立的养老系统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849497/)
 
-配音：香草山农场- 纳米
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-从小在大人们眼里聪明伶俐的我，是在众星捧月般的疼爱中长大的，加上父亲是村里数一数二会赚钱的人，所以我的童年在别人的新老大旧老二破老三的时代里，过着富余的生活，在父亲、奶奶的特别呵护下无忧的、骄傲的，在温暖中成长，七大姑八大姨送的好吃好穿也只给我，在儿时的小伙伴们羡慕的眼神中，一路顺风长大。
+[https://gtv.org/video/id=61de35cd87664c47acd389ed](https://gtv.org/video/id=61de35cd87664c47acd389ed)
 
-所以我从小心里满满都是感恩，养成了知恩图报的性格，也许这也是我后来经历挫折受尽磨难依然保持善良的最大奠基，也是上天赐予我缘结爆料革命的一个基石。
+**郭文贵
+Miles Guo**
 
-我酷爱书籍，喜欢文字，性格偏向多愁善感，小时候怀有强烈的做作者的梦想，中小学时期的作文是我值得炫耀的成绩，而且习惯写日记，也因为小脑袋常出现各种人物故事的情节而自己动笔偷偷编写小说。那个时候的我觉得世界是美好的，有种想把所有美好的事物编写成文字的冲动，自大的认为我一定有不一样的命运，觉得自己的人生会跟别人不一样。
+比如说中国人，你的地，这个国家的地必须所有地都给人们呐
+For example, the Chinese people, the land of this country must give all the land to the people
 
-原文链接：[我的写作之路](https://gnews.org/zh-hans/1846448/)
+还给人们呐，老人的有地权和老人创造的财富，社会上你必须无偿自动分拨给他
+Give it back to the people, the elder people have land rights and the wealth created by the elders must be automatically distributed to them free of charge in the society
 
-音频处理：Daxia
+要让老年人越活越好，而且老年人有几个选择，我可以跟孩子长大
+To make the elderly live as long as possible, and the elderly should have multiple options, you can live with your children
 
-**发稿：**Daxia
+我可以到社会的集中的生活的地方，咱们叫养老院，我觉得养老院是最烂的一个词儿
+You can go to a place where the society is concentrated, we call it a nursing home, I think nursing home is the worst word
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+我认为是一个不同的境界，叫修行，到修行层次了
+I think it is a different realm, called practice, It has reached the level of practice
 
-**更多资讯，更多关注**
+从体力劳动到思想劳动一个地方去, 创造更多财富
+From manual labor to ideological labor, go to one place and create more wealth
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另外你可以选择一个完全不一样的地方
+and elderly can choose a completely different place
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+我现在还要继续工作，我想继续做事情，发挥你老年的最好的余热
+If elderly still want to work, want to keep doing something, and use the best residual heat at their age
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+这个热严格比年轻人力量还要大，那要给什么
+This heat is strictly stronger than the young people, what else should I give
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+老人一个小时工作时间，是你年轻人的3倍或者更多倍的工资，而且老人是免税的
+You will get three or more times salary than for younger people hourly, and elderly people are exempt from tax
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+而且老人要参加的工作是必须有优先权的，当然这样的老人就因为更有钱
+Moreover, the work that the elderly want to participate in must have priority, of course, the elderly will be richer like this
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+他更愿意工作，更有安全感，而且有更大的收益率, 剩余价值给他的更多
+He is more willing to work and feels more secure, and with a greater yield and the residual value gives him more
 
+这些老人当然会到老的时候，他有病了更多人愿意给他支持
+Of course these people will grow old, when he is sick, more people are willing to support him
 
+他有更多的物质条件， 他会得到更多人尊重, 孩子不孝敬
+He has more material conditions, he will be respected by more people, Children are not respectful to their parents
+小佳佳没饭吃了发现他爹家里边的肉都吃不完，她不孝敬他爹他孝敬谁去
+Jiajia has no food to eat and finds that her father can’t even finish the meat at home, who can she honor if she doesn’t honor her father?
+反过来说了，小佳佳家没粮食吃, 她爹那块儿有肉，她要抢她爹爹肉去
+On the other hand, Jiajia’s family has no food to eat and her father has meat, so she wants to take her father’s meat
+
+这是个不同的概念，孝敬会成为一个伦理， 就社会正常地运转的一个规矩
+It’s totally different, respect becomes an ethics, it’s a rule of thumb for the normal functioning of society
+
+更重要的是老人病了，老了，走了，要有尊严地离开人世
+The more important thing is when the elderly are sick, old, gone, and they will die with dignity
+
+因为他更有信仰，这样的系统是新中国联邦建立的叫生态系统
+Because he has more faith, such a system is called the ecosystem will be established by the New Federal State of China
+
+* * *
+
+Date: 01/10/2022
+原视频标题: 新中国联邦建立的养老系统
+The pension system established by the New Federal State of China
+原视频日期：2022/01/09
+原视频链接：[https://gettr.com/post/pnf8vg4e3b](https://gettr.com/post/pnf8vg4e3b)
+任务编号：KC408(3458)
+视频时间段 : 0:00-2:08
+中听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

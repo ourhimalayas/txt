@@ -2,25 +2,30 @@
 ---
 
 
-## 中共病毒疫苗加强针没有科学数据支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849484/)
+## 哈萨克斯坦总统：俄罗斯军队将在两天内开始撤离
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1849561/)
 
-#### 翻译：Annabelle
-校对：枳实
-剪辑/字幕：向上James
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_10.png)
+美国《国会山报》1月11日报道，周二，哈萨克斯坦总统托卡耶夫宣布，俄罗斯维和部队将在两天内开始撤离。
 
-我们知道疫苗带来的副作用的比例很高，每 7000个男性青年中有一例由于心脏炎症去看医生，可能有更多的病人没有去看医生。所以在没看到任何加强针的益处的证据的情况下，我们许多人都对此表示担忧。
+“集体安全条约组织维和部队的主要任务已经圆满完成，”托卡耶夫告诉哈萨克斯坦议会。 “两天后，集体安全条约组织联合维和特遣队将开始分阶段撤离。特遣队的撤离过程将不超过10天，”他补充说。
 
-视频链接：[Dr. Marty Makary- ‘No scientific data’ supporting COVID booster shots](https://video.foxnews.com/v/6288409247001#sp=show-clips)
+目前，估计有 2000 至 3000 名俄罗斯士兵以及大约 250 件军事装备在这个与俄罗斯联邦接壤的国家执行安全任务。白俄罗斯军队和集体安全条约组织其他较小的特遣队也参与了该任务。
 
-发布：枳实
+哈萨克斯坦当局表示，已有 10000 人因抗议活动被捕，随后可能还会有更多人被捕。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+抗议者游行反对前总统纳扎尔巴耶夫长达数十年的政治控制，上周爆发示威活动时，纳扎尔巴耶夫被移出了强力的国家安全委员会。
+
+托卡耶夫指责他的前任纳扎尔巴耶夫创造了一个“富有精英阶层”，该阶层一直在贪婪地消耗国民经济，导致诸如最初引发抗议的燃油价格上涨等危机，托卡耶夫进一步将其（动荡）归咎于企图破坏其稳定的外部势力。
+
+托卡耶夫还逮捕了国家安全委员会（NSC）负责人卡里姆·马西莫夫（Karim Masimov）。托卡耶夫表示，国家安全委员会未能利用资源平息抗议活动。
+
+新闻来源：
+
+[https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days](https://thehill.com/policy/international/589144-kazakhstan-president-says-russian-troops-leaving-in-two-days)
+
+[https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev](https://www.zerohedge.com/geopolitical/russian-troops-begin-leaving-kazakhstan-two-days-tokayev)
 
  
 

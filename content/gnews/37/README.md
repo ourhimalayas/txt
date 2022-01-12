@@ -2,31 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1849385/)
+## 中共病毒疫苗加强针没有科学数据支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849484/)
 
-作者：香草山翻译部
+#### 翻译：Annabelle
+校对：枳实
+剪辑/字幕：向上James
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+我们知道疫苗带来的副作用的比例很高，每 7000个男性青年中有一例由于心脏炎症去看医生，可能有更多的病人没有去看医生。所以在没看到任何加强针的益处的证据的情况下，我们许多人都对此表示担忧。
 
+视频链接：[Dr. Marty Makary- ‘No scientific data’ supporting COVID booster shots](https://video.foxnews.com/v/6288409247001#sp=show-clips)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0111text-SC.png)
-校对：Stay文苑
+发布：枳实
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.11  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61de2eb0a6dfdd603152ac9d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
