@@ -2,72 +2,41 @@
 ---
 
 
-## Eglise医生总结的预防性口鼻咽清洁法
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1845352/)
+## 斯坦福大学教授游说司法部停止打击中共的渗透活动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1842485/)
 
-撰稿：Eglise
-![](https://assets.gnews.org/wp-content/uploads/2022/01/PHOTO-2022-01-11-13-26-25-5.jpg)图片设计：女农
-**首选：Betadine， povidone-iodine（PVP）聚维酮碘产品。**
+翻譯：香草山翻譯部 – Eleutheria
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+据国家脉动报道，有近200名教授签署了一封联名信，要求乔-拜登的司法部终止川普时代针对与中共有联系的学者利用美国大学进行知识产权盗窃和间谍活动的举措。
 
-- 成人版1%PVP浓度的Betadine 漱口水和1%PVP浓度的鼻腔喷剂 （孕妇慎用）
-- 儿童版0.45%PVP 浓度的Betadine 漱口水（建议9岁及以上儿童）和0.45%PVP浓度的喷鼻剂（建议6岁及以上儿童）
+这177名教授来自斯坦福大学，拜登的司法部民权司首席副助理检察长帕梅拉-卡兰正在该校休假，担任教授。卡兰曾在时任总统唐纳德-川普的第一次弹劾中作证，她带头参与拜登白宫的反选举审计工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-31.jpg)
+卡兰的大学现在正在游说司法部废除 “中国倡议”，这是川普的司法部为打击中共进行的间谍活动、渗透和知识产权盗窃活动而启动的。
 
+“我们，来自40多个系的177名斯坦福大学教师，向美国司法部长梅里克-B-加兰发出以下公开信，要求他终止司法部的中国倡议。中国倡议是由当时的司法部长杰夫-塞申斯在2018年提出的，目的是打击经济间谍活动、知识产权盗窃和其他与中国政府有关的威胁，”该小组开始说。
 
-**次选: 防蛀牙漱口液**
+“我们许多最具挑战性的全球问题，包括气候变化和可持续性以及当前和未来的大流行病，需要国际参与。如果没有一个开放和包容的环境来吸引所有领域的优秀人才，美国就无法保持其在科学和技术领域的世界领先地位。”该信在结论中补充道。
 
-Colgate Peroxyl mouth sore rins；Listerine Antiseptic mouth wash；Orajel Antiseptic mouth wash；Scope，Act，Crest
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14.jpg)图片设计：女农
-**洗鼻器鼻咽冲洗法**
+信中的签名者包括李菲菲，她是斯坦福大学教授，也是与中共政府有联系的推特公司的顾问。
 
-每天预防性冲洗2-3次口咽鼻，降低病毒载量，大幅降低被感染几率。【**用鼻腔喷雾器或者滴管，喷入或吸入鼻腔后部直到鼻咽腔，然后从嘴里吐出】**
+她参加了几个中共支持的会议，并经常与 “清华大学的一个领先的人工智能研究机构合作，清华大学是一个著名的中共学术机构，也为中共军队进行人工智能研究。”
 
-**自制冲洗液**
+中共在西方教育领域的渗透之深，学校的腐败可见一斑。为了得到中共的捐款，这些大学及教授昧着良心以种种理由替中共开脱，便利其盗取知识产权。我们有必要将这些中共的海外触手连同中共一并拔除。
 
-- 方法一： 2茶匙10%PVP（聚维酮碘）+ 6 oz 水 = 0.5%PVP 清洗液
-- 方法二： 1）以1:10 稀释35%食品级别双氧水于生理盐水 = 3- 3.5%双氧水                2）3ml 3%双氧水+ 250 ml 生理盐水 = 0.04% 双氧水
+参考来源：[斯坦福大学教授游说司法部停止打击中共的渗透活动](https://thenationalpulse.com/2021/01/09/pamela-karlans-school-loobying-doj-to-stop-china-initiative-2/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
 
-**【用来洗鼻的自制生理盐水没有无菌要求，可用9~10克食盐（海盐，至少是无碘盐）加1000毫升纯净水（凉开水也可以）全溶解即可用】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/24.jpg)图片设计：女农
-**气雾疗法：适用于各年龄组，包括儿童预防及治疗，每次3ml，其余冷藏。**
+编辑/校对/发稿：Hetangyuese
 
-**自制雾化治疗液**：
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-- 方法一：3ml 3%双氧水（食品级别）+ 250 ml 生理盐水 + 1ml 氯化镁液 = 0.04% 氯化镁双氧水
-- 方法二：5ml 3%双氧水 + 100ml 生理盐水 = 0.15% 双氧水
-- 方法三：10%NAC(乙酰半光氨酸)雾化液：10g NAC药片磨成粉 + 100ml 蒸馏水 = 10% 雾化药液**【任何年龄组均可酌情使用，化痰，镇咳】**
-- 方法四：2003年非典期间经验疗法，烧一盆开水，毛巾围住水盆，头伸进去，六分钟以上，热蒸汽先用嘴吸,不太热了用鼻子吸。因为病毒在鼻腔和上呼吸道有近24 小时繁殖期，高温可杀死或灭活病毒。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/34.jpg)图片设计：女农
-战友经验分享
-
-Betadine产品可以只买1%PVP漱口水，用蒸馏水稀释1倍至0.5%，装入避光喷剂瓶后，即可做口腔喷剂或鼻腔喷剂使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/44-1.jpg)图片设计：女农
-【免责声明】**因为医学是一门复杂而多变的科学，每个个体都是与众不同的独立存在；这个预防及治疗建议只适合大多数情况。Eglise医生不承担任何法律责任和后果。为了您的健康安全，在出现任何异常身体情况下，请您去看医生**。
-
-鸣谢来自全球各农场多位战友的资料，应用反馈和经验分享。
-
-[参考文献一](https://www.bioresearchcommunications.com/index.php/brc/article/view/176)
-
-[参考文献二](https://stevenyager.org/wp-content/uploads/2020/08/Steven-Yager-Dr-Brownstein-A-Novel-Approach-to-Treating-COVID-19-Using-Nutritional-and-Oxidative-Therapies.pdf)
-
-[参考文献三](https://www.secondopinionnewsletter.com/Health-Alert-Archive/View-Archive/14089/This-AtHome-Treatment-Can-Knock-Out-Any-Virus--Including-the-Coronavirus.htm)
-
-审核编辑：Jenny
-
-美工图片设计：女农
-
-**欢迎点击磐石农场二维码咨询并加入我们**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)磐石农场Gettr 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)磐石农场Gtv
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/PHOTO-2022-01-11-00-30-33.jpg)设计：7 Ants
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

@@ -2,20 +2,12 @@
 ---
 
 
-## 有声|波湾四国外长访中共计与石油议题有关
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849719/)
+## 有声|GTV新闻访谈简报|2022年1月10日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849716/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-11-%E4%B8%8A%E5%8D%889.53.07.png)
-中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
-
-习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
-
-中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
-
-文字版原文：[波湾四国外长访中共计与石油议题有关](https://gnews.org/zh-hans/1847764/)
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0110text-SC.png)
+文字版原文：[GTV新闻访谈简报|2022年1月10日晚](https://gnews.org/zh-hans/1845339/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

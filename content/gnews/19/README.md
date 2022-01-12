@@ -2,27 +2,29 @@
 ---
 
 
-## 郭文贵先生谈“独立原则”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849965/)
+## 俄军队将在两天内哈萨克斯坦撤军
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850000/)
 
-## 整理：雅典娜速记组
-编辑：Frank2021
+翻译：美哥
+编辑：MSGZ
 
-我们认为的独立，不是三票先生想象的，独立就是你死我活的那种历史性独立。 但是我觉得就接遵循2个原则就对了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/26AMFOH@0SU7N@32R0C-1.png)图片来源todayhot.news
 
-所有的独立：什么样的独立，什么样的资质，指什么样的所谓的今天来决定台湾， 西藏，新疆，人命运。我认为这是要在国际社会和国内所有人都参与的情况下，特别是当地人参与的情况下找出的模式。我们没有权定义，共产党更没有权利定义！
 
-也不能让一个政府定义，必须要当地人绝对参与的绝大部分统一的方式来决定。所以说咱操那闲心干啥呢？是不是啊，现在好像三票先生已经当了总书记一样，马上就要决定这些人命运了，你压根就不好分析啊。我觉得新联盟已经说的很清楚了，是吧，一人一票选出的政府和当地政府和当地的所有的人民作出的决定，就这么简单。 哪有这个？我要给你回答了，我就是流氓，我就是骗子，我就要想参政。我不会参政，讲一讲这是跟我半毛关系没有。
+1月11号，根据合众国际社（UPI）报道，周二，哈萨克斯坦总统卡西姆若马尔特·托卡耶夫宣布负责帮助镇压抗议运动的俄罗斯军队将在2天内开始撤离，托卡耶夫在国会声称俄罗斯为主力的盟友军队在哈国维和不会再超过10天。鉴于政府目前控制了局面，外国军队的“和平使命”已经圆满结束。所有的地区已经恢复了稳定。
 
-我郭文贵反正不会参政，三票先生，回去要当总书记，你去选举去，你也不会被指定, 就这么简单。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/独立原则-.jpg)
-发布： Frank2021
+上周，托卡耶夫依据独联体集体安全条约组织请求俄罗斯军事援助，该条约组织是一个跨欧亚的，由前苏联6个国家组成的军事同盟。增援的部队包括白俄罗斯、亚美尼亚、塔吉克斯坦、吉尔吉斯斯坦以及俄罗斯。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+托卡耶夫在暴乱当日称抗议人群为“恐怖分子”，指责他们企图颠覆政府。1月10号，托卡耶夫宣布为暴乱中丧生的平民举行国家默哀。此次抗议政府的运动因油价上升而起，至少164名平民丧命，数以千计的人被捕。托卡耶夫还称因为外国军队的介入，首都努尔苏丹的安全部队才能腾出手来，去各个地区平息暴乱，但外国军队没有直接参与镇压哈萨克斯坦公民。
+
+原文链接：[https://www.upi.com/Top\_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/](https://www.upi.com/Top_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

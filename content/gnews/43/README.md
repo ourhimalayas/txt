@@ -2,22 +2,32 @@
 ---
 
 
-## 中俄外长电话会谈 哈局势成焦点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849161/)
+## CDC主任公然将死亡病例归因为终末期患者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847765/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-822.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220111/K10013424551_2201111531_2201111611_01_02.jpg)
-1月10日，中共外交部长王毅与俄罗斯外长拉夫罗夫举行了电话会谈，就哈萨克斯坦发生的大规模抗议活动的紧张局势交换了意见。王毅表示，“支持”俄罗斯领导的“集体安全条约组织”向哈萨克斯坦派遣维和部队。
+作者：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月10日，美国疾病与预防控制中心主任罗谢尔·瓦伦斯基在接受采访时表示，超过 75% 的“中共病毒”死亡案例，集中发生在至少有四种合并症的群体中，并进一步强调这些患者已处在终末期，言下之意，接种疫苗与他们的死亡毫无关联。这一带有优生学色彩、并企图掩盖疫苗伤害的言论，即刻引发公众一片哗然。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.15.png)
+此前，瓦伦斯基在一档电视节目中承诺，CDC 将开始提供修订后的数据，详细地说明美国与“中共病毒“相关的 83.6万例死亡病例的详细分布，并声称这需要一段时间。时隔仅两天，瓦伦斯基就草率地声称，全美四成三的死亡病例仅限终末期多种并发症的患者，CDC网站也及时更新了数据，让公众为之震惊。
 
-据悉，习近平政府对哈萨克斯坦的动荡可能蔓延并波及中共国则是十分警惕。哈萨克斯坦与新疆维吾尔自治区接壤，约有160万哈萨克族人生活在中共国，主要集中在新疆自治区，因此，混乱动荡极可能蔓延开来。哈萨克斯坦是中共国“一带一路”倡议的要塞地区，有通往中共国的天然气管道，在能源安全方面的地位不可或缺。
+时评人士指出，自疫情大流行爆发以来，美国的”中共病毒“疫苗的有效性和安全性一直备受质疑，自德尔塔变种病毒，到当下的奥米克戎毒株，居高不下的感染率和政府近乎变态的疫苗政策，更使民众逐渐丧失了对医药监管机构的信任。美国疾控中心一再罔顾事实，掩盖疫苗无效以及潜在的风险，甚至不惜修改接种疫苗以及免疫医学的相关概念，将这一全世界重大公共卫生事件引入了歧途。
 
-看来王毅与俄外长会谈明为支持俄罗斯的维和之举，实则担心“祸及新疆”，激发起中共国内人民的反抗意识。
+参考链接：
 
-信息来源：[**中国、ロシアのカザフ介入を「支持」　飛び火を懸念　外相電話会談**](https://news.yahoo.co.jp/articles/0fcba797eb4eeeba85c7b769e9b01f5cdba92038)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
