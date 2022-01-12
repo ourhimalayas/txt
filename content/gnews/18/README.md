@@ -2,25 +2,24 @@
 ---
 
 
-## 美国邮政是否在伊维菌素订单上做了手脚？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1851544/)
+## 奥密克戎在南非之前就已存在于加拿大废水中
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851557/)
 
-翻译：不要代表我Kari
-校对：精靈藍
-编辑：Mttfly
+采编：文莱           编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-2.jpg)
+据《温哥华太阳报》1月10日报道，加拿大[达尔豪斯大学]的研究人员在南非报告“奥密克戎”变体之前，就于去年11月中旬在新斯科舍省的废水中检测到了该病毒。
 
-一位美国居民订购了几瓶液体伊维菌素（因为限购），但在收货时却发现瓶子已经被打碎。他推测必须有人拿到这个包裹，而且他们一定知道这个地址，因为包裹外面没有任何地方写着伊维菌素。所以在究竟是谁在背后做了手脚呢？
+报道称，该省第一例奥密克戎感染病例于12月13日被确诊，这距离11月24日南非的该病毒报告仅有几周时间。自去年12月以来，该团队一直在检测全省四个主要污水处理厂的样本。由于废水提供了先于病毒感染者所出现的早期预警信号，加之“奥密克戎”比Alpha和Delta变体更易传播的特点，因此该类型的测试将成为未来追踪病毒传播的关键方法。
 
-视频链接：[IS THE USPS TAMPERING WITH IVERMECTIN ORDERS?](https://www.bitchute.com/video/qGKa0MKxyTnL/)
+以上事实清晰表明了“奥密克戎”病毒是中共当局再次故意投放到世界各地的生物武器，也无疑验证了新中国联邦此前疫情信息来源的准确性和对中共政权邪恶手段的预见性。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对编辑：硫酸羟氯喹64
+
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://vancouversun.com/news/canada/omicron-was-in-nova-scotia-wastewater-before-it-was-identified-in-south-africa/wcm/6471a261-54de-4b31-886d-9e0befcbef5a)
+
+
 
  
 

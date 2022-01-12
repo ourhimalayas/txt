@@ -15,127 +15,127 @@
 
 ---
 
-### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/1/README.md)
+### [串珠529:灭王力宏是为了灭曾庆红家族和抢钱](/content/gnews/1/README.md)
+ ` 郭爆料串珠`
+
+### [GTV新闻访谈简报|2022年1月12日早](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
+
+### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒](/content/gnews/2/README.md)
+### [有声|王毅新年窜访五国 必有所图](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/3/README.md)
+### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|CDC主任公然将死亡病例归因为终末期患者](/content/gnews/4/README.md)
+### [有声|CDC主任公然将死亡病例归因为终末期患者](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [适用疫苗通行证的10多岁青少年，绝对不能注射疫苗的理由！](/content/gnews/5/README.md)
+### [适用疫苗通行证的10多岁青少年，绝对不能注射疫苗的理由！](/content/gnews/8/README.md)
  ` 首尔天池农场`
 
-### [中共玩弄风水必将亡于天命](/content/gnews/6/README.md)
+### [中共玩弄风水必将亡于天命](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [安省基础医疗服务系统已不堪重负](/content/gnews/7/README.md)
+### [安省基础医疗服务系统已不堪重负](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/8/README.md)
+### [有声|中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [预防新冠病毒 口服药物解说——伊维菌素篇(2022年1月11日更新)](/content/gnews/9/README.md)
+### [预防新冠病毒 口服药物解说——伊维菌素篇(2022年1月11日更新)](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/10/README.md)
+### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共宣称愿意向哈萨克斯坦提供安全支持以反对“外部势力”](/content/gnews/11/README.md)
+### [中共宣称愿意向哈萨克斯坦提供安全支持以反对“外部势力”](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [人类将在与中共的三个层次争战中大获全胜](/content/gnews/12/README.md)
+### [人类将在与中共的三个层次争战中大获全胜](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [由于疫情和天气，美国消费者或面临部分商品短缺](/content/gnews/13/README.md)
+### [由于疫情和天气，美国消费者或面临部分商品短缺](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|新中国联邦信仰与教育探讨](/content/gnews/14/README.md)
+### [有声|新中国联邦信仰与教育探讨](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [奥密克戎在南非之前就已存在于加拿大废水中](/content/gnews/15/README.md)
+### [奥密克戎在南非之前就已存在于加拿大废水中](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [新冠疫苗即将被叫停 最后关头做好防护](/content/gnews/16/README.md)
+### [新冠疫苗即将被叫停 最后关头做好防护](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [天津周三下令对1400万居民进行第二轮核酸测试](/content/gnews/17/README.md)
+### [天津周三下令对1400万居民进行第二轮核酸测试](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国邮政是否在伊维菌素订单上做了手脚？](/content/gnews/18/README.md)
+### [美国邮政是否在伊维菌素订单上做了手脚？](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墨西哥总统再次感染中共病毒](/content/gnews/19/README.md)
+### [墨西哥总统再次感染中共病毒](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [科兴公司2021年度半年内狂赚50亿美金](/content/gnews/20/README.md)
+### [科兴公司2021年度半年内狂赚50亿美金](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [曝光的关于功能增益研究的军事文件与福奇博士宣誓后的证词相矛盾](/content/gnews/21/README.md)
+### [曝光的关于功能增益研究的军事文件与福奇博士宣誓后的证词相矛盾](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/12银河快讯:日本疫情持续，但未要求关闭所有学校；新冠病毒在1月造成更多破产](/content/gnews/22/README.md)
+### [1/12银河快讯:日本疫情持续，但未要求关闭所有学校；新冠病毒在1月造成更多破产](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【NewS Gman】无畏互联网巨头打压 Gettr开启社交媒体新时代](/content/gnews/23/README.md)
+### [【NewS Gman】无畏互联网巨头打压 Gettr开启社交媒体新时代](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国奥米克戎的“谜团”：为什么他们没有感染而世界各国却泛滥成灾（二）](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵大直播 1/12 伊萨贝拉杨背后是邪恶中共](/content/gnews/25/README.md)
+### [文贵大直播 1/12 伊萨贝拉杨背后是邪恶中共](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [印度在广泛使用伊维菌素后正式宣布无新冠病毒病例](/content/gnews/26/README.md)
+### [印度在广泛使用伊维菌素后正式宣布无新冠病毒病例](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC每日热点0112](/content/gnews/27/README.md)
+### [DC每日热点0112](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [特鲁多正恣意污名化未接种疫苗者](/content/gnews/28/README.md)
+### [特鲁多正恣意污名化未接种疫苗者](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [01/12/22 香港快讯 林郑月娥提政策局架构重组　现政府6月初前完成程序](/content/gnews/29/README.md)
+### [01/12/22 香港快讯 林郑月娥提政策局架构重组　现政府6月初前完成程序](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/30/README.md)
+### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国正在面临严重的通货膨胀危机](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/32/README.md)
+### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/33/README.md)
+### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/34/README.md)
  ` 關注組`
 
-### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/34/README.md)
+### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/35/README.md)
+### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/36/README.md)
+### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/37/README.md)
+### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/38/README.md)
+### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/39/README.md)
+### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为了冬奥会 习近平已丧心病狂](/content/gnews/40/README.md)
- ` MilesGuoLivePPT`
-
-### [美国、全球金融市场最新动向和分析](/content/gnews/41/README.md)
+### [为了冬奥会 习近平已丧心病狂](/content/gnews/41/README.md)
  ` MilesGuoLivePPT`
 
 ### [2022/01/12 英喜时事速递](/content/gnews/42/README.md)

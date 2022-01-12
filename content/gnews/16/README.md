@@ -2,34 +2,29 @@
 ---
 
 
-## 新冠疫苗即将被叫停 最后关头做好防护
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851552/)
+## 由于疫情和天气，美国消费者或面临部分商品短缺
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1851575/)
 
-作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011204.jpg)网络图片
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-8.jpeg)
 
-郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
+最近几周，美国杂货店的短缺情况变得更加严重，因为新的问题——比如快速传播的 Omicron 变异病毒和恶劣的天气——已经时供应链出现困难并造成了零售商劳动力的短缺问题。
 
-郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生情调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
+短缺问题是普遍存在的，影响了农产品和肉类以及​​谷物等包装商品。而且是在全国范围之内。美国杂货通常在任何特定时间都有 5% 到 10% 的商品缺货；现在，根据消费者品牌协会主席兼首席执行官杰夫弗里曼的说法，缺货率徘徊在 15% 左右。
 
-参考链接：[https://gettr.com/post/pnh23d6a79](https://gettr.com/post/pnh23d6a79)
+消费者在商店货架上看到的物品短缺是由于CCP病毒大流行趋势一直没有减弱，Omicron反而 加剧了这种趋势。美国人在家吃饭的次数也比过去更多了，尤其是在办公室和一些学校仍然关闭的情况下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+根据杂货和食品生产商贸易组织的数据，去年美国家庭平均每周在杂货店花费 144 美元，低于 2020 年 161 美元的峰值，但仍远高于家庭花费的 113.50 美元在 2019 年。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+在CCP病毒大流行之前便已经开始出现的卡车司机短缺也仍然是一个问题。美国卡车运输协会在 10 月份表示，美国缺少大约 80,000 名司机，这是历史最高水平。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自 2020 年初以来，零售商和食品生产商一直在适应这些现实，CCP病毒大流行开始时的恐慌性购买曾一度使该行业陷入混乱。例如，许多零售商都在手头储备更多的卫生纸等物品，以避免突发的短缺情况。
+
+工人的疾病也影响着零售生意。连锁超商Stew Leonard’s 的总裁兼首席执行官表示：上周，该企业 8% 的员工——大约 200 人——要么生病要么被隔离。而在往常，缺勤率大约不过 2%。一些食品店不得不取消菜单上的部分产品，以应对当下出现的人工短缺问题。
+
+新闻参考链接：[US shoppers find some groceries scarce due to virus, weather](https://apnews.com/article/grocery-store-supply-chain-issues-166cc40b0ff095af9d0bf4041fa1b5fc)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

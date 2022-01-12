@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/12/2022 4:37 PM (UTC)`
+
+The content of Wang Yi's call with the Kazakh foreign minister  on 10th Jan verified  Miles Guo‘s source again that China and Kazakhstan have, as Miles Guo pointed out live on 5th of Jan accused the US-led Western forces of causing the riots.<br/><br/>1月10日王毅同哈外长通话内容再次验证文贵的准确情报，中哈已经一如文贵先生1月5日直播中指出的那样，将动乱甩锅以美国为首的西方势力
+![img](https://media.gettr.com/group50/getter/2022/01/12/16/f7011d22-a92a-f486-a903-e5673d8c6c6f/out.jpg)
+
+---
+
 `@miles 1/12/2022 1:01 PM (UTC)`
 
 2022年1月12日 文贵大直播：美国香港世界金融市场；冬奥会防疫社会面清零；病毒疫苗灾难肆虐全球；中共二十大前内斗加剧
@@ -158,14 +165,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1月10号：GETTR正在改变社交媒体游戏规则，充分的证明了．只有正义才能得到关注，只有真实和真相，才能得到大众的尊重，这是社交媒体永远的真理……<br/>@joerogan And look who’s posting!! https://gettr.com/post/pnhvgo16d6
 ![img](https://media.gettr.com/group25/getter/2022/01/10/19/5061b8a7-7f4f-4ee2-13ba-21d778f3fb1b/9be8c8af09b0ed8c10fedad188d9bc6b.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 1/10/2022 7:34 PM (UTC)`
-
-🚨🚨🚨Welcome to #GETTR, @tuckercarlson!!!🚨🚨🚨
 
 ---
 

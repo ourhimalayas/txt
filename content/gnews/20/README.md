@@ -2,36 +2,31 @@
 ---
 
 
-## 科兴公司2021年度半年内狂赚50亿美金
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851529/)
+## 天津周三下令对1400万居民进行第二轮核酸测试
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1851548/)
 
-作者：纽约香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月11日，据有关媒体报道，在美国挂牌的中共国科兴生物公司仅在2021年的上半年就实现了超出50亿美元的净盈利营收。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.42.05.png)
-另据科兴公司近期披露的财务报表显示，该公司的销售额在2021年上半年暴增至110亿美元，较2020年同期增长了162倍，其中归属于股东的净利润则高达51亿美元。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011203.jpg)网络图片
 
-然而资料显示，科兴在未研发中共病毒疫苗之前，其业绩上一直表现平平。自科兴2004年赴美挂牌后，该公司一直处于连年亏损的低谷之中。2020年，科兴生物公司的总营收仅有六千七百七十万美元，依然亏损了超过一千两百万美金。
 
-对此，有相关人士指出，科兴公司在2021年所取得的超常业绩完全源于各国政府的中共病毒疫苗强制接种政策，而科兴的财务报表只是暴露了疫苗暴利行业的冰山一角。
+自周日开始的初步筛查中发现 97 例 omicron 变异毒株感染者后，天津周三下令对所有 1400 万居民进行第二轮的CCP病毒检测。中共国官媒新华社表示，在收到所有核酸检测结果之前，天津当地居民被要求留在原地，不得移动。
 
-参考链接：
-1）[科兴靠疫苗大赚214亿　大赢家却是日本人](https://news.seehua.com/?p=790876%0A)
-2）[科兴生物卖疫苗赚的51亿美元会被谁收入囊中？](https://www.sohu.com/a/515230245_120321309)
+据中共官媒报告，到目前为止，当局已经进行了近 1200 万次检测，完成了780 万份样本的反馈。天津距离北京仅约一小时车程，而北京则将于 2 月 2 日开始举办冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+目前，天津城际的高铁服务和其他形式的运输已经暂停，导致供应链出现一些中断，包括在便利店出售的包装食品。
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+天津市 CCP病毒预防和控制办公室表示，所有在首轮检测中呈阳性的人都发现有 Omicron 变体，疫情的来源尚不清楚。许多传播该变异毒株的人可能是在不知不觉中这样做的，因为他们或许没有表现出任何症状。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本月早些时候，乘坐火车从天津出发的两名大学生在大连市被检测出病毒呈阳性，但没有关于他们感染了哪种病毒的消息。
+
+在严格的“动态零病例政策”下，数以百万计的中共国居民被封锁在城市中，这使中国在一定程度上遏制了重大疫情爆发，但却对地方经济造成了相当大的代价。
+
+同时不少人由于大封锁无法得到生活必须的物资和服务，导致在中共国出现了人祸灾难大于疫情威胁的状况。同时官府在群众生活出现困难的节点上依然没有忘记捞钱，例如价值四百人民币的“英雄菜”，遭到了广大网民的不满和批评。
+
+新闻参考链接：[China’s Tianjin orders more testing on 14 million residents](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-health-beijing-dbb4ba311493c2f3c4902799b29adcb8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

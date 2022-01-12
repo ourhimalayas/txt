@@ -2,26 +2,26 @@
 ---
 
 
-## 墨西哥总统再次感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851530/)
+## 新冠疫苗即将被叫停 最后关头做好防护
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851552/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.53.59.png)
-对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
+1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
 
-此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-8.jpeg)
 
-即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
+郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
 
-参考链接：[Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19)
+郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生情调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+参考链接：[https://gettr.com/post/pnh23d6a79](https://gettr.com/post/pnh23d6a79)
 
-总编：
-编辑：
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
