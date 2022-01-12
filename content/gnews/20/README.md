@@ -2,38 +2,50 @@
 ---
 
 
-## 父母要保护好孩子不被打疫苗，责无旁贷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850207/)
+## 务必主动备药防病毒不能把爆料革命、新中国联邦当上帝
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850269/)
 
-#### 整理：雅典娜速记组
-编辑：Frank2021
+G-TV视频链接：[https://gtv.org/video/id=61de330987664c47acd38939](https://gtv.org/video/id=61de330987664c47acd38939)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/父母要保护好孩子不被打疫苗，责无旁贷（一）-.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/父母要保护好孩子不被打疫苗，责无旁贷（二）-.jpg)
+**郭文贵先生：**我一再告诉战友，你要备药，你们要备药。备药不是说联盟花不起这钱，很多人当你要药的时候，药可能是两天、三天才能到。
 
+你这两三天要是出了事儿怎么办呢？比如说昨天飞飞讲了个很夸张的事情，头两天有纽约战友要药，是吧，有病了。结果怎么样？从DC几个小时开车来纽约送药，我说飞飞你疯了，但是不是飞飞协调的，是谁协调的？你别冤枉安平、冤枉飞飞。
 
-我觉得疫苗我相信在两个月到**五月内**一定会全球停止的。我觉得两个月我是很有信心的，我觉得会停止，因为我有很多话在这儿不能说，这是绝对是说的是影响这件事情的进展的，**我很有信心一两个月内会停止，全球性的**。另外一个就是，**不会超过五个月会停止**，这是一个问题。
+你纽约的战友你没有药你得病了，你不备药，为啥不让纽约给你送药？你从DC送药过来几个小时，人家送药的战友有多大风险，你知道吗？就像某个战友是老战友了，给我发……给我要药，要药呢，我说你为啥不备药，你就在纽约你就在这，你为啥不备药？如何，什么原因，我没买，当时我要……
 
-第二个问题，关于孩子打了疫苗的千万千万记住一定要吃青蒿素。**吃伊维菌素绝对解疫苗，青蒿素绝对解疫苗**，都解疫苗，这是非常非常清楚的。但是怎么吃？请看咱们的盖特发的信息。
+我说你为啥不加入农场呢？我当时想加入香草山，我当时因为香草山各种怀疑各种特务，就没加入。这香草山跟你备药啥关系呀？你咋怨人香草山去了，香草山招你惹你了？然后后来我说完以后，又说我爷爷奶奶如何如何，不相信什么的，我爷爷奶奶。我说怨你爷爷奶奶了？你有病了现在怨香草山、怨你爷爷奶奶，你现在想起药了，病死你了谁知道呢？最后还是给他送了药，送药以后再也没给我回复。
 
-第三个关于孩子现在说回家搞分裂，孩子回来说不能参加Party。说实在话，这话就不能说，也不能听。如果孩子你还让他上学，因为他不能上学，你要是打疫苗，因为他不能开Party打疫苗。这个家人是犯罪，不存在孩子反对的问题。如果你和家长在未成年孩子面前你都做不到，这点上你不配做家长。**未来孩子要审判你这样的无知的父母的**。
+就是你不要把这个爆料革命新中国联邦当成上帝，当成医院，当成医药公司，不让你给你送药，首先对送药的战友要负责任，对吧？这就是还有个你要相信爆料革命，你三四年（老战友）了你还不备药，那你这真的你个人问题了。
 
-你怎么自己不打呢？你自己能不打，你就不能让孩子打!
+还有些特殊的战友，你确实需要药，我们很愿意帮助，但是你不能把这当成医院，（把）这些医生当成你私人医生了。战友们担多大责任呢。反过来说了，青蒿素现在，还有伊维菌素，青蒿素哪都可以买，你干嘛要爆料革命给你送呢？
 
-不要以为他要上学，怎么弄在家里都不应该让他去打了疫苗，你一定要有耐心，不要给自己的没有耐心和懦弱和自私找任何借口。任何一个父母特别新中国联邦的，我不会听任何人解释。
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-像小福利小seven两口子，想尽办法窜出德国在走出去，孩子要不然得上学，必须打，或者孩子你不打的话，德国社会不愿意，这就要离开了。**这就想尽一切办法**，就这，你也不能给孩子打。 任何理由都不能让十八岁孩子因为父母的同意或默许让孩子打，这都是你的终生的犯罪，而且疫苗我相信两个月。
+编辑整理：Jacques；
 
-**一定全球会停，不会超过五个月，另外打了疫苗的一定要吃青蒿素，伊维菌素。这就是我给大家的答案。**
+字幕文件制作：小满；
 
-发布：Frank2021
+视频制作及上传：Cindy；
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

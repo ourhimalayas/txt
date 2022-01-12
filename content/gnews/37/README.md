@@ -2,30 +2,33 @@
 ---
 
 
-## 日本教授表示各国政府的伪善酿就了黑色香港
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849649/)
+## 有声|波湾四国外长访中共计与石油议题有关
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849719/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-8.jpg)[图片源](https://www3.nhk.or.jp/news/html/20211021/k10013313141000.html)
-自去年6月，象征香港言论自由的民主媒体《苹果日报》已经停刊半年有余。港版国安法实施后，倡导民主自由的其他媒体也纷纷被迫停刊。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-11-%E4%B8%8A%E5%8D%889.53.07.png)
+中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
 
-2021年12月29日，媒体“立场新闻”的六名编集部高管因涉嫌“出版煽动性出版物”罪名被捕。继《苹果日报》停刊后，中共当局在香港对负责言论和报道自由的互联网媒体进行了腥风血雨的摧毁式打压。
+习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
 
-日本神田外国语大学兴梠一郎教授表示，香港当局在当地能如此打压，很大程度上是因为港版《国家安全法》颁布时，包括欧美在内的各国在早期阶段未能及时制止。
+中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
 
-教授认为，在通过《国家安全法》时，中共其实很担心西方的反应。但外国资本并没有撤离，港币没有崩盘，资本外逃没有发生，也无集体性撤资。人权和民主固然很重要，但美国没出最后一张牌，因香港的经济优势超过了所谓的民主人权。所以香港对自由的打压现在不会停止。
+文字版原文：[波湾四国外长访中共计与石油议题有关](https://gnews.org/zh-hans/1847764/)
 
-香港人用鲜血牺牲让世界所有人看清了中共的残暴，看清了各国与中共的深度勾兑，看清了资本逐利的本质。爆料革命•新中国联邦不会放弃圣城香港，我们会用真正的平民正道主义拯救香港乃至人类。因为人之真善是根本。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-信息源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-[「報道の自由」消滅する香港 専門家は諸外国の初動の失敗を指摘【WBS】](https://news.yahoo.co.jp/articles/6cb5832c38f810666e36434409014f2db40d8a0a)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

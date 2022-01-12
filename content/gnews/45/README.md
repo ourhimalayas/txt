@@ -2,34 +2,22 @@
 ---
 
 
-## 波湾四国外长访中共计与石油议题有关
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1847764/)
+## 中俄外长电话会谈 哈局势成焦点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1849161/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月10日，中共外交部表示，沙特阿拉伯、科威特、阿曼、巴林等波斯湾四国的外交部长以及波斯湾合作理事会秘书长纳伊夫于当日抵达北京进行5天的访问活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-11-上午9.53.07.png)
-中共近几年积极在扩展能源及战略矿藏的开发储备，分别在非洲、中亚、波斯湾、澳洲、加拿大等有丰富矿藏的国家地区，利用外交及金钱收买的攻势，尽力掠夺各国基础矿藏。
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-822.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220111/K10013424551_2201111531_2201111611_01_02.jpg)
+1月10日，中共外交部长王毅与俄罗斯外长拉夫罗夫举行了电话会谈，就哈萨克斯坦发生的大规模抗议活动的紧张局势交换了意见。王毅表示，“支持”俄罗斯领导的“集体安全条约组织”向哈萨克斯坦派遣维和部队。
 
-习近平在2014年曾表示，在2023年之前，中共期望将与波斯湾地区的贸易额增加1倍以上。 其重点目标显然剑指石油。
+据悉，习近平政府对哈萨克斯坦的动荡可能蔓延并波及中共国则是十分警惕。哈萨克斯坦与新疆维吾尔自治区接壤，约有160万哈萨克族人生活在中共国，主要集中在新疆自治区，因此，混乱动荡极可能蔓延开来。哈萨克斯坦是中共国“一带一路”倡议的要塞地区，有通往中共国的天然气管道，在能源安全方面的地位不可或缺。
 
-中共官媒表示，本次波斯湾等国官员的到访，中共与波斯湾合作理事会的自由贸易协定谈判可能“取得突破“。
+看来王毅与俄外长会谈明为支持俄罗斯的维和之举，实则担心“祸及新疆”，激发起中共国内人民的反抗意识。
 
-参考链接：[波灣四國外長集體訪中 討論強化能源關係](https://www.cna.com.tw/news/acn/202201100368.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+信息来源：[**中国、ロシアのカザフ介入を「支持」　飛び火を懸念　外相電話会談**](https://news.yahoo.co.jp/articles/0fcba797eb4eeeba85c7b769e9b01f5cdba92038)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/文小白*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

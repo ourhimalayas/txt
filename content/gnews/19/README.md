@@ -2,32 +2,44 @@
 ---
 
 
-## 美参议员马尔科·鲁比奥：在中共病毒问题上向中共追责
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1850209/)
+## 防范意识重于解药,不严加防范等到感染再想药就悔之晚矣
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850286/)
 
-#### 翻译/撰稿：zzballack
+G-TV视频链接：[https://gtv.org/video/id=61de37c187664c47acd38a82](https://gtv.org/video/id=61de37c187664c47acd38a82)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-10.jpg)图片来源：今日美国
-美国参议员马尔科·鲁比奥 (Marco Rubio)1月11日在《华盛顿观察家报》（Washington Examiner）刊文称，自危险的中共病毒2年多前首次发现于中国武汉市以来，该病毒已在全球范围内杀死了540多万人，包括80多万美国人。我们的经济、我们的孩子和我们的社区都因这种病毒和随之而来的破坏性政策而遭受严重伤害。
+**郭文贵先生：**另外一个就是防范意识。今天我再重申，疫苗灾难现在，防范意识比什么解药都管用。如果你要相信爆料革命了，没有解药你也能活，我相信。如果你相信爆料革命你一定会买到药，第三个你不能等到你有病了再想药。
 
-由于中共的掩盖和公然阻挠，中共病毒的来源仍然是一个谜，这简直是不可接受的。全世界都应该知道关于中共病毒的真相，美国政府应该惩罚那些隐瞒和掩盖事实真相的人。
+我说这个Rachel，钟仁，两位美女妹妹，你们有感觉吧？雷蒙兄弟你有感觉吧？你不能到这时候，这几关，跟爆料革命不相信说的，然后呢也不按照爆料革命要求防范，然后得了病了再想到药，你说这四步已经是晚了，很晚了。对吧，猫本小哥？
 
-虽然该病毒起源于中国，但中共从一开始就故意不合作。也许早在2019年11月中旬，中共政府就已知道武汉爆发了传染性肺炎。然后它们直到2020年1月20日才向世界公布这一关键信息，但否认存在人传人的可能性，还误导公众说“流行病可防可控”。
+这才是刚才就是那个疫苗灾难，我们每天我们要说的事情，它是一个精神上的疾病。我跟那位战友我说的真是，我说你现在需要的是精神病药，而不是需（要）的伊维菌素。你得病了你怨人家香草山啥呀？你怨你爷爷奶奶啥呀？它跟你爷爷奶奶啥关系呀？你这样的人你怎么可能……你染上病是很危险的，你不染上病也很危险，你这脑子是有问题的。
 
-由于有良知的医生吹哨人提早揭露真相， 中共被迫在2019年12月31日发布公告说武汉“爆发了不明原因的肺炎”，但并没有承认这种新疾病是由一种高度传染性的冠状病毒引起的，而且拒绝分享中共病毒的基因组序列。在一位中国科学家违抗中共禁令分享病毒序列后，中共政府甚至命令实验室销毁病毒样本。
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-这种阻挠仍在继续。2021年，中共拒绝让世卫组织获取最早的中共病毒确诊和疑似病例的关键原始数据，并否决了世卫组织探索武汉实验室泄漏假说的请求。美国国家情报委员会报告说：“北京…继续阻碍全球调查，拒绝分享信息，并谴责其他国家。”
+编辑整理：Jacques；
 
-否认和欺骗是一个专制、种族灭绝政权的常用策略。更令人震惊的是，一些美国政府官员也参与掩盖了关于中共病毒起源的真相。
+字幕文件制作：小满；
 
-美国国家过敏和传染病研究所（NIAID）所长安东尼·福奇就是其中之一，他不仅误导公众说中共病毒不可能源自武汉病毒研究所的科学试验，而且在没有任何证据的情况下一直坚称中共病毒“来自自然”。他还公然向人们撒谎，在“功能增强”研究的定义上玩文字游戏，以掩盖美国纳税人的钱被用于资助中共的冠状病毒研究的事实。我们还知道武毒所获得了多个美国政府机构的资助，而且中共的研究人员仍在进行危险的冠状病毒实验。
+视频制作及上传：Cindy；
 
-这些阻挠无论来自美国境内还是境外，都是不公正的，是对数百万死于这种疾病的人的侮辱。我们必须对此做出回应。我与共和党同事一起，在参议院提出了《中共病毒法案》（Covid ACT）。如果北京不允许对中共病毒的来源进行取证调查，该法案将对继续隐瞒真相的中共当局进行制裁和削减研究合作的资金。但不幸的是，在涉及中共病毒来源的问题上，民主党人没有兴趣向中共施压。
+G-News发布：小满；
 
-在经历了两年的感染、封锁和社会隔离之后，有关这一病毒来源的真相需要得到曝光。北京可以继续阻挠，但这样做应该有痛苦的后果。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-新闻来源：[Hold the CCP accountable for COVID-19](https://www.washingtonexaminer.com/restoring-america/fairness-justice/hold-the-ccp-accountable-for-covid-19)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
