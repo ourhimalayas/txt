@@ -2,39 +2,60 @@
 ---
 
 
-## 有声|中共为维护邪魔统治在昆仑山设下风水祭坛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1851612/)
+## 【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1851762/)
 
-配音：香草山健身部 – 玫瑰园
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月9日，郭先生大直播中揭穿了中共以“无神论”洗脑国人，实则是彻头彻尾的巫术迷信者的本质。更有什者，为了维护统治，中共当局不惜耗费巨额百姓税收，在昆仑山设下风水祭坛，以巫术续命。
+在中共病毒溯源、彻底消灭CCP以前，中共不断投放病毒，实验性的COVID-19疫苗既不能预防感染，也不能减少死亡，注射中共病毒疫苗只会带来更多感染和死亡。
 
-喜马拉雅-昆仑山系形成于6500万年前，其庞大的规模和多样化的地质地貌，成为欧亚大陆重要的气候、生态影响因素。中国的远古地质经书《山海经》，称昆仑山为“万山之祖“。进入二十世纪，越来越多的研究，也相继表明了喜马拉雅山-昆仑山系不同寻常的地质学的特征。
+冰岛这个只有36.8792万人口的国家，COVID-19病毒疫苗接种率相当高。
 
-迷信堪舆学说，是中共历代领导人的典型特征。自毛泽东时代开始，昆仑山的风水祭坛便成为中共权力的来源，据郭先生回忆，中共当局在昆仑山下所设的祭坛，其规模和豪奢程度令人咋(音“则“)舌，有九百九十九层天阶，外观似外星飞船，并且严格按照八卦阵型排布。自建坛伊始，无论任何天灾人祸，中共从未停止搜刮民脂民膏来建立这个祭坛。丧心病狂的中共当局，不惜以活人祭祀的形式，每年屠杀数百童男童女。该活祭任务往往由中共在新疆、西藏驻地的特种兵执行，官兵在任务后皆被灭口。这类大大小小的”活祭“、”屠杀“，只是中共在新疆、西藏对各民族大屠杀的一个缩影。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-doses-by-age.jpg)
 
-郭先生表示，这个祭坛以中华儿女鲜活的生命“供奉着“着中共常委的血脉，诅咒着中华大地56个民族。上个月，中共习近平当局将北京盘古大观的龙头以巨大外围铁幕加以掩盖，同时施展巫术，诅咒郭文贵先生，这一行径已被日本主流媒体密切跟踪报道，中共依靠神秘力量来延续邪魔统治的行径，已全球尽知。
+目前，冰岛已经向公众注射727,886剂疫苗，平均每人注射了1.974剂，291,973人至少接种一针疫苗，高达总人口的79.17%，284,827人接种了两针疫苗，达总人口的77.23%，210,230人接种了加强针，达总人口的57.01%，12岁以上人口中，91%至少打了两针疫苗。
 
-文字版原文：[中共为维护邪魔统治在昆仑山设下风水祭坛](https://gnews.org/zh-hans/1847827/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Vaccinations-in-Iceland-statistics.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+冰岛注射的疫苗主要是Pfizer/BioNTech，另外还有Oxford/AstraZeneca、Janssen及Moderna疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-vaccinated-by-vaccine-given.jpg)
+5~15岁的年轻人和80岁以上的老年人注射的基本都是Pfizer/BioNTech疫苗。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+然而，1月10日，冰岛新增确诊病例居然达到了3590起，接近全国总人口的1%，全国累计已有40,037人曾经被中共病毒感染，占全国总人口的10.85%。其中48.5%的感染发生在最近20天之内（19,147人）。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+注射COVID疫苗导致免疫力下降，疫苗灾难正在上演！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Iceland-Total-Covid-19-Cases.jpg)
+如果疫苗有效，每10万人中，注射两针疫苗的人被中共病毒感染的机率应当低于末打过疫苗或只打过一针疫苗的人。下表是自去年12月20日到今年1月5日，冰岛每10万人确诊率统计数据：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/two-doses-vs-one-dose.jpg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+注射两针疫苗的人，无论大人还是小孩，从12月20日起，10万人新增确诊率明显比只打一针或未打针的人高。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+如果把1月5日的数据和去年12月20日的数据做一个对比，每100,000名接种加强针疫苗的成年人的感染率比去年12月20日高出11.4倍，而打了两针的成年人感染率则高出7.1倍，未接种疫苗者的感染率仅增加了2.6倍。在儿童中，我们看到了类似的变化，完全接种疫苗的人数增加了9.5倍，而未接种疫苗的人数只比去年12月20日高出2.4倍。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/21-12-20-vs-22-1-5.png)
+
+根据社会学常识，这种变化很难用某个群体的行为变化来解释，群体之间如此突然而决定性的行为变化是不可能的。测试也不太可能突然在某些群体而不是其他群体中急剧增加。冰岛这种民主国家，也不太可能出现专门针对未接种疫苗的人群，有意长期性的、高达70~80的统计错误。
+
+只能说明，注射这种试验性的疫苗有毒，既不能预防感染，也不能减少死亡，只能降低身体免疫力。
+
+中共病毒疫苗就是杀手凶手，千万不要注射毒疫苗！
+
+参考资料：
+
+[Double Vaccinated Have Double the Infection Rate, Data From Iceland Shows](https://dailysceptic.org/2022/01/09/double-vaccinated-have-double-the-infection-rate-data-from-iceland-shows/)
+
+[The complete Our World in Data COVID-19 dataset](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[COVID-19 vaccinations in Iceland – statistics](https://www.covid.is/statistical-information-on-vaccination)
+
+[COVID-19 in Iceland – Statistics](https://www.covid.is/data)
+
+[does vaccination increase the probability of infection](https://thorsteinnsiglaugsson.wordpress.com/2022/01/09/does-vaccination-increase-the-probability-of-infection/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

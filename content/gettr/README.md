@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/12/2022 5:38 PM (UTC)`
+
+The authorities of Cyprus have found themselves in the middle of a serious, but also complicated case with political implications<br/><br/>The whole case, however, is complicated by other relevant facts and events. The two detainees are members and political activists of the New Federal State of China. This political movement, also known as the lobby, was created by Guo Wengui and Steve Bannon, with the stated aim of overthrowing the Chinese Communist Party (CCP) and consequently the Chinese government.<br/><br/>Founded on June 4, 2020 in New York, it calls itself the “exiled government” of China and is indirectly recognized by the United States.<br/><br/>https://gnews.org/1851956/
+
+---
+
+`@miles 1/12/2022 5:37 PM (UTC)`
+
+塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中<br/><br/>整个案件因其他相关事实和事件而变得复杂。这两名被拘留者是新中国联邦的成员和政治活动家。这场政治运动，也称为游说，由郭文贵和史蒂夫·班农发起，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。<br/><br/>它于2020年6月4日在纽约成立，自称是中国的“流亡政府”，间接得到美国的承认。<br/><br/><br/><br/>https://gnews.org/zh-hans/1851946/<br/>
+
+---
+
 `@miles 1/12/2022 4:59 PM (UTC)`
 
 Ray Dalio, an old friend of the Chinese Communist Party and founder of the Bridgewater Associate, has endorsed the Communist Party's "Common Prosperity" and urged countries, including the United States, to narrow the gap between the rich and the poor. Miles Guo has already warned the West on one of his live stream about the deceptive nature of the CCP's "Common Prosperity"policy. "Common Prosperity" is actually “the era of Communism” renamed as "the era of Common Prosperity". Hong Kong is the first example of what "Common Prosperity" entails. Once again, Mr. Guo's accurate grasp of Chinese Communist intelligence has been verified.<br/><br/>中共的老朋友桥水基金创始人雷·达里奥为中共的“共同富裕”背书，并敦促包括美国在内的国家缩小贫富差距。郭先生早前已在直播中警告西方，中共“共同富裕”政策的欺骗本质，实则是共产主义的时代换名为“共同富裕的时代”，香港就是其第一个例子。再次验证郭先生对中共情报的准确掌握。
@@ -151,20 +163,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1/09/2022 Miles Guo: Both Jiang Zemin’s faction and Zeng Qinghong’s faction deeply believe in the “Dragon” theory; the CCP is so superstitious about the idea that the Human Realm locates at South Putuo in Zhoushan and that the gods of heaven and earth live in the Kunlun Mountains and the Himalayas. Therefore, as long as the CCP exists, it will never allow Tibet or Xinjiang to become independent!<br/><br/>1/09/2022 文贵直播：“海派”江家、曾家相信“龙”，中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立！<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/10/23/468ad62c-da0b-7ca8-41fe-96293c86d8cb/out.jpg)
-
----
-
-`@miles 1/10/2022 11:07 PM (UTC)`
-
-1/09/2022 Miles Guo: Why did Zeng Qinghong choose South Putuo to hold the South Putuo Meeting? Does that have to do with the Feng Shui of the entire China? Chongqing is inextricably linked to many major events in the history of China. Why is it the case that the people of Chongqing have been enduring the most hardships among all Chinese?<br/><br/>1/09/2022 文贵直播：曾庆红为何选在南普陀开南普陀会议？这和整个中华大地的风水有何关联？重庆和中国的诸多历史大事有着千丝万缕的关系，为什么说重庆人是中国中最辛苦的？<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/10/23/40257fbb-03d9-e34f-78db-6734227f36ad/out.jpg)
-
----
-
-`@miles 1/10/2022 8:37 PM (UTC)`
-
-1月10号：干细胞的时代将是人类面临的一个生命长短的巨大本质的转变时代，很快即将到来，关键是谁能拥有获得使用干细胞的财富，谁又能在这场财富与生命的较量中成为赢家呢？
-![img](https://media.gettr.com/group42/getter/2022/01/10/20/b6ce1c64-b1d9-ff79-8772-7d1d6986eada/f54b7876caca7f212c815abc912c2982.jpg)
 
 ---
 
