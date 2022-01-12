@@ -96,59 +96,59 @@
 ### [科兴公司2021年度半年内狂赚50亿美金](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [曝光的关于功能增益研究的军事文件与福奇博士宣誓后的证词相矛盾](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [1/12银河快讯:日本疫情持续，但未要求关闭所有学校；新冠病毒在1月造成更多破产](/content/gnews/29/README.md)
+### [1/12银河快讯:日本疫情持续，但未要求关闭所有学校；新冠病毒在1月造成更多破产](/content/gnews/28/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022年1月12日郭先生大直播文字同步精要](/content/gnews/30/README.md)
+### [2022年1月12日郭先生大直播文字同步精要](/content/gnews/29/README.md)
  ` 焦點20分`
 
-### [文贵大直播 1/12 伊萨贝拉杨背后是邪恶中共](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
-
-### [DC每日热点0112](/content/gnews/32/README.md)
+### [DC每日热点0112](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [特鲁多正恣意污名化未接种疫苗者](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [01/12/22 香港快讯 林郑月娥提政策局架构重组　现政府6月初前完成程序](/content/gnews/34/README.md)
+### [01/12/22 香港快讯 林郑月娥提政策局架构重组　现政府6月初前完成程序](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/35/README.md)
+### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/36/README.md)
+### [1/12/2022 国际财经快讯：拜登支出法案引发关于乳制品甲烷污染的辩论；美国股市反弹，投资者消化2022年加息的消息](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/37/README.md)
+### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/34/README.md)
  ` 關注組`
 
-### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/38/README.md)
+### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/39/README.md)
+### [台湾与加拿大宣布启动FIPA“探索性讨论”](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/40/README.md)
+### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/41/README.md)
+### [捷克驻华大使支持北京冬奥 遭新外长反驳](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/42/README.md)
+### [土耳其前总理呼吁政府外交抵制北京冬奥委会](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/43/README.md)
+### [立陶宛政坛分歧下 台湾再送10亿融资大礼](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为了冬奥会 习近平已丧心病狂](/content/gnews/44/README.md)
+### [二十大前中共血腥权斗拉开帷幕](/content/gnews/41/README.md)
  ` MilesGuoLivePPT`
 
-### [秘翻在线：北大教授有信心2030前中共国取代美国成为世界老大](/content/gnews/45/README.md)
+### [疫苗大灾难](/content/gnews/42/README.md)
+ ` MilesGuoLivePPT`
+
+### [为了冬奥会 习近平已丧心病狂](/content/gnews/43/README.md)
+ ` MilesGuoLivePPT`
+
+### [秘翻在线：北大教授有信心2030前中共国取代美国成为世界老大](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [据罗伯特-科赫研究所的数据，接种疫苗的人更容易受到奥米克隆的影响](/content/gnews/45/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [中共对台战争造势：软硬兼施，招招都是狠毒](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

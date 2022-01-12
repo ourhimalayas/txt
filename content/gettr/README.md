@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/12/2022 4:59 PM (UTC)`
+
+Ray Dalio, an old friend of the Chinese Communist Party and founder of the Bridgewater Associate, has endorsed the Communist Party's "Common Prosperity" and urged countries, including the United States, to narrow the gap between the rich and the poor. Miles Guo has already warned the West on one of his live stream about the deceptive nature of the CCP's "Common Prosperity"policy. "Common Prosperity" is actually “the era of Communism” renamed as "the era of Common Prosperity". Hong Kong is the first example of what "Common Prosperity" entails. Once again, Mr. Guo's accurate grasp of Chinese Communist intelligence has been verified.<br/><br/>中共的老朋友桥水基金创始人雷·达里奥为中共的“共同富裕”背书，并敦促包括美国在内的国家缩小贫富差距。郭先生早前已在直播中警告西方，中共“共同富裕”政策的欺骗本质，实则是共产主义的时代换名为“共同富裕的时代”，香港就是其第一个例子。再次验证郭先生对中共情报的准确掌握。
+![img](https://media.gettr.com/group13/getter/2022/01/12/16/64febebc-b709-4630-cbb0-953265105802/out.jpg)
+
+---
+
 `@miles 1/12/2022 4:37 PM (UTC)`
 
 The content of Wang Yi's call with the Kazakh foreign minister  on 10th Jan verified  Miles Guo‘s source again that China and Kazakhstan have, as Miles Guo pointed out live on 5th of Jan accused the US-led Western forces of causing the riots.<br/><br/>1月10日王毅同哈外长通话内容再次验证文贵的准确情报，中哈已经一如文贵先生1月5日直播中指出的那样，将动乱甩锅以美国为首的西方势力
@@ -158,13 +165,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1月10号：干细胞的时代将是人类面临的一个生命长短的巨大本质的转变时代，很快即将到来，关键是谁能拥有获得使用干细胞的财富，谁又能在这场财富与生命的较量中成为赢家呢？
 ![img](https://media.gettr.com/group42/getter/2022/01/10/20/b6ce1c64-b1d9-ff79-8772-7d1d6986eada/f54b7876caca7f212c815abc912c2982.jpg)
-
----
-
-`@miles 1/10/2022 7:54 PM (UTC)`
-
-1月10号：GETTR正在改变社交媒体游戏规则，充分的证明了．只有正义才能得到关注，只有真实和真相，才能得到大众的尊重，这是社交媒体永远的真理……<br/>@joerogan And look who’s posting!! https://gettr.com/post/pnhvgo16d6
-![img](https://media.gettr.com/group25/getter/2022/01/10/19/5061b8a7-7f4f-4ee2-13ba-21d778f3fb1b/9be8c8af09b0ed8c10fedad188d9bc6b.jpg)
 
 ---
 
