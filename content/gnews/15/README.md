@@ -2,56 +2,84 @@
 ---
 
 
-## 梦是自然行为结果之一，是人生的考卷，大家都在做考卷
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850584/)
+## 全球疫情更新（美国住院人数破纪录）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850611/)
 
-G-TV视频链接：[https://gtv.org/video/id=61de3b8d87664c47acd38c30](https://gtv.org/video/id=61de3b8d87664c47acd38c30)
+**整理/编辑：枳实**
 
-**郭文贵先生：**什么叫考试啊？考试就是寻找答案嘛，在梦里边你本身你做梦的时候就是在寻找答案的过程。一模一样的，它只是，就像修行当中有万事万法。万事万法的时候你要记到各种事情都是你修行的过程。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-816.png)图片：雅典娜农场设计组 精灵蓝
 
-我今天我拿起一个杯，我喝水。我喝水之前我没有思考，我就把它当水喝了。当我思考的时候，一滴水里边有上亿个结构。你喝了那个毒水，就像打疫苗一样，有40万亿、80万亿的结构。
 
-如果你只要……，我爱这个水（喝水），喝下去的就是一个帮助我生命的。我一想这个水里边有郭宝胜打的疫苗，你这个水喝下去不会很好，是吧。
+雅典娜疫情更新（2022年 1月12日）
 
-万事万修行，一切……我端起这个咖啡，喝的咖啡，好咖啡。Rachel你喝的什么咖啡？你喝的是共产党产的咖啡，是什么哪儿产的呀？（河南方言）河南郑州产的是吧。那不是咖啡，那不是鸟屎、狗屎咖啡，那是人屎咖啡，喝了有毒。
+**一，全球疫情基本数据**
 
-万事它都是一个因果轮回效应，一念之起，这就结果轮回，进入因起果落。做到人在梦中，梦中就是你的修行过程。
+感染总数：313,302,952（日新增2,580,073，14天增幅+177%）
 
-你为啥……你没有想到刚才一个最简单的答案，为啥有人做不同的梦？像你Rachel你为啥梦见跟七哥是不是滚床单去了？是因为你想七哥，你想入非非，留着口水。啊……跟七哥滚床单，所以你就想到。
+死亡总数：5,502,167（日新增6,610人，14天增幅+3%）
 
-你想到猫本，说啊猫本也不错，也滚床单。最后你想到雷蒙不错，你三人一起滚吧，这是人的本能。你不可能跟郭宝胜去滚床单去，是不是？你也不能想着跟钟仁滚床单去，因为你们是同性嘛，对吧。
+每万人感染人数：482.8761 人（除中国外）
 
-那么这是什么？因起，梦中的所有的结果就是你因起的结果。我们今天的行为，在人世间所有的行为，我现在看到雷蒙不错，这就是因起了，雷蒙也看到我不错。我现在咬着牙骂雷蒙，雷蒙一定会觉得我不会再爱你七哥，这是个本能。
+**二，全球“疫苗”毒针统计数据**
 
-所以你当下之行为和你梦中的行为它是一致的，一定是一致的，这才为什么有《周公解梦》，是吧？还有中国的奇门遁甲呀，才有过去的中国所谓的五行风水，就是大自然的解密。梦是自然行为结果之一，都是人生的考卷，就这么简单。你现在在做考卷，你在做答案，我也在做，都是一样的。唔该晒啦！
+“疫苗”毒针注射总数：93.7亿
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+完全“接种”：39.2亿人
 
-编辑整理：Jacques；
+完全“接种”百分比：50.3%
 
-字幕文件制作：小满；
+**三，澳洲疫情和“疫苗”数据**
 
-视频制作及上传：Cindy；
+感染总数：1,245,857（今日新增103,689人）
 
-G-News发布：小满；
+死亡总数： 2,465人（今日新增 49人）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+每万人感染人数：441.7122人
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“疫苗”毒针注射总数：44,730,133（日新增327,415针）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+完全“接种”：19,020,349人
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+第二针“接种”百分比：77.6%
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+16岁以上人口接种至少一剂疫苗的比例：94.8%
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+16岁以上人口接种至少两剂疫苗的比例：92.2%
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**四，疫情要闻**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+昨天，澳洲的中共病毒感染总数突破一百二十万。今天全球14天新增死亡人数本波疫情以来首次出现正增长，澳洲今日死亡人数也出现了高峰，达49人。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+今日澳洲的新南威尔士州因住院人数接近负荷，开始把中共病毒感染的住院病人从公立医院转移到私立医院。全澳住院人数已达4002人。而美国的住院人数已经超过去年，[破纪录达到132,646](https://www.theguardian.com/world/live/2022/jan/10/covid-live-news-40-of-israel-could-be-infected-in-current-wave-germany-to-study-rapid-antigen-test-reliability-for-omicron)人，美国的住院人数自12月下旬以来稳步增加，在过去3周内翻了一番。
+
+英国前卫生部长马特·汉考克（Matt Hancock）再次感染，自昨天下午检测出病毒呈阳性以来，他一直在家隔离。
+
+世卫组织称，奥米克戎毒株可能在[未来两个月内感染 50%](https://www.theguardian.com/world/2022/jan/11/omicron-europe-tidal-wave-who) 的欧洲人。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C595YGF05Y0D7ZGGYK.png)图片来源：美联社Peter Dejong
+
+
+周日，荷兰民众不顾封锁禁令，在阿姆斯特丹参加游行示威，抗议新的疫情封锁措施和强制疫苗接种。手持警棍和盾牌的防暴警察驱散了至少数千民众，并逮捕了30人以上的示威者。
+根据荷兰的限制令，禁止两人以上的公共集会。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
