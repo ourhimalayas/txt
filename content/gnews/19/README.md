@@ -2,24 +2,50 @@
 ---
 
 
-## 捷克驻华大使支持北京冬奥 遭新外长反驳
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1851040/)
+## 追求言论自由 不同政见人士大规模迁移加入盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851107/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://lh3.googleusercontent.com/Xg9zKMMCdJKKINQTEHjDBunzufJWWzI0kDvvXlc6DdkIaIUO6eWeT-_tN-BWsj4kK7LaW2oI66O7IynwcQ_d1WHFEYxB-S0QtTn3lvAUzdlZCc5w7cjKfRToSiDhDcwXCJgintNW)[*图片来源*](https://static.dw.com/image/59960886_403.jpg)
-捷克驻中共国大使佟福德日前向中共媒体表示力挺北京，这与新任外长利帕夫斯基的立场显然不同。他向媒体表示，捷克正在调整对华政策，佟福德不该发表类似言论。捷克有可能成为下一个立陶宛吗？
+作者：纽约磐石农场—在远方，纽约香草山 – 侠肝义胆
 
-佟福德透露，在他于2021年夏天回国休假期间与泽曼会面时，对方特别嘱咐要佟福德支持北京冬奥。不过，力挺北京冬奥的声音传回捷克后，引发新上任的捷克新任外交部长利帕夫斯基（Jan Lipavský）的不满。后者在9日接受捷克电视台采访时表示，捷克政府正打算调整对华关系，而佟福德的发言违背政策。
 
-布拉格国际广播电台报导称，利帕夫斯基已致电佟福德，要他避免发表支持北京冬奥会的言论，显见捷克政府内对华态度已有分歧。今年36岁的新外长利帕夫斯基被外界视为是对中俄强硬，拥护欧盟及北约的鹰派人士。台湾媒体报导称，利帕夫斯基也是友台人士，去年10月底曾与访问捷克的台湾外交部长吴钊燮共进晚餐，还曾经称台湾是捷克“重要的经济伙伴”，比中共国要“多好几倍”。
 
-捷克总统泽曼亲中俄的态度明显，但在捷克政治体制中，总统象征性作用较大，虽能指派总理但没有太多实权。新政府计划扭转泽曼的亲中路线，重新审视对中俄的关系，并强化与民主伙伴的关系。目前由新总理费亚拉（Petr Fiala）领导的中间偏右联合政府包含了5个政党组成，其中包括曾多次高调访问台湾的布拉格市长贺瑞普（Zdeněk Hřib）所属的“海盗党”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新闻来源：[**捷克驻华大使支持北京冬奥 遭新外长反驳**](https://www.dw.com/zh/%E6%8D%B7%E5%85%8B%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E6%94%AF%E6%8C%81%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5-%E9%81%AD%E6%96%B0%E5%A4%96%E9%95%BF%E5%8F%8D%E9%A9%B3/a-60394572)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+盖特1月11日消息，福克斯著名主持人塔克·卡尔森以及 2020 年民主党总统候选人图尔西·加巴德正式入驻盖特，该消息令盖特的注册用户又迎来一波高潮。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.2-3.jpg)
+盖特首席执行官杰森.米勒早前表示，盖特拒绝言论审查，欢迎不同政见人士加入，自由的发表个人观点，图尔西·加巴德的加入显示盖特并非外界所言，只是保守派的发声平台，而是一个不同政见人士都可以畅所欲言的社交平台。
+
+随着推特、脸书等传统社交媒体不断收紧对言论审查的标准，越来越多的人开始加入盖特。尤其早前“播客之王”乔·罗根的加入，更是为盖特带来了单日50万人次的惊人注册量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-156.jpg)
+参考链接：
+1. [突发：塔克·卡尔森 加入盖特](https://gnews.org/zh-hans/1845101/)
+2. [2020民主党总统候选人加入盖特](https://gnews.org/zh-hans/1845524/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：天灭中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

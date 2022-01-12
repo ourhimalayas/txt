@@ -2,47 +2,40 @@
 ---
 
 
-## 追求言论自由 不同政见人士大规模迁移加入盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851107/)
+## 美国要求保险公司必须支付家庭中共病毒测试费用
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1851296/)
 
-作者：纽约磐石农场—在远方，纽约香草山 – 侠肝义胆
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者: 纽约香草山教育部 Naughty(文行)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+美国卫生与公众服务部周一宣布，从 1月15日开始，健康保险公司必须承担家庭中共病毒测试的费用。
 
-盖特1月11日消息，福克斯著名主持人塔克·卡尔森以及 2020 年民主党总统候选人图尔西·加巴德正式入驻盖特，该消息令盖特的注册用户又迎来一波高潮。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.2-3.jpg)
-盖特首席执行官杰森.米勒早前表示，盖特拒绝言论审查，欢迎不同政见人士加入，自由的发表个人观点，图尔西·加巴德的加入显示盖特并非外界所言，只是保守派的发声平台，而是一个不同政见人士都可以畅所欲言的社交平台。
+新要求意味着大多数拥有私人健康保险的消费者可以在线或在商店购买家庭测试剂，并在购买时支付费用或通过向保险公司提交索赔来获得报销。
 
-随着推特、脸书等传统社交媒体不断收紧对言论审查的标准，越来越多的人开始加入盖特。尤其早前“播客之王”乔·罗根的加入，更是为盖特带来了单日50万人次的惊人注册量。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-156.jpg)
-参考链接：
-1. [突发：塔克·卡尔森 加入盖特](https://gnews.org/zh-hans/1845101/)
-2. [2020民主党总统候选人加入盖特](https://gnews.org/zh-hans/1845524/)
+该部门表示，消费者无需去看医生或获得处方即可获得免费测试，并且测试不会受到共付额或免赔额的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+保险公司必须为每个被保险人每月支付最多八次测试的费用。
 
-总编/编辑：天灭中共
-校对/发稿：为真不破20
+此外，美国政府还购买了5 亿份家庭测试剂免费分发，白宫周一表示，首批测试剂将在下周初开始分发。
+
+**参考阅读**: https://edition.cnn.com/2022/01/10/politics/home-covid-tests-health-insurance/index.html
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+总编: Irene木木
+
+校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 
 
