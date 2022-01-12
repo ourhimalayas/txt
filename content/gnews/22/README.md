@@ -2,31 +2,24 @@
 ---
 
 
-## 俄军队将在两天内哈萨克斯坦撤军
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850000/)
+## 辉瑞公司宣布削减美国国内的销售职位
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1850112/)
 
-翻译：美哥
-编辑：MSGZ
+撰稿：东京樱花团丨待命（文晓）
+![](https://lh4.googleusercontent.com/aXRkxX6trn9u9WlejqMZsgWBLVXMcuFHuaMZD5CQSQPNr9J1r_aGWmTy3MsFmv_fTjUuGm7yO2N0jm4fdOny0i0CQwqZYELDwSJt9f78_zqX4kozoOBnYaBjNfH51EQ2vkYVDQzb)（图片源自本文链接）
+日本雅虎网1月12日消息：据路透社报道，美国制药巨头辉瑞（Pfizer）公司周四表示，将削减国内的销售代表数量，因为该公司预计在中共病毒（新冠病毒）结束后，医生和其他医疗工作者会希望减少与销售代表面对面的交流。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/26AMFOH@0SU7N@32R0C-1.png)图片来源todayhot.news
+辉瑞公司在一份声明中说：我们正朝着更加专注和创新的生物制药公司方向发展，我们也在不断发展我们与医疗保健专业人士在日益数字化世界中的接触。我们将对我们的员工队伍进行改革，以确保我们有正确的专业知识和资源来满足不断变化的需求。但是声明没有透露将被削减的销售人员的具体人数。
 
+据熟悉此事的消息人士称，辉瑞公司计划取消数百个职位，并为其中约一半人在新领域创造职位。该公司说，医生和其他医疗专业人员预计在未来会希望他们在与药物公司的互动中，有大约一半是通过远程方式完成，路透社已经证实了该公司的相关文件。
 
-1月11号，根据合众国际社（UPI）报道，周二，哈萨克斯坦总统卡西姆若马尔特·托卡耶夫宣布负责帮助镇压抗议运动的俄罗斯军队将在2天内开始撤离，托卡耶夫在国会声称俄罗斯为主力的盟友军队在哈国维和不会再超过10天。鉴于政府目前控制了局面，外国军队的“和平使命”已经圆满结束。所有的地区已经恢复了稳定。
+众所周知瑞辉公司已在这次人类大灾难中，在多国政府的配合下，赚得盆满钵满，再不需要那么多的营销人员是不言而喻的。不过，编个理由还是必要的。
 
-上周，托卡耶夫依据独联体集体安全条约组织请求俄罗斯军事援助，该条约组织是一个跨欧亚的，由前苏联6个国家组成的军事同盟。增援的部队包括白俄罗斯、亚美尼亚、塔吉克斯坦、吉尔吉斯斯坦以及俄罗斯。
+信息来源：[**ファイザー、米国内の営業職を削減へ　リモート推進（ロイター） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/a141c9eadf4e7b2f1b0bca845f5f2717c7177417)
 
-托卡耶夫在暴乱当日称抗议人群为“恐怖分子”，指责他们企图颠覆政府。1月10号，托卡耶夫宣布为暴乱中丧生的平民举行国家默哀。此次抗议政府的运动因油价上升而起，至少164名平民丧命，数以千计的人被捕。托卡耶夫还称因为外国军队的介入，首都努尔苏丹的安全部队才能腾出手来，去各个地区平息暴乱，但外国军队没有直接参与镇压哈萨克斯坦公民。
-
-原文链接：[https://www.upi.com/Top\_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/](https://www.upi.com/Top_News/World-News/2022/01/11/kazakhstan-russia-troops-leaving-two-days-kassym-jomart-tokayev-protests/5211641938393/)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

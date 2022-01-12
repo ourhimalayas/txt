@@ -2,34 +2,50 @@
 ---
 
 
-## 北京冬奥会赞助商无视中共政权恶劣的人权状况
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1850171/)
+## 大校秘密作证某国政府:mRNA疫苗就是病毒就是生化武器
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850243/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image.jpg)图片来源：www.foxnews.com
-《福克斯新闻》2022年1月10日报道，一位人权研究人员告诉《福克斯新闻》，中共正在利用2022年冬奥会“使其侵犯人权行为合法化”，并补充说，“世界其他国家应该远离北京冬奥”。北京将于2月初开始举办奥运会。美国政府和游说团体指责中共迫害维吾尔族人和其他突厥穆斯林信徒，并利用他们在中共国新疆地区进行强迫劳动。
+G-TV视频链接：[https://gtv.org/video/id=61de313287664c47acd388d6](https://gtv.org/video/id=61de313287664c47acd388d6)
 
-一位人权观察(Human Rights Watch)组织中国部高级研究员王亚秋告诉《福克斯新闻》：“这不仅仅是一场体育赛事。中共政府正在利用这场赛事来展示这个国家，使这个国家的地位合法化，使其政策合法化，包括许多侵犯人权的行为。”
+**郭文贵先生：**那么大家要注意到，这次感染之容易，是前所未有。但是我们在一开始在2021年的时候，我就说过，我记得特别我们大校先生，就是跟我说过一句特别经典的话，他说七哥，这可真是未来如果这个世界在，这是病毒之前还没醒过来的话，他说你就不需要这个世界醒过来。
 
-王说：“成为奥运会的一部分将被中国共产党用作使其侵犯人权合法化的工具，包括新疆的局势。”“这就是为什么世界其他国家应该远离这次奥运会。” 距离2022年北京冬季奥运会还有不到一个月的时间，人权观察加大了抵制奥运会的力度。它向奥运赞助商施压，要求他们利用自己作为中共政府商业伙伴的影响力，制止该国对新疆维吾尔族穆斯林和香港活动人士的迫害，并改革其有关西藏和台湾的政策。
+昨天下午的时候我们这个大校先生说，我真的睡不着觉了。因为他最近离开了日本到了另外一个国家，而且是日本政府是允许的，到了另外一个国家去。他说我到这个国家以后，他说我是最让我感觉到的就是大街上没多少人在乎这个Omicron。他说这个Omicron染到身上，它不是开玩笑的。他说有病是让你，叫你长期有病和让你短期死亡。他说这都是生化武器的，它可以做得到的。他说为什么没人小心呢？我说我也没办法，爆料革命现在已经做到这一步。
 
-奥林匹克全球合作伙伴计划(The Olympic Partner program，TOP)下的赞助商包括13家大公司，如Visa、普利司通、欧米茄、宝洁和三星。“我们写信给他们每个人，包括爱彼迎(Airbnb)、可口可乐、安联，”王说，“我的意思是，他们正在为北京冬奥会提供资金。” 王说，只有安联对人权观察做出了回应，但它的回答并不令人满意。
+他说你知道我跟这个政府国家谈，他说让我去给他秘密作证。我给他说了不到5分钟，他所有屋子人说：“哎，你别你别说，你停，你停”。他说然后他说让我们休息几分钟，就到隔壁去休息去了。他休息了20分钟回来，他说每个人脸色都铁青。他说他们真的是知道这个疫苗是比这个病毒还可怕的。
 
-**简评：**通过人权观察组织提供的信息来看，这些赞助北京冬奥会并利用它作为营销工具的企业，看起来并不会利用其强大的影响力为中共国恶劣的人权状况大胆发声，也不会撤资北京冬奥会，这说明它们都在将利益置于人权之上，它们的价值观已经被中共的红色病毒所污染。
+什么叫mRNA，大家一定要搞清楚。mRNA就是刺突蛋白，就是病毒，我再重申一遍，是吧？辉瑞制药，任何制药，现在已经没有一家制药公司敢说我承担这个责任，承担后果，他没有一家。为啥你研究的这个解药、疫苗你不承担责任呢？哪个解药的成分都叫mRNA，就叫刺突蛋白。
 
-但是，这些赞助商的选择无疑是错误的，中共国正在经历的房地产倒闭潮预示着中共国虚假的经济很难再继续维系下去，而恒大地产债务违约的现实说明，如果经济走向崩溃，中共为了自保，势必首先放弃这些外国投资人的利益。可以预见，这些冬奥会的赞助商将为他们的选择付出惨重的代价。
+这就为什么现在咱爆料革命，现在在全世界受到这么大的关注。特别是科学家和专业人士，他说为什么他们能知道这些真相呢？我们在一年前没想到的事，他们都已经知道了呢？例如自刺突蛋白会脱落，会感染，你没有出门就感染了。我不相信木兰的先生，就出去感染的，我相当不相信。她很有可能就是周围的已经打了疫苗的人（那里）感染了。
 
-新闻链接：[https://www.foxnews.com/world/china-using-olympics-legitimize-abuses-human-rights-researcher](https://www.foxnews.com/world/china-using-olympics-legitimize-abuses-human-rights-researcher)
+就像日本这个朋友他跟我说，你看我家人几个感染，我说我可以负责任告诉你，我知道你家那个什么状况，你给我发视频，发音频，你这个就是周围的人摘下口罩的时候，周围刺突蛋白就把你感染了，我很大程度怀疑这个。
 
-* * *
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑整理：海贼王M.D.LUFF；
 
+字幕文件制作：小满；
 
-编辑：【英国伦敦喜庄园编辑部】
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

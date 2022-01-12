@@ -2,47 +2,87 @@
 ---
 
 
-## 强推疫苗的政府基本是由国会和医疗机构及首脑一党把持
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850253/)
+## 苏格兰推迟对未接种疫苗妇女的生育治疗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1850308/)
 
-G-TV视频链接：[https://gtv.org/video/id=61de31b287664c47acd388f7](https://gtv.org/video/id=61de31b287664c47acd388f7)
+**翻译：Lulumi**
 
-**郭文贵先生：**所以说刚才看到这个疫苗当中，现在重点我们要说什么，这PPT，有些流氓国家的强制政策，你去看有一个国家是正常的吗，这个领导人。所有这些国家通过强制疫苗，把它定为什么？没打疫苗的人是怎么着怎么着。我告诉你，你看它的背景，你看它的政府的体制，基本上国会和医疗机构和这个总统，基本上都是一个党派的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-857.png)图片来源 :theepochtimes.com
 
-而且非常大的偶然，这些党派从来过去没有控制过什么上院下院，什么上众议院，欸，就这次它（一个党派）就控制了，而且这时候它就说了算，又立法、颁布行政规定都它说了算。让我们真的看到这个世界真的比我们想象还要吓人，还恐怖。
+2018年7月23日，伦敦科学博物馆展示的试管婴儿激素瓶和注射器。(Leon Neal/Getty Images)
 
-为什么都是这一帮政党，前所未有的统治一个国家的立法权，行政权、执行权之后，他们有这样的流氓的决定，而且是所有的制药公司都不负责任，都不敢说里边儿成分的时候，而且让你强制打疫苗。最重要的是打完疫苗，现在确实是打疫苗死人，关键是打疫苗的人感染，已经（从）一针管用，二针绝对管用，三针一定管你一辈子，现在要每年打，每月打，改成打终生。
+苏格兰未接种中共病毒COVID-19疫苗的妇女发现她们在NHS（国民健保署）预约的生育治疗被取消了，原因是她们的CCP病毒疫苗接种情况。
 
-这种逻辑这不是胡扯的嘛，更可怕的事情，我们大家要意识到，我们感染人当中绝大多数（百分之）八十几，九十几都是打了疫苗的人，这还用说吗，是吧。逻辑，常识，专业都在这摆着呢，我们战友们如果再听不进不是疯了吗？
+苏格兰政府表示，因为未接种疫苗的孕妇患中共病毒COVID-19严重疾病的风险增加，以及Omicron变体的不确定性，他们正在采取一种“更谨慎的方法”。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+但这项政策被苏格兰工党批评“不人道”。
 
-编辑整理：Jacques；
+苏格兰政府于1月7日公布了首席医疗官格雷戈·史密斯爵士教授的建议信。
 
-字幕文件制作：小满；
+信中说，对于没有完全接种COVID-19疫苗的患者，NHS旨在创造怀孕的生育治疗应该被推迟，但保留生育能力的治疗可以免于推迟。
 
-视频制作及上传：Cindy；
+据当地媒体报道，一些夫妇在圣诞节前夕接到电话，告诉他们他们的生育治疗预约被取消了，因为这些妇女没有完全接种疫苗。
 
-G-News发布：小满；
+杰玛·麦克唐纳和海登·布朗夫妇在“圣诞节前几天”发现他们的预约被取消了，他们告诉苏格兰小报《每日记录》，他们为怀上孩子已经努力了五年。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+这对25岁的夫妇原定签署同意书，在经历了长达一年的植入前遗传学诊断过程后开始体外受精（IVF）治疗。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+麦克唐纳说：“我和一位接待员谈过，她说正在打电话通知大家，如果你没有接种过疫苗，你就不再有资格接受试管婴儿治疗。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+这位托儿所老师说，她曾希望在3月或4月前怀孕，而这一挫折让她感到“非常沮丧”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这对夫妇决定不接种疫苗，因为苏格兰政府最初曾建议孕妇和准备怀孕的妇女不要接种疫苗。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+麦克唐纳说，她个人认为，“没有足够的证据表明（接种疫苗）三四年后婴儿可能会发生什么”。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“我觉得这完全侵犯了我们的人权，”这位年轻女士说。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+另一名女士在听说CCP病毒疫苗会影响她朋友的月经周期后没有接种，她告诉该报，她在听到这个消息后心碎了，哭了两个小时。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+苏格兰工党副领袖和卫生发言人杰基·贝利抨击了苏格兰民族党政府的政策，她说这是“不人道的”。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+她说：“当然，作为对病毒的最好保护我鼓励每个人都接种疫苗，但规则一开始就很混乱，以这种方式对待这些女士是不人道的。”
 
+苏格兰政府的一位发言人说：“由于COVID-19病例的数量不断增加，以及对未接种疫苗的妇女的影响的担忧，部长们已经做出决定，暂时推迟未完全接种疫苗的妇女的生育治疗。我们继续审查证据，并将寻求在今年年初审查这一决定”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-859.png)图片来源 :theepochtimes.com
+
+2021年12月25日，在伦敦东部雷德布里奇市政厅的疫苗接种中心，一名卫生工作者为一名孕妇注射CCP病毒疫苗。(Justin Tallis/AFP via Getty Images)
+
+在英国政府的疫苗接种和免疫联合委员会(JCVI)将孕妇指定为“临床风险群体”并敦促她们尽快接种疫苗之后，未接种疫苗妇女的生育治疗被推迟了。
+
+史密斯说，英国最近的数据显示，“未接种疫苗的孕妇及其婴儿在入院后因感染COVID-19而死亡，在ICU中，98%感染COVID-19的孕妇未接种疫苗。”
+
+根据苏格兰国民健保署的数据，8月份，在怀孕期间接种疫苗的孕妇比例为15.6%。
+
+JCVI的COVID-19小组委员会主席魏申林教授在2021年12月16日说：“没有证据表明怀孕期间使用的COVID-19疫苗会增加流产、死胎、先天性畸形或出生并发症的风险。”
+
+他说：“接种英国批准的COVID-19疫苗比感染COVID-19本身更安全”。
+
+根据药品和保健品管理局（MHRA）对黄卡数据的最新分析，“流产和死胎的报告……与这些事件在大流行病之外的英国发生的频率相比，是很低的”。
+
+报告还说，有“几份关于常见的先天性畸形和产科事件的报告”，但“没有任何形式”表明疫苗增加了流产、死胎、先天性畸形或出生并发症的风险。
+
+MHRA的黄卡报告网站有自我报告的药品、疫苗、医疗器械或测试工具的可疑不良反应。
+
+该机构在2019年5月发布了一份更新，敦促人们在报告率下降后积极报告可疑的药物不良反应，声称估计只有10%的严重反应和2%至4%的非严重反应被报告。
+
+但它说，这一估计“不应作为COVID-19疫苗报告率的指标，因为公众对黄卡计划和报告可疑反应的认知度很高”。
+
+英国卫生安全局关于怀孕和母乳喂养的COVID-19疫苗接种指南说：“没有证据表明COVID-19疫苗对生育能力或怀孕的机会有任何影响”。
+
+周五发表的一项新研究说，mRNA疫苗与月经周期长度的变化有关，但没有发现“人口水平的临床意义的变化”。
+
+研究人员补充说：“关于月经周期的其他可能变化，如月经症状、非计划性出血以及月经出血的质量和数量的变化，仍然存在问题”。
+
+新闻来源: [theepochtimes.com][Scotland Defers Fertility Treatment for Unvaccinated Women](https://www.theepochtimes.com/mkt_morningbrief/scotland-defers-fertility-treatment-for-unvaccinated-women_4101125.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-11&amp;mktids=2e63bc4dcdf4dbf1d2375481e17904fe&amp;est=5%2BPzc5qTUySeigUPMnaqIPmaL78dt6%2FaXc0tHQ4JV0aoAhCK46u%2B6pEh2BMRw4JrBCwoF%2F8%3D)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
