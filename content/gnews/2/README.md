@@ -2,34 +2,27 @@
 ---
 
 
-## 新冠疫苗即将被叫停 最后关头做好防护
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851552/)
+## 中共宣称愿意向哈萨克斯坦提供安全支持以反对“外部势力”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1851587/)
 
-作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
+翻译/撰稿：GoergeC（乔治）
+校对：zzballack
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-8.jpeg)
+据《路透社》（Reuters）1月10日报道，中国外交部长王毅本周一在哈萨克斯坦发生民众抗议后表示，中共愿意加强与邻国哈萨克斯坦的“执法和安全”合作，并帮助该国抵挡“外部势力”的干涉。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/133VM.jpg)图片来源：Reuters
+据中共外交部表示，兼任国务委员的王毅在给哈萨克斯坦外交部长特列乌别尔季（Mukhtar Tileuberdi）通话时发表了上述评论。同时，中共外交部援引王毅告诉特列乌别尔季的话：“哈萨克斯坦最近的动荡表明，中亚局势仍然面临严峻挑战，这再次证明一些外部势力不希望中亚地区和平安定。”
 
-郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
+上周，随着最初反对燃料价格上涨的和平抗议活动演变为武装冲突，哈萨克斯坦的政府大楼在几个城市被短暂占领或焚烧。然后，哈萨克军队奉命开枪射杀民众以镇压全国起义。哈萨克当局将冲突归咎于暴力的“极端分子”，包括外国训练的伊斯兰激进分子。
 
-郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生情调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
+哈萨克当局还要求俄罗斯领导的军事集团派遣军队帮助镇压，哈萨克政府表示这些部队已被部署守卫战略据点，而这一举动受到美国的质疑。专家表示，中国担心哈萨克的不稳定可能会威胁中共在哈萨克的能源进口和一带一路项目，以及与哈萨克斯坦接壤的新疆西部地区的安全，因为新疆与哈萨克斯坦共享1770公里（1110英里）的边界。王毅表示，中共愿意“共同反对任何外部势力的干涉和渗透”。
 
-参考链接：[https://gettr.com/post/pnh23d6a79](https://gettr.com/post/pnh23d6a79)
+中共国家电视台表示，中共总书记习近平1月7日告诉哈萨克斯坦总统托卡耶夫（Kassym-Jomart Tokayev），中共坚决反对任何策划“颜色革命”和破坏哈萨克斯坦稳定的外国势力。中俄认为“颜色革命”是美国和其他西方国家为实现政权更迭而煽动的民众起义。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**评论：**近期在中亚哈萨克斯坦发生了一些列民众上街游行导致当地政府瘫痪的事件，使得这个幅员辽阔的中亚国家吸引了全世界的关注。尽管中共一再表示愿意出兵帮助哈萨克斯坦政府镇压上街抗议的当地民众，但是哈萨克斯坦当局对中共的橄榄枝并不感兴趣。在哈萨克当局即将倒台的时刻，视中亚为后花园的普京大帝迅速采取行动出兵哈萨克斯坦首都阿斯塔纳力挺亲俄政府，同时哈萨克斯坦宣布逮捕前总统的亲信卡里姆·马西莫夫（Karim Massimov）。值得一题的事，马西莫夫曾两次出任哈萨克斯坦总理，且在前苏联时期有留学中国的经历。这一连串的事件说明了两点：首先，美国已经开始在中亚行动，以应对俄罗斯在乌克兰边境施加的压力；其次，随着哈萨克斯坦前总理的被抓，中共在哈萨克斯坦的布局已遭受沉重打击。更重要的是，这预示着中共在西部新疆地区防务压力大增，灭共之火已呈燎原之势！
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+新闻来源：[China offers Kazakhstan security support, opposes ‘external forces’](https://www.reuters.com/world/asia-pacific/china-offers-kazakhstan-security-support-opposes-external-forces-2022-01-10/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

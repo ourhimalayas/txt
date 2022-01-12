@@ -2,38 +2,22 @@
 ---
 
 
-## 曝光的关于功能增益研究的军事文件与福奇博士宣誓后的证词相矛盾
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1851528/)
+## 奥密克戎在南非之前就已存在于加拿大废水中
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851557/)
 
-**编译：七叶之芒**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip11.png)周一晚上，Project Veritas 发布了前所未有的军事文件，内容涉及 Covid-19 的起源、功能获得性研究、疫苗、潜在治疗方法以及政府隐瞒一切的努力。
-“真相计划”周一晚间发布了从未见过的军事文件，内容涉及Covid-19的起源、功能增益研究、疫苗、潜在的治疗方法以及政府为掩盖一切而做出的努力。
+采编：文莱           编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-2.jpg)
+据《温哥华太阳报》1月10日报道，加拿大[达尔豪斯大学]的研究人员在南非报告“奥密克戎”变体之前，就于去年11月中旬在新斯科舍省的废水中检测到了该病毒。
 
-新发布的军事文件与福奇博士在宣誓后的证词相矛盾。
+报道称，该省第一例奥密克戎感染病例于12月13日被确诊，这距离11月24日南非的该病毒报告仅有几周时间。自去年12月以来，该团队一直在检测全省四个主要污水处理厂的样本。由于废水提供了先于病毒感染者所出现的早期预警信号，加之“奥密克戎”比Alpha和Delta变体更易传播的特点，因此该类型的测试将成为未来追踪病毒传播的关键方法。
 
-福奇曾多次在国会宣誓作证，美国政府从未参与武汉实验室的功能增益研究。
+以上事实清晰表明了“奥密克戎”病毒是中共当局再次故意投放到世界各地的生物武器，也无疑验证了新中国联邦此前疫情信息来源的准确性和对中共政权邪恶手段的预见性。
 
-- 军事文件指出，生态健康联盟在2018年3月与DARPA（国防高等研究计划署）接触，寻求资金以进行蝙蝠携带的冠状病毒的功能增益研究。该提案被命名为“化解项目”，由于安全问题和违反功能研究暂停令的概念，被DARPA拒绝。
-- 几个月前，关于生态健康联盟提案的主要报告在互联网上泄露，它直到现在仍未得到核实。“Veritas”项目获得了一份提交给国防部监察长的单独报告，该报告由美国海军陆战队少校约瑟夫-墨菲撰写，他曾是DARPA研究员。
-- “该提案没有提到或评估功能增益（GoF）研究的潜在风险”，这是DARPA拒绝信中的直接引语。
-- “Veritas”项目向DARPA寻求关于隐藏文件的评论，并与通信主管贾里德-亚当斯进行了交谈，当被问及文件被埋藏的方式时，他说：“这在我看来不正常。”
+校对编辑：硫酸羟氯喹64
 
+发稿： 苦尽甜来 (文來）
 
-如果国防部认为这项[功能增益]研究太危险，不能继续进行，那么究竟为什么美国国立卫生研究院、美国国家工业研究院和生态健康联盟鲁莽地无视其中的风险？
-
-（插入视频链接地址：
-
-
-
-**新闻来源**：[thegatewaypundit.com][Project Veritas: Never Before Seen Military Documents About Gain-of-Function Research Contradict Dr. Fauci Testimony Under Oath (VIDEO）](https://www.thegatewaypundit.com/2022/01/project-veritas-never-seen-military-documents-gain-function-research-contradict-dr-fauci-testimony-oath-video/)
-
-* * *
-
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+[原文链接](https://vancouversun.com/news/canada/omicron-was-in-nova-scotia-wastewater-before-it-was-identified-in-south-africa/wcm/6471a261-54de-4b31-886d-9e0befcbef5a)
 
 
 

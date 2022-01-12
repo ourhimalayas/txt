@@ -2,24 +2,25 @@
 ---
 
 
-## 特鲁多正恣意污名化未接种疫苗者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851421/)
+## 印度在广泛使用伊维菌素后正式宣布无新冠病毒病例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1851475/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-1.jpg)
-据加拿大媒体[真北方]1月10日报道，由于总理特鲁多最近不仅将未接种疫苗者定义为“憎恶女性和极端种族主义者”，还将疫情恶化和严苛的防疫政策归咎于他们的言论，而受到加拿大各界的严厉抨击，并被质疑该总理是否已精神错乱。
+翻译：ATX1230
+校对：精靈藍
+编辑：Mttfly
 
-报道称，人们对接种疫苗的态度和认知是因人而异的。而在当下危急时刻，国家领导人应团结民众而不是分裂社会。因此，贵为一国总理的以上这种不负责任的言行是不可理喻的。
+印度正在广泛推广使用伊维菌素来治疗中共新冠病毒。值得指出的是，北方邦是印度人口最密的邦，人口比美国这里要密得多，所以那里根本不可能实行适当的新冠病毒的社交疏远，那这一切向我们说明了什么呢？
 
-此外，在疫苗接种政策方面，政府一如既往，并未将疫情真相告知公众，并在当初毫无医学证据的情况下，向人们许诺疫苗有效。现在又鼓动第三甚至更多剂量的疫苗注射，以试图遏制目前失控的疫情。特鲁多这种明知疫苗无效却仍推广接种的行径是邪恶的。
+视频链接：[India declares officially COVID-19 FREE after widespread use of Ivermectin](https://twitter.com/1745t/status/1444503553146458123?s=21)
 
-报道最后指出，目前疫情恶化的事态让特鲁多恐惧万分，并急需找到替罪羊来替其政府承担一切灾难后果。而加拿大少数未接种疫苗者自然就成为当局最终污名化和栽赃的对象。
-
-校对编辑：硫酸羟氯喹64
-
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://tnc.news/2022/01/10/is-justin-trudeau-losing-his-grip-on-reality1/)
+*发布：Mttfly*
+**
+更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,16 +2,25 @@
 ---
 
 
-## 美国、全球金融市场最新动向和分析
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1850983/)
+## 俄罗斯要求从美国获得安全保证
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850991/)
 
-——文贵大直播20220112
+#### 翻译：Ping
+校对：枳实
+字幕/剪辑：蛮吉
 
-撰稿：BEN（雅典娜） 新生（秘翻） 指导：哈雷（扬帆）巍峨泰山（伊甸）
+俄罗斯的指控越来越夸张，它说美国已经准备好用高超音速导弹和化学武器瞄准它。普京说他已经退无可退。美国只是希望事情能稳定下来一些
 
-美工：雷蒙（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8.png)
-*发布：Theodosia*
+视频链接：[Putin demands US assurances on security as Russia completes hypersonic weapons test](https://www.foxnews.com/world/putin-assurances-security-russia-hypersonic-weapons-test)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
