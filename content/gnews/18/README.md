@@ -2,26 +2,28 @@
 ---
 
 
-## 《时代革命》将于2月25日在台湾上映
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852056/)
+## 河南安阳因奥密克戎封城
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852079/)
 
 作者：纽约磐石农场—在远方
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
 
 
-台媒1月11日报道，记录香港人争取民主自治而付出万般血泪的纪录片《时代革命》，宣布将于2月25日于台湾正式上映。该片导演周冠威表示，这部电影无法在香港上映，并呼吁人们珍惜自由。
+台媒1月11日报道，由于中共病毒疫情持续扩散，中共河南省已成为疫情新热点。当地时间10日晚，拥有500万居民的河南省安阳市宣布封城。
 
-据悉，纪录片《时代革命》，以2019年香港反对《逃犯条例修订草案》运动为背景，描述曾经繁荣辉煌的香港，一夜之间成为对抗中共独裁统治的战场。电影透过抗争运动中七组不同示威者的视角，详细记录了香港人民，捍卫他们应得的自由与民主过程。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-35.png)图源网络
 
-该片历时两年秘密拍摄完成，2021年获邀在法国戛纳电影节首映，震撼外媒，引发国际瞩目。之后《时代革命》于去年在台湾金马影展放映，激起全场观众高昂情绪，不仅夺下金马影展观众票选奖冠军，更是勇夺第58界金马奖最佳纪录片奖。
+据悉，中共国10日新增本土病例110例，其中河南省87例。目前安阳市累计确诊84例，但是由于其中包含奥密克戎病例，当局随即于10晚紧急宣布封城，暂停人员流动，并开展全员核酸检测。
 
-新闻链接：[https://ent.ltn.com.tw/news/breakingnews/3796977](https://ent.ltn.com.tw/news/breakingnews/3796977)
+安阳市防疫指挥部通告称，全市所有居民除核酸检测外足不出户，全市所有机动车不得上路行驶，所有商点超市除保障日常生活外，全部暂停营业，其他生产经营单位和所有门店及外卖全部暂停营业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
+新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3797182](https://news.ltn.com.tw/news/world/breakingnews/3797182)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 

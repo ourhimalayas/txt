@@ -2,22 +2,52 @@
 ---
 
 
-## 拜登的荒唐议程注定流产
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1851991/)
+## “我不想接种疫苗。科学还不够强大”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852018/)
 
-#### 编撰：白夜
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16420101381.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16420101381.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D4645A37-1F4E-430B-B4D8-5FF2C564D172.jpeg)图片来源：thegatewaypundit.com
 
-AXIOS的记者Sneak Peek1月11日报道，周二，拜登利用自己在乔治亚州的“天字第二号讲坛”，做了最后的努力，试图向公众施加压力，不是针对共和党人，而是针对他自己的政党。他敦促他的民主党同僚利用他们对国会和白宫的完全控制来通过广泛的投票权立法。
+伦敦南部国王学院医院的麻醉师顾问Steve James医生挑战并告诉英国卫生部长，他不会接种COVID疫苗，他在感染COVID后的“自然免疫力”相当于或优于接种疫苗的人。
 
-随着中期竞选的升温，尽管拜登总统现在将投票保护视为最紧迫的国内问题，但民主党高层议员认为，民主党基层所要求的任何议案都很难获得通过。“我们正在努力寻找实现这一目标的途径。但这很难。”纽约州民主党众议员贾马尔·鲍曼(Jamaal Bowman)对Axios的安德鲁·索兰德(Andrew Solender)说。当被问及民主党的策略时，参议员马克·凯利(亚利桑那州民主党)讽刺地说。“我在这里已经14个月了。美国参议院的运作方式是我从未见过的。” “人们可以理解偶尔没有选票，但他们不能理解为什么我们没有提出70%或80%的美国人民支持的重要立法，”桑德斯说。
+卫生部长Sajid Javid在访问医院时，就政府对NHS（国家卫生系统）员工强制接种COVID疫苗的政策与这位未接种疫苗的医生发生了冲突。
 
-拜登提出的《投票自由法案》很可能会失败，因为共和党人一致反对，而且亚利桑那州民主党参议员克里斯滕·西内马(kirsten Sinema)和西弗吉尼亚州民主党参议员乔·曼钦(Joe Manchin)也拒绝降低投票门槛，这种共识是超越党派的。
+去年12月，国会议员制定了法律，强制要求包括护士在内的英格兰所有面向病人的卫生和社会护理人员接种Covid-19疫苗。
 
-在目前极度两极化的国会环境中，这不是一件小事。川普的支持者试图利用《选举计数法》来扭转2020年的选举结果。
+在Javid访问期间，他向重症监护室的工作人员询问了他们对NHS工作人员强制接种疫苗的看法。护士们没有回答，但詹姆斯医生打断了他们，并说他对强制要求不满意。
 
-原文链接：[The Biden agenda is meeting a dead end – Axios](https://www.axios.com/biden-agenda-dead-end-763109db-1210-4a2e-9d22-caee5a63aa62.html)
+这位勇敢的医生说：“我在某个时候有过COVID。是的，我有抗体。我从一开始就在COVID ICU上工作。我还没有接种过疫苗。我不希望接种疫苗。疫苗只能减少Delta的传播8周，Omicron的传播可能更少。为此，如果我不接种疫苗，我就会被解雇。科学还不够强大。”
+
+James医生补充说，还有一个同事也处于同样的情况。
+
+然后，卫生部长回应说：“我理解这一点。很明显，我们不得不为健康和社会护理权衡所有这些，而且总会有关于这个问题的辩论。”
+
+James医生建议，也许有机会重新考虑规则，允许那些已经有了抗体而没有接种疫苗的医生不接种COVID疫苗。
+
+“因为我从传播中得到的保护可能与接种过疫苗的人相当”，他补充说。
+
+但卫生部长认为他的自然免疫力也会减弱。
+
+然后医生给他上了一堂关于疫苗的免费复习课。
+
+“但是，如果你想用加强针提供保护，你就必须每个月给每个人注射。如果到了两个月，如果保护被磨掉了，两个月后的传播，那么一个月后，你仍然有一点保护。所以你想保持保护，你就需要每个月都给所有工作人员打针，这是不可能的”，James医生说。
+
+国王学院医院就其新规定发表了一份声明：
+
+“虽然目前没有强制要求员工接种COVID-19疫苗或向病人透露接种状态，但我们强烈支持并鼓励所有员工按照国家指导意见接种疫苗–我们近90%的员工已经这样做了。”
+
+
+
+参考资料：[thegatewaypundit][“I Do Not Want to Have a Vaccination.. The Science Isn’t Strong Enough” – Brave Doctor Challenges UK Health Secretary and Tells He Will Not Get the Jab (VIDEO)](https://www.thegatewaypundit.com/2022/01/not-want-vaccination-science-isnt-strong-enough-brave-doctor-challenges-uk-health-secretary-tells-will-not-get-jab-video/)
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 

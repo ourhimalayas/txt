@@ -2,52 +2,44 @@
 ---
 
 
-## “我不想接种疫苗。科学还不够强大”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852018/)
+## 美国数州动用军队帮助医院应对不断攀升的奥米克戎感染
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1852045/)
 
-编译：七叶之芒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/D4645A37-1F4E-430B-B4D8-5FF2C564D172.jpeg)图片来源：thegatewaypundit.com
-
-伦敦南部国王学院医院的麻醉师顾问Steve James医生挑战并告诉英国卫生部长，他不会接种COVID疫苗，他在感染COVID后的“自然免疫力”相当于或优于接种疫苗的人。
-
-卫生部长Sajid Javid在访问医院时，就政府对NHS（国家卫生系统）员工强制接种COVID疫苗的政策与这位未接种疫苗的医生发生了冲突。
-
-去年12月，国会议员制定了法律，强制要求包括护士在内的英格兰所有面向病人的卫生和社会护理人员接种Covid-19疫苗。
-
-在Javid访问期间，他向重症监护室的工作人员询问了他们对NHS工作人员强制接种疫苗的看法。护士们没有回答，但詹姆斯医生打断了他们，并说他对强制要求不满意。
-
-这位勇敢的医生说：“我在某个时候有过COVID。是的，我有抗体。我从一开始就在COVID ICU上工作。我还没有接种过疫苗。我不希望接种疫苗。疫苗只能减少Delta的传播8周，Omicron的传播可能更少。为此，如果我不接种疫苗，我就会被解雇。科学还不够强大。”
-
-James医生补充说，还有一个同事也处于同样的情况。
-
-然后，卫生部长回应说：“我理解这一点。很明显，我们不得不为健康和社会护理权衡所有这些，而且总会有关于这个问题的辩论。”
-
-James医生建议，也许有机会重新考虑规则，允许那些已经有了抗体而没有接种疫苗的医生不接种COVID疫苗。
-
-“因为我从传播中得到的保护可能与接种过疫苗的人相当”，他补充说。
-
-但卫生部长认为他的自然免疫力也会减弱。
-
-然后医生给他上了一堂关于疫苗的免费复习课。
-
-“但是，如果你想用加强针提供保护，你就必须每个月给每个人注射。如果到了两个月，如果保护被磨掉了，两个月后的传播，那么一个月后，你仍然有一点保护。所以你想保持保护，你就需要每个月都给所有工作人员打针，这是不可能的”，James医生说。
-
-国王学院医院就其新规定发表了一份声明：
-
-“虽然目前没有强制要求员工接种COVID-19疫苗或向病人透露接种状态，但我们强烈支持并鼓励所有员工按照国家指导意见接种疫苗–我们近90%的员工已经这样做了。”
+作者：银河勇气星—骄子
 
 
 
-参考资料：[thegatewaypundit][“I Do Not Want to Have a Vaccination.. The Science Isn’t Strong Enough” – Brave Doctor Challenges UK Health Secretary and Tells He Will Not Get the Jab (VIDEO)](https://www.thegatewaypundit.com/2022/01/not-want-vaccination-science-isnt-strong-enough-brave-doctor-challenges-uk-health-secretary-tells-will-not-get-jab-video/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-* * *
 
-*审核：蚂蚁兄弟*
-*校对 : 阿伯塔*
-*发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+
+
+近期随着奥米克戎感染的极速增加，美国各州医疗系统随时面临崩溃。为了维持医疗系统的正常运转，包括奥米克戎病毒检测及满足其他流行病的要求，一些州求助于国民警卫队。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/４.jpg)图源网络
+
+据悉在过去一年里，数州州长一直都在部署警卫以应对新冠病毒大流行。俄亥俄州、明尼苏达州、罗德岛州、加州、马里兰州、夏威夷州、俄勒冈州等已经动员数名国民警卫人员支持医护人员。其中马里兰州已宣布该州进入紧急状态。
+
+总统拜登指示五角大楼动员现役军人加入此行动，目前为止，新罕布什尔等几个州已经得到帮助
+
+新闻链接：[https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp](https://thehill.com/policy/defense/589022-states-turning-to-national-guard-for-covid-19-help?amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-88.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

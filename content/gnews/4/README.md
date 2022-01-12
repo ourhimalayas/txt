@@ -2,67 +2,45 @@
 ---
 
 
-## WHO突然转向 警告不要持续接种疫苗加强剂
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1852147/)
+## 炸裂消息：最高层协调的蓄意过失杀人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/W.jpg)thekycker.com
-就在笔者刚刚投稿完毕（《欧洲监管机构警告频繁接种加强剂危害免疫系统》【1】），又出现了后续报道，世界卫组织（WHO）也步欧洲药品管理局（EMA，European Medicines Agency）后尘，发出警告不要持续接种中共（新冠）病毒疫苗。
+翻译： Jenny Ball
 
-来自《门道专家》1月12日的文章，题目是“震惊：世界卫生组织加入欧盟行列改变了方向 —— 突然警告不要持续施打中共病毒疫苗加强剂”。【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
 
-全文如下：
+周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
 
-周二（1月11日），欧洲监管机构警告说，中共病毒疫苗加强剂可能对免疫系统产生不利影响。
+新公布的军事文件与福奇博士的宣誓证词相矛盾。
 
-这对欧洲官员来说是一个巨大的昭告变化，因为他们在几周前就开始了加强剂的施打。怎么搞的？
+真相工程发布：
 
-然后在当天晚些时候，世界卫生组织加入了欧盟的行列，也谴责了持续的加强剂方案。
+- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
+- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
+- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
 
-这么快。
 
-发生啥了？
+真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
 
-关于实验性mRNA疫苗，他们现在看到了什么是一个月前他们没看到的？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-114.png)
-世界卫生组织在周二（1月11日）发布的一份声明中表示，“基于原疫苗成分的反复接种加强剂的疫苗策略，不太可能是合适的或是可持续的。”
+“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
 
-亚历克斯·贝伦森（Alex Berenson）在《子栈》（Substack）上的文章摘要：
+周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
 
-现在，世界卫生组织也在中共病毒疫苗加强剂问题上挥起了白旗。
+马龙博士称它“比五角大楼的文件更重磅”。
 
-世界卫生组织昨天发布了一份关于中共病毒疫苗的声明，它充满了常见的公共卫生术语和屁话，但有一句话很突出：
+沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
 
-基于原疫苗成分的反复接种加强剂的疫苗策略，不太可能是合适或是可持续的。
+娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
 
-一切都结束了，各位。
+**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
 
-除了少数倒霉的以色列人，没有人会接种第四剂原始疫苗；每个有眼睛的人都能看到它对奥密克戎不起作用。（如果你还没有接种第三剂，那么你为什么要接种呢？你最多可只能得到几周的轻微提高的保护，但要承受有可能的严重副作用。）
+* * *
 
-相反，世界卫生组织现在正在承诺/满足要求的疫苗，是基于目前中共病毒毒株的主要品种研制的疫苗。
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-这一承诺与卫生官员和疫苗公司所作的所有其他承诺一样空洞。
-
-在过去的一年里，至少有五个主要变体（“变异毒株”）在发展，两个已经成为全球主导，即使是mRNA疫苗也无法快速制备和提供来匹配任何占主导的病毒株。中共病毒的发展速度比科学家快。
-
-（原文完）
-
-中共病毒疫苗强制政策走到头了，要结束了！
-
-欧盟、世界卫生组织都表态了，虽然很含蓄，知道内幕、认知阴谋集团的人就能读出其中的奥秘。
-
-即将进入清算阶段！
-
-战友们加油！
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1851976/](https://gnews.org/zh-hans/1851976/)
-
-【2】[https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 
