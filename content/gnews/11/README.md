@@ -2,27 +2,23 @@
 ---
 
 
-## 美国上千家医院出现严重人力短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
+## “掩耳到零”政策遭打脸 西安再曝13例本土病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851878/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
-与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
+1月10日，中共陕西省西安市再次曝出该市当日新增了13例本土病例的疫情消息。省委书记刘国中在当晚的防控会上无奈发言称，当地的防疫政策确实存在漏洞，相关防疫部门要对隔离点管理、社区管控等方面存在的问题进行整改。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-5.jpg)
+早在一周前，西安市政府就曾公开宣称，该市辖区内已经实现了“社会面清零”的防疫成果。但据大量当地民众反应，西安市此前所谓的“社会面清零”政策实际上是当地政府“掩耳盗铃”式的虚假行径。果然，西安在通告后不到一周的时间就再次曝出单日新增13例本土确诊的突发消息，无疑是再次狠狠打脸官方的“社会面清零”政策。
 
-有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
+此次会上，刘国中再次提出要一切防疫政策要从严、从细，尽快实现社会面彻底清零的防疫目标。有知情人士评论，不知道又有多少无辜民众要被迫转移到隔离点了，但西安的防疫政策已成一出闹剧。
 
-在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
-
-目光转向国内，中国疫情持续蔓延，情况不容乐观。
-
-参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
+参考链接：[“掩耳到零”政策遭打脸 西安再曝13例本土病例](http://sn.people.com.cn/n2/2022/0111/c186331-35089954.html)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：天灭中共
-编辑：天灭中共
+总编：飞虹
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -33,8 +29,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

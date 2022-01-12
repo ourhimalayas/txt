@@ -2,33 +2,39 @@
 ---
 
 
-## 2022/01/10 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1851865/)
+## 美国上千家医院出现严重人力短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851877/)
 
-1. 1月10日，天津。一名医护工作者疑因工作压力太大，在给市民做核酸检测的过程中精神失常。
-2. 1月8日，江苏宿迁。失踪十几天的24岁男教师已确认死亡，被打捞上岸。家属称：九月刚入职，疑工作压力大。
-3. 女子开快递公司，公司运送快递的快递车天天被警察查扣，压力太大，没法活了要跳河！
-4. 1月8日，四川，高速路上夫妻吵架，丈夫一怒之下喝下农药寻死。
-5. 1月8日，河南郑州，市民在地下车库做核酸检测时看到了一辆在几个月前河南特大暴雨被淹过再没有挪动的车。真相不能被谈起，灾难就容易被忘记。
-6. 1月7日，河南郑州。政府在镜头前高调恐吓老百姓，不参加核酸检测的，将会承担法律责任。
-7. 1月7日，陕西西安。政府依然在高频率大规模的建设用于集中管理所谓隔离人员的“集中营”。
-8. 1月5日，陕西西安，西安防疫志愿者往围栏抹黄油，是为了防止小区居民不服从管理，翻墙购买生活物资。
-9. 
-10. 1月8日凌晨，湖南衡阳一医养中心发生火灾，致5人死亡。
-11. 1月8日，浙江嘉兴。一化纤厂突发大火，现场大面积燃烧，巨大黑烟直冲云霄。
-12. 1月8日，浙江杭州。杭州萧山一俄罗斯货机起火，8名机组人员被救出。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒1月11日报道，根据最新数据显示，美国5000家医院当中，有近24%的医院正经历着不同程度的人力短缺，这是疫情爆发以来情况最严峻的一次，美国卫生与公众服务部预计本周内还会有100家医院将出现类似情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-4.jpg)
+与此同时，全国医疗中心预测，本周二，中共病毒感染者的单日最高住院记录可能会被再次刷新。
+
+有媒体对约翰·霍普金斯大学提供的数据进行分析，发现仅新年前后的10天内，美国有至少30%的城镇创造了中共病毒单日确诊病例的最高记录。自1月3日以来，过去的八天时间内，全美确诊病例数六次刷新纪录，周一报告的确诊总数超过138万例，是周日总数的四倍。
+
+在洛杉矶，随着感染病例激增，各医院医务人员的感染率也在上升，这一现象进一步加剧了医疗中心人力短缺问题的严重程度。
+
+目光转向国内，中国疫情持续蔓延，情况不容乐观。
+
+参考链接：[美国上千家医院出现严重人力短缺](https://www.usatoday.com/story/news/health/2022/01/10/covid-case-records-chicago-schools-novak-djokovic-omicron-updates/9151990002/)
+
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：天灭中共
+编辑：天灭中共
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

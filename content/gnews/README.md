@@ -15,92 +15,92 @@
 
 ---
 
-### [欧洲监管机构警告频繁接种加强剂危害免疫系统](/content/gnews/1/README.md)
+### [大卫作战室直播精要2022/01/12](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧洲监管机构警告频繁接种加强剂危害免疫系统](/content/gnews/2/README.md)
  ` 华盛顿DC-Russian`
 
-### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(II)](/content/gnews/2/README.md)
+### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(II)](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/3/README.md)
+### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022/01/11 墙内世界](/content/gnews/4/README.md)
+### [2022/01/11 墙内世界](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(I)](/content/gnews/5/README.md)
+### [雷纳-福尔米奇介绍纽伦堡2.0审判的最新情况(I)](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们NHS 工作人员不能接受来自疫苗授权的操纵和胁迫](/content/gnews/6/README.md)
+### [我们NHS 工作人员不能接受来自疫苗授权的操纵和胁迫](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/7/README.md)
+### [河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [COVID疫苗的最新重磅炸弹将摧毁大型药企](/content/gnews/8/README.md)
+### [COVID疫苗的最新重磅炸弹将摧毁大型药企](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/9/README.md)
+### [中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/10/README.md)
+### [“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [美国上千家医院出现严重人力短缺](/content/gnews/11/README.md)
+### [美国上千家医院出现严重人力短缺](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [2022/01/10 墙内世界](/content/gnews/12/README.md)
+### [2022/01/10 墙内世界](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞前副总裁称Covid疫苗是设计的毒药——是减少全球人口的武器](/content/gnews/13/README.md)
+### [辉瑞前副总裁称Covid疫苗是设计的毒药——是减少全球人口的武器](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [串珠529:灭王力宏是为了灭曾庆红家族和抢钱](/content/gnews/14/README.md)
+### [串珠529:灭王力宏是为了灭曾庆红家族和抢钱](/content/gnews/15/README.md)
  ` 郭爆料串珠`
 
-### [GTV新闻访谈简报|2022年1月12日早](/content/gnews/15/README.md)
+### [GTV新闻访谈简报|2022年1月12日早](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [起来反抗！封控成中共新杀戮模式](/content/gnews/16/README.md)
+### [起来反抗！封控成中共新杀戮模式](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/17/README.md)
+### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|王毅新年窜访五国 必有所图](/content/gnews/18/README.md)
+### [有声|王毅新年窜访五国 必有所图](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒](/content/gnews/19/README.md)
+### [【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/20/README.md)
+### [有声|福克斯当家主持塔克·卡尔森加入盖特](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|CDC主任公然将死亡病例归因为终末期患者](/content/gnews/21/README.md)
+### [有声|CDC主任公然将死亡病例归因为终末期患者](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [适用疫苗通行证的10多岁青少年，绝对不能注射疫苗的理由！](/content/gnews/22/README.md)
+### [适用疫苗通行证的10多岁青少年，绝对不能注射疫苗的理由！](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [中共玩弄风水必将亡于天命](/content/gnews/23/README.md)
+### [中共玩弄风水必将亡于天命](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [安省基础医疗服务系统已不堪重负](/content/gnews/24/README.md)
+### [安省基础医疗服务系统已不堪重负](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [1/11 银河快讯:日美考虑控制对中共国先进技术出口；东京新公寓价格是平均年收入13.4倍](/content/gnews/25/README.md)
+### [1/11 银河快讯:日美考虑控制对中共国先进技术出口；东京新公寓价格是平均年收入13.4倍](/content/gnews/26/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/26/README.md)
+### [有声|中共为维护邪魔统治在昆仑山设下风水祭坛](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [预防新冠病毒 口服药物解说——伊维菌素篇(2022年1月11日更新)](/content/gnews/27/README.md)
+### [预防新冠病毒 口服药物解说——伊维菌素篇(2022年1月11日更新)](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [人类将在与中共的三个层次争战中大获全胜](/content/gnews/28/README.md)
+### [人类将在与中共的三个层次争战中大获全胜](/content/gnews/29/README.md)
  ` GTV新闻访谈`
-
-### [美国邮政是否在伊维菌素订单上做了手脚？](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [1/12银河快讯:日本疫情持续，但未要求关闭所有学校；新冠病毒在1月造成更多破产](/content/gnews/30/README.md)
  ` 日本银河系农场-阿尔法星球`
