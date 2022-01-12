@@ -2,54 +2,37 @@
 ---
 
 
-## 七哥谈盘古龙头到各神峰的神奇距离（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852165/)
+## 欧盟监管机构：COVID 加强针“可能会产生不利影响”，“最终会削弱免疫力”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1852274/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Man-Gets-COVID-Vaccine-Darwin-Mask-817x429-1.jpg)图片来源：网络
+来自NATIONAL FILE星期三1月13日的新闻报道：
 
-来源：郭先生2022-01-09直播08：42：27摘录
+《国家档案》（National File） 去年 12 月报道称，以色列专家警告称，注射 COVID-19“加强剂”会导致所谓的“免疫系统疲劳”。
 
-郭文贵先生：看看，墨镜兄弟厉害啊，刚才弄了个2122。我说你怎么弄2122？你把7都给忘了。这个是从盘古，这是我看看，这测量距离，这是哪儿到哪儿啊，这是？你念一下，念一下。慕士塔格山吗？
+现在，欧盟监管机构也加入进来，警告称注射加强剂可能会“削弱”免疫系统。
 
-墨镜：这个是公格尔山到盘古龙头的距离。
+12 月，《国家档案》在《纽约时报》发表的一篇文章中报道，专家们承认，过多的 COVID-19 加强注射实际上可能会导致“免疫系统疲劳”，从而“损害”人体对抗病毒的能力。
 
-郭文贵先生：公格尔九别山，是吗？是公格尔九别山，对吧？公格尔九别山，2178公里，下一张。
+现在，彭博社报道称，欧盟监管机构也正参与，一起拉响警报。
 
-郭文贵先生：这个是哪个？我这看不清楚。这电视显示得不清楚。
+欧盟警告说，“频繁的 Covid-19 加强注射可能会对免疫系统产生不利影响，并且可能行不通”，并补充说，“每四个月注射一次可能最终会削弱免疫系统并让人们疲惫不堪”。
 
-墨镜：这个是慕士塔格峰到盘古的距离，
+EMA ‘生物健康威胁和疫苗战略’负责人 Marco Cavaleri 在周二的新闻发布会上表示，加强针“可以进行一次，或者可能两次，但不应该不断重复”。 “我们需要考虑如何从当前的病毒大流行环境过渡到地方病的环境。”
 
-郭文贵先生：慕士塔格山，7500多米，这个海拔。下一个。
+因此，他们现在建议人们扩大注射疫苗的时间间隔，并在决定再次注射时考虑结合本地的冬季流感开始时间。
 
-郭文贵先生：昆仑女神峰，是吧？昆仑女神峰是7177米啊，这个山。多远呢？这是多远能看到的是？
+欧盟的警告是针对辉瑞和 Moderna 首席执行官们的主流媒体发起了的一场推动第四次 COVID-19 疫苗注射的运动。
 
-墨镜：3144公里。
+点评：事实已经证明了，福奇和大药厂的CEO们不得不承认了的， 疫苗不好用，没有效！那么为什么暗黑势力支持的各国政府还在赤裸裸的大力强制疫苗呢？不值得深思吗？
 
-郭文贵先生：好，这个是哪个？墨镜兄弟。
+原文链接: [https://nationalfile.com/eu-regulators-covid-boosters-adversely-affect-eventually-weaken-immune-system/](https://nationalfile.com/eu-regulators-covid-boosters-adversely-affect-eventually-weaken-immune-system/)
 
-墨镜：这个是昆仑女神峰。
+编辑/发布：LILY
 
-郭文贵先生：昆仑女神峰，下一个。
-
-郭文贵先生：慕士塔格峰，慕士塔格峰也是7000米。这个厉害，慕士塔格峰相当厉害。布喀达板峰，这也是7000米，这也是7000米，这都是7000米。这跟七真有关系。看到了吗？看到了吗？跟七有关系吧？慕士山，慕士山啊，也是7000米。大家看一看，这都是从盘古过去的。你看这个地球，印度洋，整个大西洋，你看看整个所有的这个黄土高原、大陆板块。然后你没有去过不丹，不丹有一个莲花生佛、莲花生庙。你到了莲花生佛，你到不丹的时候，你再到尼泊尔。尼泊尔一长条儿，不丹下面是一个方的，不丹是从北往南方，尼泊尔是整个的东西长。大家你看过这个，你就知道了。然后，你再看台湾，你再看老挝、泰国、越南，你再看看中国。你看上边角有个吉尔吉斯坦、哈萨克斯坦、阿塞拜疆，当然了就是新疆嘛。所以你可以看得很清楚。孟加拉国，刚才我老说孟加拉国。孟加拉国也会有大动静，已经开始了。所以说好，回到这个画面。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+20220112
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
