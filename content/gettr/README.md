@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/12/2022 1:01 PM (UTC)`
+
+2022年1月12日 文贵大直播：美国香港世界金融市场；冬奥会防疫社会面清零；病毒疫苗灾难肆虐全球；中共二十大前内斗加剧
+![img](https://media.gettr.com/group27/origin/2022/01/12/12/47591cb9-b091-d2ff-643c-d86fee808134/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ahnewsfeed 1/11/2022 7:36 AM (UTC)`
@@ -159,15 +166,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 `@jasonmillerindc 1/10/2022 7:34 PM (UTC)`
 
 🚨🚨🚨Welcome to #GETTR, @tuckercarlson!!!🚨🚨🚨
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tuckercarlson 6/18/2021 1:00 AM (UTC)`
-
-Louise Burke was forced out of Simon &amp; Schuster for her political views. She’s not the first. Read more in this new book, published by Simon &amp; Schuster.  http://bit.ly/CarlsonTLS  
-![img](https://media.gettr.com/group21/tw/2021/06/28/21/08f378ea-f0ad-4249-8401-313fcea54c6a/a1e272a5-74d0-bbfe-d0b9-530c8f95d5a5/out.jpg)
 
 ---
 
