@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|欧米炕高传染慢性杀人 疫苗危机下防范意识最重要
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1848763/)
+## 立陶宛力挺台湾 中共指责美国煽动
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1848781/)
 
-配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/L.jpg)heritage.org
+布赖特巴特新闻报道，立陶宛无意在与中共的斗争中退缩，它力挺台湾，坚决拒绝外国独裁者决定其命运。美国官员表达了对这个欧盟成员国的支持，中共指责华盛顿在有关台湾自治地位的争执中煽动立陶宛“遏制中共国”。
 
+美国和立陶宛官员说，自从台湾政府获准在立陶宛以台湾的名义开设贸易办事处以来，中共一直阻止从这个北约国家进口商品。中共向企业和外国政府施压，要求它们在台湾、西藏和其他敏感问题上采取中共国的立场，立陶宛是最新的引爆点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生在2022年1月7日大直播中向战友们披露，最近又有多位战友感染了中共病毒，包括木兰传奇的丈夫。这次被传染的战友都是平时很注意防护很小心谨慎的，仍然被感染，说明现在传播的病毒欧米炕是极具传染性的。
+立陶宛议会与台湾关系小组主席马塔斯·马尔代基斯 （Matas Maldeikis）议员在接受采访时表示，立陶宛与中共的对抗是一个国家安全问题，立陶宛必须站起来，反对威权主义，支持民主，以防止国家重蹈上世纪被前苏联压迫后被德国占领的覆辙。他强调：“我们不想重蹈上世纪40年代的覆辙，当时的独裁政权是斯大林和希特勒，他们私下决定我们的命运。”
 
-我们的科学家战友指出新变种欧米炕是慢性杀人，它对机体的损害也是很可怕的。他强调新变种同样是生化武器，任何生化武器元素进入身体里边，都会让人随时死掉，慢死、早死或者得癌症死。
+马尔代基斯称共产主义威权已扩大侵犯到整个欧盟。中共采取了一项非同寻常的举措，不仅阻止了从立陶宛的进口，还对其他欧盟国家用立陶宛生产的部件生产的产品实施了封锁，影响了瑞典、法国、尤其是德国的公司。
 
-另外，郭先生还强调mRNA疫苗本身就是病毒，刺突蛋白会脱落会传染，让人没有出门就被感染。现在被感染的绝大多数都是打了疫苗的人，战友们就生活在打了疫苗的人群中。
+美国贸易代表戴琪 （Katherine Tai）表达了对立陶宛的支持，称立陶宛“面临经济胁迫”。
 
-郭先生提醒战友们一定要提高防范意识，一定要准备好药，疫苗灾难下防范意识比解药还重要。
+中共外交部发言人汪文斌说：“美国煽动立陶宛当局破坏‘一个中共国原则’。它支持、帮助和教唆他们在错误的道路上走得更远，以实现其遏制中共国的政治盘算。”作为报复，中共驱逐了立陶宛大使。立陶宛已经关闭了在北京的大使馆。
 
-文字版原文：[欧米炕高传染慢性杀人 疫苗危机下防范意识最重要](https://gnews.org/zh-hans/1843247/)
+过去一周，立陶宛对台湾的支持得到了回报，台湾宣布计划向这个波罗的海国家投资2亿美元。除了承诺的2亿美元外，台湾烟酒集团（TTL）本周还宣布，将购买2万瓶立陶宛朗姆酒，这些酒被禁止运往中共国。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+马尔代基斯说，如果台湾能给立陶宛带来繁荣，它将是“进入欧洲的一道裂缝”，而能打开更多合作的大门。马尔代基斯信心十足地说，在未来会向立陶宛公民表明，与中共国对抗不仅是一种道德努力，而且可以在增加贸易和为立陶宛带来就业机会方面形成“双赢局面”，这一点至关重要。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[https://www.independent.co.uk/news/world/europe/china-lithuania-beijing-taiwan-washington-b1989872.html](https://www.independent.co.uk/news/world/europe/china-lithuania-beijing-taiwan-washington-b1989872.html)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://www.breitbart.com/europe/2022/01/08/exclusive-lithuania-wont-let-china-decide-our-fate-like-stalin/](https://www.breitbart.com/europe/2022/01/08/exclusive-lithuania-wont-let-china-decide-our-fate-like-stalin/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**华盛顿DC 银河**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编辑发布  水星**
 
  
 
