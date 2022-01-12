@@ -2,40 +2,48 @@
 ---
 
 
-## 有声|我的写作之路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849446/)
+## 前印度储备银行行长被任命为驻北京的亚投行副主席
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1849470/)
 
-配音：香草山农场- 纳米
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-从小在大人们眼里聪明伶俐的我，是在众星捧月般的疼爱中长大的，加上父亲是村里数一数二会赚钱的人，所以我的童年在别人的新老大旧老二破老三的时代里，过着富余的生活，在父亲、奶奶的特别呵护下无忧的、骄傲的，在温暖中成长，七大姑八大姨送的好吃好穿也只给我，在儿时的小伙伴们羡慕的眼神中，一路顺风长大。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-所以我从小心里满满都是感恩，养成了知恩图报的性格，也许这也是我后来经历挫折受尽磨难依然保持善良的最大奠基，也是上天赐予我缘结爆料革命的一个基石。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-833.png)**图片来源：PTI**
 
-我酷爱书籍，喜欢文字，性格偏向多愁善感，小时候怀有强烈的做作者的梦想，中小学时期的作文是我值得炫耀的成绩，而且习惯写日记，也因为小脑袋常出现各种人物故事的情节而自己动笔偷偷编写小说。那个时候的我觉得世界是美好的，有种想把所有美好的事物编写成文字的冲动，自大的认为我一定有不一样的命运，觉得自己的人生会跟别人不一样。
+**翻译：George Warshing**
+**编辑：小红帽**
 
-原文链接：[我的写作之路](https://gnews.org/zh-hans/1846448/)
+根据《Hhindustan Times》1月9日报道，印度储备银行（RBI）前行长乌尔吉特·帕特尔（Urjit Patel）被任命为总部在北京的多边开发银行——亚洲基础设施投资银行（AIIB）的副行长。
 
-音频处理：Daxia
+自2016年亚投行成立以来，印度是其仅次于中国的第二大股东，而潘迪安（DJ Pandia）一直任副总裁兼首席投资官。他曾是前古吉拉特邦首席秘书。如今他在亚投行的职务将由帕特尔接替。
 
-**发稿：**Daxia
+帕特尔目前是国家公共金融与政策研究所的主席。该研究所是隶属于财政部的一个研究中心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+出生于内罗毕的帕特尔据传与全国民主联盟（NDA）政府在财政政策上出现分歧后，于2018年辞去了印度储备银行行长的职务。
 
-**更多资讯，更多关注**
+这位著名的印度经济学家将在亚投行扩大其在发展中国家尤其是印度的足迹之际接任副总裁。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+目前亚投行由中国的金立群任行长，现在其属下有五位副行长。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+印度是亚投行成立六年来最大的借款国。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+即将离任的潘迪安在去年底与媒体的互动中表示：“亚投行在印度的顶级投资市场有28个项目，价值67.1亿美元。”
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+印度尼西亚、土耳其、孟加拉国和中国是该银行接下来的四个借款国，总投资额超过了70亿美元。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+潘迪安表示，亚投行资助了印度各行业的项目，尤其是交通和能源领域。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+截至2021年10月22日，亚投行共批准了为31个国家的147个项目的贷款，总金额为289.7亿美元。
 
+原文链接：[Former RBI guv Urjit Patel appointed Beijing-based AIIB vice-president | World News – Hindustan Times](https://www.hindustantimes.com/world-news/former-rbi-guv-urjit-patel-appointed-beijing-based-aiib-vicepresident-101641717561771.html)
 
+*发布：盘古相聚*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

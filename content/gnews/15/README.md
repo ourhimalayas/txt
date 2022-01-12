@@ -2,38 +2,37 @@
 ---
 
 
-## 有声|清零不要命 可怜西安人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849366/)
+## 乌比-戈德堡“震惊”于感染COVID，尽管三次接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1849411/)
 
-配音：香草山农场- 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-近日，中共西安市为了完成上级下达的所谓疫情“清零”任务，采取了种种非人道措施，造成了民众生活不便、食物短缺、无法就医甚至延误病情致死亡等人道灾难，引发了世界的关注。纽约香草山战友剪辑的一则综合视频深刻反映了中共治下西安市的这种“盛世乱象”。
+据《summit.news》作者：Paul Joseph Waston，2022年1月6日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-829.png)图片来源：盖蒂图片社
+《观点》节目主持人乌比-戈德堡对感染COVID-19表示“震惊”，尽管她已经接种了三针疫苗。
 
-原文链接：[清零不要命 可怜西安人](https://gnews.org/zh-hans/1845572/)
+这位女演员和电视节目主持人在圣诞节期间感染了病毒后，错过了节目的第一集，不得不通过远程直播从家中出现。
 
-音频处理：Daxia
+据戈德堡说，她“几周前离开了，就在节日前，因为我身边的某人被检测出冠状病毒阳性”。
 
-**发稿：**Daxia
+“这是一个冲击，因为你知道我已经打了三针疫苗，没有去过任何地方，没有做过任何事情”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+当然，戈德堡在接受了双重疫苗接种和增强针后仍被感染的事实一点也不令人震惊，因为病毒仍在接种者中传播。
 
-**更多资讯，更多关注**
+丹麦的一项新研究发现，Omicron变体在接种疫苗的社区中传播得更快。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+根据该研究的摘要，“Omicron在那些完全接种疫苗的人中的传播速度比 Delta快，在那些接受过加强针的人中传播速度甚至更快”。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+文章来源: [https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/](https://summit.news/2022/01/06/whoopi-goldberg-shocked-at-catching-covid-despite-being-triple-vaxxed/)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

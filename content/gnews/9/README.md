@@ -2,38 +2,30 @@
 ---
 
 
-## 有声|美国CDC无法给出死于新冠病毒的具体数字
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849432/)
+## 台湾再设十亿美元基金，推动与立陶宛经贸合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1849468/)
 
-配音：香草山健身部- 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-据福克斯报道，1月9日，批评人士布雷特拜尔在“福克斯周日新闻”上询问 CDC 主任瓦伦斯基，在美国死于新冠病毒的83万多人中,有多少是直接死于病毒,有多少是由于有潜在疾病而死。瓦伦斯基表示在奥米炕爆发的情况下，需要几周时间来统计具体的数字。 瓦伦斯基的回答让拜登政府的批评者感到沮丧，因为他们一直在询问关于新冠相关死亡的区别，瓦伦斯基的回答遭到了批评者的一致谴责。
+![资料照片：台北驻立陶宛台湾代表处的大厅摆着鲜花和旗帜。（2021年11月18日）](https://gdb.voanews.com/92486E2B-C702-4DD1-A687-D6660EA00770_w1023_r1_s.jpg)资料照片：台北驻立陶宛台湾代表处的大厅摆着鲜花和旗帜。（2021年11月18日）
+据美国之音1月12日报道，继设立2亿美元的“中东欧投资基金”后，台湾11日宣布再设立10亿美元的融资基金。愿意到立陶宛投资或是与立陶宛有合资企业的台湾厂商，以及与台湾有合作关系的立陶宛厂商，都可以申请这些基金。此举除了支持立陶宛以外，也是台湾“强化欧洲链接计划”的一部分。
 
-原文链接：[美国CDC无法给出死于新冠病毒的具体数字](https://gnews.org/zh-hans/1846910/)
+去年11月，立陶宛在首都设立驻立陶宛台湾代表处，引发北京愤怒，把两国外交关系降级，并对立陶宛采取了经济报复措施。中共把台湾视为其领土不可分割的一部分，北京不允许与中共国建交的国家与台湾互设具有官方名份的机构。
 
-音频处理：Daxia
+中共霸凌台湾几十年，一直试图武力侵占台湾。立陶宛仅有280万人口，弹丸之地的小国，为台湾挺身而出。正义不是存在于国富民强的超级大国，在这样的小国也有。有正义就有希望，有文明才有传承。
 
-**发稿：**Daxia
+新闻参考链接：[https://www.voachinese.com/a/lithuania-taiwan-credit-20220111/6392687.html](https://www.voachinese.com/a/lithuania-taiwan-credit-20220111/6392687.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+编辑：胖丁
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

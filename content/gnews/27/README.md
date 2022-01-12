@@ -2,43 +2,29 @@
 ---
 
 
-## 有声|重庆大爆炸开启了习曾之战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1849219/)
+## 芝加哥市长 Lori Lightfoot 宣布她的 COVID-19 检测呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1849289/)
 
-配音：香草山农场- 纳米
+约书亚·罗伯茨 | 路透社
 
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20210523042603843-edited.jpg)图片来源：网络
+芝加哥市长洛里·莱特富特（Lori Lightfoot）已完全接种疫苗并加强免疫，她于周二宣布，她的 COVID-19 检测呈阳性，并且出现轻微症状。
 
+“今天早些时候，我的 COVID-19 检测呈阳性”，市长在下午 2 点 40 分左右发推文说。 周二， “我正在经历类似感冒的症状，但其他方面感觉很好，我认为这归功于接种疫苗和加强针”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+市长说，她计划继续在家工作，因为她遵循疾病控制和预防中心的隔离指南。
 
+她在一份声明中说：“这是对人们接种疫苗和加强针的紧急提醒，因为这是战胜这种流行病的唯一方法”。
 
+**评：**接种三针疫苗还是被感染，又强调别人去接种毒疫苗，这样的人是既蠢又坏。
 
-1月9日郭先生大直播中与战友分享重庆大爆炸可能并非是人为操作，不要政治化。有以下原因：
+来源链接：[https://www.nbcchicago.com/news/coronavirus/chicago-mayor-lori-lightfoot-announces-she-has-tested-positive-for-covid-19/2726146/?amp](https://www.nbcchicago.com/news/coronavirus/chicago-mayor-lori-lightfoot-announces-she-has-tested-positive-for-covid-19/2726146/?amp)
 
-首先，重庆、四川等地，既处在昆仑山向中共国东南方延伸的脉络上，也在喜马拉雅山的腹地地区，两座神山之抵，自古以来造就了当地资源富饶，民风淳朴，是兵家必争之地，在历史上被多次屠城。共产党统治的时代，但凡有官员上任重庆，一定会发生不测。
+编辑/发布：LILY
 
-原文链接：[重庆大爆炸开启了习曾之战](https://gnews.org/zh-hans/1844306/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+20220111
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
 
