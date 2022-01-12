@@ -2,30 +2,22 @@
 ---
 
 
-## 2021年1月12日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1850445/)
+## 学生家长群聊曝出疫苗副作用触目惊心
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1850566/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远.png)
-⦁ 德国前两大造船厂宣告破产，共2000多员工失业，12月份工资还未发放。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远2.png)
-⦁ 道琼斯指数出现顶背离(股价创新高，指标MACD不创新高)，下跌在即！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远3.png)
-3.霍英东家族争夺遗产官司开打
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远4.png)
-⦁ 集安组织将在12天内撤离哈萨克斯坦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远5.png)
-⦁ 欧洲议会主席因打疫苗去世，终年65岁。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远7.png)
-⦁ 世界首例猪心脏移植到人体
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文远8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/文远9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/文远10.png)
-编辑：MG4
+视频&文章：澳洲天好蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳洲.png)
+（网络图片）
 
-[Discord](https://discord.com/login?redirect_to=%2Fchannels%2F712986898376949760%2F713012519274283078%2F776438234401996840)
+世界CCP病毒疫苗接种的各种副作用已被一些良心医生和相关人士揭露，随着时间的流逝，CCP病毒疫苗副作用正在大量爆发，但是在中共国，一直以来鲜有这方面的信息流出，因为中共对信息的管控非常严格，即便有人在网上放出这样的信息都会被很快屏蔽，最近深圳某个群一位高三学生家长与群成员聊天的信息流了出来，群天中曝出这位家长小孩的学校很多学生打了疫苗后出现严重的问题，疫苗的副作用触目惊心。
 
-[AUJenny – GNEWS](https://gnews.org/zh-hans/author/aujenny/)
+这位家长自曝他家小孩所在的高三班一个娃打了CCP病毒疫苗因副作用导致必须去医院做脑部微创手术，还有班上年级第一的娃打了疫苗成肺炎，年级第二数学最强的娃打了疫苗后抽搐，他还问过一个住校的学生，这位学生表示，打过疫苗后都很容易疲倦。 无独有偶，一个群友认识的小孩班上打过疫苗后也是出现有气无力的症状，另有位群友也说，他好友的儿子就读某深圳某名校，学习成绩非常好，不过在接种疫苗第二针后，昏睡两天，后来一直上课都晕晕的。
 
-[澳喜农场 – GNEWS](https://gnews.org/zh-hans/author/himalaya-australia/)
+这位家长学校受政府施压强制打疫苗，虽然家长们很多都拒绝打疫苗，不过后来学校不管家长同意不同意，仍然通过强制手段把所有学生拉到礼堂强迫接种了疫苗。不过这位家长非常理智，强烈拒绝了让小孩接种疫苗，他决定就算学校不让他小孩上学也绝不打疫苗，他说会让他小孩带把刀，谁要来强迫，就拿出刀来拼了。
+
+虽然只是几位家长反映自己所见的情况，不过也能一窥中共国CCP病毒疫苗副作用带来的危害是怎么样的，同时也能看到疫苗副作的发病率也是非常之高的，一个班上就有几个小孩马上就发病了，并且有很多人出现疲劳。可以预见正如爆料革命新中国联邦郭先生所言，CCP病毒疫苗灾难正在发展当中，未来不久中共国也会跟世界一样因疫苗副作用而产生大量的死伤。
+
+发稿：MG4
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 

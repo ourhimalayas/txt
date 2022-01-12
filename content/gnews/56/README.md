@@ -2,27 +2,30 @@
 ---
 
 
-## 马龙博士警告，中共国出血热病毒源于疫苗大规模接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1845626/)
+## 2022/01/07 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1847027/)
 
-#### 素材整理：熊猫乱滚、文泓
-编辑：文泓
+1. 1月7日，重庆市武隆区凤山街道办事处食堂疑似食堂燃气泄露燃爆，两栋房子被炸塌。初步统计有27人被困。
+2. 1月7日，广东深圳被中共通报出现2例新冠病毒阳性感染者，居住在龙岗区，其居住、工作区域已实施管控。没有核酸检测阴性报告，所有人不被允许离开深圳。
+3. 1月5日，江苏苏州。一小车司机携带大量汽油疑似准备进行自杀式袭击被群众拦下。
+4. 12月31日，陕西西安。2021年最后一天，西安39岁男子突发心痛，连续被3家医院拒诊后最终猝死。
+5. 1月7日，河南许昌。中共官方通报禹州56例确诊病例详情，多人系同一公司，多人接种三剂次新冠疫苗。
+6. 工地施工浇筑时农民工被用作支撑工具，共产主义社会历来无视人的生命和尊严。
+7. 辛集官方公布两人因非法上访被警方“依法”行拘。并恐吓提醒：非法上访违法犯罪个人信息将永久记录！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image012.png)图片来源：班农战斗室视频截屏
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间1月10日，mRNA基因疫苗的发明者罗伯特·马龙博士(Robert Malone)现身班农战斗室节目，他警告说，一种来自共产主义中国的“类似埃博拉的出血热”超级病毒，他认为这可能是由大规模疫苗接种引起的病毒突变引起的。
+编辑：【英国伦敦喜庄园编辑部】
 
-马龙博士强调，将运动员派往中共国参加2022年奥运会将是“疯狂的”，并补充说：“毫无疑问，当他们知道新冠病毒正在肆虐之时，在武汉，他们并没有拉上国际旅行的帷幕。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-新闻链接：[‎Bannon’s War Room: Episode 1,549 – Covid Explosion In China Putting Olympics In Jeopardy (w/ Ben Harnwell, Frank Gaffney, Dr. Robert Malone, Tony Lyons) on Apple Podcasts](https://podcasts.apple.com/au/podcast/episode-1-549-covid-explosion-in-china-putting-olympics/id1485351658?i=1000547463034)
 
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

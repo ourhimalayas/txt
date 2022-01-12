@@ -2,33 +2,43 @@
 ---
 
 
-## 农民主动上缴“枪支”三年后被判刑
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1850404/)
+## 七哥是家里唯一跟家人拥抱的人,从小到大深信人生有来世
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1850460/)
 
-撰稿：二号电梯
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二号.png)
-（图片来自网络）
+G-TV视频链接：[https://gtv.org/video/id=61de3a4987664c47acd38bbc](https://gtv.org/video/id=61de3a4987664c47acd38bbc)
 
-云南楚雄武定县农民李洪亮家住发窝乡阿过咪村委会阿过咪四组，这里距离武定县城约4小时车程。李洪亮一辈子务农，有一男一女两个孩子。儿女成家后，他帮忙照顾孙辈，自己养了几只羊，当起了羊倌。
+**郭文贵先生：**就是钟仁刚刚说给家人情绪表达，还有什么的。我们家是我唯一一个情绪从小到大表达的，所以说我们家里边儿就觉得我是个另类，从生下来就是个另类。
 
-大约在7年之前，邻村一个叫杨建学（另案处理）的人来到阿过咪村兜售疑似枪支。李洪亮告诉红星新闻，他没玩过“枪”，但在当地，过去家家户户都有“枪”，作为狩猎、娱乐用。他拿出800元，向杨建学买了一支“枪”。
+中国人从来不会说感谢父母，问个好，从来不会，我那个时候就会。我从清丰看守所出来以后，见谁都问好，我就会。而且我们家唯一一个跟家人拥抱的人，从来没有人会的，我是唯一一个。七哥绝对是从小到大我深信人生是有来世，我相信我们人就是“黄粱一梦”。
 
-这是一支用射钉枪改装的“枪支”，枪身含枪管在内全长约1.5米。据后来的刑事判决书，经警方鉴定，该疑似枪支是以火药燃烧为动力发射弹丸的非制式枪支，具有致伤力。
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
 
-“我因为放羊，觉得无聊，想着买了这支枪拿来买打老鹰和松鼠玩。”李洪亮说，可实际上这支枪“一样东西也打不着”。李洪亮还花25元向杨建学买了火药，他用豌豆和石子做子弹，因打不着动物，他拿这支枪打过几次啤酒瓶，后火药用完，他没再用此枪。
+编辑整理：Jacques；
 
-一同向杨建学买枪的，还有同村的李林聪。李林聪35岁，因身体状况差和文化程度低等原因在老家务农，“我之前不知道买枪犯法，后来派出所的人来村里普法，我就主动上交。”
+字幕文件制作：小满；
 
-2018年2月，在当地民警上门宣传枪支管理法律法规后，云南楚雄武定县农民李洪亮主动上交了一支疑似枪支。“当时他们对我说，我是主动上交的，不会追究我的责任。”李洪亮说。
+视频制作及上传：Cindy；
 
-可三年多后，李洪亮还是因为涉嫌“非法持有枪支罪”被武定县公安局取保候审。去年8月18日，武定县公安局侦查终结后，向武定县人民检察院移送审查起诉。武定县人民检察认为，应该以“非法买卖枪支罪”追究李洪亮刑事责任，并于去年11月9日提起公诉。本案于11月15日开庭，法院当庭宣判，判处李洪亮有期徒刑3年，缓刑4年。
+G-News发布：小满；
 
-大家可以看到，在7年前老百姓买那些改装的所谓“枪支”娱乐，并不违法任何中共的法律。但是在几年以后，中共搞出个新法律之后，中共开始追究你之前的那些，在当时并不违法的行为。如果按照中共的逻辑，我们所有的人都应该被抓起来，因为我们小的时候都玩过“火柴枪”，中共现在把它都定义为“枪支”，中共可以追溯我们在孩童时期的“犯罪行为”。真TMD无耻，无赖，无可理喻咯。你说，这样的玩意，还能让它存活在世上吗？
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-参考：[云南两农民主动上交非制式枪支，三年后因非法买卖枪支罪均被判三缓四 (toutiao.com)](https://www.toutiao.com/i7051431744637469191/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1641815701&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=20220110195501010151201081091BE4D9&amp;share_token=6D3DD016-B404-49A8-BBCA-8E4B02638AA5&amp;group_id=7051431744637469191)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
