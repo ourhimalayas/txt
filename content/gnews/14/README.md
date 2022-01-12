@@ -2,47 +2,30 @@
 ---
 
 
-## 韩国称朝鲜发射了一枚“不明飞行物”
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1851199/)
+## 【中日财经爆】村田将泰国建厂 日企撤离潮加剧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1851396/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+撰稿：东京樱花团｜喜马拉雅的微尘
+![](https://lh5.googleusercontent.com/I5dPLt9BqM8H46qDdevJNwGrUkDxz6eBixRkN3IOyMDUIvR3uvyKNvti5AoJLcQYe7V59nEkA95y9BnxFp2Cal59e0NYPk81qAYyIAw3HAbMv87vqhEL2eKFAsiIvIyrk30Kg6Sf)[*图片来源*](https://www.shukatsu-nagano.jp/company_info/15641.html)
+据日经亚洲报道，由于中美竞争的影响，村田制作所（Murata Manufacturing）和其他日本科技供应商正在减少对中共国的依赖。
 
+近日，总裁中岛规巨在接受日经亚洲采访时表示，作为全球最大的电容器制造商和iPhone零部件供应商，村田制作所将于2023 年10月在泰国开设新工厂。新工厂最终将扩建到和村田在无锡的生产用于消费电子产品的多层陶瓷电容器的工厂一样大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+村田制作所一半以上的收入来自大中华区，预计随着公司在印太地区寻求未来增长，该份额将随着时间的推移而下降。这是日本公司在中美竞争中试图应对地缘政治风险的一个例子。
 
+中岛说：“有发生我们无法控制的事件的风险，我们的供应链必须多样化，”他补充说，像苹果这样的主要客户也在从中国转向多元化。
 
-据CNN报道，本周二，韩国参谋长联席会议表示，朝鲜从内陆向东海岸附近海域发射了一枚不明飞行物，推测为弹道导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/220111173903-north-korea-missile-test-0111-exlarge-169.jpeg)图片源自CNN
-该飞行物于当地时间周二上午 7 点 27 分左右（美国东部时间周一下午 5 点 27 分）发射，韩方表示军方正在保持“战备状态”，为进一步发射做准备，并正在与美国密切合作监视相关动向。
+村田不只是在应对中美冲突，它还在研究长期的人口趋势。
 
-日本海岸警卫队表示，这枚“可能的弹道导弹”很可能在当地时间早上 7 点 45 分落入海中。它呼吁所有船只不要靠近坠落的物体，并向他们报告任何目击事件。
+“今天人口最多的国家可能是中国，但到2030年将是印度，未来将是非洲，”中岛说。 “这些经济体会与中国或美国结盟吗？我们不知道。我们要能够应对这些情况。”
 
-韩国政府发表一份声明表示“对朝鲜的发射表示强烈遗憾，这是在非常需要政治稳定的时候进行的”。
+2021年11月24日，村田在其官网宣布，将于2020年12月关闭其在中国的全资子公司——升龙科技（深圳）。
 
-周二的发射事件是朝鲜在不到一周的时间内第二次发射导弹。
+信息来源：[**日经：村田计划泰国建厂，日本半导体公司在“逃出”中国吗？**](https://www.163.com/dy/article/GTF2MQEM0511RIVP.html)
 
-据日本防卫省称，周二的测试覆盖了与上周相同的距离，700 公里（435 英里），导弹落入日本专属经济区（EEZ）以外的海域。
-
-朝鲜尚未公布有关周二发射的任何信息。根据国际法，平壤被禁止试验弹道导弹和核武器。
-
-**参考阅读**: https://edition.cnn.com/2022/01/10/asia/north-korea-missile-intl/index.html
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
-总编: Irene木木
-
-校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

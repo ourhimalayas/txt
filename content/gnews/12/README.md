@@ -2,28 +2,26 @@
 ---
 
 
-## 美国要求保险公司必须支付家庭中共病毒测试费用
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1851296/)
+## 白宫的一条推特可使拜登的疫苗强制令落空
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1851405/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+作者: 加拿大温哥华扬帆农场Spirit
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
-美国卫生与公众服务部周一宣布，从 1月15日开始，健康保险公司必须承担家庭中共病毒测试的费用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
+根据《福布斯》1月8日报道，美国最高法院正在就拜登总统的企业疫苗强制令进行口头辩论。
 
-新要求意味着大多数拥有私人健康保险的消费者可以在线或在商店购买家庭测试剂，并在购买时支付费用或通过向保险公司提交索赔来获得报销。
+拜登幕僚长罗恩-克莱恩(Ron Klain)在推特上转发了一位新闻主播的言论，称“OSHA将这项疫苗任务作为一项紧急工作场所安全规则来做，是联邦政府要求接种疫苗的最终变通办法”。从而失去了首席大法官罗伯茨(John Roberts)的信任，因为这表明拜登正试图绕过国会的意愿，好比一把直接刺穿拜登论点核心的匕首。
 
-该部门表示，消费者无需去看医生或获得处方即可获得免费测试，并且测试不会受到共付额或免赔额的影响。
+国会从未通过过强制接种疫苗的法律，而这个分裂严重的国会也不打算通过这样的法律，那么拜登总统声称这项授权的权力从何而来？国会授权劳工部长“制定适用于影响州际商业的企业相关强制性职业安全和健康标准”。总统没有监管工作场所的独立权力，他只是在执行国会通过这些措辞宽泛的法规所授予他的权力。
 
-保险公司必须为每个被保险人每月支付最多八次测试的费用。
+本案的关键在于，拜登政府是在执行国会通过的联邦法律，还是在违宪地自行其是。拜登政府称其政策为”变通”，其实是自断后路。
 
-此外，美国政府还购买了5 亿份家庭测试剂免费分发，白宫周一表示，首批测试剂将在下周初开始分发。
-
-**参考阅读**: https://edition.cnn.com/2022/01/10/politics/home-covid-tests-health-insurance/index.html
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-4.png)
+**参考阅读**: https://www.forbes.com/sites/evangerstmann/2022/01/08/how-a-white-house-tweet-may-doom-bidens-workplace-vaccine-mandate/?sh=44f9087e5e5d
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-3.png)
 总编: Irene木木
 
-校对/发稿: 卡夫卡的甲壳虫
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 

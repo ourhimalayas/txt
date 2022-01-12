@@ -2,26 +2,20 @@
 ---
 
 
-## 俄罗斯要求从美国获得安全保证
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850991/)
+## 【NewS Gman】全球疫情新闻速报（1月11日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1851055/)
 
-#### 翻译：Ping
-校对：枳实
-字幕/剪辑：蛮吉
+撰稿：东京樱花团/NewS Gman
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011211.png)
+瑞典王储维多利亚二次感染中共病毒（新冠病毒），其已接种过三剂疫苗。瑞典国王卡尔十六世古斯塔夫和王后西尔维娅也被确诊感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011212.png)
+接种三针疫苗后瑞士运动员被诊断出心肌炎。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011213.png)
+喜剧演员鲍勃萨吉特疑似死于病毒疫苗。
 
-俄罗斯的指控越来越夸张，它说美国已经准备好用高超音速导弹和化学武器瞄准它。普京说他已经退无可退。美国只是希望事情能稳定下来一些
-
-视频链接：[Putin demands US assurances on security as Russia completes hypersonic weapons test](https://www.foxnews.com/world/putin-assurances-security-russia-hypersonic-weapons-test)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

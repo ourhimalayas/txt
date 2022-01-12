@@ -2,49 +2,19 @@
 ---
 
 
-## 台北两名护士接种三针疫苗后染上中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851103/)
+## 港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1851327/)
 
-作者：纽约磐石农场—在远方
+**撰文/ 港台前线关注组｜发布日期/ 12/1/2022**
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
 
+英国虎报 1 月 12 日消息，前世界卫生组织总干事，现年 74 岁的陈冯富珍有意参选下届香港特别行政区行政长官一职，目前正积极组织内阁，首任行政长官董建华创立的的智囊团“我们香港基金会”会提供一切支持。
 
+现任香港特首林郑月娥亦不排除会寻求连任，另外，财政司司长陈茂波、政务司司长李家超、前港交所总裁李小嘉和前香港金管局总裁陈德霖均获提名参与竞选。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-台媒1月11日报道，台北市两名联合医院中兴院区的护士，在接种完3针中共病毒疫苗后，依旧感染中共病毒。
-
-对此，台北市副市长黄珊珊表示，怀疑该两名护士是在照顾病人时染上的，至于为什么接种完三针中共病毒疫苗，仍会感染病毒的原因目前还在调查中。 不过，该事件显然没有对台北市市长柯文哲造成任何影响，柯文哲 11日宣布，要求全市所有医院、机场、防疫旅馆的相关工作人员，必须于本周内完成第3剂中共病毒疫苗的接种工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.1-3.jpg)
-参考链接：
-1. [北市2護理師打滿3劑仍染疫 柯下令3場所人員本週打完第3劑](https://news.ltn.com.tw/news/life/breakingnews/3797472)
-2. [北市聯醫染疫護理師、護理師男友住新北 分別接種過2劑及3劑疫苗](https://news.ltn.com.tw/news/life/breakingnews/3797418)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：天灭中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
-
+下届行政长官选举将于 3 月 27 日举行，候选人提名期暂定为 2 月 15 日至 3 月 2 日。若虎报消息属实，相信届时的选情会相当热闹。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/傳前世衛總幹事陳馮富珍有意競選下任特首-獲董建華智囊團支持.jpg)
+来源｜[虎报](https://www.thestandard.com.hk/section-news/section/11/237922/Former-WHO-chief-%27to-join%27-election-for-Hong-Kong%27s-top-job)
 
  
 
