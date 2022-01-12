@@ -2,26 +2,35 @@
 ---
 
 
-## 【中日财经爆】美国商会呼吁政府制定更全面战略应对中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1850579/)
+## 短视频：伊维菌素广泛推广，印度中共病毒疫情平息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1850606/)
 
-整理编辑：东京樱花团丨peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-871.png)[*图片来源*](https://img.soundofhope.org/2022-01/666-1641961365586.png)
-美国商会周一（1月11日）呼吁拜登政府寻求签订更多的国际贸易协议，并阐明与中共国竞争和合作的连贯战略，这标志着美国商会过去降低关税的要求发生了转变。
+#### 翻译：ATX1230
+校对：精靈藍
+视频剪辑：向上James
+编辑：文泓
 
-去年3月接任这个美国最大商业游说团体主席的克拉克（Suzanne Clark）敦促美国重返跨太平洋伙伴关系协定（TPP），并完成与英国的贸易谈判。美国过去10年来一直没有签订新的重大贸易协定。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/101.jpg.png)图片来源：视频截屏
 
-“在贸易方面，我们的国家在原地踏步，这意味着我们正被落在后面，”她在就美国商会2022年优先事项发表演讲后告诉记者。
 
-她说，中共国刚刚启动的贸易协定——区域全面经济合作伙伴关系协定（RCEP）将削减15个国家之间的关税，使美国出口商处于不利地位；与此同时，欧盟继续缔结新的贸易协定，中共国、英国、韩国和台湾也正在寻求加入TPP。TPP是奥巴马政府达成的环太平洋贸易协定，但在2017年时任总统川普下令美国退出TPP。
+在印度北方邦（Uttar Pradesh），只有5.8%的人口完全接种了疫苗。在美国，近60%的美国人完全接种了疫苗。
 
-美国商会长期以来一直抱怨川普政府对中共国商品征收惩罚性关税造成不利影响，但克拉克此次在演说中强调需要一个更全面的战略来应对中国（共）。
+在印度，新冠病毒的阳性率为0.1%，而美国是7.6%。印度有199个活跃的新冠病例。截至9月30日，美国（却）有近13万个新病例，仅在过去的7天内平均就超过112,000例。
 
-消息来源：[**美国商会呼吁政府寻求达成新的贸易协议 制定全面的应对中国战略**](https://cn.reuters.com/article/us-commerce-chamber-china-deal-0112-idCNKBS2JM036?il=0)
+印度正在广泛推广使用伊维菌素来治疗中共新冠病毒。在美国，如果医生开伊维菌素处方，他们将失去他们的医疗执照。我们所谓的顶级医学专家认为这种药只不过是给农场动物用的驱虫剂。你看到这里面的不同吗？
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+值得指出的是，北方邦是印度人口最密的邦，人口比美国这里要密得多，所以那里根本不可能实行适当的新冠病毒的社交疏远，那这一切向我们说明了什么呢？
+
+**视频链接：**[BeGuard 在 Twitter: “🇮🇳 India declares officially COVID-19 FREE after widespread use of Ivermectin 👇 https://t.co/RXfohNkQL8” / Twitter](https://twitter.com/1745t/status/1444503553146458123?s=21)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
