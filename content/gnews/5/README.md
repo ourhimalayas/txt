@@ -2,33 +2,24 @@
 ---
 
 
-## 心肌炎症爆发性增加，而医生则处于沉默的螺旋中
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1850704/)
+## 【中日财经爆】韩国30多位商界人士参加美国CES展会感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1850800/)
 
-撰稿： 文月
-![](https://assets.gnews.org/wp-content/uploads/2022/01/121.png)图片来自网络
-美国作家史蒂夫·基尔希（Steve Kirsch）再次对官方声明“心肌炎是CCP病毒疫苗非常罕见的副作用”提出质疑。Kirsch 表示，自从疫苗接种开始以来，那些注意到心脏病急剧增加的医生都不敢公开发声。
+整理编辑：东京樱花团丨peterwong
+![](https://lh4.googleusercontent.com/dGpRpJn8tlJ4-xjDNpJXkaGn2Ndw0VJEYO8fWI0NkHe4EHL5ykCHg5Qin3V_U1BOPEvJwqmz8-MQcuQVhihG-DzUNLsDYgYdZrIePXHqgjurFthsNOyP3FYEypuqdlGsjHjo9_rV)[*图片来源*](https://veritise.com/wp-content/uploads/2021/12/ces-2022-1200.jpeg)
+路透社1月12日报道，业内人士周三透露，上周参加拉斯维加斯消费电子展(CES)的韩国大企业管理人员中，有30多人在美国的中共病毒（新冠）检测结果呈阳性。
 
-美国著名作家和 CCP病毒疫苗接种评论家史蒂夫·基尔希（Steve Kirsch）在他最近的一篇出版物中报道了他的一位读者与其儿科心脏病专家朋友的一次谈话。医生说，在CCP病毒疫苗接种之前，他每年最多能碰见一到两例心肌炎患者。然而现在，这样的病人占据了他候诊室的一半。
+三星电子[005930.KS](https://cn.reuters.com/companies/005930.KS)约20名管理人员以及SK集团约六名人员在参加CES后病毒检测呈阳性。SK集团是能源公司SK Innovation和芯片制造商SK海力士的母公司。现代重工称六名参加CES的员工在美国期间被检测出阳性并隔离，一些人后来已解除隔离。
 
-这位医生公开承认，他和大约一半的同事都知道发生了什么事，但担心医院和政府机构的压力，他们不敢公开发言。
+韩国中央日报报导，参加CES的“多名”现代汽车和现代摩比斯管理人员在回到韩国后检测也呈阳性，但没有说明具体病例数量。
 
-Kirsch 的几项研究证实了这一点，心肌炎的比例自CCP病毒疫苗接种开始以来呈爆炸式增长，尤其是在儿童和年轻人中。
+韩国报纸朝鲜日报报导，大部分检测结果呈阳性的三星公司人员已乘坐两架包机从内华达州飞回韩国，并于首尔时间周二晚间抵达，其余的三星人员预计将于周三返回。三星公司这些人员正在被转至韩国的隔离设施，大多数人没有症状或症状轻微。
 
-在他的另一篇文章中，他汇编了一些近期的病例，经分析他认为因接种 Covid 疫苗而患心肌炎和心包炎的风险明显高于官方所承认的风险。
+消息来源：[**韩国企业多名管理人员赴美参加消费电子展后新冠检测呈阳性**](https://cn.reuters.com/article/us-ces-south-korea-covid-0112-idCNKBS2JM09D?il=0)
 
-这些专家们担心他们一旦谈及CCP病毒疫苗的副作用就会失去工作，因此这导致几乎不可能对CCP病毒疫苗引起的心脏病的实际数量进行现实估计。
-
-这种不确定性极大地加剧了人们对CCP病毒疫苗安全性的怀疑。与冠状病毒疫苗接种开始前此类病例的发生率相比，Kirsch本人认为其概率增加了大约一百倍。
-
-他相信，在许多情况下，这会将导致长期的医疗不良后果，并大大缩短得病人的寿命。另外还有部分副作用是可以预期的，例如免疫系统可能出现永久性损伤，以及出现针对Omicron变异毒株或其它传染病的免疫力缺失等。 “疫苗的唯一明显优势是它可以让人们在一月份保住工作或上学”**，** Kirsch指出。对于许多人来说，这也是接种疫苗的主要原因。
-
-参考文献：
-
-[https://report24.news/explosionsartiger-anstieg-an-herzmuskelentzuendungen-aerzte-in-der-schweigespirale/](https://report24.news/explosionsartiger-anstieg-an-herzmuskelentzuendungen-aerzte-in-der-schweigespirale/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
