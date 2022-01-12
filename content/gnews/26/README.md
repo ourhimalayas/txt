@@ -2,49 +2,19 @@
 ---
 
 
-## 追求言论自由 不同政见人士大规模迁移加入盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851107/)
+## 港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1851327/)
 
-作者：纽约磐石农场—在远方，纽约香草山 – 侠肝义胆
+**撰文/ 港台前线关注组｜发布日期/ 12/1/2022**
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
 
+英国虎报 1 月 12 日消息，前世界卫生组织总干事，现年 74 岁的陈冯富珍有意参选下届香港特别行政区行政长官一职，目前正积极组织内阁，首任行政长官董建华创立的的智囊团“我们香港基金会”会提供一切支持。
 
+现任香港特首林郑月娥亦不排除会寻求连任，另外，财政司司长陈茂波、政务司司长李家超、前港交所总裁李小嘉和前香港金管局总裁陈德霖均获提名参与竞选。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-盖特1月11日消息，福克斯著名主持人塔克·卡尔森以及 2020 年民主党总统候选人图尔西·加巴德正式入驻盖特，该消息令盖特的注册用户又迎来一波高潮。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.2-3.jpg)
-盖特首席执行官杰森.米勒早前表示，盖特拒绝言论审查，欢迎不同政见人士加入，自由的发表个人观点，图尔西·加巴德的加入显示盖特并非外界所言，只是保守派的发声平台，而是一个不同政见人士都可以畅所欲言的社交平台。
-
-随着推特、脸书等传统社交媒体不断收紧对言论审查的标准，越来越多的人开始加入盖特。尤其早前“播客之王”乔·罗根的加入，更是为盖特带来了单日50万人次的惊人注册量。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-156.jpg)
-参考链接：
-1. [突发：塔克·卡尔森 加入盖特](https://gnews.org/zh-hans/1845101/)
-2. [2020民主党总统候选人加入盖特](https://gnews.org/zh-hans/1845524/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：天灭中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+下届行政长官选举将于 3 月 27 日举行，候选人提名期暂定为 2 月 15 日至 3 月 2 日。若虎报消息属实，相信届时的选情会相当热闹。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/傳前世衛總幹事陳馮富珍有意競選下任特首-獲董建華智囊團支持.jpg)
+来源｜[虎报](https://www.thestandard.com.hk/section-news/section/11/237922/Former-WHO-chief-%27to-join%27-election-for-Hong-Kong%27s-top-job)
 
  
 

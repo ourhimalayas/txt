@@ -2,31 +2,32 @@
 ---
 
 
-## 美国正在面临严重的通货膨胀危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851388/)
+## 预估报告称半数欧洲民众在两个月内可能感染Omicron
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1851429/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月11日，据相关媒体消息显示，美国参议员乔-曼钦认为，拜登总统推动的“重建经济”法案或将继续增加美国的赤字和债务，并助长美国正在经历的、近40年以来增长最快的通货膨胀危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-11.jpg)
-研究数据表明，按照美国当前的通货膨胀率来看，每个美国家庭每年会因通胀而额外增加5000美元的支出，其中，超过一半的额外花销源于必要的生活支出价格上涨，这种情况在低收入家庭中更加明显。此外，通货膨胀率与政府收税的增加成正比，就美国目前通胀的现状而言，一个中收入家庭将额外增加1500美元的税务支出。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-18.jpg)
+网络图片
+一位世卫组织官员表示，预计CCP病毒的 Omicron 变异病毒将在未来六到八周内感染一半以上的欧洲人。创纪录的 CCP病毒感染病例在今年冬天给欧洲带来了巨大的压力，一些国家扩大了封锁限制，而奥地利、希腊和意大利等其他国家则宣布了新的CCP病毒疫苗要求。
 
-对此，郭文贵先生曾在直播中多次提及，美国乃至世界所面临的通货膨胀问题已经非常严重，且随着大环境的逐渐恶劣，这种困境将转变为更加严重的滞涨问题。
+根据这位卫生官员Hans Kluge博士的说法，当前的疫情呈现出由西欧逐渐向东欧发展的态势。他呼吁尚未受到激增影响的国家在封闭和室内环境中要求使用高质量的口罩，并确保易受伤害的人能够有充足的口罩供给，因为 Omicron 病毒具有高度传播性。
 
-参考链接：[New evidence that Democrats are seeking a massive inflation booster shot](https://www.washingtonexaminer.com/restoring-america/faith-freedom-self-reliance/new-evidence-that-democrats-are-seeking-a-massive-inflation-booster-shot)
+他解释说，欧洲尚未看到这种变异对“疫苗接种率较低”的国家的全面影响，他对 Omicron 涌入东欧“深表担忧”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+根据欧洲疾病预防和控制中心 (ECDC) 的数据，尽管有大量疫苗，但东欧国家的疫苗接种率是该欧洲最低的。在保加利亚，仅有28%的居民完成了双剂CCP病毒疫苗的接种，在罗马尼亚，这一数字为40.5%，仍然不到一半。
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+笔者认为，世卫组织的预估报告或许存在敲打东欧各国加快CCP病毒疫苗接种进度的意味，因此特意提到对东欧地区的担心并放话将有半数欧洲居民会遭到感染。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然而事实已经非常清楚，在本次的Omicron变体的爆发下，双剂疫苗注射根本没有任何防护效果，相反还会造成不良反应。
+
+对西欧，世卫本次的预测报告或许会让更多国家继续推进加强针的接种计划，但是最终只会徒劳无功。
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/world/coronavirus-world-updates-half-europe-could-catch-covid-19-in-two-months-who-warns/c8bddee1-fd43-4100-8a46-471966152d34)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,34 @@
 ---
 
 
-## 文贵大直播 1/12 伊萨贝拉杨背后是邪恶中共
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1851477/)
+## 墨西哥总统再次感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851530/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot5.jpg)图片来源： GTV
-1月12日文贵大直播伊始，爆料革命发起人郭文贵先生对VICE 的伊萨贝拉杨及其背后中共邪恶计划进行了再次揭露和怒斥。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.53.59.png)
+对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
 
-从4年前HBO第一次对郭先生采访开始，文贵先生就对中共操控的所谓大外宣进行了大量的揭露和爆料，这次的短兵相接，无一不验证了郭先生对中共邪恶计划精准预判。
+此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
 
-VICE的伊萨贝拉杨对在美华人的所谓采访，实质是挑起对华裔甚至所有亚裔的仇视、歧视，污名化、邪教化海外华人，以在病毒、疫苗真相大白于天下之际，通过绑架所有华裔甚至亚裔来混淆黑白，乱中求胜。
+即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
 
-在2021年1月6日，作为新中国联邦创始人的郭文贵先生敏锐、明确地引领所有战友和Q组织划清界线，但HBO依旧通过所谓镜头语言，阴险地把在美华人定义为仇恨、暴力、混乱的源头群体。这和当年的印尼排华如出一辙。
+参考链接：[Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19)
 
-新中国联邦将依照美国的法律，惩罚邪恶中共操控的HBO，避免全球再发生印尼排华式的人类悲剧。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-【来源链接】https://gtv.org/broadcast/watch/61ded0fea6dfdd603152f65d
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
