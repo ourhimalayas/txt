@@ -2,20 +2,34 @@
 ---
 
 
-## 【NewS Gman】无畏互联网巨头打压 Gettr开启社交媒体新时代
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1851507/)
+## 墨西哥总统再次感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851530/)
 
-撰稿：东京樱花团/NewS Gman
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-903.png)
-Gettr和GTV未来的价值无法用金钱来衡量，Gettr平台的本质是新的货币方式关乎解放追寻自由和维护基本人权。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-904.png)
-Gettr是第一个不通过出卖用户数据获取广告收益的社交媒体平台，Gettr报道病毒真相与新冠疫苗代表了生命与正义。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-905.png)
-GETTR GTV的价值与金融、民权、信仰紧密相关，Gettr集合自由、金融和民权第一社交平台。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.53.59.png)
+对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+
+即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
+
+参考链接：[Mexican President Contracts COVID-19 for Second Time, Symptoms ‘Mild’](https://www.usnews.com/news/world/articles/2022-01-10/mexican-president-lopez-obrador-tests-positive-for-covid-19)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

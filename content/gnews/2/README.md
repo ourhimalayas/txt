@@ -2,30 +2,60 @@
 ---
 
 
-## 中共玩弄风水必将亡于天命
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1851645/)
+## 【Michael.Tonny专栏】冰岛数据证明，接种疫苗比末接种疫苗更容易感染中共病毒
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1851762/)
 
-作者：波士顿五月花  2020灭共必胜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220112-3.jpg)
-从小一直很好奇世上有没有鬼魂，为什么电影里面香港有钱人那么讲究风水和阴阳五行，但是到了自己身边普通人讲风水就互相叫迷信。直到听了郭文贵先生1月9号的大直播，让我醍醐灌顶，原来精英阶层（比如中共）知道原理去做的叫玄学，老百姓们不知道原理也跟着去做的叫迷信。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-个人认为风水这东西确实存在，它是一种磁场也可以是气场，让人舒服也可以难受，从而对人达到不同的效果。郭先生说中共特别迷信阴阳五行、奇门遁甲。当年打败国民党进北京城的时候还特地找风水大师看了一下，几点几时，哪里能进，哪里不能进，结果毛贼东没有进故宫。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-更为劲爆的是中共建国后在昆仑山修建了一个八角祭坛，按照八卦布阵，每年都要从新疆、西藏、内蒙等54个民族抓700个处女献给昆仑神（应该是弄死血祭了），就连执行的秘密部队也无人能回。
+在中共病毒溯源、彻底消灭CCP以前，中共不断投放病毒，实验性的COVID-19疫苗既不能预防感染，也不能减少死亡，注射中共病毒疫苗只会带来更多感染和死亡。
 
-毛泽东时代一直是周恩来负责每年去祭坛，周恩来死后由曾庆红负责每年去祭坛，那个祭坛的机密之高，绝对高于习近平的私人生活。为什么修建祭坛，因为共产党认为昆仑山是它们权力的来源，只要能保住共产党千秋万代，每年杀再多处女都没问题。由此可见中共信奉的不是正义的神，是邪神。
+冰岛这个只有36.8792万人口的国家，COVID-19病毒疫苗接种率相当高。
 
-那么共产党为什么不告诉老百姓风水的真相？因为它们害怕，害怕老百姓跟着拥有信仰，再也不信共产党，从而威胁它们的统治。那么怎么摧毁老百姓们之前建立的信仰呢？我查了一下，应该是1966年文化大革命的破四旧开始的，当时要砸烂一切的旧思想、旧文化、旧风俗、旧习惯。把信仰批判成封建迷信，数不尽的寺庙、道观被毁，如来佛、观音菩萨等像位统统被砸烂。可悲的是当时老百姓不相信封建迷信了，却相信毛主席万岁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-doses-by-age.jpg)
 
-中共，我承认你愚弄大部分老百姓可以，但你愚弄不了万佛万神，愚弄不了被你毁坏的山川河流，污染的五湖四海，愚弄不了有良知正义的人，从你根基延安窑洞的坍塌到毛腊肉水晶棺顶4盏天灯掉落，意味着风水已经开始反噬，你如此毁伦灭理、坏法乱纪，人神共愤，天必灭之。
+目前，冰岛已经向公众注射727,886剂疫苗，平均每人注射了1.974剂，291,973人至少接种一针疫苗，高达总人口的79.17%，284,827人接种了两针疫苗，达总人口的77.23%，210,230人接种了加强针，达总人口的57.01%，12岁以上人口中，91%至少打了两针疫苗。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Vaccinations-in-Iceland-statistics.jpg)
 
-*编辑：文合*
+冰岛注射的疫苗主要是Pfizer/BioNTech，另外还有Oxford/AstraZeneca、Janssen及Moderna疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-vaccinated-by-vaccine-given.jpg)
+5~15岁的年轻人和80岁以上的老年人注射的基本都是Pfizer/BioNTech疫苗。
 
-*封面：霹雳鼠年*
+然而，1月10日，冰岛新增确诊病例居然达到了3590起，接近全国总人口的1%，全国累计已有40,037人曾经被中共病毒感染，占全国总人口的10.85%。其中48.5%的感染发生在最近20天之内（19,147人）。
 
-*发布：吐纳*
+注射COVID疫苗导致免疫力下降，疫苗灾难正在上演！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Iceland-Total-Covid-19-Cases.jpg)
+如果疫苗有效，每10万人中，注射两针疫苗的人被中共病毒感染的机率应当低于末打过疫苗或只打过一针疫苗的人。下表是自去年12月20日到今年1月5日，冰岛每10万人确诊率统计数据：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/two-doses-vs-one-dose.jpg)
+
+注射两针疫苗的人，无论大人还是小孩，从12月20日起，10万人新增确诊率明显比只打一针或未打针的人高。
+
+如果把1月5日的数据和去年12月20日的数据做一个对比，每100,000名接种加强针疫苗的成年人的感染率比去年12月20日高出11.4倍，而打了两针的成年人感染率则高出7.1倍，未接种疫苗者的感染率仅增加了2.6倍。在儿童中，我们看到了类似的变化，完全接种疫苗的人数增加了9.5倍，而未接种疫苗的人数只比去年12月20日高出2.4倍。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/21-12-20-vs-22-1-5.png)
+
+根据社会学常识，这种变化很难用某个群体的行为变化来解释，群体之间如此突然而决定性的行为变化是不可能的。测试也不太可能突然在某些群体而不是其他群体中急剧增加。冰岛这种民主国家，也不太可能出现专门针对未接种疫苗的人群，有意长期性的、高达70~80的统计错误。
+
+只能说明，注射这种试验性的疫苗有毒，既不能预防感染，也不能减少死亡，只能降低身体免疫力。
+
+中共病毒疫苗就是杀手凶手，千万不要注射毒疫苗！
+
+参考资料：
+
+[Double Vaccinated Have Double the Infection Rate, Data From Iceland Shows](https://dailysceptic.org/2022/01/09/double-vaccinated-have-double-the-infection-rate-data-from-iceland-shows/)
+
+[The complete Our World in Data COVID-19 dataset](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[COVID-19 vaccinations in Iceland – statistics](https://www.covid.is/statistical-information-on-vaccination)
+
+[COVID-19 in Iceland – Statistics](https://www.covid.is/data)
+
+[does vaccination increase the probability of infection](https://thorsteinnsiglaugsson.wordpress.com/2022/01/09/does-vaccination-increase-the-probability-of-infection/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

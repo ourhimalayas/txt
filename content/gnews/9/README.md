@@ -2,47 +2,118 @@
 ---
 
 
-## 有声|新中国联邦信仰与教育探讨
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1851564/)
+## 预防新冠病毒 口服药物解说——伊维菌素篇(2022年1月11日更新)
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1851590/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-12.jpg)
+
+作者：紐約香草山 醫療部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-新中国联邦当推行通识教育，像美国一样中学及以下不分科，大学前两年也不分科，不得搞重点班、重点学校。班级排名、学校排名就是群体歧视，如同种族歧视一样是犯罪行为。应减少数理化等课程的时间，让学生没有学习的压力，让学生之间有足够的交流活动时间和空间。把体育和旅行当成必修课，让学生身体健康，见多识广。
 
-效法美国教育体系，普及大学教育，不能再搞独木桥式的愚民洗脑教育。人人都可以上大学。大学大力推广网络课程。小学、中学、大学课堂基础课设置有《圣经》（美国教会学校有，二战前美国的公立学校有），《形式逻辑学》（美国私立学及以前的公立学校有），《世界共产极权史》、《简明经济学教程》（美国学校有类似的），《简明医学和药学教程》，《法律简明教程》等。
+**依据美国《第一线COVID-19重症照护医师联盟 (FLCCC)1》的I-MASK+方案2**
 
-《圣经》翻译了成千上万种语言，是全球唯一能通用的文字语言教科书。小学学习《圣经》节选，以主日学、识字课、儿歌、诗歌等形式出现在课堂上，为将来的信仰及多语种学习打下基础。中学、大学节选《圣经》内容为文学课、人类历史课和外语文学课的重要组成部分，是多语种学习的重要内容，帮助信仰的养成。
+本解说仅限于为读者说明该治疗方案，不是医疗处置或建议。
 
-中学、大学思维训练必修《形式逻辑学》，培养学生具有独立思考能力、思辩的能力、以及科学思维的能力，提高自身反洗脑的能力。
+读者如有任何医疗问题，请自行向专业医师咨询。
 
-学习《世界共产极权史》，了解共产史给人类带来的毁灭性伤害，防止财产公有，权力私有的共产极权社会制度再次危害人类。
+读者在获取和使用该方案建议的处方药物时，必须遵守所在地的法律。
 
-学习《简明经济学教程》，防止经济及金融集权带来的社会财富分配不公。
+读者阅读此解说内容，不构成读者与纽约香草山医疗部之间的医病关系。
 
-学习《简明医学和药学教程》，防止医药公司借专业之名谋财害命。
+读者必须承担因为阅读此解说后所带来的任何风险或后果。
 
-学习《法律简明教程》，让学生熟知《宪法》和人权，防止公权力的乱用，为将来担任陪审团的成员打下基础，也为将来参与选举与被选举打下基础。
+纽约香草山医疗部，仅提供此方案的解说，不为此承担任何法律责任。
 
-文字版原文：[新中国联邦信仰与教育探讨](https://gnews.org/zh-hant/1843696/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**说明****\*\*\*\***
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+预防药物：伊维菌素 (Ivermectin)\*
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+长期预防：每周服用两次 (例如，周一和周四各一次)，晚饭后服用，每次 0.2 mg/kg 体重。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+高危暴露\*\*后紧急预防：单次服用0.4mg/kg 体重，48小时后再服用 0.4 mg/kg 体重。
+
+营养支持 (非全部必需)：
+
+褪黑激素缓释片 (Melatonin, slow release)： 夜间服用，从0.3 mg 可逐渐增加至最多 6 mg。
+
+姜黄素 (Turmeric)：按照保健品的建议用法。
+
+黑孜然子 (Nigella sativa seed)\*\*\*\*\*：每日40 mg/kg 体重。
+
+维生素 D3：每日1000–3000国际单位 (IU)。
+
+维生素 C ：每日兩次,一次500–1000 mg。
+
+槲皮素\*\*\* (Quercetin)： 每日250 mg，与伊维菌素早晚错开。
+
+锌元素 (Zinc)：每日30–40 mg。
+
+**注释**
+
+\* 伊维菌素的使用，应注意：
+
+(1) 该药应在饭后或随餐服用3,4；
+
+(2) 常见副作用: 瘙痒和皮疹、消化道不适、水肿、头痛、关节痛、眼睛红肿发炎或 不适, 站立时头晕和血压下降, 心跳过速, 肝功能变化等；
+
+(3) 伊维菌素可作用于神经系统，过量服用会造成神经损伤。
+
+\*\* 高危暴露：指密切接触感染者，或长时间缺乏必要防护暴露于聚集人群。
+
+\*\*\* 槲皮素是一种黄酮类化合物，依据体外试验及动物体内试验显示，槲皮素对细胞色素P450系列的一种或多种肝药酶具有抑制作用5,6,7。 如需合并其他药物使用时，请向医师咨询是否可同时使用槲皮素。
+
+\*\*\*\* 对本方案的解读，还应注意：
+
+(1) 长期服用窄域治疗指数药物，以及免疫抑制药物的患者，使用以上COVID-19预防方案前应咨询主治医生，调整药物剂量。
+
+窄域治疗指数药物 (Narrow Therapeutic Index Drugs，NTIDs)：此类药物的有效治疗浓度与中毒剂量接近，在用药剂量或药物血中浓度出现微小的差异时，就可能导致严重治疗失败和/或严重不良反应 (危及生命或持续的严重伤残)。例如华法林 (Warfarin，口服抗凝药物)，地高辛 (Digoxin，抗心力衰竭药物)，卡马西平 (Carbamazepine，治疗癫痫和神经性疼痛药物)，巴比妥类药物等;
+
+(2) 肝肾功能不全、孕产期及哺乳期妇女、儿童在用药前请咨询主治医生；
+
+(3) 本详解不应干扰任何既有的医嘱处方。
+
+\*\*\*\*\* 黑孜然籽可能會与芬太尼 (fentanyl) 相互作用。目前有兩例服用黑孜然籽的病人在使用芬太尼做全身麻醉後，产生血清素综合征 (serotonin syndrome)的報告。
+
+为了避免长期服用单一药物引发潜在药物副作用，建议每三个月轮换使用其他治疗方案。
+
+**参考文献**
+
+1.“FLCCC: Mission Statement and Objectives” https://covid19criticalcare.com/about/
+
+2.“I-MASK+ Prevention & Early Outpatient Treatment Protocol for COVID-19” https://covid19criticalcare.com/covid-19-protocols/i-mask-plus-protocol/
+
+3. “Do I need to take Ivermectin on a full or empty stomach?” https://covid19criticalcare.com/ivermectin-in-covid-19/faq-on-ivermectin/
+
+4. “Safety, Tolerability, and Pharmacokinetics of Escalating High Doses of Ivermectin in Healthy Adult Subjects” Guzzo et al., J. Clinical Pharmacology, doi:10.1177/009127002237994
+
+5. ”Interaction of quercetin and its metabolites with warfarin: Displacement of warfarin from serum albumin and inhibition of CYP2C9 enzyme”  Poór et al., Biomed Pharmacother. 2017 Apr;88:574-581. doi: 10.1016/j.biopha.2017.01.092.
+
+6. “Lethal quercetin-digoxin interaction in pigs” Wang et al., Life Sci. 2004 Jan 23;74(10):1191-7. doi: 10.1016/j.lfs.2003.06.044.
+
+7. “Studying the Inhibitory Effect of Quercetin and Thymoquinone on Human Cytochrome P450 Enzyme Activities” Elbarbry et al., Pharmacogn Mag. 2018;13(Suppl 4):S895-S899. doi:10.4103/0973-1296.224342
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

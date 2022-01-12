@@ -2,24 +2,37 @@
 ---
 
 
-## 安省基础医疗服务系统已不堪重负
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851629/)
+## 有声|福克斯当家主持塔克·卡尔森加入盖特
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1851740/)
 
-采编：青青       编辑撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-2.jpg)
-据【多伦多太阳报】1月11日报道，由于安大略省再次报告了因“奥密克戎”疫情所导致的重症监护入院人数的新高纪录，该省卫生部长当天表示将尽快向公众提供省级卫生系统能力的全面信息。
+配音：香草山教育部 – Rose
 
-[安省医院协会]最新数据显示，全省当天总共报告了近8000名新增病毒感染者，3220名疫情住院病例，其中包括477名重症监护和250名使用呼吸机患者。
 
-对此，尽管该省近期实施了更严格的防疫措施以阻止疫情恶化，但“奥密克戎”这种高传染性病毒所造成的灾难在不断加剧医疗系统工作人员严重短缺的现象。因此，那些被视为非紧急的手术治疗也被暂停或延期以减轻医护人员不足的压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月10日，盖特官方账户宣布，福克斯新闻主持人塔克·卡尔森正式加入盖特。郭先生以及盖特CEO杰森·米勒先生纷纷发盖文，表示热烈欢迎。
 
-据悉，当局目前正计划全面召回此前因未接种疫苗而被迫离职的医护人员，并希望以此应对安省即将崩溃的基础医疗服务系统。
+塔克·卡尔森是美国著名政论节目《卡尔森今夜秀》的主持人，还是一名保守派政治新闻记者、作家、时事评论员。主持风格真实严谨，大胆犀利，一针见血。对病毒溯源、2020美国总统大选、言论管控及强制疫苗政策等当今热点新闻，都进行了追踪报道。尽管塔克被左派描述为“激进的民族主义者”而饱受攻击，他的节目依然经常成为美国新闻类节目的收视率冠军。
 
-校对编辑：硫酸羟氯喹64
+继上周播客巨星乔·罗根落户盖特，引发一波注册狂潮之后，塔克的进驻无疑又会带来巨大的关注度。盖特，作为全世界自由言论的平台，随着盖特支付、直播、打赏等功能的逐步推出，即将成为社交媒体最重要的新生力量。
 
-发稿： 苦尽甜来 (文來）
+文字版原文：[福克斯当家主持塔克·卡尔森加入盖特](https://gnews.org/zh-hans/1847834/)
 
-原文链接：[Just over half of Ontario’s COVID hospitalizations were due to virus | Toronto Sun](https://torontosun.com/news/provincial/just-over-half-of-ontarios-covid-hospitalizations-were-due-to-virus)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
