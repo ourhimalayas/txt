@@ -2,22 +2,40 @@
 ---
 
 
-## 文贵大直播 1/12 伊萨贝拉杨背后是邪恶中共
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1851477/)
+## 曝光的关于功能增益研究的军事文件与福奇博士宣誓后的证词相矛盾
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1851528/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot5.jpg)图片来源： GTV
-1月12日文贵大直播伊始，爆料革命发起人郭文贵先生对VICE 的伊萨贝拉杨及其背后中共邪恶计划进行了再次揭露和怒斥。
+**编译：七叶之芒**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip11.png)周一晚上，Project Veritas 发布了前所未有的军事文件，内容涉及 Covid-19 的起源、功能获得性研究、疫苗、潜在治疗方法以及政府隐瞒一切的努力。
+“真相计划”周一晚间发布了从未见过的军事文件，内容涉及Covid-19的起源、功能增益研究、疫苗、潜在的治疗方法以及政府为掩盖一切而做出的努力。
 
-从4年前HBO第一次对郭先生采访开始，文贵先生就对中共操控的所谓大外宣进行了大量的揭露和爆料，这次的短兵相接，无一不验证了郭先生对中共邪恶计划精准预判。
+新发布的军事文件与福奇博士在宣誓后的证词相矛盾。
 
-VICE的伊萨贝拉杨对在美华人的所谓采访，实质是挑起对华裔甚至所有亚裔的仇视、歧视，污名化、邪教化海外华人，以在病毒、疫苗真相大白于天下之际，通过绑架所有华裔甚至亚裔来混淆黑白，乱中求胜。
+福奇曾多次在国会宣誓作证，美国政府从未参与武汉实验室的功能增益研究。
 
-在2021年1月6日，作为新中国联邦创始人的郭文贵先生敏锐、明确地引领所有战友和Q组织划清界线，但HBO依旧通过所谓镜头语言，阴险地把在美华人定义为仇恨、暴力、混乱的源头群体。这和当年的印尼排华如出一辙。
+- 军事文件指出，生态健康联盟在2018年3月与DARPA（国防高等研究计划署）接触，寻求资金以进行蝙蝠携带的冠状病毒的功能增益研究。该提案被命名为“化解项目”，由于安全问题和违反功能研究暂停令的概念，被DARPA拒绝。
+- 几个月前，关于生态健康联盟提案的主要报告在互联网上泄露，它直到现在仍未得到核实。“Veritas”项目获得了一份提交给国防部监察长的单独报告，该报告由美国海军陆战队少校约瑟夫-墨菲撰写，他曾是DARPA研究员。
+- “该提案没有提到或评估功能增益（GoF）研究的潜在风险”，这是DARPA拒绝信中的直接引语。
+- “Veritas”项目向DARPA寻求关于隐藏文件的评论，并与通信主管贾里德-亚当斯进行了交谈，当被问及文件被埋藏的方式时，他说：“这在我看来不正常。”
 
-新中国联邦将依照美国的法律，惩罚邪恶中共操控的HBO，避免全球再发生印尼排华式的人类悲剧。
 
-【来源链接】https://gtv.org/broadcast/watch/61ded0fea6dfdd603152f65d
+如果国防部认为这项[功能增益]研究太危险，不能继续进行，那么究竟为什么美国国立卫生研究院、美国国家工业研究院和生态健康联盟鲁莽地无视其中的风险？
+
+（插入视频链接地址：
+
+
+
+**新闻来源**：[thegatewaypundit.com][Project Veritas: Never Before Seen Military Documents About Gain-of-Function Research Contradict Dr. Fauci Testimony Under Oath (VIDEO）](https://www.thegatewaypundit.com/2022/01/project-veritas-never-seen-military-documents-gain-function-research-contradict-dr-fauci-testimony-oath-video/)
+
+* * *
+
+***审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 

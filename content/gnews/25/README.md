@@ -2,31 +2,25 @@
 ---
 
 
-## 美国正在面临严重的通货膨胀危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851388/)
+## 特鲁多正恣意污名化未接种疫苗者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851421/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月11日，据相关媒体消息显示，美国参议员乔-曼钦认为，拜登总统推动的“重建经济”法案或将继续增加美国的赤字和债务，并助长美国正在经历的、近40年以来增长最快的通货膨胀危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-11.jpg)
-研究数据表明，按照美国当前的通货膨胀率来看，每个美国家庭每年会因通胀而额外增加5000美元的支出，其中，超过一半的额外花销源于必要的生活支出价格上涨，这种情况在低收入家庭中更加明显。此外，通货膨胀率与政府收税的增加成正比，就美国目前通胀的现状而言，一个中收入家庭将额外增加1500美元的税务支出。
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-1.jpg)
+据加拿大媒体[真北方]1月10日报道，由于总理特鲁多最近不仅将未接种疫苗者定义为“憎恶女性和极端种族主义者”，还将疫情恶化和严苛的防疫政策归咎于他们的言论，而受到加拿大各界的严厉抨击，并被质疑该总理是否已精神错乱。
 
-对此，郭文贵先生曾在直播中多次提及，美国乃至世界所面临的通货膨胀问题已经非常严重，且随着大环境的逐渐恶劣，这种困境将转变为更加严重的滞涨问题。
+报道称，人们对接种疫苗的态度和认知是因人而异的。而在当下危急时刻，国家领导人应团结民众而不是分裂社会。因此，贵为一国总理的以上这种不负责任的言行是不可理喻的。
 
-参考链接：[New evidence that Democrats are seeking a massive inflation booster shot](https://www.washingtonexaminer.com/restoring-america/faith-freedom-self-reliance/new-evidence-that-democrats-are-seeking-a-massive-inflation-booster-shot)
+此外，在疫苗接种政策方面，政府一如既往，并未将疫情真相告知公众，并在当初毫无医学证据的情况下，向人们许诺疫苗有效。现在又鼓动第三甚至更多剂量的疫苗注射，以试图遏制目前失控的疫情。特鲁多这种明知疫苗无效却仍推广接种的行径是邪恶的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+报道最后指出，目前疫情恶化的事态让特鲁多恐惧万分，并急需找到替罪羊来替其政府承担一切灾难后果。而加拿大少数未接种疫苗者自然就成为当局最终污名化和栽赃的对象。
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://tnc.news/2022/01/10/is-justin-trudeau-losing-his-grip-on-reality1/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

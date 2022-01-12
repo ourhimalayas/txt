@@ -2,36 +2,25 @@
 ---
 
 
-## 科兴公司2021年度半年内狂赚50亿美金
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851529/)
+## 奥密克戎在南非之前就已存在于加拿大废水中
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1851557/)
 
-作者：纽约香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月11日，据有关媒体报道，在美国挂牌的中共国科兴生物公司仅在2021年的上半年就实现了超出50亿美元的净盈利营收。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-上午9.42.05.png)
-另据科兴公司近期披露的财务报表显示，该公司的销售额在2021年上半年暴增至110亿美元，较2020年同期增长了162倍，其中归属于股东的净利润则高达51亿美元。
+采编：文莱           编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-2.jpg)
+据《温哥华太阳报》1月10日报道，加拿大[达尔豪斯大学]的研究人员在南非报告“奥密克戎”变体之前，就于去年11月中旬在新斯科舍省的废水中检测到了该病毒。
 
-然而资料显示，科兴在未研发中共病毒疫苗之前，其业绩上一直表现平平。自科兴2004年赴美挂牌后，该公司一直处于连年亏损的低谷之中。2020年，科兴生物公司的总营收仅有六千七百七十万美元，依然亏损了超过一千两百万美金。
+报道称，该省第一例奥密克戎感染病例于12月13日被确诊，这距离11月24日南非的该病毒报告仅有几周时间。自去年12月以来，该团队一直在检测全省四个主要污水处理厂的样本。由于废水提供了先于病毒感染者所出现的早期预警信号，加之“奥密克戎”比Alpha和Delta变体更易传播的特点，因此该类型的测试将成为未来追踪病毒传播的关键方法。
 
-对此，有相关人士指出，科兴公司在2021年所取得的超常业绩完全源于各国政府的中共病毒疫苗强制接种政策，而科兴的财务报表只是暴露了疫苗暴利行业的冰山一角。
+以上事实清晰表明了“奥密克戎”病毒是中共当局再次故意投放到世界各地的生物武器，也无疑验证了新中国联邦此前疫情信息来源的准确性和对中共政权邪恶手段的预见性。
 
-参考链接：
-1）[科兴靠疫苗大赚214亿　大赢家却是日本人](https://news.seehua.com/?p=790876%0A)
-2）[科兴生物卖疫苗赚的51亿美元会被谁收入囊中？](https://www.sohu.com/a/515230245_120321309)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+发稿： 苦尽甜来 (文來）
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+[原文链接](https://vancouversun.com/news/canada/omicron-was-in-nova-scotia-wastewater-before-it-was-identified-in-south-africa/wcm/6471a261-54de-4b31-886d-9e0befcbef5a)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
