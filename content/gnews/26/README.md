@@ -2,8 +2,8 @@
 ---
 
 
-## 什么叫叛国？什么叫卖国？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856333/)
+## 西安的&#8221;共享财富&#8221;开始了
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856308/)
 
 台灣寶島農場
 
