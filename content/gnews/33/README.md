@@ -2,26 +2,19 @@
 ---
 
 
-## 辉瑞前副总裁向国际刑事法院提起反人类罪诉讼
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853975/)
+## 新中国联邦的唯一目标：灭掉共产党
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854134/)
 
-翻译：Lish
-校对：精靈藍
-剪辑/字幕：蛮吉
-编辑：Mttfly
+#### 整理：雅典娜速记组
+编辑：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新中国联邦的唯一目标灭掉共产党.png)
+**你们都没想到七哥早就把西藏的大屠杀掌握的资料, 新疆的资料是发给了无数的国会议员，而且我们给他发的时候都不用新中国联邦**, 我们不像欺民贼，他一旦有照相的机会，马上去了，我得站在这儿，是吧？照相, 哎呀我一看我就恶心。靠别人给自己撑腰的人，你永远没有脸，你连个腚都没有。
 
-近日，以辉瑞公司前副总裁迈克尔·耶登博士为代表的请愿人向国际刑事法院提起诉讼。他们指控福奇、世卫组织、彼得·达斯扎克、辉瑞主席阿尔伯特·伯拉、英国首相鲍里斯·约翰逊等一系列推行强制疫苗政策、野蛮限制人民自由、压制伊维菌素和羟氯喹的政客与大公司。请愿人呼吁立即停止新冠疫苗接种，并对这些人依照纽伦堡法典进行反人类罪大审判。
+啥时候人要跟我照相？觉得啊，你有面子那才叫我们。**新中国联邦有一点志气**，别往那名人那闯，是很Low的，好不好？
 
-视频链接：[Former Pfizer vice president filed a complaint with the International Criminal Court for those who violates the Nuremberg Code](https://rumble.com/vrbj34-how-cancel-culture-has-impacted-officials-accused-of-crimes-against-humanit.html)
+我们递给他，只让他们知道。我们辗转的给了他们。我们要的是啥？你要的是摆那个pose的照片吗？你要的是人家在直播中说啥嘛。我看见有人说啊，过几天我们新闻就报道了，我记得是啊，是瑞安平、哈恩啊，在群里讨论啊，过一段时间，这新闻媒体就报道了。我真的是听这话很不舒服，我不知道是谁，在咱们群里边。如果五年前，你认为就像他欺民贼，谁动不动”主流媒体媒报道我了“。这一报道咱就兴奋的莫名。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**兄弟姐妹们**，从第一天我们要的不是谁报道我们，不是跟谁照相，也不是谁跟我们在一起。**我们只要对共产党有威胁性，灭掉共产党，这是唯一的目标。**
 
  
 
