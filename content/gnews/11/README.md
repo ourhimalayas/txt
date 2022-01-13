@@ -2,42 +2,36 @@
 ---
 
 
-## 中国的水都是自西向东南流中国的乾隆八卦里东南是水位
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854058/)
+## 北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1854091/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7ee487664c47acd3e8e5](https://gtv.org/video/id=61df7ee487664c47acd3e8e5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/china-dual-oylmpics-worker-labors-assemble-olympic-rings-of-tower-outskirts-of-beijing-china-wedn-640x480-1.png)图片来源 ：布赖特巴特网
+《布赖特巴特新闻网》2022年1月10日报道，因为中国共产党严禁北京主办的冬奥会的参与者与任何外部人员之间进行互动，以防止中共病毒的传播，北京市交管局(Beijing Traffic Management Bureau)在周日警告当地居民，在即将到来的冬奥会期间要与涉及2022年冬奥会的车辆“保持安全距离”避免可能的交通事故。
 
-**郭文贵先生：**你们知道所有的帕米尔的水，还有整个从喜马拉雅山的水，大家问我，中国有一个河流是从东往西流水的吗？有吗？没有吧！文耀你要找出个从东往西流水的，你就是神人了。所有的水是从西向东流。不管你们水多水少，你也阻挡不了你的水从身体上都是从上往下流一样。不管你小飞象、小飞侠、佳佳、王子你多年轻，你不能，你可以尿自己的脸上，但是你想自己的高潮之水往上流是不可能的，无论你们谁高了，都是水往下流，这就是天然之规律。
+该通讯社指出：“任何进入‘气泡’的人都必须完全接种疫苗，否则在着陆时将面临21天的隔离，里面的每个人每天都将接受检测，并且必须始终佩戴口罩。”
 
-中国的水都是往西流，往东南流，所以中国的乾隆八卦里边儿，永远东南角是水位，龙位，龙位，龙饮水，这个都是《山海经》，刚才你们说的《山海经》，《山海经》是干啥的？《山海经》是把远古的所有的民族、自然、神话给你放在一起的。《三心通论》和真正的《三心通论》最后的总结，包括《山海经》都在告诉中国大自然和人类变化的一个基本的历史和规律，你是可以看的。
+北京交通部门专门为2022年冬奥会的参与者创建了一个特殊的交通系统，以帮助圈控该赛事。据《法新社》报道，整个闭环系统包括“场馆之间的专用交通……高速轨道系统与对公众开发的系统并列运行”。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+奥运轨道线路将继续运营至3月底或4月初，大概是为了将参加冬奥会的工作人员与北京外部的一个更大的隔离系统中的人群隔离。以任何身份参加2022年冬奥会的中国居民，在离开“气泡”后必须隔离21天，然后才被允许返回家乡。
 
-编辑整理：Jacques；
+法国国有通讯社1月4日透露：“驻华外交官告诉《法新社》，这些措施似乎坚不可摧，他们担心无法对在“气泡”中的本国国民提供适当的帮助。”
 
-字幕文件制作：小满；
+简评：闭环管理的原则是全封闭、点对点、全流程。“全封闭”意味着在冬奥会的所有相关场所，闭环外和闭环内人员之间不会有任何接触，通行路线、出入口等均会有明确区分和限制标识。按照这种管理方式，人们当然不可能知道邪恶的中共政权在冬奥会举办期间会对外国的参赛人员和工作人员做些什么。
 
-视频制作及上传：Cindy；
+中共政权有意图地在实验室制造新冠病毒，并在2019年将病毒释放到全世界，不知不觉地在全球范围内发动了一场惨绝人寰的生物武器战争。时至今日，这场战争仍在继续。如今，他们又营造出这么一个类似新疆集中营的“气泡”式冬奥会隔离区、隔离线将世界各国运动员圈控在内进行比赛，这难道不是一件令人惊恐的事情么？如今中共经济面临崩溃，外交压力空前，行将末日的中共政权是否会在政权垮塌之前通过冬奥会，通过圈控冬奥会参赛人员和工作人员做出更匪夷所思的反人类举动无人知晓。而各国政府对各国运动员参与冬奥会所采取的默许态度，无疑是对本国运动员的极度不负责任，同时还潜藏着巨大的危险和不确定性。希望各国政府和运动员能够尽早意识到这些问题，放弃参与这场带有种族灭绝标记的冬奥会。
 
-G-News发布：小满；
+新闻来源：[https://www.breitbart.com/asia/2022/01/10/beijing-tells-locals-not-help-genocide-olympics-vehicles-if-crash-contain-coronavirus/](https://www.breitbart.com/asia/2022/01/10/beijing-tells-locals-not-help-genocide-olympics-vehicles-if-crash-contain-coronavirus/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+* * *
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑：【英国伦敦喜庄园编辑部】
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

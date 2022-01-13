@@ -2,46 +2,34 @@
 ---
 
 
-## 普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854067/)
+## 印中就脱离边境举行会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1854097/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7f1787664c47acd3e900](https://gtv.org/video/id=61df7f1787664c47acd3e900)
+#### **撰稿：**日本东京方舟农场 子辰
 
-**郭文贵先生：**海派的江家、曾家、孟家，在上海所谓建的那个龙柱子大桥，实际上人都知道，当年什么大柱子打不下去了，最后江泽民来祈祷了，建成龙了，那桥就起来，我相信你们都知道这故事，他相信龙。南普陀，所有的立菩萨像的时候，南普陀起于什么时候，你们谁知道？我说的是舟山普陀啊，不是福建普陀。福建那个普陀才多少年？百年，啥都不算的。舟山，谁一说福建普陀的时候，他根本不懂佛教，不懂中国历史，你就不要搭理他了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/77B66CB7-95AD-4EA5-BE1B-704D4D4AD5A0.jpeg)（图片来自《美国之音》）
 
-当年我记得哪个，一个女民运分子，说：“郭文贵讲的福建普陀，我就生在那儿，根本不是那么回事儿”。哎呦我的妈！我差点真的痔疮掉了好几地，你知道吗？就这种垃圾也敢配跟我说话，是吧？福建的普陀才多少年呐，舟山普陀是多少年，你起码知之为不知啊，她是不知为不知啊，这个垃圾简直是真的丢死人了。
+据《美国之音》1月13号日报道，印中两国就达拉克边境是否脱离军队接触举行会谈。试图缓解20个月以来的军事对峙。
 
-南普陀，告诉我是哪一年？谁能说？舟山普陀。全傻了吧？全傻了吧？
+此前，印中两国在大约3400公里长的具有争议的边境地区集结了数万军队、火炮和战斗机。此次会谈将重点讨论从温泉撤军的问题，这里曾是印中军队2020年5月爆发暴力冲突后出现的几个摩擦点之一。
 
-它真正地是普陀山记载当中是唐朝。但是在唐朝之前，它这个真正地是旺在明朝，毁在明末。清朝一毁，清朝再建。然后到了民国再旺，然后共产党，然后再烧，烧完再建，建于曾庆红、江家“上海帮”，实力起来。你看七哥。
+据悉，自双方去年从班公湖这个喜马拉雅的战略湖泊地区撤出了军队以后，就在其它地区是否脱离军队接触的会谈中陷入了僵局，双方因缺乏进展互相指责对方。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+印度陆军参谋长纳拉万（M.M. Naravane）1月12日在年度记者会上说，双方的会谈是否成功将取决于双方如何降低紧张局势及撤军的明确态度。他说，希望会谈顺利取得进一步地进展，虽然有部分的脱离接触，但是威胁一直存在。他还表示，不介意会谈拖延，他们准备维护目前的立场，直到实现自身的国家目标和利益。
 
-编辑整理：Jacques；
+中共外交部发言人汪文斌说，希望印方能同中方一同前行，尽快推动边境事态从应急处置转入常态化管控阶段。他形容印中两国边境局势“总体稳定”。
 
-字幕文件制作：小满；
+此外，白宫新闻秘书莎琪在1月12日华盛顿举行的例行记者会上，回答中共在印度边境的“侵略行为”问题时说，我们一直明确表示如何看待中共在当地和世界各地的行为，并认为这可能是破坏稳定。莎琪说，我们一直对中共试图恐吓邻国感到关切，并称将继续与伙伴们站在一起。
 
-视频制作及上传：Cindy；
+*参考链接：[印中举行边界脱离接触的会谈](https://www.voachinese.com/a/india-china-hold-talks-20220112/6394309.html)*
 
-G-News发布：小满；
+* * *
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+*素材采编：子辰*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*编辑：青城道姑*
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 

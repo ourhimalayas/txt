@@ -2,34 +2,40 @@
 ---
 
 
-## 陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854046/)
+## 华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854090/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7eaa87664c47acd3e8c1](https://gtv.org/video/id=61df7eaa87664c47acd3e8c1)
+视频链接**：**[2022年1月12日 文贵大直播- G|TV](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-**郭文贵先生：**就共产党在昆仑山上的信息和整个喜马拉雅山区控制，就像控制爆料革命一样，你几乎找不着，你找着也不是真的。而且你也找着会问，你像刚才那个PPT你们要相信了那你们就傻了，完全就走弯路去了，错误的方向。就是共产党把你在十字路口，把左变成右，右变成左，你一定是跟着他那个指向牌走，那你就完了，完全颠倒。
+**郭文贵先生：**你们一定要认识到邪教组织的本能是什么？主控制、精神控制、聚敛钱财、反社会，这个这几条组织的邪教组织，你记住反社会、精神控制、主控制，这就是教主。然后精神控制，我刚刚发给他那边，编造邪说，还编造邪说，就Q组织编造些这六条，这六条啊，墨镜你放出来，我刚发给他，看看这是七哥的原稿，没加编辑啊！
 
-我告诉大家，胡锦涛来自西藏，胡春华来自西藏，陈全国当时从河南到河北。他在河北的是谁啊？最核心人物，当年河北就是张越是第二把手。胡春华也在河北出来的，在政法委最牛的就是张越，后来就董屳生这个王八蛋，把曲龙放出来那个孙子，就是这个人是真正的跟孟建柱跟江家，他骨子里边儿最看不起的习近平。董屳生放曲龙出来就咬我，这个董屳生是曾庆红的家里边儿就一“狗”，把马建给害了，把张越给弄起来了。
+邪教组织的六大特征是什么？
 
-张越跟胡春华，跟那个陈全国都熟得不行。你知道这些人有个最大的本质是什么吗？很不幸，所有的像跟我认识的，像张越，马建，别人列为我这一派，兄弟姐妹们，共产党会跟谁好啊？我跟你们说实话，我要在国内，把我弄起来的绝对不是孟建柱，一定是马建或者张越把我弄死了。为什么？因为七哥跟他们太近了，知道太多了。
+教主崇拜，你们有教主崇拜吗？所以说你就别老说爱七哥了哈，又是水多又是啥多了;
 
-所以说这里没有什么董屳生跟咱不是一派，曾庆红跟咱是不是一派，不存在，只要是共产党，它没有跟咱是一派的。但是你又看到这里边儿他们是分两派的。这些人是绝对有相信迷信，有不相信迷信。曾庆红是绝对相信，董屳生是绝对相信的。张越和马建属于比较低的官员家庭出身，就有点“浑不吝”那种，就要被清掉。当然了开始江派和曾派，和后来胡锦涛，胡锦涛派的结合，当时跟着胡锦涛的那就是江家，曾家的仇人，是吧。
+精神控制，我控制你们了吗？草根小哥你跟谁双修我管过你吗？
 
-马健和张越就是两边儿过去你轮不着，你太年轻，后来就又往人家胡锦涛那儿搭扯，结果江派一上来他肯定曾派把你灭了，他就这么简单的道理。那和昆仑山有啥关系呢？兄弟姐妹们，大家要记住哈，陈全国绝对是相信昆仑山派的，相信西藏派的，胡春华绝对相信这喜马拉雅，昆仑山的，胡锦涛绝对知道西藏的力量，昆仑山的力量的。
+编造邪说，咱编造有一个能证明的吗？
 
-曾家是相信啥啊？曾家是相信南普陀。南普陀是啥地方？南普陀是在整个地球变化之后，也是几千万年前形成的花岗岩的石核，是整个最南侧的，最南侧的一个几个岛屿，众岛拥在一起的。曾庆红虽然出自于广西，曾庆红认为自己是 “海派”，广东和“上海帮”的代表人。江家相信的是什么？相信的是龙，龙要饮水。
+聚敛钱财，秘密结社，咱秘密结社了吗？咱都是公开直播，咱有秘密结社了吗？咱聚敛过谁的钱财？告诉我哪一个不是在法律范围内；
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+对抗社会，对抗社会看看什么叫对抗社会。
 
-编辑整理：Jacques；
+如果什么叫邪教组织？看这上面这一条，毛泽东教主崇拜；精神控制，穿蓝衣服白衣服，爹亲娘亲不如党亲，东方红太阳升，中国出了个毛泽东，万岁万岁万万岁；编造邪说，共产党说这个抗日，共产党说拯救了56个少数民族，56个少数民族认为毛泽东是太阳，没有共产党，就没有新中国，这是不是编造邪说出来，多了去了是吧；聚敛钱财，把中国的土地，打地主，分田地；秘密结社，共产党的1913年以前，完全属于外来组织，早该杀早该抓，是吧；对抗社会，所有中国人网络控制，新疆大屠杀，56个民族快被他灭了，制造假的组织，所谓人大代表。你说那个不是共产党啊！邪教组织今天对照，哪个不是共产党啊？！
 
-字幕文件制作：小满；
+这六条！但凡有点脑子的人，你们告诉我，如果这六条你不说哪个是共产党，这我这刚刚发发给他，我这是昨天…我从这个…跟那个外国人…开几个小会，我说你们知道什么叫中国说、Q邪教组织吗？他们说不知道，我说我告诉你们，哇塞！他们说太险恶了吧！我说这就共产党，要把我们所有的反共产党人定为邪教组织，这六条适合每个人，班农、Hagar、Maria、还有Joe Regan（英文人名音译）全属于歪门邪说，全制造邪说，精神控制，然后班农聚敛钱财是吧！哇塞！这一说你看看你们现在你们四个，两个帅哥，两个美女你们全是属于邪教成员。
 
-视频制作及上传：Cindy；
+但是我请问你们？你们有没有其脑啊？有没有主控精神别人啊？有没有聚敛钱财啊？有没有编造邪说呀？有没有反社会啊？Isobel·Yeung给所有中国人定义，就是这六个特征。但是反过来说啦，但凡有点不是猪脑袋的人，你都会知道共产党符合这六条邪说的所有的东西，可怕不可怕呀！最可怕的是猪你吃猪食的时候，人家说跟你吃点儿肉吧，然后说我不行是吧，我得吃猪食因为我是猪，但是我们到了西方才发现，一贯吃猪食的猪，在西方吃的都是比人还好的青菜。
 
-G-News发布：小满；
+在中国说狗改不了吃屎，我们家狗真的不吃屎，见屎就跑，一个不让狗吃屎的地方狗都不吃屎，在中国是让人应该吃饭的地方让人吃屎，然后把人肉都吃了，这就是邪恶、邪教的特征！
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+你们要大胆的说出去什么叫邪教？Isobel·Yeung就是邪教的传播者，洗脑、主控、制造歪门邪说，HBO、VICE而且制造大型仇恨、反社会，我们要不跟VICE、HBO、跟这个Isobel·Yeung干下去，我们这华人真的不连猪都不如！他说不是邪教就不是邪教了吗？！
+
+编辑整理：海贼王M.D.LUFFY；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
 声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
@@ -37,15 +43,17 @@ G-News发布：小满；
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：日本银河系农场。
+
+
 
  
 

@@ -2,23 +2,39 @@
 ---
 
 
-## 盖特让所有人重获缺失的言论自由
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853735/)
+## 预防网络监控，冬奥会荷兰运动员不带自用手机和电脑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853894/)
 
-采编：Spirit       编辑撰稿，发稿：硫酸羟氯喹64
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-5-edited.jpg)图片来源：NBC
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/@CVDBMTBPRAX1X61B.png)图片来源：Vox
 
 
-据美国《NBC新闻》1月10日报道，盖特引领的新型社交媒体平台正在兴起。由于大量自由言论的声音被推特、YouTube和脸书等科技巨头所打压，这对进一步推动盖特的蓬勃发展起到了巨大的作用。
+整理报道：文扬
+编辑：文泓
 
-报道称，被喻为推特杀手的盖特于去年7月推出之后，人气不断飙升，支持者持续云集。而对于近期媒体名人罗根的加入，首席执行官米勒表示，盖特不仅代表了民意的大觉醒，还为罗根及其百万粉众提供了可以分享和发表不同竞争性观点的唯一平台。同时，由于真正重视言论自由，因此盖特欢迎所有持不同政治观点的人加入其中，并能在该平台上进行激烈的辩论。
+阿姆斯特丹消息，当地时间1月11日路透社报道，本地报纸《德·沃尔斯克兰特》周二报道，参加下个月北京冬奥会的荷兰运动员需要将自用的手机和笔记本电脑留在家中，以避免中共国的间谍活动，这是前所未有的举措。
 
-事实表明，推特以及其他科技巨头不仅对其标记为“有攻击性言论的用户”公然实施双重标准，而且还封杀并因此激怒了广大的自由主义者。此外，独断专行不只限于推特，Facebook和Youtube这些公司也都同样按其偏执的政治立场来判断是非。而最终它们所有的挣扎都会加快把盖特推向喜马拉雅之巅。
+该报援引接近此事的消息人士的话说，对运动员和辅助人员提出的不带任何个人设备到中共国的紧急建议，是荷兰奥委会（NOCNSF）提出的一系列措施的一部分，以应对中共国家工作人员的任何可能干扰。
 
-* * *
+NOCNSF发言人格鲁特·斯洛特表示，网络安全是对此次中国之行做出的风险评估的一部分，但拒绝就其任何具体措施发表评论。
 
-原文链接： https://www.nbcnews.com/think/opinion/twitter-lacked-something-important-political-discourse-joe-rogan-found-it-ncna1287285
+斯洛特说：“这些年来，网络安全的重要性越来越大，但中共国已经完全关闭了其互联网，这使得它成为一个特殊的案例。”
+
+消息人士告诉《德·沃尔斯克兰特》，**参加北京冬奥会荷兰团队成员将配备全新的未使用的设备，以保护他们的个人数据信息免受中共国监控。**
+
+至少有30名荷兰运动员将参加下个月的北京奥运会，主要参加项目是速度和短道速滑项目。
+
+原文链接： [Dutch athletes warned to keep phones and laptops out of China -media | Reuters](https://www.reuters.com/lifestyle/sports/dutch-athletes-warned-keep-phones-laptops-out-china-media-2022-01-11/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

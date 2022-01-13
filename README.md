@@ -15,122 +15,122 @@
 
 ---
 
-### [新中国联邦的唯一目标：灭掉共产党](/content/gnews/1/README.md)
+### [前总统川普在中共病毒疫苗道路上越走越远](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [厚生劳动省将做出决定，是否对5岁以上儿童进行疫苗接种](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [丹麦成为第一个接种第四针新冠疫苗的欧洲国家](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/2/README.md)
+### [CECC就冬奥队服使用“新疆棉”一事质询IOC](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [云仙引 &#8211; 昆仑八子出豪杰](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦的唯一目标：灭掉共产党](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/3/README.md)
+### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印中就脱离边境举行会谈](/content/gnews/4/README.md)
+### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [印中就脱离边境举行会谈](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/5/README.md)
+### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/6/README.md)
+### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/7/README.md)
+### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/8/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/9/README.md)
+### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特鲁多将加拿大出卖给了全球主义](/content/gnews/10/README.md)
+### [特鲁多将加拿大出卖给了全球主义](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/11/README.md)
+### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀](/content/gnews/12/README.md)
+### [陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [昆仑山是共产党权力的来源,驻军没有退伍没有属猪和属虎](/content/gnews/13/README.md)
+### [昆仑山是共产党权力的来源,驻军没有退伍没有属猪和属虎](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大好消息:共产党不会有二十大，共产党会被消灭在二十大](/content/gnews/14/README.md)
+### [大好消息:共产党不会有二十大，共产党会被消灭在二十大](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/15/README.md)
+### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [昆仑山几座主峰与盘古的距离关系和与数字七的特别关联](/content/gnews/16/README.md)
+### [昆仑山几座主峰与盘古的距离关系和与数字七的特别关联](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [太阳系是一个人的身体，整个昆仑山脉是地球的一个脊椎](/content/gnews/17/README.md)
+### [太阳系是一个人的身体，整个昆仑山脉是地球的一个脊椎](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国和西方用策反越南柬埔寨新加坡还击中共支持BLM](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [颠覆美国——习近平搞砸中美关系（三）](/content/gnews/19/README.md)
+### [颠覆美国——习近平搞砸中美关系（三）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞前副总裁向国际刑事法院提起反人类罪诉讼](/content/gnews/20/README.md)
+### [辉瑞前副总裁向国际刑事法院提起反人类罪诉讼](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马化腾一面向中共表忠心一面暗示腾讯随时会被干掉](/content/gnews/21/README.md)
+### [马化腾一面向中共表忠心一面暗示腾讯随时会被干掉](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [短视频：美国多个州中共病毒病例创下新高](/content/gnews/22/README.md)
+### [短视频：美国多个州中共病毒病例创下新高](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [预防网络监控，冬奥会荷兰运动员不带自用手机和电脑](/content/gnews/23/README.md)
+### [预防网络监控，冬奥会荷兰运动员不带自用手机和电脑](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国因朝鲜导弹制裁俄罗斯公司](/content/gnews/24/README.md)
+### [美国因朝鲜导弹制裁俄罗斯公司](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗正在杀害至少40%的接种者](/content/gnews/25/README.md)
+### [疫苗正在杀害至少40%的接种者](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国发红通引渡战友，法治基金致函塞浦路斯政府](/content/gnews/26/README.md)
+### [中共国发红通引渡战友，法治基金致函塞浦路斯政府](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [盖特让所有人重获缺失的言论自由](/content/gnews/27/README.md)
+### [盖特让所有人重获缺失的言论自由](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [12/10/2021 文贵直播：中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征，中共就是邪教](/content/gnews/28/README.md)
+### [12/10/2021 文贵直播：中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征，中共就是邪教](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [英国咨询公司亨利律师事务所公布最新护照排名](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [近百万美国人因新冠疫苗染疾或死亡，他们不是无名无姓的数字！](/content/gnews/30/README.md)
+### [近百万美国人因新冠疫苗染疾或死亡，他们不是无名无姓的数字！](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [众议院共和党人发布证据确凿的福奇电子邮件 表明其隐瞒有关实验室泄漏的信息](/content/gnews/31/README.md)
+### [众议院共和党人发布证据确凿的福奇电子邮件 表明其隐瞒有关实验室泄漏的信息](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [受中共操控的Isobel、Q组织用心歹毒庆幸爆料革命提前预判](/content/gnews/32/README.md)
+### [受中共操控的Isobel、Q组织用心歹毒庆幸爆料革命提前预判](/content/gnews/35/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [港共当局将病毒传播“甩锅”给纸钞](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【粤语配音】2022年1月12日：共产党将没有二十大](/content/gnews/34/README.md)
+### [【粤语配音】2022年1月12日：共产党将没有二十大](/content/gnews/36/README.md)
  ` MOS香港部`
 
-### [美国会议员要求国际奥委会证明奥运制服未使用强迫劳动](/content/gnews/35/README.md)
+### [美国会议员要求国际奥委会证明奥运制服未使用强迫劳动](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [EMA警告：频繁的加强针对免疫反应不利](/content/gnews/36/README.md)
+### [EMA警告：频繁的加强针对免疫反应不利](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国CDC预测下个月新增COVID-19死亡病例62000例](/content/gnews/37/README.md)
+### [美国CDC预测下个月新增COVID-19死亡病例62000例](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [法国各地抗议埃马纽埃尔-马克龙的疫苗限制计划](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Eglise医生关于Omicron病毒预防及治疗建议方案 &#8211; 更新版](/content/gnews/39/README.md)
- ` 喜马拉雅纽约磐石农场`
 
 ### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
