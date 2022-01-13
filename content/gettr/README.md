@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 11:08 PM (UTC)`
+
+1/12/2022 Miles Guo: Having taken the dirty money from Alvin Jiang and Bruno Wu, Isobel Yeung is implementing the plan made by the CCP four years ago, with the purposes being eliminating me and the New Federal State of China and associating the Chinese diasporas with QAnon so that they can be labeled as cult members<br/><br/>1/12/2022 文贵直播：杨贝贝拿了江志成和吴征给的脏钱，正在执行着中共4年前制定的计划，其目的是要干掉文贵和新中国联邦，并将把海外华人与Q组织联系在一起从而将其打成邪教分子<br/><br/>
+![img](https://media.gettr.com/group12/getter/2022/01/13/23/ab0dba02-3d9c-644f-1721-40f5171d0c13/out.jpg)
+
+---
+
 `@miles 1/13/2022 4:36 PM (UTC)`
 
 塞浦路斯新闻报道：美国间接承认的新中国联邦正全力营救战友<br/>对此爆料革命新中国联邦的创始人郭文贵先生在此前的大直播中说：新中国联邦正全力营救战友！<br/><br/>Cyprus news report: The new federal state of China, indirectly recognized by the U.S, is making every effort to rescue its comrades in arms<br/>For this event, the Founder of the New Federal State of China, Miles Guo said: The new federal state of China is making every effort to rescue its comrades in arms
@@ -149,16 +156,6 @@ The content of Wang Yi's call with the Kazakh foreign minister  on 10th Jan veri
 
 ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discuss our recent sign-up surge and Big Tech's decline.
 ![img](https://media.gettr.com/group29/origin/2022/01/11/16/b0ae191b-207e-e1fa-379e-44f8f77e4d11/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@milesguolive 1/12/2022 12:09 AM (UTC)`
-
-盖特CEO的每句话都令人振奋！中文字幕用的是黄色，但是只有一处用了蓝色。英喜视频组的战友太有心了！棒极了！棒极了👍👍👍
-> `@himalayahawk777 1/10/2022 1:59 AM (UTC)`<br/>Jason Miller:<br/>下个月，我们将推出我们自己的竞争者。称之为 #Vision，这是一种短视频格式，与Instagram Reels竞争，也与 #抖音 竞争，因为短视频概念真正推动社交媒体的参与度，今年年中，我们将推出 #盖特支付，这是一个类似于苹果支付或支付宝的在线支付平台<br/><br/>We're going to call it #Vision, which will be a short video format, competes with Instagram Reels, but then also with TikTok, because we know that the short video concept is that's really what drives a lot of engagement on social media.<br/>Coming up in the middle of the year, we're going to launch a #GetterPay, which, yes, will be a payment platform online payment platform similar to an Apple Pay or an AlliPay
-![img](https://media.gettr.com/group15/origin/2022/01/10/01/93298040-0a39-429c-538b-5857ac4f8fcd/out.jpg)
 
 ---
 

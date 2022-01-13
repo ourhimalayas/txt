@@ -2,20 +2,47 @@
 ---
 
 
-## 【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（下）
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1856843/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-紐約香草山-香港部
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-你觉得这是没计划吗？你们但凡有一点儿脑子，兄弟姐妹们，在美国Vice这种出访，里面是律师批、总编批、副总编批，然后摄像机才能到，我所有采访的摄影师、摄像师，都是从不同的城市来的，像她那次采访我是摄影师、摄像师是在英国来的，她正在纽约，还有一个是洛杉矶来的。
+**字幕文本（英汉对照）**
 
-她是4、5年前的一场阴谋，Q组织的阴谋、邪教的阴谋，而且招招是致命的，你们看到了加拿大在商场里面有一个女的说，两位咱们中国华人，是你们把病毒带到了世界，你们中国人，结果是这个人被告了，现在被抓起来了，昨天加拿大的其中有个人跟我们联系，一个律师说，郭先生，我希望你来给我们提供一些合作，能不能证实，你们有各种信息证实，现在全世界共产党有组织的在搞一场排华行动，而达到中共的政治目的，我说：对不起我们没有，为什么没有？知道吗？兄弟姐妹吗们？一个很简单的问题，加拿大发生这个事情，如果我们介入进去，在世界上会有百万、千万起，我们就被人家超限战了。
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-我们有战友在新加坡..，新加坡是这么严谨的地方，他到商场的时候，旁边有马来语说，这两个人傻叉就是纯中国人，在中国来的，这帮王八蛋就该杀，就是他们把病毒带到世界的，结果他懂马来语，他就喊：哎..你怎么这么说呢，他说：你有什么证据？
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-我看到了在日本，咱们战友在车上，旁边有日本人在骂，说你们该滚回中国去，你们把病毒带到世界，我很多亲人被你们杀了，我们要报仇，兄弟姐妹们你们看到新疆人的下场，哈萨克族人的下场、西藏人的下场和印尼排华的下场，你看看这个视频伊萨贝拉·杨，如果没有七哥咱们爆料革命的预判，如果没有行动，会像野火烧山脉一样迅速蔓延，你们每个家人都会遇到这种危害。
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-我再告诉大家在过去的两周，在美国、欧洲所有的大学里面，几乎在暗传着一个消息，一定要尽量的不要中国学生到这学校，在欧洲和美国的院校，已经私下太多传送排斥中国学生，甚至是亚洲学生，已经在韩国、日本、台湾、香港、新加坡都被排斥亚洲学生，共产党太可怕了，要把亚洲、黄皮肤人放着一个墙里面
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
+
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

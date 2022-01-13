@@ -2,47 +2,36 @@
 ---
 
 
-## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
+## 为什么接种辉瑞新冠疫苗的弊大于利（四）
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1857120/)
 
-#### 翻译：Frank
-校对：枳实
-剪辑/字幕：小强
+翻译&字幕：喜国公民
+视频来自网络
+通常情况下，疫苗开发是以10年为一个时间线。而且你安全是一个关键的重点。偶尔一种疫苗的开发时间可以短至5年，但仍有大量时间用于安全性。
 
-**字幕文本（英汉对照）**
+辉瑞公司没有遵循既定的高质量、安全性和有效性协议，这一点从一开始就很明显。对于辉瑞新冠疫苗，一切都在一年之内完成。它跳过了动物试验。第二和第三阶试验段被合并。之后，紧急使用被授权。试验取消了双盲性，并开始推广。
 
-Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
+现在有一种说法，即新冠疫苗产品不需要进行测试，因为mRNA技术已经经过了广泛的测试。但是mRNA技术是传递机制，而不是新冠疫苗本身。所以这就好比说，既然我们过去已经安全地使用了注射器，那么通过注射器注射的任何东西都是安全的。而实际上我们的科学家对mRNA传递机制本身的影响仍有担忧。
 
-随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
+辉瑞试验的另一个问题是人口统计方面的误导，受新冠病毒影响的人的年龄分布与试验中的年龄分布有很大差别。例如，因新冠病毒感染而面临最大死亡风险的人中，85%的人都在75岁以上。但如果你看一下辉瑞公司的试验人口统计，你会发现只有4%的试验对象年龄在75岁以上。
 
-And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
+在设计一个潜在治疗方法的疗效和安全性的试验时，重点应该放在能够从该治疗方法中获益最多的目标人群上。相反，辉瑞公司选择了来自年轻人口的参与者，而没有选择免疫反应相对较差的老年人。
 
-现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+他们不仅在年龄方面向我们展示了误导，而且在健康因素方面也是如此。他们测试了健康人群，而没有选择那些在现实生活中更容易受新冠病毒影响的人群。
 
-And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+在现实世界中，95%死于新冠病毒感染的人至少有一种综合症被列为死因。而实际上这些人平均患有四种综合征。但在辉瑞公司的试验中，只有21%的参与者患有其它疾病。在辉瑞公司的试验方案中，有一份长达数页列有各种疾病的清单，被排除在试验之外。
 
-所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
+他们排除了孕妇、哺乳期妇女、患有过敏症的人和精神病患者、免疫力低下的人、患有出血性疾病的人、以前对新冠病毒检测呈阳性的人、最近服用过处方类固醇的人，等等。
 
-and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+从来没有任何数据可以对这些人接种新冠疫苗进行安全声明。然而，他们并没有被排除在强制接种和疫苗护照之外。这些新冠疫苗在健康人身上进行了测试，然后立即给社会中最弱的群体、老年人和有多种健康问题的人接种。这既不科学也不道德，而且可能导致了新冠死亡人数以及其它死亡率的上升。
 
-我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+消息来源：[The Pfizer Inoculations For COVID-19 – More Harm Than Good – VIDEO](https://perma.cc/KQ5V-MWQV)
 
-i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+前一篇：[为什么接种辉瑞新冠疫苗的弊大于利（一）](https://gnews.org/zh-hans/1828220/)
 
-这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+[为什么接种辉瑞新冠疫苗的弊大于利（二）](https://gnews.org/zh-hans/1830265/)
 
-Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
-
-你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[为什么接种辉瑞新冠疫苗的弊大于利（三）](https://gnews.org/zh-hans/1849102/)
 
  
 

@@ -2,34 +2,39 @@
 ---
 
 
-## 加拿大魁北克省将对未接种疫苗者进行经济处罚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853242/)
+## 医院宁愿让无症状阳性护士上岗而不雇用未接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1854362/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-《蒙特利尔公报》1月11 日报道，魁北克省长**勒戈**在新闻发布会指出，绝大多数魁北克人已经接种了疫苗，并正在接受加强针。但仍有大约10%的魁北克人拒绝接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-37.jpg)
-勒戈宣布，魁北克省在研擬相關实施细则，將會對未接种疫苗的成年人處以“健康费”的处罚。他表示，该处罚将是一个”相当大的数额” 。另外，這项政令只对有医疗原因，而不能接种疫苗的人士豁免。
+编译： Jenny Ball
 
-据了解，至今没有一个权威部门能给出结论，证明疫情扩散是因为未接种疫苗的人所致，更无法证实这些人额外占用了医疗资源。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-942.png)图片来源:lifesitenews.com
 
-参考链接：[加拿大魁北克省将对未接种疫苗者进行经济处罚](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
+《生活新闻》里士满——随着医院继续因强迫员工接种 COVID-19 疫苗的要求而导致的人员短缺，全国各地的一些医院系统允许一些本身患有 COVID 的工人重返工作岗位来补缺口。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+上周末，加州公共卫生部宣布，“临时灵活地帮助医院和紧急服务提供者应对前所未有的激增和人员短缺”，允许无症状员工重返工作岗位。该部门警告说，医院只有在“万不得已”时才应该这样做，即便如此，受影响的工人也应该“尽可能只与 COVID-19 阳性患者接触”。
 
-总编：Irene木木
-编辑：Jack Li文阳
-校对/发稿：Hetangyuese
+加州大学旧金山分校流行病学家乔治·卢瑟福博士告诉 NBC 湾区，求助于受感染的工人并非史无前例，但加州护士协会主席桑迪·雷丁表示，她仍然“非常担心”。**如果为弱势群体提供 ****COVID ****阳性护理的医护人员，他们也可以在医院内传播 ****COVID ****病毒**。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“允许雇主雇佣仍然具有传染性的工人，是我在这次大流行期间听到的最糟糕的想法之一，这确实说明了一些事情，”服务业雇员国际联盟 (SEIU) 加州分会主席鲍勃·斯库诺弗（ Bob Schoonover）告诉哥伦比亚广播公司萨克拉门托分社。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+如果如卫生部所说无症状者不太可能传播 COVID，**那么无症状和未接种疫苗的人不也是如此吗？**此外，一些医院甚至更加“灵活”——美国广播公司新闻报道称，**亚利桑那州和罗德岛州**的一些医院“告诉员工，如果他们没有症状或只是轻微症状，他们可以继续工作。”
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-944.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-946.png)图片来源:lifesitenews.com
+
+“去年由加州州长、民主党人加文·纽森（Gavin Newsom）实施的命令要求医护人员接种 COVID-19 疫苗，否则将面临解雇，”《大纪元时报》报道。 “健康巨头凯撒永久医院(Kaiser Permanente )在 10 月份暂停了 2,000 多名未接种疫苗的员工。圣克拉拉谷医疗中心和 萨特健康(Sutter Health) 等其他加州系统，也终止或暂停了 2021 年秋季未接种疫苗的员工。”
+
+**评论：遵循科学，哪个更科学？感染着病毒的疫苗接种人员不得不冒着自己病情加重并传染他人的危险在医院工作，而健康的未接受mRNA试验药物的医护人员却被违法违宪地解雇？**
+
+新闻来源:[lifesitenews.com] [Understaffed hospitals bring back COVID-positive nurses to avoid employing the unvaccinated](https://www.lifesitenews.com/news/amid-vax-mandate-staffing-shortages-u-s-hospitals-bring-covid-infected-nurses-back-to-work/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
