@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 4:57 AM (UTC)`
+
+1/12/2022 Miles Guo: What are the six key characteristics that define a cult? The CCP slanders the Whistleblowers’ Movement and the New Federal State of China as a cult by using Isobel Yeung, while in fact the CCP meets all the criteria for a cult - the CCP is indeed a cult! We will keep fighting against Isobel Yeung and HBO/VICE to the end!<br/><br/>1/12/2022 文贵直播：邪教有哪6大特征？中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征 - 中共就是邪教！我们要跟杨贝贝和HBO/VICE干到底！<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/13/04/67750c96-c1cd-4c49-ff54-435f4ab5bc71/out.jpg)
+
+---
+
 `@miles 1/13/2022 3:12 AM (UTC)`
 
 On 10th December last year Miles Guo first talked about Yang Jiechi has arrested over a dozen fellow fighters who are Cypriot passport holders; New Federal State of China will rescue them at all cost; fellow fighters must leave Cyprus immediately if possible, and Dubai is not safe either; fellow fighters in Canada must watch out for the CCP spies lurking in our Whistleblowers’ Movement!<br/><br/>在去年12月10日的直播中文贵第一次提到杨洁篪抓了拿塞浦路斯护照的十几位战友，新中国联邦将全力营救他们；请能离开塞浦路斯的战友马上走，迪拜也不安全；请加拿大的战友务必小心中共潜伏的特务！<br/>
@@ -152,14 +159,6 @@ MANCHIN: “We need some good rule changes to make the place work better. But ge
 `@miles 1/11/2022 9:34 PM (UTC)`
 
 1月11日：亲爱的兄弟姐妹们．👉👉👉加上关注吧……https://gtv.org/video/id=61dd0cbfa6dfdd6031524fc7
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@seanhannity 1/11/2022 3:08 PM (UTC)`
-
-Bombshell...https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/
 
 ---
 

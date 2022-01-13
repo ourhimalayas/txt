@@ -2,46 +2,34 @@
 ---
 
 
-## 中共操控哈萨克阿富汗柬埔寨让新中国联邦以敌灭敌灭共
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853651/)
+## 西藏冒险王之死是否与昆仑山祭坛有关？
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1853747/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df838a87664c47acd3eaff](https://gtv.org/video/id=61df838a87664c47acd3eaff)
+作者：波士顿五月花  淘喵先生
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220112-1-1.jpg)
+在1月9日的文贵大直播中，郭先生爆料称，中共伪政权自周恩来时代就开始在昆仑山大肆修建祭坛，而且每年都会在西藏、新疆抓捕大量少女到祭坛进行祭祀。
 
-**郭文贵先生：**哈尔巴扎耶夫（口误，应为：纳扎尔巴耶夫）是吧，哈萨克斯坦，你放心，整个的北部，还有包括阿富汗，这些国家包括印度、巴基斯坦，包括柬埔寨，包括越南、老挝这些国家全傻眼了。说共产党现在……就当时在柬埔寨搞那个事，然后在周围国家又搞这事，然后就觉得发现搞一次灵一次，日本人也害怕。所以说共产党的敌人越多，对世界越是威胁，新中国联邦越赢。越是对全世界干这种事，咱越有大赢的机会。而且我们会解放所有周围的国家。
+根据郭先生爆出的这一信息，联系一年多之前王相军蹊跷死亡事件，令人不得不怀疑西藏冒险王之死极有可能与共匪在西藏、新疆的恶行有关。
 
-我们现在最高的是什么？用以敌治敌，以共灭共。现在是共产党绝对是单子一出来，共产党要灭共。以敌治敌就是敌人正在帮助他自己树立敌人，那就让它打。这就是咱们新中国联邦不流一滴血，完全摆在桌面上，全是明规则，咱就把他干掉。
+王相军1990年生于四川邻水县，酷爱冰川探险。自2012年开始，他在西藏、新疆的不同地区，边打工边看冰川，先后去过萨普神山、梅里雪山、来古冰川、布加雪山等70余座冰川。2017年，王相军开始在短视频网站以“西藏冒险王”为名发布相关图片和视频，因此收获大量粉丝。
 
-这就是喜马拉雅山。阳光出来的时候，雪山继续存在，雪莲花、蓝莲花照样孕育着八方。啊哈，哈，然后呢，当黑夜的时候，照样发出雪的和月亮的和太阳的光芒，照样孕育八方，永远屹立在那里。喜马拉雅山的雪没了，人类就不存在了。都像进入噩梦。
+2020年12月20日，王相军在攀登西藏依嘎冰川时意外失踪。次年2月22日，共匪警方通报称其意外落水遇难。但是民间对这一说法的质疑从未停止，甚至因为不接受警方的调查结果，王相军的父亲把他的狗和摩托车带回了老家，但是并没有带回王相军的遗体或骨灰。
 
-我们现在就是喜马拉雅之光重新早上太阳升起的时候，看着吧。
+在郭先生最新爆料之后，关于西藏冒险王之死就有了更合理的解释。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+在探险过程中，王相军曾经见到有人在昆仑山用直升机吊水泥盖房子，看到无数军车往山里运送物资，还曾发现雪山里散落很多年轻女性的身份证。更有甚者，他还曾发现在海拔几千米的昆仑山冰川上，居然有大面积开发的豪华别墅！
 
-编辑整理：Jacques；
+由此推测，王相军极有可能是无意间发现了共匪在西藏、新疆的恶行，由于近年来名气日盛而引起共匪恐慌，并最终导致被共匪杀人灭口！
 
-字幕文件制作：小满；
+马列邪教治下的中国难得出现一位如此优秀的探险家，他的死无疑是共匪欠下的又一笔血债！
 
-视频制作及上传：Cindy；
+* * *
 
-G-News发布：小满；
+*编辑：黄金时代*
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+*封面：霹雳鼠年*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：吐纳*
 
  
 
