@@ -2,20 +2,20 @@
 ---
 
 
-## 日本政府要求推广远程办公
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1854545/)
+## 伊维菌素和青蒿素的伟大神奇之处（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854641/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-967.png)[图片来源](https://blog.zoom.us/zh/remote-work-operational-resilience/)
-据《共同通信》1月13日报道，山际大志郎经济振兴大臣与日本经济团体联合会在内的三个经济组织代表举行了视频会议。鉴于Omicron病毒感染的急速蔓延，他要求推广远程办公，以便即使出现感染者，业务能够不间断继续进行。
+#### 整理：雅典娜速记组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/伊维菌素和青蒿素的伟大神奇之处（二）-.jpg)
+发布：Frank2021
 
-山际大臣指出，有必要采取举措，继续开展经济和社会活动，而远程办公是继续开展业务的一种有效手段。他希望每个企业都能思考一下能采取什么样的措施。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息源：[経済3団体にテレワーク推進要請　テレビ会議で山際再生相](https://news.yahoo.co.jp/articles/d6c2db555e457eb5e9653fa020e2d1fdd8466939)
-
-*编辑：东京樱花团/ 喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

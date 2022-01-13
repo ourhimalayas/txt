@@ -2,11 +2,11 @@
 ---
 
 
-## 伊维菌素和青蒿素的伟大神奇之处（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854641/)
+## 再谈谈中共国房地产的现状（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854700/)
 
 #### 整理：雅典娜速记组
-![](https://assets.gnews.org/wp-content/uploads/2022/01/伊维菌素和青蒿素的伟大神奇之处（二）-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/再谈谈中共国房地产的现状（一）-.jpg)
 发布：Frank2021
 
 **更多资讯，请关注：****
