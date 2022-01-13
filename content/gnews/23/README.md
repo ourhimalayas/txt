@@ -2,36 +2,32 @@
 ---
 
 
-## 加州推行阳性无症状感染者无需隔离政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1855508/)
+## 大直播后记：中共在新疆虚假的共享财富
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1855622/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月11日，据当地媒体消息显示，由于奥密克戎病例的激增，加州洛杉矶医疗系统濒临崩溃，该地区医护人员目前严重不足。为此，加州公共卫生部当天发布指南称，中共病毒确诊但无症状的感染者可立即返回相关工作岗位且无需经过隔离或检测。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-13.jpg)
-对此，该州的三名护士及护士工会的负责人在指南发布后表示了强烈抵制。护士们强调，加州政府发布的此条指南是蛮横和危险的，其原因在于，感染了中共病毒的医护人员继续出现在工作岗位上会导致整个工作区域的污染，这将使医院变得极为不安全，更加重了奥密克戎变种的感染和传播率。
+整理：雅典娜速记组
+编辑：小红帽
 
-值得注意的是，两周前，加州政府明确规定，拒绝接种中共病毒疫苗的医护人员将被强制解雇或停职 ，其后，该强制政策还被延伸至疫苗加强针的接种工作上。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/上.png)图片来源：雅典娜设计组（614）
 
-评论人士则指出，加州政府宁愿选择阳性染疫的医护人员，也不允许未接种中共病毒疫苗的健康医护人员返回工作岗位，这样的做法既不合常理，更违反医护人员的从业道德。
 
-参考链接：
-1) . [LA County nurses rip new state Covid quarantine guidelines](https://www.courthousenews.com/la-county-nurses-rip-new-state-covid-quarantine-guidelines/)
-2) . [只接种两针不够！加州要求医护人员强制接种加强针](https://posts.careerengine.us/p/61c37fe023025b11479f52b3?from=latest-posts-panel&amp;type=title)
+从一九四几年到一九五几年，让新疆和汉人共同富裕起来，所有的保护政策都要落实在新疆人和新疆的五十多个民族手里。新疆有几十个民族，可不是一个维族。说要把全国的政策和利益都要倾斜到新疆来，说过不下百次了。新疆人富了吗？很穷！ 你们还能活着就不错了。就像那个张晓明在香港说，共产党能让你活着，就是最大的民主。 现在（中共）到美国来共享财富？能让你活着都不错了，共享个屁。 你是被共享的那个，谁说我共享给你了？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+中国共产党把28万平方公里的土地99%都给了塔吉克斯坦。再看一九五九年，一九六零年，共产党已经控制中国十年了。把阿富汗那一边的帕米尔高原的山脉96%全给了阿富汗。这跟印度没有任何关系，跟哈萨克斯坦没有任何关系。然后，哈萨克斯坦又拿走了帕米尔高原什么土地？
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+我记得有一次在云南西双版纳，大家都在喝酒，然后说到帕米尔高原，昆仑山。很多新疆人说，我到新疆的时候就乱查身份证什么的。恰恰你要看到一个问题，七哥到哪儿去都没人查我。我可以查别人，因为陪着我的都是警察，全都是军队。这就是七哥在那时候跟那些茅屎坑中南坑的人好的时候，我到哪儿去都横冲直闯。新疆人工作了一辈子，出生在那里，但他没有上过帕米尔高原。七哥是在飞机上去飞来飞去的。你们喝过几次帕米尔高原的水？七哥喝过。你们知道帕米尔高原有和田玉，昆仑玉；你们知道奥运会为什么用昆仑玉？ 为什么用和田玉来做冠军的奖牌吗？和田玉很值钱吗？你知道吗？和田玉最多的并不在和田，在俄罗斯。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+二零零二年，他们公司的这个土地交易背后是谁，你知道吗？ 江去查查朱镕基跟他谈的啥？我敢到世界任何一个法庭告诉你。朱镕基江泽民家族在那拿到天大的钱，直到今天还在收钱。中国老百姓的无知在全人类，是我没有见过的。他们敢把国家的土地这样卖出去。而且，那里的矿的协议就很简单–永久。 这个公司拥有这个地方的矿的开发权。昆仑玉，就是所谓的和田玉，真的是几吨重的和田玉。跟你说你可能不相信。那个价格全都是江曾朱控制的。比特币为啥是共产党搞起来的？就是现在搞起来。他要洗钱，不是洗白了，而是要洗雪白呀！为什么UBS成为中国第一个由外资拥有的100%的执照？为什么摩尔根要拿证券公司？王岐山降价了。他洗钱需要工具，需要水，需要池子。他洗完放哪去？ 其中一大部分就在哈萨克斯坦！
+
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
