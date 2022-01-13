@@ -2,51 +2,50 @@
 ---
 
 
-## 前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1852986/)
+## 《我是音雄》第二季总决赛暨跨年颁奖的观后感
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1852994/)
 
-前国务卿蓬佩奥： 今年，我们必须把美国放在首位，在与敌人打交道时建立美国的实力。这意味着要对抗普京和中国共产党。如果拜登政府不能做到这一点，我们应该在2022年击败他们。 （转蓬佩奥撰文：2022年建立一个强大、安全的美国的优先事项）
-
-
-
-> This year, we must put America First and establish American strength in our dealings with adversaries. That means standing up to Putin & the Chinese Communist Party. If the Biden Administration is unable to do this, we should defeat them in 2022. [https://t.co/ipuC4Ycp8V](https://t.co/ipuC4Ycp8V)
-> — Mike Pompeo (@mikepompeo) [January 12, 2022](https://twitter.com/mikepompeo/status/1481346695342567430?ref_src=twsrc%5Etfw)
+作者：纽约香草山文艺部 – 丹文
 
 
 
-众议员帕特·法伦： 太对了！中共国的感受是我们最不应该关心的。 【转众议员吉姆·乔丹的推文：有人关心中共国的感受超过对新冠病毒的溯源】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
 
-> Hitting the nail on the head! China's feelings are the last thing we should be concerned about. [https://t.co/XMQahdpOZm](https://t.co/XMQahdpOZm)
-> — Rep. Pat Fallon (@RepPatFallon) [January 12, 2022](https://twitter.com/RepPatFallon/status/1481381220051300357?ref_src=twsrc%5Etfw)
+2021年年末，《我是音雄》第二季圆满落下帷幕：没有广告的狂轰滥炸，没有庞大的制作团队，没有煽情，没有矫情，没有包装，没有噱头……节目中的一切都是如此的真实，真实得让人愉悦，真实得让人感动。
+
+在GTV所有年轻的主播中，我比较关注可爱、亲切的正义的小新，但主播Rica的两首歌——《在人间》和《民主会战胜归来》——却让我感动落泪：她发自内心的演唱就像她的呐喊，充满了神圣的力量 。此外，和大家一样，我也一次又一次地被二圣演唱的《同袍情》、青藤的《父亲的散文诗》以及TEX的《流泪》等歌曲感动着。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/67.jpg)
+
+于我而言，冠军得主Superman就像是一块璞玉：她定会从Superman蜕变成Super Star——未来可期。而除了专业的演唱外，她浑然天成的集喜感和大气于一体的气质也给我留下了深刻的印象：镜头前的忙碌、滑落的一缕秀发、捋头发时随意的动作、对伙伴喊话时的自然，特别是那句“啥也不是”，都很有喜感。与此同时，她也是漂亮而大气的，且绝不逊色于国内任何一个女歌手。如同七哥所说的，她在做她自己——这正是她无可替代的魅力所在。相较而言，中共国内那些撞脸、撞声、撞人设的流量明星，他们无一不在镜头前按“剧本”将自己活成了行尸走肉。在才能和个性被摧残、扼杀的环境下，墙内日复一日地上演着无数个“人设”一崩再崩的闹剧。
+
+观赏了这样一场视觉和听觉的盛宴，我深深地感谢七哥，还有唐平和各位台前幕后战友们的付出——他们给想唱歌和想通过唱歌来表达心绪的选手们提供了一个如此高级的平台。
+
+但《我是音雄》绝不仅仅是关于音乐的，也绝不仅仅是关于比赛的，它带给我们的是回味无穷的宝藏。七哥告诉我们，音乐——MUSIC一词源于缪斯女神。事实上，音乐是最有力的、胜过核武器的力量。因此，我们要善用音乐这把利器。当前，《马背英雄》、《Hcoin To The Moon》等歌曲正在世界各大音乐平台上大放异彩，而它们带来的深远意义和强大力量会与日俱增。
+
+为此，让我们守护好圣洁的缪斯女神带给我们的美好音乐，不要再让音乐落入那些邪魔统治者手中，更不要再让那些所谓的“进行曲”、“红歌”主宰一代又一代人的童年、少年、青年，甚至老年。相反的，我们要让缪斯女神不只出现在山洞中和泉水边，也盼望着她来眷顾我们千疮百孔、群魔乱舞的东方神州大地，让正义、崇高、神圣、愉悦的音乐洗涤人们的心灵，长长久久地回荡在人间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+作者：纽约香草山文艺部 – 丹文
 
 
 
-国会中国执行委员会： 跨党派的国会中国执行委员会的委员们，包括主席莫科里参议员和麦克噶文众议员，致信国际奥委会巴赫主席，要求国际奥委会证明与包括安踏在内的使用强制劳工的中国公司的合同是合理的。 （附信件全文）
-
-
-
-> Bipartisan group of [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Commissioners, including Chairs [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw) and [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw), release letter to [@IOCThomasBach](https://twitter.com/IOCThomasBach?ref_src=twsrc%5Etfw) asking [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) to justify contracts with Chinese companies using forced labor, including [@ANTAsportswear](https://twitter.com/ANTAsportswear?ref_src=twsrc%5Etfw). [https://t.co/fLGrp9ZWpi](https://t.co/fLGrp9ZWpi) [pic.twitter.com/uW22GkcDpD](https://t.co/uW22GkcDpD)
-> — China Commission (@CECCgov) [January 12, 2022](https://twitter.com/CECCgov/status/1481317086693576717?ref_src=twsrc%5Etfw)
-
-
-
-众议院共和党外事委员会： 少数派领袖麦克劳：“我很高兴国务院继续反击中共非法的海上主张。这种领土侵略经不起法律审查，侵犯了东南亚许多国家的主权，并增加了印太地区冲突的风险。” （转引国务院发言人奈德·普莱斯的推文）
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "I'm glad [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) is continuing to push back on the CCP’s illegal maritime claims. This territorial aggression doesn’t hold up to legal scrutiny, violates the sovereignty of numerous nations in SE Asia, and is increasing the risk of conflict in the Indo-Pacific.” [https://t.co/poOj8vNeCd](https://t.co/poOj8vNeCd)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [January 12, 2022](https://twitter.com/HouseForeignGOP/status/1481396802054197256?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 这正是我强烈敦促每家美国公司停止与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 做生意并从他们的暴行中获利的原因。 【附大纪元时报：美国公司开发的技术正在推动中共政权及其军事发展，北京甚至指导和促进对美国公司及其资产的系统性投资和收购】
-
-
-
-> This is exactly why I have strongly urged that every U.S. company stop doing business with Communist China & profiting off of their atrocities. [https://t.co/c7t7niRcCK](https://t.co/c7t7niRcCK)
-> — Rick Scott (@SenRickScott) [January 12, 2022](https://twitter.com/SenRickScott/status/1481352686838628352?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
 

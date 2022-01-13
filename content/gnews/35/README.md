@@ -2,38 +2,28 @@
 ---
 
 
-## 【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1852955/)
+## 加拿大魁省将对未接种疫苗者征税
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1852980/)
 
-**撰稿：Grace**
+采编：Spirit      编辑发稿：硫酸羟氯喹64
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-12-at-7.35.46-PM.jpeg)图片来源：雅虎
-据Aljazeera 1月12日报道，哈萨克斯坦（Kazakh）当局说，他们在过去24小时内又拘留了近1700人，这些人被指控参与了上周震撼这个前苏联国家的反政府抗议活动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-1-edited.jpg)图中：魁省省长勒gou
+图片来源：[montrealgazette](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
 
-据报道，阿拉木图(Almaty)是该国最大的城市，也是动乱期间发生最激烈冲突的地方，当局周三报告的1678人被捕，使自1月2日示威活动开始以来被拘留的总人数达到约12000人。
 
-300多起刑事调查已经开始，其中包括据称对执法人员的攻击行为。
+据《蒙特利尔公报》1月11日报道，魁北克省长勒戈当天表示，绝大多数魁北克人都已接种了“新冠病毒”疫苗，并且正在接受加强针。但目前仍有约10%的顽固分子拒绝注射该疫苗。
 
-在这个拥有1900万人口、资源丰富的中亚国家，抗议活动最初因燃料价格飙升而爆发，并迅速蔓延到全国各地，演变成以政治口号为特色的反政府示威活动。
+报道称，魁省政府的财政部门目前正在制定一项政策，计划对未接种疫苗的成年人征收相当数额的“健康税”，但有医疗豁免接种者除外。
 
-据报道，目前，至少有160人被杀，包括数十名公民和十多名安全部队人员，这是哈萨克斯坦自30多年前获得独立以来爆发的最致命的暴力事件。
+面对该计划执行的潜在困难，包括可能的法律挑战和对无力支付该税费者的影响，勒戈指出：由于少数未接种者给魁省医疗系统带来了巨大的负担，因此当局要求这些顽固份子承担后果是正常和公平的。
 
-在阿拉木图，抗议者放火焚烧政府大楼，并短暂占领了机场，而安全部队则以实弹和眩晕手榴弹作为回应。
+* * *
 
-随着动乱的加剧，总统卡西姆-约马尔特·托卡耶夫（Kassym-Jomart Tokayev）试图通过宣布180天的燃料价格上限、解雇国家内阁并将纳扎尔巴耶夫从国家安全委员会主席的职位上解聘来缓解危机。
+原文链接：
 
-托卡耶夫还请求集体安全条约组织（CSTO）提供援助，该组织是由俄罗斯领导的由六个前苏联国家组成的军事联盟。 托卡耶夫将暴力事件归咎于外国训练的 “土匪和恐怖分子”，但没有提供证据。
+[https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
 
-该组织的回应是向哈萨克斯坦派遣了2000多名部队，执行 “维和 “任务。
-
-该组织说，周三，托卡耶夫宣布以俄罗斯为首的集体安全条约组织联盟在哈萨克斯坦的维和任务完成。
-
-集体安全条约组织还说，从星期四开始，维和特遣队将用10天时间完全撤出。
-
-托卡耶夫，这位被钦点为纳扎尔巴耶夫2019年的继任者，他在周二对集体安全条约组织的一次虚拟高层会议上说，哈萨克斯坦已经成功抵御了一场 “未遂政变”。
-
-**新闻来源：[Kazakhstan detains nearly 1,700 more people over unrest](https://www.aljazeera.com/news/2022/1/12/kazakhstan-detains-nearly-1700-more-people-over-unrest)**
+* * *
 
  
 

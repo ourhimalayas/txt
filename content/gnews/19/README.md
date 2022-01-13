@@ -2,20 +2,48 @@
 ---
 
 
-## 疫苗灾难正在席卷美国整个航空业
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1853098/)
+## 加拿大阿省卫生官承认ICU数据造假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853101/)
 
-加拿大温哥华扬帆农场皇家山频道    平民正道
+作者：纽约香草山文艺部 – 宁文静
 
-据英国《每日内幕》1月7日报道, 美国商业航空飞行员皮尔森近期在接受媒体采访时透露，“新冠病毒”疫苗接种引发的后遗症和人身伤害正在迅速席卷该国整个航空业。
 
-报道称，大部分飞行员在接种该疫苗后都经历了严重的胸痛症状。皮尔森也不例外，他曾在注射后因为出现心脏房颤，而被紧急送院接受治疗。对此，该飞行员表示：疫苗也会是脑梗的主要原因，并将可能在飞行任务中因此引发航空灾难。
 
-据悉，许多航空公司的飞行员都因害怕被当局解雇，甚至职业报复而不敢公开披露当前所出现的疫苗灾难。他们被迫忍着胸部和头部的病痛在继续着飞行工作。此外，由于拜登政府对航空业的疫苗强制接种规定，即使发生了以上疫苗伤害问题，大部分受害者也将毫无寻求补偿的途经。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+1月10日，在加拿大阿尔伯塔省的新闻发布会上，首席卫生官员迪娜·辛肖承认，在整个中共病毒大流行期间，该省卫生局将一些非ICU患者报告为了ICU患者。
+
+辛肖表示，在核查历史数据的过程中，他们发现一些医院的某些部门，在可用ICU床位和非ICU床位之间来回转换。按照这些医院的操作标准，因中共病毒入院的病人被归类为ICU患者，而事实上当时这些房间已被改为非ICU病房。辛肖说，这些数字现在已经被修正了过来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-11.jpg)
+这一声明引发了巨大的社会反响。评论人士指出，不仅在阿省，在加拿大任意一级政府卫生机构，ICU的数字一直被用作封锁、强制接种疫苗和疫苗护照的重要参考。这些错误的关键信息对公众的生活和心理、对当地的经济，都已经造成了无法弥补的伤害。而这些伤害，仍然在继续。
+
+参考链接：
+[WATCH: Alberta Health admits they manipulated ICU numbers](https://www.thecountersignal.com/news/alberta-health-admits-they-manipulated-icu-numbers)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
