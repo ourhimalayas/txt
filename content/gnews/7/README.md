@@ -2,76 +2,63 @@
 ---
 
 
-## 新西兰财经G乐部2022年1月13日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1855176/)
+## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
 
-采集整理：蚂蚁的城堡
+2021年12月1日 ~ 2022年1月12日
 
-**提纲：**
+iTunes：
 
-1、百亿私募业绩“扑街”，昔日冠军旗下产品开年一周跌去13%
+MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
 
-2、友邦120亿入股成中邮人寿第二大股东
+MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
 
-3、融创中国两个月内第二度配股筹资，所得45亿港元款项其中一半用于偿还贷款
+Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
 
-4、中泛控股1.65亿美元债务违约，贷款行政代理人行使还款加速权
+Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
 
-5、在收购FairX之后，衍生品即将进入Coinbase
+Billboards公告牌榜:
 
-**正文**
+Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
 
-**1、百亿私募业绩“扑街”，昔日冠军旗下产品开年一周跌去13%**
-![](https://img.bq233.com/toutiao/upload/thumb/20220112/9a939e56da805392a7b0addf851690d6.jpg)
-2022年开年以来，A股市场高景气赛道股显著回调，诸多百亿级私募业绩“翻车”。
+* * *
 
-一家第三方平台数据显示，开年首周，曾夺得2021年上半年百亿私募业绩冠军的汐泰投资旗下部分产品净值回撤超10%，其中表现最差的产品更是一周跌超13%。同样曾经是百亿级私募业绩冠军的同犇投资、冲积资产旗下多只产品同期回撤也超8%。
-![](https://img.bq233.com/toutiao/upload/thumb/20220112/cd5eef0a671b5c4d855a80a65ddbf497.jpg)
-值得注意的是，除了汐泰投资，多家曾经的百亿级私募冠军最近业绩也颇为惨淡。
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-截至1月7日，同犇投资旗下多只产品今年以来回撤超8%。而在2021年前5个月，同犇投资凭借17.91%的收益率斩获当期百亿级私募冠军称号。2021年百亿级私募冠军冲积资产旗下多只产品同期跌幅也超过8%。
+* * *
 
-参考链接  [http://fund.10jqka.com.cn/20220112/c635939433.shtml](http://fund.10jqka.com.cn/20220112/c635939433.shtml)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
 
-**2、友邦120亿入股成中邮人寿第二大股东**
-![友邦120亿入股成中邮人寿二股东个代、银邮联手一搏能否讲出新故事？_保险业_投资_业务](https://p7.itc.cn/q_70/images03/20220113/38088bd245c247fc851d168ab3b997ad.png)
-1月12日，银保监会发布关于中邮人寿变更注册资本及股东的批复称，批准中邮人寿注册资本从215亿元增加至286.63亿元，由友邦保险有限公司（下称友邦保险）认购新增注册资本71.63亿元。
 
-中共国邮政在其官网的公开表示中称，此次交易引资金额达120.33亿元，是中共国保险业截至目前最大的增资扩股引战项目。此次增资之后，友邦保险成为第二大股东，新的股权结构为：中共国邮政集团有限公司持股38.20%，友邦保险持股24.99%，北京中邮资产管理有限公司持股15.00%，中共国集邮有限公司持股12.19%，邮政科学研究规划院有限公司持股9.62%。
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-财经G评：中共国邮政集团旗下全资子公司有：中共国邮政储蓄银行、 中邮人寿；1月11日德意志银行与中邮理财联手设立合资理财公司。若这两大机构“联姻”成功，将诞生第五家由国有大行理财子公司和外资共同设立的合资理财公司。1月13日中共银保监会批复同意中邮保险注册资本从215亿元增加至286.63亿元，新增注册资本由友邦保险认购。此次交易引资金额达120.33亿元！记得七哥说过，中共国邮政集团背后是习家！
-
-参考链接：[https://finance.sina.com.cn/roll/2022-01-13/doc-ikyamrmz4882361.shtml](https://finance.sina.com.cn/roll/2022-01-13/doc-ikyamrmz4882361.shtml)
-
-**3、融创中国两个月内第二度配股筹资，所得45亿港元款项其中一半用于偿还贷款**
-![孙宏斌出手了！融创半个月回血160亿！_融创中国](https://p1.itc.cn/q_70/images03/20211115/c169bb017be0420fb16d344001aa20c4.png)
-路透1月13日 – 中共国房地产商–融创中国周四称，拟以先旧后新方式配售45亿港元股份，其中一半资金用于偿还贷款。这是公司两个月内第二度配股筹资。
-
-据公告，融创中国周三订立一份配售及认购协议，透过配售代理摩根士丹利按悉数包销基准以每股10港元配售4.52亿股配售股份，大股东兼公司主席孙宏斌的家族信托同意按同等价格认购同等数目新股。配售股份及认购股份分别占融创中国现有已发行股本的约9.05%，及经认购事项扩大后已发行股本的约8.30%。配售价较周三收市价11.8港元折让约15.3%。认购事项所得款项总额为45.20亿港元，折合约5.80亿美元。完成后，孙宏斌一方的持股比例将由42.25%摊薄至38.75%。
-
-参考链接：[https://cn.reuters.com/article/sunac-fundraising-0113-thur-idCNKBS2JN03F?il=0](https://cn.reuters.com/article/sunac-fundraising-0113-thur-idCNKBS2JN03F?il=0)
-
-**4、中泛控股1.65亿美元债务违约，贷款行政代理人行使还款加速权**
-![这是一个标志性事件，更多的实在是不能再说了，大家多多关注就好。 12月18日，中国泛海控股集团有限公司官微发布声明称...](https://xqimg.imedao.com/17dd33976ea81483fee175ed.jpeg!800.jpg)
-泛海控股境外附属公司中泛控股公告称，收到初步贷款人发出的违约通知副本。违约通知阐明，借款人未能于2022年1月到期前支付贷款的应计利息及服务费用128.03万美元，从而导致融资协议项下的违约事件，而有关逾期付款于3个营业日的期间仍持续未获解决。根据融资协议，贷款的行政代理人有权加速融资协议项下的所有本金以及应计及未付利息的还款。违约通知阐明，行政代理人现在行使加速权及要求立即悉数偿还融资协议项下到期的所有款项，金额为1.65亿美元及应计利息、法律费用及其他费用（欠款）。中泛控股表示，公司目前正就付款违约寻求法律意见，以期透过适当方式应对相关事宜。此外，公司亦不断努力获取资金以偿还欠款。
-
-参考链接 ：[https://www.163.com/dy/article/GTF9VIK60519D45U.html](https://www.163.com/dy/article/GTF9VIK60519D45U.html)
-
-**5、在收购FairX之后，衍生品即将进入Coinbase**
-![Coinbase拟收购合规交易所 FairX 以进入衍生品交易市场](https://image.panewslab.com/upload/image/20220113/S8942eb3fafdc45b88eb0fe0a3a3e9e8c.png)
-美国主要加密货币交易所Coinbase是世界上24小时交易量第三大的交易所，其已收购FairX衍生品交易所，打算进入衍生品交易市场。
-
-FairX是由美国商品期货交易委员会(CFTC)监管的指定合约市场(DCM)衍生品交易所。尽管FairX刚刚进入市场，于2021年5月推出，但它已与行业领军者TD Ameritrade和E\*Trade以及其他18家公司达成了经纪合作关系。
-
-衍生品交易是指与基础资产未来价值相关的各种外来产品的交易，而不是交易资产本身。
-
-在1月13日的声明中，Coinbase解释了为其美国客户推出加密衍生品交易的计划。Coinbase表示：“我们希望让衍生品市场对我们数百万的零售客户来说更容易接近。”
-
-参考链接：[https://cointelegraphcn.com/news/derivatives-are-coming-to-coinbase-following-purchase-of-fairx](https://cointelegraphcn.com/news/derivatives-are-coming-to-coinbase-following-purchase-of-fairx)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
