@@ -2,78 +2,31 @@
 ---
 
 
-## 共产党的以非灭美以非灭白，其实就是风水之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
+## 七哥谈中共深信这个所谓它不让你信的迷信（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852841/)
 
-[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**郭文贵**
-Miles Guo
+来源：郭先生2022-01-09直播09：23：54摘录
 
-它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
+你觉得习近平认为中国还有多少年吗？习近平他爹为啥要埋在那儿？他为啥要建风水？大家一定搞明白，他为啥不让他女儿出镜？他为啥他让他的弟弟和彭丽媛在前面扮演这些角色？他为什么用丁薛祥还有当年的栗战书？他为什么能把田玉玺抓起来？大家一定记住共产党的内部它有它的章法，它的章法你看透的时候就那么简单的事儿。它是深信这个所谓它不让你信的迷信，它100%是依着天、地，它认可的规律，和万佛万神来定自己的乾坤，掌握自己的未来。对待死人什么人权这事儿你就不用想了，那扯太远了，对他来讲一切都是用具，是吧？这是为什么昆仑山上每年要700个仙女、700个处女，是吧，要放那儿去要祭昆仑山神，是吧？为什么要从新疆要抓多少仙女、仙神？西藏抓多少女神？蒙古抓多少神？54个民族要抓多少孩子去？为什么那执行秘密部队从来没有人回来过，是吧？就要你献神了！这种事情能让你们知道吗？你们不知道，你不知道你就灭不了共！爆料革命知道、新中国联邦你七哥知道，就能把它灭共！
 
-然后把非洲人送到了哪去了，把非洲人送到了欧洲去
-then where did they send the Africans? the Africans were sent to Europe
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
-The Africa’s so-called illegal immigrants, then incite African Americans in America
+**关注我们**
 
-闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
-to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
+Discord 账号
 
-你见中共用黑白过，它认为黑为水，白为金，是吧
-You have seen the CCP use black or white, it believes that black is water and white is gold, right?
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
-Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
+Gettr 账号
 
-就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
-It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
-
-东边是什么？东方为绿色，为木色，南边为火，南为火
-What’s the east? east is green, wood color, south is fire
-
-它发现我得怎么干，我要把整个的能烧掉你金的五行当中
-It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
-
-南方的就是黑，黑人，非洲的火烧你的金，炼你的金
-the south is black, black people, and the fire of Africa burns your gold and refines your gold
-
-利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
-Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
-
-以土为多的国家，然后在那装擀面杖子
-earth-based country, and then pretend to be strong there
-
-就是共产党的所有精神境界和文化，都是一样的境界
-It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
-
-无知、愚昧，它本身就不平衡，它硬整出来的平衡
-ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
-
-这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
-This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
-
-**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
-
-Date: 01/11/2022
-原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
-The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
-原视频日期：2022/01/09
-原视频链接 https://gettr.co/post/pnef2s2d7a
-任务编号：KC409（3459）
-视频时间段 : 0:00-1:51
-
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

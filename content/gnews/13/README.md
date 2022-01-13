@@ -2,39 +2,38 @@
 ---
 
 
-## CEO杰森·米勒：盖特正在分散和夺回话语权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1852884/)
+## 【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1852955/)
 
-#### 编译：Lish
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-917.png)Photo: GETTR
-盖特首席执行官杰森·米勒(Jason Miller)周二在玛丽娅的早间新闻中说，新一轮的替代性社交媒体不是为了竞争，而是为了共同打倒大科技公司。
+**撰稿：Grace**
 
-杰森·米勒与前总统特朗普就其会通过Truth Social重新回到社交媒体领域进行了一次谈话。米勒解释说，两个社交媒体负责人有一个共同的目标。“这从来都不是关于盖特与Truth social，而是关于将权力从硅谷寡头手分散并夺走，”他说。米勒建议，有足够的市场空间让新的社交平台继续涌现，并参与到大科技公司“批量拒绝（用户）”的运动中。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-12-at-7.35.46-PM.jpeg)图片来源：雅虎
+据Aljazeera 1月12日报道，哈萨克斯坦（Kazakh）当局说，他们在过去24小时内又拘留了近1700人，这些人被指控参与了上周震撼这个前苏联国家的反政府抗议活动。
 
-在播客名人乔·罗根(Joe Rogan)放弃推特并鼓励他的追随者加入盖特后，盖特最近新增了100万用户，使总数达到了里程碑式的400万用户。罗根的加入盖特是在病毒学家罗伯特·马龙博士(Robert Malone)和美国国会议员马乔里·泰勒·格林(Marjorie Taylor Greene, R-Ga.)都被永久禁止使用推特之后引发的。
+据报道，阿拉木图(Almaty)是该国最大的城市，也是动乱期间发生最激烈冲突的地方，当局周三报告的1678人被捕，使自1月2日示威活动开始以来被拘留的总人数达到约12000人。
 
-此后，盖特迎来了其他知名人士，如福克斯新闻的塔克·卡尔森（Tucker Carlson）和前总统候选人图尔西·加巴德（Tulsi Gabbard），米勒称这对平台来说有巨大的意义。
+300多起刑事调查已经开始，其中包括据称对执法人员的攻击行为。
 
-米勒还谈到了大科技公司的社交媒体对任何右倾信仰的核心人物越来越明目张胆的 “政治歧视”，以至于现在 “这几乎成了惯例”。他认为特朗普的一句话说得最好–“如果他们愿意对我这样做，他们也会对你们任何人这样做” 。
+在这个拥有1900万人口、资源丰富的中亚国家，抗议活动最初因燃料价格飙升而爆发，并迅速蔓延到全国各地，演变成以政治口号为特色的反政府示威活动。
 
-“而且他们不会只停留在对政治认同的人身上”。米勒补充说。“看看推特对待这些人的方式，把妮琪·米娜 （Nicki Minaj）关进了数字监狱，禁止她发帖，或者试图取消戴夫·查普尔（Dave Chappelle）的账户。所以，他们不会停止，直到他们完全以自己的观点来框定世界”。
+据报道，目前，至少有160人被杀，包括数十名公民和十多名安全部队人员，这是哈萨克斯坦自30多年前获得独立以来爆发的最致命的暴力事件。
 
-米勒认为，大科技公司之所以出现如此明显的下跌，特别是在股票表现方面，是因为人们正在觉醒，认识到硅谷的高管们不是通过投票上任的，他们是在确定他们自己的宪法言论自由权。
+在阿拉木图，抗议者放火焚烧政府大楼，并短暂占领了机场，而安全部队则以实弹和眩晕手榴弹作为回应。
 
-盖特负责人强调，该平台也是一个全球性的平台，目前所有用户中有一半以上是国际用户。这包括巴西总统雅伊尔·梅西亚斯·波索纳洛（Jair Bolsonaro）和他的三个当选官员儿子。
+随着动乱的加剧，总统卡西姆-约马尔特·托卡耶夫（Kassym-Jomart Tokayev）试图通过宣布180天的燃料价格上限、解雇国家内阁并将纳扎尔巴耶夫从国家安全委员会主席的职位上解聘来缓解危机。
 
-“这确实是一个全球性的问题；这不仅仅是在美国，你对大科技有这些挫折感，”他说。“我们在这里的重点是保护言论自由，但也确保它是一个安全的环境，让人们加入”。
+托卡耶夫还请求集体安全条约组织（CSTO）提供援助，该组织是由俄罗斯领导的由六个前苏联国家组成的军事联盟。 托卡耶夫将暴力事件归咎于外国训练的 “土匪和恐怖分子”，但没有提供证据。
 
-原文链接：[GETTR, Trump social media platforms about taking power away from Silicon Valley oligarchs, Jason Miller says | Fox Business](https://www.foxbusiness.com/media/gettr-trump-social-media-platforms-about-taking-power-away-from-silicon-valley-oligarchs-jason-miller-says)
+该组织的回应是向哈萨克斯坦派遣了2000多名部队，执行 “维和 “任务。
 
-**发布： Lish**
+该组织说，周三，托卡耶夫宣布以俄罗斯为首的集体安全条约组织联盟在哈萨克斯坦的维和任务完成。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+集体安全条约组织还说，从星期四开始，维和特遣队将用10天时间完全撤出。
+
+托卡耶夫，这位被钦点为纳扎尔巴耶夫2019年的继任者，他在周二对集体安全条约组织的一次虚拟高层会议上说，哈萨克斯坦已经成功抵御了一场 “未遂政变”。
+
+**新闻来源：[Kazakhstan detains nearly 1,700 more people over unrest](https://www.aljazeera.com/news/2022/1/12/kazakhstan-detains-nearly-1700-more-people-over-unrest)**
 
  
 

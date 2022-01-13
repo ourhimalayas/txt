@@ -2,54 +2,45 @@
 ---
 
 
-## 前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1852986/)
+## 重磅！新中国联邦被美国间接承认，并展示全球拯救的力量
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1853025/)
 
-前国务卿蓬佩奥： 今年，我们必须把美国放在首位，在与敌人打交道时建立美国的实力。这意味着要对抗普京和中国共产党。如果拜登政府不能做到这一点，我们应该在2022年击败他们。 （转蓬佩奥撰文：2022年建立一个强大、安全的美国的优先事项）
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-
-
-> This year, we must put America First and establish American strength in our dealings with adversaries. That means standing up to Putin & the Chinese Communist Party. If the Biden Administration is unable to do this, we should defeat them in 2022. [https://t.co/ipuC4Ycp8V](https://t.co/ipuC4Ycp8V)
-> — Mike Pompeo (@mikepompeo) [January 12, 2022](https://twitter.com/mikepompeo/status/1481346695342567430?ref_src=twsrc%5Etfw)
+据塞浦路斯Politis（公民报）1月12日报道，塞浦路斯当局发现自己陷入一场充满政治色彩的引渡战，这是因为一方面塞浦路斯与中国的外交关系岌岌可危，然而另一个阵营（新中国联邦）正在被美国承认。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FT_20.01.03_US-China-Zero-sum.jpg)图片来源Politis
 
 
+整个问题涉及可能遭引渡的两名中国公民，两人于2021年12月8日在帕福斯区因投资欺诈指控并获得国际刑警组织的红色通缉令后被捕，该指控与中国正在调查的金融犯罪有关。
 
-众议员帕特·法伦： 太对了！中共国的感受是我们最不应该关心的。 【转众议员吉姆·乔丹的推文：有人关心中共国的感受超过对新冠病毒的溯源】
+事情的转机，来源于一封信。法治基金（Rule of Law Fundation）于 1 月 5 日将一封信发送至塞浦路斯司法和公共秩序部，同时也发送至内政部。
 
+信中指出，事实上这对母子是因为他们的政治观点而受到中共的迫害，所谓那些指控都是中共捏造的。这对母子自 2020 年 4 月以来一直是法治基金的支持者和成员，同时，两位也是新中国联邦的成员。
 
+此报道中最浓墨重彩之处：
 
-> Hitting the nail on the head! China's feelings are the last thing we should be concerned about. [https://t.co/XMQahdpOZm](https://t.co/XMQahdpOZm)
-> — Rep. Pat Fallon (@RepPatFallon) [January 12, 2022](https://twitter.com/RepPatFallon/status/1481381220051300357?ref_src=twsrc%5Etfw)
-
-
-
-国会中国执行委员会： 跨党派的国会中国执行委员会的委员们，包括主席莫科里参议员和麦克噶文众议员，致信国际奥委会巴赫主席，要求国际奥委会证明与包括安踏在内的使用强制劳工的中国公司的合同是合理的。 （附信件全文）
-
+“它（新中国联邦）于2020年6月4日在美国纽约成立，是中国的“流亡政府”，间接得到**美国的承认**。由郭文贵先生和史蒂夫·班农先生发起，其既定目标是推翻中国共产党（CCP）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-46-1.jpg)图片来源吗Gnews
 
 
-> Bipartisan group of [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Commissioners, including Chairs [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw) and [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw), release letter to [@IOCThomasBach](https://twitter.com/IOCThomasBach?ref_src=twsrc%5Etfw) asking [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) to justify contracts with Chinese companies using forced labor, including [@ANTAsportswear](https://twitter.com/ANTAsportswear?ref_src=twsrc%5Etfw). [https://t.co/fLGrp9ZWpi](https://t.co/fLGrp9ZWpi) [pic.twitter.com/uW22GkcDpD](https://t.co/uW22GkcDpD)
-> — China Commission (@CECCgov) [January 12, 2022](https://twitter.com/CECCgov/status/1481317086693576717?ref_src=twsrc%5Etfw)
+与此同时，郭文贵先生于1月12日的一段语音中迅速作出回应，塞浦路斯引渡救助报道中的这家人，其实是被中共设计陷害的。通过西方媒体完全独立地报道，塞浦路斯已经成为中共外交的灾难。
 
+是新中国联邦提前透露了杨洁篪到塞浦路斯的行动，对相关人士做了提前的通报。正是文贵大直播使得很多在迪拜等地的（因类似原因被拘留的）战友马上得到了当局的释放，警告直播起到了最直接的救助作用。如今，独立第三方的报道已经出来，指明新中国联邦不仅能在美国救人，而是只要有人的地方就有新中国联邦和法治基金的力量。而且，这是全世界第一次报道美国已经间接地承认了新中国联邦，这是天大的事。
 
+需要说明的是，这位战友总共投资G系列仅有2万美元。然而，为了这个案件，我们仅在美国就花了几万美元的律师费用，在欧洲也垫付了几万欧元的律师费用，但万幸的是得以改变马上遣返的结果。除此之外，郭先生明确指示，如果这对母子的律师费有困难，法治基金会继续支持，一定会全力以赴。
 
-众议院共和党外事委员会： 少数派领袖麦克劳：“我很高兴国务院继续反击中共非法的海上主张。这种领土侵略经不起法律审查，侵犯了东南亚许多国家的主权，并增加了印太地区冲突的风险。” （转引国务院发言人奈德·普莱斯的推文）
+不放弃，不抛弃，全力救助战友；保命、保财、灭中共。
 
 
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "I'm glad [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) is continuing to push back on the CCP’s illegal maritime claims. This territorial aggression doesn’t hold up to legal scrutiny, violates the sovereignty of numerous nations in SE Asia, and is increasing the risk of conflict in the Indo-Pacific.” [https://t.co/poOj8vNeCd](https://t.co/poOj8vNeCd)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [January 12, 2022](https://twitter.com/HouseForeignGOP/status/1481396802054197256?ref_src=twsrc%5Etfw)
+**塞浦路斯当地媒体希腊文报道链接：**
 
 
 
-参议员瑞克·斯科特： 这正是我强烈敦促每家美国公司停止与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 做生意并从他们的暴行中获利的原因。 【附大纪元时报：美国公司开发的技术正在推动中共政权及其军事发展，北京甚至指导和促进对美国公司及其资产的系统性投资和收购】
+> [Η Κύπρος μεταξύ Πεκίνου – Ουάσινγκτον: Αίτημα έκδοσης από Κίνα για δύο ακτιβιστές που στηρίζουν οι ΗΠΑ](https://politis.com.cy/politis-news/kypros/i-kypros-stis-mylopetres-metaxy-pekinoy-oyasingkton-aitima-ekdosis-apo-kina-gia-dyo-aktivistes-poy-stirizoyn-oi-ipa/)
 
 
-
-> This is exactly why I have strongly urged that every U.S. company stop doing business with Communist China & profiting off of their atrocities. [https://t.co/c7t7niRcCK](https://t.co/c7t7niRcCK)
-> — Rick Scott (@SenRickScott) [January 12, 2022](https://twitter.com/SenRickScott/status/1481352686838628352?ref_src=twsrc%5Etfw)
-
-
-
+[https://politis.com.cy/politis-news/kypros/i-kypros-stis-mylopetres-metaxy-pekinoy-oyasingkton-aitima-ekdosis-apo-kina-gia-dyo-aktivistes-poy-stirizoyn-oi-ipa/](https://politis.com.cy/politis-news/kypros/i-kypros-stis-mylopetres-metaxy-pekinoy-oyasingkton-aitima-ekdosis-apo-kina-gia-dyo-aktivistes-poy-stirizoyn-oi-ipa/)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 1:42 AM (UTC)`
+
+1/12/2022 Miles Guo: Why did Isobel Yeung happen to be there to specifically interview the Chinese people on January 6, 2021? Why is it the case that she is executing a conspiracy that has been brewing for years? Fellow fighters’ personal experiences show that discrimination against the Chinese is everywhere, and there will be tens of millions of anti-Chinese incidents in the future!<br/><br/>1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？为什么说她执行的是酝酿多年的阴谋？战友的亲身经历说明对华人的歧视无处不在，未来的排华事件将以千万计！
+![img](https://media.gettr.com/group23/getter/2022/01/13/01/5af1fb86-dd85-80c7-3c9c-0cb77918dc51/out.jpg)
+
+---
+
 `@miles 1/13/2022 1:20 AM (UTC)`
 
 德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。<br/><br/>Djokovic’s mother backing up her son: If Novak is healthy, he should not be pressured to take the vaccine in order to play tennis. Vaccine is a personal choice, it is human rights. People who vaccinated with 2 shots even 3 shots are infected with coronavirus as well. The notion that if Novak is not vaccinated, he might get 10,000 people sick if he coughs on the court is silly. <br/><br/> 
@@ -154,15 +161,6 @@ Click on the image below to listen to the podcast:<br/><br/>Jan. 11, 2022<br/>Pl
 
 ...
 ![img](https://media.gettr.com/group46/getter/2022/01/08/08/f961a558-0a5b-e8b5-8f5a-4b86a9a70495/88ab75c65fbc64dc0ca2e2f6e09fdd88.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/11/2022 2:46 AM (UTC)`
-
-EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第四节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
-![img](https://media.gettr.com/group15/origin/2022/01/11/02/7edaf34d-0893-df1f-0cef-2c95be624d47/out.jpg)
 
 ---
 

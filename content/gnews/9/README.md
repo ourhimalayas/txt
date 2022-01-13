@@ -2,41 +2,53 @@
 ---
 
 
-## 世卫组织说，奥米克戎变异病毒将在“6到8周内”感染半个欧洲
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1852941/)
+## 前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1852986/)
 
-发布日期：2022年1月12日
-新闻来源：ABC新闻
-翻译：文虓Bobby
+前国务卿蓬佩奥： 今年，我们必须把美国放在首位，在与敌人打交道时建立美国的实力。这意味着要对抗普京和中国共产党。如果拜登政府不能做到这一点，我们应该在2022年击败他们。 （转蓬佩奥撰文：2022年建立一个强大、安全的美国的优先事项）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011304.jpg)欧洲几乎所有国家都有欧米克隆变种病例的记录。(美联社: 瓦蒂姆·吉尔达)
 
-世界卫生组织(WHO)说，新冠病毒奥米克戎（Omicron）变种可能会感染超过一半的欧洲人，但目前还不应将其视为一种类似流感的地方性疾病。
 
-世卫组织欧洲部主任汉斯·克鲁格周二表示，2022年的第一周，欧洲新增病例超过700万例，在两周内翻了一倍多。
+> This year, we must put America First and establish American strength in our dealings with adversaries. That means standing up to Putin & the Chinese Communist Party. If the Biden Administration is unable to do this, we should defeat them in 2022. [https://t.co/ipuC4Ycp8V](https://t.co/ipuC4Ycp8V)
+> — Mike Pompeo (@mikepompeo) [January 12, 2022](https://twitter.com/mikepompeo/status/1481346695342567430?ref_src=twsrc%5Etfw)
 
-“按照这个速度，卫生指标与评估研究所(Institute for Health Metrics and Evaluation)预测，该地区50%以上的人口将在未来6至8周内感染Omicron，”克鲁格表示参，考华盛顿大学(University of Washington)的一个研究中心（研究结果）。
 
-他说，在欧洲和中亚的53个国家中，有50个国家出现了传染性更强的变种病毒。
 
-然而，越来越多的证据表明，奥米克戎对上呼吸道的影响大于对肺部的影响，导致的症状比以前的变种更轻。
+众议员帕特·法伦： 太对了！中共国的感受是我们最不应该关心的。 【转众议员吉姆·乔丹的推文：有人关心中共国的感受超过对新冠病毒的溯源】
 
-但世界卫生组织警告说，还需要更多的研究来证明这一点。
 
-周一，西班牙首相佩德罗·桑切斯(Pedro Sanchez)表示，可能是时候改变追踪COVID-19演变的方式，转而使用一种类似于流感的方法，因为它的致死率已经下降。
 
-这意味着将这种病毒作为一种地方病而不是大流行来治疗，而不记录每一个病例，也不对所有出现症状的人进行检测。
+> Hitting the nail on the head! China's feelings are the last thing we should be concerned about. [https://t.co/XMQahdpOZm](https://t.co/XMQahdpOZm)
+> — Rep. Pat Fallon (@RepPatFallon) [January 12, 2022](https://twitter.com/RepPatFallon/status/1481381220051300357?ref_src=twsrc%5Etfw)
 
-但世卫组织负责欧洲事务的高级应急官员凯瑟琳·斯莫尔伍德(Catherine Smallwood)表示，这“还有很长的路要走”。她补充说，该流行病需要稳定和可预测的传播。
 
-“我们仍然有很大的不确定性，而且病毒正在迅速演变，给我们带来了新的挑战。我们肯定还没有达到可以称之为地方性疾病的程度，”斯莫尔伍德表示。
 
-“它可能在适当的时候成为一种地方病，但在现阶段2022年将其确定为（地方性疾病）有点困难。”
+国会中国执行委员会： 跨党派的国会中国执行委员会的委员们，包括主席莫科里参议员和麦克噶文众议员，致信国际奥委会巴赫主席，要求国际奥委会证明与包括安踏在内的使用强制劳工的中国公司的合同是合理的。 （附信件全文）
 
-[援引原文](https://www.abc.net.au/news/2022-01-12/omicron-variant-on-course-to-infect-half-of-europe/100751090)
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+
+> Bipartisan group of [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Commissioners, including Chairs [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw) and [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw), release letter to [@IOCThomasBach](https://twitter.com/IOCThomasBach?ref_src=twsrc%5Etfw) asking [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) to justify contracts with Chinese companies using forced labor, including [@ANTAsportswear](https://twitter.com/ANTAsportswear?ref_src=twsrc%5Etfw). [https://t.co/fLGrp9ZWpi](https://t.co/fLGrp9ZWpi) [pic.twitter.com/uW22GkcDpD](https://t.co/uW22GkcDpD)
+> — China Commission (@CECCgov) [January 12, 2022](https://twitter.com/CECCgov/status/1481317086693576717?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党外事委员会： 少数派领袖麦克劳：“我很高兴国务院继续反击中共非法的海上主张。这种领土侵略经不起法律审查，侵犯了东南亚许多国家的主权，并增加了印太地区冲突的风险。” （转引国务院发言人奈德·普莱斯的推文）
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "I'm glad [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) is continuing to push back on the CCP’s illegal maritime claims. This territorial aggression doesn’t hold up to legal scrutiny, violates the sovereignty of numerous nations in SE Asia, and is increasing the risk of conflict in the Indo-Pacific.” [https://t.co/poOj8vNeCd](https://t.co/poOj8vNeCd)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [January 12, 2022](https://twitter.com/HouseForeignGOP/status/1481396802054197256?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 这正是我强烈敦促每家美国公司停止与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 做生意并从他们的暴行中获利的原因。 【附大纪元时报：美国公司开发的技术正在推动中共政权及其军事发展，北京甚至指导和促进对美国公司及其资产的系统性投资和收购】
+
+
+
+> This is exactly why I have strongly urged that every U.S. company stop doing business with Communist China & profiting off of their atrocities. [https://t.co/c7t7niRcCK](https://t.co/c7t7niRcCK)
+> — Rick Scott (@SenRickScott) [January 12, 2022](https://twitter.com/SenRickScott/status/1481352686838628352?ref_src=twsrc%5Etfw)
+
+
 
  
 
