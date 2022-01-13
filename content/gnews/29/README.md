@@ -2,22 +2,26 @@
 ---
 
 
-## 北约俄罗斯会谈无果 乌克兰局势持续紧张
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1853596/)
+## 特鲁多失常暴怒攻击未接种疫苗者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853673/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-932.png)[图片来源](https://www.themoscowtimes.com/2022/01/12/nato-and-russia-lay-out-stark-differences-on-ukraine-crisis-a76022)
-针对俄罗斯军队聚集乌克兰边境所引发的紧张局势，1月12日，北大西洋公约组织（NATO）在布鲁塞尔总部召开了北约-俄罗斯理事会会议。这是双方自2019年7月以来的首次开会。
+采编：文莱     编译撰稿：苦尽甜来 (文來）
 
-北约敦促缓和紧张局势，并拒绝了俄罗斯对不向东扩张的法律保障的要求，双方在解决冲突方面没有具体进展，这是继12月10日美俄对话之后举行的直接会谈再次无结果告终。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-4-edited.jpg)图片来源：TNH
 
-北约（NATO）秘书长斯托尔滕贝格在会谈后的新闻发布会上表示：北约和俄罗斯之间存在着巨大的差异，想克服它很难。他强调，恢复与俄罗斯的对话是“一个积极的信号”，并表示将继续就缓解紧张局势和裁军的措施进行会谈。
 
-信息源：[ウクライナ問題、対立解消できず　NATOとロシアが協議](https://news.yahoo.co.jp/articles/0b96f1cb8351cf6e08363262f3d42f92eaad05a1)
+据自媒体【真北方】1月11日报道，纽约州立大学学者当天公开抨击加拿大总理特鲁多发表的所谓“未接种‘新冠病毒’疫苗者为憎恨妇女的极端种族主义者”的疯狂人身攻击言论。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+该学者对特鲁多以上这种仇恨性的狂言表示：如同当年的纳粹，独裁者希特勒不仅基于宗教原因对德国的犹太人进行异类分化，还进一步将他们视为国家的公敌，以此挑起种族之间的暴力仇恨，并最终把集体屠杀犹太人的罪行国家化，合法化。而加拿大总理特鲁多目前正在实施着和当年希特勒几乎同样的极端主义政策，并蓄意以此制造加拿大的社会矛盾，煽动公众对未接种者的深仇大恨。
+
+此外，英国[环球新闻]主持人奥利弗也对此称：特鲁多的精神失常言论不仅是国家级别的边缘犯罪，更是为其完全失败的疫情和疫苗政策推卸责任，并栽赃嫁祸于拒绝接种疫苗者的最佳途径。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接： [New York academic slams Trudeau for dehumanizing the unvaccinated | True North (tnc.news)](https://tnc.news/2022/01/11/new-york-academic-slams-trudeau-for-dehumanizing-the-unvaccinated/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

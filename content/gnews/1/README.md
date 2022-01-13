@@ -2,42 +2,34 @@
 ---
 
 
-## 中国的水都是自西向东南流中国的乾隆八卦里东南是水位
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854058/)
+## 印中就脱离边境举行会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1854097/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7ee487664c47acd3e8e5](https://gtv.org/video/id=61df7ee487664c47acd3e8e5)
+#### **撰稿：**日本东京方舟农场 子辰
 
-**郭文贵先生：**你们知道所有的帕米尔的水，还有整个从喜马拉雅山的水，大家问我，中国有一个河流是从东往西流水的吗？有吗？没有吧！文耀你要找出个从东往西流水的，你就是神人了。所有的水是从西向东流。不管你们水多水少，你也阻挡不了你的水从身体上都是从上往下流一样。不管你小飞象、小飞侠、佳佳、王子你多年轻，你不能，你可以尿自己的脸上，但是你想自己的高潮之水往上流是不可能的，无论你们谁高了，都是水往下流，这就是天然之规律。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/77B66CB7-95AD-4EA5-BE1B-704D4D4AD5A0.jpeg)（图片来自《美国之音》）
 
-中国的水都是往西流，往东南流，所以中国的乾隆八卦里边儿，永远东南角是水位，龙位，龙位，龙饮水，这个都是《山海经》，刚才你们说的《山海经》，《山海经》是干啥的？《山海经》是把远古的所有的民族、自然、神话给你放在一起的。《三心通论》和真正的《三心通论》最后的总结，包括《山海经》都在告诉中国大自然和人类变化的一个基本的历史和规律，你是可以看的。
+据《美国之音》1月13号日报道，印中两国就达拉克边境是否脱离军队接触举行会谈。试图缓解20个月以来的军事对峙。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+此前，印中两国在大约3400公里长的具有争议的边境地区集结了数万军队、火炮和战斗机。此次会谈将重点讨论从温泉撤军的问题，这里曾是印中军队2020年5月爆发暴力冲突后出现的几个摩擦点之一。
 
-编辑整理：Jacques；
+据悉，自双方去年从班公湖这个喜马拉雅的战略湖泊地区撤出了军队以后，就在其它地区是否脱离军队接触的会谈中陷入了僵局，双方因缺乏进展互相指责对方。
 
-字幕文件制作：小满；
+印度陆军参谋长纳拉万（M.M. Naravane）1月12日在年度记者会上说，双方的会谈是否成功将取决于双方如何降低紧张局势及撤军的明确态度。他说，希望会谈顺利取得进一步地进展，虽然有部分的脱离接触，但是威胁一直存在。他还表示，不介意会谈拖延，他们准备维护目前的立场，直到实现自身的国家目标和利益。
 
-视频制作及上传：Cindy；
+中共外交部发言人汪文斌说，希望印方能同中方一同前行，尽快推动边境事态从应急处置转入常态化管控阶段。他形容印中两国边境局势“总体稳定”。
 
-G-News发布：小满；
+此外，白宫新闻秘书莎琪在1月12日华盛顿举行的例行记者会上，回答中共在印度边境的“侵略行为”问题时说，我们一直明确表示如何看待中共在当地和世界各地的行为，并认为这可能是破坏稳定。莎琪说，我们一直对中共试图恐吓邻国感到关切，并称将继续与伙伴们站在一起。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+*参考链接：[印中举行边界脱离接触的会谈](https://www.voachinese.com/a/india-china-hold-talks-20220112/6394309.html)*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*素材采编：子辰*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*编辑：青城道姑*
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 

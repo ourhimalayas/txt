@@ -2,38 +2,42 @@
 ---
 
 
-## 短视频：美国多个州中共病毒病例创下新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853920/)
+## 昆仑山和俄罗斯山脉以及帕米尔高原有大动静世界要大变
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853980/)
 
-#### 翻译：Lish
-校对：精靈藍
-视频剪辑：向上James
-编辑：文泓
+G-TV视频链接：[https://gtv.org/video/id=61df7c8a87664c47acd3e784](https://gtv.org/video/id=61df7c8a87664c47acd3e784)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会.png)图片来源：视频截屏
+**郭文贵先生：**记住，这跟哈萨克斯坦是有极大的关系。哈萨克斯坦有一座山脉、有一座湖。这座湖称为姐妹湖。有一座山脉是叫做俄罗斯的“精神之山”，你们自己查查。俄罗斯人和哈萨克斯坦人是深信不疑的。这就是七哥走万里路的好处。你说啥我都能告诉你，我亲自去过。不像那些伪类什么，从来没去过，是吧？就开始告诉我打扑克了，他都没见过扑克牌，是吧？他就告诉我怎么打牌了。
 
-**翻译视频**
-我们首先请驻亚特兰大的记者史蒂夫·哈里根发言，亚特兰大是疾病预防控制中心(CDC)的所在地。晚上好！史蒂夫，
+所以昆仑山有大动静、俄罗斯山脉有大动静、帕米尔高原有大动静，这个世界要大变。
 
-晚上好，布雷特，本周多个州的新冠病例数量创下新纪录。导致在许多城市，排队检测的队伍绵延数个街区，人们等待数小时才能知道他们是否感染了中共病毒。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-我们明天要去旅行。我们想确保我们是干净的。
+编辑整理：Jacques；
 
-我们接种了疫苗也遵守了一切的规定，但我们感觉不舒服。所以我们想去做检测。
+字幕文件制作：小满；
 
-美国七天来的新病例的平均数约为每天20万例，比一周前增长了47%，包括纽约、新泽西和马萨诸塞在内的几个州的病例都创记录的高，报告在过去一周的新病例比病毒开始以来的任何其他一周都多。
+视频制作及上传：Cindy；
 
-然而在世界范围内，城市正在取消或大量缩减纪念新年的计划，在美国，卫生官员建议人们留在家里与家人一起。
+G-News发布：小满；
 
-视频链接：[Multiple states hit record high COVID cases | Fox News Video](https://video.foxnews.com/v/6288910317001#sp=show-clips)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
