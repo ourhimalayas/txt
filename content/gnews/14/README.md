@@ -2,8 +2,8 @@
 ---
 
 
-## 政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856189/)
+## 苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856343/)
 
 台灣寶島農場
 

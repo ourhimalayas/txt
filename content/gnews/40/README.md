@@ -2,60 +2,76 @@
 ---
 
 
-## 全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1855507/)
+## 新西兰财经G乐部2022年1月13日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1855176/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9353729_b2228edd-9a17-4410-8256-66c3630fef1c_副本.jpg)
-鲁讯先生曾经说过“世上本没有路，走的人多了也便成了路。”，对于中共病毒来说，自然界本没有中共病毒，哪怕说得人再多，中共病毒也还依然不是自然的。自中共病毒被释放以来，中共已经为世界指了太多路，其中病毒来自自然这条路虽然已经此路不通，但中共关于中共病毒的种种歧路确也屡屡行路者颇多，核酸检测即为歧路之一——
+采集整理：蚂蚁的城堡
 
-据[**新京报我们视频**](https://weibo.com/wevideo001) [2022年1月8日 13:15](https://weibo.com/6124642021/L9NymrxzB?from=page_1002066124642021_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
+**提纲：**
 
-【[#山西永济首轮全员核酸检测均为阴性#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E8%A5%BF%E6%B0%B8%E6%B5%8E%E9%A6%96%E8%BD%AE%E5%85%A8%E5%91%98%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%9D%87%E4%B8%BA%E9%98%B4%E6%80%A7%23&amp;from=default)】1月8日，据央视新闻消息，山西永济首轮全员核酸检测结果均为阴性。1月5日，高铁永济北站进行常规环境采样，发现出站口闸机环境采样检测结果为阳性。1月6日起，永济市开展首轮全员核酸检测工作。截至8日，永济已经完成全员核酸检测采集工作，首轮检测结果均为阴性。[#聚焦新冠肺炎疫情#](https://s.weibo.com/weibo?q=%23%E8%81%9A%E7%84%A6%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%96%AB%E6%83%85%23&amp;from=default) [L新京报我们视频的微博视频](http://t.cn/A6JyNopR)（记者：张建斌 制作：杜海涛 运营：易可）
+1、百亿私募业绩“扑街”，昔日冠军旗下产品开年一周跌去13%
 
-以及[**河南日报**](https://weibo.com/3288875501?refer_flag=1001030103_) [2022年01月12日 11:49](https://weibo.com/3288875501/LaoHAyudS?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+2、友邦120亿入股成中邮人寿第二大股东
 
-【筑牢疫情防控防线[#郑州东站每日定时开展环境核酸采样#](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%9C%E7%AB%99%E6%AF%8F%E6%97%A5%E5%AE%9A%E6%97%B6%E5%BC%80%E5%B1%95%E7%8E%AF%E5%A2%83%E6%A0%B8%E9%85%B8%E9%87%87%E6%A0%B7%23)】1月11日，郑州铁路疾控所工作人员对郑州东站重点场所及旅客服务设施开展环境核酸采样，及时排查风险隐患，为旅客提供安全健康的乘车环境。[#郑州东站闸机座椅每天定时核酸检测#](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%9C%E7%AB%99%E9%97%B8%E6%9C%BA%E5%BA%A7%E6%A4%85%E6%AF%8F%E5%A4%A9%E5%AE%9A%E6%97%B6%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%23)
-连日来，郑州铁路部门结合河南新冠肺炎疫情防控要求，加密管内各大车站重点场所的消杀组织，强化列车在途防控管理，并定时对车站、列车开展环境核酸检测，充分筑牢铁路疫情防控防线。（记者 郭北晨 通讯员 王玮 ）[#2022河南春运#](https://s.weibo.com/weibo?q=%232022%E6%B2%B3%E5%8D%97%E6%98%A5%E8%BF%90%23) [L河南日报的微博视频](http://t.cn/A6JqXCgf)
+3、融创中国两个月内第二度配股筹资，所得45亿港元款项其中一半用于偿还贷款
 
-通过以上两条视频我们可以看出来，中共在对环境样本取样时可以采取直接用测试棒涂抹物体表面的方式完成取样及后续检测，那么在世人皆知的最容易发生群体感染的中共病毒面前，对人员是如何进行取样的呢？
+4、中泛控股1.65亿美元债务违约，贷款行政代理人行使还款加速权
 
-据[**央视网快看**](https://weibo.com/1977460817?refer_flag=1001030103_) [2022年01月10日 12:11](https://weibo.com/1977460817/La5ZJAD3x?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+5、在收购FairX之后，衍生品即将进入Coinbase
 
-【[#天津为不会用智能机的老人设专属核酸检测通道#](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E6%B4%A5%E4%B8%BA%E4%B8%8D%E4%BC%9A%E7%94%A8%E6%99%BA%E8%83%BD%E6%9C%BA%E7%9A%84%E8%80%81%E4%BA%BA%E8%AE%BE%E4%B8%93%E5%B1%9E%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E9%80%9A%E9%81%93%23)】[#只要知道身份证号就可以做核酸检测#](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E8%A6%81%E7%9F%A5%E9%81%93%E8%BA%AB%E4%BB%BD%E8%AF%81%E5%8F%B7%E5%B0%B1%E5%8F%AF%E4%BB%A5%E5%81%9A%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%23) 10日是天津全员核酸检测的第二天，在河西区核酸检测现场，有一条“身份证通道”专为不会用智能手机的老人和其他人群设置，哪怕没有携带身份证，只要能说出自己的身份证号，一样可以进行核酸检测。[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L央视网快看的微博视频](http://t.cn/A6J4DnyS)
+**正文**
 
-以及[**许昌日报**](https://weibo.com/xccbwb) [2022年1月13日20：40](https://weibo.com/1964323134/LaBBylM63?from=page_1002061964323134_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+**1、百亿私募业绩“扑街”，昔日冠军旗下产品开年一周跌去13%**
+![](https://img.bq233.com/toutiao/upload/thumb/20220112/9a939e56da805392a7b0addf851690d6.jpg)
+2022年开年以来，A股市场高景气赛道股显著回调，诸多百亿级私募业绩“翻车”。
 
-为了帮助禹州市做好第九轮全员核酸检测工作，市委、市政府作出决定，从长葛市、鄢陵县、襄城县、建安区、魏都区再抽调1850名医护人员支援禹州。[#疫情防控#](https://s.weibo.com/weibo?q=%23%E7%96%AB%E6%83%85%E9%98%B2%E6%8E%A7%23&amp;from=default) [#许昌#](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%98%8C%23&amp;from=default) [#致敬疫情前线医护人员#](https://s.weibo.com/weibo?q=%23%E8%87%B4%E6%95%AC%E7%96%AB%E6%83%85%E5%89%8D%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98%23&amp;from=default) [L许昌日报的微博视频](http://t.cn/A6Jc6lMN) ​​​​
+一家第三方平台数据显示，开年首周，曾夺得2021年上半年百亿私募业绩冠军的汐泰投资旗下部分产品净值回撤超10%，其中表现最差的产品更是一周跌超13%。同样曾经是百亿级私募业绩冠军的同犇投资、冲积资产旗下多只产品同期回撤也超8%。
+![](https://img.bq233.com/toutiao/upload/thumb/20220112/cd5eef0a671b5c4d855a80a65ddbf497.jpg)
+值得注意的是，除了汐泰投资，多家曾经的百亿级私募冠军最近业绩也颇为惨淡。
 
-两相对比之下，对于人员取样则采取一切方式把人员聚集起来，动辄整个城市或数个小区的人员全部聚集在一起进行咽拭子取样，这个时候哪怕每个住宅楼出一个志愿者逐户收集检测样本是不是也比动辄全城或全小区到指定地点排队做咽拭子取样要安全得多呢？
+截至1月7日，同犇投资旗下多只产品今年以来回撤超8%。而在2021年前5个月，同犇投资凭借17.91%的收益率斩获当期百亿级私募冠军称号。2021年百亿级私募冠军冲积资产旗下多只产品同期跌幅也超过8%。
 
-还有一个更重要的问题，既然环境样本可以采取直接在物体表面涂抹取样的方式进行取样，那为什么还要对人员进行深捅喉咙甚至深捅屁眼的方式来取样呢？
+参考链接  [http://fund.10jqka.com.cn/20220112/c635939433.shtml](http://fund.10jqka.com.cn/20220112/c635939433.shtml)
 
-中共国的这种全员核酸检测难道不正是生化超限战的另一条途径吗？——这难道不是用大规模的人员聚集进一步加大病毒的扩散效果、制造病毒的全员恐怖效应吗？这难道不正是要达到用人海战术凸显中共一党专治之下集中人力、物力抗疫的戏剧性效果吗？
+**2、友邦120亿入股成中邮人寿第二大股东**
+![友邦120亿入股成中邮人寿二股东个代、银邮联手一搏能否讲出新故事？_保险业_投资_业务](https://p7.itc.cn/q_70/images03/20220113/38088bd245c247fc851d168ab3b997ad.png)
+1月12日，银保监会发布关于中邮人寿变更注册资本及股东的批复称，批准中邮人寿注册资本从215亿元增加至286.63亿元，由友邦保险有限公司（下称友邦保险）认购新增注册资本71.63亿元。
 
-中共病毒是一条死亡之路，中共病毒疫苗是一条死亡之路，全员核酸检测全员捅嗓子眼和全员捅屁股眼更是一条死亡之路，让这条死亡之路成为路的需要成千上万无意思的盲从者，齐奥塞斯库的灭亡之路始于人群中的一个嘘声，那么在全员核酸检测这条死亡之路上的成千上万人群什么时候会发出摧毁极权的第一声怒吼呢？
+中共国邮政在其官网的公开表示中称，此次交易引资金额达120.33亿元，是中共国保险业截至目前最大的增资扩股引战项目。此次增资之后，友邦保险成为第二大股东，新的股权结构为：中共国邮政集团有限公司持股38.20%，友邦保险持股24.99%，北京中邮资产管理有限公司持股15.00%，中共国集邮有限公司持股12.19%，邮政科学研究规划院有限公司持股9.62%。
 
-撰稿：喜马拉雅的肉夹馍；
+财经G评：中共国邮政集团旗下全资子公司有：中共国邮政储蓄银行、 中邮人寿；1月11日德意志银行与中邮理财联手设立合资理财公司。若这两大机构“联姻”成功，将诞生第五家由国有大行理财子公司和外资共同设立的合资理财公司。1月13日中共银保监会批复同意中邮保险注册资本从215亿元增加至286.63亿元，新增注册资本由友邦保险认购。此次交易引资金额达120.33亿元！记得七哥说过，中共国邮政集团背后是习家！
 
-审核：喜马拉雅的馍夹肉；
+参考链接：[https://finance.sina.com.cn/roll/2022-01-13/doc-ikyamrmz4882361.shtml](https://finance.sina.com.cn/roll/2022-01-13/doc-ikyamrmz4882361.shtml)
 
-校对：Maarago；
+**3、融创中国两个月内第二度配股筹资，所得45亿港元款项其中一半用于偿还贷款**
+![孙宏斌出手了！融创半个月回血160亿！_融创中国](https://p1.itc.cn/q_70/images03/20211115/c169bb017be0420fb16d344001aa20c4.png)
+路透1月13日 – 中共国房地产商–融创中国周四称，拟以先旧后新方式配售45亿港元股份，其中一半资金用于偿还贷款。这是公司两个月内第二度配股筹资。
 
-（文章内容仅代表作者个人观点）
+据公告，融创中国周三订立一份配售及认购协议，透过配售代理摩根士丹利按悉数包销基准以每股10港元配售4.52亿股配售股份，大股东兼公司主席孙宏斌的家族信托同意按同等价格认购同等数目新股。配售股份及认购股份分别占融创中国现有已发行股本的约9.05%，及经认购事项扩大后已发行股本的约8.30%。配售价较周三收市价11.8港元折让约15.3%。认购事项所得款项总额为45.20亿港元，折合约5.80亿美元。完成后，孙宏斌一方的持股比例将由42.25%摊薄至38.75%。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参考链接：[https://cn.reuters.com/article/sunac-fundraising-0113-thur-idCNKBS2JN03F?il=0](https://cn.reuters.com/article/sunac-fundraising-0113-thur-idCNKBS2JN03F?il=0)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**4、中泛控股1.65亿美元债务违约，贷款行政代理人行使还款加速权**
+![这是一个标志性事件，更多的实在是不能再说了，大家多多关注就好。 12月18日，中国泛海控股集团有限公司官微发布声明称...](https://xqimg.imedao.com/17dd33976ea81483fee175ed.jpeg!800.jpg)
+泛海控股境外附属公司中泛控股公告称，收到初步贷款人发出的违约通知副本。违约通知阐明，借款人未能于2022年1月到期前支付贷款的应计利息及服务费用128.03万美元，从而导致融资协议项下的违约事件，而有关逾期付款于3个营业日的期间仍持续未获解决。根据融资协议，贷款的行政代理人有权加速融资协议项下的所有本金以及应计及未付利息的还款。违约通知阐明，行政代理人现在行使加速权及要求立即悉数偿还融资协议项下到期的所有款项，金额为1.65亿美元及应计利息、法律费用及其他费用（欠款）。中泛控股表示，公司目前正就付款违约寻求法律意见，以期透过适当方式应对相关事宜。此外，公司亦不断努力获取资金以偿还欠款。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参考链接 ：[https://www.163.com/dy/article/GTF9VIK60519D45U.html](https://www.163.com/dy/article/GTF9VIK60519D45U.html)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**5、在收购FairX之后，衍生品即将进入Coinbase**
+![Coinbase拟收购合规交易所 FairX 以进入衍生品交易市场](https://image.panewslab.com/upload/image/20220113/S8942eb3fafdc45b88eb0fe0a3a3e9e8c.png)
+美国主要加密货币交易所Coinbase是世界上24小时交易量第三大的交易所，其已收购FairX衍生品交易所，打算进入衍生品交易市场。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+FairX是由美国商品期货交易委员会(CFTC)监管的指定合约市场(DCM)衍生品交易所。尽管FairX刚刚进入市场，于2021年5月推出，但它已与行业领军者TD Ameritrade和E\*Trade以及其他18家公司达成了经纪合作关系。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+衍生品交易是指与基础资产未来价值相关的各种外来产品的交易，而不是交易资产本身。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+在1月13日的声明中，Coinbase解释了为其美国客户推出加密衍生品交易的计划。Coinbase表示：“我们希望让衍生品市场对我们数百万的零售客户来说更容易接近。”
+
+参考链接：[https://cointelegraphcn.com/news/derivatives-are-coming-to-coinbase-following-purchase-of-fairx](https://cointelegraphcn.com/news/derivatives-are-coming-to-coinbase-following-purchase-of-fairx)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
