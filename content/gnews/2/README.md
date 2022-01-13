@@ -2,49 +2,29 @@
 ---
 
 
-## 以舍利子传法方式达到被信仰和成神境界是虚妄甚至作孽
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853766/)
+## 港媒报道：日本军舰以“无害通过”南中国海施压中共国
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1853855/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df84ba87664c47acd3ebb3](https://gtv.org/video/id=61df84ba87664c47acd3ebb3)
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2022/01/喜妈2.png)
+来自网络截图
 
-**郭文贵先生：**就是他长期吃素，然后吃某种草药，然后就是今天还有一些矿物质，很多人都会炼出舍利子来，但那都是假的。
+港媒援引日本媒体报道，“过去 10 个月里，日本军舰至少两次驶入中共国控制的南海岛礁附近海域”，“进入有争议的南沙群岛周围的毗连区”。根据来自日本主流媒体的报道称，日本海上自卫队船只执行的是“航行自由巡逻”，以“威慑中国”。而文章引用国际权威人士认为，此举是“通过国际水域‘无害通过’的合法行为”；这些举动“可能激怒了北京”。
 
-佛祖的手指的舍利子，在西安的还有在整个印度的，你到梵山你看一看梵山你就知道，就是你一定要记住，一定要相信我们对大自然的力量。就像现在外面下的这个雪一样，它就这时候要下雪，早了也不行，晚了也不行，已经是亿万年就这样了，它大自然是有规律的。
+文章引用相关专家的意见认为，日本军队的行为“从法律角度来看这是完全正常的”，可是“背后肯定会有政治意义”。 同时，文章进一步引用专家的意见，该做法“目的是对中共国施加一些压力”。报道引用专业人士的观点指出，“美国是唯一一个挑战北京在南海的主张的国家”，美国“派遣军舰通过中共国坚称的距离海岸线 12 海里以内的领海”。此外，澳大利亚和英国的军舰“显然和他们的日本同行一样”，“航行过该地区的毗连区域”。
 
-佛祖还有舍利子是跟大自然（融合）自然形成的一种结果力量，是修行的结果，而且这是一种显现的方式。后来人要学他，就造假，像共产党一样，我没有修行到，我要用后天力量的加持来达到，那都是假的，那都是假的。
+综上所述，笔者认为，这是日本在积极地配合西方盟国，在亚太地区行使自己的符合国际法的权力，同时在其中彰显对中共国非法行径的反对。为什么日本明知这样的“无害通过”做法可以惹恼中共国，仍然要不断地践行和实践，说明这就是一个鲜明的立场和态度。这是一种亚太地区国家的明确表态，表示对中共国做法的强烈不满。
 
-而且我深信，真的我认为舍利子不是追求的目的，舍利子是以舍利子传法，但是很多人想利用舍利子的传法方式来达到自己被信仰、成神的境界，这都是假的，都是虚妄，甚至是作孽。
+同时，中共国的所作所为引起地区和世界的全面不满，成为众矢之的，这已经成为不争的事实。一个正在全面和更加深度地孤立的状态呈现在中共国面前。如果美国和美国的西方盟国都以自己的态度表现出来一个统一的中共国反对面的立场，那么中共国无论在国际法的范畴，还是在国际社会和道义的世界都根本站不住脚。
 
-我觉得大家不要去崇拜舍利子，而是崇拜佛学佛陀的智慧，佛陀的智慧才能救我们，而不是佛陀的舍利子。我看到神奇，我从来不觉得这能救我们，我认为佛陀的智慧能救我们，谢谢！
+中共国即将面对没有一个同伴和同盟者的境地，这就是它作死的节奏。如果西方和亚太的各个国家都联合起来，中共国在南中海也无法兴风作浪。目前，当各方仍未完全明晰其思路和统一其最终立场，部分还有观望和犹豫，导致对中共国并未形成全面的碾压态势。可是，这种态势随时可以扭转，利箭暗藏，可以迸发之时就会激活，导致全局直转。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+当然，没有人愿意面对战争，我们也希望世界只是有所动荡的威胁，不要形成无法改变的战争灾难。可是，如果有一个恶魔要草菅人命，制造动荡，并一路狂奔，那么世界正义的力量还是会出手，还是要迎面而上。从我们可以看到的形势，中共必然是少数派和孤立派，这就是事实。
 
-编辑整理：Jacques；
+参考消息：[South China Sea: Japanese warships sailed near Chinese-controlled reefs in Spratly Islands ‘to pressure’ Beijing | South China Morning Post (scmp.com)](https://www.scmp.com/week-asia/politics/article/3163096/south-china-sea-japanese-warships-sailed-near-chinese-controlled)
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
