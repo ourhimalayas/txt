@@ -2,42 +2,49 @@
 ---
 
 
-## 昆仑山和俄罗斯山脉以及帕米尔高原有大动静世界要大变
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853980/)
+## 颠覆美国——习近平搞砸中美关系（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853981/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7c8a87664c47acd3e784](https://gtv.org/video/id=61df7c8a87664c47acd3e784)
+**作者：**大山jimi
+**编辑：**翼族
 
-**郭文贵先生：**记住，这跟哈萨克斯坦是有极大的关系。哈萨克斯坦有一座山脉、有一座湖。这座湖称为姐妹湖。有一座山脉是叫做俄罗斯的“精神之山”，你们自己查查。俄罗斯人和哈萨克斯坦人是深信不疑的。这就是七哥走万里路的好处。你说啥我都能告诉你，我亲自去过。不像那些伪类什么，从来没去过，是吧？就开始告诉我打扑克了，他都没见过扑克牌，是吧？他就告诉我怎么打牌了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1.jpg)图片来源：RFA
 
-所以昆仑山有大动静、俄罗斯山脉有大动静、帕米尔高原有大动静，这个世界要大变。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+[颠覆美国——习近平搞砸中美关系（一）](https://gnews.org/zh-hans/1853468/)
+[颠覆美国——习近平搞砸中美关系（二）](https://gnews.org/zh-hans/1853955/)
 
-编辑整理：Jacques；
+2017年10月5日，新中国联邦发起人郭文贵先生在美国华府全国新闻记者具乐部披露了中共对海外实施“蓝金黄”计划，来统治和渗透世界。郭文贵先生表示，他发现“蓝金黄”彻底渗透了美国。“蓝金黄”中的“蓝”是网路控制，透过收买各种媒体平台，进而达到全面洗脑；“金”就是使用金钱收买，利用非法利益收买；“黄”就是使用性贿络，利用赌博、色情等行业，掌握西方政客的证据进行敲诈。
 
-字幕文件制作：小满；
+郭文贵还披露了中共的另一个特别计划——“3F”计划，就是“搞弱美国、搞乱美国、搞死美国”。郭文贵先生称：“美国CIA、FBI等部门正在了解。”
 
-视频制作及上传：Cindy；
+郭文贵先生对西方世界发出了警告，美国的自由基础正在被严重削弱。“蓝金黄”和“3F”两个计划所造成的危害，可能是“911”的百倍甚至千倍，中共在美国的这两个计划进行得非常成功与快速。
 
-G-News发布：小满；
+和《蚕食美国》相对照，“蓝金黄”计划中的鼓动色情、控制媒体等手段正是共产党人摧毁美国的部分计划，而“3F”计划的“三搞”也正是中共一步步所要实现的目标。苏联解体后，中共继承了共产国际的衣钵，并且中共一直继续稳步的实施着共产国际对美国的渗透和颠覆。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+“蓝金黄”只是中共颠覆美国手段之一。2020年10月26日，川普车队在纽约游行造势，遭到“安提法”和“黑命贵”运动群众的阻挡。从明尼苏达引发的“黑命贵”运动，到现在已经变成无政府主义者的天堂，类似波特兰这种民主党执政的城市，任由“黑命贵”运动群众占领，划分成“无政府主义者”特区，抢劫暴力进入无政府状态。这两个台面上的组织，已经证实是由中共的“华人协进会”在后面出资指挥，主要目的就是凸显美国民主不是好制度，加深人民对川普政府无能平乱印象。美国群众暴动不停，更使得武汉瘟疫传播无法制止，这些已经变成川普当时连任的致命伤，而只要拉下川普，就是替中共立下大功。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+中共在全世界进行渗透已是一个不争的事实。比如，前中共驻悉尼领馆一秘，陈用林就曾表示，中共对澳洲的渗透分政治、军事、经济、文化四个领域，分官方和民间两个管道，而官方管道则是通过对澳洲三级政府的同时渗透，相互进行呼应。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+此外，中共还控制社交媒体。《纽约时报》称，脸书一直长期公开向中共献殷勤，作为其进入中国市场努力的一部分，脸书已经开发出一种审查社交网路的工具。
+中共官媒经常通过在美国主流媒体以付费插页形式宣传自己需要的内容，这种做法引起了美中经济与安全审查委员会（USCC）对中共“借船出海”进行媒体渗透的额外关注。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+USCC主席白嘉玲（Carolyn Bartholomew）认为，美国社会应该警惕对待中共这种隐蔽性的宣传手段，“这些由中共官方付款的中国内容，应该透明地揭示其信息来自哪里。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+美国智库，美国安全中心创办的网站曾刊登一篇名为《中共在美国玩隐性实力》的文章。文章说，中国国际广播电台（CRI）不声不响地收购了数家美国广播电台。按照Chinaownsus.com网站提供的数据，迄今中国国际台已将华盛顿地区的G&E广播电台收入麾下。另外，该电台还控制着美国主要城市至少15家电台的播音时段，包括波士顿、洛杉矶和华盛顿特区一带。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+《蚕食美国》影片说，共产党人这种有计划的渗透，有效控制了有影响力的媒体，结果就是，很多人都发现了媒体有偏颇。连《华盛顿邮报》都承认：“没错，我们偏袒奥巴马。那又怎么样？”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+金赛德（Cliff Kincaid）表示，当你说“那又怎么样”时，你报导的新闻里就融入了你的偏见和意见。这就变成由他们决定哪些事情你有知晓权。波特（Janet Porter）认为，这已经不只是偏见，已经从政治偏见变成激进主义。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+发布：翼族
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

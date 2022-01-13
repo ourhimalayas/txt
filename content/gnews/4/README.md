@@ -2,46 +2,34 @@
 ---
 
 
-## 中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854093/)
+## 印中就脱离边境举行会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1854097/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df7f6087664c47acd3e91c](https://gtv.org/video/id=61df7f6087664c47acd3e91c)
+#### **撰稿：**日本东京方舟农场 子辰
 
-**郭文贵先生：**你到真正地普陀道场，你真的了解中国的佛教的时候你要了解，唐朝，唐僧，唐僧就是我们说的唐玄奘，怎么他的徒弟把皇帝的公主给搞了，都搞几次大肚子了，最后是没想到唐僧的徒弟——搞了几个，把公主给搞了，这不是灭佛啊？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/77B66CB7-95AD-4EA5-BE1B-704D4D4AD5A0.jpeg)（图片来自《美国之音》）
 
-大家你们要看到，历史上五次灭佛，这最大的几个灭佛的人，然后这几个立佛的人，最后是在西藏的佛教，是怎么，西藏佛教，谈蓝莲花要谈什么？莲花生佛，莲花生佛就是今天泥泊尔、不丹国的整个的一切。莲花生佛是什么？跟七有关系，好好查查莲花生佛跟七啥关系，跟蓝莲花有关系。七个化身、七个菩萨像。
+据《美国之音》1月13号日报道，印中两国就达拉克边境是否脱离军队接触举行会谈。试图缓解20个月以来的军事对峙。
 
-你要到这些国家你没去过你是不懂的，我跟你讲你听不懂，七哥都去过，所以七哥从昆仑山脉、新疆、吉尔吉斯坦、哈撒克斯坦，是吧，整个帕米尔高原到喜马拉雅山，喜马拉雅山整个印度，印南、印北、印西、印度洋到中东、不丹，是不是，我全都去过。你们谁去过？我去过这地方，我公司、我家人从来我回来没有一次跟他们聊这，因为他们谁也听不懂，聊聊饺子可以，聊这个听不懂的。
+此前，印中两国在大约3400公里长的具有争议的边境地区集结了数万军队、火炮和战斗机。此次会谈将重点讨论从温泉撤军的问题，这里曾是印中军队2020年5月爆发暴力冲突后出现的几个摩擦点之一。
 
-这是为啥？共产党不让你知道，没有共产党跟你谈《山海经》，没有共产党跟你昆仑山脉，没人跟你谈帕米尔高原。
+据悉，自双方去年从班公湖这个喜马拉雅的战略湖泊地区撤出了军队以后，就在其它地区是否脱离军队接触的会谈中陷入了僵局，双方因缺乏进展互相指责对方。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+印度陆军参谋长纳拉万（M.M. Naravane）1月12日在年度记者会上说，双方的会谈是否成功将取决于双方如何降低紧张局势及撤军的明确态度。他说，希望会谈顺利取得进一步地进展，虽然有部分的脱离接触，但是威胁一直存在。他还表示，不介意会谈拖延，他们准备维护目前的立场，直到实现自身的国家目标和利益。
 
-编辑整理：Jacques；
+中共外交部发言人汪文斌说，希望印方能同中方一同前行，尽快推动边境事态从应急处置转入常态化管控阶段。他形容印中两国边境局势“总体稳定”。
 
-字幕文件制作：小满；
+此外，白宫新闻秘书莎琪在1月12日华盛顿举行的例行记者会上，回答中共在印度边境的“侵略行为”问题时说，我们一直明确表示如何看待中共在当地和世界各地的行为，并认为这可能是破坏稳定。莎琪说，我们一直对中共试图恐吓邻国感到关切，并称将继续与伙伴们站在一起。
 
-视频制作及上传：Cindy；
+*参考链接：[印中举行边界脱离接触的会谈](https://www.voachinese.com/a/india-china-hold-talks-20220112/6394309.html)*
 
-G-News发布：小满；
+* * *
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+*素材采编：子辰*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*编辑：青城道姑*
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 
