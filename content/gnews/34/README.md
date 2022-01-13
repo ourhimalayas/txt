@@ -2,254 +2,88 @@
 ---
 
 
-## 2022/01/13英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1855028/)
+## 冠状病毒大流行和疫苗真相（1）冠状病毒是哪里来的?
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1855178/)
+
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.20220112.jpg)
+**作者提示：不要相信我说的，你自己去核实。**
+
+**中共国施放病毒和全球邪恶势力合流荼毒全世界The CCP (Chinese Communist Party) intentionally unleashed the virus, and colluded with global evil forces to poison the world.**
+
+1. 中共国前国防部长迟浩田的讲话。迟浩田于2005年发表了一次讲话，标题为《战争离我们不远，她是中华世纪的产婆》，用生物武器对美国清场，留土地不留人。十几年来，这篇讲话稿一直见诸大陆的《新浪》、《腾讯》、《西陆》等门户网站，然而令人倍感蹊跷的是，大约从2019年5月起，这篇杀气腾腾的讲话悄然消失于大陆的网站（同年12月，武汉爆发冠状病毒疫情）。目前，该文章依然可以在海外网站上查询。Speech by Chi Haotian, former defense minister of the CCP: In a 2005 speech titled “War is not far from us, she is the Midwife of the Chinese century,” In this speech, chi Haotian said biological weapons can be used to clear out the United States and leave no people with intact land. For more than a decade, the draft of the speech had been posted on Chinese portal websites such as Sina, Tencent and Xilu. However, the killing speech mysteriously disappeared from these websites around May 2019 (The coronavirus outbreak in December of the same year in wuhan). The article is still available on overseas websites.
+[https://www.pincong.rocks/article/item\_id-563048](https://www.pincong.rocks/article/item_id-563048)[https://news.creaders.net/china/2021/02/10/2319823.html](https://news.creaders.net/china/2021/02/10/2319823.html)[https://bbs.wenxuecity.com/rdzn/4737165.html](https://bbs.wenxuecity.com/rdzn/4737165.html)[https://imagelive.wordpress.com/2013/02/26/chi-haotian-war-is-not-far-from-us-and-is-the-midwife-of-the-chinese-century/](https://imagelive.wordpress.com/2013/02/26/chi-haotian-war-is-not-far-from-us-and-is-the-midwife-of-the-chinese-century/)
+2. 中共投毒计划的来龙去脉（系列分析）The ins and outs of the Communist party’s poisoning plan
+[https://gnews.org/zh-hans/793225/](https://gnews.org/zh-hans/793225/)[https://gnews.org/809526/](https://gnews.org/809526/)[https://gnews.org/zh-hans/793415/](https://gnews.org/zh-hans/793415/)[https://gnews.org/835291/](https://gnews.org/835291/)[https://gnews.org/zh-hans/793467/](https://gnews.org/zh-hans/793467/)[https://gnews.org/861801/](https://gnews.org/861801/)[https://gnews.org/zh-hans/796948/](https://gnews.org/zh-hans/796948/)[https://gnews.org/893777/](https://gnews.org/893777/)[https://gnews.org/zh-hans/796973/](https://gnews.org/zh-hans/796973/)[https://gnews.org/939202/](https://gnews.org/939202/)[https://gnews.org/zh-hans/796990/](https://gnews.org/zh-hans/796990/)[https://gnews.org/940897/](https://gnews.org/940897/)
+3. 中共释放Omicron病毒的原因The reason why Omicron virus was released by CCP. [https://gettr.com/post/pirwri5516](https://gettr.com/post/pirwri5516)
+4. 贸易战与病毒战。Trade war and virus war. 一直有人搞不懂美国为什么对中共强硬不起来。Some people wonder why the US can’t get tough with the CCP. Western investments and loans of all kinds in the COMMUNIST Party amount to $7 trillion. 西方在中共各类的投资和借款有7万亿美元之巨，这个还不包括对香港的投资。这其中大部分是美国的。这些钱又拿不回来，如果形成坏账，那将引发史上最大的经济灾难！他们春蛋捏在中共手中，已经被胁迫绑架了，能强硬吗？ 但是如果真的就确定拿不回来了，他们会善罢甘休吗？[https://gettr.com/post/pi952z8766](https://gettr.com/post/pi952z8766)
+5. 北京正在将你的DNA武器化吗？Is Beijing weaponizing your DNA? [https://gnews.org/zh-hans/1754903/](https://gnews.org/zh-hans/1754903/)
+6. 中共与国际邪恶势力合流荼毒全世界。国际邪恶势力都有谁？先看看洛克菲勒基金会2010年发布的文件！The CCP and international evil forces conspire to poison the world. Who are the international powers of evil? First look at the Rockefeller Foundation’s documents of 2010 released! 1⃣️、霍普金斯大学过去20年中进行4次大流行模拟演习。代号暗冬行动、大西洋风暴、Clade X 和最近的Event201，赞助商是盖茨基金会、世界经济论坛和霍普金斯（由洛克菲勒资助） 2⃣️、洛克菲勒基金会2010发布的文件，概述4种大流行场景，称为Clever Together、Hack Attack、Smart Scramble 和 Lockstep。 3⃣️、仅摘第四场景lockstep中文件描述： 摘录 1：“大流行对经济也产生致命影响：人员和货物国际流动突然停止，使旅游业等行业衰弱并破坏全球供应链…商店和办公楼也空置了数月，没有员工和顾客。大流行席卷全球” 摘录 2：“然而，一些国家表现更好—尤其是中国。中国政府快速实施和执行对所有公民的强制隔离以及即时和近乎完全封闭的边界，挽救数百万人生命，比其他国更早阻止病毒传播并实现大流行后更快恢复。” 摘录 3: 中国政府并不是唯一采取极端措施保护其公民免受风险和暴露的政府。在大流行期间，世界各地的国家领导人都展示了他们的权威，并施加了严密的规则和限制。从强制戴口罩到在入口处进行体温检查，再到火车站和超市等公共场所。 摘录 4 – 即使在大流行消退之后…更加专制的控制和监督仍然存在甚至…加剧。从流行病和跨国恐怖主义，到环境危机和日益严重的贫困，世界各地领导人都更坚定地掌握权力。 摘录 5 – 起初，更受控制的世界的概念获得广泛接受和认可…在发达国家，这种强化监督有多种形式，例如所有公民的生物识别 ID，以及对稳定性对国家利益至关重要的关键行业的更严格监管”…公民越来越多的反抗… 11年前的这份报告 现在看着眼熟吗？限于篇幅表达粗略，但已足够人毛骨悚然。 [https://gettr.com/post/pjl88gada2](https://gettr.com/post/pjl88gada2)
+病毒是生物武器、武汉军运会放毒The virus is a biological weapon, the wuhan military games will poison
+7. COVID Coverup: Trudeau gov’t helped China hide origins of COVID-19. The first COVID-19 case that journalists have been able to confirm was a 55-year-old man on November 17. He could have been infected 14 days prior to that, meaning the first confirmed infection could have been as little as five days after the final departure of athletes from Wuhan. 2021年1月14日，加拿大Rebelnews报道，一位不愿透露姓名的加拿大运动员回忆说：“在武汉运动会接近尾声的那几天，我们许多人都病倒了，咳嗽，腹泻，出现非常奇怪的症状。在回加拿大的军机上，我们的军医决定，将飞机后部1/3的部分作为隔离舱，大约1/3有症状的队员在那里进行隔离。回到加拿大后，队员们结束隔离，分散到加拿大各地。“ 记者已经确认，加拿大第一例COVID-19病毒感染病例，是一位55岁的运动员，于2019年11月17日发病。而这些情况，加拿大军方和总理特鲁多早就知道，但他们隐瞒了病情”。[https://www.rebelnews.com/covid\_coverup\_trudeau\_govt\_helped\_china\_hide\_origins\_of\_covid\_19](https://www.rebelnews.com/covid_coverup_trudeau_govt_helped_china_hide_origins_of_covid_19)
+8. The first infected patient admitted to Wuhan Jinyintan Hospital can be traced back to December 1, 2019. 2020年1月24日，武汉市治疗CCP病毒的定点医院——金银潭医院副院长黄朝林、中日友好医院副院长曹彬等人发表在《柳叶刀》上的一篇论文曾经指出，武汉金银潭医院收治的首个感染者发病日期可以追溯至2019年12月1日，且没有华南海鲜市场暴露史。如果按照12月1日发病向前推算，首例病人至少在11月中旬就已被感染。此时距军运会结束大约15-17天。考虑到冠状病毒感染潜伏期为14天左右。我们有理由相信，最初的病人感染时间很可能就是在武汉世界军人运动会期间（2019年10月18日-2019年10月27日）[https://pubmed.ncbi.nlm.nih.gov/32171076/](https://pubmed.ncbi.nlm.nih.gov/32171076/)
+9. 2020年3月，芝加哥大学的国际法教授、美国生物武器反恐怖主义法案的起草人，弗朗西斯·博伊尔（Dr. Francis Boyle）博士就明确表示冠状病毒是一种进攻性生物武器。Dr. Francis Boyle, a professor of international law at the University of Chicago and the author of the U.S. Biological Weapons Anti-terrorism Act, has made it clear that the coronavirus is an offensive biological weapon.
+[https://www.youtube.com/watch?v=hhvDqPoONjc](https://www.youtube.com/watch?v=hhvDqPoONjc)[https://www.youtube.com/watch?v=H0fEZr2psMQ](https://www.youtube.com/watch?v=H0fEZr2psMQ)
+10. 男子在市議會發言解釋了 COVID 疫苗是什麼以及其中的成分。MAN SPEAKS AT CITY COUNCIL EXPLAINS WHAT THE COVID VACCINE IS AND WHAT’S IN IT. [https://gettr.com/post/pie1jfe51a](https://gettr.com/post/pie1jfe51a)
+11. 疫苗终极目的猜想完整版Complete version of the ultimate vaccine conjecture
+[https://gtv.org/video/id=61a81f493ff6481adce776c1](https://gtv.org/video/id=61a81f493ff6481adce776c1)[https://gettr.com/post/pih5vq0c6e](https://gettr.com/post/pih5vq0c6e)
+12. 德国04/12/21 欧洲议会议员克里斯蒂娜-安德森向澳大利亚发出支持信息：”我将尽我所能表明，贵国曾经是一个民主国家，现在已经成为一个蔑视人权、自由和法律的极权主义政权。Germany04/12/21European Parliament member Christine Anderson sends a message of support to Australia. “I will do everything to show that your country, once a democracy, has become a totalitarian regime that flouts human rights, freedoms and laws. [https://gettr.com/post/pisiyl82b2](https://gettr.com/post/pisiyl82b2)
+13. The government’s power is slowly encroaching our freedom 政府的权力正在慢慢侵蚀我们的自由
+[https://gettr.com/post/pjkd4hc750](https://gettr.com/post/pjkd4hc750)[https://gettr.com/user/dailybeats](https://gettr.com/user/dailybeats)
+14. Is it possible he is this ridiculously naive thinking he is talking to a five year old being excited about vaccination? Or is he just disrespecting all Canadians by treating them like they are fools?可笑，以为你在和一个对接种疫苗感到兴奋的五岁孩子说话?或者他只是不尊重所有加拿大人，把他们当傻瓜对待? [https://twitter.com/tpostmillennial/status/1466877465733783557?s=21](https://twitter.com/tpostmillennial/status/1466877465733783557?s=21)
+[https://gettr.com/post/pinpwm28c7](https://gettr.com/post/pinpwm28c7)
+**武汉病毒研究所（Wuhan Institute of Virology）、NIH、FDA、CDC**
+15. 最新出版的两本书都揭露了精英、医药公司、福奇、NIH，柯林斯博士和比尔盖茨的罪恶. Two recent books expose the SINS of elites, pharmaceutical companies, Fauci, the NIH, Dr. Collins and Bill Gates。 [https://gettr.com/post/pjncmm0de2](https://gettr.com/post/pjncmm0de2)
+16. 福奇的谎言Fauci’s lies [https://www.youtube.com/watch?v=91Ib5NjSZ-o](https://www.youtube.com/watch?v=91Ib5NjSZ-o)
+17. 福奇会被追责Fauci will be held accountable [https://gnews.org/zh-hans/1749825/](https://gnews.org/zh-hans/1749825/)
+18. 福奇取消了研究禁令并引发大流行 Fauci lifted research ban and caused pandemic[https://www.gtv.org/video/id=609a9e3c37f7f73984ca8fdc](https://www.gtv.org/video/id=609a9e3c37f7f73984ca8fdc)
+19. PCR发明家称Fauci欺诈 PCR inventor says Fauci is a fraud [https://www.gtv.org/video/id=60504466527b920e2d833338](https://www.gtv.org/video/id=60504466527b920e2d833338)
+20. Rand Paul 参议院指责福奇对国会撒谎。Rand Paul ACCUSES Dr. Fauci of lying to Congress [https://www.youtube.com/watch?v=jB40lFoCSgc](https://www.youtube.com/watch?v=jB40lFoCSgc)
+21. [https://www.gtv.org/video/id=60d9d7962f9a56108e0dea6b](https://www.gtv.org/video/id=60d9d7962f9a56108e0dea6b)
+22. 兰德参议员在国会质询福奇，指控NIH资助在武汉进行的对于COVID-19的病毒增强实验 Senator Rand questioned Fauci on Capitol Hill about the NIH’s funding of a virus-enhancing test for COVID-19 in Wuhan [https://www.gtv.org/video/id=61885d03adfd99590c342d3d](https://www.gtv.org/video/id=61885d03adfd99590c342d3d)
+23. 新冠病毒很显然是中共制造的，这在几个月前就已经非常清楚了！福奇资助中共进行功能增强研究，制造了病毒，必须被追责，参议院国土安全委员会约翰逊议员最新福克斯采访 The Novel Coronavirus is clearly CCP manufacturing, as has been clear for months! Fauci must be held accountable for funding the CCP’s functional enhancement research and creating the virus, said Senator Johnson in a new Fox interview with the Senate Homeland Security Committee [https://www.gtv.org/video/id=60fad7d1858c754fb8ccc54c](https://www.gtv.org/video/id=60fad7d1858c754fb8ccc54c)
+24. 马歇尔参议员：在病毒问题上必须向中共和福奇追责! 2-2福奇的电邮佐证了他与大科技公司沆瀣一气，打压病毒源自中共实验室的说法。而福奇及国立卫生研究院资助了中共进行功能增强研究，因此也应当跟中共一道被追责 Senator Marshall: The CCP and Fauci must be held accountable for the virus! 2-2 Fauci’s emails support claims that he colluded with big tech companies to suppress the virus from Communist party LABS. Fauci and the NATIONAL Institutes of Health, which funded the CCP’s enhancement research, should be held accountable along with the CCP [https://www.gtv.org/video/id=60ca9fec3d6f40323c1daf07](https://www.gtv.org/video/id=60ca9fec3d6f40323c1daf07)
+25. 福奇在参议院听证会说，他没有资助武毒所进行「功能增强」实验，因为中国科学家告诉福奇他们没有做，他信任中国科学家。他不了解中共，不知道中国科学家是否受中共的影响。他不能保证中国科学家没有背地里做「功能增强」实验 Fauci told a Senate hearing that he did not fund the institute’s “enhancement” experiments because Chinese scientists told him they were not doing them and that he trusted them. He did not know the CCP and whether Chinese scientists were influenced by the CCP. He could not guarantee that Chinese scientists were not secretly conducting “enhancement” experiments [https://www.gtv.org/video/id=60af1a2d744cbc431364b953](https://www.gtv.org/video/id=60af1a2d744cbc431364b953)
+26. 即使在參議院，很少有人願意挑戰福奇。其中的困難之一是因爲人們害怕與一個有科學背景、能夠在細節上恃强凌弱的人辯論，事實上辯論才會產生好的思想！Even in the Senate, few are willing to challenge Fauci. One of the difficulties is that people are afraid to debate with someone with a scientific background who can bully them over the details, when in fact good ideas come out of debate! [https://www.gtv.org/video/id=60c96b673d6f40323c1d6393](https://www.gtv.org/video/id=60c96b673d6f40323c1d6393)
+27. 知名律师发起对卓斯滕教授和世卫的危害人类罪提起集体法律诉讼Prominent lawyers have launched a class-action lawsuit against Professor Drosten and the WHO for crimes against humanity
+[https://gnews.org/zh-hans/1728499/](https://gnews.org/zh-hans/1728499/)
+[https://gettr.com/post/piz87y4439](https://gettr.com/post/piz87y4439)
+28. CDC欲将死亡人数归咎于病毒而不是疫苗 CDC. 出于某种原因，各州正在利用这些 PCR 测试，作为其所有围绕 COVID-19 的数据的基础，同时，利用欺诈性结果来剥夺人们的公民自由。CDC的医疗渎职行为还更进一步，并允许医院将已接种疫苗的死亡者归类为“未接种疫苗的死亡者。 The CDC wants to blame the deaths on the virus, not the vaccine CDC. For some reason, states are using these PCR tests as the basis for all their data around COVID-19, and at the same time, using fraudulent results to deny people their civil liberties. The CDC’s medical malpractice went further and allowed hospitals to classify vaccinated deaths as “unvaccinated deaths.”
+[https://gnews.org/zh-hans/1772117/](https://gnews.org/zh-hans/1772117/)
+[https://gettr.com/post/pk4jfu5b0f](https://gettr.com/post/pk4jfu5b0f)
+29. 如此多的證據竟然說查不到病毒的來源！So much evidence that the source of the virus can’t be traced!
+[https://gettr.com/post/pkqhiv0ae9](https://gettr.com/post/pkqhiv0ae9)
+30. 中共的生化武器正在發揮作用，因為西方軟弱無能、混亂的領導層——蕭條、混亂、經濟大屠殺——任何不願意站出來對抗北京犯罪團伙的領導人都必須被掃地出門。The CCP’s biological weapon is working because of the feckless, chaotic leadership of The West — depression, confusion, economic carnage — any leader not willing to stand up to the criminal gang in Beijing must be swept aside. [https://www.gettr.com/post/pjlsye4307](https://www.gettr.com/post/pjlsye4307)
+[https://www.gettr.com/post/pjl7mz5447](https://www.gettr.com/post/pjl7mz5447)
+
+
+**施放病毒的目的：制造恐惧、诱骗人们打疫苗The purpose of the release of the virus: to create fear and trick people into getting vaccinated**
+
+1. 我们有一群医生或科学家和政府官僚机构，他们对美国人民和全世界人民说谎。We have a group of physicians or scientists and government bureaucrat agencies essentially lying to the American people and the people across the world. [https://gettr.com/post/pjed8k65a1](https://gettr.com/post/pjed8k65a1)
+2. NIH被揭露在疫情开始前与Moderna签署协议NIH was revealed to have signed the deal with Moderna before the outbreak began [https://gnews.org/zh-hans/1749877/](https://gnews.org/zh-hans/1749877/)
+3. 警报！中共疫苗的骗局！Alarming: CCP Vaccine Hoax.
+[https://gnews.org/zh-hans/1448576/](https://gnews.org/zh-hans/1448576/)
+[https://gnews.org/1449892/](https://gnews.org/1449892/)
+4. 听听这位人类学家的分析Listen to this anthropologist’s analysis [https://gtv.org/video/id=60daedc82f9a56108e0e30f3](https://gtv.org/video/id=60daedc82f9a56108e0e30f3)
+5. 最新发掘的邮件证明蝠奇多次对参议院以及所有美国人撒谎. Newly unearthed emails prove that Batchi lied repeatedly to the Senate and to the entire American people
+[https://gtv.org/video/id=61ba7873a68b4f4b28e8dee4](https://gtv.org/video/id=61ba7873a68b4f4b28e8dee4)
+6. 目前的大流行和新冠疫苗的大规模接种是有预谋和精心策划的 The current pandemic and COVID-19 vaccination campaigns were premeditated and carefully planned https://gnews.org/zh-hans/1799520/
+[https://gettr.com/post/pkvohae66b](https://gettr.com/post/pkvohae66b)
+7. 这就是他们让孩子打疫苗的原因HERE’S WHY THEY’RE GOING AFTER THE CHILDREN HERE’S WHY THEY’RE GOING AFTER THE CHILDREN [https://gettr.com/post/pktfze3187](https://gettr.com/post/pktfze3187)
+8. 让我们把这个混蛋绳之以法Let’s bring this bastard to legal justice. [https://gettr.com/post/pkupp9f7fe](https://gettr.com/post/pkupp9f7fe)
+9. 30年前，罗伯特·维尔纳博士指控安东尼·福奇种族灭绝30 Years Ago, Dr Robert Willner Accused Anthony Fauci Of Genocide [https://eraoflight.com/2021/05/22/30-years-ago-dr-robert-willner-accused-anthony-fauci-of-genocide/](https://eraoflight.com/2021/05/22/30-years-ago-dr-robert-willner-accused-anthony-fauci-of-genocide/)
+10. 逮捕Fauci和Bill Gate。Arrest Fauci and Bill Gate。
+[https://www.gtv.org/video/id=60b4f264ba7ef9088d045c2b](https://www.gtv.org/video/id=60b4f264ba7ef9088d045c2b)
+
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
-### 观察者网:台当局不要为了表演“保卫台湾”，让更多飞行员丧生！
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/89F1C6DC-0D01-4D0C-87F3-23838033D731.png?asset_id=2B5B0EDE-C8A7-4914-B58D-4B980F0273A8&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/89F1C6DC-0D01-4D0C-87F3-23838033D731.png?asset_id=2B5B0EDE-C8A7-4914-B58D-4B980F0273A8&amp;size=500)
-据台媒报道，1月11日下午，台空军一架编号为6650的F-16V战机，在嘉义水溪靶场进行炸射训练时发生坠毁意外，该机由陈奕上尉驾驶。陈奕并未跳伞，救援持续进行中。图为F-16V战机资料图（图片来源：胡锡进／观察者网）
-
-**评论：**此文就是中共纳粹利用自己的媒体，公开输出恐怖主义， 威胁台湾和平的证据。
-
-### 环球网：已报告137例阳性，天津“两会”推迟召开
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A4FCACDA-71D0-4A14-B339-E5333719CB78.png?asset_id=94B6C8D6-FAD5-4084-BE55-314FAA744BDD&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A4FCACDA-71D0-4A14-B339-E5333719CB78.png?asset_id=94B6C8D6-FAD5-4084-BE55-314FAA744BDD&amp;size=998)
-*（图片来源：长安街知事／环球网）*
-
-**评论：**实锤天津疫情失控
-
-### 环球网：辽宁大连发现2例核酸检测结果阳性，系天津市返连人员
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/FF6CC933-394F-46DE-B101-9B7F7D199D18.jpg?asset_id=96056333-976F-417F-A4EE-55DB9DACF573&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/FF6CC933-394F-46DE-B101-9B7F7D199D18.jpg?asset_id=96056333-976F-417F-A4EE-55DB9DACF573&amp;size=626)
-*（图片来源：央视新闻微博截图）*
-
-**评论：**天津的疫情正在扩散
-
-### 环球网：天津发现“奥密克戎”流向安阳的关键点
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/EC02BE49-C520-4923-A628-B3F30F54147E.jpg?asset_id=66BB32E7-CF94-40ED-B938-A00581138358&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/EC02BE49-C520-4923-A628-B3F30F54147E.jpg?asset_id=66BB32E7-CF94-40ED-B938-A00581138358&amp;size=1024)
-*（图片来源：安阳融媒／环球网）*
-
-**评论：**天津的疫情正在扩散
-
-### 环球网：广东省广晟控股集团有限公司原党委委员、副总经理余刚严重违纪违法被开除党籍和公职
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A790DB09-C838-46DD-897A-E535E1C0FCDB.jpg?asset_id=764BDC63-BB70-40D1-904E-A43F288568FE&amp;size=2583)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A790DB09-C838-46DD-897A-E535E1C0FCDB.jpg?asset_id=764BDC63-BB70-40D1-904E-A43F288568FE&amp;size=224)
-*（图片来源：中新社广东发布微信公众号）*
-
-**评论：**入了中共纳粹党就是免死了，任他犯多大的罪，属见过枪毙纳粹党员的吗，枪毙的都是老百姓。
-
-### 中国驻比利时大使馆：比利时奥委会建议参加北京冬奥运动员不带手机和电脑？驻比使馆回应
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/4B2B874E-81BD-45F1-B203-B754CF107494.png?asset_id=8F4AC00C-27D1-4F75-98BC-D6F5C28E6652&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/4B2B874E-81BD-45F1-B203-B754CF107494.png?asset_id=8F4AC00C-27D1-4F75-98BC-D6F5C28E6652&amp;size=1024)
-*（图片来源：外交部官网截图）*
-
-**评论：**中共的邪恶独裁，随着爆料革命新中国联邦的唯真不破，西方国家现在越来越清楚中共的无耻了，防火防盗防中共。
-
-### 环球网：补壹刀：这16个反华恶棍，要向中国下“最后通牒”？
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A2120BB0-4790-48E2-B043-F05864A60F7F.png?asset_id=42DB907C-D315-4ECC-9C89-E344705684BA&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A2120BB0-4790-48E2-B043-F05864A60F7F.png?asset_id=42DB907C-D315-4ECC-9C89-E344705684BA&amp;size=750)
-*卢比奥 资料图（图片来源：环球网）*
-
-**评论：**“16个共和党籍参议员，正联手策动推进2022年美国国会首个所谓“重要”反华法案。”首先，中共≠中国，中共又在绑架中国人，能被中共点名的，都是人类英雄！Take down the CCP。
-
-### 环球网：社评：绝不允许“生乱生战”，中国言出必行
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DDCD2654-1780-48D1-9FEE-DCAF1D0CE3EE.jpg?asset_id=0A2D8EB4-0971-4D57-A277-76F4AD9D21E4&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DDCD2654-1780-48D1-9FEE-DCAF1D0CE3EE.jpg?asset_id=0A2D8EB4-0971-4D57-A277-76F4AD9D21E4&amp;size=750)
-*（图片来源：网络）*
-
-**评论：**中共干涉哈萨克斯坦内政，搅乱了哈国的政坛，现在又害怕动乱波及到自己，这种损人不利己的事，中共从来都没停下来过，就像中共他们给全世界投毒一样，他自己置身事外了吗！
-
-### 新浪财经:德机构抹黑冬奥，“提醒”运动员“别吃中国肉”，专家：中国肉类安全性超过美国！
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5B4895F1-2696-42EB-B51D-E7D7DE08A7BD.jpg?asset_id=EFE12225-B04F-4AB9-A1CE-61201AB5144C&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5B4895F1-2696-42EB-B51D-E7D7DE08A7BD.jpg?asset_id=EFE12225-B04F-4AB9-A1CE-61201AB5144C&amp;size=640)
-*（图片来源：网络）*
-
-**评论：**中共对德国反兴奋剂机构作出回击，并利用此事捏造事实，打击所有质疑的声音，最后还要衬托出自己的“伟大”，这就是中共纳粹实性的嘴脸。
-
-### 澎湃新闻：外交部回应台湾“金钱外交”：注定是竹篮打水一场空
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/97A5AE05-712D-4F68-8A4E-DB8693654FC9.jpg?asset_id=CBE05876-706F-4F25-9068-D61D0D500FD1&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/97A5AE05-712D-4F68-8A4E-DB8693654FC9.jpg?asset_id=CBE05876-706F-4F25-9068-D61D0D500FD1&amp;size=690)
-*（图片来源：网络）*
-
-**评论：**也请外交部回应下什么叫“蓝金黄”的外交，并解释下郭文贵先生所披露的CCP在海外上万亿“捐款”的清单原因和去向。
-
-### 澎湃新闻：新冠检测概念股爆发：或仍是短线重点，如何掘金“真龙头”？
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5405D487-5BE9-4E71-9E18-F144D1D94702.jpg?asset_id=8DE8E83A-745E-405F-97EF-E3CECB1282E8&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5405D487-5BE9-4E71-9E18-F144D1D94702.jpg?asset_id=8DE8E83A-745E-405F-97EF-E3CECB1282E8&amp;size=750)
-*（图片来源：网页截图）*
-
-**评论：**喝着国民血，发着国难财，顺便再割一波韭菜，CCP利用病毒和疫苗掘金，在人民慢慢醒来的当下，不知还能猖狂多久？
-
-### 澎湃新闻：天津：有托管班元旦假期未放假，致部分学生将病毒带回学校
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8B446C9B-110C-49A6-8DB5-DB9E0A57194F.jpg?asset_id=8D11834A-2B75-4A19-8795-997A1D6EBA07&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8B446C9B-110C-49A6-8DB5-DB9E0A57194F.jpg?asset_id=8D11834A-2B75-4A19-8795-997A1D6EBA07&amp;size=750)
-*（图片来源：网页截图）*
-
-**评论：**不知天津政府这是在甩锅，还是在为不久即将全面爆发的疫情状况提前推责。更重要的天津作为超过93.1%疫苗接种率的地区，更在用这一切掩盖疫苗灾难的来袭。
-
-### 网易新闻：全国多地开启免费接种HPV疫苗
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/D7CBCF83-3FD8-421F-8C69-51AACEC1BCD0.jpg?asset_id=02AC8FD0-7A90-40B2-BA76-3F26C634BCC9&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/D7CBCF83-3FD8-421F-8C69-51AACEC1BCD0.jpg?asset_id=02AC8FD0-7A90-40B2-BA76-3F26C634BCC9&amp;size=1024)
-*（图片来源：央视截图）*
-
-**评论：**中共给老百姓免费的，都要小心了，必有猫腻！
-
-### 澎湃新闻：新冠检测概念股大涨：至少10家国产快速检测产品在欧美获批
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/59045A6D-CF80-4773-A6D2-0ED53A3F49A6.png?asset_id=E840EDD3-6029-424D-BA6E-D70BCB1D93E4&amp;size=4752)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/59045A6D-CF80-4773-A6D2-0ED53A3F49A6.png?asset_id=E840EDD3-6029-424D-BA6E-D70BCB1D93E4&amp;size=1024)
-*新冠检测板块大涨（图片来源：澎湃新闻）*
-
-**评论：**中共在国内用核酸检测把老百姓当猪一样玩弄，在国际上检测试剂玩疫苗经济挣外汇，病毒也是中共投放到全世界的，放毒—核酸检测—打毒疫苗—再放毒……，这都是中共策划好的。
-
-### 网易新闻：中央巡视组组长：年轻干部要减少异性交往!
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/3082B0B1-0F05-4BE0-A299-970882C93967.jpg?asset_id=BD0CD086-0B49-4ABC-B86D-FE2852A5043D&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/3082B0B1-0F05-4BE0-A299-970882C93967.jpg?asset_id=BD0CD086-0B49-4ABC-B86D-FE2852A5043D&amp;size=620)
-*（图片来源：网络）*
-
-**评论：**中共这又是在磨灭人性，限制男女交往根本是共产党体制的问题。
-
-### 新浪：金域医学回应旗下员工涉病毒传播被立案：郑州金域接到禹州市卫健部门通知要求参与疫情防控筛查
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DA908968-B3D3-4AC2-BD96-B60537FBC268.jpg?asset_id=625BE737-83C1-4F6B-AD36-8DA07AC4DFE5&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DA908968-B3D3-4AC2-BD96-B60537FBC268.jpg?asset_id=625BE737-83C1-4F6B-AD36-8DA07AC4DFE5&amp;size=640)
-*金域医学在广州的总部（图片来源：GETTY IMAGES）*
-
-**评论：“**网友评论：搬石头砸了自己的脚，CCP的疫情估计是压不住了，开始拿检测中心来背锅了”
-
-永远都有人背锅，而背锅的永远不是纳粹中共。
-
-### 搜狐：天津三大火车站全面消杀！
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DD268FAD-1F55-4EDC-BAA0-0D675DC20845.jpg?asset_id=A9B6DCF0-2A1E-4BC0-9AF6-869D88107C02&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/DD268FAD-1F55-4EDC-BAA0-0D675DC20845.jpg?asset_id=A9B6DCF0-2A1E-4BC0-9AF6-869D88107C02&amp;size=1000)
-*（图片来源：中国铁路）*
-
-**评论：**机场，火车站，天津的疫情究竟严重到什么程度。
-
-### 搜狐：天津出台全民健身实施计划 构建全民健身发展新格局
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A457F86D-D952-451E-9D68-BEDF8A730071.jpg?asset_id=F6D717FE-BEA0-4ABD-ABCB-855720CB8A1E&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A457F86D-D952-451E-9D68-BEDF8A730071.jpg?asset_id=F6D717FE-BEA0-4ABD-ABCB-855720CB8A1E&amp;size=400)
-*（图片来源：天津日报）*
-
-**评论：**什么情况，怎么现在才健身，我们跟随教练健身都快5年了。
-
-### 网易：15箱现金，3500余万元，有的早已发霉！一国企领导干部腐败案曝光
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/D463A1C6-A90F-465C-9C03-EB7702834C9A.png?asset_id=7ACB3489-167D-4D5E-9FF0-5295A4219E31&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/D463A1C6-A90F-465C-9C03-EB7702834C9A.png?asset_id=7ACB3489-167D-4D5E-9FF0-5295A4219E31&amp;size=650)
-*（图片来源：网络）*
-
-**评论：**纳粹中共统治的今天，连小学生都知道长大了当官，当官就有钱。
-
-### 网易：向民间高利借款，国企老总竟然“自我奖励”：连续14年发大奖，给自己就发了近3000万
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/B9F2B074-30C8-4475-983E-9FB41DF7D2C3.png?asset_id=7122D330-E0C5-43F1-97D6-F52ED6E7C2F6&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/B9F2B074-30C8-4475-983E-9FB41DF7D2C3.png?asset_id=7122D330-E0C5-43F1-97D6-F52ED6E7C2F6&amp;size=750)
-*（图片来源：中央纪委国家监委网站截图）*
-
-**评论：**中共纳粹党的制度注定了只有脏的人才能爬上去，爬上去的人一定脏，上层架构没有一个干净的，而上梁的不正注定了下梁也是歪的，前赴后继愈演愈烈，最后从小偷小摸的量变到最后胆大盗国的质变。
-
-### 新浪：“断网”上热搜！中国电信回应：网络设备故障
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/3B3D2E81-74A4-449A-BA5E-2B66499D8E28.png?asset_id=19CF7DE5-3B82-4886-A857-B9FDD0820F25&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/3B3D2E81-74A4-449A-BA5E-2B66499D8E28.png?asset_id=19CF7DE5-3B82-4886-A857-B9FDD0820F25&amp;size=499)
-*（图片来源：网络）*
-
-**网友评论：**真的是设备故障吗？
-
-### 新浪：国务院：加大6G技术研发支持力度，加快布局卫星通信网络等
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/66E60FFF-61F2-4222-9C4E-285880F9AAF6.jpg?asset_id=96BC6000-8710-41BF-9127-B8AD8B518DFC&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/66E60FFF-61F2-4222-9C4E-285880F9AAF6.jpg?asset_id=96BC6000-8710-41BF-9127-B8AD8B518DFC&amp;size=687)
-*国务院关于印发“十四五”数字经济发展规划的通知（图片来源：中国政府网截图）*
-
-**评论：**芯片怎么办，打台湾吗？
-
-### 新浪：央行：12月人民币贷款增加1.13万亿元，同比少增1234亿元
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/92FC8C44-24DE-4E27-9BAC-3FB05AF69128.jpg?asset_id=42D87140-9563-4212-82DF-C1979C563323&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/92FC8C44-24DE-4E27-9BAC-3FB05AF69128.jpg?asset_id=42D87140-9563-4212-82DF-C1979C563323&amp;size=640)
-*资料图片：2016年3月，北京，一家银行柜台上的人民币纸币。 （图片来源：REUTERS/KIM KYUNG-HOON）*
-
-**评论：**给老百姓看的就是个数，真实的数据是不敢拿出来看的，但是物价会体现出来，骗不了人。
-
-### 美国之音:专家视点: 中共将中国变为“举国大公司”，西方政商如何因应？
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/662080B4-F11B-4C80-AE65-478BFC84EE3F.png?asset_id=05137690-92FD-4A08-AC93-E796E6204DDB&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/662080B4-F11B-4C80-AE65-478BFC84EE3F.png?asset_id=05137690-92FD-4A08-AC93-E796E6204DDB&amp;size=1024)
-*（图片来源：视频截图）*
-
-**评论：**媒体界揭发中共非法政权的声音越来越多，这是中共全面掉进塔西佗陷阱的标志性时期。且不管这样的声音能保持多久，可以确定的是中共犯罪早已是事实。
-
-### 法广：英特尔删除公开信中涉新疆文字 美参议员关切及要求政府停止补助
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/57D3E00C-A7E7-464B-B90F-D236BBA47EA9.jpg?asset_id=9C403755-A155-4674-80A6-86F9B287F962&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/57D3E00C-A7E7-464B-B90F-D236BBA47EA9.jpg?asset_id=9C403755-A155-4674-80A6-86F9B287F962&amp;size=719)
-*英特尔总部标识（图片来源：GETTY IMAGES NORTH AMERICA/AFP/File）*
-
-**评论：**一些科技巨头和华尔街为了眼前的利益无视人权屈服于中共，间接支持中共的做法一定会得到报应的。
-
-### 德国之声：在华销量大幅下降　大众汽车计划急起直追
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/F53B6B05-D989-4D7B-BE4C-87993EF1478F.jpg?asset_id=12A2120B-0E68-4451-8377-F7315681C479&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/F53B6B05-D989-4D7B-BE4C-87993EF1478F.jpg?asset_id=12A2120B-0E68-4451-8377-F7315681C479&amp;size=340)
-*受芯片短缺和供应链瓶颈制约，德国大众汽车康采恩去年在中国的销量锐减约14%。大众希望今年至少能补回损失，并能推出 ID 系列电动汽车。（图片来源：Ng Han Guan/AP/dpa/picture alliance）*
-
-**评论：**受中共病毒影响大众在中共国销量大幅下降，却骑着毛驴找毛驴。
-
-### 德国之声：奥密克戎案例增 中国再封城影响两千万人
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8DF7AD1D-693A-431D-99B8-FF2FE194D2E5.jpg?asset_id=EA1D6B29-82FD-42F8-A216-4AE654C58A7E&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8DF7AD1D-693A-431D-99B8-FF2FE194D2E5.jpg?asset_id=EA1D6B29-82FD-42F8-A216-4AE654C58A7E&amp;size=340)
-*因应近日中国疫情再起，继西安和禹州之后，河南安阳也被封锁。值得注意的是，在前两个城市对抗德尔塔(Delta)时，安阳面对的是传播力更高的奥密克戎 (Omicron)。现在也传出有北京是否封城的讨论。（图片来源：Str/REUTERS）*
-
-**评论：**在中共专政之下，老百姓无一幸免都是牺牲品，猪狗不如，唯有消灭中共才是正道。
-
-### 大纪元：新华网发微博讽美国防疫失败 评论翻车
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/CD5720EF-2649-461F-A32D-38A35CEB89A2.png?asset_id=1E093FB5-36D3-4A3D-BD37-1BCF50818C49&amp;size=2833)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/CD5720EF-2649-461F-A32D-38A35CEB89A2.png?asset_id=1E093FB5-36D3-4A3D-BD37-1BCF50818C49&amp;size=498)
-*中共新华网官方微博发文碰瓷美国，评论区大翻车。（图片来源：微博截图）*
-
-**评论：**前有西安市政府抖音直播评论翻车，后有新华网冷嘲热讽别国评论热闹。如果CCP真心推进言论自由的人民权利，恐怕唾沫星都能将它淹死。
-
-### 大纪元：深圳疫情持续 一家五口染疫
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/12FDAA67-0348-48B9-AB5E-8688F82C5534.png?asset_id=500F1ADF-2226-44E3-895A-404364EE69CA&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/12FDAA67-0348-48B9-AB5E-8688F82C5534.png?asset_id=500F1ADF-2226-44E3-895A-404364EE69CA&amp;size=708)
-*（图片来源：深圳政府网）*
-
-**评论：**去年的今天武汉因疫情封城造成多少人全家病死饿死的惨剧，而今天因为疫情和疫苗灾难，类似悲剧还在一幕幕上演。
-
-### 星岛网：瑞典指新冠疫情持续 不派官方代表出席北京冬奥
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5780A2E1-3F48-4EC6-AFFF-C6176F9E7D65.jpg?asset_id=712CC538-D8B4-4029-9071-5E10EB3E8B82&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/5780A2E1-3F48-4EC6-AFFF-C6176F9E7D65.jpg?asset_id=712CC538-D8B4-4029-9071-5E10EB3E8B82&amp;size=680)
-*瑞典体育部长阿齐曼重申不派官员出席北京冬奥并非「外交抵制」（图片来源：网络）*
-
-**评论：**搬石头国又砸脚了，你看看把人家都吓成什么样了，特别强调这不是外交抵制。
-
-### 法广：王丹等民运人士筹建纽约「六四」纪念馆
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/0C6FAD40-E23A-42F0-95A1-DE6258F44ED5.jpg?asset_id=4B2EEDEE-91F1-45F8-903E-02E0D1E0DDC2&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/0C6FAD40-E23A-42F0-95A1-DE6258F44ED5.jpg?asset_id=4B2EEDEE-91F1-45F8-903E-02E0D1E0DDC2&amp;size=719)
-*12.1 香港的六四纪念馆被迫关闭，王丹(小图)等人筹备在纽约重建 （图片来源：法广/麦燕庭）*
-
-**评论：**恶心，英雄都死了，剩下吃人血馒头的炒冷饭能吃一辈子。
-
-### 法广：栗战书现身党校开班式 坐习近平身侧 惟猜疑未息
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/F5A5B9D3-BADA-42F3-8587-46FE16FBF90E.jpg?asset_id=DE68E35C-90C9-476A-888C-3CD5A6B6BA18&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/F5A5B9D3-BADA-42F3-8587-46FE16FBF90E.jpg?asset_id=DE68E35C-90C9-476A-888C-3CD5A6B6BA18&amp;size=719)
-*2022年1月11日， 未露面两周的栗战书(左下小图)现身，并坐在习近平身旁。(图片来源：麦燕庭提供)*
-
-**评论：**栗战书被人举报材料，习将其低调处理茶话会未现身，今天坐在习的身边，这是明着保他，但保得住吗？
-
-### 法广：让习近平尴尬的洪门宴丑闻越闹越大
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8420BF8C-66DB-45B9-8B57-D4679BFBCBE7.jpg?asset_id=6FA6961F-1A4E-4B5D-813D-743722FCFECA&amp;size=2560)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/8420BF8C-66DB-45B9-8B57-D4679BFBCBE7.jpg?asset_id=6FA6961F-1A4E-4B5D-813D-743722FCFECA&amp;size=719)
-*香港官员洪为民的53岁生日派对引发了一场公共卫生丑闻（图片来源：南华早报 DR）*
-
-**评论1：**中共统治下的香港洪门宴无非是中共洪门宴的缩小版，都是跳梁小丑。
-
-**评论2：**林正妖娥此时此刻给习上足了眼药，可能断送她连任的前程，作恶多端的报应。
-
-### 法广：突破北京围堵 台湾释出10亿美元信贷支持立陶宛贸易
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/974E4019-ECF1-4833-B175-1FDCCC8A227B.jpg?asset_id=1DDBD9A1-3CFD-4719-A31B-BDB08BD475BA&amp;size=719)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/974E4019-ECF1-4833-B175-1FDCCC8A227B.jpg?asset_id=1DDBD9A1-3CFD-4719-A31B-BDB08BD475BA&amp;size=719)
-*2021年11月29日，台湾总统蔡英文与立陶宛代表团团长Matas Maldeikis交换礼物。 （图片来源：AP）*
-
-**评论1：**中共的战狼外交只能适得其反。
-
-**评论2：**厉害了台湾，在与立陶宛经济与创新部长阿尔莫奈特举行的联合新闻发布会上，龚明鑫表示，这些资金将主要用于半导体、激光和卫星领域，立陶宛和台湾的半导体行业专家将很快会面，立陶宛切开了和纳粹中共的关系怎么路越走越宽呢？
-
-### 法广：天津Omicron扩散北京恐封城？冬奥组委会：目前没必要
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/9D6B5610-C061-4433-A2EC-465453693EEC.jpg?asset_id=4EEEAA5F-5B57-4A2C-9B57-1028D580D684&amp;size=719)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/9D6B5610-C061-4433-A2EC-465453693EEC.jpg?asset_id=4EEEAA5F-5B57-4A2C-9B57-1028D580D684&amp;size=719)
-*奥运会-2022（图片来源：REUTERS – FABRIZIO BENSCH）*
-
-**评论：**纳粹党认为没有必要封城，就不会在乎任命死活。
-
-### 六度网：防窃密 荷兰吁代表团勿带个人手机笔电赴北京冬奥
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/BA9566CD-87EE-4181-B1A2-3FFCB6B96A09.jpg?asset_id=3650D2FE-8F42-41BA-B6FA-9FACE2591003&amp;size=800)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/BA9566CD-87EE-4181-B1A2-3FFCB6B96A09.jpg?asset_id=3650D2FE-8F42-41BA-B6FA-9FACE2591003&amp;size=800)
-*荷兰奥林匹克委员会建议参与北京冬季奥运的荷兰运动员，別将手机和笔记型电脑带进中国，以免遭中国窃密。（图片来源：Pixabay图库）*
-
-**评论：**选手，赴北京参赛期间，不要带手机、笔记型电脑进入中国，避免遭中国窃密，纳粹中共的剽窃已经是全世界臭名昭著了。
-
-### 中共甩锅？钟南山旗下公司涉“传播病毒”被查 大纪元 2022年01月13日
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/9F47A401-EC0E-4A22-80B1-77FC6BCD1E5D.jpg?asset_id=3543D1F4-4769-4EA2-84F4-09594684B76B&amp;size=450)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/9F47A401-EC0E-4A22-80B1-77FC6BCD1E5D.jpg?asset_id=3543D1F4-4769-4EA2-84F4-09594684B76B&amp;size=450)
-*自从武汉爆发疫情并蔓延到全世界后，钟南山曾多次为中共隐瞒疫情站台，替当局“甩锅”。（图片来源：余钢／大纪元）*
-
-**评论：**曾多次为中共防疫站台的中国工程院院士、被称为“中国顶级防疫专家”的钟南山，其旗下公司因涉嫌“传播病毒”而遭当局调查，该事件引发舆论广泛关注。
-
-### 中共极端防疫打乱供应链 更多德商计划出走 大纪元 2022年01月13日
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/E75AE087-1D12-4D8F-9001-03C05EC9DB94.jpg?asset_id=EAC81C10-9585-4B3B-9AEA-C98C63B58C40&amp;size=450)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/E75AE087-1D12-4D8F-9001-03C05EC9DB94.jpg?asset_id=EAC81C10-9585-4B3B-9AEA-C98C63B58C40&amp;size=450)
-*中共极端的防疫措施促使更多德商重新调整供应链。(图片来源：STR/AFP via Getty Images)*
-
-**评论：**中共的政治、经济、防疫状况恶化，更多德国公司开始反思对中共国的过度依赖，并计划尽快调整供应链。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*收集：redsparrow*，*Cindy，安公子偷窥文明，文风-NFSC，公平五十六 | 校对：安公子偷窥文明 | PAGE：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-（世界协调时）部分信息收集于网络世界的各方，请自行甄别
-[![](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/2Pxoz8wLw5qad/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

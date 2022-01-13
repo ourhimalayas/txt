@@ -2,63 +2,63 @@
 ---
 
 
-## 我和我的爆料革命—一位墙内爆二代的成长自述
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/1855097/)
+## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-986.png)
-图片作者：wvupynxb
+2021年12月1日 ~ 2022年1月12日
 
-第一次听到“爆料革命”这个词是在2017年末，我无意间听见父亲与母亲的谈话中提到的，当时我还在共产党统治的学校中受污染，也没怎么在意就没用心听。
+iTunes：
 
-**开始接触爆料革命**
+MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
 
-在2018年初，有一天父亲和我进行了一次谈话，具体内容就是问我在学校学到了什么？学会了什么？我都没回答上来，最后我父亲问我：“你上这个学有意义吗？想不想上了？”我回答道：“不想，天天在学校，老师什么都不教，考试不及格挂科还主动找你要钱，包过，老师也一直在说不要听家里的话，养你们的是党不是你们的父母，以后要给党卖命（后面会详细说一下这两件事），上这个学一点儿意义都没有，我想出来，不想在学校里继续呆着了。”
+MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
 
-第二天我父亲送给了我一台电脑，里面有翻墙的软件，当时我也不清楚翻墙要干什么，那时的我只知道翻墙是为了玩游戏，并不知道父亲的用意，随后父亲带着我上了YouTube看到郭叔的视频、看到了八九六四的真相、也看到了抗美援朝的真相和真正的历史。
+Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
 
-当时连着看了一个星期，我的世界观都崩塌了，我不敢相信自己就生活在由这么恐怖的组织管理的国家中，这和我从小到大受到的共产党洗脑式教育天差地别，一个星期后我父亲又一次找我谈话，他再一次问我：“是不是真的不想念书了？”，我特别坚定地回答：“不想念了”，随后我父亲就让亲戚带着我办理了退学。从共产党的洗脑大粪坑出来之后，我也就开始每天跟着父母一起听郭叔的爆料。
+Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
 
-**在中共统治的大粪坑经历的事情**
+Billboards公告牌榜:
 
-我由于一直不爱学习，所以上的是职高。当时想着学点儿专业技术，以后出来能混口饭吃，虽然很不爱念书但还是坚持了几年。这种想法在我接触爆料革命后，就发生了翻天覆地的改变。我通过两件事就察觉到父亲说的和郭叔说的全是对的，也就是因为有这两件事才会有我后面辍学转而全身心投入到爆料革命中的举动。
+Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
 
-第一件事就是考试不及格挂科这件事，对于这件事在我初中的时候已经习以为常了，因为我不爱学习嘛，所以经常考试不及格挂科，但是让我万万没想到的是有一次不及格后教导员叫我去他办公室后对我说的话，他对我说：你知不知道挂科很严重，会留级的？我回答到知道啊，可是我已经挂科了只能重考了，我再努努力争取考过。
+* * *
 
-这本是很正常的对话，可接下来他的一句话真的把我恶心到了，他竟然对我说：你挂了5门，你重考肯定也过不了。这样吧，你每一门给我200，重考的时候你交白卷，我也能让你及格不挂科；你要是不给，你就别想及格了。听到这句话我脑子嗡的一下子就麻木了，因为那会儿刚刚接触爆料革命才听了几天，就真的灵验了中共的蓝、金、黄竟然连我都不放过。倒也是我幸运正巧碰上了这件事，心里对爆料革命从质疑转变为认同了。
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-第二件事发生在我们班的政治公开课上，公开课学校的领导都会来旁听，就在这节课上又一次让我震惊了，老师讲中共的政治竟然堂而皇之的对我们说：你们现在吃的、穿的和用的都是党给你们的，你们的父母能给你们什么？就连他们的工资都是党、国家给他们发的，所以没有党就没有你们，你们毕了业进了社会，都要回报党和国家。
+* * *
 
-这不禁让我想起来中共的“爹亲娘亲不如党亲”。我那时候在学校属于刺头，但是在家就是特别听话的孩子，全年级就我一个没有入党，所以这个老师也就针对我，叫我起来跟着他对党宣誓，我当即反对并且质问他：如果没有你的父母你是怎么出来的，你这么教育我们是想让我们忤逆自己的父母吗？不等他的回答我便摔门而出。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
 
-当天下午我就被教导员叫到了他的办公室，他问我是不是被非法组织洗脑了？这些是不是父母教的？我不回答，然后他带我去了领导的会议室，里面学校的各种领导都到齐了，随后开始质问我，就像是审犯人一样，威胁我说如果不告诉他们就往我档案里写什么东西，以后出社会哪家单位都不要我，父母的工作也会受牵连，我还会被强制退学，就在这样的威逼利诱下拷问了我一个小时，看我什么也不说就让我回去了。
 
-回去的第一件事就是给父亲打了电话和他说我不想念了，父母也非常支持我逃离中共的大粪坑。经过这些事，我终于醒悟了，我决定了全身心加入到爆料革命中，跟随着郭叔的脚步，一起灭共！
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-**了解爆料革命**
-
-因为听郭叔爆料听得比较晚，所以基本每天听完直播都要我父亲再解析一遍。我父亲每天也是不厌其烦的给我讲解，看完直播爆料就去看以前的爆料，慢慢的我也融入进去了，知道了法治基金捐款和Discord农场。我就问父亲“您知道法治基金，知道农场吗？法治基金捐款了吗？加没加入农场啊？”
-
-我父亲告诉我：他都知道，但是年纪大不会弄，我就说我来操作吧，就这样我们捐了法治基金，也加入了农场。随后的日子里我虽然跳出了学校的大粪坑，也不能天天在家呆着，就试着出去打工，晚上回来听郭叔爆料，这样的日子持续了两年左右，直到九指妖建了凤凰农场后就改变了。
-
-**全身心投入爆料革命**
-
-在2020年5月21日那天我成为一名新人接待组的义工。当时自己特别开心，现在也是，因为那会儿凤凰农场刚成立没多久，也是VOG投资开始的时候，不会操作电脑的战友特别多，我也帮助了很多人；看着自己帮助过的战友，对自己说谢谢心里特别自豪，特别有成就感。
-
-那会儿义工少，我又在00：00—4:00这个时间档值班，很多时候下一班没有来接班的义工战友，可是需要帮助的战友又有很多，我就继续值班，真的感觉不到累，VOG投资结束后就正常了。没多久后九指妖就出事儿了，她把VOG的钱卷跑了，当时我的母亲特别着急了，觉睡不好，饭吃不下的，我和父亲就安慰她说没事儿的，郭叔不会放过九指妖，咱们的钱会被追回来的，但是母亲还是忧心忡忡，直到郭叔直播说都会追回来的，不会少战友们一分钱，她才安心。
-
-凤凰农场解散后我“无家可归”了，母亲便问我你想去哪个农场？因为我性子软，自己拿不定主意就去询问了父亲，父亲说老班长建立了新西兰农场就去新西兰农场吧，于是我于2021年1月7日加入了新西兰农场，再一次找到了家。
-
-过了年之后，我也再一次参加了义工，又一次去了新人接待组，加入后新人接待组组长：已得未得战友给我做了培训，特别耐心地回答着我的问题，使我成长了不少，在接下来的一段时间里我也是帮助了很多战友，心里也是一样的开心、一样的有成就感。
-
-在2021年5月21日我也加入了视频剪辑组，但是后面由于软件不熟练，不太会使用就潜水了，我原本认为自己真的挺笨的，只能在新人接待组帮助新战友，没办法再贡献什么了。但是2021年4月5日我的值班档有了听写任务，我接下来后就遇见了帮助我发掘到自己潜力的听写组组长：面包树战友，在她的鼓励和夸奖下，我对自己越来越有信心，于是在2021年11月2日我加入了听写组。
-
-开始写G时评摘要和自由撰稿的时候，我真的特别感谢面包树战友，是在她的鼓励下，我才能重拾了信心，发掘了自己的能力。当然我更加特别、特别地感谢郭叔，让我看透了中共“光鲜亮丽”的外表下隐藏的恐怖、邪恶、丑陋、猥琐、扭曲的灵魂，也让我看到了有言论自由，有民主人权的时代就要来临了。亲爱的郭叔，没有您就没有现在的我，是您教会了我真、善、狠，也是您教会了我先要爱自己才能爱别人，这都将让我受益终生。
-
-撰稿人：霖霖
-
-校对：面包树/一念
-
-上传：文勇
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
