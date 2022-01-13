@@ -15,104 +15,104 @@
 
 ---
 
-### [泄露的美方军事文件显示伊维菌素是治疗冠状病毒良药](/content/gnews/1/README.md)
+### [秘翻在线:中共冬奥会重金买来了俄罗斯 土耳其和伊朗出席开幕式](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [HCoin和GClub如何通过GFashion赚钱](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [泄露的美方军事文件显示伊维菌素是治疗冠状病毒良药](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国内的股权投资基金是怎么回事](/content/gnews/2/README.md)
+### [国内的股权投资基金是怎么回事](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共国公安部原副部长孙力军被提起公诉](/content/gnews/3/README.md)
+### [中共国公安部原副部长孙力军被提起公诉](/content/gnews/5/README.md)
  ` 首尔天池农场`
 
-### [美众议员加里·帕尔默：中共不是竞争者或者对手，而是敌人](/content/gnews/4/README.md)
+### [美众议员加里·帕尔默：中共不是竞争者或者对手，而是敌人](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/5/README.md)
+### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前总统川普在中共病毒疫苗道路上越走越远](/content/gnews/6/README.md)
+### [前总统川普在中共病毒疫苗道路上越走越远](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [厚生劳动省将做出决定，是否对5岁以上儿童进行疫苗接种](/content/gnews/7/README.md)
+### [厚生劳动省将做出决定，是否对5岁以上儿童进行疫苗接种](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们都是孙悟空](/content/gnews/8/README.md)
+### [我们都是孙悟空](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [丹麦成为第一个接种第四针新冠疫苗的欧洲国家](/content/gnews/9/README.md)
+### [丹麦成为第一个接种第四针新冠疫苗的欧洲国家](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CECC就冬奥队服使用“新疆棉”一事质询IOC](/content/gnews/10/README.md)
+### [CECC就冬奥队服使用“新疆棉”一事质询IOC](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [云仙引 &#8211; 昆仑八子出豪杰](/content/gnews/11/README.md)
+### [云仙引 &#8211; 昆仑八子出豪杰](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的唯一目标：灭掉共产党](/content/gnews/12/README.md)
+### [新中国联邦的唯一目标：灭掉共产党](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海国企突然爆雷，26亿资金无法收回](/content/gnews/13/README.md)
+### [上海国企突然爆雷，26亿资金无法收回](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/14/README.md)
+### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/15/README.md)
+### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印中就脱离边境举行会谈](/content/gnews/16/README.md)
+### [印中就脱离边境举行会谈](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/17/README.md)
+### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/18/README.md)
+### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/19/README.md)
+### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/20/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/21/README.md)
+### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特鲁多将加拿大出卖给了全球主义](/content/gnews/22/README.md)
+### [特鲁多将加拿大出卖给了全球主义](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/23/README.md)
+### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/25/README.md)
+### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [颠覆美国——习近平搞砸中美关系（三）](/content/gnews/26/README.md)
+### [颠覆美国——习近平搞砸中美关系（三）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞前副总裁向国际刑事法院提起反人类罪诉讼](/content/gnews/27/README.md)
+### [辉瑞前副总裁向国际刑事法院提起反人类罪诉讼](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马化腾一面向中共表忠心一面暗示腾讯随时会被干掉](/content/gnews/28/README.md)
+### [马化腾一面向中共表忠心一面暗示腾讯随时会被干掉](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [短视频：美国多个州中共病毒病例创下新高](/content/gnews/29/README.md)
+### [短视频：美国多个州中共病毒病例创下新高](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [预防网络监控，冬奥会荷兰运动员不带自用手机和电脑](/content/gnews/30/README.md)
+### [预防网络监控，冬奥会荷兰运动员不带自用手机和电脑](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国因朝鲜导弹制裁俄罗斯公司](/content/gnews/31/README.md)
+### [美国因朝鲜导弹制裁俄罗斯公司](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗正在杀害至少40%的接种者](/content/gnews/32/README.md)
+### [疫苗正在杀害至少40%的接种者](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国发红通引渡战友，法治基金致函塞浦路斯政府](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [12/10/2021 文贵直播：中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征，中共就是邪教](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`

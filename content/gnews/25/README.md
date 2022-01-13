@@ -2,53 +2,42 @@
 ---
 
 
-## 人类面临重大挑战：政府绝对统治化人民永远被剥削
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854012/)
+## 中国的水都是自西向东南流中国的乾隆八卦里东南是水位
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1854058/)
 
-#### 整理：雅典娜速记组
-编辑：Frank2021
+G-TV视频链接：[https://gtv.org/video/id=61df7ee487664c47acd3e8e5](https://gtv.org/video/id=61df7ee487664c47acd3e8e5)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/人类必将面临着重大的一场挑战（一）-.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/人类必将面临着重大的一场挑战（二）-1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/人类必将面临着重大的一场挑战（三）-1-1.jpg)
+**郭文贵先生：**你们知道所有的帕米尔的水，还有整个从喜马拉雅山的水，大家问我，中国有一个河流是从东往西流水的吗？有吗？没有吧！文耀你要找出个从东往西流水的，你就是神人了。所有的水是从西向东流。不管你们水多水少，你也阻挡不了你的水从身体上都是从上往下流一样。不管你小飞象、小飞侠、佳佳、王子你多年轻，你不能，你可以尿自己的脸上，但是你想自己的高潮之水往上流是不可能的，无论你们谁高了，都是水往下流，这就是天然之规律。
 
+中国的水都是往西流，往东南流，所以中国的乾隆八卦里边儿，永远东南角是水位，龙位，龙位，龙饮水，这个都是《山海经》，刚才你们说的《山海经》，《山海经》是干啥的？《山海经》是把远古的所有的民族、自然、神话给你放在一起的。《三心通论》和真正的《三心通论》最后的总结，包括《山海经》都在告诉中国大自然和人类变化的一个基本的历史和规律，你是可以看的。
 
-昨天下午我跟这些工程师开会，我说你一定要记住，我可以跟你任何人打赌未来不可能有 Google,包括苹果商店，包括Facebook, WhatsApp这些。大家只要是不反对疫苗的，你都不会存在这个世界，一定不会的。因为它已经成为邪恶的最核心的部分了。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-那么草根哥看的很清楚，就很多孩子是无知，他们就是被社交媒体的领导，躲过来了科学迷 信关，你没躲了社交媒体关，你躲了科学关，躲了迷信，你没有信仰。怕死，随大风。
+编辑整理：Jacques；
 
-**实际上人类最可悲的就是跟着大部队走**，那你永远是工具，就是任何国家政府不生产一分财 富，全是来自于老百姓。别搞错了，什么政府，你感谢政府啊，政府给了你所有的开支，其实政府他就是老百姓的吸血虫。
+字幕文件制作：小满；
 
-**第二个是没有一个政府以老百姓利益为优先的**，所有的政府是以官员，已按级别利优先的，任何国家，包括美国和任何国家。
+视频制作及上传：Cindy；
 
-第三个，**任何政府要记住，在关键的时候一定是牺牲老百姓不会牺牲政府的**，而且理由就是国家主义。
+G-News发布：小满；
 
-无非是国家主义被家庭化以后的独裁主义，还是独裁主义后的国家主义和国家主义下的民主化的集体。他叫集体独裁主义，就像美国现在就是一样。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-白宫这几个人是第一优先，国会山第一优先，不可能让你什么德克萨斯州的优先，不可能的。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-国家主义下的所谓的集体的优先主义，它就是这些。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**所以说人类不要有任何天真，没有任何的是为你着想的，你永远是被剥削，被压榨被统治的底下。**而且最可怕的是在这个世界上现在出现了两个最可怕的倾向，就是**政府的绝对统治**， 西方美国这个国家，它就是媒体给你自由啊，然后呢，不强迫你呀啊，言论自由，不强迫你干什么事情啊，如果强迫着拿枪，也不能对着老百姓啊。如果拿枪对老百姓，老百姓就有枪 有权利合法的拿枪对着他呀。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**现在他要搞出各种理由剥夺你的拥有的权利，让他绝对统治化。**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-但在中共国北朝鲜就不用说他已经早就绝对化了，这才是恐怖的。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-还有一个，他现在从过美国西方向欧洲这样的像英国的首相，他已经完全的所谓的民主政治 独裁话，也就是集体优先话，他现在要变成个人优先话，个人崇拜主义，你没发现这个毛头嘛，**然后让你完全听他的，相信他的**。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-包括他，包括他们的上议院下议院敢说反对一声，再反对一声他都听不进去了。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**所以说现在整个民主的成了一个现代化的集体优先主义和独裁化的家族个人优先主义**。 这个独裁者国家和今天部分国家的完全个人化的，邪恶的像北朝鲜这种的家天下的这种联合在一起的，**人类必将面临着重大的一场挑战**。
-
-发布：Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

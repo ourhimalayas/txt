@@ -2,26 +2,26 @@
 ---
 
 
-## 马化腾一面向中共表忠心一面暗示腾讯随时会被干掉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1853961/)
+## 辉瑞前副总裁向国际刑事法院提起反人类罪诉讼
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853975/)
 
-**作者:****  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-77.png)
-（图片来自网络）
+翻译：Lish
+校对：精靈藍
+剪辑/字幕：蛮吉
+编辑：Mttfly
 
-中共国互联网科技巨头腾讯的创始人马化腾近日公开向以习近平为首的中共政权表忠心。不过，他同时也暗示，腾讯随时会被中共干掉。
+近日，以辉瑞公司前副总裁迈克尔·耶登博士为代表的请愿人向国际刑事法院提起诉讼。他们指控福奇、世卫组织、彼得·达斯扎克、辉瑞主席阿尔伯特·伯拉、英国首相鲍里斯·约翰逊等一系列推行强制疫苗政策、野蛮限制人民自由、压制伊维菌素和羟氯喹的政客与大公司。请愿人呼吁立即停止新冠疫苗接种，并对这些人依照纽伦堡法典进行反人类罪大审判。
 
-据《希望之声》1月13日报道，中企科技巨头腾讯的创始人马化腾近日在公开发言时表示，腾讯只是一家普通公司，随时都可能会被换掉。此言一出立刻引发了业界的关注。
+视频链接：[Former Pfizer vice president filed a complaint with the International Criminal Court for those who violates the Nuremberg Code](https://rumble.com/vrbj34-how-cancel-culture-has-impacted-officials-accused-of-crimes-against-humanit.html)
 
-根据中共国媒体信息，马化腾是在去年12月的员工大会上表示，腾讯只是社会发展中的一个普通公司，并非什么基础服务机构，随时都可以被换掉。他还称，未来腾讯将继续服务国家与社会，做到“不缺位、不越位”。马化腾的上述说法被认为是向习近平政府表忠心。
-
-腾讯作为互联网巨头公司，在去年受到中共政府的高压监管，公司的业务收入、股价与业绩全都受到巨大冲击。在此情况之下，腾讯还被迫投入上千亿元“捐款”，支持中共政府推动的“共同富裕”政策。同时，创始人马化腾也宣布从部分腾讯下属公司的机构离职。分析人士认为，腾讯与马化腾的现状是中共国“国进民退”政策的代表性体现。
-
-评论人士何旭对《希望之声》表示，马化腾的说法就是在告诉大家，腾讯公司的业务规模虽然很大，但是中共的监管政策可以随时打倒它，因为它不是体制内的机构。此外，马化腾这次还声明说“腾讯不会越位”，明显是对中共铁拳打击的服软，主动配合中共“国进民退”政策的需要。
-
-新闻链接：
-
-[https://www.soundofhope.org/post/583916](https://www.soundofhope.org/post/583916)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

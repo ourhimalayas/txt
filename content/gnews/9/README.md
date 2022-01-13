@@ -2,38 +2,22 @@
 ---
 
 
-## 丹麦成为第一个接种第四针新冠疫苗的欧洲国家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854168/)
+## 厚生劳动省将做出决定，是否对5岁以上儿童进行疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1854234/)
 
-#### *【雅典娜快讯】，*紧贴时代脉搏
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-938.png)
+据《日本电视新闻》13日报道，厚生劳动省将于本月20日召开特别委员会会议，决定批准为5至11岁的儿童接种中共病毒（新冠病毒covid-19）疫苗。
 
-整理报道：小鱼儿
-编辑：小红帽
+美国辉瑞制药公司去年11月向厚生劳动省提交了一份申请，要求批准生产和销售一种适用于5至11岁儿童的疫苗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+厚生劳动省已经向地方政府发出通知，为儿童接种疫苗做准备。尽管到目前为止日本批准的疫苗是针对12岁及以上的人群，如果获得批准，接种范围将扩大到5岁以上的儿童。
 
+信息源：[ワクチン５歳以上に拡大　２０日にも承認へ](https://news.yahoo.co.jp/articles/47ee1bbae789bf8a5306ffbfc2d4406d0ea9abe2#:~:text=1%E5%88%86)
 
-根据《RT新闻》1月13日报道，丹麦很快将为新冠病毒高风险感染人群提供第四针新冠病毒（Covid-19）疫苗。丹麦是第一个这样做的欧洲国家，尽管监管机构警告没有足够的数据来了解该政策是否有帮助。
-
-“我们决定向最脆弱的公民提供第四针（新冠疫苗），”卫生部长马格努斯·赫尼克(Magnus Heunicke)周三告诉记者，“社会上感染的范围越广，感染到我们最脆弱人群的风险就越大”。
-
-“从本周末开始，那些在去年秋天接种过加强针并有严重既往病症的人，将可以获得额外的新冠疫苗接种机会。政府现在也在考虑为老年人和养老院居民再打一针。不过最终决定还没有出来”。
-
-尽管哥本哈根没有恢复全面封锁以应对奥密克戎，当局希望 “尽可能多地保持社会开放”。但最新的新冠限制措施还是在该国首都引发了激烈的抗议活动。周末有数百人(注：译者认为人数远不止数百人)游行谴责丹麦的 “流行病法”。
-
-尽管欧盟的药品监管机构–欧洲药品管理局（EMA）对此持怀疑态度。该机构最近警告说，没有足够的数据来了解第四针新冠疫苗是否有益。其首席疫苗官员马可·卡瓦莱里(Marco Cavaleri)质疑 “在短间隔内重复接种新冠疫苗 ”是否是一项 “可持续的长期战略”。
-
-参考新闻：[First European country offers 4th Covid vaccine dose](https://www.rt.com/news/545873-denmark-offers-fourth-vaccination/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
