@@ -15,107 +15,107 @@
 
 ---
 
-### [2022/01/12 文贵先生直播精要](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乔·罗根（Joe Rogan）在Gettr上发现推特所缺少的东西](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥说“新中国联邦人就是有山川大地密码的人” （2022-01-09摘录）](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [七哥说“这就是我的经历，我对人生的理解”（2022-01-09摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（下）](/content/gnews/6/README.md)
+### [【粤语配音】2022年1月12日：共产党就是邪教](/content/gnews/1/README.md)
  ` MOS香港部`
 
-### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [七哥谈属相（2022-01-09摘录）](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [七哥谈共产党是妖孽占龙山（2022-01-09摘录）](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [灭共者之郭氏情报站（十一）2022.01.09/2022.01.12](/content/gnews/10/README.md)
- ` MOS Designer香草山设计部`
-
-### [2022-1-11愤怒的加拿大蒙城人民万众一心，走上大街用行动抗议疫苗政策](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [七哥说“共产党的所有精神境界和文化都是一样的境界：无知、愚昧” （2022-01-09摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [最高法院阻止拜登科对公司疫苗强制，允许医护人员强制疫苗](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（上）](/content/gnews/14/README.md)
- ` MOS香港部`
-
-### [安省基础医疗服务系统已不堪重负](/content/gnews/15/README.md)
- ` 扬帆枫叶快讯`
-
-### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/17/README.md)
- ` 扬帆枫叶快讯`
-
-### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/18/README.md)
- ` 秘密翻译组-原创组`
-
-### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [中共盗国贼贪腐程度骇人听闻](/content/gnews/20/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥谈五行（2022-01-09摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/22/README.md)
- ` 温哥华扬帆农场`
-
-### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [荷兰人增加抵制新冠封锁措施](/content/gnews/25/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [美媒揭联邦政府早知可治愈的药物却隐瞒一切](/content/gnews/26/README.md)
+### [最高法院中止了拜登的美国企业疫苗强制令](/content/gnews/2/README.md)
  ` 华盛顿DC-Russian`
 
-### [扬帆每日速递2022年1月12版](/content/gnews/27/README.md)
+### [媒体就是判官 共产党拉仇恨到全球](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [关于新冠的谎言正在瓦解,邪恶力量的控制正在消失](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022/01/12 文贵先生直播精要](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [乔·罗根（Joe Rogan）在Gettr上发现推特所缺少的东西](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥说“新中国联邦人就是有山川大地密码的人” （2022-01-09摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [七哥说“这就是我的经历，我对人生的理解”（2022-01-09摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（下）](/content/gnews/10/README.md)
+ ` MOS香港部`
+
+### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [七哥谈属相（2022-01-09摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [七哥谈共产党是妖孽占龙山（2022-01-09摘录）](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [灭共者之郭氏情报站（十一）2022.01.09/2022.01.12](/content/gnews/14/README.md)
+ ` MOS Designer香草山设计部`
+
+### [2022-1-11愤怒的加拿大蒙城人民万众一心，走上大街用行动抗议疫苗政策](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [七哥说“共产党的所有精神境界和文化都是一样的境界：无知、愚昧” （2022-01-09摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [最高法院阻止拜登科对公司疫苗强制，允许医护人员强制疫苗](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场`
+
+### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（上）](/content/gnews/18/README.md)
+ ` MOS香港部`
+
+### [安省基础医疗服务系统已不堪重负](/content/gnews/19/README.md)
+ ` 扬帆枫叶快讯`
+
+### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/21/README.md)
+ ` 扬帆枫叶快讯`
+
+### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/22/README.md)
+ ` 秘密翻译组-原创组`
+
+### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/23/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥谈五行（2022-01-09摘录）](/content/gnews/24/README.md)
+ ` MG FARM`
+
+### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [荷兰人增加抵制新冠封锁措施](/content/gnews/28/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [美媒揭联邦政府早知可治愈的药物却隐瞒一切](/content/gnews/29/README.md)
+ ` 华盛顿DC-Russian`
+
+### [扬帆每日速递2022年1月12版](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万](/content/gnews/28/README.md)
+### [苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万](/content/gnews/31/README.md)
  ` G-NEWS TAIWAN`
 
-### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/29/README.md)
+### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [什么叫叛国？什么叫卖国？](/content/gnews/30/README.md)
- ` G-NEWS TAIWAN`
-
-### [西安的&#8221;共享财富&#8221;开始了](/content/gnews/31/README.md)
- ` G-NEWS TAIWAN`
-
-### [西媒头条 — 第152期](/content/gnews/32/README.md)
+### [西媒头条 — 第152期](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/33/README.md)
+### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
-
-### [乔·罗根（Joe Rogan）在 Gettr 上找到Twitter 缺失的东西](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

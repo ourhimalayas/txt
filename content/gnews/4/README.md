@@ -2,31 +2,47 @@
 ---
 
 
-## 七哥说“新中国联邦人就是有山川大地密码的人” （2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1856872/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-来源：郭先生2022-01-09直播10:17:29摘录
+**字幕文本（英汉对照）**
 
-那么，兄弟姐妹们，我们今天新中国联邦看到共产党这帮邪恶的时候，我们大家之间发生什么事情你知道吗？今天科技用的电视机和图像的传输、和音像的传输，所有这些都按照神话来讲，千里眼是吧，万里耳、顺风耳什么样的，都是过去神话说的，今天己经都兑现了，除了味觉之外，除了摸不着之外。但我告诉你，有一天你真的会发现实际我们在这种屏幕对话的时候，我们是有感觉的、是有温度的，最重要的就是刚才小王子问的是有磁场的，绝对是有磁场的！新中国联邦人最重要的问题，是我们大家磁场先对上表了，“喳”对上频道了，“哎”咱是一伙的，新中国联邦人。这个磁场对上的来源是哪里呢？就是今天我们讲到的山川、河脉最凝聚的结果，这里没有狗屁属相，属相是世界上最不应该相信的东西。你看看《山海经》，你看看《三新通论》，刚才三票给我说《三玄论》，三票先生这回完全输了啊。《三玄论》是其中的一个论，《三新通论》才是大家，嘿嘿，这完全是搞不懂，在这方面三票先生跟七哥就是喜玛拉雅山和平原的差距了《三玄论》也好，它是记录那种……《三……》好多论的，《三新通论》是当时明朝的一个万公子写出来的，叫万博士活到82岁，就是对整个历史写的东西。那你看看，今天我们新中国联邦人是什么？就是有山川大地密码的人，就是我们新中国联邦人！然后，山川密码的人就是我们共同的磁场。战友千万别看谁离开，谁离开我们的时候，你一定要相信，他离开绝对对我们是个好事。你说路大脑袋、蛇妖闫、九指妖在这儿，你觉的我们现在是吧，我们在这开着会，那九指山脉发出的磁场结果少了一个弦是吧，老是“噔……噔噔蹬”是吧，哈哈跟不上；路大脑袋“嗯、嗯哼…”然后吐痰是吧；蛇妖闫那个长相你说那晃的那个贱劲，你觉得是昆仑山的磁场？还是喜玛拉雅山的磁场呀？是不是。该离开的他就会离开，就像那个到过昆仑山磁场你不懂的，到那你就没了，进了地狱门了，“叭”就没了！每年死多少人你去查查去。而且死人每年都很奇怪，有人是什么？皮没了光剩骨头；有人是好好的人骨头没了；有的人是衣服没了人尸体在那搁着，每年都不一样啊，你们知道昆仑山的故事吧，你们要不知道好好去查查去，有很多种故事。在网络上，习近平的私人生活不是最高秘密，昆仑山、喜玛拉雅山所有的发生这种事是最高秘密，我可以告诉你。所以，战友们千万记住，你但凡看过《三新通论》也好、《三玄论》也好、《山海经》也好、还有《奇门遁甲》也好，还有那些算命的这些书，我告诉你，几乎80%都是错的，但有20%是对的。特别中国的属相，中国这个属相绝大多数是根据那些情况下说出来的，因为他只知昆仑山，不知喜玛拉雅，只知昆仑喜玛拉雅，他不知道中国的山川河脉，他只知道中国了，他根本不知道地球上你中国才占980万平方公里。你根本不知道世界上还有，俄罗斯有什么山知道吗？你们知道美国最神的山是什么山？等哪天咱讲讲。你知道七哥出生的山是什么山知道吗？如果你们上网络上建议查一查，现在墨镜你上网查一查，吉林省磐石县红旗岭山河村，我从来第一次讲，山河村，山河村叫，大山的山，山河村，你查出来吗墨镜？
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-**关注我们**
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-Discord 账号
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
 
-Gettr 账号
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

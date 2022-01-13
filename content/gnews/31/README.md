@@ -2,8 +2,8 @@
 ---
 
 
-## 西安的&#8221;共享财富&#8221;开始了
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856308/)
+## 苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856343/)
 
 台灣寶島農場
 
