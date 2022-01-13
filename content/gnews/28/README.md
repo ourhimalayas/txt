@@ -2,96 +2,82 @@
 ---
 
 
-## 全球疫情更新（住院患者中大多数是未接种者吗？）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1855526/)
+## 01/13/22 香港快讯 邹家成再被捕今午提堂 疑涉邓炳强帖文
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1855601/)
 
-#### **整理/编辑：枳实**
+搜集/整理：卡西欧
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0113fenmian.jpg)
+封面素材：[独立记者-爆炸头](https://www.instagram.com/boomheadhk/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.03.34-AM.png)
+**1. 邹家成再被捕今午提堂   疑涉邓炳强贴文**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1000.png)图片：雅典娜农场设计组 精灵蓝
+[据【大纪元时报】01月13日讯，因为参与民主派初选而被控「串谋颠覆国家政权罪」的邹家成，昨日涉嫌被指在保释期间公开发表及作出有合理理由被视为危害国家安全的言论及行为，而违反了法庭保释条件，在北角再被警方国安处拘捕。](https://hk.epochtimes.com/news/2022-01-13/83884520)
 
+[消息指，他被通宵扣查，今日将被带到西九龙裁判法院，下午2点30分提堂。因为2020年立法会初选而被控「串谋颠覆国家政权罪」的邹家成还押3个多月之后，去年6月22号获准保释。这段时间里面，邹家成须要遵守一系列保释条件，包括「不得直接或间接作出、发放或转载任何可能有合理理由构成违反国安法的言论」、「不得直接或间接以任何方式，作出任何可构成违反国安法的行为」等等。](https://hk.epochtimes.com/news/2022-01-13/83884520)
 
-雅典娜疫情更新（2022年 1月12日）
+[今次警方认为，邹家成保释期间多次在Facebook发表政治性言论，涉嫌公开发表及作出有合理理由，被视为危害国家安全的言论和行为，包括在「831事件周年」等日子试图激发市民对政府的仇恨，扭曲保安局局长的言论，呼吁市民于立法会投票日不要出门，涉嫌鼓动其他人不要去投票等等。](https://hk.epochtimes.com/news/2022-01-13/83884520)
 
-**一，全球疫情基本数据**
+[外界相信，今日下午提堂将会决定他需不需要还押候审。](https://hk.epochtimes.com/news/2022-01-13/83884520)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.03.43-AM.png)
+**2. ****警队****7****月起全面转用中式步操**
 
-感染总数：315,901,156（日新增2,577,601，14天增幅+177%）
+[据【大纪元时报】01月13日讯，昨日（12日）有报道指，香港警队决定今年7月1日起全面转用中式步操，除各典礼仪式及结业会操外，各级人员日常亦须遵守敬礼等中式步操礼仪。](https://hk.epochtimes.com/news/2022-01-13/78285228)
 
-死亡总数：5,502,167（日新增6,610人，14天增幅+2%）
+[在去年2月，有传媒爆出香港警队邀请中共的三军仪仗队教授中式步操，五大纪律部队人员皆有到场受训。在同年的「全民国家安全教育日」中，更有多队纪律部队公开表演中式步操。](https://hk.epochtimes.com/news/2022-01-13/78285228)
 
-每万人感染人数：482.8761 人（除中国外）
+[除警队接受中式步操培训外，多位警队出身的高官都去过大陆进修，如现任保安局局长邓炳强、副局长区志光、警务处处长萧泽颐、3名副处长袁旭健、郭荫庶、刘赐蕙等都去过国家行政学院受训，翻查资料，国家行政学院在2018年3月并入「中共中央党校」。](https://hk.epochtimes.com/news/2022-01-13/78285228)
 
-**二，全球“疫苗”毒针统计数据**
+[在2018年年底，区志光曾带领跨部门反恐专责组成员到访新疆5日，当局称是交流反恐工作。](https://hk.epochtimes.com/news/2022-01-13/78285228)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.03.52-AM.png)
+**3. ****多个受疫情影响行业分别举行记者会促请政府资助**
 
-“疫苗”毒针注射总数：93.7亿
+[据【香港电台】01月13日讯，政府明日将会公布第五轮「防疫抗疫基金」的安排，多个受疫情影响的行业代表都举行记者会，促请政府支援相关业界。其中教联会联同私立幼稚园、补习社、校巴负责人等召开记者会，有幼稚园校长说，在疫情及移民潮下收生持续不足，加上政府要求停课，经营百上加斤。](https://news.rthk.hk/rthk/ch/component/k2/1628739-20220113.htm?spTabChangeable=0)
 
-完全“接种”：39.2亿人
+[另外，民航工会、非专利公共巴士从业员协会等，分别到政府总部请愿，要求政府将他们纳入第五轮「防疫抗疫基金」的资助范围。](https://news.rthk.hk/rthk/ch/component/k2/1628739-20220113.htm?spTabChangeable=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.04.02-AM.png)
+**4. ****民航工会要求第五轮防疫抗疫基金支援航空业雇员**
 
-完全“接种”百分比：50.3%
+[据【香港电台】01月13日讯，民航工会几名成员到政府总部请愿，要求即将公布的第五轮防疫抗疫基金，支援受疫情冲击的航空业雇员。](https://news.rthk.hk/rthk/ch/component/k2/1628690-20220113.htm?spTabChangeable=0)
 
-**三，澳洲疫情和“疫苗”数据**
+[工会表示，因应新一波疫情爆发，政府收紧防疫措施，航班进一步缩减，令航空从业员特别是客运业务从业员的生计大受打击，现时不少工种的从业员要放无薪假，加上无加班收入、失去部分津贴，令收入大跌约7成，部分机场员工被扣无薪假后，实际薪金比最低工资还要低。](https://news.rthk.hk/rthk/ch/component/k2/1628690-20220113.htm?spTabChangeable=0)
 
-感染总数：1,398,776（今日新增150,702人）
+[工会不满政府忽视有关从业员，要求新一轮防疫抗疫基金作出支援，包括直接向受疫情冲击的航空业雇员，发放一次过1万元，并设立紧急失业援助金，让受疫情影响而失业的行业工人申请，为期6个月。](https://news.rthk.hk/rthk/ch/component/k2/1628690-20220113.htm?spTabChangeable=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.04.12-AM.png)
+**5. ****中人寿推举非执董袁长清代履行董事长职责**
 
-死亡总数： 2,522人（今日新增 57人）
+[据【Now新闻台】01月13日讯，中国人寿推举非执行董事袁长清代为履行董事长职责。](https://news.now.com/home/finance/player?newsId=463126)
 
-每万人感染人数：441.7122人
+[中人寿周四召开董事会会议，鉴于执行董事王滨涉嫌严重违纪违法，目前正接受当局纪律审查及监察调查，不能履行董事长职务，因此推举袁长清代为履行有关职责，直至新任董事长上任](https://news.now.com/home/finance/player?newsId=463126)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.04.23-AM.png)
+**6. ****比亚迪确认中标智利锂矿开采合同**
 
-“疫苗”毒针注射总数：45,076,482 日新增346,349 针）
+[据【Now新闻台】01月13日讯，比亚迪股份子公司中标智利的锂矿开采合同。](https://news.now.com/home/finance/player?newsId=463127)
 
-完全“接种”：19,038,946人
+[内地官方媒体《中国证券报》报道，比亚迪证实中标智利锂矿开采项目，外电早前引述智利矿业部一份电邮声明指，当地批出的5份锂矿开采合同中，有一份由比亚迪智利公司获得，出价6100万美元，每份合同的锂产量配额8万吨，合共占智利已知的锂储量1.8%。](https://news.now.com/home/finance/player?newsId=463127)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.04.32-AM.png)
+**7. ****据报融创中国短期再没有配股融资计划**
 
-第二针“接种”百分比：77.6%
+[据【香港电台】01月13日讯，融创中国计划以先旧后新方式配售4.52亿股新股，预计集资净额约44.84亿元，是公司两个月内第二次配股集资。](https://news.rthk.hk/rthk/ch/component/k2/1628729-20220113.htm?spTabChangeable=0)
 
-16岁以上人口接种至少一剂疫苗的比例：94.9%
+[外电引述接近公司的消息人士指，今次配股目的是进一步扩大公司股东基础、优化资本结构，令公司有更充足的资金和能力，应对市场和环境短期的不确定性，又指今次配股融资后，短期没有计划再配售新股或配售子公司融创服务旧股作股权融资。](https://news.rthk.hk/rthk/ch/component/k2/1628729-20220113.htm?spTabChangeable=0)
 
-16岁以上人口接种至少两剂疫苗的比例：92.3%
+[另外，投行杰富瑞的报告指，融创服务日前告知投资者，公司没有配股和新的关联交易计划，并将恢复股票回购。](https://news.rthk.hk/rthk/ch/component/k2/1628729-20220113.htm?spTabChangeable=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-9.04.40-AM.png)
+**8. ****港股微升****27****点　内房股急挫　融创中国跌近****23%**
 
-**四，数据分析**
+[据【香港电台】01月13日讯，港股反覆靠稳，恒生指数早段最多曾升近160点，午后转跌最多逾110点，收市微升27点，报24429点，全日主板成交额1363亿元。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
-今天澳洲的新增病例总数突破十五万，主要是因为新州把过去七天的阳性检测纳入了统计。在南非无论是一线医生的报告，还是数据都表明本波疫情与过去相比更轻微。南非的疫苗接种率仅27.3%。而在疫苗接种率达到77.6%的澳大利亚，不仅疫情曲线垂直向上，而且住院人数如下图所示，也早就超越了疫情的最高记录。
+[科技指数跌近2%。腾讯跌逾1%，京东集团跌近4%，阿里健康跌近7%。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1001.png)图片来源：Our World in Data
+[融创中国折让15%配股集资近45亿元，跌穿10元的配股价，低见9.06元，收市跌近23%，报9.13元。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
+[其余内房地都录得显著跌幅，雅居乐跌13%，世茂集团跌逾9%。至于碧桂园跌近8%，是跌幅最大的蓝筹股；碧桂园服务亦跌近半成。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
-在澳洲，疫苗接种与疫情的关系，在下图可以更加明晰的显示出来：
+[金融股普遍上升，友邦、汇控、建行和工行都升近2%，港交所则跌逾1%。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1002.png)图片来源：Our World in Data
+[中信股份和新奥能源升逾3%，是升幅最大的两只恒指成份股。](https://news.rthk.hk/rthk/ch/component/k2/1628710-20220113.htm)
 
-澳大利亚每日新增病例数曲线，蓝色箭头标识处为之前的3波疫情
-从上图可以看出，当澳洲的疫苗接种率在去年11月16日到“神奇的”数字70%之后不久，疫情就大爆发了，对照住院人数的曲线，可以看到，疫情的大爆发同样也造成了住院人数的大幅度增长。澳洲的样本可以清晰的说明，这些疫苗既不能控制疫情，也对减少重症收效甚微。虽然主流媒体热衷于渲染重症监护室中的病例中有多少没有完全接种，其实我们即使看一下下图中[澳大利亚新州政府提供的数据](https://aci.health.nsw.gov.au/__data/assets/pdf_file/0006/698388/20220104-COVID-19-Monitor.pdf)，也能看出疫苗的有效性堪忧：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/covid1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/covid2.png)新州统计的住院病人中完全接种和未接种的病人的百分比（图片来源：The Agency for Clinical Innovation）
-从上图可以看出，主流媒体经常挂在嘴边的住院病人中大多数都是未接种者纯属撒谎，从比例来看，仍然是完全接种者占了大多数。更何况，所谓未接种者中还包括未知数量的接种一针，或者接种2针，但发病时距离第二针不满14天的患者。即使不考虑数据中的这种水分，这样的比例还是会让很多急急忙忙把自己的孩子送去注射毒针的人大吃一惊的。所以你不会在政府的疫情报告中发现这个数字，这个表格深藏在The Agency for Clinical Innovation这个专业性的政府网站中。看来澳洲政府认为这些数字无关紧要，与注射疫苗的知情同意无关，老百姓的智商只需要相信政府官员和媒体媒体灌输的疫苗是“安全”和“有效”的空洞字眼就够了，他们是读不懂数据的。
-
-澳大利亚政府既然不想让老百姓了解这些，那我就再多传播一些吧。这个报告中提供了好几个国家疫苗和疫情的关系图表：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/covid3.png)澳大利亚疫苗接种与病例数![](https://assets.gnews.org/wp-content/uploads/2022/01/covid4-1.png)英国疫苗接种与病例数![](https://assets.gnews.org/wp-content/uploads/2022/01/covid5-1.png)美国疫苗接种与病例![](https://assets.gnews.org/wp-content/uploads/2022/01/covid6-1.png)加拿大疫苗接种与病例数
-比较这几个国家的情况，可以很明显看出全民疫苗注射根本无助于控制疫情，甚至很可能助长了疫情。因为注射疫苗后感染症状减轻了，因此更容易不知不觉中扩散疫情。而澳洲更是典型范例，因为澳洲疫苗普及较晚，疫苗普及达到70%的时间距离疫情大爆发的时间最短，疫情曲线却最陡峭，因此更能证明疫苗无效甚至加剧传播。澳洲的完全接种率达到70%是在11月16日，距离澳洲这一波疫情开始“起飞”的12月15日之间只有1个月而已，这明确表明加强针不会有效，只可能让疫情加重。
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：玉米地守望者*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对 / 封面合成：文粤 / 发布：流光飞舞
 
  
 

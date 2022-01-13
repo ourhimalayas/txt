@@ -2,27 +2,31 @@
 ---
 
 
-## 中共非洲布局祸乱全球
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853475/)
+## 全球中共病毒新增确诊近日再创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853493/)
 
-作者：纽约香草山 信息部 – 6zero4
+作者：纽约香草山 医疗部 -云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月9日，郭文贵先生在直播中明确了中共以非制美、以非乱欧的野心。
+当地时间1月11日，法国卫生机关公告称，该国单日新增的中共病毒确诊人数达到36万8千149例的新高纪录。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-7.jpeg)
 
-郭先生解释道，几十年来，共产党不惜血本地通过“蓝金黄”手段苦心经营非洲，同时，中共还将腐败输出到非洲国家，使得本来就很贫穷的非洲土地上的贫富分化进一步加剧。一方面，中共试图在经济和政治上殖民、绑架非洲，另一方面，中共可以借由在非洲的布局祸乱世界。
+同日，意大利卫生当局发布的数据显示，当地单日新增中共病毒确诊22万零532例。这一数字除了比前一天的单日新增病例增加了数倍之外，也创下了该国单日确诊的最新峰值。
 
-就美国而言，中共通过在美国的使领馆和华人组织，怂恿、煽动、资助和策划“黑命贵”运动，从而达成中共妄图搞乱、搞弱、搞死美国的“3F计划”；至于欧洲，中共将大量的非洲难民送往欧洲，用以搞乱欧洲各国的社会秩序，进而制造欧洲各国政府与民间的矛盾和对立。
+此外，美国在10日确诊了143万多例的单日新增确诊记录，而以色列也达到了超过5万4千例的单日确诊高峰。本月5日，英国则出现了19万多例新增确诊患者，再次更新了该国的单日确诊记录。
 
-郭先生表示，中共此番操作也源于其十足的迷信，但中共的精神境界其实是无知、愚昧和不平衡的，其所作的一切皆违背了自然的规则，然而被中共牺牲的却只有中国的百姓。而今，与中共的对抗无非是过去和现在、天和地、人和魔、真和假之间的较量。
+值得注意的是，在中共病毒疫苗接种方面，法、英、意三国的完整疫苗接种率均超过70%，其中，英国甚至有超过半数的民众接种了中共病毒疫苗第三剂加强针。同时，美国和以色列的完整疫苗接种率也远超60%。
 
-参考链接： [2022年1月9日 文贵大直播：哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王滨被调查](https://gtv.org/video/id=61dade8c4658a73785d25465)
+有评论则表示，政府在推广中共病毒疫苗时承诺的防护效用，如今看来实为一句谎言。疫苗非但不能阻止中共病毒的传播，甚至在奥密克戎疫情爆发的当下，接种过疫苗的群体可能更容易感染病毒。
+
+参考链接：
+1）[法國日增近37萬例再創新高 義大利確診數暴衝100%](https://www.cna.com.tw/news/firstnews/202201120006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2）[美国新冠肺炎统计信息](https://www.google.com/search?stick=H4sIAAAAAAAAAONgVuLVT9c3NMwySk6OL8zJecSYwC3w8sc9YanwSWtOXmMM5BL3TU3JTM7MS3XJLE5NLE71yU9OLMnMzxOS5mJzzSvJLKkUEpTi50I1RkiSiwOukFeKm4tTP1ffwDLZvNyAZxcTt0dqYk5JRnBJYknxIla55_v6ns7e-2zahqdtC1407Xre1Pd89_wX6xY-2b_wWeN6ABb3G32jAAAA&amp;hl=zh-Hant-TW&amp;q=%E7%BE%8E%E5%9B%BD%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%BB%9F%E8%AE%A1%E4%BF%A1%E6%81%AF&amp;kgs=0205acd980d528c8&amp;shndl=17&amp;source=sh/x/kp/osrp/4&amp;entrypoint=sh/x/kp/osrp)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001
-编辑：Kathy文艺
+总编：飞虹
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
