@@ -2,21 +2,23 @@
 ---
 
 
-## 世衛組織承认加强剂不够 煽动研发更毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853238/)
+## 媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853239/)
 
-作者：纽约磐石农场 – 在远方
+作者：银河勇气星 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台湾媒体1月12日报道，由世卫组织成立的评估中共病毒疫苗的专家小组11日称，目前使用的中共病毒疫苗都是2020年底开发出来的，在应对新型变异株病毒方面效力不够，通过不断接种加强剂来应对，已经不是“最佳的解决方法”，而且可能已经过时或无法持续太久。但该小组随即公开煽动各大药厂与机构，另外研发新疫苗，称新疫苗除了要能“预防重症及死亡”，还要“具备大幅降低传染的能力”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-34.jpg)
-郭文贵先生早就警告过全世界，中共病毒和疫苗是子母弹，疫苗才是大规模杀人武器。而世卫组织和各国政府，极力隐藏疫苗真相，给世界带来了无穷灾难。
+1月10日，关于新冠病毒起源和其功能增强研究的调查有了惊人发现。从媒体披露的美国国防部文件显示，美国国防高级研究项目局DARPA拒绝了武汉新冠病毒功能增强实验的提案。自从在2014年一些联邦机构发生了危险的生物病毒泄漏事件后，美国不再资助那些关于增强流感、MERS、SARS病毒的功能增强研究。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-35.jpg)
+DARPA的研究员Murphy的一封信中显示，SARS-CoV-2是一种美国发现的重组蝙蝠疫苗或其前体病毒，并由中国武汉病毒研究所的一个生态健康联盟项目进行了复制。当时DARPA以太危险和可能违反暂停令，拒绝了此项提案。但是，由福奇带领的NIH 、NIAID批准了该提案，并在美国的几个地方以及武汉病毒学研究所进行了对冠状病毒的功能增强研究。在国会质询中，福奇向美国国会宣誓，声称从未做过此事。
 
-参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3798116](https://news.ltn.com.tw/news/world/breakingnews/3798116)
+此外，Murphy信中还提到新冠病毒的关键治疗药物伊维菌素、羟氯喹和干扰素等被强力压制。
+
+参考链接：[媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究](https://www.opindia.com/2022/01/darpa-rejected-ecohealth-alliance-proposal-for-coronavirus-fauci-allowed-it-project-veritas/)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：Irene木木
+编辑：Ivy001
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

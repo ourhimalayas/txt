@@ -2,22 +2,54 @@
 ---
 
 
-## 特鲁多计划为加拿大人接种第四剂疫苗
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1856707/)
+## 灭共者之郭氏情报站（十一）2022.01.09/2022.01.12
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1856780/)
 
-加拿大温哥华扬帆农场    平民正道
+**出品：纽约香草山设计部**
 
-据加拿大《国家邮报》1月11日报道，总理特鲁多日前宣布，联邦政府将有足够的“新冠病毒”疫苗供所有符合条件的国人在需要时接种第四剂。
 
-报道称，特鲁多日前与各省和地区的领导人进行了会晤，并保证其政府已为第三剂和潜在的第四剂疫苗接种准备了足够的疫苗库存量。并同时承诺将协助各级政府应对当前爆发的“奥密克戎”疫情，以缓解各省医疗系统已不堪重负的困境。
 
-魁省和安省近期都报告了有史以来最严重的疫情态势。此外，由于各地严格的限制措施和缺乏有效及时的病毒检测方法，因此真实的病毒感染和死亡人数要比官方数据高出许多。为此，[美国疾控中心]日前向加拿大发出了最新的“避免旅行”警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-据悉，如同智利和以色列，第四剂疫苗接种将使加拿大成为向其国民再度提供所谓加强剂的少数国家之一。
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+
+
+
+
+
+## **郭氏情报站 – 2022.01.09/2022.01.12文贵大直播总结提炼**：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-192940.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-A29A7B62-26EB-4854-BCD7-51C9E83E4B0A.jpg)
+**上一期：**
+
+**[灭共者之郭氏情报站（十）2022年1月7日版 – GNEWS](https://gnews.org/zh-hans/1834806/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
