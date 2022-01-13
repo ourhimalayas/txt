@@ -2,20 +2,19 @@
 ---
 
 
-## 打压伊维菌素的政府和机构 都将被审判！
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1854685/)
+## 这种战友远远比那些抢着打疫苗人还危险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854750/)
 
-美国一位女性消费者近日爆料，自己从国外购买的两种药其中之一是伊维菌素，被FDA介入因而遭到邮局扣押。这位女士也展示了FDA的通知书，信里提到购买者的做法并没有违背任何的法律，但是FDA有规定，就是不能使用这个药。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/下载-3-4.jpg)
-这个新闻让人感到世界黑白颠倒的疯狂程度。中共的芬太尼祸乱美国造成巨大的伤害，美国的主流媒体从不报道。一位女士买了能救命的伊维菌素却被扣下。
+#### 整理：雅典娜速记组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/这种战友远远比那些抢着打疫苗人还危险啊！-.jpg)
+发布：Frank2021
 
-美国这位女士的经历，在其他国家也相继上演。在英国也有一个类似FDA的机构，叫做MHRA，曾扣留了战友购买的药物并以非常牵强的理由将其销毁。这位美国女士购买的除伊维菌素之外的另一个药物，也就是被FDA标签为“新药从而不批准”。其实这个并不是新药，叫Ziverdo，是锌、强力霉素、伊维菌素，三种药根据医嘱服药的配方配制好的一个包装，并不是一种是新药。这种Ziverdo在印度唾手可得的药物，却在欧、美、澳这些发达国家和地区却被禁止使用。
-
-澳洲TGA在2021年9月也下达了限制令，禁止新冠患者使用伊维菌素。尽管这些药物在很多人使用后,被证实得到了很好的疗效，但依然被各国政府禁用。无良的政府禁止国民购买又便宜又安全的伊维菌素、青蒿素。这就是一种谋杀，将来这些人必要受到审判。
-
-文案：pangbo磅礴
-
-校对整理：面包树、文峰
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
