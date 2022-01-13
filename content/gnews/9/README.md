@@ -2,63 +2,37 @@
 ---
 
 
-## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
+## 大直播后记：共产党是世界最大的邪教
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1855284/)
 
-2021年12月1日 ~ 2022年1月12日
+整理：雅典娜速记组
+编辑：Mttfly
 
-iTunes：
-
-MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
-
-MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
-
-Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
-
-Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
-
-Billboards公告牌榜:
-
-Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
-
-* * *
-
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/邪教.png)图片来源：chinahaibao
 
 
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
+**2022年1月12日大直播**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+你们一定要认识到邪教组织的本质是什么。邪教组织的6个特征：教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会。邪教组织的六大特征是什么？教主崇拜，你们有教主崇拜吗？所以说就别老说爱七哥了。精神控制，你跟谁双修我管过你了吗？编造邪说，有一个能证明咱们是错的吗？聚敛钱财，秘密结社。咱秘密结社了吗？咱都是公开直播，咱有秘密结社吗？咱聚敛过谁的钱财？告诉我，哪一个不是在法律范围内的。对抗社会。
+
+如果（有人问）什么叫邪教组织？这上面每一条（共产党都符合）。毛泽东教主崇拜，精神控制，穿蓝衣服、白衣服，爹亲娘亲不如共产党亲。东方红，太阳升，中国出了个毛泽东，万岁万岁！万万岁！编造邪说，共产党说这个抗日拯救了56个少数民族。56个少数民族认为毛泽东是太阳。没有共产党，就没有新中国。这是不是编造邪说？聚敛钱财，打土豪，分田地。秘密结社，共产党这1913年以前完全属于外来组织，早就该抓了吧？对抗社会，所有中国人（被）网络控制，新疆大屠杀，56个民族都快被它灭了。制造假的所谓人大代表，你说哪个不是共产党啊？就这6条。
+
+但凡有点脑子的人，你们告诉我。如果这6条你说不是共产党还有天理吗！昨天我跟那些外国人开了几个小会，我说，“你们知道什么叫中国？说是这个cult邪教组织吗？”他们不知道。我说我告诉你们。“哇塞！”他们说，“太险恶了吧！”我说这就是共产党要把我们所有的反共力量定为邪教组织。
+
+他们称这6条适合每个人：班农、Tiger(音译：人名)、Maria，Regan全属于歪门邪说、制造邪说、精神控制。然后班农，聚敛钱财。这一说，你看看现在你们4个啊，2个帅哥，2个美女，你们全属于邪教成员。但是我请问你们，你们有没有洗脑啊？有没有精神控制？有没有聚敛钱财？有没有编造邪说？有没有反社会啊？伊莎贝拉·杨给所有中国人定义就是这6个特征。
+
+但是反过来说，但凡不是猪脑袋的人，你都会知道共产党符合所有这六条邪教标准，可怕不可怕呀！最可怕的是猪，你吃猪食的时候，人家说，叫你吃点肉不行吗？你说不行，我得吃猪食，因为我是猪。但是我们到了西方发现，一贯吃猪食的猪，在西方吃得都是比人还好的青菜。在中国俗话说，狗改不了吃屎，我们家狗真的不吃屎，见屎就跑。一个不让狗吃屎的地方狗都不吃屎，在中国是让人应该吃饭的时候让人吃屎。然后把人肉都吃了。这就是邪教的特征。
+
+你们要大胆的说出去——什么叫邪教？伊莎贝拉·杨就是邪教的传播者，洗脑、主控、制造歪门邪说、HBO VICE制造大型仇恨、反社会。我们要是不跟VICE和HBO，跟这个伊莎贝拉·杨干下去，我们华人就真的连猪都不如！她说我们是邪教，我们就是邪教了吗？
+
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

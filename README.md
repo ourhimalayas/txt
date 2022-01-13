@@ -15,143 +15,143 @@
 
 ---
 
-### [巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/1/README.md)
+### [更多美国公司削减感染中共病毒员工带薪病假](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/2/README.md)
+ ` NewFOC`
+
+### [抗体能中和病毒，但是政府和行政部门却不予承认](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒](/content/gnews/2/README.md)
+### [秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：香港新立法首会上林郑称再推基本法23条](/content/gnews/3/README.md)
+### [DC大中华时事：香港新立法首会上林郑称再推基本法23条](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [现实不是电影](/content/gnews/4/README.md)
+### [冠状病毒大流行和疫苗真相（2）冠状病毒真的没有治疗药物吗？](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [现实不是电影](/content/gnews/8/README.md)
  ` 骄子`
 
-### [大直播后记：共产党是世界最大的邪教](/content/gnews/5/README.md)
+### [大直播后记：共产党是世界最大的邪教](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：HBO，VICE，Q组织是致命陷阱](/content/gnews/6/README.md)
+### [1.13大直播后记：HBO，VICE，Q组织是致命陷阱](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [01/13每日播报｜中共国暂停更多美国赴华航班 进一步限制两国交通往来](/content/gnews/7/README.md)
+### [01/13每日播报｜中共国暂停更多美国赴华航班 进一步限制两国交通往来](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共病毒和毒疫苗已使印度失控](/content/gnews/8/README.md)
+### [中共病毒和毒疫苗已使印度失控](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计](/content/gnews/9/README.md)
+### [【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [去雍和宫烧香的年轻人](/content/gnews/10/README.md)
+### [去雍和宫烧香的年轻人](/content/gnews/14/README.md)
  ` 骄子`
 
-### [中共窃取情报恶名远扬 冬奥在即各国提高警惕](/content/gnews/11/README.md)
+### [中共窃取情报恶名远扬 冬奥在即各国提高警惕](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盗国与卖国](/content/gnews/12/README.md)
+### [盗国与卖国](/content/gnews/16/README.md)
  ` 银河勇气之星`
 
-### [赌博行业的分类](/content/gnews/13/README.md)
+### [赌博行业的分类](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [冠状病毒大流行和疫苗真相（1）冠状病毒是哪里来的?](/content/gnews/14/README.md)
+### [冠状病毒大流行和疫苗真相（1）冠状病毒是哪里来的?](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/15/README.md)
+### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/19/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [习近平开研讨班，敲响家天下的奏章](/content/gnews/16/README.md)
+### [习近平开研讨班，敲响家天下的奏章](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [加拿大总理特鲁多对反疫苗者的诽谤为魁省省长Legault的惩罚税铺平了道路](/content/gnews/17/README.md)
+### [加拿大总理特鲁多对反疫苗者的诽谤为魁省省长Legault的惩罚税铺平了道路](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [秘翻在线：韩国总统不考虑出席北京冬奥会](/content/gnews/18/README.md)
+### [秘翻在线：韩国总统不考虑出席北京冬奥会](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵直播大事记——南普陀计划VS喜马拉雅天机（一）](/content/gnews/19/README.md)
+### [文贵直播大事记——南普陀计划VS喜马拉雅天机（一）](/content/gnews/23/README.md)
  ` 文贵直播大事记`
 
-### [我和我的爆料革命—一位墙内爆二代的成长自述](/content/gnews/20/README.md)
+### [我和我的爆料革命—一位墙内爆二代的成长自述](/content/gnews/24/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [侵犯人权！中共以国家恐怖主义强制核酸](/content/gnews/21/README.md)
+### [侵犯人权！中共以国家恐怖主义强制核酸](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/22/README.md)
+### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国务卿布林肯暗示对俄进一步制裁](/content/gnews/23/README.md)
+### [美国务卿布林肯暗示对俄进一步制裁](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共外长王毅访问斯里兰卡，继续通过死亡陷阱控制这一岛国](/content/gnews/24/README.md)
+### [中共外长王毅访问斯里兰卡，继续通过死亡陷阱控制这一岛国](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海瑞金二路街道接种疫苗奖励220元，人们排起了长龙](/content/gnews/25/README.md)
+### [上海瑞金二路街道接种疫苗奖励220元，人们排起了长龙](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本反中共病毒疫苗游行](/content/gnews/26/README.md)
+### [日本反中共病毒疫苗游行](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/01/13英喜时事速递](/content/gnews/27/README.md)
+### [2022/01/13英喜时事速递](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [耶鲁大学北京中心董事会成员是共产党员](/content/gnews/28/README.md)
+### [耶鲁大学北京中心董事会成员是共产党员](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：共产党制造世界排华运动](/content/gnews/29/README.md)
+### [大直播后记：共产党制造世界排华运动](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [盖特支付将在今年年中推出，这是独特且安全的双币生态系统](/content/gnews/30/README.md)
+### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [如果行政部门既制定法律又执法，我们的自由就被抛弃](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大阪府知事提醒：即使接种两剂疫苗也很可能重症化](/content/gnews/33/README.md)
+### [大阪府知事提醒：即使接种两剂疫苗也很可能重症化](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购](/content/gnews/34/README.md)
+### [美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7·24系列——中共如何出卖帕米尔高原土地？](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/13/2022 国际财经快讯：美国通胀率创1982年以来最高水平；台积电财季净利润创历史新高](/content/gnews/36/README.md)
+### [1/13/2022 国际财经快讯：美国通胀率创1982年以来最高水平；台积电财季净利润创历史新高](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [孙力军入镜反腐剧电视忏悔 大内宣为习近平二十大铺路](/content/gnews/37/README.md)
+### [孙力军入镜反腐剧电视忏悔 大内宣为习近平二十大铺路](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本政府要求推广远程办公](/content/gnews/38/README.md)
+### [日本政府要求推广远程办公](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共检察院鼓励警察刑讯逼供 有谅解书就免于起诉](/content/gnews/39/README.md)
+### [中共检察院鼓励警察刑讯逼供 有谅解书就免于起诉](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [广东中山市报告1例中共病毒阳性](/content/gnews/40/README.md)
+### [广东中山市报告1例中共病毒阳性](/content/gnews/41/README.md)
  ` 首尔天池农场`
 
-### [来自伪民运滕彪的攻击—Vice采访郭文贵先生始末系列之七](/content/gnews/41/README.md)
+### [来自伪民运滕彪的攻击—Vice采访郭文贵先生始末系列之七](/content/gnews/42/README.md)
  ` 秘密翻译组-原创组`
 
-### [01/13每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/42/README.md)
+### [01/13每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美众议员加里·帕尔默：中共不是竞争者或者对手，而是敌人](/content/gnews/43/README.md)
+### [美众议员加里·帕尔默：中共不是竞争者或者对手，而是敌人](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前总统川普在中共病毒疫苗道路上越走越远](/content/gnews/44/README.md)
+### [前总统川普在中共病毒疫苗道路上越走越远](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们都是孙悟空](/content/gnews/45/README.md)
+### [我们都是孙悟空](/content/gnews/46/README.md)
  ` 纽约香草山MOS01`
-
-### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/46/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
