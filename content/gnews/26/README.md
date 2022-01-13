@@ -2,28 +2,31 @@
 ---
 
 
-## 特鲁多当局极力阻止“反政府意识”的传播
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853045/)
+## GTV新闻访谈简报|2022年1月12日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1853059/)
 
-采编：文莱    编译撰稿：文明(添草灭共)
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-2-edited.jpg)图片来源：thepostmillennial
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-据加拿大自媒体【后千禧年】1月11日报道，皇家骑警发言人近日公开提出，应大力举报网络上出现的那些反政府和反执法的意见。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0112text-SC.png)
+校对：Stay文苑
 
-报道称，皇家骑警要求公众应提防那些质疑权威或持反政府观点的人，无政府主义和受“不满情绪影响的意识形态”应该受到当局监控。并同时鼓励加拿大人积极向警方报告相关事件和活动，以便后者能及时采取镇压行动。
+编辑：Stay文苑
 
-对此，有评论指出，鉴于当局如此容不得反对的声音，甚至恐惧人民的反政府意识，足以显示当下的特鲁多政府正在“极权主义”统治的道路上越走越远。
+发稿：Stay文苑
 
-* * *
+视频参看：[1.12  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61df8042a6dfdd6031537f85)
 
-原文链接：
-https://thepostmillennial.com/rcmp-tells-canadians-to-report-anti-governmental
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

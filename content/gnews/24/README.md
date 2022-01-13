@@ -2,31 +2,29 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月12日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1853059/)
+## 封城锁户的统治阶级正自吞罚果
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853071/)
 
-作者：香草山翻译部
+采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-22-edited.jpg)图片来源：CTV
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0112text-SC.png)
-校对：Stay文苑
+据媒体[美国信仰]1月11日发表评论称：人们目前已体会到封城锁户将给世界带来无法挽回的次生灾难，但各国”精英统治”阶级却仍然对儿童和其他弱势群体施加这种附加伤害并乐此不疲。
 
-编辑：Stay文苑
+文章指出，当局政府利用其巨大财力、行政权力和媒体公信力促使了以上悲剧的发生。但任何稍具常识的人都能预见到封锁措施所带来的虚假防疫效果比病毒感染更严重。
 
-发稿：Stay文苑
+目前，统治阶级已意识到人们的觉醒，此前一直服务于权贵的主流媒体开始转向，承认封锁和持续关闭学校正给所有美国人，特别是儿童造成永久性伤害。并企图通过“只肯定部分事实而否定所有真相”的欺诈，来重树其一贯的权威信任度。
 
-视频参看：[1.12  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61df8042a6dfdd6031537f85)
+同时，这些独裁者继续对病毒来源的质疑者和反对疫情控制规定、疫苗政策的不同意见者进行打压、禁言甚至污名化。历史一定会记住谁为掩盖真相而把人民推入灾难的深渊，又是谁为真理、生命和自由挺身而出并让儿童免遭精英阶级的蓄意戕害。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[No, Those Who Pushed Lockdowns Can’t Hide From The Consequences Now](https://americanfaith.com/no-those-who-pushed-lockdowns-cant-hide-from-the-consequences-now/)
+
+* * *
+
+
 
  
 
