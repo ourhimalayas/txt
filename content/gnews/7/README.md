@@ -2,32 +2,31 @@
 ---
 
 
-## 塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854120/)
+## 上海国企突然爆雷，26亿资金无法收回
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854127/)
 
-#### 整理报道：美哥
-编辑：小红帽
+**整理报道：**BENJ1
+**编辑：**BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)
+A股2022年的第一只“黑天鹅”出现。1月11日晚间，上海著名国企——上实发展曝出：子公司的26.15亿元应收款项存在部分不可回收风险，涉及融资性贸易。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
+1月11日深夜，上实发展突然发布一则公告：公司下属控股子公司上海上实龙创智慧能源科技股份有限公司（简称“上实龙创”）应收类账款事项开展自查工作，经初步自查，截至2021年12月31日，上实龙创的应收款项合计约26.15亿元，其中部分业务可能涉及融资性贸易，该类业务所涉及的应收类账款可能存在不可收回的风险，具体涉及金额公司正在加紧进一步核查。
 
+受此影响，1月12日开盘后，上实发展股价暴跌，盘中一度大跌超8%，最新总市值仅剩72亿元。
 
-1月11号，据PJ媒体报道，针对美国要在阿富汗喀布尔的美国大使馆部署2000个士兵的做法，塔利班国防部长毛尔维·穆罕默德·雅库布·穆贾希德（Maulvi Mohammad Yaqoob Mujahid）以牙还牙地在推特回应。穆贾希德声称：“如果美国部署2000个士兵在阿富汗大使馆，我们就从“法塔赫”武装部队挑选2000个“自杀式炸弹”，放在华盛顿驻美大使馆。这数量比美国国会的人还多。”
+据财报数据显示，2021年前三季度，上实发展的营业收入为51.1亿元，净利润仅有5.89亿元。一旦26亿元的应收款无法收回，几乎将吞噬掉其近3年的净利润。
 
-据中东媒体研究（MEMRI）报道，“自杀式炸弹”是塔利班特种部队“313巴德里作战营”（Badri 313 ）的“殉道武装”。313巴德里以《古兰经》中记载的巴德尔之役命名。在这场战役里，先知穆罕默德当时仅用313人便成功击败非信徒敌军。
+此次爆雷的上实发展是一家上海老牌国企，实控人为上海市国资委，其主营业务包括房地产投资、不动产经营、物业服务和智慧城市运营。
 
-由于美军在阿富汗的仓促撤军，塔利班真信徒被以少胜多的理论强化。美国政府的懦弱让他们备受鼓舞。作为圣战组织，他们认为非穆斯林世界一直要摧毁他们的唯一的真宗教，穆斯林世界将和不信真主的人进行长久的战斗。
+**参考新闻：**[突然暴雷！26亿资金危险了，这家上海国企栽了](https://cj.sina.com.cn/articles/view/6241116541/173ffe17d01900zmqd?sudaref=www.google.com.hk&amp;display=0&amp;retcode=0)
 
-“自杀式炸弹”在古兰经里面有支持的经文：“真主的确从信士那里买来了他们的生命和财富，因为花园将是他们的，他们将在真主的道路上战斗，将杀人和被杀”。
+*发布：BNEJ1*
 
-原文链接：Taliban Defense Minister Threatens to Put 2,000 Jihad Suicide Bombers at Afghan Embassy in DC
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

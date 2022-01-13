@@ -33,52 +33,52 @@
 ### [新中国联邦的唯一目标：灭掉共产党](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/7/README.md)
+### [上海国企突然爆雷，26亿资金无法收回](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/8/README.md)
+### [塔利班威胁在阿富汗驻美使馆放2千个自杀式炸弹](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印中就脱离边境举行会谈](/content/gnews/9/README.md)
+### [喜币是桥梁，链接有共同价值目标的人](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [印中就脱离边境举行会谈](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/10/README.md)
+### [中华历史上的立佛和五次灭佛以及莲花生佛七化身七菩萨](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/11/README.md)
+### [北京交管局要求当地居民在种族灭绝奥运期间不可接触涉奥车辆](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/12/README.md)
+### [华人都应该大胆说出共产党就是邪教Isobel就是邪教的传播者](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/13/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.530 HDO](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/14/README.md)
+### [普陀记于唐旺于明毁于明,清再毁再建民国旺终建于曾江](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特鲁多将加拿大出卖给了全球主义](/content/gnews/15/README.md)
+### [特鲁多将加拿大出卖给了全球主义](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/16/README.md)
+### [中国的水都是自西向东南流中国的乾隆八卦里东南是水位](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀](/content/gnews/17/README.md)
+### [陈全国胡春华胡锦涛信奉昆仑山的力量曾庆红相信南普陀](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [昆仑山是共产党权力的来源,驻军没有退伍没有属猪和属虎](/content/gnews/18/README.md)
+### [昆仑山是共产党权力的来源,驻军没有退伍没有属猪和属虎](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大好消息:共产党不会有二十大，共产党会被消灭在二十大](/content/gnews/19/README.md)
+### [大好消息:共产党不会有二十大，共产党会被消灭在二十大](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/20/README.md)
+### [人类面临重大挑战：政府绝对统治化人民永远被剥削](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [昆仑山几座主峰与盘古的距离关系和与数字七的特别关联](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [太阳系是一个人的身体，整个昆仑山脉是地球的一个脊椎](/content/gnews/22/README.md)
+### [昆仑山几座主峰与盘古的距离关系和与数字七的特别关联](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [颠覆美国——习近平搞砸中美关系（三）](/content/gnews/23/README.md)
