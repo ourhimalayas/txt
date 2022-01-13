@@ -27,65 +27,65 @@
 ### [七哥说“新中国联邦人就是有山川大地密码的人” （2022-01-09摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（下）](/content/gnews/5/README.md)
+### [七哥说“这就是我的经历，我对人生的理解”（2022-01-09摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（下）](/content/gnews/6/README.md)
  ` MOS香港部`
 
-### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/6/README.md)
+### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈属相（2022-01-09摘录）](/content/gnews/7/README.md)
+### [七哥谈属相（2022-01-09摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [七哥谈共产党是妖孽占龙山（2022-01-09摘录）](/content/gnews/8/README.md)
+### [七哥谈共产党是妖孽占龙山（2022-01-09摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [灭共者之郭氏情报站（十一）2022.01.09/2022.01.12](/content/gnews/9/README.md)
+### [灭共者之郭氏情报站（十一）2022.01.09/2022.01.12](/content/gnews/10/README.md)
  ` MOS Designer香草山设计部`
 
-### [2022-1-11愤怒的加拿大蒙城人民万众一心，走上大街用行动抗议疫苗政策](/content/gnews/10/README.md)
+### [2022-1-11愤怒的加拿大蒙城人民万众一心，走上大街用行动抗议疫苗政策](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥说“共产党的所有精神境界和文化都是一样的境界：无知、愚昧” （2022-01-09摘录）](/content/gnews/11/README.md)
+### [七哥说“共产党的所有精神境界和文化都是一样的境界：无知、愚昧” （2022-01-09摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [最高法院阻止拜登科对公司疫苗强制，允许医护人员强制疫苗](/content/gnews/12/README.md)
+### [最高法院阻止拜登科对公司疫苗强制，允许医护人员强制疫苗](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（上）](/content/gnews/13/README.md)
+### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（上）](/content/gnews/14/README.md)
  ` MOS香港部`
 
-### [安省基础医疗服务系统已不堪重负](/content/gnews/14/README.md)
+### [安省基础医疗服务系统已不堪重负](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/15/README.md)
+### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/16/README.md)
+### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/17/README.md)
+### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/18/README.md)
+### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共盗国贼贪腐程度骇人听闻](/content/gnews/19/README.md)
+### [中共盗国贼贪腐程度骇人听闻](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥谈五行（2022-01-09摘录）](/content/gnews/20/README.md)
+### [七哥谈五行（2022-01-09摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/21/README.md)
+### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/22/README.md)
+### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/23/README.md)
+### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥说“共产党这个邪恶到了极点，这是一个绝对的魔帮”（2022-01-09摘录）](/content/gnews/24/README.md)
- ` MG FARM`
 
 ### [荷兰人增加抵制新冠封锁措施](/content/gnews/25/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
