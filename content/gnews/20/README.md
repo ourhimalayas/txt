@@ -2,35 +2,72 @@
 ---
 
 
-## 加拿大魁北克省将对未接种疫苗者征收健康税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853219/)
+## Eglise医生关于Omicron病毒预防及治疗建议方案 &#8211; 更新版
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1853397/)
 
-【雅典娜快讯】，紧贴时事脉搏
+撰稿：Eglise
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9138b46d-dd55-46bf-8a81-7e498a2134d6.jpg)美工：女农
+**新冠预防及治疗建议方案Omicron更新版（均饭后服用）**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-920.png)**图片来源：iPolitcs**
+**一、预防新冠**
 
-**翻译：George Warshing**
-**编辑：文泓**
+**伊维菌素 + （黑孜然籽油，槲皮素和NAC ，三者至少选一）+ 锌 + 维C + 维D3**
 
-根据《RT新闻》1月11日报道，随着奥密克戎病毒的迅速传播，在加拿大魁北克省的中共病毒感染住院人数快速上升，未来几周需要增加1,000名医院工作人员和1,500名家庭护理人员。
+• **伊维菌素用量根据体重：第一周0.2mg /公斤,口服2日 (间隔48小时以上); 以后同剂量1次/周;   和/或黑孜然籽油 40mg/公斤体重/天；和/或 槲皮素 1000mg/日；和/或NAC 1000mg/日**
 
-鉴于病人激增的现状，魁北克省要求对未接种新冠疫苗的居民征收一项新的健康税。本周二省长总理弗朗索瓦·勒戈扬言在未来几周内对于拒绝接种第一剂新冠疫苗的人实施经济处罚。同时，魁省疫苗限制令的适用范围仍在扩大，原本只限于进入餐厅、剧院、酒吧和赌场等场所时需要出示疫苗护照，现在这一做法已经扩大到了酒类和大麻商店。
+• **锌25-40mg/日**
 
-当被问及政府可能因这项前所未有的税收而面临的法律和道德挑战时，省长承认此举是“大事”。他没有透露所征收的新税的金额。他认为这是借鉴了外国的处理措施，“你看看其他国家或州正在发生的事情，每个人都在努力寻找解决方案”。
+• **维生素C1000mg/日**
 
-然而，给该省的医疗保健系统带来压力的不仅仅是没有注射疫苗的魁北克人，事实上，大多数新的中共病毒患者都已完全接种了疫苗。
+• **维生素D3 5000IU/每日**
 
-据报道，在过去一天登记接受治疗的433名新患者中，[有](https://montreal.ctvnews.ca/quebec-reports-sharp-rise-of-62-new-covid-19-deaths-total-surpasses-12-000-1.5735469)117人未接种新冠疫苗，而290人注射了两剂疫苗。在新入住重症监护病房的患者中仅12人未接种疫苗，而17人接种了两剂疫苗。
+• **褪黑素 Melatonin  5-10mg/每晚睡前**
 
-**原文链接：**[Unvaccinated to face special tax in Canada — RT World News](https://www.rt.com/news/545747-quebec-to-tax-unvaccinated/)
+• **青蒿素保健品按需服用**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0cba871f-cca8-443d-8d00-c05fcc51f9b7.jpg)美工：女农
+**二、治疗新冠病毒感染轻或中症**
 
-*发布： 盘古相聚*
+**伊维菌素+ （黑孜然籽油，槲皮素和NAC ，三者至少选二）+锌+维C+维D   (轻 – 中度)**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+• **伊维菌素(Ivermectin, IVM) 0.4 – 0.6mg/kg体重/日, 5-7天,或急性期症状消失；和/或黑孜然籽油 80mg/公斤体重/天；和/或 槲皮素 1000-2000mg/日；和/或NAC 1200-2400mg/日**
+
+• **锌(zinc) 75 – 100mg/天**
+
+• **阿奇霉素(Azithromycin) 500mg, 1次/日, 5日；或强力霉素（脱氧土霉素）Doxycycline 100mg/次，2次/日, 5日**
+
+• **阿司匹林（Aspirin） 325 mg /日，2周以上**
+
+• 维生素**D3 5000-10000 IU /**日
+
+• **维生素C 1000mg/日**
+
+• **PEPCID（需要时，非处方抗胃酸药）20mg/次，一天1-3次**
+
+• **退黑素 Melatonin 5-10mg (每晚睡前)**
+
+• **如咳嗽，口服地塞米松 4-6mg/次, 2次/日； 或强的松20-30mg/次，2次/日，5-7天**
+
+• **如有咳嗽气促或气喘, 低浓度类固醇Budesonide雾化吸入；或自制10%NAC雾化液：10g NAC药片磨成粉 + 100ml 蒸馏水 = 10% 雾化药液 【任何年龄组均可酌情使用，化痰，镇咳】 **
+
+**第6-7天，如症状缓解，伊维菌素减量为0.4 – 0.6mg/kg体重/日， 2次/周(间隔48小时以上)**
+
+注意事项**:**
+
+1.** 服用类固醇激素（地塞米松，强的松等）时，停用阿司匹林**
+
+2. **土霉素（强力霉素等）、阿奇霉素是抗生素，得病后用**
+
+3. **青蒿素/伊维菌素可以解疫苗毒**
+
+4. **伊维菌素可以作为预防和治疗新冠感染。作为抗感染治疗，伊维菌素必须与抗生素（阿奇霉素或强力霉素）同时用**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/fe4f5471-6360-4447-b99d-ddfaee5b7853.jpg)美工：女农
+【免责声明】**本建议方案仅限于大众普及及使用，绝不可代替个人所需的专业医疗意见。如果您寻求医疗建议，诊断和治疗，请垂询您的专业医疗人士。仅阅读此建议方案及与Eglise医生的相关交流并不构成医患关系。对因此建议方案和交流而带来的任何风险及后果，您将自行承担。Eglise医生将不负任何责任。 **
+
+** 撰稿日期：01-09-2022**
+
+审核发布：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/PHOTO-2022-01-11-00-30-33.jpg)
+
 
  
 

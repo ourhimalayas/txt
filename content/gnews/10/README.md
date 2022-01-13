@@ -2,23 +2,46 @@
 ---
 
 
-## 中共的“一带一路”倡议延伸至中美洲
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1853436/)
+## 郭文贵和爆料革命新中国联邦是中共史无前例的谈话禁忌
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853507/)
 
-翻译：zzballack
-上传：追着曙光跑
+G-TV视频链接：[https://gtv.org/video/id=61df819587664c47acd3ea0c](https://gtv.org/video/id=61df819587664c47acd3ea0c)
 
-据《布雷特巴特新闻网》（Breitbart News）1月12日报道，中共官媒《环球时报》1月12日发文庆祝尼加拉瓜的左派独裁者丹尼尔·奥尔特加（Daniel Ortega）开始其第四个总统任期，将其视为中共“一带一路”倡议的一个重大胜利。尽管全世界民主活动家和美洲国家组织 (Organization of American States)纷纷谴责这是个被操纵的选举。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-13-at-12.42.36-1.jpeg)图片来源：原新闻
-《环球时报》说中共总书记习近平对同为独裁者的奥尔特加的连任表示支持和赞叹，认为这是全球政治调整的标志，因为北京的影响力已深入到美国的拉美“后院”。中共人对尼加拉瓜断绝与台湾的外交关系，转而拥抱北京感到高兴。奥尔特加在参加总统就职仪式前，在与中共特使曹建明的会晤中表态他“完全支持并愿意加入’一带一路’倡议和全球发展倡议（GDI）。
+**郭文贵先生：**绝对是对的啊！我这个夹克看到了没有？共产党每个人要弄一个的夹克，咱也有，新中国联邦的夹克。看看这Logo，你看这Logo多酷。这料子简直是绝了，你看这块儿，是吧？咱能把这个共产党穿着土到家的这个夹克衫儿，咱能整出咱的时尚，咱们以后开咱新中国联邦常务会的时候，一人穿一个这个夹克，共产党都得自杀，我跟你们说，全都自杀。就是人家咋能穿着这么好看呢，是吧？
 
-全球发展倡议是中共利用它向世界释放的大流行病来扩大其经济影响力的努力。GDI也是中共国这个世界上污染最严重的国家为配合气候变化运动所做的努力，利用它推动所谓“绿色能源”产品的销售，而这些产品恰好是由中共国制造的。
+你看看这料子是吧？你看看这里边儿，你看看，你看看这里子，看看这！就这个衣服绝对是一万美元以上的这个衣服，咱新中国联邦人都穿得起，未来，都穿得起。你看看，共产党啥时见过这种料子是吧？Scabal的料子，它们全都是化学的料子，而且这夹克衫儿，现在像胡春华一样，戴个墨镜，装记笔记，装神弄鬼是吧？咱们可以很精气神儿是吧？不用像栗战书、胡春华、韩正这些人在弄。
 
-尽管如此，拉美国家仍支持台湾和听信美国有关中共的计算机和电信硬件设施安全问题的警告，这让中共感到愤怒。据报道，美国官员一直在向拉美国家施压，要求它们出于对中共涉嫌“监视活动”的担忧，应照搬华盛顿将华为排除在5G网络之外的决定。一位专家说，出于地缘政治的考虑，美国不仅应阻止该地区的国家与中共建立外交关系，还应设置条件，限制中共公司在该地区开展业务。
+我要告诉大家，刚才猫本小哥问的这问题非常非常好。我们对待共产党的这个战略战术当中，我们一定要明白一个最核心的问题，就是：现在共产党和我们之间的这个较量，它不想面对甚至都，就共产党高官当中谁都不敢谈“郭文贵”这字儿。你看看中国人在历史上不能谈的几个人名字的人，其中有几个像郭文贵这样？近代有李洪志、法轮功的创始人李洪志先生，是吧？达赖喇嘛先生，是吧？但是“新中国联邦”这个词儿是共产党有史以来不允许谈的，中国法轮功可以谈，是吧？西藏可以谈，新疆也可以谈，但是“郭文贵和新中国联邦”、“新中国联邦爆料革命”和这事绝对不能谈，历史前所未有。
 
-中共的独裁者力图塑造21世纪的新世界秩序。他们的愿景是，暴君们可以不惜一切代价维持权力—-甚至像中共那样实施种族灭绝和迫使少数民族成为奴隶。因此像奥尔特加这样的暴徒宁愿选择中共的权力轴心、也不愿接受西方文明社会的要求一点也不奇怪，因为西方文明反对通过将所有其他候选人扔进监狱来“赢得选举”。
+我们不仅在时尚，我们不仅在整个病毒大流行，不仅在数字货币，不仅在金融，我们更重要的，刚才大家最后一句话来总结，跟共产党这个较量真的是天地之间、正义和邪恶、有神论和无神论，到底儿地球是一粒沙呢，宇宙无限大呢？还是共产党就是天就是地，他就是太阳，爹亲娘亲不如党亲呢？共产党是万岁万岁万万岁！永远不死是吧？它一共才100岁，它就是万岁万岁万万岁了是吧？
 
-新闻来源：[China’s Belt and Road Reaches Central America](https://www.breitbart.com/latin-america/2022/01/12/chinas-belt-road-reaches-central-america/)
+字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

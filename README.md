@@ -15,101 +15,101 @@
 
 ---
 
-### [郭文贵和爆料革命新中国联邦是中共史无前例的谈话禁忌](/content/gnews/1/README.md)
+### [EMA警告：频繁的加强针对免疫反应不利](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [哈萨克是新中国联邦走向东欧里程碑接下来是乌克兰等国](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [因经营亏损，JR西日本将进行大规模重组](/content/gnews/2/README.md)
+### [美国CDC预测下个月新增COVID-19死亡病例62000例](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [不要无知](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球上周新增中共病毒确诊病例约1500万](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
+### [哈萨克纳扎尔巴耶夫和他女儿卡丽娜必蹈齐奥塞斯库覆辙](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [立陶宛议员称将与台湾站在一起，不会让中共国决定自己的命运](/content/gnews/4/README.md)
+### [关于1000天送棺灭共行动](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花灭共诗——立春抒怀](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国各地抗议埃马纽埃尔-马克龙的疫苗限制计划](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党用商鞅五策统治中国人](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
+### [七哥何以从孩提时代即洞穿邓小平以两个凡事斗争的秘密](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [核酸检测后患乙流，39周孕妇被赶出国际妇婴院](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
+### [郭文贵和爆料革命新中国联邦是中共史无前例的谈话禁忌](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [违约逾期支付商业票据的中共国房地产商数目激增](/content/gnews/7/README.md)
+### [因经营亏损，JR西日本将进行大规模重组](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世界反兴奋剂组织也发出警告 冬奥选手吃中共国肉制品有风险](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全球上周新增中共病毒确诊病例约1500万](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/8/README.md)
+### [立陶宛议员称将与台湾站在一起，不会让中共国决定自己的命运](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [共产党用商鞅五策统治中国人](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [核酸检测后患乙流，39周孕妇被赶出国际妇婴院](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [共产党如何画大饼，冬奥会彻底失败后房地产成垃圾](/content/gnews/9/README.md)
+### [共产党如何画大饼，冬奥会彻底失败后房地产成垃圾](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的“一带一路”倡议延伸至中美洲](/content/gnews/10/README.md)
- ` 首尔天池农场`
-
-### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，新中国联邦将全力营救他们](/content/gnews/11/README.md)
+### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，新中国联邦将全力营救他们](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [Eglise医生关于Omicron病毒预防及治疗建议方案 &#8211; 更新版](/content/gnews/12/README.md)
+### [Eglise医生关于Omicron病毒预防及治疗建议方案 &#8211; 更新版](/content/gnews/20/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [1/12/2022 文贵直播：假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界](/content/gnews/13/README.md)
+### [1/12/2022 文贵直播：假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [盗国贼的钱谁说了算？](/content/gnews/14/README.md)
+### [1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国](/content/gnews/22/README.md)
+ ` 秘密翻译组-北美组`
+
+### [1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [去年11月，加拿大早于南非发现奥密克戎病毒](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [去年11月，加拿大早于南非发现奥密克戎病毒](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全面清零现恶果，高盛下调今年中共国经济增长预期](/content/gnews/18/README.md)
+### [全面清零现恶果，高盛下调今年中共国经济增长预期](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共盗国贼贪腐程度骇人听闻](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大魁北克省将对未接种疫苗者征收健康税](/content/gnews/20/README.md)
+### [加拿大魁北克省将对未接种疫苗者征收健康税](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国天津市爆发疫苗灾难](/content/gnews/21/README.md)
- ` 扬帆枫叶快讯`
-
-### [强制接种是对加拿大宪章和自由的践踏](/content/gnews/22/README.md)
- ` 扬帆枫叶快讯`
-
-### [浅谈昆仑山龙脉（二）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/24/README.md)
+### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [1/05文贵直播：中共灭亡前房价不会暴跌，也不会让粮价暴涨（粤语配音）](/content/gnews/25/README.md)
+### [1/05文贵直播：中共灭亡前房价不会暴跌，也不会让粮价暴涨（粤语配音）](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国宏观税负 早在2016年便高达百分之34.8](/content/gnews/26/README.md)
+### [中共国宏观税负 早在2016年便高达百分之34.8](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [为举办冬奥会 中共政治斗争激烈 地方政府极力掩盖灾难真相](/content/gnews/27/README.md)
+### [为举办冬奥会 中共政治斗争激烈 地方政府极力掩盖灾难真相](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共“清零”画皮被揭下 多地即将大戒严](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [加拿大阿省卫生官承认ICU数据造假](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [新冠溯源：美国国会欲调查福奇是否隐瞒信息](/content/gnews/30/README.md)
+### [新冠溯源：美国国会欲调查福奇是否隐瞒信息](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [封城锁户的统治阶级正自吞罚果](/content/gnews/31/README.md)
+### [封城锁户的统治阶级正自吞罚果](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [浅谈昆仑山龙脉（一）](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [GTV新闻访谈简报|2022年1月12日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
