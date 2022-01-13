@@ -2,31 +2,78 @@
 ---
 
 
-## 七哥谈“共产党争夺二十大的一种大屠杀的开始”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852725/)
+## 共产党的以非灭美以非灭白，其实就是风水之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
 
-来源：郭先生2022-01-09直播09：18：15摘录
+**郭文贵**
+Miles Guo
 
-政治镀金，同时也是个非常险恶的地方。刚刚的所谓这五个大内阁、二十大最核心人物出来就出这事儿，它不是人为的，我认为这是天意是偶然，而且也开启了共产党争夺二十大的一种大屠杀的开始。接下来会是谁？陈全国、胡春华、丁薛祥都会有这样事发生。所以我才上次直播、上上次直播，两次以前我说，兄弟姐妹们这个名单的公布和江湖上的流传，即是“试金石”同时也是最后的一场战争完最后就剩下几个人了。看谁能决胜负，咱能分两派，站出来吧，对决的时候。这对决的时候你一看有两种人，一种是一定要你死在战场上，不允许你回去的，那就把你弄出去、去战去。一种我要在这选出一个王子出来，选出个继承人出来，那就要最后倒下的全都不行，那就是王者行。共产党的二十大是什么？送出去的人可能希望都死掉， 因为决定谁出去参战的人可能是唯一活下来的人，因为他不用在战场当中。这时候就看出来最后的决战是习、曾。所以重庆还有二十大的名单出来，就开启了习、曾之战。大家就在这儿看吧，新中国联邦在这就遇到了昆仑神呐、喜马拉雅山神呐！我天天在那儿念叨念叨，说帮我是吧！所以说很有意思。听我讲完这个以后，七哥可不是神神叨叨。你们好好看看《山海经》、《三新通论》。然后研究研究昆仑山脉、喜马拉雅山脉就知道为啥我们爆料革命第一个追求是喜马拉雅的目标。盘古为什么习近平在冬奥会前、二十大的六中全会前，一定要把“龙头”变成“包头”、包成“鸟头”，它不是开玩笑的，为什么一国之力要弄一个大玉的印戳？头两天我听说这个戳花了不少钱这个印，取自昆仑山 这个绿玉，一大块绿玉， 让他们给碎了，挖下去刻上郭文贵生辰八字。
+它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+然后把非洲人送到了哪去了，把非洲人送到了欧洲去
+then where did they send the Africans? the Africans were sent to Europe
 
-**关注我们**
+非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
+The Africa’s so-called illegal immigrants, then incite African Americans in America
 
-Discord 账号
+闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
+to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+你见中共用黑白过，它认为黑为水，白为金，是吧
+You have seen the CCP use black or white, it believes that black is water and white is gold, right?
 
-Gettr 账号
+在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
+Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
+It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
+
+东边是什么？东方为绿色，为木色，南边为火，南为火
+What’s the east? east is green, wood color, south is fire
+
+它发现我得怎么干，我要把整个的能烧掉你金的五行当中
+It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
+
+南方的就是黑，黑人，非洲的火烧你的金，炼你的金
+the south is black, black people, and the fire of Africa burns your gold and refines your gold
+
+利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
+Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
+
+以土为多的国家，然后在那装擀面杖子
+earth-based country, and then pretend to be strong there
+
+就是共产党的所有精神境界和文化，都是一样的境界
+It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
+
+无知、愚昧，它本身就不平衡，它硬整出来的平衡
+ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
+
+这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
+This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
+
+**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
+
+Date: 01/11/2022
+原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
+The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
+原视频日期：2022/01/09
+原视频链接 https://gettr.co/post/pnef2s2d7a
+任务编号：KC409（3459）
+视频时间段 : 0:00-1:51
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

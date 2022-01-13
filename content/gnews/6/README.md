@@ -2,78 +2,24 @@
 ---
 
 
-## 共产党的以非灭美以非灭白，其实就是风水之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
+## 有信仰和没信仰之间一个大PK的时代
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1852819/)
 
-[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
+共产主义和西方的资本主义 是大PK你是挡不住的。资本主义的贪婪的金钱，共产主义的所谓的集权主义，它给人类带来的无知。无知和贪婪之间，到底谁能战胜谁能参与，这最后谁有信仰谁没信仰。
 
-**郭文贵**
-Miles Guo
+**【郭先生直播摘要】**** 2022.1.5 ****有信仰和没信仰之间一个大**** ****PK ****的时****代**
 
-它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
+**郭先生：**
 
-然后把非洲人送到了哪去了，把非洲人送到了欧洲去
-then where did they send the Africans? the Africans were sent to Europe
+这个世界上到了一个什么，有信仰和没信仰之间一个大 PK 的时代。这是从2017年爆料我就说。这个人类到了一个真的是贪婪，没有信仰，没有上帝，认为自己是上帝的时候。这个世界一定会出大事的，这个就你看的有信仰没信仰，有信仰的人相信上天，他基本的逻辑是要有的，还有一个贪生怕死。所有绝大多数人，是因为无知和贪生怕死。刚才你们的父母打了这个疫苗三针四针。绝大多数人，是他习惯了这种和平的，不分好坏不分善恶，不辨真假不明善恶的一个结果。
 
-非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
-The Africa’s so-called illegal immigrants, then incite African Americans in America
+还有个贪生怕死在我们身边，很多事情你可以看到都是自私的结果。不要说别人，你我就今天在屏幕上我们每个人都自私，只是重量程度不一样而已。我们的父母我们的家人我们的兄弟姐妹，我们的儿女，在大是大非面前很多人都是自私，包括对待父母，包括对待自己的兄弟姐妹，自己的面子绝对重要。在自己的所谓好说不好说面前，爹妈都可以不要，兄弟姐妹都不要，夫妻感情都可以不要。在我们身边就包括你们每个人包括我，在我和他之间甚至忘掉了亲情。
 
-闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
-to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
+人类从来没有像今天，享受过这么长的和平，享受这么好的文明，但是人类从来没像今天这么自私。你如果讲大的讲 ，就是上天真的该要收走一批人了，人类到了自私到已经不能再存在的地步。懦弱到不能再存在的地步，很多人已经狂妄到了一种无法想象的地步。这个时候要看到第二个问题，共产主义和西方的资本主义 是大PK，你是挡不住的。资本主义的贪婪的金钱，它有很多文明，很多教育。共产主义的所谓的集权主义，它给人类带来的无知。无知和贪婪之间，到底谁能战胜谁能参与，这最后谁有信仰谁没信仰。
 
-你见中共用黑白过，它认为黑为水，白为金，是吧
-You have seen the CCP use black or white, it believes that black is water and white is gold, right?
+这就是第二个问题，就是人类的各种主义的 pk。第三个，人呐，在这个世界上要面临一个前所未有的最可怕的，各种种族之间所有历史上留下的文化冲突地域灾难。各个方面这次都要经历了大PK，然后就轮到我们个人，我们个人之间的信仰和教养，和所谓的因缘轮回。你挡不住的，回答你们所有的问题。
 
-在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
-Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
-
-就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
-It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
-
-东边是什么？东方为绿色，为木色，南边为火，南为火
-What’s the east? east is green, wood color, south is fire
-
-它发现我得怎么干，我要把整个的能烧掉你金的五行当中
-It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
-
-南方的就是黑，黑人，非洲的火烧你的金，炼你的金
-the south is black, black people, and the fire of Africa burns your gold and refines your gold
-
-利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
-Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
-
-以土为多的国家，然后在那装擀面杖子
-earth-based country, and then pretend to be strong there
-
-就是共产党的所有精神境界和文化，都是一样的境界
-It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
-
-无知、愚昧，它本身就不平衡，它硬整出来的平衡
-ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
-
-这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
-This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
-
-**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
-
-Date: 01/11/2022
-原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
-The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
-原视频日期：2022/01/09
-原视频链接 https://gettr.co/post/pnef2s2d7a
-任务编号：KC409（3459）
-视频时间段 : 0:00-1:51
-
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：CG. | 听写：雨山溪桥客 | 翻译： Belle | 校对：Polaris | 视频制作+字幕：CG.  | 编辑&发布：断播
 
  
 

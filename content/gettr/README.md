@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 12:33 AM (UTC)`
+
+1/12/2022 Miles Guo: The fundamental purpose for the CCP to implement the “zero-COVID” policy in Xi’an, Tianjin, and Zhengzhou is to lock the people up in their homes so that the CCP can tighten their grip on the Chinese people and legitimately kill them with the virus, and such practices will be implemented in the rest of Communist China as well. The CCP’s gathering people to do nucleic acid testing together has greatly increased the spread of the virus.<br/><br/>1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国；中共搞集中检测大大加剧了病毒的传播<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/13/00/7f7fe5a4-989d-4e30-b96b-c6aaf3c0ae5f/out.jpg)
+
+---
+
 `@miles 1/12/2022 9:15 PM (UTC)`
 
 2022年1月12日 文贵大直播：伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况；疫苗灾难和新变种病毒的感染数据；
@@ -156,13 +163,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1/10/2022 Miles Guo’s GETTR: The CCP has been treating the Lao Baixing as animals, and it is so pathetic that the Chinese people have never questioned whether or not what the CCP is doing is reasonable and legitimate. Don’t equate your everyday life with mystics. Instead, we should follow the rules of nature. We shall live a better life after the CCP is taken down!<br/><br/>1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法；不要把生活和玄学划等号，要尊重大自然的规律，灭共后我们要过上更美好的生活！<br/>
 ![img](https://media.gettr.com/group31/getter/2022/01/10/23/5b65d6c4-0445-f421-aee9-0f984aba484b/out.jpg)
-
----
-
-`@miles 1/10/2022 11:11 PM (UTC)`
-
-1/09/2022 Miles Guo: Both Jiang Zemin’s faction and Zeng Qinghong’s faction deeply believe in the “Dragon” theory; the CCP is so superstitious about the idea that the Human Realm locates at South Putuo in Zhoushan and that the gods of heaven and earth live in the Kunlun Mountains and the Himalayas. Therefore, as long as the CCP exists, it will never allow Tibet or Xinjiang to become independent!<br/><br/>1/09/2022 文贵直播：“海派”江家、曾家相信“龙”，中共极为迷信人间道就在舟山南普陀，而昆仑山和喜马拉雅山住着天地之神，所以只要中共在，就绝不会让西藏、新疆独立！<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/10/23/468ad62c-da0b-7ca8-41fe-96293c86d8cb/out.jpg)
 
 ---
 

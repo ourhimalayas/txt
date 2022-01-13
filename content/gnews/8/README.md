@@ -2,50 +2,31 @@
 ---
 
 
-## 爱尔兰部长：有信心从2月起放松对中共病毒的限制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852733/)
+## 七哥谈八字生辰（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852793/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2022-01-09直播09：20：29摘录
 
+这个印取自昆仑山这个绿玉，一大块绿玉， 让他们给碎了，挖下去刻上郭文贵生辰八字。非常可笑的是我爹、我娘都不知道我生辰八字，他怎么知道我生辰八字是不是？我爹、我娘都不知道我到底啥时候出生的。护照上68年，真实的户口本70年。我到了二十七、八岁还问你七嫂子呢“去年属狗，今年该属啥呀？” 你七嫂子笑得不行了。我到30岁我还不知道一生只有一个属相。30岁了，我知道去年属狗，那今年属啥呀？我都不知道我的生辰年日，而且到了40岁的时候，竟然跟我一起出生的找到我说“咱俩是一年一月生、同年同月生的。” 然后我一个叫姑姑的人，结果是她就是70年的7月份出生的。跟我的出生年月日又差了好多了，所以说他咋把我的生辰八字刻上去？但你可见共产党它有多迷信。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T111316Z_1_LYNXMPEI0B0FZ_RTROPTP_0_HEALTH-CORONAVIRUS-IRELAND_1.jpg)2021年12月17日，在爱尔兰都柏林，在冠状病毒病（COVID-19）大流行的情况下，人们在外出进行圣诞购物时戴着防护口罩。（REUTERS/Clodagh Kilcoyne）
+Gettr 账号
 
-爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
-
-政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
-
-副总理里奥·瓦拉德卡（Leo Varadkar）周二表示，限制措施可能会分阶段放宽。此前，政府首先取消了最近实施的限制措施，之后会每隔两到三周进一步重新开放经济。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

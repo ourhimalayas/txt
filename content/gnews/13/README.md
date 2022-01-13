@@ -2,54 +2,31 @@
 ---
 
 
-## Visa调查结果：九个国家的小企业计划提供加密货币支付
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852693/)
+## 七哥谈曾庆红（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852716/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2022-01-09直播09：14：15摘录
 
+我为什么要谈重庆呢？我们曾经都谈曾庆红，曾庆红绝对我认为这是中国活着的人当中、喘气儿的、包括老江，第一高人。十个习近平加上今天七个常委，再加上现在刚出来这五个人，他也不是曾庆红的对手。就刚才讲的昆仑山脉、整个喜马拉雅的玉女峰、整个昆仑峰、卡兹玛峰（同音），和整个的喜马拉雅7770米的神峰、到整个重庆、到整个成都、到九寨沟、到长江、到黄河、到南普陀、到福建、到台湾，河流之间能顺手一抓，能把这河流的人脉，说在昆仑山脉居住着6亿，在西藏的水流居住着6亿人，周围大概有12亿人。 然后加上中国将近二十几亿人的分布，只有曾庆红能说出来，没有人能说出来的。谈《山海经》、谈整个说《三新通论》（疑：《三命通汇》为明朝万明英著，下同），老万、万心什么方了？写整个《三新通论》为什么写出来？哪行，哪不行？然后怎么生产出来所谓中国的这些《奇门遁甲》这些书，曾庆红几十年前给你搞得明明白白。曾庆红不会让人去对重庆陈敏尔动手 ，曾庆红对陈敏尔说过一句话，陈敏尔最后一定自己把自己毁了。很早以前当时跟习在江浙时候，搞什么“习思语”的时候，不用在乎他。最早对薄熙来说过，薄熙来进了重庆不会再出来的。 孙政才多往曾家巴呀，结果曾就告诉他身边儿的人，当时陈鑫他的秘书说“此人没有未来，少见为妙”。 对王岐山说“既不要反，也不要近他”。孟建柱是江家的杀手，但是他对孟和所有家人都说“孟这个人只能用，千万不能亲近”。对韩正是怎么说法？说“韩正这个人能帮则帮，但是千万不要用他”。就是能帮就帮，你成了我就帮，千万不要用你。曾庆红之奥深，这些都不能比。我再给你们说每年一个特殊的时辰，你们知道特殊时辰，千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间是什么时间？中国只有曾庆红，几代政府从毛泽东时期由周恩来去。毛泽东时期以后只有一个曾庆红亲自去；亲自到南普陀的只有曾庆红；到西藏的只有曾庆红；到整个龙之头、到整个东南的只有曾庆红。到泰山的只有曾庆红和曾庆红送去的江泽民。我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官能说出个1、2、3出来的。排在第一个水平是曾庆红，第二个是胡锦涛。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[ONA网站](https://www.oann.com/a-quarter-of-small-businesses-across-nine-countries-plan-to-offer-crypto-payments-visa-survey/)援引路透社1月12日报道，Visa 公司的一项调查显示，全球九个国家近四分之一的小企业计划在2022年接受数字货币作为一种支付方式，而这些国家13%的消费者预计其所在国的零售商店将在今年及以后开始提供加密货币支付。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T120240Z_1_LYNXMPEI0B0HV_RTROPTP_0_CRYPTO-CURRENCIES-PAYMENTS_1.jpg)在2021年11月28日拍摄的这幅插图中，可以看到虚拟加密货币。（REUTERS/Dado Ruvic/插图）
+Gettr 账号
 
-Visa公司对美国、巴西、新加坡，加拿大，德国、爱尔兰和俄罗斯等九个国家的2250名小企业主的调查表明，加密货币可能将开始成为主流的支付手段。全球近四分之三的受访企业表示，接受新的支付形式是其业务增长的“基础”。
-
-Visa 在对这些国家的成年人进行调查后认为更多的人对加密货币感到更有信心。
-
-Visa发现，在阿拉伯联合酋长国、香港、新加坡和巴西，超过30%的小企业商户计划在未来几个月为客户提供使用加密货币付款的选项。尽管这些国家的法规各不相同，但数字货币在这些司法管辖区都已经起飞。
-
-相比之下，美国19%的小企业和加拿大仅8%的小企业预计在2022年提供加密货币作为支付选项。
-
-尽管加密货币在零售和专业投资者中的受欢迎程度不断上升，但并没有被广泛用于支付商品和服务，部分原因是其价值波动频繁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
