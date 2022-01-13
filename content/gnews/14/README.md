@@ -2,36 +2,38 @@
 ---
 
 
-## 加州推行阳性无症状感染者无需隔离政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1855508/)
+## 更多美国公司削减感染中共病毒员工带薪病假
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1855509/)
 
-作者：银河勇气星 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月11日，据当地媒体消息显示，由于奥密克戎病例的激增，加州洛杉矶医疗系统濒临崩溃，该地区医护人员目前严重不足。为此，加州公共卫生部当天发布指南称，中共病毒确诊但无症状的感染者可立即返回相关工作岗位且无需经过隔离或检测。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-13.jpg)
-对此，该州的三名护士及护士工会的负责人在指南发布后表示了强烈抵制。护士们强调，加州政府发布的此条指南是蛮横和危险的，其原因在于，感染了中共病毒的医护人员继续出现在工作岗位上会导致整个工作区域的污染，这将使医院变得极为不安全，更加重了奥密克戎变种的感染和传播率。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-值得注意的是，两周前，加州政府明确规定，拒绝接种中共病毒疫苗的医护人员将被强制解雇或停职 ，其后，该强制政策还被延伸至疫苗加强针的接种工作上。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/艰苦户籍科.jpg)图片来源：CNBC
 
-评论人士则指出，加州政府宁愿选择阳性染疫的医护人员，也不允许未接种中共病毒疫苗的健康医护人员返回工作岗位，这样的做法既不合常理，更违反医护人员的从业道德。
 
-参考链接：
-1) . [LA County nurses rip new state Covid quarantine guidelines](https://www.courthousenews.com/la-county-nurses-rip-new-state-covid-quarantine-guidelines/)
-2) . [只接种两针不够！加州要求医护人员强制接种加强针](https://posts.careerengine.us/p/61c37fe023025b11479f52b3?from=latest-posts-panel&amp;type=title)
+翻译：George Warshing
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+当地时间1月12日，据RT电视台报道，在稍早时间美国疾控预防中心（CDC）基于各大公司对于员工短缺的抱怨，而发布了新的带薪休假政策，将病毒感染者的隔离期由原先的10天缩短到5天。此后各大公司纷纷跟进。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+零售业巨头沃尔玛将处于密切接触隔离或病毒检测阳性的员工的带薪病假缩短至一周；电子商务集团亚马逊于1月8日宣布，感染者的带薪病假时间不是两周，而是最多只有40小时。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+随即，美国最大的两家药店——沃尔格林靴子联盟和CVS健康药房连锁店也做出了同样的事情。本周二宣布，将为所有接种疫苗且病毒检测呈阳性的全职和兼职员工只提供五天的带薪休假。
+
+在航空界，边疆航空和精神航空仍会为病毒检测呈阳性的员工提供10天的带薪病假，而联合航空公司本周表示，将不得不进一步修改其日程安排，因为大约4%的美国工作人员仍因感染中共病毒处于休假状态。
+
+美国达美航空公司于12月28日将感染中共病毒的病假缩短至五天，如果员工在第五天再次检测呈阳性，则再延长两天。然而，上周有报道称，达美航空告诉其员工，他们应该在仍然发烧或家中有人检测呈阳性的情况下来上班。对此，达美航空抨击这些报道是“诽谤”。
+
+新闻链接：[More US firms cut paid Covid-19 sick leave — RT Business News](https://www.rt.com/business/545768-us-pharmacies-cut-covid-sick-leave/)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

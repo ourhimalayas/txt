@@ -2,40 +2,64 @@
 ---
 
 
-## 去雍和宫烧香的年轻人
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1855244/)
+## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
 
-文：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/jcr-content.jpg)雍和宫 / 图源：网路
-人从灵魂上不分年轻和老，只是因为年龄变化，生理变化，才有了年轻和老的分别。民间习俗里有大年三十儿半夜子时零点烧头香的传统，来保佑这一年的平安。但是，普通老百姓，就算再有钱，雍和宫的头香你都烧不上，就连中南坑的常委那都得往后排队，得按照级别来烧香。别说雍和宫了，其他的庙那个头香都不是想烧就能烧的。很多香火旺盛的寺庙，越到年底越是忙碌，人们开始休假了，有新年愿望的都跑到庙里去拜一拜，鼎沸人群，一波儿又一波儿，香炉满了又满，求签问卜的各位大师笑开了眼，和尚更是油光满面。
+2021年12月1日 ~ 2022年1月12日
 
-中共国的老百姓长期处在共产党的欺压之下，不能大哭不能大笑，每日活得战战兢兢提心吊胆。中共病毒以来，更加把共产党的商鞅驭民之术发挥了到了极致，春秋时期诸子百家已经在讨论废除人祭，并且还讨论社会的养老问题，到了两千多年以后的今天，共产党的昆仑山祭坛还在献祭年轻孩子，拿活人祭祀，更别提什么养老了，王岐山说让中国人都去吃草，永远不能有社会保障系统，有了这个保障，还怎么维护共产党的邪恶统治呢？活人祭祀已经丧心病狂，共产党这魔鬼还继续扼杀中国56个民族的人命，在新疆西藏香港乃至全国搞大屠杀，一个一个无辜可怜的老百姓，或者像杨改兰那样去自杀，或者像新疆集中营香港的孩子那样被强奸被杀，或者像河南恶意泄洪死在隧道和地铁里，或者就直接死于共产党投放的新馆病毒和强制接种的新冠疫苗。一万种死法，总有一种适合你，中国老百姓活不能好好活，死都不能得好死，中国这片大地处处充满了诅咒。
+iTunes：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/601b99be155da.jpg)图源：网路
+MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
 
-寺庙的存在似乎让重重压力下的老百姓得到了一些蔚籍。有什么痛苦，有什么难过，或者有什么不能说的话，你都可以给菩萨说。庙的门外还有很多到处给人解惑的大师们，花点钱就能得到一场关于算命和来世或者是灵魂的心灵鸡汤，准或者不准，给钱出去总会让人安心，毕竟庙门口大幅标语写着，广施恩惠，普度众生，度不度不知道，到底什么样才叫做众生？也许广施恩惠就可以做众生，就可以得到度化。给钱，就是施恩惠罢。所以不管有什么怨怒也不能在寺庙门口撒气，这像是一种约定俗成的规矩。并且寺庙里面巨大的钟声和香火的气息扑鼻而来，总能给烦恼中的人带来一丝平静。每一个来到寺庙的人心里已经处处彷徨，根本没什么心情去关注他人，到处都是阿弥陀佛，菩提袈裟，鸽子乌龟，假山傍水，佛门清净之地是尘世间的避难所，仿佛进了这个庙门口，再出去的时候，烦恼都会跑掉。
+MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
 
-老年人活不久了，总是觉得自己怎么还老不死的，来求菩萨保佑儿子女儿，保佑小孙子小孙女，拿一炷香拜过菩萨，走出庙门，天还是那个天，回家的路也还是那一条。老年人因为退休的多，空闲时间多，来庙里就跟逛街一样，来得次数多了，菩萨显灵了没有？没有的话就去得再勤快点。给庙里多送点钱，送点值钱东西，一把老骨头了，身后已经踏入黄土，自己的一切都愿意拿出来给后代，只愿他们能活得好一点。
+Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
 
-年轻人们想要去寺庙的愿望一点不比老年人少。只是平时要打工，忙忙碌碌，自己上班寺庙上班，自己下班寺庙也下班，只有瞅准周末早点起床，毕竟那些香火旺盛的寺庙在周末是人挤人的，敬香很困难。打工一族的休息日有时候只有一天，这天既要用来补充严重缺乏的睡眠，也要抽出大半天的时间去拜庙，去和大师交流心事，得到一些开解，运气好还能碰上庙里的免费斋饭。吃一顿素饭，心里都安稳不少。但拜庙以后许过的愿一直都未曾实现，一次一次地去，一次一次地跟菩萨泪流满面。人间怎么这么苦，菩萨你听到了吗？如何得到解脱？年轻人们总是有各种各样的烦恼，因为共产党把年轻人的血槽都抽空了，女人当男人用，男人当畜生用，一辈子买不上一个房子。社会上浮夸的炫富和洗脑，年轻人去拜庙最大的好处是能给庙里带来收入。
+Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/813940d9d05b4926be44d22e617ba374.jpeg)图源：网路
+Billboards公告牌榜:
 
-七哥直播说灭共以后要把万佛万神迎回中华大地，可想而知，中国大地，现在没有神佛，庙里的菩萨就只是雕刻精美的石像，石头。怪不得无论是老年人还是年轻人，拜庙许过的愿都没能实现。雍和宫里常年香火旺盛，拜庙之人络绎不绝，人人都来给石像敬上一柱香，给石像满上功德箱，现在随着各种电子支付的发达，有的甚至不再需要功德箱了，你给菩萨的心意可以扫描二维码，输入你的数字，点支付，扫描面部，好了，支付成功，感谢缘主，阿弥陀佛。众生皆苦，就算自己连饭都吃不起了，给菩萨的钱照样没少，年底了经常还会攀比，查看账单，去年给菩萨打了多少钱？
-
-上天显灵，有人去抓住了那个迹象，然后去action，action，action，让天机降落在人间。比如那几家银行用7作为2022年的开屏画面，雍和宫今年不要再迎接中南坑的头香了，准备好几口棺材吧。
+Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
 
 * * *
 
-作者：骄子
-发布：骄子
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
+* * *
 
- 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
 
- 
+
+[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
