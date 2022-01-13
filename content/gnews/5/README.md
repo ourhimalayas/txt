@@ -2,43 +2,36 @@
 ---
 
 
-## 秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1855414/)
+## 加州推行阳性无症状感染者无需隔离政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1855508/)
 
-**翻译/撰稿：zzballack**
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月11日，据当地媒体消息显示，由于奥密克戎病例的激增，加州洛杉矶医疗系统濒临崩溃，该地区医护人员目前严重不足。为此，加州公共卫生部当天发布指南称，中共病毒确诊但无症状的感染者可立即返回相关工作岗位且无需经过隔离或检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-13.jpg)
+对此，该州的三名护士及护士工会的负责人在指南发布后表示了强烈抵制。护士们强调，加州政府发布的此条指南是蛮横和危险的，其原因在于，感染了中共病毒的医护人员继续出现在工作岗位上会导致整个工作区域的污染，这将使医院变得极为不安全，更加重了奥密克戎变种的感染和传播率。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-13-212746.jpg)                            图片来源：印度时报
-据《网关专家》（Gateway Pundit）1月12日报道，现在已有67项伊维菌素的对照研究显示，67%的新冠患者在服用伊维菌素后病情得到改善；而298项有关硫酸羟氯喹的研究表明，该药物可以改善64%的新冠患者病情。尽管科学证据确凿，安东尼·福奇（Anthony Fauci）和医学精英们还是阻止这些有效药物用于治疗新冠患者。
+值得注意的是，两周前，加州政府明确规定，拒绝接种中共病毒疫苗的医护人员将被强制解雇或停职 ，其后，该强制政策还被延伸至疫苗加强针的接种工作上。
 
-mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士指责福奇和其他人一直在撒谎，并通过阻止硫酸羟氯喹、伊维菌素以及其他疗法治疗新冠患者，导致50多万美国人死亡。马龙博士是对的，有资料显示，福奇和美国顶级医生共谋取消了硫酸羟氯喹作为新冠疗法的资格，并对其抹黑、污蔑，数百万人因此不幸身亡。正如《网关专家》早些时候报道的那样，不仅仅是福奇，美国所有的顶级医学领袖都参与了关于硫酸羟氯喹的谎言。
+评论人士则指出，加州政府宁愿选择阳性染疫的医护人员，也不允许未接种中共病毒疫苗的健康医护人员返回工作岗位，这样的做法既不合常理，更违反医护人员的从业道德。
 
-美国医学博士梅里尔·纳斯（Meryl Nass）医生在《儿童健康保护》网站上揭露了此事。她说，卫生部高官都参与了反对硫酸羟氯喹的阴谋。“福奇掌管美国国家过敏和传染病研究所（NIAID），弗朗西斯·柯林斯 (Francis Collins)是美国国立卫生研究院（NIH）的主任（柯林斯名义上是福奇的老板），杰里米·法拉尔爵士（Sir Jeremy Farrar）是惠康信托 (Wellcome Trust)的主任，同时也是世卫组织研发蓝图科学顾问小组的主席，这使他成为世卫组织“团结实验 (Solidarity Trial)”的负责人。在该实验中，1000名不知情的受试者被过量使用硫酸羟氯喹，以贬低硫酸羟氯喹的疗效，让其无法用于治疗新冠患者。法拉尔还在建立英国的恢复试验（RECOVERY Trial）方面发挥了核心作用，该试验中，有1600名受试者被过量使用硫酸羟氯喹。”
+参考链接：
+1) . [LA County nurses rip new state Covid quarantine guidelines](https://www.courthousenews.com/la-county-nurses-rip-new-state-covid-quarantine-guidelines/)
+2) . [只接种两针不够！加州要求医护人员强制接种加强针](https://posts.careerengine.us/p/61c37fe023025b11479f52b3?from=latest-posts-panel&amp;type=title)
 
-“法拉尔曾在越南工作，那里有很多疟疾，他还参与了那里的非典（SARS-1）研究。法拉尔即使没有从他在越南的经历中对氯喹药物的正确使用剂量有一些了解，在巴西向世界讲述他们在氯喹治疗新冠患者的试验中如何错误地让病人服用过量药物后，他、福奇和柯林斯也应该了解到这种药物过量使用的后果。《美国医学会杂志》2020年4月中旬发表的一篇文章提到巴西的此项试验，39%的受试者在服用了高剂量氯喹后死亡，平均年龄50岁。然而，团结和恢复试验中的硫酸羟氯喹试验一直持续到了6月，直到被曝光使用极端剂量后才终止。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-“福奇确保能控制NIAID出台的《新冠治疗指南》，该指南建议不要使用氯喹药物和伊维菌素。福奇的NIAID还取消了硫酸羟氯喹治疗早期疾病的首个大规模试验，因为预期的2000名受试者中只有20人被录取。”
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-**这一切意味着什么？**
-
-1：《自然》杂志论文的五位作者、NIH主任、NIAID主任和惠康信托的负责人共谋掩盖了新冠病毒的实验室来源。
-
-2：彼得·达萨克（Peter Daszak）、福奇和其他人参与了推动新冠病毒自然起源理论的阴谋。
-
-3：达萨克参与了一项阴谋，即在《柳叶刀》上发表联署信推动新冠病毒自然起源理论，并将其它任何观点打成阴谋论。
-
-4：法拉尔密切参与了两次大型硫酸羟氯喹的过量试验，总计约500名受试者死亡。
-
-5：法拉尔、福奇和柯林斯扣留了研究资金，这些资金本可以支持可能会扭转疫情局势的氯喹药物、伊维菌素及其它再利用药物（repurposed drugs）的高质量试验。
-
-6：福奇、达萨克、柯林斯和法拉尔这四个人是否密切参与了该新冠大流行病的制造、以及疫情时间的延长和不当治疗？
-
-1月10日晚上，《真相工程》（Project Veritas）公布了人们以前从未见过的美国军方文件，内容涉及新冠病毒的起源、病毒功能增强研究、疫苗、新冠潜在治疗方法被压制，以及政府为掩盖一切所做的努力，这些都与福奇的宣誓证词相矛盾。文件内容还包括美国政府早在2020年4月就已知晓伊维菌素、硫酸羟氯喹和干扰素等药物对治疗新冠病毒有效，但他们对美国公众隐瞒了这些关键信息。如果使用这些普通药物，新冠病毒是完全可以治愈的。
-
-**新闻来源**：[BOMBSHELL: Veritas Documents Reveal DC Bureaucrats Had Evidence Ivermectin and Hydroxychloroquine Were Effective in Treating COVID — BUT HID THIS FROM PUBLIC](https://www.thegatewaypundit.com/2022/01/bombshell-veritas-documents-reveal-dc-bureaucrats-evidence-ivermectin-hydroxychloroquine-effective-treating-covid-hid-public/)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
