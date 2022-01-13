@@ -2,78 +2,31 @@
 ---
 
 
-## 共产党的以非灭美以非灭白，其实就是风水之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
+## 七哥说“我就是灭共的”（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852817/)
 
-[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**郭文贵**
-Miles Guo
+来源：郭先生2022-01-09直播09：22：25摘录
 
-它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
+你这个想法很好，但是，共产党跟我斗了已经五年了，跟我们大家一起斗了最起码集体作战三、四年了吧，你见共产党赢过吗？我能这么早去昆仑山脉，我能那么傻得让中国的风水还有喜马拉雅山，我能到西藏，我跟达赖喇嘛比跟共产党任何人活着的人接触都多吧？我去过世界上所有的神峰、神山，最多就是我吧？中国人可以说活着喘气儿比我的没有第二个，我说第一，前100个人不敢说话的。如果中国能找出什么马云呐、马化腾啊什么这些人，要能讲出你七哥的千分之一，我立马拿鞋底戳我的脸，我立马消失。我过去30年我干这事儿，我都干啥？我就是灭共的。灭共它不能是你们想象的，我对着摄像机把共产党给灭了，那成笑话了是吧？一定是从天、从地、中间包括空气的分子和量子、质子的变化，还有共产党到底哪儿来的，我得整明白它，它还能活多少年？这就像曾庆红说过，共产党一定不会再有什么100年、50年，他从头都这么认为。
 
-然后把非洲人送到了哪去了，把非洲人送到了欧洲去
-then where did they send the Africans? the Africans were sent to Europe
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
-The Africa’s so-called illegal immigrants, then incite African Americans in America
+**关注我们**
 
-闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
-to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
+Discord 账号
 
-你见中共用黑白过，它认为黑为水，白为金，是吧
-You have seen the CCP use black or white, it believes that black is water and white is gold, right?
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
-Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
+Gettr 账号
 
-就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
-It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
-
-东边是什么？东方为绿色，为木色，南边为火，南为火
-What’s the east? east is green, wood color, south is fire
-
-它发现我得怎么干，我要把整个的能烧掉你金的五行当中
-It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
-
-南方的就是黑，黑人，非洲的火烧你的金，炼你的金
-the south is black, black people, and the fire of Africa burns your gold and refines your gold
-
-利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
-Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
-
-以土为多的国家，然后在那装擀面杖子
-earth-based country, and then pretend to be strong there
-
-就是共产党的所有精神境界和文化，都是一样的境界
-It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
-
-无知、愚昧，它本身就不平衡，它硬整出来的平衡
-ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
-
-这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
-This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
-
-**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
-
-Date: 01/11/2022
-原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
-The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
-原视频日期：2022/01/09
-原视频链接 https://gettr.co/post/pnef2s2d7a
-任务编号：KC409（3459）
-视频时间段 : 0:00-1:51
-
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
