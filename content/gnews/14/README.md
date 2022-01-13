@@ -2,50 +2,42 @@
 ---
 
 
-## 被奥林匹克开除的北朝鲜金正恩不参加冬奥会的两个原因
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853840/)
+## 美国因朝鲜导弹制裁俄罗斯公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853868/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df85c087664c47acd3ec09](https://gtv.org/video/id=61df85c087664c47acd3ec09)
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-**郭文贵先生：**这个北朝鲜它有两个根本不可能去参加冬奥会的条件：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
 
-第一个，它是被奥林匹克踢出去的。它要来参加这个会，首先奥林匹克得很不要脸的违反全世界的规则，它是被踢出奥林匹克会的，它怎么来参加呢？很多人忘了这个事。
 
-第二个问题，金正恩真怕死，他是真怕（被）杀，他出回国动静很大。上次他出国是因为美国人给他担保：“这个时候没人颠覆你，颠覆你我就会怎么着怎么着”，全世界给他担保。这回谁给他担保？共产党给他担保，他信吗？美国人要颠覆他，他怎么办呢？是吧？他是安全需要。所以说他很难。
+编译：小红帽
 
-所以说你看我们家这块有好多兔子窝，为啥冬天来了找不到兔子了？因为兔子必须藏在兔窝，它太冷，是吧？我们可以出去上雪地里，一会儿我就上雪上去打滚儿去，我们是人类，我们可以在这个环境生存。他（金正恩）就像兔子一样，他只能待在兔窝里边，就像蛇一样只能冬眠，它是个常识。
+根据《RT新闻》1月13日报道， 美国财政部对六名朝鲜人以及一名俄罗斯国民和一家俄罗斯公司实施制裁，指责他们 “扩散大规模杀伤性武器”。
 
-还有一个，听说（金正恩）跟共产党狮子大张口：“我要去参加冬奥会，三个条件：联合国要给我担保，我所有的出行的交通要美国人和中共都要答应，甚至俄罗斯都要出来参与，就是我这个国家你保证没有事儿，交通你们都负责。第三个事情，要100亿美元现金。”
+华盛顿在周三宣布了这份黑名单，称其为“打击朝鲜大规模杀伤性武器和弹道导弹计划的持续努力”的一部分。
 
-你说这不就是……你说今天七哥一会儿直播完，我往雪里边滚两下子，我能给那兔子说我给兔子盖个房子吗？我说不可能的。所以说这是个非常简单的问题，战友们要学会懂得国际规则。
+反恐和金融情报局副局长布赖恩·纳尔逊表示，制裁的目标是朝鲜 “继续利用海外代表非法采购武器货物”。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+总部设在俄罗斯符拉迪沃斯托克的朝鲜国民Choe Myong Hon被指控向第二自然科学院（SANS）提供俄罗斯的 “电信相关设备”。该机构于2010年被美国制裁。
 
-编辑整理：Jacques；
+四名在中国的朝鲜人也因涉嫌为平壤导弹计划采购钢合金、软件、化学品和其他商品而受到制裁。
 
-字幕文件制作：小满；
+总部设在莫斯科O Yong Ho与俄罗斯国民Roman Anatolyevich Alar、莫斯科Parsek LLC公司一起受到制裁，因为他们被指控 “从事了对朝鲜大规模杀伤性武器或其运载工具的扩散有实质性贡献的活动或交易。”
 
-视频制作及上传：Cindy；
+美国财政部表示，其行动是在朝鲜自2021年9月以来六次发射弹道导弹之后进行的，每次都违反了联合国安理会决议。最近的一次发射发生在星期二，平壤声称成功发射了一枚高超音速导弹。
 
-G-News发布：小满；
+根据制裁措施，被指认的个人在美国持有的任何财产都会被扣押。财政部指出，世界上任何与被指认个人或实体进行某些交易的人也可能受到美国的制裁。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+新闻来源：https://www.rt.com/news/545871-north-korea-missile-sanctions/
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*发布：*tianzhihuan
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
