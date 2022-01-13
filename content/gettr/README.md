@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 3:12 AM (UTC)`
+
+On 10th December last year Miles Guo first talked about Yang Jiechi has arrested over a dozen fellow fighters who are Cypriot passport holders; New Federal State of China will rescue them at all cost; fellow fighters must leave Cyprus immediately if possible, and Dubai is not safe either; fellow fighters in Canada must watch out for the CCP spies lurking in our Whistleblowers’ Movement!<br/><br/>在去年12月10日的直播中文贵第一次提到杨洁篪抓了拿塞浦路斯护照的十几位战友，新中国联邦将全力营救他们；请能离开塞浦路斯的战友马上走，迪拜也不安全；请加拿大的战友务必小心中共潜伏的特务！<br/>
+![img](https://media.gettr.com/group34/getter/2022/01/13/03/548152c4-5393-c225-a9e7-27d7176f0563/out.jpg)
+
+---
+
 `@miles 1/13/2022 2:17 AM (UTC)`
 
 1/12/2022 Miles Guo: The CCP is provoking anti-Chinese sentiment around the world. In Japan, a person called a fellow fighter’s name in his car, and another fellow fighter was fired by the restaurant for no reason. The schools in Europe and the US are even discriminating against the Asian students as a whole. Without the efforts of the Whistleblowers’ Movement, the anti-Chinese tragedies will spread like wildfire across the globe!<br/><br/>1/12/2022 文贵直播：中共在全球制造排华，在日本的战友在车上被骂，还有战友被餐厅无故解雇，欧美院校排斥全体亚裔学生；假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界！<br/>
@@ -153,14 +160,6 @@ MANCHIN: “We need some good rule changes to make the place work better. But ge
 `@seanhannity 1/11/2022 3:08 PM (UTC)`
 
 Bombshell...https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@sandyrios 1/11/2022 3:18 PM (UTC)`
-
-Click on the image below to listen to the podcast:<br/><br/>Jan. 11, 2022<br/>Please email: Sandy@afr.net any comments<br/><br/>https://afr.net/podcasts/sandy-rios-in-the-morning/2022/january/j6-prayer-vigils-interrupted-by-antifa-matt-braynard-talks-about-look-ahead-america-s-j6-vigils-and-left-trying-to-use-insurrection-to-prevent-trump-and-others-from-holding-office/
 
 ---
 
