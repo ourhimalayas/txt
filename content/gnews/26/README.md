@@ -2,22 +2,20 @@
 ---
 
 
-## 美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1854761/)
+## 中共国房地产一定会崩塌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854769/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-971.png)
-据日本【TBS新闻】1月13日报道：美国政府对六名朝鲜人、一名俄罗斯人和一家俄罗斯公司实施制裁，称这些人和公司负责从俄罗斯和中国采购商品用于朝鲜武器计划。
+#### 整理：雅典娜速记组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共国房地产一定会崩塌.png)
+发布：Frank2021
 
-这六名朝鲜人均在朝鲜的武器开发部门工作，据称他们参与了开发大规模毁灭性武器和弹道导弹所需的通信设备和化学品的采购。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-美国政府说，这一行动是在“自去年9月以来的六次弹道导弹发射”之后采取的，并批评“朝鲜最近的导弹发射就是仍旧在开发被禁武器的证明”。
-
-信息来源：[**弾道ミサイルの部品調達に関与か 北朝鮮の男ら７人を制裁対象に**](https://news.tbs.co.jp/newseye/tbs_newseye4447012.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

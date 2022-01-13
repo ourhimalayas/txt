@@ -2,10 +2,10 @@
 ---
 
 
-## 日本反中共病毒疫苗游行
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855042/)
+## 美国务卿布林肯暗示对俄进一步制裁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855049/)
 
-01/09/2022 日本静冈县发生反对疫苗游行，呼吁停止疫苗护照，反对阴性证明书，不要给儿童打疫苗。
+01/09/2022 布林肯谈乌克兰局势：不仅是我们站起来，我们还集结了一些国家，不仅欧洲还确有其他国家，即要向俄明确：这一入侵不会被接受。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
