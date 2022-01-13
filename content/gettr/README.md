@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 2:17 AM (UTC)`
+
+1/12/2022 Miles Guo: The CCP is provoking anti-Chinese sentiment around the world. In Japan, a person called a fellow fighter’s name in his car, and another fellow fighter was fired by the restaurant for no reason. The schools in Europe and the US are even discriminating against the Asian students as a whole. Without the efforts of the Whistleblowers’ Movement, the anti-Chinese tragedies will spread like wildfire across the globe!<br/><br/>1/12/2022 文贵直播：中共在全球制造排华，在日本的战友在车上被骂，还有战友被餐厅无故解雇，欧美院校排斥全体亚裔学生；假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界！<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/13/02/9192324f-db26-c0c0-36c8-6cf7c3a29a9e/out.jpg)
+
+---
+
 `@miles 1/13/2022 1:42 AM (UTC)`
 
 1/12/2022 Miles Guo: Why did Isobel Yeung happen to be there to specifically interview the Chinese people on January 6, 2021? Why is it the case that she is executing a conspiracy that has been brewing for years? Fellow fighters’ personal experiences show that discrimination against the Chinese is everywhere, and there will be tens of millions of anti-Chinese incidents in the future!<br/><br/>1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？为什么说她执行的是酝酿多年的阴谋？战友的亲身经历说明对华人的歧视无处不在，未来的排华事件将以千万计！
@@ -154,13 +161,6 @@ Bombshell...https://hannity.com/media-room/fauci-the-fraud-bombshell-report-find
 `@sandyrios 1/11/2022 3:18 PM (UTC)`
 
 Click on the image below to listen to the podcast:<br/><br/>Jan. 11, 2022<br/>Please email: Sandy@afr.net any comments<br/><br/>https://afr.net/podcasts/sandy-rios-in-the-morning/2022/january/j6-prayer-vigils-interrupted-by-antifa-matt-braynard-talks-about-look-ahead-america-s-j6-vigils-and-left-trying-to-use-insurrection-to-prevent-trump-and-others-from-holding-office/
-
----
-
-`@miles 1/11/2022 3:19 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group46/getter/2022/01/08/08/f961a558-0a5b-e8b5-8f5a-4b86a9a70495/88ab75c65fbc64dc0ca2e2f6e09fdd88.jpg)
 
 ---
 
