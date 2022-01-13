@@ -2,34 +2,21 @@
 ---
 
 
-## 预防网络监控，冬奥会荷兰运动员不带自用手机和电脑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853894/)
+## 辉瑞前副总裁向国际刑事法院提起反人类罪诉讼
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853975/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：Lish
+校对：精靈藍
+剪辑/字幕：蛮吉
+编辑：Mttfly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/@CVDBMTBPRAX1X61B.png)图片来源：Vox
+近日，以辉瑞公司前副总裁迈克尔·耶登博士为代表的请愿人向国际刑事法院提起诉讼。他们指控福奇、世卫组织、彼得·达斯扎克、辉瑞主席阿尔伯特·伯拉、英国首相鲍里斯·约翰逊等一系列推行强制疫苗政策、野蛮限制人民自由、压制伊维菌素和羟氯喹的政客与大公司。请愿人呼吁立即停止新冠疫苗接种，并对这些人依照纽伦堡法典进行反人类罪大审判。
 
+视频链接：[Former Pfizer vice president filed a complaint with the International Criminal Court for those who violates the Nuremberg Code](https://rumble.com/vrbj34-how-cancel-culture-has-impacted-officials-accused-of-crimes-against-humanit.html)
 
-整理报道：文扬
-编辑：文泓
-
-阿姆斯特丹消息，当地时间1月11日路透社报道，本地报纸《德·沃尔斯克兰特》周二报道，参加下个月北京冬奥会的荷兰运动员需要将自用的手机和笔记本电脑留在家中，以避免中共国的间谍活动，这是前所未有的举措。
-
-该报援引接近此事的消息人士的话说，对运动员和辅助人员提出的不带任何个人设备到中共国的紧急建议，是荷兰奥委会（NOCNSF）提出的一系列措施的一部分，以应对中共国家工作人员的任何可能干扰。
-
-NOCNSF发言人格鲁特·斯洛特表示，网络安全是对此次中国之行做出的风险评估的一部分，但拒绝就其任何具体措施发表评论。
-
-斯洛特说：“这些年来，网络安全的重要性越来越大，但中共国已经完全关闭了其互联网，这使得它成为一个特殊的案例。”
-
-消息人士告诉《德·沃尔斯克兰特》，**参加北京冬奥会荷兰团队成员将配备全新的未使用的设备，以保护他们的个人数据信息免受中共国监控。**
-
-至少有30名荷兰运动员将参加下个月的北京奥运会，主要参加项目是速度和短道速滑项目。
-
-原文链接： [Dutch athletes warned to keep phones and laptops out of China -media | Reuters](https://www.reuters.com/lifestyle/sports/dutch-athletes-warned-keep-phones-laptops-out-china-media-2022-01-11/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
+*发布：Mttfly*
+**
+更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

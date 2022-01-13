@@ -2,23 +2,42 @@
 ---
 
 
-## 盖特让所有人重获缺失的言论自由
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853735/)
+## 美国因朝鲜导弹制裁俄罗斯公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853868/)
 
-采编：Spirit       编辑撰稿，发稿：硫酸羟氯喹64
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-5-edited.jpg)图片来源：NBC
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
 
 
-据美国《NBC新闻》1月10日报道，盖特引领的新型社交媒体平台正在兴起。由于大量自由言论的声音被推特、YouTube和脸书等科技巨头所打压，这对进一步推动盖特的蓬勃发展起到了巨大的作用。
+编译：小红帽
 
-报道称，被喻为推特杀手的盖特于去年7月推出之后，人气不断飙升，支持者持续云集。而对于近期媒体名人罗根的加入，首席执行官米勒表示，盖特不仅代表了民意的大觉醒，还为罗根及其百万粉众提供了可以分享和发表不同竞争性观点的唯一平台。同时，由于真正重视言论自由，因此盖特欢迎所有持不同政治观点的人加入其中，并能在该平台上进行激烈的辩论。
+根据《RT新闻》1月13日报道， 美国财政部对六名朝鲜人以及一名俄罗斯国民和一家俄罗斯公司实施制裁，指责他们 “扩散大规模杀伤性武器”。
 
-事实表明，推特以及其他科技巨头不仅对其标记为“有攻击性言论的用户”公然实施双重标准，而且还封杀并因此激怒了广大的自由主义者。此外，独断专行不只限于推特，Facebook和Youtube这些公司也都同样按其偏执的政治立场来判断是非。而最终它们所有的挣扎都会加快把盖特推向喜马拉雅之巅。
+华盛顿在周三宣布了这份黑名单，称其为“打击朝鲜大规模杀伤性武器和弹道导弹计划的持续努力”的一部分。
 
-* * *
+反恐和金融情报局副局长布赖恩·纳尔逊表示，制裁的目标是朝鲜 “继续利用海外代表非法采购武器货物”。
 
-原文链接： https://www.nbcnews.com/think/opinion/twitter-lacked-something-important-political-discourse-joe-rogan-found-it-ncna1287285
+总部设在俄罗斯符拉迪沃斯托克的朝鲜国民Choe Myong Hon被指控向第二自然科学院（SANS）提供俄罗斯的 “电信相关设备”。该机构于2010年被美国制裁。
+
+四名在中国的朝鲜人也因涉嫌为平壤导弹计划采购钢合金、软件、化学品和其他商品而受到制裁。
+
+总部设在莫斯科O Yong Ho与俄罗斯国民Roman Anatolyevich Alar、莫斯科Parsek LLC公司一起受到制裁，因为他们被指控 “从事了对朝鲜大规模杀伤性武器或其运载工具的扩散有实质性贡献的活动或交易。”
+
+美国财政部表示，其行动是在朝鲜自2021年9月以来六次发射弹道导弹之后进行的，每次都违反了联合国安理会决议。最近的一次发射发生在星期二，平壤声称成功发射了一枚高超音速导弹。
+
+根据制裁措施，被指认的个人在美国持有的任何财产都会被扣押。财政部指出，世界上任何与被指认个人或实体进行某些交易的人也可能受到美国的制裁。
+
+新闻来源：https://www.rt.com/news/545871-north-korea-missile-sanctions/
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
