@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 11:22 PM (UTC)`
+
+【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计<br/>万分感谢美国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名<br/><br/>MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天第一名🥇<br/><br/>Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名<br/><br/>Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名<br/><br/>Billboards公告牌榜:<br/><br/>Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇<br/><br/>https://gnews.org/zh-hans/1855252/
+
+---
+
+`@miles 1/13/2022 11:12 PM (UTC)`
+
+1/12/2022 Miles Guo: During the Kazakhstan incident, the CCP was the first to send 1,100 soldiers from the Snow Leopard Commando Unit to Kazakhstan, while no media has reported on that. Why did Russia also send troops to Kazakhstan? Why did Ray Dalio come out at this moment to help the CCP promote “common prosperity”?<br/><br/>1/12/2022 文贵直播：在哈萨克斯坦事件中，中共最早向哈国派了1100名雪豹突击队员，却无媒体报道；俄罗斯为何要出兵哈萨克斯坦？为什么雷·达利奥在这个时候出来帮中共鼓吹共同富裕？
+![img](https://media.gettr.com/group15/getter/2022/01/13/23/c04509d5-4618-e65c-793c-b5705daf0ff2/out.jpg)
+
+---
+
 `@miles 1/13/2022 11:08 PM (UTC)`
 
 1/12/2022 Miles Guo: Having taken the dirty money from Alvin Jiang and Bruno Wu, Isobel Yeung is implementing the plan made by the CCP four years ago, with the purposes being eliminating me and the New Federal State of China and associating the Chinese diasporas with QAnon so that they can be labeled as cult members<br/><br/>1/12/2022 文贵直播：杨贝贝拿了江志成和吴征给的脏钱，正在执行着中共4年前制定的计划，其目的是要干掉文贵和新中国联邦，并将把海外华人与Q组织联系在一起从而将其打成邪教分子<br/><br/>
@@ -138,24 +151,6 @@ Ray Dalio, an old friend of the Chinese Communist Party and founder of the Bridg
 
 The content of Wang Yi's call with the Kazakh foreign minister  on 10th Jan verified  Miles Guo‘s source again that China and Kazakhstan have, as Miles Guo pointed out live on 5th of Jan accused the US-led Western forces of causing the riots.<br/><br/>1月10日王毅同哈外长通话内容再次验证文贵的准确情报，中哈已经一如文贵先生1月5日直播中指出的那样，将动乱甩锅以美国为首的西方势力
 ![img](https://media.gettr.com/group50/getter/2022/01/12/16/f7011d22-a92a-f486-a903-e5673d8c6c6f/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ahnewsfeed 1/11/2022 7:36 AM (UTC)`
-
-中共病毒❗️CCP virus❗️<br/>中国人民和加拿大人民都是受害者❗️<br/>中共不代表中国人‼️<br/><br/>加拿大蒙特利尔一名女子，日前在超市辱骂一对加拿大华裔夫妇，称新冠疫情“是因为你们中国人”。<br/>她其后被警察带走。<br/>蒙特利尔市市长此事表示“震惊且不可接受”，并谴责其涉种族歧视言论。
-![img](https://media.gettr.com/group7/origin/2022/01/11/07/8e16259d-9951-f3b3-fd2a-69eb40dfe8c9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@dailynews 1/11/2022 4:57 PM (UTC)`
-
-ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discuss our recent sign-up surge and Big Tech's decline.
-![img](https://media.gettr.com/group29/origin/2022/01/11/16/b0ae191b-207e-e1fa-379e-44f8f77e4d11/out.jpg)
 
 ---
 
