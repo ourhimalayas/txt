@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 8:03 AM (UTC)`
+
+1/12/2022 Miles Guo: The Zhu Rongji family and the Jiang Zemin family have made a huge sum of money by giving large portions of China’s territories to Tajikistan and Afghanistan in exchange for the permanent ownership of the mining rights in that area. This is what treason is! The so-called Hetian Jade turned out not to be produced from Hetian, Xinjiang, but from Russia<br/><br/>1/12/2022 文贵直播：朱镕基、江泽民家族把中国大片领土给了塔吉克斯坦和富汗，以换取当地矿产的永久开发权从而攫取大量财富，这就叫卖国！所谓和田玉并竟非和田产，却产自俄罗斯<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/13/08/9ffeb027-2aff-37b0-4966-674cb074a0bf/out.jpg)
+
+---
+
 `@miles 1/13/2022 6:04 AM (UTC)`
 
 1/12/2022 Miles Guo: Ray Dalio and Wang Qishan have a very close relationship, and he has inflicted a tremendous amount of harm on the Chinese people. Ray Dalio is bound to be prosecuted in the US courts! The “common prosperity” pushed by the global elites who are in cahoots with the CCP, such as Ray Dalio, is in fact communism!<br/><br/>1/12/2022 文贵直播：雷·达利奥是王岐山的生死兄弟，他对中国人造成了极大的伤害，他必将受到美国的审判！雷·达利奥等全球精英跟中共沆瀣一气在全球推行的“共享财富”就是共产主义！<br/>
@@ -153,13 +160,6 @@ ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discus
 `@seanhannity 1/11/2022 11:17 PM (UTC)`
 
 MANCHIN: “We need some good rule changes to make the place work better. But getting rid of the filibuster doesn’t make it work better.” https://hannity.com/media-room/still-the-manchin-joe-not-sold-getting-rid-of-the-filibuster-doesnt-make-the-place-work-better/
-
----
-
-`@miles 1/11/2022 10:30 PM (UTC)`
-
-1/11/2022 Miles Guo: Communist China will go through another round of quarantines due to the surging CCP virus disasters; Why were the 2008 Summer Olympics medals made from jade of the Kunlun Mountains? The Whistleblowers’ Movement is exposing each lie of the CCP with truth and fact; our fellow fighters have to take extra cautions upon the imminent disasters.<br/><br/>1/11/2022 文贵盖特：中共国会因疫情恶化开始新一轮封区封城；2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言；灾难来临之际，战友们务必小心，度过难关<br/>
-![img](https://media.gettr.com/group2/getter/2022/01/11/22/543da8d5-6d23-33a8-d4b4-062e84a8e309/out.jpg)
 
 ---
 
