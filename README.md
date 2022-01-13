@@ -15,128 +15,128 @@
 
 ---
 
-### [生态健康联盟希望阻止披露来自中共国的新冠病毒数据](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“非民选官僚无权强迫1亿美国人接受医疗处治”](/content/gnews/2/README.md)
+### [国防高级研究计划局文件揭露福奇参与了功能增强研究](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国批评中共取消美中航班](/content/gnews/3/README.md)
+### [1/12/2021 文贵直播：朱镕基、江泽民家族把中国大片领土给了塔吉克斯坦和富汗，以换取当地矿产的永久开发权从而攫取大量财富，这就叫卖国](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【#G时新闻】大药厂在故意部署有毒批次的新冠疫苗](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [如果没有行动，对亚洲人的排挤将会有如野火烧山脉](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [著名音乐家被迫电视说谎,称自己拿钱来到哈萨克斯坦抗议](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/12/2021 文贵直播：雷·达利奥是王岐山的生死兄弟，他对中国人造成了极大的伤害，他必将受到美国的审判](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [1月12日老班长战友联盟答疑G系列相关信息文字版](/content/gnews/7/README.md)
+ ` 全球G系列咨服群`
+
+### [世茂集团降价，中共国房地产业危机进一步恶化](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美中博弈联合国人权理事会 北京混淆视听难以为继](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [生态健康联盟希望阻止披露来自中共国的新冠病毒数据](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“非民选官僚无权强迫1亿美国人接受医疗处治”](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国批评中共取消美中航班](/content/gnews/12/README.md)
  ` 首尔天池农场`
 
-### [接种两剂辉瑞疫苗的接种者中和抗体的量要低约五到六倍](/content/gnews/4/README.md)
+### [接种两剂辉瑞疫苗的接种者中和抗体的量要低约五到六倍](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：中共在新疆虚假的共享财富](/content/gnews/5/README.md)
+### [大直播后记：中共在新疆虚假的共享财富](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC每日热点0113](/content/gnews/6/README.md)
+### [DC每日热点0113](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“所有共和党人和保守派美国人是时候离开推特了”](/content/gnews/7/README.md)
+### [“所有共和党人和保守派美国人是时候离开推特了”](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [01/13/22 香港快讯 邹家成再被捕今午提堂 疑涉邓炳强帖文](/content/gnews/8/README.md)
+### [01/13/22 香港快讯 邹家成再被捕今午提堂 疑涉邓炳强帖文](/content/gnews/17/README.md)
  ` 英喜-粵語組`
 
-### [未来可期](/content/gnews/9/README.md)
+### [未来可期](/content/gnews/18/README.md)
  ` 银河勇气之星`
 
-### [“非民选”的推特却拥有判定虚假信息的权力](/content/gnews/10/README.md)
+### [“非民选”的推特却拥有判定虚假信息的权力](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/11/README.md)
+### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [公安部原副部长孙力军涉嫌受贿、操纵证券市场等被提起公诉](/content/gnews/12/README.md)
+### [公安部原副部长孙力军涉嫌受贿、操纵证券市场等被提起公诉](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情更新（住院患者中大多数是未接种者吗？）](/content/gnews/13/README.md)
+### [全球疫情更新（住院患者中大多数是未接种者吗？）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [更多美国公司削减感染中共病毒员工带薪病假](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加州推行阳性无症状感染者无需隔离政策](/content/gnews/15/README.md)
+### [加州推行阳性无症状感染者无需隔离政策](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/16/README.md)
+### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/24/README.md)
  ` NewFOC`
 
-### [澳洲将从1月10日起为230万名5至11岁儿童接种疫苗](/content/gnews/17/README.md)
+### [澳洲将从1月10日起为230万名5至11岁儿童接种疫苗](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [所有四家制造商疫苗都诱发自身免疫性疾病及多器官损伤](/content/gnews/18/README.md)
+### [所有四家制造商疫苗都诱发自身免疫性疾病及多器官损伤](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [完全接种疫苗的网球明星巴西拉什维利因呼吸困难而退赛](/content/gnews/19/README.md)
+### [完全接种疫苗的网球明星巴西拉什维利因呼吸困难而退赛](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [网球明星诺瓦克•德约科维奇赢得对澳大利亚政府的诉讼](/content/gnews/20/README.md)
+### [网球明星诺瓦克•德约科维奇赢得对澳大利亚政府的诉讼](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [抗体能中和病毒，但是政府和行政部门却不予承认](/content/gnews/21/README.md)
+### [抗体能中和病毒，但是政府和行政部门却不予承认](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/22/README.md)
+### [巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒](/content/gnews/23/README.md)
+### [秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：香港新立法首会上林郑称再推基本法23条](/content/gnews/24/README.md)
+### [DC大中华时事：香港新立法首会上林郑称再推基本法23条](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [冠状病毒大流行和疫苗真相（2）冠状病毒真的没有治疗药物吗？](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [现实不是电影](/content/gnews/26/README.md)
+### [现实不是电影](/content/gnews/33/README.md)
  ` 骄子`
 
-### [大直播后记：共产党是世界最大的邪教](/content/gnews/27/README.md)
+### [1.13大直播后记：HBO，VICE，Q组织是致命陷阱](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：HBO，VICE，Q组织是致命陷阱](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [01/13每日播报｜中共国暂停更多美国赴华航班 进一步限制两国交通往来](/content/gnews/29/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共病毒和毒疫苗已使印度失控](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [去雍和宫烧香的年轻人](/content/gnews/32/README.md)
+### [去雍和宫烧香的年轻人](/content/gnews/35/README.md)
  ` 骄子`
 
-### [中共窃取情报恶名远扬 冬奥在即各国提高警惕](/content/gnews/33/README.md)
+### [中共窃取情报恶名远扬 冬奥在即各国提高警惕](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [赌博行业的分类](/content/gnews/34/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [冠状病毒大流行和疫苗真相（1）冠状病毒是哪里来的?](/content/gnews/35/README.md)
- ` 波士顿五月花农场`
-
-### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/37/README.md)
+### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海瑞金二路街道接种疫苗奖励220元，人们排起了长龙](/content/gnews/38/README.md)
+### [上海瑞金二路街道接种疫苗奖励220元，人们排起了长龙](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/01/13英喜时事速递](/content/gnews/39/README.md)
+### [2022/01/13英喜时事速递](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/40/README.md)
+### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大阪府知事提醒：即使接种两剂疫苗也很可能重症化](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

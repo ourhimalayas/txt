@@ -2,63 +2,42 @@
 ---
 
 
-## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
+## 秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1855414/)
 
-2021年12月1日 ~ 2022年1月12日
+**翻译/撰稿：zzballack**
 
-iTunes：
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-13-212746.jpg)                            图片来源：印度时报
+据《网关专家》（Gateway Pundit）1月12日报道，现在已有67项伊维菌素的对照研究显示，67%的新冠患者在服用伊维菌素后病情得到改善；而298项有关硫酸羟氯喹的研究表明，该药物可以改善64%的新冠患者病情。尽管科学证据确凿，安东尼·福奇（Anthony Fauci）和医学精英们还是阻止这些有效药物用于治疗新冠患者。
 
-MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
+mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士指责福奇和其他人一直在撒谎，并通过阻止硫酸羟氯喹、伊维菌素以及其他疗法治疗新冠患者，导致50多万美国人死亡。马龙博士是对的，有资料显示，福奇和美国顶级医生共谋取消了硫酸羟氯喹作为新冠疗法的资格，并对其抹黑、污蔑，数百万人因此不幸身亡。正如《网关专家》早些时候报道的那样，不仅仅是福奇，美国所有的顶级医学领袖都参与了关于硫酸羟氯喹的谎言。
 
-MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
+美国医学博士梅里尔·纳斯（Meryl Nass）医生在《儿童健康保护》网站上揭露了此事。她说，卫生部高官都参与了反对硫酸羟氯喹的阴谋。“福奇掌管美国国家过敏和传染病研究所（NIAID），弗朗西斯·柯林斯 (Francis Collins)是美国国立卫生研究院（NIH）的主任（柯林斯名义上是福奇的老板），杰里米·法拉尔爵士（Sir Jeremy Farrar）是惠康信托 (Wellcome Trust)的主任，同时也是世卫组织研发蓝图科学顾问小组的主席，这使他成为世卫组织“团结实验 (Solidarity Trial)”的负责人。在该实验中，1000名不知情的受试者被过量使用硫酸羟氯喹，以贬低硫酸羟氯喹的疗效，让其无法用于治疗新冠患者。法拉尔还在建立英国的恢复试验（RECOVERY Trial）方面发挥了核心作用，该试验中，有1600名受试者被过量使用硫酸羟氯喹。”
 
-Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
+“法拉尔曾在越南工作，那里有很多疟疾，他还参与了那里的非典（SARS-1）研究。法拉尔即使没有从他在越南的经历中对氯喹药物的正确使用剂量有一些了解，在巴西向世界讲述他们在氯喹治疗新冠患者的试验中如何错误地让病人服用过量药物后，他、福奇和柯林斯也应该了解到这种药物过量使用的后果。《美国医学会杂志》2020年4月中旬发表的一篇文章提到巴西的此项试验，39%的受试者在服用了高剂量氯喹后死亡，平均年龄50岁。然而，团结和恢复试验中的硫酸羟氯喹试验一直持续到了6月，直到被曝光使用极端剂量后才终止。”
 
-Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
+“福奇确保能控制NIAID出台的《新冠治疗指南》，该指南建议不要使用氯喹药物和伊维菌素。福奇的NIAID还取消了硫酸羟氯喹治疗早期疾病的首个大规模试验，因为预期的2000名受试者中只有20人被录取。”
 
-Billboards公告牌榜:
+**这一切意味着什么？**
 
-Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
+1：《自然》杂志论文的五位作者、NIH主任、NIAID主任和惠康信托的负责人共谋掩盖了新冠病毒的实验室来源。
 
-* * *
+2：彼得·达萨克（Peter Daszak）、福奇和其他人参与了推动新冠病毒自然起源理论的阴谋。
 
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
+3：达萨克参与了一项阴谋，即在《柳叶刀》上发表联署信推动新冠病毒自然起源理论，并将其它任何观点打成阴谋论。
 
-* * *
+4：法拉尔密切参与了两次大型硫酸羟氯喹的过量试验，总计约500名受试者死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
+5：法拉尔、福奇和柯林斯扣留了研究资金，这些资金本可以支持可能会扭转疫情局势的氯喹药物、伊维菌素及其它再利用药物（repurposed drugs）的高质量试验。
+
+6：福奇、达萨克、柯林斯和法拉尔这四个人是否密切参与了该新冠大流行病的制造、以及疫情时间的延长和不当治疗？
+
+1月10日晚上，《真相工程》（Project Veritas）公布了人们以前从未见过的美国军方文件，内容涉及新冠病毒的起源、病毒功能增强研究、疫苗、新冠潜在治疗方法被压制，以及政府为掩盖一切所做的努力，这些都与福奇的宣誓证词相矛盾。文件内容还包括美国政府早在2020年4月就已知晓伊维菌素、硫酸羟氯喹和干扰素等药物对治疗新冠病毒有效，但他们对美国公众隐瞒了这些关键信息。如果使用这些普通药物，新冠病毒是完全可以治愈的。
+
+**新闻来源**：[BOMBSHELL: Veritas Documents Reveal DC Bureaucrats Had Evidence Ivermectin and Hydroxychloroquine Were Effective in Treating COVID — BUT HID THIS FROM PUBLIC](https://www.thegatewaypundit.com/2022/01/bombshell-veritas-documents-reveal-dc-bureaucrats-evidence-ivermectin-hydroxychloroquine-effective-treating-covid-hid-public/)
 
 
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

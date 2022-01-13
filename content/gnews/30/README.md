@@ -2,22 +2,32 @@
 ---
 
 
-## 中共病毒和毒疫苗已使印度失控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1855253/)
+## 巴西13岁女孩接种中共病毒疫苗后死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1855424/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-997.png)[图片来源](http://www.news.cn/world/2022-01/07/c_1211521413.htm)
-1月13日光明网报道，印度累计确诊中共病毒（新冠病毒Covid-19）病例超3570万。据印度新德里电视台网站消息，印度卫生部当地时间1月10日更新数据显示，该国单日新增中共病毒确诊病例达179723例，累计确诊病例达35707727例，其中4033例为奥密克戎毒株感染病例。
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月12日，据巴西媒体报道，当地一名13岁的女孩在接种过第一针辉瑞中共病毒疫苗后死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-18.jpg)
+据悉，该名女孩于2021年11月6日接种了第一针中共病毒疫苗，其后五天，她的一侧面部突发瘫痪并伴随身体虚弱的症状。经诊断，女孩患上了贝尔麻痹症，为此接受了皮质类固醇的药物治疗。然而，在随后的几周内，她的病情持续恶化，并于12月29日因呼吸系统疾病住院，至2022年1月2日转院进行插管治疗，但女孩最终于1月10日去世。
 
-根据印度卫生部提供的数据，印度中共病毒活跃病例增至723619例，为204天以来最高，单日新增死亡病例达146例，累计死亡病例达483936例。
+悲痛之余，女孩的母亲表示，孩子生前没有任何健康问题，导致她死亡的原因只有接种过的中共病毒疫苗。
 
-时隔半年印度疫情再度反弹，连续三天单日新增超过10万，累积确诊超过3600万。印度疫情经过一次短暂的控制之后，又开始大反弹，半年前印度街头火葬尸体触目惊心，火葬场甚至24小时运行，中共病毒和毒疫苗已使印度完全失控。
+参考链接：[Vanessa Martins Figueiredo: 13-Year-Old Dies After Receiving Pfizer COVID-19 Vaccine, Investigation Launched](https://thecovidworld.com/vanessa-martins-figueiredo-13-year-old-dies-after-receiving-pfizer-covid-19-vaccine-investigation-launched/)
 
-信息来源：[今天2022年01月13日印度疫情最新消息数据情况统计公布报道\_天地财金网](https://www.t-d.tv/news/202201/1375573.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
