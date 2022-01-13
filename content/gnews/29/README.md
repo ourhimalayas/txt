@@ -2,32 +2,54 @@
 ---
 
 
-## 七哥说“共产党的所有精神境界和文化都是一样的境界：无知、愚昧” （2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1856735/)
+## 灭共者之郭氏情报站（十一）2022.01.09/2022.01.12
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1856780/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**出品：纽约香草山设计部**
 
-来源：郭先生2022-01-09直播09：56：59摘录
 
-有一个常委曾经问我一句话，他说：“你说文贵，这个当年我也没见过洋妞儿，有一次我到了欧洲安排了个洋妞，这个洋妞啊干一件事儿，脱了裤子她老是给我上面老吐唾沫，她干嘛往我上面吐唾沫，什么意思啊？”把我笑得快不行了，我说：“很简单，你没硬说明，你没硬人家就没水嘛，所以人家给你吐唾沫让你硬点儿。”这哥们把我笑晕了啊。当然是没当常委前问我这话，当了常委之后，我老跟他开玩笑，他说：“文贵千万别说啊！”我说：“想当年你到西方去竟然问我这问题。”
-就共产党老杂毛都没水的，都需要人家往它上面吐唾沫，得这样姿势的那种。这是我亲身经历啊，后来就告诉我啦，哇噻成专业的了，啊，原来是这样，原来是这样，提前吃药，水就多了，是吧？然后在那儿装“擀面杖子”。就共产党的所有精神境界和文化都是一样的境界：无知、愚昧。它本身就不平衡，它硬整出来的平衡，这是违背自然的。唯一牺牲的就是今天我们看到的中国的人民——无知的人们。所以说大家今天讲这些的时候很有意思，我就想讲得这么简单，我要讲深了以后，你们听了以后就觉得我神神叨叨的，我就跟小飞象、小飞侠似的，什么外星人又来了，呵呵，但是慢慢来，你们逐渐会整明白的。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
+
+
+## **郭氏情报站 – 2022.01.09/2022.01.12文贵大直播总结提炼**：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-192940.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-A29A7B62-26EB-4854-BCD7-51C9E83E4B0A.jpg)
+**上一期：**
+
+**[灭共者之郭氏情报站（十）2022年1月7日版 – GNEWS](https://gnews.org/zh-hans/1834806/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
