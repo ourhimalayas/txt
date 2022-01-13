@@ -2,8 +2,8 @@
 ---
 
 
-## 中国靠前的大企业, 只要和共产党有关的, 就有Ray Dalio 桥水基金投资
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856254/)
+## 什么叫叛国？什么叫卖国？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856333/)
 
 台灣寶島農場
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 整个西藏成为利益分配的牺牲品
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856227/)
+## 西安的&#8221;共享财富&#8221;开始了
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856308/)
 
 台灣寶島農場
 
