@@ -2,31 +2,13 @@
 ---
 
 
-## 樱花灭共诗——虎年岁首西安疫情清零感题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1854823/)
+## 如果行政部门既制定法律又执法，我们的自由就被抛弃
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1854893/)
 
-撰稿：东京樱花团/故乡明月
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-977.png)
-一袭牛皮竟岁飞，
+01/07/2022 布赖恩·哈里森：如果行政部门既能制定法律又能执法，我们的自由将被抛弃。我在领导德克萨斯州的起诉，争取德克萨斯州的自主决策权，取缔中共病毒疫苗强制接种政策。我希望看到州政府取缔所有暴虐的中共病毒疫苗强制接种政策。
 
-长天弥望又霏霏。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-灭冠世罕清零策，
-
-接虎年惊下马威。
-
-袅袅楚歌充四野，
-
-腾腾杀气斥重闱。
-
-河山信有清平月，
-
-袖手高台对落晖。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-978.png)
-*插图：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
