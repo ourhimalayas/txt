@@ -2,63 +2,53 @@
 ---
 
 
-## 2022年1月12日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1852936/)
+## 前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1852986/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2db3d6846d49abd5a2eae4b93ad49523_副本.png)
-视频连接：[https://gettr.com/streaming/pnz4uh798b](https://gettr.com/streaming/pnz4uh798b)或[https://gtv.org/broadcast/watch/61df44f3a6dfdd603153543a](https://gtv.org/broadcast/watch/61df44f3a6dfdd603153543a)
+前国务卿蓬佩奥： 今年，我们必须把美国放在首位，在与敌人打交道时建立美国的实力。这意味着要对抗普京和中国共产党。如果拜登政府不能做到这一点，我们应该在2022年击败他们。 （转蓬佩奥撰文：2022年建立一个强大、安全的美国的优先事项）
 
-1、四年前江志成提供所有VICE杨贝贝造谣资金，把所有华人和Q组织联系在一起，定义成邪教组织、冲击国会暴乱分子；
 
-2、Q组织是共产党控制的造谣平台；
 
-3、中国60%的企业的钱都和雷•达里奥（Ray Dalio）有关，桥水基金控制上万亿美元财富，Ray Dalio和王岐山是拜把子兄弟；
+> This year, we must put America First and establish American strength in our dealings with adversaries. That means standing up to Putin & the Chinese Communist Party. If the Biden Administration is unable to do this, we should defeat them in 2022. [https://t.co/ipuC4Ycp8V](https://t.co/ipuC4Ycp8V)
+> — Mike Pompeo (@mikepompeo) [January 12, 2022](https://twitter.com/mikepompeo/status/1481346695342567430?ref_src=twsrc%5Etfw)
 
-4、Ray Dalio拿了共产党的钱干活，控制VICE抹黑华人；
 
-5、朱镕基、孟建柱、江泽民家族卖国，把中国28万平方公里的土地给了塔吉克斯坦埃莫马利·拉赫蒙，曾经中国控制与阿富汗关联的96%土地给了阿富汗，卖国换取当地矿产永久开发权；
 
-6、哈萨克斯坦就是共产主义和资本主义较量的结果；
+众议员帕特·法伦： 太对了！中共国的感受是我们最不应该关心的。 【转众议员吉姆·乔丹的推文：有人关心中共国的感受超过对新冠病毒的溯源】
 
-7、中共派了1000个特种兵，白俄罗斯只派了各100，声援哈萨克斯坦独裁政权；
 
-8、西安，天津，郑州疫苗灾难主要是实现网格化管理（宵禁），之后就是共享财富，共享财富手段就是大跃进、红卫兵、打土豪分田地、文化大革命在重演一遍；
 
-9、 共产党愚民就是分区管理，让东北人无知就是种地；对福建人就是非法移民（赚外汇）；对香港广东就是外汇打工妹；对新疆西藏就是种棉花虫草，就地当奴隶；
+> Hitting the nail on the head! China's feelings are the last thing we should be concerned about. [https://t.co/XMQahdpOZm](https://t.co/XMQahdpOZm)
+> — Rep. Pat Fallon (@RepPatFallon) [January 12, 2022](https://twitter.com/RepPatFallon/status/1481381220051300357?ref_src=twsrc%5Etfw)
 
-10、中共国，几乎所有的人会失去所有的财富而成为房奴，车奴，各种奴，灭掉中共后，信用卡，你们不用还了，土地绝对是人民的；
 
-11、栗战书出来，证明自己没事。周永康，薄熙来出事前，也曾出来证明；
 
-12、中共不会再有二十大了，共产党会被消灭在20大；
+国会中国执行委员会： 跨党派的国会中国执行委员会的委员们，包括主席莫科里参议员和麦克噶文众议员，致信国际奥委会巴赫主席，要求国际奥委会证明与包括安踏在内的使用强制劳工的中国公司的合同是合理的。 （附信件全文）
 
-13、共产党在昆仑山的祭祀，不是每年祭700处女，每60年来一次，建国一次，镇压64后加了一次，前年一次，一共弄过3次； 14、器官移植中共是肯定的，共产党没有任何道德底线；
 
-**注：大直播音讯正在制作和上传中，敬请关注——**
 
-**（大直播音频位置）**
+> Bipartisan group of [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Commissioners, including Chairs [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw) and [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw), release letter to [@IOCThomasBach](https://twitter.com/IOCThomasBach?ref_src=twsrc%5Etfw) asking [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) to justify contracts with Chinese companies using forced labor, including [@ANTAsportswear](https://twitter.com/ANTAsportswear?ref_src=twsrc%5Etfw). [https://t.co/fLGrp9ZWpi](https://t.co/fLGrp9ZWpi) [pic.twitter.com/uW22GkcDpD](https://t.co/uW22GkcDpD)
+> — China Commission (@CECCgov) [January 12, 2022](https://twitter.com/CECCgov/status/1481317086693576717?ref_src=twsrc%5Etfw)
 
-编辑整理：文俊；
 
-发布：黎明之前；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+众议院共和党外事委员会： 少数派领袖麦克劳：“我很高兴国务院继续反击中共非法的海上主张。这种领土侵略经不起法律审查，侵犯了东南亚许多国家的主权，并增加了印太地区冲突的风险。” （转引国务院发言人奈德·普莱斯的推文）
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "I'm glad [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) is continuing to push back on the CCP’s illegal maritime claims. This territorial aggression doesn’t hold up to legal scrutiny, violates the sovereignty of numerous nations in SE Asia, and is increasing the risk of conflict in the Indo-Pacific.” [https://t.co/poOj8vNeCd](https://t.co/poOj8vNeCd)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [January 12, 2022](https://twitter.com/HouseForeignGOP/status/1481396802054197256?ref_src=twsrc%5Etfw)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+参议员瑞克·斯科特： 这正是我强烈敦促每家美国公司停止与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 做生意并从他们的暴行中获利的原因。 【附大纪元时报：美国公司开发的技术正在推动中共政权及其军事发展，北京甚至指导和促进对美国公司及其资产的系统性投资和收购】
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+> This is exactly why I have strongly urged that every U.S. company stop doing business with Communist China & profiting off of their atrocities. [https://t.co/c7t7niRcCK](https://t.co/c7t7niRcCK)
+> — Rick Scott (@SenRickScott) [January 12, 2022](https://twitter.com/SenRickScott/status/1481352686838628352?ref_src=twsrc%5Etfw)
+
+
 
  
 

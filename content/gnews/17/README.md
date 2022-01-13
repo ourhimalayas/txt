@@ -2,50 +2,47 @@
 ---
 
 
-## 爱尔兰部长：有信心从2月起放松对中共病毒的限制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852733/)
+## “早期治疗总是有效的”前COVID前线护士告诉教育委员会
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1852830/)
 
-作者：纽约香草山农场 – 四季
+作者：玛特·兰姆（Matt Lamb）
+发布日期：2022年1月10日
+新闻来源：LifeSiteNEWS 翻译：文虓Bobby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0111301.jpg)
 
+北卡罗来纳州威尔明顿(LifeSiteNews)——一名护士表示，她曾在COVID护理的第一线工作，最近在学校董事会会议上发言，反对要求学生和教师戴口罩的新规定。
 
+但摩根·华莱士也利用这个机会促进对COVID的早期治疗，而不是接种疫苗，她说，接种疫苗会在一些服用疫苗的人身上产生“定时炸弹”。
 
+华莱士在1月4日举行的新汉诺威县教育委员会会议上说:“我在心血管重症监护室工作了5年，我是你在COVID(治疗上)的最后一道防线。”
 
+华莱士说，她获得了前雇主新汉诺威地区医疗中心(NHRMC)颁发的奖项。美国国家卫生人力资源管理委员会在脸书（Facebook）上发布了一篇已经删除但被缓存的帖子，祝贺华莱士成为2020年11月的优秀员工。
 
-据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
+该帖子称，她在重症监护室担任“专家心内科护士”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T111316Z_1_LYNXMPEI0B0FZ_RTROPTP_0_HEALTH-CORONAVIRUS-IRELAND_1.jpg)2021年12月17日，在爱尔兰都柏林，在冠状病毒病（COVID-19）大流行的情况下，人们在外出进行圣诞购物时戴着防护口罩。（REUTERS/Clodagh Kilcoyne）
+在NPINO.com追踪医疗专业人士的执照，将她列为专攻急症护理的执业护士。脸书（Facebook）上与她的企业相关的帖子显示，她拥有护理专业的本科和研究生学位，并获得了心脏护理认证。
 
-爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
+华莱士在讲话中说:“当你倒在地上流血不止时，我们在你胸腔打开的情况下对你的心脏和肺进行了体外测试，我意识到，由于政府对治疗COVID的保守政策，患者正在不必要地死亡。”
 
-政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
+她说，拒绝为COVID提供替代治疗的政府官员应为这些死亡负责。“所有死于COVID的人都应该被视为谋杀。”
 
-副总理里奥·瓦拉德卡（Leo Varadkar）周二表示，限制措施可能会分阶段放宽。此前，政府首先取消了最近实施的限制措施，之后会每隔两到三周进一步重新开放经济。
+“早期治疗总是受到影响，”她说。华莱士在“强制日”辞去了医院的工作，并表示她现在有一家治疗COVID患者的私人诊所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+华莱士称，“医院的所有员工”都被打了疫苗，然后感染了新冠病毒。她警告说，这种疫苗已经或将会给身体带来其他恶果。
 
-编辑/校对/发稿：小鹿
+“您已经让你的身体注入了与数以百万计的刺突蛋白质，就像一个定时炸弹随时导致癌症、血栓,无论哪种疾病都可能随时出现在你的体内。我已经厌倦了人们去问医生,他们可以接受COVID,他们唯一的选择是打疫苗或回家或去医院,”护士说。
 
+美国所有可用的COVID疫苗都与血栓（血凝块）有关。
 
+她告诉在场的人:“我很高兴在去医院之前为你们中的任何一个人治疗新冠病毒，”因为早期治疗“总是有效的”。
 
-**更多资讯，更多关注**
+华莱士说:“我选择走出去，为正确的事情挺身而出，所以给我们的孩子们戴上这些口罩并没有帮助，接种疫苗也没有帮助。我们都需要意识到，秘密已经尽人皆知。”
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[援引原文](https://www.lifesitenews.com/news/early-treatment-has-always-worked-former-frontline-covid-nurse-tells-education-board/)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

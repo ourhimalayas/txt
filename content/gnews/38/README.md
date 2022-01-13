@@ -2,35 +2,32 @@
 ---
 
 
-## 中共疾控专家放话，中国加强针接种率应提升至100%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1851880/)
+## 2022/01/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1851919/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体1月10日报道，日前，中共疾控中心首席专家吴尊友在公开场合表示，为了早日实现群体免疫的目标，全国加强针接种率应该提升至100%。
+1. 1月10日，陕西西安。中共疫区完全是军管状态。不做核酸就违法，警察上门挨家挨户恐吓老百姓，不听话就抓人。
+2. 1月10日，陕西西安。在全城封城十几天后，西安依然在加强实施封闭管理，小区里的百姓被禁止出户，门上被张贴十字封条。
+3. 1月9日，天津核酸检测现场。操场上人员密集混乱，根本无法做到防疫要求的不聚集。
+4. 1月9日，广东深圳核酸检测排队现场。检测病毒并不是目的，劳民敛财加大政府控制权力才是中共制造恐怖疫情氛围的意图。
+5. 1月10日，河南郑州。防疫要求不许聚众，保持距离。可是好好在家防疫的老百姓却被中共政府要求这样一个搂着一个做核酸检测。
+6. 1月8日起河南郑州全面禁止堂食。一小餐馆老板在玻璃门晒出这一年的遭遇。从21年7月郑州遭遇洪涝灾害开始，这一年老百姓的生活极度艰难。
+7. 1月5日，河南驻马店。为给孙女凑医药费，70岁爷爷每天骑行10公里打工挣钱，四五点起来扛草料，一天需扛20吨。
+8. 1月8日。中共又放出圈养的所谓经济学家出来放狂言。任泽平建议央行多印2万亿，让62年到76年出生的妇女再次进行生育，保持所谓的人口红利。
+9. 1月10日。华中师范大学发布2021应届毕业生就业报告，数据差得惊人！本科就业率只有38.87%，网友惊呼：这才是目前的中共社会现状！
+10. 1月10日，福建泉州。福建一厂房发生火灾，黑烟从窗户内喷薄涌出。
+11. 1月10日，广东梅州。一厂房突发大火，黑烟滚滚形成巨大烟柱，整个楼顶被烧光。
 
-天津1月10日通报确诊了20例奥密克戎本土感染病例，这是中共当局官方报告的最高纪录，对此，吴尊友认为，在中国，每个人都应该接种疫苗，并且，每个人都需要打加强针。他指出，虽然中共病毒不断变异让群体免疫大打折扣，但接种中共疫苗可以达到所谓“反折扣”的效果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture104-6.jpg)
-至于什么是“反折扣”，吴尊友解释称，打完加强针以后抗体会上升，预防感染的保护效果回到预期的80%，把中共病毒对群体免疫造成的折扣折回来，最终实现提高人群抗击中共病毒的效果。
 
-不过，网民似乎对吴尊友的这个创新概念不买帐，质疑仅西安、天津两地，疫苗完全接种率超过九成，却仍然对病毒肆虐不堪一击，表明“反折扣”理论在事实面前根本是胡编乱造。
+* * *
 
-参考链接：[中共疾控专家放话，中国加强针接种率应提升至100%](https://wap.xinmin.cn/content/32094995.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
