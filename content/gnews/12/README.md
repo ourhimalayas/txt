@@ -2,14 +2,17 @@
 ---
 
 
-## 西媒头条 — 第152期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1856171/)
+## 七哥说—第43期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1856245/)
 
-**制作：蚂蚁兄弟**
+制作：Inzaghi
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220113.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥说_郭文贵_昆仑山_俄罗斯山脉_帕米尔高原.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥说_郭文贵_中共_委员会-1.png)
 
 发稿：信心的选择
 
