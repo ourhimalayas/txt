@@ -2,19 +2,12 @@
 ---
 
 
-## 中共国房地产一定会崩塌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854769/)
+## 多家中共智能手机公司被发现违反印度税法
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1854891/)
 
-#### 整理：雅典娜速记组
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中共国房地产一定会崩塌.png)
-发布：Frank2021
+01/07/2022 印度媒体Wion报道，多家中共国智能手机制造商被发现违反印度税法。在印度的中共国智能手机制造商正受到审查。突击检查中发现他们有违规行为。小米和OPPO被发现违反税法和逃避关税
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
