@@ -15,86 +15,86 @@
 
 ---
 
-### [西藏冒险王之死是否与昆仑山祭坛有关？](/content/gnews/1/README.md)
+### [强制疫苗只剩威胁,现在是最后的疯狂,五月份以前一定消失](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [以舍利子传法方式达到被信仰和成神境界是虚妄甚至作孽](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [西藏冒险王之死是否与昆仑山祭坛有关？](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [共产党用三通论和奇门遁甲术诅咒中化民族压住中国八方](/content/gnews/2/README.md)
+### [共产党用三通论和奇门遁甲术诅咒中化民族压住中国八方](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [盖特让所有人重获缺失的言论自由](/content/gnews/3/README.md)
+### [盖特让所有人重获缺失的言论自由](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [12/10/2021 文贵直播：中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征，中共就是邪教](/content/gnews/4/README.md)
+### [12/10/2021 文贵直播：中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征，中共就是邪教](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [江泽民曾庆红矢口否认南普陀,窥得天机使新中国联邦受益](/content/gnews/5/README.md)
+### [江泽民曾庆红矢口否认南普陀,窥得天机使新中国联邦受益](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国咨询公司亨利律师事务所公布最新护照排名](/content/gnews/6/README.md)
+### [英国咨询公司亨利律师事务所公布最新护照排名](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [南普陀谋定江派释永信施道法控制嵩山失败泄露灭共天机](/content/gnews/7/README.md)
+### [南普陀谋定江派释永信施道法控制嵩山失败泄露灭共天机](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特鲁多失常暴怒攻击未接种疫苗者](/content/gnews/8/README.md)
+### [特鲁多失常暴怒攻击未接种疫苗者](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2025年共产党绝对会被消灭](/content/gnews/9/README.md)
+### [2025年共产党绝对会被消灭](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [属蛇的习近平将颠覆南普陀并与属兔的曾庆红间展开决战](/content/gnews/10/README.md)
+### [属蛇的习近平将颠覆南普陀并与属兔的曾庆红间展开决战](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [郭文贵直播摘要和音频 2022.01.12](/content/gnews/11/README.md)
+### [郭文贵直播摘要和音频 2022.01.12](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共操控哈萨克阿富汗柬埔寨让新中国联邦以敌灭敌灭共](/content/gnews/12/README.md)
+### [中共操控哈萨克阿富汗柬埔寨让新中国联邦以敌灭敌灭共](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [陈全国进核心栗战书韩正郭声琨赵克志赵乐际必展开厮杀](/content/gnews/13/README.md)
+### [陈全国进核心栗战书韩正郭声琨赵克志赵乐际必展开厮杀](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [近百万美国人因新冠疫苗染疾或死亡，他们不是无名无姓的数字！](/content/gnews/14/README.md)
+### [近百万美国人因新冠疫苗染疾或死亡，他们不是无名无姓的数字！](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [众议院共和党人发布证据确凿的福奇电子邮件 表明其隐瞒有关实验室泄漏的信息](/content/gnews/15/README.md)
+### [众议院共和党人发布证据确凿的福奇电子邮件 表明其隐瞒有关实验室泄漏的信息](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [受中共操控的Isobel、Q组织用心歹毒庆幸爆料革命提前预判](/content/gnews/16/README.md)
+### [受中共操控的Isobel、Q组织用心歹毒庆幸爆料革命提前预判](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [二十大班底陈全国和胡春华是杀器胡海峰是党和国家领导](/content/gnews/17/README.md)
+### [二十大班底陈全国和胡春华是杀器胡海峰是党和国家领导](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦人不流一滴血全是明规则](/content/gnews/18/README.md)
+### [新中国联邦人不流一滴血全是明规则](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北约俄罗斯会谈无果 乌克兰局势持续紧张](/content/gnews/19/README.md)
+### [北约俄罗斯会谈无果 乌克兰局势持续紧张](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港共当局将病毒传播“甩锅”给纸钞](/content/gnews/20/README.md)
+### [港共当局将病毒传播“甩锅”给纸钞](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [哈萨克斯坦战友们被无数汉人朋友传递的情报和信息唤醒](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【粤语配音】2022年1月12日：共产党将没有二十大](/content/gnews/22/README.md)
+### [【粤语配音】2022年1月12日：共产党将没有二十大](/content/gnews/23/README.md)
  ` MOS香港部`
 
-### [美国会议员要求国际奥委会证明奥运制服未使用强迫劳动](/content/gnews/23/README.md)
+### [美国会议员要求国际奥委会证明奥运制服未使用强迫劳动](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [EMA警告：频繁的加强针对免疫反应不利](/content/gnews/24/README.md)
+### [EMA警告：频繁的加强针对免疫反应不利](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不反对疫苗的邪恶的社交媒体，终将灭亡](/content/gnews/25/README.md)
+### [不反对疫苗的邪恶的社交媒体，终将灭亡](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国CDC预测下个月新增COVID-19死亡病例62000例](/content/gnews/26/README.md)
+### [美国CDC预测下个月新增COVID-19死亡病例62000例](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [【中日财经爆】任泽平呼吁印2万亿鼓励生育后被微博禁言](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [法国各地抗议埃马纽埃尔-马克龙的疫苗限制计划](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
