@@ -15,89 +15,89 @@
 
 ---
 
-### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/1/README.md)
+### [魁省将使用疫苗护照购买大麻和酒类饮品](/content/gnews/1/README.md)
+ ` 扬帆枫叶快讯`
+
+### [疫苗灾难正在席卷美国整个航空业](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
+
+### [封城锁户的统治阶级正自吞罚果](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/2/README.md)
+### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [德国病毒学家：“清零”不是长久之计](/content/gnews/3/README.md)
+### [德国病毒学家：“清零”不是长久之计](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [重磅！新中国联邦被美国间接承认，并展示全球拯救的力量](/content/gnews/4/README.md)
+### [重磅！新中国联邦被美国间接承认，并展示全球拯救的力量](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [【G时新闻】阴谋论? 接种新冠疫苗出生的婴儿是一种新的人类类型！](/content/gnews/5/README.md)
+### [【G时新闻】阴谋论? 接种新冠疫苗出生的婴儿是一种新的人类类型！](/content/gnews/8/README.md)
  ` G-时新闻`
 
-### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/6/README.md)
+### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冲绳美军基地感染中共病毒病例占全县6成](/content/gnews/7/README.md)
+### [冲绳美军基地感染中共病毒病例占全县6成](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：美国能否扭转被中共渗透所导致的美国国会两极化现状](/content/gnews/8/README.md)
+### [《我是音雄》第二季总决赛暨跨年颁奖的观后感](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [秘翻在线：美国能否扭转被中共渗透所导致的美国国会两极化现状](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党](/content/gnews/9/README.md)
+### [前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党](/content/gnews/13/README.md)
  ` 美国政要直译推`
 
-### [封城只是表象，是为掩盖疫苗的巨大灾难](/content/gnews/10/README.md)
+### [封城只是表象，是为掩盖疫苗的巨大灾难](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [加拿大魁省将对未接种疫苗者征税](/content/gnews/11/README.md)
+### [加拿大魁省将对未接种疫苗者征税](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [安省省长和首席卫生官均表示不会对拒打疫苗者征税](/content/gnews/12/README.md)
+### [安省省长和首席卫生官均表示不会对拒打疫苗者征税](/content/gnews/16/README.md)
  ` 丁过`
 
-### [【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万](/content/gnews/13/README.md)
+### [【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世卫组织说，奥米克戎变异病毒将在“6到8周内”感染半个欧洲](/content/gnews/14/README.md)
+### [世卫组织说，奥米克戎变异病毒将在“6到8周内”感染半个欧洲](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2022年1月12日文贵先生直播摘要及音频—银河系农场](/content/gnews/15/README.md)
+### [2022年1月12日文贵先生直播摘要及音频—银河系农场](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/16/README.md)
+### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈重庆人民的诅咒（2022-01-09摘录）](/content/gnews/17/README.md)
+### [七哥谈重庆人民的诅咒（2022-01-09摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [CEO杰森·米勒：盖特正在分散和夺回话语权](/content/gnews/18/README.md)
+### [CEO杰森·米勒：盖特正在分散和夺回话语权](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈“可怕的是中国人没有了信仰”（2022-01-09摘录）](/content/gnews/19/README.md)
+### [七哥谈“可怕的是中国人没有了信仰”（2022-01-09摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/20/README.md)
+### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈中共深信这个所谓它不让你信的迷信（2022-01-09摘录）](/content/gnews/21/README.md)
+### [七哥谈中共深信这个所谓它不让你信的迷信（2022-01-09摘录）](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [“早期治疗总是有效的”前COVID前线护士告诉教育委员会](/content/gnews/22/README.md)
+### [“早期治疗总是有效的”前COVID前线护士告诉教育委员会](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有信仰和没信仰之间一个大PK的时代](/content/gnews/23/README.md)
+### [有信仰和没信仰之间一个大PK的时代](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说“我就是灭共的”（2022-01-09摘录）](/content/gnews/24/README.md)
+### [七哥说“我就是灭共的”（2022-01-09摘录）](/content/gnews/28/README.md)
  ` MG FARM`
-
-### [七哥谈八字生辰（2022-01-09摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [共产党的以非灭美以非灭白，其实就是风水之战](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [福奇掩盖新冠病毒来源真相的新证据](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [爱尔兰部长：有信心从2月起放松对中共病毒的限制](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
 
 ### [1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`

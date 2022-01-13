@@ -2,38 +2,53 @@
 ---
 
 
-## 【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1852955/)
+## 前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1852986/)
 
-**撰稿：Grace**
+前国务卿蓬佩奥： 今年，我们必须把美国放在首位，在与敌人打交道时建立美国的实力。这意味着要对抗普京和中国共产党。如果拜登政府不能做到这一点，我们应该在2022年击败他们。 （转蓬佩奥撰文：2022年建立一个强大、安全的美国的优先事项）
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-12-at-7.35.46-PM.jpeg)图片来源：雅虎
-据Aljazeera 1月12日报道，哈萨克斯坦（Kazakh）当局说，他们在过去24小时内又拘留了近1700人，这些人被指控参与了上周震撼这个前苏联国家的反政府抗议活动。
 
-据报道，阿拉木图(Almaty)是该国最大的城市，也是动乱期间发生最激烈冲突的地方，当局周三报告的1678人被捕，使自1月2日示威活动开始以来被拘留的总人数达到约12000人。
 
-300多起刑事调查已经开始，其中包括据称对执法人员的攻击行为。
+> This year, we must put America First and establish American strength in our dealings with adversaries. That means standing up to Putin & the Chinese Communist Party. If the Biden Administration is unable to do this, we should defeat them in 2022. [https://t.co/ipuC4Ycp8V](https://t.co/ipuC4Ycp8V)
+> — Mike Pompeo (@mikepompeo) [January 12, 2022](https://twitter.com/mikepompeo/status/1481346695342567430?ref_src=twsrc%5Etfw)
 
-在这个拥有1900万人口、资源丰富的中亚国家，抗议活动最初因燃料价格飙升而爆发，并迅速蔓延到全国各地，演变成以政治口号为特色的反政府示威活动。
 
-据报道，目前，至少有160人被杀，包括数十名公民和十多名安全部队人员，这是哈萨克斯坦自30多年前获得独立以来爆发的最致命的暴力事件。
 
-在阿拉木图，抗议者放火焚烧政府大楼，并短暂占领了机场，而安全部队则以实弹和眩晕手榴弹作为回应。
+众议员帕特·法伦： 太对了！中共国的感受是我们最不应该关心的。 【转众议员吉姆·乔丹的推文：有人关心中共国的感受超过对新冠病毒的溯源】
 
-随着动乱的加剧，总统卡西姆-约马尔特·托卡耶夫（Kassym-Jomart Tokayev）试图通过宣布180天的燃料价格上限、解雇国家内阁并将纳扎尔巴耶夫从国家安全委员会主席的职位上解聘来缓解危机。
 
-托卡耶夫还请求集体安全条约组织（CSTO）提供援助，该组织是由俄罗斯领导的由六个前苏联国家组成的军事联盟。 托卡耶夫将暴力事件归咎于外国训练的 “土匪和恐怖分子”，但没有提供证据。
 
-该组织的回应是向哈萨克斯坦派遣了2000多名部队，执行 “维和 “任务。
+> Hitting the nail on the head! China's feelings are the last thing we should be concerned about. [https://t.co/XMQahdpOZm](https://t.co/XMQahdpOZm)
+> — Rep. Pat Fallon (@RepPatFallon) [January 12, 2022](https://twitter.com/RepPatFallon/status/1481381220051300357?ref_src=twsrc%5Etfw)
 
-该组织说，周三，托卡耶夫宣布以俄罗斯为首的集体安全条约组织联盟在哈萨克斯坦的维和任务完成。
 
-集体安全条约组织还说，从星期四开始，维和特遣队将用10天时间完全撤出。
 
-托卡耶夫，这位被钦点为纳扎尔巴耶夫2019年的继任者，他在周二对集体安全条约组织的一次虚拟高层会议上说，哈萨克斯坦已经成功抵御了一场 “未遂政变”。
+国会中国执行委员会： 跨党派的国会中国执行委员会的委员们，包括主席莫科里参议员和麦克噶文众议员，致信国际奥委会巴赫主席，要求国际奥委会证明与包括安踏在内的使用强制劳工的中国公司的合同是合理的。 （附信件全文）
 
-**新闻来源：[Kazakhstan detains nearly 1,700 more people over unrest](https://www.aljazeera.com/news/2022/1/12/kazakhstan-detains-nearly-1700-more-people-over-unrest)**
+
+
+> Bipartisan group of [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Commissioners, including Chairs [@SenJeffMerkley](https://twitter.com/SenJeffMerkley?ref_src=twsrc%5Etfw) and [@RepMcGovern](https://twitter.com/RepMcGovern?ref_src=twsrc%5Etfw), release letter to [@IOCThomasBach](https://twitter.com/IOCThomasBach?ref_src=twsrc%5Etfw) asking [#IOC](https://twitter.com/hashtag/IOC?src=hash&amp;ref_src=twsrc%5Etfw) to justify contracts with Chinese companies using forced labor, including [@ANTAsportswear](https://twitter.com/ANTAsportswear?ref_src=twsrc%5Etfw). [https://t.co/fLGrp9ZWpi](https://t.co/fLGrp9ZWpi) [pic.twitter.com/uW22GkcDpD](https://t.co/uW22GkcDpD)
+> — China Commission (@CECCgov) [January 12, 2022](https://twitter.com/CECCgov/status/1481317086693576717?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党外事委员会： 少数派领袖麦克劳：“我很高兴国务院继续反击中共非法的海上主张。这种领土侵略经不起法律审查，侵犯了东南亚许多国家的主权，并增加了印太地区冲突的风险。” （转引国务院发言人奈德·普莱斯的推文）
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "I'm glad [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) is continuing to push back on the CCP’s illegal maritime claims. This territorial aggression doesn’t hold up to legal scrutiny, violates the sovereignty of numerous nations in SE Asia, and is increasing the risk of conflict in the Indo-Pacific.” [https://t.co/poOj8vNeCd](https://t.co/poOj8vNeCd)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [January 12, 2022](https://twitter.com/HouseForeignGOP/status/1481396802054197256?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 这正是我强烈敦促每家美国公司停止与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 做生意并从他们的暴行中获利的原因。 【附大纪元时报：美国公司开发的技术正在推动中共政权及其军事发展，北京甚至指导和促进对美国公司及其资产的系统性投资和收购】
+
+
+
+> This is exactly why I have strongly urged that every U.S. company stop doing business with Communist China & profiting off of their atrocities. [https://t.co/c7t7niRcCK](https://t.co/c7t7niRcCK)
+> — Rick Scott (@SenRickScott) [January 12, 2022](https://twitter.com/SenRickScott/status/1481352686838628352?ref_src=twsrc%5Etfw)
+
+
 
  
 
