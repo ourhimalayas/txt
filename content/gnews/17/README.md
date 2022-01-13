@@ -2,31 +2,47 @@
 ---
 
 
-## 七哥说“这就是我的经历，我对人生的理解”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1856871/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-来源：郭先生2022-01-09直播10：16：07摘录
+**字幕文本（英汉对照）**
 
-因为这就是我的经历，我对人生的理解。我看过世界的、地球的山川，我站在地球之外看过地球呀，接近…私人飞机飞六万尺到五万八千尺，我多次让他们飞到最高度让我看到地球。你们看过吗？你们没有，我看过！你们坐过吗？我在地球整个所有的地方都看过，地球上我哪都去过，你们都去过吗？是吧。你到了非洲开普敦，你看到那个鲸鱼，“咵”开普敦鲸鱼湾窜的看鲸鱼的时候，你才会知道，哇塞！原来地球下面还有海这么大的世界！啊，然后你在学学历史你就知道，地球里面原来是另外一个星球撞进来了，在地球核心呐。所以，石油呐、能源呐、所谓的磁场就出来了。噢！原来月亮是地球这块爆出去的一个球；噢！原来人类还不知道。原来有火星、木里、土星；噢！原来所谓的太阳系，然后再发现我们人类原来有DNA，然后有卵子和精子，啊，原来扶一次墙能杀掉好几百万个精子，哇塞，这挺浪费的，好几个宇宙没了。像张高丽说的“宇宙无限大，地球一粒沙”是不是，他没想过，人无限大，精子真的是比一粒沙都没有。他…这个王八蛋是很坏的人你知道嘛，这是很坏的共产党。
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-**关注我们**
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-Discord 账号
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
 
-Gettr 账号
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

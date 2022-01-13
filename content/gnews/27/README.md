@@ -2,24 +2,54 @@
 ---
 
 
-## 安省基础医疗服务系统已不堪重负
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1856713/)
+## 灭共者之郭氏情报站（十一）2022.01.09/2022.01.12
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1856780/)
 
-加拿大温哥华扬帆农场    平民正道
+**出品：纽约香草山设计部**
 
-据【多伦多太阳报】1月11日报道，由于安大略省再次报告了因“奥密克戎”疫情所导致的重症监护入院人数的新高纪录，该省卫生部长当天表示将尽快向公众提供省级卫生系统能力的全面信息。
 
-[安省医院协会]最新数据显示，全省当天总共报告了近8000名新增病毒感染者，3220名疫情住院病例，其中包括约500名重症监护和250名使用呼吸机患者。
 
-对此，尽管安省近期实施了更严格的防疫措施以阻止疫情恶化，但“奥密克戎”这种高传染性病毒所造成的灾难，却在不断加剧医疗系统工作人员的严重短缺现象。因此，那些被视为非紧急的手术治疗已被暂停或延期以减轻医护人员不足的压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-据悉，当局目前正计划全面召回此前因未接种疫苗而被迫离职的医护人员，并希望以此应对安省即将崩溃的基础医疗服务系统。
 
-以上是今天的全部新闻，谢谢你的收听和收看，接下来是更加精彩的访谈环节，请不要走开，我们稍事休息，马上回来。
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+
+
+
+
+## **郭氏情报站 – 2022.01.09/2022.01.12文贵大直播总结提炼**：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-192940.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-A29A7B62-26EB-4854-BCD7-51C9E83E4B0A.jpg)
+**上一期：**
+
+**[灭共者之郭氏情报站（十）2022年1月7日版 – GNEWS](https://gnews.org/zh-hans/1834806/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
