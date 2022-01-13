@@ -2,64 +2,27 @@
 ---
 
 
-## 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855252/)
+## 01/13每日播报｜中共国暂停更多美国赴华航班 进一步限制两国交通往来
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1855262/)
 
-2021年12月1日 ~ 2022年1月12日
+**By:[秘翻新闻](https://gtv.org/video/id=61dfe951a6dfdd603153a8ae)**
 
-iTunes：
+**2022-01-13**
 
-MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名
+路透社1月12日报道，中共国政府于本周三下令在未来几周内将暂停 6 趟美国赴华航班，因此前这几架航班上有大量乘客对中共病毒检测呈阳性反应。
 
-MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天一直第一名🥇
+中共国航空监管机构表示，在最近的一次航班上有七名乘客被检测呈阳性后，将暂停美联航从旧金山飞往上海的另外两趟航班。从 1 月 31 日当周起，中国南方航空公司 的四班从洛杉矶飞往广州的航班也将被暂停，此举也将直接影响 2 月份的中共国回美航班。疫情期间，三家美国航空公司和四家中国航空公司每周在两国之间运营约 20 个航班，远低于疫情前每周 100 多个航班的规模。代表联合航空、达美航空、美国航空等公司的贸易组织美国航空公司表示，美国航空公司担心中断的影响，并正在继续评估对运营的影响。美国交通部没有立即置评。
 
-Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名
+中共国也一直在暂停与其他国家的航线。本周三，中共国暂停了来自法国和加拿大的六趟航班。但自去年 12 月以来，由于高度传染性的奥米炕变种引起的感染在美国飙升至创纪录高位，美国被取消的航班数量激增。自疫情开始以来，北京和华盛顿就航空服务发生争执。8 月，在北京对联合航空公司的四趟航班实施相同限制后，美国交通部将四趟来自中国航空公司的航班限制为 40% 的载客量，为期四周。中共国民用航空局9 月份表示，中共国几乎对旅客关闭了边境，将国际航班总数减少到每周仅 200 架次，即大流行前水平的 2%。
 
-Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名
+（秘翻新闻主编 清风先生编译报道）
 
-Billboards公告牌榜:
-
-Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇
+发布 : 文橙
 
 * * *
 
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record_27.jpg)
-
-
-[【PDF 下载】【美国USA】1-Dec-2021 ~ 12-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/【美国US】1-Dec-202112-Jan-2022-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

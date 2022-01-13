@@ -2,10 +2,10 @@
 ---
 
 
-## 日本反中共病毒疫苗游行
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855042/)
+## 中共外长王毅访问斯里兰卡，继续通过死亡陷阱控制这一岛国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1855046/)
 
-01/09/2022 日本静冈县发生反对疫苗游行，呼吁停止疫苗护照，反对阴性证明书，不要给儿童打疫苗。
+01/09/2022 中共外交部长王毅访问斯里兰卡，继续通过经济援助以及提供疫苗等这些死亡陷阱手段来控制这一岛国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
