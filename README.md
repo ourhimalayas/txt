@@ -15,130 +15,130 @@
 
 ---
 
-### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/1/README.md)
+### [【粤语配音】2022年1月12日：杨贝贝的辱华报道影响巨大（上）](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [安省基础医疗服务系统已不堪重负](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
+
+### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [特鲁多计划为加拿大人接种第四剂疫苗](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
+
+### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/2/README.md)
+### [奥密克戎在南非之前就已存在于加拿大](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共盗国贼贪腐程度骇人听闻](/content/gnews/3/README.md)
+### [中共盗国贼贪腐程度骇人听闻](/content/gnews/7/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥谈五行（2022-01-09摘录）](/content/gnews/4/README.md)
+### [七哥谈五行（2022-01-09摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/5/README.md)
+### [加拿大放弃对卡车司机的疫苗强制](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/6/README.md)
+### [医生告诉立法者：必须允许父母决定孩子是否接种 (1/2)](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈给国内战友的三件保证（2022-01-09摘录）](/content/gnews/7/README.md)
+### [七哥谈给国内战友的三件保证（2022-01-09摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/8/README.md)
+### [法官裁决：国防部不能阻止在军队疫苗授权审判中发现证据](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [特鲁多正恣意污名化未接种疫苗者](/content/gnews/9/README.md)
+### [特鲁多正恣意污名化未接种疫苗者](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥说“共产党这个邪恶到了极点，这是一个绝对的魔帮”（2022-01-09摘录）](/content/gnews/10/README.md)
+### [七哥说“共产党这个邪恶到了极点，这是一个绝对的魔帮”（2022-01-09摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [加拿大医护人员状告护士协会和媒体诽谤](/content/gnews/11/README.md)
+### [加拿大医护人员状告护士协会和媒体诽谤](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [民调显示多数加拿大人不屑与中共为伍](/content/gnews/12/README.md)
+### [民调显示多数加拿大人不屑与中共为伍](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [荷兰人增加抵制新冠封锁措施](/content/gnews/13/README.md)
+### [荷兰人增加抵制新冠封锁措施](/content/gnews/17/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [七哥谈“颜色革命”（2022-01-09摘录）](/content/gnews/14/README.md)
+### [七哥谈“颜色革命”（2022-01-09摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [德约科维奇的澳网参赛之战对健康自由意味着什么？（2/2）](/content/gnews/15/README.md)
+### [德约科维奇的澳网参赛之战对健康自由意味着什么？（2/2）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈就是这么自信（2022-01-09摘录）](/content/gnews/16/README.md)
+### [七哥谈就是这么自信（2022-01-09摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [美媒揭联邦政府早知可治愈的药物却隐瞒一切](/content/gnews/17/README.md)
+### [美媒揭联邦政府早知可治愈的药物却隐瞒一切](/content/gnews/21/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈“这一次是人类神和魔之间一个大选择，真和假撕裂的大选择”（2022-01-09摘录）](/content/gnews/18/README.md)
+### [七哥谈“这一次是人类神和魔之间一个大选择，真和假撕裂的大选择”（2022-01-09摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [七哥说“这个世界上没有比无知再可怕再贫穷的了” （2022-01-09摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [扬帆每日速递2022年1月12版](/content/gnews/20/README.md)
+### [扬帆每日速递2022年1月12版](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [揭秘 由于对功能增强研究的担忧国防部拒绝了生态健康联盟投标](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万](/content/gnews/22/README.md)
+### [苹果谷歌FB连手打压盖特 ，盖特实际数据每天request人数4百多万](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/23/README.md)
+### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [什么叫叛国？什么叫卖国？](/content/gnews/24/README.md)
+### [什么叫叛国？什么叫卖国？](/content/gnews/26/README.md)
  ` G-NEWS TAIWAN`
 
-### [西安的&#8221;共享财富&#8221;开始了](/content/gnews/25/README.md)
+### [西安的&#8221;共享财富&#8221;开始了](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`
 
-### [中国靠前的大企业, 只要和共产党有关的, 就有Ray Dalio 桥水基金投资](/content/gnews/26/README.md)
+### [中国靠前的大企业, 只要和共产党有关的, 就有Ray Dalio 桥水基金投资](/content/gnews/28/README.md)
  ` G-NEWS TAIWAN`
 
-### [整个西藏成为利益分配的牺牲品](/content/gnews/27/README.md)
+### [整个西藏成为利益分配的牺牲品](/content/gnews/29/README.md)
  ` G-NEWS TAIWAN`
 
-### [政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀](/content/gnews/28/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/29/README.md)
+### [中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [西媒头条 — 第152期](/content/gnews/30/README.md)
+### [西媒头条 — 第152期](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [乔·罗根（Joe Rogan）在 Gettr 上找到Twitter 缺失的东西](/content/gnews/32/README.md)
+### [乔·罗根（Joe Rogan）在 Gettr 上找到Twitter 缺失的东西](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [1/13 银河快讯: 丰田去年销量有望连续第二年位居世界第一；大规模疫苗接种将在东京大阪进行](/content/gnews/33/README.md)
+### [1/13 银河快讯: 丰田去年销量有望连续第二年位居世界第一；大规模疫苗接种将在东京大阪进行](/content/gnews/34/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/34/README.md)
+### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/35/README.md)
+### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/36/README.md)
+### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/37/README.md)
+### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/38/README.md)
  ` NewFOC`
 
-### [现实不是电影](/content/gnews/38/README.md)
+### [现实不是电影](/content/gnews/39/README.md)
  ` 骄子`
 
-### [去雍和宫烧香的年轻人](/content/gnews/39/README.md)
+### [去雍和宫烧香的年轻人](/content/gnews/40/README.md)
  ` 骄子`
 
-### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/40/README.md)
+### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/41/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [上海瑞金二路街道接种疫苗奖励220元，人们排起了长龙](/content/gnews/42/README.md)
+### [中共统治下的人民每天都生活在惊恐之中](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/43/README.md)
