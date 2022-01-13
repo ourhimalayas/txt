@@ -2,12 +2,10 @@
 ---
 
 
-## 现在不是地域、海洋文明和大陆文明的战争，是资本主义和共产主义的太空战
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856086/)
+## 疫苗经济
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856126/)
 
 台灣寶島農場
-
-
 
  
 

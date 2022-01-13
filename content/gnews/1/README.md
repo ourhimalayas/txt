@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗经济
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856126/)
+## 政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856189/)
 
 台灣寶島農場
 
