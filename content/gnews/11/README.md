@@ -2,45 +2,20 @@
 ---
 
 
-## 中共“清零”画皮被揭下 多地即将大戒严
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853105/)
+## 加拿大疫情恶化各省抗疫前景渺茫
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1853131/)
 
-作者：纽约香草山文艺部 – 宁文静
+加拿大温哥华扬帆农场皇家山频道    平民正道
 
+据【多伦多太阳报】1月10日报道，加拿大各省份疫情由于“奥密克戎”病毒的迅速传播而导致确诊病例数近期均大幅上升，并因此已开始造成该国大部分地区的医院不堪重负。
 
+据悉，魁省当天报告了约11000例新增病毒感染，近2600名住院患者以及26人死亡的严重疫情。而安省当天的疫情也与魁省的相当。但安省卫生部门表示，由于政府的极端防疫政策限制了获得准确数据的机会，因此，实际疫情要比官方所报告的要严重许多。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+虽然魁省和安省都因疫情的再度爆发而推迟了中小学的开学时间，但加拿大西部的阿尔伯塔省和B.C省却坚持认为重返校园有助于孩童的身心健康。对此，相关部门声称：将儿童暴露在失控的疫情之中，将无疑加剧“奥密克戎”病毒无节制的泛滥。
 
+* * *
 
-
-郭先生1月11日盖特直播中爆料，北到黑龙江，南至上海杭州，中共国多地即将开始大戒严。国内许多人不幸染上病毒，大多是被迫排长队检测核酸时“中招”的。黑龙江、辽宁、天津、河南、杭州、上海等地区将开始大戒严。直播中进一步指出，共产党用强硬手段“清零”，结果病毒遍地开花，希望大家好好保护自己，尽量不要染上病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-5.jpg)
-参考链接：
-[文贵先生2022年1月11日盖特直播](https://gettr.com/post/pnog2f2016)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Irene木木
-编辑：Jack Li文阳
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

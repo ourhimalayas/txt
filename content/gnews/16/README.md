@@ -2,37 +2,48 @@
 ---
 
 
-## 浅谈昆仑山龙脉（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853060/)
+## 加拿大阿省卫生官承认ICU数据造假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853101/)
 
-**【雅典娜观察】与您一起洞察世界**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6842e98a62b7462cbc4c8d8390d1fbf7.jpeg)图片来源：搜狐
-**作者：**freedom
-**编辑：**翼族
+作者：纽约香草山文艺部 – 宁文静
 
-**一、昆仑山的由来**
 
-风水界自古以来便认为昆仑山为天下诸山之祖。杨筠松在《撼龙经》中云：“须弥山是天地骨，中镇天地为巨物。如人背脊与项梁，生出四肢龙突兀。”这里面所说的“须弥山”指的就是昆仑山，非佛教中所言的须弥山。
 
-古书有曰：天下龙脉皆出于昆仑，也就是说天下所有的山脉均发源于昆仑山，具体来说是发源于昆仑山西端的帕米尔高原，所以帕米尔高原便成了世界诸山之祖，青藏高原平均海拔4000～5000米，而帕米尔高原的平均海拔4000米-7700米。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-“帕米尔”，是塔吉克语，意为“世界屋脊”，拥有许多高峰，中国古代称不周山、葱岭。现代地理学认为，该高原是地球上两条巨大山带（阿尔卑斯－喜马拉雅山带和帕米尔－楚科奇山带）的山结，也是亚洲大陆南部和中部地区主要山脉的汇集处，包括喜马拉雅山脉、喀喇昆仑山脉、昆仑山脉、天山山脉、兴都库什山脉五大山脉，它群山起伏，连绵逶迤，雪峰群立，耸入云天，号称亚洲大陆地区的屋脊。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/bebd35142b184ea38e7422e0110d62d3.jpeg)帕米尔高原美景，来源：搜狐
-**二、何谓龙脉**
 
-龙者，陇也，气之聚也！观龙气，主要看山脉，气在地中凝聚巨大造成上拱，而形成山脉，所以山脉就是龙气的藏所。按照现在我们大陆板块理论解释的话，就是大陆板块间能量的冲撞形成的隆起，从更深层理解就是地球内核转动带动地幔以及地壳运动，地壳之上的陆地向气聚的位置聚合，好比印度板块与欧亚板块碰撞形成了青藏高原，为什么印度板块朝着欧亚板块运动从而发生撞击，因为置地幔带动地壳物质均朝向青藏高原的位置聚合而来，也就是地气的凝聚造就了青藏高原。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-20.png)地球内部结构（图中数字的单位均为km）
-青藏高原及帕米尔高原是世界最高的地块，气之所藏地之所极，它高的原因是因为藏气太盛的缘故，传统风水中的核心内容就是气，类似同针灸中人体经脉中的脉气一样，看不见摸不着，却真实的感觉得到！龙气来源于日月星辰，行走于山川大地。它是地气之母，是生气之源，可催生一个文明的兴旺，可导致一个接触人物的诞生。
 
-青藏高原及帕米尔高原是世界最高的地块，气之所藏，地之所极。它高的原因是因为藏气太盛的缘故，传统风水中的核心内容就是气，类似针灸中人体经脉中的脉气一样，看不见摸不着，却能真实地感觉到！龙气来源于日月星辰，行走于山川大地，它是地气之母，是生气之源，可催生一个文明的兴旺，可导致一个杰出人物的诞生。
+1月10日，在加拿大阿尔伯塔省的新闻发布会上，首席卫生官员迪娜·辛肖承认，在整个中共病毒大流行期间，该省卫生局将一些非ICU患者报告为了ICU患者。
 
-*发布：翼族*
+辛肖表示，在核查历史数据的过程中，他们发现一些医院的某些部门，在可用ICU床位和非ICU床位之间来回转换。按照这些医院的操作标准，因中共病毒入院的病人被归类为ICU患者，而事实上当时这些房间已被改为非ICU病房。辛肖说，这些数字现在已经被修正了过来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-11.jpg)
+这一声明引发了巨大的社会反响。评论人士指出，不仅在阿省，在加拿大任意一级政府卫生机构，ICU的数字一直被用作封锁、强制接种疫苗和疫苗护照的重要参考。这些错误的关键信息对公众的生活和心理、对当地的经济，都已经造成了无法弥补的伤害。而这些伤害，仍然在继续。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：
+[WATCH: Alberta Health admits they manipulated ICU numbers](https://www.thecountersignal.com/news/alberta-health-admits-they-manipulated-icu-numbers)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

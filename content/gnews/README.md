@@ -15,116 +15,116 @@
 
 ---
 
-### [中共盗国贼贪腐程度骇人听闻](/content/gnews/1/README.md)
- ` 扬帆枫叶快讯`
+### [1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [加拿大魁北克省将对未接种疫苗者征收健康税](/content/gnews/2/README.md)
+### [1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [去年11月，加拿大早于南非发现奥密克戎病毒](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国天津市爆发疫苗灾难](/content/gnews/3/README.md)
+### [全面清零现恶果，高盛下调今年中共国经济增长预期](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共盗国贼贪腐程度骇人听闻](/content/gnews/5/README.md)
  ` 扬帆枫叶快讯`
 
-### [强制接种是对加拿大宪章和自由的践踏](/content/gnews/4/README.md)
+### [加拿大魁北克省将对未接种疫苗者征收健康税](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国天津市爆发疫苗灾难](/content/gnews/7/README.md)
  ` 扬帆枫叶快讯`
 
-### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/5/README.md)
+### [强制接种是对加拿大宪章和自由的践踏](/content/gnews/8/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [1/05文贵直播：中共灭亡前房价不会暴跌，也不会让粮价暴涨（粤语配音）](/content/gnews/6/README.md)
+### [1/05文贵直播：中共灭亡前房价不会暴跌，也不会让粮价暴涨（粤语配音）](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大疫情恶化各省抗疫前景渺茫](/content/gnews/7/README.md)
+### [加拿大疫情恶化各省抗疫前景渺茫](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [魁省将使用疫苗护照购买大麻和酒类饮品](/content/gnews/8/README.md)
+### [魁省将使用疫苗护照购买大麻和酒类饮品](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共国宏观税负 早在2016年便高达百分之34.8](/content/gnews/9/README.md)
+### [中共国宏观税负 早在2016年便高达百分之34.8](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [为举办冬奥会 中共政治斗争激烈 地方政府极力掩盖灾难真相](/content/gnews/10/README.md)
+### [为举办冬奥会 中共政治斗争激烈 地方政府极力掩盖灾难真相](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [中共“清零”画皮被揭下 多地即将大戒严](/content/gnews/11/README.md)
+### [中共“清零”画皮被揭下 多地即将大戒严](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [加拿大阿省卫生官承认ICU数据造假](/content/gnews/12/README.md)
+### [加拿大阿省卫生官承认ICU数据造假](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [疫苗灾难正在席卷美国整个航空业](/content/gnews/13/README.md)
+### [疫苗灾难正在席卷美国整个航空业](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [新冠溯源：美国国会欲调查福奇是否隐瞒信息](/content/gnews/14/README.md)
+### [新冠溯源：美国国会欲调查福奇是否隐瞒信息](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [封城锁户的统治阶级正自吞罚果](/content/gnews/15/README.md)
+### [封城锁户的统治阶级正自吞罚果](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [浅谈昆仑山龙脉（一）](/content/gnews/16/README.md)
+### [浅谈昆仑山龙脉（一）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/17/README.md)
+### [2022.1.12大直播 郭文贵先生呼吁战友们跟中共邪教的传播者抗争到底](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/18/README.md)
+### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [德国病毒学家：“清零”不是长久之计](/content/gnews/19/README.md)
+### [德国病毒学家：“清零”不是长久之计](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [重磅！新中国联邦被美国间接承认，并展示全球拯救的力量](/content/gnews/20/README.md)
+### [重磅！新中国联邦被美国间接承认，并展示全球拯救的力量](/content/gnews/24/README.md)
  ` YALUN 亚伦`
 
-### [【G时新闻】阴谋论? 接种新冠疫苗出生的婴儿是一种新的人类类型！](/content/gnews/21/README.md)
+### [【G时新闻】阴谋论? 接种新冠疫苗出生的婴儿是一种新的人类类型！](/content/gnews/25/README.md)
  ` G-时新闻`
 
-### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/22/README.md)
+### [WHO承认不断打疫苗加强针对中共病毒Omicron无效](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冲绳美军基地感染中共病毒病例占全县6成](/content/gnews/23/README.md)
+### [冲绳美军基地感染中共病毒病例占全县6成](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《我是音雄》第二季总决赛暨跨年颁奖的观后感](/content/gnews/24/README.md)
+### [《我是音雄》第二季总决赛暨跨年颁奖的观后感](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线：美国能否扭转被中共渗透所导致的美国国会两极化现状](/content/gnews/25/README.md)
+### [秘翻在线：美国能否扭转被中共渗透所导致的美国国会两极化现状](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党](/content/gnews/26/README.md)
+### [前国务卿蓬佩奥：我们必须把美国放在首位，这意味着要对抗普京和中国共产党](/content/gnews/30/README.md)
  ` 美国政要直译推`
 
-### [封城只是表象，是为掩盖疫苗的巨大灾难](/content/gnews/27/README.md)
+### [封城只是表象，是为掩盖疫苗的巨大灾难](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [加拿大魁省将对未接种疫苗者征税](/content/gnews/28/README.md)
+### [加拿大魁省将对未接种疫苗者征税](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [安省省长和首席卫生官均表示不会对拒打疫苗者征税](/content/gnews/29/README.md)
- ` 丁过`
-
-### [【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万](/content/gnews/30/README.md)
+### [【秘翻在线】哈萨克斯坦最大的城市的被拘留人数已经过万](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年1月12日文贵先生直播摘要及音频—银河系农场](/content/gnews/31/README.md)
+### [2022年1月12日文贵先生直播摘要及音频—银河系农场](/content/gnews/34/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈重庆人民的诅咒（2022-01-09摘录）](/content/gnews/33/README.md)
+### [七哥谈重庆人民的诅咒（2022-01-09摘录）](/content/gnews/35/README.md)
  ` MG FARM`
 
-### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/34/README.md)
+### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙](/content/gnews/35/README.md)
+### [1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
-
-### [健康的儿童不会死于新冠，但医药公司仍然要让儿童使用疫苗](/content/gnews/36/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [有声|追求言论自由 不同政见人士大规模迁移加入盖特](/content/gnews/37/README.md)
- ` MOSREC`
 
 ### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/38/README.md)
  ` 华盛顿DC-Russian`

@@ -2,27 +2,43 @@
 ---
 
 
-## 封城锁户的统治阶级正自吞罚果
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853071/)
+## 中共“清零”画皮被揭下 多地即将大戒严
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853105/)
 
-采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-22-edited.jpg)图片来源：CTV
+作者：纽约香草山文艺部 – 宁文静
 
 
-据媒体[美国信仰]1月11日发表评论称：人们目前已体会到封城锁户将给世界带来无法挽回的次生灾难，但各国”精英统治”阶级却仍然对儿童和其他弱势群体施加这种附加伤害并乐此不疲。
 
-文章指出，当局政府利用其巨大财力、行政权力和媒体公信力促使了以上悲剧的发生。但任何稍具常识的人都能预见到封锁措施所带来的虚假防疫效果比病毒感染更严重。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-目前，统治阶级已意识到人们的觉醒，此前一直服务于权贵的主流媒体开始转向，承认封锁和持续关闭学校正给所有美国人，特别是儿童造成永久性伤害。并企图通过“只肯定部分事实而否定所有真相”的欺诈，来重树其一贯的权威信任度。
 
-同时，这些独裁者继续对病毒来源的质疑者和反对疫情控制规定、疫苗政策的不同意见者进行打压、禁言甚至污名化。历史一定会记住谁为掩盖真相而把人民推入灾难的深渊，又是谁为真理、生命和自由挺身而出并让儿童免遭精英阶级的蓄意戕害。
 
-* * *
+郭先生1月11日盖特直播中爆料，北到黑龙江，南至上海杭州，中共国多地即将开始大戒严。国内许多人不幸染上病毒，大多是被迫排长队检测核酸时“中招”的。黑龙江、辽宁、天津、河南、杭州、上海等地区将开始大戒严。直播中进一步指出，共产党用强硬手段“清零”，结果病毒遍地开花，希望大家好好保护自己，尽量不要染上病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-5.jpg)
+参考链接：
+[文贵先生2022年1月11日盖特直播](https://gettr.com/post/pnog2f2016)
 
-信息来源：[No, Those Who Pushed Lockdowns Can’t Hide From The Consequences Now](https://americanfaith.com/no-those-who-pushed-lockdowns-cant-hide-from-the-consequences-now/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-* * *
+总编：Irene木木
+编辑：Jack Li文阳
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
