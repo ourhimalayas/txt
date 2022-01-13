@@ -2,11 +2,12 @@
 ---
 
 
-## 伊维菌素和青蒿素的伟大神奇之处（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854606/)
+## 疫苗大灾难（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1854672/)
 
 #### 整理：雅典娜速记组
-![](https://assets.gnews.org/wp-content/uploads/2022/01/伊维菌素和青蒿素的伟大神奇之处（一）-.jpg)
+发布：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗大灾难（一）-.jpg)
 发布：Frank2021
 
 **更多资讯，请关注：****
