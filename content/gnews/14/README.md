@@ -2,38 +2,49 @@
 ---
 
 
-## 短视频：美国多个州中共病毒病例创下新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853920/)
+## 策反哈萨克使俄罗斯比苏联解体还惨使颜色革命传到中国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853957/)
 
-#### 翻译：Lish
-校对：精靈藍
-视频剪辑：向上James
-编辑：文泓
+G-TV视频链接：[https://gtv.org/video/id=61df7c2887664c47acd3e753](https://gtv.org/video/id=61df7c2887664c47acd3e753)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会.png)图片来源：视频截屏
+**郭文贵先生：** 这谁愿意干这事？这美国当然愿意干这事，这还用说吗？欧洲当然愿意干这事。在这个问题上，美欧绝对跟你俄罗斯、跟中共是绝对干的。美国CIA在国内不干事，在外国从来不会闲着。但是，首先一点，你能被干是啥原因？王毅在这时候绝对，你看王毅是掌握了绝对的美国行动的情报。
 
-**翻译视频**
-我们首先请驻亚特兰大的记者史蒂夫·哈里根发言，亚特兰大是疾病预防控制中心(CDC)的所在地。晚上好！史蒂夫，
+你要看到这一点，你们要想到。就是他掌握美国情报，美国要行动，马上就跑去告诉阿富汗，“快快快，他们要怎么炸你们，你们赶快怎么弄”。到越南，他要把你们几个头要给斩首，你赶快行动，杀人“。然后这时候去了，”赶快，他们要发动农村包围城市的起义，要进入你的大城市，然后要把你的首都~”这个首都叫什么，文耀？
 
-晚上好，布雷特，本周多个州的新冠病例数量创下新纪录。导致在许多城市，排队检测的队伍绵延数个街区，人们等待数小时才能知道他们是否感染了中共病毒。
+文耀：阿拉木图。
 
-我们明天要去旅行。我们想确保我们是干净的。
+郭文贵先生：阿拉木图，阿拉木图的东南侧有一个镇子，叫凡契尔（音，下同）凡契尔这个镇子上就是军人最多的地方，说从凡契尔的军人，退伍军人开始来搞你们的。凡契尔出了很多潜水艇的大家伙，你知道吗？那是很厉害的地方，那地方是产军人的地方。说要从凡契尔到阿拉木图来，快把黄金给我。我得把黄金拿走。这个哥们说，“黄金你就别拿了，是吧”？
 
-我们接种了疫苗也遵守了一切的规定，但我们感觉不舒服。所以我们想去做检测。
+就像我放在小王子家的，是不是？1000个币，我要拿走，一会有人要来炸你。七哥，你就别拿了，你就搁这一两天吧？是吧？不行，不行，你快拿着吧，是吧？就是较量，是吧？较量完最后你看着，我就在这直播告诉你们，最后愿意把黄金给出去。最后“啪“一下，俄罗斯就来了。俄罗斯来是什么问题？
+大家要想到这个事太大了。如果到了，如果普京面对乌克兰的时候，这时候他要失去了这个地方，哈尔巴耶夫这个团队、哈萨克斯坦，俄罗斯又一次，比苏联解体还惨。对中共，绝对不是一带一路的问题。中共就把——真的这个革命就会传到中国去，传到哪去知道吗？新疆。一定会传到新疆、一定会传到西藏。
 
-美国七天来的新病例的平均数约为每天20万例，比一周前增长了47%，包括纽约、新泽西和马萨诸塞在内的几个州的病例都创记录的高，报告在过去一周的新病例比病毒开始以来的任何其他一周都多。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-然而在世界范围内，城市正在取消或大量缩减纪念新年的计划，在美国，卫生官员建议人们留在家里与家人一起。
+编辑整理：Jacques；
 
-视频链接：[Multiple states hit record high COVID cases | Fox News Video](https://video.foxnews.com/v/6288910317001#sp=show-clips)
+字幕文件制作：小满；
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

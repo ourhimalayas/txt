@@ -2,26 +2,46 @@
 ---
 
 
-## 马化腾一面向中共表忠心一面暗示腾讯随时会被干掉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1853961/)
+## 哈萨克事件显示世界政治版块能源政治和世界风水都在变
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853987/)
 
-**作者:****  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-77.png)
-（图片来自网络）
+G-TV视频链接：[https://gtv.org/video/id=61df7cc087664c47acd3e799](https://gtv.org/video/id=61df7cc087664c47acd3e799)
 
-中共国互联网科技巨头腾讯的创始人马化腾近日公开向以习近平为首的中共政权表忠心。不过，他同时也暗示，腾讯随时会被中共干掉。
+**郭文贵先生：**你知道这两天发生什么事吗？听说美、欧、俄、中，私下里明确交底牌了：如果你美国、你敢欧洲再往前走，我们就该怎么着怎么着，就是打核战了。但是，好消息是，据我所了解，美欧表态，几乎，就是搭都不搭理你。
 
-据《希望之声》1月13日报道，中企科技巨头腾讯的创始人马化腾近日在公开发言时表示，腾讯只是一家普通公司，随时都可能会被换掉。此言一出立刻引发了业界的关注。
+就像当年叶利钦在北京，对着全世界说：“不要忘了，我们俄罗斯拥有世界上最多的核武器”。结果人克林顿打着蝴蝶结，一帮人笑着：是吗？我早就听说了！——哈哈大笑。人家就笑他。就是你忘了你的核武器里边加一堆儿还不如我一个大呢，是吧？克林顿就那么笑着，把叶利钦气到发抖，听说回到钓鱼台喝了一晚上酒：人家根本看不起你！是吧？
 
-根据中共国媒体信息，马化腾是在去年12月的员工大会上表示，腾讯只是社会发展中的一个普通公司，并非什么基础服务机构，随时都可以被换掉。他还称，未来腾讯将继续服务国家与社会，做到“不缺位、不越位”。马化腾的上述说法被认为是向习近平政府表忠心。
+美国和欧洲现在对中共和对世界这个事儿，你可以从哈萨克斯坦看出来，世界的政治板块和世界的地域政治、能源政治，最后我们要说到世界上的风水，一切都在改变。我绝不相信，再能回到哈萨克斯坦的之前的前夜世界。
 
-腾讯作为互联网巨头公司，在去年受到中共政府的高压监管，公司的业务收入、股价与业绩全都受到巨大冲击。在此情况之下，腾讯还被迫投入上千亿元“捐款”，支持中共政府推动的“共同富裕”政策。同时，创始人马化腾也宣布从部分腾讯下属公司的机构离职。分析人士认为，腾讯与马化腾的现状是中共国“国进民退”政策的代表性体现。
+越南、阿富汗让美国人看到了，俄罗斯和中共再下去，而不是阻止北欧东扩。而是能不能阻止得了中俄西扩、中俄统治全球，从昆仑山脉、帕米尔高原到印度洋、到大西洋，北极已经现在是，俄罗斯是咄咄逼人了。
 
-评论人士何旭对《希望之声》表示，马化腾的说法就是在告诉大家，腾讯公司的业务规模虽然很大，但是中共的监管政策可以随时打倒它，因为它不是体制内的机构。此外，马化腾这次还声明说“腾讯不会越位”，明显是对中共铁拳打击的服软，主动配合中共“国进民退”政策的需要。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-新闻链接：
+编辑整理：Jacques；
 
-[https://www.soundofhope.org/post/583916](https://www.soundofhope.org/post/583916)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
