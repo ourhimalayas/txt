@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 1:20 AM (UTC)`
+
+德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。<br/><br/>Djokovic’s mother backing up her son: If Novak is healthy, he should not be pressured to take the vaccine in order to play tennis. Vaccine is a personal choice, it is human rights. People who vaccinated with 2 shots even 3 shots are infected with coronavirus as well. The notion that if Novak is not vaccinated, he might get 10,000 people sick if he coughs on the court is silly. <br/><br/> 
+![img](https://media.gettr.com/group28/getter/2022/01/13/01/84fb9552-41f2-64ba-c0a8-a2ce3692d6f3/out.jpg)
+
+---
+
 `@miles 1/13/2022 1:02 AM (UTC)`
 
 1月11日，在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市安阳被封城。<br/><br/>As Beijing prepares for the Winter Olympics next month, another Chinese city of 5 million residents - Anyang - is under strict lockdown on 11th, January.<br/>
@@ -156,13 +163,6 @@ Click on the image below to listen to the podcast:<br/><br/>Jan. 11, 2022<br/>Pl
 
 EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第三集第四节：让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
 ![img](https://media.gettr.com/group15/origin/2022/01/11/02/7edaf34d-0893-df1f-0cef-2c95be624d47/out.jpg)
-
----
-
-`@miles 1/11/2022 2:38 AM (UTC)`
-
-1/09/2022 Miles Guo: Zeng Qinghong is the real master of the CCP’s politics. He has a deep understanding of the anthropogeography of China and supernatural powers. His insight of political rivals is unparalleled within the CCP. Since the death of Mao Zedong, Zeng has been the sole representative to worship the Kunlun Mountains in person, on behalf of the CCP.<br/><br/>1/09/2022 文贵直播：曾庆红是中共的政治高手，他对中国的地理人文了如指掌，不但深谙风水和奇门遁甲，还对政治对手有深度了解。毛泽东死后，曾庆红是唯一代表中共去昆仑山祭拜的人<br/>
-![img](https://media.gettr.com/group20/getter/2022/01/11/02/ab3f5f0b-d5ea-8038-d3d5-f4a312246dd8/out.jpg)
 
 ---
 
