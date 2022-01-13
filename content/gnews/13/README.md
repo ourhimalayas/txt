@@ -2,31 +2,78 @@
 ---
 
 
-## 七哥谈曾庆红（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852716/)
+## 共产党的以非灭美以非灭白，其实就是风水之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
 
-来源：郭先生2022-01-09直播09：14：15摘录
+**郭文贵**
+Miles Guo
 
-我为什么要谈重庆呢？我们曾经都谈曾庆红，曾庆红绝对我认为这是中国活着的人当中、喘气儿的、包括老江，第一高人。十个习近平加上今天七个常委，再加上现在刚出来这五个人，他也不是曾庆红的对手。就刚才讲的昆仑山脉、整个喜马拉雅的玉女峰、整个昆仑峰、卡兹玛峰（同音），和整个的喜马拉雅7770米的神峰、到整个重庆、到整个成都、到九寨沟、到长江、到黄河、到南普陀、到福建、到台湾，河流之间能顺手一抓，能把这河流的人脉，说在昆仑山脉居住着6亿，在西藏的水流居住着6亿人，周围大概有12亿人。 然后加上中国将近二十几亿人的分布，只有曾庆红能说出来，没有人能说出来的。谈《山海经》、谈整个说《三新通论》（疑：《三命通汇》为明朝万明英著，下同），老万、万心什么方了？写整个《三新通论》为什么写出来？哪行，哪不行？然后怎么生产出来所谓中国的这些《奇门遁甲》这些书，曾庆红几十年前给你搞得明明白白。曾庆红不会让人去对重庆陈敏尔动手 ，曾庆红对陈敏尔说过一句话，陈敏尔最后一定自己把自己毁了。很早以前当时跟习在江浙时候，搞什么“习思语”的时候，不用在乎他。最早对薄熙来说过，薄熙来进了重庆不会再出来的。 孙政才多往曾家巴呀，结果曾就告诉他身边儿的人，当时陈鑫他的秘书说“此人没有未来，少见为妙”。 对王岐山说“既不要反，也不要近他”。孟建柱是江家的杀手，但是他对孟和所有家人都说“孟这个人只能用，千万不能亲近”。对韩正是怎么说法？说“韩正这个人能帮则帮，但是千万不要用他”。就是能帮就帮，你成了我就帮，千万不要用你。曾庆红之奥深，这些都不能比。我再给你们说每年一个特殊的时辰，你们知道特殊时辰，千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间是什么时间？中国只有曾庆红，几代政府从毛泽东时期由周恩来去。毛泽东时期以后只有一个曾庆红亲自去；亲自到南普陀的只有曾庆红；到西藏的只有曾庆红；到整个龙之头、到整个东南的只有曾庆红。到泰山的只有曾庆红和曾庆红送去的江泽民。我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官能说出个1、2、3出来的。排在第一个水平是曾庆红，第二个是胡锦涛。
+它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+然后把非洲人送到了哪去了，把非洲人送到了欧洲去
+then where did they send the Africans? the Africans were sent to Europe
 
-**关注我们**
+非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
+The Africa’s so-called illegal immigrants, then incite African Americans in America
 
-Discord 账号
+闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
+to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+你见中共用黑白过，它认为黑为水，白为金，是吧
+You have seen the CCP use black or white, it believes that black is water and white is gold, right?
 
-Gettr 账号
+在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
+Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
+It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
+
+东边是什么？东方为绿色，为木色，南边为火，南为火
+What’s the east? east is green, wood color, south is fire
+
+它发现我得怎么干，我要把整个的能烧掉你金的五行当中
+It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
+
+南方的就是黑，黑人，非洲的火烧你的金，炼你的金
+the south is black, black people, and the fire of Africa burns your gold and refines your gold
+
+利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
+Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
+
+以土为多的国家，然后在那装擀面杖子
+earth-based country, and then pretend to be strong there
+
+就是共产党的所有精神境界和文化，都是一样的境界
+It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
+
+无知、愚昧，它本身就不平衡，它硬整出来的平衡
+ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
+
+这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
+This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
+
+**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
+
+Date: 01/11/2022
+原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
+The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
+原视频日期：2022/01/09
+原视频链接 https://gettr.co/post/pnef2s2d7a
+任务编号：KC409（3459）
+视频时间段 : 0:00-1:51
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

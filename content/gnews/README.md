@@ -15,101 +15,101 @@
 
 ---
 
-### [CEO杰森·米勒：盖特正在分散和夺回话语权](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈“可怕的是中国人没有了信仰”（2022-01-09摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥谈中共深信这个所谓它不让你信的迷信（2022-01-09摘录）](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [“早期治疗总是有效的”前COVID前线护士告诉教育委员会](/content/gnews/5/README.md)
+### [世卫组织说，奥米克戎变异病毒将在“6到8周内”感染半个欧洲](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有信仰和没信仰之间一个大PK的时代](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2022年1月12日文贵先生直播摘要及音频—银河系农场](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [七哥说“我就是灭共的”（2022-01-09摘录）](/content/gnews/7/README.md)
+### [规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈重庆人民的诅咒（2022-01-09摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥谈八字生辰（2022-01-09摘录）](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [共产党的以非灭美以非灭白，其实就是风水之战](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [福奇掩盖新冠病毒来源真相的新证据](/content/gnews/10/README.md)
+### [CEO杰森·米勒：盖特正在分散和夺回话语权](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [爱尔兰部长：有信心从2月起放松对中共病毒的限制](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
-
-### [七哥谈“共产党争夺二十大的一种大屠杀的开始”（2022-01-09摘录）](/content/gnews/12/README.md)
+### [七哥谈“可怕的是中国人没有了信仰”（2022-01-09摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [七哥谈曾庆红（2022-01-09摘录）](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [七哥谈“和重庆扯不断的关系”（2022-01-09摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙](/content/gnews/15/README.md)
+### [1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [Visa调查结果：九个国家的小企业计划提供加密货币支付](/content/gnews/16/README.md)
- ` 纽约香草山MOS02`
-
-### [2022年1月12日大直播全文精萃](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [健康的儿童不会死于新冠，但医药公司仍然要让儿童使用疫苗](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [有声|追求言论自由 不同政见人士大规模迁移加入盖特](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|中疾控专家就天津疫情公开发声却惨遭墙内民众嘲讽](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [扬帆每日速递2022年1月12版](/content/gnews/21/README.md)
- ` 温哥华扬帆农场`
-
-### [罗根及其百万粉众因盖特重获言论自由新生](/content/gnews/22/README.md)
- ` 扬帆枫叶快讯`
-
-### [麦卡洛博士 — 我的短信炸开了锅，人们说如果我不打疫苗就会失去工作， 有什么工作值得你冒生命危险去打这些疫苗？](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [4400万失业大军，1076万应届毕业生，大学生就业危机如何度过？](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美立法者表示美国科技公司不应协助中共作恶](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵直播精大纲 2022/01/12](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大与台湾合作同御共匪](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [七哥说“共产党对这个国家的控制是从天到地、从心到生殖器” （2022-01-09摘录）](/content/gnews/28/README.md)
+### [七哥谈中共深信这个所谓它不让你信的迷信（2022-01-09摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [炸裂消息：最高层协调的蓄意过失杀人](/content/gnews/29/README.md)
+### [“早期治疗总是有效的”前COVID前线护士告诉教育委员会](/content/gnews/9/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [有信仰和没信仰之间一个大PK的时代](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥说“我就是灭共的”（2022-01-09摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [七哥谈八字生辰（2022-01-09摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [共产党的以非灭美以非灭白，其实就是风水之战](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [福奇掩盖新冠病毒来源真相的新证据](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [爱尔兰部长：有信心从2月起放松对中共病毒的限制](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [七哥谈“共产党争夺二十大的一种大屠杀的开始”（2022-01-09摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [七哥谈曾庆红（2022-01-09摘录）](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [七哥谈“和重庆扯不断的关系”（2022-01-09摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [Visa调查结果：九个国家的小企业计划提供加密货币支付](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年1月12日大直播全文精萃](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [健康的儿童不会死于新冠，但医药公司仍然要让儿童使用疫苗](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [有声|追求言论自由 不同政见人士大规模迁移加入盖特](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|中疾控专家就天津疫情公开发声却惨遭墙内民众嘲讽](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [扬帆每日速递2022年1月12版](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [麦卡洛博士 — 我的短信炸开了锅，人们说如果我不打疫苗就会失去工作， 有什么工作值得你冒生命危险去打这些疫苗？](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [美立法者表示美国科技公司不应协助中共作恶](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文贵直播精大纲 2022/01/12](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大与台湾合作同御共匪](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥说“共产党对这个国家的控制是从天到地、从心到生殖器” （2022-01-09摘录）](/content/gnews/30/README.md)
+ ` MG FARM`
+
+### [炸裂消息：最高层协调的蓄意过失杀人](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/30/README.md)
+### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/32/README.md)
  ` 华盛顿DC-Russian`
-
-### [中国可能爆发类似埃博拉的出血热病毒或马尔堡病毒——死亡率50%](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [尸检证实：男子死于辉瑞Covid疫苗直接引起的心肌炎（2/2）](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [文贵爆料 1.12：伴随疫情，大刀向着“地主”的头上砍去](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`

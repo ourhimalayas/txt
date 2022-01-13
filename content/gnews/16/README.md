@@ -2,54 +2,31 @@
 ---
 
 
-## Visa调查结果：九个国家的小企业计划提供加密货币支付
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852693/)
+## 七哥谈“共产党争夺二十大的一种大屠杀的开始”（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852725/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2022-01-09直播09：18：15摘录
 
+政治镀金，同时也是个非常险恶的地方。刚刚的所谓这五个大内阁、二十大最核心人物出来就出这事儿，它不是人为的，我认为这是天意是偶然，而且也开启了共产党争夺二十大的一种大屠杀的开始。接下来会是谁？陈全国、胡春华、丁薛祥都会有这样事发生。所以我才上次直播、上上次直播，两次以前我说，兄弟姐妹们这个名单的公布和江湖上的流传，即是“试金石”同时也是最后的一场战争完最后就剩下几个人了。看谁能决胜负，咱能分两派，站出来吧，对决的时候。这对决的时候你一看有两种人，一种是一定要你死在战场上，不允许你回去的，那就把你弄出去、去战去。一种我要在这选出一个王子出来，选出个继承人出来，那就要最后倒下的全都不行，那就是王者行。共产党的二十大是什么？送出去的人可能希望都死掉， 因为决定谁出去参战的人可能是唯一活下来的人，因为他不用在战场当中。这时候就看出来最后的决战是习、曾。所以重庆还有二十大的名单出来，就开启了习、曾之战。大家就在这儿看吧，新中国联邦在这就遇到了昆仑神呐、喜马拉雅山神呐！我天天在那儿念叨念叨，说帮我是吧！所以说很有意思。听我讲完这个以后，七哥可不是神神叨叨。你们好好看看《山海经》、《三新通论》。然后研究研究昆仑山脉、喜马拉雅山脉就知道为啥我们爆料革命第一个追求是喜马拉雅的目标。盘古为什么习近平在冬奥会前、二十大的六中全会前，一定要把“龙头”变成“包头”、包成“鸟头”，它不是开玩笑的，为什么一国之力要弄一个大玉的印戳？头两天我听说这个戳花了不少钱这个印，取自昆仑山 这个绿玉，一大块绿玉， 让他们给碎了，挖下去刻上郭文贵生辰八字。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[ONA网站](https://www.oann.com/a-quarter-of-small-businesses-across-nine-countries-plan-to-offer-crypto-payments-visa-survey/)援引路透社1月12日报道，Visa 公司的一项调查显示，全球九个国家近四分之一的小企业计划在2022年接受数字货币作为一种支付方式，而这些国家13%的消费者预计其所在国的零售商店将在今年及以后开始提供加密货币支付。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T120240Z_1_LYNXMPEI0B0HV_RTROPTP_0_CRYPTO-CURRENCIES-PAYMENTS_1.jpg)在2021年11月28日拍摄的这幅插图中，可以看到虚拟加密货币。（REUTERS/Dado Ruvic/插图）
+Gettr 账号
 
-Visa公司对美国、巴西、新加坡，加拿大，德国、爱尔兰和俄罗斯等九个国家的2250名小企业主的调查表明，加密货币可能将开始成为主流的支付手段。全球近四分之三的受访企业表示，接受新的支付形式是其业务增长的“基础”。
-
-Visa 在对这些国家的成年人进行调查后认为更多的人对加密货币感到更有信心。
-
-Visa发现，在阿拉伯联合酋长国、香港、新加坡和巴西，超过30%的小企业商户计划在未来几个月为客户提供使用加密货币付款的选项。尽管这些国家的法规各不相同，但数字货币在这些司法管辖区都已经起飞。
-
-相比之下，美国19%的小企业和加拿大仅8%的小企业预计在2022年提供加密货币作为支付选项。
-
-尽管加密货币在零售和专业投资者中的受欢迎程度不断上升，但并没有被广泛用于支付商品和服务，部分原因是其价值波动频繁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

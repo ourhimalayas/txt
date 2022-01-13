@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 12:49 AM (UTC)`
+
+1/12/2022 Miles Guo: All dictators create conflicts and hatred. Now the CCP is keeping the Chinese people at home by using the virus, and then they will take away their wealth in the name of “common prosperity”. The CCP and their running dogs in the West are also going to push the agenda of “common prosperity”, and the Chinese diasporas will be the targets, with their wealth to be taken away!<br/><br/>1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富；中共及其走狗在西方也要搞共享财富，海外华人将成为被共享财富的对象！<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/13/00/7b5094f6-6f13-51ba-537b-a2c2b0e1b379/out.jpg)
+
+---
+
+`@miles 1/13/2022 12:41 AM (UTC)`
+
+1/12/2022 Miles Guo: Under the pretense of locking down the cities, the CCP is pushing the “common prosperity” movement, seeking to take away the wealth of the 120 and 200 enterprises in Xi’an and Tianjin, respectively. The “common prosperity” movement has already begun in Zhengzhou, and it will take place in Zhejiang and Jiangsu soon.<br/><br/>1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙！<br/>
+![img](https://media.gettr.com/group48/getter/2022/01/13/00/f3f4d1d5-dde0-cd79-d1f0-08e72191d0fb/out.jpg)
+
+---
+
 `@miles 1/13/2022 12:33 AM (UTC)`
 
 1/12/2022 Miles Guo: The fundamental purpose for the CCP to implement the “zero-COVID” policy in Xi’an, Tianjin, and Zhengzhou is to lock the people up in their homes so that the CCP can tighten their grip on the Chinese people and legitimately kill them with the virus, and such practices will be implemented in the rest of Communist China as well. The CCP’s gathering people to do nucleic acid testing together has greatly increased the spread of the virus.<br/><br/>1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国；中共搞集中检测大大加剧了病毒的传播<br/>
@@ -149,20 +163,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1/10/2022 Miles Guo’s GETTR: The CCP’s rogue rule is never intended for the benefits of the Chinese Lao Baixing. The past 1000 days have turned the CCP from clamoring for world domination to a poor situation where eating grass is just fine. Soon, there will be a major breakthrough in stopping the COVID vaccination in the US and Europe. Fellow fighters, please take care of yourself and your family!<br/><br/>1/10/2022 文贵盖特：中共的流氓统治从来不是为了百姓；过去一千天让中共从叫嚣称霸世界变为能吃草就不错的境地；美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体！<br/>
 ![img](https://media.gettr.com/group2/getter/2022/01/11/00/5c87e78a-b895-b01e-a1f1-ca9e7832e86c/out.jpg)
-
----
-
-`@miles 1/10/2022 11:57 PM (UTC)`
-
-1/09/2022 Miles Guo: The Chinese Lao Baixing have no access to the truth about the Kunlun Mountains and the Himalayas due to the CCP’s tight grip on the Internet; there are two factions in the CCP - those who are superstitious (e.g., Zeng Qinghong, Chen Quanguo, and Hu Chunhua) and those who are not (e.g., Ma Jian and Zhang Yue), and all of these CCP members are my enemies<br/><br/>1/09/2022 文贵直播：中共严控网络让老百姓看不到昆仑山和喜马拉雅山的真相；中共分信迷信(如曾庆红、陈全国和胡春华)和不信迷信(如马建、张越)的两派，而这些共产党都是文贵的敌人<br/>
-![img](https://media.gettr.com/group10/getter/2022/01/10/23/1917140c-b906-f5e1-2e62-40fc1fbddbaa/out.jpg)
-
----
-
-`@miles 1/10/2022 11:50 PM (UTC)`
-
-1/10/2022 Miles Guo’s GETTR: The CCP has been treating the Lao Baixing as animals, and it is so pathetic that the Chinese people have never questioned whether or not what the CCP is doing is reasonable and legitimate. Don’t equate your everyday life with mystics. Instead, we should follow the rules of nature. We shall live a better life after the CCP is taken down!<br/><br/>1/10/2022 文贵盖特：中共把老百姓当牲口来管理，而可悲的是中国人却从不质疑这是否合理合法；不要把生活和玄学划等号，要尊重大自然的规律，灭共后我们要过上更美好的生活！<br/>
-![img](https://media.gettr.com/group31/getter/2022/01/10/23/5b65d6c4-0445-f421-aee9-0f984aba484b/out.jpg)
 
 ---
 

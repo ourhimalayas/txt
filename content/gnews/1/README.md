@@ -2,39 +2,41 @@
 ---
 
 
-## CEO杰森·米勒：盖特正在分散和夺回话语权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1852884/)
+## 世卫组织说，奥米克戎变异病毒将在“6到8周内”感染半个欧洲
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1852941/)
 
-#### 编译：Lish
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-917.png)Photo: GETTR
-盖特首席执行官杰森·米勒(Jason Miller)周二在玛丽娅的早间新闻中说，新一轮的替代性社交媒体不是为了竞争，而是为了共同打倒大科技公司。
+发布日期：2022年1月12日
+新闻来源：ABC新闻
+翻译：文虓Bobby
 
-杰森·米勒与前总统特朗普就其会通过Truth Social重新回到社交媒体领域进行了一次谈话。米勒解释说，两个社交媒体负责人有一个共同的目标。“这从来都不是关于盖特与Truth social，而是关于将权力从硅谷寡头手分散并夺走，”他说。米勒建议，有足够的市场空间让新的社交平台继续涌现，并参与到大科技公司“批量拒绝（用户）”的运动中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011304.jpg)欧洲几乎所有国家都有欧米克隆变种病例的记录。(美联社: 瓦蒂姆·吉尔达)
 
-在播客名人乔·罗根(Joe Rogan)放弃推特并鼓励他的追随者加入盖特后，盖特最近新增了100万用户，使总数达到了里程碑式的400万用户。罗根的加入盖特是在病毒学家罗伯特·马龙博士(Robert Malone)和美国国会议员马乔里·泰勒·格林(Marjorie Taylor Greene, R-Ga.)都被永久禁止使用推特之后引发的。
+世界卫生组织(WHO)说，新冠病毒奥米克戎（Omicron）变种可能会感染超过一半的欧洲人，但目前还不应将其视为一种类似流感的地方性疾病。
 
-此后，盖特迎来了其他知名人士，如福克斯新闻的塔克·卡尔森（Tucker Carlson）和前总统候选人图尔西·加巴德（Tulsi Gabbard），米勒称这对平台来说有巨大的意义。
+世卫组织欧洲部主任汉斯·克鲁格周二表示，2022年的第一周，欧洲新增病例超过700万例，在两周内翻了一倍多。
 
-米勒还谈到了大科技公司的社交媒体对任何右倾信仰的核心人物越来越明目张胆的 “政治歧视”，以至于现在 “这几乎成了惯例”。他认为特朗普的一句话说得最好–“如果他们愿意对我这样做，他们也会对你们任何人这样做” 。
+“按照这个速度，卫生指标与评估研究所(Institute for Health Metrics and Evaluation)预测，该地区50%以上的人口将在未来6至8周内感染Omicron，”克鲁格表示参，考华盛顿大学(University of Washington)的一个研究中心（研究结果）。
 
-“而且他们不会只停留在对政治认同的人身上”。米勒补充说。“看看推特对待这些人的方式，把妮琪·米娜 （Nicki Minaj）关进了数字监狱，禁止她发帖，或者试图取消戴夫·查普尔（Dave Chappelle）的账户。所以，他们不会停止，直到他们完全以自己的观点来框定世界”。
+他说，在欧洲和中亚的53个国家中，有50个国家出现了传染性更强的变种病毒。
 
-米勒认为，大科技公司之所以出现如此明显的下跌，特别是在股票表现方面，是因为人们正在觉醒，认识到硅谷的高管们不是通过投票上任的，他们是在确定他们自己的宪法言论自由权。
+然而，越来越多的证据表明，奥米克戎对上呼吸道的影响大于对肺部的影响，导致的症状比以前的变种更轻。
 
-盖特负责人强调，该平台也是一个全球性的平台，目前所有用户中有一半以上是国际用户。这包括巴西总统雅伊尔·梅西亚斯·波索纳洛（Jair Bolsonaro）和他的三个当选官员儿子。
+但世界卫生组织警告说，还需要更多的研究来证明这一点。
 
-“这确实是一个全球性的问题；这不仅仅是在美国，你对大科技有这些挫折感，”他说。“我们在这里的重点是保护言论自由，但也确保它是一个安全的环境，让人们加入”。
+周一，西班牙首相佩德罗·桑切斯(Pedro Sanchez)表示，可能是时候改变追踪COVID-19演变的方式，转而使用一种类似于流感的方法，因为它的致死率已经下降。
 
-原文链接：[GETTR, Trump social media platforms about taking power away from Silicon Valley oligarchs, Jason Miller says | Fox Business](https://www.foxbusiness.com/media/gettr-trump-social-media-platforms-about-taking-power-away-from-silicon-valley-oligarchs-jason-miller-says)
+这意味着将这种病毒作为一种地方病而不是大流行来治疗，而不记录每一个病例，也不对所有出现症状的人进行检测。
 
-**发布： Lish**
+但世卫组织负责欧洲事务的高级应急官员凯瑟琳·斯莫尔伍德(Catherine Smallwood)表示，这“还有很长的路要走”。她补充说，该流行病需要稳定和可预测的传播。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“我们仍然有很大的不确定性，而且病毒正在迅速演变，给我们带来了新的挑战。我们肯定还没有达到可以称之为地方性疾病的程度，”斯莫尔伍德表示。
+
+“它可能在适当的时候成为一种地方病，但在现阶段2022年将其确定为（地方性疾病）有点困难。”
+
+[援引原文](https://www.abc.net.au/news/2022-01-12/omicron-variant-on-course-to-infect-half-of-europe/100751090)
+
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

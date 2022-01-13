@@ -2,78 +2,47 @@
 ---
 
 
-## 共产党的以非灭美以非灭白，其实就是风水之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
+## “早期治疗总是有效的”前COVID前线护士告诉教育委员会
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1852830/)
 
-[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
+作者：玛特·兰姆（Matt Lamb）
+发布日期：2022年1月10日
+新闻来源：LifeSiteNEWS 翻译：文虓Bobby
 
-**郭文贵**
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0111301.jpg)
 
-它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
+北卡罗来纳州威尔明顿(LifeSiteNews)——一名护士表示，她曾在COVID护理的第一线工作，最近在学校董事会会议上发言，反对要求学生和教师戴口罩的新规定。
 
-然后把非洲人送到了哪去了，把非洲人送到了欧洲去
-then where did they send the Africans? the Africans were sent to Europe
+但摩根·华莱士也利用这个机会促进对COVID的早期治疗，而不是接种疫苗，她说，接种疫苗会在一些服用疫苗的人身上产生“定时炸弹”。
 
-非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
-The Africa’s so-called illegal immigrants, then incite African Americans in America
+华莱士在1月4日举行的新汉诺威县教育委员会会议上说:“我在心血管重症监护室工作了5年，我是你在COVID(治疗上)的最后一道防线。”
 
-闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
-to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
+华莱士说，她获得了前雇主新汉诺威地区医疗中心(NHRMC)颁发的奖项。美国国家卫生人力资源管理委员会在脸书（Facebook）上发布了一篇已经删除但被缓存的帖子，祝贺华莱士成为2020年11月的优秀员工。
 
-你见中共用黑白过，它认为黑为水，白为金，是吧
-You have seen the CCP use black or white, it believes that black is water and white is gold, right?
+该帖子称，她在重症监护室担任“专家心内科护士”。
 
-在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
-Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
+在NPINO.com追踪医疗专业人士的执照，将她列为专攻急症护理的执业护士。脸书（Facebook）上与她的企业相关的帖子显示，她拥有护理专业的本科和研究生学位，并获得了心脏护理认证。
 
-就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
-It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
+华莱士在讲话中说:“当你倒在地上流血不止时，我们在你胸腔打开的情况下对你的心脏和肺进行了体外测试，我意识到，由于政府对治疗COVID的保守政策，患者正在不必要地死亡。”
 
-东边是什么？东方为绿色，为木色，南边为火，南为火
-What’s the east? east is green, wood color, south is fire
+她说，拒绝为COVID提供替代治疗的政府官员应为这些死亡负责。“所有死于COVID的人都应该被视为谋杀。”
 
-它发现我得怎么干，我要把整个的能烧掉你金的五行当中
-It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
+“早期治疗总是受到影响，”她说。华莱士在“强制日”辞去了医院的工作，并表示她现在有一家治疗COVID患者的私人诊所。
 
-南方的就是黑，黑人，非洲的火烧你的金，炼你的金
-the south is black, black people, and the fire of Africa burns your gold and refines your gold
+华莱士称，“医院的所有员工”都被打了疫苗，然后感染了新冠病毒。她警告说，这种疫苗已经或将会给身体带来其他恶果。
 
-利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
-Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
+“您已经让你的身体注入了与数以百万计的刺突蛋白质，就像一个定时炸弹随时导致癌症、血栓,无论哪种疾病都可能随时出现在你的体内。我已经厌倦了人们去问医生,他们可以接受COVID,他们唯一的选择是打疫苗或回家或去医院,”护士说。
 
-以土为多的国家，然后在那装擀面杖子
-earth-based country, and then pretend to be strong there
+美国所有可用的COVID疫苗都与血栓（血凝块）有关。
 
-就是共产党的所有精神境界和文化，都是一样的境界
-It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
+她告诉在场的人:“我很高兴在去医院之前为你们中的任何一个人治疗新冠病毒，”因为早期治疗“总是有效的”。
 
-无知、愚昧，它本身就不平衡，它硬整出来的平衡
-ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
+华莱士说:“我选择走出去，为正确的事情挺身而出，所以给我们的孩子们戴上这些口罩并没有帮助，接种疫苗也没有帮助。我们都需要意识到，秘密已经尽人皆知。”
 
-这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
-This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
+[援引原文](https://www.lifesitenews.com/news/early-treatment-has-always-worked-former-frontline-covid-nurse-tells-education-board/)
 
-**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
-
-Date: 01/11/2022
-原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
-The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
-原视频日期：2022/01/09
-原视频链接 https://gettr.co/post/pnef2s2d7a
-任务编号：KC409（3459）
-视频时间段 : 0:00-1:51
-
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 
