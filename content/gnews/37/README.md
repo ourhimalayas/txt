@@ -2,31 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月12日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1853059/)
+## 1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1853361/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0112text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.12  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61df8042a6dfdd6031537f85)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20DBEDCC-EAF0-41CE-AF77-F877D7753F9D.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

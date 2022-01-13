@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 6:04 AM (UTC)`
+
+1/12/2022 Miles Guo: Ray Dalio and Wang Qishan have a very close relationship, and he has inflicted a tremendous amount of harm on the Chinese people. Ray Dalio is bound to be prosecuted in the US courts! The “common prosperity” pushed by the global elites who are in cahoots with the CCP, such as Ray Dalio, is in fact communism!<br/><br/>1/12/2022 文贵直播：雷·达利奥是王岐山的生死兄弟，他对中国人造成了极大的伤害，他必将受到美国的审判！雷·达利奥等全球精英跟中共沆瀣一气在全球推行的“共享财富”就是共产主义！<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/13/06/def4b976-5a95-c1c9-1e82-754faafe277b/out.jpg)
+
+---
+
 `@miles 1/13/2022 4:57 AM (UTC)`
 
 1/12/2022 Miles Guo: What are the six key characteristics that define a cult? The CCP slanders the Whistleblowers’ Movement and the New Federal State of China as a cult by using Isobel Yeung, while in fact the CCP meets all the criteria for a cult - the CCP is indeed a cult! We will keep fighting against Isobel Yeung and HBO/VICE to the end!<br/><br/>1/12/2022 文贵直播：邪教有哪6大特征？中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征 - 中共就是邪教！我们要跟杨贝贝和HBO/VICE干到底！<br/>
@@ -153,12 +160,6 @@ MANCHIN: “We need some good rule changes to make the place work better. But ge
 
 1/11/2022 Miles Guo: Communist China will go through another round of quarantines due to the surging CCP virus disasters; Why were the 2008 Summer Olympics medals made from jade of the Kunlun Mountains? The Whistleblowers’ Movement is exposing each lie of the CCP with truth and fact; our fellow fighters have to take extra cautions upon the imminent disasters.<br/><br/>1/11/2022 文贵盖特：中共国会因疫情恶化开始新一轮封区封城；2008年奥运会的奖牌为何用了昆仑山的玉？爆料革命要用真相戳穿中共的每个谎言；灾难来临之际，战友们务必小心，度过难关<br/>
 ![img](https://media.gettr.com/group2/getter/2022/01/11/22/543da8d5-6d23-33a8-d4b4-062e84a8e309/out.jpg)
-
----
-
-`@miles 1/11/2022 9:34 PM (UTC)`
-
-1月11日：亲爱的兄弟姐妹们．👉👉👉加上关注吧……https://gtv.org/video/id=61dd0cbfa6dfdd6031524fc7
 
 ---
 

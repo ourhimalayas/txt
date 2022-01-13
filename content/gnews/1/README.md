@@ -2,46 +2,39 @@
 ---
 
 
-## 冬奥会后中共的一党独大优越性将全部打脸疫苗灾难加剧
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1853862/)
+## 预防网络监控，冬奥会荷兰运动员不带自用手机和电脑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853894/)
 
-G-TV视频链接：[https://gtv.org/video/id=61df864b87664c47acd3ec3c](https://gtv.org/video/id=61df864b87664c47acd3ec3c)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**郭文贵先生：**我觉得这个西安的事情就证明了这种刺突蛋白就是病毒，不存在什么什么新病毒。现在你觉得还有人谈新病毒吗？只有七哥说了那根本不是什么新病毒，就是疫苗灾难。现在还有人说新病毒吗？没有了，是吧？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/@CVDBMTBPRAX1X61B.png)图片来源：Vox
 
-接下来共产党一定会有一个超级符合我们利益的需求的操作，在冬奥会2月14号突然间中国的什么事都好了，都解决了，共产党“解决世界问题的能力”、“解决大事情的能力”和“集中力量办大事的能力”就会表现出来。这个骚操作它会再一次地让中共的所有疫苗灾难，就是说自我传染的，从疫苗变成病毒还有Omicron传染，都会发生更加激烈的变化。
 
-就奥运会后，冬奥会后，会发生地方和中央的激烈的矛盾，而且会更多的失控。然后会让共产党自己演了一个冬奥会的“能解决世界上所有困难的共产党一党独大的优越性”全部打脸，这都符合咱的利益，但是西安人民（也好）和郑州人民也好，你们不要当牺牲品。
+整理报道：文扬
+编辑：文泓
 
-人类上没有任何一个党、一个组织能把所谓被释放的病毒，想让它去哪就去哪、想让它停它就停，是不可能的。就像经过冬天的变化它就会下雪一样，它一定会死人的，一定会失控，还是保重自己为好。
+阿姆斯特丹消息，当地时间1月11日路透社报道，本地报纸《德·沃尔斯克兰特》周二报道，参加下个月北京冬奥会的荷兰运动员需要将自用的手机和笔记本电脑留在家中，以避免中共国的间谍活动，这是前所未有的举措。
 
-字幕来源：[2022年1月7日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1837036/)
+该报援引接近此事的消息人士的话说，对运动员和辅助人员提出的不带任何个人设备到中共国的紧急建议，是荷兰奥委会（NOCNSF）提出的一系列措施的一部分，以应对中共国家工作人员的任何可能干扰。
 
-编辑整理：Jacques；
+NOCNSF发言人格鲁特·斯洛特表示，网络安全是对此次中国之行做出的风险评估的一部分，但拒绝就其任何具体措施发表评论。
 
-字幕文件制作：小满；
+斯洛特说：“这些年来，网络安全的重要性越来越大，但中共国已经完全关闭了其互联网，这使得它成为一个特殊的案例。”
 
-视频制作及上传：Cindy；
+消息人士告诉《德·沃尔斯克兰特》，**参加北京冬奥会荷兰团队成员将配备全新的未使用的设备，以保护他们的个人数据信息免受中共国监控。**
 
-G-News发布：小满；
+至少有30名荷兰运动员将参加下个月的北京奥运会，主要参加项目是速度和短道速滑项目。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+原文链接： [Dutch athletes warned to keep phones and laptops out of China -media | Reuters](https://www.reuters.com/lifestyle/sports/dutch-athletes-warned-keep-phones-laptops-out-china-media-2022-01-11/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布：tianzhihuan
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
