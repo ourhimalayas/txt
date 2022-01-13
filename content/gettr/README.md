@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 1:02 AM (UTC)`
+
+1月11日，在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市安阳被封城。<br/><br/>As Beijing prepares for the Winter Olympics next month, another Chinese city of 5 million residents - Anyang - is under strict lockdown on 11th, January.<br/>
+![img](https://media.gettr.com/group4/getter/2022/01/13/00/2dceb225-8ee5-e656-4749-a894189c5b93/out.jpg)
+
+---
+
 `@miles 1/13/2022 12:49 AM (UTC)`
 
 1/12/2022 Miles Guo: All dictators create conflicts and hatred. Now the CCP is keeping the Chinese people at home by using the virus, and then they will take away their wealth in the name of “common prosperity”. The CCP and their running dogs in the West are also going to push the agenda of “common prosperity”, and the Chinese diasporas will be the targets, with their wealth to be taken away!<br/><br/>1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富；中共及其走狗在西方也要搞共享财富，海外华人将成为被共享财富的对象！<br/>
@@ -156,13 +163,6 @@ EP3-Part 4: Who is the big boss? Let's tear down the monstrous lies of this desp
 
 1/09/2022 Miles Guo: Zeng Qinghong is the real master of the CCP’s politics. He has a deep understanding of the anthropogeography of China and supernatural powers. His insight of political rivals is unparalleled within the CCP. Since the death of Mao Zedong, Zeng has been the sole representative to worship the Kunlun Mountains in person, on behalf of the CCP.<br/><br/>1/09/2022 文贵直播：曾庆红是中共的政治高手，他对中国的地理人文了如指掌，不但深谙风水和奇门遁甲，还对政治对手有深度了解。毛泽东死后，曾庆红是唯一代表中共去昆仑山祭拜的人<br/>
 ![img](https://media.gettr.com/group20/getter/2022/01/11/02/ab3f5f0b-d5ea-8038-d3d5-f4a312246dd8/out.jpg)
-
----
-
-`@miles 1/11/2022 12:33 AM (UTC)`
-
-1/10/2022 Miles Guo’s GETTR: The CCP’s rogue rule is never intended for the benefits of the Chinese Lao Baixing. The past 1000 days have turned the CCP from clamoring for world domination to a poor situation where eating grass is just fine. Soon, there will be a major breakthrough in stopping the COVID vaccination in the US and Europe. Fellow fighters, please take care of yourself and your family!<br/><br/>1/10/2022 文贵盖特：中共的流氓统治从来不是为了百姓；过去一千天让中共从叫嚣称霸世界变为能吃草就不错的境地；美欧在停止疫苗上将有重大突破，请战友们照顾好自己和家人的身体！<br/>
-![img](https://media.gettr.com/group2/getter/2022/01/11/00/5c87e78a-b895-b01e-a1f1-ca9e7832e86c/out.jpg)
 
 ---
 

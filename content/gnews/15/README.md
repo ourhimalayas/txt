@@ -2,50 +2,78 @@
 ---
 
 
-## 爱尔兰部长：有信心从2月起放松对中共病毒的限制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1852733/)
+## 共产党的以非灭美以非灭白，其实就是风水之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1852769/)
 
-作者：纽约香草山农场 – 四季
+[https://gtv.org/video/id=61de9d9287664c47acd3abe9](https://gtv.org/video/id=61de9d9287664c47acd3abe9)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+**郭文贵**
+Miles Guo
 
+它(共产党)是用非洲人制美，以非制美，灭美计划，灭白计划，你发现了吗？The Communist Party is using Africans to subdue the United States, using African Americans to subdue the United States, the plan to destroy the United States, and the plan to destroy the white people, have you discovered it?
 
+然后把非洲人送到了哪去了，把非洲人送到了欧洲去
+then where did they send the Africans? the Africans were sent to Europe
 
+非洲的所谓的非法移民，然后把在美国的非洲人煽动起来
+The Africa’s so-called illegal immigrants, then incite African Americans in America
 
+闹革命、搞共产主义、社会主义，所以在中共的黑白之间，这两个颜色是很敏感的
+to start a revolution and engage in communism and socialism, so between the black and white of the CCP, these two colors are very sensitive
 
-据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
+你见中共用黑白过，它认为黑为水，白为金，是吧
+You have seen the CCP use black or white, it believes that black is water and white is gold, right?
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-12T111316Z_1_LYNXMPEI0B0FZ_RTROPTP_0_HEALTH-CORONAVIRUS-IRELAND_1.jpg)2021年12月17日，在爱尔兰都柏林，在冠状病毒病（COVID-19）大流行的情况下，人们在外出进行圣诞购物时戴着防护口罩。（REUTERS/Clodagh Kilcoyne）
+在它的五行当中白为金，就是金属，白人就是在西方，西边是哪儿
+Among its five elements, white is gold, it is metal, white people is in the west, where is the west?
 
-爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
+就是我们今天的西方，西方的北方人，北为黑，黑为水，北边为黑
+It is our west today, the northerners in the west, the north is black, the black is wa-ter, the north is black
 
-政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
+东边是什么？东方为绿色，为木色，南边为火，南为火
+What’s the east? east is green, wood color, south is fire
 
-副总理里奥·瓦拉德卡（Leo Varadkar）周二表示，限制措施可能会分阶段放宽。此前，政府首先取消了最近实施的限制措施，之后会每隔两到三周进一步重新开放经济。
+它发现我得怎么干，我要把整个的能烧掉你金的五行当中
+It finds out how should CCP do, among the five elements, it is going to burn the whole thing out of your gold
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+南方的就是黑，黑人，非洲的火烧你的金，炼你的金
+the south is black, black people, and the fire of Africa burns your gold and refines your gold
 
-编辑/校对/发稿：小鹿
+利我东，利我中华，火利土，土生万物，中共是什么，我(中共)是土
+Benefit east, benefit CCP, fire benefits the earth, and earth produces all things, what is the CCP, the CCP is the earth
 
+以土为多的国家，然后在那装擀面杖子
+earth-based country, and then pretend to be strong there
 
+就是共产党的所有精神境界和文化，都是一样的境界
+It’s all the spiritual realm and culture of the Communist Party, they are all in the same realm
 
-**更多资讯，更多关注**
+无知、愚昧，它本身就不平衡，它硬整出来的平衡
+ignorance and ignorance, it is not balanced in itself, it is the balance that it has cre-ated
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这是违背自然的，唯一牺牲的就是今天我们看到的中国的人民，无知的人们
+This is against nature, the only sacrifice is the Chinese people we see today, the ig-norant people
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**原视频链接**: [https://gettr.co/post/pnef2s2d7a](https://gettr.co/post/pnef2s2d7a)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+Date: 01/11/2022
+原视频标题: 共产党的以非灭美 以非灭白，其实就是风水之战
+The Communist Party’s idea of using Africans to subdue the United States and us-ing Africans to subdue the white people, it is actually a battle of Feng Shui
+原视频日期：2022/01/09
+原视频链接 https://gettr.co/post/pnef2s2d7a
+任务编号：KC409（3459）
+视频时间段 : 0:00-1:51
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

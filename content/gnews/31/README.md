@@ -2,45 +2,25 @@
 ---
 
 
-## 炸裂消息：最高层协调的蓄意过失杀人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852178/)
+## 加拿大与台湾合作同御共匪
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1852463/)
 
-翻译： Jenny Ball
+采编/翻译：文莱 校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-3.png)图片来自网络
-
-周一晚上，“真相工程”（Project Veritas）发布了他们最新的调查结果，这是一个重磅炸弹！ 真相工程发布了前所未有的军事文件，涉及 Covid-19 的起源、**功能获得**性研究、疫苗、**潜在治疗方法**，以及政府隐瞒一切的努力。
-
-新公布的军事文件与福奇博士的宣誓证词相矛盾。
-
-真相工程发布：
-
-- 军事文件指出，生态健康联盟于 2018 年 3 月与 国防高级研究计划局**(DARPA**) 接洽，寻求资金对蝙蝠传播的冠状病毒进行**功能增益研**究。这项名为“化解计划”的提案被 DARPA 拒绝，理由是出于安全考虑，以及违反功能研究暂停的概念。
-- 关于生态健康联盟提案的主要报告，几个月前在互联网上泄露，直到现在仍未得到证实。真相工程已获得一份由美国海军陆战队少校、前 DARPA 研究员约瑟夫·墨菲(Joseph Murphy ) 撰写的向国防部监察长的单独报告。
-- “该提案没有提及或评估功能增益（GoF）研究的潜在风险，”直接引自 DARPA 拒绝信。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-25-edited.jpg)图片来源：TNH
 
 
-真相工程联系 DARPA，就隐藏文件发表评论，并与通讯主管贾里德·亚当斯( Jared Adams )进行了交谈，当被问及文件被掩埋的方式时，他说：“这对我来说听起来很不正常”。
+据加拿大自媒体【真北方】1月11日报道，由于来自中共霸权的威胁与日俱增，加拿大正积极加强与台湾的全方位合作关系，以期遏制中共邪魔的猖獗入侵。
 
-“如果国防部认为这项[功能获得]研究太危险而无法继续进行，那么为什么 NIH、NIAID 和生态健康联盟会不顾一切地忽视所涉及的风险？”奥基夫问他的观众。
+加拿大国际贸易部长日前透露，两国之间拥有继续共同合作的必要性。为进一步促进双边贸易和互利商业机会，双边政府已达成一项有关科技技术，创新教育和绿色经济方面的合作投资协议。
 
-周二早上，**mRNA ****疫**苗的发明者罗伯特·马龙博士和克林顿前顾问兼民主活动家娜奥米·沃尔夫(Naomi Wolf)博士与史蒂夫·班农一起在作战室对真相工程的重磅炸弹作出回应。
-
-马龙博士称它“比五角大楼的文件更重磅”。
-
-沃尔夫博士称其为“在最高级别协调下对数百万人的过失杀人”。炸裂！
-
-娜奥米：福奇严重伪证自己的事实非常明显。如果这些确实是经过核实的文件，那么最小的罪行……我不夸大其词，根据这些文件，最小的罪行也是最高层协调的有预谋的过失杀人。**本来可以挽救生命的治疗，被故意或据称被故意压制**。
-
-**参考资料：**[thegatewaypundit][“Premeditated Manslaughter of Millions of People Coordinated at the Highest Levels” – Naomi Wolf and Dr. Malone Respond to Project Veritas BOMBSHELL (VIDEO)](https://www.thegatewaypundit.com/2022/01/premeditated-manslaughter-millions-people-coordinated-highest-levels-naomi-wolf-dr-malone-respond-project-veritas-bombshell-video/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailypm&amp;ff_content=daily)
+据悉，台湾目前是加拿大在亚洲的第六大贸易伙伴。截至2020年，两国之间的贸易额已达到8.13亿美元。但由于中共政府近年来不断地加大对台湾入侵的威胁，并坚持认为它是台湾的统治者，因此台湾一直在寻求国际势力的支持包括加拿大的帮。
 
 * * *
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
+[Canada and Taiwan reach foreign investment agreement as China threat grows | True North (tnc.news)](https://tnc.news/2022/01/11/canada-and-taiwan-reach-foreign-investment-agreement-as-china-threat-grows/)
 
  
 

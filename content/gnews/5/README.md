@@ -2,39 +2,46 @@
 ---
 
 
-## CEO杰森·米勒：盖特正在分散和夺回话语权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1852884/)
+## 规则更宽松的Gettr网站正在吸引保守的显赫人物（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1852909/)
 
-#### 编译：Lish
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-917.png)Photo: GETTR
-盖特首席执行官杰森·米勒(Jason Miller)周二在玛丽娅的早间新闻中说，新一轮的替代性社交媒体不是为了竞争，而是为了共同打倒大科技公司。
+**编译： Jenny Ball**
 
-杰森·米勒与前总统特朗普就其会通过Truth Social重新回到社交媒体领域进行了一次谈话。米勒解释说，两个社交媒体负责人有一个共同的目标。“这从来都不是关于盖特与Truth social，而是关于将权力从硅谷寡头手分散并夺走，”他说。米勒建议，有足够的市场空间让新的社交平台继续涌现，并参与到大科技公司“批量拒绝（用户）”的运动中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip12.png)Gettr 的首席执行官 Jason Miller 在谈到这位前总统时说：“如果他的平台需要更长的时间来开发，我不会完全排除他加入 Gettr。” Marcio Jose Sanchez / AP / Shutterstock 的照片
 
-在播客名人乔·罗根(Joe Rogan)放弃推特并鼓励他的追随者加入盖特后，盖特最近新增了100万用户，使总数达到了里程碑式的400万用户。罗根的加入盖特是在病毒学家罗伯特·马龙博士(Robert Malone)和美国国会议员马乔里·泰勒·格林(Marjorie Taylor Greene, R-Ga.)都被永久禁止使用推特之后引发的。
+到目前为止，该网站一直是 Twitter 上那些评论名人推文的“回复人”，发现自己是主角的地方。这就是为什么 罗根的新闻在 Gettr-verse 中引起如此兴奋的原因——它可以使用更多的明星力量，尤其是来自喜欢加入战斗的人。网站上的互联网名人似乎并没有真正相互接触——你不会让右翼的大卫·肖尔（David Shor）和民主党法官就联邦政治的细节争论不休——而且，还有很多大牌提要只是来自 Twitter 的交叉发布。由于他们似乎都大体上观点一致——反对口罩，支持川普。 “人们更加尊重他人。Gettr是一次愉快的经历，”米勒说。
 
-此后，盖特迎来了其他知名人士，如福克斯新闻的塔克·卡尔森（Tucker Carlson）和前总统候选人图尔西·加巴德（Tulsi Gabbard），米勒称这对平台来说有巨大的意义。
+Gettr 是保守媒体生态系统的一部分，该生态系统的Gettr、Parler、Rumble 和 Gab可能会在 2022 年迎来标志性的一年，他们都是深受右翼喜爱的应用程序。但是中期选举即将到来，2024 年的竞选活动将会加速。随着大型科技公司打击 COVID-19 和选举真相，具有更宽松发布规则的网站可能会吸引右翼的知名人士，只是哪个平台将成为他们首选聚集地的问题。
 
-米勒还谈到了大科技公司的社交媒体对任何右倾信仰的核心人物越来越明目张胆的 “政治歧视”，以至于现在 “这几乎成了惯例”。他认为特朗普的一句话说得最好–“如果他们愿意对我这样做，他们也会对你们任何人这样做” 。
+Parler始于 2018 年，声称拥有 2000 万用户，比拥有约 400 万用户的 Gettr 多得多。 Parler在 1 月 6 日国会山事件后实际上已被下线，当时亚马逊网络服务停止托管该站点。此后，它找到了一个新主机，并尝试重新用不同的方式运行。Parler 于 5 月重返 Apple 的 App Store。今年冬天，该公司报告了两千万美元的新资金；新的ParlerCEO乔治·法默( George Farmer)今年一月份告诉卡拉·史伟莎（ Kara Swisher），他并不担心 Gettr 新涌入的知名人士。（最近，梅拉妮亚·川普Melania Trump 与 Parler 合作启动了 N.F.T. 项目。但说真的，谁知道如何解析呢？）
 
-“而且他们不会只停留在对政治认同的人身上”。米勒补充说。“看看推特对待这些人的方式，把妮琪·米娜 （Nicki Minaj）关进了数字监狱，禁止她发帖，或者试图取消戴夫·查普尔（Dave Chappelle）的账户。所以，他们不会停止，直到他们完全以自己的观点来框定世界”。
+斯坦福互联网观察站的研究员大卫·泰尔 (David Thiel) 曾与人合著过有关 Gettr 和 Parler 的报告，他告诉我，这些网站在用户参与方面存在问题。人们可能会注册他们，在像格林这样的主要人物，被一个主要平台禁止后引发愤怒浪潮，他们经常失去兴趣。上次他在 Gettr 上签到时，泰尔说，“大约 50% 的注册用户没有发布或评论任何内容。”
 
-米勒认为，大科技公司之所以出现如此明显的下跌，特别是在股票表现方面，是因为人们正在觉醒，认识到硅谷的高管们不是通过投票上任的，他们是在确定他们自己的宪法言论自由权。
+米勒说，不是他不希望自由主义者出现在网站上，只是他们还没有经历过惊天动地大科技之害的问题而真正要起来反抗。 “像钟摆摆动，在过去五年左右的时间里，言论自由才真正成为中右翼的大问题，”他说，在此之前，它一直是中左翼的关注点。 “钟摆时间倒退了。”他提到了谐星戴夫·查佩尔（ Dave Chappelle）和说唱歌手尼基·米娜（ Nicki Minaj），他们两人最近分别因对跨性别恐惧症和 Covid “错误信息“的指控而被“取消”，还有麦当娜，她猛烈抨击 Instagram 审查她的乳头。米勒假设，自由主义者会在不同的问题上遇到他们要加入 Gettr 的时刻。 “我不想看到麦当娜的身体，不想看到 62 岁的麦当娜的身体的任何部分，但显然，她对大型科技公司审查她的许多事情感到沮丧。”
 
-盖特负责人强调，该平台也是一个全球性的平台，目前所有用户中有一半以上是国际用户。这包括巴西总统雅伊尔·梅西亚斯·波索纳洛（Jair Bolsonaro）和他的三个当选官员儿子。
+许多美国人都厌倦了大科技，米勒没有错——最近的民意调查显示，大多数人不信任 Facebook、TikTok 和 Instagram。在 2021 年皮尤研究中心的一份报告中，将主要政治新闻来源视为主流媒体一部分的共和党人中，只有不到1/4的人真正信任他们的主要新闻来源。
 
-“这确实是一个全球性的问题；这不仅仅是在美国，你对大科技有这些挫折感，”他说。“我们在这里的重点是保护言论自由，但也确保它是一个安全的环境，让人们加入”。
+Twitter 于 2021 年 1 月对川普禁令，取消了这位前总统与数百万美国人（包括许多讨厌他的人）直接交流的能力，但却提高了追随他的人数。他们被禁声了， 正义的愤怒，可以成为很好的选举动机。
 
-原文链接：[GETTR, Trump social media platforms about taking power away from Silicon Valley oligarchs, Jason Miller says | Fox Business](https://www.foxbusiness.com/media/gettr-trump-social-media-platforms-about-taking-power-away-from-silicon-valley-oligarchs-jason-miller-says)
+（点评：塔利班恐怖组织仍然可以在twitter 上有自由发声的账户。）
 
-**发布： Lish**
+较成功的 Gettr 用户之一可能是班农，他使用该网站来扩大他广受欢迎的播客“班农作战室”。推特和 YouTube 上都删除了班农的博客，他兴高采烈地在摄像机前播放 Gettr 直播，他在 11 月因蔑视国会而被向当局诬陷的视频，他吸引了其他去平台化的名人作为嘉宾，例如娜奥米·沃尔夫（Neomi Wolf）和 罗伯特·小肯尼迪（Robert F. Kennedy, Jr.）。《作战室》的下载量持续强劲，川普在共和党中的影响力可见一斑。《保护民众》（ProPublica ）2021 年 9 月的一份报告指出，《作战室》及其对重塑全国地方选举管理的基层影响。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+斯坦福研究员泰尔告诉我，班农的朋友，中国亿万富豪郭文贵似乎负责Gettr应用程序的开发和发布。此前的报道显示，现在称为 Gettr 的网站,最初是一个名为 Getome 的中文网站。泰尔说，GTV 和 GNews——两家由郭资助的反抗中国共产党的企业——与 Gettr 共享相同的开发人员。鉴于该网站的反大型科技言论，它还称 Gettr 将 Facebook 和谷歌广告跟踪器纳入“不诚实”。米勒拒绝透露 Gettr 的机构投资者或其他投资者的姓名。 “郭文贵没有直接的个人经济利益，”米勒说，他使用了郭的另一个名字，迈尔斯·郭。
+
+Gettr网站的第二年似乎是至关重要的一年。Gettr 计划在 2 月推出一个视频组件——基本上是他们的 TikTok 或 Instagram Reels 版本——以吸引年轻用户。之后，他们将转向加密货币。 “随着我们进入明年夏天，我们肯定会更多地进入金融支付平台，以及一个双币种生态系统——稳定币和浮动币，以及我们自己的市场，”米勒说。看来，如果川普真的大步进入保守的社交媒体领域，这将带来额外的好处，让 Gettr 能够优雅地转向。 “我们正在更多地转向金融服务竞争对手，”米勒说。 “可以这么说，Gettr正朝着成为娱乐大亨的方向发展。”
+
+请阅读上一篇：[规则更宽松的Gettr网站正在吸引保守的显赫人物（1/2）](https://gnews.org/zh-hans/1852151/)
+
+**新闻来源**：[newyorker.com][Can Gettr Become the Online Gathering Place for Trump’s G.O.P.?](https://www.newyorker.com/news/annals-of-communications/can-gettr-become-the-online-gathering-place-for-trumps-gop)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3.jpeg)
 
  
 
