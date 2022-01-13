@@ -2,20 +2,45 @@
 ---
 
 
-## 疫苗灾难正在席卷美国整个航空业
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1853098/)
+## 中共“清零”画皮被揭下 多地即将大戒严
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853105/)
 
-加拿大温哥华扬帆农场皇家山频道    平民正道
+作者：纽约香草山文艺部 – 宁文静
 
-据英国《每日内幕》1月7日报道, 美国商业航空飞行员皮尔森近期在接受媒体采访时透露，“新冠病毒”疫苗接种引发的后遗症和人身伤害正在迅速席卷该国整个航空业。
 
-报道称，大部分飞行员在接种该疫苗后都经历了严重的胸痛症状。皮尔森也不例外，他曾在注射后因为出现心脏房颤，而被紧急送院接受治疗。对此，该飞行员表示：疫苗也会是脑梗的主要原因，并将可能在飞行任务中因此引发航空灾难。
 
-据悉，许多航空公司的飞行员都因害怕被当局解雇，甚至职业报复而不敢公开披露当前所出现的疫苗灾难。他们被迫忍着胸部和头部的病痛在继续着飞行工作。此外，由于拜登政府对航空业的疫苗强制接种规定，即使发生了以上疫苗伤害问题，大部分受害者也将毫无寻求补偿的途经。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+郭先生1月11日盖特直播中爆料，北到黑龙江，南至上海杭州，中共国多地即将开始大戒严。国内许多人不幸染上病毒，大多是被迫排长队检测核酸时“中招”的。黑龙江、辽宁、天津、河南、杭州、上海等地区将开始大戒严。直播中进一步指出，共产党用强硬手段“清零”，结果病毒遍地开花，希望大家好好保护自己，尽量不要染上病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-5.jpg)
+参考链接：
+[文贵先生2022年1月11日盖特直播](https://gettr.com/post/pnog2f2016)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：Irene木木
+编辑：Jack Li文阳
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,35 +2,30 @@
 ---
 
 
-## 加拿大魁北克省将对未接种疫苗者征收健康税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1853219/)
+## 全面清零现恶果，高盛下调今年中共国经济增长预期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1853241/)
 
-【雅典娜快讯】，紧贴时事脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-15.jpg)全面清零现恶果，高盛下调今年中共国经济增长预期 网络图片
+据美国之音1月13日报道，美国投行高盛集团11日发布报告，将中共国2022年的经济增长预期从4.8%下调到4.3%。新年伊始，西安、郑州、安阳、天津等地政府继续“清零”政策，大面积封闭社区、阻断交通，隔离了数千万居民，致使经济活动突然中断。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-920.png)**图片来源：iPolitcs**
+新冠病毒爆发之初，大半个中共国都被封城，2020年第一季度经济增长出现断崖式收缩。随着第二季度疫情得到控制，经济活动又恢复了增长。去年下半年，中共国监管当局强化对大型民企的整顿，并加大对信贷市场的限制，直接造成房地产市场等多个行业走软和大规模的失业。
 
-**翻译：George Warshing**
-**编辑：文泓**
+疫情如此肆虐，全球经济停摆，各国纷纷从中共国撤资撤离，中共国虚假的经济怎么可能发展呢？再加上习近平开启了全面的“劫民济共”的政策，几亿中共国老百姓已经无法维持基本的生活，尤其被封城的老百姓甚至病死、饿死在家中都无人过问。这样带血、虚假的经济，崩溃就在眼前。
 
-根据《RT新闻》1月11日报道，随着奥密克戎病毒的迅速传播，在加拿大魁北克省的中共病毒感染住院人数快速上升，未来几周需要增加1,000名医院工作人员和1,500名家庭护理人员。
+新闻参考链接：[https://www.voachinese.com/a/Goldman-cuts-China-GDP-target-for-2022-20220112/6393959.html](https://www.voachinese.com/a/Goldman-cuts-China-GDP-target-for-2022-20220112/6393959.html)
 
-鉴于病人激增的现状，魁北克省要求对未接种新冠疫苗的居民征收一项新的健康税。本周二省长总理弗朗索瓦·勒戈扬言在未来几周内对于拒绝接种第一剂新冠疫苗的人实施经济处罚。同时，魁省疫苗限制令的适用范围仍在扩大，原本只限于进入餐厅、剧院、酒吧和赌场等场所时需要出示疫苗护照，现在这一做法已经扩大到了酒类和大麻商店。
+* * *
 
-当被问及政府可能因这项前所未有的税收而面临的法律和道德挑战时，省长承认此举是“大事”。他没有透露所征收的新税的金额。他认为这是借鉴了外国的处理措施，“你看看其他国家或州正在发生的事情，每个人都在努力寻找解决方案”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-然而，给该省的医疗保健系统带来压力的不仅仅是没有注射疫苗的魁北克人，事实上，大多数新的中共病毒患者都已完全接种了疫苗。
 
-据报道，在过去一天登记接受治疗的433名新患者中，[有](https://montreal.ctvnews.ca/quebec-reports-sharp-rise-of-62-new-covid-19-deaths-total-surpasses-12-000-1.5735469)117人未接种新冠疫苗，而290人注射了两剂疫苗。在新入住重症监护病房的患者中仅12人未接种疫苗，而17人接种了两剂疫苗。
+编辑：【英国伦敦喜庄园编辑部】
 
-**原文链接：**[Unvaccinated to face special tax in Canada — RT World News](https://www.rt.com/news/545747-quebec-to-tax-unvaccinated/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-*发布： 盘古相聚*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
