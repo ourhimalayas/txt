@@ -2,12 +2,12 @@
 ---
 
 
-## 士兵在阿拉木图对空旷广场开枪，故意制造激烈战斗气氛
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1856019/)
+## 现在不是地域、海洋文明和大陆文明的战争，是资本主义和共产主义的太空战
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856086/)
 
-01/09/2022 福布斯哈萨克斯坦记者Ardak Bukeyeva会见了阿拉木图“反恐”行动的目击者。记者对安全部队开火感到可疑，包括在城市中心广场没有人的情况下，好像他们在故意制造严重敌对行动的画面。
+台灣寶島農場
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 
  
 

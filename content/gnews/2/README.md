@@ -2,8 +2,8 @@
 ---
 
 
-## 政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856189/)
+## 中国靠前的大企业, 只要和共产党有关的, 就有Ray Dalio 桥水基金投资
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856254/)
 
 台灣寶島農場
 

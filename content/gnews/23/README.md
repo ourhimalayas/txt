@@ -2,23 +2,37 @@
 ---
 
 
-## 澳大利亚免除部分工种密切接触隔离要求
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1855916/)
+## 2022.1.12全球反疫苗抗议游行
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1855954/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011302.jpg)网络图片
-澳大利亚总理斯科特·莫里森（Scott Morrison）本周宣布，将对密切接触的隔离规则进行更多修改，以缓解劳动力和供应链短缺的压力。
+**🔥🔥全球抗议者行动-2022/01/12**
 
-莫里森在全国内阁会议后发表讲话说，在被视为密切接触者后，可以在快速抗原检测结果呈阴性的情况下重返工作岗位的工种名单范围将被进一步扩展。这其中最为紧迫的是与运输、货运以及物流有关的工种。
+**⚠️****我们不反疫苗，只针对假疫苗**
 
-同时各类重点服务的供应者也将包含在内。莫里森先生表示，名单覆盖范围包括所有医疗保健和支持，以及紧急服务，包括执法、惩教服务、能源资源以及水和废物管理。关键供应链中的食品、饮料和其他工人也将包括在内，但这并不适用于酒店工作人员。
+**⚠️我们不反科学，只针对反人类**
 
-总理还表示，电信、数据、广播和媒体等行业的密切接触者也将进一步被放宽限制，只要快速卡抗原检测结果为阴性。
+**⚠️covid-19=新冠病毒=中共病毒**
 
-学校方面，虽然当前CCP病毒大流行在澳大利亚较为严重，但是第一学期的返校开学计划依旧是相当重要的。总理补充说，学校应该“尽可能先开放，最后关闭，并优先考虑面对面学习”。国家内阁将在下周为家长和老师提供有关返校细节的更多信息。
+**推出问题，敲出真相，爆料在路上！**
 
-新闻参考链接：[Close contact isolation exemption rules extended to more workers](https://www.9news.com.au/national/coronavirus-update-national-cabinet-scott-morrison-close-contact-exemption-extended/ee459264-469a-4585-96a1-9e59243bf7ec)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

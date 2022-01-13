@@ -15,119 +15,119 @@
 
 ---
 
-### [整个西藏成为利益分配的牺牲品](/content/gnews/1/README.md)
+### [西安的&#8221;共享财富&#8221;开始了](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀](/content/gnews/2/README.md)
+### [中国靠前的大企业, 只要和共产党有关的, 就有Ray Dalio 桥水基金投资](/content/gnews/2/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [西媒头条 — 第152期](/content/gnews/4/README.md)
+### [七哥说—第43期](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/5/README.md)
+### [整个西藏成为利益分配的牺牲品](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [西媒头条 — 第152期](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GTV新闻访谈简报|2022年1月13日早](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [疫苗经济](/content/gnews/6/README.md)
+### [疫苗经济](/content/gnews/9/README.md)
  ` G-NEWS TAIWAN`
 
-### [乔·罗根（Joe Rogan）在 Gettr 上找到Twitter 缺失的东西](/content/gnews/7/README.md)
+### [乔·罗根（Joe Rogan）在 Gettr 上找到Twitter 缺失的东西](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党和中亚的卖国勾兑](/content/gnews/8/README.md)
+### [共产党和中亚的卖国勾兑](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/13 银河快讯: 丰田去年销量有望连续第二年位居世界第一；大规模疫苗接种将在东京大阪进行](/content/gnews/9/README.md)
+### [1/13 银河快讯: 丰田去年销量有望连续第二年位居世界第一；大规模疫苗接种将在东京大阪进行](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [德约科维奇的澳网参赛之战对健康自由意味着什么？（1/2）](/content/gnews/10/README.md)
+### [德约科维奇的澳网参赛之战对健康自由意味着什么？（1/2）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/12/2021 文贵直播：杨贝贝拿了江志成和吴征给的脏钱，正在执行着中共4年前制定的计划，其目的是要干掉文贵和新中国联邦，并将把海外华人与Q组织联系在一起从而将其打成邪教分子](/content/gnews/11/README.md)
+### [1/12/2021 文贵直播：杨贝贝拿了江志成和吴征给的脏钱，正在执行着中共4年前制定的计划，其目的是要干掉文贵和新中国联邦，并将把海外华人与Q组织联系在一起从而将其打成邪教分子](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共利用病毒实施“商鞅五术”](/content/gnews/12/README.md)
+### [中共利用病毒实施“商鞅五术”](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [现在不是地域、海洋文明和大陆文明的战争，是资本主义和共产主义的太空战](/content/gnews/13/README.md)
+### [现在不是地域、海洋文明和大陆文明的战争，是资本主义和共产主义的太空战](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/14/README.md)
+### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [邪教组织的六大特征](/content/gnews/15/README.md)
+### [邪教组织的六大特征](/content/gnews/18/README.md)
  ` G-NEWS TAIWAN`
 
-### [士兵在阿拉木图对空旷广场开枪，故意制造激烈战斗气氛](/content/gnews/16/README.md)
+### [士兵在阿拉木图对空旷广场开枪，故意制造激烈战斗气氛](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [王岐山江家的洗钱工具](/content/gnews/17/README.md)
+### [王岐山江家的洗钱工具](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国：社交媒体视频显示孕妇和儿童在深夜被关入小牢房的隔离营](/content/gnews/18/README.md)
+### [中共国：社交媒体视频显示孕妇和儿童在深夜被关入小牢房的隔离营](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳洲养老行业或面临严重人员短缺](/content/gnews/19/README.md)
+### [澳洲养老行业或面临严重人员短缺](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2022.1.12全球反疫苗抗议游行](/content/gnews/20/README.md)
+### [2022.1.12全球反疫苗抗议游行](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [雷·达里奥为中共“共同富裕”背书！再次验证郭文贵情报！](/content/gnews/21/README.md)
+### [雷·达里奥为中共“共同富裕”背书！再次验证郭文贵情报！](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾通过86亿美元国防预算以应对中共日益加剧的威胁](/content/gnews/22/README.md)
+### [台湾通过86亿美元国防预算以应对中共日益加剧的威胁](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [澳大利亚免除部分工种密切接触隔离要求](/content/gnews/23/README.md)
+### [澳大利亚免除部分工种密切接触隔离要求](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/24/README.md)
+### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国防高级研究计划局文件揭露福奇参与了功能增强研究](/content/gnews/25/README.md)
+### [国防高级研究计划局文件揭露福奇参与了功能增强研究](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](/content/gnews/26/README.md)
+### [喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
 
-### [【#G时新闻】大药厂在故意部署有毒批次的新冠疫苗](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [著名音乐家被迫电视说谎,称自己拿钱来到哈萨克斯坦抗议](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2021年1月12日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/29/README.md)
+### [2021年1月12日（新西兰时间） 【玫瑰看新闻】每日快讯](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美中博弈联合国人权理事会 北京混淆视听难以为继](/content/gnews/30/README.md)
+### [美中博弈联合国人权理事会 北京混淆视听难以为继](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖茨对罗伯特-科赫研究所(RKI)慷慨捐赠](/content/gnews/31/README.md)
+### [盖茨对罗伯特-科赫研究所(RKI)慷慨捐赠](/content/gnews/32/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [生态健康联盟希望阻止披露来自中共国的新冠病毒数据](/content/gnews/32/README.md)
+### [生态健康联盟希望阻止披露来自中共国的新冠病毒数据](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0113](/content/gnews/33/README.md)
+### [DC每日热点0113](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [01/13/22 香港快讯 邹家成再被捕今午提堂 疑涉邓炳强帖文](/content/gnews/34/README.md)
+### [01/13/22 香港快讯 邹家成再被捕今午提堂 疑涉邓炳强帖文](/content/gnews/35/README.md)
  ` 英喜-粵語組`
 
-### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/35/README.md)
+### [共产党与美英法最有钱有权的人勾兑在全人类搞共享财富](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [加州推行阳性无症状感染者无需隔离政策](/content/gnews/36/README.md)
+### [加州推行阳性无症状感染者无需隔离政策](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/37/README.md)
+### [全员核酸检测的人群何时可以发出摧毁习奥塞斯库的嘘声](/content/gnews/38/README.md)
  ` NewFOC`
-
-### [秘翻在线:华盛顿早知羟氯喹和伊维菌素对新冠病毒有效，但却对公众隐瞒](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [现实不是电影](/content/gnews/39/README.md)
  ` 骄子`
