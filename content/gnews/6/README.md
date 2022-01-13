@@ -2,34 +2,47 @@
 ---
 
 
-## 【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1856897/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-**撰稿：Grace**
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-4.35.01-PM.jpeg)图片来源：freedomrockradio
-据《雅虎新闻》1月13日报道，美国的最高法院在周四，阻止了拜登政府对私人企业的强制中共病毒COVID-19疫苗的规定。这是拜登的强制疫苗规定的重大挫折。
+**字幕文本（英汉对照）**
 
-该规定要求拥有100名或以上员工的私人企业必须强制要求其员工接种COVID-19疫苗或每周接受测试。最高法院阻止的这条规定将覆盖8400多万工人。
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-但法院也以微弱的优势支持了对接受联邦资助的设施中的医疗工作者的疫苗规定。
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-在布雷特·卡瓦诺（Brett Kavanaugh）法官撰写的意见中，法院的六名成员批准了全国独立企业联合会（National Federation of Independent Business）的请求，暂时阻止职业安全与健康管理局（Occupational Safety and Health Administration））执行私人雇主规则。
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-大多数法官表示，全国独立企业联合会认为拜登的劳工部长无权强制执行该规定，因此有可能在法庭上获胜。
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
 
-他们说，建立职业安全与健康管理局的法律 “授权秘书制定工作场所安全标准，而不是制定广泛的公共卫生措施”。
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
 
-法院说：“尽管国会无可争议地赋予职业安全与健康管理局监管职业危险的权力，但它没有赋予该机构更广泛地监管公共健康的权力。要求8400万美国人接种疫苗，仅仅是因为他们为有超过100员工的雇主工作，这当然是监管公共健康的行为。”
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
 
-但是，法院的三位自由派成员–大法官斯蒂芬·布雷耶（Stephen Breyer）、索尼娅·索托马约尔（Sonia Sotomayor）和埃琳娜·卡根（Elena Kagan ）–在一份反对意见中说，他们会允许强制执行该任务，称中共病毒COVID-19是 “工作环境的威胁”。
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
 
-另一方面，在卡瓦诺和首席大法官约翰·罗伯茨（John Roberts）加入自由派的另一项决定中，法院以5比4的比例决定，卫生和人类服务部长根据现有法律授权，要求各设施确保其工作人员接种COVID疫苗（除非因宗教或医疗原因而豁免），以便获得医疗保险和医疗补助资金。
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
 
-庆幸的是，法院最保守的四位成员–塞缪尔·阿利托（Samuel Alito）、克拉伦斯·托马斯（Clarence Thomas）、尼尔·戈尔苏克（Neil Gorsuch）和艾米·科尼·巴雷特（Amy Coney Barrett ）–表示，他们不会允许这一规则继续下去。
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
 
-**新闻来源：**[The Supreme Court Blocked A Vaccine Mandate For Private Companies, But Allowed One For Healthcare Workers](https://www.yahoo.com/entertainment/supreme-court-blocked-vaccine-mandate-201346037.html)
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

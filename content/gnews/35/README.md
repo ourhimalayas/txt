@@ -2,12 +2,28 @@
 ---
 
 
-## “中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1856050/)
+## GTV新闻访谈简报|2022年1月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1856144/)
 
-01/10/2022 马龙博士：尽管中共使用“出血热病毒”来形容当前中共国的情况。我们不知道我们面临的是与中共病毒相关的冠状病毒的进一步变异，还是中国正在出现新的病毒威胁。然而，很明显，中国共产党是一个掠夺人民的流氓政权，它需要在政治上和物理上被孤立。像黑石这样的公司不应该被允许通过他们的投资基金使用美国人民的钱来腐蚀世界，并积极地中共勾兑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.13早GTV新闻访谈](https://gtv.org/broadcast/watch/61e0495ca6dfdd603153cf61)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/30B6040C-7739-4E38-9244-67481B07736A.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
