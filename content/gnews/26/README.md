@@ -2,22 +2,34 @@
 ---
 
 
-## 澳大利亚免除部分工种密切接触隔离要求
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1855916/)
+## 澳洲养老行业或面临严重人员短缺
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1855958/)
 
 撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011302.jpg)网络图片
-澳大利亚总理斯科特·莫里森（Scott Morrison）本周宣布，将对密切接触的隔离规则进行更多修改，以缓解劳动力和供应链短缺的压力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011303.jpg)
+图片来源：Pexels免费照片资料库
 
-莫里森在全国内阁会议后发表讲话说，在被视为密切接触者后，可以在快速抗原检测结果呈阴性的情况下重返工作岗位的工种名单范围将被进一步扩展。这其中最为紧迫的是与运输、货运以及物流有关的工种。
+由于 Omicron变种毒株在全国各地爆发，澳大利亚各地的养老设施在面临封锁的情况下同时出现了较为严重的人员短缺。
 
-同时各类重点服务的供应者也将包含在内。莫里森先生表示，名单覆盖范围包括所有医疗保健和支持，以及紧急服务，包括执法、惩教服务、能源资源以及水和废物管理。关键供应链中的食品、饮料和其他工人也将包括在内，但这并不适用于酒店工作人员。
+最新数据显示，全国目前有495家养老院暴露在CCP病毒的风险之下，疫情在这些设施内出现传播——其中有 1370 名老人与 1835 名工作人员已经感染了该病毒。
 
-总理还表示，电信、数据、广播和媒体等行业的密切接触者也将进一步被放宽限制，只要快速卡抗原检测结果为阴性。
+自去年7月以来，已有239人在老年护理设施内离世，其中12人为今年年初以来的死亡。联合公会的 Carolyn Smith 表示，Omicron 变体对老年护理设施产生了“巨大影响”，尤其是对于在那里工作的员工。Smith女士称：“我们听说有 5% 到 40% 的员工无法到岗上班。”
 
-学校方面，虽然当前CCP病毒大流行在澳大利亚较为严重，但是第一学期的返校开学计划依旧是相当重要的。总理补充说，学校应该“尽可能先开放，最后关闭，并优先考虑面对面学习”。国家内阁将在下周为家长和老师提供有关返校细节的更多信息。
+工作人员短缺不是唯一困扰老年护理机构的唯一原因：由于 COVID-19 爆发，养老设施的房屋也面临着封锁。这对无法见朋友和家人的老人们产生了情感方面的负面影响。史密斯女士说，她听说有老人恳求工作人员留下来与他们交谈，但由于人手短缺，他们无法提供这项服务。
 
-新闻参考链接：[Close contact isolation exemption rules extended to more workers](https://www.9news.com.au/national/coronavirus-update-national-cabinet-scott-morrison-close-contact-exemption-extended/ee459264-469a-4585-96a1-9e59243bf7ec)
+“工作人员协助的每位老人都会说：‘请留下来，请和我谈谈’，但是工作人员不得不说：‘对不起，我现在没有时间说话’。”
+
+Virginia Martin的 80 岁父亲目前在堪培拉的一家封闭式养老院，这影响了他的心理健康。根据Martin女士的说法，这位老人只能在他的房间里，他的伙食则是被送来的，现在已经是第 13 天。
+
+“最近几天，他说话的语调声音似乎有点变化，显得很悲伤。” Martin女士表示。
+
+史密斯女士呼吁联邦政府采取更多行动来支持老年护理机构，以应对 Omicron 的确诊案例持续飙升的状况。
+
+新闻参考链接：[Aged care homes face staff shortages and lockdowns as COVID-19 surges](https://www.9news.com.au/national/coronavirus-update-australia-aged-care-homes-face-staff-shortages-and-lockdowns-as-covid-19-surges/3577c0b5-2667-4b40-80ea-77c460a5cfa1)
+
+
+
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 

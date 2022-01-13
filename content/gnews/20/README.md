@@ -2,10 +2,12 @@
 ---
 
 
-## 王岐山江家的洗钱工具
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1855990/)
+## 现在不是地域、海洋文明和大陆文明的战争，是资本主义和共产主义的太空战
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856086/)
 
-为什么UBS成为中国第一个外资允许的百分之百，是王岐山江家洗钱的需要工具。
+台灣寶島農場
+
+
 
  
 

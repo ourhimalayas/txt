@@ -2,8 +2,8 @@
 ---
 
 
-## 政府隐瞒了治疗 Covid 的政策 ，死于新冠病毒的人都应该被视为谋杀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856189/)
+## 西安的&#8221;共享财富&#8221;开始了
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1856308/)
 
 台灣寶島農場
 
