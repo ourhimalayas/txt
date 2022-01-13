@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/13/2022 4:36 PM (UTC)`
+
+塞浦路斯新闻报道：美国间接承认的新中国联邦正全力营救战友<br/>对此爆料革命新中国联邦的创始人郭文贵先生在此前的大直播中说：新中国联邦正全力营救战友！<br/><br/>Cyprus news report: The new federal state of China, indirectly recognized by the U.S, is making every effort to rescue its comrades in arms<br/>For this event, the Founder of the New Federal State of China, Miles Guo said: The new federal state of China is making every effort to rescue its comrades in arms
+![img](https://media.gettr.com/group21/origin/2022/01/13/16/9e7ad5de-b2ba-f888-0647-87af7ca10fe6/out.jpg)
+
+---
+
 `@miles 1/13/2022 8:03 AM (UTC)`
 
 1/12/2022 Miles Guo: The Zhu Rongji family and the Jiang Zemin family have made a huge sum of money by giving large portions of China’s territories to Tajikistan and Afghanistan in exchange for the permanent ownership of the mining rights in that area. This is what treason is! The so-called Hetian Jade turned out not to be produced from Hetian, Xinjiang, but from Russia<br/><br/>1/12/2022 文贵直播：朱镕基、江泽民家族把中国大片领土给了塔吉克斯坦和富汗，以换取当地矿产的永久开发权从而攫取大量财富，这就叫卖国！所谓和田玉并竟非和田产，却产自俄罗斯<br/>
@@ -152,14 +159,6 @@ ICYMI: #GETTR CEO @jasonmillerindc joined @mariabartiromo this morning to discus
 盖特CEO的每句话都令人振奋！中文字幕用的是黄色，但是只有一处用了蓝色。英喜视频组的战友太有心了！棒极了！棒极了👍👍👍
 > `@himalayahawk777 1/10/2022 1:59 AM (UTC)`<br/>Jason Miller:<br/>下个月，我们将推出我们自己的竞争者。称之为 #Vision，这是一种短视频格式，与Instagram Reels竞争，也与 #抖音 竞争，因为短视频概念真正推动社交媒体的参与度，今年年中，我们将推出 #盖特支付，这是一个类似于苹果支付或支付宝的在线支付平台<br/><br/>We're going to call it #Vision, which will be a short video format, competes with Instagram Reels, but then also with TikTok, because we know that the short video concept is that's really what drives a lot of engagement on social media.<br/>Coming up in the middle of the year, we're going to launch a #GetterPay, which, yes, will be a payment platform online payment platform similar to an Apple Pay or an AlliPay
 ![img](https://media.gettr.com/group15/origin/2022/01/10/01/93298040-0a39-429c-538b-5857ac4f8fcd/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@seanhannity 1/11/2022 11:17 PM (UTC)`
-
-MANCHIN: “We need some good rule changes to make the place work better. But getting rid of the filibuster doesn’t make it work better.” https://hannity.com/media-room/still-the-manchin-joe-not-sold-getting-rid-of-the-filibuster-doesnt-make-the-place-work-better/
 
 ---
 
