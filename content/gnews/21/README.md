@@ -2,31 +2,25 @@
 ---
 
 
-## 七哥谈重庆人民的诅咒（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1852899/)
+## 【G时新闻】阴谋论? 接种新冠疫苗出生的婴儿是一种新的人类类型！
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1853017/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场 播报：七彩虹
 
-来源：郭先生2022-01-09直播09：26：58摘录
+阿根廷生物学家David Nonis博士在加州从事基因编辑技术研究，2021年10月他在阿根廷私人电视台Channel TR1上接受了令人震惊的采访。采访中他报道了那些在受孕前接种新冠疫苗的父母生育的婴儿，这些婴儿表现出了令人担忧的特征：类似的面部结构；非常不寻常的眼睛颜色，眼睛呈杏仁状；类似的头骨结构；视力显著改善（他们似乎几乎在出生后就能清楚地看到）；加速发育，三个月后能够行走，这是严重的过早行走；奇怪专注的目光，但伴随着某种情感分离。
 
-天津的疫苗、西安的疫苗、郑州的疫苗、武汉的病毒，才能发生如此之悲剧。这就是在整个喜马拉雅山上有一座山，大家知道叫什么山？就是猪的山。知道什么叫猪的山吗？就是把蠢人送到那个山上去，猪的山，所有统治者就想把所有的人民送到猪的山上去。这个猪的山峰就是重庆人民受到的诅咒，把整个重庆当年刘备管理的地方的人，变为农业的奴隶。
+David Nonis博士说，人类幼崽的基因突变是随机的，而注射新冠疫苗后出生的婴儿出现如此多的同质化的特点，可能和新冠疫苗mRNA导致的父母基因变异有关。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+此种变异是指，这是一种DNA结构改变的新的人类类型。虽然这些这些婴儿还在幼年期，未来长大后会如何还尚待观察。
 
-**关注我们**
+担忧因此而生：过快发育是否会导致这些婴儿过早地衰老，寿命的缩短 ？他们的这种基因是否会再遗传给下一代？
 
-Discord 账号
+听写/翻译：LuLu1312
+字幕：圣骑士
+盖特：[https://gettr.com/post/pmyyzs7b65](https://gettr.com/post/pmyyzs7b65)
+编辑/上传：七觉花
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
