@@ -2,27 +2,23 @@
 ---
 
 
-## 封城锁户的统治阶级正自吞罚果
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853071/)
+## 美国职业橄榄球联盟使用伊维菌素防疫
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1853140/)
 
-采编/编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
+采编撰稿：自由法兰西    校对编辑，发稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-22-edited.jpg)图片来源：CTV
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-3-edited.jpg)图片来源：TMZ
 
 
-据媒体[美国信仰]1月11日发表评论称：人们目前已体会到封城锁户将给世界带来无法挽回的次生灾难，但各国”精英统治”阶级却仍然对儿童和其他弱势群体施加这种附加伤害并乐此不疲。
+据美国《TMZ》近日报道，著名橄榄球运动员罗杰斯最近公开表示，[美国职业橄榄球联盟]的多只球队，正在向其球员推荐他之前使用过的治疗方案来抵抗“新冠病毒”感染。
 
-文章指出，当局政府利用其巨大财力、行政权力和媒体公信力促使了以上悲剧的发生。但任何稍具常识的人都能预见到封锁措施所带来的虚假防疫效果比病毒感染更严重。
+报道称，罗杰斯在去年11月感染了Delta病毒后，采纳了与著名媒体人罗根曾使用过的混合药物，包括锌、硫酸羟氯喹以及伊维菌素等治疗方法，并迅速因此得以康复。
 
-目前，统治阶级已意识到人们的觉醒，此前一直服务于权贵的主流媒体开始转向，承认封锁和持续关闭学校正给所有美国人，特别是儿童造成永久性伤害。并企图通过“只肯定部分事实而否定所有真相”的欺诈，来重树其一贯的权威信任度。
-
-同时，这些独裁者继续对病毒来源的质疑者和反对疫情控制规定、疫苗政策的不同意见者进行打压、禁言甚至污名化。历史一定会记住谁为掩盖真相而把人民推入灾难的深渊，又是谁为真理、生命和自由挺身而出并让儿童免遭精英阶级的蓄意戕害。
+该球员对此重申，其亲身经历已证实以上提及的药物和治疗方法行之有效，而且很多球队也对此深信不疑。但罗杰斯对该有效防疫方案至今仍未在现实中被普遍推广和应用表示深深的不解和困惑。
 
 * * *
 
-信息来源：[No, Those Who Pushed Lockdowns Can’t Hide From The Consequences Now](https://americanfaith.com/no-those-who-pushed-lockdowns-cant-hide-from-the-consequences-now/)
-
-* * *
+原文链接： [https://www.tmz.com/2021/12/29/aaron-rodgers-nfl-teams-recommending-med-regimen-treat-players-covid/](https://www.tmz.com/2021/12/29/aaron-rodgers-nfl-teams-recommending-med-regimen-treat-players-covid/)
 
 
 

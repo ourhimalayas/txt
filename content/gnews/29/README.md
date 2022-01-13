@@ -2,28 +2,46 @@
 ---
 
 
-## 德国病毒学家：“清零”不是长久之计
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1853038/)
+## 加拿大阿省卫生官承认ICU数据造假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-14.jpg)德国病毒学家：“清零”不是长久之计 网络图片
-据德国之声中文网1月13日报道，新冠疫情爆发以来，中共国采取和欧美完全不同的防疫路线，追求”清零”政策。一旦暴发疫情，整个城市就会被封锁。拥有1300人口的西安市自12月底封城已超过半个月，天津在发现新冠病毒变种毒株奥密克戎（omicron）的确诊病例后，对多个社区严格管控，并启动全员核酸检测。
-
-德国病毒学家凯库勒指出，所有国际专家一致认为，随着高传染性的奥密克戎变种病毒迅速蔓延，中共国的清零策略没有合理的出路，将重创社会及经济，因为这是全球经济相互依存的问题。现在已经看到半导体、汽车业等各各业的供应链问题。
-
-中共一向视人命如草芥，病毒、疫苗是杀人武器，清零是另一种杀人手段。试想，病毒在全球疯狂蔓延，作为人口第一大国，中共国如何能做到“清零”？掩耳到零而已。何况此次西安封城，并不是因为变种病毒扩散，而是疫苗灾难。强迫接种疫苗之后，尤其西安接种的是高浓度的致死疫苗，导致出现大面积伤亡，突然封城是为了焚尸灭迹。中共的罪行是全世界所有人，每人杀中共一遍都不能偿还。
-
-新闻参考链接：[https://www.dw.com/zh/%E5%BE%B7%E5%9B%BD%E7%97%85%E6%AF%92%E5%AD%A6%E5%AE%B6%E6%B8%85%E9%9B%B6%E4%B8%8D%E6%98%AF%E9%95%BF%E4%B9%85%E4%B9%8B%E8%AE%A1/a-60401200](https://www.dw.com/zh/%25E5%25BE%25B7%25E5%259B%25BD%25E7%2597%2585%25E6%25AF%2592%25E5%25AD%25A6%25E5%25AE%25B6%25E6%25B8%2585%25E9%259B%25B6%25E4%25B8%258D%25E6%2598%25AF%25E9%2595%25BF%25E4%25B9%2585%25E4%25B9%258B%25E8%25AE%25A1/a-60401200)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山文艺部 – 宁文静
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+1月10日，在加拿大阿尔伯塔省的新闻发布会上，首席卫生官员迪娜·辛肖承认，在整个中共病毒大流行期间，该省卫生局将一些非ICU患者报告为了ICU患者。
+
+辛肖表示，在核查历史数据的过程中，他们发现一些医院的某些部门，在可用ICU床位和非ICU床位之间来回转换。按照这些医院的操作标准，因中共病毒入院的病人被归类为ICU患者，而事实上当时这些房间已被改为非ICU病房。辛肖说，这些数字现在已经被修正了过来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-11.jpg)
+这一声明引发了巨大的社会反响。评论人士指出，不仅在阿省，在加拿大任意一级政府卫生机构，ICU的数字一直被用作封锁、强制接种疫苗和疫苗护照的重要参考。这些错误的关键信息对公众的生活和心理、对当地的经济，都已经造成了无法弥补的伤害。而这些伤害，仍然在继续。
+
+参考链接：
+[WATCH: Alberta Health admits they manipulated ICU numbers](https://www.thecountersignal.com/news/alberta-health-admits-they-manipulated-icu-numbers)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
