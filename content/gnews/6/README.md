@@ -2,18 +2,31 @@
 ---
 
 
-## 广东珠海确诊1例新冠病毒核酸阳性案例
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1858492/)
+## 上海鲜花港项目被申请破产重组
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858503/)
 
-撰稿：追着曙光跑
+整理：Eileen（围剿维尼熊）
+编辑：Kelly
 
-据“珠海香洲”微信公众号14日消息，14日珠海市在核酸检测中发现1名居民新冠病毒初筛阳性，经珠海市疾控中心复核为阳性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-15.58.38.jpeg)图片来源：网络
-患者是一名女性，住在南屏镇将军山榕园2栋。该名患者是在大规模核酸检测中发现，现已转送至中大五院隔离治疗，临床诊断待出。相关密接者、次密接者及重点人员正在排查中，其居住、工作及相关重点区域已实施管控措施。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源；雅典娜设计组
 
-珠海市是广东这个月以来，继深圳市和中山市之后发现确诊案例的城市。
 
-信息来源：[珠海发现1例新冠病毒核酸阳性个案](https://mp.weixin.qq.com/s/FHewnLrzFv9WyBgrordnPA)
+据媒体报道，上海明裕房地产有限公司正招募意向投资人，意向重整投资。
+
+据了解，2021年9月17日，上海市第三中级人民法院裁定受理债权人对明裕房地产破产重整的申请。
+
+明裕房地产的主要资产为上海市浦东新区临港新城综合区“区内镇外2街坊27/78丘”的土地使用权，即拟开发“上海鲜花港项目”。该住宅地块为明裕房地产单独所有，目前该项目无在建工程，处于待开发状态。
+
+2021年6月29日，上海浦东临港鲜花港项目资产包以约18.57亿元对外出售，该资产包主要为债权及其利息。资产包涉及5项债权，其中4项为债务人上海明裕房地产有限公司，另一项为债务人上海铭均投资管理有限公司。
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

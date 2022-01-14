@@ -2,51 +2,32 @@
 ---
 
 
-## 信用卡巨头Visa将为各国央行数字货币打造接口
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858521/)
+## 美国最高法院阻止了对企业的中共病毒疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858559/)
 
-#### **【雅典娜观察】和您一起探究世界**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-37.png)
+图片来源：网络截图
 
-整理报道：文扬
-编辑：文泓
+据合众国际社1月13日报道，美国最高法院周四阻止了总统乔·拜登对大型私营企业的中共病毒疫苗或测试强制令，但允许对接受联邦资金设施的医护人员提出疫苗要求。高等法院以6-3票反对前者，布雷耶（Breyer）、索托马约尔（Sotomayor）和卡根（ Kagan）持反对意见。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Y9Z36OEZJZLZ5PJ4GY.png)图片来源：Pymnts.com
+职业安全与健康管理局在11月发布的强制令要求拥有100名或以上员工的企业的工人接种疫苗或每周提交中共病毒的阴性测试。它还要求未接种疫苗的工人在室内必须戴上口罩，但对有宗教信仰的工人和在家工作的员工有例外。
 
+“尽管国会无可争议地赋予OSHA监管职业危险的权力，但它没有赋予该机构更广泛地监管公共健康的权力，”法院在其裁决中说。“要求8400万美国人接种疫苗，仅仅是因为他们为雇员超过100人的雇主工作而被选中，这当然属于后面的范畴，”它继续说。
 
-**1****月13日，据雅虎新闻报道，信用卡巨头Visa周四宣布，它将通过与区块链软件公司共识系统（Consensys）合作，为各国中央银行数字货币(CBDC)建立一个接口，进一步扩展其加密货币服务。**
+在投票之前，倾向于保守的法官们表示，他们不相信总统乔·拜登有权责成OSHA对拥有100名或更多雇员的公司执行这一任务。
 
-**这家支付巨头的目标是创建一个“CBDC加密沙盒”，该沙盒将在春季推出，中央银行可以在使用共识系统的Quorum协议完成铸币后，尝试该技术应用。**
+不过，最高法院允许对接受医疗保险或医疗补助金的医疗机构实施类似的任务。对医护人员的疫苗强制令投票结果是5比4，托马斯（Thomas）、阿利托（Alito）、戈尔舒（Gorsuch）和巴雷特（Barrett）持反对意见，这意味着罗伯茨（Roberts）
 
-**这一合作关系是蓬勃发展的加密数字货币市场的最新进展，各国央行争相铸造自己的数字货币，成熟的金融公司也在涉足加密货币支付。**
+和卡瓦诺（Kavanaugh）与自由派大法官一起，允许HHS对医护人员的强制令成立。
 
-**“中央银行正在从研究转向真正想要拥有可以试验的有形产品，”Visa组织的加密业务负责人朱伊·谢菲尔德说。**
+据白宫称，由医疗保险和医疗补助服务中心发布的医疗保健强制令适用于76000个设施的约1700万工人。
 
-**CBDC****可以运行分布式账本或区块链技术构建的协议。与比特币(BTC-USD)或以太坊(ETH-USD)等加密货币不同，CBDC协议始终是“许可的”，这意味着中央银行保持货币和治理控制。**
+拜登在一份声明中批评了这项裁决，并呼吁各州和私人雇主要求工人接种疫苗。
 
-**该合作关系为CBDC采用了“两级”分销模式。中央银行将在共识系统的Quorum上设计他们的数字货币，在那里他们将设定其货币和治理规则。然后，他们使用Visa的基础设施，通过商业银行等金融中介机构分发该货币。**
+新闻来源：1. [Supreme Court blocks COVID-19 mandate for businesses](https://www.upi.com/Top_News/US/2022/01/13/supreme-court-blocks-bidens-vaccine-mandate/5471642105616/)
 
-**自2019年以来，Visa一直涉足与加密货币相关的产品，利用其现有的支付网络作为建立购买加密货币的“入口”和将其转换回法定货币的“出口”的优势。**
-
-**它已经用一种稳定币进行交易结算，最近还开设了一个加密货币咨询服务，为探索自己的加密货币计划的银行提供服务。**
-
-**在过去一年半中，探索CBDC的国家数量增加了一倍多。根据大西洋理事会的CBDC追踪器，至少87个不同的国家（占全球国内生产总值的90%）正在以某种方式权衡（新的）金融技术。**
-
-**目前，九家中央银行，包括尼日利亚、巴哈马和其他七个加勒比国家的中央银行，已经推出了CBDC。与此同时，中国准备在下个月2022年冬奥会期间向外国游客公布其试点数字人民币。**
-
-**与此同时，美联储等主要央行预计不会很快发行数字货币。在本周早些时候的再次确认听证会上，美联储主席鲍威尔表示，美联储期待已久的关于CBDC的文件将在“未来几周内”发布，但除此之外没有给出明确的时间表。**
-
-**长期以来为美国财政部和美联储提供CBDC咨询的电子货币（eCurrency）公司的一位高管在10月份告诉雅虎财经，国会必须在美联储和美国财政部发行央行支持的代币之前给予授权。**
-
-**原文链接：**[**Visa,Consensys partner to build tech for central bank digital currencies (yahoo.com)**](https://news.yahoo.com/visa-consensys-partner-to-build-tech-for-central-bank-digital-currencies-050113963.html?guccounter=1)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2. [Supreme Court Blocks Biden’s OSHA Vaxx Mandate](https://www.zerohedge.com/political/supreme-court-blocks-bidens-osha-vaxx-mandate)
 
  
 
