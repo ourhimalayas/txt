@@ -2,28 +2,28 @@
 ---
 
 
-## 英国一组织发布中共病毒疫苗致命性研究报告清单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
+## 辉瑞加强针被正式列为26岁男性的死因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858532/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山信息部 – 诺雅
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
+1月12日外媒报道，南达科他州26岁男子约瑟夫·基廷的官方死亡证明显示，第一个死因是涉及左心室和室间隔的多灶性心肌炎；第二个死因是最近接种的辉瑞加强针。这成为疫苗导致死亡的确凿证据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-14.jpg)
 
-目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
+据约瑟夫有着35年重症监护经验的母亲称，在加强针接种72小时后的11月11日早上，儿子开始出现喉咙痛、肌肉酸痛和疲惫的症状，起初家人误认为是疫苗导致的轻微副作用，出乎意料的是，约瑟夫的心脏很快衰竭。
 
-该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
+约瑟夫的母亲表示，尸检证明辉瑞加强针直接导致了儿子的死亡，她警告世人，毒疫苗可能在没有明显症状的情况下带来致命后果。
 
 参考链接：
 
-- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
+- [Booster Listed As Cause of Death in 26-Year-Old’s Autopsy, Death Certificate After Work-Mandated Jab](https://gettr.com/post/pnyrl19052)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：Jack Li文阳
+编辑：百香果
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

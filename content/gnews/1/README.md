@@ -2,29 +2,42 @@
 ---
 
 
-## 英军情五处警告议会：工党金主华裔女律师疑为中共间谍
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1858621/)
+## 东北广西甘肃90%活的人畜不分几千万杨改兰何谈卖国叛国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858649/)
 
-翻译：zzballack
-上传：追着曙光跑
+视频链接：[2022年1月12日 文贵大直播- G|TV](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-据英国《每日邮报》（Daily Mail）1月13日报道，英国军情五处（MI5）今天向国会议员们发送了一封电子邮件警告说，一名与前部长有联系的工党捐助者是一名中共间谍。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-17.18.11.jpeg)图片来源：网络
-MI5警告说，长期在英国伦敦经营律师业务的李贞驹（Christine Ching Kui Lee）“为中共统战部从事政治干预活动，与国会议员等相关政治实体接触。她与英国政界人士有‘广泛接触’，为中共与现任议员和有意竞选成为国会议员的人‘建立了联系’，她向政界人士的捐款资金来自在中国和香港的非英国人。任何与她接触的人都应该‘注意她的隶属关系’及其‘推进中共议程的活动’。”
+**郭文贵先生：**你看中国东北、去广西、甘肃90（%）的人活的人畜不分，啥时候让你宣过誓？你卖啥去啊？杨改兰女士，她卖个牛毛都卖不着，她只能把孩子头砍了，她只能把她自杀，她一生只有一个权利——自杀的权利，而且自杀还是错了，最后所谓她的国家说，你自杀是因为你精神有毛病，杨改兰的事件，是中国人最好的样板。
 
-李贞驹的律所Christine Lee & Co Solicitors在伦敦、伯明翰和北京设有办事处，她是中共驻伦敦大使馆的首席法律顾问。除此之外，李贞驹还身兼多种职位：英国最大的华人律师行董事长、中共侨联特聘海外法律顾问、英国议会跨党派中国小组秘书长等等。
+你知道中国有多少个杨改兰？我头两天跟那个李克强的原秘书我跟他说，他说，文贵啊！当年你一开始说杨改兰对我之震撼，他说我这个哥们不白交，他说就你这个说法，我跟着老板去过甘肃多次，河南还有他老家，中国现在就今天，就是说这几个月前说的话他是，中国最起码几千万个杨改兰。
 
-李贞驹向前工党党魁杰里米·科尔宾 (Jeremy Corbyn)盟友巴里·加德纳（Barry Gardiner）捐赠了50多万英镑，其中约20万英镑用于支付加德纳其中两名国会助手的薪资。她的儿子丹尼尔·威尔克斯(Daniel Wilkes)曾在加德纳议员的办公室工作，这意味着他有特权可以持员工证进入议会大楼(Parliamentary Estate)。加德纳议员一直支持中共更多地参与英国核工业的企图，包括欣克利角（Hinkley Point）发电厂。
+他说可悲的事情，他们永远不会被人知道，他自杀他砍死100个孩子也没人知道，他只是偶然的被那个混蛋的宣传媒体拿来，用她的死来让别人不死的时候被你给逮住啦。
 
-据报道，李贞驹还向工党的其他部门捐赠了数十万英镑，她的公司在2005年向自由民主党捐赠了5000英镑，并在2013年向现任党魁、时任能源大臣的爱德·戴维 (Ed Davey)捐赠了5000英镑。她与保守党也有联系。10多年前，当中共跟英国的关系处于“黄金时代”时，李贞驹一度被英国官员奉为座上宾。例如，当中共代表团和政要访问英国时，她的身影经常出现在英国议会。2006年，李贞驹发起了一个所谓的“英国华人参政计划”，称让华人的声音得到英国社会重视。该计划得到英国政界的关注，甚至赢得了唐宁街的夸奖。李贞驹曾在2019年获得时任英国首相特雷莎·梅（Theresa May）颁发的“社群之光”（Points Of Light）奖章，以表彰她身为社群志工的成就。五年前，人们首次对她的资助提出质疑，但没有采取任何行动。
+悲剧就在这儿呢！你的死都被拿来利用，结果让我们知道了，中国有多少…现在几千万杨改兰，谁要敢说中国没有几千万杨改兰，我R你八辈祖宗！
 
-英国保守党议员和前任党魁邓肯·史密斯（Sir George Iain Duncan Smith）爵士1月13日在议会下院就军情五处的警告提问。他说，这是“一个严重关切的问题”，呼吁将李贞驹驱逐出境，并要求政府向下院作出解释。
+你让联合国去查一查，我们今天面对几千万杨改兰的时候，还说我们是叛国、卖国，那么刚才问的问题，你懂啥叫叛国卖国吗？
 
-英国内政大臣普丽蒂·帕特尔 (Priti Patel)说，一个“代表中共故意从事政治干预活动的人把目标对准了议员，这是令人极为关切的，但英国已经制定了识别外国干预的措施。”
+编辑整理：海贼王M.D.LUFFY；
 
-英国官员的一个担忧是，目前没有法律应对干预。但他们相信公开事实是防控未来风险的最佳途径，正如现在军情五处所作的一样。
+G-News发布：海贼王M.D.LUFFY；
 
-信息来源：[MI5 issues urgent warning to Commons about Chinese lawyer trying to corrupt UK politicians: London-based solicitor has donated £500,000 to Corbynite Labour MP and her son worked in his office – until he quit today](https://www.dailymail.co.uk/news/article-10398665/MI5-send-urgent-email-MPs-warning-Chinese-woman.html)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

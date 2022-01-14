@@ -2,28 +2,31 @@
 ---
 
 
-## 【中日财经爆】高盛大幅调高今年中共房债违约率预测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858225/)
+## 日本议员：国会应尽快通过反对中共侵害人权的决议案
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1858226/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-31.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.goldmansachs.com/worldwide/greater-china/insights/2020-C-REITs-f/800x450.jpg&amp;imgrefurl=https://www.goldmansachs.com/worldwide/greater-china/insights/&amp;tbnid=4eZyQAxl0sFMAM&amp;vet=12ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ..i&amp;docid=eKDsUjoZcsvdIM&amp;w=800&amp;h=450&amp;itg=1&amp;q=%E9%AB%98%E7%9B%9B%20%E6%88%BF%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ)
-1月13日，高盛发表研究报告，预测中共2022年房地产债务违约率将达19%，远高于原先预期的11.5%。
+#### 撰稿：日本东京方舟农场  海星
 
-报告称，去年底内地房地产企业高收益债出现几宗大规模违约，最近数周虽未见大量支付逾期(违约)情况，但紧张情绪加剧。这反映于债务置换或债务延长方案增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13FC17BE-6BCF-4757-A2C5-0524A7EBB0D6.jpeg)（图片来源：路透社）
 
-考虑信贷紧张加剧及市场压力持续，该行上调今年内房违约预测。报告指出，在基本情境下，料内房高收益债违约率达19%，高于原先预期的11.5%。在悲观情境下更有可能高达31.6%(原先为25.4%)，而在乐观情境料见10.5%(原先为4.3%)。
+1月11 日，日本议员高市早苗在接受BS富士电视台采访时表示，因中共侵害人权问题严重，日本国会应尽快通过反对中共侵害人权的决议案
 
-高盛表示，未来数个月将有大量内房高收益债到期，料潜在发生更多债务置换或债务延长，以及有更多违约个案发生。该行估算2022年1月余下时间有36亿美元内房债到期，3月有33亿美元，4月另有37亿美元内房债到期。
+据《产经新闻》报导，自民党议员高市早苗在当日接受媒体采访时表示，她将于预计1月17日召开的通常国会上推进国会尽快通过反对中共侵害新疆或其他地区人权的决议案。
 
-该行中国经济师团队分析认为，虽然中共在政策层会有一定放宽，但仍旧不会有重大房地产需求刺激。
+高市议员在节目中强调说，尽管今年是中共国和日本外交正常化50周年，但中共完全没有改变其霸权主义的立场以及严重侵害人权的行为，针对这些问题日本政府不可能不采取任何对应措施。
 
-信息来源：
+此前，高市议员就曾在日本临时国会上呼吁国会通过反对中共侵害人权的决议案。当时，茂木敏充干事长指出，该决议案的内容是正确的，但还未到时机，应优先讨论外交抵制北京冬奥会的决议。
 
-[高盛上调今年内房债违约率预测至19%](https://finance.sina.com.cn/stock/estate/integration/2022-01-13/doc-ikyakumy0165614.shtml?cref=cj)
+*参考链接：[自民・高市氏、対中非難決議「通常国会の頭で」](https://www.sankei.com/article/20220111-MPO2RV3TYJN5PH4T6K5Z2NZA2A/)*
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+* * *
+
+*素材采编：海星*
+
+*编辑：文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

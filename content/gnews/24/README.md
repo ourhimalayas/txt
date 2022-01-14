@@ -2,33 +2,20 @@
 ---
 
 
-## 中共国信用卡即将全面刚性扣减
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858444/)
+## 中共正在把社会主义推向全世界
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1858453/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+我在去年都告诉你们，疫苗灾难、疫苗战争、疫苗政治、疫苗经济，是共产党开启的，然后在美国共享财富。
 
-整理报道：BENJ1
-编辑：Kelly
+**【郭先生直播摘要】**** 2022.1.12 ****中共正在把社会主义推向全世****界**** ****CCP **
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+**郭先生：**
 
+兄弟姐妹们你们看的太少了，我在去年都告诉你们，疫苗灾难、疫苗战争、疫苗政治、疫苗经济是共产党开启的，然后在美国共享财富。美国也会这么干，欧洲也会这么干。记住我说的话，一定会这么干。让你呆在家里，然后有人来共享你的财富。谁都想当共享别人财富的那个人，然后社会仇恨激发，整合财富就开始了，走着看吧。
 
-据说，2022年信用卡将全面实行“刚性扣减”的政策，想获得更高额度的信用卡，在未来可能成为一种奢求。
+这就是为什么伊莎贝拉·杨疯狂，在这个时候，共产党有组织的。第一个海外华人，美国五百万华人，还有日本的草根，你们都要被共享财富。因为你们占据了我们太多财富，你就是当年德国的犹太人，因为你们没有感受这个，你们走着看。半年内你会感受到，青青草原不会再恨共产党在哈萨克斯坦做什么，你会恨的是现在正在你身边做什么，我再说下去怕你们几个都尿了。
 
-所谓“刚性扣减”，指银行在审批额度时，将扣减申请人在其他银行持有的信用卡总额度，最后给出一个符合资质的额度。
-
-刚性扣减其原因不言而喻，刚性扣减的主要目的是控制信用卡风险，比如个别持卡人授信过高，卡透支后无力偿还等风险。另外，信用卡逾期率不断上升，坏账率也紧跟其上，如不加以制止，长此以往会引发更大的风险。
-
-参考新闻：[https://cj.sina.com.cn/articles/view/7506507237/1bf6c35e5001012ph6?cre=tianyi&mod=wftop&loc=5&r=0&rfunc=56&tj=cxvertical\_wap\_wftop&tr=182](https://cj.sina.com.cn/articles/view/7506507237/1bf6c35e5001012ph6?cre=tianyi&amp;mod=wftop&amp;loc=5&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+剪辑剪辑：北方信使 |听写：雨山溪桥客|翻译：精糧 |校对：烟波浩淼 | 视频制作+字幕：CG.| 编辑&发布：断播
 
  
 
