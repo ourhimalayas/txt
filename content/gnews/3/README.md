@@ -2,43 +2,29 @@
 ---
 
 
-## 美联社不再强调病例数以助拜登和民主党一臂之力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859307/)
+## 刚听到一个好消息（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1859387/)
 
-编译： Jenny Ball
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1083.png)图片来源**：**thegatewaypundit.com
+后来，毛泽东就是过年时候没人理他了，就是刘少奇当接班人了，就没有一个人靠近。 到过年的时候，他自己说，放几个鞭炮吧，扔几个鞭炮。张玉凤在外面扔几个鞭炮，张玉凤原话。说啥嘛？毛泽东是哭的。这是这个没有人报道。我听张玉凤跟我说的。 他是哭的，毛泽东嗷嗷的哭呼哧呼哧地哭，你看我孤家寡人，也没人理我啊。这帮人 都这么没良心，你们都回家过年去。结果他就给了谁，王光美打电话，他亲自给王光美打电话，光美啊，包饺子了吗？过来跟我们一起吃饺子吧。王光美说我我在家陪孩子 呢，不能去啊，”咵“电话给挂了。其实这都是张玉凤原话。
 
-美联社告诉其编辑，不要再针对 Covid 病例数发表报道。只报道任何可以帮助乔·拜登和民主党进入中期选举的事情。
+然后他就要找张玉凤，还刚来一个小女孩，听说是新疆那个小女孩刚来的，他就跟人家要给人家上床，你这小女孩我叫不干。哎呀，这毛主席这个年过的又窝囊透了，你们真以为我不行了，你真以为我完了？最后就到了什么？搞出文化大革命出来了啊。毛泽东那时候真有可能想的就是交给刘少奇。
 
-民主党人利用错误测试的高“病例数”来抨击川普和佛罗里达州州长罗恩·德桑蒂斯。
+那以后，他问所有人，我是不是军事赏，所有人都听我的，大家答案是不，都听刘少奇 的。听林彪的。毛泽东这才决定啊。毛泽东回来开会，说刘少奇，我动一个小指头，我就搞死你刘少奇了。他就许诺给林彪当接班人，干掉刘少奇。
 
-然而，既然现在是乔·拜登的领导，Covid 病例却达到了创纪录的水平，美联社要改变他们报道故事的方式。
+因为他自己不是百分之百权利，刘少奇和林彪都是受尊重最有影响的，所以他拉了用林彪干掉刘少奇。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/刚听到一个好消息（五）-.jpg)
+发布：tianzhihuan
 
-比如：“假期期间病例数飙升，鉴于出现了更具传染性的变体，这是一个预期的发展。” 美联社谈到了 Omicron 变体。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-美联社辩称，**病例数不正确**，因为许多人自检或在不知情的情况下被感染，因此，他们将不再强调病例数。
-
-**（点评：我是不是可以建议美联社干脆学学中共，也来个感染数“社会清零”。）**
-
-“出于这个原因，美联社最近告诉其编辑和记者，避免在有关该疾病的报道中强调病例数。这意味着，例如不再有报道只关注某个特定国家或州，创下单日病例数记录，因为这种说法已经变得不可靠。” 他们说。
-
-美联社现在也承认，由于Covid 住院与因为 Covid 住院之间存在差异(1)。
-
-（注释(1)：处于某种目的，将住院的病人称为“Covid”病人，英文(because of covid）是由于。而感染了Covid后住院的病人，英文（with covid）是因为。）
-
-“一些人认为住院率和死亡率是 COVID-19 当前对社会影响的更可靠的描述。然而，最近几天，甚至这些数字的有用性也受到了质疑。《科学美国人》健康与医学高级编辑坦尼娅·刘易斯说，在许多情况下，住院是偶然的：有些人因其他原因入院，并惊讶地发现他们的新冠病毒检测呈阳性。” ——美联社说。
-
-**点评：媒体已经彻底失去了本质，变成利益集团的宣传工具。**
-
-新闻来源 **：**[thegatewaypundit.com] [The Associated Press Will No Longer Emphasize Covid Case Count to Help Joe Biden and the Democrats Going Into Midterm Elections](https://www.thegatewaypundit.com/2022/01/associated-press-will-no-longer-emphasize-covid-case-count-help-joe-biden-democrats-going-midterm-elections/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

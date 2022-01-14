@@ -2,22 +2,43 @@
 ---
 
 
-## 美国会特委员会再次调查“占领国会山”事件，传唤谷歌、脸书等4家媒体
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1859260/)
+## 美联社不再强调病例数以助拜登和民主党一臂之力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859307/)
 
-撰稿：东京樱花团｜风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2-4.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/0965aeec4cd1d7fc1431f566317bff9e.jpg/8TkvDhR7XAPV5Uzhy0XGQ3IosojbLJL_sa_X5LGv1-Q?v=w1920)
-据【硅谷-白石武志】报道：美国会特别委员会在之前的“占领美国国会事件”信息披露请求未能得到足够的答复后，该委员会决定采取更有力的措施，于1月13日调查2021年1月占领美国国会大厦事件的众议院特别委员会向美国四大互联网公司，谷歌母公司字母控股（Alphabet）、脸书（Meta），推特（Twitter）和红迪（Reddit网络运营商）发出传票，要求提供与该事件有关的记录。
+编译： Jenny Ball
 
-在特别调查委员会里的民主党委员会主席汤普森也表示，特别委员会已经要求互联网公司提交更多2021年夏天的占领有关的记录，但迄今为止还没有收到足够的答复和重要信息。为了不拖延重要工作，将向这4家社交网站发出传票，调查如何使美国前总统川普的支持者变成“暴力分子”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1083.png)图片来源**：**thegatewaypundit.com
 
-特别委员会的调查还包括，在“占领”事件发生后，推特和脸书立即暂停了川普等人的账户，说他们煽动暴力的帖子违反了他们的服务条款的。
+美联社告诉其编辑，不要再针对 Covid 病例数发表报道。只报道任何可以帮助乔·拜登和民主党进入中期选举的事情。
 
-信息来源：[**米議会占拠事件の特別調査委、Googleなど4社に召喚状**](https://www.nikkei.com/article/DGXZQOGN1408V0U2A110C2000000/)
+民主党人利用错误测试的高“病例数”来抨击川普和佛罗里达州州长罗恩·德桑蒂斯。
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+然而，既然现在是乔·拜登的领导，Covid 病例却达到了创纪录的水平，美联社要改变他们报道故事的方式。
+
+比如：“假期期间病例数飙升，鉴于出现了更具传染性的变体，这是一个预期的发展。” 美联社谈到了 Omicron 变体。
+
+美联社辩称，**病例数不正确**，因为许多人自检或在不知情的情况下被感染，因此，他们将不再强调病例数。
+
+**（点评：我是不是可以建议美联社干脆学学中共，也来个感染数“社会清零”。）**
+
+“出于这个原因，美联社最近告诉其编辑和记者，避免在有关该疾病的报道中强调病例数。这意味着，例如不再有报道只关注某个特定国家或州，创下单日病例数记录，因为这种说法已经变得不可靠。” 他们说。
+
+美联社现在也承认，由于Covid 住院与因为 Covid 住院之间存在差异(1)。
+
+（注释(1)：处于某种目的，将住院的病人称为“Covid”病人，英文(because of covid）是由于。而感染了Covid后住院的病人，英文（with covid）是因为。）
+
+“一些人认为住院率和死亡率是 COVID-19 当前对社会影响的更可靠的描述。然而，最近几天，甚至这些数字的有用性也受到了质疑。《科学美国人》健康与医学高级编辑坦尼娅·刘易斯说，在许多情况下，住院是偶然的：有些人因其他原因入院，并惊讶地发现他们的新冠病毒检测呈阳性。” ——美联社说。
+
+**点评：媒体已经彻底失去了本质，变成利益集团的宣传工具。**
+
+新闻来源 **：**[thegatewaypundit.com] [The Associated Press Will No Longer Emphasize Covid Case Count to Help Joe Biden and the Democrats Going Into Midterm Elections](https://www.thegatewaypundit.com/2022/01/associated-press-will-no-longer-emphasize-covid-case-count-help-joe-biden-democrats-going-midterm-elections/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

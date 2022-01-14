@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/14/2022 1:07 PM (UTC)`
+
+2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；2017年帮中共游说川普遣返郭先生三人的近况；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在
+![img](https://media.gettr.com/group44/origin/2022/01/14/12/468e37b8-6048-25a5-8638-aeb2b9aefb51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 1/14/2022 3:12 AM (UTC)`
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1/12/2022 Miles Guo: The fundamental purpose for the CCP to implement the “zero-COVID” policy in Xi’an, Tianjin, and Zhengzhou is to lock the people up in their homes so that the CCP can tighten their grip on the Chinese people and legitimately kill them with the virus, and such practices will be implemented in the rest of Communist China as well. The CCP’s gathering people to do nucleic acid testing together has greatly increased the spread of the virus.<br/><br/>1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国；中共搞集中检测大大加剧了病毒的传播<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/13/00/7f7fe5a4-989d-4e30-b96b-c6aaf3c0ae5f/out.jpg)
-
----
-
-`@miles 1/12/2022 9:15 PM (UTC)`
-
-2022年1月12日 文贵大直播：伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况；疫苗灾难和新变种病毒的感染数据；
-![img](https://media.gettr.com/group30/origin/2022/01/12/21/3c8d7443-28a7-81ba-1095-a2edd621ccfa/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
