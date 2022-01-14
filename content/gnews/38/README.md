@@ -2,26 +2,33 @@
 ---
 
 
-## 【中日财经爆】中国信达宣布放弃入股蚂蚁金融
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858106/)
+## 伊维菌素是安全的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858118/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-21.jpg)[图片来源](https://www.rfa.org/mandarin/pinglun/heqinglian/hql-11242020143728.html)
-中共国四大资产管理公司之一的中国信达上月公布拟斥资60亿元人民币入股蚂蚁消费金融并成为第二大股东，但公司1月13日表示，经进一步商业上审慎考虑，拟不参与本次股权认购。
+翻译：Frank
+校对：Lish
 
-中国信达在周四晚间的公告并表示，股权认购协议不提呈股东大会审议；不参与股权认购不会对公司经营和财务状况产生重大不利影响。
+视频中的女士在自己的农场亲自服用伊维菌素，以告诉人们伊维菌素很安全。以下是全视频内容：
 
-据上月的公告，蚂蚁集团旗下重庆蚂蚁消费金融有限公司拟扩大注册资本将从80亿元增加至300亿元，其中中国信达拟出资60亿元认购其中20%股份权益，连同旗下南洋商业银行增资前持有的15%股权缩水至4.003%，最终中国信达将合计持有蚂蚁消费金融24.003%股份权益，仅次于蚂蚁集团。
+我在这里给山羊修眉，人们问我那个像这样的设备
 
-蚂蚁消费金融此次增资，还有另外三家新入局者，分别是光学产品龙头舜宇光学、网易旗下博冠科技，以及重庆市国企渝富资本将分别出资18亿元、13.2亿元和7.8亿元分别认购6%、4.4%及2.6%股份权益。
+我想给你看看我服用的量，我放了大概像你手指末端的量，我通常把它(伊维菌素)放在我的手指末端，但我现在在使用手机。
 
-消息来源:
+它的味道并不好。但它并不危险，人们也不会被送进医院。它已经被批准使用多年了。而且它还有其他药物属性，不仅仅是对新冠有效。对癌症等诸如此类的疾病也有效。嘿，你永远不知道你体内是否也有虫子，人们体内会有虫子。所以无论如何，没有危险。
 
-[中国信达放弃入股蚂蚁集团旗下消费金融公司 因“经进一步商业上审慎考虑”](https://cn.reuters.com/article/cinda-ant-statement-0114-fri-idCNKBS2JO014?il=0)
+Source： https://twitter.com/jesus\_porvida/status/1448679802509008897?s=21
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
