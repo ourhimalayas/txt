@@ -2,23 +2,23 @@
 ---
 
 
-## 中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853240/)
+## 加拿大魁北克省将对未接种疫苗者进行经济处罚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853242/)
 
-作者：疫情關注組
+作者：加拿大温哥华扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-流行病学家约翰-伊奥尼迪斯教授，过去曾发表过一份研究结果，研究指出2020年全球中共病毒的感染死亡率约为百分之0.15 。 在欧洲，感染死亡率约为百分之0.3到0.4，非洲和亚洲的数据则为百分之0.05  。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-36.jpg)
-同样在2020年，伊奥尼迪斯教授於政府施行大规模接种计划之前，又针对14个国家与地区的25项血清阳性率进行调查， 研究结果发现20岁以下的确诊者存活率为百分之99.9987，即便是老年人存活率也超过百分之95。
+《蒙特利尔公报》1月11 日报道，魁北克省长**勒戈**在新闻发布会指出，绝大多数魁北克人已经接种了疫苗，并正在接受加强针。但仍有大约10%的魁北克人拒绝接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-37.jpg)
+勒戈宣布，魁北克省在研擬相關实施细则，將會對未接种疫苗的成年人處以“健康费”的处罚。他表示，该处罚将是一个”相当大的数额” 。另外，這项政令只对有医疗原因，而不能接种疫苗的人士豁免。
 
-他对比两份研究得出的结论是，中共病毒的死亡率远低于先前报道的估计值。除了少数病例外，中共病毒在所有病例中都属于轻症。这项研究结果再次引发了人们对中共病毒疫苗接种必要性的质疑。
+据了解，至今没有一个权威部门能给出结论，证明疫情扩散是因为未接种疫苗的人所致，更无法证实这些人额外占用了医疗资源。
 
-参考链接：[中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑](https://www.infowars.com/posts/professor-covid-survival-rate-for-under-20s-is-99-9987/)
+参考链接：[加拿大魁北克省将对未接种疫苗者进行经济处罚](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：zhong
-编辑：zhong
+总编：Irene木木
+编辑：Jack Li文阳
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

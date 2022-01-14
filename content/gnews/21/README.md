@@ -2,28 +2,31 @@
 ---
 
 
-## 扬帆每日速递2012年1月13日版
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1857169/)
+## 七哥说“不要错误的理解大自然”（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1857274/)
 
-加拿大温哥华扬帆农场   海报组
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122-2.jpg)
-1、自今年7月1日起，香港警队将全面转用中式步操，各级人员日常也必须遵守敬礼等中式步操礼仪。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-2、中共国民航局一周取消142个回国航班，近一个月熔断航班量是2020年的50%。
+来源：郭先生2022-01-09直播10：30：35摘录
 
-3、美国国务院在周三发表的一份长达44页的报告中全面拒绝中共国对南中国海的主权要求。
+你到了昆仑山你会发现，哇塞，原来这个印度洋、大西洋、帕米尔高原俄罗斯、大陆、敦煌，哇塞，是这么回事！共产党原来还没进北京城就派兵来到昆仑山都来打探来了。蒋介石派国民党的部队多次进昆仑山，自己去查查去，自己去查去。兄弟姐妹们，我们千万不要迷信，啥叫迷信？就是你不要误解了大自然，那叫迷信，你错误了那叫迷信，不是共产党说的迷信。它不让你信，它只让你信它，信别人的全叫迷信，那叫迷信。我们告诉你不要错误地理解大自然，那就迷了，就迷了方向了。我们以正确的要什么？真信大自然，那叫信仰。对大自然密码的正确地 理解，对人出处的正确的解释和探索、对宇宙和地球和人类之间的起源和未来去向的探索，叫什么？它叫信仰。当你懂得这个意义的时候，你会对你身边一切事情看的简直是不能再low了。
 
-4、美国最高法院1月13日对总统乔·拜登（Joe Biden）之前对100名员工以上的企业和公司强制疫苗接种或核酸检测法案做出最终否决。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-5、据文贵大直播：8964，文贵先生被抓进清丰派出所，出来之后，立志拯救人类、拯救中国人，这是天意。中共国今年五十家银行都用七来作为新的发展，不是故意是天意，天意才有力量。
+**关注我们**
 
-6、泱泱中共国，不生产芯片，没有任何发明。把卫星发上天，卫星里面最核心的通讯、芯片、材料三部分都是美国，俄罗斯制造。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/海报简体版011322_page-0001.jpg)
-素材提供战友：从来多难不兴邦、Revelation熙攘、shuang、文敏
+Discord 账号
 
-编辑发布：文敏
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-海报图片设计：飞天面、 shuang
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

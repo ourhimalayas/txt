@@ -2,20 +2,41 @@
 ---
 
 
-## 特鲁多失常暴怒攻击未接种疫苗者
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1857192/)
+## 拜登本应通知OSHA收回疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857284/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 翻译：Annabelle
+校对：枳实
+剪辑/字幕：向上James
 
-据自媒体【真北方】1月11日报道，纽约州立大学学者当天公开抨击加拿大总理特鲁多发表的所谓“未接种‘新冠病毒’疫苗者为憎恨妇女的极端种族主义者”的疯狂人身攻击言论。
+**字幕摘要（英汉对照）**：
 
-该学者对特鲁多以上这种仇恨性的狂言表示：如同当年的纳粹，独裁者希特勒不仅基于宗教原因对德国的犹太人进行异类分化，还进一步将他们视为国家的公敌，以此挑起种族之间的暴力仇恨，并最终把集体屠杀犹太人的罪行国家化，合法化。而加拿大总理特鲁多目前正在实施着和当年希特勒几乎同样的极端主义政策，并蓄意以此制造加拿大的社会矛盾，煽动公众对未接种者的深仇大恨。
+I have to admit, Mike, I almost fell out of Santa sleigh when I heard that language,
 
-此外，英国[环球新闻]主持人奥利弗也对此称：特鲁多的精神失常言论不仅是国家级别的边缘犯罪，更是为其完全失败的疫情和疫苗政策推卸责任，并栽赃嫁祸于拒绝接种疫苗者的最佳途径。
+Mike 我得承认，当我听到那些话时，我几乎要从圣诞雪橇上掉下来了。
 
-* * *
+because President Biden should tell his own administration that he doesn’t think there’s a federal solution.
 
-编辑： 平民正道    发布：平民正道
+因为拜登政府本应该告诉他的政府，他不认为联邦政府有解决方案。
+
+The first thing he should do is tell OSHA to pull back its vaccine mandate where it’s claiming that it has the right to tell basically every employee in every factory in office in the country that they have to get a vaccine.
+
+他首先应该告诉’职业安全和健康管理局” 收回疫苗强制令， 它声称它有权要求，基本上这个国家每个职员，无论是工厂还是办公室都必须打疫苗。
+
+And then the second thing you do is drop a Supreme Court case his administration is going to the High Court next week to defend the vaccine mandate.
+
+第二件要做的事情是撤销高级法院的诉讼，拜登政府下星期要在最高法院出庭辩护强制疫苗政策。
+
+视频链接：[President Biden says there is no federal solution a year in as president ，he should tell OSHA to pull back its vaccine mandate](https://video.foxnews.com/v/6288945750001)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥说我就是那个遍访世界的中国人（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1857324/)
+## 美国会共和党人追责新冠溯源调查 点名制裁中科院
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857424/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-17.jpg)美国会共和党人追责新冠溯源调查 点名制裁中科院 网络图片
+据美国之音1月13日报道，美国参议院情报委员会副主席、共和党联邦参议员鲁比奥11日与15位共和党人联手推出《2022年新冠病毒法》，向中共国政府施压，要求有关单位配合国际社会追溯新冠病毒大流行病起源的调查。否则，法案将在生效90天后授权美国政府对中科院及其相关机构和有关人员，包括武汉病毒研究所进行制裁。
 
-来源：郭先生2022-01-09直播10：40：22摘录
+《新冠病毒法》还将暂停所有学术领域与中科院合作的联邦研究资金补助，并禁止联邦资助用于任何美国个人或机构在中共国的相关单位进行新冠病毒的功能增强研究。
 
-这样的系统是新中国联邦建立的叫生态系统。你不到过玛雅文化、你不到过柬埔寨，柬埔寨的佛窟、你不到过印度的佛陀所生之地、你不到过非洲的最自然的蛮荒之地、你没在瑞士住过、你没在大英国住、没在美国住过，你不可能有这个思路。就共产党的所有的统治人的这帮王八蛋、老杂毛们，他就是他连这都不知道，人家一个外国女孩在这生殖器上，吐点唾沫啥意思，因为他不硬，因为他没见过，他第一回，是吧？就经历过所有，你才会明白。七哥就是那个遍访世界的中国人，而且我不是穷逛，我不是瞎逛，我是有目的的逛。所以这老年人问题，今天回答你们了。这个你们真的必须给掌声，如果能脱的话就多脱点，好吧？
+新冠大流行已经两年，全球每一个国家遭受重创，每一个人都在隔离和封锁状态中。但是迄今为止，新冠病毒的起源仍然没有获得共识。尽管每一个人都知道新冠病毒来自中共国武汉病毒实验室，但是全球媒体对此讳莫如深，相反却拼命消灭媒体上所有的质疑。各国政府也是步调一致，避口不谈病毒，就是疯狂推行强制疫苗。毒疫苗解决不了全球大流行，只有消灭病毒的制造者—中共，溯源病毒，才能解决病毒问题。美国要行动！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻参考链接：[https://www.voachinese.com/a/us-gop-senators-introduce-covid-act-to-sanction-china-20220113/6394903.html](https://www.voachinese.com/a/us-gop-senators-introduce-covid-act-to-sanction-china-20220113/6394903.html)
 
-**关注我们**
+* * *
 
-Discord 账号
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

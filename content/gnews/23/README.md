@@ -2,40 +2,45 @@
 ---
 
 
-## 北京对运动员“闭环” 并无视奥组委呼吁升起参赛国国旗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857145/)
+## 介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1857256/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-15.png)[*图片新闻*](https://news.utexas.edu/2021/12/14/diplomatic-boycotts-of-the-genocide-olympics-are-not-enough/)
-**北京冬奥会无视国际社会抵制，即将召开的2022冬奥会将注定会与1936年纳粹奥运会同样臭名昭著。更为严重的是，正在东道国新一轮爆发中的中共病毒（COVID-19）将可能会再次引爆陷入深度生物灾难的世界疫情大流行，随着疫苗灾难和病毒肆虐双重打击下，中共依旧施压台湾局势。可见，北京将是一枚不可控的炸弹。**
+2022-01-13
 
-据《[朝日新闻](https://www.asahi.com/articles/ASQ1C5TFNQ12UHBI00K.html)》13日消息称，日本朝日新闻记者去年12月24日赶在北京气象记录中最冷的冬天，前往北京“奥运村” 。北京冬奥会将于2月4日开幕，将有三个场馆。“奥运村将在奥运会期间接待来自54个国家和地区的1670名运动员和官员。”
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1021-edited.png)图片来源：《国家先驱报》， 2022 年 1 月 12 日本文朗读版视频，作者16626
+**新中国联邦（国）得到美国的间接承认**
 
-消息称，北京奥运会主会场“鸟巢”将被用作本次比赛的开幕式和闭幕式的场地。记者称，“在中国，有很多酒店的水很脏，但是这栋住宿楼的墙壁和地板上的瓷砖像镜子一样闪闪发光。带我们参观的组委会成员惠晓斐女士说，“由于床是电动的，所以可以根据运动员的身体进行调整，可以舒服地度过。”
+国家先驱报（2022 年 1 月 12日）针对塞浦路斯当局应国际刑警组织的红色通缉令的要求逮捕并准备引渡两名涉嫌欺诈罪的中国人的事件发表题为《介于北京与华盛顿之间的塞浦路斯––中国要求引渡两名受美国支持的（中国异议）活动人士》的评论文章指出：“（塞浦路斯）处理中国要求引渡两名受美国支持的（中国异议）活动人士的事件……变得复杂化。这两名被拘留者是新中国联邦（国）的成员和政治活动家。”
 
-- ***延展阅读：***[***国际奥委会主要赞助商在北京冬奥会前夕大多保持沉默***](https://www.asahi.com/ajw/articles/14519590)
+该篇评论文章还指出，这两名做为新中国联邦（国）成员的政治活动家所从事的政治活动是由郭文贵和史蒂夫·班农（Steve Bannon）发起的，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。
+
+新中国联邦（国）或称为中国的“流亡政府”于2020年6月4日在纽约市成立，并得到美国的间接承认。
+
+另外该篇评论文章还提到法治基金（[Rule of Law Foundation](https://rolfoundation.org/en/)）。法治基金于 1 月 5 日上周三发出信函给塞浦路斯司法和公共秩序部，同时也发送给内政部。法治基金是一个同样位于美国（纽约）的激进组织，旨在为中华人民共和国的人权提供保护服务。作为其活动的一部分，它对中国执政党（CCP）的成员采取了合法的法律行动。
+
+法治基金（ROL）发出的信函中指出，被捕的女子自 2020 年 4 月以来一直是法治基金的成员和支持者。
+
+**塞浦路斯当局正面临两难境地**
+
+塞浦路斯当局正面临两难境地。一方面是塞浦路斯与友好的中国达成了协议。另一方面是塞浦路斯必须面对这些在美国的保护下运作有组织的团体（新中国联邦和法治基金）。这些有组织的团体（新中国联邦和法治基金）呼吁停止政治迫害，并关注人权问题。
+
+塞浦路斯共和国过去在处理俄罗斯联邦提出的引渡该国公民的请求中也曾处于相同的两难困境。这是由于担心这些外国国民（俄罗斯联邦提出引渡的公民）在被引渡后将面临的后果。
+
+**其它美国机构的官方声明与法治基金信函**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1023.png)图片来源：《KNEWS报》， 2022 年 1 月 12 日
+KNEWS报（2022 年 1 月 12日）针对塞浦路斯当局逮捕并准备引渡两名涉嫌欺诈罪的中国人的事件也发表题为《塞浦路斯的引渡案变得政治化，美国的支持给来自中国的母子两人的引渡问题增加了新的变数》的评论文章指出，中共国对两名涉嫌欺诈罪的中国人的逮捕令是出于政治动机。中共国有虚假指控海外华人的可查证的记录，这些虚假指控旨在镇压反对中国共产党的行动。
+
+该篇评论文章还指出**，**该组织在法治基金发出的信函中还附带有其它美国机构的官方声明，这些美国机构的官方声明称他们也支持法治基金发出的信函的观点。
+
+**参考资料及图片来源**：
+
+1. 国家先驱报，Εθνικός Κήρυξ，2022 年 1 月 12，ΚΟΙΝΩΝΙΑ，Η Κύπρος μεταξύ Πεκίνου – Ουάσιγκτον – Αίτημα έκδοσης από Κίνα για δύο ακτιβιστές που στηρίζουν οι ΗΠΑ， [https://www.ekirikas.com/i-kypros-metaxy-pekinou-ouasigkton/](https://www.ekirikas.com/i-kypros-metaxy-pekinou-ouasigkton/)
+2. KNEWS，Newsroom，2022 年 1 月 12，Extradition case in Cyprus gets political，Mother and son from China face extradition as American support is thrown into the equation，[https://knews.kathimerini.com.cy/en/news/extradition-case-in-cyprus-gets-political](https://knews.kathimerini.com.cy/en/news/extradition-case-in-cyprus-gets-political)
 
 
-记者还注意到，奥运村“五颜六色的国旗在场地上一字排开飘扬。就好像你在说你准备好了。然而，与奥组委首次呼吁的事实相反，受到了全世界的严密关注。” 记者欲言又止。
-
-该消息透露奥运村升起参赛国国旗违反国际奥委会规定，因为2021年[12 月 6 日，美国率先宣布进行外交抵制，白宫新闻秘书 Jen Psaki 表示，这一决定是为了抗议“中国在新疆严重侵犯人权和暴行](https://www.espn.com/olympics/story/_/id/32831100/what-exactly-diplomatic-boycott-beijing-olympics)”。
-
-因美国对中共国奥运发起[外交抵制](https://www.espn.com/olympics/story/_/id/32805013/us-plans-diplomatic-boycott-beijing-winter-olympics)后，大多数欧美民主国家纷纷响应，既然外交抵制北京冬奥会的国家有运动员团体和机构以非官方身份参与北京的比赛， “[所有抵制的人都必须被剥夺他们的国徽，包括国旗、国歌和其他东西](https://tass.com/sport/1382003)。” 这包括运动员不能披带任何代表自己国家象征的标志。
-
-中共制定的运动员《[手册](https://olympics.com/ioc/beijing-2022-playbooks)》要求。“[运动员在抵达北京前至少 14 天进行全面接种。（该规定要求运动员在抵达北京后需要隔离 21 天。）](https://www.thecut.com/2022/01/2022-winter-olympics-explainer.html)”甚至包括美国在内的一些国家已经强制要求参赛运动员和工作人员接种疫苗。国际奥委会虽不要求运动员接受“加强针剂”，但他们“强烈建议”这样做。并且运动员与 2020 年东京奥运会一样，“无论他们的疫苗接种状态如何，在整个奥运会期间，所有运动员都将每天接受 COVID-19 检测。运动员将被要求始终佩戴口罩，比赛时除外。” 获奖者将被允许在领奖台上摘下口罩拍照。
-
-- ***延展阅读：***[***奥运会历史上的政治与抗议***](https://www.cfr.org/timeline/olympics-boycott-protest-politics-history)
-
-
-然而，2022冬奥会最严格的措施之一就是，北京为运动员设计了“[闭环](https://stillmed.olympics.com/media/Documents/Olympic-Games/Beijing-2022/Playbooks/The-Playbook-Athletes-and-Team-Officials-December-2021.pdf#_ga=2.41787104.353492826.1642056532-1785340552.1642056532)”系统，该系统要求“你在奥运会期间的角色是进入这个闭环系统的中国。即未经强制隔离 21 天的前提是您已完全接种疫苗。如果您没有完全接种疫苗，则需要进入专用设施隔离 21 天在闭环内，所有运动员和参与者将接受日常健康监测和测试，并只被允许通过奥运专车在目的地之间移动（比赛场地、住宿设施等）这是为了确保你不与外界的任何人联系。这就是“闭环”。闭环系统将确保你在此期间整个人留在中国。”
-
-对于即将举办的北京冬奥会的一个事实是，[习近平不仅要为](https://news.utexas.edu/2021/12/14/diplomatic-boycotts-of-the-genocide-olympics-are-not-enough/)“[维吾尔人的种族灭绝](https://www.voachinese.com/a/us-cecc-annual-report-20210114/5738438.html)”负责，还要为“早期关于冠状病毒的谎言、香港的镇压、基督教会的迫害，以及最近网球明星[彭帅](https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai)的失踪”负责。冬奥会的召开给习近平的信息应该是，“一个犯下大规模暴行的国家将被人类社会视为胜利主义奥运会”。
-
-2022年1月13日
-
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
