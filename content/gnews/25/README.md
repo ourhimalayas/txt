@@ -2,31 +2,47 @@
 ---
 
 
-## 七哥说感恩上天给我们的一切（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1856906/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-来源：郭先生2022-01-09直播10：22：04摘录
+**字幕文本（英汉对照）**
 
-你查查我出生那个山叫什么山，大家去看一下，你们真不知道这个山有多大的秘密。为什么地球撞裂完以后有那么多山？有这么的不一样？我上过那个山，我爹我娘我家人都不知道我上过那山，我上那山我真是，我两三天跑回来以后，我爹我娘以为我没了呢。我上了那个山大概没到最顶，上半部，那个山之险峻，山之美丽，是我出生的地方。我就想知道当年我娘把我生这个山上啥感觉。我很小我就爬上了山顶，没到最山顶啊，我实际上是很难爬上山顶，我能活着回来我今天是个奇迹。那个山到今天都是原始森林，高高的山，就在一个就是小的一部分那个丘陵，“咵”就立出这一个山出来。后来我到了墨西哥看墨西哥山的时候，我惊讶万分地我觉得我悟出了一个道理，我要好好的研究这个地球的来源，我当时我连冰河世纪都不知道。后来看中国的《山海经》看中国的《三新通论》、《三玄论》等、《奇门遁甲》、还有《读心术》这些书啊，最后我发现，哇噻，原来共产党说的都是王八蛋假话啊。我越来越发现共产党让我们知道的都是不应该知道的，不让我们知道的我们必须要知道，这就是我和所有人不一样的我的快乐的地方。每当我悟出学术的东西的时候，我都是感激感恩戴德上天给我们的一切。在这呢，加大加大加大，看看啊，七哥出生的地方，从来没在电脑上看过，一次都没有过。这叫山河村吧？是叫山河村吧墨镜？山河村的一个大山，你给立体一下子，三维一下子，拉个角度。哇塞，山河村现在地这么多了，哎呦，我从来没看过山河的谷歌地图。看一看山河村的立体下的这个地图，最高的山脉叫山河村，看到没有？就那个村儿下面，我就在这儿出生的，我不是赵家沟出生的，我是在这儿出生的。看到这个山河村，我家我的四哥五哥六哥、我和我八弟都在这儿出生的。就是你点红点那块儿那个山脉啊，那个山老高了，老高了啊老高了，非常非常高！能立体化看一下这个山啊，就是这个地方非常之高啊这个山，非常的漂亮啊！到现在就是属于原始森林的级别，原始森林的级别。对啦对啦对啦，你看这个，就是下面这个地方最高，应该是下边这个地方吧，上边上边，就你点红的地方，就点红的地方。对了，对了。你看这个山这有多高，你看那个尖儿，哇塞很高啊。它这个地方绝大多数还是原始森林，原始森林，就是人类还没有走上去过呢，我就是在这儿出生的啊，你们可以好好研究研究啊，我就在这儿出生的。直到我遇到了就是我小时候的第一个算命大师，我还真第一次时候给我爹我娘也没说过，他说：“你知道你这个家伙从哪出生的吗？”我说：“我知道在山河出生的。” “山河有什么山你知道吗？” 我说：“我知道山河就有山河山。” “山河山有啥你知道吗？” 我说：“那不知道了。”给我讲述了山河这个地方。哇塞，这个是确实，你看这个山啊，你看这个陡立，你看这个陡立的状态，你看看啊，你看这个。对啦对啦就这个山，对啦，对了，你看看你看看，你看看，不是，不是这个，不是这个，这个地没有开发到那，连那个脚还没到，不是这个山，不是这个。山河一个大山就是它基本上这个地都没开发上去，开发不上去的，很高很高，是当地海拔最高之一啊。不是这个啊墨镜，不是啊。所以说兄弟姐妹们，当你看这个的时候，你看那个法轮功的李洪志先生，你们一定要相信，他是吉林出生的，跟我一个地方的，他是四平人，他小的时候，他出生的地方，他那这绝对是不一样的，他不是一般人，他绝对不是一般人，所以共产党也害怕他。然后你去孙中山出生的地方，一定不一样。所以我不相信，说人生来平等啊，人生到世上是应该平等，但绝对生来的绝对不一样，就像我们身体里每个基因和细胞它有出处的。鼻子上的基因它是干啥的？眼睛基因是干啥？耳朵基因干啥的？它绝对是非常之重要的。
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-**关注我们**
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-Discord 账号
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
 
-Gettr 账号
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

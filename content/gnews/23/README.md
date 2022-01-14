@@ -2,47 +2,59 @@
 ---
 
 
-## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
+## 最高法院中止了拜登的美国企业疫苗强制令
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1857029/)
 
-#### 翻译：Frank
-校对：枳实
-剪辑/字幕：小强
+![](https://assets.gnews.org/wp-content/uploads/2022/01/H-3.jpg)terror-alert.com
+经过一周的权衡、博弈，对拜登非法的、为阴谋集团助力的疫苗强制令，最高法院终于在今天下午（11月13日）作出了难产的判决，判决结果不是笔者期待的那样，将拜登的两项命令都予以中止，而是进行了分离的判决，中止了OSHA的强制令，“放任”了HHS的强制令。
 
-**字幕文本（英汉对照）**
+《美联社》（Associated Press）的全文如下：
 
-Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
+最高法院阻止了拜登政府为提高全美中共（新冠）病毒疫苗接种率而进行的一项重大推动，即强制要求大型企业的员工定期接种疫苗或进行测试，并在工作中戴上口罩。
 
-随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
+与此同时，法院允许政府对美国大多数医疗工作者进行疫苗强制令。
 
-And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
+周四（1月13日），在奥米克戎变体引起的中共病毒病例激增期间，法院颁布了此令。
 
-现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+法院的保守派多数认为，政府试图将“职业安全与健康管理局”（OSHA，the Occupational Safety and Health Administration）的疫苗或检测规定强加给超过100名雇员的美国企业，从而超越了其权限，8000多万人将受到影响。
 
-And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+保守人士在一份未签署的意见书中写道：“美国‘职业安全与健康管理局’以前从未强制执行过这样的命令，国会也没有。事实上，尽管国会已经颁布了应对中共病毒疫情的重要立法，但它拒绝颁布任何类似于‘美国职业安全与健康管理局’在这里颁布的措施。”
 
-所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
+在争议中，法院的三位自由派人士辩称，法院以其判决取代卫生专家的判决，这是一种过度行为。大法官斯蒂芬·布雷耶（Stephen Breyer）、埃琳娜·卡根（Elena Kagan）和索尼娅·索托马约尔（Sonia Sotomayor）在一份联合异议书中写道：“法院在其职权范围之外，在没有法律依据的情况下，推翻了负责应对工作场所健康紧急情况的政府官员的判决。”
 
-and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
+在制定OSHA规则时，白宫官员一直预料此举会受到法律挑战——私下里有些人怀疑它是否能够承受这些挑战。尽管如此，政府仍然认为这项规定成功地推动了数百万人接种疫苗，私营企业也满足了自己的要求，而这些要求不受法律挑战的影响。
 
-我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+这两条规则都遭到了共和党领导州的挑战，此外，商业团体抨击OSHA紧急条例增加了企业成本，可能导致在已经很难找到新员工情况下雇员的离职。
 
-i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+最高法院以5票对4票勉强通过了对医疗工作者的疫苗强制令，首席大法官约翰·罗伯茨（John Roberts）和布雷特·卡瓦诺（Brett Kavanaugh）加入自由派形成了多数，该强制令几乎涵盖了国家所有的医疗工作者，适用于接受联邦医疗保险或医疗补助资金的提供者，它可能影响7.6万家医疗机构以及家庭医疗服务提供者，这项规定有医疗和宗教豁免。
 
-这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+“全球疫情带来的挑战不允许联邦机构行使国会没有授予它的权力，与此同时，这种史无前例的情况并没有提供任何理由限制该机构长期以来被承认拥有的权力的行使。”法院在一份未签署的意见书中写道，并表示“后一原则适用于”医疗情况。
 
-Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+法官克拉伦斯·托马斯（Clarence Thomas）在异议书中写道，本案涉及的是政府是否有权“通过强迫其雇主，迫使医护人员接受他们不想要也无法撤销的医疗程序”。他说，政府没有令人信服地表明国会授予了它这一权力。
 
-你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+法官塞缪尔·阿利托（Samuel Alito）、尼尔·戈尔苏（Neil Gorsuch）和艾米·科尼·巴雷特（Amy Coney Barrett）签署了托马斯（Thomas）的意见，阿利托单独写了一份异议，其他三名保守派也加入了。
 
-发布：枳实
+新奥尔良和圣路易斯联邦上诉法院的判决在大约一半的州阻止了这项强制令，政府已经采取措施在其他地方强制执行。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据联邦疾病控制和预防中心的数据，超过2.08亿美国人（占总人口的62.7%）已经作了全面接种，其中超过三分之一的人已经接种了加强剂，所有九名法官都接种了加强剂。
+
+大法官们上周听取了关于这些挑战的辩论，他们的问题随后暗示了他们周四（1月13日）作出的分歧裁决。
+
+独立的对联邦承包商的疫苗强制令在下级法院阻止后被搁置，最高法院尚未考虑。
+
+（全文完）
+
+中止“职业安全与健康管理局”（OSHA）强制令获得通过是6:3的对决结果，也许有弃权的人，文中没有描述。但“卫生与公众服务部”（HHS）强制令没有被中止，是因为有两个人加入了自由派，形成了勉强的4:5多数。从中看出了美国的分裂，曾经令人崇敬的大法官竟然堕落到如此地步，当然，不是所有不赞成拜登强制令的大法官都是堕落分子，至少他们的认知出现了问题，这就是美国的现状。
+
+美国人应该庆幸有了文贵先生，有了新中国联邦。
+
+原文链接：
+
+[https://apnews.com/article/supreme-court-vaccine-mandate-eb5899ae1fe5b62b6f4d51f54a3cd375](https://apnews.com/article/supreme-court-vaccine-mandate-eb5899ae1fe5b62b6f4d51f54a3cd375)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 
