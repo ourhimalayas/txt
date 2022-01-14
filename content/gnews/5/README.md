@@ -2,37 +2,43 @@
 ---
 
 
-## 1/14银河快讯：岸田首相计划缩短第三剂疫苗接种时间；台积电今年将在熊本建新厂
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1859518/)
+## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-88.png)[图片来源](https://www.orangenews.hk/)
-**1****.****日本新增病例超过1****8000****例，比****前****日增5****000****多**
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
+**作者提示：不要相信我说的，你自己去核实。
+**
 
-[据TBS新闻报道，JNN的数据汇总显示，日本全国13日新增确诊中共病毒（新冠病毒COVID-19）病例18860例。与前一天（13251例）相比，增加了5,000多例。这是自去年9月2日（18,213例）以来，约四个月内单日新感染人数首次超过18000例。东京新增3124例，大阪府新增2452例；其他11个县，包括广岛（805例）、滋贺（287例）和新泻（220例），也报告了创纪录的病例数。](https://news.yahoo.co.jp/articles/a3a0f46bf83257e0fe86a3bd639618e8c085b440)
+**郭文贵先生 Mr. Miles Guo**
 
-**2****.****岸田首相****计划缩短****5500万人第三****剂****疫苗接种****时间**
+1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
+2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
+3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
+4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
+[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
+5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
+6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
 
-[TBS新闻1月13日报道，首相在接受news23的独家采访时称：“从3月开始，因我们已确保获得摩德纳的1800万剂额外疫苗， 我们将提前开始5500万人的第三剂接种。在地方政府的帮助下，我们将尽力（第二剂与第三剂的间隔）缩短到6个月。” 对于一般的老年人，岸田说将“尽一切努力使这一期限达到6个月”，比目前的7个月提前一个月。](https://news.yahoo.co.jp/articles/faa9bef18ffef883a3889bb90dcb34503910f23e)
 
-**3****.****台积电今年将在熊本建新厂**
+**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
 
-[据NHK 1月13日报道，根据台积电的公告，台积电今年的资本投资将在400亿至440亿美元之间，远远超过去年300亿美元的最高纪录。为了满足全球对半导体日益增长的需求，台积电正在台北、亚利桑那州、南京和熊本县扩建和建设新工厂。熊本新工厂将在明年年底前准备好并投入生产。](https://www3.nhk.or.jp/news/html/20220113/k10013429391000.html?utm_int=news-business_contents_news-main_001)
+[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
 
-**4****.****东京病床使用率达2****0****%实施“重点措施”，达5****0****%递交“紧急事态宣言”**
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
 
-[据NHK 1月13日报道，截至12日，东京的医院床位使用率为13.7%。当床位使用率达到20%时，东京都政府将考虑提出采取“防止蔓延重点措施”；当达到50%时，将申请“紧急事态宣言”。东京都政府正在与埼玉县、千叶县和神奈川县合作，考虑采取有效措施。](https://www3.nhk.or.jp/news/html/20220113/k10013428481000.html?utm_int=news-new_contents_list-items_029)
+[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
 
-**5****.****驻日美军可能****是导致疫情****传播****的一因**
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
 
-[据路透社报道，外交部长林芳正1月13日下午的新闻发布会上说，不能排除驻日美军向邻近地区传播是中共病毒（新冠病毒Covid-19）在冲绳和日本其他地区流行的一因。他重申，他没有考虑审查《部队地位协定》，但强调他将与美方就防止病毒传播进行密切磋商。](https://news.yahoo.co.jp/articles/f873a9751f1ee37e06e94d7b8abf953322057bfd)
+* * *
 
-**6****.****迅****销****公司报告截至11月的季度利润创****公司****纪录**
+*编辑：文合*
 
-[据NHK 13日报道，截至去年11月的三个月里，经营优衣库品牌的迅销公司的业绩显示销售额为6273亿日元，比上年同期增长1.2%。该公司的最终利润为935亿日元，比前一年高出33%，是这一时期的最高值，超过了疫情之前。日本国内销售与前一年相比有所下降，但中国和欧美经济活动的正常化弥补了收益的差异。](https://www3.nhk.or.jp/news/html/20220113/k10013429531000.html)
+*封面：霹雳鼠年*
 
-【日本银河系农场-阿尔法星球】
-作者：帆間知津
-校对：Tagomi
+*发布：吐纳*
 
  
 

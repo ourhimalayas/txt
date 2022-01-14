@@ -2,35 +2,25 @@
 ---
 
 
-## 英国军情五处挖出一中共代理人正在秘密干涉英国政治
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1859448/)
+## 欧洲官方警告加强针将导致免疫疾病
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859560/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1085.png)[图片来源](https://www.coventrytelegraph.net/news/uk-world-news/mi5-mi6-recruiting-heres-how-16214748)
-英国情报机构军情五处(MI5)警告说，伦敦的华裔律师李贞驹(Christine Lee)正试图代表中国共产党“秘密干涉英国政治”。在2019年，她因帮助中英合作而受到时任英国首相特蕾莎·梅(Theresa May)的亲自嘉奖和祝贺，也一度是卡梅伦(David Cameron)首相的座上宾。
+采编：UCool优酷       编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-4.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=a3HpLIYT&amp;id=392DC565E6B985C9021CB6A99256DE95CFB48FC5&amp;thid=OIF.I%2bvbkS3zg%2fiHhv8qSCi5wQ&amp;mediaurl=https%3a%2f%2fexternal-preview.redd.it%2fIe-B2JitJvf_RZLw9qmsNavD0N4aV3UqtYkj6OwrFkg.jpg%3fauto%3dwebp%26s%3dc43a398ed5dae1d067a38bac8ccbf7a6ed5bcd03&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6b71e92c86137549d3159b15ed38dc20%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=600&amp;expw=1200&amp;q=Europe%e2%80%99s+drug+regulator+warns+excessive+COVID+boosters+could+lead+to+%e2%80%98problems+with+immune+response%2c%e2%80%99+joining+WHO+in+pushback&amp;simid=232226001213&amp;FORM=IRPRST&amp;ck=23EBDB912DF383F88786FF2A4828B9C1&amp;selectedIndex=0&amp;ajaxhist=0&amp;ajaxserp=0)
 
-英国下议院议长霍伊尔(Lindsay Hoyle)周四（1月13日）向议员们发出了军情五处的警告，指称李贞驹与中共统战部采取协调行动。统战部是一个众所周知在海外施加中共国的影响力的组织。
+据美国媒体《财富》1月12日报道，[欧洲药品管理局]疫苗战略负责人当天表示，没有相关数据用以支持“需要接种第四剂新冠病毒疫苗”的论点。并警告“过于频繁的加强针将导致接种者严重的免疫缺陷”。
 
-军情五处说，李贞驹“代表外国公民”为英国政党和议员的捐款“提供了方便”。英国议会成员必须申报他们所获捐款的来源，捐款必须来自在英国注册的选民或实体。
+据悉，[世界卫生组织]当天也发布了类似警告，并敦促疫苗制造商提供其针对新型变种病毒的疫苗数据。尽管如此，以色列目前已开始为60岁以上人群、卫生工作者及免疫力低下群体接种第四剂加强疫苗。
 
-据英国《卫报》报道，英国选举委员会的记录显示，李贞驹的律师行向中间偏左的在野党工党(Labour Party)议员巴里·加德纳(Barry Gardiner)的办公室提供了584,177万英镑的捐款。李在近10年前也向自由民主党捐过款。
+报道称，欧洲多国领导人和医学专家甚至包括比尔-盖茨等，都在毫无医学证据的情况下猜测认为：“奥密克戎”以及疫苗接种可能带来一定的群体免疫力，而使人们可以像对待季节性流感一样来防治“新冠病毒”感染。
 
-加德纳说，他并没有从与李的交往中获得经济上的好处，直到周四他才知道李一直试图“暗示和影响”英国政治。李的儿子在他的办公室里担任日记管理员，但已于周四辞职。他说，英国情报机构认为，儿子不知道“他母亲的非法活动”。
+校对编辑：硫酸羟氯喹64
 
-英国内政大臣帕特尔(Priti Patel)说，李的活动没有达到“犯罪门槛”，但仍然令人担忧。英国政府“正在努力研究我们可以采取哪些措施来加强我们的法律和立法，以有效地提起我们目前无法提起的那种起诉。”
+发稿： 苦尽甜来 (文來）
 
-**李贞驹的背景**
+[原文链接](https://fortune.com/2022/01/12/ema-who-covid-fourth-boosters-pfizer-flu-endemic/)
 
-李贞驹的公司“李贞驹律师行”(Christine Lee & Co.)是第一家，也是唯一一家受中共国司法部认证授权并允许在中共国从业的英国华人律师事务所。
-
-李贞驹2017年12月6日在推特上贴出了她被聘为北京市为侨服务法律顾问的荣誉证书以及参加北京市“侨法宣传月”活动启动仪式的照片。
-
-2019年，官方的中新社专门报道了作为海外侨胞代表参加共产党建立政权70周年活动的这位英国华人律师。这篇报道说，李贞驹一直积极推动华人参政，并在2006年创办“英国华人参政计划”。该项目获得了首相办公室颁发的表彰杰出个人志愿者的“光点奖”。英国政府的网站说，这个奖目前已经被撤销。
-
-消息来源： [英军情五处：一位华裔律师试图代表中共“干涉英国政治”](https://www.voachinese.com/a/UK-mi5-china-20220113/6395926.html)
-
-校对：东京樱花团/知了知了*发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,33 @@
 ---
 
 
-## 英国一组织发布中共病毒疫苗致命性研究报告清单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
+## 澳大利亚第二次撤销德约科维奇的签证
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858629/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-27.jpg)图片来源：milehighgears
+1月14日，BBC报道澳大利亚移民部长行使了自由裁量权（personal power of cancellation），再次取消了诺瓦克·德约科维奇（Novak Djokovic）的签证。
 
-目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
+根据以往的报道，事件的起因是德约科维奇虽然因为曾经感染过新冠病毒而获得了新冠疫苗豁免权，但是澳大利亚边防部（Australian Border Force）认为德约科维奇未能提供合适的证据以符合澳大利亚的入境要求，甚至要取消他的签证。
 
-该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
+1月10日，根据《澳洲新闻网》和《天空新闻台》的报道，联邦巡回法庭和家庭法庭已经撤销了对德约科维奇取消签证的决定，意味着他将参加澳大利亚公开赛。
 
-参考链接：
+但是，1月14日，周五晚上，在墨尔本，澳大利亚移民部长亚历克斯·霍克（Alex Hawke）根据《移民法》的个人权力取消了德约科维奇的签证，他在一份声明中说：“今天我行使了我的权力……以健康和良好秩序为由取消了诺瓦克·德约科维奇先生持有的签证，理由是这样做符合公众利益”。
 
-- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
+报道说，这意味着德约科维奇可能面临三年内不得获得新的澳大利亚签证的禁令。同时，移民部长霍克的决定也意味着德约科维奇现在就面临被驱逐出境。而这位男子网球头号选手原定参加下周一（17号）开始的澳大利亚公开赛
 
+当然，这位34岁的塞尔维亚人仍然可以发起另一项法律挑战，以继续留在澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+根据报道，此前，德约科维奇回应了关于他在旅行表上做了虚假申报的指责，该指责称他在抵达澳大利亚之前的14天内没有旅行，而事实上他曾去过西班牙。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+他说这个错误是由他的经纪人犯下的，称其为“人为错误”，并补充说这是“非故意的”。他还承认，在对中共病毒（Covid-19）检测呈阳性后，他会见了一名记者并进行了拍照。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**
+
+[Novak Djokovic: Australia cancels tennis star’s visa](https://www.bbc.co.uk/news/world-australia-59991762)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
