@@ -2,30 +2,41 @@
 ---
 
 
-## 三亚市委原书记童道驰一审被控受贿2.74亿余元
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858318/)
+## 有声|摩西的启示——撂挑子，再担起来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1858366/)
 
-整理：Eileen（围剿维尼熊）
-编辑：李易通
-
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+配音：香草山福音部 – Daxia
 
 
-2022年1月13日，广东省深圳市中级人民法院一审公开开庭审理了中共海南省委原常委、三亚市委原书记童道驰受贿、内幕交易一案。
 
-2004年至2020年，被告人童道驰利用职务便利以及职权，为他人在公司上市、企业经营、融资借款、职级晋升等事项上提供帮助，非法收受他人财物共计折合人民币2.74亿余元。2006年至2007年，童道驰在担任中国证监会发行监管部副主任期间，还将获悉的股票内幕信息告知其亲友，由其亲友在内幕信息敏感期内交易相关股票，情节特别严重。检察机关提请以受贿罪、内幕交易罪追究童道驰的刑事责任。
 
-参考链接：[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_9451242037732501516%22%7D&n\_type=-1&p\_from=-1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9451242037732501516%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-发布：tianzhihuan
+圣经处处都是真实的人性。不管多么伟大的史诗般的人物，既有荣耀神的光芒，也有软弱和不自信，甚至背离神。都是在神的帮助下才能持守住，得成就。出埃及记中的摩西也是这样。摩西被神召唤的时候，已经80岁，是个耄耋老人了，他常说自己口笨拙舌。神让他带着百万以色列人出埃及*（编者按：圣经[《出埃及记》](https://wd.bible/exo.12.37.cunps)*[*12:37*](https://wd.bible/exo.12.37.cunps)*记载，步行男人约60万，推测总数应有二百万左右）*，谁能自信得起来呢！
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+**文字版原文：[摩西的启示——撂挑子，再担起来](https://gnews.org/zh-hans/1850157/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

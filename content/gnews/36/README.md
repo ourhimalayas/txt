@@ -2,29 +2,32 @@
 ---
 
 
-## 中泛控股1.65亿美元债务违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858068/)
+## 伊维菌素是安全的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858118/)
 
-整理：Eileen（围剿维尼熊）
-编辑：李易通
+翻译：Frank
+校对：Lish
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+视频中的女士在自己的农场亲自服用伊维菌素，以告诉人们伊维菌素很安全。以下是全视频内容：
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+我在这里给山羊修眉，人们问我那个像这样的设备
 
+我想给你看看我服用的量，我放了大概像你手指末端的量，我通常把它(伊维菌素)放在我的手指末端，但我现在在使用手机。
 
-泛海控股境外附属公司中泛控股公告称，收到初步贷款人发出的违约通知副本。违约通知阐明，借款人未能于2022年1月到期前支付贷款的应计利息及服务费用128.03万美元，从而导致融资协议项下的违约事件，而有关逾期付款于3个营业日的期间仍持续未获解决。根据融资协议，贷款的行政代理人有权加速融资协议项下的所有本金以及应计及未付利息的还款。违约通知阐明，行政代理人现在行使加速权及要求立即悉数偿还融资协议项下到期的所有款项，金额为1.65亿美元及应计利息、法律费用及其他费用（欠款）。中泛控股表示，公司目前正就付款违约寻求法律意见，以期透过适当方式应对相关事宜。此外，公司亦不断努力获取资金以偿还欠款。
+它的味道并不好。但它并不危险，人们也不会被送进医院。它已经被批准使用多年了。而且它还有其他药物属性，不仅仅是对新冠有效。对癌症等诸如此类的疾病也有效。嘿，你永远不知道你体内是否也有虫子，人们体内会有虫子。所以无论如何，没有危险。
 
-参考链接：[https://www.163.com/dy/article/GTJ2ISO405199NPP.html](https://www.163.com/dy/article/GTJ2ISO405199NPP.html)
+Source： https://twitter.com/jesus\_porvida/status/1448679802509008897?s=21
 
-发布：tianzhihuan
+发布：Lish
 
-**更多资讯，请关注：
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
