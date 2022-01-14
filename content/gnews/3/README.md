@@ -2,37 +2,36 @@
 ---
 
 
-## 飞行员挺身作证：被迫接种新冠疫苗后出现心脏问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858491/)
+## 突然炸雷！200亿市值“国际医学”直接被ST
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858509/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译: 美哥
-编辑：美哥/小红帽
+整理报道：BENJ1
+编辑：Kelly
 
 - ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
-据《信息战》1月13号报道，美国航空公司机长格雷格·皮尔森（Greg Pearson）回忆说，在他接受工作强制要求的新冠疫苗注射后，患上了心房颤动方面的疾病。
+A股上市公司又炸了一雷。
 
-上个月皮尔森在新闻发布会上提供了他的证词，称其在雇主的压力下决定接受注射新冠疫苗。
+1月13日晚间，国际医学（000516，SZ）发布公告称，股票自1月17日起被实施其他风险警示。
 
-“由于我需要在居住的夏威夷州和加利福尼亚州故乡之间往返，而这两个州都存在过时的旅行限制。我决定在压力和航空公司要求强制接种新冠疫苗之间作出决定，于是我去注射了疫苗。”皮尔逊说，他被注射疫苗后，有时会因胸痛而半夜醒来。
+此前，因“西安孕妇流产”“心梗患者去世”事件，其下属两家医院遭停业整顿3个月。
 
-“我是在夏威夷的早上11:30打的疫苗。当时一切都很正常，然后我就去睡觉了。到凌晨3:30醒来时，我的心怦怦直跳。我去了急诊室，他们很快给我做了心电图，静脉注射，血液检查，确定是心房颤动。这是导致中风的一个主要原因。”
+经西安市卫生健康委员会研究，对两家医院作出停业整顿3个月，期满整改合格后重新开诊等处理意见。根据规定，该事项触发了“上市公司股票被实施其他风险警示”的相应情形。公司股票自1月14日开市起停牌一天，自1月17日开市起复牌。公司股票自1月17日开市起被实施其他风险警示，公司股票简称由“国际医学”变更为“ST国医”。
 
-据皮尔森说，如果当时他正在驾驶一架巨型飞机，这次心脏病急性发作可能会使数百人丧生。
+1月13日上午开盘后不久，国际医学直线跌停封板，全天封死跌停，卖单超76万手，最新市值为190.5亿元。
 
-在航空业还有其他飞行员也有同样的感受，但他们不敢站出来，因为担心会遭到报复。他说：”有些人会在胸口和头部的剧痛的情况下去工作。因为他们是25岁的人年轻人，他们害怕失去工作。”
+截至2021年第三季度末，国际医学普通股东户数已经超过14万户，估计部分持股者今晚忐忑难眠了。
 
-去年9月份，陆军飞行外科医生特蕾莎·朗（Theresa Long）中校于向五角大楼建议让所有接种新冠疫苗的飞行员停飞，因为他们在飞行期间有心脏骤停的风险。
-
-参考新闻：[Major Airline Pilot Describes Heart Problems Following Covid Vaccine: “I Could Have Stroked Out at 100 Feet Trying to Land an Airplane”](https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/)
+参考新闻：
+[https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&mod=wftop&loc=7&r=0&rfunc=56&tj=cxvertical\_wap\_wftop&tr=182](https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&amp;mod=wftop&amp;loc=7&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)

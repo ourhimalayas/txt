@@ -2,34 +2,38 @@
 ---
 
 
-## 【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1856897/)
+## 全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857477/)
 
-**撰稿：Grace**
+整理报道：BENJ1
+编辑：朝花夕拾
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-4.35.01-PM.jpeg)图片来源：freedomrockradio
-据《雅虎新闻》1月13日报道，美国的最高法院在周四，阻止了拜登政府对私人企业的强制中共病毒COVID-19疫苗的规定。这是拜登的强制疫苗规定的重大挫折。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-该规定要求拥有100名或以上员工的私人企业必须强制要求其员工接种COVID-19疫苗或每周接受测试。最高法院阻止的这条规定将覆盖8400多万工人。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
 
-但法院也以微弱的优势支持了对接受联邦资助的设施中的医疗工作者的疫苗规定。
 
-在布雷特·卡瓦诺（Brett Kavanaugh）法官撰写的意见中，法院的六名成员批准了全国独立企业联合会（National Federation of Independent Business）的请求，暂时阻止职业安全与健康管理局（Occupational Safety and Health Administration））执行私人雇主规则。
+麦当劳日本餐厅和肯德基澳大利亚餐厅分别面临着炸薯条和鲜鸡肉的短缺，迫使它们本月削减了一些常规菜单上的菜品。
 
-大多数法官表示，全国独立企业联合会认为拜登的劳工部长无权强制执行该规定，因此有可能在法庭上获胜。
+两家公司都将这些短缺归因于供应链的混乱，这也影响了世界各地的其他餐厅。
 
-他们说，建立职业安全与健康管理局的法律 “授权秘书制定工作场所安全标准，而不是制定广泛的公共卫生措施”。
+在澳大利亚，肯德基表示，由于难以找到其最重要的原料——新鲜鸡肉的供应，该公司已暂时从全国某些地方的菜单上删除了一些菜品。该公司表示，其供应商受到了与新冠疫情相关的员工短缺的打击。
 
-法院说：“尽管国会无可争议地赋予职业安全与健康管理局监管职业危险的权力，但它没有赋予该机构更广泛地监管公共健康的权力。要求8400万美国人接种疫苗，仅仅是因为他们为有超过100员工的雇主工作，这当然是监管公共健康的行为。”
+肯德基一位发言人表示：“我们正在与多家供应商合作，以减轻影响，并向他们提供支持，但我们预计，未来几周还会出现一些中断。”
 
-但是，法院的三位自由派成员–大法官斯蒂芬·布雷耶（Stephen Breyer）、索尼娅·索托马约尔（Sonia Sotomayor）和埃琳娜·卡根（Elena Kagan ）–在一份反对意见中说，他们会允许强制执行该任务，称中共病毒COVID-19是 “工作环境的威胁”。
+与此同时，由于土豆短缺，日本的麦当劳餐厅被迫再次暂停了中份和大份薯条的供应。
 
-另一方面，在卡瓦诺和首席大法官约翰·罗伯茨（John Roberts）加入自由派的另一项决定中，法院以5比4的比例决定，卫生和人类服务部长根据现有法律授权，要求各设施确保其工作人员接种COVID疫苗（除非因宗教或医疗原因而豁免），以便获得医疗保险和医疗补助资金。
+参考新闻：
+[https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml)
 
-庆幸的是，法院最保守的四位成员–塞缪尔·阿利托（Samuel Alito）、克拉伦斯·托马斯（Clarence Thomas）、尼尔·戈尔苏克（Neil Gorsuch）和艾米·科尼·巴雷特（Amy Coney Barrett ）–表示，他们不会允许这一规则继续下去。
+发布：tianzhihan
 
-**新闻来源：**[The Supreme Court Blocked A Vaccine Mandate For Private Companies, But Allowed One For Healthcare Workers](https://www.yahoo.com/entertainment/supreme-court-blocked-vaccine-mandate-201346037.html)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

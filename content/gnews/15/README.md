@@ -2,41 +2,35 @@
 ---
 
 
-## 有声|摩西的启示——撂挑子，再担起来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1858366/)
+## 西安银行第二大股东股份质押 关联方拟借贷5.99亿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858426/)
 
-配音：香草山福音部 – Daxia
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+##### 整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-
-
-
-圣经处处都是真实的人性。不管多么伟大的史诗般的人物，既有荣耀神的光芒，也有软弱和不自信，甚至背离神。都是在神的帮助下才能持守住，得成就。出埃及记中的摩西也是这样。摩西被神召唤的时候，已经80岁，是个耄耋老人了，他常说自己口笨拙舌。神让他带着百万以色列人出埃及*（编者按：圣经[《出埃及记》](https://wd.bible/exo.12.37.cunps)*[*12:37*](https://wd.bible/exo.12.37.cunps)*记载，步行男人约60万，推测总数应有二百万左右）*，谁能自信得起来呢！
-
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
-**文字版原文：[摩西的启示——撂挑子，再担起来](https://gnews.org/zh-hans/1850157/)**
+根据《新浪财经》1月13日报道，近期，西安银行股份有限公司（简称“西安银行”，600928.SH）发布公告称，董事会审议通过银行与关联方西安大唐西市实业有限公司（简称“大唐西市实业”）开展5.99亿元信贷合作，大唐西市实业为西安银行第二大股东大唐西市文化产业投资集团有限公司（简称“大唐西市文化”）的关联方。
 
+《每日财报》报道称，此前西安银行与大唐西市文化关联方发生的贷款业务金额已超过10亿元。目前，大唐西市文化所持有的西安银行6.34亿股股份，均处于质押状态。同时持股期间多次出现“解押再质押”的情况。
 
+西安银行自进入2021年以来，股价就持续下跌。这背后伴随的是其业绩增长乏力的现状与资产质量和资产充足率指标面临的下行压力。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+西安银行的前身为西安城市合作银行，成立于1997年，2000年更名为西安市商业银行，2010年9月更名为西安银行。其在2015年11月启动A股上市计划，于2018年10月30日过会，2019年1月11日拿到证监会批文，并于2019年1月1日成功登陆上交所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+参考链接：[西安银行二股东股份质押 关联方借贷5.99亿议案遭大股东弃权](https://finance.sina.com.cn/jjxw/2022-01-13/doc-ikyamrmz4890691.shtml)
 
-**更多资讯，更多关注**
+*发布：*tianzhihuan
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,52 +2,24 @@
 ---
 
 
-## 飞行员因疫苗强制政策而起诉拜登政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858344/)
+## 人权观察年度报告批评中共国进一步打压人权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858377/)
 
-#### 翻译：Julia Gao
-校对：枳实
-剪辑/字幕：向上James
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1057.png)（图片来源于本文链接）
+国际人权组织人权观察今天发表《2022世界人权报告》，对全世界近100个国家的人权实践进行检视。报告涉及中共国的部分指出，“中共政府对国内加强镇压，对国外则利用‘人质外交’和激化对立的‘战狼外交’，导致其人权纪录遭到国际抵制”。
 
-英汉对照字幕：
+人权观察组织连续第32年发布《世界人权报告》，今年这份长达752页的报告出，“专制国家领导人在2021年普遍面临强烈抵制，但民主国家领导人必须在解决全球问题方面做得更好，才能让民主国家在与专制国家的较量中持盈保泰”。
 
-I too did not want to get the vaccine. I’ve never had a flu shot in my life. Injecting experimental drugs into me? Not something I ever wanted to do.
+在涉及中共国的部分报告指出，去年中共政府提高了对思想的控制，而且日益加强打压其认为“不爱国”的言论。“习近平一面承诺解决不平等、创造‘共同富裕’，一面任由有关当局逮捕基层劳工维权人士，审查质疑政府除贫政策的言论，显然言行不一。”报告指出，香港《国家安全法》实施以来，当局已逮捕超过150人，包括众多民主派人士。香港第二大报《苹果日报》被迫在6月停刊，该报多名高层和编辑均遭逮捕。“北京在香港实施‘选举制度改革’，实际上将香港的半民主议会变成橡皮图章机构。”报告例举“中共政府加强管制从新疆流出的讯息，并以新冠防疫为借口进一步限制与维吾尔人和其他突厥裔穆斯林的联系。某些被强迫失踪的维吾尔已证实被判刑入狱；还有的人据报在拘押中死亡。在西藏，当局的强迫同化政策不断升级，并在所有层级加强监控和威吓。”
 
-我也不想打疫苗。我这辈子都没有打过流感疫苗。给我注射实验性药物? 这压根儿就不是我想做的事情。
+报告指出，“已有多国政府对涉及重大人权侵犯的中共官员与企业实施协调一致的针对性制裁措施。并有多国国会成员呼吁其政府不要参与2022年2月的北京冬奥会。”
 
-Traveling between the state that I live in Hawaii and California where I have family, two states that have archaic travel restrictions. I decided between the pressure that in my airline that was going to require a mandate vaccine. I went and got the jab.
+信息来源：[人权观察年度报告批评中国进一步打压人权](https://www.dw.com/zh/%E4%BA%BA%E6%9D%83%E8%A7%82%E5%AF%9F%E5%B9%B4%E5%BA%A6%E6%8A%A5%E5%91%8A%E6%89%B9%E8%AF%84%E4%B8%AD%E5%9B%BD%E8%BF%9B%E4%B8%80%E6%AD%A5%E6%89%93%E5%8E%8B%E4%BA%BA%E6%9D%83/a-60409825)
 
-我居住在夏威夷州，而我家人居住在加利福尼亚州。所以我需要在有旅行限制的这两个州之间旅行，再加上我所在的航空公司也有疫苗强制政策，我在这些压力之下做出了决定。我去接种了疫苗。
-
-I did it 11:30 in the morning at Hawaii. Everything was normal. I went to bed, woke up at 3:30 in the morning with my heart pounding out of my chest. I went to the ER they hooked me up quickly to EKG IVs did blood work quickly determined that I was in atrial fibrillation.
-
-我是在夏威夷接种的疫苗。上午11点30分接种的。当时一切都正常，我就去睡觉了，早上3点30分突然醒来，感到我的心脏剧烈跳动，似乎要跳出胸膛。我去了急诊室，他们很快给我做了心电图，做了静脉滴注，并很快诊断为房颤。
-
-So major cause of stroke as Lee said, there’s a critical phases of flight where this stuff when I certify it to go fly, I have to check off a box before I go fly you lovely people wherever you want to go before I take that multimillionaire plane.
-
-正如李所说的，房颤是中风的主要诱因。执行飞行有一个关键阶段：在我飞行之前，当我驾驶着那架价值数百万的飞机，带着你们这些可爱的乘客去目的地之前，我必须要进行自检，对每一个方框进行打勾，以确认我能够飞行。
-
-I checked this box and it says I’m fit to fly. That was before COVID That’s when you knew Yeah, I have food poisoning. I’m cold, have a cold, whatever. Here. You never know when the genies gonna come out of the bottle and smack you down.
-
-我做了检查，结果是我适合飞行。那是在新冠之前（设计的表格）， 你知道， 题目都是些：“是否得了食物中毒？是否感觉很冷？是否感冒了？等等勾选项。但是现在，你永远不知道这些鬼家伙（房颤诱发的中风）什么时候会莫名其妙地钻出来，把你击倒。
-
-I could have stroked out at 100 feet trying to land an airplane with 40 Airplanes lined up next to us. I could have just pushed down on that stick before the person next to me could do anything. We’re in a it’s all over for a lot of people. Not a good scenario.
-
-我可能会突然中风，恰逢驾驶着飞机，在100英尺的高度，试图降落在已经有40架飞机列队停靠的飞机场时发病。我可能在我的副驾驶还没有来得及反应之前就把操纵杆压下去（而导致坠机）。很多人都会因此结束他们的生命。这当然不是一个美妙的设想。
-
-Pete Buda judge and telling you anything about this, the administration is not, the NIH, the CDC, they suppress all this stuff. There’s a number of pilots out there that are fearful to come forward and speak. They’re fearful of retribution. There’s guys that are going to work with crushing pains in their chest in their heads. They’re scared that they’re going to lose their careers because they’re 25 years old. This has got to stop.
-
-Pete Buttigieg（美国运输部长）没有告诉你们这些，美国政府也没有，包括国立卫生研究院，疾病控制与预防中心，他们都压制所有这些信息 (疫苗对飞行员的伤害)。有一些飞行员害怕站出来说真话；他们害怕遭到报复。有些飞行员会强忍着胸口和头部的剧烈疼痛而坚持工作。他们害怕失去他们的职位，因为他们只有25岁！这些情况必须要停止！
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,29 @@
 ---
 
 
-## 新中国联邦人最幸福 国内发生的灾难就是现世报
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858286/)
+## 萨尔瓦多购买比特币亏损1000万美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858329/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-1月5日，郭文贵先生在GTV大直播指出：
+#### 整理：Eileen（围剿维尼熊）
+编辑：李易通
 
-新中国联邦人是最幸福的一群人，我们没打毒疫苗，染病有药救，还收获了投资的希望并结交了志同道合的兄弟姐妹。相反，被中共洗脑的粉红大众已应验了现世报。当他们恶毒地诅咒台湾香港和西方人，甚至叫嚣留岛不留人的时候，他们的报应就是洋溢着幸福的笑容自动走进冰冷无情的隔离区，自己还浑然不知，悲哀啊。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+1月13日消息，根据彭博社计算，萨尔瓦多总统 Nayib Bukele 已至少为该国购入1391个比特币，每个比特币的平均收购价格为51056美元，买入成本共计约7100万美元。若萨尔瓦多政府持有上述BTC，按当前价格计算，其目前损失达14%。据纽约Stifel Nicolaus & Co新兴市场主权研究主管Nathalie Marshik估计，萨尔瓦多政府今年的资金缺口将达到10亿美元。
+
+参考链接：[https://news.cnyes.com/news/id/4802551](https://news.cnyes.com/news/id/4802551)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
