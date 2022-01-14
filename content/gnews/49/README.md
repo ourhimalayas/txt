@@ -2,37 +2,25 @@
 ---
 
 
-## 英国一组织发布中共病毒疫苗致命性研究报告清单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
+## 批评中共政权的美参议员投资中共公司阿里巴巴
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858661/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-12.jpg)
+据每日传讯 (Daily Caller) 1月13日报道，美国共和党参议员汤米·图柏维尔 (Tommy Tuberville)对中共和在中共国做生意的公司持批评态度。但根据他在1月12日提交的财务披露文件，他最近购买和出售了中共电子商务巨头—阿里巴巴的股票和期权。
 
-目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
+图柏维尔的财务记录显示，他和其妻子在2021年12月三次购买了阿里巴巴的股票，价值高达25万美元。在同一个月，他出售了10万美元的阿里巴巴股票。他与阿里巴巴的交易活动至少可以追溯到2021年的夏天。
 
-该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
+CNBC报道说汤米·图柏维尔是国会中对中共最严厉的批评者之一。这位参议员在2021年5月提出一项法案，寻求禁止将节俭储蓄计划（TSP）的资金投资于中共公司。TSP是数百万军警人员和文职雇员使用的退休基金计划。他在介绍该法案时说：“我们已经看到中共国公司一次又一次地不按规则行事，盗窃知识产权，无视基本的监管标准，牺牲投资者利益。美国人需要了解中共是如何攻击我们的，不仅仅是用导弹和军事力量，而是用精密的计划来降伏美国人的精神。”
 
-参考链接：
+据CNBC报道，阿里巴巴的联合创始人马云自20世纪80年代以来一直是中共党员。
 
-- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
+图柏维尔的发言人回应说：“图伯维尔参议员的投资组合项目长期以来一直由财务顾问管理，他没有日常参与其中。”
 
+新闻来源：[Republican Senator Critical Of China Buys Up To $250,000 Of Alibaba Stock](https://dailycaller.com/2022/01/13/tommy-tuberville-alibaba-stock-china/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

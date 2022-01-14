@@ -2,45 +2,22 @@
 ---
 
 
-## 我们匡扶正义就是消灭毁掉龙脉毁掉磁场想成神的共产党
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1859182/)
+## 港府推太阳能板 成本转嫁市民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1859211/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e1017887664c47acd46c25](https://gtv.org/video/id=61e1017887664c47acd46c25)
+作者：东京樱花团｜阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo.jpg)
+港府计划2050年前实现碳中和，并于2017年4月与两间电力公司分别签订有关《协议》推行上网电价计划，处所安装太阳能光伏或风力发电系统的人士，能够以一般电费最高5倍的水平，向电力公司售卖所生产的可再生能源。港府免费为学校、福利机构安装太阳能发电系统。机电工程署两年来仅接获逾600份申请，已安装260个。
 
-**郭文贵先生：**共产党把它磁场称为影响磁场变化的称为龙脉，然后这山那山都有故事。所以说，中国老百姓说的话“有山必有妖，有山必有神，有河必有鱼，有河必有王八”。咱们又遇到了河里边儿共产党这个“王八”，遇到了山里边儿这个“妖”就是共产党，现在是妖孽占龙山了，是吧？龙山都占了。王八把这个河塘里边儿的水全给搅浑了，都成了王八了。
+使用清洁能源是保护地球的方法之一，港府的太阳能板计划看似利民，实际上却将数十万元的安装成本转嫁到用户身上。据悉，机电工程署只受理指定供应商的太阳能板安装，价格由20万至60万元不等，加上安装费用和维护，卖电回本期间长达八年以上。太阳能版寿命约十年左右，而且安装工程可能会破坏房屋的结构，还会增加房屋维护成本。因此计划从2017年推广以来，接获的安装申请寥寥可数。港府画大饼的能力并不差，只是香港人能接受更多的信息不容易被骗。既然使用清洁能源是人类生存的长远大计，就应该从资金上补贴有意向的市民，并做好监督和规管工作，使这个新型的项目能被市民接受，而不是官商勾结愚弄百姓导致计划几乎处于停顿状态。
 
-所以咱现在必须要恢复山川就是正规的磁场，各种龙脉、龙神、水神，我们要万佛万神，就咱讲的，要恢复山川的美丽和自然，让它恢复一个正常的磁场。而且最重要的事情就是共产党让所有的人把整个国家风水、磁场全毁了，这就叫大气污染、土壤污染、山河污染。所以不灭共产党，我不相信万佛万神会饶过它的！我不相信的！我一定是深信不移——人不灭它天灭它！
+不过，面对中共统治下的香港，不应该有任何美好的期盼，那些精英们有多少身怀抱负想建设香港，但进入中共的体制里，所有人只有被染黑的命运。
 
-这就是我所说的磁场，所谓的龙脉，这是中国历史上对整个山川的理解，对龙是敬的，对河神是敬的、是可以奉献的。但共产党却把它全给杀掉了，全糟粕了，它在利用的同时，它在毁掉这一切。它想成为神，它想成为整个磁场的创造者，那是不可能的，我们会看到地球最终会毁灭这些人渣的！谢谢！
+资料来源：[**政府为260间机构装太阳能板  年产电量够9000个家庭用1个月**](https://hk.on.cc/hk/bkn/cnt/news/20220114/bkn-20220114134703021-0114_00822_001.html)
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/文小白
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
