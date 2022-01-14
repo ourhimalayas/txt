@@ -2,33 +2,41 @@
 ---
 
 
-## 日本政府如此推进疫苗却不掌握感染者的接种状况引热议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857168/)
+## 拜登本应通知OSHA收回疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857284/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-9.png)（图片源自本文链接）
-1月3日JCAST新闻消息：2022年1月12日，东京都政府宣布，当天有2198人被确认感染了中共病毒(新冠病毒) 。与此同时发布的“疫苗接种情况”引起了人们的关注。
+#### 翻译：Annabelle
+校对：枳实
+剪辑/字幕：向上James
 
-东京都社会福利和公共卫生局每天都会公布题为 “中共病毒(新冠病毒)相关感染情况”的报告。 该报告包括感染人数病人数、医院床位占用率等数据。其中，感染者的疫苗接种情况栏中包括“两针疫苗”、“一针疫苗”、“未接种”和“未知”。现在，许多人对“未知”栏的数量之大感到奇怪。
+**字幕摘要（英汉对照）**：
 
-12日的报告，“总人数”栏2198人， “疫苗接种情况”栏，除了“1071人接种两次”、“26人接种一次”和 “474人未接种”之外，还有一个“627人未知”，这意味着大约28.5%的新感染者被列为“未知”。
+I have to admit, Mike, I almost fell out of Santa sleigh when I heard that language,
 
-再看前一天的报告，“总人数”栏962人，“295人未知”，大约30%的新感染者被列为“未知”。回看1月6日以来的数据，每天都有数以百计的“未知”病例。在互联网上，人们在问：发生了什么事？ 这意味着什么？想知道为什么有这么多人未知人数?
+Mike 我得承认，当我听到那些话时，我几乎要从圣诞雪橇上掉下来了。
 
-13日，社会福利和卫生局向J-CAST新闻网如下介绍了“未知”一栏的含义。
+because President Biden should tell his own administration that he doesn’t think there’s a federal solution.
 
-患者人数等数据是根据各医疗机构的报告编制的，因为医疗机构没有义务报告受感染者的疫苗接种情况，其中一些机构没有说明是否接种过疫苗。 因此，有可能那些真正接种过疫苗的人被归类为未知了。
+因为拜登政府本应该告诉他的政府，他不认为联邦政府有解决方案。
 
-我们给出的是每天截止公布时间点所能知道的初步数字，在收到疫情报告后，卫生中心进行处理时可能会有一些确认。
+The first thing he should do is tell OSHA to pull back its vaccine mandate where it’s claiming that it has the right to tell basically every employee in every factory in office in the country that they have to get a vaccine.
 
-综上所述，笔者的计算结果是：如果那些未知数字都是疫苗接种者的话，12日的感染者中应该有78.44%是疫苗接种者。各国政府如此重视推进疫苗接种，为何对这可怕的高百分比数置若罔闻！实在令人费解！
+他首先应该告诉’职业安全和健康管理局” 收回疫苗强制令， 它声称它有权要求，基本上这个国家每个职员，无论是工厂还是办公室都必须打疫苗。
 
-信息来源：[コロナ感染者「ワクチン接種不明」なぜ多い？　都に聞く（J-CASTニュース） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9d1a646f2d7b5992af21ac463260d0e76ea13631)
+And then the second thing you do is drop a Supreme Court case his administration is going to the High Court next week to defend the vaccine mandate.
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+第二件要做的事情是撤销高级法院的诉讼，拜登政府下星期要在最高法院出庭辩护强制疫苗政策。
 
+视频链接：[President Biden says there is no federal solution a year in as president ，he should tell OSHA to pull back its vaccine mandate](https://video.foxnews.com/v/6288945750001)
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

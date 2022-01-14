@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/14/2022 12:44 AM (UTC)`
+
+1/12/2022 Miles Guo: Why is it the case that God is helping the New Federal State of China (NFSC)? The NFSC has saved the lives of hundreds of fellow fighters in the past few days alone. A fellow fighter who used to be a ministerial level cadre in Communist China revealed something fishy in all the CCP-made vaccines. Fellow fighters should live like human beings - be grateful, respect heaven and earth, and love your family members!<br/><br/>1/12/2022 文贵直播：为什么说上天在帮助新中国联邦？新中国联邦仅过去几天就救了数百名战友的生命；正部级战友爆中共疫苗猫腻；战友们要像人一样活着 - 心怀感恩、敬天尊地、爱家人<br/>
+![img](https://media.gettr.com/group8/getter/2022/01/14/00/445bcd9f-2f89-59f0-b735-36f2000fdeda/out.jpg)
+
+---
+
 `@miles 1/13/2022 11:26 PM (UTC)`
 
 “Hcoin To the Moon" Makes History in U.S.🇺🇸<br/><br/>Thank you very much to our brothers and sisters in America 🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Top Music Video Chart for 7 Days, Top 3 for 13 Days.<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Music Video Chart for 29 Consecutive Days Since It Launched.<br/><br/>"Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Songs Chart for 4 Days, Top 3 for 8 Days.<br/><br/>"Hcoin To the Moon(Karaoke Version)" Top 3 on U.S. iTunes Hip-Hop/Rap Songs Chart for 6 Days.<br/><br/>Billboards:<br/><br/>"Hcoin To The Moon" （Rock Version) Top No.1🥇 on Billboard World Digital Song Sales Chart for 2 Consecutive Weeks<br/><br/>https://gnews.org/1855254/
@@ -143,13 +150,6 @@ The authorities of Cyprus have found themselves in the middle of a serious, but 
 `@miles 1/12/2022 5:37 PM (UTC)`
 
 塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中<br/><br/>整个案件因其他相关事实和事件而变得复杂。这两名被拘留者是新中国联邦的成员和政治活动家。这场政治运动，也称为游说，由郭文贵和史蒂夫·班农发起，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。<br/><br/>它于2020年6月4日在纽约成立，自称是中国的“流亡政府”，间接得到美国的承认。<br/><br/><br/><br/>https://gnews.org/zh-hans/1851946/<br/>
-
----
-
-`@miles 1/12/2022 4:59 PM (UTC)`
-
-Ray Dalio, an old friend of the Chinese Communist Party and founder of the Bridgewater Associate, has endorsed the Communist Party's "Common Prosperity" and urged countries, including the United States, to narrow the gap between the rich and the poor. Miles Guo has already warned the West on one of his live stream about the deceptive nature of the CCP's "Common Prosperity"policy. "Common Prosperity" is actually “the era of Communism” renamed as "the era of Common Prosperity". Hong Kong is the first example of what "Common Prosperity" entails. Once again, Mr. Guo's accurate grasp of Chinese Communist intelligence has been verified.<br/><br/>中共的老朋友桥水基金创始人雷·达里奥为中共的“共同富裕”背书，并敦促包括美国在内的国家缩小贫富差距。郭先生早前已在直播中警告西方，中共“共同富裕”政策的欺骗本质，实则是共产主义的时代换名为“共同富裕的时代”，香港就是其第一个例子。再次验证郭先生对中共情报的准确掌握。
-![img](https://media.gettr.com/group13/getter/2022/01/12/16/64febebc-b709-4630-cbb0-953265105802/out.jpg)
 
 ---
 

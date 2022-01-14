@@ -2,48 +2,28 @@
 ---
 
 
-## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
+## 【中日财经爆】美的开始芯片大跃进
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857136/)
 
-#### 翻译：Frank
-校对：枳实
-剪辑/字幕：小强
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-25.png)[图片来源](http://www.xinxunzhibo.com/zn/99670.html)
+近日，美的官方发布信息表示，将在MCU控制芯片的基础上，大举进军功率芯片、电源芯片、IoT芯片等不同类型的多种芯片，以面向家电和汽车领域需求。
 
-**字幕文本（英汉对照）**
+美的集团1月10日在投资者互动平台上表示，公司在2018年下半年正式进入芯片领域，其研发的芯片于2021年开始量产。目前投产的主要为MCU控制芯片，年产量约1000万颗，未来还将继续提高芯片产能。
 
-Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
+除了MCU控制芯片外，美的未来还将进一步涉及功率芯片、电源芯片、IoT芯片等家电领域芯片。同时也在布局汽车芯片，希望以此来缓解当前全球芯片短缺的迫切局面。
 
-随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
+MCU芯片主要是指微控制单元，又被称作单片微型计算机或单片机，在芯片领域属于入门级的产品。MCU芯片在家电产品应用非常广泛。
 
-And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
+美的作为家电巨头，对芯片需求巨大，自研芯片虽有一定的产业和经济价值，但由于芯片研发技术难、投资大、周期长和风险高的特点，特别是还要涉足MCU之外的功率芯片、电源芯片、IoT芯片等不同类型的芯片产品，其制备技术、工艺差异较大，其经营战略着实激进。
 
-现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+信息来源：
 
-And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+[年产量1000万颗！国内家电大厂进军造芯领域：将布局汽车芯片](https://www.163.com/dy/article/GTC6V2U4051100B9.html?f=post2020_dy_recommends)
 
-所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
-
-and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
-
-我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
-
-i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
-
-这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
-
-Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
-
-你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

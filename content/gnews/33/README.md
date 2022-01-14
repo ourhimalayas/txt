@@ -2,62 +2,47 @@
 ---
 
 
-## 2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1856807/)
+## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
 
-撰稿：柯亭
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9462fc4a6e8e1bdfa61cf580aeea0d2a.jpg)图片来源：GTV
-2022年1月12日，文贵先生在大直播中解释了新中国联邦在各地的机构叫**农场**的原因。指出：因为搞20大，CCP在全世界的骚操作以及其内部的相互厮杀正变得更加疯狂，**CCP将止于20大**；新中国联邦得**天机和民心**，将是CCP的20大的**最大赢家**。
+#### 翻译：Frank
+校对：枳实
+剪辑/字幕：小强
 
-**一、关于喜马拉雅农场**
+**字幕文本（英汉对照）**
 
-文贵先生解释说：我们之所以叫农场，是为了与那些**盈利组织**（如LLC、Group、有限公司）和**慈善非盈利组织**（如NGO、庙、宗教）区别开来。农场的英文是Farm或Ranch，法语是Cultiver，西班牙语是Granja。农场**没有执照和法人**，是自然的自力更生、没有交易、不受约束的地方。
+Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
 
-文贵先生继续解释说：我们叫喜马拉雅农场，那是**接天气**；农场也含有父母家人、辛勤劳动、生活、安家置业等意义。这个名字也不是瞎掰出来的，就像“一切都是刚刚开始”，有其**特别的含义**。
+随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-文贵先生还解释说：当时法国大革命时有一个非常重要的原则，就是不能把**个人财产公有化**、不能把**国家权力私有化**；这个也是喜马拉雅农场要遵循的原则。而CCP一直在做的就是把个人财产公有化到几个家族控制，而且把国家权力、公民一人一票的权利个人化、家族化。
+And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-文贵先生总结说：喜马拉雅农场是**受道德和法律约束**的，尊重法治，由一人一票选出的政府治理。我们追求**唯真不破**，说谎话的人就呆不下去，更不要说谁想抢别人的钱或搞独裁。所以，不给坏人杀人的刀枪，就可以减少坏人造成的伤害；不给好人受诱惑的机会，就可以让好人变得更好；这叫**体制**。
+现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
 
-**二、关于喜马拉雅山的神奇和****CCP的祭坛**
+And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
 
-文贵先生介绍说：七哥爬过喜马拉雅山，CCP的专案组还找到七哥当年爬喜马拉雅山时的一张照片，那时七哥很瘦。只有爬过高山你才知道地球有多么**神奇**；只有在天空中看过昆仑山脉和喜马拉雅山脉，你才知道这个**大地之间的密码**多么重要。但凡你真的在高空中看过昆仑山、帕米尔高原、七山一峰、八大山脉、喜马拉雅山，你就会真正的明白**天地间是有规则的**。
+所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
 
-文贵先生还介绍说：喜马拉雅山有**三大湖泊**，昆仑山有**地狱之门**，CCP在昆仑山设有**祭坛**；这些都是你在谷歌地球上看不到的。
+and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
 
-文贵先生也介绍说：CCP的那个祭坛的设计和施工之精美，真是比拍大片还夸张。CCP不是每年都做祭祀，而是大概每60年做一次祭祀；我没有亲眼所见，但据我所知**CCP一共搞了3次祭祀**；建国后搞了一次，前年也搞了一次，1989年六四之后也搞了一次。
+我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
 
-**三、关于当前局势的发展**
+i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
 
-文贵先生预测说：2022年将是人类社会**最黑暗**的一年，原因之一就是疫苗灾难；所以能活下去就是最好的，其它能做的就是多开开眼、多灭灭CCP。CCP的经济垮塌一定很夸张，很多人将成为房奴车奴；但CCP的权贵家族是受益者。经过这场经济大洗牌后，西方又将是大赢家；因为被共产主义侵略的中共国和一些亚非拉国家，会一夜之间再次成为西方资本主义的奴隶。
+这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
 
-文贵先生介绍说：新中国联邦自开启灭CCP这个事业以来，我们**不留一滴血**，**没有任何暴力**。在过去5年里，我们团结了亿万个战友，唤醒了国内大多数有良知的人。在国内，大约有4-5亿人知道我们；其中，真心跟随我们的有5千万左右，跃跃欲试的大概有1亿5千万。一旦我们能确保拿下CCP以后，我相信超过**90%**的中国人都会和我们站在一起。
+Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
 
-**四、关于天意、天机、民心**
+你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
 
-文贵先生解释说：永远要相信天意，天意是没有偶然的。CCP统治、虐待中国这么多年，这是天意。CCP的一些列作恶如灭白计划、释放病毒、种族大屠杀、企图统治全世界、内部互相厮杀等等，**造成现在全球要灭****CCP的局面，这也是天意**。
+发布：枳实
 
-文贵先生也解释说：我知道灭CCP的天意在，所以5年前我不在乎别人信或不信，毅然发起灭CCP这个事业。是天意让我在过去的几十年经历各种情况，为今天的灭CCP做好各种准备。例如：游历巴基斯坦、印度、昆仑山、喜马拉雅山；1983-1984年就去过新疆两次；去到南疆、北疆、天山、喀什、帕米尔高原；1989年卖掉摩托车支持学生运动、之后被关进青峰看守所；这一切都是天意。
-
-文贵先生还解释说：有天意罩着你就有天机，你**顺着天意就会看到天机**，天机就是老天爷给你的最大机会，**得天机就会得民心**。最近国内50家银行不约而同地用7这个数字广而告之，暗示支持我们新中国联邦；这既是天意，也反映出民心。我在美国能一次次躲过CCP的凶残攻击和追杀，也是因为有美国人民的支持；你看班农先生和Jason Miller先生等给我们的支持的作用有多么强大？
-
-文贵先生举例解释说：现在GTV和GETTR上的人都能分辨出3个最核心事情。一是**CCP不等于中国人**；二是释放病毒的是CCP而不是中国人；三是CCP在新疆、西藏、香港、台湾实施大屠杀或作恶，CCP是中国人最大的威胁。这三件事搞清楚了，这也是天机和人心。最近一位成功逃离中共国的CCP正部级干部战友，一家人乘坐的飞机早点1小时到达欧洲某国；这个航班过去一年不曾有过早点到达的记录。
-
-文贵先生强调说：战友们一定要**敬天尊地，孝敬老人，善待家人，善待动物**；这样你就会得好风水、赚钱、健康。我们人与动物如猪狗之间的不同之处，就是我们人有情有义、感恩戴德。
-
-**五、****CCP将止于20大**
-
-文贵先生解释说：事关CCP的20大最关键的人是**习近平**。**盘古的龙头**不仅连着昆仑山和喜马拉雅山，也连着CCP在昆仑山设的**祭坛**，而且还连着习近平父亲**习仲勋的坟墓**。听说习近平知道他爹的坟墓与盘古的关系后，整个人都惊呆了、傻了；他派中科院和解放军测绘学院的人去测量，结果是毫米不差。这是天机。
-
-文贵先生也解释说：CCP企图寓意再生的国家大剧院水蒸蛋，与盘古龙形建筑之间的距离正好10公里，成就为盘古**龙戏蛋**的寓意；其间还有白塔、瀛台以及一些暂时还不能说的秘密之处。这也是天机。
-
-文贵先生还解释说：**天机得以人的配合**，就是天机的结果，那是谁也阻挡不了的。比如H-Coin现在的价格41美元，其中没有任何机构参与操作，全都是因新加入进来的个人客户购买的结果；这是天机与人的配合的结果。
-
-文贵先生总结说：我从1977年CCP的11大一直看到今天CCP正在筹备的20大，1977年的时候我就扒着墙看CCP的报纸；难道你不认为七哥是**受老天爷派遣**来了结CCP的吗？CCP不搞二十大，其内部**相互厮杀和掠夺**就不会如此疯狂，其在全世界的的骚操作就不会如此疯狂；所以**新中国联邦将是****CCP的20大的最大赢家**，习近平和其他人将是CCP的20大的输家。**不会再有****CCP的20大**啦，战友们放心吧。
-
-参考链接：[2022年1月12日文贵大直播](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
-
-校对：
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
