@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 1/14/2022 10:41 PM (UTC)`
+`@miles 1/14/2022 11:13 PM (UTC)`
 
-1/24/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/24/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利<br/>
-![img](https://media.gettr.com/group14/getter/2022/01/14/22/73fced43-8711-b72f-091f-6438a9510d70/out.jpg)
+1/14/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/14/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利
+![img](https://media.gettr.com/group20/getter/2022/01/14/23/50da5544-8894-1182-6056-569dab156ac9/out.jpg)
+
+---
+
+`@miles 1/14/2022 11:10 PM (UTC)`
+
+1/12/2022 Miles Guo: The CCP’s 20th Party Congress won’t take place! 20th Party Congress is the greatest gift from Heaven to the New Federal State of China (NFSC)! Without the 20th Party Congress, there won't be bloody political infightings in the CCP, the nation-wide curfew, or the plunder of the entire China. The CCP is going insane in front of the whole world. Only the NFSC will triumph!<br/><br/>1/12/2022 文贵直播：不会再有中共二十大了 - 中共搞二十大是上天送给新中国联邦最大的礼物，二十大造成中共内部绞杀、对全中国的宵禁和掠夺，在全世界面前疯狂，唯有新中国联邦是赢家！<br/>
+![img](https://media.gettr.com/group46/getter/2022/01/14/23/7cd3bf60-f525-7422-a58e-0123f0e9c568/out.jpg)
 
 ---
 
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1/12/2022 Miles Guo: All dictators create conflicts and hatred. Now the CCP is keeping the Chinese people at home by using the virus, and then they will take away their wealth in the name of “common prosperity”. The CCP and their running dogs in the West are also going to push the agenda of “common prosperity”, and the Chinese diasporas will be the targets, with their wealth to be taken away!<br/><br/>1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富；中共及其走狗在西方也要搞共享财富，海外华人将成为被共享财富的对象！<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/13/00/7b5094f6-6f13-51ba-537b-a2c2b0e1b379/out.jpg)
-
----
-
-`@miles 1/13/2022 12:41 AM (UTC)`
-
-1/12/2022 Miles Guo: Under the pretense of locking down the cities, the CCP is pushing the “common prosperity” movement, seeking to take away the wealth of the 120 and 200 enterprises in Xi’an and Tianjin, respectively. The “common prosperity” movement has already begun in Zhengzhou, and it will take place in Zhejiang and Jiangsu soon.<br/><br/>1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙！<br/>
-![img](https://media.gettr.com/group48/getter/2022/01/13/00/f3f4d1d5-dde0-cd79-d1f0-08e72191d0fb/out.jpg)
 
 ---
 
