@@ -2,28 +2,30 @@
 ---
 
 
-## 美国务院发布报告 中共非法宣称南海大部分主权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858066/)
+## 中泛控股1.65亿美元债务违约
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858068/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-202.jpg)[图片来源](https://www.bbc.com/zhongwen/simp/world-53398946)
-美国国务院周三发表一份报告，详细描述了中共国在南中国海的大部分主权主张既不符合国际法，也不享有历史权利。
+整理：Eileen（围剿维尼熊）
+编辑：李易通
 
-国务院海洋及国际环境与科学事物局星期三（2022年1月12日）发表了《海洋疆界第150期：中国在南中国海的海洋主张》系列报告，在2014年发表的第143期有关报告的基础上做了更新。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这份总共47页的新报告阐述了中共国以历史权利为依据在南中国海的大部分主张并无法律依据，并对北京声称拥有海洋权的100多个岛礁进行了技术分析，探明这些岛礁在潮水高位时被水淹没，因此依据国际法，中共国对这些岛礁周边12海里的海域并不享有主权。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
-2016年7月，一个国际仲裁法庭也裁定中共国对南中国海大片海的主权主张不符合国际法。中共一直不接受这项仲裁。
 
-美国国务院星期三在一份声明中敦促中共国在声索海洋权益时尊重基于联合国海洋法公约的相关国际法规，并遵守国际仲裁庭针对南中国海问题做出的裁决。
+泛海控股境外附属公司中泛控股公告称，收到初步贷款人发出的违约通知副本。违约通知阐明，借款人未能于2022年1月到期前支付贷款的应计利息及服务费用128.03万美元，从而导致融资协议项下的违约事件，而有关逾期付款于3个营业日的期间仍持续未获解决。根据融资协议，贷款的行政代理人有权加速融资协议项下的所有本金以及应计及未付利息的还款。违约通知阐明，行政代理人现在行使加速权及要求立即悉数偿还融资协议项下到期的所有款项，金额为1.65亿美元及应计利息、法律费用及其他费用（欠款）。中泛控股表示，公司目前正就付款违约寻求法律意见，以期透过适当方式应对相关事宜。此外，公司亦不断努力获取资金以偿还欠款。
 
-消息来源:
+参考链接：[https://www.163.com/dy/article/GTJ2ISO405199NPP.html](https://www.163.com/dy/article/GTJ2ISO405199NPP.html)
 
-[美国务院更新报告: 中国在南中国海的大部分主权主张不合法](https://www.voachinese.com/a/us-south-china-sea-20220113/6394957.html)
+发布：tianzhihuan
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

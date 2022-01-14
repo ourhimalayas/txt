@@ -2,25 +2,19 @@
 ---
 
 
-## 加拿大魁北克省: 疫苗护照收紧，未打疫苗将不能进大型商场
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1857893/)
+## 中共严格管理 已经失控的音乐文化市场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858027/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-13-222710-2.png)图片来源：网络
-来自CTV NEWS星期四1月13日的新闻报道：
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-魁北克省长 Francois Legault 在周四的新闻发布会上宣布:
+1月1日，郭文贵先生在GTV大直播指出：
 
-将需要更多的商店来执行疫苗护照。自 1 月 24 日起，面积超过 1,500 平方米的商业企业将受到疫苗护照的约束，但是新措施不适用于药店和食杂店。
+据中共内部消息，习近平绝赞了有关中共应严格管理中国音乐文化市场的报告，并称报告人是精通文化、艺术和音乐的，相当于希特勒时代的瓦格纳的人物。战友们，听一听这个充满费解语句的报告，你不觉得很可笑吗。
 
-**点评：**没有打疫苗，没有疫苗护照，不能去酒吧，健身房，和饭店用餐。现在又将不能去我的最爱COSTCO 了。挤压游戏玩尔地越来越好了，哈哈!
-
-原文链接: [https://montreal.ctvnews.ca/quebec-s-10-p-m-curfew-will-be-lifted-on-monday-1.5739074](https://montreal.ctvnews.ca/quebec-s-10-p-m-curfew-will-be-lifted-on-monday-1.5739074)
-
-编辑/发布：LILY
-
-20220113
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,35 @@
 ---
 
 
-## 筷子与刀叉 宇宙和沙子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858088/)
+## 纽约公寓租赁市场复苏，曼哈顿12月房租创历史新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858107/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-1月1日，郭文贵先生在GTV大直播指出：
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-中国的筷子是文明的象征，而西方从最开始刀叉的粗鲁，发展到细分、严谨、逻辑，是另一套体系。中国的筷子是阴阳，再加上五行，是中国文化统筹性的基础，但从大秦到大清文化出现断层，而西方的逻辑学发展出的科学一直在延续，新中国联邦要将西方的科学与中国的阴阳五行融合在一起。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LA@OEF40XOB_FS_Q5K.png)图片来源：Cubed NY
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+1月13日，据新浪财经报道，纽约地产估价机构Miller Samuel与房产中介公司Douglas Elliman于周四发布的报告显示，12月曼哈顿公寓平均（月）租金达到4440美元，创历史新高，较上年同期上涨了21%。
+
+与一年前相比，去年曼哈顿有超过2.5万套空置公寓可供出租，有人预计，楼市的复苏可能需要数年时间。而现在，租金已超过疫情前的水平，今年的租金上涨给租房者带来了巨大冲击。
+
+另据《纽约邮报》报道，12月上市库存同比暴跌81%，只有不到4,800套公寓可供出租。缺乏可用库存也影响了新租约的数量，本月新租约下降了近40%，仅为3,345份。由奥密克戎变种病毒驱动新冠病毒感染人数激增，也给公寓出租市场蒙上一层阴影。
+
+新闻链接：
+1、[纽约楼市全面复苏，曼哈顿12月房租创历史新高，年轻人梦碎|纽约楼市\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0112797.shtml)
+2、[Manhattan rents hit highest-ever December record as supply plummets (nypost.com)](https://nypost.com/2022/01/13/manhattan-rents-hit-highest-december-record-ever-as-supply-plummets/)
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

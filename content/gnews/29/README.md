@@ -2,34 +2,32 @@
 ---
 
 
-## 纽约公寓租赁市场复苏，曼哈顿12月房租创历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858107/)
+## 伊维菌素是安全的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858118/)
 
-整理：Eileen（围剿维尼熊）
-编辑：文泓
+翻译：Frank
+校对：Lish
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+视频中的女士在自己的农场亲自服用伊维菌素，以告诉人们伊维菌素很安全。以下是全视频内容：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LA@OEF40XOB_FS_Q5K.png)图片来源：Cubed NY
+我在这里给山羊修眉，人们问我那个像这样的设备
 
+我想给你看看我服用的量，我放了大概像你手指末端的量，我通常把它(伊维菌素)放在我的手指末端，但我现在在使用手机。
 
-1月13日，据新浪财经报道，纽约地产估价机构Miller Samuel与房产中介公司Douglas Elliman于周四发布的报告显示，12月曼哈顿公寓平均（月）租金达到4440美元，创历史新高，较上年同期上涨了21%。
+它的味道并不好。但它并不危险，人们也不会被送进医院。它已经被批准使用多年了。而且它还有其他药物属性，不仅仅是对新冠有效。对癌症等诸如此类的疾病也有效。嘿，你永远不知道你体内是否也有虫子，人们体内会有虫子。所以无论如何，没有危险。
 
-与一年前相比，去年曼哈顿有超过2.5万套空置公寓可供出租，有人预计，楼市的复苏可能需要数年时间。而现在，租金已超过疫情前的水平，今年的租金上涨给租房者带来了巨大冲击。
+Source： https://twitter.com/jesus\_porvida/status/1448679802509008897?s=21
 
-另据《纽约邮报》报道，12月上市库存同比暴跌81%，只有不到4,800套公寓可供出租。缺乏可用库存也影响了新租约的数量，本月新租约下降了近40%，仅为3,345份。由奥密克戎变种病毒驱动新冠病毒感染人数激增，也给公寓出租市场蒙上一层阴影。
+发布：Lish
 
-新闻链接：
-1、[纽约楼市全面复苏，曼哈顿12月房租创历史新高，年轻人梦碎|纽约楼市\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0112797.shtml)
-2、[Manhattan rents hit highest-ever December record as supply plummets (nypost.com)](https://nypost.com/2022/01/13/manhattan-rents-hit-highest-december-record-ever-as-supply-plummets/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
