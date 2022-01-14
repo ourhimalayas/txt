@@ -2,32 +2,23 @@
 ---
 
 
-## 伊维菌素是安全的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858118/)
+## 港闻速递｜英军情五处指控华人律师李贞驹是中共间谍 中港金主幕后操控
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1858216/)
 
-翻译：Frank
-校对：Lish
+**撰文/ 港台前线关注组｜发布日期/ 14/1/2022**
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/英軍情五處指控華人律師李貞駒是中共間諜-中港金主幕後操控.jpg)
+英国《太阳报》周四(13日)报道，军情五处向英国国会发出罕有警示，指控华人律师李贞驹(Christine Lee)是中共间谍，利用捐款的方式，协助中共与议员建立关系，全面渗透国会及政界，意图干预英国内政。
 
-视频中的女士在自己的农场亲自服用伊维菌素，以告诉人们伊维菌素很安全。以下是全视频内容：
+据调查指，李贞驹的背后金主，是来自中国大陆和香港的非英籍华人，目的是为了塑造有利中共议程推进的政治环境。
 
-我在这里给山羊修眉，人们问我那个像这样的设备
+是次丑闻牵涉在野两党，包括，自由民主党党魁 Ed Davey，十年收受5000万英镑捐款；工党议员Barry Gardiner，5年内收受42万镑的捐款，并聘请李贞驹儿子做助理等等。
 
-我想给你看看我服用的量，我放了大概像你手指末端的量，我通常把它(伊维菌素)放在我的手指末端，但我现在在使用手机。
+事件严重程度震惊英国政坛。国会下议院议长贺立绅（Sir Lindsay Hoyle）保守党前党魁施志安（Lain Duncan Smith)分别公开谴责，并要求政府向国会作解释。
 
-它的味道并不好。但它并不危险，人们也不会被送进医院。它已经被批准使用多年了。而且它还有其他药物属性，不仅仅是对新冠有效。对癌症等诸如此类的疾病也有效。嘿，你永远不知道你体内是否也有虫子，人们体内会有虫子。所以无论如何，没有危险。
+* * *
 
-Source： https://twitter.com/jesus\_porvida/status/1448679802509008897?s=21
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
+来源｜[TheSun](https://www.thesun.co.uk/news/17317739/chinese-spy-mp-christine-lee-communist-agent/)
 
  
 

@@ -2,31 +2,27 @@
 ---
 
 
-## 法国新增中共病毒连续三天超30万例 打过三针疫苗的卫生部长也确诊
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858132/)
+## 【中日财经爆】高盛大幅调高今年中共房债违约率预测
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858225/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/666.jpg)[图片来源](https://www.bbc.com/news/world-europe-59977978)
-截至1月13日，法国单日新增确诊病例已连续三天超过30万例。已经打过三针疫苗的法国卫生部长维兰当天确诊感染中共病毒，他是接种阿斯利康疫苗的首名法国政府高官
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-31.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.goldmansachs.com/worldwide/greater-china/insights/2020-C-REITs-f/800x450.jpg&amp;imgrefurl=https://www.goldmansachs.com/worldwide/greater-china/insights/&amp;tbnid=4eZyQAxl0sFMAM&amp;vet=12ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ..i&amp;docid=eKDsUjoZcsvdIM&amp;w=800&amp;h=450&amp;itg=1&amp;q=%E9%AB%98%E7%9B%9B%20%E6%88%BF%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ)
+1月13日，高盛发表研究报告，预测中共2022年房地产债务违约率将达19%，远高于原先预期的11.5%。
 
-法国官方数据显示，法国13日单日新增确诊病例305322例，这是法国连续三天的单日新增确诊病例超过30万例；法国累计确诊病例13240274例。法国累计死亡病例现为126530例，新增死亡病例227例。法国新冠住院患者人数现为24154人；重症患者人数现为3939人。
+报告称，去年底内地房地产企业高收益债出现几宗大规模违约，最近数周虽未见大量支付逾期(违约)情况，但紧张情绪加剧。这反映于债务置换或债务延长方案增加。
 
-法国中共病毒发病率现已升至每10万居民中有2833名感染者，法国单日平均新增确诊病例目前已经升至近30万例；法国新冠病毒检测阳性率仍然维持在20%。
+考虑信贷紧张加剧及市场压力持续，该行上调今年内房违约预测。报告指出，在基本情境下，料内房高收益债违约率达19%，高于原先预期的11.5%。在悲观情境下更有可能高达31.6%(原先为25.4%)，而在乐观情境料见10.5%(原先为4.3%)。
 
-法国卫生部长维兰13日确诊感染中共病毒。他由于有轻微的感染症状，于当天进行了检测，结果为阳性。他通过社交媒体确认自己感染，并表示将接受隔离并将通过远程办公的方式继续履职。根据此前的官方消息，维兰已经接种了三剂新冠疫苗。
+高盛表示，未来数个月将有大量内房高收益债到期，料潜在发生更多债务置换或债务延长，以及有更多违约个案发生。该行估算2022年1月余下时间有36亿美元内房债到期，3月有33亿美元，4月另有37亿美元内房债到期。
 
-根据法国卫生部数据，法国目前已有5346万人接种至少一剂疫苗，约占法国人口的79.3%；已有5217万人完成两剂接种，约占法国人口的77.4%；已有3051万人接种第三剂疫苗。
+该行中国经济师团队分析认为，虽然中共在政策层会有一定放宽，但仍旧不会有重大房地产需求刺激。
 
-2021年2月8日，法国卫生部长维兰接种了第一针中共病毒（新冠）疫苗，该疫苗是由英国阿斯利康制药公司与牛津大学合作研发的，成为接种阿斯利康疫苗的首名法国政府高官。
+信息来源：
 
-消息来源:
+[高盛上调今年内房债违约率预测至19%](https://finance.sina.com.cn/stock/estate/integration/2022-01-13/doc-ikyakumy0165614.shtml?cref=cj)
 
-**[法国单日新增确诊连续三天超30万 卫生部长确诊感染](https://www.sohu.com/a/516453242_123753)**
-
-[法国卫生部长接种新冠疫苗](https://www.chinanews.com.cn/gj/shipin/cns-d/2021/02-09/news880143.shtml)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

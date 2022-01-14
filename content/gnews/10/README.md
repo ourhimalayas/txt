@@ -2,35 +2,28 @@
 ---
 
 
-## 纽约公寓租赁市场复苏，曼哈顿12月房租创历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858107/)
+## 【中日财经爆】中共国就业数据造假 失业数据被掩盖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858185/)
 
-整理：Eileen（围剿维尼熊）
-编辑：文泓
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/65.jpg)[图片来源](http://www.stdaily.com/index/kejixinwen/2021-10/20/content_1227091.shtml)
+中共病毒疫情冲击之下下，中共官方公布的失业率却一直在5%左右稳定不变，但其他替代指标和报告都表明，中共国失业情况比官方数据糟糕得多。分析指出，大陆劳动市场的结构性问题已恶化，苦日子已经来了。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据报导，中共当局公布的2021年12月就业数据，城市失业率为5%，略优于疫情前的水准。但此调查数据只针对城镇户籍人口，事实上农村失业问题比城镇显著；官方数据也未纳入退出劳动力市场超过3个月的失业人数，加上中共国已经对数十万人进行了隔离，而一次隔离数周，不会被计入失业人口。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LA@OEF40XOB_FS_Q5K.png)图片来源：Cubed NY
+《经济日报》香港特派员李春，在去年12月专栏文章中预测，中共国2022年从事「双零」工作的人数可能超过3亿人。「双零」是指「灵活就业」和「零工经济」，分别对应就业数据表中没有统计进去的就业和兼职或自由职业者构成的自雇主就业。分析认为，中共官方数据仍在竭力掩盖劳动力市场的真实痛苦。
 
+另外，2年内数百万农民工人数的相对减少，可能会造成数千亿元的收入损失。一些市场人士认为，劳动人口外流的情况比官方数据显示的还严重。其次，经济下滑及疫情冲击下，服务业陷入困境、制造业出现萎缩，中共就业形势不乐观。
 
-1月13日，据新浪财经报道，纽约地产估价机构Miller Samuel与房产中介公司Douglas Elliman于周四发布的报告显示，12月曼哈顿公寓平均（月）租金达到4440美元，创历史新高，较上年同期上涨了21%。
+经济学家表示，从疲软的消费支出到严格的「清零」控制政策，再到中共对教育和房地产行业的监管打击，中共国的劳动力市场正面临巨大压力，而官方数据掩盖了大陆人失业的真实痛苦，近期讨论失业问题的人愈来愈多，普遍都担心苦日子来了。
 
-与一年前相比，去年曼哈顿有超过2.5万套空置公寓可供出租，有人预计，楼市的复苏可能需要数年时间。而现在，租金已超过疫情前的水平，今年的租金上涨给租房者带来了巨大冲击。
+消息来源:
 
-另据《纽约邮报》报道，12月上市库存同比暴跌81%，只有不到4,800套公寓可供出租。缺乏可用库存也影响了新租约的数量，本月新租约下降了近40%，仅为3,345份。由奥密克戎变种病毒驱动新冠病毒感染人数激增，也给公寓出租市场蒙上一层阴影。
+[中共掩盖失业真相人民喊苦](https://tw.news.yahoo.com/%E4%B8%AD%E5%85%B1%E6%8E%A9%E8%93%8B%E5%A4%B1%E6%A5%AD%E7%9C%9F%E7%9B%B8-%E4%BA%BA%E6%B0%91%E5%96%8A%E8%8B%A6-160000906.html)
 
-新闻链接：
-1、[纽约楼市全面复苏，曼哈顿12月房租创历史新高，年轻人梦碎|纽约楼市\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0112797.shtml)
-2、[Manhattan rents hit highest-ever December record as supply plummets (nypost.com)](https://nypost.com/2022/01/13/manhattan-rents-hit-highest-december-record-ever-as-supply-plummets/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

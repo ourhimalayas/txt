@@ -2,34 +2,34 @@
 ---
 
 
-## 美国制裁在中俄协助平壤武器项目的朝鲜人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1857996/)
+## 纽约公寓租赁市场复苏，曼哈顿12月房租创历史新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858107/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DAC919DF-13B1-44D5-9268-4C3965563957.jpeg)（图片来自《美国之音》）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据《美国之音》1月13号日报道，美国财政部制裁了几名居住在中共国和俄罗斯的朝鲜人，因为他们帮助平壤购买了武器项目物资。朝鲜自去年9月以来已经发射了六枚弹道导弹。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LA@OEF40XOB_FS_Q5K.png)图片来源：Cubed NY
 
-美国财政部反恐和金融情报事务官员布莱恩·纳尔逊(Brian Nelson)在一项声明中说，制裁是为了打击朝鲜“持续利用海外代表”帮助其制造武器的做法。朝鲜最近的导弹发射进一步证明，朝鲜完全忽略国际社会发出的外交和去核化呼吁，反而一意孤行继续推进违禁项目。
 
-被美国财政部指认并制裁的其中一人是居住在俄罗斯的朝鲜人，名叫崔明铉(译音)。财政部称，此人为具有武器项目的朝鲜公司购买了与电信有关的设备。
+1月13日，据新浪财经报道，纽约地产估价机构Miller Samuel与房产中介公司Douglas Elliman于周四发布的报告显示，12月曼哈顿公寓平均（月）租金达到4440美元，创历史新高，较上年同期上涨了21%。
 
-财政部还制裁了四名居住在中共国的朝鲜人。其中沈康锡(译音)为平壤购买钢合金，金成勋(译音)从中共国公司为朝鲜的总部购买货物。还有朝鲜第二科学院一家幌子公司的副代表卞光哲(译音)。而朝鲜第二科学院支持朝鲜的武器项目。
+与一年前相比，去年曼哈顿有超过2.5万套空置公寓可供出租，有人预计，楼市的复苏可能需要数年时间。而现在，租金已超过疫情前的水平，今年的租金上涨给租房者带来了巨大冲击。
 
-此外，在另一个相关行动中，美国国务院制裁了朝鲜人欧勇浩和俄罗斯公民罗曼·安纳托利耶维奇·阿拉尔(Roman Anatolyevich Alar)以及一家俄罗斯实体帕塞克有限责任公司(Parsek, LLC)。国务院指称他们从事了向朝鲜扩散大规模杀伤性武器并提供物质支持的活动或交易。
+另据《纽约邮报》报道，12月上市库存同比暴跌81%，只有不到4,800套公寓可供出租。缺乏可用库存也影响了新租约的数量，本月新租约下降了近40%，仅为3,345份。由奥密克戎变种病毒驱动新冠病毒感染人数激增，也给公寓出租市场蒙上一层阴影。
 
-美国财政部表示，任何与他们从事交易者、包括外国金融机构，都有可能受到制裁。
+新闻链接：
+1、[纽约楼市全面复苏，曼哈顿12月房租创历史新高，年轻人梦碎|纽约楼市\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0112797.shtml)
+2、[Manhattan rents hit highest-ever December record as supply plummets (nypost.com)](https://nypost.com/2022/01/13/manhattan-rents-hit-highest-december-record-ever-as-supply-plummets/)
 
-*参考链接：[美国制裁几名居住在中国和俄罗斯的朝鲜人，指控其协助平壤武器项目](https://www.voachinese.com/a/us-target-north-koreans-in-russia-china-for-aiding-pyongyang-weapon-programs-20220112/6394210.html)*
+发布： tianzhihuan
 
-* * *
-
-*素材采编：子辰*
-
-*编辑：文顺*
-
-*发布：miumiu*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

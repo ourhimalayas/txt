@@ -2,26 +2,30 @@
 ---
 
 
-## 接种辉瑞和莫德纳疫苗者将无法为新冠患者献血
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857918/)
+## 英国内政大臣：中共间谍试图影响英国议员
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1858053/)
 
-翻译：Julia Gao
-校对：枳实
-剪辑/字幕：蛮吉
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-19.jpg)英国内政大臣：中共间谍试图影响英国议员 网络图片
+据俄罗斯卫星通讯社暨《太阳报》1月14日报道，英国内政大臣普里蒂•帕特尔称，有一个叫“克里斯蒂娜•李”的中共国间谍涉嫌因为中共的政治目的干涉英国议会，议员们已经被警告。
 
-迈克尔·皮纳在路易斯安那新闻频道“生命的分享”栏目中说：“如果你注射了辉瑞或莫德纳疫苗，那么你在未来将因此基本上无法给新冠肺炎病人捐赠康复者血浆。”此外，他还表示，由于许多人已经接种了COVID-19疫苗，可能会出现血浆短缺的情况。当你接种疫苗后，疫苗会抹去机体内患有新冠后已经产生的抗体。
+现阶段没有议员涉嫌任何犯罪，军情五处调查的重点是中共政府及其损害英国的企图。李没有被捕，但仍处在安全部门的监视中。
 
-视频链接：[COVID jabs wipe out the antibodies developed from previous COVID infections. As a result,recipients of Pfizer or Moderna COVID-19 Vaccine are Ineligible to Donate their Blood to help covid patients.](https://twitter.com/HongliKong/status/1473878200769921028)
+中共国派遣了数不清的间谍，俗称“燕子”，到西方世界，试图拉拢或引诱议员或者有话语权的公众人物，刺探情报甚至影响政局。中共在指责其他国家干涉中共国内政的时候，从来没有停止过自己在其他国家的间谍行为。中共已经引起了全世界各个国家的警觉，想要保持自己国家的独立、民主和法治，就要提高警惕、远离中共。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻参考链接：[https://sputniknews.cn/20220114/1037088504.html](https://sputniknews.cn/20220114/1037088504.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
