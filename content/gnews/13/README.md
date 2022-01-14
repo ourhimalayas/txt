@@ -2,32 +2,32 @@
 ---
 
 
-## 天津107例感染者中103人已全程接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1860101/)
+## 七哥谈人类实在真的很渺小（2022-01-09摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860209/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月13日，据中共国内媒体消息显示，中共天津市卫生健康委员会的官员在当天的病毒疫情新闻发布会上表示，该市已对现有的107例中共病毒感染病例进行了完整的调查分析。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-14-上午11.28.57.png)
-而这些报告指出，在所有感染者中，有103例患者已经完成了中共病毒疫苗的全程接种，其中，有32人还接种了疫苗加强针。此外，有3例患者仅接种了一剂次灭活疫苗，只有1例患者尚未接种任何疫苗。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-相关人士则评论称，目前，来自全球的数据都已明确显示出，全程接种中共病毒疫苗及其加强针非但不能预防接种人群感染中共病毒，反而会造成更高的感染率。
+来源：郭先生2022-01-09直播11：02：38摘录
 
-参考链接：*[天津107份感染者流调分析情况公布 出现11起家庭聚集疫情](http://news.enorth.com.cn/system/2022/01/13/052244592.shtml)*
+我刚才有一句话忘了回答小王子，人类上有没有生命？有的。我认为海底的生命和山里的生命比我们还丰富，我深信不疑。我不是相信，我就是比相信我是个人还相信，就这么简单。除非是无知，你就是脑子进水了。你但凡进过海母的群游泳过，你去过鲸鱼海去游泳过，你到过海底潜过水，你即见过深山的所谓的幽洞，还有那些玻璃洞、琉璃洞什么的，你看过一个十几米的蛇，还有蛇山坦桑尼亚的蛇山，还有你看到的坦桑尼亚的蚊子叮到你的皮肤上，在你的皮肤里下一窝籽出来，能长出来，要你的命，你去过坦桑尼亚大草原、沙哈拉沙漠，你去过俄罗斯的整个的白熊北极，你去过南极，你就知道人类实在真的很渺小，当然有啦，当然有啦，一定有的。而且我相信在南极北极还有山下，还有我们人类上75亿人在就是75个细菌，打一针疫苗45万亿、40万亿个份子，你在地球上连根毛都不算，多么的无知啊，多么的无知啊。这些话说得太长了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编：文特
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

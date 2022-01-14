@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|墨西哥总统再次感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1859893/)
+## GTV新闻访谈简报|2022年1月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
+视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
 
-对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
 
-即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
-
-文字版原文：[墨西哥总统再次感染中共病毒](https://gnews.org/zh-hans/1851530/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
