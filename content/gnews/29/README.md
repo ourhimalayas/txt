@@ -2,46 +2,51 @@
 ---
 
 
-## 秘翻在线：余建明先生谈加密货币——不是实物黄金 但可能是数字黄金
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858337/)
+## 飞行员因疫苗强制政策而起诉拜登政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858344/)
 
-**翻译：文斗**
+#### 翻译：Julia Gao
+校对：枳实
+剪辑/字幕：向上James
 
-**校对：人间四月**
+英汉对照字幕：
 
-本文是William先生（没错，就是郭文贵先生讲喜联储喜币时经常提到的那位William）于2021年10月22日（喜币上市前8天）发表于彭博税务（bloombergtax）的文章，用通俗易懂的语言解读了加密货币的存在意义与价值所在。相信真正数字货币业内精英的专业解读有助于我们理解数字货币，理解喜币、喜联储。
+I too did not want to get the vaccine. I’ve never had a flu shot in my life. Injecting experimental drugs into me? Not something I ever wanted to do.
 
-**货币要蓬勃发展，信任是最重要的因素。**
+我也不想打疫苗。我这辈子都没有打过流感疫苗。给我注射实验性药物? 这压根儿就不是我想做的事情。
 
-现在得出投资者相信和信任加密货币价值之结论还为时尚早，但趋势肯定是积极的。许多投资者将现金及等价物、债券和股票视为传统金融投资的三大要素，而加密货币崛起，已经引发是否将其视为一种新资产类别的思考与争论。
+Traveling between the state that I live in Hawaii and California where I have family, two states that have archaic travel restrictions. I decided between the pressure that in my airline that was going to require a mandate vaccine. I went and got the jab.
 
-中小型企业、家族企业、大公司、资产管理公司等等，都在投资加密货币市场。
+我居住在夏威夷州，而我家人居住在加利福尼亚州。所以我需要在有旅行限制的这两个州之间旅行，再加上我所在的航空公司也有疫苗强制政策，我在这些压力之下做出了决定。我去接种了疫苗。
 
-**稀缺性增加了资产价值。**社会的广泛采用，加上其隐私性、安全性和可转移性，使加密货币成为储存价值的重要资产类别。全球货币已经贬值。
+I did it 11:30 in the morning at Hawaii. Everything was normal. I went to bed, woke up at 3:30 in the morning with my heart pounding out of my chest. I went to the ER they hooked me up quickly to EKG IVs did blood work quickly determined that I was in atrial fibrillation.
 
-**金融业需要解决并支持围绕监管的政府举措**。
+我是在夏威夷接种的疫苗。上午11点30分接种的。当时一切都正常，我就去睡觉了，早上3点30分突然醒来，感到我的心脏剧烈跳动，似乎要跳出胸膛。我去了急诊室，他们很快给我做了心电图，做了静脉滴注，并很快诊断为房颤。
 
-毫无疑问，加密货币是一个新的资产类别，随着时间的推移，它将越来越多地获得机构投资者的认可和参与。
+So major cause of stroke as Lee said, there’s a critical phases of flight where this stuff when I certify it to go fly, I have to check off a box before I go fly you lovely people wherever you want to go before I take that multimillionaire plane.
 
-**它可能不是实物黄金，但它很可能是数字黄金。**
+正如李所说的，房颤是中风的主要诱因。执行飞行有一个关键阶段：在我飞行之前，当我驾驶着那架价值数百万的飞机，带着你们这些可爱的乘客去目的地之前，我必须要进行自检，对每一个方框进行打勾，以确认我能够飞行。
 
-以下是William 先生简介，并随附全文翻译。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/111-1.png)
-Mr. William Je 简介，中文名余建明（JE,Kin Ming）
+I checked this box and it says I’m fit to fly. That was before COVID That’s when you knew Yeah, I have food poisoning. I’m cold, have a cold, whatever. Here. You never know when the genies gonna come out of the bottle and smack you down.
 
-余建明先生是汉密尔顿投资管理有限公司的首席执行官，掌管一家管理着数十亿资产的全球基金。他的投资组合包括对持牌银行、金融科技和社交媒体项目的私募股权投资以及多策略算法交易基金。他也是**喜马拉雅交易所的创始人**（一家拥有完整生态系统的全球数字交易所，包括区块链支付应用、稳定币和交易币）。
+我做了检查，结果是我适合飞行。那是在新冠之前（设计的表格）， 你知道， 题目都是些：“是否得了食物中毒？是否感觉很冷？是否感冒了？等等勾选项。但是现在，你永远不知道这些鬼家伙（房颤诱发的中风）什么时候会莫名其妙地钻出来，把你击倒。
 
-在此之前，余建明曾在麦格理银行集团担任大中华区股票资本市场主席10年，管理其大中华区资本市场和主要投资活动。在加入麦格理之前，余建明曾担任招商证券（香港）有限公司的合资伙伴和董事总经理，帮助其在香港从零开始建立业务。余先生还曾担任法国农业信贷银行的执行董事及其证券部门Indosuez W.I. Carr Securities的董事会成员；Dresdner Kleinwort Wasserstein的董事兼业务发展主管以及NatWest Markets的副总裁。
+I could have stroked out at 100 feet trying to land an airplane with 40 Airplanes lined up next to us. I could have just pushed down on that stick before the person next to me could do anything. We’re in a it’s all over for a lot of people. Not a good scenario.
 
-余建明先生成功领导完成了80多项全球首次公开募股、并购和主要投资交易，金额达600亿美元。济先生被《国际名人录》评为全球领先的投资专家，并因其对中美关系的贡献而被授予美国华盛顿州的荣誉公民身份。余建明先生是香港国际区块链和金融协会的副主席，该协会是一个推广区块链技术和倡导加密货币市场监管的非政府组织。
+我可能会突然中风，恰逢驾驶着飞机，在100英尺的高度，试图降落在已经有40架飞机列队停靠的飞机场时发病。我可能在我的副驾驶还没有来得及反应之前就把操纵杆压下去（而导致坠机）。很多人都会因此结束他们的生命。这当然不是一个美妙的设想。
 
-余建明毕业于曼彻斯特商学院和威尔士大学（英国），获得工商管理硕士学位。余建明是英国特许公认会计师协会和香港会计师公会的资深会员。他也是注册财务顾问（美国）的成员。
+Pete Buda judge and telling you anything about this, the administration is not, the NIH, the CDC, they suppress all this stuff. There’s a number of pilots out there that are fearful to come forward and speak. They’re fearful of retribution. There’s guys that are going to work with crushing pains in their chest in their heads. They’re scared that they’re going to lose their careers because they’re 25 years old. This has got to stop.
 
-**[新闻来源](http://原文链接：https://news.bloombergtax.com/daily-tax-report-international/cryptocurrency-not-physical-gold-but-maybe-digital-gold)**
+Pete Buttigieg（美国运输部长）没有告诉你们这些，美国政府也没有，包括国立卫生研究院，疾病控制与预防中心，他们都压制所有这些信息 (疫苗对飞行员的伤害)。有一些飞行员害怕站出来说真话；他们害怕遭到报复。有些飞行员会强忍着胸口和头部的剧烈疼痛而坚持工作。他们害怕失去他们的职位，因为他们只有25岁！这些情况必须要停止！
 
-[Cryptocurrency\_\_Not\_Physical\_Gold\_But\_Maybe\_Digital\_Gold（中文全文翻译）](https://assets.gnews.org/wp-content/uploads/2022/01/Cryptocurrency__Not_Physical_Gold_But_Maybe_Digital_Gold（中文全文翻译）.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Cryptocurrency__Not_Physical_Gold_But_Maybe_Digital_Gold（中文全文翻译）.pdf)
+发布：枳实
 
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

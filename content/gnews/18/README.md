@@ -2,67 +2,65 @@
 ---
 
 
-## 西澳州长马克•麦高恩扩大了对未接种疫苗者的限制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858449/)
+## 南非高校强制接种疫苗迎来转机，将按普通流感治疗中共病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1858497/)
 
-翻译：Little lamp
-编辑：李易通
+作者：香草山健身部 – 正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2021年10月8日，为了准备2022年新一年的开学季，南非政府部门——高等教育和培训健康与发展中心召集了南非26所大学的学生代表委员会、校长参加了一次闭门会议。会议主要的议题在于就大学强制性疫苗接种的监管问题进行咨询。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/7E8BLVGMJN@59DFJVB.png)图片来源：ABC News
+从会议纪要中，我们可以发现，与会的南非高校对于疫苗的态度大致上分为两种：第一种以开普敦大学为代表的“强制派”。他们主张，从2022年1月1日起，作为注册条件，所有教职员工和学生提供可接受的证明，证明他们已接种过中共疫苗。那些申请学习或就业的人，以及访客和服务提供商，将被要求接种疫苗。
 
+![](https://researchresearch-news-wordpress-media-live.s3.eu-west-1.amazonaws.com/2021/10/no_vaccine_no_entry_sign-738x443.jpg)
 
-从1月31日起，西澳大利亚人必须提供COVID-19疫苗接种证明才能进入各种场所进行活动，因为州长Mark McGowan试图避免他所说的新南威尔士州的“灾难”。
+对此，金山大学大学、约翰内斯堡大学也表示出了相似的观点。金山大学大学负责人Shirona Patel 表示，他们正在就是否应该让选择不接种疫苗的学生进行日常健康检查、戴上 N95 口罩并自费每周进行中共病毒测试进行咨询。如果咨询通过，访问大学的人员也将照此标准执行。
 
-州长在周四的新闻发布会上说，医院、老年护理机构和所有接待场所（包括酒馆和酒吧、咖啡馆、夜总会和堂食快餐店）的16岁及以上人员都需要提供双倍剂量疫苗接种证明。
+相比之下，也有很多高校表示完全不同以强制接种疫苗的做法。
 
-“当新南威尔士州在12月中旬取消疫苗接种要求的证明时，我们已经看到了他们的灾难。我们也从他们的错误中吸取了教训，并决心不再重蹈覆辙”，州长说。
+比勒陀利亚大学副校长 Tawana Kupe 教授明确表示，我们并不热衷于强制接种疫苗。关于一般的强制性疫苗接种，我目前不赞成。我们应该给予鼓励、说服和同行讨论的机会，使人们能够做出接种疫苗的决定，而不是强迫。
 
-疫苗接种要求还将扩展到室内娱乐场所、酒类商店、健身房、健身中心和健康工作室、游乐园和动物园。
+夸祖鲁-纳塔尔大学发言人 Normah Zondo 说：大学期望员工和学生在自愿的基础上接种疫苗，这是基于他们对减轻传播和保护免受致命病毒的重要性的了解。
 
-根据扩展的规定，对于未接种疫苗的人来说，他们可以去的地方的选择将非常有限，但McGowan先生没有为严厉的新措施道歉。
+虽然这次讨论没有出现一个大家都能接受的成果。但是政府借此机会了解到了各高校对待疫苗的态度。
 
-“如果你选择不接种疫苗，你就是在选择让自己处于危险之中，你就是在选择让你周围的人处于危险之中，你就是在选择增加我们卫生人员的负担。”
+2021年11月23日，高等教育、科学和技术部长Blade Nzimande暗示，大学疫苗的要求会成为整个教育系统的要求。“南非大学已经为大学准备了指导方针，以在他们讨论强制疫苗接种时考虑和指导他们。”
 
-McGowan 先生表示，疫苗接种证明要求将适用于整个西澳，他预计该要求将在“未来几年”内实施。
+当部长发表意见的一周之后，12月1日，威特沃特斯兰德、斯泰伦博斯、西开普和自由州的大学已批准在 2022 学年实施某种形式的强制性疫苗接种。最初不同意强制接种疫苗的高校，也不得不做出让步。
 
-他还表示，预计未来疫苗接种要求将扩大到三剂。
+众所皆知的是PCR测试在中共病毒测试上非常的不准确，很难区分普通的流感病毒和中共病毒。即便如此，2022年1月13日，NEWS24报道，虽然南非夸祖鲁-纳塔尔省省内大学将不会要求教职员工和学生完全接种疫苗才能进入校舍，但是必须提供48小时内PCR测试结果。尽管，我们不必猜测夸祖鲁-纳塔尔省出台这项政策的目的，但是实际上，这种方式无疑会迫使学生更多的接受疫苗。
 
-“我们的期望是，为了完全接种疫苗，联邦政府会规定三剂疫苗，一旦这一规定生效，我们将在适当的时候转向三剂疫苗的规则。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1059.png)
 
-酒店隔离变化
+2022年1月1日至24日，是南非高校注册日。如果截止到1月24日，南非绝大多数的高校仍然强制要求学生注射疫苗，结合正道新闻此前的报道，南非学生联盟将会采取一切手段抵制高校的疫苗强制令。此前学生联盟表示为此不排除司法起诉，罢课、游行等手段。
 
-McGowan先生还宣布了对西澳酒店检疫系统的规则改变。
+似乎一场学生于高校之间的矛盾一触即发之时，南非国家卫生部门的代理总干事，Nicholas Crisp的发言可能会改变现在的学生于高校之间的对立局面。
 
-“即日起，在酒店隔离的第一天和第六天接种了双重疫苗并记录 PCR阴性结果的旅客，如果他们有合适的隔离场所，他们将能够在第八天离开酒店隔离区。”
+Nicholas Crisp在南非媒体eNCA采访时谈到，南非可能已准备好从将中共病毒由之前流行病转变为地方病，这意味着该病毒将得到与流感类似的治疗。一旦病毒的不再对人群起到致命性威胁之后，相关的疫苗政策，隔离政策也将会重新书写。此时南非高校与学生之间的矛盾也就迎刃而解。
 
-“他们将能够使用G2G应用程序在合适的场所完成最后7天的隔离。”
+参考文献
+1. [南非学生联盟反击高校强制接种疫苗政策](https://gnews.org/zh-hans/1844329/)
+2. [eNCA on twitter](https://twitter.com/eNCA/status/1481495669407948802)
+3. [Jabs not mandatory at KZN varsities, but PCR tests required](https://www.news24.com/witness/news/kzn/jabs-not-mandatory-at-kzn-varsities-but-pcr-tests-required-20220113)
+4. [Who We Are](https://higherhealth.ac.za/about-us/who-we-are/)
+5. [Registration for the 2022 academic year opens on 4 January 2022](https://www.unisa.ac.za/sites/corporate/default/News-&amp;-Media/Calendar-&amp;-events/Events/Registration-for-the-2022-academic-year-opens-on-4-January-2022)
+6. [Five South African universities make Covid jabs mandatory](https://www.researchprofessionalnews.com/rr-news-africa-south-2021-12-five-south-african-universities-make-covid-jabs-mandatory/)
 
-他说：“他们还需要在第9天和第12天进行 PCR 检测，如果第12天的检测结果呈阴性，他们可以在第14天结束时结束隔离。”
+![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
 
-快速抗原检测
+**校对/发稿：童谣**
 
-McGowan先生预计西澳政府将在2月5日之前进行850万人次快速检测，其中还包括私人采购的物资。
+**更多资讯，更多关注**
 
-周一，快速检测在西澳合法化，但药剂师一直担心缺乏有关其使用的指导方针。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“我们将一直关注东部地区的状况”，McGowan先生说，“关于快速抗原检测的规则将基于东部的最佳实践经验。”
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-关于其它州遇到的RAT测试供应问题，McGowan先生表示，西澳将“尽最大努力”避免同样的问题。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-他说：“在新冠疫情之下没有什么事情是能达到完美的。”
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-“将会遇到困难，也会遇到问题。但人们会从中有所收获。我们正在尽最大努力以确保我们尽可能地做好准备。”
-
-原文链接：[‘No pubs, no bottle shops, no gym’: WA Premier Mark McGowan widens restrictions on the unvaxxed, says rules will be in place ‘for years to come’](https://www.skynews.com.au/australia-news/politics/no-pubs-no-bottle-shops-no-gym-wa-premier-mark-mcgowan-widens-restrictions-on-the-unvaxxed-says-rules-will-be-in-place-for-years-to-come/news-story/cbe7638131ccd3b6db61357e2c929d83)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

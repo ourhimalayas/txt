@@ -2,32 +2,42 @@
 ---
 
 
-## 飞行员挺身作证：被迫接种新冠疫苗后出现心脏问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858491/)
+## 信用卡巨头Visa将为各国央行数字货币打造接口
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858521/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### **【雅典娜观察】和您一起探究世界**
 
-翻译: 美哥
-编辑：美哥/小红帽
+整理报道：文扬
+编辑：文泓
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Y9Z36OEZJZLZ5PJ4GY.png)图片来源：Pymnts.com
 
 
-据《信息战》1月13号报道，美国航空公司机长格雷格·皮尔森（Greg Pearson）回忆说，在他接受工作强制要求的新冠疫苗注射后，患上了心房颤动方面的疾病。
+**1****月13日，据雅虎新闻报道，信用卡巨头Visa周四宣布，它将通过与区块链软件公司共识系统（Consensys）合作，为各国中央银行数字货币(CBDC)建立一个接口，进一步扩展其加密货币服务。**
 
-上个月皮尔森在新闻发布会上提供了他的证词，称其在雇主的压力下决定接受注射新冠疫苗。
+**这家支付巨头的目标是创建一个“CBDC加密沙盒”，该沙盒将在春季推出，中央银行可以在使用共识系统的Quorum协议完成铸币后，尝试该技术应用。**
 
-“由于我需要在居住的夏威夷州和加利福尼亚州故乡之间往返，而这两个州都存在过时的旅行限制。我决定在压力和航空公司要求强制接种新冠疫苗之间作出决定，于是我去注射了疫苗。”皮尔逊说，他被注射疫苗后，有时会因胸痛而半夜醒来。
+**这一合作关系是蓬勃发展的加密数字货币市场的最新进展，各国央行争相铸造自己的数字货币，成熟的金融公司也在涉足加密货币支付。**
 
-“我是在夏威夷的早上11:30打的疫苗。当时一切都很正常，然后我就去睡觉了。到凌晨3:30醒来时，我的心怦怦直跳。我去了急诊室，他们很快给我做了心电图，静脉注射，血液检查，确定是心房颤动。这是导致中风的一个主要原因。”
+**“中央银行正在从研究转向真正想要拥有可以试验的有形产品，”Visa组织的加密业务负责人朱伊·谢菲尔德说。**
 
-据皮尔森说，如果当时他正在驾驶一架巨型飞机，这次心脏病急性发作可能会使数百人丧生。
+**CBDC****可以运行分布式账本或区块链技术构建的协议。与比特币(BTC-USD)或以太坊(ETH-USD)等加密货币不同，CBDC协议始终是“许可的”，这意味着中央银行保持货币和治理控制。**
 
-在航空业还有其他飞行员也有同样的感受，但他们不敢站出来，因为担心会遭到报复。他说：”有些人会在胸口和头部的剧痛的情况下去工作。因为他们是25岁的人年轻人，他们害怕失去工作。”
+**该合作关系为CBDC采用了“两级”分销模式。中央银行将在共识系统的Quorum上设计他们的数字货币，在那里他们将设定其货币和治理规则。然后，他们使用Visa的基础设施，通过商业银行等金融中介机构分发该货币。**
 
-去年9月份，陆军飞行外科医生特蕾莎·朗（Theresa Long）中校于向五角大楼建议让所有接种新冠疫苗的飞行员停飞，因为他们在飞行期间有心脏骤停的风险。
+**自2019年以来，Visa一直涉足与加密货币相关的产品，利用其现有的支付网络作为建立购买加密货币的“入口”和将其转换回法定货币的“出口”的优势。**
 
-参考新闻：[Major Airline Pilot Describes Heart Problems Following Covid Vaccine: “I Could Have Stroked Out at 100 Feet Trying to Land an Airplane”](https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/)
+**它已经用一种稳定币进行交易结算，最近还开设了一个加密货币咨询服务，为探索自己的加密货币计划的银行提供服务。**
+
+**在过去一年半中，探索CBDC的国家数量增加了一倍多。根据大西洋理事会的CBDC追踪器，至少87个不同的国家（占全球国内生产总值的90%）正在以某种方式权衡（新的）金融技术。**
+
+**目前，九家中央银行，包括尼日利亚、巴哈马和其他七个加勒比国家的中央银行，已经推出了CBDC。与此同时，中国准备在下个月2022年冬奥会期间向外国游客公布其试点数字人民币。**
+
+**与此同时，美联储等主要央行预计不会很快发行数字货币。在本周早些时候的再次确认听证会上，美联储主席鲍威尔表示，美联储期待已久的关于CBDC的文件将在“未来几周内”发布，但除此之外没有给出明确的时间表。**
+
+**长期以来为美国财政部和美联储提供CBDC咨询的电子货币（eCurrency）公司的一位高管在10月份告诉雅虎财经，国会必须在美联储和美国财政部发行央行支持的代币之前给予授权。**
+
+**原文链接：**[**Visa,Consensys partner to build tech for central bank digital currencies (yahoo.com)**](https://news.yahoo.com/visa-consensys-partner-to-build-tech-for-central-bank-digital-currencies-050113963.html?guccounter=1)
 
 发布：tianzhihuan
 
@@ -35,7 +45,7 @@
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

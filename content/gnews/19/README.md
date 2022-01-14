@@ -2,33 +2,18 @@
 ---
 
 
-## 中共国信用卡即将全面刚性扣减
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858444/)
+## 广东珠海确诊1例新冠病毒核酸阳性案例
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1858492/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：追着曙光跑
 
-整理报道：BENJ1
-编辑：Kelly
+据“珠海香洲”微信公众号14日消息，14日珠海市在核酸检测中发现1名居民新冠病毒初筛阳性，经珠海市疾控中心复核为阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-15.58.38.jpeg)图片来源：网络
+患者是一名女性，住在南屏镇将军山榕园2栋。该名患者是在大规模核酸检测中发现，现已转送至中大五院隔离治疗，临床诊断待出。相关密接者、次密接者及重点人员正在排查中，其居住、工作及相关重点区域已实施管控措施。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+珠海市是广东这个月以来，继深圳市和中山市之后发现确诊案例的城市。
 
-
-据说，2022年信用卡将全面实行“刚性扣减”的政策，想获得更高额度的信用卡，在未来可能成为一种奢求。
-
-所谓“刚性扣减”，指银行在审批额度时，将扣减申请人在其他银行持有的信用卡总额度，最后给出一个符合资质的额度。
-
-刚性扣减其原因不言而喻，刚性扣减的主要目的是控制信用卡风险，比如个别持卡人授信过高，卡透支后无力偿还等风险。另外，信用卡逾期率不断上升，坏账率也紧跟其上，如不加以制止，长此以往会引发更大的风险。
-
-参考新闻：[https://cj.sina.com.cn/articles/view/7506507237/1bf6c35e5001012ph6?cre=tianyi&mod=wftop&loc=5&r=0&rfunc=56&tj=cxvertical\_wap\_wftop&tr=182](https://cj.sina.com.cn/articles/view/7506507237/1bf6c35e5001012ph6?cre=tianyi&amp;mod=wftop&amp;loc=5&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[珠海发现1例新冠病毒核酸阳性个案](https://mp.weixin.qq.com/s/FHewnLrzFv9WyBgrordnPA)
 
  
 

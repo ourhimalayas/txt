@@ -2,41 +2,39 @@
 ---
 
 
-## 突然炸雷！200亿市值“国际医学”直接被ST
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858509/)
+## 奥米克戎爆发证实疫苗强制计划无效
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858531/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河勇气星 – 骄子 / MOS 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月10日，相关媒体报道显示，美国联邦法院正在复核拜登政府推行的中共病毒疫苗强制接种令，并计划对此进行聚焦于行政问题上的口头辩论。
 
-整理报道：BENJ1
-编辑：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-9.jpg)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+据悉，美国职业安全与健康管理局于2021年11月发布了联邦政府要求大企业强制员工接种中共病毒疫苗的政策。当时，该政令的依据为，联邦政府声称接种疫苗可有效防止中共病毒的感染及传播。
+
+然而，奥密克戎变种病毒目前正在大规模爆发，这使法院先前对于强制疫苗政令的评估已然无效。数据表明，奥密克戎在疫苗接种人群中大范围传染，同时，疫苗非但不能有效防护接种者，甚至会使接种人群更易感染该变种。
+
+报道提及，如果没有任何证据能够表明中共病毒疫苗可以有效阻止中共病毒的传播，那么联邦政府的疫苗强制令就相当于违背了法律、法理和公共利益，对此，美国最高法院或将因此撤回对该强制疫苗令的授权。
+
+参考链接：
+
+- [Omicron Makes Biden’s Vaccine Mandates Obsolete](https://www.wsj.com/amp/articles/omicron-makes-bidens-vaccine-mandates-obsolete-covid-healthcare-osha-evidence-supreme-court-11641760009)
 
 
-A股上市公司又炸了一雷。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-1月13日晚间，国际医学（000516，SZ）发布公告称，股票自1月17日起被实施其他风险警示。
+总编：Zion文恩 / Irene木木
+编辑：Irene木木
+校正/发稿：海阔天空1
 
-此前，因“西安孕妇流产”“心梗患者去世”事件，其下属两家医院遭停业整顿3个月。
-
-经西安市卫生健康委员会研究，对两家医院作出停业整顿3个月，期满整改合格后重新开诊等处理意见。根据规定，该事项触发了“上市公司股票被实施其他风险警示”的相应情形。公司股票自1月14日开市起停牌一天，自1月17日开市起复牌。公司股票自1月17日开市起被实施其他风险警示，公司股票简称由“国际医学”变更为“ST国医”。
-
-1月13日上午开盘后不久，国际医学直线跌停封板，全天封死跌停，卖单超76万手，最新市值为190.5亿元。
-
-截至2021年第三季度末，国际医学普通股东户数已经超过14万户，估计部分持股者今晚忐忑难眠了。
-
-参考新闻：
-[https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&mod=wftop&loc=7&r=0&rfunc=56&tj=cxvertical\_wap\_wftop&tr=182](https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&amp;mod=wftop&amp;loc=7&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
