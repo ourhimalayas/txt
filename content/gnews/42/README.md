@@ -2,23 +2,41 @@
 ---
 
 
-## 港闻速递｜英军情五处指控华人律师李贞驹是中共间谍 中港金主幕后操控
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1858216/)
+## 有声|摩西的启示——撂挑子，再担起来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1858366/)
 
-**撰文/ 港台前线关注组｜发布日期/ 14/1/2022**
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/英軍情五處指控華人律師李貞駒是中共間諜-中港金主幕後操控.jpg)
-英国《太阳报》周四(13日)报道，军情五处向英国国会发出罕有警示，指控华人律师李贞驹(Christine Lee)是中共间谍，利用捐款的方式，协助中共与议员建立关系，全面渗透国会及政界，意图干预英国内政。
+配音：香草山福音部 – Daxia
 
-据调查指，李贞驹的背后金主，是来自中国大陆和香港的非英籍华人，目的是为了塑造有利中共议程推进的政治环境。
 
-是次丑闻牵涉在野两党，包括，自由民主党党魁 Ed Davey，十年收受5000万英镑捐款；工党议员Barry Gardiner，5年内收受42万镑的捐款，并聘请李贞驹儿子做助理等等。
 
-事件严重程度震惊英国政坛。国会下议院议长贺立绅（Sir Lindsay Hoyle）保守党前党魁施志安（Lain Duncan Smith)分别公开谴责，并要求政府向国会作解释。
 
-* * *
 
-来源｜[TheSun](https://www.thesun.co.uk/news/17317739/chinese-spy-mp-christine-lee-communist-agent/)
+圣经处处都是真实的人性。不管多么伟大的史诗般的人物，既有荣耀神的光芒，也有软弱和不自信，甚至背离神。都是在神的帮助下才能持守住，得成就。出埃及记中的摩西也是这样。摩西被神召唤的时候，已经80岁，是个耄耋老人了，他常说自己口笨拙舌。神让他带着百万以色列人出埃及*（编者按：圣经[《出埃及记》](https://wd.bible/exo.12.37.cunps)*[*12:37*](https://wd.bible/exo.12.37.cunps)*记载，步行男人约60万，推测总数应有二百万左右）*，谁能自信得起来呢！
+
+
+
+**文字版原文：[摩西的启示——撂挑子，再担起来](https://gnews.org/zh-hans/1850157/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

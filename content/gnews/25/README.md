@@ -2,41 +2,27 @@
 ---
 
 
-## 世卫组织、欧洲药管局警告重复接种加强针有害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858529/)
+## “韭菜”护“镰刀”现象的根
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1858682/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，世卫组织和欧洲药品管理局公开声明，频繁接种中共病毒加强针危害免疫系统。
+澳喜文飞
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-7.png)图片为自主编辑
+我所说的“韭菜”护“镰刀”的现象就是我们常常面对的而又百思不得其解的——穷苦草根在言论上（至少是表面上言论）处处拥戴中共，处处为中共的所谓成就自嗨，即使这一些成就与他们没有毛关系；比如说：高楼大厦、政府的高级楼堂馆所、没有发动机的大飞机、冒黑烟的航母、还有常常会掉下来的长征火箭、落后20年的光刻机；细想一下这一些他们嘴里得强国的标志，似乎与他们的衣食住行没有任何关联，甚至还是用了他们的血汗换来的税金换取的，但是他们还是那么自豪！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4-scaled.jpg)
+今天我们就来讨论一下他们的思想根源，他们为什么那么嗨（自豪）？
 
-欧洲药品管理局、生物健康威胁和疫苗战略负责人马可·卡瓦莱里，在新闻发布会上警告说，疫苗加强针不应该重复施打，频繁地接种加强剂可能会对免疫系统造成危害。
+他们是既得利益者吗？不是！他们大多是黎民百姓，顶多有一两套还在供房贷的房子，他们没有钱送孩子出国留学，他们可能还没出过国，哪怕是港澳新马泰（有报告显示，中共国只有一亿人有过出境记录），但是在他们的语境中他们又那么轻视一起外国！
 
-当天晚些时候，世卫组织也在一份声明中说，基于原始疫苗成分的反复强化剂量的疫苗接种策略是不合适的，也是不可持续的。
+他们信仰共产主义？如果是那我会为他们无知的信仰敬礼的！其实他们不信也不懂！更没有读过共产党宣言（党不认为他配！）。
 
-分析人士称，两大机构突然改变风向，或因为疫苗副作用的数据令人震惊，并且他们要为下一步官方公布停止疫苗强制接种，做好铺垫。
+他们既不得益，又不持信仰，但是他们处处拥护着割他们韭菜的镰刀！
 
-参考链接：
+我思来想去似乎找到了他们的思想根源！那就是“黑社会英雄主义”！
 
-- [FRIGHTENING: WHO Joins EU and Changes Direction — Suddenly Warns Against Taking Continued COVID Booster Shots](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-- [Interim Statement on COVID-19 vaccines in the context of the circulation of the Omicron SARS-CoV-2 Variant from the WHO Technical Advisory Group on COVID-19 Vaccine Composition (TAG-CO-VAC)](https://www.who.int/news/item/11-01-2022-interim-statement-on-covid-19-vaccines-in-the-context-of-the-circulation-of-the-omicron-sars-cov-2-variant-from-the-who-technical-advisory-group-on-covid-19-vaccine-composition)
-- [Frequent Boosters Spur Warning on Immune Response](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
+黑社会里他们没有正邪之分，谁能霸到地盘谁就是老大！老大越狠就越多小弟追随！老大越猛老弟就越有自豪感，他们的自信心也随之而来，他们以他们老大的“强大”而自豪，我称之为黑社会英雄主义。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001
-编辑：文真
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+现在就不难理解韭菜们为割他们镰刀呐喊了吧！为中共呐喊的粉红们根本不信仰共产主义，他们只是为他们的老大“强大”而自豪吧！只要老大不强了，他们也就散了！ 有新中国联邦在，他们的老大“强大”不了几天了！他们也快散了.
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

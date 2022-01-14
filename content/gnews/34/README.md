@@ -2,51 +2,44 @@
 ---
 
 
-## 飞行员因疫苗强制政策而起诉拜登政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858344/)
+## “金域”等中共国公司靠核酸检测究竟发了多少疫情财
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858586/)
 
-#### 翻译：Julia Gao
-校对：枳实
-剪辑/字幕：向上James
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片4-14.png)
+（图片来自 Kevin Frayer/Getty Images）
 
-英汉对照字幕：
+自中共病毒疫情爆发以来，中共国几乎人人都做过核酸检测，有些人甚至做过数十次之多。在中共的“清零”防疫政策之下，只要某地出现零星确诊个案，哪怕只有一例疑似病例，往往全员就要进行强制核酸检测，并且还要多轮检测。那么2021年，中共国人究竟做了多少次核酸检测？与核酸检测相关的企业又究竟赚了多少钱呢？
 
-I too did not want to get the vaccine. I’ve never had a flu shot in my life. Injecting experimental drugs into me? Not something I ever wanted to do.
+据《希望之声》1月14日报道，近日，随着广州金域医学检验集团郑州区域负责人被河南省许昌市公安局立案调查，有关核酸检测的问题逐渐引起了人们的关注。
 
-我也不想打疫苗。我这辈子都没有打过流感疫苗。给我注射实验性药物? 这压根儿就不是我想做的事情。
+每当中共国某地出现疫情，都要进行一轮又一轮的全员核酸检测。到底检测了多少人，中共官方公布的数据不足为信，而人们也很难统计。不过，从核酸生产企业的销量却能看出大致数量。
 
-Traveling between the state that I live in Hawaii and California where I have family, two states that have archaic travel restrictions. I decided between the pressure that in my airline that was going to require a mandate vaccine. I went and got the jab.
+“金域医学”原本不是一家出名的公司，但在1月12日，该公司郑州区域负责人因违反《传染病防治法》规定，“实施引起新冠病毒（中共病毒）感染肺炎传播或者有传播严重危险的行为”而被立案调查后，人们才发现，在南京、满洲里、西安、郑州这几波大的疫情中，“金域”都是主要参与者。
 
-我居住在夏威夷州，而我家人居住在加利福尼亚州。所以我需要在有旅行限制的这两个州之间旅行，再加上我所在的航空公司也有疫苗强制政策，我在这些压力之下做出了决定。我去接种了疫苗。
+金域公司在中共国国内有73家成员企业，分布极广。网友发现，金域医学成立之初，是钟南山担任院长的广州医学院（广州医科大学前身）的校办企业。2018年9月，金域医学还与广州呼吸健康研究院联合成立了“临床呼吸道病毒诊断与转化中心”，由钟南山亲自担任主任，同时他也是金域医学学术委员会主席。
 
-I did it 11:30 in the morning at Hawaii. Everything was normal. I went to bed, woke up at 3:30 in the morning with my heart pounding out of my chest. I went to the ER they hooked me up quickly to EKG IVs did blood work quickly determined that I was in atrial fibrillation.
+那么，与钟南山密切相关的这家公司共做了多少次核酸检测呢？2022年初，金域公司董事长梁耀铭在新年演讲中称，截至2021年11月，金域做过的新冠病毒（中共病毒）核酸检测已达2.2亿人份，居全球第一；单日检测总产能为130万管，也是全球第一。
 
-我是在夏威夷接种的疫苗。上午11点30分接种的。当时一切都正常，我就去睡觉了，早上3点30分突然醒来，感到我的心脏剧烈跳动，似乎要跳出胸膛。我去了急诊室，他们很快给我做了心电图，做了静脉滴注，并很快诊断为房颤。
+在中共病毒疫情爆发后，中共国的第三方检测机构暴增。据中共卫健委官方统计，2020年3月，全国新冠病毒（中共病毒）核酸检测实验室有2081家，而到2021年3月就已发展到10260家。虽然没有公开数据显示金域所占的市场份额，但据业内人士估计，金域大概占了核酸检测的半壁江山。由此便可大致推测出中共国人一年里所做过的核酸检测总数起码在4亿次以上。
 
-So major cause of stroke as Lee said, there’s a critical phases of flight where this stuff when I certify it to go fly, I have to check off a box before I go fly you lovely people wherever you want to go before I take that multimillionaire plane.
+事实上，2021年中共国的疫情远没有2020年严重，但核酸检测却更加频繁，金域的业绩也证明了这一点。2020年全年，这家公司才做过3200万次检测，但仅2021年1~4月就做了3000万次。
 
-正如李所说的，房颤是中风的主要诱因。执行飞行有一个关键阶段：在我飞行之前，当我驾驶着那架价值数百万的飞机，带着你们这些可爱的乘客去目的地之前，我必须要进行自检，对每一个方框进行打勾，以确认我能够飞行。
+那么，金域究竟赚了多少钱呢？据了解，虽然2020年金域的检测量为3200万次，但由于当时单价高，达到95元，所以检测收入达到30.41亿元；2021年虽检测量大，但因单价下降，因此截至今年三季度，金域的检测收入为33.6亿元。
 
-I checked this box and it says I’m fit to fly. That was before COVID That’s when you knew Yeah, I have food poisoning. I’m cold, have a cold, whatever. Here. You never know when the genies gonna come out of the bottle and smack you down.
+不仅金域，疫情以来众多核酸检测机构都大赚了一笔。2021年2月10日，中共国有56个检测试剂获得国家药监局批准，其中核酸检测26个，抗体检测27个，抗原检测3个。这些企业拚命投产，核酸检测试剂的日产能已经达到2500万人份。
 
-我做了检查，结果是我适合飞行。那是在新冠之前（设计的表格）， 你知道， 题目都是些：“是否得了食物中毒？是否感觉很冷？是否感冒了？等等勾选项。但是现在，你永远不知道这些鬼家伙（房颤诱发的中风）什么时候会莫名其妙地钻出来，把你击倒。
+与核酸检测相关的上市公司也和金域一样盈利暴增、股价暴涨。典型的如圣湘生物，2020年收入47亿元，同比增长12倍，但净利润却同比暴增65倍，达到26亿元，毛利率达82%，净利率55%。2021年上半年，该公司新冠（中共病毒）检测试剂发货量8884万人份，同比增长142%。2021年前三季度收入32.67亿元，净利润17.57亿元。
 
-I could have stroked out at 100 feet trying to land an airplane with 40 Airplanes lined up next to us. I could have just pushed down on that stick before the person next to me could do anything. We’re in a it’s all over for a lot of people. Not a good scenario.
+这些核酸检测公司除了在中共国内大肆捞钱外，还积极寻求出口以获得更高利润。2020年底，中共国出口新冠（中共病毒）检测试剂10.8亿人份，出口金额约50亿美元。2021年的出口量应该更大，因为在海外获批的产品增加，产能扩张也更快。
 
-我可能会突然中风，恰逢驾驶着飞机，在100英尺的高度，试图降落在已经有40架飞机列队停靠的飞机场时发病。我可能在我的副驾驶还没有来得及反应之前就把操纵杆压下去（而导致坠机）。很多人都会因此结束他们的生命。这当然不是一个美妙的设想。
+2021年3月，热景生物的两款产品在德国获批。这两款产品可以用于居家自主检测，并可在超市、药店和互联网上购买。消息一出，该公司股价爆涨。仅2021年前三季度，该公司就收入37.95亿元，净利14.74亿元。
 
-Pete Buda judge and telling you anything about this, the administration is not, the NIH, the CDC, they suppress all this stuff. There’s a number of pilots out there that are fearful to come forward and speak. They’re fearful of retribution. There’s guys that are going to work with crushing pains in their chest in their heads. They’re scared that they’re going to lose their careers because they’re 25 years old. This has got to stop.
+2021年11月，九安医疗的检测试剂获美国FDA批准应急使用权，股价因此连连上涨，被股民封为“九安大帝”。如今该公司的月产能已经达到1亿人份，且据称2022年初可达到2亿人份，产量惊人。
 
-Pete Buttigieg（美国运输部长）没有告诉你们这些，美国政府也没有，包括国立卫生研究院，疾病控制与预防中心，他们都压制所有这些信息 (疫苗对飞行员的伤害)。有一些飞行员害怕站出来说真话；他们害怕遭到报复。有些飞行员会强忍着胸口和头部的剧烈疼痛而坚持工作。他们害怕失去他们的职位，因为他们只有25岁！这些情况必须要停止！
+由此可见，疫情之下，全世界的核酸检测需求激增，尤其是中共国人，被要求做那么多次核酸检测，而最终受益的都是这些“吃人血馒头”发疫情财的企业。
 
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：[https://www.soundofhope.org/post/584244](https://www.soundofhope.org/post/584244)
 
  
 

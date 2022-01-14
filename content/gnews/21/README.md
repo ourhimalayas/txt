@@ -2,39 +2,53 @@
 ---
 
 
-## 美国要求未接种疫苗联邦雇员每周进行病毒检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858533/)
+## “穿西装的精神病人”正逍遥法外！ 为什么？（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1858696/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，拜登政府宣布，从2月15日开始，未接种疫苗的联邦雇员需要每周接受中共病毒检测。
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-18.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1062.png)图片来源:childrenshealthdefense.org
 
-据悉，美国350万联邦工作人员中有90%以上在拜登去年11月的最后期限前接种了至少一剂中共病毒疫苗。新的联邦测试指南适用于那些获得或正在申请豁免的人。
+在今天的美国，如果你毒杀你的妻子以赚取 150,000 美元的人寿保险金，你可能最终会入狱——但如果你毒杀数十万人，这样，你就可以拿到数百万美元的薪水 ，你可以买一艘新游艇。
 
-根据指南，未接种疫苗的员工在现场工作或与公众互动前都必须接受中共病毒检测。
+阿尔弗雷德·鲁夫（Alfred Ruf）毒死了他的妻子，这是他骗取人寿保险致富的计划。 格雷戈里·丹尼斯（Gregory“Brent”Dennis）博士也做了同样的谋杀，他正在等待 200 万美元的保险赔付。约书亚·亨萨克（Joshua Hunsucker）毒害了他的妻子，仅得到了 250,000 美元的人寿保险金，因为其中 80,000 美元用于购买了一艘游艇。大卫·佩蒂斯（David L. Pettis）毒害了他的妻子也得到了150,000 美元。
 
-郭文贵先生曾在大直播中宣布全球的疫苗强制接种将会很快停止。拜登政府此举实际上已经在强制接种疫苗方面做出了让步。
+我不知道毒杀我父亲和我兄的人的名字，他们上周四都去世了，但我知道那些人在哪里工作，以及他们为什么这样做：就像鲁夫、丹尼斯、亨萨克和佩蒂斯一样，当他们将石棉卖给我父亲的雇主，并让我的兄弟沉迷于烟草时，他们是故意的，他们明知会导致死亡，他们故意那样做的。
 
-参考链接：
+石棉（1）行业早在 1890 年代就知道，并在 1940 年代得到明确证实，他们的产品会导致间皮瘤，这导致特别残酷地杀死我父亲的肺癌。
 
-- [Unvaccinated federal employees must test for COVID weekly](https://news.yahoo.com/unvaccinated-federal-employees-must-test-211643878.html?utm_source=ground.news&amp;utm_medium=referral)
+（注释1: 石棉纤维吸入人体会沉积在肺部，造成肺部疾病。人如果暴露于石棉粉尘可导致肺癌，胃肠部癌，胸膜或腹膜的间皮癌以及石棉沉着病—石棉肺。国际癌症研究中心已肯定石棉为**致癌**物。）
 
+**但是即使在今天，他们的高管也在试图逃避责任**：强生公司正在玩破产游戏，以避免为他们的石棉滑石粉引起的癌症买单，甚至没有一个高管丝毫担心会因为所有这些行为造成人们死亡而入狱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+1994 年，烟草业的最高 CEO 在国会议员面前撒谎，同时，烟草业在我有生之年每年杀死超过 400,000 名美国人。
 
-总编：飞虹
-编辑：文特
-校正/发稿：海阔天空1
+和那四个杀妻案一样，都是为了钱，但是比那四个人想象的要多得多的钱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那四个杀妻犯都在监狱里了。但今天仍在推广烟草，并使用破产法来避免为石棉死亡买单的决策者们，却仍正在他们的豪宅和游艇上，享受着人们在这种流行病中遭难。
+
+**而这只是表面问题。**
+
+仅仅在过去的几周里，气候变化驱动的天气导致数百名美国人丧生，数千人无家可归，而化石燃料行业的人在 50 年前就知道，由于他们出售产品，才让这种天气会发生。还是为了钱。
+
+然后是美国的“健康保险”行业，与世界上任何其他行业不同，每年都有数以万计的美国人因债务（目前超过 1 万亿美元）毁掉他们的生活，或者，在他们生病时禁止向他们提供服务：因为没有保险，他们买不起。
+
+自从我们建国以来，美国的资本主义一直在以“保护穿着西装的精神病患者” 冷酷杀手的方式发挥着作用。但自从大烟草公司在 1990 年代被淘汰以来，情况变得更加糟糕。
+
+在 1980 年代，里根放松了对储蓄和贷款行业的管制——可以预见的是，在几年之内，少数高管使自己成为了千万富翁，而美国各地成千上万的家庭被消灭了。司法部介入，并起诉了 1100 名银行家，839 人被定罪，超过 100 人入狱。
+
+当所谓的“互联网泡沫”在世纪之交爆发时，来自安然、世通、奎斯特和泰科等公司的数十名高管被起诉、定罪和监禁。直到 2005 年，我们仍然偶尔将高管送进监狱。
+
+但是现在不再有高管坐牢了。文章后半部分看为什么。
+
+新闻来源:[childrenshealthdefense.org][‘Psychopaths in Suits’ Are Getting Away With Murder. Why?](https://childrenshealthdefense.org/defender/psychopaths-getting-away-with-murder/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=d8800cb1-6ca8-45e1-9766-b37231ff4113)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,38 @@
 ---
 
 
-## “中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1856050/)
+## 全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857477/)
 
-01/10/2022 马龙博士：尽管中共使用“出血热病毒”来形容当前中共国的情况。我们不知道我们面临的是与中共病毒相关的冠状病毒的进一步变异，还是中国正在出现新的病毒威胁。然而，很明显，中国共产党是一个掠夺人民的流氓政权，它需要在政治上和物理上被孤立。像黑石这样的公司不应该被允许通过他们的投资基金使用美国人民的钱来腐蚀世界，并积极地中共勾兑。
+整理报道：BENJ1
+编辑：朝花夕拾
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+#### 【雅典娜快讯】，紧贴时代脉搏
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
+
+
+麦当劳日本餐厅和肯德基澳大利亚餐厅分别面临着炸薯条和鲜鸡肉的短缺，迫使它们本月削减了一些常规菜单上的菜品。
+
+两家公司都将这些短缺归因于供应链的混乱，这也影响了世界各地的其他餐厅。
+
+在澳大利亚，肯德基表示，由于难以找到其最重要的原料——新鲜鸡肉的供应，该公司已暂时从全国某些地方的菜单上删除了一些菜品。该公司表示，其供应商受到了与新冠疫情相关的员工短缺的打击。
+
+肯德基一位发言人表示：“我们正在与多家供应商合作，以减轻影响，并向他们提供支持，但我们预计，未来几周还会出现一些中断。”
+
+与此同时，由于土豆短缺，日本的麦当劳餐厅被迫再次暂停了中份和大份薯条的供应。
+
+参考新闻：
+[https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml)
+
+发布：tianzhihan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,32 @@
 ---
 
 
-## 拜登承认对COVID没有联邦解决方案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858330/)
+## 美国最高法院阻止了对企业的中共病毒疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858559/)
 
-翻译：Julia Gao
-校对：精靈藍
-剪辑/字幕：文驰
-编辑：Mttfly
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-37.png)
+图片来源：网络截图
 
-美国总统拜登在一场视频会议中说：“没有任何一个联邦方案能在州一级得到解决。那纯粹是拿各州做实验，来验证联邦方案是否可以行得通。”福克斯国家频道主持人汤米·劳伦评论道：“这可能是一个典型的弗洛伊德式错误的案例。拜登承认确实没有联邦解决方案，他确实没有计划解决COVID问题。可就是在不久前他的几条推文被发现，他在大流行病开始时，对唐纳德·特朗普总统没有新冠解决方案而进行了批评。”
+据合众国际社1月13日报道，美国最高法院周四阻止了总统乔·拜登对大型私营企业的中共病毒疫苗或测试强制令，但允许对接受联邦资金设施的医护人员提出疫苗要求。高等法院以6-3票反对前者，布雷耶（Breyer）、索托马约尔（Sotomayor）和卡根（ Kagan）持反对意见。
 
-视频链接：[Biden admits there is no federal solution for COVID](https://video.foxnews.com/v/6288978896001)
+职业安全与健康管理局在11月发布的强制令要求拥有100名或以上员工的企业的工人接种疫苗或每周提交中共病毒的阴性测试。它还要求未接种疫苗的工人在室内必须戴上口罩，但对有宗教信仰的工人和在家工作的员工有例外。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“尽管国会无可争议地赋予OSHA监管职业危险的权力，但它没有赋予该机构更广泛地监管公共健康的权力，”法院在其裁决中说。“要求8400万美国人接种疫苗，仅仅是因为他们为雇员超过100人的雇主工作而被选中，这当然属于后面的范畴，”它继续说。
+
+在投票之前，倾向于保守的法官们表示，他们不相信总统乔·拜登有权责成OSHA对拥有100名或更多雇员的公司执行这一任务。
+
+不过，最高法院允许对接受医疗保险或医疗补助金的医疗机构实施类似的任务。对医护人员的疫苗强制令投票结果是5比4，托马斯（Thomas）、阿利托（Alito）、戈尔舒（Gorsuch）和巴雷特（Barrett）持反对意见，这意味着罗伯茨（Roberts）
+
+和卡瓦诺（Kavanaugh）与自由派大法官一起，允许HHS对医护人员的强制令成立。
+
+据白宫称，由医疗保险和医疗补助服务中心发布的医疗保健强制令适用于76000个设施的约1700万工人。
+
+拜登在一份声明中批评了这项裁决，并呼吁各州和私人雇主要求工人接种疫苗。
+
+新闻来源：1. [Supreme Court blocks COVID-19 mandate for businesses](https://www.upi.com/Top_News/US/2022/01/13/supreme-court-blocks-bidens-vaccine-mandate/5471642105616/)
+
+2. [Supreme Court Blocks Biden’s OSHA Vaxx Mandate](https://www.zerohedge.com/political/supreme-court-blocks-bidens-osha-vaxx-mandate)
 
  
 

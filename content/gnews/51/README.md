@@ -2,38 +2,23 @@
 ---
 
 
-## 全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857477/)
+## 港闻速递｜英军情五处指控华人律师李贞驹是中共间谍 中港金主幕后操控
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1858216/)
 
-整理报道：BENJ1
-编辑：朝花夕拾
+**撰文/ 港台前线关注组｜发布日期/ 14/1/2022**
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/英軍情五處指控華人律師李貞駒是中共間諜-中港金主幕後操控.jpg)
+英国《太阳报》周四(13日)报道，军情五处向英国国会发出罕有警示，指控华人律师李贞驹(Christine Lee)是中共间谍，利用捐款的方式，协助中共与议员建立关系，全面渗透国会及政界，意图干预英国内政。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据调查指，李贞驹的背后金主，是来自中国大陆和香港的非英籍华人，目的是为了塑造有利中共议程推进的政治环境。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
+是次丑闻牵涉在野两党，包括，自由民主党党魁 Ed Davey，十年收受5000万英镑捐款；工党议员Barry Gardiner，5年内收受42万镑的捐款，并聘请李贞驹儿子做助理等等。
 
+事件严重程度震惊英国政坛。国会下议院议长贺立绅（Sir Lindsay Hoyle）保守党前党魁施志安（Lain Duncan Smith)分别公开谴责，并要求政府向国会作解释。
 
-麦当劳日本餐厅和肯德基澳大利亚餐厅分别面临着炸薯条和鲜鸡肉的短缺，迫使它们本月削减了一些常规菜单上的菜品。
+* * *
 
-两家公司都将这些短缺归因于供应链的混乱，这也影响了世界各地的其他餐厅。
-
-在澳大利亚，肯德基表示，由于难以找到其最重要的原料——新鲜鸡肉的供应，该公司已暂时从全国某些地方的菜单上删除了一些菜品。该公司表示，其供应商受到了与新冠疫情相关的员工短缺的打击。
-
-肯德基一位发言人表示：“我们正在与多家供应商合作，以减轻影响，并向他们提供支持，但我们预计，未来几周还会出现一些中断。”
-
-与此同时，由于土豆短缺，日本的麦当劳餐厅被迫再次暂停了中份和大份薯条的供应。
-
-参考新闻：
-[https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml)
-
-发布：tianzhihan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[TheSun](https://www.thesun.co.uk/news/17317739/chinese-spy-mp-christine-lee-communist-agent/)
 
  
 

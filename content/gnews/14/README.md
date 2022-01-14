@@ -2,34 +2,42 @@
 ---
 
 
-## 2021年朝鲜网络犯罪盗窃加密货币达到顶峰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858616/)
+## 最迷信的共产党对这个国家是从天到地从心到生殖器控制
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858777/)
 
-#### 撰稿：彩虹
+G-TV视频链接：[https://gtv.org/video/id=61e0fc2587664c47acd46a3e](https://gtv.org/video/id=61e0fc2587664c47acd46a3e)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-26.jpg)图片来源：Stedmood
-1月13日，《国会山报》报道，根据周四发布的一份报告，朝鲜黑客在2021年盗取了近4亿美元的加密货币，达到其网络犯罪活动的顶峰。
+**郭文贵先生：**大家讲这个的时候你再想想南普陀会议为什么选在南普陀，千年的普陀寺，普陀寺里面最关键地点在哪里？普陀寺里面有几个山的洞，曾庆红每年都去的。曾庆红每年的冬天就在福建过，福建在哪里？在厦门，厦门在哪里？中国的东南方。
 
-软件公司Chainanlysis(区块链分析公司)创立于2014年，总部位于美国纽约州纽约市，是一家为全球政府、加密货币交易所、国际执法机构、银行和企业提供区块链数据和分析软件，以帮助他们遵守合规要求、评估风险并识别非法活动的公司。
+所以说刚才讲的时候叫什么？南龙、中龙、北龙，南干、中干、北干，是吧？巽山、艮山，是吧，震山，巽、艮、震，是不是？这是南、北、中，蓿艮震就把中国山脉全管，你刚才说的那些山都没有用的，那都是凑合上去的，你把巽、艮、兑，是吧，你把整个巽艮震，艮兑坤八卦这些全搞出来，你就知道中国的所有的《山海经》讲的什么，《三心通论》讲了什么。共产党是全人类最迷信的，它让你不迷信。而共产党整个对这个国家的控制是从天到地、从心到生殖器。
 
-根据Chinalysis的研究，朝鲜黑客已经有能力通过对加密货币平台的七次攻击中窃取到约4亿美元，从而在2020年到2021年，使得他们从这些攻击中获得的价值增长了40%。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-根据该公司的研究，这些攻击主要影响了投资公司和集中式交易所。黑客使用的方法包括“网络钓鱼诱饵、代码漏洞、恶意软件和高级社交工程陷阱”，以便从平台上获取资金，并将其放入所谓的热钱包（Hot Wallet）。
+编辑整理：Jacques；
 
-2021年，以太坊（Ethereum）占了朝鲜网络犯罪分子所盗资金的大部分，为58%。
+字幕文件制作：小满；
 
-Chainalysis说：“一旦朝鲜获得了这些资金的保管权，他们就开始了谨慎的洗钱过程，以掩盖和兑现”。
+视频制作及上传：Cindy；
 
-然而，黑客们似乎对他们偷来的所有加密货币的洗钱速度很慢。该公司的分析发现，大约有1.7亿美元的加密货币未经清洗，其中约3500万美元是通过2020年和2021年进行的黑客攻击偷窃到的。
+G-News发布：小满；
 
-正如Chainalysis在其报告中所说，朝鲜最近网络偷窃行动“呈现了一个大规模支持加密货币犯罪的国家形象。朝鲜政府通过系统且复杂的黑客活动，无论是通过拉撒路集团 (Lazarus Group)还是其他犯罪集团，在2021年已经将朝鲜政府塑造成为了加密货币行业的大规模持续威胁”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-文章报道，去年，司法部指控三名朝鲜人，分别是全昌赫（Jon Chang Hyok）、金日（Kim Il）和朴金赫（Park Jin Hyok），从美国相关组织窃取了13亿美元的现金和加密货币。据称，这三名黑客参与了2014年的黑客行动，但截至1月份，他们仍被认为是在逃状态。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**新闻来源**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[North Korean hackers stole almost $400M in cryptocurrency, report says](https://thehill.com/policy/cybersecurity/589661-north-korean-hackers-stole-almost-400m-in-cryptocurrency-report-says)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
