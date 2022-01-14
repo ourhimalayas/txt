@@ -2,26 +2,40 @@
 ---
 
 
-## 美护士警告：更多孩子死于新冠疫苗而不是新冠本身
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857689/)
+## 中共如何以非制美、以非乱欧、以非辱民？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1857742/)
 
-翻译：ATX1230
-校对：枳实
-剪辑/字幕：Biggod
-编辑：Mttfly
+作者：纽约香草山信息部 – 6zero4
 
-科莱特·马丁是路易斯安纳州一名执业17年的注册护士，她对执业中见到的成年人接种新冠疫苗所产生副作用感到十分恐惧。她非常担忧孩子也要被强制接种这些试验仅六个月的疫苗，因为在成年人与老年人中，如血栓、心脏病发作、中风、脑病变、心律失常（如心房颤动）等接种完疫苗后的副反应层出不穷。而卫生部门却说，新的变种具有我们目前看到的疫苗反应的所有副作用。尽管恐惧，但出于信念，她还是勇敢的站出来举证，因为这关乎于没有疫苗接种选择权的无助的孩子们！
 
-视频链接：[Louisiana RN whistleblower: “We have more children dying from the COVID vaccine than from the COVID itself”](https://thecovidworld.com/nurse-blows-the-whistle-we-have-had-more-children-die-from-the-covid-vaccine-than-of-covid-itself/)
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+
+
+
+郭先生在2022年1月9日的大直播中提到以非制美、以非乱欧的问题。共产党几十年来不惜血本通过“蓝金黄”手段苦心经营非洲国家的目的，除了经济上殖民与绑架、政治上拉选票与赚吆喝外，还将一向不擅长解决问题却善于制造问题的非洲人口充分利用起来，以成就中共不可告人的无耻肮胀目的。
+
+首先是以非制美。中共通过在美国的使领馆和华人组织怂恿、煽动、资助和策划“黑命贵”运动，以成就中共搞乱、搞弱、搞死美国的“3F计划”。
+
+其次是以非乱欧。中共还将自己天下无双的腐败输出到非洲国家，在本来就很贫穷的非洲土地上进一步加剧贫富两极分化，制造大量非洲难民并送去欧洲，以搞乱欧洲各国的社会秩序，进而制造各国政府与民间的矛盾和对立，最终让欧洲鸡飞狗跳。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.3.jpg)
+最后是以非辱民。中共通过国内各大学招收大量非洲裔男留学生，用老百姓的钱给他们提供全额奖学金和丰厚的生活费，并有组织有计划地分配数个女性学伴全程三陪。而寒窗苦读的老百姓孩子却节衣缩食全额自费上大学，各方面形成的巨大反差毁了老百姓的平民孩子的三观，自信心和上进心彻底被扑灭。辱民手段让老百姓的孩子失去了方向和自尊，只能成为中共盘剥和奴役的奴隶！
+
+参考链接：
+[2022年1月9日 文贵大直播：哈薩克斯坦局势进展分析；青海地震几大山脉蓝莲花；疫苗大灾难和变种病毒的最新情况；重庆大爆炸，西安封城事件和中共20大之前的党争；喜币的现状与Hpay未来发展的潜力；中国人寿董事长王滨被调查](https://gtv.org/video/id=61dade8c4658a73785d25465)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
