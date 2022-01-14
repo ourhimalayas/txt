@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/14/2022 10:41 PM (UTC)`
+
+1/24/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/24/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利<br/>
+![img](https://media.gettr.com/group14/getter/2022/01/14/22/73fced43-8711-b72f-091f-6438a9510d70/out.jpg)
+
+---
+
 `@miles 1/14/2022 1:07 PM (UTC)`
 
 2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；2017年帮中共游说川普遣返郭先生三人的近况；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1/12/2022 Miles Guo: Under the pretense of locking down the cities, the CCP is pushing the “common prosperity” movement, seeking to take away the wealth of the 120 and 200 enterprises in Xi’an and Tianjin, respectively. The “common prosperity” movement has already begun in Zhengzhou, and it will take place in Zhejiang and Jiangsu soon.<br/><br/>1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙！<br/>
 ![img](https://media.gettr.com/group48/getter/2022/01/13/00/f3f4d1d5-dde0-cd79-d1f0-08e72191d0fb/out.jpg)
-
----
-
-`@miles 1/13/2022 12:33 AM (UTC)`
-
-1/12/2022 Miles Guo: The fundamental purpose for the CCP to implement the “zero-COVID” policy in Xi’an, Tianjin, and Zhengzhou is to lock the people up in their homes so that the CCP can tighten their grip on the Chinese people and legitimately kill them with the virus, and such practices will be implemented in the rest of Communist China as well. The CCP’s gathering people to do nucleic acid testing together has greatly increased the spread of the virus.<br/><br/>1/12/2022 文贵直播：中共在西安、天津和郑州搞清零政策的根本目的是把人民关在家以对其实施严格管控并合法用病毒杀人，这种模式将推广至全国；中共搞集中检测大大加剧了病毒的传播<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/13/00/7f7fe5a4-989d-4e30-b96b-c6aaf3c0ae5f/out.jpg)
 
 ---
 

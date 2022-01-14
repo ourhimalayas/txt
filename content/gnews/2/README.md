@@ -2,20 +2,14 @@
 ---
 
 
-## 有声|中共“清零”画皮被揭下 多地即将大戒严
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860952/)
+## 有声|GTV新闻访谈简报|2022年1月12日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860963/)
 
-配音：香草山巡管部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-郭先生1月11日盖特直播中爆料，北到黑龙江，南至上海杭州，中共国多地即将开始大戒严。国内许多人不幸染上病毒，大多是被迫排长队检测核酸时“中招”的。黑龙江、辽宁、天津、河南、杭州、上海等地区将开始大戒严。直播中进一步指出，共产党用强硬手段“清零”，结果病毒遍地开花，希望大家好好保护自己，尽量不要染上病毒。
-
-原文链接：[中共“清零”画皮被揭下 多地即将大](https://gnews.org/zh-hans/1853105/)戒严
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0112text-SC.png)
+原文链接：[GTV新闻访谈简报|2022年1月12日晚](https://gnews.org/zh-hans/1853059/)
 
 音频处理：Daxia
 

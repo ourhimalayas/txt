@@ -2,45 +2,68 @@
 ---
 
 
-## 有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860837/)
+## 2022/01/14 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1860840/)
 
-配音：香草山教育部 – Rose
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-14.jpg)
+**主持**：微蓝｜**嘉宾**：神奇四侠、2Pac
 
 
 
-喜币（HCN）是以黄金为锚的金本位数字货币。未来以黄金为锚定的数字货币将替代非黄金锚定的法币和非黄金锚定的数字货币。喜币前途不可限量。郭文贵先生直播时指出：喜币（HCN）一定会成为世界上数字货币游戏（规则）的制定者和开拓者。
+**板块1–国内政治**
 
-黄金和白银是贯穿人类历史的通用货币。随着社会的发展，金银作为货币的弊端也越来越明显：真假难辨，运输和储存成本高且困难，支付不及时等问题，为了解决金银货币流通问题，出现了以黄金为锚的金本位法币。从历史上看，随着布雷顿森林体系的崩溃，美元的金本位制被放弃。主要原因是美元发行失控，美元印制与黄金储备不成比例。因此，黄金锚定的承诺无法兑现。
+1. 随着北京加强对大数据和人工智能的监管，纳税人处于紧张状态。
 
-原文链接：[喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](https://gnews.org/zh-hans/1855871/)
+中共国小企业现状–必须找各种方法去规避各种税费，灰色消费不可避免，获取微薄的利润。中共逐步开始“割韭菜”模式–使大部分民众保持“赤贫”状态，让一部分人先富裕起来，收割富裕的小部分人再培养一批新的小部分人，如此反复。
 
-音频处理：Daxia
+**板块2–国际政治**
 
-**发稿：**Daxia
+1. 中共国间谍被怀疑潜入英国议会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+中共间谍李贞驹担任过驻英法律顾问，获得特蕾莎梅的表彰，大外宣有意推出间谍并强调中国间谍欲使英国乃至欧洲人痛恨中国人，“顺理成章”开始排华，为中共生存制造喘息机会。
 
-**更多资讯，更多关注**
+2. 近期相当部分战友的油管账号被莫名删除。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+继续大力宣传GTV、Gettr、Gnews、中共不等于中国、中共不等于中国人。主流媒体大力宣传中共口径（表面阐述中共的强大，实则暗示中国人在各国利用法律空子赚得盆满钵满），将世界现状的惨淡转移矛盾到中国人身上。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**板块3–财经**
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+1.美国立法者推出法案，禁止美联储直接向个人发放数字货币。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+对喜币是利好消息。美联储被禁止发行数字货币，美联储只充当监管角色，现在世界大趋势–数字货币，喜联储的完美设计更值得期待。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+2.随着中共国封锁港口，全球经济走向“万有之母”供应链冲击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+中共国新一轮经济超限战开始，（西安芯片厂产品重地、宁波天然气服装供应重地）让世界经济持续萎靡（所有行业遭受打击、各国大量印钞票），而国内的压力全部转嫁给老百姓。
+
+美国中期大选在即，中共蠢蠢欲动，美国警惕复制2020大选的闹剧。
+
+3.美高院推翻拜登政府的疫苗强制令；医护人员被要求强制接种疫苗。
+
+再次应征文贵先生爆料–疫苗强制追究会停止。医护人员拒绝强制疫苗政策致使欧美各国医护人员的缺口持续增大，可能导致医疗系统崩溃。
+
+**板块4–军事**
+
+1.朝鲜发射两枚导弹，警告将对美国推动的制裁采取强硬措施。
+
+朝鲜是中共国和美国谈判交易的一个重要砝码。朝鲜每次发射导弹目的–向中方讨要“面包”、与美国谈判提供“资本”。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/F9yHJfGjHGL2h/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/F9yHJfGjHGL2h/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
 
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/F9yHJfGjHGL2h/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/F9yHJfGjHGL2h/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

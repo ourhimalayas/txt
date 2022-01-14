@@ -2,31 +2,44 @@
 ---
 
 
-## 七哥谈共产党洗钱的工具（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860785/)
+## 有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860837/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山教育部 – Rose
 
-来源：郭先生2022-01-12直播09：19：21摘录
 
-比特币为啥是共产党搞起来的，就是江家搞起来的，它要把“钱”不是“洗白”了，要洗“雪白”呀！为什么UBS成为中国第一个外资允许的100%的执照，为什么摩根要拿证劵公司，都是王岐山、江家，它“洗钱”他需要工具呀，它需要水需要池子呀，洗完放哪儿去。我告诉大家，如果你不懂得什么叫叛国和卖国，你这一辈子被骂叛国卖国，你就太冤了。你有资格叛国吗，你有资格卖国吗，你算个屁，是吧，你算个屁。当时我在里边儿的时候，盖郑州裕达，说我是美国派来的特务，跟一个好莱坞的女人结婚了，然后是监视郑州的时候。我在郑州有一次被叫去了，他们说：“郭文贵人家有人说你是叛国。” 我说：“是吗？你说我叛哪个国了？”他说：“你还真以为你叛国，你有资格叛国吗？那叛国得是共产党员才叛国，轮到你来说叛国了嘛？”连一个郑州的一个所谓金水区的检察官、反贪局的副局长都敢说我这话，后来这哥们儿被枪毙了，被注射毒针死了，你可以查他去。一个人贪污两个多亿当年。所以兄弟姐妹，你再看一看，为啥我讲昆仑山脉，为什么讲帕米尔高原，为什么讲整个的西藏，喜马拉雅，喜马拉雅山上的秘密，西藏的矿藏，西藏的奇材异宝都去哪儿了？！光西藏，用当时的曾庆红的秘书说：我在西藏搜罗搜罗我分分钟搜罗个100个亿200个亿。分分钟啊！一个秘书都这么说。今天青青草原你坐在这你还灭共呢，你连知道共产党的邪恶0.001%都没有。我讲完这个故事以后你们有啥感受，你们有啥感受，听听。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-14.jpg)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+喜币（HCN）是以黄金为锚的金本位数字货币。未来以黄金为锚定的数字货币将替代非黄金锚定的法币和非黄金锚定的数字货币。喜币前途不可限量。郭文贵先生直播时指出：喜币（HCN）一定会成为世界上数字货币游戏（规则）的制定者和开拓者。
 
-Gettr 账号
+黄金和白银是贯穿人类历史的通用货币。随着社会的发展，金银作为货币的弊端也越来越明显：真假难辨，运输和储存成本高且困难，支付不及时等问题，为了解决金银货币流通问题，出现了以黄金为锚的金本位法币。从历史上看，随着布雷顿森林体系的崩溃，美元的金本位制被放弃。主要原因是美元发行失控，美元印制与黄金储备不成比例。因此，黄金锚定的承诺无法兑现。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+原文链接：[喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](https://gnews.org/zh-hans/1855871/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
