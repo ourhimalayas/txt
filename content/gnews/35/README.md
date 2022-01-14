@@ -2,28 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
+## 中共4年设局 意图利用Q组织和海外媒体 消灭爆料革命 挑起全球排华
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1859971/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+共产党4-5年前设的局，Q组织、HBO和杨贝贝就是其中一环。他们混淆视听，恶意造谣，传播虚假信息，四处兴风作浪。为的就是加剧美国国内争端，抹黑打压爆料革命，同时挑起世界对华人的仇恨！好在郭先生早有预判，提前出手，把爆料革命、新中国联邦，和Q组织杜绝开。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
-文章仅代表作者本人观点，与Gnews无关
+VICE、杨贝贝的采访，所有资金都来自江志成 和吴征。他们的采访有计划，有组织，问的问题，设的陷阱，招招都是致命的！
 
-视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
+现在海外华人的处境并不乐观。如果不阻止像杨贝贝这样恶意抹黑华人，挑起种族矛盾的行径，海外辱华，反华的事件会愈演愈烈。已经有消息透露，欧洲和美国的院校，私下开始排斥中国学生，甚至亚洲学生。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 2022年1月12日郭先生大直播视频
+视频制作: 文星光
+文案:文星光、梦田
+上传: 零点
 
  
 
