@@ -2,31 +2,46 @@
 ---
 
 
-## 七哥谈大地之间的密码多么重要（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860839/)
+## 有声|爱尔兰部长：有信心从2月起放松对中共病毒的限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860854/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山农场 – 纳米
 
-来源：郭先生2022-01-12直播09：22：05摘录
 
-大家一定记住几个定义，啊，七哥为啥讲这个，我讲这话，你们讲不出来，你永远不会知道，因为你从来没到达那个高度。你没有爬过喜马拉雅山脉，就像钊颖妹妹在我们群里说的那个，她到了整个喜马拉雅山她知道对雪的珍惜，纯洁的珍惜。她这话我最有感触的，七哥爬过喜马拉雅山，你们爬过吗？你们不知道我爬过高原爬过这个吧。共产党为了找我爬喜马拉雅山听说专案组找了十多个月，说：“我就不相信郭文贵爬喜马拉雅山就没有留下照片和视频。” 最后找到了一个人说这个家伙爬过。他们不相信:“这不是郭文贵，当年的郭文贵体重在100，最起码是90公斤。” 但是他做梦没想到，最后我是真的那段时间体重能那么瘦。等哪天我亮出喜马拉雅山脉七哥的想法的时候，你会知道，你只有爬过高山，你才知道山真的是在地球上有多么神奇。你只有在天空中看过昆仑山脉、喜马拉雅山脉，你才知道这个大地之间的密码多么重要。为什么就一绺就叫地狱之门，为什么帕米尔高原就在那一趟之上，为什么阿富汗还有哈萨克斯坦、吉尔吉斯斯坦他们之间就这个三角关系。然后那边儿就是整个大西洋和印度洋。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
 
-Gettr 账号
+爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
+
+原文链接：[爱尔兰部长：有信心从2月起放松对中共病毒的限制](https://gnews.org/zh-hans/1852733/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
