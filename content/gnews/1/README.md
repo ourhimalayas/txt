@@ -2,40 +2,68 @@
 ---
 
 
-## 有声|白宫的一条推特可使拜登的疫苗强制令落空
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860625/)
+## 2022/01/14 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1860840/)
 
-配音：香草山健身部 – 玫瑰园
+**主持**：微蓝｜**嘉宾**：神奇四侠、2Pac
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-根据《福布斯》1月8日报道，美国最高法院正在就拜登总统的企业疫苗强制令进行口头辩论。
 
-拜登幕僚长罗恩-克莱恩(Ron Klain)在推特上转发了一位新闻主播的言论，称“OSHA将这项疫苗任务作为一项紧急工作场所安全规则来做，是联邦政府要求接种疫苗的最终变通办法”。从而失去了首席大法官罗伯茨(John Roberts)的信任，因为这表明拜登正试图绕过国会的意愿，好比一把直接刺穿拜登论点核心的匕首。
+**板块1–国内政治**
 
-国会从未通过过强制接种疫苗的法律，而这个分裂严重的国会也不打算通过这样的法律，那么拜登总统声称这项授权的权力从何而来？国会授权劳工部长“制定适用于影响州际商业的企业相关强制性职业安全和健康标准”。总统没有监管工作场所的独立权力，他只是在执行国会通过这些措辞宽泛的法规所授予他的权力。
+1. 随着北京加强对大数据和人工智能的监管，纳税人处于紧张状态。
 
-本案的关键在于，拜登政府是在执行国会通过的联邦法律，还是在违宪地自行其是。拜登政府称其政策为”变通”，其实是自断后路。
+中共国小企业现状–必须找各种方法去规避各种税费，灰色消费不可避免，获取微薄的利润。中共逐步开始“割韭菜”模式–使大部分民众保持“赤贫”状态，让一部分人先富裕起来，收割富裕的小部分人再培养一批新的小部分人，如此反复。
 
-文字版原文：[白宫的一条推特可使拜登的疫苗强制令落空](https://gnews.org/zh-hans/1851405/)
+**板块2–国际政治**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+1. 中共国间谍被怀疑潜入英国议会。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共间谍李贞驹担任过驻英法律顾问，获得特蕾莎梅的表彰，大外宣有意推出间谍并强调中国间谍欲使英国乃至欧洲人痛恨中国人，“顺理成章”开始排华，为中共生存制造喘息机会。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+2. 近期相当部分战友的油管账号被莫名删除。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+继续大力宣传GTV、Gettr、Gnews、中共不等于中国、中共不等于中国人。主流媒体大力宣传中共口径（表面阐述中共的强大，实则暗示中国人在各国利用法律空子赚得盆满钵满），将世界现状的惨淡转移矛盾到中国人身上。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**板块3–财经**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+1.美国立法者推出法案，禁止美联储直接向个人发放数字货币。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+对喜币是利好消息。美联储被禁止发行数字货币，美联储只充当监管角色，现在世界大趋势–数字货币，喜联储的完美设计更值得期待。
 
+2.随着中共国封锁港口，全球经济走向“万有之母”供应链冲击。
+
+中共国新一轮经济超限战开始，（西安芯片厂产品重地、宁波天然气服装供应重地）让世界经济持续萎靡（所有行业遭受打击、各国大量印钞票），而国内的压力全部转嫁给老百姓。
+
+美国中期大选在即，中共蠢蠢欲动，美国警惕复制2020大选的闹剧。
+
+3.美高院推翻拜登政府的疫苗强制令；医护人员被要求强制接种疫苗。
+
+再次应征文贵先生爆料–疫苗强制追究会停止。医护人员拒绝强制疫苗政策致使欧美各国医护人员的缺口持续增大，可能导致医疗系统崩溃。
+
+**板块4–军事**
+
+1.朝鲜发射两枚导弹，警告将对美国推动的制裁采取强硬措施。
+
+朝鲜是中共国和美国谈判交易的一个重要砝码。朝鲜每次发射导弹目的–向中方讨要“面包”、与美国谈判提供“资本”。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/F9yHJfGjHGL2h/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/F9yHJfGjHGL2h/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/F9yHJfGjHGL2h/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/F9yHJfGjHGL2h/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,110 +15,110 @@
 
 ---
 
-### [有声|白宫的一条推特可使拜登的疫苗强制令落空](/content/gnews/1/README.md)
+### [2022/01/14 大卫作战室直播精要](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥谈大地之间的密码多么重要（2022-01-12摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [七哥谈中共与桥水基金的拿钱办事（2022-01-12摘录）](/content/gnews/2/README.md)
+### [2022/01/13 大卫作战室直播精要](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥谈共产党洗钱的工具（2022-01-12摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [从希腊小学生历史看“爆料革命”](/content/gnews/3/README.md)
+### [七哥谈中共卖国贼（2022-01-12摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [有声|深圳疫情源头甩锅到境外物品？](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [中共驻伦敦律师贿赂英政客 军情五处发出紧急警告（1/2）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈邪教组织的六个特征（2022-01-12摘录）](/content/gnews/4/README.md)
+### [七哥说“共产党能让你活着就是最大的民主” （2022-01-12摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/5/README.md)
+### [拜登建立针对中共国的联盟的努力正在取得成果](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|白宫的一条推特可使拜登的疫苗强制令落空](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [七哥谈中共与桥水基金的拿钱办事（2022-01-12摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [从希腊小学生历史看“爆料革命”](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈邪教组织的六个特征（2022-01-12摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/15/README.md)
  ` 丁过`
 
-### [秘翻在线: 人权报告–中共疾风烈火般摧毁香港人权](/content/gnews/6/README.md)
+### [秘翻在线: 人权报告–中共疾风烈火般摧毁香港人权](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥谈歧视就在我们身边（2022-01-12摘录）](/content/gnews/7/README.md)
+### [七哥谈歧视就在我们身边（2022-01-12摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [1/12/2021 文贵直播：不会再有中共二十大了 &#8211; 中共搞二十大是上天送给新中国联邦最大的礼物](/content/gnews/8/README.md)
+### [1/12/2021 文贵直播：不会再有中共二十大了 &#8211; 中共搞二十大是上天送给新中国联邦最大的礼物](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈共产党的阴谋（2022-01-12摘录）](/content/gnews/9/README.md)
+### [七哥谈共产党的阴谋（2022-01-12摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [多数加拿大人认为将会感染奥密克戎病毒](/content/gnews/10/README.md)
+### [多数加拿大人认为将会感染奥密克戎病毒](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [人的自信来源于自身的知识和经历](/content/gnews/11/README.md)
+### [人的自信来源于自身的知识和经历](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [未接种疫苗的病童家庭遭慈善机构驱逐](/content/gnews/12/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大放弃跨境货运行业疫苗强制接种令](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [2022/01/14 英喜时事速递](/content/gnews/14/README.md)
+### [2022/01/14 英喜时事速递](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大卫生部非法监控手机移动设备](/content/gnews/15/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大政府已采购储备大量中共病毒疫苗](/content/gnews/16/README.md)
- ` 扬帆枫叶快讯`
-
-### [2022/01/13 墙内世界](/content/gnews/17/README.md)
+### [2022/01/13 墙内世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵先生谈哈萨克斯坦事件背后的国际地缘政治](/content/gnews/18/README.md)
- ` 焦點20分`
-
-### [韩国妇产医生说疫苗对胎儿的影响](/content/gnews/19/README.md)
+### [郭文贵直播摘要和音频 2022.01.14](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭文贵直播摘要和音频 2022.01.14](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2022/01/12 墙内世界](/content/gnews/21/README.md)
+### [2022/01/12 墙内世界](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国：已封城的西安关闭两家医院因其致非新冠病患死亡](/content/gnews/22/README.md)
+### [中共国：已封城的西安关闭两家医院因其致非新冠病患死亡](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [政府数据显示超过 94.6 万人因接种冠状病毒疫苗致伤或死亡](/content/gnews/23/README.md)
+### [政府数据显示超过 94.6 万人因接种冠状病毒疫苗致伤或死亡](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [保罗参议员称福奇知道中共的病毒计划](/content/gnews/24/README.md)
+### [保罗参议员称福奇知道中共的病毒计划](/content/gnews/28/README.md)
  ` 华盛顿DC-Russian`
 
-### [意大利50岁以上不接种加强针人群将面临100欧元的罚款](/content/gnews/25/README.md)
+### [意大利50岁以上不接种加强针人群将面临100欧元的罚款](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥说“我一定要赢，我会赢的”（2022-01-12摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [免费新冠病毒检测可能会花费保险公司数十亿美元](/content/gnews/27/README.md)
+### [免费新冠病毒检测可能会花费保险公司数十亿美元](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/28/README.md)
+### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/29/README.md)
+### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [台湾称要做好准备应对来自中共的军事威胁](/content/gnews/30/README.md)
+### [台湾称要做好准备应对来自中共的军事威胁](/content/gnews/33/README.md)
  ` 华盛顿DC-Russian`
 
-### [Frontline America 的创始人感染新冠住院：医院里挤满了接种三针的人，接种和没接种疫苗的都有病人死亡，但人们对此闭口不谈](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [口罩有用吗？封锁有用吗？经济会崩溃吗？谁去调查病毒起源？](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [天津107例感染者中103人已全程接种疫苗](/content/gnews/33/README.md)
+### [天津107例感染者中103人已全程接种疫苗](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞总裁承认前两针疫苗作用不大](/content/gnews/34/README.md)
+### [辉瑞总裁承认前两针疫苗作用不大](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
-
-### [2018年7月17日 郭文贵先生直播 全文字版](/content/gnews/35/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [中共不会再有二十大，中共会被消灭在二十大](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
