@@ -2,40 +2,33 @@
 ---
 
 
-## 拜登本应通知OSHA收回疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857284/)
+## 禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857585/)
 
-#### 翻译：Annabelle
-校对：枳实
-剪辑/字幕：向上James
+整理报道：BENJ1
+编辑：朝花夕拾
 
-**字幕摘要（英汉对照）**：
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
-I have to admit, Mike, I almost fell out of Santa sleigh when I heard that language,
 
-Mike 我得承认，当我听到那些话时，我几乎要从圣诞雪橇上掉下来了。
+路透香港/上海1月13日，资金紧拙的中共国房地产开发商急于与债券持有人谈判新条款以避免违约，世茂集团[0813.HK](https://www.reuters.com/companies/0813.HK)和禹洲集团[1628.HK](https://www.reuters.com/companies/1628.HK)是最新两家寻求到期债务展期的企业。
 
-because President Biden should tell his own administration that he doesn’t think there’s a federal solution.
+由于多年来监管者限制借贷，中共国的房地产开发商正面临着前所未有的流动性紧缩，导致了一连串的境外债务违约，信用评级下调以及开发商股票和债券遭到抛售。
 
-因为拜登政府本应该告诉他的政府，他不认为联邦政府有解决方案。
+本周早些时候发布的世界银行经济展望报告称，中共国开发商境内和境外负债合计几乎占全国GDP的30%，房地产行业的严重和长期衰退将对中共国整体经济产生重大影响。
 
-The first thing he should do is tell OSHA to pull back its vaccine mandate where it’s claiming that it has the right to tell basically every employee in every factory in office in the country that they have to get a vaccine.
+该报告警告称，中共国大型房地产企业急剧去杠杆会带来风险和危机蔓延的潜在成本。
 
-他首先应该告诉’职业安全和健康管理局” 收回疫苗强制令， 它声称它有权要求，基本上这个国家每个职员，无论是工厂还是办公室都必须打疫苗。
+参考新闻：
+[https://www.reuters.com/article/china-rea-developers-bond-repayment-0113-idCNKBS2JN0PO](https://www.reuters.com/article/china-rea-developers-bond-repayment-0113-idCNKBS2JN0PO)
 
-And then the second thing you do is drop a Supreme Court case his administration is going to the High Court next week to defend the vaccine mandate.
+发布：tianzhihuan
 
-第二件要做的事情是撤销高级法院的诉讼，拜登政府下星期要在最高法院出庭辩护强制疫苗政策。
-
-视频链接：[President Biden says there is no federal solution a year in as president ，he should tell OSHA to pull back its vaccine mandate](https://video.foxnews.com/v/6288945750001)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

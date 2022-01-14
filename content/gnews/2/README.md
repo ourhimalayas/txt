@@ -2,37 +2,38 @@
 ---
 
 
-## 塔利班在经济危机之下用小麦取代现金支付
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857762/)
+## COVID-19 最新情报｜研究：蜂蜜与黑孜然联合疗法能有效促进 COVID-19 患者康复
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1857882/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文｜疫情关注组 / 发布时间｜14/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-翻译： 美哥
-编辑: 美哥/小红帽
+美国波士顿哈佛医学院马萨诸塞州总医院的一项正等待同行评审的研究表明，接受黑种草与蜂蜜联合疗法的 COVID-19 患者恢复速度惊人，研究发现，蜂蜜与黑种草联合疗法可在6天内就有效缓解疾病症状，而对照组则需要13天。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源；雅典娜设计组
+备注：黑种草（ Nigella Sativa），亦称为黑孜然（ Black Cumin）
 
+参与该项研究的首席研究员，Sohaib Ashraf 博士表示，“当 COVID-19 开始肆虐的时候，我们就明白，这种疾病势必会对全球造成严重破坏，并将成为世界经济的重置按钮，因此，我们对已发表的任何声称对 COVID-19 有效的药物进行临床试验，结果令人失望。”
 
-据印度斯坦时报 (Hindustan Times)1月14号报道，由于经济危机的加剧，喀布尔数以千计的公职人员的工资将以小麦代替，该计划预计将扩大至阿富汗全国。
+于是，Ashraf 博士和他的团队不得不对各种科学文献进行更广泛的研究，以寻找到一种安全，对病毒和其他微生物具有广泛功效的东西，且兼具抗炎、免疫调节和抗凝血的特性。
 
-塔利班农业部门新闻发布会透露，准备将印度捐献给亲美的前政府的小麦，用来替代现金，支付40,000 个雇员的工资。目前一天5个小时的工作，可换10公斤的小麦。
+**最后，他们发现了蜂蜜和黑孜然，Ashraf 博士将其描述为“完美组合”，“我们推断这种组合可以更有效地减轻疾病的严重程度、控制病毒复制以及治愈 COVID-19 患者。”**
 
-农业部行政和财政部副部长法泽尔·巴里法兹利称：“我们尽可能的帮助我们的人民，政府已经收到了18吨来自巴基斯坦的小麦，额外还有37吨也已经落实。政府正在与印度协商另外的55吨小麦。我们计划以粮食替代工资，目前尚不清楚捐赠的小麦中有多少将被用作直接的人道主义援助，以及支付给阿富汗工人的多少。”
+**另外，他还指出，对于那些希望增强免疫能力的人来说，黑孜然补充剂和蜂蜜都是非常值得考虑的一种选择。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/研究：蜂蜜與黑孜然聯合療法能有效促進-COVID-19-患者康復.jpg)
+#### **自然疗法安全有效**
 
-“小麦替代工资”暗示了塔利班政府面临的日益复杂的经济局面。在现金流严格管控，日益枯竭形势下，捐赠组织对人道主义救援被政府利用颇有微词。
+据论文描述，这项研究主要在巴基斯坦进行，涉及 313 名患者，分别有中度或重度染疫症状，包括咳嗽、发烧、喉咙痛、鼻塞、呼吸急促，严重的还包括肺炎和呼吸窘迫（ARDS）。
 
-联合国机构周二要求捐助者在 2022 年向阿富汗提供 44 亿美元的人道主义援助，称这些资金是确保该国未来的“必要的权宜之计”。”
+在研究结束时，蜂蜜和黑孜然联合疗法组在 4 天（中度病例）或 6 天（严重病例）内就恢复正常，而对照组则至少需要 7-13 天。
 
-参考新闻：[Taliban pay in wheat in lieu of cash as economic crisis bites](https://www.hindustantimes.com/world-news/taliban-pay-in-wheat-in-lieu-of-cash-as-economic-crisis-bites-101642028636492.html)
+令人惊讶的是，研究还发现，对照组的30天内的死亡率为 18.87%，而联合疗法组仅为 4%。也就是说，联合疗法能有效降低重症患者的死亡率。
 
-发布：tianzhihuan
+Ashraf 博士进一步解释指，患者通过这种治疗方案奇迹般地好转令团队非常欣喜，作为一种廉价、易获得的保健品，它既可以单独使用，也可以与其他药物配合使用，以获得附加效果，这可以显著减轻医疗保健系统的负担。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+目前，为了证明它能否成为是世界上最安全有效的治疗选择之一，研究团队正计划用同样的方式进行更大规模的跨国试验。
+
+来源｜[NUTRA](https://www.nutraingredients-asia.com/Article/2020/11/25/Covid-19-RCT-Honey-and-black-cumin-seed-help-speed-up-recovery-in-Covid-19-patients)
 
  
 

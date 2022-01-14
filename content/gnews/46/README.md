@@ -2,12 +2,14 @@
 ---
 
 
-## “中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1856050/)
+## 2022年01月12日文贵大直播焦点报道简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1856686/)
 
-01/10/2022 马龙博士：尽管中共使用“出血热病毒”来形容当前中共国的情况。我们不知道我们面临的是与中共病毒相关的冠状病毒的进一步变异，还是中国正在出现新的病毒威胁。然而，很明显，中国共产党是一个掠夺人民的流氓政权，它需要在政治上和物理上被孤立。像黑石这样的公司不应该被允许通过他们的投资基金使用美国人民的钱来腐蚀世界，并积极地中共勾兑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播01.12.png)
+【参考链接】[https://gtv.org/video/id=61df44f3a6dfdd6031535439](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+文案提供：回响 / 大浪小水花 / Ermat / Skagen
+制作：艾伦
 
  
 

@@ -2,32 +2,30 @@
 ---
 
 
-## 禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857529/)
+## 人权观察报告：习近平时代对中共国人权压制更严厉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857670/)
 
-整理报道：BENJ1
-编辑：朝花夕拾
+![中国领导人习近平出现在一个宣传北京冬奥会的电子屏幕上发表讲话。（2021年9月5日）](https://gdb.voanews.com/5A0F5151-E0A2-4194-BDBF-8BAC07B63E51_cx0_cy6_cw0_w1023_r1_s.jpg)中国领导人习近平出现在一个宣传北京冬奥会的电子屏幕上发表讲话。（2021年9月5日）
+据美国之音1月13日报道，国际人权观察组织13日发表《2022世界人权报告》长篇报告，对习近平“新时代”的人权表现进行分析后指出，中共这个百年大党对中共国民众的人权压制和践踏严重恶化，成为“新时代”的一个重要特征。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+中共加强了对民众的洗脑和思想管控，把不同意见者套上“不爱国”的帽子进行打压。在香港，自从2020年6月港版国安法实施之后，当局对香港民主派展开全面打压，抓捕民主派及异见人士多达150多人。北京还直接操纵港府对香港选举制度进行了“改革”，用所谓“爱国者”完全取代民主派。在新疆，政府继续强化对新疆维吾尔等少数民族进行的“种族灭绝”。在西藏，地方当局强迫同化政策不断升级。网球明星彭帅公开指控中共前政治局常委、前副总理张高丽性侵后失踪，后来在国际社会的强大压力下，中共才让彭帅在控制之下数次公开露面。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+在过去32年中，人权观察每年都发表一份世界人权报告，对一百多个国家的人权状况进行评估。中共国的人权状况在习近平上台后进一步恶化。中共从来不把国民当成人对待，自然不可能给予国民“人权”。中共国人民工作最辛苦，创造了惊人的财富，养肥了世界上最富裕的盗国贼家族，自己却过着最凄惨的生活。买不起房、看不起病、上不起学，也死不起。中共还在向全球输出共产主义集权理念。中国人民没有人权，全世界人民都不会有人权，有的也会被拿走。
+
+新闻参考链接：[https://www.voachinese.com/a/Human-Rights-Watch-publishes-world-report-2022-20220113/6395247.html](https://www.voachinese.com/a/Human-Rights-Watch-publishes-world-report-2022-20220113/6395247.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-路透香港1月13日 ，中国房地产商–禹洲集团周三晚间公布，就两笔未偿还本金总额共5.8亿美元的票据进行交换要约，同时向其他未偿还本金总额49.155亿美元的票据持有人征求同意修改这些票据的条款，以避免交叉违约和法院判决支付事件所导致的违约事件。
+编辑：【英国伦敦喜庄园编辑部】
 
-禹洲集团表示，尽管致力履行到期的偿付义务，但公司可能持续受压，无法实现充足现金流量全面履行未来到期义务。本次交换要约以及同意征询交易以推迟债务的到期日，减轻现金流的压力并管理违约风险。
-
-参考新闻：
-[https://www.reuters.com/article/idCNL4S2TT0EB](https://www.reuters.com/article/idCNL4S2TT0EB)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -15,185 +15,185 @@
 
 ---
 
-### [文•贵天成——文贵先生谈“王毅”（四）](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [塔利班在经济危机之下用小麦取代现金支付](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [农场的建立及意义（一）](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [现世报的轮回](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [1/12/2021 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
-
-### [1.13大直播后记：农场的建立及意义（二）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [科学是主义而不是真理](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [元曲新作：天净沙·剥杨贝贝三层画皮](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [1.13大直播后记：黄金部队的腐败（一）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1.13大直播后记：黄金部队在西藏、新疆的腐败（二）](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [关于中国经济和灭共的天机](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美护士警告：更多孩子死于新冠疫苗而不是新冠本身](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1.13大直播后记：鹤岗破产](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [光天化日下中共向世界讲述中国民主的笑话](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [人权观察报告：习近平时代对中共国人权压制更严厉](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [1.13大直播后记：二十大将不存在](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [塔克•卡尔森: 数百万人诚心诚意地接种了疫苗，现在他们居然还是感染上了冠状病毒。](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/20/README.md)
- ` 首尔天池农场`
-
-### [1/12/2021 文贵直播：为什么说上天在帮助新中国联邦？](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [海外华人被中共代理人代表的巨大风险](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美陆军3000名军人因拒绝接种疫苗被训斥](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：北京当局向市民呼吁即便发生交通事故也不要靠近参赛车辆](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [短视频：美国国家冰球联盟将不参加北京冬奥会](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [在中共国，违反防疫规定可判刑四年](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [最高法院阻止了拜登对企业的新冠病毒疫苗授权，允许医护人员规则](/content/gnews/30/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [拜登本应通知OSHA收回疫苗强制令](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/32/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [重磅：美最高法院终止拜登的疫苗强制令](/content/gnews/33/README.md)
- ` 澳喜农场`
-
-### [北京对运动员“闭环” 并无视奥组委呼吁升起参赛国国旗](/content/gnews/34/README.md)
+### [中共国女特工金钱贿赂英国议员](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】美的开始芯片大跃进](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】海外第三大中国股票基金大举减持茅台等多家中企股票](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】2050年“中国人口将减半”的惊人事实](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/38/README.md)
- ` YALUN 亚伦`
-
-### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年1月12日 文贵大直播 全文字版](/content/gnews/40/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/41/README.md)
- ` 秘密翻译组-原创组`
-
-### [Eglise医生对比中美军医](/content/gnews/42/README.md)
- ` 军情启示录`
-
-### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/44/README.md)
- ` 秘密翻译组-原创组`
-
-### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/45/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/46/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/47/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [现实不是电影](/content/gnews/48/README.md)
- ` 骄子`
-
-### [去雍和宫烧香的年轻人](/content/gnews/49/README.md)
- ` 骄子`
-
-### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/50/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/51/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/54/README.md)
- ` 华盛顿DC-Russian`
-
-### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/55/README.md)
- ` 秘密翻译组-北美组`
-
-### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/57/README.md)
+### [COVID-19 最新情报｜研究：蜂蜜与黑孜然联合疗法能有效促进 COVID-19 患者康复](/content/gnews/2/README.md)
  ` 關注組`
 
-### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/58/README.md)
- ` GTV新闻访谈`
+### [2021年 2022年是人类命运的分水岭](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/59/README.md)
+### [美国最高法院不允许公司强制接种疫苗](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国最高法院叫停拜登的大企业疫苗强制令](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报:美国会共和党人追责新冠溯源调查 提制裁中科院](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [日本时隔4个月新增中共病毒确诊人数再次超过13000人](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新冠家庭自我测试套件中含有致命药物，制造商无需担责](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文•贵天成——文贵先生谈“王毅”（四）](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [塔利班在经济危机之下用小麦取代现金支付](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [农场的建立及意义（一）](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [现世报的轮回](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [1/12/2021 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [1.13大直播后记：农场的建立及意义（二）](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [科学是主义而不是真理](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [元曲新作：天净沙·剥杨贝贝三层画皮](/content/gnews/17/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [1.13大直播后记：黄金部队的腐败（一）](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [GTV新闻访谈简报|2022年1月13日晚](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [1.13大直播后记：黄金部队在西藏、新疆的腐败（二）](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [关于中国经济和灭共的天机](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美护士警告：更多孩子死于新冠疫苗而不是新冠本身](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1.13大直播后记：鹤岗破产](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [光天化日下中共向世界讲述中国民主的笑话](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [人权观察报告：习近平时代对中共国人权压制更严厉](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [塔克•卡尔森: 数百万人诚心诚意地接种了疫苗，现在他们居然还是感染上了冠状病毒。](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/28/README.md)
+ ` 首尔天池农场`
+
+### [1/12/2021 文贵直播：为什么说上天在帮助新中国联邦？](/content/gnews/29/README.md)
+ ` 秘密翻译组-北美组`
+
+### [海外华人被中共代理人代表的巨大风险](/content/gnews/30/README.md)
+ ` 秘密翻译组-原创组`
+
+### [禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美陆军3000名军人因拒绝接种疫苗被训斥](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：北京当局向市民呼吁即便发生交通事故也不要靠近参赛车辆](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加情报局首次警告议员谨防中共的影响力行动](/content/gnews/60/README.md)
+### [短视频：美国国家冰球联盟将不参加北京冬奥会](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [最高法院阻止了拜登对企业的新冠病毒疫苗授权，允许医护人员规则](/content/gnews/35/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/36/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [北京对运动员“闭环” 并无视奥组委呼吁升起参赛国国旗](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】美的开始芯片大跃进](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】海外第三大中国股票基金大举减持茅台等多家中企股票](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【中日财经爆】2050年“中国人口将减半”的惊人事实](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/41/README.md)
+ ` YALUN 亚伦`
+
+### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/43/README.md)
+ ` 秘密翻译组-原创组`
+
+### [Eglise医生对比中美军医](/content/gnews/44/README.md)
+ ` 军情启示录`
+
+### [秘翻在线: 孙力军涉嫌受贿、操纵证券市场、非法持枪被提起公诉](/content/gnews/45/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年01月12日文贵大直播焦点报道简报](/content/gnews/46/README.md)
+ ` 秘密翻译组-原创组`
+
+### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/47/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/48/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/49/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [现实不是电影](/content/gnews/50/README.md)
+ ` 骄子`
+
+### [去雍和宫烧香的年轻人](/content/gnews/51/README.md)
+ ` 骄子`
+
+### [新西兰财经G乐部2022年1月13日:财经新闻整理](/content/gnews/52/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [盖特言论自由，用户不被屏蔽或因政治信仰而被踢出平台](/content/gnews/53/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/55/README.md)
  ` 华盛顿DC-Russian`
+
+### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/56/README.md)
+ ` 秘密翻译组-北美组`
+
+### [世卫：半数欧洲人未来两月内或将感染奥密克戎](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [港闻速递｜传前世卫总干事陈冯富珍有意竞选下任特首 获董建华智囊团支持](/content/gnews/58/README.md)
+ ` 關注組`
+
+### [德国反强制疫苗媒体Compact进驻盖特](/content/gnews/59/README.md)
+ ` GTV新闻访谈`
+
+### [根据泄露的军事文件，伊维菌素在中共病毒的“所有阶段都起作用”](/content/gnews/60/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [马龙博士警告，中共国出血热病毒源于疫苗大规模接种](/content/gnews/61/README.md)
  ` 墨尔本雅典娜农场`

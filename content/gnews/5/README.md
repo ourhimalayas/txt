@@ -2,11 +2,13 @@
 ---
 
 
-## 1/12/2021 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1857753/)
+## 美国最高法院叫停拜登的大企业疫苗强制令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857849/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220114-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

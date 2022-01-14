@@ -2,23 +2,17 @@
 ---
 
 
-## 重磅：美最高法院终止拜登的疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1857201/)
+## 秘翻在线：北京当局向市民呼吁即便发生交通事故也不要靠近参赛车辆
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1857555/)
 
-撰稿：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/p2212322a883389718-ss.jpg)网络截图
-1月13日星期四，美国最高法院以6票对3票的投票结果，推翻了拜登政府的疫苗强制令，宣布职业安全与健康管理局超越了其权限。
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-23.jpg)图片来源：读卖新闻（日本）
+为在下个月到来的北京冬季奥运会、残奥会，北京市交通局对市民呼吁：即便发生交通事故也不要靠近涉赛车辆。中共病毒(新冠病毒)对策就是彻底阻断（泡沫方式）与外部接触的措施。与会人员通过专用车辆运送至酒店及比赛场馆。泡沫圈以外人员不得逗留。市交通部门遵循“即便遭遇事故，也不得接触对方车辆及人员，等待专职工作人员处理”。担心运送伤员及事故处理延误方面，11号的记者连线会议上组委会人员表示，将配置急救电话专线人员值守，以便做出迅速反应
 
-2021年9月9日美国总统拜登签署两项行政令，分别要求美国政府雇员和政府服务承包商必须接种新冠疫苗。
+信息来源：[https://www.yomiuri.co.jp/olympic/2022/20220112-OYT1T50053/](https://www.yomiuri.co.jp/olympic/2022/20220112-OYT1T50053/)
 
-随着新变种病毒omicron疯狂的施虐，美国的日新增病例已经到了每日100万以上，疫苗的保护作用荡然无存，打过加强针的也难以幸免，越来越多的民众在痛苦中觉醒，疫苗无效、疫苗有害这种概念被更多的人接受。
+责编：待命（文晓）
 
-文贵先生说：我相信很快疫苗会停下来。我们再一次见证七哥的预判，相信接下来会有更多的国家加入到停止疫苗的行列。
-
-新闻来源：
-
-[https://www.npr.org/2022/01/13/1072165393/supreme-court-blocks-bidens-vaccine-or-test-mandate-for-large-private-companies](https://www.npr.org/2022/01/13/1072165393/supreme-court-blocks-bidens-vaccine-or-test-mandate-for-large-private-companies)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
