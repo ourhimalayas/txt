@@ -2,39 +2,44 @@
 ---
 
 
-## 有声|深圳疫情源头甩锅到境外物品？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860676/)
+## 有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860837/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山教育部 – Rose
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据深圳特区报1月10日的报道，在深圳市举行疫情防控新闻发布会上，市卫生健康委二级巡视员林汉城介绍，经综合分析，深圳本次疫情为境外输入引起的本土疫情，暴露于境外新冠病毒污染物品引起感染的可能性大。
 
-然后网友的评论“可能？这说法能服众？”、“可能？这种问题能用可能吗？”、“意思是物传人?”等等。一个深圳速度检测，结果就把源头甩到了境外物品上，再一次玩弄了一把网民的智商。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-14.jpg)
 
-如果是物品，是从哪个国家进口的？运输途中花了多长时间？是哪批次的物品？这批物品都有谁接触了？发布会上都没有具体介绍。
 
-众所周知，病毒是人传人。如果是物传人的话，病毒没有宿主怎么传到人？何况进口物品在进关的时候都有进行表面消毒。所谓权威的新闻发布会上，在没有详实的检验检疫的报告下，却推断出疫情源头是“境外新冠病毒污染物品引起感染的可能性大”的结论，那么你们就是一本正经地胡说八道。要么知道这源头就是文贵先生爆料说的“这次疫情不是任何新的病毒，而是疫苗”！
 
-文字版原文：[深圳疫情源头甩锅到境外物品？](https://gnews.org/zh-hans/1851051/)
+喜币（HCN）是以黄金为锚的金本位数字货币。未来以黄金为锚定的数字货币将替代非黄金锚定的法币和非黄金锚定的数字货币。喜币前途不可限量。郭文贵先生直播时指出：喜币（HCN）一定会成为世界上数字货币游戏（规则）的制定者和开拓者。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+黄金和白银是贯穿人类历史的通用货币。随着社会的发展，金银作为货币的弊端也越来越明显：真假难辨，运输和储存成本高且困难，支付不及时等问题，为了解决金银货币流通问题，出现了以黄金为锚的金本位法币。从历史上看，随着布雷顿森林体系的崩溃，美元的金本位制被放弃。主要原因是美元发行失控，美元印制与黄金储备不成比例。因此，黄金锚定的承诺无法兑现。
+
+原文链接：[喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](https://gnews.org/zh-hans/1855871/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

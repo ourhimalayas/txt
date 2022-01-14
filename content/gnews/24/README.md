@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|新冠疫苗即将被叫停 最后关头做好防护
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860756/)
+## 七哥谈共产党为叛国卖国甩锅美国（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860849/)
 
-配音：香草山健身部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播09：23：34摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
+为什么山峰在6000多米和7000米之间，形成这个……喜马拉雅山上有三大湖泊，三大湖泊！你在谷歌上你是找不到的，昆仑山的地狱之门你是找不到的，竟然有人说：我找到了共产党的祭坛。你绝对找不到，因为祭坛在山里边儿。那个祭坛的设计那个施工之精美，真的是比拍大片儿还夸张。你们太小看共产党了，共产党在控制着14亿人呐。你们有没有算过，人类只有75亿人，亚洲多少人你们知道吗？草根小哥你知道整个亚洲多少人吗？中共14亿人，印度15亿人，那就已经快30亿人了，再加其他国家，亚洲占了人类地球这一半儿的人呐。一个欧洲才多少人呐，六七亿人，四五亿人口。你一个帕米尔高原，整个旁边这河边儿居住的多少人？6亿人。一个印度就十几亿人，一个中国就十几亿人。你在想啥呢？所以共产党在那卖国的时候，叛国的时候你知道吗？你们永远是叛国罪、卖国罪，谁敢想江泽民会叛国卖国，谁想朱镕基、曾庆红会叛国卖国。哈萨克斯坦的事情你觉得那么简单嘛？七哥告诉你们了吧，我说一定会甩锅美国。七哥是第一个在哈萨克斯坦事情发生之前说这话吧，是懵的吗？
 
-郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生强调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
+**关注我们**
 
-文字版原文：[新冠疫苗即将被叫停 最后关头做好防护](https://gnews.org/zh-hans/1851552/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
