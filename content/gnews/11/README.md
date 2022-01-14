@@ -2,25 +2,34 @@
 ---
 
 
-## 应对用工荒，澳洲维多利亚地区进一步放宽隔离限制
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1859967/)
+## 泄漏文件显示中共高层为冬奥严控疫情
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1860020/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011405.jpg)网络图片
-由于CCP病毒导致了严重的人员短缺，维多利亚州更多的工作岗位将放宽密切接触者的隔离要求。州长丹尼尔安德鲁斯今天宣布，紧急服务、教育、关键公用事业、保管设施以及运输和货运部门将与食品生产和分销行业一样，从下周二开始免除关键工人的 7 天隔离要求。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月12日，知情人士在盖特平台上披露了一份关于中共陕西省政府的防疫公文。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-14-上午11.28.50.png)
+该公文显示，陕西省省长赵一德在2021年12月24日的陕西省疫情防控调度会上声称，时逢冬奥会召开在即，为了所谓的“国家形象”，陕西省必须在防疫问题上从严、从紧并严肃追责、问责，还要以最强硬的举措阻断传播链条。至于如何照顾当地民众的生活需求，赵一德只以一句“稳定大局”的空话将其带过。
 
-州长表示：“如果雇员扮演着关键角色，他们将免于居家隔离……他们需要用五天时间进行CCP病毒测试，如果结果为阴性，他们可以继续进行这项关键工作。”
+另据相关人员透露，西安市内的物资分配目前严重两极分化：大多数普通民众正面临着缺乏生活物资、被强制驱离居所和挨饿受冻的情况，但权贵家庭却享受着官方亲自送达丰富特供食物的待遇。
 
-从下周二开始，在紧急服务、教育、关键公用事业、保管设施以及运输和货运行业中履行关键工作职能的家庭密切接触者将免于 7 天的隔离要求。
+对此，分析人士则指出，中共的防疫政策只以达成中共政治目标为目的，在此情况下，除了需要照顾好中共权贵人士外，墙内的一般民众只是随时可以被牺牲、放弃的工具。
 
-不过密切接触者只能离开家去上班，其余时间他们仍将被隔离，在此期间社交活动是不被允许的。在工作期间密切接触者也被要求与其它员工分开用餐，在工作时间段内需要佩戴N95口罩。
+参考链接：[https://gettr.com/post/pnvhsj92c2](https://gettr.com/post/pnvhsj92c2)
 
-CCP病毒防疫指挥官 Jeroen Weimar 警告说，放宽的隔离规则并不意味着这些部门的所有工人都可以躲避隔离，只有那些执行关键工作职能的人才能上班。Weimar先生表示：“这些工人需要被小心对待……从 Omicron的大流行中，我们知道大约四分之一或一半的密切接触者最终会被感染。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-新闻参考链接：[Victoria’s close contact isolation rules ease for additional industries](https://www.9news.com.au/national/coronavirus-updates-victoria-new-case-numbers-new-restrictions-return-overnight/bb9f6fbc-74b8-43bc-a8d9-88652917a5cb)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+总编：文特
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,47 +2,38 @@
 ---
 
 
-## 更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1860060/)
+## 辉瑞总裁承认前两针疫苗作用不大
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1860094/)
 
-编译：Jenny Ball
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1098.png)图片来源:breitbart.com
+整理报道：小鱼儿
+编辑：守望黎明
 
-2022 年冬季奥运会的组织官员周二表示，奥运会的主办城市北京，没有计划在 2 月 4 日至 2 月 20 日举行的活动期间，封锁首都的任何部分以防止中国冠状病毒的传播，尽管周边地区越来越多地被封锁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/SK1E_2VNNIU39EV3OHV.png)图片来源：每日邮报
 
-1月11日，领导2022年冬季奥运会冠状病毒预防工作的黄春对记者说：“下个月的奥运会不需要封锁北京。”他补充说，目前，针对北京或其周边的河北省的封锁令仍然“不可行”。
 
-他谈到北京目前的冠状病毒病例时说：“总体情况仍在可控范围内。”
+据自然新闻(Natural News)1月13日报道，在其mRNA疫苗项目推出不到一年的时间后，辉瑞公司首席执行官艾伯特·布拉(Albert Bourla)终于承认了项目的失败。
 
-**（点评：中共的可控既它可以为所欲为无法无天。这么说吧，唯一中共不可控的，是爆料革命和新中国联邦，即使中共使尽解数动用国外HBO、VICE这样的媒体抹黑郭文贵先生和爆料革命战友，中共就是控制不了战友们传播真相。除此，中共在大陆和世界，似乎它都可控！）**
+在最近的一次采访中，布拉承认，前两剂刺突蛋白mRNA疫苗对新冠病毒只提供了 “有限防护”，他甚至对 “加强版 ”疫苗表示怀疑。布拉说，第四种剂疫苗应该在2022年3月之前问世，它应该提供能迄今为止最大的保护！。在这一点上，布拉只是在胡言乱语——完全是一派胡言。
 
-黄建议 2022 年冬奥会组委会初步努力为所有参加奥运会的运动员和工作人员创造一个无冠状病毒的“泡沫”， 据称这有助于中国首都的冠状病毒局势稳定。委员会于 1 月 4 日启动了一个“闭环”管理系统，**将奥运会参与者与北京更多人口进行物理隔离**。并表示，截至 1 月 11 日，该系统创造的准备条件目前“运行良好”。
+现在这些被公认为失败的疫苗，就是布拉曾经宣称的对预防新冠百分之百有效的针剂。现在，到了2022年，布拉基本上又在重复着和先前同样的话——第四剂疫苗将对严重的新冠病毒百分之百有效。
 
-尽管北京声称没有计划在冬奥会期间封锁其人口，但与该市及其周边省份河北省直接接壤的地区，最近几天对居民实施了行动限制，以遏制当地的冠状病毒爆发，并防止它们传播到北京。1 月 9 日晚，毗邻北京的东南部港口城市天津市，中共天津的负责人已禁止所有人员出城。
+2021年的新冠疫苗只是一道开胃菜，是辉瑞公司和其他生物技术公司对人类DNA进行实验的第一步。布拉出现在一档财经论谈(Squawk Box)节目中，谈论了在基因编辑领域的几个新的合作伙伴。大科技公司和企业掌控的媒体在过去两年里一直在否认基因编辑这一现实，将其说成是“阴谋论”。然而，辉瑞公司正在与光束治疗(Beam Therapeutics)公司、法典(Codex )DNA公司和阿库塔斯(Acutas)公司合作，就是为了最终做成这件事——改变人们的DNA。
 
-“在排除感染风险之前，发烧的公民不得离开天津或进入北京……”中共官方媒体新华社周日报道。
+mRNA平台被作为“疫苗 ”贩卖给公众，但它实际上只是一个减少人口和实现生理控制的工具——是在可预见的未来对人类进行剥削和基因改造的出发点。
 
-中共官方媒体《环球时报》1月9日报道说：“该市还通过在高速公路和运输站设置检查站和特殊通道，加强对前往北京人员的检查。”
+参考新闻：[Pfizer CEO just admitted his company’s shots are useless, double jabbed have “very limited protection, if any” – so why are governments still paying for Pfizer shots and mandating them?](https://www.naturalnews.com/2022-01-13-pfizer-ceo-admitted-shots-are-useless-double-jabbed-have-limited-protection-if-any.html)
 
-天津约有1400万人口， 该市是每天前往北京在首都工作的工人的主要通勤基地。1月9日，天津市公交部门“暂停”销售天津至北京高铁列车车票。北京疾控中心要求天津市所有通勤人员“在家办公，不要来京”。
+发布：tianzhihuan
 
-河南省各市县的共产党官员最近几天也限制了当地人口的流动，河南省与河北省南部接壤。拥有 550 万居民的河南最北端城市安阳，于 1 月 10 日晚对其居民实施了严格的居家令。中共当局于 1 月 12 日宣布对安阳县下辖的滑县实施额外的封锁令。
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1100.png)一名身穿防护服的工人将居民带到天津一个临时的 Covid-19 冠状病毒检测中心。 （STR/法新社通过盖蒂图片社）
-
-《环球时报》报道说：“滑县居民应该呆在室内，在家工作。”“除必要用途外，所有车辆均禁止上路。”
-
-“该县的企业、餐馆暂停营业，但提供必需品的商店、药店和医疗机构除外。公共交通也被暂停，”报告称。
-
-新闻来源:[breitbart.com] [China Insists ‘No Lockdown’ for Genocide Olympics as More Regions Go Under](https://www.breitbart.com/asia/2022/01/13/china-insists-no-lockdown-for-genocide-olympics-as-more-regions-go-under/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

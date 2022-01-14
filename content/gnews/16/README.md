@@ -2,29 +2,31 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
+## 信任度仅31%——福奇的许多谎言已验证
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859942/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1092.png)图片来源 :thegatewaypundit.com
+正如我们在本网站上多次说过的：**只有当福奇下台时，大流行才会结束**。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
-文章仅代表作者本人观点，与Gnews无关
+马龙博士和史蒂夫·班农今天早些时候在作战室，考量了这项福奇毁灭性的民意调查。
 
-视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
+本周早些时候的文件和电子邮件证明，托尼·福奇博士一年多来一直在谎报大流行的起源和有效的治疗方法。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+由于他的谎言和无能，已经有超过 500,000 名美国人丧生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
+直到今天，CDC 和 FDA 仍在阻止对美国人进行有效的冠状病毒治疗。FDA和CDC的信任度仅 49.88%。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1094.png)图片来源 :thegatewaypundit.com
 
+新闻来源 :[thegatewaypundit.com][BOOM! Only 31% of Americans Trust Megalomaniac Dr. Fauci After His Many Proven Lies on COVID Origins and Effective Treatments](https://www.thegatewaypundit.com/2022/01/boom-30-americans-trust-megalomaniac-dr-fauci-many-proven-lies-covid-origins-effective-treatments/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
