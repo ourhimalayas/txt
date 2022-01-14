@@ -2,43 +2,24 @@
 ---
 
 
-## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
+## 共产党对媒体的控制（三）
+` 文贵直播大事记` [轉載自GNews](https://gnews.org/zh-hans/1859609/)
 
-作者：波士顿五月花 北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
-**作者提示：不要相信我说的，你自己去核实。
-**
+整理：雅典娜速记组
+发布：tianzhihuan
 
-**郭文贵先生 Mr. Miles Guo**
+你在中国一个共产党的政权的统治下，你怎么当人权律师的？是吧，你问乱伦彪，**一**万多页的郭文贵乱伦的这个站的住脚吗？所以说，这一模一样的道理，他所说的话正好是相反的。然后看到了刚才你们**PPT**讲到中国说我的经济有多强，经济多好，就业有多好, 你记住共产党说这个的时候，这个真的就危险了，啊，它既要开展，家天下，一家之天下，习家之天下。唯一的声音，唯一的伟大，唯一的权力，唯一的平台，唯一的向全世界告诉你的所有事情的答案的地方。
 
-1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
-2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
-3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
-4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
-[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
-5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
-6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
+他怎么能这么说话呢？所有的经济指标大家能看到，共产党把全世界的经济彻底的绑架， 这是从房地产和冬奥会和全世界市场，共产党既是玩假的擀面杖的经济，西方都跟着他一上一下。你知道有多可怕呀？这嫖客来了，有钱，是不是？嫖客穿的衣服一进夜总会， 哎呀我高潮了，所有妓女说哎呀哎呀，就跟着叫，是吧？这什么因为啥？他是个大嫖客 是吧，他高潮我也得高潮是不是？他就是这个道理啊！如果文疯说哎呀我肚子疼，一定要我也肚子疼是不是啊？都这样，现在共产党就是这个拎着几箱子钱，印的假钱虽然是假的，虽然小姐知道文疯根本就不行，但是我不管你行不行，我得先跟着你先喊几声， 包括这个伊萨贝拉的**HBO**、**voice,**（说）共产党没有给世界放病毒，是（文贵）你撒的谎，共产党没有想灭白人，他想灭什么人了？这病毒白人没得的多嘛，他没有灭白，是 不是叫灭黑人呢？是不要灭人？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党对媒体的控制（三）-.jpg)
+*发布：*tianzhihuan
 
-
-**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
-
-[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
-
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
-
-[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
-
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
-
-* * *
-
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

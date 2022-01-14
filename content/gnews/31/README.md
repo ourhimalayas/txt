@@ -2,44 +2,38 @@
 ---
 
 
-## 一周中共病毒及疫苗伤害信息集锦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859550/)
+## 1/14银河快讯：岸田首相计划缩短第三剂疫苗接种时间；台积电今年将在熊本建新厂
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1859518/)
 
-作者：纽约香草山农场设计部 – 火来、医疗部 – Zion文恩
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月4日至11日，除中共国外，全球新增中共病毒确诊病例一千八百万余例，同比上周增长了46.7%。本周新增死亡病例超四万六千例，同比上周增长了9.35%。截止本月11日，除中共国外，全球累计接种了67.5亿剂中共病毒疫苗，同比上周增长了3.05%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-14.jpg)
-本周，中共国内的疫情日趋严重：继西安和禹州之后，河南安阳于10日开始封城，而河南滑县也于第二天全县临时封闭管理。而自天津9日首次出现奥米克戎确诊病例后，墙内多地发布对天津迁入人员的防控措施。与此同时，天津也开始了第二轮全员核酸检测。目前，北京已严控外地人员进出，而广东省更是出台了“一例密接、即刻封楼”的荒唐政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-88.png)[图片来源](https://www.orangenews.hk/)
+**1****.****日本新增病例超过1****8000****例，比****前****日增5****000****多**
 
-国际方面，各国疯狂的强制中共病毒疫苗政策仍在继续：法国总统马克龙表示，将大力推进全民疫苗接种，甚至为此声称“不接种疫苗就是不爱法国”。意大利则进一步收紧疫苗政策，50岁以上的意大利居民被要求全部接种疫苗，否则将被禁止进入非必需公共设施。同时，澳大利亚北方领地行政长官也宣布，将对当地未接种疫苗的人群执行出行限制。
+[据TBS新闻报道，JNN的数据汇总显示，日本全国13日新增确诊中共病毒（新冠病毒COVID-19）病例18860例。与前一天（13251例）相比，增加了5,000多例。这是自去年9月2日（18,213例）以来，约四个月内单日新感染人数首次超过18000例。东京新增3124例，大阪府新增2452例；其他11个县，包括广岛（805例）、滋贺（287例）和新泻（220例），也报告了创纪录的病例数。](https://news.yahoo.co.jp/articles/a3a0f46bf83257e0fe86a3bd639618e8c085b440)
 
-讽刺的是，多位接种了中共病毒疫苗加强针的西方政要于本周相继感染中共病毒，当中包括奥地利总理内汉姆，美国众议员科泰斯、南希-梅斯等。
+**2****.****岸田首相****计划缩短****5500万人第三****剂****疫苗接种****时间**
 
-此外，辉瑞公司CEO终于在采访中承认，疫苗对防止病毒感染的能力非常有限，但他们仍会继续推进新版疫苗的上市。
+[TBS新闻1月13日报道，首相在接受news23的独家采访时称：“从3月开始，因我们已确保获得摩德纳的1800万剂额外疫苗， 我们将提前开始5500万人的第三剂接种。在地方政府的帮助下，我们将尽力（第二剂与第三剂的间隔）缩短到6个月。” 对于一般的老年人，岸田说将“尽一切努力使这一期限达到6个月”，比目前的7个月提前一个月。](https://news.yahoo.co.jp/articles/faa9bef18ffef883a3889bb90dcb34503910f23e)
 
-在病毒溯源和防治方面：美国国会公开了更多安东尼-福奇的邮件，其内容显示福奇涉嫌故意掩盖并持续打压有关病毒来源的信息。而美国非盈利新闻机构“真相工程”也在一份曝光的报告中明确指出，中共病毒是在“功能获得研究“下人工改造的结果，以及mRNA疫苗实际上害大于利。该报告也提到了早期治疗药物，如硫酸羟氯喹、伊维菌素等可以有效预防感染以及在感染早期有效遏制病情恶化的功效，但这些信息均被相关机构忽视并掩盖了。
+**3****.****台积电今年将在熊本建新厂**
 
-参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-04..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-4) .[Austrian Chancellor Nehammer Tests Positive for Covid](https://www.bloomberg.com/news/articles/2022-01-07/austrian-chancellor-nehammer-tests-positive-for-covid)
-5) . [Fauci Emails Describe COVID Natural Origins Theory As ‘Highly Unlikely’ Despite Public Denials.](https://thenationalpulse.com/2022/01/11/emails-show-fauci-collins-downplayed-lableak/)
-6) . [Italy extends COVID vaccine mandate to everyone over 50](https://www.reuters.com/world/europe/italy-make-covid-jab-mandatory-over-50s-tighten-curbs-draft-2022-01-05/)
+[据NHK 1月13日报道，根据台积电的公告，台积电今年的资本投资将在400亿至440亿美元之间，远远超过去年300亿美元的最高纪录。为了满足全球对半导体日益增长的需求，台积电正在台北、亚利桑那州、南京和熊本县扩建和建设新工厂。熊本新工厂将在明年年底前准备好并投入生产。](https://www3.nhk.or.jp/news/html/20220113/k10013429391000.html?utm_int=news-business_contents_news-main_001)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**4****.****东京病床使用率达2****0****%实施“重点措施”，达5****0****%递交“紧急事态宣言”**
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+[据NHK 1月13日报道，截至12日，东京的医院床位使用率为13.7%。当床位使用率达到20%时，东京都政府将考虑提出采取“防止蔓延重点措施”；当达到50%时，将申请“紧急事态宣言”。东京都政府正在与埼玉县、千叶县和神奈川县合作，考虑采取有效措施。](https://www3.nhk.or.jp/news/html/20220113/k10013428481000.html?utm_int=news-new_contents_list-items_029)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**5****.****驻日美军可能****是导致疫情****传播****的一因**
+
+[据路透社报道，外交部长林芳正1月13日下午的新闻发布会上说，不能排除驻日美军向邻近地区传播是中共病毒（新冠病毒Covid-19）在冲绳和日本其他地区流行的一因。他重申，他没有考虑审查《部队地位协定》，但强调他将与美方就防止病毒传播进行密切磋商。](https://news.yahoo.co.jp/articles/f873a9751f1ee37e06e94d7b8abf953322057bfd)
+
+**6****.****迅****销****公司报告截至11月的季度利润创****公司****纪录**
+
+[据NHK 13日报道，截至去年11月的三个月里，经营优衣库品牌的迅销公司的业绩显示销售额为6273亿日元，比上年同期增长1.2%。该公司的最终利润为935亿日元，比前一年高出33%，是这一时期的最高值，超过了疫情之前。日本国内销售与前一年相比有所下降，但中国和欧美经济活动的正常化弥补了收益的差异。](https://www3.nhk.or.jp/news/html/20220113/k10013429531000.html)
+
+【日本银河系农场-阿尔法星球】
+作者：帆間知津
+校对：Tagomi
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

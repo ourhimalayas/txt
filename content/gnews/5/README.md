@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|科兴公司2021年度半年内狂赚50亿美金
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1859874/)
+## GTV新闻访谈简报|2022年1月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月11日，据有关媒体报道，在美国挂牌的中共国科兴生物公司仅在2021年的上半年就实现了超出50亿美元的净盈利营收。
+视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
 
-另据科兴公司近期披露的财务报表显示，该公司的销售额在2021年上半年暴增至110亿美元，较2020年同期增长了162倍，其中归属于股东的净利润则高达51亿美元。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-然而资料显示，科兴在未研发中共病毒疫苗之前，其业绩上一直表现平平。自科兴2004年赴美挂牌后，该公司一直处于连年亏损的低谷之中。2020年，科兴生物公司的总营收仅有六千七百七十万美元，依然亏损了超过一千两百万美金。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
 
-对此，有相关人士指出，科兴公司在2021年所取得的超常业绩完全源于各国政府的中共病毒疫苗强制接种政策，而科兴的财务报表只是暴露了疫苗暴利行业的冰山一角。
-
-文字版原文：[科兴公司2021年度半年内狂赚50亿美金](https://gnews.org/zh-hans/1851529/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
