@@ -2,22 +2,28 @@
 ---
 
 
-## 多数加拿大人认为将会感染奥密克戎
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859901/)
+## GTV新闻访谈简报|2022年1月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
 
-采编：文莱          翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-3.jpg)
-据加拿大媒体《蜂巢日报》1月13日报道，最新民调结果显示，半数以上加拿大人认为他们将在未来某个时候感染“奥密克戎”变体病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-报道称，在本次调查的3375名受访者中，认为自己最有可能被感染的年龄组是34至55岁，并且家里都有学龄儿童。同时，在认为最有可能被病毒感染的受访者中，纽芬兰省的人数最多，占60%，而萨斯喀彻温省最为乐观，为47%。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-综合总体调查结果来看，约40%的加拿大人希望尽快结束目前所有的疫情限制措施，而56%的人则认为这些措施应该继续存在。此外，有高达近90%的未接种疫苗者表示，当局应立即取消现行的以防控疫情为由的各项人身活动限制规定。
+视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
 
-校对编辑：硫酸羟氯喹64
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
 
-[原文链接](https://dailyhive.com/vancouver/half-canadians-expect-omicron-angus-reid)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
