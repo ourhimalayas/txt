@@ -2,34 +2,22 @@
 ---
 
 
-## 加拿大魁北克省将对未接种疫苗者进行经济处罚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853242/)
+## 美国制裁朝俄人员及公司 涉嫌参与朝鲜弹道导弹开发采购
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1854761/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-《蒙特利尔公报》1月11 日报道，魁北克省长**勒戈**在新闻发布会指出，绝大多数魁北克人已经接种了疫苗，并正在接受加强针。但仍有大约10%的魁北克人拒绝接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-37.jpg)
-勒戈宣布，魁北克省在研擬相關实施细则，將會對未接种疫苗的成年人處以“健康费”的处罚。他表示，该处罚将是一个”相当大的数额” 。另外，這项政令只对有医疗原因，而不能接种疫苗的人士豁免。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-971.png)
+据日本【TBS新闻】1月13日报道：美国政府对六名朝鲜人、一名俄罗斯人和一家俄罗斯公司实施制裁，称这些人和公司负责从俄罗斯和中国采购商品用于朝鲜武器计划。
 
-据了解，至今没有一个权威部门能给出结论，证明疫情扩散是因为未接种疫苗的人所致，更无法证实这些人额外占用了医疗资源。
+这六名朝鲜人均在朝鲜的武器开发部门工作，据称他们参与了开发大规模毁灭性武器和弹道导弹所需的通信设备和化学品的采购。
 
-参考链接：[加拿大魁北克省将对未接种疫苗者进行经济处罚](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
+美国政府说，这一行动是在“自去年9月以来的六次弹道导弹发射”之后采取的，并批评“朝鲜最近的导弹发射就是仍旧在开发被禁武器的证明”。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+信息来源：[**弾道ミサイルの部品調達に関与か 北朝鮮の男ら７人を制裁対象に**](https://news.tbs.co.jp/newseye/tbs_newseye4447012.html)
 
-总编：Irene木木
-编辑：Jack Li文阳
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

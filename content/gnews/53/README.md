@@ -2,67 +2,33 @@
 ---
 
 
-## WHO突然转向 警告不要持续接种疫苗加强剂
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1852147/)
+## 加拿大魁北克省将对未接种疫苗者进行经济处罚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1853242/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/W.jpg)thekycker.com
-就在笔者刚刚投稿完毕（《欧洲监管机构警告频繁接种加强剂危害免疫系统》【1】），又出现了后续报道，世界卫组织（WHO）也步欧洲药品管理局（EMA，European Medicines Agency）后尘，发出警告不要持续接种中共（新冠）病毒疫苗。
+作者：加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+《蒙特利尔公报》1月11 日报道，魁北克省长**勒戈**在新闻发布会指出，绝大多数魁北克人已经接种了疫苗，并正在接受加强针。但仍有大约10%的魁北克人拒绝接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-37.jpg)
+勒戈宣布，魁北克省在研擬相關实施细则，將會對未接种疫苗的成年人處以“健康费”的处罚。他表示，该处罚将是一个”相当大的数额” 。另外，這项政令只对有医疗原因，而不能接种疫苗的人士豁免。
 
-来自《门道专家》1月12日的文章，题目是“震惊：世界卫生组织加入欧盟行列改变了方向 —— 突然警告不要持续施打中共病毒疫苗加强剂”。【2】
+据了解，至今没有一个权威部门能给出结论，证明疫情扩散是因为未接种疫苗的人所致，更无法证实这些人额外占用了医疗资源。
 
-全文如下：
+参考链接：[加拿大魁北克省将对未接种疫苗者进行经济处罚](https://montrealgazette.com/news/local-news/covid-19-updates-montreal-quebec-new-cases-vaccine-vaccination-hospital-booster-shot-omicron-arruda-legault-curfew-january-11)
 
-周二（1月11日），欧洲监管机构警告说，中共病毒疫苗加强剂可能对免疫系统产生不利影响。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-这对欧洲官员来说是一个巨大的昭告变化，因为他们在几周前就开始了加强剂的施打。怎么搞的？
+总编：Irene木木
+编辑：Jack Li文阳
+校对/发稿：Hetangyuese
 
-然后在当天晚些时候，世界卫生组织加入了欧盟的行列，也谴责了持续的加强剂方案。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-这么快。
-
-发生啥了？
-
-关于实验性mRNA疫苗，他们现在看到了什么是一个月前他们没看到的？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-114.png)
-世界卫生组织在周二（1月11日）发布的一份声明中表示，“基于原疫苗成分的反复接种加强剂的疫苗策略，不太可能是合适的或是可持续的。”
-
-亚历克斯·贝伦森（Alex Berenson）在《子栈》（Substack）上的文章摘要：
-
-现在，世界卫生组织也在中共病毒疫苗加强剂问题上挥起了白旗。
-
-世界卫生组织昨天发布了一份关于中共病毒疫苗的声明，它充满了常见的公共卫生术语和屁话，但有一句话很突出：
-
-基于原疫苗成分的反复接种加强剂的疫苗策略，不太可能是合适或是可持续的。
-
-一切都结束了，各位。
-
-除了少数倒霉的以色列人，没有人会接种第四剂原始疫苗；每个有眼睛的人都能看到它对奥密克戎不起作用。（如果你还没有接种第三剂，那么你为什么要接种呢？你最多可只能得到几周的轻微提高的保护，但要承受有可能的严重副作用。）
-
-相反，世界卫生组织现在正在承诺/满足要求的疫苗，是基于目前中共病毒毒株的主要品种研制的疫苗。
-
-这一承诺与卫生官员和疫苗公司所作的所有其他承诺一样空洞。
-
-在过去的一年里，至少有五个主要变体（“变异毒株”）在发展，两个已经成为全球主导，即使是mRNA疫苗也无法快速制备和提供来匹配任何占主导的病毒株。中共病毒的发展速度比科学家快。
-
-（原文完）
-
-中共病毒疫苗强制政策走到头了，要结束了！
-
-欧盟、世界卫生组织都表态了，虽然很含蓄，知道内幕、认知阴谋集团的人就能读出其中的奥秘。
-
-即将进入清算阶段！
-
-战友们加油！
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1851976/](https://gnews.org/zh-hans/1851976/)
-
-【2】[https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,139 +2,25 @@
 ---
 
 
-## 重庆大爆炸预示着中共迎来争夺二十大的决战时刻—习曾之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1857595/)
+## 1.13大直播后记：二十大将不存在
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857669/)
 
-[https://gtv.org/video/id=61e01be987664c47acd41c78](https://gtv.org/video/id=61e01be987664c47acd41c78)
+整理：雅典娜速记组
+编辑：Rianna
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/4-16.jpg)配图：雅典娜设计组～614
 
-说到这儿的时候
-Hablando hasta aquí
 
-兄弟姊妹们
-Hermanos y hermanas
+大家你看到没有，栗战书出来了吧，栗战书出来要证明自己没事。 你记住周永康在被抓之前，薄熙来被抓之前，都多次出来证明自己没事，薄熙来的事情告诉中国一个政治常识，甭说这老百姓不知道，真正想干这事儿之前,中南坑也不都知道，需要保护好秘密，不是出面就能证明的，海外华人媒体，你能找一家谈共产党政治能说对的吗？都是瞎蒙的，都是胡球扯，就是海外华人媒体未来在中国历史上被审判的时候，它跟共党是同等的罪行，叫小骂大帮忙！什么万维、多维、明镜啊……这一堆垃圾媒体全是误国。那么同时你看到这个20大前腥风血雨的斗争还没开始。王岐山当了副主席，你看看很多人觉得好像天塌地陷一样，他们有一点懂历史的吗，中国的副主席像什么高岗、刘少奇、林彪有一个好下场的吗？王岐山能有啥好下场？你再看看，现在栗战书也好，栗战书能咋地，你管栗战书有啥用？栗战书生死跟咱鸟关系呀。中国只有一个人跟咱有关系，有鸟的关系那就是习近平，其他都扯淡！其余所有人的好坏跟咱没鸟的关系。就像咱这龙头，咱那个龙头跟谁连着呢？跟昆仑山连着呢，跟喜马拉雅山连着呢，跟他（习）爹的坟墓正连着，他知道他爹的坟墓跟盘古之间关系（后）他整个人听说惊呆了、傻了！盘古龙头竟然跟我父亲（习仲勋）的坟正对着，1毫1分不差，再次派人去测测，结果中科院、解放军社会学院去测的结果都一样，毫米不差。之前竟然没有一个人发现，最后发现昆仑山祭坛跟盘古之间的关系1毫1秒不差， 而且我编不了是吧？你们这地图能找到，那盘古和那个所谓的水蒸蛋，叫中国共产党再生的大剧院是吧？但结果是被盘古给定了龙戏蛋了，就真的10公里不差，还跨过北塔跨过瀛台，还有很多秘密，现在我不能说的，不是叫天机吗？这叫天机，它挡不住，就现在50家银行啊，当然有人是配合的了，天机是跟人要配合，因为在人间显灵就叫天机，让人有人配合了啊，就是天机的结果，没办法它抗拒不了！就这几天喜币多少钱？41了，就这几天你看了交易啊，100%没有任何机构操作，超过100%没有任何机构买，全都是新加进来的买的，而且据我所知60%-70%都是外国人啊！这吹狼蛋的吗？你砸钱试试，你买买试试啊，这就叫天机的结果，有人配合。20大是老天爷给咱更大的机会，他不搞20大就没有内部的这种厮杀，不搞20大就没有这种掠夺，不搞20大他就不会在全世界更加的疯狂，不搞20大就没有今天的利用核糖核酸把北京和首都最大的周围的城市全部给你核糖核酸化，也就宵禁化，不过这个就不会给你搞共享财富，20大谁是赢家？新中国联邦是唯一的赢家，连习他所有的人都是输家，不会再有20大了，不会再有20大了，放心吧！七哥从11大看到共产党今天，11大从1977年当时干啥？胡耀邦总书记，邓小平军委主席然后华国锋宣布了两个凡是：凡是毛主席说的都是正确的；凡是毛主席定的，咱都要坚定执行和维护啊。一直呢，我是毛主席接班人，到1978年邓小平就说了，毛主席两个凡是我们的坚持，但是它不适合所有的事情，意思是他说的不都是对的，否定了两个凡是。 11大，你再看看今天是20大了，九大都过去了。那时候你们都在哪儿呢？你们，你们4个都在哪？ 我都已经抠墙上报纸去了，是不是？难道七哥不是老天爷派来的吗？就是老天爷派来的保证解决共产党在20大，放心吧，对不对？！
 
-你知道重庆的事件意味着什么吗
-Sabes a qué se refiere el incidente de Chongqing
+发布：tianzhihuan
 
-陈敏尔到那块儿去是政治镀金
-Chen Min’er va para allá es por la prosperidad política
-
-同时也是个非常险恶的地方
-Al mismo tiempo es un lugar muy siniestro
-
-刚刚的所谓这5个大内阁, 20大最核心人物出来
-Lo que se mencionó hace rato, los llamados 5 gabinetes grandes, salieron los 20 personajes más centrales
-
-就开始出这事儿
-Y empezaron los accidentes
-
-它不是人为的
-No son hechos por las personas
-
-我认为是天意, 是偶然
-Yo pienso que es la voluntad de Dios, es casualidad
-
-而且也开启了共产党争夺20大的一种大屠杀的开始
-Y también abrió el comienzo de una especie de masacre en la que el Partido Comunista competía por el XX Congreso Nacional
-
-接下来会是谁, 陈全国
-Quién será el siguiente, Chen Quanguo
-
-胡春华, 丁薛祥, 都会有这样的事儿发生
-Hu Chunhua y Ding Xuexiang les pasarán este tipo de cosas
-
-所以我才2次以前直播
-Por eso en la transmisión en vivo de las dos veces anteriores
-
-我说
-Dije
-
-兄弟姊妹们, 这个名单的公布
-Hermanos y hermanas, el anuncio de esta lista
-
-和江湖上的流传既是试金石
-Así como se propagaba en la sociedad civil, es la piedra de toque
-
-同时也是最后的一场
-Y a la vez es la última
-
-战争完最后就剩下几个人了
-Luego de la guerra, al final quedan algunas personas
-
-看谁决定胜负, 咱都分两派站出来吧
-A ver quién decide la victoria, vamos a dividirnos en dos partidos
-
-对决的时候, 这对决的时候
-A la hora del combate
-
-你看有两种人
-Podrás ver que habrá dos tipos de personas
-
-一种是一定要你死在战场上
-Uno es morirás seguramente en medio de la guerra
-
-不允许你回去的
-No te permiten regresar
-
-那把你送出去, 去战去
-Te envían a la guerra
-
-一种, 我要在这儿, 选出一个王子出来
-El otro es, voy a estar aquí para elegir a un príncipe
-
-选出一个继承人出来
-Elegir un heredero
-
-那就要最后倒下的
-Entonces deberá ser el último en caerse
-
-全都不行, 那就是王者行
-Nadie puede, será el príncipe
-
-共产党的20大是什么
-Cuál es el XX Congreso del Partido Comunista
-
-送出去的人可能都希望都死掉
-Posiblemente las personas que fueron enviadas serán muertas
-
-因为决定谁出去参战的人, 可能是唯一活下来的人
-Porque el que decide quien sale a la guerra, puede que sea la única persona que sobreviva
-
-因为他不用在战场当中, 是吧
-Porque él no necesita estar en la guerra, cierto
-
-这时候就看起来, 最后的决战是习, 曾
-En este momento verás que la guerra final es entre Xi y Zeng
-
-所以重庆还有20大的名单出来
-Por eso Chongqing todavía hay una lista del XX Congreso
-
-就开启了习曾之战
-De esta forma, se inicia la guerra entre Xi y Zeng
-
-* * *
-
-日期：01/11/2022
-原视频标题：重庆大爆炸预示着中共迎来争夺二十大的决战时刻—习曾之战
-La gran explosión en Chongqing presagió el momento decisivo para que el PCCh compitiera por el XX Congreso Nacional: La Batalla entre Xi y Zeng
-
-原视频日期：01/10/2022
-原视频网址：[https://gettr.com/post/pndsjtab14](https://gettr.com/post/pndsjtab14)
-任务编号：KC410（3454）
-视频时间段：00:00-01:47
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

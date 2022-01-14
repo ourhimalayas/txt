@@ -3,22 +3,24 @@
 
 
 ## 禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857529/)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857585/)
 
 整理报道：BENJ1
 编辑：朝花夕拾
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
 - ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
-路透香港1月13日 ，中国房地产商–禹洲集团周三晚间公布，就两笔未偿还本金总额共5.8亿美元的票据进行交换要约，同时向其他未偿还本金总额49.155亿美元的票据持有人征求同意修改这些票据的条款，以避免交叉违约和法院判决支付事件所导致的违约事件。
+路透香港/上海1月13日，资金紧拙的中共国房地产开发商急于与债券持有人谈判新条款以避免违约，世茂集团[0813.HK](https://www.reuters.com/companies/0813.HK)和禹洲集团[1628.HK](https://www.reuters.com/companies/1628.HK)是最新两家寻求到期债务展期的企业。
 
-禹洲集团表示，尽管致力履行到期的偿付义务，但公司可能持续受压，无法实现充足现金流量全面履行未来到期义务。本次交换要约以及同意征询交易以推迟债务的到期日，减轻现金流的压力并管理违约风险。
+由于多年来监管者限制借贷，中共国的房地产开发商正面临着前所未有的流动性紧缩，导致了一连串的境外债务违约，信用评级下调以及开发商股票和债券遭到抛售。
+
+本周早些时候发布的世界银行经济展望报告称，中共国开发商境内和境外负债合计几乎占全国GDP的30%，房地产行业的严重和长期衰退将对中共国整体经济产生重大影响。
+
+该报告警告称，中共国大型房地产企业急剧去杠杆会带来风险和危机蔓延的潜在成本。
 
 参考新闻：
-[https://www.reuters.com/article/idCNL4S2TT0EB](https://www.reuters.com/article/idCNL4S2TT0EB)
+[https://www.reuters.com/article/china-rea-developers-bond-repayment-0113-idCNKBS2JN0PO](https://www.reuters.com/article/china-rea-developers-bond-repayment-0113-idCNKBS2JN0PO)
 
 发布：tianzhihuan
 

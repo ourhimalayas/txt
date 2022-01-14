@@ -2,42 +2,30 @@
 ---
 
 
-## 短视频：美国国家冰球联盟将不参加北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857490/)
+## 美陆军3000名军人因拒绝接种疫苗被训斥
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857568/)
 
-#### 翻译：Lish
-校对：精靈藍
-剪辑/字幕：文驰
-编辑：文泓
+![美国陆军3000名军人因拒绝接种疫苗而受到训斥 - 俄罗斯卫星通讯社, 1920, 13.01.2022](https://cdn.sputniknews.cn/img/07e5/04/15/1033533349_0:151:3103:1896_1920x0_80_0_0_00954df748473db94967ef91bddbe30a.jpg.webp)© AP Photo / Mindaugas Kulbis
+据俄罗斯卫星通讯社1月13日报道，3000名美国军人因拒绝接种新冠疫苗而受到书面训斥，陆军指挥部有6名军人被停职，但美国陆军尚未因此而开除一名军人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会-1.png)图片来源：视频截屏
+美国国防部长劳埃德·奥斯汀于2021年8月下令为所有美国军人接种新冠疫苗。截至2022年1月11日，美国陆军96%的现役军人、73%的预备役军人完成疫苗接种。美国陆军将下发指南，启动拒绝接种疫苗的军人开除程序。
 
+这个世界疯了，拿一款没经过测试的试验性疫苗给所有人接种，包括现役的国防力量，真正是亲者痛仇者快的决定。下达命令的国防部长奥斯汀本人，本月初刚刚感染了新冠病毒，他已经接种了三剂疫苗。如果疫苗有效，奥斯汀怎么会感染？如果疫苗无效，为什么全员强迫接种？美国的国防力量在病毒和疫苗中被消耗。
 
-新冠疫情正在复燃，美国最受欢迎的一些消遣活动暂停赛事，例如全国曲棍球联盟已第一个宣布暂停几十场预定的比赛。
+新闻参考链接：[https://sputniknews.cn/20220113/3000-1037084413.html](https://sputniknews.cn/20220113/3000-1037084413.html)
 
-吉姆·格雷是一名体育记者和福克斯新闻体育分析员，也是天狼星XM电台节目和播客的主持人。
+编辑：胖丁
 
-吉姆，很高兴见到你，有一段时间没有见到你了，谢谢你来参加我们的节目。
+* * *
 
-我不敢完全相信，我们今年还在讨论运动队再次暂停比赛的问题，但我们又来谈论了。你在过去一直非常支持不同的运动联盟因新冠而暂停比赛和赛季，这仍然是正确的做法吗？
-
-好吧，我想我们必须准确判断病毒和全国冰球联盟（NHL）的情况，让我给你说个消息，而且这不是一个令人高兴的消息。他们不打算参加或让他们的球员参加2月在北京举行的奥运会，他们本来是会去的，有份公告预计明天会由NHL和球员协会宣布。
-
-他们只是觉得这将会严重影响他们的赛季，而现在他们的赛季暂停了，至少圣诞节期间要遵守更严格的规定直到1月1日。所以不参加北京冬奥会。对很多想参加比赛的球员来说是一个巨大的打击。
-
-好吧，那确实是一些突发新闻。国家冰球联盟不参加奥运会，由您来给我们带来重大新闻。
-
-视频链接：[NHL won’t participate in Beijing Olympics: Jim Gray | On Air Videos | Fox News](https://video.foxnews.com/v/6288035052001)
-
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

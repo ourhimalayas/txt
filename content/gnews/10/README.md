@@ -2,74 +2,26 @@
 ---
 
 
-## 七哥对墙内战友购买喜币的三个保证
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1857635/)
+## 美护士警告：更多孩子死于新冠疫苗而不是新冠本身
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857689/)
 
-[https://gtv.org/video/id=61e0234187664c47acd41fc0](https://gtv.org/video/id=61e0234187664c47acd41fc0)
+翻译：ATX1230
+校对：枳实
+剪辑/字幕：Biggod
+编辑：Mttfly
 
-**郭文贵
-Miles Guo**
+科莱特·马丁是路易斯安纳州一名执业17年的注册护士，她对执业中见到的成年人接种新冠疫苗所产生副作用感到十分恐惧。她非常担忧孩子也要被强制接种这些试验仅六个月的疫苗，因为在成年人与老年人中，如血栓、心脏病发作、中风、脑病变、心律失常（如心房颤动）等接种完疫苗后的副反应层出不穷。而卫生部门却说，新的变种具有我们目前看到的疫苗反应的所有副作用。尽管恐惧，但出于信念，她还是勇敢的站出来举证，因为这关乎于没有疫苗接种选择权的无助的孩子们！
 
-你们千万不要因为买币就到(墙内)银行去汇款去，十之八九会被警察找上门
-Don’t go to the bank to send money just because you want to buy Hcoins, because nine out of ten, the police will be after you
+视频链接：[Louisiana RN whistleblower: “We have more children dying from the COVID vaccine than from the COVID itself”](https://thecovidworld.com/nurse-blows-the-whistle-we-have-had-more-children-die-from-the-covid-vaccine-than-of-covid-itself/)
 
-宁可不买币也不要给自己惹上麻烦，一定要在安全的情况下有汇款保证下再去KYC
-it would rather not buy coins and not to get yourself into trouble, be sure to do KYC in a safe situation with a remittance guarantee
-
-KYC最好找战友，我们现在亚洲的战友很多
-It is best to find comrades-in-arms for helping you to do KYC, we have a lot of comrades-in-arms in Asia now
-
-日本的方舟农场、银河农场、樱花农场
-Japan’s Ark Farm, Galaxy Farm, Cherry Blossom Farm
-
-还有我们的韩国的天池农场，都可以帮忙，包括新加坡的农场
-and our Tianchi Farm in South Korea, they all can help, including the Farm in Singapore
-
-如果不行，你跟所有的我们在大直播中认识的战友保持联系
-If not, keep in touch with all the comrades-in-arms we met on the grand broadcast
-
-一定确保你付款安全的情况下再去KYC，这是一个
-make sure your payment is safe before going to do KYC, this is one
-
-第二个，战友们我要告诉你们，国内战友,
-Second, comrades-in-arms, I want to tell you that comrades-in-arms in China
-
-永远你们买的币我向你保证的三件事，七哥负一切责任，任何人不会拿走你的个人信息
-the coins you buy that I always promise you three things, Miles will take all responsibility, and no one will take your personal information
-
-如果拿走了，我永远负责任，第二，不管共产党做什么事情
-If they take it away, I will always be responsible, second, no matter what the Communist Party does
-
-拿不走你的任何一个币，拿走你币我付责任
-they can’t take any of your coins, and I will take the responsibility if your coins were taken away
-
-第三个，你买了币进来以后你陪了钱七哥负责任，只能挣，不能赔
-The third one, after you buy the coins, if you lose money, Miles will be responsible, you can only earn, not lose
-
-只能挣，不能赔，就是国内的这战友，这是七哥保证的
-You can only earn, not lose, here’s what Miles promises you for the comrade-in-arms in China
-
-谢谢
-Thank you
-
-* * *
-
-Date: 01/12/2022
-原视频标题: 七哥对墙内战友购买喜币的三个保证
-Miles has three guarantees for comrades-in-arms in China who will buy Hcoins
-原视频日期：2022/01/09
-原视频链接：[https://gettr.com/post/pnedj0fbae](https://gettr.com/post/pnedj0fbae)
-任务编号：KC400（3473）
-视频时间段 : 0:00-1:26
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
