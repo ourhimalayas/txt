@@ -2,31 +2,15 @@
 ---
 
 
-## 七哥说“不敢、不能和不信终会改变”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860354/)
+## 中国共产党就是邪教
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1860416/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+邪教组织的6大特征：教主崇拜，精神控制，聚敛钱财，编造邪说，秘密结社，对抗社会。中国共产党100%完全符合这六个特征，就是邪教！再不灭共，华人将难以在世界上生存。
 
-来源：郭先生2022-01-09直播11：51：15摘录
-
-放心吧，这还是那句话，百分之九十九的是不敢，然后一部分人是不能，因为在国内墙内，另外一个是不信，还有一部分人就是既不信也不敢也不能，是吧，都不行的，是吧，都不行的。但是最终会改变的，这个不敢的没有共产党他就会敢，他会越来越敢，没有选择。昆仑山的磁场是你无法阻挡的，我们就是昆仑山和喜马拉雅山的磁场，你没有选择。不要着急，凡是你要求来的东西，没有一样好东西。记住七哥说的话！谢了兄弟姐妹们！
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+视频来源: 2022年1月12日郭先生大直播视频
+视频制作: 文星光
+文案:文星光、梦田
+上传: 零点
 
  
 
