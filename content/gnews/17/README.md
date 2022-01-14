@@ -2,21 +2,36 @@
 ---
 
 
-## 美高法宣判标志疫苗强制接种踩下刹车，疫苗危机真相大幕即将拉开
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1859692/)
+## 中共开展共产主义运动式抢夺财富
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859739/)
 
-撰稿：大浪小水花
-![2022.1.14-1](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-9.58.56-PM.jpeg)
-郭文贵先生在2022年1月14日的大直播中强调，美国高法宣判停止拜登政府的疫苗强制令意义重大，标志着全球普遍的疫苗强制接种出现了重大反转。
-
-郭先生透露美国高法这次宣判的出台，背后有新中国联邦巨大的付出和贡献，新中国联邦提供的病毒溯源数据和mRNA疫苗的详尽资料起到了巨大的推动作用。新中国联邦战友们作为“无苗族”成为了最大的受益者。
-
-郭先生强调，美国高法这次宣判是法律而不是行政命令，在法治社会一切问题都要依法行事。美国高法一旦作出判定，就不可逆转的让疫苗强制接种相关的一切重新被审视和检验。世界各国疫苗政策开始踩下刹车，疫苗危机真相大幕的一角即将被掀开。
-
-参考链接：https://gtv.org/broadcast/watch/61e1756ca6dfdd6031542868
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，郭先生在大直播中指出，中共通过恶意封城、大规模核酸检测，试图达到政治上的中共病毒清零”的目的，让老百姓习惯于居家，严格宵禁。其更重要的作用是在封城期间以抗疫为借口，开始进行财富掠夺。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1088.png)
+目前已经被列出西安的120家企业，30个企业富豪，将会面临停业整顿和抓捕，中共还会把他们的财富全部收归国有。这就是共产党的共享财富。郑州目前也已经开始，接下来天津、江浙一带也会推动这种共产主义运动式的财富抢夺计划。
 
 
 
+新闻来源：
+
+[https://gettr.com/post/po007l9e3c](https://gettr.com/post/po007l9e3c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-4.jpg)
+
+总编：飞虹
+
+编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

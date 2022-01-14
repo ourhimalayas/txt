@@ -2,44 +2,44 @@
 ---
 
 
-## 一周中共病毒及疫苗伤害信息集锦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859550/)
+## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
 
-作者：纽约香草山农场设计部 – 火来、医疗部 – Zion文恩
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月4日至11日，除中共国外，全球新增中共病毒确诊病例一千八百万余例，同比上周增长了46.7%。本周新增死亡病例超四万六千例，同比上周增长了9.35%。截止本月11日，除中共国外，全球累计接种了67.5亿剂中共病毒疫苗，同比上周增长了3.05%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-14.jpg)
-本周，中共国内的疫情日趋严重：继西安和禹州之后，河南安阳于10日开始封城，而河南滑县也于第二天全县临时封闭管理。而自天津9日首次出现奥米克戎确诊病例后，墙内多地发布对天津迁入人员的防控措施。与此同时，天津也开始了第二轮全员核酸检测。目前，北京已严控外地人员进出，而广东省更是出台了“一例密接、即刻封楼”的荒唐政策。
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
+**作者提示：不要相信我说的，你自己去核实。
+**
 
-国际方面，各国疯狂的强制中共病毒疫苗政策仍在继续：法国总统马克龙表示，将大力推进全民疫苗接种，甚至为此声称“不接种疫苗就是不爱法国”。意大利则进一步收紧疫苗政策，50岁以上的意大利居民被要求全部接种疫苗，否则将被禁止进入非必需公共设施。同时，澳大利亚北方领地行政长官也宣布，将对当地未接种疫苗的人群执行出行限制。
+**郭文贵先生 Mr. Miles Guo**
 
-讽刺的是，多位接种了中共病毒疫苗加强针的西方政要于本周相继感染中共病毒，当中包括奥地利总理内汉姆，美国众议员科泰斯、南希-梅斯等。
+1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
+2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
+3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
+4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
+[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
+5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
+6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
 
-此外，辉瑞公司CEO终于在采访中承认，疫苗对防止病毒感染的能力非常有限，但他们仍会继续推进新版疫苗的上市。
 
-在病毒溯源和防治方面：美国国会公开了更多安东尼-福奇的邮件，其内容显示福奇涉嫌故意掩盖并持续打压有关病毒来源的信息。而美国非盈利新闻机构“真相工程”也在一份曝光的报告中明确指出，中共病毒是在“功能获得研究“下人工改造的结果，以及mRNA疫苗实际上害大于利。该报告也提到了早期治疗药物，如硫酸羟氯喹、伊维菌素等可以有效预防感染以及在感染早期有效遏制病情恶化的功效，但这些信息均被相关机构忽视并掩盖了。
+**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
 
-参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-04..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-4) .[Austrian Chancellor Nehammer Tests Positive for Covid](https://www.bloomberg.com/news/articles/2022-01-07/austrian-chancellor-nehammer-tests-positive-for-covid)
-5) . [Fauci Emails Describe COVID Natural Origins Theory As ‘Highly Unlikely’ Despite Public Denials.](https://thenationalpulse.com/2022/01/11/emails-show-fauci-collins-downplayed-lableak/)
-6) . [Italy extends COVID vaccine mandate to everyone over 50](https://www.reuters.com/world/europe/italy-make-covid-jab-mandatory-over-50s-tighten-curbs-draft-2022-01-05/)
+[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

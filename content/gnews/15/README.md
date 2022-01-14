@@ -2,25 +2,36 @@
 ---
 
 
-## 加拿大卫生部非法监控手机移动设备
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859705/)
+## 福克斯新闻开始大力推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859767/)
 
-采编/编译撰稿：微文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-1.png)
-[图片链接](https://www.bing.com/images/search?view=detailV2&amp;ccid=1rhQQ4wh&amp;id=29BCC369FA6E935241FEB1BC40BD74B227C9C9D0&amp;thid=OIP.1rhQQ4whOa-CxDLQLgT0AAHaDt&amp;mediaurl=https%3a%2f%2fventurebeat.com%2fwp-content%2fuploads%2f2020%2f05%2ficlr-visualization.png%3fw%3d800&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.d6b850438c2139af82c432d02e04f400%3frik%3d0MnJJ7J0vUC8sQ%26pid%3dImgRaw%26r%3d0&amp;exph=401&amp;expw=799&amp;q=Conservative+ethics+critics+demand+answers+on+PHAC+location+tracking&amp;simid=608001222794493203&amp;FORM=IRPRST&amp;ck=45DEA0ECC55EE2BCA6207CF4E8AF30C9&amp;selectedIndex=1&amp;ajaxhist=0&amp;ajaxserp=0)
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+盖特1月13日消息，目前美国最有影响力的福克斯新闻节目，开始大力推广盖特。首席执行官杰森.米勒在采访中谈到塔克.卡尔森等有影响力的人士加入盖特的意义时表示，这显示了人们对大科技公司的拒绝行动。因为人们需要没有言论审查的发声平台，而盖特非常欢迎他们的加入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1090.png)
+米勒说，尽管大型社交媒体表面赞同言论自由，但实际上他们只赞同符合他们规定的言论。他们慢慢会拿走人们的权利。他同时表示，不论何时，当人们被诱导着做出同样的反应时，我们就应该提出疑问，这是民主国家人民应有的意识，也是美国和中共不同的地方。
 
-据加拿大[环球新闻]1月10日报道，为密切监视所有加拿大人的行踪，该国[公共卫生署]以防控疫情为由，长期秘密跟踪定位该国3千多万台手机移动设备。
+主持人玛利亚称赞盖特是历史上增长最快的社交平台。她表示她每天都在盖特投稿发文，呼吁人们都来加入盖特并关注她。她强调说，盖特超越左派媒体，向更广更新的机会敞开了大门。
 
-报道称，目前加拿大议会[道德委员会]成员[布拉萨德]议员已对特鲁多政府以上非法行为提出质疑，并要求当局公开解释其在公众不知情的状况下，收集个人数据的目的和方式和该监控计划的授权人和信息共享人以及保护公众隐私安全的具体措施等。
 
-同时，布拉萨德还提请[加拿大隐私委员会]，应立即对卫生署的监控报告和项目招标书进行彻底调查。并表示，卫生部门此次利用疫情，恣意对其国民的大规模秘密监控之举，就连当时911恐袭事件后出现的监控高潮也相形见绌。
 
-校对编辑：硫酸羟氯喹64
+【新闻链接】https://gettr.com/post/pnxt74023d
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
-[原文链接](https://www.msn.com/en-ca/news/other/ronald-mcdonald-house-vaccine-mandate-turns-political-after-family-asked-to-leave/vi-AASLrPO)
+总编：文特
 
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
