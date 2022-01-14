@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈“这个世界老没有所养，少没有所教”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1857333/)
+## 美国会共和党人追责新冠溯源调查 点名制裁中科院
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857424/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-17.jpg)美国会共和党人追责新冠溯源调查 点名制裁中科院 网络图片
+据美国之音1月13日报道，美国参议院情报委员会副主席、共和党联邦参议员鲁比奥11日与15位共和党人联手推出《2022年新冠病毒法》，向中共国政府施压，要求有关单位配合国际社会追溯新冠病毒大流行病起源的调查。否则，法案将在生效90天后授权美国政府对中科院及其相关机构和有关人员，包括武汉病毒研究所进行制裁。
 
-来源：郭先生2022-01-09直播09：26：58摘录
+《新冠病毒法》还将暂停所有学术领域与中科院合作的联邦研究资金补助，并禁止联邦资助用于任何美国个人或机构在中共国的相关单位进行新冠病毒的功能增强研究。
 
-我出生的地方:山河，后来我搬到了赵家沟。我从小玩的13个,哎，这个图出来了啊，你看到这个地方山河赵家沟，你看这个山脉，哎，对了！这个山顶看到没有？这个小墨镜这个家伙太可爱了，墨镜这个家伙太可爱，太可爱了，太可爱了，太可爱了。这是个啥地方我没看明白，转来转去的，不知道转哪去了。山河、山河，这山上怎么还有房子？不是这个地方，那山上肯定没房子的啊，他那个地方肯定没房子的，墨镜啊，很高，很高，几乎人上不去的，这不是这个地方。我再给大家说一下，就是这个老人，我小时候13个跟我一起长大的人，现在所活着的就剩俩了，俩半。有一个人，听说就是大概一年也不洗一次脸，蓬头垢发，就是捡垃圾吃、捡果子吃。然后他弟给了他哥哥种子，他哥给他点粮食吃，就这么个人，就是我们剩了俩半了，就加我是三个半，就这个地方。那我们赵家沟那个地方老人到什么时候，老的时候就在东北的炕上。你很难想象中国东北几乎百分之七八十的人，一家炕，就是我直播间这么大的地方能睡八九个人，父亲、母亲、女儿、儿子、儿媳妇都睡到十几岁离开，是吧？很多还到今天这样，这就是群居呀。还有一个东北外面就有个牛，有个猪都放到这个就是做锅台的外面，那就是人畜不分呐。你到甘肃，你到广西，今天都是这样子的。你谈养老的时候你们都是城市人，你想想就是七哥出生的地方就是这个样子的。你知道有一个农民，一年要种多少地现在？农民都出去了，都承包给别人了，一般的种几十亩地才能维持下来，而且种地一吨粮食赚不到500-1000块钱，还且是种精粮，种粗粮的话就可能还赔钱。这个世界老没有所养，少没有所教，农民没有任何赚钱的机会，随便一个共产党的什么孙孙女女，能统治一个省的人的剩余价值的财富。
+新冠大流行已经两年，全球每一个国家遭受重创，每一个人都在隔离和封锁状态中。但是迄今为止，新冠病毒的起源仍然没有获得共识。尽管每一个人都知道新冠病毒来自中共国武汉病毒实验室，但是全球媒体对此讳莫如深，相反却拼命消灭媒体上所有的质疑。各国政府也是步调一致，避口不谈病毒，就是疯狂推行强制疫苗。毒疫苗解决不了全球大流行，只有消灭病毒的制造者—中共，溯源病毒，才能解决病毒问题。美国要行动！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻参考链接：[https://www.voachinese.com/a/us-gop-senators-introduce-covid-act-to-sanction-china-20220113/6394903.html](https://www.voachinese.com/a/us-gop-senators-introduce-covid-act-to-sanction-china-20220113/6394903.html)
 
-**关注我们**
+* * *
 
-Discord 账号
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

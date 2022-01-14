@@ -15,91 +15,91 @@
 
 ---
 
-### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/1/README.md)
- ` 扬帆枫叶快讯`
-
-### [推动疫情封锁的统治阶级正自食其果](/content/gnews/2/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大魁省将对未接种疫苗者征税](/content/gnews/3/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/4/README.md)
- ` 扬帆枫叶快讯`
-
-### [在中共国，违反防疫规定可判刑四年](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡](/content/gnews/6/README.md)
+### [孔子学院是共产党实施商鞅五术的手段](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [用病毒和毒疫苗屠杀世界所有种族的中共甩锅美国](/content/gnews/7/README.md)
+### [秘翻在线：北京当局向市民呼吁即便发生交通事故也不要靠近参赛车辆](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [1.13大直播后记：雷•达里奥和王岐山生死兄弟,共产党全世界搞共享财富](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [盖特让所有人重获缺失的言论自由](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
+
+### [盖特，一飞冲天](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [特鲁多当局极力阻止“反政府意识”的传播](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
+
+### [禹洲集团就未偿还本金额5.8亿美元票据进行交换要约，并向其他票据持有人征求同意](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [推动疫情封锁的统治阶级正自食其果](/content/gnews/8/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大魁省将对未接种疫苗者征税](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美国职业橄榄球联盟使用伊维菌素防疫](/content/gnews/10/README.md)
+ ` 扬帆枫叶快讯`
+
+### [在中共国，违反防疫规定可判刑四年](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [用病毒和毒疫苗屠杀世界所有种族的中共甩锅美国](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [最高法院阻止了拜登对企业的新冠病毒疫苗授权，允许医护人员规则](/content/gnews/8/README.md)
+### [最高法院阻止了拜登对企业的新冠病毒疫苗授权，允许医护人员规则](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥说“细胞的更换、代替当中，我们的本尊并没有死”（2022-01-09摘录）](/content/gnews/9/README.md)
+### [七哥说“细胞的更换、代替当中，我们的本尊并没有死”（2022-01-09摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [美国会共和党人追责新冠溯源调查 点名制裁中科院](/content/gnews/10/README.md)
+### [美国会共和党人追责新冠溯源调查 点名制裁中科院](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [魁北克对未接种疫苗者征税，特鲁多说“强有力的措施”已发挥作用](/content/gnews/11/README.md)
+### [魁北克对未接种疫苗者征税，特鲁多说“强有力的措施”已发挥作用](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [阿肯色州单日新增10,974例中共病毒病例](/content/gnews/12/README.md)
+### [阿肯色州单日新增10,974例中共病毒病例](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥说“须弥山就是喜马拉雅山”（2022-01-09摘录）](/content/gnews/13/README.md)
+### [七哥说“须弥山就是喜马拉雅山”（2022-01-09摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [7·24系列——神奇的蓝莲花](/content/gnews/14/README.md)
+### [7·24系列——神奇的蓝莲花](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“滞留人员有序离开西安政策”是欺骗和愚民](/content/gnews/15/README.md)
+### [“滞留人员有序离开西安政策”是欺骗和愚民](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈“这个世界老没有所养，少没有所教”（2022-01-09摘录）](/content/gnews/16/README.md)
+### [七哥谈“这个世界老没有所养，少没有所教”（2022-01-09摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [七哥说我就是那个遍访世界的中国人（2022-01-09摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [七哥谈新中国联邦建立的生态系统（2022-01-09摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [美国务院更新报告: 中共国在南中国海主权不合法](/content/gnews/19/README.md)
+### [美国务院更新报告: 中共国在南中国海主权不合法](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登本应通知OSHA收回疫苗强制令](/content/gnews/20/README.md)
+### [拜登本应通知OSHA收回疫苗强制令](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥说“不要错误的理解大自然”（2022-01-09摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [七哥谈中共的所谓“养老”（2022-01-09摘录）](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/23/README.md)
+### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [1/12/2021 文贵直播：在哈萨克斯坦事件中，中共最早向哈国派了1100名雪豹突击队员](/content/gnews/24/README.md)
+### [1/12/2021 文贵直播：在哈萨克斯坦事件中，中共最早向哈国派了1100名雪豹突击队员](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [重磅：美最高法院终止拜登的疫苗强制令](/content/gnews/25/README.md)
+### [重磅：美最高法院终止拜登的疫苗强制令](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [扬帆每日速递2012年1月13日版](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本政府如此推进疫苗却不掌握感染者的接种状况引热议](/content/gnews/27/README.md)
+### [日本政府如此推进疫苗却不掌握感染者的接种状况引热议](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京对运动员“闭环” 并无视奥组委呼吁升起参赛国国旗](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [应对中共 美国在韩国部署新型阿帕奇武装直升机](/content/gnews/29/README.md)
+### [北京对运动员“闭环” 并无视奥组委呼吁升起参赛国国旗](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【中日财经爆】美的开始芯片大跃进](/content/gnews/30/README.md)

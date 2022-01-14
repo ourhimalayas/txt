@@ -2,38 +2,51 @@
 ---
 
 
-## 拜登本应通知OSHA收回疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857284/)
+## 7·24系列——神奇的蓝莲花
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857356/)
 
-#### 翻译：Annabelle
-校对：枳实
-剪辑/字幕：向上James
+**整理：**雅典娜情报组
+**编辑：**守望黎明
 
-**字幕摘要（英汉对照）**：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/p1bn7l0ecv10741i3834g10e648e3.jpg)
 
-I have to admit, Mike, I almost fell out of Santa sleigh when I heard that language,
+图片来源：ftourcn
+当在大直播过程中被问到“世界上有没有蓝莲花”的问题时，文贵先生信口答道：蓝莲花在自然界中其实并不罕见，是经常可以看到的。但在西藏，人们通常提起的蓝莲花实际上是一种叫做绿绒蒿的植物，被当作一种有神性的花，备受藏人珍爱。
 
-Mike 我得承认，当我听到那些话时，我几乎要从圣诞雪橇上掉下来了。
+实际上，绿绒蒿是一年或多年生草本，在世界上目前发现的七十余个不同品种中，除一种产自西欧，其余均分布于中国和其他喜马拉雅山周边国家。绿绒蒿色彩艳丽，常见的有蓝色、紫色和黄色。在高海拔粗犷的阳光照射下，绿绒蒿的花瓣呈现出丝绸般的色泽。
 
-because President Biden should tell his own administration that he doesn’t think there’s a federal solution.
+100多年前，当西方植物学家威尔逊在青藏高原发现大片的绿绒蒿时，用一段近乎狂喜的文字记录下了当时的场景：“在海拔11500英尺以上，绿绒蒿那华丽巨大的、球形的、內向弯曲的花，在山坡上盛开，绵延足有几英里。千万朵无与伦比的绿绒蒿，足有两到两英尺半那么高、耸立在其他草本之上，呈现出一片宏大壮丽的场面。我相信再也不会找到如此夸张豪华的地方。” 在西方，绿绒蒿还有个流传更广的名字，叫作“喜马拉雅蓝罂粟”，在园艺界几乎无人不知。
 
-因为拜登政府本应该告诉他的政府，他不认为联邦政府有解决方案。
+由于西藏不产莲花，于是佛教中的绿度母、白度母手中所持的莲花，在藏传佛教的唐卡中慢慢就幻化成了绿绒蒿的样子。
 
-The first thing he should do is tell OSHA to pull back its vaccine mandate where it’s claiming that it has the right to tell basically every employee in every factory in office in the country that they have to get a vaccine.
+有关蓝莲花，还有一个古老的佛教传说：很久以前，尼泊尔的加德满都谷地还是一片汪洋。在水面上漂浮着一朵晶莹的莲花，泛着神奇的蓝光，这就是象征着智慧、永恒和圣洁的蓝莲花。文殊菩萨看到了它，就指着莲花说：“这就是佛祖的化身，我要让它开放在所有人的心田。”于是用智慧之剑劈开南边的山，让蓝莲花顺流而下，遍布人间。
 
-他首先应该告诉’职业安全和健康管理局” 收回疫苗强制令， 它声称它有权要求，基本上这个国家每个职员，无论是工厂还是办公室都必须打疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-82.png)唐卡上的蓝莲花
 
-And then the second thing you do is drop a Supreme Court case his administration is going to the High Court next week to defend the vaccine mandate.
 
-第二件要做的事情是撤销高级法院的诉讼，拜登政府下星期要在最高法院出庭辩护强制疫苗政策。
+我们通常所说的蓝色的莲花，则原产于古埃及尼罗河流域和东非地区，并且还是埃及的国花。在古埃及，蓝莲花被当作最神圣的植物，是经常出现在各种仪式中的重要栽培植物。古希腊人在征服埃及之后，才将蓝莲花传到了世界各地。蓝莲花冰清玉洁的形象，一直被人们视作是代表智慧、自由、永恒和纯洁的形象。
 
-视频链接：[President Biden says there is no federal solution a year in as president ，he should tell OSHA to pull back its vaccine mandate](https://video.foxnews.com/v/6288945750001)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-35.png)古埃及壁画上出现的蓝莲花
 
-发布：枳实
 
-**更多资讯，请关注：****
+在中共的墙内，尽管“自由”、“民主”的口号被当局喊得震天响，但是当民众的口中真的说出“民主”、“自由”的时候，这些词汇就是敏感词，是会惹来麻烦的。因而，在各类文艺作品中，鲜少有人去碰这些字眼、去触这个霉头。然而有一首鼎鼎大名的歌曲《蓝莲花》却破了这个戒，歌中热情奔放、直言不讳地讴歌自由，而且一直没有被禁，这是为什么呢？原来歌手许巍绝顶聪明，事先就言明这首歌是献给大唐高僧玄奘法师的。这样一来，哪怕中共当局对这首歌的内容再不舒服也不便发作了。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-23.png)歌手许巍
+
+
+但是，凡是听过这首歌的人都明白，歌中的内容实际上和“西天取经”没有多大的关系。不信你听听：
+
+***“******没有什么能够阻挡******/******你对自由的向往******/******天马行空的生涯******/******你的心了无牵挂。*****
+ *****心中那自由的世界******/******如此的清澈高远******/******盛开着永不凋零******的******/******蓝莲花。******”***
+
+于是这首歌便成了中共高墙之内，自由意识尚存的人们用来抒发心底情感的首选歌曲。
+
+***素材收集：**守望黎明
+**发布：**翼族*
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

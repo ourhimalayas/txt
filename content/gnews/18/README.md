@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈新中国联邦建立的生态系统（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1857312/)
+## 阿肯色州单日新增10,974例中共病毒病例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857411/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-来源：郭先生2022-01-09直播10：36：42摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/无标题-1.jpg)图片来源：KATV
 
-新中国联邦这个灭掉共产党以后，大家一定记住七哥，七哥今天第一次告诉你们的，今天是2022年1月9号是吧？1月9号我说的，我们一定保证中国人第一个要恢复的就是中国人最重要的基石，社会的DNA——家庭的关系的伦理正常化。孩子养父母，父母照顾孩子，父母是孩子的第一任老师，这是整个中国社会必然要走的最核心的一条开始的路。然后中国人走向社会的教育，中国的教育应该是成为最最重要的。一个国家没有教育就不可能有信仰，就没有善良，也不可能任何得到实施。教育是建立法治、信仰、社会有良知、一个人和畜生社会的分水岭，他才能有法治、有道德。第三个，老年人我们一定国家要开始就到50岁以后，国家必须负责养老、治病、到送终、到埋葬都是免费的。新中国联邦一定会很快实现这个，而这个不用太长时间，它远比恢复江河、山、土被污染要容易得多，因为这是一个法制式的建立，七哥早在心中，建立整个的喜币、喜联储。未来你就会看到自然而然，第一个受惠的人是什么？孩子和老人。比如说中国人你的地，这个国家的地必须所有的地都给了给人们，还给人们呐！老人的有地权和老人的创造过的财富，社会上你必须无偿自动分布给他，要在从老年人越活越好，而且老年人有几个选择，我可以回跟孩子长大，我可以到社会的集中的生活的地方，咱们叫养老院，我觉得养老院是最烂的一个词，我认为是一个不同的境界，叫修行，什么到修行层次了，从劳动，体力劳动到思想劳动一个地方去，来创造更多财富。另外你可以选择一个完全不一样的地方，是吧？我现在我还继续工作，我想继续做事情，发挥你老年的最好的余热，这个热严格比年轻人还力量还要大。那要给什么？老人一个小时工作时间，是你年轻人的三倍或者更多倍的工资。而且老人是免税的，而且老人要参加的工作就是必须有优先权的，当然这样的老人他就因为有更有钱，他更愿意工作，更有安全感，而且有更大的收益率，剩余价值给他更多。这些老人当然会到老的时候，他有病了，更多人愿意给他治，他更多有物质条件，他会得到更多地尊重。孩子不孝敬，小佳佳没饭吃了，发现她家里面肉都吃不完，她不孝敬他爹孝敬谁去？反过来说了小佳佳没粮食吃，她爹那块有肉，她要抢她爹的肉去。这是个不同的概念，孝敬会成为一个伦理，就社会正常的运转的一个规矩，更重要的是老人病了、老了、走了，要有尊严地离开人世，因为他更有信仰。这样的系统是新中国联邦建立的叫生态系统。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+#### 整理报道：George Warshing
+编辑：文泓
 
-**关注我们**
+当地时间1月12日，据阿肯色州州长阿萨·哈钦森称，**自大流行开始以来，该州的中共病毒病例于本周三增加了10,974例，创下了最大单日增幅，使州病例总数达到640,799例。**
 
-Discord 账号
+根据州卫生部的数据，周三急性期病例数增加了6,399例，目前共有71,134个活跃病例。同日，中共病毒造成的死亡人数又增加了14人，全州死亡人数已达到9,372人。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+由于对测试的需求很大，该州已经购买了150万个家庭测试（试剂），将在当地图书馆和卫生单位免费分发。
 
-Gettr 账号
+迄今为止，大流行已经出现了几次激增。在奥密克戎出现之前最大的两次是在2021年1月，在假期季节之后，以及2021年8月，当时德尔塔变种病毒开始占主导地位。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+住院人数正在攀升，但无论是在2021年1月激增还是2021年8月激增期间，住院患者人数暂时没有超过峰值。
+
+**尽管目前的一些感染病例发生在不太可能住院的已接种疫苗的人群中，但仍然存在对医院容量的担忧。 **
+
+新闻链接：
+1、[State reports 10,974 new covid cases, a single-day record (arkansasonline.com)](https://www.arkansasonline.com/news/2022/jan/12/new-covid-cases-in-arkansas-over-10000/?latest)
+2、[Arkansas’ surge of coronavirus cases due to omicron, explained (arkansasonline.com)](https://www.arkansasonline.com/news/2022/jan/13/arkansas-surge-of-coronavirus-cases-due-to-omicron/)
+
+发布：文泓
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
