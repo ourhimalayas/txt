@@ -2,47 +2,28 @@
 ---
 
 
-## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
+## 【小雨专栏】在路上056——上学篇
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1857091/)
 
-#### 翻译：Frank
-校对：枳实
-剪辑/字幕：小强
+加拿大温哥华扬帆农场     小雨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-05-下午12.35.16.png)
+可能源于自己从小独立作息，又喜欢观察，所以很小时候的事情我都清楚的记得，有时候我讲出来小时候的故事，妈妈都很吃惊。比如我能清楚地记得三岁时家里的事情，妈妈觉得我不可能记得，但也无法否定我说的事实。我是六岁上的学，村里因为没有幼儿园，所以我直接从小学开始上学，也就是说六岁前就像个野孩子似的在村里游逛着晃大的。
 
-**字幕文本（英汉对照）**
+虽然年龄小，但却喜欢找年龄大几岁的孩子玩，每次问我多大，我都会虚报几岁充大瓣蒜，这样他们才会和我玩。因此也就特别多听到大孩子讲学校的故事，多是给某某老师起个外号，什么瘸腿张、瘦猴五等等，反正越恶心越兴奋那种；某某老师如何厉害，比如今天瘦猴五又用粉笔点某某了；如何和某某老师斗智斗勇的故事。因此在我幼小的心里觉得老师就是凶神猛兽，就是喜欢收拾小孩子，看来学校能不上就尽量不上，以至于后来路过学校门口都要故意避开，绕道远行。特别是在路上遇到老师，想想大孩子地可怕描述，就觉得老师好恐怖。你看他走在路上，逢人微笑，见人招呼，尤其是对小朋友特别友好，看来都是装的，是要到学校秋后算账的，挨个收拾呀，看着就觉得头皮发麻。哎，当时真有点宋人丢斧的味道。
 
-Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
+眼看就要九月开学了，长辈们见到我都要摸着我头说：马上要上学了，要长大了。在我听来就是，要送我到学校受刑了，因此大人帮我准备书包、板凳、课本的同时，我也在焦急地准备我的逃跑计划，对于一个六岁的孩子来说那也是天大的事情。爸爸负责制作板凳，妈妈负责书包、文具，临了出发，他们怎么也找不到人，爸爸着急上班就先走了，奶奶和妈妈里里外外又喊又问，还是没有结果。就在全家着急忙慌的时候，最后还是叛徒花子出卖了我，它闻着气味钻进床底下，死乞白赖又叫又是摇尾巴的撒娇，以为我是和它捉迷藏，非要和我在一起。
 
-随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
+我是已经做好了了持久战的准备，提前在床底铺了个席，白天就躲在下面，还能睡觉，等家人都外出了，我就出来吃东西，这样既不离开家忍饥受冻，又能神不知鬼不觉，还能不上学，完美！妈妈拿着笤帚把我从床底薅（hao）了出来，看我灰头土脸，又急又气又好笑，让我洗洗赶紧上学报到。我佯装答应，一个激灵夺门而出，妈妈拿着书包紧跟其后，奶奶拎着板凳远远跟着喊着，最可气的是叛徒花子，我跑哪儿它跟哪儿，它比我跑得还快，还故意跑在我前面汪汪叫着等我，好像等我一起逃学。我们从村头跑到村尾，惹得邻里都出来观笑，妈妈又羞又气，多年后提起那次逃学，还是让我羞愧难当。
 
-And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
+反正那次真把妈妈气坏了，在妈妈又吼又吓之下，我还是被奶奶和妈妈押到了学校，最激动的是花子，这次没想到全家人都陪它全村疯跑，最后还跟着我一起到了学校，我眼泪汪汪地坐在教室等待着未知的一切，它也要好死不死地爬在课桌下陪我，后被正在气头得妈妈一脚踹了出来，被莫名其妙地拎回家。哎，当时觉得我和花子最最可怜。
 
-现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+揣着惴惴不安开始了我的人生学习之旅，后来发现老师只是对淘气的孩子严格，老师也会像妈妈一样耐心，关键是还有许多意气相投的好伙伴和我在一起疯狂在成长路上，原来上学不完全和大孩子描述那样不堪，当然学习的过程也有苦辣酸甜，人生何尝不是呢？
 
-And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+小马过河，瞻前顾后，唯有勇于实践，在实践中学习成长；为真不破颠扑不破，爆料革命浩浩荡荡、如火如荼，很多战友有着这样那样顾虑，既是事实也能理解，情同其理，谁人无忧？要有在跳下去长出翅膀的勇气，没有条件创造条件，勇者无惧！世界潮流永远是顺势而为，逆世而亡，在行动中成长，在成长中学习，小雨和战友们一起在新中国联邦“上学”的路上。
 
-所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
+今天弟弟也要上学了，他条件比我当初好太多了，至少能上幼儿园，送之前哭哭啼啼，用小脑袋瓜编排了许多匪夷所思让人啼笑皆非的不去理由，他奶奶在旁边幽幽地感叹：真像他爹小时候……
 
-and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
-
-我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
-
-i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
-
-这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
-
-Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
-
-你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编审：文敏     发布：Winner为自由而战（文祥）
 
  
 
