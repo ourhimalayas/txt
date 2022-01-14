@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/content/2019/12/20191217-6566572008069059453.md)
+
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/content/2019/12/20191215-671526428688511323.md)
 
 [文字版：2019年12月13日文贵报平安，王健的第四种死法](/content/2019/12/20191214-6641233035759881210.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
 
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
-
-[文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/2019/11/20191117-3916342912052380154.md)
 
 
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

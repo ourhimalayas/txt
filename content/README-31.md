@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/39 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [39](/content/README-39.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/2018/07/20180719-5443469418694785796.md)
+
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/2018/07/20180711-4817682308462486547.md)
 
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/2018/07/20180710-2033069974209071479.md)
@@ -63,8 +65,6 @@
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
 
 [文字版郭先生2018年5月2日 ins直播](/content/2018/05/20180504-824140605329420568.md)
-
-[文字版：4月28日金正恩是我们学习的坏榜样！ ](/content/2018/04/20180429-1799430545409667372.md)
 
 
 ## 頁面 31/39 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [39](/content/README-39.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
