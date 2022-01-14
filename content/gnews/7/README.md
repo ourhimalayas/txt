@@ -2,32 +2,40 @@
 ---
 
 
-## 七哥谈对生和死的理解（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860289/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1860318/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：土饭团
 
-来源：郭先生2022-01-09直播10：58：55摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-4-5.jpg)图片来源：aninews.in
 
-灵魂就是磁场，再说磁场，所有全人类都公认的一件事情，人死前和死后的重量30多克差距，而且你去到所有的死去人的磁场，现场所谓的招魂，这么多年来人类对宇宙星河没有科学的时候，人类所谓的巫术，印度、玛雅国还有过去所有的包括葡萄牙帝国所有的这些帝国，都有对宇宙星河的解释，基本跟科学今天都是对的。其中一条，对生和死灵魂都是理解都是一样的，没有任何差距，不分俄罗斯语，不分中文，也不分什么葡萄牙文、法文，它都是一样的，人是有灵魂的。
-那灵魂去了哪里？一定是我就像当下玛雅文明一样，回到了你的星座。你在这个星座上就是一场修行，就回到那个星座。那个星座身体可能是另外一样的，你的载体可能另外一个样子的。这就是我认为佛教所说的，真正的是一个欢乐的世界，是没有这个贪嗔痴慢疑的世界，是一个欢喜的世界，就像西方耶稣所说的天堂，我深信不疑的。天堂就一定是在太阳系之外，可能都不是太阳系，太阳只是天堂的一个杯子、一个水或者一个人体，旁边一个人而已。那你说太阳系外边是什么？谁能告诉我？到现在没有任何人能告诉我。我认为太阳系之外就是天堂。所以说我们在修行的今天很接近我们应该要去的地方。我们是人，我们比猪狗、比植物不知道进了多少年了。所以说现在有个新的学说嘛，植物和人之间要差多少年，发现原来植物和人之间差得并不远，他只是个无性繁殖和有性繁殖。所以说这是非常非常重要的。
+**1.[尽管中共国如此对待维吾尔族人，奥运企业合作伙伴仍为其赞助感到“骄傲”](https://www.foxnews.com/world/china-using-olympics-legitimize-abuses-human-rights-researcher)**
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+福克斯新闻1月10日电，一位人权研究者告诉福克斯新闻，中共国正在利用2022年冬奥会“使其侵犯人权的行为合法化”，并补充说，“世界其他国家应该远离”。“成为其中的一部分就是被中国共产党用作工具，使其侵犯行为合法化。包括新疆的情况，这就是为什么世界上其他国家应该远离奥运会的原因。”
 
-**关注我们**
+**2.[美俄安全会谈提出这些主要问题](https://www.foxnews.com/world/main-issues-russia-us-security-talks)**
 
-Discord 账号
+福克斯新闻1月10日电，美国和俄罗斯的谈判代表于周一在日内瓦启动了会谈。随后俄罗斯-北约将在布鲁塞尔举行会谈，并在本周在维也纳举行欧洲安全与合作组织会议。安全会谈的议程和主要争论的问题将包括：对俄罗斯入侵的担忧，俄罗斯的安全要求，美国和北约的反应，时间期限，军事-技术方案。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**[3.美国密切关注印中边界争端，对北京试图恐吓其邻国的行为表示关切](https://www.aninews.in/news/world/asia/us-closely-monitoring-india-china-border-dispute-concerned-by-beijings-attempt-to-intimidate-its-neighbours-white-house20220111023930/)**
 
-Gettr 账号
+ANI 1月11日电，白宫新闻秘书Jen Psaki周一（当地时间）告知，美国总统Joe Biden政府正在密切关注印中边界争端，并补充说，美国对中共国试图恐吓其邻国的行为感到“担忧”。早前，美国国防部在去年12月对中共国在其与印度的喜马拉雅边境分界线附近的军事集结表示关切，这迫使五角大楼感到担忧。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**4.[对美国国际宗教自由委员会官员的制裁是中共国对普世权利的又一次“侮辱”](https://www.aninews.in/news/world/us/sanctions-on-uscirf-officials-yet-another-chinas-affront-against-universal-rights-blinken20220111053257/)**
+
+ANI 1月11日电，美国国务卿Antony Blinken表示声援美国国际宗教自由委员会，华盛顿对这些行动毫不畏惧，并与美国宗教自由委员会及其工作人员站在一起，北京继续试图恐吓和压制那些为人权发声的人，这只会促使国际社会对新疆正在发生的种族灭绝和反人类罪进行越来越多的审查。
+
+**[5.太平洋地区最有可能出现“战略意外”](https://www.reuters.com/world/asia-pacific/us-most-likely-see-strategic-surprise-pacific-official-2022-01-10/)**
+
+路透社1月10日电，美国印太地区协调员Kurt Campbell周一表示，太平洋地区很可能是世界上最有可能出现“战略意外”的地区，他的评论显然是指中共国可能建立太平洋岛屿基地的野心。Campbell称这是他“在未来一两年内最关心的问题”，“我们只有非常短的时间与像澳大利、新西兰、日本、法国这样在太平洋地区有兴趣的伙伴合作，全面加强我们的工作。”
+
+* * *
+
+*审核：Aries的星*
+*校对：阿伯塔*
+*发布：信心*的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 

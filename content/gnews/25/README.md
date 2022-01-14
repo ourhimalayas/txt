@@ -2,85 +2,45 @@
 ---
 
 
-## 1月23日将在华盛顿特区举行 “击败授权”大规模集会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859995/)
+## 更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1860060/)
 
-翻译：Jenny Ball
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1096.png)图片来源:thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1098.png)图片来源:breitbart.com
 
-超过六千名联邦工作人员也将参加在华盛顿DC举行的集会，其中包括：消防员、急救人员、医生，美国人在和平游行中击败授权。
+2022 年冬季奥运会的组织官员周二表示，奥运会的主办城市北京，没有计划在 2 月 4 日至 2 月 20 日举行的活动期间，封锁首都的任何部分以防止中国冠状病毒的传播，尽管周边地区越来越多地被封锁。
 
-演讲者初步名单
+1月11日，领导2022年冬季奥运会冠状病毒预防工作的黄春对记者说：“下个月的奥运会不需要封锁北京。”他补充说，目前，针对北京或其周边的河北省的封锁令仍然“不可行”。
 
-布雷特·温斯坦（Bret Weinstein），
+他谈到北京目前的冠状病毒病例时说：“总体情况仍在可控范围内。”
 
-罗伯特.小肯尼迪（Robert F. Kennedy Jr.）、
+**（点评：中共的可控既它可以为所欲为无法无天。这么说吧，唯一中共不可控的，是爆料革命和新中国联邦，即使中共使尽解数动用国外HBO、VICE这样的媒体抹黑郭文贵先生和爆料革命战友，中共就是控制不了战友们传播真相。除此，中共在大陆和世界，似乎它都可控！）**
 
-保罗·亚历山大医生（Paul Alexander）、
+黄建议 2022 年冬奥会组委会初步努力为所有参加奥运会的运动员和工作人员创造一个无冠状病毒的“泡沫”， 据称这有助于中国首都的冠状病毒局势稳定。委员会于 1 月 4 日启动了一个“闭环”管理系统，**将奥运会参与者与北京更多人口进行物理隔离**。并表示，截至 1 月 11 日，该系统创造的准备条件目前“运行良好”。
 
-罗伯特.马龙医生（Robert Malone）、
+尽管北京声称没有计划在冬奥会期间封锁其人口，但与该市及其周边省份河北省直接接壤的地区，最近几天对居民实施了行动限制，以遏制当地的冠状病毒爆发，并防止它们传播到北京。1 月 9 日晚，毗邻北京的东南部港口城市天津市，中共天津的负责人已禁止所有人员出城。
 
-彼得·麦卡洛医生（Peter McCullough）、
+“在排除感染风险之前，发烧的公民不得离开天津或进入北京……”中共官方媒体新华社周日报道。
 
-杰西卡·罗斯医生（Jessica Rose）、
+中共官方媒体《环球时报》1月9日报道说：“该市还通过在高速公路和运输站设置检查站和特殊通道，加强对前往北京人员的检查。”
 
-皮埃尔·科里医生（Pierre Kory）、
+天津约有1400万人口， 该市是每天前往北京在首都工作的工人的主要通勤基地。1月9日，天津市公交部门“暂停”销售天津至北京高铁列车车票。北京疾控中心要求天津市所有通勤人员“在家办公，不要来京”。
 
-保罗·马里克医生（Paul Marik）、
+河南省各市县的共产党官员最近几天也限制了当地人口的流动，河南省与河北省南部接壤。拥有 550 万居民的河南最北端城市安阳，于 1 月 10 日晚对其居民实施了严格的居家令。中共当局于 1 月 12 日宣布对安阳县下辖的滑县实施额外的封锁令。
 
-克里斯蒂娜·帕克斯医生（Christina Parks）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1100.png)一名身穿防护服的工人将居民带到天津一个临时的 Covid-19 冠状病毒检测中心。 （STR/法新社通过盖蒂图片社）
 
-亚伦·赫里亚蒂医生（Aaron Kheriaty）
+《环球时报》报道说：“滑县居民应该呆在室内，在家工作。”“除必要用途外，所有车辆均禁止上路。”
 
-瑞恩·科尔（Ryan Cole）、
+“该县的企业、餐馆暂停营业，但提供必需品的商店、药店和医疗机构除外。公共交通也被暂停，”报告称。
 
-理查德·乌索医生（Richard Urso）、
-
-疫苗受伤代表、
-
-公民权利和宪法律师特里西娅·林赛（Tricia Lindsey）、
-
-威尔·维特（Will Witt）
-
-工会活动家 特拉梅尔汤普森（Tramell Thompson），
-
-劳拉·洛根Lara Logan、
-
-德尔·比格特里（Del Bigtree）、
-
-史蒂夫·基尔希（Steve Kirsch）、
-
-克里斯·马滕森（Chris Martenson）、
-
-乔·罗斯（Jo Rose ）和消防员
-
-“选择自由行动 ”的温迪·威廉姆斯（Wendy Williams）,
-
-塞缪尔·伊顿（Samuel Eaton），
-
-里克·斯特尔（Rick Sterl），
-
-威尔·琼斯（Will Jones.）。
-
-该组织在一份声明中宣布，由 6,000 多名联邦工作人员组成的全国基层联盟 FEDS 为 医疗自由，“将与数千名关心的公民一起，从华盛顿纪念碑和平走到林肯纪念堂。现在不是放弃既定法律保护的时候 ：保护工作场所不受歧视、知情同意使用未经许可的疫苗，和雇主进行个性化评估。”
-
-游行将从华盛顿纪念碑开始，到林肯纪念堂结束，那里将有一个集主题演讲、艺术家和音乐家组成的节目。组织者认为，最终“击败授权——美国回归”，将有助于制定新的联邦、州和地方政策，以消除目前正在发生的**公然歧视和审查制度**。
-
-组织者敦促所有参加游行的人，尊重受影响的当地企业，包括在华盛顿DC的授权下被迫运营的餐饮场所和酒店。
-
-由全国消防部门现役和退休消防员组成的非营利组织“**自由选择行动**”，也将与华盛顿的数百名消防员联手。
-
-“美国回归”的其他组织者包括：前线 COVID-19 重症监护联盟、儿童健康防御和全球 Covid 峰会。
-
-更多内容即将公布。我们将在收到更新后发布更多更新……
-
-新闻来源:[thegatewaypundit.com][Massive “Defeat the Mandates” Rally Planned for Jan. 23 in Washington DC — SPEAKERS INCLUDE: RFK, Jr, Dr. Malone, Dr. McCullogh, Lara Logan, Steve Kirsch, etc.](https://www.thegatewaypundit.com/2022/01/massive-defeat-mandates-rally-planned-jan-23-washington-dc-speakers-include-rfk-jr-dr-malone-dr-mccullogh-lara-logan-steve-kirsch-etc/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+新闻来源:[breitbart.com] [China Insists ‘No Lockdown’ for Genocide Olympics as More Regions Go Under](https://www.breitbart.com/asia/2022/01/13/china-insists-no-lockdown-for-genocide-olympics-as-more-regions-go-under/)
 
 * * *
 
 *审核：文乐
-校对：信心满满
+校对：阿伯塔
 发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
