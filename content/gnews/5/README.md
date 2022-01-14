@@ -2,24 +2,28 @@
 ---
 
 
-## 爆料革命的歌在国内军队的影响力之大（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1859125/)
+## 美最高法院否决拜登的企业强制疫苗令
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1859212/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-说的最要最重要一句话，在法庭上有一句话啊，在法庭里边，法官永远是最后的赢家。然后被审者永远是最后的输家。他极为聪明，有宗教信仰的人，一生爱音乐。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3A1A9F6B-0A4C-4E42-875E-BCD731C63BFC.jpeg)图为美国最高法院（图片来自网络）
 
-音乐的魅力就是这么大，而且我们的音乐竟然能感动共产党当中的解放军（这种绝对是犯罪集团啊）。不是开玩笑的，所以今天我一 开始你说这个事情对我们最大的考验，战友们的持之以恒的打榜对我们非常重要。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/爆料革命的歌在国内军队的影响力之大.002.jpeg)
-发布：tianzhihuan
+美国最高法院1月13日否决拜登总统于去年9月宣布企业员工的强制疫苗接种令。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+《路透社》报道，保守派占多数的美国最高法院13日进行表决，以6比3的票数否决这项涉及8000万名企业员工的疫苗强制令。但针对医护人员的命令，则以5比4票数过关，允许接受联邦政府补助之机构的医护工作人员须接种疫苗，这将适用于全美76000家医疗机构的1040万名医护人员。
+
+拜登总统于去年9月宣布100人以上企业的员工须接种COVID-19（中共病毒）疫苗，或是每周接受筛检的命令。
+
+*参考链接：[拜登推企業疫苗強制令 遭美最高法院否決](https://news.ltn.com.tw/news/world/breakingnews/3800644)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 
