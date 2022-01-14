@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|墨西哥总统再次感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1859893/)
+## 多数加拿大人认为将会感染奥密克戎
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859901/)
 
-配音：香草山佛教部 – 李傻
+采编：文莱          翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-3.jpg)
+据加拿大媒体《蜂巢日报》1月13日报道，最新民调结果显示，半数以上加拿大人认为他们将在未来某个时候感染“奥密克戎”变体病毒。
 
+报道称，在本次调查的3375名受访者中，认为自己最有可能被感染的年龄组是34至55岁，并且家里都有学龄儿童。同时，在认为最有可能被病毒感染的受访者中，纽芬兰省的人数最多，占60%，而萨斯喀彻温省最为乐观，为47%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
+综合总体调查结果来看，约40%的加拿大人希望尽快结束目前所有的疫情限制措施，而56%的人则认为这些措施应该继续存在。此外，有高达近90%的未接种疫苗者表示，当局应立即取消现行的以防控疫情为由的各项人身活动限制规定。
 
-对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
+校对编辑：硫酸羟氯喹64
 
-此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+发稿： 苦尽甜来 (文來）
 
-即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
-
-文字版原文：[墨西哥总统再次感染中共病毒](https://gnews.org/zh-hans/1851530/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://dailyhive.com/vancouver/half-canadians-expect-omicron-angus-reid)
 
  
 
