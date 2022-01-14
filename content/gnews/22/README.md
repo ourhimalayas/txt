@@ -2,24 +2,28 @@
 ---
 
 
-## 【中日财经爆】高盛大幅调高今年中共房债违约率预测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858225/)
+## 丹麦情报机构警告来自中共国的间谍威胁正在增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858239/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-31.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.goldmansachs.com/worldwide/greater-china/insights/2020-C-REITs-f/800x450.jpg&amp;imgrefurl=https://www.goldmansachs.com/worldwide/greater-china/insights/&amp;tbnid=4eZyQAxl0sFMAM&amp;vet=12ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ..i&amp;docid=eKDsUjoZcsvdIM&amp;w=800&amp;h=450&amp;itg=1&amp;q=%E9%AB%98%E7%9B%9B%20%E6%88%BF%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwiRg8XMrrD1AhVDGKYKHQqzC8QQMygLegUIARC9AQ)
-1月13日，高盛发表研究报告，预测中共2022年房地产债务违约率将达19%，远高于原先预期的11.5%。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-13.jpg)[图片来源](https://www.epochtimes.com/gb/22/1/13/n13502378.htm)
+丹麦星期四（11月13日）警告说，来自中共国、俄罗斯和伊朗等国家的间谍威胁正在增加，包括大国正在争夺资源和海上通道的北极地区。
 
-报告称，去年底内地房地产企业高收益债出现几宗大规模违约，最近数周虽未见大量支付逾期(违约)情况，但紧张情绪加剧。这反映于债务置换或债务延长方案增加。
+丹麦安全情报局（Danish Security and Intelligence Service）反间谍负责人亨里克森（Anders Henriksen）在一份报告中说，“针对丹麦、格陵兰和法罗群岛的外国情报活动的威胁近年来有所增加。”格陵兰和法罗群岛是丹麦王国的主权领地，也是北极理事会的成员，丹麦负责他们的外交和安全事务。
 
-考虑信贷紧张加剧及市场压力持续，该行上调今年内房违约预测。报告指出，在基本情境下，料内房高收益债违约率达19%，高于原先预期的11.5%。在悲观情境下更有可能高达31.6%(原先为25.4%)，而在乐观情境料见10.5%(原先为4.3%)。
+报告指出，2019年发生一起伪造信函事件，声称是格陵兰外长写给美国一名参议员的信函，表示将进行独立的公投。
 
-高盛表示，未来数个月将有大量内房高收益债到期，料潜在发生更多债务置换或债务延长，以及有更多违约个案发生。该行估算2022年1月余下时间有36亿美元内房债到期，3月有33亿美元，4月另有37亿美元内房债到期。
+报告说，“非常可能的是，这封信是俄罗斯情报特工们伪造并在互联网上分享的，希望制造混乱以及丹麦、美国和格陵兰之间的可能冲突。俄罗斯、中国和美国都在争取获得北极地区的自然资源、海上通道、具有军事价值的战略地区，北极的地缘政治重要性正在增加。”
 
-该行中国经济师团队分析认为，虽然中共在政策层会有一定放宽，但仍旧不会有重大房地产需求刺激。
+报告并表示，中共国、俄罗斯和伊朗等外国情报机构正在试图与学生、研究员和公司接触，获取丹麦科技和研究的信息。
 
-信息来源：
+路透社11月份发现，哥本哈根大学一名华人教授秘密与中共国军方开展基因研究。
 
-[高盛上调今年内房债违约率预测至19%](https://finance.sina.com.cn/stock/estate/integration/2022-01-13/doc-ikyakumy0165614.shtml?cref=cj)
+报告说，“丹麦在国际舞台的积极参与、全球化和国际竞争力的日益提高、社会总体开放、数字化和高水平的科技知识都让丹麦成为外国情报活动的一个有吸引力的目标。”
+
+消息来源:
+
+[丹麦警告来自中国俄罗斯伊朗的间谍威胁正在增加](https://www.voachinese.com/a/denmark-accuse-china-of-espionage-20220113/6395769.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

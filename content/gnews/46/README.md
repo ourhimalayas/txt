@@ -2,22 +2,31 @@
 ---
 
 
-## 被困在哈萨克斯坦的47位韩国人安全回国
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1857620/)
+## GTV新闻访谈简报|2022年1月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1857711/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-据韩联社1月14日的报道，因哈萨克斯坦反政府示威困在阿拉木图国际机场的一架韩亚航空客机13日晚载着乘客、机组人员共计47人飞回韩国。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-11.14.42.jpeg)图片来源：原新闻
-5日抵哈的该客机原计划次日返航，但因示威者突然占领机场，77名乘客及机组人员被困机场。哈政府重新控制阿拉木图机场后，旅哈韩侨及机组人员47人才得以撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-新年伊始，哈萨克斯坦各地接连发生抗议物价上涨的大规模示威。当地时间5日，示威人群占据阿拉木图机场，导致飞抵该机场的韩亚航空班机机组人员和乘客77人被迫紧急避险。
 
-一位撤离人员说，市区到处是打砸抢过后的破损建筑，家电和金银首饰卖场损失最惨重，就连他所在的偏僻乡村也出现抢购囤积食品的现象。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0113text-SC.png)
+校对：Stay文苑
 
-另外一位撤离人员说，枪声持续了5天，街上不断有人遭枪杀，酒店方面要求房客远离窗户以免中枪，关门上锁假装没人，整天不开灯以免暴露。
+编辑：Stay文苑
 
-信息来源：[카자흐 탈출 교민 47명 무사 귀환…”곳곳서 총성에 약탈”](https://www.yna.co.kr/view/AKR20220114000400004?section=search)
+发稿：Stay文苑
+
+视频参看：[1.13  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e0d1a7a6dfdd603153f0f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/602600DB-DBDC-4F71-B66B-BC7B8F0A3970.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
