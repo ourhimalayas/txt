@@ -2,37 +2,46 @@
 ---
 
 
-## 有声|新冠疫苗即将被叫停 最后关头做好防护
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860756/)
+## 有声|爱尔兰部长：有信心从2月起放松对中共病毒的限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860854/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山农场 – 纳米
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
 
-郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生强调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
 
-文字版原文：[新冠疫苗即将被叫停 最后关头做好防护](https://gnews.org/zh-hans/1851552/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
+
+爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
+
+政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
+
+原文链接：[爱尔兰部长：有信心从2月起放松对中共病毒的限制](https://gnews.org/zh-hans/1852733/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
