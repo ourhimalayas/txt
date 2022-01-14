@@ -2,22 +2,14 @@
 ---
 
 
-## 有声|加拿大阿省卫生官承认ICU数据造假
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860907/)
+## 有声|GTV新闻访谈简报|2022年1月12日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860963/)
 
-配音：香草山巡管部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月10日，在加拿大阿尔伯塔省的新闻发布会上，首席卫生官员迪娜·辛肖承认，在整个中共病毒大流行期间，该省卫生局将一些非ICU患者报告为了ICU患者。
-
-辛肖表示，在核查历史数据的过程中，他们发现一些医院的某些部门，在可用ICU床位和非ICU床位之间来回转换。按照这些医院的操作标准，因中共病毒入院的病人被归类为ICU患者，而事实上当时这些房间已被改为非ICU病房。辛肖说，这些数字现在已经被修正了过来。
-
-原文链接：[加拿大阿省卫生官承认ICU数据造假](https://gnews.org/zh-hans/1853101/)
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0112text-SC.png)
+原文链接：[GTV新闻访谈简报|2022年1月12日晚](https://gnews.org/zh-hans/1853059/)
 
 音频处理：Daxia
 

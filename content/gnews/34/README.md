@@ -2,32 +2,30 @@
 ---
 
 
-## 天津107例感染者中103人已全程接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1860101/)
+## 台湾称要做好准备应对来自中共的军事威胁
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1860213/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月13日，据中共国内媒体消息显示，中共天津市卫生健康委员会的官员在当天的病毒疫情新闻发布会上表示，该市已对现有的107例中共病毒感染病例进行了完整的调查分析。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-14-上午11.28.57.png)
-而这些报告指出，在所有感染者中，有103例患者已经完成了中共病毒疫苗的全程接种，其中，有32人还接种了疫苗加强针。此外，有3例患者仅接种了一剂次灭活疫苗，只有1例患者尚未接种任何疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/T-2.jpg)glitzmotion.com
+台湾外交部长吴钊燮在台北接受法国24频道采访时说，来自中共的威胁“非常严重”，台湾需要为中共可能的军事行动“做好准备”。
 
-相关人士则评论称，目前，来自全球的数据都已明确显示出，全程接种中共病毒疫苗及其加强针非但不能预防接种人群感染中共病毒，反而会造成更高的感染率。
+吴钊燮称中共对台湾的军事威胁不仅仅是口头上的，北京已经加强了军事力量，并公开谈论“入侵”台湾。作为回应，台湾已经获得了新的武器装备，并正在加紧准备应对可能的中共军事行动，“无论是全面入侵还是与我们军队的小规模冲突”。
 
-参考链接：*[天津107份感染者流调分析情况公布 出现11起家庭聚集疫情](http://news.enorth.com.cn/system/2022/01/13/052244592.shtml)*
+台湾外交部长表示，他预计一旦中共入侵，美国将协助台湾，但他强调，台湾需要做好自卫的准备。他强调，当中共声称将在“一国两制”模式下统治台湾时，这是不能被信任的，香港就是前车之鉴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+应对中共军事压力及两岸军力的不对等，台湾一方面从最重要盟友美国采购重要军备，一方面奉行“国机国造、国舰国造”的政策，致力研发高性能的武器来提升战力。台湾总统蔡英文1月14日在高雄主持了台湾海军一九二舰队第一、二布雷艇中队成军典礼。台湾目前仍在研发和建造自制的柴电潜艇以及空军使用的先进高教机，努力研发不对称战力的新武器来做好应对中共“严重”军事威胁的准备。
 
-总编：文特
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+蔡英文在成军典礼中呼吁：“今天的成军，再次展现台湾推动国防产业的成果，让世界看见台湾守护国家的决心。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+
+[https://www.france24.com/en/tv-shows/the-interview/20220113-taiwan-s-foreign-minister-calls-military-threat-from-china-very-serious](https://www.france24.com/en/tv-shows/the-interview/20220113-taiwan-s-foreign-minister-calls-military-threat-from-china-very-serious)
+
+[https://www.voachinese.com/a/Taiwan-adds-mine-laying-to-defenses-against-China-20220114/6396921.html](https://www.voachinese.com/a/Taiwan-adds-mine-laying-to-defenses-against-China-20220114/6396921.html)
+
+**华盛顿DC  银河**
+
+**编辑发布 水星**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
