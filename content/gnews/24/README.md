@@ -2,35 +2,32 @@
 ---
 
 
-## 纽约公寓租赁市场复苏，曼哈顿12月房租创历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858107/)
+## 法国新增中共病毒连续三天超30万例 打过三针疫苗的卫生部长也确诊
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858132/)
 
-整理：Eileen（围剿维尼熊）
-编辑：文泓
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/666.jpg)[图片来源](https://www.bbc.com/news/world-europe-59977978)
+截至1月13日，法国单日新增确诊病例已连续三天超过30万例。已经打过三针疫苗的法国卫生部长维兰当天确诊感染中共病毒，他是接种阿斯利康疫苗的首名法国政府高官
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+法国官方数据显示，法国13日单日新增确诊病例305322例，这是法国连续三天的单日新增确诊病例超过30万例；法国累计确诊病例13240274例。法国累计死亡病例现为126530例，新增死亡病例227例。法国新冠住院患者人数现为24154人；重症患者人数现为3939人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LA@OEF40XOB_FS_Q5K.png)图片来源：Cubed NY
+法国中共病毒发病率现已升至每10万居民中有2833名感染者，法国单日平均新增确诊病例目前已经升至近30万例；法国新冠病毒检测阳性率仍然维持在20%。
 
+法国卫生部长维兰13日确诊感染中共病毒。他由于有轻微的感染症状，于当天进行了检测，结果为阳性。他通过社交媒体确认自己感染，并表示将接受隔离并将通过远程办公的方式继续履职。根据此前的官方消息，维兰已经接种了三剂新冠疫苗。
 
-1月13日，据新浪财经报道，纽约地产估价机构Miller Samuel与房产中介公司Douglas Elliman于周四发布的报告显示，12月曼哈顿公寓平均（月）租金达到4440美元，创历史新高，较上年同期上涨了21%。
+根据法国卫生部数据，法国目前已有5346万人接种至少一剂疫苗，约占法国人口的79.3%；已有5217万人完成两剂接种，约占法国人口的77.4%；已有3051万人接种第三剂疫苗。
 
-与一年前相比，去年曼哈顿有超过2.5万套空置公寓可供出租，有人预计，楼市的复苏可能需要数年时间。而现在，租金已超过疫情前的水平，今年的租金上涨给租房者带来了巨大冲击。
+2021年2月8日，法国卫生部长维兰接种了第一针中共病毒（新冠）疫苗，该疫苗是由英国阿斯利康制药公司与牛津大学合作研发的，成为接种阿斯利康疫苗的首名法国政府高官。
 
-另据《纽约邮报》报道，12月上市库存同比暴跌81%，只有不到4,800套公寓可供出租。缺乏可用库存也影响了新租约的数量，本月新租约下降了近40%，仅为3,345份。由奥密克戎变种病毒驱动新冠病毒感染人数激增，也给公寓出租市场蒙上一层阴影。
+消息来源:
 
-新闻链接：
-1、[纽约楼市全面复苏，曼哈顿12月房租创历史新高，年轻人梦碎|纽约楼市\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0112797.shtml)
-2、[Manhattan rents hit highest-ever December record as supply plummets (nypost.com)](https://nypost.com/2022/01/13/manhattan-rents-hit-highest-december-record-ever-as-supply-plummets/)
+**[法国单日新增确诊连续三天超30万 卫生部长确诊感染](https://www.sohu.com/a/516453242_123753)**
 
-发布： tianzhihuan
+[法国卫生部长接种新冠疫苗](https://www.chinanews.com.cn/gj/shipin/cns-d/2021/02-09/news880143.shtml)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
