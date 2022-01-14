@@ -2,19 +2,37 @@
 ---
 
 
-## 广东珠海确诊1例新冠病毒核酸阳性案例
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1858492/)
+## 辉瑞加强针被正式列为26岁男性的死因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858532/)
 
-撰稿：追着曙光跑
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月12日外媒报道，南达科他州26岁男子约瑟夫·基廷的官方死亡证明显示，第一个死因是涉及左心室和室间隔的多灶性心肌炎；第二个死因是最近接种的辉瑞加强针。这成为疫苗导致死亡的确凿证据。
 
-据“珠海香洲”微信公众号14日消息，14日珠海市在核酸检测中发现1名居民新冠病毒初筛阳性，经珠海市疾控中心复核为阳性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-15.58.38.jpeg)图片来源：网络
-患者是一名女性，住在南屏镇将军山榕园2栋。该名患者是在大规模核酸检测中发现，现已转送至中大五院隔离治疗，临床诊断待出。相关密接者、次密接者及重点人员正在排查中，其居住、工作及相关重点区域已实施管控措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-14.jpg)
 
-珠海市是广东这个月以来，继深圳市和中山市之后发现确诊案例的城市。
+据约瑟夫有着35年重症监护经验的母亲称，在加强针接种72小时后的11月11日早上，儿子开始出现喉咙痛、肌肉酸痛和疲惫的症状，起初家人误认为是疫苗导致的轻微副作用，出乎意料的是，约瑟夫的心脏很快衰竭。
 
-信息来源：[珠海发现1例新冠病毒核酸阳性个案](https://mp.weixin.qq.com/s/FHewnLrzFv9WyBgrordnPA)
+约瑟夫的母亲表示，尸检证明辉瑞加强针直接导致了儿子的死亡，她警告世人，毒疫苗可能在没有明显症状的情况下带来致命后果。
 
+参考链接：
+
+- [Booster Listed As Cause of Death in 26-Year-Old’s Autopsy, Death Certificate After Work-Mandated Jab](https://gettr.com/post/pnyrl19052)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Jack Li文阳
+编辑：百香果
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

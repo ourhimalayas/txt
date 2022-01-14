@@ -2,40 +2,32 @@
 ---
 
 
-## 突然炸雷！200亿市值“国际医学”直接被ST
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858509/)
+## 美国最高法院阻止了对企业的中共病毒疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858559/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-37.png)
+图片来源：网络截图
 
-整理报道：BENJ1
-编辑：Kelly
+据合众国际社1月13日报道，美国最高法院周四阻止了总统乔·拜登对大型私营企业的中共病毒疫苗或测试强制令，但允许对接受联邦资金设施的医护人员提出疫苗要求。高等法院以6-3票反对前者，布雷耶（Breyer）、索托马约尔（Sotomayor）和卡根（ Kagan）持反对意见。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+职业安全与健康管理局在11月发布的强制令要求拥有100名或以上员工的企业的工人接种疫苗或每周提交中共病毒的阴性测试。它还要求未接种疫苗的工人在室内必须戴上口罩，但对有宗教信仰的工人和在家工作的员工有例外。
 
+“尽管国会无可争议地赋予OSHA监管职业危险的权力，但它没有赋予该机构更广泛地监管公共健康的权力，”法院在其裁决中说。“要求8400万美国人接种疫苗，仅仅是因为他们为雇员超过100人的雇主工作而被选中，这当然属于后面的范畴，”它继续说。
 
-A股上市公司又炸了一雷。
+在投票之前，倾向于保守的法官们表示，他们不相信总统乔·拜登有权责成OSHA对拥有100名或更多雇员的公司执行这一任务。
 
-1月13日晚间，国际医学（000516，SZ）发布公告称，股票自1月17日起被实施其他风险警示。
+不过，最高法院允许对接受医疗保险或医疗补助金的医疗机构实施类似的任务。对医护人员的疫苗强制令投票结果是5比4，托马斯（Thomas）、阿利托（Alito）、戈尔舒（Gorsuch）和巴雷特（Barrett）持反对意见，这意味着罗伯茨（Roberts）
 
-此前，因“西安孕妇流产”“心梗患者去世”事件，其下属两家医院遭停业整顿3个月。
+和卡瓦诺（Kavanaugh）与自由派大法官一起，允许HHS对医护人员的强制令成立。
 
-经西安市卫生健康委员会研究，对两家医院作出停业整顿3个月，期满整改合格后重新开诊等处理意见。根据规定，该事项触发了“上市公司股票被实施其他风险警示”的相应情形。公司股票自1月14日开市起停牌一天，自1月17日开市起复牌。公司股票自1月17日开市起被实施其他风险警示，公司股票简称由“国际医学”变更为“ST国医”。
+据白宫称，由医疗保险和医疗补助服务中心发布的医疗保健强制令适用于76000个设施的约1700万工人。
 
-1月13日上午开盘后不久，国际医学直线跌停封板，全天封死跌停，卖单超76万手，最新市值为190.5亿元。
+拜登在一份声明中批评了这项裁决，并呼吁各州和私人雇主要求工人接种疫苗。
 
-截至2021年第三季度末，国际医学普通股东户数已经超过14万户，估计部分持股者今晚忐忑难眠了。
+新闻来源：1. [Supreme Court blocks COVID-19 mandate for businesses](https://www.upi.com/Top_News/US/2022/01/13/supreme-court-blocks-bidens-vaccine-mandate/5471642105616/)
 
-参考新闻：
-[https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&mod=wftop&loc=7&r=0&rfunc=56&tj=cxvertical\_wap\_wftop&tr=182](https://finance.sina.com.cn/stock/s/2022-01-13/doc-ikyakumy0193264.shtml?cre=tianyi&amp;mod=wftop&amp;loc=7&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2. [Supreme Court Blocks Biden’s OSHA Vaxx Mandate](https://www.zerohedge.com/political/supreme-court-blocks-bidens-osha-vaxx-mandate)
 
  
 
