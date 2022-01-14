@@ -2,30 +2,44 @@
 ---
 
 
-## “愚昧”到轻重不分 上海孕妇被医院要求多次核酸延误致流产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1859520/)
+## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
 
-撰稿：东京樱花团丨Ob
-![](https://lh3.googleusercontent.com/3XUVjxbO7_hSbvsgvJlbEGlF1vxNUABBMjrHMHIn95a9LHZL-BsPnjF7mCys-QJnd5bZiRWiZon6A6ygYkkrikqXZ1HDmnf3qSKL_flC94h6Kqz2eiMUeFBx_u-4LYJMnsL0lAmQ)
-据【看中国】网记者李木子2022年1月14日的文章，近日一则推文被网民关注，中国上海怀孕17周的孕妇郑女士在微博上曝光，称自己去年11月在复旦大学附属中山医院青浦分院因被医生要求多次核酸检测而延误了就诊，最终导致不幸流产的遭遇，此事也引发网民热议。
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
+**作者提示：不要相信我说的，你自己去核实。
+**
 
-在推文中郑女士表示，2021年11月1日晚，因发烧、腹痛、出血，她到上海青浦中山医院急诊产科就诊，当晚约20点15分进行急诊登记，20点17分见到产科医生。当时B超提示胎儿一切正常。当时医生检查认为未见宫缩，但表示应住院，住院前需到发热门诊就诊。根据医院核酸检测回单显示，她于20点57分在急诊做了核酸检测。21点03分，她自行到发热门诊并挂号，被要求再次核酸检测，于21点21分在发热门诊又做了一次核酸检测，在检测结果出来之前，发热门诊不让其离开。然而在发热门诊等待核酸报告期间，她腹痛持续加重，直到23点产科医生前来处置，最终流产。
+**郭文贵先生 Mr. Miles Guo**
 
-郑女士称，在21点30分左右血常规、C反应蛋白、SAA检查结果显示血象高。此后，她疼痛加重，曾多次催促发热门诊医生联系产科医生来检查和治疗。可发热门诊医生反馈，联系总值班和产科，或为联系不上，或为产科医生说明检查没有发现宫缩，不予处理，均让等至核酸检测结果出来。
+1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
+2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
+3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
+4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
+[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
+5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
+6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
+[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
 
-郑女士的入院病历显示，她在发热门诊等核酸检测报告过程中，向医生自述腹痛加重、见红增多。发热门诊医生23点7分给产科打电话。之后，产科医生来到发热门诊检查发现明显宫缩并开药，准备在发热门诊治疗。
 
-23点26分，郑女士在发热门诊所做的核酸报告结果出来，显示阴性。之后，产科医生陪同郑女士到产房，约23点40分到达，予以保胎治疗和抗感染治疗。此后，郑女士自觉疼痛症状减轻。
+**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
 
-上海孕妇郑女士曝光事件后，很多网友表示同情、质疑、气愤，引发网民热议。有网友说，“先救急会怎样嘛，难不成危重病人送院也得把人搞起来先测个核酸吗？”、“疫情防控固然重要，但急诊孕妇肚子里的胎儿等不起啊！重症患者等不起啊！”、“新冠要了多少命不知道，核酸流程却不停的被曝光要命。”“抗疫为了啥呢？最终目的不是保障生命安全维护身体健康吗？”
+[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
 
-“涟莆夜梦”说，“上海这种事情还多着呢，周边有位女同事癌症，已经预订好日子手术，可是新冠封院，没办法，待疫情好转再去，已错过最佳手术时机，现人已走了1年多了。别把上海吹得那么高，不足之处仍然很多。”……
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
 
-**愚昧到无知，机械到失去人性，这就是中共国的依法治国？中共集权的过程，也是老百姓不想负责任，不愿意负责任而将个人“度量权”拱手相让的过程。偷奸耍滑不想担负任何哪怕一丁点的责任，最安全、最好的办法就是“一切问领导，一切领导说了算”，把责任推出去的过程实际上是把权力拱手相让的过程。中国人是最勤劳的民族却也是最懒惰的民族，懒得去思考，懒得去探究人生哲理，懒得去奋斗，到最后一切都懒得去争取，甚至把一切思想“外包”，人云亦云，随大流，终沦为中共摆弄来摆弄去的“奴隶”而不自知。悲哀！**
+[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

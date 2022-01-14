@@ -2,41 +2,24 @@
 ---
 
 
-## 世卫组织、欧洲药管局警告重复接种加强针有害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858529/)
+## 冲绳政策研究专家警告，冲绳是中共重点渗透地区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858778/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，世卫组织和欧洲药品管理局公开声明，频繁接种中共病毒加强针危害免疫系统。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-26.png)图片来源本文网站
+1月14日八重山日报报道，1月8日，日本冲绳政策研究论坛的仲村觉理事长举行了主题为“迈向冲绳回归日本50周年“的研讨会。河添恵子女士发表演讲，讨论了法国一家智囊团去年发布的一份报告，该报告指出中共国正在鼓励冲绳和其它地方的独立运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4-scaled.jpg)
+中共国的大学和智囊团一直在推动与冲绳独立倡导者的学术交流，媒体也多次报道，质疑日本对冲绳的领土主权。“琉球独立运动，美国军事基地反对运动，反对修改宪法第九条和反对强化日本自卫队的部分人士，都得到中共国的支持。“
 
-欧洲药品管理局、生物健康威胁和疫苗战略负责人马可·卡瓦莱里，在新闻发布会上警告说，疫苗加强针不应该重复施打，频繁地接种加强剂可能会对免疫系统造成危害。
+冲绳被中共作为重点工作地区，来自中共国家机关，如统战部、国家安全部和中国人民解放军总参谋部的人员，正在以私营公司雇员和学者的身份在活动。
 
-当天晚些时候，世卫组织也在一份声明中说，基于原始疫苗成分的反复强化剂量的疫苗接种策略是不合适的，也是不可持续的。
+信息源：
 
-分析人士称，两大机构突然改变风向，或因为疫苗副作用的数据令人震惊，并且他们要为下一步官方公布停止疫苗强制接种，做好铺垫。
+[「沖縄は中国工作の重要な現場。要員が民間企業の従業員や学者の身分で活動」　日本沖縄政策研究フォーラム　仲村氏、危機訴え](https://news.yahoo.co.jp/articles/87385d90434b9f689bd172a0d113c496cc952e82#:~:text=%E3%80%)
 
-参考链接：
-
-- [FRIGHTENING: WHO Joins EU and Changes Direction — Suddenly Warns Against Taking Continued COVID Booster Shots](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-- [Interim Statement on COVID-19 vaccines in the context of the circulation of the Omicron SARS-CoV-2 Variant from the WHO Technical Advisory Group on COVID-19 Vaccine Composition (TAG-CO-VAC)](https://www.who.int/news/item/11-01-2022-interim-statement-on-covid-19-vaccines-in-the-context-of-the-circulation-of-the-omicron-sars-cov-2-variant-from-the-who-technical-advisory-group-on-covid-19-vaccine-composition)
-- [Frequent Boosters Spur Warning on Immune Response](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Ivy001
-编辑：文真
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,32 @@
 ---
 
 
-## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
+## 英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1859672/)
 
-作者：波士顿五月花 北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
-**作者提示：不要相信我说的，你自己去核实。
-**
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-**郭文贵先生 Mr. Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/220BAA3B-3A73-453A-B5BA-C02D7639B48D.jpeg)（图片来自unionpeace ）
 
-1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
-2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
-3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
-4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
-[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
-5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
-6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
+据《Sky News》1月14日报道，由25家慈善机构组成的联盟警告英国政府称，燃料匮乏会影响数百万个家庭，许多人或将冻死在寒冷的家中。 他们呼吁政府采取紧急行动，解决能源费用上涨的危机。
 
+专家们预测，从4月开始，能源价格上升将导致民众账单上涨50%，这可能导致一个普通家庭每年的天然气和电力支出上升到近2000英镑，而目前这笔费用还不到1300英镑。
 
-**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
+“救助儿童会”的丹·帕斯金斯（Dan Paskins）表示，因能源价格飙升所引发的生活成本危机，对最低收入家庭的打击最为严重。许多家长反应，他们不得不在为家庭取暖与为孩子买衣服之间做出选择。
 
-[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
+英国绿色和平组织的政策主任道格·帕尔博士（Dr Doug Parr ）也认为，在天然气价格危机和气候危机的情况之下，社会需要尽快摆脱依靠化石燃料作为能源，但同时也要保护低收入人群。而根据国际能源署主要专家的建议，对石油和天然气公司征收暴利税将是一种公平的方式。
 
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
+英国政府的一名发言人周五发表声明称，政府为此正在发起一项超过42亿英镑的行动，并通过5亿英镑的家庭支持基金以及收费折扣等举措，来支持弱势家庭。
 
-[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
-
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
+*参考链接：[Energy bills crisis: People will die in cold homes, warns alliance of charities urging government action](https://news.sky.com/story/energy-bills-crisis-people-will-die-in-cold-homes-warns-alliance-of-charities-urging-government-action-12515431)*
 
 * * *
 
-*编辑：文合*
+*素材采编：葛大饼*
 
-*封面：霹雳鼠年*
+*编辑： 青衣青青*
 
-*发布：吐纳*
+*发布：miumiu*
 
  
 

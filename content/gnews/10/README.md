@@ -2,37 +2,42 @@
 ---
 
 
-## 中国政府在奥运会前将人们送往隔离营以遏制COVID-19的爆发
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1859521/)
+## 法治基金在塞浦路斯援救新中国联邦人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859605/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-7.jpg)
-尽管全球[COVID-19 omicron病例激增，但](https://www.foxnews.com/category/health/infectious-disease/coronavirus)丝毫没有影响[中国](https://www.foxnews.com/category/world/world-regions/china)政府举办[奥运会](https://www.foxnews.com/category/sports/olympics)的进程。中国政府采取集中隔离和大规模封锁等措施，以防止奥运会期间出现任何影响。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+盖特消息，1月11日，塞浦路斯媒体报道，中共捏造证据，要求引渡一对中国籍母子。法治基金及时对此发起法律诉讼，救助新中国联邦成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1086.png)
+这对母子受中共迫害者，已经获得了塞国的永久居留许可。但去年12月，中共谎称他们涉嫌金融和投资欺诈，并通过国际刑警组织发布“红通”，将二人拘捕，并要求引渡。
 
-一些人批评中国政府COVID-19清零政策是非常极端的做法，在仅检测到几例 COVID-19 病例后，[整个城市都处于lockdown状态。](https://www.foxnews.com/world/chinese-cities-lockdown-coronavirus-olympics)为确保2022年冬奥会顺利进行，中国竟然动用了大规模的隔离营，将人们投入其中隔离两周。
+法治基金为制止中共非法跨国迫害异见人士，于1月3日特意发函给塞司法与公共秩序部，以及内政部，声明该母子为新中国联邦成员，因政治立场被中共迫害，“金融欺诈”的罪名纯属捏造。目前，这对母子引渡回中共国的程序暂停，但仍滞留在塞浦路斯，等待地方法院的判决。
 
-[据印度新闻媒体First Post](https://www.firstpost.com/world/under-chinas-zero-covid-policy-people-forced-to-move-to-quarantine-camps-live-in-metal-boxes-10281461.html)报道，推特上的视频显示了一排排的盒子结构，里面有一张床和一个厕所，甚至老年人和孕妇也在其中。据报道，该营地位于西安，西安已迅速成为中国当前疫情的中心。
-
-[另一段视频](https://twitter.com/songpinganq/status/1480160065843728387)显示，身穿白色防护服的工作人员将一名男子从自己的公寓赶往隔离营，男子提出要将饭吃饭或者带上手机，但是被工作人员拒绝并把他拖到街上，只是让他戴上了口罩。
-
-[据英国广播公司](https://www.bbc.com/news/world-asia-china-59855689)报道，西安居民面临“午夜隔离”，在此期间，官员在年初就通知居民，他们必须离开家园前往隔离营。一位目击者称在大院外看到了 30 辆公共汽车，另一位目击者称有数千人被转移。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-1.jpg)
-“这里除了基本的生活用品，其他什么都没有……没有人来检查我们，这算什么隔离？他们在晚上对我们进行了大规模的转移，超过一千人，我们中的许多人都是老人和儿童。他们没有做任何适当的安排，所以他们只是漫不经心的把我们放在这里。” 有人在中国社交媒体平台微博上写道。
+法治基金和法治社会公益机构，旨在保护中国人权，并推翻中国共产党，而且获得了美国政府部门认可和支持。分析人士称，此报道是塞浦路斯当局在借助媒体，拒绝中共对新中国联邦人的政治迫害。
 
 
 
-其他视频也显示了恶劣的条件，包括一张光秃秃的床和一间肮脏的监狱式浴室，床边有一张小金属桌子。
+新闻链接:
 
-当隔离营的工作人员骑着自行车和卡车驶过时，营地里的“居民”会[吃盒饭，这些盒饭放在铁栏窗外的托盘上。](https://twitter.com/songpinganq/status/1480157888827912195)其他视频显示，中国政府2020年4月在全国各地提前预建了类似的营地。
+1. https://gettr.com/comment/ch2z244728
 
-由于 omicron 变体病毒而引起的广泛封锁引发了居民的担忧，他们质疑是否需要采取这种极端措施。西安居民最初有足够的自由可以去购买食物，但官员在过去两周进一步收紧了限制。
+2. https://gettr.com/post/pnxj8eb5f7
 
+3. https://gettr.com/post/pnxj8eb5f7
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
-消息来源（翻译自FOX新闻）：
+总编/编辑: 文真
 
-[China sends people to ‘quarantine camps’ ahead of Olympic Games to clamp down on COVID-19 outbreaks](https://www.foxnews.com/world/china-quarantine-camps-olympic-games-covid-outbreaks)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,36 @@
 ---
 
 
-## 英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1859672/)
+## 中共开展共产主义运动式抢夺财富
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859739/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，郭先生在大直播中指出，中共通过恶意封城、大规模核酸检测，试图达到政治上的中共病毒清零”的目的，让老百姓习惯于居家，严格宵禁。其更重要的作用是在封城期间以抗疫为借口，开始进行财富掠夺。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1088.png)
+目前已经被列出西安的120家企业，30个企业富豪，将会面临停业整顿和抓捕，中共还会把他们的财富全部收归国有。这就是共产党的共享财富。郑州目前也已经开始，接下来天津、江浙一带也会推动这种共产主义运动式的财富抢夺计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/220BAA3B-3A73-453A-B5BA-C02D7639B48D.jpeg)（图片来自unionpeace ）
 
-据《Sky News》1月14日报道，由25家慈善机构组成的联盟警告英国政府称，燃料匮乏会影响数百万个家庭，许多人或将冻死在寒冷的家中。 他们呼吁政府采取紧急行动，解决能源费用上涨的危机。
 
-专家们预测，从4月开始，能源价格上升将导致民众账单上涨50%，这可能导致一个普通家庭每年的天然气和电力支出上升到近2000英镑，而目前这笔费用还不到1300英镑。
+新闻来源：
 
-“救助儿童会”的丹·帕斯金斯（Dan Paskins）表示，因能源价格飙升所引发的生活成本危机，对最低收入家庭的打击最为严重。许多家长反应，他们不得不在为家庭取暖与为孩子买衣服之间做出选择。
+[https://gettr.com/post/po007l9e3c](https://gettr.com/post/po007l9e3c)
 
-英国绿色和平组织的政策主任道格·帕尔博士（Dr Doug Parr ）也认为，在天然气价格危机和气候危机的情况之下，社会需要尽快摆脱依靠化石燃料作为能源，但同时也要保护低收入人群。而根据国际能源署主要专家的建议，对石油和天然气公司征收暴利税将是一种公平的方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-4.jpg)
 
-英国政府的一名发言人周五发表声明称，政府为此正在发起一项超过42亿英镑的行动，并通过5亿英镑的家庭支持基金以及收费折扣等举措，来支持弱势家庭。
+总编：飞虹
 
-*参考链接：[Energy bills crisis: People will die in cold homes, warns alliance of charities urging government action](https://news.sky.com/story/energy-bills-crisis-people-will-die-in-cold-homes-warns-alliance-of-charities-urging-government-action-12515431)*
+编辑：文特
 
-* * *
+校正/发稿：浪迹天涯
 
-*素材采编：葛大饼*
-
-*编辑： 青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
