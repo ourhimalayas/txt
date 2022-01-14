@@ -2,24 +2,37 @@
 ---
 
 
-## 加拿大卫生部非法监控手机移动设备
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859705/)
+## 有声|巴西13岁女孩接种中共病毒疫苗后死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1859776/)
 
-采编/编译撰稿：微文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-1.png)
-[图片链接](https://www.bing.com/images/search?view=detailV2&amp;ccid=1rhQQ4wh&amp;id=29BCC369FA6E935241FEB1BC40BD74B227C9C9D0&amp;thid=OIP.1rhQQ4whOa-CxDLQLgT0AAHaDt&amp;mediaurl=https%3a%2f%2fventurebeat.com%2fwp-content%2fuploads%2f2020%2f05%2ficlr-visualization.png%3fw%3d800&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.d6b850438c2139af82c432d02e04f400%3frik%3d0MnJJ7J0vUC8sQ%26pid%3dImgRaw%26r%3d0&amp;exph=401&amp;expw=799&amp;q=Conservative+ethics+critics+demand+answers+on+PHAC+location+tracking&amp;simid=608001222794493203&amp;FORM=IRPRST&amp;ck=45DEA0ECC55EE2BCA6207CF4E8AF30C9&amp;selectedIndex=1&amp;ajaxhist=0&amp;ajaxserp=0)
+配音：香草山佛教部 – 李傻
 
-据加拿大[环球新闻]1月10日报道，为密切监视所有加拿大人的行踪，该国[公共卫生署]以防控疫情为由，长期秘密跟踪定位该国3千多万台手机移动设备。
 
-报道称，目前加拿大议会[道德委员会]成员[布拉萨德]议员已对特鲁多政府以上非法行为提出质疑，并要求当局公开解释其在公众不知情的状况下，收集个人数据的目的和方式和该监控计划的授权人和信息共享人以及保护公众隐私安全的具体措施等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月12日，据巴西媒体报道，当地一名13岁的女孩在接种过第一针辉瑞中共病毒疫苗后死亡。
 
-同时，布拉萨德还提请[加拿大隐私委员会]，应立即对卫生署的监控报告和项目招标书进行彻底调查。并表示，卫生部门此次利用疫情，恣意对其国民的大规模秘密监控之举，就连当时911恐袭事件后出现的监控高潮也相形见绌。
+据悉，该名女孩于2021年11月6日接种了第一针中共病毒疫苗，其后五天，她的一侧面部突发瘫痪并伴随身体虚弱的症状。经诊断，女孩患上了贝尔麻痹症，为此接受了皮质类固醇的药物治疗。然而，在随后的几周内，她的病情持续恶化，并于12月29日因呼吸系统疾病住院，至2022年1月2日转院进行插管治疗，但女孩最终于1月10日去世。
 
-校对编辑：硫酸羟氯喹64
+悲痛之余，女孩的母亲表示，孩子生前没有任何健康问题，导致她死亡的原因只有接种过的中共病毒疫苗。
 
-发稿： 苦尽甜来 (文來）
+文字版原文：[巴西13岁女孩接种中共病毒疫苗后死亡](https://gnews.org/zh-hans/1855424/)
 
-[原文链接](https://www.msn.com/en-ca/news/other/ronald-mcdonald-house-vaccine-mandate-turns-political-after-family-asked-to-leave/vi-AASLrPO)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

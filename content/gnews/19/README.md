@@ -2,36 +2,25 @@
 ---
 
 
-## 福克斯新闻开始大力推广盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859767/)
+## 加拿大放弃跨境货运行业疫苗强制接种令
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859814/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-盖特1月13日消息，目前美国最有影响力的福克斯新闻节目，开始大力推广盖特。首席执行官杰森.米勒在采访中谈到塔克.卡尔森等有影响力的人士加入盖特的意义时表示，这显示了人们对大科技公司的拒绝行动。因为人们需要没有言论审查的发声平台，而盖特非常欢迎他们的加入。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1090.png)
-米勒说，尽管大型社交媒体表面赞同言论自由，但实际上他们只赞同符合他们规定的言论。他们慢慢会拿走人们的权利。他同时表示，不论何时，当人们被诱导着做出同样的反应时，我们就应该提出疑问，这是民主国家人民应有的意识，也是美国和中共不同的地方。
+采编：UCool 优酷      编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-3.jpg)
+据【路透社】1月13日报道，[加拿大边境服务局]日前宣告，将允许未接种“新冠病毒”疫苗的加拿大货运卡车司机从美国入境，而即将生效的强制接种规定将被放弃执行。
 
-主持人玛利亚称赞盖特是历史上增长最快的社交平台。她表示她每天都在盖特投稿发文，呼吁人们都来加入盖特并关注她。她强调说，盖特超越左派媒体，向更广更新的机会敞开了大门。
+报道称，原定于1月15日生效的加拿大政府疫苗接种政策规定，美加跨境运输卡车司机必须出示完全接种证明，否则将被拒绝入境。[加拿大卡车联盟]对此表示，尽管其绝大多数成员都已接种了两剂疫苗，但该政策仍将导致业内10%，约1.6万名跨境货运卡车司机被迫离职。
+
+据悉，加拿大和美国每年有6500亿加元的货物贸易，其中三分之二以上通过公路运输。因此，货运卡车自由出入境对维持物流供应链的稳定至关重要。而为避免供应链断裂所导致的通货膨胀，加拿大反对党及运输行业团体已多次向特鲁多施压，要求当局放弃这项疫苗强制接种任务。
+
+校对编辑：硫酸羟氯喹64
+
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://www.reuters.com/world/americas/canadian-truckers-stay-exempt-covid-19-vaccine-requirements-2022-01-13/)
 
 
 
-【新闻链接】https://gettr.com/post/pnxt74023d
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
-
-总编：文特
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

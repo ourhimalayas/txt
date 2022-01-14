@@ -2,34 +2,87 @@
 ---
 
 
-## 本月第三次，北韩今日再度发射导弹以回应美方制裁
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1859925/)
+## 1月23日将在华盛顿特区举行 “击败授权”大规模集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859995/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011404.jpg)网络图片
+翻译：Jenny Ball
 
-根据来自韩国和日本官员的最新消息，朝鲜周五在本月的第三次武器发射中至少发射了一枚可能的弹道导弹，这显然是对拜登政府对其继续试射实施的新制裁的报复。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1096.png)图片来源:thegatewaypundit.com
 
-韩国参谋长联席会议说，这枚武器是朝东面发射的，但没有立即说明它落在哪里，也没有提供其他细节。日本首相办公室和防卫省也表示，他们发现了朝鲜的发射，并表示这可能是一枚弹道导弹。
+超过六千名联邦工作人员也将参加在华盛顿DC举行的集会，其中包括：消防员、急救人员、医生，美国人在和平游行中击败授权。
 
-日本海岸警卫队发布安全警告称，可能已经有物体登陆，敦促朝鲜半岛与日本以及东海和北太平洋之间的船只“注意进一步的相关信息并保持安全距离”。
+演讲者初步名单
 
-此前，朝鲜领导人金正恩周二成功试射一枚高超音速导弹，他声称这将大大提高该国的核“战争威慑力”。拜登政府紧接着于周三对五名朝鲜人实施制裁，理由是他们在为朝鲜导弹计划获取设备和技术，并表示将寻求联合国的新制裁。
+布雷特·温斯坦（Bret Weinstein），
 
-周二的导弹试验是朝鲜在一周内第二次展示其所谓的高超音速导弹。该国近几个月内一直在加大新的、可能具有核能力的导弹的试验——这些导弹旨在压倒该地区的导弹防御系统，同时继续扩大其导弹防御系统。
+罗伯特.小肯尼迪（Robert F. Kennedy Jr.）、
 
-在朝鲜官方朝鲜中央通讯社发表的一份声明中，一名身份不明的外交部发言人为朝鲜发射所谓的高超音速导弹辩护，认为这是正当的自卫行动。这位发言人表示，新制裁凸显了美国旨在“孤立和扼杀”朝鲜的敌对意图，尽管华盛顿一再呼吁平壤恢复因解除制裁和核裁军措施而陷入僵局的外交。
+保罗·亚历山大医生（Paul Alexander）、
 
-以超过 5 马赫或 5 倍音速飞行的高超音速武器因其速度和机动性而可能对导弹防御系统构成重大挑战。这种武器在去年年初被列入金正恩的军武愿望清单——该清单内还包括多弹头导弹、间谍卫星、固体燃料远程导弹和潜射核导弹。
+罗伯特.马龙医生（Robert Malone）、
 
-不过，专家表示，朝鲜需要数年时间进行更多测试才能获得可靠的高超音速系统。
+彼得·麦卡洛医生（Peter McCullough）、
 
-新闻参考链接：[N. Korea fires fresh missiles in response to US sanctions](https://apnews.com/article/diplomacy-south-korea-north-korea-pyongyang-41158eef7c5fdf375185137ca19e7e2a)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+杰西卡·罗斯医生（Jessica Rose）、
 
+皮埃尔·科里医生（Pierre Kory）、
 
+保罗·马里克医生（Paul Marik）、
 
+克里斯蒂娜·帕克斯医生（Christina Parks）
 
+亚伦·赫里亚蒂医生（Aaron Kheriaty）
+
+瑞恩·科尔（Ryan Cole）、
+
+理查德·乌索医生（Richard Urso）、
+
+疫苗受伤代表、
+
+公民权利和宪法律师特里西娅·林赛（Tricia Lindsey）、
+
+威尔·维特（Will Witt）
+
+工会活动家 特拉梅尔汤普森（Tramell Thompson），
+
+劳拉·洛根Lara Logan、
+
+德尔·比格特里（Del Bigtree）、
+
+史蒂夫·基尔希（Steve Kirsch）、
+
+克里斯·马滕森（Chris Martenson）、
+
+乔·罗斯（Jo Rose ）和消防员
+
+“选择自由行动 ”的温迪·威廉姆斯（Wendy Williams）,
+
+塞缪尔·伊顿（Samuel Eaton），
+
+里克·斯特尔（Rick Sterl），
+
+威尔·琼斯（Will Jones.）。
+
+该组织在一份声明中宣布，由 6,000 多名联邦工作人员组成的全国基层联盟 FEDS 为 医疗自由，“将与数千名关心的公民一起，从华盛顿纪念碑和平走到林肯纪念堂。现在不是放弃既定法律保护的时候 ：保护工作场所不受歧视、知情同意使用未经许可的疫苗，和雇主进行个性化评估。”
+
+游行将从华盛顿纪念碑开始，到林肯纪念堂结束，那里将有一个集主题演讲、艺术家和音乐家组成的节目。组织者认为，最终“击败授权——美国回归”，将有助于制定新的联邦、州和地方政策，以消除目前正在发生的**公然歧视和审查制度**。
+
+组织者敦促所有参加游行的人，尊重受影响的当地企业，包括在华盛顿DC的授权下被迫运营的餐饮场所和酒店。
+
+由全国消防部门现役和退休消防员组成的非营利组织“**自由选择行动**”，也将与华盛顿的数百名消防员联手。
+
+“美国回归”的其他组织者包括：前线 COVID-19 重症监护联盟、儿童健康防御和全球 Covid 峰会。
+
+更多内容即将公布。我们将在收到更新后发布更多更新……
+
+新闻来源:[thegatewaypundit.com][Massive “Defeat the Mandates” Rally Planned for Jan. 23 in Washington DC — SPEAKERS INCLUDE: RFK, Jr, Dr. Malone, Dr. McCullogh, Lara Logan, Steve Kirsch, etc.](https://www.thegatewaypundit.com/2022/01/massive-defeat-mandates-rally-planned-jan-23-washington-dc-speakers-include-rfk-jr-dr-malone-dr-mccullogh-lara-logan-steve-kirsch-etc/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

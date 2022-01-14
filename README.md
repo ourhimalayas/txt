@@ -15,95 +15,95 @@
 
 ---
 
-### [应对用工荒，澳洲维多利亚地区进一步放宽隔离限制](/content/gnews/1/README.md)
- ` 澳喜特战旅Gnews`
-
-### [西媒头条 — 第153期](/content/gnews/2/README.md)
+### [为什么社会主义会破坏美国的经济和自由（3/3）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [本月第三次，北韩今日再度发射导弹以回应美方制裁](/content/gnews/3/README.md)
- ` 澳喜特战旅Gnews`
+### [泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [“穿西装的精神病人”正逍遥法外！ 为什么？（2/2）](/content/gnews/4/README.md)
+### [1月23日将在华盛顿特区举行 “击败授权”大规模集会](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月14日早](/content/gnews/5/README.md)
+### [有声|中共非洲布局祸乱全球](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [应对用工荒，澳洲维多利亚地区进一步放宽隔离限制](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [西媒头条 — 第153期](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [信任度仅31%——福奇的许多谎言已验证](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [本月第三次，北韩今日再度发射导弹以回应美方制裁](/content/gnews/8/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [“穿西装的精神病人”正逍遥法外！ 为什么？（2/2）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GTV新闻访谈简报|2022年1月14日早](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/6/README.md)
+### [叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [多数加拿大人认为将会感染奥密克戎](/content/gnews/7/README.md)
+### [多数加拿大人认为将会感染奥密克戎](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [未接种疫苗的病童家庭遭慈善机构驱逐](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [有声|科兴公司2021年度半年内狂赚50亿美金](/content/gnews/9/README.md)
+### [有声|墨西哥总统再次感染中共病毒](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [CCP坑害玩弄知识分子](/content/gnews/10/README.md)
+### [未接种疫苗的病童家庭遭慈善机构驱逐](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|科兴公司2021年度半年内狂赚50亿美金](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [CCP坑害玩弄知识分子](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|我们都是孙悟空](/content/gnews/11/README.md)
+### [有声|我们都是孙悟空](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [01/14/22 香港快讯 第五轮防疫抗疫基金 最快下周接受申请](/content/gnews/12/README.md)
+### [01/14/22 香港快讯 第五轮防疫抗疫基金 最快下周接受申请](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [加拿大放弃跨境货运行业疫苗强制接种令](/content/gnews/13/README.md)
+### [加拿大放弃跨境货运行业疫苗强制接种令](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|加州推行阳性无症状感染者无需隔离政策](/content/gnews/14/README.md)
+### [有声|加州推行阳性无症状感染者无需隔离政策](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【G时新闻】加强针的目的是为了最大限度播散刺突蛋白!](/content/gnews/15/README.md)
+### [【G时新闻】加强针的目的是为了最大限度播散刺突蛋白!](/content/gnews/21/README.md)
  ` G-时新闻`
 
-### [班农专访6: 中共开发利用基因编辑和脑控武器](/content/gnews/16/README.md)
+### [班农专访6: 中共开发利用基因编辑和脑控武器](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访5: 中共造出世界上第一台人工智能检察官](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/18/README.md)
+### [有声|巴西13岁女孩接种中共病毒疫苗后死亡](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [福克斯新闻开始大力推广盖特](/content/gnews/19/README.md)
+### [福克斯新闻开始大力推广盖特](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [HBO采访视频是中共谋划已久的阴谋](/content/gnews/20/README.md)
+### [HBO采访视频是中共谋划已久的阴谋](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共开展共产主义运动式抢夺财富](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [文贵大直播 1/14 正确认知美国高院判决的重大意义](/content/gnews/22/README.md)
+### [文贵大直播 1/14 正确认知美国高院判决的重大意义](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大卫生部非法监控手机移动设备](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [赌徒的赌博心理](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [美高法宣判标志疫苗强制接种踩下刹车，疫苗危机真相大幕即将拉开](/content/gnews/25/README.md)
+### [美高法宣判标志疫苗强制接种踩下刹车，疫苗危机真相大幕即将拉开](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中](/content/gnews/26/README.md)
+### [英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [共产党才是真正的邪教](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [共产党对媒体的控制（三）](/content/gnews/28/README.md)
+### [共产党对媒体的控制（三）](/content/gnews/29/README.md)
  ` 文贵直播大事记`
 
-### [DC大中华时事：中共发言人否认华人律师在英议会当间谍](/content/gnews/29/README.md)
+### [DC大中华时事：中共发言人否认华人律师在英议会当间谍](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [一周中共病毒及疫苗伤害信息集锦](/content/gnews/30/README.md)
- ` GTV新闻访谈`
 
 ### [1/14银河快讯：岸田首相计划缩短第三剂疫苗接种时间；台积电今年将在熊本建新厂](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`

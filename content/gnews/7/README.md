@@ -2,23 +2,31 @@
 ---
 
 
-## 多数加拿大人认为将会感染奥密克戎
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859901/)
+## 信任度仅31%——福奇的许多谎言已验证
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859942/)
 
-采编：文莱          翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-3.jpg)
-据加拿大媒体《蜂巢日报》1月13日报道，最新民调结果显示，半数以上加拿大人认为他们将在未来某个时候感染“奥密克戎”变体病毒。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1092.png)图片来源 :thegatewaypundit.com
+正如我们在本网站上多次说过的：**只有当福奇下台时，大流行才会结束**。
 
-报道称，在本次调查的3375名受访者中，认为自己最有可能被感染的年龄组是34至55岁，并且家里都有学龄儿童。同时，在认为最有可能被病毒感染的受访者中，纽芬兰省的人数最多，占60%，而萨斯喀彻温省最为乐观，为47%。
+马龙博士和史蒂夫·班农今天早些时候在作战室，考量了这项福奇毁灭性的民意调查。
 
-综合总体调查结果来看，约40%的加拿大人希望尽快结束目前所有的疫情限制措施，而56%的人则认为这些措施应该继续存在。此外，有高达近90%的未接种疫苗者表示，当局应立即取消现行的以防控疫情为由的各项人身活动限制规定。
+本周早些时候的文件和电子邮件证明，托尼·福奇博士一年多来一直在谎报大流行的起源和有效的治疗方法。
 
-校对编辑：硫酸羟氯喹64
+由于他的谎言和无能，已经有超过 500,000 名美国人丧生。
 
-发稿： 苦尽甜来 (文來）
+直到今天，CDC 和 FDA 仍在阻止对美国人进行有效的冠状病毒治疗。FDA和CDC的信任度仅 49.88%。
 
-[原文链接](https://dailyhive.com/vancouver/half-canadians-expect-omicron-angus-reid)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1094.png)图片来源 :thegatewaypundit.com
 
+新闻来源 :[thegatewaypundit.com][BOOM! Only 31% of Americans Trust Megalomaniac Dr. Fauci After His Many Proven Lies on COVID Origins and Effective Treatments](https://www.thegatewaypundit.com/2022/01/boom-30-americans-trust-megalomaniac-dr-fauci-many-proven-lies-covid-origins-effective-treatments/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
