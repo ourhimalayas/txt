@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/14/2022 2:16 AM (UTC)`
+
+1/12/2022 Miles Guo: The overseas Chinese media will be held equally accountable as the CCP because they’re not only misleading the people, but also harming the country. The bloody battle before the CCP’s 20th Party Congress has yet started, and Li Zhanshu is not the one we should focus on. How is Xi Jinping inextricably linked to the Pangu Plaza? What are the secrets of Heaven implied in it?<br/><br/>1/12/2022 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行；20大前血雨腥风还未开始，栗战书不是重点；习近平和盘古之间有什么样的微妙联系？这其中暗含着何种天机？
+![img](https://media.gettr.com/group22/getter/2022/01/14/02/0622d80a-939b-f34c-a653-5d37d0f6b7fd/out.jpg)
+
+---
+
 `@miles 1/14/2022 12:44 AM (UTC)`
 
 1/12/2022 Miles Guo: Why is it the case that God is helping the New Federal State of China (NFSC)? The NFSC has saved the lives of hundreds of fellow fighters in the past few days alone. A fellow fighter who used to be a ministerial level cadre in Communist China revealed something fishy in all the CCP-made vaccines. Fellow fighters should live like human beings - be grateful, respect heaven and earth, and love your family members!<br/><br/>1/12/2022 文贵直播：为什么说上天在帮助新中国联邦？新中国联邦仅过去几天就救了数百名战友的生命；正部级战友爆中共疫苗猫腻；战友们要像人一样活着 - 心怀感恩、敬天尊地、爱家人<br/>
@@ -144,12 +151,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 `@miles 1/12/2022 5:38 PM (UTC)`
 
 The authorities of Cyprus have found themselves in the middle of a serious, but also complicated case with political implications<br/><br/>The whole case, however, is complicated by other relevant facts and events. The two detainees are members and political activists of the New Federal State of China. This political movement, also known as the lobby, was created by Guo Wengui and Steve Bannon, with the stated aim of overthrowing the Chinese Communist Party (CCP) and consequently the Chinese government.<br/><br/>Founded on June 4, 2020 in New York, it calls itself the “exiled government” of China and is indirectly recognized by the United States.<br/><br/>https://gnews.org/1851956/
-
----
-
-`@miles 1/12/2022 5:37 PM (UTC)`
-
-塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中<br/><br/>整个案件因其他相关事实和事件而变得复杂。这两名被拘留者是新中国联邦的成员和政治活动家。这场政治运动，也称为游说，由郭文贵和史蒂夫·班农发起，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。<br/><br/>它于2020年6月4日在纽约成立，自称是中国的“流亡政府”，间接得到美国的承认。<br/><br/><br/><br/>https://gnews.org/zh-hans/1851946/<br/>
 
 ---
 
