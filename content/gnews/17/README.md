@@ -2,74 +2,30 @@
 ---
 
 
-## 七哥对墙内战友购买喜币的三个保证
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1857635/)
+## 人权观察报告：习近平时代对中共国人权压制更严厉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857670/)
 
-[https://gtv.org/video/id=61e0234187664c47acd41fc0](https://gtv.org/video/id=61e0234187664c47acd41fc0)
+![中国领导人习近平出现在一个宣传北京冬奥会的电子屏幕上发表讲话。（2021年9月5日）](https://gdb.voanews.com/5A0F5151-E0A2-4194-BDBF-8BAC07B63E51_cx0_cy6_cw0_w1023_r1_s.jpg)中国领导人习近平出现在一个宣传北京冬奥会的电子屏幕上发表讲话。（2021年9月5日）
+据美国之音1月13日报道，国际人权观察组织13日发表《2022世界人权报告》长篇报告，对习近平“新时代”的人权表现进行分析后指出，中共这个百年大党对中共国民众的人权压制和践踏严重恶化，成为“新时代”的一个重要特征。
 
-**郭文贵
-Miles Guo**
+中共加强了对民众的洗脑和思想管控，把不同意见者套上“不爱国”的帽子进行打压。在香港，自从2020年6月港版国安法实施之后，当局对香港民主派展开全面打压，抓捕民主派及异见人士多达150多人。北京还直接操纵港府对香港选举制度进行了“改革”，用所谓“爱国者”完全取代民主派。在新疆，政府继续强化对新疆维吾尔等少数民族进行的“种族灭绝”。在西藏，地方当局强迫同化政策不断升级。网球明星彭帅公开指控中共前政治局常委、前副总理张高丽性侵后失踪，后来在国际社会的强大压力下，中共才让彭帅在控制之下数次公开露面。
 
-你们千万不要因为买币就到(墙内)银行去汇款去，十之八九会被警察找上门
-Don’t go to the bank to send money just because you want to buy Hcoins, because nine out of ten, the police will be after you
+在过去32年中，人权观察每年都发表一份世界人权报告，对一百多个国家的人权状况进行评估。中共国的人权状况在习近平上台后进一步恶化。中共从来不把国民当成人对待，自然不可能给予国民“人权”。中共国人民工作最辛苦，创造了惊人的财富，养肥了世界上最富裕的盗国贼家族，自己却过着最凄惨的生活。买不起房、看不起病、上不起学，也死不起。中共还在向全球输出共产主义集权理念。中国人民没有人权，全世界人民都不会有人权，有的也会被拿走。
 
-宁可不买币也不要给自己惹上麻烦，一定要在安全的情况下有汇款保证下再去KYC
-it would rather not buy coins and not to get yourself into trouble, be sure to do KYC in a safe situation with a remittance guarantee
+新闻参考链接：[https://www.voachinese.com/a/Human-Rights-Watch-publishes-world-report-2022-20220113/6395247.html](https://www.voachinese.com/a/Human-Rights-Watch-publishes-world-report-2022-20220113/6395247.html)
 
-KYC最好找战友，我们现在亚洲的战友很多
-It is best to find comrades-in-arms for helping you to do KYC, we have a lot of comrades-in-arms in Asia now
-
-日本的方舟农场、银河农场、樱花农场
-Japan’s Ark Farm, Galaxy Farm, Cherry Blossom Farm
-
-还有我们的韩国的天池农场，都可以帮忙，包括新加坡的农场
-and our Tianchi Farm in South Korea, they all can help, including the Farm in Singapore
-
-如果不行，你跟所有的我们在大直播中认识的战友保持联系
-If not, keep in touch with all the comrades-in-arms we met on the grand broadcast
-
-一定确保你付款安全的情况下再去KYC，这是一个
-make sure your payment is safe before going to do KYC, this is one
-
-第二个，战友们我要告诉你们，国内战友,
-Second, comrades-in-arms, I want to tell you that comrades-in-arms in China
-
-永远你们买的币我向你保证的三件事，七哥负一切责任，任何人不会拿走你的个人信息
-the coins you buy that I always promise you three things, Miles will take all responsibility, and no one will take your personal information
-
-如果拿走了，我永远负责任，第二，不管共产党做什么事情
-If they take it away, I will always be responsible, second, no matter what the Communist Party does
-
-拿不走你的任何一个币，拿走你币我付责任
-they can’t take any of your coins, and I will take the responsibility if your coins were taken away
-
-第三个，你买了币进来以后你陪了钱七哥负责任，只能挣，不能赔
-The third one, after you buy the coins, if you lose money, Miles will be responsible, you can only earn, not lose
-
-只能挣，不能赔，就是国内的这战友，这是七哥保证的
-You can only earn, not lose, here’s what Miles promises you for the comrade-in-arms in China
-
-谢谢
-Thank you
+编辑：胖丁
 
 * * *
 
-Date: 01/12/2022
-原视频标题: 七哥对墙内战友购买喜币的三个保证
-Miles has three guarantees for comrades-in-arms in China who will buy Hcoins
-原视频日期：2022/01/09
-原视频链接：[https://gettr.com/post/pnedj0fbae](https://gettr.com/post/pnedj0fbae)
-任务编号：KC400（3473）
-视频时间段 : 0:00-1:26
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

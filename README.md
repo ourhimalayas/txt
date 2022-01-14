@@ -15,65 +15,65 @@
 
 ---
 
-### [塔利班在经济危机之下用小麦取代现金支付](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“王毅”（四）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [现世报的轮回](/content/gnews/2/README.md)
+### [塔利班在经济危机之下用小麦取代现金支付](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [农场的建立及意义（一）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [现世报的轮回](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [1/12/2021 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行](/content/gnews/3/README.md)
+### [1/12/2021 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [1.13大直播后记：农场的建立及意义（二）](/content/gnews/4/README.md)
+### [中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [1.13大直播后记：农场的建立及意义（二）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [科学是主义而不是真理](/content/gnews/5/README.md)
+### [科学是主义而不是真理](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [元曲新作：天净沙·剥杨贝贝三层画皮](/content/gnews/6/README.md)
+### [元曲新作：天净沙·剥杨贝贝三层画皮](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [1.13大直播后记：黄金部队的腐败（一）](/content/gnews/7/README.md)
+### [1.13大直播后记：黄金部队的腐败（一）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：黄金部队在西藏、新疆的腐败（二）](/content/gnews/8/README.md)
+### [1.13大直播后记：黄金部队在西藏、新疆的腐败（二）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关于中国经济和灭共的天机](/content/gnews/9/README.md)
+### [关于中国经济和灭共的天机](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美护士警告：更多孩子死于新冠疫苗而不是新冠本身](/content/gnews/10/README.md)
+### [美护士警告：更多孩子死于新冠疫苗而不是新冠本身](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：鹤岗破产](/content/gnews/11/README.md)
+### [1.13大直播后记：鹤岗破产](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/12/README.md)
+### [《蓝枫法律》第三十八期 金融税务专题](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [光天化日下中共向世界讲述中国民主的笑话](/content/gnews/13/README.md)
+### [光天化日下中共向世界讲述中国民主的笑话](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [人权观察报告：习近平时代对中共国人权压制更严厉](/content/gnews/14/README.md)
+### [人权观察报告：习近平时代对中共国人权压制更严厉](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1.13大直播后记：二十大将不存在](/content/gnews/15/README.md)
+### [1.13大直播后记：二十大将不存在](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：对质疑要有常识](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥对墙内战友购买喜币的三个保证](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [塔克•卡尔森: 数百万人诚心诚意地接种了疫苗，现在他们居然还是感染上了冠状病毒。](/content/gnews/18/README.md)
+### [塔克•卡尔森: 数百万人诚心诚意地接种了疫苗，现在他们居然还是感染上了冠状病毒。](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/19/README.md)
+### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/20/README.md)
  ` 首尔天池农场`
-
-### [1.13大直播后记：爆料革命唯真不破](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [1/12/2021 文贵直播：为什么说上天在帮助新中国联邦？](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
