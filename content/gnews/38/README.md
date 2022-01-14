@@ -2,22 +2,17 @@
 ---
 
 
-## 港府推太阳能板 成本转嫁市民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1859211/)
+## 数字货币最新资讯
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1859398/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo.jpg)
-港府计划2050年前实现碳中和，并于2017年4月与两间电力公司分别签订有关《协议》推行上网电价计划，处所安装太阳能光伏或风力发电系统的人士，能够以一般电费最高5倍的水平，向电力公司售卖所生产的可再生能源。港府免费为学校、福利机构安装太阳能发电系统。机电工程署两年来仅接获逾600份申请，已安装260个。
+——文贵大直播20220114
 
-使用清洁能源是保护地球的方法之一，港府的太阳能板计划看似利民，实际上却将数十万元的安装成本转嫁到用户身上。据悉，机电工程署只受理指定供应商的太阳能板安装，价格由20万至60万元不等，加上安装费用和维护，卖电回本期间长达八年以上。太阳能版寿命约十年左右，而且安装工程可能会破坏房屋的结构，还会增加房屋维护成本。因此计划从2017年推广以来，接获的安装申请寥寥可数。港府画大饼的能力并不差，只是香港人能接受更多的信息不容易被骗。既然使用清洁能源是人类生存的长远大计，就应该从资金上补贴有意向的市民，并做好监督和规管工作，使这个新型的项目能被市民接受，而不是官商勾结愚弄百姓导致计划几乎处于停顿状态。
+撰稿：Arthur文徐（DC） ILOVE战神（文凡）（香草山）
 
-不过，面对中共统治下的香港，不应该有任何美好的期盼，那些精英们有多少身怀抱负想建设香港，但进入中共的体制里，所有人只有被染黑的命运。
+美工：雷蒙（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8-1.png)
+*发布：Theodosia*
 
-资料来源：[**政府为260间机构装太阳能板  年产电量够9000个家庭用1个月**](https://hk.on.cc/hk/bkn/cnt/news/20220114/bkn-20220114134703021-0114_00822_001.html)
-
-*校对：东京樱花团/文小白
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,44 @@
 ---
 
 
-## 联合国秘书长再次替北京冬奥会站台
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1859412/)
+## 一周中共病毒及疫苗伤害信息集锦
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859550/)
 
-作者：德国纽伦堡正义农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/01/古特雷斯.jpeg)封面来源：网络图片
-新华社联合国2022年1月13日报道，联合国秘书长古特雷斯已确认将来华出席北京冬奥会。当天在纽约联合国总部举行的记者会上，他表示：“奥运会是一件大事。它象征着体育在将人们团结在一起、促进世界和平方面的作用。我想向世界传递一个信息，即奥运会定能促进世界和平。”
+作者：纽约香草山农场设计部 – 火来、医疗部 – Zion文恩
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月4日至11日，除中共国外，全球新增中共病毒确诊病例一千八百万余例，同比上周增长了46.7%。本周新增死亡病例超四万六千例，同比上周增长了9.35%。截止本月11日，除中共国外，全球累计接种了67.5亿剂中共病毒疫苗，同比上周增长了3.05%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-14.jpg)
+本周，中共国内的疫情日趋严重：继西安和禹州之后，河南安阳于10日开始封城，而河南滑县也于第二天全县临时封闭管理。而自天津9日首次出现奥米克戎确诊病例后，墙内多地发布对天津迁入人员的防控措施。与此同时，天津也开始了第二轮全员核酸检测。目前，北京已严控外地人员进出，而广东省更是出台了“一例密接、即刻封楼”的荒唐政策。
 
-这个世界和平的太久，这个世界被愚弄的太久，人们忘记了曾经为了争取自由、民主、人权所付出的鲜血和生命，人们忘记了无信仰、独裁、蔑视人权给人类带来的无尽苦难，中共就是魔鬼派来惩罚贪婪的人类的，无限放大自己的欲望、无限索取自己无法承受的，结果就是整个世界如今都生活在病毒和疫苗的残害之下。
+国际方面，各国疯狂的强制中共病毒疫苗政策仍在继续：法国总统马克龙表示，将大力推进全民疫苗接种，甚至为此声称“不接种疫苗就是不爱法国”。意大利则进一步收紧疫苗政策，50岁以上的意大利居民被要求全部接种疫苗，否则将被禁止进入非必需公共设施。同时，澳大利亚北方领地行政长官也宣布，将对当地未接种疫苗的人群执行出行限制。
 
-联合国秘书长古特雷斯再次替北京冬奥会站台，这些贪婪的掌握权力者在中共的“糖衣炮弹”之下的选择是跪下。而且这些贪婪者永远把自己放在道德制高点，而且全世界和全人类都要被他们代表，他们要代表“真理”、他们要代表“正义”、他们要代表“和平”… …但背地里全都是肮脏的无法想象的交易和出卖，最后全都倒在中共用“蓝金黄”给他们编制的大网中，成为行尸走肉。
+讽刺的是，多位接种了中共病毒疫苗加强针的西方政要于本周相继感染中共病毒，当中包括奥地利总理内汉姆，美国众议员科泰斯、南希-梅斯等。
 
-新闻来源：🔗[联合国秘书长强调奥运会能促进世界和平](http://www.news.cn/world/2022-01/14/c_1128262053.htm)
+此外，辉瑞公司CEO终于在采访中承认，疫苗对防止病毒感染的能力非常有限，但他们仍会继续推进新版疫苗的上市。
 
-*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
+在病毒溯源和防治方面：美国国会公开了更多安东尼-福奇的邮件，其内容显示福奇涉嫌故意掩盖并持续打压有关病毒来源的信息。而美国非盈利新闻机构“真相工程”也在一份曝光的报告中明确指出，中共病毒是在“功能获得研究“下人工改造的结果，以及mRNA疫苗实际上害大于利。该报告也提到了早期治疗药物，如硫酸羟氯喹、伊维菌素等可以有效预防感染以及在感染早期有效遏制病情恶化的功效，但这些信息均被相关机构忽视并掩盖了。
 
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-04..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+4) .[Austrian Chancellor Nehammer Tests Positive for Covid](https://www.bloomberg.com/news/articles/2022-01-07/austrian-chancellor-nehammer-tests-positive-for-covid)
+5) . [Fauci Emails Describe COVID Natural Origins Theory As ‘Highly Unlikely’ Despite Public Denials.](https://thenationalpulse.com/2022/01/11/emails-show-fauci-collins-downplayed-lableak/)
+6) . [Italy extends COVID vaccine mandate to everyone over 50](https://www.reuters.com/world/europe/italy-make-covid-jab-mandatory-over-50s-tighten-curbs-draft-2022-01-05/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

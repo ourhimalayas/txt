@@ -2,44 +2,36 @@
 ---
 
 
-## 冠状病毒大流行和疫苗真相 (4) 郭文贵先生、爆料革命和新中国联邦
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1859601/)
+## 福克斯新闻开始大力推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859767/)
 
-作者：波士顿五月花 北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4.20220112.jpg)
-**作者提示：不要相信我说的，你自己去核实。
-**
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+盖特1月13日消息，目前美国最有影响力的福克斯新闻节目，开始大力推广盖特。首席执行官杰森.米勒在采访中谈到塔克.卡尔森等有影响力的人士加入盖特的意义时表示，这显示了人们对大科技公司的拒绝行动。因为人们需要没有言论审查的发声平台，而盖特非常欢迎他们的加入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1090.png)
+米勒说，尽管大型社交媒体表面赞同言论自由，但实际上他们只赞同符合他们规定的言论。他们慢慢会拿走人们的权利。他同时表示，不论何时，当人们被诱导着做出同样的反应时，我们就应该提出疑问，这是民主国家人民应有的意识，也是美国和中共不同的地方。
 
-**郭文贵先生 Mr. Miles Guo**
-
-1. Who is Miles Guo Episode 1 谁是郭文贵第一集 The story about the Terminator of CCP 中国共产党终结者的故事[https://gettr.com/streaming/pklag300f1](https://gettr.com/streaming/pklag300f1)
-2. Who’s Miles Guo Episode 2 Artemisinin and Ivermectin 谁是郭文贵 2 青蒿素和伊维菌素 [https://gettr.com/post/pmtfqud604](https://gettr.com/post/pmtfqud604)
-3. 警告全世界千万别打疫苗Warn the world not to get vaccinated [https://gtv.org/video/id=61a5d4f13ff6481adce64a69](https://gtv.org/video/id=61a5d4f13ff6481adce64a69)
-4. 中共国的绝密消息青蒿素是解药CCP top secret Information Artemisinin is the antidote for the toxic vaccine.
-[https://gtv.org/video/id=61a9dc45da582676985deda8](https://gtv.org/video/id=61a9dc45da582676985deda8)[https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0](https://www.nfscdict.com/%E9%9D%92%E8%92%BF%E7%B4%A0)
-5. 2021/08/23 这病毒不仅是舟山蝙蝠病毒，新冠状病毒核心是艾滋病毒某个基因被植入进去了，艾滋病基因伤害身体，而且刺突蛋白对艾滋病基因加强作用，心脏、肺部、脑部受损。这疫苗破坏免疫力，没有了免疫力那就叫做艾滋病。它令身体乏力、心脏衰竭、脑梗死、心肌炎、心血病、心包炎。2021/08/23 This virus is not only zhoushan bat virus, the core is that certain GENE of HIV has been implanted, AIDS gene damage to the body, and spike protein to strengthen the effect of AIDS gene. Heart, lung, brain are all damaged. The vaccine destroys immunity. Without immunity, it’s called AIDS. It makes the body weak, heart failure, cerebral infarction, myocarditis, heart disease, pericarditis. [https://gettr.com/post/pk2xtre8c1](https://gettr.com/post/pk2xtre8c1)
-6. In order to annihilate the United States, the senior CCP officials have persuaded Xi Jinping to continue to release virus 为了搞死美国，中共高官纷纷劝谏习近平继续放毒
-[https://gettr.com/post/pl4q8z6802](https://gettr.com/post/pl4q8z6802)
+主持人玛利亚称赞盖特是历史上增长最快的社交平台。她表示她每天都在盖特投稿发文，呼吁人们都来加入盖特并关注她。她强调说，盖特超越左派媒体，向更广更新的机会敞开了大门。
 
 
-**爆料革命和新中国联邦, Whistle blower movement and New Federal State of China**
 
-[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6)
+【新闻链接】https://gettr.com/post/pnxt74023d
 
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
-[https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB](https://www.nfscdict.com/CCP%E7%97%85%E6%AF%92%E5%92%8C%E7%96%AB%E8%8B%97%E7%9A%84%E9%98%B2%E6%B2%BB)
+总编：文特
 
-[https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86](https://www.nfscdict.com/%E9%83%AD%E6%96%87%E8%B4%B5%E9%9B%86)
+编辑：飞虹
 
-* * *
+校正/发稿：浪迹天涯
 
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

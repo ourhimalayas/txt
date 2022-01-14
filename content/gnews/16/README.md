@@ -2,16 +2,22 @@
 ---
 
 
-## 病毒疫苗大灾难
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1859528/)
+## 赌徒的赌博心理
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1859696/)
 
-——文贵大直播20220114
+#### **加拿大温哥华扬帆农场 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/赌博心理.png)
+经济学家Frank Knight（弗兰克奈特）有一句话：You cannot be certain about uncertainty. 意思是：你对不确定性永远不确定，唯一确定的就是它是不确定的。人的本能是追求确定性的，有安全感的东西，比如说把房子、车子和工作确定下来。
 
-撰稿：白子（澳喜）莲心不染/坐看云起时（扬帆） 文金欠（香草山）
+但现实世界有很多事物的发展就是有不确定性的，不确定的东西会给人类带来不安、困扰、挑战和乐趣。研究发现，挣大钱是赌徒最大的赌博动机，因此赌博让人亢奋，有很多心理学家就分析，即使在赌博赔钱的时候，赌徒的身体也会不断产生肾上腺素和内啡肽，它们会让赌徒心情愉悦，身心能量满满，尤其是在长时间赔钱后，突然赢了一笔钱后会带来那种更大的快感，实际上，短时间内赔钱能够激发对于赢钱的良性反应。
 
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-3.png)
-*发布：Theodosia*
+赌博可以说是温柔的陷阱，过山车似的输赢会调动起赌徒的刺激感，从小输到大输，再到不可收拾，最后在追求精神的快感和刺激中慢慢迷失自己，无法自拔，如果有了这种赌瘾，要寻求专业医生治疗。
+
+中共国的股票市场就是个黑赌场，通过操纵市场来抢走股民们毕生的积蓄，所以赌博心理，不是需要去赌场才会有，像这种炒短期股票的炒家，也是抱有赌博心理，CCP就是抓住人性的此类弱点来收割韭菜散户的钱。
+
+[**第三十七期** 法律你我她-博彩行业及相关法律](https://gtv.org/video/id=61be79697882000d51040aea)
+
+编辑/发文：蓝枫法律栏目
 
  
 

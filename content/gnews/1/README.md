@@ -2,36 +2,23 @@
 ---
 
 
-## 中共开展共产主义运动式抢夺财富
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859739/)
+## 未接种疫苗的病童家庭遭慈善机构驱逐
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859876/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月12日，郭先生在大直播中指出，中共通过恶意封城、大规模核酸检测，试图达到政治上的中共病毒清零”的目的，让老百姓习惯于居家，严格宵禁。其更重要的作用是在封城期间以抗疫为借口，开始进行财富掠夺。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1088.png)
-目前已经被列出西安的120家企业，30个企业富豪，将会面临停业整顿和抓捕，中共还会把他们的财富全部收归国有。这就是共产党的共享财富。郑州目前也已经开始，接下来天津、江浙一带也会推动这种共产主义运动式的财富抢夺计划。
+采编： 文莱             编译撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image-2.jpg)
+据加拿大媒体《后千禧年》1月12日报道，温哥华的慈善住宿机构麦当劳之家，日前向未接种疫苗的重病和癌症儿童及其父母发出了驱逐通知，并要求所有5岁及以上未接种疫苗的住客必须在1月底前搬出。
 
+报道称，有病重儿童家长在收到该慈善机构的驱逐令后悲愤指出，当局以上的决定是邪恶和卑鄙的，并难以置信他们因拒绝接种毫无防疫作用的疫苗，而将像畜生一样被驱赶而无家可归，露宿街头。同时指责这家旨慈善机构不仅违背了其救死扶伤的精神，更践踏了加拿大宪法。
 
+麦当劳之家慈善机构对此则表示，将继续严格执行政府授权的各项疫情安全规定，例如：强制测量体温和配戴口罩，特别是疫苗护照政策的实施，并以此限制进入其设施的所有人员包括住户和访客等。
 
-新闻来源：
+校对编辑：硫酸羟氯喹64
 
-[https://gettr.com/post/po007l9e3c](https://gettr.com/post/po007l9e3c)
+发稿： 苦尽甜来 (文來）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-4.jpg)
+[原文链接](https://thepostmillennial.com/ronald-mcdonald-house-to-evict-families-who-are-not-vaccinated)
 
-总编：飞虹
-
-编辑：文特
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

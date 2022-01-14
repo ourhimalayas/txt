@@ -2,44 +2,25 @@
 ---
 
 
-## 一周中共病毒及疫苗伤害信息集锦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859550/)
+## 加拿大卫生部非法监控手机移动设备
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1859705/)
 
-作者：纽约香草山农场设计部 – 火来、医疗部 – Zion文恩
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月4日至11日，除中共国外，全球新增中共病毒确诊病例一千八百万余例，同比上周增长了46.7%。本周新增死亡病例超四万六千例，同比上周增长了9.35%。截止本月11日，除中共国外，全球累计接种了67.5亿剂中共病毒疫苗，同比上周增长了3.05%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-14.jpg)
-本周，中共国内的疫情日趋严重：继西安和禹州之后，河南安阳于10日开始封城，而河南滑县也于第二天全县临时封闭管理。而自天津9日首次出现奥米克戎确诊病例后，墙内多地发布对天津迁入人员的防控措施。与此同时，天津也开始了第二轮全员核酸检测。目前，北京已严控外地人员进出，而广东省更是出台了“一例密接、即刻封楼”的荒唐政策。
+采编/编译撰稿：微文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-1.png)
+[图片链接](https://www.bing.com/images/search?view=detailV2&amp;ccid=1rhQQ4wh&amp;id=29BCC369FA6E935241FEB1BC40BD74B227C9C9D0&amp;thid=OIP.1rhQQ4whOa-CxDLQLgT0AAHaDt&amp;mediaurl=https%3a%2f%2fventurebeat.com%2fwp-content%2fuploads%2f2020%2f05%2ficlr-visualization.png%3fw%3d800&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.d6b850438c2139af82c432d02e04f400%3frik%3d0MnJJ7J0vUC8sQ%26pid%3dImgRaw%26r%3d0&amp;exph=401&amp;expw=799&amp;q=Conservative+ethics+critics+demand+answers+on+PHAC+location+tracking&amp;simid=608001222794493203&amp;FORM=IRPRST&amp;ck=45DEA0ECC55EE2BCA6207CF4E8AF30C9&amp;selectedIndex=1&amp;ajaxhist=0&amp;ajaxserp=0)
 
-国际方面，各国疯狂的强制中共病毒疫苗政策仍在继续：法国总统马克龙表示，将大力推进全民疫苗接种，甚至为此声称“不接种疫苗就是不爱法国”。意大利则进一步收紧疫苗政策，50岁以上的意大利居民被要求全部接种疫苗，否则将被禁止进入非必需公共设施。同时，澳大利亚北方领地行政长官也宣布，将对当地未接种疫苗的人群执行出行限制。
+据加拿大[环球新闻]1月10日报道，为密切监视所有加拿大人的行踪，该国[公共卫生署]以防控疫情为由，长期秘密跟踪定位该国3千多万台手机移动设备。
 
-讽刺的是，多位接种了中共病毒疫苗加强针的西方政要于本周相继感染中共病毒，当中包括奥地利总理内汉姆，美国众议员科泰斯、南希-梅斯等。
+报道称，目前加拿大议会[道德委员会]成员[布拉萨德]议员已对特鲁多政府以上非法行为提出质疑，并要求当局公开解释其在公众不知情的状况下，收集个人数据的目的和方式和该监控计划的授权人和信息共享人以及保护公众隐私安全的具体措施等。
 
-此外，辉瑞公司CEO终于在采访中承认，疫苗对防止病毒感染的能力非常有限，但他们仍会继续推进新版疫苗的上市。
+同时，布拉萨德还提请[加拿大隐私委员会]，应立即对卫生署的监控报告和项目招标书进行彻底调查。并表示，卫生部门此次利用疫情，恣意对其国民的大规模秘密监控之举，就连当时911恐袭事件后出现的监控高潮也相形见绌。
 
-在病毒溯源和防治方面：美国国会公开了更多安东尼-福奇的邮件，其内容显示福奇涉嫌故意掩盖并持续打压有关病毒来源的信息。而美国非盈利新闻机构“真相工程”也在一份曝光的报告中明确指出，中共病毒是在“功能获得研究“下人工改造的结果，以及mRNA疫苗实际上害大于利。该报告也提到了早期治疗药物，如硫酸羟氯喹、伊维菌素等可以有效预防感染以及在感染早期有效遏制病情恶化的功效，但这些信息均被相关机构忽视并掩盖了。
+校对编辑：硫酸羟氯喹64
 
-参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-04..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-4) .[Austrian Chancellor Nehammer Tests Positive for Covid](https://www.bloomberg.com/news/articles/2022-01-07/austrian-chancellor-nehammer-tests-positive-for-covid)
-5) . [Fauci Emails Describe COVID Natural Origins Theory As ‘Highly Unlikely’ Despite Public Denials.](https://thenationalpulse.com/2022/01/11/emails-show-fauci-collins-downplayed-lableak/)
-6) . [Italy extends COVID vaccine mandate to everyone over 50](https://www.reuters.com/world/europe/italy-make-covid-jab-mandatory-over-50s-tighten-curbs-draft-2022-01-05/)
+发稿： 苦尽甜来 (文來）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[原文链接](https://www.msn.com/en-ca/news/other/ronald-mcdonald-house-vaccine-mandate-turns-political-after-family-asked-to-leave/vi-AASLrPO)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
