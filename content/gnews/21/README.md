@@ -2,44 +2,44 @@
 ---
 
 
-## 美众院为查国会之乱对脸书推特等4公司发传票
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1859145/)
+## 我们匡扶正义就是消灭毁掉龙脉毁掉磁场想成神的共产党
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1859182/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+G-TV视频链接：[https://gtv.org/video/id=61e1017887664c47acd46c25](https://gtv.org/video/id=61e1017887664c47acd46c25)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DB07ACFB-A28D-40FF-ACF2-5CB98844ED73.jpeg)（图片来自网络）
+**郭文贵先生：**共产党把它磁场称为影响磁场变化的称为龙脉，然后这山那山都有故事。所以说，中国老百姓说的话“有山必有妖，有山必有神，有河必有鱼，有河必有王八”。咱们又遇到了河里边儿共产党这个“王八”，遇到了山里边儿这个“妖”就是共产党，现在是妖孽占龙山了，是吧？龙山都占了。王八把这个河塘里边儿的水全给搅浑了，都成了王八了。
 
-调查2021年1月6日国会山遭袭事件的美国联邦众议院委员会于1月13日对脸书（Facebook）母公司Meta、Google母公司Alphabet、推特（Twitter）与Reddit发出传票，索取相关纪录。
+所以咱现在必须要恢复山川就是正规的磁场，各种龙脉、龙神、水神，我们要万佛万神，就咱讲的，要恢复山川的美丽和自然，让它恢复一个正常的磁场。而且最重要的事情就是共产党让所有的人把整个国家风水、磁场全毁了，这就叫大气污染、土壤污染、山河污染。所以不灭共产党，我不相信万佛万神会饶过它的！我不相信的！我一定是深信不移——人不灭它天灭它！
 
-据《路透社》报道，美国联邦众议员委员会此举是要了解这些平台如何被用来助长错误讯息和暴力极端主义，以试图推翻2020年大选结果。
+这就是我所说的磁场，所谓的龙脉，这是中国历史上对整个山川的理解，对龙是敬的，对河神是敬的、是可以奉献的。但共产党却把它全给杀掉了，全糟粕了，它在利用的同时，它在毁掉这一切。它想成为神，它想成为整个磁场的创造者，那是不可能的，我们会看到地球最终会毁灭这些人渣的！谢谢！
 
-众议院1月6日袭击事件调查特别委员会主席汤普森（Bennie Thompson）在声明中说：“我们不能让我们重要的工作再耽搁下去。”
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-汤普森表示，特别委员会想要了解的两个关键问题是，错误讯息和极端暴力主义的传播如何助长这起攻击美国民主的暴力事件，以及如果有的话，社交媒体采取了哪些措施来防止旗下平台成为激化民众做出暴力行为的温床。
+编辑整理：Jacques；
 
-他说：“令人失望的是，经过好几个月的联系，我们仍旧没有能回答这些基本问题所需的文件和数据。”
+字幕文件制作：小满；
 
-目前，特别委员会已发出超过50张传票，听取逾300人证词。他们预计将在夏季提出期中报告，并在秋季公布最终报告。
+视频制作及上传：Cindy；
 
-传票要求上述公司必须在27日前提供相关数据。对此，Google表示，公司一直与委员会合作，“实质响应他们索取文件的要求”，并会继续配合。推特婉拒发表评论，Meta则未响应置评要求。Reddit发言人说：“我们收到了传票，并会持续应委员会的要求与他们合作。”
+G-News发布：小满；
 
-此前，特别委员会2021年8月也曾要求15家科技公司提供国会山暴力事件的相关纪录，包括这次收到传票的公司，以及TikTok、Snapchat、Parler、4chan等。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-然而，部分科技公司并没有积极配合。因此，汤普森在本周寄送给脸书执行长扎克伯格（Mark Zuckerberg）的信中表示，尽管已不断且明确要求提供脸书在关于选举错误讯息和暴力内容上所采取的行动相关文件，委员会仍未收到这些数据。其他3家公司（Alphabet、Twitter与Reddit）执行长收的信函也有类似的批评内容。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-特别委员会调查时任美国总统川普的支持者攻击国会山原因以及川普在事件中扮演的角色。此前，川普不断宣称他在大选中输给拜登是因为选举遭到操纵。这项调查的最新进展是对这些社交媒体公司发出传票。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-另外，外界也普遍归咎社交媒体平台助长暴力行动的呼声及散布错误讯息，导致2021年1月6日发生的国会之乱。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*参考链接： [美眾院查國會之亂 對臉書推特等4公司發傳票](https://www.cna.com.tw/news/aopl/202201140051.aspx)*
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-* * *
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*素材采编：幽蘭自得*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*编辑：青城道姑*
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-*发布：miumiu*
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
