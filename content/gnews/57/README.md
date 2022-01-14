@@ -2,24 +2,38 @@
 ---
 
 
-## 港闻速递｜英军情五处指控华人律师李贞驹是中共间谍 中港金主幕后操控
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1858216/)
+## 病毒实为中共推行网格化管理的利器
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858024/)
 
-**撰文/ 港台前线关注组｜发布日期/ 14/1/2022**
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/英軍情五處指控華人律師李貞駒是中共間諜-中港金主幕後操控.jpg)
-英国《太阳报》周四(13日)报道，军情五处向英国国会发出罕有警示，指控华人律师李贞驹(Christine Lee)是中共间谍，利用捐款的方式，协助中共与议员建立关系，全面渗透国会及政界，意图干预英国内政。
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月12日的直播中谈及，共产党正在利用中共病毒对墙内老百姓实行严苛的驭民五术。
 
-据调查指，李贞驹的背后金主，是来自中国大陆和香港的非英籍华人，目的是为了塑造有利中共议程推进的政治环境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-8.jpeg)
 
-是次丑闻牵涉在野两党，包括，自由民主党党魁 Ed Davey，十年收受5000万英镑捐款；工党议员Barry Gardiner，5年内收受42万镑的捐款，并聘请李贞驹儿子做助理等等。
+郭先生爆料，共产党内部早在去年就开始讨论，如何更深层次地利用中共病毒和疫苗，让中共国内的社会更容易被管理。其中，王沪宁提出，要牢牢抓住病毒带来的机会，在墙内实行网格化管理政策。
 
-事件严重程度震惊英国政坛。国会下议院议长贺立绅（Sir Lindsay Hoyle）保守党前党魁施志安（Lain Duncan Smith)分别公开谴责，并要求政府向国会作解释。
+郭先生表示，中共通过疫情封锁政策让墙内民众平时只能选择居家生活，一旦他们出门就要被中共的警察、城管监控，自此，中国老百姓将永远陷入被奴役的状态。郭先生还补充道，目前，西安、郑州、河北、天津均已开始实行这一“网格化”管理政策。
 
-* * *
+郭先生也解释道，中共之所以拿这几个地区开刀，是因为中共的军队绝大多数驻扎这些地区，加之冬奥会的举办地点也位于其中一处，因此，这些省市的安定决定着共产党的生死。
 
-来源｜[TheSun](https://www.thesun.co.uk/news/17317739/chinese-spy-mp-christine-lee-communist-agent/)
+郭先生提到，中共会利用警察和军队筑成人型保护墙，当中不听话的个体就被放毒毒死。而且，该政策不久后会在全国范围内推行。
 
+参考链接：[https://gettr.com/post/po0cir9efb](https://gettr.com/post/po0cir9efb)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

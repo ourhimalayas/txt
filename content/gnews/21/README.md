@@ -2,39 +2,31 @@
 ---
 
 
-## 有声|深圳疫情源头甩锅到境外物品？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860676/)
+## 七哥谈大地之间的密码多么重要（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860839/)
 
-配音：香草山健身部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播09：22：05摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据深圳特区报1月10日的报道，在深圳市举行疫情防控新闻发布会上，市卫生健康委二级巡视员林汉城介绍，经综合分析，深圳本次疫情为境外输入引起的本土疫情，暴露于境外新冠病毒污染物品引起感染的可能性大。
+大家一定记住几个定义，啊，七哥为啥讲这个，我讲这话，你们讲不出来，你永远不会知道，因为你从来没到达那个高度。你没有爬过喜马拉雅山脉，就像钊颖妹妹在我们群里说的那个，她到了整个喜马拉雅山她知道对雪的珍惜，纯洁的珍惜。她这话我最有感触的，七哥爬过喜马拉雅山，你们爬过吗？你们不知道我爬过高原爬过这个吧。共产党为了找我爬喜马拉雅山听说专案组找了十多个月，说：“我就不相信郭文贵爬喜马拉雅山就没有留下照片和视频。” 最后找到了一个人说这个家伙爬过。他们不相信:“这不是郭文贵，当年的郭文贵体重在100，最起码是90公斤。” 但是他做梦没想到，最后我是真的那段时间体重能那么瘦。等哪天我亮出喜马拉雅山脉七哥的想法的时候，你会知道，你只有爬过高山，你才知道山真的是在地球上有多么神奇。你只有在天空中看过昆仑山脉、喜马拉雅山脉，你才知道这个大地之间的密码多么重要。为什么就一绺就叫地狱之门，为什么帕米尔高原就在那一趟之上，为什么阿富汗还有哈萨克斯坦、吉尔吉斯斯坦他们之间就这个三角关系。然后那边儿就是整个大西洋和印度洋。
 
-然后网友的评论“可能？这说法能服众？”、“可能？这种问题能用可能吗？”、“意思是物传人?”等等。一个深圳速度检测，结果就把源头甩到了境外物品上，再一次玩弄了一把网民的智商。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-如果是物品，是从哪个国家进口的？运输途中花了多长时间？是哪批次的物品？这批物品都有谁接触了？发布会上都没有具体介绍。
+**关注我们**
 
-众所周知，病毒是人传人。如果是物传人的话，病毒没有宿主怎么传到人？何况进口物品在进关的时候都有进行表面消毒。所谓权威的新闻发布会上，在没有详实的检验检疫的报告下，却推断出疫情源头是“境外新冠病毒污染物品引起感染的可能性大”的结论，那么你们就是一本正经地胡说八道。要么知道这源头就是文贵先生爆料说的“这次疫情不是任何新的病毒，而是疫苗”！
+Discord 账号
 
-文字版原文：[深圳疫情源头甩锅到境外物品？](https://gnews.org/zh-hans/1851051/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+Gettr 账号
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
