@@ -2,33 +2,36 @@
 ---
 
 
-## 英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1859672/)
+## 福克斯新闻开始大力推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1859767/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+盖特1月13日消息，目前美国最有影响力的福克斯新闻节目，开始大力推广盖特。首席执行官杰森.米勒在采访中谈到塔克.卡尔森等有影响力的人士加入盖特的意义时表示，这显示了人们对大科技公司的拒绝行动。因为人们需要没有言论审查的发声平台，而盖特非常欢迎他们的加入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1090.png)
+米勒说，尽管大型社交媒体表面赞同言论自由，但实际上他们只赞同符合他们规定的言论。他们慢慢会拿走人们的权利。他同时表示，不论何时，当人们被诱导着做出同样的反应时，我们就应该提出疑问，这是民主国家人民应有的意识，也是美国和中共不同的地方。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/220BAA3B-3A73-453A-B5BA-C02D7639B48D.jpeg)（图片来自unionpeace ）
+主持人玛利亚称赞盖特是历史上增长最快的社交平台。她表示她每天都在盖特投稿发文，呼吁人们都来加入盖特并关注她。她强调说，盖特超越左派媒体，向更广更新的机会敞开了大门。
 
-据《Sky News》1月14日报道，由25家慈善机构组成的联盟警告英国政府称，燃料匮乏会影响数百万个家庭，许多人或将冻死在寒冷的家中。 他们呼吁政府采取紧急行动，解决能源费用上涨的危机。
 
-专家们预测，从4月开始，能源价格上升将导致民众账单上涨50%，这可能导致一个普通家庭每年的天然气和电力支出上升到近2000英镑，而目前这笔费用还不到1300英镑。
 
-“救助儿童会”的丹·帕斯金斯（Dan Paskins）表示，因能源价格飙升所引发的生活成本危机，对最低收入家庭的打击最为严重。许多家长反应，他们不得不在为家庭取暖与为孩子买衣服之间做出选择。
+【新闻链接】https://gettr.com/post/pnxt74023d
 
-英国绿色和平组织的政策主任道格·帕尔博士（Dr Doug Parr ）也认为，在天然气价格危机和气候危机的情况之下，社会需要尽快摆脱依靠化石燃料作为能源，但同时也要保护低收入人群。而根据国际能源署主要专家的建议，对石油和天然气公司征收暴利税将是一种公平的方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
-英国政府的一名发言人周五发表声明称，政府为此正在发起一项超过42亿英镑的行动，并通过5亿英镑的家庭支持基金以及收费折扣等举措，来支持弱势家庭。
+总编：文特
 
-*参考链接：[Energy bills crisis: People will die in cold homes, warns alliance of charities urging government action](https://news.sky.com/story/energy-bills-crisis-people-will-die-in-cold-homes-warns-alliance-of-charities-urging-government-action-12515431)*
+编辑：飞虹
 
-* * *
+校正/发稿：浪迹天涯
 
-*素材采编：葛大饼*
-
-*编辑： 青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

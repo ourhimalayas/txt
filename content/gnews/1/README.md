@@ -2,47 +2,78 @@
 ---
 
 
-## 更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1860060/)
+## 2022年1月14日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1860108/)
 
-编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9c0456ff655d6d29313a111d39de5c95_副本.jpg)
+视频连接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；2017年帮中共游说川普遣返郭先生；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gettr.com/streaming/poabard70a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1098.png)图片来源:breitbart.com
+1、直播前审孙力军的人被抓；
 
-2022 年冬季奥运会的组织官员周二表示，奥运会的主办城市北京，没有计划在 2 月 4 日至 2 月 20 日举行的活动期间，封锁首都的任何部分以防止中国冠状病毒的传播，尽管周边地区越来越多地被封锁。
+2、美国最高法叫停疫苗强制令，是法律，中共是行政命令；
 
-1月11日，领导2022年冬季奥运会冠状病毒预防工作的黄春对记者说：“下个月的奥运会不需要封锁北京。”他补充说，目前，针对北京或其周边的河北省的封锁令仍然“不可行”。
+3、美国最高法叫停疫苗强制令：只要美国停，世界必然停，全世界以法灭疫从昨天开始！
 
-他谈到北京目前的冠状病毒病例时说：“总体情况仍在可控范围内。”
+4、曾江真的会玩，习近平现在的班子还不及曾江的1%；
 
-**（点评：中共的可控既它可以为所欲为无法无天。这么说吧，唯一中共不可控的，是爆料革命和新中国联邦，即使中共使尽解数动用国外HBO、VICE这样的媒体抹黑郭文贵先生和爆料革命战友，中共就是控制不了战友们传播真相。除此，中共在大陆和世界，似乎它都可控！）**
+5、OMICON：一定要带口罩；
 
-黄建议 2022 年冬奥会组委会初步努力为所有参加奥运会的运动员和工作人员创造一个无冠状病毒的“泡沫”， 据称这有助于中国首都的冠状病毒局势稳定。委员会于 1 月 4 日启动了一个“闭环”管理系统，**将奥运会参与者与北京更多人口进行物理隔离**。并表示，截至 1 月 11 日，该系统创造的准备条件目前“运行良好”。
+6、四个重点：
 
-尽管北京声称没有计划在冬奥会期间封锁其人口，但与该市及其周边省份河北省直接接壤的地区，最近几天对居民实施了行动限制，以遏制当地的冠状病毒爆发，并防止它们传播到北京。1 月 9 日晚，毗邻北京的东南部港口城市天津市，中共天津的负责人已禁止所有人员出城。
+1）不要打疫苗，2）戴口罩，3 ）不要出去，4）爆料革命和国家政权相比，就是一粒沙；
 
-“在排除感染风险之前，发烧的公民不得离开天津或进入北京……”中共官方媒体新华社周日报道。
+7、美国曾经要把数字货币从地球上消除，美联储现在准备和喜美元合作；
 
-中共官方媒体《环球时报》1月9日报道说：“该市还通过在高速公路和运输站设置检查站和特殊通道，加强对前往北京人员的检查。”
+8、比特币是百分之百由6%的人控制94%；
 
-天津约有1400万人口， 该市是每天前往北京在首都工作的工人的主要通勤基地。1月9日，天津市公交部门“暂停”销售天津至北京高铁列车车票。北京疾控中心要求天津市所有通勤人员“在家办公，不要来京”。
+9、最近有70个有钱的战友成功逃出中共国，在国内不敢买喜币，出来后陆续从二级市场购买了40万个喜币！
 
-河南省各市县的共产党官员最近几天也限制了当地人口的流动，河南省与河北省南部接壤。拥有 550 万居民的河南最北端城市安阳，于 1 月 10 日晚对其居民实施了严格的居家令。中共当局于 1 月 12 日宣布对安阳县下辖的滑县实施额外的封锁令。
+10、李永波100%会被抓；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1100.png)一名身穿防护服的工人将居民带到天津一个临时的 Covid-19 冠状病毒检测中心。 （STR/法新社通过盖蒂图片社）
+11、中共和6个国家外交部长冬奥会勾兑过程中，必谈：1）不需和新中国联邦勾兑；2）不许和喜联储合作，3）必须屏蔽GTV/Gnews，但是不敢提美国注册的GETTR；
 
-《环球时报》报道说：“滑县居民应该呆在室内，在家工作。”“除必要用途外，所有车辆均禁止上路。”
+12、YouTube和中共合作，屏蔽爆料革命战友YouTube账号，以换取中国市场；
 
-“该县的企业、餐馆暂停营业，但提供必需品的商店、药店和医疗机构除外。公共交通也被暂停，”报告称。
+13、Joe Rogan 误会GETTR数据造假；
 
-新闻来源:[breitbart.com] [China Insists ‘No Lockdown’ for Genocide Olympics as More Regions Go Under](https://www.breitbart.com/asia/2022/01/13/china-insists-no-lockdown-for-genocide-olympics-as-more-regions-go-under/)
+14、小飞象政治庇护几个月就通过了，说明移民局认可了新中国联邦是被迫害的目标；
 
-* * *
+15、最快获得政治庇护不是小飞象，2018年战友看文贵直播被迫害跑出来了，申请政治庇护被移民官马上批准；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
+16、共产党派了6个卧底到Gclub第一次抽奖，2个中奖，全部兑现，行动失败；
+
+17、茅台酒销售经理曾祥彬自杀，因为知道自己末日快到了；
+
+18、男女关系上，共产党是最邪恶的！只要有点名的老少明星全被孙立军发生关系；
+
+19、今年都会发生：1）经济危机（预想的快）2）病毒溯源。全世界经济危机、病毒溯源，最后的替死鬼就是共产党；
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

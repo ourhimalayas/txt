@@ -15,131 +15,131 @@
 
 ---
 
-### [更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [2022年1月14日文贵先生直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [有声|中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [为什么社会主义会破坏美国的经济和自由（3/3）](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/4/README.md)
+### [天津107例感染者中103人已全程接种疫苗](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [1月23日将在华盛顿特区举行 “击败授权”大规模集会](/content/gnews/5/README.md)
+### [辉瑞总裁承认前两针疫苗作用不大](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共不会再有二十大，中共会被消灭在二十大](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共非洲布局祸乱全球](/content/gnews/6/README.md)
+### [有声|中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [应对用工荒，澳洲维多利亚地区进一步放宽隔离限制](/content/gnews/7/README.md)
+### [为什么社会主义会破坏美国的经济和自由（3/3）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [1月23日将在华盛顿特区举行 “击败授权”大规模集会](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|中共非洲布局祸乱全球](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [应对用工荒，澳洲维多利亚地区进一步放宽隔离限制](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [西媒头条 — 第153期](/content/gnews/8/README.md)
+### [西媒头条 — 第153期](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [信任度仅31%——福奇的许多谎言已验证](/content/gnews/9/README.md)
+### [信任度仅31%——福奇的许多谎言已验证](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [本月第三次，北韩今日再度发射导弹以回应美方制裁](/content/gnews/10/README.md)
+### [本月第三次，北韩今日再度发射导弹以回应美方制裁](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [“穿西装的精神病人”正逍遥法外！ 为什么？（2/2）](/content/gnews/11/README.md)
+### [“穿西装的精神病人”正逍遥法外！ 为什么？（2/2）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月14日早](/content/gnews/12/README.md)
+### [GTV新闻访谈简报|2022年1月14日早](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/13/README.md)
+### [叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [多数加拿大人认为将会感染奥密克戎](/content/gnews/14/README.md)
+### [多数加拿大人认为将会感染奥密克戎](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|墨西哥总统再次感染中共病毒](/content/gnews/15/README.md)
+### [有声|墨西哥总统再次感染中共病毒](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [未接种疫苗的病童家庭遭慈善机构驱逐](/content/gnews/16/README.md)
+### [未接种疫苗的病童家庭遭慈善机构驱逐](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|科兴公司2021年度半年内狂赚50亿美金](/content/gnews/17/README.md)
+### [有声|科兴公司2021年度半年内狂赚50亿美金](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [CCP坑害玩弄知识分子](/content/gnews/18/README.md)
+### [CCP坑害玩弄知识分子](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|我们都是孙悟空](/content/gnews/19/README.md)
+### [有声|我们都是孙悟空](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [01/14/22 香港快讯 第五轮防疫抗疫基金 最快下周接受申请](/content/gnews/20/README.md)
+### [01/14/22 香港快讯 第五轮防疫抗疫基金 最快下周接受申请](/content/gnews/24/README.md)
  ` 英喜-粵語組`
 
-### [加拿大放弃跨境货运行业疫苗强制接种令](/content/gnews/21/README.md)
+### [加拿大放弃跨境货运行业疫苗强制接种令](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|加州推行阳性无症状感染者无需隔离政策](/content/gnews/22/README.md)
+### [有声|加州推行阳性无症状感染者无需隔离政策](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [【G时新闻】加强针的目的是为了最大限度播散刺突蛋白!](/content/gnews/23/README.md)
+### [【G时新闻】加强针的目的是为了最大限度播散刺突蛋白!](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [福克斯新闻开始大力推广盖特](/content/gnews/24/README.md)
+### [福克斯新闻开始大力推广盖特](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [HBO采访视频是中共谋划已久的阴谋](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [文贵大直播 1/14 正确认知美国高院判决的重大意义](/content/gnews/26/README.md)
+### [文贵大直播 1/14 正确认知美国高院判决的重大意义](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [美高法宣判标志疫苗强制接种踩下刹车，疫苗危机真相大幕即将拉开](/content/gnews/27/README.md)
+### [美高法宣判标志疫苗强制接种踩下刹车，疫苗危机真相大幕即将拉开](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中](/content/gnews/28/README.md)
+### [英国慈善机构联盟警告政府：人们或将冻死在寒冷的家中](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [共产党对媒体的控制（三）](/content/gnews/29/README.md)
- ` 文贵直播大事记`
-
-### [DC大中华时事：中共发言人否认华人律师在英议会当间谍](/content/gnews/30/README.md)
+### [DC大中华时事：中共发言人否认华人律师在英议会当间谍](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [1/14银河快讯：岸田首相计划缩短第三剂疫苗接种时间；台积电今年将在熊本建新厂](/content/gnews/31/README.md)
+### [1/14银河快讯：岸田首相计划缩短第三剂疫苗接种时间；台积电今年将在熊本建新厂](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [英国军情五处挖出一中共代理人正在秘密干涉英国政治](/content/gnews/32/README.md)
+### [英国军情五处挖出一中共代理人正在秘密干涉英国政治](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/14/2022国际财经快讯：人寿保险公司在理赔增加后调整大流行风险模型；瑞士信贷对Greensill相关基金提出五项保险索赔](/content/gnews/33/README.md)
+### [1/14/2022国际财经快讯：人寿保险公司在理赔增加后调整大流行风险模型；瑞士信贷对Greensill相关基金提出五项保险索赔](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [以色列科学家研究发现金鱼具导航能力并可借此“开车”](/content/gnews/34/README.md)
+### [以色列科学家研究发现金鱼具导航能力并可借此“开车”](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [Joe Rogan GETTR粉丝数量引发的风波](/content/gnews/35/README.md)
+### [Joe Rogan GETTR粉丝数量引发的风波](/content/gnews/37/README.md)
  ` MilesGuoLivePPT`
 
-### [数字货币最新资讯](/content/gnews/36/README.md)
+### [数字货币最新资讯](/content/gnews/38/README.md)
  ` MilesGuoLivePPT`
 
-### [台湾前线｜中共间谍威胁惊动丹麦情报机构 前总理呼吁支持台湾与立陶宛](/content/gnews/37/README.md)
+### [台湾前线｜中共间谍威胁惊动丹麦情报机构 前总理呼吁支持台湾与立陶宛](/content/gnews/39/README.md)
  ` 關注組`
 
-### [人权组织呼吁美国奥委会为运动员的健康抵制北京冬奥会](/content/gnews/38/README.md)
+### [人权组织呼吁美国奥委会为运动员的健康抵制北京冬奥会](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [美国会特委员会再次调查“占领国会山”事件，传唤谷歌、脸书等4家媒体](/content/gnews/39/README.md)
+### [面对中共全方位渗透 日本是否听之任之？](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [面对中共全方位渗透 日本是否听之任之？](/content/gnews/40/README.md)
+### [港府推太阳能板 成本转嫁市民](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港府推太阳能板 成本转嫁市民](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [腾讯只是一家普通公司，马化腾乖乖上交习近平](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [港府转态派测试装予屯门市民自测](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
