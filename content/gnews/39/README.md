@@ -2,30 +2,32 @@
 ---
 
 
-## 【中日财经爆】海外第三大中国股票基金大举减持茅台等多家中企股票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857125/)
+## GTV新闻访谈简报|2022年1月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1857711/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-28.png)[图片来源](https://m.thepaper.cn/wifiKey_detail.jsp?contid=13510026&amp;from=wifiKey)
-瑞银旗下的瑞银（卢森堡）中国精选股票基金11月减持了7.52%的贵州茅台持仓，进入12月，该基金继续减持贵州茅台，截至2021年12月31日，该基金持有贵州茅台的股份数较11月底减少12.40%。
+作者：香草山翻译部
 
-尽管去年年底以来，贵州茅台自1500元附近接连走高至2200元附近，但海外中国股票基金又在悄悄减持贵州茅台。晨星数据显示，截至2021年12月31日，瑞银旗下的瑞银（卢森堡）中国精选股票基金持有贵州茅台的股份数较11月底减少12.40%，持仓股数降至232.16万股，持仓市值7.47亿美元，降为该基金第二大重仓股。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-瑞银（卢森堡）中国精选股票基金曾在2018年7月第一次购买茅台，此后一直重仓持有，但去年年底，该基金却接连减持茅台，11月减持7.52%持仓，12月再次大手笔减持。
 
-中国平安、招商银行也在11月被瑞银（卢森堡）中国精选股票基金减持，进入12月，该基金继续减持，持有中国平安仓位环比11月减少7.45%，招商银行减少3.39%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0113text-SC.png)
+校对：Stay文苑
 
-除此之外，瑞银（卢森堡）中国精选股票基金还连续减持互联网股票。去年10月和11月，该基金曾接连减持阿里巴巴、腾讯控股、网易，12月，该基金又继续减持腾讯控股。
+编辑：Stay文苑
 
-晨星数据显示，瑞银（卢森堡）中国精选股票基金最新规模为77亿美元，截至2021年11月底，为海外规模第三大中国股票基金。由于核心资产股票集体调整，该基金去年亏损25.9%，基金规模缩水比较严重。
+发稿：Stay文苑
 
-信息来源：
+视频参看：[1.13  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e0d1a7a6dfdd603153f0f1)
 
-[什么信号？海外第三大中国股票基金，突然大举减持茅台！ \_ 证券时报网](https://www.stcn.com/xw/sd/202201/t20220112_4063811.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/602600DB-DBDC-4F71-B66B-BC7B8F0A3970.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

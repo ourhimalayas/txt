@@ -2,19 +2,33 @@
 ---
 
 
-## 封官封名 风言风语 国际婚姻风水
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1857986/)
+## 伊维菌素是安全的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858118/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+翻译：Frank
+校对：Lish
 
-1月1日，郭文贵先生在GTV大直播指出：
+视频中的女士在自己的农场亲自服用伊维菌素，以告诉人们伊维菌素很安全。以下是全视频内容：
 
-有人可以在风雨中成长，在疯言疯语中磨砺自己的意志，但他们的家人不一定能坚持。拥有国际婚姻的战友，不同文化之间的平衡体现你的人生态度，如何平衡需要很高的道德标准和认知的标准。婚姻关系同样需要不断提高自己的道德和认知标准，平衡、包容是通往幸福和健康生活，永远不二的、唯一能赢的法则。
+我在这里给山羊修眉，人们问我那个像这样的设备
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+我想给你看看我服用的量，我放了大概像你手指末端的量，我通常把它(伊维菌素)放在我的手指末端，但我现在在使用手机。
+
+它的味道并不好。但它并不危险，人们也不会被送进医院。它已经被批准使用多年了。而且它还有其他药物属性，不仅仅是对新冠有效。对癌症等诸如此类的疾病也有效。嘿，你永远不知道你体内是否也有虫子，人们体内会有虫子。所以无论如何，没有危险。
+
+Source： https://twitter.com/jesus\_porvida/status/1448679802509008897?s=21
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

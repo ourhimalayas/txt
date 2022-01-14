@@ -2,17 +2,17 @@
 ---
 
 
-## 美护士警告：更多孩子死于新冠疫苗而不是新冠本身
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857689/)
+## 接种辉瑞和莫德纳疫苗者将无法为新冠患者献血
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857918/)
 
-翻译：ATX1230
+翻译：Julia Gao
 校对：枳实
-剪辑/字幕：Biggod
+剪辑/字幕：蛮吉
 编辑：Mttfly
 
-科莱特·马丁是路易斯安纳州一名执业17年的注册护士，她对执业中见到的成年人接种新冠疫苗所产生副作用感到十分恐惧。她非常担忧孩子也要被强制接种这些试验仅六个月的疫苗，因为在成年人与老年人中，如血栓、心脏病发作、中风、脑病变、心律失常（如心房颤动）等接种完疫苗后的副反应层出不穷。而卫生部门却说，新的变种具有我们目前看到的疫苗反应的所有副作用。尽管恐惧，但出于信念，她还是勇敢的站出来举证，因为这关乎于没有疫苗接种选择权的无助的孩子们！
+迈克尔·皮纳在路易斯安那新闻频道“生命的分享”栏目中说：“如果你注射了辉瑞或莫德纳疫苗，那么你在未来将因此基本上无法给新冠肺炎病人捐赠康复者血浆。”此外，他还表示，由于许多人已经接种了COVID-19疫苗，可能会出现血浆短缺的情况。当你接种疫苗后，疫苗会抹去机体内患有新冠后已经产生的抗体。
 
-视频链接：[Louisiana RN whistleblower: “We have more children dying from the COVID vaccine than from the COVID itself”](https://thecovidworld.com/nurse-blows-the-whistle-we-have-had-more-children-die-from-the-covid-vaccine-than-of-covid-itself/)
+视频链接：[COVID jabs wipe out the antibodies developed from previous COVID infections. As a result,recipients of Pfizer or Moderna COVID-19 Vaccine are Ineligible to Donate their Blood to help covid patients.](https://twitter.com/HongliKong/status/1473878200769921028)
 
 *发布：Mttfly*
 **

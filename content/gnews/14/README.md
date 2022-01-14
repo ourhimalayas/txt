@@ -2,27 +2,19 @@
 ---
 
 
-## 接种辉瑞和莫德纳疫苗者将无法为新冠患者献血
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857918/)
+## 文贵先生解读日本音乐的厉害之处
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858082/)
 
-翻译：Julia Gao
-校对：枳实
-剪辑/字幕：蛮吉
-编辑：Mttfly
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-迈克尔·皮纳在路易斯安那新闻频道“生命的分享”栏目中说：“如果你注射了辉瑞或莫德纳疫苗，那么你在未来将因此基本上无法给新冠肺炎病人捐赠康复者血浆。”此外，他还表示，由于许多人已经接种了COVID-19疫苗，可能会出现血浆短缺的情况。当你接种疫苗后，疫苗会抹去机体内患有新冠后已经产生的抗体。
+1月1日，郭文贵先生在GTV大直播指出：
 
-视频链接：[COVID jabs wipe out the antibodies developed from previous COVID infections. As a result,recipients of Pfizer or Moderna COVID-19 Vaccine are Ineligible to Donate their Blood to help covid patients.](https://twitter.com/HongliKong/status/1473878200769921028)
+日本在亚洲音乐界处首位。亚洲音乐只有日本的J-POP，J-ROCK受到了世界的公认。日本音乐让邓丽君一举成名，很多香港、韩国音乐也是来自日本。郭先生号召日本战友，利用日本的有利条件，在音乐方面再多加一把力。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
