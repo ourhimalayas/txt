@@ -2,30 +2,32 @@
 ---
 
 
-## 基恩将军分析中共为何出兵哈萨克斯坦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858528/)
+## 世卫组织、欧洲药管局警告重复接种加强针有害
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858529/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，美国四星将军杰克·基恩在接受福克斯主持人玛丽亚采访时谈到，哈萨克斯坦局势让人意外的是，中共一改几十年按兵不动的态度，宣布派执法部队进入哈国。
+1月11日，世卫组织和欧洲药品管理局公开声明，频繁接种中共病毒加强针危害免疫系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4-scaled.jpg)
 
-基恩将军分析中共出兵有两个目的。第一，保证在哈萨克斯坦的经济利益，第二，同时打击在紧邻新疆的哈萨克斯坦的穆斯林，而这些都是中共有意影响中亚的表现。
+欧洲药品管理局、生物健康威胁和疫苗战略负责人马可·卡瓦莱里，在新闻发布会上警告说，疫苗加强针不应该重复施打，频繁地接种加强剂可能会对免疫系统造成危害。
 
-将军还指出，哈萨克斯坦事件发生的同时，中共将前武警新疆总队参谋长彭京堂，调任驻港部队司令员，透露了中共进一步镇压香港、夺走香港法治和民主的决心，也表明在香港发生的一切镇压措施将原封不动地被搬往内地，镇压一切反对中共政府的声音与行为。以上均表明中共在外交政策上出现了重大转向。
+当天晚些时候，世卫组织也在一份声明中说，基于原始疫苗成分的反复强化剂量的疫苗接种策略是不合适的，也是不可持续的。
 
-玛丽亚总结道，中共在香港，哈国及新疆所采取的行动，接下来也将在西藏及台湾等地发生，也将使世界更清楚地看到中共的野心和邪恶。
+分析人士称，两大机构突然改变风向，或因为疫苗副作用的数据令人震惊，并且他们要为下一步官方公布停止疫苗强制接种，做好铺垫。
 
 参考链接：
 
-- [20220111Keane將軍接受Maria採訪](https://www.gettr.com/post/pnwcmpf6b8)
+- [FRIGHTENING: WHO Joins EU and Changes Direction — Suddenly Warns Against Taking Continued COVID Booster Shots](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
+- [Interim Statement on COVID-19 vaccines in the context of the circulation of the Omicron SARS-CoV-2 Variant from the WHO Technical Advisory Group on COVID-19 Vaccine Composition (TAG-CO-VAC)](https://www.who.int/news/item/11-01-2022-interim-statement-on-covid-19-vaccines-in-the-context-of-the-circulation-of-the-omicron-sars-cov-2-variant-from-the-who-technical-advisory-group-on-covid-19-vaccine-composition)
+- [Frequent Boosters Spur Warning on Immune Response](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：Ivy001
-编辑：Kathy文艺
+编辑：文真
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

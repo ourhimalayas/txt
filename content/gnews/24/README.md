@@ -2,29 +2,23 @@
 ---
 
 
-## 爆料革命的歌在国内军队的影响力之大（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858799/)
+## 用lPS细胞移植治疗脊髓损伤 世界首个临床研究
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1858817/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-10.png)图片来源于本文链接
+日本私立庆应大学14日宣布，去年12月进行了首次临床研究，将诱导多能干细胞（iPS细胞）转化为神经元的细胞移植到脊髓损伤患者体内。
 
-讲到德国纳粹的曼斯坦因将军，我要告诉大家我们的歌在国内军队里边影响巨大。这个唐平妹妹、Q妹搞这个歌还有威廉王整的有点像军歌，我最近才发现。你知道国内某军队有多少人因为咱们的歌被抓了吗？就因为听我们的摇滚《酒灭中共》、《沧海一声啸》有十几个人被抓。
+这是世界上首次使用iPS细胞治疗脊髓损伤，患者的恢复进展“非常顺利”。未来，将花费一年的时间来研究在康复过程中安全性和运动功能的改善情况。在临床研究中，共有4名患者在受伤后2至4周内，因运动中受伤或交通事故中脊髓神经失去了运动功能或感觉。他们将由iPS细胞制成的脊髓神经元细胞注射到受伤部位，进行细胞移植。此次移植患者的性别、年龄和受伤后的具体时间没有披露。此外，在去年的11月开始，已经将iPS细胞作为免疫细胞，用于癌症的治疗。
 
-唐平说你没发现你那个调调像这个军歌吗？ 哎呀我说这个摇滚之娘唐平，然后我就开始听几遍，还真的像。
+信息来源：
 
-所以今天在这里，我想大家讲的时候，你不要低估了这个音乐的力量，它太大了，音乐的力量。共产党的军人冒死耳听，而且我告诉你隆美尔在希特勒时代这么牛的一个人，他自杀前就是哼着小调服氯化钾自杀，他要哼着调调死。音乐的魅力就这么大，曼斯坦因得癌症在监狱里关了八九年，天天上堂受审，审着审着，旁边人全死了，没了啊。
+[脊髄損傷にiPS細胞移植　慶応大、世界初の臨床研究](https://news.yahoo.co.jp/articles/aee1966a7d23177e3b1456db2f409ff4041d6286)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/爆料革命的歌在国内军队的影响力之大.001.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

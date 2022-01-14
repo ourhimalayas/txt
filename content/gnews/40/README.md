@@ -2,32 +2,28 @@
 ---
 
 
-## 世卫组织、欧洲药管局警告重复接种加强针有害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858529/)
+## 英国一组织发布中共病毒疫苗致命性研究报告清单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 – 侠肝义胆
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，世卫组织和欧洲药品管理局公开声明，频繁接种中共病毒加强针危害免疫系统。
+1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
 
-欧洲药品管理局、生物健康威胁和疫苗战略负责人马可·卡瓦莱里，在新闻发布会上警告说，疫苗加强针不应该重复施打，频繁地接种加强剂可能会对免疫系统造成危害。
+目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
 
-当天晚些时候，世卫组织也在一份声明中说，基于原始疫苗成分的反复强化剂量的疫苗接种策略是不合适的，也是不可持续的。
-
-分析人士称，两大机构突然改变风向，或因为疫苗副作用的数据令人震惊，并且他们要为下一步官方公布停止疫苗强制接种，做好铺垫。
+该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
 
 参考链接：
 
-- [FRIGHTENING: WHO Joins EU and Changes Direction — Suddenly Warns Against Taking Continued COVID Booster Shots](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-- [Interim Statement on COVID-19 vaccines in the context of the circulation of the Omicron SARS-CoV-2 Variant from the WHO Technical Advisory Group on COVID-19 Vaccine Composition (TAG-CO-VAC)](https://www.who.int/news/item/11-01-2022-interim-statement-on-covid-19-vaccines-in-the-context-of-the-circulation-of-the-omicron-sars-cov-2-variant-from-the-who-technical-advisory-group-on-covid-19-vaccine-composition)
-- [Frequent Boosters Spur Warning on Immune Response](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
+- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001
-编辑：文真
+总编：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
