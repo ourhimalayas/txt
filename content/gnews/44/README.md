@@ -2,25 +2,32 @@
 ---
 
 
-## 加拿大魁北克省: 疫苗护照收紧，未打疫苗将不能进大型商场
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1857893/)
+## GTV新闻访谈简报|2022年1月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1857711/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-13-222710-2.png)图片来源：网络
-来自CTV NEWS星期四1月13日的新闻报道：
+作者：香草山翻译部
 
-魁北克省长 Francois Legault 在周四的新闻发布会上宣布:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
 
-将需要更多的商店来执行疫苗护照。自 1 月 24 日起，面积超过 1,500 平方米的商业企业将受到疫苗护照的约束，但是新措施不适用于药店和食杂店。
 
-**点评：**没有打疫苗，没有疫苗护照，不能去酒吧，健身房，和饭店用餐。现在又将不能去我的最爱COSTCO 了。挤压游戏玩尔地越来越好了，哈哈!
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0113text-SC.png)
+校对：Stay文苑
 
-原文链接: [https://montreal.ctvnews.ca/quebec-s-10-p-m-curfew-will-be-lifted-on-monday-1.5739074](https://montreal.ctvnews.ca/quebec-s-10-p-m-curfew-will-be-lifted-on-monday-1.5739074)
+编辑：Stay文苑
 
-编辑/发布：LILY
+发稿：Stay文苑
 
-20220113
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+视频参看：[1.13  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e0d1a7a6dfdd603153f0f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/602600DB-DBDC-4F71-B66B-BC7B8F0A3970.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,34 @@
 ---
 
 
-## 飞行员因疫苗强制政策而起诉拜登政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858344/)
+## 大直播后记——七哥谈“什么叫农场”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858387/)
 
-#### 翻译：Julia Gao
-校对：枳实
-剪辑/字幕：向上James
+整理：雅典娜速记组
+编辑：Kelly
 
-英汉对照字幕：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642140151463.jpg)图片来源：雅典娜设计组
 
-I too did not want to get the vaccine. I’ve never had a flu shot in my life. Injecting experimental drugs into me? Not something I ever wanted to do.
 
-我也不想打疫苗。我这辈子都没有打过流感疫苗。给我注射实验性药物? 这压根儿就不是我想做的事情。
+大家要知道，所有的公司、集团、英文的LLC有限公司、group，它们的基本定义是：某种范围内的利益为商业行动的目的，它要有法人。法人就是某个人要最终负责，它是个利益集团要受当地的法律约束。所有带公司（性质的）的与公益组织，还有庙宇、宗教、NGO是不一样的，NGO就是慈善非营利组织。我们叫农场，这个是不是很高？你告诉我农场它是慈善机构吗？它是盈利机构吗？农场没有执照，没有法人。有LLC吗？有集团吗？没有。我们是宗教组织吗？不是。宗教都要被灭了，三战都开始了，哪还有什么宗教。
 
-Traveling between the state that I live in Hawaii and California where I have family, two states that have archaic travel restrictions. I decided between the pressure that in my airline that was going to require a mandate vaccine. I went and got the jab.
+好好看看人类的历史，人类从石器时代到宗教时代、封建时代，到了工业文明，然后到了现在的资本主义民主时代，我们今天是叫农场。记住，farm在法文叫什么？大家去查一查，在日本叫什么？我们叫农场这个名不是瞎掰出来的，就像我当时说的“一切都是刚刚开始”。
 
-我居住在夏威夷州，而我家人居住在加利福尼亚州。所以我需要在有旅行限制的这两个州之间旅行，再加上我所在的航空公司也有疫苗强制政策，我在这些压力之下做出了决定。我去接种了疫苗。
+我们的目标首先是喜马拉雅，人家叫接地气儿，我们叫接天气儿。喜马拉雅之上就叫农场。什么叫农场，美丽的、自由的、真实的、自然的，跟天地之间相接的，人类生存的地方叫农场。** **这里没有统治、没有商业、没有交易、自愿的。农场在西班牙语里叫什么？大家去看看，是父母和家人辛勤劳动、生活、安家置业的地方。
 
-I did it 11:30 in the morning at Hawaii. Everything was normal. I went to bed, woke up at 3:30 in the morning with my heart pounding out of my chest. I went to the ER they hooked me up quickly to EKG IVs did blood work quickly determined that I was in atrial fibrillation.
+圣经里摩西告诉犹太人——埃及人要把咱们全杀光。埃及当时的法老王是欢迎他们的，而且他们犹太人已经成了最有钱的人，有人（跟法老王）挑拨说这些犹太人要杀了我们，抢走我们的财富，跟后来的希特勒是一模一样的，也说是犹太人拿走了我们的钱。法老王想杀犹太人二次都没杀成，最后摩西说我得到消息了，咱们快跑吧，然后就是摩西分海带领以色列人出埃及，这就是一切都是刚刚开始，建设我们的耶路撒冷，信奉上帝，摩西代表上帝。
 
-我是在夏威夷接种的疫苗。上午11点30分接种的。当时一切都正常，我就去睡觉了，早上3点30分突然醒来，感到我的心脏剧烈跳动，似乎要跳出胸膛。我去了急诊室，他们很快给我做了心电图，做了静脉滴注，并很快诊断为房颤。
+共产党说我代表上帝。上帝跟我说了，我统治你们，我就比你们爹娘还亲。你的女人是我的女人，你的钱是我的钱，你的命是我的命，你好好干活，不听话就弄死你。这就是苏联共产主义，我给你一个根本不能实现的想法叫乌托邦，然后让你一辈子就死在这个想法实现之前，乌托邦式的共产主义。当时法国大革命有一句非常重要的话：“不能把个人资产公有化，不能把国家权力私有化。”那么今天的共产党和共产主义首先把你资产公有化，共享财富已经来美国了，把你的权力——人民一人一票的权力个人家族化。
 
-So major cause of stroke as Lee said, there’s a critical phases of flight where this stuff when I certify it to go fly, I have to check off a box before I go fly you lovely people wherever you want to go before I take that multimillionaire plane.
+我们农场把权力集中在几个人名下这可能吗？不可能，因为它没有商业，没有交易，没有统治。农场可能把权力、财富公有化吗？没有任何可能。因为农场没有这个法人和权力，那样干就不合法。所以你不给坏人杀人的刀和枪，坏人有可能减少作恶。你不给好人诱惑，这个好人可以变得更好，这叫体制。人不是神，人是挡不住诱惑的，社会有社会环境、社会关系、家庭关系，它有伦理、有道德、有法律的最底线，然后相信上天有轮回报应。
 
-正如李所说的，房颤是中风的主要诱因。执行飞行有一个关键阶段：在我飞行之前，当我驾驶着那架价值数百万的飞机，带着你们这些可爱的乘客去目的地之前，我必须要进行自检，对每一个方框进行打勾，以确认我能够飞行。
+今天的农场和喜马拉雅关键是什么？从第一天就告诉你们，这里没有利益交换。尊重的第一条就是法治和一人一票选出来的政府这个追求目标，而且不是乌托邦，你只要做就能做到，我们就是唯真不破，说谎话你在这里待不了。你想抢别人钱？不可以！你想当独裁？不可以！邪教的六大特征：个人崇拜，思想控制，财富控制，然后编造邪说，秘密结社，社会，这六条你觉得我们农场有一条有吗？我们没有一条！我们农场就是人类最重要的文明的基础。
 
-I checked this box and it says I’m fit to fly. That was before COVID That’s when you knew Yeah, I have food poisoning. I’m cold, have a cold, whatever. Here. You never know when the genies gonna come out of the bottle and smack you down.
+资料来源：郭先生GTV和盖特直播视频。
 
-我做了检查，结果是我适合飞行。那是在新冠之前（设计的表格）， 你知道， 题目都是些：“是否得了食物中毒？是否感觉很冷？是否感冒了？等等勾选项。但是现在，你永远不知道这些鬼家伙（房颤诱发的中风）什么时候会莫名其妙地钻出来，把你击倒。
+发布：tianzhihuan
 
-I could have stroked out at 100 feet trying to land an airplane with 40 Airplanes lined up next to us. I could have just pushed down on that stick before the person next to me could do anything. We’re in a it’s all over for a lot of people. Not a good scenario.
-
-我可能会突然中风，恰逢驾驶着飞机，在100英尺的高度，试图降落在已经有40架飞机列队停靠的飞机场时发病。我可能在我的副驾驶还没有来得及反应之前就把操纵杆压下去（而导致坠机）。很多人都会因此结束他们的生命。这当然不是一个美妙的设想。
-
-Pete Buda judge and telling you anything about this, the administration is not, the NIH, the CDC, they suppress all this stuff. There’s a number of pilots out there that are fearful to come forward and speak. They’re fearful of retribution. There’s guys that are going to work with crushing pains in their chest in their heads. They’re scared that they’re going to lose their careers because they’re 25 years old. This has got to stop.
-
-Pete Buttigieg（美国运输部长）没有告诉你们这些，美国政府也没有，包括国立卫生研究院，疾病控制与预防中心，他们都压制所有这些信息 (疫苗对飞行员的伤害)。有一些飞行员害怕站出来说真话；他们害怕遭到报复。有些飞行员会强忍着胸口和头部的剧烈疼痛而坚持工作。他们害怕失去他们的职位，因为他们只有25岁！这些情况必须要停止！
-
-发布：枳实
-
-**更多资讯，请关注：****
+更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
