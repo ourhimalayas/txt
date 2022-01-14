@@ -2,50 +2,34 @@
 ---
 
 
-## 共产党做巫术盘古龙头变鸟头埋下写有七哥生辰八字绿玉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858959/)
+## 中国的政务一切都要由中国人决定（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858960/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e0fe2887664c47acd46af9](https://gtv.org/video/id=61e0fe2887664c47acd46af9)
+#### 整理：雅典娜速记组
+编辑：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中国的政务一切都要由中国人决定（二）-.jpg)
+能知道为啥共产党能统治我们？中国人就是你把所有的臆想症精神病溶于我们一起了。
 
-**郭文贵先生：**大家就在这儿看吧，新中国联邦在这就遇到了昆仑神呐、喜马拉雅山神呐！乌拉乌拉（做念经状）
+你根本不需要去创造了，你啥都自己想完了，共产党赔不赔得起？
 
-我天天在那儿念叨念叨，说帮我是吧！所以说很有意思。听我讲完这个以后，七哥可不是神神叨叨。你们好好看看《山海经》、《三心通论》。然后研究研究昆仑山脉、喜马拉雅山脉。
+这钱合不合法，美国会不会替他还？哎呀我的亲娘，你说这一件事都可能是人类改变，你知道吗？
 
-就知道为啥我们爆料革命第一个追求的目标——喜马拉雅的目标。盘古为什么习近平在冬奥会前、二十大六中全会前，一定要把“龙头”变成“包头”、变成“鸟头”，它不是开笑的。为什么一国之力要弄一个大玉的印戳？
+而且任何一件事情我们新中国联邦都不去做的。
 
-头两天我听说这个戳花了不少钱，这个印取自昆仑山绿玉，一大块绿玉， 让他们给碎了，挖下去刻上“郭文贵”生辰八字。非常可笑的是我爹、我娘都不知道我生辰八字，他怎么知道我生辰八字是不是？
+我们都去被动的做。
 
-我爹、我娘都不知道我到底啥时候出生的。护照上68年，真实的户口本70年。我到了二十七、八岁还问你七嫂子呢“去年属狗，今年该属啥呀？” 你七嫂子笑得不行了。我到30岁我还不知道一生只有一个属相。
+我们每天做的事情就是让你记住我说的话，我2017年时候我一定会保证你们让在全世界所有共产党偷的钱都会被 查封，所有的资金都被查封，查封完以后每个国家的法律都不一样，最起码40几个文明国家的钱。
 
-30岁了，我知道去年属狗，那今年属啥呀？我都不知道我的生辰年日，而且到了40岁的时候，竟然跟我一起出生的找到我说“咱俩是一年一月生、同年同月生的”。然后我一个叫姑姑的人，结果是她就是70年的7月份出生的。跟我的出生年月日又差了好多了，所以说他咋把我的生辰八字刻上去？但你可见共产党它有多迷信。
+他每个国的法律都不一样，我们怎么去协调，你累死我们新中国联邦人，我干啥了，我成讨债的啦？根据各国的法律和国际的形势，联合国和中国合法的政府决定。 该给谁给谁，你可别想惦记这个钱啊，你想念这个钱，你就彻底完了，你比共产党还可怕啊。外国政府是不让这 个疫苗让他赔钱，人家各国政府都有决定，你操什么心的，跟你毛关系啊，存钱又不给你，你还想做一顿吗？ 对不对啊？这是个基本的道理啊。还有个共产党钱够不够赔的国债还有共产党吗？你刚才问的时候，文艺我就 在想你，还觉得那时还有共产党的啊？你觉得2025年还有共产党，你的问题就不用问了，咱们都被他给消灭了。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+发布：Frank2021
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

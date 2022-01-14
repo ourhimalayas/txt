@@ -2,36 +2,44 @@
 ---
 
 
-## 中国的政务一切都要由中国人决定（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858889/)
+## 周恩来后特殊时辰拜祭昆仑山的曾庆红知古论今党内第一
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858898/)
 
-#### 整理：雅典娜速记组
-编辑：Frank2021
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中国的政务一切都要由中国人决定（一）-.jpg)
-文艺问：请问七哥接下来疫苗灾难来临，**全球经济大崩盘**，共产党海外资产够赔偿吗？还是各国政府自己买单，会不会最后转嫁给华人，这是一方面。然后再一个就是还有个问题是收缴的这个盗国贼财富，以后会不会返还给 中国民众呢？这些盗国贼如果提前变卖资产，或者变换持有人，是不是就可以逃脱呢？
+G-TV视频链接：[https://gtv.org/video/id=61e0fd2787664c47acd46a8c](https://gtv.org/video/id=61e0fd2787664c47acd46a8c)
 
-我就文艺问的这几个问题，我们大家首先一定要记住。
+**郭文贵先生：**我再给你们说每年一个特殊的时辰，你们知道特殊时辰，千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间是什么时间？
 
-我们不要想当然理解成我们已经是一个接管中国了，国家政权了。这个是所有的问题，在这个出发点上，你很多问题都是错的。如果你不相信中国要以一人一票的话，就像我每天在西方，我告诉外国人连非洲没有文字的国家都有选举，只有14亿中国人没有选举，它是个悲剧。
+中国只有曾庆红，几代政府从毛泽东时期由周恩来去。毛泽东时期以后只有一个曾庆红亲自去，亲自到南普陀的只有曾庆红，到西藏的只有曾庆红。到整个龙之头、到东南的只有曾庆红。
 
-包括我们现在大家面对的问题，我们战友之间这种关系。
+到泰山的只有曾庆红和曾庆红送去的江泽民。我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官能说出个一二三出来的。排在第一个水平是曾庆红，第二个是胡锦涛。
 
-还有我们规划的未来，还有我们的文化，还有什么联邦的整个的未来，包括我们的养老体制，教育体制，战友们，你这不是你应该现在能想象的事，你想的太远了。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-一切都要交给中国人是决定，你先把现在战胜，你不要打疫苗，还有一个，战胜你在这个共产党以前你要活着。另外一个你像，比如说这个海外的钱共产党的钱去哪儿？绝不是你说了算，也不是我说了算，**一定是国际社会和中国人说了算**。
+编辑整理：Jacques；
 
-哪个属于共产党的钱？哪个属于非法的钱？
+字幕文件制作：小满；
 
-还有你现是**操闲心**共产党能不能赔得起？说老实，你真想的比我都远，还有共产党多少钱我都不知道，该咋赔我也不知道，世界上没人知道。 你竟然替人家想到了，就特别有战友，就想问题，他一连串的幻想，就像希特勒是他的幻想，自信地走向自己的命运和理想。你还连串的幻想。
+视频制作及上传：Cindy；
 
-发布：Frank2021
+G-News发布：小满；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

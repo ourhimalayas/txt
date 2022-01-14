@@ -15,56 +15,56 @@
 
 ---
 
-### [mRNA疫苗之毒在于刺突蛋白在于mRNA制造了蛋白脱落](/content/gnews/1/README.md)
+### [不打疫苗的习近平用疫苗和全民检测把中国人民愚弄至死](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥知晓共产党向昆仑山神献祭处女和神的秘密才能灭共](/content/gnews/2/README.md)
+### [mRNA疫苗之毒在于刺突蛋白在于mRNA制造了蛋白脱落](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [为什么社会主义会破坏美国的经济和自由（1/3）](/content/gnews/3/README.md)
+### [七哥知晓共产党向昆仑山神献祭处女和神的秘密才能灭共](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [为什么社会主义会破坏美国的经济和自由（1/3）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国驻欧洲外交官也出现“哈瓦那综合症”](/content/gnews/4/README.md)
+### [美国驻欧洲外交官也出现“哈瓦那综合症”](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国的政务一切都要由中国人决定（二）](/content/gnews/5/README.md)
+### [中国的政务一切都要由中国人决定（二）](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党做巫术盘古龙头变鸟头埋下写有七哥生辰八字绿玉](/content/gnews/6/README.md)
+### [共产党做巫术盘古龙头变鸟头埋下写有七哥生辰八字绿玉](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [鬼画符](/content/gnews/7/README.md)
+### [鬼画符](/content/gnews/8/README.md)
  ` 骄子`
 
-### [重庆爆炸是天意，陈全国胡春华丁薛祥将会接二连三出事](/content/gnews/8/README.md)
+### [重庆爆炸是天意，陈全国胡春华丁薛祥将会接二连三出事](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [01/14每日播报｜加拿大政府放弃了对其卡车司机的疫苗规定](/content/gnews/9/README.md)
+### [01/14每日播报｜加拿大政府放弃了对其卡车司机的疫苗规定](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟监管机构政策失败： WHO呼吁终止 COVID加强剂](/content/gnews/10/README.md)
+### [欧盟监管机构政策失败： WHO呼吁终止 COVID加强剂](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [01/14每日播报｜加拿大魁北克省宣布将征收“未接种疫苗税”致疫苗接种预约激增](/content/gnews/11/README.md)
+### [01/14每日播报｜加拿大魁北克省宣布将征收“未接种疫苗税”致疫苗接种预约激增](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [周恩来后特殊时辰拜祭昆仑山的曾庆红知古论今党内第一](/content/gnews/12/README.md)
+### [周恩来后特殊时辰拜祭昆仑山的曾庆红知古论今党内第一](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中国的政务一切都要由中国人决定（一）](/content/gnews/13/README.md)
+### [中国的政务一切都要由中国人决定（一）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [浅谈中共国房市对百姓的剥削和压榨](/content/gnews/14/README.md)
+### [浅谈中共国房市对百姓的剥削和压榨](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [01/14每日播报｜美国最高法院阻止了针对大型企业的疫苗强制令](/content/gnews/15/README.md)
+### [01/14每日播报｜美国最高法院阻止了针对大型企业的疫苗强制令](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [霍利要求扎克伯格对支持未成年人毒品交易作出回应](/content/gnews/16/README.md)
+### [霍利要求扎克伯格对支持未成年人毒品交易作出回应](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [曾判定薄熙来不会再出重庆孙政才少见为妙陈敏尔必自毁](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [共产邪教鼓吹仇恨](/content/gnews/18/README.md)
  ` 骄子`

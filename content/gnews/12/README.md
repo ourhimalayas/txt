@@ -2,45 +2,31 @@
 ---
 
 
-## 周恩来后特殊时辰拜祭昆仑山的曾庆红知古论今党内第一
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858898/)
+## 01/14每日播报｜加拿大魁北克省宣布将征收“未接种疫苗税”致疫苗接种预约激增
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1858907/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e0fd2787664c47acd46a8c](https://gtv.org/video/id=61e0fd2787664c47acd46a8c)
+**By:[秘翻新闻](https://gtv.org/video/id=61e13a98a6dfdd60315413f3)**
 
-**郭文贵先生：**我再给你们说每年一个特殊的时辰，你们知道特殊时辰，千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间是什么时间？
+[**2022-01-1**4](https://gtv.org/broadcast/watch/61e13a98a6dfdd60315413f4)
 
-中国只有曾庆红，几代政府从毛泽东时期由周恩来去。毛泽东时期以后只有一个曾庆红亲自去，亲自到南普陀的只有曾庆红，到西藏的只有曾庆红。到整个龙之头、到东南的只有曾庆红。
+CNN1月13日报道，在加拿大魁北克省宣布将对未接种疫苗的居民进行经济上的处罚一天后，该省卫生部长于本周三表示，在宣布这一决定后的几个小时内，首次预约人数激增。
 
-到泰山的只有曾庆红和曾庆红送去的江泽民。我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官能说出个一二三出来的。排在第一个水平是曾庆红，第二个是胡锦涛。
+魁北克卫生部长克里斯蒂安·杜贝在推特上表示，周二的首次疫苗预约是几天来最高的。
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+据报道，对未接种疫苗者的罚款不适用于那些获得医疗豁免的人，虽然没有公布任何关于罚款的细节，但是官员们表示要征收的金额将是“巨大的”。魁北克政府认为，虽然近 90% 符合条件的魁北克人至少接种了一剂中共病毒疫苗，但未接种疫苗的人仍然是该省公共卫生系统的负担。魁北克将对未接种疫苗的居民处以“巨额”罚款。
 
-编辑整理：Jacques；
+在周三的中共病毒简报会上，加拿大总理特鲁多强调，加拿大对航空公司和火车乘客、联邦工作人员以及受联邦政府监管的工作场所制定了严格的疫苗规定。对于那些继续犹豫或选择不接种疫苗的人来说，他们正在失去做某些事情的特权，无论是上火车还是飞机，无论是国际旅行，还是在公共场所工作服务。
 
-字幕文件制作：小满；
+上周，有近四分之一加拿大人居住的魁北克省宣布，居民必须接种疫苗才能购买酒精或大麻。在餐厅用餐、去健身房或参加体育赛事时，都需要提供疫苗接种证明。
 
-视频制作及上传：Cindy；
+（秘翻新闻主编 清风先生编译报道）
 
-G-News发布：小满；
+发布:星星
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+* * *
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
