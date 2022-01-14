@@ -15,83 +15,83 @@
 
 ---
 
-### [飞行员挺身作证：被迫接种新冠疫苗后出现心脏问题](/content/gnews/1/README.md)
+### [上海鲜花港项目被申请破产重组](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中资银行收紧对城投地产的贷款要求](/content/gnews/2/README.md)
+### [南非高校强制接种疫苗迎来转机，将按普通流感治疗中共病毒](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [飞行员挺身作证：被迫接种新冠疫苗后出现心脏问题](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共正在把社会主义推向全世界](/content/gnews/3/README.md)
+### [中资银行收紧对城投地产的贷款要求](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共正在把社会主义推向全世界](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [西澳州长马克•麦高恩扩大了对未接种疫苗者的限制](/content/gnews/4/README.md)
+### [西澳州长马克•麦高恩扩大了对未接种疫苗者的限制](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国信用卡即将全面刚性扣减](/content/gnews/5/README.md)
+### [中共国信用卡即将全面刚性扣减](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.13大直播后记：中共在西藏的掠夺](/content/gnews/6/README.md)
+### [1.13大直播后记：中共在西藏的掠夺](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.800 HDO](/content/gnews/7/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.800 HDO](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国宏观税负2016年就已达到34.8%](/content/gnews/8/README.md)
+### [中共国宏观税负2016年就已达到34.8%](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [西安银行第二大股东股份质押 关联方拟借贷5.99亿](/content/gnews/9/README.md)
+### [西安银行第二大股东股份质押 关联方拟借贷5.99亿](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国情报机构警告：中共统战部渗透国会](/content/gnews/10/README.md)
+### [英国情报机构警告：中共统战部渗透国会](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记——七哥谈“什么叫农场”](/content/gnews/11/README.md)
+### [大直播后记——七哥谈“什么叫农场”](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [人权观察年度报告批评中共国进一步打压人权](/content/gnews/12/README.md)
+### [人权观察年度报告批评中共国进一步打压人权](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|摩西的启示——撂挑子，再担起来](/content/gnews/13/README.md)
+### [有声|摩西的启示——撂挑子，再担起来](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [大直播后记:50家银行都用“7”来作为一个新的发展是天意](/content/gnews/14/README.md)
+### [大直播后记:50家银行都用“7”来作为一个新的发展是天意](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧安组织谈判没进展 乌俄边境开战风险高](/content/gnews/15/README.md)
+### [欧安组织谈判没进展 乌俄边境开战风险高](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [飞行员因疫苗强制政策而起诉拜登政府](/content/gnews/16/README.md)
+### [飞行员因疫苗强制政策而起诉拜登政府](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：余建明先生谈加密货币——不是实物黄金 但可能是数字黄金](/content/gnews/17/README.md)
+### [秘翻在线：余建明先生谈加密货币——不是实物黄金 但可能是数字黄金](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登承认对COVID没有联邦解决方案](/content/gnews/18/README.md)
+### [拜登承认对COVID没有联邦解决方案](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [萨尔瓦多购买比特币亏损1000万美元](/content/gnews/19/README.md)
+### [萨尔瓦多购买比特币亏损1000万美元](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年国际社会对中共的制裁达20次以上](/content/gnews/20/README.md)
+### [2021年国际社会对中共的制裁达20次以上](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [三亚市委原书记童道驰一审被控受贿2.74亿余元](/content/gnews/21/README.md)
+### [三亚市委原书记童道驰一审被控受贿2.74亿余元](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦扼住无良媒体的咽喉，力王狂澜扭转排华大势](/content/gnews/22/README.md)
+### [新中国联邦扼住无良媒体的咽喉，力王狂澜扭转排华大势](/content/gnews/24/README.md)
  ` YALUN 亚伦`
 
-### [房地产违约将冲击整体中国经济](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦人最幸福 国内发生的灾难就是现世报](/content/gnews/24/README.md)
+### [新中国联邦人最幸福 国内发生的灾难就是现世报](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英军情五处指证华裔律师为中共统战部从事政治干扰活动](/content/gnews/25/README.md)
+### [英军情五处指证华裔律师为中共统战部从事政治干扰活动](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
-
-### [什么是农场？新中国联邦为什么要成立农场？](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [拉布—一项有效保障美国民主的议事规则](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
@@ -129,65 +129,65 @@
 ### [联合国秘书长将出席北京冬奥开幕式,旨在促进世界和平](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国新增中共病毒连续三天超30万例 打过三针疫苗的卫生部长也确诊](/content/gnews/39/README.md)
+### [【中日财经爆】中共强力疫情管控致使大众中国关闭天津两家工厂](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共强力疫情管控致使大众中国关闭天津两家工厂](/content/gnews/40/README.md)
+### [【中日财经爆】中国信达宣布放弃入股蚂蚁金融](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中国信达宣布放弃入股蚂蚁金融](/content/gnews/41/README.md)
+### [首派自卫队出征海湾战争的前日本首相海部去世](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [首派自卫队出征海湾战争的前日本首相海部去世](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [COVID-19 最新情报｜研究：蜂蜜与黑孜然联合疗法能有效促进 COVID-19 患者康复](/content/gnews/43/README.md)
+### [COVID-19 最新情报｜研究：蜂蜜与黑孜然联合疗法能有效促进 COVID-19 患者康复](/content/gnews/42/README.md)
  ` 關注組`
 
-### [GTV新闻访谈简报|2022年1月13日晚](/content/gnews/44/README.md)
+### [GTV新闻访谈简报|2022年1月13日晚](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/45/README.md)
+### [被困在哈萨克斯坦的47位韩国人安全回国](/content/gnews/44/README.md)
  ` 首尔天池农场`
 
-### [海外华人被中共代理人代表的巨大风险](/content/gnews/46/README.md)
+### [海外华人被中共代理人代表的巨大风险](/content/gnews/45/README.md)
  ` 秘密翻译组-原创组`
 
-### [全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡](/content/gnews/47/README.md)
+### [全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/48/README.md)
+### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/47/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【中日财经爆】海外第三大中国股票基金大举减持茅台等多家中企股票](/content/gnews/49/README.md)
+### [【中日财经爆】海外第三大中国股票基金大举减持茅台等多家中企股票](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/50/README.md)
+### [【秘翻在线】最高法院阻止了拜登政府对私营企业的强制疫苗规定](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/51/README.md)
+### [2022.01.12文贵大直播 喜马拉雅真义九解：天机得民心配合，CCP将止于20大](/content/gnews/50/README.md)
  ` 秘密翻译组-原创组`
 
-### [Eglise医生对比中美军医](/content/gnews/52/README.md)
+### [Eglise医生对比中美军医](/content/gnews/51/README.md)
  ` 军情启示录`
 
-### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/53/README.md)
+### [爆料革命日记 （十二）：“山歌”番外篇——风水、龙脉那些事儿](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/54/README.md)
+### [“中共是掠夺民众的流氓政权，需要在政治和物理上被孤立”](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/55/README.md)
+### [北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵直播大事记——南普陀计划VS喜马拉雅天机（三）](/content/gnews/56/README.md)
+### [文贵直播大事记——南普陀计划VS喜马拉雅天机（三）](/content/gnews/55/README.md)
  ` 文贵直播大事记`
 
-### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/57/README.md)
+### [WHO突然转向 警告不要持续接种疫苗加强剂](/content/gnews/56/README.md)
  ` 华盛顿DC-Russian`
 
-### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/58/README.md)
+### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/57/README.md)
  ` 秘密翻译组-北美组`
+
+### [毒疫苗真相和解药](/content/gnews/58/README.md)
+ ` 首尔天池农场`
 
 ### [1月9日文贵大直播的感受](/content/gnews/59/README.md)
  ` 首尔天池农场`
