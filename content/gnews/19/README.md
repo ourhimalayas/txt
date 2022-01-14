@@ -2,32 +2,39 @@
 ---
 
 
-## 上海鲜花港项目被申请破产重组
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858503/)
+## 基恩将军分析中共为何出兵哈萨克斯坦
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858528/)
 
-整理：Eileen（围剿维尼熊）
-编辑：Kelly
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月11日，美国四星将军杰克·基恩在接受福克斯主持人玛丽亚采访时谈到，哈萨克斯坦局势让人意外的是，中共一改几十年按兵不动的态度，宣布派执法部队进入哈国。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源；雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-5.jpg)
+
+基恩将军分析中共出兵有两个目的。第一，保证在哈萨克斯坦的经济利益，第二，同时打击在紧邻新疆的哈萨克斯坦的穆斯林，而这些都是中共有意影响中亚的表现。
+
+将军还指出，哈萨克斯坦事件发生的同时，中共将前武警新疆总队参谋长彭京堂，调任驻港部队司令员，透露了中共进一步镇压香港、夺走香港法治和民主的决心，也表明在香港发生的一切镇压措施将原封不动地被搬往内地，镇压一切反对中共政府的声音与行为。以上均表明中共在外交政策上出现了重大转向。
+
+玛丽亚总结道，中共在香港，哈国及新疆所采取的行动，接下来也将在西藏及台湾等地发生，也将使世界更清楚地看到中共的野心和邪恶。
+
+参考链接：
+
+- [20220111Keane將軍接受Maria採訪](https://www.gettr.com/post/pnwcmpf6b8)
 
 
-据媒体报道，上海明裕房地产有限公司正招募意向投资人，意向重整投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-据了解，2021年9月17日，上海市第三中级人民法院裁定受理债权人对明裕房地产破产重整的申请。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：海阔天空1
 
-明裕房地产的主要资产为上海市浦东新区临港新城综合区“区内镇外2街坊27/78丘”的土地使用权，即拟开发“上海鲜花港项目”。该住宅地块为明裕房地产单独所有，目前该项目无在建工程，处于待开发状态。
-
-2021年6月29日，上海浦东临港鲜花港项目资产包以约18.57亿元对外出售，该资产包主要为债权及其利息。资产包涉及5项债权，其中4项为债务人上海明裕房地产有限公司，另一项为债务人上海铭均投资管理有限公司。
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

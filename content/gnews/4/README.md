@@ -2,34 +2,42 @@
 ---
 
 
-## 2021年朝鲜网络犯罪盗窃加密货币达到顶峰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858616/)
+## 东北广西甘肃90%活的人畜不分几千万杨改兰何谈卖国叛国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858649/)
 
-#### 撰稿：彩虹
+视频链接：[2022年1月12日 文贵大直播- G|TV](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-26.jpg)图片来源：Stedmood
-1月13日，《国会山报》报道，根据周四发布的一份报告，朝鲜黑客在2021年盗取了近4亿美元的加密货币，达到其网络犯罪活动的顶峰。
+**郭文贵先生：**你看中国东北、去广西、甘肃90（%）的人活的人畜不分，啥时候让你宣过誓？你卖啥去啊？杨改兰女士，她卖个牛毛都卖不着，她只能把孩子头砍了，她只能把她自杀，她一生只有一个权利——自杀的权利，而且自杀还是错了，最后所谓她的国家说，你自杀是因为你精神有毛病，杨改兰的事件，是中国人最好的样板。
 
-软件公司Chainanlysis(区块链分析公司)创立于2014年，总部位于美国纽约州纽约市，是一家为全球政府、加密货币交易所、国际执法机构、银行和企业提供区块链数据和分析软件，以帮助他们遵守合规要求、评估风险并识别非法活动的公司。
+你知道中国有多少个杨改兰？我头两天跟那个李克强的原秘书我跟他说，他说，文贵啊！当年你一开始说杨改兰对我之震撼，他说我这个哥们不白交，他说就你这个说法，我跟着老板去过甘肃多次，河南还有他老家，中国现在就今天，就是说这几个月前说的话他是，中国最起码几千万个杨改兰。
 
-根据Chinalysis的研究，朝鲜黑客已经有能力通过对加密货币平台的七次攻击中窃取到约4亿美元，从而在2020年到2021年，使得他们从这些攻击中获得的价值增长了40%。
+他说可悲的事情，他们永远不会被人知道，他自杀他砍死100个孩子也没人知道，他只是偶然的被那个混蛋的宣传媒体拿来，用她的死来让别人不死的时候被你给逮住啦。
 
-根据该公司的研究，这些攻击主要影响了投资公司和集中式交易所。黑客使用的方法包括“网络钓鱼诱饵、代码漏洞、恶意软件和高级社交工程陷阱”，以便从平台上获取资金，并将其放入所谓的热钱包（Hot Wallet）。
+悲剧就在这儿呢！你的死都被拿来利用，结果让我们知道了，中国有多少…现在几千万杨改兰，谁要敢说中国没有几千万杨改兰，我R你八辈祖宗！
 
-2021年，以太坊（Ethereum）占了朝鲜网络犯罪分子所盗资金的大部分，为58%。
+你让联合国去查一查，我们今天面对几千万杨改兰的时候，还说我们是叛国、卖国，那么刚才问的问题，你懂啥叫叛国卖国吗？
 
-Chainalysis说：“一旦朝鲜获得了这些资金的保管权，他们就开始了谨慎的洗钱过程，以掩盖和兑现”。
+编辑整理：海贼王M.D.LUFFY；
 
-然而，黑客们似乎对他们偷来的所有加密货币的洗钱速度很慢。该公司的分析发现，大约有1.7亿美元的加密货币未经清洗，其中约3500万美元是通过2020年和2021年进行的黑客攻击偷窃到的。
+G-News发布：海贼王M.D.LUFFY；
 
-正如Chainalysis在其报告中所说，朝鲜最近网络偷窃行动“呈现了一个大规模支持加密货币犯罪的国家形象。朝鲜政府通过系统且复杂的黑客活动，无论是通过拉撒路集团 (Lazarus Group)还是其他犯罪集团，在2021年已经将朝鲜政府塑造成为了加密货币行业的大规模持续威胁”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-文章报道，去年，司法部指控三名朝鲜人，分别是全昌赫（Jon Chang Hyok）、金日（Kim Il）和朴金赫（Park Jin Hyok），从美国相关组织窃取了13亿美元的现金和加密货币。据称，这三名黑客参与了2014年的黑客行动，但截至1月份，他们仍被认为是在逃状态。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**新闻来源**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[North Korean hackers stole almost $400M in cryptocurrency, report says](https://thehill.com/policy/cybersecurity/589661-north-korean-hackers-stole-almost-400m-in-cryptocurrency-report-says)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

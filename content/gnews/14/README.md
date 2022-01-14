@@ -2,28 +2,30 @@
 ---
 
 
-## 英国一组织发布中共病毒疫苗致命性研究报告清单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
+## 美国要求未接种疫苗联邦雇员每周进行病毒检测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858533/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
+1月11日，拜登政府宣布，从2月15日开始，未接种疫苗的联邦雇员需要每周接受中共病毒检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-18.jpg)
 
-目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
+据悉，美国350万联邦工作人员中有90%以上在拜登去年11月的最后期限前接种了至少一剂中共病毒疫苗。新的联邦测试指南适用于那些获得或正在申请豁免的人。
 
-该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
+根据指南，未接种疫苗的员工在现场工作或与公众互动前都必须接受中共病毒检测。
+
+郭文贵先生曾在大直播中宣布全球的疫苗强制接种将会很快停止。拜登政府此举实际上已经在强制接种疫苗方面做出了让步。
 
 参考链接：
 
-- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
+- [Unvaccinated federal employees must test for COVID weekly](https://news.yahoo.com/unvaccinated-federal-employees-must-test-211643878.html?utm_source=ground.news&amp;utm_medium=referral)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：飞虹
-编辑：飞虹
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
