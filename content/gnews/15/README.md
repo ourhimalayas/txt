@@ -2,31 +2,42 @@
 ---
 
 
-## 七哥说“细胞的更换、代替当中，我们的本尊并没有死”（2022-01-09摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1857443/)
+## 短视频：美国国家冰球联盟将不参加北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857490/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译：Lish
+校对：精靈藍
+剪辑/字幕：文驰
+编辑：文泓
 
-来源：郭先生2022-01-09直播10：56：30摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会-1.png)图片来源：视频截屏
 
-就像我说的，我们离开这个地球，就像比如说这个宇宙、太阳系、银河系，就像我们身体一样，我们只是我们身体上一个分子，现在一个就是人体无限大，我们是一粒沙都不如啊。我们从一粒沙子就是细胞的更换、代替当中，我们的本尊并没有死，我们每天细胞代替，新陈代谢上亿个是吧？但是我们没有死是不是？没有死，是不是啊，你只是升级了是吧？我们是被升级而已，但是你的本尊并没有死，我觉得本尊就是灵魂。今天就是我们的五台山上，五台山上的叫做阴阳山，你在阴山的时候，你想跨到阳山的时候，实际上就是你自己从你身上的一分子逐渐变成你身体更重要的一分子，就是升级。然后你自己可能长大，然后你比如说我从阴山，现在我是个男的，然后我和女的那边，阳山结合以后就会生出来一个新的，这个我自己出来。就像你和佳佳你两个是吧，从阴山上一结合，两个卵子精子一结合，“啪”就出来了，生出来了你自己。你自己变化你的老的身体就淘汰了，新的就出来了，这就是人类的延续啊。如果你再高境界的话，你生出来可能不是佳佳你俩王子生出来的，就长得像佳佳像王子，你生出来可能是更一个人类,更高啦，更高境界啦。然后到了境界修行更高的时候，就像我们今天我们人类看到的：啊，有人打坐，有人修行，修出完全不同的果。这就是我们修行不同的果再升华，我们就从地球，人家Elon Musk肯定很早到月球去了，首先到火星去了，是吧。然后从火星离开，现在美国人已经到了太阳系去了，人家到黑洞去了，是不是。北朝鲜人还在干嘛呢？还想着喝一碗肉汤呢，对不对呀，这就是极大的差距。所以说我觉得物理上人类是会有更陈代谢的，最终人类会不同的人会有不同的升华，这就是修行。而且我觉得物理上不会，物理上你看到的消灭，绝对是你的灵和魂是不被灭的。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新冠疫情正在复燃，美国最受欢迎的一些消遣活动暂停赛事，例如全国曲棍球联盟已第一个宣布暂停几十场预定的比赛。
 
-**关注我们**
+吉姆·格雷是一名体育记者和福克斯新闻体育分析员，也是天狼星XM电台节目和播客的主持人。
 
-Discord 账号
+吉姆，很高兴见到你，有一段时间没有见到你了，谢谢你来参加我们的节目。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+我不敢完全相信，我们今年还在讨论运动队再次暂停比赛的问题，但我们又来谈论了。你在过去一直非常支持不同的运动联盟因新冠而暂停比赛和赛季，这仍然是正确的做法吗？
 
-Gettr 账号
+好吧，我想我们必须准确判断病毒和全国冰球联盟（NHL）的情况，让我给你说个消息，而且这不是一个令人高兴的消息。他们不打算参加或让他们的球员参加2月在北京举行的奥运会，他们本来是会去的，有份公告预计明天会由NHL和球员协会宣布。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+他们只是觉得这将会严重影响他们的赛季，而现在他们的赛季暂停了，至少圣诞节期间要遵守更严格的规定直到1月1日。所以不参加北京冬奥会。对很多想参加比赛的球员来说是一个巨大的打击。
+
+好吧，那确实是一些突发新闻。国家冰球联盟不参加奥运会，由您来给我们带来重大新闻。
+
+视频链接：[NHL won’t participate in Beijing Olympics: Jim Gray | On Air Videos | Fox News](https://video.foxnews.com/v/6288035052001)
+
+发布：文泓
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

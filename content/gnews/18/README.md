@@ -2,40 +2,56 @@
 ---
 
 
-## 阿肯色州单日新增10,974例中共病毒病例
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857411/)
+## 在中共国，违反防疫规定可判刑四年
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857478/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011310.jpg)网络图片
+摘要翻译：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/无标题-1.jpg)图片来源：KATV
+来自印度时报网站《彭博社》2022年01月12日的报道，
+
+中共国以违反防疫规定导致病毒爆发为由，判处3人入狱长达4年多，这是对未能执行政府严格的“新冠病毒清零”政策的最严厉惩罚之一。
+
+据《环球时报》周二晚些时候报道，违规行为发生在东北港口大连一家货运公司，包括未能确保员工佩戴口罩、避免下班后前往公共场所以及进行适当的隔离和检测，这些疏忽导致4人感染另外83人。
+
+这家官方新闻网站称，该事件涉及一艘在2020年11月中旬将一船冷冻货物运往大连的货船。上周，该公司的负责人、法定代表人和一名主管被判处39至57个月不等的有期徒刑。据该新闻网站报道，该公司还被罚款80万元人民币(合125,500美元)，该网站没有提供公司或个人的全名，也没有指出是在哪家法院。
+
+2020年底，中共国在辽宁省的第二大城市大连和北京出现了病毒爆发。中共当局对国家首都的保护尤为严格，通常要求新冠病毒检测呈隐形才可以乘坐飞机或火车，并通过移动应用程序严格跟踪人们在城镇周围的活动。
+
+中共声称，新冠病毒可以在冷链食品和包装中发现的情况将持续存在，中共当局一直在进口的肉类和海鲜中检测病毒的痕迹。国际卫生组织淡化了这种传播的可能性。
+
+大连处理着这个世界第二大经济体进口冷链产品总量的大约70%。去年11月，该市将一场导致数万名大学生被封锁的疫情与该冷链行业联系起来。
+
+**简评：**
+
+中共政权搞病毒清零运动搞到今天，从各地的案例中能够看出，中共以防疫为借口，均财富，剥夺人权，打压异己等行为已经遍布各个城市，各个行业，并且理由眼花缭乱，看似合理却完全经不起推敲。
+
+**“**确保工作中戴口罩”是不是已经写入法律条款？下班去公共场合难道是犯罪？出了家门后哪一个场所不是公共场所？不知情的感染者去公共场所需要被判刑吗？货运工作人员是不是卸一批货就需要隔离一次？法理是需要理的，无理的法就是恶法，在恶法横行的中共国可能躺平都是一种犯罪。
+
+所谓的清零成就的背后都是血淋林的人权践踏，多少老百姓因为病毒清零的愚蠢政策失去生命和健康？中共为了维护政权不倒，相信未来会有更多的无法想象，无法理解的以防疫为理由的案件发生。中共习近平政府既可以借此转移视线，转嫁责任，又可以敛财，同时可以趁机清除异己，加强自己的独裁统治。
+
+新中国联邦战友，我们要安全、健康地活着，记录和揭发中共的恶毒罪行，唤醒全世界人民，直到把这个邪恶的中共政权推上历史的审判台，接受正义的审判。
+
+新闻链接：[China hands out jail terms as long as 4 years for coronavirus lapses](https://timesofindia.indiatimes.com/world/china/china-hands-out-jail-terms-as-long-as-4-years-for-coronavirus-lapses/articleshow/88850558.cms?from=mdr)
+
+*翻译/简评：Brianchow*
+
+*校对：Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-#### 整理报道：George Warshing
-编辑：文泓
+编辑：【英国伦敦喜庄园编辑部】
 
-当地时间1月12日，据阿肯色州州长阿萨·哈钦森称，**自大流行开始以来，该州的中共病毒病例于本周三增加了10,974例，创下了最大单日增幅，使州病例总数达到640,799例。**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-根据州卫生部的数据，周三急性期病例数增加了6,399例，目前共有71,134个活跃病例。同日，中共病毒造成的死亡人数又增加了14人，全州死亡人数已达到9,372人。
 
-由于对测试的需求很大，该州已经购买了150万个家庭测试（试剂），将在当地图书馆和卫生单位免费分发。
 
-迄今为止，大流行已经出现了几次激增。在奥密克戎出现之前最大的两次是在2021年1月，在假期季节之后，以及2021年8月，当时德尔塔变种病毒开始占主导地位。
 
-住院人数正在攀升，但无论是在2021年1月激增还是2021年8月激增期间，住院患者人数暂时没有超过峰值。
-
-**尽管目前的一些感染病例发生在不太可能住院的已接种疫苗的人群中，但仍然存在对医院容量的担忧。 **
-
-新闻链接：
-1、[State reports 10,974 new covid cases, a single-day record (arkansasonline.com)](https://www.arkansasonline.com/news/2022/jan/12/new-covid-cases-in-arkansas-over-10000/?latest)
-2、[Arkansas’ surge of coronavirus cases due to omicron, explained (arkansasonline.com)](https://www.arkansasonline.com/news/2022/jan/13/arkansas-surge-of-coronavirus-cases-due-to-omicron/)
-
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

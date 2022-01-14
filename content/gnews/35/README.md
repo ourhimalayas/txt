@@ -2,47 +2,36 @@
 ---
 
 
-## 关于新冠的谎言正在瓦解,邪恶力量的控制正在消失
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1856953/)
+## 农场是美丽自由的地方，更是开启文明进步的时代
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1857079/)
 
-#### 翻译：Frank
-校对：枳实
-剪辑/字幕：小强
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-**字幕文本（英汉对照）**
+1月12日，郭文贵先生于GTV、Gettr大直播中解答了喜马拉雅农场名称的奥秘，这个命名是经过深思熟虑、总结前人历史、熟知全球地域文化的知天命之举。
 
-Over time is that the entire response to COVID and everything that we were told about it from the beginning, is being exposed, and it’s falling apart, the lies are coming apart.
+![](https://assets.gnews.org/wp-content/uploads/2022/01/vacations.jpg)图片来源vacations网
 
-随着时间的推移，对新冠的整个应对措施，以及我们从一开始就被告知的一切，都被暴露出来，它正在崩溃，谎言正在瓦解。
 
-And really now there’s no justification for putting people out of their jobs or forcing vaccine mandates for a disease that ultimately is very treatable. It’s cheap to treat medicines are available all over the world. And it has death rates that compare very much to seasonal flu.
 
-现在真的没有任何理由让人们失去工作，也没有理由强制要求为一种最终可以治疗的疾病接种疫苗。它的治疗费用很低，全世界都有药品。而且它的死亡率与季节性流感差不多。
+众所周知，但凡公司（LLP）或者集团（Group）都是以某范围内的商业利益为目的，是有法人的。法人是依法所创设的权利义务主体，对公司或者集团承担全部责任。非政府组织（NGO） 是一类不属于任何政府、不由任何国家建立的组织。非营利组织（NPO）是指不以营利为目的组织或团体，通常涉及的领域从慈善、教育、宗教等。
 
-And so in that moment, what you see on Dr. Fauci. This is what people say to me that he doesn’t represent science to them. He represents Joseph Mengele, Dr. Joseph Mangele, the Nazi doctor, who did experiments on Jews during the Second World War and in the concentration camps,
+然而农场既不是公司也不属于集团，没有营业执照，也没有法人代表；不是慈善机构，也不是盈利机构，更不是非盈利的宗教组织。
 
-所以此时此刻，你在福奇博士身上看到的。这是人们对我说的，他不代表科学。他代表的是约瑟夫·门格勒，约瑟夫·门格勒博士，纳粹医生，在二战期间和集中营里对犹太人做实验，
+人类的历史从石器时代到宗教时代、封建王朝，过渡到工业文明、资本主义式民主时代，现在是我们开启的农场时代。农场（英文Farm、Ranch，法文Ferme）是来自于天元的、自由的、自然的、自力更生的、不用交易的、不受人约束的地方，而农场一词在西班牙语里的解释，是和家人一起辛勤劳动、生活安家置业的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/juwai-1.png)图片来源juwai
 
-and I am talking about people all across the world are saying this, because their response from COVID What it has done to countries everywhere, what it has done to civil liberties, the suicide rates, the poverty, it has obliterated economies, the level of suffering that has been created because of this disease is now being seen in the cold light of day,
 
-我指的是，世界各地的人们都这么说，因为他们对新冠疫情的应对，它对世界各国的影响，对公民自由的影响，对自杀率的影响，对贫困的影响，它摧毁了经济，由于这种疾病所造成的痛苦程度现在正被暴露在光天化日之下，
+而在前面冠上喜马拉雅更是把农场的定义推向了更高的境界（承天机），喜马拉雅之上的地方就叫农场，一个美丽的、自由的、真实的、自然的、与天地相接的人类生存之地。同时，农场也是一个没有专制统治，没有商业和交易、一切出于自愿的自由之地。
 
-i.e the truth. And people see that there’s no justification for what is being done. So as they’re being exposed, and the control is slipping away. Lo and behold, and other variants surfaces, and nobody should be surprised by that, because they will be more variants until the end of time. We’ll never be free of them.
+根本不能实现的想法叫乌托邦共产主义，被忽悠的民众奉献一生的徒劳光阴牺牲在这个想法实现之前。历史的经验教训告诫，不能把个人资产公有化，也不能把国家权力私有化。可是如今中共、共产主义不但把自己国家的私有资产公有化（公有化后独裁化），还正在把共产主义植入到美国和西方民主国家。
 
-这就是真相。大家都看到，这样做是没有正当理由的。所以当它们被曝光的时候，控制权就会消失。你瞧，其他的变异毒株出现了，没有人应该对此感到惊讶，因为它们肯定会有更多的变异毒株，直到时间的尽头。我们永远无法摆脱它们。
+而农场的模式就成功杜绝了把权力集中在几个人身上的可能，因为农场中没有商业和交易，也没有统治。同样，农场也绝无可能把个人资产公有化，因为农场没有法人，也不合法。
 
-Well, you know, well, Joe Biden previously said, no mandate never mandates. Today he said, we’re not going to lock down when asked about it, what part of the track record of how they’ve handled it would lead us to believe that.
+人不是神，慎独者少。不可给恶人递刀枪，也不可给好人蓝金黄，所有维持体统要靠智慧的体制制衡。人是挡不住诱惑的，这才需要有社会，里面包括社会环境、社会关系、家庭关系；有伦理、有道德、有法治；信仰上天、相信轮回报应，而后产生人与畜之分。
 
-你知道，乔·拜登之前说过，没有疫苗强制，永远不会有疫苗强制。今天，当他被问到封锁时，他说，我们不会封锁，他们处理疫情的历史记录中，哪一部分会让我们相信这一点？
+喜马拉雅农场从初始就明确，这里没有利益，也没有交换，尊重法治，追求一人一票选出来的政府是目标。这里绝不是遥不可及的乌托邦，只要做就一定能实现。为真不破，这里没有谎言的土壤，这里没有抢夺的温床，这里更没有独裁野心家的战场。
 
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+更为现实的，在面对中共处心积虑地利用美国媒体Vice News和Isobel Yeung（杨贝贝），图谋把新中国联邦定义成邪教，把所有反共的群体都定义为暴徒。没有全球农场聚集战友地奋起反击和拨乱反正，没有农场提供强有力的资金支持，是绝不可行的。
 
  
 
