@@ -2,31 +2,31 @@
 ---
 
 
-## 免费新冠病毒检测可能会花费保险公司数十亿美元
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1860322/)
+## 七哥说“我一定要赢，我会赢的”（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860356/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-39.png)盖蒂图片社(Getty Images）
-据《新闻大全》西奥多·邦克(Theodore Bunker) 2022年1月13日报道
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据[**华盛顿自由灯塔报**](https://freebeacon.com/biden-administration/bidens-covid-test-rule-could-cost-insurance-companies-up-to-20-billion-a-month/)《[Washington Free Beacon](https://freebeacon.com/biden-administration/bidens-covid-test-rule-could-cost-insurance-companies-up-to-20-billion-a-month/)》报道，私人健康保险提供商最终可能每月支付数十亿美元，以偿还客户进行非处方 COVID-19 测试的费用。
+来源：郭先生2022-01-12直播08：38：40摘录
 
-拜登政府周一[**发布了**](https://www.hhs.gov/about/news/2022/01/10/biden-harris-administration-requires-insurance-companies-group-health-plans-to-cover-cost-at-home-covid-19-tests-increasing-access-free-tests.html)一项要求，要求私人保险公司从1月15日开始向其客户报销“每个受保人每月 8 次免费的非处方在家测试的费用。这意味着一个四口之家，都在同一个保险计划中 ，每月将能够获得最多32次的免费测试。”该规则还指出，“如果是由医护人员提出要求和管理下进行了个性化临床评估的，包括由于基础疾病而可能需要测试的人在内，测试次数不受限制。”根据《华盛顿自由灯塔报》的说法，如果约2.15亿拥有私人医疗保险的美国人中的每一个人都充分利用此规则，那么最终公司每月可能因此损失约200亿美元，虽然新闻媒体指出这是“极不可能。”
+然后你看看这个Isabel Yeung是在一年以前开始的要采访七哥这个节目，要把七哥、爆料革命和新中国联邦定义为邪教组织，她是四年前开始黑七哥，跟共产党合作，她在她采访过程当中想干啥事七哥在将近一年前已经给她制止了，是吧。如果我当时要跟着Q组织，咱就完了。但是我已经提前出手了，这就是那个跆拳道一样。跆拳道最高的境界是什么？预判！预判！我小时候打架的时候，在东北零下35度到40度，在我们家旁边那个牛房子里边儿，用三个沙袋子，我蒙上眼睛。我就让我的小兄弟们，给我推，就是，我就是根据风声，我要判断哪个打过来了？我啪啪就打回去。当然我是最牛的，他们总是几下就被击倒。我的腿当年就是这么受伤的，所以我打架几乎没遇到过对手。只要你碰到我，我这腿一抬起来，这个人基本…我从来没遇到，我只受过一次伤，一个佯回头，从来没有一次被打倒。这也是当年迷倒你七嫂的原因。为什么？预判！这个预判是功夫里面最牛的。所以说我打架的时候，基本上我这一开始，一看对方，我基本上我的动作已经设计完了。我打的时候，我上边儿是手一挡，主要是“手是两扇门，全凭腿打人”。我相信这个绝招。我就靠我的腿，听到对方，我这手挡，“啪啪啪”几下，倒下，而且绝对是绝不留情。那在这个政治斗争当中，最高端高手是预判。预判的前提是你真有这个能力。你预判到了，人家大腿已经踢你脑袋上了，你根本打不回去，你不就被撂倒了吗？当时Q组织，你知道我们最核心的几个战友，相信Q组织不行了，这个那个的。Q组织百分之百是美国和共产党之间较量的一个平台，而绝对是共产党控制的一个造谣平台。这是一点都不用质疑的。就共产党这一出手，它不撅屁股我都知道它拉什么屎，何况它已经拉出了屎了，是吧？所有咱们战友们，这次很重要。这是四年前设的局，今天已经是五年前了，2017年，HBO VICE就来给咱设了局，郭文贵是个骗子。这房子6750万买的，他说8200万，最后1分钟，把你弄定。你看，多土啊，这孙子。喝一咖啡，拿水晶杯，还抱一狗，是吧？然后咖啡里还放蜂蜜。然后你看，华尔街采访我的时候，“啪” 就把我那个白的衣服、抱着狗照片儿给出去，为啥知道吗！拍那么个照片？在西方人眼里，抱着个狗、穿着白衣服，这种基本上就是黑道，还有毒枭。基本都认同的毒枭、黑道、邪教，然后再一个就是，美国人也对富豪不感兴趣。一说Billionaire，我们打官司很吃亏。每次律师都告诉我说，当你出现你是Billionaire ，陪审团你已经输一半了。没有几个美国人说，对你个Billionaire有什么好兴趣的。所以我在华盛顿时候，班农最后一分钟说：我求求你了，Miles，撤， Virginia，你百分之百输，郭宝胜、夏业良的案子。每次律师告诉我，最后一分钟你必须离开，你肯定输。这个地方都是平均收入5万多美金一年，你个Billionaire，你穿套西装一万多美金，你不输定了吗？我说不是的，我一定要赢，我会赢的。大家都看到，我们都赢了，是吧？我说我就是草根，草根和草根之间有草根的共同语言。我要告诉他们，我之所以成为Billionaire，我是正义的Billionaire，我和他们不一样。我现在不是了，我过去为什么是？所以说，郭宝胜、夏业良还有熊宪民，带着狗围脖上去的。我恨他，我恨郭文贵。人家陪审团，哇（低头），是吧？他现在，过去是草根，他现在是屎根儿，他是屎根儿。所以说他就输了。那么我们这Q组织这个事情一样的。
 
-根据《盛顿自由灯塔报》**，**蓝十字蓝盾协会(Blue Cross Blue Shield)首席执行官金凯克(Kim Keck) 表示：“我们担心该政策无法解决本国检测供应有限的问题，并可能导致额外的消费者摩擦，因为保险公司要在短短四天就推出一项计划。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-凯撒家庭基金会(Kaiser Family Foundation)的卫生政策专家拉里·莱维特 (Larry Levitt) 本周早些时候在一则[**推文**](https://twitter.com/larry_levitt/status/1480645469629935617)上说，“拜登政府的检测指南保护了保险公司免受无良零售商的价格欺诈，但前提是保险公司要为消费者提供一种方式，让他们在药店免费获得在家检测，无需预付费用。”
+**关注我们**
 
-他补充说：“拜登政府要求保险公司支付家庭COVID测试费用的要求能否成功，当然取决于能否从一开始就阻止这些有价值的测试。”他指出，“在某些情况下，保险公司已经支付在家进行COVID测试的费用，但必须有医嘱。从1月15日开始，保险公司必须支付在家进行的检测，而无需医生的医嘱。
+Discord 账号
 
-原文链接：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://www.newsmax.com/us/covid-tests-insurers-cost/2022/01/13/id/1052308/](https://www.newsmax.com/us/covid-tests-insurers-cost/2022/01/13/id/1052308/)
+Gettr 账号
 
-
-
-
-
-翻译：飞利普 | 校对：烟波浩淼 | 编辑&发布：闪电训练
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
