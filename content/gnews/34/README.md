@@ -2,36 +2,51 @@
 ---
 
 
-## 英军情五处指证华裔律师为中共统战部从事政治干扰活动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1858273/)
+## 飞行员因疫苗强制政策而起诉拜登政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858344/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+#### 翻译：Julia Gao
+校对：枳实
+剪辑/字幕：向上James
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3DA5A027-5220-4DC0-8810-7C0C2CED5106.jpeg)（图片来自skynews）
+英汉对照字幕：
 
-英国军情五处的一份安全警告指证华裔律师克里斯提娜·李（Christine Lee）代表中共统战部从事政治干扰活动。该警告通知已分发给国会议员及情报界同行，同时还提供了克里斯提娜·李的照片。
+I too did not want to get the vaccine. I’ve never had a flu shot in my life. Injecting experimental drugs into me? Not something I ever wanted to do.
 
-这份安全警告通知指出，中共统战部 “正在寻求通过与各政治派别中已确定及有抱负的议员建立联系，以暗中干预英国政治”，并 “培养与有影响力人物的关系”。据调查，克里斯提娜·李的政治捐款总额为675586英镑，其中584177英镑为 “实物捐赠”，且几乎全部捐给了工党或布伦特北区议员以及前前线议员巴里·加德纳（Barry Gardiner）。
+我也不想打疫苗。我这辈子都没有打过流感疫苗。给我注射实验性药物? 这压根儿就不是我想做的事情。
 
-据报道，议长办公室已将这一安全警告通知以电子邮件方式发送给国会议员们传阅。英国当局指控克里斯提娜·李代表在香港和中共国的外国公民为在职和有抱负的议员提供资金捐助及提供其他便利。
+Traveling between the state that I live in Hawaii and California where I have family, two states that have archaic travel restrictions. I decided between the pressure that in my airline that was going to require a mandate vaccine. I went and got the jab.
 
-议员邓肯·史密斯（Duncan Smith）对此表示，国会议长先生已经与军情五处联系过，可以确定的是，有一个中共背景的特工在议会里。军情五处担心各党派的政治家可能已经成为了中共特工行动中的目标。
+我居住在夏威夷州，而我家人居住在加利福尼亚州。所以我需要在有旅行限制的这两个州之间旅行，再加上我所在的航空公司也有疫苗强制政策，我在这些压力之下做出了决定。我去接种了疫苗。
 
-内政部长普里蒂·帕特尔（Priti Patel）表示，在必要时，英国政府将会采取相应行动来减轻来自中共的威胁。 不过，据报道，目前克里斯提娜·李并没有被起诉。
+I did it 11:30 in the morning at Hawaii. Everything was normal. I went to bed, woke up at 3:30 in the morning with my heart pounding out of my chest. I went to the ER they hooked me up quickly to EKG IVs did blood work quickly determined that I was in atrial fibrillation.
 
-英国情报界对中共间谍活动的担忧与日俱增。去年年底，军情六处负责人理查德·摩尔（Richard Moore）就曾表示，中共的间谍活动已成为该国对外情报机构的 “最大优先事项”。
+我是在夏威夷接种的疫苗。上午11点30分接种的。当时一切都正常，我就去睡觉了，早上3点30分突然醒来，感到我的心脏剧烈跳动，似乎要跳出胸膛。我去了急诊室，他们很快给我做了心电图，做了静脉滴注，并很快诊断为房颤。
 
-据悉，2020年，英国曾悄悄地驱逐了三名据称是冒充记者的中共国间谍。军情五处给出的结论是：这三人是为中共国家安全部（MSS）工作。
+So major cause of stroke as Lee said, there’s a critical phases of flight where this stuff when I certify it to go fly, I have to check off a box before I go fly you lovely people wherever you want to go before I take that multimillionaire plane.
 
-*参考链接：[MI5 accuses lawyer of trying to influence politicians on behalf of China](https://www.theguardian.com/uk-news/2022/jan/13/chinese-national-trying-to-improperly-influence-politicians-says-mi5)*
+正如李所说的，房颤是中风的主要诱因。执行飞行有一个关键阶段：在我飞行之前，当我驾驶着那架价值数百万的飞机，带着你们这些可爱的乘客去目的地之前，我必须要进行自检，对每一个方框进行打勾，以确认我能够飞行。
 
-* * *
+I checked this box and it says I’m fit to fly. That was before COVID That’s when you knew Yeah, I have food poisoning. I’m cold, have a cold, whatever. Here. You never know when the genies gonna come out of the bottle and smack you down.
 
-*素材采编：葛大饼*
+我做了检查，结果是我适合飞行。那是在新冠之前（设计的表格）， 你知道， 题目都是些：“是否得了食物中毒？是否感觉很冷？是否感冒了？等等勾选项。但是现在，你永远不知道这些鬼家伙（房颤诱发的中风）什么时候会莫名其妙地钻出来，把你击倒。
 
-*编辑： 青衣青青*
+I could have stroked out at 100 feet trying to land an airplane with 40 Airplanes lined up next to us. I could have just pushed down on that stick before the person next to me could do anything. We’re in a it’s all over for a lot of people. Not a good scenario.
 
-*发布：miumiu*
+我可能会突然中风，恰逢驾驶着飞机，在100英尺的高度，试图降落在已经有40架飞机列队停靠的飞机场时发病。我可能在我的副驾驶还没有来得及反应之前就把操纵杆压下去（而导致坠机）。很多人都会因此结束他们的生命。这当然不是一个美妙的设想。
+
+Pete Buda judge and telling you anything about this, the administration is not, the NIH, the CDC, they suppress all this stuff. There’s a number of pilots out there that are fearful to come forward and speak. They’re fearful of retribution. There’s guys that are going to work with crushing pains in their chest in their heads. They’re scared that they’re going to lose their careers because they’re 25 years old. This has got to stop.
+
+Pete Buttigieg（美国运输部长）没有告诉你们这些，美国政府也没有，包括国立卫生研究院，疾病控制与预防中心，他们都压制所有这些信息 (疫苗对飞行员的伤害)。有一些飞行员害怕站出来说真话；他们害怕遭到报复。有些飞行员会强忍着胸口和头部的剧烈疼痛而坚持工作。他们害怕失去他们的职位，因为他们只有25岁！这些情况必须要停止！
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

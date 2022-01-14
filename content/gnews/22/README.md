@@ -2,32 +2,37 @@
 ---
 
 
-## 上海鲜花港项目被申请破产重组
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858503/)
+## 辉瑞加强针被正式列为26岁男性的死因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858532/)
 
-整理：Eileen（围剿维尼熊）
-编辑：Kelly
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月12日外媒报道，南达科他州26岁男子约瑟夫·基廷的官方死亡证明显示，第一个死因是涉及左心室和室间隔的多灶性心肌炎；第二个死因是最近接种的辉瑞加强针。这成为疫苗导致死亡的确凿证据。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源；雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-14.jpg)
+
+据约瑟夫有着35年重症监护经验的母亲称，在加强针接种72小时后的11月11日早上，儿子开始出现喉咙痛、肌肉酸痛和疲惫的症状，起初家人误认为是疫苗导致的轻微副作用，出乎意料的是，约瑟夫的心脏很快衰竭。
+
+约瑟夫的母亲表示，尸检证明辉瑞加强针直接导致了儿子的死亡，她警告世人，毒疫苗可能在没有明显症状的情况下带来致命后果。
+
+参考链接：
+
+- [Booster Listed As Cause of Death in 26-Year-Old’s Autopsy, Death Certificate After Work-Mandated Jab](https://gettr.com/post/pnyrl19052)
 
 
-据媒体报道，上海明裕房地产有限公司正招募意向投资人，意向重整投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-据了解，2021年9月17日，上海市第三中级人民法院裁定受理债权人对明裕房地产破产重整的申请。
+总编：Jack Li文阳
+编辑：百香果
+校正/发稿：海阔天空1
 
-明裕房地产的主要资产为上海市浦东新区临港新城综合区“区内镇外2街坊27/78丘”的土地使用权，即拟开发“上海鲜花港项目”。该住宅地块为明裕房地产单独所有，目前该项目无在建工程，处于待开发状态。
-
-2021年6月29日，上海浦东临港鲜花港项目资产包以约18.57亿元对外出售，该资产包主要为债权及其利息。资产包涉及5项债权，其中4项为债务人上海明裕房地产有限公司，另一项为债务人上海铭均投资管理有限公司。
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

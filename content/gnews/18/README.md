@@ -2,41 +2,38 @@
 ---
 
 
-## 世卫组织、欧洲药管局警告重复接种加强针有害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858529/)
+## 大直播后记：世界上没有比中国人更可怜的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858582/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，世卫组织和欧洲药品管理局公开声明，频繁接种中共病毒加强针危害免疫系统。
+##### 整理：雅典娜速记组
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-4-scaled.jpg)
-
-欧洲药品管理局、生物健康威胁和疫苗战略负责人马可·卡瓦莱里，在新闻发布会上警告说，疫苗加强针不应该重复施打，频繁地接种加强剂可能会对免疫系统造成危害。
-
-当天晚些时候，世卫组织也在一份声明中说，基于原始疫苗成分的反复强化剂量的疫苗接种策略是不合适的，也是不可持续的。
-
-分析人士称，两大机构突然改变风向，或因为疫苗副作用的数据令人震惊，并且他们要为下一步官方公布停止疫苗强制接种，做好铺垫。
-
-参考链接：
-
-- [FRIGHTENING: WHO Joins EU and Changes Direction — Suddenly Warns Against Taking Continued COVID Booster Shots](https://www.thegatewaypundit.com/2022/01/frightening-joins-eu-changes-direction-suddenly-warns-taking-continued-covid-booster-shots/)
-- [Interim Statement on COVID-19 vaccines in the context of the circulation of the Omicron SARS-CoV-2 Variant from the WHO Technical Advisory Group on COVID-19 Vaccine Composition (TAG-CO-VAC)](https://www.who.int/news/item/11-01-2022-interim-statement-on-covid-19-vaccines-in-the-context-of-the-circulation-of-the-omicron-sars-cov-2-variant-from-the-who-technical-advisory-group-on-covid-19-vaccine-composition)
-- [Frequent Boosters Spur Warning on Immune Response](https://www.bloomberg.com/news/articles/2022-01-11/repeat-booster-shots-risk-overloading-immune-system-ema-says)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/ffebbf.png)图片来源：sohu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+#### **2022年1月12日大直播**
 
-总编：Ivy001
-编辑：文真
-校正/发稿：海阔天空1
+什么叫社会主义？有关系才有主义。什么叫社会主义？有权力才有主义。什么叫共产主义？死越来越多的人把财富集中在几个人身上，享受一切的，爹亲娘亲不如党亲，那就叫共产主义。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你问这个问题太天真，你是站在日本问中共的问题，不太傻了嘛？你自己穿上西装问猪圈里的猪，你怎么吃猪食的？猪会告诉你说我就是猪。我发现你不是猪，你是郭文贵，你只是穿了个猪皮而已。是吗，我这时候脱下猪皮，哎，我就是郭文贵，我是七哥。就是这么简单的事。
+
+我们战友所有对昆仑山，对这个喜马拉雅山的理解，最高境界的就是叶钊颖，因为她去过，上过山，这是最高境界，觉得雪山纯洁。战友们找了昆仑山，找出来一个解放军的一个正常的军事基地，你就以为解密了。你能知道几个峰你都不错，你想想多可悲呀。连哈萨克斯族的青青草原，她知道新疆啥呀？她在新疆享受什么样的新疆生活？他去过几次喀什？喝过多少次帕米尔高原的水？你真的以为你知道吗？你啥都不知道。
+
+这就是共产党，把所有的中国人圈在了一个圈里面。在家里边儿、在东北的炕上、在中国的小房子里边儿、在农民的地里边、在南方的所谓工厂里，让你终生只能眼观土地。然后你的腚就给共产党，还想干啥？没有比中国人更可怜的。
+
+就今天的阿富汗，我认为都比中国人的幸福。每时每刻我在说阿富汗饿死人是共产党的原因，但阿富汗人最起码他还有个宗教的选择。我们中国人没有比这更可怜的，这个羊群之可怜，你说中国人是羊的时候，太侮辱羊了！羊还能长出个毛，羊还能呼吸呼吸或者吃个健康的草，中国人吃啥？绝大多数都吃化学食品。你看到过日本人吃用中国的调料做的中国饭吗？你在日本见过吗？只要中国来的，日本人闻都不闻，扔得远远的。
+
+你觉得都是人类，还有比我们再可怜的吗？所以说到这的时候，风雨之中，对于共产党来说那是太正常不过的，无处不在的。 我们爆料革命到今天，我最大的感触就是我跟你们几个说话的时候，说实话我就跟石头说话的感觉一样。我过去这些年的痛苦，我到现在我还是那么痛苦。我从来不觉得有多少人能懂我，我跟你们说这种话发自内心的，那就像跟石头说话。就你问这个问题，就像石头在问我的话，我为什么叫石头？你本来就是石头，你为什么要叫石头？你本来就是石头。你应该问是谁让你变成的石头？
+
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

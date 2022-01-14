@@ -2,37 +2,42 @@
 ---
 
 
-## 大直播后记：世界上没有比中国人更可怜的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1858582/)
+## 东北广西甘肃90%活的人畜不分几千万杨改兰何谈卖国叛国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1858649/)
 
-##### 整理：雅典娜速记组
-编辑：Mttfly
+视频链接：[2022年1月12日 文贵大直播- G|TV](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/ffebbf.png)图片来源：sohu
+**郭文贵先生：**你看中国东北、去广西、甘肃90（%）的人活的人畜不分，啥时候让你宣过誓？你卖啥去啊？杨改兰女士，她卖个牛毛都卖不着，她只能把孩子头砍了，她只能把她自杀，她一生只有一个权利——自杀的权利，而且自杀还是错了，最后所谓她的国家说，你自杀是因为你精神有毛病，杨改兰的事件，是中国人最好的样板。
 
+你知道中国有多少个杨改兰？我头两天跟那个李克强的原秘书我跟他说，他说，文贵啊！当年你一开始说杨改兰对我之震撼，他说我这个哥们不白交，他说就你这个说法，我跟着老板去过甘肃多次，河南还有他老家，中国现在就今天，就是说这几个月前说的话他是，中国最起码几千万个杨改兰。
 
-#### **2022年1月12日大直播**
+他说可悲的事情，他们永远不会被人知道，他自杀他砍死100个孩子也没人知道，他只是偶然的被那个混蛋的宣传媒体拿来，用她的死来让别人不死的时候被你给逮住啦。
 
-什么叫社会主义？有关系才有主义。什么叫社会主义？有权力才有主义。什么叫共产主义？死越来越多的人把财富集中在几个人身上，享受一切的，爹亲娘亲不如党亲，那就叫共产主义。
+悲剧就在这儿呢！你的死都被拿来利用，结果让我们知道了，中国有多少…现在几千万杨改兰，谁要敢说中国没有几千万杨改兰，我R你八辈祖宗！
 
-你问这个问题太天真，你是站在日本问中共的问题，不太傻了嘛？你自己穿上西装问猪圈里的猪，你怎么吃猪食的？猪会告诉你说我就是猪。我发现你不是猪，你是郭文贵，你只是穿了个猪皮而已。是吗，我这时候脱下猪皮，哎，我就是郭文贵，我是七哥。就是这么简单的事。
+你让联合国去查一查，我们今天面对几千万杨改兰的时候，还说我们是叛国、卖国，那么刚才问的问题，你懂啥叫叛国卖国吗？
 
-我们战友所有对昆仑山，对这个喜马拉雅山的理解，最高境界的就是叶钊颖，因为她去过，上过山，这是最高境界，觉得雪山纯洁。战友们找了昆仑山，找出来一个解放军的一个正常的军事基地，你就以为解密了。你能知道几个峰你都不错，你想想多可悲呀。连哈萨克斯族的青青草原，她知道新疆啥呀？她在新疆享受什么样的新疆生活？他去过几次喀什？喝过多少次帕米尔高原的水？你真的以为你知道吗？你啥都不知道。
+编辑整理：海贼王M.D.LUFFY；
 
-这就是共产党，把所有的中国人圈在了一个圈里面。在家里边儿、在东北的炕上、在中国的小房子里边儿、在农民的地里边、在南方的所谓工厂里，让你终生只能眼观土地。然后你的腚就给共产党，还想干啥？没有比中国人更可怜的。
+G-News发布：海贼王M.D.LUFFY；
 
-就今天的阿富汗，我认为都比中国人的幸福。每时每刻我在说阿富汗饿死人是共产党的原因，但阿富汗人最起码他还有个宗教的选择。我们中国人没有比这更可怜的，这个羊群之可怜，你说中国人是羊的时候，太侮辱羊了！羊还能长出个毛，羊还能呼吸呼吸或者吃个健康的草，中国人吃啥？绝大多数都吃化学食品。你看到过日本人吃用中国的调料做的中国饭吗？你在日本见过吗？只要中国来的，日本人闻都不闻，扔得远远的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-你觉得都是人类，还有比我们再可怜的吗？所以说到这的时候，风雨之中，对于共产党来说那是太正常不过的，无处不在的。 我们爆料革命到今天，我最大的感触就是我跟你们几个说话的时候，说实话我就跟石头说话的感觉一样。我过去这些年的痛苦，我到现在我还是那么痛苦。我从来不觉得有多少人能懂我，我跟你们说这种话发自内心的，那就像跟石头说话。就你问这个问题，就像石头在问我的话，我为什么叫石头？你本来就是石头，你为什么要叫石头？你本来就是石头。你应该问是谁让你变成的石头？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

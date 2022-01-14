@@ -2,39 +2,35 @@
 ---
 
 
-## 美国要求未接种疫苗联邦雇员每周进行病毒检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858533/)
+## 2021年朝鲜网络犯罪盗窃加密货币达到顶峰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858616/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，拜登政府宣布，从2月15日开始，未接种疫苗的联邦雇员需要每周接受中共病毒检测。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-18.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-26.jpg)图片来源：Stedmood
+1月13日，《国会山报》报道，根据周四发布的一份报告，朝鲜黑客在2021年盗取了近4亿美元的加密货币，达到其网络犯罪活动的顶峰。
 
-据悉，美国350万联邦工作人员中有90%以上在拜登去年11月的最后期限前接种了至少一剂中共病毒疫苗。新的联邦测试指南适用于那些获得或正在申请豁免的人。
+软件公司Chainanlysis(区块链分析公司)创立于2014年，总部位于美国纽约州纽约市，是一家为全球政府、加密货币交易所、国际执法机构、银行和企业提供区块链数据和分析软件，以帮助他们遵守合规要求、评估风险并识别非法活动的公司。
 
-根据指南，未接种疫苗的员工在现场工作或与公众互动前都必须接受中共病毒检测。
+根据Chinalysis的研究，朝鲜黑客已经有能力通过对加密货币平台的七次攻击中窃取到约4亿美元，从而在2020年到2021年，使得他们从这些攻击中获得的价值增长了40%。
 
-郭文贵先生曾在大直播中宣布全球的疫苗强制接种将会很快停止。拜登政府此举实际上已经在强制接种疫苗方面做出了让步。
+根据该公司的研究，这些攻击主要影响了投资公司和集中式交易所。黑客使用的方法包括“网络钓鱼诱饵、代码漏洞、恶意软件和高级社交工程陷阱”，以便从平台上获取资金，并将其放入所谓的热钱包（Hot Wallet）。
 
-参考链接：
+2021年，以太坊（Ethereum）占了朝鲜网络犯罪分子所盗资金的大部分，为58%。
 
-- [Unvaccinated federal employees must test for COVID weekly](https://news.yahoo.com/unvaccinated-federal-employees-must-test-211643878.html?utm_source=ground.news&amp;utm_medium=referral)
+Chainalysis说：“一旦朝鲜获得了这些资金的保管权，他们就开始了谨慎的洗钱过程，以掩盖和兑现”。
 
+然而，黑客们似乎对他们偷来的所有加密货币的洗钱速度很慢。该公司的分析发现，大约有1.7亿美元的加密货币未经清洗，其中约3500万美元是通过2020年和2021年进行的黑客攻击偷窃到的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+正如Chainalysis在其报告中所说，朝鲜最近网络偷窃行动“呈现了一个大规模支持加密货币犯罪的国家形象。朝鲜政府通过系统且复杂的黑客活动，无论是通过拉撒路集团 (Lazarus Group)还是其他犯罪集团，在2021年已经将朝鲜政府塑造成为了加密货币行业的大规模持续威胁”。
 
-总编：飞虹
-编辑：文特
-校正/发稿：海阔天空1
+文章报道，去年，司法部指控三名朝鲜人，分别是全昌赫（Jon Chang Hyok）、金日（Kim Il）和朴金赫（Park Jin Hyok），从美国相关组织窃取了13亿美元的现金和加密货币。据称，这三名黑客参与了2014年的黑客行动，但截至1月份，他们仍被认为是在逃状态。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**
+
+[North Korean hackers stole almost $400M in cryptocurrency, report says](https://thehill.com/policy/cybersecurity/589661-north-korean-hackers-stole-almost-400m-in-cryptocurrency-report-says)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
