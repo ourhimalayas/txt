@@ -15,86 +15,86 @@
 
 ---
 
-### [保罗参议员称福奇知道中共的病毒计划](/content/gnews/1/README.md)
+### [桥水基金的雷•达里奥和中共勾兑极深 共享财富就是把财富共享到几个家族手里](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [中国共产党就是邪教](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [政府数据显示超过 94.6 万人因接种冠状病毒疫苗致伤或死亡](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [保罗参议员称福奇知道中共的病毒计划](/content/gnews/4/README.md)
  ` 华盛顿DC-Russian`
 
-### [意大利50岁以上不接种加强针人群将面临100欧元的罚款](/content/gnews/2/README.md)
+### [意大利50岁以上不接种加强针人群将面临100欧元的罚款](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥说“不敢、不能和不信终会改变”（2022-01-09摘录）](/content/gnews/3/README.md)
+### [七哥说“不敢、不能和不信终会改变”（2022-01-09摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [七哥谈中共官员子女内部勾当（2022-01-09摘录）](/content/gnews/4/README.md)
+### [七哥谈中共官员子女内部勾当（2022-01-09摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [免费新冠病毒检测可能会花费保险公司数十亿美元](/content/gnews/5/README.md)
+### [免费新冠病毒检测可能会花费保险公司数十亿美元](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈中国母文化（2022-01-09摘录）](/content/gnews/6/README.md)
+### [七哥谈中国母文化（2022-01-09摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/7/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈锁币策略（2022-01-09摘录）](/content/gnews/8/README.md)
+### [七哥谈锁币策略（2022-01-09摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [2022年1月14日大直播全文精萃](/content/gnews/9/README.md)
+### [2022年1月14日大直播全文精萃](/content/gnews/12/README.md)
  ` 文贵直播大事记`
 
-### [美国最高法院阻止拜登针对大型企业的疫苗或测试强制政策](/content/gnews/10/README.md)
+### [美国最高法院阻止拜登针对大型企业的疫苗或测试强制政策](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈对生和死的理解（2022-01-09摘录）](/content/gnews/11/README.md)
+### [七哥谈对生和死的理解（2022-01-09摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [美国NIH为研究变性猴支付了20.5万美元费用](/content/gnews/12/README.md)
+### [美国NIH为研究变性猴支付了20.5万美元费用](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/13/README.md)
+### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国的奴隶控制模式](/content/gnews/14/README.md)
+### [中共国的奴隶控制模式](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/15/README.md)
+### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [台湾称要做好准备应对来自中共的军事威胁](/content/gnews/16/README.md)
+### [台湾称要做好准备应对来自中共的军事威胁](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈人类实在真的很渺小（2022-01-09摘录）](/content/gnews/17/README.md)
+### [七哥谈人类实在真的很渺小（2022-01-09摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [Frontline America 的创始人感染新冠住院：医院里挤满了接种三针的人，接种和没接种疫苗的都有病人死亡，但人们对此闭口不谈](/content/gnews/18/README.md)
+### [Frontline America 的创始人感染新冠住院：医院里挤满了接种三针的人，接种和没接种疫苗的都有病人死亡，但人们对此闭口不谈](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [口罩有用吗？封锁有用吗？经济会崩溃吗？谁去调查病毒起源？](/content/gnews/19/README.md)
+### [口罩有用吗？封锁有用吗？经济会崩溃吗？谁去调查病毒起源？](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022年1月14日文贵先生直播摘要及音频—银河系农场](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [天津107例感染者中103人已全程接种疫苗](/content/gnews/21/README.md)
+### [天津107例感染者中103人已全程接种疫苗](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞总裁承认前两针疫苗作用不大](/content/gnews/22/README.md)
+### [辉瑞总裁承认前两针疫苗作用不大](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2018年7月17日 郭文贵先生直播 全文字版](/content/gnews/23/README.md)
+### [2018年7月17日 郭文贵先生直播 全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [中共不会再有二十大，中共会被消灭在二十大](/content/gnews/24/README.md)
+### [中共不会再有二十大，中共会被消灭在二十大](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [更多地区被封城 中共却辩称种族灭绝冬奥“不封锁”](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑](/content/gnews/26/README.md)
+### [有声|中共病毒死亡率调查结果引发人們對疫苗接種必要性的质疑](/content/gnews/27/README.md)
  ` MOSREC`
-
-### [为什么社会主义会破坏美国的经济和自由（3/3）](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/28/README.md)
  ` GTV新闻访谈`
