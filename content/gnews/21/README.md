@@ -2,48 +2,87 @@
 ---
 
 
-## 叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1859902/)
+## 1月23日将在华盛顿特区举行 “击败授权”大规模集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1859995/)
 
-作者：纽约香草山信息部 – 6zero4
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1096.png)图片来源:thegatewaypundit.com
 
+超过六千名联邦工作人员也将参加在华盛顿DC举行的集会，其中包括：消防员、急救人员、医生，美国人在和平游行中击败授权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+演讲者初步名单
 
+布雷特·温斯坦（Bret Weinstein），
 
+罗伯特.小肯尼迪（Robert F. Kennedy Jr.）、
 
-郭先生在2022年1月12日的大直播中提到，叛国和卖国并不是你想叛就叛、想卖就卖，而是要有资格才能叛国和卖国！
+保罗·亚历山大医生（Paul Alexander）、
 
-什么叫叛国？首先得有你承认的宪法，并跟你出生或你认可的那个国家之间有宪法之契约，在宪法下宣誓她是我的祖国且忠于这个国家，一旦你背叛了这个宪法约束的规则就叫叛国。什么叫卖国？卖国就是把你承认并宣誓过的国家的资产，而不是个人资产，非法卖给他国才叫卖国！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.4.jpg)
-帕米尔高原曾在中共口中腐朽的满清时期都还全境属于中国，而现在阿富汗和塔吉克斯坦才是占领帕米尔高原核心地区的两个国家。1959到1960年，时任中共领导人毛贼东和周恩来把帕米尔高原阿富汗一侧山脉的96%送给了阿富汗。2002年，时任中共领导人江泽民和朱镕基在中华人民共和国人民日报上宣布，解决了中塔两国的领土纷争问题，签署了战略性合作协议，将28万平方公里中99%的领土永久送给了塔吉克斯坦；这笔土地交易的背后是在当地成立了一个矿产公司，拥有这个地方的矿产开发权，至今江泽民、朱镕基、曾庆红和孟建柱家族每年都在那拿到天量的钱和成吨的和田玉，且这些和田玉的价格全由江、曾、朱、孟控制。
+罗伯特.马龙医生（Robert Malone）、
 
-宪法是保护公民生命权、自由权和财产权等基本人权的根本法，可现实和我们的身份证都表明了我们连公民都不是，只是临时租住在这块土地的居民。到处是活得猪狗不如的同胞杨改兰，何谈生命权？我们只有一个自杀的权利！我们也根本没有言论、结社、游行的自由。土地国有化的我们没有一寸属于自己的土地，自己的房子只要被中共盯上了随时被强拆，私有财产随时被中共以“共同富裕”的理由强征。
+彼得·麦卡洛医生（Peter McCullough）、
 
-中共的宪法是只保护他们体制内自身利益的家法，老百姓本身都成为了中共的私产即奴隶，这样的宪法怎么可能是我们共同宣誓的誓言?何况我们连装模作样宣誓的权利都没有！这个国家根本不是我们老百姓的国家，我们哪有资格叛国和卖国？中国的领土已成为了中共的私产，只有其主人共产党员才有资格来判国和卖国，老百姓连叛国和卖国的机会都没有，何谈叛国和卖国？
+杰西卡·罗斯医生（Jessica Rose）、
 
-参考链接：
-1. [2022年1月12日大直播全文精萃](https://gnews.org/zh-hans/1852684/)
-2. [2022年1月12日 文贵大直播：伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况；疫苗灾难和新变种病毒的感染数据](https://gtv.org/video/id=61df44f3a6dfdd6031535439)；
+皮埃尔·科里医生（Pierre Kory）、
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+保罗·马里克医生（Paul Marik）、
 
-编辑/校对/发稿：为真不破20
+克里斯蒂娜·帕克斯医生（Christina Parks）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+亚伦·赫里亚蒂医生（Aaron Kheriaty）
 
+瑞恩·科尔（Ryan Cole）、
 
+理查德·乌索医生（Richard Urso）、
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+疫苗受伤代表、
 
+公民权利和宪法律师特里西娅·林赛（Tricia Lindsey）、
 
+威尔·维特（Will Witt）
 
+工会活动家 特拉梅尔汤普森（Tramell Thompson），
+
+劳拉·洛根Lara Logan、
+
+德尔·比格特里（Del Bigtree）、
+
+史蒂夫·基尔希（Steve Kirsch）、
+
+克里斯·马滕森（Chris Martenson）、
+
+乔·罗斯（Jo Rose ）和消防员
+
+“选择自由行动 ”的温迪·威廉姆斯（Wendy Williams）,
+
+塞缪尔·伊顿（Samuel Eaton），
+
+里克·斯特尔（Rick Sterl），
+
+威尔·琼斯（Will Jones.）。
+
+该组织在一份声明中宣布，由 6,000 多名联邦工作人员组成的全国基层联盟 FEDS 为 医疗自由，“将与数千名关心的公民一起，从华盛顿纪念碑和平走到林肯纪念堂。现在不是放弃既定法律保护的时候 ：保护工作场所不受歧视、知情同意使用未经许可的疫苗，和雇主进行个性化评估。”
+
+游行将从华盛顿纪念碑开始，到林肯纪念堂结束，那里将有一个集主题演讲、艺术家和音乐家组成的节目。组织者认为，最终“击败授权——美国回归”，将有助于制定新的联邦、州和地方政策，以消除目前正在发生的**公然歧视和审查制度**。
+
+组织者敦促所有参加游行的人，尊重受影响的当地企业，包括在华盛顿DC的授权下被迫运营的餐饮场所和酒店。
+
+由全国消防部门现役和退休消防员组成的非营利组织“**自由选择行动**”，也将与华盛顿的数百名消防员联手。
+
+“美国回归”的其他组织者包括：前线 COVID-19 重症监护联盟、儿童健康防御和全球 Covid 峰会。
+
+更多内容即将公布。我们将在收到更新后发布更多更新……
+
+新闻来源:[thegatewaypundit.com][Massive “Defeat the Mandates” Rally Planned for Jan. 23 in Washington DC — SPEAKERS INCLUDE: RFK, Jr, Dr. Malone, Dr. McCullogh, Lara Logan, Steve Kirsch, etc.](https://www.thegatewaypundit.com/2022/01/massive-defeat-mandates-rally-planned-jan-23-washington-dc-speakers-include-rfk-jr-dr-malone-dr-mccullogh-lara-logan-steve-kirsch-etc/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|墨西哥总统再次感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1859893/)
+## 应对用工荒，澳洲维多利亚地区进一步放宽隔离限制
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1859967/)
 
-配音：香草山佛教部 – 李傻
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011405.jpg)网络图片
+由于CCP病毒导致了严重的人员短缺，维多利亚州更多的工作岗位将放宽密切接触者的隔离要求。州长丹尼尔安德鲁斯今天宣布，紧急服务、教育、关键公用事业、保管设施以及运输和货运部门将与食品生产和分销行业一样，从下周二开始免除关键工人的 7 天隔离要求。
 
+州长表示：“如果雇员扮演着关键角色，他们将免于居家隔离……他们需要用五天时间进行CCP病毒测试，如果结果为阴性，他们可以继续进行这项关键工作。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月10日，据相关媒体消息显示，墨西哥总统洛佩兹·奥夫拉多当天宣布，他第二次感染了中共病毒，同时，虽然此次症状较轻，但他将继续隔离工作直至康复。
+从下周二开始，在紧急服务、教育、关键公用事业、保管设施以及运输和货运行业中履行关键工作职能的家庭密切接触者将免于 7 天的隔离要求。
 
-对此，墨西哥政府官员透露，68 岁的奥夫拉多总统曾于2021年 1 月第一次感染中共病毒，康复后，他接种了中共病毒疫苗及其加强针。
+不过密切接触者只能离开家去上班，其余时间他们仍将被隔离，在此期间社交活动是不被允许的。在工作期间密切接触者也被要求与其它员工分开用餐，在工作时间段内需要佩戴N95口罩。
 
-此外，虽然墨西哥政府的疫情封锁限制相对较少，但奥夫拉多总统在中共病毒疫苗接种政策上却非常强硬。数据显示，墨西哥城几乎所有的成年人至少接种过两剂中共病毒疫苗。
+CCP病毒防疫指挥官 Jeroen Weimar 警告说，放宽的隔离规则并不意味着这些部门的所有工人都可以躲避隔离，只有那些执行关键工作职能的人才能上班。Weimar先生表示：“这些工人需要被小心对待……从 Omicron的大流行中，我们知道大约四分之一或一半的密切接触者最终会被感染。”
 
-即便如此，随着奥米克戎变种病毒的传播，墨西哥最近的新增确诊感染人数暴涨。仅1月8日一天，墨西哥新增中共病毒确诊病例数创下了三万零六百七十一例的新高。
+新闻参考链接：[Victoria’s close contact isolation rules ease for additional industries](https://www.9news.com.au/national/coronavirus-updates-victoria-new-case-numbers-new-restrictions-return-overnight/bb9f6fbc-74b8-43bc-a8d9-88652917a5cb)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-文字版原文：[墨西哥总统再次感染中共病毒](https://gnews.org/zh-hans/1851530/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

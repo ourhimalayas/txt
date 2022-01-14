@@ -2,77 +2,34 @@
 ---
 
 
-## 2022年1月14日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1860108/)
+## 美国NIH为研究变性猴支付了20.5万美元费用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1860267/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9c0456ff655d6d29313a111d39de5c95_副本.jpg)
-视频连接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；2017年帮中共游说川普遣返郭先生；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gettr.com/streaming/poabard70a)
+编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-3-5.jpg)图片来源：Patrick Hauf • January 
+美国国家过敏和传染病研究所（NIAID）在2021年12月给斯克里普斯研究所（Scripps Research）提供了20万5562美元用于这项研究，通过给雄性猴子注射女性荷尔蒙来研究：为什么变性妇女的艾滋病毒感染率高。据美国国立卫生研究院（NIH）称，作为研究的一部分，研究人员让雄性猴子接受女性化的激素治疗，以研究它如何影响猴子的免疫系统。
 
-1、直播前审孙力军的人被抓；
+自1984年接管NIAID以来，Fauci监督了猖獗的动物试验。11月披露，NIAID资助了一项研究，用心脏蠕虫幼虫感染小猎犬，并在实验后对其实施安乐死；作为另一项研究的一部分，研究人员用来自蜱虫的变异细菌感染小猎犬。
 
-2、美国最高法叫停疫苗强制令，是法律，中共是行政命令；
+Fauci负责一年后，NIAID开始在猴子身上进行HIV疫苗测试。NIAID每年从查尔斯河实验室（Charles River Laboratories）租用的南卡罗来纳州的一个岛屿上获得400至600只恒河猴，该实验室与NIAID有2750万美元的合同。
 
-3、美国最高法叫停疫苗强制令：只要美国停，世界必然停，全世界以法灭疫从昨天开始！
+PETA（善待动物组织）的神经科学家凯瑟琳·罗博士（Dr. Katherine Roe）说，这项研究是“又一个毫无意义、浪费的猴子折磨实验；认为给猴子注射女性化药物使它们成为人类的好替身，这只是糟糕的科学；这项研究无助于预防或治疗艾滋病毒，也无助于变性的妇女”。
 
-4、曾江真的会玩，习近平现在的班子还不及曾江的1%；
+罗说，这项研究是无效的，因为猴子不能感染艾滋病毒。它们感染的是 Simian Immunodeficiency Virus，是一种较温和的疾病形式。她指责美国国家卫生研究院花费数十亿美元在艾滋病毒研究中使用猴子，因为灵长类动物不会感染艾滋病。
 
-5、OMICON：一定要带口罩；
+斯克里普斯·佛罗里达（Scripps Florida）告诉《自由灯塔》，测试“亚种群”是发现有效治疗致命疾病的关键：“你所提到的研究涉及感染艾滋病毒风险较大的亚人群，以及可能会或不会影响他们对正在开发的治疗/预防方法的反应的因素。正是通过这些类型的有针对性的研究，针对艾滋病毒、癌症、ALS、痴呆症–实际上是大多数疾病和病症–的实质性进展将得以实现。”
 
-6、四个重点：
+NIAID已经向研究变性人艾滋病毒传播的研究人员提供了数百万美元，变性人感染艾滋病毒的可能性比非变性人高49倍。该机构向阿拉巴马大学的一名研究人员提供了超过15.5万美元，用于研究女性的睾丸激素治疗如何潜在地削弱阴道内的抗病微生物。埃默里大学（Researchers at Emory University）的研究人员获得了23万多美元，用于研究变性人的直肠免疫细胞如何影响艾滋病风险。
 
-1）不要打疫苗，2）戴口罩，3 ）不要出去，4）爆料革命和国家政权相比，就是一粒沙；
+参考资料：[freebeacon][Fauci’s NIH Division Paid $205K for Researchers To Study Transgender Monkeys](https://freebeacon.com/biden-administration/faucis-nih-division-paid-205k-for-researchers-to-study-transgender-monkeys/)
 
-7、美国曾经要把数字货币从地球上消除，美联储现在准备和喜美元合作；
+* * *
 
-8、比特币是百分之百由6%的人控制94%；
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心*的选择
 
-9、最近有70个有钱的战友成功逃出中共国，在国内不敢买喜币，出来后陆续从二级市场购买了40万个喜币！
-
-10、李永波100%会被抓；
-
-11、中共和6个国家外交部长冬奥会勾兑过程中，必谈：1）不需和新中国联邦勾兑；2）不许和喜联储合作，3）必须屏蔽GTV/Gnews，但是不敢提美国注册的GETTR；
-
-12、YouTube和中共合作，屏蔽爆料革命战友YouTube账号，以换取中国市场；
-
-13、Joe Rogan 误会GETTR数据造假；
-
-14、小飞象政治庇护几个月就通过了，说明移民局认可了新中国联邦是被迫害的目标；
-
-15、最快获得政治庇护不是小飞象，2018年战友看文贵直播被迫害跑出来了，申请政治庇护被移民官马上批准；
-
-16、共产党派了6个卧底到Gclub第一次抽奖，2个中奖，全部兑现，行动失败；
-
-17、茅台酒销售经理曾祥彬自杀，因为知道自己末日快到了；
-
-18、男女关系上，共产党是最邪恶的！只要有点名的老少明星全被孙立军发生关系；
-
-19、今年都会发生：1）经济危机（预想的快）2）病毒溯源。全世界经济危机、病毒溯源，最后的替死鬼就是共产党；
-
-**注：大直播音讯正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 
