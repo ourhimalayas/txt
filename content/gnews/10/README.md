@@ -2,34 +2,74 @@
 ---
 
 
-## 海外华人被中共代理人代表的巨大风险
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1857586/)
+## 七哥对墙内战友购买喜币的三个保证
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1857635/)
 
-撰稿：北纬农夫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-13-at-8.29.15-PM.png)图片来源：itv.com
-1日13日，BBC中文头版头条以《英国华人社区代表被军情五处指控为中共代理人》为题，报道了长期在英国经营律师业务的李贞驹（Christine Ching Kui Lee）向政界人士捐款，蓝金黄现任议员和有意竞选成为国会议员的人，她的资金来自在中国和香港的非英国人。
+[https://gtv.org/video/id=61e0234187664c47acd41fc0](https://gtv.org/video/id=61e0234187664c47acd41fc0)
 
-BBC中文网为什么在标题里以“华人社区代表”而不是直接点名中共代理人“李贞驹”（Christine Ching Kui Lee）的名字呢？代表英国华人是李贞驹的个人说辞，军情五处清楚点名李贞驹是与中国统战部秘密协调的中共代理人。
+**郭文贵
+Miles Guo**
 
-军情五处发出的警报中称，李贞驹声称她与议会的往来目的是为了“代表英国华人、推动多元化”。但军情五处说，那些活动“是与（中共）统战部秘密协调展开的，资金来自在中国和香港的外国人，而且，她与英国政界人士有“广泛接触”，其中包括现在已经解散的名为“在英华人”的跨党派议会小组。军情五处还警告，李贞驹“可能希望建立议会团体以推进中共的议程”。
+你们千万不要因为买币就到(墙内)银行去汇款去，十之八九会被警察找上门
+Don’t go to the bank to send money just because you want to buy Hcoins, because nine out of ten, the police will be after you
 
-四年来爆料革命的进程，让我们充分认知了中共的邪恶本质以及中共奴役中国人和渗透世界的不择手段，对像这样的共产党渗透西方政界手段已经了如指掌。但通过这则报道，一方面，我们看到了就是李贞驹（Christine Ching Kui Lee）这样的共匪特工，堂而皇之地代表了我们海外华人，在这个自我标榜外衣的掩盖下，执行的确是共产党不可告人的邪恶任务。但当东窗事发，我们被代表、被裹胁、被绑架的海外华人将承受怎样的无妄之灾呢？
+宁可不买币也不要给自己惹上麻烦，一定要在安全的情况下有汇款保证下再去KYC
+it would rather not buy coins and not to get yourself into trouble, be sure to do KYC in a safe situation with a remittance guarantee
 
-印尼98排华的惨烈噩梦远去了吗？共产党蓝金黄全世界、生化攻击全世界的邪恶行径公布于世之时，我们海外华人还有可以容身的地方吗？
+KYC最好找战友，我们现在亚洲的战友很多
+It is best to find comrades-in-arms for helping you to do KYC, we have a lot of comrades-in-arms in Asia now
 
-另一方面，通过这则报道，我们看到了共产党大外宣的策略，凡是干坏事，都代表了中国人民，凡是伟光正，都是中国共产党的英明领导！所以，越是在共产党邪恶败露之际，中共大外宣都会把我们海外千千万万的华人和邪恶的共产党绑在一起，成为世界讨伐邪共的最早牺牲品！从BBC中文网的报道标题看，它充当了中共大外宣的工具。
+日本的方舟农场、银河农场、樱花农场
+Japan’s Ark Farm, Galaxy Farm, Cherry Blossom Farm
 
-正如郭文贵先生警示的那样，如果我们海外华人还不和共产党彻底切割，勇敢站出来向西方揭露共产党邪恶的一切，那么随着共产党邪恶被揭露，海外华人将面临极其惨烈的灾难！
+还有我们的韩国的天池农场，都可以帮忙，包括新加坡的农场
+and our Tianchi Farm in South Korea, they all can help, including the Farm in Singapore
 
-如今，郭文贵先生发起的爆料革命、新中国联邦已经凝聚了亿万反抗中共的全球华人，并拥有了自己的发声平台，如GTV、GNEWS、GETTR等社交媒体，突破了中共花费巨资的围剿，已将铲除中共这面正义的旗帜飘扬在世界各地！爆料革命2019年在美国发起的‘法治基金’和‘法治社会’两个反共基金，正在发挥着巨大的作用，一方面在全世界彻底揭露共产党的邪恶，另一方面保护我们海外华人的安全与尊严，营救被共产党迫害的同胞！
+如果不行，你跟所有的我们在大直播中认识的战友保持联系
+If not, keep in touch with all the comrades-in-arms we met on the grand broadcast
 
-因此，跟随爆料革命、加入新中国联邦，拒绝被代表，揭露中共，已是海外华人自我保护唯一的选择！
+一定确保你付款安全的情况下再去KYC，这是一个
+make sure your payment is safe before going to do KYC, this is one
 
-新闻链接：
+第二个，战友们我要告诉你们，国内战友,
+Second, comrades-in-arms, I want to tell you that comrades-in-arms in China
 
-[https://www.bbc.com/zhongwen/simp/uk-59980740](https://www.bbc.com/zhongwen/simp/uk-59980740)
+永远你们买的币我向你保证的三件事，七哥负一切责任，任何人不会拿走你的个人信息
+the coins you buy that I always promise you three things, Miles will take all responsibility, and no one will take your personal information
 
-校对发布: Shifter
+如果拿走了，我永远负责任，第二，不管共产党做什么事情
+If they take it away, I will always be responsible, second, no matter what the Communist Party does
+
+拿不走你的任何一个币，拿走你币我付责任
+they can’t take any of your coins, and I will take the responsibility if your coins were taken away
+
+第三个，你买了币进来以后你陪了钱七哥负责任，只能挣，不能赔
+The third one, after you buy the coins, if you lose money, Miles will be responsible, you can only earn, not lose
+
+只能挣，不能赔，就是国内的这战友，这是七哥保证的
+You can only earn, not lose, here’s what Miles promises you for the comrade-in-arms in China
+
+谢谢
+Thank you
+
+* * *
+
+Date: 01/12/2022
+原视频标题: 七哥对墙内战友购买喜币的三个保证
+Miles has three guarantees for comrades-in-arms in China who will buy Hcoins
+原视频日期：2022/01/09
+原视频链接：[https://gettr.com/post/pnedj0fbae](https://gettr.com/post/pnedj0fbae)
+任务编号：KC400（3473）
+视频时间段 : 0:00-1:26
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

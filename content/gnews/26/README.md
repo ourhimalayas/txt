@@ -2,44 +2,39 @@
 ---
 
 
-## 最高法院阻止了拜登对企业的新冠病毒疫苗授权，允许医护人员规则
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1857455/)
+## 全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857477/)
 
-Kevin Breuninger
+整理报道：BENJ1
+编辑：朝花夕拾
 
-Spencer Kimball
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-13-194137-edited.png)图片来源：网络
-要点
-
-- 最高法院周四阻止拜登政府执行其对大型私营公司的全面疫苗或测试要求。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
 
 
-- 但保守派多数法院允许类似的要求适用于接受医疗保险或医疗补助付款的医疗设施。
+麦当劳日本餐厅和肯德基澳大利亚餐厅分别面临着炸薯条和鲜鸡肉的短缺，迫使它们本月削减了一些常规菜单上的菜品。
 
+两家公司都将这些短缺归因于供应链的混乱，这也影响了世界各地的其他餐厅。
 
-- OSHA的授权要求拥有100名或100名以上员工的企业的工人必须每周接种疫苗或提交新冠病毒检测呈阴性才能进入工作场所。
+在澳大利亚，肯德基表示，由于难以找到其最重要的原料——新鲜鸡肉的供应，该公司已暂时从全国某些地方的菜单上删除了一些菜品。该公司表示，其供应商受到了与新冠疫情相关的员工短缺的打击。
 
+肯德基一位发言人表示：“我们正在与多家供应商合作，以减轻影响，并向他们提供支持，但我们预计，未来几周还会出现一些中断。”
 
-最高法院周四阻止拜登政府执行其对大型私营公司的全面疫苗或检测要求，但允许疫苗授权适用于接受医疗保险或医疗补助的医疗设施。
+与此同时，由于土豆短缺，日本的麦当劳餐厅被迫再次暂停了中份和大份薯条的供应。
 
-这些裁决是在职业安全与健康管理局的紧急措施开始生效三天后做出的。
+参考新闻：
+[https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml)
 
-这项任务要求拥有100名或100名以上员工的企业的工人必须每周接种疫苗或提交新冠病毒检测呈阴性才能进入工作场所。它还要求未接种疫苗的工人在室内工作时戴口罩。
+发布：tianzhihan
 
-法院在一份未签署的意见中写道，尽管国会无可争议地赋予OSHA监管职业危险的权力，但它没有赋予该机构更广泛地监管公共卫生的权力。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-法院写道，要求8400万美国人接种疫苗，仅仅因为他们为员工超过100人的雇主工作，这当然属于后一类。
-
-想阅读更多，请点击原文链接。
-
-来源链接：[https://www.cnbc.com/amp/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html](https://www.cnbc.com/amp/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
-
-编辑/发布：LILY
-
-20220113
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

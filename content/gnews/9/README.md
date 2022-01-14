@@ -2,139 +2,24 @@
 ---
 
 
-## 重庆大爆炸预示着中共迎来争夺二十大的决战时刻—习曾之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1857595/)
+## 1.13大直播后记：对质疑要有常识
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857645/)
 
-[https://gtv.org/video/id=61e01be987664c47acd41c78](https://gtv.org/video/id=61e01be987664c47acd41c78)
+整理：雅典娜速记组
+编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-15.jpg)
+咱们战友有些人问问题的时候，喜欢打破砂锅问到底。就是咱们上班农战斗室节目的人，一是话讲太多；二就是不尊重对方，就是你问的问题，人家说1加1等于2，然后你说2加3等于几？你把人问死拉球倒。就是刚才问的问题啊，第一，7哥不可能全知道。第二，你这个问题就像我必须参与到其中，换过器官，我才能知道的，你知道这对你半点意义没有，共产党换器官是肯定的，你问这干啥？这个最基本的常识，你不要问。这就告诉战友们，特别是很多人到班农节目，最近一段时间有些离谱了。有很多战友上去节目以后，完全不懂人家西方的采访规则，乱讲话，讲起来人家问一，你说天，人家问天，你说大草原，就完全不着主题，就刚才的问题非常简单，所有的这个移植，在中国的移植技术不需要任何其他的。中国人现在器官移植、干细胞移植技术上是全世界最先进的国家之一，把猪的心脏都移到人身上，中国人干的。中国的干细胞移植公司叫大华基因，我告诉你，那玩这个比美国一点都不低。因为西方有限制，有道德有法律，中国没有道德、法律的。在西藏一个器官移植直升机也好，飞机也好，有各种路线，包括有人说王行军那为啥能去啊？是不是什么共产党？战友们，在中国只要有钱，你就会有钱和权交集，就发生。就像七哥，到新疆不会有人查我的身份证，军队开车是吧？到西藏去，汽车全是解放军的车跟着，那怎么会查？我不查别人都不错了。正因为你没有经历，你不要问这些问题，没有任何意义。所以战友们以后一定要在大直播问有用的，对大家都能受用的问题。你的答案很简单，共产党肯定换器官。然后是有组织有系统化的，然后怎么方便怎么来，而且不会考虑任何痛苦。那么我们战友们当中，就刚才问这个问题，比如说活摘器官呢？比如说共产党在西方的蓝金黄。一定要坚持唯真不破，你千万不能猜，你也不能预测。这不像你打架，你有本事预测到对方怎么出腿。
 
-**郭文贵
-Miles Guo**
+战友们找了昆仑山，找出来一个解放军的一个正常的军事基地，你就觉得解密了。你能知道几个峰你都不错，你想想多可悲呀。连哈萨克斯族的青青草原，她知道新疆啥呀，她在新疆享受什么样的新疆生活，他去过几次喀什，喝过多少次帕米尔高原的水？你真的以为你知道吗？你啥都不知道，这就是共产党。把所有的中国人圈在了一个圈里面。在家里边儿，在东北的炕上，在中国的小房子里边儿，在农民的地里边，在南方的手绘工厂里，让你终生只能眼观土地。然后你的腚就给共产党。还想干啥。没有比中国人更可怜的。就今天的阿富汗，我认为都比中国人的幸福。每时每刻我在说阿富汗饿死人是共产党的原因，但阿富汗人最起码他还有个宗教的选择。我们中国人没有比这更可怜的，这个羊群之可怜，你说中国人是羊的时候，太侮辱羊了。
 
-说到这儿的时候
-Hablando hasta aquí
+发布：tianzhihuan
 
-兄弟姊妹们
-Hermanos y hermanas
-
-你知道重庆的事件意味着什么吗
-Sabes a qué se refiere el incidente de Chongqing
-
-陈敏尔到那块儿去是政治镀金
-Chen Min’er va para allá es por la prosperidad política
-
-同时也是个非常险恶的地方
-Al mismo tiempo es un lugar muy siniestro
-
-刚刚的所谓这5个大内阁, 20大最核心人物出来
-Lo que se mencionó hace rato, los llamados 5 gabinetes grandes, salieron los 20 personajes más centrales
-
-就开始出这事儿
-Y empezaron los accidentes
-
-它不是人为的
-No son hechos por las personas
-
-我认为是天意, 是偶然
-Yo pienso que es la voluntad de Dios, es casualidad
-
-而且也开启了共产党争夺20大的一种大屠杀的开始
-Y también abrió el comienzo de una especie de masacre en la que el Partido Comunista competía por el XX Congreso Nacional
-
-接下来会是谁, 陈全国
-Quién será el siguiente, Chen Quanguo
-
-胡春华, 丁薛祥, 都会有这样的事儿发生
-Hu Chunhua y Ding Xuexiang les pasarán este tipo de cosas
-
-所以我才2次以前直播
-Por eso en la transmisión en vivo de las dos veces anteriores
-
-我说
-Dije
-
-兄弟姊妹们, 这个名单的公布
-Hermanos y hermanas, el anuncio de esta lista
-
-和江湖上的流传既是试金石
-Así como se propagaba en la sociedad civil, es la piedra de toque
-
-同时也是最后的一场
-Y a la vez es la última
-
-战争完最后就剩下几个人了
-Luego de la guerra, al final quedan algunas personas
-
-看谁决定胜负, 咱都分两派站出来吧
-A ver quién decide la victoria, vamos a dividirnos en dos partidos
-
-对决的时候, 这对决的时候
-A la hora del combate
-
-你看有两种人
-Podrás ver que habrá dos tipos de personas
-
-一种是一定要你死在战场上
-Uno es morirás seguramente en medio de la guerra
-
-不允许你回去的
-No te permiten regresar
-
-那把你送出去, 去战去
-Te envían a la guerra
-
-一种, 我要在这儿, 选出一个王子出来
-El otro es, voy a estar aquí para elegir a un príncipe
-
-选出一个继承人出来
-Elegir un heredero
-
-那就要最后倒下的
-Entonces deberá ser el último en caerse
-
-全都不行, 那就是王者行
-Nadie puede, será el príncipe
-
-共产党的20大是什么
-Cuál es el XX Congreso del Partido Comunista
-
-送出去的人可能都希望都死掉
-Posiblemente las personas que fueron enviadas serán muertas
-
-因为决定谁出去参战的人, 可能是唯一活下来的人
-Porque el que decide quien sale a la guerra, puede que sea la única persona que sobreviva
-
-因为他不用在战场当中, 是吧
-Porque él no necesita estar en la guerra, cierto
-
-这时候就看起来, 最后的决战是习, 曾
-En este momento verás que la guerra final es entre Xi y Zeng
-
-所以重庆还有20大的名单出来
-Por eso Chongqing todavía hay una lista del XX Congreso
-
-就开启了习曾之战
-De esta forma, se inicia la guerra entre Xi y Zeng
-
-* * *
-
-日期：01/11/2022
-原视频标题：重庆大爆炸预示着中共迎来争夺二十大的决战时刻—习曾之战
-La gran explosión en Chongqing presagió el momento decisivo para que el PCCh compitiera por el XX Congreso Nacional: La Batalla entre Xi y Zeng
-
-原视频日期：01/10/2022
-原视频网址：[https://gettr.com/post/pndsjtab14](https://gettr.com/post/pndsjtab14)
-任务编号：KC410（3454）
-视频时间段：00:00-01:47
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

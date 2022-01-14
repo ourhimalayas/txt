@@ -2,38 +2,42 @@
 ---
 
 
-## 全球供应链危机，日本麦当劳缺薯条，澳洲肯德基缺炸鸡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857477/)
+## 短视频：美国国家冰球联盟将不参加北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857490/)
 
-整理报道：BENJ1
-编辑：朝花夕拾
+#### 翻译：Lish
+校对：精靈藍
+剪辑/字幕：文驰
+编辑：文泓
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/UJ6Y4@LOZILUQZ0BE.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会-1.png)图片来源：视频截屏
 
 
-麦当劳日本餐厅和肯德基澳大利亚餐厅分别面临着炸薯条和鲜鸡肉的短缺，迫使它们本月削减了一些常规菜单上的菜品。
+新冠疫情正在复燃，美国最受欢迎的一些消遣活动暂停赛事，例如全国曲棍球联盟已第一个宣布暂停几十场预定的比赛。
 
-两家公司都将这些短缺归因于供应链的混乱，这也影响了世界各地的其他餐厅。
+吉姆·格雷是一名体育记者和福克斯新闻体育分析员，也是天狼星XM电台节目和播客的主持人。
 
-在澳大利亚，肯德基表示，由于难以找到其最重要的原料——新鲜鸡肉的供应，该公司已暂时从全国某些地方的菜单上删除了一些菜品。该公司表示，其供应商受到了与新冠疫情相关的员工短缺的打击。
+吉姆，很高兴见到你，有一段时间没有见到你了，谢谢你来参加我们的节目。
 
-肯德基一位发言人表示：“我们正在与多家供应商合作，以减轻影响，并向他们提供支持，但我们预计，未来几周还会出现一些中断。”
+我不敢完全相信，我们今年还在讨论运动队再次暂停比赛的问题，但我们又来谈论了。你在过去一直非常支持不同的运动联盟因新冠而暂停比赛和赛季，这仍然是正确的做法吗？
 
-与此同时，由于土豆短缺，日本的麦当劳餐厅被迫再次暂停了中份和大份薯条的供应。
+好吧，我想我们必须准确判断病毒和全国冰球联盟（NHL）的情况，让我给你说个消息，而且这不是一个令人高兴的消息。他们不打算参加或让他们的球员参加2月在北京举行的奥运会，他们本来是会去的，有份公告预计明天会由NHL和球员协会宣布。
 
-参考新闻：
-[https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml](https://finance.sina.com.cn/stock/usstock/c/2022-01-13/doc-ikyakumy0105463.shtml)
+他们只是觉得这将会严重影响他们的赛季，而现在他们的赛季暂停了，至少圣诞节期间要遵守更严格的规定直到1月1日。所以不参加北京冬奥会。对很多想参加比赛的球员来说是一个巨大的打击。
 
-发布：tianzhihan
+好吧，那确实是一些突发新闻。国家冰球联盟不参加奥运会，由您来给我们带来重大新闻。
 
+视频链接：[NHL won’t participate in Beijing Olympics: Jim Gray | On Air Videos | Fox News](https://video.foxnews.com/v/6288035052001)
+
+发布：文泓
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

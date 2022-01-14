@@ -2,41 +2,66 @@
 ---
 
 
-## 拜登本应通知OSHA收回疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1857284/)
+## 魁北克对未接种疫苗者征税，特鲁多说“强有力的措施”已发挥作用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1857415/)
 
-#### 翻译：Annabelle
-校对：枳实
-剪辑/字幕：向上James
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011309.jpg)视频截屏
+摘要翻译：
 
-**字幕摘要（英汉对照）**：
+加拿大总理贾斯汀·特鲁多（Justin Trudeau）说，“激励措施和强有力的措施”在抗击新冠病毒（COVID-19）方面发挥了作用，他对魁北克省对未接种疫苗的居民征税的提议进行了权衡。
 
-I have to admit, Mike, I almost fell out of Santa sleigh when I heard that language,
+特鲁多在周三的中共病毒大流行病最新情况发布会上对记者说，渥太华正在审查魁北克省对没有医疗豁免的人征收附加利息的财政税的计划，并在等待该省的更多细节。他说：“正如我们所说，激励措施和强有力的措施，无论是疫苗护照，无论是对旅行者的限制要求，无论是对公务员全面接种疫苗的强制令，这些都是我们在过去采取的非常强有力的措施，这些措施在保护加拿大人的安全方面是有效的，我们将继续关注并与各省合作，研究提出的措施”。
 
-Mike 我得承认，当我听到那些话时，我几乎要从圣诞雪橇上掉下来了。
+魁北克省周二宣布，将在未来几周对那些拒绝接受疫苗的人实行经济处罚，因为那里的卫生保健系统持续受到新冠病毒病例增加的压力。省长弗朗索瓦·莱戈特（François Legault）说50美元或100美元的处罚在他看来还不够“重大”。
 
-because President Biden should tell his own administration that he doesn’t think there’s a federal solution.
+特鲁多说，该省向联邦政府保证，将尊重《加拿大卫生法》（the Canada Health Act）的关键原则，即每个人都可以在没有经济或其他障碍的情况下平等获得医疗保健服务。
 
-因为拜登政府本应该告诉他的政府，他不认为联邦政府有解决方案。
+卫生部长让·伊夫·杜克洛（Jean-Yves Duclos）对总理的讲话进行了补充，他指出疫苗强制令是有效的。他说“关于疫苗强制令，这里的关键词是仁爱。语言和行动都在那里，旨在保护人民。这是一种严重的疾病，我们希望人们得到保护……我相信，没有人在考虑或肯定说在加拿大正在强行为人们接种疫苗”。
 
-The first thing he should do is tell OSHA to pull back its vaccine mandate where it’s claiming that it has the right to tell basically every employee in every factory in office in the country that they have to get a vaccine.
+联邦政府在8月宣布，要求联邦工作人员和联邦监管的运输部门进行疫苗接种。
 
-他首先应该告诉’职业安全和健康管理局” 收回疫苗强制令， 它声称它有权要求，基本上这个国家每个职员，无论是工厂还是办公室都必须打疫苗。
+杜克洛重复了他在上周的政府新闻发布会上的观点，即他认为全国范围内更严格的疫苗强制令将是未来几天和几周的一个话题。
 
-And then the second thing you do is drop a Supreme Court case his administration is going to the High Court next week to defend the vaccine mandate.
+总理迅速指责保守党继续挑起关于加拿大要接纳未接种疫苗者的辩论。特鲁多说：“奥托尔（O’Toole）先生是为了试图保护他自己的领导地位，他没有想到要保护那些在前线工作的医护人员，试图假装快速检测，或一般来说的检测，与接种疫苗一样好，那根本就是不负责任的。”
 
-第二件要做的事情是撤销高级法院的诉讼，拜登政府下星期要在最高法院出庭辩护强制疫苗政策。
+奥图尔早就表示，虽然他支持接种疫苗，并鼓励加拿大人接种疫苗，但也必须做些努力为未接种疫苗者提供“合理”的便利。
 
-视频链接：[President Biden says there is no federal solution a year in as president ，he should tell OSHA to pull back its vaccine mandate](https://video.foxnews.com/v/6288945750001)
+保守党没有就魁北克省的提议发表公开声明。
 
-发布：枳实
+在周三的一个单独的新闻发布会上，新民主党卫生评论员唐·戴维斯（Don Davies）说，该党对政府鼓励人们接种疫苗的做法感兴趣。他说：“从根本上说，我们认为教育和信息是鼓励人们接种疫苗的有效方法，特别是针对那些对疫苗犹豫不决的人和对孩子接种疫苗有顾虑的父母。他补充说，他还没有机会与他的核心小组聊到这个计划，目前还不清楚100美元税收的预期影响。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+魁北克省有超过7000人在周二登记了第一剂新冠病毒疫苗。魁北克省卫生部长克里斯蒂安·杜贝（Christian Dubé）在推特上说：“这是几天来的最高值。他指出，周一也有5000人预约”。
+
+**简评：**
+
+中共病毒不仅毒害人们的身体，在某种程度上也毒害了人们的思想。从加拿大卫生部长杜克洛的言辞中就能感受到这一点，他说“关于疫苗强制令，这里的关键词是仁爱。在语言和行动上，都是旨在保护人民……”。把“疫苗强制令”和“仁爱”放到一起，风马牛不相干的事情，被牵强的的放在一起，这简直是极权的流氓作风。
+
+像加拿大这样在强制疫苗上睁着眼睛说瞎话的政府，不在少数。强权者的所谓的“保护”是“我觉得我这样做是对你好。你没有理由，也不能不接受”。
+
+世界上有很多人–其中的大部分是接种过疫苗的–已经意识到接种中共病毒疫苗不但没有效果，反而会导致很多疾病乃至死亡。
+
+加拿大完全接种疫苗的人数占人口总数的77.9%,然而加拿大政府还在进一步继续实施疫苗强制令，及出台各种惩罚措施，其背后的目的到底是像他们说的那样“希望人们得到保护”吗？如果全民都接种了，还会有反对的群体站出来游行抗议吗？还会有留给反对党辩论的抓手吗？
+
+跟随着新中国联邦，使我们尽可能免去中共病毒和疫苗的毒害。我们能用理智的思维去思考，把病毒真相传播给世界，并告知世界，中共（CCP）不等于中国人!
+
+新闻链接：[Quebec’s tax on unvaccinated: Trudeau says ‘strong measures’ have worked](https://beta.ctvnews.ca/national/coronavirus/2022/1/12/1_5737100.html)
+
+*翻译/简评: JS*
+
+*校对：感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
