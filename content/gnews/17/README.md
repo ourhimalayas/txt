@@ -2,69 +2,49 @@
 ---
 
 
-## 欧盟监管机构政策失败： WHO呼吁终止 COVID加强剂
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1858915/)
+## 走遍天下的七哥时刻提醒自己回到当下要不就没办法说话
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1859029/)
 
-翻译： Jenny Ball
+G-TV视频链接：[https://gtv.org/video/id=61e0ff1987664c47acd46b42](https://gtv.org/video/id=61e0ff1987664c47acd46b42)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1078.png)图片来源 :childrenshealthdefense.org
+**郭文贵先生：**兄弟姐妹们，说到这的时候咱今天直播的最核心这个世界上没有比无知再可怕再贫穷的了。七哥一点不吹牛，我之所以今天很多人问我，小佳佳也问过我，小王子也问过我，小飞象也问过我，小飞侠也问过我，七哥为什么自信？包括我们好多，像我们那年轻的几个小孩，他们都问过我。还有我们那个刚刚唱歌的Bunny是吧，七哥怎么自信？唯一让你自信的就是你内心充满了与别人完全不一样的知识和经历，我再说一遍。
 
-欧盟药物监管机构周二警告说，频繁使用 COVID 加强剂可能会对免疫系统产生不利影响，并表示目前没有数据支持重复给药。
+你没有在昆仑山脉飞过，你没看共产党呆的地方，你没去过这个七女峰，你没有去过非洲，你没有去过加拿大大瀑布，你没有去过这些地方，没有去过玛雅文化的中心遗址，你没有去过缅甸的过去的是吧我们最早时期的佛教文化的地方，是不是？你没有看过这东西，你不可能有自信的。当你看过这的时候，你那个自信你自己盖不住。
 
-根据欧洲药品管理局 (EMA) 的说法，每四个月持续加强剂量，可能会导致人们的免疫系统超负荷,并导致免疫疲劳。
+我每天最痛苦的事情，我是从厕所出来，到家里生活，跟任何人，包括跟你嫂子，跟任何人我都得装傻。我不装傻我这个自信都让出来了，就不是水多，直接从脑袋，你们水往下流，我水往天上流告诉你。就我太自信了就是。
 
-“虽然使用额外的加强剂可能是应急计划的一部分，但在短时间内重复接种疫苗，并不代表可持续的长期战略，”EMA疫苗战略负责人马可·卡瓦莱里（Marco Cavaleri）周二在新闻发布会上表示。
+你看哪国总统以后，你就觉得是个傻子是不是？他既不读书也不学习。他既不逛山也不游水。七哥是全看过了。是吧？就我跟很多人说话的时候，我得时刻告诉我自己，我要回到我当下来。要不然没法说话，跟谁也没法说话。只有我敢说水往上流，你们的水都往下流的。
 
-卡瓦莱里说，需要更多关于 Omicron 对疫苗影响的数据，以及更好地了解当前变异的演变，以确定是否需要针对新变种的疫苗。
+因为是这种经历，这种自信。来人啊，不敢说了。是吧？就是这种自信——经历！
 
-“最近发表的研究的初步结果表明，**针对 ****Omicron ****的症状性疾病的疫苗有效性显着降低，并且随着时间的推移趋于减弱**，”卡瓦莱里说。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-“重要的是围绕疫苗成分的选择进行良好的讨论，以确保我们的策略不仅仅是反应性的……并尝试提出一种适合的方法来预防未来的变体，”他补充道。
+编辑整理：Jacques；
 
-就在上个月，卡瓦莱里代表 EMA 发言时表示，由于“非常令人担忧”的感染人数，在最初的两剂方案后，三个月内注射 COVID 加强剂是有意义的。
+字幕文件制作：小满；
 
-**WHO****警告：反复注射加强新变种是不可行的策略**
+视频制作及上传：Cindy；
 
-WHO 的 COVID-19 疫苗组合物技术咨询小组于 1 月 11 日警告说，“基于重复针对原始疫苗组合物的疫苗的加强剂策略，不太可能是适当的或可持续的。”
+G-News发布：小满；
 
-由WHO创建的评估 COVID 疫苗性能的专家组表示，随着新病毒株的出现，**提供新剂量的现有疫苗，并不是抗击大流行的最佳方法**。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-咨询小组说，除了预防严重疾病和死亡外，还需要并应该开发能够预防感染和传播的 COVID 疫苗。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-该组织表示，在此类疫苗可用之前，并且随着 SARS-CoV-2 病毒的发展，当前 COVID 疫苗的成分可能需要更新。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-COVID 疫苗需要在基因和抗原性上接近循环的 SARS-CoV-2 变体，更有效地防止感染，并且，应该引发广泛、强烈和持久的免疫反应，以减少连续接种的需要加强剂量，咨询小组说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“结束了，民众们，”前《纽约时报》记者和畅销书作家亚历克斯·贝伦森（Alex Berenson）写道。“除了少数不幸的以色列人之外，没有人会接受第四剂原始疫苗。”
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-贝伦森写道：
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“每个有眼睛的人都可以看到它对Omicron不起作用——如果你还没有注射第三剂，你还有必要吗？对于潜在的严重副作用，充其量它最多让你数周时间略微保护。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“相反，WHO现在承诺/要求基于目前主要的 Sars-Cov-2 毒株的疫苗，**这一承诺与卫生官员和疫苗公司所做的所有其他承诺一样空洞。”**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-贝伦森指出，仅去年一年，就至少有五个主要的“令人担忧的变体”，其中两个成为全球主导。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-贝伦森说：“即使是 mRNA 疫苗，也无法以足够快的速度进行烹制和交付，以匹配占主导地位的任何变异病毒株。”“COVID变异比科学家更快。”
-
-英国专家呼吁，将COVID视为类似于流感的地方性病毒
-
-根据CDC的说法，地方性流行病是指，“在一个地理区域内的人群中持续存在和/或通常流行一种疾病或传染病”，**而大流行是一种“失控”的流行病**，已经蔓延到几个国家或几大洲，通常影响大量人群。
-
-他说：“如果认为有必要，我们需要分析我们是否使用当前的加强剂来确保弱势群体得到保护。”“英国的大规模人群疫苗接种现在应该结束。”
-
-迪克斯呼吁对英国的 COVID 战略进行“重大反思”，鼓励部长们“紧急支持对抗体以外的 COVID 免疫的研究”，**包括 ****B ****细胞和称为 ****T ****细胞的白细胞**。
-
-迪克斯说，应该从病毒传播转向**疾病管理**，“阻止弱势群体发展为严重疾病”应该是未来的目标。
-
-新闻来源:[childrenshealthdefense.org] [EU Regulators, WHO Call for End to COVID Boosters, Citing Evidence Strategy Is Failing](https://childrenshealthdefense.org/defender/eu-regulators-who-end-covid-boosters/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=b5be3851-e217-4fa4-afa8-e0ddac5c9bfd)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

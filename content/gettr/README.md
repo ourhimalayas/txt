@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/14/2022 3:12 AM (UTC)`
+
+EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第四集：伊莎贝尔的第一个谎言。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #1stlieofisobel
+![img](https://media.gettr.com/group10/origin/2022/01/14/03/54238d6e-ef7d-ed82-74d9-35c721e8becd/out.jpg)
+
+---
+
 `@miles 1/14/2022 2:16 AM (UTC)`
 
 1/12/2022 Miles Guo: The overseas Chinese media will be held equally accountable as the CCP because they’re not only misleading the people, but also harming the country. The bloody battle before the CCP’s 20th Party Congress has yet started, and Li Zhanshu is not the one we should focus on. How is Xi Jinping inextricably linked to the Pangu Plaza? What are the secrets of Heaven implied in it?<br/><br/>1/12/2022 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行；20大前血雨腥风还未开始，栗战书不是重点；习近平和盘古之间有什么样的微妙联系？这其中暗含着何种天机？
@@ -145,12 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 2022年1月12日 文贵大直播：伊萨贝拉杨新出的采访视频对华人的威胁将有怎样后果；美国、香港和世界的金融市场的变化与动向；中共与哈萨克斯坦事件背后的真相；桥水基金-“美国共同富裕”北京冬奥会和国内的疫情情况；疫苗灾难和新变种病毒的感染数据；
 ![img](https://media.gettr.com/group30/origin/2022/01/12/21/3c8d7443-28a7-81ba-1095-a2edd621ccfa/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 1/12/2022 5:38 PM (UTC)`
-
-The authorities of Cyprus have found themselves in the middle of a serious, but also complicated case with political implications<br/><br/>The whole case, however, is complicated by other relevant facts and events. The two detainees are members and political activists of the New Federal State of China. This political movement, also known as the lobby, was created by Guo Wengui and Steve Bannon, with the stated aim of overthrowing the Chinese Communist Party (CCP) and consequently the Chinese government.<br/><br/>Founded on June 4, 2020 in New York, it calls itself the “exiled government” of China and is indirectly recognized by the United States.<br/><br/>https://gnews.org/1851956/
 
 ---
 

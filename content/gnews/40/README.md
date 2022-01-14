@@ -2,37 +2,35 @@
 ---
 
 
-## 英国一组织发布中共病毒疫苗致命性研究报告清单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1858530/)
+## 2021年朝鲜网络犯罪盗窃加密货币达到顶峰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1858616/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日外媒报道，英国的“立即拯救我们”组织发布了一份证明中共病毒疫苗致命性的研究清单，包括在相关科学杂志上发表的1000多项疫苗研究。这些研究表明，中共病毒疫苗不仅危险，而且在预防病毒和拯救生命方面没有效果。目前民众被告知的关于中共病毒疫苗所谓的伟大功效都是谎言。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-5.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-26.jpg)图片来源：Stedmood
+1月13日，《国会山报》报道，根据周四发布的一份报告，朝鲜黑客在2021年盗取了近4亿美元的加密货币，达到其网络犯罪活动的顶峰。
 
-目前发现的疫苗接种致命后果，包括凝血性心肌炎、心包炎、血栓症、血小板减少症、过敏性休克、贝尔氏麻痹症、吉兰巴雷综合症和癌症。所有这些致命后果都可在英国健康和安全机构关于中共病毒疫苗损害的数据中得到证实。
+软件公司Chainanlysis(区块链分析公司)创立于2014年，总部位于美国纽约州纽约市，是一家为全球政府、加密货币交易所、国际执法机构、银行和企业提供区块链数据和分析软件，以帮助他们遵守合规要求、评估风险并识别非法活动的公司。
 
-该组织称，现在继续推动疫苗接种的政府公职人员所做的虚假宣传，明显是渎职犯罪。正是政府疯狂推广疫苗接种，导致了病毒感染和死亡在全球蔓延。
+根据Chinalysis的研究，朝鲜黑客已经有能力通过对加密货币平台的七次攻击中窃取到约4亿美元，从而在2020年到2021年，使得他们从这些攻击中获得的价值增长了40%。
 
-参考链接：
+根据该公司的研究，这些攻击主要影响了投资公司和集中式交易所。黑客使用的方法包括“网络钓鱼诱饵、代码漏洞、恶意软件和高级社交工程陷阱”，以便从平台上获取资金，并将其放入所谓的热钱包（Hot Wallet）。
 
-- [More than 1,000 published studies show covid jabs are dangerous](https://newstarget.com/2022-01-12-more-published-studies-show-dangers-covid-vaccines.html)
+2021年，以太坊（Ethereum）占了朝鲜网络犯罪分子所盗资金的大部分，为58%。
 
+Chainalysis说：“一旦朝鲜获得了这些资金的保管权，他们就开始了谨慎的洗钱过程，以掩盖和兑现”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+然而，黑客们似乎对他们偷来的所有加密货币的洗钱速度很慢。该公司的分析发现，大约有1.7亿美元的加密货币未经清洗，其中约3500万美元是通过2020年和2021年进行的黑客攻击偷窃到的。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+正如Chainalysis在其报告中所说，朝鲜最近网络偷窃行动“呈现了一个大规模支持加密货币犯罪的国家形象。朝鲜政府通过系统且复杂的黑客活动，无论是通过拉撒路集团 (Lazarus Group)还是其他犯罪集团，在2021年已经将朝鲜政府塑造成为了加密货币行业的大规模持续威胁”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文章报道，去年，司法部指控三名朝鲜人，分别是全昌赫（Jon Chang Hyok）、金日（Kim Il）和朴金赫（Park Jin Hyok），从美国相关组织窃取了13亿美元的现金和加密货币。据称，这三名黑客参与了2014年的黑客行动，但截至1月份，他们仍被认为是在逃状态。
+
+**新闻来源**
+
+[North Korean hackers stole almost $400M in cryptocurrency, report says](https://thehill.com/policy/cybersecurity/589661-north-korean-hackers-stole-almost-400m-in-cryptocurrency-report-says)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
