@@ -2,46 +2,31 @@
 ---
 
 
-## 有声|爱尔兰部长：有信心从2月起放松对中共病毒的限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860854/)
+## 七哥谈共产党都是钱都是利益（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860873/)
 
-配音：香草山农场 – 纳米
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播09：30：15摘录
 
+刚才我谈了叛国和卖国的事情，再过去几次大直播，我让你知道叛国、卖国的意义是什么。塔吉克斯坦，我要为什么说塔吉克斯坦？这个塔吉克斯坦的意义是什么？塔吉克斯坦这几十万的塔吉克族和哈萨克族和中共之间的勾兑是什么？你们要记住，江泽民时代搞了个国家组织叫什么？大家永远别忘了，叫上海合作组织，对了，上合，简称上合。上合组织两个最牛的人全是我的发小我同学，我同学，最牛的，一个被抓，一个现在已经回家了，半死不死的折腾过。整个全程是江家当年最相信的人之一，讲流利的俄语，流利的英文，还能讲新疆语言，我这哥们，整个过程我都知道，上合组织就是当年江泽民家族的利益，简称叫中亚。这几个，吉尔吉斯斯坦啊，这几个大概十一个国家几乎都是江家的势力。你看孟建柱在上来以后，几乎每年两到三次访问，一定是从中亚开始。俄罗斯、中亚，然后到土耳其，再贯到中东。所以这一次你看看，哈萨克斯坦事情出来，现在土耳其出来了，是吧，俄罗斯出来了，白俄罗斯出来了，塔吉克斯坦出来了，哈萨克斯坦出来了，吉尔吉斯斯坦也表态了，上合组织全部派兵了。你们一定要记住，就是咱们的老百姓之间都变成猪了，只知道低头吃猪食，你根本不知道猪圈以外发生了什么事儿。就你旁边那菜园子还有旁边的山脉已经被这些王八蛋全给卖光了，再吃下去就啥也都没了，连猪食都没了。你去想一想，谁控制着和田玉的市场？百分之七八十都这帮孙子。谁在搞昆仑玉？共产党在搞昆仑玉，它想开多少开多少。昆仑玉和和田玉市场都被它们控制着，然后它信不信神？爆料革命告诉你了，把盘古龙头变“鸟头”变“龟头”，它绝对比谁都信神。它为什么用昆仑玉？它为什么它要用和田玉？它咋不用所谓的它不信的共产党玉呢？这里边都是钱，都是利益，都是信，所以共产党绝对比谁都信神。然后这无产阶级，无产阶级是没有房子没有地的，把地主都推翻了，你觉得世界上有比共产党再有钱的吗？加在一起西方这些官员的钱都没有共产党一个官员的钱多，一个江家是几万亿美元，真的把全世界的所有政治家加在一起都没有他有钱。这个你就看到了刚才七哥告诉你的，哈萨克斯坦的这个较量绝对是共产党、整个中亚、整个和美国较量这个本质，又甩到美国去了，又颜色革命了。而且你看到所有的感谢是什么？巩固双方的政治利益、国家权力，没有一句和人民有关系，然后我们合作的项目要进行，然后是西方搞的颜色革命。它完全不谈为什么老百姓上街了，为什么老百姓…
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[OAN网站](https://www.oann.com/irish-minister-confident-of-easing-covid-curbs-from-february/)援引路透社1月12日的报道，爱尔兰的一位高级部长周三表示，一旦需要重症监护的人数保持稳定，爱尔兰应该能够从下个月开始放宽限制，以减缓中共病毒的传播。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-爱尔兰是欧洲中共病毒发病率第二高的国家，但也是欧洲大陆强化疫苗使用率最高的国家之一。
+Gettr 账号
 
-政府在去年12月初关闭了夜总会，并削减了室内活动的容量。两周后随着Omicron变体的迅速蔓延，政府扩大了对人群的限制，并命令酒吧和餐馆在晚上8点关闭。
-
-原文链接：[爱尔兰部长：有信心从2月起放松对中共病毒的限制](https://gnews.org/zh-hans/1852733/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -15,74 +15,74 @@
 
 ---
 
-### [七哥谈共产党都是钱都是利益（2022-01-12摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [有声|爱尔兰部长：有信心从2月起放松对中共病毒的限制](/content/gnews/2/README.md)
+### [有声|加拿大阿省卫生官承认ICU数据造假](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [中共驻伦敦律师贿赂英政客 军情五处发出紧急警告（2/2）](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈共产党为叛国卖国甩锅美国（2022-01-12摘录）](/content/gnews/4/README.md)
+### [七哥谈共产党都是钱都是利益（2022-01-12摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [2022/01/14 大卫作战室直播精要](/content/gnews/5/README.md)
+### [有声|爱尔兰部长：有信心从2月起放松对中共病毒的限制](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [中共驻伦敦律师贿赂英政客 军情五处发出紧急警告（2/2）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈共产党为叛国卖国甩锅美国（2022-01-12摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [2022/01/14 大卫作战室直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈大地之间的密码多么重要（2022-01-12摘录）](/content/gnews/6/README.md)
+### [七哥谈大地之间的密码多么重要（2022-01-12摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](/content/gnews/7/README.md)
+### [有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [2022/01/13 大卫作战室直播精要](/content/gnews/8/README.md)
+### [2022/01/13 大卫作战室直播精要](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈共产党洗钱的工具（2022-01-12摘录）](/content/gnews/9/README.md)
+### [七哥谈共产党洗钱的工具（2022-01-12摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [有声|新冠疫苗即将被叫停 最后关头做好防护](/content/gnews/10/README.md)
+### [有声|新冠疫苗即将被叫停 最后关头做好防护](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [议员致信多部门要求就COVID-19起源和DARPA报告给出答案](/content/gnews/11/README.md)
+### [议员致信多部门要求就COVID-19起源和DARPA报告给出答案](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈中共卖国贼（2022-01-12摘录）](/content/gnews/12/README.md)
+### [七哥谈中共卖国贼（2022-01-12摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [有声|深圳疫情源头甩锅到境外物品？](/content/gnews/13/README.md)
+### [有声|深圳疫情源头甩锅到境外物品？](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共驻伦敦律师贿赂英政客 军情五处发出紧急警告（1/2）](/content/gnews/14/README.md)
+### [中共驻伦敦律师贿赂英政客 军情五处发出紧急警告（1/2）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说“共产党能让你活着就是最大的民主” （2022-01-12摘录）](/content/gnews/15/README.md)
+### [七哥说“共产党能让你活着就是最大的民主” （2022-01-12摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [拜登建立针对中共国的联盟的努力正在取得成果](/content/gnews/16/README.md)
+### [拜登建立针对中共国的联盟的努力正在取得成果](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|白宫的一条推特可使拜登的疫苗强制令落空](/content/gnews/17/README.md)
+### [有声|白宫的一条推特可使拜登的疫苗强制令落空](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [七哥谈中共与桥水基金的拿钱办事（2022-01-12摘录）](/content/gnews/18/README.md)
+### [七哥谈中共与桥水基金的拿钱办事（2022-01-12摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [从希腊小学生历史看“爆料革命”](/content/gnews/19/README.md)
+### [从希腊小学生历史看“爆料革命”](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈邪教组织的六个特征（2022-01-12摘录）](/content/gnews/20/README.md)
+### [七哥谈邪教组织的六个特征（2022-01-12摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/21/README.md)
+### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/22/README.md)
  ` 丁过`
 
-### [秘翻在线: 人权报告–中共疾风烈火般摧毁香港人权](/content/gnews/22/README.md)
+### [秘翻在线: 人权报告–中共疾风烈火般摧毁香港人权](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [七哥谈歧视就在我们身边（2022-01-12摘录）](/content/gnews/23/README.md)
- ` MG FARM`
 
 ### [2022/01/14 英喜时事速递](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

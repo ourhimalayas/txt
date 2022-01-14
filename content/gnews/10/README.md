@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|新冠疫苗即将被叫停 最后关头做好防护
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860756/)
+## 七哥谈共产党洗钱的工具（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860785/)
 
-配音：香草山健身部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播09：19：21摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月10日，郭文贵先生在盖特平台上发布视频透露，在本周到下周之际，中共病毒疫苗的接种工作预计将被叫停。同时，在媒体风向和医学定义上，对中共病毒疫苗合法性的质疑也将在美欧地区取得重大突破。
+比特币为啥是共产党搞起来的，就是江家搞起来的，它要把“钱”不是“洗白”了，要洗“雪白”呀！为什么UBS成为中国第一个外资允许的100%的执照，为什么摩根要拿证劵公司，都是王岐山、江家，它“洗钱”他需要工具呀，它需要水需要池子呀，洗完放哪儿去。我告诉大家，如果你不懂得什么叫叛国和卖国，你这一辈子被骂叛国卖国，你就太冤了。你有资格叛国吗，你有资格卖国吗，你算个屁，是吧，你算个屁。当时我在里边儿的时候，盖郑州裕达，说我是美国派来的特务，跟一个好莱坞的女人结婚了，然后是监视郑州的时候。我在郑州有一次被叫去了，他们说：“郭文贵人家有人说你是叛国。” 我说：“是吗？你说我叛哪个国了？”他说：“你还真以为你叛国，你有资格叛国吗？那叛国得是共产党员才叛国，轮到你来说叛国了嘛？”连一个郑州的一个所谓金水区的检察官、反贪局的副局长都敢说我这话，后来这哥们儿被枪毙了，被注射毒针死了，你可以查他去。一个人贪污两个多亿当年。所以兄弟姐妹，你再看一看，为啥我讲昆仑山脉，为什么讲帕米尔高原，为什么讲整个的西藏，喜马拉雅，喜马拉雅山上的秘密，西藏的矿藏，西藏的奇材异宝都去哪儿了？！光西藏，用当时的曾庆红的秘书说：我在西藏搜罗搜罗我分分钟搜罗个100个亿200个亿。分分钟啊！一个秘书都这么说。今天青青草原你坐在这你还灭共呢，你连知道共产党的邪恶0.001%都没有。我讲完这个故事以后你们有啥感受，你们有啥感受，听听。
 
-郭先生警告，倘若世界各国继续推进这种中共病毒疫苗强制接种政策，其带来的灾难将使地球毁灭殆尽。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-郭先生也提醒大家，中共病毒当前肆虐全球近乎疯狂，加之如今又面临着中共病毒疫苗接种即将全面停止的紧要关头，战友们一定要做好疫情防护工作。此外，大家也要在不熬夜的前提下，尽职尽责、高效工作。郭先生强调，战友们要做善良且能辨别真假善恶的人，更要智慧地面对现实生活。
+**关注我们**
 
-文字版原文：[新冠疫苗即将被叫停 最后关头做好防护](https://gnews.org/zh-hans/1851552/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

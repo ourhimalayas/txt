@@ -2,44 +2,31 @@
 ---
 
 
-## 有声|喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1860837/)
+## 七哥谈大地之间的密码多么重要（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1860839/)
 
-配音：香草山教育部 – Rose
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播09：22：05摘录
 
+大家一定记住几个定义，啊，七哥为啥讲这个，我讲这话，你们讲不出来，你永远不会知道，因为你从来没到达那个高度。你没有爬过喜马拉雅山脉，就像钊颖妹妹在我们群里说的那个，她到了整个喜马拉雅山她知道对雪的珍惜，纯洁的珍惜。她这话我最有感触的，七哥爬过喜马拉雅山，你们爬过吗？你们不知道我爬过高原爬过这个吧。共产党为了找我爬喜马拉雅山听说专案组找了十多个月，说：“我就不相信郭文贵爬喜马拉雅山就没有留下照片和视频。” 最后找到了一个人说这个家伙爬过。他们不相信:“这不是郭文贵，当年的郭文贵体重在100，最起码是90公斤。” 但是他做梦没想到，最后我是真的那段时间体重能那么瘦。等哪天我亮出喜马拉雅山脉七哥的想法的时候，你会知道，你只有爬过高山，你才知道山真的是在地球上有多么神奇。你只有在天空中看过昆仑山脉、喜马拉雅山脉，你才知道这个大地之间的密码多么重要。为什么就一绺就叫地狱之门，为什么帕米尔高原就在那一趟之上，为什么阿富汗还有哈萨克斯坦、吉尔吉斯斯坦他们之间就这个三角关系。然后那边儿就是整个大西洋和印度洋。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-14.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-喜币（HCN）是以黄金为锚的金本位数字货币。未来以黄金为锚定的数字货币将替代非黄金锚定的法币和非黄金锚定的数字货币。喜币前途不可限量。郭文贵先生直播时指出：喜币（HCN）一定会成为世界上数字货币游戏（规则）的制定者和开拓者。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-黄金和白银是贯穿人类历史的通用货币。随着社会的发展，金银作为货币的弊端也越来越明显：真假难辨，运输和储存成本高且困难，支付不及时等问题，为了解决金银货币流通问题，出现了以黄金为锚的金本位法币。从历史上看，随着布雷顿森林体系的崩溃，美元的金本位制被放弃。主要原因是美元发行失控，美元印制与黄金储备不成比例。因此，黄金锚定的承诺无法兑现。
+Gettr 账号
 
-原文链接：[喜币（HCN）－世界数字货币规则的制定者，它将成为数字货币之王](https://gnews.org/zh-hans/1855871/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
