@@ -2,28 +2,40 @@
 ---
 
 
-## 纳扎尔巴耶夫的两个女婿已经离开了国企公司的高级职位
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1864556/)
+## 丹麦指控来自中共国间谍威胁升高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864639/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月15日，据《国际文传电讯社》援引《Samruk-Kazyna国家基金》报道，哈萨克斯坦石油股份公司（KazTransOil）董事会主席迪马什·多萨诺夫（Dimash Dosanov）和哈萨克斯坦天然气股份公司（QazaqGaz）董事会主席凯拉特·沙里普巴耶夫（Kairat Sharipbayev）的权力被终止。
+撰稿：纽约磐石农场—在远方
 
-“根据2022年1月14日QazaqGaz股份公司董事会的决定，沙里普巴耶夫作为QazaqGaz股份公司董事会主席的权力被提前终止了。根据2022年1月14日KazTransOil董事会的决定， 多萨诺夫作为KazTransOil JSC总经理（管理委员会主席）的权力被提前终止。”该声明在周六发表时说。
 
-多萨诺夫是努尔苏丹·纳扎尔巴耶夫小女儿阿利亚的丈夫，而据一些媒体报道，沙里普巴耶夫与哈萨克斯坦前总统的大女儿达里加非官方地结婚。[https://www.interfax.ru/world/815607](https://www.interfax.ru/world/815607)
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+
+
+
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-26.jpg)图片源自网络
+
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。 
+
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+参考链接:[https://cn.rti.org.tw/news/view/id/2122065](https://cn.rti.org.tw/news/view/id/2122065)
+
+总编：Irene木木
+校正/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

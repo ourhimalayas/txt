@@ -15,154 +15,154 @@
 
 ---
 
-### [冬奥赞助商不寻常的安静](/content/gnews/1/README.md)
+### [美国军事文件与福奇关于功能增强、Veritas 项目的宣誓证词相矛盾](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [丹麦指控来自中共国间谍威胁升高](/content/gnews/2/README.md)
+ ` GTV News Talk`
+
+### [【Michael.Tonny专栏】CCP间谍李贞驹蓝金黄英国政坛被军情五处曝光](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
+
+### [荷兰运动员被警告不要在中共国使用手机和笔记本电脑](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [感染过新冠病毒的男子阴茎缩短了1.5英尺](/content/gnews/5/README.md)
+ ` GTV News Talk`
+
+### [英情报部门警告议员注意中共统战渗透](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [冬奥赞助商不寻常的安静](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [纳扎尔巴耶夫的两个女婿已经离开了国企公司的高级职位](/content/gnews/2/README.md)
+### [纳扎尔巴耶夫的两个女婿已经离开了国企公司的高级职位](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [美联储的决定 地球抖一抖](/content/gnews/3/README.md)
+### [美联储的决定 地球抖一抖](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/4/README.md)
+### [爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|中共核酸检测是坑害中国百姓](/content/gnews/5/README.md)
+### [有声|中共核酸检测是坑害中国百姓](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2022/01/15 英喜时事速递](/content/gnews/6/README.md)
+### [2022/01/15 英喜时事速递](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美众议院提案停止政府强制雇员接种疫苗](/content/gnews/7/README.md)
+### [美众议院提案停止政府强制雇员接种疫苗](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [有声|台外長受訪表示台灣將力抗中共悍衛自由](/content/gnews/8/README.md)
+### [有声|台外長受訪表示台灣將力抗中共悍衛自由](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|美国会要求国际奥委会解释与涉新疆棉中企合作](/content/gnews/9/README.md)
+### [有声|美国会要求国际奥委会解释与涉新疆棉中企合作](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [英国报告称 疫苗死亡率远高于普通人群](/content/gnews/10/README.md)
+### [英国报告称 疫苗死亡率远高于普通人群](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [有声|大直播—中共国老百姓绝无资格叛国和卖国，只有机会做杨改兰！](/content/gnews/11/README.md)
+### [有声|大直播—中共国老百姓绝无资格叛国和卖国，只有机会做杨改兰！](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|中共国重卡市场断崖式下跌](/content/gnews/12/README.md)
+### [有声|中共国重卡市场断崖式下跌](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|英军情五处警示国会中共已渗透英政治圈](/content/gnews/13/README.md)
+### [有声|英军情五处警示国会中共已渗透英政治圈](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|耐克开始解雇未接种疫苗的员工](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|GTV新闻访谈简报|2022年1月14日早](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|佳能关闭中共珠海工厂](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|加拿大放弃卡车司机疫苗强制令](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/18/README.md)
+### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/19/README.md)
+### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/21/README.md)
  ` 首尔天池农场`
 
-### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/20/README.md)
+### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/22/README.md)
  ` 英喜-粵語組`
 
-### [有声|农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/21/README.md)
+### [有声|农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/22/README.md)
+### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共病毒死亡率调查结果引发人们对疫苗接种必要性的质疑](/content/gnews/23/README.md)
+### [有声|中共病毒死亡率调查结果引发人们对疫苗接种必要性的质疑](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [大直播后记—疫苗就是病毒](/content/gnews/24/README.md)
+### [大直播后记—疫苗就是病毒](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [中共国未来两周将禁止所有美国航班入境](/content/gnews/25/README.md)
+### [中共国未来两周将禁止所有美国航班入境](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/26/README.md)
+### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究](/content/gnews/27/README.md)
+### [有声|媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [彭佩奥斥中共是“史上最肮脏的监控政权”，警告运动员注意](/content/gnews/28/README.md)
+### [彭佩奥斥中共是“史上最肮脏的监控政权”，警告运动员注意](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/29/README.md)
+### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [澳洲新南威尔士近千名医护人员因拒绝CCP病毒疫苗而离职](/content/gnews/30/README.md)
- ` 澳喜特战旅Gnews`
-
-### [杨贝贝虚假报道中提到的Q组织](/content/gnews/31/README.md)
+### [杨贝贝虚假报道中提到的Q组织](/content/gnews/32/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [DC每日热点0115](/content/gnews/32/README.md)
+### [DC每日热点0115](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [桥水基金前CEO ：美国领导人是时候直面中共了](/content/gnews/33/README.md)
+### [桥水基金前CEO ：美国领导人是时候直面中共了](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [控方证人](/content/gnews/34/README.md)
+### [控方证人](/content/gnews/35/README.md)
  ` 骄子`
 
-### [一切有违法，理应伏法](/content/gnews/35/README.md)
+### [一切有违法，理应伏法](/content/gnews/36/README.md)
  ` 骄子`
 
-### [多国外长将要“组团”访华](/content/gnews/36/README.md)
+### [多国外长将要“组团”访华](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中哈如郭文贵所言──甩锅以美国为首的西方势力](/content/gnews/37/README.md)
+### [中哈如郭文贵所言──甩锅以美国为首的西方势力](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [01/15每日播报｜通用电气暂停中共病毒Covid-19疫苗强制接种和测试的强制规定](/content/gnews/38/README.md)
+### [01/15每日播报｜通用电气暂停中共病毒Covid-19疫苗强制接种和测试的强制规定](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟首部防御白皮书直指中共威胁](/content/gnews/39/README.md)
+### [欧盟首部防御白皮书直指中共威胁](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦让战友们安全地获得财富](/content/gnews/40/README.md)
+### [新中国联邦让战友们安全地获得财富](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [美多名参议员致函敦促政府采取措施保护冬奥运动员](/content/gnews/41/README.md)
+### [美多名参议员致函敦促政府采取措施保护冬奥运动员](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [军情五处：华裔女律师干涉英国政治；揭密中共的对外扩张](/content/gnews/42/README.md)
+### [军情五处：华裔女律师干涉英国政治；揭密中共的对外扩张](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/15/2022国际财经快讯：美联储称美国经济正在改善但仍有风险；贝莱德资产规模突破10万亿美元](/content/gnews/43/README.md)
+### [1/15/2022国际财经快讯：美联储称美国经济正在改善但仍有风险；贝莱德资产规模突破10万亿美元](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [西安：中共非人道隔离政策下，人们不堪压力跳楼](/content/gnews/44/README.md)
+### [西安：中共非人道隔离政策下，人们不堪压力跳楼](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [现世报 谭德塞被祖国告了](/content/gnews/45/README.md)
+### [现世报 谭德塞被祖国告了](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约法官取消了Cahill律师所代表太盟PAG起诉郭文贵先生的资格](/content/gnews/46/README.md)
+### [纽约法官取消了Cahill律师所代表太盟PAG起诉郭文贵先生的资格](/content/gnews/47/README.md)
  ` 首尔天池农场`
 
-### [彼得·纳瓦罗：追究中共和福奇在新冠病毒疫情中的责任](/content/gnews/47/README.md)
+### [彼得·纳瓦罗：追究中共和福奇在新冠病毒疫情中的责任](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国家电网计划2022年投资5012亿元](/content/gnews/48/README.md)
+### [国家电网计划2022年投资5012亿元](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [当危会：不要去参加北京的种族灭绝奥运会](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [全球人民的思想意识正在遭受一次协同攻击](/content/gnews/50/README.md)
+### [当危会：不要去参加北京的种族灭绝奥运会](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [世卫组织升起“covid疫苗白旗”：一切都结束了，人们](/content/gnews/51/README.md)

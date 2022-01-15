@@ -2,16 +2,22 @@
 ---
 
 
-## 有声|耐克开始解雇未接种疫苗的员工
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864458/)
+## 有声|台外長受訪表示台灣將力抗中共悍衛自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864515/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
+配音：香草山健身部 – 玫瑰园
 
-耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
 
-原文链接：[耐克开始解雇未接种疫苗的员工](https://gnews.org/zh-hans/1861887/)
+
+![](https://lh6.googleusercontent.com/XOhMSbHl-_LbsfrzGAiCIDMUONgo0u9lS0vRoA_OBxaCu0-1LYF8uS5huEhic9tROH_RfhURLCUEHOmuEKfwBzdByXXlq__MqI0ynM2A_Go5KP33VgD611tb2Pr3-J5PFrx7aV4)
+
+
+
+當地時間1月13日，台灣外交部長吳釗燮接受法國電視台採訪時表示，中共對台灣的軍事威脅，情況非常嚴峻。台灣將準備好應對來自於中共的全面入侵或局部偶發衝突。
+
+吳釗燮說，在剛過去的一年中，中共多次公開談到入侵台灣，並有近一千架次的戰機蓄意侵入台灣的防空識別區，這是非常挑釁的行動。為了應對中共的威脅，台灣積極購買各種新型的武器，有決心自我捍衛，為不對稱作戰與混合作戰作準備。
+
+原文链接：[台外長受訪表示台灣將力抗中共悍衛自由](https://gnews.org/1859473/)
 
 音频处理/发稿：Daxia
 
@@ -30,6 +36,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
