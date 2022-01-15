@@ -2,59 +2,130 @@
 ---
 
 
-## 写给还没加入农场的战友
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1863263/)
+## 共产党是魔 只要它存在 没有人是安全的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863285/)
 
-作者：纽约香草山福音部 – 决明子
+[https://gtv.org/video/id=61e296c187664c47acd4ed1e](https://gtv.org/video/id=61e296c187664c47acd4ed1e)
 
+**郭文贵
+Miles Guo**
 
+这个中国真的是从来没有像今天（这样）
+This CCP China really has never been as evil as it is today
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+邪恶到如此之程度
+Its evilness has reached such a level
 
+中国人民（要受）的罪真的还早着呢
+It is still way too early that the Chinese people have to suffer
 
+正在重庆和天津发生的事情是丧尽天良
+What’s happening in Chongqing and Tianjin is outrageous and discussing
 
-GTV 2022.01.10的文贵大直播中，“闻疯而动”战友问了七哥一个问题，大概意思是：每次看直播上千万人，为什么加入农场的战友这么少？确实，目前农场战友几万人。七哥说很多人害怕，犹豫，但是最终都会来，没有选择。
+用什么罪名都是无法来形容的
+There is no way to describe the CCP’s crimes with any existing accusation
 
-这让我很有触动。因为我开始也是从旁观者角度看七哥爆料，慢慢开始相信，被共产体制的邪恶震撼，被七哥的勇气感动，也犹豫过，但战友们对正道的坚信，鼓励了我，同时对直播的各种分析，看到七哥灭共的实力和决心，看到七哥背后支持灭共的国内和国际力量，坚信共产党一定灭亡。最后战胜恐惧，勇敢地捐款法治基金，真正地加入了爆料革命。
+所以共产党不仅对新疆人大屠杀
+That’s why the CCP massacres people not just the Xinjiang
 
+它对谁都大屠杀
+They massacre people of all kinds
 
+它不仅要向昆仑山神敬奉，所谓的新疆、西藏、彝族、傣族、水傣这些（民族的）处女处男
+They not only will worship the Kunlun Mountain God with so-called female and male virgins of the Xinjiang, Tibet, Yi, Dai, and ShuiDai minority groups
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220115_2.jpg)
+它一样也把汉人也送上去
+but the Han people
 
+所以在我们灭共这件事上
+So when it comes to our mission of taking down the CCP
 
+哈萨克族也好，什么族也好，我们都是一家人
+whether it’s Kazakhs or any ethnic group, we all are one family
 
-七哥常说的，这个世界是有神的，人是有主人的。看看七哥那无所畏惧的精气神儿，就感觉到信仰的力量了。没有信仰，人面对强大的邪恶时，就是恐惧。勇气真的不是从自己而来，而是从神给人的，是从正义一定战胜邪恶的道而来。
+你不灭共我们什么族都没有
+We’ll not have any ethnic group if we don’t take down the CCP
 
-我自己跟着爆料革命就像爬天梯，因为身边没人支持我，家人会吵架。孤家寡人，遇到事情，没人商量，我就把一切都交托给神，跟随神的道，求神保佑我。有时候觉得累，接下来遇到什么考验都不知道。但是有个声音总是提醒我，必须跟住了爆料革命，这是神救我的梯子，再累也要抓住，爬上去。靠着神给我的指引和勇气，我才能义无反顾。
+特别是汉人
+especially the Han Chinese people
 
-观看七哥直播的上千万战友们，共产党亵神逆天，气数已尽。它的灭亡给中国人带来的巨大灾难，还没真正到来。七哥已经为我们打造好了诺亚方舟，就是农场和G系列。只需要大家鼓起勇气，从心里真正离开那个要沉没的共产魔鬼之船，加入农场和G系列。神在让七哥救我们，但是公正的神也在试炼我们，一开始就全心全意信靠他而登上方舟的人和后面蜂拥而至不得不来避难的人，得到的不一样。
+不要有什么优越性以为（共产党）只灭新疆人、西藏人哈萨克人不灭我们
+Don’t even think that you would have any superiority so that the Communist Party only wipes out the Xinjiang people, Tibetans, and Kazakhs but not us
 
-战友们，我们必须自己迈出脚步，登上诺亚方舟，才能得救。圣经中，神救以色列人出埃及的时候，摩西嘴再笨，神也是让他和亚伦一起，到法老那里去谈判。神一直在帮助以色列人，但是以色列也是靠自己的脚，一步一步走出埃及的。所以行动起来，这是唯一的中国人的救赎之路。不会再有第二个七哥，不会再有第二个G系列。没有选择，只有早晚。
+我告诉你一点
+I’ll tell you one thing
 
-这一路神的考验确实有很多，比如九指妖，蛇妖闫等等，但是不要让一些共产党控制的小鬼儿，影响我们的判断，或者美国的一个态度暧昧，就影响信心。所有干扰你的都是假象，爆料革命和国际力量团结起来，除邪灭共的正道是真相。
+它是魔你是人的差距跟什么族半毛钱关系都没有
+The difference between they are demons and you are a human has absolutely nothing related to certain ethnic groups
 
-我们可以多方面去分析。从七哥掌控国内情报的能力，体制内的人心早已跟随爆料革命；从七哥和国际上沼泽地的情报交换，就知道七哥背后灭共的力量有多强大。国际上的资本，只是想在共产党灭亡前，把共产党的口袋掏干净而已，最苦的就是我们这些普通的老百姓。所以农场和G系列，喜联储，是全方位的，在共产党灭亡时唯一拯救中国人的诺亚方舟。从财富上，从海外排华的危机中解救华人，而且这是爆料革命和整个国际力量的合作才能做到。这些我们都可以从七哥的直播中看到。
+现在美国人意识到了
+Now the Americans have realized that
 
-神的大能兴起的时候，就是所向披靡，势不可挡，我们只需跟随。墙内墙外的华人战友们，能随时看到爆料革命，和那些混沌中什么都不知道的同胞比，我们是何等的幸运！请珍惜把握住这个拯救自己和家人的黄金时期。
+哇塞，你不是要我停止欧洲东扩呀
+Wow, you weren’t just stopping me for the eastward expansion of Europe
 
-战友们，还犹豫什么呢？！
+你已经到来我美国搞BLM来了
+You have already come to the United States to engage in the BLM (Black Lives Matter) activities
 
+大家记住哈萨克斯坦的事出来是第一个表达
+Everyone need to be aware that the first one to express after the Kazakh incident
 
+10小时内表态的（领导人）就是习近平
+the leader who expressed his position within 10 hours was Xi Jinping
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
+（习说）这是颜色革命
+（Xi said）it was a color revolution
 
+记住了吧，支持哈萨克斯坦政府的镇压，这是对人民负责的一个决定
+Do you remember that? (Xi said) supporting the repression of the Kazakh government is a decision of responsible for the people
 
+但是（对于）BLM你知道他说啥了？
+However, do you know what he said about the BLM?
 
-编辑/校对/发稿：武裝的羔羊
+（习说）BLM美国人民要有人权、民主呀
+(Xi said), the BLM was the need of human rights and democracy for the American people
 
-**更多资讯，更多关注**
+而且也是非常之快
+And very quickly
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+你能想想俄罗斯竟然派出联合部队去了
+you can imagine that Russia sent a joint force
+
+白俄罗斯、吉尔吉斯、阿塞拜疆，夸嚓就去了
+Belarus, Kyrgyzstan, and Azerbaijan had quickly deployed there
+
+中共直接啊
+The CCP was straightforward
+
+将近3000架无人机夸嚓就给准备好了
+Nearly 3,000 UAVs had been prepared at once
+
+第二波就中共无人机就上去了
+In the second wave, the CCP’s UAVs deployed
+
+而且中共的整个北方的所有军队全部给哈萨克斯坦（政府）提供情报，所有的事项全部提供
+Moreover, all the troops of the CCP in the entire Northern Theater had provided intelligence information to the Kazakh government in every matter
+
+* * *
+
+Date: 01/09/2022
+原视频标题:
+共产党是魔 只要它存在 没有人是安全的
+No One Will be Safe if The Communist Party Exists Because The CCP is The Devil
+原视频日期：2022/01/09
+原视频链接: [**https://gettr.com/post/pneuju2f2a**](https://gettr.com/post/pneuju2f2a)
+任务编号：3460
+视频时间段 : 0:00-02:16
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

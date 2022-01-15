@@ -2,56 +2,28 @@
 ---
 
 
-## “我们倒退了”：前卫生专员承认美国人正在对CDC失去信任
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863275/)
+## 中共病毒在各年龄段蔓延 冲绳县正处于第6波疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1863304/)
 
-评论： ***在美国，总统在推行疫苗强制令，便宜又好用的伊维菌素被移除治疗药物名单，大量的疫苗伤害病例在发生，感染人数已令人惊悚的速度在飙升……CDC作为美国联邦政府行政机构，成立的目的是为保护公众健康和安全提供可靠的资料，通过与国家卫生部门及其他组织的有力的伙伴关系，以增进健康的决策，促进公民健康，但它似乎现在正在与这些背道而驰，希望CDC如果不能成为民众健康的保护神，也请不要成为魔鬼的代言人！***
+撰稿：东京樱花团丨向海
+![](https://lh6.googleusercontent.com/GXqXwmYzWbnO7EJfo4f4Ly9uu3pcDmcSobT3UUVKQ6b2bq7fhwWad86-lMlGQqMiaBbvIQkYzDhjrGijQTZhck0Q5ex2WmbJY7-cz8c8DxReC5jHf93-eLdONZXL6q9deTOvZMFn)[*图片来源*](https://i.ytimg.com/vi/8yFYfrCu8mU/maxresdefault.jpg)
+据【琉球新报】消息，根据冲绳县每日发布的中共病毒（新冠病毒）感染者年龄组趋势分析，5日至8日感染开始蔓延时，20多岁的感染者占总数的50%以上，但此后比例有所下降，13日达到28.18%。同时不满10岁、10岁以上的青少年、40多岁和50多岁的感染人数正在增加。从20几岁年龄段开始爆发的感染已蔓延到各个年龄段，有可能使高风险的容易重症的老年人被感染数量增加。
 
-据《Hannity.com》作者：Hannity员工，2022年1月11日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3468.png)图片来源：网络
-谈到COVID战略时，拜登政府正在按下重置按钮——至少，他们无论如何都会尝试这样做。
+20多岁年龄段新感染者的比例在感染人数迅速增加的前一天为30.77%。 3日，当新增感染人数达到130人时，20多岁的人比例增至40%。 5日为53.29%，为623人，4日超过50%，至8日为1759人。
 
-据NBC新闻报道，拜登卫生政策制定者和过渡成员组成的团队正准备对政府的COVID反应采取新的方法，因为他们意识到自己正在失去美国人民的信任。
+尽管按年龄组划分的最大数量在20多岁年龄段保持不变，但占总数的百分比继续下降至9日的45.79%、10日的40.69%、11日的33.81%和12日的28.35%。
 
-“这种变体（Omicron）的迅速传播给许多美国人的生活造成了自大流行以来从未有过的破坏。人员短缺迫使学校和企业关闭，并导致警察和消防部门因急救人员大量生病而缺勤。由于人员短缺，航空公司取消了数千个航班，公交系统关闭了公共汽车和地铁路线，病例激增再次削弱了邮轮业。”NBC报道。
+30多岁的年龄段在 2 日和 3 日处于 20% 的范围内，但此后一直处于 11-14% 的范围内。青少年5日攀升至10%水平，13日逐渐上升至14.86%。 10岁以下的人数从7日开始增加，新学期开始时，13日达到9.36%。 40多岁的人11日超过10%，13日超过14.69%。 50多岁的人12日超过10%，13日超过10.35%。
 
-“拜登当选总统在很大程度上是基于 ‘我有实力，我有能力，我会告诉你真相，我将以我的前任无法做到和拒绝做的方式处理Covid’的信息，但这（Covid）仍然是大多数人的头号问题。” 曾在奥巴马政府中担任卫生与公众服务部部长凯瑟琳·西贝利厄斯说。
+可能最初主要是20多岁的人被感染，然后通过他们的家庭和工作场所传播到各个年龄段。
 
-“[美国人]的生活仍然很混乱，有点凌乱，当他们认为自己可以摆脱困境时，他们又回到了困境中。”她补充道， “我确实认为这涉及到实力和能力，说真话和使用总统可以使用的所有工具。”
+最近几天，60多岁的比例在5%左右，70多岁的比例在3%左右，80多岁的比例在2%左右，90岁及以上的比例不到1%，但集中在养老设施开始出现，引发对感染增加的担心。
 
-“就沟通和对CDC的信任而言，感觉就像我们倒退了。”巴尔的摩前卫生专员Leana Wen说。
+新闻来源：[**20代の感染爆発→各年代に拡散　沖縄コロナ第6波、高齢者にもクラスター**](https://news.yahoo.co.jp/articles/f55d25c6fad930005fc16b70067cebca46d6ade2)
 
-
-
-> Unsurprisingly, Biden’s testing shortage, confusing rhetoric, and tolerance-based CDC guidance has failed to “shut down the virus” as promised…
-> 
-> ‘We have gone backwards’: Covid confusion snarls Biden White House ⁦[@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw)⁩ [https://t.co/SxPL73eTZP](https://t.co/SxPL73eTZP)
-> — Chad Gilmartin (@ChadGilmartinCA) [January 11, 2022](https://twitter.com/ChadGilmartinCA/status/1480879668668547073?ref_src=twsrc%5Etfw)
-
-
-
-“不出所料，拜登的检测缺乏，令人困惑的言论以及基于容差的CDC指导未能像承诺的那样”阻断病毒”……
-
-“我们已经倒退了”：Covid让拜登的白宫陷入混乱
-
-
-```
-@NBCNews“
-```
-
-
-原文连接：[**https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/**](https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/)
-
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,117 +2,69 @@
 ---
 
 
-## 【Michael.Tonny专栏】CCP不仅把中共国变成大监狱，更在监控全世界！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1863087/)
+## 01/15每日播报|社媒消息：蓬佩奥 娜塔莉温特斯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1863120/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+BY:**[秘翻新闻](https://gtv.org/broadcast/watch/61e28c17a6dfdd603154acfc)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+**2022-01-15**
 
-中共不仅把中共国变成大监狱，更是在监控全世界！
+**1. 蓬佩奥1月15日在盖特发文： **在担任国务卿时，当我的团队和我去访问中共国时，我们把手机留在家里。美国队这样做是明智的，但这只是降低风险的一小步，因为我们运动员的安全仍处于危险之中。
 
-根据2018年4月27日通过的《[中华人民共和国国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)》第十四条，“中国人民、企业有支持、协助和配合国家情报工作之义务”。每一个中共国的通信公司，都不得不成为CCP监控全世界的工具！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_15-40-33.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_15-41-16.jpg)
+[https://gettr.com/post/pobv0ja86c](https://gettr.com/post/pobv0ja86c)
 
-网易新闻《[2021年全球监控摄像头数量或将破10亿，中国占一半](https://www.163.com/dy/article/FPFBN1PB0511QE18.html)》报道，2020年全球监控摄像头数量为7.7亿支，中共国就有超过3.5 亿支，而到了2021年后，在全世界10亿支监控摄像头中，有超过50%的镜头将会坐落在中共国，中共国成为全世界监控最密集的的国家。
+**2. 娜塔莉温特斯1月15日在盖特发文： **佩洛西的高层职员注册为“外国代理人”，为中共官媒游说。 【盖文转《国家脉动》报道，南希·佩洛西的前通讯主任布兰登·戴利（Brendan Daly）是一名注册的外国代理人。当中共的首席官媒—中国中央电视台CCTV在美国扩张业务时，他为其提供 “战略咨询”。在担任奥吉维全球公关公司（Ogilvy Public Relations Worldwide）的执行副总裁期间，戴利为该游说行业巨头争取到了CCTV的合同。合同的具体要求是，该公司通过“提供战略咨询、确定传播活动的相关方、建立媒体关系以支持CCTV北美分台（CCTV America）的启动”，帮助中共宣传机构CCTV扩展到美国家庭。2012年根据《外国代理人登记法》（FARA）提交的文件指出：“奥吉维全球公关公司将与央视北美分台合作，将向美国公众传达CCTV从亚洲视角提供的引人注目、全面和平衡的新闻节目。”然而，根据CCTV根据《外国代理人登记法》提交的注册文件显示，该媒体完全由中共“监督、拥有、指导、控制、资助和补贴”。戴利的电子邮件表明，他是这项合同谈判的牵头人。】
 
-在中共国，平均每2.7人有一台摄影机时刻可以直接获取每个人的脸部资料，并判别每个人的模样。仅[杭州海康威视数字技术股份有限公司](https://www.hikvision.com/cn/)和[浙江大华技术股份有限公司](https://www.dahuatech.com/)两家杭州公司生产的监控摄像头，就占据了全世界近4成的数量。“雪亮工程”，视频监控覆盖到了乡镇、村的每一个角落。
+[https://gettr.com/post/podn5x04ed](https://gettr.com/post/podn5x04ed)
 
-早在2013年，中共国公司就将美国Aqueti公司转移到了中共国，又帮助Aqueti头两轮募资就拿到了2800万美元。利用Aqueti生产的拥有19个镜头、可以转出1.07亿画素影像的监控像头，可以在摄影机70米范围内进行人脸辨识。
+**3. 班农先生1月15日在盖特发文：** 娜塔莉温特斯揭穿了这些叛国者的恶行。为什么我们会震惊？因为佩洛西通过与获中共支持的硅谷风险资本家合作来赚钱。
 
-随着中共国不断从全世界盗取最先进的AI技术和越来越进步的摄像头技术，中共国对老百姓的监控已经深入到骨髓。
+[https://gettr.com/post/poe1l70147](https://gettr.com/post/poe1l70147)
 
-中共国人时刻生活在恐惧之中！
+**4. 班农先生1月15日在盖特发文：** 在西安市可能出现了新变异株这个问题上，中共必须百分之一千的透明，立即公布真相，否则北京的种族灭绝奥运会必须被取消。 【盖文转本杰明·哈恩维尔的盖文：我在1月5日首次与班农先生和罗伯特马龙博士私下讨论了西安出现的伴有出血热症状的新变异株问题。我不想制造一波恐惧。但日复一日的事件证实，在中共国，一些巨大的邪恶正在黑暗中展开。北京冬奥会绝对不能举行。】
 
-中共老杂毛早已不满足于把全中共国人变成奴隶，而是要统治世界，把全世界人民都“管起来”！
+[https://gettr.com/post/pocsvc80f6](https://gettr.com/post/pocsvc80f6)
 
-立陶宛国防部（[MINISTRY OF NATIONAL DEFENCE REPUBLIC OF LITHUANIA](https://kam.lt/en/news_1098/news_archives/news_archive_2021/news_archive_2021_-_09/things_your_smart_phone_does_without_your_awareness_investigation_into_three_china-made_5g_devices.html?backlink=%252Fen%252Fsearch%252Fresults%252Fp0.html)）2021年9月21日消息，立陶宛国防部国家网络安全中心（The National Cyber Security Centre under Ministry of National Defence）对中共国制造商在立陶宛销售的华为P40 5G、小米10T 5G、OnePlus 8T 5G三款5G智能手机进行了网络安全评估。
+**5. 英国社会活动家马吉德·那瓦兹 (Maajid Nawaz)1月14日在盖特发文：** 真正的邪恶正在向我们袭来。“一位没有接种新冠疫苗的加拿大父亲暂时失去了探望他12岁孩子的权利。加拿大魁北克省的一位法官裁定，他的探视不符合孩子的“最佳利益”。 【盖文转BBC报道，此前，该父亲曾要求延长假期的探视时间，却遭到小孩母亲的反对。她告诉法庭，她发现该男子没有接种疫苗，并用他的社交媒体帖子来证明他反对接种疫苗。一位家庭法专家说，该判决是第一个以未接种疫苗为由，剥夺父母探视权的判决。这位父亲的探视权被暂停至2月，除非他决定接种疫苗。法官说，由于魁北克最近的新冠病例增加，“与父亲接触不符合孩子的最佳利益。”】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/The-devices-examined-in-the-assessment.-Front-and-rear-panel-views.jpg)
+[https://gettr.com/post/po6rmzaddf](https://gettr.com/post/po6rmzaddf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/nksc-telefonai.jpg)
+**6. 罗伯卡森秀1月14日在盖特发文：** 纽约市一家餐馆老板表示，他不会遵守该市对私人雇员的疫苗强制令，并因此而被逮捕。 这位老板是英雄！我们必须为这样的企业家而战！ 【盖文转英国《每日邮报》报道，纽约市布鲁克林一家餐饮店的老板斯特拉蒂斯·莫弗根（Stratis Morfogen）1月12日在接受福克斯新闻的主持人塔克·卡尔森采访时说：“整个疫情期间，餐馆老板在苦苦挣扎的同时，尽力给人们提供工作机会，而且为急救人员提供食物。纽约州执行的疫苗强制令是完全错误的。我没有遵守，我告诉州长，尽管来逮捕我。我不这样做是因为我们的员工是英雄，在大流行初期，他们为8400名医护人员提供食物。我不会因为疫苗令而解雇这些人。”莫福根很高兴最高法院终止了拜登政府针对私人企业的疫苗强制令。】
 
-根据这份《[Assessment of cybersecurity of mobile devices supporting 5G technology sold in Lithuania  ANALYSIS OF PRODUCTS MADE BY Huawei, Xiaomi and OnePlus](https://www.nksc.lt/doc/en/analysis/2021-08-23_5G-CN-analysis_env3.pdf)》评估报告，在小米Mi 10T设备出厂安装的系统应用程序初始化过程中，这些应用程序通过globalapi.ad.xiaomi.com（IP 地址 47.241.69.153）联系新加坡的服务器并下载 JSON文件 MiAdBlacklistConfig固件，并将此文件保存在应用程序的元数据目录中。
+[https://gettr.com/post/poatix0ed3](https://gettr.com/post/poatix0ed3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/the-data-link-between-the-device-and-the-servers-located-in-Singapore.jpg)
+**7. 新唐人1月14日在盖特发文： **美国最高法院的裁决对美国的小企业来说是个巨大的宽慰，因为自大流行病开始以来，他们一直在努力使他们的业务回到正轨。 【盖文转报道， 美国最高法院1月12日终止了乔·拜登总统强制要求私营部门雇主确保其员工接种新冠疫苗的命令。这项裁决对企业来说是一个好消息，因为他们感受到了执行强制令的行政负担，以及不用在劳动力已经短缺的情况下，再有员工因未接种疫苗而流失。全美独立企业联盟NFIB的小企业法律中心执行主任卡伦·哈内德说：“企业的经济仍然很脆弱，因为企业主正在努力解决供应链中断、高通货膨胀和人员短缺问题。“】
 
-该文件包含400多个审查术语清单，包括“自由西藏”、“89民主运动”和“台湾独立万岁”等敏感词汇。一旦设备确定内容包含某些敏感关键字，设备就会对该内容进行过滤，用户看不到它。数据分析的原理不仅可以分析字母书写的单词，服务器定期下载的列表还可以由任何语言组成，小米可以随时远程重新启用审查。
+[https://gettr.com/post/po9m1h9098](https://gettr.com/post/po9m1h9098)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021-08-23_5G-CN-analysis_env3.jpg)
+**8. 班农先生1月14日在盖特发文： **这就是领导者教育下一代的方式。 “耐克正在积极参与中共国的奴隶劳动，并从中获利。然后我告诉孩子们北京冬奥会即将到来，并问他们在那里举办奥运会是否合适，他们都说不！”
 
-华为P40 5G手机加载软件则将其用户引导至非官方应用商店。
+[https://gettr.com/post/poav840475](https://gettr.com/post/poav840475)
 
-在小米产品中发现9个涉及个人数据安全的漏洞，在华为产品上发现144个漏洞，其中大部分涉及干扰设备功能，在OnePulse产品上发现1个漏洞，涉及当设备被锁定时，甚至有发送短信的第三国应用程序。
+**9. 埃内斯·坎特1月14日在盖特发文： **坎特在接受法国媒体《法兰西24》采访时说：“中共花钱让人们对其恶行保持沉默，伊隆·马斯克 (Elon Musk) 也刚被中共收买了。“ 【盖文转《法兰西24》报道，坎特在采访中批评马斯克在新疆地区开设特斯拉汽车的展销厅，并谴责NBA的主要赞助商耐克公司在中共国的“现代奴隶制”行为。坎特呼吁运动员们在北京冬奥会开幕之前勇敢发声，因为金牌不如他们的道德和价值观重要。而且仅仅外交抵制是远远不够的。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021-08-23_5G-CN-analysis_env4.jpg)
+[https://gettr.com/post/po9qsua120](https://gettr.com/post/po9qsua120)
 
-立陶宛国防部建议本国公民不要购买中共国生产的手机，并建议人们丢弃他们现在可能拥有的任何中共国生产的手机，因为这些手机中都安装了审查功能。
+**10. 喜马拉雅战鹰团1月14日在盖特发文：** 英喜庄园1月13日在采访班农先生时问道，北京冬奥会成为全球范围的病毒超级传播事件的可能性有多大？班农先生回答说：“最大的讽刺是在大流行期间，没有任何事能像北京冬奥会那样让我们看清全球医疗机构、政府和媒体的走狗嘴脸，让我们把所有的道德和伦理问题放一边，这些问题比纳粹德国还大。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Characteristics-of-data-sent-by-Sensors-Data.jpg)
+[https://gettr.com/post/poarfy9110](https://gettr.com/post/poarfy9110)
 
-根据[台湾国家通讯委员会](https://www.ncc.gov.tw/chinese/news_detail.aspx?site_content_sn=8&amp;sn_f=47018)1月6日消息，台湾国家通讯传播委员会（National Communications Commision，简称NCC）在获知立陶宛国防部网路安全中心去年9月21日发布小米Mi 10T 5G手机内置程序具有文字审查功能后，为保障公民使用手机的个人隐私安全，于去年10月委托[财团法人电信技术中心](https://www.ttc.org.tw/)（Telecom Technology Center，简称TTC）检测在台销售的小米同款手机，结果发现其内建的个性主题、音乐、套装软件安装程序、手机管家、垃圾清理、下载管理、小米视频等7个应用软件（App）会从globalapi.ad.xiaomi.com服务器下载针对“自由西藏”、“台湾独立”、“美国在台协会”、“香港独立媒体”、“六四事件”、“近平”、“胡锦涛”、“蔡英文”、“李登辉”、“巴哈姆特”、“PTT八卦版”、“自由时报”、“中国国民党”、“民进党”、“亲民党”等政治词汇进行比对的文件包（MiAdBlacklistConfig），该程序包具有切断连网或将相关浏览行为回传功能的担忧。该比对文件包内包含政府、宗教、政治团体、社会运动和政治人物姓名等简体、繁体和英文敏感词汇，总计有2千余个敏感词条。
+**11. 喜马拉雅国际工作站1月15日在盖特发文：** 皮特纳瓦罗在接受《班农战斗室》采访时说：“欧洲药品管理局发出警告说，频繁接种新冠疫苗加强针会对免疫反应造成负面影响，并永久性地损伤你的免疫系统，使人筋疲力尽，最终让其他疾病杀死你。”
 
-中共国政府通过通信设备厂商，对外国人的监控已经由来久。
+[https://gettr.com/post/poe4pl2712](https://gettr.com/post/poe4pl2712)
 
-根据《[Hackers reveal critical vulnerabilities in Huawei routers at Defcon](https://www.computerworld.com/article/2505191/hackers-reveal-critical-vulnerabilities-in-huawei-routers-at-defcon.html)》消息，2012年7月，安全研究人员在Defcon黑客大会上披露了中共国网络和电信设备制造商华为路由器的严重漏洞，在华为AR18和AR29系列路由器的固件中发现了会话劫持、堆溢出和堆栈溢出等漏洞，固件代码中有超过10,000次调用sprintf，这是一个众所周知的不安全函数。
+**12. 郭文贵先生1月15日在盖特发文：** 太平联盟的官司，从开始到今天，我们获得了唯一一次正义的判案。单伟建的代表律师爱德华·莫斯（Edward Moss）、卡西尔，戈登和雷德尔律师事务所（Cahill Gordon & Reindel LLP）因严重违反律师道德被纽约高院踢出局。我们因为这个不道德的律师提供的虚假证据受到多次不公对待。他知法犯法，因此我们的家人被剥夺了拥有18楼公寓的权力，也被剥夺了选择陪审团的权利。他们利用很多虚假的和不真实的证据、以及法律超限战方式来对付我们。所有人都知道太平联盟和中共的关系、和吴征的关系、和海航的关系。此案是在我申请了政治庇护的24小时内发起的，事关美国司法和中共司法界最黑暗的一面，已经引起了全世界的关注。在这个案子上我们都能看到．有太多的利益冲突和共产党的操控手段。操控此案的前中共公安部副部长孙力军已经被抓了，我相信正义离我们也不遥远了。我们一定会战斗到底！但我们永远要相信并尊重美国的法律、美国的法官和美国的正义。这就是美国的伟大之处。这个案子并没有结束，我相信这个案子最终一定也会得到美国法律和法官的公正判决，一切都已经开始！
 
-根据2014年7月31日一篇《[Did Xiaomi Really Install Spyware on the Redmi Note?](https://www.lowyat.net/2014/29845/did-xiaomi-really-install-spyware-on-the-redmi-note/)》文章透露，香港论坛IMA Mobile论坛的研究员发现小米红米Note上安装了间谍软件，小米智能手机在系统深处嵌入了一个间谍软件，当用户刷新软件以替换 MIUI 时，它甚至可以ping中国的服务器！
+[https://gettr.com/post/poee40e2ab](https://gettr.com/post/poee40e2ab)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xiaomi-redmi-note-connect-to-china.jpg)
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
 
-根据2015年9月11日《[Spy software on Chinese phones](https://u.osu.edu/mclc/2015/09/11/spy-software-on-chinese-phones/)》消息，德国的安全公司G-Data发现，包括华为在内的26款中共国制造智能手机，都在固件中被预装间谍软件。在联想、华为和小米等中共国公司的智能手机上发现了可以接听电话、跟踪用户和进行在线购物的恶意软件。除了华为、联想和小米的手机外，G-Data 的研究人员还在 Alps、DJC、SESONN 和Xido 等中共国生产的手机上发现了类似的间谍软件。G-DATA 的安全工程师安迪·海特 (Andy Hayter) 在接受电话采访时说，G-DATA最新发现中国公司在智能手机上增加了越来越多的类似间谍软件。除ConCorde 外，所有手机都是在中共国制造的。
+发布：陸柒陸捌
 
-2016年10月15日，《[Chinese-authored spyware found on more than 700 million Android phones](https://www.cyberscoop.com/android-malware-china-huawei-zte-kryptowire-blu-products/)》报道说，美国弗吉尼亚州的一个信息安全公司Kryptowire安全研究小组发现，包含一些在美国使用过7 亿部 Android 智能手机上发现了由上海广升（Adups）编写的隐藏间谍软件，通过跟踪用户的移动和通信来实现监控。广升软件将手机短信的全文、联系人名单、通话记录、位置信息，以及其它数据传输到一个中共国的服务器上去。广升解释说，该软件主要是用于监控中共国用户，并非针对美国用户。广升网站显示，广升主要为华为和中兴提供软件。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_17-44-47.jpg)
-
-研究人员发现，Adups的固件每72小时向中共国服务器发送一次数据包。这些数据包包含用户的通话记录、短信、联系人列表、GPS 位置和其他数据。
-
-Kryptowire副总裁Tom Karygiannis说，流量被多次加密，正在使用的服务器也是固件检查和更新过程的一部分，即使普通用户能够注意到流量，他/她也无法理解流量的含义。鉴于同一域用于固件更新，用户或互联网提供商极不可能将流量识别为 “个人身份信息” 传输，因为它被伪装为固件更新/检查的一部分过程。
-
-2017年7月，华为松山湖科技产业园手机生产基地内部员工透露，华为每款手机和电脑里面都秘密安装了自带监听软件，客户无法删除，只要你使用了华为手机或华为电脑，无论你身在世界任何地方，你的通电过程，个人资料，手机安装了什么软件，手机上的图片、信息、个人隐私都将呈现在华为公司的内部监控屏上。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8b911185335e4d8fb3d2682d91e6e2a9_th.jpg)
-
-2018年2月FBI、CIA等美国六大情报机构警告美国人不要使用华为和中兴的产品。英国、澳大利亚、加拿大等国也先后开始对华为进行安全调查。
-
-华为网站上曾经宣称，“在全球建设了一千五百多张网络，帮助世界超过三分之一的人口实现联接”。意味着全球三分之一的人，可能落入中共的监控黑网。
-
-怪不得中南坑老杂毛胆敢宣称“东升西降”、“平视美国、俯视欧洲”！
-
-参考资料：
-
-[MINISTRY OF NATIONAL DEFENCE REPUBLIC OF LITHUANIA](https://kam.lt/en/news_1098/news_archives/news_archive_2021/news_archive_2021_-_09/things_your_smart_phone_does_without_your_awareness_investigation_into_three_china-made_5g_devices.html?backlink=%252Fen%252Fsearch%252Fresults%252Fp0.html)
-
-[Assessment of cybersecurity of mobile devices supporting 5G technology sold in Lithuania  ANALYSIS OF PRODUCTS MADE BY Huawei, Xiaomi and OnePlus](https://www.nksc.lt/doc/en/analysis/2021-08-23_5G-CN-analysis_env3.pdf)
-
-[台湾国家通讯委员会](https://www.ncc.gov.tw/chinese/news_detail.aspx?site_content_sn=8&amp;sn_f=47018)
-
-[财团法人电信技术中心](https://www.ttc.org.tw/)
-
-[Hackers reveal critical vulnerabilities in Huawei routers at Defcon](https://www.computerworld.com/article/2505191/hackers-reveal-critical-vulnerabilities-in-huawei-routers-at-defcon.html)
-
-[Did Xiaomi Really Install Spyware on the Redmi Note?](https://www.lowyat.net/2014/29845/did-xiaomi-really-install-spyware-on-the-redmi-note/)
-
-[Spy software on Chinese phones](https://u.osu.edu/mclc/2015/09/11/spy-software-on-chinese-phones/)
-
-[Chinese-authored spyware found on more than 700 million Android phones](https://www.cyberscoop.com/android-malware-china-huawei-zte-kryptowire-blu-products/)
-
-[Chinese tech firm continues to secretly siphon data from Android phones](https://www.cyberscoop.com/android-malware-blu-kryptowire-adups-software/)
-
-[中华人民共和国国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)
-
-[2021年全球监控摄像头数量或将破10亿，中国占一半](https://www.163.com/dy/article/FPFBN1PB0511QE18.html)
-
-[杭州海康威视数字技术股份有限公司](https://www.hikvision.com/cn/)
-
-[浙江大华技术股份有限公司](https://www.dahuatech.com/)
-
-[华为回应手机被安装监听软件：这是恶意诽谤的谣言！](https://www.sohu.com/a/161468987_166680)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

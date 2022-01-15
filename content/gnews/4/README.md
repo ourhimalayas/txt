@@ -2,130 +2,22 @@
 ---
 
 
-## 共产党是魔 只要它存在 没有人是安全的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863285/)
+## 中共长沙首份推出流氓法规《家庭教育令》
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1863319/)
 
-[https://gtv.org/video/id=61e296c187664c47acd4ed1e](https://gtv.org/video/id=61e296c187664c47acd4ed1e)
+作者：德国纽伦堡正义农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/01/家庭教育令.jpeg)封面来源：网络图片
+澎湃新闻2022年1月15日报道，2022年1月6日，湖南长沙天心区法院发出全国首份《家庭教育令》，要求获得孩子抚养权的母亲与孩子同住，亲自养育。这是《家庭教育促进法》自2022年1月1日起施行后，全国首份《家庭教育令》。这是一份有“牙齿”的具有强制效力的司法令状，若义务履行人违反，视情节轻重可予以训诫、罚款、拘留，甚至依法追究刑事责任。
 
-**郭文贵
-Miles Guo**
+中共邪教组织为了弥补国内韭菜的断层，“计划生育”政策反向施行，从之前的杀婴到现在的鼓励生育和管控婴儿，只要对自己有利中共可以按需随意更改法规。中共用“贫民”手段让老百姓为了生计不得不长期出门打工，而孩子只能跟着“空巢老人”或者“保姆”生活在一起。这种情况下，孩子只能在学校接受中共的洗脑教育，而回到家中就成了“洗脑漏洞”，那么《家庭教育令》就应运而生了。
 
-这个中国真的是从来没有像今天（这样）
-This CCP China really has never been as evil as it is today
+中共长沙首份推出流氓法规《家庭教育令》，下一步就是全国施行这个强制法规。中共依然打着“为人民服务”的幌子，把自己制造出的孩子不能跟父母生活在一起的问题放大，还把全部问题都归结于这些无奈的父母。中共一纸命令不但要强制孩子必须和父母生活在一起，还要“干预”和“引导”家庭教育在孩子“洗脑”当中扮演重要角色，也就是老百姓不但要“自愚”，还要“愚自己的下一代”，可谓邪恶至极。
 
-邪恶到如此之程度
-Its evilness has reached such a level
+新闻来源：这事儿｜有“牙齿”的《家庭教育令》，要落地还需更“主动”
 
-中国人民（要受）的罪真的还早着呢
-It is still way too early that the Chinese people have to suffer
+https://www.thepaper.cn/newsDetail\_forward\_16301836
 
-正在重庆和天津发生的事情是丧尽天良
-What’s happening in Chongqing and Tianjin is outrageous and discussing
-
-用什么罪名都是无法来形容的
-There is no way to describe the CCP’s crimes with any existing accusation
-
-所以共产党不仅对新疆人大屠杀
-That’s why the CCP massacres people not just the Xinjiang
-
-它对谁都大屠杀
-They massacre people of all kinds
-
-它不仅要向昆仑山神敬奉，所谓的新疆、西藏、彝族、傣族、水傣这些（民族的）处女处男
-They not only will worship the Kunlun Mountain God with so-called female and male virgins of the Xinjiang, Tibet, Yi, Dai, and ShuiDai minority groups
-
-它一样也把汉人也送上去
-but the Han people
-
-所以在我们灭共这件事上
-So when it comes to our mission of taking down the CCP
-
-哈萨克族也好，什么族也好，我们都是一家人
-whether it’s Kazakhs or any ethnic group, we all are one family
-
-你不灭共我们什么族都没有
-We’ll not have any ethnic group if we don’t take down the CCP
-
-特别是汉人
-especially the Han Chinese people
-
-不要有什么优越性以为（共产党）只灭新疆人、西藏人哈萨克人不灭我们
-Don’t even think that you would have any superiority so that the Communist Party only wipes out the Xinjiang people, Tibetans, and Kazakhs but not us
-
-我告诉你一点
-I’ll tell you one thing
-
-它是魔你是人的差距跟什么族半毛钱关系都没有
-The difference between they are demons and you are a human has absolutely nothing related to certain ethnic groups
-
-现在美国人意识到了
-Now the Americans have realized that
-
-哇塞，你不是要我停止欧洲东扩呀
-Wow, you weren’t just stopping me for the eastward expansion of Europe
-
-你已经到来我美国搞BLM来了
-You have already come to the United States to engage in the BLM (Black Lives Matter) activities
-
-大家记住哈萨克斯坦的事出来是第一个表达
-Everyone need to be aware that the first one to express after the Kazakh incident
-
-10小时内表态的（领导人）就是习近平
-the leader who expressed his position within 10 hours was Xi Jinping
-
-（习说）这是颜色革命
-（Xi said）it was a color revolution
-
-记住了吧，支持哈萨克斯坦政府的镇压，这是对人民负责的一个决定
-Do you remember that? (Xi said) supporting the repression of the Kazakh government is a decision of responsible for the people
-
-但是（对于）BLM你知道他说啥了？
-However, do you know what he said about the BLM?
-
-（习说）BLM美国人民要有人权、民主呀
-(Xi said), the BLM was the need of human rights and democracy for the American people
-
-而且也是非常之快
-And very quickly
-
-你能想想俄罗斯竟然派出联合部队去了
-you can imagine that Russia sent a joint force
-
-白俄罗斯、吉尔吉斯、阿塞拜疆，夸嚓就去了
-Belarus, Kyrgyzstan, and Azerbaijan had quickly deployed there
-
-中共直接啊
-The CCP was straightforward
-
-将近3000架无人机夸嚓就给准备好了
-Nearly 3,000 UAVs had been prepared at once
-
-第二波就中共无人机就上去了
-In the second wave, the CCP’s UAVs deployed
-
-而且中共的整个北方的所有军队全部给哈萨克斯坦（政府）提供情报，所有的事项全部提供
-Moreover, all the troops of the CCP in the entire Northern Theater had provided intelligence information to the Kazakh government in every matter
-
-* * *
-
-Date: 01/09/2022
-原视频标题:
-共产党是魔 只要它存在 没有人是安全的
-No One Will be Safe if The Communist Party Exists Because The CCP is The Devil
-原视频日期：2022/01/09
-原视频链接: [**https://gettr.com/post/pneuju2f2a**](https://gettr.com/post/pneuju2f2a)
-任务编号：3460
-视频时间段 : 0:00-02:16
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/校对/发稿：德国纽伦堡正义农场-儒为
 
  
 

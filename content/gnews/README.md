@@ -15,94 +15,94 @@
 
 ---
 
-### [1/15/2022国际财经快讯：美联储称美国经济正在改善但仍有风险；贝莱德资产规模突破10万亿美元](/content/gnews/1/README.md)
+### [多方验证的非专利药物应该用于新冠早期治疗](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国网格化管理，合肥一男子因黄码被行政拘留五日](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“病毒操手”打杂客希望对公众隐藏 COVID 序列数据](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共长沙首份推出流氓法规《家庭教育令》](/content/gnews/4/README.md)
+ ` 儒为`
+
+### [1/15/2022国际财经快讯：美联储称美国经济正在改善但仍有风险；贝莱德资产规模突破10万亿美元](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共病毒在各年龄段蔓延 冲绳县正处于第6波疫情](/content/gnews/2/README.md)
+### [中共病毒在各年龄段蔓延 冲绳县正处于第6波疫情](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西安：中共非人道隔离政策下，人们不堪压力跳楼](/content/gnews/3/README.md)
+### [西安：中共非人道隔离政策下，人们不堪压力跳楼](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党是魔 只要它存在 没有人是安全的](/content/gnews/4/README.md)
+### [共产党是魔 只要它存在 没有人是安全的](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美最高法院：拜登政府灾难性疫苗强制令是违宪的](/content/gnews/5/README.md)
+### [美最高法院：拜登政府灾难性疫苗强制令是违宪的](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“我们倒退了”：前卫生专员承认美国人正在对CDC失去信任](/content/gnews/6/README.md)
+### [“我们倒退了”：前卫生专员承认美国人正在对CDC失去信任](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港闻速递｜李嘉欣呼吸困难入ICU急救 自爆“捡回条命” 网民怀疑疫苗副作用](/content/gnews/7/README.md)
+### [港闻速递｜李嘉欣呼吸困难入ICU急救 自爆“捡回条命” 网民怀疑疫苗副作用](/content/gnews/11/README.md)
  ` 關注組`
 
-### [写给还没加入农场的战友](/content/gnews/8/README.md)
+### [写给还没加入农场的战友](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [从交通罚款“吸血”看从共产党的吸血统治](/content/gnews/9/README.md)
+### [从交通罚款“吸血”看从共产党的吸血统治](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳大利亚国防部长呼吁名人、#MeToo为中国网球明星发声](/content/gnews/10/README.md)
+### [澳大利亚国防部长呼吁名人、#MeToo为中国网球明星发声](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [北京冬奥赛前运动员收到史无前例的警告](/content/gnews/11/README.md)
+### [北京冬奥赛前运动员收到史无前例的警告](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [在发现Omicron感染病例后，天津政府对所有居民进行核酸检测](/content/gnews/12/README.md)
+### [在发现Omicron感染病例后，天津政府对所有居民进行核酸检测](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“这种痛苦无以言表”母亲分享了在第二剂辉瑞疫苗5天后](/content/gnews/13/README.md)
+### [“这种痛苦无以言表”母亲分享了在第二剂辉瑞疫苗5天后](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [伊维菌素被誉为“神药” 为何官方不认可？](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022开局不利，深圳新房市场交易惨淡](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [为什么喜马拉雅交易所代表了下一代的支付生态系统？](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [01/15每日播报|社媒消息：蓬佩奥 娜塔莉温特斯](/content/gnews/17/README.md)
+### [01/15每日播报|社媒消息：蓬佩奥 娜塔莉温特斯](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【Michael.Tonny专栏】CCP不仅把中共国变成大监狱，更在监控全世界！](/content/gnews/18/README.md)
+### [【Michael.Tonny专栏】CCP不仅把中共国变成大监狱，更在监控全世界！](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [现世报 谭德塞被祖国告了](/content/gnews/19/README.md)
+### [现世报 谭德塞被祖国告了](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [甩锅民营医院 西安“一刀切”处罚方式受质疑](/content/gnews/20/README.md)
+### [甩锅民营医院 西安“一刀切”处罚方式受质疑](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年1月14日郭文贵先生直播全文字版](/content/gnews/21/README.md)
+### [2022年1月14日郭文贵先生直播全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [纽约法官取消了Cahill律师所代表太盟PAG起诉郭文贵先生的资格](/content/gnews/22/README.md)
+### [纽约法官取消了Cahill律师所代表太盟PAG起诉郭文贵先生的资格](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [彼得·纳瓦罗：追究中共和福奇在新冠病毒疫情中的责任](/content/gnews/23/README.md)
+### [彼得·纳瓦罗：追究中共和福奇在新冠病毒疫情中的责任](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法治基金援救战友](/content/gnews/24/README.md)
+### [法治基金援救战友](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [国家电网计划2022年投资5012亿元](/content/gnews/25/README.md)
+### [国家电网计划2022年投资5012亿元](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [首份券商2021年财报揭示：五矿证券净利同比下滑近13%](/content/gnews/26/README.md)
+### [首份券商2021年财报揭示：五矿证券净利同比下滑近13%](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [梅奥诊所解雇拒绝中共病毒疫苗的护士](/content/gnews/27/README.md)
+### [梅奥诊所解雇拒绝中共病毒疫苗的护士](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞疫苗显微镜观测结果](/content/gnews/28/README.md)
+### [辉瑞疫苗显微镜观测结果](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [天津疫情爆发](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [至少有164人在哈萨克斯坦的暴力抗议中丧生](/content/gnews/30/README.md)
+### [天津疫情爆发](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [当危会：不要去参加北京的种族灭绝奥运会](/content/gnews/31/README.md)
