@@ -2,30 +2,23 @@
 ---
 
 
-## 巴西15岁足球运动员因心脏骤停而死亡
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1864990/)
+## 七哥对歌星的理解
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865024/)
 
-By 意大利罗马达芬奇农场- 阿娜
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-一名15岁的足球运动员在巴西戈亚斯州（Goiás）的戈亚内西亚市（Goianésia）举行的全国足球杯比赛后死亡。
+我是由战友捧出来的歌星。是战友对我的信任把我变成了歌星，我不认为我是真正的歌星啊，我也没想当歌星，但是我每次在乎的是战友们打榜的这种持续性，还有这种持之以恒的动力，这证明我们的凝聚力和灭共的决心。所以创造这种成绩，让我最开心的是向西方人展示了这个 Miles郭、爆料革命和新中国联邦是真的，有人，有实力，而且遍布全球的，我在乎是这个。
 
-据Globo报道，这位名叫佩德罗-恩里克-奥利维拉-达席尔瓦-索萨（Pedro Henrique Oliveira da Silva Souz）的15岁足球运动员于周二深夜去世。他的死亡得到了其球队的确认。
+最近国内的很多人在恭喜我，包括我的女老师，也发信息说文贵我都没有想到我是一个摇滚巨星的老师啊。事实上我们老师都很兴奋，告诉她 的孩子，孙子孙女们，我的学生当中出来一位世界摇滚巨星…郭文贵。 她的孩子们都没听说过，赶快上网查，查完以后，真就是你这个学生… 郭文贵，好厉害。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对歌星的理解.001.jpeg)
+发布：tianzhihuan
 
-根据报告，这名15岁的足球运动员在周二晚上9点左右因意识低下、支气管痉挛（气道收缩）、严重呼吸困难、苍白病（血液中缺乏氧气）和吐血而被送入紧急护理室。根据检测报告，这名少年的病毒检测呈阴性。目前还不知道是什么原因导致他的病情。
-
-这名小男孩接受了药物治疗、氧气治疗和插管。但后来，他的病情恶化，然后出现了心脏骤停。医生进行了心肺复苏，但小男孩没有任何反应。
-
-根据G5 NEWS报道，这名年轻人接受了药物治疗，并接受了氧气治疗，结果得到了适度的改善，然而，他最终演变成了意识水平的下降，并出现心肺功能停止。医生对这名少年进行了插管，并进行了抢救，但病人没有反应，在医疗单位被确认死亡。
-
-佩德罗所在足球俱乐部和市政府发表声明，深表同情。
-
-评论：一个15岁的少年被俱乐部做职业化足球培训，说明他的身体条件一定是很好的，至少不会有什么先天性的病症，否则也很难被选作职业化培训，特别是作为足球的职业化培训。可小小的年纪竟然能够在3到4天时间内出现病症并死亡，而且是心脏骤停，这是非常让人疑惑的地方。不得不让人怀疑他是否进行过疫苗注射，从而产生副作用。
-
-原文链接：[https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm\_source=Gab&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm_source=Gab&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-* * *
-
-原作者： Jim Hoft，发布时间：2022年 1月15日
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
