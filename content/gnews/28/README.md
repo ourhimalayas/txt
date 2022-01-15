@@ -2,44 +2,78 @@
 ---
 
 
-## 1/15/2022国际财经快讯：美联储称美国经济正在改善但仍有风险；贝莱德资产规模突破10万亿美元
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1863311/)
+## 军情五处：华裔女律师干涉英国政治；揭密中共的对外扩张
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1863366/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-93.png)[图片来源](https://dzm0ugdauank9.cloudfront.net)
-**1.****美联储哈克称美国经济正在改善但仍有风险**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/33530758-10399501-China_has_invested_more_than_685billion_across_42_Commonwealth_m-a-10_1642101266053.jpg)图片来源：每日邮报
+来自《每日邮报》网站2022年1月13日的报道，一名疑似中共间谍向英国一名高级工党议员捐赠了50多万英镑的指控，似乎符合中共当局的伎俩——用数十亿美元现金在全球购买政治影响力。
 
-[(路透社）–费城联储主席帕特里克-哈克（Patrick Harker）周五表示，美国经济正在改善，比一年前更好，但仍在应对风险和挑战，因为一些企业在努力雇用工人。哈克在为大费城商会组织的一个虚拟活动准备的讲话中说：“经济正在改善，是的，但仍有风险和限制。”哈克引用该商会的一项调查说，许多企业去年的销售额上升，并预计这种增长将继续下去。但一些企业也面临着更高的成本，因为他们在努力招聘和留住员工，他在没有评论货币政策的讲话中说。他说：“今后，雇主将不得不创造性地考虑如何吸引和保留人才。”](https://www.oann.com/feds-harker-says-u-s-economy-is-improving-but-still-freighted-with-risks/)
+曾是杰里米·科尔宾(Jeremy Corbyn)影子内阁成员的巴里·加德纳(Barry Gardiner)，六年间一直在接受李贞驹(Christine Ching Kui Lee)的捐款——主要用于支付其办公室的人事费用，并雇用她的儿子担任其日记管理员。
 
-**2.****忠利之战进入白热化阶段，第二大投资者退出董事会**
+军情五处(MI5)今天采取了罕见的手段，向国会议员和同僚发出警告，指出李小姐在培养英国政客，以确保一种对中共独裁政府“有利”的“英国政治格局”。
 
-[米兰（路透社）–意大利最大的保险公司的第二大投资者从董事会辞职，挑战首席执行官Philippe Donnet的连任，此后忠利公司的董事会斗争升级。多尼特对新一任首席执行官的竞聘是忠利最大投资者之间斗争的核心，其中包括建筑和报业巨头弗朗西斯科-加塔吉罗内（Francesco Gaetano Caltagirone），他于周四从董事会辞职。Autonomous Research表示：“看来我们可能正在达到某个’紧要关头’。”卡尔塔吉罗内与眼镜业亿万富翁莱昂纳多-德尔维奇奥（Leonardo Del Vecchio）联手，挑战忠利最大的投资银行Mediobanca的影响力。Caltagirone持有忠利8.04%的股份，落后于Mediobanca的12.8%股份。Del Vecchio是排名第三的投资者，持有近7%的股份。](https://www.oann.com/generali-shareholders-caltagirone-del-vecchio-to-present-ceo-candidate-in-feb-source/)
+对于不经意的观察家来说，58岁的李贞驹(Christine Lee)似乎是一位受人尊敬的英国律师，其律师事务所还在北京、香港、广州、伦敦和伯明翰设有办事处。
 
-**3.****苹果公司遵守荷兰监督机构对荷兰支付方式的裁决**
+李与中共的联系很深。她曾任中共国驻伦敦大使馆的首席法律顾问和中共国务院侨务办公室(Overseas Chinese Affairs Office)的法律顾问，国侨办是受中共统战部监督的一个具有庞大影响网络的机构。
 
-[路透社阿姆斯特丹1月15日电–苹果公司周六表示，它将允许荷兰的约会应用程序开发商向其用户提供非苹果的支付选项，遵守该国市场监管机构的命令，在1月15日前完成，否则将面临罚款。荷兰消费者和市场管理局在12月24日公布的一项决定中发现，苹果公司滥用其市场地位，要求包括Tinder公司所有者Match Group（MTCH.O）Inc在内的约会应用开发商独家使用苹果的应用内支付系统。苹果公司要求开发者使用其系统并为购买数字商品支付15-30%的佣金的做法，受到了世界各地监管机构和立法者的审查，但荷兰的裁决只适用于荷兰，而且只适用于约会应用程序。](https://www.reuters.com/technology/apple-complies-with-dutch-watchdog-ruling-payment-options-netherlands-2022-01-15/)
+李贞驹深入英国政治机构的核心地带，取得了令人惊叹的成功。据军情五处称，这位中共国律师在众目睽睽之下与英国首相、同僚和高级国会议员混在一起，向工党和保守党的金库注入了数十万英镑，因为她试图扩大中共当局的影响力。
 
-**4.****台积电认为未来有多年的增长，将在2022年提升芯片支出**
+她的律师事务所在伦敦、伯明翰、中共大陆和香港均设有办事处，在五年内为前工党前座议员和科尔宾(Jeremy Corbyn)盟友巴里·加德纳(Barry Gardiner)议员的办公室提供了超过50万英镑的资金，她的儿子丹尼尔·威尔克斯(Daniel Wilkes)作为加德纳议员的日记秘书，有自己的议会通行证，并在同一间办公室工作了数年——至少，在他今天突然辞职之前是如此。
 
-[路透社台北1月13日电–台湾芯片公司台积电预计，由于半导体需求旺盛，未来几年将加速强劲增长，这家科技巨头周四公布了创纪录的季度利润，并表示计划比去年至少多支出三分之一。在COVID-19大流行期间，对用于智能手机、笔记本电脑和其他小工具的半导体的需求飙升，导致了严重的芯片紧缩，迫使汽车制造商和电子制造商削减生产，但使台积电和其他芯片制造商的订单满满。台湾积体电路制造有限公司（TSMC）是苹果公司（AAPL.O）的主要供应商，也有高通公司（QCOM.O）等客户，第四季度利润增长16.4%。该公司表示，预计今年将把资本支出提高到400亿至440亿美元之间。去年它的支出为300亿美元。](https://www.reuters.com/technology/tsmc-q4-profit-rises-164-record-beats-market-forecasts-2022-01-13/)
+她曾在2005年向自由民主党捐赠了5000英镑，又在2013年向现任该党党魁埃德·戴维(Ed Davey)捐赠了5000英镑，当时他任联合政府的能源大臣。
 
-**5.****AT&T在225亿美元的美国频谱拍卖中领衔竞标者**
+近年来，中共当局对世界权力的野蛮争夺，使中共对拉丁美洲和加勒比地区规模较小、往往较贫穷的主权国家的内政进行了更积极的干预。中共国上个月与拉美各地的一系列国家达成协议，以建立“民用”核技术，开发太空计划和建设5G移动网络，美
+![China has pumped cheap money into Latin America and the Caribbean for years, indebting governments and effectively buying influence. Where it has been unable to loan or buy, it has used armies of cheap workers to build key infrastructure projects, giving it outsized influence. And those ties are set to deepen with the signing of a new cooperation pact](https://i.dailymail.co.uk/1s/2021/10/19/16/49372529-10107835-image-a-23_1634657917298.jpg)
+国称这些网络可能被用来监视数百万人。据美国传统基金会(Heritage Foundation)的研究员马特奥·海达尔(Mateo Haydar)称，中共有野心成为“拉丁美洲的主导影响力”。
 
-[华盛顿，1月14日（路透社）–美国联邦通信委员会（FCC）周五表示，AT&T公司在3.45GHz频段的5G频谱拍卖中领衔竞标者，赢得90亿美元的竞标。FCC表示，此次拍卖共产生225亿美元的收益。T-Mobile (TMUS.O)赢得了29亿美元，而Weminuche LLC赢得了73亿美元，一些分析师和FCC文件显示其代表Dish (DISH.O)投标。Dish公司周五没有立即发表评论，该公司在11月确认已申请参加拍卖。AT&T拒绝发表评论。U.S. Cellular (USM.N)赢得了5.8亿美元的竞标。FCC表示，前100个市场中，超过三分之一的市场至少有四家中标者，比之前的拍卖范围更广。它说，更广泛的中标者范围和分布“将通过向多样化的无线运营商提供保持美国在5G领域领先地位所需的中带频谱资源来增加竞争。”](https://www.reuters.com/technology/us-fcc-announces-winning-bidders-345-ghz-auction-2022-01-14/)
+与此同时，自2005年以来，中共当局已在42个英联邦成员国投资了超过6850亿英镑。安全专家认为，通过向巴巴多斯(Barbados)和牙买加(Jamaica)等国家投入巨额资金，中共政府希望让这些国家背上无法偿还的巨额债务，迫使他们交出用作抵押的资产。
 
-**6.****马斯克称特斯拉将接受狗币购买商品**
+内政大臣普里蒂·帕特尔(Priti Patel)说，中共把英国议员作为目标，这让人“深感不安”。近来，包括伊恩·邓肯·史密斯爵士(Iain Duncan Smith)在内的保守党后座议员谴责了中共当局的国际行为，包括其对新疆维吾尔族穆斯林人口的处置、对香港民主的压制、对台湾的恐吓，及其涉嫌对中共病毒大流行起源的掩盖。
+![Laos, Sierra Leone, and Guinea having received more than their entire GDP in investment from China](https://i.dailymail.co.uk/1s/2022/01/13/19/51032859-10399501-Laos_Sierra_Leone_and_Guinea_having_received_more_than_their_ent-a-14_1642101289032.jpg)
+当中共希望联合国成员支持其严厉的《香港国家安全法》时，它得到了巴布亚新几内亚、安提瓜和巴布达的支持——剩下的16个英联邦王国中的两个。前者获得了53亿英镑的中共投资（占其GDP的21%），而后者获得了10亿英镑（占其GDP的60%）。
 
-[1月14日（路透社）–特斯拉公司（TSLA.O）首席执行官埃隆-马斯克（Elon Musk）周五在一条推特上说，特斯拉将接受基于备忘录的加密货币dogecoin作为其商品的付款，如 “Giga Texas “皮带扣和电动车的迷你模型。此举使dogecoin价格上涨了14%，此前马斯克曾表示，特斯拉将测试数字代币作为一种支付方式。马斯克是加密货币的积极支持者，他在很大程度上影响了dogecoin和比特币的价格，在砍掉计划之前，他曾一度表示该公司将接受比特币来购买其汽车。特斯拉的商品还包括最近推出的“Cyberwhistle”和“Cyberquad for Kids”，受到其粉丝的欢迎，通常在上市后几小时内就会售罄。](https://www.reuters.com/technology/tesla-merchandise-buyable-using-dogecoin-musk-says-tweet-2022-01-14/)
+著名的人权大律师海伦娜·肯尼迪(Helena Kennedy)男爵夫人补充说：“中共正在做的是一种交朋友的方式，以此影响联合国的投票。尝试以合作的方式处理可能会被破坏的事情，最终以附庸国支持的形式完成。
 
-**7.****尽管高管持乐观态度，但投资者对银行增长持谨慎态度**
+巴基斯坦是英国海外发展援助的最大受援国，自2005年以来，它从中共国获得了600亿英镑的投资，超过其国内生产总值的五分之一，而且现在70%的武器都是从中共当局购买的。当像斯里兰卡这样的受援国无力偿还高利息贷款时，它们将被迫交出用作抵押的资产——在本案例中是汉班托塔(Hambantota)集装箱港口和周围15000英亩土地，租期为99年。
 
-[华盛顿，1月14日（路透社）–尽管美国大银行的老板们周五对经济前景表示乐观，指出一些贷款业务的上升和消费者支出的跃升，但投资者对该行业的增长前景持怀疑态度。摩根大通(JPM.N)、花旗集团(C.N)和富国银行(Wells Fargo & Co)是美国经济的风向标，它们公布的第四季度利润总额为190亿美元，均轻松超过了分析师的预期。然而，分析家们指出，业绩增长受到储备金释放和其他一次性项目的帮助，基本表现不太引人注目。银行股全面下跌2.1%，前六大银行中只有富国银行逆势上扬，原因是对交易收入和贷款增长下降的担忧。](https://www.reuters.com/business/investors-wary-bank-growth-despite-executives-optimism-2022-01-14/)
+这让中共在一条由竞争对手印度主导的航线上站稳了脚跟。
 
-**8.****贝莱德资产规模突破10万亿美元，收入略微不及预期**
+上个月，中共国与拉美和加勒比国家共同体(CELAC)达成了一项协议，CELAC是拉美和加勒比国家联盟，涵盖了该地区几乎所有国家，包括巴西、阿根廷、哥伦比亚、委内瑞拉、乌拉圭和智利等主要参与国。虽然细节不清楚，但协议为中共国和该地区国家之间在2024年前的关系制定了一个广泛的路线图——即承诺他们致力于深化政府、银行、公司和教育机构之间的联系。
 
-[1月14日（路透社）–贝莱德公司（BLK.N）第四季度利润周五超过分析师预期，因为这家全球最大的资金管理公司的费用收入增加，管理的资产规模突破10万亿美元，但由于收入略低于华尔街预期，股价出现下滑。今年全球金融市场的强劲表现帮助提升了资产管理公司的整体表现，贝莱德也从其庞大的规模和广泛的影响中受益。截至本季度末，管理的资产为10.01万亿美元，高于去年同期的8.68万亿美元。爱德华-琼斯公司的分析师凯尔-桑德斯说：“这是一个令人印象深刻的里程碑，它只是说明了他们在行业内增长最快的领域的主导地位。他们继续以惊人的速度聚集资产。”](https://www.reuters.com/business/finance/blackrock-profit-rises-25-asset-growth-boosts-fee-income-2022-01-14/)
+最近几个月，华盛顿还对中共国公司向军方提供援助发出了越来越频繁的警告，并且可能担心在南美建立他们自己的任何民用核公司会被用于双重目的。
 
-By【秘密翻译组-金融组】
-作者：千年等一回
+同样，中共承诺帮助制定“和平探索太空”的太空计划也可能是一个令人担忧的原因。过去，中共当局曾试图将发射的间谍卫星伪装成“通信”飞船，最近还反驳了对其曾测试高超音速轨道核武器的指责，称其实际上是用于“和平探索太空”的民用航天器。
+![China has used a similar pattern of cheap loans, construction projects and purchases of key infrastructure to buy up influence in Africa which it hopes will help it out-compete the US. Beijing has now built its first overseas military base in the region (marked on the map) and is thought to be scouting a site for a second](https://i.dailymail.co.uk/1s/2022/01/13/19/42706266-10399501-China_has_used_a_similar_pattern_of_cheap_loans_construction_pro-a-19_1642101417257.jpg)
+中共对那些同意与台湾断交并与中共政权建立关系的国家特别慷慨。
+
+2005年，在格林纳达与台湾断交后，中共向年营业额仅18亿美元的格林纳达岛奖励了一座价值5500万美元的全新板球场。同样，在2018年，多米尼加共和国在与台北断交后，获得了据信高达30亿美元中共国的投资和贷款。
+
+最近，一家中共国公司于今年4月完全控制了牙买加金斯敦自由港(Kingston Freeport)，这是该岛最大的集装箱港口，也是加勒比海最大的港口之一。中共国还在古巴进行了大量投资，帮助该国第二大港口古巴圣地亚哥(Santiago de Cuba)实现了现代化，并于2019年开通了一个新的航运码头。
+
+**简评：**中共通过一带一路“大撒币”来扩大自己在世界各国的政治影响力。总结上文，其手段体现在以下几点：
+
+1，“语言+文化”的输出，从而影响西方人和华人对中共的看法。
+
+2，经济上对外扩张，通过向受援国提供高息贷款，待该国无力偿还时，借机霸占主要港口使用权。
+
+3，军事上，通过贩卖武器，挑起战火，输出革命。
+
+4，在科技上，通过发展太空计划、建设5G移动网络和推行监控技术在他国的应用，进而监视各国动态。
+
+综上所述可见，中共一直在榨取本国劳动人民的血汗钱，向外洒出天文数字的资金去收买其他国家，从而达到经济和军事扩张的目的。中共对外的各种扩张，势必要染指其他国家的势力控制范围，这些做法已经让英国渐渐清醒。英国军情五处爆出的中共女间谍事件，就有冰山开始融化的意味。世界各国已经被中共释放的新冠病毒折磨得苦不堪言，中共在这种局面下，依然不改其向外扩展和对别国进行渗透的野心，必将很快走向被世界各国集体讨伐的不归路。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10399501/How-Beijing-uses-billions-buy-political-influence-world.html](https://www.dailymail.co.uk/news/article-10399501/How-Beijing-uses-billions-buy-political-influence-world.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

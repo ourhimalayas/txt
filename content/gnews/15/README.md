@@ -2,31 +2,43 @@
 ---
 
 
-## 01/15每日播报｜澳网大满贯选手诺瓦克·德约科维奇因未接种疫苗将再次面临被澳大利亚驱逐出境
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1863456/)
+## 澳大利亚再次因未接种新冠疫苗取消了网球名将Novak的签证
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1863574/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61e28c17a6dfdd603154acfb)**
+作者：银河系农场——骄子
 
-**2022-01-15**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-纽约邮报1月14日报道，在澳大利亚政府于周五第二次吊销其签证后，网球冠军诺瓦克·德约科维奇再次面临被驱逐出境，而这一切就发生在就在澳大利亚网球公开赛开始前三天。
 
-移民部长亚历克斯霍克说，他利用部长的行政权撤销了这位 34 岁的网球选手的签证，称其他比赛选手和观众可能会因为他没有接种疫苗而构成健康风险。与上周不同的是，当时德约科维奇被迫在移民拘留所住了四个晚上，这位明星在本周五没有被拘留。然而，他必须在本周六召开的驱逐出境法庭听证会之前向移民官员报告。
+1月14日，据外媒报道，澳大利亚政府再次因未接种新冠疫苗而取消了网球名将Novak的签证。此前在Novak入境墨尔本就发生过取消签证的事件，这次取消的原因和上次并无二致，移民局的部长认为Novak未接种新冠疫苗不符合公共利益，为维护健康和良好秩序，将这位世界冠军的签证再次吊销。据悉澳网公开赛开赛日为1月17日下周一，距离比赛日期已经非常接近，Novak已经联合律师提起上诉，希望在周日作出裁决，然后周一参加比赛。
 
-在这项决定被公布后不久，这位体育明星的律师呼吁法官阻止他被驱逐出境，直到澳大利亚网球公开赛结束，他们坚称这位排名第一的球员没有风险，并暗示政府的举措是为了防止这位选手的事迹吸引那些站出来支持他的反对强制疫苗接种的抗议者。在截止目前的体育生涯中，德约科维奇赢得了创纪录的 20 个大满贯冠军中的 9 个。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-199.jpeg)图片来源：CBS NEWS
 
-澳洲政府规定，参加比赛的每个人包括球员、他们的支持团队和观众都必须接种中共病毒疫苗。 德约科维奇没有接种疫苗，并以他在去年的12 月感染了中共病毒为由寻求医疗豁免。
+参考链接 [https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/](https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/)
 
-这项豁免得到了维多利亚州政府和澳大利亚网球协会的批准，允许他获得旅行签证。但澳大利亚边防局拒绝了该项豁免，并在他于 1 月 5 日抵达墨尔本时取消了他的签证。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-198.jpeg)
 
-秘翻新闻主编清风先生编译报道。
+编辑/校对/发稿：文敬
 
-发布 : 文橙
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
