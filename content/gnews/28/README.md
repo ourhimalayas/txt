@@ -2,10 +2,10 @@
 ---
 
 
-## 当危会：不要去参加北京的种族灭绝奥运会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1862796/)
+## 辉瑞疫苗显微镜观测结果
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1862802/)
 
-01/10/2022 当前危机委员会致函美国奥委会和残奥会，呼吁停止派运动员赴北京的种族灭绝冬奥会。
+韩国科学家通过对辉瑞疫苗进行培养和观察，发现了奇怪的蠕动物。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,45 +2,126 @@
 ---
 
 
-## 澳大利亚国防部长呼吁名人、#MeToo为中国网球明星发声
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863227/)
+## 共产党是魔 只要它存在 没有人是安全的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863285/)
 
-据《大纪元》作者：Daniel Y. Teng，2022年1月9日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3463.png)2009年10月6日，中国网球运动员彭帅在北京的一场网球比赛中。 （AP Photo/Ng Han Guan）
-澳大利亚国防部长彼得-达顿呼吁名人和#MeToo运动的倡导者为中国网球明星彭帅发声。她在11月指控中共前副总理实施性侵犯。
+[https://gtv.org/video/id=61e296c187664c47acd4ed1e](https://gtv.org/video/id=61e296c187664c47acd4ed1e)
 
-“我不明白，在2021年#MeToo时代，我们怎么会有一个国际网球女明星因声称被强奸和性侵犯，而实际上被软禁，同时她的社交媒体账户也被抹去，而我们还要去容忍这些行为。” 达顿在1月10日发表的独家采访中告诉九报网。
+**郭文贵
+Miles Guo**
 
-这位国防部长并不害怕直接批评北京在南中国海和对台湾的行为，他说：“最好公开反对中国共产党（CCP），否则北京的行为就不会改变。”
+这个中国真的是从来没有像今天（这样）
+This CCP China really has never been as evil as it is today
 
-“我觉得这很了不起……当你看看#MeToo运动在西方社会的力量，”达顿说，“我们不会容忍，也不想容忍这样的暗示——即如果有人被强奸了，那就不会被解决。”
+邪恶到如此之程度
+Its evilness has reached such a level
 
-“更不用说数以万计的其他人的困境，他们发现自己处于同样的境地，维吾尔人和其他人要么受到威胁，要么人权受到侵犯，或者受到其他迫害。”
+中国人民（要受）的罪真的还早着呢
+It is still way too early that the Chinese people have to suffer
 
-“因此，我对这些事情的判断是，我认为如果我们想要改变，如果我们希望中国继续成为一个大国，但要遵守法治，那么我们就应该批评它。”
+正在重庆和天津发生的事情是丧尽天良
+What’s happening in Chongqing and Tianjin is outrageous and discussing
 
-彭帅的事件始于11月2日，这位网球明星在中国社交媒体微博上发布指控，称75岁的中共高官张高丽强迫她发生性关系——这是一段持续10年的畸形恋情的一部分。
+用什么罪名都是无法来形容的
+There is no way to describe the CCP’s crimes with any existing accusation
 
-在她从公众视线消失的三周之前，彭帅的帖子很快被从互联网上删除。
+所以共产党不仅对新疆人大屠杀
+That’s why the CCP massacres people not just the Xinjiang
 
-根据新加坡中文报纸《联合早报》的采访，这位网球明星重新出现，并否认她的指控，同时声称人们对她的微博信息有“误解”。
+它对谁都大屠杀
+They massacre people of all kinds
 
-但是，女子网球协会（WTA）负责人史蒂夫-西蒙暂停了2022年在中国和香港的所有赛事。
+它不仅要向昆仑山神敬奉，所谓的新疆、西藏、彝族、傣族、水傣这些（民族的）处女处男
+They not only will worship the Kunlun Mountain God with so-called female and male virgins of the Xinjiang, Tibet, Yi, Dai, and ShuiDai minority groups
 
-为了进一步保护彭帅和世界各地的许多其他女性，人们比以往任何时候都更迫切需要发声。西蒙在一份声明中说：“WTA将尽一切可能保护其球员。”
+它一样也把汉人也送上去
+but the Han people
 
-相比之下，考虑到中国市场的巨大潜力，许多机构一直不愿意同北京发生争执。
+所以在我们灭共这件事上
+So when it comes to our mission of taking down the CCP
 
-例如，虽然#MeToo运动在好莱坞得到了重视，但高管、制片人和演员同时也很谨慎，避免得罪中国共产党，即使是在很小的问题上。许多人还为所谓的对中国共产党的轻视而道歉。
+哈萨克族也好，什么族也好，我们都是一家人
+whether it’s Kazakhs or any ethnic group, we all are one family
 
-今年5月，演员和前摔跤手约翰-塞纳在社交媒体上用普通话道歉，因为他不经意地将台湾称为一个国家——这与《速度与激情》系列电影的第九部有关。
+你不灭共我们什么族都没有
+We’ll not have any ethnic group if we don’t take down the CCP
 
-文章来源:[**https://www.theepochtimes.com/australian-defence-minister-calls-on-celebrities-metoo-to-speak-up-for-chinese-tennis-star\_4202671.html**](https://www.theepochtimes.com/australian-defence-minister-calls-on-celebrities-metoo-to-speak-up-for-chinese-tennis-star_4202671.html)
+特别是汉人
+especially the Han Chinese people
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
+不要有什么优越性以为（共产党）只灭新疆人、西藏人哈萨克人不灭我们
+Don’t even think that you would have any superiority so that the Communist Party only wipes out the Xinjiang people, Tibetans, and Kazakhs but not us
+
+我告诉你一点
+I’ll tell you one thing
+
+它是魔你是人的差距跟什么族半毛钱关系都没有
+The difference between they are demons and you are a human has absolutely nothing related to certain ethnic groups
+
+现在美国人意识到了
+Now the Americans have realized that
+
+哇塞，你不是要我停止欧洲东扩呀
+Wow, you weren’t just stopping me for the eastward expansion of Europe
+
+你已经到来我美国搞BLM来了
+You have already come to the United States to engage in the BLM (Black Lives Matter) activities
+
+大家记住哈萨克斯坦的事出来是第一个表达
+Everyone need to be aware that the first one to express after the Kazakh incident
+
+10小时内表态的（领导人）就是习近平
+the leader who expressed his position within 10 hours was Xi Jinping
+
+（习说）这是颜色革命
+（Xi said）it was a color revolution
+
+记住了吧，支持哈萨克斯坦政府的镇压，这是对人民负责的一个决定
+Do you remember that? (Xi said) supporting the repression of the Kazakh government is a decision of responsible for the people
+
+但是（对于）BLM你知道他说啥了？
+However, do you know what he said about the BLM?
+
+（习说）BLM美国人民要有人权、民主呀
+(Xi said), the BLM was the need of human rights and democracy for the American people
+
+而且也是非常之快
+And very quickly
+
+你能想想俄罗斯竟然派出联合部队去了
+you can imagine that Russia sent a joint force
+
+白俄罗斯、吉尔吉斯、阿塞拜疆，夸嚓就去了
+Belarus, Kyrgyzstan, and Azerbaijan had quickly deployed there
+
+中共直接啊
+The CCP was straightforward
+
+将近3000架无人机夸嚓就给准备好了
+Nearly 3,000 UAVs had been prepared at once
+
+第二波就中共无人机就上去了
+In the second wave, the CCP’s UAVs deployed
+
+而且中共的整个北方的所有军队全部给哈萨克斯坦（政府）提供情报，所有的事项全部提供
+Moreover, all the troops of the CCP in the entire Northern Theater had provided intelligence information to the Kazakh government in every matter
+
+* * *
+
+Date: 01/09/2022
+原视频标题:
+共产党是魔 只要它存在 没有人是安全的
+No One Will be Safe if The Communist Party Exists Because The CCP is The Devil
+原视频日期：2022/01/09
+原视频链接: [**https://gettr.com/post/pneuju2f2a**](https://gettr.com/post/pneuju2f2a)
+任务编号：3460
+视频时间段 : 0:00-02:16
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

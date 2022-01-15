@@ -2,33 +2,50 @@
 ---
 
 
-## 在发现Omicron感染病例后，天津政府对所有居民进行核酸检测
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863193/)
+## “我们倒退了”：前卫生专员承认美国人正在对CDC失去信任
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863275/)
 
-评论：***1月8日，深圳全民核酸检测；1月5日，郑州实行全民核酸检测，墙国从西到中，从北到南，动不动就进行千万人级别全员检测，就为了仅仅十几例感染？***
+评论： ***在美国，总统在推行疫苗强制令，便宜又好用的伊维菌素被移除治疗药物名单，大量的疫苗伤害病例在发生，感染人数已令人惊悚的速度在飙升……CDC作为美国联邦政府行政机构，成立的目的是为保护公众健康和安全提供可靠的资料，通过与国家卫生部门及其他组织的有力的伙伴关系，以增进健康的决策，促进公民健康，但它似乎现在正在与这些背道而驰，希望CDC如果不能成为民众健康的保护神，也请不要成为魔鬼的代言人！***
 
-据《美联社》作者：2022年1月9日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3444.png)
-2022年1月9日星期日，中国北方天津市在进行大规模COVID检测时，居民们戴着口罩，排队接受冠状病毒检测。天津是中国的一个主要港口城市，靠近首都北京，周日开始对其1400万居民进行全民检测，此前有十几名儿童和成人的COVID-19检测结果呈阳性，其中某些为Omicron变体感染。(Chinatopix Via AP)
+据《Hannity.com》作者：Hannity员工，2022年1月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3468.png)图片来源：网络
+谈到COVID战略时，拜登政府正在按下重置按钮——至少，他们无论如何都会尝试这样做。
 
-虽然感染人数不多，但天津可能面临着中共国首次爆发Omicron疫情的风险，距离北京举行冬奥会不到四周的时间。
+据NBC新闻报道，拜登卫生政策制定者和过渡成员组成的团队正准备对政府的COVID反应采取新的方法，因为他们意识到自己正在失去美国人民的信任。
 
-在20名儿童和成人COVID-19检测结果呈阳性后，该市于周日开始对其1400万居民进行大规模检测，其中至少有两名儿童感染Omicron变体病毒。官员们说，这种病毒一直在传播，因此病例的数量可能会增加。
+“这种变体（Omicron）的迅速传播给许多美国人的生活造成了自大流行以来从未有过的破坏。人员短缺迫使学校和企业关闭，并导致警察和消防部门因急救人员大量生病而缺勤。由于人员短缺，航空公司取消了数千个航班，公交系统关闭了公共汽车和地铁路线，病例激增再次削弱了邮轮业。”NBC报道。
 
-在2月4日冬奥会开幕之前，中共国加强了病毒检测。中共国首都在天津西北115公里（70英里）处，许多人经常乘车或乘坐高速铁路往返通勤，需时不到一小时。
+“拜登当选总统在很大程度上是基于 ‘我有实力，我有能力，我会告诉你真相，我将以我的前任无法做到和拒绝做的方式处理Covid’的信息，但这（Covid）仍然是大多数人的头号问题。” 曾在奥巴马政府中担任卫生与公众服务部部长凯瑟琳·西贝利厄斯说。
 
-在其他地方，数百万人被限制在西安和禹州的家中，这两个城市距离较远，但爆发的疫情较大。这两个城市都被追踪到Delta的变体。禹州的疫情也影响到北部70公里（40英里）外的河南省省会郑州。郑州一直在进行大规模测试，并从周一开始关闭学校。
+“[美国人]的生活仍然很混乱，有点凌乱，当他们认为自己可以摆脱困境时，他们又回到了困境中。”她补充道， “我确实认为这涉及到实力和能力，说真话和使用总统可以使用的所有工具。”
 
-天津最早确认的两个病例是一个10岁的女孩和一个在课后中心工作的29岁女士。两人都感染了Omicron变体。在随后对密切接触者的检测中，截至星期六晚上，另有18人检测呈阳性，767人检测呈阴性。
+“就沟通和对CDC的信任而言，感觉就像我们倒退了。”巴尔的摩前卫生专员Leana Wen说。
 
-被感染的人包括15名8至13岁的学生、课后中心的工作人员和4名家长。全市范围的检测将在两天内完成。天津还关闭了两条线路上的一些地铁站，试图防止进一步传播。
 
-文章来源：**[https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-health-beijing-84d7be3e7dfb2da4cce5b6e87d321a46](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-health-beijing-84d7be3e7dfb2da4cce5b6e87d321a46)**
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
+> Unsurprisingly, Biden’s testing shortage, confusing rhetoric, and tolerance-based CDC guidance has failed to “shut down the virus” as promised…
+> 
+> ‘We have gone backwards’: Covid confusion snarls Biden White House ⁦[@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw)⁩ [https://t.co/SxPL73eTZP](https://t.co/SxPL73eTZP)
+> — Chad Gilmartin (@ChadGilmartinCA) [January 11, 2022](https://twitter.com/ChadGilmartinCA/status/1480879668668547073?ref_src=twsrc%5Etfw)
+
+
+
+“不出所料，拜登的检测缺乏，令人困惑的言论以及基于容差的CDC指导未能像承诺的那样”阻断病毒”……
+
+“我们已经倒退了”：Covid让拜登的白宫陷入混乱
+
+
+```
+@NBCNews“
+```
+
+
+原文连接：[**https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/**](https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/)
+
+翻译：洛杉矶盘古农场 – 海潮
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
 发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
