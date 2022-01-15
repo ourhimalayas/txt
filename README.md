@@ -15,95 +15,95 @@
 
 ---
 
-### [有声|加拿大放弃卡车司机疫苗强制令](/content/gnews/1/README.md)
+### [有声|英军情五处警示国会中共已渗透英政治圈](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [有声|中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/2/README.md)
+### [有声|耐克开始解雇未接种疫苗的员工](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/3/README.md)
+### [有声|GTV新闻访谈简报|2022年1月14日早](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|佳能关闭中共珠海工厂](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [有声|加拿大放弃卡车司机疫苗强制令](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/4/README.md)
+### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/8/README.md)
  ` 首尔天池农场`
 
-### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/5/README.md)
+### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/9/README.md)
  ` 英喜-粵語組`
 
-### [2022年伊始孙力军再成中共党内肃清典型](/content/gnews/6/README.md)
+### [2022年伊始孙力军再成中共党内肃清典型](/content/gnews/10/README.md)
  ` GTV News Talk`
 
-### [有声|中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/7/README.md)
+### [有声|中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/8/README.md)
+### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [大直播后记—疫苗就是病毒](/content/gnews/9/README.md)
+### [有声|中共病毒死亡率调查结果引发人们对疫苗接种必要性的质疑](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [大直播后记—疫苗就是病毒](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [中共国未来两周将禁止所有美国航班入境](/content/gnews/10/README.md)
+### [中共国未来两周将禁止所有美国航班入境](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/11/README.md)
+### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [串珠531:十个习近平再加七常委也不是曾庆红的对手](/content/gnews/12/README.md)
+### [串珠531:十个习近平再加七常委也不是曾庆红的对手](/content/gnews/17/README.md)
  ` 郭爆料串珠`
 
-### [彭佩奥斥中共是“史上最肮脏的监控政权”，警告运动员注意](/content/gnews/13/README.md)
+### [彭佩奥斥中共是“史上最肮脏的监控政权”，警告运动员注意](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/14/2021 文贵直播：冬奥会和20大前，中共给了YouTube两个选择：删掉所有敏感账号以进入中共市场，不然将被全面封锁](/content/gnews/14/README.md)
+### [1/14/2021 文贵直播：冬奥会和20大前，中共给了YouTube两个选择：删掉所有敏感账号以进入中共市场，不然将被全面封锁](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/15/README.md)
+### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [有声|世卫组织承认加强剂不够 煽动研发更毒疫苗](/content/gnews/16/README.md)
+### [有声|世卫组织承认加强剂不够 煽动研发更毒疫苗](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [1/14/2021 文贵直播：所有邪教和独裁的共性是编造谎言邪说，让民众闭嘴并把谎言说成真理？](/content/gnews/17/README.md)
+### [1/14/2021 文贵直播：所有邪教和独裁的共性是编造谎言邪说，让民众闭嘴并把谎言说成真理？](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [澳洲新南威尔士近千名医护人员因拒绝CCP病毒疫苗而离职](/content/gnews/18/README.md)
+### [澳洲新南威尔士近千名医护人员因拒绝CCP病毒疫苗而离职](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [加拿大魁北克拟向未接种CCP疫苗者征收“健康税”](/content/gnews/19/README.md)
+### [加拿大魁北克拟向未接种CCP疫苗者征收“健康税”](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [Joe Rogan怼Gettr是好事](/content/gnews/20/README.md)
+### [Joe Rogan怼Gettr是好事](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [大陆健康码推出“断网可用”功能以应对大范围网络中断情况](/content/gnews/21/README.md)
+### [大陆健康码推出“断网可用”功能以应对大范围网络中断情况](/content/gnews/26/README.md)
  ` G-NEWS TAIWAN`
 
-### [在朱燕来面前连屁毛都不是的王滨被抓注定王岐山的死活](/content/gnews/22/README.md)
+### [在朱燕来面前连屁毛都不是的王滨被抓注定王岐山的死活](/content/gnews/27/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美保守派谈话电台主持人格伦贝克宣布他正在服用伊维菌素来治疗第二次新冠肺炎](/content/gnews/23/README.md)
- ` G-NEWS TAIWAN`
-
-### [既爱瑞士表又爱高燕燕的王岐山听高燕燕说话小弟弟就硬](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [大直播后记——孙力军电视认罪](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [杨贝贝虚假报道中提到的Q组织](/content/gnews/26/README.md)
+### [杨贝贝虚假报道中提到的Q组织](/content/gnews/28/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [DC每日热点0115](/content/gnews/27/README.md)
+### [DC每日热点0115](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [桥水基金前CEO ：美国领导人是时候直面中共了](/content/gnews/28/README.md)
+### [桥水基金前CEO ：美国领导人是时候直面中共了](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
-
-### [浅谈五行与医学](/content/gnews/29/README.md)
- ` 纽约香草山MOS03`
-
-### [英国和加拿大的赌博历史及监管政策](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
 
 ### [控方证人](/content/gnews/31/README.md)
  ` 骄子`

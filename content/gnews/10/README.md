@@ -2,34 +2,54 @@
 ---
 
 
-## 中共国未来两周将禁止所有美国航班入境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1864149/)
+## 2022年伊始孙力军再成中共党内肃清典型
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864245/)
 
-#### 撰稿：日本东京方舟农场  海星
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FBF860C1-87B8-4123-9E07-86C9D31383FB.jpeg)（图片来源：网络）
-
-据《联合早报》1月15日报道，中（共）国民航局以防止新冠病毒（中共病毒）入侵为由，下令从1月19日开始，持续两周禁止所有来自美国的航班入境。
-
-报道称，根据中共政府的公告以及美国有线电视新闻网（CNN）整理的航班时刻表信息，从 1 月 19 日开始并持续至少两周，从美国飞往中共国的所有航班，或被取消，或因中共国的航空法规而被暂停。
-
-据悉，中共民航局以飞机上部分乘客核酸检测结果呈阳性为由，于1月10日和11日两天连下26道熔断指令，禁止多个美国航班入境。
-
-据统计，今年以来，被中共取消的中美航班已高达70个班次，涉及的航空公司包括国航、厦航、南航、东航、达美航空、联合航空和美国航空等。
-
-*参考链接：*
-
-1. [*美媒：中国未来两周或停飞所有美国赴华航班*](https://www.zaobao.com.sg/realtime/china/story20220115-1233211)
-2. [*为冬奥会清零 北京未来两周可能禁止美国飞华所有航班*](https://www.voachinese.com/a/beijing-cancels-all-flight-from-us-to-china-in-two-week-for-winter-olympics/6397714.html)
+作者：日本方舟农场—Andy5
 
 
-* * *
 
-*素材采编：飞越雀巢、海星*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
 
-*编辑：青衣青青*
 
-*发布：miumiu*
+
+
+
+2022年开年还不到半个月，中共已三次将孙力军作为反面典型，为2022年定调。 1月10日中共公安部新闻发言人再次强调，将对涉及孙力军等人严重违纪违法的人、事、案件进行全面清理，并且明确表示肃清孙力军流毒是作为公安部的“重大政治任务”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-25.jpg)
+然而在3天后的1月13日，中共又宣布将于15日起，上线中央纪委和CCTV联合拍摄的以孙力军为首的反腐大片，并在预告片中放出孙力军忏悔视频。孙力军称“没想到自己成了一个法治建设或者公平正义的破坏者”。同日，长春市检察院以受贿、操纵证券市场、非法持有枪支等罪名对孙力军提起公诉。
+
+分析人士指出，中共以公诉孙力军、让其电视认罪，甚至将肃清流毒作为政治任务来为2022年定调，足以可见二十大前中共内部斗争进一步加剧。
+
+参考来源：
+
+1.[公安部：对涉及孙力军等人严重违纪违法问题的人、事、案进行全面清理](https://news.sina.com.cn/o/2022-01-10/doc-ikyamrmz4375021.shtml)
+
+2.[公安部原党委委员、副部长孙力军涉嫌受贿、操纵证券市场、非法持有枪支被提起公诉](https://china.huanqiu.com/article/46NxZvyjYRj)
+
+3.[反腐专题片即将播出 孙力军周江勇等出镜忏悔](https://www.zaobao.com.sg/realtime/china/story20220113-1232507)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+
+
 
  
 

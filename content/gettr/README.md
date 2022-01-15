@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 4:24 PM (UTC)`
+
+1月15号：尊敬的战友们好文贵在这里🙏🙏🙏🙏🙏🙏🙏🙏🙏👉衷心地，祈求所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏认真的严肃的防止被感染病毒，做好一切灾难到来的物资的储备，一切都已经开始！
+![img](https://media.gettr.com/group46/getter/2022/01/15/16/3e144db1-816a-c709-930c-c8cd970a5018/out.jpg)
+
+---
+
 `@miles 1/15/2022 2:35 PM (UTC)`
 
 1月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -153,13 +160,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 
 1/12/2022 Miles Guo: The overseas Chinese media will be held equally accountable as the CCP because they’re not only misleading the people, but also harming the country. The bloody battle before the CCP’s 20th Party Congress has yet started, and Li Zhanshu is not the one we should focus on. How is Xi Jinping inextricably linked to the Pangu Plaza? What are the secrets of Heaven implied in it?<br/><br/>1/12/2022 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行；20大前血雨腥风还未开始，栗战书不是重点；习近平和盘古之间有什么样的微妙联系？这其中暗含着何种天机？
 ![img](https://media.gettr.com/group22/getter/2022/01/14/02/0622d80a-939b-f34c-a653-5d37d0f6b7fd/out.jpg)
-
----
-
-`@miles 1/14/2022 12:44 AM (UTC)`
-
-1/12/2022 Miles Guo: Why is it the case that God is helping the New Federal State of China (NFSC)? The NFSC has saved the lives of hundreds of fellow fighters in the past few days alone. A fellow fighter who used to be a ministerial level cadre in Communist China revealed something fishy in all the CCP-made vaccines. Fellow fighters should live like human beings - be grateful, respect heaven and earth, and love your family members!<br/><br/>1/12/2022 文贵直播：为什么说上天在帮助新中国联邦？新中国联邦仅过去几天就救了数百名战友的生命；正部级战友爆中共疫苗猫腻；战友们要像人一样活着 - 心怀感恩、敬天尊地、爱家人<br/>
-![img](https://media.gettr.com/group8/getter/2022/01/14/00/445bcd9f-2f89-59f0-b735-36f2000fdeda/out.jpg)
 
 ---
 
