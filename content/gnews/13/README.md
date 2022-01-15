@@ -2,25 +2,29 @@
 ---
 
 
-## 荷兰封锁结束，咖啡馆和文化场所仍然关闭
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1864870/)
+## 欧盟监管机构表示中共疫苗加强针可能会损害人体免疫系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1864961/)
 
-作者：SC
+撰稿：西枫westca
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-4.tiff)插图: DPA
-2022年1月15日
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-8.jpg)图片来源：网络照片
+据《国家脉动》1月15日报道， 欧盟监管结构已经发出警告，频繁的COVID-19加强针可能对免疫系统产生不利影响，并且可能不是对抗该大流行病的可行手段。欧洲药品管理局（EMA）报告说，每四个月重复注射加强针可能会削弱人体的免疫系统。
 
-经过近四周的时间，在企业家的强大压力下，荷兰结束了严格的新冠封锁。但严格的措施仍然存在。商店、理发店和体育俱乐部以及大学允许从星期六开始重新运营。
+EMA的生物健康威胁和疫苗战略负责人Marco Cavaleri在一次新闻发布会上表示，加强针 “可以做一次或也许两次，但我们认为这不应该一直重复”， “我们需要考虑如何从目前的大流行环境转向地方性感染的环境”。Cavaleri进一步表示，通过给人们持续的追加注射，有可能使免疫系统负担过重，使肌体中产生疲劳。
 
-这是总理马克-吕特（ Mark Rutte）晚上在海牙宣布的。然而，餐馆、博物馆、剧院和电影院仍然关闭。餐厅老板和文化部门感到愤怒。考虑到急剧上升的感染数字，不能同时开放更多部门，吕特说。“所有场合同时开放是不可能的，风险太大。” 他说，月底可能会有新的放松措施。
+EMA目前的建议是，各国应该在加强针之间留出更多时间。
 
-卫生部长恩斯特-凯珀斯谈到了 “大流行病的新阶段”。公民和企业家们的苦恼是巨大的。”我们必须学会与病毒共存。然而，卫生系统负担过重的风险仍然很高。(DPA/SC)
+EMA的声明遵循了用于流感疫苗接种的方法。目前，各国正在提供第二剂的加强针，以对抗Omicron变种，尽管没有什么证据表明这一方式对解决病毒及其传播有作用。
 
-新闻链接：https://www.grenzecho.net/68109/artikel/2022-01-15/lockdown-vorbei-cafes-und-kultur-bleiben-dicht
+辉瑞公司最近宣布，他们的Omicron特异性疫苗应该在3月初上市，但EMA表示，他们批准疫苗的过程需要三到四个月，4月是批准任何新疫苗的最快日期。第一例Omicron变体于2021年12月在美国被发现。第一个样本是在11月9日发现的，这意味着辉瑞公司如果打算在3月或4月前获得批准，就只有不到几个月的时间来开发他们的变异特异性疫苗。
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+自大规模疫苗接种任务开始以来，出现了各种问题，如英国卫生工作人员在接受疫苗时出现过敏反应。2021年12月底，《纽约时报》的一名编辑在接受Moderna强化注射后一天死亡。美国广播公司(ABC)的附属机构也报道说，COVID疫苗可能对男性的生育能力有可能产生影响。
+
+EMA的最新声明表明，他们对缺乏COVID-19的加强针长期数据感到担忧。由于缺乏支持这种方法作为度过大流行病的手段的数据，Cavaleri对反复疫苗加强针表示怀疑。
+
+**新闻来源：**[Repeat Boosters Could Weaken Immune System Say European Regulators. (thenationalpulse.com)](https://thenationalpulse.com/2022/01/15/repeat-boosters-could-weaken-immune-system-say-european-regulators/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

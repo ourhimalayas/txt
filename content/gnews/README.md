@@ -15,77 +15,77 @@
 
 ---
 
-### [路大脑袋，蛇妖闫还在享受着爆料革命和班农的财产在到处行骗](/content/gnews/1/README.md)
+### [七哥金句](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [刘亚洲眼里的七哥](/content/gnews/2/README.md)
+### [七哥对坚持的理解（三）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [结束总结](/content/gnews/3/README.md)
+### [七哥对坚持的理解（二）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [巴西15岁足球运动员因心脏骤停而死亡](/content/gnews/4/README.md)
+### [澳大利亚一线医护人员揭露医院里的真实状况](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [七哥对坚持的理解（一）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥对歌星的理解](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [路大脑袋，蛇妖闫还在享受着爆料革命和班农的财产在到处行骗](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [刘亚洲眼里的七哥](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [结束总结](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [巴西15岁足球运动员因心脏骤停而死亡](/content/gnews/10/README.md)
  ` Itana`
 
-### [很多内容（一）](/content/gnews/5/README.md)
+### [很多内容（一）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](/content/gnews/6/README.md)
+### [有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [欧盟监管机构表示中共疫苗加强针可能会损害人体免疫系统](/content/gnews/7/README.md)
+### [欧盟监管机构表示中共疫苗加强针可能会损害人体免疫系统](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [7.24系列——鹤岗市的破产意味着什么？](/content/gnews/8/README.md)
+### [7.24系列——鹤岗市的破产意味着什么？](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/9/README.md)
+### [有声|泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|天津107例感染者中103人已全程接种疫苗](/content/gnews/10/README.md)
+### [Loser &#8211; 不应属于新中国联邦人](/content/gnews/16/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|天津107例感染者中103人已全程接种疫苗](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [威斯康星州法官裁定：缺席投票箱非法](/content/gnews/11/README.md)
+### [威斯康星州法官裁定：缺席投票箱非法](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英政府数据证明COVID-19的传播主要在接种者中](/content/gnews/12/README.md)
+### [英政府数据证明COVID-19的传播主要在接种者中](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [荷兰封锁结束，咖啡馆和文化场所仍然关闭](/content/gnews/13/README.md)
+### [荷兰封锁结束，咖啡馆和文化场所仍然关闭](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [Covid授权——生命的终极取消（2/2）](/content/gnews/14/README.md)
+### [Covid授权——生命的终极取消（2/2）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧洲议会主席大卫-萨索里去世 享年65岁](/content/gnews/15/README.md)
+### [欧洲议会主席大卫-萨索里去世 享年65岁](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京在玩“冒险骰子”](/content/gnews/16/README.md)
+### [普京在玩“冒险骰子”](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [立陶宛拒绝中国对其施加的压力 呼吁欧盟做出明确回应](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国进一步收紧防疫政策](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [Covid授权——生命的终极取消（1/2）](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [使用蔬菜疫苗来说服拒绝接种疫苗者：制药公司的最新想法](/content/gnews/20/README.md)
+### [使用蔬菜疫苗来说服拒绝接种疫苗者：制药公司的最新想法](/content/gnews/24/README.md)
  ` xiaobaige`
-
-### [中共政权加强镇压和审查制度](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [歧视＋错误：保守党领袖反对魁北克省对未接种者征税](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加州价值700万美元防疫物资被大雨损坏](/content/gnews/23/README.md)
- ` 澳喜特战旅Gnews`
-
-### [喜币喜美元潜力无限 将是新中国联邦立足世界的强大经济支持](/content/gnews/24/README.md)
- ` 焦點20分`
 
 ### [最高法裁决疫苗强制令：阻止职业安全卫生署推行雇员强制接种](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

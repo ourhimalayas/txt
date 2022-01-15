@@ -2,33 +2,31 @@
 ---
 
 
-## 立陶宛拒绝中国对其施加的压力 呼吁欧盟做出明确回应
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864843/)
+## 有声|天津107例感染者中103人已全程接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864932/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-3.png)文件 – 中国国旗的资源图像。 – Jörg Carstensen/dpa – 档案
-立陶宛外交部长加布里埃尔-兰茨贝里斯呼吁欧盟在双方经济冲突日益加剧的情况下，拒绝中共国对立陶宛的压力。
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间1月13日，据中共国内媒体消息显示，中共天津市卫生健康委员会的官员在当天的病毒疫情新闻发布会上表示，该市已对现有的107例中共病毒感染病例进行了完整的调查分析。
 
-“现在需要欧洲做出非常明确的回应。欧盟必须说，这不仅仅适用于一个特定国家的市场。这是对整个以规则为基础的全球贸易体系的考验。欧洲必须为自己站出来”，兰茨贝里斯在接受《金融时报》采访时说。
+而这些报告指出，在所有感染者中，有103例患者已经完成了中共病毒疫苗的全程接种，其中，有32人还接种了疫苗加强针。此外，有3例患者仅接种了一剂次灭活疫苗，只有1例患者尚未接种任何疫苗。
 
-部长强调，维尔纽斯不反对北京，但主张立陶宛自己有权在希望与任何领土，比如与台湾，建立独立的贸易和文化联系。
+相关人士则评论称，目前，来自全球的数据都已明确显示出，全程接种中共病毒疫苗及其加强针非但不能预防接种人群感染中共病毒，反而会造成更高的感染率。
 
-“立陶宛没有做错什么，没有违法，也没有违反任何国际义务。”他在回应美国贸易代表凯瑟琳在与中共国的一次谈话中发表的言论时说。欧盟委员会执行副主席瓦尔迪-东布罗夫斯基斯表示，他愿意与布鲁塞尔合作，对抗与中共国的外交和经济压力。
+文字版原文：[天津107例感染者中103人已全程接种疫苗](https://gnews.org/zh-hans/1860101/)
 
-对于任何和台湾建立即使是非官方关系的国家，北京都会施加压力。2021年11月18日，立陶宛宣布在台湾开设代表处，引起了中共国的强烈批评，因此加剧了两国的紧张关系。
+音频处理：Fei797
+发稿：Fei797
 
-北京认为台湾是中共国的一个省，并对任何支持台湾独立的想法进行了抨击。作为对维尔纽斯决定的回应，中共国政府降级了与立陶宛的外交关系，与立陶宛两国的关系降级为“代办级”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**新闻来源**：[europapress.es][Lituania pide a la UE rechazar la presión ejercida por China contra el país en pleno aumento de la tensión](https://www.europapress.es/internacional/noticia-lituania-pide-ue-rechazar-presion-ejercida-china-contra-pais-pleno-aumento-tension-20220113121017.html)
-
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

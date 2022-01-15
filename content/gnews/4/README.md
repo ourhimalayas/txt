@@ -2,31 +2,35 @@
 ---
 
 
-## 巴西15岁足球运动员因心脏骤停而死亡
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1864990/)
+## 澳大利亚一线医护人员揭露医院里的真实状况
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1865070/)
 
-By 意大利罗马达芬奇农场- 阿娜
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-40.png)图片来自网络
+最近几周，奥米抗在澳洲全境爆发，每日感染记录在多个州和地区不断被打破，但总理莫里森坚持认为全国的医院可以应对疫情。
 
-一名15岁的足球运动员在巴西戈亚斯州（Goiás）的戈亚内西亚市（Goianésia）举行的全国足球杯比赛后死亡。
+尽管政客们坚称医疗系统资源充足，但一线医护人员面临的现实是：没有时间吃饭、喝水或休息、受到病人的虐待、工作人员人数不断减少、以及严重的职业倦怠。
 
-据Globo报道，这位名叫佩德罗-恩里克-奥利维拉-达席尔瓦-索萨（Pedro Henrique Oliveira da Silva Souz）的15岁足球运动员于周二深夜去世。他的死亡得到了其球队的确认。
+莱因哈特女士（Elke Reinhardt）是一名26岁的注册护士，已经在维州一个小镇的一家医院工作了近三年。她表示，“在过去的12个月里，我们人手不足，不能休任何年假，穿戴完整的个人防护设备经常导致脱水，经常是八到十小时的轮班，没有时间喝水甚至吃饭。”
 
-根据报告，这名15岁的足球运动员在周二晚上9点左右因意识低下、支气管痉挛（气道收缩）、严重呼吸困难、苍白病（血液中缺乏氧气）和吐血而被送入紧急护理室。根据检测报告，这名少年的病毒检测呈阴性。目前还不知道是什么原因导致他的病情。
+“我们经常加班，每个人都疲惫不堪。我们如此努力地工作以照顾他人，却无法照顾自己。而且非常担心被新冠病毒感染。如果被感染了，则会被要求使用自己的年假或病假。医疗系统不能再这样下去了。”
 
-这名小男孩接受了药物治疗、氧气治疗和插管。但后来，他的病情恶化，然后出现了心脏骤停。医生进行了心肺复苏，但小男孩没有任何反应。
+莱因哈特女士说，在大流行之前，她绝对热爱她的工作，但现在每天都害怕去上班，因为无情的工作量已经导致她的许多同事辞职，特别是高级别的工作人员。
 
-根据G5 NEWS报道，这名年轻人接受了药物治疗，并接受了氧气治疗，结果得到了适度的改善，然而，他最终演变成了意识水平的下降，并出现心肺功能停止。医生对这名少年进行了插管，并进行了抢救，但病人没有反应，在医疗单位被确认死亡。
+“我上班是因为有一大笔HECS债务要偿还，这是我学习护理/辅助医疗的双学位和紧急护理的研究生学位的学费。”
 
-佩德罗所在足球俱乐部和市政府发表声明，深表同情。
+医疗系统面临巨大压力的问题不仅发生在维州，新州和昆士兰也面临同样的问题。
 
-评论：一个15岁的少年被俱乐部做职业化足球培训，说明他的身体条件一定是很好的，至少不会有什么先天性的病症，否则也很难被选作职业化培训，特别是作为足球的职业化培训。可小小的年纪竟然能够在3到4天时间内出现病症并死亡，而且是心脏骤停，这是非常让人疑惑的地方。不得不让人怀疑他是否进行过疫苗注射，从而产生副作用。
+昆士兰州的另一位医护人员遵循心理医生的建议休假三周，回到工作岗位以后被要求补班，被要求连续八天工作93小时。
 
-原文链接：[https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm\_source=Gab&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm_source=Gab&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+当全国医护人员为了饭碗每天都在挣扎的时候，政客们却说医疗系统正在应对，这让人感到愤怒且无奈。
 
-* * *
+当被问及政府是否在支持医疗工作者方面做得足够好时，有医护人员表示，“不，我们是2020年的英雄，现在我们只是棋子，直到他们把我们全部打垮离开。”
 
-原作者： Jim Hoft，发布时间：2022年 1月15日
+可以预见，澳大利亚的医疗系统的某些部分正在崩溃中。澳洲政客的傲慢与专制，必将导致自己的政治生命快速终结。
 
+信息来源：[Aussie frontline workers expose horrific conditions amid Omicron outbreak](https://www.news.com.au/finance/work/at-work/aussie-frontline-workers-expose-horrific-conditions-amid-omicron-outbreak/news-story/d9f4f2ddc65dc6524a631890e89cdc0f)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
