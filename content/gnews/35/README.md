@@ -2,20 +2,34 @@
 ---
 
 
-## 针下亡魂｜泰国 25 岁女医生接种疫苗一个月后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1861902/)
+## 非洲销毁了超过一亿剂中共病毒疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862078/)
 
-**撰文/ 疫情关注组｜发布日期/ 15/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-泰国 25 岁女医生 Kansuda Wichaisuek 在接种完辉瑞 COVID-19 疫苗加强剂的一个月后死亡。Wichaisuek 12 月 7 日接种完第三剂疫苗的10天后，持续高烧不退，直至 1 月 6 日，Wichaisuek 突发心脏骤停，多次抢救后进入深度昏迷，翌日离世。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5976359F-6168-4534-B9F8-F5D91C50A48A.jpeg)（图片来自新华网）
 
-Wichaisuek 的父亲 Suraphon 对于女儿的突然离世悲痛欲绝，他表示： “我的女儿接种了加强剂，但医生完全不提及死因与疫苗有任何关系。她在接种疫苗之前从未生病但接种疫苗后，她总是生病。我对疫苗持怀疑态度，只是我没有证据证明。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Black-And-White-Fashion-Tips-Channel.jpg)
-来源｜[Resistance](https://resistance-mondiale.com/kansuda-wichaisuek-un-medecin-de-25-ans-meurt-un-mois-apres-avoir-recu-une-dose-de-rappel-de-pfizer-son-pere-cherche-des-reponses)
+据《Euro News》1月13日报道，以非洲为代表的发展中国家拒绝并销毁了大约1亿剂新冠（中共病毒）疫苗，据称原因是这些疫苗即将过期。
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)// | // [悲痛！又一名足球运动员在接种疫苗后死亡](https://gnews.org/zh-hans/1799912/)// | // [巴西 28 岁著名男歌手接种疫苗六周后死亡](https://gnews.org/zh-hans/1816652/)// | // [美国 65 岁著名男演员接种疫苗一个月后离奇死亡](https://gnews.org/zh-hans/1845964/)//｜// [巴西 18 岁名模接种疫苗后死亡](https://gnews.org/zh-hans/1847737/) //
+联合国儿童基金会（Unicef）供应部主任艾特瓦·卡迪利（Etleva Kadilli）告诉欧洲议会发展委员会，2021年12月，有“超过一亿剂新冠（中共病毒）疫苗被拒绝”。卡迪利解释说，大多数拒绝的原因是这些疫苗即将过期。
+
+世界卫生组织多次谴责发达国家抢购全球的新冠（中共病毒）疫苗，却把即将过期的疫苗留给贫穷的国家。
+
+据报道，在2021年12月底，仅尼日利亚就焚烧了100多万剂即将过期的阿斯利康疫苗。对此，卡迪利解释说， Covax （2019冠状病毒疫苗实施计划） 提供的大约三分之一的疫苗都是欧洲发达国家捐赠的。但在2021年10月和11月，有1500万剂欧盟捐赠的疫苗被贫困国家拒绝，其中75%是阿斯利康的疫苗。这些疫苗在被送达目的地国时，保质期已不到10周。
+
+世卫组织总干事谭德赛周四表示，现在全世界已经接种了超过94亿剂疫苗，但至少有90个国家没有达到设定的2021年底达到 40%接种率的疫苗接种目标。其中，超过85%的非洲人口，即约10亿人，还没有接种一剂疫苗。
+
+而在笔者看来，非洲绝大多数人没有接种中共病毒疫苗反而是件幸事。事实上，接种率非常低的非洲疫情并不严重，中共病毒感染率和死亡率都很低。相反，积极接种疫苗的美欧以及西方其他国家，疫情却越来越严重。 这再次印证了新中国联邦爆料革命一直在努力传播的真相：中共病毒疫苗不仅无效，并且还加速了病毒的传播和变异，疫苗比病毒更“毒”！
+
+*参考链接：[Poor countries refuse 100 million COVID-19 vaccine doses set to expire](https://www.euronews.com/2022/01/13/poor-countries-refuse-100-million-covid-19-vaccine-doses-set-to-expire)*
+
+* * *
+
+*素材采编：葛大饼*
+
+*编辑： 青衣青青*
+
+*发布：miumiu*
 
  
 

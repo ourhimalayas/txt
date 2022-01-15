@@ -2,30 +2,35 @@
 ---
 
 
-## 千亿房企爆雷，美元债即将到期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862182/)
+## 又一地产公司暴雷， 恒泰再次被列入失信人名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862285/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown的副本.jpg)千亿房企爆雷，美元债即将到期 网络图片
-据网易新闻1月14日报道，千亿房企禹洲集团财务暴雷。目前禹洲集团一共有14笔美元债，合计未偿还的本金达到54.98亿美元。最近到期的两笔美元债，合计本金5.82亿美元（约37亿元人民币），将于今年1月23日及1月25日到期。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2021 年6月30日以来，禹洲集团已经支付超过24.58亿美元的利息及本金偿债，其中包括向境外债权人支付大约8.989亿美元的利息及本金。上个月，禹洲集团将深圳总部大楼抵押获得人民币11亿元贷款，还打算以10.6亿元出售予华润万象生活。
+##### 整理：**Eileen**（围剿维尼熊）
+编辑：**Kelly**
 
-曾经在中共国捡些砖头盖间房都能挣钱的房地产市场，如今大房企暴雷、小房企倒闭，各种内债外债三角债，每笔债都要偿还。房地产市场的冬天已经来到，不甘心死的房企预备好过冬吧。
-
-新闻参考链接：[https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp](https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+中共国的恒泰地产，最近再一次被法院列入失信人名单，其创始人兼董事长程宏先生，也再一次被限制高消费。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+根据官网显示，今年恒泰地产6次成为被执行人，据统计，目前被执行总金额4771万元以上。与此同时，恒泰多个项目被曝因资金问题停工，现今恒泰面临的资金囧境。知情人的确切消息表示，恒泰惠州两项目已经停工，其中惠阳项目已经停工数月，而大亚湾项目在拿到预售证之前也已经停工。
 
+2017年，恒泰地产把公司总部由安徽合肥迁到上海。程宏先生立下恒泰地产的近期目标：要在三年内，冲进国内房地产开发企业的前五十名，要在五年内，销售额达到1000亿元。
 
+如今恒泰地产面临的局面，却越来越严峻。从2020年开始，恒泰地产的资金越来越紧张。商票到期无法兑付，银行和信托公司的借款，也不能按时偿还。多次被法院冻结资金和股权。2021年，恒泰地产的形势，更是雪上加霜。到2021年6月底，恒泰地产已被各个地方的法院，强制执行多达十一次，被执行标的4168.63万元；加上以前被九次执行，累计被执行二十次，累计被执行的标的近1亿元。
+
+参考链接：*[恒泰地产暴雷在即？累计被执行20余次，惠州2项目已停工](https://www.163.com/dy/article/GTLRC2600517M9HG.html?f=post2020_dy_recommends)*
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

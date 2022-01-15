@@ -2,30 +2,26 @@
 ---
 
 
-## 斯里兰卡向中共求新贷解危机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862229/)
+## 纽约市的免疫力被大规模接种疫苗所摧毁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862335/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+##### 翻译：Julia Gao
+校对：Lish
+剪辑/字幕：蛮吉
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61A4B669-30DF-47F7-99C2-E09552E01722.jpeg)（图片来自多维）
+随着纽约市新冠疫苗接种率达到70%，福奇称这使市民们能生活在一个更安全的环境里。但是， 弗朗西斯克里克研究所的大卫·鲍尔博士却有相反的观点。其发现对于接种过两次新冠疫苗的人来说，他们体内的中和抗体数量减少，这些抗体在阻止病毒进入人体细胞发挥首要作用。他用以色列为例，说明纽约市民的免疫能力也随着疫苗继续接种而持续下降。
 
-据《印度教徒报》（The hindu）1月12日报道，斯里兰卡周三排除了向国际货币基金组织寻求救助的可能，并称计划向中共国寻求另一笔新贷款，以解决粮食和燃料短缺导致的经济危机。
+视频链接：[NEW YORK CITY HAD ITS IMMUNITY DESTROYED BY MASS VACCINATION](https://www.bitchute.com/video/BF7yRgty6lUn/)
 
-据报道，斯里兰卡*中央银行行长*阿吉特·尼瓦尔德·卡布拉尔（*Ajith Nivard Cabraal*）拒绝了各方提出的向国际货币基金组织寻求债务重组的建议。他在记者会上明确指出，国际货币基金组织不是解决斯里兰卡当前困境的“魔法棒”，向中共寻求新贷款才是更好的选择。
-
-卡布拉尔（*Ajith Nivard Cabraal*）进一步表示，已经与中共国进行了关于新贷款的谈判 ，新协议将用于偿还现有的中方债务。
-
-报道称，卡布拉尔的这番讲话是在中共国外交部长王毅访问该国的几天后发表的。据悉，王毅此前已与斯里兰卡总统戈塔巴亚·拉贾帕克萨（Gotabhaya Rajapaksa）讨论了债务支付重组问题。
-
-*参考链接：[Sri Lanka seeks new China loan](https://www.thehindu.com/news/international/sri-lanka-seeks-new-china-loan/article38258975.ece)*
-
-* * *
-
-*素材采编：葛大饼*
-
-*编辑： 青衣青青*
-
-*发布：miumiu*
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

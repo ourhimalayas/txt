@@ -2,44 +2,34 @@
 ---
 
 
-## 河南一检验中心负责人涉嫌传播新冠病毒， 被警方立案侦查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862520/)
+## 日本麒麟控股计划出售与华润集团合资企业的所有股票
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862652/)
 
-作者：首尔天池农场 祥瑞舟
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来源：路透社）
+
+据媒体披露，日本百年名企麒麟控股公司正在考虑出售其所持有的与中共国华润集团合资公司的所有股票。
+
+据《共同社》报道，该社于1月13日获悉，麒麟控股正在考虑将与华润集团合资公司中所持的股份全部出售给投资基金，终止与华润的合资。
+
+据悉，麒麟控股在合资公司中的股份占比为4成，华润占6成。该公司计划以约1000亿日元（约合人民币56亿元）的价格出售其所持有的所有股份。
+
+麒麟控股是日本知名的跨国软饮料企业，创立至今已超百年。该公司于2011年出资330亿日元（约合人民币18亿元）与中共国央企华润集团合资成立华润麒麟饮料公司，在中共国开展软饮料业务。
+
+*参考链接：*
+
+1. *[麒麟控股考虑与中国华润集团终止合资](https://china.kyodonews.net/news/2022/01/070ef4588bac.html)*
+2. [*キリンＨＤが株式売却を検討、中国飲料の合弁事業*](https://jp.reuters.com/article/idJPKBN2JO02U)
 
 
+* * *
 
-![](https://n.sinaimg.cn/news/crawl/59/w550h309/20220112/d515-51c156663160608557d5458513c36aaa.jpg)（图片来自新浪网）
+*素材采编：飞越雀巢、海星*
 
-据中共新浪新闻报道，1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
+*编辑：青衣青青*
 
-许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。 另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
-
-
-
-参考链接：
-
-[https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+*发布：miumiu*
 
  
 
