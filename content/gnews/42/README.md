@@ -2,38 +2,35 @@
 ---
 
 
-## 欧盟首部防御白皮书直指中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1863439/)
+## 01/15每日播报｜通用电气暂停中共病毒Covid-19疫苗强制接种和测试的强制规定
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1863442/)
 
-作者：纽约磐石农场 在远方
+**By:[秘翻新闻](https://gtv.org/video/id=61e28c17a6dfdd603154acfb)**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[2022-01-15](https://gtv.org/broadcast/watch/61e28c17a6dfdd603154acfc)**
 
-当地时间1月14日，据有关媒体消息显示，由法国担任欧盟理事会轮值主席国后的首次非正式会议于当地时间13日至14日在布勒斯特召开。此次会议主要聚焦于来自中共与俄罗斯等国家的威胁，并将研讨以欧盟首部防御白皮书“战略罗盘”作为统一外交防御政策的相关事宜。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-8.59.24-PM.png)
-资料显示，作为欧盟防御议题的指导方针，“战略罗盘”将于今年3月在欧盟理事会上予以表决。而该法案的通过将给欧盟执委会和法国带来重要的影响。
+据CNBC1月14日报道，在美国最高法院阻止拜登政府的强制疫苗规定后，通用电气（GE）周五暂停了其中共病毒Covid-19疫苗强制接种和测试要求。
 
-报道也提及，作为一直呼吁强化欧盟主权的法国，其外长勒得里安于本月11日在国民议会外交委员会听证会上指责中共单方面使用经济与贸易手段向立陶宛施压。为此，勒得里安强调，欧方将在欧盟议会上重新审视欧中关系。
+据报道，通用电气有17.4万名员工，发言人说，截至2020年底，该公司已鼓励其员工接种中共病毒疫苗。
 
-另据内部消息称，法国有意借欧盟会议加速推动欧盟于2021年12月提出的反胁迫工具，用以防御中共等其他国家对欧盟采取的外交经济胁迫手段。
+最高法院在一项6：3的裁决中，称拜登政府的强制疫苗规定是一个 “钝器”，”没有根据行业或接触Covid-19的风险进行区分”。
 
-参考链结：[歐盟祭出首部防禦白皮書 團結應對俄中等國威脅](https://cn.rti.org.tw/news/view/id/2122099)
+拜登在法院判决后发表声明，呼吁各公司自愿执行疫苗和测试规定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+劳工部长马蒂·沃尔什（Marty Walsh）发誓要利用职业安全与健康管理局（Occupational Safety and Health Administration）的现有权力，要求企业保护工人免受中共病毒的伤害。
 
-编辑：Kathy文艺
-总编：飞虹 
-校正/发稿：我不在这里
+报道称，一些大公司——包括花旗集团、耐克和哥伦比亚体育用品公司——已经表示他们将开始解雇未接种疫苗的工人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+另一方面，根据CNBC对约翰-霍普金斯大学 （Johns Hopkins University）数据的分析，美国平均每天报告超过786,000个新感染病例，比前一周增长29%。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+秘翻新闻主编Grace编译报道
 
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
