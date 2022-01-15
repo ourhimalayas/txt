@@ -2,10 +2,10 @@
 ---
 
 
-## 日本庆应大学创全球首例iPS干细胞治疗脊髓损伤手术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1861660/)
+## 美国海军陆战队批准首批中共病毒疫苗豁免
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1861722/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220115-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220115-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
