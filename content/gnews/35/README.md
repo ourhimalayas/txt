@@ -2,28 +2,33 @@
 ---
 
 
-## 耐克开始解雇未接种疫苗的员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861887/)
+## 美参议员要求对中共病毒进行溯源 否则进一步制裁中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861890/)
 
-作者：银河勇气星 – 骄子
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
+1月11日，美国16位共和党参议员起草法案，要求追究中共在疫情中的责任。法案名为《病毒来源验证、调查和确认法案》，起草人包括肯尼迪、卢比奥、玛莎·布莱克本等知名参议员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-15.jpg)
 
-耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
+法案内容为授权美国总统进一步对中共实施制裁，除非中共能在该法案在颁布90天之内，允许涉及蝙蝠冠状病毒实验的武汉实验室被全面调查。而这些制裁将针对中共中国科学院和其附属研究所的领导层，以及参与隐瞒疫情爆发的中共官员。
 
-据悉，总部位于俄勒冈州的另一家运动品牌Columbia计划下个月解雇未接种新冠疫苗的员工。
+同时该法案还将暂停所有在学术领域的美国联邦资助，被投入涉及中共中国科学院的研究，以及任何在美国个人或实体与中共人员从事的功能增强实验。
+
+相关议员还表示：“该法案将让美国用实力去追求真相，只有这样中共才能听懂我们的话， 两年来中共阻止了所有病毒起源调查的努力，这导致了全世界无数人死亡和遭受不必要的痛苦。中共只会回应来自美国和国际社会的一致压力，这个法案将迫使中共坐到谈判桌前。”
 
 参考链接：
 
-- [Nike is preparing to fire some unvaccinated staff at its corporate headquarters, reports say](https://www.businessinsider.com/nike-prepares-fire-unvaccinated-employees-covid-19-oregon-2022-1?amp)
+- [Kennedy, Rubio introduce bill to hold China accountable for obstructing COVID investigation](https://www.kennedy.senate.gov/public/press-releases?id=7BD7C2E5-B606-4775-9EE3-36DFD976CD34)
+- [China is still gaslighting the world about the origin of the coronavirus and the Communist Party’s role in covering it up](https://twitter.com/SenJohnKennedy/status/1480978602674032641?s=20)
+- [Senator Rubio led GOP colleagues in introducing the COVID Act of 2022, a bill to sanction #Beijing for failure to allow a credible and comprehensive international investigation into the origins of #COVID19](https://twitter.com/SenRubioPress/status/1480933275376009223?s=20)
+- [https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml](https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
-编辑：飞虹
+总编：Irene木木
+编辑：Lakeman文仁
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

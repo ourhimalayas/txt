@@ -2,26 +2,39 @@
 ---
 
 
-## 【中日财经爆】特斯拉接受狗币支付 币价随即狂涨18%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862109/)
+## 有声|中共开展共产主义运动式抢夺财富
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862114/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1135.png)[图片来源](https://www.jiemian.com/article/6019404.html)
-加密货币狗狗币(Dogecoin)周五（1月14日）跳涨，此前特斯拉创始人兼CEO马斯克(Elon Musk)表示，这家电动汽车制造商将接受狗狗币作为购物的支付工具。随后币价狂涨18%至0.2美元以上。
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，郭先生在大直播中指出，中共通过恶意封城、大规模核酸检测，试图达到政治上的中共病毒清零”的目的，让老百姓习惯于居家，严格宵禁。其更重要的作用是在封城期间以抗疫为借口，开始进行财富掠夺。
 
-马斯克在推特上说：“特斯拉的商品可以用狗狗币购买”。
+目前已经被列出西安的120家企业，30个企业富豪，将会面临停业整顿和抓捕，中共还会把他们的财富全部收归国有。这就是共产党的共享财富。郑州目前也已经开始，接下来天津、江浙一带也会推动这种共产主义运动式的财富抢夺计划。
 
-他在12月中旬的推文中说，将允许在测试的基础上使用狗狗币，当时使得该加密货币上涨了20%以上。
+原文链接：[中共开展共产主义运动式抢夺财富](https://gnews.org/zh-hans/1859739/)
 
-在散户投资者中很受欢迎的狗狗币，在马斯克周五推文发布后狂涨18%至0.2美元以上。
+音频处理：Daxia
 
-马斯克多次发布关于狗狗币的推文，包括将之称为“人民的加密货币”，使这个迷因货币受到提振，在2021年飙升了约4,000%。
+**发稿：**Daxia
 
-消息来源：[狗狗币跳涨近两成 之前马斯克称接受狗狗币作为支付工具](https://cn.reuters.com/article/dogecoin-jump-musk-0114-fri-idCNKBS2JO0KX?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
