@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864980/)
+## 澳大利亚一线医护人员揭露医院里的真实状况
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1865070/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-40.png)图片来自网络
+最近几周，奥米抗在澳洲全境爆发，每日感染记录在多个州和地区不断被打破，但总理莫里森坚持认为全国的医院可以应对疫情。
 
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
+尽管政客们坚称医疗系统资源充足，但一线医护人员面临的现实是：没有时间吃饭、喝水或休息、受到病人的虐待、工作人员人数不断减少、以及严重的职业倦怠。
 
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
+莱因哈特女士（Elke Reinhardt）是一名26岁的注册护士，已经在维州一个小镇的一家医院工作了近三年。她表示，“在过去的12个月里，我们人手不足，不能休任何年假，穿戴完整的个人防护设备经常导致脱水，经常是八到十小时的轮班，没有时间喝水甚至吃饭。”
 
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
+“我们经常加班，每个人都疲惫不堪。我们如此努力地工作以照顾他人，却无法照顾自己。而且非常担心被新冠病毒感染。如果被感染了，则会被要求使用自己的年假或病假。医疗系统不能再这样下去了。”
 
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
+莱因哈特女士说，在大流行之前，她绝对热爱她的工作，但现在每天都害怕去上班，因为无情的工作量已经导致她的许多同事辞职，特别是高级别的工作人员。
 
-文字版原文：[共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](https://gnews.org/zh-hans/1861173/)
+“我上班是因为有一大笔HECS债务要偿还，这是我学习护理/辅助医疗的双学位和紧急护理的研究生学位的学费。”
 
-音频处理：Fei797
-发稿：Fei797
+医疗系统面临巨大压力的问题不仅发生在维州，新州和昆士兰也面临同样的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+昆士兰州的另一位医护人员遵循心理医生的建议休假三周，回到工作岗位以后被要求补班，被要求连续八天工作93小时。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当全国医护人员为了饭碗每天都在挣扎的时候，政客们却说医疗系统正在应对，这让人感到愤怒且无奈。
 
+当被问及政府是否在支持医疗工作者方面做得足够好时，有医护人员表示，“不，我们是2020年的英雄，现在我们只是棋子，直到他们把我们全部打垮离开。”
 
+可以预见，澳大利亚的医疗系统的某些部分正在崩溃中。澳洲政客的傲慢与专制，必将导致自己的政治生命快速终结。
+
+信息来源：[Aussie frontline workers expose horrific conditions amid Omicron outbreak](https://www.news.com.au/finance/work/at-work/aussie-frontline-workers-expose-horrific-conditions-amid-omicron-outbreak/news-story/d9f4f2ddc65dc6524a631890e89cdc0f)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

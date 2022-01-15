@@ -2,42 +2,39 @@
 ---
 
 
-## 美议员提法案要求国防承包商停止进口中共国稀土
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1864056/)
+## 英国报告称 疫苗死亡率远高于普通人群
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864503/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**当地时间1月14日，据相关媒体报道，英国政府公布的最新数据显示，完全接种过中共病毒疫苗的群体，其死亡率超过未接种人群的286%。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/840B508D-CCCE-4187-A5F1-46206FD27642.jpeg)中共国连云港的一个港口等待出口的含有各种稀土元素的土壤。（图片来自大纪元）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-9.jpeg)
 
-美国两党议员1月14日在联邦参议院提出一项法案，该法案要求国防承包商在2026年之前停止从中共国进口稀土。
+相关研究指出，自全球大规模接种中共病毒疫苗以来，医院里充斥着因接种疫苗而患病的人群，而即使他们接受了特别的护理，仍有很多患者不幸死亡。当前，全球已有超过100万人因接种中共病毒疫苗而遭受了严重副作用或者死亡。值得注意的是，由于各国政府的保守统计，这一结果可能严重低于真实数据。
 
-该法案是由阿肯色州共和党籍联邦参议员汤姆·科顿（Tom Cotton）和亚利桑那州民主党籍联邦参议员马克‧凯利（Mark Kelly）共同发起，是美国一系列旨在应对中共对稀土行业垄断的立法中的最新一项。
+数据表明，中共病毒疫苗高接种度人群也是未来高死亡风险人群，其原因在于，导致人们死亡的正是所谓的“疫苗”，而非中共病毒本身。相较而言，未接种中共病毒疫苗的人群，其免疫系统和DNA不受疫苗带来的负面影响。
 
-这项法案要求五角大楼的承包商在四年内停止使用中共国的稀土。发起人预计，该法案可能会在今年晚些时候被纳入五角大楼的资助立法。
+另据美国保险业巨头的有关报告提及，近期，整个保险行业的死亡索赔率上升了40%，这明显是因中共病毒疫苗导致的连锁反应。
 
-稀土被誉为“工业维生素”，它是17种化学元素的合称，由于其具有独特的物理和化学特性，它对于许多高精尖技术产品来说，至关重要。无论是军用的激光制导武器、先进战机、导弹，还是人们常用的手机、电动汽车等，都要用到稀土。
+对此，有媒体评论，将完全接种中共病毒疫苗后导致死亡的病例标记为死于中共病毒的行为是让人绝望和偏离事实的，因为疫苗才是导致患者死亡的真正原因。
 
-美国国会研究处（CRS）的报告指出，重要的国防承包商——洛克希德‧马丁公司（Lockheed Martin）生产的F-35战斗机，每架含有417公斤稀土材料，而一艘核潜艇则需超过4吨稀土。
+参考链接：[U.K. government says vaccinated are dying at a rate 286% higher than unvaccinated](https://dreddymd.com/2022/01/14/u-k-government-vaccinated-dying-286-percent-higher-than-unvaccinated/)
 
-稀土的应用起源于第二次世界大战，是由美国军事科学家率先开发并使用于军事工业。但在过去的30年里，因稀土的提炼会造成严重的环境污染，美国决定关闭稀土矿，改由外国进口。中共因而借此慢慢控制了整个行业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-2019年中美贸易战开始后，中共曾在其党媒《人民日报》上发文威胁要对美国打“稀土牌”，促使美国认识到稀土供应依赖的脆弱性。
+总编：Ivy001 
+编辑：百香果
+校正/发稿：谐趣园
 
-汤姆‧科顿参议员作为为美国参议院军事委员会和情报委员会的成员，曾多次呼吁美国应扩大稀土的来源，建立自己的稀土产业，从而削弱对于中共国稀土进口的依赖，以便在发生危机时能够从容应对。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-*参考链接：*
-
-1. [*美议员拟提法案 阻国防承包商使用中国稀土*](https://www.epochtimes.com/gb/22/1/14/n13505035.htm)
-2. [*应对中共威胁 美国或推动稀土开采*](https://www.epochtimes.com/gb/21/3/4/n12789581.htm)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑： 青衣青青*
-
-*发布：miumiu*
 
  
 
