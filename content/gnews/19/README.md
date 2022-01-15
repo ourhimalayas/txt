@@ -2,52 +2,60 @@
 ---
 
 
-## 共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1861173/)
+## 新文件揭示了早期认为SARS-CoV-2是被设计出来的观点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1861259/)
 
-作者：纽约香草山农场 – 四季
+编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-5-4.jpg)
 
+## *以及辩论如何被关闭以保护“科学”*
 
+自COVID-19大流行开始以来，NIAID主任Anthony Fauci和NIH主任Francis Collins将病毒从武汉病毒学研究所逃脱的理论斥为阴谋论。
 
+早在2020年3月，Collins说，关于COVID-19是在实验室中设计的说法是“无稽之谈”。他指出，一项新的研究“通过提供科学证据证明这种新型冠状病毒是自然产生的，驳斥了这种说法”。值得注意的是，该研究的作者之——Kristian Anderson此前曾告诉Fauci，该病毒的一些特征“看起来是经过设计的”。
 
+不负众望，在2020年5月，Fauci告诉《国家地理》，这种病毒“不可能是人工或故意操纵的”。不可能。他没有留下任何怀疑的余地：
 
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
+*“随着时间的推移，关于逐步进化的一切都强烈表明，**[**这种病毒**]**在自然界中进化，然后跳过了物种。”*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Shi-Zhengli-wuhan-lab-getty-640x480-1.jpg)JOHANNES EISELE/AFP via Getty Images
+今天，国会共和党人公布的电子邮件显示，科学家和研究人员——他们肯定不是阴谋论者——向Fauci和Collins通报了他们认为病毒是人为的。
 
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
+2020年2月1日的电话会议记录于2020年2月2日被转发给Fauci和Collins。以下是共和党人发布的摘录。
 
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_9c6a419f-ceae-489b-adca-53ffc6eefc6f_533x511.png)
 
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_8f7caf45-e5e4-4282-8065-62f167addf55_462x355.png)
 
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
+关于2020年2月1日的同一个电话会议，笔记（可能传达了Collins的立场）指出，需要召集专家来支持“自然起源”的理论，否则“阴谋的声音将迅速占据主导地位，对科学和国际和谐造成巨大伤害……”没有人关心是否真的能找到真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_52dd42bd-88f1-4434-bce6-32742b45a674_617x482.png)
 
-编辑/校对/发稿：小鹿
+Andrew Rambaut博士2月2日的另一封电子邮件（Fauci和Collins被抄送至此）称“从（自然）进化的角度来看，这里唯一让我感到不寻常的是Furin裂解位点”。重要的是，他观察到这种插入“导致了一种在人类中极其适合的病毒”。
 
+然后，还有人试图完全关闭辩论。Ron Fouchier博士说，关于病毒起源的辩论会分散注意力，对科学造成伤害。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_d5780998-87cb-4218-abf6-70eb21dfad74_464x157.png)
 
-**更多资讯，更多关注**
+然后在2020年4月，我们看到Collins再次要求NIH的政府官员“放下”病毒被设计的“极具破坏性的阴谋”。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_c4f77502-4d13-4305-9c2f-b8cd6d6042c0_642x648.png)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Fauci不那么担心，他评论说这是一个“闪亮的物体，会随着时间而消失”。(也许他对美国政府向社交媒体公司施加压力，要求关闭人为起源的辩论充满信心）。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_12d37b31-548f-4541-8522-206bdf321bca_551x291.png)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+当然，Fauci在这方面是错误的。关于该病毒如何产生的争论将永远不会消失–即使Fauci在武汉实验室的朋友已经确保销毁其起源的证据。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+**参考资料：**[technofog.substack][New documents reveal early beliefs that SARS-CoV-2 was engineered](https://technofog.substack.com/p/new-documents-reveal-early-beliefs)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+* * *
 
+*审核：蚂蚁兄弟*
+*校对：信心满满*
+*发布：信心*的选择
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 
