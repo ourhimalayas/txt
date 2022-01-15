@@ -2,35 +2,25 @@
 ---
 
 
-## 中国房地产市场大幅放缓可能抑制全球增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862281/)
+## 郭先生解析vice采访（五）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862345/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理：Eileen（围剿维尼熊）
-编辑：Kelly
+小新:
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+是会出的，就是在这个十几分钟的这个纪录片里面，除了就不放您的那个片段，其他的包括小斯基战友，**nicola**战友，他还是可以把它拼凑起来啊，当然可能影响力没有那么大了。
 
-
-【大纪元2022年01月15日讯】经济合作与发展组织（OECD）的最新报告警告说，中国房地产市场大幅放缓可能抑制全球增长。
-
-OECD周四（1月13日）发表的报告说，在可能大幅拉低中国经济增长的因素中，房地产行业的脆弱性十分突出。房地产行业有可能在2022年出现违约，导致房地产价格大幅下降，拖累中国经济增长。OECD预测，2022年中国经济增长率为5%左右。中国占全球GDP的四分之一，占世界商品和服务贸易的12.5%左右。
-
-多年来，房地产行业一直是中国经济增长的一个强有力的来源，但同时也伴随着开发商以及家庭的杠杆率上升。在这些限制政策的压力下，中国的多家房地产企业从2021年开始出现资金困境，很多观察家认为，中国房企恐怕要一家接一家地爆雷。中国一些大型房地产开发商所面临的严重流动性问题将给金融机构带来直接的风险，其中也包括给外国机构的风险。
-
-如果房地产行业危机导致违约，目前看来这种情况是有可能，并导致房地产价格大幅下降，这些风险将被进一步放大到经济中。
-
-OECD的研究发现，严重的放缓将大大影响经济的其它部门，特别是为建筑活动提供材料的部门，最终需求将受到房地产活动放缓的直接打击。
-
-参考链接：https://www.epochtimes.com/gb/22/1/14/n13505456.htm
-
+对我还想澄清一下，因为我刚才说了一个口误，刚才有点着急，就是像大直播有点紧张就说的有点快，就是我说这个螃蟹是战友，还有就是乱伦彪说这个滕彪律师，我看到战友们在群里面有反馈，就是这个非常不好意思啊，这直播就是您也看到就是如果这咱们这没有这直播的话，那直播呢，真是浑身长了嘴都说不清。比如说战友，把我刚才说的那段截出来，那我就被打成伪类了，所以刚对您问题的回答， 我觉得他还是会播的啊，但是效果可能。没有他所谓想象的效果，没有他想象那么好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.005.jpeg)
 发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
