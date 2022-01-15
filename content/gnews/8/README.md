@@ -2,55 +2,28 @@
 ---
 
 
-## 参议员汤姆·科顿 :北京冬奥会应该移到安全、自由和民主的地方,不能相信共产党
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1861492/)
+## 无畏中共新打击，唯真不破赢人心
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1861545/)
 
-参议员汤姆·科顿： 北京冬奥会应该移到安全、自由和民主的地方。 我们不能相信 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 会保护我们的运动员。 【附科顿议员接受福克斯采访视频，谈美国运动员参加北京冬奥会可能遇到的安全威胁，呼吁将冬奥会推迟一年并移到安全自由民主国家】
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-
-
-> The Beijing Winter Olympics should be moved somewhere safe, free, and democratic. We cannot trust the Chinese Communist Party to protect our athletes. [pic.twitter.com/hXTNm1YtHx](https://t.co/hXTNm1YtHx)
-> — Tom Cotton (@SenTomCotton) [January 14, 2022](https://twitter.com/SenTomCotton/status/1482100120548225026?ref_src=twsrc%5Etfw)
+1月14日，郭文贵先生于GTV、Gettr大直播中透露，因为一直以来奉行唯真不破的做事原则，不但得到中共“灭爆小组”无言的敬佩，也宣告中共卧底妄图诋毁Gclubs的计划失败。并表示，无惧威胁，放马过来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6432ac6e05566d88fa7b8a83cce19a4a.jpeg)图片来源Gclubs官网
 
 
+众所周知，在去年的Gclubs派送式抽奖活动过后，凡是被抽到奖的会员无一例外都收到了属于自己的奖品。反观中共治下的国内，往往只有领导或领导的家人才能“精准”的中奖。
 
-参议员罗杰·马歇尔: 我计划提出《福奇法案》，以追究安东尼·福奇和其他高薪政府官员的责任。如果你是一个非民选官僚，并且你赚几十万美元，美国需要知道你是否有任何利益冲突。 【图片文字： 《福奇法案》要求政府道德办公室网站公布福奇等政府官员的财务记录，以及财务记录不公开的政府人员名单】
+据负责中纪委部门纪委工作的中共女官向郭先生私下透露，在Gclubs抽奖活动中有六位中共卧底，其中有两位成功中奖。所以利用这个机会又是要车、又是要钱，使出浑身解数刁难主办方，但Gclubs出色地完成所有中奖承诺。在无懈可击的兑奖行动之后，中共卧底无奈地把情况如实上报到“灭爆小组”。结果，“灭爆小组”没有一人做出批示，逼迫领导下令从此不要再管Gclubs的事情，也宣告此次卧底计划失败。
 
+除此之外，这位中共女官称赞郭先生好样的，因为他不偷税漏税，不造假合同，不虐待员工，也不骗贷。中共在美国启动针对郭先生的法律超限战，结果虚假起诉人都敢不到美国作证。因为在美国，法庭都相信郭先生说的话。
 
+在称赞之余，也带来了新一轮威胁。中共女官说最近看Gettr发展迅猛，准备对Gettr发起杀手锏的打击行动。
 
-> I plan to introduce the FAUCI Act to hold Anthony Fauci and other high-paid government officials accountable. If you’re an unelected bureaucrat, and you make hundreds of thousands of dollars, America needs to know if you have any conflicts of interest. [pic.twitter.com/AmhbViegrC](https://t.co/AmhbViegrC)
-> — Dr. Roger Marshall (@RogerMarshallMD) [January 14, 2022](https://twitter.com/RogerMarshallMD/status/1482081861304303616?ref_src=twsrc%5Etfw)
+面对极具威胁的新一轮挑衅，郭先生霸气回应，“中共放马过来，我很寂寞。没有一个将军希望马放南山，没有一个革命者不遇到麻烦。”
 
+连中共的中纪委都佩服Gclubs不造假，抽奖不作弊，只有一直秉持唯真不破才可赢得人心。爆料革命为灭掉中共的假、骗、黑、偷而生，说真话、走正路才成就了新中国联邦。
 
-
-参议员汤姆·科顿： 结束美国在稀土开采和加工方面对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的依赖，对于建设美国的国防和技术部门至关重要。 【转路透社独家报道：美国的法案将阻止国防承包商使用中共国稀月 14日（路透社）——周五在美国参议院提出的一项两党立法将迫使国防承包商在 2026 年之前停止从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 购买稀土，并利用五角大楼建立战略矿产的永久储备。 该法案由共和党参议员汤姆·科顿和民主党参议员马克·凯利发起，是美国旨在阻止中共国对该行业近乎控制的一系列立法中的最新一项。】
-
-
-
-> Ending American dependence on China for rare-earths extraction and processing is critical to building up the U.S. defense and technology sectors.[https://t.co/aPzon2wFMR](https://t.co/aPzon2wFMR)
-> — Tom Cotton (@SenTomCotton) [January 14, 2022](https://twitter.com/SenTomCotton/status/1482029434446258182?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 伊朗继续推进其核计划，同时继续向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)、委内瑞拉和俄罗斯运送石油。 我签署了一封信函，敦促拜登政府结束与伊朗的核协议讨论，并实施严厉制裁【华盛顿灯塔报：110名共和党议员呼吁拜登放弃伊朗核谈判】
-
-
-
-> Iran continues to move forward w/ their nuclear program while continuing to ship oil to the CCP, Venezuela, & Russia. 
-> 
-> I signed onto a letter encouraging the Biden admin to end nuclear agreement discussions with Iran & instead impose strong sanctions ⬇️[https://t.co/ceusxOv2Pl](https://t.co/ceusxOv2Pl)
-> — Rep. Mike Garcia (@RepMikeGarcia) [January 14, 2022](https://twitter.com/RepMikeGarcia/status/1482080076669853705?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥： 作为国务卿，当我和我的团队去中国旅行时，我们把手机留在了家里。 聪明的美国队也这样做，但这只是降低风险的一步。 我们运动员的安全仍处于危险之中。
-
-
-
-> As Sec. of State, when my team & I traveled to China, we left our phones at home. Smart of Team USA to do the same, but it is only a step to mitigating risk. Our athletes’ safety is still in jeopardy.
-> — Mike Pompeo (@mikepompeo) [January 14, 2022](https://twitter.com/mikepompeo/status/1482061171901583366?ref_src=twsrc%5Etfw)
-
-
+据悉，新一轮的Gclubs抽奖活动将在今年的2月14日举行，奖池预算约200万美元，也可能更多。
 
  
 
