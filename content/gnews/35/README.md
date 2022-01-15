@@ -2,42 +2,21 @@
 ---
 
 
-## 美参议员要求对中共病毒进行溯源 否则进一步制裁中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861890/)
+## 针下亡魂｜泰国 25 岁女医生接种疫苗一个月后死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1861902/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月11日，美国16位共和党参议员起草法案，要求追究中共在疫情中的责任。法案名为《病毒来源验证、调查和确认法案》，起草人包括肯尼迪、卢比奥、玛莎·布莱克本等知名参议员。
+**撰文/ 疫情关注组｜发布日期/ 15/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-15.jpg)
+泰国 25 岁女医生 Kansuda Wichaisuek 在接种完辉瑞 COVID-19 疫苗加强剂的一个月后死亡。Wichaisuek 12 月 7 日接种完第三剂疫苗的10天后，持续高烧不退，直至 1 月 6 日，Wichaisuek 突发心脏骤停，多次抢救后进入深度昏迷，翌日离世。
 
-法案内容为授权美国总统进一步对中共实施制裁，除非中共能在该法案在颁布90天之内，允许涉及蝙蝠冠状病毒实验的武汉实验室被全面调查。而这些制裁将针对中共中国科学院和其附属研究所的领导层，以及参与隐瞒疫情爆发的中共官员。
+Wichaisuek 的父亲 Suraphon 对于女儿的突然离世悲痛欲绝，他表示： “我的女儿接种了加强剂，但医生完全不提及死因与疫苗有任何关系。她在接种疫苗之前从未生病但接种疫苗后，她总是生病。我对疫苗持怀疑态度，只是我没有证据证明。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Black-And-White-Fashion-Tips-Channel.jpg)
+来源｜[Resistance](https://resistance-mondiale.com/kansuda-wichaisuek-un-medecin-de-25-ans-meurt-un-mois-apres-avoir-recu-une-dose-de-rappel-de-pfizer-son-pere-cherche-des-reponses)
 
-同时该法案还将暂停所有在学术领域的美国联邦资助，被投入涉及中共中国科学院的研究，以及任何在美国个人或实体与中共人员从事的功能增强实验。
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//｜//[德国 15 岁少女接种疫苗三周后死亡](https://gnews.org/zh-hans/1687522/)//｜//[英国 40 岁专业音乐家接种疫苗后死亡](https://gnews.org/zh-hans/1713239/)//｜//[阿根廷 3 岁女童接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1793858/)// | // [巴西 32 歲奧運跳水運動員接種疫苗數月後死亡](https://gnews.org/zh-hans/1796957/)// | // [悲痛！又一名足球运动员在接种疫苗后死亡](https://gnews.org/zh-hans/1799912/)// | // [巴西 28 岁著名男歌手接种疫苗六周后死亡](https://gnews.org/zh-hans/1816652/)// | // [美国 65 岁著名男演员接种疫苗一个月后离奇死亡](https://gnews.org/zh-hans/1845964/)//｜// [巴西 18 岁名模接种疫苗后死亡](https://gnews.org/zh-hans/1847737/) //
 
-相关议员还表示：“该法案将让美国用实力去追求真相，只有这样中共才能听懂我们的话， 两年来中共阻止了所有病毒起源调查的努力，这导致了全世界无数人死亡和遭受不必要的痛苦。中共只会回应来自美国和国际社会的一致压力，这个法案将迫使中共坐到谈判桌前。”
-
-参考链接：
-
-- [Kennedy, Rubio introduce bill to hold China accountable for obstructing COVID investigation](https://www.kennedy.senate.gov/public/press-releases?id=7BD7C2E5-B606-4775-9EE3-36DFD976CD34)
-- [China is still gaslighting the world about the origin of the coronavirus and the Communist Party’s role in covering it up](https://twitter.com/SenJohnKennedy/status/1480978602674032641?s=20)
-- [Senator Rubio led GOP colleagues in introducing the COVID Act of 2022, a bill to sanction #Beijing for failure to allow a credible and comprehensive international investigation into the origins of #COVID19](https://twitter.com/SenRubioPress/status/1480933275376009223?s=20)
-- [https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml](https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

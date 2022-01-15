@@ -2,37 +2,28 @@
 ---
 
 
-## 2021中共国上市房企74家公司市值缩水明显
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861416/)
+## 无畏中共新打击，唯真不破赢人心
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1861545/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-整理报道：BENJ1
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/YSK8_SW653IGOHI@P.png)图片来源：墨尔本雅典娜农场设计组
+1月14日，郭文贵先生于GTV、Gettr大直播中透露，因为一直以来奉行唯真不破的做事原则，不但得到中共“灭爆小组”无言的敬佩，也宣告中共卧底妄图诋毁Gclubs的计划失败。并表示，无惧威胁，放马过来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6432ac6e05566d88fa7b8a83cce19a4a.jpeg)图片来源Gclubs官网
 
 
-在中共国公布的2021上市房企市值“承压榜”上，平均跌幅为38.62%。其中，超过平均跌幅的房企有45家，占比约61%。
+众所周知，在去年的Gclubs派送式抽奖活动过后，凡是被抽到奖的会员无一例外都收到了属于自己的奖品。反观中共治下的国内，往往只有领导或领导的家人才能“精准”的中奖。
 
-其中，市值跌幅超过50%的房企有24家，跌幅超过80%的房企有4家，债务暴雷的中国恒大、中国奥园、新力控股均在其中。
+据负责中纪委部门纪委工作的中共女官向郭先生私下透露，在Gclubs抽奖活动中有六位中共卧底，其中有两位成功中奖。所以利用这个机会又是要车、又是要钱，使出浑身解数刁难主办方，但Gclubs出色地完成所有中奖承诺。在无懈可击的兑奖行动之后，中共卧底无奈地把情况如实上报到“灭爆小组”。结果，“灭爆小组”没有一人做出批示，逼迫领导下令从此不要再管Gclubs的事情，也宣告此次卧底计划失败。
 
-龙头房企中的龙湖集团、[万科A](https://finance.sina.com.cn/realstock/company/sz000002/nc.shtml)、碧桂园，TOP20房企中的[新城控股](https://finance.sina.com.cn/realstock/company/sh601155/nc.shtml)、旭辉控股集团、[金科股份](https://finance.sina.com.cn/realstock/company/sz000656/nc.shtml)等全年市值跌幅均超过38.62%的平均值。
+除此之外，这位中共女官称赞郭先生好样的，因为他不偷税漏税，不造假合同，不虐待员工，也不骗贷。中共在美国启动针对郭先生的法律超限战，结果虚假起诉人都敢不到美国作证。因为在美国，法庭都相信郭先生说的话。
 
-与此同时，部分地方国企也出现在承压榜中，比如[天房发展](https://finance.sina.com.cn/realstock/company/sh600322/nc.shtml)、越秀地产、[绿地控股](https://finance.sina.com.cn/realstock/company/sh600606/nc.shtml)、[南山控股](https://finance.sina.com.cn/realstock/company/sz002314/nc.shtml)、深圳控股等，不过跌幅都在平均值左右及以下。其中，南山控股，截至2021年12月31日收盘，南山控股股价报收于3.12元，较2020年末的4.01元（前复权价）下跌22.26%。
+在称赞之余，也带来了新一轮威胁。中共女官说最近看Gettr发展迅猛，准备对Gettr发起杀手锏的打击行动。
 
-中指研究院指出，当前房地产市场已步入调整通道，上市房企资金回笼压力不减，叠加偿债高峰期的到来，企业资金端继续承压，行业（破产）收购兼并将增加。中共国擀面杖经济将难以为继。
+面对极具威胁的新一轮挑衅，郭先生霸气回应，“中共放马过来，我很寂寞。没有一个将军希望马放南山，没有一个革命者不遇到麻烦。”
 
-参考新闻：[2021上市房企74家公司市值缩水明显](https://finance.sina.com.cn/stock/relnews/cn/2022-01-14/doc-ikyakumy0245516.shtml)
+连中共的中纪委都佩服Gclubs不造假，抽奖不作弊，只有一直秉持唯真不破才可赢得人心。爆料革命为灭掉中共的假、骗、黑、偷而生，说真话、走正路才成就了新中国联邦。
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，新一轮的Gclubs抽奖活动将在今年的2月14日举行，奖池预算约200万美元，也可能更多。
 
  
 

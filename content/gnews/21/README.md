@@ -2,30 +2,31 @@
 ---
 
 
-## 鉴于中共人权问题 丹麦也加入外交抵制北京冬奥会行列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862136/)
+## 丹麦与荷兰不派外交代表团出席北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862204/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1138.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd32kak7w9u5ewj.cloudfront.net%2Fmedia%2Fimage%2F2021%2F12%2Fbee659eb780649f1b010fd9fb76d6aa1.jpg&amp;imgrefurl=https%3A%2F%2Ftheinitium.com%2Farticle%2F20211203-mainland-beijing-winter-olympics%2F&amp;tbnid=dHn16iX45mFDCM&amp;vet=12ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ..i&amp;docid=PZSsRnFoNF7V5M&amp;w=2160&amp;h=1393&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5&amp;ved=2ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ)
-丹麦外交大臣杰普·科弗德星期五(1月14日)说，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京冬奥会。同天早些时候，荷兰也宣布将不派外交代表团出席北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-20.jpg)丹麦与荷兰不派外交代表团出席北京冬奥会 网络图片
+据美国之音1月15日报道，丹麦外交大臣杰普·科弗德14日表示，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京举行的冬季奥运会。同一天，另一个欧洲国家荷兰也宣布将不派外交代表团出席北京冬奥会。
 
-“我们丹麦这方对中共国人权状况非常关切，这不是什么秘密，”科弗德说。“政府已决定我们将不出席在中共国的冬奥会。”
+美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其地区的侵犯人权行为，美国不派外交或官方代表团出席北京冬奥会。澳大利亚、英国、加拿大和日本都加入了外交抵制行列。运动员不受外交抵制影响。
 
-在丹麦做出这项决定之前，欧盟国家本星期在法国布雷斯特举行的会议上未能就这一立场达成共识。
+雷声大雨点小的北京冬奥会，即使勉强开幕，也是一出闹剧。一个黑帮老大牵头，带着一帮各怀鬼胎的小弟。老大爱面子，小弟要利益，凑出一场所谓的“奥运会”。中共的闹剧从刚开始的轰轰烈烈，到如今的东拼西凑，中共在国际上的影响力越来越弱。以美国为代表的欧洲和西方世界，以民主、法治、自由立国，不可能跟中共结成盟友。
 
-荷兰外交部发言人星期五早些时候表示，由于中共病毒（新冠病毒Covid-19）疫情的限制措施，荷兰将不派官方代表团出席北京冬奥会。
+新闻参考链接：[https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
 
-荷兰外交部发言人弗里茨·肯普曼对路透社说：“由于中共国执行的中共病毒措施，与东道国进行双边接触，并且以有意义的方式讨论荷兰极为关切的东道国人权状况的机会只会是有限的。”
+* * *
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其他侵犯人权的行为，美国不派外交或官方代表团出席北京冬奥会。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-澳大利亚、英国、加拿大和日本加入了外交抵制行列。运动员不受外交抵制影响。
 
-消息来源：[丹麦与荷兰宣布不派外交代表团出席北京冬奥会](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
+编辑：【英国伦敦喜庄园编辑部】
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

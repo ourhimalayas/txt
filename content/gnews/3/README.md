@@ -2,26 +2,44 @@
 ---
 
 
-## 郭先生解析vice采访（五）
-` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862345/)
+## 河南一检验中心负责人涉嫌传播新冠病毒， 被警方立案侦查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862520/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：首尔天池农场 祥瑞舟
 
-小新:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
-是会出的，就是在这个十几分钟的这个纪录片里面，除了就不放您的那个片段，其他的包括小斯基战友，**nicola**战友，他还是可以把它拼凑起来啊，当然可能影响力没有那么大了。
 
-对我还想澄清一下，因为我刚才说了一个口误，刚才有点着急，就是像大直播有点紧张就说的有点快，就是我说这个螃蟹是战友，还有就是乱伦彪说这个滕彪律师，我看到战友们在群里面有反馈，就是这个非常不好意思啊，这直播就是您也看到就是如果这咱们这没有这直播的话，那直播呢，真是浑身长了嘴都说不清。比如说战友，把我刚才说的那段截出来，那我就被打成伪类了，所以刚对您问题的回答， 我觉得他还是会播的啊，但是效果可能。没有他所谓想象的效果，没有他想象那么好。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.005.jpeg)
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://n.sinaimg.cn/news/crawl/59/w550h309/20220112/d515-51c156663160608557d5458513c36aaa.jpg)（图片来自新浪网）
+
+据中共新浪新闻报道，1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
+
+许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。 另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
+
+
+
+参考链接：
+
+[https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
  
 

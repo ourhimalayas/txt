@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 7:27 AM (UTC)`
+
+1/14/2022 Miles Guo: Xi Jinping is the only one in the world that no one dares to criticize! Criticisms of GETTR by the influencers such as Joe Rogan shows the value of GETTR. Although GETTR is far from perfect, it has made unprecedented and impressive achievements in the short period of time after its launch<br/><br/>1/14/2022 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值；盖特虽然尚不完美，但它在诞生后短短的时间内就取得令人瞩目的成就，已经是史无前例<br/>
+![img](https://media.gettr.com/group33/getter/2022/01/15/07/20af1b40-e364-fcdb-a1c0-5d4d5e9a9771/out.jpg)
+
+---
+
 `@miles 1/15/2022 7:21 AM (UTC)`
 
 1/14/2022 Miles Guo: The number of followers displayed on Joe Rogan’s GETTR profile page used to be the sum of his Twitter followers and GETTR followers, and the number of followers on these two platforms are now being shown separately on the web version of GETTR. The New Federal State of China has been flourishing in the criticisms of the others, and we must defend everyone's right to speak<br/><br/>1/14/2022 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数；新中国联邦在否定中成长，我们要捍卫每个人说话的权利<br/>
@@ -152,12 +159,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 `@miles 1/13/2022 11:26 PM (UTC)`
 
 “Hcoin To the Moon" Makes History in U.S.🇺🇸<br/><br/>Thank you very much to our brothers and sisters in America 🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Top Music Video Chart for 7 Days, Top 3 for 13 Days.<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Music Video Chart for 29 Consecutive Days Since It Launched.<br/><br/>"Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Songs Chart for 4 Days, Top 3 for 8 Days.<br/><br/>"Hcoin To the Moon(Karaoke Version)" Top 3 on U.S. iTunes Hip-Hop/Rap Songs Chart for 6 Days.<br/><br/>Billboards:<br/><br/>"Hcoin To The Moon" （Rock Version) Top No.1🥇 on Billboard World Digital Song Sales Chart for 2 Consecutive Weeks<br/><br/>https://gnews.org/1855254/
-
----
-
-`@miles 1/13/2022 11:22 PM (UTC)`
-
-【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计<br/>万分感谢美国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名<br/><br/>MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天第一名🥇<br/><br/>Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名<br/><br/>Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名<br/><br/>Billboards公告牌榜:<br/><br/>Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇<br/><br/>https://gnews.org/zh-hans/1855252/
 
 ---
 

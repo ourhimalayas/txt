@@ -2,30 +2,30 @@
 ---
 
 
-## 脸书在英国面临赔偿额达32亿美元的集体诉讼官司
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862123/)
+## 千亿房企爆雷，美元债即将到期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862182/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown的副本.jpg)千亿房企爆雷，美元债即将到期 网络图片
+据网易新闻1月14日报道，千亿房企禹洲集团财务暴雷。目前禹洲集团一共有14笔美元债，合计未偿还的本金达到54.98亿美元。最近到期的两笔美元债，合计本金5.82亿美元（约37亿元人民币），将于今年1月23日及1月25日到期。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E9FECD13-E636-403D-A615-63E9490F06B8.jpeg)（图片来自搜狐）
+2021 年6月30日以来，禹洲集团已经支付超过24.58亿美元的利息及本金偿债，其中包括向境外债权人支付大约8.989亿美元的利息及本金。上个月，禹洲集团将深圳总部大楼抵押获得人民币11亿元贷款，还打算以10.6亿元出售予华润万象生活。
 
-据《Euro News》1月14日报道，社交媒体巨头脸书（Facebook，现名Meta Platforms）在英国面临赔偿额超过23亿英镑（32亿美元以上）的集体诉讼，它被指控滥用市场支配地位，盗用4400万用户的个人数据。
+曾经在中共国捡些砖头盖间房都能挣钱的房地产市场，如今大房企暴雷、小房企倒闭，各种内债外债三角债，每笔债都要偿还。房地产市场的冬天已经来到，不甘心死的房企预备好过冬吧。
 
-英国金融行为监管局（FCA）高级顾问、竞争法学者利萨·洛夫达尔·戈尔姆森（Liza Lovdahl Gormsen）表示，她是代表在2015年至2019年期间使用过Facebook的英国用户提起这项诉讼的。这起诉讼指控Facebook通过强加不公平的条款和条件，要求用户需交出个人数据才能访问该网络，并以此赚取了数十亿英镑。
-
-据悉，律师事务所Quinn Emanuel Urquhart & Sullivan已经就这起索赔案向Facebook发出了律师函。
-
-戈尔姆森指出，自Facebook创建17年以来，它已成为英国唯一的社交网络。然而Facebook却在其平台内通过Facebook Pixel等机制，收集用户私人信息和数据，从中获取利益。
-
-*参考链接：[Facebook faces $3.2 billion UK class action over market dominance](https://www.euronews.com/2022/01/14/tech-antitrust-facebook)*
+新闻参考链接：[https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp](https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp)
 
 * * *
 
-*素材采编：葛大饼*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑： 青衣青青*
 
-*发布：miumiu*
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

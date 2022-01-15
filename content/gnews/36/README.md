@@ -2,28 +2,21 @@
 ---
 
 
-## 耐克开始解雇未接种疫苗的员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861887/)
+## 中共国重卡市场断崖式下跌
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861901/)
 
-作者：银河勇气星 – 骄子
+作者：香草山教育部 – 文哲
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
+中共国的汽车市场从加入WTO开始，一路高歌猛进，超越美国成为世界上最大的 汽车市场。但是从2019年开始，中共国汽车市场进入了强弩之末，乘用车领域率先下跌。同时商用车市场也发生了断崖式下跌，其中重卡市场在2021年11月同比下滑超过百分之六十。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-6.jpg)
 
-耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
-
-据悉，总部位于俄勒冈州的另一家运动品牌Columbia计划下个月解雇未接种新冠疫苗的员工。
+当前，整个货运市场依然在恶化，消费者购买力下降导致货运需求下降，再叠加原材料价格上涨导致的运费成本上涨，2022年的重卡市场依然会延续之前的下跌趋势。
 
 参考链接：
 
-- [Nike is preparing to fire some unvaccinated staff at its corporate headquarters, reports say](https://www.businessinsider.com/nike-prepares-fire-unvaccinated-employees-covid-19-oregon-2022-1?amp)
-
-
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
-编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

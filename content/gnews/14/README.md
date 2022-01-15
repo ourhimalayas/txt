@@ -2,30 +2,35 @@
 ---
 
 
-## 丹麦与荷兰不派外交代表团出席北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862204/)
+## 又一地产公司暴雷， 恒泰再次被列入失信人名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862285/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-20.jpg)丹麦与荷兰不派外交代表团出席北京冬奥会 网络图片
-据美国之音1月15日报道，丹麦外交大臣杰普·科弗德14日表示，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京举行的冬季奥运会。同一天，另一个欧洲国家荷兰也宣布将不派外交代表团出席北京冬奥会。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其地区的侵犯人权行为，美国不派外交或官方代表团出席北京冬奥会。澳大利亚、英国、加拿大和日本都加入了外交抵制行列。运动员不受外交抵制影响。
+##### 整理：**Eileen**（围剿维尼熊）
+编辑：**Kelly**
 
-雷声大雨点小的北京冬奥会，即使勉强开幕，也是一出闹剧。一个黑帮老大牵头，带着一帮各怀鬼胎的小弟。老大爱面子，小弟要利益，凑出一场所谓的“奥运会”。中共的闹剧从刚开始的轰轰烈烈，到如今的东拼西凑，中共在国际上的影响力越来越弱。以美国为代表的欧洲和西方世界，以民主、法治、自由立国，不可能跟中共结成盟友。
-
-新闻参考链接：[https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+中共国的恒泰地产，最近再一次被法院列入失信人名单，其创始人兼董事长程宏先生，也再一次被限制高消费。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+根据官网显示，今年恒泰地产6次成为被执行人，据统计，目前被执行总金额4771万元以上。与此同时，恒泰多个项目被曝因资金问题停工，现今恒泰面临的资金囧境。知情人的确切消息表示，恒泰惠州两项目已经停工，其中惠阳项目已经停工数月，而大亚湾项目在拿到预售证之前也已经停工。
 
+2017年，恒泰地产把公司总部由安徽合肥迁到上海。程宏先生立下恒泰地产的近期目标：要在三年内，冲进国内房地产开发企业的前五十名，要在五年内，销售额达到1000亿元。
 
+如今恒泰地产面临的局面，却越来越严峻。从2020年开始，恒泰地产的资金越来越紧张。商票到期无法兑付，银行和信托公司的借款，也不能按时偿还。多次被法院冻结资金和股权。2021年，恒泰地产的形势，更是雪上加霜。到2021年6月底，恒泰地产已被各个地方的法院，强制执行多达十一次，被执行标的4168.63万元；加上以前被九次执行，累计被执行二十次，累计被执行的标的近1亿元。
+
+参考链接：*[恒泰地产暴雷在即？累计被执行20余次，惠州2项目已停工](https://www.163.com/dy/article/GTLRC2600517M9HG.html?f=post2020_dy_recommends)*
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

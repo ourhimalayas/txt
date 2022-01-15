@@ -2,30 +2,26 @@
 ---
 
 
-## 斯里兰卡向中共求新贷解危机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862229/)
+## 郭先生解析vice采访（四）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862329/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61A4B669-30DF-47F7-99C2-E09552E01722.jpeg)（图片来自多维）
+第五招，够不够狠？最后说郭文贵，新中国联邦，让在中国的一个共产党这样的人权律师说郭文贵是乱伦的，侄媳妇的虚假的指控，这完全是胡编乱造的。说郭文贵是西方民主最大的威胁和新中国联邦。无论如何不能让它存在。用滕彪的口，用螃蟹的口，用**Nicolas**的口， 用小司机口，给我们定义为邪教。国际西方民主自由的威胁，中国人将被带入地狱，郭文贵是帮骗子**GTV, Gnews,**完全是虚假新闻。 盖特是极右的，就差希特勒了，然后是完全站在川普一边的，我们是拜登的敌人。
 
-据《印度教徒报》（The hindu）1月12日报道，斯里兰卡周三排除了向国际货币基金组织寻求救助的可能，并称计划向中共国寻求另一笔新贷款，以解决粮食和燃料短缺导致的经济危机。
+哇塞。你们没看清楚这个，那我请问各位，如果当初七哥不接受采访，你觉得它这个报道会不会出呢？
 
-据报道，斯里兰卡*中央银行行长*阿吉特·尼瓦尔德·卡布拉尔（*Ajith Nivard Cabraal*）拒绝了各方提出的向国际货币基金组织寻求债务重组的建议。他在记者会上明确指出，国际货币基金组织不是解决斯里兰卡当前困境的“魔法棒”，向中共寻求新贷款才是更好的选择。
+•…请小新老师你先回答。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.004.jpeg)
+发布：tianzhihuan
 
-卡布拉尔（*Ajith Nivard Cabraal*）进一步表示，已经与中共国进行了关于新贷款的谈判 ，新协议将用于偿还现有的中方债务。
-
-报道称，卡布拉尔的这番讲话是在中共国外交部长王毅访问该国的几天后发表的。据悉，王毅此前已与斯里兰卡总统戈塔巴亚·拉贾帕克萨（Gotabhaya Rajapaksa）讨论了债务支付重组问题。
-
-*参考链接：[Sri Lanka seeks new China loan](https://www.thehindu.com/news/international/sri-lanka-seeks-new-china-loan/article38258975.ece)*
-
-* * *
-
-*素材采编：葛大饼*
-
-*编辑： 青衣青青*
-
-*发布：miumiu*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

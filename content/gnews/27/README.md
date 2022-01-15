@@ -2,37 +2,40 @@
 ---
 
 
-## 新冠疫苗接种政策让更多美国人走向灾难的深渊
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862093/)
+## 有声|病毒实为中共推行网格化管理的利器
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862137/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月12日的直播中谈及，共产党正在利用中共病毒对墙内老百姓实行严苛的驭民五术。
 
-翻译：George Warshing
-编辑：小红帽/George Warshing
+郭先生爆料，共产党内部早在去年就开始讨论，如何更深层次地利用中共病毒和疫苗，让中共国内的社会更容易被管理。其中，王沪宁提出，要牢牢抓住病毒带来的机会，在墙内实行网格化管理政策。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+郭先生表示，中共通过疫情封锁政策让墙内民众平时只能选择居家生活，一旦他们出门就要被中共的警察、城管监控，自此，中国老百姓将永远陷入被奴役的状态。郭先生还补充道，目前，西安、郑州、河北、天津均已开始实行这一“网格化”管理政策。
+
+原文链接：[病毒实为中共推行网格化管理的利器](https://gnews.org/zh-hans/1858024/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-根据《自然新闻》1月12日报道，美国*疾病控制和预防中心（CDC）*的最新数据显示，中共冠状病毒疫苗导致超过100万例不良反应病例和21,000例死亡。
-
-为联邦疫苗不良事件报告系统(VAERS)编制的数据显示，疫苗引起超过3,400孕妇流产，和超过35,000个病人导致了永久残疾。此外，超过110,000人因接种疫苗后出现不良反应而最终住院。
-
-根据*卫生与公众服务部的*说法，VAERS的优势在于它的监测范围可以覆盖全国，但它是一个“被动”的报告系统，所得到的报告是由患者自愿提供的，所以它接收到的报告应该是实际不良事件的很小部分,这意味着实际发病和死亡的人数可能都远多于所报告的数量。
-
-许多医生和科学家认为真实数字要高得多.最近由[*哥伦比亚大学*](https://www.columbia.edu/)研究人员通过研究得出实际数字要比报告数字高20倍的结论。如果少报的因素是正确的，那就意味着实际上已有大约400,000美国人死于中共病毒疫苗。
-
-世界伴随着冠状病毒奥米克戎变种在向前迈进，新毒株似乎发生了巨大变异。某些政府在这种情况下大力推广加强针注射，但进行加强针注射之间的时间间隔似乎越来越短。数据表明，目前的疫苗接种行为并不能提高人们对奥米可戎变种的预防能力。
-
-新闻链接：[Government continues risky push for vaccines despite growing reports of adverse reactions, deaths](https://www.naturalnews.com/2022-01-12-government-continues-push-for-vaccines-despite-deaths.html)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
