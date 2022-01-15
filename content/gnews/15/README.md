@@ -2,22 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜ICU护士证词：每一个针下亡魂都应被视为谋杀
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1862423/)
+## 郭先生解析vice采访（八）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862521/)
 
-**撰文｜疫情关注组 / 发布时间｜15/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-美国北卡罗来纳州威尔明顿新汉诺威县最近就儿童接种疫苗的议题，举行了一场校董会会议，前 ICU 资深注册护士，摩根·华莱士（Morgan Wallace）在会上发表了重要证词，引来在场家长们的掌声。
+你看看专家，我找第三方，那个数据一转圈，你没有注意到那个很大的事儿，我没说话啊，我没说啊，我伊萨贝拉杨没说，专家说的，你看那个专家说的，所有恨拜登的，所有恨川普的，所有极右的，郭文贵是你们的敌人。极右媒体平台，极右的数据，影响巨大。
 
-华莱士表示，自己因强制疫苗而辞去工作，对于抗击新冠病毒，疫苗根本没有任何用处，反而早期治疗一直行之有效，唯当局始终视而不见。
+如果我不采访的话，他就会这么干！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.008.jpeg)
+发布：tianzhihuan
 
-因此，她认为，每个死于新冠病毒的人都应该被视为谋杀。
-
-以下是证词的完整版（中文译本仅供参考）：
-
-来源｜影片资料（如上）
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

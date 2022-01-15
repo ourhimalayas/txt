@@ -2,24 +2,34 @@
 ---
 
 
-## 郭先生解析vice采访（八）
-` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862521/)
+## 日本麒麟控股计划出售与华润集团合资企业的所有股票
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862652/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：日本东京方舟农场  海星
 
-你看看专家，我找第三方，那个数据一转圈，你没有注意到那个很大的事儿，我没说话啊，我没说啊，我伊萨贝拉杨没说，专家说的，你看那个专家说的，所有恨拜登的，所有恨川普的，所有极右的，郭文贵是你们的敌人。极右媒体平台，极右的数据，影响巨大。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来源：路透社）
 
-如果我不采访的话，他就会这么干！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.008.jpeg)
-发布：tianzhihuan
+据媒体披露，日本百年名企麒麟控股公司正在考虑出售其所持有的与中共国华润集团合资公司的所有股票。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《共同社》报道，该社于1月13日获悉，麒麟控股正在考虑将与华润集团合资公司中所持的股份全部出售给投资基金，终止与华润的合资。
+
+据悉，麒麟控股在合资公司中的股份占比为4成，华润占6成。该公司计划以约1000亿日元（约合人民币56亿元）的价格出售其所持有的所有股份。
+
+麒麟控股是日本知名的跨国软饮料企业，创立至今已超百年。该公司于2011年出资330亿日元（约合人民币18亿元）与中共国央企华润集团合资成立华润麒麟饮料公司，在中共国开展软饮料业务。
+
+*参考链接：*
+
+1. *[麒麟控股考虑与中国华润集团终止合资](https://china.kyodonews.net/news/2022/01/070ef4588bac.html)*
+2. [*キリンＨＤが株式売却を検討、中国飲料の合弁事業*](https://jp.reuters.com/article/idJPKBN2JO02U)
+
+
+* * *
+
+*素材采编：飞越雀巢、海星*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

@@ -2,30 +2,36 @@
 ---
 
 
-## 丹麦与荷兰不派外交代表团出席北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862204/)
+## 中国房地产市场大幅放缓可能抑制全球增长
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862281/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-20.jpg)丹麦与荷兰不派外交代表团出席北京冬奥会 网络图片
-据美国之音1月15日报道，丹麦外交大臣杰普·科弗德14日表示，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京举行的冬季奥运会。同一天，另一个欧洲国家荷兰也宣布将不派外交代表团出席北京冬奥会。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其地区的侵犯人权行为，美国不派外交或官方代表团出席北京冬奥会。澳大利亚、英国、加拿大和日本都加入了外交抵制行列。运动员不受外交抵制影响。
+整理：Eileen（围剿维尼熊）
+编辑：Kelly
 
-雷声大雨点小的北京冬奥会，即使勉强开幕，也是一出闹剧。一个黑帮老大牵头，带着一帮各怀鬼胎的小弟。老大爱面子，小弟要利益，凑出一场所谓的“奥运会”。中共的闹剧从刚开始的轰轰烈烈，到如今的东拼西凑，中共在国际上的影响力越来越弱。以美国为代表的欧洲和西方世界，以民主、法治、自由立国，不可能跟中共结成盟友。
-
-新闻参考链接：[https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+【大纪元2022年01月15日讯】经济合作与发展组织（OECD）的最新报告警告说，中国房地产市场大幅放缓可能抑制全球增长。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+OECD周四（1月13日）发表的报告说，在可能大幅拉低中国经济增长的因素中，房地产行业的脆弱性十分突出。房地产行业有可能在2022年出现违约，导致房地产价格大幅下降，拖累中国经济增长。OECD预测，2022年中国经济增长率为5%左右。中国占全球GDP的四分之一，占世界商品和服务贸易的12.5%左右。
 
+多年来，房地产行业一直是中国经济增长的一个强有力的来源，但同时也伴随着开发商以及家庭的杠杆率上升。在这些限制政策的压力下，中国的多家房地产企业从2021年开始出现资金困境，很多观察家认为，中国房企恐怕要一家接一家地爆雷。中国一些大型房地产开发商所面临的严重流动性问题将给金融机构带来直接的风险，其中也包括给外国机构的风险。
 
+如果房地产行业危机导致违约，目前看来这种情况是有可能，并导致房地产价格大幅下降，这些风险将被进一步放大到经济中。
+
+OECD的研究发现，严重的放缓将大大影响经济的其它部门，特别是为建筑活动提供材料的部门，最终需求将受到房地产活动放缓的直接打击。
+
+参考链接：https://www.epochtimes.com/gb/22/1/14/n13505456.htm
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

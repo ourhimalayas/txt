@@ -2,34 +2,23 @@
 ---
 
 
-## 乔·罗根知道有超过15人因疫苗产生严重的副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862261/)
+## 郭先生解析vice采访（五）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862345/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Joe.png)图片来源：BBC
+小新:
 
+是会出的，就是在这个十几分钟的这个纪录片里面，除了就不放您的那个片段，其他的包括小斯基战友，**nicola**战友，他还是可以把它拼凑起来啊，当然可能影响力没有那么大了。
 
-**整理报道：小鱼儿
-编辑：Candy**
-
-据《新闻战争》(Infowars)1月13日报道，美国人气主播乔·罗根(Joe Rogan)告诉喜剧演员蒂姆·狄龙 (Tim Dillon)，“我认识不少人，现在我知道有超过15个人有疫苗的严重副作用。比如：月经问题、中风、神经系统疾病、慢性疲劳。”当被要求描述他所指的神经系统疾病时，罗根回答说：“就像你的整个身体在颤抖……而你对此却无能为力。”
-
-罗根说：“问题是，当你在这个国家为数以亿计的人接种疫苗时，使用任何药物都会有不良的副作用。而且他们不知道的真的[很多]，因为向疫苗不良事件报告系统(VAERS)的报告非常少，而且很难看出它是否100%准确。”
-
-社交媒体公司禁止或审查那些传播真相的人。主播继续指出，“抖音(TikTok)上有个孩子得了心肌炎，他是个高中生，像个运动员。他在医院里，视频得到了数百万次的播放。他们把它从抖音上删除了，因为它不符合叙述的内容。就像那……那太糟糕了。”
-
-“我有一个朋友，他的一个好朋友的女儿得了这个病。她当时14岁，刚刚突然出现了呼吸衰竭。他们把她送进了重症监护室，她被搞得一团糟。”罗根提交了一份补充证词。
-
-主播罗根强调，“而你所谈论的这些(医药)公司，在历史上一直为了盈利而谎报不良副作用。他们在维欧克斯(Vioxx)上做过这种事，他们在其他一些药物上也是这样做的。在过去，辉瑞公司像是被罚款最多的公司之一。”
-
-参考新闻：[Rogan: ‘I Know Over 15 People That Have Had Serious Side Effects from the Vaccine’](https://www.infowars.com/posts/rogan-i-know-over-15-people-that-have-had-serious-side-effects-from-the-vaccine/)
-
-***发布：Candy***
+对我还想澄清一下，因为我刚才说了一个口误，刚才有点着急，就是像大直播有点紧张就说的有点快，就是我说这个螃蟹是战友，还有就是乱伦彪说这个滕彪律师，我看到战友们在群里面有反馈，就是这个非常不好意思啊，这直播就是您也看到就是如果这咱们这没有这直播的话，那直播呢，真是浑身长了嘴都说不清。比如说战友，把我刚才说的那段截出来，那我就被打成伪类了，所以刚对您问题的回答， 我觉得他还是会播的啊，但是效果可能。没有他所谓想象的效果，没有他想象那么好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.005.jpeg)
+发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
