@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 2:35 PM (UTC)`
+
+1月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group36/getter/2022/01/15/14/5322e70a-20a8-e3b9-76ec-bdd844e08266/out.jpg)
+
+---
+
 `@miles 1/15/2022 7:27 AM (UTC)`
 
 1/14/2022 Miles Guo: Xi Jinping is the only one in the world that no one dares to criticize! Criticisms of GETTR by the influencers such as Joe Rogan shows the value of GETTR. Although GETTR is far from perfect, it has made unprecedented and impressive achievements in the short period of time after its launch<br/><br/>1/14/2022 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值；盖特虽然尚不完美，但它在诞生后短短的时间内就取得令人瞩目的成就，已经是史无前例<br/>
@@ -153,12 +160,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 
 1/12/2022 Miles Guo: Why is it the case that God is helping the New Federal State of China (NFSC)? The NFSC has saved the lives of hundreds of fellow fighters in the past few days alone. A fellow fighter who used to be a ministerial level cadre in Communist China revealed something fishy in all the CCP-made vaccines. Fellow fighters should live like human beings - be grateful, respect heaven and earth, and love your family members!<br/><br/>1/12/2022 文贵直播：为什么说上天在帮助新中国联邦？新中国联邦仅过去几天就救了数百名战友的生命；正部级战友爆中共疫苗猫腻；战友们要像人一样活着 - 心怀感恩、敬天尊地、爱家人<br/>
 ![img](https://media.gettr.com/group8/getter/2022/01/14/00/445bcd9f-2f89-59f0-b735-36f2000fdeda/out.jpg)
-
----
-
-`@miles 1/13/2022 11:26 PM (UTC)`
-
-“Hcoin To the Moon" Makes History in U.S.🇺🇸<br/><br/>Thank you very much to our brothers and sisters in America 🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Top Music Video Chart for 7 Days, Top 3 for 13 Days.<br/><br/>MV "Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Music Video Chart for 29 Consecutive Days Since It Launched.<br/><br/>"Hcoin To the Moon" Hits #1🥇 on U.S. iTunes Rock Songs Chart for 4 Days, Top 3 for 8 Days.<br/><br/>"Hcoin To the Moon(Karaoke Version)" Top 3 on U.S. iTunes Hip-Hop/Rap Songs Chart for 6 Days.<br/><br/>Billboards:<br/><br/>"Hcoin To The Moon" （Rock Version) Top No.1🥇 on Billboard World Digital Song Sales Chart for 2 Consecutive Weeks<br/><br/>https://gnews.org/1855254/
 
 ---
 
