@@ -2,30 +2,30 @@
 ---
 
 
-## 千亿房企爆雷，美元债即将到期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862182/)
+## 斯里兰卡向中共求新贷解危机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862229/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown的副本.jpg)千亿房企爆雷，美元债即将到期 网络图片
-据网易新闻1月14日报道，千亿房企禹洲集团财务暴雷。目前禹洲集团一共有14笔美元债，合计未偿还的本金达到54.98亿美元。最近到期的两笔美元债，合计本金5.82亿美元（约37亿元人民币），将于今年1月23日及1月25日到期。
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-2021 年6月30日以来，禹洲集团已经支付超过24.58亿美元的利息及本金偿债，其中包括向境外债权人支付大约8.989亿美元的利息及本金。上个月，禹洲集团将深圳总部大楼抵押获得人民币11亿元贷款，还打算以10.6亿元出售予华润万象生活。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/61A4B669-30DF-47F7-99C2-E09552E01722.jpeg)（图片来自多维）
 
-曾经在中共国捡些砖头盖间房都能挣钱的房地产市场，如今大房企暴雷、小房企倒闭，各种内债外债三角债，每笔债都要偿还。房地产市场的冬天已经来到，不甘心死的房企预备好过冬吧。
+据《印度教徒报》（The hindu）1月12日报道，斯里兰卡周三排除了向国际货币基金组织寻求救助的可能，并称计划向中共国寻求另一笔新贷款，以解决粮食和燃料短缺导致的经济危机。
 
-新闻参考链接：[https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp](https://c.m.163.com/news/a/GTKCME6U0552BZ5C.html?spss=newsapp)
+据报道，斯里兰卡*中央银行行长*阿吉特·尼瓦尔德·卡布拉尔（*Ajith Nivard Cabraal*）拒绝了各方提出的向国际货币基金组织寻求债务重组的建议。他在记者会上明确指出，国际货币基金组织不是解决斯里兰卡当前困境的“魔法棒”，向中共寻求新贷款才是更好的选择。
+
+卡布拉尔（*Ajith Nivard Cabraal*）进一步表示，已经与中共国进行了关于新贷款的谈判 ，新协议将用于偿还现有的中方债务。
+
+报道称，卡布拉尔的这番讲话是在中共国外交部长王毅访问该国的几天后发表的。据悉，王毅此前已与斯里兰卡总统戈塔巴亚·拉贾帕克萨（Gotabhaya Rajapaksa）讨论了债务支付重组问题。
+
+*参考链接：[Sri Lanka seeks new China loan](https://www.thehindu.com/news/international/sri-lanka-seeks-new-china-loan/article38258975.ece)*
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*素材采编：葛大饼*
 
+*编辑： 青衣青青*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*发布：miumiu*
 
  
 

@@ -2,30 +2,35 @@
 ---
 
 
-## 丹麦与荷兰不派外交代表团出席北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862204/)
+## 朝鲜：美国启动的单边制裁是故意加剧紧张局势
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862236/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-20.jpg)丹麦与荷兰不派外交代表团出席北京冬奥会 网络图片
-据美国之音1月15日报道，丹麦外交大臣杰普·科弗德14日表示，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京举行的冬季奥运会。同一天，另一个欧洲国家荷兰也宣布将不派外交代表团出席北京冬奥会。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其地区的侵犯人权行为，美国不派外交或官方代表团出席北京冬奥会。澳大利亚、英国、加拿大和日本都加入了外交抵制行列。运动员不受外交抵制影响。
+##### 整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-雷声大雨点小的北京冬奥会，即使勉强开幕，也是一出闹剧。一个黑帮老大牵头，带着一帮各怀鬼胎的小弟。老大爱面子，小弟要利益，凑出一场所谓的“奥运会”。中共的闹剧从刚开始的轰轰烈烈，到如今的东拼西凑，中共在国际上的影响力越来越弱。以美国为代表的欧洲和西方世界，以民主、法治、自由立国，不可能跟中共结成盟友。
-
-新闻参考链接：[https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-868.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据《凤凰网资讯》1月15日报道，韩国军方14日表示，朝鲜当天下午发射不明飞行器。西方媒体认为，这是朝鲜向美国日前的制裁表达不满。就在周四，朝中社援引朝鲜外务省发言人的话说，美国因为朝鲜的合法活动对朝鲜启动单边制裁，是故意加剧紧张局势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+韩国专家认为，这些飞行器很可能是被称为朝鲜版“伊斯坎德尔”的KN-23导弹或有朝版“陆军战术导弹”之称的新型短程弹道导弹。
 
+这是朝鲜今年第三次进行试射。CNN曾报道称，由于美军早期预期系统最初误判朝鲜11日发射的导弹将“击中美国”，平壤的此次试射在美一度引发混乱，导致美国西海岸部分航班停飞约15分钟。
 
+据朝中社14日报道，朝鲜外务省发言人表示，近期朝鲜进行的新型武器开发工作是推进国防力量现代化的一部分，不针对特定国家或势力，也没有对周边国家的安全造成危害。
+
+参考链接：[朝鲜外务省：美国对朝鲜启动单边制裁，故意加剧紧张局势](https://i.ifeng.com/c/8CoH96ERnW8)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

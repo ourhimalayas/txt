@@ -2,38 +2,24 @@
 ---
 
 
-## 新冠疫苗接种政策让更多美国人走向灾难的深渊
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862093/)
+## 【中日财经爆】消息称中美达成协议 中方春节释放石油储备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862110/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1136.png)[图片来源](https://ucpnz.co.nz/2022/01/14/%E8%B7%AF%E9%80%8F%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%B0%86%E5%9C%A8%E5%86%9C%E5%8E%86%E6%96%B0%E5%B9%B4%E5%89%8D%E5%90%8E%E9%87%8A%E6%94%BE%E7%9F%B3%E6%B2%B9%E5%82%A8%E5%A4%87/)
+路透社1月14日报道，中共国将在春节前后释放国家战略储备中的原油。这是同美国及其他主要石油消费国协作降低全球油价计划的一部分。
 
-翻译：George Warshing
-编辑：小红帽/George Warshing
+中共国在2021年底同意释放数量不定的原油，具体释放规模取决于油价水平。“中共国同意在油价高于每桶85美元时释放较多石油，如果油价保持在75美元水平附近，则释放较小规模的石油，”一位消息人士说，但没有详细说明。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+消息人士称，中共国释放原油库存的时间将是2月1日春节前后。中共国市场将在1月31日至2月6日这段全年最长的假期中休市。
 
+路透社在2021年11月报导，由于供应紧张推动全球油价升至多年高位，美国政府与其他主要石油消费国进行了商讨，经过一系列磋商后中共国同意释放储备。
 
-根据《自然新闻》1月12日报道，美国*疾病控制和预防中心（CDC）*的最新数据显示，中共冠状病毒疫苗导致超过100万例不良反应病例和21,000例死亡。
+消息来源：[独家：中国与美国达成协议 在春节前后释放石油储备–消息](https://cn.reuters.com/article/china-us-oil-reserve-0114-idCNKBS2JO0MC?il=0)
 
-为联邦疫苗不良事件报告系统(VAERS)编制的数据显示，疫苗引起超过3,400孕妇流产，和超过35,000个病人导致了永久残疾。此外，超过110,000人因接种疫苗后出现不良反应而最终住院。
-
-根据*卫生与公众服务部的*说法，VAERS的优势在于它的监测范围可以覆盖全国，但它是一个“被动”的报告系统，所得到的报告是由患者自愿提供的，所以它接收到的报告应该是实际不良事件的很小部分,这意味着实际发病和死亡的人数可能都远多于所报告的数量。
-
-许多医生和科学家认为真实数字要高得多.最近由[*哥伦比亚大学*](https://www.columbia.edu/)研究人员通过研究得出实际数字要比报告数字高20倍的结论。如果少报的因素是正确的，那就意味着实际上已有大约400,000美国人死于中共病毒疫苗。
-
-世界伴随着冠状病毒奥米克戎变种在向前迈进，新毒株似乎发生了巨大变异。某些政府在这种情况下大力推广加强针注射，但进行加强针注射之间的时间间隔似乎越来越短。数据表明，目前的疫苗接种行为并不能提高人们对奥米可戎变种的预防能力。
-
-新闻链接：[Government continues risky push for vaccines despite growing reports of adverse reactions, deaths](https://www.naturalnews.com/2022-01-12-government-continues-push-for-vaccines-despite-deaths.html)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
