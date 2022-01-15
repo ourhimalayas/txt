@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 7:07 AM (UTC)`
+
+1/14/2022 Miles Guo: The entire world will certainly stop pushing the COVID vaccination! There is no such a thing as the vaccine against the Omicron! The virus is the CCP’s bioweapon! Symptoms like those caused by the hemorrhagic fever virus are resulted from the COVID vaccines. To prevent from catching the CCP virus, there is no other option except not getting the COVID jabs, wearing a mask, and avoid going out as much as possible<br/><br/>1/14/2022 文贵直播：全世界一定会停止推行疫苗！奥米炕疫苗是无稽之谈！病毒是共匪的生化武器！类似“热毒”的症状是疫苗造成的；要防止感染，除了不打疫苗、戴口罩、尽量不出门，别无选择
+![img](https://media.gettr.com/group27/getter/2022/01/15/07/ce9427e7-3d80-2a85-ad72-8cb82406f44c/out.jpg)
+
+---
+
+`@miles 1/15/2022 7:03 AM (UTC)`
+
+1/14/2022 Miles Guo: Who has the say in defining the CCP’s so-called “zero tolerance”? Each word said by Sun Lijun and the clothes he was wearing in the film Zero Tolerance were arranged by the CCP. The influence of CCP's propaganda far exceeds that of Hitler; Xi Jinping’s vassals are way less competent than those of Jiang Zemin and Zeng Qinghong<br/><br/>1/14/2022 文贵直播：中共所谓的“零容忍“是谁定的？孙力军在《零容忍》中所说的每个字和穿的衣服都是中共定的；中共的宣传力量远超希特勒；习的班子的能力远不及江、曾
+![img](https://media.gettr.com/group10/getter/2022/01/15/07/c7a449ff-45ef-a15c-4d48-d8ba21432d20/out.jpg)
+
+---
+
 `@miles 1/15/2022 5:01 AM (UTC)`
 
 1/14/2022 Miles Guo: Behind the SCOTUS blocking the vaccine mandate is the New Federal State of China, and it is us who provided the most crucial evidence regarding the mRNA COVID vaccines and the CCP virus. World to follow the US in banning the vaccine mandates, with the noose being put around the neck of the evil forces behind the COVID vaccines<br/><br/>1/14/2022 文贵直播：美最高法院通过禁止疫苗强制令的背后离不开新中国联邦，是我们提供了mRNA疫苗和病毒的最关键证据；世界将跟随美国禁止强制疫苗，疫苗的邪恶势力已套上绞索<br/>
@@ -144,20 +158,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 
 塞浦路斯新闻报道：美国间接承认的新中国联邦正全力营救战友<br/>对此爆料革命新中国联邦的创始人郭文贵先生在此前的大直播中说：新中国联邦正全力营救战友！<br/><br/>Cyprus news report: The new federal state of China, indirectly recognized by the U.S, is making every effort to rescue its comrades in arms<br/>For this event, the Founder of the New Federal State of China, Miles Guo said: The new federal state of China is making every effort to rescue its comrades in arms
 ![img](https://media.gettr.com/group21/origin/2022/01/13/16/9e7ad5de-b2ba-f888-0647-87af7ca10fe6/out.jpg)
-
----
-
-`@miles 1/13/2022 8:03 AM (UTC)`
-
-1/12/2022 Miles Guo: The Zhu Rongji family and the Jiang Zemin family have made a huge sum of money by giving large portions of China’s territories to Tajikistan and Afghanistan in exchange for the permanent ownership of the mining rights in that area. This is what treason is! The so-called Hetian Jade turned out not to be produced from Hetian, Xinjiang, but from Russia<br/><br/>1/12/2022 文贵直播：朱镕基、江泽民家族把中国大片领土给了塔吉克斯坦和富汗，以换取当地矿产的永久开发权从而攫取大量财富，这就叫卖国！所谓和田玉并竟非和田产，却产自俄罗斯<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/13/08/9ffeb027-2aff-37b0-4966-674cb074a0bf/out.jpg)
-
----
-
-`@miles 1/13/2022 6:04 AM (UTC)`
-
-1/12/2022 Miles Guo: Ray Dalio and Wang Qishan have a very close relationship, and he has inflicted a tremendous amount of harm on the Chinese people. Ray Dalio is bound to be prosecuted in the US courts! The “common prosperity” pushed by the global elites who are in cahoots with the CCP, such as Ray Dalio, is in fact communism!<br/><br/>1/12/2022 文贵直播：雷·达利奥是王岐山的生死兄弟，他对中国人造成了极大的伤害，他必将受到美国的审判！雷·达利奥等全球精英跟中共沆瀣一气在全球推行的“共享财富”就是共产主义！<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/13/06/def4b976-5a95-c1c9-1e82-754faafe277b/out.jpg)
 
 ---
 
