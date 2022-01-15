@@ -2,38 +2,68 @@
 ---
 
 
-## 中国政府加紧争议边界建设
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1862882/)
+## 2022年1月15日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1863017/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-21.jpg)
-图片来自网络
-[中国](https://www.foxnews.com/category/world/world-regions/china)政府继续正在继续采取边界行动，加剧与印度、不丹邻国的紧张气氛，包括正在扩大与[不丹](https://www.foxnews.com/category/world/world-regions/asia)有争议的边界沿线定居点建设的计划。
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpg)
+1. 美国抵押贷款利率飙升至2020年3月以来最高水平 记者 Christine Maurus
 
-2017年中国政府公布了，在西藏边界地区建设600多个村庄的计划，主要目的是巩固对该地区的控制，这一计划将影响中国与印度的关系。与此同时，中国的施工团队在洞朗高原上修建公路，紧张局势加剧。在中国政府与印度政府撤军后，相继都做出了让步。
+【彭博】– 美国抵押贷款利率连续第三周上升，达到近两年最高水平。
 
-但是，路透社分析卫星图像显示，中国政府在与不丹接壤的边境建立定居点，来继续推进控制边境的企图，从而加剧紧张局势。
+房地美周四发布声明称，30年期抵押贷款平均利率为3.45%，高于上周的3.22%，创2020年3月以来最高水平。
 
-美国数据分析公司鹰眼360（HawkEye 360）进行的图像分析显示，在争议地区的六个地点正在建设 200 多座建筑物，包括两层楼的建筑物。
+按揭利率升高将进一步增加购房者负担。
 
-2020年初，在中印之间的最后一次大规模冲突之前，这些建筑物就开始在建设，2021 年提高了建设速度。鹰眼360任务执行总监克里斯·比格斯(Chris Biggers)表示，最初的计划显示，是建筑一些大型建筑和轨道，现在已经建造了一些新的、小型建筑，可能是为了存储设备或物资。
+房地美首席经济学家Sam Khater在声明中表示，“今年到目前为止抵押贷款利率的上升尚未影响到购房需求，但鉴于房价的快速上涨，短期内需求可能降温”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-10.jpg)图片来自网络
+2.道琼斯指数技术指标出现顶背离(股票创新高、macd不创新高)，跌破趋势线将确认跌势。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-5.jpg)图片来自网络
+3.马斯克表示特斯拉将接受狗狗币购物，DogeCoin本周五上涨近20%。& 特斯拉推迟备受期待的电动皮卡Cybertruck至2023年上市。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-6.jpg)图片来自网络
+4.马斯克2021年12月受访78个问题中文翻译: [https://chedongxi.com/p/264710.html](https://chedongxi.com/p/264710.html)
 
-不丹外交部长拒绝就“边界问题”发表公开评论。但中国外交部坚称，建设完全是为了改善当地人民的工作和生活条件。  中国外交部表示：在自己的领土上开展正常的建设活动，是中国政府主权范围内的事。中国政府一直在利用建设边境争议地区，来提出政治主张，例如南海[的人造岛礁。](https://www.foxnews.com/politics/pentagon-report-says-china-weaponizing-man-made-islands-in-south-china-sea)这一争端涉及中国、越南、菲律宾、文莱、马来西亚和台湾。 日本并不是直接的领土争议国，但最近也参与进来，支持那些反对中国扩张的国家。 日本是美国在该地区最亲密的盟友之一。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-22.jpg)图片来自网络
-不丹边境沿线的建筑图像显示，几乎没有建筑设施和居住人口，建筑活动也是按照常规发生在以前没有开发的地区，
+**20****、****Lex Fridman****：下面我们来谈谈火星，你之前提到了，在月球上建一个科学基地，进行一些研究，这对科学界来说是非常有益的。但其实真正的飞跃，在这个看似不可能的类别中****——****让人类登陆火星。你觉得****SpaceX****未来多久会把人类送上火星？**
 
-一些专家还推测，这些定居点的位置可能会是中国政府的远程行动基地，以加强对该争议区域的控制。该地区将使中国有更多机会进入一条连接印度与其东北地区的战略地带。
+马斯克：最早是五年后，最晚是10年后。
 
-伦敦大学亚非学院教授研究员，对中国和不丹边境有深入研究的西藏问题专家罗伯特·巴内特说：中国政府声称的不丹边界上修建村庄，似乎是为了迫使不丹在边界谈判中屈服于中国政府的要求，此次谈判是 37 年以来的第 24 轮谈判。
+现在去火星的往返成本大约是1万亿美元，但有再多的钱也买不到去火星的船票。其实要把人送上火星也不是不可能，但我们想要的不仅是登陆火星在上面树立旗帜留下脚印，然后和登陆月球一样，半个世纪都不回去一次。我们想在火星定居，长久地生存在那儿，我认为人类需要成为一个多星球定居的物种。
 
-信息来源：
+猎鹰9号每次的发射成本不包含在我们最低的边际成本中，火箭的单次的发射成本在1500万美元（约为9557万元人民币）到2000万美元（约为1.27亿元人民币）左右，这已经是有史以来最低的火箭发射成本了。除此之外，我们正致力于推进火箭的迅速复用，如果成功，那么希火箭入轨的每吨成本有望降低100倍。
 
-[China steps up construction along disputed border, implicating security in key Indian territory](https://www.foxnews.com/world/china-construction-disputed-bhutan-border-india)
+**35****、****Lex Fridman****：所以火星必须有一个独立的货币体系？**
+
+**36****、****Lex Fridman****：火星上的人决定货币的形式？**
+
+**37、Lex Fridman：你觉得加密货币是21世纪人们做交易、储存财富的新方式吗？**
+
+5.平安保险称2021年保费收入7603亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-9.jpg)图片来自网络
+6.澳洲用工慌，总理移除只允许学生每周工作20小时的上限！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-14.jpg)图片来自网络
+7.澳洲移民部长动用权力再次取消网球名将签证
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-6.jpg)图片来自网络
+8.没有雪的北京冬奥会，人造雪严重破坏环境 [https://youtu.be/P\_zrOsh5RJ4](https://youtu.be/P_zrOsh5RJ4)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-6.jpg)图片来自网络
+9.共产党独裁政权下，副手的下场！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-6.jpg)图片来自网络
+10.国军的下场！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-2.jpg)图片来自网络
+11. 一根线画出耶稣像
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-2.jpg)图片来自网络
+12. 长颈鹿数量比2015年增加了20%
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-1.jpg)图片来自网络
+13. 荷兰宣布取消各种新冠封锁措施
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-1.jpg)图片来自网络
+
 
 编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)![](https://gnews.org/b12279c1-542a-4e60-97e6-238c087b28f2)![](https://gnews.org/dab5d913-f5d9-4ffb-946c-d37e48ab32e1)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
