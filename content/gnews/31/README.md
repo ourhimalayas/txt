@@ -2,38 +2,42 @@
 ---
 
 
-## 有声| 献给使CCP闻风丧胆的灭共战神——郭文贵先生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862764/)
+## 大直播&#8212;中共5年前就已通过HBO VICE、Q组织、华尔街等布局构陷并企图扼杀爆料革命于襁褓中
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862783/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-众所周知，郭文贵先生是第一个以一己之力挑战强大邪恶统治的真男儿，他的名号已经成了灭共勇士的代名词。郭文贵先生引领的爆料革命和新中国联邦戳到了中共的痛处，使傲慢自负的中共措手不及。他让中共权贵闻之胆寒、无法安眠，令盗国集团恨之入骨、欲除之而后快，伪类们对郭先生的羡慕嫉妒恨已经到了疯狂地步。中共倾尽一国之力，动用沉默力量，甚至动用了各种暗杀手段要铲除郭先生这个中共的眼中钉。郭先生就是一面照妖镜，他揭开了中共用谎言蒙上的面纱，让全世界看清了中共的丑陋面目，他是当之无愧的灭共英雄，我们绝不应该害怕伪类们的抨击就不去赞颂他。做为郭文贵先生和爆料革命的忠实粉丝，在我们迈入2022春节之际，我就是要大声地告诉世人，灭共战神郭文贵先生是当今世界的“真男儿”，是14亿中国人得到自由的希望！我坚信真男儿10大特质一定会在战友们的心中产生共鸣。
+作者：纽约香草山信息部 – 6zero4
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅-1.png)
+
+郭先生在2022年1月12日的大直播中透露，中共早在5年前就已通过HBO VICE、Q组织、华尔街等平台布局构陷郭先生和爆料革命，他们精心设计的火坑和陷阱在过去4年频频出现在爆料革命身边：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-12-23.19.33-1.png)
+
+5年前杨贝贝从上海来到HBO VICE，4年前开始抹黑郭先生，一年前的1月6日到国会山动乱现场专找中国人采访以收集构陷素材，并在半年前如约采访郭先生并将近4小时的采访精心编撰成一段只有几分钟的视频，试图将爆料革命定为邪教，制造种族仇恨将海外华人树为西方民主的威胁！
+
+5年前中共就通过Q组织对爆料革命设下了媒体超限战死局，利用人们的好奇和无知，拿捏准中国人非黑即白的一元思路，将简单事儿复杂化甚至神化，把不可实现的事情变成“正义”的必须，将你带到似是而非的坑边，最后一脚将你踹进坑里。其兴风作浪的说教就是招招致命的邪教套路，试图把所有反共行为抹黑为邪教活动而一网打尽。如果不是超限战战神郭先生及时而果断的出手制止，80%的战友都被Q组织带进坑了，后果不堪设想。
+
+桥水基金掌门人Ray Dalio就是金融界的杨贝贝，参与了遣返郭先生的背后运作。中国前15000家企业中60%都有他的投资，且对新疆、内蒙、西藏的矿产公司和中国科技股几乎100%有投资，他一人对中国人的伤害远远超过了一国。
+
+HBO VICE、Q组织和华尔街大鳄这些外国机构都是从中共手里拿钱办事，5年来一直信守对中共的承诺，不停兑现中共委托的灭爆行动，妄想灭掉中共的死敌郭先生、爆料革命和新中国联邦，但最后都在郭先生的火眼金睛及其最高段位的预判力面前化险为夷！
+
+参考链接：
+
+- [2022年1月12日大直播全文精萃](https://gnews.org/zh-hans/1852684/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**原文链接：[献给使CCP闻风丧胆的灭共战神——郭文贵先生](https://gnews.org/zh-hans/1858826/)**
-
-
-
-音频处理：雪梨
-发稿**：**雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+总编：文特
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

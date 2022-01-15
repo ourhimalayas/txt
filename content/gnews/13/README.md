@@ -2,26 +2,26 @@
 ---
 
 
-## 日本研发的“peputodo” 或对奥密克戎病毒株有效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1863010/)
+## 现世报 谭德塞被祖国告了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1863077/)
 
-撰稿：东京樱花团丨立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1163.png)[*图片来源*](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220114-12063101-kantelev-000-2-thumb.jpg?exp=10800&amp;fmt=webp)
-日本的盐野义制药厂宣布，该公司已经获得了正在研究中的新冠病毒治疗药对奥密克戎（Omicron）株具有疗效的数据。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-16.jpg)[图片源](https://www.afpbb.com/articles/-/3279012)
+埃塞俄比亚政府呼吁联合国调查世界卫生组织（WHO）秘书长谭德塞。
 
-盐野义制药厂，一直在进行多种治疗新冠病毒药物的研究。
+来自埃塞俄比亚的谭德塞，与政府军队持续打击的“提格雷人民解放阵线”（TPLF）反判组织同属提格雷人。12日，谭德塞对记者说，已成为战场的提格雷州药品运送受阻，目前简直是“地狱”。此番发言激怒了埃塞俄比亚政府。
 
-其中，该公司宣布，在使用猴子衍生细胞的测试中，选择了一种蛋白质片段的“多肽链”作为治疗药物，发现它对突变菌株如Omicron株和Delta株具有疗效。
+埃塞俄比亚外交部13日致函世卫组织，抗议其“干涉内政”。该国指责谭德塞“通过互联网社交网站声援 TPLF 恐怖主义”。
 
-在投药方式的选择中，该公司正在考虑通过一种鼻子吸入的方法，以便将药物直接输送到肺部。
+信息源:
 
-盐野义制药厂表示，希望已提交的这种口服药物的申请能尽早获得批准，以便进行最后阶段临床试验。并计划在 2021 年度（2022年3月底）生产能供100 万人使用的产品。
+[テドロスWHO局長の調査要求　エチオピア政府が国連に](https://news.yahoo.co.jp/articles/1a95cc1a23c0af3f28f3c27896e708b4e2545d2f)
 
-新闻来源：[**塩野義製薬の治療薬 オミクロン株に「効果」　研究段階の「ペプチド」**](https://news.yahoo.co.jp/articles/d1b155dc99961cfbdf7d9b1f7057a8885bebd1db)
-
-*校对：东京樱花团 / 旭鵬(文鵬)
-发布：东京樱花团 / tdownc2p*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

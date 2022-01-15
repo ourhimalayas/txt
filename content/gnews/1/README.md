@@ -2,44 +2,50 @@
 ---
 
 
-## 澳大利亚国防部长呼吁名人、#MeToo为中国网球明星发声
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863227/)
+## “我们倒退了”：前卫生专员承认美国人正在对CDC失去信任
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863275/)
 
-据《大纪元》作者：Daniel Y. Teng，2022年1月9日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3463.png)2009年10月6日，中国网球运动员彭帅在北京的一场网球比赛中。 （AP Photo/Ng Han Guan）
-澳大利亚国防部长彼得-达顿呼吁名人和#MeToo运动的倡导者为中国网球明星彭帅发声。她在11月指控中共前副总理实施性侵犯。
+评论： ***在美国，总统在推行疫苗强制令，便宜又好用的伊维菌素被移除治疗药物名单，大量的疫苗伤害病例在发生，感染人数已令人惊悚的速度在飙升……CDC作为美国联邦政府行政机构，成立的目的是为保护公众健康和安全提供可靠的资料，通过与国家卫生部门及其他组织的有力的伙伴关系，以增进健康的决策，促进公民健康，但它似乎现在正在与这些背道而驰，希望CDC如果不能成为民众健康的保护神，也请不要成为魔鬼的代言人！***
 
-“我不明白，在2021年#MeToo时代，我们怎么会有一个国际网球女明星因声称被强奸和性侵犯，而实际上被软禁，同时她的社交媒体账户也被抹去，而我们还要去容忍这些行为。” 达顿在1月10日发表的独家采访中告诉九报网。
+据《Hannity.com》作者：Hannity员工，2022年1月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3468.png)图片来源：网络
+谈到COVID战略时，拜登政府正在按下重置按钮——至少，他们无论如何都会尝试这样做。
 
-这位国防部长并不害怕直接批评北京在南中国海和对台湾的行为，他说：“最好公开反对中国共产党（CCP），否则北京的行为就不会改变。”
+据NBC新闻报道，拜登卫生政策制定者和过渡成员组成的团队正准备对政府的COVID反应采取新的方法，因为他们意识到自己正在失去美国人民的信任。
 
-“我觉得这很了不起……当你看看#MeToo运动在西方社会的力量，”达顿说，“我们不会容忍，也不想容忍这样的暗示——即如果有人被强奸了，那就不会被解决。”
+“这种变体（Omicron）的迅速传播给许多美国人的生活造成了自大流行以来从未有过的破坏。人员短缺迫使学校和企业关闭，并导致警察和消防部门因急救人员大量生病而缺勤。由于人员短缺，航空公司取消了数千个航班，公交系统关闭了公共汽车和地铁路线，病例激增再次削弱了邮轮业。”NBC报道。
 
-“更不用说数以万计的其他人的困境，他们发现自己处于同样的境地，维吾尔人和其他人要么受到威胁，要么人权受到侵犯，或者受到其他迫害。”
+“拜登当选总统在很大程度上是基于 ‘我有实力，我有能力，我会告诉你真相，我将以我的前任无法做到和拒绝做的方式处理Covid’的信息，但这（Covid）仍然是大多数人的头号问题。” 曾在奥巴马政府中担任卫生与公众服务部部长凯瑟琳·西贝利厄斯说。
 
-“因此，我对这些事情的判断是，我认为如果我们想要改变，如果我们希望中国继续成为一个大国，但要遵守法治，那么我们就应该批评它。”
+“[美国人]的生活仍然很混乱，有点凌乱，当他们认为自己可以摆脱困境时，他们又回到了困境中。”她补充道， “我确实认为这涉及到实力和能力，说真话和使用总统可以使用的所有工具。”
 
-彭帅的事件始于11月2日，这位网球明星在中国社交媒体微博上发布指控，称75岁的中共高官张高丽强迫她发生性关系——这是一段持续10年的畸形恋情的一部分。
+“就沟通和对CDC的信任而言，感觉就像我们倒退了。”巴尔的摩前卫生专员Leana Wen说。
 
-在她从公众视线消失的三周之前，彭帅的帖子很快被从互联网上删除。
 
-根据新加坡中文报纸《联合早报》的采访，这位网球明星重新出现，并否认她的指控，同时声称人们对她的微博信息有“误解”。
 
-但是，女子网球协会（WTA）负责人史蒂夫-西蒙暂停了2022年在中国和香港的所有赛事。
+> Unsurprisingly, Biden’s testing shortage, confusing rhetoric, and tolerance-based CDC guidance has failed to “shut down the virus” as promised…
+> 
+> ‘We have gone backwards’: Covid confusion snarls Biden White House ⁦[@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw)⁩ [https://t.co/SxPL73eTZP](https://t.co/SxPL73eTZP)
+> — Chad Gilmartin (@ChadGilmartinCA) [January 11, 2022](https://twitter.com/ChadGilmartinCA/status/1480879668668547073?ref_src=twsrc%5Etfw)
 
-为了进一步保护彭帅和世界各地的许多其他女性，人们比以往任何时候都更迫切需要发声。西蒙在一份声明中说：“WTA将尽一切可能保护其球员。”
 
-相比之下，考虑到中国市场的巨大潜力，许多机构一直不愿意同北京发生争执。
 
-例如，虽然#MeToo运动在好莱坞得到了重视，但高管、制片人和演员同时也很谨慎，避免得罪中国共产党，即使是在很小的问题上。许多人还为所谓的对中国共产党的轻视而道歉。
+“不出所料，拜登的检测缺乏，令人困惑的言论以及基于容差的CDC指导未能像承诺的那样”阻断病毒”……
 
-今年5月，演员和前摔跤手约翰-塞纳在社交媒体上用普通话道歉，因为他不经意地将台湾称为一个国家——这与《速度与激情》系列电影的第九部有关。
+“我们已经倒退了”：Covid让拜登的白宫陷入混乱
 
-文章来源:[**https://www.theepochtimes.com/australian-defence-minister-calls-on-celebrities-metoo-to-speak-up-for-chinese-tennis-star\_4202671.html**](https://www.theepochtimes.com/australian-defence-minister-calls-on-celebrities-metoo-to-speak-up-for-chinese-tennis-star_4202671.html)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
+```
+@NBCNews“
+```
+
+
+原文连接：[**https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/**](https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/)
+
+翻译：洛杉矶盘古农场 – 海潮
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
 发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
