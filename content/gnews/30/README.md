@@ -2,43 +2,25 @@
 ---
 
 
-## 国家电网计划2022年投资5012亿元
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862849/)
+## 现世报 谭德塞被祖国告了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1863077/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-16.jpg)[图片源](https://www.afpbb.com/articles/-/3279012)
+埃塞俄比亚政府呼吁联合国调查世界卫生组织（WHO）秘书长谭德塞。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+来自埃塞俄比亚的谭德塞，与政府军队持续打击的“提格雷人民解放阵线”（TPLF）反判组织同属提格雷人。12日，谭德塞对记者说，已成为战场的提格雷州药品运送受阻，目前简直是“地狱”。此番发言激怒了埃塞俄比亚政府。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
+埃塞俄比亚外交部13日致函世卫组织，抗议其“干涉内政”。该国指责谭德塞“通过互联网社交网站声援 TPLF 恐怖主义”。
 
+信息源:
 
-根据《界面新闻》1月14日报道，国家电网有限公司增加了今年的电网投资。
+[テドロスWHO局長の調査要求　エチオピア政府が国連に](https://news.yahoo.co.jp/articles/1a95cc1a23c0af3f28f3c27896e708b4e2545d2f)
 
-国家电网有限公司成立于2002年12月，以投资建设运营电网为核心业务，经营区域覆盖26个省（自治区、直辖市），供电范围占国土面积的88%，供电人口超过11亿。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-一位接近国家电网的人士表示，1月13日，国家电网召开了年度工作会议，计划2022年电网投资达5012亿元。
-
-这是国家电网年度电网投资计划首次突破5000亿元，创历史新高，同比增长8.84%。
-
-2020年，国家电网完成电网投资4605亿元，并承诺2021年完成电网投资4730亿元。
-
-据悉，2021年国家电网的电网基建投资共完成4024.8亿元。
-
-电网投资一直是稳增长的重要方式，在新能源大力发展背景下，特高压电网持续迎来增量需求。
-
-据国融证券研报，电网是逆周期调节的重要环节，叠加新能源大范围消纳、负荷结构变化等问题，电网行业投资将加快。
-
-参考链接：[【独家】首破5000亿，国网今年电网投资将创新高](https://www.jiemian.com/article/7014787.html)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,42 +2,39 @@
 ---
 
 
-## 美最高法院：拜登政府灾难性疫苗强制令是违宪的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1863283/)
+## 2022开局不利，深圳新房市场交易惨淡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1863365/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/AxBvUD7wu0QcvAZefnk3N0vd_kpkOgVyyoBG_wSrociPVR3swZbtj2yUqOuBvVn0An-VZkmRiBiq9xXLsBIuOME0jDlzJMpmfejCeaGxgPVX1sytq8fukmyG9pl-pIASsPz1Mu5c)[*图片来源*](https://twitter.com/JacquiHeinrich/status/1473383296348434437/photo/1)
-**美最高法院对疫苗强制令说“不”，它迫使COVID-19疫苗强制令走向了全面停止的不可逆之路，这对拜登总统是重大打击，这一裁决意味着人性与自由权益的解放。对此，MILES GUO表示：“美国高院禁止疫苗（强制令）是完全颠覆性的。这归功于我们新中国联邦提供了mRNA最关键的的证据。”最高法院就此表示，拜登的灾难性授权是违宪的。目前， Omicron变体导致美国每7天日均感染约为75.1万例。**
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-据美国[国会山](https://thehill.com/policy/healthcare/589855-supreme-court-handcuffs-biden-on-vaccinations)14日下午消息，美[最高法院](https://www.nytimes.com/2022/01/13/us/politics/supreme-court-biden-vaccine-mandate.html)对企业疫苗强制令的裁决对拜登政府造成了重大打击，使他们没有更多工具来强制接种 COVID-19疫苗。
+##### 整理/编辑：文泓
 
-这一裁决不但让私营企业主获益，更意味着人性的一场解放，他是一场捍卫个人权益的重大胜利。为此，新中国联邦在背后进行了关键证据的提供与合作，正如郭文贵先生（[MILES GUO](https://www.gettr.com/user/miles)）说的那样， “美国高院禁止疫苗的事出台后对（强制）疫苗是完全颠覆性的。这归功于我们新中国联邦提供了最关键的有关mRNA数据和病毒溯源以及私人企业主打疫苗的副作用的证据。”（见[20:12时段](https://gettr.com/post/poabard70a)）
-
-正如共和党人和共和党州官员庆祝这一裁决所表达的那样，“最高法院刚刚阻止了拜登对企业的威权疫苗授权。”众议院少数党众议员史蒂夫·斯卡利斯在推特上写道：“让我们明确一点：这还远远不够，卫生保健工作者也不应该受制于这种暴虐的命令。”
-
-- ***延展阅读：***[***福奇说，目前尚不清楚人们是否需要每年一次的疫苗注射***](https://thehill.com/policy/healthcare/589707-fauci-says-it-is-not-clear-yet-if-people-will-need-yearly-boosters)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1166.png)图片来源：全网搜
 
 
-传染病专家席琳·冈德（Celine Gounder）在推特上更是直接表明：“现在美国不太可能让 85-90% 的美国人接种疫苗而是向强制接种疫苗相反方向发展。”
+1月14日，据界面新闻报道，作为全国楼市风向标，2022年深圳新房市场开局不顺。
 
-拜登总统表明对拒绝接种中共病毒疫苗的美国人已失去耐心。那些承诺接种疫苗就给现金赠品、约会应用程序，甚至免费的大学学费都几乎没有起到任何作用，因此拜登认为有必要制定规则来强制解决这个问题，从而使工作场所更加安全。然而，最高法院认为这是“违宪的”，目前尚不清楚白宫在强制疫苗上还有哪些其它可使用的工具。
+在深圳新房销售的热门片区——光明新区，曾在2020年诞生不少大热“网红盘”，后续出让地块也引起不少开发商参与竞拍。
 
-美国疫情最大受害群体航空公司和其他商业团体都反对针对国内航空旅行的疫苗和检测要求，白宫首席医疗顾问福奇最近建议政府不要为了让更多人接种疫苗而采取措施。
+今年位于光明新区的安联尚璟府项目新盘销售，已不复当初的热度。小区1月2日开始推盘，是今年深圳市场的首个新盘，备案价为5.19万元/平方米，套均总价447万至594万元。
 
-在27个共和党领导的州与企业一起起诉，以有效终结雇主强制疫苗规则，该裁决给了他们更多的自主捍卫权。“最高法院发表最新讲话，证实了我们都知道的事情——拜登灾难性的疫苗强制授权是违宪的，这将进一步摧毁经济，我们为最高法院没有退缩而感到自豪，”前总统川普在周四的一份声明中如是说。
+然而，开盘十多天以来，楼盘销售情况惨淡。据深圳房地产信息平台显示，截至1月14日，安联尚景府仅有一套房源售出。
 
-- ***延展阅读：***[***国会必须抓住时机让大型制药公司承担责任***](https://thehill.com/blogs/congress-blog/healthcare/587562-congress-must-meet-the-moment-to-hold-big-pharma-accountable)
+曾经一房难求的深圳市场，出现这样的情况极为少见，除了项目本身在区位交通、基础配套等方面存在薄弱点外，最主要还是深圳市场对新房价格的趋势有转变。
 
+曾经的“网红盘”都遭遇销售难题，可见深圳目前的新房市场确实迎来了转折点。这一切都围绕着经济大局。当中共国擀面杖经济难以为继，外资企业加速撤离，民众可支配收入下滑，断供潮不断出现，深圳楼市也不能免俗。
 
-“最高法院真的给总统的新冠病毒应对措施戴上了手铐，我认为这是可耻的，你正处于大流行之中。而且我认为，当下一次危机出现时，它会再次困扰我们，”这是拜登的支持者——全球卫生法中心戈斯汀说的。然而他只说对了一半，“最高法院真的给总统的新冠病毒应对措施戴上了手铐”，因为他意识到这是不可逆的。
+新闻链接：[深圳楼市热度降低，新盘也不好卖了](https://www.jiemian.com/article/7014262.html)
 
-拜登政府仍在努力突破最高院的疫苗禁令，却枉顾疫苗无用这一事实，美国“目前7天日均病例约为75.1万例，比前一周增加约47%。 7 天平均住院人数约为每天 19,800 人，比前一周增加约 33%。而每7天的平均死亡人数约为每天1600人，比前一周增加了约40%。这么大幅度的增长在很大程度上与 Omicron 变体有关，它目前约占[美国 COVID-19 病例的 98%](https://www.whitehouse.gov/briefing-room/press-briefings/2022/01/12/press-briefing-by-white-house-covid-19-response-team-and-public-health-officials-78/)。”
+*发布：玉米地守望者*
 
-2022年1月15日
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

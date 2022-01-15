@@ -2,48 +2,30 @@
 ---
 
 
-## 对大自然正确理解对宇宙和地球及人类的起源探索是信仰
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1863435/)
+## 美国高院停止疫苗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1863557/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e2b27d87664c47acd4f5b1](https://gtv.org/video/id=61e2b27d87664c47acd4f5b1)
+##### 整理：雅典娜速记组  大直播工作组
+编辑：Rianna
 
-**郭文贵先生：**兄弟姐妹们，我们千万不要迷信，啥叫迷信？就是你不要误解了大自然，那叫迷信，你错误了那叫迷信，不是共产党说的迷信。它不让你信，它只让你信它，信别人的全叫迷信，那叫迷信。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/yimiao.jpg)图片来源：雅典娜设计组
 
-我们告诉你不要错误地理解大自然，那就迷了，就迷了方向了。我们以正确的要什么？真信大自然，那叫信仰。对大自然密码的正确的理解，对人出处的正确的解释和探索、对宇宙和地球和人类之间的起源和未来去向的探索，叫什么？它叫信仰。当你懂得这个意义的时候，你会对你身边一切事情看的简直是不能再low了，是吧？
 
-文疯给我发信息：“最近疯太跟我’双修’不太痛快”，那你会觉得很无知了，是吧？那不可能。
+**背景知识**：据BBC商务记者娜塔莉·舍尔曼（Natalie Sherman）2022年1月14日报道，美国最高法院否决拜登企业疫苗强制令。美国最高法院否决了拜登总统要求大公司员工接种疫苗或戴口罩并每周接受检测的规定。美国最高法院的大法官们表示，这一强制令超出了拜登政府的权限。此外，他们还裁定，对政府资助的医疗机构的工作人员实施更有限的疫苗授权。法官们以6票赞成、3票反对的结果同意了这一观点，称针对大雇主的工作场所安全规定过于宽泛，不应由美国劳工部职业健康与安全管理局管理工作场所安全。
 
-文耀：“我有个男朋友，我这事咋办呢？我老公知道了，还一外国人”，是吧？不用担心，这都是小事。
+**文贵直播：**关于美国高院疫苗通过的事儿，你们知道这个背后跟我们新中国联盟有多大关系吗？你知道我们寄了多少信、提供了多少文件吗？等到高院这个审判公开以后，你们好好看看他们当中采用的文件去。启用了最最关键的就是我们提供的数据，关于疫苗副作用的和病毒溯源的，以及这些企业、私人债主、私人企业主的打疫苗。你知道这是关乎8400万美国人，你要么就是合法被打疫苗。昨天如果这个法不是这么过的话，你知道现在曼哈顿什么概念吗，兄弟姐妹们？长岛哥进曼哈顿进那个楼，他都得打疫苗，不打疫苗就是不合法的，小飞象也得打疫苗。你不是流水了，你该流血了。竟然很多人在上面还不知足。你知道东弟，颖妹妹，我觉得这是从前天到现在最让我出奇的生气的一件事，就是我们战友对这件事情的认知。美国高院这个结果，我可以告诉你，这个高院的法一出来以后，疫苗的事情基本上已经完全颠覆。我们爆料革命新中国联盟可以说99.999999%的人都是最大受益者。为什么？你是没苗族。我们爆料革命战友当中孩子教育上学的问题，你以后可以自我决定了。
 
-你会对你的喜怒哀乐还有生活中的不愉快……看着村长跟唐平，然后Q May发生什么事了，老凯，你都会觉得这事很无聊很无聊。
+**后记点评：**郭文贵先生说过疫苗强制令一定会停止，这又一次证实了郭文贵先生带领的新中国联邦情报准确性，全世界看美国，只有美国率先通过禁止疫苗护照，其它国家地区才能跟进停止，对于全世界饱受疫苗强制令伤害的民众，这是天大的好消息，给这个黑暗的世界带来一线生机！
 
-字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+资料来源：郭先生GTV和盖特直播视频。
 
-编辑整理：Jacques；
+*发布：玉米地守望者*
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1):  HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
