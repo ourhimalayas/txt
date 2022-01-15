@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|中共开展共产主义运动式抢夺财富
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862114/)
+## 鉴于中共人权问题 丹麦也加入外交抵制北京冬奥会行列
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862136/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月12日，郭先生在大直播中指出，中共通过恶意封城、大规模核酸检测，试图达到政治上的中共病毒清零”的目的，让老百姓习惯于居家，严格宵禁。其更重要的作用是在封城期间以抗疫为借口，开始进行财富掠夺。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1138.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd32kak7w9u5ewj.cloudfront.net%2Fmedia%2Fimage%2F2021%2F12%2Fbee659eb780649f1b010fd9fb76d6aa1.jpg&amp;imgrefurl=https%3A%2F%2Ftheinitium.com%2Farticle%2F20211203-mainland-beijing-winter-olympics%2F&amp;tbnid=dHn16iX45mFDCM&amp;vet=12ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ..i&amp;docid=PZSsRnFoNF7V5M&amp;w=2160&amp;h=1393&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5&amp;ved=2ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ)
+丹麦外交大臣杰普·科弗德星期五(1月14日)说，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京冬奥会。同天早些时候，荷兰也宣布将不派外交代表团出席北京冬奥会。
 
-目前已经被列出西安的120家企业，30个企业富豪，将会面临停业整顿和抓捕，中共还会把他们的财富全部收归国有。这就是共产党的共享财富。郑州目前也已经开始，接下来天津、江浙一带也会推动这种共产主义运动式的财富抢夺计划。
+“我们丹麦这方对中共国人权状况非常关切，这不是什么秘密，”科弗德说。“政府已决定我们将不出席在中共国的冬奥会。”
 
-原文链接：[中共开展共产主义运动式抢夺财富](https://gnews.org/zh-hans/1859739/)
+在丹麦做出这项决定之前，欧盟国家本星期在法国布雷斯特举行的会议上未能就这一立场达成共识。
 
-音频处理：Daxia
+荷兰外交部发言人星期五早些时候表示，由于中共病毒（新冠病毒Covid-19）疫情的限制措施，荷兰将不派官方代表团出席北京冬奥会。
 
-**发稿：**Daxia
+荷兰外交部发言人弗里茨·肯普曼对路透社说：“由于中共国执行的中共病毒措施，与东道国进行双边接触，并且以有意义的方式讨论荷兰极为关切的东道国人权状况的机会只会是有限的。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其他侵犯人权的行为，美国不派外交或官方代表团出席北京冬奥会。
 
-**更多资讯，更多关注**
+澳大利亚、英国、加拿大和日本加入了外交抵制行列。运动员不受外交抵制影响。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+消息来源：[丹麦与荷兰宣布不派外交代表团出席北京冬奥会](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

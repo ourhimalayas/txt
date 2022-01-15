@@ -2,30 +2,40 @@
 ---
 
 
-## 脸书在英国面临赔偿额达32亿美元的集体诉讼官司
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862123/)
+## 有声|病毒实为中共推行网格化管理的利器
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862137/)
 
-#### **撰稿：日本东京方舟农场  葛大饼**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月12日的直播中谈及，共产党正在利用中共病毒对墙内老百姓实行严苛的驭民五术。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E9FECD13-E636-403D-A615-63E9490F06B8.jpeg)（图片来自搜狐）
+郭先生爆料，共产党内部早在去年就开始讨论，如何更深层次地利用中共病毒和疫苗，让中共国内的社会更容易被管理。其中，王沪宁提出，要牢牢抓住病毒带来的机会，在墙内实行网格化管理政策。
 
-据《Euro News》1月14日报道，社交媒体巨头脸书（Facebook，现名Meta Platforms）在英国面临赔偿额超过23亿英镑（32亿美元以上）的集体诉讼，它被指控滥用市场支配地位，盗用4400万用户的个人数据。
+郭先生表示，中共通过疫情封锁政策让墙内民众平时只能选择居家生活，一旦他们出门就要被中共的警察、城管监控，自此，中国老百姓将永远陷入被奴役的状态。郭先生还补充道，目前，西安、郑州、河北、天津均已开始实行这一“网格化”管理政策。
 
-英国金融行为监管局（FCA）高级顾问、竞争法学者利萨·洛夫达尔·戈尔姆森（Liza Lovdahl Gormsen）表示，她是代表在2015年至2019年期间使用过Facebook的英国用户提起这项诉讼的。这起诉讼指控Facebook通过强加不公平的条款和条件，要求用户需交出个人数据才能访问该网络，并以此赚取了数十亿英镑。
+原文链接：[病毒实为中共推行网格化管理的利器](https://gnews.org/zh-hans/1858024/)
 
-据悉，律师事务所Quinn Emanuel Urquhart & Sullivan已经就这起索赔案向Facebook发出了律师函。
+音频处理：Daxia
 
-戈尔姆森指出，自Facebook创建17年以来，它已成为英国唯一的社交网络。然而Facebook却在其平台内通过Facebook Pixel等机制，收集用户私人信息和数据，从中获取利益。
+**发稿：**Daxia
 
-*参考链接：[Facebook faces $3.2 billion UK class action over market dominance](https://www.euronews.com/2022/01/14/tech-antitrust-facebook)*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-*素材采编：葛大饼*
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑： 青衣青青*
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*发布：miumiu*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

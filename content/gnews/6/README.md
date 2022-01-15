@@ -2,30 +2,30 @@
 ---
 
 
-## 丹麦与荷兰不派外交代表团出席北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862204/)
+## 斯里兰卡向中共求新贷解危机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862229/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-20.jpg)丹麦与荷兰不派外交代表团出席北京冬奥会 网络图片
-据美国之音1月15日报道，丹麦外交大臣杰普·科弗德14日表示，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京举行的冬季奥运会。同一天，另一个欧洲国家荷兰也宣布将不派外交代表团出席北京冬奥会。
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其地区的侵犯人权行为，美国不派外交或官方代表团出席北京冬奥会。澳大利亚、英国、加拿大和日本都加入了外交抵制行列。运动员不受外交抵制影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/61A4B669-30DF-47F7-99C2-E09552E01722.jpeg)（图片来自多维）
 
-雷声大雨点小的北京冬奥会，即使勉强开幕，也是一出闹剧。一个黑帮老大牵头，带着一帮各怀鬼胎的小弟。老大爱面子，小弟要利益，凑出一场所谓的“奥运会”。中共的闹剧从刚开始的轰轰烈烈，到如今的东拼西凑，中共在国际上的影响力越来越弱。以美国为代表的欧洲和西方世界，以民主、法治、自由立国，不可能跟中共结成盟友。
+据《印度教徒报》（The hindu）1月12日报道，斯里兰卡周三排除了向国际货币基金组织寻求救助的可能，并称计划向中共国寻求另一笔新贷款，以解决粮食和燃料短缺导致的经济危机。
 
-新闻参考链接：[https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
+据报道，斯里兰卡*中央银行行长*阿吉特·尼瓦尔德·卡布拉尔（*Ajith Nivard Cabraal*）拒绝了各方提出的向国际货币基金组织寻求债务重组的建议。他在记者会上明确指出，国际货币基金组织不是解决斯里兰卡当前困境的“魔法棒”，向中共寻求新贷款才是更好的选择。
+
+卡布拉尔（*Ajith Nivard Cabraal*）进一步表示，已经与中共国进行了关于新贷款的谈判 ，新协议将用于偿还现有的中方债务。
+
+报道称，卡布拉尔的这番讲话是在中共国外交部长王毅访问该国的几天后发表的。据悉，王毅此前已与斯里兰卡总统戈塔巴亚·拉贾帕克萨（Gotabhaya Rajapaksa）讨论了债务支付重组问题。
+
+*参考链接：[Sri Lanka seeks new China loan](https://www.thehindu.com/news/international/sri-lanka-seeks-new-china-loan/article38258975.ece)*
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*素材采编：葛大饼*
 
+*编辑： 青衣青青*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*发布：miumiu*
 
  
 

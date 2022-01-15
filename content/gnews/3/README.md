@@ -2,34 +2,35 @@
 ---
 
 
-## 朝鲜：美国启动的单边制裁是故意加剧紧张局势
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862236/)
+## 中国房地产市场大幅放缓可能抑制全球增长
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862281/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-##### 整理：Eileen（围剿维尼熊）
-编辑：小红帽
+整理：Eileen（围剿维尼熊）
+编辑：Kelly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-868.png)图片来源：雅典娜设计组
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
-根据《凤凰网资讯》1月15日报道，韩国军方14日表示，朝鲜当天下午发射不明飞行器。西方媒体认为，这是朝鲜向美国日前的制裁表达不满。就在周四，朝中社援引朝鲜外务省发言人的话说，美国因为朝鲜的合法活动对朝鲜启动单边制裁，是故意加剧紧张局势。
+【大纪元2022年01月15日讯】经济合作与发展组织（OECD）的最新报告警告说，中国房地产市场大幅放缓可能抑制全球增长。
 
-韩国专家认为，这些飞行器很可能是被称为朝鲜版“伊斯坎德尔”的KN-23导弹或有朝版“陆军战术导弹”之称的新型短程弹道导弹。
+OECD周四（1月13日）发表的报告说，在可能大幅拉低中国经济增长的因素中，房地产行业的脆弱性十分突出。房地产行业有可能在2022年出现违约，导致房地产价格大幅下降，拖累中国经济增长。OECD预测，2022年中国经济增长率为5%左右。中国占全球GDP的四分之一，占世界商品和服务贸易的12.5%左右。
 
-这是朝鲜今年第三次进行试射。CNN曾报道称，由于美军早期预期系统最初误判朝鲜11日发射的导弹将“击中美国”，平壤的此次试射在美一度引发混乱，导致美国西海岸部分航班停飞约15分钟。
+多年来，房地产行业一直是中国经济增长的一个强有力的来源，但同时也伴随着开发商以及家庭的杠杆率上升。在这些限制政策的压力下，中国的多家房地产企业从2021年开始出现资金困境，很多观察家认为，中国房企恐怕要一家接一家地爆雷。中国一些大型房地产开发商所面临的严重流动性问题将给金融机构带来直接的风险，其中也包括给外国机构的风险。
 
-据朝中社14日报道，朝鲜外务省发言人表示，近期朝鲜进行的新型武器开发工作是推进国防力量现代化的一部分，不针对特定国家或势力，也没有对周边国家的安全造成危害。
+如果房地产行业危机导致违约，目前看来这种情况是有可能，并导致房地产价格大幅下降，这些风险将被进一步放大到经济中。
 
-参考链接：[朝鲜外务省：美国对朝鲜启动单边制裁，故意加剧紧张局势](https://i.ifeng.com/c/8CoH96ERnW8)
+OECD的研究发现，严重的放缓将大大影响经济的其它部门，特别是为建筑活动提供材料的部门，最终需求将受到房地产活动放缓的直接打击。
 
-*发布：玉米地守望者*
+参考链接：https://www.epochtimes.com/gb/22/1/14/n13505456.htm
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

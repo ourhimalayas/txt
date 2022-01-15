@@ -2,28 +2,25 @@
 ---
 
 
-## 【中日财经爆】系统性风险盖不住了 中共国启动险资关联交易专项检查
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862058/)
+## 郭先生解析vice采访（三）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862063/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1131.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2022-01-14%2F164216013350625_480_320.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.caixin.com%2F2022-01-14%2F101830261.html&amp;tbnid=BmahyG-H4pcrvM&amp;vet=12ahUKEwjk0svI8bL1AhWWAzQIHRAKD8sQMygAegUIARCoAQ..i&amp;docid=tUTtLgGU8mSqmM&amp;w=480&amp;h=320&amp;itg=1&amp;q=%E9%99%A9%E8%B5%84%E5%85%B3%E8%81%94%E4%BA%A4%E6%98%93%E4%B8%93%E9%A1%B9%E6%A3%80%E6%9F%A5&amp;ved=2ahUKEwjk0svI8bL1AhWWAzQIHRAKD8sQMygAegUIARCoAQ)
-中共国银保监会周五（1月14日）称，决定于2022年在全国范围内组织开展保险资金运用关联交易专项检查，坚决遏制保险资金运用关联交易不当行为蔓延势头。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-银保监会网站刊登的新闻稿称，本次专项检查重点关注对象为以资本运作为主业的金控或隐形金控平台，以及以多元发展激进扩张的产业资本为股东的中小型保险机构。
+等着我们被杀的时候，要告诉国内人，这帮东西都是叛徒，都是邪教，是犯法了，全家在这犯法了，小新是叛徒，在西方犯法了。闻风而动，就是暴徒。还让中国人恨你我，关键的螃蟹这个孙子，他根本没投**GTV,**但是观众不知道他没投**GTV**啊。螃蟹要投**GTV,**咱们不让他投，和他说被骗投资，你看看这个差距有多大？然后他说你是骗子，你是把中国带入地狱，你看这个差距有多大？可怕的是去采访。
 
-检查的重点内容包括关联交易制度机制、关联交易信息披露、关联交易审查、资金运用类关联交易行为等四个方面。
+川普总统在所谓一六事件之前，还有这个在国会山，你看到七哥在直播中说过，我多次反对大家去参加川普的抗议，这个时候游行，会被人利用。结果被利用了吧。她把他的到那块儿去游行，变成了我们有组织的支持。川普搞美国之乱，他要把我推到**1**月**6**号的美国刑事调查这个范围内。第三招够不够狠？ 够不够狠？而且那个编辑的就**Nicola**的语言，可以把报道革命毁掉 了。他能编辑的话真的是。够不够狠？然后再让这个小斯基出来，让小司机 说**GNEWS, GTV**是一家的。都是爆料革命操控的工具。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.003.jpeg)
+发布：tianzhihuan
 
-银保监会称，近年在对高风险机构进行风险处置中发现，保险资金运用关联交易存在较大的风险隐患，不当关联交易花样不断翻新，隐蔽性日益增强，部分公司股东和实际控制人采取多种方式掩盖关联交易实质，规避关联交易内部审查、外部监管及信息披露。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-银保监会同日发布“银行保险机构关联交易管理办法”指出，银行保险机构不得利用各种嵌套交易拉长融资链条、模糊业务实质、规避监管规定，不得为股东及其关联方违规融资、腾挪资产、空转套利、隐匿风险等。
-
-办法并强调，保险机构不得借道不动产项目、非保险子公司、信托计划、资管产品投资，或其他通道、嵌套方式等变相突破监管限制，为关联方违规提供融资。
-
-消息来源：[中国启动险资关联交易专项检查 重点关注隐形金控平台和发展激进的中小险企](https://cn.reuters.com/article/china-cbirc-sme-regs-0114-idCNKBS2JO0Z0?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
