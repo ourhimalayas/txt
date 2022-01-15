@@ -2,20 +2,26 @@
 ---
 
 
-## 感染过新冠病毒的男子阴茎缩短了1.5英尺
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864599/)
+## 丹麦指控来自中共国间谍威胁升高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864639/)
 
-撰稿：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，一名曾经罹患新冠病毒的男子在康复后，发现自己的阴茎缩短了1.5英尺。此名男子三十多岁，异性恋，来自美国，曾在去年7月感染过新冠病毒，康复出院以后，留下了一系列奇怪的勃起功能障碍。
+撰稿：纽约磐石农场—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-5.jpg)
 
-这些症状随着治疗得到了一些缓解，但是医生告诉他，由于勃起组织的血管伤害，这种情况可能是永久性的。该名男子沮丧无比.
 
- 据悉伦敦大学学院一项研究发现，阴茎缩短是长期感染新冠病毒者的常见症状。同时迈阿密大学米勒医学院的一项研究表明，新冠病毒感染导致的广泛内皮细胞功能障碍可能导致严重的勃起障碍。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-参考链接:[https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html](https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html)
+
+
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-26.jpg)图片源自网络
+
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。 
+
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+参考链接:[https://cn.rti.org.tw/news/view/id/2122065](https://cn.rti.org.tw/news/view/id/2122065)
 
 总编：Irene木木
 校正/发稿：Daxia

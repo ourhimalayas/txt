@@ -2,33 +2,39 @@
 ---
 
 
-## 德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1864301/)
+## 英国报告称 疫苗死亡率远高于普通人群
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864503/)
 
-翻译：zzballack
-校对/上传：无明逆流
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**当地时间1月14日，据相关媒体报道，英国政府公布的最新数据显示，完全接种过中共病毒疫苗的群体，其死亡率超过未接种人群的286%。**
 
-医学博士埃迪·贝特尔曼（Eddy Bettermann）医生1月8日在其官方网站刊文说，根据德国政府最新公布的新冠疫情数据，截至到本月底，大多数“完全接种了新冠疫苗”的人将会患上由疫苗导致的艾滋病（AIDS）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Wha1.19-PM.jpeg)图片来源：原新闻
-德国政府研究人员发现，完全接种者的免疫系统已平均衰退了87%，衰退幅度取决于他们的接种时间。这种衰退会一直持续下去，直到他们的免疫系统完全丧失殆尽。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-9.jpeg)
 
-罗伯特·科赫研究所（RKI）公布的数据显示，现在完全接种者对奥米炕新变种的平均免疫反应水平比未接种者低87.7%。《每日曝光》（Daily Expose）报道说：“这意味着（完全接种了疫苗的）德国人平均只剩下12.3%的免疫能力来对抗某些病毒和癌症。”
+相关研究指出，自全球大规模接种中共病毒疫苗以来，医院里充斥着因接种疫苗而患病的人群，而即使他们接受了特别的护理，仍有很多患者不幸死亡。当前，全球已有超过100万人因接种中共病毒疫苗而遭受了严重副作用或者死亡。值得注意的是，由于各国政府的保守统计，这一结果可能严重低于真实数据。
 
-**完全接种者的免疫表现比预测模型估计的还要糟糕**
+数据表明，中共病毒疫苗高接种度人群也是未来高死亡风险人群，其原因在于，导致人们死亡的正是所谓的“疫苗”，而非中共病毒本身。相较而言，未接种中共病毒疫苗的人群，其免疫系统和DNA不受疫苗带来的负面影响。
 
-早在去年10月份，就有人预测到（免疫系统衰退）这类事情会发生。科学家们在研究了英国公共卫生安全署（UHHSA）疫苗监测报告（Vaccine Surveillance Report）的数据后得出结论说，完全接种者的免疫系统衰退情况将会变得逐渐恶化。
+另据美国保险业巨头的有关报告提及，近期，整个保险行业的死亡索赔率上升了40%，这明显是因中共病毒疫苗导致的连锁反应。
 
-尽管一些人嘲笑这些数字，称其为危言耸听。然而事实证明，它们实际上被低估了。完全接种者的免疫力表现甚至比最“悲观”的数据建模者所预期的还要差。
+对此，有媒体评论，将完全接种中共病毒疫苗后导致死亡的病例标记为死于中共病毒的行为是让人绝望和偏离事实的，因为疫苗才是导致患者死亡的真正原因。
 
-《每日曝光》报道说：“在德国，完全接种者的免疫系统平均衰退了87.7%，比我们模型所预测的81%还要多6.7%。从肿瘤护理协会(ONS)的奥米炕病例数据可以看出，真正杀死了免疫系统的是第3针疫苗。据估计，对于感染了新冠病毒的人来说，接种了3剂疫苗的人感染奥米炕的概率比未接种者高4.45倍。”
+参考链接：[U.K. government says vaccinated are dying at a rate 286% higher than unvaccinated](https://dreddymd.com/2022/01/14/u-k-government-vaccinated-dying-286-percent-higher-than-unvaccinated/)
 
-根据德国的最新数据，我们现在知道，完全接种者感染奥米炕的可能性比未接种者高812%。未接种者对奥米炕的保护力比接种者要好8倍。《每日曝光》补充说：“接种的疫苗越多，免疫系统退化的速度就越快。看起来未接种者实现了对新冠病毒的亚群免疫力，但完全接种者却因疫苗没能实现此目标。德国的数据证明疫苗护照无法防疫，而且该立即禁止基因疗法和刺突蛋白疫苗。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-事实证明，所谓的“疫苗免疫力”实际上是假的。最好的情况是，它有缺陷。最坏的情况是，它将摧毁免疫系统，使其无法自然抵御任何形式的感染。
+总编：Ivy001 
+编辑：百香果
+校正/发稿：谐趣园
 
-《每日曝光》总结说：“到一月底，（英德）两国每个30岁以上的完全接种者，都将患上疫苗导致的艾滋病。无论（他们）目前剩下多少对抗奥米炕的免疫能力，这些最终都将消失。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-原新闻：[Official government data from Germany suggests covid fully vaccinated people will develop AIDS](https://dreddymd.com/2022/01/08/germany-suggests-covid-fully-vaccinated-people-will-develop-aids/)
 
  
 
