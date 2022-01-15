@@ -2,49 +2,25 @@
 ---
 
 
-## 既爱瑞士表又爱高燕燕的王岐山听高燕燕说话小弟弟就硬
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1863923/)
+## 加拿大魁北克拟向未接种CCP疫苗者征收“健康税”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1864028/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e2b8ee87664c47acd4f7c7](https://gtv.org/video/id=61e2b8ee87664c47acd4f7c7)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.15A.jpeg)网络图片
+魁北克是加拿大人口第二多的省份，目前已经有90% 的人选择了接种疫苗。近日，该省正寻求向未接种疫苗的居民征收健康税，并认为健康税对那些选择接种疫苗的人来说是“公平的”。
 
-**郭文贵先生：**王滨，你知道此人收藏多少表吗？我可以告诉你，有一次喝酒，王滨给我说了句笑话，我说：“王岐山除了爱这个爱那个，高燕燕有啥鼓捣的？都这么大岁数了，能整出啥来呀？什么明星没有啊？”他说：“他爱这一口，他就喜欢他老公走了以后，王岐山就去了，他说‘我暖暖老王的被窝儿去‘，跟高燕燕搞两下。”
+自从CCP病毒疫情爆发以来，未接种疫苗者一直遭受着污名化的待遇。一开始政府及一些主流媒体认为是这些未接种疫苗者在传播病毒，然而实际上疫苗后来被证明根本无法仿制疫情的扩散和爆发。后来许多反对强制接种CCP病毒疫苗的人士被直接一杆子打死，贴上了“反疫苗者”的标签。
 
-他说：“他就喜欢高燕燕，高燕燕一说话，他小弟弟就硬了，就像老王喜欢表一样。什么样的表，你往这儿一搁，王岐山就知道这个表什么价钱，值多少钱。”他说：“我基本上是这个（注：伸出一个手掌五指）、这个（注：手掌翻面又是五指），给他弄准一个。”后来我说啥意思？就是一百，两个五十，一百个表里边，百里选一能给王岐山。
+而现在，未接种CCP病毒疫苗者似乎又被各地官府认为是容易出现重症的人群，因此是这些人造成了医院的极大负担。然而实际情况并非如此，例如在澳大利亚，如果你每天都持续关注因CCP病毒感染而死亡的数字，你会发现大部分不幸离世者都有接种过CCP病毒疫苗。
 
-他说：“现在难了，瑞士造表的每次出那个限量版，限量版老王都不要了，他要特制版。”我告诉你，一个江诗丹顿的特制版可以定到5000万到1亿美元，粉金，镶粉钻或镶黑钻，你去试试多少钱？
+与此同时，接种CCP病毒疫苗还可能导致某些正常情况下极为罕见的疾病发生，例如心肌炎、血液疾病甚至脑梗等等。CCP病毒疫苗造成的副作用从某种意义上讲才是真正在为原本已经超负荷运转的医疗系统增加更大的负担。
 
-王岐山在瑞士银行，光周永康，当时周永康就在…….当时石油帮留在瑞士的钱，王岐山亲口说，他说：“这个钱我王岐山再活一千年我都花不完。”他全都给拿走了。那真的都是上万亿的钱，中国老百姓你还想养老呢？你重孙子那辈儿的钱都给你花完了。
+至于某些“砖家”说收税对接种疫苗者来说是“公平的”，则完全缺乏逻辑基础。官方不是口口声声说接种CCP病毒疫苗并非强制是自己个人的选择么？未接种CCP病毒疫苗者对接种者来说有任何亏欠么？打完CCP病毒疫苗以后难道就100%不会住院也不会进ICU了吗？这样的流氓政策必须予以抵制，否则以后任何令统治者不悦的行为恐怕都会“被纳税”了。
 
-水污染了，一万年弄不过来，水污染了；地污染了，一千年弄不过来；所有的树木砍伐掉的，一百年长不回来；所有中国人现在盖的楼，80万亿也好、100万亿美元（也好）的楼，中国人口越来越少，未来拆一百年都拆不完。黄河将变成臭河，长江将变成尿江，昆仑山脉真正变成只有地狱之门、没有磁场的阴阳之门，只会把你的面弄走，不会让你的币哆嗦，喜马拉雅的雪会融化，这就是共产党，你还想养老呢？
+新闻参考链接：
 
-字幕来源： [2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[9 News](https://www.9news.com.au/national/coronavirus-update-quebec-canada-looks-to-introduce-health-tax-for-unvaccinated-residents-professor-nancy-baxter/426d674c-40a4-4bb3-92f0-18134f246c22)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
