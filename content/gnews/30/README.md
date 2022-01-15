@@ -2,67 +2,42 @@
 ---
 
 
-## 杀人执照：中国金融票据的风险
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861619/)
+## 疫情封城、中间商囤货导致国内中药材价格飙升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861805/)
 
-作者: MOS – 柳是多水土透
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理：围剿维尼熊
+编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-2.jpg)图片来源网络
-
-郭先生曾多次提及共党如何用大额长期不兑现的金融票据抢劫银行，掠夺百姓财富。媒体及华尔街似乎正在对此风险开始警惕，以下是近期FT的文章及翻译：
-
-如果你想要一种衡量金融业情绪的晴雨表，不妨看看全球经济中最乏味的融资机制之一：一种有几百年历史的贸易融资产品—银行承兑汇票 。
-
-与用来润滑贸易车轮的其他工具——供应链金融、保理、发票融资、信用证——相比，银行承兑汇票设计得既安全又无聊。它是有保证金的、由银行担保的短期支付承诺，并通过在交易所交易而变得具有流动性。这个市场本应该肯定是稳定的、可预测的 。
-
-多年来，中国的银行和整个中国金融业一直在对银行承兑汇票进行“创新”，使这种原本沉闷的产品蕴含了潜在风险。所有的问题被隐藏在资产负债表以外，投资者在不经意间就可能产生数十亿美金的损失。
-
-最近的例子是瑞士信贷，由于Greensill的“供给端金融创新”，这家历史悠久的著名金融机构正陷入财务和法务危机。而中国的金融机构数年来也一直在进行类似操作，CEIC数据表明，去年中国的承兑汇票市场总计30亿元人民币，是中国一直以来依靠并资助其发展的影子金融的关键部分。
-
-影子金融在近几年快速成长，现在已经超过了其GDP的60%。影子金融的产品有很多种，但是大部分都被设计成规避传统金融管控的工具，使其既能满足地方政府借债需求，又可以避免表内报告及监控 。
-
-其中一个风险是：一家银行可以接受客户的现金抵押付款，并生成表外的担保票据，然后和其它银行做票据交换，这样提升了贷款规模并避免扩表 。
-
-有证据表明，缺乏资金的地方政府用这些产品“印刷钞票”。如今，由于土地财政受北京打压，地方政府有更强的动机重启印钞机 。
-
-传统的承兑汇票安全机制包含时间期限（短期票据一般在数月），抵押担保，和交易监管。现在，时间期限被一再延长，票据反复更新，抵押等级也被降低，破坏了安全保证使欺诈成为可能 。
-
-2017年的一次调查带来了短暂得票据金融收缩，但调查揭示的问题远不止数个虚假交易— 很大一部分贷款被用来购买土产，零售银行推荐给储户的理财产品，资金回流后又进入票据市场 。
-
-19年包商银行资不抵债，造成银行间市场资金不足。但截止至上月底，银行票据需求创历史新高。银行为满足地方政府贷款需求，产生了“没有风险的”0.007%利率。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
+根据《凤凰新闻》1月13日报道，2022年开始，A股中药板块逆势大涨。
 
-相关链接: [https://www.ft.com/content/50042cce-1eff-4526-926c-b8c48fbe3075](https://www.ft.com/content/50042cce-1eff-4526-926c-b8c48fbe3075)
+第一财经记者近日走访了安徽亳州中药材专业市场，以寻找中药股暴涨的答案。
 
-[https://docs.google.com/document/d/1fn2BYWZ2wJ7uE1HvGKh6S\_bW5EczzBc5ZmptEAhtUzY/edit?usp=sharing](https://docs.google.com/document/d/1fn2BYWZ2wJ7uE1HvGKh6S_bW5EczzBc5ZmptEAhtUzY/edit?usp=sharing)
+安徽亳州，是我国四大药都之一，近期中药材交易很火爆，亳州中药材市场二楼的交易大厅早市8:30开市1个小时货都订完了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+交易行情火热，现货市场上中药材价格也呈普涨态势，不同药材之间价格涨幅相差悬殊，超过50种中药材的价格在2021年翻倍，其中生地、旱莲草年涨幅超300%。
 
+2021年，市场大部分中药材品种出现上涨行情。A股市场上，中药板块两个月内涨幅约17%。
 
+据记者不完全统计，2021年12月以来，包括同仁堂、华润三九、九芝堂、太极集团等多家中药企业均发布产品提价通知。
 
+不过药材价格飙涨，并不代表终端需求增加。有当地商家称，因为疫情影响，外地客商过不来，药材运输受限，导致不少预定的药材堆积无法发货。另外产地的农药化肥等农资成本、人工成本都在上涨。也有一部分原因是资本进入、中间商囤货导致。所以部分药材即便提价，也不足以覆盖原材料涨价的成本。
 
+参考链接：[中药股暴涨、中药材价格也涨了！但药商却愁了？记者实地走访找答案](https://ishare.ifeng.com/c/s/v004cI6jxKzJ6dZyasVJaEsTlGpLLGG1iOEzmfkyHOpEr8o__?from=ucms_web)
 
-总编 : Ivy001
+*发布：*tianzhihuan
 
-校对/发稿：Petite abeille
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

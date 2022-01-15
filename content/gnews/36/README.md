@@ -2,28 +2,31 @@
 ---
 
 
-## 无畏中共新打击，唯真不破赢人心
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1861545/)
+## GTV新闻访谈简报|2022年1月14日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1861644/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：香草山翻译部
 
-1月14日，郭文贵先生于GTV、Gettr大直播中透露，因为一直以来奉行唯真不破的做事原则，不但得到中共“灭爆小组”无言的敬佩，也宣告中共卧底妄图诋毁Gclubs的计划失败。并表示，无惧威胁，放马过来。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6432ac6e05566d88fa7b8a83cce19a4a.jpeg)图片来源Gclubs官网
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
 
 
-众所周知，在去年的Gclubs派送式抽奖活动过后，凡是被抽到奖的会员无一例外都收到了属于自己的奖品。反观中共治下的国内，往往只有领导或领导的家人才能“精准”的中奖。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0114text-SC.png)
+校对：Stay文苑
 
-据负责中纪委部门纪委工作的中共女官向郭先生私下透露，在Gclubs抽奖活动中有六位中共卧底，其中有两位成功中奖。所以利用这个机会又是要车、又是要钱，使出浑身解数刁难主办方，但Gclubs出色地完成所有中奖承诺。在无懈可击的兑奖行动之后，中共卧底无奈地把情况如实上报到“灭爆小组”。结果，“灭爆小组”没有一人做出批示，逼迫领导下令从此不要再管Gclubs的事情，也宣告此次卧底计划失败。
+编辑：Stay文苑
 
-除此之外，这位中共女官称赞郭先生好样的，因为他不偷税漏税，不造假合同，不虐待员工，也不骗贷。中共在美国启动针对郭先生的法律超限战，结果虚假起诉人都敢不到美国作证。因为在美国，法庭都相信郭先生说的话。
+发稿：Stay文苑
 
-在称赞之余，也带来了新一轮威胁。中共女官说最近看Gettr发展迅猛，准备对Gettr发起杀手锏的打击行动。
+视频参看：[1.14  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e22302a6dfdd6031548784)
 
-面对极具威胁的新一轮挑衅，郭先生霸气回应，“中共放马过来，我很寂寞。没有一个将军希望马放南山，没有一个革命者不遇到麻烦。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/30B6040C-7739-4E38-9244-67481B07736A.jpeg)
 
-连中共的中纪委都佩服Gclubs不造假，抽奖不作弊，只有一直秉持唯真不破才可赢得人心。爆料革命为灭掉中共的假、骗、黑、偷而生，说真话、走正路才成就了新中国联邦。
-
-据悉，新一轮的Gclubs抽奖活动将在今年的2月14日举行，奖池预算约200万美元，也可能更多。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

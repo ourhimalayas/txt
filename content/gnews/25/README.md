@@ -2,31 +2,35 @@
 ---
 
 
-## 朝鲜十天内三次试射高超音速导弹
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1861667/)
+## 减少对美元的依赖，泛非支付结算系统正式发布
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/N-1.jpg)english.kyodonews.net
-据朝鲜官方媒体周六报道，金正恩试图提高朝鲜的防御能力，于1月14日在一个铁路运载导弹团进行了射击演习。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-朝鲜中央通讯社（Korean Central News Agency）发表这篇报道的前一天，朝鲜疑似发射了两枚短程弹道导弹，这是朝鲜10天内第三次发射导弹。
+整理：入选文家
+编辑：小红帽
 
-朝鲜中央通讯社称，此次演习的目的是“检查该团的警戒姿态”，并“增强其执行火力任务的能力”。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
-朝鲜最近的一系列导弹试验被视为对美国拜登政府的挑衅，拜登政府1月12日对朝鲜实施了新的制裁。朝鲜谴责美国扩大制裁，称加强国防能力是一个主权国家的合法权利。
 
-朝鲜外务省发言人在朝中社发表的一份声明中表示:“如果美国采取这样的对抗姿态，朝鲜将被迫采取更强硬和特定的反应。”
+根据《新华网》1月13日报道，非洲大陆自由贸易区秘书处联合非洲进出口银行等机构13日在加纳首都阿克拉正式发布泛非支付结算系统。
 
-美国和朝鲜之间的直接谈判已经停滞了两年多，拜登政府不太可能在无核化和解除制裁方面做出让步。朝鲜表示，除非华盛顿撤回平壤认为的敌对姿态，否则不愿与美国举行双边谈判，这两个国家将不建立外交关系。
+泛非支付结算系统覆盖非洲大陆，支持非洲国家使用本国货币在非洲大陆进行支付，减少对第三方货币（美元）的依赖。该系统在发布前已在加纳、尼日利亚、冈比亚、利比里亚、几内亚和塞拉利昂六国试用。
 
-1月14日的导弹试射是朝鲜今年继1月11日和1月5日后的第三次高超音速导弹试射。朝中社报道称，周五发射的两枚战术制导导弹“精确击中了”日本海的既定目标。
+加纳副总统马哈茂杜·巴武米亚称该系统将结束非洲国家间跨境支付对第三方货币的依赖。
 
-参考链接：
+非洲自由贸易区秘书处秘书长梅内在发布仪式上说，随着非洲大陆自贸区的实施，非洲国家间跨境交易量增加，对高效支付服务的需求增大。他表示，泛非支付结算系统每年将为非洲大陆节约50亿美元支付成本。
 
-[https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html](https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html)
+参考链接：[泛非支付结算系统正式发布](http://www.news.cn/fortune/2022-01/14/c_1128262430.htm)
 
-**华盛顿DC 银河**
+*发布：*tianzhihuan
 
-**编辑发布 水星**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

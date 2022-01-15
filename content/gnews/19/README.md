@@ -2,28 +2,35 @@
 ---
 
 
-## 扬帆每日速递 2022年1月14日版(2)
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1861788/)
+## 加拿大放弃卡车司机疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861892/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、上海市文化和旅游局14日发布《关于本市暂停跨省团队旅游及“机票+酒店”业务的通知》，要求严格执行跨省旅游经营熔断机制。
+作者：纽约香草山文艺部 – 宁文靜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月12日，加拿大边境服务局CBSA表示，将允许未接种疫苗的加拿大卡车司机从美国入境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-19-scaled.jpg)
+CBSA的发言人称，抵达美加边境的未接种疫苗或部分接种疫苗的加拿大卡车司机，将继续免于全过程测试和检疫要求。但美国卡车司机仍然需要疫苗证明，否则将从1月15日起在边境被拒绝入境。此前加拿大特鲁多政府一直面临主要反对党和卡车司机游说团体的压力，他们要求放弃将于15日生效的卡车司机接种疫苗的指令，警告该指令 可能导致司机短缺，扰乱贸易并推高通货膨胀。
 
-2、香港1月14日晚间新闻：港共政府禁令下午六时后禁堂吃，禁止令𨒂长至年初三，接种率达90%后才会逐步解禁，司马昭之心 路人皆知。全港327宗感染其中295宗为输人个案，全面禁止欧美等国的航班及货物来港，是为了防止病毒还是闭关销港？
+消息人士称，特鲁多政府作出了单边让步。幸运的是，13日美最高法院已作出裁决，取消了私营企业的疫苗强制令，其中就包括美国卡车司机。目前看，不会有美国实施对等原则的担忧了。
 
-3、狗狗币（Dogecoin）在埃隆马斯克在推特上宣布数字货币现在可以用来购买特斯拉的商品后飙升20%。
+参考链接：
 
-4、与中共勾兑颇深的贝莱德已成为首家管理资产规模达到10万亿美元里程碑的资产管理公司，巩固了其在整个行业中的领先地位。
+- [Canada drops vaccine mandate for its truckers after pressure from industry](https://www.reuters.com/world/americas/canadian-truckers-stay-exempt-covid-19-vaccine-requirements-2022-01-13/)
 
-5、据文贵大直播：中美政治生态背景对比，美国法律大于一切，白宫也是执法机关。而在中共国，行政命令大于法律，人治大于法治。
 
-6、文贵大直播：美国高院对疫苗强制令的判决核心意义在于，白宫是行政执法机关，高法一旦做出这个决定，它是不可逆转的给所有的药厂所有的疫苗和机构提出了一个美国问题，所有的科学家所有的证据一切要重新来。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-14海报2_page-0001.jpg)
-素材提供战友：从来多难不兴邦、Revelation熙攘、Kannie文勤、文敏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-编辑：文敏
+总编：Ivy001
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-发布：风起云间（文敏）
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,47 +2,37 @@
 ---
 
 
-## 欧洲议会主席David Sassoli突然死亡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861742/)
+## 耐克开始解雇未接种疫苗的员工
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861887/)
 
-作者: MOS- 柳是多水土透
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-7.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
 
+据悉，总部位于俄勒冈州的另一家运动品牌Columbia计划下个月解雇未接种新冠疫苗的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-3.jpg)图片来源网络
+参考链接：
 
-65岁的欧洲议会主席David Sassoli被宣告死亡，之前在12月26日，他由于“免疫系统失常”被送入家乡意大利的一家医院。他的发言人说，Sassoli与周二早间1点15分离世。 这位意大利政治家在2019年选举后上任，并原计划于下周卸任。他生前曾多次要求，并成功地在预算案中增加款项，以成立欧盟检查官办公室和推进疫苗接种 。Sassoli于1956年出生，他在广播机构RAI任记者至1992年，并于2009年加入左翼的民主党。同年的选举后，他进入欧洲议会开始从政之路。
-
-
-
-相关链接:[https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans\_fr\_61dd232de4b04b42ab842713](https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans_fr_61dd232de4b04b42ab842713)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+- [Nike is preparing to fire some unvaccinated staff at its corporate headquarters, reports say](https://www.businessinsider.com/nike-prepares-fire-unvaccinated-employees-covid-19-oregon-2022-1?amp)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编 : Irene木木
-
-校对/发稿：Petite abeille
+总编：童谣
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

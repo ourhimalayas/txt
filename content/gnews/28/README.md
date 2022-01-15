@@ -2,19 +2,61 @@
 ---
 
 
-## Omicron就是生化武器 mRNA就是病毒 却没有一家疫苗公司告诉你真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1861625/)
+## 2022年1月14日，郭文贵先生就取消Cahill Gordon &amp; Reindel代理律师资格提起的动议获批（动议序号#021）
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1861825/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+秘密翻译组-北美组
 
-1月7日，郭文贵先生在GTV大直播指出：
+NYSCEF Doc. No. 1099
 
-Omicron非常易感染,是因为注射中共病毒疫苗的人数巨多,而所有疫苗的成份都是大量的mRNA,即刺突蛋白。刺突蛋白就是病毒,就是生化武器。刺突蛋白的脱落会乘虚而入、防不胜防地向周围传播开去,使人稍不小心就中招。辉瑞等制药公司隐瞒真相,决不敢承担责任和后果。是爆料革命早就把这真相告诉了世界。
+纽约州纽约县最高法院
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+审理法官：BARRY R. OSTRAGER阁下
+
+———————————————X
+
+太平联盟亚洲成长基金有限合伙
+
+原告，
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+诉
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+KWOK HO WAN，又名Kwok Ho，又名GWO WEN GUI，
+
+又名郭文贵，又名WAN GUE HAOYUN，又名
+
+Miles Kwok，又名郭浩云，GENEVER HOLDINGS LLC，及
+
+GENEVER HOLDINGS CORPORATION,
+
+被告
+
+———————————————-X
+
+**法庭判决+关于动议的法庭命令**
+
+BARRY R. OSTRAGER阁下
+
+本法庭，于2022年1月14日，通过Microsoft Teams视频工具，聆听了关于以下动议的法庭辩论，动议按序号排列如下：021（被告郭浩云关于取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）、022（非本案当事人Lamb Capital LLC撤销原告传票之动议）及024（GTV Media Group Inc.决定介入本案并取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）。
+
+根据法庭记录在案的程序，被告郭浩云就取消Cahill Gordon & Reindel代理律师资格提起的动议获批（动议序号021）。非本案当事人Lamb Capital LLC撤销传票动议（序号022）被全部驳回。GTV Media Group Inc.仅为取消Cahill Gordon & Reindel代理律师资格而介入本案的动议（序号024）获批。
+
+日期：2022年1月14日
+
+————————————
+
+BARRY R. OSTRAGER
+
+最高法院法官
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-10.14.59-PM.jpeg)
+中文翻译仅供参考，内容以英文原文为准
+
+[652077\_2017\_Pacific\_Alliance\_Asia\_v\_Pacific\_Alliance\_Asia\_\_DECISION\_\_\_ORDER\_ON\_1099 (1)](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

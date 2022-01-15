@@ -2,38 +2,42 @@
 ---
 
 
-## 中国泛海转让民生银行超2亿股股权给厦门国际银行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861782/)
+## 美参议员要求对中共病毒进行溯源 否则进一步制裁中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861890/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月11日，美国16位共和党参议员起草法案，要求追究中共在疫情中的责任。法案名为《病毒来源验证、调查和确认法案》，起草人包括肯尼迪、卢比奥、玛莎·布莱克本等知名参议员。
 
-整理：JH
-编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-15.jpg)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+法案内容为授权美国总统进一步对中共实施制裁，除非中共能在该法案在颁布90天之内，允许涉及蝙蝠冠状病毒实验的武汉实验室被全面调查。而这些制裁将针对中共中国科学院和其附属研究所的领导层，以及参与隐瞒疫情爆发的中共官员。
+
+同时该法案还将暂停所有在学术领域的美国联邦资助，被投入涉及中共中国科学院的研究，以及任何在美国个人或实体与中共人员从事的功能增强实验。
+
+相关议员还表示：“该法案将让美国用实力去追求真相，只有这样中共才能听懂我们的话， 两年来中共阻止了所有病毒起源调查的努力，这导致了全世界无数人死亡和遭受不必要的痛苦。中共只会回应来自美国和国际社会的一致压力，这个法案将迫使中共坐到谈判桌前。”
+
+参考链接：
+
+- [Kennedy, Rubio introduce bill to hold China accountable for obstructing COVID investigation](https://www.kennedy.senate.gov/public/press-releases?id=7BD7C2E5-B606-4775-9EE3-36DFD976CD34)
+- [China is still gaslighting the world about the origin of the coronavirus and the Communist Party’s role in covering it up](https://twitter.com/SenJohnKennedy/status/1480978602674032641?s=20)
+- [Senator Rubio led GOP colleagues in introducing the COVID Act of 2022, a bill to sanction #Beijing for failure to allow a credible and comprehensive international investigation into the origins of #COVID19](https://twitter.com/SenRubioPress/status/1480933275376009223?s=20)
+- [https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml](https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml)
 
 
-根据《凤凰网》1月13日报道，近日，民生银行发布主要股东协议转让股份完成过户的公告。2021年12月22日，中国泛海控股集团有限公司（下称“中国泛海”）与厦门国际银行签署《质押证券处置协议》，中国泛海将其持有的该行2.16亿股A股股份转让给厦门国际银行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-厦门国际银行曾是中国第一家中外合资银行，于2013年从中外合资银行改制为中资商业银行，目前也是福建省规模最大的城商行。完成过户后，中国泛海及其关联方持有民生银行股份数量由6.33%降至5.83%
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-这是自2018年以来中国泛海首次减持民生银行股份，若减去此次转让的质押股份，中国泛海仍有18亿股遭质押。
-
-民生银行自身的经营状况也并不乐观。根据该行三季度报，2021年1-9月，该行分别实现营业收入和归属股东的净利润1306.35亿元、354.87亿元，同比减少8.85%、4.93%，是去年前三季度为数不多的营收利润实现“双降”的上市银行。截至1月11日，民生银行收盘价为3.99元/股，市净率0.36在上市银行中垫底。
-
-除去业绩上开倒车，民生银行的违规问题更值得关注。据《创业圈》人物财经记者不完全统计，2021年民生银行累计被银保监会处罚36次，其中，2021年7月16日，该行因31项违规行为被银保监会处罚1.16亿元，创下单笔罚款最高记录。
-
-参考链接：[中国泛海转让民生银行超2亿股股权，上市银行股权变动频繁](https://finance.ifeng.com/c/8ClZb1MpT5a)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
