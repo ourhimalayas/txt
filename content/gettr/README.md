@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 5:01 AM (UTC)`
+
+1/14/2022 Miles Guo: Behind the SCOTUS blocking the vaccine mandate is the New Federal State of China, and it is us who provided the most crucial evidence regarding the mRNA COVID vaccines and the CCP virus. World to follow the US in banning the vaccine mandates, with the noose being put around the neck of the evil forces behind the COVID vaccines<br/><br/>1/14/2022 文贵直播：美最高法院通过禁止疫苗强制令的背后离不开新中国联邦，是我们提供了mRNA疫苗和病毒的最关键证据；世界将跟随美国禁止强制疫苗，疫苗的邪恶势力已套上绞索<br/>
+![img](https://media.gettr.com/group49/getter/2022/01/15/05/00aada67-bfc2-196a-8327-4f59c1a8cc3b/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@miles 1/15/2022 2:29 AM (UTC)`
@@ -151,13 +158,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 
 1/12/2022 Miles Guo: Ray Dalio and Wang Qishan have a very close relationship, and he has inflicted a tremendous amount of harm on the Chinese people. Ray Dalio is bound to be prosecuted in the US courts! The “common prosperity” pushed by the global elites who are in cahoots with the CCP, such as Ray Dalio, is in fact communism!<br/><br/>1/12/2022 文贵直播：雷·达利奥是王岐山的生死兄弟，他对中国人造成了极大的伤害，他必将受到美国的审判！雷·达利奥等全球精英跟中共沆瀣一气在全球推行的“共享财富”就是共产主义！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/01/13/06/def4b976-5a95-c1c9-1e82-754faafe277b/out.jpg)
-
----
-
-`@miles 1/13/2022 4:57 AM (UTC)`
-
-1/12/2022 Miles Guo: What are the six key characteristics that define a cult? The CCP slanders the Whistleblowers’ Movement and the New Federal State of China as a cult by using Isobel Yeung, while in fact the CCP meets all the criteria for a cult - the CCP is indeed a cult! We will keep fighting against Isobel Yeung and HBO/VICE to the end!<br/><br/>1/12/2022 文贵直播：邪教有哪6大特征？中共通过杨贝贝污蔑爆料革命和新中国联邦是邪教，殊不知中共却符合每一条邪教的典型特征 - 中共就是邪教！我们要跟杨贝贝和HBO/VICE干到底！<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/13/04/67750c96-c1cd-4c49-ff54-435f4ab5bc71/out.jpg)
 
 ---
 
