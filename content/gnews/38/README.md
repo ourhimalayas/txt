@@ -2,30 +2,38 @@
 ---
 
 
-## 鉴于中共人权问题 丹麦也加入外交抵制北京冬奥会行列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862136/)
+## 乔·罗根知道有超过15人因疫苗产生严重的副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862261/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1138.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd32kak7w9u5ewj.cloudfront.net%2Fmedia%2Fimage%2F2021%2F12%2Fbee659eb780649f1b010fd9fb76d6aa1.jpg&amp;imgrefurl=https%3A%2F%2Ftheinitium.com%2Farticle%2F20211203-mainland-beijing-winter-olympics%2F&amp;tbnid=dHn16iX45mFDCM&amp;vet=12ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ..i&amp;docid=PZSsRnFoNF7V5M&amp;w=2160&amp;h=1393&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5&amp;ved=2ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ)
-丹麦外交大臣杰普·科弗德星期五(1月14日)说，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京冬奥会。同天早些时候，荷兰也宣布将不派外交代表团出席北京冬奥会。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-“我们丹麦这方对中共国人权状况非常关切，这不是什么秘密，”科弗德说。“政府已决定我们将不出席在中共国的冬奥会。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Joe.png)图片来源：BBC
 
-在丹麦做出这项决定之前，欧盟国家本星期在法国布雷斯特举行的会议上未能就这一立场达成共识。
 
-荷兰外交部发言人星期五早些时候表示，由于中共病毒（新冠病毒Covid-19）疫情的限制措施，荷兰将不派官方代表团出席北京冬奥会。
+**整理报道：小鱼儿
+编辑：Candy**
 
-荷兰外交部发言人弗里茨·肯普曼对路透社说：“由于中共国执行的中共病毒措施，与东道国进行双边接触，并且以有意义的方式讨论荷兰极为关切的东道国人权状况的机会只会是有限的。”
+据《新闻战争》(Infowars)1月13日报道，美国人气主播乔·罗根(Joe Rogan)告诉喜剧演员蒂姆·狄龙 (Tim Dillon)，“我认识不少人，现在我知道有超过15个人有疫苗的严重副作用。比如：月经问题、中风、神经系统疾病、慢性疲劳。”当被要求描述他所指的神经系统疾病时，罗根回答说：“就像你的整个身体在颤抖……而你对此却无能为力。”
 
-美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其他侵犯人权的行为，美国不派外交或官方代表团出席北京冬奥会。
+罗根说：“问题是，当你在这个国家为数以亿计的人接种疫苗时，使用任何药物都会有不良的副作用。而且他们不知道的真的[很多]，因为向疫苗不良事件报告系统(VAERS)的报告非常少，而且很难看出它是否100%准确。”
 
-澳大利亚、英国、加拿大和日本加入了外交抵制行列。运动员不受外交抵制影响。
+社交媒体公司禁止或审查那些传播真相的人。主播继续指出，“抖音(TikTok)上有个孩子得了心肌炎，他是个高中生，像个运动员。他在医院里，视频得到了数百万次的播放。他们把它从抖音上删除了，因为它不符合叙述的内容。就像那……那太糟糕了。”
 
-消息来源：[丹麦与荷兰宣布不派外交代表团出席北京冬奥会](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
+“我有一个朋友，他的一个好朋友的女儿得了这个病。她当时14岁，刚刚突然出现了呼吸衰竭。他们把她送进了重症监护室，她被搞得一团糟。”罗根提交了一份补充证词。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+主播罗根强调，“而你所谈论的这些(医药)公司，在历史上一直为了盈利而谎报不良副作用。他们在维欧克斯(Vioxx)上做过这种事，他们在其他一些药物上也是这样做的。在过去，辉瑞公司像是被罚款最多的公司之一。”
+
+参考新闻：[Rogan: ‘I Know Over 15 People That Have Had Serious Side Effects from the Vaccine’](https://www.infowars.com/posts/rogan-i-know-over-15-people-that-have-had-serious-side-effects-from-the-vaccine/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

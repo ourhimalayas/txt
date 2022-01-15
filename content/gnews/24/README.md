@@ -2,44 +2,41 @@
 ---
 
 
-## 河南一检验中心负责人涉嫌传播新冠病毒， 被警方立案侦查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862520/)
+## 中共公安部原副部长孙力军涉三重罪被提起公诉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862647/)
 
-作者：首尔天池农场 祥瑞舟
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+整理：Mohegayer K. Simon
+编辑：小红帽
 
-
-
-![](https://n.sinaimg.cn/news/crawl/59/w550h309/20220112/d515-51c156663160608557d5458513c36aaa.jpg)（图片来自新浪网）
-
-据中共新浪新闻报道，1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
-
-许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。 另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
 
 
+1月13日下午，最高人民检察院通报：公安部原党委委员、副部长孙力军涉嫌受贿、操纵证券市场、非法持有枪支案，由国家监察委员会、吉林省长春市公安局分别调查、侦查终结，经最高人民检察院指定，由吉林省长春市人民检察院审查起诉。近日，长春市人民检察院已向长春市中级人民法院提起公诉。
 
-参考链接：
+检察机关起诉指控：
 
-[https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
+1. 孙力军利用担任上海市卫生局外事处副处长，上海市人民政府外事办公室综合业务处处长，公安部办公厅副主任、国内安全保卫局局长、公安部党委委员、副部长等职务上的便利以及职权、地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；
+2. 操纵证券市场，情节特别严重。2015年7月9日股灾，不少分析认为，是中共内部的贪腐利益集团对习近平发动的一场惊天的“金融政变”，或称经济政变，孙力军牵涉其中。
+3. 违反枪支管理规定，非法持有枪支，情节严重。他在自己家里，储备了很多枪支。据知情人说就像个小军火库一样，随时可以装备一个排的兵力。
 
-编辑/校对/发稿：有莫举名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+去年9月孙力军曾被通报“政治野心极度膨胀”、“成伙作势控制要害部门”、“严重危害政治安全”。外界一些观察人士认为形同指孙力军涉及政变。
 
-**更多资讯，更多关注**
+新闻来源：
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+1. [公安部原党委委员、副部长孙力军被公诉(新浪)](https://news.sina.com.cn/o/2022-01-13/doc-ikyamrmz4980331.shtml)
+2. [【内幕】孙力军涉金融政变 家藏军火库 (大纪元)](https://www.epochtimes.com/gb/22/1/14/n13505189.htm)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：tianzhihuan
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

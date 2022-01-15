@@ -2,24 +2,38 @@
 ---
 
 
-## 德约科维奇在澳大利亚再次被拘押
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862684/)
+## 美国会要求国际奥委会解释与涉新疆棉中企合作
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862744/)
 
-撰稿：东京樱花团丨待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-19.png)（图片源自本文链接）
-1月15日据时事通信社消息：法新社报道，男子网球运动员诺瓦克-德约科维奇（塞尔维亚人）15日在澳大利亚再次被拘留。
+作者：纽约磐石农场 – 在远方
 
-德约科维奇的签证再次被澳大利亚政府撤销，他正在上诉，以避免在1月17日开始的2022年澳大利亚网球公开赛之前被驱逐出境，并将举行听证会。 根据法庭文件，德约科维奇目前被关押在墨尔本。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅-1.png)
 
-澳大利亚移民部长亚历克斯-霍克声称，德约科维奇在未接种中共病毒（新冠病毒）疫苗的情况下继续留在该国，可能会引起该国“反疫苗情绪加剧”，甚至会成为“增加内乱”的因素。
+台媒报道，当地时间1月12日，针对国际奥委会委托使用新疆棉的中共国企业生产制服，北京冬奥会人员可能因此，穿到涉及强迫劳动的服饰，美国国会中共国问题委员会致函国际奥委会，要求其做出解释。
 
-正在等待联邦法院于1月15日至16日举行的紧急听证会的德约科维奇在墨尔本被移民当局传唤。至于法庭程序，他们已被允许在两名澳大利亚边境部队（ABF）官员的监督下，在貌似辩护小组的办公室进行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/f810b9b0722e0e2d9e7c5f8df708972e.jpg)
 
-信息来源：[**ジョコビッチ、豪で再び拘束（ＡＦＰ＝時事） – Yahoo!ニュース**](https://news.yahoo.co.jp/articles/69c60b438d2226e2afc09ce39faafb1a44a07aa8)
+信函表示，拜登总统于去年12月签署生效的“防止维吾尔人强迫劳动法”，建立“可反驳推定”制度，推定所有来自新疆的货物都涉及强迫劳动，不得进口至美国。信函称，新疆棉已经成为中共当局强迫劳动、系统性压迫代名词。由于安踏、恒源祥公司皆持续使用新疆棉，让人担心国际奥委会人员，或参与2022奥运的人士，可能会穿着“遭强迫劳动污染”的服饰。
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+信函要求国际奥委会主席巴赫，公布恒源祥提供的产地证书副本；以及要求巴赫说明，安踏是否有为自己产品未涉及强迫劳动，提出任何保证。
+
+参考链接：
+
+- [國際奧會與涉新疆棉中企合作 美國會去函要解釋](https://cn.rti.org.tw/news/view/id/2121995)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+总编：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
