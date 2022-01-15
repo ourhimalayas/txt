@@ -2,10 +2,10 @@
 ---
 
 
-## 全球人民的思想意识正在遭受一次协同攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1862794/)
+## 辉瑞疫苗显微镜观测结果
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1862802/)
 
-01/10/2022 mRNA技术创始人马龙博士做客战斗室称全球人民现在遭遇的不仅是一次对身体健康的协同攻击，还是对思想意识的一次协同攻击。对人民实施“群体精神攻击”的不仅仅是中共，还有现在的英国和美国政府。
+韩国科学家通过对辉瑞疫苗进行培养和观察，发现了奇怪的蠕动物。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

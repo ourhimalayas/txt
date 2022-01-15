@@ -2,116 +2,59 @@
 ---
 
 
-## 【Michael.Tonny专栏】CCP不仅把中共国变成大监狱，更在监控全世界！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1863087/)
+## 写给还没加入农场的战友
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1863263/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：纽约香草山福音部 – 决明子
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-中共不仅把中共国变成大监狱，更是在监控全世界！
 
-根据2018年4月27日通过的《[中华人民共和国国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)》第十四条，“中国人民、企业有支持、协助和配合国家情报工作之义务”。每一个中共国的通信公司，都不得不成为CCP监控全世界的工具！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_15-40-33.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_15-41-16.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-网易新闻《[2021年全球监控摄像头数量或将破10亿，中国占一半](https://www.163.com/dy/article/FPFBN1PB0511QE18.html)》报道，2020年全球监控摄像头数量为7.7亿支，中共国就有超过3.5 亿支，而到了2021年后，在全世界10亿支监控摄像头中，有超过50%的镜头将会坐落在中共国，中共国成为全世界监控最密集的的国家。
 
-在中共国，平均每2.7人有一台摄影机时刻可以直接获取每个人的脸部资料，并判别每个人的模样。仅[杭州海康威视数字技术股份有限公司](https://www.hikvision.com/cn/)和[浙江大华技术股份有限公司](https://www.dahuatech.com/)两家杭州公司生产的监控摄像头，就占据了全世界近4成的数量。“雪亮工程”，视频监控覆盖到了乡镇、村的每一个角落。
 
-早在2013年，中共国公司就将美国Aqueti公司转移到了中共国，又帮助Aqueti头两轮募资就拿到了2800万美元。利用Aqueti生产的拥有19个镜头、可以转出1.07亿画素影像的监控像头，可以在摄影机70米范围内进行人脸辨识。
+GTV 2022.01.10的文贵大直播中，“闻疯而动”战友问了七哥一个问题，大概意思是：每次看直播上千万人，为什么加入农场的战友这么少？确实，目前农场战友几万人。七哥说很多人害怕，犹豫，但是最终都会来，没有选择。
 
-随着中共国不断从全世界盗取最先进的AI技术和越来越进步的摄像头技术，中共国对老百姓的监控已经深入到骨髓。
+这让我很有触动。因为我开始也是从旁观者角度看七哥爆料，慢慢开始相信，被共产体制的邪恶震撼，被七哥的勇气感动，也犹豫过，但战友们对正道的坚信，鼓励了我，同时对直播的各种分析，看到七哥灭共的实力和决心，看到七哥背后支持灭共的国内和国际力量，坚信共产党一定灭亡。最后战胜恐惧，勇敢地捐款法治基金，真正地加入了爆料革命。
 
-中共国人时刻生活在恐惧之中！
 
-中共老杂毛早已不满足于把全中共国人变成奴隶，而是要统治世界，把全世界人民都“管起来”！
 
-立陶宛国防部（[MINISTRY OF NATIONAL DEFENCE REPUBLIC OF LITHUANIA](https://kam.lt/en/news_1098/news_archives/news_archive_2021/news_archive_2021_-_09/things_your_smart_phone_does_without_your_awareness_investigation_into_three_china-made_5g_devices.html?backlink=%252Fen%252Fsearch%252Fresults%252Fp0.html)）2021年9月21日消息，立陶宛国防部国家网络安全中心（The National Cyber Security Centre under Ministry of National Defence）对中共国制造商在立陶宛销售的华为P40 5G、小米10T 5G、OnePlus 8T 5G三款5G智能手机进行了网络安全评估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220115_2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/The-devices-examined-in-the-assessment.-Front-and-rear-panel-views.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/nksc-telefonai.jpg)
 
-根据这份《[Assessment of cybersecurity of mobile devices supporting 5G technology sold in Lithuania  ANALYSIS OF PRODUCTS MADE BY Huawei, Xiaomi and OnePlus](https://www.nksc.lt/doc/en/analysis/2021-08-23_5G-CN-analysis_env3.pdf)》评估报告，在小米Mi 10T设备出厂安装的系统应用程序初始化过程中，这些应用程序通过globalapi.ad.xiaomi.com（IP 地址 47.241.69.153）联系新加坡的服务器并下载 JSON文件 MiAdBlacklistConfig固件，并将此文件保存在应用程序的元数据目录中。
+七哥常说的，这个世界是有神的，人是有主人的。看看七哥那无所畏惧的精气神儿，就感觉到信仰的力量了。没有信仰，人面对强大的邪恶时，就是恐惧。勇气真的不是从自己而来，而是从神给人的，是从正义一定战胜邪恶的道而来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/the-data-link-between-the-device-and-the-servers-located-in-Singapore.jpg)
+我自己跟着爆料革命就像爬天梯，因为身边没人支持我，家人会吵架。孤家寡人，遇到事情，没人商量，我就把一切都交托给神，跟随神的道，求神保佑我。有时候觉得累，接下来遇到什么考验都不知道。但是有个声音总是提醒我，必须跟住了爆料革命，这是神救我的梯子，再累也要抓住，爬上去。靠着神给我的指引和勇气，我才能义无反顾。
 
-该文件包含400多个审查术语清单，包括“自由西藏”、“89民主运动”和“台湾独立万岁”等敏感词汇。一旦设备确定内容包含某些敏感关键字，设备就会对该内容进行过滤，用户看不到它。数据分析的原理不仅可以分析字母书写的单词，服务器定期下载的列表还可以由任何语言组成，小米可以随时远程重新启用审查。
+观看七哥直播的上千万战友们，共产党亵神逆天，气数已尽。它的灭亡给中国人带来的巨大灾难，还没真正到来。七哥已经为我们打造好了诺亚方舟，就是农场和G系列。只需要大家鼓起勇气，从心里真正离开那个要沉没的共产魔鬼之船，加入农场和G系列。神在让七哥救我们，但是公正的神也在试炼我们，一开始就全心全意信靠他而登上方舟的人和后面蜂拥而至不得不来避难的人，得到的不一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021-08-23_5G-CN-analysis_env3.jpg)
+战友们，我们必须自己迈出脚步，登上诺亚方舟，才能得救。圣经中，神救以色列人出埃及的时候，摩西嘴再笨，神也是让他和亚伦一起，到法老那里去谈判。神一直在帮助以色列人，但是以色列也是靠自己的脚，一步一步走出埃及的。所以行动起来，这是唯一的中国人的救赎之路。不会再有第二个七哥，不会再有第二个G系列。没有选择，只有早晚。
 
-华为P40 5G手机加载软件则将其用户引导至非官方应用商店。
+这一路神的考验确实有很多，比如九指妖，蛇妖闫等等，但是不要让一些共产党控制的小鬼儿，影响我们的判断，或者美国的一个态度暧昧，就影响信心。所有干扰你的都是假象，爆料革命和国际力量团结起来，除邪灭共的正道是真相。
 
-在小米产品中发现9个涉及个人数据安全的漏洞，在华为产品上发现144个漏洞，其中大部分涉及干扰设备功能，在OnePulse产品上发现1个漏洞，涉及当设备被锁定时，甚至有发送短信的第三国应用程序。
+我们可以多方面去分析。从七哥掌控国内情报的能力，体制内的人心早已跟随爆料革命；从七哥和国际上沼泽地的情报交换，就知道七哥背后灭共的力量有多强大。国际上的资本，只是想在共产党灭亡前，把共产党的口袋掏干净而已，最苦的就是我们这些普通的老百姓。所以农场和G系列，喜联储，是全方位的，在共产党灭亡时唯一拯救中国人的诺亚方舟。从财富上，从海外排华的危机中解救华人，而且这是爆料革命和整个国际力量的合作才能做到。这些我们都可以从七哥的直播中看到。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2021-08-23_5G-CN-analysis_env4.jpg)
+神的大能兴起的时候，就是所向披靡，势不可挡，我们只需跟随。墙内墙外的华人战友们，能随时看到爆料革命，和那些混沌中什么都不知道的同胞比，我们是何等的幸运！请珍惜把握住这个拯救自己和家人的黄金时期。
 
-立陶宛国防部建议本国公民不要购买中共国生产的手机，并建议人们丢弃他们现在可能拥有的任何中共国生产的手机，因为这些手机中都安装了审查功能。
+战友们，还犹豫什么呢？！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Characteristics-of-data-sent-by-Sensors-Data.jpg)
 
-根据[台湾国家通讯委员会](https://www.ncc.gov.tw/chinese/news_detail.aspx?site_content_sn=8&amp;sn_f=47018)1月6日消息，台湾国家通讯传播委员会（National Communications Commision，简称NCC）在获知立陶宛国防部网路安全中心去年9月21日发布小米Mi 10T 5G手机内置程序具有文字审查功能后，为保障公民使用手机的个人隐私安全，于去年10月委托[财团法人电信技术中心](https://www.ttc.org.tw/)（Telecom Technology Center，简称TTC）检测在台销售的小米同款手机，结果发现其内建的个性主题、音乐、套装软件安装程序、手机管家、垃圾清理、下载管理、小米视频等7个应用软件（App）会从globalapi.ad.xiaomi.com服务器下载针对“自由西藏”、“台湾独立”、“美国在台协会”、“香港独立媒体”、“六四事件”、“近平”、“胡锦涛”、“蔡英文”、“李登辉”、“巴哈姆特”、“PTT八卦版”、“自由时报”、“中国国民党”、“民进党”、“亲民党”等政治词汇进行比对的文件包（MiAdBlacklistConfig），该程序包具有切断连网或将相关浏览行为回传功能的担忧。该比对文件包内包含政府、宗教、政治团体、社会运动和政治人物姓名等简体、繁体和英文敏感词汇，总计有2千余个敏感词条。
 
-中共国政府通过通信设备厂商，对外国人的监控已经由来久。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
 
-根据《[Hackers reveal critical vulnerabilities in Huawei routers at Defcon](https://www.computerworld.com/article/2505191/hackers-reveal-critical-vulnerabilities-in-huawei-routers-at-defcon.html)》消息，2012年7月，安全研究人员在Defcon黑客大会上披露了中共国网络和电信设备制造商华为路由器的严重漏洞，在华为AR18和AR29系列路由器的固件中发现了会话劫持、堆溢出和堆栈溢出等漏洞，固件代码中有超过10,000次调用sprintf，这是一个众所周知的不安全函数。
 
-根据2014年7月31日一篇《[Did Xiaomi Really Install Spyware on the Redmi Note?](https://www.lowyat.net/2014/29845/did-xiaomi-really-install-spyware-on-the-redmi-note/)》文章透露，香港论坛IMA Mobile论坛的研究员发现小米红米Note上安装了间谍软件，小米智能手机在系统深处嵌入了一个间谍软件，当用户刷新软件以替换 MIUI 时，它甚至可以ping中国的服务器！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xiaomi-redmi-note-connect-to-china.jpg)
+编辑/校对/发稿：武裝的羔羊
 
-根据2015年9月11日《[Spy software on Chinese phones](https://u.osu.edu/mclc/2015/09/11/spy-software-on-chinese-phones/)》消息，德国的安全公司G-Data发现，包括华为在内的26款中共国制造智能手机，都在固件中被预装间谍软件。在联想、华为和小米等中共国公司的智能手机上发现了可以接听电话、跟踪用户和进行在线购物的恶意软件。除了华为、联想和小米的手机外，G-Data 的研究人员还在 Alps、DJC、SESONN 和Xido 等中共国生产的手机上发现了类似的间谍软件。G-DATA 的安全工程师安迪·海特 (Andy Hayter) 在接受电话采访时说，G-DATA最新发现中国公司在智能手机上增加了越来越多的类似间谍软件。除ConCorde 外，所有手机都是在中共国制造的。
+**更多资讯，更多关注**
 
-2016年10月15日，《[Chinese-authored spyware found on more than 700 million Android phones](https://www.cyberscoop.com/android-malware-china-huawei-zte-kryptowire-blu-products/)》报道说，美国弗吉尼亚州的一个信息安全公司Kryptowire安全研究小组发现，包含一些在美国使用过7 亿部 Android 智能手机上发现了由上海广升（Adups）编写的隐藏间谍软件，通过跟踪用户的移动和通信来实现监控。广升软件将手机短信的全文、联系人名单、通话记录、位置信息，以及其它数据传输到一个中共国的服务器上去。广升解释说，该软件主要是用于监控中共国用户，并非针对美国用户。广升网站显示，广升主要为华为和中兴提供软件。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-15_17-44-47.jpg)
-
-研究人员发现，Adups的固件每72小时向中共国服务器发送一次数据包。这些数据包包含用户的通话记录、短信、联系人列表、GPS 位置和其他数据。
-
-Kryptowire副总裁Tom Karygiannis说，流量被多次加密，正在使用的服务器也是固件检查和更新过程的一部分，即使普通用户能够注意到流量，他/她也无法理解流量的含义。鉴于同一域用于固件更新，用户或互联网提供商极不可能将流量识别为 “个人身份信息” 传输，因为它被伪装为固件更新/检查的一部分过程。
-
-2017年7月，华为松山湖科技产业园手机生产基地内部员工透露，华为每款手机和电脑里面都秘密安装了自带监听软件，客户无法删除，只要你使用了华为手机或华为电脑，无论你身在世界任何地方，你的通电过程，个人资料，手机安装了什么软件，手机上的图片、信息、个人隐私都将呈现在华为公司的内部监控屏上。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8b911185335e4d8fb3d2682d91e6e2a9_th.jpg)
-
-2018年2月FBI、CIA等美国六大情报机构警告美国人不要使用华为和中兴的产品。英国、澳大利亚、加拿大等国也先后开始对华为进行安全调查。
-
-华为网站上曾经宣称，“在全球建设了一千五百多张网络，帮助世界超过三分之一的人口实现联接”。意味着全球三分之一的人，可能落入中共的监控黑网。
-
-怪不得中南坑老杂毛胆敢宣称“东升西降”、“平视美国、俯视欧洲”！
-
-参考资料：
-
-[MINISTRY OF NATIONAL DEFENCE REPUBLIC OF LITHUANIA](https://kam.lt/en/news_1098/news_archives/news_archive_2021/news_archive_2021_-_09/things_your_smart_phone_does_without_your_awareness_investigation_into_three_china-made_5g_devices.html?backlink=%252Fen%252Fsearch%252Fresults%252Fp0.html)
-
-[Assessment of cybersecurity of mobile devices supporting 5G technology sold in Lithuania  ANALYSIS OF PRODUCTS MADE BY Huawei, Xiaomi and OnePlus](https://www.nksc.lt/doc/en/analysis/2021-08-23_5G-CN-analysis_env3.pdf)
-
-[台湾国家通讯委员会](https://www.ncc.gov.tw/chinese/news_detail.aspx?site_content_sn=8&amp;sn_f=47018)
-
-[财团法人电信技术中心](https://www.ttc.org.tw/)
-
-[Hackers reveal critical vulnerabilities in Huawei routers at Defcon](https://www.computerworld.com/article/2505191/hackers-reveal-critical-vulnerabilities-in-huawei-routers-at-defcon.html)
-
-[Did Xiaomi Really Install Spyware on the Redmi Note?](https://www.lowyat.net/2014/29845/did-xiaomi-really-install-spyware-on-the-redmi-note/)
-
-[Spy software on Chinese phones](https://u.osu.edu/mclc/2015/09/11/spy-software-on-chinese-phones/)
-
-[Chinese-authored spyware found on more than 700 million Android phones](https://www.cyberscoop.com/android-malware-china-huawei-zte-kryptowire-blu-products/)
-
-[Chinese tech firm continues to secretly siphon data from Android phones](https://www.cyberscoop.com/android-malware-blu-kryptowire-adups-software/)
-
-[中华人民共和国国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)
-
-[2021年全球监控摄像头数量或将破10亿，中国占一半](https://www.163.com/dy/article/FPFBN1PB0511QE18.html)
-
-[杭州海康威视数字技术股份有限公司](https://www.hikvision.com/cn/)
-
-[浙江大华技术股份有限公司](https://www.dahuatech.com/)
-
-[华为回应手机被安装监听软件：这是恶意诽谤的谣言！](https://www.sohu.com/a/161468987_166680)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

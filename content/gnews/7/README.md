@@ -2,10 +2,10 @@
 ---
 
 
-## 西安：中共非人道隔离政策下，人们不堪压力跳楼
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863296/)
+## 为了从疫苗和专利药物中获利，安全的非专利药物被打压
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863346/)
 
-01/09/2022 西安：中共非人道隔离政策下，人们不堪压力跳楼。封城导致物价飞涨，百姓不堪重负。
+01/09/2022 罗恩‧约翰逊参议员：为了确保大药厂可以从疫苗和专利药物中获利，安全的非专利药物被打压。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

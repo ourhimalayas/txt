@@ -2,55 +2,46 @@
 ---
 
 
-## “我们倒退了”：前卫生专员承认美国人正在对CDC失去信任
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863275/)
+## “病毒操手”打杂客希望对公众隐藏 COVID 序列数据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1863326/)
 
-评论： ***在美国，总统在推行疫苗强制令，便宜又好用的伊维菌素被移除治疗药物名单，大量的疫苗伤害病例在发生，感染人数已令人惊悚的速度在飙升……CDC作为美国联邦政府行政机构，成立的目的是为保护公众健康和安全提供可靠的资料，通过与国家卫生部门及其他组织的有力的伙伴关系，以增进健康的决策，促进公民健康，但它似乎现在正在与这些背道而驰，希望CDC如果不能成为民众健康的保护神，也请不要成为魔鬼的代言人！***
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-2.png)图片来源：childrenshealthdefense.org
+根据美国知情权获得的电子邮件，生态健康联盟（EcoHealth Alliance）主席彼得·打杂客反对公开发布从中共国收集的 COVID-19 相关病毒序列数据，这是美国国际开发署 (USAID PREDICT) 预测计划的一部分。
 
-据《Hannity.com》作者：Hannity员工，2022年1月11日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3468.png)图片来源：网络
-谈到COVID战略时，拜登政府正在按下重置按钮——至少，他们无论如何都会尝试这样做。
+2020 年 4 月下旬的对话，涉及 生态健康联盟的员工，该非营利组织已获得美国纳税人数百万美元的资金来基因操纵冠状病毒，**其中包括与武汉病毒学研究所（武毒所）的科学家，以及总部位于旧金山的生物技术公司Metabiota 。**Metabiota 是一家总部位于旧金山的生物技术公司，由谷歌支持，与 预测计划合作，预测计划是一种追踪未知病毒的“病毒搜寻”程序。
 
-据NBC新闻报道，拜登卫生政策制定者和过渡成员组成的团队正准备对政府的COVID反应采取新的方法，因为他们意识到自己正在失去美国人民的信任。
+Metabiota 的塔米·奥罗克（Tammie O’Rourke）给负责协调中共国和东南亚生态健康项目的李红英（音译Hongying Li）发送了一封电子邮件，**其中附有在中国检测到的病毒序列，该序列已提交给公共基因序列数据库** （GenBank）。然后他们讨论了是否应该将基因序列上传到公共数据库中。
 
-“这种变体（Omicron）的迅速传播给许多美国人的生活造成了自大流行以来从未有过的破坏。人员短缺迫使学校和企业关闭，并导致警察和消防部门因急救人员大量生病而缺勤。由于人员短缺，航空公司取消了数千个航班，公交系统关闭了公共汽车和地铁路线，病例激增再次削弱了邮轮业。”NBC报道。
+李红英想推迟上传病毒序列数据有几个原因，包括“由于 COVID-19，任何相关数据的发布，都需要经过中共机构的审查和批准……”
 
-“拜登当选总统在很大程度上是基于 ‘我有实力，我有能力，我会告诉你真相，我将以我的前任无法做到和拒绝做的方式处理Covid’的信息，但这（Covid）仍然是大多数人的头号问题。” 曾在奥巴马政府中担任卫生与公众服务部部长凯瑟琳·西贝利厄斯说。
+打杂客接着写道：
 
-“[美国人]的生活仍然很混乱，有点凌乱，当他们认为自己可以摆脱困境时，他们又回到了困境中。”她补充道， “我确实认为这涉及到实力和能力，说真话和使用总统可以使用的所有工具。”
+“在这一点上，我们没有将这些序列作为我们向 Genbank 发布的 PREDICT 的一部分，这一点非常重要。正如你可能听说的那样，这些是刚刚被 NIH 终止拨款的一部分。”
 
-“就沟通和对CDC的信任而言，感觉就像我们倒退了。”巴尔的摩前卫生专员Leana Wen说。
+他提到了《政治客》(Politico)上的一篇文章，《川普削减了美国关于蝙蝠与人类病毒传播的研究》并敦促推迟公开分享中共国病毒基因组数据，尽管数据的生成是由美国纳税人资助的。
 
+“将它们作为 PREDICT 的一部分将 [原文如此] 非常不受欢迎地（让人们）关注加州大学戴维斯分校、和PREDICT 项目，以及美国国际开发署，”打杂客写道。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-2.png)
 
-> Unsurprisingly, Biden’s testing shortage, confusing rhetoric, and tolerance-based CDC guidance has failed to “shut down the virus” as promised…
-> 
-> ‘We have gone backwards’: Covid confusion snarls Biden White House ⁦[@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw)⁩ [https://t.co/SxPL73eTZP](https://t.co/SxPL73eTZP)
-> — Chad Gilmartin (@ChadGilmartinCA) [January 11, 2022](https://twitter.com/ChadGilmartinCA/status/1480879668668547073?ref_src=twsrc%5Etfw)
+这些电子邮件，是作为加州公共记录法案，向加州大学戴维斯分校提出的要求的一部分发布的。它们不包含附件，因此，**实际的病毒序列数据不包含在美国知情权收到的信息中。**目前，尚不清楚电子邮件中提到的数据，是否仍被禁止或是否随后在 GenBank 上共享。
 
+**生态健康联盟否认有任何序列被排除在 GenBank 之外**。在回应询问时，打杂客通过电子邮件发送了一篇2020 年 8 月“自然传播”（ Nature Communications ）的文章，文章由生态联盟和武毒所科学家共同撰写的，并写道：
 
+“生态健康联盟在中共国发现的所有与 SARS 相关的冠状病毒序列，均使用 NIH 资助进行了测序，并已在同行评审的科学论文和公开可用的 Genbank 数据库中公开。 600 多个序列的 Genbank 登录号可在附件中找到。21 年 11 月 18 日，另外两个序列被确定，并分别提交给 NIH（Genbank 登录号 OK663614 和 OK663615）。
 
-“不出所料，拜登的检测缺乏，令人困惑的言论以及基于容差的CDC指导未能像承诺的那样”阻断病毒”……
+**评论：现在在美国，撒谎的人，上至政府，医学沙皇福奇，可以冠冕堂皇，而被谎言迷惑的民众却要去证明他们在撒谎！更别说他们的疫苗谎言已经造成了百万人失去生命**。
 
-“我们已经倒退了”：Covid让拜登的白宫陷入混乱
+**新闻来源**：[childrenshealthdefense.org][Virus Hunter Peter Daszak Wanted to Keep COVID Sequencing Data Hidden From Public](https://childrenshealthdefense.org/defender/peter-daszak-covid-sequencing-data-hidden/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=b5be3851-e217-4fa4-afa8-e0ddac5c9bfd)
 
+* * *
 
-```
-@NBCNews“
-```
+***审核：文乐
+校对：信心满满
+发布：Nuevo唐人***
 
-
-原文连接：[**https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/**](https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/)
-
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 
