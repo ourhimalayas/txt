@@ -2,30 +2,26 @@
 ---
 
 
-## 欧盟27国外长讨论中共威胁，共同对抗中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862291/)
+## 纽约市的免疫力被大规模接种疫苗所摧毁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862335/)
 
-![立陶宛与欧盟旗帜](https://gdb.voanews.com/C56BAA56-E3FF-4940-AC0F-891E33C09A19_w1023_r1_s.jpg)立陶宛与欧盟旗帜（资料图）
-据美国之音1月15日报道，欧洲小国立陶宛遭到中共国外交和经济报复一事正在促成欧洲团结一致，共同对抗北京。欧盟27国外交部长们14日开会讨论目前局势。欧盟已经向世贸组织提出了中共国胁迫，并建议世贸推出新的反胁迫工具保护欧盟国家的地缘政治利益。不过，这些努力需要数年的时间才能见效。
+##### 翻译：Julia Gao
+校对：Lish
+剪辑/字幕：蛮吉
+编辑：Mttfly
 
-立陶宛是一个波罗的海小国，人口280万。2021年11月18日，台湾在立陶宛首都以“台湾”名义设立代表处之后，立陶宛与中共国关系迅速恶化，双方均召回了大使，外交关系降级。北京展开了对立陶宛的贸易报复。立陶宛政府表示，中共国采取的报复措施给立陶宛企业造成了巨大的经济损失。立陶宛是否能够顶得住中共国的报复，答案在欧盟是否能够与立陶宛站在一起对抗中共国。实际上，欧洲其它国家的企业都受到了中共国胁迫，不只立陶宛。
+随着纽约市新冠疫苗接种率达到70%，福奇称这使市民们能生活在一个更安全的环境里。但是， 弗朗西斯克里克研究所的大卫·鲍尔博士却有相反的观点。其发现对于接种过两次新冠疫苗的人来说，他们体内的中和抗体数量减少，这些抗体在阻止病毒进入人体细胞发挥首要作用。他用以色列为例，说明纽约市民的免疫能力也随着疫苗继续接种而持续下降。
 
-相比中共国巨无霸的量级，弹丸小国立陶宛像第一个吃螃蟹的勇士。虽然国小力微，但是立陶宛站出来支持台湾对抗中共。欧盟在中共的威胁下已经战战兢兢，但是懦弱并不能软化中共的野心。中共是真正的亡世界之心不死，欧盟只有团结起来共同对抗北京。
+视频链接：[NEW YORK CITY HAD ITS IMMUNITY DESTROYED BY MASS VACCINATION](https://www.bitchute.com/video/BF7yRgty6lUn/)
 
-新闻参考链接：[https://www.voachinese.com/a/europe-seeks-united-front-in-lithuania-s-trade-feud-with-china-20220114/6397400.html](https://www.voachinese.com/a/europe-seeks-united-front-in-lithuania-s-trade-feud-with-china-20220114/6397400.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

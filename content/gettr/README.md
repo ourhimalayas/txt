@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 7:21 AM (UTC)`
+
+1/14/2022 Miles Guo: The number of followers displayed on Joe Rogan’s GETTR profile page used to be the sum of his Twitter followers and GETTR followers, and the number of followers on these two platforms are now being shown separately on the web version of GETTR. The New Federal State of China has been flourishing in the criticisms of the others, and we must defend everyone's right to speak<br/><br/>1/14/2022 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数；新中国联邦在否定中成长，我们要捍卫每个人说话的权利<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/15/07/366150f7-5c6a-a493-1ea4-d0649997c50a/out.jpg)
+
+---
+
+`@miles 1/15/2022 7:15 AM (UTC)`
+
+1/14/2022 Miles Guo: Prior to the Winter Olympics and the 20th Party Congress, the CCP has given YouTube two choices: delete all the accounts that the CCP seeks to censor so that YouTube can enter the Communist Chinese market, otherwise it will be completely blocked. Citizens of the New Federal State of China should be wise and tolerant and adhere to the truth. No need to care about how others think of us<br/><br/>1/14/2022 文贵直播：冬奥会和20大前，中共给了YouTube两个选择：删掉所有敏感账号以进入中共市场，不然将被全面封锁；新中国联邦人要有智慧、有心胸、唯真不破，不必在乎别人的眼光<br/>
+![img](https://media.gettr.com/group20/getter/2022/01/15/07/0a6e9000-3996-4784-e420-16818e4ae29e/out.jpg)
+
+---
+
+`@miles 1/15/2022 7:12 AM (UTC)`
+
+1/14/2022 Miles Guo: The commonality of all cults and dictatorships is that they fabricate lies and heresies, silencing the people and presenting lies as truths. I've always hoped to see those who are following me get ahead of me, and I’m empowered by their success. This matter regarding Joe Rogan is just a misunderstanding, but it shows that a society based on the rule of law requires people to respect the truth.<br/><br/>1/14/2022 文贵直播：所有邪教和独裁的共性是编造谎言邪说，让民众闭嘴并把谎言说成真理；我一直都渴望身后跟随我的人超过我，我也会被他们的成功所鼓舞；Joe Rogan事件只是个误会，这体现出法治社会要求人们尊重事实
+![img](https://media.gettr.com/group21/getter/2022/01/15/07/6b9037b2-e757-8cce-b636-8b0fd6ff98d1/out.jpg)
+
+---
+
 `@miles 1/15/2022 7:07 AM (UTC)`
 
 1/14/2022 Miles Guo: The entire world will certainly stop pushing the COVID vaccination! There is no such a thing as the vaccine against the Omicron! The virus is the CCP’s bioweapon! Symptoms like those caused by the hemorrhagic fever virus are resulted from the COVID vaccines. To prevent from catching the CCP virus, there is no other option except not getting the COVID jabs, wearing a mask, and avoid going out as much as possible<br/><br/>1/14/2022 文贵直播：全世界一定会停止推行疫苗！奥米炕疫苗是无稽之谈！病毒是共匪的生化武器！类似“热毒”的症状是疫苗造成的；要防止感染，除了不打疫苗、戴口罩、尽量不出门，别无选择
@@ -137,27 +158,6 @@ EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicabl
 `@miles 1/13/2022 11:22 PM (UTC)`
 
 【美国🇺🇸】Hcoin To The Moon打榜创历史纪录统计<br/>万分感谢美国的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes：<br/><br/>MV版Hcoin To The Moon【MV总榜】 7 天第一名🥇，13天排名前三名<br/><br/>MV版Hcoin To The Moon【MV摇滚榜】 29 天第一名🥇，上线起连续29天第一名🥇<br/><br/>Hcoin To The Moon【摇滚歌曲榜】 4 天第一名🥇，8天排名前三名<br/><br/>Hcoin To The Moon（卡拉OK版）【嘻哈/说唱歌曲榜】 6 天排名前三名<br/><br/>Billboards公告牌榜:<br/><br/>Hcoin To The Moon （摇滚版）世界数字音乐销售榜连续2周获第一名🥇<br/><br/>https://gnews.org/zh-hans/1855252/
-
----
-
-`@miles 1/13/2022 11:12 PM (UTC)`
-
-1/12/2022 Miles Guo: During the Kazakhstan incident, the CCP was the first to send 1,100 soldiers from the Snow Leopard Commando Unit to Kazakhstan, while no media has reported on that. Why did Russia also send troops to Kazakhstan? Why did Ray Dalio come out at this moment to help the CCP promote “common prosperity”?<br/><br/>1/12/2022 文贵直播：在哈萨克斯坦事件中，中共最早向哈国派了1100名雪豹突击队员，却无媒体报道；俄罗斯为何要出兵哈萨克斯坦？为什么雷·达利奥在这个时候出来帮中共鼓吹共同富裕？
-![img](https://media.gettr.com/group15/getter/2022/01/13/23/c04509d5-4618-e65c-793c-b5705daf0ff2/out.jpg)
-
----
-
-`@miles 1/13/2022 11:08 PM (UTC)`
-
-1/12/2022 Miles Guo: Having taken the dirty money from Alvin Jiang and Bruno Wu, Isobel Yeung is implementing the plan made by the CCP four years ago, with the purposes being eliminating me and the New Federal State of China and associating the Chinese diasporas with QAnon so that they can be labeled as cult members<br/><br/>1/12/2022 文贵直播：杨贝贝拿了江志成和吴征给的脏钱，正在执行着中共4年前制定的计划，其目的是要干掉文贵和新中国联邦，并将把海外华人与Q组织联系在一起从而将其打成邪教分子<br/><br/>
-![img](https://media.gettr.com/group12/getter/2022/01/13/23/ab0dba02-3d9c-644f-1721-40f5171d0c13/out.jpg)
-
----
-
-`@miles 1/13/2022 4:36 PM (UTC)`
-
-塞浦路斯新闻报道：美国间接承认的新中国联邦正全力营救战友<br/>对此爆料革命新中国联邦的创始人郭文贵先生在此前的大直播中说：新中国联邦正全力营救战友！<br/><br/>Cyprus news report: The new federal state of China, indirectly recognized by the U.S, is making every effort to rescue its comrades in arms<br/>For this event, the Founder of the New Federal State of China, Miles Guo said: The new federal state of China is making every effort to rescue its comrades in arms
-![img](https://media.gettr.com/group21/origin/2022/01/13/16/9e7ad5de-b2ba-f888-0647-87af7ca10fe6/out.jpg)
 
 ---
 

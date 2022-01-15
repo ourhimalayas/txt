@@ -2,28 +2,22 @@
 ---
 
 
-## 安徽省粮食集团前任、现任董事长同日被查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1862359/)
+## COVID-19 最新情报｜ICU护士证词：每一个针下亡魂都应被视为谋杀
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1862423/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-21.jpg)安徽省粮食集团前任、现任董事长同日被查 网络图片
-据新京报1月15日报道，安徽省粮食集团有限责任公司党委书记、董事长、总经理周新开和安徽省粮食集团有限责任公司原党委书记、董事长聂军，涉嫌严重违纪违法，目前正在接受纪律审查和监察调查。
+**撰文｜疫情关注组 / 发布时间｜15/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-病毒大流行两年，以及疫苗灾难引发的封城，再加上中共国去年因为人为因素造成的洪水泛滥导致粮食减产，有些地方甚至绝产。新中国联邦从中共国内部得知消息，中共国存量不足，会出现粮荒。安徽省两任粮食集团负责人被调查，再联想中共一向头痛医头，脚痛医脚，哪里有问题才会重视哪里，安徽省粮食很可能出现巨大问题。
+美国北卡罗来纳州威尔明顿新汉诺威县最近就儿童接种疫苗的议题，举行了一场校董会会议，前 ICU 资深注册护士，摩根·华莱士（Morgan Wallace）在会上发表了重要证词，引来在场家长们的掌声。
 
-新闻参考链接：[https://c.m.163.com/news/a/GTO9EDFM0001899O.html?spss=newsapp](https://c.m.163.com/news/a/GTO9EDFM0001899O.html?spss=newsapp)
+华莱士表示，自己因强制疫苗而辞去工作，对于抗击新冠病毒，疫苗根本没有任何用处，反而早期治疗一直行之有效，唯当局始终视而不见。
 
-* * *
+因此，她认为，每个死于新冠病毒的人都应该被视为谋杀。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+以下是证词的完整版（中文译本仅供参考）：
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+来源｜影片资料（如上）
 
  
 

@@ -2,38 +2,37 @@
 ---
 
 
-## 有声|HBO采访视频是中共谋划已久的阴谋
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862081/)
+## 新冠疫苗接种政策让更多美国人走向灾难的深渊
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862093/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在2022年1月12日大直播中**，**，郭文贵先生再次揭露，HBO-VICE、伊萨贝拉·杨等邪恶媒体帮助共产党抹黑、污蔑爆料革命，甚至妄图把全球华人和亚裔人群划归为传播病毒和制造动乱的邪教组织，为全球排华埋下祸根。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-郭先生回顾了4年前第一次接受伊萨贝拉·杨的采访时，他就对中共大外宣的目的做出了精准预判，将其不轨图谋扼杀在摇篮里。
+翻译：George Warshing
+编辑：小红帽/George Warshing
 
-原文链接：[HBO采访视频是中共谋划已久的阴谋](https://gnews.org/zh-hans/1859751/)
-
-音频处理：Daxia
-
-**发稿：**Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
 
+根据《自然新闻》1月12日报道，美国*疾病控制和预防中心（CDC）*的最新数据显示，中共冠状病毒疫苗导致超过100万例不良反应病例和21,000例死亡。
+
+为联邦疫苗不良事件报告系统(VAERS)编制的数据显示，疫苗引起超过3,400孕妇流产，和超过35,000个病人导致了永久残疾。此外，超过110,000人因接种疫苗后出现不良反应而最终住院。
+
+根据*卫生与公众服务部的*说法，VAERS的优势在于它的监测范围可以覆盖全国，但它是一个“被动”的报告系统，所得到的报告是由患者自愿提供的，所以它接收到的报告应该是实际不良事件的很小部分,这意味着实际发病和死亡的人数可能都远多于所报告的数量。
+
+许多医生和科学家认为真实数字要高得多.最近由[*哥伦比亚大学*](https://www.columbia.edu/)研究人员通过研究得出实际数字要比报告数字高20倍的结论。如果少报的因素是正确的，那就意味着实际上已有大约400,000美国人死于中共病毒疫苗。
+
+世界伴随着冠状病毒奥米克戎变种在向前迈进，新毒株似乎发生了巨大变异。某些政府在这种情况下大力推广加强针注射，但进行加强针注射之间的时间间隔似乎越来越短。数据表明，目前的疫苗接种行为并不能提高人们对奥米可戎变种的预防能力。
+
+新闻链接：[Government continues risky push for vaccines despite growing reports of adverse reactions, deaths](https://www.naturalnews.com/2022-01-12-government-continues-push-for-vaccines-despite-deaths.html)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
