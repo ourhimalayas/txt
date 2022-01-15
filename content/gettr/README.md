@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 6:15 PM (UTC)`
+
+1月15号：全人类正在面对着被同类猎杀的这种灾难的局面，疫苗灾难还没有开始……残灯无焰影幢幢，此夕闻君谪九江。 垂死病中惊坐起，暗风吹雨入寒窗。” 《六祖坛经》：“一灯能除千年暗，一智能灭万年愚。”【今天跟哥哥聊天，他从小到大都是一个小粉红，出国10几年，爱党之心从来不曾被改变过。我们的通话内容，你们一定可以想象的到，就差把我气吐血了。😩疫苗已经打了3针了，估计在准备打第四针的路上。共产党把我们推到全世界的对立面，国内我们回不去，国外又排华。我们活成孤岛，还好还有战友。】
+![img](https://media.gettr.com/group40/getter/2022/01/15/18/038efc77-3a9c-f1d2-d57d-f0b2521b549c/3b1d25b18ee3510c2bfa98e3cc9aa58d.jpg)
+
+---
+
 `@miles 1/15/2022 4:24 PM (UTC)`
 
 1月15号：尊敬的战友们好文贵在这里🙏🙏🙏🙏🙏🙏🙏🙏🙏👉衷心地，祈求所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏认真的严肃的防止被感染病毒，做好一切灾难到来的物资的储备，一切都已经开始！
@@ -153,13 +160,6 @@
 
 EP4: The 1st lie of Isobel. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第四集：伊莎贝尔的第一个谎言。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #1stlieofisobel
 ![img](https://media.gettr.com/group10/origin/2022/01/14/03/54238d6e-ef7d-ed82-74d9-35c721e8becd/out.jpg)
-
----
-
-`@miles 1/14/2022 2:16 AM (UTC)`
-
-1/12/2022 Miles Guo: The overseas Chinese media will be held equally accountable as the CCP because they’re not only misleading the people, but also harming the country. The bloody battle before the CCP’s 20th Party Congress has yet started, and Li Zhanshu is not the one we should focus on. How is Xi Jinping inextricably linked to the Pangu Plaza? What are the secrets of Heaven implied in it?<br/><br/>1/12/2022 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行；20大前血雨腥风还未开始，栗战书不是重点；习近平和盘古之间有什么样的微妙联系？这其中暗含着何种天机？
-![img](https://media.gettr.com/group22/getter/2022/01/14/02/0622d80a-939b-f34c-a653-5d37d0f6b7fd/out.jpg)
 
 ---
 

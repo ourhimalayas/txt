@@ -2,29 +2,31 @@
 ---
 
 
-## 纳扎尔巴耶夫的两个女婿已经离开了国企公司的高级职位
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1864556/)
+## 荷兰运动员被警告不要在中共国使用手机和笔记本电脑
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864609/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月15日，据《国际文传电讯社》援引《Samruk-Kazyna国家基金》报道，哈萨克斯坦石油股份公司（KazTransOil）董事会主席迪马什·多萨诺夫（Dimash Dosanov）和哈萨克斯坦天然气股份公司（QazaqGaz）董事会主席凯拉特·沙里普巴耶夫（Kairat Sharipbayev）的权力被终止。
+翻译: wen wu
 
-“根据2022年1月14日QazaqGaz股份公司董事会的决定，沙里普巴耶夫作为QazaqGaz股份公司董事会主席的权力被提前终止了。根据2022年1月14日KazTransOil董事会的决定， 多萨诺夫作为KazTransOil JSC总经理（管理委员会主席）的权力被提前终止。”该声明在周六发表时说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1202.png)图片来源: reuters.com
 
-多萨诺夫是努尔苏丹·纳扎尔巴耶夫小女儿阿利亚的丈夫，而据一些媒体报道，沙里普巴耶夫与哈萨克斯坦前总统的大女儿达里加非官方地结婚。[https://www.interfax.ru/world/815607](https://www.interfax.ru/world/815607)
+据《路透社》2022年1月11日电，荷兰报纸De Volkskrant周二（11日）报道说，荷兰奥委会（NOCNSF）劝说2月份即将参加北京冬奥会的荷兰运动员（和陪同人员）将他们的手机和笔记本电脑留在家里，这是避免中共国间谍活动的一个前所未有的举措。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**更多资讯，更多关注**
+该报援引接近此事的消息人士的话说，对运动员和陪同人员提出的不带任何个人设备到中共国的紧急建议，是荷兰奥委会（NOCNSF）为应对中共国家特工的任何可能干扰而提出的一系列措施的一部分。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+NOCNSF发言人Geert Slot说，网络安全是为中共国之行进行的风险评估的一部分，但拒绝对任何具体措施发表评论。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Geert Slot说：“多年来，网络安全的重要性当然越来越大；但中共已经在该国建立了防火墙，完全封锁了与国际交流的互联网，这成为一个特殊的案例。”
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+消息人士告诉De Volkskrant，荷兰队成员将在中共国配备未使用的设备，以保护他们的个人数据免受中共国的监控；至少有30名荷兰运动员将参加下个月的北京奥运会，主要参与速度和短道速滑项目。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源: [reuters.com][Dutch athletes warned to keep phones and laptops out of China -media](https://www.reuters.com/lifestyle/sports/dutch-athletes-warned-keep-phones-laptops-out-china-media-2022-01-11/)
 
+* * *
+
+*审核：蚂蚁兄弟
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

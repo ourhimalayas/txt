@@ -2,35 +2,29 @@
 ---
 
 
-## 感染过新冠病毒的男子阴茎缩短了1.5英尺
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864599/)
+## 美国军事文件与福奇关于功能增强、Veritas 项目的宣誓证词相矛盾
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864667/)
 
-撰稿：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，一名曾经罹患新冠病毒的男子在康复后，发现自己的阴茎缩短了1.5英尺。此名男子三十多岁，异性恋，来自美国，曾在去年7月感染过新冠病毒，康复出院以后，留下了一系列奇怪的勃起功能障碍。
+翻译: wen wu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1206.png)图片来源 : dailyexpose.uk
 
-这些症状随着治疗得到了一些缓解，但是医生告诉他，由于勃起组织的血管伤害，这种情况可能是永久性的。该名男子沮丧无比.
+据《吹哨人》2022年1月12日电，军事文件指出，生态健康联盟于2018年3月与DARPA接洽，寻求资金对蝙蝠携带的冠状病毒进行功能增强研究；该提案被命名为“化解项目”（Project Defuse），但由于安全问题和违反功能增强研究暂停令的概念，被DARPA拒绝。
 
- 据悉伦敦大学学院一项研究发现，阴茎缩短是长期感染新冠病毒者的常见症状。同时迈阿密大学米勒医学院的一项研究表明，新冠病毒感染导致的广泛内皮细胞功能障碍可能导致严重的勃起障碍。
+真相工程（Project Veritas）获得了令人震惊的从未见过的文件，涉及Covid-19的起源、功能增强研究、Covid19疫苗、被压制的潜在治疗方法（伊维菌素），以及美国政府为掩盖这一切所做的努力；这是一份由美国海军陆战队少校约瑟夫·墨菲（Joseph Murphy，DARPA前研究员）写给国防部监察长的单独报告。
 
-参考链接:[https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html](https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html)
+根据这些文件，NIAID在Fauci博士的指导下，在中国武汉和美国各地的几个地点进行了这项功能增强（生物武器）研究；Fauci博士在宣誓后一再坚称，美国国立卫生研究院（NIH）和NIAID并没有参与生态健康联盟项目的功能增强研究；根据Project Veritas获得的文件，其中概述了生态健康联盟的提案被拒绝的原因，DARPA肯定将该研究归类为功能增强。
 
-总编：Irene木木
-校正/发稿：Daxia
+墨菲少校的报告还详述了，对Covid-19功能增强计划、文件的隐瞒、对潜在治疗药物（如伊维菌素和羟氯喹）的压制，以及mRNA疫苗的极大关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+新闻来源: [dailyexpose.uk][US Military Documents Contradict Fauci’s Sworn Testimony about Gain-Of-Function, Project Veritas](https://dailyexpose.uk/2022/01/12/us-military-documents-contradict-faucis/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
 
-
+*审核：蚂蚁兄弟
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

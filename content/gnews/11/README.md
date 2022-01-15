@@ -2,43 +2,33 @@
 ---
 
 
-## 有声|中共核酸检测是坑害中国百姓
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864530/)
+## 感染过新冠病毒的男子阴茎缩短了1.5英尺
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864599/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，一名曾经罹患新冠病毒的男子在康复后，发现自己的阴茎缩短了1.5英尺。此名男子三十多岁，异性恋，来自美国，曾在去年7月感染过新冠病毒，康复出院以后，留下了一系列奇怪的勃起功能障碍。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-5.jpg)
 
+这些症状随着治疗得到了一些缓解，但是医生告诉他，由于勃起组织的血管伤害，这种情况可能是永久性的。该名男子沮丧无比.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+ 据悉伦敦大学学院一项研究发现，阴茎缩短是长期感染新冠病毒者的常见症状。同时迈阿密大学米勒医学院的一项研究表明，新冠病毒感染导致的广泛内皮细胞功能障碍可能导致严重的勃起障碍。
 
+参考链接:[https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html](https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html)
 
+总编：Irene木木
+校正/发稿：Daxia
 
-每看一次七哥大直播都有更深刻的感受，国内很多所谓的教授对疫苗和病毒是很无知的，中共所做的核酸检测不但不准，它在各地所搞的集中检测就是在坑害老百姓。
-
-中共所谓的检测是真检测吗？可能更像是放毒，更是中共对国内百姓展示淫威，赚取利益的手段。随着奥密克戎的传播，我们可以看到中共极权套路己经开始失效了，接下来会有各种未经程序训练的所谓检测，各种防疫乱象横生，国内百姓的人权灾难将会在各个城市密集发生。中共所谓的防疫模式一直持续至今，并不是因为它有效，而是因为这种模式背后有着各样的利益群体，他们从核酸检测、集中隔离、封城、封村等活动中赚取了金钱和政治资本。
-
-在西安，在郑州，中共动辄集中成千上万的民众，挤在一块，同时做核酸检测。这是怕聚集感染得不够彻底吗？这其实就是文贵先生所说的：这是公共谋杀！
-
-原文链接：[中共核酸检测是坑害中国百姓](https://gnews.org/zh-hans/1862889/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

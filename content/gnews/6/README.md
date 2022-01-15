@@ -2,22 +2,28 @@
 ---
 
 
-## 英情报部门警告议员注意中共统战渗透
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864590/)
+## 丹麦指控来自中共国间谍威胁升高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864639/)
 
 撰稿：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月14日报报道，近日英国对内情报机构军情五处，向国会警示说，一名李姓中共国女子与中共中央统战部有关联，已秘密涉入干预英国政治活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a383d42773b7dde069da90fcc5bcf8d0.jpg)图片源自网络
 
-军情五处警示指出，一位游走在英国政治圈、名叫李贞驹的女性律师，与中共统战部秘密合作。经研判，中共统战部企图借李贞驹与英国跨党派议员建立联系，以秘密干预英国政治，还试图与具有影响力的人物培养关系，以确保英国的政治形式对中共有力。调查结果显示，李贞驹涉入对政党、议员、以及谋求官职人士的资助行为，资金来源包括在香港的非英国籍人士，她曾公开自称代表在英国的中共国人利益。
 
- “对华政策跨国议会联盟”声明说，针对中共代理人已成功与部分议员，以及重要国会团体建立影响深厚的关系，表示深感不安。英国议会下院外交委员会主席图根哈特称，来自北京的挑战显然在增加，英国必须捍卫民主制度，确保此制度不受恶意行为损害。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-参考链接：[https://cn.rti.org.tw/news/view/id/2122096](https://cn.rti.org.tw/news/view/id/2122096)
 
-总编：童谣
+
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-26.jpg)图片源自网络
+
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。 
+
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+参考链接:[https://cn.rti.org.tw/news/view/id/2122065](https://cn.rti.org.tw/news/view/id/2122065)
+
+总编：Irene木木
 校正/发稿：Daxia
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
