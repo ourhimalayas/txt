@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 2:29 AM (UTC)`
+
+1月14号：今天的太平联盟的官司……从开始到今天唯一的一次，我们获得了一次正义的判案……单伟建建的代表律师．Edward Moss．律所Cahill Gordon & Reindel LLP被纽约高院因严重违反律师道德被踢出局，我们因为这个不道德的律师受……提供的虚假证据的多次不公对待……他知法犯法，因此我们的家人被剥夺了拥有18楼公寓的权力……也被剥夺了选择陪审团的权利……他们利用虚假的……所谓我的担保和很多不真实的证据，以及法律的超限战方式．对待我们……所有人都知道太平联盟和中共的关系．和吴争的关系．和．中国海南航空的关系，HNA．此案是在我申请了政治庇护的24小时内发起的．这也是被抓的孙力军，在美国和我通话期间．警告我如果不和中共国合作，他们就会发起太平联盟这个官司和所谓的马瑞强奸案的官司……会毁掉我的声誉等等……因为一些我他们会在美国及全球．拿走一切我家人所拥有的东西……这个所谓的个人担保的责任的案子，此案事关美国司法和中共国之间的司法界的最黑暗的一面，已经引起了全世界的关注，在这个案子上我们都能看到．有太多的利益冲突和共产党的操控手段．在这个不可思议的造假的案子里…这样有名的律师事务所和这个律师严重的违背律师的职业道德，他绝不会是只有一次事情上这么做的……在整个案子上，他都是这么做的，操控此案的中国公安部副部长孙力军在中国已经被抓了，我相信正义离我们也不遥远了。<br/><br/>我们一定会战斗到底…但我们永远——永远要相信．并尊重美国的法律…和美国的法官．和美国的正义……这就是伟大的美国．伟大的之处……我们这个案子并没有结束……我相信最终这个案子一定也会得到美国法律和法官的公正判决，一切都已经开始！
+![img](https://media.gettr.com/group7/getter/2022/01/15/02/73770310-8b7f-dacd-c666-d1d950f044fb/4803633305b73b207d031436e8f648dc.jpg)
+
+---
+
 `@miles 1/15/2022 2:19 AM (UTC)`
 
 1/14/2022 Miles Guo: The SCOTUS blocking the vaccine mandate means that the campaign of stopping the COVID vaccination by law has begun, and the rest of the world will block the vaccine mandates. Only the New Federal State of China can provide the SCOTUS with the evidence to stop the vaccine mandate.<br/><br/>1/14/2022 文贵直播：美最高法院否决疫苗强制令说明以法灭疫已经开始，全世界将陆续否决疫苗强制令；只有新中国联邦能为美最高法院提供停止疫苗强制令的证据<br/><br/>
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1/12/2022 Miles Guo: The CCP is provoking anti-Chinese sentiment around the world. In Japan, a person called a fellow fighter’s name in his car, and another fellow fighter was fired by the restaurant for no reason. The schools in Europe and the US are even discriminating against the Asian students as a whole. Without the efforts of the Whistleblowers’ Movement, the anti-Chinese tragedies will spread like wildfire across the globe!<br/><br/>1/12/2022 文贵直播：中共在全球制造排华，在日本的战友在车上被骂，还有战友被餐厅无故解雇，欧美院校排斥全体亚裔学生；假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/01/13/02/9192324f-db26-c0c0-36c8-6cf7c3a29a9e/out.jpg)
-
----
-
-`@miles 1/13/2022 1:42 AM (UTC)`
-
-1/12/2022 Miles Guo: Why did Isobel Yeung happen to be there to specifically interview the Chinese people on January 6, 2021? Why is it the case that she is executing a conspiracy that has been brewing for years? Fellow fighters’ personal experiences show that discrimination against the Chinese is everywhere, and there will be tens of millions of anti-Chinese incidents in the future!<br/><br/>1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？为什么说她执行的是酝酿多年的阴谋？战友的亲身经历说明对华人的歧视无处不在，未来的排华事件将以千万计！
-![img](https://media.gettr.com/group23/getter/2022/01/13/01/5af1fb86-dd85-80c7-3c9c-0cb77918dc51/out.jpg)
 
 ---
 

@@ -2,91 +2,52 @@
 ---
 
 
-## 全球疫情更新(可疑的心包炎心肌炎官方数据)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861043/)
+## 共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1861173/)
 
-整理/编辑：枳实
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1118.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月14日）
+作者：纽约香草山农场 – 四季
 
-**一，全球疫情基本数据**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-感染总数：320,223,086（日新增2,809,366，14天增幅+136%）
 
-死亡总数：5,520,057（日新增6,897人，14天增幅 +12%）
 
-每万人感染人数：482.8761 人（除中国外）
 
-**二，全球“疫苗”毒针统计数据**
 
-“疫苗”毒针注射总数：93.7亿
+据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
 
-完全“接种”：39.2亿人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Shi-Zhengli-wuhan-lab-getty-640x480-1.jpg)JOHANNES EISELE/AFP via Getty Images
 
-完全“接种”百分比：50.3%
+据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
 
-**三，澳洲疫情和“疫苗”数据**** **
+卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
 
-感染总数：1,536,550（今日新增137,774人）
+如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
 
-死亡总数： 2,578人（今日新增 56人）
+引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
 
-每万人感染人数：441.7122人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
-“疫苗”毒针注射总数：45,423,554 （日新增347,072 针）
+编辑/校对/发稿：小鹿
 
-完全“接种”：19,057,032人
 
-第二针“接种”百分比：77.8%
 
-16岁以上人口接种至少一剂疫苗的比例：95%
+**更多资讯，更多关注**
 
-16岁以上人口接种至少两剂疫苗的比例：92.4%
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**四，澳大利亚每周疫苗副作用报告**
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-昨天TGA发布新年第二期每周疫苗副作用报告，报告中的数据所提供的细节有限，可是仍然能从中看出这些毒针给澳洲人带来的明显伤害。
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-报告给TGA 并且被评估的接种后疫苗死亡的案例已达740例（即本周的死亡案例为14例）
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-疑似心包炎：2085例 （比上次报告增加94例）
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-疑似心肌炎：1048 例（比上次报告增加31例）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
 
-接种疫苗后发生的格林巴利综合征170例（比上次报告增加0例）。
 
-下面转贴了[报告中公布的心肌炎和心包炎的发生率的表格](https://www.tga.gov.au/periodic/covid-19-vaccine-weekly-safety-report-13-01-2022)，尤其要请考虑给孩子打这种疫苗毒针的读者衡量这些TGA提供的数据再做决定。注意笔者有理由相信其中的数据被大大低估了。具体来说，根据其中的数据，每十万人的注射疫苗后发生的心肌炎+心包炎病例不应超过10人。而笔者所在的社区，临近8个小镇总人口不过5万人左右，也就是说心肌炎加上心包炎的病例不应超过5人。然而笔者的孩子的老师就出现了疫苗后的心脏问题，而且当老师谈到这事时，另外一个孩子的家长也提到了孩子的爷爷也出现了心脏问题。而笔者和朋友聊天时说到这个问题时，又经常发现新的注射疫苗后发生心脏病的病例，有些病例甚至在医院住院几天。难道笔者的社区5万人中仅有的5个病例都发生在笔者的圈子中吗？这当然是不可能的，这只能说明实际的病例数远远大于表格中的数据。就在不久前，有朋友在附近的酒吧听说有人在哭诉自己的挚友疫苗注射后心脏骤停去世，准备尸检，还留下了2岁的孩子……
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1119.png)注射辉瑞疫苗后各年龄组心肌炎发生率（来源：TGA）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1120.png)注射莫德纳疫苗后各年龄组心肌炎发生率（来源：TGA)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1121.png)注射辉瑞和莫德纳疫苗后各年龄组心包炎发生率（来源：TGA）
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

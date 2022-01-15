@@ -2,52 +2,43 @@
 ---
 
 
-## 共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1861173/)
+## 股价暴跌后，Zoom会更有吸引力吗？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861302/)
 
-作者：纽约香草山农场 – 四季
+【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-91.png)
 
-
-
-
-
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Shi-Zhengli-wuhan-lab-getty-640x480-1.jpg)JOHANNES EISELE/AFP via Getty Images
-
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
-
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
-
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
-
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
+图片来源：墨尔本雅典娜农场设计组
 
 
+**整理报道：BENJ1
+编 辑：文泓**
 
-**更多资讯，更多关注**
+1月12日，据新浪财经报道，2020年及整个中共病毒疫情大流行期间，Zoom视频通讯是金融市场最受欢迎的股票之一，整个2020年见证了其惊人的加速增长，股价曾升至近600美元。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在2020年，用户和投资者纷纷涌向Zoom。随着全面封锁的实施，人们与朋友和家人、学生上课、企业与客户之间都通过Zoom进行视频交流。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+对于Zoom而言，其2021财年的收入猛增326%至26.5亿美元。营收增长如此迅猛，推升股价大幅上涨，Zoom的市销率（PS）一度高达120倍，成为当时市场上最昂贵的股票之一。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+时至今日，各方投资者似乎再也不想与Zoom扯上关系，至今，其股价较2020年10月的最高点下跌了70%以上。
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**随着疫情封锁的缓解，Zoom的高增长势头减弱，投资者对该股的押注开始降温。**2021年起Zoom股价大幅下跌，也可能是受2021年成长股整体遭到市场抛售现象的推动。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+现在Zoom的股价已跌回新冠疫情前的估值水平。它的市盈率为34倍，低于像耐克这样的消费品公司，尽管它的每股收益以三位数的百分比增长。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+在这样一个巨大的市场中，如果Zoom开始失去一些业务，导致其增长开始下滑，投资者可能会重新考虑对该股的看法。
 
+新闻链接：[惨跌 70% 后，Zoom 变得更有吸引力了吗？\_\_](https://cj.sina.com.cn/articles/view/7193370770/1acc2209202000u1me?cre=tianyi&amp;mod=wftop&amp;loc=3&amp;r=0&amp;rfunc=56&amp;tj=cxvertical_wap_wftop&amp;tr=182)
 
+*发布：盘古相聚*
 
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

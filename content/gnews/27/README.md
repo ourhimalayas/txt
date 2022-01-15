@@ -2,35 +2,60 @@
 ---
 
 
-## 中共放话称作为毒药的毒疫苗还应该杀更多人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1861060/)
+## 新文件揭示了早期认为SARS-CoV-2是被设计出来的观点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1861259/)
 
-**【国内新闻短评】**
+编译：七叶之芒
 
-**环球网2022年1月13日报道：英前首相称西方国家疫苗过剩，外交部：囤积浪费疫苗应受道义谴责**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/agvby-7n980.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/01/777.jpg)
-**短评：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-5-4.jpg)
 
-**文章开头三字“据报道”。请问：据谁报道？如何报道？原文原视频可否发出来？“据报道”不过是中共惯用的夺理的强词，是中共一贯断章取义颠倒黑白的乱带节奏而已。当然了，牠们不敢让国内的老百姓看原网址完整的文章和视频，目的是想把老百姓都困在作为猪圈的防火墙内。央视新闻作为中共宣传洗脑混淆视听的最大宣传机器之一，实在令人难忍吐槽**。
+## *以及辩论如何被关闭以保护“科学”*
 
-**原文说到“世卫组织总干事谭德赛近日表示，有超过90个国家尚未实现为40%的人口接种疫苗的目标，超过85%的非洲人口尚未接种一剂疫苗。世卫组织全球卫生筹资大使、英国前首相戈登·布朗也表示，西方有过剩的疫苗却自己屯积，而在最贫穷的国家，疫苗却十分短缺，屯积疫苗在道义上应受谴责。谭德赛与戈登·布朗应该是被中共收买用来谋财害命的走狗了，因为他们在全世界目光的聚焦中一次又一次地表演摇头摆尾的丑态；只是全球的人民早已看破看透，眼里心里也早已是满腔怒火。将来在国际法庭上的审判和牢狱度过余生的煎熬，不知他们们准备好没有。**
+自COVID-19大流行开始以来，NIAID主任Anthony Fauci和NIH主任Francis Collins将病毒从武汉病毒学研究所逃脱的理论斥为阴谋论。
 
-**谭德赛与戈登·布朗对毒疫苗接种的数量陈述都能被中共外交部拿来作为道义谴责的利用工具，以后对未接种疫苗者的诬陷迫害与惩罚看来也在准备之中。无数事实与证据都证明全球病毒爆发率与毒疫苗注射率成指数级正相关增长，这无疑说明了病毒疫苗就是人为强行打入身体的毒药，专门用来谋财害命。毒疫苗接种率越高的国家和地区，病毒爆发率就越高。非洲国家因为低接种率导致病毒爆发率也很低，反而暂时逃过一劫。然而中共却还嫌杀的人不足够多，还想把未接种疫苗的健康人群赶尽杀绝，甚至连本就深受贫穷之苦的非洲都不放过。**
+早在2020年3月，Collins说，关于COVID-19是在实验室中设计的说法是“无稽之谈”。他指出，一项新的研究“通过提供科学证据证明这种新型冠状病毒是自然产生的，驳斥了这种说法”。值得注意的是，该研究的作者之——Kristian Anderson此前曾告诉Fauci，该病毒的一些特征“看起来是经过设计的”。
 
-**我们应该问一句：还记得中共为首的黑暗势力在毒疫苗刚出来时，是如果夸赞吹嘘毒疫苗的预防与治疗作用以欺骗大家注射毒疫苗的吗？现在又是如何有目共睹他们对毒疫苗防护作用的一再打脸与改口？健忘啊，这个世界！任由魔鬼撒旦在人间如此地收割人命！**
+不负众望，在2020年5月，Fauci告诉《国家地理》，这种病毒“不可能是人工或故意操纵的”。不可能。他没有留下任何怀疑的余地：
 
-**声明：文章观点仅代表作者，与GNews 平台无关**
+*“随着时间的推移，关于逐步进化的一切都强烈表明，**[**这种病毒**]**在自然界中进化，然后跳过了物种。”*
 
-**新闻链接**：[https://mq.mbd.baidu.com/r/zEa9bznMc0?f=cp&u=70ed3ba23cacbb05](https://mq.mbd.baidu.com/r/zEa9bznMc0?f=cp&amp;u=70ed3ba23cacbb05)
+今天，国会共和党人公布的电子邮件显示，科学家和研究人员——他们肯定不是阴谋论者——向Fauci和Collins通报了他们认为病毒是人为的。
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+2020年2月1日的电话会议记录于2020年2月2日被转发给Fauci和Collins。以下是共和党人发布的摘录。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_9c6a419f-ceae-489b-adca-53ffc6eefc6f_533x511.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_8f7caf45-e5e4-4282-8065-62f167addf55_462x355.png)
+
+关于2020年2月1日的同一个电话会议，笔记（可能传达了Collins的立场）指出，需要召集专家来支持“自然起源”的理论，否则“阴谋的声音将迅速占据主导地位，对科学和国际和谐造成巨大伤害……”没有人关心是否真的能找到真相。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_52dd42bd-88f1-4434-bce6-32742b45a674_617x482.png)
+
+Andrew Rambaut博士2月2日的另一封电子邮件（Fauci和Collins被抄送至此）称“从（自然）进化的角度来看，这里唯一让我感到不寻常的是Furin裂解位点”。重要的是，他观察到这种插入“导致了一种在人类中极其适合的病毒”。
+
+然后，还有人试图完全关闭辩论。Ron Fouchier博士说，关于病毒起源的辩论会分散注意力，对科学造成伤害。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_d5780998-87cb-4218-abf6-70eb21dfad74_464x157.png)
+
+然后在2020年4月，我们看到Collins再次要求NIH的政府官员“放下”病毒被设计的“极具破坏性的阴谋”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_c4f77502-4d13-4305-9c2f-b8cd6d6042c0_642x648.png)
+
+Fauci不那么担心，他评论说这是一个“闪亮的物体，会随着时间而消失”。(也许他对美国政府向社交媒体公司施加压力，要求关闭人为起源的辩论充满信心）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_12d37b31-548f-4541-8522-206bdf321bca_551x291.png)
+
+当然，Fauci在这方面是错误的。关于该病毒如何产生的争论将永远不会消失–即使Fauci在武汉实验室的朋友已经确保销毁其起源的证据。
+
+**参考资料：**[technofog.substack][New documents reveal early beliefs that SARS-CoV-2 was engineered](https://technofog.substack.com/p/new-documents-reveal-early-beliefs)
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：信心满满*
+*发布：信心*的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 
