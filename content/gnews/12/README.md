@@ -2,24 +2,31 @@
 ---
 
 
-## 【中日财经爆】消息称中美达成协议 中方春节释放石油储备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862110/)
+## 脸书在英国面临赔偿额达32亿美元的集体诉讼官司
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862123/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1136.png)[图片来源](https://ucpnz.co.nz/2022/01/14/%E8%B7%AF%E9%80%8F%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%B0%86%E5%9C%A8%E5%86%9C%E5%8E%86%E6%96%B0%E5%B9%B4%E5%89%8D%E5%90%8E%E9%87%8A%E6%94%BE%E7%9F%B3%E6%B2%B9%E5%82%A8%E5%A4%87/)
-路透社1月14日报道，中共国将在春节前后释放国家战略储备中的原油。这是同美国及其他主要石油消费国协作降低全球油价计划的一部分。
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-中共国在2021年底同意释放数量不定的原油，具体释放规模取决于油价水平。“中共国同意在油价高于每桶85美元时释放较多石油，如果油价保持在75美元水平附近，则释放较小规模的石油，”一位消息人士说，但没有详细说明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E9FECD13-E636-403D-A615-63E9490F06B8.jpeg)（图片来自搜狐）
 
-消息人士称，中共国释放原油库存的时间将是2月1日春节前后。中共国市场将在1月31日至2月6日这段全年最长的假期中休市。
+据《Euro News》1月14日报道，社交媒体巨头脸书（Facebook，现名Meta Platforms）在英国面临赔偿额超过23亿英镑（32亿美元以上）的集体诉讼，它被指控滥用市场支配地位，盗用4400万用户的个人数据。
 
-路透社在2021年11月报导，由于供应紧张推动全球油价升至多年高位，美国政府与其他主要石油消费国进行了商讨，经过一系列磋商后中共国同意释放储备。
+英国金融行为监管局（FCA）高级顾问、竞争法学者利萨·洛夫达尔·戈尔姆森（Liza Lovdahl Gormsen）表示，她是代表在2015年至2019年期间使用过Facebook的英国用户提起这项诉讼的。这起诉讼指控Facebook通过强加不公平的条款和条件，要求用户需交出个人数据才能访问该网络，并以此赚取了数十亿英镑。
 
-消息来源：[独家：中国与美国达成协议 在春节前后释放石油储备–消息](https://cn.reuters.com/article/china-us-oil-reserve-0114-idCNKBS2JO0MC?il=0)
+据悉，律师事务所Quinn Emanuel Urquhart & Sullivan已经就这起索赔案向Facebook发出了律师函。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+戈尔姆森指出，自Facebook创建17年以来，它已成为英国唯一的社交网络。然而Facebook却在其平台内通过Facebook Pixel等机制，收集用户私人信息和数据，从中获取利益。
+
+*参考链接：[Facebook faces $3.2 billion UK class action over market dominance](https://www.euronews.com/2022/01/14/tech-antitrust-facebook)*
+
+* * *
+
+*素材采编：葛大饼*
+
+*编辑： 青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
