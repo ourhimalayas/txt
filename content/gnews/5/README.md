@@ -2,31 +2,46 @@
 ---
 
 
-## 朝鲜十天内三次试射高超音速导弹
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1861667/)
+## 欧洲议会主席David Sassoli突然死亡
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861742/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/N-1.jpg)english.kyodonews.net
-据朝鲜官方媒体周六报道，金正恩试图提高朝鲜的防御能力，于1月14日在一个铁路运载导弹团进行了射击演习。
+作者: MOS- 柳是多水土透
 
-朝鲜中央通讯社（Korean Central News Agency）发表这篇报道的前一天，朝鲜疑似发射了两枚短程弹道导弹，这是朝鲜10天内第三次发射导弹。
 
-朝鲜中央通讯社称，此次演习的目的是“检查该团的警戒姿态”，并“增强其执行火力任务的能力”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
-朝鲜最近的一系列导弹试验被视为对美国拜登政府的挑衅，拜登政府1月12日对朝鲜实施了新的制裁。朝鲜谴责美国扩大制裁，称加强国防能力是一个主权国家的合法权利。
 
-朝鲜外务省发言人在朝中社发表的一份声明中表示:“如果美国采取这样的对抗姿态，朝鲜将被迫采取更强硬和特定的反应。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-3.jpg)图片来源网络
 
-美国和朝鲜之间的直接谈判已经停滞了两年多，拜登政府不太可能在无核化和解除制裁方面做出让步。朝鲜表示，除非华盛顿撤回平壤认为的敌对姿态，否则不愿与美国举行双边谈判，这两个国家将不建立外交关系。
+65岁的欧洲议会主席David Sassoli被宣告死亡，之前在12月26日，他由于“免疫系统失常”被送入家乡意大利的一家医院。他的发言人说，Sassoli与周二早间1点15分离世。 这位意大利政治家在2019年选举后上任，并原计划于下周卸任。他生前曾多次要求，并成功地在预算案中增加款项，以成立欧盟检查官办公室和推进疫苗接种 。Sassoli于1956年出生，他在广播机构RAI任记者至1992年，并于2009年加入左翼的民主党。同年的选举后，他进入欧洲议会开始从政之路。
 
-1月14日的导弹试射是朝鲜今年继1月11日和1月5日后的第三次高超音速导弹试射。朝中社报道称，周五发射的两枚战术制导导弹“精确击中了”日本海的既定目标。
 
-参考链接：
 
-[https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html](https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html)
+相关链接:[https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans\_fr\_61dd232de4b04b42ab842713](https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans_fr_61dd232de4b04b42ab842713)
 
-**华盛顿DC 银河**
 
-**编辑发布 水星**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+
+
+
+总编 : Irene木木
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+
 
  
 

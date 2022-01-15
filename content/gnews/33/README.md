@@ -2,52 +2,37 @@
 ---
 
 
-## 共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1861173/)
+## 2021中共国上市房企74家公司市值缩水明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861416/)
 
-作者：纽约香草山农场 – 四季
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+整理报道：BENJ1
+编辑：文泓
 
-
-
-
-
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Shi-Zhengli-wuhan-lab-getty-640x480-1.jpg)JOHANNES EISELE/AFP via Getty Images
-
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
-
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
-
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
-
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/YSK8_SW653IGOHI@P.png)图片来源：墨尔本雅典娜农场设计组
 
 
+在中共国公布的2021上市房企市值“承压榜”上，平均跌幅为38.62%。其中，超过平均跌幅的房企有45家，占比约61%。
 
-**更多资讯，更多关注**
+其中，市值跌幅超过50%的房企有24家，跌幅超过80%的房企有4家，债务暴雷的中国恒大、中国奥园、新力控股均在其中。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+龙头房企中的龙湖集团、[万科A](https://finance.sina.com.cn/realstock/company/sz000002/nc.shtml)、碧桂园，TOP20房企中的[新城控股](https://finance.sina.com.cn/realstock/company/sh601155/nc.shtml)、旭辉控股集团、[金科股份](https://finance.sina.com.cn/realstock/company/sz000656/nc.shtml)等全年市值跌幅均超过38.62%的平均值。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+与此同时，部分地方国企也出现在承压榜中，比如[天房发展](https://finance.sina.com.cn/realstock/company/sh600322/nc.shtml)、越秀地产、[绿地控股](https://finance.sina.com.cn/realstock/company/sh600606/nc.shtml)、[南山控股](https://finance.sina.com.cn/realstock/company/sz002314/nc.shtml)、深圳控股等，不过跌幅都在平均值左右及以下。其中，南山控股，截至2021年12月31日收盘，南山控股股价报收于3.12元，较2020年末的4.01元（前复权价）下跌22.26%。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+中指研究院指出，当前房地产市场已步入调整通道，上市房企资金回笼压力不减，叠加偿债高峰期的到来，企业资金端继续承压，行业（破产）收购兼并将增加。中共国擀面杖经济将难以为继。
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考新闻：[2021上市房企74家公司市值缩水明显](https://finance.sina.com.cn/stock/relnews/cn/2022-01-14/doc-ikyakumy0245516.shtml)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+发布：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
