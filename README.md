@@ -18,40 +18,40 @@
 ### [最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明](/content/gnews/1/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥金句（二）](/content/gnews/2/README.md)
+### [华中师大毕业生就业报告直指高校就业数据的猫腻](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥金句（二）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [近在咫尺的疫苗灾难（二）](/content/gnews/3/README.md)
+### [近在咫尺的疫苗灾难（二）](/content/gnews/4/README.md)
  ` 纽约香草山MOS03`
 
-### [七哥金句](/content/gnews/4/README.md)
+### [七哥金句](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [高房价带走一切，佳能32年终落幕](/content/gnews/5/README.md)
+### [高房价带走一切，佳能32年终落幕](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [七哥对坚持的理解（三）](/content/gnews/6/README.md)
+### [七哥对坚持的理解（三）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [七哥对坚持的理解（二）](/content/gnews/7/README.md)
+### [七哥对坚持的理解（二）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [澳大利亚一线医护人员揭露医院里的真实状况](/content/gnews/8/README.md)
+### [澳大利亚一线医护人员揭露医院里的真实状况](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [七哥对坚持的理解（一）](/content/gnews/9/README.md)
+### [七哥对坚持的理解（一）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥对歌星的理解](/content/gnews/10/README.md)
+### [七哥对歌星的理解](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [路大脑袋，蛇妖闫还在享受着爆料革命和班农的财产在到处行骗](/content/gnews/11/README.md)
+### [路大脑袋，蛇妖闫还在享受着爆料革命和班农的财产在到处行骗](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [刘亚洲眼里的七哥](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [结束总结](/content/gnews/13/README.md)
+### [刘亚洲眼里的七哥](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
 ### [有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](/content/gnews/14/README.md)
