@@ -2,67 +2,55 @@
 ---
 
 
-## “这种痛苦无以言表”母亲分享了在第二剂辉瑞疫苗5天后
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1863183/)
+## “我们倒退了”：前卫生专员承认美国人正在对CDC失去信任
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863275/)
 
-**她腹中孩子死亡的经历**
+评论： ***在美国，总统在推行疫苗强制令，便宜又好用的伊维菌素被移除治疗药物名单，大量的疫苗伤害病例在发生，感染人数已令人惊悚的速度在飙升……CDC作为美国联邦政府行政机构，成立的目的是为保护公众健康和安全提供可靠的资料，通过与国家卫生部门及其他组织的有力的伙伴关系，以增进健康的决策，促进公民健康，但它似乎现在正在与这些背道而驰，希望CDC如果不能成为民众健康的保护神，也请不要成为魔鬼的代言人！***
 
-作者：艾米丽·曼贾拉西纳（Emily Mangiaracina）
+据《Hannity.com》作者：Hannity员工，2022年1月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3468.png)图片来源：网络
+谈到COVID战略时，拜登政府正在按下重置按钮——至少，他们无论如何都会尝试这样做。
 
-发布日期：2022年1月13日
+据NBC新闻报道，拜登卫生政策制定者和过渡成员组成的团队正准备对政府的COVID反应采取新的方法，因为他们意识到自己正在失去美国人民的信任。
 
-新闻来源：LifeSiteNews
+“这种变体（Omicron）的迅速传播给许多美国人的生活造成了自大流行以来从未有过的破坏。人员短缺迫使学校和企业关闭，并导致警察和消防部门因急救人员大量生病而缺勤。由于人员短缺，航空公司取消了数千个航班，公交系统关闭了公共汽车和地铁路线，病例激增再次削弱了邮轮业。”NBC报道。
 
-翻译：文虓Bobby
+“拜登当选总统在很大程度上是基于 ‘我有实力，我有能力，我会告诉你真相，我将以我的前任无法做到和拒绝做的方式处理Covid’的信息，但这（Covid）仍然是大多数人的头号问题。” 曾在奥巴马政府中担任卫生与公众服务部部长凯瑟琳·西贝利厄斯说。
 
-摘要：
+“[美国人]的生活仍然很混乱，有点凌乱，当他们认为自己可以摆脱困境时，他们又回到了困境中。”她补充道， “我确实认为这涉及到实力和能力，说真话和使用总统可以使用的所有工具。”
 
-婴儿伊莎贝拉的母亲讲述了她的故事，希望其他孕妇在接受COVID疫苗注射前“三思而后行”。
+“就沟通和对CDC的信任而言，感觉就像我们倒退了。”巴尔的摩前卫生专员Leana Wen说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-30.jpg)Stephanie Whitmore（斯蒂芬妮·惠特莫尔）
 
-(LifeSiteNews)——一位澳大利亚母亲本月分享说，在她接受第二剂辉瑞药物注射5天后，她未出生的足月女婴死于脑出血。
 
-斯蒂芬妮·惠特莫尔(Stephanie Whitmore)说，她分享自己的故事是因为她“完全支持”COVID疫苗，但她认为辉瑞疫苗是她女儿伊莎贝拉死亡的原因。
+> Unsurprisingly, Biden’s testing shortage, confusing rhetoric, and tolerance-based CDC guidance has failed to “shut down the virus” as promised…
+> 
+> ‘We have gone backwards’: Covid confusion snarls Biden White House ⁦[@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw)⁩ [https://t.co/SxPL73eTZP](https://t.co/SxPL73eTZP)
+> — Chad Gilmartin (@ChadGilmartinCA) [January 11, 2022](https://twitter.com/ChadGilmartinCA/status/1480879668668547073?ref_src=twsrc%5Etfw)
 
-惠特莫尔在书面中讲述了她如何接受医生的建议，注射了COVID疫苗，以“保护(她的)家人和婴儿的安全”，并于2021年9月13日接受了第一剂辉瑞疫苗。当时，她“没有任何反应”。
 
-2021年10月4日，她接受了第二剂辉瑞疫苗。“我的孩子在整个怀孕过程中都是健康和完美的，”她写道。“她随时都有可能出生，就在我注射第二剂辉瑞疫苗的两天之后。”
 
-惠特莫尔在一段视频中分享了发生的事情，“在她去世的前一周，我进行了孕期36周的预约。她“头向下，所以她准备好（来到这个美丽的世界）了。”
+“不出所料，拜登的检测缺乏，令人困惑的言论以及基于容差的CDC指导未能像承诺的那样”阻断病毒”……
 
-不久之后，惠特莫尔注意到伊莎贝拉已经不动了，就去医院看看是不是出了什么问题。他们首先检查了她的心跳，发现它“跳动良好”，惠特莫尔“感到如释重负”。
+“我们已经倒退了”：Covid让拜登的白宫陷入混乱
 
-但后来他们做了超声波检查，发现伊莎贝拉“脑子里有血栓”。
 
-“一切都发生得太快了，”惠特莫尔说。伊莎贝拉开始出现脑室内出血(IVH)，也就是脑出血，最终，她的心脏停止了跳动。伊莎贝拉还在她母亲体内。
+```
+@NBCNews“
+```
 
-惠特莫尔写道:“生下死产的女儿是我一生中经历的最痛苦的事情之一，我不希望任何人发生这种事。”
 
-她要求进行尸检，尸检结果表明死亡原因“尚未查明”。惠特莫尔问这种死亡的通常原因是什么。“他们说，子痫前期(怀孕期间的高血压)、高血压、血栓形成或遗传疾病——这些症状也很明显。”
+原文连接：[**https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/**](https://hannity.com/media-room/weve-gone-backwards-former-health-commissioner-admits-americans-losing-trust-in-cdc/)
 
-约翰·霍普金斯医学院指出IVH“最常见于早产儿”，“也可能在足月婴儿中出现，尽管这种情况非常罕见。”
+翻译：洛杉矶盘古农场 – 海潮
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-虽然惠特莫尔在她的视频证词中澄清她“并不反对疫苗”，但她写道，“因为医生无法确定原因，我相信是辉瑞公司的疫苗。”我不确定，也永远不会知道，但没有其他解释。”
-
-关于COVID疫苗，惠特莫尔写道:“我已经要求我的朋友们，如果你怀孕了，请三思，有人认为这是正确的事情，我从未想过会发生这种事。”
-
-惠特莫尔还写了一封情真意切的信给她的女儿:“无法用语言描述的痛苦,我现在的感觉,因为我是如此的想念你我的爱人…任何事情的发生都是有原因的,我现在不能理解是什么原因,你不能与我在一起,但我相信上帝,我知道他有他为我们完美的计划。贝拉，我的爱，我答应你，我会永远在你身边，并祈祷……耶稣会照顾你。”
-
-在数千份VAERS报告中，接种疫苗的母亲和接受过COVID疫苗接种的母亲的婴儿出现了出血障碍，其中包括2177例COVID疫苗接种后的死亡记录。其中许多报告包括对患者流鼻血、胃出血导致大便出血、脑出血、瘀伤和口腔出血的描述。
-
-VAERS的一份报告描述了一名5个月大的母乳喂养婴儿死于一种罕见的自身免疫性出血疾病——血栓性血小板减少性紫癜(TTP)，他的母亲在接受COVID疫苗后的第二天出现皮疹。
-
-血凝块也是新冠肺炎疫苗经常出现的副作用。以色列科学家在6月的一篇研究论文中指出，辉瑞的新冠疫苗 将 与血液凝固(血栓)联系在一起。早在2020年12月， 证据 就出现了，mRNA开发的疫苗与危险的血栓有关。
-
-根据疫苗不良事件报告系统(VAERS)，心脏疾病也占报告的相当大的一部分。到目前为止，该数据库显示了8136例 心脏病发作的报告。该系统还显示了3735例 血小板减少症，一种导致血液中血小板含量低并导致血凝块的疾病。
-
-***原文链接******：***
-
-[https://www.lifesitenews.com/news/no-words-can-describe-the-pain-mom-shares-how-5-days-after-second-pfizer-shot-her-baby-died/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/no-words-can-describe-the-pain-mom-shares-how-5-days-after-second-pfizer-shot-her-baby-died/?utm_source=top_news&amp;utm_campaign=usa)
-
-审核校对：Barry Jack
-上传排版：V在途中
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

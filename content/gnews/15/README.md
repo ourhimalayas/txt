@@ -2,130 +2,46 @@
 ---
 
 
-## 共产党是魔 只要它存在 没有人是安全的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863285/)
+## “病毒操手”打杂客希望对公众隐藏 COVID 序列数据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1863326/)
 
-[https://gtv.org/video/id=61e296c187664c47acd4ed1e](https://gtv.org/video/id=61e296c187664c47acd4ed1e)
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-2.png)图片来源：childrenshealthdefense.org
+根据美国知情权获得的电子邮件，生态健康联盟（EcoHealth Alliance）主席彼得·打杂客反对公开发布从中共国收集的 COVID-19 相关病毒序列数据，这是美国国际开发署 (USAID PREDICT) 预测计划的一部分。
 
-**郭文贵
-Miles Guo**
+2020 年 4 月下旬的对话，涉及 生态健康联盟的员工，该非营利组织已获得美国纳税人数百万美元的资金来基因操纵冠状病毒，**其中包括与武汉病毒学研究所（武毒所）的科学家，以及总部位于旧金山的生物技术公司Metabiota 。**Metabiota 是一家总部位于旧金山的生物技术公司，由谷歌支持，与 预测计划合作，预测计划是一种追踪未知病毒的“病毒搜寻”程序。
 
-这个中国真的是从来没有像今天（这样）
-This CCP China really has never been as evil as it is today
+Metabiota 的塔米·奥罗克（Tammie O’Rourke）给负责协调中共国和东南亚生态健康项目的李红英（音译Hongying Li）发送了一封电子邮件，**其中附有在中国检测到的病毒序列，该序列已提交给公共基因序列数据库** （GenBank）。然后他们讨论了是否应该将基因序列上传到公共数据库中。
 
-邪恶到如此之程度
-Its evilness has reached such a level
+李红英想推迟上传病毒序列数据有几个原因，包括“由于 COVID-19，任何相关数据的发布，都需要经过中共机构的审查和批准……”
 
-中国人民（要受）的罪真的还早着呢
-It is still way too early that the Chinese people have to suffer
+打杂客接着写道：
 
-正在重庆和天津发生的事情是丧尽天良
-What’s happening in Chongqing and Tianjin is outrageous and discussing
+“在这一点上，我们没有将这些序列作为我们向 Genbank 发布的 PREDICT 的一部分，这一点非常重要。正如你可能听说的那样，这些是刚刚被 NIH 终止拨款的一部分。”
 
-用什么罪名都是无法来形容的
-There is no way to describe the CCP’s crimes with any existing accusation
+他提到了《政治客》(Politico)上的一篇文章，《川普削减了美国关于蝙蝠与人类病毒传播的研究》并敦促推迟公开分享中共国病毒基因组数据，尽管数据的生成是由美国纳税人资助的。
 
-所以共产党不仅对新疆人大屠杀
-That’s why the CCP massacres people not just the Xinjiang
+“将它们作为 PREDICT 的一部分将 [原文如此] 非常不受欢迎地（让人们）关注加州大学戴维斯分校、和PREDICT 项目，以及美国国际开发署，”打杂客写道。
 
-它对谁都大屠杀
-They massacre people of all kinds
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-2.png)
 
-它不仅要向昆仑山神敬奉，所谓的新疆、西藏、彝族、傣族、水傣这些（民族的）处女处男
-They not only will worship the Kunlun Mountain God with so-called female and male virgins of the Xinjiang, Tibet, Yi, Dai, and ShuiDai minority groups
+这些电子邮件，是作为加州公共记录法案，向加州大学戴维斯分校提出的要求的一部分发布的。它们不包含附件，因此，**实际的病毒序列数据不包含在美国知情权收到的信息中。**目前，尚不清楚电子邮件中提到的数据，是否仍被禁止或是否随后在 GenBank 上共享。
 
-它一样也把汉人也送上去
-but the Han people
+**生态健康联盟否认有任何序列被排除在 GenBank 之外**。在回应询问时，打杂客通过电子邮件发送了一篇2020 年 8 月“自然传播”（ Nature Communications ）的文章，文章由生态联盟和武毒所科学家共同撰写的，并写道：
 
-所以在我们灭共这件事上
-So when it comes to our mission of taking down the CCP
+“生态健康联盟在中共国发现的所有与 SARS 相关的冠状病毒序列，均使用 NIH 资助进行了测序，并已在同行评审的科学论文和公开可用的 Genbank 数据库中公开。 600 多个序列的 Genbank 登录号可在附件中找到。21 年 11 月 18 日，另外两个序列被确定，并分别提交给 NIH（Genbank 登录号 OK663614 和 OK663615）。
 
-哈萨克族也好，什么族也好，我们都是一家人
-whether it’s Kazakhs or any ethnic group, we all are one family
+**评论：现在在美国，撒谎的人，上至政府，医学沙皇福奇，可以冠冕堂皇，而被谎言迷惑的民众却要去证明他们在撒谎！更别说他们的疫苗谎言已经造成了百万人失去生命**。
 
-你不灭共我们什么族都没有
-We’ll not have any ethnic group if we don’t take down the CCP
-
-特别是汉人
-especially the Han Chinese people
-
-不要有什么优越性以为（共产党）只灭新疆人、西藏人哈萨克人不灭我们
-Don’t even think that you would have any superiority so that the Communist Party only wipes out the Xinjiang people, Tibetans, and Kazakhs but not us
-
-我告诉你一点
-I’ll tell you one thing
-
-它是魔你是人的差距跟什么族半毛钱关系都没有
-The difference between they are demons and you are a human has absolutely nothing related to certain ethnic groups
-
-现在美国人意识到了
-Now the Americans have realized that
-
-哇塞，你不是要我停止欧洲东扩呀
-Wow, you weren’t just stopping me for the eastward expansion of Europe
-
-你已经到来我美国搞BLM来了
-You have already come to the United States to engage in the BLM (Black Lives Matter) activities
-
-大家记住哈萨克斯坦的事出来是第一个表达
-Everyone need to be aware that the first one to express after the Kazakh incident
-
-10小时内表态的（领导人）就是习近平
-the leader who expressed his position within 10 hours was Xi Jinping
-
-（习说）这是颜色革命
-（Xi said）it was a color revolution
-
-记住了吧，支持哈萨克斯坦政府的镇压，这是对人民负责的一个决定
-Do you remember that? (Xi said) supporting the repression of the Kazakh government is a decision of responsible for the people
-
-但是（对于）BLM你知道他说啥了？
-However, do you know what he said about the BLM?
-
-（习说）BLM美国人民要有人权、民主呀
-(Xi said), the BLM was the need of human rights and democracy for the American people
-
-而且也是非常之快
-And very quickly
-
-你能想想俄罗斯竟然派出联合部队去了
-you can imagine that Russia sent a joint force
-
-白俄罗斯、吉尔吉斯、阿塞拜疆，夸嚓就去了
-Belarus, Kyrgyzstan, and Azerbaijan had quickly deployed there
-
-中共直接啊
-The CCP was straightforward
-
-将近3000架无人机夸嚓就给准备好了
-Nearly 3,000 UAVs had been prepared at once
-
-第二波就中共无人机就上去了
-In the second wave, the CCP’s UAVs deployed
-
-而且中共的整个北方的所有军队全部给哈萨克斯坦（政府）提供情报，所有的事项全部提供
-Moreover, all the troops of the CCP in the entire Northern Theater had provided intelligence information to the Kazakh government in every matter
+**新闻来源**：[childrenshealthdefense.org][Virus Hunter Peter Daszak Wanted to Keep COVID Sequencing Data Hidden From Public](https://childrenshealthdefense.org/defender/peter-daszak-covid-sequencing-data-hidden/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=b5be3851-e217-4fa4-afa8-e0ddac5c9bfd)
 
 * * *
 
-Date: 01/09/2022
-原视频标题:
-共产党是魔 只要它存在 没有人是安全的
-No One Will be Safe if The Communist Party Exists Because The CCP is The Devil
-原视频日期：2022/01/09
-原视频链接: [**https://gettr.com/post/pneuju2f2a**](https://gettr.com/post/pneuju2f2a)
-任务编号：3460
-视频时间段 : 0:00-02:16
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：信心满满
+发布：Nuevo唐人***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 

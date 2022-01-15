@@ -2,53 +2,126 @@
 ---
 
 
-## 从交通罚款“吸血”看从共产党的吸血统治
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863250/)
+## 共产党是魔 只要它存在 没有人是安全的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1863285/)
 
-【**国内新闻短评**】
+[https://gtv.org/video/id=61e296c187664c47acd4ed1e](https://gtv.org/video/id=61e296c187664c47acd4ed1e)
 
-网易新闻2022年1月13日刊载：曝光了！“吸血”的交通罚款，居然撑起1/3地方财力
-![](https://assets.gnews.org/wp-content/uploads/2022/01/65.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1171.png)
-**短评：**
+**郭文贵
+Miles Guo**
 
-1月13日网易新闻就《办月谈》2021年4月17日的新闻拿出来重谈，其标题是“吸血的交通罚款，居然撑起1/3地方财力”，看起来使用“吸血”二字，颇具批判性，其实不然。现在让我们来追问一下“吸血”的有哪些？
+这个中国真的是从来没有像今天（这样）
+This CCP China really has never been as evil as it is today
 
-交通违章“吸血”是一种常态
+邪恶到如此之程度
+Its evilness has reached such a level
 
-今天网易重提——“北方某县一年的一般公共预算公共收入才1亿多、可当地交通违章罚款竟“创收”了1/3”。交通罚款其实分秒都在发生、天天都在发生。
+中国人民（要受）的罪真的还早着呢
+It is still way too early that the Chinese people have to suffer
 
-2021年4月爆出，广东佛山广台高速43公里处岔道口，62万人被罚1.2已，3分钟27人违章。
+正在重庆和天津发生的事情是丧尽天良
+What’s happening in Chongqing and Tianjin is outrageous and discussing
 
-2020年全国交通罚款排名图片显示，29个省市罚款总额3000亿元左右。按中国现有汽车保有量2.75亿辆计算，平均每辆车罚款高达1090元。
+用什么罪名都是无法来形容的
+There is no way to describe the CCP’s crimes with any existing accusation
 
-这样的交通罚款“吸血”事件不是新闻。在中共治下这是一种常态。只不过这一常态反而被偶尔报道的新闻所掩盖。
+所以共产党不仅对新疆人大屠杀
+That’s why the CCP massacres people not just the Xinjiang
 
-更直接粗暴的“吸血”法是“二大三乱”
+它对谁都大屠杀
+They massacre people of all kinds
 
-最近通报了“河北霸州政府去年9月使用强行摊派非税收入任务，13个乡镇（街道、开发区）在11月的通过运动式执法，罚款收入4729.57万元，是1～9月月均罚没收入的80倍”。80倍是个什么概念！
+它不仅要向昆仑山神敬奉，所谓的新疆、西藏、彝族、傣族、水傣这些（民族的）处女处男
+They not only will worship the Kunlun Mountain God with so-called female and male virgins of the Xinjiang, Tibet, Yi, Dai, and ShuiDai minority groups
 
-在中共“防民之口甚于防川”残酷控制下，交通违章违章罚款“吸血”只是小事，这样利用行政命令，更直接粗暴的，大面积大规模乱收费、乱罚款、乱摊派“二大三乱”这样令人震惊的犯罪式“吸血”法应该比比皆是。
+它一样也把汉人也送上去
+but the Han people
 
-最大的“吸血”者是中国共产党
+所以在我们灭共这件事上
+So when it comes to our mission of taking down the CCP
 
-2021年3月，中共政协委员例举：某县2019年常住人口3.02万，地方财政收入3,661万元，一般公共预算支出8.65亿元，行政事业和社会组织120余个，财政供养人员6,000余人，4人供养1人。
+哈萨克族也好，什么族也好，我们都是一家人
+whether it’s Kazakhs or any ethnic group, we all are one family
 
-香港《动向》报道，中共2014年退休高官年开支逾675亿元。
+你不灭共我们什么族都没有
+We’ll not have any ethnic group if we don’t take down the CCP
 
-因言论被开除的贵州大学杨绍政教授，在《自由亚洲》批判中共占用税款和国资收益“公款养党”，供养所有政党专职党务人员和一些非政党社团工作人员总数约2000万，每年耗损约20万亿元人民币。
+特别是汉人
+especially the Han Chinese people
 
-还有，当下的强制冠状病毒毒疫苗注射和核酸检测，被利益部门掏空的“医保基金”呢？
+不要有什么优越性以为（共产党）只灭新疆人、西藏人哈萨克人不灭我们
+Don’t even think that you would have any superiority so that the Communist Party only wipes out the Xinjiang people, Tibetans, and Kazakhs but not us
 
-吸血的不单是常态的交通“违章”罚款，也不仅仅比比皆是的“二大三乱”，哪些被吸走的血去了哪里？事实上，最大的“吸血”者是中国共产党。
+我告诉你一点
+I’ll tell you one thing
 
-【文章观点仅代表作者，与Gnews平台无关】
+它是魔你是人的差距跟什么族半毛钱关系都没有
+The difference between they are demons and you are a human has absolutely nothing related to certain ethnic groups
 
-新闻链接：[**https://c.m.163.com/news/a/GTHPMV6O0527BV1E.html?spss=newsapp**](https://c.m.163.com/news/a/GTHPMV6O0527BV1E.html?spss=newsapp)
+现在美国人意识到了
+Now the Americans have realized that
 
-素材：洛杉矶盘古农场 — 鲁西西
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯镇恶
-发布：洛杉矶盘古农场 — 恩典
+哇塞，你不是要我停止欧洲东扩呀
+Wow, you weren’t just stopping me for the eastward expansion of Europe
+
+你已经到来我美国搞BLM来了
+You have already come to the United States to engage in the BLM (Black Lives Matter) activities
+
+大家记住哈萨克斯坦的事出来是第一个表达
+Everyone need to be aware that the first one to express after the Kazakh incident
+
+10小时内表态的（领导人）就是习近平
+the leader who expressed his position within 10 hours was Xi Jinping
+
+（习说）这是颜色革命
+（Xi said）it was a color revolution
+
+记住了吧，支持哈萨克斯坦政府的镇压，这是对人民负责的一个决定
+Do you remember that? (Xi said) supporting the repression of the Kazakh government is a decision of responsible for the people
+
+但是（对于）BLM你知道他说啥了？
+However, do you know what he said about the BLM?
+
+（习说）BLM美国人民要有人权、民主呀
+(Xi said), the BLM was the need of human rights and democracy for the American people
+
+而且也是非常之快
+And very quickly
+
+你能想想俄罗斯竟然派出联合部队去了
+you can imagine that Russia sent a joint force
+
+白俄罗斯、吉尔吉斯、阿塞拜疆，夸嚓就去了
+Belarus, Kyrgyzstan, and Azerbaijan had quickly deployed there
+
+中共直接啊
+The CCP was straightforward
+
+将近3000架无人机夸嚓就给准备好了
+Nearly 3,000 UAVs had been prepared at once
+
+第二波就中共无人机就上去了
+In the second wave, the CCP’s UAVs deployed
+
+而且中共的整个北方的所有军队全部给哈萨克斯坦（政府）提供情报，所有的事项全部提供
+Moreover, all the troops of the CCP in the entire Northern Theater had provided intelligence information to the Kazakh government in every matter
+
+* * *
+
+Date: 01/09/2022
+原视频标题:
+共产党是魔 只要它存在 没有人是安全的
+No One Will be Safe if The Communist Party Exists Because The CCP is The Devil
+原视频日期：2022/01/09
+原视频链接: [**https://gettr.com/post/pneuju2f2a**](https://gettr.com/post/pneuju2f2a)
+任务编号：3460
+视频时间段 : 0:00-02:16
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

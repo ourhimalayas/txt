@@ -2,10 +2,10 @@
 ---
 
 
-## 为了从疫苗和专利药物中获利，安全的非专利药物被打压
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863346/)
+## 美疾控中心主任承认疫苗不防病毒传染
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863378/)
 
-01/09/2022 罗恩‧约翰逊参议员：为了确保大药厂可以从疫苗和专利药物中获利，安全的非专利药物被打压。
+01/10/2022 疾控中心主任也承认疫苗不防传染，那么疫苗强制令的基础在哪里？
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
