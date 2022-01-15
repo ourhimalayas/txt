@@ -2,35 +2,34 @@
 ---
 
 
-## 有声|世卫组织承认加强剂不够 煽动研发更毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864052/)
+## 中共国未来两周将禁止所有美国航班入境
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1864149/)
 
-配音：香草山农场 – 纳米
+#### 撰稿：日本东京方舟农场  海星
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FBF860C1-87B8-4123-9E07-86C9D31383FB.jpeg)（图片来源：网络）
+
+据《联合早报》1月15日报道，中（共）国民航局以防止新冠病毒（中共病毒）入侵为由，下令从1月19日开始，持续两周禁止所有来自美国的航班入境。
+
+报道称，根据中共政府的公告以及美国有线电视新闻网（CNN）整理的航班时刻表信息，从 1 月 19 日开始并持续至少两周，从美国飞往中共国的所有航班，或被取消，或因中共国的航空法规而被暂停。
+
+据悉，中共民航局以飞机上部分乘客核酸检测结果呈阳性为由，于1月10日和11日两天连下26道熔断指令，禁止多个美国航班入境。
+
+据统计，今年以来，被中共取消的中美航班已高达70个班次，涉及的航空公司包括国航、厦航、南航、东航、达美航空、联合航空和美国航空等。
+
+*参考链接：*
+
+1. [*美媒：中国未来两周或停飞所有美国赴华航班*](https://www.zaobao.com.sg/realtime/china/story20220115-1233211)
+2. [*为冬奥会清零 北京未来两周可能禁止美国飞华所有航班*](https://www.voachinese.com/a/beijing-cancels-all-flight-from-us-to-china-in-two-week-for-winter-olympics/6397714.html)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-台湾媒体1月12日报道，由世卫组织成立的评估中共病毒疫苗的专家小组11日称，目前使用的中共病毒疫苗都是2020年底开发出来的，在应对新型变异株病毒方面效力不够，通过不断接种加强剂来应对，已经不是“最佳的解决方法”，而且可能已经过时或无法持续太久。但该小组随即公开煽动各大药厂与机构，另外研发新疫苗，称新疫苗除了要能“预防重症及死亡”，还要“具备大幅降低传染的能力”。
+* * *
 
-郭文贵先生早就警告过全世界，中共病毒和疫苗是子母弹，疫苗才是大规模杀人武器。而世卫组织和各国政府，极力隐藏疫苗真相，给世界带来了无穷灾难。
+*素材采编：飞越雀巢、海星*
 
-文字版原文：[世卫组织承认加强剂不够 煽动研发更毒疫苗](https://gnews.org/zh-hans/1853238/)
+*编辑：青衣青青*
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：miumiu*
 
  
 

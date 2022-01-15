@@ -2,49 +2,27 @@
 ---
 
 
-## 既爱瑞士表又爱高燕燕的王岐山听高燕燕说话小弟弟就硬
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1863923/)
+## 澳洲新南威尔士近千名医护人员因拒绝CCP病毒疫苗而离职
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1864038/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e2b8ee87664c47acd4f7c7](https://gtv.org/video/id=61e2b8ee87664c47acd4f7c7)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1223E-scaled.jpg)网络图片
+在澳大利亚的新南威尔士州，有近 1000 名州卫生保健工作者因拒绝接种 COVID-19 疫苗而被停职或辞职。新南威尔士州卫生局证实，在拒绝接种疫苗后，其 170,000 名员工中有 995 人已选择辞职或被迫解雇。
 
-**郭文贵先生：**王滨，你知道此人收藏多少表吗？我可以告诉你，有一次喝酒，王滨给我说了句笑话，我说：“王岐山除了爱这个爱那个，高燕燕有啥鼓捣的？都这么大岁数了，能整出啥来呀？什么明星没有啊？”他说：“他爱这一口，他就喜欢他老公走了以后，王岐山就去了，他说‘我暖暖老王的被窝儿去‘，跟高燕燕搞两下。”
+新南威尔士州卫生部发言人说：“截至 2021 年 12 月 23 日，新南威尔士州卫生部确认，在其约 170,000 名员工中，约有 0.2%（325 人）因拒绝接种CCP病毒疫苗职位而辞职。此外，另有670人（6.4%）由于他们在 COVID-19 疫苗方面的立场而停止了在新南威尔士州卫生部门的工作。”
 
-他说：“他就喜欢高燕燕，高燕燕一说话，他小弟弟就硬了，就像老王喜欢表一样。什么样的表，你往这儿一搁，王岐山就知道这个表什么价钱，值多少钱。”他说：“我基本上是这个（注：伸出一个手掌五指）、这个（注：手掌翻面又是五指），给他弄准一个。”后来我说啥意思？就是一百，两个五十，一百个表里边，百里选一能给王岐山。
+据报道，这些离职或被停职的人士中既有不在一线的职员，同时也有诊所或医院的一线工作者。
 
-他说：“现在难了，瑞士造表的每次出那个限量版，限量版老王都不要了，他要特制版。”我告诉你，一个江诗丹顿的特制版可以定到5000万到1亿美元，粉金，镶粉钻或镶黑钻，你去试试多少钱？
+澳大利亚国家内阁已经表示，考虑到当前部分关键岗位——尤其是医疗卫生方面——缺乏人手，将放宽甚至取消这些领域发生密切接触后的隔离要求，即便密切接触者很大概率会最终确诊。
 
-王岐山在瑞士银行，光周永康，当时周永康就在…….当时石油帮留在瑞士的钱，王岐山亲口说，他说：“这个钱我王岐山再活一千年我都花不完。”他全都给拿走了。那真的都是上万亿的钱，中国老百姓你还想养老呢？你重孙子那辈儿的钱都给你花完了。
+然而未接种CCP病毒疫苗的医护工作者仍然受到排挤和辞退，哪怕他们实际上既没有感染病毒也没有成为密切接触者，哪怕现在继续更多医护人员进行支援。
 
-水污染了，一万年弄不过来，水污染了；地污染了，一千年弄不过来；所有的树木砍伐掉的，一百年长不回来；所有中国人现在盖的楼，80万亿也好、100万亿美元（也好）的楼，中国人口越来越少，未来拆一百年都拆不完。黄河将变成臭河，长江将变成尿江，昆仑山脉真正变成只有地狱之门、没有磁场的阴阳之门，只会把你的面弄走，不会让你的币哆嗦，喜马拉雅的雪会融化，这就是共产党，你还想养老呢？
+由此我们不难看出，CCP疫苗接种实际并非对人体健康的保护，而更像是一场政治运动。不同意见者在这场运动中受到打压和迫害，名誉被毁并丢掉工作，即便急需人手的情况下也依然被边缘化。只有选择老实就范才能保住饭碗，哪怕很大概率被病毒感染也依然能够重返工作岗位。这样荒诞的事情还会持续多久？虽然我们仍然处在最黑的黑夜，但晨光熹微旭日东升的时刻，应该也不会太远。
 
-字幕来源： [2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+新闻参考链接：
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[9 News](https://www.9news.com.au/national/coronavirus-nsw-update-almost-1000-nsw-healthworkers-stood-down-or-quit-due-to-refusing-to-get-the-covid19-vaccine/19e542fd-968f-4c0e-b9cd-499202526092)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
