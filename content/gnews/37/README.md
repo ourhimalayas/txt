@@ -2,42 +2,38 @@
 ---
 
 
-## 【中日财经爆】中共国阳光城区域调整并裁员引员工不满
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1861018/)
+## 2021中共国上市房企74家公司市值缩水明显
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861416/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1117.png)
-[*图片来源*](http://www.beiduolab.com/business/948.html)
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-1月13日，落款为“阳光城营销大区同仁泣血上书”、题为《致林腾蛟的一封公开信》（以下简称“《公开信》”）流传网络，刷爆地产圈。
+整理报道：BENJ1
+编辑：文泓
 
-信中提到，1月11日，阳光城发布通知将撤销营销大区，通知提出大区员工必须于1月15日前办完离职手续、赔偿金半年分期支付等条件，阳光城营销大区员工上书对裁员表示不满，并针对裁员事件对阳光城董事局主席林腾蛟提出7条诉求：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/YSK8_SW653IGOHI@P.png)图片来源：墨尔本雅典娜农场设计组
 
-1、不同意2022年1月15日办理离职；
 
-2、明确个人2021年佣金金额与发放时间等所有详细信息，公司与员工签订佣金发放协议，一式二份、员工签字、公司盖章；
+在中共国公布的2021上市房企市值“承压榜”上，平均跌幅为38.62%。其中，超过平均跌幅的房企有45家，占比约61%。
 
-3、公司与员工签订N+1赔偿协议，一式二份，员工签字、公司盖章，特殊员工另当别论（如孕妇及哺乳期员工）；
+其中，市值跌幅超过50%的房企有24家，跌幅超过80%的房企有4家，债务暴雷的中国恒大、中国奥园、新力控股均在其中。
 
-4、佣金及赔偿金离职当月一次性全部结算支付；
+龙头房企中的龙湖集团、[万科A](https://finance.sina.com.cn/realstock/company/sz000002/nc.shtml)、碧桂园，TOP20房企中的[新城控股](https://finance.sina.com.cn/realstock/company/sh601155/nc.shtml)、旭辉控股集团、[金科股份](https://finance.sina.com.cn/realstock/company/sz000656/nc.shtml)等全年市值跌幅均超过38.62%的平均值。
 
-5、需先休完2021年全部年假后才离职，并计算相应1月工资；
+与此同时，部分地方国企也出现在承压榜中，比如[天房发展](https://finance.sina.com.cn/realstock/company/sh600322/nc.shtml)、越秀地产、[绿地控股](https://finance.sina.com.cn/realstock/company/sh600606/nc.shtml)、[南山控股](https://finance.sina.com.cn/realstock/company/sz002314/nc.shtml)、深圳控股等，不过跌幅都在平均值左右及以下。其中，南山控股，截至2021年12月31日收盘，南山控股股价报收于3.12元，较2020年末的4.01元（前复权价）下跌22.26%。
 
-6、员工拿到公司盖章的赔偿协议与佣金发放协议后，员工再办理离职手续。若拿到前述2份盖章协议的时间，晚于休完年假的时间，则以拿到协议当天为1月最后工作日，计算1月工资；
+中指研究院指出，当前房地产市场已步入调整通道，上市房企资金回笼压力不减，叠加偿债高峰期的到来，企业资金端继续承压，行业（破产）收购兼并将增加。中共国擀面杖经济将难以为继。
 
-7、各大区员工增量房（含未来购、草签、认购、已退房退款未支付、已更名未付贴息）全额退款并计算贴息，2022年1月31日前一次性支付本息。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1116.png)
-图片来自网络
+参考新闻：[2021上市房企74家公司市值缩水明显](https://finance.sina.com.cn/stock/relnews/cn/2022-01-14/doc-ikyakumy0245516.shtml)
 
-整体来看，《公开信》主要围绕对工资和佣金的核算，裁员补偿的核算与赔付，以及员工增量房退款三大核心利益点，员工希望就这些方面的问题与阳光城交涉，“只求好聚好散，江湖再见，望林董拨冗处理为盼。”
+发布：tianzhihuan
 
-自去年10月底发布2021年三季报后，被昔日战投好友泰康保险集团“抛弃”的阳光城，陷入“股债双杀”、寻求债务展期等困境。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息来源：[**阳光城区域调整并裁员引员工不满，人事震荡背后华夏人寿派驻董事再辞职**](http://finance.ce.cn/stock/gsgdbd/202201/14/t20220114_37258068.shtml)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,38 @@
 ---
 
 
-## 减少对美元的依赖，泛非支付结算系统正式发布
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861848/)
+## 有声|基恩将军分析中共为何出兵哈萨克斯坦
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1861984/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月11日，美国四星将军杰克·基恩在接受福克斯主持人玛丽亚采访时谈到，哈萨克斯坦局势让人意外的是，中共一改几十年按兵不动的态度，宣布派执法部队进入哈国。
 
-整理：入选文家
-编辑：小红帽
+基恩将军分析中共出兵有两个目的。第一，保证在哈萨克斯坦的经济利益，第二，同时打击在紧邻新疆的哈萨克斯坦的穆斯林，而这些都是中共有意影响中亚的表现。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+原文链接：[基恩将军分析中共为何出兵哈萨克斯坦](https://gnews.org/zh-hans/1858528/)
+
+音频处理：Daxia
+
+**发稿：**Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-根据《新华网》1月13日报道，非洲大陆自由贸易区秘书处联合非洲进出口银行等机构13日在加纳首都阿克拉正式发布泛非支付结算系统。
-
-泛非支付结算系统覆盖非洲大陆，支持非洲国家使用本国货币在非洲大陆进行支付，减少对第三方货币（美元）的依赖。该系统在发布前已在加纳、尼日利亚、冈比亚、利比里亚、几内亚和塞拉利昂六国试用。
-
-加纳副总统马哈茂杜·巴武米亚称该系统将结束非洲国家间跨境支付对第三方货币的依赖。
-
-非洲自由贸易区秘书处秘书长梅内在发布仪式上说，随着非洲大陆自贸区的实施，非洲国家间跨境交易量增加，对高效支付服务的需求增大。他表示，泛非支付结算系统每年将为非洲大陆节约50亿美元支付成本。
-
-参考链接：[泛非支付结算系统正式发布](http://www.news.cn/fortune/2022-01/14/c_1128262430.htm)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

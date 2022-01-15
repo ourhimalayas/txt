@@ -2,31 +2,41 @@
 ---
 
 
-## 朝鲜十天内三次试射高超音速导弹
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1861667/)
+## 疫情封城、中间商囤货导致国内中药材价格飙升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861805/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/N-1.jpg)english.kyodonews.net
-据朝鲜官方媒体周六报道，金正恩试图提高朝鲜的防御能力，于1月14日在一个铁路运载导弹团进行了射击演习。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-朝鲜中央通讯社（Korean Central News Agency）发表这篇报道的前一天，朝鲜疑似发射了两枚短程弹道导弹，这是朝鲜10天内第三次发射导弹。
+整理：围剿维尼熊
+编辑：小红帽
 
-朝鲜中央通讯社称，此次演习的目的是“检查该团的警戒姿态”，并“增强其执行火力任务的能力”。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
 
-朝鲜最近的一系列导弹试验被视为对美国拜登政府的挑衅，拜登政府1月12日对朝鲜实施了新的制裁。朝鲜谴责美国扩大制裁，称加强国防能力是一个主权国家的合法权利。
 
-朝鲜外务省发言人在朝中社发表的一份声明中表示:“如果美国采取这样的对抗姿态，朝鲜将被迫采取更强硬和特定的反应。”
+根据《凤凰新闻》1月13日报道，2022年开始，A股中药板块逆势大涨。
 
-美国和朝鲜之间的直接谈判已经停滞了两年多，拜登政府不太可能在无核化和解除制裁方面做出让步。朝鲜表示，除非华盛顿撤回平壤认为的敌对姿态，否则不愿与美国举行双边谈判，这两个国家将不建立外交关系。
+第一财经记者近日走访了安徽亳州中药材专业市场，以寻找中药股暴涨的答案。
 
-1月14日的导弹试射是朝鲜今年继1月11日和1月5日后的第三次高超音速导弹试射。朝中社报道称，周五发射的两枚战术制导导弹“精确击中了”日本海的既定目标。
+安徽亳州，是我国四大药都之一，近期中药材交易很火爆，亳州中药材市场二楼的交易大厅早市8:30开市1个小时货都订完了。
 
-参考链接：
+交易行情火热，现货市场上中药材价格也呈普涨态势，不同药材之间价格涨幅相差悬殊，超过50种中药材的价格在2021年翻倍，其中生地、旱莲草年涨幅超300%。
 
-[https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html](https://english.kyodonews.net/news/2022/01/a09d3a81622c-urgent-n-korea-reports-firing-drill-of-railway-borne-missile-regiment-fri.html)
+2021年，市场大部分中药材品种出现上涨行情。A股市场上，中药板块两个月内涨幅约17%。
 
-**华盛顿DC 银河**
+据记者不完全统计，2021年12月以来，包括同仁堂、华润三九、九芝堂、太极集团等多家中药企业均发布产品提价通知。
 
-**编辑发布 水星**
+不过药材价格飙涨，并不代表终端需求增加。有当地商家称，因为疫情影响，外地客商过不来，药材运输受限，导致不少预定的药材堆积无法发货。另外产地的农药化肥等农资成本、人工成本都在上涨。也有一部分原因是资本进入、中间商囤货导致。所以部分药材即便提价，也不足以覆盖原材料涨价的成本。
+
+参考链接：[中药股暴涨、中药材价格也涨了！但药商却愁了？记者实地走访找答案](https://ishare.ifeng.com/c/s/v004cI6jxKzJ6dZyasVJaEsTlGpLLGG1iOEzmfkyHOpEr8o__?from=ucms_web)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

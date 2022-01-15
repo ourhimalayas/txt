@@ -2,31 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月14日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1861644/)
+## 扬帆每日速递 2022年1月14日版(2)
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1861788/)
 
-作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、上海市文化和旅游局14日发布《关于本市暂停跨省团队旅游及“机票+酒店”业务的通知》，要求严格执行跨省旅游经营熔断机制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+2、香港1月14日晚间新闻：港共政府禁令下午六时后禁堂吃，禁止令𨒂长至年初三，接种率达90%后才会逐步解禁，司马昭之心 路人皆知。全港327宗感染其中295宗为输人个案，全面禁止欧美等国的航班及货物来港，是为了防止病毒还是闭关销港？
 
+3、狗狗币（Dogecoin）在埃隆马斯克在推特上宣布数字货币现在可以用来购买特斯拉的商品后飙升20%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0114text-SC.png)
-校对：Stay文苑
+4、与中共勾兑颇深的贝莱德已成为首家管理资产规模达到10万亿美元里程碑的资产管理公司，巩固了其在整个行业中的领先地位。
 
-编辑：Stay文苑
+5、据文贵大直播：中美政治生态背景对比，美国法律大于一切，白宫也是执法机关。而在中共国，行政命令大于法律，人治大于法治。
 
-发稿：Stay文苑
+6、文贵大直播：美国高院对疫苗强制令的判决核心意义在于，白宫是行政执法机关，高法一旦做出这个决定，它是不可逆转的给所有的药厂所有的疫苗和机构提出了一个美国问题，所有的科学家所有的证据一切要重新来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-14海报2_page-0001.jpg)
+素材提供战友：从来多难不兴邦、Revelation熙攘、Kannie文勤、文敏
 
-视频参看：[1.14  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e22302a6dfdd6031548784)
+编辑：文敏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30B6040C-7739-4E38-9244-67481B07736A.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：风起云间（文敏）
 
  
 

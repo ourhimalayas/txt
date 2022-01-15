@@ -15,137 +15,137 @@
 
 ---
 
-### [文•贵天成——文贵先生谈“王毅”（七）](/content/gnews/1/README.md)
+### [每日快报：福奇在参议院听证会上对美国人民说了谎](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声|世卫组织、欧洲药管局警告重复接种加强针有害](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [财富传承工具之 一 信托&nbsp;](/content/gnews/3/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [有声|基恩将军分析中共为何出兵哈萨克斯坦](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [文•贵天成——文贵先生谈“王毅”（七）](/content/gnews/5/README.md)
  ` 雅典娜Gnotes`
 
-### [针下亡魂｜泰国 25 岁女医生接种疫苗一个月后死亡](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“王毅”（八）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [针下亡魂｜泰国 25 岁女医生接种疫苗一个月后死亡](/content/gnews/7/README.md)
  ` 關注組`
 
-### [【粤语配音】2022年1月14日：病毒就是疫苗](/content/gnews/3/README.md)
+### [加拿大放弃卡车司机疫苗强制令](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [美参议员要求对中共病毒进行溯源 否则进一步制裁中共](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [耐克开始解雇未接种疫苗的员工](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [【粤语配音】2022年1月14日：病毒就是疫苗](/content/gnews/11/README.md)
  ` MOS香港部`
 
-### [减少对美元的依赖，泛非支付结算系统正式发布](/content/gnews/4/README.md)
+### [减少对美元的依赖，泛非支付结算系统正式发布](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大流行的关键议程之一是减少人口和社会隔离](/content/gnews/5/README.md)
+### [大流行的关键议程之一是减少人口和社会隔离](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [近在咫尺的疫苗灾难（一）](/content/gnews/6/README.md)
+### [近在咫尺的疫苗灾难（一）](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [2022年1月14日，郭文贵先生就取消Cahill Gordon &amp; Reindel代理律师资格提起的动议获批（动议序号#021）](/content/gnews/7/README.md)
+### [2022年1月14日，郭文贵先生就取消Cahill Gordon &amp; Reindel代理律师资格提起的动议获批（动议序号#021）](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线：瑞典感染者数创历史新高,首相也未能幸免](/content/gnews/8/README.md)
+### [秘翻在线：瑞典感染者数创历史新高,首相也未能幸免](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫情封城、中间商囤货导致国内中药材价格飙升](/content/gnews/9/README.md)
+### [疫情封城、中间商囤货导致国内中药材价格飙升](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [军情五处警告中共间谍干预政治，王毅出面矢口否认](/content/gnews/10/README.md)
+### [军情五处警告中共间谍干预政治，王毅出面矢口否认](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022年1月14日版(2)](/content/gnews/11/README.md)
+### [扬帆每日速递 2022年1月14日版(2)](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [中国泛海转让民生银行超2亿股股权给厦门国际银行](/content/gnews/12/README.md)
+### [中国泛海转让民生银行超2亿股股权给厦门国际银行](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧洲议会主席David Sassoli突然死亡](/content/gnews/13/README.md)
+### [欧洲议会主席David Sassoli突然死亡](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [郭先生解析vice采访（一）](/content/gnews/14/README.md)
+### [郭先生解析vice采访（一）](/content/gnews/22/README.md)
  ` 雅典娜Gnotes`
 
-### [美国海军陆战队批准首批中共病毒疫苗豁免](/content/gnews/15/README.md)
+### [美国海军陆战队批准首批中共病毒疫苗豁免](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于NFT (一)](/content/gnews/16/README.md)
+### [关于NFT (一)](/content/gnews/24/README.md)
  ` 雅典娜Gnotes`
 
-### [朝鲜十天内三次试射高超音速导弹](/content/gnews/17/README.md)
+### [朝鲜十天内三次试射高超音速导弹](/content/gnews/25/README.md)
  ` 华盛顿DC-Russian`
 
-### [日本庆应大学创全球首例iPS干细胞治疗脊髓损伤手术](/content/gnews/18/README.md)
+### [日本庆应大学创全球首例iPS干细胞治疗脊髓损伤手术](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2022年1月14日晚](/content/gnews/19/README.md)
+### [GTV新闻访谈简报|2022年1月14日晚](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [Omicron就是生化武器 mRNA就是病毒 却没有一家疫苗公司告诉你真相](/content/gnews/20/README.md)
+### [Omicron就是生化武器 mRNA就是病毒 却没有一家疫苗公司告诉你真相](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [你配做人吗 自己不备药却让战友送 你关心过为你送药的战友安危吗](/content/gnews/21/README.md)
+### [你配做人吗 自己不备药却让战友送 你关心过为你送药的战友安危吗](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杀人执照：中国金融票据的风险](/content/gnews/22/README.md)
+### [杀人执照：中国金融票据的风险](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [1/14/2021 文贵直播：美最高法院否决疫苗强制令说明以法灭疫已经开始，全世界将陆续否决疫苗强制令](/content/gnews/23/README.md)
+### [1/14/2021 文贵直播：美最高法院否决疫苗强制令说明以法灭疫已经开始，全世界将陆续否决疫苗强制令](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [美最高法院阻止了拜登政府的私营企业疫苗强制令](/content/gnews/24/README.md)
+### [美最高法院阻止了拜登政府的私营企业疫苗强制令](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [南普陀会议的幕后策划人就是曾庆红](/content/gnews/25/README.md)
+### [南普陀会议的幕后策划人就是曾庆红](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币的价值在于战友](/content/gnews/26/README.md)
+### [喜币的价值在于战友](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [若要得到灵魂真正的释放 必须敬畏上天 尊重生命 行善积德](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [无畏中共新打击，唯真不破赢人心](/content/gnews/28/README.md)
- ` YALUN 亚伦`
-
-### [新中国联邦建立的养老系统](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [真信 自然 信仰](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [重庆大爆炸预示着中共迎来争夺二十大的决战时刻-习曾之战](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [爆料革命5年来默默地向世界传递着真实情报](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭先生盖特转发真相工程揭发蝠奇重大证据](/content/gnews/33/README.md)
- ` GTV News Talk`
-
-### [2021中共国上市房企74家公司市值缩水明显](/content/gnews/34/README.md)
+### [7·24系列——多少日本企业撤离中国？](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [抓人者被抓 中共公安部原副部长孙力军被提起公诉](/content/gnews/35/README.md)
+### [无畏中共新打击，唯真不破赢人心](/content/gnews/36/README.md)
+ ` YALUN 亚伦`
+
+### [2021中共国上市房企74家公司市值缩水明显](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [抓人者被抓 中共公安部原副部长孙力军被提起公诉](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [母子隔窗相望泪眼 一刀切封锁防疫的荒唐](/content/gnews/36/README.md)
+### [母子隔窗相望泪眼 一刀切封锁防疫的荒唐](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共国阳光城区域调整并裁员引员工不满](/content/gnews/37/README.md)
+### [【中日财经爆】中共国阳光城区域调整并裁员引员工不满](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/38/README.md)
+### [聚焦：中共如何应对近在眼前的经济雪崩？](/content/gnews/41/README.md)
  ` 丁过`
 
-### [2022年1月14日大直播全文精萃](/content/gnews/39/README.md)
+### [2022年1月14日大直播全文精萃](/content/gnews/42/README.md)
  ` 文贵直播大事记`
 
-### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/40/README.md)
+### [文贵爆料 1.14：Gettr风波——愿万千风雨加于身](/content/gnews/43/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/41/README.md)
+### [2022.1.14文贵视角：在被质疑怀疑否定中成长](/content/gnews/44/README.md)
  ` 秘密翻译组-原创组`
-
-### [天津107例感染者中103人已全程接种疫苗](/content/gnews/42/README.md)
- ` GTV新闻访谈`
-
-### [泄漏文件显示中共高层为冬奥严控疫情](/content/gnews/43/README.md)
- ` GTV新闻访谈`
-
-### [GTV新闻访谈简报|2022年1月14日早](/content/gnews/44/README.md)
- ` 纽约香草山MOS01`
 
 ### [文贵大直播 1/14 正确认知美国高院判决的重大意义](/content/gnews/45/README.md)
  ` 秘密翻译组-原创组`
