@@ -2,25 +2,30 @@
 ---
 
 
-## 郭先生解析vice采访（三）
-` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862063/)
+## 鉴于中共人权问题 丹麦也加入外交抵制北京冬奥会行列
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862136/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1138.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd32kak7w9u5ewj.cloudfront.net%2Fmedia%2Fimage%2F2021%2F12%2Fbee659eb780649f1b010fd9fb76d6aa1.jpg&amp;imgrefurl=https%3A%2F%2Ftheinitium.com%2Farticle%2F20211203-mainland-beijing-winter-olympics%2F&amp;tbnid=dHn16iX45mFDCM&amp;vet=12ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ..i&amp;docid=PZSsRnFoNF7V5M&amp;w=2160&amp;h=1393&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5&amp;ved=2ahUKEwiboOb-_LL1AhVM6ZQKHcfOAksQMygcegUIARD5AQ)
+丹麦外交大臣杰普·科弗德星期五(1月14日)说，由于中共国的人权问题，丹麦将不派遣外交代表团出席在北京冬奥会。同天早些时候，荷兰也宣布将不派外交代表团出席北京冬奥会。
 
-等着我们被杀的时候，要告诉国内人，这帮东西都是叛徒，都是邪教，是犯法了，全家在这犯法了，小新是叛徒，在西方犯法了。闻风而动，就是暴徒。还让中国人恨你我，关键的螃蟹这个孙子，他根本没投**GTV,**但是观众不知道他没投**GTV**啊。螃蟹要投**GTV,**咱们不让他投，和他说被骗投资，你看看这个差距有多大？然后他说你是骗子，你是把中国带入地狱，你看这个差距有多大？可怕的是去采访。
+“我们丹麦这方对中共国人权状况非常关切，这不是什么秘密，”科弗德说。“政府已决定我们将不出席在中共国的冬奥会。”
 
-川普总统在所谓一六事件之前，还有这个在国会山，你看到七哥在直播中说过，我多次反对大家去参加川普的抗议，这个时候游行，会被人利用。结果被利用了吧。她把他的到那块儿去游行，变成了我们有组织的支持。川普搞美国之乱，他要把我推到**1**月**6**号的美国刑事调查这个范围内。第三招够不够狠？ 够不够狠？而且那个编辑的就**Nicola**的语言，可以把报道革命毁掉 了。他能编辑的话真的是。够不够狠？然后再让这个小斯基出来，让小司机 说**GNEWS, GTV**是一家的。都是爆料革命操控的工具。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.003.jpeg)
-发布：tianzhihuan
+在丹麦做出这项决定之前，欧盟国家本星期在法国布雷斯特举行的会议上未能就这一立场达成共识。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+荷兰外交部发言人星期五早些时候表示，由于中共病毒（新冠病毒Covid-19）疫情的限制措施，荷兰将不派官方代表团出席北京冬奥会。
 
+荷兰外交部发言人弗里茨·肯普曼对路透社说：“由于中共国执行的中共病毒措施，与东道国进行双边接触，并且以有意义的方式讨论荷兰极为关切的东道国人权状况的机会只会是有限的。”
+
+美国政府去年12月正式宣布，鉴于发生在新疆的种族灭绝和中共国其他侵犯人权的行为，美国不派外交或官方代表团出席北京冬奥会。
+
+澳大利亚、英国、加拿大和日本加入了外交抵制行列。运动员不受外交抵制影响。
+
+消息来源：[丹麦与荷兰宣布不派外交代表团出席北京冬奥会](https://www.voachinese.com/a/denmark-to-join-diplomatic-boycott-of-beijing-olypmics-over-human-rights-20220114/6397473.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

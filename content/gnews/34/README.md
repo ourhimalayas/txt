@@ -2,61 +2,42 @@
 ---
 
 
-## 2022年1月14日，郭文贵先生就取消Cahill Gordon &amp; Reindel代理律师资格提起的动议获批（动议序号#021）
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1861825/)
+## 美参议员要求对中共病毒进行溯源 否则进一步制裁中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861890/)
 
-秘密翻译组-北美组
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月11日，美国16位共和党参议员起草法案，要求追究中共在疫情中的责任。法案名为《病毒来源验证、调查和确认法案》，起草人包括肯尼迪、卢比奥、玛莎·布莱克本等知名参议员。
 
-NYSCEF Doc. No. 1099
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-15.jpg)
 
-纽约州纽约县最高法院
+法案内容为授权美国总统进一步对中共实施制裁，除非中共能在该法案在颁布90天之内，允许涉及蝙蝠冠状病毒实验的武汉实验室被全面调查。而这些制裁将针对中共中国科学院和其附属研究所的领导层，以及参与隐瞒疫情爆发的中共官员。
 
-审理法官：BARRY R. OSTRAGER阁下
+同时该法案还将暂停所有在学术领域的美国联邦资助，被投入涉及中共中国科学院的研究，以及任何在美国个人或实体与中共人员从事的功能增强实验。
 
-———————————————X
+相关议员还表示：“该法案将让美国用实力去追求真相，只有这样中共才能听懂我们的话， 两年来中共阻止了所有病毒起源调查的努力，这导致了全世界无数人死亡和遭受不必要的痛苦。中共只会回应来自美国和国际社会的一致压力，这个法案将迫使中共坐到谈判桌前。”
 
-太平联盟亚洲成长基金有限合伙
+参考链接：
 
-原告，
+- [Kennedy, Rubio introduce bill to hold China accountable for obstructing COVID investigation](https://www.kennedy.senate.gov/public/press-releases?id=7BD7C2E5-B606-4775-9EE3-36DFD976CD34)
+- [China is still gaslighting the world about the origin of the coronavirus and the Communist Party’s role in covering it up](https://twitter.com/SenJohnKennedy/status/1480978602674032641?s=20)
+- [Senator Rubio led GOP colleagues in introducing the COVID Act of 2022, a bill to sanction #Beijing for failure to allow a credible and comprehensive international investigation into the origins of #COVID19](https://twitter.com/SenRubioPress/status/1480933275376009223?s=20)
+- [https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml](https://news.sina.com.cn/c/2022-01-12/doc-ikyamrmz4811453.shtml)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-诉
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-KWOK HO WAN，又名Kwok Ho，又名GWO WEN GUI，
-
-又名郭文贵，又名WAN GUE HAOYUN，又名
-
-Miles Kwok，又名郭浩云，GENEVER HOLDINGS LLC，及
-
-GENEVER HOLDINGS CORPORATION,
-
-被告
-
-———————————————-X
-
-**法庭判决+关于动议的法庭命令**
-
-BARRY R. OSTRAGER阁下
-
-本法庭，于2022年1月14日，通过Microsoft Teams视频工具，聆听了关于以下动议的法庭辩论，动议按序号排列如下：021（被告郭浩云关于取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）、022（非本案当事人Lamb Capital LLC撤销原告传票之动议）及024（GTV Media Group Inc.决定介入本案并取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）。
-
-根据法庭记录在案的程序，被告郭浩云就取消Cahill Gordon & Reindel代理律师资格提起的动议获批（动议序号021）。非本案当事人Lamb Capital LLC撤销传票动议（序号022）被全部驳回。GTV Media Group Inc.仅为取消Cahill Gordon & Reindel代理律师资格而介入本案的动议（序号024）获批。
-
-日期：2022年1月14日
-
-————————————
-
-BARRY R. OSTRAGER
-
-最高法院法官
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-10.14.59-PM.jpeg)
-中文翻译仅供参考，内容以英文原文为准
-
-[652077\_2017\_Pacific\_Alliance\_Asia\_v\_Pacific\_Alliance\_Asia\_\_DECISION\_\_\_ORDER\_ON\_1099 (1)](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

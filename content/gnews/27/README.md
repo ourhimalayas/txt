@@ -2,37 +2,25 @@
 ---
 
 
-## 耐克开始解雇未接种疫苗的员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861887/)
+## 郭先生解析vice采访（二）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862042/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-7.png)
+每句话滕彪说我乱伦我侄儿媳妇，结果变成了我说滕彪是乱伦，你想有多可怕？ **GTV**她说我们是骗子，那很简单，谁被骗了？螃蟹，这个孙子，这个小垃圾， 称为大燕王子，跟我在这，他说他要恢复大燕，这个垃圾，一个小小垃圾。他说我在这之前**2**天没吃饭，我崇拜他的房子啊，公寓呀，西装啊，游艇啊，然后不给他钱了。两天一想，这家伙是骗子，你觉得谁能崇拜一个人，经过两天不给钱以后，我就认为他是个骗子，这种垃圾话他能给你弄出去，看有没有人细琢磨，对，他是骗子，最后是，你觉得他怎么样，他会把中国人带入地狱，我咋把中国人带入地狱？ 我爆料，我们四五年来，你们想过，我们把一个中国人带入地狱了嘛？怎么能把中国人带入地狱？
 
-耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
+他让中国人恨我们，你看到没有，不单让美国西方世界恨爆料革命，她让螃蟹的 嘴说出来，中国人要恨这个爆料革命，新中国联邦。这个跟当年印尼排华一模一 样。你看共产党的报纸，你们查查**1968**年和**1997**年两次排华时。中国大量的共产党的报纸，各种像当时的参考消息竟然隐隐约约都在说海外华人要守法呀， 你背叛了祖国，你离开了祖国，你到人家国家要守法，结果弄完了，就意思是这些人都是背叛我们走的，他们不守法，在人家国家，和这个如出一辙。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.002.jpeg)
+发布：tianzhihuan
 
-据悉，总部位于俄勒冈州的另一家运动品牌Columbia计划下个月解雇未接种新冠疫苗的员工。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-参考链接：
-
-- [Nike is preparing to fire some unvaccinated staff at its corporate headquarters, reports say](https://www.businessinsider.com/nike-prepares-fire-unvaccinated-employees-covid-19-oregon-2022-1?amp)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

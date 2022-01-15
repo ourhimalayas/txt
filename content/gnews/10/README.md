@@ -2,36 +2,30 @@
 ---
 
 
-## 有声|共产党才是真正的邪教
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862062/)
+## 脸书在英国面临赔偿额达32亿美元的集体诉讼官司
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1862123/)
 
-配音：香草山佛教部 – 李傻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月12日，郭先生在大直播中讲述了邪教组织的六个特点：教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会。这些特点没有一样是爆料革命具有的，反而中共具有全部六个特征。具体表现为：（1）中共毛泽东、习近平大搞个人崇拜；（2）中共通过让所有人穿同颜色的衣服，强行灌输“爹亲娘亲不如党亲”的论调等对国民进行精神控制；（3）中共编造历史、扭曲事实，例如抗日战争拯救中共国56个民族，让人民都相信共产党等，此类邪说数不胜数；（4）中共还强行把国家的土地和一切资源据为己有，聚敛钱财；（5）共产党从成立之初，就属于理应被消灭的非法秘密组织，现在的人民代表则是共产党制造的假组织；（6）中共还通过对所有老百姓实行网格化管控、进行新疆大屠杀等对抗一切社会正义。
+#### **撰稿：日本东京方舟农场  葛大饼**
 
-原文链接：[共产党才是真正的邪教](https://gnews.org/zh-hans/1859669/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E9FECD13-E636-403D-A615-63E9490F06B8.jpeg)（图片来自搜狐）
 
-音频处理：Daxia
+据《Euro News》1月14日报道，社交媒体巨头脸书（Facebook，现名Meta Platforms）在英国面临赔偿额超过23亿英镑（32亿美元以上）的集体诉讼，它被指控滥用市场支配地位，盗用4400万用户的个人数据。
 
-**发稿：**Daxia
+英国金融行为监管局（FCA）高级顾问、竞争法学者利萨·洛夫达尔·戈尔姆森（Liza Lovdahl Gormsen）表示，她是代表在2015年至2019年期间使用过Facebook的英国用户提起这项诉讼的。这起诉讼指控Facebook通过强加不公平的条款和条件，要求用户需交出个人数据才能访问该网络，并以此赚取了数十亿英镑。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+据悉，律师事务所Quinn Emanuel Urquhart & Sullivan已经就这起索赔案向Facebook发出了律师函。
 
-**更多资讯，更多关注**
+戈尔姆森指出，自Facebook创建17年以来，它已成为英国唯一的社交网络。然而Facebook却在其平台内通过Facebook Pixel等机制，收集用户私人信息和数据，从中获取利益。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*参考链接：[Facebook faces $3.2 billion UK class action over market dominance](https://www.euronews.com/2022/01/14/tech-antitrust-facebook)*
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+*素材采编：葛大饼*
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑： 青衣青青*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：miumiu*
 
  
 
