@@ -2,37 +2,42 @@
 ---
 
 
-## 华中师大毕业生就业报告直指高校就业数据的猫腻
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1865100/)
+## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
 
-【**国内新闻短评**】
+加拿大温哥华扬帆农场：Jamie\_Luffy
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
+图片来源：
 
-**据搜狐网2022年01月10日报道，华中师范大学发布了2021年应届毕业生就业报告，截止到2021年8月31日，普通师范生实际就业率只有38.87%。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/weo-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11111-.jpg)**图片来源： 搜狐**
-**短评：**
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
 
-**中共以假治国渗透到各个行业，每个墙内人都自愿或者被迫地卷入其中，最后这些假数据坑害的是强国百姓自己。**
+就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
 
-**老百姓为子女投资最大的高等教育也不会例外。华中师范大学的就业数据狠狠打脸那些高唱中共经济繁荣昌盛的媒体和红粉。那些没有编制的普通师范生就业率不到四成。对比前几天出炉的清华毕业生近七成进入体制，华中师大的数据更加触目惊心。**
+目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
 
-**对比强国和欧美等国家就会发现，别国毕业生就业率会因经济形势而有所起伏，而强国数据却异常平稳，常年恒定在85%-90%之间。这就形成一个悖论，经济状况很差，新闻中经常是本科生毕业就失业的报道，但毕业生就业率却居高不下，里面的很多猫腻不为人知**。
+加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
 
-**首先，毕业生“被就业”成为家常便饭。临近毕业，各高校院系会广开门路帮本科生找实习，不管最后是否录用，学生均被定义成就业，使得整体就业率虚高。其次，考研、专升本和出国留学也是“就业”。这种操作在高校人尽皆知，华师大就业报告可以得到充分展现，2022年硕士报考率达到史上新高，可以预见本科生今年就业前景一片黯淡。再次，就业率“掺水”，为了领导政绩，高校会伪造就业协议和合同造成就业形势一片大好的假象。此外，自主创业和自由职业，对于很多普通高校毕业生就是回家躺平，只要出示一定证明，就可以算作就业。**
+在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
 
-**华中师大选择发布“老实”数据的原因不得而知，但是至少让很多家长和毕业生头脑冷静下来 ，思考毕业出路的真相，有所醒悟。**
+(本文仅代表作者观点)
 
-**声明**：**文章观点仅代表作者个人，与gnews平台无关**
+参考链接：
 
-**链接：**[https://www.sohu.com/a/515563759\_100279024](https://www.sohu.com/a/515563759_100279024)
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
 
-素材：洛杉矶盘古农场 — Poplar
-评论：洛杉矶盘古农场 — Poplar
-审核：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
+
+[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
+
+
+
+> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
+
+
+
+审核：文敏   发布： 天予
 
  
 
