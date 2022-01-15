@@ -2,54 +2,39 @@
 ---
 
 
-## 2022年伊始孙力军再成中共党内肃清典型
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864245/)
+## 有声|中共如何以非制美、以非乱欧、以非辱民？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864324/)
 
-作者：日本方舟农场—Andy5
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+配音：香草山佛教部 – 李傻
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+郭先生在2022年1月9日的大直播中提到以非制美、以非乱欧的问题。共产党几十年来不惜血本通过“蓝金黄”手段苦心经营非洲国家的目的，除了经济上殖民与绑架、政治上拉选票与赚吆喝外，还将一向不擅长解决问题却善于制造问题的非洲人口充分利用起来，以成就中共不可告人的无耻肮胀目的。
 
+首先是以非制美。中共通过在美国的使领馆和华人组织怂恿、煽动、资助和策划“黑命贵”运动，以成就中共搞乱、搞弱、搞死美国的“3F计划”。
 
+其次是以非乱欧。中共还将自己天下无双的腐败输出到非洲国家，在本来就很贫穷的非洲土地上进一步加剧贫富两极分化，制造大量非洲难民并送去欧洲，以搞乱欧洲各国的社会秩序，进而制造各国政府与民间的矛盾和对立，最终让欧洲鸡飞狗跳。
 
-2022年开年还不到半个月，中共已三次将孙力军作为反面典型，为2022年定调。 1月10日中共公安部新闻发言人再次强调，将对涉及孙力军等人严重违纪违法的人、事、案件进行全面清理，并且明确表示肃清孙力军流毒是作为公安部的“重大政治任务”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-25.jpg)
-然而在3天后的1月13日，中共又宣布将于15日起，上线中央纪委和CCTV联合拍摄的以孙力军为首的反腐大片，并在预告片中放出孙力军忏悔视频。孙力军称“没想到自己成了一个法治建设或者公平正义的破坏者”。同日，长春市检察院以受贿、操纵证券市场、非法持有枪支等罪名对孙力军提起公诉。
+最后是以非辱民。中共通过国内各大学招收大量非洲裔男留学生，用老百姓的钱给他们提供全额奖学金和丰厚的生活费，并有组织有计划地分配数个女性学伴全程三陪。而寒窗苦读的老百姓孩子却节衣缩食全额自费上大学，各方面形成的巨大反差毁了老百姓的平民孩子的三观，自信心和上进心彻底被扑灭。辱民手段让老百姓的孩子失去了方向和自尊，只能成为中共盘剥和奴役的奴隶！
 
-分析人士指出，中共以公诉孙力军、让其电视认罪，甚至将肃清流毒作为政治任务来为2022年定调，足以可见二十大前中共内部斗争进一步加剧。
+文字版原文：[中共如何以非制美、以非乱欧、以非辱民？](https://gnews.org/zh-hans/1857742/)
 
-参考来源：
-
-1.[公安部：对涉及孙力军等人严重违纪违法问题的人、事、案进行全面清理](https://news.sina.com.cn/o/2022-01-10/doc-ikyamrmz4375021.shtml)
-
-2.[公安部原党委委员、副部长孙力军涉嫌受贿、操纵证券市场、非法持有枪支被提起公诉](https://china.huanqiu.com/article/46NxZvyjYRj)
-
-3.[反腐专题片即将播出 孙力军周江勇等出镜忏悔](https://www.zaobao.com.sg/realtime/china/story20220113-1232507)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
-
-编辑/校对/发稿：兰兰
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
