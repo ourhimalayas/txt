@@ -2,25 +2,27 @@
 ---
 
 
-## 纽约市的免疫力被大规模接种疫苗所摧毁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862335/)
+## 郭先生解析vice采访（六）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862391/)
 
-##### 翻译：Julia Gao
-校对：Lish
-剪辑/字幕：蛮吉
-编辑：Mttfly
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-随着纽约市新冠疫苗接种率达到70%，福奇称这使市民们能生活在一个更安全的环境里。但是， 弗朗西斯克里克研究所的大卫·鲍尔博士却有相反的观点。其发现对于接种过两次新冠疫苗的人来说，他们体内的中和抗体数量减少，这些抗体在阻止病毒进入人体细胞发挥首要作用。他用以色列为例，说明纽约市民的免疫能力也随着疫苗继续接种而持续下降。
+**nono,**小新我要给你打断一下啊，我跟你说我你们几个，别跟着你这个圈转下去了是吧，你就走错方向了。回答你，我不接受采访。它会有另外一个版本的出来，这是在冬奥会之前的全面计划之一。
 
-视频链接：[NEW YORK CITY HAD ITS IMMUNITY DESTROYED BY MASS VACCINATION](https://www.bitchute.com/video/BF7yRgty6lUn/)
+我要不接受采访的话，你知道他会播什么版本，他会把我们编辑是最小的事儿，他一定会找人站出来说话。
 
-*发布：Mttfly*
-**
+找出来，以所谓的叛徒，革命的叛徒你看它里面讲到了第六招，所有离开郭文贵都被定为叛徒，就是要追杀，邪教的本质要追杀，你不能背叛。
+
+他会找所有的这些叛徒来搞我们。当时我就评估过，跟我的律师们， 我问他们，我说如果不接受采访，他们会干什么？ 所有的律师都说什 么都做不了，剪辑剪辑，跟你一样的思路，我说不对的，我了解共产党，伊萨贝拉还有这个**Vice**还有单伟健会做出另外一个版本的。什么版本？从别人眼里看，爆料革命。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.006.jpeg)
+发布：tianzhihuan
+
 更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
