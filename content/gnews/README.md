@@ -15,77 +15,77 @@
 
 ---
 
-### [参议员汤姆·科顿 :北京冬奥会应该移到安全、自由和民主的地方,不能相信共产党](/content/gnews/1/README.md)
+### [重庆大爆炸预示着中共迎来争夺二十大的决战时刻-习曾之战](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参议员汤姆·科顿 :北京冬奥会应该移到安全、自由和民主的地方,不能相信共产党](/content/gnews/2/README.md)
  ` 美国政要直译推`
 
-### [在中共国 最可怕的就是现世报](/content/gnews/2/README.md)
+### [爆料革命5年来默默地向世界传递着真实情报](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/14/2021 文贵直播：中共体育界在冬奥会后将发生大事，李永波必被抓，这将牵扯出无数个彭帅的故事](/content/gnews/3/README.md)
+### [共产党房地产崩塌后的全球政治 经济 资源 金融 各领域洗牌 财富将大爆发](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [在中共国 最可怕的就是现世报](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1/14/2021 文贵直播：中共体育界在冬奥会后将发生大事，李永波必被抓，这将牵扯出无数个彭帅的故事](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [一党控制政府 疯狂强制疫苗 但恰恰是打过疫苗的容易感染 这个世界疯了](/content/gnews/4/README.md)
+### [一党控制政府 疯狂强制疫苗 但恰恰是打过疫苗的容易感染 这个世界疯了](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党的房地产将成就人类第二次最大的金融形式存在-数字货币](/content/gnews/5/README.md)
+### [共产党的房地产将成就人类第二次最大的金融形式存在-数字货币](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/14/2021 文贵直播：中共已失去金钱勾兑的能力！](/content/gnews/6/README.md)
+### [1/14/2021 文贵直播：中共已失去金钱勾兑的能力！](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥讲述中国老年人的生存现状](/content/gnews/7/README.md)
+### [七哥讲述中国老年人的生存现状](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党是魔 只要它存在 没有人是安全的](/content/gnews/8/README.md)
+### [共产党是魔 只要它存在 没有人是安全的](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021中共国上市房企74家公司市值缩水明显](/content/gnews/9/README.md)
+### [2021中共国上市房企74家公司市值缩水明显](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党的以非灭美 以非灭白 其实就是风水之战](/content/gnews/10/README.md)
+### [共产党的以非灭美 以非灭白 其实就是风水之战](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [身边的疫苗接种者正在验证着郭先生对疫苗爆料的准确性](/content/gnews/11/README.md)
+### [身边的疫苗接种者正在验证着郭先生对疫苗爆料的准确性](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关于抓特务和做自己（一）](/content/gnews/12/README.md)
+### [关于抓特务和做自己（一）](/content/gnews/15/README.md)
  ` 雅典娜Gnotes`
 
-### [新中国联邦第一受惠的是老人和孩子](/content/gnews/13/README.md)
+### [新中国联邦第一受惠的是老人和孩子](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新加坡李家病毒过后会消失](/content/gnews/14/README.md)
+### [新加坡李家病毒过后会消失](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦会成为外国跟共产党之间的外交杠杆](/content/gnews/15/README.md)
+### [新中国联邦会成为外国跟共产党之间的外交杠杆](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于抓特务和做自己（五）](/content/gnews/16/README.md)
+### [关于抓特务和做自己（五）](/content/gnews/19/README.md)
  ` 雅典娜Gnotes`
 
-### [中国56个民族都是被共产党这个魔诅咒的](/content/gnews/17/README.md)
+### [中国56个民族都是被共产党这个魔诅咒的](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于抓特务和做自己（四）](/content/gnews/18/README.md)
+### [关于抓特务和做自己（四）](/content/gnews/21/README.md)
  ` 雅典娜Gnotes`
 
-### [关于抓特务和做自己（三）](/content/gnews/19/README.md)
+### [关于抓特务和做自己（三）](/content/gnews/22/README.md)
  ` 雅典娜Gnotes`
 
-### [关于抓特务和做自己（二）](/content/gnews/20/README.md)
- ` 雅典娜Gnotes`
-
-### [股价暴跌后，Zoom会更有吸引力吗？](/content/gnews/21/README.md)
+### [股价暴跌后，Zoom会更有吸引力吗？](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关于NFT (二)](/content/gnews/22/README.md)
- ` 雅典娜Gnotes`
-
-### [新文件揭示了早期认为SARS-CoV-2是被设计出来的观点](/content/gnews/23/README.md)
+### [新文件揭示了早期认为SARS-CoV-2是被设计出来的观点](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [共产主义的思想（一）](/content/gnews/24/README.md)
- ` 雅典娜Gnotes`
 
 ### [扬帆每日速递2012年1月14日版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
