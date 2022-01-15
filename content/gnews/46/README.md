@@ -2,42 +2,40 @@
 ---
 
 
-## 反疫苗抗议者试图冲进保加利亚议会
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862745/)
+## 信达证券管理混乱，员工违规炒股亏损642万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862782/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅-1.png)
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-
-
-据福克斯报道，本周三，反对保加利亚中共病毒限制的抗议者在试图冲进首都索非亚的议会时与警方发生冲突。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-46.jpg)
-
-现场警察阻止了抗议者进入大楼，一些人被拘留。包括警官在内的一些人在冲突中受伤。
-
-暴力事件爆发在一个强烈反对保加利亚政府防疫措施的民族主义团体组织的抗议集会上。该团体声称，抗议的目的是取消限制性措施，特别是违宪的疫苗通行证。现场抗议者表示他们会留在国民议会前的广场上，直到政府同意取消限制措施。
-
-保加利亚正面临中共病毒感染激增，是欧盟27个成员国中疫苗接种最少的国家，只有三分之一的人口完全接种了新冠病毒疫苗。
-
-参考链接：
-
-- [COVID-19: Anti-vaccine protesters attempt to storm Bulgarian parliament](https://www.foxnews.com/world/covid-19-anti-vaccine-bulgarian-parliament?utm_source=ground.news&amp;utm_medium=referral)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+根据《界面新闻》1月15日报道，安徽证监局近日开出2022年1号罚单，信达证券因违规行为被追责。
 
-总编：飞虹
-校正/发稿：海阔天空1
+罚单显示，经查，信达证券蚌埠淮河路营业部存在两项违规行为：一是在2014-2015年期间违反投资者适当性要求，违规销售多支金融产品；二是对员工执业行为缺乏有效约束，管控不到位。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对此，安徽证监局对其采取责令改正的行政监管措施，并记入证券期货市场诚信档案。同时要求该营业部引以为戒，按照监管规定要求进一步强化营业部内部管理，切实提高合规管理水平，杜绝类似问题再次发生，同时应对相关责任人员进行内部问责，并于该营业部收到决定书30日内报送整改报告和内部问责情况。
+
+据了解，这张罚单的背后是一起信达证券员工非法代客理财的违规事件。
+
+2021年6月，安徽证监局发布的罚单显示，信达证券员工周某涛因借用他人账户违法买卖股票，被处以20万元罚款。
+
+安徽证监局查明，周某涛在信达证券蚌埠淮河路营业部任职期间，于2014年2月12日至2020年9月11日借用“王某某”、“曹某”等10人共计15个证券账户从事股票交易行为。相关账户在周某涛控制期间累计买入6838.45万股，买入金额5.95亿元，累计卖出6835.9万股，卖出金额5.95亿元，扣除佣金税费后，亏损642.26万元。
+
+参考链接：[信达证券员工借用15个账户违规炒股亏损642万元，所在营业部及负责人被罚丨局外人](https://www.jiemian.com/article/7013288.html)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

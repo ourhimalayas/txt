@@ -2,25 +2,22 @@
 ---
 
 
-## 美情报称俄罗斯正欲栽赃嫁祸，为入侵乌克兰寻找借口
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1862646/)
+## 俄罗斯外长计划近期访日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862701/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团丨百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2-5.png)[*图片来源*](https://cdn.sputniknews.cn/img/101638/81/1016388129_0:112:2900:1935_1920x0_80_0_0_9848ca8c5e7044fffda3a6e1246d3443.jpg)
+据读卖新闻1月15日报道，俄罗斯外长拉夫罗夫14日在莫斯科举行的年初新闻发布会上表示，他正在协调未来几个月内对日本的访问，并解释说，去年年底就有访问日本的想法，因双方达成共识，先等待岸田政府对俄罗斯的政策做出决定后再推进。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-13.jpg)图片来源：NOWNEWS
-1月14日，《新闻极限》报道，美国的情报显示，俄罗斯正在准备开展“伪旗行动 (False flag)”，为合理入侵乌克兰寻找借口。
+关于日俄之间的和平条约谈判，拉夫罗夫强调，“日本和一个视我们为威胁的国家（美国）之间的联盟不适合日俄关系的发展”，重申他的观点，即日美联盟是一个障碍。
 
-根据CNN的报道，情报认为，俄罗斯特工人员接受了城市战争和使用爆炸物的训练，正在策划对俄罗斯自己的代理部队进行攻击。乌克兰国防部周五和美国国家安全顾问杰克·沙利文周四在白宫新闻发布会上都提到了这些情报。
+如果此次访日成功，将是自2019年以来的首次。
 
-据《纽约时报》报道，俄罗斯外交部长谢尔盖·拉夫罗夫(Sergey Lavrov)表示，外交方面的尝试正在崩溃，迫使俄罗斯准备战争。
+信息来源：[**露外相、２～３か月以内の訪日を調整…実現なら２０１９年以来**](https://news.yahoo.co.jp/articles/b342f80088d5a8363f828d4dbe5a6fcc5587c427#:~:text=%E3%83%)
 
-而CNN报道，周五，拉夫罗夫说：“虽然我们的建议旨在减少军事对抗，缓和欧洲的整体局势，但西方国家的情况正好相反。北约成员正在加强其实力和巡航。在与乌克兰直接相邻的领土上，在黑海，演习的规模最近增加了许多倍”。
-
-**新闻来源**
-
-[Intel: Russia Has Plans to Attack Itself to Blame Ukraine, Then Invade It](https://www.newsmax.com/newsfront/intelligence-russia-false-flag-operation-ukraine/2022/01/14/id/1052462/)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

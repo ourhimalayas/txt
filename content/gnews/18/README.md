@@ -2,43 +2,27 @@
 ---
 
 
-## 澳大利亚再次因未接种新冠疫苗取消了网球名将Novak的签证
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1863574/)
+## 武汉实验室的工作申请只对“支持”共产主义的候选人开放
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1863617/)
 
-作者：银河系农场——骄子
+翻译: wen wu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1178.png)图片来源: thenationalpulse.com
 
+据《国家脉动》2022年1月10日电，在美国国家卫生研究院确认Anthony Fauci资助武汉实验室的功能增强研究后，来自武汉病毒研究所（WIV）的工作申请显示，专门有一节介绍中共国军方现役人员如何申请“有针对的培训”——候选人除了通过政治审查外，还必须“支持中国共产党的领导”并”愿意为社会主义现代化建设服务”。
 
-1月14日，据外媒报道，澳大利亚政府再次因未接种新冠疫苗而取消了网球名将Novak的签证。此前在Novak入境墨尔本就发生过取消签证的事件，这次取消的原因和上次并无二致，移民局的部长认为Novak未接种新冠疫苗不符合公共利益，为维护健康和良好秩序，将这位世界冠军的签证再次吊销。据悉澳网公开赛开赛日为1月17日下周一，距离比赛日期已经非常接近，Novak已经联合律师提起上诉，希望在周日作出裁决，然后周一参加比赛。
+武毒所网页还包括五个附件，其中包含一份“政治审查表”——这份文件通过提出一系列政治问题来评估候选人对中国共产党的忠诚度，完成后将“加盖候选人所在单位的党委、学院或部门的党支部或档案部门的公章”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-199.jpeg)图片来源：CBS NEWS
+武汉病毒研究所将中共现役军人候选人纳入招聘广告中，凸显了该实验室与中国人民解放军的关系，该实验室曾试图从其网站上抹去这种关系。
 
-参考链接 [https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/](https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/)
+新闻来源: [thenationalpulse.com][EXC: Wuhan Lab Job Applications Open Only To Candidates ‘Supporting’ Communist Party, ‘Willing To Serve Socialist’ Goals.](https://thenationalpulse.com/2022/01/10/wuhan-application-only-open-to-ccp-supporters/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-198.jpeg)
+* * *
 
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
-
-
+*审核：蚂蚁兄弟
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

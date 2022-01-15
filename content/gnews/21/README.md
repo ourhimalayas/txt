@@ -2,50 +2,34 @@
 ---
 
 
-## 七哥东北出生地同龄人活得不如猪狗加七哥只剩三个半人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1863566/)
+## 谷歌被控与脸书合谋操纵在线广告销售
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1863597/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e2b3b787664c47acd4f5fc](https://gtv.org/video/id=61e2b3b787664c47acd4f5fc)
+#### **撰稿：**日本东京方舟农场 子辰
 
-**郭文贵先生：**说到这的话，小飞象我要跟你说一下，佳佳你看我出生的地方:山河（村），后来我搬到了赵家沟，我从小玩的13个,欸，这个图出来了啊，你看到这个地方山河赵家沟，你看这个山脉，哎，对了！这个山顶看到没有？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/63C64F18-B305-435A-8F05-3FE6435D8FA0.jpeg)美国德克萨斯州总检察长肯‧帕克斯顿（图片来自《大纪元》）
 
-这个小墨镜这个家伙太可爱了，墨镜这个家伙太可爱，太可爱了，太可爱了，太可爱了。这是个啥地方我没看明白，转来转去的，不知道转哪去了。山河、山河，这山上怎么还有房子？不是这个地方，那山上肯定没房子的啊，他那个地方肯定没房子的，墨镜啊，很高，很高，几乎人上不去的，这不是这个地方。
+据《大纪元》1月15日报道，一份最新的法律诉讼文件显示，在一项由美国多个州联合发起的针对谷歌公司的反垄断诉讼案中，原告指责搜索巨头谷歌与脸书公司勾结，合谋操纵在线广告销售，而两家公司的首席执行官都知道这笔交易，并签字同意。
 
-我再给大家说一下，就是这个老人，我小时候13个跟我一起长大的人，现在所活着的就剩俩了，俩半。有一个人，听说就是大概一年也不洗一次脸，蓬头垢发，就是捡垃圾吃、捡果子吃。然后他弟给了他哥哥种子，他哥给他点粮食吃，就这么个人，
+据《美联社》报道，这份原始诉讼书是在2021年12月提交的，原告上诉谷歌的 “反竞争行为”及相关合作。据了解，该文件是经过编辑的，未经编辑的版本则提供了谷歌母公司Alphabet首席执行官（CEO）桑达尔‧皮查伊（Sundar Pichai）和脸书CEO马克‧扎克伯格（Mark Zuckerberg）参与批准该笔交易的细节。在那之后，脸书公司便更名为Meta。
 
-就是我们剩了俩半了，就加我是三个半，就这个地方。那我们赵家沟那个地方老人，到什么时候，老的时候就在东北的炕上。你很难想象中国东北几乎百分之七八十的人，一家炕，就是我直播间这么大的地方能睡八九个人，父亲、母亲、女儿、儿子、儿媳妇都睡到十几岁离开，是吧？很多还到今天这样，这就是群居呀。
+这份诉讼文件显示，脸书首席运营官谢丽尔‧桑德伯格（Sheryl Sandberg）在2018年的一封电子邮件中明确表示，这是一笔具有战略意义的大交易。
 
-还有一个东北外面就有个牛，有个猪都放到这个就是做锅台的外面，那就是人畜不分呐。你到甘肃，你到广西，今天都是这样子的。你谈养老的时候你们都是城市人，你想想就是七哥出生的地方就是这个样子的。
+在这份邮件中还提到了脸书CEO扎克伯格。诉讼书写道：“当双方敲定这项协议的条款时，该团队直接向CEO（扎克伯格）发送了邮件。”
 
-你知道有一个农民，一年要种多少地现在？农民都出去了，都承包给别人了，一般的种几十亩地才能维持下来，而且种地一吨粮食赚不到500-1000块钱，还且是种精粮，种粗粮的话就可能还赔钱。
+谷歌发言人彼得‧肖腾费尔斯（Peter Schottenfels）在一份声明中辩称，该诉讼指控皮查伊批准了谷歌与脸书的交易是不准确的，并称该诉讼有很多不准确之处，且缺乏相关法律依据。
 
-字幕来源： [2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
+这项诉讼是在德克萨斯州总检察长肯‧帕克斯顿（Ken Paxton）主导下提交的，阿拉斯加、阿肯色、佛罗里达、爱达荷、印第安纳、肯塔基、路易斯安那、密西西比、密苏里、蒙大拿、内华达、北达科他、南卡罗来纳、南达科他、犹他等州以及波多黎各的总检察长也都加入了其中。
 
-编辑整理：Jacques；
+*参考链接：[谷歌被控与脸书合谋操纵在线广告销售](https://www.epochtimes.com/gb/22/1/14/n13505506.htm)*
 
-字幕文件制作：小满；
+* * *
 
-视频制作及上传：Cindy；
+*素材采编：子辰*
 
-G-News发布：小满；
+*编辑：青衣青青*
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 
