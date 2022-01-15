@@ -2,43 +2,64 @@
 ---
 
 
-## 魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1864608/)
+## Twitter新任CEO在短短任期内带来了一波高调的禁令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1864686/)
 
-2022-01-15
+**评论：***如果说Twitter封号是认为用户的言论对美国和民主构成了威胁，那么不能理解的是它却允许很多世界上最邪恶的人在那里畅所欲言。垄断就会产生独裁，Twitter一手遮天的局面在2021年7月已不复存在，我只想说如果Twitter封了你的账号，那么来Gettr吧，Gettr会还你一个青青世界。*
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1204-edited.png)图片来源：Catherine Legault, 义务报档案 
-**魁北克省第一例剥夺未接种疫苗父母探访（子女）的权力的判决**
+据《纽约邮报》 作者：Conor Skelding，2022年1月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1207-e1642269327290.png)推特CEO帕拉格·阿格拉瓦尔
+图片来源：网络
+**批评者说，新任Twitter首席执行官帕拉格·阿格拉瓦尔正在扼杀网站上的自由言论。**
 
-义务报（Le Devoir）于2022 年1月12日发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章称，这是第一例剥夺未接种疫苗父母探访子女的权力的判决。
+**批评者告诉《纽约邮报》，Twitter新任首席执行官帕拉格·阿格拉瓦尔上任的头几个月，验证了人们对他的领导策略将减少网站上自由表达的担忧。**
 
-在涉及一名 12 岁儿童的家庭法案件中，一位父亲由于没有接种COVID-19疫苗，被法官暂时中止了探视权。
+许多高知名度的账户已被禁止——包括一名现任国会议员和一名帮助发明mRNA疫苗技术的病毒学家。
 
-**符合儿童的最大利益**
+**保守派监督机构媒体研究中心的丹·盖诺（Dan Gainor）说：“特别是在上个月，推特似乎加大了对右派人士的审查力度，而且是对那些违背共识的人的审查。”**
 
-专门从事家庭法的经验丰富的律师施尔姆（Sylvie Schirm）在接受采访时说：“这是第一例剥夺未接种疫苗父母探访（子女）的权力的判决”。她指出，在魁北克省裁定涉及儿童的纠纷是根据什么是最符合儿童的最大利益标准来决定的。
+自从阿格拉瓦尔掌权以来，该网站以涉嫌违反其“COVID-19错误信息政策”为由，封禁了众议员马乔里·泰勒·格林（R-Ga.）。
 
-高等法院法官瓦良格（Jean-Sébastien Vaillancourt）在12月23日的裁决中回答了这个问题：“通常情况下，与父亲接触符合孩子的最大利益，但如果父亲没有接种疫苗，并且在当前的疫情下反对现行卫生措施，那么孩子与父亲接触就不符合孩子的最大利益”。
+她在Gettr网站上发帖说：“Twitter因为他们认为的COVID‘错误信息’而禁止我的账户，这相当令人担忧，因为我分享的信息实际上是来自CDC网站。”
 
-瓦良格法官裁定，随着疫情的变化，暂停这位父亲的探视权应该是“短期的”。这位父亲也可以决定接种疫苗来改变这一裁定。因此，法官决定这个裁定的有效期截止至 2022 年 2 月，届时将重新评估每个人的权利。
+众议院少数党领袖凯文·麦卡锡（R-Calif.）抨击了Twitter的操作，并建议，如果大科技公司审查受宪法保护的言论，有效地充当出版商，它应该失去第230条的保护——联邦法律豁免平台对第三方内容的责任。
 
-魁北克省战略传播顾问（Expert-conseil en communication stratégique）让·拜尔拉贡（Jean Baillargeon）于2022 年 1 月 6 日在TVA新闻（TVA NOUVELLES）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了 90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。拜尔拉贡在文章中提议将筛查未接种疫苗的人作为首要工作。只有这样才能平息那些已经完全接种但处于长达两年封锁状态的人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。尽管未接种疫苗的人完全有权拒绝接种疫苗，但他们必须承担后果，因为这是他们的选择。魁北克省政府将很快会针对未接种疫苗的人群采取进一步措施。例如，对未接种疫苗的人群征收“疫苗税”，以及限制未接种疫苗的人群进入大型超市，甚至限制未接种疫苗的人群进入所有公共服务中。
+Twitter还永久禁止了罗伯特·马龙博士——他被广泛认为是辉瑞和Moderna COVID-19免疫中使用的mRNA技术的发明者——但没有指明违规内容。马龙的帖子曾质疑COVID-19疫苗的功效。
 
-另外，蒙特利尔日报于2022 年 1 月 6 日报道，从 1 月 18 日起，未接种疫苗的人将无法再进入魁北克省酒业协会 SAQ （一家政府垄断的公司，其职责是在魁北克省全境经销酒精饮料）和魁北克省大麻协会 SQDC （SAQ 的子公司，其职责是管理魁北克省全境的大麻销售）的所有分支机构。魁北克省很快还将对美发沙龙等其他非必要业务实施疫苗护照。
+另一位科学家，谢菲尔德大学专门研究止血和血栓的Michael Makris教授，不得不删除一条关于正在开发的新型COVID-19疫苗的推特，否则将面临禁言。
 
-文章编译及评论人提醒读者，邪恶势力自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。在针对未接种疫苗的人群而采取的不得已的措施——宵禁令，出台后，魁北克省政府开始请求联邦援助，部署加拿大武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模和快速地进行。魁北克省政府还会针对未接种疫苗的人群采取更多的其它措施。病毒仍在传播，疫情正在爆发，大家必须格外小心。每逢佳节倍思亲，全球的战友们大家新年好。魁北克省的战友们，晚上一定要在十点前回家，违者罚款起价最低一千加元。
-本文朗读音频
-**参考资料**：
+Just The News的创始人约翰·所罗门被暂停使用推特，因为他在推特上发表了一篇关于食品和药物管理局的声明，即完全批准的Comirnaty疫苗与紧急批准的Pfizer-BioNTech产品“在法律上是不同的”，后者在美国更广泛地使用。
 
-1. 义务报，Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日， «Un père non vacciné perd temporairement le droit de voir son enfant». [https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant](https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant)
-2. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08， «Dépistons et confinons les non-vaccinés». [https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
-3. 蒙特利尔日报，Le Journal De Montreal，吉纳维芙·拉乔伊GENEVIÈVE LAJOIE 2022 年 1 月 6 日星期四 10:44， Les non-vaccinés refusés à la SAQ et à la SQDC dès le 18 janvier. [https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure](https://www.journaldequebec.com/2022/01/06/les-non-vaccines-refuses-a-la-saq-et-la-sqdc-quebec-songe-a-imposer-le-passeport-vaccinal-dans-les-salons-de-coiffure)
+据报道，流行的新闻聚合网站Politics for All——由《旁观者》社交媒体编辑尼克·莫尔（Nick Moar）创立——也因未指明的“平台操纵”而被禁止。
+
+从推特被永久删除还有Mystery Grove Publishing Company，这是一家出版绝版书籍的小型出版社，例如最后一位白俄罗斯总司令彼得·弗兰格尔 （Pyotr Wrangel） 的回忆录。
+
+盖诺说，在阿格拉沃尔的领导下，思想监管工作比推特创始人和前首席执行官杰克·多尔西“更加公开”，他的雇主经营着censortrack.org，该网站汇总了网上言论压制的例子。
+
+他还注意到，在国会大厦骚乱一周年前后，Twitter成立了一个新的“跨职能工作组”，以监测和审查言论。
+
+亚利桑那州参议员候选人布莱克·马斯特斯告诉《纽约邮报》：“听起来很奥威尔式。他们不希望政治立场正确的人讨论1月6日的事情。”
+
+马斯特斯是一名活跃的推特用户，他说他注意到高调禁言的“上升”，以及几次不分青红皂白的大规模账户“清洗”。
+
+与此同时，前《纽约时报》记者和禁闭怀疑论者亚历克斯·贝伦森（Alex Berenson）就他在2020年8月被禁一事起诉这家价值320亿美元的科技公司，称推特可能是“代表联邦政府”禁止他行事。
+
+他于12月20日向加州联邦法院提交的诉状说：“行政部门高级官员——包括拜登总统本人——在2021年7月的声明中呼吁此类公司进行审查，而推特则立即对贝伦森先生采取了相应的行动，这意味着这个问题值得仔细研究。”
+
+Twitter没有回复评论请求。
+
+文章来源:[https://nypost.com/2022/01/08/twitter-ceo-parag-agrawal-has-brought-wave-of-high-profile-bans/](https://nypost.com/2022/01/08/twitter-ceo-parag-agrawal-has-brought-wave-of-high-profile-bans/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 好人有好报
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
 
 
-审核发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

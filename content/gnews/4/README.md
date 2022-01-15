@@ -2,25 +2,31 @@
 ---
 
 
-## 荷兰封锁结束，咖啡馆和文化场所仍然关闭
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1864870/)
+## 有声|天津107例感染者中103人已全程接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864932/)
 
-作者：SC
+配音：香草山教育部 – Rose
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间1月13日，据中共国内媒体消息显示，中共天津市卫生健康委员会的官员在当天的病毒疫情新闻发布会上表示，该市已对现有的107例中共病毒感染病例进行了完整的调查分析。
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-4.tiff)插图: DPA
-2022年1月15日
+而这些报告指出，在所有感染者中，有103例患者已经完成了中共病毒疫苗的全程接种，其中，有32人还接种了疫苗加强针。此外，有3例患者仅接种了一剂次灭活疫苗，只有1例患者尚未接种任何疫苗。
 
-经过近四周的时间，在企业家的强大压力下，荷兰结束了严格的新冠封锁。但严格的措施仍然存在。商店、理发店和体育俱乐部以及大学允许从星期六开始重新运营。
+相关人士则评论称，目前，来自全球的数据都已明确显示出，全程接种中共病毒疫苗及其加强针非但不能预防接种人群感染中共病毒，反而会造成更高的感染率。
 
-这是总理马克-吕特（ Mark Rutte）晚上在海牙宣布的。然而，餐馆、博物馆、剧院和电影院仍然关闭。餐厅老板和文化部门感到愤怒。考虑到急剧上升的感染数字，不能同时开放更多部门，吕特说。“所有场合同时开放是不可能的，风险太大。” 他说，月底可能会有新的放松措施。
+文字版原文：[天津107例感染者中103人已全程接种疫苗](https://gnews.org/zh-hans/1860101/)
 
-卫生部长恩斯特-凯珀斯谈到了 “大流行病的新阶段”。公民和企业家们的苦恼是巨大的。”我们必须学会与病毒共存。然而，卫生系统负担过重的风险仍然很高。(DPA/SC)
+音频处理：Fei797
+发稿：Fei797
 
-新闻链接：https://www.grenzecho.net/68109/artikel/2022-01-15/lockdown-vorbei-cafes-und-kultur-bleiben-dicht
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
