@@ -2,76 +2,39 @@
 ---
 
 
-## 01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1864289/)
+## 英国报告称 疫苗死亡率远高于普通人群
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864503/)
 
-搜集/整理：卡西欧
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0115fenmian.jpg)
-封面素材：[独立记者「爆炸头」](https://www.instagram.com/boomheadhk/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.18.34-AM.png)
-**1. ****理大冲突案****9****人暴动罪成****   ****其中****7****人判囚****38****至****40****个月**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**当地时间1月14日，据相关媒体报道，英国政府公布的最新数据显示，完全接种过中共病毒疫苗的群体，其死亡率超过未接种人群的286%。**
 
-[据【香港电台】01月15日讯，2019年11月理大及附近一带发生冲突，有9名男女经审讯后被裁定暴动等罪成，今日在区域法院判刑，其中两名20岁男子被判入教导所，其余被告分别判监38个月及40个月。](https://news.rthk.hk/rthk/ch/component/k2/1629003-20220115.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-9.jpeg)
 
-[法官林伟权判刑时表示，修例风波引发一连串暴力事件，许多参加者是年轻人，本案全部被告都是年轻人，入世未深，怀着改变社会的理念，却用错方式表达，法庭判刑时必须考虑阻吓性，但强调刑罚不应过重，以免造成压倒性影响，年轻人将来仍要重投社会。](https://news.rthk.hk/rthk/ch/component/k2/1629003-20220115.htm)
+相关研究指出，自全球大规模接种中共病毒疫苗以来，医院里充斥着因接种疫苗而患病的人群，而即使他们接受了特别的护理，仍有很多患者不幸死亡。当前，全球已有超过100万人因接种中共病毒疫苗而遭受了严重副作用或者死亡。值得注意的是，由于各国政府的保守统计，这一结果可能严重低于真实数据。
 
-[9名被告均面对一项暴动罪，同被控于2019年11月18日，在加士居道拔萃女书院外与其他身分不详的人士参与暴动。 9人中，包括当时为学生、机电工程师、设计师及无业等。](https://news.rthk.hk/rthk/ch/component/k2/1629003-20220115.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.18.43-AM.png)
-**2. ****梁锦威昨遭刊宪****DQ   ****生效日期回溯至去年****11****月****12****日**
+数据表明，中共病毒疫苗高接种度人群也是未来高死亡风险人群，其原因在于，导致人们死亡的正是所谓的“疫苗”，而非中共病毒本身。相较而言，未接种中共病毒疫苗的人群，其免疫系统和DNA不受疫苗带来的负面影响。
 
-[据【独立媒体】01月15日讯，政府昨日刊宪，宣布葵青区议会主席梁锦威的议席由去年11月12日起悬空。根据《区议会条例》，区议员若被判囚超过3个月，其议席才会悬空；翻查资料，梁锦威虽在去年11月1日，已就六四31年集会案认罪，但他在去年12月才被判囚9个月，意味着他在判刑前已被DQ(褫夺议员资格)。](https://www.inmediahk.net/node/政經/梁錦威昨遭刊憲dq-生效日期回溯至去年11月12日)
+另据美国保险业巨头的有关报告提及，近期，整个保险行业的死亡索赔率上升了40%，这明显是因中共病毒疫苗导致的连锁反应。
 
-[民政事务总署以电话回覆《独媒》时表示，当局是根据《刑事上诉规则》第221A章第29条，在梁被定罪后10天取消其议席。](https://www.inmediahk.net/node/政經/梁錦威昨遭刊憲dq-生效日期回溯至去年11月12日)
+对此，有媒体评论，将完全接种中共病毒疫苗后导致死亡的病例标记为死于中共病毒的行为是让人绝望和偏离事实的，因为疫苗才是导致患者死亡的真正原因。
 
-[翻查资料，梁锦威在去年11月1日，就六四31年集会案承认一项「煽惑及参与未经批准集结」罪及一项「明知而参与未经批准集结」罪，由该案属传票案件，被告不需任何保释条件，惟梁当时因涉支联会拒交资料案而须还柙。去年12月13日，他被判囚9个月，其后再在支联会拒交资料案中认罪，判囚3个月，两案合共监禁11个月。](https://www.inmediahk.net/node/政經/梁錦威昨遭刊憲dq-生效日期回溯至去年11月12日)
+参考链接：[U.K. government says vaccinated are dying at a rate 286% higher than unvaccinated](https://dreddymd.com/2022/01/14/u-k-government-vaccinated-dying-286-percent-higher-than-unvaccinated/)
 
-[梁锦威自2012年起，出任葵涌村北选区区议员，并连任三届。去年7月爆发民主派区议员辞职潮，梁当时表明不会辞职，接任成为葵青区议会主席。梁锦威被DQ后，葵青区议会只剩下8人，当中5人为建制派，意味着主席一位亦将由建制派把持。](https://www.inmediahk.net/node/政經/梁錦威昨遭刊憲dq-生效日期回溯至去年11月12日)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.18.52-AM.png)
-**3. ****网上流传海关人员疑插赃嫁祸　海关澄清绝无此事**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-[据【香港电台】01月15日讯，网上流传有人在深水埗目睹海关便装人员插赃嫁祸一名少数族裔青年，海关发言人严正澄清绝无此事。](https://news.rthk.hk/rthk/ch/component/k2/1629010-20220115.htm?spTabChangeable=0)
+总编：Ivy001 
+编辑：百香果
+校正/发稿：谐趣园
 
-[事发于昨天傍晚6时许，目击者Azmat途经北河街与基隆街交界，一名男子走向一名印度汉Ashuk Kumar（34岁），要求他签名收货，Azmat在帖文声称：「他（青年）坚持不要，又不认识他，货也不是他的；该探员转而用哀求语气，表示是『第一天上班』，『帮帮手签个名』等。 」当印度汉签收后大批关员即一拥而上将他拘捕，其中一名目击者怀疑海关插赃嫁祸印度汉。](https://news.rthk.hk/rthk/ch/component/k2/1629010-20220115.htm?spTabChangeable=0)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[海关表示，所有行动均根据事实证据，専业执法，公正公允。对于有人在社交媒体声称海关有所谓「插赃嫁祸」，海关对此不负责任言论予以谴责。](https://news.rthk.hk/rthk/ch/component/k2/1629010-20220115.htm?spTabChangeable=0)
-
-[【评论】印巴裔虽说是香港的少数族裔，但亦占总人口近8%，绝对不是少数。因为都算是英联邦国家，很多都是几代人生活在此，并且在二战时与英军并肩抗日，说他们是地道香港人一点都不过份。海关这次有目的地插赃，应该是有目的挑起港人内斗，就像中共在大陆当年的斗地主，斗臭老九一样。](https://news.rthk.hk/rthk/ch/component/k2/1629010-20220115.htm?spTabChangeable=0)
-
-[现在面对被抓包的视频，海关的回应更显得可耻和可笑。](https://news.rthk.hk/rthk/ch/component/k2/1629010-20220115.htm?spTabChangeable=0)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.19.02-AM.png)
-**4. ****多个政府部门再到外佣惯常聚集点采取联合行动**
-
-[据【香港电台】01月15日讯，食环署继上星期后，本周末再次联同多个政府部门，外佣惯常聚集地点进行跨部门联合行动，呼吁他们提高防疫意识，保持环境清洁卫生、遵守防疫规例及限制，包括群组聚集及佩戴口罩的规定。](https://news.rthk.hk/rthk/ch/component/k2/1628998-20220115.htm)
-
-[参与部门还包括警务处、劳工处、入境处及康文署，人员在湾仔、中西、旺角、油尖、沙田、荃湾及西贡多个外佣周末及假日聚集的公众地方，采取跨部门联合行动。食环署除安排洁净服务承办商加强街道洁净服务外，亦加派人员巡逻以打击乱抛垃圾和无牌小贩摆卖活动。](https://news.rthk.hk/rthk/ch/component/k2/1628998-20220115.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.19.12-AM.png)
-**5. ****政府收紧空运措施　****生果进口商：成本上升入货量减半**
-
-[据【Now新闻台】01月15日讯，受疫情影响政府收紧空运措施，影响外国食材及生果等来港。](https://news.now.com/home/local/player?newsId=463283)
-
-[本港很多生果要靠空运入口，政府收紧空运措施令成本上涨，有生果进口商指，现时无法可产地直送抵港，令成本上升，因此较往年入货入少一半。](https://news.now.com/home/local/player?newsId=463283)
-
-[除了生果，不少海鲜亦是空运供港。有中菜厅的负责人指，近日龙虾、鲍鱼等海鲜来货价上涨了两至三成，现时已经不会预先入货。](https://news.now.com/home/local/player?newsId=463283)
-
-[有餐厅负责人指，禁晚市堂食已经是一大打击，再加上食材成本上升，担心会有不少食肆于新年后就结业。](https://news.now.com/home/local/player?newsId=463283)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.19.26-AM.png)
-**6. ****创科局正研究于「安心出行」快速显示疫苗接种证明**
-
-[据【香港电台】01月15日讯，食物及卫生局局长陈肇始在出席本台节目时透露，创新及科技局正努力研究在「安心出行」应用程式快速显示接种疫苗证明，令表列处所负责人尽快知悉，当局亦会有另一个应用程式给予表列处所，会尽力在下月4日处理好。](https://news.now.com/home/local/player?newsId=463283)
-
-[被问到何谓疫情有无逆转，以及是否清零才可放宽防疫措施，陈肇始说，评估是多方面的，要看整个形势，确诊个案数目是其中一个考虑，亦需要由卫生防护中心评估社区的传播链，但她有信心现行措施有效。](https://news.now.com/home/local/player?newsId=463283)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-10.19.35-AM.png)
-**7. ****聂德权：政府计划下周开放让****5****至****11****岁儿童打科兴疫苗**
-
-[据【香港电台】01月15日讯，公务员事务局局长聂德权表示，政府计划下星期在社区疫苗接种中心及私家诊所，开放让5至11岁小童接种科兴疫苗，在农历年后相信会开一间疫苗接种中心，专门为5至11岁小童接种复必泰疫苗。](https://news.rthk.hk/rthk/ch/component/k2/1628988-20220115.htm?spTabChangeable=0)
-
-[聂德权提到，本港5至11岁人口约有40万，一个小童复必泰接种点并不足够。他们可亦会与教育局及校方商讨，过年后进行科兴的外展接种工作。](https://news.rthk.hk/rthk/ch/component/k2/1628988-20220115.htm?spTabChangeable=0)
-
-[他表示，本港目前一日可以接种4万5千剂疫苗，一个月大约接种137万剂疫苗，到本月底可以接种177万剂，即每日接种约6万剂，接种容量较月初提升。](https://news.rthk.hk/rthk/ch/component/k2/1628988-20220115.htm?spTabChangeable=0)
-
-[他又说，医管局目前有两间普通科门诊为市民接种疫苗，未来会增至25间，当中11间用于接种复必泰，14间用作接种科兴。](https://news.rthk.hk/rthk/ch/component/k2/1628988-20220115.htm?spTabChangeable=0)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
 
  
 

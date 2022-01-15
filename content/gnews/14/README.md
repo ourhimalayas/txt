@@ -2,22 +2,26 @@
 ---
 
 
-## 使用蔬菜疫苗来说服拒绝接种疫苗者：制药公司的最新想法
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1864825/)
+## 普京在玩“冒险骰子”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1864850/)
 
-#### 翻译            意大利达芬奇农场                       小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-15-alle-17.26.33.png)图片来源：ilparagone.it
-新冠病毒大流行以来，他们一直试图促使未接种疫苗的人接种疫苗。刚开始给打完针的青少年提供免费冰激凌，然后是病毒学家发出的威胁，政府采取了十分强硬的措施来对待抵抗。如今，他们又再次尝试，那些医药公司在抗击新冠病毒中赚取了大量的钱财，他们正在研究蔬菜疫苗。
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011503.jpg)网络图片
+经验丰富的外交官预计欧洲将面临艰难的几周：弗拉基米尔普京玩“冒险骰子”。
 
-正像朱利安诺• 阿鲁非在《星期五》杂志上所描述的那样，这是一种与烟草很接近的植物，很快将会问世，它与欧洲医药管理局已经批准的五种药物一起，作为一种新型的抗新冠药物。这是加拿大Medicago 生物技术公司开发的，它正与英国的GlaxoSmithKline 一起研发，并宣布已经到了实验的最后阶段。
+“普京拥有所有武器，但俄罗斯社会似乎并不热衷于对乌克兰的长期战争。开始战争将是一次冒险的掷骰子。“一位经验丰富的美国外交官评估说。
 
-大约有两万四千人参加了实验，这是Medicago 公布的数据，它对新冠病毒的防御率达百分之七十五，它产生的抗体量比恢复期受试者血液中形成的抗体量高10至15倍。公司期望蔬菜疫苗能够说服世界上一部分拒绝接种疫苗的人能够改变他们的想法。
+美国外交官、前负责欧洲事务的副国务卿和前波兰大使丹尼尔·弗里德评估，欧俄关系将面临“艰难的几周”。“弗拉基米尔·普京希望他的帝国回来。他想改变冷战的结束，夺回莫斯科的统治权。美国和欧洲不应参与其中。他们必须有耐心、有决心，并对挑衅做出坚定的反应。然后，克里姆林宫只能找到一种方法，从威胁性要求转向更有成效的欧洲安全辩论。这条路在前方，但未来几周可能会很艰难，”弗里德在英国《金融时报》的一篇评论文章中说。
 
-这一产品比mRna疫苗便宜，蒙特利尔MeGill大学生物工程教授阿米内•卡门 ( Amine Kamen)解释道：因为不需要昂贵的生物反应器，在温室里就足够了，因为最重要的研究部分是发生在植物的叶子里。如果能遵循原定的时间，蔬菜疫苗应该在2022年底问世。
+他预测，俄罗斯的挑衅将在未来几周内增加。据弗里德说，这些可能是网络攻击，也可能是针对乌克兰的小型军事行动。“然而，我们在冷战期间就已经看到，这种暴政使得俄罗斯经济软弱、政治脆弱，最终无法承受与美国和欧洲的长期对抗。普京拥有所有武器，但俄罗斯社会似乎对与乌克兰的长期战争并不热衷。开始这对普京来说将是一个冒险的骰子。”
 
-原文链接：[https://www.ilparagone.it/attualita/un-vaccino-vegetale-per-convincere-i-no-vax-lultima-idea-delle-case-farmaceutiche/](https://www.ilparagone.it/attualita/un-vaccino-vegetale-per-convincere-i-no-vax-lultima-idea-delle-case-farmaceutiche/)
+弗里德建议欧洲等待。“最终，西方的统一将获胜。”
 
-编辑、上传： Xiao    baige
+[新闻链接](https://www.msn.com/fi-fi/uutiset/politiikka/kokenut-diplomaatti-ennakoi-vaikeita-viikkoja-eurooppaan-vladimir-putin-pelaa-riskialtista-noppaa/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
 
  
 

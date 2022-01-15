@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|泄漏文件显示中共高层为冬奥严控疫情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864953/)
+## 很多内容（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1864985/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间1月12日，知情人士在盖特平台上披露了一份关于中共陕西省政府的防疫公文。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-该公文显示，陕西省省长赵一德在2021年12月24日的陕西省疫情防控调度会上声称，时逢冬奥会召开在即，为了所谓的“国家形象”，陕西省必须在防疫问题上从严、从紧并严肃追责、问责，还要以最强硬的举措阻断传播链条。至于如何照顾当地民众的生活需求，赵一德只以一句“稳定大局”的空话将其带过。
+因为他自己知道答案是，自己不是百分之权力，你比刘少奇和林彪，都是尊重最有影响的, 所以他用林彪干掉刘少奇，而刘少奇是文化大革命发起最关键的支持人，就是结果把他（刘少奇）干掉了，报应吧？今天的习是一模一样的，习是觉得自己，我有许其亮啊，而且所有的军人该抓都要抓完了，几个大佬都听我的。刘亚洲为啥被抓？刘亚洲就是属于不听话的嘛，是吧？那就不会听的嘛，他觉得有张又侠啊这些家族。包括徐九麟这样的，他觉得我能干你们，还有老薛啊，还有老丁，他觉得这都是跟我一起长大的，我能弄你们， 而且我是福建军队，他深信不疑的，他不认为自己不掌握军队。包括毛主席临死以前就是对江青很反感，他都要把张玉凤列为常委，让张玉凤任军委副主席，是吧？记住，独裁最后的狂妄就像希特勒一样，我以一个梦游者的自信走向我的人生目标，就是这样子的啊， 他还在梦游状态，现在不存在他的所谓的能不能的问题了啊，这个事是一定会发生的，但最后一定是黄粱一梦啊！
 
-另据相关人员透露，西安市内的物资分配目前严重两极分化：大多数普通民众正面临着缺乏生活物资、被强制驱离居所和挨饿受冻的情况，但权贵家庭却享受着官方亲自送达丰富特供食物的待遇。
+主持人的问题，郭文贵回答———-像刚才小新你看，一开始说叫螃蟹一个口误叫战友的事情，你就紧张到几次重申，这是爆料革命！。最近发生了一个很让人不开心的一个开头, 就是我们战友啊，抓住某个战友的口误或某个战友在国内的习惯行为，盖上大帽子就是特务，就像你害怕的这个恐惧的原因，就是担心某天某日你说成我们的战友就把你定成这样, 我跟你说实话，这是七哥首先我要接受，大家都不是完人，也不会加入爆料革命就不一样了，说他有个循序渐进的过程，我可以接受。任何人犯错误，但是就这种过程当中，七哥也是痛苦的，大家都是痛苦的。就为什么让小新恐惧到这个程度呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/很多内容-（一）-.jpg)
+发布：tianzhihuan
 
-对此，分析人士则指出，中共的防疫政策只以达成中共政治目标为目的，在此情况下，除了需要照顾好中共权贵人士外，墙内的一般民众只是随时可以被牺牲、放弃的工具。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-文字版原文：[泄漏文件显示中共高层为冬奥严控疫情](https://gnews.org/zh-hans/1860020/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

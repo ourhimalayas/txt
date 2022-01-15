@@ -2,42 +2,27 @@
 ---
 
 
-## 欧洲议会主席大卫-萨索里去世 享年65岁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864854/)
+## 威斯康星州法官裁定：缺席投票箱非法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864903/)
 
-**作者：七龙珠**
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-4.png)威斯康星州米姆镇的投票站
+图片来自 Royalbroil
+威斯康星州的一名法官裁定，州法律不允许在 2020 年选举期间广泛部署的缺席投票箱，这一决定可能会极大地影响摇摆州中期选举前的投票。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip03-3.png)他的发言人和华盛顿议会办公室表示，欧洲议会主席大卫·萨索利周二凌晨在意大利去世。 他已经 65 岁了。
+沃克夏(Waukesha)县巡回法院法官迈克尔·博伦(Michael Bohren)周四下令威斯康星州选举委员会撤回其对选举官员关于如何使用投递箱的指示。博伦宣布，威斯康星州选举委员会在发布该指南时越权了。
 
-欧洲议会主席大卫-萨索里的发言人罗伯托-奎罗在推特上宣布，“欧洲议会主席大卫-萨索里在意大利住院两周多后，因免疫系统功能失调后的并发症，于1月11日周二凌晨1点15分去世，享年65岁”。
+点评：只有保障各个投票程序的合法，才能保障选举的公正！
 
-去年9月感染肺炎后，戴维-萨索里在意大利进行了两个多月的康复治疗，曾经回到了政界，12月26日他因“免疫系统功能失调后的严重并发症”被送回意大利医院。
-
-大卫-萨索里的死亡的消息传开后，引发了网络上一部分人寻找他的死亡与疫苗之间的可能联系，想知道这位欧盟主席是否接种了疫苗。众所周知，萨索里是大规模接种新冠疫苗的伟大倡导者。他认为这种新冠疫苗是对付冠状病毒大流行的唯一武器。因此，一直有人认为他的死亡与疫苗有关。尽管目前官方对他死亡的原因还没有定论，但这已是事实。
-
-大卫-萨索里他是否接种了新冠疫苗？什么时候接种的？
-
-这些是许多人在网上提出的问题。可以肯定的是，萨索里至少接种了一剂新冠疫苗。他的发言人罗伯托-奎罗称，欧盟主席大卫-萨索里死于“免疫系统功能障碍导致的严重并发症”。
-
-因为在网络上无法找到萨索里在哪里以及何时接种疫苗的信息，有网友说：“名人的死亡与疫苗接种运动齐头并进，这种混乱的局面不是为‘网络阴谋论者’开脱，只是想给出一个‘无知有多糟糕’的解释。而且奇怪的是，我们什么信息都找不到。”
-
-“如果他是因为疫苗而死，为什么没有人说些什么？”网友在社交媒体上抱怨道。
-
-不管网友怎么说，萨索里是肯定接种了疫苗。当他去年9月因肺炎住院时，他的新冠检测结果为阴性。当时，许多媒体就已经证实他接种了疫苗。
-
-无论如何，这是欧洲议会历史上第一次有现任主席去世，有人开始质疑并试图揭开被主流媒体所谓的“全球阴谋”。
-
-**新闻来源**：[eddiba.com][Muere el presidente del Parlamento Europeo, David Sassoli, a los 65 años](https://www.eddiba.com/%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E4%B8%BB%E5%B8%AD%E5%A4%A7%E5%8D%AB%C2%B7%E8%90%A8%E7%B4%A2%E5%88%A9%E5%8E%BB%E4%B8%96%EF%BC%8C%E4%BA%AB%E5%B9%B4-65-%E5%B2%81/)
+**新闻来源**：[creativedestructionmedia.com][Judge Rules Absentee Ballot Drop Boxes Illegal In Wisconsin, Regulators Must Retract Guidance](https://creativedestructionmedia.com/news/politics/2022/01/14/judge-rules-absentee-ballot-drop-boxes-illegal-in-wisconsin-regulators-must-retract-guidance/)
 
 * * *
 
-***审核：Aries的星
+***审核：文乐
 校对：阿伯塔
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
-
-
 
  
 

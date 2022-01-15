@@ -2,27 +2,28 @@
 ---
 
 
-## 威斯康星州法官裁定：缺席投票箱非法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864903/)
+## 欧盟监管机构表示中共疫苗加强针可能会损害人体免疫系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1864961/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-4.png)威斯康星州米姆镇的投票站
-图片来自 Royalbroil
-威斯康星州的一名法官裁定，州法律不允许在 2020 年选举期间广泛部署的缺席投票箱，这一决定可能会极大地影响摇摆州中期选举前的投票。
+撰稿：西枫westca
 
-沃克夏(Waukesha)县巡回法院法官迈克尔·博伦(Michael Bohren)周四下令威斯康星州选举委员会撤回其对选举官员关于如何使用投递箱的指示。博伦宣布，威斯康星州选举委员会在发布该指南时越权了。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-8.jpg)图片来源：网络照片
+据《国家脉动》1月15日报道， 欧盟监管结构已经发出警告，频繁的COVID-19加强针可能对免疫系统产生不利影响，并且可能不是对抗该大流行病的可行手段。欧洲药品管理局（EMA）报告说，每四个月重复注射加强针可能会削弱人体的免疫系统。
 
-点评：只有保障各个投票程序的合法，才能保障选举的公正！
+EMA的生物健康威胁和疫苗战略负责人Marco Cavaleri在一次新闻发布会上表示，加强针 “可以做一次或也许两次，但我们认为这不应该一直重复”， “我们需要考虑如何从目前的大流行环境转向地方性感染的环境”。Cavaleri进一步表示，通过给人们持续的追加注射，有可能使免疫系统负担过重，使肌体中产生疲劳。
 
-**新闻来源**：[creativedestructionmedia.com][Judge Rules Absentee Ballot Drop Boxes Illegal In Wisconsin, Regulators Must Retract Guidance](https://creativedestructionmedia.com/news/politics/2022/01/14/judge-rules-absentee-ballot-drop-boxes-illegal-in-wisconsin-regulators-must-retract-guidance/)
+EMA目前的建议是，各国应该在加强针之间留出更多时间。
 
-* * *
+EMA的声明遵循了用于流感疫苗接种的方法。目前，各国正在提供第二剂的加强针，以对抗Omicron变种，尽管没有什么证据表明这一方式对解决病毒及其传播有作用。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+辉瑞公司最近宣布，他们的Omicron特异性疫苗应该在3月初上市，但EMA表示，他们批准疫苗的过程需要三到四个月，4月是批准任何新疫苗的最快日期。第一例Omicron变体于2021年12月在美国被发现。第一个样本是在11月9日发现的，这意味着辉瑞公司如果打算在3月或4月前获得批准，就只有不到几个月的时间来开发他们的变异特异性疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
+自大规模疫苗接种任务开始以来，出现了各种问题，如英国卫生工作人员在接受疫苗时出现过敏反应。2021年12月底，《纽约时报》的一名编辑在接受Moderna强化注射后一天死亡。美国广播公司(ABC)的附属机构也报道说，COVID疫苗可能对男性的生育能力有可能产生影响。
+
+EMA的最新声明表明，他们对缺乏COVID-19的加强针长期数据感到担忧。由于缺乏支持这种方法作为度过大流行病的手段的数据，Cavaleri对反复疫苗加强针表示怀疑。
+
+**新闻来源：**[Repeat Boosters Could Weaken Immune System Say European Regulators. (thenationalpulse.com)](https://thenationalpulse.com/2022/01/15/repeat-boosters-could-weaken-immune-system-say-european-regulators/)
 
  
 
