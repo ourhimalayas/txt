@@ -2,34 +2,14 @@
 ---
 
 
-## 英情报部门警告议员注意中共统战渗透
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864590/)
+## 数字银行投资KYC时如果投资者的资料不真实会发生什么后果
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1864605/)
 
-撰稿：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月14日报报道，近日英国对内情报机构军情五处，向国会警示说，一名李姓中共国女子与中共中央统战部有关联，已秘密涉入干预英国政治活动。
+#### 加拿大温哥华扬帆农场 蓝枫法律
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a383d42773b7dde069da90fcc5bcf8d0.jpg)图片源自网络
+有一些是Honest Mistake，即合理的错误，比如说数目没有对上。但有一些是故意做的错误，比如说更换了名字，这种情况，投资机构虽不至于去备案，但他可以选择拒绝你，这样的话前面所做的工作努力就都没有了，在整个过程中只有KYC通过了，投资机构才会接受你的转款，KYC没有通过他不会接受你的资金。
 
-军情五处警示指出，一位游走在英国政治圈、名叫李贞驹的女性律师，与中共统战部秘密合作。经研判，中共统战部企图借李贞驹与英国跨党派议员建立联系，以秘密干预英国政治，还试图与具有影响力的人物培养关系，以确保英国的政治形式对中共有力。调查结果显示，李贞驹涉入对政党、议员、以及谋求官职人士的资助行为，资金来源包括在香港的非英国籍人士，她曾公开自称代表在英国的中共国人利益。
-
- “对华政策跨国议会联盟”声明说，针对中共代理人已成功与部分议员，以及重要国会团体建立影响深厚的关系，表示深感不安。英国议会下院外交委员会主席图根哈特称，来自北京的挑战显然在增加，英国必须捍卫民主制度，确保此制度不受恶意行为损害。
-
-参考链接：[https://cn.rti.org.tw/news/view/id/2122096](https://cn.rti.org.tw/news/view/id/2122096)
-
-总编：童谣
-校正/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑/发文：蓝枫法律栏目
 
  
 

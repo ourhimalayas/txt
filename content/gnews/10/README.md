@@ -2,22 +2,22 @@
 ---
 
 
-## 美国军事文件与福奇关于功能增强、Veritas 项目的宣誓证词相矛盾
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864667/)
+## 立法者抨击拜登大流行应对措施，专家质疑疫苗全面授权策略
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864697/)
 
 翻译: wen wu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1206.png)图片来源 : dailyexpose.uk
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1209.png)图片来源: childrenshealthdefense.org
 
-据《吹哨人》2022年1月12日电，军事文件指出，生态健康联盟于2018年3月与DARPA接洽，寻求资金对蝙蝠携带的冠状病毒进行功能增强研究；该提案被命名为“化解项目”（Project Defuse），但由于安全问题和违反功能增强研究暂停令的概念，被DARPA拒绝。
+据《捍卫者》2022年1月12日电，在周二的参议院卫生委员会听证会上，排名第一的共和党人理查德·伯尔（Richard Burr）指责拜登政府未能协调有关核酸测试、加强针和隔离建议的政策，甚至在医学和法律专家质疑拜登的中共病毒（新冠病毒，COVID19）疫苗任务的合法性。
 
-真相工程（Project Veritas）获得了令人震惊的从未见过的文件，涉及Covid-19的起源、功能增强研究、Covid19疫苗、被压制的潜在治疗方法（伊维菌素），以及美国政府为掩盖这一切所做的努力；这是一份由美国海军陆战队少校约瑟夫·墨菲（Joseph Murphy，DARPA前研究员）写给国防部监察长的单独报告。
+伯尔称疫苗加强针的推出是一场灾难，并说最近关于隔离期的信息更新让人们”感到困惑”。伯尔还抱怨说，安东尼·福奇博士和疾病控制和预防中心（CDC）主任罗谢尔·瓦伦斯基博士关于检疫的信息，是不明确的：12月下旬，CDC将自我检疫的时间从14天缩短到10天。Fauci建议可能需要进行COVID测试，结果是阴性才能结束这种较短的检疫；Walensky并不同意，只表示人们只有在仍然感到不适时才应进行核酸测试和/或继续检疫。
 
-根据这些文件，NIAID在Fauci博士的指导下，在中国武汉和美国各地的几个地点进行了这项功能增强（生物武器）研究；Fauci博士在宣誓后一再坚称，美国国立卫生研究院（NIH）和NIAID并没有参与生态健康联盟项目的功能增强研究；根据Project Veritas获得的文件，其中概述了生态健康联盟的提案被拒绝的原因，DARPA肯定将该研究归类为功能增强。
+正如因发现人类免疫缺陷病毒而于2008年获得诺贝尔奖的吕克·蒙塔尼耶博士（Dr. Luc Montagnier）在周一的《华尔街日报》上写道：”根据美国疾病控制和预防中心的估计，截至1月1日，Omicron占美国COVID病例的95%以上。由于Omicron的50个突变中的一些已知可以穿透抗体保护，且这些变体中有30多个是对现有疫苗用作免疫原的刺突蛋白的突变，并且在大量接种疫苗的人群中大规模爆发，科学家们非常不确定现有疫苗能否阻止Omicron的传播。“
 
-墨菲少校的报告还详述了，对Covid-19功能增强计划、文件的隐瞒、对潜在治疗药物（如伊维菌素和羟氯喹）的压制，以及mRNA疫苗的极大关注。
+蒙塔尼耶和他的合著者、宪法学者杰德·鲁本菲尔德认为，美国政府的疫苗政策的科学依据现在已经过时了，因为疫苗无法抑制中共病毒；现在连CNN的杰克·塔珀都在质疑政府的大流行病数据，而拜登政府因为处理大流行病的不善，支持率也在下降。
 
-新闻来源: [dailyexpose.uk][US Military Documents Contradict Fauci’s Sworn Testimony about Gain-Of-Function, Project Veritas](https://dailyexpose.uk/2022/01/12/us-military-documents-contradict-faucis/)
+新闻来源: [childrenshealthdefense.org][Lawmakers Blast Biden Pandemic Response, Experts Question Vaccine Mandates Strategy](https://childrenshealthdefense.org/defender/biden-pandemic-response-vaccine-mandates-strategy/)
 
 * * *
 

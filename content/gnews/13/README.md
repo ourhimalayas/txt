@@ -2,31 +2,41 @@
 ---
 
 
-## 荷兰运动员被警告不要在中共国使用手机和笔记本电脑
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864609/)
+## 丹麦指控来自中共国间谍威胁升高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864639/)
 
-翻译: wen wu
+撰稿：纽约磐石农场—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1202.png)图片来源: reuters.com
 
-据《路透社》2022年1月11日电，荷兰报纸De Volkskrant周二（11日）报道说，荷兰奥委会（NOCNSF）劝说2月份即将参加北京冬奥会的荷兰运动员（和陪同人员）将他们的手机和笔记本电脑留在家里，这是避免中共国间谍活动的一个前所未有的举措。
 
-该报援引接近此事的消息人士的话说，对运动员和陪同人员提出的不带任何个人设备到中共国的紧急建议，是荷兰奥委会（NOCNSF）为应对中共国家特工的任何可能干扰而提出的一系列措施的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-NOCNSF发言人Geert Slot说，网络安全是为中共国之行进行的风险评估的一部分，但拒绝对任何具体措施发表评论。
 
-Geert Slot说：“多年来，网络安全的重要性当然越来越大；但中共已经在该国建立了防火墙，完全封锁了与国际交流的互联网，这成为一个特殊的案例。”
 
-消息人士告诉De Volkskrant，荷兰队成员将在中共国配备未使用的设备，以保护他们的个人数据免受中共国的监控；至少有30名荷兰运动员将参加下个月的北京奥运会，主要参与速度和短道速滑项目。
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
 
-新闻来源: [reuters.com][Dutch athletes warned to keep phones and laptops out of China -media](https://www.reuters.com/lifestyle/sports/dutch-athletes-warned-keep-phones-laptops-out-china-media-2022-01-11/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-26.jpg)图片源自网络
 
-* * *
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。 
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+参考链接:[https://cn.rti.org.tw/news/view/id/2122065](https://cn.rti.org.tw/news/view/id/2122065)
+
+总编：Irene木木
+校正/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

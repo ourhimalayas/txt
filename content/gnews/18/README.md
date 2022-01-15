@@ -2,21 +2,34 @@
 ---
 
 
-## 冬奥赞助商不寻常的安静
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1864562/)
+## 感染过新冠病毒的男子阴茎缩短了1.5英尺
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864599/)
 
-最近美联社的一条新闻引起了大家的解读。国际奥委会主要的赞助商，在2月冬奥会即将到来之前，均选择保持沉默。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/download-4-1.jpg)
-北京冬奥会马上要召开了，赞助商表现非常的安静。他们试图在曝光率以及与中共政府的关系中间保持平衡。这次的抵制北京冬奥会是美国发起的，以新疆种族灭绝、反人类罪这个理由进行了外交抵制，很多赞助商是有所顾虑的。
+撰稿：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，一名曾经罹患新冠病毒的男子在康复后，发现自己的阴茎缩短了1.5英尺。此名男子三十多岁，异性恋，来自美国，曾在去年7月感染过新冠病毒，康复出院以后，留下了一系列奇怪的勃起功能障碍。
 
-资本是最狡猾、最见风使舵的力量。国际奥委会的顶级赞助商，每个品牌都家喻户晓。冬奥会，远不是一场运动会那么简单，关系到整个世界政治经济各种关系的走向。资本对市场的解读有独特的嗅觉，反共更加有利可图的时候，资本像墙头草一样，也会毫不犹豫地撤离中共，甚至开始加入反共的潮流。墙倒众人推，墙倒的时候可口可乐、宝洁或者VISA，也会与中共国的赞助画上嘎然而止的句号。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-5.jpg)
 
-三星从中共国撤离，他们五十年之内都不再回来，这也是中共国的一个现状。一场冬奥会并不能向世人展示它就是个太平盛世，也并不能真正带来万邦来朝，这只是中南坑的一个遮羞布和另一个愚民而已。
+这些症状随着治疗得到了一些缓解，但是医生告诉他，由于勃起组织的血管伤害，这种情况可能是永久性的。该名男子沮丧无比.
 
-资本本身没有多大的善恶，经济脱钩已经是不可逆转的事实，近五年来，咱们爆料革命、新中国联邦人见证了很多次乾坤大挪移。这一切都是刚刚开始。
+ 据悉伦敦大学学院一项研究发现，阴茎缩短是长期感染新冠病毒者的常见症状。同时迈阿密大学米勒医学院的一项研究表明，新冠病毒感染导致的广泛内皮细胞功能障碍可能导致严重的勃起障碍。
 
-文案：文勇
-校对整理：面包树、文峰
+参考链接:[https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html](https://www.dailymail.co.uk/news/article-10397797/Man-claims-lost-1-5-inches-length-penis-Covid-vascular-damage.html)
+
+总编：Irene木木
+校正/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

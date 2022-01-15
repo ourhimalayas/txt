@@ -2,38 +2,36 @@
 ---
 
 
-## 有声|福克斯新闻开始大力推广盖特
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864407/)
+## 美众议院提案停止政府强制雇员接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864522/)
 
-配音：香草山健身部 – 玫瑰园
+作者：纽约香草山- 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，据当地媒体消息显示，美国众议员维姬·哈茨勒在接受采访时明确，她已经提出了《联邦雇员强制疫苗法案》，用以起诉美国政府强制联邦雇员接种中共病毒疫苗的行为。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-6.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-盖特1月13日消息，目前美国最有影响力的福克斯新闻节目，开始大力推广盖特。首席执行官杰森.米勒在采访中谈到塔克.卡尔森等有影响力的人士加入盖特的意义时表示，这显示了人们对大科技公司的拒绝行动。因为人们需要没有言论审查的发声平台，而盖特非常欢迎他们的加入。
+哈茨勒指出，联邦政府要求企业执行强制中共病毒疫苗接种命令是一种越权和违宪的行为，而她此次的提案就是为了将疫苗授权纳入法律规则之中，从而限制美国职业安全与卫生部的权力，并禁止联邦政府推行的强制疫苗政策。
 
-米勒说，尽管大型社交媒体表面赞同言论自由，但实际上他们只赞同符合他们规定的言论。他们慢慢会拿走人们的权利。他同时表示，不论何时，当人们被诱导着做出同样的反应时，我们就应该提出疑问，这是民主国家人民应有的意识，也是美国和中共不同的地方。
+哈茨勒还强调，政府的强制疫苗政策劳民伤财，并且将导致大量的企业雇员离开原本的工作岗位，这将加剧美国现存的通货膨胀和供应链危机。因此，该强制令是极其错误的行为，且必须予以纠正。
 
-主持人玛利亚称赞盖特是历史上增长最快的社交平台。她表示她每天都在盖特投稿发文，呼吁人们都来加入盖特并关注她。她强调说，盖特超越左派媒体，向更广更新的机会敞开了大门。
+此前，郭文贵先生曾在直播中爆料，美国将于2022年1月开始立法禁止中共病毒疫苗的强制接种工作。而今，国会山的对政府强制疫苗令的立法恰恰验证了这一爆料。
 
-文字版原文：[福克斯新闻开始大力推广盖特](https://gnews.org/zh-hans/1859767/)
+参考链接：[Rep. Hartzler to Newsmax: Proposed Law Will Stop Federal Vaccine Mandates](https://www.newsmax.com/newsmax-tv/vicky-hartzler-vaccine-mandates-legislation/2022/01/13/id/1052233/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
