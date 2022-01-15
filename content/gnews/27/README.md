@@ -2,91 +2,35 @@
 ---
 
 
-## 全球疫情更新(可疑的心包炎心肌炎官方数据)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861043/)
+## 中共放话称作为毒药的毒疫苗还应该杀更多人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1861060/)
 
-整理/编辑：枳实
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1118.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月14日）
+**【国内新闻短评】**
 
-**一，全球疫情基本数据**
+**环球网2022年1月13日报道：英前首相称西方国家疫苗过剩，外交部：囤积浪费疫苗应受道义谴责**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/agvby-7n980.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/01/777.jpg)
+**短评：**
 
-感染总数：320,223,086（日新增2,809,366，14天增幅+136%）
+**文章开头三字“据报道”。请问：据谁报道？如何报道？原文原视频可否发出来？“据报道”不过是中共惯用的夺理的强词，是中共一贯断章取义颠倒黑白的乱带节奏而已。当然了，牠们不敢让国内的老百姓看原网址完整的文章和视频，目的是想把老百姓都困在作为猪圈的防火墙内。央视新闻作为中共宣传洗脑混淆视听的最大宣传机器之一，实在令人难忍吐槽**。
 
-死亡总数：5,520,057（日新增6,897人，14天增幅 +12%）
+**原文说到“世卫组织总干事谭德赛近日表示，有超过90个国家尚未实现为40%的人口接种疫苗的目标，超过85%的非洲人口尚未接种一剂疫苗。世卫组织全球卫生筹资大使、英国前首相戈登·布朗也表示，西方有过剩的疫苗却自己屯积，而在最贫穷的国家，疫苗却十分短缺，屯积疫苗在道义上应受谴责。谭德赛与戈登·布朗应该是被中共收买用来谋财害命的走狗了，因为他们在全世界目光的聚焦中一次又一次地表演摇头摆尾的丑态；只是全球的人民早已看破看透，眼里心里也早已是满腔怒火。将来在国际法庭上的审判和牢狱度过余生的煎熬，不知他们们准备好没有。**
 
-每万人感染人数：482.8761 人（除中国外）
+**谭德赛与戈登·布朗对毒疫苗接种的数量陈述都能被中共外交部拿来作为道义谴责的利用工具，以后对未接种疫苗者的诬陷迫害与惩罚看来也在准备之中。无数事实与证据都证明全球病毒爆发率与毒疫苗注射率成指数级正相关增长，这无疑说明了病毒疫苗就是人为强行打入身体的毒药，专门用来谋财害命。毒疫苗接种率越高的国家和地区，病毒爆发率就越高。非洲国家因为低接种率导致病毒爆发率也很低，反而暂时逃过一劫。然而中共却还嫌杀的人不足够多，还想把未接种疫苗的健康人群赶尽杀绝，甚至连本就深受贫穷之苦的非洲都不放过。**
 
-**二，全球“疫苗”毒针统计数据**
+**我们应该问一句：还记得中共为首的黑暗势力在毒疫苗刚出来时，是如果夸赞吹嘘毒疫苗的预防与治疗作用以欺骗大家注射毒疫苗的吗？现在又是如何有目共睹他们对毒疫苗防护作用的一再打脸与改口？健忘啊，这个世界！任由魔鬼撒旦在人间如此地收割人命！**
 
-“疫苗”毒针注射总数：93.7亿
+**声明：文章观点仅代表作者，与GNews 平台无关**
 
-完全“接种”：39.2亿人
+**新闻链接**：[https://mq.mbd.baidu.com/r/zEa9bznMc0?f=cp&u=70ed3ba23cacbb05](https://mq.mbd.baidu.com/r/zEa9bznMc0?f=cp&amp;u=70ed3ba23cacbb05)
 
-完全“接种”百分比：50.3%
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**三，澳洲疫情和“疫苗”数据**** **
-
-感染总数：1,536,550（今日新增137,774人）
-
-死亡总数： 2,578人（今日新增 56人）
-
-每万人感染人数：441.7122人
-
-“疫苗”毒针注射总数：45,423,554 （日新增347,072 针）
-
-完全“接种”：19,057,032人
-
-第二针“接种”百分比：77.8%
-
-16岁以上人口接种至少一剂疫苗的比例：95%
-
-16岁以上人口接种至少两剂疫苗的比例：92.4%
-
-**四，澳大利亚每周疫苗副作用报告**
-
-昨天TGA发布新年第二期每周疫苗副作用报告，报告中的数据所提供的细节有限，可是仍然能从中看出这些毒针给澳洲人带来的明显伤害。
-
-报告给TGA 并且被评估的接种后疫苗死亡的案例已达740例（即本周的死亡案例为14例）
-
-疑似心包炎：2085例 （比上次报告增加94例）
-
-疑似心肌炎：1048 例（比上次报告增加31例）
-
-胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
-
-接种疫苗后发生的格林巴利综合征170例（比上次报告增加0例）。
-
-下面转贴了[报告中公布的心肌炎和心包炎的发生率的表格](https://www.tga.gov.au/periodic/covid-19-vaccine-weekly-safety-report-13-01-2022)，尤其要请考虑给孩子打这种疫苗毒针的读者衡量这些TGA提供的数据再做决定。注意笔者有理由相信其中的数据被大大低估了。具体来说，根据其中的数据，每十万人的注射疫苗后发生的心肌炎+心包炎病例不应超过10人。而笔者所在的社区，临近8个小镇总人口不过5万人左右，也就是说心肌炎加上心包炎的病例不应超过5人。然而笔者的孩子的老师就出现了疫苗后的心脏问题，而且当老师谈到这事时，另外一个孩子的家长也提到了孩子的爷爷也出现了心脏问题。而笔者和朋友聊天时说到这个问题时，又经常发现新的注射疫苗后发生心脏病的病例，有些病例甚至在医院住院几天。难道笔者的社区5万人中仅有的5个病例都发生在笔者的圈子中吗？这当然是不可能的，这只能说明实际的病例数远远大于表格中的数据。就在不久前，有朋友在附近的酒吧听说有人在哭诉自己的挚友疫苗注射后心脏骤停去世，准备尸检，还留下了2岁的孩子……
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1119.png)注射辉瑞疫苗后各年龄组心肌炎发生率（来源：TGA）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1120.png)注射莫德纳疫苗后各年龄组心肌炎发生率（来源：TGA)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1121.png)注射辉瑞和莫德纳疫苗后各年龄组心包炎发生率（来源：TGA）
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
