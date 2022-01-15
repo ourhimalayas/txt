@@ -2,30 +2,42 @@
 ---
 
 
-## 中共以非洲灭美
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1863812/)
+## 瑞士的表过去两三年涨了五到十倍,中共买走七到八成表
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1863874/)
 
-##### 整理：大直播速记组
-编辑：李易通
+G-TV视频链接：[https://gtv.org/video/id=61e2b88b87664c47acd4f7a8](https://gtv.org/video/id=61e2b88b87664c47acd4f7a8)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1180.png)图片来源：雅典娜设计组
+**郭文贵先生：**瑞士的表在过去两三年涨了多少倍知道吗？——5～10倍，文耀知道吗？5～10倍！表业比比特币涨的夸张，你知道瑞士的表卖给中国人多少吗？我可以告诉大家，全人类卖给中国人多的绝对不是石油，也不是俄罗斯的小姐，最多的是表，之一，比特币和表。
 
+70%～80%的表全卖给中国人了，你还想养老呢？你觉得那表能代表骨灰盒吗？那表能代表墓地吗？别听七哥的，你只要是人，去查查瑞士的表现在涨了多少倍就这两三年，这是在病毒期间，是共产党期间，是爆料革命期间，你知道为什么吗？吃了生产力涨，最核心的问题，共产党利益的驱动，75%到85%买的。
 
-共产党是一个绝对的魔帮。你看它对美国人干了个什么事，你要看它对欧洲人干了什么事。它是用以非制美、灭美，灭白计划，你发现了吗？然后把非洲人送到了哪儿去？把非洲人送到了欧洲去，非洲的所谓的非法移民。然后把在美国的非洲人煽动起来闹革命，搞共产主义、社会主义。
+字幕来源：[2022年1月9日 文贵大直播 全文字版](https://gnews.org/zh-hans/1842354/)
 
-所以中共在黑白之间，对这两个颜色是很敏感的。你在中国用什么黑白是你见过的？它认为，黑为水，白为金。在它的五行当中，白为金就是金属。白人就是在西方。西边是哪？就是我们今天的西方，西方的北方，白为黑，黑为水，北边为黑，东边是什么？东方为绿色，为木色，南边为火，南为虎火，它发现我要把整个的白金烧掉，你金的五行当中，南方的就是黑，黑人，用非洲的火烧你的金。利我中华，火利土，土生万物。中共是什么？我是土，以土为多的国家。
+编辑整理：Jacques；
 
-它水少啊，所以共产党的老杂毛们都没什么水的，都是干毛，是吧？ 有一个常委曾经问我一句话，他说：“文贵啊，当年我也没见过洋妞，有一次我到了欧洲，安排了个洋妞，这个洋妞干了一件事，她脱了裤子，她老是给我上面吐唾沫，什么意思啊？”把我笑得快不行了。我说很简单，你没硬没水嘛，人家给你吐唾沫让你硬点。这哥们把我笑晕了。这当然是他没当常委以前问我的话，当了常委之后，他说文贵千万别说出去。我亲身经历，原来是这样，提前吃药水就多了，然后这干杆面杖子就是共产党的所有精神境界和文化。无知愚昧本身就不平衡，它硬整出来的平衡，这是违背自然的。唯一牺牲的就是今天我们看到的无知的中国人民。所以，咱今天讲这些是很有意思的，我就想讲的这么简单，如果我讲深了以后，你听着就觉得我神神叨叨了。
+字幕文件制作：小满；
 
-资料来源：郭先生GTV和盖特直播视频。
+视频制作及上传：Cindy；
 
-*发布：玉米地守望者*
+G-News发布：小满；
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

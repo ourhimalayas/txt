@@ -2,30 +2,28 @@
 ---
 
 
-## 彼得·纳瓦罗：追究中共和福奇在新冠病毒疫情中的责任
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1862908/)
+## 纽约法官取消了Cahill律师所代表太盟PAG起诉郭文贵先生的资格
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1862909/)
 
-#### 撰稿：彩虹
+翻译：zzballack
+上传：追着曙光跑
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-7.jpg)图片来源：纽约客
-1月14日，《新闻极限》采访了彼得·纳瓦罗（Peter Navarro），回答了有关《川普时代》（In Trump Time）的一系列问题。
+据《路透社》（Reuters）1月15日报道，1月14日，在两个小时的听证会结束时，纽约县最高法院法官巴里·奥斯特拉格（Barry Ostrager）批准了GTV Media Group 以及郭文贵先生提出的动议，取消了位于纽约的Cahill Gordon & Reindel律师事务所代表太盟亚洲机会基金有限公司（Pacific Alliance Asia Opportunity Fund Limited，简称太盟PAG）对起诉郭文贵先生的资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-15-at-18.54.51.jpeg)
+奥斯特拉格法官说：“从长远来看，为了司法的经济性、确定性和适当性，Cahill事务所不再参与本案的进一步诉讼。在这个案件中，最糟糕的事情是诉讼再延续一年。GTV和郭先生成功地辩称Cahill事务所应被取消资格。”
 
-文章说，作为从川普总统参选到其第一任期结束，仅有的三位高级顾问之一，彼得·纳瓦罗看到了这一切。他知道为什么会做出这些决定，谁帮了忙，谁没帮，以及为什么。
+太盟PAG对郭先生的诉讼是由O’Melveny & Myers事务所的律师在2017年发起的。太盟PAG指控郭先生在2008年至2011年期间借款8800万美元，但没有偿还。这纯属诬告，案件具体详情请看：[太平联盟PAG缠诉郭文贵先生五年的案件最新进展](https://gnews.org/zh-hans/1862435/)
 
-他在川普政府担任总统贸易和制造业政策助理的职务，使他具有独特的洞察力，可以得出结论：冠状病毒大流行是中国武汉的一个基因工程实验室实验出错的结果，安东尼·福奇（Anthony Fauci）博士在其传播中负有责任。
+其中一位纽约诉讼律师Edward Moss在去年10月离开O’Melveny & Myers 事务所后转投Cahill事务所，仍继续代理本案。郭文贵先生和GTV指出，由于Edward Moss曾经代理GTV接受美国证券交易委员会（SEC）的调查，与郭先生之间存在重大利益冲突，所以Cahill事务所不能代表太盟PAG出庭辩护。
 
-在回答《川普时代》一书的核心信息是什么时？纳瓦罗回答道：“首先，我们必须让福奇和中共对他们催生出的致命大流行病负责任，这种大流行病已造成70多万美国人死亡，给美国经济造成20多万亿美元的损失，使我们的供应链陷入困境，并通过拜登政府日益采取的独裁措施，将我们的美国民主变成一个独裁国家”。
+曾经代理GTV接受美国SEC调查的律师Edward Moss曾收取过200万美元的律师费，但他向法院否认了自己与郭文贵先生之间的利益关系。2021年11月4日，郭先生被法院以藐视法庭为由，被判从2021年5月15日算起每天罚款50万美元。
 
-针对问题：“为什么美国的供应链会如此破败？这是川普政府的遗产还是拜登政府的错？”
+今天，太盟PAG缠诉郭先生一案终见曙光。正如文贵先生在盖特上所说的那样，Edward Moss、Cahill Gordon & Reindel LLP律师所因严重违反律师道德被纽约高院踢出局。在这个案子上我们能看到太多的利益冲突和中共的操控手段、以及美国司法和中共司法界最黑暗的一面。但我们相信这个案子最终一定会得到美国法律和法官的公正判决！
 
-纳瓦罗回应道：“我们的供应链在进入圣诞节和光明节（Hanukkah）前的失败，正如川普总统可能说的那样，这是政治家造成的灾难。在川普政府时期，我是这方面的负责人，我们的任务是让我们的工厂回家；当工厂回家时，供应链也随之回家。拜登政府没有采取这种购买美国货的政策。相反，它正在把美国带回川普政府之前的全球主义现状。无论你从医疗保健的角度是否支持拜登政府的全民疫苗接种政策，不可否认的是，这样的政策对经济来说也是一场灾难”。
-
-纳瓦罗指出，“我们正处于我作为宏观经济学家30多年来所见过的最严重的劳动力市场扭曲和劳动力短缺之中。把码头工人、卡车司机、飞行员和食品加工工人送上失业线，因为他们拒绝接种一种高风险的实验性mRNA疫苗，恰恰加剧了已经很严重的危机”。
-
-**新闻来源**
-
-[Peter Navarro: Hold Fauci, Chinese Accountable for COVID Roles](https://www.newsmax.com/newsfront/navarro-trump-fauci-china/2022/01/14/id/1052447/)
+参考：[Judge disqualifies Cahill law firm in investor fight with billionaire Guo Wengui](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
+[太平联盟PAG缠诉郭文贵先生五年的案件最新进展](https://gnews.org/zh-hans/1862435/)
+[【深度报道】太盟PAG诉郭文贵先生案件的背后](https://gnews.org/zh-hans/1017016/)
+[郭先生对PAG太盟一案最新进展的盖文总结](https://gettr.com/post/poee40e2ab)
 
  
 
