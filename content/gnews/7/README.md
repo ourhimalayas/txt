@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|泄漏文件显示中共高层为冬奥严控疫情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864953/)
+## 欧盟监管机构表示中共疫苗加强针可能会损害人体免疫系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1864961/)
 
-配音：香草山教育部 – Rose
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间1月12日，知情人士在盖特平台上披露了一份关于中共陕西省政府的防疫公文。
+撰稿：西枫westca
 
-该公文显示，陕西省省长赵一德在2021年12月24日的陕西省疫情防控调度会上声称，时逢冬奥会召开在即，为了所谓的“国家形象”，陕西省必须在防疫问题上从严、从紧并严肃追责、问责，还要以最强硬的举措阻断传播链条。至于如何照顾当地民众的生活需求，赵一德只以一句“稳定大局”的空话将其带过。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-8.jpg)图片来源：网络照片
+据《国家脉动》1月15日报道， 欧盟监管结构已经发出警告，频繁的COVID-19加强针可能对免疫系统产生不利影响，并且可能不是对抗该大流行病的可行手段。欧洲药品管理局（EMA）报告说，每四个月重复注射加强针可能会削弱人体的免疫系统。
 
-另据相关人员透露，西安市内的物资分配目前严重两极分化：大多数普通民众正面临着缺乏生活物资、被强制驱离居所和挨饿受冻的情况，但权贵家庭却享受着官方亲自送达丰富特供食物的待遇。
+EMA的生物健康威胁和疫苗战略负责人Marco Cavaleri在一次新闻发布会上表示，加强针 “可以做一次或也许两次，但我们认为这不应该一直重复”， “我们需要考虑如何从目前的大流行环境转向地方性感染的环境”。Cavaleri进一步表示，通过给人们持续的追加注射，有可能使免疫系统负担过重，使肌体中产生疲劳。
 
-对此，分析人士则指出，中共的防疫政策只以达成中共政治目标为目的，在此情况下，除了需要照顾好中共权贵人士外，墙内的一般民众只是随时可以被牺牲、放弃的工具。
+EMA目前的建议是，各国应该在加强针之间留出更多时间。
 
-文字版原文：[泄漏文件显示中共高层为冬奥严控疫情](https://gnews.org/zh-hans/1860020/)
+EMA的声明遵循了用于流感疫苗接种的方法。目前，各国正在提供第二剂的加强针，以对抗Omicron变种，尽管没有什么证据表明这一方式对解决病毒及其传播有作用。
 
-音频处理：Fei797
-发稿：Fei797
+辉瑞公司最近宣布，他们的Omicron特异性疫苗应该在3月初上市，但EMA表示，他们批准疫苗的过程需要三到四个月，4月是批准任何新疫苗的最快日期。第一例Omicron变体于2021年12月在美国被发现。第一个样本是在11月9日发现的，这意味着辉瑞公司如果打算在3月或4月前获得批准，就只有不到几个月的时间来开发他们的变异特异性疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+自大规模疫苗接种任务开始以来，出现了各种问题，如英国卫生工作人员在接受疫苗时出现过敏反应。2021年12月底，《纽约时报》的一名编辑在接受Moderna强化注射后一天死亡。美国广播公司(ABC)的附属机构也报道说，COVID疫苗可能对男性的生育能力有可能产生影响。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+EMA的最新声明表明，他们对缺乏COVID-19的加强针长期数据感到担忧。由于缺乏支持这种方法作为度过大流行病的手段的数据，Cavaleri对反复疫苗加强针表示怀疑。
+
+**新闻来源：**[Repeat Boosters Could Weaken Immune System Say European Regulators. (thenationalpulse.com)](https://thenationalpulse.com/2022/01/15/repeat-boosters-could-weaken-immune-system-say-european-regulators/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,21 @@
 ---
 
 
-## 巴西15岁足球运动员因心脏骤停而死亡
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1864990/)
+## 刘亚洲眼里的七哥
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865015/)
 
-By 意大利罗马达芬奇农场- 阿娜
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-一名15岁的足球运动员在巴西戈亚斯州（Goiás）的戈亚内西亚市（Goianésia）举行的全国足球杯比赛后死亡。
+某将军在私下跟刘亚洲（已经被抓了）说，那个小子，咱们一起吃过饭的，在外边折腾那么大，又建国，又建邦的，你咋看？所有的五六个人全都停下来，没有一个人接这个茬的。刘亚州想了想，说你吃饱了撑的，是不是喝多了？你问他干什么呀？你提都不敢提，说明你很怕这件事。结果刘亚洲说了句特别精彩的话说，咱这一屋子的人，全是带星的，我们敢歧视任何人，都不敢提他。你说我是啥观点，然后说喝酒。刘亚洲因为当时没抓，我就不好意思说啊。其中，在桌上某个人已经成为了今天习近平最相信第二个人，叫徐九龄。绝对是啊。总书记习近平最相信的 人。你看希特勒当年打完仗以后，纽伦堡大审判，我现在给战友出个题。谁是最后被美国和英国西方联盟救助的人？ 他是一个司令级别的2号人物。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/刘亚洲眼里的七哥.001.jpeg)
+发布：tianzhihuan
 
-据Globo报道，这位名叫佩德罗-恩里克-奥利维拉-达席尔瓦-索萨（Pedro Henrique Oliveira da Silva Souz）的15岁足球运动员于周二深夜去世。他的死亡得到了其球队的确认。
-
-根据报告，这名15岁的足球运动员在周二晚上9点左右因意识低下、支气管痉挛（气道收缩）、严重呼吸困难、苍白病（血液中缺乏氧气）和吐血而被送入紧急护理室。根据检测报告，这名少年的病毒检测呈阴性。目前还不知道是什么原因导致他的病情。
-
-这名小男孩接受了药物治疗、氧气治疗和插管。但后来，他的病情恶化，然后出现了心脏骤停。医生进行了心肺复苏，但小男孩没有任何反应。
-
-根据G5 NEWS报道，这名年轻人接受了药物治疗，并接受了氧气治疗，结果得到了适度的改善，然而，他最终演变成了意识水平的下降，并出现心肺功能停止。医生对这名少年进行了插管，并进行了抢救，但病人没有反应，在医疗单位被确认死亡。
-
-佩德罗所在足球俱乐部和市政府发表声明，深表同情。
-
-评论：一个15岁的少年被俱乐部做职业化足球培训，说明他的身体条件一定是很好的，至少不会有什么先天性的病症，否则也很难被选作职业化培训，特别是作为足球的职业化培训。可小小的年纪竟然能够在3到4天时间内出现病症并死亡，而且是心脏骤停，这是非常让人疑惑的地方。不得不让人怀疑他是否进行过疫苗注射，从而产生副作用。
-
-原文链接：[https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm\_source=Gab&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2022/01/15-year-old-soccer-player-brazil-dies-cardiac-arrest-following-national-football-cup-tournament-game/?utm_source=Gab&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-* * *
-
-原作者： Jim Hoft，发布时间：2022年 1月15日
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,23 +2,25 @@
 ---
 
 
-## 使用蔬菜疫苗来说服拒绝接种疫苗者：制药公司的最新想法
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1864825/)
+## 中共国进一步收紧防疫政策
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1864842/)
 
-#### 翻译            意大利达芬奇农场                       小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-15-alle-17.26.33.png)图片来源：ilparagone.it
-新冠病毒大流行以来，他们一直试图促使未接种疫苗的人接种疫苗。刚开始给打完针的青少年提供免费冰激凌，然后是病毒学家发出的威胁，政府采取了十分强硬的措施来对待抵抗。如今，他们又再次尝试，那些医药公司在抗击新冠病毒中赚取了大量的钱财，他们正在研究蔬菜疫苗。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011502.jpg)网络图片
+周五，中共国在首都北京和全国各地进一步收紧了抗疫措施。在两周多一点的冬奥会开幕之前，四处分散的疫情感染仍在继续。这些行动似乎反映了官方对于北京奥运会前病例可能激增的紧张情绪。
 
-正像朱利安诺• 阿鲁非在《星期五》杂志上所描述的那样，这是一种与烟草很接近的植物，很快将会问世，它与欧洲医药管理局已经批准的五种药物一起，作为一种新型的抗新冠药物。这是加拿大Medicago 生物技术公司开发的，它正与英国的GlaxoSmithKline 一起研发，并宣布已经到了实验的最后阶段。
+北京已下令从下周开始对国际学校的儿童进行检测，并禁止通过第三方过境的航空旅客入境。公民被告知仅在绝对必要的情况下旅行，如果发现他们访问过爆发疫情的城市或地区，则不能保证他们将被允许返回。
 
-大约有两万四千人参加了实验，这是Medicago 公布的数据，它对新冠病毒的防御率达百分之七十五，它产生的抗体量比恢复期受试者血液中形成的抗体量高10至15倍。公司期望蔬菜疫苗能够说服世界上一部分拒绝接种疫苗的人能够改变他们的想法。
+距首都约一小时车程的天津市已下令从周六早上开始进行第三轮大规模测试，并在 24 小时内完成。天津是一个拥有 1400 万人口的港口和制造中心，是政府实施封锁和其他限制措施的六个城市之一，同时遵循着追踪每个病毒病例的政策。在最近几天发现了 126 例病例后，当局已经切断了它与奥运会主办城市之间的所有旅行联系，这些病例显然都是具有高度传染性的 Omicron 变种。
 
-这一产品比mRna疫苗便宜，蒙特利尔MeGill大学生物工程教授阿米内•卡门 ( Amine Kamen)解释道：因为不需要昂贵的生物反应器，在温室里就足够了，因为最重要的研究部分是发生在植物的叶子里。如果能遵循原定的时间，蔬菜疫苗应该在2022年底问世。
+在其他地方，超过 2000 万人处于封锁状态。许多人被限制在家中，食品和其他日常必需品供应令人感到担忧。一些工厂已经关闭，影响到计算机芯片和其他产品的供应。例如汽车制造商大众汽车公司周一就表示，它关闭了天津的两家工厂，其员工已经接受了两次检测。
 
-原文链接：[https://www.ilparagone.it/attualita/un-vaccino-vegetale-per-convincere-i-no-vax-lultima-idea-delle-case-farmaceutiche/](https://www.ilparagone.it/attualita/un-vaccino-vegetale-per-convincere-i-no-vax-lultima-idea-delle-case-farmaceutiche/)
+与此同时，在乘客出现CCP病毒阳性之后，中共国还禁止了数十个来自欧洲、加拿大、美国、印度尼西亚和其他地方的海外航班。自 2020 年初以来，中共国就多次对行动实施如此全面的限制。
 
-编辑、上传： Xiao    baige
+新闻参考链接：[Anti-coronavirus measures tightened across China](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-health-beijing-32bcad4283011feeff66804e466dedbe)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
