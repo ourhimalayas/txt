@@ -2,42 +2,34 @@
 ---
 
 
-## 澳大利亚再次因未接种新冠疫苗取消了网球名将Novak的签证
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1863574/)
+## 谷歌被控与脸书合谋操纵在线广告销售
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1863597/)
 
-作者：银河系农场——骄子
+#### **撰稿：**日本东京方舟农场 子辰
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/63C64F18-B305-435A-8F05-3FE6435D8FA0.jpeg)美国德克萨斯州总检察长肯‧帕克斯顿（图片来自《大纪元》）
 
+据《大纪元》1月15日报道，一份最新的法律诉讼文件显示，在一项由美国多个州联合发起的针对谷歌公司的反垄断诉讼案中，原告指责搜索巨头谷歌与脸书公司勾结，合谋操纵在线广告销售，而两家公司的首席执行官都知道这笔交易，并签字同意。
 
-1月14日，据外媒报道，澳大利亚政府再次因未接种新冠疫苗而取消了网球名将Novak的签证。此前在Novak入境墨尔本就发生过取消签证的事件，这次取消的原因和上次并无二致，移民局的部长认为Novak未接种新冠疫苗不符合公共利益，为维护健康和良好秩序，将这位世界冠军的签证再次吊销。据悉澳网公开赛开赛日为1月17日下周一，距离比赛日期已经非常接近，Novak已经联合律师提起上诉，希望在周日作出裁决，然后周一参加比赛。
+据《美联社》报道，这份原始诉讼书是在2021年12月提交的，原告上诉谷歌的 “反竞争行为”及相关合作。据了解，该文件是经过编辑的，未经编辑的版本则提供了谷歌母公司Alphabet首席执行官（CEO）桑达尔‧皮查伊（Sundar Pichai）和脸书CEO马克‧扎克伯格（Mark Zuckerberg）参与批准该笔交易的细节。在那之后，脸书公司便更名为Meta。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-199.jpeg)图片来源：CBS NEWS
+这份诉讼文件显示，脸书首席运营官谢丽尔‧桑德伯格（Sheryl Sandberg）在2018年的一封电子邮件中明确表示，这是一笔具有战略意义的大交易。
 
-参考链接 [https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/](https://www.cbsnews.com/news/australia-cancels-novak-djokovics-visa-again/)
+在这份邮件中还提到了脸书CEO扎克伯格。诉讼书写道：“当双方敲定这项协议的条款时，该团队直接向CEO（扎克伯格）发送了邮件。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-198.jpeg)
+谷歌发言人彼得‧肖腾费尔斯（Peter Schottenfels）在一份声明中辩称，该诉讼指控皮查伊批准了谷歌与脸书的交易是不准确的，并称该诉讼有很多不准确之处，且缺乏相关法律依据。
 
-编辑/校对/发稿：文敬
+这项诉讼是在德克萨斯州总检察长肯‧帕克斯顿（Ken Paxton）主导下提交的，阿拉斯加、阿肯色、佛罗里达、爱达荷、印第安纳、肯塔基、路易斯安那、密西西比、密苏里、蒙大拿、内华达、北达科他、南卡罗来纳、南达科他、犹他等州以及波多黎各的总检察长也都加入了其中。
 
-**更多资讯，更多关注**
+*参考链接：[谷歌被控与脸书合谋操纵在线广告销售](https://www.epochtimes.com/gb/22/1/14/n13505506.htm)*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*素材采编：子辰*
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*编辑：青衣青青*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
-
+*发布：miumiu*
 
  
 

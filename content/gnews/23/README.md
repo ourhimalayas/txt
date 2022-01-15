@@ -2,10 +2,10 @@
 ---
 
 
-## 变异的奥米炕病毒已超出了疫苗的控制能力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863452/)
+## 美国大学生开始反抗疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863454/)
 
-01/11/2022 心脏病专家和流行病学家皮特·麦卡洛博士指出由于奥米炕具有巨大的综合症变化，变异的病毒已超出了疫苗的控制能力。
+01/11/2022 福克斯：美国大学生开始反抗疫苗强制令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

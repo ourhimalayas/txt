@@ -2,10 +2,10 @@
 ---
 
 
-## 另一个500万人口的中国城市──安阳封城
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863447/)
+## 变异的奥米炕病毒已超出了疫苗的控制能力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863452/)
 
-01/11/2022 WION 新闻：在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市──安阳封城。
+01/11/2022 心脏病专家和流行病学家皮特·麦卡洛博士指出由于奥米炕具有巨大的综合症变化，变异的病毒已超出了疫苗的控制能力。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
