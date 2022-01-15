@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 12:03 AM (UTC)`
+
+1/14/2022 Miles Guo: The CCP is once again making arrests in Communist China! Those who handled Sun Lijun’s case were arrested, as were several production crew members of the CCP’s film called Zero Tolerance. Something big will happen in the CCP’s sports community. Li Yongbo will certainly be arrested, and this will lead to the revelation of countless stories like that of Peng Shuai<br/><br/>1/14/2022 文贵直播：这两天国内又在抓人！审孙力军案子的人被抓，《零容忍》制作组的好几个人也被抓；中共体育界在冬奥会后将发生大事，李永波必被抓，这将牵扯出无数个彭帅的故事<br/>
+![img](https://media.gettr.com/group33/getter/2022/01/15/00/7c4139ef-be19-3837-3594-e8d707bc0a35/out.jpg)
+
+---
+
 `@miles 1/14/2022 11:13 PM (UTC)`
 
 1/14/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/14/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1月11日，在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市安阳被封城。<br/><br/>As Beijing prepares for the Winter Olympics next month, another Chinese city of 5 million residents - Anyang - is under strict lockdown on 11th, January.<br/>
 ![img](https://media.gettr.com/group4/getter/2022/01/13/00/2dceb225-8ee5-e656-4749-a894189c5b93/out.jpg)
-
----
-
-`@miles 1/13/2022 12:49 AM (UTC)`
-
-1/12/2022 Miles Guo: All dictators create conflicts and hatred. Now the CCP is keeping the Chinese people at home by using the virus, and then they will take away their wealth in the name of “common prosperity”. The CCP and their running dogs in the West are also going to push the agenda of “common prosperity”, and the Chinese diasporas will be the targets, with their wealth to be taken away!<br/><br/>1/12/2022 文贵直播：独裁者都会制造矛盾和仇恨，现在中共是通过病毒把老百姓关在家，然后来共享他们的财富；中共及其走狗在西方也要搞共享财富，海外华人将成为被共享财富的对象！<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/13/00/7b5094f6-6f13-51ba-537b-a2c2b0e1b379/out.jpg)
 
 ---
 
