@@ -2,10 +2,10 @@
 ---
 
 
-## 英国殡葬馆馆长：大量疫苗接种者因血栓死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863376/)
+## 另一个500万人口的中国城市──安阳封城
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863447/)
 
-01/11/2022 英国殡葬馆馆长表示，大量疫苗接种者因血栓死亡。我们得到的主要死亡案例是来自疫苗伤害，这在医学界和殡葬界是众所周知的。
+01/11/2022 WION 新闻：在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市──安阳封城。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

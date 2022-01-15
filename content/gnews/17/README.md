@@ -2,10 +2,10 @@
 ---
 
 
-## 美疾控中心主任承认疫苗不防病毒传染
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863378/)
+## 变异的奥米炕病毒已超出了疫苗的控制能力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1863452/)
 
-01/10/2022 疾控中心主任也承认疫苗不防传染，那么疫苗强制令的基础在哪里？
+01/11/2022 心脏病专家和流行病学家皮特·麦卡洛博士指出由于奥米炕具有巨大的综合症变化，变异的病毒已超出了疫苗的控制能力。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
