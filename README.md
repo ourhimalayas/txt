@@ -15,86 +15,86 @@
 
 ---
 
-### [有声|中共核酸检测是坑害中国百姓](/content/gnews/1/README.md)
+### [冬奥赞助商不寻常的安静](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [美联储的决定 地球抖一抖](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [有声|中共核酸检测是坑害中国百姓](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [2022/01/15 英喜时事速递](/content/gnews/2/README.md)
+### [2022/01/15 英喜时事速递](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美众议院提案停止政府强制雇员接种疫苗](/content/gnews/3/README.md)
+### [美众议院提案停止政府强制雇员接种疫苗](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [有声|台外長受訪表示台灣將力抗中共悍衛自由](/content/gnews/4/README.md)
+### [有声|台外長受訪表示台灣將力抗中共悍衛自由](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|美国会要求国际奥委会解释与涉新疆棉中企合作](/content/gnews/5/README.md)
+### [有声|美国会要求国际奥委会解释与涉新疆棉中企合作](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [英国报告称 疫苗死亡率远高于普通人群](/content/gnews/6/README.md)
+### [英国报告称 疫苗死亡率远高于普通人群](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [有声|大直播—中共国老百姓绝无资格叛国和卖国，只有机会做杨改兰！](/content/gnews/7/README.md)
+### [有声|大直播—中共国老百姓绝无资格叛国和卖国，只有机会做杨改兰！](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|中共国重卡市场断崖式下跌](/content/gnews/8/README.md)
+### [有声|中共国重卡市场断崖式下跌](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|英军情五处警示国会中共已渗透英政治圈](/content/gnews/9/README.md)
+### [有声|英军情五处警示国会中共已渗透英政治圈](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|耐克开始解雇未接种疫苗的员工](/content/gnews/10/README.md)
+### [有声|耐克开始解雇未接种疫苗的员工](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月14日早](/content/gnews/11/README.md)
+### [有声|GTV新闻访谈简报|2022年1月14日早](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|佳能关闭中共珠海工厂](/content/gnews/12/README.md)
+### [有声|佳能关闭中共珠海工厂](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|加拿大放弃卡车司机疫苗强制令](/content/gnews/13/README.md)
+### [有声|加拿大放弃卡车司机疫苗强制令](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/14/README.md)
+### [有声|中共如何以非制美、以非乱欧、以非辱民？](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/15/README.md)
+### [GTV新闻访谈简报|2022年1月15日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/16/README.md)
+### [德国政府的官方数据表明，完全接种了新冠疫苗的人将会患上艾滋病](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/17/README.md)
+### [01/15/22 香港快讯 理大冲突案9人暴动罪成 其中7人判囚38至40个月](/content/gnews/19/README.md)
  ` 英喜-粵語組`
 
-### [有声|农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/18/README.md)
+### [有声|农场是美丽自由的地方，更是开启文明进步的时代](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2022年伊始孙力军再成中共党内肃清典型](/content/gnews/19/README.md)
+### [2022年伊始孙力军再成中共党内肃清典型](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [有声|中共5年来不停布局并企图扼杀爆料革命于萌芽中](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/21/README.md)
+### [1/14/2021 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共病毒死亡率调查结果引发人们对疫苗接种必要性的质疑](/content/gnews/22/README.md)
+### [有声|中共病毒死亡率调查结果引发人们对疫苗接种必要性的质疑](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [大直播后记—疫苗就是病毒](/content/gnews/23/README.md)
+### [大直播后记—疫苗就是病毒](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [中共国未来两周将禁止所有美国航班入境](/content/gnews/24/README.md)
+### [中共国未来两周将禁止所有美国航班入境](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/25/README.md)
+### [1/14/2021 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究](/content/gnews/26/README.md)
+### [有声|媒体公开披露：福奇批准了新冠病毒在武汉的功能增强研究](/content/gnews/27/README.md)
  ` MOSREC`
-
-### [串珠531:十个习近平再加七常委也不是曾庆红的对手](/content/gnews/27/README.md)
- ` 郭爆料串珠`
 
 ### [彭佩奥斥中共是“史上最肮脏的监控政权”，警告运动员注意](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
