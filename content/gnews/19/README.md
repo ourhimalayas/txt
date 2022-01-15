@@ -2,35 +2,25 @@
 ---
 
 
-## 加拿大放弃卡车司机疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861892/)
+## 900多名未接种疫苗的加拿大军人面临正式处罚
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1861990/)
 
-作者：纽约香草山文艺部 – 宁文靜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月12日，加拿大边境服务局CBSA表示，将允许未接种疫苗的加拿大卡车司机从美国入境。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-19-scaled.jpg)
-CBSA的发言人称，抵达美加边境的未接种疫苗或部分接种疫苗的加拿大卡车司机，将继续免于全过程测试和检疫要求。但美国卡车司机仍然需要疫苗证明，否则将从1月15日起在边境被拒绝入境。此前加拿大特鲁多政府一直面临主要反对党和卡车司机游说团体的压力，他们要求放弃将于15日生效的卡车司机接种疫苗的指令，警告该指令 可能导致司机短缺，扰乱贸易并推高通货膨胀。
+2022-01-14
 
-消息人士称，特鲁多政府作出了单边让步。幸运的是，13日美最高法院已作出裁决，取消了私营企业的疫苗强制令，其中就包括美国卡车司机。目前看，不会有美国实施对等原则的担忧了。
+翻译报道：Torsteintt
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-14-at-8.41.29-PM-edited.png)环球新闻截屏
+来自环球新闻（Global News）2022年1月14日的报道，加拿大国防部通告其已开始正式实施对未接种新冠疫苗军人的惩罚。
 
-参考链接：
+国防部参谋长韦恩·艾尔将军（Gen. Wayne Eyre）当初下令所有军队人员在去年10月中旬必须提供已完全接种的证明。 后来被延迟到12月中旬。 国防部发言人丹尼尔·勒布希利埃（Daniel Le Bouthillier）表示在去年12月底有100名军人因为多次拒绝接种该疫苗已经被审查。 另有800人已经受到正式警告，并且被要求接受“咨询”和其他“补救”措施（打疫苗），如果仍然不接种疫苗则将会被强制开除。
 
-- [Canada drops vaccine mandate for its truckers after pressure from industry](https://www.reuters.com/world/americas/canadian-truckers-stay-exempt-covid-19-vaccine-requirements-2022-01-13/)
+勒布希利埃表示有44名全职军人为了不接种此疫苗而选择了自愿辞职，有多少名预备役人员辞职尚未知。 上个月， 加拿大联邦法庭驳回了一份由数名军人发起的反对强制新冠疫苗的诉讼，这让联邦雇员对强制疫苗的法律诉讼再一次的失败。
 
+点评：加拿大军队已经面临严重的人员短缺，此次强制疫苗政策更加重了此问题。 随着国际逐渐对强制疫苗政策转向，越来越多的人开始意识到问题所在，在陷入最黑暗的时期也是光明开始显现的时候，祈祷解除强制疫苗的那一天早日到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+原文链接：[Global News: Over 900 unvaccinated members of CAF to face formal proceeding](https://globalnews.ca/news/8512056/vaccine-mandate-proceedings-against-caf/?utm_source=GlobalNews&amp;utm_medium=Facebook&amp;fbclid=IwAR2T3LTZUvIHM0U4-9I3d3qM8KwgZaCueHp_m9LS3bit58KmKUg9zg4wH6g)
 
-总编：Ivy001
-编辑：Lakeman文仁
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

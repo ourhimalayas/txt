@@ -2,28 +2,39 @@
 ---
 
 
-## 【中日财经爆】系统性风险盖不住了 中共国启动险资关联交易专项检查
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1862058/)
+## 有声|HBO采访视频是中共谋划已久的阴谋
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862081/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1131.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2022-01-14%2F164216013350625_480_320.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.caixin.com%2F2022-01-14%2F101830261.html&amp;tbnid=BmahyG-H4pcrvM&amp;vet=12ahUKEwjk0svI8bL1AhWWAzQIHRAKD8sQMygAegUIARCoAQ..i&amp;docid=tUTtLgGU8mSqmM&amp;w=480&amp;h=320&amp;itg=1&amp;q=%E9%99%A9%E8%B5%84%E5%85%B3%E8%81%94%E4%BA%A4%E6%98%93%E4%B8%93%E9%A1%B9%E6%A3%80%E6%9F%A5&amp;ved=2ahUKEwjk0svI8bL1AhWWAzQIHRAKD8sQMygAegUIARCoAQ)
-中共国银保监会周五（1月14日）称，决定于2022年在全国范围内组织开展保险资金运用关联交易专项检查，坚决遏制保险资金运用关联交易不当行为蔓延势头。
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+在2022年1月12日大直播中**，**，郭文贵先生再次揭露，HBO-VICE、伊萨贝拉·杨等邪恶媒体帮助共产党抹黑、污蔑爆料革命，甚至妄图把全球华人和亚裔人群划归为传播病毒和制造动乱的邪教组织，为全球排华埋下祸根。
 
-银保监会网站刊登的新闻稿称，本次专项检查重点关注对象为以资本运作为主业的金控或隐形金控平台，以及以多元发展激进扩张的产业资本为股东的中小型保险机构。
+郭先生回顾了4年前第一次接受伊萨贝拉·杨的采访时，他就对中共大外宣的目的做出了精准预判，将其不轨图谋扼杀在摇篮里。
 
-检查的重点内容包括关联交易制度机制、关联交易信息披露、关联交易审查、资金运用类关联交易行为等四个方面。
+原文链接：[HBO采访视频是中共谋划已久的阴谋](https://gnews.org/zh-hans/1859751/)
 
-银保监会称，近年在对高风险机构进行风险处置中发现，保险资金运用关联交易存在较大的风险隐患，不当关联交易花样不断翻新，隐蔽性日益增强，部分公司股东和实际控制人采取多种方式掩盖关联交易实质，规避关联交易内部审查、外部监管及信息披露。
+音频处理：Daxia
 
-银保监会同日发布“银行保险机构关联交易管理办法”指出，银行保险机构不得利用各种嵌套交易拉长融资链条、模糊业务实质、规避监管规定，不得为股东及其关联方违规融资、腾挪资产、空转套利、隐匿风险等。
+**发稿：**Daxia
 
-办法并强调，保险机构不得借道不动产项目、非保险子公司、信托计划、资管产品投资，或其他通道、嵌套方式等变相突破监管限制，为关联方违规提供融资。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-消息来源：[中国启动险资关联交易专项检查 重点关注隐形金控平台和发展激进的中小险企](https://cn.reuters.com/article/china-cbirc-sme-regs-0114-idCNKBS2JO0Z0?il=0)
+**更多资讯，更多关注**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,60 @@
 ---
 
 
-## 欧洲议会主席David Sassoli突然死亡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861742/)
+## 2022年1月14日，郭文贵先生就取消Cahill Gordon &amp; Reindel代理律师资格提起的动议获批（动议序号#021）
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1861825/)
 
-作者: MOS- 柳是多水土透
+秘密翻译组-北美组
 
+NYSCEF Doc. No. 1099
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+纽约州纽约县最高法院
 
+审理法官：BARRY R. OSTRAGER阁下
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-3.jpg)图片来源网络
+———————————————X
 
-65岁的欧洲议会主席David Sassoli被宣告死亡，之前在12月26日，他由于“免疫系统失常”被送入家乡意大利的一家医院。他的发言人说，Sassoli与周二早间1点15分离世。 这位意大利政治家在2019年选举后上任，并原计划于下周卸任。他生前曾多次要求，并成功地在预算案中增加款项，以成立欧盟检查官办公室和推进疫苗接种 。Sassoli于1956年出生，他在广播机构RAI任记者至1992年，并于2009年加入左翼的民主党。同年的选举后，他进入欧洲议会开始从政之路。
+太平联盟亚洲成长基金有限合伙
 
+原告，
 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-相关链接:[https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans\_fr\_61dd232de4b04b42ab842713](https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans_fr_61dd232de4b04b42ab842713)
+诉
 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
+KWOK HO WAN，又名Kwok Ho，又名GWO WEN GUI，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
+又名郭文贵，又名WAN GUE HAOYUN，又名
 
+Miles Kwok，又名郭浩云，GENEVER HOLDINGS LLC，及
 
+GENEVER HOLDINGS CORPORATION,
 
-总编 : Irene木木
+被告
 
-校对/发稿：Petite abeille
+———————————————-X
 
-**更多资讯，更多关注**
+**法庭判决+关于动议的法庭命令**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+BARRY R. OSTRAGER阁下
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+本法庭，于2022年1月14日，通过Microsoft Teams视频工具，聆听了关于以下动议的法庭辩论，动议按序号排列如下：021（被告郭浩云关于取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）、022（非本案当事人Lamb Capital LLC撤销原告传票之动议）及024（GTV Media Group Inc.决定介入本案并取消原告代理律师Cahill Gordon & Reindel律师事务所代理资格之动议）。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+根据法庭记录在案的程序，被告郭浩云就取消Cahill Gordon & Reindel代理律师资格提起的动议获批（动议序号021）。非本案当事人Lamb Capital LLC撤销传票动议（序号022）被全部驳回。GTV Media Group Inc.仅为取消Cahill Gordon & Reindel代理律师资格而介入本案的动议（序号024）获批。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+日期：2022年1月14日
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+————————————
 
+BARRY R. OSTRAGER
+
+最高法院法官
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-14-at-10.14.59-PM.jpeg)
+中文翻译仅供参考，内容以英文原文为准
+
+[652077\_2017\_Pacific\_Alliance\_Asia\_v\_Pacific\_Alliance\_Asia\_\_DECISION\_\_\_ORDER\_ON\_1099 (1)](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2022/01/652077_2017_Pacific_Alliance_Asia_v_Pacific_Alliance_Asia__DECISION___ORDER_ON_1099-1.pdf)
 
  
 

@@ -2,36 +2,35 @@
 ---
 
 
-## 减少对美元的依赖，泛非支付结算系统正式发布
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1861848/)
+## 加拿大放弃卡车司机疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861892/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山文艺部 – 宁文靜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月12日，加拿大边境服务局CBSA表示，将允许未接种疫苗的加拿大卡车司机从美国入境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-19-scaled.jpg)
+CBSA的发言人称，抵达美加边境的未接种疫苗或部分接种疫苗的加拿大卡车司机，将继续免于全过程测试和检疫要求。但美国卡车司机仍然需要疫苗证明，否则将从1月15日起在边境被拒绝入境。此前加拿大特鲁多政府一直面临主要反对党和卡车司机游说团体的压力，他们要求放弃将于15日生效的卡车司机接种疫苗的指令，警告该指令 可能导致司机短缺，扰乱贸易并推高通货膨胀。
 
-整理：入选文家
-编辑：小红帽
+消息人士称，特鲁多政府作出了单边让步。幸运的是，13日美最高法院已作出裁决，取消了私营企业的疫苗强制令，其中就包括美国卡车司机。目前看，不会有美国实施对等原则的担忧了。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/image-936.png)图片来源：雅典娜设计组
+参考链接：
+
+- [Canada drops vaccine mandate for its truckers after pressure from industry](https://www.reuters.com/world/americas/canadian-truckers-stay-exempt-covid-19-vaccine-requirements-2022-01-13/)
 
 
-根据《新华网》1月13日报道，非洲大陆自由贸易区秘书处联合非洲进出口银行等机构13日在加纳首都阿克拉正式发布泛非支付结算系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-泛非支付结算系统覆盖非洲大陆，支持非洲国家使用本国货币在非洲大陆进行支付，减少对第三方货币（美元）的依赖。该系统在发布前已在加纳、尼日利亚、冈比亚、利比里亚、几内亚和塞拉利昂六国试用。
+总编：Ivy001
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-加纳副总统马哈茂杜·巴武米亚称该系统将结束非洲国家间跨境支付对第三方货币的依赖。
-
-非洲自由贸易区秘书处秘书长梅内在发布仪式上说，随着非洲大陆自贸区的实施，非洲国家间跨境交易量增加，对高效支付服务的需求增大。他表示，泛非支付结算系统每年将为非洲大陆节约50亿美元支付成本。
-
-参考链接：[泛非支付结算系统正式发布](http://www.news.cn/fortune/2022-01/14/c_1128262430.htm)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,52 @@
 ---
 
 
-## 耐克开始解雇未接种疫苗的员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1861887/)
+## 文•贵天成——文贵先生谈“王毅”（七）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1861921/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据美国媒体报道，耐克将从1月15日开始，解雇未接种新冠疫苗的员工。
+整理：BENJ1
+编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-7.png)
-
-耐克位于俄勒冈州，是当地最大的雇主之一。企业高层在写给员工的内部邮件中称，未接种中共病毒疫苗或未获得疫苗豁免的员工，会被认定为不遵守政策，工作会在1月15日终止。一些耐克员工反对强制中共病毒疫苗计划，也有一些因为宗教原因不赞成此计划。
-
-据悉，总部位于俄勒冈州的另一家运动品牌Columbia计划下个月解雇未接种新冠疫苗的员工。
-
-参考链接：
-
-- [Nike is preparing to fire some unvaccinated staff at its corporate headquarters, reports say](https://www.businessinsider.com/nike-prepares-fire-unvaccinated-employees-covid-19-oregon-2022-1?amp)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2GCETR2807MF3N5QA.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**郭文贵2020年9月9日直播**
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+王毅（也）一样。（他）告诉我，“哎，文贵，上我外交部去，我们的漂亮姑娘多的很。我给你送十几个秘书过来，有新疆的、有上海的，漂亮着呢，”然后说：“你酒店的姑娘挺漂亮”。因为盘古是北京漂亮的（姑娘）最多的地方，所以说他说，你这酒店姑娘挺漂亮的啊。你说这（些）孙子都这样。他为啥这样？戴秉国、王毅、杨洁篪、王岐山、习近平看不起任何其他官员。（他们认为）我讲英文，我有品味，我去过外国，我懂历史。他是看不起什么中国企业的。他根本看不起。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**郭文贵先生2021年1月30日盖特**
+
+然后，据说，更炸裂的是，听说拜登，这个美国的总统，完全不听使唤。美国政府不听使唤。然后，中共现在（发出）各种威胁。杨洁篪（杨娘娘），王毅，还有国际安全委员会，各种话都穿出来了。什么中共的女婿，中共什么的燕子的女婿，同床共枕。自己所谓的蛇，燕子，以后自己的亲人近人都不管用后， 采取了更狂（妄）的措施。说什么，我们一定要打台湾滴，台湾是要收回滴。
+
+**郭文贵先生2021年2月3日盖特**
+
+你不灭共，共产党灭你!你就是下一个昂山素姬。听说王毅在缅甸，跟缅甸军方见面的时候，明确地答应了所有缅甸军方的要求。在联合国领域，由我们来负责，不会对你谴责。如果美国等西方国家对你制裁，我们将经济全力支持你。需要武器，我们全力支持。一旦发生真正的小规模的内乱和战事，我们派兵前来帮助。但是，你的玉，还有你的翠，那些木头，山林，——拿来吧!呵呵呵~怎么样？
+
+**郭文贵先生2021年2月22日盖特**
+
+“灭白计划”，(这)对西方，整个是一个种族大屠杀似的。用“杨娘娘”(杨洁篪)、王毅的话讲，(就)叫“潘多拉的盒子”!真正的黑手啊，真正的黑手!“潘多拉盒子”，整个计划，七哥没办法跟你们形容这些人(受到的)的震撼。
+
+**郭文贵先生2021年3月18日盖特**
+
+兄弟姐妹好啊，很多战友跟我发信息，关于什么，阿拉斯加的中美厕所外交谈判是什么情况？你看王毅怎么强硬，然后如何如何。美国很强硬。王毅一上来就说你美国杀黑人的历史。实际上就是大家为了所谓的，他最担心的，大家能看到的，就是美国把它（中共）定为反人类罪、种族大屠杀。（他）要给它（中共）解套嘛。不就这意思吗？
+
+**往期回顾：
+**[**文·****贵天成——****文贵先生谈“****王毅”****（一）**](https://gnews.org/zh-hans/1848683/)**
+**[**文·****贵天成——****文贵先生谈“****王毅”****（二）**](https://gnews.org/zh-hans/1848694/)**
+**[**文·****贵天成——****文贵先生谈“****王毅”****（三）**](https://gnews.org/zh-hans/1848940/)**
+**[**文·****贵天成——****文贵先生谈“****王毅”****（四）**](https://gnews.org/zh-hans/1857782/)**
+**[**文·****贵天成——****文贵先生谈“****王毅”****（五）**](https://gnews.org/zh-hans/1857911/)**
+**[**文·****贵天成——****文贵先生谈“****王毅”****（六）**](https://gnews.org/zh-hans/1857963/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
