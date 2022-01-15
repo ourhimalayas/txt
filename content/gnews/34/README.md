@@ -2,29 +2,27 @@
 ---
 
 
-## 英国报告称 疫苗死亡率远高于普通人群
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864503/)
+## 美众议院提案停止政府强制雇员接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1864522/)
 
-作者：纽约磐石农场—在远方
+作者：纽约香草山- 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-**当地时间1月14日，据相关媒体报道，英国政府公布的最新数据显示，完全接种过中共病毒疫苗的群体，其死亡率超过未接种人群的286%。**
+1月13日，据当地媒体消息显示，美国众议员维姬·哈茨勒在接受采访时明确，她已经提出了《联邦雇员强制疫苗法案》，用以起诉美国政府强制联邦雇员接种中共病毒疫苗的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-6.jpeg)
 
-相关研究指出，自全球大规模接种中共病毒疫苗以来，医院里充斥着因接种疫苗而患病的人群，而即使他们接受了特别的护理，仍有很多患者不幸死亡。当前，全球已有超过100万人因接种中共病毒疫苗而遭受了严重副作用或者死亡。值得注意的是，由于各国政府的保守统计，这一结果可能严重低于真实数据。
+哈茨勒指出，联邦政府要求企业执行强制中共病毒疫苗接种命令是一种越权和违宪的行为，而她此次的提案就是为了将疫苗授权纳入法律规则之中，从而限制美国职业安全与卫生部的权力，并禁止联邦政府推行的强制疫苗政策。
 
-数据表明，中共病毒疫苗高接种度人群也是未来高死亡风险人群，其原因在于，导致人们死亡的正是所谓的“疫苗”，而非中共病毒本身。相较而言，未接种中共病毒疫苗的人群，其免疫系统和DNA不受疫苗带来的负面影响。
+哈茨勒还强调，政府的强制疫苗政策劳民伤财，并且将导致大量的企业雇员离开原本的工作岗位，这将加剧美国现存的通货膨胀和供应链危机。因此，该强制令是极其错误的行为，且必须予以纠正。
 
-另据美国保险业巨头的有关报告提及，近期，整个保险行业的死亡索赔率上升了40%，这明显是因中共病毒疫苗导致的连锁反应。
+此前，郭文贵先生曾在直播中爆料，美国将于2022年1月开始立法禁止中共病毒疫苗的强制接种工作。而今，国会山的对政府强制疫苗令的立法恰恰验证了这一爆料。
 
-对此，有媒体评论，将完全接种中共病毒疫苗后导致死亡的病例标记为死于中共病毒的行为是让人绝望和偏离事实的，因为疫苗才是导致患者死亡的真正原因。
-
-参考链接：[U.K. government says vaccinated are dying at a rate 286% higher than unvaccinated](https://dreddymd.com/2022/01/14/u-k-government-vaccinated-dying-286-percent-higher-than-unvaccinated/)
+参考链接：[Rep. Hartzler to Newsmax: Proposed Law Will Stop Federal Vaccine Mandates](https://www.newsmax.com/newsmax-tv/vicky-hartzler-vaccine-mandates-legislation/2022/01/13/id/1052233/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001 
-编辑：百香果
+总编：Ivy001 
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -34,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

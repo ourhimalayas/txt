@@ -2,34 +2,42 @@
 ---
 
 
-## 近在咫尺的疫苗灾难（二）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1865098/)
+## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
 
-作者：纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美国良好而完备医疗保健体系，让我觉得疫苗灾难离我很远。
+加拿大温哥华扬帆农场：Jamie\_Luffy
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
+图片来源：
 
-没有想到，疫苗灾难就发生在我身边，触手可及的地方。邻居陈太太因为疫苗副作用去世了，每次经过她家门前，还是能想起她言笑晏晏的样子。我在昨天又听到了一个坏消息：住在我楼上的老太太也去世了。
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
 
-就在圣诞节前几天，她突然半夜从床上摔下来，心脏不适，被急救送进了医院。据猜测，她可能半夜觉得心脏不舒服，想起床，结果无力而从床上摔下来。
+就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
 
-她是个安静和善的退休老人，年纪并不是很老，七十多岁吧，喜欢打坐运动，每天都会练功。我和她的女儿是朋友，她女儿说，她妈妈的心脏一直很健康，每年的体检报告都显示，她有一颗健康有活力的心脏。自从打完疫苗，老太太明显变得越来越虚弱无力，经常抱怨这里痛那里痛的。
+目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
 
-老太太一直努力保持健康，是舍不得独身的唯一的女儿，因为，她们是彼此的唯一亲人啦。老太太希望可以陪伴女儿久一点，更久一点……
+加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
 
-这份来自母亲的爱和坚持，让疫苗给毁了，中断得措不及防。
+在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
-**更多资讯，更多关注**
+(本文仅代表作者观点)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
+
+[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
+
+
+
+> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
+
+
+
+审核：文敏   发布： 天予
 
  
 
