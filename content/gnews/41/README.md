@@ -2,28 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1859916/)
+## 文贵大直播 1/14 正确认知美国高院判决的重大意义
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1859725/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2.jpg)
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot1.jpg)图片来源 GTV
+1月14日的文贵大直播如约而至，在纽约现场，新中国联邦创始人郭文贵先生开篇即严正指出，美国高院对疫苗强制令的判决意义极其重大。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-12.png)
-文章仅代表作者本人观点，与Gnews无关
+郭先生从中美政治生态背景的对比，特别是在中共国党大于法，行政大于法律，人治大于法治的诸种事实。从个人和中共国军政顶层人士的亲身经历，从超过纳粹的中共CCTV宣传机器的邪恶，从中共国律师地位不如小姐等，以铁的事实告诉公众，法律和行政是完全不一样的概念，在中共国和美国也是截然不同的现实存在。
 
-视频参看：[2022.01.14早GTV新闻访谈](https://gtv.org/video/id=61e17a36a6dfdd603154322f)
+文贵先生语重心长地告诉所有新中国联邦的战友，一个人的正确认知，影响到对客观世界的正确把握，甚至影响到每个人的命运变化。美国高院对疫苗强制令的判决，对全球疫苗灾难的重大意义，核心在于法治社会的本质特征。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+【来源链接】https://gtv.org/broadcast/watch/61e1756ca6dfdd6031542868
 
  
 

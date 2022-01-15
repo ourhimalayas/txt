@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 12:49 AM (UTC)`
+
+1月14号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group18/getter/2022/01/15/00/4f9b207f-9308-275b-efee-8c94dba5f643/out.jpg)
+
+---
+
 `@miles 1/15/2022 12:03 AM (UTC)`
 
 1/14/2022 Miles Guo: The CCP is once again making arrests in Communist China! Those who handled Sun Lijun’s case were arrested, as were several production crew members of the CCP’s film called Zero Tolerance. Something big will happen in the CCP’s sports community. Li Yongbo will certainly be arrested, and this will lead to the revelation of countless stories like that of Peng Shuai<br/><br/>1/14/2022 文贵直播：这两天国内又在抓人！审孙力军案子的人被抓，《零容忍》制作组的好几个人也被抓；中共体育界在冬奥会后将发生大事，李永波必被抓，这将牵扯出无数个彭帅的故事<br/>
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。<br/><br/>Djokovic’s mother backing up her son: If Novak is healthy, he should not be pressured to take the vaccine in order to play tennis. Vaccine is a personal choice, it is human rights. People who vaccinated with 2 shots even 3 shots are infected with coronavirus as well. The notion that if Novak is not vaccinated, he might get 10,000 people sick if he coughs on the court is silly. <br/><br/> 
 ![img](https://media.gettr.com/group28/getter/2022/01/13/01/84fb9552-41f2-64ba-c0a8-a2ce3692d6f3/out.jpg)
-
----
-
-`@miles 1/13/2022 1:02 AM (UTC)`
-
-1月11日，在北京为下个月的冬奥会而准备之时，另一个500万人口的中国城市安阳被封城。<br/><br/>As Beijing prepares for the Winter Olympics next month, another Chinese city of 5 million residents - Anyang - is under strict lockdown on 11th, January.<br/>
-![img](https://media.gettr.com/group4/getter/2022/01/13/00/2dceb225-8ee5-e656-4749-a894189c5b93/out.jpg)
 
 ---
 
