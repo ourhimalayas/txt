@@ -2,43 +2,37 @@
 ---
 
 
-## 国家电网计划2022年投资5012亿元
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862849/)
+## 中国政府加紧争议边界建设
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1862882/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-21.jpg)
+图片来自网络
+[中国](https://www.foxnews.com/category/world/world-regions/china)政府继续正在继续采取边界行动，加剧与印度、不丹邻国的紧张气氛，包括正在扩大与[不丹](https://www.foxnews.com/category/world/world-regions/asia)有争议的边界沿线定居点建设的计划。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+2017年中国政府公布了，在西藏边界地区建设600多个村庄的计划，主要目的是巩固对该地区的控制，这一计划将影响中国与印度的关系。与此同时，中国的施工团队在洞朗高原上修建公路，紧张局势加剧。在中国政府与印度政府撤军后，相继都做出了让步。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
+但是，路透社分析卫星图像显示，中国政府在与不丹接壤的边境建立定居点，来继续推进控制边境的企图，从而加剧紧张局势。
 
+美国数据分析公司鹰眼360（HawkEye 360）进行的图像分析显示，在争议地区的六个地点正在建设 200 多座建筑物，包括两层楼的建筑物。
 
-根据《界面新闻》1月14日报道，国家电网有限公司增加了今年的电网投资。
+2020年初，在中印之间的最后一次大规模冲突之前，这些建筑物就开始在建设，2021 年提高了建设速度。鹰眼360任务执行总监克里斯·比格斯(Chris Biggers)表示，最初的计划显示，是建筑一些大型建筑和轨道，现在已经建造了一些新的、小型建筑，可能是为了存储设备或物资。
 
-国家电网有限公司成立于2002年12月，以投资建设运营电网为核心业务，经营区域覆盖26个省（自治区、直辖市），供电范围占国土面积的88%，供电人口超过11亿。
+不丹外交部长拒绝就“边界问题”发表公开评论。但中国外交部坚称，建设完全是为了改善当地人民的工作和生活条件。  中国外交部表示：在自己的领土上开展正常的建设活动，是中国政府主权范围内的事。中国政府一直在利用建设边境争议地区，来提出政治主张，例如南海[的人造岛礁。](https://www.foxnews.com/politics/pentagon-report-says-china-weaponizing-man-made-islands-in-south-china-sea)这一争端涉及中国、越南、菲律宾、文莱、马来西亚和台湾。 日本并不是直接的领土争议国，但最近也参与进来，支持那些反对中国扩张的国家。 日本是美国在该地区最亲密的盟友之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-22.jpg)图片来自网络
+不丹边境沿线的建筑图像显示，几乎没有建筑设施和居住人口，建筑活动也是按照常规发生在以前没有开发的地区，
 
-一位接近国家电网的人士表示，1月13日，国家电网召开了年度工作会议，计划2022年电网投资达5012亿元。
+一些专家还推测，这些定居点的位置可能会是中国政府的远程行动基地，以加强对该争议区域的控制。该地区将使中国有更多机会进入一条连接印度与其东北地区的战略地带。
 
-这是国家电网年度电网投资计划首次突破5000亿元，创历史新高，同比增长8.84%。
+伦敦大学亚非学院教授研究员，对中国和不丹边境有深入研究的西藏问题专家罗伯特·巴内特说：中国政府声称的不丹边界上修建村庄，似乎是为了迫使不丹在边界谈判中屈服于中国政府的要求，此次谈判是 37 年以来的第 24 轮谈判。
 
-2020年，国家电网完成电网投资4605亿元，并承诺2021年完成电网投资4730亿元。
+信息来源：
 
-据悉，2021年国家电网的电网基建投资共完成4024.8亿元。
+[China steps up construction along disputed border, implicating security in key Indian territory](https://www.foxnews.com/world/china-construction-disputed-bhutan-border-india)
 
-电网投资一直是稳增长的重要方式，在新能源大力发展背景下，特高压电网持续迎来增量需求。
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1.jpg)
 
-据国融证券研报，电网是逆周期调节的重要环节，叠加新能源大范围消纳、负荷结构变化等问题，电网行业投资将加快。
-
-参考链接：[【独家】首破5000亿，国网今年电网投资将创新高](https://www.jiemian.com/article/7014787.html)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

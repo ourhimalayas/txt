@@ -2,38 +2,38 @@
 ---
 
 
-## 美国会要求国际奥委会解释与涉新疆棉中企合作
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862744/)
+## 有声| 献给使CCP闻风丧胆的灭共战神——郭文贵先生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1862764/)
 
-作者：纽约磐石农场 – 在远方
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/条幅-1.png)
-
-台媒报道，当地时间1月12日，针对国际奥委会委托使用新疆棉的中共国企业生产制服，北京冬奥会人员可能因此，穿到涉及强迫劳动的服饰，美国国会中共国问题委员会致函国际奥委会，要求其做出解释。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/f810b9b0722e0e2d9e7c5f8df708972e.jpg)
-
-信函表示，拜登总统于去年12月签署生效的“防止维吾尔人强迫劳动法”，建立“可反驳推定”制度，推定所有来自新疆的货物都涉及强迫劳动，不得进口至美国。信函称，新疆棉已经成为中共当局强迫劳动、系统性压迫代名词。由于安踏、恒源祥公司皆持续使用新疆棉，让人担心国际奥委会人员，或参与2022奥运的人士，可能会穿着“遭强迫劳动污染”的服饰。
-
-信函要求国际奥委会主席巴赫，公布恒源祥提供的产地证书副本；以及要求巴赫说明，安踏是否有为自己产品未涉及强迫劳动，提出任何保证。
-
-参考链接：
-
-- [國際奧會與涉新疆棉中企合作 美國會去函要解釋](https://cn.rti.org.tw/news/view/id/2121995)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+众所周知，郭文贵先生是第一个以一己之力挑战强大邪恶统治的真男儿，他的名号已经成了灭共勇士的代名词。郭文贵先生引领的爆料革命和新中国联邦戳到了中共的痛处，使傲慢自负的中共措手不及。他让中共权贵闻之胆寒、无法安眠，令盗国集团恨之入骨、欲除之而后快，伪类们对郭先生的羡慕嫉妒恨已经到了疯狂地步。中共倾尽一国之力，动用沉默力量，甚至动用了各种暗杀手段要铲除郭先生这个中共的眼中钉。郭先生就是一面照妖镜，他揭开了中共用谎言蒙上的面纱，让全世界看清了中共的丑陋面目，他是当之无愧的灭共英雄，我们绝不应该害怕伪类们的抨击就不去赞颂他。做为郭文贵先生和爆料革命的忠实粉丝，在我们迈入2022春节之际，我就是要大声地告诉世人，灭共战神郭文贵先生是当今世界的“真男儿”，是14亿中国人得到自由的希望！我坚信真男儿10大特质一定会在战友们的心中产生共鸣。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-总编：飞虹
-校正/发稿：海阔天空1
+**原文链接：[献给使CCP闻风丧胆的灭共战神——郭文贵先生](https://gnews.org/zh-hans/1858826/)**
+
+
+
+音频处理：雪梨
+发稿**：**雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

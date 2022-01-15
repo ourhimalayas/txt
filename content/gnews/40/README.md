@@ -2,17 +2,17 @@
 ---
 
 
-## 纽约市的免疫力被大规模接种疫苗所摧毁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862335/)
+## 强制疫苗是全球主义者减少人口的阴谋
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862488/)
 
-##### 翻译：Julia Gao
+##### 翻译：不要代表我Kari
 校对：Lish
 剪辑/字幕：蛮吉
 编辑：Mttfly
 
-随着纽约市新冠疫苗接种率达到70%，福奇称这使市民们能生活在一个更安全的环境里。但是， 弗朗西斯克里克研究所的大卫·鲍尔博士却有相反的观点。其发现对于接种过两次新冠疫苗的人来说，他们体内的中和抗体数量减少，这些抗体在阻止病毒进入人体细胞发挥首要作用。他用以色列为例，说明纽约市民的免疫能力也随着疫苗继续接种而持续下降。
+一位质疑政府强制疫苗计划的人被主流社交平台噤声，他表示无论是否接种过新冠疫苗，都将会被强制接种第三针。他认为强制疫苗是全球主义者削减人口的一个阴谋，并呼吁人们不要屈服，勇敢的对疫苗说不。
 
-视频链接：[NEW YORK CITY HAD ITS IMMUNITY DESTROYED BY MASS VACCINATION](https://www.bitchute.com/video/BF7yRgty6lUn/)
+视频链接：[By the use of mandated vaccinations and forced lockdown, mad globalists have planned to achieve the conspiracy of population reduction. Don’t submit, be brave and say no.](https://www.bitchute.com/video/UxQibW5eggJk/)
 
 *发布：Mttfly*
 **
