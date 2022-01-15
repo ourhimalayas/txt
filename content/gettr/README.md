@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/15/2022 2:19 AM (UTC)`
+
+1/14/2022 Miles Guo: The SCOTUS blocking the vaccine mandate means that the campaign of stopping the COVID vaccination by law has begun, and the rest of the world will block the vaccine mandates. Only the New Federal State of China can provide the SCOTUS with the evidence to stop the vaccine mandate.<br/><br/>1/14/2022 文贵直播：美最高法院否决疫苗强制令说明以法灭疫已经开始，全世界将陆续否决疫苗强制令；只有新中国联邦能为美最高法院提供停止疫苗强制令的证据<br/><br/>
+![img](https://media.gettr.com/group20/getter/2022/01/15/02/b8dc5f12-b125-eef4-3b86-20932f4ebd02/out.jpg)
+
+---
+
 `@miles 1/15/2022 12:49 AM (UTC)`
 
 1月14号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -147,13 +154,6 @@ On 10th December last year Miles Guo first talked about Yang Jiechi has arrested
 
 1/12/2022 Miles Guo: Why did Isobel Yeung happen to be there to specifically interview the Chinese people on January 6, 2021? Why is it the case that she is executing a conspiracy that has been brewing for years? Fellow fighters’ personal experiences show that discrimination against the Chinese is everywhere, and there will be tens of millions of anti-Chinese incidents in the future!<br/><br/>1/12/2022 文贵直播：杨贝贝为什么能恰好在2021年1月6日去专门采访华人？为什么说她执行的是酝酿多年的阴谋？战友的亲身经历说明对华人的歧视无处不在，未来的排华事件将以千万计！
 ![img](https://media.gettr.com/group23/getter/2022/01/13/01/5af1fb86-dd85-80c7-3c9c-0cb77918dc51/out.jpg)
-
----
-
-`@miles 1/13/2022 1:20 AM (UTC)`
-
-德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。<br/><br/>Djokovic’s mother backing up her son: If Novak is healthy, he should not be pressured to take the vaccine in order to play tennis. Vaccine is a personal choice, it is human rights. People who vaccinated with 2 shots even 3 shots are infected with coronavirus as well. The notion that if Novak is not vaccinated, he might get 10,000 people sick if he coughs on the court is silly. <br/><br/> 
-![img](https://media.gettr.com/group28/getter/2022/01/13/01/84fb9552-41f2-64ba-c0a8-a2ce3692d6f3/out.jpg)
 
 ---
 
