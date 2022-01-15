@@ -2,41 +2,46 @@
 ---
 
 
-## 中共公安部原副部长孙力军涉三重罪被提起公诉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1862647/)
+## 河南某检验中心负责人因涉嫌传播病毒遭刑拘
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862676/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山教育部- Noemi
 
-整理：Mohegayer K. Simon
-编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/common.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
 
-1月13日下午，最高人民检察院通报：公安部原党委委员、副部长孙力军涉嫌受贿、操纵证券市场、非法持有枪支案，由国家监察委员会、吉林省长春市公安局分别调查、侦查终结，经最高人民检察院指定，由吉林省长春市人民检察院审查起诉。近日，长春市人民检察院已向长春市中级人民法院提起公诉。
 
-检察机关起诉指控：
+当地时间1月12日，中共国河南省许昌市警方在官方通报中称，郑州金域临床检验中心的区域负责人张某东，因违反传染病防治法规定，实施引起冠病病毒传播的行为，被警方立案侦查并采取强制措施。
 
-1. 孙力军利用担任上海市卫生局外事处副处长，上海市人民政府外事办公室综合业务处处长，公安部办公厅副主任、国内安全保卫局局长、公安部党委委员、副部长等职务上的便利以及职权、地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；
-2. 操纵证券市场，情节特别严重。2015年7月9日股灾，不少分析认为，是中共内部的贪腐利益集团对习近平发动的一场惊天的“金融政变”，或称经济政变，孙力军牵涉其中。
-3. 违反枪支管理规定，非法持有枪支，情节严重。他在自己家里，储备了很多枪支。据知情人说就像个小军火库一样，随时可以装备一个排的兵力。
+据了解，郑州金域临床检验中心是一家大型的第三方医学检验机构，而此次被刑拘的张姓负责人则主管了郑州市三分之一的核酸检测工作。该中心的上级母公司正是金域医学——中共国的一家核酸检测龙头企业。金域成立之初，是钟南山担任院长的广州医学院的校办企业。目前，在37位知名专家组成的金域医学学术委员会中，钟南山任主席。
 
+在此次事件中，警方称该名负责人有涉嫌“引起或者传播中共病毒”的行为，这一模糊说法引发了墙内网民的大量讨论。有网友爆料称，该中心涉嫌“丢弃检测样本、伪造检测结果”等违法、违规操作行为，此次事件的曝光或将导致金域医学的股价暴跌。更有网友评论称，该负责人是为了谋取暴利而故意将病毒外泄，导致了当地大规模感染，应以“投毒罪”对其进行起诉。
 
-去年9月孙力军曾被通报“政治野心极度膨胀”、“成伙作势控制要害部门”、“严重危害政治安全”。外界一些观察人士认为形同指孙力军涉及政变。
-
-新闻来源：
-
-1. [公安部原党委委员、副部长孙力军被公诉(新浪)](https://news.sina.com.cn/o/2022-01-13/doc-ikyamrmz4980331.shtml)
-2. [【内幕】孙力军涉金融政变 家藏军火库 (大纪元)](https://www.epochtimes.com/gb/22/1/14/n13505189.htm)
+截至目前，该案件依然处于审理当中，金域医学则在当日跌超5%。
 
 
-发布：tianzhihuan
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：
+
+[https://www.zaobao.com.sg/realtime/china/story20220112-1232157](https://www.zaobao.com.sg/realtime/china/story20220112-1232157)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
  
 

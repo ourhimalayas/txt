@@ -2,44 +2,24 @@
 ---
 
 
-## 河南一检验中心负责人涉嫌传播新冠病毒， 被警方立案侦查
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862520/)
+## 美情报称俄罗斯正欲栽赃嫁祸，为入侵乌克兰寻找借口
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1862646/)
 
-作者：首尔天池农场 祥瑞舟
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-13.jpg)图片来源：NOWNEWS
+1月14日，《新闻极限》报道，美国的情报显示，俄罗斯正在准备开展“伪旗行动 (False flag)”，为合理入侵乌克兰寻找借口。
 
+根据CNN的报道，情报认为，俄罗斯特工人员接受了城市战争和使用爆炸物的训练，正在策划对俄罗斯自己的代理部队进行攻击。乌克兰国防部周五和美国国家安全顾问杰克·沙利文周四在白宫新闻发布会上都提到了这些情报。
 
+据《纽约时报》报道，俄罗斯外交部长谢尔盖·拉夫罗夫(Sergey Lavrov)表示，外交方面的尝试正在崩溃，迫使俄罗斯准备战争。
 
-![](https://n.sinaimg.cn/news/crawl/59/w550h309/20220112/d515-51c156663160608557d5458513c36aaa.jpg)（图片来自新浪网）
+而CNN报道，周五，拉夫罗夫说：“虽然我们的建议旨在减少军事对抗，缓和欧洲的整体局势，但西方国家的情况正好相反。北约成员正在加强其实力和巡航。在与乌克兰直接相邻的领土上，在黑海，演习的规模最近增加了许多倍”。
 
-据中共新浪新闻报道，1月12日，河南许昌市警方通报称，经公安机关调查，郑州金域临床检验中心有限公司区域负责人张某东违反传染病防治法规定，实施引起新型冠状病毒感染肺炎传播或者有传播严重危险的行为。禹州市公安局于2022年1月10日，对张某东以涉嫌刑事犯罪立案侦查并采取强制措施。目前该案正在进一步办理中。
+**新闻来源**
 
-许昌警方称，案件是省公安厅督导案件，因为案件正在办理中，按照刑事案件相关要求，暂时不适合公布细节。具体情况将以官方形式对外发布。 另外，自新冠肺炎疫情暴发以来，该公司承担了政府组织的部分核酸检测任务。2021年，金域医学华中区域总部实验室针对PCR新冠检测平台进行扩建，承担了郑州市近三分之一的人员核酸检测筛查任务，截至2021年10月，累计检测超1000万次。
-
-
-
-参考链接：
-
-[https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html](https://news.sina.cn/gn/2022-01-12/detail-ikyamrmz4698772.d.html)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
+[Intel: Russia Has Plans to Attack Itself to Blame Ukraine, Then Invade It](https://www.newsmax.com/newsfront/intelligence-russia-false-flag-operation-ukraine/2022/01/14/id/1052462/)
 
  
 

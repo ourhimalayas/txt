@@ -2,24 +2,40 @@
 ---
 
 
-## 郭先生解析vice采访（七）
-` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1862496/)
+## 哈萨克斯坦前总统纳扎尔巴耶夫家族坐拥巨额海外资产
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1862555/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：MOS 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)![Former Kazakhstan president Nursultan Nazarbayev (right) and Ms Nazarbayeva pictured together at a wedding in Spain in 2004](https://i.dailymail.co.uk/1s/2022/01/11/10/52714245-10383503-Former_Kazakhstan_president_Nursultan_Nazarbayev_right_and_Ms_Na-a-1_1641896206200.jpg)（图片来自《每日邮报》）
+由于一个英国的法律诉讼，纳扎尔巴耶夫家族的财务情况被披露。哈萨克斯坦前总统纳扎尔巴耶夫的女儿，纳扎尔巴耶娃·阿利娅于2016年在位于伦敦的高等法院递交了对其投资顾问的起诉。指控两位前顾问不诚实，滥用资金，企图欺诈，非法牟利等，直到最近案件的细节才被公开，使公众得以了解前总统家族的巨额财富。
 
-我们永远没有说话的机会。律师都是很单纯的职业，职业律师吗？ 我说我正面出击。我接受他的采访，这中间我们取消了不下最起码**10**次以上，最后都就是各种原因，病毒什么的？ 特别我了解了伊萨贝拉的背景以后，这个女的要么是来放毒来了。
+纳苏坦·纳扎尔巴耶夫任哈萨克斯坦总统共28年，直至2019年卸任。卸任之后，他仍保留了哈萨克安全委员会首脑职务，被认为拥有实际控制权。在其任上，少数寡头聚集了大量财富，而普通民众生活困难。在街头抗议活动后，纳扎尔巴耶夫辞任安委会职务，并有传言称他准备逃离首都，努尔-苏丹，一个以他名字命名的城市。阿利娅是纳扎尔巴耶夫最小的女儿，2006年在伦敦北部购买了一座豪宅，用以获得英国国籍。 这是这位41岁的女人从哈萨克斯坦撤出3亿2千500万美元资产后的巨额买卖之一。阿利娅在海格特地区的房子花费了875万英镑，她还花了大约1400万美元在迪拜买了一套房子。庞巴迪豪华飞机Bombardier Challenger 花费了她近2500万美金。纳扎尔巴耶娃曾告诉其顾问们，说她留在哈萨克斯坦很危险，之后从哈萨克斯坦转移出了 3.12 亿美元。此外，在提交给法庭的文件中，有一份管理她的资产的声明，承认她是“政治风险人物”， 由于担心因政治关联使她无法通过资金背景调查，财富顾问建议阿利娅直接购买一家银行用以转移资产。于是她授权以1亿零800万美金入股瑞士CBH私人银行，并控制51%股权。此项交易也为之后的法律战埋下伏笔，在诉讼中，阿利娅的指控即包含顾问滥用了75000万瑞郎，约一半用于投资银行的款项。
 
-第二，近身接触，别有他意，我说我要豁出孩子，套着狼，我要把我自己去套狼去，把我自己扔出去。另外一个阻止她伤害更多的人。而且她再搞，他一定会找西方的政界媒体界，就像那个数据，你看那个很吓人的那个数据在那放着。郭文贵的影响力够不够大，非常大。而且是跟极右派交织在一起。就这个手法，你能看出来，这是西方玩媒体的，你知道是什么，就是以一孔之见来证明。天下皆如此。这就是说我只给你摄像机的那么大的真相，你就认为**100%,**这就是媒体的力量，也是媒体最邪恶的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.007.jpeg)
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+参考链接：
+
+[https://www.dailymail.co.uk/news/article-10383503/Kazakh-despots-daughter-41-bought-18m-luxury-jet-8-75m-mansion-London-spending-spree.html](https://www.dailymail.co.uk/news/article-10383503/Kazakh-despots-daughter-41-bought-18m-luxury-jet-8-75m-mansion-London-spending-spree.html)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-84.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
 
  
 
