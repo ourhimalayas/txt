@@ -2,52 +2,32 @@
 ---
 
 
-## 疫苗任务否认自然免疫是“现代史上史无前例”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864778/)
+## 立陶宛拒绝中国对其施加的压力 呼吁欧盟做出明确回应
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864843/)
 
-编译： Jenny Ball
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-3.png)文件 – 中国国旗的资源图像。 – Jörg Carstensen/dpa – 档案
+立陶宛外交部长加布里埃尔-兰茨贝里斯呼吁欧盟在双方经济冲突日益加剧的情况下，拒绝中共国对立陶宛的压力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1211.png)2020 年 8 月 12 日，胡佛研究所高级研究员斯科特·阿特拉斯（Scott Atlas）和白宫新闻秘书凯莉·麦肯尼（Kayleigh McEnany）在唐纳德·川普总统之前抵达华盛顿白宫参加新闻发布会。（安德鲁·哈尼克/美联社照片 文档）
+“现在需要欧洲做出非常明确的回应。欧盟必须说，这不仅仅适用于一个特定国家的市场。这是对整个以规则为基础的全球贸易体系的考验。欧洲必须为自己站出来”，兰茨贝里斯在接受《金融时报》采访时说。
 
-一位著名的公共卫生专家说，在医疗保险和医疗补助服务中心 (CMS) 疫苗任务中，否认自然免疫，这是“现代历史上前所未有的”。
+部长强调，维尔纽斯不反对北京，但主张立陶宛自己有权在希望与任何领土，比如与台湾，建立独立的贸易和文化联系。
 
-川普政府期间的前白宫 COVID-19 工作组顾问斯科特·阿特拉斯博士，在周四美国最高法院 (SCOTUS) 的裁决后发表了上述言论，法院决定维持 CMS 疫苗授权 。
+“立陶宛没有做错什么，没有违法，也没有违反任何国际义务。”他在回应美国贸易代表凯瑟琳在与中共国的一次谈话中发表的言论时说。欧盟委员会执行副主席瓦尔迪-东布罗夫斯基斯表示，他愿意与布鲁塞尔合作，对抗与中共国的外交和经济压力。
 
-他告诉《大纪元》，**该裁决是“又一次严重否认科学事实”**，特别是在 CMS 疫苗授权中否认天然免疫。
+对于任何和台湾建立即使是非官方关系的国家，北京都会施加压力。2021年11月18日，立陶宛宣布在台湾开设代表处，引起了中共国的强烈批评，因此加剧了两国的紧张关系。
 
-他说：“这是继续拒绝为康复者提供更好的保护，无论是否接种疫苗，”“否认天然免疫这一点，在现代历史上是前所未有的，经过证实的事实和数十年的免疫学基础，都让裁决以某种方式给否认了。”
+北京认为台湾是中共国的一个省，并对任何支持台湾独立的想法进行了抨击。作为对维尔纽斯决定的回应，中共国政府降级了与立陶宛的外交关系，与立陶宛两国的关系降级为“代办级”。
 
-“如果我们这个社会的领导人一再否认这一事实，我非常担心这个社会的未来，”他补充说。
-
-最高法院周四阻止了拜登政府由劳工部职业安全与健康管理局 (OSHA) 实施的私营企业疫苗授权。但与此同时，美国最高法院决定维持 CMS 疫苗的授权，**这覆盖 76,000 家医疗机构的 1040 万医护人员。**
-
-在 CMS 疫苗授权的 5-4 裁决中，约翰·罗伯茨（John Roberts）和布雷特·卡瓦诺（Brett Kavanaugh）加入了民主党提名的大法官三人组，而克拉伦斯·托马斯（Clarence Thomas）提出了异议，塞缪尔·阿利托（Samuel Alito）、尼尔·戈萨奇（Neil Gorsuch）和艾米·康尼·巴雷特（Amy Coney Barrett）也加入了这一行列。
-
-法院的大多数人表示，疫苗授权“属于国会授予的权力”，卫生与公共服务部长（HHS）泽维尔·贝塞拉（Xavier Becerra）说。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1214.png)最高法院成员于 2021 年 4 月 23 日在华盛顿最高法院合影。（Erin Schaff/Pool/Getty Images）
-
-**CMS 是 HHS 的一部分。**
-
-该裁决也不同意数十个红州的说法，**即 ****CMS ****没有考虑自然免疫的好处**。
-
-CMS 对 SCOTUS 的裁决表示赞赏，称其对结果“非常满意”。
-
-“我们期待与医疗保健提供者及其工作人员合作保护患者。我们将继续开展广泛的外展和援助工作，鼓励从事医疗保健工作的个人接种疫苗，”CMS 管理员奇基塔
-
-布鲁克斯-拉苏尔（ Chiquita Brooks-LaSure） 在一份声明中说。
-
-**点评：我只是不明白，为什么适合私营企业疫苗授权的科学理由，却不适用于医疗保健工作者？在同样的科学依据面前，为什么对不同的人不同对待？**
-
-素材链接：[theepochtimes.com] [Denial of Natural Immunity in CMS Vaccine Mandate ‘Unprecedented in Modern History’: Scott Atlas](https://www.theepochtimes.com/denial-of-natural-immunity-in-cms-vaccine-mandate-unprecedented-in-modern-history-scott-atlas_4214051.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-15)
+**新闻来源**：[europapress.es][Lituania pide a la UE rechazar la presión ejercida por China contra el país en pleno aumento de la tensión](https://www.europapress.es/internacional/noticia-lituania-pide-ue-rechazar-presion-ejercida-china-contra-pais-pleno-aumento-tension-20220113121017.html)
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
  
 

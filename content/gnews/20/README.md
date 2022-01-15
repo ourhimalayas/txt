@@ -2,21 +2,40 @@
 ---
 
 
-## 冬奥赞助商不寻常的安静
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1864562/)
+## 丹麦指控来自中共国间谍威胁升高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1864639/)
 
-最近美联社的一条新闻引起了大家的解读。国际奥委会主要的赞助商，在2月冬奥会即将到来之前，均选择保持沉默。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/download-4-1.jpg)
-北京冬奥会马上要召开了，赞助商表现非常的安静。他们试图在曝光率以及与中共政府的关系中间保持平衡。这次的抵制北京冬奥会是美国发起的，以新疆种族灭绝、反人类罪这个理由进行了外交抵制，很多赞助商是有所顾虑的。
+撰稿：纽约磐石农场—在远方
 
-资本是最狡猾、最见风使舵的力量。国际奥委会的顶级赞助商，每个品牌都家喻户晓。冬奥会，远不是一场运动会那么简单，关系到整个世界政治经济各种关系的走向。资本对市场的解读有独特的嗅觉，反共更加有利可图的时候，资本像墙头草一样，也会毫不犹豫地撤离中共，甚至开始加入反共的潮流。墙倒众人推，墙倒的时候可口可乐、宝洁或者VISA，也会与中共国的赞助画上嘎然而止的句号。
 
-三星从中共国撤离，他们五十年之内都不再回来，这也是中共国的一个现状。一场冬奥会并不能向世人展示它就是个太平盛世，也并不能真正带来万邦来朝，这只是中南坑的一个遮羞布和另一个愚民而已。
 
-资本本身没有多大的善恶，经济脱钩已经是不可逆转的事实，近五年来，咱们爆料革命、新中国联邦人见证了很多次乾坤大挪移。这一切都是刚刚开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-文案：文勇
-校对整理：面包树、文峰
+
+
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-26.jpg)图片源自网络
+
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。 
+
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+参考链接:[https://cn.rti.org.tw/news/view/id/2122065](https://cn.rti.org.tw/news/view/id/2122065)
+
+总编：Irene木木
+校正/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

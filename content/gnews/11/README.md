@@ -2,64 +2,52 @@
 ---
 
 
-## Twitter新任CEO在短短任期内带来了一波高调的禁令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1864686/)
+## 疫苗任务否认自然免疫是“现代史上史无前例”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864778/)
 
-**评论：***如果说Twitter封号是认为用户的言论对美国和民主构成了威胁，那么不能理解的是它却允许很多世界上最邪恶的人在那里畅所欲言。垄断就会产生独裁，Twitter一手遮天的局面在2021年7月已不复存在，我只想说如果Twitter封了你的账号，那么来Gettr吧，Gettr会还你一个青青世界。*
+编译： Jenny Ball
 
-据《纽约邮报》 作者：Conor Skelding，2022年1月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1207-e1642269327290.png)推特CEO帕拉格·阿格拉瓦尔
-图片来源：网络
-**批评者说，新任Twitter首席执行官帕拉格·阿格拉瓦尔正在扼杀网站上的自由言论。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1211.png)2020 年 8 月 12 日，胡佛研究所高级研究员斯科特·阿特拉斯（Scott Atlas）和白宫新闻秘书凯莉·麦肯尼（Kayleigh McEnany）在唐纳德·川普总统之前抵达华盛顿白宫参加新闻发布会。（安德鲁·哈尼克/美联社照片 文档）
 
-**批评者告诉《纽约邮报》，Twitter新任首席执行官帕拉格·阿格拉瓦尔上任的头几个月，验证了人们对他的领导策略将减少网站上自由表达的担忧。**
+一位著名的公共卫生专家说，在医疗保险和医疗补助服务中心 (CMS) 疫苗任务中，否认自然免疫，这是“现代历史上前所未有的”。
 
-许多高知名度的账户已被禁止——包括一名现任国会议员和一名帮助发明mRNA疫苗技术的病毒学家。
+川普政府期间的前白宫 COVID-19 工作组顾问斯科特·阿特拉斯博士，在周四美国最高法院 (SCOTUS) 的裁决后发表了上述言论，法院决定维持 CMS 疫苗授权 。
 
-**保守派监督机构媒体研究中心的丹·盖诺（Dan Gainor）说：“特别是在上个月，推特似乎加大了对右派人士的审查力度，而且是对那些违背共识的人的审查。”**
+他告诉《大纪元》，**该裁决是“又一次严重否认科学事实”**，特别是在 CMS 疫苗授权中否认天然免疫。
 
-自从阿格拉瓦尔掌权以来，该网站以涉嫌违反其“COVID-19错误信息政策”为由，封禁了众议员马乔里·泰勒·格林（R-Ga.）。
+他说：“这是继续拒绝为康复者提供更好的保护，无论是否接种疫苗，”“否认天然免疫这一点，在现代历史上是前所未有的，经过证实的事实和数十年的免疫学基础，都让裁决以某种方式给否认了。”
 
-她在Gettr网站上发帖说：“Twitter因为他们认为的COVID‘错误信息’而禁止我的账户，这相当令人担忧，因为我分享的信息实际上是来自CDC网站。”
+“如果我们这个社会的领导人一再否认这一事实，我非常担心这个社会的未来，”他补充说。
 
-众议院少数党领袖凯文·麦卡锡（R-Calif.）抨击了Twitter的操作，并建议，如果大科技公司审查受宪法保护的言论，有效地充当出版商，它应该失去第230条的保护——联邦法律豁免平台对第三方内容的责任。
+最高法院周四阻止了拜登政府由劳工部职业安全与健康管理局 (OSHA) 实施的私营企业疫苗授权。但与此同时，美国最高法院决定维持 CMS 疫苗的授权，**这覆盖 76,000 家医疗机构的 1040 万医护人员。**
 
-Twitter还永久禁止了罗伯特·马龙博士——他被广泛认为是辉瑞和Moderna COVID-19免疫中使用的mRNA技术的发明者——但没有指明违规内容。马龙的帖子曾质疑COVID-19疫苗的功效。
+在 CMS 疫苗授权的 5-4 裁决中，约翰·罗伯茨（John Roberts）和布雷特·卡瓦诺（Brett Kavanaugh）加入了民主党提名的大法官三人组，而克拉伦斯·托马斯（Clarence Thomas）提出了异议，塞缪尔·阿利托（Samuel Alito）、尼尔·戈萨奇（Neil Gorsuch）和艾米·康尼·巴雷特（Amy Coney Barrett）也加入了这一行列。
 
-另一位科学家，谢菲尔德大学专门研究止血和血栓的Michael Makris教授，不得不删除一条关于正在开发的新型COVID-19疫苗的推特，否则将面临禁言。
+法院的大多数人表示，疫苗授权“属于国会授予的权力”，卫生与公共服务部长（HHS）泽维尔·贝塞拉（Xavier Becerra）说。
 
-Just The News的创始人约翰·所罗门被暂停使用推特，因为他在推特上发表了一篇关于食品和药物管理局的声明，即完全批准的Comirnaty疫苗与紧急批准的Pfizer-BioNTech产品“在法律上是不同的”，后者在美国更广泛地使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1214.png)最高法院成员于 2021 年 4 月 23 日在华盛顿最高法院合影。（Erin Schaff/Pool/Getty Images）
 
-据报道，流行的新闻聚合网站Politics for All——由《旁观者》社交媒体编辑尼克·莫尔（Nick Moar）创立——也因未指明的“平台操纵”而被禁止。
+**CMS 是 HHS 的一部分。**
 
-从推特被永久删除还有Mystery Grove Publishing Company，这是一家出版绝版书籍的小型出版社，例如最后一位白俄罗斯总司令彼得·弗兰格尔 （Pyotr Wrangel） 的回忆录。
+该裁决也不同意数十个红州的说法，**即 ****CMS ****没有考虑自然免疫的好处**。
 
-盖诺说，在阿格拉沃尔的领导下，思想监管工作比推特创始人和前首席执行官杰克·多尔西“更加公开”，他的雇主经营着censortrack.org，该网站汇总了网上言论压制的例子。
+CMS 对 SCOTUS 的裁决表示赞赏，称其对结果“非常满意”。
 
-他还注意到，在国会大厦骚乱一周年前后，Twitter成立了一个新的“跨职能工作组”，以监测和审查言论。
+“我们期待与医疗保健提供者及其工作人员合作保护患者。我们将继续开展广泛的外展和援助工作，鼓励从事医疗保健工作的个人接种疫苗，”CMS 管理员奇基塔
 
-亚利桑那州参议员候选人布莱克·马斯特斯告诉《纽约邮报》：“听起来很奥威尔式。他们不希望政治立场正确的人讨论1月6日的事情。”
+布鲁克斯-拉苏尔（ Chiquita Brooks-LaSure） 在一份声明中说。
 
-马斯特斯是一名活跃的推特用户，他说他注意到高调禁言的“上升”，以及几次不分青红皂白的大规模账户“清洗”。
+**点评：我只是不明白，为什么适合私营企业疫苗授权的科学理由，却不适用于医疗保健工作者？在同样的科学依据面前，为什么对不同的人不同对待？**
 
-与此同时，前《纽约时报》记者和禁闭怀疑论者亚历克斯·贝伦森（Alex Berenson）就他在2020年8月被禁一事起诉这家价值320亿美元的科技公司，称推特可能是“代表联邦政府”禁止他行事。
+素材链接：[theepochtimes.com] [Denial of Natural Immunity in CMS Vaccine Mandate ‘Unprecedented in Modern History’: Scott Atlas](https://www.theepochtimes.com/denial-of-natural-immunity-in-cms-vaccine-mandate-unprecedented-in-modern-history-scott-atlas_4214051.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-15)
 
-他于12月20日向加州联邦法院提交的诉状说：“行政部门高级官员——包括拜登总统本人——在2021年7月的声明中呼吁此类公司进行审查，而推特则立即对贝伦森先生采取了相应的行动，这意味着这个问题值得仔细研究。”
+* * *
 
-Twitter没有回复评论请求。
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
 
-文章来源:[https://nypost.com/2022/01/08/twitter-ceo-parag-agrawal-has-brought-wave-of-high-profile-bans/](https://nypost.com/2022/01/08/twitter-ceo-parag-agrawal-has-brought-wave-of-high-profile-bans/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 好人有好报
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -15,74 +15,74 @@
 
 ---
 
-### [歧视＋错误：保守党领袖反对魁北克省对未接种者征税](/content/gnews/1/README.md)
+### [Covid授权——生命的终极取消（2/2）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜币喜美元潜力无限 将是新中国联邦立足世界的强大经济支持](/content/gnews/2/README.md)
+### [普京在玩“冒险骰子”](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [立陶宛拒绝中国对其施加的压力 呼吁欧盟做出明确回应](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国进一步收紧防疫政策](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [Covid授权——生命的终极取消（1/2）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [使用蔬菜疫苗来说服拒绝接种疫苗者：制药公司的最新想法](/content/gnews/6/README.md)
+ ` xiaobaige`
+
+### [中共政权加强镇压和审查制度](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [歧视＋错误：保守党领袖反对魁北克省对未接种者征税](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加州价值700万美元防疫物资被大雨损坏](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [喜币喜美元潜力无限 将是新中国联邦立足世界的强大经济支持](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [疫苗任务否认自然免疫是“现代史上史无前例”](/content/gnews/3/README.md)
+### [疫苗任务否认自然免疫是“现代史上史无前例”](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [顶级病毒学家：为儿童接种新冠疫苗是 “不可饶恕的罪行”](/content/gnews/4/README.md)
+### [顶级病毒学家：为儿童接种新冠疫苗是 “不可饶恕的罪行”](/content/gnews/12/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [最高法裁决疫苗强制令：阻止职业安全卫生署推行雇员强制接种](/content/gnews/5/README.md)
+### [最高法裁决疫苗强制令：阻止职业安全卫生署推行雇员强制接种](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国最高法院阻止OSHA疫苗强打 依法灭疫已经开始](/content/gnews/6/README.md)
+### [美国最高法院阻止OSHA疫苗强打 依法灭疫已经开始](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [盖特继续蓬勃发展，许多大牌加入](/content/gnews/7/README.md)
+### [盖特继续蓬勃发展，许多大牌加入](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·罗根：比疫苗副作用更大的问题是副作用案例被刻意禁声](/content/gnews/8/README.md)
+### [乔·罗根：比疫苗副作用更大的问题是副作用案例被刻意禁声](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [“我们对中国热性病毒情况知之甚少，所有信息来自中共官员”](/content/gnews/9/README.md)
+### [“我们对中国热性病毒情况知之甚少，所有信息来自中共官员”](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [立法者抨击拜登大流行应对措施，专家质疑疫苗全面授权策略](/content/gnews/10/README.md)
+### [立法者抨击拜登大流行应对措施，专家质疑疫苗全面授权策略](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Twitter新任CEO在短短任期内带来了一波高调的禁令](/content/gnews/11/README.md)
+### [Twitter新任CEO在短短任期内带来了一波高调的禁令](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国军事文件与福奇关于功能增强、Veritas 项目的宣誓证词相矛盾](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [丹麦指控来自中共国间谍威胁升高](/content/gnews/13/README.md)
+### [丹麦指控来自中共国间谍威胁升高](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [【Michael.Tonny专栏】CCP间谍李贞驹蓝金黄英国政坛被军情五处曝光](/content/gnews/14/README.md)
+### [【Michael.Tonny专栏】CCP间谍李贞驹蓝金黄英国政坛被军情五处曝光](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [荷兰运动员被警告不要在中共国使用手机和笔记本电脑](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](/content/gnews/16/README.md)
+### [魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [数字银行投资KYC时如果投资者的资料不真实会发生什么后果](/content/gnews/17/README.md)
+### [数字银行投资KYC时如果投资者的资料不真实会发生什么后果](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [感染过新冠病毒的男子阴茎缩短了1.5英尺](/content/gnews/18/README.md)
- ` GTV News Talk`
-
-### [英情报部门警告议员注意中共统战渗透](/content/gnews/19/README.md)
- ` GTV News Talk`
-
-### [冬奥赞助商不寻常的安静](/content/gnews/20/README.md)
- ` 焦點20分`
-
-### [纳扎尔巴耶夫的两个女婿已经离开了国企公司的高级职位](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [美联储的决定 地球抖一抖](/content/gnews/22/README.md)
- ` 焦點20分`
-
-### [爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/23/README.md)
- ` 纽约香草山MOS03`
 
 ### [2022/01/15 英喜时事速递](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
