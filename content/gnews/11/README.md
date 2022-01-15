@@ -2,31 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月14日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1861644/)
+## 郭先生解析vice采访（一）
+` 雅典娜Gnotes` [轉載自GNews](https://gnews.org/zh-hans/1861730/)
 
-作者：香草山翻译部
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+所有中国人要记住一条，**3**0**0**万华人在一个小小的印尼，**300**万（美国现在所说的**500**万华人）。**300**万被抓被杀，被迫害，**50**万立即斩杀，被强奸，你以为这离你很遥远吗？这个女人，**isabella yang,**在新西兰这种国家，就像德国一样的，就像那个奥地利是一样的，历史上永远是重复的。奥地利这个小破国家，就永远培养那种独裁，你看这次疫苗，它又是最前锋，走极端。新西兰这种国家，还有像澳大利亚这种国家，像英国这种国家，走极端的时候，华人永远是少数。发生印尼排华事件真的一点都不遥远。
 
+所以这个女人，还有这个采访之歹毒，这是把华人置于全球各国的所谓的恐怖主义，影响政治，改变政治，你不处理，他就改变政治。最后你要看 到这个采访，她根本不在乎你怎么回答他，把问题问出来就赢了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0114text-SC.png)
-校对：Stay文苑
+如果咱没有摄像机，你满身是嘴你也说不清。如果我嘴再笨点，你全身都是嘴，也给你憋死，她能憋死你。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/郭先生解析vice采访.001.jpeg)
+发布：tianzhihuan
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.14  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e22302a6dfdd6031548784)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/30B6040C-7739-4E38-9244-67481B07736A.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

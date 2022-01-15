@@ -2,19 +2,43 @@
 ---
 
 
-## 七哥讲述中国老年人的生存现状
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1861433/)
+## 郭先生盖特转发真相工程揭发蝠奇重大证据
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861477/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+作者: 纽约磐石农场—在远方
 
-1月9日，郭文贵先生在GTV大直播指出：
 
-在中共国,地是党的,军队是党的,老百姓的纳税钱从不公布花在哪了。仅习近平当政以来,向外大撒币就多达1.2万亿美元；随便一个中共高官的子孙,都能统治着相当于一个省人剩余价值的财富。而老百姓却是子无所教、老无所尊所养、农民没有一点赚钱的机会,老人病不起死不起埋不起。这是古今中外最糟糕的时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+1月11日，郭文贵先生盖特转发了一条，关于“真相工程”揭发蝠奇重大证据的新闻。该新闻表示，根据“真相工程”发现的文件，与美国国立卫生研究院合作的，知名合作伙伴生态健康联盟，于2018年3月，曾与美国国防高级研究计划局接洽，希望资助一项，旨在对来自美国的冠状病毒，进行功能增强性研究的倡议。 根据真相工程的说法，由于该提案违反了暂停功能增强性研究的规定，因此被国防高级研究计划局拒绝。但是，蝠奇却私自决定继续进行研究。文件称，美国国家过敏和传染病研究所，在在蝠奇所长的指导下，在中共国武汉病毒学实验室，和美国其他几个地点进行了研究。 真相工程表示，他们所获得的有关“获得功能”的军事文件前所未见，与蝠奇在国会的宣誓证词相矛盾。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-1.jpg)图片来源网络
+
+
+
+相关链接: [https://www.gettr.com/user/miles](https://www.gettr.com/user/miles)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
+总编 : Ivy001
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

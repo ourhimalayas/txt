@@ -2,46 +2,16 @@
 ---
 
 
-## 欧洲议会主席David Sassoli突然死亡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1861742/)
+## 秘翻在线：瑞典感染者数创历史新高,首相也未能幸免
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1861807/)
 
-作者: MOS- 柳是多水土透
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-25.png)（图片源自本文链接）
+1月15日读卖新闻消息：路透社报道，瑞典首相马格达莱纳-安德里奇中共病毒(新冠病毒)检测呈阳性。一位发言人11月14日说，首相将按照规定在家工作。
 
+在瑞典，传染性极强的奥密克戎菌株来势汹汹，13日的感染病例约为25,000例，创下了新的记录。本月，古斯塔夫国王和西尔维娅王后是第一批被感染的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-14-3.jpg)图片来源网络
-
-65岁的欧洲议会主席David Sassoli被宣告死亡，之前在12月26日，他由于“免疫系统失常”被送入家乡意大利的一家医院。他的发言人说，Sassoli与周二早间1点15分离世。 这位意大利政治家在2019年选举后上任，并原计划于下周卸任。他生前曾多次要求，并成功地在预算案中增加款项，以成立欧盟检查官办公室和推进疫苗接种 。Sassoli于1956年出生，他在广播机构RAI任记者至1992年，并于2009年加入左翼的民主党。同年的选举后，他进入欧洲议会开始从政之路。
-
-
-
-相关链接:[https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans\_fr\_61dd232de4b04b42ab842713](https://www.huffingtonpost.fr/entry/deces-de-david-sassoli-president-du-parlement-europeen-a-65-ans_fr_61dd232de4b04b42ab842713)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-86.jpeg)
-
-
-
-总编 : Irene木木
-
-校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-6.png)
-
+信息源：[スウェーデンで首相も感染…新規感染者は過去最多２・５万人（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/13676c68b89dda778a3f4d82059b2073efe2c89b)
 
  
 
