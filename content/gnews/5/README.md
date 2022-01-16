@@ -2,24 +2,18 @@
 ---
 
 
-## 【中日财经爆】疫情下，日本上市企业裁员自保
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867687/)
+## 日本东京连续3日中共病毒感染超4000
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867693/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1282.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.insider.com%2F61b2f27b4d41d300182644ce%3Fwidth%3D700&amp;imgrefurl=https%3A%2F%2Fwww.businessinsider.com%2Fchina-tech-companies-lay-off-staff-on-government-tech-crackdown-2021-12&amp;tbnid=EYcnHurfGynGbM&amp;vet=12a)
-据调查，2021年有84家日本上市公司征集提前退休人员，这是连续第二年超过80家上市企业开展裁员。随着新冠疫情再次蔓延，许多公司不看好未来商业环境，不得不通过提前退休政策达到裁员的目的。
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1283.png)[图片来源](https://www.aa.com.tr/en/asia-pacific/japan-to-lift-covid-19-emergency-in-tokyo-3-provinces/2181150)
+1月16日日本东京一天就新增4172人感染中共病毒（新冠病毒），而且是连续三天都超过4000。在东京又有4172人被发现感染了新的冠状病毒。这是连续第三天，单日感染人数超过4000人，自上周日以来增加了约3.4倍。
 
-2019年有35家，2020年跃升至93家。这是自2008年金融危机以来，首次连续两年超过80家。申请人数预计也在15,700人左右，连续第二年超过15000人。
+按年龄段划分，十几岁或更小的有859人，二十几岁的有1477人，三十几岁的有661人，四十几岁的有504人，五十几岁的有339人，六十几岁的有234人，其中三十几岁或更小的人占总数的70%以上。
 
-按行业划分，“服装/纺织”行业的提前退休人数最多，此外是餐饮行业和旅游行业。
+目前，日本中共病毒疫苗接种率已达百分之八十以上，疫苗是否有效，答案已显而易见。但日本政府仍要继续给10岁以上的孩子接种疫苗，着实让人费解。
 
-即使是大企业，即使在疫情期间的盈利的企业，也在通过裁员来降低人工费、改善盈利。
-
-征集对象是40到60岁年龄段的职工，他们大多是家庭的经济支柱，一旦失业不仅对他们的家庭而且对社会都会造成冲击、动荡。
-
-只有灭共才能还人类安宁。
-
-信息源：[＜独自＞上場８４社が希望退職募集　２年連続高水準](https://news.yahoo.co.jp/articles/43302fcfb6942b01e37683a7c73213a31537bbca)
+信息来源：[【速報】新型コロナ 東京都で新たに4172人の感染確認　3日連続で4000人超える](https://news.yahoo.co.jp/articles/c6be514e5c78093001c7506a928101c8f387ed1f)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
