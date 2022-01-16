@@ -2,34 +2,24 @@
 ---
 
 
-## 美两党议员提案应对中共垄断稀土资源
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
+## 有错必纠！法国叫停强制佩戴口罩之规定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866210/)
 
-撰稿：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
-该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-35.png)（图片源自本文链接）
+1月16日FNN要闻在线消息：法院决定暂停在法国巴黎市强制佩戴口罩之规定的有效性，称该规定存在严重的法律问题。
 
+奥密克戎菌株开始传播后，巴黎市规定从2021年12月31日起在户外必须戴口罩。但法国关于应对中共病毒(新冠病毒Covid-19)的法律规定，如果要限制人们的行动，必须有相应的高健康风险依据。
 
+为此，巴黎行政法院于14日决定暂停“不仅限于市场和街头公共集会等人多的地方和时间，即使在低风险的情况下也必须佩戴口罩”之强制佩戴口罩规定的有效性，因为这在法律上存在严重问题。
 
-新闻连接：
+笔者在想，自己的祖国，何时才能像这样以法律为准绳，去衡量各项决定的正确与否？每每这时，更加期盼强制疫苗也能在世界各地被叫停!更加期盼早日灭共！
 
-[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
+信息来源：[「法的に深刻な疑問」パリ行政裁判所　屋外でのマスク着用義務の効力停止を決定（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c97532f506b47b270cbf8eb22049e43df9e3bb2a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

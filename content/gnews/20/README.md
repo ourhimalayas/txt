@@ -2,44 +2,39 @@
 ---
 
 
-## 过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866424/)
+## 马斯克宣布，特斯拉部分商品已支持狗狗币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866489/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3aae487664c47acd54cff](https://gtv.org/video/id=61e3aae487664c47acd54cff)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**郭文贵先生：**我再告诉大家，在过去的两周，在美国、欧洲的所有的大学里面，几乎在暗传着一个消息：一定要尽量的不让中国学生到这个学校。这是刚刚死的欧洲的那个主席，他的助理那是咱哥们儿，死了个球的，打了四针，不是打三针，打四针这哥们儿。那不是疫苗打死的吗？原来跟他合作的，两边儿吃，两边儿吃，他已经走了。我说你别打疫苗，说着说着不打。说我觉得疫苗能让我活下去，我也不能老开会。结果打死个球的了。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-他的助理跟我说，他说我们最近收到太多太多这个信息。他的助理是要在欧洲成大人物的。在欧洲和美国的院校，已经私下太多传送排斥中国学生，甚至是亚洲学者。已经韩国、日本、台湾、香港、新加坡，都被排在那儿，亚洲学者。他们已经不只是（中国人了）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CVDZNNYZ7KWB2KZ1BQ7@S.png)图片来源：Bitcoin.com
 
-这就共产党太可怕了，我要把亚洲黄皮肤人放着一个墙里边。我花那么长时间，我希望真的能懂。谁死了，命再也回不来。我真不希望任何人死在一个完全，像加拿大那个女的多危险，她一张口就来，我家是最好的律师。这种傲慢，这就是一个种族歧视、种族大屠杀，跟印尼排华，你去看看去。当年整个乌干达赶走印度人，是一模一样的，一模一样。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+当地时间1月14日，据界面新闻报道，特斯拉董事长马斯克在社交媒体宣布，特斯拉商品将支持加密数字货币（狗狗币）支付。
 
-编辑整理：Jacques；
+当日，在特斯拉北美官网的部分商品已实现狗狗币支付。分别是“Cyberwhistle哨子”、“Cyberquad for Kids儿童摩托”、“Giga Texas Belt Buckle皮带扣”。但是目前特斯拉并不支持使用狗狗币购买汽车产品。
 
-字幕文件制作：小满；
+数日前，已有人在特斯拉官网开发者选项中发现了“狗狗币”的代码。
 
-视频制作及上传：Cindy；
+特斯拉官方解释说，狗狗币是一种加密数字货币，且特斯拉强调只支持狗狗币，不支持其余加密货币。一经购买，将不支持退货。
 
-G-News发布：小满；
+特斯拉一度曾支持比特币支付（购车），但不到两个月的时间，马斯克宣布特斯拉停止使用比特币购买汽车产品。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+截至发稿前，狗狗币的价格为0.19美元，单日涨幅约为10%。此前，马斯克曾自称“狗狗币教父”，并表达了对狗狗币的喜爱。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻链接：[马斯克宣布特斯拉商品支持狗狗币支付，除了买汽车](https://www.jiemian.com/article/7013627.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布：tianzhihuan
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
