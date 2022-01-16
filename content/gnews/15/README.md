@@ -2,39 +2,50 @@
 ---
 
 
-## 继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866529/)
+## 美国法国英国最有钱有权的人正以共享财富名义抢劫财富
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866571/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：[https://gtv.org/video/id=61e3ac9587664c47acd54d78](https://gtv.org/video/id=61e3ac9587664c47acd54d78)
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+**郭文贵先生：**这个美国佬这个家伙是要出大事的，他一定会受到美国的审判的，这哥儿们对中国人的伤害远远超过了一个国家对中国的伤害，这就是拿钱干活儿，到现在他要在美国搞“共享财富”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜快讯图.png)图片来源：雅典娜设计组
+你看我在4年前说，大家觉得我放屁是吧，说“他都活不了几天了怎么还能把共产主义搞到美国来？”包括日本人，还有法国朋友有一次跟我视频时说：“Miles，你说你干掉共产党你够有勇气的了，希望你这个梦一直都做下去”，另外一个他说：“你会对它是伤害，你干掉共产党我们不相信，但是你说共产党要把共产主义搞到欧洲来，搞到美国来，这个玩笑开太大啦”，他说：“没有人相信”。
 
+很不幸，这位法国人已经得病毒死了，这是一年前。希望他能上天堂不入地狱。日本这个朋友已经病毒现在还在医院躺着呢，也很不幸，希望他能活过来，我们不希望他们死，希望他们能看到共产党的灭亡。
 
-据《界面新闻》1月14日报道，中国信达于1月13日晚间发布不参与股权认购公告。随后，鱼跃医疗、舜宇光学于1月14日宣布暂缓对蚂蚁消费金融的增资。
+但是他今天他们看到了很不愿意看到的一幕，共产党不但也被灭，共产党正在中国搞“共享财富”，在美国、在全人类搞“共享财富”，而且是谁在搞？是你美国最有钱的人和法国最有权的人、英国最有钱和最有权的人在搞，而且是你们白人。啥叫“共享财富”？”共享财富”和共产主义，看看共产党现在把”共享财富”的解释：也就是让80%的所有人为名，把20%的精英财富无偿地得到。而且不是和平地得到，是通过法律强制性、暴力流血。
 
-。
+就像中国当年杀掉260万地主，最后把所有地主的地和钱全归了共产党，它并不会把财富发给穷人。跟穷人半毛钱关系没有，你上学照付钱，你买裤衩也付钱，你买面包也得付钱，你加油照样付钱。关键这钱给谁了？这钱把过去这些资本家享受的财富的空让你补上。
 
-中国信达于1月13日发布公告表示，经进一步商业上审慎考虑，与目标公司重庆蚂蚁消金公司协商后，拟不参与其新一轮的股权认购,不参与股权认购不会对公司经营和财务状况产生重大不利影响。
+第二进行财富再分配，又分配到它们自己的极少数精英，过去的20%的蓝领和白领，分到0.2%和2%的手里去，所有的共享财富就是共产主义共产到几个家族去，而不是共产到绝大多数80%人手里去。
 
-上市公司鱼跃医疗也发布《关于暂缓对参股公司增资暨交易进展的公告》，公告称，鱼跃医疗于2022年1月13日收到标的公司的通知，合作方之一中国信达决定不参与本次增资，本次增资方案尚需进一步调整。
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-此外，舜宇光学科技也在14日发布公告称，目标公司（重庆蚂蚁消费金融有限公司）已于 2022 年 1 月 13 日发出通知，知会公司由于若干认购人退出股权认购协议，决定暂缓本次增资。
+编辑整理：Jacques；
 
-按照原来的方案，参与增资扩股的共有 6家公司，除中国信达（出资60亿元）外，还包括蚂蚁集团（出资 110 亿元）、 鱼跃医疗（出资 10.978 亿元）、舜宇光学（出资 18 亿元）、博冠科技（出资 13.222 亿元）和渝富资本（出资 7.8 亿元）。除蚂蚁集团和鱼跃医疗外，其余四家为新股东。
+字幕文件制作：小满；
 
-参考链接：[继中国信达不参与认购后，鱼跃医疗、舜宇光学也宣布暂缓增资蚂蚁消费金融](https://www.jiemian.com/article/7013057.html)
+视频制作及上传：Cindy；
 
-*发布：*tianzhihuan
+G-News发布：小满；
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
