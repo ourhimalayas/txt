@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 3:19 PM (UTC)`
+
+汤姆·科顿参议员呼吁美国全面抵制中共冬奥会，以保证美国运动员安全。冬奥会应延期，重新竞标，之后在其他安全、自由和民主之地召开<br/><br/>Senator Tom Cotton calls for the US to fully boycott the CCP Olympics to keep US athletes safe. The games should be delayed, rebid and conducted somewhere else that’s safe, free and democratic at a later date<br/><br/>
+![img](https://media.gettr.com/group8/getter/2022/01/16/15/74b8e174-950e-a156-d145-7de06104439b/out.jpg)
+
+---
+
 `@miles 1/16/2022 3:07 PM (UTC)`
 
 1月16号：尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最黑暗的时刻即将到来！
@@ -150,13 +157,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: Who has the say in defining the CCP’s so-called “zero tolerance”? Each word said by Sun Lijun and the clothes he was wearing in the film Zero Tolerance were arranged by the CCP. The influence of CCP's propaganda far exceeds that of Hitler; Xi Jinping’s vassals are way less competent than those of Jiang Zemin and Zeng Qinghong<br/><br/>1/14/2022 文贵直播：中共所谓的“零容忍“是谁定的？孙力军在《零容忍》中所说的每个字和穿的衣服都是中共定的；中共的宣传力量远超希特勒；习的班子的能力远不及江、曾
 ![img](https://media.gettr.com/group10/getter/2022/01/15/07/c7a449ff-45ef-a15c-4d48-d8ba21432d20/out.jpg)
-
----
-
-`@miles 1/15/2022 5:01 AM (UTC)`
-
-1/14/2022 Miles Guo: Behind the SCOTUS blocking the vaccine mandate is the New Federal State of China, and it is us who provided the most crucial evidence regarding the mRNA COVID vaccines and the CCP virus. World to follow the US in banning the vaccine mandates, with the noose being put around the neck of the evil forces behind the COVID vaccines<br/><br/>1/14/2022 文贵直播：美最高法院通过禁止疫苗强制令的背后离不开新中国联邦，是我们提供了mRNA疫苗和病毒的最关键证据；世界将跟随美国禁止强制疫苗，疫苗的邪恶势力已套上绞索<br/>
-![img](https://media.gettr.com/group49/getter/2022/01/15/05/00aada67-bfc2-196a-8327-4f59c1a8cc3b/out.jpg)
 
 ---
 
