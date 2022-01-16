@@ -2,22 +2,20 @@
 ---
 
 
-## 因停售新疆产品，中共报复沃尔玛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
+## 中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867793/)
 
 作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
-去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
+据1月11日官方公布的数据显示，2021年中国原油进口总量为5.1298亿吨，低于上年的5.4239亿吨，是2001年以来首次出现年度下降。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.37.png)
+受国内疫情及地产，基建投资放缓的影响，预计中国2021年四季度GDP（国内生产总值）同比增速将“破4”至3.3%，为2020年二季度以来最低。BofA Global Research美国银行全球研究则预计，中国去年12月份经济活动增长仍然疲软，四季度GDP同比增速预计放缓至3.1%，高盛则将2022年全年增幅从4.8%调降至4.3%。
 
-由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
-
-周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
+荷兰国际集团（ING）认为，在房企违约和高基数效应下，中国2021年四季度GDP将低于前一个季度的4.9%，去年12月地方债共计发行近3,179亿元，较上月减少逾五成。固定资产投资方面，地产基建预计继续走弱，开发商总体购地意愿持续走低。
 
 参考链接：
-1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
-2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
+1）[Goldman Lowers China 2022 Growth Forecast to 4.3% on Omicron](https://www.bloomberg.com/news/articles/2022-01-11/goldman-lowers-china-2022-growth-forecast-to-4-3-on-omicron)
+2）[Goldman cuts China GDP target for 2022 — and exports aren’t the problem](https://www.cnbc.com/2022/01/12/china-economy-goldman-cuts-china-gdp-for-2022-amid-lockdowns-omicron.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 

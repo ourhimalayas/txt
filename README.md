@@ -39,85 +39,85 @@
 ### [郭先生再谈奥密克戎病毒](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/9/README.md)
+### [有声|防病毒 储物资](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/10/README.md)
+### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/11/README.md)
  ` 英喜-粵語組`
 
-### [有声|英情报部门警告议员注意中共统战渗透](/content/gnews/11/README.md)
+### [有声|英情报部门警告议员注意中共统战渗透](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [喜币融入世界规则：以金钱为基础实现正义](/content/gnews/12/README.md)
+### [喜币融入世界规则：以金钱为基础实现正义](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [有声|美众议院提案停止政府强制雇员接种疫苗](/content/gnews/13/README.md)
+### [有声|美众议院提案停止政府强制雇员接种疫苗](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [1/15/2022 郝董/叶女侠: 为什么中共不让运动员到外面吃饭？为什么运动员的一杯水离开视线了就不能再喝了？](/content/gnews/14/README.md)
+### [1/15/2022 郝董/叶女侠: 为什么中共不让运动员到外面吃饭？为什么运动员的一杯水离开视线了就不能再喝了？](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/15/2022 郝董/叶女侠: 赵立坚无耻指控别国政治操控体育，中共才是违背奥林匹克精神的邪恶组织](/content/gnews/15/README.md)
+### [1/15/2022 郝董/叶女侠: 赵立坚无耻指控别国政治操控体育，中共才是违背奥林匹克精神的邪恶组织](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/16/README.md)
+### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险](/content/gnews/17/README.md)
+### [世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓](/content/gnews/18/README.md)
+### [中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [因停售新疆产品，中共报复沃尔玛](/content/gnews/19/README.md)
+### [因停售新疆产品，中共报复沃尔玛](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [1/15/2022 郝董：全球黑暗势力通过中共来割中国人的韭菜](/content/gnews/20/README.md)
+### [1/15/2022 郝董：全球黑暗势力通过中共来割中国人的韭菜](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC每日热点0116](/content/gnews/21/README.md)
+### [DC每日热点0116](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [佛州州长反对OSHA针对美国医护人员的疫苗强制令](/content/gnews/22/README.md)
+### [佛州州长反对OSHA针对美国医护人员的疫苗强制令](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [已完全接种新冠疫苗的足球明星戴维斯患上心肌炎](/content/gnews/23/README.md)
+### [已完全接种新冠疫苗的足球明星戴维斯患上心肌炎](/content/gnews/24/README.md)
  ` 首尔天池农场`
 
-### [共产党“零容忍反腐”](/content/gnews/24/README.md)
+### [共产党“零容忍反腐”](/content/gnews/25/README.md)
  ` 骄子`
 
-### [我和我的爆料革命—爆二代母亲的自述](/content/gnews/25/README.md)
+### [我和我的爆料革命—爆二代母亲的自述](/content/gnews/26/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [2021年11月29-12月1日 郭先生视频部分内容整理](/content/gnews/26/README.md)
+### [2021年11月29-12月1日 郭先生视频部分内容整理](/content/gnews/27/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [立陶宛指小米内建审查,德国监督机构称无证据](/content/gnews/27/README.md)
+### [立陶宛指小米内建审查,德国监督机构称无证据](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本](/content/gnews/28/README.md)
+### [1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [11/13/2021 文耀时间：Eglise医生与感染战友讲析中共病毒治疗案例](/content/gnews/29/README.md)
+### [11/13/2021 文耀时间：Eglise医生与感染战友讲析中共病毒治疗案例](/content/gnews/30/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/30/README.md)
+### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国需在关键领域和中共脱钩](/content/gnews/31/README.md)
+### [美国需在关键领域和中共脱钩](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [佛州不会执行对医护人员的疫苗强制令](/content/gnews/32/README.md)
+### [佛州不会执行对医护人员的疫苗强制令](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼](/content/gnews/33/README.md)
+### [加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [通用电气公司停止为员工接种新冠疫苗](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [中共符合邪教组织的六大特征](/content/gnews/35/README.md)
+### [通用电气公司停止为员工接种新冠疫苗](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
 ### [爆料革命——历史的今天12月01日](/content/gnews/36/README.md)
