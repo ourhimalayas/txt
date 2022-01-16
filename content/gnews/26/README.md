@@ -2,38 +2,36 @@
 ---
 
 
-## 有声|英情报部门警告议员注意中共统战渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1867988/)
+## Joe Rogan风波带给新中国联邦人的启示
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1868010/)
 
-配音：香草山农场 – 纳米
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日，郭文贵先生在大直播中谈到，Joe Rogan事件是一场误会，他因为不理解盖特的数据功能，而提出质疑。但是，这件事更加印证，盖特数据没有造假。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-10.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-台媒1月14日报报道，近日英国对内情报机构军情五处，向国会警示说，一名李姓中共国女子与中共中央统战部有关联，已秘密涉入干预英国政治活动。
+Joe Rogan是有七百多万关注的推特大V，盖特的功能可以将他的推特数据完整平移，再加上盖特新增的一百多万，总共是九百多万关注人数。Joe Rogan不懂盖特的数据库平移技术，误认为短时间内如此巨大的关注量，是盖特数据造假。
 
-军情五处警示指出，一位游走在英国政治圈、名叫李贞驹的女性律师，与中共统战部秘密合作。经研判，中共统战部企图借李贞驹与英国跨党派议员建立联系，以秘密干预英国政治，还试图与具有影响力的人物培养关系，以确保英国的政治形式对中共有力。调查结果显示，李贞驹涉入对政党、议员、以及谋求官职人士的资助行为，资金来源包括在香港的非英国籍人士，她曾公开自称代表在英国的中共国人利益。
+全球社交媒体和中共利用这个误会，大肆诋毁盖特，更加说明盖特的重要，证明盖特已经成为一支最特别的社交媒体平台。盖特是提供言论自由和真相的平台，只要做到为真不破，就必然会经得起质疑。
 
-“对华政策跨国议会联盟”声明说，针对中共代理人已成功与部分议员，以及重要国会团体建立影响深厚的关系，表示深感不安。英国议会下院外交委员会主席图根哈特称，来自北京的挑战显然在增加，英国必须捍卫民主制度，确保此制度不受恶意行为损害。
+郭先生说，Joe Rogan风波考验了新中国联邦人的智慧、心胸和自信心。新中国联邦人坚守信念，不要因思维限制了思考的高度，凡事多自省，坚持为真不破，以理服人。
 
-文字版原文：[英情报部门警告议员注意中共统战渗透](https://gnews.org/zh-hans/1864590/)
+参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：文真
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
