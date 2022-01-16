@@ -2,10 +2,10 @@
 ---
 
 
-## 孙立军因涉嫌受贿、操纵证券市场被提起公诉
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867508/)
+## 中共渗透、收买了一切，是美国有史以来最大生存威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867566/)
 
-01/13/2022 前公安部副部长孙立军因涉嫌受贿、操纵证券市场、非法持有枪支案被提起公诉。
+01/13/2022 史蒂夫·班农：中共渗透了一切，收买了一切，它是本国有史以来最大的生存威胁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

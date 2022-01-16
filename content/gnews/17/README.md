@@ -2,36 +2,42 @@
 ---
 
 
-## 英国卫生部长表示将于本月取消疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867383/)
+## 肌肉注射疫苗注定失败 Covid只在细胞内和粘液中传播
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867431/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月13日，英国卫生部长萨吉德·贾维德宣布，将在本月内彻底取消疫苗通行证。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-10.jpg)
-贾维德表示，经历了一轮奥密克戎历史性的传染高峰之后，新增病例在一周内下降了40% ，住院人数未见明显增长。鉴于“突破性感染”令人惊异的数据，以及疫情的迅速减缓，已经充分证明疫苗通行证无效，并将在未来两周内取消这一政策。此外，多位议员表示，奥米克戎肆虐期间，已接种疫苗人群的高传染率和高致病率，也证明了疫苗通行证没有必要存在，并对政府取消疫苗通行证的措施表示欢迎。
+**翻译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-3.png)图片来源：naturalnews.com
+自然新闻(Natural News) – 所有针对 Covid-19 的疫苗在到达时都已失效，因为这些疫苗会增强三角肌中的抗体，绕过粘液和粘膜，而冠状病毒实际上是附着在粘液和粘膜和复制的。疫苗接种后的任何抗体测量都是徒劳的。这些疫苗诱导的抗体，是在远离其体内目标环境的肌肉组织中产生的。此外，这些短命抗体不能中和冠状病毒，因为它们不能在冠状病毒传播的细胞内传播。对冠状病毒的适当免疫反应，应该包括来自 T 细胞的同等反应。目前，这最好通过自然感染的完全体液和适应性免疫反应来实现。
 
-与此同时，威尔士第一部长也宣布，将于本月底解禁新冠疫情限制。
+普遍的免疫力来自自然感染，在鼻子的粘液中，包括全谱的 T 细胞反应
 
-参考链接：
+2021 年，超过 95 亿剂 mRNA 疫苗被注入人体，但感染人数继续增加，病例数超过了 2020 年的记录。口罩、疫苗和隔离都未能阻止一类流行的病毒，这些病毒总是在变异，最好的地方在口腔、鼻子、消化道和肺部的粘液中中和。散布恐惧的媒体和公共卫生官员，忽视了这一生物学现实，他们不了解免疫系统的工作原理。
 
-- [England ‘WILL scrap Covid passes and WFH at the end of the month’ because they are ‘hard to justify’ now that Omicron is subsiding — with masks on trains and in shops the only curb left](https://www.dailymail.co.uk/news/article-10400971/Sajid-Javid-scrap-Covid-passes-fortnight.html)
+**不仅有抗病毒治疗和抗炎方案来帮助先天免疫反应**，而且还有稀释粘液和防止粘液变稠的方法，以便身体能够正确检测和消除病毒威胁。有一些植物化学物质可以稀释粘液以帮助身体应对感染。毛蕊花 (Verbascum thapsus L.) 等草药对先天免疫反应有益。从毛蕊花中分离出的皂苷（Ilwensisaponin A 和 C）被证明是抗炎、抗病毒剂。 有些食物也会使体内的粘液变稠。 感染后，糖和奶制品等食物会导致痰多和呼吸道并发症。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获13.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+免疫只能通过自然感染发生，因为暴露过程必须按照自然的意图发生在粘液中。感染被中和后，持久的反应包括：常驻记忆 T 和 B 细胞以及中和 IgA 抗体。**这些力量在最需要的地方随时待命，并准备在早期阶段应对未来的感染。**
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：海阔天空1
+**人体免疫系统不是一台机器，完全由疫苗编程**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+毫无疑问，新冠病毒疫苗的开发人员花费了巨大的精力来开发正确的代码（用于刺突蛋白），因此，疫苗可以在人类中引发反应，**并在理论上对免疫反应细胞进行编程。**疫苗制造商还开发和优化了一种有效的脂质纳米颗粒，**以将该程序传递到细胞中**。尽管对 mRNA 和脂质纳米颗粒进行了多年研究，但疫苗制造商完全没有使用这种疫苗，因为他们没有研究将这种程序传递给人体的最佳方法。疫苗制造商需要的不仅仅是精确的解决方案；**他们需要更多时间来开发一种专注于交付方法的整体、完整的系统方法**。如果疫苗计划要长期有效，就需要针对身体的特定系统，这些系统对于发展持久、长期的免疫力最为重要。疫苗开发人员应该问：我们如何在粘液中产生持久的免疫反应，同时同样激活 T 细胞？
 
+疫苗功效以绝对主义提升，但血清中抗体水平的测量只是更智能系统的一小部分，该系统包括：**粘液、粘膜、腺体、淋巴系统、细胞监视蛋白、共生微生物、T 细胞、细胞毒性 T 细胞，和 T-Helper-1 和 T-Helper-2 细胞，在细胞内起作用以中和 SARS-CoV-2 等病毒**。疫苗制造商轻视人类免疫系统，给人的印象是：它是某种可编程机器。免疫系统比人们想象的要复杂得多。免疫系统包含许多变量，并且因人而异。
+
+Covid疫苗诱导的抗体大多是无用的，**因为它们在血液中循环，并远离粘液**——而粘液实际上才是需要抗体的地方。它们也不能在实际发生病毒复制的细胞内对身体有益。 作为一般经验法则，抗体无法与在细胞内复制的病毒结合。**这是 T 细胞的工作**——它们执行指示受感染细胞自我毁灭的任务。
+
+德国的苏查里特·巴克迪教授（Sucharit Bhakdi）最近在一篇题为“为什么肌肉注射 COVID-19 疫苗必然失败”的论文中，写到了这种系统性疫苗的错误。他的结论得到了澳大利亚爱德华·斯蒂尔教授（Edward J. Steele）的证实，他在题为“Covid-19 的起源和疫苗为何不起作用”的采访中的证实。美国的迈克尔·罗素教授（Michael W. Russel）在一篇题为“COVID-19 中的粘膜免疫：SARS-CoV-2 感染的一个被忽视但至关重要的方面”的文章中，就这一主题写了一篇文章。肌内疫苗对粘膜病毒不起作用，无论是对流感病毒还是 SARS-CoV-2 ，及其无穷无尽的病毒变种。
+
+**新闻来源**：[naturalnews.com][It’s impossible to achieve immunization with intramuscular covid-19 vaccines because coronaviruses propagate intracellularly and in the mucus](https://www.naturalnews.com/2022-01-14-impossible-achieve-immunization-intramuscular-covid19-vaccine-coronaviruses-propagate-intracellularly.html)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
 
  
 

@@ -2,39 +2,37 @@
 ---
 
 
-## 科学家警告：新冠疫苗可导致年轻人“严重”神经退行性疾病
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867338/)
+## 英国卫生部长表示将于本月取消疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867383/)
 
-编译： Jenny Ball
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月13日，英国卫生部长萨吉德·贾维德宣布，将在本月内彻底取消疫苗通行证。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-10.jpg)
+贾维德表示，经历了一轮奥密克戎历史性的传染高峰之后，新增病例在一周内下降了40% ，住院人数未见明显增长。鉴于“突破性感染”令人惊异的数据，以及疫情的迅速减缓，已经充分证明疫苗通行证无效，并将在未来两周内取消这一政策。此外，多位议员表示，奥米克戎肆虐期间，已接种疫苗人群的高传染率和高致病率，也证明了疫苗通行证没有必要存在，并对政府取消疫苗通行证的措施表示欢迎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1263.png)图片来源:childrenshealthdefense.org
+与此同时，威尔士第一部长也宣布，将于本月底解禁新冠疫情限制。
 
-给年轻人接种 COVID 疫苗，可能会导致“**几种主要神经退行性疾病的惊人增加**”，斯蒂芬妮·塞内夫 (Stephanie Seneff) 博士今天告诉福克斯新闻。
+参考链接：
 
-马萨诸塞州剑桥市麻省理工学院计算机科学与人工智能实验室的高级研究科学家塞内夫说，为年轻人接种 COVID 疫苗是“**令人发指的**”，因为他们死于该病毒的“风险非常低”。
+- [England ‘WILL scrap Covid passes and WFH at the end of the month’ because they are ‘hard to justify’ now that Omicron is subsiding — with masks on trains and in shops the only curb left](https://www.dailymail.co.uk/news/article-10400971/Sajid-Javid-scrap-Covid-passes-fortnight.html)
 
-“当你看到这些疫苗的潜在危害时，它就没有任何意义，”塞内夫说。“从长远来看，反复的加强剂将是非常具有破坏性的。”
 
-塞内夫告诉福克斯新闻的劳拉·英格拉汉姆（Laura Ingraham），她做了“大量研究”，以帮助她了解 COVID 疫苗如何在以后的生活中导致神经退行性疾病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-“**这令人非常不安**，”她说。
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：海阔天空1
 
-根据塞内夫的研究：
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-“ mRNA 疫苗和 DNA 载体疫苗，都可能在未来某个时候成为致残疾病的途径。通过刺突蛋白的朊病毒样作用，我们可能会看到几种主要神经退行性疾病的惊人增加，包括帕金森病、慢性肾病、肌萎缩侧索硬化（ALS ）和阿尔茨海默病，在未来几年，这些疾病将出现越来越年轻的人群中的患病率增加。
 
-“不幸的是，我们不知道疫苗是否导致了这种风险增加，因为疫苗接种事件和疾病诊断之间通常会有很长的时间间隔。”
-
-塞内夫说，对于这点，“对于疫苗制造商来说非常方便，他们可以从我们的不幸中获得巨额利润——**既有来自疫苗本身的销售**，也有来自治疗所有这些使人衰弱的疾病的巨额医疗费用。”
-
-新闻来源:[childrenshealthdefense.org][COVID Shots Could Cause ‘Crippling’ Neurodegenerative Disease in Young People, MIT Scientist Warns](https://childrenshealthdefense.org/defender/mit-scientist-stephanie-seneff-neurodegenerative-disease-young-people-covid-shots/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

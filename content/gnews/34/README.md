@@ -2,24 +2,34 @@
 ---
 
 
-## 福奇在2020年投资了数家中共公司
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1867226/)
+## 萨尔瓦多向新冠患者及家人发送伊维菌素＋锌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867304/)
 
-#### 翻译/撰稿：zzballack
+编译： Jenny Ball
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-31.jpg)图片来源：美联社
-据《布雷特巴特新闻网》（Breitbart News）1月15日报道，美参议员罗杰·马绍尔 (Roger Marshall) 1月15日公布了安东尼·福奇（Anthony Fauci）2020年的财务数据。数据显示，福奇在2020年价值1040万美元的投资组合包括数家中共公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1260.png)图片来源:lifesitenews.com
 
-福奇通过一个名为马修斯太平洋老虎基金（Matthews Pacific Tiger Fund）的基金公司来投资中共公司。马修斯太平洋老虎基金在2021年9月发布的情况说明显示，该基金将其投资者42.7%的资金投资于中共国和香港的公司。在这些公司中，有一家名为“药明生物 (WuXi Biologics Cayman)”的制药企业，总部位于中国无锡市。药明生物的官网介绍说，该企业“是全球领先的开放式生物制药技术平台，提供端到端的解决方案，助力任何企业发现、开发和生产生物药，实现从概念到商业化生产的全过程。预计到2024年后，公司在中国、爱尔兰、美国、德国和新加坡规划的生物制药生产基地合计产能将超过43万升”。
+萨尔瓦多圣萨尔瓦多《生活新闻》（LifeSiteNews） – 由支持生命的总统纳伊布·布克勒(Nayib Bukele)领导的萨尔瓦多国家正在分发 COVID 药物包，**其中包含有争议但有效的治疗伊维菌素**以及**锌**和其他药物。
 
-该基金在中共国和香港的投资还包括腾讯、阿里巴巴、友邦保险 (AIA Group)以及香港交易及结算所有限公司。
+这些医疗包将提供给 COVID 患者、他们的家人以及感染高发地区的人们。
 
-参议员马绍尔说：“”福奇在向公众公开的财务披露问题上完全不诚实。美国人民一直在上诉要求获得这些信息，福奇必须对所有美国人负责。”
+**尽管来自压制伊维菌素使用的国际医疗组织的压力**，萨尔瓦多卫生部仍继续将该药物纳入，该药物已被证明在许多国家对 COVID 的早期治疗有效。
 
-福奇是美国联邦政府中收入最高的雇员，据说在2020年的收入就有40多万。福奇在退休后，将每年获得35万美元的退休金。
+一名来自伊利诺伊州的老年 COVID 患者在呼吸机上度过了 22 天，在法院命令强制医院使用伊维菌素后，**他出院并完全康复**。
 
-新闻来源：[Report: Anthony Fauci’s $10M 2020 Investment Portfolio Includes Chinese Companies](https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/)
+目前，只有 50% 的萨尔瓦多公民完全接种了流产感染疫苗，该国的感染率仅为每 10 万人 12 例，而疫苗接种率高得多的美国，每 10 万人中有 1,662 例感染。
+
+**评论：能够治病救人的伊维菌素等遭到“国际医疗组织”的封禁，而图财害命的mRNA试验药物却满世界推崇，这正常吗？**
+
+新闻来源:[lifesitenews.com][El Salvador distributes medical packages that include ivermectim to COVID patients and their families](https://www.lifesitenews.com/news/el-salvador-distributes-medical-packages-that-include-ivermectim-to-covid-patients-and-their-families/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+
 
  
 
