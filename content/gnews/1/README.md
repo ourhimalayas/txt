@@ -2,22 +2,24 @@
 ---
 
 
-## 中共病毒疫苗严重不良事件汇总
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865285/)
+## 美最高法院阻止企业疫苗强制令 同意医护强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865309/)
 
-撰稿：银河勇气星—骄子
+撰稿：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-近日一家研究机构提供的数据记录了接种中共病毒疫苗导致的严重健康风险。该项目自2021年6月开始，最近更新时间为2022年1月。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1231.png)
-成人接种中共病毒疫苗发生的不良事件包括：神经系统疾病；月经失调、流产、新生儿先天缺陷；心肌炎、心脏病、心脏骤停；血凝块和中风；严重的皮肤反应；眼部疾病和失明；面部麻痹；带状疱疹和其他病毒重新激活；耳鸣、听力丧失、头晕和眩晕；过敏性休克；肿瘤生长和癌症；阑尾炎等。
+1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1233.png)
+此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
 
-儿童接种后出现的健康问题有：严重炎症、心肌炎、血凝块；糖尿病和糖尿病酮症酸中毒；以及其他自身免疫性疾病。
+然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
 
 
 
-总编/编辑：童谣
+总编：Ivy001
 
-新闻来源：[Covid Vaccine Adverse Events](https://swprs.org/covid-vaccine-adverse-events/)
+编辑：Lakeman文仁
+
+新闻链接：[Supreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 

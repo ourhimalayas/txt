@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 12:47 AM (UTC)`
+
+梅梅特-奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗<br/><br/>Dr. Mehmet Oz (US Senate Candidate): The American people are simply not allowed to receive other therapeutic methods because they might not take the vaccines once they find out other possibilities.<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/16/00/ed555e65-d41a-bd30-62b3-a27ebeef8a83/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 1/15/2022 11:22 PM (UTC)`
@@ -153,13 +160,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/14/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利
 ![img](https://media.gettr.com/group20/getter/2022/01/14/23/50da5544-8894-1182-6056-569dab156ac9/out.jpg)
-
----
-
-`@miles 1/14/2022 11:10 PM (UTC)`
-
-1/12/2022 Miles Guo: The CCP’s 20th Party Congress won’t take place! 20th Party Congress is the greatest gift from Heaven to the New Federal State of China (NFSC)! Without the 20th Party Congress, there won't be bloody political infightings in the CCP, the nation-wide curfew, or the plunder of the entire China. The CCP is going insane in front of the whole world. Only the NFSC will triumph!<br/><br/>1/12/2022 文贵直播：不会再有中共二十大了 - 中共搞二十大是上天送给新中国联邦最大的礼物，二十大造成中共内部绞杀、对全中国的宵禁和掠夺，在全世界面前疯狂，唯有新中国联邦是赢家！<br/>
-![img](https://media.gettr.com/group46/getter/2022/01/14/23/7cd3bf60-f525-7422-a58e-0123f0e9c568/out.jpg)
 
 ---
 
