@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/15/2022 11:22 PM (UTC)`
+
+Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacerbated the division<br/>2. #mRNA was never to be used in a mass vaccination<br/>3. Being divided is not the worst thing <br/>4. People fighting for sovereignty are winning<br/>5. Political transformation is about to come<br/>6. Taking down the CCP will become the top priority<br/>8. #GTV and #Gnews are for the little guys #laobaixing <br/>9. #stevebannon considers #GTV and #gnews an important part of his "media diet"<br/><br/> 对班农先生采访的一些要点：<br/>1. #CCPvirus 加剧了分裂<br/>2. #mRNA 的初衷是永远不会用于大规模疫苗接种<br/>3.分裂并不是最糟糕的事情<br/>4.为主权而战的人正在获胜<br/>5. 政治转型即将到来<br/>6. 打倒中共将成为重中之重<br/>8. #GTV 和 #Gnews 是为小人物而设立的 #laobaixing<br/>9. #stevebannon 认为 #GTV 和 #gnews 是他“媒体饮食”的重要组成部分
+![img](https://media.gettr.com/group35/origin/2022/01/15/23/b6891cb7-fb3c-4baa-ab16-7a458402365f/out.jpg)
+
+---
+
 `@miles 1/16/2022 12:06 AM (UTC)`
 
 1/15/2022 Miles Guo’s GETTR: Fellow fighters, you can’t be too careful! Make sure not to catch the CCP virus! Hope the Himalaya Farms will not give up on a single fellow fighter in providing assistance! Facing the rising prices caused by the COVID-vaccine-related issues, fellow fighters should really consider stocking up flour, oil, salt, and other necessities!<br/><br/>1/15/2022 文贵直播：请战友们务必小心，千万不要染上病毒！希望各农场为战友提供帮助时不要落下任何一个战友！面对疫苗问题引起物价飞涨，战友们真的要备点面、油、盐等物资了！<br/>
@@ -151,13 +160,6 @@
 
 1/12/2022 Miles Guo: The CCP’s 20th Party Congress won’t take place! 20th Party Congress is the greatest gift from Heaven to the New Federal State of China (NFSC)! Without the 20th Party Congress, there won't be bloody political infightings in the CCP, the nation-wide curfew, or the plunder of the entire China. The CCP is going insane in front of the whole world. Only the NFSC will triumph!<br/><br/>1/12/2022 文贵直播：不会再有中共二十大了 - 中共搞二十大是上天送给新中国联邦最大的礼物，二十大造成中共内部绞杀、对全中国的宵禁和掠夺，在全世界面前疯狂，唯有新中国联邦是赢家！<br/>
 ![img](https://media.gettr.com/group46/getter/2022/01/14/23/7cd3bf60-f525-7422-a58e-0123f0e9c568/out.jpg)
-
----
-
-`@miles 1/14/2022 1:07 PM (UTC)`
-
-2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；2017年帮中共游说川普遣返郭先生三人的近况；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在
-![img](https://media.gettr.com/group44/origin/2022/01/14/12/468e37b8-6048-25a5-8638-aeb2b9aefb51/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
