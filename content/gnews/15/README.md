@@ -2,58 +2,62 @@
 ---
 
 
-## 【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868095/)
+## 【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868138/)
 
 作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-中共向全世界发动生化武器战争，利用SARS-CoV-2病毒肆虐全球，到美西时间1月16日凌晨4:20分，全球3.26亿人被感染，553.57万人死亡，已经有9.615亿剂中共病毒疫苗被注入人体，其中，美国5.24亿剂，甚至很多人打了所谓加强针。
 
-然而，在刚刚过去28天内，就有1464.1万美国人被感染，42,368名美国人死于这场生化武器战争。尤其中共不断投放新的SARS-CoV-2病毒变种，如Omicron、Delta变种等等，对全世界人民的生命带来巨大威胁。
+接：[【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](https://gnews.org/zh-hans/1868095/)
 
-实践证明，mRNA Covid-19病毒疫苗带来严重的负作用，在最新感染中共病毒的人群中，主要以注射两针、甚至加强针COVID-19病毒疫苗人群为主。依靠注射试验性的疫苗，既不能预防感染，也不能减少死亡。
+6.  Valley Urgent Care的硫酸羟氯喹、伊维菌素疗法的临床治疗效果
 
-被中共病毒感染后，如何快速康复，减少住院和死亡，是全球关心的头等话题！
+（1）总共有3,962名轻度COVID-19患者接受Valley Urgent Care紧急护理人员治疗的，在病情发展到中度或重度COVID-19之前，总共有2人住院，占0.05%，零死亡。其中：
 
-本文摘自美国Brian M. Tyson和George Fareed两位医学博士最新出版的《[Overcoming the COVID-19 Darkness: How Two Doctors Successfully Treated 7000 Patients Paperback – January 7, 2022](https://www.amazon.com/Overcoming-COVID-19-Darkness-Successfully-Patients/dp/B09PVNF24K/ref=zg_bsnr_227207_1?_encoding=UTF8&amp;psc=1&amp;refRID=FKAWSZT6BNDGGJM4M5ZF)》一书中的关键案例和临床数据，详细说明硫酸羟氯喹疗法（hydroxychloroquine，Protocol 1）和硫酸羟氯喹疗法基础上根据需要加入伊维菌素（ivermectin）的硫酸羟氯喹伊维菌素疗法（hydroxychloroquine、ivermectin，Protocol 2）的具体用药方法和最终临床数据对比。
+接受治疗在方案1的1,585名轻度COVID-19患者中，有1人住院（占0.06%）和0人死亡（0%）。
 
-最终得出结论，中共病毒感染者，在病情超过轻度COVID-19症状之前接受包括羟氯喹和伊维菌素在内的多种药物治疗方案时，几乎不存在住院和死亡，即使到了中度甚至重症状态，硫酸羟氯喹、伊维菌素也能极大的减少住院和死亡。
+在接受方案2治疗的2,356名轻度COVID-19患者中，有1人住院（0.04%）和0人死亡（0%）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Overcoming-the-COVID-19-Darkness.png)
+有21名患者治疗日期不详，但只接受了轻度COVID-19治疗，未住院或死亡。
 
-1.    治疗方案组和对照组数据来源
+![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_db0d3090-426d-430f-8c6c-16c02706657e_645x657.png)
 
-本文采用的治疗方案和临床数据全部来自于美国加利福尼亚州帝王县（Imperial County）。
+而在加利福尼亚州帝王县的其他20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，有4,770人（22.8%）住院，636人死亡（3.0%）。
 
-治疗方案组中，共有4,376名COIVD-19感染者，全部来自于2020年10月12日到2021年3月13日之间，到加利福尼亚州帝王县埃尔森特罗（El Centro, CA）的大型专用SARS-CoV-2治疗中心All Valley Urgent Care（AVUC）就诊的4,385名COVID-19患者。
+（2）在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care的中度COVID-19 治疗方法，总共有7人住院，占1.7%，3人死亡，占0.73%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法，最终顺利康复了。其中：
 
-而对照组的20,921例患者来自于相似时间段（截至2021年5月3日）内加利福尼亚州帝国县的所有其他已知 COVID-19 病例的最终（治疗）结果。
+在接受Valley Urgent Care治疗方案1的413 名中度 COVID-19的患者中，有2人住院，占0.5%，零死亡。
 
-2.    COVID-19确诊依据
+在接受Valley Urgent Care治疗方案2的190名中度 COVID-19的患者中，有5人住院，占2.6%，3人死亡，占1.6%。
 
-根据CDC标准病例定义指南，在2020年5月15日之前，通过抗体阳性检测和症状表现确诊COVID-19。
+有1名患者拒绝住院，而是选择Valley Urgent Care门诊重度COVID-19治疗方法，成功康复了。
 
-从2020年5月15日起，通过实时聚合酶链反应(real-time polymerase chain reaction，PCR)法测试患者前鼻拭子（anterior nasal swab）样本，如果检测为阳性，就确诊COVID-19。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_b1b1b376-64cc-48d2-bcb4-51a18b5ea913_644x657.png)
 
-3.    接受治疗方案的患者数量
+（3）汇总数据对比：
 
-Valley Urgent Care记录的4,385名COVID-19患者中，共有3,962名接受治疗的患者在就诊时被认为患有轻度COVID-19，而414名接受治疗但未立即住院的患者已经发展到中度或重度COVID-19疾病阶段，在这414名中度或重度COVID-19患者中，1名患者拒绝立即住院，而是接受了Valley Urgent Care重度COVID-19疗法。另有9名患者要么是因为他们立即被送往其它医院，要么是因为他们拒绝在Valley Urgent Care治疗，因而被排除在统计范围之外。
+在加利福尼亚州帝王县（Imperial County）的20,921名未接受Valley Urgent Care治疗（硫酸羟氯喹、伊维菌素疗法）的COVID-19患者对照组中，有4,770人住院，占22.8%，636人死亡，占3.0%。
 
-4.    患者情况
+而在接受硫酸羟氯喹、伊维菌素疗法的3,962名轻度COVID-19患者，在发展为中度或重度疾病之前，有2人住院，占0.05%，零死亡.
 
-在Valley Urgent Care紧急护理人员治疗的4,376名患者中，2,137名（48.8%）为男性，2,239名（51.2%）为女性，1,391名（31.8%）为50岁或以上。在这些患者中，有1,370人（31.3%）在就诊时无症状。共有1,980名患者（45.2%）使用了硫酸羟氯喹，有365名患者（8.3%）使用了伊维菌素， 347名患者（7.9%）同时使用了硫酸羟氯喹和伊维菌素。
+在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care中度COVID-19 治疗方法，总共7人住院，占1.7%，3人死亡，占0.72%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法的患者，康复了。
 
-5.    前后使用了两种治疗方案
+![](https://assets.gnews.org/wp-content/uploads/2022/01/s3.amazonaws.com_public_images.png)
 
-方案1：2020年10月21日前，按照方案1进行治疗
+整个临床研究过程如下：
 
-使用一种对SARS-CoV-2具有明显抗病毒反应性（antiviral reactivity against SARS-CoV-2）的药物——硫酸羟氯喹（hydroxychloroquine）；两种抗生素（antibiotics），包含阿奇霉素（azithromycin）和强力霉素（doxycycline）；以及多种维生素包（multivitamin pack），包括锌（zinc）、维生素C（vitamin C）、维生素D（vitamin D）等；并有选择地使用吸入布地奈德（budesonide）、地塞米松（dexamethasone）、泼尼松（prednisone）或其他被认为适合治疗的一种或其组合。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Overcoming-the-COVID-19-Darknes-1.jpg)
 
-方案2：2020年10月22日开始，与方案1的区别在于根据需要加入了伊维菌素（ivermectin）
+加利福尼亚州帝王县埃尔森特罗（El Centro, CA）大型专用SARS-CoV-2治疗中心All Valley Urgent Care（AVUC）应用对SARS-CoV-2具有明显抗病毒反应性的硫酸羟氯喹（hydroxychloroquine）、两种抗生素（antibiotics）——阿奇霉素（azithromycin）和强力霉素（doxycycline）、以及包括锌（zinc）、维生素C（vitamin C）、维生素D（vitamin D）等多种维生素包（multivitamin pack）和根据需要加入伊维菌素（ivermectin），并有选择地使用吸入布地奈德（budesonide）、地塞米松（dexamethasone）、泼尼松（prednisone）或其他被认为合适的一种或组合，临床统计结果证明，治疗轻度COVID-19患者的死亡率为0%，住院率为0.05%。用于治疗中度或重度COVID-19患者的死亡率为0.72%，住院率为1.69%。
 
-具体用法、和用量如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_33f68b36-ccee-4347-b2cd-d18d3fc91101_960x700.png)
-接：[【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](https://gnews.org/zh-hans/1868138/)
+而该县同期其它20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，住院率为22.8%，636人死亡率为3.0%。
+
+结论：
+
+当患者在的病情发展超过轻度COVID-19之前，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，几乎不存在住院和死亡。
+
+在中度COVID-19疾病状态下，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，也显示出住院和死亡的显著减少。
 
 参考资料：
 

@@ -2,72 +2,38 @@
 ---
 
 
-## 【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868138/)
+## 真相是自由的根
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1868147/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+加拿大温哥华扬帆农场  游子吟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/chang.org_.png)图片来源：change.org
+美国总统林肯说：让人们知道真相，国家就会安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+媒体原本是继立法、行政、司法之外存在的第四支监督权力的力量。然而在中共国，媒体姓党，正大光明的担当着中共的喉舌，成为中共用来宣传、维护自己政权的有力工具；媒体是宣传队，什么是宣传？ 就是无耻的说别人的坏话，不要脸的说自己好话……
 
-接：[【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](https://gnews.org/zh-hans/1868095/)
+中共集权统治下的中国，言论尚不能自由，真相更无从彰显。没有自由，没有真相的国度，甚于地狱般暗无天日。
 
-6.  Valley Urgent Care的硫酸羟氯喹、伊维菌素疗法的临床治疗效果
+共产党的本质就是荒淫，掠夺和霸凌。中共因对国内人民的残暴统治，视人民性命如蝼蚁，对文明无底线的践踏，做贼心虚的中共为了维护自己在国际上的形象，也必然把魔爪伸向了自由世界的媒体。
 
-（1）总共有3,962名轻度COVID-19患者接受Valley Urgent Care紧急护理人员治疗的，在病情发展到中度或重度COVID-19之前，总共有2人住院，占0.05%，零死亡。其中：
+台湾教授张锦华对中共如何将西方自由媒体变成其宣传工具做了深入的调查和分析，她在《前所未有的邪恶迫害》中阐释了，“自由媒体遭锁喉，中共控制海外媒体的四大路径”：
 
-接受治疗在方案1的1,585名轻度COVID-19患者中，有1人住院（占0.06%）和0人死亡（0%）。
+- 收购海外媒体所有权，媒体功能沦为喉舌；
+- 掌控新闻产业，人事，编采及内容方向；
+- 控制广告和市场利益，威胁媒体噤声；
+- 文攻武吓，暴力攻击制造恐惧。
 
-在接受方案2治疗的2,356名轻度COVID-19患者中，有1人住院（0.04%）和0人死亡（0%）。
 
-有21名患者治疗日期不详，但只接受了轻度COVID-19治疗，未住院或死亡。
+中共利用金钱和土匪手段将挖掘真相、报道真相、监督权力、维护公共利益的正义媒体彻底变性。摧毁了世界自由媒体。世界人民已经无法看到真相。自由将因为得不到真相的涵养也必然会油尽灯灭，冷漠将会笼罩我们和后代的余生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_db0d3090-426d-430f-8c6c-16c02706657e_645x657.png)
+人们不知道真相，中共高枕无忧了？
 
-而在加利福尼亚州帝王县的其他20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，有4,770人（22.8%）住院，636人死亡（3.0%）。
+无论专制集权如何压制自由和掩盖真相，无论媒体如何遭到控制和威胁，对抗邪恶的方式就是人人力所能及的付出自己的一点努力。从勇敢善良的人民提供的资料里了解真相、传播真相，真相就不会被封锁。一灯能除千年暗。
 
-（2）在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care的中度COVID-19 治疗方法，总共有7人住院，占1.7%，3人死亡，占0.73%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法，最终顺利康复了。其中：
+即使没有达到预期，引用哈维尔的话，“我们做一件事，并不是因为这么做会产生结果，而是坚信，这么做是对的！”
 
-在接受Valley Urgent Care治疗方案1的413 名中度 COVID-19的患者中，有2人住院，占0.5%，零死亡。
+* * *
 
-在接受Valley Urgent Care治疗方案2的190名中度 COVID-19的患者中，有5人住院，占2.6%，3人死亡，占1.6%。
-
-有1名患者拒绝住院，而是选择Valley Urgent Care门诊重度COVID-19治疗方法，成功康复了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_b1b1b376-64cc-48d2-bcb4-51a18b5ea913_644x657.png)
-
-（3）汇总数据对比：
-
-在加利福尼亚州帝王县（Imperial County）的20,921名未接受Valley Urgent Care治疗（硫酸羟氯喹、伊维菌素疗法）的COVID-19患者对照组中，有4,770人住院，占22.8%，636人死亡，占3.0%。
-
-而在接受硫酸羟氯喹、伊维菌素疗法的3,962名轻度COVID-19患者，在发展为中度或重度疾病之前，有2人住院，占0.05%，零死亡.
-
-在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care中度COVID-19 治疗方法，总共7人住院，占1.7%，3人死亡，占0.72%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法的患者，康复了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/s3.amazonaws.com_public_images.png)
-
-整个临床研究过程如下：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Overcoming-the-COVID-19-Darknes-1.jpg)
-
-加利福尼亚州帝王县埃尔森特罗（El Centro, CA）大型专用SARS-CoV-2治疗中心All Valley Urgent Care（AVUC）应用对SARS-CoV-2具有明显抗病毒反应性的硫酸羟氯喹（hydroxychloroquine）、两种抗生素（antibiotics）——阿奇霉素（azithromycin）和强力霉素（doxycycline）、以及包括锌（zinc）、维生素C（vitamin C）、维生素D（vitamin D）等多种维生素包（multivitamin pack）和根据需要加入伊维菌素（ivermectin），并有选择地使用吸入布地奈德（budesonide）、地塞米松（dexamethasone）、泼尼松（prednisone）或其他被认为合适的一种或组合，临床统计结果证明，治疗轻度COVID-19患者的死亡率为0%，住院率为0.05%。用于治疗中度或重度COVID-19患者的死亡率为0.72%，住院率为1.69%。
-
-而该县同期其它20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，住院率为22.8%，636人死亡率为3.0%。
-
-结论：
-
-当患者在的病情发展超过轻度COVID-19之前，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，几乎不存在住院和死亡。
-
-在中度COVID-19疾病状态下，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，也显示出住院和死亡的显著减少。
-
-参考资料：
-
-[Overcoming the COVID-19 Darkness: How Two Doctors Successfully Treated 7000 Patients Paperback – January 7, 2022](https://www.amazon.com/Overcoming-COVID-19-Darkness-Successfully-Patients/dp/B09PVNF24K/ref=zg_bsnr_227207_1?_encoding=UTF8&amp;psc=1&amp;refRID=FKAWSZT6BNDGGJM4M5ZF)
-
-[The First Tyson/Fareed Study Text](https://roundingtheearth.substack.com/p/the-first-tysonfareed-study-text)
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+编辑, 发布：月亮之上
 
  
 

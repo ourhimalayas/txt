@@ -45,23 +45,23 @@
 ### [郑溶镇副会长在instagram上再次&#8221;灭共&#8221;后&#8221;喧闹&#8221;](/content/gnews/10/README.md)
  ` 首尔天池农场`
 
-### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/11/README.md)
+### [11/19/2021 文耀时间：Eglise 医生与感染战友讲析中共病毒治疗案例](/content/gnews/11/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [美国的通货膨胀达到了 40 年来的最高点](/content/gnews/12/README.md)
+### [美国的通货膨胀达到了 40 年来的最高点](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [真相是自由的根](/content/gnews/13/README.md)
+### [真相是自由的根](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](/content/gnews/14/README.md)
+### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](/content/gnews/15/README.md)
+### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
-
-### [[ 聚焦港澳 ] 从香港的白手套角色谈起](/content/gnews/16/README.md)
- ` 澳喜农场`
 
 ### [新中国联邦辞典横空出世](/content/gnews/17/README.md)
  ` GTV新闻访谈`
