@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 2:51 PM (UTC)`
+
+史蒂夫·基尔：强制打疫苗是疫情大流行的错误解决方案，疫苗甚至没有被食药局准许。如果人们想要保护自身免于感染中共病毒，只要有一个带P100过滤器的3M防毒面具就可以。我觉得强制打疫苗不道德、而且不起作用。人们被强迫打这个疫苗，这违反了纽伦堡条约<br/><br/>Steve Kirech: Vaccination Mandates are just the wrong solution to the pandemic. And the vaccine is not even approved by the FDA. If people want to protect themselves against getting COVID, early treatment could have saved everything, and just get a 3M respirator with a P100 filter. I think that mandates are unethical, immoral, and ineffective. People are being coerced into taking it, and this is a violation of Nuremberg.<br/><br/>
+![img](https://media.gettr.com/group15/getter/2022/01/16/14/be3df75f-02f8-7a03-5e56-d9f0447b6aa0/out.jpg)
+
+---
+
 `@miles 1/16/2022 2:36 PM (UTC)`
 
 麻省理工学院科学家斯蒂芬妮·森内夫博士对中共病毒疫苗可能产生的长期副作用发出警告：通过类似朊病毒的刺突蛋白的作用，我们可能会看到几种主要的神经退化疾病惊人地增加，而且在越来越年轻的人群中发病率越来越高<br/><br/>MIT scientist Dr. Stephanie Seneff warning of the possible long-term side effects of the COVID vaccines:  through the prion-like action of the spike protein, we will likely see an alarming increase in several major neurodegenerative diseases, with increasing prevalence among younger and younger population.<br/>
@@ -152,15 +159,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1月14号：今天的太平联盟的官司……从开始到今天唯一的一次，我们获得了一次正义的判案……单伟建建的代表律师．Edward Moss．律所Cahill Gordon & Reindel LLP被纽约高院因严重违反律师道德被踢出局，我们因为这个不道德的律师受……提供的虚假证据的多次不公对待……他知法犯法，因此我们的家人被剥夺了拥有18楼公寓的权力……也被剥夺了选择陪审团的权利……他们利用虚假的……所谓我的担保和很多不真实的证据，以及法律的超限战方式．对待我们……所有人都知道太平联盟和中共的关系．和吴争的关系．和．中国海南航空的关系，HNA．此案是在我申请了政治庇护的24小时内发起的．这也是被抓的孙力军，在美国和我通话期间．警告我如果不和中共国合作，他们就会发起太平联盟这个官司和所谓的马瑞强奸案的官司……会毁掉我的声誉等等……因为一些我他们会在美国及全球．拿走一切我家人所拥有的东西……这个所谓的个人担保的责任的案子，此案事关美国司法和中共国之间的司法界的最黑暗的一面，已经引起了全世界的关注，在这个案子上我们都能看到．有太多的利益冲突和共产党的操控手段．在这个不可思议的造假的案子里…这样有名的律师事务所和这个律师严重的违背律师的职业道德，他绝不会是只有一次事情上这么做的……在整个案子上，他都是这么做的，操控此案的中国公安部副部长孙力军在中国已经被抓了，我相信正义离我们也不遥远了。<br/><br/>我们一定会战斗到底…但我们永远——永远要相信．并尊重美国的法律…和美国的法官．和美国的正义……这就是伟大的美国．伟大的之处……我们这个案子并没有结束……我相信最终这个案子一定也会得到美国法律和法官的公正判决，一切都已经开始！
 ![img](https://media.gettr.com/group7/getter/2022/01/15/02/73770310-8b7f-dacd-c666-d1d950f044fb/4803633305b73b207d031436e8f648dc.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 11/15/2021 7:26 PM (UTC)`
-
-《启航的船》<br/>演唱：陈敏（QMAY）<br/>作曲：陈敏（QMAY）<br/>作词/编曲：Ryan/陈敏（QMAY）<br/>混音：Ryan<br/><br/>感受这星光沾满我的手<br/>感受季节变幻的洋流<br/>此刻一颗心只被你牵动<br/><br/>远去的风 传来雷声的低吼<br/>浪花摇醒我困倦的头<br/><br/>就让这 冰冷纯粹的汹涌<br/>带走 我的怯懦和虚荣<br/>也带走喧嚣拥挤的天空<br/><br/>微光折射的梦 沉入海底的沙丘<br/>心却爬上 风暴的巅峰<br/><br/>从你的眼中<br/><br/>我看见深渊的彩虹<br/>我听见群鲸在歌颂<br/>这所有的所有<br/>呜呜呜……<br/>这所有的所有<br/><br/>触摸著 海天一色的尽头<br/>触摸 新大陆吹来的风<br/>想像是你的呼吸般自由<br/><br/>感谢你又为 我 打造崭新的宇宙<br/>挣脱这狭隘平庸的牢笼<br/><br/>也曾经 和他们一样渴求<br/>那通往黄金海岸的港口<br/>却漫无目的飘荡了多久<br/><br/>洒落银河的梦 打碎回忆的沙漏<br/>心就要 飞到另一颗星球<br/><br/>从你的眼中<br/><br/>我看见黑夜的彩虹<br/>我听见群星在歌颂<br/>我看见深渊的彩虹<br/>我听见群星在歌颂<br/>这所有的所有<br/>呜呜呜……<br/>这所有的所有
-![img](https://media.gettr.com/group23/origin/2021/11/15/19/26/0949de60-4a88-114d-a27a-8ee97d329641/out.jpg)
 
 ---
 
