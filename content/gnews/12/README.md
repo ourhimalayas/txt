@@ -2,40 +2,34 @@
 ---
 
 
-## 聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1865623/)
+## 弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865664/)
 
-#### 加拿大温哥华扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-213.jpeg)路透社
-去年中共国的“双循环”经济呈现内冷外热的现象，在国内消费乏力和输入性通胀的共同作用下，国内经济陷入萧条，但由于中共（新冠）病毒对全球产业链的破坏，中共国出口企业获得了大量商品订单。
+编译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/youngkin-inauguration-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT  一月十五日星期六的新闻报道：
 
-麦格理首席中国经济学家胡伟俊认为，中国出口暴增帮助抵消了中共国房地产市场放缓和消费的极度疲软。
+共和党人格伦·扬金周六宣誓就任弗吉尼亚州第 74 任州长。
 
-中共官方提供的数据显示，中共国去年出口同比增长30%，贸易顺差飙升至有记录以来的最高水平，达到6760亿美元，同比增长26%，其中对美国的顺差竟高达3,965.8亿美元。
+Youngkin 是 10 多年来该州第一位共和党州长。
 
-但值得注意的是，去年12月份的出口增幅已回落至21%，表明国外对中共国的商品需求正在下降。
+杨金在 11 月击败了肮脏的克林顿派-特里-麦考利夫（Clintonite Terry McAuliffe），共和党人横扫了整个弗吉尼亚联邦大胜。
 
-原因是多方面的：世界各国对民众的疫情补贴效应已经消退，在商品出口上和中共国存在竞争关系的亚洲国家已经从疫情打击中缓过来，分流了不少订单，以及中共国的生产供应链近来受疫情冲击导致部分商品供应中断等等。
+11 月，一名女高中生在女浴室被一名穿裙子的“跨性别”男孩强奸后，批判性种族理论和对学校安全的担忧成为弗吉尼亚州选民的首要关心问题。
 
-在疫情未爆发前，中共国已经占据了全球一般商品出口约50%的份额，而以美国为首的西方对中共国药品原料、军工材料等涉及国家安全的商品依赖度极高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-214.jpeg)dreamstime
-试设想一下，如果中共国的“世界工厂”因为疫情失控或战争停止商品供应，是否会引发全球性的供应短缺和恶性通胀，在产业供应链上高度依赖邪恶的中共国是不是在自己的床头放一个无法控制的定时炸弹？
+“父母应该对学校的教学有发言权，”扬金在就职演说中对全场起立鼓掌的人群说， “对父母，我说我们尊重你。”
 
-因此，专业分析国际政治危机的美国调查公司欧亚集团在1月3日公布了今年全球“十大风险”报告，其中将中共国的病毒“清零政策”失败列为十大风险之首。
+就职后，杨金州长立即开始工作，签署了 11 项行政措施。
 
-该报告称，中共国2020年的清零政策“取得了令人难以置信的成功”，但那种老办法用于防控毒性和传播力更强的德尔塔和奥米克戎病毒可能不管用。
+扬金州长禁止有极大分歧的批判性种族理论，学校口罩强制令，并退出区域温室气体倡议 (RGGI)。他的第二号行政指令要求取消对所有州雇员的疫苗强制要求， 恢复个人自由和个人隐私。
 
-报告认为，一旦中共国疫情失控，将引发全球供应链混乱，商品短缺又推升全球激烈通胀，从而导致全球经济混乱和各国政治局势动荡。
+原文链接：[https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/](https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/)
 
-据相关报道，目前中共国的疫情已经在全国蔓延，实际上已经进入失控状态。这将加剧国际局势的动荡，同时也将加速中共国经济的全面崩溃和中共的早日灭亡！
+编辑/发布：LILY
 
-参考：
+20220115
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-[中国2021年贸易顺差达6760亿美元](http://www.ftchinese.com/story/001095054?full=y&amp;gift_id=0a0e0aa87a36a7b3293f438c6f412dc854a65277&amp;archive)
-
-[中国2021年外贸进出口强势收官 12月贸易顺差刷新历史高点（更新版）](https://cn.reuters.com/article/china-trade-dec-0114-fri-idCNKBS2JO09T)
-
-编辑/发文：Kent
 
  
 

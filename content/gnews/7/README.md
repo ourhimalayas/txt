@@ -2,34 +2,27 @@
 ---
 
 
-## 弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865664/)
+## 关于中华人民共和国南海海洋主张的研究报告
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1865773/)
 
-编译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/youngkin-inauguration-edited.jpg)图片来源：网络
-来自GATEWAY PUNDIT  一月十五日星期六的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/333.png)图片截自美国务院网站
+2022年1月12日，美国国务院发布了一份关于中华人民共和国在南海的海洋主张的《海洋界限研究》报告。 国务院的海洋界限研究是一个长期的法律和技术系列，旨在研究各国的海洋主张和边界，并评估它们是否符合国际法。 这份最新的研究报告是 “海洋界限 “系列中的第150份研究报告，其结论是中国对南海的大部分地区提出了非法的海洋主张，包括非法的历史权利主张。
 
-共和党人格伦·扬金周六宣誓就任弗吉尼亚州第 74 任州长。
+这项研究建立在美国国务院2014年对中华人民共和国在南海的模糊的 “虚线 “主张的分析之上。 自2014年以来，中华人民共和国继续宣称对中国南海的大片海域以及中华人民共和国所谓的 “内水” 和 “外围群岛” 提出主权主张，所有这些都不符合1982年《海洋法公约》中所反映的国际法。
 
-Youngkin 是 10 多年来该州第一位共和党州长。
+随着这份最新研究报告的发布，美国再次呼吁中华人民共和国遵守海洋主张《海洋法公约》的国际法，遵守仲裁庭在2016年7月12日《南海仲裁案》中的裁决，并停止其在南海的非法和胁迫性活动。
 
-杨金在 11 月击败了肮脏的克林顿派-特里-麦考利夫（Clintonite Terry McAuliffe），共和党人横扫了整个弗吉尼亚联邦大胜。
+请访问国务院网站，查阅关于中国在南海的海洋主张的《海洋极限研究》报告，以及以前的研究报告。 如有媒体咨询，请联系 [\[email protected\]](/cdn-cgi/l/email-protection#da959f89f78a9bf79e9d9aa9aebbaebff4bdb5ac)。
 
-11 月，一名女高中生在女浴室被一名穿裙子的“跨性别”男孩强奸后，批判性种族理论和对学校安全的担忧成为弗吉尼亚州选民的首要关心问题。
 
-“父母应该对学校的教学有发言权，”扬金在就职演说中对全场起立鼓掌的人群说， “对父母，我说我们尊重你。”
 
-就职后，杨金州长立即开始工作，签署了 11 项行政措施。
+原文链接：[https://www.state.gov/study-on-the-peoples-republic-of-chinas-south-china-sea-maritime-claims/](https://www.state.gov/study-on-the-peoples-republic-of-chinas-south-china-sea-maritime-claims/)
 
-扬金州长禁止有极大分歧的批判性种族理论，学校口罩强制令，并退出区域温室气体倡议 (RGGI)。他的第二号行政指令要求取消对所有州雇员的疫苗强制要求， 恢复个人自由和个人隐私。
 
-原文链接：[https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/](https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/)
 
-编辑/发布：LILY
 
-20220115
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
+翻译：烟波浩淼 | 校对：雨山西桥客| 编辑&发布：闪电训练
 
  
 

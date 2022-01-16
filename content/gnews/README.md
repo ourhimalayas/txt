@@ -15,104 +15,104 @@
 
 ---
 
-### [共产党的生化病毒，在不同的人体或条件下就会爆发出新的病种，五月前能不出去就不出](/content/gnews/1/README.md)
+### [数字货币走向新的时代和法币并存，最后法币被淘汰](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [大直播后记：gclub卧底的失败](/content/gnews/2/README.md)
+### [真理放映揭露福奇，推特账号被无限期暂停](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如果没有人怼我们，怎么体现我们的价值](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大直播概要](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [关于中华人民共和国南海海洋主张的研究报告](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [以法灭疫，从前天开始了](/content/gnews/4/README.md)
+### [共产党的生化病毒，在不同的人体或条件下就会爆发出新的病种，五月前能不出去就不出](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.389 HDO](/content/gnews/5/README.md)
+### [大直播后记：gclub卧底的失败](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [关于中华人民共和国南海海洋主张的研究报告](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [事实、法律、程序的尊 重是爆料革命的基本认知](/content/gnews/6/README.md)
+### [以法灭疫，从前天开始了](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等](/content/gnews/7/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.389 HDO](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [GTV新闻访谈简报|2022年1月15日晚](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
+
+### [事实、法律、程序的尊 重是爆料革命的基本认知](/content/gnews/11/README.md)
+ ` G-NEWS TAIWAN`
+
+### [弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新冠患者存活背後的驚天秘密](/content/gnews/8/README.md)
+### [新冠患者存活背後的驚天秘密](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美联储将在几周内发布数字货币的完整报告](/content/gnews/9/README.md)
+### [美联储将在几周内发布数字货币的完整报告](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [Facebook母公司因利用用户数据在英国被起诉](/content/gnews/10/README.md)
+### [Facebook母公司因利用用户数据在英国被起诉](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [这与健康有关系吗？](/content/gnews/11/README.md)
+### [这与健康有关系吗？](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！](/content/gnews/12/README.md)
+### [聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！](/content/gnews/17/README.md)
  ` 丁过`
 
-### [防病毒 储物资](/content/gnews/13/README.md)
+### [防病毒 储物资](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [全科医生讲诉拒绝接种中共病毒疫苗的原因](/content/gnews/14/README.md)
+### [全科医生讲诉拒绝接种中共病毒疫苗的原因](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧盟药品监管机构对第四剂加强针的必要性表示怀疑](/content/gnews/15/README.md)
+### [欧盟药品监管机构对第四剂加强针的必要性表示怀疑](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [参议员兰德·保罗发起筹款以解雇福奇](/content/gnews/16/README.md)
+### [参议员兰德·保罗发起筹款以解雇福奇](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西亚六国外长访华表明中共意图获得对海湾地区影响力](/content/gnews/17/README.md)
+### [西亚六国外长访华表明中共意图获得对海湾地区影响力](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党最后的决战是习近平和曾庆红](/content/gnews/18/README.md)
+### [共产党最后的决战是习近平和曾庆红](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭文贵先生2022年1月15日盖特视频（3分32秒）全文字版](/content/gnews/19/README.md)
+### [日本将中共病毒Omicron密接者隔离期从14天缩短到10天](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本将中共病毒Omicron密接者隔离期从14天缩短到10天](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [针对信仰、民主、资本这三项基本问题，认知上的对立，导致了中国共产党和美国之间的关系就是你死我活的关系](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/22/README.md)
+### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/23/README.md)
+### [有声|叛国和卖国竟然成了中共的特权，老百姓唯有自杀权！](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|一周中共病毒及疫苗伤害信息集锦](/content/gnews/24/README.md)
+### [有声|一周中共病毒及疫苗伤害信息集锦](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|中共掌权者才是盗国卖国贼](/content/gnews/25/README.md)
+### [有声|中共掌权者才是盗国卖国贼](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|欧洲议会主席David Sassoli突然死亡](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|全球中共病毒新增确诊近日再创新高](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/28/README.md)
+### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/29/README.md)
+### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [雅典娜时报-第175期](/content/gnews/30/README.md)
+### [雅典娜时报-第175期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/31/README.md)
+### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第174期](/content/gnews/32/README.md)
+### [雅典娜时报-第174期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
-
-### [保罗参议员指出福奇就是疫情问题的一部分](/content/gnews/33/README.md)
- ` GTV新闻访谈`
 
 ### [【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

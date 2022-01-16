@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的生化病毒，在不同的人体或条件下就会爆发出新的病种，五月前能不出去就不出
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865814/)
+## 数字货币走向新的时代和法币并存，最后法币被淘汰
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865877/)
 
 台灣寶島農場
 
