@@ -2,22 +2,38 @@
 ---
 
 
-## 一定要采法律行动对媒体攻击一定要反击(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1868860/)
+## 有声|近在咫尺的疫苗灾难（二）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868890/)
 
-整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一定要采法律行动对媒体攻击.002.jpeg)
-像刚才小斯基说的更吓人了，他编辑和断章取义，然后把小斯基定义为暴 力分子，你打人呢，你看那个视频，有没有打人啊，是不是你小斯基打的 呀，这更恐怖了。这就像要把**300**年飞飞跟一个上海的叫什么十大妓女 那个电影放在一起，然后十大妓女的照片就出来，飞飞照片就出来后这飞 飞就成妓女啦。那人家飞飞以后永远就是这个**300**年飞妓啊，就是很恐怖 的。这在媒体上有专业的行规，每句话都要澄清，他没有分割点，那就说 话一样，没有点号逗号。这对小斯基的威胁真的是很大的。 昨天到现在我也想说的是因为他没有加上中文字幕，我的英文理解能力也 不够，我就简单过了一下以后，我说坏了，这个**NICOLE**还小斯基现场 这些抗议的人硬叉叉地跟我们扯在一起，他们生命有巨大的安危问题。小 斯基这不是开玩笑，你不是说你吃不下去饭，你应该很多理由吃不下去 饭，而且要注意安防，而且你一定要采取法律行动，否则这个视频越传 越广泛，对你威胁越来越大。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国良好而完备医疗保健体系，让我觉得疫苗灾难离我很远。
 
-*发布：陶子*
+没有想到，疫苗灾难就发生在我身边，触手可及的地方。邻居陈太太因为疫苗副作用去世了，每次经过她家门前，还是能想起她言笑晏晏的样子。我在昨天又听到了一个坏消息：住在我楼上的老太太也去世了。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+就在圣诞节前几天，她突然半夜从床上摔下来，心脏不适，被急救送进了医院。据猜测，她可能半夜觉得心脏不舒服，想起床，结果无力而从床上摔下来。
+
+原文链接：[近在咫尺的疫苗灾难（二）](https://gnews.org/zh-hans/1865098/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
