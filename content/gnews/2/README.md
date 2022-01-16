@@ -2,50 +2,38 @@
 ---
 
 
-## 美国法国英国最有钱有权的人正以共享财富名义抢劫财富
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866571/)
+## 大直播后记：中共恐惧新中国联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1866680/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3ac9587664c47acd54d78](https://gtv.org/video/id=61e3ac9587664c47acd54d78)
+整理：雅典娜速记组 大直播工作组
+编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DEVVLGE3QYK6P1Y9VQMOU.png)图片来源：雅典娜设计组
+背景资料：2020年6月4日，郭文贵先生与斯蒂芬·班农在纽约宣布成立代表[中国](https://zh.m.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD)“新中国联邦”，中国前[足球](https://zh.m.wikipedia.org/wiki/%E8%B6%B3%E7%90%83)运动员[郝海东](https://zh.m.wikipedia.org/wiki/%E9%83%9D%E6%B5%B7%E4%B8%9C)和他的妻子[叶钊颖](https://zh.m.wikipedia.org/wiki/%E5%8F%B6%E9%92%8A%E9%A2%96)（退役[羽毛球](https://zh.m.wikipedia.org/wiki/%E7%BE%BD%E6%AF%9B%E7%90%83)选手）参加了[新中国联邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf) 的宣读。
 
-**郭文贵先生：**这个美国佬这个家伙是要出大事的，他一定会受到美国的审判的，这哥儿们对中国人的伤害远远超过了一个国家对中国的伤害，这就是拿钱干活儿，到现在他要在美国搞“共享财富”。
+《新中国联邦宣言》分如下部分：序言、消灭中共是正义的需要、新中国联邦愿景、法治基金、法治社会的承诺、宣言发起和制定者、和附件。
 
-你看我在4年前说，大家觉得我放屁是吧，说“他都活不了几天了怎么还能把共产主义搞到美国来？”包括日本人，还有法国朋友有一次跟我视频时说：“Miles，你说你干掉共产党你够有勇气的了，希望你这个梦一直都做下去”，另外一个他说：“你会对它是伤害，你干掉共产党我们不相信，但是你说共产党要把共产主义搞到欧洲来，搞到美国来，这个玩笑开太大啦”，他说：“没有人相信”。
+新中国联邦成立的唯一目的是“消灭[中共](https://zh.m.wikipedia.org/wiki/%E4%B8%AD%E5%85%B1)”。新中国联邦是致力于向国际社会宣传并行动的消灭共产党暴政的新生力量。郭文贵先生一再强调新中国联邦不是组织，但维基百科上对该词条强调是个组织，这是我们不赞同以及和维基百科切割。
 
-很不幸，这位法国人已经得病毒死了，这是一年前。希望他能上天堂不入地狱。日本这个朋友已经病毒现在还在医院躺着呢，也很不幸，希望他能活过来，我们不希望他们死，希望他们能看到共产党的灭亡。
+文贵直播：在共产党进入中国掌握政权以前，所有共产党的活动都叫民主活动，都叫正义的活动。自从1949年以后，所有在中国的活动或者上街抗议，全列为反党、反社会、反国家。
 
-但是他今天他们看到了很不愿意看到的一幕，共产党不但也被灭，共产党正在中国搞“共享财富”，在美国、在全人类搞“共享财富”，而且是谁在搞？是你美国最有钱的人和法国最有权的人、英国最有钱和最有权的人在搞，而且是你们白人。啥叫“共享财富”？”共享财富”和共产主义，看看共产党现在把”共享财富”的解释：也就是让80%的所有人为名，把20%的精英财富无偿地得到。而且不是和平地得到，是通过法律强制性、暴力流血。
+一直到今天，你中国人啥时候想过49年以前所有的上街抗议，还有英法报纸自由发言，全列为叫民主自由，推翻3座大山。49年以后所有发言，所有的说话，全列为反党、反国家。 就像上次我说的一样，你有反国家的权力吗？你有反国家能力吗？ 你跟国家宪法发过誓吗？宣过言吗？ 给你过任何契约吗？ 连护照都不发给你。
 
-就像中国当年杀掉260万地主，最后把所有地主的地和钱全归了共产党，它并不会把财富发给穷人。跟穷人半毛钱关系没有，你上学照付钱，你买裤衩也付钱，你买面包也得付钱，你加油照样付钱。关键这钱给谁了？这钱把过去这些资本家享受的财富的空让你补上。
+你是哪国的人民呢？ 国家认过你吗？ 双方同意下的公民和国家权力才叫爱国。叛国，你的国在哪呢？ 那么现在我们谈到这些问题的时候，兄弟姐妹们，你知道我们谈喜币的时候，共产党为什么害怕吗？6个中东外长见完外交部，还有王沪宁要求接见，其中给他们列了很多条，希望他们参加冬奥会，不能支持海外的中共确定的所谓的“邪教组织”新中国联邦，不能支持喜联储、喜币，在你国家要屏蔽掉所有GTV,GNEWS。没有盖特啊。
 
-第二进行财富再分配，又分配到它们自己的极少数精英，过去的20%的蓝领和白领，分到0.2%和2%的手里去，所有的共享财富就是共产主义共产到几个家族去，而不是共产到绝大多数80%人手里去。
+兄弟姐妹们，你看看，他不敢惹美国的盖特，他就要GTV,GNEWS。他多怕我们！如果我们是邪教，你怕啥呢？
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+结果，这些参加会谈人说，Miles你太厉害了，他说：“我今天见着几个全部都是怕你啊。一说到你，新中国联邦，脸色全都变了。
 
-编辑整理：Jacques；
+后记点评：随着新中国联邦在国际社会越来越大的影响力，它代表着不惧独裁政府、爱好和平、自由、民主的新中国人有生力量，中国共产党并不代表所有中国人，中国人不等同于共产党，国际其它国家和地区看好我们新中国联邦取代共产党独裁政权，有能力建设一个阳光、透明的真正属于中国人的合法政府！
 
-字幕文件制作：小满；
+资料来源：郭先生GTV和盖特直播视频。
 
-视频制作及上传：Cindy；
+发布：  tianzhihuan
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

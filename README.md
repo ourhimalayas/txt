@@ -15,70 +15,70 @@
 
 ---
 
-### [【G时新闻】北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [美国法国英国最有钱有权的人正以共享财富名义抢劫财富](/content/gnews/2/README.md)
+### [中国老百姓与国家没有誓约不受保护人畜不分，何谈卖国](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [深圳惊现一名举牌喊口号的“罗湖勇士”](/content/gnews/3/README.md)
- ` 波士顿五月花农场`
-
-### [桥水基金RayDalio是王岐山高燕燕的兄弟是朱云来的爹](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [若不反击制造大型仇恨传播邪教的VICE,华人将猪狗不如](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [1/07 文贵直播：哈萨克斯坦事件是共产主义祸害世界的必然（粤语配音）](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/05文贵直播：盖特是改变社交媒体游戏规则的game changer（粤语配音）](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/05文贵直播：习太阳相信死人是其强大的必须和必然（粤语配音）](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [共产党要用邪教的六条特征把反共人士和中国人打成邪教](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记： 法律的起源](/content/gnews/12/README.md)
+### [大直播后记：中共恐惧新中国联邦](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [疫苗加强针！绝对要避开的理由](/content/gnews/13/README.md)
- ` 首尔天池农场`
+### [文雍漫谈：半百](/content/gnews/3/README.md)
+ ` 文雍`
 
-### [邪教特征:教主崇拜精神控制编造邪说敛财秘密结社反社会](/content/gnews/14/README.md)
+### [江泽民把中国与阿富汗和塔吉克接壤处领土几乎全部卖掉](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [疫苗加强针！绝对要避开的理由](/content/gnews/15/README.md)
- ` 首尔天池农场`
+### [【G时新闻】北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/5/README.md)
+ ` G-时新闻`
 
-### [过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生](/content/gnews/16/README.md)
+### [美国法国英国最有钱有权的人正以共享财富名义抢劫财富](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [深圳惊现一名举牌喊口号的“罗湖勇士”](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
 
-### [若无预判则加拿大新加坡日本的排华苗头会如野火般蔓延](/content/gnews/18/README.md)
+### [桥水基金RayDalio是王岐山高燕燕的兄弟是朱云来的爹](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [加拿大排华法律协个案作背后意图把爆料革命带入超限战](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共酷吏孙力军，央视大裤衩电视认罪](/content/gnews/20/README.md)
+### [继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [江志成吴征出钱VICE把爆料革命带进Q组织并打成邪教](/content/gnews/21/README.md)
+### [若不反击制造大型仇恨传播邪教的VICE,华人将猪狗不如](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [VICE四年前黑七哥，但七哥一年前已预判并远离Q组织](/content/gnews/22/README.md)
+### [1/07 文贵直播：哈萨克斯坦事件是共产主义祸害世界的必然（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：盖特是改变社交媒体游戏规则的game changer（粤语配音）](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：习太阳相信死人是其强大的必须和必然（粤语配音）](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [共产党要用邪教的六条特征把反共人士和中国人打成邪教](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大直播后记： 法律的起源](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [疫苗加强针！绝对要避开的理由](/content/gnews/17/README.md)
+ ` 首尔天池农场`
+
+### [邪教特征:教主崇拜精神控制编造邪说敛财秘密结社反社会](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [疫苗加强针！绝对要避开的理由](/content/gnews/19/README.md)
+ ` 首尔天池农场`
+
+### [过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [若无预判则加拿大新加坡日本的排华苗头会如野火般蔓延](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/23/README.md)

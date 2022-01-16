@@ -2,34 +2,44 @@
 ---
 
 
-## 中共酷吏孙力军，央视大裤衩电视认罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866362/)
+## 过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866424/)
 
-**【雅典娜观察】和您一起探究世界**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-229.jpg)图片来源：Youtube
-整理报道：Little lamp
-编辑：文泓
+G-TV视频链接：[https://gtv.org/video/id=61e3aae487664c47acd54cff](https://gtv.org/video/id=61e3aae487664c47acd54cff)
 
-1月13日，中共国公安部原党委委员、副部长孙力军被提起公诉。检方指控孙力军涉嫌三罪，受贿罪、操纵证券市场罪、非法持有枪支罪。次日，在央视《零容忍》节目中，孙立军公开电视认罪。
+**郭文贵先生：**我再告诉大家，在过去的两周，在美国、欧洲的所有的大学里面，几乎在暗传着一个消息：一定要尽量的不让中国学生到这个学校。这是刚刚死的欧洲的那个主席，他的助理那是咱哥们儿，死了个球的，打了四针，不是打三针，打四针这哥们儿。那不是疫苗打死的吗？原来跟他合作的，两边儿吃，两边儿吃，他已经走了。我说你别打疫苗，说着说着不打。说我觉得疫苗能让我活下去，我也不能老开会。结果打死个球的了。
 
-公开资料显示，孙力军曾担任公安部一局、二十六局局长，港澳台办公室主任等职务。2018年3月，49岁的孙力军出任公安部副部长，成为当时最年轻的公安部副部长。
+他的助理跟我说，他说我们最近收到太多太多这个信息。他的助理是要在欧洲成大人物的。在欧洲和美国的院校，已经私下太多传送排斥中国学生，甚至是亚洲学者。已经韩国、日本、台湾、香港、新加坡，都被排在那儿，亚洲学者。他们已经不只是（中国人了）。
 
-孙力军最后一次公开露面是在2020年3月。2020年4月19日，孙力军被查。在2021年9月30日孙被“双开”。
+这就共产党太可怕了，我要把亚洲黄皮肤人放着一个墙里边。我花那么长时间，我希望真的能懂。谁死了，命再也回不来。我真不希望任何人死在一个完全，像加拿大那个女的多危险，她一张口就来，我家是最好的律师。这种傲慢，这就是一个种族歧视、种族大屠杀，跟印尼排华，你去看看去。当年整个乌干达赶走印度人，是一模一样的，一模一样。
 
-中共官方文件指出，该案由国家监察委、长春市公安局联手查办；孙力军敛财首站始于“上海市卫生局外事处副处长”；除了受贿罪之外，孙力军还涉嫌操纵证券市场罪、非法持有枪支罪。
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-孙立军作为中共酷吏，他首开当事人电视认罪，也是“灭胡行动”、“雷洋事件”、迫害爆料革命战友等的幕后执行者。今天中共党内习江大战升级之际，习近平“请君入瓮”，对目前中共党内高官们起到了很好的警示作用。
+编辑整理：Jacques；
 
-新闻来源：[“警虎”孙力军一案的几个罕见之处](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=b7e7b8f7bdee4d36af5a3e1ec6dd7ecc&amp;wm_cid=465765587161726976&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
+字幕文件制作：小满；
 
-发布：去中心化Math
+视频制作及上传：Cindy；
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

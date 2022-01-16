@@ -2,44 +2,38 @@
 ---
 
 
-## 过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866424/)
+## 大直播后记： 法律的起源
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1866465/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3aae487664c47acd54cff](https://gtv.org/video/id=61e3aae487664c47acd54cff)
+整理：雅典娜速记组 大直播工作组
+编辑：Rianna
 
-**郭文贵先生：**我再告诉大家，在过去的两周，在美国、欧洲的所有的大学里面，几乎在暗传着一个消息：一定要尽量的不让中国学生到这个学校。这是刚刚死的欧洲的那个主席，他的助理那是咱哥们儿，死了个球的，打了四针，不是打三针，打四针这哥们儿。那不是疫苗打死的吗？原来跟他合作的，两边儿吃，两边儿吃，他已经走了。我说你别打疫苗，说着说着不打。说我觉得疫苗能让我活下去，我也不能老开会。结果打死个球的了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5FJFSPD72FKQ0@8M8W38.png)图片来源：雅典娜设计组
 
-他的助理跟我说，他说我们最近收到太多太多这个信息。他的助理是要在欧洲成大人物的。在欧洲和美国的院校，已经私下太多传送排斥中国学生，甚至是亚洲学者。已经韩国、日本、台湾、香港、新加坡，都被排在那儿，亚洲学者。他们已经不只是（中国人了）。
 
-这就共产党太可怕了，我要把亚洲黄皮肤人放着一个墙里边。我花那么长时间，我希望真的能懂。谁死了，命再也回不来。我真不希望任何人死在一个完全，像加拿大那个女的多危险，她一张口就来，我家是最好的律师。这种傲慢，这就是一个种族歧视、种族大屠杀，跟印尼排华，你去看看去。当年整个乌干达赶走印度人，是一模一样的，一模一样。
+背景知识：法律（英语：Law） 是一种由[规则](https://zh.m.wikipedia.org/wiki/%E8%A6%8F%E5%89%87)组成的[体系](https://zh.m.wikipedia.org/wiki/%E4%BD%93%E7%B3%BB)，由国家强制力保证实施，规范个人[行为](https://zh.m.wikipedia.org/wiki/%E8%A1%8C%E7%82%BA)。法律是一系列的规则，通常需要经由一套[制度](https://zh.m.wikipedia.org/wiki/%E5%88%B6%E5%BA%A6)来落实。但在不同的地方，[法律体系](https://zh.m.wikipedia.org/wiki/%E6%B3%95%E5%BE%8B%E9%AB%94%E7%B3%BB)会以不同的方式来阐述人们的法律[权利](https://zh.m.wikipedia.org/wiki/%E6%AC%8A%E5%88%A9)与义务。其中一种区分的方式便是分为[欧陆法系](https://zh.m.wikipedia.org/wiki/%E6%AD%90%E9%99%B8%E6%B3%95%E7%B3%BB)和[英美法系](https://zh.m.wikipedia.org/wiki/%E8%8B%B1%E7%BE%8E%E6%B3%95%E7%B3%BB)两种。有些国家则会以他们的[宗教法条](https://zh.m.wikipedia.org/wiki/%E5%AE%97%E6%95%99%E6%B3%95)为其法律的基础。朱斯提提亚（[拉丁语](https://zh.m.wikipedia.org/wiki/%E6%8B%89%E4%B8%81%E8%AA%9E)：*Iustitia*、英语：Justitia），通称“正义女神”（英语：Lady Justice），是一位[古罗马](https://zh.m.wikipedia.org/wiki/%E5%8F%A4%E7%BE%85%E9%A6%AC)的[拟人化](https://zh.m.wikipedia.org/wiki/%E6%93%AC%E4%BA%BA%E5%8C%96)[神祇](https://zh.m.wikipedia.org/wiki/%E7%A5%9E%E7%A5%87)。古罗马人接受了古希腊的诸神，并混入了罗马的诸神。在[古罗马帝国](https://zh.m.wikipedia.org/wiki/%E5%8F%A4%E7%BD%97%E9%A9%AC%E5%B8%9D%E5%9B%BD)时代又将一些概念拟人化，“创造”出不少神灵，其中就有正义与司法女神朱斯提提亚，其名称由法律“jus”一词转变而来。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+这位女神的造型混合了希腊的[忒弥斯](https://zh.m.wikipedia.org/wiki/%E5%BF%92%E5%BC%A5%E6%96%AF)、[狄刻](https://zh.m.wikipedia.org/wiki/%E7%8B%84%E5%88%BB)、[阿斯特赖亚](https://zh.m.wikipedia.org/wiki/%E9%98%BF%E6%96%AF%E7%89%B9%E8%B3%B4%E4%BA%9E)诸女神的形象，一般都是一手持天平、一手持宝剑，而且都是紧闭双眼或者是在眼睛上蒙着布条。
 
-编辑整理：Jacques；
+文贵直播：我来，我来跟你说啊。你看看这里边很有意思。希特勒曾经问过戈培尔，法律是干什么的？法律，这从哪来的？把这法律给我改了，不知道德语怎么说了。法律这个词来自于西班牙语，它的意思就是笔直的。后来是整个在西班牙，当时就是西班牙当帝国的时候，说我们如何铲除邪恶、贪婪、嗔恨、凶恶，包括我们自己的这些东西。
 
-字幕文件制作：小满；
+最后是大家统一说要建一个是Rule of the law，法律就笔直的在这面前，你突出的都要被砍掉, 这个笔直的规矩被称为法律，Rule of the law。西班牙语就是笔直的。没有特例的,出来就被砍掉了。谁认可的？绝大多数人认可的政府，那时候叫皇权，政府和老百姓之间的契约和社会之间的契约，目的就是铲除贪婪。贪婪第一啊，嗔恨邪恶凶险。在这个当你触碰了这个队列之外的，都是要被铲除。
 
-视频制作及上传：Cindy；
+最可怕的事情，法律最后一句话为了阻止人类走向贪婪、凶险、憎恨、自私的这种最后不可收拾的境界。我们要让老百姓有限度的说话，所以各国之后形成了一个叫什么新闻官，就是你说的话，你代表政府，你要负责任的。后来一个新闻监察官又出来了，说你这个政府和人，但凡有层次的说话，要负责任的，
 
-G-News发布：小满；
+就像每个人都懂一样，我不一定同意你的观点，但我誓死扞卫你说话的权利。我们要更加上一句话：只有能听进别人批评的人，你才配享受自由，言论的自由。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+后记点评：法律是人类文明发展的重要组成部分，它把杂乱无章的人类社会带进了有序、契约、和平、道德的底线，让我们人际关系越来越温和，也给予我们一个公平、正义、自由的言论权利。我们人类都可以按法律为准绳，成就衡量各种事情的天枰。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+资料来源：郭先生GTV和盖特直播视频。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布：  tianzhihuan
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

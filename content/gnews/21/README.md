@@ -2,58 +2,46 @@
 ---
 
 
-## 江志成吴征出钱VICE把爆料革命带进Q组织并打成邪教
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866340/)
+## Facebook因利用用户数据在英国面临32亿美元的集体诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1866416/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3a82387664c47acd54bd1](https://gtv.org/video/id=61e3a82387664c47acd54bd1)
+![Mark Zuckerberg deep in thought (Drew Angerer /Getty)](https://media.breitbart.com/media/2021/08/Mark-Zuckerberg-deep-in-thought-640x480.jpg)Facebook（脸书）的创始人兼首席执行官扎克伯格（资料图）
+来自《布赖特巴特新闻网》2022年1月14日的报道，瘾科技(Engadget)报道说，脸书(Facebook,现在的Meta)正面临一场重大的法庭诉讼，一位法律专家已经开始与一家诉讼公司合作，代表英国的4400万Facebook用户起诉该公司。该集体诉讼称，英国用户的数据被利用，此举违反了竞争法。
 
-**郭文贵先生：**这是四年前设的局，今天已经是五年前了，2017年，HBO VICE就来给咱设了局：郭文贵是个骗子。这房子6750万买的，他说8200万。最后一分钟，把你弄定。多土，你看这孙子。喝一咖啡，拿水晶杯，还抱一狗，是吧？然后咖啡里还放蜂蜜。然后你看，华尔街采访我的时候，啪就把我那个白的衣服、抱着狗照片儿给出去，为啥知道吗！拍那么个照片？
+该诉讼为英国Facebook用户寻求23亿英镑(32亿美元)的赔偿，该诉讼由专门研究竞争法的利萨·洛夫达尔·戈尔姆森(Liza Lovdahl Gormsen)博士提起的。接手此案的因斯沃思(Innsworth)律师事务所为此案提供资金，以换取所赢得的一部分损害赔偿金。
 
-在西方人眼里，抱着个狗、穿着白衣服，这种基本上就是黑道，还有毒枭。基本都认同的毒枭、黑道、邪教，然后再一个就是，美国人也对富豪不感兴趣。一说Billionaire，我们打官司很吃亏。每次律师都告诉我说，当你出现你是Billionaire ，陪审团你已经输一半了。没有几个美国人说，对你个Billionaire有什么好兴趣的。
+该诉讼称，虽然用户使用Facebook不需要付费，但他们提供给该社交媒体平台的信息是有价值的。洛夫达尔·戈尔姆森在一份声明中说：“他们正在通过获取用户的个人数据来利用用户谋利，却没有为获取这些数据对用户作出适当的补偿。我认为用户在点击条款和条件时并不完全清楚这种交易有多不公平。”
 
-所以我在华盛顿时候，班农最后一分钟说：我求求你了，Miles，撤， Virginia，你百分之百输，郭宝胜、夏业良的案子。每次律师告诉我，最后一分钟你必须离开，你肯定输。这个地方都是平均收入5万多美金一年，你个Billionaire，你穿套西装一万多美金，你不输定了吗？我说不是的，我一定要赢，我会赢的。
+戈尔姆森补充说，Facebook已经成为“英国唯一的一处你可以确保与朋友和家人联系的社交网络平台”。诉讼进一步指出，Facebook通过Facebook像素(Facebook Pixel)在整个互联网上广泛地追踪其用户，对此《布赖特巴特新闻网》曾做过报道。
 
-大家都看到，我们都赢了，是吧？我说我就是草根，草根和草根之间有草根的共同语言。我要告诉他们，我之所以成为Billionaire，我是正义的Billionaire，我和他们不一样。我现在不是了，我过去为什么是？所以说，郭宝胜、夏业良还有熊宪民，带着狗围脖上去的。我恨他，我恨郭文贵。人家陪审团，哇（低头），是吧？他现在，过去是草根，他现在是屎根儿，他是屎根儿。所以说他就输了。那么我们这Q组织这个事情一样的。
+洛夫达尔·戈尔姆森说：“它滥用其市场支配地位，对普通英国人强加不公平的条款和条件，赋予它利用他们的个人数据的权力。”
 
-她想把我打造成邪教集团，把我们黑进去，带进Q组织，是共产党的核心。你从这个Isobel Yeung拿了钱，这就是外国人。我拿你钱了，我要交活儿，是吧？就像你到荷兰去那个妓女一条街，是吧？只要你付了钱，30美金。对不起，只有3分钟。100美金，你可以在半小时以内随便。你不能说你拿着钱了，性街？是不是？按时间算钱的，是吧？30美金你摸一下。
+诉讼涉及的时间段为2015年10月至2019年12月31日。该诉讼是一个“选择退出”的集体诉讼，这意味着用户不需要提供任何形式的同意书就可以从该案件中获得损害赔偿，除非他们选择退出。
 
-我当时到那儿以后，我发现：共产党，在我从小看过的共产党玩弄我们中国的同胞女儿，从来不付钱。这里还付钱，后来发现付钱还有时间限制。就共产党他连个流氓他都不如，他连个妓女他都不如。我从那时候，我就感受到了。
+简评：
 
-那西方人拿钱，是给你兑现的。我们这青青草原，我说哈萨克斯族。哈萨克族有句话，永远不要让你的朋友知道你曾经骗过他，是吧？我跟他们好多朋友打交道。我说为什么？他说当他知道的时候，再也不相信你了。我们中国人恰恰相反，一定是忘掉你朋友曾经骗过你，你就骗他，把他再骗回来，你才是高人。骗比骗高，是中国的文化。哈萨克斯坦是说，NO，NO，NO，你不要让朋友知道你骗过他，他永远不再相信你。
+Facebook公司去年宣布把名字换成Meta，有网民根据其英文发音调侃“非死不可”进一步换成了“埋它”。这种调侃背后也有其严肃的理由。过去数年来，Facebook违法地滥用市场支配地位，利用客户数据谋利，对发布所谓的“敏感信息”的用户进行言论审查和信息屏蔽，甚至封号。
 
-那么，外国人HBO VICE拿到钱了，我要给你兑现。四年前的计划，今天兑现中。谁付的钱？知道吗？江志成付的钱、Bruno Wu付的钱。钱拿了我就给你兑现。五年前Isobel Yeung从上海回来。说今天这个钱，这个还没兑交完，就是两个目的：干掉郭文贵和新中国联邦，然后让所有的海外华人成为邪教。然后Q组织是把你带上沟的其中的开始。
+去年1月，川普总统被Facebook和旗下Instagram禁言并暂停账号，为期两年。在香港大游行期间，有用户反映在Facebook发布的一些真实情况因“涉及敏感信息”很快被屏蔽或下架。Facebook 已经彻底沦为政治极权的工具。
 
-1月6号，Isobel Yeung能如约而至。我告诉你，Isobel Yeung要找一个摄影师、摄像师。你知道什么概念吗？在公司提前一周要申请。她跟我约会都是提前一个月。你说她咋那么准，就到了1月6号就到达了那天去访问？而专找中国人。你觉得这是没计划吗？你们但凡有一点脑子，兄弟姐妹们，在美国VICE这种出访，里边儿律师批、总编批、副总编批，然后摄像机才能到。
+公司为逃避法律缠诉而换名字，那只是“换汤不换药”。在社交媒体高速发达的信息时代，大众需要的是能接收真实信息、保证个人数据安全和能自由发声的网络平台，我们爆料革命的GTV，Gnews，GETTR等媒体平台就属于这类平台。Facebook如果还继续无视法律约束，无视客户隐私，压制和审查公众言论，其最终将会被大众放弃，而我们爆料革命的媒体平台也将顺势崛起。
 
-我所有接受采访的摄影师、摄像师都是从不同的城市来的，像她那次采访我，是摄影师、摄像师在英国来的。她正在纽约，还有一个在洛杉矶来的。你刚才看到这些细节的时候，你就知道，她是四五年前的一场阴谋、Q组织的阴谋、邪教的阴谋，而且招招是致命的。
+新闻链接：[https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+翻译/简评：JS
 
-编辑整理：Jacques；
+PR:Harvey（叶知秋）
 
-字幕文件制作：小满；
+* * *
 
-视频制作及上传：Cindy；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+编辑：【英国伦敦喜庄园编辑部】
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
