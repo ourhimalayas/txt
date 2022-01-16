@@ -2,26 +2,24 @@
 ---
 
 
-## 科学家说继奥米炕之后将有更多令人担忧的变种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1867011/)
+## 福奇在2020年投资了数家中共公司
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1867226/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-43.png)
-图片来源： www.sohu.com
+#### 翻译/撰稿：zzballack
 
-美联社1月15日报道，科学家警告说，继奥米炕全球肆虐之后，人们预料奥米炕将不是冠状病毒的最后一种变种。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-31.jpg)图片来源：美联社
+据《布雷特巴特新闻网》（Breitbart News）1月15日报道，美参议员罗杰·马绍尔 (Roger Marshall) 1月15日公布了安东尼·福奇（Anthony Fauci）2020年的财务数据。数据显示，福奇在2020年价值1040万美元的投资组合包括数家中共公司。
 
-每种感染提供了病毒进一步变种的机会，奥米炕与前几种变种相比更具有传染性，尽管有疫苗和有些人已经感染过，奥米炕照样能引起感染。
+福奇通过一个名为马修斯太平洋老虎基金（Matthews Pacific Tiger Fund）的基金公司来投资中共公司。马修斯太平洋老虎基金在2021年9月发布的情况说明显示，该基金将其投资者42.7%的资金投资于中共国和香港的公司。在这些公司中，有一家名为“药明生物 (WuXi Biologics Cayman)”的制药企业，总部位于中国无锡市。药明生物的官网介绍说，该企业“是全球领先的开放式生物制药技术平台，提供端到端的解决方案，助力任何企业发现、开发和生产生物药，实现从概念到商业化生产的全过程。预计到2024年后，公司在中国、爱尔兰、美国、德国和新加坡规划的生物制药生产基地合计产能将超过43万升”。
 
-这意味着病毒在更多人中会进一步演变。专家们不清楚下一个变种会是什么样，而且他们不能确定奥米炕会造成较轻的症状，目前的疫苗也不能确定有效。
+该基金在中共国和香港的投资还包括腾讯、阿里巴巴、友邦保险 (AIA Group)以及香港交易及结算所有限公司。
 
-波士顿大学传染病流行病学专家里奥纳多·马丁纳说：“奥米炕传播越快，就越有机会发生变异。”
+参议员马绍尔说：“”福奇在向公众公开的财务披露问题上完全不诚实。美国人民一直在上诉要求获得这些信息，福奇必须对所有美国人负责。”
 
-世卫组织总干事谭德塞他希望看到年中全球每个国家有70%的人接种疫苗，目前还有几十个国家的接种率低于25%，有大量未接种疫苗的人是引起变种的因素，明尼苏达大学分子病毒系主任路易斯·曼斯基说，变种是不可避免的。
+福奇是美国联邦政府中收入最高的雇员，据说在2020年的收入就有40多万。福奇在退休后，将每年获得35万美元的退休金。
 
-##### **新闻来源： **[Expect more worrisome variants after omicron, scientists say](https://apnews.com/article/coronavirus-pandemic-science-health-pandemics-dc99bc9f769dd6d7cb669e3d185c6261)
-
-# ** **
+新闻来源：[Report: Anthony Fauci’s $10M 2020 Investment Portfolio Includes Chinese Companies](https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/)
 
  
 
