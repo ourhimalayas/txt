@@ -2,42 +2,24 @@
 ---
 
 
-## 丹麦、荷兰宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
+## 应美国要求，俄罗斯联邦安全局拘留14名黑客
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866216/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-22.png)[图片信息源](https://news.yahoo.co.jp/articles/69984ce21d710382aaa140dc2aaa705db24ecdad#:~:text=%E3%83%88%)
+TBS新闻1月16日报道，俄罗斯情报机构FSB联邦安全局14日宣布，应美国政府的要求FSB已经拘留了14名总部设在俄罗斯的黑客组织REvil的成员。据称，REvil利用一种”勒索软件”对美国及世界各地的公司发起网络攻击。他们在对该据点的搜查中缴获了电脑、大量现金和豪华汽车。
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+据路透社报道，该组织的一名成员去年5月涉嫌参与了对美国最大石油管道网络攻击。
 
+美俄在去年6月的首脑会议后，就网络安全问题展开了讨论。当下，在乌克兰紧张局势加剧的情况下，俄罗斯对美国的这一要求做出了回应。
 
+信息源：
 
-总编/编辑：飞虹
+[ロシア連邦保安局 米要請受けハッカー集団拘束](https://news.yahoo.co.jp/articles/62446b26d3fd516c00c078cf489772d1b896914d#:~:text=%E3%83%88%E3%)
 
-新闻链接：
-
-[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
-
-[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

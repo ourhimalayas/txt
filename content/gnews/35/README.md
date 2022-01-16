@@ -2,22 +2,24 @@
 ---
 
 
-## 美国最高法院对疫苗强制令的裁决意义重大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866155/)
+## 美两党议员提案应对中共垄断稀土资源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月14日的大直播中，针对美国最高法院于13日对拜登政府疫苗强制令的裁决，郭文贵先生表示，这项裁决将彻底扭转全球疫苗局势。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1247.png)
-郭先生说，法治，是美国的核心价值。从美国高等法院做出裁决的这一天开始，大药企、监管机构、强制接种的政府官员等，已被套上了法律的枷锁。在世界范围内，科学家、医学家将率先发起质疑，疫苗受害者将依法捍卫自己的权益，有关疫苗推广与强制接种相关的人员和政策将被重新审视和检验。
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
+该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
 
-郭先生透露，新中国联邦提供了针对此次判决的关键性证据–mRNA疫苗和病毒溯源，以及私人企业主接种疫苗副作用的确凿证据。“以法灭疫”，新中国联邦功不可没。作为“无苗族”的新中国联邦人，也将会成为人类最黑暗时代中的最大赢家。
 
-新闻链接：[2022年1月14日文贵大直播](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+新闻连接：
 
-编辑：Ivy001/雪梨
+[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
+
+总编/编辑：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -27,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

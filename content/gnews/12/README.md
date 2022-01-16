@@ -2,44 +2,46 @@
 ---
 
 
-## 爆料革命要让我们开智明眼辩是非识善恶珍惜今天拥有的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866901/)
+## 憎恨
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1866948/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3bdd187664c47acd55248](https://gtv.org/video/id=61e3bdd187664c47acd55248)
+作者：香草山商业部–秋末的落叶
 
-**郭文贵先生：**话又刚才又说过来，你问这些问题，就中国人到现在，这种灾难的结果怎么办，是吧？说老实话，很多话在直播中真的不能说，但凡你真的在高空中看过昆仑，昆仑山帕米尔高原，七峰一山，八大山脉，喜马拉雅山，你就会真正地明白天地间是有规则的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-18.jpg)
 
-七哥在一个东北那地方，连猪狗都不如的地方——赵家沟，我能跑出来到今天，我每天都感恩，因为我没有忘过过去，我认为我今天即使最烂的生活也比我在那块儿最高的生活还好。我今天那个地方的人，绝大多数人过着还是猪狗不如的日子，就我出生的地方有很多杨改兰（一样）的家庭。
 
-所以说兄弟姐妹们，珍惜今天你拥有的，更重要看清事实。我们是人，我们不是畜生，我们人和畜生的不同（是）我们就有思想，有文明，我们有上天，这就是爆料革命，你要开智、明眼，辩是非、识善恶。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+人世间最凶恶的相处方式是憎恨，念头随情节而起，随时间推移被埋藏，再从相似的情节油然而生。
 
-编辑整理：Jacques；
+汉字中，憎恨是为数不多没有被共产党简体化的两个字，由竖心旁以及一个曾经的曾组成憎，再又一个竖心旁一个艮组成恨。两者在一起显得触目惊心，曾经的事情，就是如今想起来都发怵，而它明明是曾经，却依然影响至今。而艮在汉语中表示僵硬的意思，回忆起曾经的事，发现自己被气的全身僵硬，半天回不过神来，这叫做恨。
 
-字幕文件制作：小满；
+憎恨不仅伤别人，也伤自己。就拿我们在中共受到的教育来说，从小明明是住在附近的一群孩子分到了一个学校上学，最后硬是要分出等级，并且要被区分对待。最后还要一等生去管理二等生和三等生，但是却从来没有人问过为什么二等生和三等生成不了一等生的根本原因是什么。不公平所导致的阶级冲突越来越多，憎恨也越来越多，集中表现在打架斗殴，烟酒缠身，甚至是吸毒，但是所有人都忘了这些人还仅仅是孩子，似乎在中共教育与肮脏的社会背景加持下，我们再也看不到曾经的不打不相识。
 
-视频制作及上传：Cindy；
+当人群习惯了憎恨，也就是更愿意诉诸暴力，阶级斗争从教育演变到了社会职业，与中共教育相融合良好的学生渐渐走向社会主导职业和相应的管理岗位，而反感中共教育的学生被称为劣等生，进入了社会基层，而行业中又分三六九等，还存在着阶级斗争，所以无时无刻只要有人在的地方，就有斗争。哪怕是夫妻之间，也得争一争谁付出的更多，这个家谁说的算。
 
-G-News发布：小满；
+斗争的结果是伤神，伤掉自己的精神，自己的精力，自己的快乐。慢慢的变成了一个战争机器，脱离了战场好像会毫无价值一般的不知所措，慢慢失去了人所应该享有的一切，离追寻天堂的道路也越来越远。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+所以在中共大陆，无一人活的开心。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+但是，却有很奇怪的现象，所有在社交媒体点赞最多的永远是扶植弱势群体的视频。可能是数以十万，甚至可能是数以百万的人，都渴望有好人好事发生，大家都希望一个充满爱的世界就在身边。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+让大家停止憎恨，需要很长的路要走，灭掉红毒的路才刚刚开始。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑/审核/发稿：Bronx Bombers
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**更多资讯，更多关注**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 

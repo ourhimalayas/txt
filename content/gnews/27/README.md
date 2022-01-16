@@ -2,25 +2,39 @@
 ---
 
 
-## 奥密克戎毒株来袭冬奥会在即的北京
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866221/)
+## 马斯克宣布，特斯拉部分商品已支持狗狗币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866489/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-42.png)（图片源自本文链接）
-1月15日共同社北京消息：15日北京市政府宣布，已确认该市海淀区出现一例社区获得性奥密克戎毒株感染病例。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-感染途径不明，过去两周没有离开过北京，也没有与任何感染者有过密切接触，该迹象表明感染可能已经在整个北京蔓延。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CVDZNNYZ7KWB2KZ1BQ7@S.png)图片来源：Bitcoin.com
 
-中共政府在15日的新闻发布会上宣布，13日和14日在上海、广东省的珠海，以及同省的中山，得到报告的中共病毒（新冠病毒Covid-19）感染是奥密克戎毒株。可见感染者有可能涉及的地理范围很广泛。
 
-信息来源：[北京でオミクロン初確認　五輪目前、上海や広東省でも（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a4db086e211da98197e8e6cee2aaed0b5064a91)
+当地时间1月14日，据界面新闻报道，特斯拉董事长马斯克在社交媒体宣布，特斯拉商品将支持加密数字货币（狗狗币）支付。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+当日，在特斯拉北美官网的部分商品已实现狗狗币支付。分别是“Cyberwhistle哨子”、“Cyberquad for Kids儿童摩托”、“Giga Texas Belt Buckle皮带扣”。但是目前特斯拉并不支持使用狗狗币购买汽车产品。
 
+数日前，已有人在特斯拉官网开发者选项中发现了“狗狗币”的代码。
+
+特斯拉官方解释说，狗狗币是一种加密数字货币，且特斯拉强调只支持狗狗币，不支持其余加密货币。一经购买，将不支持退货。
+
+特斯拉一度曾支持比特币支付（购车），但不到两个月的时间，马斯克宣布特斯拉停止使用比特币购买汽车产品。
+
+截至发稿前，狗狗币的价格为0.19美元，单日涨幅约为10%。此前，马斯克曾自称“狗狗币教父”，并表达了对狗狗币的喜爱。
+
+新闻链接：[马斯克宣布特斯拉商品支持狗狗币支付，除了买汽车](https://www.jiemian.com/article/7013627.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

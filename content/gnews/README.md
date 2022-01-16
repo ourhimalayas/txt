@@ -15,116 +15,116 @@
 
 ---
 
-### [战友们受郑州某公司传播病毒的谣言主导会偏离灭共方向](/content/gnews/1/README.md)
+### [农场没有统治没有商业没有交易不会把权力和财富公有化](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/2/README.md)
+### [共产党用驭民五术分区分族奴役人民让人民死不了活不好](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [鹤岗黑龙江和东北多地县市将破产,百姓连老鼠肉都吃不上](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [科学家说继奥米炕之后将有更多令人担忧的变种](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [备好粮油，小心病毒，安度关键时刻](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党用病毒和疫苗制造宵禁状态、抢劫财富和限制流通](/content/gnews/4/README.md)
+### [所谓驰援天津玩的是政治马屁而非真要救天津做核酸检测](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [憎恨](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
+### [澳大利亚移民部长再次取消了德约科维奇的签证](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [中共和俄罗斯在哈萨克事件上既共同对付西方又各打算盘](/content/gnews/6/README.md)
+### [战友们受郑州某公司传播病毒的谣言主导会偏离灭共方向](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
+### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [占六七成世界人口的中亚、东亚牵动美国中国俄罗斯欧洲](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [一定要采法律行动对媒体攻击一定要反击(一)](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [人类战争从宗教战争到民主法治到现在旧世界过渡新世界](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [每日快报：川普最新集会，美国人民 &#8220;想要赢回他们的国家&#8221;](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [爆料革命要让我们开智明眼辩是非识善恶珍惜今天拥有的](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [大直播后记：美联储与喜美元合作](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [中共用商鞅五策使得老百姓无信仰无知幸灾乐祸好坏不分](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [江泽民把中俄塔吉哈建成上合组织本质是流氓抢钱分利益](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [叛国卖国的江泽民朱镕基曾庆红和共产党定我们叛国卖国](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [房企“反腐”：华润置地高管黄涛涉严重违纪违法](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【G时新闻】北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/18/README.md)
- ` G-时新闻`
-
-### [继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/07 文贵直播：哈萨克斯坦事件是共产主义祸害世界的必然（粤语配音）](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/05文贵直播：盖特是改变社交媒体游戏规则的game changer（粤语配音）](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/05文贵直播：习太阳相信死人是其强大的必须和必然（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [疫苗加强针！绝对要避开的理由](/content/gnews/24/README.md)
+### [加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [奥密克戎毒株来袭冬奥会在即的北京](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [应美国要求，俄罗斯联邦安全局拘留14名黑客](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共到底挥霍了多少人民创造的财富](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有错必纠！法国叫停强制佩戴口罩之规定](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美两党议员提案应对中共垄断稀土资源](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [美国务院报告称，中共南海索权不符国际法规定](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [郭文贵先生谈喜马拉雅农场](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [美国最高法院对疫苗强制令的裁决意义重大](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [国家禁止未接种疫苗的人进入办公室](/content/gnews/36/README.md)
+### [备好粮油，小心病毒，安度关键时刻](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [最高法院叫停拜登政府关于企业COVID-19的疫苗强制规定](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [共产党用病毒和疫苗制造宵禁状态、抢劫财富和限制流通](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [憎恨](/content/gnews/12/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共和俄罗斯在哈萨克事件上既共同对付西方又各打算盘](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [占六七成世界人口的中亚、东亚牵动美国中国俄罗斯欧洲](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [一定要采法律行动对媒体攻击一定要反击(一)](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [人类战争从宗教战争到民主法治到现在旧世界过渡新世界](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [每日快报：川普最新集会，美国人民 &#8220;想要赢回他们的国家&#8221;](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [爆料革命要让我们开智明眼辩是非识善恶珍惜今天拥有的](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [大直播后记：美联储与喜美元合作](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [房企“反腐”：华润置地高管黄涛涉严重违纪违法](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【G时新闻】北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/22/README.md)
+ ` G-时新闻`
+
+### [继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/07 文贵直播：哈萨克斯坦事件是共产主义祸害世界的必然（粤语配音）](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：盖特是改变社交媒体游戏规则的game changer（粤语配音）](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：习太阳相信死人是其强大的必须和必然（粤语配音）](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫苗加强针！绝对要避开的理由](/content/gnews/28/README.md)
+ ` 首尔天池农场`
+
+### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奥密克戎毒株来袭冬奥会在即的北京](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [应美国要求，俄罗斯联邦安全局拘留14名黑客](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共到底挥霍了多少人民创造的财富](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有错必纠！法国叫停强制佩戴口罩之规定](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美两党议员提案应对中共垄断稀土资源](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [国家禁止未接种疫苗的人进入办公室](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [政府的施政方针应该是团结全国人民，而不是侮辱人民](/content/gnews/38/README.md)
  ` G-NEWS TAIWAN`
