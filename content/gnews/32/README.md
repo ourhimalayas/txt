@@ -2,24 +2,28 @@
 ---
 
 
-## 郭文贵先生谈喜马拉雅农场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866169/)
+## 美国务院报告称，中共南海索权不符国际法规定
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866191/)
 
-撰稿：香草山农场—雪梨
+撰稿：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1244.png)
-与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
+1月12日，美国国务院发布《海洋界限》分析报告，称中共国在南海的广泛海洋主张，不符合1982年联合国海洋法公约所反映的国际规范，驳回了中共的主张。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1246.png)图片来源：https://images.app.goo.gl/7KXPZYUDx9Dt8MgGA
+此前，中共一直声称对淹没在海平面以下的百余个岛礁拥有主权，并拥有其领海，还划定直线基线，将东沙群岛、西沙群岛、中沙群岛和南沙群岛等4个岛群全部划入。
 
-郭先生说道，爆料革命受天机，喜马拉雅农场将成为人类最主要的文明的基础。
+《海洋界限》是美国国务院海洋和国际环境及科学事务局发布的定期评估报告，以检视世界各国提出的海事主张是否抵触国际法。美国国务院曾在1996年和2014年，两度以中共国的南海主张为题撰写报告。
 
+美国务院表示，中共国主张对南海大部分地区拥有主权或是某种形式的专属管辖权非法，严重破坏国际法规定，并表示支持在南海和全球范围内，基于规则的国际海洋秩序。
 
+新闻链接:
 
-新闻来源：[https://gnews.org/zh-hans/1856873/ https://gtv.org/video/id=61df44f3a6dfdd6031535439](https://gnews.org/zh-hans/1856873/%20https://gtv.org/video/id=61df44f3a6dfdd6031535439)
+[美國務院報告：北京的南海聲索不符國際法規定](https://money.udn.com/money/story/5599/6030027?from=ddd-umaylikenews_money_index)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-总编/编辑：飞虹
+总编: Irene木木
+
+编辑: 飞虹
 
 校正/发稿：浪迹天涯
 
@@ -29,7 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

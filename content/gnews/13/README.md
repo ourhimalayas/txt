@@ -2,50 +2,34 @@
 ---
 
 
-## 江泽民把中国与阿富汗和塔吉克接壤处领土几乎全部卖掉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866652/)
+## 大直播后记：2022年是人类至暗时刻
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1866762/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3acfe87664c47acd54d93](https://gtv.org/video/id=61e3acfe87664c47acd54d93)
+整理：雅典娜速记组 大直播工作组
+编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/01/YZ08_FUI2L_8M5C0DMS4_5.png)图片来源:雅典娜设计组
+背景资料：2022年后开始危机将进一步升级，将有持续低温及大雨，包括欧洲、印度及沙特阿拉伯等多个亚洲国家，并强调能源危机、极端天气、经济动荡、电力短缺、新冠疫情、饥荒及供应链混乱等7大危机同时发威，美国中西部遭30场龙卷风侵袭。
 
-**郭文贵先生：**我告诉你，在帕米尔高原最重要的两个国家：阿富汗和塔吉克斯坦。塔吉克斯坦，兄弟姐妹们，我请问你们四个，随时都可以说话，塔吉克斯坦和中国边境什么关系，你们知道吗？（全场摇头）不知道吧？我告诉你，塔吉克斯坦是唯一一个让你知道什么叫卖国，什么叫叛国的。
+文贵直播：我说，美国疫苗灾难会从年底到明年就是今年的5月份，以前说截止1，2月份，会有法律上行动。我再告诉大家，我不求你们信我们，如果你信新中国联邦，信七哥说的话，5月份以前你能呆在家里就呆在家里，你要真要出去了，给你病毒的不是所谓病毒的带病者，是所有的你认为打了疫苗的人。2022年是人类有史以来，我认为是最黑暗的，很有可能回到侏罗纪时代，回到那个这灾难的时代去啊。你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难，共产党灭亡前的灾难啊，甚至是火战，甚至是战争。 然后你刚才问的那个所谓热毒，这个热毒是共产党的毒，就是整个投毒、疫苗的结果。
 
-2002年当时的江泽民在中华人民共和国《人民日报》上宣布：我邀请塔吉克斯坦总统埃莫马利·拉赫莫诺夫访问中国，我们签署了战略性的合作文件。那帕米尔高原的部分争议土地都解决了，你们去查查去，中国人把28万平方公里的土地99%都给了塔吉克斯坦。
+我觉的现在可以有几个问题吧，在我们可想象之中，但是呢，确实没想到来那么快，就是中共的经济的问题。
 
-你再看1959年、1960年，共产党已经是拿了中国、控制中国10年后，把阿富汗的一边的帕米尔高原的山脉96%全给了阿富汗，这跟印度没有任何关系，跟哈萨克斯坦没有任何关系。然后哈萨克斯坦又拿走了帕米尔高原什么样的土地，你知道吗？
+这个经济的问题，可大家都能想到，就是说像鹤岗这地方，包括现在像吉林好几个地方，辽宁——就东北三省好几个地方是已经完全活不下去了。
 
-我今天告诉大家，很多共产党动不动就给盖上个叛国的帽子，卖国贼，什么叫卖国贼知道吗？首先你生的那个国家或者你宣布你承认的那个国家，你跟那个国家的宪法之间有契约，就像今天青青草原你跟你什么国家，你是哈萨克族还是哈萨克斯坦族还是新疆还是中共，你在宪法下宣言，你是我的祖国，我忠于你。
+还有一个就是大家最近要看到，就是所有全世界就是任何东西你都买不着。这个买不着，现在中共要跟美国之间勾兑，最后一定关税给它减了，就中共活不下去了。这一系列的现象都证明它在亚洲，在美国，在这世界，它自己也知道经济活不下去了。这个没有钱的共产党，它在中国分分钟钟脆断。这是我们绝对是我们现在看到最好的消息之一。
 
-就像草根小哥到日本去，我宣布这个誓言了，我忠于这个国家，我承认这个《宪法》，你背叛了这个《宪法》约束的规则，你就是叫什么，叫叛国！什么叫卖国呀？你有本事，欸Renee，你有什么资格卖国去？你卖啥呀？你卖广东的一个老鳖壳你都卖不起拿不出来。
+第二个就是溯源病毒真相和疫苗危害你一点儿都不用担心。这个世界死的人，还有打过疫苗的危害，还有这些运动员，几百个运动员死亡。就是国内现在就是整个这些网红被共享财富以后，还有音乐界的，现在集体大家不能走穴了，不能赚钱了，他们那个生活的方式现在在改变，导致国内的变态畸形吸毒是灾难级的，这就是社会矛盾爆发的根本点。
 
-卖国是把你承认过、宣誓的国家的资产——国家资产不是个人资产，然后非法地卖给另外一个国家，是吧，这叫卖国。
+后记点评：持续了2年的病毒疫苗灾难，随着大规模人们的死亡，整个世界的经济崩溃，股市暴跌，全球将进入黑暗时期，我们要未雨绸缪提前储备好物资，安全度过这一危难之年。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+资料来源：郭先生GTV和盖特直播视频。
 
-编辑整理：Jacques；
+发布：  tianzhihuan
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,34 +2,46 @@
 ---
 
 
-## 大直播后记：2022年是人类至暗时刻
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1866762/)
+## 中共用商鞅五策使得老百姓无信仰无知幸灾乐祸好坏不分
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866883/)
 
-整理：雅典娜速记组 大直播工作组
-编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/01/YZ08_FUI2L_8M5C0DMS4_5.png)图片来源:雅典娜设计组
-背景资料：2022年后开始危机将进一步升级，将有持续低温及大雨，包括欧洲、印度及沙特阿拉伯等多个亚洲国家，并强调能源危机、极端天气、经济动荡、电力短缺、新冠疫情、饥荒及供应链混乱等7大危机同时发威，美国中西部遭30场龙卷风侵袭。
+G-TV视频链接：[https://gtv.org/video/id=61e3bd6587664c47acd55229](https://gtv.org/video/id=61e3bd6587664c47acd55229)
 
-文贵直播：我说，美国疫苗灾难会从年底到明年就是今年的5月份，以前说截止1，2月份，会有法律上行动。我再告诉大家，我不求你们信我们，如果你信新中国联邦，信七哥说的话，5月份以前你能呆在家里就呆在家里，你要真要出去了，给你病毒的不是所谓病毒的带病者，是所有的你认为打了疫苗的人。2022年是人类有史以来，我认为是最黑暗的，很有可能回到侏罗纪时代，回到那个这灾难的时代去啊。你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难，共产党灭亡前的灾难啊，甚至是火战，甚至是战争。 然后你刚才问的那个所谓热毒，这个热毒是共产党的毒，就是整个投毒、疫苗的结果。
+**郭文贵先生：**《商鞅五策》里面有很多具体手段在我们生活中都能一一找到。当年的商鞅最开始的时候跟孝帝合作的时候，大家要整个要想一想，当时为了纳税，为了管治老百姓，有更下三滥的招儿，它是维护统治者的阶级，就是让一家人孩子和父亲不要住在一起，孩子父亲不住在一起的目的就是让你按家户纳税，你就不能在一起纳税，让你兄弟跟家人不住在一起。就像今天新疆对付新疆人、哈萨人，一模一样的。
 
-我觉的现在可以有几个问题吧，在我们可想象之中，但是呢，确实没想到来那么快，就是中共的经济的问题。
+还有当时商鞅，更惨的事情，就老百姓读书读好的人，老师要报告的，读好的人就是《商鞅五策》你要么就听我的，先为我效力，你不给我效力就杀之！它绝不让你把所谓的“韭菜”长太高变成了“参天大树”，这个今天就和共产党做得一模一样，这就是今天我们看到《商鞅五术》。
 
-这个经济的问题，可大家都能想到，就是说像鹤岗这地方，包括现在像吉林好几个地方，辽宁——就东北三省好几个地方是已经完全活不下去了。
+就中国人现在，你去看看中国去，就最近两天我就跟国内的特别是大连的几个战友，就是看到他们在生活中的那种感觉，只要是有吃的，只要是有东北这个土豆炖豆角，然后再加上肉，绝不再想其他的。隔壁邻居得了病，他比谁都高兴，“他家得我没得”；只要是听说谁被抓了，他从来不认识，一说被抓了人了，不管是好人坏人他都高兴。
 
-还有一个就是大家最近要看到，就是所有全世界就是任何东西你都买不着。这个买不着，现在中共要跟美国之间勾兑，最后一定关税给它减了，就中共活不下去了。这一系列的现象都证明它在亚洲，在美国，在这世界，它自己也知道经济活不下去了。这个没有钱的共产党，它在中国分分钟钟脆断。这是我们绝对是我们现在看到最好的消息之一。
+就是我们这个民族这个国家就到了……你问他新疆人被种族大屠杀，几乎你问任何人，我几乎很少听到国内人说同情或认为不应该杀：“新疆人也该收拾收拾了！” 你一说香港人，“香港人该教育教育了！” 台湾人呢？“台湾人够得瑟了，这卖国嘛”！ 他从来没问过，你有国家吗？他们有资格卖国吗？就咱们这个国家这个民族，没有信仰、无知，真的比猪还可怕！不是任何人，就我们的家人、我们的亲朋好友都这样。
 
-第二个就是溯源病毒真相和疫苗危害你一点儿都不用担心。这个世界死的人，还有打过疫苗的危害，还有这些运动员，几百个运动员死亡。就是国内现在就是整个这些网红被共享财富以后，还有音乐界的，现在集体大家不能走穴了，不能赚钱了，他们那个生活的方式现在在改变，导致国内的变态畸形吸毒是灾难级的，这就是社会矛盾爆发的根本点。
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-后记点评：持续了2年的病毒疫苗灾难，随着大规模人们的死亡，整个世界的经济崩溃，股市暴跌，全球将进入黑暗时期，我们要未雨绸缪提前储备好物资，安全度过这一危难之年。
+编辑整理：Jacques；
 
-资料来源：郭先生GTV和盖特直播视频。
+字幕文件制作：小满；
 
-发布：  tianzhihuan
+视频制作及上传：Cindy；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

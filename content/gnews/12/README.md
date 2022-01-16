@@ -2,107 +2,49 @@
 ---
 
 
-## 文雍漫谈：半百
-` 文雍` [轉載自GNews](https://gnews.org/zh-hans/1866655/)
+## 朱镕基江泽民卖掉国土换来矿权再用UBS和比特币洗钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866796/)
 
-```
-作者：文雍 | 伦敦英喜庄园 Himalaya UK美工/排版/发布：Quana 齐天二圣
-```
+G-TV视频链接：[https://gtv.org/video/id=61e3adcd87664c47acd54dc9](https://gtv.org/video/id=61e3adcd87664c47acd54dc9)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220115-01.jpg)
-《半百》
+**郭文贵先生：**那么2002年的哈萨克斯坦的这个土地交易背后是谁，知道吗？去查查朱镕基跟他谈的啥，我郭文贵我敢在世界任何一个法庭告诉你，朱镕基、江泽民家族在那拿了天大的钱，到今天还在收钱。
 
-身体逐渐安静
+中国老百姓的无知是全人类我没有见过的，他们敢把国家的土地这么卖出去，在那块收着矿而且协议就很简单，永久这个公司拥有这地方矿的开发权。昆仑玉，所谓的和田玉，你们那些傻子们，你见过真的是几吨重的和田玉吗？跟你说，你可能不相信，那个价格全都是江、曾、朱控制的。
 
-灵魂愈发汹涌
+比特币为啥是共产党搞起来的，就是江家搞起来的，它要把“钱”不是“洗白”了，要“洗”“雪白”呀！为什么UBS成为中国第一个外资允许的100%的执照，为什么摩根要拿证劵公司，都是王岐山、江家，它“洗钱”他需要工具呀，它需要“水”需要“池”子呀，洗完放哪儿去。
 
-江南桐叶飘飞入梦
+我告诉大家，如果你不懂得什么叫叛国和卖国，你这一辈子被骂叛国卖国，你就太冤了。你有资格叛国吗，你有资格卖国吗，你算个屁，是吧，你算个屁。当时我在里边儿（大陆）的时候，盖郑州裕达，说我是美国派来的特务，跟一个好莱坞的女人结婚了。
 
-寒夜 一片金黄
+然后是监视郑州的时候。我在郑州有一次被叫去了，他们说：郭文贵人家有人说你是叛国。我说：“是吗？你说我叛哪个国了？”他说：“你还真以为你叛国，你有资格叛国吗？那叛国得是共产党员才叛国，轮到你来说叛国了嘛？”——连一个郑州的一个所谓金水区的检察官、反贪局的副局长都敢说我这话，后来这哥们儿被枪毙了，被注射毒针死了，你可以查他去。一个人贪污两个多亿当年。
 
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
+编辑整理：Jacques；
 
-晨钟叮咚如泉
+字幕文件制作：小满；
 
-鼓角铮鸣如磬
+视频制作及上传：Cindy；
 
-寒鸦不慎染上了初心
+G-News发布：小满；
 
-庙堂成了干戈的起点
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-冬的深处 寒梅涉雪
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-旷野赤裸胸膛
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-竣风涤荡
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-相思无处可藏
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-冷月渐满
-
-鱼肠剑沾着鹤顶红
-
-于历史深处 闪着寒光
-
-故事冗长 一边凋零 一边生长
-
-
-
-丰茂难填的悲凉里
-
-透出岁月的万孔千疮
-
-想挽起些什么
-
-却遗漏了一地月光
-
-
-
-借一壶浊酒
-
-试图为泪水溯源
-
-却在接近滂沱时
-
-戛然而止
-
-
-![此图像的alt属性为空；文件名为67d79ae9-90be-4fe9-b19e-37e8c9e419a9.png](https://assets.gnews.org/wp-content/uploads/2021/09/67d79ae9-90be-4fe9-b19e-37e8c9e419a9.png)
-本文仅代表作者观点，与 Gnews 平台无关。
-
-
-```
-阅读更多【文雍漫谈】专栏相关文章：
-文雍漫谈：一种被打了毒疫苗的审美
-文雍漫谈：这一年 我们仍要穿过谎言去拥抱亲人
-文雍漫谈：中共毒计成笑话 赔了贝贝又折兵
-文雍漫谈：杨贝贝的七宗罪
-文雍漫谈：当告密成为一种被鼓励的行为模式
-文雍漫谈：一种突破底线的无耻
-文雍漫谈：见证
-文雍漫谈：天良丧尽是统治者的通行证 礼义廉耻是穷苦人的墓志铭
-文雍漫谈：塔西佗陷阱的底部是沼泽
-文雍漫谈：在选择与努力之间
-文雍漫谈：他们为什么要让人民比丑
-文雍漫谈：心声
-文雍漫谈：没有什么能够阻挡我们对自由的向往
-文雍漫谈：国家信用 货币 与新世界秩序
-文雍漫谈：一场游戏一场梦
-文雍漫谈：一种超越国家意志的信仰——正道主义
-文雍漫谈：从希波克拉底誓言到罗马宣言
-文雍漫谈：破茧而出
-
-
-或使用 gnews 搜索「文雍」阅读更多
-```
-
-搜索
-搜索
-![此图像的alt属性为空；文件名为d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg](https://assets.gnews.org/wp-content/uploads/2021/04/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

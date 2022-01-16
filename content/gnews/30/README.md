@@ -2,28 +2,24 @@
 ---
 
 
-## 丹麦、荷兰宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
+## 美两党议员提案应对中共垄断稀土资源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
-
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
+该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
 
 
+
+新闻连接：
+
+[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
 
 总编/编辑：飞虹
-
-新闻链接：
-
-[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
-
-[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
 校正/发稿：浪迹天涯
 
@@ -34,10 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
