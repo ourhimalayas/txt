@@ -2,21 +2,31 @@
 ---
 
 
-## 七哥金句
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865093/)
+## 扬帆每日速递 2022年1月15日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865133/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、香港中文大学表示，将在校园推广《基本法》和国安教育，以加强学生对国家的归属感。获得相关学术批准后，于2022学年推出。
 
-绝对的网络，绝对的思想控制和资源控 制让老百姓准备好当牛做马，远离时尚和物质生活的时代，不可控的因素全部要干掉。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句-.jpg)
-发布：tianzhihuan
+2、内地媒体昨日爆出，贵州茅台酒销售有限公司董事兼总经理曾祥彬于2021年12月7日从仁怀市自家4楼窗台处坠楼身亡，年仅49岁。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3、中共国当地监管机构和官方媒体渲染沃尔玛公司去年支付了大约50000美元的罚款的消息，使得在这家美国零售商在北京和华盛顿之间的政治紧张局势加剧之际成为了人们关注的焦点。
+
+4、中共国在2017年公布了一项在西藏自治区边境地区建设600多个村庄的计划。而现在它正在扩大在与不丹有争议的边界沿线建立定居点。此举可能加剧与包括印度在内的邻国的紧张关系。
+
+5、据文贵大直播：北京最起码抓了四个正厅级干部，黑龙江抓了两家，审孙力军案子的人被抓，《零容忍》制作组的几个人被抓。
+
+6、据文贵大直播：美联储接受跟私人稳定币合作，喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则，而且把新中国联邦紧紧跟全世界人民连在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-15海报1_page-0001.jpg)
+**加拿大温哥华扬帆农场 海报组**
+
+素材提供战友：从来多难不兴邦、Revelation熙攘、Shuang、文敏
+
+海报图片设计：飞天面、 Shuang
+
+编辑：文敏
+
+发布：风起云间（文敏）
 
  
 

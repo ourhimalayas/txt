@@ -2,26 +2,36 @@
 ---
 
 
-## 此地无银三百两，“中国士兵没人冻死” 胡锡进“跳脚”印度主编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865222/)
+## 喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865274/)
 
-撰稿/配图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20.png)
-看中国2022年1月14日讯，自2020年中印边界爆发流血冲突酿死伤事件后，关于中印动态一直收到瞩目。近日中共大外宣代言人胡锡进与印媒《今日印度》（India Today）主编阿鲁尔（Shiv Aroor）隔空对呛，原因是阿鲁尔稍早对在拉克达高原冻死的中方士兵家属致哀，但胡锡进则痛批此为“造谣”，阿鲁尔随后狠狠回呛胡锡进。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+美国媒体1月13日消息，喜剧演员罗布·施耐德最近入驻盖特。该演员自担任《周六夜现场》演员以来，一直在推动反中共病毒疫苗强制接种活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1230.png)
+尽管罗布的推特账号并未被封锁，但他依然加入了盖特。盖特 CEO 杰森·米勒盛赞这位喜剧演员是“绝对传奇”，并称盖特已为他铺好了红地毯。
 
-阿鲁尔1月10日在推特发文，呼吁在推特上不断批评印度政治的胡锡进，对1月2日至3日拉克达高原冻死的中共士兵家属致哀。胡锡进则于12日回呛，中共士兵在极端寒冷的天气有可靠的装备保暖，他们不可能冻死，同时呛阿鲁尔在发文前要查证信息。
+最近，美国有大量保守派人士加入，因为他们感受到推特等大科技社交媒体对他们的不公平歧视。
 
-到1月13日，胡锡进再发贴称，“我从‘权威人士’那里了解到，1月2日至3日，中印边境地区没有因极端寒冷天气而造成中共士兵伤亡”，他痛批，《今日印度》主编阿鲁尔等人传出假消息“造谣”。对此，阿鲁尔回应说，胡锡进所谓的“权威人士”，可能就是先前告诉胡锡进在中印加勒万河谷冲突中中方士兵仅有5人伤亡的人。阿鲁尔并指，在寒冷天气中有人死亡并不罕见，“请尊重自家的士兵，照顾伤亡、失踪者的家属”。阿鲁尔还以中文简体字写道，“浪费在‘谣言’上的时间，最好花在关心1月2日至3日在寒冷中死去的解放军士兵的家属上”。
+总编：童谣
 
-实力不足，本事不够“嘴来补”，这是中共深谙多年的制胜法宝。辟谣一直是中共的重中之重，其实辟的是对他自己不利的“凶兆”，说的全是谎言。中共的外交辞令全然不分真假，不管对错，只有政治正确与否，政治正确是衡量说辞好坏的最高标准。功利性是中共行事的一切指导原则。要想真正读懂中共的外交辞令不了解中共的外交站略战术，以有信仰的正常人的思维模式来度量中共，只能是徒惘然！！！
+编辑：飞虹
 
-消息来源：
+新闻来源： [Gettr Is Rolling Out the Red Carpet for ‘Absolute Legend’ Comedian Rob Schneider](https://www.newsweek.com/gettr-rolling-out-red-carpet-absolute-legend-comedian-rob-schneider-1669278)
 
-[中国士兵没人冻死？胡锡进辟谣 印度主编狠狠回呛(图)](https://m.secretchina.com/news/gb/2022/01/14/995072.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

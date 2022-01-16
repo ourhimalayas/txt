@@ -2,23 +2,42 @@
 ---
 
 
-## 七哥对坚持的理解（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865082/)
+## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+加拿大温哥华扬帆农场：Jamie\_Luffy
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
+图片来源：
 
-七哥能在坐在这儿直播爆料，你们没有感受到一个人每天直播而且不准备，而且一群共产党在法律上盯着你，我的六七个律师说错了都跟你没完，讲错了话，是要负法律责任的。然后外面是抗议强奸犯，滚回中国去，伊莎贝拉杨这样的人。马睿，吴峥，钥匙兰，杰克马，美国的斯蒂芬温，美国的大佬，世界的围堵，七哥和爆料革命真的就像千军万马中的一 个人，拿着一把枪，带着一张嘴就在这儿拼四五年，而且天天都能拼出这种激情。大家去试试去。你6周都坚持不下来一件事儿。我看到很多GTV上有直播的健身的，巴黎大牛还在锻炼，很多战友曾经出来直播健身有几个坚持十天的？你认为七哥我们是同心同框的直播，你看看具体的热点节 目，有多少人一直坚持下来的？
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
 
-我从小坚信一句话，我只要坚持持之以恒，我就不相信会有磕不下来的事 儿。你们没想到七哥讲英文有多难？我40年，我没把英文学会，而且我身边全是讲英文的。我这一生最失败的就是语言没学好。但是从爆料革命开始，创建了郭氏英文。持之以恒。灭共这件事儿就关键你信不信，关键你干不干到底。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对坚持的理解.003.jpeg)
-发布：tianzhihuan
+就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
+
+加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
+
+在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
+
+(本文仅代表作者观点)
+
+参考链接：
+
+[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+
+[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
+
+[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
+
+[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
+
+
+
+> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
+
+
+
+审核：文敏   发布： 天予
 
  
 

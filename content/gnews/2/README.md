@@ -2,35 +2,123 @@
 ---
 
 
-## 【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1865385/)
+## 新中国联邦的蝴蝶效应 加上VICE宣传与反宣传：这逆增上缘的力量太大了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1865428/)
 
-**撰稿：Grace**
+[https://gtv.org/video/id=61e0aa3887664c47acd44ea0](https://gtv.org/video/id=61e0aa3887664c47acd44ea0)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-8.12.08-PM.jpeg)图片来源：thepostmillennial
-据《福克斯新闻》1月15日报道，美国弗吉尼亚州（Virginia）的新州长格伦·杨金(Glenn Youngkin)在上任的第一天就签署了11项行政命令，包括停止在学校使用 “关键种族理论” (Critical Race Theory)，调查官员在劳登县(Loudoun County)的所谓不当行为，以及允许家长决定他们的孩子是否在学校戴口罩。
+**郭文贵
+Miles Guo**
 
-1月15日，杨金在弗吉尼亚州宣誓成为联邦第74任州长后，在一份新闻稿中宣布了这些行政命令的清单，他是2009年以来当选的第一位共和党州长。
+本来共产党在冬奥会之前，你看啊，把郭文贵的心给他虐了
+The CCP was planned to abusing Miles Guo’s heart before the Winter Olympics
 
-该州长签署了的九项行政命令，涉及以下问题：
+埋下郭文贵的风水印, 把郭文贵给干掉
+buryed Miles Guo’s Feng Shui mark to destroy him,
 
-- 通过停止在公共教育中使用包括批判种族理论在内的分裂性概念，恢复教育的卓越性。
-- 通过允许父母对其子女是否在学校戴口罩做出决定，赋予弗吉尼亚州父母在其子女教育和培养方面的权力。
-- 恢复弗吉尼亚州联邦假释委员会（Parole Board of the Commonwealth of Virginia）的诚信和信心。
-- 调查劳登县的不法行为。
-- 通过设立联邦首席转型官（Commonwealth Chief Transformation Officer），使政府为弗吉尼亚人服务。
-- 宣布弗吉尼亚州对商业开放。
-- 打击和预防人口贩运，为幸存者提供支持。
-- 成立一个委员会来打击反犹太主义。
-- 退出区域温室气体倡议（RGGI）。
+把龙头变成了龟头
+turned the dragon-head design into a turtle head
 
+把裕达的佛手给弄走
+toke away Yuda’s Buddha-hand
 
-除行政命令外，杨金还签署了两项行政指令：将 “削减25%的工作条例”，并取消对州政府雇员的中共病毒COVIC-19疫苗的强制规定。
+整个杨贝贝让西方世界震撼了
+The whole entire story of Isobel Yeung’s (interview) has shocked the Western world
 
-有关劳登县不法行为的行政命令是在该学区在竞选期间获得全国关注之后发布的，该学区逮捕了一名14岁的男性高中生，被认定在学校浴室强奸一名女学生。该学生被转到另一所学校，据称他在那里强奸了另一名学生，该区被指控掩盖了这一罪行，导致受害者的一名家长在一次学校董事会会议上被逮捕。作为判决的一部分，这名犯罪学生已被列入性犯罪者登记册，终身监禁。
+没人干过这个事，咱干了
+No one has done this (accept the interview invitation under fully aware that it’s a trap) before, but we did it
 
-**新闻来源：**[Virginia Gov. Youngkin’s day-one executive orders include investigating Loudon County officials, CRT ban](https://www.foxnews.com/politics/virginia-younkin-signs-executive-actions-banning-crt-investigate-loudon-county)
+这个宣传还有反宣传，这个真相力量太大了
+The power of this propaganda, counter-propaganda, and the truth is incredible
+
+咱说没用，人家说没用
+What we said is useless, and what they said is useless either
+
+第三方会说明白的
+The third party will explain
+
+班农先生，你知道战斗室后面有个鹰, 是吧？
+You are aware that there is a painting of an eagle behind Mr. Bannon in the War Room, right?
+
+我这面一蝴蝶
+And I have a butterfly painting here
+
+七哥没有放狮子, 没有放什么鹰
+I did not hang the painting of lion, nor eagle
+
+那都是动物，都很具象的，我们是个蝴蝶的力量
+All those are animals with concrete power, but we have the power of the butterfly
+
+蝴蝶的力量是什么呀？大家知道叫蝴蝶效应
+What is the power of the butterfly? Everyone knows that’s called the Butterfly Effect
+
+远在大西洋那个蝴蝶的抖动可能改变气候甚至地球的轨迹
+The fluttering of the butterfly far away in the Atlantic Ocean may change the climate and even the locus of the earth
+
+我们相信蝴蝶的力量, 不相信狮子和鹰的那个力量
+We believe in the power of the butterfly but not the power of the lion or the eagle
+
+咔, 像班农那样是吧
+It would be stuck, just like Bannon’s situation
+
+但是我们能跟他合作
+But we can cooperate with him
+
+我们蝴蝶吃啥呀？蝴蝶不吃肉的，不杀生的
+What do our butterflies eat? Butterflies don’t eat meat and don’t kill
+
+但是蝴蝶是整个大宇宙当中被公认的的力量一种神秘的、美丽的、没有侵略的和平
+But the butterfly is recognized as a mysterious, beautiful, non-aggressive, and peaceful power in the entire universe,
+
+甚至大自然磁场效应今天所说的
+even the magnetic field effect of nature that we have talked today,
+
+量子电脑的量子的分子，PH值和量子的NH值达250等级数的
+the quantum molecules of quantum computers, the PH value, and quantum NH value which reach 250 grade levels
+
+哇噻，这是什么概念？
+Wow, what concept is this?
+
+昨天，你看看华盛顿做的决定，纽约做的决定
+Take a look at the decisions made in Washington and New York yesterday
+
+我的老天爷呀，小孩必须打疫苗, 出去上厕所你都得有
+My goodness, children must be vaccinated, even to the lavatory, you must have a vaccine certificate
+
+你知道昨天华盛顿, 你去看看华盛顿到了什么情况, 你看曼哈顿到什么情况了？
+You know that Washington yesterday, go to see what happened there, and what happened in Manhattan
+
+我们战友都跟我单独联系
+Our comrades contacted me individually
+
+都在背后，每天都在救人，都在行动中
+All of them are in action, saving people every day
+
+我们每个人都在执行着秘密的任务，都在拯救着天下
+Each one of us is performing a secret mission and saving the world
+
+你去想想这个画面，你想想啊
+just imagine how awesome these images are
+
+* * *
+
+Date: 01/03/2022
+原视频标题: 新中国联邦的蝴蝶效应 加上VICE宣传与反宣传 这逆增上缘的力量太大了
+The Butterfly Effect of The New Federal State of China Coupled With VICE Propaganda And Counter-propaganda Have Created Unmeasurable Power
+原视频日期：2022/01/01
+原视频链接: [https://gettr.com/post/plq9wq676b](https://gettr.com/post/plq9wq676b)
+任务编号：3409
+视频时间段 : 0:00-01:59
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

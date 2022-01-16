@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864980/)
+## 华中师大毕业生就业报告直指高校就业数据的猫腻
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1865100/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
+【**国内新闻短评**】
 
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
+**据搜狐网2022年01月10日报道，华中师范大学发布了2021年应届毕业生就业报告，截止到2021年8月31日，普通师范生实际就业率只有38.87%。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/weo-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/11111-.jpg)**图片来源： 搜狐**
+**短评：**
 
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
+**中共以假治国渗透到各个行业，每个墙内人都自愿或者被迫地卷入其中，最后这些假数据坑害的是强国百姓自己。**
 
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
+**老百姓为子女投资最大的高等教育也不会例外。华中师范大学的就业数据狠狠打脸那些高唱中共经济繁荣昌盛的媒体和红粉。那些没有编制的普通师范生就业率不到四成。对比前几天出炉的清华毕业生近七成进入体制，华中师大的数据更加触目惊心。**
 
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
+**对比强国和欧美等国家就会发现，别国毕业生就业率会因经济形势而有所起伏，而强国数据却异常平稳，常年恒定在85%-90%之间。这就形成一个悖论，经济状况很差，新闻中经常是本科生毕业就失业的报道，但毕业生就业率却居高不下，里面的很多猫腻不为人知**。
 
-文字版原文：[共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](https://gnews.org/zh-hans/1861173/)
+**首先，毕业生“被就业”成为家常便饭。临近毕业，各高校院系会广开门路帮本科生找实习，不管最后是否录用，学生均被定义成就业，使得整体就业率虚高。其次，考研、专升本和出国留学也是“就业”。这种操作在高校人尽皆知，华师大就业报告可以得到充分展现，2022年硕士报考率达到史上新高，可以预见本科生今年就业前景一片黯淡。再次，就业率“掺水”，为了领导政绩，高校会伪造就业协议和合同造成就业形势一片大好的假象。此外，自主创业和自由职业，对于很多普通高校毕业生就是回家躺平，只要出示一定证明，就可以算作就业。**
 
-音频处理：Fei797
-发稿：Fei797
+**华中师大选择发布“老实”数据的原因不得而知，但是至少让很多家长和毕业生头脑冷静下来 ，思考毕业出路的真相，有所醒悟。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**声明**：**文章观点仅代表作者个人，与gnews平台无关**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**链接：**[https://www.sohu.com/a/515563759\_100279024](https://www.sohu.com/a/515563759_100279024)
 
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

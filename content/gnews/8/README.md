@@ -2,36 +2,36 @@
 ---
 
 
-## 美最高法院阻止企业疫苗强制令 同意医护强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865309/)
+## 【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1865385/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1233.png)
-此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
+**撰稿：Grace**
 
-然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-15-at-8.12.08-PM.jpeg)图片来源：thepostmillennial
+据《福克斯新闻》1月15日报道，美国弗吉尼亚州（Virginia）的新州长格伦·杨金(Glenn Youngkin)在上任的第一天就签署了11项行政命令，包括停止在学校使用 “关键种族理论” (Critical Race Theory)，调查官员在劳登县(Loudoun County)的所谓不当行为，以及允许家长决定他们的孩子是否在学校戴口罩。
+
+1月15日，杨金在弗吉尼亚州宣誓成为联邦第74任州长后，在一份新闻稿中宣布了这些行政命令的清单，他是2009年以来当选的第一位共和党州长。
+
+该州长签署了的九项行政命令，涉及以下问题：
+
+- 通过停止在公共教育中使用包括批判种族理论在内的分裂性概念，恢复教育的卓越性。
+- 通过允许父母对其子女是否在学校戴口罩做出决定，赋予弗吉尼亚州父母在其子女教育和培养方面的权力。
+- 恢复弗吉尼亚州联邦假释委员会（Parole Board of the Commonwealth of Virginia）的诚信和信心。
+- 调查劳登县的不法行为。
+- 通过设立联邦首席转型官（Commonwealth Chief Transformation Officer），使政府为弗吉尼亚人服务。
+- 宣布弗吉尼亚州对商业开放。
+- 打击和预防人口贩运，为幸存者提供支持。
+- 成立一个委员会来打击反犹太主义。
+- 退出区域温室气体倡议（RGGI）。
 
 
+除行政命令外，杨金还签署了两项行政指令：将 “削减25%的工作条例”，并取消对州政府雇员的中共病毒COVIC-19疫苗的强制规定。
 
-总编：Ivy001
+有关劳登县不法行为的行政命令是在该学区在竞选期间获得全国关注之后发布的，该学区逮捕了一名14岁的男性高中生，被认定在学校浴室强奸一名女学生。该学生被转到另一所学校，据称他在那里强奸了另一名学生，该区被指控掩盖了这一罪行，导致受害者的一名家长在一次学校董事会会议上被逮捕。作为判决的一部分，这名犯罪学生已被列入性犯罪者登记册，终身监禁。
 
-编辑：Lakeman文仁
+**新闻来源：**[Virginia Gov. Youngkin’s day-one executive orders include investigating Loudon County officials, CRT ban](https://www.foxnews.com/politics/virginia-younkin-signs-executive-actions-banning-crt-investigate-loudon-county)
 
-新闻链接：[Supreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

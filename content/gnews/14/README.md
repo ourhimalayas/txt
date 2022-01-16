@@ -2,39 +2,36 @@
 ---
 
 
-## 文贵先生盖特精要2022/01/15
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1865279/)
+## 美最高法院阻止企业疫苗强制令 同意医护强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865309/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1227.png)盖特直播链接
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1233.png)
+此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
 
-现在病毒的传染力真是太厉害了，离每个人都很近，我现在收到了来自世界各地战友被染上病的消息，有的因为去超市上厕所时摘了会儿口罩，有的是因为在外面抽烟时摘了会儿口罩…… 所以要再次提醒大家务必小心，尽量不要犯这些低级错误，能少出门则少出门。不会染病的话，就不需要麻烦他人了。但话说回来，越是这个时候，新中国联邦各个农场的作用和意义就越是要显现出来，对战友们的医药、信息咨询、救助就越要跟上，不能放下一个战友，也不能忘记任何一位战友。这是考验我们战友情的时候。这是对我们各个农场团队协作、执行力，新中国联邦力量的一次重大考验。
-
-因为现在各国工会因为疫苗的问题要准备罢工，一些物资价格可能会暴涨，会有物资滞留，所以大家真地要备一点生活基本物资了，例如：油、面、盐等。希望战友们都认真对待。
-
-看看二战的那些纪录片，天上的太阳照常升起落下，田里的庄稼继续生长着、收获着，但战乱就在旁边轰轰隆隆地进行着…… 当年西班牙病毒大流行期间，英国当年发生鼠疫期间，阳光下，一片一片的人死去…… 这些历史并不遥远，我们新中国联邦人要记住这些并以警惕，做好防护。大家千万不能染上病，这是七哥现在最强烈的感受。拜托了，请多加小心！
-
-*听写：阿甘*
-*校对：小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
 
 
 
+总编：Ivy001
 
+编辑：Lakeman文仁
 
+新闻链接：[Supreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
+校正/发稿：浪迹天涯
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

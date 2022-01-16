@@ -2,23 +2,36 @@
 ---
 
 
-## 雅典娜时报-第173期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1865235/)
+## 保罗参议员指出福奇就是疫情问题的一部分
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865300/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+撰稿/新闻采集：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，美国参议员兰德·保罗参议员接受福克斯采访时，称在12日卫生委员会举行的听证会上，虽然很多议员都对福奇等官员制定并屡次修订防疫准则手册造成的混乱表达了批评，但只有个别议员触碰到了问题的核心，也就是福奇本身。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1232.png)
+保罗列出了关于福奇的三大问题：首先，福奇推崇过度的病毒检测，造成美国历史上首次让健康人大排长龙等待检测，并造成目前的检测设备和人员的短缺。其次，福奇将疫情问题个人化，一边拿着政府的40万美金的年薪，一边诋毁、打压那些质疑它的科学家。最后，福奇从一开始就帮助掩盖病毒来自武毒所的事实，并将提出质疑的人士打成阴谋论者。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/829864694670950410/932053758731513986/155-1.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/829864694670950410/932053759188697128/155_1.png?width=910&amp;height=1355)
-*发布：陶子*
+保罗参议员总结道，以上事实证明，福奇是一位有政治倾向的政客，它本来就没资格成为越过政治领导美国对抗疫情的人士。相反，福奇本人已经成为疫情问题的一部分。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：
 
+[https://www.gettr.com/post/po12vu10e8](https://www.gettr.com/post/po12vu10e8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+
+总编：文特
+
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,36 @@
 ---
 
 
-## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
+## 【中日财经爆】中共加强商票监管 试图缓解金融暴雷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865213/)
 
-加拿大温哥华扬帆农场：Jamie\_Luffy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
-图片来源：
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.png)[图片来源](https://www.rzline.com/IndustryNewsDetail.html?14565)
+1月14日，中共人民银行、银保监会发布《商业汇票承兑、贴现与再贴现管理办法（征求意见稿）》（下称“征求意见稿”），对早在1997年颁布的《商业汇票承兑、贴现与再贴现管理暂行办法》（下称《办法》）进行修订。
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+《办法》修订稿包括总则、承兑、贴现和再贴现、风险控制、信息披露、监督管理、法律责任和附则，共八章四十二条。主要内容包括：
 
-就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
+一是明确承兑和贴现资质要求。承兑、贴现应具备相应的资质和符合监管要求。承兑人应经营和财务状况良好，具备到期付款能力。持票人申请贴现，应具有真实交易关系。
 
-目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
+二是加强风险防控。银行承兑汇票和财务公司承兑汇票的最高承兑余额不得超过该承兑人总资产的15%，保证金余额不得超过承兑人存款规模的10%。
 
-加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
+三是缩短最长付款期限。商业汇票的付款期限自出票日起至到期日止，最长不得超过6个月。
 
-在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
+概况起来，征求意见稿的核心就两点，一是控制总量，二是控制期限。
 
-(本文仅代表作者观点)
+长期以来，商业票据已严重偏离了企业融资渠道这个主要功能，逐渐演变成了企业信用扩张、传导债务，甚至成为套取银行资金的工具。
 
-参考链接：
+郭文贵先生之前多次爆料，单一个民生银行的票据黑洞就高达万亿规模，更不用提其他的商业银行、城（农）商行。加之，2021年以来的房地产行业的接续暴雷，因商业汇票无法兑付所波及的金融机构和企业众多。
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+中共修订“商业汇票管理办法”试图缓解金融和企业暴雷，或将是徒劳。
 
-[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
+信息来源：
 
-[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
+[商票监管补短板，划定了这些红线|商业银行|存款|央行](https://www.163.com/dy/article/GTN0FOAR0519DDQ2.html)
 
-[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
-
-
-
-> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
-
-
-
-审核：文敏   发布： 天予
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
