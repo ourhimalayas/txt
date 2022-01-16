@@ -2,41 +2,28 @@
 ---
 
 
-## 亚利桑那州长候选人称她若当选会把福奇关起来
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1868460/)
+## 科学家警告CCP病毒或存在更多变异类型
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1868557/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C-2.jpg)assemercato.com
-周六（1月15日）川普前总统在亚利桑那州佛罗伦萨（Florence）城举行了2022年的首次集会，作为集会议程的一部分，获得川普背书的、亚利桑那州长候选人卡莉·莱克（Kari Lake）也作了演讲，称“如果我当选，我要把那个说谎的福奇关起来……每次他开口，我的测谎仪就会作响。”
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011503-1.jpg)图片制作：澳喜农场
 
-来自《门道专家》的报道：
 
-川普支持亚利桑那州州长候选人卡莉·莱克周六（1月15日）晚在佛罗伦萨城的川普集会上发表演讲。
+科学家警告，Omicron 的迅猛发展正在确保它不会是让世界担心的最后一个冠状病毒版本。
 
-卡莉今晚有了自己的理念，她体现了新共和党的勇敢、魅力和勇气。
+每一次感染都为病毒提供了变异的机会，而 Omicron 比其前身具有更多优势，它的传播速度更快，同时完成疫苗接种也无法遏制它在社群出现大面积爆发。这意味着该病毒可以在更多的人身上得到进化的机会。
 
-卡莉：我们这些人再也不愿意为了谋生或送孩子上学而忍受臂膀上的接种，鼻子内的拭子和脸上的肮脏的口罩了，该结束了，不要这些！……当我成为你们的州长时，就不会有这些行政令和封锁。实际上，让我稍作一下修正，（那就是）我想把某人关起来，就是那个骗子福奇！
+专家们不知道下一个变种会是什么样子，也不知道它们会如何影响大流行，但他们表示：无法保证下一个版本的CCP病毒毒性就一定降低，CCP病毒疫苗对其或许也难以奏效。
 
-人群：把他关起来！……把他关起来！……把他关起来！……
+自 11 月中旬出现以来，Omicron 已像大火烧过干草席一般扩散至全球。研究表明，该变种的传染性至少是 Delta 病毒的两倍，至少是原始病毒的四倍。世界卫生组织报告了 1 月 3 日至 9 日这一周的创纪录的 1500 万例新的 COVID-19 病例，比前一周增加了 55%。
 
-卡莉：那家伙不说实话，我不知道你们大家有什么样的体会，每次他开口，我的测谎仪就会疯狂作响！
+除了使相对健康的人无法工作和上学之外，该变体传播的高效程度也增加了病毒感染并在免疫系统较弱的人体内滞留的可能性，从而使其有更多时间发展出有效的突变。
 
-卡莉·莱克真给力！
+由于 Omicron 引起的疾病似乎没有 Delta 严重，因此部分人认为它可能成为最终会像普通感冒一样朝逐渐温和的趋势发展。不过专家人仍旧表示，病毒并不总是随着时间的推移而变得更加温和。例如，新的变异可以使感染者最初出现轻微症状，通过与他人互动传播病毒，随之病情加重，这样依旧可以完成病毒复制的基本目标。
 
-今夜属于卡莉·莱克，她很出色！
+新闻参考链接：[Expect more worrisome variants after omicron, scientists say](https://www.9news.com.au/health/expect-more-worrisome-variants-after-omicron-scientists-say/251a9755-6231-4a78-865c-01739eab7d37)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-（全文如下）
-
-亚利桑那州的挺川力量正在顽强地推进对2020大选舞弊的揭露，整个进程虽然缓慢（笔者的感觉），但他们仍在坚持不懈。敦促之下的州检察长仍没有对造假舞弊者提起诉讼，受到了包括川普在内等人的指责。前总统川普新年集会的首选地是亚利桑那州，这寓意非凡，亚利桑那人不但要揭露大选舞弊，还要取消对拜登2020窃位的认证，更大的意义在于2022年夺回两院。
-
-新中国联邦人不参与美国两党政治，谁能灭共我们就支持谁。我们期待来自亚利桑那更多更好的消息。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/01/epic-gubernatorial-candidate-kari-lake-az-trump-rally-want-lock-somebody-doctor-fauci-bs-meter-goes-off-every-time-opens-mouth-video/](https://www.thegatewaypundit.com/2022/01/epic-gubernatorial-candidate-kari-lake-az-trump-rally-want-lock-somebody-doctor-fauci-bs-meter-goes-off-every-time-opens-mouth-video/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
 
  
 

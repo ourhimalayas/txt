@@ -2,29 +2,31 @@
 ---
 
 
-## 科学家警告CCP病毒或存在更多变异类型
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1868557/)
+## 有声|美最高法院阻止企业疫苗强制令 同意医护强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868644/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011503-1.jpg)图片制作：澳喜农场
+配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
 
+此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
 
-科学家警告，Omicron 的迅猛发展正在确保它不会是让世界担心的最后一个冠状病毒版本。
+然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
 
-每一次感染都为病毒提供了变异的机会，而 Omicron 比其前身具有更多优势，它的传播速度更快，同时完成疫苗接种也无法遏制它在社群出现大面积爆发。这意味着该病毒可以在更多的人身上得到进化的机会。
+文字版原文：[美最高法院阻止企业疫苗强制令 同意医护强制令](https://gnews.org/zh-hans/1865309/)
 
-专家们不知道下一个变种会是什么样子，也不知道它们会如何影响大流行，但他们表示：无法保证下一个版本的CCP病毒毒性就一定降低，CCP病毒疫苗对其或许也难以奏效。
+音频处理：Fei797
+发稿：Fei797
 
-自 11 月中旬出现以来，Omicron 已像大火烧过干草席一般扩散至全球。研究表明，该变种的传染性至少是 Delta 病毒的两倍，至少是原始病毒的四倍。世界卫生组织报告了 1 月 3 日至 9 日这一周的创纪录的 1500 万例新的 COVID-19 病例，比前一周增加了 55%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-除了使相对健康的人无法工作和上学之外，该变体传播的高效程度也增加了病毒感染并在免疫系统较弱的人体内滞留的可能性，从而使其有更多时间发展出有效的突变。
-
-由于 Omicron 引起的疾病似乎没有 Delta 严重，因此部分人认为它可能成为最终会像普通感冒一样朝逐渐温和的趋势发展。不过专家人仍旧表示，病毒并不总是随着时间的推移而变得更加温和。例如，新的变异可以使感染者最初出现轻微症状，通过与他人互动传播病毒，随之病情加重，这样依旧可以完成病毒复制的基本目标。
-
-新闻参考链接：[Expect more worrisome variants after omicron, scientists say](https://www.9news.com.au/health/expect-more-worrisome-variants-after-omicron-scientists-say/251a9755-6231-4a78-865c-01739eab7d37)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月16日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1868198/)
+## 12/25/2021 中共洗脑令人发指，以“爱国口号“为工具摧残青少年思想的又一铁证
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1868365/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-15.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.16早GTV新闻访谈](https://gtv.org/video/id=61e41d86a0fd8e5c735a581e)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-12.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 
