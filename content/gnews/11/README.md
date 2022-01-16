@@ -2,8 +2,8 @@
 ---
 
 
-## 数字货币和喜币喜联储将彻底改变人类的金融生态系统
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865995/)
+## 政府的施政方针应该是团结全国人民，而不是侮辱人民
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1866059/)
 
 台灣寶島農場
 

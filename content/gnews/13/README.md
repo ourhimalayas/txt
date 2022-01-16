@@ -2,10 +2,12 @@
 ---
 
 
-## 喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865982/)
+## 没有人不相信新中国联邦是合法代表中国的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1866023/)
 
-台灣 寶島農場
+台灣寶島農場
+
+
 
  
 
