@@ -15,131 +15,131 @@
 
 ---
 
-### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/1/README.md)
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/2/README.md)
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [为什么要消灭网红（一）](/content/gnews/3/README.md)
+### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/4/README.md)
+ ` xiaobaige`
+
+### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
+
+### [为什么要消灭网红（一）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [为什么要消灭网红（三）](/content/gnews/4/README.md)
+### [为什么要消灭网红（三）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲人站起来了](/content/gnews/5/README.md)
+### [澳洲人站起来了](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [为什么要消灭网红（二）](/content/gnews/6/README.md)
+### [为什么要消灭网红（二）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥引蛇出洞的意义（二）](/content/gnews/7/README.md)
+### [七哥引蛇出洞的意义（二）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [小飞象四个月获得政治庇护意义](/content/gnews/8/README.md)
+### [小飞象四个月获得政治庇护意义](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥引蛇出洞的意义（一）](/content/gnews/9/README.md)
+### [七哥引蛇出洞的意义（一）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈要包容战友](/content/gnews/10/README.md)
+### [七哥谈要包容战友](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/11/README.md)
+### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|美国务院报告称，中共南海索权不符国际法规定](/content/gnews/12/README.md)
+### [有声|美国务院报告称，中共南海索权不符国际法规定](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生谈喜马拉雅农场](/content/gnews/13/README.md)
+### [有声|郭文贵先生谈喜马拉雅农场](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [七哥谈邪教及伊莎贝尔的邪恶用心](/content/gnews/14/README.md)
+### [七哥谈邪教及伊莎贝尔的邪恶用心](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [七哥三个月之后再次向世界发出预警（一）](/content/gnews/15/README.md)
+### [七哥三个月之后再次向世界发出预警（一）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [有声|新中国联邦让战友们安全地获得财富](/content/gnews/16/README.md)
+### [有声|新中国联邦让战友们安全地获得财富](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [七哥三个月之后再次向世界发出预警（三）](/content/gnews/17/README.md)
+### [七哥三个月之后再次向世界发出预警（三）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [七哥三个月之后再次向世界发出预警（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [有声|欧盟首部防御白皮书直指中共威胁](/content/gnews/19/README.md)
+### [有声|欧盟首部防御白皮书直指中共威胁](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [七哥金句（三）](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/21/README.md)
+### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [缅因州医生因使用伊维菌素治疗COVID患者被吊销医疗执照](/content/gnews/22/README.md)
+### [缅因州医生因使用伊维菌素治疗COVID患者被吊销医疗执照](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线: 又一上市公司受恒大牵连巨亏18亿](/content/gnews/23/README.md)
+### [秘翻在线: 又一上市公司受恒大牵连巨亏18亿](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京发现一宗OMICRON病毒阳性个案，当局启动应急响应](/content/gnews/24/README.md)
+### [北京发现一宗OMICRON病毒阳性个案，当局启动应急响应](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/25/README.md)
+### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/26/README.md)
  ` YALUN 亚伦`
 
-### [扬帆每日速递 2022年1月16日版（1）](/content/gnews/26/README.md)
+### [扬帆每日速递 2022年1月16日版（1）](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [香草山翻译部周刊|2022年1月16日第31期](/content/gnews/27/README.md)
+### [香草山翻译部周刊|2022年1月16日第31期](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [亚利桑那州长候选人称她若当选会把福奇关起来](/content/gnews/28/README.md)
+### [亚利桑那州长候选人称她若当选会把福奇关起来](/content/gnews/29/README.md)
  ` 华盛顿DC-Russian`
 
-### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [新中国联邦辞典横空出世](/content/gnews/30/README.md)
+### [新中国联邦辞典横空出世](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [郭先生再谈奥密克戎病毒](/content/gnews/31/README.md)
+### [郭先生再谈奥密克戎病毒](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/32/README.md)
+### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/33/README.md)
+### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/34/README.md)
  ` 英喜-粵語組`
 
-### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/34/README.md)
+### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点0116](/content/gnews/35/README.md)
+### [DC每日热点0116](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [佛州州长反对OSHA针对美国医护人员的疫苗强制令](/content/gnews/36/README.md)
+### [佛州州长反对OSHA针对美国医护人员的疫苗强制令](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共产党“零容忍反腐”](/content/gnews/37/README.md)
+### [共产党“零容忍反腐”](/content/gnews/38/README.md)
  ` 骄子`
 
-### [立陶宛指小米内建审查,德国监督机构称无证据](/content/gnews/38/README.md)
+### [立陶宛指小米内建审查,德国监督机构称无证据](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本](/content/gnews/39/README.md)
+### [1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本](/content/gnews/40/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/40/README.md)
+### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国需在关键领域和中共脱钩](/content/gnews/41/README.md)
+### [美国需在关键领域和中共脱钩](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/16 银河快讯: 日本内阁支持率大幅上升；美国基金将转让大江户温泉物语控制权](/content/gnews/42/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [上海环球港因疑似疫情被关闭](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

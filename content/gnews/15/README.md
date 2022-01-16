@@ -2,21 +2,36 @@
 ---
 
 
-## 七哥三个月之后再次向世界发出预警（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868913/)
+## 有声|美国务院报告称，中共南海索权不符国际法规定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868941/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，美国国务院发布《海洋界限》分析报告，称中共国在南海的广泛海洋主张，不符合1982年联合国海洋法公约所反映的国际规范，驳回了中共的主张。
 
-今天我们要谈到现在这个中国的这个病毒啊。我之前这一年来告诉全世界， 今年年底共产党会重新放毒，而且会非常的危险，从美国西边到东边，从非洲过来，你说我咋就蒙那么准呢？那是情报，不是蒙的。我再告诉你共产党还会放毒。在Omicron之后，我以为他不会放毒了啊。最近获得了情报，还会放毒。为什么知道吗？最近几天，国内的人党内的人在加大马力的劝说习近平要逮住这个时机干掉美国。中美必有一战。早战比晚战好，既然要战就 战赢他。既然要打就打疼他，决不能给美国这个机会，美国亡我中共之心不死，不管咱干啥，他都要亡咱，那不如咱把他亡了。杨洁您啊。王毅呀， 军方将领啊，王岐山啊，还有那些中国的所谓的极左派呀。真的很危险，现在这是今天7哥是3个月以来再报的第一次最新的消息啊。听说国家安全委员会又成立了特别关于冠状新型病毒的控制小组。啊，记住这个词，控制小组, 新型冠状病毒控制小组。没说Omicron,你以为是控制让你不传染是吗？他现在是要控制往哪传染，让谁传染。这个成立的（小组）里边是比上一次 所谓武汉这个实验室泄漏处理的那要高得多得多。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（一）-.jpg)
-发布：tianzhihuan
+此前，中共一直声称对淹没在海平面以下的百余个岛礁拥有主权，并拥有其领海，还划定直线基线，将东沙群岛、西沙群岛、中沙群岛和南沙群岛等4个岛群全部划入。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[美国务院报告称，中共南海索权不符国际法规定](https://gnews.org/zh-hans/1866191/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

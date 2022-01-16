@@ -2,36 +2,21 @@
 ---
 
 
-## 有声|郭文贵先生谈喜马拉雅农场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868939/)
+## 七哥谈要包容战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868946/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
+我们现在有一样东西，是从头到尾就抓特务这件事儿。抓特务基本上是共产党埋在我们这个爆料革命一个毒刺。特务进来以后就把小新这样人给打成特务，就让你寒心，让你完全无力招架。他竟然敢说螃蟹是我们战友，那螃蟹当初就是咱战友啊，说的有什么错的呀。 而且螃蟹GTV代码他说也写了（写了没使用），他撒谎他说他写了什么代码，GTV没有一个代码是你螃蟹这个孙子烂仔的。但是曾经他毕竟是战友，我发自内心说我从来没有忘掉过对螃蟹的感激，没有过。 他这样采访中胡说八道，我觉的很可怜，如果要是我，我一定说郭文贵绝对是个共产党最大敌人，（如果那样）这家伙我虽然不喜欢他，但我佩服这个人，就客观，对待敌人要客观。但他竟然说经过两天没吃饭，思考完他（郭文贵）是个骗子，说这么Low的话。 我今天发自内心说我对螃蟹还真的是感谢，虽然没有用他的代码。你说九指妖，路大脑袋给咱的贡献爆料革命多大呀，那路大脑袋是最大的冤大头，玩了两三年给咱传播爆料真的假的也好，传播两三年，最后是啥毛没捞着，房子房子没了，啥也没了，混了一个就是利用爆料革命约了个炮，蛇妖闫来是吧，花了咱几百万块是不是啊，万里约炮嘛，就这么就满足了一下生殖器。这失去多少啊。那么我们今天爆料革命再也不能这样，动不动就抓特务，我真的不开心。我最近有些战友说这个那个是特务，我真的不开心。还有，我不开心不能包容战友，我真的知道，（不包容）有一天你一定会成为我的敌人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈要包容战友-.jpg)
+发布：tianzhihuan
 
-原文链接：[郭文贵先生谈喜马拉雅农场](https://gnews.org/zh-hans/1866169/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
