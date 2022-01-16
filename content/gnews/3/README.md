@@ -2,33 +2,73 @@
 ---
 
 
-## [ 聚焦港澳 ] 从香港的白手套角色谈起
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1868076/)
+## 【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868138/)
 
-撰稿：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-26.jpg)图片来自网络
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-香港有良知的国际关系学者沈旭晖先生在《中共最成功的香港軍火白手套：《七擒七縱七色狼》之後的狄娜》视频中，阐述了香港的白手套角色。
+接：[【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](https://gnews.org/zh-hans/1868095/)
 
-首先从昔日的香港影星狄娜说起。据她本人回忆，17岁的时候，在泰国拍戏期间，就为中共收集情报。后来她利用香港身份设立香港公司，在二十世纪后期，将军事情报和技术输入到大陆。这对于未入世的中国大陆很重要。同时她也在其他国家设立公司，举办大型文化交流活动，涉猎跨国战略资源，为中共政权，穿针引线。
+6.  Valley Urgent Care的硫酸羟氯喹、伊维菌素疗法的临床治疗效果
 
-狄娜的丈夫是罗宇，曾就职于中共总参谋部装备部空军处，获授大校军衔。他的父亲罗瑞卿是中共开国大将。她的公司帮助中共得到空对空的雷达导弹技术和澳洲公司发射卫星的订单等。值得注意的是，2004年狄娜以高级顾问的身份参与到欧盟的伽利略全球卫星定位系统，该系统是用于抗衡美国的GPS 定位系统。后来，狄娜退出，中共发展自己的北斗星定位系统。
+（1）总共有3,962名轻度COVID-19患者接受Valley Urgent Care紧急护理人员治疗的，在病情发展到中度或重度COVID-19之前，总共有2人住院，占0.05%，零死亡。其中：
 
-接着讲到香港以软实力成为中西文化桥梁，沟通两个不同的世界。香港人把资源增值放进自己的产品里，最后形成了自己的产业。
+接受治疗在方案1的1,585名轻度COVID-19患者中，有1人住院（占0.06%）和0人死亡（0%）。
 
-笔者由香港的桥梁角色想到我们的新中国联邦。G系列像GNEWSˎ G Club ˎGTVˎ G Fashion 和盖特就是让中国了解世界，世界了解中国的平台。比如在盖特，由于有翻译功能，文贵先生盖文下面的留言中英文都有；笔者时不时到一些英文大V下面留言，有时得到点赞和回复。大家通过交流，更好地了解彼此。
+在接受方案2治疗的2,356名轻度COVID-19患者中，有1人住院（0.04%）和0人死亡（0%）。
 
-香港的桥梁角色被中共利用，成了白手套。而新中国联邦的沟通角色是为中国人民带来福利，为世界带来和平。
+有21名患者治疗日期不详，但只接受了轻度COVID-19治疗，未住院或死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_db0d3090-426d-430f-8c6c-16c02706657e_645x657.png)
+
+而在加利福尼亚州帝王县的其他20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，有4,770人（22.8%）住院，636人死亡（3.0%）。
+
+（2）在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care的中度COVID-19 治疗方法，总共有7人住院，占1.7%，3人死亡，占0.73%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法，最终顺利康复了。其中：
+
+在接受Valley Urgent Care治疗方案1的413 名中度 COVID-19的患者中，有2人住院，占0.5%，零死亡。
+
+在接受Valley Urgent Care治疗方案2的190名中度 COVID-19的患者中，有5人住院，占2.6%，3人死亡，占1.6%。
+
+有1名患者拒绝住院，而是选择Valley Urgent Care门诊重度COVID-19治疗方法，成功康复了。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_b1b1b376-64cc-48d2-bcb4-51a18b5ea913_644x657.png)
+
+（3）汇总数据对比：
+
+在加利福尼亚州帝王县（Imperial County）的20,921名未接受Valley Urgent Care治疗（硫酸羟氯喹、伊维菌素疗法）的COVID-19患者对照组中，有4,770人住院，占22.8%，636人死亡，占3.0%。
+
+而在接受硫酸羟氯喹、伊维菌素疗法的3,962名轻度COVID-19患者，在发展为中度或重度疾病之前，有2人住院，占0.05%，零死亡.
+
+在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care中度COVID-19 治疗方法，总共7人住院，占1.7%，3人死亡，占0.72%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法的患者，康复了。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/s3.amazonaws.com_public_images.png)
+
+整个临床研究过程如下：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Overcoming-the-COVID-19-Darknes-1.jpg)
+
+加利福尼亚州帝王县埃尔森特罗（El Centro, CA）大型专用SARS-CoV-2治疗中心All Valley Urgent Care（AVUC）应用对SARS-CoV-2具有明显抗病毒反应性的硫酸羟氯喹（hydroxychloroquine）、两种抗生素（antibiotics）——阿奇霉素（azithromycin）和强力霉素（doxycycline）、以及包括锌（zinc）、维生素C（vitamin C）、维生素D（vitamin D）等多种维生素包（multivitamin pack）和根据需要加入伊维菌素（ivermectin），并有选择地使用吸入布地奈德（budesonide）、地塞米松（dexamethasone）、泼尼松（prednisone）或其他被认为合适的一种或组合，临床统计结果证明，治疗轻度COVID-19患者的死亡率为0%，住院率为0.05%。用于治疗中度或重度COVID-19患者的死亡率为0.72%，住院率为1.69%。
+
+而该县同期其它20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，住院率为22.8%，636人死亡率为3.0%。
+
+结论：
+
+当患者在的病情发展超过轻度COVID-19之前，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，几乎不存在住院和死亡。
+
+在中度COVID-19疾病状态下，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，也显示出住院和死亡的显著减少。
 
 参考资料：
 
-[中共最成功的香港军火白手套](https://www.youtube.com/watch?v=nR0pdLOI060&amp;t=644s)
+[Overcoming the COVID-19 Darkness: How Two Doctors Successfully Treated 7000 Patients Paperback – January 7, 2022](https://www.amazon.com/Overcoming-COVID-19-Darkness-Successfully-Patients/dp/B09PVNF24K/ref=zg_bsnr_227207_1?_encoding=UTF8&amp;psc=1&amp;refRID=FKAWSZT6BNDGGJM4M5ZF)
 
+[The First Tyson/Fareed Study Text](https://roundingtheearth.substack.com/p/the-first-tysonfareed-study-text)
 
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
 
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

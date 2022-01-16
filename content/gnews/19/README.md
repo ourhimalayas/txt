@@ -2,39 +2,36 @@
 ---
 
 
-## DC每日热点0116
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1867732/)
+## 因停售新疆产品，中共报复沃尔玛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CFB264D3-0B5F-46F7-B748-D0BF8FF4799E-scaled.jpeg)
-道琼斯指数 35911.81 ▼0.56%
-纳斯达克指数 14893.75 ▲2.51%
-WTI纽约原油CFD 84.288 ▲2.64%
-布伦特原油CFD 86.473 ▲0.48%
-标普50指数 2,974.37 ▼46.37%
-美元兑人民币 1USD=6.352 RMB
-美元兑港币 1USD=7.784 HKD
-国际黄金 1817.93美元/盎司
-全球CCP病毒感染人数 327,097,749例
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
+去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
 
-1、朝中边界关闭两年后 首辆朝鲜货物列车进入中共国丹东
-2、美国食品和药物管理局授予2款新冠口服药紧急使用权，即辉瑞的Paxlovid和默沙东的Molnupiravir
-3、汤加海底火山爆发，环太平洋沿岸发海啸警报
-4、当局：225人在哈萨克斯坦的骚乱中死亡
-5、中共国将开始执行与伊朗签署的战略协议，加强两经济和政治合作，北京同时批评华盛顿制裁伊朗
-6、空中不太平，联邦快递向美国监管机构申请安装反导系统对付导弹袭击
-7、美情报发现，俄罗斯启动舆论战为入侵乌克兰制造借口
-8、美国联邦检察官建议撤销针对麻省理工科学家与中共国关系的指控
-9、中共国4艘公务船2022年首次进入尖阁诸岛附近日本领海
-10、哈官方称抗议死亡人数升至225人 前总统多位亲族被免职
-11、沃尔玛遭指伪造产品评论被中共国监管罚款
-12、中共国大量“熔断”美国航班，美国交通运输部称，美国可能采取回应行动
-13、德国：奥密克戎已成主要感染
-14、香港预计下周起 为5至11岁孩童接种新冠疫苗
-15、加拿大外长将访乌克兰 重申抗俄立场
-16、欧盟各国对立陶宛表示声援 法国并承诺将加速反经济胁迫措施的立法
-17、 人权组织敦促沙特阿拉伯不要将两名维吾尔人遣返中共国
+由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
 
+周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
+
+参考链接：
+1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
+2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
