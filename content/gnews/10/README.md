@@ -2,39 +2,34 @@
 ---
 
 
-## 文贵先生盖特精要2022/01/15
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1865279/)
+## 中共病毒疫苗严重不良事件汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865285/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1227.png)盖特直播链接
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+近日一家研究机构提供的数据记录了接种中共病毒疫苗导致的严重健康风险。该项目自2021年6月开始，最近更新时间为2022年1月。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1231.png)
+成人接种中共病毒疫苗发生的不良事件包括：神经系统疾病；月经失调、流产、新生儿先天缺陷；心肌炎、心脏病、心脏骤停；血凝块和中风；严重的皮肤反应；眼部疾病和失明；面部麻痹；带状疱疹和其他病毒重新激活；耳鸣、听力丧失、头晕和眩晕；过敏性休克；肿瘤生长和癌症；阑尾炎等。
 
-现在病毒的传染力真是太厉害了，离每个人都很近，我现在收到了来自世界各地战友被染上病的消息，有的因为去超市上厕所时摘了会儿口罩，有的是因为在外面抽烟时摘了会儿口罩…… 所以要再次提醒大家务必小心，尽量不要犯这些低级错误，能少出门则少出门。不会染病的话，就不需要麻烦他人了。但话说回来，越是这个时候，新中国联邦各个农场的作用和意义就越是要显现出来，对战友们的医药、信息咨询、救助就越要跟上，不能放下一个战友，也不能忘记任何一位战友。这是考验我们战友情的时候。这是对我们各个农场团队协作、执行力，新中国联邦力量的一次重大考验。
-
-因为现在各国工会因为疫苗的问题要准备罢工，一些物资价格可能会暴涨，会有物资滞留，所以大家真地要备一点生活基本物资了，例如：油、面、盐等。希望战友们都认真对待。
-
-看看二战的那些纪录片，天上的太阳照常升起落下，田里的庄稼继续生长着、收获着，但战乱就在旁边轰轰隆隆地进行着…… 当年西班牙病毒大流行期间，英国当年发生鼠疫期间，阳光下，一片一片的人死去…… 这些历史并不遥远，我们新中国联邦人要记住这些并以警惕，做好防护。大家千万不能染上病，这是七哥现在最强烈的感受。拜托了，请多加小心！
-
-*听写：阿甘*
-*校对：小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+儿童接种后出现的健康问题有：严重炎症、心肌炎、血凝块；糖尿病和糖尿病酮症酸中毒；以及其他自身免疫性疾病。
 
 
 
+总编/编辑：童谣
 
+新闻来源：[Covid Vaccine Adverse Events](https://swprs.org/covid-vaccine-adverse-events/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
+校正/发稿：浪迹天涯
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
