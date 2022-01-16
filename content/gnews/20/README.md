@@ -2,41 +2,34 @@
 ---
 
 
-## 丹麦、荷兰宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
+## 中共酷吏孙力军，央视大裤衩电视认罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866362/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+**【雅典娜观察】和您一起探究世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-229.jpg)图片来源：Youtube
+整理报道：Little lamp
+编辑：文泓
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+1月13日，中共国公安部原党委委员、副部长孙力军被提起公诉。检方指控孙力军涉嫌三罪，受贿罪、操纵证券市场罪、非法持有枪支罪。次日，在央视《零容忍》节目中，孙立军公开电视认罪。
 
+公开资料显示，孙力军曾担任公安部一局、二十六局局长，港澳台办公室主任等职务。2018年3月，49岁的孙力军出任公安部副部长，成为当时最年轻的公安部副部长。
 
+孙力军最后一次公开露面是在2020年3月。2020年4月19日，孙力军被查。在2021年9月30日孙被“双开”。
 
-总编/编辑：飞虹
+中共官方文件指出，该案由国家监察委、长春市公安局联手查办；孙力军敛财首站始于“上海市卫生局外事处副处长”；除了受贿罪之外，孙力军还涉嫌操纵证券市场罪、非法持有枪支罪。
 
-新闻链接：
+孙立军作为中共酷吏，他首开当事人电视认罪，也是“灭胡行动”、“雷洋事件”、迫害爆料革命战友等的幕后执行者。今天中共党内习江大战升级之际，习近平“请君入瓮”，对目前中共党内高官们起到了很好的警示作用。
 
-[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
+新闻来源：[“警虎”孙力军一案的几个罕见之处](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=b7e7b8f7bdee4d36af5a3e1ec6dd7ecc&amp;wm_cid=465765587161726976&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
 
-[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
+发布：去中心化Math
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-
-
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

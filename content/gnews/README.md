@@ -15,128 +15,128 @@
 
 ---
 
-### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/1/README.md)
+### [【G时新闻】北京冬奥会赞助商开始疏远这场种族灭绝运动会](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [美国法国英国最有钱有权的人正以共享财富名义抢劫财富](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [深圳惊现一名举牌喊口号的“罗湖勇士”](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [桥水基金RayDalio是王岐山高燕燕的兄弟是朱云来的爹](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [继中国信达，鱼跃医疗、舜宇光学暂缓增资蚂蚁消费金融](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记： 法律的起源](/content/gnews/2/README.md)
+### [若不反击制造大型仇恨传播邪教的VICE,华人将猪狗不如](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [1/07 文贵直播：哈萨克斯坦事件是共产主义祸害世界的必然（粤语配音）](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：盖特是改变社交媒体游戏规则的game changer（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/05文贵直播：习太阳相信死人是其强大的必须和必然（粤语配音）](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [共产党要用邪教的六条特征把反共人士和中国人打成邪教](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [马斯克宣布，特斯拉部分商品已支持狗狗币支付](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大直播后记： 法律的起源](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [邪教特征:教主崇拜精神控制编造邪说敛财秘密结社反社会](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [疫苗加强针！绝对要避开的理由](/content/gnews/4/README.md)
+### [疫苗加强针！绝对要避开的理由](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生](/content/gnews/5/README.md)
+### [邪教特征:教主崇拜精神控制编造邪说敛财秘密结社反社会](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/6/README.md)
+### [疫苗加强针！绝对要避开的理由](/content/gnews/15/README.md)
+ ` 首尔天池农场`
+
+### [过去两周美国及欧洲所有大学均暗传排斥中国及亚洲学生](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [Facebook因利用用户数据在英国面临32亿美元的集体诉讼](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [若无预判则加拿大新加坡日本的排华苗头会如野火般蔓延](/content/gnews/7/README.md)
+### [若无预判则加拿大新加坡日本的排华苗头会如野火般蔓延](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [加拿大排华法律协个案作背后意图把爆料革命带入超限战](/content/gnews/8/README.md)
+### [加拿大排华法律协个案作背后意图把爆料革命带入超限战](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共酷吏孙力军，央视大裤衩电视认罪](/content/gnews/9/README.md)
+### [中共酷吏孙力军，央视大裤衩电视认罪](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [江志成吴征出钱VICE把爆料革命带进Q组织并打成邪教](/content/gnews/10/README.md)
+### [江志成吴征出钱VICE把爆料革命带进Q组织并打成邪教](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [VICE四年前黑七哥，但七哥一年前已预判并远离Q组织](/content/gnews/11/README.md)
+### [VICE四年前黑七哥，但七哥一年前已预判并远离Q组织](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦若不制止几乎八成战友将跟着Q组织走向歧途](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/13/README.md)
+### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [VICE路大脑袋和海外欺民贼念念不忘的Q组织远超邪教](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [奥密克戎毒株来袭冬奥会在即的北京](/content/gnews/15/README.md)
+### [奥密克戎毒株来袭冬奥会在即的北京](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应美国要求，俄罗斯联邦安全局拘留14名黑客](/content/gnews/16/README.md)
+### [应美国要求，俄罗斯联邦安全局拘留14名黑客](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共到底挥霍了多少人民创造的财富](/content/gnews/17/README.md)
+### [中共到底挥霍了多少人民创造的财富](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有错必纠！法国叫停强制佩戴口罩之规定](/content/gnews/18/README.md)
+### [有错必纠！法国叫停强制佩戴口罩之规定](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美两党议员提案应对中共垄断稀土资源](/content/gnews/19/README.md)
+### [美两党议员提案应对中共垄断稀土资源](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/20/README.md)
+### [丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国务院报告称，中共南海索权不符国际法规定](/content/gnews/21/README.md)
+### [美国务院报告称，中共南海索权不符国际法规定](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [Facebook母公司Meta涉嫌违反竞争法面临英国集体诉讼](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [郭文贵先生谈喜马拉雅农场](/content/gnews/23/README.md)
+### [郭文贵先生谈喜马拉雅农场](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [美国最高法院对疫苗强制令的裁决意义重大](/content/gnews/24/README.md)
+### [美国最高法院对疫苗强制令的裁决意义重大](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [国家禁止未接种疫苗的人进入办公室](/content/gnews/25/README.md)
+### [国家禁止未接种疫苗的人进入办公室](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [最高法院叫停拜登政府关于企业COVID-19的疫苗强制规定](/content/gnews/26/README.md)
+### [最高法院叫停拜登政府关于企业COVID-19的疫苗强制规定](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [正义的判决！中共背景律师事务所违背职业道德被判出局](/content/gnews/27/README.md)
+### [正义的判决！中共背景律师事务所违背职业道德被判出局](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [丹麦指责俄罗斯、中共国、伊朗的间谍威胁](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [政府的施政方针应该是团结全国人民，而不是侮辱人民](/content/gnews/29/README.md)
+### [政府的施政方针应该是团结全国人民，而不是侮辱人民](/content/gnews/36/README.md)
  ` G-NEWS TAIWAN`
 
-### [我的写作之路3](/content/gnews/30/README.md)
- ` 纽约香草山MOS03`
-
-### [没有人不相信新中国联邦是合法代表中国的](/content/gnews/31/README.md)
+### [没有人不相信新中国联邦是合法代表中国的](/content/gnews/37/README.md)
  ` G-NEWS TAIWAN`
 
-### [孟山都公司的中共科学家承认犯有经济间谍罪](/content/gnews/32/README.md)
+### [孟山都公司的中共科学家承认犯有经济间谍罪](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币是新中国联邦真正走向世界的货币权](/content/gnews/33/README.md)
- ` G-NEWS TAIWAN`
-
-### [疫苗降温还是为下一代疫苗造势？两国际卫生机构发声](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [数字货币和喜币喜联储将彻底改变人类的金融生态系统](/content/gnews/35/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共最终将把特斯拉挤出中国，玩弄市场换技术的把戏将会重演](/content/gnews/36/README.md)
+### [中共最终将把特斯拉挤出中国，玩弄市场换技术的把戏将会重演](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产](/content/gnews/37/README.md)
- ` G-NEWS TAIWAN`
-
-### [1/15/2022 郝董：各国抵制冬奥会说明灭共已成全球趋势；中共对人权的践踏无处不在](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [欧盟和世界卫生组织均发出对疫苗“加强针”的危险警告](/content/gnews/39/README.md)
+### [欧盟和世界卫生组织均发出对疫苗“加强针”的危险警告](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [真理放映揭露福奇，推特账号被无限期暂停](/content/gnews/40/README.md)
+### [真理放映揭露福奇，推特账号被无限期暂停](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
-
-### [GTV新闻访谈简报|2022年1月15日晚](/content/gnews/41/README.md)
- ` 纽约香草山MOS01`
 
 ### [聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！](/content/gnews/42/README.md)
  ` 丁过`

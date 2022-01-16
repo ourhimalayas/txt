@@ -2,34 +2,24 @@
 ---
 
 
-## 郭文贵先生谈喜马拉雅农场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866169/)
+## 我猜：日本外相的话已给中共战狼下周一的工作定调
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866240/)
 
-撰稿：香草山农场—雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1244.png)
-与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-13.png)（图片源自本文链接）
+1月16日读卖新闻消息：15日，林外相在金泽市的一次演讲中说，他将在对华外交方面 “坚定地坚持需要坚持的东西”，并指出了中共国渔船在能登半岛外的人气渔场–大和堆的非法捕鱼作业问题。
 
-郭先生说道，爆料革命受天机，喜马拉雅农场将成为人类最主要的文明的基础。
+近年来，在石川县多产鱿鱼的渔船捕鱼地–大和堆，中共国和朝鲜船只非法捕鱼行动已变得越来越活跃，人们担心过度捕捞可能导致鱼类短缺。谈到非法捕鱼问题和中共国海上巡逻船在冲绳县尖阁诸岛附近的挑衅行为，林外相强调：已引起人们越来越多的关注。我们将要求对方，作为一个大国，要负责任地行事。
 
+关于日美关系，他说：我将直言不讳，坚决回应驻日美军中新病毒的传播。即便我们是亲密的朋友，我也会说出我必须说的话。
 
+林外相既谈到了中共国问题，也提到了朝鲜和美国的问题。让笔者作为周末娱乐猜一下：朝鲜和美国都不会说什么。只有中共国的外交部，周日该休息还休息，但会把这事儿当作下周一的重要工作，由某战狼站出来回怼林外相。
 
-新闻来源：[https://gnews.org/zh-hans/1856873/ https://gtv.org/video/id=61df44f3a6dfdd6031535439](https://gnews.org/zh-hans/1856873/%20https://gtv.org/video/id=61df44f3a6dfdd6031535439)
+信息来源：[林外相、尖閣・違法操業で中国に「毅然と主張する」（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5b2e97347a593019d84100b97bb53ffa5786f16b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

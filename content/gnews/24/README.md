@@ -2,32 +2,26 @@
 ---
 
 
-## 美国最高法院对疫苗强制令的裁决意义重大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866155/)
+## 奥密克戎毒株来袭冬奥会在即的北京
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866221/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月14日的大直播中，针对美国最高法院于13日对拜登政府疫苗强制令的裁决，郭文贵先生表示，这项裁决将彻底扭转全球疫苗局势。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1247.png)
-郭先生说，法治，是美国的核心价值。从美国高等法院做出裁决的这一天开始，大药企、监管机构、强制接种的政府官员等，已被套上了法律的枷锁。在世界范围内，科学家、医学家将率先发起质疑，疫苗受害者将依法捍卫自己的权益，有关疫苗推广与强制接种相关的人员和政策将被重新审视和检验。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-42.png)（图片源自本文链接）
+1月15日共同社北京消息：15日北京市政府宣布，已确认该市海淀区出现一例社区获得性奥密克戎毒株感染病例。
 
-郭先生透露，新中国联邦提供了针对此次判决的关键性证据–mRNA疫苗和病毒溯源，以及私人企业主接种疫苗副作用的确凿证据。“以法灭疫”，新中国联邦功不可没。作为“无苗族”的新中国联邦人，也将会成为人类最黑暗时代中的最大赢家。
+这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
 
-新闻链接：[2022年1月14日文贵大直播](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
+感染途径不明，过去两周没有离开过北京，也没有与任何感染者有过密切接触，该迹象表明感染可能已经在整个北京蔓延。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+中共政府在15日的新闻发布会上宣布，13日和14日在上海、广东省的珠海，以及同省的中山，得到报告的中共病毒（新冠病毒Covid-19）感染是奥密克戎毒株。可见感染者有可能涉及的地理范围很广泛。
 
-编辑：Ivy001/雪梨
+信息来源：[北京でオミクロン初確認　五輪目前、上海や広東省でも（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a4db086e211da98197e8e6cee2aaed0b5064a91)
 
-校正/发稿：浪迹天涯
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
