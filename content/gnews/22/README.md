@@ -2,20 +2,22 @@
 ---
 
 
-## 中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867793/)
+## 世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867794/)
 
 作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据1月11日官方公布的数据显示，2021年中国原油进口总量为5.1298亿吨，低于上年的5.4239亿吨，是2001年以来首次出现年度下降。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.37.png)
-受国内疫情及地产，基建投资放缓的影响，预计中国2021年四季度GDP（国内生产总值）同比增速将“破4”至3.3%，为2020年二季度以来最低。BofA Global Research美国银行全球研究则预计，中国去年12月份经济活动增长仍然疲软，四季度GDP同比增速预计放缓至3.1%，高盛则将2022年全年增幅从4.8%调降至4.3%。
+据外媒1月11日综合消息，世银调降美、欧及中国经济增长预估，警告普遍债务过高，贫富加剧，以及新的新冠病毒变种对发展中经济体复苏构成威胁。2022年全球经济成长率将从去年的5.5%明显降至4.1%，2023年则是进一步降至3.2%，因各国政府停止疫情之初提供的，大规模财政及货币刺激政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.47.png)
+世银预期，发达国家经济活动在2020年萎缩过后，于2021年大幅反弹，但警告通胀更为持久，供应链及劳动力问题，及新的新冠变种病毒等因素，有可能打击全球增长。疫情已经加深发达与发展中国家的成长差距，同时也导致各国内部增长出现分歧，可能加剧社会紧张及动乱。
 
-荷兰国际集团（ING）认为，在房企违约和高基数效应下，中国2021年四季度GDP将低于前一个季度的4.9%，去年12月地方债共计发行近3,179亿元，较上月减少逾五成。固定资产投资方面，地产基建预计继续走弱，开发商总体购地意愿持续走低。
+世行展望小组的Ayhan Kose认为，发展中国家“硬着陆”风险升高，因他们提供必要财政援助的选项有限，通胀压力持续高涨，且财政相当脆弱。
+
+报告预估，2022年发达国家经济体成长率，将从2021年的5%降至3.8%，2023年进一步下滑至2.3%。美国2021年国内生产总值(GDP)增长率，预估调降1.2个百分点至5.6%；同时，预估2022年成长将骤降至3.7%；2023年降至成长2.6%。世银称，日本2021年GDP增长将下降到1.7%，较6月时预估少了1.2个百分点；2022年增长率则将升至2.9%。
 
 参考链接：
-1）[Goldman Lowers China 2022 Growth Forecast to 4.3% on Omicron](https://www.bloomberg.com/news/articles/2022-01-11/goldman-lowers-china-2022-growth-forecast-to-4-3-on-omicron)
-2）[Goldman cuts China GDP target for 2022 — and exports aren’t the problem](https://www.cnbc.com/2022/01/12/china-economy-goldman-cuts-china-gdp-for-2022-amid-lockdowns-omicron.html)
+1）[World Bank slashes global growth forecast and warns about growing inequality](https://www.cnbc.com/2022/01/12/world-bank-slashes-2022-global-growth-forecast.html)
+2）[Omicron, Supply-Chain Troubles to Slow Growth, World Bank Says](https://www.wsj.com/articles/omicron-supply-chain-troubles-to-slow-growth-world-bank-says-11641918947)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
