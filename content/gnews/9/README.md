@@ -2,32 +2,31 @@
 ---
 
 
-## 扬帆每日速递 2022年1月15日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865341/)
+## 有声|加拿大魁北克省将对未接种疫苗者进行经济处罚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1865393/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、据万维读者网1月14日消息，传奥密克戎毒株入侵上海 学校已全面停课。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+《蒙特利尔公报》1月11 日报道，魁北克省长**勒戈**在新闻发布会指出，绝大多数魁北克人已经接种了疫苗，并正在接受加强针。但仍有大约10%的魁北克人拒绝接种疫苗。
 
-2、据新浪财经1月12日报道：深夜炸雷！上海国企又出事，上实公司下属控股子公司上海上实龙创智慧能源科技股份有限公司26亿应收款存部分不可回收风险！3.5万股东躺枪。
+勒戈宣布，魁北克省在研擬相關实施细则，將會對未接种疫苗的成年人處以“健康费”的处罚。他表示，该处罚将是一个”相当大的数额” 。另外，這项政令只对有医疗原因，而不能接种疫苗的人士豁免。
 
-3、周五，由美国两党议员共同引入一项迫使国防承包商在2026年之前停止从中共国购买稀土并通过五角大楼建立战略矿产的永久储备的立法。这是为了阻止中共国对该行业的完全控制。
+据了解，至今没有一个权威部门能给出结论，证明疫情扩散是因为未接种疫苗的人所致，更无法证实这些人额外占用了医疗资源。
 
-4、中国证券监管机构周五（1月15日）表示将改革中共国证券结算制度使其更接近全球惯例以达到吸引（骗取）外资的目的。
+文字版原文：[加拿大魁北克省将对未接种疫苗者进行经济处罚](https://gnews.org/zh-hans/1853242/)
 
-5、据文贵大直播：中共以金钱、武器、免债为利益，使得给中东四国同意使用数字人民币及参加冬奥会，但他们向王毅提出要求必须购买其国家的物品，并以美元结算。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-6、据文贵大直播：冬奥会后中共国体育界会大翻车，李永波等人一定被抓。几千爆料革命战友获得政治庇护，新中国联邦的政治目标已经被多国政府认可。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-15海报1_page-0001-1.jpg)
-**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-素材提供战友：Revelation熙攘、Shuang、文敏
-
-编辑：文敏
-
-海报图片设计：飞天面、 Shuang
-
-发布：风起云间（文敏）
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

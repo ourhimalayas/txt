@@ -2,21 +2,12 @@
 ---
 
 
-## 七哥金句
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865093/)
+## “我们对中国热性病毒情况知之甚少，所有信息来自中共官员”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1864709/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+01/11/2022 本·哈恩威尔：关于这种病毒在中共国到底发生了什么，我们对事实知之甚少，因为我们掌握的所有信息都是通过中国共产党官员向我们传达的，他们对淡化任何病毒相关的事情有天然的偏好。
 
-绝对的网络，绝对的思想控制和资源控 制让老百姓准备好当牛做马，远离时尚和物质生活的时代，不可控的因素全部要干掉。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句-.jpg)
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

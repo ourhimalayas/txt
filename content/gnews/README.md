@@ -15,140 +15,140 @@
 
 ---
 
-### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [郭文贵先生2022年1月15日盖特视频（3分32秒）全文字版](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的蝴蝶效应 加上VICE宣传与反宣传：这逆增上缘的力量太大了](/content/gnews/2/README.md)
+### [日本将中共病毒Omicron密接者隔离期从14天缩短到10天](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [针对信仰、民主、资本这三项基本问题，认知上的对立，导致了中国共产党和美国之间的关系就是你死我活的关系](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [有声|美国上千家医院出现严重人力短缺](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [有声|中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [有声|台北两名护士接种三针疫苗后染上中共病毒](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/8/README.md)
+### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/9/README.md)
+### [新中国联邦的蝴蝶效应 加上VICE宣传与反宣传：这逆增上缘的力量太大了](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|中共掌权者才是盗国卖国贼](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|欧洲议会主席David Sassoli突然死亡](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|全球中共病毒新增确诊近日再创新高](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|加拿大魁北克省将对未接种疫苗者进行经济处罚](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|Visa调查结果：九个国家的小企业计划提供加密货币支付](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|“掩耳到零”政策遭打脸 西安再曝13例本土病例](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [有声|美国上千家医院出现严重人力短缺](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [有声|中共疾控专家放话，中国加强针接种率应提升至100%](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|台北两名护士接种三针疫苗后染上中共病毒](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|河南某检验中心负责人因涉嫌病毒传播遭刑拘](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [各国领导人正在尝试利用病毒、疫苗和恐惧来分裂国家和社会，人们需要尽快醒来！](/content/gnews/10/README.md)
+### [各国领导人正在尝试利用病毒、疫苗和恐惧来分裂国家和社会，人们需要尽快醒来！](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [孙立军电视认罪意味着孟建柱死到临头](/content/gnews/11/README.md)
+### [孙立军电视认罪意味着孟建柱死到临头](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
 
-### [新中国联邦助美国最高法院否决拜登企业疫苗强制令，“以法灭疫”拉开序幕](/content/gnews/12/README.md)
+### [新中国联邦助美国最高法院否决拜登企业疫苗强制令，“以法灭疫”拉开序幕](/content/gnews/20/README.md)
  ` YALUN 亚伦`
 
-### [雅典娜时报-第175期](/content/gnews/13/README.md)
+### [雅典娜时报-第175期](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/14/README.md)
+### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [【粤语配音】2022年1月15日：严肃防止被病毒感染，做好一切物资的储备](/content/gnews/15/README.md)
+### [【粤语配音】2022年1月15日：严肃防止被病毒感染，做好一切物资的储备](/content/gnews/23/README.md)
  ` MOS香港部`
 
-### [雅典娜时报-第174期](/content/gnews/16/README.md)
+### [雅典娜时报-第174期](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [保罗参议员指出福奇就是疫情问题的一部分](/content/gnews/17/README.md)
+### [保罗参议员指出福奇就是疫情问题的一部分](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共病毒疫苗严重不良事件汇总](/content/gnews/18/README.md)
+### [中共病毒疫苗严重不良事件汇总](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况](/content/gnews/19/README.md)
+### [【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生盖特精要2022/01/15](/content/gnews/20/README.md)
+### [文贵先生盖特精要2022/01/15](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”](/content/gnews/21/README.md)
+### [喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [北京首例奥密克戎感染阳性](/content/gnews/22/README.md)
+### [北京首例奥密克戎感染阳性](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第173期](/content/gnews/23/README.md)
+### [雅典娜时报-第173期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】造假专家：为保二十大，中共国经济七策组合联动保五](/content/gnews/24/README.md)
+### [【中日财经爆】造假专家：为保二十大，中共国经济七策组合联动保五](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共联合贪婪权贵 妄图推广共产主义式“共享财富”](/content/gnews/25/README.md)
+### [中共联合贪婪权贵 妄图推广共产主义式“共享财富”](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [三头六臂？ 西安“马雪娥”串演穿帮](/content/gnews/26/README.md)
+### [三头六臂？ 西安“马雪娥”串演穿帮](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [此地无银三百两，“中国士兵没人冻死” 胡锡进“跳脚”印度主编](/content/gnews/27/README.md)
+### [此地无银三百两，“中国士兵没人冻死” 胡锡进“跳脚”印度主编](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——老妇哭街行](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [雅典娜时报-第172期](/content/gnews/29/README.md)
+### [雅典娜时报-第172期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】中共加强商票监管 试图缓解金融暴雷](/content/gnews/30/README.md)
+### [【中日财经爆】中共加强商票监管 试图缓解金融暴雷](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共经济难以转圜 全面衰退已成定局](/content/gnews/31/README.md)
+### [【中日财经爆】中共经济难以转圜 全面衰退已成定局](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国大型公司——通用电气公司，积极跟进响应最高法院阻止拜登的疫苗强制令](/content/gnews/32/README.md)
+### [美国大型公司——通用电气公司，积极跟进响应最高法院阻止拜登的疫苗强制令](/content/gnews/39/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大反对党—保守党O&#8217;Toole抨击对未接种疫苗者的“惩罚税和惩治目标”计划](/content/gnews/33/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [扬帆每日速递 2022年1月15日版（1）](/content/gnews/34/README.md)
- ` 温哥华扬帆农场`
-
-### [汪文斌的发言凸显中共穷途末路其气数已尽](/content/gnews/35/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明](/content/gnews/36/README.md)
- ` 温哥华扬帆农场`
-
-### [华中师大毕业生就业报告直指高校就业数据的猫腻](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥金句（二）](/content/gnews/38/README.md)
- ` 雅典娜GNotes`
-
-### [近在咫尺的疫苗灾难（二）](/content/gnews/39/README.md)
- ` 纽约香草山MOS03`
-
-### [七哥金句](/content/gnews/40/README.md)
- ` 雅典娜GNotes`
-
-### [高房价带走一切，佳能32年终落幕](/content/gnews/41/README.md)
- ` 澳喜农场`
-
-### [文贵先生直播精要 2022/01/14](/content/gnews/42/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“我们对中国热性病毒情况知之甚少，所有信息来自中共官员”](/content/gnews/43/README.md)
+### [“我们对中国热性病毒情况知之甚少，所有信息来自中共官员”](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【Michael.Tonny专栏】CCP间谍李贞驹蓝金黄英国政坛被军情五处曝光](/content/gnews/44/README.md)
+### [【Michael.Tonny专栏】CCP间谍李贞驹蓝金黄英国政坛被军情五处曝光](/content/gnews/41/README.md)
  ` 温哥华扬帆农场`
 
-### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/45/README.md)
+### [美议员提法案要求国防承包商停止进口中共国稀土](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
+
+### [马歇尔参议员要求福奇向国会公布所有未经编辑的信息](/content/gnews/43/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [南达科他州长提出立法保障人民享有拒绝新冠疫苗的权力](/content/gnews/44/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [超越大重启：各国各大力量推进“人类2.0”热情万丈](/content/gnews/45/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [杨贝贝虚假报道中提到的Q组织](/content/gnews/46/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`

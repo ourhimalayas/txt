@@ -2,36 +2,29 @@
 ---
 
 
-## 美最高法院阻止企业疫苗强制令 同意医护强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865309/)
+## 有声|台北两名护士接种三针疫苗后染上中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1865388/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1233.png)
-此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+台媒1月11日报道，台北市两名联合医院中兴院区的护士，在接种完3针中共病毒疫苗后，依旧感染中共病毒。
 
-然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
+对此，台北市副市长黄珊珊表示，怀疑该两名护士是在照顾病人时染上的，至于为什么接种完三针中共病毒疫苗，仍会感染病毒的原因目前还在调查中。 不过，该事件显然没有对台北市市长柯文哲造成任何影响，柯文哲 11日宣布，要求全市所有医院、机场、防疫旅馆的相关工作人员，必须于本周内完成第3剂中共病毒疫苗的接种工作。
 
+文字版原文：[台北两名护士接种三针疫苗后染上中共病毒](https://gnews.org/zh-hans/1851103/)
 
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：Ivy001
-
-编辑：Lakeman文仁
-
-新闻链接：[Supreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
