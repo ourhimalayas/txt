@@ -2,10 +2,10 @@
 ---
 
 
-## 美国政府为推行疫苗而忽视对治疗性药物的研究
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867504/)
+## 上海环球港因疑似疫情被关闭
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867512/)
 
-01/13/2022 梅梅特·奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会接受疫苗。
+01/13/2022 上海环球港因疑似疫情被关闭。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 3:07 PM (UTC)`
+
+1月16号：尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最黑暗的时刻即将到来！
+![img](https://media.gettr.com/group13/getter/2022/01/16/15/f37ab753-8b82-a70f-775e-37e2f47049c5/out.jpg)
+
+---
+
 `@miles 1/16/2022 2:51 PM (UTC)`
 
 史蒂夫·基尔：强制打疫苗是疫情大流行的错误解决方案，疫苗甚至没有被食药局准许。如果人们想要保护自身免于感染中共病毒，只要有一个带P100过滤器的3M防毒面具就可以。我觉得强制打疫苗不道德、而且不起作用。人们被强迫打这个疫苗，这违反了纽伦堡条约<br/><br/>Steve Kirech: Vaccination Mandates are just the wrong solution to the pandemic. And the vaccine is not even approved by the FDA. If people want to protect themselves against getting COVID, early treatment could have saved everything, and just get a 3M respirator with a P100 filter. I think that mandates are unethical, immoral, and ineffective. People are being coerced into taking it, and this is a violation of Nuremberg.<br/><br/>
@@ -150,15 +157,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: Behind the SCOTUS blocking the vaccine mandate is the New Federal State of China, and it is us who provided the most crucial evidence regarding the mRNA COVID vaccines and the CCP virus. World to follow the US in banning the vaccine mandates, with the noose being put around the neck of the evil forces behind the COVID vaccines<br/><br/>1/14/2022 文贵直播：美最高法院通过禁止疫苗强制令的背后离不开新中国联邦，是我们提供了mRNA疫苗和病毒的最关键证据；世界将跟随美国禁止强制疫苗，疫苗的邪恶势力已套上绞索<br/>
 ![img](https://media.gettr.com/group49/getter/2022/01/15/05/00aada67-bfc2-196a-8327-4f59c1a8cc3b/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 1/15/2022 2:29 AM (UTC)`
-
-1月14号：今天的太平联盟的官司……从开始到今天唯一的一次，我们获得了一次正义的判案……单伟建建的代表律师．Edward Moss．律所Cahill Gordon & Reindel LLP被纽约高院因严重违反律师道德被踢出局，我们因为这个不道德的律师受……提供的虚假证据的多次不公对待……他知法犯法，因此我们的家人被剥夺了拥有18楼公寓的权力……也被剥夺了选择陪审团的权利……他们利用虚假的……所谓我的担保和很多不真实的证据，以及法律的超限战方式．对待我们……所有人都知道太平联盟和中共的关系．和吴争的关系．和．中国海南航空的关系，HNA．此案是在我申请了政治庇护的24小时内发起的．这也是被抓的孙力军，在美国和我通话期间．警告我如果不和中共国合作，他们就会发起太平联盟这个官司和所谓的马瑞强奸案的官司……会毁掉我的声誉等等……因为一些我他们会在美国及全球．拿走一切我家人所拥有的东西……这个所谓的个人担保的责任的案子，此案事关美国司法和中共国之间的司法界的最黑暗的一面，已经引起了全世界的关注，在这个案子上我们都能看到．有太多的利益冲突和共产党的操控手段．在这个不可思议的造假的案子里…这样有名的律师事务所和这个律师严重的违背律师的职业道德，他绝不会是只有一次事情上这么做的……在整个案子上，他都是这么做的，操控此案的中国公安部副部长孙力军在中国已经被抓了，我相信正义离我们也不遥远了。<br/><br/>我们一定会战斗到底…但我们永远——永远要相信．并尊重美国的法律…和美国的法官．和美国的正义……这就是伟大的美国．伟大的之处……我们这个案子并没有结束……我相信最终这个案子一定也会得到美国法律和法官的公正判决，一切都已经开始！
-![img](https://media.gettr.com/group7/getter/2022/01/15/02/73770310-8b7f-dacd-c666-d1d950f044fb/4803633305b73b207d031436e8f648dc.jpg)
 
 ---
 
