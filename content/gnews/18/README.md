@@ -2,42 +2,34 @@
 ---
 
 
-## 世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866935/)
+## 加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1866954/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3c19787664c47acd5536c](https://gtv.org/video/id=61e3c19787664c47acd5536c)
+翻译：坤哥
+校对：zzballack
+上传：追着曙光跑
 
-**郭文贵先生：**刚才你们看了世界的经济了，咱还没有说到世界的经济，回到这儿再说世界经济的时候，大家去想想，世界出现那么大事，刚才世界经济给了我们两个答案。长线投资都在离场，大家注意到了吗？最近长线投资都在离场，数字货币领域大额洗钱的正在离场，现在已经是“鲨鱼”开始往回撤了，大家看着，“鲨鱼”往回撤了，为什么Ray dalio出来要替共产党洗地，共享财富，他绝对是世界上最早知道让什么时候上，什么时候下的人。
+据《每日曝光》（Daily Expose）2022年1月15日报道，据称加拿大温哥华的麦当劳叔叔之家（the Ronald McDonald House）正在考虑驱逐那些无法为其身患绝症的孩子提新冠疫苗接种证明的家庭。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-16-at-17.56.46.jpeg)图片来源：原新闻
+奥斯汀·弗加森（Austin Furgason）是一位身患白血病的四岁孩子的父亲，孩子自去年10月以来一直在该麦当劳叔叔之家接受治疗。他被告知除非他的儿子接种疫苗，否则孩子将不得不离开该机构。弗加森不是唯一一位被告知此事的父母。
 
-所谓的“共享财富”就是给西方人打针了，是股票跌下来就是给你分财富呢，跟共产党一样是吧。把马云宰了你就当马云啦，把马化腾和马明哲杀了，你就当马明哲当马化腾了，这就是典型的Ray dalio这个孙子跟共产党唱的同一个调。
+弗加森1月12日在推特上发布了一个视频，分享了他儿子的故事。视频记录了他与该机构经理的交流过程。该经理坚持认为孩子必须接种疫苗，“以降低整个场所的风险”。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+弗加森认为“这毫无道理”。他还说，根据政府官员的说法，注射疫苗后不会传播病毒，因此他的儿子不应被强迫离开此设施。然而，经理拒绝听从他的辩护。于是，弗加森在社交媒体上曝光了这个麦当劳叔叔之家。
 
-编辑整理：Jacques；
+弗加森写道：“所有未接种疫苗的房客、成年人和5岁以上儿童在1月底前都要离开，这是多么的邪恶和卑鄙！新冠病毒邪教远比新冠病毒本身更危险。如果他们会驱逐患有癌症的家庭，那还有什么事他们做不出来？”
 
-字幕文件制作：小满；
+真北新闻（True North news）获得了这位父亲从麦当劳叔叔之家收到的信件的副本。信件中解释说，新的疫苗强制令将于1月17日开始，已经在该机构或者家庭室（Family Room）的家庭必须在1月31日前接受至少一剂疫苗，否则将被强行驱逐。
 
-视频制作及上传：Cindy；
+该信告诉收件人说， “到我们的前台扫描你的不列颠哥伦比亚省（BC）疫苗护照，确认疫苗接种证明，或者提供12岁以下孩子的疫苗接种卡”。
 
-G-News发布：小满；
+这项新政策适用于 “所有在我们机构工作、停留或前来拜访的五岁及以上人群”，这意味着它包括患病儿童的家人和朋友。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+除非一个家庭能够证明它获得了不列颠哥伦比亚省麦当劳叔叔之家（RMH BC）书面上明确批准和同意的便利，否则他们在2月1日就得离开该机构。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+点评：疯狂的疫苗强制接种政策让无数的人们在这个混沌的世界里难分善恶真假，只会一味地执行邪恶政权和政府的规定。至暗时刻，新中国联邦借人类一双慧眼，把这世界的邪恶和黑暗看个清清楚楚，明明白白。爆料革命传递真相，星火燎原，人类定会迎来正道主义和信仰的新世界。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+信息来源：[Ronald McDonald House To Evict 4-Year-Old Child With Leukemia For Being Unvaccinated](https://dailyexpose.uk/2022/01/15/ronald-mcdonald-house-to-evict-4-year-old-child-with-leukemia-for-being-unvaccinated/)
 
  
 
