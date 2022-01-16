@@ -2,28 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1864317/)
+## “我们对中国热性病毒情况知之甚少，所有信息来自中共官员”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1864709/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+01/11/2022 本·哈恩威尔：关于这种病毒在中共国到底发生了什么，我们对事实知之甚少，因为我们掌握的所有信息都是通过中国共产党官员向我们传达的，他们对淡化任何病毒相关的事情有天然的偏好。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-14.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.15早GTV新闻访谈](https://gtv.org/broadcast/watch/61e2cbc9a6dfdd603154bc25)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,21 +2,22 @@
 ---
 
 
-## 七哥金句（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865099/)
+## 雅典娜时报-第172期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1865217/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-只要我们敢于面对，坚持咱的唯真不破, 坚持灭共的决心，无我的境界，爆料革命绝对是遇难呈祥，永远处在不败之地。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2-.jpg)
-发布：tianzhihuan
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/829864694670950410/932053757267697745/155.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/829864694670950410/932053758165266452/155_2.png?width=910&amp;height=1355)
+*发布：陶子*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

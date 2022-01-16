@@ -2,36 +2,36 @@
 ---
 
 
-## 【中日财经爆】中共加强商票监管 试图缓解金融暴雷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865213/)
+## 喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865274/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.png)[图片来源](https://www.rzline.com/IndustryNewsDetail.html?14565)
-1月14日，中共人民银行、银保监会发布《商业汇票承兑、贴现与再贴现管理办法（征求意见稿）》（下称“征求意见稿”），对早在1997年颁布的《商业汇票承兑、贴现与再贴现管理暂行办法》（下称《办法》）进行修订。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+美国媒体1月13日消息，喜剧演员罗布·施耐德最近入驻盖特。该演员自担任《周六夜现场》演员以来，一直在推动反中共病毒疫苗强制接种活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1230.png)
+尽管罗布的推特账号并未被封锁，但他依然加入了盖特。盖特 CEO 杰森·米勒盛赞这位喜剧演员是“绝对传奇”，并称盖特已为他铺好了红地毯。
 
-《办法》修订稿包括总则、承兑、贴现和再贴现、风险控制、信息披露、监督管理、法律责任和附则，共八章四十二条。主要内容包括：
+最近，美国有大量保守派人士加入，因为他们感受到推特等大科技社交媒体对他们的不公平歧视。
 
-一是明确承兑和贴现资质要求。承兑、贴现应具备相应的资质和符合监管要求。承兑人应经营和财务状况良好，具备到期付款能力。持票人申请贴现，应具有真实交易关系。
+总编：童谣
 
-二是加强风险防控。银行承兑汇票和财务公司承兑汇票的最高承兑余额不得超过该承兑人总资产的15%，保证金余额不得超过承兑人存款规模的10%。
+编辑：飞虹
 
-三是缩短最长付款期限。商业汇票的付款期限自出票日起至到期日止，最长不得超过6个月。
+新闻来源： [Gettr Is Rolling Out the Red Carpet for ‘Absolute Legend’ Comedian Rob Schneider](https://www.newsweek.com/gettr-rolling-out-red-carpet-absolute-legend-comedian-rob-schneider-1669278)
 
-概况起来，征求意见稿的核心就两点，一是控制总量，二是控制期限。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-长期以来，商业票据已严重偏离了企业融资渠道这个主要功能，逐渐演变成了企业信用扩张、传导债务，甚至成为套取银行资金的工具。
+校正/发稿：浪迹天涯
 
-郭文贵先生之前多次爆料，单一个民生银行的票据黑洞就高达万亿规模，更不用提其他的商业银行、城（农）商行。加之，2021年以来的房地产行业的接续暴雷，因商业汇票无法兑付所波及的金融机构和企业众多。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
 
-中共修订“商业汇票管理办法”试图缓解金融和企业暴雷，或将是徒劳。
 
-信息来源：
-
-[商票监管补短板，划定了这些红线|商业银行|存款|央行](https://www.163.com/dy/article/GTN0FOAR0519DDQ2.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

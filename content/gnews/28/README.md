@@ -2,27 +2,36 @@
 ---
 
 
-## 威斯康星州法官裁定：缺席投票箱非法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1864903/)
+## 有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864980/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-4.png)威斯康星州米姆镇的投票站
-图片来自 Royalbroil
-威斯康星州的一名法官裁定，州法律不允许在 2020 年选举期间广泛部署的缺席投票箱，这一决定可能会极大地影响摇摆州中期选举前的投票。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
 
-沃克夏(Waukesha)县巡回法院法官迈克尔·博伦(Michael Bohren)周四下令威斯康星州选举委员会撤回其对选举官员关于如何使用投递箱的指示。博伦宣布，威斯康星州选举委员会在发布该指南时越权了。
+据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
 
-点评：只有保障各个投票程序的合法，才能保障选举的公正！
+卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
 
-**新闻来源**：[creativedestructionmedia.com][Judge Rules Absentee Ballot Drop Boxes Illegal In Wisconsin, Regulators Must Retract Guidance](https://creativedestructionmedia.com/news/politics/2022/01/14/judge-rules-absentee-ballot-drop-boxes-illegal-in-wisconsin-regulators-must-retract-guidance/)
+如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
 
-* * *
+引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+文字版原文：[共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](https://gnews.org/zh-hans/1861173/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-1.jpeg)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

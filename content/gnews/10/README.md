@@ -2,43 +2,26 @@
 ---
 
 
-## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
+## 此地无银三百两，“中国士兵没人冻死” 胡锡进“跳脚”印度主编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865222/)
 
-加拿大温哥华扬帆农场：Jamie\_Luffy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
-图片来源：
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20.png)
+看中国2022年1月14日讯，自2020年中印边界爆发流血冲突酿死伤事件后，关于中印动态一直收到瞩目。近日中共大外宣代言人胡锡进与印媒《今日印度》（India Today）主编阿鲁尔（Shiv Aroor）隔空对呛，原因是阿鲁尔稍早对在拉克达高原冻死的中方士兵家属致哀，但胡锡进则痛批此为“造谣”，阿鲁尔随后狠狠回呛胡锡进。
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+阿鲁尔1月10日在推特发文，呼吁在推特上不断批评印度政治的胡锡进，对1月2日至3日拉克达高原冻死的中共士兵家属致哀。胡锡进则于12日回呛，中共士兵在极端寒冷的天气有可靠的装备保暖，他们不可能冻死，同时呛阿鲁尔在发文前要查证信息。
 
-就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
+到1月13日，胡锡进再发贴称，“我从‘权威人士’那里了解到，1月2日至3日，中印边境地区没有因极端寒冷天气而造成中共士兵伤亡”，他痛批，《今日印度》主编阿鲁尔等人传出假消息“造谣”。对此，阿鲁尔回应说，胡锡进所谓的“权威人士”，可能就是先前告诉胡锡进在中印加勒万河谷冲突中中方士兵仅有5人伤亡的人。阿鲁尔并指，在寒冷天气中有人死亡并不罕见，“请尊重自家的士兵，照顾伤亡、失踪者的家属”。阿鲁尔还以中文简体字写道，“浪费在‘谣言’上的时间，最好花在关心1月2日至3日在寒冷中死去的解放军士兵的家属上”。
 
-目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
+实力不足，本事不够“嘴来补”，这是中共深谙多年的制胜法宝。辟谣一直是中共的重中之重，其实辟的是对他自己不利的“凶兆”，说的全是谎言。中共的外交辞令全然不分真假，不管对错，只有政治正确与否，政治正确是衡量说辞好坏的最高标准。功利性是中共行事的一切指导原则。要想真正读懂中共的外交辞令不了解中共的外交站略战术，以有信仰的正常人的思维模式来度量中共，只能是徒惘然！！！
 
-加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
+消息来源：
 
-在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
+[中国士兵没人冻死？胡锡进辟谣 印度主编狠狠回呛(图)](https://m.secretchina.com/news/gb/2022/01/14/995072.html)
 
-(本文仅代表作者观点)
-
-参考链接：
-
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
-
-[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
-
-[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
-
-[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
-
-
-
-> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
-
-
-
-审核：文敏   发布： 天予
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
