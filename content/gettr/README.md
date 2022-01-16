@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 9:49 PM (UTC)`
+
+1月16日：天哪……<br/><br/>https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367<br/><br/>亚裔女子在纽约地铁站被推下轨道
+
+---
+
 `@miles 1/16/2022 8:21 PM (UTC)`
 
 1月16号：尊敬的战友们好，明天星期一．17号8:30开始.大直播．七哥将遵守承诺．放出七哥七岁时的照片。这位高尔夫球星兑现自己曾经的诺言……让人非常的尊重，她是最美丽．最神圣的……在中共国诚实兑现诺言，却被视为愚蠢……这才是中国人的悲剧一切都已经开始！ January 16: Hello, dear comrades, tomorrow Monday.  Starting at 8:30 on the 17th. Big live broadcast.  Seventh brother will keep his promise.  Release the photos of the seventh brother when he was seven years old.  The golf star fulfilled her promise...people are very respectful, she is the most beautiful.  The most sacred... Honestly fulfilling the promise in China, but being regarded as stupid... This is the tragedy of the Chinese. Everything has already begun!
@@ -150,13 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: Prior to the Winter Olympics and the 20th Party Congress, the CCP has given YouTube two choices: delete all the accounts that the CCP seeks to censor so that YouTube can enter the Communist Chinese market, otherwise it will be completely blocked. Citizens of the New Federal State of China should be wise and tolerant and adhere to the truth. No need to care about how others think of us<br/><br/>1/14/2022 文贵直播：冬奥会和20大前，中共给了YouTube两个选择：删掉所有敏感账号以进入中共市场，不然将被全面封锁；新中国联邦人要有智慧、有心胸、唯真不破，不必在乎别人的眼光<br/>
 ![img](https://media.gettr.com/group20/getter/2022/01/15/07/0a6e9000-3996-4784-e420-16818e4ae29e/out.jpg)
-
----
-
-`@miles 1/15/2022 7:12 AM (UTC)`
-
-1/14/2022 Miles Guo: The commonality of all cults and dictatorships is that they fabricate lies and heresies, silencing the people and presenting lies as truths. I've always hoped to see those who are following me get ahead of me, and I’m empowered by their success. This matter regarding Joe Rogan is just a misunderstanding, but it shows that a society based on the rule of law requires people to respect the truth.<br/><br/>1/14/2022 文贵直播：所有邪教和独裁的共性是编造谎言邪说，让民众闭嘴并把谎言说成真理；我一直都渴望身后跟随我的人超过我，我也会被他们的成功所鼓舞；Joe Rogan事件只是个误会，这体现出法治社会要求人们尊重事实
-![img](https://media.gettr.com/group21/getter/2022/01/15/07/6b9037b2-e757-8cce-b636-8b0fd6ff98d1/out.jpg)
 
 ---
 
