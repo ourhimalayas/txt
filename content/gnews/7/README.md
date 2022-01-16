@@ -2,10 +2,12 @@
 ---
 
 
-## 数字货币和喜币喜联储将彻底改变人类的金融生态系统
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865995/)
+## 没有人不相信新中国联邦是合法代表中国的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1866023/)
 
 台灣寶島農場
+
+
 
  
 

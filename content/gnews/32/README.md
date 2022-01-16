@@ -2,35 +2,32 @@
 ---
 
 
-## 在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1865433/)
+## Facebook母公司因利用用户数据在英国被起诉
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865625/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-95.png)
-图片来源：网络截图
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，据相关媒体报道，英国监管机构——金融行为管理局的高级顾问洛夫达赫·戈尔森正在起诉脸书的母公司Meta涉嫌利用用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-15-下午9.31.12.png)
+据了解，戈尔森将代表英国在2015至2019年间使用脸书的用户对Meta公司提起23亿英镑的集体诉讼。戈尔森表示，脸书滥用其市场主导权，对普通英国人强加了不公平的条款，不合理地要求这些用户在进入该平台时必须提供个人数据。同时，脸书通过收集此类个人数据，从而建立了庞大的用户信息数据库。戈尔森称，该信息库使得Meta近年来赚取了数十亿美元。
 
-据美联社洛杉矶1月14日报道，网球明星诺瓦克·德约科维奇（Novak Djokovic）本周在澳大利亚发生的大流行时代的传奇只是其中之一。拒绝接种疫苗的职业运动员在一场更大的竞赛中被置于中心位置。作为著名的面孔，他们正在成为全世界范围内加速的关于中共病毒疫苗的斗争中的代理参与者。
+报道提及，伦敦竞争上诉法庭近期将审理此案。
 
-NBA的凯里·欧文(Kyrie Irving)错过了布鲁克林网队赛季的前几个月，然后才部分回归。美国国家橄榄球联盟的亚伦·罗杰斯从受人尊敬的老将变成了两极分化的人物。而我们仍未结束德约科维奇豁免参加澳大利亚网球公开赛的外交对峙和冲突。
+参考链接：[Meta sued for $3.2 billion in UK class action lawsuit alleging Facebook exploited data](https://thehill.com/policy/technology/589715-meta-sued-for-32-billion-in-uk-class-action-lawsuit-alleging-facebook?utm_source=ground.news&amp;utm_medium=referral)
 
-职业体育组织中的绝大多数球员都接种了疫苗，比美国人口总数还多，并且默许或明确接受其安全性和有效性的证据。但是，少数高调的反对者代表了一个新的战线，一位专家称之为社会对话中的“体育的超大角色”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-马萨诸塞州阿默斯特学院的美国研究副教授罗伯特·T·林（Robert T. Hayashi）说：“我们期待体育能给我们一个答案，或澄清更大文化中的问题，”他们的中心地位不一定是因为他们出类拔萃，而是因为他们作为我们所有人的化身。
+总编：童谣
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-东北大学社会体育研究中心的执行主任丹·莱博维茨说：“那些有某些信念的人，他们想把这些信念传播出去，他们会抓住这些运动员作为他们事业的代言人”。名人与某一问题的个人联系可能很重要，而且可以引起关注。
-
-绿湾包装工这样的球队的忠实粉丝可能更愿意听取像罗杰斯这样的当地传奇球员的疫苗接种意见。而黑人运动员的意见可能会在非裔美国人的社区中获得更多的关注，尤其是在挖掘医疗虐待的历史时。
-
-鉴于德约科维奇在20世纪欧洲冲突中的作用，德约科维奇的立场可能同样会在这位塞尔维亚运动员的祖国引起共鸣。
-
-虽然体育一直与政治和公共冲突密不可分，但自从迈克尔·乔丹将在所有非体育问题上公开保持中立作为其品牌的重要组成部分后，多年来已经发生了重大的转变。
-
-“我们对他们有很大的期望，”莱博维茨说。“我们要求他们解决仇恨和伤害。现在，我们期待他们在公共卫生方面有更大的作为。”
-
-虽然运动员们不一定会像以前那样感受到压力，不断考虑他们所影响的孩子，但他们仍然是年轻人的榜样的期望仍然根植于文化之中。“我们在社会上看到了很多东西，体育是塑造青年和我们所珍视的某些观念的坩埚，牺牲和努力以及目标导向，学习如何努力工作和设定目标，成为这种青年和道德的塑造者，”林说。
-
-新闻来源：[In vaccination battles, pro athletes become proxy players](https://apnews.com/article/coronavirus-pandemic-novak-djokovic-nfl-sports-entertainment-d1d1e455a1cab756d279d384af4abe40)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
