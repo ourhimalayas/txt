@@ -15,128 +15,128 @@
 
 ---
 
-### [1/15/2022 文贵直播：请战友们务必小心，千万不要染上病毒！](/content/gnews/1/README.md)
+### [喜币是新中国联邦真正走向世界的货币权](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [数字货币和喜币喜联储将彻底改变人类的金融生态系统](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共最终将把特斯拉挤出中国，玩弄市场换技术的把戏将会重演](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [1/15/2022 郝董：各国抵制冬奥会说明灭共已成全球趋势；中共对人权的践踏无处不在](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产](/content/gnews/2/README.md)
- ` G-NEWS TAIWAN`
-
-### [文•贵天成——文贵先生谈“王毅”（十一）](/content/gnews/3/README.md)
+### [文•贵天成——文贵先生谈“王毅”（十二）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [文•贵天成——文贵先生谈“王毅”（十）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [1/15/2022 郝董：钊颖用亲身经历证明了中共操纵体育赛事、强迫运动员让球](/content/gnews/5/README.md)
+### [1/15/2022 文贵直播：请战友们务必小心，千万不要染上病毒！](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧盟和世界卫生组织均发出对疫苗“加强针”的危险警告](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [数字货币走向新的时代和法币并存，最后法币被淘汰](/content/gnews/7/README.md)
+### [喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [真理放映揭露福奇，推特账号被无限期暂停](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如果没有人怼我们，怎么体现我们的价值](/content/gnews/9/README.md)
- ` G-NEWS TAIWAN`
-
-### [大直播概要](/content/gnews/10/README.md)
+### [文•贵天成——文贵先生谈“王毅”（十一）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [共产党的生化病毒，在不同的人体或条件下就会爆发出新的病种，五月前能不出去就不出](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
-
-### [大直播后记：gclub卧底的失败](/content/gnews/12/README.md)
+### [文•贵天成——文贵先生谈“王毅”（十）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [关于中华人民共和国南海海洋主张的研究报告](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [1/15/2022 郝董：钊颖用亲身经历证明了中共操纵体育赛事、强迫运动员让球](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
 
-### [以法灭疫，从前天开始了](/content/gnews/14/README.md)
+### [欧盟和世界卫生组织均发出对疫苗“加强针”的危险警告](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [数字货币走向新的时代和法币并存，最后法币被淘汰](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.389 HDO](/content/gnews/15/README.md)
+### [真理放映揭露福奇，推特账号被无限期暂停](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如果没有人怼我们，怎么体现我们的价值](/content/gnews/15/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大直播概要](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党的生化病毒，在不同的人体或条件下就会爆发出新的病种，五月前能不出去就不出](/content/gnews/17/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大直播后记：gclub卧底的失败](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [关于中华人民共和国南海海洋主张的研究报告](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [GTV新闻访谈简报|2022年1月15日晚](/content/gnews/16/README.md)
+### [以法灭疫，从前天开始了](/content/gnews/20/README.md)
+ ` G-NEWS TAIWAN`
+
+### [币圈新闻动态：喜币（HCN）价格目前在42.389 HDO](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [GTV新闻访谈简报|2022年1月15日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [事实、法律、程序的尊 重是爆料革命的基本认知](/content/gnews/17/README.md)
+### [事实、法律、程序的尊 重是爆料革命的基本认知](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等](/content/gnews/18/README.md)
+### [弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新冠患者存活背後的驚天秘密](/content/gnews/19/README.md)
+### [新冠患者存活背後的驚天秘密](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美联储将在几周内发布数字货币的完整报告](/content/gnews/20/README.md)
+### [美联储将在几周内发布数字货币的完整报告](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [Facebook母公司因利用用户数据在英国被起诉](/content/gnews/21/README.md)
+### [Facebook母公司因利用用户数据在英国被起诉](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [这与健康有关系吗？](/content/gnews/22/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！](/content/gnews/23/README.md)
+### [聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！](/content/gnews/28/README.md)
  ` 丁过`
 
-### [防病毒 储物资](/content/gnews/24/README.md)
+### [防病毒 储物资](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [全科医生讲诉拒绝接种中共病毒疫苗的原因](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [欧盟药品监管机构对第四剂加强针的必要性表示怀疑](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [参议员兰德·保罗发起筹款以解雇福奇](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西亚六国外长访华表明中共意图获得对海湾地区影响力](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [日本将中共病毒Omicron密接者隔离期从14天缩短到10天](/content/gnews/29/README.md)
+### [日本将中共病毒Omicron密接者隔离期从14天缩短到10天](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/30/README.md)
+### [在中共病毒疫苗接种的斗争中 职业运动员成为代理参与者](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/31/README.md)
+### [【秘翻在线】杨金宣誓就职为弗吉尼亚州的新州长](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/32/README.md)
+### [扬帆每日速递 2022年1月15日版（2）](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [雅典娜时报-第175期](/content/gnews/33/README.md)
+### [雅典娜时报-第175期](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/34/README.md)
+### [美最高法院阻止企业疫苗强制令 同意医护强制令](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第174期](/content/gnews/35/README.md)
+### [雅典娜时报-第174期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况](/content/gnews/36/README.md)
+### [【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”](/content/gnews/37/README.md)
+### [喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第173期](/content/gnews/38/README.md)
+### [雅典娜时报-第173期](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【中日财经爆】造假专家：为保二十大，中共国经济七策组合联动保五](/content/gnews/39/README.md)
+### [【中日财经爆】造假专家：为保二十大，中共国经济七策组合联动保五](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三头六臂？ 西安“马雪娥”串演穿帮](/content/gnews/40/README.md)
+### [三头六臂？ 西安“马雪娥”串演穿帮](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [雅典娜时报-第172期](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [【中日财经爆】中共加强商票监管 试图缓解金融暴雷](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
