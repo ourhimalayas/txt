@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 11:21 PM (UTC)`
+
+1/16/2022 Miles Guo’s GETTR: Brothers and sisters must be careful not to catch the CCP virus! Those who were forced to make confessions on TV in Zero Tolerance are the same people who invented the forced confession on TV! All forced confessions broadcast on TV are fake, and every detail was arranged by the CCP!<br/><br/>1/16/2022 文贵盖特：兄弟姐妹们千万要小心，不要染上病毒！在《零容忍》中电视认罪的人恰恰是发明电视认罪的人！所有的电视认罪都是假的，一切细节都是共产党安排的！
+![img](https://media.gettr.com/group23/getter/2022/01/16/23/7deb054e-3dd1-28ae-e727-c1cb043b8f54/out.jpg)
+
+---
+
 `@miles 1/16/2022 9:49 PM (UTC)`
 
 1月16日：天哪……<br/><br/>https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367<br/><br/>亚裔女子在纽约地铁站被推下轨道
@@ -149,13 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: The number of followers displayed on Joe Rogan’s GETTR profile page used to be the sum of his Twitter followers and GETTR followers, and the number of followers on these two platforms are now being shown separately on the web version of GETTR. The New Federal State of China has been flourishing in the criticisms of the others, and we must defend everyone's right to speak<br/><br/>1/14/2022 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数；新中国联邦在否定中成长，我们要捍卫每个人说话的权利<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/15/07/366150f7-5c6a-a493-1ea4-d0649997c50a/out.jpg)
-
----
-
-`@miles 1/15/2022 7:15 AM (UTC)`
-
-1/14/2022 Miles Guo: Prior to the Winter Olympics and the 20th Party Congress, the CCP has given YouTube two choices: delete all the accounts that the CCP seeks to censor so that YouTube can enter the Communist Chinese market, otherwise it will be completely blocked. Citizens of the New Federal State of China should be wise and tolerant and adhere to the truth. No need to care about how others think of us<br/><br/>1/14/2022 文贵直播：冬奥会和20大前，中共给了YouTube两个选择：删掉所有敏感账号以进入中共市场，不然将被全面封锁；新中国联邦人要有智慧、有心胸、唯真不破，不必在乎别人的眼光<br/>
-![img](https://media.gettr.com/group20/getter/2022/01/15/07/0a6e9000-3996-4784-e420-16818e4ae29e/out.jpg)
 
 ---
 
