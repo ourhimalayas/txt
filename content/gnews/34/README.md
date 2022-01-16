@@ -2,28 +2,36 @@
 ---
 
 
-## 【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865280/)
+## 美最高法院阻止企业疫苗强制令 同意医护强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865309/)
 
-撰稿：东京樱花团｜知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1234.png)（图片来源于本文链接）
-在北京举行的2022网易经济学家年会上，北京师范大学房地产研究中心主任、教授、博士生导师董藩在会上表示，如果从产业地位来讲，房地产不但是支柱产业，还是主导产业，也还是先导产业。这三大地位，在整个国民经济当中只有房地产一个行业具备，其他行业不是这样的，所以说不是房地产绑架了国民经济，而是它支撑起了中共国的国民经济。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月13日，美国最高法院以6:3的比例阻止了拜登政府对私营公司执行疫苗接种或测试要求的行政令，但以5:4的比例允许对医疗机构实施类似要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1233.png)
+此前，美国职业健康与安全管理局OSHA规定，拥有100名或以上人员的私营企业员工必须接种疫苗或每周提交冠状病毒阴性报告，才被允许进入工作场所。此规定涉及8400万美国人。法院在一份未签署的意见中写道，“尽管国会无可争议地赋予 OSHA 监管职业危险的权力，但它并没有赋予该机构更广泛地监管公共卫生的权力”。
 
-董藩称，这些年来房价一直在上涨，按照周期理论来讲，就不太符合，所以大多数学者一直都认为中共国的房地产行业有问题。这个就要回到这个特殊产业的特殊价格运行：房价原则上是上涨的，下跌只发生在特殊情况之下。
-
-董藩表示，世界各个国家大部分普通家庭买房都是有压力的，一般都要用几十年偿还本金和利息，不能因为买了房子，就认为自己变成房奴了。真正的房奴是一直租房、坚决不买的人，那他就被迫继续租房，被迫把他的钱一直给他的房主，自己赚不到房产增值，还要帮助房主继续还贷款。
-
-董藩以为主子洗地而著称，与环球胡编一样，没有接不住的飞盘。其最著名的战绩是，忽悠众多购房者投资固安房地产，迅猛地炒作了几波雄安、北京新机场和环京概念后，投资者全军覆没于雄安之千年大计和京七环区域，而董藩则仓惶消失于人海中，竟未带走一页诉讼。
-
-在声名狼藉并沉寂数年后，董藩突然出现在门户媒体大放厥词，并忽悠大众接盘，硕大的中共国房地产业已是信用大崩盘了，Two Steps To Hell，全行业崩溃即将到来。
-
-信息来源：[**董藩：若无严厉调控，房价原则是上涨的，下跌只发生在特殊情况下**](https://www.163.com/money/article/GTGH07BP00259IFJ.html)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+然而，在对医护人员的疫苗接种规则的裁决中，多数法官支持这项行政令。理由是，“卫生与公众服务”部门制订规则，是国会授予的权力。但大法官托马斯、阿利托、戈尔苏克和巴雷特对这一裁决持反对意见。阿利托在否定意见书上说，不认为拜登政府能提供国会授权对一千万名医护人员采取前所未有措施的证明。
 
 
+
+总编：Ivy001
+
+编辑：Lakeman文仁
+
+新闻链接：[Supreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,34 @@
 ---
 
 
-## 防病毒 储物资
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1865612/)
+## 弗吉尼亚州州长 格伦- 扬金 （Glen Youngkin） 在上任第一天就签署了 11 项行政令，包括封禁CRT(批评性种族理论) 、结束疫苗强制令、结束学校口罩强制等
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865664/)
 
-撰稿：纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月15日，文贵先生在盖特上再次向战友们呼吁，目前疫情形势非常严峻，感染的战友也非常多，希望大家都注意安全，保重自己和家人的健康，不要掉以轻心。
+编译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/youngkin-inauguration-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT  一月十五日星期六的新闻报道：
 
-文贵先生要求各农场做好安排，尽量帮助战友，为战友提供急需的药物。疫情蔓延得比我们知道的还要严重，太多战友和友人都感染了，一定要做好自己和家人的防护措施，不要到处乱跑。能宅在家里的，就不要出门逛街啦，防疫是一场战争，不要松懈。
+共和党人格伦·扬金周六宣誓就任弗吉尼亚州第 74 任州长。
 
-同时，由于疫情和世界各地的反强制疫苗运动，导致物资短缺，以及供应链岌岌可危等问题。文贵先生特意提醒大家：应该储备一些物资和粮食，比如说，油、盐、粮食和各种生活必需品，以防万一。
+Youngkin 是 10 多年来该州第一位共和党州长。
 
-文贵先生之前也提醒过战友们，要做一些物资的储备。因为，疫情和疫苗灾难导致全球生产力短缺，世界各地物流的拥堵和中断，这些都会造成供应链的断裂危机。为了防备出现物资供应短缺的情况，战友们最好都要储备一些生活必需物资，以防危机来临时，措手不及。
+杨金在 11 月击败了肮脏的克林顿派-特里-麦考利夫（Clintonite Terry McAuliffe），共和党人横扫了整个弗吉尼亚联邦大胜。
 
-文贵先生爱战友的拳拳之心，你我同见：唯爱之深远，为之虑周全。[https://gettr.com/post/pohbz5f05d](https://gettr.com/post/pohbz5f05d)
+11 月，一名女高中生在女浴室被一名穿裙子的“跨性别”男孩强奸后，批判性种族理论和对学校安全的担忧成为弗吉尼亚州选民的首要关心问题。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
-**更多资讯，更多关注**
+“父母应该对学校的教学有发言权，”扬金在就职演说中对全场起立鼓掌的人群说， “对父母，我说我们尊重你。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+就职后，杨金州长立即开始工作，签署了 11 项行政措施。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+扬金州长禁止有极大分歧的批判性种族理论，学校口罩强制令，并退出区域温室气体倡议 (RGGI)。他的第二号行政指令要求取消对所有州雇员的疫苗强制要求， 恢复个人自由和个人隐私。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：[https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/](https://www.thegatewaypundit.com/2022/01/update-virginia-governor-youngkin-signs-11-executive-actions-first-day-office-including-banning-crt-ending-vax-mandate-ending-school-mask-mandate-etc/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发布：LILY
+
+20220115
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 
