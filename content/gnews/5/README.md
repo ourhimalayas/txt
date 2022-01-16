@@ -2,23 +2,37 @@
 ---
 
 
-## 中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1869004/)
+## 有声|Facebook母公司因利用用户数据在英国被起诉
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1869027/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山佛教部 – 李傻
 
-希特勒打仗打完以后，纽伦堡大审判，谁是最后被美国和英国西方联盟救助的人？ 他是一个司令级别的二号人物。最后又当回了西德的国防部长。这个人是曼斯坦因。曼斯坦因最后还是得了癌症，1973年病死了。这么个牛叉的人称为战略大师。
 
-你想想希特勒部队为什么这样的人物没被被审判？又当国防总顾问， 被英国美国放过，还给养老。他主要因为哪两条成为西方保护和丘吉尔保护的人？曼斯坦因最大的两条，一是不杀犹太人和另一个是不杀平民。隆美尔是最贪最贪的人。你知道隆美尔他拥有天下最大对财富知道多少钱吗？ 当时两亿美元，全世界最贪的人，当时的两亿美元相当于今天2万亿都不为过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔.001.jpeg)
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月13日，据相关媒体报道，英国监管机构——金融行为管理局的高级顾问洛夫达赫·戈尔森正在起诉脸书的母公司Meta涉嫌利用用户数据。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据了解，戈尔森将代表英国在2015至2019年间使用脸书的用户对Meta公司提起23亿英镑的集体诉讼。戈尔森表示，脸书滥用其市场主导权，对普通英国人强加了不公平的条款，不合理地要求这些用户在进入该平台时必须提供个人数据。同时，脸书通过收集此类个人数据，从而建立了庞大的用户信息数据库。戈尔森称，该信息库使得Meta近年来赚取了数十亿美元。
+
+报道提及，伦敦竞争上诉法庭近期将审理此案。
+
+文字版原文：[Facebook母公司因利用用户数据在英国被起诉](https://gnews.org/zh-hans/1865625/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

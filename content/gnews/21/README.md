@@ -2,27 +2,36 @@
 ---
 
 
-## 七哥谈彭帅视频事件(一)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1868884/)
+## 有声|美国务院报告称，中共南海索权不符国际法规定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868941/)
 
-整理：雅典娜速记组
-编辑：陶子
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月12日，美国国务院发布《海洋界限》分析报告，称中共国在南海的广泛海洋主张，不符合1982年联合国海洋法公约所反映的国际规范，驳回了中共的主张。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈彭帅视频事件（一）-.jpeg)
+此前，中共一直声称对淹没在海平面以下的百余个岛礁拥有主权，并拥有其领海，还划定直线基线，将东沙群岛、西沙群岛、中沙群岛和南沙群岛等4个岛群全部划入。
+
+原文链接：[美国务院报告称，中共南海索权不符国际法规定](https://gnews.org/zh-hans/1866191/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-彭帅这个事情出来那个视频我反正也看了，刚才那个里头提到了好多那个要点, 就是彭帅作为一个其实在世界上我也去查过她有几个前任，从2009年开始有很多的这个她都是外籍的，这个coach他的教练，但是所以说他要说他英语不能自己写一个很简短的文章说明问题的话，这个我也不太相信，而且她在那个现场真的是。闪烁其词，好几次听不见。这么这么年轻的一个人。我不相信她有听力问题。 还有一个我觉得最奇怪的就是一个北京人，其实她是湖南人。她跑到上海跟一 帮上海人这个姚明啊，王励勤呀，还有另外一个帆船的女运动员，也都是上海 人。一起去看比赛，没有叫一个北京的伙伴或者那个闺蜜去，这个我觉得也是很蹊跷的一件事情，而且最重要的是采访是让新加坡的媒体采访并没有让那你的南华早报呢？你国内的这些所有的其他的媒体，为什么不能采访他?
-
-对，就反正这个里头猫腻很多，这个一看就是假的，我想请所有的其他的嘉宾发发表一下你们的看法。那等一下啊，福利发表之前，我先给大家建立一个情报啊，你不再说，嗯，要不然说完以后咱们就就说远了，我先给大家说一下，感谢大家做的这个视频，我现在今天咱们继续吃播以后严肃地谈这个话题呢，就跟今 天的话题非常接近啊，我再次重申啊彭帅的事件，我们现在了解的非常清楚。 这是有国安委员会叫紧急处理小组亲自来处理的案件。这是我今天第一次说。
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

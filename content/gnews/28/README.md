@@ -2,26 +2,31 @@
 ---
 
 
-## 香草山翻译部周刊|2022年1月16日第31期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1868583/)
+## 扬帆每日速递 2022年1月16日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868608/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、1月16日港闻报道：香港财政司长陈茂波指，为市民舒困须保留财政实力，新一份财政预算案亦要保留实力，确保香港金融稳定。请问财爷，香港金融有多不稳定呢？难道库房沒钱？
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CN-1.png)
-文章仅代表作者本人观点，与Gnews无关
+2、食物及卫生局局长陈肇始指:年初四能否放宽社交距离及晚市堂食要参看多项指标，正研究推出应用程式供处所营运者扫描及检查针卡。一切为了强制疫苗的政治目的！
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+3、欧盟监管机构发出警告，频繁接种中共病毒加强针可能会对免疫系统产生不利影响，并且可能不是对抗中共病毒疫情的可行方法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-12.jpg)
+4、参议员比尔·哈格蒂在福克斯的“Mornings with Maria”节目中表示，拜登政府对推动对中共病毒起源进行全面调查“做得还不够”，而且现在正是开始制裁包括武汉病毒研究所在内的中共国机构的时候。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5、据文贵大直播：中共邪恶政权自建国以来就用商鞅《驭民五术》分区分族奴役人民，最核心就是穷其所命，无限忙碌，疫苗就是愚民成功的结果。
+
+6、据文贵大直播：中共政权就是要通过病毒和疫苗，把人民圈在家里、制造宵禁、抢劫财富，最终实行网格化管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-16海报1简新_page-0001.jpg)
+**加拿大温哥华扬帆农场 海报组**
+
+素材提供战友：Revelation熙攘、文敏、Kannie文勤
+
+海报图片设计：飞天面、 Shuang
+
+编辑：文敏
+
+发布：风起云间（文敏）
 
  
 
