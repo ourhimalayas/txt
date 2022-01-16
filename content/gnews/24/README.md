@@ -2,34 +2,50 @@
 ---
 
 
-## 加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1866954/)
+## 被终生圈禁的中国人民猪狗不如没有比中国人再可怜的了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1867254/)
 
-翻译：坤哥
-校对：zzballack
-上传：追着曙光跑
+G-TV视频链接：[https://gtv.org/video/id=61e3d17487664c47acd558a3](https://gtv.org/video/id=61e3d17487664c47acd558a3)
 
-据《每日曝光》（Daily Expose）2022年1月15日报道，据称加拿大温哥华的麦当劳叔叔之家（the Ronald McDonald House）正在考虑驱逐那些无法为其身患绝症的孩子提新冠疫苗接种证明的家庭。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-16-at-17.56.46.jpeg)图片来源：原新闻
-奥斯汀·弗加森（Austin Furgason）是一位身患白血病的四岁孩子的父亲，孩子自去年10月以来一直在该麦当劳叔叔之家接受治疗。他被告知除非他的儿子接种疫苗，否则孩子将不得不离开该机构。弗加森不是唯一一位被告知此事的父母。
+**郭文贵先生：**所以你问这些问题，哎呀，嘿，风雨之中，你们太不了解中共了，十几亿人创造的财富和美好生下的美丽的孩子都让谁享受？你有机会享受吗？你有钱都没有机会享受。那个，什么叫社会主义？有关系才有主义，什么叫社会主义？有权力才有主义。什么叫共产主义，死越来越多的人，把财富集中在几个人身上，享受一切的，爹亲娘亲不如党亲，那就叫共产主义。
 
-弗加森1月12日在推特上发布了一个视频，分享了他儿子的故事。视频记录了他与该机构经理的交流过程。该经理坚持认为孩子必须接种疫苗，“以降低整个场所的风险”。
+你问这问题不是太天真，你是站在日本问中共的问题嘛，这不太傻了吗，是吧？你现在自己穿着西装，问猪圈里的猪，哎，你怎么吃猪食的？是吧，猪就会告诉你，我就是猪，欸，我发现你不是猪，你是郭文贵，你只是穿了猪皮而已。诶是吗？我这时候我要摘下来，脱下来猪皮，欸，我就是郭文贵，我是七哥，就这么简单的事儿。
 
-弗加森认为“这毫无道理”。他还说，根据政府官员的说法，注射疫苗后不会传播病毒，因此他的儿子不应被强迫离开此设施。然而，经理拒绝听从他的辩护。于是，弗加森在社交媒体上曝光了这个麦当劳叔叔之家。
+我们战友们所有，你看对昆仑山，对喜马拉雅山的解释，最高境界的就是叶钊颖，去过，上过山，这是最高境界的，感觉雪山纯洁。找了昆仑山一个正常的解放军军事基地你就以为解密了？你能知道几个峰你就不错了，你想想多可悲呀。
 
-弗加森写道：“所有未接种疫苗的房客、成年人和5岁以上儿童在1月底前都要离开，这是多么的邪恶和卑鄙！新冠病毒邪教远比新冠病毒本身更危险。如果他们会驱逐患有癌症的家庭，那还有什么事他们做不出来？”
+你真的以为，你知道吗？你啥都不知道。这就是共产党，把所有中国人卷在一个圈里，在家里边儿，在东北的炕上，在中国的小房子里边儿，在农民的地里边儿，在南方的所谓工厂里，让你终生只能眼观土地，然后你的腚撅给共产党，它想干啥就干啥。没比中国再可怜的了。
 
-真北新闻（True North news）获得了这位父亲从麦当劳叔叔之家收到的信件的副本。信件中解释说，新的疫苗强制令将于1月17日开始，已经在该机构或者家庭室（Family Room）的家庭必须在1月31日前接受至少一剂疫苗，否则将被强行驱逐。
+就今天的阿富汗，我认为都比中国人幸福。现在每时每刻我在说阿富汗在饿死人，是共产党的原因。阿富汗人最起码还有个教的选择呢，我们中国人没有比再可怜的了，就这个羊群之可怜，你说中国人是羊的时候太侮辱羊了，太侮辱羊了。羊还能长出个毛，还能，是不是啊？呼吸呼吸，吃个健康地草。
 
-该信告诉收件人说， “到我们的前台扫描你的不列颠哥伦比亚省（BC）疫苗护照，确认疫苗接种证明，或者提供12岁以下孩子的疫苗接种卡”。
+中国人吃啥？绝大多数中国人吃的是化学食品。日本人你看到，日本人，见日本人吃中国人的调料，吃中国饭的吗？你在日本见过吗？只要中国来的料，日本人连闻都不闻，扔得远远的。你觉得都是人类还有比我们再可怜的吗？
 
-这项新政策适用于 “所有在我们机构工作、停留或前来拜访的五岁及以上人群”，这意味着它包括患病儿童的家人和朋友。
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-除非一个家庭能够证明它获得了不列颠哥伦比亚省麦当劳叔叔之家（RMH BC）书面上明确批准和同意的便利，否则他们在2月1日就得离开该机构。
+编辑整理：Jacques；
 
-点评：疯狂的疫苗强制接种政策让无数的人们在这个混沌的世界里难分善恶真假，只会一味地执行邪恶政权和政府的规定。至暗时刻，新中国联邦借人类一双慧眼，把这世界的邪恶和黑暗看个清清楚楚，明明白白。爆料革命传递真相，星火燎原，人类定会迎来正道主义和信仰的新世界。
+字幕文件制作：小满；
 
-信息来源：[Ronald McDonald House To Evict 4-Year-Old Child With Leukemia For Being Unvaccinated](https://dailyexpose.uk/2022/01/15/ronald-mcdonald-house-to-evict-4-year-old-child-with-leukemia-for-being-unvaccinated/)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,24 +2,53 @@
 ---
 
 
-## 世界已被唤醒 澳洲多地爆发反中共病毒疫苗游行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867334/)
+## 土著男子背父穿越丛林接种新冠疫苗 父亲几周后去世
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867432/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1265.png)[图片来源](https://www.scmp.com/news/asia/australasia/article/3161262/coronavirus-australia-tops-10000-daily-cases-indonesia)
-澳大利亚新州、维州多地爆发反中共病毒（COVID-19）疫苗游行抗议。
+翻译： Jenny Ball
 
-1月15日，悉尼和墨尔本的抗议者走上街头，反对疫苗接种和网球明星德约科维奇的第二次签证取消。由于数千人游行反对为儿童接种中共病毒疫苗，悉尼警方关闭了 CBD 的部分地区。人群从阿尔弗雷德王子公园蜿蜒到海德公园。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1270.png)图片来源:thegatewaypundit.com
 
-据悉，截至目前，澳大利亚有近2000 万人完全接种了中共病毒疫苗。
+即使是生活在世界上最偏远地区的土著部落，也是世界新秩序的优先目标。
 
-2020年初以来，爆料革命、新中国联邦不断传播中共病毒（COVID-19）和疫苗真相，而澳大利亚作为一个被中共严重腐蚀的国家，民众能走上街头，这已经表明正义已被唤醒，共产党的病毒和疫苗的危害即将大白于天下。
+这张24 岁的图威（Tawy）背着他 67 岁的父亲瓦胡（Wahu）前往巴西亚马逊地区的 Covid-19 疫苗小屋的照片在网上疯传。
 
-信息来源：[澳大利亞新州維州多地爆發反covid疫苗游行抗議](https://gettr.com/post/pokua3df3d)
+属于佐伊（Zo’e）土著社区的 Tawy 和 Wahu “在帕拉州北部地区的数十个村庄中那里就相当于 120 万个足球场的面积，相对与世隔绝孤立地生活”，但“不得不在森林中步行数小时，才能到达疫苗接种处 ，” BBC 报道。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据报道，瓦胡患有慢性泌尿问题和视力丧失。
+
+“这是他们之间可爱关系的一个非常美丽的展示，”拍摄照片的埃里克·詹宁·西蒙斯医生说。
+
+可悲的是，疫苗接种的危险旅程并没有帮助瓦胡的健康和他的疾病。
+
+BBC 指出，这张照片展示了为 100% 的全球人口进行疫苗接种的暴虐推动，“象征着最偏远地区之一的疫苗接种工作”，并补充说，“9 月，Wahu 死于不明原因。 Tawy 和家人在一起，最近已经接种了第三剂疫苗。”
+
+根据大流行监测平台《信息追踪》（Info Tracker）进行的研究，在注射两剂 Covid 疫苗或单次注射强生疫苗后的六个月内，近 10,000 名巴西人死于 Covid。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1272.png)图片来源:thegatewaypundit.com
+
+为了给土著人接种疫苗，护士们乘坐小型飞机旅行数小时，再换乘坐小船穿越复杂的水道。
+
+为土著人民接种疫苗是卫生团队的“优先事项”，但由于他们的村庄彼此隔离，这是一项“不切实际”的任务。西蒙斯医生说，医护人员求助于在森林中搭建小屋，疫苗接种系统“通过无线电与社区达成一致”。
+
+“我们采取了尊重并考虑到 Zo’é 人的文化和知识的做法，”他说。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1274.png)图片来源:thegatewaypundit.com
+
+新闻来源:[thegatewaypundit.com] [Indigenous Man Carried His Father For Hours Through The Jungle To Get Covid Vax — Then Father Dies Weeks Later](https://www.thegatewaypundit.com/2022/01/indigenous-man-carried-sick-father-hours-jungle-get-covid-vax-healthcare-teams-prioritized-jabs-aboriginal-community/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

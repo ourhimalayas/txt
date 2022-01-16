@@ -2,34 +2,26 @@
 ---
 
 
-## 美两党议员提案应对中共垄断稀土资源
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
+## 奥密克戎毒株来袭冬奥会在即的北京
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866221/)
 
-撰稿：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
-该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-42.png)（图片源自本文链接）
+1月15日共同社北京消息：15日北京市政府宣布，已确认该市海淀区出现一例社区获得性奥密克戎毒株感染病例。
+
+这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
+
+感染途径不明，过去两周没有离开过北京，也没有与任何感染者有过密切接触，该迹象表明感染可能已经在整个北京蔓延。
+
+中共政府在15日的新闻发布会上宣布，13日和14日在上海、广东省的珠海，以及同省的中山，得到报告的中共病毒（新冠病毒Covid-19）感染是奥密克戎毒株。可见感染者有可能涉及的地理范围很广泛。
+
+信息来源：[北京でオミクロン初確認　五輪目前、上海や広東省でも（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a4db086e211da98197e8e6cee2aaed0b5064a91)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
-
-新闻连接：
-
-[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,37 @@
 ---
 
 
-## 从深圳房租跌回4年前水平看中共墙内经济
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1867286/)
+## 英国卫生部长表示将于本月取消疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867383/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-144.png)图片来自网络
-根据深圳中原研究中心监测的数据显示，2021年深圳全市房屋租金呈下跌趋势，2021年租金平均约72元/平方米，下跌5.5%。与2019年相比，深圳租金下跌幅度约为11%。2017年6月，深圳租金平均为72元/平方米。这意味着，深圳一线城市的租金水平已经回到4年前，可想中共墙内三四线城市的状况应该会是更加的惨烈。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月13日，英国卫生部长萨吉德·贾维德宣布，将在本月内彻底取消疫苗通行证。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-10.jpg)
+贾维德表示，经历了一轮奥密克戎历史性的传染高峰之后，新增病例在一周内下降了40% ，住院人数未见明显增长。鉴于“突破性感染”令人惊异的数据，以及疫情的迅速减缓，已经充分证明疫苗通行证无效，并将在未来两周内取消这一政策。此外，多位议员表示，奥米克戎肆虐期间，已接种疫苗人群的高传染率和高致病率，也证明了疫苗通行证没有必要存在，并对政府取消疫苗通行证的措施表示欢迎。
 
-首先，我们可以看到深圳作为广东省乃至全国最强有力的经济大都市，现在出现房租的暴跌状况，这个房租包括写字楼和住宅数据，可以折射出倒闭的企业比比皆是，失业的员工遍布各个行业。虽然中共前一段时间吹嘘的回乡创业人数逐渐上升，这个谎言背后就是倒闭企业激增，失业人口失控导致的。现在的一线城市空置的房屋数量让中共的造假数据再一次被验证。
+与此同时，威尔士第一部长也宣布，将于本月底解禁新冠疫情限制。
 
-其次，随着恒大的崩盘，国内房企都纷纷暴露出负债数据，这个泡沫让人看到了中共倒台的加速度在不断加码。文贵先生说过，中共经济的关键支撑之一，就是中共的房地产，如果一旦崩盘，中共瞬间脆断。前一段时间跟一个房企的朋友聊天，具她反馈，目前他们公司负责前端拿地，做方案的几百号人，都已经将近一年没有工作可做了。这些人在年底即将被裁员，目前留守的部分人员主要包括客服人员，销售人员，其他部门的都在按照计划离开公司。恒大之火在不久将来会燃烧到整个华夏大地。终将是葬送中共的一根强烈有力的稻草。
+参考链接：
 
-最后，我们看到中共墙内的经济如此惨淡，希望在墙内的战友们紧跟爆料革命新中国联邦，紧跟文贵先生的大直播，在做好防毒防疫苗的同时，要备好粮食和必需品，为2022年到来的至暗时刻做好准备，努力活下去，我们要一起见证中共灭亡的那一时刻。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+- [England ‘WILL scrap Covid passes and WFH at the end of the month’ because they are ‘hard to justify’ now that Omicron is subsiding — with masks on trains and in shops the only curb left](https://www.dailymail.co.uk/news/article-10400971/Sajid-Javid-scrap-Covid-passes-fortnight.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

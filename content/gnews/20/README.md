@@ -2,21 +2,19 @@
 ---
 
 
-## 【中日财经爆】中共病毒导致劳动力不足 各国港口出现梗塞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867211/)
+## 天津疫情又起 多少人遭受磨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867285/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh6.googleusercontent.com/RsHS5LUmBOLpiX-72KtCmVWW_ICm8YsdDS0fogodzt2F9JBD4DCBcD6T9nY8cvzK7FcTA6Hn8dOyoEFk4jaXAvC_i7Zv1sJ4KmB2hnzi3ICtmJ5mGVXdTNmjWuInvNsCkiQFuaOz)[*图片来源*](https://www.syngula.co.jp/wp-content/uploads/2021/05/%E5%9B%B31-1-1015x698.jpg)
-随着中共病毒奥密克戎变异株的广泛传播，全球物流停滞现象日益加剧。疫情持续影响下，因“宅家需求”增加，货物量激增，但因疫情蔓延和加强检疫导致装卸劳动力不足，港口功能明显恶化，集装箱船拥挤已成为常态。运输成本也在上升，日常产品在日本的流通与销售也受到影响。
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1256.png)[图片来源](https://udn.com/news/story/7332/6029559)
+1月16日，在第170场天津市新型冠状病毒肺炎疫情防控工作新闻发布会上天津市卫生健康委二级巡视员、新闻发言人何鹏介绍，自2022年1月15日6时启动，截至16日6时，全市第三次全员核酸检测累计采样检测12431636人，共检出59例阳性，均来自津南区，其中隔离点23例，居家隔离31例，封管控区5例。
 
-在美国，连接亚洲的枢纽——美国西海岸的洛杉矶港和长滩港，集装箱船的拥堵状况也毫无改善。 一位有关人士表示，由于消费者信心恢复，集装箱数量有所增加，但已超出港口的处理能力。
+中共疫情防控手段原始粗暴，动辄全民核酸检测、封城管控。由此所带来的核酸检测聚集感染，饿死冻死和生病延误救治的次生灾难数不胜数。
 
-爆料革命、新中国联邦发起者郭文贵先生多次在直播中提醒听众千万要备点物资。各国大卡车协会、各种工会，因强制疫苗的问题都要罢工，世界上各种物资价格飞涨，家里最起码要备点面、油、盐，希望战友们认真对待。
+信息来源：[天津第三次全员核酸检测共检出59例阳性](https://mbd.baidu.com/newspage/data/landingsuper?isBdboxFrom=1&amp;pageType=1&amp;context=%7B%22nid%22%3A%22news_8555254453052629790%22%7D)
 
-信息源：[**世界の物流、コロナ下で停滞　輸送費も高騰、日本にも影響**](https://news.yahoo.co.jp/articles/ac32448a108591d413fd4118f9ecdbbf0bcf12ac)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

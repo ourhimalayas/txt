@@ -2,24 +2,40 @@
 ---
 
 
-## 应美国要求，俄罗斯联邦安全局拘留14名黑客
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866216/)
+## 马斯克宣布，特斯拉部分商品已支持狗狗币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866489/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-22.png)[图片信息源](https://news.yahoo.co.jp/articles/69984ce21d710382aaa140dc2aaa705db24ecdad#:~:text=%E3%83%88%)
-TBS新闻1月16日报道，俄罗斯情报机构FSB联邦安全局14日宣布，应美国政府的要求FSB已经拘留了14名总部设在俄罗斯的黑客组织REvil的成员。据称，REvil利用一种”勒索软件”对美国及世界各地的公司发起网络攻击。他们在对该据点的搜查中缴获了电脑、大量现金和豪华汽车。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据路透社报道，该组织的一名成员去年5月涉嫌参与了对美国最大石油管道网络攻击。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-美俄在去年6月的首脑会议后，就网络安全问题展开了讨论。当下，在乌克兰紧张局势加剧的情况下，俄罗斯对美国的这一要求做出了回应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CVDZNNYZ7KWB2KZ1BQ7@S.png)图片来源：Bitcoin.com
 
-信息源：
 
-[ロシア連邦保安局 米要請受けハッカー集団拘束](https://news.yahoo.co.jp/articles/62446b26d3fd516c00c078cf489772d1b896914d#:~:text=%E3%83%88%E3%)
+当地时间1月14日，据界面新闻报道，特斯拉董事长马斯克在社交媒体宣布，特斯拉商品将支持加密数字货币（狗狗币）支付。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+当日，在特斯拉北美官网的部分商品已实现狗狗币支付。分别是“Cyberwhistle哨子”、“Cyberquad for Kids儿童摩托”、“Giga Texas Belt Buckle皮带扣”。但是目前特斯拉并不支持使用狗狗币购买汽车产品。
+
+数日前，已有人在特斯拉官网开发者选项中发现了“狗狗币”的代码。
+
+特斯拉官方解释说，狗狗币是一种加密数字货币，且特斯拉强调只支持狗狗币，不支持其余加密货币。一经购买，将不支持退货。
+
+特斯拉一度曾支持比特币支付（购车），但不到两个月的时间，马斯克宣布特斯拉停止使用比特币购买汽车产品。
+
+截至发稿前，狗狗币的价格为0.19美元，单日涨幅约为10%。此前，马斯克曾自称“狗狗币教父”，并表达了对狗狗币的喜爱。
+
+新闻链接：[马斯克宣布特斯拉商品支持狗狗币支付，除了买汽车](https://www.jiemian.com/article/7013627.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
