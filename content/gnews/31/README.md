@@ -2,46 +2,39 @@
 ---
 
 
-## Facebook因利用用户数据在英国面临32亿美元的集体诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1866416/)
+## 马斯克宣布，特斯拉部分商品已支持狗狗币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866489/)
 
-![Mark Zuckerberg deep in thought (Drew Angerer /Getty)](https://media.breitbart.com/media/2021/08/Mark-Zuckerberg-deep-in-thought-640x480.jpg)Facebook（脸书）的创始人兼首席执行官扎克伯格（资料图）
-来自《布赖特巴特新闻网》2022年1月14日的报道，瘾科技(Engadget)报道说，脸书(Facebook,现在的Meta)正面临一场重大的法庭诉讼，一位法律专家已经开始与一家诉讼公司合作，代表英国的4400万Facebook用户起诉该公司。该集体诉讼称，英国用户的数据被利用，此举违反了竞争法。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-该诉讼为英国Facebook用户寻求23亿英镑(32亿美元)的赔偿，该诉讼由专门研究竞争法的利萨·洛夫达尔·戈尔姆森(Liza Lovdahl Gormsen)博士提起的。接手此案的因斯沃思(Innsworth)律师事务所为此案提供资金，以换取所赢得的一部分损害赔偿金。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-该诉讼称，虽然用户使用Facebook不需要付费，但他们提供给该社交媒体平台的信息是有价值的。洛夫达尔·戈尔姆森在一份声明中说：“他们正在通过获取用户的个人数据来利用用户谋利，却没有为获取这些数据对用户作出适当的补偿。我认为用户在点击条款和条件时并不完全清楚这种交易有多不公平。”
-
-戈尔姆森补充说，Facebook已经成为“英国唯一的一处你可以确保与朋友和家人联系的社交网络平台”。诉讼进一步指出，Facebook通过Facebook像素(Facebook Pixel)在整个互联网上广泛地追踪其用户，对此《布赖特巴特新闻网》曾做过报道。
-
-洛夫达尔·戈尔姆森说：“它滥用其市场支配地位，对普通英国人强加不公平的条款和条件，赋予它利用他们的个人数据的权力。”
-
-诉讼涉及的时间段为2015年10月至2019年12月31日。该诉讼是一个“选择退出”的集体诉讼，这意味着用户不需要提供任何形式的同意书就可以从该案件中获得损害赔偿，除非他们选择退出。
-
-简评：
-
-Facebook公司去年宣布把名字换成Meta，有网民根据其英文发音调侃“非死不可”进一步换成了“埋它”。这种调侃背后也有其严肃的理由。过去数年来，Facebook违法地滥用市场支配地位，利用客户数据谋利，对发布所谓的“敏感信息”的用户进行言论审查和信息屏蔽，甚至封号。
-
-去年1月，川普总统被Facebook和旗下Instagram禁言并暂停账号，为期两年。在香港大游行期间，有用户反映在Facebook发布的一些真实情况因“涉及敏感信息”很快被屏蔽或下架。Facebook 已经彻底沦为政治极权的工具。
-
-公司为逃避法律缠诉而换名字，那只是“换汤不换药”。在社交媒体高速发达的信息时代，大众需要的是能接收真实信息、保证个人数据安全和能自由发声的网络平台，我们爆料革命的GTV，Gnews，GETTR等媒体平台就属于这类平台。Facebook如果还继续无视法律约束，无视客户隐私，压制和审查公众言论，其最终将会被大众放弃，而我们爆料革命的媒体平台也将顺势崛起。
-
-新闻链接：[https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
-
-翻译/简评：JS
-
-PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CVDZNNYZ7KWB2KZ1BQ7@S.png)图片来源：Bitcoin.com
 
 
-编辑：【英国伦敦喜庄园编辑部】
+当地时间1月14日，据界面新闻报道，特斯拉董事长马斯克在社交媒体宣布，特斯拉商品将支持加密数字货币（狗狗币）支付。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+当日，在特斯拉北美官网的部分商品已实现狗狗币支付。分别是“Cyberwhistle哨子”、“Cyberquad for Kids儿童摩托”、“Giga Texas Belt Buckle皮带扣”。但是目前特斯拉并不支持使用狗狗币购买汽车产品。
+
+数日前，已有人在特斯拉官网开发者选项中发现了“狗狗币”的代码。
+
+特斯拉官方解释说，狗狗币是一种加密数字货币，且特斯拉强调只支持狗狗币，不支持其余加密货币。一经购买，将不支持退货。
+
+特斯拉一度曾支持比特币支付（购车），但不到两个月的时间，马斯克宣布特斯拉停止使用比特币购买汽车产品。
+
+截至发稿前，狗狗币的价格为0.19美元，单日涨幅约为10%。此前，马斯克曾自称“狗狗币教父”，并表达了对狗狗币的喜爱。
+
+新闻链接：[马斯克宣布特斯拉商品支持狗狗币支付，除了买汽车](https://www.jiemian.com/article/7013627.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

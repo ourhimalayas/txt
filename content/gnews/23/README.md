@@ -2,215 +2,24 @@
 ---
 
 
-## 每日快报：川普最新集会，美国人民 &#8220;想要赢回他们的国家&#8221;
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1866902/)
+## 系杨大林 高中生(18岁)起诉韩国政府之后又一名高中生起诉 韩国政府！
+` STHK` [轉載自GNews](https://gnews.org/zh-hans/1866923/)
 
-*作者：GSeries*
+STHK001
+![](https://assets.gnews.org/wp-content/uploads/2022/01/그림4.png)
+系杨大林 高中生(18岁)起诉韩国政府之后又一名高中生起诉 韩国政府！
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+大邱市的一名高中生向联合国人权理事会起诉韩国政府的事实被曝光后，引起了社会的热议。
 
-# ***今日摘要***
+主人公是就读于大邱外国语高中2年级的 郑道大 学生（18岁），上月27日向联合国人权理事会（UNHRC•以下简称理事会）起诉了韩国政府。
 
-1. [**川普亚利桑那拯救美国2022首场集会正在Gettr直播中**](https://www.gettr.com/streaming/pohqtd3ad7)
-2. **[川普：美国人民 “想要赢回他们的国家”](https://www.newsmax.com/newsfront/save-america-rally-arizona-battleground/2022/01/15/id/1052581/)**
-3. **[泄露的Fauci财务数据揭示了百万富翁医生如何从大流行病中获利](https://www.zerohedge.com/markets/fauci-financials-expose-how-millionaire-doctor-profited-pandemic)**
-4. [**新信息显示威斯康星州议长罗宾-沃斯是在全国范围内插入投递箱的亲密幕后人员**](https://www.thegatewaypundit.com/2022/01/exclusive-new-information-shows-wisconsin-speaker-robin-vos-intimately-behind-insertion-illegal-drop-boxes-state-across-country/)
-5. [中共经济难以转圜 全面衰退已成定局](https://gnews.org/zh-hans/1865212/)
+郑某虽然也不想接种疫苗，但因补习班使用受到限制等日常生活不便，所以完成了第二次接种。
 
+侵害没有接种疫苗的学生的受教育权，限制食堂使用的防疫通行证存在侵害人权的因素。” 并表明了起诉理由。郑某在诉状中指出：”虽然目前疫苗的安全性尚未得到保障，但我国的防疫通行证制度过分限制了未接种疫苗者的行为。
 
-# 重要事件
+“郑某说：”政府确实应该有权对公民享有的某些权利进行监管，但随着泛魔时代的到来，对’传染病隔离规则’的监管变得过于严格，其中一些权利可能被视为侵犯人权。特别是被称为”防疫通行证”的韩国的一些规定，其程度非常严重。因此，根据论文，在接种新冠病毒疫苗后，除了心肌炎或血栓症外，还可能存在与不孕症、脱发、月经紊乱等荷尔蒙相关的长期副作用。”
 
-- [** 01.16. Gettr：川普亚利桑那拯救美国2022首场集会正在Gettr直播中**](https://www.gettr.com/streaming/pohqtd3ad7)
-
-
-川普总统将在亚利桑那州主持一个巨大的拯救美国集会。在这个重要的日子里，你可以同时观看和评论最热门的内容的唯一地方是GETTR!
-
-GETTR是唯一的社交媒体平台，在这里你可以自由地观看和讨论川普总统的演讲，而不必担心被取消、审查或被从互联网上清除掉。不要让大公司告诉你可以或不可以说什么。
-
-我们已经受够了媒体压制，你呢？在[GETTR](http://gettr.com/)，通过RSBN(@RSBNetwork)观看川普总统的自由集会直播。
-
-
-
-- **[01.16. NewsMAX：川普：美国人民 “想要赢回他们的国家” Trump: American People ‘Want Their Country Back’](https://www.newsmax.com/newsfront/save-america-rally-arizona-battleground/2022/01/15/id/1052581/)**
-
-
-前总统唐纳德-川普周六重返竞选式集会，他告诉他的大批群众 “出去投票，并确保这不是一场被操纵的投票，请”。
-
-“这群人是一个巨大的象征，因为人民渴望了解真相：他们希望他们的国家回来，”川普在亚利桑那州佛罗伦萨举行的拯救美国集会上说。”我想让他们的国家回到开放的边界和糟糕的选举之间，我们一直被认为是一个拥有公平选举的美丽国家，而现在我们因为很多原因成为全世界的笑柄。”
-
-川普首先拒绝了媒体就2020年总统选举中的选民欺诈指控所进行的叙事斗争。”他们总是谈论大谎言，大谎言，但蹩脚媒体的假新闻拒绝，他们拒绝，他们拒绝，他们拒绝谈论它，”川普说。”他们继续拒绝谈论它。他们说，’虽然它没有证据’和’大谎言’。
-
-“大谎言是大量的胡说八道。这就是它，因为他们是激进的左派民主党人的囊中之物，也就是那些正在摧毁我们国家的人。”川普指出，俄罗斯的普京和中国的习近平最近的言论是乔-拜登总统在世界舞台上 “羞辱 “美国的一个例子。
-
-
-
-- [** 01.15. The Gateway Pundit：独家：新信息显示威斯康星州议长罗宾-沃斯是在全国范围内插入投递箱的亲密幕后人员** **EXCLUSIVE: New Information Shows Wisconsin Speaker Robin Vos Was Intimately Behind the Insertion of Drop Boxes Across the Country**](https://www.thegatewaypundit.com/2022/01/exclusive-new-information-shows-wisconsin-speaker-robin-vos-intimately-behind-insertion-illegal-drop-boxes-state-across-country/)
-
-
-威斯康星州的新信息显示，该州议长罗宾-沃斯比以前所知的更密切地参与了投票箱的创建。 这些投票箱是从川普总统手中窃取2020年选举的关键的一部分，沃斯也参与其中。我们曾经报道过威斯康星州议长罗宾-沃斯的情况，以及他与本州2020年选举盗窃案的关系，以及他没有努力查清事情的真相。 他许诺了月亮，但甚至没有提供月亮饼。
-
-我们在2020年12月发现，沃斯议长已经签字同意在威斯康星州使用2020年选举的投票箱。但这个故事还有更多的内容。 威斯康星州代表Tim Ramthun把他所在的州在2020年大选前发生的事件整理成了一份出色的清单。 其中包括对威斯康星州 “共和党 “众议院议长罗宾-沃斯的令人震惊的披露。
-
-Ramthun接着讨论了穆勒的上述案例，他指出，沃斯领导的组织–国家公务员协会与CISA（由腐败的Chris Krebs领导，后来被川普总统放走。 Ramthun指出，”CISA和NCSL在运动中把他们的网站连接起来，以 “信任选举官员 “和 “阻止错误信息和虚假信息的传播”。 然后，克雷布斯 “与CISA和NCSL合作，重复 “没有证据表明存在选民欺诈 “的信息。
-
-Ramthun继续指出，有500多个投放箱被插入威斯康星州的选举中，而威斯康星州选举委员会（WEC）也知道此事。 这些投放箱后来在威斯康星州的另一个选举案件中被裁定为非法。
-
-
-
-- **[01.15. ZeroHedge：泄露的Fauci财务数据揭示了百万富翁医生如何从大流行病中获利 Leaked Fauci Financials Expose How Millionaire Doctor Profited From Pandemic](https://www.zerohedge.com/markets/fauci-financials-expose-how-millionaire-doctor-profited-pandemic)**
-
-
-最后，在一些组织试图起诉安东尼-福奇博士以使其公开后，这位好医生的财务状况–以及他的妻子，也就是美国国立卫生研究院的顶级生物伦理学家的财务状况–已经被详细披露。而这些信息是由上周被福奇称为 “白痴 “的参议员泄露的。
-
-我们已经知道，福奇博士是收入最高的联邦政府雇员，年薪超过40万美元。他的妻子克里斯蒂娜-格雷迪（Christine Grady）作为美国国立卫生研究院（NIH）生物伦理学部门的主管，收入为17.6万美元。
-
-共和党人罗杰-马歇尔（Roger Marshall）自己也是一名医生，同时也是堪萨斯州的初级美国参议员，他公布的记录显示，福西夫妇的净资产总额超过1000万美元。
-
-正如《每日邮报》所解释的那样，80岁的福奇自1984年以来一直领导国家过敏和传染病研究所，如果他继续工作到2024年拜登任期结束，作为总统的首席医学顾问将赚取大约250万美元。当他退休时，Fauci的退休金将是美国历史上最大的，每年超过35万美元。
-
-需要提醒的是，福奇医生再次向国会撒谎，坚称他的财务状况是公开的，但实际上并不公开（在被堪萨斯州的参议员泄露之前，就是这样）。虽然这位医生坚称他没有从大流行病中获利，但他的文件显示，他和他的妻子获得了14,000美元的报酬，以 “实际 “参加一系列与他作为国家事实上的COVID沙皇的地位直接相关的晚会。
-
-
-
-- [** 01.16. GNEWS：**中共经济难以转圜 全面衰退已成定局](https://gnews.org/zh-hans/1865212/)
-
-
-日本著名评论家宫崎正弘分析中共国经济已日暮西山，泡沫破裂已成定局。中共国经济的衰退始于2015年。为了应对当年8月15日的上海股灾，当局采取了任何正常国家都不会出现的“粗暴疗法”。市场实际上被冻结了，当局命令不得出售股票并惩罚恶意卖空者，并从幕后向证券公司注入资金，设法使市场保持活力。
-
-但这种“强心剂”疗法招致了更凶猛的泡沫。大规模破产之所以勉强避免，是因为欧美基金还继续在中共国投资，另，外国公司在中共国的维持还可继续赚取外汇。
-
-在中共国内，出现了“史无前例的房地产投资”。从房地产销售到广告代理等一系列产业，占了中共国GDP30%左右。然而所有相关行业目前都很萧条，2021年第一季度的违约率上升了24.3%。
-
-# 每日文贵说
-![](https://assets.gnews.org/wp-content/uploads/2021/05/G2101018_X_CN_1.jpg)
-# 更多要闻链接
-
-1. [洪阿哈阿帕伊岛火山再爆海啸扑3国　汤加警报声大作民众尖叫逃命](https://www.rfi.fr/cn/%E7%94%9F%E6%80%81/20220115-%E6%B4%AA%E9%98%BF%E5%93%88%E9%98%BF%E5%B8%95%E4%BC%8A%E5%B2%9B%E7%81%AB%E5%B1%B1%E5%86%8D%E7%88%86%E6%B5%B7%E5%95%B8%E6%89%913%E5%9B%BD-%E6%B1%A4%E5%8A%A0%E8%AD%A6%E6%8A%A5%E5%A3%B0%E5%A4%A7%E4%BD%9C%E6%B0%91%E4%BC%97%E5%B0%96%E5%8F%AB%E9%80%83%E5%91%BD)
-2. [中国资本收购法国公司的海市蜃楼](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20220116-%E4%B8%AD%E5%9B%BD%E8%B5%84%E6%9C%AC%E6%94%B6%E8%B4%AD%E6%B3%95%E5%9B%BD%E5%85%AC%E5%8F%B8%E7%9A%84%E6%B5%B7%E5%B8%82%E8%9C%83%E6%A5%BC)
-3. [春节前夕中国疫情蔓延 北上广深皆出现新病例](https://www.dw.com/zh/%E6%98%A5%E8%8A%82%E5%89%8D%E5%A4%95%E4%B8%AD%E5%9B%BD%E7%96%AB%E6%83%85%E8%94%93%E5%BB%B6-%E5%8C%97%E4%B8%8A%E5%B9%BF%E6%B7%B1%E7%9A%86%E5%87%BA%E7%8E%B0%E6%96%B0%E7%97%85%E4%BE%8B/a-60434163)
-4. [中伊宣布启动25年全面合作协议](https://www.dw.com/zh/%E4%B8%AD%E4%BC%8A%E5%AE%A3%E5%B8%83%E5%90%AF%E5%8A%A825%E5%B9%B4%E5%85%A8%E9%9D%A2%E5%90%88%E4%BD%9C%E5%8D%8F%E8%AE%AE/a-60436222)
-5. [维族学者伊力哈木遭关押满8年生死未卜 美两党议员呼吁尽快释放](https://www.voachinese.com/a/us-cecc-chairs-call-for-release-of-illham-tohti-20220114/6397571.html)
-6. [北京冬奥会脚步声渐近，中国上下风声鹤唳担心疫情失控](https://www.voachinese.com/a/anti-Coronavirus-measures-tightened-across-China-20220114/6397014.html)
-
-
-# 每日推特文摘
-
-
-
-孙立军同志领衔主演的大型电视认罪节目上线了，中共习王从18大以来灭了399.8万党员干部…… 这可是400万个家庭啊！想起七哥爆王岐山得意的声称自己杀了100万党员干部…… 他们就算有罪也是必须要得到法律公正的审判！而不是你共产党用枪顶着后脑勺强奸着他们的妻女去电视认罪
-
-
-
-
-
-> 孙立军同志领衔主演的大型电视认罪节目上线了，中共习王从18大以来灭了399.8万党员干部……
-> 这可是400万个家庭啊！想起七哥爆王岐山得意的声称自己杀了100万党员干部……
-> 他们就算有罪也是必须要得到法律公正的审判！而不是你共产党用枪顶着后脑勺强奸着他们的妻女去电视认罪 [pic.twitter.com/ckpwP31qIF](https://t.co/ckpwP31qIF)
-> — 草根小哥（新号） (@caogenxiaogex) [January 15, 2022](https://twitter.com/caogenxiaogex/status/1482389326545625089?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-共产党编造邪说
-
-
-
-
-
-> 共产党编造邪说 [https://t.co/H7SinndQ59](https://t.co/H7SinndQ59)
-> — mc文艺🌸 (@mc64122225) [January 16, 2022](https://twitter.com/mc64122225/status/1482517620582944775?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-坚持6周第二十五天
-IsobelYeung HBO主持人 这个姿势在毛泽东时代是一个非常流行的舞蹈! 这个手臂表达了对毛泽东的敬佩和对包括身体在内的一切的奉献。这个舞蹈代表了对文化大革命中的独裁者的支持和崇拜!
- IsobelYeung HBO host This pose was a very popular dance in the Mao Zedong era! This arm expresses admiration for Mao Zedong and dedication to everything including the body. This dance represents the support and worship of the dictator of the Cultural Revolution!
-
-
-
-
-
-> 坚持6周第二十五天
-> IsobelYeung HBO host This pose was a very popular dance in the Mao Zedong era! This arm expresses admiration for Mao Zedong and dedication to everything including the body. This dance represents the support and worship of the dictator of the Cultural Revolution! [pic.twitter.com/L3uI6vqQw3](https://t.co/L3uI6vqQw3)
-> — 文俊（日本银河系） (@wenjun7011) [January 14, 2022](https://twitter.com/wenjun7011/status/1482130165341638656?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-回望曾经的2017.6.27,七哥在熊熊燃烧的篝火旁向推友们诉衷情.五年了,这些过去七哥的推文都是在为现在的现实背书:”在这特别的日子裡,虽然我不认识刘晓波夫妇,但是文贵心情极为複杂,刘晓波夫妇的遭遇让我极为难过.我们应该反省为什麽让这样的一位英雄走到今天,难道我们都是看客?或是懦夫?或是也是帮凶?
-
-
-
-
-
-> 回望曾經的2017.6.27,七哥在熊熊燃燒的篝火旁向推友們訴衷情.五年了,這些過去七哥的推文都是在為現在的現實背書:"在這特別的日子裡,雖然我不認識劉曉波夫婦,但是文貴心情極為複雜,劉曉波夫婦的遭遇讓我極為難過.我們應該反省為什麼讓這樣的一位英雄走到今天,難道我們都是看客?或是懦夫?或是也是幫兇? [pic.twitter.com/bewGRdV8XN](https://t.co/bewGRdV8XN)
-> — 💞穎姐備用號15💞 (@yingHK1) [January 15, 2022](https://twitter.com/yingHK1/status/1482346583416979456?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-一月15日，西班牙，马德里，参加反对疫苗护照游行的人们！！
-
-
-
-
-
-> 一月15日，西班牙，马德里，参加反对疫苗护照游行的人们！！ [pic.twitter.com/WYGGhPJFj5](https://t.co/WYGGhPJFj5)
-> — 阳光明媚 （澳喜特战旅） (@Yang\_guang419) [January 15, 2022](https://twitter.com/Yang_guang419/status/1482423217516072964?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
-
-
-
-*编辑：GSeries
-审核发布：文顾*
+“在这种情况下，韩国政府虽然强制国民接种疫苗，但副作用认可率只有13%以下，为了得到因果性认可，需要国民亲自证明。”
 
  
 

@@ -2,12 +2,10 @@
 ---
 
 
-## 没有人不相信新中国联邦是合法代表中国的
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1866023/)
+## 政府的施政方针应该是团结全国人民，而不是侮辱人民
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1866059/)
 
 台灣寶島農場
-
-
 
  
 
