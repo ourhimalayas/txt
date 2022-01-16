@@ -2,13 +2,13 @@
 ---
 
 
-## 日本将中共病毒Omicron密接者隔离期从14天缩短到10天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865513/)
+## 全科医生讲诉拒绝接种中共病毒疫苗的原因
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1865579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._16-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+01/13/2022 辉美琪医生拒绝接种中共病毒疫苗。她告诉天空新闻，她对这些疫苗的副作用以及可能会让国家卫生系统不堪重负表示担忧。同时，她还指出，就算人们已经接种了疫苗，他们还是有可能传播病毒。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

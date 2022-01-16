@@ -2,32 +2,28 @@
 ---
 
 
-## 美联储将在几周内发布数字货币的完整报告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865626/)
+## 关于中华人民共和国南海海洋主张的研究报告
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1865773/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月13日，据当地媒体消息显示，美国联邦储蓄系统主席杰罗姆·鲍威尔于近日表示，美联储将在未来几周内发布关于数字货币的完整报告。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-15-下午9.31.22.png)
-据悉，此项报告本应于去年9月发布，其内容主要是探讨通过发行美联储中央数字货币以代替支付系统中的加密货币和稳定币的可行性。虽然此报告随后几经拖延，但目前已经完全准备就绪。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/333.png)图片截自美国务院网站
+2022年1月12日，美国国务院发布了一份关于中华人民共和国在南海的海洋主张的《海洋界限研究》报告。 国务院的海洋界限研究是一个长期的法律和技术系列，旨在研究各国的海洋主张和边界，并评估它们是否符合国际法。 这份最新的研究报告是 “海洋界限 “系列中的第150份研究报告，其结论是中国对南海的大部分地区提出了非法的海洋主张，包括非法的历史权利主张。
 
-报道提及，该报告更多的是向公众提出问题并征询意见，但杰罗姆·鲍威尔也指出，此项报告的发布会给现行货币政策带来变化。
+这项研究建立在美国国务院2014年对中华人民共和国在南海的模糊的 “虚线 “主张的分析之上。 自2014年以来，中华人民共和国继续宣称对中国南海的大片海域以及中华人民共和国所谓的 “内水” 和 “外围群岛” 提出主权主张，所有这些都不符合1982年《海洋法公约》中所反映的国际法。
 
-参考链接：[Fed Chair Jerome Powell Says Full Report on Digital Currencies To Be Released in Coming Weeks](https://dailyhodl.com/2022/01/13/fed-chair-jerome-powell-says-full-report-on-digital-currencies-to-be-released-in-coming-weeks/)
+随着这份最新研究报告的发布，美国再次呼吁中华人民共和国遵守海洋主张《海洋法公约》的国际法，遵守仲裁庭在2016年7月12日《南海仲裁案》中的裁决，并停止其在南海的非法和胁迫性活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+请访问国务院网站，查阅关于中国在南海的海洋主张的《海洋极限研究》报告，以及以前的研究报告。 如有媒体咨询，请联系 [\[email protected\]](/cdn-cgi/l/email-protection#da959f89f78a9bf79e9d9aa9aebbaebff4bdb5ac)。
 
-总编：童谣
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+原文链接：[https://www.state.gov/study-on-the-peoples-republic-of-chinas-south-china-sea-maritime-claims/](https://www.state.gov/study-on-the-peoples-republic-of-chinas-south-china-sea-maritime-claims/)
+
+
+
+
+
+翻译：烟波浩淼 | 校对：雨山西桥客| 编辑&发布：闪电训练
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

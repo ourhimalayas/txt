@@ -2,34 +2,26 @@
 ---
 
 
-## 喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865274/)
+## 【中日财经爆】中共砖家：房价原则上是涨的，下跌是特殊情况
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865280/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-美国媒体1月13日消息，喜剧演员罗布·施耐德最近入驻盖特。该演员自担任《周六夜现场》演员以来，一直在推动反中共病毒疫苗强制接种活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1230.png)
-尽管罗布的推特账号并未被封锁，但他依然加入了盖特。盖特 CEO 杰森·米勒盛赞这位喜剧演员是“绝对传奇”，并称盖特已为他铺好了红地毯。
+撰稿：东京樱花团｜知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1234.png)（图片来源于本文链接）
+在北京举行的2022网易经济学家年会上，北京师范大学房地产研究中心主任、教授、博士生导师董藩在会上表示，如果从产业地位来讲，房地产不但是支柱产业，还是主导产业，也还是先导产业。这三大地位，在整个国民经济当中只有房地产一个行业具备，其他行业不是这样的，所以说不是房地产绑架了国民经济，而是它支撑起了中共国的国民经济。
 
-最近，美国有大量保守派人士加入，因为他们感受到推特等大科技社交媒体对他们的不公平歧视。
+董藩称，这些年来房价一直在上涨，按照周期理论来讲，就不太符合，所以大多数学者一直都认为中共国的房地产行业有问题。这个就要回到这个特殊产业的特殊价格运行：房价原则上是上涨的，下跌只发生在特殊情况之下。
 
-总编：童谣
+董藩表示，世界各个国家大部分普通家庭买房都是有压力的，一般都要用几十年偿还本金和利息，不能因为买了房子，就认为自己变成房奴了。真正的房奴是一直租房、坚决不买的人，那他就被迫继续租房，被迫把他的钱一直给他的房主，自己赚不到房产增值，还要帮助房主继续还贷款。
 
-编辑：飞虹
+董藩以为主子洗地而著称，与环球胡编一样，没有接不住的飞盘。其最著名的战绩是，忽悠众多购房者投资固安房地产，迅猛地炒作了几波雄安、北京新机场和环京概念后，投资者全军覆没于雄安之千年大计和京七环区域，而董藩则仓惶消失于人海中，竟未带走一页诉讼。
 
-新闻来源： [Gettr Is Rolling Out the Red Carpet for ‘Absolute Legend’ Comedian Rob Schneider](https://www.newsweek.com/gettr-rolling-out-red-carpet-absolute-legend-comedian-rob-schneider-1669278)
+在声名狼藉并沉寂数年后，董藩突然出现在门户媒体大放厥词，并忽悠大众接盘，硕大的中共国房地产业已是信用大崩盘了，Two Steps To Hell，全行业崩溃即将到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+信息来源：[**董藩：若无严厉调控，房价原则是上涨的，下跌只发生在特殊情况下**](https://www.163.com/money/article/GTGH07BP00259IFJ.html)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
