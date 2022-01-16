@@ -2,38 +2,21 @@
 ---
 
 
-## 有声|近在咫尺的疫苗灾难（一）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868886/)
+## 七哥三个月之后再次向世界发出预警（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868897/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-一直以为，美国的医疗保健这么好，疫苗灾难应该会离我很远。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-就在新年之际，准备问候邻居的时候，才被告知：斜对门的邻居陈太太去世了。她在秋季打完第二针疫苗之后，手臂一直红肿发炎得厉害，浑身上下的肌肉和骨头都觉得疼痛，身体越来越虚弱。很快她就无法生活自理，需要聘请一个护理来照顾日常生活。
+这个不是好消息。我专门请教了科学家。科学家说，如果他要这么干的话, 可能就真的要放最毒最毒的毒了。他说甚至都在他知道的之外。我告诉他我这7个人我大概知道4个人的名字，我念到第3个人名字时候把他吓一大跳， 他说这个人要出来，后果不堪设想。他说王沪宁要在这里边儿，可能是就了不得了。还有另外一位少将的名字在里面啊。这个家伙那是可就坏到家了。 他说这是个精神病。就像当年希特勒的戈培尔一样。哇塞。这是对我很震惊的，就是说这次要他跟美国较量，兄弟姐妹一定要记住，美国人一定最终搞明白的，一定能搞得明白的，这点你们半点不用担心，还要看具体的什么动作。但是这场冬奥会，2月14号之后，病毒的去向和共产党打不打台湾和美国的较量，一定会走上一个新的不同的高度，这就是我们今天要说的，上天让其亡，必让其猖狂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（二）-.jpg)
+发布：tianzhihuan
 
-陈太太其实也不算老，七十多岁而已。在打疫苗前是个健康，而且注重健康养生的人，天天都会出门遛弯，和朋友一起分享快乐。她还弹得一手好钢琴，几乎天天都会弹好听的音乐，还能经常看见她开车出门呢。
-
-原文链接：[近在咫尺的疫苗灾难（一）](https://gnews.org/zh-hans/1861833/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

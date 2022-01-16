@@ -2,38 +2,21 @@
 ---
 
 
-## 有声|近在咫尺的疫苗灾难（二）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868890/)
+## 七哥三个月之后再次向世界发出预警（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868908/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美国良好而完备医疗保健体系，让我觉得疫苗灾难离我很远。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-没有想到，疫苗灾难就发生在我身边，触手可及的地方。邻居陈太太因为疫苗副作用去世了，每次经过她家门前，还是能想起她言笑晏晏的样子。我在昨天又听到了一个坏消息：住在我楼上的老太太也去世了。
+他猖狂时候，关键带走谁？他别带走这么多好的中国人，这是我们爆料革命最担心的，还有我们今天待在了美国和西方国家的人，兄弟姐妹们，你看伊莎贝拉这个报道，你如果你没引起警惕，那未来你发生什么事儿，你就活该了。她最后一杀手铜用是什么？第一句话就告诉你，这个病毒来自中共 和中共有灭白的计划都是你撒谎，这件事情会把整个HBO、vice给它彻底毁掉。你们记住我今天的话。当西方和美国世界查到了病毒真相和真是共产党放的病毒，还有中国真有灭白计划，真的是有反白的时候，vice和HB0不用我们说，它会成为全世界的敌人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（三）-.jpg)
+发布：tianzhihuan
 
-就在圣诞节前几天，她突然半夜从床上摔下来，心脏不适，被急救送进了医院。据猜测，她可能半夜觉得心脏不舒服，想起床，结果无力而从床上摔下来。
-
-原文链接：[近在咫尺的疫苗灾难（二）](https://gnews.org/zh-hans/1865098/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

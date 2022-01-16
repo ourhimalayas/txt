@@ -2,22 +2,38 @@
 ---
 
 
-## 一定要采法律行动对媒体攻击一定要反击(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1868860/)
+## 有声|近在咫尺的疫苗灾难（一）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868886/)
 
-整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一定要采法律行动对媒体攻击.002.jpeg)
-像刚才小斯基说的更吓人了，他编辑和断章取义，然后把小斯基定义为暴 力分子，你打人呢，你看那个视频，有没有打人啊，是不是你小斯基打的 呀，这更恐怖了。这就像要把**300**年飞飞跟一个上海的叫什么十大妓女 那个电影放在一起，然后十大妓女的照片就出来，飞飞照片就出来后这飞 飞就成妓女啦。那人家飞飞以后永远就是这个**300**年飞妓啊，就是很恐怖 的。这在媒体上有专业的行规，每句话都要澄清，他没有分割点，那就说 话一样，没有点号逗号。这对小斯基的威胁真的是很大的。 昨天到现在我也想说的是因为他没有加上中文字幕，我的英文理解能力也 不够，我就简单过了一下以后，我说坏了，这个**NICOLE**还小斯基现场 这些抗议的人硬叉叉地跟我们扯在一起，他们生命有巨大的安危问题。小 斯基这不是开玩笑，你不是说你吃不下去饭，你应该很多理由吃不下去 饭，而且要注意安防，而且你一定要采取法律行动，否则这个视频越传 越广泛，对你威胁越来越大。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+一直以为，美国的医疗保健这么好，疫苗灾难应该会离我很远。
 
-*发布：陶子*
+就在新年之际，准备问候邻居的时候，才被告知：斜对门的邻居陈太太去世了。她在秋季打完第二针疫苗之后，手臂一直红肿发炎得厉害，浑身上下的肌肉和骨头都觉得疼痛，身体越来越虚弱。很快她就无法生活自理，需要聘请一个护理来照顾日常生活。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+陈太太其实也不算老，七十多岁而已。在打疫苗前是个健康，而且注重健康养生的人，天天都会出门遛弯，和朋友一起分享快乐。她还弹得一手好钢琴，几乎天天都会弹好听的音乐，还能经常看见她开车出门呢。
+
+原文链接：[近在咫尺的疫苗灾难（一）](https://gnews.org/zh-hans/1861833/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

@@ -2,38 +2,23 @@
 ---
 
 
-## 有声|丹麦、荷兰宣布外交抵制北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868945/)
+## 七哥引蛇出洞的意义（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868964/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+新年又是4天，都度长假，危险了。危险过后，他们会在家清醒。冬奥会之后， 大家会更加清醒。美国西方会更有行动。那么现在Isobel被拉上来，第一个就是说共产党的病毒，你撒了谎。灭白计划，你撒的谎，你看看Omicron病毒大家记住啊，0mlerem病毒死最多的人是白人，咱走着看。
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+我们不要因为Isobel,忘掉了正义，西方人用生命、用鲜血，你们付出代价， 看清楚共产党的本质。这才是这个采访，七哥以身套狼的真正的意义所在。你看 到她，计划撒的谎，到法庭上，法官和陪审团到时候要开庭的时候，陪审团旁边坐着全都是白人或者是黑人，家里有受伤害的，有得病毒，有死人的，这个 HBO的Isobel,你说他会做出什么样的判决？我太知道陪审团是什么感觉了。 我们就是要尊重美国的大陪审团制度，就是要尊重美国的法官。这回HBO，我们要把它彻底的亲共的梦和洗脑的梦破灭。我们爆料革命的梦，彻底利用Isobel这张烂嘴，这种祸害的嘴，黑白颠倒的嘴，彻彻底底给她停止。冬奥会千万记住是中国人的噩梦，全世界的噩梦。中国人付出几千亿美元完成了习太阳的一个战略，个人崇拜和集中党的统治，集中财富。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥引蛇出洞的意义.002.jpeg)
+发布：tianzhihuan
 
-原文链接：[丹麦、荷兰宣布外交抵制北京冬奥会](https://gnews.org/zh-hans/1866201/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
