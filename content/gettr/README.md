@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 1/16/2022 5:38 PM (UTC)`
+`@miles 1/16/2022 5:43 PM (UTC)`
 
-A chilling testimony of the CCP’s brainwashing education: another solid proof of how the CCP devastated the next generation with “patriotic slogans”<br/><br/>中共洗脑教育令人发指，以“爱国口号“为工具摧残青少年思想的又一铁证<br/>
-![img](https://media.gettr.com/group22/getter/2022/01/16/17/2c1b8c62-0ca8-41d3-1cef-7a896e236663/out.jpg)
+1月16号：用一句话．证明你是美国人．证明你是欧洲人．这样的场景，很快会出现在美国，欧洲及全世界．洗脑的危害．超过了战争及毒品的危害．中国共产党是真正的邪教。<br/><br/>In one sentence.  Prove that you are American.  Prove that you are European.  Such a scene will soon appear in the United States, Europe and the world.  The dangers of brainwashing.  more than the dangers of war and drugs.  The Chinese Communist Party is a real cult.
+![img](https://media.gettr.com/group19/getter/2022/01/16/17/6e5cab37-e24f-ff4f-5684-90af73b0b8b7/out.jpg)
 
 ---
 
