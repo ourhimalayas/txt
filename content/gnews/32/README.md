@@ -2,36 +2,23 @@
 ---
 
 
-## 有声|共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1864980/)
+## 七哥对坚持的理解（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865082/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[布赖特巴特新闻网](https://www.breitbart.com/politics/2022/01/12/republicans-introduce-bill-to-sanction-china-for-obstruction-of-covid-origins-investigation/)1月12日的报道，参议员马可·鲁比奥（Marco Rubio）和其他十几位共和党议员周二提出一项法案，将对中共 “继续阻挠COVID起源调查”的行为进行制裁。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-据报道，该法案建立在卢比奥之前提出的2021年COVID法案的基础上，对“参与向国际社会隐瞒中共国最初爆发COVID-19的中共国官员”增加了更多的制裁。根据该法案的文本，制裁措施包括冻结资产，阻止签证，撤销现有签证，以及对违反规则者进行处罚。
+七哥能在坐在这儿直播爆料，你们没有感受到一个人每天直播而且不准备，而且一群共产党在法律上盯着你，我的六七个律师说错了都跟你没完，讲错了话，是要负法律责任的。然后外面是抗议强奸犯，滚回中国去，伊莎贝拉杨这样的人。马睿，吴峥，钥匙兰，杰克马，美国的斯蒂芬温，美国的大佬，世界的围堵，七哥和爆料革命真的就像千军万马中的一 个人，拿着一把枪，带着一张嘴就在这儿拼四五年，而且天天都能拼出这种激情。大家去试试去。你6周都坚持不下来一件事儿。我看到很多GTV上有直播的健身的，巴黎大牛还在锻炼，很多战友曾经出来直播健身有几个坚持十天的？你认为七哥我们是同心同框的直播，你看看具体的热点节 目，有多少人一直坚持下来的？
 
-卢比奥表示，两年来，中共一直在阻挠揭露COVID-19真正来源的所有努力。我们知道该病毒起源于中共国，然而，中共试图混淆真相，导致全世界无数人死亡和承受无谓的痛苦。很明显，北京只会对来自美国和国际社会的一致压力做出回应。我的法案将迫使中共坐到谈判桌前。
+我从小坚信一句话，我只要坚持持之以恒，我就不相信会有磕不下来的事 儿。你们没想到七哥讲英文有多难？我40年，我没把英文学会，而且我身边全是讲英文的。我这一生最失败的就是语言没学好。但是从爆料革命开始，创建了郭氏英文。持之以恒。灭共这件事儿就关键你信不信，关键你干不干到底。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对坚持的理解.003.jpeg)
+发布：tianzhihuan
 
-如果中共不允许对“从事涉及蝙蝠冠状病毒危险研究”的武汉实验室的冠状病毒起源进行“可信和全面的国际调查”，该立法将在其颁布90天后授权制裁。
-
-引入该法案的参议员玛莎·布莱克本（Marsha Blackburn）说，中共对COVID来源的欺骗是以美国人的生命为代价的。美国绝不应促成或鼓励这些中共国国家实验室的危险和欺骗性做法，这项立法将通过正式对中共国科学院实施早就应该实施的制裁来扩大我们现有的工作。
-
-文字版原文：[共和党人提出法案，制裁中共“阻挠COVID起源调查”的行为](https://gnews.org/zh-hans/1861173/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
