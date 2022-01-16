@@ -15,68 +15,68 @@
 
 ---
 
-### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）](/content/gnews/1/README.md)
+### [有声|Facebook母公司因利用用户数据在英国被起诉](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [文贵先生盖特精要 2022/01/16](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/2/README.md)
+### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/3/README.md)
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/4/README.md)
+### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/6/README.md)
  ` xiaobaige`
 
-### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/5/README.md)
+### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [为什么要消灭网红（一）](/content/gnews/6/README.md)
+### [为什么要消灭网红（一）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [为什么要消灭网红（三）](/content/gnews/7/README.md)
+### [为什么要消灭网红（三）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲人站起来了](/content/gnews/8/README.md)
+### [澳洲人站起来了](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [为什么要消灭网红（二）](/content/gnews/9/README.md)
+### [为什么要消灭网红（二）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [七哥引蛇出洞的意义（二）](/content/gnews/10/README.md)
+### [七哥引蛇出洞的意义（二）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [小飞象四个月获得政治庇护意义](/content/gnews/11/README.md)
+### [小飞象四个月获得政治庇护意义](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥引蛇出洞的意义（一）](/content/gnews/12/README.md)
+### [七哥引蛇出洞的意义（一）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈要包容战友](/content/gnews/13/README.md)
+### [七哥谈要包容战友](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/14/README.md)
+### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美国务院报告称，中共南海索权不符国际法规定](/content/gnews/15/README.md)
+### [有声|美国务院报告称，中共南海索权不符国际法规定](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生谈喜马拉雅农场](/content/gnews/16/README.md)
+### [有声|郭文贵先生谈喜马拉雅农场](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [七哥谈邪教及伊莎贝尔的邪恶用心](/content/gnews/17/README.md)
+### [七哥谈邪教及伊莎贝尔的邪恶用心](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [七哥三个月之后再次向世界发出预警（一）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [有声|新中国联邦让战友们安全地获得财富](/content/gnews/19/README.md)
+### [有声|新中国联邦让战友们安全地获得财富](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [七哥三个月之后再次向世界发出预警（三）](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [有声|欧盟首部防御白皮书直指中共威胁](/content/gnews/21/README.md)
- ` MOSREC`
+### [七哥谈彭帅视频事件(一)](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`

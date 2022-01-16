@@ -2,21 +2,36 @@
 ---
 
 
-## 七哥三个月之后再次向世界发出预警（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868908/)
+## 有声|新中国联邦让战友们安全地获得财富
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868909/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日，郭文贵先生于直播中指出，王毅在与中东六国的外交部长见面时，他向这六个国家提出了一系列针对新中国联邦的限制措施，其中包括绝不能支持新中国联邦、不能支持喜联储和喜币，以及屏蔽GTV与GNEWS等条件。而王毅的此番荒谬言辞也使得这些国家真切地感受到了中共对新中国联邦的恐惧。
 
-他猖狂时候，关键带走谁？他别带走这么多好的中国人，这是我们爆料革命最担心的，还有我们今天待在了美国和西方国家的人，兄弟姐妹们，你看伊莎贝拉这个报道，你如果你没引起警惕，那未来你发生什么事儿，你就活该了。她最后一杀手铜用是什么？第一句话就告诉你，这个病毒来自中共 和中共有灭白的计划都是你撒谎，这件事情会把整个HBO、vice给它彻底毁掉。你们记住我今天的话。当西方和美国世界查到了病毒真相和真是共产党放的病毒，还有中国真有灭白计划，真的是有反白的时候，vice和HB0不用我们说，它会成为全世界的敌人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（三）-.jpg)
-发布：tianzhihuan
+此外，郭先生提到，目前，躺平币随时可能面世，但他不希望战友们因为躺平币承受任何风险。于躺平币而言，其最重要的特点，就是让战友们在不冒险的情况下得到币。因此，躺平币的推出时机非常重要。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[新中国联邦让战友们安全地获得财富](https://gnews.org/zh-hans/1863438/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
