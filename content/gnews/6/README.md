@@ -2,53 +2,27 @@
 ---
 
 
-## 土著男子背父穿越丛林接种新冠疫苗 父亲几周后去世
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867432/)
+## 广州恒大集团深圳总部招牌被拆除
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1867493/)
 
-翻译： Jenny Ball
+撰稿：菜园子112～尕虎
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1270.png)图片来源:thegatewaypundit.com
+1月10日位于深圳湾的恒大总部，正在拆掉楼顶的“恒大集团”的招牌。可以看到：“恒大集团”LOGO中，图案还没有被拆除，4个汉字已经被拆除一大半，只剩下“恒”字，而“大”字只剩下下面一部分，英文部分的“GROUP”也已经被拆除，“EVERGRAND”也已经拆除了部分字母！
 
-即使是生活在世界上最偏远地区的土著部落，也是世界新秩序的优先目标。
+而在去年的11月，就有爆料说恒大深圳总部已经人去楼空，据说恒大已经大部分搬回广州。
 
-这张24 岁的图威（Tawy）背着他 67 岁的父亲瓦胡（Wahu）前往巴西亚马逊地区的 Covid-19 疫苗小屋的照片在网上疯传。
+1997年恒大在广州市成立，此后20年间逐步发展为世界500强企业、全球第一大房地产企业（2017年排名），2017年恒大搬到了深圳。
 
-属于佐伊（Zo’e）土著社区的 Tawy 和 Wahu “在帕拉州北部地区的数十个村庄中那里就相当于 120 万个足球场的面积，相对与世隔绝孤立地生活”，但“不得不在森林中步行数小时，才能到达疫苗接种处 ，” BBC 报道。
+2022年1月1日，恒大集团董事局主席许家印在给恒大全体员工的新年致辞中表示，目前公司全国项目复工率已达到91.7%，2021年四度累计交楼超过5.3万套。许家印表示，会永不放弃，要毫不动摇地把保交楼进行到底，要恢复销售、恢复经营、还清各方面的债务。
 
-据报道，瓦胡患有慢性泌尿问题和视力丧失。
+另外，许家印价值上亿的豪宅正在打折出售，代理中介表示，这套位于珠江的金碧华府复式豪宅面积753平米，市场价格1.1亿，现售8000万。业主要求一次性付清全款，上门看房需验资5000万。目前竞争较为激烈，有意上门看房的不在少数。
 
-“这是他们之间可爱关系的一个非常美丽的展示，”拍摄照片的埃里克·詹宁·西蒙斯医生说。
+虽然恒大多次强调要恢复销售、恢复经营、还清各方面的债务，但实际情况许家印都要靠卖掉资产偿还债务，恒大离灭亡还有多远？
 
-可悲的是，疫苗接种的危险旅程并没有帮助瓦胡的健康和他的疾病。
+新闻参考链接：[搜狐网](https://www.sohu.com/a/515914409_99947764)（中共国墙内网站）
 
-BBC 指出，这张照片展示了为 100% 的全球人口进行疫苗接种的暴虐推动，“象征着最偏远地区之一的疫苗接种工作”，并补充说，“9 月，Wahu 死于不明原因。 Tawy 和家人在一起，最近已经接种了第三剂疫苗。”
-
-根据大流行监测平台《信息追踪》（Info Tracker）进行的研究，在注射两剂 Covid 疫苗或单次注射强生疫苗后的六个月内，近 10,000 名巴西人死于 Covid。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1272.png)图片来源:thegatewaypundit.com
-
-为了给土著人接种疫苗，护士们乘坐小型飞机旅行数小时，再换乘坐小船穿越复杂的水道。
-
-为土著人民接种疫苗是卫生团队的“优先事项”，但由于他们的村庄彼此隔离，这是一项“不切实际”的任务。西蒙斯医生说，医护人员求助于在森林中搭建小屋，疫苗接种系统“通过无线电与社区达成一致”。
-
-“我们采取了尊重并考虑到 Zo’é 人的文化和知识的做法，”他说。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1274.png)图片来源:thegatewaypundit.com
-
-新闻来源:[thegatewaypundit.com] [Indigenous Man Carried His Father For Hours Through The Jungle To Get Covid Vax — Then Father Dies Weeks Later](https://www.thegatewaypundit.com/2022/01/indigenous-man-carried-sick-father-hours-jungle-get-covid-vax-healthcare-teams-prioritized-jabs-aboriginal-community/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
-
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

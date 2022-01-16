@@ -2,35 +2,24 @@
 ---
 
 
-## 萨尔瓦多向新冠患者及家人发送伊维菌素＋锌
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867304/)
+## 世界已被唤醒 澳洲多地爆发反中共病毒疫苗游行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867334/)
 
-编译： Jenny Ball
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1265.png)[图片来源](https://www.scmp.com/news/asia/australasia/article/3161262/coronavirus-australia-tops-10000-daily-cases-indonesia)
+澳大利亚新州、维州多地爆发反中共病毒（COVID-19）疫苗游行抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1260.png)图片来源:lifesitenews.com
+1月15日，悉尼和墨尔本的抗议者走上街头，反对疫苗接种和网球明星德约科维奇的第二次签证取消。由于数千人游行反对为儿童接种中共病毒疫苗，悉尼警方关闭了 CBD 的部分地区。人群从阿尔弗雷德王子公园蜿蜒到海德公园。
 
-萨尔瓦多圣萨尔瓦多《生活新闻》（LifeSiteNews） – 由支持生命的总统纳伊布·布克勒(Nayib Bukele)领导的萨尔瓦多国家正在分发 COVID 药物包，**其中包含有争议但有效的治疗伊维菌素**以及**锌**和其他药物。
+据悉，截至目前，澳大利亚有近2000 万人完全接种了中共病毒疫苗。
 
-这些医疗包将提供给 COVID 患者、他们的家人以及感染高发地区的人们。
+2020年初以来，爆料革命、新中国联邦不断传播中共病毒（COVID-19）和疫苗真相，而澳大利亚作为一个被中共严重腐蚀的国家，民众能走上街头，这已经表明正义已被唤醒，共产党的病毒和疫苗的危害即将大白于天下。
 
-**尽管来自压制伊维菌素使用的国际医疗组织的压力**，萨尔瓦多卫生部仍继续将该药物纳入，该药物已被证明在许多国家对 COVID 的早期治疗有效。
+信息来源：[澳大利亞新州維州多地爆發反covid疫苗游行抗議](https://gettr.com/post/pokua3df3d)
 
-一名来自伊利诺伊州的老年 COVID 患者在呼吸机上度过了 22 天，在法院命令强制医院使用伊维菌素后，**他出院并完全康复**。
-
-目前，只有 50% 的萨尔瓦多公民完全接种了流产感染疫苗，该国的感染率仅为每 10 万人 12 例，而疫苗接种率高得多的美国，每 10 万人中有 1,662 例感染。
-
-**评论：能够治病救人的伊维菌素等遭到“国际医疗组织”的封禁，而图财害命的mRNA试验药物却满世界推崇，这正常吗？**
-
-新闻来源:[lifesitenews.com][El Salvador distributes medical packages that include ivermectim to COVID patients and their families](https://www.lifesitenews.com/news/el-salvador-distributes-medical-packages-that-include-ivermectim-to-covid-patients-and-their-families/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
