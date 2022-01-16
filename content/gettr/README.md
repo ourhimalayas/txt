@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 8:21 PM (UTC)`
+
+1月16号：尊敬的战友们好，明天星期一．17号8:30开始.大直播．七哥将遵守承诺．放出七哥七岁时的照片。这位高尔夫球星兑现自己曾经的诺言……让人非常的尊重，她是最美丽．最神圣的……在中共国诚实兑现诺言，却被视为愚蠢……这才是中国人的悲剧一切都已经开始！ January 16: Hello, dear comrades, tomorrow Monday.  Starting at 8:30 on the 17th. Big live broadcast.  Seventh brother will keep his promise.  Release the photos of the seventh brother when he was seven years old.  The golf star fulfilled her promise...people are very respectful, she is the most beautiful.  The most sacred... Honestly fulfilling the promise in China, but being regarded as stupid... This is the tragedy of the Chinese. Everything has already begun!
+![img](https://media.gettr.com/group3/getter/2022/01/16/20/3e1fb859-6241-52e9-2a8b-2928d9e8d777/out.jpg)
+
+---
+
 `@miles 1/16/2022 5:43 PM (UTC)`
 
 1月16号：用一句话．证明你是美国人．证明你是欧洲人．这样的场景，很快会出现在美国，欧洲及全世界．洗脑的危害．超过了战争及毒品的危害．中国共产党是真正的邪教。<br/><br/>In one sentence.  Prove that you are American.  Prove that you are European.  Such a scene will soon appear in the United States, Europe and the world.  The dangers of brainwashing.  more than the dangers of war and drugs.  The Chinese Communist Party is a real cult.
@@ -150,13 +157,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: The commonality of all cults and dictatorships is that they fabricate lies and heresies, silencing the people and presenting lies as truths. I've always hoped to see those who are following me get ahead of me, and I’m empowered by their success. This matter regarding Joe Rogan is just a misunderstanding, but it shows that a society based on the rule of law requires people to respect the truth.<br/><br/>1/14/2022 文贵直播：所有邪教和独裁的共性是编造谎言邪说，让民众闭嘴并把谎言说成真理；我一直都渴望身后跟随我的人超过我，我也会被他们的成功所鼓舞；Joe Rogan事件只是个误会，这体现出法治社会要求人们尊重事实
 ![img](https://media.gettr.com/group21/getter/2022/01/15/07/6b9037b2-e757-8cce-b636-8b0fd6ff98d1/out.jpg)
-
----
-
-`@miles 1/15/2022 7:07 AM (UTC)`
-
-1/14/2022 Miles Guo: The entire world will certainly stop pushing the COVID vaccination! There is no such a thing as the vaccine against the Omicron! The virus is the CCP’s bioweapon! Symptoms like those caused by the hemorrhagic fever virus are resulted from the COVID vaccines. To prevent from catching the CCP virus, there is no other option except not getting the COVID jabs, wearing a mask, and avoid going out as much as possible<br/><br/>1/14/2022 文贵直播：全世界一定会停止推行疫苗！奥米炕疫苗是无稽之谈！病毒是共匪的生化武器！类似“热毒”的症状是疫苗造成的；要防止感染，除了不打疫苗、戴口罩、尽量不出门，别无选择
-![img](https://media.gettr.com/group27/getter/2022/01/15/07/ce9427e7-3d80-2a85-ad72-8cb82406f44c/out.jpg)
 
 ---
 
