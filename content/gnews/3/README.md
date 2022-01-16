@@ -2,36 +2,23 @@
 ---
 
 
-## 【中日财经爆】中共加强商票监管 试图缓解金融暴雷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865213/)
+## 雅典娜时报-第172期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1865217/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.png)[图片来源](https://www.rzline.com/IndustryNewsDetail.html?14565)
-1月14日，中共人民银行、银保监会发布《商业汇票承兑、贴现与再贴现管理办法（征求意见稿）》（下称“征求意见稿”），对早在1997年颁布的《商业汇票承兑、贴现与再贴现管理暂行办法》（下称《办法》）进行修订。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-《办法》修订稿包括总则、承兑、贴现和再贴现、风险控制、信息披露、监督管理、法律责任和附则，共八章四十二条。主要内容包括：
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/829864694670950410/932053757267697745/155.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/829864694670950410/932053758165266452/155_2.png?width=910&amp;height=1355)
+*发布：陶子*
 
-一是明确承兑和贴现资质要求。承兑、贴现应具备相应的资质和符合监管要求。承兑人应经营和财务状况良好，具备到期付款能力。持票人申请贴现，应具有真实交易关系。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-二是加强风险防控。银行承兑汇票和财务公司承兑汇票的最高承兑余额不得超过该承兑人总资产的15%，保证金余额不得超过承兑人存款规模的10%。
-
-三是缩短最长付款期限。商业汇票的付款期限自出票日起至到期日止，最长不得超过6个月。
-
-概况起来，征求意见稿的核心就两点，一是控制总量，二是控制期限。
-
-长期以来，商业票据已严重偏离了企业融资渠道这个主要功能，逐渐演变成了企业信用扩张、传导债务，甚至成为套取银行资金的工具。
-
-郭文贵先生之前多次爆料，单一个民生银行的票据黑洞就高达万亿规模，更不用提其他的商业银行、城（农）商行。加之，2021年以来的房地产行业的接续暴雷，因商业汇票无法兑付所波及的金融机构和企业众多。
-
-中共修订“商业汇票管理办法”试图缓解金融和企业暴雷，或将是徒劳。
-
-信息来源：
-
-[商票监管补短板，划定了这些红线|商业银行|存款|央行](https://www.163.com/dy/article/GTN0FOAR0519DDQ2.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

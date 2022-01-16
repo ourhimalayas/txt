@@ -2,43 +2,45 @@
 ---
 
 
-## 加拿大反对党—保守党O&#8217;Toole抨击对未接种疫苗者的“惩罚税和惩治目标”计划
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865147/)
+## 美国大型公司——通用电气公司，积极跟进响应最高法院阻止拜登的疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865162/)
 
-编译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Montreal-police-edited.jpg)图片来源：网络
-来自NATIONAL POST  一月十四日星期五的新闻报道：
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片18-2-edited.png)图片来源：CNBC
+##### **关键点**
 
-渥太华保守党领袖艾伦·奥图尔（Erin O’Toole）表示，虽然他尊重省级管辖权，但他反对魁北克“对未接种 COVID-19 疫苗的人征税和作为惩治目标”的计划。
+##### **通用电气公司已经暂停了公司现行的新冠病毒疫苗接种和新冠病毒测试规则**
 
-这位保守党领袖在周四晚些时候就魁省省长弗朗索瓦·莱戈 (Francois Legault) 的提议表明了自己的立场。 他的一些国会议员已经在社交媒体上谴责该提议是歧视性的、不道德的和对低收入者的惩罚。
+##### **通用电气公司在2020年底的员工人数为17.4万人**
 
-Legault 周四表示，魁北克将对拒绝接种 COVID-19 疫苗的成年人征收健康税。该提案引发了一场全国性的辩论，即随着 Omicron 变体的传播，政府为了确保广泛接种疫苗会走多远，有无下限。
+##### **通用电气公司这个举动是****在最高法院阻止拜登的疫苗强制令后****进行的**
 
-奥图尔鼓励接种疫苗但反对强制接种疫苗。他称魁北克的提议不公平，并预测它不会说服那些对疫苗接种犹豫不决的人最终卷起袖子。
+##### **拜登仍然呼吁企业自愿执行实施新冠病毒疫苗接种和新冠病毒测试规则**
 
-总理贾斯汀·特鲁多周三表示，在表明是否支持前，他需要更多关于魁北克计划的细节。联邦新民主党也没有对该计划表态。
+CNBC（CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日（星期五））发表题为《在最高法院阻止拜登的疫苗强制令后，通用电气公司已经暂停了公司现行的新冠疫苗接种和新冠病毒测试规则》的文章称，通用电气公司发言人告诉CNBC，周五（美国东部时间2022年1月14日），在最高法院阻止拜登的疫苗强制令后，通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则。
 
-总理特鲁多表示，该省已表示将遵循加拿大卫生法，该法律规范由各省执行的全民医疗保健系统。
+该发言人说，截至2020年底，通用电气公司有17.4万名员工，至今为止通用电气公司一直鼓励它的员工接种新冠病毒疫苗（然而，现在通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则）。
 
-另一方面，奥图尔表示，魁北克的提议与加拿大的医疗保健方法不一致，很容易“将迷茫沮丧的 85% 的人口与另外 10% 或 15% 的人口对抗”。
+最高法院的保守派多数派以 6比3 的投票结果称拜登政府的规定是一个“生硬的，一刀切的措施”，“没有基于行业或暴露于新冠病毒 （Covid-19）的风险进行区分对待”。
 
-“接种疫苗的人会感觉那一小群人对结束疫情起了阻碍，”奥图尔说。
+乔·拜登Joe Biden总统在法院作出裁决后发表声明，呼吁美国公司自愿（非强制性的）实施新冠病毒疫苗接种和新冠病毒测试规则。
 
-他指责特鲁多未能提供更好的快速抗原检测和个人防护设备，未能迫使各省重新实施限制性公共卫生措施，尽管加拿大的人口接种率很高。
+“法院已经裁定，我的政府不能使用国会授予它的权力来要求采取这一措施，”拜登说。”但这并不妨碍我作为总统用自己的声音来倡导企业雇主做正确的事情，以保护美国人的健康和美国人的经济。”
 
-此前奥图尔说应该允许那些仍未接种疫苗的人进行快速检测，而不是根据强制性疫苗接种政策丢掉工作或休假。对此，特鲁多给予批评。
+美国高法院判决阻止拜登的疫苗强制令是一条令人鼓舞的消息，然而，与此相反，加拿大魁北克省法官的一个裁定却令人担忧。
 
-奥图尔并不是第一个表示不赞成魁北克计划的保守派领导人。萨斯喀彻温省省长斯科特·莫和阿尔伯塔省省长杰森·肯尼本周早些时候就这样做了，他们都排除了对本省未接种疫苗的居民实施类似惩罚的可能性。
+日前，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章报道，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。
 
-原文链接：[https://nationalpost.com/news/politics/there-will-be-a-price-to-pay-quebec-pressing-ahead-with-plan-to-tax-unvaccinated?r](https://nationalpost.com/news/politics/there-will-be-a-price-to-pay-quebec-pressing-ahead-with-plan-to-tax-unvaccinated?r)
+**参考资料**：
+
+1. CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日，GE suspends Covid vaccine and testing rules after Supreme Court blocks Biden mandate，[https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html](https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html)
+2. 义务报，Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日， [«Un père non vacciné perd temporairement le droit de voir son enfant»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant](https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant)
+
 
 编辑/发布：LILY
 
 20220115
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

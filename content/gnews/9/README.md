@@ -2,42 +2,39 @@
 ---
 
 
-## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
+## 汪文斌的发言凸显中共穷途末路其气数已尽
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1865128/)
 
-加拿大温哥华扬帆农场：Jamie\_Luffy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
-图片来源：
+【**国内新闻短评**】
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+**上观新闻2022年1月14日报道：乌云遮不住太阳！汪文斌详细揭批美国涉疆谎言**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/01/vf.jpg)
+**短评：**
 
-就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
+**1月14日，中共外交卖国部发言人汪文斌主持例行记者会，以中共在新疆正在发生的种族灭绝和反人类罪为切入点，妄想误导中共国和全世界不明事理的老百姓，企图开脱自己的罪名，将矛头对准新中国联邦爆料革命和郭文贵先生，殊不知越描越黑，中共自己气数已尽。**
 
-目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
+**原文说到：“汪文斌表示，一个时期以来，美国的政客伙同一些反华机构和个人大肆散步炒作新疆种族灭绝，强迫劳动的谎言，以求实现其不可告人的政治目的。”**
 
-加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
+**敢问纸老虎中共，请问口炮汪文斌：你们指的是哪些反华机构和个人？不就是新中国联邦爆料革命和郭文贵先生吗？为什么不敢直接说出来？是怕大家搜索了解新中国联邦爆料革命和郭文贵先生后发现共产党残暴的邪恶真相吗？还是怕新中国联邦取代共产党的既定事实被大家知晓？中共你如果不是知道新中国联邦取代你已成既定事实，你也不会恐惧到连新中国联邦爆料革命郭文贵先生的名字提都不敢提？既然明知自己气数已尽，为何还不放下屠刀束手就擒？哦，我们忘了，你是魔鬼，你是变态，你是小丑，这就是原因。**
 
-在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
+**恶魔中共自知不敌正义的新中国联邦，吓得连郭文贵先生的名字都不敢提，只敢提一个毫无关联的名字“郑国恩”，并说郑国恩言语的出处媒体和极端分子关系密切，说被联合国列名的“东突”恐怖组织头目就是这家媒体的常客。**
 
-(本文仅代表作者观点)
+**稍微知道中共释放病毒和毒疫苗的人都知道，中共如此含沙射影不过是想诋毁某些弱势善良的正义群体，因为这个群体作为中共黑手下的受害者，正在向世界揭露中共谋杀全人类的真相。而这个群体就是郭文贵先生为首的新中国联邦爆料革命。中共此篇报道与泼粪不过是对2022年1月12日与1月14日大直播的回应，只是中共作为种族灭绝反人类的杀人凶手与极端恐怖组织，做贼心虚到只敢含沙射影而不敢正面回应。新中国联邦爆料革命和郭文贵先生，却敢连续好几年对中共指名道姓毫不避讳地说出中共谋财害命的反人类罪行。**
 
-参考链接：
+**请您了解真相，搜索观看新中国联邦爆料革命郭文贵先生2022年1月12日与1月14日的完整版直播原视频。我们在阳光下，所以我们不怕。共产的乌云即将散去，共产党，你完蛋了。**
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+**声明：文章观点仅代表作者，与GNews 平台无关**
 
-[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
+**新闻链接**：[https://mr.baidu.com/r/zI5bsBpOVy?f=cp&u=c0d3a54fe114a52d](https://mr.baidu.com/r/zI5bsBpOVy?f=cp&amp;u=c0d3a54fe114a52d)
 
-[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
-
-
-
-> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
-
-
-
-审核：文敏   发布： 天予
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
