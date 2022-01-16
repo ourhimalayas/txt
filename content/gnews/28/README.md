@@ -2,22 +2,12 @@
 ---
 
 
-## 秘翻在线：美通用电气公司宣布暂停执行接种疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1867489/)
+## 司法部承受压力或终止针对间谍活动的“应对中共国”项目
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867506/)
 
-**翻译：罗马骑士**
+01/13/2022 福克斯新闻记者大卫·斯彭特：司法部长梅里克·加兰感受到了就应对中共国项目做出决定的压力。司法部外有抗议者乞求结束这个已进行三年的项目。192名耶鲁大学教授签署了一封致司法部长加兰的信，认为该策略在许多层面上都存在问题。司法部长要求审查该部门与中共国的内部运作。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-16-193618.jpg)
-据彭博社2021年1月14日报道：在最高联邦法院否决疫苗规则后，通用电气公司将暂停执行拜登政府对大型雇主的疫苗或测试规定。
-
-在周五，这家喷气发动机、风力涡轮机和医疗扫描仪制造商，通过电子邮件确认了这一决定。 在最高法院周四决定阻止乔·拜登总统推动促进 Covid-19 疫苗接种的核心工作之后，通用电气是第一家宣布停止接种疫苗规则的大型公司。
-
-一项适用于联邦承包商的单独规则，在上个月也被联邦法官阻止。拥有多个政府合同的通用电气公司，在去年 12 月的法院判决后，停止了推出该措施下的接种疫苗要求。
-
-**新闻来源：**[https://www.bnnbloomberg.ca/ge-halts-vaccine-rule-after-supreme-court-rejects-mandate-1.1707806](https://www.bnnbloomberg.ca/ge-halts-vaccine-rule-after-supreme-court-rejects-mandate-1.1707806)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,37 +2,37 @@
 ---
 
 
-## 佛州不会执行对医护人员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867561/)
+## 1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1867588/)
 
-作者：纽约香草山文艺部 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-101.png)[图片来源](https://www3.nhk.or.jp/)
+**1.****大阪市将向收入减少的家庭发放1****0****万日元**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据时事通讯社1月14日报道，大阪市市长表示，该市将向2019年至2020年期间收入下降30%以上的市内家庭统一提供10万日元，作为该市为应对 中共病毒（新冠病毒covid-19）传播而采取的经济支持措施的一部分。这将是一个独立的项目，与作为政府经济刺激计划一部分提供给18岁以下人士的10万日元福利不同。政府打算不施加任何收入限制，并将在下周内宣布该系统的详细设计。](https://news.yahoo.co.jp/articles/d3131d0d91360a7aa26bd9fbc17ec943178835af)
 
-1月13日，佛罗里达州州长办公室新闻秘书普肖表示，佛州不会执行美国最高法院支持的拜登政府对医护人员的强制性疫苗接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.53.59-PM.png)
-普肖说，州府非常欢迎最高法院阻止了OSHA的命令，但很遗憾地看到高院支持了CMS的裁决。解雇未接种疫苗的医护人员，这是不道德和不科学的，佛州不会充当拜登政府的生物医学警察。另外，加州和纽约州的医院要求已感染的医护人员仅隔离五天就可以上班，这根本无法保证任何人的安全。佛州应尽力避免因强制接种所导致的，人手短缺的状况发生。
+**2.****日印外长确认对朝鲜问题的协调反应**
 
-CMS的规则适用于接受医疗补助和医疗保险资金的医院和其他医疗机构，覆盖76,000家医疗机构的1700万名医护人员。CMS允许因残疾或宗教信仰、纪念活动等，以及医疗原因而豁免。
+[据NHK 1月14日报道，日本外务大臣与印度外交部进行了电话交谈，他们确认将合作处理围绕北韩的问题，包括发射一系列弹道导弹。会议期间，两位外长就朝鲜局势交换了意见，并确认他们将共同处理与朝鲜有关的问题，包括发射一系列弹道导弹、核开发和绑架问题。在安全领域，双方同意深化在数字、网络和国防设备等广泛领域的合作，而在经济领域，双方同意在日本的支持下稳步推进印度的高速铁路项目。](https://www3.nhk.or.jp/news/html/20220114/k10013431271000.html?utm_int=news-new_contents_list-items_036)
 
-为此，普肖强调所有佛罗里达州的雇主都必须遵守本州的法律。她鼓励需要申请宗教或医疗豁免的医护人员填写FDOH豁免表格，并提供给当地雇主。
+**3.****日经平均一度下跌超过500日元**
 
-参考链接：[Florida won’t be Biden’s ‘biomedical police,’ DeSantis’ office says after Supreme Court ruling](https://www.tallahassee.com/story/news/local/state/2022/01/13/florida-wont-enforce-biden-vaccine-mandate-health-care-workers-upheld-supreme-court/6518864001/)
+[据NHK 1月14日报道，日经股指一时下跌超过500日元，至28,124.28日元，比13日下跌364.85日元，当天的成交量为140.815万股。因为投资者因对美国货币政策的担忧而对全球经济前景产生警惕。一位市场人士说：“日经225指数一度下跌超过500日元，但在大约一个月以来首次跌破28,000点之后，人们认为它的价值被低估了。”](https://www3.nhk.or.jp/news/html/20220114/k10013430711000.html?utm_int=news-new_contents_list-items_096)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+**4.俄罗斯外长：“我们将与日方协调，在今年春季访问日本**”
 
-编辑：Jack Li文阳
-总编：Ivy001
-校正/发稿：我不在这里
+[据NHK 1月14日报道，俄罗斯外交部长在表示希望推进与日本的关系时说，“对日本的访问将在未来两到三个月内决定”，他正在制定今年春季访问日本的计划。他说，俄罗斯的目标是与日本进行更实质性的、具体的和公开的对话，俄罗斯希望在经济领域推进与日本的关系，包括吸引日本投资。关于与日本签订的和平条约的内容，他强调，关于条约的谈判不应包括领土问题，而应将缔结条约以促进两国关系放在首位。](https://www3.nhk.or.jp/news/html/20220114/k10013431711000.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**5.****日本首次使用iPS细胞治疗脊髓损伤**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据共同社 1月14日报道，东京庆应义塾大学周五表示，它已经开始了世界上第一个使用诱导多能干细胞（或iPS细胞）治疗脊髓损伤患者的临床试验。到目前为止，已有一人接受治疗，将神经干细胞注射到受伤部位。据该大学称，该患者的情况“非常好”。研究小组将收集病人身体的各种情况的数据。一个独立的专家委员会将评估这些数据，并对治疗的安全性进行评估。](https://english.kyodonews.net/news/2022/01/1a6b702ba32c-japan-set-to-cut-isolation-for-essential-workers-with-omicron-contact.html)
+
+**6.****辉瑞公司寻求在日本口服中共病毒（新冠病毒covid-19）药申请的批准**
+
+[据共同社 1月14日报道，辉瑞日本公司表示，它已经向日本卫生部申请批准其药片，如果获得批准，它将成为该国第二个可用于治疗轻度中共病毒（新冠病毒covid-19）的口服药物。岸田文雄首相在本周早些时候说，预计将在1月底前与美国制药巨头辉瑞公司的日本分公司就该药物的采购达成最终协议，目标是在2月份获得批准。厚生劳动省已经在12月批准了由美国制药公司默克公司开发的口服药物莫努匹拉韦。](https://english.kyodonews.net/news/2022/01/1a37ea581d0b-pfizer-seeks-approval-for-oral-covid-19-pill-in-japan.html)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
  
 
