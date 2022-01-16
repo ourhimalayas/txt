@@ -2,32 +2,36 @@
 ---
 
 
-## 三头六臂？ 西安“马雪娥”串演穿帮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865223/)
+## 喜剧演员罗布·施耐德入驻盖特，杰森盛赞“绝对传奇”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865274/)
 
-撰稿/配图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-38.png)
-看中国2022年1月15日讯，中共国传统新年将至，陕西省西安市却每日持续出现中共病毒（新冠病毒Covid-19）确诊病例。对此，当地官方展开全面宣传工作，声称当地防疫很成功，城市正在复苏。然而，官方疑似指派临时演员充当各种身分的画面，引发社会舆论哗然。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+美国媒体1月13日消息，喜剧演员罗布·施耐德最近入驻盖特。该演员自担任《周六夜现场》演员以来，一直在推动反中共病毒疫苗强制接种活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1230.png)
+尽管罗布的推特账号并未被封锁，但他依然加入了盖特。盖特 CEO 杰森·米勒盛赞这位喜剧演员是“绝对传奇”，并称盖特已为他铺好了红地毯。
 
-众所周知，自西安市去年12月22日突然宣布封城后，管制措施粗暴，不时传出有孕妇因无法就医流产、心脏病患者无法即时就医死亡、还有相亲者只能留宿对象家，甚至有出租车司机长途载客后无法返家、当地居民三餐不继的消息。
+最近，美国有大量保守派人士加入，因为他们感受到推特等大科技社交媒体对他们的不公平歧视。
 
-为平息民怨，官方还动用媒体大吹“古城复苏”之风，声称随着新增病例下降、疫情形势逐渐好转，西安市的各行各业都在有序复工营业。1月14日，关于“西安的烟火气回来了”话题一度冲上微博热搜，但没想到的是，有眼尖网友发现，官方发布的宣传视频中，受访者竟然扮演3个角色。
+总编：童谣
 
-根据官媒发布的视频可见，一位西安市民“马雪娥”，除了是一名药店店员，也是一名水果店老板，在当地甚至又是一名乡卫生院院长，由于3段受访影片中的马雪娥看起来年纪、外貌都相似，因而引发民间质疑。
+编辑：飞虹
 
-面对外界质疑声一片，报导其中一名马雪娥的“群众新闻网”急忙澄清说，将一名受访者的名字误植为马雪娥，是剪辑时粗心犯错。但值得注意的好似，虽然“群众新闻网”发出了致歉声明，但却未解释为何会出现马雪娥这个名字被误植。也因此，民间不禁怀疑“马雪娥”是媒体派的临演，就像过去经常在各种电视购物节目中串场的“冒牌老中医”。
+新闻来源： [Gettr Is Rolling Out the Red Carpet for ‘Absolute Legend’ Comedian Rob Schneider](https://www.newsweek.com/gettr-rolling-out-red-carpet-absolute-legend-comedian-rob-schneider-1669278)
 
-随着事件持续发酵，有网友声称扒出更多“马雪娥”，根据截图显示，“马雪娥”并不是陕西人，而是河南武陟县人，曾获河南省五一劳动奖章、抗疫先进个人和优秀党员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-一切都是在演戏，背后都是有导演的。中共这几年脱实向虚，一切问题都流于形式化, 流于表面化，拍个照片就完成工作，演场戏就有个交代。人人都是导演，个个都是演员，拿起手机搞工作，拍个照片完任务。
+校正/发稿：浪迹天涯
 
-消息来源：
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
 
-[马雪娥好忙？西安再冲热搜 民间气炸(组图)](https://m.secretchina.com/news/gb/2022/01/15/995137.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
