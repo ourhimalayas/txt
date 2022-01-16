@@ -2,13 +2,13 @@
 ---
 
 
-## 日本将中共病毒Omicron密接者隔离期从14天缩短到10天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865513/)
+## 西亚六国外长访华表明中共意图获得对海湾地区影响力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1865570/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._16-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+01/12/2022 西亚六国外长访华表明，中共再次意图通过其经济影响力，进而获得对海湾地区的政治影响力。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

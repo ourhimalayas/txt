@@ -2,41 +2,32 @@
 ---
 
 
-## 聚焦：中共囯去年创纪录贸易顺差背后有定时炸弹！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1865623/)
+## Facebook母公司因利用用户数据在英国被起诉
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865625/)
 
-#### 加拿大温哥华扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-213.jpeg)路透社
-去年中共国的“双循环”经济呈现内冷外热的现象，在国内消费乏力和输入性通胀的共同作用下，国内经济陷入萧条，但由于中共（新冠）病毒对全球产业链的破坏，中共国出口企业获得了大量商品订单。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，据相关媒体报道，英国监管机构——金融行为管理局的高级顾问洛夫达赫·戈尔森正在起诉脸书的母公司Meta涉嫌利用用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-15-下午9.31.12.png)
+据了解，戈尔森将代表英国在2015至2019年间使用脸书的用户对Meta公司提起23亿英镑的集体诉讼。戈尔森表示，脸书滥用其市场主导权，对普通英国人强加了不公平的条款，不合理地要求这些用户在进入该平台时必须提供个人数据。同时，脸书通过收集此类个人数据，从而建立了庞大的用户信息数据库。戈尔森称，该信息库使得Meta近年来赚取了数十亿美元。
 
-麦格理首席中国经济学家胡伟俊认为，中国出口暴增帮助抵消了中共国房地产市场放缓和消费的极度疲软。
+报道提及，伦敦竞争上诉法庭近期将审理此案。
 
-中共官方提供的数据显示，中共国去年出口同比增长30%，贸易顺差飙升至有记录以来的最高水平，达到6760亿美元，同比增长26%，其中对美国的顺差竟高达3,965.8亿美元。
+参考链接：[Meta sued for $3.2 billion in UK class action lawsuit alleging Facebook exploited data](https://thehill.com/policy/technology/589715-meta-sued-for-32-billion-in-uk-class-action-lawsuit-alleging-facebook?utm_source=ground.news&amp;utm_medium=referral)
 
-但值得注意的是，去年12月份的出口增幅已回落至21%，表明国外对中共国的商品需求正在下降。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-原因是多方面的：世界各国对民众的疫情补贴效应已经消退，在商品出口上和中共国存在竞争关系的亚洲国家已经从疫情打击中缓过来，分流了不少订单，以及中共国的生产供应链近来受疫情冲击导致部分商品供应中断等等。
+总编：童谣
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在疫情未爆发前，中共国已经占据了全球一般商品出口约50%的份额，而以美国为首的西方对中共国药品原料、军工材料等涉及国家安全的商品依赖度极高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-214.jpeg)dreamstime
-试设想一下，如果中共国的“世界工厂”因为疫情失控或战争停止商品供应，是否会引发全球性的供应短缺和恶性通胀，在产业供应链上高度依赖邪恶的中共国是不是在自己的床头放一个无法控制的定时炸弹？
-
-因此，专业分析国际政治危机的美国调查公司欧亚集团在1月3日公布了今年全球“十大风险”报告，其中将中共国的病毒“清零政策”失败列为十大风险之首。
-
-该报告称，中共国2020年的清零政策“取得了令人难以置信的成功”，但那种老办法用于防控毒性和传播力更强的德尔塔和奥米克戎病毒可能不管用。
-
-报告认为，一旦中共国疫情失控，将引发全球供应链混乱，商品短缺又推升全球激烈通胀，从而导致全球经济混乱和各国政治局势动荡。
-
-据相关报道，目前中共国的疫情已经在全国蔓延，实际上已经进入失控状态。这将加剧国际局势的动荡，同时也将加速中共国经济的全面崩溃和中共的早日灭亡！
-
-参考：
-
-[中国2021年贸易顺差达6760亿美元](http://www.ftchinese.com/story/001095054?full=y&amp;gift_id=0a0e0aa87a36a7b3293f438c6f412dc854a65277&amp;archive)
-
-[中国2021年外贸进出口强势收官 12月贸易顺差刷新历史高点（更新版）](https://cn.reuters.com/article/china-trade-dec-0114-fri-idCNKBS2JO09T)
-
-编辑/发文：Kent
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

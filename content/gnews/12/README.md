@@ -2,97 +2,28 @@
 ---
 
 
-## 针对信仰、民主、资本这三项基本问题，认知上的对立，导致了中国共产党和美国之间的关系就是你死我活的关系
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1865494/)
+## 共产党最后的决战是习近平和曾庆红
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1865560/)
 
-[https://gtv.org/video/id=61e0adda87664c47acd44f69](https://gtv.org/video/id=61e0adda87664c47acd44f69)
+最后的决战是习(近平)、曾(庆红)，所以重庆，还有二十大的名单出来，就开启了习(近平)、曾(庆红)之战。
 
-**郭文贵
-Miles Guo**
+**【郭先生直播摘要】 2022.1.9 ****共产党****最后的决战是习近平和曾庆红**
 
-你曾经说过中美必有一战
-Usted había dicho anteriormente de que China y Estados Unidos habrá una guerra
+**郭先生:**
 
-是什么时候呢
-¿Cuándo será el momento?
+曾庆红之奥深， 这些都不能比。 我再给你们说，每年一个特殊的时辰，你们知道特殊时辰是什么吗？ 千万别说春节啊，千万别告诉我十五。中共有一个祭拜昆仑山的一个特殊时间，是什么时间？中国只有曾庆红，几代政府，从毛泽东时期由周恩来去。毛泽东时期以后 ，只有一个曾庆红亲自去。亲自到南普陀的只有曾庆红，到这个西藏的只有曾庆红，到整个龙之头，整个东南的只有曾庆红。到泰山的只有曾庆红和曾庆红送去的江泽民。
 
-我觉得现在就在战争中
-Yo siento que ahora ya están en la guerra
+我今天给你们讲迷信的时候，战友们千万这不是迷信。从地球、从人类、从宇宙讲到今天，我只见过中共两个官 ，能说出个一、二、三出来的，第一  胡锦涛，排在第一个水平是曾庆红，第二个是胡锦涛。说到这的时候兄弟姐妹们 ， 你知道重庆的事件意味着什么吗？陈敏尔到那块去政治镀金，同时也是个非常险恶的地方。刚刚的所谓这五个大内阁，二十大最核心人物出来就(开始)出这事。 它不是人为的，我认为这是天意、是偶然。而且也开启了共产党争夺二十大的 ，一种大屠杀的开始。
 
-我觉得中美已经在战争中
-Yo siento que China y Estados Unidos ya están en la guerra
+接下来会是谁？陈全国、胡春华、丁薛祥，都会有这样事发，所以我才上次直播，上上次直播。两次以前我说，兄弟姐妹们，这个名单的公布和江湖上的流传。 即是“试金石”，同时也是最后的一场。战争完最后，就剩下几个人了。 看谁决定胜数，咱都分两派，站出来吧！对决的时候，这对决的时候你看，有两种人，一种是被一定要你死在战场上 ，不允许你回去的，那把你弄出去  去战去。一种我要在这选出一个王子出来 ，选出个继承人出来。那就要最后倒下的全都不行。那就是王者行。共产党的二十大是什么？送出去的人可能希望都死掉，因为决定谁出去参战的人 。可能是唯一活下来的人，因为他是不用在战场当中。
 
-刚才说那三条
-Hace rato hablamos de 3 cosas
+这时候就看出来了，最后的决战是习(近平)、曾(庆红)。所以重庆，还有二十大的名单出来，就开启了习(近平)、曾(庆红)之战。
 
-是吧 这个首先一点就是有神无神论
-Cierto, primero es el teísmo y ateísmo
 
-然后是民主和家天下
-Luego es la democracia y el mundo de la familia
 
-和这种独裁社会
-Y este tipo de sociedad autoritaria
 
-包括这种自由资本
-Incluyendo este tipo de capital libre
 
-它现在已经完全是（战争中）
-Ahora está totalmente (en guerra)
-
-共产党在美国就得完
-Si está el Partido Comunista, Estados Unidos debe acabarse
-
-美国在共产党必须完
-Si Estados Unidos está, el Partido Comunista debe acabarse
-
-它已经在战争中了
-Ya están en una guerra
-最后我觉得咱所说的必有一战
-Por último, lo que dijimos de que habrá una guerra
-
-就是火战这一块
-Es una guerra de fuego
-
-我觉得就会在冬奥会后
-Siento que será después de los Juegos Olímpicos de Invierno
-
-和台湾问题等一系列问题爆发后
-Y después de que estalle una serie de problemas de Taiwán
-
-瞬间就可能发生
-Sucederá en cuestión de instante
-
-我（认为）现在就在战争中
-Yo (pienso) que ya está dentro de la guerra
-
-火战最后我相信很有可能
-Al final, confío que habrá posibilidad de que la guerra de fuego
-
-会因为台湾（问题）引起
-Se incite por (el problema de) Taiwán
-
-* * *
-
-日期：01/11/2022
-原视频标题：针对信仰、民主、资本这三项基本问题，认知上的对立，导致了中国共产党和美国之间的关系就是你死我活的关系。现在正处在中美战争之中。至于是否会发生火战，郭先生认为，冬奥会后因台湾问题而引发是很有可能的
-
-Apuntando a los tres temas básicos de creencia, democracia y capitalismo, la oposición cognitiva ha llevado a que la relación entre el Partido Comunista Chino y Estados Unidos sea una relación de vida o muerte. Ahora estamos en medio de una guerra chino-estadounidense. En cuanto a si habrá una guerra de fuego, el Sr. Guo cree que es muy probable que se provoque por el problema de Taiwán después de los Juegos Olímpicos de Invierno.
-
-原视频日期：01/10/2022
-原视频网址：[https://gettr.com/post/pne208eb98](https://gettr.com/post/pne208eb98)
-任务编号：KC411（3457）
-视频时间段：0:00-00:51
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑： 小蜜蜂 | 翻译： Arthur | 校对：Polaris | 视频制作+字幕：刀锋舞者 | 编辑& 发布：闪电训练
 
  
 
