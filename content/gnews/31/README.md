@@ -2,23 +2,27 @@
 ---
 
 
-## 加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867560/)
+## 佛州不会执行对医护人员的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867561/)
 
-作者：银河系农场 骄子
+作者：纽约香草山文艺部 宁文静
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-近日，加拿大国防部已对900多名未接种中共病毒疫苗的加拿大武装部队成员提起了诉讼。据悉，此前加拿大国防部参谋长要求，2020年10月前加国军人需全面接种中共病毒疫苗，现该日期被延后至12月中旬。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.49.50-PM.png)
-目前，加拿大军人的中共病毒疫苗接种率为98.3%。截止12月底，已有超过830名武装部队成员因未接种疫苗而受到正式警告，另外100名未接种疫苗的军人受到了正式审查，有44名军人被迫选择离开军队，曾有军人在法庭质疑强制接种疫苗被驳回。
+1月13日，佛罗里达州州长办公室新闻秘书普肖表示，佛州不会执行美国最高法院支持的拜登政府对医护人员的强制性疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.53.59-PM.png)
+普肖说，州府非常欢迎最高法院阻止了OSHA的命令，但很遗憾地看到高院支持了CMS的裁决。解雇未接种疫苗的医护人员，这是不道德和不科学的，佛州不会充当拜登政府的生物医学警察。另外，加州和纽约州的医院要求已感染的医护人员仅隔离五天就可以上班，这根本无法保证任何人的安全。佛州应尽力避免因强制接种所导致的，人手短缺的状况发生。
 
-参考链接：[Over 900 unvaccinated members of CAF to face formal proceedings](https://globalnews.ca/news/8512056/vaccine-mandate-proceedings-against-caf/)
+CMS的规则适用于接受医疗补助和医疗保险资金的医院和其他医疗机构，覆盖76,000家医疗机构的1700万名医护人员。CMS允许因残疾或宗教信仰、纪念活动等，以及医疗原因而豁免。
+
+为此，普肖强调所有佛罗里达州的雇主都必须遵守本州的法律。她鼓励需要申请宗教或医疗豁免的医护人员填写FDOH豁免表格，并提供给当地雇主。
+
+参考链接：[Florida won’t be Biden’s ‘biomedical police,’ DeSantis’ office says after Supreme Court ruling](https://www.tallahassee.com/story/news/local/state/2022/01/13/florida-wont-enforce-biden-vaccine-mandate-health-care-workers-upheld-supreme-court/6518864001/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：百香果
-总编：飞虹
+编辑：Jack Li文阳
+总编：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

@@ -2,39 +2,36 @@
 ---
 
 
-## DC每日热点0116
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1867732/)
+## 世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867794/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CFB264D3-0B5F-46F7-B748-D0BF8FF4799E-scaled.jpeg)
-道琼斯指数 35911.81 ▼0.56%
-纳斯达克指数 14893.75 ▲2.51%
-WTI纽约原油CFD 84.288 ▲2.64%
-布伦特原油CFD 86.473 ▲0.48%
-标普50指数 2,974.37 ▼46.37%
-美元兑人民币 1USD=6.352 RMB
-美元兑港币 1USD=7.784 HKD
-国际黄金 1817.93美元/盎司
-全球CCP病毒感染人数 327,097,749例
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月11日综合消息，世银调降美、欧及中国经济增长预估，警告普遍债务过高，贫富加剧，以及新的新冠病毒变种对发展中经济体复苏构成威胁。2022年全球经济成长率将从去年的5.5%明显降至4.1%，2023年则是进一步降至3.2%，因各国政府停止疫情之初提供的，大规模财政及货币刺激政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.47.png)
+世银预期，发达国家经济活动在2020年萎缩过后，于2021年大幅反弹，但警告通胀更为持久，供应链及劳动力问题，及新的新冠变种病毒等因素，有可能打击全球增长。疫情已经加深发达与发展中国家的成长差距，同时也导致各国内部增长出现分歧，可能加剧社会紧张及动乱。
 
-1、朝中边界关闭两年后 首辆朝鲜货物列车进入中共国丹东
-2、美国食品和药物管理局授予2款新冠口服药紧急使用权，即辉瑞的Paxlovid和默沙东的Molnupiravir
-3、汤加海底火山爆发，环太平洋沿岸发海啸警报
-4、当局：225人在哈萨克斯坦的骚乱中死亡
-5、中共国将开始执行与伊朗签署的战略协议，加强两经济和政治合作，北京同时批评华盛顿制裁伊朗
-6、空中不太平，联邦快递向美国监管机构申请安装反导系统对付导弹袭击
-7、美情报发现，俄罗斯启动舆论战为入侵乌克兰制造借口
-8、美国联邦检察官建议撤销针对麻省理工科学家与中共国关系的指控
-9、中共国4艘公务船2022年首次进入尖阁诸岛附近日本领海
-10、哈官方称抗议死亡人数升至225人 前总统多位亲族被免职
-11、沃尔玛遭指伪造产品评论被中共国监管罚款
-12、中共国大量“熔断”美国航班，美国交通运输部称，美国可能采取回应行动
-13、德国：奥密克戎已成主要感染
-14、香港预计下周起 为5至11岁孩童接种新冠疫苗
-15、加拿大外长将访乌克兰 重申抗俄立场
-16、欧盟各国对立陶宛表示声援 法国并承诺将加速反经济胁迫措施的立法
-17、 人权组织敦促沙特阿拉伯不要将两名维吾尔人遣返中共国
+世行展望小组的Ayhan Kose认为，发展中国家“硬着陆”风险升高，因他们提供必要财政援助的选项有限，通胀压力持续高涨，且财政相当脆弱。
 
+报告预估，2022年发达国家经济体成长率，将从2021年的5%降至3.8%，2023年进一步下滑至2.3%。美国2021年国内生产总值(GDP)增长率，预估调降1.2个百分点至5.6%；同时，预估2022年成长将骤降至3.7%；2023年降至成长2.6%。世银称，日本2021年GDP增长将下降到1.7%，较6月时预估少了1.2个百分点；2022年增长率则将升至2.9%。
+
+参考链接：
+1）[World Bank slashes global growth forecast and warns about growing inequality](https://www.cnbc.com/2022/01/12/world-bank-slashes-2022-global-growth-forecast.html)
+2）[Omicron, Supply-Chain Troubles to Slow Growth, World Bank Says](https://www.wsj.com/articles/omicron-supply-chain-troubles-to-slow-growth-world-bank-says-11641918947)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

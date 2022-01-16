@@ -2,30 +2,36 @@
 ---
 
 
-## 【中日财经爆】世界经济论坛：全球专家认为世界前景堪忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867721/)
+## 因停售新疆产品，中共报复沃尔玛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh4.googleusercontent.com/aQMjPEL2XPiG7EOJL_1Oclb8fjC2OtpYYgqBucMQKyWg7hB-pHHwkA3Xv9cHad1URj09A8JmnTLu1jOaLIDwt8hPuQyb9Q37zwc58TMh8TR8Z3jR0mYBDSnsVYvb2IHcgNUrKt8a)[*图片来源*](https://www.weforum.org/weforum.jpg)
-16日，笔者从日本媒体获悉，世界经济论坛（WEF）关于全球风险分析的一份新报告显示，84%专家对未来三年的全球形势持悲观态度。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
+去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
 
-调查对象是企业界占约40%，16%是政府机构，17%是学术界人士。按地域划分，约 45% 受访者来自欧洲，北美15%，13%来自亚洲。
+由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
 
-根据世界经济论坛新报告，大多数受访者预计未来三年世界将出现一系列动荡和突发事件，国家之间的不平衡日益加剧，发展中国家与发达国家的差距越来越大，各国最终输赢亦难以定夺。
+周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
 
-从长远来看，气候变化被认为是未来十年世界面临的最大风险。气候异常、生物多样性丧失、社会凝聚力减弱、民众生计危机和传染病以及债务危机继续是主要影响因素。
+参考链接：
+1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
+2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
 
-与世界经济论坛共同编写报告的苏黎世保险集团首席风险官彼得·吉格表示，政府和企业应及时采取应对风险的行动并引领能源转型。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-该报告指出，风险也正在外太空产生。各国加速外太空开发增加了碰撞的风险，空间碎片数量增多会影响卫星轨道。国际紧张局势也会因此加剧。
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-笔者认为，中共病毒与疫苗造成的全球灾害才是所有风险之首。中共才是风险之源。
-
-信息源：[**有識者８４％、今後３年の世界情勢は「悲観的」　世界経済フォーラム報告書**](https://news.yahoo.co.jp/articles/5187025e39191981551b098acee8c5b5d0a54408)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

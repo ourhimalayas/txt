@@ -2,25 +2,18 @@
 ---
 
 
-## 通用电气公司停止为员工接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867559/)
+## 加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867560/)
 
 作者：银河系农场 骄子
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-近日，美国最高法阻止了拜登政府对100人以上的大企业雇员强制推行中共病毒疫苗的计划。记者通过内部邮件确认，通用电气公司刚刚宣布，他们不再强制推行雇员接种疫苗。
+近日，加拿大国防部已对900多名未接种中共病毒疫苗的加拿大武装部队成员提起了诉讼。据悉，此前加拿大国防部参谋长要求，2020年10月前加国军人需全面接种中共病毒疫苗，现该日期被延后至12月中旬。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.49.50-PM.png)
+目前，加拿大军人的中共病毒疫苗接种率为98.3%。截止12月底，已有超过830名武装部队成员因未接种疫苗而受到正式警告，另外100名未接种疫苗的军人受到了正式审查，有44名军人被迫选择离开军队，曾有军人在法庭质疑强制接种疫苗被驳回。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.44.39-PM.png)
-
-据悉，通用电气公司是第一家宣布停止强制推行中共病毒疫苗接种计划的公司，经过联邦最高法的授权，雇员是否选择接种疫苗，完全由本人意愿决定。与此同时，Nike公司却依然激进地延续拜登政府强制接种中共病毒疫苗的计划，他们在邮件中公布，1月15日，未接种疫苗的雇员将被开除。
-
-参考链接：
-
-1. [General Electric Abandons Biden’s Vax Mandate After SCOTUS Ruling While Nike Doubles Down](https://remarkboard.com/m/general-electric-abandons-biden-s-vax-mandate-after-scotus/1gbxj1eev62f4)
-2. [GE suspends Covid vaccine and testing rules after Supreme Court blocks Biden mandate](https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html)
-3. [General Electric Suspends Vaccine Or Test Requirement After Supreme Court Ruling](https://www.dailywire.com/news/breaking-general-electric-suspends-vaccine-or-test-requirement-after-supreme-court-ruling?itm_source=parsely-api&amp;utm_campaign=daily_shapiro&amp;utm_medium=email&amp;utm_source=housefile&amp;utm_content=daily)
-
+参考链接：[Over 900 unvaccinated members of CAF to face formal proceedings](https://globalnews.ca/news/8512056/vaccine-mandate-proceedings-against-caf/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
@@ -34,7 +27,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
