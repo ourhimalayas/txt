@@ -2,40 +2,24 @@
 ---
 
 
-## 丹麦、荷兰宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
+## 奥密克戎毒株来袭冬奥会在即的北京
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866221/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-42.png)（图片源自本文链接）
+1月15日共同社北京消息：15日北京市政府宣布，已确认该市海淀区出现一例社区获得性奥密克戎毒株感染病例。
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
 
+感染途径不明，过去两周没有离开过北京，也没有与任何感染者有过密切接触，该迹象表明感染可能已经在整个北京蔓延。
 
+中共政府在15日的新闻发布会上宣布，13日和14日在上海、广东省的珠海，以及同省的中山，得到报告的中共病毒（新冠病毒Covid-19）感染是奥密克戎毒株。可见感染者有可能涉及的地理范围很广泛。
 
-总编/编辑：飞虹
+信息来源：[北京でオミクロン初確認　五輪目前、上海や広東省でも（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a4db086e211da98197e8e6cee2aaed0b5064a91)
 
-新闻链接：
-
-[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
-
-[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  

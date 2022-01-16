@@ -2,50 +2,46 @@
 ---
 
 
-## VICE四年前黑七哥，但七哥一年前已预判并远离Q组织
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866263/)
+## Facebook因利用用户数据在英国面临32亿美元的集体诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1866416/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3a80887664c47acd54bc5](https://gtv.org/video/id=61e3a80887664c47acd54bc5)
+![Mark Zuckerberg deep in thought (Drew Angerer /Getty)](https://media.breitbart.com/media/2021/08/Mark-Zuckerberg-deep-in-thought-640x480.jpg)Facebook（脸书）的创始人兼首席执行官扎克伯格（资料图）
+来自《布赖特巴特新闻网》2022年1月14日的报道，瘾科技(Engadget)报道说，脸书(Facebook,现在的Meta)正面临一场重大的法庭诉讼，一位法律专家已经开始与一家诉讼公司合作，代表英国的4400万Facebook用户起诉该公司。该集体诉讼称，英国用户的数据被利用，此举违反了竞争法。
 
-**郭文贵先生：**然后你看看，Isobel Yeung是在一年以前开始的，要采访七哥这个节目，要把七哥和把新中国联邦定为邪教组织。
+该诉讼为英国Facebook用户寻求23亿英镑(32亿美元)的赔偿，该诉讼由专门研究竞争法的利萨·洛夫达尔·戈尔姆森(Liza Lovdahl Gormsen)博士提起的。接手此案的因斯沃思(Innsworth)律师事务所为此案提供资金，以换取所赢得的一部分损害赔偿金。
 
-她是四年前开始黑七哥，和共产党合作。她在她采访过程当中想干啥事，七哥在将近一年前，已经给她制止了，是吧？如果我当时要跟着Q组织，咱就完了。但是我已经提前出手了，这就是那个跆拳道一样。跆拳道最高的境界是什么？预判，预判。
+该诉讼称，虽然用户使用Facebook不需要付费，但他们提供给该社交媒体平台的信息是有价值的。洛夫达尔·戈尔姆森在一份声明中说：“他们正在通过获取用户的个人数据来利用用户谋利，却没有为获取这些数据对用户作出适当的补偿。我认为用户在点击条款和条件时并不完全清楚这种交易有多不公平。”
 
-我小时候打架的时候，在东北零下35度到40度，在我们家旁边那个牛房子里边儿，用三个沙袋子，我蒙上眼睛。我就让我的小兄弟们，给我推，我就是根据风声要判断哪个打过来了，我啪啪就打回去。当然我是最牛的，他们总是几下就被击倒。
+戈尔姆森补充说，Facebook已经成为“英国唯一的一处你可以确保与朋友和家人联系的社交网络平台”。诉讼进一步指出，Facebook通过Facebook像素(Facebook Pixel)在整个互联网上广泛地追踪其用户，对此《布赖特巴特新闻网》曾做过报道。
 
-我的腿当年就是这么受伤的，所以我打架几乎没遇到过对手。只要你碰到我，我这腿一抬起来，基本，我从来没遇到(对手)，我只受过一次伤，一个佯回头，从来没有一次被打倒。这也是当年迷倒你七嫂的原因。
+洛夫达尔·戈尔姆森说：“它滥用其市场支配地位，对普通英国人强加不公平的条款和条件，赋予它利用他们的个人数据的权力。”
 
-为什么？——预判。这个预判是功夫里面最牛的。所以说我打架的时候，基本上我这一开始，一看对方，我基本上我的动作已经设计完了。我打时候，我上边儿是手一挡，主要是“手是两扇门，全凭腿打人”。我相信这个绝招。我就靠我的腿，听到对方，我这手挡，“啪啪啪”几下，倒下，而且绝对是，绝不留情。
+诉讼涉及的时间段为2015年10月至2019年12月31日。该诉讼是一个“选择退出”的集体诉讼，这意味着用户不需要提供任何形式的同意书就可以从该案件中获得损害赔偿，除非他们选择退出。
 
-那在这个政治斗争当中，最高端高手是预判。预判的前提是你真有这个能力。你预判到了，人家大腿已经踢你脑袋上了，你根本打不回去，你不就被撂倒了吗？当时Q组织，你知道我们最核心的几个战友，相信Q组织不行了，这个那个的。Q组织百分之百是美国和共产党之间较量的一个平台，而绝对是共产党控制的一个造谣平台。这是一点都不用质疑的。就共产党这一出手，它不撅屁股，我都知道它拉什么屎，何况它已经拉出了屎了，是吧？所有咱们战友们，这次很重要。
+简评：
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+Facebook公司去年宣布把名字换成Meta，有网民根据其英文发音调侃“非死不可”进一步换成了“埋它”。这种调侃背后也有其严肃的理由。过去数年来，Facebook违法地滥用市场支配地位，利用客户数据谋利，对发布所谓的“敏感信息”的用户进行言论审查和信息屏蔽，甚至封号。
 
-编辑整理：Jacques；
+去年1月，川普总统被Facebook和旗下Instagram禁言并暂停账号，为期两年。在香港大游行期间，有用户反映在Facebook发布的一些真实情况因“涉及敏感信息”很快被屏蔽或下架。Facebook 已经彻底沦为政治极权的工具。
 
-字幕文件制作：小满；
+公司为逃避法律缠诉而换名字，那只是“换汤不换药”。在社交媒体高速发达的信息时代，大众需要的是能接收真实信息、保证个人数据安全和能自由发声的网络平台，我们爆料革命的GTV，Gnews，GETTR等媒体平台就属于这类平台。Facebook如果还继续无视法律约束，无视客户隐私，压制和审查公众言论，其最终将会被大众放弃，而我们爆料革命的媒体平台也将顺势崛起。
 
-视频制作及上传：Cindy；
+新闻链接：[https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
 
-G-News发布：小满；
+翻译/简评：JS
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+PR:Harvey（叶知秋）
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+编辑：【英国伦敦喜庄园编辑部】
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

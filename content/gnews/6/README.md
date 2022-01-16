@@ -2,44 +2,34 @@
 ---
 
 
-## VICE路大脑袋和海外欺民贼念念不忘的Q组织远超邪教
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866225/)
+## 中共酷吏孙力军，央视大裤衩电视认罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866362/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e3a72987664c47acd54b4f](https://gtv.org/video/id=61e3a72987664c47acd54b4f)
+**【雅典娜观察】和您一起探究世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-229.jpg)图片来源：Youtube
+整理报道：Little lamp
+编辑：文泓
 
-**郭文贵先生：**同时我希望大家在刚才看到这个，就是一个刚刚发生的Isobel Yeung有计划地和共产党的合作。这是一个大棋，而且通过她也可以看到我们爆料革命过去四年来最担心的事情都在发生。你从这个视频来看，七哥当时，咱爆料革命、新中国联邦，当时路大脑骗、蛇妖闫、九指妖，哎呦我的妈呀，Q组织成他亲爹、亲爷爷了。
+1月13日，中共国公安部原党委委员、副部长孙力军被提起公诉。检方指控孙力军涉嫌三罪，受贿罪、操纵证券市场罪、非法持有枪支罪。次日，在央视《零容忍》节目中，孙立军公开电视认罪。
 
-到今天路大脑袋采用的信息绝大多都是Q组织的。它非要把一个简单的事给你复杂化，然后所有的这个事情都把不可能变成了必须的正义。就像川普总统不搞戒严，那川普总统就是窝囊废。川普总统不按中国人和我们所谓的华人海外的欺民贼、民主人士的想法去行动，按中国人的逻辑行动，不杀一批、不抓一批，是吧？不搞戒严那就不行。
+公开资料显示，孙力军曾担任公安部一局、二十六局局长，港澳台办公室主任等职务。2018年3月，49岁的孙力军出任公安部副部长，成为当时最年轻的公安部副部长。
 
-然后Q组织那个事儿大了，又是亨特.拜登，又是拜登，那事儿大了去了，是吧？外星人组织，全在一起，是吧？小宇宙、大宇宙、元宇宙、中宇宙，你都数不清了。路大脑袋的洋爹，贝雷帽、绿贝雷帽、蓝贝雷帽、直升机、无人直升机、无雷达直升机，全出来了。就你完全你会发现，在这些人面前，你就是个白痴。那真的不仅仅是邪教，我认为那简直就是犯罪。
+孙力军最后一次公开露面是在2020年3月。2020年4月19日，孙力军被查。在2021年9月30日孙被“双开”。
 
-字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+中共官方文件指出，该案由国家监察委、长春市公安局联手查办；孙力军敛财首站始于“上海市卫生局外事处副处长”；除了受贿罪之外，孙力军还涉嫌操纵证券市场罪、非法持有枪支罪。
 
-编辑整理：Jacques；
+孙立军作为中共酷吏，他首开当事人电视认罪，也是“灭胡行动”、“雷洋事件”、迫害爆料革命战友等的幕后执行者。今天中共党内习江大战升级之际，习近平“请君入瓮”，对目前中共党内高官们起到了很好的警示作用。
 
-字幕文件制作：小满；
+新闻来源：[“警虎”孙力军一案的几个罕见之处](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=b7e7b8f7bdee4d36af5a3e1ec6dd7ecc&amp;wm_cid=465765587161726976&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
 
-视频制作及上传：Cindy；
+发布：去中心化Math
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

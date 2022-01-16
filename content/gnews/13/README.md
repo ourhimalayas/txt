@@ -2,38 +2,24 @@
 ---
 
 
-## 美国务院报告称，中共南海索权不符国际法规定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866191/)
+## 应美国要求，俄罗斯联邦安全局拘留14名黑客
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866216/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月12日，美国国务院发布《海洋界限》分析报告，称中共国在南海的广泛海洋主张，不符合1982年联合国海洋法公约所反映的国际规范，驳回了中共的主张。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1246.png)图片来源：https://images.app.goo.gl/7KXPZYUDx9Dt8MgGA
-此前，中共一直声称对淹没在海平面以下的百余个岛礁拥有主权，并拥有其领海，还划定直线基线，将东沙群岛、西沙群岛、中沙群岛和南沙群岛等4个岛群全部划入。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-22.png)[图片信息源](https://news.yahoo.co.jp/articles/69984ce21d710382aaa140dc2aaa705db24ecdad#:~:text=%E3%83%88%)
+TBS新闻1月16日报道，俄罗斯情报机构FSB联邦安全局14日宣布，应美国政府的要求FSB已经拘留了14名总部设在俄罗斯的黑客组织REvil的成员。据称，REvil利用一种”勒索软件”对美国及世界各地的公司发起网络攻击。他们在对该据点的搜查中缴获了电脑、大量现金和豪华汽车。
 
-《海洋界限》是美国国务院海洋和国际环境及科学事务局发布的定期评估报告，以检视世界各国提出的海事主张是否抵触国际法。美国国务院曾在1996年和2014年，两度以中共国的南海主张为题撰写报告。
+据路透社报道，该组织的一名成员去年5月涉嫌参与了对美国最大石油管道网络攻击。
 
-美国务院表示，中共国主张对南海大部分地区拥有主权或是某种形式的专属管辖权非法，严重破坏国际法规定，并表示支持在南海和全球范围内，基于规则的国际海洋秩序。
+美俄在去年6月的首脑会议后，就网络安全问题展开了讨论。当下，在乌克兰紧张局势加剧的情况下，俄罗斯对美国的这一要求做出了回应。
 
-新闻链接:
+信息源：
 
-[美國務院報告：北京的南海聲索不符國際法規定](https://money.udn.com/money/story/5599/6030027?from=ddd-umaylikenews_money_index)
+[ロシア連邦保安局 米要請受けハッカー集団拘束](https://news.yahoo.co.jp/articles/62446b26d3fd516c00c078cf489772d1b896914d#:~:text=%E3%83%88%E3%)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
-
-总编: Irene木木
-
-编辑: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

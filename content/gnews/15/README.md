@@ -2,34 +2,24 @@
 ---
 
 
-## 郭文贵先生谈喜马拉雅农场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866169/)
+## 有错必纠！法国叫停强制佩戴口罩之规定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866210/)
 
-撰稿：香草山农场—雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1244.png)
-与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-35.png)（图片源自本文链接）
+1月16日FNN要闻在线消息：法院决定暂停在法国巴黎市强制佩戴口罩之规定的有效性，称该规定存在严重的法律问题。
 
-郭先生说道，爆料革命受天机，喜马拉雅农场将成为人类最主要的文明的基础。
+奥密克戎菌株开始传播后，巴黎市规定从2021年12月31日起在户外必须戴口罩。但法国关于应对中共病毒(新冠病毒Covid-19)的法律规定，如果要限制人们的行动，必须有相应的高健康风险依据。
 
+为此，巴黎行政法院于14日决定暂停“不仅限于市场和街头公共集会等人多的地方和时间，即使在低风险的情况下也必须佩戴口罩”之强制佩戴口罩规定的有效性，因为这在法律上存在严重问题。
 
+笔者在想，自己的祖国，何时才能像这样以法律为准绳，去衡量各项决定的正确与否？每每这时，更加期盼强制疫苗也能在世界各地被叫停!更加期盼早日灭共！
 
-新闻来源：[https://gnews.org/zh-hans/1856873/ https://gtv.org/video/id=61df44f3a6dfdd6031535439](https://gnews.org/zh-hans/1856873/%20https://gtv.org/video/id=61df44f3a6dfdd6031535439)
+信息来源：[「法的に深刻な疑問」パリ行政裁判所　屋外でのマスク着用義務の効力停止を決定（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c97532f506b47b270cbf8eb22049e43df9e3bb2a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

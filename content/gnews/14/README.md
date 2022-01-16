@@ -2,44 +2,28 @@
 ---
 
 
-## Facebook母公司Meta涉嫌违反竞争法面临英国集体诉讼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1866181/)
+## 中共到底挥霍了多少人民创造的财富
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866211/)
 
-据《福克斯商业》作者：Ken Martin，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1250.png)Facebook CEO 马克-扎克伯格（Mark Zuckerberg）。图片来源：美联社
-据报道，Facebook母公司因违反竞争法而在英国面临集体诉讼。
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-223.jpg)[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E5%AE%B6%E6%97%8F%E6%88%90%E5%91%98%E7%9A%84%E8%B4%A2%E5%AF%8C%E7%89%88%E5%9B%BE/a-15911607)
+在12月15日文贵大直播中，文贵先生说到：在前几年的爆料中，爆出中共维稳费从过去1300亿到现在10000多亿，现在中共自己承认1.5万亿，相当于2000多亿美元用在了中共的杀人机器！而日本最好的福利一年才不到3000亿美元，解决中国的养老福利也只是需要1300亿美元！
 
-据TechCrunch报道，该诉讼指控总部位于加利福尼亚的Facebook母公司 Meta多年来滥用其在英国社交网络的主导地位。
+在12月29日大直播中讲到：就这个国家到了这种丧心病狂的地步，拿老百姓的钱完全不当钱。中国人一年往外捐款多少钱？赞助多少钱？就在中共习时代、“习太阳”上来往外实际捐款多少钱吗？官方统计6万亿人民币，这是中国说的，还有2万亿在兑现的路上。事实多少钱我告诉你，12万亿人民币呀，1.5万亿美元。1.5万亿美元什么概念战友们？整个广东一年GDP，老百姓都不吃不喝不尿给他。中国15万亿美元的GDP一年，也就是剩下就是1万亿美元，一年中国啥也不干都给他。
 
-指控来自一位竞争法律专家，并得到了强大的诉讼基金支持。
+中共除了维稳费，对外援助这些七哥爆料的天文数字，还有中共党卫军的巨额支出，巨大的三公消费支出、中共官员每年的贪污的天文数字……，这些老百姓辛苦创造的财富，如果这些钱是人民说了算，用在改善民生上，只需拿出一小部分，就可以建多少三甲医院，解决一亿老人的养老问题，可以把全国有白血病的孩子、心脏病的孩子带来健康和生的希望，可以给残疾人送去多少关怀……最可恨的是，这些钱不是用在老百姓本该享有的社会福利上，而是用在维护邪恶体制这个机器上，用在了限制我们自由、控制我们言论、打压我们人权、剥夺和抢劫我们财产、甚至像新疆、西藏、香港的集中营和大屠杀……
 
-如果诉讼成功，Facebook将向其英国用户支付 31 亿美元的损失。该诉讼在位于伦敦的英国竞争上诉法庭提起。
+我们绝不能再容忍中共这样下去，否则我们没有未来，我们的未来就是新中国联邦宣言所要实现的，用一人一票选出真正的民主政府，符合人民的意愿，保障人民的利益，使中国人在法治环境下，有尊严、自由幸福的生活！
 
-诉讼称，Facebook应就2015年至2019年期间对其4400万英国用户数据的滥用支付赔偿金。
+信息来源：
 
-诉讼认为Facebook获取了其用户的所有私人数据，而它的用户只是为了能够将他们婴儿和小猫的照片发布给朋友和家人。
+[2021年12月15日 文贵大直播](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-该行动由国际竞争法专家 Liza Lovdahl Gormsen 博士发起。她声称 Facebook为其英国用户设定了“不公平的价格”。
+[2021年12月29日 文贵大直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
 
-TechCrunch联系Facebook征求意见，但尚未收到回复。
-
-该案的财务支持来自世界上最大的诉讼资助者之一因斯沃思（Innsworth）。
-
-* * *
-
-原文连接：[https://www.foxbusiness.com/technology/meta-facebook-class-action-lawsuit-breach-competition-uk](https://www.foxbusiness.com/technology/meta-facebook-class-action-lawsuit-breach-competition-uk)
-
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
