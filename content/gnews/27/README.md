@@ -2,27 +2,20 @@
 ---
 
 
-## 科学家说继奥米炕之后将有更多令人担忧的变种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1867011/)
+## 天津疫情又起 多少人遭受磨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867285/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-43.png)
-图片来源： www.sohu.com
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1256.png)[图片来源](https://udn.com/news/story/7332/6029559)
+1月16日，在第170场天津市新型冠状病毒肺炎疫情防控工作新闻发布会上天津市卫生健康委二级巡视员、新闻发言人何鹏介绍，自2022年1月15日6时启动，截至16日6时，全市第三次全员核酸检测累计采样检测12431636人，共检出59例阳性，均来自津南区，其中隔离点23例，居家隔离31例，封管控区5例。
 
-美联社1月15日报道，科学家警告说，继奥米炕全球肆虐之后，人们预料奥米炕将不是冠状病毒的最后一种变种。
+中共疫情防控手段原始粗暴，动辄全民核酸检测、封城管控。由此所带来的核酸检测聚集感染，饿死冻死和生病延误救治的次生灾难数不胜数。
 
-每种感染提供了病毒进一步变种的机会，奥米炕与前几种变种相比更具有传染性，尽管有疫苗和有些人已经感染过，奥米炕照样能引起感染。
+信息来源：[天津第三次全员核酸检测共检出59例阳性](https://mbd.baidu.com/newspage/data/landingsuper?isBdboxFrom=1&amp;pageType=1&amp;context=%7B%22nid%22%3A%22news_8555254453052629790%22%7D)
 
-这意味着病毒在更多人中会进一步演变。专家们不清楚下一个变种会是什么样，而且他们不能确定奥米炕会造成较轻的症状，目前的疫苗也不能确定有效。
-
-波士顿大学传染病流行病学专家里奥纳多·马丁纳说：“奥米炕传播越快，就越有机会发生变异。”
-
-世卫组织总干事谭德塞他希望看到年中全球每个国家有70%的人接种疫苗，目前还有几十个国家的接种率低于25%，有大量未接种疫苗的人是引起变种的因素，明尼苏达大学分子病毒系主任路易斯·曼斯基说，变种是不可避免的。
-
-##### **新闻来源： **[Expect more worrisome variants after omicron, scientists say](https://apnews.com/article/coronavirus-pandemic-science-health-pandemics-dc99bc9f769dd6d7cb669e3d185c6261)
-
-# ** **
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
