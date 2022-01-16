@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/16/2022 12:59 PM (UTC)`
+
+EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第五集：用谎言虚构的故事。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
+![img](https://media.gettr.com/group36/origin/2022/01/16/12/e0c267a9-346e-c04f-adcb-3bb6d0667940/out.jpg)
+
+---
+
+`@miles 1/16/2022 1:12 PM (UTC)`
+
+1月16号：全世界人民很快就会知道了，为什么？【荒凉、无雪的景观（除了虚假的东西）引出了一个问题：为什么冬奥会在北京举行？Miles this is an opening for us？ 】<br/><br/><br/>https://www.dailymail.co.uk/news/article-10406229/Why-DID-Winter-Olympics-Beijing.html
+
+---
+
 `@miles 1/16/2022 5:04 AM (UTC)`
 
 史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁<br/><br/>Steven Bannon: The CCP has infiltrated and bought off everything. It is the greatest existential threat that this republic has ever had<br/>
@@ -146,20 +161,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1月14号：今天的太平联盟的官司……从开始到今天唯一的一次，我们获得了一次正义的判案……单伟建建的代表律师．Edward Moss．律所Cahill Gordon & Reindel LLP被纽约高院因严重违反律师道德被踢出局，我们因为这个不道德的律师受……提供的虚假证据的多次不公对待……他知法犯法，因此我们的家人被剥夺了拥有18楼公寓的权力……也被剥夺了选择陪审团的权利……他们利用虚假的……所谓我的担保和很多不真实的证据，以及法律的超限战方式．对待我们……所有人都知道太平联盟和中共的关系．和吴争的关系．和．中国海南航空的关系，HNA．此案是在我申请了政治庇护的24小时内发起的．这也是被抓的孙力军，在美国和我通话期间．警告我如果不和中共国合作，他们就会发起太平联盟这个官司和所谓的马瑞强奸案的官司……会毁掉我的声誉等等……因为一些我他们会在美国及全球．拿走一切我家人所拥有的东西……这个所谓的个人担保的责任的案子，此案事关美国司法和中共国之间的司法界的最黑暗的一面，已经引起了全世界的关注，在这个案子上我们都能看到．有太多的利益冲突和共产党的操控手段．在这个不可思议的造假的案子里…这样有名的律师事务所和这个律师严重的违背律师的职业道德，他绝不会是只有一次事情上这么做的……在整个案子上，他都是这么做的，操控此案的中国公安部副部长孙力军在中国已经被抓了，我相信正义离我们也不遥远了。<br/><br/>我们一定会战斗到底…但我们永远——永远要相信．并尊重美国的法律…和美国的法官．和美国的正义……这就是伟大的美国．伟大的之处……我们这个案子并没有结束……我相信最终这个案子一定也会得到美国法律和法官的公正判决，一切都已经开始！
 ![img](https://media.gettr.com/group7/getter/2022/01/15/02/73770310-8b7f-dacd-c666-d1d950f044fb/4803633305b73b207d031436e8f648dc.jpg)
-
----
-
-`@miles 1/15/2022 2:19 AM (UTC)`
-
-1/14/2022 Miles Guo: The SCOTUS blocking the vaccine mandate means that the campaign of stopping the COVID vaccination by law has begun, and the rest of the world will block the vaccine mandates. Only the New Federal State of China can provide the SCOTUS with the evidence to stop the vaccine mandate.<br/><br/>1/14/2022 文贵直播：美最高法院否决疫苗强制令说明以法灭疫已经开始，全世界将陆续否决疫苗强制令；只有新中国联邦能为美最高法院提供停止疫苗强制令的证据<br/><br/>
-![img](https://media.gettr.com/group20/getter/2022/01/15/02/b8dc5f12-b125-eef4-3b86-20932f4ebd02/out.jpg)
-
----
-
-`@miles 1/15/2022 12:49 AM (UTC)`
-
-1月14号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group18/getter/2022/01/15/00/4f9b207f-9308-275b-efee-8c94dba5f643/out.jpg)
 
 ---
 

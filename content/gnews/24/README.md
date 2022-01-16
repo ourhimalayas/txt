@@ -2,36 +2,22 @@
 ---
 
 
-## 英国卫生部长表示将于本月取消疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867383/)
+## 2022年1月15日郭先生盖特 — 视频1「3分32秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1867384/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月13日，英国卫生部长萨吉德·贾维德宣布，将在本月内彻底取消疫苗通行证。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-10.jpg)
-贾维德表示，经历了一轮奥密克戎历史性的传染高峰之后，新增病例在一周内下降了40% ，住院人数未见明显增长。鉴于“突破性感染”令人惊异的数据，以及疫情的迅速减缓，已经充分证明疫苗通行证无效，并将在未来两周内取消这一政策。此外，多位议员表示，奥米克戎肆虐期间，已接种疫苗人群的高传染率和高致病率，也证明了疫苗通行证没有必要存在，并对政府取消疫苗通行证的措施表示欢迎。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-与此同时，威尔士第一部长也宣布，将于本月底解禁新冠疫情限制。
+Video link: [https://gettr.com/post/pohbz5f05d](https://gettr.com/post/pohbz5f05d)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/36F1D140-C2F7-40A7-B014-61BDB207B28E.jpeg)
+尊敬的战友们好，2022年1月15日。
 
-参考链接：
+我从昨天到现在忙，兄弟姐妹们，我今天再次给大家说我真是感觉到这个世界上现在病毒离每个人都太近了！就我这块儿收到的信息「关于」世界上各处的战友家里边儿被染上病的，求救助的，求帮忙的都太多太多了！这就是7哥一再给大家说的 — 务必小心！能不出去就别出去了；能不得瑟就不得瑟了。尽量不要染上病毒，你不要求助才是最好的。
 
-- [England ‘WILL scrap Covid passes and WFH at the end of the month’ because they are ‘hard to justify’ now that Omicron is subsiding — with masks on trains and in shops the only curb left](https://www.dailymail.co.uk/news/article-10400971/Sajid-Javid-scrap-Covid-passes-fortnight.html)
+但是越是在这个时刻，我们新中国联邦各农场越是这个时候对战友的帮忙和提供的医药、各种资讯更要跟上去，越是这种时候要能不放下一个战友，不能忘下一个战友。希望咱们各农场真的能做到这点 — 这是考验我们战友情，新中国联邦力量，农场的团结和执行力的时候了。而且现在大家记住真要备点物资了，真要备点物资了。现在你看到这个大卡车协会，各种工会现在因为疫苗的问题都要罢工；现在你看到世界各种物资这价格有的是飞涨，有的是卖不出去。所以这时候真的是够吓人的！家里边要有点面、油，是吧？要有面，要有油，要有盐 — 这些最起码要有。希望咱们战友们认真对待，尽量别出去。
 
+昨天到现在好多战友说“我就出去了一次，7哥，到超市买个东西回来「就感染」了。”咋回事呢？中间就摘了一次口罩 — 干什么？女的上厕觉得女厕所安全就把口罩摘了，「结果」一洗手，染上了；男的也是到厕所，洗手把口罩摘了「染上了」，还有男的出去外面抽根烟，跟着一起抽烟染上了 — 太多了！这种无知的错误太可怕了！就在我们公司今天大早上二、三个又染上的。所以兄弟姐妹们，这时候太可怕了，一定要小心了，你尽量不需要药才是好事嘛，对不对呀？啥都不说了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+哎呀，战争！在世界第二次大战的时候那纪录片里边儿，你看战争的时候天上的太阳挂着，地里边庄稼长着，但就是“咚咚咚”就战争了。你看看当年西班牙大病毒流行的时候死那么多人，整个包括当时老鼠病毒在英国；你看那些留下的资料，阳光下一片片的死人尸体 — 它并不遥远。我们这时候要记住：无论发生什么情况你都作为新中国联邦人应该是做好最好的保护，最好的预防。大家不能染上病，大家一定要小心！这不是开玩笑的。7哥强烈的感受啊现在。拜托了，兄弟姐妹们，拜托了。其它事儿咱先别说了，明天可能继续直播，由于行程改变也可能直播或者星期一直播 — 请看盖特公告，好吧？兄弟姐妹们，拜托了，多小心！
 
  
 

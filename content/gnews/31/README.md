@@ -2,24 +2,39 @@
 ---
 
 
-## 世界已被唤醒 澳洲多地爆发反中共病毒疫苗游行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867334/)
+## 科学家警告：新冠疫苗可导致年轻人“严重”神经退行性疾病
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867338/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1265.png)[图片来源](https://www.scmp.com/news/asia/australasia/article/3161262/coronavirus-australia-tops-10000-daily-cases-indonesia)
-澳大利亚新州、维州多地爆发反中共病毒（COVID-19）疫苗游行抗议。
+编译： Jenny Ball
 
-1月15日，悉尼和墨尔本的抗议者走上街头，反对疫苗接种和网球明星德约科维奇的第二次签证取消。由于数千人游行反对为儿童接种中共病毒疫苗，悉尼警方关闭了 CBD 的部分地区。人群从阿尔弗雷德王子公园蜿蜒到海德公园。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1263.png)图片来源:childrenshealthdefense.org
 
-据悉，截至目前，澳大利亚有近2000 万人完全接种了中共病毒疫苗。
+给年轻人接种 COVID 疫苗，可能会导致“**几种主要神经退行性疾病的惊人增加**”，斯蒂芬妮·塞内夫 (Stephanie Seneff) 博士今天告诉福克斯新闻。
 
-2020年初以来，爆料革命、新中国联邦不断传播中共病毒（COVID-19）和疫苗真相，而澳大利亚作为一个被中共严重腐蚀的国家，民众能走上街头，这已经表明正义已被唤醒，共产党的病毒和疫苗的危害即将大白于天下。
+马萨诸塞州剑桥市麻省理工学院计算机科学与人工智能实验室的高级研究科学家塞内夫说，为年轻人接种 COVID 疫苗是“**令人发指的**”，因为他们死于该病毒的“风险非常低”。
 
-信息来源：[澳大利亞新州維州多地爆發反covid疫苗游行抗議](https://gettr.com/post/pokua3df3d)
+“当你看到这些疫苗的潜在危害时，它就没有任何意义，”塞内夫说。“从长远来看，反复的加强剂将是非常具有破坏性的。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+塞内夫告诉福克斯新闻的劳拉·英格拉汉姆（Laura Ingraham），她做了“大量研究”，以帮助她了解 COVID 疫苗如何在以后的生活中导致神经退行性疾病。
+
+“**这令人非常不安**，”她说。
+
+根据塞内夫的研究：
+
+“ mRNA 疫苗和 DNA 载体疫苗，都可能在未来某个时候成为致残疾病的途径。通过刺突蛋白的朊病毒样作用，我们可能会看到几种主要神经退行性疾病的惊人增加，包括帕金森病、慢性肾病、肌萎缩侧索硬化（ALS ）和阿尔茨海默病，在未来几年，这些疾病将出现越来越年轻的人群中的患病率增加。
+
+“不幸的是，我们不知道疫苗是否导致了这种风险增加，因为疫苗接种事件和疾病诊断之间通常会有很长的时间间隔。”
+
+塞内夫说，对于这点，“对于疫苗制造商来说非常方便，他们可以从我们的不幸中获得巨额利润——**既有来自疫苗本身的销售**，也有来自治疗所有这些使人衰弱的疾病的巨额医疗费用。”
+
+新闻来源:[childrenshealthdefense.org][COVID Shots Could Cause ‘Crippling’ Neurodegenerative Disease in Young People, MIT Scientist Warns](https://childrenshealthdefense.org/defender/mit-scientist-stephanie-seneff-neurodegenerative-disease-young-people-covid-shots/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
