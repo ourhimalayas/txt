@@ -2,28 +2,36 @@
 ---
 
 
-## 【中日财经爆】疫情下，日本上市企业裁员自保
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867687/)
+## 因停售新疆产品，中共报复沃尔玛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1282.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.insider.com%2F61b2f27b4d41d300182644ce%3Fwidth%3D700&amp;imgrefurl=https%3A%2F%2Fwww.businessinsider.com%2Fchina-tech-companies-lay-off-staff-on-government-tech-crackdown-2021-12&amp;tbnid=EYcnHurfGynGbM&amp;vet=12a)
-据调查，2021年有84家日本上市公司征集提前退休人员，这是连续第二年超过80家上市企业开展裁员。随着新冠疫情再次蔓延，许多公司不看好未来商业环境，不得不通过提前退休政策达到裁员的目的。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
+去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
 
-2019年有35家，2020年跃升至93家。这是自2008年金融危机以来，首次连续两年超过80家。申请人数预计也在15,700人左右，连续第二年超过15000人。
+由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
 
-按行业划分，“服装/纺织”行业的提前退休人数最多，此外是餐饮行业和旅游行业。
+周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
 
-即使是大企业，即使在疫情期间的盈利的企业，也在通过裁员来降低人工费、改善盈利。
+参考链接：
+1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
+2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
 
-征集对象是40到60岁年龄段的职工，他们大多是家庭的经济支柱，一旦失业不仅对他们的家庭而且对社会都会造成冲击、动荡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-只有灭共才能还人类安宁。
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-信息源：[＜独自＞上場８４社が希望退職募集　２年連続高水準](https://news.yahoo.co.jp/articles/43302fcfb6942b01e37683a7c73213a31537bbca)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,24 @@
 ---
 
 
-## 因停售新疆产品，中共报复沃尔玛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
+## 喜币融入世界规则：以金钱为基础实现正义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867972/)
 
-作者：MOS 柳是多水土透
+作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
-去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
+1月14日，郭文贵先生大直播中爆料，中东一些国家与中共在近日进行了会晤。此次会晤中共付出了巨大代价。在双方见面之前，中共已经兑现了各国的各种需求，包括金钱、武器、免除债务等。见面之后，这些中东国家并未遵循中共意愿，而是再次提出了新的要求：参加冬奥会和接受数字人民币的前提是中共购买中东国家的商品，用美元结算，并且要能够随时提现。中共对此次会晤大失所望，因为他们已经失去了金钱勾兑的能力。
 
-由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-12.jpeg)
 
-周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
+郭先生认为，世界亘古不变的基础就是金钱。我们的喜币拥有了货币权，已经真正有能力融入这个规则，在满足对方利益的前提下，用金钱做基础来实现我们的正义。喜币是新中国联邦真正走向世界和表达权利的一个重要的金钱基础。
 
-参考链接：
-1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
-2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
+参考链接：[https://gettr.com/post/pocyu016b6](https://gettr.com/post/pocyu016b6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

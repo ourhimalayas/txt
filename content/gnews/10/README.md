@@ -2,30 +2,37 @@
 ---
 
 
-## 【中日财经爆】世界经济论坛：全球专家认为世界前景堪忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1867721/)
+## 2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867795/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh4.googleusercontent.com/aQMjPEL2XPiG7EOJL_1Oclb8fjC2OtpYYgqBucMQKyWg7hB-pHHwkA3Xv9cHad1URj09A8JmnTLu1jOaLIDwt8hPuQyb9Q37zwc58TMh8TR8Z3jR0mYBDSnsVYvb2IHcgNUrKt8a)[*图片来源*](https://www.weforum.org/weforum.jpg)
-16日，笔者从日本媒体获悉，世界经济论坛（WEF）关于全球风险分析的一份新报告显示，84%专家对未来三年的全球形势持悲观态度。
+作者：杨帆农场 – 哈雷
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共病毒致使美国创下40年来最高通胀水平。
 
-调查对象是企业界占约40%，16%是政府机构，17%是学术界人士。按地域划分，约 45% 受访者来自欧洲，北美15%，13%来自亚洲。
+据《华盛顿邮报》报道，美国2021年12 月份，物价以 40 年来最快的速度上涨，比去年同期增长了 7%。这一通货膨胀比率已经远远超过了美联储设立的长期健康目标的2%。美联储从最初的认为高通胀只是暂时的观点也慢慢改变，认为高通胀将会持续一段时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.55.png)
+随着中共病毒疫情爆发进入到第三个年头，美国及全球的供应链系统和劳动力短缺遭遇了前所未有的挑战，因疫情导致各行各业间歇性的停工减产，并引起航运业的混乱。同时基础原材料价格上升，WTI美国原油期货价格近期突破80美元一桶大关，徘徊在每桶83美元附近。面对紊乱的供应链问题，美联储并没有正面应对，而是通过降准以及QE刺激需求，进一步扩大了供需不平衡，从而导致通胀率的进一步加升。
 
-根据世界经济论坛新报告，大多数受访者预计未来三年世界将出现一系列动荡和突发事件，国家之间的不平衡日益加剧，发展中国家与发达国家的差距越来越大，各国最终输赢亦难以定夺。
+除了各大原材料以及食物价格快速上升之外，北美流媒体公司奈飞（Netflix）近日也宣布上调订购价格10%左右。我们可以预计越来越多的科技行业寡头公司将通过提高价格的形式为其带来财报和股价的提升。而另一方面，普通消费者将面临生活中各方面消费价格的快速提升而带来的实际购买力下降，因为他们的工资并没有达到像物价那样的增长速度。
 
-从长远来看，气候变化被认为是未来十年世界面临的最大风险。气候异常、生物多样性丧失、社会凝聚力减弱、民众生计危机和传染病以及债务危机继续是主要影响因素。
+参考链接：
+1）[December prices rise 7 percent compared with a year ago, as 2021 inflation reaches highest in 40 years](https://www.washingtonpost.com/business/2022/01/12/december-cpi-inflation/)
+2）[WTI原油期货涨幅扩大至4%突破80美元关口](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247835&amp;v=0)
+3）[用户增速预计放缓，奈飞上调北美流媒体服务价格](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247756&amp;v=0)
 
-与世界经济论坛共同编写报告的苏黎世保险集团首席风险官彼得·吉格表示，政府和企业应及时采取应对风险的行动并引领能源转型。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-该报告指出，风险也正在外太空产生。各国加速外太空开发增加了碰撞的风险，空间碎片数量增多会影响卫星轨道。国际紧张局势也会因此加剧。
+总编：正义的小新
+编辑：Delilah小胖
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-笔者认为，中共病毒与疫苗造成的全球灾害才是所有风险之首。中共才是风险之源。
-
-信息源：[**有識者８４％、今後３年の世界情勢は「悲観的」　世界経済フォーラム報告書**](https://news.yahoo.co.jp/articles/5187025e39191981551b098acee8c5b5d0a54408)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

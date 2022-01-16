@@ -2,28 +2,28 @@
 ---
 
 
-## 世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867794/)
+## Joe Rogan风波带给新中国联邦人的启示
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1868010/)
 
-作者：MOS 柳是多水土透
+作者：纽约香草山 信息部 – 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒1月11日综合消息，世银调降美、欧及中国经济增长预估，警告普遍债务过高，贫富加剧，以及新的新冠病毒变种对发展中经济体复苏构成威胁。2022年全球经济成长率将从去年的5.5%明显降至4.1%，2023年则是进一步降至3.2%，因各国政府停止疫情之初提供的，大规模财政及货币刺激政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.47.png)
-世银预期，发达国家经济活动在2020年萎缩过后，于2021年大幅反弹，但警告通胀更为持久，供应链及劳动力问题，及新的新冠变种病毒等因素，有可能打击全球增长。疫情已经加深发达与发展中国家的成长差距，同时也导致各国内部增长出现分歧，可能加剧社会紧张及动乱。
+1月14日，郭文贵先生在大直播中谈到，Joe Rogan事件是一场误会，他因为不理解盖特的数据功能，而提出质疑。但是，这件事更加印证，盖特数据没有造假。
 
-世行展望小组的Ayhan Kose认为，发展中国家“硬着陆”风险升高，因他们提供必要财政援助的选项有限，通胀压力持续高涨，且财政相当脆弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-10.jpeg)
 
-报告预估，2022年发达国家经济体成长率，将从2021年的5%降至3.8%，2023年进一步下滑至2.3%。美国2021年国内生产总值(GDP)增长率，预估调降1.2个百分点至5.6%；同时，预估2022年成长将骤降至3.7%；2023年降至成长2.6%。世银称，日本2021年GDP增长将下降到1.7%，较6月时预估少了1.2个百分点；2022年增长率则将升至2.9%。
+Joe Rogan是有七百多万关注的推特大V，盖特的功能可以将他的推特数据完整平移，再加上盖特新增的一百多万，总共是九百多万关注人数。Joe Rogan不懂盖特的数据库平移技术，误认为短时间内如此巨大的关注量，是盖特数据造假。
 
-参考链接：
-1）[World Bank slashes global growth forecast and warns about growing inequality](https://www.cnbc.com/2022/01/12/world-bank-slashes-2022-global-growth-forecast.html)
-2）[Omicron, Supply-Chain Troubles to Slow Growth, World Bank Says](https://www.wsj.com/articles/omicron-supply-chain-troubles-to-slow-growth-world-bank-says-11641918947)
+全球社交媒体和中共利用这个误会，大肆诋毁盖特，更加说明盖特的重要，证明盖特已经成为一支最特别的社交媒体平台。盖特是提供言论自由和真相的平台，只要做到为真不破，就必然会经得起质疑。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭先生说，Joe Rogan风波考验了新中国联邦人的智慧、心胸和自信心。新中国联邦人坚守信念，不要因思维限制了思考的高度，凡事多自省，坚持为真不破，以理服人。
 
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文特
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
