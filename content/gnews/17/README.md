@@ -2,32 +2,23 @@
 ---
 
 
-## 中共联合贪婪权贵 妄图推广共产主义式“共享财富”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865227/)
+## 雅典娜时报-第173期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1865235/)
 
-撰稿】银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-郭先生1月12日直播中爆料，桥水基金的Ray Dalio是王岐山的生死兄弟。王岐山在目前的中共内斗中还能活着，全部仰仗这个人和他的桥水基金。此前王岐山将一万亿美元的中国国家基金交给桥水管理。桥水不仅投资了中共国境内前15000家企业的60%，也几乎做为唯一投资者100%参与了与新疆绩优股、新疆矿、内蒙古、西藏有关的投资，所有和共产党相关的科技股投资也几乎是来自桥水。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1228.png)
-Ray Dalio对中国人的伤害远远超过了一个国家的伤害程度。 目前，Ray Dalio这样的贪婪资本家，以及欧洲一些权贵要和共产党沆瀣一气，在美国、欧洲，甚至全球大搞共产主义式的“共享财富”。即让权贵和共产党假借“共享财富”之名，通过暴力流血和法律等手段，强制性劫掠80%以上人的社会财富，最后这些财富都会落入极少数权贵之手。普通老百姓不仅要面临生存危机，还要去填补权贵透支的巨大亏空。此种做法像极了当年共产党杀掉地主以后，将其财富共享，普通老百姓依然需要负担所有的生计，这些钱最后都落入共产党权贵私囊。“共享财富”是一场共产主义的骗局。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-新闻来源：https://gettr.com/post/po10clae09
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/829864694670950410/932053758731513986/155-1.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/829864694670950410/932053759188697128/155_1.png?width=910&amp;height=1355)
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-总编：Irene木木
-
-编辑：Ivy001
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

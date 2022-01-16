@@ -2,42 +2,31 @@
 ---
 
 
-## 最后时刻反转！从今日起卡车司机入境加拿大需疫苗证明
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865104/)
+## 扬帆每日速递 2022年1月15日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865133/)
 
-加拿大温哥华扬帆农场：Jamie\_Luffy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E564D9D2-AE18-487F-AAEC-133FE784C7D1.jpeg)
-图片来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、香港中文大学表示，将在校园推广《基本法》和国安教育，以加强学生对国家的归属感。获得相关学术批准后，于2022学年推出。
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+2、内地媒体昨日爆出，贵州茅台酒销售有限公司董事兼总经理曾祥彬于2021年12月7日从仁怀市自家4楼窗台处坠楼身亡，年仅49岁。
 
-就在1月12日周三晚上加拿大边境服务局发言人Rebecca Purdy 刚刚宣布暂不执行对来往于美加边境的卡车司机的强制疫苗令后，周四加拿大卫生部正式宣布，强制疫苗令将如期推行。从1月15日今天开始，没有注射两针新冠疫苗的加拿大籍卡车司机，在从美加边境开车回加拿大时，需要现场进行新冠测试，并隔离14天。而外国籍的卡车司机，将无法入境。
+3、中共国当地监管机构和官方媒体渲染沃尔玛公司去年支付了大约50000美元的罚款的消息，使得在这家美国零售商在北京和华盛顿之间的政治紧张局势加剧之际成为了人们关注的焦点。
 
-目前，大约120,000名货车司机来往美加边境。在强制疫苗施行后，28,000名美国未注射疫苗的货车司机不能入境加拿大。据加拿大卡车协会Canadian Trucking Alliance (CTA) 预计，约12,000名加拿大卡车司机在新政实施后将无法继续工作，占目前行业10%-15%的人数。加拿大私人卡车协会会长Mike Millian表示，政府在强制疫苗政策上的反反复复造成了行业混乱，而如今正式实施将对正在经历严重用工短缺的运输业造成灾难性打击。
+4、中共国在2017年公布了一项在西藏自治区边境地区建设600多个村庄的计划。而现在它正在扩大在与不丹有争议的边界沿线建立定居点。此举可能加剧与包括印度在内的邻国的紧张关系。
 
-加拿大特鲁多政府在强制疫苗政策上如脱缰的野马，越来越失控，全然不顾对行业工人和民众生活的影响。目前，加拿大和美国之间的贸易额每年超过6500亿加币，其中三分之二的货物都是通过卡车进行运输，预计疫苗强制令后供应链的短缺会导致已经飞涨的物价更加恶化。悲剧已经注定，加拿大人将会为疫苗付出惨痛的代价。
+5、据文贵大直播：北京最起码抓了四个正厅级干部，黑龙江抓了两家，审孙力军案子的人被抓，《零容忍》制作组的几个人被抓。
 
-在刚刚发布的Gettr视频中，郭先生提到美国可能会发生卡车司机大罢工，来抵制政府的强制疫苗令。同时，郭先生呼吁大家囤积必要的生活物资如米面油盐等，应对接下来即将发生的供应链断链下的食物短缺问题，最黑暗的时刻似乎即将到来。
+6、据文贵大直播：美联储接受跟私人稳定币合作，喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则，而且把新中国联邦紧紧跟全世界人民连在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-15海报1_page-0001.jpg)
+**加拿大温哥华扬帆农场 海报组**
 
-(本文仅代表作者观点)
+素材提供战友：从来多难不兴邦、Revelation熙攘、Shuang、文敏
 
-参考链接：
+海报图片设计：飞天面、 Shuang
 
-[https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+编辑：文敏
 
-[https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/](https://tnc.news/2022/01/14/trucking-industry-in-chaos-due-to-incompetent-federal-messagin/)
-
-[https://beta.cp24.com/news/2022/1/12/1\_5737465.html](https://beta.cp24.com/news/2022/1/12/1_5737465.html)
-
-[https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border](https://www.washingtonexaminer.com/news/canada-to-require-vaccination-proof-for-truck-drivers-crossing-border)
-
-
-
-> [Truckers warn vaccine mandate at U.S. border could worsen supply chain issues](https://globalnews.ca/news/8503670/trucking-vaccine-mandate-us-canada-border/)
-
-
-
-审核：文敏   发布： 天予
+发布：风起云间（文敏）
 
  
 

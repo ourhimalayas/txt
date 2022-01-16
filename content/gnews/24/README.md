@@ -2,45 +2,36 @@
 ---
 
 
-## 美国大型公司——通用电气公司，积极跟进响应最高法院阻止拜登的疫苗强制令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865162/)
+## 【中日财经爆】中共加强商票监管 试图缓解金融暴雷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865213/)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片18-2-edited.png)图片来源：CNBC
-##### **关键点**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-33.png)[图片来源](https://www.rzline.com/IndustryNewsDetail.html?14565)
+1月14日，中共人民银行、银保监会发布《商业汇票承兑、贴现与再贴现管理办法（征求意见稿）》（下称“征求意见稿”），对早在1997年颁布的《商业汇票承兑、贴现与再贴现管理暂行办法》（下称《办法》）进行修订。
 
-##### **通用电气公司已经暂停了公司现行的新冠病毒疫苗接种和新冠病毒测试规则**
+《办法》修订稿包括总则、承兑、贴现和再贴现、风险控制、信息披露、监督管理、法律责任和附则，共八章四十二条。主要内容包括：
 
-##### **通用电气公司在2020年底的员工人数为17.4万人**
+一是明确承兑和贴现资质要求。承兑、贴现应具备相应的资质和符合监管要求。承兑人应经营和财务状况良好，具备到期付款能力。持票人申请贴现，应具有真实交易关系。
 
-##### **通用电气公司这个举动是****在最高法院阻止拜登的疫苗强制令后****进行的**
+二是加强风险防控。银行承兑汇票和财务公司承兑汇票的最高承兑余额不得超过该承兑人总资产的15%，保证金余额不得超过承兑人存款规模的10%。
 
-##### **拜登仍然呼吁企业自愿执行实施新冠病毒疫苗接种和新冠病毒测试规则**
+三是缩短最长付款期限。商业汇票的付款期限自出票日起至到期日止，最长不得超过6个月。
 
-CNBC（CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日（星期五））发表题为《在最高法院阻止拜登的疫苗强制令后，通用电气公司已经暂停了公司现行的新冠疫苗接种和新冠病毒测试规则》的文章称，通用电气公司发言人告诉CNBC，周五（美国东部时间2022年1月14日），在最高法院阻止拜登的疫苗强制令后，通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则。
+概况起来，征求意见稿的核心就两点，一是控制总量，二是控制期限。
 
-该发言人说，截至2020年底，通用电气公司有17.4万名员工，至今为止通用电气公司一直鼓励它的员工接种新冠病毒疫苗（然而，现在通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则）。
+长期以来，商业票据已严重偏离了企业融资渠道这个主要功能，逐渐演变成了企业信用扩张、传导债务，甚至成为套取银行资金的工具。
 
-最高法院的保守派多数派以 6比3 的投票结果称拜登政府的规定是一个“生硬的，一刀切的措施”，“没有基于行业或暴露于新冠病毒 （Covid-19）的风险进行区分对待”。
+郭文贵先生之前多次爆料，单一个民生银行的票据黑洞就高达万亿规模，更不用提其他的商业银行、城（农）商行。加之，2021年以来的房地产行业的接续暴雷，因商业汇票无法兑付所波及的金融机构和企业众多。
 
-乔·拜登Joe Biden总统在法院作出裁决后发表声明，呼吁美国公司自愿（非强制性的）实施新冠病毒疫苗接种和新冠病毒测试规则。
+中共修订“商业汇票管理办法”试图缓解金融和企业暴雷，或将是徒劳。
 
-“法院已经裁定，我的政府不能使用国会授予它的权力来要求采取这一措施，”拜登说。”但这并不妨碍我作为总统用自己的声音来倡导企业雇主做正确的事情，以保护美国人的健康和美国人的经济。”
+信息来源：
 
-美国高法院判决阻止拜登的疫苗强制令是一条令人鼓舞的消息，然而，与此相反，加拿大魁北克省法官的一个裁定却令人担忧。
+[商票监管补短板，划定了这些红线|商业银行|存款|央行](https://www.163.com/dy/article/GTN0FOAR0519DDQ2.html)
 
-日前，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章报道，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。
-
-**参考资料**：
-
-1. CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日，GE suspends Covid vaccine and testing rules after Supreme Court blocks Biden mandate，[https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html](https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html)
-2. 义务报，Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日， [«Un père non vacciné perd temporairement le droit de voir son enfant»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant](https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant)
-
-
-编辑/发布：LILY
-
-20220115
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

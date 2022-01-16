@@ -2,14 +2,14 @@
 ---
 
 
-## 七哥金句
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865093/)
+## 七哥金句（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1865099/)
 
 整理：雅典娜速记组
 编辑：tianzhihuan
 
-绝对的网络，绝对的思想控制和资源控 制让老百姓准备好当牛做马，远离时尚和物质生活的时代，不可控的因素全部要干掉。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句-.jpg)
+只要我们敢于面对，坚持咱的唯真不破, 坚持灭共的决心，无我的境界，爆料革命绝对是遇难呈祥，永远处在不败之地。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2-.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

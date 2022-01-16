@@ -2,32 +2,45 @@
 ---
 
 
-## 扬帆每日速递 2022年1月15日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1865133/)
+## 美国大型公司——通用电气公司，积极跟进响应最高法院阻止拜登的疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1865162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、香港中文大学表示，将在校园推广《基本法》和国安教育，以加强学生对国家的归属感。获得相关学术批准后，于2022学年推出。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片18-2-edited.png)图片来源：CNBC
+##### **关键点**
 
-2、内地媒体昨日爆出，贵州茅台酒销售有限公司董事兼总经理曾祥彬于2021年12月7日从仁怀市自家4楼窗台处坠楼身亡，年仅49岁。
+##### **通用电气公司已经暂停了公司现行的新冠病毒疫苗接种和新冠病毒测试规则**
 
-3、中共国当地监管机构和官方媒体渲染沃尔玛公司去年支付了大约50000美元的罚款的消息，使得在这家美国零售商在北京和华盛顿之间的政治紧张局势加剧之际成为了人们关注的焦点。
+##### **通用电气公司在2020年底的员工人数为17.4万人**
 
-4、中共国在2017年公布了一项在西藏自治区边境地区建设600多个村庄的计划。而现在它正在扩大在与不丹有争议的边界沿线建立定居点。此举可能加剧与包括印度在内的邻国的紧张关系。
+##### **通用电气公司这个举动是****在最高法院阻止拜登的疫苗强制令后****进行的**
 
-5、据文贵大直播：北京最起码抓了四个正厅级干部，黑龙江抓了两家，审孙力军案子的人被抓，《零容忍》制作组的几个人被抓。
+##### **拜登仍然呼吁企业自愿执行实施新冠病毒疫苗接种和新冠病毒测试规则**
 
-6、据文贵大直播：美联储接受跟私人稳定币合作，喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则，而且把新中国联邦紧紧跟全世界人民连在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-15海报1_page-0001.jpg)
-**加拿大温哥华扬帆农场 海报组**
+CNBC（CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日（星期五））发表题为《在最高法院阻止拜登的疫苗强制令后，通用电气公司已经暂停了公司现行的新冠疫苗接种和新冠病毒测试规则》的文章称，通用电气公司发言人告诉CNBC，周五（美国东部时间2022年1月14日），在最高法院阻止拜登的疫苗强制令后，通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则。
 
-素材提供战友：从来多难不兴邦、Revelation熙攘、Shuang、文敏
+该发言人说，截至2020年底，通用电气公司有17.4万名员工，至今为止通用电气公司一直鼓励它的员工接种新冠病毒疫苗（然而，现在通用电气已经暂停了其公司现行的新冠病毒疫苗接种和新冠病毒测试规则）。
 
-海报图片设计：飞天面、 Shuang
+最高法院的保守派多数派以 6比3 的投票结果称拜登政府的规定是一个“生硬的，一刀切的措施”，“没有基于行业或暴露于新冠病毒 （Covid-19）的风险进行区分对待”。
 
-编辑：文敏
+乔·拜登Joe Biden总统在法院作出裁决后发表声明，呼吁美国公司自愿（非强制性的）实施新冠病毒疫苗接种和新冠病毒测试规则。
 
-发布：风起云间（文敏）
+“法院已经裁定，我的政府不能使用国会授予它的权力来要求采取这一措施，”拜登说。”但这并不妨碍我作为总统用自己的声音来倡导企业雇主做正确的事情，以保护美国人的健康和美国人的经济。”
 
+美国高法院判决阻止拜登的疫苗强制令是一条令人鼓舞的消息，然而，与此相反，加拿大魁北克省法官的一个裁定却令人担忧。
+
+日前，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章报道，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。
+
+**参考资料**：
+
+1. CNBC，斯宾塞·金博尔Spencer Kimball，@SPENCEKIMBALL·美国东部时间2022年1月14日，GE suspends Covid vaccine and testing rules after Supreme Court blocks Biden mandate，[https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html](https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html)
+2. 义务报，Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日， [«Un père non vacciné perd temporairement le droit de voir son enfant»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant](https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant)
+
+
+编辑/发布：LILY
+
+20220115
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
