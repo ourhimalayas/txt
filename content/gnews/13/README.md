@@ -2,21 +2,36 @@
 ---
 
 
-## 七哥三个月之后再次向世界发出预警（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868897/)
+## 有声|郭文贵先生谈喜马拉雅农场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868939/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
 
-这个不是好消息。我专门请教了科学家。科学家说，如果他要这么干的话, 可能就真的要放最毒最毒的毒了。他说甚至都在他知道的之外。我告诉他我这7个人我大概知道4个人的名字，我念到第3个人名字时候把他吓一大跳， 他说这个人要出来，后果不堪设想。他说王沪宁要在这里边儿，可能是就了不得了。还有另外一位少将的名字在里面啊。这个家伙那是可就坏到家了。 他说这是个精神病。就像当年希特勒的戈培尔一样。哇塞。这是对我很震惊的，就是说这次要他跟美国较量，兄弟姐妹一定要记住，美国人一定最终搞明白的，一定能搞得明白的，这点你们半点不用担心，还要看具体的什么动作。但是这场冬奥会，2月14号之后，病毒的去向和共产党打不打台湾和美国的较量，一定会走上一个新的不同的高度，这就是我们今天要说的，上天让其亡，必让其猖狂。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（二）-.jpg)
-发布：tianzhihuan
+与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[郭文贵先生谈喜马拉雅农场](https://gnews.org/zh-hans/1866169/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
