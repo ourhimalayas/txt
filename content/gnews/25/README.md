@@ -2,33 +2,28 @@
 ---
 
 
-## 日本新增病例暴增 政府缩短隔离时间应对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867381/)
+## 美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867382/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月14号，日本东京单日新增感染人数继续攀升，自去年8月以来首次突破4000人。其中，接种两剂疫苗后，依旧感染中共病毒的人数最多，几乎占据总感染人数的50%。只接种一针疫苗的感染人数约占30%，而未接种的人群表现最好，仅占染病总数的20%。
+1月13日，鉴于俄亥俄州中共病毒的严峻形势，该州州长宣布，将部署2300名国民警卫队，支援该州15个测试地点。其中，大约200名警卫员提供医疗支持，另外2100人帮助进行检测，提供食品服务，对住院患者进行运输和管理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-8.jpg)
 
-根据日本厚生劳动省公布的数据，最先接种且两剂接种率超过90%的70岁以上人群，与未接种前同期数据相比，死亡率升高了近2%。
+当天，拜登总统也宣布，计划向包括俄亥俄州在内的六个重灾州派遣医疗队。其中，一个由美国空军护士、医生和呼吸治疗师组成的团队正在前往克利夫兰诊所。
 
-而为了解决由于新增病例暴增，人手短缺的问题，日本政府将密切接触者的隔离期由以往的14天，降低至10天，甚至在隔离6天后检测呈阴性就解除隔离。同时针对那些密切接触病患的医疗工作者，厚生劳动省颁布新规，工作人员每日上岗前检测呈阴性便可以上岗，不用遵从密切接触者的隔离期规定。
+据悉，俄亥俄州于当天报告了近2万例中共病毒病例，以及416例新住院病例。而俄亥俄州卫生部称，超过60%的俄亥俄州人至少接种了第一剂疫苗。
 
 参考链接：
 
-- [日增47万多例！美国CDC发布最新指引：隔离时间砍半](https://www.sohu.com/a/512420512_115479)
-- [医療従事者 毎日検査で勤務可能　厚生労働省 自治体にあらためて通知](https://www.fnn.jp/articles/-/298040)
-- [オミクロン株濃厚接触者 待機期間を１０日以下に短縮へ](https://news.tbs.co.jp/newseye/tbs_newseye4447663.html)
-- [加拿大魁北克省拟向拒绝接种新冠疫苗者征收“健康税”](https://www.yicai.com/news/101288514.html)
-- [記事が見つかりませんでした](https://www3.nhk.or.jp/news/html/20220114/k10013431341000.html%3E)
-- [看看日本東京1月4-14日的數據，藍色是單日新增總數，紅色是接種兩劑後依舊感染，綠色是未接種的感染人數](https://www.gettr.com/post/po9r9icb25)
+- [National Guard, federal troops to help Ohio’s COVID-19 response](https://www.washingtonexaminer.com/politics/national-guard-federal-troops-to-help-ohios-covid-19-response?utm_source=ground.news&amp;utm_medium=referral)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Irene木木
-编辑：Ivy001
+总编：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

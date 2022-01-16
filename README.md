@@ -21,125 +21,125 @@
 ### [立陶宛指小米内建审查,德国监督机构称无证据](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国需在关键领域和中共脱钩](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [爆料革命——历史的今天12月01日](/content/gnews/5/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [1/16 银河快讯: 日本内阁支持率大幅上升；美国基金将转让大江户温泉物语控制权](/content/gnews/6/README.md)
+### [1/15 银河快讯:日印外长确认对朝鲜问题协调反应；俄罗斯外长将在今年春季访问日本](/content/gnews/3/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [上海环球港因疑似疫情被关闭](/content/gnews/7/README.md)
+### [中共渗透、收买了一切，是美国有史以来最大生存威胁](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [网球头号选手德约科维奇的签证再次被取消](/content/gnews/8/README.md)
+### [美国需在关键领域和中共脱钩](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [孙立军因涉嫌受贿、操纵证券市场被提起公诉](/content/gnews/9/README.md)
+### [爆料革命——历史的今天12月01日](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [1/16 银河快讯: 日本内阁支持率大幅上升；美国基金将转让大江户温泉物语控制权](/content/gnews/7/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [上海环球港因疑似疫情被关闭](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [司法部承受压力或终止针对间谍活动的“应对中共国”项目](/content/gnews/10/README.md)
+### [网球头号选手德约科维奇的签证再次被取消](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国政府为推行疫苗而忽视对治疗性药物的研究](/content/gnews/11/README.md)
+### [孙立军因涉嫌受贿、操纵证券市场被提起公诉](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [广州恒大集团深圳总部招牌被拆除](/content/gnews/12/README.md)
+### [司法部承受压力或终止针对间谍活动的“应对中共国”项目](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国政府为推行疫苗而忽视对治疗性药物的研究](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [广州恒大集团深圳总部招牌被拆除](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [秘翻在线：美通用电气公司宣布暂停执行接种疫苗规定](/content/gnews/13/README.md)
+### [秘翻在线：美通用电气公司宣布暂停执行接种疫苗规定](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/16 英喜时事速递](/content/gnews/14/README.md)
+### [2022/01/16 英喜时事速递](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧药管局推病毒新口服用药 自圆其说 击鼓传花！](/content/gnews/15/README.md)
+### [欧药管局推病毒新口服用药 自圆其说 击鼓传花！](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [土著男子背父穿越丛林接种新冠疫苗 父亲几周后去世](/content/gnews/16/README.md)
+### [土著男子背父穿越丛林接种新冠疫苗 父亲几周后去世](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [肌肉注射疫苗注定失败 Covid只在细胞内和粘液中传播](/content/gnews/17/README.md)
+### [肌肉注射疫苗注定失败 Covid只在细胞内和粘液中传播](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [军情五处警告议会：中共部署一女性对议会施加不正当影响](/content/gnews/18/README.md)
+### [军情五处警告议会：中共部署一女性对议会施加不正当影响](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共间谍混入英国议会与一议员合作，意图颠覆议会程序](/content/gnews/19/README.md)
+### [中共间谍混入英国议会与一议员合作，意图颠覆议会程序](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [很多好莱坞演员并未接种疫苗，而使用假疫苗证](/content/gnews/20/README.md)
+### [很多好莱坞演员并未接种疫苗，而使用假疫苗证](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中印就边境摩擦问题进行第十四次会谈](/content/gnews/21/README.md)
+### [中印就边境摩擦问题进行第十四次会谈](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年1月15日郭先生盖特 — 视频1「3分32秒」](/content/gnews/22/README.md)
+### [2022年1月15日郭先生盖特 — 视频1「3分32秒」](/content/gnews/23/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [英国卫生部长表示将于本月取消疫苗护照](/content/gnews/23/README.md)
+### [英国卫生部长表示将于本月取消疫苗护照](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒](/content/gnews/24/README.md)
+### [美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [日本新增病例暴增 政府缩短隔离时间应对](/content/gnews/25/README.md)
+### [日本新增病例暴增 政府缩短隔离时间应对](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [欧盟和世卫组织都警告：加强剂注射是危险的](/content/gnews/26/README.md)
+### [欧盟和世卫组织都警告：加强剂注射是危险的](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗接种率最高的州Omicron病例激增](/content/gnews/27/README.md)
+### [疫苗接种率最高的州Omicron病例激增](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [骇人听闻的刑讯逼供手段“烤全羊”](/content/gnews/28/README.md)
+### [骇人听闻的刑讯逼供手段“烤全羊”](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [科学家警告：新冠疫苗可导致年轻人“严重”神经退行性疾病](/content/gnews/29/README.md)
+### [科学家警告：新冠疫苗可导致年轻人“严重”神经退行性疾病](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [世界已被唤醒 澳洲多地爆发反中共病毒疫苗游行](/content/gnews/30/README.md)
+### [世界已被唤醒 澳洲多地爆发反中共病毒疫苗游行](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国有6450万人处于封锁状态，感染即将从天津到北京](/content/gnews/31/README.md)
+### [中共国有6450万人处于封锁状态，感染即将从天津到北京](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [曝光文件说明托尼·福奇作了伪证，而那只是冰山一角](/content/gnews/32/README.md)
+### [曝光文件说明托尼·福奇作了伪证，而那只是冰山一角](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/16/2022国内经济财经周报：水淹龙王庙？经济大V任泽平被闭嘴；良禽择木栖，佳能宣布关停珠海工厂](/content/gnews/33/README.md)
+### [1/16/2022国内经济财经周报：水淹龙王庙？经济大V任泽平被闭嘴；良禽择木栖，佳能宣布关停珠海工厂](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [萨尔瓦多向新冠患者及家人发送伊维菌素＋锌](/content/gnews/34/README.md)
+### [萨尔瓦多向新冠患者及家人发送伊维菌素＋锌](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共“整风运动2.0”进行时](/content/gnews/35/README.md)
+### [中共“整风运动2.0”进行时](/content/gnews/36/README.md)
  ` 儒为`
 
-### [福奇在2020年投资了数家中共公司](/content/gnews/36/README.md)
+### [福奇在2020年投资了数家中共公司](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [科学家说继奥米炕之后将有更多令人担忧的变种](/content/gnews/37/README.md)
+### [科学家说继奥米炕之后将有更多令人担忧的变种](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚移民部长再次取消了德约科维奇的签证](/content/gnews/38/README.md)
+### [澳大利亚移民部长再次取消了德约科维奇的签证](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/39/README.md)
+### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿](/content/gnews/40/README.md)
+### [加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿](/content/gnews/41/README.md)
  ` 首尔天池农场`
 
-### [备好粮油，小心病毒，安度关键时刻](/content/gnews/41/README.md)
+### [备好粮油，小心病毒，安度关键时刻](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
-
-### [每日快报：川普最新集会，美国人民 &#8220;想要赢回他们的国家&#8221;](/content/gnews/42/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [我猜：日本外相的话已给中共战狼下周一的工作定调](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

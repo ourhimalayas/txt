@@ -2,52 +2,22 @@
 ---
 
 
-## 土著男子背父穿越丛林接种新冠疫苗 父亲几周后去世
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1867432/)
+## 欧药管局推病毒新口服用药 自圆其说 击鼓传花！
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1867471/)
 
-翻译： Jenny Ball
+布伦伯格转推了欧洲药品管理局的新闻，称目前的加强针所引起的免疫反应可能对预防新病毒不管用，并推荐使用辉瑞生产的新疫苗和新口服用药来预防和治疗新病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/download-5-1.jpg)
+加强针打的越多，疫情越严重，感染率越高，让很多包括打疫苗都开始思考疫苗到底管不管用？！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1270.png)图片来源:thegatewaypundit.com
+政府和科学机构把疫苗失效推责到时间的推移以及病毒的变异。现有疫苗不管用了，开始推荐新疫苗或改成口服用药。谎言被识破后，再自圆其说编造另一个谎言，就像击鼓传花，一个接一个的谎言骗下去。
 
-即使是生活在世界上最偏远地区的土著部落，也是世界新秩序的优先目标。
+面对因疫苗副作用而导致死伤的大量事实，政府和科学机构不但没有良心发现停止强推疫苗**，**反而变本加厉推出对身体绝对伤害的新疫苗和口服用药。足以说明辉瑞这样的大医药公司完全无视老百姓的健康和安全。
 
-这张24 岁的图威（Tawy）背着他 67 岁的父亲瓦胡（Wahu）前往巴西亚马逊地区的 Covid-19 疫苗小屋的照片在网上疯传。
+郭先生在之前大直播中提过，这种新口服用药对人体的危害甚至比疫苗的副作用还大，会像艾滋病一样使人体的免疫系统崩溃，最终导致各种癌症等疾病的爆发。
 
-属于佐伊（Zo’e）土著社区的 Tawy 和 Wahu “在帕拉州北部地区的数十个村庄中那里就相当于 120 万个足球场的面积，相对与世隔绝孤立地生活”，但“不得不在森林中步行数小时，才能到达疫苗接种处 ，” BBC 报道。
+文案编辑：**wuxin**
 
-据报道，瓦胡患有慢性泌尿问题和视力丧失。
-
-“这是他们之间可爱关系的一个非常美丽的展示，”拍摄照片的埃里克·詹宁·西蒙斯医生说。
-
-可悲的是，疫苗接种的危险旅程并没有帮助瓦胡的健康和他的疾病。
-
-BBC 指出，这张照片展示了为 100% 的全球人口进行疫苗接种的暴虐推动，“象征着最偏远地区之一的疫苗接种工作”，并补充说，“9 月，Wahu 死于不明原因。 Tawy 和家人在一起，最近已经接种了第三剂疫苗。”
-
-根据大流行监测平台《信息追踪》（Info Tracker）进行的研究，在注射两剂 Covid 疫苗或单次注射强生疫苗后的六个月内，近 10,000 名巴西人死于 Covid。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1272.png)图片来源:thegatewaypundit.com
-
-为了给土著人接种疫苗，护士们乘坐小型飞机旅行数小时，再换乘坐小船穿越复杂的水道。
-
-为土著人民接种疫苗是卫生团队的“优先事项”，但由于他们的村庄彼此隔离，这是一项“不切实际”的任务。西蒙斯医生说，医护人员求助于在森林中搭建小屋，疫苗接种系统“通过无线电与社区达成一致”。
-
-“我们采取了尊重并考虑到 Zo’é 人的文化和知识的做法，”他说。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1274.png)图片来源:thegatewaypundit.com
-
-新闻来源:[thegatewaypundit.com] [Indigenous Man Carried His Father For Hours Through The Jungle To Get Covid Vax — Then Father Dies Weeks Later](https://www.thegatewaypundit.com/2022/01/indigenous-man-carried-sick-father-hours-jungle-get-covid-vax-healthcare-teams-prioritized-jabs-aboriginal-community/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
-
-
-
+校对整理：面包树
 
  
 
