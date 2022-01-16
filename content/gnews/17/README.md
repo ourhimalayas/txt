@@ -2,50 +2,38 @@
 ---
 
 
-## 丹麦指责俄罗斯、中共国、伊朗的间谍威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1866063/)
+## 国家禁止未接种疫苗的人进入办公室
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866145/)
 
-据《路透社》记者：Jacob Gronholt-pedersen, 报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1241.png)2009 年 7 月 28 日，冰山漂浮在格陵兰岛南部城镇纳尔萨克附近的峡湾中。
-图片来源：路透社/Bob Strong
-哥本哈根，1 月 13 日（路透社）——丹麦周四警告，在全球大国争夺资源和海上航线的北极地区，来自俄罗斯、中共国、伊朗和其他国家的间谍威胁正在上升。
+翻译：文扬
+编辑：MSGZ
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-141.png)图片来源：www.aljazeera.com
+新加坡是世界上接种covid-19疫苗最多的国家之一，已经推出了针对未接种者的新限制。
 
-格陵兰和法罗群岛既是丹麦王国的主权领土，也是北极理事会论坛的成员。哥本哈根负责处理他们的大部分外交和安全事务。
+新加坡共和国已正式禁止未接种疫苗的员工亲自工作，取消了之前允许他们提供 Covid-19 检测呈阴性情况下工作的政策。
 
-一份报告引用了2019年的一起伪造信事件。一封据称是格陵兰外交部长致美国参议员的伪造信称独立公投即将举行。
+该禁令于周六实施，是新加坡劳动力 “第二阶段 “计划的一部分，这意味着许多未接种疫苗的工人如果不能在家履行职责，很快就会被解雇。
 
-该报告认为，“这封信很可能是俄罗斯有影响力的特工捏造并在互联网上分享的，他们想在丹麦、美国和格陵兰之间制造混乱和可能的冲突。”
+新加坡人力部宣布，从周六开始，”只有完全接种疫苗、经证明不符合医学条件或在180天内从Covid-19中恢复的员工才能返回工作场所。它警告说，那些不属于任何豁免类别的未接种疫苗的员工 “将不被允许返回工作场所”，即使他们提供的测试结果为阴性。
 
-**俄罗斯否认**
+已建议企业为未接种疫苗的员工分配可以在家进行的工作，或让他们休无薪假。然而，如果公司确定它没有办法容纳未接种疫苗的员工，它可以解雇他们而不产生任何后果。
 
-在给《路透社》的一封电子邮件中，俄罗斯驻丹麦大使弗拉基米尔·巴尔宾(Vladimir Barbin) 驳斥了关于这封信的虚假指控。
+政府表示：“如果解雇是由于员工无法在工作场所履行合同规定的工作，这种解雇不会被视为不当解雇。”
 
-他将针对俄罗斯的指控与美国间谍丑闻联系起来，辩称美国利用与丹麦外国情报部门的合作关系监视邻国的高级官员，包括对前德国总理安格拉·默克尔(Angela Merkel)的监控。
+那些只接种了部分疫苗的人如果继续提供阴性的Covid-19测试结果，将被允许在1月31日之前留在工作场所。然而，在该日期之后，他们将面临与未接种疫苗者相同的限制。
 
-巴尔宾(Barbin) 表示，“这些指控应被视为掩盖丑闻的行动，丹麦当局向美国国家安全局提供了丹麦通信电缆的访问权限。”
+在新加坡，未接种疫苗的人已经被禁止进入餐馆和许多商店。这个城市国家是地球上接种疫苗最多的地方之一，疫苗接种率高达 82.86%。12月，政府报告说，约有5.2万名员工尚未注射第一针Covid-19疫苗，并指出他们中只有 “一小部分 “符合医疗豁免的条件
 
-北极地缘政治重要性与日俱增，俄罗斯、中共国和美国均在此地争夺自然资源、海上航道、并试图插手科研及军事战略领域。
+原文链接： [Country bans unvaccinated from offices — RT World News](https://www.rt.com/news/546115-country-bans-unvaccinated-offices/)
 
-丹麦报告还称，包括中共国、俄罗斯和伊朗在内的外国情报机构正试图与学生、研究人员和公司联系，试图利用丹麦的技术和研究信息。
+发布：去中心化Math
 
-《路透社》去年11月发现，哥本哈根大学的一名中国教授与中国军方从事了基因研究，但其并未披露这种合作关系。
-
-周四的报告还称，北约成员国丹麦以其正面的国际角色、开放的社会特征和高水平的科技水平成为“外国情报活动的积极渗透目标”。
-
-中共国和伊朗大使馆均未回应置评请求。
-
-* * *
-
-文章来源：[https://www.reuters.com/world/europe/denmark-accuses-china-russia-iran-espionage-threat-2022-01-13/](https://www.reuters.com/world/europe/denmark-accuses-china-russia-iran-espionage-threat-2022-01-13/)
-
-翻译：洛杉矶盘古农场 – WH
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

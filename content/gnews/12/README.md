@@ -2,24 +2,28 @@
 ---
 
 
-## 郭文贵先生谈喜马拉雅农场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866169/)
+## 丹麦、荷兰宣布外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
 
-撰稿：香草山农场—雪梨
+撰稿：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-在1月12日的大直播中，郭文贵先生在谈到建立农场的理念时表示，喜马拉雅农场是一片没有统治、没有商业、没有交易，美丽的、自由的、真实的、自然的、跟天地之间相接的、人类生存的地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1244.png)
-与中共个人崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、对抗社会的邪教特征截然不同，喜马拉雅农场尊重法治，追求“一人一票”的人民权利，尊重私人财产；喜马拉雅农场是家人辛勤劳动、生活、安家置业的地方，没有利益，没有交换；在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”；喜马拉雅农场崇尚唯真不破，谎言无处藏身。
+1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
+科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
 
-郭先生说道，爆料革命受天机，喜马拉雅农场将成为人类最主要的文明的基础。
+当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
 
 
-
-新闻来源：[https://gnews.org/zh-hans/1856873/ https://gtv.org/video/id=61df44f3a6dfdd6031535439](https://gnews.org/zh-hans/1856873/%20https://gtv.org/video/id=61df44f3a6dfdd6031535439)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
 总编/编辑：飞虹
+
+新闻链接：
+
+[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
+
+[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
 
 校正/发稿：浪迹天涯
 
@@ -29,7 +33,11 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

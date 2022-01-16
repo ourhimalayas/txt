@@ -2,28 +2,45 @@
 ---
 
 
-## 中共到底挥霍了多少人民创造的财富
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866211/)
+## VICE路大脑袋和海外欺民贼念念不忘的Q组织远超邪教
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866225/)
 
-撰稿：东京樱花团/皓月当空郭
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-223.jpg)[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E5%AE%B6%E6%97%8F%E6%88%90%E5%91%98%E7%9A%84%E8%B4%A2%E5%AF%8C%E7%89%88%E5%9B%BE/a-15911607)
-在12月15日文贵大直播中，文贵先生说到：在前几年的爆料中，爆出中共维稳费从过去1300亿到现在10000多亿，现在中共自己承认1.5万亿，相当于2000多亿美元用在了中共的杀人机器！而日本最好的福利一年才不到3000亿美元，解决中国的养老福利也只是需要1300亿美元！
+G-TV视频链接：[https://gtv.org/video/id=61e3a72987664c47acd54b4f](https://gtv.org/video/id=61e3a72987664c47acd54b4f)
 
-在12月29日大直播中讲到：就这个国家到了这种丧心病狂的地步，拿老百姓的钱完全不当钱。中国人一年往外捐款多少钱？赞助多少钱？就在中共习时代、“习太阳”上来往外实际捐款多少钱吗？官方统计6万亿人民币，这是中国说的，还有2万亿在兑现的路上。事实多少钱我告诉你，12万亿人民币呀，1.5万亿美元。1.5万亿美元什么概念战友们？整个广东一年GDP，老百姓都不吃不喝不尿给他。中国15万亿美元的GDP一年，也就是剩下就是1万亿美元，一年中国啥也不干都给他。
+**郭文贵先生：**同时我希望大家在刚才看到这个，就是一个刚刚发生的Isobel Yeung有计划地和共产党的合作。这是一个大棋，而且通过她也可以看到我们爆料革命过去四年来最担心的事情都在发生。你从这个视频来看，七哥当时，咱爆料革命、新中国联邦，当时路大脑骗、蛇妖闫、九指妖，哎呦我的妈呀，Q组织成他亲爹、亲爷爷了。
 
-中共除了维稳费，对外援助这些七哥爆料的天文数字，还有中共党卫军的巨额支出，巨大的三公消费支出、中共官员每年的贪污的天文数字……，这些老百姓辛苦创造的财富，如果这些钱是人民说了算，用在改善民生上，只需拿出一小部分，就可以建多少三甲医院，解决一亿老人的养老问题，可以把全国有白血病的孩子、心脏病的孩子带来健康和生的希望，可以给残疾人送去多少关怀……最可恨的是，这些钱不是用在老百姓本该享有的社会福利上，而是用在维护邪恶体制这个机器上，用在了限制我们自由、控制我们言论、打压我们人权、剥夺和抢劫我们财产、甚至像新疆、西藏、香港的集中营和大屠杀……
+到今天路大脑袋采用的信息绝大多都是Q组织的。它非要把一个简单的事给你复杂化，然后所有的这个事情都把不可能变成了必须的正义。就像川普总统不搞戒严，那川普总统就是窝囊废。川普总统不按中国人和我们所谓的华人海外的欺民贼、民主人士的想法去行动，按中国人的逻辑行动，不杀一批、不抓一批，是吧？不搞戒严那就不行。
 
-我们绝不能再容忍中共这样下去，否则我们没有未来，我们的未来就是新中国联邦宣言所要实现的，用一人一票选出真正的民主政府，符合人民的意愿，保障人民的利益，使中国人在法治环境下，有尊严、自由幸福的生活！
+然后Q组织那个事儿大了，又是亨特.拜登，又是拜登，那事儿大了去了，是吧？外星人组织，全在一起，是吧？小宇宙、大宇宙、元宇宙、中宇宙，你都数不清了。路大脑袋的洋爹，贝雷帽、绿贝雷帽、蓝贝雷帽、直升机、无人直升机、无雷达直升机，全出来了。就你完全你会发现，在这些人面前，你就是个白痴。那真的不仅仅是邪教，我认为那简直就是犯罪。
 
-信息来源：
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-[2021年12月15日 文贵大直播](https://gtv.org/video/id=61b9e8037882000d5100be68)
+编辑整理：Jacques；
 
-[2021年12月29日 文贵大直播](https://gtv.org/video/id=61cc5dbdecc0b216cbb1147d)
+字幕文件制作：小满；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

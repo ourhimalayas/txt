@@ -2,44 +2,34 @@
 ---
 
 
-## Facebook母公司Meta涉嫌违反竞争法面临英国集体诉讼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1866181/)
+## 美两党议员提案应对中共垄断稀土资源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
 
-据《福克斯商业》作者：Ken Martin，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1250.png)Facebook CEO 马克-扎克伯格（Mark Zuckerberg）。图片来源：美联社
-据报道，Facebook母公司因违反竞争法而在英国面临集体诉讼。
-
-据TechCrunch报道，该诉讼指控总部位于加利福尼亚的Facebook母公司 Meta多年来滥用其在英国社交网络的主导地位。
-
-指控来自一位竞争法律专家，并得到了强大的诉讼基金支持。
-
-如果诉讼成功，Facebook将向其英国用户支付 31 亿美元的损失。该诉讼在位于伦敦的英国竞争上诉法庭提起。
-
-诉讼称，Facebook应就2015年至2019年期间对其4400万英国用户数据的滥用支付赔偿金。
-
-诉讼认为Facebook获取了其用户的所有私人数据，而它的用户只是为了能够将他们婴儿和小猫的照片发布给朋友和家人。
-
-该行动由国际竞争法专家 Liza Lovdahl Gormsen 博士发起。她声称 Facebook为其英国用户设定了“不公平的价格”。
-
-TechCrunch联系Facebook征求意见，但尚未收到回复。
-
-该案的财务支持来自世界上最大的诉讼资助者之一因斯沃思（Innsworth）。
-
-* * *
-
-原文连接：[https://www.foxbusiness.com/technology/meta-facebook-class-action-lawsuit-breach-competition-uk](https://www.foxbusiness.com/technology/meta-facebook-class-action-lawsuit-breach-competition-uk)
-
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
+该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
 
 
 
+新闻连接：
+
+[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

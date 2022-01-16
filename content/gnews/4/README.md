@@ -2,25 +2,44 @@
 ---
 
 
-## 奥密克戎毒株来袭冬奥会在即的北京
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866221/)
+## 新中国联邦若不制止几乎八成战友将跟着Q组织走向歧途
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866248/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-42.png)（图片源自本文链接）
-1月15日共同社北京消息：15日北京市政府宣布，已确认该市海淀区出现一例社区获得性奥密克戎毒株感染病例。
+G-TV视频链接：[https://gtv.org/video/id=61e3a79f87664c47acd54b8b](https://gtv.org/video/id=61e3a79f87664c47acd54b8b)
 
-这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
+**郭文贵先生：**我们最推崇的叫言论自由和信仰自由。但是如果这样是信仰的话，这个信仰是要被打倒的。如果这是媒体自由的话，这个媒体自由是要不得的，它是死人的。你往回看，Q组织有一件事说对的吗？又是欧洲的什么部队、三角洲部队、又隐形部队，又什么的塞林洋爹，还有那个找爹博。
 
-感染途径不明，过去两周没有离开过北京，也没有与任何感染者有过密切接触，该迹象表明感染可能已经在整个北京蔓延。
+那个找爹博做一个烂记者、三流记者，是吧？连个脸都不敢露，说话都发哆嗦那种人，是吧？然后到了路大脑袋那块去，就把所有的、他那点所有、仅有的知识拿出来。他不仅能害中国人，也害全世界的人。讲两个英文，那就不知道天高地厚了，觉得我就是优越民种。我寄大陆之上，我有高三等，我高于香港人、我高于台湾人、我高于美国华人。因为我是英文，我还是记者。
 
-中共政府在15日的新闻发布会上宣布，13日和14日在上海、广东省的珠海，以及同省的中山，得到报告的中共病毒（新冠病毒Covid-19）感染是奥密克戎毒株。可见感染者有可能涉及的地理范围很广泛。
+你可以看到Q组织的兴风作浪，如果我们新中国联邦当时不去制止的话，我们几乎80%的战友都跟着Q组织。这个是很恐怖的。所以说草根兄弟鼓掌，这个意义很深刻。这是真的，草根兄弟站位，就你看问题很高。咱要不制止，咱完蛋了。
 
-信息来源：[北京でオミクロン初確認　五輪目前、上海や広東省でも（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a4db086e211da98197e8e6cee2aaed0b5064a91)
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑整理：Jacques；
 
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
