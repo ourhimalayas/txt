@@ -2,33 +2,32 @@
 ---
 
 
-## 防病毒 储物资
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1865612/)
+## Facebook母公司因利用用户数据在英国被起诉
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1865625/)
 
-撰稿：纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月15日，文贵先生在盖特上再次向战友们呼吁，目前疫情形势非常严峻，感染的战友也非常多，希望大家都注意安全，保重自己和家人的健康，不要掉以轻心。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，据相关媒体报道，英国监管机构——金融行为管理局的高级顾问洛夫达赫·戈尔森正在起诉脸书的母公司Meta涉嫌利用用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-15-下午9.31.12.png)
+据了解，戈尔森将代表英国在2015至2019年间使用脸书的用户对Meta公司提起23亿英镑的集体诉讼。戈尔森表示，脸书滥用其市场主导权，对普通英国人强加了不公平的条款，不合理地要求这些用户在进入该平台时必须提供个人数据。同时，脸书通过收集此类个人数据，从而建立了庞大的用户信息数据库。戈尔森称，该信息库使得Meta近年来赚取了数十亿美元。
 
-文贵先生要求各农场做好安排，尽量帮助战友，为战友提供急需的药物。疫情蔓延得比我们知道的还要严重，太多战友和友人都感染了，一定要做好自己和家人的防护措施，不要到处乱跑。能宅在家里的，就不要出门逛街啦，防疫是一场战争，不要松懈。
+报道提及，伦敦竞争上诉法庭近期将审理此案。
 
-同时，由于疫情和世界各地的反强制疫苗运动，导致物资短缺，以及供应链岌岌可危等问题。文贵先生特意提醒大家：应该储备一些物资和粮食，比如说，油、盐、粮食和各种生活必需品，以防万一。
+参考链接：[Meta sued for $3.2 billion in UK class action lawsuit alleging Facebook exploited data](https://thehill.com/policy/technology/589715-meta-sued-for-32-billion-in-uk-class-action-lawsuit-alleging-facebook?utm_source=ground.news&amp;utm_medium=referral)
 
-文贵先生之前也提醒过战友们，要做一些物资的储备。因为，疫情和疫苗灾难导致全球生产力短缺，世界各地物流的拥堵和中断，这些都会造成供应链的断裂危机。为了防备出现物资供应短缺的情况，战友们最好都要储备一些生活必需物资，以防危机来临时，措手不及。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-文贵先生爱战友的拳拳之心，你我同见：唯爱之深远，为之虑周全。[https://gettr.com/post/pohbz5f05d](https://gettr.com/post/pohbz5f05d)
+总编：童谣
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
