@@ -2,28 +2,24 @@
 ---
 
 
-## 世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867794/)
+## 喜币融入世界规则：以金钱为基础实现正义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867972/)
 
-作者：MOS 柳是多水土透
+作者：银河勇气星—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒1月11日综合消息，世银调降美、欧及中国经济增长预估，警告普遍债务过高，贫富加剧，以及新的新冠病毒变种对发展中经济体复苏构成威胁。2022年全球经济成长率将从去年的5.5%明显降至4.1%，2023年则是进一步降至3.2%，因各国政府停止疫情之初提供的，大规模财政及货币刺激政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.47.png)
-世银预期，发达国家经济活动在2020年萎缩过后，于2021年大幅反弹，但警告通胀更为持久，供应链及劳动力问题，及新的新冠变种病毒等因素，有可能打击全球增长。疫情已经加深发达与发展中国家的成长差距，同时也导致各国内部增长出现分歧，可能加剧社会紧张及动乱。
+1月14日，郭文贵先生大直播中爆料，中东一些国家与中共在近日进行了会晤。此次会晤中共付出了巨大代价。在双方见面之前，中共已经兑现了各国的各种需求，包括金钱、武器、免除债务等。见面之后，这些中东国家并未遵循中共意愿，而是再次提出了新的要求：参加冬奥会和接受数字人民币的前提是中共购买中东国家的商品，用美元结算，并且要能够随时提现。中共对此次会晤大失所望，因为他们已经失去了金钱勾兑的能力。
 
-世行展望小组的Ayhan Kose认为，发展中国家“硬着陆”风险升高，因他们提供必要财政援助的选项有限，通胀压力持续高涨，且财政相当脆弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-12.jpeg)
 
-报告预估，2022年发达国家经济体成长率，将从2021年的5%降至3.8%，2023年进一步下滑至2.3%。美国2021年国内生产总值(GDP)增长率，预估调降1.2个百分点至5.6%；同时，预估2022年成长将骤降至3.7%；2023年降至成长2.6%。世银称，日本2021年GDP增长将下降到1.7%，较6月时预估少了1.2个百分点；2022年增长率则将升至2.9%。
+郭先生认为，世界亘古不变的基础就是金钱。我们的喜币拥有了货币权，已经真正有能力融入这个规则，在满足对方利益的前提下，用金钱做基础来实现我们的正义。喜币是新中国联邦真正走向世界和表达权利的一个重要的金钱基础。
 
-参考链接：
-1）[World Bank slashes global growth forecast and warns about growing inequality](https://www.cnbc.com/2022/01/12/world-bank-slashes-2022-global-growth-forecast.html)
-2）[Omicron, Supply-Chain Troubles to Slow Growth, World Bank Says](https://www.wsj.com/articles/omicron-supply-chain-troubles-to-slow-growth-world-bank-says-11641918947)
+参考链接：[https://gettr.com/post/pocyu016b6](https://gettr.com/post/pocyu016b6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,38 +2,38 @@
 ---
 
 
-## 有声|英情报部门警告议员注意中共统战渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1867988/)
+## 郭先生再谈奥密克戎病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1868036/)
 
-配音：香草山农场 – 纳米
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月14日的大直播中，郭先生指出，越极端的国家灭亡越快，对强制接种疫苗停止得也越快。这是不可逆转的，因为它的政策执行得越多，死的人就越多，其政权灭亡就越快。如果发生在民主选举的国家，那么总统会被换掉。据此，强制疫苗应该很快就会停止。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-7.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-台媒1月14日报报道，近日英国对内情报机构军情五处，向国会警示说，一名李姓中共国女子与中共中央统战部有关联，已秘密涉入干预英国政治活动。
+针对目前正在肆虐的中共病毒奥密克戎变种，郭先生告诫大家，第一，一定要戴口罩，口罩绝对是救命的。第二，所谓奥密克戎疫苗不存在。事实是，绝大多数感染者都打了两针以致三针疫苗。前几天开始，郭先生就告诉美国、欧洲朋友及所有的人，只要外出就一定要戴口罩，因为打过疫苗的人就是最大的传染源。
 
-军情五处警示指出，一位游走在英国政治圈、名叫李贞驹的女性律师，与中共统战部秘密合作。经研判，中共统战部企图借李贞驹与英国跨党派议员建立联系，以秘密干预英国政治，还试图与具有影响力的人物培养关系，以确保英国的政治形式对中共有力。调查结果显示，李贞驹涉入对政党、议员、以及谋求官职人士的资助行为，资金来源包括在香港的非英国籍人士，她曾公开自称代表在英国的中共国人利益。
+郭先生强调，疫苗本身就是病毒，它打开了人体mRNA权限，刺突蛋白本身就是被注射疫苗人体内的病毒。相比之下，没有注射疫苗的爆料革命战友及其他人，反而成了容易被感染的弱势群体。在餐厅吃饭时，打过疫苗的服务员就是最大的危险。
 
-“对华政策跨国议会联盟”声明说，针对中共代理人已成功与部分议员，以及重要国会团体建立影响深厚的关系，表示深感不安。英国议会下院外交委员会主席图根哈特称，来自北京的挑战显然在增加，英国必须捍卫民主制度，确保此制度不受恶意行为损害。
+疫苗就是共产党放出来的热毒。疫苗在不同的人体和不同的情况下，所爆发出来的病就是新的病毒病种。更重要的是，新中国联邦向西方，包括美国高法及美国国会，提供了关键证据，即在欧洲的科学家所提供的文件。爆料革命据此公开宣布，新冠病毒就是共产党的生化病毒，而生化病毒是不可能有疫苗的，也就是生化武器。在这个原则下，就无须再讨论其他问题了。
 
-文字版原文：[英情报部门警告议员注意中共统战渗透](https://gnews.org/zh-hans/1864590/)
+郭先生再次郑重告诫战友们，第一不能打疫苗，第二必须戴口罩，第三尽可能不出门，第四要认识到，新中国联邦跟国家政权相比，还是一支很渺小的力量。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+参考链接：[https://www.gettr.com/post/pog77efc02](https://www.gettr.com/post/pog77efc02)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：雪梨
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
