@@ -2,33 +2,42 @@
 ---
 
 
-## 国际特赦组织告诉意大利不要歧视未接种者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1868436/)
+## 亚利桑那州长候选人称她若当选会把福奇关起来
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1868460/)
 
-翻译:里奇
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C-2.jpg)assemercato.com
+周六（1月15日）川普前总统在亚利桑那州佛罗伦萨（Florence）城举行了2022年的首次集会，作为集会议程的一部分，获得川普背书的、亚利桑那州长候选人卡莉·莱克（Kari Lake）也作了演讲，称“如果我当选，我要把那个说谎的福奇关起来……每次他开口，我的测谎仪就会作响。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-16-184911.jpg)图片来源:reuters.com
+来自《门道专家》的报道：
 
-米兰，1 月 16 日（路透社）- 人权组织国际特赦组织敦促,意大利改变严格的反新冠病毒限制措施，以避免歧视未接种疫苗的人。
+川普支持亚利桑那州州长候选人卡莉·莱克周六（1月15日）晚在佛罗伦萨城的川普集会上发表演讲。
 
-在最近的一项法令中，马里奥·德拉吉政府强制要求所有 50 岁以上的人以及使用公共交通和一系列其他服务的人接种疫苗，以减轻对意大利卫生服务的压力，并减少死亡人数。意大利是采取类似措施的极少数国家之一。
+卡莉今晚有了自己的理念，她体现了新共和党的勇敢、魅力和勇气。
 
-国际特赦组织在周六晚些时候发表的一份声明中说，国际特赦组织要求提供替代措施，包括使用口罩和进行 COVID-19 检测，以允许未接种疫苗的人群继续工作,并“不受歧视地”使用公共交通工具。
+卡莉：我们这些人再也不愿意为了谋生或送孩子上学而忍受臂膀上的接种，鼻子内的拭子和脸上的肮脏的口罩了，该结束了，不要这些！……当我成为你们的州长时，就不会有这些行政令和封锁。实际上，让我稍作一下修正，（那就是）我想把某人关起来，就是那个骗子福奇！
 
-根据将持续到 6 月 15 日的现行规定，人们戴口罩和 COVID-19 检测呈阴性仍不够资格乘坐公共交通工具，或者对于 50 岁以上的人来说，不具备足够的资格前往工作场所。
+人群：把他关起来！……把他关起来！……把他关起来！……
 
-人权组织的地方分会大赦国际意大利表示，强制接种疫苗可能是合理的，但需要在时间上加以限制，并与公共卫生保护的合法目标“相称”。
+卡莉：那家伙不说实话，我不知道你们大家有什么样的体会，每次他开口，我的测谎仪就会疯狂作响！
 
-“政府必须继续确保全体人民都能享有其基本权利，例如教育权、工作权和医疗权，尤其是需要紧急手术的非新冠肺炎患者” 该机构说。
+卡莉·莱克真给力！
 
-新闻来源:[reuters.com] [Don’t discriminate against the unvaccinated, Amnesty International tells Italy](https://www.reuters.com/world/europe/dont-discriminate-against-unvaccinated-amnesty-international-tells-italy-2022-01-16/)
+今夜属于卡莉·莱克，她很出色！
 
-* * *
+（全文如下）
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+亚利桑那州的挺川力量正在顽强地推进对2020大选舞弊的揭露，整个进程虽然缓慢（笔者的感觉），但他们仍在坚持不懈。敦促之下的州检察长仍没有对造假舞弊者提起诉讼，受到了包括川普在内等人的指责。前总统川普新年集会的首选地是亚利桑那州，这寓意非凡，亚利桑那人不但要揭露大选舞弊，还要取消对拜登2020窃位的认证，更大的意义在于2022年夺回两院。
+
+新中国联邦人不参与美国两党政治，谁能灭共我们就支持谁。我们期待来自亚利桑那更多更好的消息。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2022/01/epic-gubernatorial-candidate-kari-lake-az-trump-rally-want-lock-somebody-doctor-fauci-bs-meter-goes-off-every-time-opens-mouth-video/](https://www.thegatewaypundit.com/2022/01/epic-gubernatorial-candidate-kari-lake-az-trump-rally-want-lock-somebody-doctor-fauci-bs-meter-goes-off-every-time-opens-mouth-video/)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
