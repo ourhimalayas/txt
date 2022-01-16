@@ -2,41 +2,39 @@
 ---
 
 
-## 有声|防病毒 储物资
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868017/)
+## 新中国联邦辞典横空出世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1868048/)
 
-配音：香草山农场 – 纳米
+作者：纽约香草山- Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，《新中国联邦辞典》成功上线，这是一部由GNEWS运营管理的新中国联邦官方百科全书式的辞典。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-7.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日，文贵先生在盖特上再次向战友们呼吁，目前疫情形势非常严峻，感染的战友也非常多，希望大家都注意安全，保重自己和家人的健康，不要掉以轻心。
+新中国联邦辞典提供了以爆料革命为基石的新中国联邦正道主义的各类信息。用户可以查询到郭文贵先生从2017年以来的直播和盖特信息以及在灭共历程中的言论合集，同时可以在各词条中查看相关引用。本辞典以新中国联邦为主线，涵盖了历史、地理、政治、经济、音乐、体育、美术、生物、物理、化学、数学等多学科知识，并提供中文标准人名、外文标准译名、标准网名、爆料革命相关人物总索引、历史上的今天和全球喜马拉雅农场列表等各种工具页面。
 
-文贵先生要求各农场做好安排，尽量帮助战友，为战友提供急需的药物。疫情蔓延得比我们知道的还要严重，太多战友和友人都感染了，一定要做好自己和家人的防护措施，不要到处乱跑。能宅在家里的，就不要出门逛街啦，防疫是一场战争，不要松懈。
+新中国联邦辞典秉持唯真不破的理念，形式简洁，查询方便，结构合理，布局精美，可读性强，是一个不为主流媒体、邪恶势力以及中共蓝金黄左右的百科全书式知识库。以爆料革命战友为主的自愿维护团队在顾问编辑组的引导下，为本辞典安全顺利运行保驾护航。
 
-同时，由于疫情和世界各地的反强制疫苗运动，导致物资短缺，以及供应链岌岌可危等问题。文贵先生特意提醒大家：应该储备一些物资和粮食，比如说，油、盐、粮食和各种生活必需品，以防万一。
+目前，新中国联邦辞典共有5366个条目，全球各地农场志在灭共的战友们不断加入，壮大了辞典的策划、编辑、创作队伍，新中国联邦辞典随时修订，不断完善。
 
-文贵先生之前也提醒过战友们，要做一些物资的储备。因为，疫情和疫苗灾难导致全球生产力短缺，世界各地物流的拥堵和中断，这些都会造成供应链的断裂危机。为了防备出现物资供应短缺的情况，战友们最好都要储备一些生活必需物资，以防危机来临时，措手不及。
+当今互联网所有在线百科全书平台都不能体现爆料革命事业准确的信息和正确的观点，新中国联邦辞典横空出世，正本清源。
 
-文贵先生爱战友的拳拳之心，你我同见：唯爱之深远，为之虑周全。
+参考链接：[新中国联邦辞典首页](https://www.nfscdict.com/新中国联邦辞典首页)
 
-文字版原文：[防病毒 储物资](https://gnews.org/zh-hans/1865612/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+总编：Ivy001
+编辑：百香果
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

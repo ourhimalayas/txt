@@ -2,31 +2,39 @@
 ---
 
 
-## 有声|2022年伊始孙力军再成中共党内肃清典型
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868269/)
+## 韩国民众要求政府停止推行“疫苗通行证”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1868342/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2022年开年还不到半个月，中共已三次将孙力军作为反面典型，为2022年定调。 1月10日中共公安部新闻发言人再次强调，将对涉及孙力军等人严重违纪违法的人、事、案件进行全面清理，并且明确表示肃清孙力军流毒是作为公安部的“重大政治任务”。
+**撰稿：日本东京方舟农场  东北虎**
 
-然而在3天后的1月13日，中共又宣布将于15日起，上线中央纪委和CCTV联合拍摄的以孙力军为首的反腐大片，并在预告片中放出孙力军忏悔视频。孙力军称“没想到自己成了一个法治建设或者公平正义的破坏者”。同日，长春市检察院以受贿、操纵证券市场、非法持有枪支等罪名对孙力军提起公诉。
+1月14日，韩国首尔行政法院判决“停止执行防疫通行证引述部分内容”，但政府表示将综合检讨法院的决定和防疫情况后发表立场，引发民众的担忧和反抗。
 
-分析人士指出，中共以公诉孙力军、让其电视认罪，甚至将肃清流毒作为政治任务来为2022年定调，足以可见二十大前中共内部斗争进一步加剧。
+韩国民众迫切地希望首尔法院关于停止执行防疫通行证的判决能在全国适用。但根据韩国法律，首尔法院的判决并不能影响到首尔以外的地方，加上政府含糊的说辞更加深了民众的担忧。当地人民纷纷在线上和线下以不同形式表达民怨。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.jpg.jpg)2022-01-14 首尔行政法院前 记者问答
+除仁川市政府网页上的请愿告示兰，以及慶州市网络(母亲)社区等都发表文章表达停止疫苗通行证的诉求。另外，还有部分市民表示要直接向所居住的道(省)政府对疫苗通行证提出反对，并公布道(省)政府和行政长官办公室的有线电话号码，鼓励其他市民踊跃拨打。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-50.jpg)2021-12-18 首尔∙集会 反对疫苗通行证![](https://assets.gnews.org/wp-content/uploads/2022/01/3-26.jpg)2022-01-15 大丘∙集会 反对疫苗通行证
+线下方面，韩国从去年相对零星的反疫苗示威和集会在近期发生了积极的变化。仅本周末，在首尔、大丘、仁川、釜山、牙山、全州、蔚山等多地，社会各阶层（学生父母人权保护联合会、京畿道医师协会、新冠病毒市民联合会 等）和爱国市民自发开展反疫苗及疫苗通行证的示威游行。
 
-文字版原文：[2022年伊始孙力军再成中共党内肃清典型](https://gnews.org/zh-hans/1864245/)
+*参考链接：*
 
-音频处理：Fei797
-发稿：Fei797
+[백신패스 저지 행정소송 긴급기자회견](https://www.news1.kr/photos/details/?5169686)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[15일 강남역 백신패스반대 집회, “역대 최대 인원 예상”](http://www.fntoday.co.kr/news/articleView.html?idxno=268444)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[\[3보\] 서울 청소년 방역패스 효력정지…마트·백화점도 적용 중단](https://www.yna.co.kr/view/AKR20220114129654004?input=1195m)
+
+[“우리 동네도 방역패스 멈춰주세요” 전국적 민원 움직임
+\[출처\] – 국민일보
+\[원본링크\] – http://news.kmib.co.kr/article/view.asp?arcid=0016671720&code=61121111&cp=nv](http://news.kmib.co.kr/article/view.asp?arcid=0016671720&amp;code=61121111&amp;cp=nv)
+
+* * *
+
+*素材采编：东北虎*
+
+*编辑：文顺*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
