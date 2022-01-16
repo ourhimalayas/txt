@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 5:04 AM (UTC)`
+
+史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁<br/><br/>Steven Bannon: The CCP has infiltrated and bought off everything. It is the greatest existential threat that this republic has ever had<br/>
+![img](https://media.gettr.com/group32/getter/2022/01/16/05/1a7e8554-b59b-e888-9bec-4496ae0c9aaf/out.jpg)
+
+---
+
+`@miles 1/16/2022 4:57 AM (UTC)`
+
+印中正在举行第14轮高级军事指挥官级别的会谈。其目的是解决拉达克东部的摩擦点问题。然而，双方都未能在过去的会谈中取得任何进展。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。<br/><br/>India and China are holding the 14th round of senior military commander level talks. The aim is to resolve the friction points in eastern Ladakh. Both sides have failed to make any headway in the previous talks. There has been disengagement at many flashpoints, but tensions continue to simmer between the two countries. 
+![img](https://media.gettr.com/group43/getter/2022/01/16/04/b2cf26fd-86d0-7b48-69ca-a7efbb19d6a4/out.jpg)
+
+---
+
 `@miles 1/16/2022 12:47 AM (UTC)`
 
 梅梅特-奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗<br/><br/>Dr. Mehmet Oz (US Senate Candidate): The American people are simply not allowed to receive other therapeutic methods because they might not take the vaccines once they find out other possibilities.<br/>
@@ -146,20 +160,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1月14号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group18/getter/2022/01/15/00/4f9b207f-9308-275b-efee-8c94dba5f643/out.jpg)
-
----
-
-`@miles 1/15/2022 12:03 AM (UTC)`
-
-1/14/2022 Miles Guo: The CCP is once again making arrests in Communist China! Those who handled Sun Lijun’s case were arrested, as were several production crew members of the CCP’s film called Zero Tolerance. Something big will happen in the CCP’s sports community. Li Yongbo will certainly be arrested, and this will lead to the revelation of countless stories like that of Peng Shuai<br/><br/>1/14/2022 文贵直播：这两天国内又在抓人！审孙力军案子的人被抓，《零容忍》制作组的好几个人也被抓；中共体育界在冬奥会后将发生大事，李永波必被抓，这将牵扯出无数个彭帅的故事<br/>
-![img](https://media.gettr.com/group33/getter/2022/01/15/00/7c4139ef-be19-3837-3594-e8d707bc0a35/out.jpg)
-
----
-
-`@miles 1/14/2022 11:13 PM (UTC)`
-
-1/14/2022 Miles Guo: The CCP has lost its financial capacity for bribery and collusion! The participation of Turkey, Iran, and several other Middle Eastern countries in the Winter Olympics and the use of digital RMB is contingent upon the CCP purchasing goods from them in US dollars. The Himalaya Coin can enable the New Federal State of China to voice our rights on the world stage!<br/><br/>1/14/2022 文贵直播：中共已失去金钱勾兑的能力！土耳其、伊朗等中东国家参加冬奥会和用数字人民币的前提条件是要中共用美元购买其产品；喜币让新中国联邦能在世界上表达我们的权利
-![img](https://media.gettr.com/group20/getter/2022/01/14/23/50da5544-8894-1182-6056-569dab156ac9/out.jpg)
 
 ---
 
