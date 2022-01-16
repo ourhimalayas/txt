@@ -15,62 +15,62 @@
 
 ---
 
-### [2022年将是人类最黑暗的一年,唯有睁开眼睛觉醒和灭共](/content/gnews/1/README.md)
+### [中共国有银行如7而至意味爆料革命得天机天时地利人心](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [不加入农场不参加爆料革命和G系列的人被共产党骗惨了](/content/gnews/2/README.md)
+### [2022年将是人类最黑暗的一年,唯有睁开眼睛觉醒和灭共](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [没有利益没有交换的农场第一个追求就是法治和一人一票](/content/gnews/3/README.md)
+### [不加入农场不参加爆料革命和G系列的人被共产党骗惨了](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [农场没有统治没有商业没有交易不会把权力和财富公有化](/content/gnews/4/README.md)
+### [没有利益没有交换的农场第一个追求就是法治和一人一票](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共产党用驭民五术分区分族奴役人民让人民死不了活不好](/content/gnews/5/README.md)
+### [农场没有统治没有商业没有交易不会把权力和财富公有化](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [鹤岗黑龙江和东北多地县市将破产,百姓连老鼠肉都吃不上](/content/gnews/6/README.md)
+### [共产党用驭民五术分区分族奴役人民让人民死不了活不好](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [科学家说继奥米炕之后将有更多令人担忧的变种](/content/gnews/7/README.md)
+### [鹤岗黑龙江和东北多地县市将破产,百姓连老鼠肉都吃不上](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [科学家说继奥米炕之后将有更多令人担忧的变种](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [所谓驰援天津玩的是政治马屁而非真要救天津做核酸检测](/content/gnews/8/README.md)
+### [所谓驰援天津玩的是政治马屁而非真要救天津做核酸检测](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚移民部长再次取消了德约科维奇的签证](/content/gnews/9/README.md)
+### [澳大利亚移民部长再次取消了德约科维奇的签证](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [战友们受郑州某公司传播病毒的谣言主导会偏离灭共方向](/content/gnews/10/README.md)
+### [战友们受郑州某公司传播病毒的谣言主导会偏离灭共方向](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/11/README.md)
+### [美军DARPA文件曝光后续：联邦参议员要求国防部展开调查](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿](/content/gnews/12/README.md)
+### [加拿大一麦当劳叔叔之家驱逐未接种新冠疫苗的4岁白血病患儿](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [备好粮油，小心病毒，安度关键时刻](/content/gnews/13/README.md)
+### [备好粮油，小心病毒，安度关键时刻](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党用病毒和疫苗制造宵禁状态、抢劫财富和限制流通](/content/gnews/14/README.md)
+### [共产党用病毒和疫苗制造宵禁状态、抢劫财富和限制流通](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [憎恨](/content/gnews/15/README.md)
+### [憎恨](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [中共和俄罗斯在哈萨克事件上既共同对付西方又各打算盘](/content/gnews/16/README.md)
+### [中共和俄罗斯在哈萨克事件上既共同对付西方又各打算盘](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤](/content/gnews/17/README.md)
+### [世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [系杨大林 高中生(18岁)起诉韩国政府之后又一名高中生起诉 韩国政府！](/content/gnews/18/README.md)
+### [系杨大林 高中生(18岁)起诉韩国政府之后又一名高中生起诉 韩国政府！](/content/gnews/19/README.md)
  ` STHK`
-
-### [占六七成世界人口的中亚、东亚牵动美国中国俄罗斯欧洲](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [一定要采法律行动对媒体攻击一定要反击(一)](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
