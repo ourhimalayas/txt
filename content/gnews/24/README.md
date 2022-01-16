@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865937/)
+## 数字货币和喜币喜联储将彻底改变人类的金融生态系统
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865995/)
 
 台灣寶島農場
 

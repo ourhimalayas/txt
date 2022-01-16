@@ -2,42 +2,24 @@
 ---
 
 
-## 丹麦、荷兰宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866201/)
+## 我猜：日本外相的话已给中共战狼下周一的工作定调
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866240/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1245.png)
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-13.png)（图片源自本文链接）
+1月16日读卖新闻消息：15日，林外相在金泽市的一次演讲中说，他将在对华外交方面 “坚定地坚持需要坚持的东西”，并指出了中共国渔船在能登半岛外的人气渔场–大和堆的非法捕鱼作业问题。
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+近年来，在石川县多产鱿鱼的渔船捕鱼地–大和堆，中共国和朝鲜船只非法捕鱼行动已变得越来越活跃，人们担心过度捕捞可能导致鱼类短缺。谈到非法捕鱼问题和中共国海上巡逻船在冲绳县尖阁诸岛附近的挑衅行为，林外相强调：已引起人们越来越多的关注。我们将要求对方，作为一个大国，要负责任地行事。
 
+关于日美关系，他说：我将直言不讳，坚决回应驻日美军中新病毒的传播。即便我们是亲密的朋友，我也会说出我必须说的话。
 
+林外相既谈到了中共国问题，也提到了朝鲜和美国的问题。让笔者作为周末娱乐猜一下：朝鲜和美国都不会说什么。只有中共国的外交部，周日该休息还休息，但会把这事儿当作下周一的重要工作，由某战狼站出来回怼林外相。
 
-总编/编辑：飞虹
+信息来源：[林外相、尖閣・違法操業で中国に「毅然と主張する」（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5b2e97347a593019d84100b97bb53ffa5786f16b)
 
-新闻链接：
-
-[丹麦将不派官方外交代表团参加北京冬奥会，加入美国的抵制行列](https://www.reuters.com/article/olympics-2022-denmark-idCNL6S2TU06X)
-
-[丹麦政府宣布不参加冬奥会](https://gettr.com/post/poclwo9261)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-5.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

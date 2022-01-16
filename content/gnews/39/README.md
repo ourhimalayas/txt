@@ -2,22 +2,27 @@
 ---
 
 
-## 雅典娜时报-第175期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1865313/)
+## GTV新闻访谈简报|2022年1月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1865724/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0115text-SC.png)
+校对：Stay文苑
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/829864694670950410/932053798040502352/155-3.png?width=910&amp;height=1355)![圖片](https://media.discordapp.net/attachments/829864694670950410/932053798405431296/155_1-2.png?width=910&amp;height=1355)
-*发布：陶子*
+编辑：Stay文苑
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：Stay文苑
+
+视频参看：[1.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e3748ea6dfdd603154e7ed)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7EFC05CC-C6CB-426B-88D2-02D63E99D611.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

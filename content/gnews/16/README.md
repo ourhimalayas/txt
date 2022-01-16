@@ -2,45 +2,48 @@
 ---
 
 
-## 疫苗降温还是为下一代疫苗造势？两国际卫生机构发声
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1866000/)
+## 正义的判决！中共背景律师事务所违背职业道德被判出局
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866095/)
 
-作者：雄起
-![](https://assets.gnews.org/wp-content/uploads/2022/01/酷翻组1-18.png)
-目前在欧洲，丹麦和以色列已经开打新冠疫苗第四针加强针，匈牙利也正在考虑部署。
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
+1月14日，经过两小时的听证会，纽约县最高法院法官批准，取消“卡西尔、戈登和雷德尔律师事务所”（Cahill Gordon & Reindel），代表太平联盟基金起诉郭文贵先生的诉讼资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1243.png)
+早在2017年，郭先生申请政治庇护仅24小时后，O’Melveny & Myers律师事务所，代表太平联盟基金（PAG，Pacific Alliance Group）向郭文贵先生发起诉讼。爱德华·莫斯当时就是这间律师事务所的合伙人，近期，他转而加盟“卡西尔、戈登和雷德尔律师事务所”。
 
-但最近，两个主要的国际卫生机构警告说，在短时间内重复注射目前的中共病毒疫苗的加强剂，并不是一个可持续的战略。
+而在去年GTV与SEC的案件中，“卡西尔、戈登和雷德尔律师事务所”（Cahill Gordon & Reindel）的合伙人，布拉德利·邦迪律师（Bradley J. Bondi）曾经担任GTV的法律顾问。郭先生对该律师事务所分享了机密信息，该律师事务所也被要求禁止代表郭先生的对立方。
 
-欧盟药品监管机构欧洲药品管理局（EMA）近日表示，在很短的间隔内持续注射加强针不会是一种可持续的长期战略。
+卡西尔律师事务所代表太平联盟起诉郭先生，存在明显的利益冲突。而卡西尔律师事务所更是冒天下之大不韪，违反保密条款，将郭先生的机密信息公之于众。
 
-据路透社1月12日报道，欧洲药品管理局疫苗战略负责人马可·卡瓦莱里（Marco Cavaleri）表示，虽然进行加强针注射是应急计划的一部分，但他担心，接种加强针的策略可能会导致人们免疫系统超载和人体疲劳的风险。他还表示，需要更多关于奥密克戎对疫苗影响的数据，并更好地了解当前形势的演变，以决定是否需要针对奥密克戎的疫苗。
+郭先生的当天的盖文中表示，爱德华·莫斯是中共高级特工单伟健的代表律师，中共造假、利用太平联盟基金发起法律超限战，妄图损毁郭先生的声誉、侵占郭先生的资产。这起案件的诉讼过程，让美国人看清了美国和中共国司法界最黑暗的一面。而此次法官公正的判决，也让我们坚信美国法律的伟大，坚信在法律面前，正义终能得到伸张。
 
-“理想的情况是，如果感染中共病毒朝着地方性疾病的方向发展，那么这种加强针应该与每个半球的寒冷季节的到来同步进行，就像我们对流感疫苗所做的那样。”
 
-世界卫生组织（WHO）技术咨询小组本周在其声明中说：”基于原始疫苗成分的重复加强针接种策略不太可能是合适的或可持续的。需要更多关于疫苗对奥米克戎有效性的数据分析。它列出了重复接种加强剂量的担忧背后的一系列因素。这些因素包括需要在各国公平获得疫苗，以及病毒的进化状况。“
 
-世卫组织小组表示，除了预防严重疾病和死亡外，应该开发对预防中共病毒感染和传播具有重大影响的疫苗。
+新闻来源: [Judge disqualifies Cahill law firm in investor fight with billionaire Guo Wengui](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
 
-这些疫苗应引起广泛、强烈和持久的免疫反应，以减少对连续加强剂量的需求。
 
-EMA的表达的担忧值得肯定，但相比于现实数据而言，EMA的发言已经是相当保守了。早在2021年上半年，英国的研究机构就发现，接种疫苗后，人们的免疫力就在逐步下降。如今第四针都已经开始，EMA才意识到疫苗对免疫系统的伤害。但愿是亡羊补牢，为时未晚（前提是EMA的呼吁能起效）。
 
-如果说欧洲药品管理局的疑虑还是出于对于疫苗本身危害性的话，笔者认为，世界卫生组织的声明，在其冠冕堂皇的所谓“担忧“背后，却是疑似在为下一代疫苗造势。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-自从中共病毒大流行发生以来，世卫组织就一直在充当帮凶的角色。无论是最开始的宣称武汉的疫情不会引起大流行，还是到后来的鼓吹疫苗有效性，世卫组织一直都在配合中共和世界黑暗势力的的生物超限战。如今，当全世界正在逐步认识到疫苗的危害性和不可持续性的时候，世卫组织表面看似不支持重复加强针，却在呼吁开发新的疫苗。
+总编/编辑: 雪梨
 
-同样在本周早些时候，辉瑞公司首席执行官Albert Bourla说，针对Omicron的疫苗可能会在3月准备就绪。
+[https://gettr.com/post/poee40e2ab](https://gettr.com/post/poee40e2ab)
 
-从第一针疫苗开始，全世界的疫苗都已经被证明是无法阻止病毒蔓延，甚至会加快病毒的感染和变异速度，开发新一代疫苗就能 “引起广泛的，强烈和持久的免疫反应”？正如郭先生所讲，你连病毒都不知道是哪来的，怎么可能有疫苗？
 
-目前看来，欧洲对疫苗的认识开始逐渐苏醒，相信随着美国在法律层面对新冠疫苗的转向，世界的疫苗灾难终将迎来转机。
 
-[新闻链接](https://www.stuff.co.nz/national/health/coronavirus/127497910/covid19-repeated-booster-doses-of-the-original-vaccine-unlikely-to-be-appropriate-who-says)：[https://www.stuff.co.nz/national/health/coronavirus/127497910/covid19-repeated-booster-doses-of-the-original-vaccine-unlikely-to-be-appropriate-who-says](https://www.stuff.co.nz/national/health/coronavirus/127497910/covid19-repeated-booster-doses-of-the-original-vaccine-unlikely-to-be-appropriate-who-says)
+> [7·24系列——郭文贵先生谈PAG案时提到的律师和律师事务所](https://gnews.org/zh-hans/1738109/)
 
-审核校对：sherryok
 
-上传排版：水云间
 
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

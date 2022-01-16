@@ -2,8 +2,8 @@
 ---
 
 
-## 如果没有人怼我们，怎么体现我们的价值
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865841/)
+## 喜币最值钱的地方就是你把所有HDO提现走，它百分之百不会破产
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865937/)
 
 台灣寶島農場
 

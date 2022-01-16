@@ -2,13 +2,11 @@
 ---
 
 
-## 日本将中共病毒Omicron密接者隔离期从14天缩短到10天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1865513/)
+## 数字货币走向新的时代和法币并存，最后法币被淘汰
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1865877/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._16-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+台灣寶島農場
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
