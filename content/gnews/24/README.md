@@ -2,38 +2,22 @@
 ---
 
 
-## 正义的判决！中共背景律师事务所违背职业道德被判出局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866095/)
+## 美国最高法院对疫苗强制令的裁决意义重大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866155/)
 
-撰稿: 银河系农场—骄子
+撰稿：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，经过两小时的听证会，纽约县最高法院法官批准，取消“卡西尔、戈登和雷德尔律师事务所”（Cahill Gordon & Reindel），代表太平联盟基金起诉郭文贵先生的诉讼资格。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1243.png)
-早在2017年，郭先生申请政治庇护仅24小时后，O’Melveny & Myers律师事务所，代表太平联盟基金（PAG，Pacific Alliance Group）向郭文贵先生发起诉讼。爱德华·莫斯当时就是这间律师事务所的合伙人，近期，他转而加盟“卡西尔、戈登和雷德尔律师事务所”。
+在1月14日的大直播中，针对美国最高法院于13日对拜登政府疫苗强制令的裁决，郭文贵先生表示，这项裁决将彻底扭转全球疫苗局势。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1247.png)
+郭先生说，法治，是美国的核心价值。从美国高等法院做出裁决的这一天开始，大药企、监管机构、强制接种的政府官员等，已被套上了法律的枷锁。在世界范围内，科学家、医学家将率先发起质疑，疫苗受害者将依法捍卫自己的权益，有关疫苗推广与强制接种相关的人员和政策将被重新审视和检验。
 
-而在去年GTV与SEC的案件中，“卡西尔、戈登和雷德尔律师事务所”（Cahill Gordon & Reindel）的合伙人，布拉德利·邦迪律师（Bradley J. Bondi）曾经担任GTV的法律顾问。郭先生对该律师事务所分享了机密信息，该律师事务所也被要求禁止代表郭先生的对立方。
+郭先生透露，新中国联邦提供了针对此次判决的关键性证据–mRNA疫苗和病毒溯源，以及私人企业主接种疫苗副作用的确凿证据。“以法灭疫”，新中国联邦功不可没。作为“无苗族”的新中国联邦人，也将会成为人类最黑暗时代中的最大赢家。
 
-卡西尔律师事务所代表太平联盟起诉郭先生，存在明显的利益冲突。而卡西尔律师事务所更是冒天下之大不韪，违反保密条款，将郭先生的机密信息公之于众。
-
-郭先生的当天的盖文中表示，爱德华·莫斯是中共高级特工单伟健的代表律师，中共造假、利用太平联盟基金发起法律超限战，妄图损毁郭先生的声誉、侵占郭先生的资产。这起案件的诉讼过程，让美国人看清了美国和中共国司法界最黑暗的一面。而此次法官公正的判决，也让我们坚信美国法律的伟大，坚信在法律面前，正义终能得到伸张。
-
-
-
-新闻来源: [Judge disqualifies Cahill law firm in investor fight with billionaire Guo Wengui](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
-
-
+新闻链接：[2022年1月14日文贵大直播](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-8.jpg)
 
-总编/编辑: 雪梨
-
-[https://gettr.com/post/poee40e2ab](https://gettr.com/post/poee40e2ab)
-
-
-
-> [7·24系列——郭文贵先生谈PAG案时提到的律师和律师事务所](https://gnews.org/zh-hans/1738109/)
-
-
+编辑：Ivy001/雪梨
 
 校正/发稿：浪迹天涯
 

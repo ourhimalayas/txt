@@ -2,34 +2,24 @@
 ---
 
 
-## 美两党议员提案应对中共垄断稀土资源
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1866209/)
+## 应美国要求，俄罗斯联邦安全局拘留14名黑客
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1866216/)
 
-撰稿：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
-1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1248.png)图片来源：https://images.app.goo.gl/1e5AkrA1uu5qm9ER7
-该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-22.png)[图片信息源](https://news.yahoo.co.jp/articles/69984ce21d710382aaa140dc2aaa705db24ecdad#:~:text=%E3%83%88%)
+TBS新闻1月16日报道，俄罗斯情报机构FSB联邦安全局14日宣布，应美国政府的要求FSB已经拘留了14名总部设在俄罗斯的黑客组织REvil的成员。据称，REvil利用一种”勒索软件”对美国及世界各地的公司发起网络攻击。他们在对该据点的搜查中缴获了电脑、大量现金和豪华汽车。
 
+据路透社报道，该组织的一名成员去年5月涉嫌参与了对美国最大石油管道网络攻击。
 
+美俄在去年6月的首脑会议后，就网络安全问题展开了讨论。当下，在乌克兰紧张局势加剧的情况下，俄罗斯对美国的这一要求做出了回应。
 
-新闻连接：
+信息源：
 
-[中國壟斷稀土市場 美議員提案調查不公平貿易](https://www.cna.com.tw/news/aopl/202201150014.aspx)
+[ロシア連邦保安局 米要請受けハッカー集団拘束](https://news.yahoo.co.jp/articles/62446b26d3fd516c00c078cf489772d1b896914d#:~:text=%E3%83%88%E3%)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-6.jpg)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-HEADER.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

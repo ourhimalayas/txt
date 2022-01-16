@@ -2,46 +2,44 @@
 ---
 
 
-## Facebook因利用用户数据在英国面临32亿美元的集体诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1866416/)
+## 邪教特征:教主崇拜精神控制编造邪说敛财秘密结社反社会
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866449/)
 
-![Mark Zuckerberg deep in thought (Drew Angerer /Getty)](https://media.breitbart.com/media/2021/08/Mark-Zuckerberg-deep-in-thought-640x480.jpg)Facebook（脸书）的创始人兼首席执行官扎克伯格（资料图）
-来自《布赖特巴特新闻网》2022年1月14日的报道，瘾科技(Engadget)报道说，脸书(Facebook,现在的Meta)正面临一场重大的法庭诉讼，一位法律专家已经开始与一家诉讼公司合作，代表英国的4400万Facebook用户起诉该公司。该集体诉讼称，英国用户的数据被利用，此举违反了竞争法。
+G-TV视频链接：[https://gtv.org/video/id=61e3ab3087664c47acd54d15](https://gtv.org/video/id=61e3ab3087664c47acd54d15)
 
-该诉讼为英国Facebook用户寻求23亿英镑(32亿美元)的赔偿，该诉讼由专门研究竞争法的利萨·洛夫达尔·戈尔姆森(Liza Lovdahl Gormsen)博士提起的。接手此案的因斯沃思(Innsworth)律师事务所为此案提供资金，以换取所赢得的一部分损害赔偿金。
+**郭文贵先生：**邪教组织的六大特征是什么？教主崇拜，你们有教主崇拜吗？所以说你们就别老说爱七哥，又是水多，又是啥多了。精神控制，我控制你们了吗？草根小哥，你跟谁双修，我管过你吗？编造邪说，咱编造有一个能证明的吗？聚敛钱财、秘密结社，咱秘密结社了吗？咱都是公开直播，咱有秘密结社吗？咱聚敛过谁的钱财？告诉我，哪一个不是在法律范围内？对抗社会、对抗社会。看看，对抗社会。
 
-该诉讼称，虽然用户使用Facebook不需要付费，但他们提供给该社交媒体平台的信息是有价值的。洛夫达尔·戈尔姆森在一份声明中说：“他们正在通过获取用户的个人数据来利用用户谋利，却没有为获取这些数据对用户作出适当的补偿。我认为用户在点击条款和条件时并不完全清楚这种交易有多不公平。”
+如果什么叫邪教组织，这上面儿这一条，毛泽东教主崇拜，精神控制——穿蓝衣服、白衣服，爹亲娘亲不如党亲，东方红太阳升，中国出了个毛泽东，万岁万岁万万岁；编造邪说——共产党说抗日，共产党说拯救了56个少数民族，56个少数民族认为毛泽东是太阳，没有共产党就没有新中国。这是不是编造邪说？多了去了，是吧？
 
-戈尔姆森补充说，Facebook已经成为“英国唯一的一处你可以确保与朋友和家人联系的社交网络平台”。诉讼进一步指出，Facebook通过Facebook像素(Facebook Pixel)在整个互联网上广泛地追踪其用户，对此《布赖特巴特新闻网》曾做过报道。
+聚敛钱财——把中国的土地，打地主分田地；秘密结社——共产党在1913年以前，完全属于外来组织，早该杀、早该抓，是吧？对抗社会——所有中国人网络社交、网络控制、新疆大屠杀，56个民族快被他灭了：制造假的组织——所谓人大代表。你说哪个不是共产党？邪教组织今天对照，哪个不是共产党？
 
-洛夫达尔·戈尔姆森说：“它滥用其市场支配地位，对普通英国人强加不公平的条款和条件，赋予它利用他们的个人数据的权力。”
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-诉讼涉及的时间段为2015年10月至2019年12月31日。该诉讼是一个“选择退出”的集体诉讼，这意味着用户不需要提供任何形式的同意书就可以从该案件中获得损害赔偿，除非他们选择退出。
+编辑整理：Jacques；
 
-简评：
+字幕文件制作：小满；
 
-Facebook公司去年宣布把名字换成Meta，有网民根据其英文发音调侃“非死不可”进一步换成了“埋它”。这种调侃背后也有其严肃的理由。过去数年来，Facebook违法地滥用市场支配地位，利用客户数据谋利，对发布所谓的“敏感信息”的用户进行言论审查和信息屏蔽，甚至封号。
+视频制作及上传：Cindy；
 
-去年1月，川普总统被Facebook和旗下Instagram禁言并暂停账号，为期两年。在香港大游行期间，有用户反映在Facebook发布的一些真实情况因“涉及敏感信息”很快被屏蔽或下架。Facebook 已经彻底沦为政治极权的工具。
+G-News发布：小满；
 
-公司为逃避法律缠诉而换名字，那只是“换汤不换药”。在社交媒体高速发达的信息时代，大众需要的是能接收真实信息、保证个人数据安全和能自由发声的网络平台，我们爆料革命的GTV，Gnews，GETTR等媒体平台就属于这类平台。Facebook如果还继续无视法律约束，无视客户隐私，压制和审查公众言论，其最终将会被大众放弃，而我们爆料革命的媒体平台也将顺势崛起。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-新闻链接：[https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-翻译/简评：JS
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-PR:Harvey（叶知秋）
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-* * *
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-编辑：【英国伦敦喜庄园编辑部】
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

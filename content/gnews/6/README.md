@@ -2,34 +2,46 @@
 ---
 
 
-## 中共酷吏孙力军，央视大裤衩电视认罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1866362/)
+## Facebook因利用用户数据在英国面临32亿美元的集体诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1866416/)
 
-**【雅典娜观察】和您一起探究世界**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-229.jpg)图片来源：Youtube
-整理报道：Little lamp
-编辑：文泓
+![Mark Zuckerberg deep in thought (Drew Angerer /Getty)](https://media.breitbart.com/media/2021/08/Mark-Zuckerberg-deep-in-thought-640x480.jpg)Facebook（脸书）的创始人兼首席执行官扎克伯格（资料图）
+来自《布赖特巴特新闻网》2022年1月14日的报道，瘾科技(Engadget)报道说，脸书(Facebook,现在的Meta)正面临一场重大的法庭诉讼，一位法律专家已经开始与一家诉讼公司合作，代表英国的4400万Facebook用户起诉该公司。该集体诉讼称，英国用户的数据被利用，此举违反了竞争法。
 
-1月13日，中共国公安部原党委委员、副部长孙力军被提起公诉。检方指控孙力军涉嫌三罪，受贿罪、操纵证券市场罪、非法持有枪支罪。次日，在央视《零容忍》节目中，孙立军公开电视认罪。
+该诉讼为英国Facebook用户寻求23亿英镑(32亿美元)的赔偿，该诉讼由专门研究竞争法的利萨·洛夫达尔·戈尔姆森(Liza Lovdahl Gormsen)博士提起的。接手此案的因斯沃思(Innsworth)律师事务所为此案提供资金，以换取所赢得的一部分损害赔偿金。
 
-公开资料显示，孙力军曾担任公安部一局、二十六局局长，港澳台办公室主任等职务。2018年3月，49岁的孙力军出任公安部副部长，成为当时最年轻的公安部副部长。
+该诉讼称，虽然用户使用Facebook不需要付费，但他们提供给该社交媒体平台的信息是有价值的。洛夫达尔·戈尔姆森在一份声明中说：“他们正在通过获取用户的个人数据来利用用户谋利，却没有为获取这些数据对用户作出适当的补偿。我认为用户在点击条款和条件时并不完全清楚这种交易有多不公平。”
 
-孙力军最后一次公开露面是在2020年3月。2020年4月19日，孙力军被查。在2021年9月30日孙被“双开”。
+戈尔姆森补充说，Facebook已经成为“英国唯一的一处你可以确保与朋友和家人联系的社交网络平台”。诉讼进一步指出，Facebook通过Facebook像素(Facebook Pixel)在整个互联网上广泛地追踪其用户，对此《布赖特巴特新闻网》曾做过报道。
 
-中共官方文件指出，该案由国家监察委、长春市公安局联手查办；孙力军敛财首站始于“上海市卫生局外事处副处长”；除了受贿罪之外，孙力军还涉嫌操纵证券市场罪、非法持有枪支罪。
+洛夫达尔·戈尔姆森说：“它滥用其市场支配地位，对普通英国人强加不公平的条款和条件，赋予它利用他们的个人数据的权力。”
 
-孙立军作为中共酷吏，他首开当事人电视认罪，也是“灭胡行动”、“雷洋事件”、迫害爆料革命战友等的幕后执行者。今天中共党内习江大战升级之际，习近平“请君入瓮”，对目前中共党内高官们起到了很好的警示作用。
+诉讼涉及的时间段为2015年10月至2019年12月31日。该诉讼是一个“选择退出”的集体诉讼，这意味着用户不需要提供任何形式的同意书就可以从该案件中获得损害赔偿，除非他们选择退出。
 
-新闻来源：[“警虎”孙力军一案的几个罕见之处](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=b7e7b8f7bdee4d36af5a3e1ec6dd7ecc&amp;wm_cid=465765587161726976&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
+简评：
 
-发布：去中心化Math
+Facebook公司去年宣布把名字换成Meta，有网民根据其英文发音调侃“非死不可”进一步换成了“埋它”。这种调侃背后也有其严肃的理由。过去数年来，Facebook违法地滥用市场支配地位，利用客户数据谋利，对发布所谓的“敏感信息”的用户进行言论审查和信息屏蔽，甚至封号。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+去年1月，川普总统被Facebook和旗下Instagram禁言并暂停账号，为期两年。在香港大游行期间，有用户反映在Facebook发布的一些真实情况因“涉及敏感信息”很快被屏蔽或下架。Facebook 已经彻底沦为政治极权的工具。
+
+公司为逃避法律缠诉而换名字，那只是“换汤不换药”。在社交媒体高速发达的信息时代，大众需要的是能接收真实信息、保证个人数据安全和能自由发声的网络平台，我们爆料革命的GTV，Gnews，GETTR等媒体平台就属于这类平台。Facebook如果还继续无视法律约束，无视客户隐私，压制和审查公众言论，其最终将会被大众放弃，而我们爆料革命的媒体平台也将顺势崛起。
+
+新闻链接：[https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
+
+翻译/简评：JS
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
