@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/16/2022 5:38 PM (UTC)`
+
+A chilling testimony of the CCP’s brainwashing education: another solid proof of how the CCP devastated the next generation with “patriotic slogans”<br/><br/>中共洗脑教育令人发指，以“爱国口号“为工具摧残青少年思想的又一铁证<br/>
+![img](https://media.gettr.com/group22/getter/2022/01/16/17/2c1b8c62-0ca8-41d3-1cef-7a896e236663/out.jpg)
+
+---
+
 `@miles 1/16/2022 3:19 PM (UTC)`
 
 汤姆·科顿参议员呼吁美国全面抵制中共冬奥会，以保证美国运动员安全。冬奥会应延期，重新竞标，之后在其他安全、自由和民主之地召开<br/><br/>Senator Tom Cotton calls for the US to fully boycott the CCP Olympics to keep US athletes safe. The games should be delayed, rebid and conducted somewhere else that’s safe, free and democratic at a later date<br/><br/>
@@ -150,13 +157,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: The entire world will certainly stop pushing the COVID vaccination! There is no such a thing as the vaccine against the Omicron! The virus is the CCP’s bioweapon! Symptoms like those caused by the hemorrhagic fever virus are resulted from the COVID vaccines. To prevent from catching the CCP virus, there is no other option except not getting the COVID jabs, wearing a mask, and avoid going out as much as possible<br/><br/>1/14/2022 文贵直播：全世界一定会停止推行疫苗！奥米炕疫苗是无稽之谈！病毒是共匪的生化武器！类似“热毒”的症状是疫苗造成的；要防止感染，除了不打疫苗、戴口罩、尽量不出门，别无选择
 ![img](https://media.gettr.com/group27/getter/2022/01/15/07/ce9427e7-3d80-2a85-ad72-8cb82406f44c/out.jpg)
-
----
-
-`@miles 1/15/2022 7:03 AM (UTC)`
-
-1/14/2022 Miles Guo: Who has the say in defining the CCP’s so-called “zero tolerance”? Each word said by Sun Lijun and the clothes he was wearing in the film Zero Tolerance were arranged by the CCP. The influence of CCP's propaganda far exceeds that of Hitler; Xi Jinping’s vassals are way less competent than those of Jiang Zemin and Zeng Qinghong<br/><br/>1/14/2022 文贵直播：中共所谓的“零容忍“是谁定的？孙力军在《零容忍》中所说的每个字和穿的衣服都是中共定的；中共的宣传力量远超希特勒；习的班子的能力远不及江、曾
-![img](https://media.gettr.com/group10/getter/2022/01/15/07/c7a449ff-45ef-a15c-4d48-d8ba21432d20/out.jpg)
 
 ---
 
