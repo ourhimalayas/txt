@@ -2,39 +2,29 @@
 ---
 
 
-## 通用电气公司停止为员工接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867559/)
+## 爆料革命——历史的今天12月01日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1867553/)
 
-作者：银河系农场 骄子
+**整理：Pride**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-16-201456.png)
+**2018年12月01日—**王岐山是手指头硬，孟建柱真的是哪都硬，孙力军是嘴巴吹牛硬，吴征是舌头硬。他的核武器是杨澜，只要单独相处一分钟，杨澜能在任何地方拿下任何人。她在办公室没穿内裤找钥匙，把中国财政部的某部长给毁了。在洗手间，把香港富豪拿下。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+刘特佐出山的时候才二十几岁，纳吉布作为一国总理，跟他生死相连。以国家的财政跟他合作，创建1MDB；中东的几个国家，高盛、华尔街、好莱坞、澳大利亚名模相信刘特佐。他们赌的不是刘特佐，是孟建柱、江家。刘特佐出事后，在上海，享受国家力量的保护。马哈蒂尔到中国，遭到拒绝遣返刘特佐。纳吉布都倒台了，连美国都抓不着他。
 
-近日，美国最高法阻止了拜登政府对100人以上的大企业雇员强制推行中共病毒疫苗的计划。记者通过内部邮件确认，通用电气公司刚刚宣布，他们不再强制推行雇员接种疫苗。
+**2019年12月01日—**现在香港大街上抗议的运动减弱了，选举成功了，但香港的事情还是重中之重。在中环、太子站的香港同胞上街抗议，同样受到香港黑警的催泪弹甚至是布袋弹。还分成几种形式，在中间拦截。装游客穿便装在中间，突然猛袭在大街上抗议的孩子们。共产党对付敌人的那一套，全拿来用在香港的孩子身上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-8.44.39-PM.png)
+不但如此，香港媒体受到了巨大打压，很多媒体直接被攻击，记者家人受到威胁，有些直接被消失。像陈彦霖她母女一样有人出来举证，还有周梓乐同学一样有些事出来举证，要么摄像头坏了，要么把你摄像头的人给灭了。香港4大不要脸，都是分别被做工作、被许诺，不要跟孩子们站在一起。
 
-据悉，通用电气公司是第一家宣布停止强制推行中共病毒疫苗接种计划的公司，经过联邦最高法的授权，雇员是否选择接种疫苗，完全由本人意愿决定。与此同时，Nike公司却依然激进地延续拜登政府强制接种中共病毒疫苗的计划，他们在邮件中公布，1月15日，未接种疫苗的雇员将被开除。
+**2020年12月01日—**武汉死的人，比你们知道的多几百倍。只要有病，一定要按照医嘱吃羟氯喹。一定戴口罩，关键是手，尽量少出去。不要传你和家人身上，能跑的就跑出来；不能跑的，在家活下来，等待着没有共产党的新中国的诞生和到来！
 
-参考链接：
+**2021年12月01日—**新病毒是以非洲弄欧美，容易传染，但致死率、致残率不高，很有可能消灭这场病毒。但不要有侥幸心理，青蒿素、伊维菌素、羟氯喹加锌是希望，能把很多病症消失。
 
-1. [General Electric Abandons Biden’s Vax Mandate After SCOTUS Ruling While Nike Doubles Down](https://remarkboard.com/m/general-electric-abandons-biden-s-vax-mandate-after-scotus/1gbxj1eev62f4)
-2. [GE suspends Covid vaccine and testing rules after Supreme Court blocks Biden mandate](https://www.cnbc.com/2022/01/14/ge-suspends-covid-vaccine-and-testing-rules-after-supreme-court-blocks-biden-mandate.html)
-3. [General Electric Suspends Vaccine Or Test Requirement After Supreme Court Ruling](https://www.dailywire.com/news/breaking-general-electric-suspends-vaccine-or-test-requirement-after-supreme-court-ruling?itm_source=parsely-api&amp;utm_campaign=daily_shapiro&amp;utm_medium=email&amp;utm_source=housefile&amp;utm_content=daily)
+喜联储拿到两家数字银行牌照，战友投资后，将是终生的通道。币加锁，战友有说不的权力。但七哥有很多手段。没有绝对公平，但我们让弱者和强者有同等机会。
 
+澳门是一个犯罪之都，贩卖人口器官、杀人、赌博洗钱的交易场所，更是跟西方腐败、情报收集、“蓝金黄“交易最核心的地方。经济问题是政治斗争，律师事务所、赌厅都是共产党的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+洗米华是孟的杀手，拿下东南亚黑帮，搞定每年大概5000亿美元的毒品。再用毒品把东欧、东亚连起来，横跨原来的丝绸之路。从新疆、阿富汗直接到东欧、俄罗斯进入欧洲。弄起来赌博、洗钱，控制走私人口，拿下中国的西南部走廊。
 
-编辑：百香果
-总编：飞虹
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
