@@ -2,26 +2,14 @@
 ---
 
 
-## 香草山翻译部周刊|2022年1月16日第31期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1868583/)
+## 【粤语配音】2022年1月16日：共产党的邪恶，就是让世界惊恐动乱
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1868816/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+紐約香草山-香港部
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CN-1.png)
-文章仅代表作者本人观点，与Gnews无关
+现在战友们把自己管好，活下去，2022年是人类最黑暗的一年，病毒、经济危机，各国政府现在私下里都说，让这场崩溃到来吧，到的彻底一点儿，然后政府更有机会涉及更多的金融产品。
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-12.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他说这些老百姓没有饭吃的时候，没有房子住的时候，他们就会更加努力的工作。这就是统治阶级。他不仅是中共国，是中共开启了这种更加邪恶的模式，不仅仅是中共国，全世界的人都有贪婪，憎恨、虚伪、自私、冷漠，甚至魔鬼的一面，只是文明和法治，让这些东西得到控制，但是共产党这次的病毒和疫苗完美的设计，让世界上所有的这些丑陋、邪恶的东西，无限的放大，你看这些基金，你看这些政府官员，所以共产党在那里咬着手指头在那乐呢，，就是让你看到这种厮杀，人性丑陋的一面暴露出来，无限的放大，让世界变得动乱不堪，死亡对共产党来说是他们最好的礼物。憎恨是他们的甜品，杀掠、阴谋诡计是他们的咖啡，媒体、基金是他们利用喝咖啡的勺子和工具，你看得西方这些媒体，在冬奥会，在新疆大屠杀一切闭嘴你就明白了，但是战友们我再说一遍，新中国联邦就像天空的太阳，无限的美好。
 
  
 

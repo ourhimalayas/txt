@@ -2,22 +2,21 @@
 ---
 
 
-## 一定要采法律行动对媒体攻击一定要反击(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1868860/)
+## 七哥三个月之后再次向世界发出预警（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868897/)
 
 整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一定要采法律行动对媒体攻击.002.jpeg)
-像刚才小斯基说的更吓人了，他编辑和断章取义，然后把小斯基定义为暴 力分子，你打人呢，你看那个视频，有没有打人啊，是不是你小斯基打的 呀，这更恐怖了。这就像要把**300**年飞飞跟一个上海的叫什么十大妓女 那个电影放在一起，然后十大妓女的照片就出来，飞飞照片就出来后这飞 飞就成妓女啦。那人家飞飞以后永远就是这个**300**年飞妓啊，就是很恐怖 的。这在媒体上有专业的行规，每句话都要澄清，他没有分割点，那就说 话一样，没有点号逗号。这对小斯基的威胁真的是很大的。 昨天到现在我也想说的是因为他没有加上中文字幕，我的英文理解能力也 不够，我就简单过了一下以后，我说坏了，这个**NICOLE**还小斯基现场 这些抗议的人硬叉叉地跟我们扯在一起，他们生命有巨大的安危问题。小 斯基这不是开玩笑，你不是说你吃不下去饭，你应该很多理由吃不下去 饭，而且要注意安防，而且你一定要采取法律行动，否则这个视频越传 越广泛，对你威胁越来越大。
+编辑：tianzhihuan
 
-*发布：陶子*
+这个不是好消息。我专门请教了科学家。科学家说，如果他要这么干的话, 可能就真的要放最毒最毒的毒了。他说甚至都在他知道的之外。我告诉他我这7个人我大概知道4个人的名字，我念到第3个人名字时候把他吓一大跳， 他说这个人要出来，后果不堪设想。他说王沪宁要在这里边儿，可能是就了不得了。还有另外一位少将的名字在里面啊。这个家伙那是可就坏到家了。 他说这是个精神病。就像当年希特勒的戈培尔一样。哇塞。这是对我很震惊的，就是说这次要他跟美国较量，兄弟姐妹一定要记住，美国人一定最终搞明白的，一定能搞得明白的，这点你们半点不用担心，还要看具体的什么动作。但是这场冬奥会，2月14号之后，病毒的去向和共产党打不打台湾和美国的较量，一定会走上一个新的不同的高度，这就是我们今天要说的，上天让其亡，必让其猖狂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥三个月之后再次向世界发出预警（二）-.jpg)
+发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
