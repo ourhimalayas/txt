@@ -2,22 +2,22 @@
 ---
 
 
-## 因停售新疆产品，中共报复沃尔玛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867792/)
+## 世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867794/)
 
 作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒14日消息，为遵守“反强迫劳动法”，沃尔玛近期宣布下架新疆产品。本周中共媒体开始宣传去年对这家连锁超市的约5万美金罚款，同时受到批判的还有英特尔。迫于大内宣和网络水军攻势，这家美国半导体企业已经删除关于新疆的言论，并且道歉。此前英特尔公司由于侵犯人权顾虑，要求合作伙伴避免从新疆地区采购。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.27.png)
-去年12月，一家隶属于中纪委的媒体警告沃尔玛，不要停止销售新疆产品。几天后，市场管理局公布因数字安全漏洞而对沃尔玛行政处罚。
+据外媒1月11日综合消息，世银调降美、欧及中国经济增长预估，警告普遍债务过高，贫富加剧，以及新的新冠病毒变种对发展中经济体复苏构成威胁。2022年全球经济成长率将从去年的5.5%明显降至4.1%，2023年则是进一步降至3.2%，因各国政府停止疫情之初提供的，大规模财政及货币刺激政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.47.png)
+世银预期，发达国家经济活动在2020年萎缩过后，于2021年大幅反弹，但警告通胀更为持久，供应链及劳动力问题，及新的新冠变种病毒等因素，有可能打击全球增长。疫情已经加深发达与发展中国家的成长差距，同时也导致各国内部增长出现分歧，可能加剧社会紧张及动乱。
 
-由于种族灭绝行动，12月拜登政府通过立法，停止大部分从新疆进口产品至美国市场，同时宣布外交抵制北京冬运会。
+世行展望小组的Ayhan Kose认为，发展中国家“硬着陆”风险升高，因他们提供必要财政援助的选项有限，通胀压力持续高涨，且财政相当脆弱。
 
-周三，广东市场管理局对沃尔玛开出30万元罚单，并将其列入违反“反不正当竞争法”案例教材。中国是这家全球最大零售企业的第二大海外市场，零售面积仅次于墨西哥，占去年5590亿美元营销的22%。
+报告预估，2022年发达国家经济体成长率，将从2021年的5%降至3.8%，2023年进一步下滑至2.3%。美国2021年国内生产总值(GDP)增长率，预估调降1.2个百分点至5.6%；同时，预估2022年成长将骤降至3.7%；2023年降至成长2.6%。世银称，日本2021年GDP增长将下降到1.7%，较6月时预估少了1.2个百分点；2022年增长率则将升至2.9%。
 
 参考链接：
-1）[Chinese Regulator Flags a $50,000 Fine Against Walmart](https://www.wsj.com/articles/chinese-regulator-flags-a-50-000-fine-against-walmart-11642192977)
-2）[Intel Erases Reference to China’s Xinjiang After Social-Media Backlash](https://www.wsj.com/articles/intel-erases-reference-to-chinas-xinjiang-after-social-media-backlash-11641808676)
+1）[World Bank slashes global growth forecast and warns about growing inequality](https://www.cnbc.com/2022/01/12/world-bank-slashes-2022-global-growth-forecast.html)
+2）[Omicron, Supply-Chain Troubles to Slow Growth, World Bank Says](https://www.wsj.com/articles/omicron-supply-chain-troubles-to-slow-growth-world-bank-says-11641918947)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 

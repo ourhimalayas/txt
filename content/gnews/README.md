@@ -15,76 +15,76 @@
 
 ---
 
-### [频繁接种反而降低免疫力…政府将进行第4针的讨论](/content/gnews/1/README.md)
+### [法拉奇预测英国议会将发现有“更多”中共间谍](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/25/2021 中共洗脑令人发指，以“爱国口号“为工具摧残青少年思想的又一铁证](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [早期新冠病毒感染 治療解說：一線用藥篇 (2022年1月15日更新)](/content/gnews/3/README.md)
+ ` 香草山醫療部`
+
+### [频繁接种反而降低免疫力…政府将进行第4针的讨论](/content/gnews/4/README.md)
  ` 首尔天池农场`
 
-### [有声|2022年伊始孙力军再成中共党内肃清典型](/content/gnews/2/README.md)
+### [有声|2022年伊始孙力军再成中共党内肃清典型](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [郑溶镇副会长在instagram上再次&#8221;灭共&#8221;后&#8221;喧闹&#8221;](/content/gnews/3/README.md)
+### [郑溶镇副会长在instagram上再次&#8221;灭共&#8221;后&#8221;喧闹&#8221;](/content/gnews/6/README.md)
  ` 首尔天池农场`
 
-### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/4/README.md)
+### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [美国的通货膨胀达到了 40 年来的最高点](/content/gnews/5/README.md)
+### [美国的通货膨胀达到了 40 年来的最高点](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [真相是自由的根](/content/gnews/6/README.md)
+### [真相是自由的根](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](/content/gnews/7/README.md)
+### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](/content/gnews/8/README.md)
+### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](/content/gnews/11/README.md)
  ` 温哥华扬帆农场`
 
-### [[ 聚焦港澳 ] 从香港的白手套角色谈起](/content/gnews/9/README.md)
+### [[ 聚焦港澳 ] 从香港的白手套角色谈起](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [新中国联邦辞典横空出世](/content/gnews/10/README.md)
+### [新中国联邦辞典横空出世](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [有声|美联储将在几周内发布数字货币的完整报告](/content/gnews/11/README.md)
+### [有声|美联储将在几周内发布数字货币的完整报告](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [郭先生再谈奥密克戎病毒](/content/gnews/12/README.md)
+### [郭先生再谈奥密克戎病毒](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [有声|防病毒 储物资](/content/gnews/13/README.md)
+### [有声|防病毒 储物资](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/14/README.md)
+### [Joe Rogan风波带给新中国联邦人的启示](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/15/README.md)
+### [01/16/22 香港快讯 年宵叫停花墟拥挤 档主盼食环通融罚款](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [有声|英情报部门警告议员注意中共统战渗透](/content/gnews/16/README.md)
+### [有声|英情报部门警告议员注意中共统战渗透](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [喜币融入世界规则：以金钱为基础实现正义](/content/gnews/17/README.md)
+### [喜币融入世界规则：以金钱为基础实现正义](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [有声|美众议院提案停止政府强制雇员接种疫苗](/content/gnews/18/README.md)
+### [有声|美众议院提案停止政府强制雇员接种疫苗](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [1/15/2022 郝董/叶女侠: 为什么中共不让运动员到外面吃饭？为什么运动员的一杯水离开视线了就不能再喝了？](/content/gnews/19/README.md)
+### [1/15/2022 郝董/叶女侠: 为什么中共不让运动员到外面吃饭？为什么运动员的一杯水离开视线了就不能再喝了？](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/15/2022 郝董/叶女侠: 赵立坚无耻指控别国政治操控体育，中共才是违背奥林匹克精神的邪恶组织](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/21/README.md)
+### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [因停售新疆产品，中共报复沃尔玛](/content/gnews/24/README.md)
+### [世行预期今明两年全球增长急剧放缓 警示发展中国家有硬着陆风险](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
 ### [DC每日热点0116](/content/gnews/25/README.md)

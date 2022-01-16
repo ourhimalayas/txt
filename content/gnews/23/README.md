@@ -2,25 +2,28 @@
 ---
 
 
-## 中国21年Q4GDP预计破4至3.3% 12月工业投资消费同比增速放缓
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867793/)
+## 2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867795/)
 
-作者：MOS 柳是多水土透
+作者：杨帆农场 – 哈雷
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据1月11日官方公布的数据显示，2021年中国原油进口总量为5.1298亿吨，低于上年的5.4239亿吨，是2001年以来首次出现年度下降。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.37.png)
-受国内疫情及地产，基建投资放缓的影响，预计中国2021年四季度GDP（国内生产总值）同比增速将“破4”至3.3%，为2020年二季度以来最低。BofA Global Research美国银行全球研究则预计，中国去年12月份经济活动增长仍然疲软，四季度GDP同比增速预计放缓至3.1%，高盛则将2022年全年增幅从4.8%调降至4.3%。
+中共病毒致使美国创下40年来最高通胀水平。
 
-荷兰国际集团（ING）认为，在房企违约和高基数效应下，中国2021年四季度GDP将低于前一个季度的4.9%，去年12月地方债共计发行近3,179亿元，较上月减少逾五成。固定资产投资方面，地产基建预计继续走弱，开发商总体购地意愿持续走低。
+据《华盛顿邮报》报道，美国2021年12 月份，物价以 40 年来最快的速度上涨，比去年同期增长了 7%。这一通货膨胀比率已经远远超过了美联储设立的长期健康目标的2%。美联储从最初的认为高通胀只是暂时的观点也慢慢改变，认为高通胀将会持续一段时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.55.png)
+随着中共病毒疫情爆发进入到第三个年头，美国及全球的供应链系统和劳动力短缺遭遇了前所未有的挑战，因疫情导致各行各业间歇性的停工减产，并引起航运业的混乱。同时基础原材料价格上升，WTI美国原油期货价格近期突破80美元一桶大关，徘徊在每桶83美元附近。面对紊乱的供应链问题，美联储并没有正面应对，而是通过降准以及QE刺激需求，进一步扩大了供需不平衡，从而导致通胀率的进一步加升。
+
+除了各大原材料以及食物价格快速上升之外，北美流媒体公司奈飞（Netflix）近日也宣布上调订购价格10%左右。我们可以预计越来越多的科技行业寡头公司将通过提高价格的形式为其带来财报和股价的提升。而另一方面，普通消费者将面临生活中各方面消费价格的快速提升而带来的实际购买力下降，因为他们的工资并没有达到像物价那样的增长速度。
 
 参考链接：
-1）[Goldman Lowers China 2022 Growth Forecast to 4.3% on Omicron](https://www.bloomberg.com/news/articles/2022-01-11/goldman-lowers-china-2022-growth-forecast-to-4-3-on-omicron)
-2）[Goldman cuts China GDP target for 2022 — and exports aren’t the problem](https://www.cnbc.com/2022/01/12/china-economy-goldman-cuts-china-gdp-for-2022-amid-lockdowns-omicron.html)
+1）[December prices rise 7 percent compared with a year ago, as 2021 inflation reaches highest in 40 years](https://www.washingtonpost.com/business/2022/01/12/december-cpi-inflation/)
+2）[WTI原油期货涨幅扩大至4%突破80美元关口](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247835&amp;v=0)
+3）[用户增速预计放缓，奈飞上调北美流媒体服务价格](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247756&amp;v=0)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：正义的小新
-编辑：Kathy文艺
+编辑：Delilah小胖
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
