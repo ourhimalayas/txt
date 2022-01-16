@@ -2,73 +2,25 @@
 ---
 
 
-## 【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868138/)
+## 美国的通货膨胀达到了 40 年来的最高点
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1868159/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+撰稿：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-28.jpg)图片来自网络
+由于食品ˎ住房ˎ公共事业ˎ油价和其他商品价格上涨，2021年12月美国消费者价格指数（CPI）上涨了7%，是近40年来的最高年度涨幅。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+根据美国劳工统计局的数据，住房ˎ食品，二手车和卡车价格增幅最大。价格上涨的原因其中包括芯片短缺ˎ消费趋势和COVID-19病毒带来的社会负面影响。但归根到底是供需问题。
 
-接：[【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（上）](https://gnews.org/zh-hans/1868095/)
+自从2020年3月以来，由于COVID-19病毒大流行导致的关闭工厂ˎ限制旅行和隔离等措施，扰乱了国际供应链。供应链中断，意味着工厂无法及时得到生产所需的零配件，导致生产速度放缓。人们由于外出受限制，外出就餐和度假的消费转到商品上的支出，比如计算机，家用电器，汽车和家具。
 
-6.  Valley Urgent Care的硫酸羟氯喹、伊维菌素疗法的临床治疗效果
+点评：生产放缓和需求增大是推高价格的主要因素。COVID-19和其变异病毒的大流行是供应链上的“黑天鹅事件”。全球经济一体化和“及时交付”模式瞬间瓦解。 而在供应链中的人力问题突显出来。人们或由于感染COVID-19病毒，或被迫隔离在家，或因学校停课需要在家照顾小孩，或领取失业救济金呆着家，或提前退休，或转换工作，从供应链中脱离出去，从而造成各行各业人力短缺。再加上各国政府大量超发货币，病毒肆虐，经济崩溃在即。解铃还需系铃人。美国高院否定拜登政府企业疫苗强制令是一个分水岭，意味着世界要追究病毒从哪里来，疫苗从哪里来？这才是根本。
 
-（1）总共有3,962名轻度COVID-19患者接受Valley Urgent Care紧急护理人员治疗的，在病情发展到中度或重度COVID-19之前，总共有2人住院，占0.05%，零死亡。其中：
 
-接受治疗在方案1的1,585名轻度COVID-19患者中，有1人住院（占0.06%）和0人死亡（0%）。
-
-在接受方案2治疗的2,356名轻度COVID-19患者中，有1人住院（0.04%）和0人死亡（0%）。
-
-有21名患者治疗日期不详，但只接受了轻度COVID-19治疗，未住院或死亡。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_db0d3090-426d-430f-8c6c-16c02706657e_645x657.png)
-
-而在加利福尼亚州帝王县的其他20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，有4,770人（22.8%）住院，636人死亡（3.0%）。
-
-（2）在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care的中度COVID-19 治疗方法，总共有7人住院，占1.7%，3人死亡，占0.73%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法，最终顺利康复了。其中：
-
-在接受Valley Urgent Care治疗方案1的413 名中度 COVID-19的患者中，有2人住院，占0.5%，零死亡。
-
-在接受Valley Urgent Care治疗方案2的190名中度 COVID-19的患者中，有5人住院，占2.6%，3人死亡，占1.6%。
-
-有1名患者拒绝住院，而是选择Valley Urgent Care门诊重度COVID-19治疗方法，成功康复了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/amazonaws.com_public_images_b1b1b376-64cc-48d2-bcb4-51a18b5ea913_644x657.png)
-
-（3）汇总数据对比：
-
-在加利福尼亚州帝王县（Imperial County）的20,921名未接受Valley Urgent Care治疗（硫酸羟氯喹、伊维菌素疗法）的COVID-19患者对照组中，有4,770人住院，占22.8%，636人死亡，占3.0%。
-
-而在接受硫酸羟氯喹、伊维菌素疗法的3,962名轻度COVID-19患者，在发展为中度或重度疾病之前，有2人住院，占0.05%，零死亡.
-
-在414名中度COVID-19患者中，有413名患者接受了Valley Urgent Care中度COVID-19 治疗方法，总共7人住院，占1.7%，3人死亡，占0.72%。1名拒绝住院，而是选择门诊重症COVID-19治疗方法的患者，康复了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/s3.amazonaws.com_public_images.png)
-
-整个临床研究过程如下：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Overcoming-the-COVID-19-Darknes-1.jpg)
-
-加利福尼亚州帝王县埃尔森特罗（El Centro, CA）大型专用SARS-CoV-2治疗中心All Valley Urgent Care（AVUC）应用对SARS-CoV-2具有明显抗病毒反应性的硫酸羟氯喹（hydroxychloroquine）、两种抗生素（antibiotics）——阿奇霉素（azithromycin）和强力霉素（doxycycline）、以及包括锌（zinc）、维生素C（vitamin C）、维生素D（vitamin D）等多种维生素包（multivitamin pack）和根据需要加入伊维菌素（ivermectin），并有选择地使用吸入布地奈德（budesonide）、地塞米松（dexamethasone）、泼尼松（prednisone）或其他被认为合适的一种或组合，临床统计结果证明，治疗轻度COVID-19患者的死亡率为0%，住院率为0.05%。用于治疗中度或重度COVID-19患者的死亡率为0.72%，住院率为1.69%。
-
-而该县同期其它20,921名未接受Valley Urgent Care治疗的COVID-19患者对照组中，住院率为22.8%，636人死亡率为3.0%。
-
-结论：
-
-当患者在的病情发展超过轻度COVID-19之前，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，几乎不存在住院和死亡。
-
-在中度COVID-19疾病状态下，接受包括硫酸羟氯喹和伊维菌素在内的多种药物治疗方案时，也显示出住院和死亡的显著减少。
 
 参考资料：
 
-[Overcoming the COVID-19 Darkness: How Two Doctors Successfully Treated 7000 Patients Paperback – January 7, 2022](https://www.amazon.com/Overcoming-COVID-19-Darkness-Successfully-Patients/dp/B09PVNF24K/ref=zg_bsnr_227207_1?_encoding=UTF8&amp;psc=1&amp;refRID=FKAWSZT6BNDGGJM4M5ZF)
-
-[The First Tyson/Fareed Study Text](https://roundingtheearth.substack.com/p/the-first-tysonfareed-study-text)
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+[美国通胀](https://www.abc.net.au/news/2022-01-14/why-are-prices-going-up-on-everyday-items/100747884)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

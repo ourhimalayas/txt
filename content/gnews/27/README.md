@@ -2,39 +2,37 @@
 ---
 
 
-## DC每日热点0116
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1867732/)
+## 2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1867795/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CFB264D3-0B5F-46F7-B748-D0BF8FF4799E-scaled.jpeg)
-道琼斯指数 35911.81 ▼0.56%
-纳斯达克指数 14893.75 ▲2.51%
-WTI纽约原油CFD 84.288 ▲2.64%
-布伦特原油CFD 86.473 ▲0.48%
-标普50指数 2,974.37 ▼46.37%
-美元兑人民币 1USD=6.352 RMB
-美元兑港币 1USD=7.784 HKD
-国际黄金 1817.93美元/盎司
-全球CCP病毒感染人数 327,097,749例
+作者：杨帆农场 – 哈雷
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共病毒致使美国创下40年来最高通胀水平。
 
-1、朝中边界关闭两年后 首辆朝鲜货物列车进入中共国丹东
-2、美国食品和药物管理局授予2款新冠口服药紧急使用权，即辉瑞的Paxlovid和默沙东的Molnupiravir
-3、汤加海底火山爆发，环太平洋沿岸发海啸警报
-4、当局：225人在哈萨克斯坦的骚乱中死亡
-5、中共国将开始执行与伊朗签署的战略协议，加强两经济和政治合作，北京同时批评华盛顿制裁伊朗
-6、空中不太平，联邦快递向美国监管机构申请安装反导系统对付导弹袭击
-7、美情报发现，俄罗斯启动舆论战为入侵乌克兰制造借口
-8、美国联邦检察官建议撤销针对麻省理工科学家与中共国关系的指控
-9、中共国4艘公务船2022年首次进入尖阁诸岛附近日本领海
-10、哈官方称抗议死亡人数升至225人 前总统多位亲族被免职
-11、沃尔玛遭指伪造产品评论被中共国监管罚款
-12、中共国大量“熔断”美国航班，美国交通运输部称，美国可能采取回应行动
-13、德国：奥密克戎已成主要感染
-14、香港预计下周起 为5至11岁孩童接种新冠疫苗
-15、加拿大外长将访乌克兰 重申抗俄立场
-16、欧盟各国对立陶宛表示声援 法国并承诺将加速反经济胁迫措施的立法
-17、 人权组织敦促沙特阿拉伯不要将两名维吾尔人遣返中共国
+据《华盛顿邮报》报道，美国2021年12 月份，物价以 40 年来最快的速度上涨，比去年同期增长了 7%。这一通货膨胀比率已经远远超过了美联储设立的长期健康目标的2%。美联储从最初的认为高通胀只是暂时的观点也慢慢改变，认为高通胀将会持续一段时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-16-上午9.30.55.png)
+随着中共病毒疫情爆发进入到第三个年头，美国及全球的供应链系统和劳动力短缺遭遇了前所未有的挑战，因疫情导致各行各业间歇性的停工减产，并引起航运业的混乱。同时基础原材料价格上升，WTI美国原油期货价格近期突破80美元一桶大关，徘徊在每桶83美元附近。面对紊乱的供应链问题，美联储并没有正面应对，而是通过降准以及QE刺激需求，进一步扩大了供需不平衡，从而导致通胀率的进一步加升。
 
+除了各大原材料以及食物价格快速上升之外，北美流媒体公司奈飞（Netflix）近日也宣布上调订购价格10%左右。我们可以预计越来越多的科技行业寡头公司将通过提高价格的形式为其带来财报和股价的提升。而另一方面，普通消费者将面临生活中各方面消费价格的快速提升而带来的实际购买力下降，因为他们的工资并没有达到像物价那样的增长速度。
+
+参考链接：
+1）[December prices rise 7 percent compared with a year ago, as 2021 inflation reaches highest in 40 years](https://www.washingtonpost.com/business/2022/01/12/december-cpi-inflation/)
+2）[WTI原油期货涨幅扩大至4%突破80美元关口](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247835&amp;v=0)
+3）[用户增速预计放缓，奈飞上调北美流媒体服务价格](https://news.popyard.space/cgi-mod/newspage.cgi?lan=cn&amp;r=0&amp;sid=15&amp;rid=247756&amp;v=0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：正义的小新
+编辑：Delilah小胖
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
