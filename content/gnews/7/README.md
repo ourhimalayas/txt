@@ -2,30 +2,42 @@
 ---
 
 
-## 大直播后记：美联储与喜美元合作
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1866891/)
+## 世界经济长线投资和数字货币洗钱都在离场,鲨鱼开始回撤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1866935/)
 
-整理：雅典娜速记组 大直播工作组
-编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/01/SLS59_KADR1SYIVJ6.png)图片来源：雅典娜设计组
-背景资料：Himalaya Dollar (HDO) 是一种基于以太坊的 ERC-1404 代币，向后兼容 ERC-20。我们的稳定币以美元 (USD) 固定，并有由美元和现金等价资产组成的储备金作为后盾。虽然喜马拉雅币的市场价格可能会波动，但喜马拉雅美元的美元固定价值为交易者和投资者提供了一个避风港。HCN 和 HDO 将通过 Himalaya Pay 以及 Himalaya Exchange 的相关交易市场进行交易。
+G-TV视频链接：[https://gtv.org/video/id=61e3c19787664c47acd5536c](https://gtv.org/video/id=61e3c19787664c47acd5536c)
 
-文贵直播：当共产党没有勾兑金钱的能力的时候，它一分钟变得狗屁都不是。反过来说了，战友们如果我们的喜币、喜联储壮大了，咱跟全世界都可以有勾兑。但是有人质疑我们喜联储，说老实话，我就给他回复：“你为什么总看到我们的不好呢？从第一天你就觉得我们喜联储根本就不可能成功。你说喜联储要能成功了，那这些国家都干啥吃的？”甚至他接触了喜联储的人，觉得这些人都是一帮神经病，100来个人在这儿低着头写代码、搞区块链，还有eco system，他们就是疯子。（最后）喜联储证明给他。然后我们说盖特，他说你不可能成功。 结果他现在上去看了以后，他给我们这样的总结。 我说如果没有这些缺点，怎么知道我们新中国联邦的重要呢？
+**郭文贵先生：**刚才你们看了世界的经济了，咱还没有说到世界的经济，回到这儿再说世界经济的时候，大家去想想，世界出现那么大事，刚才世界经济给了我们两个答案。长线投资都在离场，大家注意到了吗？最近长线投资都在离场，数字货币领域大额洗钱的正在离场，现在已经是“鲨鱼”开始往回撤了，大家看着，“鲨鱼”往回撤了，为什么Ray dalio出来要替共产党洗地，共享财富，他绝对是世界上最早知道让什么时候上，什么时候下的人。
 
-只有当你有这个货币权的时候，你才有资格。在这个世界上不要相信真理，也不要相信正义会凌驾于利益之上，你要相信，在利益满足情况下，你可以跟对方要求你的真理和正义。最终一定是数字货币走向新的时代和法币并存。最后法币被淘汰，一定这结果，那最后数字货币时代，咱们喜联储喜币一定是最大的赢家之一。所以说各联邦的政策对我们是有利的。我们在各州都在申请不同的牌照，而且喜币在喜支付上线以后，从一个灰色地带，逐渐会转到一个美国政府和各联邦政府允许的逐步合法的时代。
+所谓的“共享财富”就是给西方人打针了，是股票跌下来就是给你分财富呢，跟共产党一样是吧。把马云宰了你就当马云啦，把马化腾和马明哲杀了，你就当马明哲当马化腾了，这就是典型的Ray dalio这个孙子跟共产党唱的同一个调。
 
-这是为什么现在几十个国家现在跟这个喜联储在谈这个执照的时候说，你们到现在展示的是任何数字货币没有的系统，记住，这个系统的设计是七哥最牛的创意。第二这个系统的合法性是最牛的。第三，它法律的设置是符合全球性的，它的法律安全性也是最牛的。还有一个，它的整个稳定的储备系统也是最牛的。还有绝对限制每年发行数量只有10亿个。现在告诉大家，明年的币、后年的币有多少人要买，你们想象到了吗？兄弟姐妹们。数字货币和喜币，喜联储将彻底改变人类的金融生态系统，改变游戏规则，而且把新中国联邦会紧紧的跟全世界人民连在一起。共产党如果没有了14亿人民的奴隶，没有所谓的合法性代表中国人民，没有中国这些韭菜，没有人民币，它连个毛都不是，它一分钟都呆不下去。
+字幕来源：[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
 
-后记点评：喜联储得到世界主要国家的认可会是飞跃发展的趋势，这将干到中共国中国共产党的经济和虚假货币，抽干盗国贼的资金池，让他们一秒变成赤贫！
+编辑整理：Jacques；
 
-资料来源：郭先生GTV和盖特直播视频。
+字幕文件制作：小满；
 
-发布：  tianzhihuan
+视频制作及上传：Cindy；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
