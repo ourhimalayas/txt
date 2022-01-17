@@ -2,20 +2,23 @@
 ---
 
 
-## 吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1869000/)
+## 中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1869016/)
 
-#### 编译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-16-alle-23.04.01-1.png)图片来源: ilmessaggero.it
-一月十五日在米兰四月二十五日广场举行了一场反绿色通行证集会，集会中法国病毒学家， 2008年诺贝尔医学奖获得者吕克•蒙塔尼耶发表了演讲，他对新冠疫苗的否定态度使他成为众多拒打新冠疫苗者的地标。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-蒙塔尼耶说：“ 人类的救赎取决于未接种疫苗的人。”
+隆美尔，他妈和一教父通奸，从小就看着通奸，最后他一直把教父认爹。隆美尔是战术家，凭30辆坦克可以干掉对方1500台坦克。但是绝对不杀犹太人，不但不杀犹太人，发现了俘虏的英国兵，就把英国兵给放回去了，发现他是刚刚结婚。
 
-“ 在疫情紧急情况结束之后，人类的救赎掌握在未接种疫苗人的手中， 疫苗是个巨大的战略性错误…..这些疫苗根本起不到保护作用，这一事实正在慢慢浮出水面。科学家和患者正在发现疫苗没用，它们不但不能保护，相反会造成其他炎症。这些疫苗中含有有毒的蛋白质……这些疫苗造成了很多伤害，许多年轻的运动员由于疫苗有严重的心肌炎， 给孩子打疫苗完全是一种犯罪。听众给予他热烈的掌声并高喊“蒙塔尼耶”。最后蒙塔尼耶指责马克龙和德拉吉对待拒打新冠疫苗的人的态度。“ 这两个人不能改变人们的意志，你们应该觉醒，在下次选举中表达你们的愿望，自由万岁！”
+隆美尔和曼斯坦因不支持希特勒的屠杀政策的，隆美尔一度反抗希特勒，刺杀希特勒行动失败后被迫服下氧化钾自杀。我今天说到刘亚洲的事儿，我告诉大家，中国的军人当中，一定会有无数个曼斯坦因， 也会有无数个隆美尔。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔.002.jpeg)
+发布：tianzhihuan
 
-原文链接：[https://www.ilmessaggero.it/italia/montagnier\_no\_vax\_milano\_premio\_nobel\_chi\_e\_ultime\_notizie-6441367.html](https://www.ilmessaggero.it/italia/montagnier_no_vax_milano_premio_nobel_chi_e_ultime_notizie-6441367.html)
-
-编辑、上传： Xiao   baige
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

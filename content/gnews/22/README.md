@@ -2,38 +2,23 @@
 ---
 
 
-## 有声|丹麦、荷兰宣布外交抵制北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868945/)
+## 为什么要消灭网红（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868986/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月14日，丹麦外交部长杰普·科弗德表示，考虑到中共国的人权问题，丹麦将不派遣外交官员出席在北京冬奥会。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-科弗德说，丹麦非常关注中共国的人权状况，表示虽然支持丹麦运动员，但不支持他们参加本届冬奥会，并称非常希望在这个问题上，欧盟国家能统一立场。
+综上所述，中国走上了一级的世界就是一个太阳之级，就是习大神习太阳。 为了钱，为了未来的老百姓，现在让老百姓已经准备好，真的是像过去一样, 就像我小的时候，两年棉袄棉裤，都是我娘给我缝的，棉袄，棉裤，膝盖棉花都没有了，还要穿两三年。你搞什么时尚？中国人不仅要吃草，你还要准备好两三年穿一次个棉袄。
 
-当天早些时候，荷兰外交部发言人弗里茨·肯普曼在接受采访时说，由于中共国对冠状病毒疫情采取严格的管制措施，荷兰也不打算派出外交代表团参加本届北京冬奥会。
+而且没有任何爹，你什么爹都没有，只有个习爹，只有一个彭妈，而且全中 国没有任何人名字会记住，只有一个习近平和彭丽媛。你不信，你走着看， 只要他们活着就这条路，所有刚才我说的这些，都是你们刚才外教，网红， 还有什么这爹那爹，还有一个完全称为网络上不可控的力量，通通会被消灭。就这么简单。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/为什么要消灭网红（三）-.jpg)
+发布：tianzhihuan
 
-原文链接：[丹麦、荷兰宣布外交抵制北京冬奥会](https://gnews.org/zh-hans/1866201/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
