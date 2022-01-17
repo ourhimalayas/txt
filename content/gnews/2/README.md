@@ -2,29 +2,49 @@
 ---
 
 
-## 小斯基点评VICE采访事件(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869425/)
+## 美国医生给中共病毒患者使用伊维菌素被吊销执照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869444/)
 
-```
-整理：雅典娜速记组编辑：陶子
-```
+作者：银河系农场—骄子
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/小斯基点评VICE采访事件（二）-.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-你为什么这散播这些假消息？只要就这么问郭先生，是不是，嗯，大家看着不生气吗？听着不生气嘛？但是你再看一下她的嘴角，她的微表情，她的微动作, 包括在那里做采访，腿像蛇一样的缠起来。她的身体语言已经告诉你了。我接着问你，我就这么侮辱你，在我看来，她就是一个赤裸裸的侮辱，我就上门侮辱你了，怎么样？我这约了你这么长时间，对不对？你不还是接受我采访了嘛。 我到你这个抗议现场去，你第一天没接受我们采访，第二天你还不是来了吗? 来了，你看怎么样，我把你们耍了个团团转。
 
-她就是这么样一个人，这就是赤裸裸的种族上的歧视。香港就是那个，对吧? 也是，其实也叫华裔。但是他都能干出来这种行为，这背后绝对是跟共产党是 脱不开关系的。那么对于这种人的话，我们能做是什么?我们应该通过怎样的方式来改变这个世界？对于我们这些黄皮肤的华人，特别是中国人，特别是中国大陆来的这些中国人。他们对我们的刻板印象我们应该做一些什么才能去改变? 除了大家普遍这种自扫门前雪，事不关己高高挂起，我把自己的家庭啊孩子啊，给他们挣钱呀，帮他们这个买房子啊，买车呀，给自己折腾这折腾那个。除了 这个之外，你能不能有一点除了物质以外的追求?
+据美国媒体1月15日消息，近日，缅因州医生梅里尔·纳斯女士因给中共病毒患者使用伊维菌素和羟氯喹进行治疗，被暂时吊销了医疗执照，这位已经有40多年从业经验的医生因此无法行医了。医学执照委员会还说她在传播中共病毒误导讯息，强令她去接受心理辅导。
 
-*发布：陶子*
+据悉，纳斯医生是一个直言不讳的医疗专业人士，她曾经揭穿福奇关于中共病毒起源的谎言，还曾提出羟氯喹是可负担的治疗中共病毒的药物。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+而目前数据显示，使用伊维菌素和羟氯喹治疗中共病毒的患者病情都有极大的改善。同时非赢利组织Project Veritas的文件也提到伊维菌素和羟氯喹对治疗中共病毒是有效的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-3.jpg)
+参考信息：
+[Maine Doctor Loses License, Ordered to Undergo Psych Evaluation for Treating Covid Patients with Ivermectin, ‘Spreading Covid Misinformation’](https://www.thegatewaypundit.com/2022/01/maine-doctor-loses-license-ordered-undergo-psych-evaluation-treating-covid-patients-ivermectin-spreading-covid-misinformation/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

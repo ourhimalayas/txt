@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 2:26 AM (UTC)`
+
+Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of posts on Instagram with the hashtag Exterminating the Communist Party. Currently, the slogan of exterminating the Communist Party is rapidly gaining popularity in Korea.<br/><br/>韩国新世界集团副会长郑溶镇在Instagram上写了一系列带有灭共标签的帖子。目前，灭共口号在韩国迅速流行。
+![img](https://media.gettr.com/group43/getter/2022/01/17/02/1cd8bdb0-4ff7-82d9-d871-29a7e5733b8f/out.jpg)
+
+---
+
 `@miles 1/17/2022 2:22 AM (UTC)`
 
 1月13日，中共病毒真相查明医师会在韩国首尔中区的韩国新闻中心召开的中共病毒实验用疫苗接种者血液检查结果发表紧急记者会，所属内科专家医生陈基业(JEON GI YEOB)院长向人们发出“为了让我们国家延续下去，望大家能协助我们，千万不能让孕妇接种毒疫苗”的请求。<br/><br/>On 13 January, Covid-19 Truth-finding Physicians held an emergency press conference at the Korea Press Center in Seoul, South Korea, to release the blood tests of experimental virus recipients, Dr. JEON GI YEOB, Korean physician/Dean: For the sake of our country's continuity, we hope people will help us to appeal to never take the toxic vaccines
@@ -149,13 +156,6 @@ EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this de
 
 Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacerbated the division<br/>2. #mRNA was never to be used in a mass vaccination<br/>3. Being divided is not the worst thing <br/>4. People fighting for sovereignty are winning<br/>5. Political transformation is about to come<br/>6. Taking down the CCP will become the top priority<br/>8. #GTV and #Gnews are for the little guys #laobaixing <br/>9. #stevebannon considers #GTV and #gnews an important part of his "media diet"<br/><br/> 对班农先生采访的一些要点：<br/>1. #CCPvirus 加剧了分裂<br/>2. #mRNA 的初衷是永远不会用于大规模疫苗接种<br/>3.分裂并不是最糟糕的事情<br/>4.为主权而战的人正在获胜<br/>5. 政治转型即将到来<br/>6. 打倒中共将成为重中之重<br/>8. #GTV 和 #Gnews 是为小人物而设立的 #laobaixing<br/>9. #stevebannon 认为 #GTV 和 #gnews 是他“媒体饮食”的重要组成部分
 ![img](https://media.gettr.com/group35/origin/2022/01/15/23/b6891cb7-fb3c-4baa-ab16-7a458402365f/out.jpg)
-
----
-
-`@miles 1/16/2022 12:06 AM (UTC)`
-
-1/15/2022 Miles Guo’s GETTR: Fellow fighters, you can’t be too careful! Make sure not to catch the CCP virus! Hope the Himalaya Farms will not give up on a single fellow fighter in providing assistance! Facing the rising prices caused by the COVID-vaccine-related issues, fellow fighters should really consider stocking up flour, oil, salt, and other necessities!<br/><br/>1/15/2022 文贵直播：请战友们务必小心，千万不要染上病毒！希望各农场为战友提供帮助时不要落下任何一个战友！面对疫苗问题引起物价飞涨，战友们真的要备点面、油、盐等物资了！<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/16/00/dcfe79a0-15a7-2c8d-80a9-f51d6aa810a7/out.jpg)
 
 ---
 

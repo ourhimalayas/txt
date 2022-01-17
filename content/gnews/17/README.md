@@ -2,31 +2,32 @@
 ---
 
 
-## 大卫汇报币安诉讼进展(一)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869189/)
+## 美日将联合储备军火应变 包括邻近台湾岛屿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1869224/)
 
-```
-整理：雅典娜速记组编辑：陶子
-```
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-22.jpg)美日将联合储备军火应变 包括邻近台湾岛屿 网络图片
+据台湾中央广播电视1月16日报道，﻿在本月7日举行的美日外交部长和国防部长2加2会谈中，双方讨论了共用设施的问题，包括在日本各地的防御设施储备军火，包括邻近台湾的岛屿，以及共用跑道，以应对可能的突发事件。本次会谈是美日继2021年3月之后，再度举办2加2会谈，也是岸田文雄接任首相后的第一次。
+
+会谈中提到的西南诸岛从九州最南端一直延伸到台湾北方，其中最西端距离台湾东岸仅有108公里。一旦美日完成相关工作，即可在台湾附近迅速部署和补充军火。日本方面也在强化火力。
+
+中共对台湾的侵略计划和在南中国海的扩张，给美日以及周边邻国带来了极度的不安全，迫使美日不得不联合起来尽可能做好一切准备，
+
+为了预防中共可能突然采取的军事行动。
+
+新闻参考链接：[https://cn.rti.org.tw/news/view/id/2122288](https://cn.rti.org.tw/news/view/id/2122288)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/大卫汇报币安诉讼进展（一）-.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-彭帅这个事情，彭帅是一定要被消失的，你一定会什么精神病啦自杀啦，出车祸啦是吧？跳墙死，躲猫猫死，一定要被死。然后张高丽就消无声息哪一天，当党需要的时候也会让他消失。就这结局。
-
-好，我简单回应一下，刚才七哥提到的我们这个用法律的武器来杆卫咱们所有的新中国联邦战友的这个提议，其实就是咱们以前咱们一直爆料革命里倡导的以法灭共，这就是具体的行动。
-
-我稍稍给七哥，也在我给战友们简单汇报一下币安的那个lawsuit,我们的一个基本进程。我们已经给所有登记现在是100多人，我们给大家发出了律师准备的这2个文件，已经发到你们，就是给你们回过来这个邮箱里了，就咱们用行动说话，可以给咱七哥和咱报备的这个会议记录和跟律师谈的记录。
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

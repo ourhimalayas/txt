@@ -18,122 +18,122 @@
 ### [卢比奥议员带领共和党同事提出了《2022年COVID法案》](/content/gnews/1/README.md)
  ` 美国政要直译推`
 
-### [小斯基点评VICE采访事件(二)](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法国人走上街头，反抗中共病毒疫苗](/content/gnews/3/README.md)
+### [美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [网球名将未接种疫苗被取消签证 无法如期参赛](/content/gnews/4/README.md)
+### [小斯基点评VICE采访事件(二)](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第176期](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
+### [法国人走上街头，反抗中共病毒疫苗](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
 
-### [小斯基点评VICE采访事件(一)](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大卫汇报币安诉讼进展(二)](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [认清共产中国制度的虚假和邪恶](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/9/README.md)
- ` 丁过`
-
-### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [文贵先生大直播有感](/content/gnews/11/README.md)
- ` 纽约香草山MOS03`
-
-### [辉瑞CEO声称疫苗不起作用，他会被推特封号吗？](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [上海正式公布在静安寺附近发生确诊奥米克戎感染病例](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [美日将联合储备军火应变 包括邻近台湾岛屿](/content/gnews/14/README.md)
+### [欧洲监管机构说，重复注射新冠病毒疫苗加强针可能会削弱免疫系统](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/15/README.md)
+### [网球名将未接种疫苗被取消签证 无法如期参赛](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [雅典娜时报-第176期](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [小斯基点评VICE采访事件(一)](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大卫汇报币安诉讼进展(二)](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [认清共产中国制度的虚假和邪恶](/content/gnews/11/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/12/README.md)
+ ` 丁过`
+
+### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/16/README.md)
+### [文贵先生大直播有感](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [辉瑞CEO声称疫苗不起作用，他会被推特封号吗？](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海正式公布在静安寺附近发生确诊奥米克戎感染病例](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [美日将联合储备军火应变 包括邻近台湾岛屿](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [大卫汇报币安诉讼进展(一)](/content/gnews/17/README.md)
+### [大卫汇报币安诉讼进展(一)](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么接种辉瑞新冠疫苗的弊大于利（五）](/content/gnews/18/README.md)
+### [为什么接种辉瑞新冠疫苗的弊大于利（五）](/content/gnews/21/README.md)
  ` 喜国公民`
 
-### [东京10岁以下感染病例迅速增加，引发学校集团感染的担忧](/content/gnews/19/README.md)
+### [宋词新作：贺圣朝·七维国防布全球——新中国联邦雄起世界](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [东京10岁以下感染病例迅速增加，引发学校集团感染的担忧](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文雍漫谈：中共才是不折不扣的邪教组织](/content/gnews/20/README.md)
+### [文雍漫谈：中共才是不折不扣的邪教组织](/content/gnews/24/README.md)
  ` 文雍`
 
-### [七哥谈彭帅视频事件(三)](/content/gnews/21/README.md)
+### [七哥谈彭帅视频事件(三)](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗强制令期间的一顿午餐](/content/gnews/22/README.md)
+### [疫苗强制令期间的一顿午餐](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥爆彭帅真实内幕(二)](/content/gnews/23/README.md)
+### [七哥爆彭帅真实内幕(二)](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥爆彭帅真实内幕(一)](/content/gnews/24/README.md)
+### [七哥爆彭帅真实内幕(一)](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/25/README.md)
+### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/26/README.md)
+### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥爆彭帅真实内幕（三）](/content/gnews/27/README.md)
+### [七哥爆彭帅真实内幕（三）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/28/README.md)
+### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [七哥谈彭帅视频时间（二）](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/30/README.md)
+### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/31/README.md)
+### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/32/README.md)
+### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线: 又一上市公司受恒大牵连巨亏18亿](/content/gnews/33/README.md)
+### [秘翻在线: 又一上市公司受恒大牵连巨亏18亿](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京发现一宗OMICRON病毒阳性个案，当局启动应急响应](/content/gnews/34/README.md)
+### [北京发现一宗OMICRON病毒阳性个案，当局启动应急响应](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/35/README.md)
+### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/38/README.md)
  ` YALUN 亚伦`
 
-### [扬帆每日速递 2022年1月16日版（1）](/content/gnews/36/README.md)
+### [扬帆每日速递 2022年1月16日版（1）](/content/gnews/39/README.md)
  ` 温哥华扬帆农场`
 
-### [香草山翻译部周刊|2022年1月16日第31期](/content/gnews/37/README.md)
+### [香草山翻译部周刊|2022年1月16日第31期](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
-
-### [亚利桑那州长候选人称她若当选会把福奇关起来](/content/gnews/38/README.md)
- ` 华盛顿DC-Russian`
-
-### [GTV新闻访谈简报|2022年1月16日早](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
-
-### [2021 年通胀达到 40 年来最高，美国12 月物价同比上涨 7%](/content/gnews/40/README.md)
- ` GTV新闻访谈`
 
 ### [共产党“零容忍反腐”](/content/gnews/41/README.md)
  ` 骄子`

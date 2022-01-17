@@ -2,36 +2,49 @@
 ---
 
 
-## 大卫汇报币安诉讼进展(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869291/)
+## 网球名将未接种疫苗被取消签证 无法如期参赛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869361/)
 
-```
-整理：雅典娜速记组
-编辑：陶子
-```
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/大卫汇报币安诉讼进展（二）-.jpeg)
+作者：银河系农场—骄子
 
 
 
-```
-大卫汇报币安诉讼进展(二)
-```
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-那么我们现在在在要什么呢?要的是典型案例啊，因为这个从币安的这 个性质来要的典型案例典型案例呢，这些战友，你签完这个文件，我们才能合理合法拿你的这个个人信息，所以咱们都是想到位了，然后再给你回复。 你签好了，我们才去往下谈。
 
-所以这是简单汇报，因为有些保密，我就仅仅在这里简单给大家回应一下。 就是这一次行动，我觉得又是一次非常好的机会，咱们全球各农场利用本国的法律，那么我在这个英国这边，我们现在也有准备比较充分的商业律师，法律施行律师本来准备大年三十诉讼，七哥咱都有充分准备了，所以呢，我是想说什么，兄弟姐妹，咱别怕，咱们新中国联邦战友不是共产党吓死的，咱们要战死，咱也不是吓死，也不是你吓大的。所以在这个世上面前这样我们绝不退缩。另外，我们会也希望这个欧洲其他的这个各个国家的战友来跟我们取得联系。来我英喜也行，你去哪个农场都可以，有联盟 委员会统一定的标准，勇敢的站出来就是一句话，咱们跟随爆料革命跟随七哥跟共产党干到底。
+1月16日，国外媒体报道，备受关注的网球名将诺瓦克·德约科维奇的签证问题有了新的进展。他因未接种中共病毒疫苗被再次取消签证，将没有机会参加即将举行的澳大利亚网球公开赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-7.jpg)
+据悉，澳网公开赛主办方要求提供中共病毒疫苗接种证明或者疫苗豁免证明，而诺瓦克反对强制接种中共病毒疫苗。在此次比赛之前，他已经获得了疫苗豁免证，原因是他在过去的六个月之内曾经感染过中共病毒并痊愈。但澳大利亚的一名边境官认为他没有资格豁免，并取消了他的签证。之后他的律师提出质疑，但1月16日，澳大利亚联邦法官再次宣布了同样的判决。
 
-*发布：陶子*
+诺瓦克的母亲在接受采访时说，诺瓦克本人对健康非常看重，而接种中共病毒疫苗完全应该是个人选择而不应该被强制，况且有些人在接种了疫苗之后，健康仍然出现了问题而无法参加比赛。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考信息：
+1.[Novak Djokovic leaves Australia, ‘disappointed’ after court dismisses deportation appeal](https://www.espn.com/tennis/story/_/id/33076998/novak-djokovic-loses-deportation-appeal-australia?platform=amp)
+2. [德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。](https://gettr.com/post/po0n64ea24)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

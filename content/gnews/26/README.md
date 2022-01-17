@@ -2,116 +2,69 @@
 ---
 
 
-## 一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1869100/)
+## 疫苗强制令期间的一顿午餐
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869158/)
 
-[https://gtv.org/video/id=61e1481987664c47acd48046](https://gtv.org/video/id=61e1481987664c47acd48046)
+**作者/编辑：Candy**
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/餐厅.png)图片来源：中华时报
 
-有一些流氓国家的强制政策
-There are some rogue states enforced policies
 
-你去看有一个国家是正常的吗?
-Have you seen any one of them is normal?
+自从2019年年底中共病毒大流行以来，作为美国民主党大本营的加州，一直表现得非常激进，无论对哪个行业都是毫不犹豫地严加管理。
 
-这个（国家）领导人
-What’s up with the leaders of this country?
+对房屋出租行业，联邦政府提出了强制保护租户的规定后，从州政府，再到郡县政府，同样出台了对房屋租赁者的禁止驱逐令，而且禁令到期之后延期，再延期；它在保护了租户的同时，使很多本该驱逐的房客有了继续赖下去的依据，房东与房客颠倒位置，无数房东遭受前所未有的经济损失，社会治安动荡，甚至出现人身伤害事件。
 
-所有这些国家通过强制疫苗，把它定为什么没打疫苗的人是怎么着怎么着
-All these countries through mandatory vaccines to identify those unvaccinated people and criticize them as whatever something
+对中小私人企业出台了疫苗强制令，员工要上班就必须打疫苗；对餐饮业，从2020年最初一刀切地关闭所有餐馆，到默许外卖，到逐渐在户外保持社交距离用餐；2021年春疫苗出现并推行之后，要求所有的就餐者必须出具疫苗卡，否则不许用餐……造成中小私人企业、加州经济发展的严重影响。
 
-我告诉你，你看它的背景，你看它的政府的体制
-Let me tell you that’s go to take a look at its background and its government system
+加州的冬季实际是雨季，因为大部分地区是温带海洋性气候，所以很少冰霜天气，至于下雪更是罕见。
 
-基本上国会和医疗机构和总统，基本上都是一个党派的
-Basically, all these congress, medical institutions, and the President are in the same party
+刚过圣诞节的一个雨天，我和我家先生，因外出需要在外面吃午饭。很快在网上找到一家评价很高的四川餐厅，便冒雨开车到了那里。我先生先走进餐厅，老板娘提出要出示疫苗卡。我因为停车，晚一步进到了餐厅。当我看到诺大的餐厅只有一桌的两位客人时，开始怀疑这么高的评价是否属实。一听到还要出示疫苗卡，我不加思索地扭头走出了那扇门。
 
-而且非常大的偶然
-And very accidentally
+心想：什么脑子，客人都进了餐厅还留不住，怎么会有好生意。
 
-这些党派从来过去没有控制过什么上院下院上众议院
-these parties have never controlled any upper house, lower house, or upper House of Representatives in the past
+然后，继续开车去另一家非常有名的四川餐厅。谁知，网上显示正常营业，可一到那里，大门紧闭，没有开门。
 
-就这一次它（一个党派）就控制了
-Just this time, it was controlled by a single party
+我们继续走向一家韩国餐厅。一进门就看到一派生意兴隆的景象：客人虽然不是很多，但比第一家餐厅多多了，而且每张桌面都是刚用餐完毕的碗碟，服务员在收拾着，我俩站在门口等着领位。服务员走近我们，问的第一句话就是：“你们有疫苗卡吗？”
+我回问：“每个人都必须出示疫苗卡吗？”
+她答道：“是的。”
 
-而且这时候就说了算, 又立法、颁布行政规定都它说了算
-Moreover, this party makes final decisions in both legislation and promulgation of administrative regulations at this time
+我没有说什么，转头走出门，心里真不是滋味。我们已经花了近一个小时的时间，兴冲冲地到了喜欢的餐厅，却因没打疫苗不能就餐。什么世道，真是创世纪！
 
-让我们真的看到这个世界真的比我们想象还要吓人，还恐怖啊
-This has made us realize that the world is actually more horrified than we expected
+去年（2021年）我向在旧金山的餐馆吃过饭的朋友询问过，是否一定要出示疫苗卡，答案是肯定的。所以，我们根本不去旧金山市里吃饭。没想到，这个地方类似于旧金山的远郊区，至少有四、五十分钟的车程，竟然也有同样的要求！
 
-为什么都是这一帮政党
-Why is all this gang of political parties
+我们以前一般去盛产葡萄酒的酒乡Napa吃饭，就是加州的纽森州长在发出关闭餐馆的行政令之后，他和其他十几个人去著名的法国洗衣店餐厅吃饭，并很快引起轩然大波的那个城市。那里离旧金山约一个半小时的车程，但那里的餐厅没有要求过出示疫苗卡，我们只需带着口罩。这是各地方政府处理疫情的不同政策决定的。
 
-前所未有地统治一个国家的立法权，行政权、执行权之后, 他们有这样的流氓的决定
-after unprecedented ruling a country’s legislative power,and executive power have such a rogue decision
+无论如何，饭肯定是要吃的。既然这样就不要考虑什么风味了，我们决定去当地那家最受欢迎的华人自助餐厅。
 
-而且是所有的制药公司都不负责任, 都不敢说里边成分的时候
-and all the pharmaceutical companies are irresponsible and dare not to say the ingredients in it
+哇，一进门就看到了久违的场面：那么多的客人，大厅、小厅，哪里都是人，饭菜散发着暖暖的热气和扑鼻的香味……半熟脸的领位向我们打了个招呼，就把我们领到了餐桌旁，戴口罩是这家餐馆的要求。我在第二次取餐的时候，忘记了戴口罩，待我刚刚意识到这个问题的时候，我赶快拿出口罩戴上。那时，刚好一位餐厅的工作人员走过，他边指着自己的胳膊，边笑着说：不用紧张，因为我们都打了疫苗。
 
-而要让你强制打疫苗
-they make it mandatory for you to get vaccinated
+哎，我不知道说什么好，只朝他微笑了一下，但觉得很尴尬：
+我已经开始吃饭，能说我没打疫苗吗？
+我本来就不想打那个试验性的疫苗，需要给他解释吗？
+我还是直接说那些疫苗是生化武器，中共和世界暗黑势力勾结，用来赚钱、杀人的？
 
-最重要的是打完疫苗，现在确实是打疫苗（会）死人
-The most important thing is after vaccination and it’s now indeed that people would die from vaccinated
+因为是否打了疫苗，把一顿午餐给搅得五味杂全。关键是它把人们分成了泾渭分明的两大阵营：打了疫苗的、没打疫苗的。其实，在其它方面也会遇到一些实际问题：
 
-关键是打疫苗的人感染已经（从）一针管用
-The critical thing is that the infection for those vaccinated people from one jab will work
+好朋友的儿子不只是游泳健将，简直是游泳天才。他从几岁开始游泳，很快显示出了超强的优势。他和同年龄组的孩子比赛时，冠军是从不在话下的，所以家长也很努力地培养他。
 
-二针绝对管用
-two jabs definitely effective
+他在我们社区的游泳队练习了几年之后，加入到一个稍远些的著名游泳队。基本平时每天练习两个小时，有时早上五点多起床，有时在晚上练习；夏季假期期间练习的时间更长，比赛更多。但是小家伙非常喜欢，不但不怕辛苦，反而很享受。至今已经练习了四、五年，他也长成了小小少年。
 
-三针一定管你一辈子
-three jabs will definitely control you for the rest of your life
+有时看到他妈妈发在群里的信息，他取得的成绩都非常好，有时能进入全国同龄组的排名。我们为他感到骄傲，也经常鼓励他：希望他能成为美国的第二个迈克尔·菲尔普斯（Michael Phelps），去参加奥运会，因为菲尔普斯第一次参加奥运会时才十五岁。到那时，我们都去现场给他助威！
 
-现在要每年打，每月打
-Now you have to get the jab every year even every month
+按照游泳组委会的规定：参加比赛的游泳者必须打疫苗。对此，我朋友还在犹豫，没有最后决定是否参赛。如果不参加比赛，已经交过的近千美元的参赛费不但要泡汤，还要失去一次比赛的机会，检验儿子成绩的好机会，觉得非常可惜。
 
-改成打终生
-and it turns into lifetime jab
+好消息是：前几天，美国高院已经阻止了拜登政府对私人企业的疫苗强制令，希望游泳组委会能重新考虑参赛规定，让孩子们能像以前一样，不分是否打过疫苗，都能正常参加比赛。我们也希望去餐厅就餐的人，不分是否打过疫苗，都可以去他们喜欢的餐厅用餐。人们不要因是否打过疫苗而有所区分，大家都一样受到平等的对待。
 
-这种逻辑这不是胡扯了吗?
-Isn’t this kind of logic nonsense?
+在经历了这场病毒灾难，疫苗灾难才刚刚开始的特殊历史时期，我们过去认为那么平常、理所应当的事情，现在看来是何等珍贵，更像奢侈。所以，我们还有不短的路要走，很多的事情要做。最重要的是：只有铲除邪恶的中共，全力维护美国这盏象征着人类民主自由的灯塔，才能夺回我们做人的基本权力，找回我们的尊严，生活在安全的环境中。
 
-更可怕的事情
-more terrifying thing is that
+***发布：Candy***
 
-我们大家要意识到，我们感染人当中绝大多数80%、90%都是打了疫苗的人
-we all need to realize that the vast majority of 80% or 90% of our infected people are the people who have been vaccinated
-
-这还用说吗?
-Does this even need to be explained?
-
-这逻辑、常识、专业都在这摆着呢
-This logic, common sense, and professionalism are all on the table
-
-我们战友们如果再听不进去不就是疯了吗？
-Aren’t our comrades insane if we still not realize that?
-
-* * *
-
-Date: 01/08/2022
-原视频标题: 一党控制政府 疯狂强制疫苗 但恰恰是打过疫苗的容易感染
-这个世界疯了
-One-party control of the government aggressively enforce vaccine mandate, but it is precisely those who have been vaccinated that are susceptible to infection – the world is out of control
-原视频日期：2022/01/07
-原视频链接: [https://gettr.com/post/pn1esn26e1](https://gettr.com/post/pn1esn26e1)
-任务编号：3441
-视频时间段 : 0:00-01:44
-
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
