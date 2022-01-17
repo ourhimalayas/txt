@@ -2,24 +2,99 @@
 ---
 
 
-## 中共用病毒+疫苗绑架了世界，全球华人面临生存危机
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1870167/)
+## 辉瑞公司遭受到美国历史上最大的刑事罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870228/)
 
-著名的爆料革命发起人郭文贵先生近期的连续爆料，让越来越多的人明白，中共借新冠病毒向世界发动了生化超限战。生命威胁、经济崩塌、社交隔离、孤独、恐惧、贫困。因为病毒和疫苗引发的社会矛盾和动荡危机随处可见。世界民众内心的痛苦、不安和愤怒已接近爆发的临界点。越来越多的西方大众对罪魁祸首中共和中共国感到反感甚至厌恶，但更有可能的是，世界大众会把对中共的厌恶转嫁到中国人民甚至亚裔人民身上。从2020年初开始至今，世界各地发生的歧视华裔事件和言论已经变成常态。中共恶意投毒并操纵假疫苗的罪恶，最后一定会给全球的华裔家庭带来安全和生存的巨大危机。
+#### 翻译：Lish
+校对：枳实
+剪辑/字幕：蛮吉
 
-中共给华人带来巨大的的威胁，第一、中共从来都不希望海外华人安全、幸福，反而不断兴风作浪，反而蓄意挑起排华事件；第二、中共对排华悲剧冷眼旁观、甚至为暴徒开绿灯;  第三、输出共产主义残暴基因、导致全球排华毒瘤在蔓延; 第四、中共收买政要权贵、摧毁西方民主和普世价值、华人成为殉葬品；第五、中共大外宣彻底控制了西方主流媒体、虚假信息丑化华人形象；第六、中共毫无廉耻地偷盗西方技术、让海外华人蒙羞；第七、中共以一路一带为幌子、以新殖民者的野心控制世界；第八、中共恶意投毒、控制疫苗、掩盖真相、灭美称霸；第九、中共幻想家天下的世袭传承、扼杀了中国人的天赋民权。
+**字幕文本（英汉对照）**
 
-中共七十年来没有为海外华人做过一件好事，反而让华人甚至亚裔为中共一贯的流氓行为买单、受累、担责、甚至遭受排斥和侮辱。
+But the primary function of the drug companies is to make money for their investors. And we’ve got to get over the illusion that they’re somehow their purpose is to serve our health. That purpose is to make money.
 
-在此呼吁每一位海外华人，一定要正视中共病毒和疫苗灾难带给海外华人的巨大危机，不要再次被中共利用，成为中共要挟世界的筹码，更不要保持沉默被中共再次绑架，沦为中共和黑暗势力的挡箭牌，更不要陷入故土难舍的情感陷阱中，被动地成为中共征服世界的垫脚石。
+药物公司的主要功能是为其投资者赚钱。我们必须克服这样的幻想，以为他们的目标是为我们的健康服务。他们的目的是为了赚钱。
 
-#病毒疫苗 #华人危机 #生化战争 #爆料革命郭文贵 #蓝金黄 #印尼排华 #苏加诺屠华 #苏哈托排华 #苏哈托苏加诺 #唐家璇 #共产主义基因 #排华毒瘤 #孔子学院 #hbo采访郭文贵 #蛇和燕子 #一带一路 #新殖民主义 #知识产权偷窃
+We’ve talked before about Pfizer, and what was the one drug where they had the largest settlement ever with the largest penalty ever
 
-#内保外贷 #病毒超限战 #中共不等于中国 #取代美国 #中国不等于中共 #新疆种族灭绝 #香港事件 #习近平家天下 #小粉红  #海外华人生存危机
+我们以前谈到过辉瑞公司。他们有史以来最大的和解和最大的处罚的一种药物是什么？
 
-作者：华盛顿DC 海阔天空
+Pfizer,it was Bextra, an arthritis drug?
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+是辉瑞公司的Bextra，一种关节炎药物？
+
+And what did they do
+
+他们干了什么？
+
+So I can’t tell you I know. But I can’t tell you. I spent about 10 years a little more than 10 years in litigation as an expert in the national drug cases.
+
+我知道，但我不能告诉你。我花了大约10年多一点的时间，作为国家药品案件诉讼中的专家。
+
+And when I served as an as an expert, I got to see all the documents I did that for in the case of Pfizer, Pfizer’s behavior was, in my opinion, so outrageous, that I picked up the phone and call the Department of Justice, and said, I know a lot about this drug.
+
+当我作为专家服务于毒品案件诉讼时，我能够看到了所有的文件，我经历了辉瑞公司的案例时，我看了也看了所有的案卷资料，辉瑞公司的行为，在我看来，是如此的离谱，以至于我直接拿起电话，打电话给司法部说：“我对这种药物了解很多。”
+
+But I can’t tell you because I’ve signed a confidentiality agreement as an expert. So the Department of Justice in the FBI sent me a subpoena and said, You must come with your computer and tell us what they did wrong.
+
+但我不能告诉你，因为我已经签署了作为专家的保密协议。所以联邦调查局的司法部门给我发了一张传票，上面说：“你必须带着你的电脑来，告诉我们他们做错了什么。”
+
+And I did. Six months later, I read in the newspaper that the Department of Justice had found the company had committed a felony. And they were dealt the largest fine in US history, the largest criminal fine in US history. So I know what happened. But I can’t tell you,
+
+而我照做了。六个月后，我在报纸上看到，司法部发现该公司犯了刑事重罪。他们受到了美国历史上最大的罚款，这是美国历史上最大的刑事罚款。所以我知道发生了什么。但我无法告诉你。
+
+you can’t tell me because of the confidentiality
+
+你不能告诉我，因为保密性的问题
+
+Yeh
+
+是的
+
+Wow.
+
+哇！
+
+And it’s even more serious, because the drug companies own the data from those clinical trials, the peer reviewers, and the editors of the medical journals don’t get to see the data.
+
+而且更严重的是，因为药物公司拥有这些临床试验的数据的所有权，同行评审员和医学杂志的编辑们都没有机会看到这些数据。
+
+They have to take the word of the drug companies that they’ve presented the data accurately and reasonably completely, and you only get to see it in litigation. You know, five years later.
+
+他们必须接受药物公司的说法，相信他们已经准确和合理地完整地展示了数据，而你只有在诉讼中才能看到。你知道，通常要五年后…
+
+So the data is only held by the pharmaceutical companies, they release their analysis of the data.
+
+所以数据由制药公司独家持有，他们只公开他们自己的数据分析？
+
+Correct.
+
+正确
+
+And then the peer reviewers do everything based on the analysis of the data that was released by the pharmaceutical companies.
+
+然后同行评审员根据制药公司公开的数据分析来做评审？
+
+That’s correct.
+
+正是这样
+
+That’s insane.
+
+这真是疯了。
+
+That’s insane. And Doc’s don’t understand it. They don’t understand that they’re getting manipulated.
+
+这就是疯了。而医生们对此并不了解。他们不知道他们正在被操纵。
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

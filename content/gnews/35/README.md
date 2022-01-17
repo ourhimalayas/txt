@@ -2,36 +2,26 @@
 ---
 
 
-## 有声|加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870227/)
+## 彭佩奥：种族灭绝奥运会是对习近平的“奖励”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870266/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，加拿大国防部已对900多名未接种中共病毒疫苗的加拿大武装部队成员提起了诉讼。据悉，此前加拿大国防部参谋长要求，2020年10月前加国军人需全面接种中共病毒疫苗，现该日期被延后至12月中旬。
+#### 撰稿：彩虹
 
-目前，加拿大军人的中共病毒疫苗接种率为98.3%。截止12月底，已有超过830名武装部队成员因未接种疫苗而受到正式警告，另外100名未接种疫苗的军人受到了正式审查，有44名军人被迫选择离开军队，曾有军人在法庭质疑强制接种疫苗被驳回。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-15.jpg)图片来源：国家评论
+1月16日，《新闻极限》报道前国务卿迈克·彭佩奥（Mike Pompeo）接受WABC 770 am-N.Y. 的“凯胜圆桌会议”（ The Cats Roundtable）采访时说，（北京）种族灭绝奥运会是对习近平的奖励。
 
-原文链接：[加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼](https://gnews.org/zh-hans/1867560/)
+他说：“我们现在正在一个国家举行奥运会，这个国家目前正把100万或更多的人关在营地里，看起来有点像20世纪30年代德国发生的事情，他们强迫妇女绝育，把她们从家里带走。这就是我们要把运动员送到的地方，一个监控的国家，一个正在进行种族屠杀的国家。我曾说过这是‘种族灭绝奥运会’”。
 
-音频处理/发稿：Daxia
+蓬佩奥对允许中共国在2月份举办冬奥会感到遗憾，说这是对中共习近平的“奖励”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+他告诉主持人约翰‧卡西马蒂斯（John Catsimatidis）：这样的一个监控国家，会捕捉到我们每个运动员在那里的每一句话以及他们所做的一切，我祈祷这个监控国家不会带走一个美国人，并且在这些比赛结束后能够让他们全部回家”。
 
-**更多资讯，更多关注**
+蓬佩奥警告说，运动员们应该说出他们的想法，但“当他们在中国境内时，他们需要非常小心”。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[Pompeo Warns of China’s ‘Surveillance State’ at ‘Genocide Olympics’](https://www.newsmax.com/newsfront/winterolympics-mikepompeo-genocide-beijing/2022/01/16/id/1052632/)
 
  
 
