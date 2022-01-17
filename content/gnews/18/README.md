@@ -2,16 +2,10 @@
 ---
 
 
-## 疫苗大灾难
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871492/)
+## 1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1871536/)
 
-——文贵大直播20220117
-
-撰稿：大废墙（文非）/ MyWay / 莲心不染 / 坐看云起时（扬帆）
-
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-3.png)
-*发布：Theodosia*
+秘密翻译组-北美组
 
  
 

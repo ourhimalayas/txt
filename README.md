@@ -15,95 +15,95 @@
 
 ---
 
-### [疫苗将导致严重的神经系统性伤害](/content/gnews/1/README.md)
+### [美国应允许疫苗之外的中共病毒治疗方案](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [美国加州治安恶化亚马逊包裹频遭洗劫](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [太平联盟诉郭文贵—中共法律超限战](/content/gnews/2/README.md)
+### [疫苗将导致严重的神经系统性伤害](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [太平联盟诉郭文贵—中共法律超限战](/content/gnews/4/README.md)
  ` MilesGuoLivePPT`
 
-### [爆料革命—历史的今天12月03日](/content/gnews/3/README.md)
+### [爆料革命—历史的今天12月03日](/content/gnews/5/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2022/01/17 英喜时事速递](/content/gnews/4/README.md)
+### [2022/01/17 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲政府因疫苗护照戏耍网球冠军](/content/gnews/5/README.md)
+### [澳洲政府因疫苗护照戏耍网球冠军](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [01/17/22 香港快讯 2019年以利器刺警员颈部男子被重判7年9个月](/content/gnews/6/README.md)
+### [01/17/22 香港快讯 2019年以利器刺警员颈部男子被重判7年9个月](/content/gnews/8/README.md)
  ` 英喜-粵語組`
 
-### [春节之后，粮食物资储备领域会有一大帮人人头落地](/content/gnews/7/README.md)
+### [春节之后，粮食物资储备领域会有一大帮人人头落地](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [MIT科学家警告 中共病毒疫苗可致长期副作用](/content/gnews/8/README.md)
+### [MIT科学家警告 中共病毒疫苗可致长期副作用](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [【#G时新闻】美国最高法院阻止了对企业的中共病毒疫苗强制令](/content/gnews/9/README.md)
+### [【#G时新闻】美国最高法院阻止了对企业的中共病毒疫苗强制令](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [科顿参议员呼吁美国全面抵制中共冬奥会](/content/gnews/10/README.md)
+### [科顿参议员呼吁美国全面抵制中共冬奥会](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [从气候到人权 北京冬奥会举办权遭质疑](/content/gnews/11/README.md)
+### [从气候到人权 北京冬奥会举办权遭质疑](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [中印边境紧张局势仍在持续](/content/gnews/12/README.md)
+### [中印边境紧张局势仍在持续](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦在美最高法院的判决中举足轻重](/content/gnews/13/README.md)
+### [新中国联邦在美最高法院的判决中举足轻重](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [移民部长称德约科维奇是对澳洲政府的威胁](/content/gnews/14/README.md)
+### [移民部长称德约科维奇是对澳洲政府的威胁](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年1月16日郭文贵先生盖特概要与评论](/content/gnews/15/README.md)
+### [2022年1月16日郭文贵先生盖特概要与评论](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中](/content/gnews/16/README.md)
+### [1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线：百万富翁福奇是如何从中共病毒（COVID-19)中获利的](/content/gnews/17/README.md)
+### [秘翻在线：百万富翁福奇是如何从中共病毒（COVID-19)中获利的](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗大灾难](/content/gnews/18/README.md)
+### [疫苗大灾难](/content/gnews/20/README.md)
  ` MilesGuoLivePPT`
 
-### [北京卫健委封锁 “解药” ，称新病毒有超强免疫逃逸能力](/content/gnews/19/README.md)
+### [北京卫健委封锁 “解药” ，称新病毒有超强免疫逃逸能力](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：习近平出席2022年世界经济论坛视频会议并发表演讲](/content/gnews/20/README.md)
+### [DC大中华时事：习近平出席2022年世界经济论坛视频会议并发表演讲](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/21/README.md)
+### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [奥米克戎传播速度居冠 五周成为纽约主要病毒](/content/gnews/22/README.md)
+### [奥米克戎传播速度居冠 五周成为纽约主要病毒](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：中共打稀土牌，以求留住苹果公司](/content/gnews/23/README.md)
+### [秘翻在线：中共打稀土牌，以求留住苹果公司](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国的中共病毒（COVID-19 ）总死亡人数超过 850,000，每天新增800,000 例病例](/content/gnews/24/README.md)
+### [美国的中共病毒（COVID-19 ）总死亡人数超过 850,000，每天新增800,000 例病例](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本气象厅发布海啸警告 指示23万人撤离](/content/gnews/25/README.md)
+### [日本气象厅发布海啸警告 指示23万人撤离](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [【中日财经爆】中共国出生率创新低 老龄化速度超预期](/content/gnews/26/README.md)
+### [【中日财经爆】中共国出生率创新低 老龄化速度超预期](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首](/content/gnews/27/README.md)
+### [Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【中日财经爆】中共国房地产一瞥：虹桥之殇](/content/gnews/28/README.md)
+### [【中日财经爆】中共国房地产一瞥：虹桥之殇](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [01/17每日播报｜冬季风暴席卷东南部 数千个美国航班被取消](/content/gnews/29/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [班农先生经典发言](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/31/README.md)
  ` 日本东京方舟农场`

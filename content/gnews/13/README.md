@@ -2,27 +2,38 @@
 ---
 
 
-## 新中国联邦在美最高法院的判决中举足轻重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871571/)
+## 从气候到人权 北京冬奥会举办权遭质疑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871577/)
 
-采编/编译撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-5.jpg)
-据《CNBC》1月13 日报道，美国最高法院当天最终否决了拜登政府对大中型企业所执行的疫苗强制接种规定，该裁决涉及到近1亿美国人，全国众多商业企业因此获益。
+作者：纽约香草山农场 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15日，《每日邮报》撰文质疑北京获得冬奥会举办权的合理性，称其从气候、环境到人权，都不能胜任奥运会的东道主。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.10.png)
+报道指出，北京冬奥会比赛场所不但极度缺乏降雪，而且周边环境恶略。中共无视北京和张北冬奥场地周边地带经常性缺水问题，为制造人造雪，使用4900万加仑的水，300支雪枪，创冬奥历史之最。
 
-报道称，自总统拜登强推“新冠病毒”疫苗强制接种政策以来，一直面临着大量反对诉讼。目前，共有27个州的共和党总检察长或州长、宗教团体和全国零售联合会、美国卡车运输协会等全国性行业组织及企业参与了对该行政命令的法律诉讼。
+郭文贵先生在盖特中转载该报道，并在盖特视频中揭露，中共不惜以污染环境为代价，释放一百万枚造雪弹，制造降雪。中共的造假达到了世人无法想象的程度。
 
-对此，文贵先生在1月14日GTV直播节目中指出，美国最高法院的以上裁决意义重大，
+美英两国因中共人权和中共病毒问题，联合抵制北京冬奥会。随后，越来越多的国家，包含澳大利亚、新西兰、加拿大、立陶宛、丹麦和荷兰等国家，也加入到外交抵制北京冬奥会的行列。
 
-并因此真正开启了在全球范围内针对中共病毒及其疫苗真相的重新调查，以及停止疫苗接种和废除疫苗护照等运动的先河，而新中国联邦在其中起到了主导和决定性的作用。
+分析人士称，中共想借”体育盛事“洗刷其人权劣迹，并转移世界对中共践踏人权、针对独立公民社会、抹杀新闻自由和扩大高科技监控的注意力。
 
-校对编辑：硫酸羟氯喹64
+参考链接：
+1）[https://gettr.com/post/pon0rsf2e3](https://gettr.com/post/pon0rsf2e3)
+2）[https://gettr.com/post/poq3pp3914](https://gettr.com/post/poq3pp3914)
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-[原文链接](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[新闻连接](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
