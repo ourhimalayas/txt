@@ -2,36 +2,35 @@
 ---
 
 
-## 法国阻止诺瓦克·德约科维奇（Novak Djokovic）参加五月法网公开赛
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1872769/)
+## 瑞士信贷董事长因涉嫌违反新冠防疫规定辞职
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1872848/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03AB729E-0629-480E-BE17-5450B37F0E69.jpeg)图片来源：网络
-来自NATIONAL POST 一月十八日星期一的新闻报道：
+**撰稿：日本东京方舟农场  葛大饼**
 
-法国议会周日批准的疫苗通行证将要求人们持有疫苗接种证书才能进入体育场馆等公共场所。
+据《Euro News》1月17日报道，瑞士信贷银行董事长安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在一次内部调查后已经辞职，据称调查发现他违反了对抗新冠（中共病毒）大流行病的检疫规则。
 
-根据法国议会周日批准的一项法律，法网参赛者将被要求接种疫苗，这引发了人们对世界排名第一的诺瓦克·德约科维奇参加大满贯赛事的质疑。
+据瑞士媒体报道，安东尼奥·奥索里奥（Antonio Horta-Osório）违反了检疫规定，包括12月前往英国，以及在夏天参加温布尔登网球赛的旅行，在奧米克戎变种病毒出现后，他乘坐私人飞机从英国返回，没有遵守瑞士对来自一些国家的旅行者实施的检疫规则。
 
-德约科维奇在周末澳大利亚网球公开赛开始前被驱逐出澳大利亚，原因是他没有接种疫苗，而且政府机构不愿接受这位塞尔维亚人因赛事获得的医疗豁免。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-254.jpg)图片来自FT中文网
 
-法国体育部周一表示，法国新的疫苗法不会豁免。 法律规定必须有疫苗接种证明才能进入公共场所，如体育场馆、餐馆、咖啡馆、电影院和一些公共交通工具。
+安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在银行的一份声明中说：”我很遗憾，我的一些个人行为导致了银行的困难，损害了我在内部和外部代表银行的能力， 我的辞职符合银行及其利益相关者的利益。”
 
-“规则很简单”，该部表示，“一旦法律颁布，疫苗通行证将应用在已经实施健康通行证的场所”。
+据悉安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在2021年4月底开始担任瑞士信贷董事长。这是这家顶级瑞士银行的最新动荡，该银行最近面临一系列麻烦，包括对冲基金的不良赌注和内部间谍丑闻，此前瑞士信贷因英国银行Greensill的破产和美国基金Archegos的倒闭也曾受到影响。
 
-**点评：**
+瑞士信贷称，阿克塞尔`·莱曼（Axel Lehmann） 将接替安东尼奥-奥索里奥（Antonio Horta-Osório）。
 
-**谁说体育不应涉及政治? 当全世界呼吁抵制“大屠杀北京冬奥会”时，中共是怎么说的？此次德约科维奇事件我认为是一件好事，虽然他遭受很多，但值得。它让全世界看到，这就是一纯粹政治事件和较量。虽然现在正义的力量暂时受挫，但邪恶势力的政府也暴露了他们的无知、无能、无耻。一切都是天意，期待着未来的一幕幕大戏！**
+*参考链接：*
 
-原文链接：
+[Antonio Horta-Osorio: Credit Suisse chairman resigns after allegedly breaching COVID restrictions](https://www.euronews.com/2022/01/17/antonio-horta-osorio-credit-suisse-chairman-resigns-after-allegedly-breaching-covid-restri)
 
-[https://nationalpost.com/news/world/france-bars-novak-djokovic-from-french-open-in-may](https://nationalpost.com/news/world/france-bars-novak-djokovic-from-french-open-in-may)
+* * *
 
-发布：歪桑
+*素材采编：葛大饼*
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2150925F-C440-455E-A2B3-AEC0D3D4A055.jpeg)
+*编辑：文顺*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

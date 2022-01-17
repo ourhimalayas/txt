@@ -2,34 +2,35 @@
 ---
 
 
-## 瑞士信贷董事长因涉嫌违反新冠防疫规定辞职
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1872848/)
+## 戏剧性的疫苗第四针：以色列政要接连感染
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1872935/)
 
-**撰稿：日本东京方舟农场  葛大饼**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《Euro News》1月17日报道，瑞士信贷银行董事长安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在一次内部调查后已经辞职，据称调查发现他违反了对抗新冠（中共病毒）大流行病的检疫规则。
+整理报道：Little Lamp
+编辑：守望黎明
 
-据瑞士媒体报道，安东尼奥·奥索里奥（Antonio Horta-Osório）违反了检疫规定，包括12月前往英国，以及在夏天参加温布尔登网球赛的旅行，在奧米克戎变种病毒出现后，他乘坐私人飞机从英国返回，没有遵守瑞士对来自一些国家的旅行者实施的检疫规则。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/7aaceebe16b0129a.jpg)图片来源：Reuter
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-254.jpg)图片来自FT中文网
 
-安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在银行的一份声明中说：”我很遗憾，我的一些个人行为导致了银行的困难，损害了我在内部和外部代表银行的能力， 我的辞职符合银行及其利益相关者的利益。”
+新冠病毒奥密克戎变种正以迅雷不及掩耳之势席卷全球，各国政府纷纷规定接种第三针。而“疫苗先驱”以色列再次领先一步，已率先接种了第四针。以色列使用的疫苗以辉瑞产品为主，于去年12月底开始启动第四剂接种，到今年1月刚刚开放了60岁以上人群的注射。
 
-据悉安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在2021年4月底开始担任瑞士信贷董事长。这是这家顶级瑞士银行的最新动荡，该银行最近面临一系列麻烦，包括对冲基金的不良赌注和内部间谍丑闻，此前瑞士信贷因英国银行Greensill的破产和美国基金Archegos的倒闭也曾受到影响。
+但富有戏剧性的是，65岁的以色列财政部长李伯曼（Avigdor Lieberman），在1月10日才刚刚在推特上秀过自己接种的照片，1月15日就宣布感染了新冠。
 
-瑞士信贷称，阿克塞尔`·莱曼（Axel Lehmann） 将接替安东尼奥-奥索里奥（Antonio Horta-Osório）。
+除了财政部长李伯曼，以色列外交部长拉皮德（Yair Lapid）也在10日宣布确诊。
 
-*参考链接：*
+陆续传出以色列政被感染的消息，为疫苗免疫的有效性进行了最有戏剧性的诠释。
 
-[Antonio Horta-Osorio: Credit Suisse chairman resigns after allegedly breaching COVID restrictions](https://www.euronews.com/2022/01/17/antonio-horta-osorio-credit-suisse-chairman-resigns-after-allegedly-breaching-covid-restri)
+但愿每个人都能平安度过的2022年。
 
-* * *
+发布：tianzhihuan
 
-*素材采编：葛大饼*
-
-*编辑：文顺*
-
-*发布：Ranting*
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
