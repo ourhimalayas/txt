@@ -15,119 +15,119 @@
 
 ---
 
-### [文贵•天成系列——郭文贵先生谈中概股（一）](/content/gnews/1/README.md)
+### [秘翻在线：日本首现奥密克戎感染者死亡病例](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [扬帆每日速递 2022年1月16日版（2）](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
+
+### [国内疫情反复之际，张文宏再提免疫屏障忽悠打疫苗](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [奥地利新冠疫苗强制接种政策激起大批民众上街抗议](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵•天成系列——郭文贵先生谈中概股（一）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [喜币，新中国联邦的金融系统](/content/gnews/2/README.md)
+### [喜币，新中国联邦的金融系统](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的特洛伊木马](/content/gnews/3/README.md)
+### [中共的特洛伊木马](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [郭文贵先生2022年1月16日盖特视频（9分46秒）全文字版](/content/gnews/4/README.md)
+### [郭文贵先生2022年1月16日盖特视频（9分46秒）全文字版](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [现在的状况比我想象好太多了](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [空的货运列车从朝鲜抵达中国 中朝贸易再开](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本冲绳新增中共病毒数创历史新高 病床使用率超50%警戒线](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共冬奥会或有变数](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [新疆、西藏一定要独立](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [摇滚排行榜在政治上体现实力](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习近平呼吁加强监管，防范数字经济的“不健康”发展](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [针对华人？纽约华裔女子被推落铁轨遭碾压惨死](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [补习班步入白菜价时代](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [串珠532:驻美大使秦刚战魔外交羞辱美国等同宣战](/content/gnews/16/README.md)
- ` 郭爆料串珠`
-
-### [韩国对传播风险低场所不适用防疫通行证](/content/gnews/17/README.md)
+### [“大老虎”](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [弗州新任州长取消疫苗强制令并承诺还权于民](/content/gnews/18/README.md)
+### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [现在的状况比我想象好太多了](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [空的货运列车从朝鲜抵达中国 中朝贸易再开](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本冲绳新增中共病毒数创历史新高 病床使用率超50%警戒线](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共冬奥会或有变数](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [新疆、西藏一定要独立](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [摇滚排行榜在政治上体现实力](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平呼吁加强监管，防范数字经济的“不健康”发展](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数据讽刺：奥密克戎病毒喜欢疫苗接种率高的州](/content/gnews/19/README.md)
+### [针对华人？纽约华裔女子被推落铁轨遭碾压惨死](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜马拉雅币一周分析与总结（1月10日-1月16日）](/content/gnews/20/README.md)
- ` GTV新闻访谈`
+### [补习班步入白菜价时代](/content/gnews/20/README.md)
+ ` 波士顿五月花农场`
 
-### [北京冬奥会在即 新型病毒来袭](/content/gnews/21/README.md)
- ` GTV新闻访谈`
+### [串珠532:驻美大使秦刚战魔外交羞辱美国等同宣战](/content/gnews/21/README.md)
+ ` 郭爆料串珠`
 
-### [卢比奥议员带领共和党同事提出了《2022年COVID法案》](/content/gnews/22/README.md)
- ` 美国政要直译推`
+### [韩国对传播风险低场所不适用防疫通行证](/content/gnews/22/README.md)
+ ` 首尔天池农场`
 
-### [美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/23/README.md)
- ` GTV新闻访谈`
+### [弗州新任州长取消疫苗强制令并承诺还权于民](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [小斯基点评VICE采访事件(二)](/content/gnews/24/README.md)
+### [数据讽刺：奥密克戎病毒喜欢疫苗接种率高的州](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2022年1月16日晚](/content/gnews/25/README.md)
+### [喜马拉雅币一周分析与总结（1月10日-1月16日）](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [北京冬奥会在即 新型病毒来袭](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2022年1月16日晚](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/26/README.md)
+### [美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [正道主义和平民主义有感](/content/gnews/27/README.md)
+### [正道主义和平民主义有感](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法国人走上街头，反抗中共病毒疫苗](/content/gnews/28/README.md)
+### [法国人走上街头，反抗中共病毒疫苗](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [欧洲监管机构说，重复注射新冠病毒疫苗加强针可能会削弱免疫系统](/content/gnews/29/README.md)
+### [欧洲监管机构说，重复注射新冠病毒疫苗加强针可能会削弱免疫系统](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [网球名将未接种疫苗被取消签证 无法如期参赛](/content/gnews/30/README.md)
+### [网球名将未接种疫苗被取消签证 无法如期参赛](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第176期](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/32/README.md)
+### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/34/README.md)
  ` 丁过`
 
-### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/33/README.md)
+### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [文贵先生大直播有感](/content/gnews/34/README.md)
- ` 纽约香草山MOS03`
-
-### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/35/README.md)
+### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/36/README.md)
+### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [宋词新作：贺圣朝·七维国防布全球——新中国联邦雄起世界](/content/gnews/37/README.md)
+### [宋词新作：贺圣朝·七维国防布全球——新中国联邦雄起世界](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [疫苗强制令期间的一顿午餐](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/39/README.md)
  ` MOSREC`

@@ -2,50 +2,20 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月10日-1月16日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869508/)
+## 补习班步入白菜价时代
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1869669/)
 
-作者：纽约香草山金融部 – ILOVE战神
+素材：波士顿五月花 文道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ZB_0116_CJ_doc7j8fcjrurv715an91g8_14210136_liyang.jpg)From 联合早报
+2021年最后一天，北京和上海两地同时发布校外培训收费指导价标准，将线上课程收费标准定为每人20元（人民币，下同，4.2新元）每课时（30分钟），上浮不超过10％
 
+一节半小时的线上补习课，学费只要4新元；一堂45分钟的线下小班课，每人只收16新元。远低于市价的官方指导价，这是中国“双减”政策出台近半年后，当局为教培行业套上的又一重紧箍咒。推行“白菜价”，能把失控的教培行业拉回正轨吗？还是会导致更多机构关门停业，进一步加重家长和学生的压力？
 
+原文链接：[中国特稿：补习班步入白菜价时代](https://www.zaobao.com/news/china/story20220116-1233403)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+* * *
 
-
-
-过去一周喜马拉雅币价格从37美元左右上涨至42美元左右，最高价格约42.7美元，平均日交易量约8万喜币。喜币上市以来总交易量约2550万枚 ，占今年总发行量的仅约2.55%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-2.jpg)
-美联储主席鲍威尔本周二表示，私人稳定币可以和数字美元并存。这为喜币、喜美元进入美国市场打开了最重要的一扇大门。据本周郭文贵先生在直播中透露，喜联储正在申请几十个国家的执照，其系统的设计、系统的合法性，在全球的法律安全性以及其稳定币储备金系统是任何其它数字货币所不具备的，未来将成为世界数字货币的规则制定者。
-
-郭先生还表示，未来在美国没有被认可的数字货币将很难生存。喜联储正在申请美国各州的不同牌照。喜支付上线后，喜币和喜美元将在美国联邦政府、州政府管辖范围内逐步合法化，并最终与美国政府和美元形成亲密的婚姻关系。
-
-喜交所官方博客最近也发文表示，2022年更多金融监管者将发放加密货币交易所牌照，只有获得牌照的交易所才能在市场中合法运行。喜交所已经为此做好充分准备，必将在这一轮监管竞赛中取胜。
-
-参考信息：
-[Himalaya Exchange: A Review of Crypto Regulations in 2021](https://blog.himalaya.exchange/himalaya-exchange-a-review-of-crypto-regulations-in-2021-d4a780c7be30)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*编辑 /发布： 吐纳*
 
  
 
