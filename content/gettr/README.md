@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 12:19 AM (UTC)`
+
+1/16/2022 Miles Guo’s GETTR: Snow will be artificially made for the Winter Olympics, the CCP's forgery ranks No. 1 in the world. The hatred and ignorance instilled in people by the CCP makes their decisions worse than what animals can do. People will inevitably pay the price for being in cahoots with the CCP, and the year 2022 is going to be the darkest year for humanity!<br/><br/>1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流；中共灌输给人们的仇恨与无知让他们做的决策比畜生还可怕；与中共为伍必将付出代价，2022年是人类最黑暗的一年！<br/>
+![img](https://media.gettr.com/group50/getter/2022/01/17/00/a79921d3-7e74-0962-c6a4-24b2424a56c5/out.jpg)
+
+---
+
 `@miles 1/16/2022 11:21 PM (UTC)`
 
 1/16/2022 Miles Guo’s GETTR: Brothers and sisters must be careful not to catch the CCP virus! Those who were forced to make confessions on TV in Zero Tolerance are the same people who invented the forced confession on TV! All forced confessions broadcast on TV are fake, and every detail was arranged by the CCP!<br/><br/>1/16/2022 文贵盖特：兄弟姐妹们千万要小心，不要染上病毒！在《零容忍》中电视认罪的人恰恰是发明电视认罪的人！所有的电视认罪都是假的，一切细节都是共产党安排的！
@@ -149,13 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/14/2022 Miles Guo: Xi Jinping is the only one in the world that no one dares to criticize! Criticisms of GETTR by the influencers such as Joe Rogan shows the value of GETTR. Although GETTR is far from perfect, it has made unprecedented and impressive achievements in the short period of time after its launch<br/><br/>1/14/2022 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值；盖特虽然尚不完美，但它在诞生后短短的时间内就取得令人瞩目的成就，已经是史无前例<br/>
 ![img](https://media.gettr.com/group33/getter/2022/01/15/07/20af1b40-e364-fcdb-a1c0-5d4d5e9a9771/out.jpg)
-
----
-
-`@miles 1/15/2022 7:21 AM (UTC)`
-
-1/14/2022 Miles Guo: The number of followers displayed on Joe Rogan’s GETTR profile page used to be the sum of his Twitter followers and GETTR followers, and the number of followers on these two platforms are now being shown separately on the web version of GETTR. The New Federal State of China has been flourishing in the criticisms of the others, and we must defend everyone's right to speak<br/><br/>1/14/2022 文贵直播：Joe Rogan之前在盖特显示的粉丝数是他推特和盖特粉丝数的总和，现已在网页版分开显示两个平台的粉丝数；新中国联邦在否定中成长，我们要捍卫每个人说话的权利<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/15/07/366150f7-5c6a-a493-1ea4-d0649997c50a/out.jpg)
 
 ---
 
