@@ -2,39 +2,34 @@
 ---
 
 
-## 中共内斗升级：习亲信陈一新放话力保二十大
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1871304/)
+## Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1871356/)
 
-#### 撰稿：日本东京方舟农场 北极
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/288794D4-54F1-4197-9617-0A7D76F58512.jpeg)中共二十大前内斗更激烈。图为一个士兵在天安门广场上站岗的身影。
-（图片来自大纪元）
-
-1月16日，一连两天的中共中央政法工作会议结束，中共党魁习近平的亲信、中央政法委秘书长陈一新放话力保中共二十大，凸显习近平连任仍然存在变数的风险。
-
-陈一新在会上声称，今年政法工作压倒一切的中心任务、政法战线的头等大事是“护航二十大”，并强调“稳字当头，把保安全、护稳定各项措施提升一级”。
-
-陈一新出生于1959年，具有“浙江系”官员的标签。习近平上台后，陈一新获重用。2018年3月，陈一新任中共中央政法委员会秘书长，被视为习近平安插在政法委的亲信。
-
-据网络时评人士分析，中共二十大的核心政治目标就是保习近平二十大连任。从陈一新喊话政法系统“全力护航”、“压倒一切”来看，习近平连任仍然存在变数。习近平是否能获得连任的风险性其实并不完全来自国际社会，更非来自民间社会，而是来自党内以江曾为主导的各类反习力量。
-
-习近平当局2020年在中共政法系统再度掀起反腐风暴，包括公安部前副部长孙力军等多名高官纷纷被查落马。官方指孙力军“政治野心极度膨胀”、“成伙作势控制要害部门”，又强调要彻底肃清孙力军的流毒。
-
-中共央视15日播出反腐片，孙力军的“政治团伙”还包括原上海公安局长龚道安、原重庆市公安局长邓恢林、原江苏省公安厅长王立科、原山西省公安厅长刘新云等。
-
-2022年首日，中共喉舌党刊《求是》发表习近平一篇讲话，称要严查“党内政治团伙”。中共中纪委网站本月12日发文点名孙力军、龚道安等政法系统“大老虎”，称要以雷霆之势清除害群之马。
-
-新中国联邦创始人郭文贵先生表示，中共当局拿下孙力军，是中共内部激烈斗争的表现之一，孙力军作为江泽民和王岐山的马仔，他的落马意味着中共内斗即将白热化，同时也意味着中共内斗大决战的开始。
-
-*参考链接：[内斗升级？ 习亲信陈一新放话力保二十大](https://www.epochtimes.com/gb/22/1/17/n13510125.htm)*
+1/16/2021 郭文贵先生的歌曲Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首
 
 * * *
 
-*素材采编：北极*
+[【PDF 下载】Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*编辑：青城道姑*
+* * *
 
-*发布：miumiu*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+
+
+[【PDF 下载】Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

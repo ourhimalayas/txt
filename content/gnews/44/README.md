@@ -2,26 +2,26 @@
 ---
 
 
-## 彭佩奥：种族灭绝奥运会是对习近平的“奖励”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870266/)
+## COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870357/)
 
-#### 撰稿：彩虹
+**撰文｜疫情关注组 / 发布时间｜17/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-15.jpg)图片来源：国家评论
-1月16日，《新闻极限》报道前国务卿迈克·彭佩奥（Mike Pompeo）接受WABC 770 am-N.Y. 的“凯胜圆桌会议”（ The Cats Roundtable）采访时说，（北京）种族灭绝奥运会是对习近平的奖励。
+法国国民议会周日（16日）批准多项政府提出的最新防疫措施，其中包括最令当地民众反感的疫苗通行证。
 
-他说：“我们现在正在一个国家举行奥运会，这个国家目前正把100万或更多的人关在营地里，看起来有点像20世纪30年代德国发生的事情，他们强迫妇女绝育，把她们从家里带走。这就是我们要把运动员送到的地方，一个监控的国家，一个正在进行种族屠杀的国家。我曾说过这是‘种族灭绝奥运会’”。
+国会以215票赞成，58票反对，通过以疫苗通行证取代健康通行证的法案，要求全国 16 岁及以上人士须持疫苗接种证明，方可进出当地的餐馆、电影院、博物馆、火车站等公共场所，仅新冠病毒康复者可豁免。
 
-蓬佩奥对允许中共国在2月份举办冬奥会感到遗憾，说这是对中共习近平的“奖励”。
+另外，法案还特别提高使用伪冒通行证的罚款，并允许身份审查以避免欺诈。巴黎和部分主要城市的民众集结，发起多场示威抗议，反对政府及国会推行该项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法國會通過疫苗通行證法案-禁止未接種者進出公共場所.jpg)
+就在该法案通过的前一日（15日），法国政府刚刚宣布推出新规定，成年人必须完成第三剂COVID-19 疫苗加强剂的注射才可获得有效的疫苗接种证明。
 
-他告诉主持人约翰‧卡西马蒂斯（John Catsimatidis）：这样的一个监控国家，会捕捉到我们每个运动员在那里的每一句话以及他们所做的一切，我祈祷这个监控国家不会带走一个美国人，并且在这些比赛结束后能够让他们全部回家”。
+法国总统马克龙（Emmanuel Macron）1月4日受访时曾表示，“但对于那些尚未接种疫苗的人，我真的想『惹恼』他们。所以我们（政府）会继续这样做直至结束。这是策略。”
 
-蓬佩奥警告说，运动员们应该说出他们的想法，但“当他们在中国境内时，他们需要非常小心”。
+“我不会（把未接种疫苗的人）送进监狱，我不会强制（要求）接种疫苗。所以我们需要告诉他们，从1月15日起，你（不打针的话）不能再去餐厅、咖啡店、戏院等公共场所了”。
 
-**新闻来源**
-
-[Pompeo Warns of China’s ‘Surveillance State’ at ‘Genocide Olympics’](https://www.newsmax.com/newsfront/winterolympics-mikepompeo-genocide-beijing/2022/01/16/id/1052632/)
+来源｜[Euronews](https://www.euronews.com/2022/01/15/france-requirement-for-triple-vaccination-covid-pass-begins) 、[Axios](https://www.axios.com/french-parliament-approves-covid-vaccine-pass-25d84133-d5af-4ddd-b8ce-ac2842c81f43.html)
 
  
 
