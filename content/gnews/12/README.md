@@ -2,24 +2,37 @@
 ---
 
 
-## Facebook因涉嫌剥削英国用户面临巨额诉讼
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871929/)
+## 有声|感染过新冠病毒的男子阴茎缩短了1.5英寸
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871985/)
 
-采编：风云小哥          编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-4.jpg)
-据美国媒体【布赖特巴特网】1月14日报道，[Facebook]公司因涉嫌长期剥削其英国用户而面临巨额诉讼。
+配音：香草山教育部 – 百香果
 
-报道称，这项集体诉讼是由专门研究竞争法的[格尔姆森]博士联合当地著名律师事务所共同发起，并代表4400万名英国用户向脸书提出32亿美元的巨额索赔。
 
-据悉，在该指控中提出，虽然用户是免费使用Facebook，但他们向该社交媒体平台提供的个人信息是有价值的，而Facebook却无偿获取了这些个人数据并将其任意贩卖获利。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+近日，一名曾经罹患新冠病毒的男子在康复后，发现自己的阴茎缩短了1.5英寸。此名男子三十多岁，异性恋，来自美国，曾在去年7月感染过新冠病毒，康复出院以后，留下了一系列奇怪的勃起功能障碍。
 
-此外，[Facebook]不仅严重违反竞争法通过互联网恣意窃取其用户的私人信息，而且还滥用其媒体公信力和言论支配力，并因此对广大普通用户施加各种不公平条款，而最终使该平台能利用客户的个人数据牟取暴利。
+这些症状随着治疗得到了一些缓解，但是医生告诉他，由于勃起组织的血管伤害，这种情况可能是永久性的。该名男子沮丧无比.
 
-校对编辑：硫酸羟氯喹64
+据悉伦敦大学学院一项研究发现，阴茎缩短是长期感染新冠病毒者的常见症状。同时迈阿密大学米勒医学院的一项研究表明，新冠病毒感染导致的广泛内皮细胞功能障碍可能导致严重的勃起障碍。
 
-发稿： 苦尽甜来 (文來）
+文字版原文：[感染过新冠病毒的男子阴茎缩短了1.5英寸](https://gnews.org/zh-hans/1864599/)
 
-[原文链接](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

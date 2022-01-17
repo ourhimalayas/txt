@@ -2,16 +2,10 @@
 ---
 
 
-## 中共对美国司法界的渗透—中共法律超限战
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871804/)
+## 【粤语配音】2022年1月12日：共產黨放毒共享財富的招
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1871877/)
 
-——文贵大直播20220117
-
-撰稿：铲共骑侠（香草山）
-
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_6.jpg)
-*发布：Theodosia*
+紐約香草山-香港部
 
  
 

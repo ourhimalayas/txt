@@ -2,28 +2,22 @@
 ---
 
 
-## 在哈萨克斯坦事件中，中共最早向哈国派谴军队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870054/)
+## 中共病毒加剧分裂 政治转型即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870079/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月12日的大直播中，郭文贵先生谈到，在哈萨克斯坦事件中，中共最早向哈国派遣特种部队。
+1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-9.jpeg)
 
-据郭先生爆料，哈萨克斯坦事件爆发前夕，王毅得知情报后，亲自到访哈国，收缴王岐山藏匿的一百余吨黄金，但遭到拒绝。
+班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
 
-在处理哈萨克事件中，俄罗斯和中共出于政治利益，一致对抗西方，但是在经济利益方面却各怀鬼胎。
+班农先生透露，今年秋季，美国将迎来政治巨变。美国共和党将被重塑为”工人党”，并将取得压倒性胜利。进而，世界的政治方向都会改变，将把消灭中共作为首要目标。
 
-中共在该事件发生后，第一时间派出一千一百名雪豹突击队成员，帮助托卡耶夫平息国内动乱。作为利益交换，要求托卡耶夫不但要归还一百余吨黄金，而且，必须支持并出席北京冬奥会。
-
-俄罗斯出兵支持托卡耶夫的目的则是要控制哈萨克斯坦的油路，借机干掉乌克兰。
-
-中俄对哈国联合出兵，就是要警告西方，上合组织联合出兵的合法性，适用于世界其它国家。
-
-参考链接：
-1）[1/12/2021 文贵直播：在哈萨克斯坦事件中，中共最早向哈国派了1100名雪豹突击队员](https://gnews.org/zh-hans/1857228/)
-2）[2022年1月12日 文贵大直播 全文字版](https://gnews.org/zh-hans/1856873/)
+参考链接；
+1）[对班农先生采访的一些要点：](https://gettr.com/post/pojqgfc723)
+2）[史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁](https://gettr.com/post/polb5vdead)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
@@ -38,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
