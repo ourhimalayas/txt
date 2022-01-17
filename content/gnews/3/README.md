@@ -2,31 +2,38 @@
 ---
 
 
-## 七哥说“政治上、军事上、经济上、个人利益上这是一个搅战的混局”（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872373/)
+## 已打四针的以色列财政部长确认感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
+这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
 
-来源：郭先生2022-01-12直播09：59：19摘录
+以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
 
-那你在再看看哈萨克斯坦的油和气出那么大事，它油价、气价降了吗？哈萨克斯坦整个国家的油，所有的工人几乎都是最穷的人，你不能想象，你没去过。你上那去过之后发现，为什么中国的石油工人都住着楼房，我们都住在村里面，但那里的石油工人很穷，都是被剥削的，骑着马当油工去，开着老拉达当油工去，还有那个老车都已经没了的车厂。这就是回答你的问题，在这场政治较量之中，中共和俄罗斯在政治上是合作的，对付美国西方，这是永远不变的主题。在经济上，双方各有各的利益，这就像鬣狗去攻击狮子，永远鬣狗不能帮助狮子攻击鬣狗，但鬣狗掏完肛以后，大家抢肉的时候是你死我活。所以说你把我的黄金先给我，这个黄金100吨是王岐山的，人家就不想给。那你先给我吧，你不给我，你不给我这信息就完了啊。这个事儿不是中共搞起来的，这个事儿是它去要黄金是因为知道你有事了，我告诉你情报，我上合组织跟你一起出兵，中国出兵了你知道吗？你们没有一个人报道的，中国是派了1100个人啊，白俄罗斯才派了100个人，中国这1100个人全是雪豹突击队去的，王毅到他说：我这人全都在天上呢，有飞机拉黄金回去，然后帮你来进部队。中国是第一个到的援助部队。托卡耶夫就别提了，托卡耶夫全家人都在海南做生意，都有地，是吧。然后你奥运会肯定来呀，如果托卡耶夫成为冬奥会的大VIP的时候，你能知道这个共产党还有VIP吗？是吧，剩下就是埃及总统啦，沙特王子啦，科威特啦，伊朗啦就这几个鸟地方了，就是拿了钱的，不能不去的嘛，是吧。没什么人了。托卡耶夫一看：哥们儿，你别动，黄金你拉走，援和军队也在这儿，咱是上合组织。俄罗斯一看：嘿，我也是上合组织发起人，你别你一个人去啊，我也得去。它要控制油路，借机干掉乌克兰，同时把上合组织联合出兵，合法性告诉西方：我能在这出兵，我也能到乌克兰去，我能到任何地方。普京这牌打得太牛了，打得太牛了。所以说兄弟，当七哥告诉你玩这个以后，你就明白了，是吧。政治上、军事上、经济上、个人利益上这是一个搅战的混局。就像阿富汗，阿富汗本身是对抗西方，给西方找麻烦，但是在阿富汗里面利益，和俄罗斯绝对是，俄罗斯不高兴了：你别把这些恐怖分子弄到我这里来好不好，我刚刚把车臣，普京起来就是驾着飞机到车臣阿摩耶夫是吧，那个家伙“哐”给干掉了，车臣的极端分子，你别再给我弄过来啊，你再弄回一个车臣来啊？所以说在帕米尔高原死亡之谷，南侧和北侧，你要给我塔吉克斯坦和阿富汗之间我要有一个屏障，所以俄罗斯“咵嚓”把兵压到了中国新疆边境。昆仑山北口，直接放那儿去了。所以说，兄弟，但凡你站在高度上看过昆仑草原，你看过这2500公里，你的高度就不一样了。
+针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
+2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
+3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
 
-**关注我们**
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-Discord 账号
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

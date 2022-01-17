@@ -2,25 +2,25 @@
 ---
 
 
-## 澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872380/)
+## 澳洲昆士兰咖啡店主因接待未接种疫苗者被捕
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872401/)
 
 撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011602.jpg)网络图片
-昆士兰于当地时间1月17日记录了 15,122 例新的 CCP病毒感染案例和另外 7 例死亡，这是该州大流行中最致命的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011603.jpg)图片来源：Pexels免费照片资料库；摄影：Lisa Fotios
+澳大利亚昆士兰州的一名私人企业主因涉嫌没有执行 CCP病毒防疫禁令而被捕。这位企业主名叫Pierre Coorey ，在州首府布里斯班南部经营着一家咖啡馆，他在上个月因违反当局的防疫限制措施被罚款后，现在因涉嫌违反疫情期间的强制命令而被警方拘留。
 
-7名不幸离世的死亡病例年龄皆在80岁以上，且均有其它健康问题。媒体称这些死亡案例没有注射过CCP病毒疫苗的加强针，却对他们是否完全两剂CCP病毒接种疫苗只字未提。
+目前昆士兰的防疫规定极大限制着未接种疫苗者的出行自由，根据政令，未接种疫苗的人群是不允许出入任何诸如咖啡馆这样的饮食设施的。Coorey先生就是因为让未接种疫苗者进入到咖啡厅而被几名警方带走，颇有连坐受罚的味道。他现在被指控妨碍警察、违反指示要求以及不遵守 COVID-19 公共卫生命令。
 
-今天发布的最新病例数据来自 30,963 个 PCR 检测和 4576 个报告的快速抗原检测。昆士兰州同时还更新了对活跃病例的定义，使其与澳大利亚其他州和领地保持一致——这一举措使得该州现存病例总数降至 86,953 例。
+Coorey 先生甚至还可能面临着被人赶出咖啡馆的情况——要知道那可是他自己的咖啡馆，这一裁决今天早上引发了企业主支持者的强烈反对和不满。预计他将于下个月在法院出庭。
 
-州卫生部长 Yvette D’Ath 说，有 702 名冠状病毒患者目前需要住院治疗，其中 40 人在重症监护室，15 人需要呼吸机。
+上周，布里斯班北部赫维湾的一名妇女在另一家Hervey Bay 的咖啡屋因涉嫌拒绝提供疫苗接种证明而被逮捕。一些当地居民反对警方的行动，称他们执法不当有失准则。在脸书上，这家咖啡馆的老板称这次逮捕“令人痛苦”和“令人不安”，称五名警察的执法行为与实际不符。该女子将于 3 月 10 日在 Hervey Bay 地方法院出庭。
 
-首席卫生官Gerrard预计，在下个月昆士兰各地学校重新开学时或将出现“重大的”CCP病毒疫情爆发。该州学校的重新开放目前已推迟两周至 2 月 7 日星期一。Gerrard博士称，虽然预计会有大量学生被感染，但对他们来说总体症状将是轻微的。
+新闻参考链接：[Cafe owner arrested for alleged COVID-19 direction breaches](https://www.9news.com.au/national/queensland-covid-cafe-owner-arrested-for-alleged-covid-19-direction-breaches/a2e1ec6c-bf8a-465b-bcfe-2856f59699eb)
 
-教育部长Grace表示，接下来的两个学期将不会有任何时间上的延长，依然保持疫情以来的缩减，因为课程预计将会顺利完成。
 
-新闻参考链接：[Queensland reports more than 15,000 COVID-19 cases amid warning of school outbreaks](https://www.9news.com.au/national/coronavirus-qld-update-queensland-covid19-cases/366d09e8-6e52-4696-8fc4-274fdfa5fa37)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
