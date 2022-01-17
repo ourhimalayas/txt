@@ -2,71 +2,107 @@
 ---
 
 
-## 灭共第十五夜 病毒溯源记—真相演绎
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1870973/)
+## 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难! 疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871005/)
 
-**作者：小鬼**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/934b0997203b929a7e5d15123244b6e8.jpeg)
-让我们把时间追溯到2019年末，武汉P4实验室溜出了一个黑影，黑影携带着一个潘多拉的盒子来到武汉华南海鲜批发市场，随着黑影将潘多拉盒子的开启，一场悄无声息的生化战开始在中共国蔓延，很快又遍布世界各地。
+[https://gtv.org/video/id=61e416f387664c47acd56fb8](https://gtv.org/video/id=61e416f387664c47acd56fb8)
 
-李文亮是武汉市中心医院的眼科医生，2019年12月30日，他在同学群中发了一条关于华南海鲜市场确诊了7例SARS的消息。随后他又发消息称确定了该病例为冠状病毒感染，他告诫同学先不要转发消息，可是很快网上就遍布了这些消息。
+**郭文贵
+Miles Guo**
 
-12月31日，武汉市卫健委与监察科约谈李文亮，李文亮按要求写下一份报告《不实消息外传的反思与自我批评》。2020年1月3日，当地派出所让李文亮签署训诫书，承认自己是8名“造谣”者中的一人。医疗防护的缺失导致了李文亮在1月10日感染了新冠病毒。1月19日，新型冠状病毒感染病例新增59例。1月20日，新增77例。当天中共当局发文承认武汉确实有疫情。1月23号上午10点武汉封城。2月7日凌晨，李文亮医生去世。
+我到那里以后，我从来没有动外面任何东西，喝那最高级的水
+After I got there, I never touched anything outside, and drank the highest grade of bottle water
 
-黑影遣回P4实验室，向中共303和106生化部队的总参保卫部领导**一神**汇报“姓李的‘吹哨人’已除，接下去还需要做什么工作？”
+我（被）送医院去了，就是传染了
+I (was) sent to the hospital. I was infected
 
-一神说道“奖励他一个名头，好平息民怨，照顾并且看管好他的家人，不要随处散步不利于我党的谣言。最重要的，要尽快抹除病毒的来源”
+当时说，你不打疫苗，就会死在这里
+It was said at the time that if you didn’t get vaccinated, you would die here
 
-黑影道“人造病毒的事实最终是藏不住的，最后一定要推向美国，不过在这之前，小的建议先把公众的视线引向自然界，多做点混淆视听的新闻出来。”
+我去非洲，我也打了疫苗，打了1、2十针疫苗
+I went to Africa, and I also got vaccinated, a dozen to 20 shots
 
-一神说道“这次的生化战程度确实不是2003年的SARS可以比较的，果子狸可以再次利用，先从广东人吃野味入手”。
+东弟，我们不是反疫苗，我们是相信疫苗的
+Brother Dong, We are not anti-vaccine, we believe in vaccines
 
-黑影道“诺，马上就去安排。小的还有几个提议”。
+但是你不知道病毒的情况下，你怎么可能有疫苗？
+But if you don’t know the virus, how can you possibly have a vaccine?
 
-一神说道“讲”。
+更重要事情，我们向西方(机构)，包括美国高（等）法（院），所有的人，包括美国国会，我们提供的就两件东西
+More importantly, we have provided two things to organizations in the west, including the U.S. Supreme Court, U.S. Congress and all people
 
-黑影道“建议武汉封城，把案发现场清理一下，随后安排世卫进来检查，封住世界各国人的嘴。香港那群学生，还有美国那边是否也开始行动？”。
+在欧洲的 (从中共国逃出来的) 科学家，他给我们提供的文件
+The documents provided by the scientist in Europe who escaped from the Mainland China
 
-一神说道“武汉那边，我会安排钟南山院士去处理。其他照计划执行吧！切记，多布迷雾”
+就共产党，这个事，我们敢公开喊，就是共产党的生化病毒
+We can shout out loud that this is the CCP’s biochemical virus
 
-黑影允诺，匆匆离去。
+(这) 病毒是不可能有疫苗的，(这) 就是生化武器
+There is no vaccine for this virus, cause the virus is a biological weapon.
 
-诗 曰
+所以你记住这个原则以后，你就不要讨论其他问题了
+So after you keep this principle in mind, you won’t discuss other issues.
 
-中共病毒 武汉伊始
+第一，不能打疫苗; 第二，必须戴口罩; 第三，尽量不出去; 第四，大家要记住，这个世界如果咱们能决定黑和白、红和黑，我们可能新中国联邦可能已经不叫新中国联邦，叫太阳联邦了
 
-哀我文亮 有言难诉
+First, don’t get vaccinated; Second, you must wear a mask; Third, try not to go out; Fourth, everyone must remember that if we could decide on what is black and what is white, and what is red and what is black, then we wouldn’t be the New Federal State of China, but Sun Federation.
 
-中共控媒 掩而不报
+我们(新中国联邦)还是很渺小的力量，跟国家的权力，跟世界比，我们是很很很渺小的
+We (the New Federal State of China) are still a very tiny force, Compared with the power of a country and the world, we are very, very tiny
 
-民无防备 染疫百万
+真的像张高丽说的，人家是宇宙无限大，我们是地球一粒沙都不是，跟人家的国家政权（比），我们真是一粒沙都不是，不要把自己看那么伟大，好吧
+Just like Zhang Gaoli said, they are the infinite universe, we are not even a grain of sand on the earth, compared with the power of a country. Please don’t think of yourself as great, okay?
 
-傀儡南山 涕零相告
+我先说到这，大家先记住（上面提到的）这几个重点。
+然后，还有几个建议我要跟大家说的，听7哥（当时）说，今年年底，就是2021年底可能要大爆发，爆发了吗？
+For now, please keep the (above mentioned) points in mind first.
+Then, there are a few more suggestions that I want to share with you. I said that there may be a big outbreak at the end of 2021. Has it happened?
 
-病毒难控 上启中共
+我说新病毒（会从）哪来，来了吗？
+I said where the new virus would come, did it come?
 
-一神下令 即刻封城
+我说疫苗灾难，会在今年5月份以前截止，1、2月份会有法律上的行动，行动了吗？
+I said that the vaccine disaster will end before May this year, and there will be legal actions in January and February. Have these actions taken place?
 
-千万百姓 困于家中
+我再告诉大家，我不求你们信我们，如果你们信新中国联邦，信7哥说的话，5月份以前，你能呆在家里呆在家里
+Let me tell you again. I don’t beg you to believe us. If you believe in New Federal State of China and what Miles Guo said, you’d better stay at home before May
 
-菜价高涨 救济全无
+你要真要出去了，染你病毒的不是病毒的携带者，是所有你认为打了疫苗的人
+If you really have to go out and get infected, you will not be infected by those virus carrying people, but by those vaccinated
 
-官宣日报 篇篇向好
+你就尽量不出门
+Again you’d better not to go out
 
-匆匆黑影 往返于室
+2022年，是人类有史以来最黑暗的，可以回到侏罗纪时代去
+The year 2022 is the darkest in human history and (we) could go back to the Jurassic era.
 
-病毒溯源 迷雾重重
+你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难，共产党灭亡前的灾难，甚至是火战，甚至是战争
+You have to be mentally prepared for all economic disasters, humanitarian disasters, virus disasters, vaccine disasters, disasters before the demise of the Communist Party, even hot wars
 
-参考链接：
+还有你刚才问的所谓“热毒”，这个毒，就是共产党的毒，就是整个投毒、疫苗的结果
+You just asked about what the so-called “hot poison” is. This poison is the poison of the Communist Party, and it is the result of the entire poisoning and vaccines.
 
-**[健康的社会不应只有一种声音。——李文亮](https://chinadigitaltimes.net/space/CDS专页：李文亮)**
+* * *
 
-[习近平对新型冠状病毒感染的肺炎疫情作出重要指示](http://www.gov.cn/xinwen/2020-01/20/content_5471057.htm)
+Date: 01/14/2022
+原视频标题: 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难!
+疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
+Everyone, be prepared! Economic disasters! Humanitarian disaster! Virus disaster!
+Vaccine disaster! The disaster before the demise of the Communist Party! Even the disaster of hot wars!
+原视频日期：2022/01/14
+原视频链: [**https://twitter.com/yingjie22739040/status/1482006186740174848?s=24**](https://twitter.com/yingjie22739040/status/1482006186740174848?s=24)
+任务编号：KC416（3491）
+视频时间段 : 0:00-2:20
+中听校：洛杉矶盘古农场 – WH
+翻译：洛杉矶盘古农场 – WH
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-审核校对：Barry Jack
-上传排版：F
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
