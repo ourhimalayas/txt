@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 1:11 PM (UTC)`
+
+2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格
+![img](https://media.gettr.com/group5/origin/2022/01/17/12/7784d909-3719-fcde-523c-c39cc67ad851/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/17/2022 2:44 AM (UTC)`
 
 1/16/2022 Miles Guo’s GETTR: The CCP virus and COVID vaccines have accentuated the ugliness and evilness of the entire humanity to a great extent, pushing the world into darkness. Fellow fighters, please cherish the eternal beauty of the New Federal State of China (NFSC). We will know how great the NFSC is this time next year.<br/><br/>1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中；请战友们珍惜无限美好的新中国联邦，明年这个时候我们会知道她有多伟大<br/>
@@ -147,13 +154,6 @@ EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this de
 
 印中正在举行第14轮高级军事指挥官级别的会谈。其目的是解决拉达克东部的摩擦点问题。然而，双方都未能在过去的会谈中取得任何进展。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。<br/><br/>India and China are holding the 14th round of senior military commander level talks. The aim is to resolve the friction points in eastern Ladakh. Both sides have failed to make any headway in the previous talks. There has been disengagement at many flashpoints, but tensions continue to simmer between the two countries. 
 ![img](https://media.gettr.com/group43/getter/2022/01/16/04/b2cf26fd-86d0-7b48-69ca-a7efbb19d6a4/out.jpg)
-
----
-
-`@miles 1/16/2022 12:47 AM (UTC)`
-
-梅梅特-奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗<br/><br/>Dr. Mehmet Oz (US Senate Candidate): The American people are simply not allowed to receive other therapeutic methods because they might not take the vaccines once they find out other possibilities.<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/16/00/ed555e65-d41a-bd30-62b3-a27ebeef8a83/out.jpg)
 
 ---
 
