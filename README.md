@@ -15,95 +15,95 @@
 
 ---
 
-### [2022年1月16日郭文贵先生盖特概要与评论](/content/gnews/1/README.md)
+### [01/17/22 香港快讯 2019年以利器刺警员颈部男子被重判7年9个月](/content/gnews/1/README.md)
+ ` 英喜-粵語組`
+
+### [春节之后，粮食物资储备领域会有一大帮人人头落地](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【#G时新闻】美国最高法院阻止了对企业的中共病毒疫苗强制令](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [新中国联邦在美最高法院的判决中举足轻重](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [移民部长称德约科维奇是对澳洲政府的威胁](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年1月16日郭文贵先生盖特概要与评论](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中](/content/gnews/2/README.md)
+### [1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线：百万富翁福奇是如何从中共病毒（COVID-19)中获利的](/content/gnews/3/README.md)
+### [秘翻在线：百万富翁福奇是如何从中共病毒（COVID-19)中获利的](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京卫健委封锁 “解药” ，称新病毒有超强免疫逃逸能力](/content/gnews/4/README.md)
+### [疫苗大灾难](/content/gnews/9/README.md)
+ ` MilesGuoLivePPT`
+
+### [北京卫健委封锁 “解药” ，称新病毒有超强免疫逃逸能力](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/5/README.md)
+### [DC大中华时事：习近平出席2022年世界经济论坛视频会议并发表演讲](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [奥米克戎传播速度居冠 五周成为纽约主要病毒](/content/gnews/6/README.md)
+### [奥米克戎传播速度居冠 五周成为纽约主要病毒](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：中共打稀土牌，以求留住苹果公司](/content/gnews/7/README.md)
+### [秘翻在线：中共打稀土牌，以求留住苹果公司](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国的中共病毒（COVID-19 ）总死亡人数超过 850,000，每天新增800,000 例病例](/content/gnews/8/README.md)
+### [美国的中共病毒（COVID-19 ）总死亡人数超过 850,000，每天新增800,000 例病例](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本气象厅发布海啸警告 指示23万人撤离](/content/gnews/9/README.md)
+### [日本气象厅发布海啸警告 指示23万人撤离](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [【中日财经爆】中共国出生率创新低 老龄化速度超预期](/content/gnews/10/README.md)
+### [【中日财经爆】中共国出生率创新低 老龄化速度超预期](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首](/content/gnews/11/README.md)
+### [Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【中日财经爆】中共国房地产一瞥：虹桥之殇](/content/gnews/12/README.md)
+### [【中日财经爆】中共国房地产一瞥：虹桥之殇](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [01/17每日播报｜冬季风暴席卷东南部 数千个美国航班被取消](/content/gnews/13/README.md)
+### [01/17每日播报｜冬季风暴席卷东南部 数千个美国航班被取消](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共如临大敌迎冬奥](/content/gnews/14/README.md)
+### [中共如临大敌迎冬奥](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [樱花灭共诗——夕望有悲](/content/gnews/15/README.md)
+### [樱花灭共诗——夕望有悲](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农先生经典发言](/content/gnews/16/README.md)
+### [班农先生经典发言](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [政党倡港府继续“派糖”刺激消费](/content/gnews/17/README.md)
+### [政党倡港府继续“派糖”刺激消费](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共内斗升级：习亲信陈一新放话力保二十大](/content/gnews/18/README.md)
+### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [港珠澳大桥口岸将关闭 圈禁进一步收紧](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [注射新冠疫苗，在四到七天之间，进行D-二聚体的血液测试，62%的病患有明确的血栓现象](/content/gnews/20/README.md)
- ` G-NEWS TAIWAN`
-
-### [不择手段应付安老服务人手荒](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [短视频：无可辩驳的证据，新冠疫苗正在杀害人们！](/content/gnews/23/README.md)
+### [短视频：无可辩驳的证据，新冠疫苗正在杀害人们！](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西方抵制冬奥会一是流氓政府的政治卸责操作](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [中共邪教制造反社会人格，以零容忍掩饰犯罪行为](/content/gnews/25/README.md)
+### [中共邪教制造反社会人格，以零容忍掩饰犯罪行为](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`
 
-### [新西兰财经G乐部2022年1月17日:财经新闻整理](/content/gnews/26/README.md)
+### [新西兰财经G乐部2022年1月17日:财经新闻整理](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/27/README.md)
+### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [开年法事多](/content/gnews/28/README.md)
+### [开年法事多](/content/gnews/30/README.md)
  ` 骄子`
-
-### [班农先生经典发言](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [11/25/2021 文耀时间：Eglise 医生与感染战友讲析中共病毒治疗案例（三）](/content/gnews/30/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [COVID-19 最新情报｜澳洲政府资助机构发布煽动性广告：青少年接种疫苗毋需父母许可](/content/gnews/31/README.md)
  ` 關注組`
@@ -117,56 +117,56 @@
 ### [01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [沪深股市擀面杖难以为继，开年新基金销售行情惨淡](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【中日财经爆】中共国人口自然增长率降至0.34‰创新低](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/07文贵直播：新中国联邦传递的真相和情报远超各国情报系统（粤语配音）](/content/gnews/37/README.md)
+### [1/09文贵直播：为什么美欧就哈萨克斯坦问题跟中俄对着干？（粤语配音）](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/07文贵直播：台湾或引发中美火战（粤语配音）](/content/gnews/38/README.md)
+### [1/09文贵直播：曾庆红为何选在南普陀开南普陀会议？（粤语配音）](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [吕克·蒙塔尼耶：人类的救赎掌握在未接种疫苗的人手中](/content/gnews/39/README.md)
+### [1/09文贵直播：昆仑山跟哈萨克斯坦有什么联系？（粤语配音）](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/09文贵直播：新中国联邦掌握中共国安委情报（粤语配音）](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/07文贵直播：新中国联邦传递的真相和情报远超各国情报系统（粤语配音）](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/07文贵直播：台湾或引发中美火战（粤语配音）](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [吕克·蒙塔尼耶：人类的救赎掌握在未接种疫苗的人手中](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [数字美元和喜币将成为世界货币市场的共同体](/content/gnews/40/README.md)
+### [数字美元和喜币将成为世界货币市场的共同体](/content/gnews/42/README.md)
  ` 纽约香草山MOS03`
 
-### [COVID-19 最新情报｜专栏作家发文揭香港疫苗伤害真相 吁尊重未接种者](/content/gnews/41/README.md)
+### [COVID-19 最新情报｜专栏作家发文揭香港疫苗伤害真相 吁尊重未接种者](/content/gnews/43/README.md)
  ` 關注組`
 
-### [DC大中华时事：中共宣传马克思主义](/content/gnews/42/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [01/17每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/43/README.md)
+### [01/17每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所](/content/gnews/44/README.md)
+### [COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所](/content/gnews/45/README.md)
  ` 關注組`
 
-### [微软称乌克兰政府机构的计算机系统被感染了恶意软件](/content/gnews/45/README.md)
+### [微软称乌克兰政府机构的计算机系统被感染了恶意软件](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [制造对美国华裔的种族仇恨—Vice采访郭文贵先生始末系列之八](/content/gnews/46/README.md)
+### [制造对美国华裔的种族仇恨—Vice采访郭文贵先生始末系列之八](/content/gnews/47/README.md)
  ` 秘密翻译组-原创组`
 
-### [金正恩本月第四次发射疑似弹道导弹](/content/gnews/47/README.md)
+### [金正恩本月第四次发射疑似弹道导弹](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】日经产相访泰 双方签署备忘录促合作](/content/gnews/48/README.md)
+### [【中日财经爆】日经产相访泰 双方签署备忘录促合作](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德约科维奇在签证上诉失败后被驱逐出境](/content/gnews/49/README.md)
+### [德约科维奇在签证上诉失败后被驱逐出境](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共用病毒+疫苗绑架了世界，全球华人面临生存危机](/content/gnews/50/README.md)
+### [中共用病毒+疫苗绑架了世界，全球华人面临生存危机](/content/gnews/51/README.md)
  ` mary202064`
-
-### [串珠533:闭关锁国对外强硬再放毒对内高压强行国有](/content/gnews/51/README.md)
- ` 郭爆料串珠`
 
 ### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
