@@ -2,31 +2,53 @@
 ---
 
 
-## 有声|美国医生给中共病毒患者使用伊维菌素被吊销执照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1872167/)
+## 灵修有感：为做一名老子所说的上士而骄傲
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1872256/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据美国媒体1月15日消息，近日，缅因州医生梅里尔·纳斯女士因给中共病毒患者使用伊维菌素和羟氯喹进行治疗，被暂时吊销了医疗执照，这位已经有40多年从业经验的医生因此无法行医了。医学执照委员会还说她在传播中共病毒误导讯息，强令她去接受心理辅导。
+作者：纽约香草山农场健身部-幸福鸟
 
-据悉，纳斯医生是一个直言不讳的医疗专业人士，她曾经揭穿福奇关于中共病毒起源的谎言，还曾提出羟氯喹是可负担的治疗中共病毒的药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-17.jpg)
 
-而目前数据显示，使用伊维菌素和羟氯喹治疗中共病毒的患者病情都有极大的改善。同时非赢利组织Project Veritas的文件也提到伊维菌素和羟氯喹对治疗中共病毒是有效的。
 
-文字版原文：[美国医生给中共病毒患者使用伊维菌素被吊销执照](https://gnews.org/zh-hans/1869444/)
 
-音频处理：Fei797
-发稿：Fei797
+今晨的灵修学了道德经《第四十一章》的前部分：上士闻道，勤而行之；中士闻道，若存若亡；下士闻道，大笑之，不笑不足以为道。个人的理解如下：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-61.png)
+上士闻道，勤而行之：有灵性的人听到了道的真理后，就会勤奋地去做圣事；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+中士闻道，若存若亡：有些灵性但还不够虔诚的人听到了道的真理后，会半心半意地去做善事，结果似乎有道行，但却功德无存；
+
+下士闻道，大笑之：缺乏灵性的人听到了道的真理后，只会大声取笑，因为他们只顾一己私利，而根本不相信大爱的存在。真可谓：燕雀焉懂鸿鹄之志？
+
+不笑不足以为道：如果不被缺乏灵性的人取笑，那就不能称为道了。
+
+由此可见，那些成天像苍蝇蚊子般地诋毁、讥笑爆料革命新中国联邦和G系列的伪类们，充其量只配得上做老子所说的下士而已。而跟随七哥每天勤勤恳恳、自觉自愿，不顾被亲朋好友嘲笑误解，仍然坚持不懈地传播中共病毒和疫苗真相的新中国联邦人，则毫无疑问属上士一类。下士们骂得越厉害，越给上士们逆增上缘！
+
+作为一名有信仰的、有正义感的新中国联邦人，让我们为能够做一名老子所说的上士而骄傲吧！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
+
+*校对/编辑/发稿: Amanda艾曼达*
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-8.jpg)
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,37 @@
 ---
 
 
-## 秘翻在线 :又一位接种过疫苗的足球明星因心肌炎无法出赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1871969/)
+## 有声|丹麦指控来自中共国间谍威胁升高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1872016/)
 
-**撰稿：William**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-17-232029.jpg)图片来源：www.90min.com
-根据零对冲(Zero Hedge) 的报道,完全接种新冠疫苗的加拿大足球明星阿方索·戴维斯(Alphonso Davies)因心肌炎将无法上场比赛。加拿大多伦多新闻 CP24 指出在德甲名门球队拜仁慕尼黑效力的加拿大球星阿方索·戴维斯(Alphonso Davies)已显示出心肌发炎的迹象。戴维斯被公认为是世界上最好的足球左后卫之一，他已完全接种新冠疫苗并于 12 月接种了加强针，但是因为心肌发炎的关系，已被排除在加拿大定于一月和二月举行的三场世界杯预选赛之外。
+配音：香草山教育部 – 百香果
 
-他的俱乐部经理朱利安·纳格尔斯曼（Julian Nagelsmann）表示，这个问题是在后续的 COVID 检查中发现的。他表示戴维斯将缺席训练，直至另行通知。在接下来的几周内，戴维斯也将无法上场。超声波显示这种心肌炎并不那么严重，但它是心肌炎的征兆。不过，愈合肯定需要一些时间。俱乐部经理并没有立即将炎症归因于中共病毒（Covid-19），并表示有不同的原因，特别是病毒载量或流感，例如，可能导致心脏问题。
 
-郭文贵先生多次在直播中说到，疫苗产生的灾难将远远超过我们的想像。会有愈来愈多的新闻显示各种严重的疫苗副作用，更会带来供应链、社会动荡、世界金融的次生灾难的发生。今年最重要的事情就是做好所有活下去的准备，从准备抗疫药品伊维菌素和青蒿素、生活所需的面、油、盐，还有避免外出减少感染风险。2022年将是人类历史上最黑暗的一年，只要家人和自己都健康活下去就是胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
 
-**新闻来源：**[https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis](https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis)
+丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。
+
+据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+
+文字版原文：[丹麦指控来自中共国间谍威胁升高](https://gnews.org/zh-hans/1864639/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
