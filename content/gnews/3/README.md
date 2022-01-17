@@ -2,38 +2,34 @@
 ---
 
 
-## 已打四针的以色列财政部长确认感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
+## 中共政府确保对价值数十亿美元的NFT市场的控制权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1872420/)
 
-作者：纽约香草山信息部 – 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
-这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip01-4.png)中国试图通过创建自己的平台来控制本国的 NFT 市场。 （路透社）
+比特币等加密货币的被禁和（非同质化代币）NFT的崛起，促使中共政府使用国营区块链系统来追踪交易。
 
-以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
+中共国将在本月底前创建自己的NFTs（非同质化代币）基础设施，它将不与加密货币挂钩，而是依靠自己的区块链系统。这个区块链系统，不会像最初设想的那样是去中心化和匿名的，而是由国家控制的。
 
-针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
+NFTs也在中共国大放异彩。阿里巴巴、腾讯、百度和小米等中国科技巨头已经创建了自己的NFT，以利用这一趋势，但中国政府对这一系统持怀疑态度，为了避免中共政府的怀疑，他们将其更名为“数字货币”。NFTs一般通过以太坊的区块链进行交易，并使用其加密货币以太坊购买。这些信息区块链是高度安全的去中心化平台，允许其用户之间的互动，同时保持其匿名性。区块链也是其他加密货币的基础，但中共已经在国内禁止了这些虚拟货币，因为它要求其所有的互联网系统验证用户的身份，以便国家在“非法活动”时进行干预。
 
-参考链接：
-1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
-2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
-3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
+**一个非常奇特的区块链**
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+去年年中，中共国宣布推出区块链服务网络（BSN），这是一个在中共政府的支持下，由中共国科技公司和银行组成的财团建立的。这种国家管理的区块链允许公司和个人用户使用国家区块链应用程序，而不必使用私人区块链。
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+现在，据香港媒体《南华早报》报道，中共国政府将为NFT引入一个新的数字基础设施，它被称为分布式数字证书（BSN-DDC）。这个系统使公司或个人更容易创建自己的用户档案或应用程序来管理NFT。然而，只有中共国的人民币将被允许用于交易。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+与世界其他地方不同的是，中共国科技公司铸造的NFT数字产品不会成为投机和资本外逃的工具，这一条件旨在让中共国监管机构放心，但是现在BSN-DDC要来改变游戏规则，虽然我们不知道他们是否能从NFT提出钱来，但我们知道，无论他们做什么，中共都会关注他们。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**新闻来源**：[elconfidencial.com][El gobierno chino se asegura el control del millonario mercado de los NFT](https://www.elconfidencial.com/tecnologia/novaceno/2022-01-14/china-se-asegura-el-control-del-millonario-mercado-de-los-nft_3358621/)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
 
  
 
