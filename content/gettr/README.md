@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 2:22 AM (UTC)`
+
+1月13日，中共病毒真相查明医师会在韩国首尔中区的韩国新闻中心召开的中共病毒实验用疫苗接种者血液检查结果发表紧急记者会，所属内科专家医生陈基业(JEON GI YEOB)院长向人们发出“为了让我们国家延续下去，望大家能协助我们，千万不能让孕妇接种毒疫苗”的请求。<br/><br/>On 13 January, Covid-19 Truth-finding Physicians held an emergency press conference at the Korea Press Center in Seoul, South Korea, to release the blood tests of experimental virus recipients, Dr. JEON GI YEOB, Korean physician/Dean: For the sake of our country's continuity, we hope people will help us to appeal to never take the toxic vaccines
+![img](https://media.gettr.com/group8/getter/2022/01/17/02/76fe1d41-a1ed-2f7a-c539-91d18ae9642e/out.jpg)
+
+---
+
 `@miles 1/17/2022 1:21 AM (UTC)`
 
 美国前总统川普在集会演讲中称他自豪他曾是反对疫苗强制令的总统。他强烈反对任何形式的强制令。<br/><br/>Former US president Trump said in his rally speech that he was proud that he was an anti-mandate president. He fiercely resisted mandates of any kind.
@@ -149,13 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1/15/2022 Miles Guo’s GETTR: Fellow fighters, you can’t be too careful! Make sure not to catch the CCP virus! Hope the Himalaya Farms will not give up on a single fellow fighter in providing assistance! Facing the rising prices caused by the COVID-vaccine-related issues, fellow fighters should really consider stocking up flour, oil, salt, and other necessities!<br/><br/>1/15/2022 文贵直播：请战友们务必小心，千万不要染上病毒！希望各农场为战友提供帮助时不要落下任何一个战友！面对疫苗问题引起物价飞涨，战友们真的要备点面、油、盐等物资了！<br/>
 ![img](https://media.gettr.com/group25/getter/2022/01/16/00/dcfe79a0-15a7-2c8d-80a9-f51d6aa810a7/out.jpg)
-
----
-
-`@miles 1/15/2022 6:15 PM (UTC)`
-
-1月15号：全人类正在面对着被同类猎杀的这种灾难的局面，疫苗灾难还没有开始……残灯无焰影幢幢，此夕闻君谪九江。 垂死病中惊坐起，暗风吹雨入寒窗。” 《六祖坛经》：“一灯能除千年暗，一智能灭万年愚。”【今天跟哥哥聊天，他从小到大都是一个小粉红，出国10几年，爱党之心从来不曾被改变过。我们的通话内容，你们一定可以想象的到，就差把我气吐血了。😩疫苗已经打了3针了，估计在准备打第四针的路上。共产党把我们推到全世界的对立面，国内我们回不去，国外又排华。我们活成孤岛，还好还有战友。】
-![img](https://media.gettr.com/group40/getter/2022/01/15/18/038efc77-3a9c-f1d2-d57d-f0b2521b549c/3b1d25b18ee3510c2bfa98e3cc9aa58d.jpg)
 
 ---
 
