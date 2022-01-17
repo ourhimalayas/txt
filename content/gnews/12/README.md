@@ -2,27 +2,27 @@
 ---
 
 
-## 新州卫生局证实近千名工人因拒绝接种新冠疫苗后被免职
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870328/)
+## COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870357/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-53.jpg)图片来自网络
-澳媒《7 News》近日报道，澳大利亚新南威尔士州卫生局已确认其近 1000 名员工在拒绝接种新冠疫苗后已被停职或辞职。
+**撰文｜疫情关注组 / 发布时间｜17/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-就在州长多米尼克·佩罗特宣布该州的医护人员接受加强针注射的新任务几天后，卫生部门承认已有 325 名工作人员辞职，670 名被停职。
+法国国民议会周日（16日）批准多项政府提出的最新防疫措施，其中包括最令当地民众反感的疫苗通行证。
 
-“截至 2021 年 12 月 23 日，新南威尔士州卫生部可以告知，在其约 170000 名全体员工中，约有 0.2%（325 人）因新冠疫苗接种问题而辞职，”新南威尔士州卫生部发言人说。
+国会以215票赞成，58票反对，通过以疫苗通行证取代健康通行证的法案，要求全国 16 岁及以上人士须持疫苗接种证明，方可进出当地的餐馆、电影院、博物馆、火车站等公共场所，仅新冠病毒康复者可豁免。
 
-“此外，由于他们在新冠疫苗方面的立场，现在约有 670 人（0.4%）停止了在新南威尔士州卫生部门的工作。”
+另外，法案还特别提高使用伪冒通行证的罚款，并允许身份审查以避免欺诈。巴黎和部分主要城市的民众集结，发起多场示威抗议，反对政府及国会推行该项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法國會通過疫苗通行證法案-禁止未接種者進出公共場所.jpg)
+就在该法案通过的前一日（15日），法国政府刚刚宣布推出新规定，成年人必须完成第三剂COVID-19 疫苗加强剂的注射才可获得有效的疫苗接种证明。
 
-“这些前职工包括临床和非临床员工。”
+法国总统马克龙（Emmanuel Macron）1月4日受访时曾表示，“但对于那些尚未接种疫苗的人，我真的想『惹恼』他们。所以我们（政府）会继续这样做直至结束。这是策略。”
 
-阳性病人自我隔离七天后可以工作，而没打新冠疫苗的阴性病人却要辞退，这到底是什么逻辑？而且新冠疫苗不阻隔传播，只是降低重症率，这是目前官方的说法吧？那么问题来了，这些医护人员只是让自己的风险更大（重症的可能性），也并不会导致传播更严重，有何不可呢？这不正是，该给的自由（在不太影响整体利益的前提下决定自己选择哪种风险去承担）不给，该遵守的规则（影响整体利益而且大多数人赞成），比如戴口罩，却又不能强力执行。所以澳洲政府这又是哪门子逻辑呢？
+“我不会（把未接种疫苗的人）送进监狱，我不会强制（要求）接种疫苗。所以我们需要告诉他们，从1月15日起，你（不打针的话）不能再去餐厅、咖啡店、戏院等公共场所了”。
 
-参考链接：
+来源｜[Euronews](https://www.euronews.com/2022/01/15/france-requirement-for-triple-vaccination-covid-pass-begins) 、[Axios](https://www.axios.com/french-parliament-approves-covid-vaccine-pass-25d84133-d5af-4ddd-b8ce-ac2842c81f43.html)
 
-[https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105](https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

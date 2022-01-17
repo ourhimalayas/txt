@@ -2,31 +2,36 @@
 ---
 
 
-## 美国政府阻止早期治疗，可能已造成多达50万例死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870147/)
+## 有声|佛州不会执行对医护人员的疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870214/)
 
-#### 翻译：Fulin
-校对：枳实
-剪辑/字幕：蛮吉
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，佛罗里达州州长办公室新闻秘书普肖表示，佛州不会执行美国最高法院支持的拜登政府对医护人员的强制性疫苗接种政策。
 
-它不仅仅是伊维菌素，还有羟氯喹，记住我的话，一些质量很高的模型研究已经表明，由于美国政府有意阻止早期治疗，可能在美国造成了50万例超额死亡。
+普肖说，州府非常欢迎最高法院阻止了OSHA的命令，但很遗憾地看到高院支持了CMS的裁决。解雇未接种疫苗的医护人员，这是不道德和不科学的，佛州不会充当拜登政府的生物医学警察。另外，加州和纽约州的医院要求已感染的医护人员仅隔离五天就可以上班，这根本无法保证任何人的安全。佛州应尽力避免因强制接种所导致的，人手短缺的状况发生。
 
-这可是五十万，五十万。这是一个有据可查的数字。知道吗？早期治疗是使用羟氯喹和伊维菌素的组合。
+原文链接：[佛州不会执行对医护人员的疫苗强制令](https://gnews.org/zh-hans/1867561/)
 
-现在，当你问我为什么他们要这样做？我不是他们肚子里的蛔虫。
+音频处理/发稿：Daxia
 
-作为一个科学家，我可以说的是我所观察到的行为，行动，新闻，这些匪夷所思的事情，比如，（伊维菌素）“这是一种马药”，这是一种惊人的贬义词。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-我住在弗吉尼亚州。我住在一个农村县，我养马。我可以告诉你，我周围的人（都知道），以这种方式使用这种语言，这是极为冒犯性的。然而这显然这是有意的推动。
+**更多资讯，更多关注**
 
-发布：枳实
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
