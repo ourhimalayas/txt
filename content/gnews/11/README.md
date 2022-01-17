@@ -2,35 +2,27 @@
 ---
 
 
-## 金正恩本月第四次发射疑似弹道导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870281/)
+## 新州卫生局证实近千名工人因拒绝接种新冠疫苗后被免职
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870328/)
 
-#### 撰稿：彩虹 
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-53.jpg)图片来自网络
+澳媒《7 News》近日报道，澳大利亚新南威尔士州卫生局已确认其近 1000 名员工在拒绝接种新冠疫苗后已被停职或辞职。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-1.jpg)图片来源：CNN
-1月17日，据《国会山报》和《新闻极限》报道，周一，韩国和日本的官员说,朝鲜向海里发射了至少一枚疑似弹道导弹，这是朝鲜本月第四次发射武器。
+就在州长多米尼克·佩罗特宣布该州的医护人员接受加强针注射的新任务几天后，卫生部门承认已有 325 名工作人员辞职，670 名被停职。
 
-韩国参谋长联席会议没有立即说明该不明武器是否为弹道导弹或告知其飞行距离。日本首相办公室说，它探测到朝鲜可能发射了弹道导弹，但没有立即提供更多细节。
+“截至 2021 年 12 月 23 日，新南威尔士州卫生部可以告知，在其约 170000 名全体员工中，约有 0.2%（325 人）因新冠疫苗接种问题而辞职，”新南威尔士州卫生部发言人说。
 
-日本海岸警卫队发表声明，敦促在日本海岸附近行驶的船只注意坠落物，但没有关于船只或飞机立即受损的报道。
+“此外，由于他们在新冠疫苗方面的立场，现在约有 670 人（0.4%）停止了在新南威尔士州卫生部门的工作。”
 
-据报道，在这次发射之前，朝鲜在1月5日和1月11日进行了两次据称是高超音速导弹的飞行试验，并于周五从一辆火车上试射了弹道导弹。
+“这些前职工包括临床和非临床员工。”
 
-在发射前几天，美国财政部制裁了五名朝鲜人，称他们负责为平壤的弹道导弹计划采购货物，拜登总统呼吁联合国安理会将这些朝鲜个人和实体列入黑名单，此举被这个独裁国家称为“挑衅”。
+阳性病人自我隔离七天后可以工作，而没打新冠疫苗的阴性病人却要辞退，这到底是什么逻辑？而且新冠疫苗不阻隔传播，只是降低重症率，这是目前官方的说法吧？那么问题来了，这些医护人员只是让自己的风险更大（重症的可能性），也并不会导致传播更严重，有何不可呢？这不正是，该给的自由（在不太影响整体利益的前提下决定自己选择哪种风险去承担）不给，该遵守的规则（影响整体利益而且大多数人赞成），比如戴口罩，却又不能强力执行。所以澳洲政府这又是哪门子逻辑呢？
 
-一些专家说，朝鲜领导人金正恩正在重新使用一种常胜不败的技俩，即在进行谈判以取得让步之前，先用导弹发射和令人愤怒的威胁来向美国和该地区的邻国施压。
+参考链接：
 
-文章认为，在川普政府拒绝了朝鲜以交出部分核能力作为条件，交换重大制裁减免要求后，由美国主导的旨在说服朝鲜放弃其核武器计划的外交努力于2019年宣告失败。
-
-此后，尽管该国的经济在与中共病毒（COVID-19）疫情有关的边境关闭和美国主导的持续制裁中遭受了重大挫折，但金正恩发誓进一步扩大核武库，因为他显然认为这是自己生存的最有力保障。
-
-**新闻来源**
-
-[North Korea reportedly fires missile in fourth test this month](https://thehill.com/policy/international/asia-pacific/589974-north-korea-reportedly-fires-missile-in-fourth-test-this)
-
-[N.Korea Fires Unidentified Projectile](https://www.newsmax.com/world/globaltalk/projectile/2022/01/16/id/1052648/)
-
+[https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105](https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
