@@ -2,10 +2,10 @@
 ---
 
 
-## 美国需在关键领域和中共脱钩
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867564/)
+## 上海环球港因疑似疫情被关闭
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867512/)
 
-01/13/2022 大卫·麦考米克：美国需在关键领域和中共脱钩，从经济和国家安全角度来保护美国人民。
+01/13/2022 上海环球港因疑似疫情被关闭。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

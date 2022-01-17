@@ -2,27 +2,29 @@
 ---
 
 
-## CCP的软硬嘴脸
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870490/)
+## 小福利&amp; M7的分享(二)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870535/)
 
-##### 整理：雅典娜速记组
-编辑：玉米地守望者
+#### 整理：雅典娜速记组
+编辑：陶子
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CCP的软硬嘴脸-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/小福利M7的分享（二）-.jpeg)
 
 
-七哥：
-大家对共产党的认知还是极为浅薄，CCP有时候硬得如刚，有时候软得如屎。对待中国人民，对待自己的谎言，对待玩弄的女人永远硬如刚。对待美帝国主义，对待俄罗斯，软得像狗屎一样，就成了宇宙中的一粒沙。秦刚就是太监级的人物，代表CCP最真实的流氓的嘴脸。对内绝对硬，对外嘴硬，一切都软。
+这就是他对疫苗的认知。然后他还跟我说，他曾经得过cep病毒，然后呢，打了三针。
 
-*发布：玉米地守望者*
+本来我是。基本上我现在是见到一个人，不管是中国人还是外国人，都会跟他说说大胡子医生还有我们的青蒿素，然后我就放弃了。但是我要(说)的是，我这些是坏人吗？我又跟他谈了谈最近的经济啊。说了一点共产党的事儿，他说我是不会去哪里的。但是呢，他的给我的感觉就是，他也不知道共产党有多邪恶， 他也不知道，他也不喜欢共产党。但是呢，就完全是跟着媒体和政府的那种路线来走，我觉得这种人挺典型的。
 
-**
+好的，非常感谢各位的这个分享啊，就是我，我是觉得这个疫苗的这个真的是，如果要是说洗脑的话，过去的这些主流媒体对西方老百姓的这种洗脑持续了这么长时间，很多人是真的是被洗脑的，包括郭先生刚才提到的，包括美国的高校常春藤盟校，很多都是掌握在这种被媒体洗脑，但是很多的大学生都被洗脑了，所以这个真的不分什么穷富，不分什么这个你的教育高低的这些真正的，你受到媒体的影响，这个真的又回到我们一开始的这个(话题)。
+
+*发布：陶子*
+
 更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
