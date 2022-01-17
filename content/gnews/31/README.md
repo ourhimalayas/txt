@@ -2,19 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月16日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1868198/)
+## 香草山翻译部周刊|2022年1月16日第31期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1868583/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CN-1.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：[2022.01.16早GTV新闻访谈](https://gtv.org/video/id=61e41d86a0fd8e5c735a581e)
-
+总编： GBWater
 编辑： Lakers
-校对： Lakers
 发稿： Lakers
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-12.jpg)

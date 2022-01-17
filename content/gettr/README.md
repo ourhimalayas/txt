@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 1:02 AM (UTC)`
+
+佛罗里达州长: 在其它州，他们解雇了没接种疫苗的护士，尽管他们大部分人具有天然免疫力。他们让已接种疫苗的护士重返工作岗位。这直接表明医疗保险和医疗补助服务中心的强制令绝对是疯狂的，尤其是考虑到众所周知的阻止病毒传播的疫苗无效。<br/><br/>Governor of Florida: In other states they fired nurses for not having Vax even though most of them have natural immunity. And they are bringing back on the job Vaccinated nurses who are currently COVID Positive. It just shows you that the CMS mandate is absolutely insane, especially given the ineffectiveness you know of the shots to actually stop transmission.
+![img](https://media.gettr.com/group50/getter/2022/01/17/01/a3e52050-b6ee-2ae8-9c08-1d795e807773/out.jpg)
+
+---
+
 `@miles 1/17/2022 12:19 AM (UTC)`
 
 1/16/2022 Miles Guo’s GETTR: Snow will be artificially made for the Winter Olympics, the CCP's forgery ranks No. 1 in the world. The hatred and ignorance instilled in people by the CCP makes their decisions worse than what animals can do. People will inevitably pay the price for being in cahoots with the CCP, and the year 2022 is going to be the darkest year for humanity!<br/><br/>1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流；中共灌输给人们的仇恨与无知让他们做的决策比畜生还可怕；与中共为伍必将付出代价，2022年是人类最黑暗的一年！<br/>
@@ -149,13 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group36/getter/2022/01/15/14/5322e70a-20a8-e3b9-76ec-bdd844e08266/out.jpg)
-
----
-
-`@miles 1/15/2022 7:27 AM (UTC)`
-
-1/14/2022 Miles Guo: Xi Jinping is the only one in the world that no one dares to criticize! Criticisms of GETTR by the influencers such as Joe Rogan shows the value of GETTR. Although GETTR is far from perfect, it has made unprecedented and impressive achievements in the short period of time after its launch<br/><br/>1/14/2022 文贵直播：世界上只有习近平没人敢怼！像Joe Rogan这样的大V怼盖特体现了盖特的价值；盖特虽然尚不完美，但它在诞生后短短的时间内就取得令人瞩目的成就，已经是史无前例<br/>
-![img](https://media.gettr.com/group33/getter/2022/01/15/07/20af1b40-e364-fcdb-a1c0-5d4d5e9a9771/out.jpg)
 
 ---
 
