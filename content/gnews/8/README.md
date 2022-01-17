@@ -2,29 +2,28 @@
 ---
 
 
-## “精疲力竭”的医生表示，Omicron 对医院造成严重冲击
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1870884/)
+## 中华民族的悲哀—被种族歧视而不自知(二)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870969/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/172.jpg)图片来自网络
-悉尼肺部专家 Lucy Morgan 博士自CCP病毒爆发以来在前线工作了两年，在今天的新闻发布会上，她展示了病毒大流行对卫生工作者的影响。
+#### 整理：雅典娜速记组
+编辑：陶子
 
-在记者面前Morgan 博士表示自己有些紧张，她在医院工作到今日凌晨1点左右，已经非常的疲惫。她向记者表示：“大约在凌晨 1 点到 6 点之间的每一个小时，我都会接到一个电话，说有一名感染COVID的患者病得很重，需要住进我的医院。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中华民族的悲哀—-被种族歧视而不自知（二）-.jpeg)
 
-无论是否紧张，Morgan博士都直言不讳地谈到医疗专业人员目前的艰难处境，同时她呼吁人们继续保持随时消毒、戴口罩和保持社交距离等做法。
 
-“我们已经筋疲力尽了……为了应对前所未有的就诊需求，每天有成千上万的病人来到我们的医院，这影响了我们处理其他事务的能力……短期而言，问题不大，但从长期来讲，这是相当糟糕的。”
+第二，他因为巨大的利益和巨大的恐惧，就像这个所有的报仇的苹果amazon这些。 我那天说了我们绝对不恨他们，但是你知道有一个媒体Facebook，Facebook就没让我的账号存活过24小时。Facebook一年的广告费，900亿美元。YouTube, 150亿美元。整个推特现在还是赔钱。你告诉我 Facebook 没让我活过24个小时，我们凭啥告推特不告YouTube？我们得感谢人家。那为什么 Facebook 不让我们活超过一天知道吗? HBO区和VOICE，他为什么在这时候要干什么？都是为了钱嘛！
 
-“这对我们来说真的很艰难，对新南威尔士州的人民来说也真的很艰难，因为这导致了一些诊断的延误，更长的看病等待时间，我们的社区在这一过程中也承受了巨大的负担。”
+他敢对犹太人这么干吗？再敢对穆斯林这么干吗？所以大家要看到这是你们大家 说你刚才咱直播几个小时，我想让你们知道，你们不知道被种族歧视是什么，因 为你们压根就不相信自己被种族歧视。被种族歧视，第一来自共产党，第二就是 外国媒体。外国媒体对我们新中国联邦是典型种族歧视。这种这种邪恶已经到了 我们兄弟姐妹必须要站起来说话的时候。
 
-虽然Omicron似乎比过去的毒株造成的症状更加轻微，但是Morgan博士表示，即便如此，由于当前疫情爆发的传播速度太快，那些出现症状需要到医院接受检测的人数也随之飙升，这导致了当前医院出现的超负荷危机。
+*发布：陶子*
 
-“我认为在过去的 24 小时内，也就是我一直处于待命状态的 24 小时之内，有超过 2500 名患者来到我们的医院……同时我们的医生——他们也是社群的一员——现在也感染了COVID-19。”
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-nsw-updates-lung-specialist-dr-lucy-morgan-says-health-workers-exhausted-omicron-strain/b40a800c-7289-45b9-ac65-f90317882c03)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

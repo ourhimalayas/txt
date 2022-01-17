@@ -2,22 +2,22 @@
 ---
 
 
-## 纽约一名亚裔女性被推落地铁轨道后身亡
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1870757/)
+## Nick关于喜币的见解
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870852/)
 
-素材：波士顿五月花 咫尺天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/01/merlin_200386215_748d1dd5-6fcf-41b0-b307-b18a157ad61e-master1050.jpg)From THE NEW YORK TIMES
-15日上午纽约地铁站出现惊悚一幕，一名男子走向一名在等待地铁的40岁女子，将她推进铁轨，此时一列火车正好进站，导致该名女子死亡。是两周以来在地铁内发生的第二起暴力死亡事件。
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Nick关于喜币的见解-scaled.jpg)
+拥有这样的一个货币的，就是数字货币的时候。你接收了喜币，你拥有这样的数字货币，那么你其实根本上解决了很多现在我们面临的一些问题，比如说货币超发，比如说通货膨胀，因为所有的这些超发也好，通货膨胀也好，很大程度上是因为不停的印钞票啊引起的，那么不停地印钞票，是因为政府一定要这么做，他要去分配这个财富，但是我们拥有这个喜币，拥有数字货币的时候，你就完美地避开所有这些问题，并且你还很安全，你不被任何人监管，你有这个私密性，所以我觉得你接受数字货币，接受喜币的话，说明你这个地方，你这些人是有脑子的。
 
-受害人米歇尔·艾莉莎·吴是亚裔，这触动了另一个敏感问题——在病毒大流行期间，针对亚裔纽约人的仇恨犯罪急剧上升——但警方表示，没有迹象表明她因其种族而成为攻击目标。
+*发布：玉米地守望者*
 
-2021年截止11月的重罪袭击率是2019年同期的三倍。在同一时期，每百万乘客的被抢劫率增加了一倍多。许多地铁乘客抱怨，他们经常遇到看上去不正常、具有威胁性的人，并向民选官员寻求帮助。
-
-原文链接：[纽约一名亚裔女性被推落地铁轨道后身亡](https://cn.nytimes.com/usa/20220117/woman-pushed-on-train-death/)
-
-* * *
-
-*编辑 /发布：吐纳*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

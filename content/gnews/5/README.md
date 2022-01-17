@@ -2,22 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜澳洲政府资助机构发布煽动性广告：青少年接种疫苗毋需父母许可
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870899/)
+## 阿富汗的今天，中共国的明天
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870989/)
 
-**撰文｜疫情关注组 / 发布时间｜17/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
+![](https://assets.gnews.org/wp-content/uploads/2022/01/阿富汗的今天中共国的明天.jpg)
+共产党灭亡前死人，饿死人，将会超出你想象。阿富汗从过去不到2000万人迅速增加到5000万人口，五千万人一年要一亿吨的粮食，最低他也要6000千万粮食。
 
-一个由澳洲政府资助的青年组织，维多利亚青年事务委员会（YACVic）日前在官方社交平台上，上传了一则名为“可爱的约会创意”的影片，内容令人震惊，它煽动青少年不需要经过父母允许，可自行决定接种 COVID-19 疫苗。
+现在的阿富汗2300万人面临今年冻死。共产党现在树立了塔利班了，但是塔利班是活不下去的。
 
-在时长仅 1 分钟的影片里面，两名女孩在购买电影票时被要求出示疫苗通行证，其中一名年仅14周岁的女孩表示自己未获得父母许可接种疫苗，因此无法出示。
+此时此刻阿富汗最起码死掉已经是几万人了，未来的80天以内，最起码死200万到300万，这不是我说的。你记住我今天的直播，阿富汗今天一定在100万到300万之间被饿死，2300万在挨饿，而且是因为共产党所谓树立的塔利班。
 
-这时，另一名女孩就指出：“你已经14岁了，你根本不需要得到许可。”于是，两人就去到最近的疫苗接种点，接种了 COVID-19  疫苗。
+塔利班的领导每天在搞8岁到13岁的处女，每天弄仨。我们去想想咱们家的兄弟姐妹8岁到11岁的女孩儿，被那些流氓的男人按在床上开处，然后没饭吃被饿死。阿富汗的今天，就很有可能是中国人的明天
 
-最令人感到不安的是，在该影片的说明中，还给出专业建议，暗示这些年满14周岁的青少年有权向父母隐瞒自己的疫苗接种状况。
+*发布：玉米地守望者*
 
-来源｜[YACVic](https://www.instagram.com/p/CYlD6RiAnVU/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
