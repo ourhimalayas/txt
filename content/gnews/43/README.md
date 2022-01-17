@@ -2,99 +2,32 @@
 ---
 
 
-## 辉瑞公司遭受到美国历史上最大的刑事罚款
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870228/)
+## 德约科维奇在签证上诉失败后被驱逐出境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870198/)
 
-#### 翻译：Lish
-校对：枳实
-剪辑/字幕：蛮吉
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-104.png)
+图片来源：网络截图
 
-**字幕文本（英汉对照）**
+据零对冲1月16日报道，澳大利联邦法院全体法官在周日晚间裁定，驳回了德约科维奇对澳大利亚政府撤销其签证决定的挑战。随后德约科维奇在晚间11点被联邦特工护送飞离了澳大利亚，他还将面临三年的禁入。
 
-But the primary function of the drug companies is to make money for their investors. And we’ve got to get over the illusion that they’re somehow their purpose is to serve our health. That purpose is to make money.
+该裁决是由首席大法官詹姆斯·艾尔索普（James Allsop）与安东尼·贝森科（Anthony Besanko）法官和大卫·奥卡拉汉（David O’Callaghan）法官，经过周日近8个小时的审议一致驳回，所有费用将由德约科维奇支付。
 
-药物公司的主要功能是为其投资者赚钱。我们必须克服这样的幻想，以为他们的目标是为我们的健康服务。他们的目的是为了赚钱。
+鉴于此案的广泛影响和国际关注度，艾尔索普提出要听取双方对这一决定的进一步争论，然而，这位世界头号网球运动员的法律团队拒绝了这一邀请。结果，他失去了在澳网卫冕大满贯的机会。
 
-We’ve talked before about Pfizer, and what was the one drug where they had the largest settlement ever with the largest penalty ever
+艾尔索普说，法院的驳回理由将尽快公布。他指出，英联邦政府司法部门的决定不是关于政府行政部门的一位部长是否做出了拒绝这位网球明星入境的正确决定，而是关于在德约科维奇上诉提出的三个理由中，移民部长霍克的决定在法律是否正当或合法。“法院的职能不包括对[政府]决定的优点或智慧作出决定。”他说。
 
-我们以前谈到过辉瑞公司。他们有史以来最大的和解和最大的处罚的一种药物是什么？
+德约科维奇在一份声明中说，虽然他尊重这一裁决，但他 “对法院的裁决极为失望，这意味着我不能留下参加澳大利亚公开赛”。他说他现在将花一些时间来休息和休养，然后再发表除此之外的任何评论。他同时感谢他的团队和球迷的支持，并请求他们把注意力回到支持这项赛事上。他补充说，就离开该国的事宜他将与澳大利亚当局合作。
 
-Pfizer,it was Bextra, an arthritis drug?
+同时，霍克对法院支持他根据《移民法》行使权力的决定表示赞赏，强调澳大利亚强有力的边境保护对“保障澳大利亚的社会凝聚力”的重要性。
 
-是辉瑞公司的Bextra，一种关节炎药物？
+部长补充说，由于德约科维奇被视为一个“偶像”，这位球员在澳大利亚的出现可能会激起反疫苗的情绪，破坏澳大利亚的疫苗接种工作，并最终影响卫生系统。
 
-And what did they do
+德约科维奇的律师在法庭上质疑，没有“证据”表明这种情况会发生，强调德约科维奇的驱逐出境和政府的“胁迫行动 ”也会达到同样的效果。
 
-他们干了什么？
+澳大利亚网球运动员尼克·基尔乔斯（Nick Kyrgios）此前曾批评澳大利亚政府对签证事件的处理“令人尴尬”，他在社交媒体上对法院的决定表示失望。
 
-So I can’t tell you I know. But I can’t tell you. I spent about 10 years a little more than 10 years in litigation as an expert in the national drug cases.
-
-我知道，但我不能告诉你。我花了大约10年多一点的时间，作为国家药品案件诉讼中的专家。
-
-And when I served as an as an expert, I got to see all the documents I did that for in the case of Pfizer, Pfizer’s behavior was, in my opinion, so outrageous, that I picked up the phone and call the Department of Justice, and said, I know a lot about this drug.
-
-当我作为专家服务于毒品案件诉讼时，我能够看到了所有的文件，我经历了辉瑞公司的案例时，我看了也看了所有的案卷资料，辉瑞公司的行为，在我看来，是如此的离谱，以至于我直接拿起电话，打电话给司法部说：“我对这种药物了解很多。”
-
-But I can’t tell you because I’ve signed a confidentiality agreement as an expert. So the Department of Justice in the FBI sent me a subpoena and said, You must come with your computer and tell us what they did wrong.
-
-但我不能告诉你，因为我已经签署了作为专家的保密协议。所以联邦调查局的司法部门给我发了一张传票，上面说：“你必须带着你的电脑来，告诉我们他们做错了什么。”
-
-And I did. Six months later, I read in the newspaper that the Department of Justice had found the company had committed a felony. And they were dealt the largest fine in US history, the largest criminal fine in US history. So I know what happened. But I can’t tell you,
-
-而我照做了。六个月后，我在报纸上看到，司法部发现该公司犯了刑事重罪。他们受到了美国历史上最大的罚款，这是美国历史上最大的刑事罚款。所以我知道发生了什么。但我无法告诉你。
-
-you can’t tell me because of the confidentiality
-
-你不能告诉我，因为保密性的问题
-
-Yeh
-
-是的
-
-Wow.
-
-哇！
-
-And it’s even more serious, because the drug companies own the data from those clinical trials, the peer reviewers, and the editors of the medical journals don’t get to see the data.
-
-而且更严重的是，因为药物公司拥有这些临床试验的数据的所有权，同行评审员和医学杂志的编辑们都没有机会看到这些数据。
-
-They have to take the word of the drug companies that they’ve presented the data accurately and reasonably completely, and you only get to see it in litigation. You know, five years later.
-
-他们必须接受药物公司的说法，相信他们已经准确和合理地完整地展示了数据，而你只有在诉讼中才能看到。你知道，通常要五年后…
-
-So the data is only held by the pharmaceutical companies, they release their analysis of the data.
-
-所以数据由制药公司独家持有，他们只公开他们自己的数据分析？
-
-Correct.
-
-正确
-
-And then the peer reviewers do everything based on the analysis of the data that was released by the pharmaceutical companies.
-
-然后同行评审员根据制药公司公开的数据分析来做评审？
-
-That’s correct.
-
-正是这样
-
-That’s insane.
-
-这真是疯了。
-
-That’s insane. And Doc’s don’t understand it. They don’t understand that they’re getting manipulated.
-
-这就是疯了。而医生们对此并不了解。他们不知道他们正在被操纵。
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Djokovic Deported After Losing Visa Appeal, Faces 3-Year Ban From Australia](https://www.zerohedge.com/political/djokovic-deported-after-losing-visa-appeal-faces-3-year-ban-australia)
 
  
 

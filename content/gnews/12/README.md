@@ -2,103 +2,156 @@
 ---
 
 
-## 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难! 疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871005/)
+## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
 
-[https://gtv.org/video/id=61e416f387664c47acd56fb8](https://gtv.org/video/id=61e416f387664c47acd56fb8)
+Marjorie Taylor Greene (the U.S. representative of Georgia)
+玛乔丽·泰勒·格林 (美国佐治亚州众议员）
 
-**郭文贵
-Miles Guo**
+I’m just happy to see that that the media and you know
+我很高兴看到媒体和你知道
 
-我到那里以后，我从来没有动外面任何东西，喝那最高级的水
-After I got there, I never touched anything outside, and drank the highest grade of bottle water
+my colleagues here on Capitol Hill are starting to catch up what
+我在国会山的议员同事们开始跟上了
 
-我（被）送医院去了，就是传染了
-I (was) sent to the hospital. I was infected
+what the American people have known all along
+美国人民一直都知道的
 
-当时说，你不打疫苗，就会死在这里
-It was said at the time that if you didn’t get vaccinated, you would die here
+none of us trusted Fauci
+我们都不信任福奇
 
-我去非洲，我也打了疫苗，打了1、2十针疫苗
-I went to Africa, and I also got vaccinated, a dozen to 20 shots
+And that’s why I introduced the Fire Fauci Act early early last year
+这就是为什么我在去年初介绍了《解雇福奇法案》
 
-东弟，我们不是反疫苗，我们是相信疫苗的
-Brother Dong, We are not anti-vaccine, we believe in vaccines
+because this is the man that is at the root of all of our problems
+因为这个人是我们所有问题的根源
 
-但是你不知道病毒的情况下，你怎么可能有疫苗？
-But if you don’t know the virus, how can you possibly have a vaccine?
+But I’d like to walk back even a little further
+但我还想往回走得更远一点
 
-更重要事情，我们向西方(机构)，包括美国高（等）法（院），所有的人，包括美国国会，我们提供的就两件东西
-More importantly, we have provided two things to organizations in the west, including the U.S. Supreme Court, U.S. Congress and all people
+Steve, I’m going to go ahead and say this
+史蒂夫，我要继续将这个说下去
 
-在欧洲的 (从中共国逃出来的) 科学家，他给我们提供的文件
-The documents provided by the scientist in Europe who escaped from the Mainland China
+and it’s been upsetting to me ever since it happened
+自从病毒发生以来，我一直很不安
 
-就共产党，这个事，我们敢公开喊，就是共产党的生化病毒
-We can shout out loud that this is the CCP’s biochemical virus
+But when we shut our country down
+但是当我们关闭我们的国家时
 
-(这) 病毒是不可能有疫苗的，(这) 就是生化武器
-There is no vaccine for this virus, cause the virus is a biological weapon.
+when we shut it down to so called slow the spread
+当我们关闭国家以所谓的减缓传播时
 
-所以你记住这个原则以后，你就不要讨论其他问题了
-So after you keep this principle in mind, you won’t discuss other issues.
+I knew we broke America. We broke our country
+我知道我们破坏了美国，我们破坏了我们的国家
 
-第一，不能打疫苗; 第二，必须戴口罩; 第三，尽量不出去; 第四，大家要记住，这个世界如果咱们能决定黑和白、红和黑，我们可能新中国联邦可能已经不叫新中国联邦，叫太阳联邦了
+When that happened, we stopped the supply chain
+发生这种情况时，我们停止了供应链
 
-First, don’t get vaccinated; Second, you must wear a mask; Third, try not to go out; Fourth, everyone must remember that if we could decide on what is black and what is white, and what is red and what is black, then we wouldn’t be the New Federal State of China, but Sun Federation.
+We, you know, factories whose machines stay up running 24 hours a day had to shut down
+我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
 
-我们(新中国联邦)还是很渺小的力量，跟国家的权力，跟世界比，我们是很很很渺小的
-We (the New Federal State of China) are still a very tiny force, Compared with the power of a country and the world, we are very, very tiny
+people went home and that is really what broke our country
+人们回家了，而且这真的是我们国家崩溃的原因
 
-真的像张高丽说的，人家是宇宙无限大，我们是地球一粒沙都不是，跟人家的国家政权（比），我们真是一粒沙都不是，不要把自己看那么伟大，好吧
-Just like Zhang Gaoli said, they are the infinite universe, we are not even a grain of sand on the earth, compared with the power of a country. Please don’t think of yourself as great, okay?
+and now it’s going to take a very long time to get back on track
+现在需要很长时间才能回到正轨
 
-我先说到这，大家先记住（上面提到的）这几个重点。
-然后，还有几个建议我要跟大家说的，听7哥（当时）说，今年年底，就是2021年底可能要大爆发，爆发了吗？
-For now, please keep the (above mentioned) points in mind first.
-Then, there are a few more suggestions that I want to share with you. I said that there may be a big outbreak at the end of 2021. Has it happened?
+And the biggest problem is, is we have people here in Washington
+最大的问题是，我们在华盛顿这里的人
 
-我说新病毒（会从）哪来，来了吗？
-I said where the new virus would come, did it come?
+that are serving global interests or are interested in helping the great reset happen
+为全球利益服务或有兴趣帮助大重置的发生
 
-我说疫苗灾难，会在今年5月份以前截止，1、2月份会有法律上的行动，行动了吗？
-I said that the vaccine disaster will end before May this year, and there will be legal actions in January and February. Have these actions taken place?
+and are not serving the American people
+并且不为美国人民服务
 
-我再告诉大家，我不求你们信我们，如果你们信新中国联邦，信7哥说的话，5月份以前，你能呆在家里呆在家里
-Let me tell you again. I don’t beg you to believe us. If you believe in New Federal State of China and what Miles Guo said, you’d better stay at home before May
+Inflation is very scary and it’s getting out of control.
+通货膨胀非常可怕，而且正在失控
 
-你要真要出去了，染你病毒的不是病毒的携带者，是所有你认为打了疫苗的人
-If you really have to go out and get infected, you will not be infected by those virus carrying people, but by those vaccinated
+When the Fed is going to have to step in and raise interest rates
+当美联储将不得不介入并提高利率时
 
-你就尽量不出门
-Again you’d better not to go out
+We have long term problem that will not end by next year
+我们有长期的问题，明年不会结束
 
-2022年，是人类有史以来最黑暗的，可以回到侏罗纪时代去
-The year 2022 is the darkest in human history and (we) could go back to the Jurassic era.
+they’re not going to end it two years
+他们不会在两年内结束它
 
-你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难，共产党灭亡前的灾难，甚至是火战，甚至是战争
-You have to be mentally prepared for all economic disasters, humanitarian disasters, virus disasters, vaccine disasters, disasters before the demise of the Communist Party, even hot wars
+Here’s here’s the real issue when the cost of producing goods has increased so much
+当生产商品的成本增加如此之多时，这才是真正的问题
 
-还有你刚才问的所谓“热毒”，这个毒，就是共产党的毒，就是整个投毒、疫苗的结果
-You just asked about what the so-called “hot poison” is. This poison is the poison of the Communist Party, and it is the result of the entire poisoning and vaccines.
+and then the ability to provide the goods to the consumer are completely disrupted
+然后将商品提供给消费者的能力被完全破坏
+
+We have stagflation, but we also have real problems
+我们有滞胀，但我们也有真正的问题
+
+The biggest problem driving the cost of producing goods is several factors
+推动商品生产成本的最大问题是几个因素
+
+One of them is this mass COVID testing
+其中之一就是这种大规模的COVID测试
+
+mass COVID testing is continuing the panic in this in the society
+大规模的COVID测试正在继续在社会中引起恐慌
+
+and but it’s also giving people a reason to get out of work.
+但病毒也造成了人们失业
+
+You know what if you have a positive COVID test, whether you’re sick or not
+你知道如果你的COVID测试呈阳性，无论您你是否生病
+
+you have to stay home, and that means
+你必须待在家里，而且这意味着
+
+that it’s more expensive for the company to continue producing the goods or services that they provide
+公司继续生产他们提供的商品或服务的成本会更高
+
+because they less have less people there at work
+因为他们工作的人少了
+
+And then you have less people to unload the train, unload the cargo, put it back on the shelf
+然后你就没有多少人来卸火车，卸货物，把它放回货架上
+
+I mean, we have so many serious problems
+我的意思是，我们有很多严重的问题
+
+and we can point it all at one man that is Dr. Fauci
+我们可以把这一切都指向一个人，那就是福奇博士
+
+Dr. Fauci is responsible for all of this, he created the gain of function
+福奇博士对此负一切责任，他创造了功能增强研究
+
+He gave it to China, they created the bio weapon
+并把它给了中共，中共创造了生物武器
+
+which is COVID-19 and it broke the world
+这就是COVID-19，它破坏了世界
+
+but our government and anyone that goes along with this
+但如果我们的政府和任何工作人员
+
+and doesn’t fire Fauci, investigate him, prosecute him
+不去解雇福奇，调查他，起诉他
+
+and hold him accountable is failing the American people
+追究他的责任，那就是辜负美国人民
 
 * * *
 
-Date: 01/14/2022
-原视频标题: 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难!
-疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
-Everyone, be prepared! Economic disasters! Humanitarian disaster! Virus disaster!
-Vaccine disaster! The disaster before the demise of the Communist Party! Even the disaster of hot wars!
-原视频日期：2022/01/14
-原视频链: [**https://twitter.com/yingjie22739040/status/1482006186740174848?s=24**](https://twitter.com/yingjie22739040/status/1482006186740174848?s=24)
-任务编号：KC416（3491）
-视频时间段 : 0:00-2:20
-中听校：洛杉矶盘古农场 – WH
-翻译：洛杉矶盘古农场 – WH
+Date:01/15/2022
+原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
+玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+原视频日期：2022/01/15
+原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
+任务编号：KE350（3492）
+视频时间段 : 0:00-2:44
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
+字幕+视频制作： 洛杉矶盘古农场 – 天涯行
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
