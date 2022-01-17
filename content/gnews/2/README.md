@@ -2,37 +2,39 @@
 ---
 
 
-## 数据讽刺：奥密克戎病毒喜欢疫苗接种率高的州
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869531/)
+## 习近平呼吁加强监管，防范数字经济的“不健康”发展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1869697/)
 
-#### 【雅典娜观察】和您一起探究世界
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16421257761.png)资料图
+来自《台湾英文新闻》网站1月15日的报道，路透上海1月15日—— 中共国家主席习近平呼吁加强对中共国数字经济的监管和治理，以防范其“不健康”的发展，因为中共政府旨在提高该行业对国家监管的贡献。
 
-整理报道：George Warshing
-编辑：文泓
+周六，在执政的共产党刊物《求是》上发表的一篇文章中，习近平呼吁关注包括集成电路、显示器、通信设备和智能设备在内的关键领域。他说，中共国要“发展一批具有国际竞争力的企业，以及主导产业链的领先环保企业，打造世界级的数字产业集群”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WNQAKA992PURQWFWDO1UM9.png)图片来源：墨尔本雅典娜农场设计组
+习还呼吁进行监管和整顿，以弥补监管漏洞，防止世界第二大经济体出现“垄断和资本不受控制的扩张”。“在高速发展的过程中，我国数字经济也呈现出一些不健康、不规律的种子和趋势，不仅影响数字经济的健康发展，而且违反法律法规，对国家经济金融安全构成威胁。”他说。
+
+中共国要完善国家安全体系，重点加强数字经济的预警和防控体系建设，以确保关键技术、重要产业和设施、战略资源和龙头企业安全。
+
+习的文章发表之前，中共国务院周三发布了数字经济发展规划，该规划旨在通过推动诸如6G和大数据中心等技术来增加该行业在中共国GDP中的份额。该规划还强调了包括关键领域创新能力不足和管理薄弱等挑战。
+
+简评：随着5G、AI、云计算等技术越来越成熟，数字经济应该跟医疗、教育、环境等领域很好的融合，正常的国家应该致力于对这些行业进行智能改进，让更多的人看得起病，上得起学，让人人都享有健康的空气、干净的水。
+然而在中共国，情况并非如此，因为中共国实际上是由少数几个家族控制的家天下，他们的数字经济首先要为中共的统治服务而非民生。在这里，海量的个人数据会被用来训练算法以加强对公众行为特征的研判。中共政权不除，中共的“天地一体、云网融合”的理念最终将会把中共国老百姓身上仅存的一点自由拿走。
+
+新闻链接: [https://www.taiwannews.com.tw/en/news/4411326](https://www.taiwannews.com.tw/en/news/4411326)
+
+翻译/简评: 乡间小路
+
+PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-1月14日，[自然新闻](https://www.naturalnews.com/)报道说，现在谁还相信接种疫苗可以阻止中共病毒传播吗？最新[数据](https://twitter.com/Emily_Burns_V/status/1480934276132745224)显示，哪个州的疫苗接种率越高，那里奥密克戎和其他变种病毒的出现几率就越高！
+编辑：【英国伦敦喜庄园编辑部】
 
-美国数据科学家艾米丽·伯恩斯汇总了大量证据后在推特上发布，她写道：“把疫苗注射率最高的10个州和最低的10个州放一起作数据对比，我们发现两者的年度发病率变化几乎没有差异。但是，疫苗接种率最高的10个州病例数比去年高出近400%，而后者却‘仅’增加了112%；而两者的b/n%数值同比增长的巨大差异（近4倍），可以**证明疫苗对奥米可戎病毒具有相反的负效应，即增加感染的可能性。**”
-
-**接种疫苗的负效应意味着较多的疫苗接种等于更多的病例，数据证明，接种率最高州的死亡人数突然激增，而低接种率的州死亡人数现在正在下降。**
-
-同期，加拿大安大略省也报告，**在接种前两剂疫苗后，疫苗预防感染的功效为负值，这意味着人们接种疫苗后会失去免疫力**。一项研究进一步发现：“**接种两剂中共病毒疫苗在任何情况下都不能预防奥米可戎感染**。”
-
-对此，一位评论者[写道：](https://citizenfreepress.com/breaking/omicron-is-hitting-vaccinated-states-hardest-monster-thread/)“奥米可戎是掩盖疫苗伤害的借口。”另一位指出：“当免疫系统受损时，你还能期待什么？当然感冒会自己找上门的。”
-
-**新闻链接：**[States with highest covid vaccination rates also seeing highest surge in omicron cases – NaturalNews.com](https://www.naturalnews.com/2022-01-14-states-highest-covid-vaccinations-rates-surging-omicron.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

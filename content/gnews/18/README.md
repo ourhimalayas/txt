@@ -2,20 +2,49 @@
 ---
 
 
-## 加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1869272/)
+## 网球名将未接种疫苗被取消签证 无法如期参赛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869361/)
 
-经常有人问我这样一个问题：有多少住院患者是真正因为COVID而住院的，而不是（因其他原因）住院，但同时患有COVID？这是说，有多少人住院的主要原因是COVID-19，而不是仅仅因为其他原因住进医院，之后又被诊断同时患有COVID。
+作者：银河系农场—骄子
 
-在目前住院的163名奧密克戎病毒感染者中，有66位是因为COVID而住院的，占COVID-19感染总数的40%。而在ICU的14名奧密克戎病毒感染者中，有11名是因为COVID住进ICU的，占总数的79%。
 
-这个数据很重要，因为我们即将迎来住院人数的大幅增加，而在非ICU的住院人数中，可以预计会有很多与COVID相关的住院病人，但他们并不是直接因为COVID而住院的。
 
-素材：文倩
-翻译：文永
-字幕：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑/发文：Kent
+
+
+1月16日，国外媒体报道，备受关注的网球名将诺瓦克·德约科维奇的签证问题有了新的进展。他因未接种中共病毒疫苗被再次取消签证，将没有机会参加即将举行的澳大利亚网球公开赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-7.jpg)
+据悉，澳网公开赛主办方要求提供中共病毒疫苗接种证明或者疫苗豁免证明，而诺瓦克反对强制接种中共病毒疫苗。在此次比赛之前，他已经获得了疫苗豁免证，原因是他在过去的六个月之内曾经感染过中共病毒并痊愈。但澳大利亚的一名边境官认为他没有资格豁免，并取消了他的签证。之后他的律师提出质疑，但1月16日，澳大利亚联邦法官再次宣布了同样的判决。
+
+诺瓦克的母亲在接受采访时说，诺瓦克本人对健康非常看重，而接种中共病毒疫苗完全应该是个人选择而不应该被强制，况且有些人在接种了疫苗之后，健康仍然出现了问题而无法参加比赛。
+
+参考信息：
+1.[Novak Djokovic leaves Australia, ‘disappointed’ after court dismisses deportation appeal](https://www.espn.com/tennis/story/_/id/33076998/novak-djokovic-loses-deportation-appeal-australia?platform=amp)
+2. [德约科维奇的母亲支持儿子：如果诺瓦克是健康的，他不应该为了参赛而被逼着接种疫苗。疫苗是个人选择，是人权。打了两针甚至三针疫苗的人也感染了病毒。说诺瓦克不接种疫苗，如果他在球场上咳嗽，可能会感染上万人，这种说法很愚蠢。](https://gettr.com/post/po0n64ea24)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
