@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 5:35 PM (UTC)`
+
+Dr. Geert Vanden Bossche (Virologist-Vaccinologist):<br/>The mass vaccinations are generating a breeding ground for even more infectious variants to replicate and the CCP virus will escape. If the COVID vaccines cannot prevent the transmission, this pandemic cannot be controlled. Vaccinations will be at risk of inducing autoimmune responses, autoimmunity in children. So under no single circumstance should you allow to get your child vaccinated.<br/><br/>Geert Vanden Bossche 博士，病毒学家-疫苗学家：这种大规模的新冠疫苗接种正为更具传染性病毒变种的复制制造温床，中共病毒将逃逸。如果新冠疫苗不能防止传播，就不能控制这种大流行病。接种新冠疫苗有诱发儿童自身免疫反应的风险。在任何情况下，你都不应该允许自己的孩子接种新冠疫苗。
+![img](https://media.gettr.com/group5/origin/2022/01/17/17/30e1fd9c-69ae-fb49-c6dd-f99096d941e2/out.jpg)
+
+---
+
 `@miles 1/17/2022 1:11 PM (UTC)`
 
 2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格
@@ -147,13 +154,6 @@ EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this de
 
 史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁<br/><br/>Steven Bannon: The CCP has infiltrated and bought off everything. It is the greatest existential threat that this republic has ever had<br/>
 ![img](https://media.gettr.com/group32/getter/2022/01/16/05/1a7e8554-b59b-e888-9bec-4496ae0c9aaf/out.jpg)
-
----
-
-`@miles 1/16/2022 4:57 AM (UTC)`
-
-印中正在举行第14轮高级军事指挥官级别的会谈。其目的是解决拉达克东部的摩擦点问题。然而，双方都未能在过去的会谈中取得任何进展。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。<br/><br/>India and China are holding the 14th round of senior military commander level talks. The aim is to resolve the friction points in eastern Ladakh. Both sides have failed to make any headway in the previous talks. There has been disengagement at many flashpoints, but tensions continue to simmer between the two countries. 
-![img](https://media.gettr.com/group43/getter/2022/01/16/04/b2cf26fd-86d0-7b48-69ca-a7efbb19d6a4/out.jpg)
 
 ---
 

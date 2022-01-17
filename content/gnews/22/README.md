@@ -2,53 +2,34 @@
 ---
 
 
-## 继续让人接种疫苗是“浪费时间”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1871934/)
+## 奥地利民众持续抗争 超半民众反对强制接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871941/)
 
-编译： Jenny Ball
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月15日，数千名奥地利民众走上首都维也纳的街头，抗议政府计划在下月对所有人实行强制性疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.jpg)
+在市中心的集会上，人群高呼口号表达不满。早在去年的11月，奥地利政府已经实行了第四次全国封锁，并计划在今年的2月起，对所有18岁以上的人员强制接种中共病毒疫苗。其严苛专制的手段被奥地利民众斥为“新法西斯主义”，并引发强烈不满。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/UK-teen-pfizer-2-700x420-1.png)Ian Forsyth/Getty Images
+据Profil杂志的一项民意调查，51%的受访者反对从2月起强制接种疫苗，其中34%的人持坚决反对态度，17%的人观望，45%的人赞成。社会进一步两极分化。
 
-英国疫苗工作组前主席说，继续为人们接种中共病毒疫苗是“浪费时间”。
+1月8号，已经接种了加强针的奥地利总理内哈默，确诊感染了中共病毒。尽管如此，奥地利议会仍将于本周四就强制接种疫苗进行投票。
 
-在帮助制药公司生产 COVID-19 疫苗方面发挥了关键作用的克莱夫·迪克斯（Clive Dix）博士于 1 月 16 日告诉 LBC 电台：“Omicron 变体是一种相对温和的病毒。在我看来，继续为人们接种疫苗，并考虑再次接种疫苗以保护民众，现在是浪费时间。”
+参考链接：[Thousands protest in Vienna against mandatory vaccination](https://www.reuters.com/world/europe/thousands-protest-vienna-against-mandatory-vaccination-2022-01-15/)
 
-迪克斯说，现在的重点应该是保护弱势群体，例如 60 岁以上的人，其中 2% 的人仍未接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-他说：“我们应该采取高度集中的方法，让这些人以及其他易受感染的人接种疫苗。”
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-尽管他支持正在进行的加强剂运动，但他说，他一直“批评”让每个人都接种，因为他不相信年轻人有“必要或需要”接种。
-
-迪克斯说：“我认为当时的想法是阻止感染和传播，而这些疫苗显然不能做到这一点。”
-
-他说，政府需要“非常专注”于为明年冬天的“未来疫苗接种计划”进行自我反省。
-
-他建议应该进行“免疫状况研究”，以“准确了解每个人的免疫力在哪里”，这样“到明年冬天，我们才能真正制定出吸取教训后的疫苗接种政策，在正确的时间，为对的人，使用正确的疫苗。”
-
-迪克斯上周告诉《观察家报》，针对 COVID-19 的大规模疫苗接种应该结束，英国应该把重点放在将其作为流感等地方病进行管理。
-
-“我们现在需要控制疾病，而不是病毒传播，”他说。“因此，阻止弱势群体发展为严重疾病是未来的目标。”
-
-英国政府的医疗顾问已经承认，每三到六个月对人群进行一次接种是“站不住脚的”。
-
-英国首席科学顾问帕特里克·瓦兰斯爵士 (Sir Patrick Vallance) 1 月 3 日表示，每隔几个月给每个人接种一次加强疫苗，并不是政府的“长期观点”。
-
-牛津疫苗小组主任兼政府疫苗接种和免疫联合委员会 (JCVI) 主席安德鲁·波拉德（Andrew Pollard）教授告诉《每日电讯报》，“每四到六个月为地球人接种一次疫苗”是“不可持续或能够负担得起的”。
-
-1 月 7 日，英国政府的疫苗接种咨询委员会建议，不要向疗养院居民和 80 岁以上的人接种第四剂 COVID-19 疫苗。
-
-**评论：在持续两年的疫情中， 为什么很少有医疗机构专家谈论对疾病的治疗？不奇怪吗？为什么很少有医疗机构专家谈论病毒起源，不知道病毒起源如何针对病毒研发疫苗？**
-
-参考资料：[theepochtimes][‘Waste of Time’ to Keep Vaccinating People: Ex-Head of UK Vaccine Taskforce](https://www.theepochtimes.com/mkt_morningbrief/waste-of-time-to-keep-vaccinating-people-ex-head-of-uk-vaccine-taskforce_4216302.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-17&amp;mktids=75a12f3c6c409208dbd39ad467ee2ac5&amp;est=sqxXcr5NuLtxcTYr%2FcribeddeEynie1jZ7qaMFyjzf403b%2BqOCXOuIXYEtTETrNLtrMItA%3D%3D)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
