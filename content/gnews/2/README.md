@@ -2,39 +2,27 @@
 ---
 
 
-## 反新冠疫苗游行再次席卷全澳
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870305/)
+## COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870357/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-148.png)图片来自网络
-澳媒《9 News》近日报道，今天，悉尼和墨尔本的抗议者走上街头，反对新冠疫苗接种和网球明星诺瓦克·德约科维奇的签证第二次被取消。
+**撰文｜疫情关注组 / 发布时间｜17/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-与此同时，该国有近 2000 万人完全接种了新冠疫苗。
+法国国民议会周日（16日）批准多项政府提出的最新防疫措施，其中包括最令当地民众反感的疫苗通行证。
 
-由于数千人游行反对为儿童接种新冠疫苗，悉尼警方关闭了 CBD 的部分地区。
+国会以215票赞成，58票反对，通过以疫苗通行证取代健康通行证的法案，要求全国 16 岁及以上人士须持疫苗接种证明，方可进出当地的餐馆、电影院、博物馆、火车站等公共场所，仅新冠病毒康复者可豁免。
 
-人群从阿尔弗雷德王子公园蜿蜒到海德公园。
+另外，法案还特别提高使用伪冒通行证的罚款，并允许身份审查以避免欺诈。巴黎和部分主要城市的民众集结，发起多场示威抗议，反对政府及国会推行该项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法國會通過疫苗通行證法案-禁止未接種者進出公共場所.jpg)
+就在该法案通过的前一日（15日），法国政府刚刚宣布推出新规定，成年人必须完成第三剂COVID-19 疫苗加强剂的注射才可获得有效的疫苗接种证明。
 
-德约科维奇的支持者也在其中。
+法国总统马克龙（Emmanuel Macron）1月4日受访时曾表示，“但对于那些尚未接种疫苗的人，我真的想『惹恼』他们。所以我们（政府）会继续这样做直至结束。这是策略。”
 
-德约科维奇在周日上午 9 点 30 分在法庭上对第二次取消签证提出上诉之前，今天在墨尔本被移民拘留。
+“我不会（把未接种疫苗的人）送进监狱，我不会强制（要求）接种疫苗。所以我们需要告诉他们，从1月15日起，你（不打针的话）不能再去餐厅、咖啡店、戏院等公共场所了”。
 
-在墨尔本，抗议者积极表达对这位塞尔维亚运动员的声援。
+来源｜[Euronews](https://www.euronews.com/2022/01/15/france-requirement-for-triple-vaccination-covid-pass-begins) 、[Axios](https://www.axios.com/french-parliament-approves-covid-vaccine-pass-25d84133-d5af-4ddd-b8ce-ac2842c81f43.html)
 
-这次游行叫“反对澳洲公开赛的疯狂”，示威者要求德约科维奇被允许参赛，停止新冠强制措施和“结束医疗隔离”。
-
-此前，移民部长亚历克斯霍克将德约科维奇描述为“反新冠疫苗接种情绪的护身符”，并可能引发内乱。
-
-现在，近 2000 万澳大利亚人至少接种了两剂新冠疫苗，几乎占总人口的 80%。
-
-将近五百万18岁以上人士打了第三针新冠疫苗。
-
-这次疫情再次爆发是澳洲政府的原因，澳洲政府放开所有防疫措施，号召大家不要怕病毒，把所有的宝都压在新冠疫苗身上，鼓励大家圣诞聚会，旅游。而新冠疫苗早已经被证明对疫情防控完全无效，所以整个澳洲才暴增那么多病例。而又因为因为病例激增，造成供应链断裂，超市物品短缺，药品短缺，测试纸买不到，必要行业人员不足等一系列社会问题。所以人们才纷纷站出来游行，而这一切都是澳洲政府自己造成的。
-
-参考链接：
-
-[https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75](https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
