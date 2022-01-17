@@ -2,36 +2,99 @@
 ---
 
 
-## 有声|加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870227/)
+## 辉瑞公司遭受到美国历史上最大的刑事罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870228/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，加拿大国防部已对900多名未接种中共病毒疫苗的加拿大武装部队成员提起了诉讼。据悉，此前加拿大国防部参谋长要求，2020年10月前加国军人需全面接种中共病毒疫苗，现该日期被延后至12月中旬。
+#### 翻译：Lish
+校对：枳实
+剪辑/字幕：蛮吉
 
-目前，加拿大军人的中共病毒疫苗接种率为98.3%。截止12月底，已有超过830名武装部队成员因未接种疫苗而受到正式警告，另外100名未接种疫苗的军人受到了正式审查，有44名军人被迫选择离开军队，曾有军人在法庭质疑强制接种疫苗被驳回。
+**字幕文本（英汉对照）**
 
-原文链接：[加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼](https://gnews.org/zh-hans/1867560/)
+But the primary function of the drug companies is to make money for their investors. And we’ve got to get over the illusion that they’re somehow their purpose is to serve our health. That purpose is to make money.
 
-音频处理/发稿：Daxia
+药物公司的主要功能是为其投资者赚钱。我们必须克服这样的幻想，以为他们的目标是为我们的健康服务。他们的目的是为了赚钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+We’ve talked before about Pfizer, and what was the one drug where they had the largest settlement ever with the largest penalty ever
 
-**更多资讯，更多关注**
+我们以前谈到过辉瑞公司。他们有史以来最大的和解和最大的处罚的一种药物是什么？
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Pfizer,it was Bextra, an arthritis drug?
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+是辉瑞公司的Bextra，一种关节炎药物？
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+And what did they do
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他们干了什么？
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+So I can’t tell you I know. But I can’t tell you. I spent about 10 years a little more than 10 years in litigation as an expert in the national drug cases.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+我知道，但我不能告诉你。我花了大约10年多一点的时间，作为国家药品案件诉讼中的专家。
 
+And when I served as an as an expert, I got to see all the documents I did that for in the case of Pfizer, Pfizer’s behavior was, in my opinion, so outrageous, that I picked up the phone and call the Department of Justice, and said, I know a lot about this drug.
 
+当我作为专家服务于毒品案件诉讼时，我能够看到了所有的文件，我经历了辉瑞公司的案例时，我看了也看了所有的案卷资料，辉瑞公司的行为，在我看来，是如此的离谱，以至于我直接拿起电话，打电话给司法部说：“我对这种药物了解很多。”
+
+But I can’t tell you because I’ve signed a confidentiality agreement as an expert. So the Department of Justice in the FBI sent me a subpoena and said, You must come with your computer and tell us what they did wrong.
+
+但我不能告诉你，因为我已经签署了作为专家的保密协议。所以联邦调查局的司法部门给我发了一张传票，上面说：“你必须带着你的电脑来，告诉我们他们做错了什么。”
+
+And I did. Six months later, I read in the newspaper that the Department of Justice had found the company had committed a felony. And they were dealt the largest fine in US history, the largest criminal fine in US history. So I know what happened. But I can’t tell you,
+
+而我照做了。六个月后，我在报纸上看到，司法部发现该公司犯了刑事重罪。他们受到了美国历史上最大的罚款，这是美国历史上最大的刑事罚款。所以我知道发生了什么。但我无法告诉你。
+
+you can’t tell me because of the confidentiality
+
+你不能告诉我，因为保密性的问题
+
+Yeh
+
+是的
+
+Wow.
+
+哇！
+
+And it’s even more serious, because the drug companies own the data from those clinical trials, the peer reviewers, and the editors of the medical journals don’t get to see the data.
+
+而且更严重的是，因为药物公司拥有这些临床试验的数据的所有权，同行评审员和医学杂志的编辑们都没有机会看到这些数据。
+
+They have to take the word of the drug companies that they’ve presented the data accurately and reasonably completely, and you only get to see it in litigation. You know, five years later.
+
+他们必须接受药物公司的说法，相信他们已经准确和合理地完整地展示了数据，而你只有在诉讼中才能看到。你知道，通常要五年后…
+
+So the data is only held by the pharmaceutical companies, they release their analysis of the data.
+
+所以数据由制药公司独家持有，他们只公开他们自己的数据分析？
+
+Correct.
+
+正确
+
+And then the peer reviewers do everything based on the analysis of the data that was released by the pharmaceutical companies.
+
+然后同行评审员根据制药公司公开的数据分析来做评审？
+
+That’s correct.
+
+正是这样
+
+That’s insane.
+
+这真是疯了。
+
+That’s insane. And Doc’s don’t understand it. They don’t understand that they’re getting manipulated.
+
+这就是疯了。而医生们对此并不了解。他们不知道他们正在被操纵。
+
+发布：枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

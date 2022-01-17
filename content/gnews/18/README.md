@@ -2,36 +2,27 @@
 ---
 
 
-## 近年含数字7元素的彩票在大陆流行
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1870441/)
+## CCP的软硬嘴脸
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870490/)
 
-作者：波士顿五月花 咫尺天涯
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
 
-自2017年郭文贵先生开启爆料革命到当下的5年间，中国大陆陆续发行含有数字7元素的即开型彩票，诸如：7乐无穷、出7制胜、7彩宝石、如7而至、乐在7中等多款彩票。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CCP的软硬嘴脸-scaled.jpg)
 
-众所周知数字7向来神秘而特殊，是郭先生和爆料革命的吉祥数字、特征数字。而中国近几年密集发行多款含有数字7的彩票推向市场，十分罕见和巧合。
 
-这说明爆料革命战友无处不在，在各个行业和领域都有暗自无声的力量相助。亦或爆料革命秉承天意，小概率巧合事件屡屡出现。
+七哥：
+大家对共产党的认知还是极为浅薄，CCP有时候硬得如刚，有时候软得如屎。对待中国人民，对待自己的谎言，对待玩弄的女人永远硬如刚。对待美帝国主义，对待俄罗斯，软得像狗屎一样，就成了宇宙中的一粒沙。秦刚就是太监级的人物，代表CCP最真实的流氓的嘴脸。对内绝对硬，对外嘴硬，一切都软。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/乐在7中.jpg)
+*发布：玉米地守望者*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7乐无穷.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/出7制胜.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7彩宝石-3.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7彩宝石-1.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7彩宝石-6.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-18.png)
-
-（以上图片均来自网络）
-
-* * *
-
-*编辑 /发布：吐纳*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
